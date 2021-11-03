@@ -2,24 +2,45 @@
 ---
 
 
-## 秘翻在线:美国一些州推出的新数字驾照将包含个人疫苗状况信息
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1635922/)
+## NBA球员Enes Kanter呼吁中共：“停止种族灭绝，现在!”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1636053/)
 
-#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+伊内斯-坎特是一名土耳其职业篮球运动员，目前为波士顿凯尔特人队效力并担任中锋。他在社交媒体平台GETTR上面，有多达513.5K的跟随者！由于土耳其政府的腐败丑闻，坎特在2013年开始公开批评土耳其总统雷杰普-塔伊普-埃尔多安，2016年发生的政变未遂后，他在推特上称这位土耳其总统为 “我们这个世纪的希特勒”，2019年在Lebron James，公开为CCP辩护时，坎特对勒布朗-詹姆斯进行了严厉的抨击。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-1.jpg)图片来源：福布斯
-据《网关专家》（Gateway Pundit）11月1日报道，美国的犹他州以及其它州目前正在制定一种新的数字驾照，它将包括你的驾照信息和疫苗接种状况。政府将对其进行追踪，并提供给政府雇员。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/10.jpeg)
 
-根据《网关专家》一位读者提供的信息，新驾照今后还可能包括以下信息：健康记录、财务报告、信用分数、旅行记录、登记车辆、花费、投票、性侵犯者身份、拥有的执照和许可证、停车罚款、社会信用评分。
+中共对维吾尔族穆斯林人口进行种族灭绝，他们被集中关押起来，被强奸，被折磨，被强迫劳动，被谋杀。
 
-如果这计划得以实施，我们所知的个人权利将会被终结。不要指望善变的最高法院会帮助你。如果极权主义者执行这一措施，你在美国将不再拥有任何权利，全球主义者喜欢的中共模式已经来到了美国。
+上周和整个周末，坎特在Twitter和Instagram上都发布信息，他写道：“我永远不会为说真话而道歉，你不能收买我，你不能吓唬我，你不能让我沉默。”坚持传播中共的罪行。
 
-美国密西西比州也在讨论类似的移动身份证（Mobile ID）计划，该证件将包含你的驾照和疫苗状况信息，允许用户存储一个虚拟的驾驶执照和中共病毒疫苗接种卡。
+带着这些强有力的信息，坎特发布了他的新鞋，充满了个性表达的艺术作品。周五，坎特发布了一段视频信息，在世界舞台上呼吁中共结束奴隶制劳动。对中国的人权暴行，坎特进一步解释了中共骇人听闻的行为。
 
-数字极权社会已逐步来临，大科技公司利用它们收集的海量个人数据协助专制政府对公民实施全天候无死角的监控。而中共病毒大流行则是政府、科技寡头以及邪恶势力进一步侵犯个人隐私和公民权利、建设所谓的“新世界秩序（New World Order）”的最好机会。全世界渴望和热爱自由的人必须联合起来反抗逐渐升级的疫苗暴政，夺回属于我们的自由。
+CCP不仅对国内各少数民族采用同化洗脑政策，企图消灭他们的民族信仰和与众不同的民族特性与民族文化。同时，对其党员之间也采用株连九族的残忍手段来达到他们互相争权夺利的目的！
 
-新闻来源：[The New Digital Driver’s License Will Include Your Vaccine Status – May Eventually Include Your Credit Score, Travel Records and Social Credit Score (VIDEO)](https://www.thegatewaypundit.com/2021/11/news-digital-drivers-license-will-include-vaccine-status-may-eventually-include-credit-score-travel-records-social-credit-score-video/)
+（本文仅代表作者观点）
+
+参考阅读：
+
+- [https://thegatewaypundit.com](https://thegatewaypundit.com)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1.jpg)
+
+***编辑***：***Irene木木***
+***校对/发稿：海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

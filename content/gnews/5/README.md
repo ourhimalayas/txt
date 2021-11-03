@@ -2,46 +2,27 @@
 ---
 
 
-## 在澳大利亚首都地区，接种两剂疫苗的旅客仍被迫隔离
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1636063/)
+## 外媒爆台湾部队与美军在关岛联合训练
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1636122/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+撰稿：东京樱花团/文勝
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-17.jpg)
+[图片来源](https://min.news/military/ef3e44f33e09bc5e26c2310d3f15472f.html)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/COVID_quarantine.5fd3c3a2de5a1.jpg)
+日本朝日电视台早间新闻报道，台湾海军一直在与关岛的美军进行包括登陆行动的联合训练。
 
+报道称，约有40名台湾海军陆战队员被派往关岛，与美军进行共同训练。训练时间预计将持续一个月，其中包括水陆两栖登陆作战行动的训练。对此，台湾国防部长邱国正11月2日接受采访时说，台湾多年来都与美国有许多交流和合作，所以外界无需做太多揣测。早前台湾总统蔡英文在接受CNN采访时也首次证实有美军在台湾协助台军训练，她表示对美国协防台湾有信心。针对蔡英文的发言，中共外交部发言人汪文斌在例行记者会上回答提问时表示，搞“台独”是死路一条。
 
+台湾在此时不断抛出暗示台美在为共同作战而做准备的消息，是否意味着台湾在某种程度上得到了美国保护台湾的承诺呢？而今日的中共国，从高层到民间都在推崇战狼外交的理念，面对台湾和美国的所谓“挑衅”和“小动作”，习近平政府除了有国台办官员发一通例行公事的谴责，似乎并未表现出强烈愤怒，发出严厉警告等进一步动作，这又是不是山雨欲来，大战之前的静默呢？台湾的命运令人担忧，美国政府是否能在关键时刻保护台湾，我们拭目以待！
 
-图片来源：ehstoday.com
+信息来源：
 
+[米台両軍がグアムで合同訓練　上陸作戦など1カ月間（テレビ朝日系（ANN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/22f7137e7367887771841474ef0bfce6767001d3)
 
-#### 编译：小红帽
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-4.jpg)
 
-一些完全接种中共病毒（COVID-19）疫苗的旅客在进入澳大利亚首都领地时被迫接受隔离，尽管他们已经接种了两剂疫苗。
-
-虽然从高风险中共病毒地区来到首都领地，已完全接种疫苗的旅行者可以豁免入境，但如果一个人在抵达日期前不到两周才接种第二剂疫苗，则仍需要隔离。
-
-该领地的首席卫生官凯琳·科尔曼（Kerryn Coleman）博士说，少数人受到了这个措施的影响。
-
-科尔曼拒绝承认对“前往堪培拉的健康建议不明确”的说法。“如果健康建议不（清晰），我们将研究如何确保它更清晰，”她说。“我能理解人们对无法像他们希望的那样自由行动感到失望。我们正在努力与受此影响的个人合作。”
-
-此前，堪培拉南部的一所学校检测到大规模中共病毒感染者后被迫关闭。
-
-卫生当局已确认17例病例与万尼亚萨（Wanniassa）学校初级校区有关。该学校有120多人被确认为密切接触者。
-
-所有在接触期间在学校的学生、教职员工和访客都被要求接受测试和隔离，直到他们得到阴性结果。
-
-科尔曼表示，虽然出现了大量病例，但这种爆发并不意外。随着我们继续开放，我们将看到社区中的中共病毒的传播病例。
-
-**参考新闻：**[Double dosed Australians forced to quarantine in ACT (thenewdaily.com.au)](https://thenewdaily.com.au/news/coronavirus/2021/11/03/double-dosed-quarantine-act/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

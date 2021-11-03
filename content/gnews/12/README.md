@@ -2,51 +2,46 @@
 ---
 
 
-## 爆料：与中共脱钩的欧洲国家是喜联储的“币仓”之一
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1635937/)
+## 在澳大利亚首都地区，接种两剂疫苗的旅客仍被迫隔离
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1636063/)
 
-作者：香草山农场教育部 – 晓仙女
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/COVID_quarantine.5fd3c3a2de5a1.jpg)
 
 
 
-2021年11月1日，郭文贵先生在《喜币全球上市大直播》中爆料：
-
-近期欧洲几个国家终止了与中共当局的最惠国待遇，其中的列支敦士登是世界知名的金融自由国家。该国曾是中共对外金融渗透的重要一环，中共每年在列支敦士登投入海外公关费用的百分之八，旨在打造中共的海外金库。然而，列支敦士登成为欧盟中率先与中共贸易脱钩的国家，并顺利成为了“喜联储”的重要金融储备地之一。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-8.jpg)
-文贵先生指出，新中国联邦 “政治小组”的战友们，不舍昼夜地不懈工作，让欧洲几大金融中心认识到喜联储的真正价值，促成了这一伟大的成就。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3.1-2.jpg)
-在现有的几大跨国贸易协议中，“喜币、喜支付和喜联储”将以其低成本、零中介、高保密、超安全等特征大放异彩，并真正打通全球自由贸易的“任督二脉”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-4.jpg)
-参考链接：
-郭先生直播：[2021年11月01日 “HCOIN TO THE MOON” 喜马拉雅币上市庆典 （上）](https://gtv.org/video/id=618159b92051c747ccf8c38c)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：飞虹
-编辑：Zion文恩
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+图片来源：ehstoday.com
 
 
+#### 编译：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+一些完全接种中共病毒（COVID-19）疫苗的旅客在进入澳大利亚首都领地时被迫接受隔离，尽管他们已经接种了两剂疫苗。
 
+虽然从高风险中共病毒地区来到首都领地，已完全接种疫苗的旅行者可以豁免入境，但如果一个人在抵达日期前不到两周才接种第二剂疫苗，则仍需要隔离。
 
+该领地的首席卫生官凯琳·科尔曼（Kerryn Coleman）博士说，少数人受到了这个措施的影响。
+
+科尔曼拒绝承认对“前往堪培拉的健康建议不明确”的说法。“如果健康建议不（清晰），我们将研究如何确保它更清晰，”她说。“我能理解人们对无法像他们希望的那样自由行动感到失望。我们正在努力与受此影响的个人合作。”
+
+此前，堪培拉南部的一所学校检测到大规模中共病毒感染者后被迫关闭。
+
+卫生当局已确认17例病例与万尼亚萨（Wanniassa）学校初级校区有关。该学校有120多人被确认为密切接触者。
+
+所有在接触期间在学校的学生、教职员工和访客都被要求接受测试和隔离，直到他们得到阴性结果。
+
+科尔曼表示，虽然出现了大量病例，但这种爆发并不意外。随着我们继续开放，我们将看到社区中的中共病毒的传播病例。
+
+**参考新闻：**[Double dosed Australians forced to quarantine in ACT (thenewdaily.com.au)](https://thenewdaily.com.au/news/coronavirus/2021/11/03/double-dosed-quarantine-act/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,26 +2,25 @@
 ---
 
 
-## 雅虎不再侍候中共的“严格管制”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1635835/)
+## 秘翻在线:美国一些州推出的新数字驾照将包含个人疫苗状况信息
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1635922/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/雅虎不再侍候中共的严格管制.png)（图片源自本文链接）
-日本雅虎网站11月2日晚消息：据法新社报道，由于中共国政府收紧对IT公司的控制，美国互联网服务巨头雅虎1日宣布退出中共国大陆市场。
+#### 翻译/撰稿：zzballack
 
-雅虎在其官方网站上解释说，“鉴于中共国日趋糟糕的商业和法律环境，11月1日起，中共国境内不能再登录其网站，享用雅虎的整套服务”。近年来，该公司一直在逐步缩减其在中共国的业务。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-1.jpg)图片来源：福布斯
+据《网关专家》（Gateway Pundit）11月1日报道，美国的犹他州以及其它州目前正在制定一种新的数字驾照，它将包括你的驾照信息和疫苗接种状况。政府将对其进行追踪，并提供给政府雇员。
 
-中共政府最近收紧了对IT行业的监管，加强了从数据保护到内容监控以及删除的所有要求。导致外国公司纷纷退出中共国。
+根据《网关专家》一位读者提供的信息，新驾照今后还可能包括以下信息：健康记录、财务报告、信用分数、旅行记录、登记车辆、花费、投票、性侵犯者身份、拥有的执照和许可证、停车罚款、社会信用评分。
 
-无独有偶，上个月，美国IT巨头微软也宣布，将关闭其企业社交网站LinkedIn的中文版。该公司还抱怨说：中共国的商业环境变得更加恶劣，对法律合规的要求不断增加。
+如果这计划得以实施，我们所知的个人权利将会被终结。不要指望善变的最高法院会帮助你。如果极权主义者执行这一措施，你在美国将不再拥有任何权利，全球主义者喜欢的中共模式已经来到了美国。
 
-[信息源](https://news.yahoo.co.jp/articles/f80bf595823a23470ca25579cd466beefb6fa761)
+美国密西西比州也在讨论类似的移动身份证（Mobile ID）计划，该证件将包含你的驾照和疫苗状况信息，允许用户存储一个虚拟的驾驶执照和中共病毒疫苗接种卡。
 
-俗话说，不作不死。中共离孤独死的日子不远了！
+数字极权社会已逐步来临，大科技公司利用它们收集的海量个人数据协助专制政府对公民实施全天候无死角的监控。而中共病毒大流行则是政府、科技寡头以及邪恶势力进一步侵犯个人隐私和公民权利、建设所谓的“新世界秩序（New World Order）”的最好机会。全世界渴望和热爱自由的人必须联合起来反抗逐渐升级的疫苗暴政，夺回属于我们的自由。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
+新闻来源：[The New Digital Driver’s License Will Include Your Vaccine Status – May Eventually Include Your Credit Score, Travel Records and Social Credit Score (VIDEO)](https://www.thegatewaypundit.com/2021/11/news-digital-drivers-license-will-include-vaccine-status-may-eventually-include-credit-score-travel-records-social-credit-score-video/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

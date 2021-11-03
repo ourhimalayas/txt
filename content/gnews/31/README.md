@@ -2,36 +2,45 @@
 ---
 
 
-## 中共商务部罕见呼吁民众储备生活必需品引发各种猜想
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1635770/)
+## 眼前三件事:推广Hpay登记战友捋清战友未清的账和代持
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1635818/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-3.png)
-图片来自网络
+![](https://assets.gnews.org/wp-content/uploads/2021/11/封面-49_副本.jpg)
+据[MILES GUO 直播 2021-11-02](https://gettr.com/streaming/pfv59d80a7)时间点24：36——
 
-据《阿波罗新闻网》11月2日报道，中共国商务部于11月1日晚间时，在其下发的《关于做好今冬明春蔬菜等生活必需品市场保供稳价工作的通知》中提到，“鼓励家庭根据需要储存一定数量的生活必需品，满足日常生活和突发情况的需要”。
+眼前三件事儿，兄弟姐妹们，全力以赴地推广H-Pay下月上线，抓住这个机会，它比喜币重要；
 
-中共商务部的这一罕见“通知”立刻引起了民众的各种猜疑和议论，不少网民希望政府解释何为突发情况，以及究竟发生了何事。
+第二，抓紧把我们的很多战友登记在册，不要落下一个人；
 
-武汉居民张先生在接受媒体采访时表示，他认为官方所指的“突发情况”可能有两个：一个是中共病毒疫情导致国内生活用品紧缺；另一个是中美之间可能发生冲突，影响企业正常运作。除此之外，张先生还怀疑是不是南海或者东海会有什么事要发生。
+还有一个，在喜币上市前的很多未清的账、未算的数还有各农场的代持都要捋清楚，联盟委员会要做这事儿。
 
-有不少民众都联想到了台海局势，觉得可能是要打仗了。新浪网民“智泉古道”留言称：只有在战备情况下，才需储存生活必需品。
+全力以赴发展盖特、G-TV、G-Clubs、G-Fashion、H-pay，想想会有多大吧。
 
-此外，根据这两天福建、浙江以及深圳等地流出的很多网络视频显示，大量装载武器的军车经过市区、高速路和火车运输线，其中甚至可以清楚地看到运载导弹的军车。这也更加深了民众对爆发战争的猜测。
+罗斯柴尔德的雪茄是好啊，是好啊！真好！但是他家后继无人了，该我们新中国联邦上场了，当年的洛克菲勒、J.P.摩根拥有半个美国的财富或大半个美国的财富，罗斯柴尔德曾经拥有世界上大半的财富，从来没有一个中国人拥有这么多财富过，新中国联邦可能未来是。
 
-针对网民的各种猜测，中共国官媒《经济日报》周二发文解释称：网友的密切关注可以理解，但如果因此过度猜测，累积焦虑，完全没有必要。商务部《通知》的本意就是怕疫情散点突发，让人们措手不及。从短期看，《通知》主要是针对疫情防控，部分小区临时封控，可能造成生活不便；从长期看，也是倡导居民提高应急管理意识，增加必要家庭应急商品储备，作为国家应急体系的必要补充。
+（以下暂略）
 
-不过，网民对这一解释并不买账，反问官方为何不说明原因，而仅仅用“满足突发情况的需要”来要求居民家庭存储生活必需品，批评当局发文含糊其辞，刻意制造恐慌。
+撰稿：喜马拉雅的肉夹馍；
 
-评论人士张建平在接受媒体采访时表示，作为一个进口大国，中共国与世界上不少国家的关系紧张，才是造成国内居民部分生活必需品短缺的原因。
+审核：喜马拉雅的馍夹肉；
 
-此外，中共海关总署近日发布公告称，自12月1日起，欧盟等32国已不再给予中共国货物普惠制关税优惠待遇，这意味着进口欧洲的货物也将全面涨价。
+校对：Maarago；
 
-无论是因为疫情，还是因为与世界多国的贸易紧张关系，亦或是因为要攻打台湾，总之，最终为此付出代价的都是中共国百姓，他们的苦日子才刚刚开始。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-注：本文仅代表作者观点
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-**新闻链接：**[https://twitter.com/aboluowang/status/1455565130708643848](https://twitter.com/aboluowang/status/1455565130708643848)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
