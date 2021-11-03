@@ -2,45 +2,34 @@
 ---
 
 
-## 2021/11/02 大卫作战室直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1635130/)
+## 日本要闻汇编 11月2日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1635218/)
 
-**主播**：大卫｜**嘉宾**：舒平风、Castle
+#### 素材：东京樱花团｜GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-4.png)[*图片来源*](https://img.kyodonews.net/chinese/public/images/posts/19c22008dcba10cde7baa4ad5b1a024f/photo_l.jpg)
+1、[**岸田赴英出席COP26  将展示去碳化决心**](https://china.kyodonews.net/news/2021/11/89c7af2e7f1c-cop26-.html)
 
+共同社2日消息，为出席在英国格拉斯哥召开的《联合国气候变化框架公约》第26次缔约方会议（COP26）首脑级会议，日本首相岸田文雄2日乘专机启程。这是岸田10月就任后的首次外访。出发前，岸田向媒体表示，朝着实现亚洲整体温室气体净零排放，他将与英国首相约翰逊举行双边会谈，还在摸索与美国总统拜登首次直接对话的机会。
 
+2、[**岸田与拜登直接对话  确认加强同盟关系**](https://china.kyodonews.net/news/2021/11/257e5a1cb772--.html)
 
-**板块1–**–**喜币上市**
+日本首相岸田文雄2日在英国北部格拉斯哥与美国总统拜登直接会面进行了短时间会谈。两位首脑10月5日曾举行电话会谈，这是首次面对面交谈。双方确认将进一步强化同盟，为实现“自由开放的印度太平洋”而紧密合作，还同意在应对地区形势及气候变化方面合作。这是考虑到应对中国和朝鲜。
 
-1. 喜币成功上市开盘一直飞涨现稳定在7.7美元左右。战友们持仓成本低、基本没有卖出，现阶段逢低买入买多少都是好事；基金机构等开盘初期赎回成本抛盘，导致成交量变大，待赎回成本后，基金操作流动性将更高。现交易所主要问题是：由于各种因素干扰，登录账户有困难。等到全球支付一体化时，喜币具备双币属性（储存属性高、可用于交易）价值将更高。
+3、[**中国军机连日飞过冲绳  空自战机紧急升空**](https://china.kyodonews.net/news/2021/11/7fe05acb9514--.html)
 
-**板块2–国际财经**
+日本防卫省统合幕僚监部1日发布消息称，发现2架中国巡逻机当天飞过冲绳本岛和宫古岛之间，在东海和太平洋往返飞行。10月31日，2架中国巡逻机和1架情报收集机也沿相同路线往返飞行。已连续飞行2天。日本航空自卫队战机均紧急升空应对。
 
-1. DWAC股票（厕所股)：因为有吴征和共产党背景，“奔着涨势”目的去购买股票的战友很多。上周五开始微弱跌价，总体呈现“阳痿式”。技术层面—“割韭菜盘”（机构高位套现、散户高位接盘、致使散户“割肉”离场）
+4、[**日新版白皮书显示女员工和女学生自杀增多**](https://china.kyodonews.net/news/2021/11/359308880183.html)
 
-2. 格芯股票：有大机构投资者（例如阿联酋主权基金）、全球现阶段芯片供不应求并处于供应链调整期、具有唯一性（芯片技术会从7纳米升级到3纳米）、公司分布合理不会受地区局势紧张影响、全球五家芯片代工厂（格芯、三星、中兴、台积电、联华）其中后四家有极高不可控因素（中共国侵占台湾）的存在。
+日本政府2日在内阁会议上敲定了2021年版《自杀对策白皮书》。由于新冠疫情扩大的2020年女性自杀人数显著增长，在与过去5年平均数据（2015至2019年）比较分析后发现，按职业分，“被雇佣者及上班人群”增加381人和“学生”增加140人比较突出。
 
-**板块3–网络科技**
+5、[**日航本财年预计净亏1460亿日元**](https://china.kyodonews.net/news/2021/11/ffdc82cac20d-1460.html)
 
-中共国商务部鼓励家庭储存一定的生活必需品，保证应急情况下供应。商务部“跨行业”呼吁很罕见，强行促进内部经济循环说明中共的经济不景气。疫情形势又开始冒头，上海迪斯尼几万人严格控制进出。
+日本航空公司2日发布业绩预期称，2021财年合并财报净利润将亏损1460亿日元（约合人民币82亿元）。亏损2866亿日元，连续两年呈现净亏，销售额预计较上期增长59.2%至7660亿日元。因新冠德尔塔堵住划裁员约2500人，到2022财年末使合并员工数降至约3.35万人。
 
-**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
-
-- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
-- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
-
-[![](https://spark.adobe.com/page/8iCPJTuxRAUTK/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://spark.adobe.com/page/8iCPJTuxRAUTK/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
-*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
-
-
-*编辑：【英国伦敦喜庄园编辑部】*
-[![](https://spark.adobe.com/page/8iCPJTuxRAUTK/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/8iCPJTuxRAUTK/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
-
-
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
