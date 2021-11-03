@@ -2,37 +2,38 @@
 ---
 
 
-## 多国同时取消对中共国普惠制关税优惠国待遇
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1634887/)
+## 中华民俗舞狮助兴喜币上市
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1635055/)
 
-作者：美东香草山农场 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月30日，据盖特消息，自2021年12月1日起，欧盟27国、英国、加拿大、土耳其、乌克兰和列支敦士登等32个国家将取消对中共国的普惠制关税优惠国待遇。报道称，截至目前，仍旧保留中共国普惠制待遇的只余三国：挪威、澳大利亚和新西兰。
+**作者：日本东京方舟农场 子辰**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide10.jpeg)
+2021年11月1日（美东时间）注定是一个划时代的日子——喜马拉雅币开盘上市了！上市日当天，GTV和GETTR两个平台同时对此进行大直播，现场嘉宾和屏幕前的战友们难掩激动之情，纷纷穿着正装，准备好香槟酒，在欢笑声中等待着这一值得庆祝的时刻！
 
-“普惠制” 是普遍优惠制度的简称，是发达国家给予发展中国家及地区的出口制成品和半制成品普遍的、非歧视的、非互惠的优惠关税制度。中共国自2001年加入世贸组织后，除最惠国待遇外，还享受普惠制待遇。
+几年来，战友们在郭先生的带领下，艰难地走在灭共之路上。一路走来，有太多的不易，有太多值得回顾的事情。一桩桩、一件件，说不完，道不尽。然而没有一件事能比得上喜币上市这样的大事。大家心里都明白，这次喜币上市意味着什么。可以毫不夸张地说，喜马拉雅币承载着上天旨意！喜币上市将是中共走向灭亡的加速器！
 
-据了解，土耳其、越南、印尼、孟加拉国、柬埔寨等国家依然享有普惠制待遇。这将有利于这些国家成为新兴的劳动密集型出口国，从而打破中共国在全球产品供应链中的垄断。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-7.png)图片来源：https://gettr.com/post/pfuhtne77d
 
-参考链接：
-1）[https://www.gettr.com/post/pfp70471d4](https://www.gettr.com/post/pfp70471d4)
-2）[海关总署：下月起不再对输欧盟成员国等国家货物签发普惠制原产地证书](http://finance.people.com.cn/n1/2021/1028/c1004-32267063.html)
-3）[各国取消普惠制关税优惠，中共国正以光速倒退回入世前](https://gnews.org/zh-hans/1630782/)
+大直播进行的过程时间很长，但似乎又过得很快。在万众瞩目之下，突然直播画面一切换，两只代表中华传统民俗文化的舞狮出现在喜交所，腾空起舞，喜气冲天。自古以来，中华传统民俗认为，舞狮可以驱邪避鬼、保佑平安。舞狮人生龙活虎地一番表演，是在祈愿新中国联邦人吉祥如意、事事平安；祈愿喜币上市大吉、一飞冲天。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+随着郭先生和嘉宾战友一同欢快地开启香槟，喜币终于震撼上市了！上市后，仅短短两个小时，喜币就从0.1美金狂飙到7.7美金！而这仅仅只是开始，喜币的未来前景不可估量！
 
-总编：Irene木木 
-编辑：Irene木木 
-校正/发稿：谐趣园
+战友们纷纷表示，拥有了自己的财富，就强大了自己的能力，就能更好地保护自己的家人，就能更好地同爆料革命一起战斗，消灭中共！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*参考链接：*
+
+[“HCOIN TO THE MOON” 喜马拉雅币上市庆典](https://gettr.com/post/pfuhtne77d)
+
+* * *
+
+
+```
+素材采编：子辰
+编辑：青衣青青
+校对：小星星
+发布：Ranting
+```
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

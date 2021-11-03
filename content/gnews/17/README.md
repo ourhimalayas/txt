@@ -2,26 +2,43 @@
 ---
 
 
-## 日本用伊维菌素替代疫苗获奇效
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1635466/)
+## Facebook對針對兒童疫苗「的錯誤信息」施加更嚴格的限製
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1635505/)
 
-#### 撰稿：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16359026941.png)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.gbimonthly.com%2F2020%2F04%2F66194%2F&amp;psig=AOvVaw2ZcMHciYBogEFJMWzojTri&amp;ust=1635988811390000&amp;source=images&amp;cd=vfe&amp;ved=0CAsQjRxqFwoTCLD0pq2E-_MCFQAAAAAdAAAAABAD)
-美国战友看到Hal turner radio show10月27日的报道《日本不再推广covid疫苗，转而使用伊维菌素》的消息，兴奋地推荐给郭先生看。因为郭先生是最早告诉全世界：中共病毒有解药，5种解药里其中就包括伊维菌素。
+【簡評：】*對於此文，我只想說「臉書」只剩下「書」了，臉已經不要了，已經光明正大地不要臉了。其他沒什麽可說的了，哦，對了，不要臉的Facebook註定要被丟棄到垃圾堆，現在它提醒給孩子註射疫苗，我們就千萬不能這麽幹。*
 
-文章作者认为：美国正在发生的中共病毒灾难，是因为政府没有使用正确的治疗方法，他们极力推广疫苗，却丝毫没有使病毒得到缓解。与此同时，日本使用了伊维菌素在不到一个月的时间里就几乎消灭这种疾病。
+据《The Verge》记者Emma Roth，2021年10月30日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-27-e1635902507831.png)圖片來源: Alex Castro / The Verge
+**Facebook提醒用戶該疫苗現已可供兒童使用**
 
-一个自称“leadstories.com”的小网站诽谤这篇文章的真实性。那么我们来看看：
+就在美國食品藥品監督管理局(FDA)正式批準輝瑞(Pfizer)公司的針對5歲至11歲兒童的COVID-19疫苗之際，**Facebook的全新身份Meta公司宣布，將對兒童的疫苗錯誤信息推出更嚴格的政策。**該平臺此前在2020年底對COVID-19疫苗的錯誤信息進行了限製，但沒有專門針對兒童的政策。
 
-瑞典公共卫生署(Public Health Agency) 建议暂时停止在年轻人中使用Moderna疫苗；芬兰、丹麦和挪威也不再使用中共疫苗；上周四，芬兰加入了瑞典、丹麦和挪威的行列，建议在较年轻人群中不要使用Moderna公司的疫苗，理由是存在罕见的心血管副作用的风险；芬兰健康和福利研究所上周四表示，将暂停对30岁以下男性使用Moderna疫苗；瑞典监管机构上周三也采取了类似的措施。丹麦上周三表示，不会向18岁以下儿童提供Moderna疫苗。
+Meta在一篇新的博客文章中表示，**它正在與美國疾病控製和預防中心(CDC)和世界衛生組織(WHO)合作，刪除平臺上傳播的與兒童和COVID-19疫苗有關的「錯誤」內容。這包括任何暗示COVID-19疫苗不安全、未經測試或對兒童無效的帖子。**此外，Meta公司還將提供英語和西班牙語的即時提醒，告知該疫苗已被批準用於兒童，並提供在何處可接種該疫苗的信息。
 
-欧洲药品管理局(European Medicines Agency)周四支持了这些举措。不过，在所有表现不俗的国家中，日本是绝对的超级明星。日本已经取消了疫苗，改用伊维菌素——一个月后，该国就几乎消灭了中共病毒。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-28-e1635902683951.png)圖片來源：Facebook
 
-反观美国、澳大利亚和新西兰，这三个国家在应对病毒方面都遭遇了惨痛的失败，导致了令人震惊的自由与商业方面的损失。日本却在停止接种疫苗并开始使用伊维菌素之后结束了新冠疫情，事情还不清楚吗？
+Meta 指出，自中共病毒COVID-19疫情開始以來，它總共從 Facebook 和 Instagram 刪除了2000萬條涉及COVID-19 和疫苗的「錯誤信息」。
 
-如果你们的政府拒绝采用日本政府类似的措施，它们会怎么说呢？它会说披露真相者是阴谋论者。如果你的政府不这么做，那是因为疫苗与公共利益无关。它们愿意通过疫苗实现它们的极权主义!
+這些數字與我們從 Facebook 泄露的內部文件中看到的情況不一致——Facebook 文件清楚地表明，該平臺對與 COVID-19 疫苗相關的錯誤信息準備不足。 如果 Facebook 準備得更充分，它可能會在疫情早期發起打擊（針對兒童和成人的） 「錯誤信息」的活動，從而可能會刪除更多「虛假內容」。
 
-[文章来源](https://halturnerradioshow.com/index.php/en/news-page/world/japan-drops-vax-rollout-goes-to-ivermectin-ends-covid-almost-overnight)
+
+
+
+
+
+
+
+
+原文連接：[https://www.theverge.com/2021/10/30/22754046/facebook-tighter-restrictions-vaccine-misinformation-children](https://www.theverge.com/2021/10/30/22754046/facebook-tighter-restrictions-vaccine-misinformation-children)
+
+翻譯：洛杉磯盤古農場 – 鋼蛋兒
+校對：洛杉磯盤古農場 – Mike Li
+評論：洛杉磯盤古農場 – 鋼蛋兒
+編輯：洛杉磯盤古農場 – 心照
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉磯盤古農場歡迎您加入: (或點擊上方圖片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

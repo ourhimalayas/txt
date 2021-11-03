@@ -2,55 +2,185 @@
 ---
 
 
-## 廉政公署调查发现，新州前州长与男友微信联系逃避监管
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1635324/)
+## 吴征利用SPAC把川普拿下，下一步人民币数字化
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1635435/)
 
-#### **翻译：月映万川**
+[https://gtv.org/video/id=6180fc78adfd99590c32447f](https://gtv.org/video/id=6180fc78adfd99590c32447f)
 
-#### **编辑/评论：文泓**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5823-1.jpg)**图片来源：Nieman & The North West Star**
-**新闻点评：**
+**郭文贵**
+**Miles Guo**
 
-新南威尔士州前明星女州长因利用公权力关照其男友选区被廉政公署调查，目前在澳大利亚已经是家喻户晓。本篇新闻出现了一个很有意思的片段，贝瑞吉克莲与男友马奎尔私下联络，特地下载中共国的微信，而且他们认为微信不受澳洲政府监管，不会有个人隐私泄漏风险。难道中共国软件就不搜集个人隐私吗？
+我今天给你们爆个料
+I’m going to break the news for you today
 
-1988年澳大利亚出台了《隐私法》，2010年出台澳大利亚信息专员法案以及相关法规，目前澳洲政府已经可以因公共安全的名义调查监管个人隐私信息。所以这位前州长男友为了躲避政府的监控下载微信。疫情之下，让西方政府产生专制集权冲动，出台各种法规，强化政府权力。但是作为官员个体他们也在排斥这种对个人隐私的监管，是否有些自相矛盾？
+你知道
+You know
 
-翻译正文：
+这个SPAC
+this SPAC stock,
 
-在2018年马奎尔先生因腐败问题被新南威士州反腐机关要求提供证据的5天后，他告诉时任州长的女友贝瑞吉克莲，使用专用手机并要下载带有信息加密功能的微信作为他们之间的沟通软件。
+上市之后
+after being listed on the market,
 
-在周一对新南威尔士州前州长的反腐调查中，廉政公署列举了一系列贝瑞吉克莲与她的前男友的短信交流，并发现马奎尔要求前州长使用特殊软件交流。
+我和一个政法委的
+I was talking with a political and legal committee,
 
-在2018年7月9日的短信里，马奎尔说：“我现在与朋友们都在微信里聊天。”
+一个老领导
+a senior leader.
 
-贝瑞吉克莲回复：“好的，我尽量试试。你觉得Whatsapp怎么样，这个软件也很方便。”
+我说你们这票干得漂亮是不是呀
+I said, “you had done an awesome job, isn’t it?”
 
-在后面的一条信息里马奎尔写到，“你需要一个专用手机”，并且，在这条信息里进一步说，“调查人员可以调取你的短信但是却无法调取‘小绿人’里的信息，那里的信息是无法追踪的。”
+挺高兴的
+“Very excited”
 
-【备注：澳大利亚已经出台法律，可以以国家安全的命运对个人实施监控。这里的小绿人是微信。】
+是，北京一片欢腾啊
+“Yes, Beijing is having a great celebration”
 
-目前，新州廉政公署（ICAC）正在调查贝瑞吉克莲女士是否违背了公众信任，或者在与她的瓦加瓦加选区的前议员男友马奎尔秘密热恋期间，利用政府公权力实施了腐败行为。
+他说
+He said,
 
-整个调查聚焦于，贝瑞吉克莲女士在与马奎尔秘密交往期间，在先后担任财长和州长职位期间，她是否不当使用权力影响了州政府对其男友马奎尔选区的一个枪支俱乐部和一所音乐学院的数百万不当财政拨款。
+所有的海外局
+“all overseas offices,
 
-在周一的证人质询中，贝瑞吉克莲辩解称，她对马奎尔的行为没有任何担心，并且不认为他有任何过错。对于这条短信内容，前州长说对此没有印象，但是有可能马奎尔因为（个人）隐私考虑建议采用其他通讯方式。
+国际合作局的人
+and the International Cooperation Bureau employees
 
-在2018年7月13日的坎特伯雷委员会证据问询中，马奎尔承认自己涉及到与前市政委员会成员合谋订立秘密赚钱计划，即通过向房地产开发商销售土地而收取佣金。
+刚刚给我打完电话
+just hung up the phone with me,
 
-关于两个人的秘密关系，贝瑞吉克莲说：“我不确定他在做什么……我没有怀疑他的腐败行为。”
+说这次吴征啊立功了
+saying that Bruno Wu has done a meritorious service
 
-她认为“标准和重要性都不足以”向我的同僚们公布我们之间的关系。
+把川普拿下
+by compromised Trump.
 
-原文链接: [ICAC inquiry: Gladys Berejiklian told by Daryl Maguire to get private phone, download WeChat (smh.com.au)](https://amp.smh.com.au/politics/nsw/berejiklian-told-by-maguire-to-get-private-phone-download-wechat-20211101-p594ur.html)
+下一个目标
+The next target is
 
-**发布：文泓**
+迈克·蓬佩奥
+Mike Pompeo”.
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+我要跟蓬佩奥同志
+I need to see Comrade Pompeo in person,
+
+面对面的好好谈谈这事儿
+Talk about this matter face to face
+
+我上次告诉他
+I told him last time
+
+我说你家里边
+I said that inside your house
+
+你的电话绝对是被监听的
+your telephones were definitely tapped (by CCP),
+
+我说我这电话
+so did my phone here
+
+就当着共产党随时听着
+Just pretend that the Communist Party is listening anytime
+
+我从来没觉得它不听
+I have never sensed that they would not listen
+
+我希望它都听到
+I hope they can hear all of them
+
+最好别漏
+It’s better not to miss anything
+
+共产党下一个目标
+The Communist Party’s next goal
+
+就是世界的虚拟货币
+is the world’s virtual currency
+
+共产党
+The Communist Party
+
+现在，王毅所谓的出访
+currently, Wang Yi’s so-called visits
+
+你去看，阿尔巴尼亚
+You can take a look, Albania,
+
+塞尔维亚、卡塔尔、意大利
+Serbia, Qatar, Italy,
+
+希腊
+and Greece.
+
+说叫一带一路合作，
+Call the Belt and Road cooperation
+
+全是干啥去了？
+what have they all gone for?
+
+接受我人民币支付的
+to coordinating the RMB payment acceptive
+
+货币项下业务
+of business under currency.
+
+刚刚到红海
+(WangYi) just arrived the Red Sea
+
+秘密的见了沙特王子本·萨勒曼
+and met Saudi Prince Bin Salman secretly.
+
+继续推进
+and continued advance
+
+跟沙特的人民币项下的石油
+with Saudi Arabia’s oil business under the RMB Project.
+
+是沙特的立国之本
+(Oil) is the foundation of Saudi Arabia.
+
+和美国的，
+As far as the United States,
+
+后来跟美国签了一个长期共用
+later it signed a long-term sharing agreement with the United States
+
+最低油价
+the lowest oil price
+
+15美金一桶的油价，永不改变
+The price of $15 a barrel of oil will never change
+
+这是美国的利益所在
+This is America’s interests
+
+现在，共产党要把
+Currently, the Communist Party wants
+
+阿美石油变成自己的了
+to turn the Aramco oil business into its own.
+
+———————————————————
+
+**原视频链接**: [https://gettr.com/post/pfj822be03](https://gettr.com/post/pfj822be03)
+
+Date: 10/29/2021
+原视频标题: 
+Bruno Wu Took Advantage of SPAC and Compromised Trump; The Next Target Will be The RMB Digitization
+原视频日期：2021/10/27
+任务编号：KC218(2717)
+视频时间段 : 0:00-1:50
+
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校: 洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
