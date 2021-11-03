@@ -2,24 +2,45 @@
 ---
 
 
-## 秘翻在线:美国一些州推出的新数字驾照将包含个人疫苗状况信息
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1635922/)
+## #FauciLiedDogsDied成热搜 “虐狗实验”持续发酵
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1635974/)
 
-#### 翻译/撰稿：zzballack
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+两天前非营利组织“白衣废物”就福奇所在的NIH资助了一项残酷的幼犬实验进行了指控。此事在社交媒体引发了巨大的反响。#FauciLiedDogsDied 成为推特热搜。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-1.jpg)图片来源：福布斯
-据《网关专家》（Gateway Pundit）11月1日报道，美国的犹他州以及其它州目前正在制定一种新的数字驾照，它将包括你的驾照信息和疫苗接种状况。政府将对其进行追踪，并提供给政府雇员。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9.jpg)
 
-根据《网关专家》一位读者提供的信息，新驾照今后还可能包括以下信息：健康记录、财务报告、信用分数、旅行记录、登记车辆、花费、投票、性侵犯者身份、拥有的执照和许可证、停车罚款、社会信用评分。
+该项实验旨在以幼犬作为诱饵吸引有传染性的沙蝇叮咬，感染后注射实验药物以查验有效程度。实验过程中细节的描述因过于残忍引起网民的强烈不适，而这种生理及心理的不适超越了左右之分。
 
-如果这计划得以实施，我们所知的个人权利将会被终结。不要指望善变的最高法院会帮助你。如果极权主义者执行这一措施，你在美国将不再拥有任何权利，全球主义者喜欢的中共模式已经来到了美国。
+佛州州长德桑蒂斯说，这是“难以想象和令人厌恶”的，纳税人的钱不能被这样使用，福奇必须要承担责任。众议员泰勒·格林发起了一个国会请愿书，她说资助虐狗实验和中共生物武器杀死几百万人的最高薪酬联邦雇员需要被解雇。在这条推特热搜下，左翼人士同样心有余悸。有人留言：幸亏我的狗很安全！
 
-美国密西西比州也在讨论类似的移动身份证（Mobile ID）计划，该证件将包含你的驾照和疫苗状况信息，允许用户存储一个虚拟的驾驶执照和中共病毒疫苗接种卡。
+美国文化中，狗是重要的家庭成员。这次爆出的“虐狗”丑闻，在社交媒体持续发酵，有望撼动福奇在科学、医疗界坚不可摧的地位。
 
-数字极权社会已逐步来临，大科技公司利用它们收集的海量个人数据协助专制政府对公民实施全天候无死角的监控。而中共病毒大流行则是政府、科技寡头以及邪恶势力进一步侵犯个人隐私和公民权利、建设所谓的“新世界秩序（New World Order）”的最好机会。全世界渴望和热爱自由的人必须联合起来反抗逐渐升级的疫苗暴政，夺回属于我们的自由。
+（本文仅代表作者观点）
 
-新闻来源：[The New Digital Driver’s License Will Include Your Vaccine Status – May Eventually Include Your Credit Score, Travel Records and Social Credit Score (VIDEO)](https://www.thegatewaypundit.com/2021/11/news-digital-drivers-license-will-include-vaccine-status-may-eventually-include-credit-score-travel-records-social-credit-score-video/)
+参考阅读：
+
+- [https://twitter.com/bennyjohnson/status/1452688321818374155?s=21](https://twitter.com/bennyjohnson/status/1452688321818374155?s=21)
+- [https://www.zerohedge.com/medical/fauci-funded-cruel-puppy-experiments-where-sand-flies-eat-them-alive-vocal-cords-severed](https://www.zerohedge.com/medical/fauci-funded-cruel-puppy-experiments-where-sand-flies-eat-them-alive-vocal-cords-severed)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov.jpg)
+
+***编辑***：***Ivy001***
+***校对/发稿：海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

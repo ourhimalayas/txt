@@ -2,62 +2,54 @@
 ---
 
 
-## 喜币上市畅谈金枪鱼 促灭共激情
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1635856/)
+## 预谋：美出现新冠数周前国会重新定义了mRNA疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1635882/)
 
-作者：香草山农场教育部 – 晓仙女
+**翻译：JennyBall**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip117.png)图片来源：newstarget.com
+直到 2019 年 12 月，政府对“疫苗”一词的官方定义不包括现在注射到人体中的武汉冠状病毒（Covid-19）的 mRNA（信使 RNA）技术。然而，就在第一批中共国病毒“病例”出现在美国的几周前，情况发生了变化。
 
+就在“神速操作”(Operation Warp Speed)到来之际，美国国会悄悄地重新定义了“疫苗”一词，将辉瑞-生物科技和莫德纳即将推出的药物注射包括在内——几乎就像他们提前知道大流行即将到来一样。
 
+就在进入 2020 年之前，联邦政府与莫德纳签署了一份合同，其中特别提到联邦政府即将推出该公司的“mRNA 冠状病毒疫苗”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+同月，国会更改了与疫苗标签、紧急使用授权 (EUA) 和批准有关的联邦法律中“生物产品”的定义。现在，联邦政府将疫苗视为“生物产品”，而在此之前并非如此。
 
+“基本总结如下：如果没有 2019 年 12 月对定义‘生物产品’的美国法律进行修改，则可能需要将 mRNA COVID-19 疫苗标记为疫苗以外的东西，”生活新闻(LifeSiteNews)报道了这一变化。
 
+“稍有不同的说法是，美国联邦政府对‘生物产品’的定义一直使用到报道的 COVID-19 爆发前几周，可能已经禁止将 mRNA COVID-19 产品标记为疫苗。”
 
-2021年11月1日福满之日，喜币全球上市大直播意义深远，爆料革命全球战友同心同德，直播庆典欢聚一堂，恭迎喜币上市。组委会为此精心准备了一条贵重的金枪鱼，嘉宾们一番评论后，郭先生也兴奋地畅谈金枪鱼的特别之处，给战友们上了一堂饮食课。
+**如果**** mRNA ****毒物没有被重新定义为****“****疫苗****”****，授权将会困难得多**
 
-1.金枪鱼是恒温鱼类，全球多季节生存的鱼；
+**由于在福奇流感出现之前，从未将**** mRNA ****技术植入人体**，因此政府试图强迫公众注射神秘药物作为继续就业或参与社会的条件，这将是一个更难的事情。
 
-2.养殖的金枪鱼比海里的好吃；
+还要记住，在中共国流感进入对动物进行的 mRNA 实验期，每次导致的大规模死亡远远超过传统疫苗造成的死亡。
 
-3.蓝旗金枪鱼最贵，但是长旗的最好；
+如果所有这一切的真相被真诚地公开披露，很有可能美国的大多数人，无论其政治派别如何，都会对这些实验性药物说不。然而，因为他们再次使这成为左派对右派的事情，同时甚至重新定义了“疫苗”是什么，我们现在陷入了这个当前的难题。
 
-4.钓上来的金枪鱼品质会变差，最好是网捕；
+另一件值得注意的事情是，国会从“生物产品”的定义中删除了“除了任何化学合成的多肽”这个词。这进一步为“速度行动”参与者推出由此类基因制成的实验性基因疗法铺平了道路，并将其称为“疫苗”，而在旧措辞下，这永远不会被允许。
 
-5.鱼被杀后25分钟为上等，35分钟为中等，45分钟为下等，时间长会有毒；
+“这一变化的意义在于，mRNA COVID-19 疫苗化学合成了 SARS-CoV-2‘Spike’（也称为‘S’）刺突蛋白，”《生活新闻》补充道。
 
-6.切金枪鱼时不能压，鱼头2块肉最好，必须现场吃；
+“因此，之前‘生物制品’定义的措辞似乎表明，mRNA COVID-19‘疫苗’在法律上不能被标记为疫苗。对于公共卫生官员和‘疫苗’制造商来说，这将是一个主要问题。”
 
-7.金枪鱼最肥的部分备受吹捧，但肉筋部分最好。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-15.jpg)
-文贵先生激动的说：“今天的金枪鱼97磅，大约1万美元，就几个喜币而已，拥有喜币的战友以后可以天天吃。”
+**似乎国会在大流行之前就很清楚，化学合成的**** mRNA ****物质需要重新定义为****“****疫苗****”****才能得到政府的授权，这就是这一切的要点。**
 
-文贵先生与战友们开心地分享饮食文化，更加激起新中国联邦人灭共的激情，向往过上真正自由的有品质的生活。
+“同样值得重申的是，美国联邦政府部分拥有 mRNA COVID-19 疫苗，在将其强加给美国人之前不久，美国联邦政府似乎确保 COVID-19 mRNA 疫苗是合法的，”《生活新闻》 进一步解释说。
 
-参考链接：
-郭先生直播：[2021年11月01日 “HCOIN TO THE MOON” 喜马拉雅币上市庆典 （上）](https://gtv.org/video/id=618159b92051c747ccf8c38c)
+有关政府犯罪的更多相关新闻，请访问 Corruption.news。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+**本文来源包括**：[LifeSiteNews.com](https://www.lifesitenews.com/news/congress-expanded-vaccine-definition-just-weeks-before-covid-19/)
+ [NaturalNews.com](https://www.naturalnews.com/2020-10-07-trump-funneled-billions-operation-warp-speed-vaccine-companies.html)
+ [LewRockwell.com](https://www.lewrockwell.com/2021/04/no_author/dr-lee-merritt-in-animal-studies-after-being-injected-with-mrna-technology-all-animals-died-upon-reinfection/)
+**新闻来源**：[newstarget.com] [PRE-PLANNED: Weeks before covid appeared in U.S., Congress redefined the word “vaccine” to include mRNA injections](https://www.newstarget.com/2021-11-01-corruption-covid-congress-redefined-vaccine-mrna-injections.html)
 
-总编：飞虹
-编辑：Zion文恩
-校对/发稿：为真不破20
+* * *
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
 
 
  

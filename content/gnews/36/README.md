@@ -2,44 +2,47 @@
 ---
 
 
-## 德国公司为已接种疫苗和未接种疫苗的员工设立隔离食堂
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1635731/)
+## 多米诺效应：中共国房地产的困境波及全球著名项目
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1635742/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/3DquG0_0ckO4UG800-1.jpg)
+作者：香草山金融部 – 闲聊钱币
 
 
 
-图片来源：newsbreak.com
 
 
-#### 编译：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
 
-德国几家大型公司正在为已接种中共病毒（COVID-19）疫苗的员工建立食堂，然而未接种疫苗的员工只能呆在单独的隔离区域，并被迫继续遵守社交距离和戴口罩的规定。
 
-制药巨头拜耳、能源公司Eon和旅游公司Alltours都将实施新规定，未接种疫苗的员工将被视为二等公民。
 
-“在为疫苗接种者和中共病毒康复人员设立的‘2G’区域里，员工将被允许在完全正常的条件下一起吃饭，而那些未接种疫苗或未提供疫苗接种情况信息的员工，将不得不继续遵守社交距离、用餐时用隔断保持距离、戴口罩等规则”《当地人》报道。
 
-拜耳还宣布，其员工也已开始组建“排除未接种疫苗员工”的工作小组。
 
-在柏林参观圣诞市场的人如果没有接种疫苗，也将被拒绝进入。
+伦敦，10月31日（路透社–全球顶级的大城市，例如伦敦、纽约、悉尼和其他城市的知名大型项目的开发商正面临现金争夺战。原因在于中共国的房地产危机和这些项目有着千丝万缕的联系。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4.jpg)
+类似恒大集团(3333.HK)在这场危机中的挣扎，另一家总部位于上海的绿地控股(0337.HK)同样面临同样困境。它在悉尼，布鲁克林、洛杉矶、巴黎和多伦多等地有价值数十亿美元的项目。而这些资金全部是突破了债务红线获得的。
 
-尽管面临着无耻的歧视，但90%尚未接种疫苗的德国人表示，他们没有计划在不久的将来接种疫苗。
+类似的中共国地产商比比皆是。它们在争夺海外地段时付出了高成本，当资金链出现问题时，这些地产商急于出售资产换取现金。
 
-德国当局曾在1月份宣布，违反中共病毒封锁规则的人将被逮捕，并拘留在全国各地的难民营里。
+中共国开发商在2013年至2018年期间进行了大规模的超出它们偿还能力的国际支出。但随着政策的收紧，这些公司希望后来者承接烫手山芋的美梦即将破灭。它们会迫不及待的降价出售。
 
-**参考新闻：**[German Companies Creating Segregated Canteens For Vaccinated and Unvaccinated – Summit News](https://summit.news/2021/11/01/german-companies-creating-segregated-canteens-for-vaccinated-and-unvaccinated/)
+中共国做事一贯是杀鸡取卵，只顾眼前利益，不计后果。现在是时候还债了。
 
-***发布：小红帽***
+（本文仅代表作者观点）
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+参考来源：[多米诺效应：中共国房地产的困境波及全球著名项目](https://www.reuters.com/world/china/chinas-property-woes-put-prestige-global-projects-play-2021-10-31/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=01-11-21&amp;utm_campaign=01-11-21)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

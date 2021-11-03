@@ -2,46 +2,20 @@
 ---
 
 
-## 在澳大利亚首都地区，接种两剂疫苗的旅客仍被迫隔离
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1636063/)
+## 接种和未疫苗的人会一样传播 Delta 变体
+` Charlie` [轉載自GNews](https://gnews.org/zh-hans/1636077/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11031.jpg)图片来自Blogsicilia
+发表在《柳叶刀》小组的传染病医学杂志上的一项研究表明疫苗保护的局限性：接种了双剂量新冠疫苗并感染了冠状病毒 delta 变体的个人与未接种疫苗的人有着非常相似的传播疾病的速度。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/COVID_quarantine.5fd3c3a2de5a1.jpg)
+在英国进行的为期一年的研究共监测了 621 名出现新冠病毒症状的人，研究人员得出结论：感染 delta 变体的接种疫苗个体的感染率为 25%，而未接种疫苗的个体感染率为 38%。当你去看家庭接触者时，这两个指数更接近，其中接种疫苗但有症状的受试者的感染率为 25%，而未接种疫苗的受试者为 23%。
 
+研究人员在他们的结论中明确表示：“尽管目前的疫苗在预防新冠病毒引起的严重疾病和死亡方面仍然有效，但结果表明，单独接种疫苗不足以防止 delta 变体在家庭环境中的传播”。
 
+原文链接：[https://europa.today.it/attualita/vaccinati-trasmettono-variante-delta-come-non-vaccinati.html#\_ga=2.75835285.1002968678.1635926454-145009575.1615972944](https://europa.today.it/attualita/vaccinati-trasmettono-variante-delta-come-non-vaccinati.html#_ga=2.75835285.1002968678.1635926454-145009575.1615972944)
 
-图片来源：ehstoday.com
-
-
-#### 编译：小红帽
-
-一些完全接种中共病毒（COVID-19）疫苗的旅客在进入澳大利亚首都领地时被迫接受隔离，尽管他们已经接种了两剂疫苗。
-
-虽然从高风险中共病毒地区来到首都领地，已完全接种疫苗的旅行者可以豁免入境，但如果一个人在抵达日期前不到两周才接种第二剂疫苗，则仍需要隔离。
-
-该领地的首席卫生官凯琳·科尔曼（Kerryn Coleman）博士说，少数人受到了这个措施的影响。
-
-科尔曼拒绝承认对“前往堪培拉的健康建议不明确”的说法。“如果健康建议不（清晰），我们将研究如何确保它更清晰，”她说。“我能理解人们对无法像他们希望的那样自由行动感到失望。我们正在努力与受此影响的个人合作。”
-
-此前，堪培拉南部的一所学校检测到大规模中共病毒感染者后被迫关闭。
-
-卫生当局已确认17例病例与万尼亚萨（Wanniassa）学校初级校区有关。该学校有120多人被确认为密切接触者。
-
-所有在接触期间在学校的学生、教职员工和访客都被要求接受测试和隔离，直到他们得到阴性结果。
-
-科尔曼表示，虽然出现了大量病例，但这种爆发并不意外。随着我们继续开放，我们将看到社区中的中共病毒的传播病例。
-
-**参考新闻：**[Double dosed Australians forced to quarantine in ACT (thenewdaily.com.au)](https://thenewdaily.com.au/news/coronavirus/2021/11/03/double-dosed-quarantine-act/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 
