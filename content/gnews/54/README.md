@@ -2,40 +2,47 @@
 ---
 
 
-## Facebook关闭有争议的人脸识别程序，誓要删除超 10 亿个模板
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1635683/)
+## 多米诺效应：中共国房地产的困境波及全球著名项目
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1635742/)
 
-#### 【**雅典娜快讯】，紧贴时事脉搏**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/google-facebook-new6-1920-800x450-1.jpg)
+作者：香草山金融部 – 闲聊钱币
 
 
 
-图片来源：searchengineland.com
 
 
-#### 编译：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
 
-脸书（Facebook）以对隐私和道德的“日益担忧”为由，宣布将停止使用人脸识别技术，并删除迄今为止从选择加入该计划的用户那里收集的超10亿个的个人模板。
 
-脸书人工智能副总裁杰罗姆·佩森蒂（Jerome Pesenti）周二表示，这一决定是“全公司范围内限制在我们产品中使用人脸识别的举措的一部分”。
 
-佩森蒂解释说，当该功能停止时，在“未来几周”的某个时候，超过10亿选择加入脸书用户的人脸识别模板将被删除，并且不会被自动识别。佩森蒂补充说，世界各地的当局仍在努力为该技术的使用提供明确的规则，脸书致力于“与领导这次讨论的民间社会团体和监管机构合作”。
 
-早在8月，韩国监管机构就对脸书进行了罚款，理由是脸书假定20万名用户同意该功能，并且不让他们选择退出人脸识别。今年初，在联邦法院裁定人脸识别功能违反了州隐私法后，这家硅谷巨头还被勒令向美国伊利诺伊州的160万用户支付6.5亿美元的集体诉讼赔偿金。
 
-为了回应最初于2015年提起的诉讼，脸书已在2019年禁用了自动人脸识别功能，并将其设为可选。
+伦敦，10月31日（路透社–全球顶级的大城市，例如伦敦、纽约、悉尼和其他城市的知名大型项目的开发商正面临现金争夺战。原因在于中共国的房地产危机和这些项目有着千丝万缕的联系。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4.jpg)
+类似恒大集团(3333.HK)在这场危机中的挣扎，另一家总部位于上海的绿地控股(0337.HK)同样面临同样困境。它在悉尼，布鲁克林、洛杉矶、巴黎和多伦多等地有价值数十亿美元的项目。而这些资金全部是突破了债务红线获得的。
 
-**参考新闻：**[Facebook SHUTTING DOWN controversial face recognition program, vows to delete over a BILLION templates — RT World News](https://www.rt.com/news/539195-facebook-shuts-face-recognition/)
+类似的中共国地产商比比皆是。它们在争夺海外地段时付出了高成本，当资金链出现问题时，这些地产商急于出售资产换取现金。
 
-***发布：小红帽***
+中共国开发商在2013年至2018年期间进行了大规模的超出它们偿还能力的国际支出。但随着政策的收紧，这些公司希望后来者承接烫手山芋的美梦即将破灭。它们会迫不及待的降价出售。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+中共国做事一贯是杀鸡取卵，只顾眼前利益，不计后果。现在是时候还债了。
+
+（本文仅代表作者观点）
+
+参考来源：[多米诺效应：中共国房地产的困境波及全球著名项目](https://www.reuters.com/world/china/chinas-property-woes-put-prestige-global-projects-play-2021-10-31/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=01-11-21&amp;utm_campaign=01-11-21)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

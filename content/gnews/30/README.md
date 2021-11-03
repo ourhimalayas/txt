@@ -2,25 +2,25 @@
 ---
 
 
-## 新书《真正的安东尼·福奇》即将上市
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636640/)
+## 坎特国会山前声援中国人权 指责NBA保持沉默
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636651/)
 
-作者：洛杉矶盘古农场 – 滴水穿石
+作者：澳喜农场 – 在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-相关消息称，新书《真正的安东尼·福奇》将于11月9日正式上市。据悉，书中详细地揭示了安东尼·福奇和他的制药团队是如何从疾病中获取丰厚的利润，以及他工作的这50年给美国公共卫生造成了何种灾难性的后果。
+此前，美国NBA球员坎特曾为西藏人权发声。10月30日，坎特于华盛顿国会山下再次参加为中国人权声援的集会，替新疆受打压的维吾尔族和其他少数族裔再度向世界发出呐喊。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide10-2.jpeg)
 
-安东尼·福奇，美国国家过敏症和传染病研究所主任。数据显示，福奇每年以科学研究的名义，支配约61 亿美元的美国纳税人资金。而这些资金支持其研究所大量开发新药和疫苗，并逐渐转变为大型制药公司的产品孵化器。多年来，福奇获得了超乎想象的权利，比如，可以批准和授权相关药物和疫苗，或借联邦“知识与创新”领导人的名号，在军队实行独裁统治，包括允许委员会紧急使用授权新冠疫苗等。
+集会上，坎特身穿印有四面旗帜的T恤，分别是代表维吾尔人的蓝旗，香港行政区区旗，西藏雪山狮子旗和东蒙古人民自治政府的旗帜。坎特在发言时并没有只局限于新疆地区，他也鼓励包括西藏人、台湾人、香港人在内的所有人团结在一起，为自由努力。
 
-但书中提到，福奇一再违反联邦法律，违规进行有毒的艾滋病和癌症化学疗法的致命实验。另外，福奇资助的一些疫苗给世界民众造成的伤害远超过它们声称的效用。
+另外，坎特指出，对于中共在人权上的恶行，NBA居然一直保持沉默。为此，坎特还批评说，作为NBA运动员，他为NBA感到悲哀和羞耻。
 
-参考链接：[My New Book — ‘The Real Anthony Fauci’ — Now Available for Pre-Order](https://childrenshealthdefense.org/defender/robert-f-kennedy-jr-book-the-real-anthony-fauci/)
+参考链接: [NBA球员坎特加入中国人权集会 国会山下斥责NBA保持沉默](https://www.rfa.org/mandarin/yataibaodao/shaoshuminzu/wy-10302021190844.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：Irene木木
-编辑：Irene木木 
+总编：飞虹
+编辑：Irene木木
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

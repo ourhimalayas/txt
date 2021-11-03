@@ -2,13 +2,13 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月3日早
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636543/)
+## GTV新闻访谈简报|2021年11月03日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1636582/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO.jpg)
 
 作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-2.png)
 文章仅代表作者本人观点，与Gnews无关
 
 视频参看：2021.11.03早GTV新闻访谈
@@ -19,7 +19,7 @@
 校对： Lakers
 发稿： Lakers
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 
 **更多资讯，更多关注**
 [纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

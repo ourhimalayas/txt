@@ -2,8 +2,8 @@
 ---
 
 
-## 多米诺效应：中共国房地产的困境波及全球著名项目
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1635742/)
+## 寒冬将至，中共国百姓面临基本生活必须品的价格飙升
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1635743/)
 
 作者：香草山金融部 – 闲聊钱币
 
@@ -17,19 +17,19 @@
 
 
 
-伦敦，10月31日（路透社–全球顶级的大城市，例如伦敦、纽约、悉尼和其他城市的知名大型项目的开发商正面临现金争夺战。原因在于中共国的房地产危机和这些项目有着千丝万缕的联系。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4.jpg)
-类似恒大集团(3333.HK)在这场危机中的挣扎，另一家总部位于上海的绿地控股(0337.HK)同样面临同样困境。它在悉尼，布鲁克林、洛杉矶、巴黎和多伦多等地有价值数十亿美元的项目。而这些资金全部是突破了债务红线获得的。
+上海/北京，11月2日（路透社）–据一位微博用户称，超市里的人们特别是老年人开始恐慌性囤积大米，食用油和盐等生活必须品。某些社交媒体认为导致这种情况的原因是由于同台湾日趋紧张的关系，而中共政府却将此归结于COVID-19疫情的流行和异常大雨的极端天气。
 
-类似的中共国地产商比比皆是。它们在争夺海外地段时付出了高成本，当资金链出现问题时，这些地产商急于出售资产换取现金。
+一家未署名的当地媒体公布了一份建议在家储存的商品清单，包括饼干，方便面、维生素、收音机和手电筒。中共支持的《经济日报》却告诉网民不要有 “过多的想象力”。《人民日报》也称，类似应急储备通知每年都会通报。目的是确保公民在其所在地区发生封锁时不会措手不及。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2.jpg)
+中共国蔬菜大省 – 山东省的蔬菜种植遭到大雨的摧毁，疫情又导致了运输链的断裂，再有农历新年将近，多种因素导致了食品等生活必须品价格飙涨。据山东省寿光市交易中心的蔬菜价格指数显示，黄瓜、菠菜和西兰花的价格比10月初上涨了一倍多。
 
-中共国开发商在2013年至2018年期间进行了大规模的超出它们偿还能力的国际支出。但随着政策的收紧，这些公司希望后来者承接烫手山芋的美梦即将破灭。它们会迫不及待的降价出售。
+据国家电视台周一晚间报道，政府计划 “在适当的时候 “释放蔬菜储备，以应对价格上涨。但是储备了哪些蔬菜，以及储备量有多大却未向公众披露。
 
-中共国做事一贯是杀鸡取卵，只顾眼前利益，不计后果。现在是时候还债了。
+看来中共国离吃草的年代真的不远了。
 
 （本文仅代表作者观点）
 
-参考来源：[多米诺效应：中共国房地产的困境波及全球著名项目](https://www.reuters.com/world/china/chinas-property-woes-put-prestige-global-projects-play-2021-10-31/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=01-11-21&amp;utm_campaign=01-11-21)
+参考来源：[寒冬将至，中共国百姓面临基本生活必须品的价格飙升](https://www.reuters.com/world/china/china-urges-families-keep-stores-daily-needs-ahead-winter-2021-11-02/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Daily%20Briefing%20-%20Huawei%20COP26%20-%202nd%20Nov%202021&amp;utm_campaign=Daily%20Briefing%20-%20Huawei%20COP26%20-%202nd%20Nov%202021)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 

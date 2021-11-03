@@ -2,23 +2,32 @@
 ---
 
 
-## 文贵爆料 3/11: “毁人不倦&#8221;的”圣人“朱镕基
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1636652/)
+## 中共要求3-11岁儿童在12月底前完成新冠疫苗接种
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636671/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-1.jpg)
-提到总理朱镕基，总让人有一种高山仰止的敬仰之情，然而，世人都错看了他。郭文贵先生在10月29日的大直播中说，朱镕基视百姓的生命如草芥，是大秦赵高和李斯的综合体。
+作者：香草山 Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在当地时间10月30日的新冠疫情新闻发布会上，中共国家卫健委疾控局副局长吴良有要求在12月底完成墙内3-11岁儿童的全程新冠疫苗接种。 目前，这一规定正在中共国包括北京、上海、广东在内的十余个省市中强制推行。
 
-房地产税什么时候开始？房地产税是真正的是从93年到95年就开始讨论，当时叫中房，当时中房是代表中国房地产的政策，然后南部叫深房，叫北有中房、南有深房。朱镕基太王八蛋了。中国老百姓当年下岗的时候啊，是带着老婆卖淫的、带着闺女卖淫的，报告他以后，朱镕基是哈哈大笑的。他说我们还再能稳定个十年、二十年，就这个畜生。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide12-1.jpeg)
 
-朱镕基当时就说了，房地产税是解决所有中国历史上经济问题的最重要的标志，这是我朱镕基一九八七年讲的，你们去查查啊，说征房地产税之日就是中国经济所有历史问题都解决了。在这之前就卖地，叫地方债务，而且炒作、洗钱、再洗钱，然后拿着这些热钱到外国去并购。我跟吴仪聊了七个小时。她说到朱镕基的时候，她说，朱镕基这个家伙心里有个魔，我越看他越像当年的毛泽东附体，她说他把老百姓死亡当成兴奋剂。
+消息称，此举引发了墙内民众的广泛质疑。他们指出，中共当局没有给出儿童接种新冠疫苗的数据报告，也没有披露这些疫苗是否已经完成了三期试验。同时，他们质问当局，疫苗造成的各类副作用是否有人负责。更有民众表示，宁可让孩子休学，也不会接种新冠疫苗。
 
-郭先生说，朱镕基这个家伙是个中国邪恶的赵高和李斯综合体啊！
+参考链接: [中疾控答21记者：3-11岁人群接种新冠疫苗，要在知情、同意的基础上](https://m.21jingji.com/article/20211030/herald/4c9ca32989cac1708076ac67b69822f9.html)
 
-参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-[2021年11月03 日 文贵大直播](https://gettr.com/streaming/pfyckddba1)
+总编：飞虹
+编辑：珈沅
+校正/发稿：谐趣园
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
