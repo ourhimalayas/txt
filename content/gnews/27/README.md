@@ -2,45 +2,47 @@
 ---
 
 
-## 远超过一千六百五十万人同时在线观看：喜币上市敲响中共灭亡的丧钟
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1635690/)
+## 多米诺效应：中共国房地产的困境波及全球著名项目
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1635742/)
 
-作者：英国喜庄园 – I770775
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+作者：香草山金融部 – 闲聊钱币
 
 
 
-美东时间2021年11月1日晚10：30分，喜马拉雅币成功在喜交所上市。
 
-由于大量数据临时调整和系统软件的技术调试，让原定于上午7：11分的开市时间，延迟了十三个多小时。喜币最终在今年最后一个福满之日如约而至。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture77777.jpg)
-为喜迎喜币上市，文贵先生和全球亿万战友通过近20小时直播欢庆。战友们准备了香槟，在上市锣鼓敲响、双狮舞动的那一刻，一起举杯欢庆。
 
-喜币上市庆典大直播，仅在郭文贵先生gtv平台的同时在线观看人数就达一千六百五十多万人。这并不包盖特、discord、油管等实时转播的收视量。同时，由于墙内战友通过vpn观看，而vpn会让在线显示人数大量少于实际在线人数。也就是说，喜币上市庆典大直播远超于一千六百五十多万人同时在线观看。
-
-亿万爆料革命战友同时在线欢庆喜币上市。这是新中国联邦凝聚的人心和民意，这有力说明了中共不能代表中国人的事实。喜币的成功上市，敲响了中共灭亡的丧钟。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 
+伦敦，10月31日（路透社–全球顶级的大城市，例如伦敦、纽约、悉尼和其他城市的知名大型项目的开发商正面临现金争夺战。原因在于中共国的房地产危机和这些项目有着千丝万缕的联系。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4.jpg)
+类似恒大集团(3333.HK)在这场危机中的挣扎，另一家总部位于上海的绿地控股(0337.HK)同样面临同样困境。它在悉尼，布鲁克林、洛杉矶、巴黎和多伦多等地有价值数十亿美元的项目。而这些资金全部是突破了债务红线获得的。
 
-总编：飞虹
-编辑：木白
-校对/发稿：Hetangyuese
+类似的中共国地产商比比皆是。它们在争夺海外地段时付出了高成本，当资金链出现问题时，这些地产商急于出售资产换取现金。
+
+中共国开发商在2013年至2018年期间进行了大规模的超出它们偿还能力的国际支出。但随着政策的收紧，这些公司希望后来者承接烫手山芋的美梦即将破灭。它们会迫不及待的降价出售。
+
+中共国做事一贯是杀鸡取卵，只顾眼前利益，不计后果。现在是时候还债了。
+
+（本文仅代表作者观点）
+
+参考来源：[多米诺效应：中共国房地产的困境波及全球著名项目](https://www.reuters.com/world/china/chinas-property-woes-put-prestige-global-projects-play-2021-10-31/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=01-11-21&amp;utm_campaign=01-11-21)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+编辑/校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

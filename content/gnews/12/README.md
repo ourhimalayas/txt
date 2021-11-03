@@ -2,43 +2,49 @@
 ---
 
 
-## 未来要按参加的时间、贡献和G系列的投资额度分享股份
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1635785/)
+## 美国在华商界领袖警告，外籍人士正在撤离中共国
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1635834/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2305_副本.jpg)
-据[MILES GUO 直播 2021-11-02](https://gettr.com/streaming/pfv59d80a7)时间点9：41——
+#### 翻译：文扬
 
-没有人发现一个问题，明年六四的时候，过的时候都带着喜币来的时候啥感觉呀？都带着喜币来的时候啥感觉？兄弟姐妹们想想，想想。  两周年的时候，中国人在成立了新中国的体制的时候，两周年的时候就会拥有了自己的金融系统、自己的货币，这是人类上多大的传奇！
+#### 编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/11/习近平.jpeg)**图片来源：ChinaDaily**
+近日，一个重要的美国商业游说团体负责人警告说，随着习近平加强对冠状病毒的控制，西方高管将大量撤出这个全球最大的消费市场。
 
-我相信到两年的时候，喜币系统、爆料革命、新中国联邦加入的人数会突破千万，正式加入的会超过千万。我们未来会登记正式加入新中国联邦的，未来会自动成为整个金融系统的按照家庭、人数分配财富，真的叫共享财富，咱们叫真正的共享，按照你参加的时间、贡献和投资G系列的额度分享股份——终生的！
+根据中共国消除冠状病毒的战略，中共国政府已经实施了超过18个月的严格边境安全管控，包括三周的隔离和减少商务人士及其家人的签证。
 
-这是我瞎说的，你们别当个事儿，走着看吧！跟喜币没关系，跟喜联储没关系，走着看吧！我发梦呢！H-Coin to the moon, H-Coin to the moon.
+这些规定被认为有助于抑制（初期）冠状病毒的爆发，并减少了疫情造成的死亡人数。但是，伴随德尔塔变种病毒大规模爆发，当蔓延到中国三分之二的地区后，促使当地恢复了封锁和旅行禁令。
 
-我们要真正让人感受到，拿到手里的受西方法律保护的永久式的股权，就像美联储、罗斯柴尔德家族拥有的那个股票一样，就一张纸，你有120股就够了，是吧？那时候你就觉得喜币不重要了，因为喜币他爹，你是喜币他爹，新中国联邦人都要当喜币的爹才行。
+由于中共国政府没有阐明（封锁）退出战略，而且正当世界其它地区重新开放之时，美国商界领袖警告北京，当前的政策可能加速外国人从中共国撤出。
 
-（以下暂略）
+美国商会驻上海和北京分会主席吉布斯和比伯，他们将在未来几个月内离职，也是越来越多的外籍人士离开中共国的商界代表。吉布斯先生是了解中国商界的资深人士，他将比原计划提前离职。
 
-撰稿：喜马拉雅的肉夹馍；
+最近对338家中国上海美国商会会员公司的调查显示，超过70%的公司难以吸引和留住外国人才，其中“与新冠有关的旅行限制”是首要问题。
 
-审核：喜马拉雅的馍夹肉；
+“自全球大流行开始以来，让企业高管及其家人进出中国一直极其困难”，吉布斯表示，除了在华外籍人士减少外，“外国留学生急速减少”，这是对数十年来，一直是美中外交重要支柱的“人与人交流”的又一打击。
 
-校对：Maarago；
+严格的（疫情）检疫协议，包括罕见的让母亲与子女分离的事件，让一些外籍人士非常惊恐。外国人数十年来享受的优惠税收待遇也取消，以及中共国城市生活成本的不断上升都被认为是关注的问题。对旅行限制可能延长至2022年底的担忧，更加深了许多人的不确定性。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+2月的冬奥会将不允许外国观众参加。许多商界人士现在预计，在明年年底的重要党代会之前，中共国将优先考虑严密的安全保障——以及随后的边境封锁，届时习近平将历史性地第三次担任国家主席。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+一家咨询公司的中国分析师崔二南（Ernan Cui）表示：“鉴于目前中共国（病毒）遏制政策的成功以及对民众限制国际旅行，中共国极有可能至少再持续一年国内零容忍战略和对国际旅行的严格检疫要求。”
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+由于严格控制疫情，外企也难以留在香港的外国员工。与2020年相比，今年使用香港作为地区总部的美国公司数量下降了10%（为254家），是2018年以来的最低水平。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+中共官员在8月份引用了一项规则，即每个国家只能有一个注册商会，以证明关闭的合理性。设在成都的中国西南地区美国商会近几个月来被迫暂停运作。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+美国国务院认为，中共国“不透明、任意的监管环境，让外国企业处于越来越不利的投资环境”。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+原文链接：[US business chiefs warn of expat exodus from China (afr.com)](https://www.afr.com/world/asia/us-business-chiefs-warn-of-expat-exodus-from-china-20211102-p595c1)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+发布**：**文泓
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

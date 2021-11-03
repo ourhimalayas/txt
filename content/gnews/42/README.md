@@ -2,44 +2,30 @@
 ---
 
 
-## Facebook對針對兒童疫苗「的錯誤信息」施加更嚴格的限製
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1635505/)
+## 气候会议拟发联合声明十年内停止砍伐森林
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1635506/)
 
-【簡評：】*對於此文，我只想說「臉書」只剩下「書」了，臉已經不要了，已經光明正大地不要臉了。其他沒什麽可說的了，哦，對了，不要臉的Facebook註定要被丟棄到垃圾堆，現在它提醒給孩子註射疫苗，我們就千萬不能這麽幹。*
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/11/434.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fthumbor.ftacademy.cn%2Funsafe%2F900x506%2Fpicture%2F4%2F000128914_piclink.jpeg&amp;imgrefurl=http%3A%2F%2Fcn.ft.com%2Finteractive%2F52359&amp;tbnid=JcDkn9St3wTL9M&amp;vet=12ahUKEwj-hN2fh_rzAhW_AjQIHe_kBRcQMygCegUIARCrAQ..i&amp;docid=KJUCmq4i1jJTHM&amp;w=900&amp;h=506&amp;q=%E5%81%9C%E6%AD%A2%E7%A0%8D%E4%BC%90%E6%A3%AE%E6%9E%97&amp;hl=zh-CN&amp;ved=2ahUKEwj-hN2fh_rzAhW_AjQIHe_kBRcQMygCegUIARCrAQ)
+英方峰会组织者宣布，预计周二（11月2日）发布的一项联合声明中各国承诺在2030年之前制止砍伐森林的行为。声明签署国当中也包括巴西和俄罗斯。环保人士则批评称，2030年才采取行动已经为时过晚。
 
-据《The Verge》记者Emma Roth，2021年10月30日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-27-e1635902507831.png)圖片來源: Alex Castro / The Verge
-**Facebook提醒用戶該疫苗現已可供兒童使用**
+已提前发布的英国首相约翰逊发言稿中，再度强调了森林在实现气候目标方面所扮演的重要角色。各国希望全球气温升高的幅度同工业化前相比，不超过1.5摄氏度。发言稿中写道：“森林是生机盎然的生态系统，是大自然的精华所在，也是我们星球的肺。”周二，各国通过这一旨在保护森林的声明后，人类将有望从大自然的“占领者”演变为大自然的保护者。
 
-就在美國食品藥品監督管理局(FDA)正式批準輝瑞(Pfizer)公司的針對5歲至11歲兒童的COVID-19疫苗之際，**Facebook的全新身份Meta公司宣布，將對兒童的疫苗錯誤信息推出更嚴格的政策。**該平臺此前在2020年底對COVID-19疫苗的錯誤信息進行了限製，但沒有專門針對兒童的政策。
+英国政府表示，有一百多个国家的领导人和政府首脑签署了这份联合声明，上述国家拥有的森林占全球森林总面积的85%以上，其中包括加拿大北方针叶林带、巴西亚马孙雨林以及刚果盆地的热带雨林。中共国是签署国之一。亲临格拉斯哥气候峰会的印度总统莫迪则没有在这份倡议上签字。各国政府以及私人已经承诺向这项倡议提供大约200亿美元的资金。英国政府称这一倡议是“前所未有的”。不过，2014年纽约的一次联合国气候会议上，与会各国也曾承诺在2020年前将砍伐森林的数量减少一半，而到2030年时则全面停止砍伐森林的行为。然而，此后工业化的砍伐行为仍有增无减。
 
-Meta在一篇新的博客文章中表示，**它正在與美國疾病控製和預防中心(CDC)和世界衛生組織(WHO)合作，刪除平臺上傳播的與兒童和COVID-19疫苗有關的「錯誤」內容。這包括任何暗示COVID-19疫苗不安全、未經測試或對兒童無效的帖子。**此外，Meta公司還將提供英語和西班牙語的即時提醒，告知該疫苗已被批準用於兒童，並提供在何處可接種該疫苗的信息。
+除此之外，巴西总统博索纳罗还通过视频在格拉斯哥气候会议上宣布，巴西将在2030年将二氧化碳排放量减少至2005年一半的水平。巴西环境部长莱特（Joaquim Leite）表示，该国将在2050年实现碳中和。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-28-e1635902683951.png)圖片來源：Facebook
+有关在2030年前停止砍伐森林的声明中，也包含保护原住民权益的内容。各国期望原住民能继续“扮演森林保卫者的角色”。
 
-Meta 指出，自中共病毒COVID-19疫情開始以來，它總共從 Facebook 和 Instagram 刪除了2000萬條涉及COVID-19 和疫苗的「錯誤信息」。
+环保组织“绿色和平”则对上述倡议提出批评，认为这一声明无疑为“今后十年大肆砍伐森林开放了绿灯”，而原住民已经要求在2025年前必须对80%雨林的采取保护措施。绿色和平说：“全球气候和大自然已经无法继续等待。”
 
-這些數字與我們從 Facebook 泄露的內部文件中看到的情況不一致——Facebook 文件清楚地表明，該平臺對與 COVID-19 疫苗相關的錯誤信息準備不足。 如果 Facebook 準備得更充分，它可能會在疫情早期發起打擊（針對兒童和成人的） 「錯誤信息」的活動，從而可能會刪除更多「虛假內容」。
+信息来源：
 
+[气候会议拟发联合声明 十年内停止砍伐森林](https://www.dw.com/zh/%E6%B0%94%E5%80%99%E4%BC%9A%E8%AE%AE%E6%8B%9F%E5%8F%91%E8%81%94%E5%90%88%E5%A3%B0%E6%98%8E-%E5%8D%81%E5%B9%B4%E5%86%85%E5%81%9C%E6%AD%A2%E7%A0%8D%E4%BC%90%E6%A3%AE%E6%9E%97/a-59694086)
 
-
-
-
-
-
-
-
-原文連接：[https://www.theverge.com/2021/10/30/22754046/facebook-tighter-restrictions-vaccine-misinformation-children](https://www.theverge.com/2021/10/30/22754046/facebook-tighter-restrictions-vaccine-misinformation-children)
-
-翻譯：洛杉磯盤古農場 – 鋼蛋兒
-校對：洛杉磯盤古農場 – Mike Li
-評論：洛杉磯盤古農場 – 鋼蛋兒
-編輯：洛杉磯盤古農場 – 心照
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉磯盤古農場歡迎您加入: (或點擊上方圖片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

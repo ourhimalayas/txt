@@ -2,47 +2,26 @@
 ---
 
 
-## 多米诺效应：中共国房地产的困境波及全球著名项目
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1635742/)
+## 空气中的细小颗粒物每年导致400万人过早死亡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1635794/)
 
-作者：香草山金融部 – 闲聊钱币
+编辑：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片4-1.png)
+图片来源：网络截图
 
+据合众国际社11月2日报道， 总部设在日本的一个研究所说，全世界每年有超过400万人因PM2.5的微小颗粒进入肺部和心血管系统而过早死亡。
 
+近年来，科学家们越来越关注PM2.5颗粒物对空气污染和健康的影响。位于日本筑波的国家环境研究所的一个团队周二就这一问题发表了一篇论文，由研究员Keisuke Nansai领导的该团队根据2010年收集的数据绘制了微观粒子图，然后预测它们在199个国家的健康影响。
 
+其调查结果表明20国集团中的19个国家的消费品消费对全世界78000名婴儿的过早死亡负有责任。该报告还断言，全球贸易在PM2.5的传播中发挥了作用，因为 “一个国家的消费可能导致另一个国家的PM2.5污染。”
 
+该研究所警告说，如果世界领导人不采取行动应对污染，就会出现危险。报告说现在还没有研究量化20国集团国家对大气中的PM2.5造成的实质性健康影响的消费责任，这种科学知识的缺乏有可能拖延国际合作的努力，来保护PM2.5污染的受害者。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+根据美国环境保护局的说法，这些颗粒有许多大小和形状，可以由数百种不同的化学物质组成。有些是直接从某个源头排放出来的，如建筑工地、未铺设的道路、田地、烟囱或火灾。大多数颗粒物在大气中的形成是化学物质复杂反应的结果，如二氧化硫和氮氧化物，它们是发电厂、工业和汽车排放的污染物。
 
+纽约州卫生部说，细小的颗粒物也是由发电厂等来源的气体或水滴在大气中反应形成的。这些化学反应可能发生在离原始排放源很远的地方。由于细颗粒物可以从它们的源头被带到很远的地方，野火或火山爆发等事件可以提高距离事件数百英里的细颗粒物浓度。
 
-
-
-
-伦敦，10月31日（路透社–全球顶级的大城市，例如伦敦、纽约、悉尼和其他城市的知名大型项目的开发商正面临现金争夺战。原因在于中共国的房地产危机和这些项目有着千丝万缕的联系。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4.jpg)
-类似恒大集团(3333.HK)在这场危机中的挣扎，另一家总部位于上海的绿地控股(0337.HK)同样面临同样困境。它在悉尼，布鲁克林、洛杉矶、巴黎和多伦多等地有价值数十亿美元的项目。而这些资金全部是突破了债务红线获得的。
-
-类似的中共国地产商比比皆是。它们在争夺海外地段时付出了高成本，当资金链出现问题时，这些地产商急于出售资产换取现金。
-
-中共国开发商在2013年至2018年期间进行了大规模的超出它们偿还能力的国际支出。但随着政策的收紧，这些公司希望后来者承接烫手山芋的美梦即将破灭。它们会迫不及待的降价出售。
-
-中共国做事一贯是杀鸡取卵，只顾眼前利益，不计后果。现在是时候还债了。
-
-（本文仅代表作者观点）
-
-参考来源：[多米诺效应：中共国房地产的困境波及全球著名项目](https://www.reuters.com/world/china/chinas-property-woes-put-prestige-global-projects-play-2021-10-31/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=01-11-21&amp;utm_campaign=01-11-21)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+新闻来源：Report: Fine particles in air cause 4M premature deaths a year
 
  
 
