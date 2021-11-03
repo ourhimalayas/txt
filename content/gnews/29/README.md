@@ -2,36 +2,44 @@
 ---
 
 
-## 福建、浙江多地惊现大量军车坦克，疑为中共攻台信号
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636599/)
+## 俄罗斯全网报道彭帅指控张高丽对其性侵丑闻
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1636647/)
 
-作者：纽约香草山-Noemi
+俄罗斯莫斯科喀秋莎农场 星河
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/P.jpg)news.yahoo.com
+美东时间11月3日报道，两届网球大满贯得主彭帅指控前中共国第一副总理张高丽对其进行了性侵。彭帅周二在中共国社交网络微博的官方页面上提出了这一指控，但该帖子很快被删除。俄罗斯媒体全网对此进行了报道。
 
-当地时间11月2日，多位用户在盖特上发布视频爆料称，墙内福建福州、浙江杭州、温州等地相继出现大规模的中共军车以及装甲坦克运输车队，疑为中共即将攻台的危险信号。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-2.jpg)
-盖特视频显示，杭州市区内存在大量军车装载着坦克等军用装备，列成一队，在公路上缓慢前行，交警们在旁指挥“清场”。而同样的情况还发生在福州、温州等地的市区中。
+彭帅的指控在互联网上被广泛传播，对她的名字和“网球”一词的搜索被阻止，与此有关。据《华盛顿邮报》报道，周三，即使不提及这些指控，也不可能在微博上发布带有彭帅和张高丽名字的帖子，中共国互联网上会马上显示帖子违反“相关法律和法规”的警告，彭的个人主页上的评论也已被禁止。
 
-对此，盖特用户也在文贵先生发布的该条视频盖文下评论道，中共越加疯狂，也就越快走向灭亡。
+彭帅承认她无法提供证据。她说，这位官员第一次袭击她是在10多年前（2007年至2012年），当时张高丽任中共天津市委书记。此后，他们有很长一段时间没有见面。
+
+大约三年前，张高丽已经退休，他邀请彭帅和他的妻子一起打网球，然后在他们家吃饭。在那里，他再次强迫彭帅与他发生了性关系。这位网球运动员指出，她“从未同意过，所发生的事情让她流泪”。彭帅最终同意了与张高丽的婚外情，这种情况一直持续到最近。
+
+35岁的彭帅是前世界排名第一的双打选手。她总共赢得了25场WTA比赛（包括两个单打冠军）。彭帅在2013年赢得了温网冠军，在2014年在罗兰∙加洛斯球场折桂。
+
+11月1日，张高丽满75岁。他从2013-2018年担任中共国第一副总理，在此之前，他在中国共产党党内担任过各种职务。2017年，俄罗斯总理梅德韦杰夫在访问中共国期间授予张高丽友谊勋章，以表彰他对加强与俄罗斯合作过程中所做出的巨大贡献。
 
 参考链接：
 
-[11月2日，中共国浙江省杭州市上城区南宋皇城遗址凤凰山脚路东面，大量军车运输坦克等装备！](https://gettr.com/post/pfuop7edf0)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-总编/编辑：Irene木木
-校正/发稿：Fei797
+[https://sportrbc.ru/news/618296c89a79474fee1a8fb3?ruid=uUjlA11ELf50EEeBAwNeAg==&from=from\_main\_14](https://sportrbc.ru/news/618296c89a79474fee1a8fb3?ruid=uUjlA11ELf50EEeBAwNeAg==&amp;from=from_main_14)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[https://lenta.ru/news/2021/11/03/vicepremierlitay/](https://lenta.ru/news/2021/11/03/vicepremierlitay/)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[https://www.gazeta.ru/sport/news/2021/11/03/n\_16797667.shtml](https://www.gazeta.ru/sport/news/2021/11/03/n_16797667.shtml)
 
+[https://www.kp.ru/sports/tennis/byvshego-vicze-premera-obvinili-v-domogatelstvah-chempionki-bolshogo-shlema/](https://www.kp.ru/sports/tennis/byvshego-vicze-premera-obvinili-v-domogatelstvah-chempionki-bolshogo-shlema/)
 
+[https://www.sport-express.ru/tennis/wta/news/eks-tennisistka-obvinila-byvshego-vice-premera-kitaya-v-seksualnom-nasilii-1853280/](https://www.sport-express.ru/tennis/wta/news/eks-tennisistka-obvinila-byvshego-vice-premera-kitaya-v-seksualnom-nasilii-1853280/)
+
+[https://www.championat.com/tennis/news-4502569-chempionka-tbsh-obvinila-byvshego-vice-premera-kitaya-v-seksualnom-nasilii.html](https://www.championat.com/tennis/news-4502569-chempionka-tbsh-obvinila-byvshego-vice-premera-kitaya-v-seksualnom-nasilii.html)
+
+[https://www.sports.ru/tennis/1102832648-eks-tennisistka-obvinila-byvshego-vicze-premera-kitaya-v-seksualnom-na.html](https://www.sports.ru/tennis/1102832648-eks-tennisistka-obvinila-byvshego-vicze-premera-kitaya-v-seksualnom-na.html)
+
+[https://politexpert.net/266195-byvshaya-pervaya-raketka-mira-shuai-pen-zayavila-o-nasilii-so-storony-vice-premera-kitaya](https://politexpert.net/266195-byvshaya-pervaya-raketka-mira-shuai-pen-zayavila-o-nasilii-so-storony-vice-premera-kitaya)
+
+[https://sport24.ru/news/tennis/2021-11-03-eks-pervaya-raketka-mira-obvinila-byvshego-vitse-premyera-kitaya-v-seksualnom-nasilii](https://sport24.ru/news/tennis/2021-11-03-eks-pervaya-raketka-mira-obvinila-byvshego-vitse-premyera-kitaya-v-seksualnom-nasilii)
 
  
 
