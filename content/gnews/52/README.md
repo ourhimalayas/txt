@@ -2,10 +2,10 @@
 ---
 
 
-## 山东菏泽碧桂园铂悦城农民工讨薪被项目负责人车辆压伤
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1634538/)
+## 许多公司都在试图将供应链多样化以避免过于依赖中共国
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1634540/)
 
-10月21日上午，山东菏泽碧桂园铂悦城项目工地门口多名农民工聚集拉条幅、讨要薪资，一名农民工被项目负责人车辆压伤。
+10/27/2021 Tigress财务合作公司首席投资官和研究部主任Ivan Feinseth：全球半导体短缺影响到我们日常生活的方方面面，许多公司都在试图将供应链多样化以避免过于依赖中共国。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

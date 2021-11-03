@@ -2,40 +2,41 @@
 ---
 
 
-## Facebook关闭有争议的人脸识别程序，誓要删除超 10 亿个模板
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1635683/)
+## 雅虎计划退出中共国
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1635745/)
 
-#### 【**雅典娜快讯】，紧贴时事脉搏**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/google-facebook-new6-1920-800x450-1.jpg)
+作者：美国香草山金融组- 德州瑞秋
 
 
 
-图片来源：searchengineland.com
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
 
 
-#### 编译：小红帽
 
-脸书（Facebook）以对隐私和道德的“日益担忧”为由，宣布将停止使用人脸识别技术，并删除迄今为止从选择加入该计划的用户那里收集的超10亿个的个人模板。
+11月2日香港雅虎公司表示，它计划退出中国，理由是 “商业和法律环境越来越具有挑战性” 。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1.jpg)
+该公司在一份声明中表示，从 11 月 1 日起，将无法再从中国大陆访问其服务。“雅虎仍然致力于维护我们用户的权利和自由开放的互联网。我们感谢用户的支持，”声明中写道。
 
-脸书人工智能副总裁杰罗姆·佩森蒂（Jerome Pesenti）周二表示，这一决定是“全公司范围内限制在我们产品中使用人脸识别的举措的一部分”。
+雅虎是近几周来第二家减少在华业务的美国大型科技公司。上个月，微软的专业网络平台 LinkedIn 表示将关闭其中文网站，取而代之的是招聘委员会。
 
-佩森蒂解释说，当该功能停止时，在“未来几周”的某个时候，超过10亿选择加入脸书用户的人脸识别模板将被删除，并且不会被自动识别。佩森蒂补充说，世界各地的当局仍在努力为该技术的使用提供明确的规则，脸书致力于“与领导这次讨论的民间社会团体和监管机构合作”。
+雅虎此前曾缩减在中国的业务规模，并于 2015 年关闭了其北京办事处。它从中国撤出在很大程度上也只是象征性的，因为雅虎的一些服务，比如其门户网站，在中共国已经被封锁了。
 
-早在8月，韩国监管机构就对脸书进行了罚款，理由是脸书假定20万名用户同意该功能，并且不让他们选择退出人脸识别。今年初，在联邦法院裁定人脸识别功能违反了州隐私法后，这家硅谷巨头还被勒令向美国伊利诺伊州的160万用户支付6.5亿美元的集体诉讼赔偿金。
+（本文仅代表作者观点）
 
-为了回应最初于2015年提起的诉讼，脸书已在2019年禁用了自动人脸识别功能，并将其设为可选。
+参考来源：[雅虎计划退出中共国](https://www.foxbusiness.com/technology/yahoo-pulls-out-of-china-amid-challenging-environment)
 
-**参考新闻：**[Facebook SHUTTING DOWN controversial face recognition program, vows to delete over a BILLION templates — RT World News](https://www.rt.com/news/539195-facebook-shuts-face-recognition/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 
-***发布：小红帽***
+编辑/校对/发稿：Hetangyuese
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

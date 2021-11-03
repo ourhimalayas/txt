@@ -2,23 +2,32 @@
 ---
 
 
-## 强生“新冠病毒疫苗”加大患脑血栓风险
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1635536/)
+## GTV新闻访谈简报|2021年11月2日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1635608/)
 
-采编：风云小哥   编译撰稿：文明(添草灭共)
+作者：香草山翻译部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-1.jpeg)图片来源：wlmt
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO.jpg)
 
 
-据美国保守派媒体《国家档案》11月1日报道，由美国著名【梅奥诊所】医生主导、【美国国立卫生院】资助的一项最新研究表明，接种了【强生公司】“新冠病毒疫苗”的人患“脑静脉窦血栓”的可能性提高了3.5倍。这是一种潜在的致命性脑部血栓疾病。其中，30至64岁的女性患这种威胁生命的疾病风险最高。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1102text-SC.png)
+校对：Stay文苑
 
-据悉，【梅奥诊所】是美国的一家私立非盈利性医疗机构，于2021年名列全球最佳医院榜单首席。这项研究已在《美国医学会杂志》上发表。尽管该研究结果显示接种“新冠病毒疫苗”将导致脑血栓风险明显增加，但有同行评审的研究人员坚持认为该疫苗造成的“脑静脉窦血栓”的“绝对风险”仍然很低。
+编辑：Stay文苑
 
-* * *
+发稿：Stay文苑
 
-校对编辑，发稿：硫酸羟氯喹64
+视频参看：[晚GTV新闻访谈](https://gtv.org/broadcast/watch/6181d7de11d186296800a248)
 
-[原文链接：](https://nationalfile.com/study-jj-vaccine-recipients-3-5x-more-likely-to-develop-potentially-fatal-blood-clot-in-the-brain/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
 
  
 

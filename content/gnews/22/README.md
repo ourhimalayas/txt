@@ -2,21 +2,25 @@
 ---
 
 
-## 雅典娜时报-第101期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1635516/)
+## 加拿大卑诗省接种政策消极影响医疗系统
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1635585/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+采编：青青       编译撰稿：文莱
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-3.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-1.png)
-***发布：小红帽***
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-8-edited.jpg)图片来源：TNT
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+据加拿大媒体【CTV新闻】11月2日报道，卑诗省卫生部长迪克斯当天表示，由于目前有大量未接种“新冠病毒疫苗”的医疗工作者被迫无薪休假而造成的人员短缺，因此该省的许多医院被迫推迟了其部分手术治疗。
+
+据悉，医护人员的短缺已导致该省内政部和卫生当局的医院运营服务急剧减少，而对医疗保健需求的大量增加将迫使该省许多其他地区医院的手术因此延误。
+
+报道还指出，虽然在卑诗省的医疗健康系统中，有许多人仍然坚决反对接种该疫苗，但当局已出台了最终的疫苗接种政策，即要求所有政府工作人员在11月22日前必须提供接种证明，否则将面临三个月以上的无薪假期，并可能在未来被当局解雇。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://vancouverisland.ctvnews.ca/b-c-cancels-some-surgeries-due-to-shortages-caused-by-unvaccinated-workers-minister-1.5647410)
 
  
 
