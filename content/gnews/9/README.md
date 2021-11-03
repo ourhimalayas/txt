@@ -2,25 +2,25 @@
 ---
 
 
-## 脸书将其消费者定位最低年龄下调至6岁儿童
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636614/)
+## 新书《真正的安东尼·福奇》即将上市
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636640/)
 
-作者：纽约香草山农场 – Delilah小胖
+作者：洛杉矶盘古农场 – 滴水穿石
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月30日，据盖特提供的脸书——现更名为Meta公司的内部员工爆料信息显示，早在今年4月9日，其公司内部的一篇博客文章表明，该公司计划招聘多个职位，并将其受众从当前13岁的底线门槛，降至6到9岁的孩子。
+相关消息称，新书《真正的安东尼·福奇》将于11月9日正式上市。据悉，书中详细地揭示了安东尼·福奇和他的制药团队是如何从疾病中获取丰厚的利润，以及他工作的这50年给美国公共卫生造成了何种灾难性的后果。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-1.jpeg)
 
-批评者认为，Meta平台的这些文件清楚地表明，该公司的首要任务不是努力降低其现有平台对青少年的危害，而是更偏向于吸引年幼的孩子，并为其建立Meta产品的终生用户渠道，但其产品对年幼的孩子来说并不安全。
+安东尼·福奇，美国国家过敏症和传染病研究所主任。数据显示，福奇每年以科学研究的名义，支配约61 亿美元的美国纳税人资金。而这些资金支持其研究所大量开发新药和疫苗，并逐渐转变为大型制药公司的产品孵化器。多年来，福奇获得了超乎想象的权利，比如，可以批准和授权相关药物和疫苗，或借联邦“知识与创新”领导人的名号，在军队实行独裁统治，包括允许委员会紧急使用授权新冠疫苗等。
 
-针对Meta的这一行径，盖特CEO杰森·米勒先生在其盖文中直接评论到：“Meta的行为让人觉得不舒服”。而盖特用户的盖文评论更是直接了当地认为，Meta此举涉嫌虐待儿童。
+但书中提到，福奇一再违反联邦法律，违规进行有毒的艾滋病和癌症化学疗法的致命实验。另外，福奇资助的一些疫苗给世界民众造成的伤害远超过它们声称的效用。
 
-参考链接: [https://gettr.com/post/pfmzgz18a8](https://gettr.com/post/pfmzgz18a8)
+参考链接：[My New Book — ‘The Real Anthony Fauci’ — Now Available for Pre-Order](https://childrenshealthdefense.org/defender/robert-f-kennedy-jr-book-the-real-anthony-fauci/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
 总编：Irene木木
-编辑：sam jeep
+编辑：Irene木木 
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

@@ -2,24 +2,27 @@
 ---
 
 
-## 新数字驾照将包括使用者的疫苗接种状况
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636663/)
+## 疫苗强制令导致美国多地公共设施人员短缺
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636687/)
 
-作者：纽约香草山福音部 –lilian89
+作者：美东香草山农场 – 文真
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月1日的报道称，一种新的数字驾驶执照正在包括犹他州在内的几个州中推行。据了解，除驾驶员基本信息外，这种新的数字驾照还将显示驾照持有者的新冠疫苗接种状况。同时，报道还补充道，今后的数字驾照中或将继续添加持有者的健康记录、财务报告、信用评分、旅行记录等敏感信息，且这些信息将被政府追踪。
+10月30日，据报道称，由于新冠疫苗强制令造成的人员短缺，纽约26家消防公司已经在全市范围内停业。纽约市民担心，这种情况会带来灾难性后果。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide11-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-3.jpeg)
 
-报道称，这将是我们所知的个人权利的终结，全球主义者正在席卷全世界，民众应该警醒。
+同时，在洛杉矶县，数千名拒绝新冠疫苗强制令的副警长和文职人员也正面临停职的境况。该县警长称，鲁莽地执行新冠疫苗强制令将导致全县44%的警力流失，这会将公共安全置于危险之中。
 
-参考链接:
- [The New Digital Driver’s License Will Include Your Vaccine Status – May Eventually Include Your Credit Score, Travel Records and Social Credit Score](https://www.thegatewaypundit.com/2021/11/news-digital-drivers-license-will-include-vaccine-status-may-eventually-include-credit-score-travel-records-social-credit-score-video/)
+另外，在亚利桑那州，图森水务公司的一名员工声表示，该公司正在因新冠疫苗强制令而“失去员工”。据了解，该公司不得不从其他地区和其他部门抽调人员，用以帮助专门负责监督水质和饮用水参数的部门保持运营。
+
+此前，郭文贵先生多次在直播中示警，疫苗灾难将导致全球基础设施大崩溃。而今，事实证明，这种情况已经发生在全美乃至全世界各地。
+
+参考链接: [Mandate Meltdown: 26 NYC Firestations Shuttered, LA Sheriff Warns Of ‘Mass Exodus’, Tucson Water District Faces ‘Staff Shortage’](https://www.zerohedge.com/covid-19/mandate-meltdown-26-ny-firestations-shuttered-la-sheriff-warns-mass-exodus-tucson-water)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：飞虹
-编辑：飞虹
+总编：Irene木木
+编辑：Irene木木
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

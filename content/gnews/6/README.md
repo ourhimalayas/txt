@@ -2,44 +2,22 @@
 ---
 
 
-## 俄罗斯全网报道彭帅指控张高丽对其性侵丑闻
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1636647/)
+## 文贵爆料 3/11: “毁人不倦&#8221;的”圣人“朱镕基
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1636652/)
 
-俄罗斯莫斯科喀秋莎农场 星河
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-1.jpg)
+提到总理朱镕基，总让人有一种高山仰止的敬仰之情，然而，世人都错看了他。郭文贵先生在10月29日的大直播中说，朱镕基视百姓的生命如草芥，是大秦赵高和李斯的综合体。
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/P.jpg)news.yahoo.com
-美东时间11月3日报道，两届网球大满贯得主彭帅指控前中共国第一副总理张高丽对其进行了性侵。彭帅周二在中共国社交网络微博的官方页面上提出了这一指控，但该帖子很快被删除。俄罗斯媒体全网对此进行了报道。
+房地产税什么时候开始？房地产税是真正的是从93年到95年就开始讨论，当时叫中房，当时中房是代表中国房地产的政策，然后南部叫深房，叫北有中房、南有深房。朱镕基太王八蛋了。中国老百姓当年下岗的时候啊，是带着老婆卖淫的、带着闺女卖淫的，报告他以后，朱镕基是哈哈大笑的。他说我们还再能稳定个十年、二十年，就这个畜生。
 
-彭帅的指控在互联网上被广泛传播，对她的名字和“网球”一词的搜索被阻止，与此有关。据《华盛顿邮报》报道，周三，即使不提及这些指控，也不可能在微博上发布带有彭帅和张高丽名字的帖子，中共国互联网上会马上显示帖子违反“相关法律和法规”的警告，彭的个人主页上的评论也已被禁止。
+朱镕基当时就说了，房地产税是解决所有中国历史上经济问题的最重要的标志，这是我朱镕基一九八七年讲的，你们去查查啊，说征房地产税之日就是中国经济所有历史问题都解决了。在这之前就卖地，叫地方债务，而且炒作、洗钱、再洗钱，然后拿着这些热钱到外国去并购。我跟吴仪聊了七个小时。她说到朱镕基的时候，她说，朱镕基这个家伙心里有个魔，我越看他越像当年的毛泽东附体，她说他把老百姓死亡当成兴奋剂。
 
-彭帅承认她无法提供证据。她说，这位官员第一次袭击她是在10多年前（2007年至2012年），当时张高丽任中共天津市委书记。此后，他们有很长一段时间没有见面。
-
-大约三年前，张高丽已经退休，他邀请彭帅和他的妻子一起打网球，然后在他们家吃饭。在那里，他再次强迫彭帅与他发生了性关系。这位网球运动员指出，她“从未同意过，所发生的事情让她流泪”。彭帅最终同意了与张高丽的婚外情，这种情况一直持续到最近。
-
-35岁的彭帅是前世界排名第一的双打选手。她总共赢得了25场WTA比赛（包括两个单打冠军）。彭帅在2013年赢得了温网冠军，在2014年在罗兰∙加洛斯球场折桂。
-
-11月1日，张高丽满75岁。他从2013-2018年担任中共国第一副总理，在此之前，他在中国共产党党内担任过各种职务。2017年，俄罗斯总理梅德韦杰夫在访问中共国期间授予张高丽友谊勋章，以表彰他对加强与俄罗斯合作过程中所做出的巨大贡献。
+郭先生说，朱镕基这个家伙是个中国邪恶的赵高和李斯综合体啊！
 
 参考链接：
 
-[https://sportrbc.ru/news/618296c89a79474fee1a8fb3?ruid=uUjlA11ELf50EEeBAwNeAg==&from=from\_main\_14](https://sportrbc.ru/news/618296c89a79474fee1a8fb3?ruid=uUjlA11ELf50EEeBAwNeAg==&amp;from=from_main_14)
-
-[https://lenta.ru/news/2021/11/03/vicepremierlitay/](https://lenta.ru/news/2021/11/03/vicepremierlitay/)
-
-[https://www.gazeta.ru/sport/news/2021/11/03/n\_16797667.shtml](https://www.gazeta.ru/sport/news/2021/11/03/n_16797667.shtml)
-
-[https://www.kp.ru/sports/tennis/byvshego-vicze-premera-obvinili-v-domogatelstvah-chempionki-bolshogo-shlema/](https://www.kp.ru/sports/tennis/byvshego-vicze-premera-obvinili-v-domogatelstvah-chempionki-bolshogo-shlema/)
-
-[https://www.sport-express.ru/tennis/wta/news/eks-tennisistka-obvinila-byvshego-vice-premera-kitaya-v-seksualnom-nasilii-1853280/](https://www.sport-express.ru/tennis/wta/news/eks-tennisistka-obvinila-byvshego-vice-premera-kitaya-v-seksualnom-nasilii-1853280/)
-
-[https://www.championat.com/tennis/news-4502569-chempionka-tbsh-obvinila-byvshego-vice-premera-kitaya-v-seksualnom-nasilii.html](https://www.championat.com/tennis/news-4502569-chempionka-tbsh-obvinila-byvshego-vice-premera-kitaya-v-seksualnom-nasilii.html)
-
-[https://www.sports.ru/tennis/1102832648-eks-tennisistka-obvinila-byvshego-vicze-premera-kitaya-v-seksualnom-na.html](https://www.sports.ru/tennis/1102832648-eks-tennisistka-obvinila-byvshego-vicze-premera-kitaya-v-seksualnom-na.html)
-
-[https://politexpert.net/266195-byvshaya-pervaya-raketka-mira-shuai-pen-zayavila-o-nasilii-so-storony-vice-premera-kitaya](https://politexpert.net/266195-byvshaya-pervaya-raketka-mira-shuai-pen-zayavila-o-nasilii-so-storony-vice-premera-kitaya)
-
-[https://sport24.ru/news/tennis/2021-11-03-eks-pervaya-raketka-mira-obvinila-byvshego-vitse-premyera-kitaya-v-seksualnom-nasilii](https://sport24.ru/news/tennis/2021-11-03-eks-pervaya-raketka-mira-obvinila-byvshego-vitse-premyera-kitaya-v-seksualnom-nasilii)
+[2021年11月03 日 文贵大直播](https://gettr.com/streaming/pfyckddba1)
 
  
 

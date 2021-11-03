@@ -2,30 +2,36 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月03日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1636582/)
+## 福建、浙江多地惊现大量军车坦克，疑为中共攻台信号
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636599/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO.jpg)
+作者：纽约香草山-Noemi
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-2.png)
-文章仅代表作者本人观点，与Gnews无关
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-视频参看：2021.11.03早GTV新闻访谈
+当地时间11月2日，多位用户在盖特上发布视频爆料称，墙内福建福州、浙江杭州、温州等地相继出现大规模的中共军车以及装甲坦克运输车队，疑为中共即将攻台的危险信号。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-2.jpg)
+盖特视频显示，杭州市区内存在大量军车装载着坦克等军用装备，列成一队，在公路上缓慢前行，交警们在旁指挥“清场”。而同样的情况还发生在福州、温州等地的市区中。
 
-[https://gtv.org/broadcast/watch/6182803211d186296800e0ef](https://gtv.org/broadcast/watch/6182803211d186296800e0ef)
+对此，盖特用户也在文贵先生发布的该条视频盖文下评论道，中共越加疯狂，也就越快走向灭亡。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+[11月2日，中共国浙江省杭州市上城区南宋皇城遗址凤凰山脚路东面，大量军车运输坦克等装备！](https://gettr.com/post/pfuop7edf0)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编/编辑：Irene木木
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
 
  
 

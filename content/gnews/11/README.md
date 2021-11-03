@@ -2,25 +2,26 @@
 ---
 
 
-## 福建、浙江多地惊现大量军车坦克，疑为中共攻台信号
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636599/)
+## 脸书将其消费者定位最低年龄下调至6岁儿童
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636614/)
 
-作者：纽约香草山-Noemi
-
+作者：纽约香草山农场 – Delilah小胖
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月30日，据盖特提供的脸书——现更名为Meta公司的内部员工爆料信息显示，早在今年4月9日，其公司内部的一篇博客文章表明，该公司计划招聘多个职位，并将其受众从当前13岁的底线门槛，降至6到9岁的孩子。
 
-当地时间11月2日，多位用户在盖特上发布视频爆料称，墙内福建福州、浙江杭州、温州等地相继出现大规模的中共军车以及装甲坦克运输车队，疑为中共即将攻台的危险信号。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-2.jpg)
-盖特视频显示，杭州市区内存在大量军车装载着坦克等军用装备，列成一队，在公路上缓慢前行，交警们在旁指挥“清场”。而同样的情况还发生在福州、温州等地的市区中。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-2.jpeg)
 
-对此，盖特用户也在文贵先生发布的该条视频盖文下评论道，中共越加疯狂，也就越快走向灭亡。
+批评者认为，Meta平台的这些文件清楚地表明，该公司的首要任务不是努力降低其现有平台对青少年的危害，而是更偏向于吸引年幼的孩子，并为其建立Meta产品的终生用户渠道，但其产品对年幼的孩子来说并不安全。
 
-参考链接：
+针对Meta的这一行径，盖特CEO杰森·米勒先生在其盖文中直接评论到：“Meta的行为让人觉得不舒服”。而盖特用户的盖文评论更是直接了当地认为，Meta此举涉嫌虐待儿童。
 
-[11月2日，中共国浙江省杭州市上城区南宋皇城遗址凤凰山脚路东面，大量军车运输坦克等装备！](https://gettr.com/post/pfuop7edf0)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-总编/编辑：Irene木木
-校正/发稿：Fei797
+参考链接: [https://gettr.com/post/pfmzgz18a8](https://gettr.com/post/pfmzgz18a8)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：Irene木木
+编辑：sam jeep
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -28,11 +29,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
