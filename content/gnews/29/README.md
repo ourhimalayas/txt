@@ -2,10 +2,10 @@
 ---
 
 
-## 疫苗抗议者向英国国会投掷注射器，高喊“纽伦堡来了”
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1636908/)
+## 新西兰首相贾新达·亚登宣布工作场所疫苗强制令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1636969/)
 
-10/30/2021 疫苗护照抗议者向英国议会的围栏投掷注射器，并高喊“纽伦堡来了”。
+10/26/2021 新西兰首相贾新达·亚登宣布在任何需要疫苗证明才能进入的工作场所工作的每个人都必须接种疫苗。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

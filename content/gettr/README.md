@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/3/2021 11:21 PM (UTC)`
+
+CDC近日发布的一项漏洞百出的报告称疫苗比自然免疫更有效，这是CDC宣传工作的一部分，报告未经同行评审，只挑选对其有利的数据，CDC是为这份报告付费的金主；强制疫苗令是政客对权力的滥用<br/><br/>A recent CDC's flawed report says the vaccines are more effective than natural immunity. This report is part of it’s propaganda program which is non-peer reviewed  and an example of “cherry-picking”. CDC paid for this report. It’s abuse of power for government officials who insist mandate.<br/>
+![img](https://media.gettr.com/group41/getter/2021/11/03/23/21/8270693f-a49c-731b-1a8a-fcaebcfef0cd/out.jpg)
+
+---
+
 `@miles 11/3/2021 10:35 PM (UTC)`
 
 NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共政府负责!我们必须尽全力解放香港，支持香港人，我与你们站在一起！<br/><br/>A Declaration from NBA player Enes Kanter：We must act. We must hold Chinese government accountable! We must do everything we can to help free Hong Kong! We must support Hong Kongers. I stand with you! <br/>
@@ -289,13 +296,6 @@ Hcoin To The Moon <br/><br/>词：威廉王<br/>曲：唐平<br/>编曲： SFG<b
 
 杰森·米勒：疫苗强制令最终会迫使整个国家分裂成两个不同社会；向拜登政府强制疫苗令发起诉讼的佛罗里达州州长将成为2024总统竞选中最有领导力的候选人<br/><br/>Jason Miller: Vaccine mandates will eventually force the nation to split into two different societies. The governor of Florida who filing a lawsuit over Biden Administration’s mandates will be most leadership candidate in 2024 presidential election <br/>
 ![img](https://media.gettr.com/group18/getter/2021/10/31/01/25/bfaf83fc-1135-e47e-92ad-c852ba8dd09f/out.jpg)
-
----
-
-`@miles 10/31/2021 1:07 AM (UTC)`
-
-杰森·米勒：大型科技公司正在成为以左翼审查制度和反美国主义而闻名的品牌，Facebook的改名是其末日的开始<br/><br/>Jason Miller: Big techs are becoming brands that are best known for left-wing censorship and anti-Americanism. Facebook's name change is the beginning of its end.
-![img](https://media.gettr.com/group39/getter/2021/10/31/01/07/a7c5a560-dacc-5f54-8a36-e2d19a747c60/out.jpg)
 
 ---
 
