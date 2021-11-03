@@ -2,30 +2,59 @@
 ---
 
 
-## 有声|意大利政府首次向中共表达关切台海局势及新疆、香港人权问题
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1636318/)
+## 最新报告显示，伊维菌素有86%的预防率和67%的早期治疗率
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1636356/)
 
-配音：香草山美食部 – 玫瑰园
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-10月31日，意大利外交部发布的新闻稿指出，G20会议期间，意大利外长迪马尤在29日与中共外长王毅会谈时明确表示，意大利政府很关切台湾海峡的紧张局势，希望两岸能以对话方式让情势和缓。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-_1794c8dfc62_large.jpg)
 
-此外，外长迪马尤「特别强调」意大利对新疆和香港人权问题的担忧，希望中共能和欧盟恢复有关人权问题的高级对话。
 
-意大利是被中共深度蓝金黄的国家，也是欧盟及G7中最早参与中共一带一路的国家，是中共眼中视为囊中之物的欧盟前进堡垒。有专家分析，这次意大利政府首次敢于公开发表对于台湾、新疆、香港等被中共视为大忌议题的看法，显示随着民意对中共的不满，意大利政府已经见风转舵，明确改变对中共言听计从的态度，慢慢转回到西方民主价值的阵营中。
 
-文字版原文：[意大利政府首次向中共表达关切台海局势及新疆、香港人权问题](https://gnews.org/zh-hans/1634864/)
+图片来源：gulfnews.com
 
-音频处理：喜山必胜Maverick
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编译：小红帽
+
+一份[包含64项研究的最新国际报告](https://ivmmeta.com/ivm-meta.pdf)显示，伊维菌素作为中共病毒（COVID-19）预防措施的成功率为86%，而在的早期中共病毒治疗中的成功率为67%。
+
+这些结果同时亦反映了过去一年中[关于羟氯喹（对中共病毒有效）的290多项研究报告](https://c19hcq.com/)。
+
+尽管这些药物在同行评审研究中持续有效，但美国疾病控制与预防中心(CDC) 、福奇博士和美国食品药品监督管理局(FDA)嘲笑使用这些药物来治疗中共病毒。到了某个时候，他们将不得不承认自己错了，而且这可能是导致数百万人死于这种致命病毒的原因。
+
+Gateway Pundit网站曾广泛报道了美国疾病控制与预防中心导致数千美国人死亡。
+
+这份新的国际报告显示，伊维菌素在预防和降低中共病毒死亡率方面表现非常出色。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-study-success-01.jpg)
+
+
+
+图片来源：thegatewaypundit.com
+
+
+伊维菌素的效果优于其他药物。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-study-success-01-1.jpg)
+
+
+
+图片来源：thegatewaypundit.com
+
+
+这是整个完整的[研究报告](https://www.scribd.com/document/536540814/Ivermectin-Study-Continues-to-Show-Promising-Results#download&amp;from_embed)，供阅读。
+
+**参考新闻：**[WONDER DRUG: New International Ivermectin Report of 64 Studies Shows 86% Success as Prophylaxis and 67% Success in Early Treatment (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/11/wonder-drug-new-international-ivermectin-report-64-studies-shows-86-success-prophylaxis-67-success-early-treatment/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

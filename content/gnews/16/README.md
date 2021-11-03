@@ -2,34 +2,23 @@
 ---
 
 
-## 脸书将其消费者定位最低年龄下调至6岁儿童
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636614/)
+## 文贵爆料 3/11: “毁人不倦&#8221;的”圣人“朱镕基
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1636652/)
 
-作者：纽约香草山农场 – Delilah小胖
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月30日，据盖特提供的脸书——现更名为Meta公司的内部员工爆料信息显示，早在今年4月9日，其公司内部的一篇博客文章表明，该公司计划招聘多个职位，并将其受众从当前13岁的底线门槛，降至6到9岁的孩子。
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-1.jpg)
+提到总理朱镕基，总让人有一种高山仰止的敬仰之情，然而，世人都错看了他。郭文贵先生在10月29日的大直播中说，朱镕基视百姓的生命如草芥，是大秦赵高和李斯的综合体。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-2.jpeg)
+房地产税什么时候开始？房地产税是真正的是从93年到95年就开始讨论，当时叫中房，当时中房是代表中国房地产的政策，然后南部叫深房，叫北有中房、南有深房。朱镕基太王八蛋了。中国老百姓当年下岗的时候啊，是带着老婆卖淫的、带着闺女卖淫的，报告他以后，朱镕基是哈哈大笑的。他说我们还再能稳定个十年、二十年，就这个畜生。
 
-批评者认为，Meta平台的这些文件清楚地表明，该公司的首要任务不是努力降低其现有平台对青少年的危害，而是更偏向于吸引年幼的孩子，并为其建立Meta产品的终生用户渠道，但其产品对年幼的孩子来说并不安全。
+朱镕基当时就说了，房地产税是解决所有中国历史上经济问题的最重要的标志，这是我朱镕基一九八七年讲的，你们去查查啊，说征房地产税之日就是中国经济所有历史问题都解决了。在这之前就卖地，叫地方债务，而且炒作、洗钱、再洗钱，然后拿着这些热钱到外国去并购。我跟吴仪聊了七个小时。她说到朱镕基的时候，她说，朱镕基这个家伙心里有个魔，我越看他越像当年的毛泽东附体，她说他把老百姓死亡当成兴奋剂。
 
-针对Meta的这一行径，盖特CEO杰森·米勒先生在其盖文中直接评论到：“Meta的行为让人觉得不舒服”。而盖特用户的盖文评论更是直接了当地认为，Meta此举涉嫌虐待儿童。
+郭先生说，朱镕基这个家伙是个中国邪恶的赵高和李斯综合体啊！
 
-参考链接: [https://gettr.com/post/pfmzgz18a8](https://gettr.com/post/pfmzgz18a8)
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+[2021年11月03 日 文贵大直播](https://gettr.com/streaming/pfyckddba1)
 
-总编：Irene木木
-编辑：sam jeep
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
