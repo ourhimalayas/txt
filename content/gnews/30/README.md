@@ -2,56 +2,60 @@
 ---
 
 
-## 美国航空因员工短缺和天气原因取消了1,500多个航班
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1635076/)
+## 里贾纳男子因不戴口罩被罚款且面临吊销驾照
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1635105/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/american-airlines-700x420-1.jpg)2020 年 11 月 25 日，在芝加哥奥黑尔国际机场，美国航空公司的地勤人员帮助一位乘客办理登机手续。（图片：Kamil Krzaczynski/路透社）
-**摘要翻译：**
-
-美国航空在10月29日至10月31日期间取消了1,500多个航班，理由是人员短缺和恶劣天气。
-
-这家总部位于德克萨斯州的航空公司发言人在一封电子邮件中告诉《大纪元时报》，除了10月29日取消的340个航班外，10月30日取消了540个航班，10月31日取消了650个航班。
-
-该女发言人表示，这些问题与该公司的强制新冠疫苗接种无关。代表美国飞行员的盟军飞行员协会发言人丹尼斯·塔杰上尉也表示，取消与疫苗接种要求无关。
-
-美国航空于10月日宣布其强制新冠疫苗接种计划。
-
-“虽然我们仍在研究联邦要求的细节，但很明显，选择不接种疫苗的团队成员将无法在美国航空公司工作。” 美国航空公司首席执行官道格·帕克当天在一份备忘录中表示。该公司的高管后来表示，员工必须在11月24日之前完全接种疫苗，否则将被解雇。
-
-大多数美国的航空公司都实施了强制措施，其中一些是为了回应乔·拜登总统的计划，即强制私营企业要么从员工那里获得疫苗接种证明，要么要求他们每周接受新冠病毒测试。
-
-飞行员协会负责人上个月警告白宫和国会，强制接种可能在不久的将来引发混乱。
-
-西南航空公司本月早些时候取消了数千个航班，导致许多旅客滞留数日。该航空公司声称这些问题主要是由于不利的天气造成的，与强制接种疫苗无关，但其他航空公司并没有同时遇到问题。该航空公司后来推迟了强制接种，让不遵守疫苗接种要求的工人休无薪假。
-
-航空公司表示：“飞行员和技术运营人员的招聘仍在继续，我们已经开始增加预订人数，以便在假期期间有更多的团队成员到位。”
-
-**简评：**
-
-前段时间美国西南空航空公司因为天气和人手问题取消了2000多个航班的记忆还没有消散，而这次美国航空仍然用同样原因和理由再次取消了1500多个航班。
-
-相信航空公司取消航班的现象会不断发生，因为众所周知的原因：航空公司助纣为虐，强制要求自己的员工完全接种疫苗才能上岗，而不愿意接种疫苗的员工则被迫休无薪假或离职，进而导致航空公司员工短缺。从航空公司取消航班的现象也从侧面知道有更多觉醒的不愿接种或反强制接种的民众已经在各行各业纷纷涌现，这昭示着政府用疫苗护照的极权手段统治国民的日子也即将结束。
+作者：RebelNews 
+翻译: HimaBoy
 
 
 
-新闻链接：[American Airlines Cancels Over 1,500 Flights, Blames Staff Shortages and Weather](https://www.theepochtimes.com/mkt_breakingnews/american-airlines-cancels-over-1400-flights-blames-staff-shortages-and-weather_4078101.html?utm_source=newsnoe&amp;utm_medium=email2&amp;utm_campaign=breaking-2021-10-31-1&amp;mktids=8f22e9e400ab0831c55c504522289d88&amp;est=b9k0cXaJwgWEyTBpix4kA0f%2BdgqfpNIv7JQ82rGHIqT0mYfNTWpEifgIh9pJOAA%3D)
+如果你在商店里没有佩戴合适的布制面罩，你将得到一张 2,800 美元的交通罚单, 如果你不付钱，我们将没收你的驾照。
 
-***翻译/简评**：Brianchow*
+这么说很疯狂，但在萨斯喀彻温省，这正是正在发生的事情。
 
-*** 校对**：clau*
+今天，我们听到了里贾纳店主凯利·乔治·保罗（Kelly George Paul）的故事，她因不戴口罩而成为地方当局的目标。
 
-* * *
+然而，正如凯利在本次采访中为我们详细介绍的那样，这不仅仅是一个面具。他的个人医疗状况是一个首要问题，也是他在这些方面采取行动的原因。凯利正在通过FightTheFines.com的公民法律援助获得帮助，在那里他正在获得免费的法律支持，以帮助他对抗这张罚单。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+萨斯喀彻温省最近因所谓的新冠卫生措施而加大了对公民的攻击力度。他们是目前对居民不在脸上戴国家批准的织物执行严格的措施。
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+为了让您快速了解该省的最新情况，请查看我们的草原记者凯利·兰姆 (Kelly Lamb) 的这份简短报告。
 
 
+
+> Sask. Premier Scott Moe says it's not "fair" or "right" to "impose sweeping restrictions" on the majority of residents. Instead, he wants to "take away the personal freedoms" of the unvaccinated through vaccine passports.
+> 
+> HELP US: [https://t.co/oIPU6az6hO](https://t.co/oIPU6az6hO) [pic.twitter.com/RBg9BaxtiH](https://t.co/RBg9BaxtiH)
+> — Rebel News (@RebelNewsOnline) [October 25, 2021](https://twitter.com/RebelNewsOnline/status/1452745111050276881?ref_src=twsrc%5Etfw)
+
+
+
+天空之国的狂野时光，但今天我们潜得更深一些。
+
+在本次采访中，我们听取了凯利·乔治·保罗 (Kelly George Paul) 及其法律辩护的意见，以了解发生的事情以及未来法庭上将发生的事情。
+
+我知道有成千上万的加拿大人像凯利一样，他们一生都在了解自己的身体以及如何最好地照顾自己。不幸的是，在当今时代，政府宁愿告诉人们如何行动，而不是倾听他们的需求。
+
+來源：https://www.rebelnews.com/regina\_man\_fined\_2800\_faces\_drivers\_licence\_suspension\_over\_not\_wearing\_a\_mask
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

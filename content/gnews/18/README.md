@@ -2,23 +2,16 @@
 ---
 
 
-## 樱花灭共诗——杨柳枝•一统梦
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1635214/)
+## 喜币上市（11/1/2021) 庆典大直播简报
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1635224/)
 
-#### 作者：东京樱花团//藤田村野
-![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-世挺台湾心恐慌，鱼梗咽伤。
+简报制作：艾伦
+焦点采稿：秘翻原创组
+![](https://assets.gnews.org/wp-content/uploads/2021/11/喜币上市1.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/喜币上市2.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/喜币上市3.png)
+参考链接：https://gtv.org/video/id=618052ba11d1862968ffaa0d
 
-统台七秩未如偿，只恨一惘惘。
+发布：Shifter
 
-大患难平生死劫，能不抓狂？
-
-美帝干涉把言扬，底线退厅堂！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5555.jpg)[图片来源](https://gettr.com/post/pfgnn9f855)
-*插图：东京樱花团/闪闪*
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

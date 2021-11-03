@@ -2,66 +2,185 @@
 ---
 
 
-## 前国家安全顾问警告中共或在2024年前对台动武
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1635347/)
+## 吴征利用SPAC把川普拿下，下一步人民币数字化
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1635435/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+[https://gtv.org/video/id=6180fc78adfd99590c32447f](https://gtv.org/video/id=6180fc78adfd99590c32447f)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/O.jpg)nationalreview.com
-《日经》（Nikkei）11月2日发表文章，题目“前川普安全顾问警告中共将在2024年前对台湾进行‘祸端’”，文章用了“mischief”一词，还有“恶作剧”、“胡闹”的解释。笔者结合文贵先生的爆料，美军用3分钟即可将中共军事设施全部摧毁，作为前白宫军事长官知根知底，因此对中共用了这个词。文章副标题称，罗伯特·奥布莱恩（Robert O’Brien）指出，北京冬奥会和美国总统大选之间是窗口期。
+**郭文贵**
+**Miles Guo**
 
-全文如下：
+我今天给你们爆个料
+I’m going to break the news for you today
 
-中共可能会考虑在下一次的美国总统选举前对台湾采取军事行动，前美国国家安全顾问罗伯特·奥布莱恩告诉《日经》，这引发了对台湾海峡日益紧张局势的警觉。
+你知道
+You know
 
-奥布莱恩预测，中共不会做任何事情来破坏2月份的北京冬奥会，但北京担心前总统唐纳德·川普或像前国务卿迈克·蓬佩奥那样对中共的鹰派人物将在2024年赢得白宫。他在最近的一次虚拟采访中这样表示。
+这个SPAC
+this SPAC stock,
 
-“奥运会和下次总统大选之间可能是习认为的窗口期，针对台湾，他有机会制造祸端。”奥布莱恩说。奥布莱恩曾经担任川普总统的人质事务的总统特使，并于2019年9月成为其国家安全顾问。
+上市之后
+after being listed on the market,
 
-中共习近平主席多次将台湾描述为“核心利益”，呼吁与大陆统一。自夏季以来，美国总统乔·拜登曾两次表示美国将保护台湾免受中共的攻击，这似乎打破了华盛顿长期以来的“战略模糊性”。
+我和一个政法委的
+I was talking with a political and legal committee,
 
-1979年的《与台湾关系法》说，美国“将向台湾提供必要数量的国防设备和国防服务，以使台湾保持足够的自卫能力。”但该法没有明确承诺美国对台湾的防卫，白宫收回了拜登的两条评论。
+一个老领导
+a senior leader.
 
-奥布莱恩表示，拜登可能是故意要把中共甩开，打消北京方面认为他在入侵台湾问题上会手软的想法。
+我说你们这票干得漂亮是不是呀
+I said, “you had done an awesome job, isn’t it?”
 
-“只有一次，也许你会说‘也许他说错了’。”奥布莱恩说，“但他现在说了两次了，所以他似乎有一个计划，他似乎试图在中共领导人中间制造一些疑虑。”
+挺高兴的
+“Very excited”
 
-奥布莱恩还表示，拜登政府可能是对有关中国台湾战略的情报作出反应。他说：”他们可能非常关注中共国的计划，这可能是拜登总统声明的原因。”
+是，北京一片欢腾啊
+“Yes, Beijing is having a great celebration”
 
-“我认为非常重要的是，盟国，即日本、美国、印度、英国、欧盟，向中共国非常清楚地表明，入侵台湾的后果将是非常严重的。”奥布莱恩说，”不仅仅是在军事上，而且在经济上，对人民来说也是如此。”
+他说
+He said,
 
-他强调，日本有特别强烈的理由支持台湾海峡的和平与稳定。
+所有的海外局
+“all overseas offices,
 
-他说：”如果中国共产党掌握了台湾，那就把日本与太平洋的其他国家，南部的所有国家——澳大利亚、新西兰、菲律宾，以及东盟的其他国家分割了开来。”日本被台湾这块地缘政治的石头切断了与所有这些国家的联系。”
+国际合作局的人
+and the International Cooperation Bureau employees
 
-台湾将为中共军方在所谓的第一岛链之外的太平洋行动提供强有力的立足点，该岛链通过日本冲绳群岛延伸至菲律宾，从而切断日本的关键贸易路线。
+刚刚给我打完电话
+just hung up the phone with me,
 
-奥布莱恩也鼓励企业为台湾海峡潜在的危机以及由此产生的对中共国的制裁做好准备，他表示，在中共国开展业务的中小企业“需要制定计划，a）如何实现供应链多元化或客户群多元化，b）如果出现意外情况，如何应对所发生的情况。”
+说这次吴征啊立功了
+saying that Bruno Wu has done a meritorious service
 
-总的来说，他说拜登政府的成员在对华政策上做得是“好的”，但他警告美国不要允许中共国在没有采取具体行动的情况下利用他们在气候变化方面的双边合作。
+把川普拿下
+by compromised Trump.
 
-他说：“他们可以在气候变化问题上作出空洞的承诺，以在贸易、台湾或其他领域获得优势。因此，我们需要谨慎行事。”
+下一个目标
+The next target is
 
-关于“跨太平洋伙伴关系‘全面进步协定’（the Comprehensive and Progressive Agreement）的贸易协议”，奥布赖恩说，“原则上，‘跨太平洋伙伴关系’（TPP，Trans-Pacific Partnership）的构思是一个非常好的想法。”
+迈克·蓬佩奥
+Mike Pompeo”.
 
-“建立一个相信法治的贸易集团的想法，相信自由贸易，这是对中共国和它‘一带一路倡议’的抗衡，这是个好主意。”他说。
+我要跟蓬佩奥同志
+I need to see Comrade Pompeo in person,
 
-他警告说，接受中共国的入盟申请将破坏该框架，奥布赖恩说：“我认为，将它们纳入TPP可能会摧毁TPP的整个基础，即TPP的存在理由——拥有一个自由、开放、法治和公平的贸易体系。”
+面对面的好好谈谈这事儿
+Talk about this matter face to face
 
-他对美国重新加入该框架持谨慎态度，川普在上任第一天就退出了该框架。他说，美国需要“确保这是一项对美国工人、美国家庭以及其他国家都有效的协议”，这样才能再次参与进来。
+我上次告诉他
+I told him last time
 
-自卸任国家安全顾问以来，奥布莱恩成立了地缘政治咨询公司“美国全球安全”（American Global Securities），该公司于10月与“北村经济安全”（Kitamura Economic Security）签署了战略合作伙伴关系，该公司由前日本国家安全顾问北村茂（Shigeru Kitamura）创立，这两家公司将利用他们在外交政策、国家安全和情报方面的经验，为有关各方提供战略建议。
+我说你家里边
+I said that inside your house
 
-奥布莱恩说：“我们两家公司确实可以为我们的客户做些好事，帮助他们解决中共国问题。如果你是一家公司，突然间，中共国对你的政府的某些决定感到不安，不管是在维吾尔人、南海还是台湾，然后将你在中共国的工厂国有化，那会发生什么？因此，我们可以帮助公司提前计划这些突发事件。”
+你的电话绝对是被监听的
+your telephones were definitely tapped (by CCP),
 
-（全文完）
+我说我这电话
+so did my phone here
 
-罗伯特·奥布莱恩的分析与文贵先生的预测是一致的，北京冬奥会之前，中共不会对台湾贸然动手。笔者认为，奥运会之后就不能保证了，而且不同意罗伯特·奥布莱恩的观点，称拜登政府会援手台湾。从拜登一系列亲共、怯共的作派，阿富汗仓皇逃窜的表现，笔者并不看好拜登，一旦中共犯台，他最多喊喊而已，即使拜登本人不想这样做，暗势力、身边的通共分子会令他作出罪恶的选择，如同疫苗接种政策的强制执行，令人难以置信。
+就当着共产党随时听着
+Just pretend that the Communist Party is listening anytime
 
-原文链接：
+我从来没觉得它不听
+I have never sensed that they would not listen
 
-[https://asia.nikkei.com/Editor-s-Picks/Interview/Ex-Trump-security-adviser-warns-of-China-mischief-on-Taiwan-by-2024](https://asia.nikkei.com/Editor-s-Picks/Interview/Ex-Trump-security-adviser-warns-of-China-mischief-on-Taiwan-by-2024)
+我希望它都听到
+I hope they can hear all of them
+
+最好别漏
+It’s better not to miss anything
+
+共产党下一个目标
+The Communist Party’s next goal
+
+就是世界的虚拟货币
+is the world’s virtual currency
+
+共产党
+The Communist Party
+
+现在，王毅所谓的出访
+currently, Wang Yi’s so-called visits
+
+你去看，阿尔巴尼亚
+You can take a look, Albania,
+
+塞尔维亚、卡塔尔、意大利
+Serbia, Qatar, Italy,
+
+希腊
+and Greece.
+
+说叫一带一路合作，
+Call the Belt and Road cooperation
+
+全是干啥去了？
+what have they all gone for?
+
+接受我人民币支付的
+to coordinating the RMB payment acceptive
+
+货币项下业务
+of business under currency.
+
+刚刚到红海
+(WangYi) just arrived the Red Sea
+
+秘密的见了沙特王子本·萨勒曼
+and met Saudi Prince Bin Salman secretly.
+
+继续推进
+and continued advance
+
+跟沙特的人民币项下的石油
+with Saudi Arabia’s oil business under the RMB Project.
+
+是沙特的立国之本
+(Oil) is the foundation of Saudi Arabia.
+
+和美国的，
+As far as the United States,
+
+后来跟美国签了一个长期共用
+later it signed a long-term sharing agreement with the United States
+
+最低油价
+the lowest oil price
+
+15美金一桶的油价，永不改变
+The price of $15 a barrel of oil will never change
+
+这是美国的利益所在
+This is America’s interests
+
+现在，共产党要把
+Currently, the Communist Party wants
+
+阿美石油变成自己的了
+to turn the Aramco oil business into its own.
+
+———————————————————
+
+**原视频链接**: [https://gettr.com/post/pfj822be03](https://gettr.com/post/pfj822be03)
+
+Date: 10/29/2021
+原视频标题: 
+Bruno Wu Took Advantage of SPAC and Compromised Trump; The Next Target Will be The RMB Digitization
+原视频日期：2021/10/27
+任务编号：KC218(2717)
+视频时间段 : 0:00-1:50
+
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校: 洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
