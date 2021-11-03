@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/3/2021 11:41 PM (UTC)`
+
+11/3/2021 Miles Guo: The recent incident of Peng Shuai has proven everything I have exposed regarding the CCP’s evil deeds in the past 4 years. The CCP’s old kleptocrats, including Zhang Gaoli, sexually abuse the entire family of the Chinese Lao Baixing, including the girl, her mother, and her grandmother, while the kleptocrats‘ wives would help them guard the door<br/><br/>11/3/2021 文贵直播：最近的彭帅事件证明了文贵4年来关于中共邪恶的爆料；包括张高丽在内的中共老杂毛玩弄老白姓全家，女儿、妈妈和奶奶三代人都不放过，老杂毛的夫人们还帮忙他们把门<br/>
+![img](https://media.gettr.com/group45/getter/2021/11/03/23/41/a94f5335-249e-cf9f-2b74-6173b02dfc84/out.jpg)
+
+---
+
 `@miles 11/3/2021 11:32 PM (UTC)`
 
 11/3/2021 Miles Guo: The Virginia gubernatorial election will change the fate of the world; It’s a big deal that 30 European countries are to decouple with the CCP; If the CCP invaded Taiwan, the US has all sorts of excuses to justify its military operations against the CCP; Over-issuance of currencies has caused inflation worldwide; The stock market is controlled by tech companies<br/><br/>11/3/2021 文贵直播：弗吉尼亚州长选举将改变世界的命运；欧洲30个国家跟中共脱钩是天大的事；若中共攻台，美国有各种理由打中共；世界各地超发货币导致通胀；股市被科技公司所控制<br/>
@@ -289,13 +296,6 @@ Hcoin To The Moon <br/><br/>词：威廉王<br/>曲：唐平<br/>编曲： SFG<b
 
 尽管美国食品和药物管理局（FDA）知道因中共病毒致死的5-11岁儿童人数很少，他们仍然计划要给孩子们接种疫苗<br/><br/>FDA plans to roll out Covid vaccination for children aged 5-11 despite knowing the low death tolls in this age group associated with CCP Virus 
 ![img](https://media.gettr.com/group46/getter/2021/10/31/02/03/a9a935cd-80c1-c5ff-6f6a-4db5889861cc/out.jpg)
-
----
-
-`@miles 10/31/2021 1:28 AM (UTC)`
-
-我们是自由人还是奴隶？<br/><br/>Are we free or are we, slaves?<br/>
-![img](https://media.gettr.com/group1/getter/2021/10/31/01/28/771031bf-260b-af7c-2b18-fba5b989063f/out.jpg)
 
 ---
 
