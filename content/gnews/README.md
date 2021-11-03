@@ -15,92 +15,92 @@
 
 ---
 
-### [强生“新冠病毒疫苗”加大患脑血栓风险](/content/gnews/1/README.md)
+### [加拿大卑诗省接种政策消极影响医疗系统](/content/gnews/1/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [贪字当头，灾难临头](/content/gnews/2/README.md)
+### [美國航空公司以天氣和人員問題為由取消700多個航班](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [学生分类为哪般？](/content/gnews/3/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [美国军医作证“新冠病毒疫苗”危害](/content/gnews/4/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [加拿大政府加快低龄儿童的疫苗接种计划](/content/gnews/5/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [美国航空公司以天气和人员问题为由取消700多个航班](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [强生“新冠病毒疫苗”加大患脑血栓风险](/content/gnews/7/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [贪字当头，灾难临头](/content/gnews/8/README.md)
  ` 银河勇气之星`
 
-### [雅典娜时报-第101期](/content/gnews/3/README.md)
+### [雅典娜时报-第101期](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳大利亚将为香港人提供新的永久签证](/content/gnews/4/README.md)
+### [澳大利亚将为香港人提供新的永久签证](/content/gnews/10/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [气候会议拟发联合声明十年内停止砍伐森林](/content/gnews/5/README.md)
+### [气候会议拟发联合声明十年内停止砍伐森林](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Facebook對針對兒童疫苗「的錯誤信息」施加更嚴格的限製](/content/gnews/6/README.md)
+### [Facebook對針對兒童疫苗「的錯誤信息」施加更嚴格的限製](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [台湾公布一人打完4针疫苗后，仍感染中共病毒](/content/gnews/7/README.md)
+### [台湾公布一人打完4针疫苗后，仍感染中共病毒](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [受中共病毒疫情影响，日本女性去年自身人数上升30%](/content/gnews/8/README.md)
+### [受中共病毒疫情影响，日本女性去年自身人数上升30%](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [纳瓦罗新书-[美国食品和药物管理局]的恶行](/content/gnews/9/README.md)
+### [纳瓦罗新书-[美国食品和药物管理局]的恶行](/content/gnews/15/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [Facebook对针对儿童疫苗“的错误信息”施加更严格的限制](/content/gnews/10/README.md)
+### [Facebook对针对儿童疫苗“的错误信息”施加更严格的限制](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [日本用伊维菌素替代疫苗获奇效](/content/gnews/11/README.md)
+### [日本用伊维菌素替代疫苗获奇效](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [Youtube持续打压《闲聊澳洲》节目](/content/gnews/12/README.md)
+### [Youtube持续打压《闲聊澳洲》节目](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [吴征利用SPAC把川普拿下，下一步人民币数字化](/content/gnews/13/README.md)
+### [吴征利用SPAC把川普拿下，下一步人民币数字化](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [银河快讯：G20就通胀和税制改革进行会谈；日本经济面临最大挑战](/content/gnews/14/README.md)
+### [银河快讯：G20就通胀和税制改革进行会谈；日本经济面临最大挑战](/content/gnews/20/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [独裁者两场不计后果的军事冒险——朝鲜战争记录](/content/gnews/15/README.md)
+### [独裁者两场不计后果的军事冒险——朝鲜战争记录](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [前国家安全顾问警告中共或在2024年前对台动武](/content/gnews/16/README.md)
+### [前国家安全顾问警告中共或在2024年前对台动武](/content/gnews/22/README.md)
  ` HimalayaRussia`
 
-### [中共国格力除湿机因未通报有安全隐患而被罚款9100 万美元](/content/gnews/17/README.md)
+### [中共国格力除湿机因未通报有安全隐患而被罚款9100 万美元](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [廉政公署调查发现，新州前州长与男友微信联系逃避监管](/content/gnews/18/README.md)
+### [廉政公署调查发现，新州前州长与男友微信联系逃避监管](/content/gnews/24/README.md)
  ` 走进澳洲`
 
-### [11/2/2021 文贵盖特: 张高丽玩彭帅，中共老杂毛全都是玩幼女](/content/gnews/19/README.md)
+### [11/2/2021 文贵盖特: 张高丽玩彭帅，中共老杂毛全都是玩幼女](/content/gnews/25/README.md)
  ` 秘密翻译组-北美组`
 
-### [多伦多市部分公交服务因员工被停职而被迫取消](/content/gnews/20/README.md)
+### [多伦多市部分公交服务因员工被停职而被迫取消](/content/gnews/26/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [不明网络攻击破坏了纽芬兰市医疗保健系统](/content/gnews/21/README.md)
+### [不明网络攻击破坏了纽芬兰市医疗保健系统](/content/gnews/27/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [加拿大特鲁多政府将重新评估“完全接种”的定义](/content/gnews/22/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [台湾总统敦促台湾人不要让政治立场影响公投表决](/content/gnews/23/README.md)
+### [台湾总统敦促台湾人不要让政治立场影响公投表决](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [阿根廷足球队著名前锋疑因疫苗接种而突发心脏病](/content/gnews/24/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [拜登在格拉斯哥峰會上稱，氣候變化是&#8221;生存威脅&#8221;](/content/gnews/25/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [拜登在格拉斯哥峰会上称，气候变化是“生存威胁”](/content/gnews/26/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [[温哥华扬帆农场]辉瑞让各国政府签订如此屈辱的合同？](/content/gnews/27/README.md)
- ` 温哥华扬帆农场`
-
-### [喜币上市（11/1/2021) 庆典大直播简报](/content/gnews/28/README.md)
+### [喜币上市（11/1/2021) 庆典大直播简报](/content/gnews/29/README.md)
  ` 秘密翻译组-原创组`
-
-### [日本几乎一夜之间放弃疫苗，转使用伊维菌素结束新冠](/content/gnews/29/README.md)
- ` MG FARM`
 
 ### [日本要闻汇编 11月2日](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

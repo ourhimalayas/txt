@@ -2,35 +2,43 @@
 ---
 
 
-## Youtube持续打压《闲聊澳洲》节目
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1635437/)
+## Facebook對針對兒童疫苗「的錯誤信息」施加更嚴格的限製
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1635505/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-1.png)图片来源：let’s Chinese
-**作者：**顺其自然
-**编辑：**MSGZ、翼族
+【簡評：】*對於此文，我只想說「臉書」只剩下「書」了，臉已經不要了，已經光明正大地不要臉了。其他沒什麽可說的了，哦，對了，不要臉的Facebook註定要被丟棄到垃圾堆，現在它提醒給孩子註射疫苗，我們就千萬不能這麽幹。*
 
-Youtube对言论自由的限制越演越甚，就是因为我的节目《闲聊澳洲》揭露了中共的丑陋和它祸害世界的真相，这档节目持续受到了共产党及其走狗Youtube的打压，Youtube把很多视频标注为黄标，黄标的视频是不予放置广告的，没广告就没有收入。
+据《The Verge》记者Emma Roth，2021年10月30日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-27-e1635902507831.png)圖片來源: Alex Castro / The Verge
+**Facebook提醒用戶該疫苗現已可供兒童使用**
 
-本来我一周七天，只是想每天努力多做些视频，同时也可以给澳洲政府多上一点税。按照这个趋势，接下去我慢慢可以不需要上税了，因为如果Youtube把我的视频都贴上黄标，那我就彻底没有了收入，没有了收入我只能去澳洲政府领救济了，而这一切都是拜中共和其走狗Youtube所赐。
+就在美國食品藥品監督管理局(FDA)正式批準輝瑞(Pfizer)公司的針對5歲至11歲兒童的COVID-19疫苗之際，**Facebook的全新身份Meta公司宣布，將對兒童的疫苗錯誤信息推出更嚴格的政策。**該平臺此前在2020年底對COVID-19疫苗的錯誤信息進行了限製，但沒有專門針對兒童的政策。
 
-澳洲政府同样也是垃圾。和全球的各国政府一样，若不是自私和短视，中共黑势力也不会如此猖狂。如今因为疫情，工厂不能开工，商铺不能开业，澳洲政府还与让满世界打疫苗的黑暗势力为伍，让民众接种毒疫苗。如果人们拒绝疫苗，就剥夺他们原本的工作，和潜在的工作机会。面临这样即将瘫痪的社会，难道让所有人都去政府领救济吗？而这就是澳洲政府的初衷？
+Meta在一篇新的博客文章中表示，**它正在與美國疾病控製和預防中心(CDC)和世界衛生組織(WHO)合作，刪除平臺上傳播的與兒童和COVID-19疫苗有關的「錯誤」內容。這包括任何暗示COVID-19疫苗不安全、未經測試或對兒童無效的帖子。**此外，Meta公司還將提供英語和西班牙語的即時提醒，告知該疫苗已被批準用於兒童，並提供在何處可接種該疫苗的信息。
 
-一个社会没有持续产出，人民没有能力养活自己，无法纳税，那政府的官员们靠什么来养活自己和维持政府的运作？除了滥发纸币造成更大的通货膨胀，他们自己最后也得饿死倒台！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-28-e1635902683951.png)圖片來源：Facebook
 
-当人们面临生存的危机，肯定会把矛头全部指向政府。这些和中共及其黑暗势力暗中勾结的官员以为永远能把人民踩在脚下奴役，可是它们想不到的是，社会和民众终会觉醒，到那个时候他们的黑历史都会被曝光出来。
+Meta 指出，自中共病毒COVID-19疫情開始以來，它總共從 Facebook 和 Instagram 刪除了2000萬條涉及COVID-19 和疫苗的「錯誤信息」。
 
-更重要的是，中共和黑暗势力竭力打压我的节目，说明了它们对爆料革命的恐惧程度，而这正是因为爆料革命对它们造成了巨大的打击，要不然也不会对一个普通人的节目如此恐惧。
+這些數字與我們從 Facebook 泄露的內部文件中看到的情況不一致——Facebook 文件清楚地表明，該平臺對與 COVID-19 疫苗相關的錯誤信息準備不足。 如果 Facebook 準備得更充分，它可能會在疫情早期發起打擊（針對兒童和成人的） 「錯誤信息」的活動，從而可能會刪除更多「虛假內容」。
 
-这也再次证明，我选择跟随爆料革命是无比正确的。新中国联邦的光明前景正好是中共及黑暗势力的末路。
 
-*发布：翼族*
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+
+
+
+
+原文連接：[https://www.theverge.com/2021/10/30/22754046/facebook-tighter-restrictions-vaccine-misinformation-children](https://www.theverge.com/2021/10/30/22754046/facebook-tighter-restrictions-vaccine-misinformation-children)
+
+翻譯：洛杉磯盤古農場 – 鋼蛋兒
+校對：洛杉磯盤古農場 – Mike Li
+評論：洛杉磯盤古農場 – 鋼蛋兒
+編輯：洛杉磯盤古農場 – 心照
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉磯盤古農場歡迎您加入: (或點擊上方圖片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
