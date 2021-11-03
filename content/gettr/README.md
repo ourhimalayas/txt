@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/3/2021 11:32 PM (UTC)`
+
+11/3/2021 Miles Guo: The Virginia gubernatorial election will change the fate of the world; It’s a big deal that 30 European countries are to decouple with the CCP; If the CCP invaded Taiwan, the US has all sorts of excuses to justify its military operations against the CCP; Over-issuance of currencies has caused inflation worldwide; The stock market is controlled by tech companies<br/><br/>11/3/2021 文贵直播：弗吉尼亚州长选举将改变世界的命运；欧洲30个国家跟中共脱钩是天大的事；若中共攻台，美国有各种理由打中共；世界各地超发货币导致通胀；股市被科技公司所控制<br/>
+![img](https://media.gettr.com/group23/getter/2021/11/03/23/c337a9a2-a3a8-c189-1e5f-e4c06a943101/out.jpg)
+
+---
+
 `@miles 11/3/2021 11:21 PM (UTC)`
 
 CDC近日发布的一项漏洞百出的报告称疫苗比自然免疫更有效，这是CDC宣传工作的一部分，报告未经同行评审，只挑选对其有利的数据，CDC是为这份报告付费的金主；强制疫苗令是政客对权力的滥用<br/><br/>A recent CDC's flawed report says the vaccines are more effective than natural immunity. This report is part of it’s propaganda program which is non-peer reviewed  and an example of “cherry-picking”. CDC paid for this report. It’s abuse of power for government officials who insist mandate.<br/>
@@ -289,13 +296,6 @@ Hcoin To The Moon <br/><br/>词：威廉王<br/>曲：唐平<br/>编曲： SFG<b
 
 我们是自由人还是奴隶？<br/><br/>Are we free or are we, slaves?<br/>
 ![img](https://media.gettr.com/group1/getter/2021/10/31/01/28/771031bf-260b-af7c-2b18-fba5b989063f/out.jpg)
-
----
-
-`@miles 10/31/2021 1:25 AM (UTC)`
-
-杰森·米勒：疫苗强制令最终会迫使整个国家分裂成两个不同社会；向拜登政府强制疫苗令发起诉讼的佛罗里达州州长将成为2024总统竞选中最有领导力的候选人<br/><br/>Jason Miller: Vaccine mandates will eventually force the nation to split into two different societies. The governor of Florida who filing a lawsuit over Biden Administration’s mandates will be most leadership candidate in 2024 presidential election <br/>
-![img](https://media.gettr.com/group18/getter/2021/10/31/01/25/bfaf83fc-1135-e47e-92ad-c852ba8dd09f/out.jpg)
 
 ---
 
