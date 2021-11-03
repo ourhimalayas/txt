@@ -2,29 +2,25 @@
 ---
 
 
-## 微博网友普遍质疑中共对3-11周岁儿童接种疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1636144/)
+## 秘翻在线:冰岛足球运动员比赛中突然心脏骤停
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1636167/)
 
-#### 撰稿：东京樱花团/墨然
-![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-3.png)
-10月30日以来，中共国多地陆续开展了3-11周岁人群的疫苗接种工作。对此，墙内微博网友纷纷表示质疑和不满。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-10.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-4.png)
-网友们的质疑和不满主要集中在以下几方面：
+#### 翻译/撰稿：zzballack
 
-- 中共疫苗全民接种开展了相当长一段时间，但疫情并未得到有效的控制。且几乎所有的感染者，都曾接种过疫苗。这是否反映了中共疫苗的无用？
-- 中共疫苗的安全性值得商榷。中共疫苗的成分、临床数据等并未公开发布，民众对此一无所知。大家都是在一系列的“洗脑”宣传和“强制”操作下，稀里糊涂的接种了疫苗。
-- 3-11岁的人群接种疫苗，这是又将“魔抓”伸向了幼小、无辜的孩子呀。且中共对于接种疫苗上的做法显然与其他国家不同，所谓的“自愿”，就是必须。要是不接种，不能出门、不能上学，将用在成年人身上的那一套再用到孩子身上去。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-4-1.jpg)图片来源：英国独立报
+据《网关专家》（Gateway Pundit）11月1日报道，现年28岁的冰岛足球运动员埃米尔·帕尔松（Emil Palsson）本周一晚上在参加比赛时，突然晕倒在球场上。上周末，巴塞罗那球星塞尔希奥·阿奎罗 (Sergio Agüero)也在比赛中突然胸部不适，之后被送往医院。
 
+挪威媒体《每日杂志报》 (Dagbladet）报道称，帕尔松在比赛的第12分钟出现了心脏骤停，倒在了球场上，幸运地是在急救后被成功救活，然后被送往豪克兰（Haukeland）医院进行进一步的观察和治疗。
 
-从网友的观点看出，相当大占比的网友不赞成，甚至是极度反对儿童强制接种中共疫苗的，但身处中共独裁下的普通网友，显然是势单力孤的、无法抵抗的。“恶魔在人间”，孩子是人类的延续、是未来的希望，从未有一刻像现在这样，希望正义的力量普照人间，拯救这些无辜的幼小生命。
+最近，足球运动员在比赛中突然身体不适甚至毫无征兆地晕倒在球场上的案例是越来越多，这在以往可是相当罕见的现象。今年6月的欧洲杯上，丹麦球星埃里克森（Eriksen）也是突然倒地，得亏队友和队医的及时救助，否则后果不堪设想。
 
-信息来源：
+这些案例有什么共同点呢？很显然是中共病毒疫苗。埃里克森今年5月底接种了一剂辉瑞疫苗。帕尔松所在的冰岛，16至29岁的人中，已有84%完全接种了疫苗。阿奎罗六周之前还在大力推广疫苗。虽然无法确认帕尔松和阿奎罗是否接种了疫苗，但笔者认为概率很大。
 
-[3-11周岁人群开始接种新冠疫苗](https://www.163.com/dy/article/GNSLLEBH0552ADWT.html)
+疫苗灾难开始逐渐显现，我们唯一能做的就是宣传疫苗真相及其危害，以及解药，比如伊维菌素和青蒿素。除了救人，还要化解因为病毒和疫苗可能带来的全球排华和反华危机。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+新闻来源：[Another Professional Soccer Player Collapses on Field: Emil Pálsson Suffers On-Field Cardiac Arrest, Is Resuscitated on Field](https://www.thegatewaypundit.com/2021/11/another-professional-soccer-player-collapses-field-emil-palsson-suffers-field-cardiac-arrest-resuscitated-field/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

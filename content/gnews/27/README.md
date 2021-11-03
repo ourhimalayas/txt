@@ -2,55 +2,45 @@
 ---
 
 
-## 预谋：美出现新冠数周前国会重新定义了mRNA疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1635882/)
+## #FauciLiedDogsDied成热搜 “虐狗实验”持续发酵
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1635974/)
 
-**翻译：JennyBall**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip117.png)图片来源：newstarget.com
-直到 2019 年 12 月，政府对“疫苗”一词的官方定义不包括现在注射到人体中的武汉冠状病毒（Covid-19）的 mRNA（信使 RNA）技术。然而，就在第一批中共国病毒“病例”出现在美国的几周前，情况发生了变化。
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+两天前非营利组织“白衣废物”就福奇所在的NIH资助了一项残酷的幼犬实验进行了指控。此事在社交媒体引发了巨大的反响。#FauciLiedDogsDied 成为推特热搜。
 
-就在“神速操作”(Operation Warp Speed)到来之际，美国国会悄悄地重新定义了“疫苗”一词，将辉瑞-生物科技和莫德纳即将推出的药物注射包括在内——几乎就像他们提前知道大流行即将到来一样。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9.jpg)
 
-就在进入 2020 年之前，联邦政府与莫德纳签署了一份合同，其中特别提到联邦政府即将推出该公司的“mRNA 冠状病毒疫苗”。
+该项实验旨在以幼犬作为诱饵吸引有传染性的沙蝇叮咬，感染后注射实验药物以查验有效程度。实验过程中细节的描述因过于残忍引起网民的强烈不适，而这种生理及心理的不适超越了左右之分。
 
-同月，国会更改了与疫苗标签、紧急使用授权 (EUA) 和批准有关的联邦法律中“生物产品”的定义。现在，联邦政府将疫苗视为“生物产品”，而在此之前并非如此。
+佛州州长德桑蒂斯说，这是“难以想象和令人厌恶”的，纳税人的钱不能被这样使用，福奇必须要承担责任。众议员泰勒·格林发起了一个国会请愿书，她说资助虐狗实验和中共生物武器杀死几百万人的最高薪酬联邦雇员需要被解雇。在这条推特热搜下，左翼人士同样心有余悸。有人留言：幸亏我的狗很安全！
 
-“基本总结如下：如果没有 2019 年 12 月对定义‘生物产品’的美国法律进行修改，则可能需要将 mRNA COVID-19 疫苗标记为疫苗以外的东西，”生活新闻(LifeSiteNews)报道了这一变化。
+美国文化中，狗是重要的家庭成员。这次爆出的“虐狗”丑闻，在社交媒体持续发酵，有望撼动福奇在科学、医疗界坚不可摧的地位。
 
-“稍有不同的说法是，美国联邦政府对‘生物产品’的定义一直使用到报道的 COVID-19 爆发前几周，可能已经禁止将 mRNA COVID-19 产品标记为疫苗。”
+（本文仅代表作者观点）
 
-**如果**** mRNA ****毒物没有被重新定义为****“****疫苗****”****，授权将会困难得多**
+参考阅读：
 
-**由于在福奇流感出现之前，从未将**** mRNA ****技术植入人体**，因此政府试图强迫公众注射神秘药物作为继续就业或参与社会的条件，这将是一个更难的事情。
+- [https://twitter.com/bennyjohnson/status/1452688321818374155?s=21](https://twitter.com/bennyjohnson/status/1452688321818374155?s=21)
+- [https://www.zerohedge.com/medical/fauci-funded-cruel-puppy-experiments-where-sand-flies-eat-them-alive-vocal-cords-severed](https://www.zerohedge.com/medical/fauci-funded-cruel-puppy-experiments-where-sand-flies-eat-them-alive-vocal-cords-severed)
 
-还要记住，在中共国流感进入对动物进行的 mRNA 实验期，每次导致的大规模死亡远远超过传统疫苗造成的死亡。
 
-如果所有这一切的真相被真诚地公开披露，很有可能美国的大多数人，无论其政治派别如何，都会对这些实验性药物说不。然而，因为他们再次使这成为左派对右派的事情，同时甚至重新定义了“疫苗”是什么，我们现在陷入了这个当前的难题。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov.jpg)
 
-另一件值得注意的事情是，国会从“生物产品”的定义中删除了“除了任何化学合成的多肽”这个词。这进一步为“速度行动”参与者推出由此类基因制成的实验性基因疗法铺平了道路，并将其称为“疫苗”，而在旧措辞下，这永远不会被允许。
+***编辑***：***Ivy001***
+***校对/发稿：海阔天空1***
 
-“这一变化的意义在于，mRNA COVID-19 疫苗化学合成了 SARS-CoV-2‘Spike’（也称为‘S’）刺突蛋白，”《生活新闻》补充道。
+**更多资讯，更多关注**
 
-“因此，之前‘生物制品’定义的措辞似乎表明，mRNA COVID-19‘疫苗’在法律上不能被标记为疫苗。对于公共卫生官员和‘疫苗’制造商来说，这将是一个主要问题。”
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**似乎国会在大流行之前就很清楚，化学合成的**** mRNA ****物质需要重新定义为****“****疫苗****”****才能得到政府的授权，这就是这一切的要点。**
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-“同样值得重申的是，美国联邦政府部分拥有 mRNA COVID-19 疫苗，在将其强加给美国人之前不久，美国联邦政府似乎确保 COVID-19 mRNA 疫苗是合法的，”《生活新闻》 进一步解释说。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-有关政府犯罪的更多相关新闻，请访问 Corruption.news。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-**本文来源包括**：[LifeSiteNews.com](https://www.lifesitenews.com/news/congress-expanded-vaccine-definition-just-weeks-before-covid-19/)
- [NaturalNews.com](https://www.naturalnews.com/2020-10-07-trump-funneled-billions-operation-warp-speed-vaccine-companies.html)
- [LewRockwell.com](https://www.lewrockwell.com/2021/04/no_author/dr-lee-merritt-in-animal-studies-after-being-injected-with-mrna-technology-all-animals-died-upon-reinfection/)
-**新闻来源**：[newstarget.com] [PRE-PLANNED: Weeks before covid appeared in U.S., Congress redefined the word “vaccine” to include mRNA injections](https://www.newstarget.com/2021-11-01-corruption-covid-congress-redefined-vaccine-mrna-injections.html)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,46 +2,51 @@
 ---
 
 
-## 1025新闻快讯
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1635881/)
+## 爆料：与中共脱钩的欧洲国家是喜联储的“币仓”之一
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1635937/)
 
-作者：纽约香草山福音部 – 林礼，日本方舟农场 Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
-1. 内蒙古爆发疫情 近万名游客受困 午夜突发爆炸4死3伤 
-内蒙古阿拉善盟连续数天新增确诊病例，截止至23日早上10点，累计确诊病例超过20例，其中达来呼布镇被定为高风险地区。据央视消息，受此次疫情影响，有近万名游客受困于额济纳旗的胡杨林旅游胜地。屋漏偏遭连夜雨，10月22日半夜11点多，阿拉善盟高新技术产业开发区内的一家化工厂发生爆炸事故，目前已造成4人死亡、3人受伤。官方在爆炸发生12个小时后才公布相关消息。
+作者：香草山农场教育部 – 晓仙女
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-1.jpg)
 
-1. 不思考苗苗是否有效反而强推第三针
-新加坡将CCP科兴疫苗纳入全国接种计划，并且说接种完3针才算是接种完毕。同时根据新加坡的数据，日媒ANN新闻联盟做了统计，目前新加坡已经由84%的民众接种完两针疫苗，然而在本周二（19日）新加坡出现单日最高确诊3994人，次日死亡数也出现新高达到18人。就在这种情况下新加坡政府不思考苗苗是否有效，反而开始强推第三针。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-1.jpg)
-（本文仅代表作者观点）
-
-参考阅读：
-
-- [https://www.aboluowang.com/2021/1024/1663368.html](https://www.aboluowang.com/2021/1024/1663368.html)
-- [https://www.zaobao.com.sg/realtime/singapore/story20211023-1206232](https://www.zaobao.com.sg/realtime/singapore/story20211023-1206232)
-- [https://gettr.com/post/pf0rrwbfdb](https://gettr.com/post/pf0rrwbfdb)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov.jpg)
 
-***编辑***：***文真***
-***校对/发稿：海阔天空1***
+2021年11月1日，郭文贵先生在《喜币全球上市大直播》中爆料：
+
+近期欧洲几个国家终止了与中共当局的最惠国待遇，其中的列支敦士登是世界知名的金融自由国家。该国曾是中共对外金融渗透的重要一环，中共每年在列支敦士登投入海外公关费用的百分之八，旨在打造中共的海外金库。然而，列支敦士登成为欧盟中率先与中共贸易脱钩的国家，并顺利成为了“喜联储”的重要金融储备地之一。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-8.jpg)
+文贵先生指出，新中国联邦 “政治小组”的战友们，不舍昼夜地不懈工作，让欧洲几大金融中心认识到喜联储的真正价值，促成了这一伟大的成就。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3.1-2.jpg)
+在现有的几大跨国贸易协议中，“喜币、喜支付和喜联储”将以其低成本、零中介、高保密、超安全等特征大放异彩，并真正打通全球自由贸易的“任督二脉”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-4.jpg)
+参考链接：
+郭先生直播：[2021年11月01日 “HCOIN TO THE MOON” 喜马拉雅币上市庆典 （上）](https://gtv.org/video/id=618159b92051c747ccf8c38c)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：飞虹
+编辑：Zion文恩
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

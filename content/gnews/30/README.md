@@ -2,34 +2,47 @@
 ---
 
 
-## 国际要闻汇编 11月3日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1635850/)
+## 1025新闻快讯
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1635881/)
 
-#### 素材：东京樱花团｜GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-5.png)[*图片来源*](https://i.ntdtv.com/assets/uploads/2021/11/GettyImages-1221007577.jpg)
-1、[**纳瓦罗新书披露内幕 呼吁推翻中共**](https://www.aboluowang.com/2021/1103/1667335.html)
+作者：纽约香草山福音部 – 林礼，日本方舟农场 Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
+1. 内蒙古爆发疫情 近万名游客受困 午夜突发爆炸4死3伤 
+内蒙古阿拉善盟连续数天新增确诊病例，截止至23日早上10点，累计确诊病例超过20例，其中达来呼布镇被定为高风险地区。据央视消息，受此次疫情影响，有近万名游客受困于额济纳旗的胡杨林旅游胜地。屋漏偏遭连夜雨，10月22日半夜11点多，阿拉善盟高新技术产业开发区内的一家化工厂发生爆炸事故，目前已造成4人死亡、3人受伤。官方在爆炸发生12个小时后才公布相关消息。
 
-前白宫国家贸易委员会主任彼得‧纳瓦罗（Peter Navarro）在11月2日新书《川普时代：美国瘟疫年日记》（In Trump Time: A Journal of America’s Plague Year）发行前接受采访时毫不客气地称，中国共产党是一个“需要推翻的野蛮政权”。他还指责了拜登政府对中共的绥靖态度。据纳瓦罗说，他这本书的主要任务之一是“澄清11月3日”，即2020年总统大选的日子，到底发生了什么。
 
-2、[**环境日益严峻 雅虎宣布退出中国大陆**](https://www.voachinese.com/a/yahoo-pulls-out-of-china-ending-tumultuous-two-decade-relationship-20211102/6296925.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-1.jpg)
 
-鉴于中国日益严峻的商业和法律环境，雅虎公司从11月1日起，在中国大陆将无法访问雅虎的全套服务。就在雅虎公司宣布退出中国之际，中国全国人大今年8月通过的《个人信息保护法》已于11月1日生效。该法规定了公司可以收集个人数据的条件，包括获得个人的同意，并规定在将数据传输到国外时确保数据保护的准则。
+1. 不思考苗苗是否有效反而强推第三针
+新加坡将CCP科兴疫苗纳入全国接种计划，并且说接种完3针才算是接种完毕。同时根据新加坡的数据，日媒ANN新闻联盟做了统计，目前新加坡已经由84%的民众接种完两针疫苗，然而在本周二（19日）新加坡出现单日最高确诊3994人，次日死亡数也出现新高达到18人。就在这种情况下新加坡政府不思考苗苗是否有效，反而开始强推第三针。
 
-3、[**美国将全力阻止中国钢铁进口冲击美国产业**](https://www.voachinese.com/a/tai-on-china-steel-harm-20211102/6297133.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/8-1.jpg)
+（本文仅代表作者观点）
 
-美国贸易代表戴琪，在出席2日美国钢铁协会和美国钢铁制造商协会时指出，美国政府将阻止中国钢铁产品进口对美国钢铁产业和市场造成的损害，提振美国钢铁产业的竞争力。戴琪说美国钢铁产业面临的主要挑战除了疫情之外就是全球钢铁产能过剩的问题。中国是全球钢铁产能过剩的最大驱动力，而且向其钢铁产业注入数十亿美元，损害了美国和世界各地钢铁工人的利益。
+参考阅读：
 
-4、[**中国申请加入DEPA，欲与美争夺话语权**](https://www.voachinese.com/a/china-applies-to-join-depa-20211102/6297221.html)
+- [https://www.aboluowang.com/2021/1024/1663368.html](https://www.aboluowang.com/2021/1024/1663368.html)
+- [https://www.zaobao.com.sg/realtime/singapore/story20211023-1206232](https://www.zaobao.com.sg/realtime/singapore/story20211023-1206232)
+- [https://gettr.com/post/pf0rrwbfdb](https://gettr.com/post/pf0rrwbfdb)
 
-中国商务部11月1日发表声明，称中国已正式提交了加入《数字经济伙伴关系协定》(DEPA)的申请。中国国家主席习近平在G20峰会上发表的视频讲话中承诺，将与各方合作，推动数字经济的“健康有序”的发展。分析认为，北京此举意在“增强中国在国际规则制定中的话语权”。
 
-5、[**受美制裁打击 华为将出售服务器业务**](https://www.aboluowang.com/2021/1103/1667316.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov.jpg)
 
-彭博周二（2日）报道指出，华为出售使用x86处理器架构的服务器业务已经进入深入谈判，此前该公司遭美国列入黑名单，使其难以再从英特尔取得微处理器，这是这家中国科技业巨擘遭受美国制裁的最新打击。
+***编辑***：***文真***
+***校对/发稿：海阔天空1***
 
-*编辑：东京樱花团 / 文小白
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

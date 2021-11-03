@@ -2,46 +2,38 @@
 ---
 
 
-## 在澳大利亚首都地区，接种两剂疫苗的旅客仍被迫隔离
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1636063/)
+## COVID-19 最新情报｜护士爆料 003：“医疗领域正在失去能够理性思考，并坚持原则的医务工作者”
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1636106/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜3/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_0.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/COVID_quarantine.5fd3c3a2de5a1.jpg)
+**【澳洲/公立医院急诊室/注册护士】**
 
+*以下为转述：*
 
+#### **医生刻意回避疫苗因素**
 
-图片来源：ehstoday.com
+我是墨尔本东部一间医院的急诊室护士，我每天在急诊室可以见到许多 20～30 岁的年轻人来求诊，其中以男性居多，即使病患都强调是接种疫苗后发生的胸痛、头痛，医生们仍然纪录为心里等与疫苗无关的因素，从未被认可与疫苗有关。
 
+我记得有一名年轻、健康的女性，她因职业而被迫接受疫苗，之后就一直头痛，但在医院她没得过任何有帮助的治疗，医生让她回家，让她自行修复，并且没有为她留下纪录。
 
-#### 编译：小红帽
+还有一名患者，被诊断出 ITP，这是辉瑞疫苗已知的不良反应之一。并且，当时他的血小板几乎已经消失了，但接诊医生坚持认为，这和他三天前接种的疫苗无关，所以也没有纪录在案。
 
-一些完全接种中共病毒（COVID-19）疫苗的旅客在进入澳大利亚首都领地时被迫接受隔离，尽管他们已经接种了两剂疫苗。
+注：ITP（免疫性血小板减少性紫癜），是一种血液疾病，特征是血液中血小板数量骤减，血小板的作用是凝血。
 
-虽然从高风险中共病毒地区来到首都领地，已完全接种疫苗的旅行者可以豁免入境，但如果一个人在抵达日期前不到两周才接种第二剂疫苗，则仍需要隔离。
+如果科学真的受到尊重，人们就会得到适当的跟进，例如胸痛等原因就会得到调查，但事实并非如此。
 
-该领地的首席卫生官凯琳·科尔曼（Kerryn Coleman）博士说，少数人受到了这个措施的影响。
+#### **缺乏合理可接受的风险/效用分析**
 
-科尔曼拒绝承认对“前往堪培拉的健康建议不明确”的说法。“如果健康建议不（清晰），我们将研究如何确保它更清晰，”她说。“我能理解人们对无法像他们希望的那样自由行动感到失望。我们正在努力与受此影响的个人合作。”
+已经有许多专家揭示，对年轻人而言，接种疫苗的风险比病毒更大，虽然这个理论没有进行过正式的研究，但我怀疑这是真的，对未成年的孩子来说更是如此。
 
-此前，堪培拉南部的一所学校检测到大规模中共病毒感染者后被迫关闭。
+现在政府呼吁对所有儿童进行疫苗接种，尽管孩子们受到新冠病毒伤害的风险几乎为零，反而疫苗风险相对较高，医学治疗方案本应建基于一个合理可接受的风险/效用分析，但在本次疫情中，他们完全没有这么做。
 
-卫生当局已确认17例病例与万尼亚萨（Wanniassa）学校初级校区有关。该学校有120多人被确认为密切接触者。
-
-所有在接触期间在学校的学生、教职员工和访客都被要求接受测试和隔离，直到他们得到阴性结果。
-
-科尔曼表示，虽然出现了大量病例，但这种爆发并不意外。随着我们继续开放，我们将看到社区中的中共病毒的传播病例。
-
-**参考新闻：**[Double dosed Australians forced to quarantine in ACT (thenewdaily.com.au)](https://thenewdaily.com.au/news/coronavirus/2021/11/03/double-dosed-quarantine-act/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+我最担心的是，医疗领域即将失去能够理性思考，并坚持原则的工作人员，患者的医疗保健或将因此变得更糟。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-16.jpg)
+来源：[003](https://www.australiannationalreview.com/nurses-speak-out/nurses-speak-out-0013-26-09-2021-rn-emergency-department-melbourne-vic/)
 
  
 

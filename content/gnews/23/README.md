@@ -2,45 +2,40 @@
 ---
 
 
-## #FauciLiedDogsDied成热搜 “虐狗实验”持续发酵
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1635974/)
+## DC大中华时事：中共进一步强化粮食安全
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1636050/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Screen-Shot-2021-08-30-at-7.37.59-PM-2.png)
-两天前非营利组织“白衣废物”就福奇所在的NIH资助了一项残酷的幼犬实验进行了指控。此事在社交媒体引发了巨大的反响。#FauciLiedDogsDied 成为推特热搜。
+*编辑：西北风 / 作图：*虎子哥
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9.jpg)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
 
-该项实验旨在以幼犬作为诱饵吸引有传染性的沙蝇叮咬，感染后注射实验药物以查验有效程度。实验过程中细节的描述因过于残忍引起网民的强烈不适，而这种生理及心理的不适超越了左右之分。
+#   墙国妄语每日驳
 
-佛州州长德桑蒂斯说，这是“难以想象和令人厌恶”的，纳税人的钱不能被这样使用，福奇必须要承担责任。众议员泰勒·格林发起了一个国会请愿书，她说资助虐狗实验和中共生物武器杀死几百万人的最高薪酬联邦雇员需要被解雇。在这条推特热搜下，左翼人士同样心有余悸。有人留言：幸亏我的狗很安全！
+### 11.03.2021
 
-美国文化中，狗是重要的家庭成员。这次爆出的“虐狗”丑闻，在社交媒体持续发酵，有望撼动福奇在科学、医疗界坚不可摧的地位。
+[奋斗百年路 启航新征程·中国共产党人的精神谱系丨百折不挠 乐于奉献——太行精神述评 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/photo/20211103/2458641.shtml?fr=mb)
 
-（本文仅代表作者观点）
+***简评：*我们中国人是一个没有信仰的民族，我们华夏族的文明是以群体而不是以个体为基础发展起来的。在自然、社会、人生三个维度上我们华夏族确切说是周人，是以社会这一维度为主发展出以德治国，并辅以礼乐制度并配套井田、封建、宗法具体措施而发展起来的一套文明体系。以德治囯，必然是圣人治国，所以我们是以圣人代神祗，以礼乐代宗教。我们沒有信仰。所以，今天中共治国思路和三千多年来历朝历代没有什么本质的区别。中共无非是把中国共产党树立成了一个圣人形象，从而达到中共执政的合法性。但历史已经证明圣人、圣君从没有过，以德治国最终服务的只不过是一个专制极权体制。今时今日，我们每个中国人回过头来仍要面对我们文明起点上的不同，面对自己、面对个体，重新补上这一文明演化上的缺失。中共注定将被历史淘汰，这就是原因，这也是我们每一个新中国联邦人灭共而奋斗不止的原因。**
 
-参考阅读：
+### 11.03.2021
 
-- [https://twitter.com/bennyjohnson/status/1452688321818374155?s=21](https://twitter.com/bennyjohnson/status/1452688321818374155?s=21)
-- [https://www.zerohedge.com/medical/fauci-funded-cruel-puppy-experiments-where-sand-flies-eat-them-alive-vocal-cords-severed](https://www.zerohedge.com/medical/fauci-funded-cruel-puppy-experiments-where-sand-flies-eat-them-alive-vocal-cords-severed)
+[外媒：中国将加大力度减少粮食浪费，进一步强化粮食安全 (huanqiu.com)](https://m.huanqiu.com/article/45QkeFkG02G)
+
+***简评：*中共一直在讲坚守18亿亩耕地红线，只不过自欺欺人。各地城市扩建，房地产开发，占的都是优质耕地，各地粮库都是做假、没有库存，农村人口进城务工，大部分耕地无人耕种，中国早就靠大量进口粮食填补缺口。中国一旦发生战争或经济崩盘首先就会出现粮食危机。中共现在刊发强化粮食安全这类文章，中共显然不是无的放矢。**
+
+### 11.03.2021
+
+[最后期限即将到来！美国士兵若拒绝接种新冠疫苗或遭处罚\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/world/20211102/2458617.shtml)
+
+***简评：*资本都是带着血腥的，从500年前欧洲大航海时代开始，到欧洲各国到全世界开拓殖民地起，资本、市场、利润主导着那个年代世界的走向。为了资本、市场、利润，非洲贩奴殖民，澳洲美洲原住民几乎灭族，亚洲鸦片贸易、艦炮贸易，能做的都做了。今天和过去有什么不同吗？所不同的是今天是全球贸易、全球产业链，新时代新问题但资本的追逐市场私利润本质没有改变。今天全球统一的疫苗强制接种，对人口数量减少的大重启计划背后仍是这股资本的力量。图的什么？和他们祖先当年一样——资本、市场、利润。如果硬要说有什么更高尚的追求，那是自欺欺人罢了。**
+
+#   港台资讯
+![](https://media.discordapp.net/attachments/858887785507323904/905293369285152818/01.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/905293436842811472/02.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/905293487807791114/03.png?width=1031&amp;height=586)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov.jpg)
-
-***编辑***：***Ivy001***
-***校对/发稿：海阔天空1***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+*编辑：*西北风
+*作图：虎子哥
+发布：文顾*
 
  
 
