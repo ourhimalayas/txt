@@ -2,29 +2,38 @@
 ---
 
 
-## 欧盟议会官方团突访台湾并与总统蔡英文会谈
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1636402/)
+## 喜币上市，战友仍需健身健心
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636450/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2021/11/欧盟议会官方团突访台湾并与总统蔡英文会谈.png)[*图片来源*](https://gdb.voanews.com/3865DA11-DD27-4FAC-992C-2A3EFF9B8102_w1200_r1.png)
-据《[朝日新闻](https://www.asahi.com/articles/ASPC3416KPC3UHBI00Y.html)》11月3日消息称，欧洲议会一个官方代表团3日访问了台湾，该代表团由来自法国、意大利、希腊等6个国家的7名成员组成，其中包括立陶宛两名前总理、捷克和奥地利各一名议会成员。这一历史性访问继美国布林肯国务卿呼吁台湾加入联合国以来最具实质意义上的欧盟与台湾作为主权国家级别间的外交访问。
+作者：纽约香草山文艺部 – 宁文静
 
-据台湾外交部称，这是首次正式访问。这次访问是另一个标志自由、民主、尊重人权和法治等共同价值观的支持下，两国关系正在蓬勃发展。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-今年7月，欧洲议会各成员国行动不一，比如通过决议呼吁欧盟成员国明年抵制北京冬奥会。台湾外交部透露，台方担心中共国的强烈反对，直到欧盟议员访问团在3日上午抵达时才宣布。
+2021年11月1日，爆料革命迎来了一个重大的历史时刻——喜币上市——很多人的人生也因此发生了翻天覆地的变化。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-9.jpg)
+对此，郭先生直播中一再警醒战友们，既要健身，更要健心。郭先生提到，喜币上市之后，战友们会因着自身的富有，招来那些没有投资机会者的羡慕和嫉妒，这是人的本性之恶。所以，郭先生提醒战友们，千万不要有暴富心态，且在面对巨额财富时，一定要保持住本心，不能贪婪。
 
-- ***延展阅读：***[***敢动台湾？27国绝没想到，欧洲4国致电北京，王毅突然做出大动作***](https://www.163.com/dy/article/GNSD2L5D0534R9R3.html)
+郭先生还告诉战友们，在正道主义的路上，健身是为了磨练意志，坚持到最后的那一刻；健心，则是为了不忘初衷，牢记使命。
+
+参考链接：
+
+[2021年10月29日 文贵大直播：格芯在美国上市的重大意义和其未来价值，格芯与数字货币紧密相连；喜币周一上市会带来什么样的改变；房地产会在明年5-7月爆雷，是中共制造的最大的噩梦](https://gtv.org/video/id=617be96f11d1862968fccc4b)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-据称，该代表团将滞留到5日与蔡英文总统会面，同时也将与包括数字部长唐凤（Audrey Tang）在内的其他政府官员会面。他们计划与研究假新闻应对措施的智库和公民团体交换意见。台湾立委希望讨论假新闻和网络攻击对策。
 
-欧洲议会今年10月，以压倒性多数通过对台政治关系文件。这一突发外交事件，中国共产党还未作出反应。
-
-2021年11月3日
-
-*编辑：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

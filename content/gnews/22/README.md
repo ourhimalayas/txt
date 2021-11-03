@@ -2,41 +2,58 @@
 ---
 
 
-## 中共国网络疯传“统一台湾的第一天”时间表 小粉红已被洗脑至癫狂
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1636284/)
+## 最新报告显示，伊维菌素有86%的预防率和67%的早期治疗率
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1636356/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片6.png)
-（图片来自网络）
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-近年来，中共对台湾的文攻武吓不断升级，除了共机绕台威胁恫吓之外，近日官媒《中国新闻网》又曝光了所谓“台湾人民开始储存求生物资”的消息，并一举冲上了微博热搜。在官媒点燃统战话题后，大批小粉红接力鼓吹，微博甚至出现了所谓的“台湾统一后的第一天”时间表，行程内容引发网友热烈讨论。
-
-据称，这份所谓的“统一行程表”是从早上六点开始设计的：
-
-1. 早上六点，“台方擦枪走火”；
-2. 1分钟后，中共中央宣布《告台湾同胞书》；
-3. 早上11点，台湾民众开始排队领二代身份证；
-4. 傍晚时分，在台北101大厦举办“解放军欢迎晚宴”；
-5. 晚8点，歼20编队护送汪峰空降台北小巨蛋领唱《我和我的祖国》。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-_1794c8dfc62_large.jpg)
 
 
-此外，这份“梦统台湾”时间表还宣称，接下来则是要对台湾从教育层面着手，5年内从中共国内地调去6000位历史与政治教师，扮演“拨乱反正”的工作。
 
-这份行程表一公布，随即引发关注，不少中共小粉红看后十分亢奋，直言祖国统一的日子快来了。有小粉红欢呼：“快啊，我当志愿军建设台湾省”。
+图片来源：gulfnews.com
 
-另有小粉红还在此份所谓的“统一行程表”基础上，补充了自己的版本。其中包括：12点台湾红布断货；16点凯达格兰大道夹道欢迎解放军占领台北；18点在台总统府发布新闻，蔡总统以中共地下工作者身份改任台湾特首，而苏贞昌则直接拉出去枪毙。
 
-不过，面对癫狂的小粉红，也有不少网友纷纷发表不同的看法。有网友讥讽道：“你太有想法了，应该去当人大常委”；“这个圆梦的重任又要交给横店的导演们了”；“台湾民众储存物资？不是绣红旗吗？哈哈哈哈，靠意淫就能高潮。”
+编译：小红帽
 
-还有网友尖锐地反驳称：“如果光用嘴爱国的的话，五毛粉红全宇宙第一，但是国共内战的延续不能光凭一张嘴。中共会在第一时间宣布所有粉红和五毛被抓为壮丁，前往台湾海峡用血肉筑成一道钢铁桥梁让坦克可以压过去。”
+一份[包含64项研究的最新国际报告](https://ivmmeta.com/ivm-meta.pdf)显示，伊维菌素作为中共病毒（COVID-19）预防措施的成功率为86%，而在的早期中共病毒治疗中的成功率为67%。
 
-中共愚弄百姓、宣扬极端民族主义已经到了无以复加的地步，甚至连幼儿园的小朋友都不放过。近日网络上流出幼儿园孩童身背炸药包进行所谓爱国主义教育活动，令人瞋目结舌，出离愤怒。
+这些结果同时亦反映了过去一年中[关于羟氯喹（对中共病毒有效）的290多项研究报告](https://c19hcq.com/)。
 
-那些被称为“小粉红”的脑残“爱国”者，已被中共洗脑至癫狂的地步，这不禁让人联想起当年受希特勒鼓噪的德国纳粹主义。纳粹的结局世人皆知，而21世纪的新纳粹中共也必将被文明世界联手消灭。这些脑残小粉红都将成为殉葬品，终生背负耻辱。
+尽管这些药物在同行评审研究中持续有效，但美国疾病控制与预防中心(CDC) 、福奇博士和美国食品药品监督管理局(FDA)嘲笑使用这些药物来治疗中共病毒。到了某个时候，他们将不得不承认自己错了，而且这可能是导致数百万人死于这种致命病毒的原因。
 
-注：本文仅代表作者观点
+Gateway Pundit网站曾广泛报道了美国疾病控制与预防中心导致数千美国人死亡。
 
-新闻链接：[https://twitter.com/aboluowang/status/1454979008362213381](https://twitter.com/aboluowang/status/1454979008362213381)
+这份新的国际报告显示，伊维菌素在预防和降低中共病毒死亡率方面表现非常出色。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-study-success-01.jpg)
+
+
+
+图片来源：thegatewaypundit.com
+
+
+伊维菌素的效果优于其他药物。
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ivermectin-study-success-01-1.jpg)
+
+
+
+图片来源：thegatewaypundit.com
+
+
+这是整个完整的[研究报告](https://www.scribd.com/document/536540814/Ivermectin-Study-Continues-to-Show-Promising-Results#download&amp;from_embed)，供阅读。
+
+**参考新闻：**[WONDER DRUG: New International Ivermectin Report of 64 Studies Shows 86% Success as Prophylaxis and 67% Success in Early Treatment (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/11/wonder-drug-new-international-ivermectin-report-64-studies-shows-86-success-prophylaxis-67-success-early-treatment/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
