@@ -2,50 +2,185 @@
 ---
 
 
-## 台湾总统敦促台湾人不要让政治立场影响公投表决
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1635289/)
+## 吴征利用SPAC把川普拿下，下一步人民币数字化
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1635435/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/214212_800x20000-1.jpg)台湾总统蔡英文。图片来源：台湾《中时电子报》
-**摘要翻译:**
+[https://gtv.org/video/id=6180fc78adfd99590c32447f](https://gtv.org/video/id=6180fc78adfd99590c32447f)
 
-《台湾英文新闻》11月1日报道，
+**郭文贵**
+**Miles Guo**
 
-总统蔡英文周六（10月30日）表示，即将到来的四合一公投不是输赢的问题，而是一个其结果将会决定台湾未来的公投。
+我今天给你们爆个料
+I’m going to break the news for you today
 
-蔡英文周六晚在脸书发文称，台湾人应该保持“理性冷静的态度”来考虑如何投票，以及他们的选票是否对国家最有利。“不要让国家的未来被政党的利益绑架，不要让国家的重大政策因政治分歧而牺牲。”她说。
+你知道
+You know
 
-总统说，作为执政党，民进党应该有责任使公民投票成为理性和公开的事情。“只有公投才能真正体现民意，让台湾民主更上一层楼。”她说。
+这个SPAC
+this SPAC stock,
 
-蔡英文敦促台湾人抛开党派立场，理性思考，相互交谈，帮助他人了解公投所包含的四个问题。她说，这样人们就可以投票做出“最符合国家整体利益”的选择，台湾就可以继续前进，她说。
+上市之后
+after being listed on the market,
 
-定于12月18日举行的公投将涉及四个问题，包括反（美国）莱猪进口、公投绑大选、珍爱藻礁以及重启核四发电厂。
+我和一个政法委的
+I was talking with a political and legal committee,
 
-**简评：**
+一个老领导
+a senior leader.
 
-蔡英文总统呼吁不要让政治立场影响公投表决，意指希望公民在公投过程中，不要携带党派概念，而是要以国家利益和国家安全为先，在公投案中谨慎投出自己的一票。由于中共政权多年来不断对台湾进行政治打压和经济侵略，特别是近一年多来更是不断利用军机扰台并发出武统台湾的论调。蔡英文总统的这一呼吁非常值得称赞，因为她适时提醒了台湾岛内民众在此关键时期，需要更加审慎地对待公投案，以期得到更有利于当下台湾安全和未来台湾发展的投票结果。
+我说你们这票干得漂亮是不是呀
+I said, “you had done an awesome job, isn’t it?”
 
-关于本文提到的四合一公投，中共媒体有混淆视听的详细报道，但是，台湾作者“台湾准农场zhong”于2021年3月4日在G-NEWS上发表的系列文章“[国民党提起公投绑大选案公投，意义为何？细究在台共产党如何设局民主](https://gnews.org/zh-hans/947090/)”中对此有更加细致真实的分析解读，推荐战友和读者查看阅读，有利于我们更进一步了解国民党是如何与中共政权进行深度勾结，破坏台湾的内部团结并危害台湾的安全。
+挺高兴的
+“Very excited”
 
+是，北京一片欢腾啊
+“Yes, Beijing is having a great celebration”
 
+他说
+He said,
 
-新闻链接: [President urges Taiwanese not to let political affiliation affect referendum vote](https://www.taiwannews.com.tw/en/news/4331772)
+所有的海外局
+“all overseas offices,
 
-***翻译/简评**：Harvey (叶知秋)*
+国际合作局的人
+and the International Cooperation Bureau employees
 
-***校对**：感恩*
+刚刚给我打完电话
+just hung up the phone with me,
 
-* * *
+说这次吴征啊立功了
+saying that Bruno Wu has done a meritorious service
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+把川普拿下
+by compromised Trump.
 
+下一个目标
+The next target is
 
-编辑：【英国伦敦喜庄园编辑部】
+迈克·蓬佩奥
+Mike Pompeo”.
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+我要跟蓬佩奥同志
+I need to see Comrade Pompeo in person,
 
+面对面的好好谈谈这事儿
+Talk about this matter face to face
 
+我上次告诉他
+I told him last time
+
+我说你家里边
+I said that inside your house
+
+你的电话绝对是被监听的
+your telephones were definitely tapped (by CCP),
+
+我说我这电话
+so did my phone here
+
+就当着共产党随时听着
+Just pretend that the Communist Party is listening anytime
+
+我从来没觉得它不听
+I have never sensed that they would not listen
+
+我希望它都听到
+I hope they can hear all of them
+
+最好别漏
+It’s better not to miss anything
+
+共产党下一个目标
+The Communist Party’s next goal
+
+就是世界的虚拟货币
+is the world’s virtual currency
+
+共产党
+The Communist Party
+
+现在，王毅所谓的出访
+currently, Wang Yi’s so-called visits
+
+你去看，阿尔巴尼亚
+You can take a look, Albania,
+
+塞尔维亚、卡塔尔、意大利
+Serbia, Qatar, Italy,
+
+希腊
+and Greece.
+
+说叫一带一路合作，
+Call the Belt and Road cooperation
+
+全是干啥去了？
+what have they all gone for?
+
+接受我人民币支付的
+to coordinating the RMB payment acceptive
+
+货币项下业务
+of business under currency.
+
+刚刚到红海
+(WangYi) just arrived the Red Sea
+
+秘密的见了沙特王子本·萨勒曼
+and met Saudi Prince Bin Salman secretly.
+
+继续推进
+and continued advance
+
+跟沙特的人民币项下的石油
+with Saudi Arabia’s oil business under the RMB Project.
+
+是沙特的立国之本
+(Oil) is the foundation of Saudi Arabia.
+
+和美国的，
+As far as the United States,
+
+后来跟美国签了一个长期共用
+later it signed a long-term sharing agreement with the United States
+
+最低油价
+the lowest oil price
+
+15美金一桶的油价，永不改变
+The price of $15 a barrel of oil will never change
+
+这是美国的利益所在
+This is America’s interests
+
+现在，共产党要把
+Currently, the Communist Party wants
+
+阿美石油变成自己的了
+to turn the Aramco oil business into its own.
+
+———————————————————
+
+**原视频链接**: [https://gettr.com/post/pfj822be03](https://gettr.com/post/pfj822be03)
+
+Date: 10/29/2021
+原视频标题: 
+Bruno Wu Took Advantage of SPAC and Compromised Trump; The Next Target Will be The RMB Digitization
+原视频日期：2021/10/27
+任务编号：KC218(2717)
+视频时间段 : 0:00-1:50
+
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校: 洛杉矶盘古农场 – Freeearth
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

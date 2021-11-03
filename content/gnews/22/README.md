@@ -2,23 +2,22 @@
 ---
 
 
-## 樱花灭共诗——币珍
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1635205/)
+## 加拿大特鲁多政府将重新评估“完全接种”的定义
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1635294/)
 
-#### 作者：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-负累穷年狷介身，浊流不染苦求真。
+编译撰稿：硫酸羟氯喹64
 
-向来多冷聚财愿，所幸犹怀济世心。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-2-edited.jpg)图片来源：TRUENORTH
 
-追料勉行随骥尾，乏功竟喜跃龙门。
 
-大哉正道同天下，福满此时一币珍。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/22.jpg)[图片来源](https://gettr.com/post/pfgnn9f855)
-*插图：东京樱花团/闪闪*
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
+据加拿大自媒体【后千禧年】11月1日刊文报道，加拿大首席卫生官谭咏诗日前表示，联邦政府将重新评估当局在今年冬季到来之前对“完全接种新冠病毒疫苗”的定义。
+
+谭医生的此番评论是在加拿大卫生部建议给该国老年人接种强化疫苗之后提出的。她同时称，由于目前没有数据表明大多数已接种的加拿大人需要加强注射该疫苗，因此联邦政府还未考虑做任何改变，并正在审查“完全接种”的最新定义。
+
+目前，加拿大政府对 “完全接种 ”的定义是：已注射了2剂量联邦政府认可的，包括辉瑞，莫德纳，阿斯利康等公司生产的全部或组合系列疫苗。
+
+[原文链接：](https://thepostmillennial.com/trudeau-liberals-to-reassess-definition-of-fully-vaccinated)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

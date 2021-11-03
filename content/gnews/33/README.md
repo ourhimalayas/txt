@@ -2,55 +2,43 @@
 ---
 
 
-## 美国航空因员工短缺和天气原因取消了1,500多个航班
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1635076/)
+## 2021/11/02 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1635130/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/american-airlines-700x420-1.jpg)2020 年 11 月 25 日，在芝加哥奥黑尔国际机场，美国航空公司的地勤人员帮助一位乘客办理登机手续。（图片：Kamil Krzaczynski/路透社）
-**摘要翻译：**
-
-美国航空在10月29日至10月31日期间取消了1,500多个航班，理由是人员短缺和恶劣天气。
-
-这家总部位于德克萨斯州的航空公司发言人在一封电子邮件中告诉《大纪元时报》，除了10月29日取消的340个航班外，10月30日取消了540个航班，10月31日取消了650个航班。
-
-该女发言人表示，这些问题与该公司的强制新冠疫苗接种无关。代表美国飞行员的盟军飞行员协会发言人丹尼斯·塔杰上尉也表示，取消与疫苗接种要求无关。
-
-美国航空于10月日宣布其强制新冠疫苗接种计划。
-
-“虽然我们仍在研究联邦要求的细节，但很明显，选择不接种疫苗的团队成员将无法在美国航空公司工作。” 美国航空公司首席执行官道格·帕克当天在一份备忘录中表示。该公司的高管后来表示，员工必须在11月24日之前完全接种疫苗，否则将被解雇。
-
-大多数美国的航空公司都实施了强制措施，其中一些是为了回应乔·拜登总统的计划，即强制私营企业要么从员工那里获得疫苗接种证明，要么要求他们每周接受新冠病毒测试。
-
-飞行员协会负责人上个月警告白宫和国会，强制接种可能在不久的将来引发混乱。
-
-西南航空公司本月早些时候取消了数千个航班，导致许多旅客滞留数日。该航空公司声称这些问题主要是由于不利的天气造成的，与强制接种疫苗无关，但其他航空公司并没有同时遇到问题。该航空公司后来推迟了强制接种，让不遵守疫苗接种要求的工人休无薪假。
-
-航空公司表示：“飞行员和技术运营人员的招聘仍在继续，我们已经开始增加预订人数，以便在假期期间有更多的团队成员到位。”
-
-**简评：**
-
-前段时间美国西南空航空公司因为天气和人手问题取消了2000多个航班的记忆还没有消散，而这次美国航空仍然用同样原因和理由再次取消了1500多个航班。
-
-相信航空公司取消航班的现象会不断发生，因为众所周知的原因：航空公司助纣为虐，强制要求自己的员工完全接种疫苗才能上岗，而不愿意接种疫苗的员工则被迫休无薪假或离职，进而导致航空公司员工短缺。从航空公司取消航班的现象也从侧面知道有更多觉醒的不愿接种或反强制接种的民众已经在各行各业纷纷涌现，这昭示着政府用疫苗护照的极权手段统治国民的日子也即将结束。
+**主播**：大卫｜**嘉宾**：舒平风、Castle
 
 
 
-新闻链接：[American Airlines Cancels Over 1,500 Flights, Blames Staff Shortages and Weather](https://www.theepochtimes.com/mkt_breakingnews/american-airlines-cancels-over-1400-flights-blames-staff-shortages-and-weather_4078101.html?utm_source=newsnoe&amp;utm_medium=email2&amp;utm_campaign=breaking-2021-10-31-1&amp;mktids=8f22e9e400ab0831c55c504522289d88&amp;est=b9k0cXaJwgWEyTBpix4kA0f%2BdgqfpNIv7JQ82rGHIqT0mYfNTWpEifgIh9pJOAA%3D)
+**板块1–**–**喜币上市**
 
-***翻译/简评**：Brianchow*
+1. 喜币成功上市开盘一直飞涨现稳定在7.7美元左右。战友们持仓成本低、基本没有卖出，现阶段逢低买入买多少都是好事；基金机构等开盘初期赎回成本抛盘，导致成交量变大，待赎回成本后，基金操作流动性将更高。现交易所主要问题是：由于各种因素干扰，登录账户有困难。等到全球支付一体化时，喜币具备双币属性（储存属性高、可用于交易）价值将更高。
 
-*** 校对**：clau*
+**板块2–国际财经**
 
-* * *
+1. DWAC股票（厕所股)：因为有吴征和共产党背景，“奔着涨势”目的去购买股票的战友很多。上周五开始微弱跌价，总体呈现“阳痿式”。技术层面—“割韭菜盘”（机构高位套现、散户高位接盘、致使散户“割肉”离场）
+
+2. 格芯股票：有大机构投资者（例如阿联酋主权基金）、全球现阶段芯片供不应求并处于供应链调整期、具有唯一性（芯片技术会从7纳米升级到3纳米）、公司分布合理不会受地区局势紧张影响、全球五家芯片代工厂（格芯、三星、中兴、台积电、联华）其中后四家有极高不可控因素（中共国侵占台湾）的存在。
+
+**板块3–网络科技**
+
+中共国商务部鼓励家庭储存一定的生活必需品，保证应急情况下供应。商务部“跨行业”呼吁很罕见，强行促进内部经济循环说明中共的经济不景气。疫情形势又开始冒头，上海迪斯尼几万人严格控制进出。
+
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+
+[![](https://spark.adobe.com/page/8iCPJTuxRAUTK/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://spark.adobe.com/page/8iCPJTuxRAUTK/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://spark.adobe.com/page/8iCPJTuxRAUTK/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/8iCPJTuxRAUTK/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
 
 
  

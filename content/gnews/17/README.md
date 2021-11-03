@@ -2,80 +2,70 @@
 ---
 
 
-## [温哥华扬帆农场]辉瑞让各国政府签订如此屈辱的合同？
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1635250/)
+## 中共国格力除湿机因未通报有安全隐患而被罚款9100 万美元
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1635339/)
 
-温哥华扬帆农场  Michael.Tonny
-![](https://assets.gnews.org/wp-content/uploads/2021/11/21-1.jpg)
-在各国强推中共CCP病毒疫苗很长一段时间后，根据[Our World In Data](https://ourworldindata.org)整理的[霍普金斯大学](https://www.arcgis.com/apps/opsdashboard/index.html#/bda7594740fd40299423467b48e9ecf6)数据统计结果研究表明，注射疫苗既不能预防感染，也不能减少死亡。而与各国政府宣传的恰恰相反，病毒感染和死亡线性相关，疫苗没有任何作用；未接种疫苗人群完全可以依靠身体自身免疫力达到群体免疫效果；接种疫苗不但对预防感染和死亡没有任何帮助，反而有可能增加了治愈难度；接种疫苗半年后，感染病毒、死亡风险都呈几何级数增长。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/110302-1.jpg)2021 年 8 月 16 日，在中共国湖北省武汉市爆发 COVID-19 疫情后，格力工厂的一名员工正在检控生产线上的电路板。（CD via Reuters）
+作者：Naveen Athrappully |2021年11月1日 更新：2021年11月1日
 
-那么，各国政府为什么要强推疫苗，强推疫苗背后是否存在黑暗势力的操控，印度[Wion Gravitas](https://www.wionews.com)电视台7分32秒的节目揭开了其中的冰山一角……
+总部位于中共国的格力电器及其两家子公司，包括一家在美国的子公司，已同意支付 9100万美元，以解决因未向美国消费品安全委员会（CPSC）及时报告其有质量问题的除湿机可能着火的刑事指控。
 
-2021年10月21日，印度[Wion Gravitas](https://www.wionews.com)电视台暴光辉瑞制药如何欺负勒索各国政府在中共CCP病毒疫苗上做出屈辱的让步。Gravitas主播 Palki Sharma Upadhyay通过展示的几份辉瑞制药和多个国家政府签订的9份合同，揭露辉瑞制药公司在迫使政府保持沉默、抑制供应、转移风险方面取得了成功，并在一个世纪以来最严重的公共卫生危机中实现利润最大化。
+根据法庭文件，在格力高管已经知道有缺陷的除湿机不符合适用的安全标准，有起火风险的情况下，该公司掩盖了信息并将报告推迟了数月。 随着消费者对火灾和相关损失的投诉增加，高管们最终被迫报告了这个问题。
 
-这些合同包括：阿尔巴尼亚50万剂，单价12美元，总金额为600万美元；2021年3月15日同巴西政府的1亿剂，单价10美元，总金额为10亿美元；2021年2月2日同哥伦比亚政府签订的1000万剂，单价12美元，总金额1.2亿美元；2020的12月1日智利政府签订的1000万剂；2020年10月29日，多米尼加政府签订的800万剂，单价12美元，总金额9600万美元；2020年11月20日，欧盟签订的2亿剂，单价18.6美元，总金额37亿美元；2020年9月17日，秘鲁政府签订的1000万剂，单价12美元，总金额1.2亿美元；2020年7月21日，美国政府签订的1亿剂，单价19.5美元，总金额19.5亿美元；英国政府2020年10月20日签订的3000万剂。
+格力电器总部位于中共国珠海，是全球最大的空调制造商，股票在深圳证券交易所交易。
 
-这些合同明确包括以下条款：
+63岁的格力首席执行官Charley Loh和66岁的格力美国首席行政官Simon Chu已被司法部起诉，罪名是根据《消费品安全法》（CPSA）提起的重罪指控和未及时通告的电汇欺诈。
 
-1.    政府不得透露正在强推疫苗与辉瑞制药公司的交易内容。
+“没有人应该担心正确使用的消费品可能会导致亲人受伤或死亡”加州中区代理美国检察官Tracy L.Wilkison在新闻稿中说。
 
-2.    辉瑞严格控制供应。例如，巴西政府被限制接受来自其他国家的辉瑞疫苗捐赠或未经辉瑞许可从其他国家购买辉瑞疫苗。巴西政府也被限制在未经辉瑞公司许可的情况下捐赠、分发、出口或以其他方式将疫苗运输到巴西境外。
+“格力在报告其危险和有缺陷的除湿机已知问题方面长达数月的拖延既是犯罪行为又是代价高昂的。格力公司推迟报告其有缺陷的除湿机的决定导致了数百万产品被召回并支付了数百万美元。我们不会允许公司以牺牲消费者的健康和安全为代价获利”Wilkison补充道。
 
-3.    辉瑞为自己争取了“知识产权豁免”。在几份合同中，辉瑞可以随意使用任何人的知识产权——基本上没有任何后果。至少有四个国家需要“赔偿、捍卫辉瑞并使辉瑞免受伤害”，使其免受与疫苗知识产权相关的任何和所有诉讼、索赔、诉讼、要求、损害、成本和费用。
+直到2013年9月，测试才上报并且产品才被召回。根据文件，延迟的原因是“秋季和冬季温度较低将有助于防止格力除湿机过热和着火，在2012年9月之后的6到9个月内，起火的可能性很低。”
 
-4.    私人仲裁员，而不是公共法庭，秘密裁决争议，而阿尔巴尼亚、巴西、智利、哥伦比亚、多米尼加共和国和秘鲁的协议甚至要求合同纠纷须由适用纽约法律的 ICC 仲裁。
+2007年至2013年间，格力在该国以不同名称（包括Kenmore、GE和Frigidaire）销售了近200万台除湿机。
 
-5.    国家资产作担保。辉瑞要求巴西、智利、哥伦比亚、多米尼加共和国和秘鲁放弃主权豁免。
+作为延期起诉协议（[DPA](https://www.justice.gov/opa/press-release/file/1445401/download)）的一部分，在2012年7月26日左右，首席执行官Loh看到了格力除湿机燃烧的视频。Loh立即将视频转发给了负责美国出口的格力香港总监，称该视频“光看就吓人”，“格力产品质量存在非常严重的问题”。
 
-6.    辉瑞在关键决策上发号施令。如果疫苗供应短缺怎么办？在阿尔巴尼亚的合同草案以及巴西和哥伦比亚的协议中，辉瑞将根据公司决定的原则决定对交货时间表的调整。阿尔巴尼亚、巴西和哥伦比亚“应被视为同意任何修改”。
+后来经过测试发现产品会着火，Loh再次给香港总监发邮件说：“结果跟你说的不一样”，“结果显示所有样品都可以着火，显然材料不符合UL标准！我认为工厂没有告诉我们事实和真相。”
 
-依笔者看来，印度Wion Gravitas节目只是揭露了各国政府强与辉瑞制药公司签订不平等合同的细节，并未真正深入问题的核心。无论如何，让普通民众知道背后的真相，思考和反问政府强推疫苗的深层原因。
+2013年3月14日，该公司向美国消费品安全委员会（CPSC）报告消费者投诉除湿机着火并损坏其财产的情况，但没有提及问题的原因是有缺陷的产品。此外，格力向零售商出售产品，并谎称除湿机符合所有行业标准。
 
-在全世界各国政府步调如此一致强推中共CCP病毒疫苗的背后是否存在某种黑暗势力在操控？各国政府为什么要与辉瑞制药公司签订如此不公平的合同，这些如此屈辱的合同背后，究竟隐藏了多少秘密，应该才是人们真正想知道的答案！
+在接下来的一个月里，一份独立的测试报告显示，除湿机使用的塑料劣质，不符合防火标准。
 
-正如主持人节目最后提到的那样，疫苗就是恐怖主义！
+根据认罪协议 ([pdf](https://www.justice.gov/opa/press-release/file/1445406/download))，“美国消费者因购买有缺陷和危险的格力除湿机而损失了至少1740万美元”，并在2012年9月至2013年4月期间“遭受了至少 210 万美元的财产损失”。
 
-附：印度Wion Gravitas节目文字内容全文听写
+最后，2013年9月12日，格力宣布在美国主动召回220万台除湿机。然而此时，消费者已经报告了2000多起事故，其中450起火灾事故和超过1900万美元的财产损失。
 
-Wuhan virus vaccines are supposed to be a global public good. But what happens when a vaccine manufacturer starts bullying? Governments are silenced. suppliers have altered and profit state proceedings overstating lives. I’m not describing a hypothetical situation here. I’m describing what Pfizer is doing. The American pharma giant it is doing all of this is bullying countries to submit its demands.
+在2012年9月至2013年4月期间，格力能够从分销和批发中获得超过3900万美元的收益。 由于他们没有立即向美国消费品安全委员会（CPSC）报告，这笔款项被视为没收。
 
-We first reported about this back in February this year. Well, countries like India are sending feedback seems to coronations. There are companies like Pfizer, which are bullying governments, Pfizer asked to be compensated for the cost of any future lawsuits. Pfizer wanted Argentina to put a listen to this, put its bank reserves, its military bases, and its embassy buildings at stake as collateral. These are Pfizer’s demands. Look at this number one, Brazil reserves the sovereignity of its assets abroad in favor of Pfizer, that the rules of the land be not applied on Pfizer. Number three, that Brazil take into consideration a delay in delivery. Number four, that Pfizer is not penalized for it for a delay in delivery. And number five, in case of any side effect Pfizer be exempted from all civil liability.
+美国消费品安全委员会（CPSC）主席亚历克斯·霍恩-萨里克（Alex Hoehn-Saric）在新闻稿中说：“这一历史性的刑事执法行动应该表明，CPSC将充分利用其权力来保护美国家庭的安全。”“不报告危险产品会使消费者面临不必要的风险，并且不会被容忍。”
 
-Eight months had passed since we reported this Pfizer has not changed it is still putting profits about public health. It is still forcing governments to bend to its will and advocacy group has thrown up more details on what Pfizer does. It has access to confidential contracts of Pfizer, and we have a copy. These contracts are with nine countries and blocks and the details are shocking. Desperate countries are being forced to make humiliating concessions to Pfizer.
+格力首席执行官和美国首席行政官不认罪，并定于2022年3月15日在洛杉矶开庭审判。
 
-We went through the entire report you have found six very important points worth highlighting. Number one, Pfizer has the right to silence governments. It has forced countries to not talk about the deals they strike for shots. Number two, Pfizer controls the donations of its shots, not the country that buys them finally, decide where the shots go. Number three, Pfizer has secured an intellectual property waiver for itself and this clause is particularly disturbing. Pfizer is accused of intellectual property theft, governments will pay not the company. Number four, if there are disputes, private arbitrators, and not what the courts will decide on them. Number five, Pfizer can go after state assets to secure its compensation and number six, Pfizer calls the shots on all key decisions. It decides delivery timelines and more.
+**简评：**
 
-These are very serious revelations. I’ll give you some more details. Number one, Pfizer is silencing governments how? Through contracts. These airtight contracts are at the center of everything. They can silence governments in ways you can’t even imagine. Look at what happened in Brazil. Pfizer agreed to supply its Wuhan virus vaccines to Brazil. And it’s made them this clause in the agreement to force Brazil to not share any specifics about its deal with Pfizer.
+在中共国的统治下，绝大多数的企业文化中没有“诚实”二字。一切都是以利益为先，面子为大。明知道犯了错也不愿意主动承担，只会想方设法蒙混过关，保全自己的利益。在中共国也许可以运用“关系”摆平，可是到了国际舞台，这一招不奏效了，因为一切都是靠事实和法律说话。
 
-Let me read it out for you. This is what it says the Brazilian government is prohibited from making any public announcement concerning the existence subject matter or terms of the agreement or commenting on its relationship with Pfizer without the prior written consent of the company. In other words, Brazil cannot talk about the Pfizer deal until it gets an approval from Pfizer in writing. This basically is a private company, muzzling a government, and that’s not all. Pfizer also gets to decide who will give the shot. Suppose someone wants to donate Pfizer shots to Brazil. Can they do it? They cannot. The Pfizer agreement restricts Brazil from accepting donations, no one can donate Pfizer vaccines to this country. They cannot use the Pfizer shot until they buy it.
+同时我们也可以看到，中共国内哪怕像格力这样的大企业，也没有把人放在最重要的位置。他们宁愿让消费者冒着生命安全的风险使用有瑕疵的产品，也不愿意在第一时间告知相关单位，主动承担利润的损失，避免更多灾难的发生。究其根源，这是在中国共产党的领导下导致人们对生命的漠视和法律的无视！
 
-What happens if Brazil does not comply with these rules? The consequences will be serious. Let me quote from the report again.
+原文链接：[China-Based Gree Electric Fined $91 Million for Failure to Report Dangerous Dehumidifiers](https://www.theepochtimes.com/china-based-gree-electric-fined-91-million-for-failure-to-report-dangerous-dehumidifiers_4078975.html)
 
-If Brazil were to accept donated doses without Pfizer’s permission, it would be considered an uninsurable material breach of their agreement, allowing Pfizer to immediately terminate the agreement upon termination. Brazilwood required to pay this prize for any remaining contracted doses. So Brazil will have to cover the entire payment. And Pfizer won’t even have to supply the full consignment of Wuhan virus shots. What happens if someone accuses Pfizer of stealing its vaccine technology of intellectual property theft? The government will be forced to defend Pfizer it’s unbelievable.
+*翻译：Bruce Z#1641*
 
-We had to read this twice to let it sink in. And guess what, at least four countries have been forced to protect Pfizer’s patent, meaning these governments are defending Pfizer for intellectual property theft.
+*校对：clau*
 
-While the company is free to use anyone’s intellectual property, as it pleases, Columbia is one of these victims. I’ll explain with an example suppose a domestic vaccine maker or a pharma company in Colombia goes to court and then accused Pfizer of infringing their vaccine.
+* * *
 
-Who will be the one fighting that case? Not Pfizer, even though they accused party it’s not Pfizer and their lawyers will be in court. It will be the Colombian government. The government will have to defend Pfizer and if they lose it Government that we have to pay the settlement, not Pfizer. What did these governments want to get out of these tough contracts? They won’t be able to sue Pfizer at all. The matter will go to a secret panel of three private arbitrators. Pfizer will be tried as per New York law and not the laws of the land where it says vaccines. And these countries will pay heavily if they lose an arbitration. Pfizer can ask a government to shift control of state assets to compensate for losses, what kind of assets are we talking? About here? practically anything that a sovereign government owns foreign bank accounts, foreign investments, commercial properties, state owned airlines, even oil companies, Pfizer can take over any or all of these from a government basically everything happens on Pfizer terms once a country decides to buy its vaccine. Even the delivery of shots is decided by the company in Brazil in Albania and Colombia. Pfizer gets to decide the delivery timetable for vaccines and the countries will have to agree to whatever they’re given whenever they’re given. Pfizer of course gets to decide the price. It sets the delivery timelines, it accepts accountability for nothing, and in case someone sues the company, it’s the government that foots the bill for the damages, not Pfizer. There is no other way to describe Pfizer’s business practices.
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-This is vaccine terrorism.
 
-参考资料：
+编辑：【英国伦敦喜庄园编辑部】
 
-[Gravitas: Revealed: How Pfizer blackmails countries for shots](https://www.youtube.com/watch?v=nYIJxoh7gqw)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-[Wion Gravitas](https://www.wionews.com)
 
-[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
-
-[COVID-19 Data Explorer](https://ourworldindata.org/explorers/coronavirus-data-explorer?zoomToSelection=true&amp;time=2020-03-01..latest&amp;facet=none&amp;pickerSort=desc&amp;pickerMetric=total_vaccinations_per_hundred&amp;Metric=Vaccine+doses&amp;Interval=Cumulative&amp;Relative+to+Population=true&amp;Align+ou)
-
-（免责声明：本文只代表作者观点，跟GNEWS平台无关）
-
-#  
-
-编审：文敏   发布：文敏
 
  
 

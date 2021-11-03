@@ -2,26 +2,23 @@
 ---
 
 
-## 日本用伊维菌素替代疫苗获奇效
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1635466/)
+## 强生“新冠病毒疫苗”加大患脑血栓风险
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1635536/)
 
-#### 撰稿：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16359026941.png)[图片来源](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.gbimonthly.com%2F2020%2F04%2F66194%2F&amp;psig=AOvVaw2ZcMHciYBogEFJMWzojTri&amp;ust=1635988811390000&amp;source=images&amp;cd=vfe&amp;ved=0CAsQjRxqFwoTCLD0pq2E-_MCFQAAAAAdAAAAABAD)
-美国战友看到Hal turner radio show10月27日的报道《日本不再推广covid疫苗，转而使用伊维菌素》的消息，兴奋地推荐给郭先生看。因为郭先生是最早告诉全世界：中共病毒有解药，5种解药里其中就包括伊维菌素。
+采编：风云小哥   编译撰稿：文明(添草灭共)
 
-文章作者认为：美国正在发生的中共病毒灾难，是因为政府没有使用正确的治疗方法，他们极力推广疫苗，却丝毫没有使病毒得到缓解。与此同时，日本使用了伊维菌素在不到一个月的时间里就几乎消灭这种疾病。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-1.jpeg)图片来源：wlmt
 
-一个自称“leadstories.com”的小网站诽谤这篇文章的真实性。那么我们来看看：
 
-瑞典公共卫生署(Public Health Agency) 建议暂时停止在年轻人中使用Moderna疫苗；芬兰、丹麦和挪威也不再使用中共疫苗；上周四，芬兰加入了瑞典、丹麦和挪威的行列，建议在较年轻人群中不要使用Moderna公司的疫苗，理由是存在罕见的心血管副作用的风险；芬兰健康和福利研究所上周四表示，将暂停对30岁以下男性使用Moderna疫苗；瑞典监管机构上周三也采取了类似的措施。丹麦上周三表示，不会向18岁以下儿童提供Moderna疫苗。
+据美国保守派媒体《国家档案》11月1日报道，由美国著名【梅奥诊所】医生主导、【美国国立卫生院】资助的一项最新研究表明，接种了【强生公司】“新冠病毒疫苗”的人患“脑静脉窦血栓”的可能性提高了3.5倍。这是一种潜在的致命性脑部血栓疾病。其中，30至64岁的女性患这种威胁生命的疾病风险最高。
 
-欧洲药品管理局(European Medicines Agency)周四支持了这些举措。不过，在所有表现不俗的国家中，日本是绝对的超级明星。日本已经取消了疫苗，改用伊维菌素——一个月后，该国就几乎消灭了中共病毒。
+据悉，【梅奥诊所】是美国的一家私立非盈利性医疗机构，于2021年名列全球最佳医院榜单首席。这项研究已在《美国医学会杂志》上发表。尽管该研究结果显示接种“新冠病毒疫苗”将导致脑血栓风险明显增加，但有同行评审的研究人员坚持认为该疫苗造成的“脑静脉窦血栓”的“绝对风险”仍然很低。
 
-反观美国、澳大利亚和新西兰，这三个国家在应对病毒方面都遭遇了惨痛的失败，导致了令人震惊的自由与商业方面的损失。日本却在停止接种疫苗并开始使用伊维菌素之后结束了新冠疫情，事情还不清楚吗？
+* * *
 
-如果你们的政府拒绝采用日本政府类似的措施，它们会怎么说呢？它会说披露真相者是阴谋论者。如果你的政府不这么做，那是因为疫苗与公共利益无关。它们愿意通过疫苗实现它们的极权主义!
+校对编辑，发稿：硫酸羟氯喹64
 
-[文章来源](https://halturnerradioshow.com/index.php/en/news-page/world/japan-drops-vax-rollout-goes-to-ivermectin-ends-covid-almost-overnight)
+[原文链接：](https://nationalfile.com/study-jj-vaccine-recipients-3-5x-more-likely-to-develop-potentially-fatal-blood-clot-in-the-brain/)
 
  
 

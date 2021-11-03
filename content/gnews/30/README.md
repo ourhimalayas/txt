@@ -2,61 +2,34 @@
 ---
 
 
-## 里贾纳男子因不戴口罩被罚款且面临吊销驾照
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1635105/)
+## 日本要闻汇编 11月2日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1635218/)
 
-作者：RebelNews 
-翻译: HimaBoy
+#### 素材：东京樱花团｜GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-4.png)[*图片来源*](https://img.kyodonews.net/chinese/public/images/posts/19c22008dcba10cde7baa4ad5b1a024f/photo_l.jpg)
+1、[**岸田赴英出席COP26  将展示去碳化决心**](https://china.kyodonews.net/news/2021/11/89c7af2e7f1c-cop26-.html)
 
+共同社2日消息，为出席在英国格拉斯哥召开的《联合国气候变化框架公约》第26次缔约方会议（COP26）首脑级会议，日本首相岸田文雄2日乘专机启程。这是岸田10月就任后的首次外访。出发前，岸田向媒体表示，朝着实现亚洲整体温室气体净零排放，他将与英国首相约翰逊举行双边会谈，还在摸索与美国总统拜登首次直接对话的机会。
 
+2、[**岸田与拜登直接对话  确认加强同盟关系**](https://china.kyodonews.net/news/2021/11/257e5a1cb772--.html)
 
-如果你在商店里没有佩戴合适的布制面罩，你将得到一张 2,800 美元的交通罚单, 如果你不付钱，我们将没收你的驾照。
+日本首相岸田文雄2日在英国北部格拉斯哥与美国总统拜登直接会面进行了短时间会谈。两位首脑10月5日曾举行电话会谈，这是首次面对面交谈。双方确认将进一步强化同盟，为实现“自由开放的印度太平洋”而紧密合作，还同意在应对地区形势及气候变化方面合作。这是考虑到应对中国和朝鲜。
 
-这么说很疯狂，但在萨斯喀彻温省，这正是正在发生的事情。
+3、[**中国军机连日飞过冲绳  空自战机紧急升空**](https://china.kyodonews.net/news/2021/11/7fe05acb9514--.html)
 
-今天，我们听到了里贾纳店主凯利·乔治·保罗（Kelly George Paul）的故事，她因不戴口罩而成为地方当局的目标。
+日本防卫省统合幕僚监部1日发布消息称，发现2架中国巡逻机当天飞过冲绳本岛和宫古岛之间，在东海和太平洋往返飞行。10月31日，2架中国巡逻机和1架情报收集机也沿相同路线往返飞行。已连续飞行2天。日本航空自卫队战机均紧急升空应对。
 
-然而，正如凯利在本次采访中为我们详细介绍的那样，这不仅仅是一个面具。他的个人医疗状况是一个首要问题，也是他在这些方面采取行动的原因。凯利正在通过FightTheFines.com的公民法律援助获得帮助，在那里他正在获得免费的法律支持，以帮助他对抗这张罚单。
+4、[**日新版白皮书显示女员工和女学生自杀增多**](https://china.kyodonews.net/news/2021/11/359308880183.html)
 
-萨斯喀彻温省最近因所谓的新冠卫生措施而加大了对公民的攻击力度。他们是目前对居民不在脸上戴国家批准的织物执行严格的措施。
+日本政府2日在内阁会议上敲定了2021年版《自杀对策白皮书》。由于新冠疫情扩大的2020年女性自杀人数显著增长，在与过去5年平均数据（2015至2019年）比较分析后发现，按职业分，“被雇佣者及上班人群”增加381人和“学生”增加140人比较突出。
 
-为了让您快速了解该省的最新情况，请查看我们的草原记者凯利·兰姆 (Kelly Lamb) 的这份简短报告。
+5、[**日航本财年预计净亏1460亿日元**](https://china.kyodonews.net/news/2021/11/ffdc82cac20d-1460.html)
 
+日本航空公司2日发布业绩预期称，2021财年合并财报净利润将亏损1460亿日元（约合人民币82亿元）。亏损2866亿日元，连续两年呈现净亏，销售额预计较上期增长59.2%至7660亿日元。因新冠德尔塔堵住划裁员约2500人，到2022财年末使合并员工数降至约3.35万人。
 
-
-> Sask. Premier Scott Moe says it's not "fair" or "right" to "impose sweeping restrictions" on the majority of residents. Instead, he wants to "take away the personal freedoms" of the unvaccinated through vaccine passports.
-> 
-> HELP US: [https://t.co/oIPU6az6hO](https://t.co/oIPU6az6hO) [pic.twitter.com/RBg9BaxtiH](https://t.co/RBg9BaxtiH)
-> — Rebel News (@RebelNewsOnline) [October 25, 2021](https://twitter.com/RebelNewsOnline/status/1452745111050276881?ref_src=twsrc%5Etfw)
-
-
-
-天空之国的狂野时光，但今天我们潜得更深一些。
-
-在本次采访中，我们听取了凯利·乔治·保罗 (Kelly George Paul) 及其法律辩护的意见，以了解发生的事情以及未来法庭上将发生的事情。
-
-我知道有成千上万的加拿大人像凯利一样，他们一生都在了解自己的身体以及如何最好地照顾自己。不幸的是，在当今时代，政府宁愿告诉人们如何行动，而不是倾听他们的需求。
-
-來源：https://www.rebelnews.com/regina\_man\_fined\_2800\_faces\_drivers\_licence\_suspension\_over\_not\_wearing\_a\_mask
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+*编辑：东京樱花团 / 文小白*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
