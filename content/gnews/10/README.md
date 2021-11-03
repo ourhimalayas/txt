@@ -2,35 +2,28 @@
 ---
 
 
-## 疫苗强制令遭抵制，纽约市26家消防站因员工短缺而关闭
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1637192/)
+## 研究报告显示，伊维菌素是预防和治疗COVID-19的特效药
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1637239/)
 
-【简评：】*这些消防员很多都是911、桑迪飓风以及COVID的急救人员，而市长白思豪和他的政府毫不关心这些拯救生命的人们，纽约市每天大约有2200多名消防员和官员坚守在各个消防站，如果他们中近一半人被迫不上班的话，纽约市的消防站将减少30%～40%。这意味着什么？火灾不能及时处理，心脏骤停者不能被及时救治…种种灾难将呈现，我们马上就会看到文贵先生一再强调的灾难景象。*
+【简评：】*随着伊维菌素对COVID-19的预防和治疗效果已经是不争的事实，在印度北方邦、德里，在日本等很多国家和地方都已经有应用伊维菌素的成功案例，且基本上完全消灭了COVID-19疫情。面对种种成功的事实，美国疾病控制与预防中心（CDC）、福奇博士（Dr. Fauci）和FDA依然选择视而不见，并继续推广毒疫苗，视人民的生命如蝼蚁，他们已经完全为了利益背弃了自己的信仰和良心。*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-41-e1635971507129.png)图片来源：《网关专家》
+据《网关专家》记者Jim Hoft，2021年11月1日报道：
 
-据《新闻大全》记者Fran Beyer，2021年10月31日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-e1635969658391.png)2021年10月29日，纽约消防局救护车停在纽约市布鲁克林区NYC Health + Hospitals/Gotham Health停车场。
-图片来源：Getty Images /Michael M. Santiago
-**纽约市一些消防员拒绝接受该市的COVID-19疫苗强制接种令，导致人员短缺，进而26座消防站于周六关闭。**
+一份包含64项研究的新的国际报告显示，伊维菌素作为冠状病毒COVID-19预防药物的成功率为86%，且早期治疗中的成功率为67%。
 
-据《纽约邮报》报道，周六临时关闭的消防站占该市消防站总数量的 7.6%。
+这一结果与过去一年中报道的超过290多项关于羟氯喹的研究相呼应。
 
-纽约州众议员妮可·马利奥塔基斯 (Nicole Malliotakis，纽约消防局的五个消防站位于她所在的史坦顿岛选区) ，将关闭事件归咎于民主党市长白思豪 (Bill de Blasio)。
+尽管这些药物在同行评审研究中持续有效，但美国疾病控制与预防中心（CDC）、福奇博士（Dr. Fauci）和美国食品和药物管理局嘲笑使用这些药物治疗中共病毒COVID-19。到某个时候，他们将不得不把他们自己的傲骄放在一边，承认自己错了，并承认这可能是导致数百万人死于这种致命病毒的原因。
 
-众议员妮可发推说：“如果有人因为应急响应迟缓而死亡，那完全就是因为白思豪和他越权的行为。我希望这个傻瓜能尽快改变主意!”。
+《网关专家》对CDC的决定进行了大量报道，这些决定导致数千名美国人死亡。
 
-纽约消防局发言人吉姆·朗表示，消防站是“暂时停止服务”，而非永久性关闭，并声称该部门正在将消防员转移到需要他们的地方。
+**新的国际报告显示，伊维菌素在预防和降低死亡率方面表现非常出色。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-42-e1635971631142.png)图片来源：《网关专家》
+伊维菌素比其他药物效果更好。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-43-e1635971695784.png)图片来源：《网关专家》
+网址：https://ivmmeta.com，可以看到上述研究全文，供您细读。
 
-吉姆·朗表示：“目前局势仍然不稳定，我们将雇佣人力让消防站恢复服务，或者将其他站点迁移到该地区进行业务的覆盖”。
-
-据《纽约邮报》获得的一封电子邮件显示，纽约警察局紧急服务部门已请求长岛（Long Island）和该州北部地区的志愿消防员前来填补空缺的职位。
-
-**消防官员上周表示，他们准备关闭全市多达20%的消防站。**
-
-新闻媒体援引市政厅的数据报道称，纽约消防局消防员的疫苗接种率为72%，而整个部门的疫苗接种率为77%，周五是纽约市要求工作人员至少注射一剂疫苗的最后期限。目前，近4,000名纽约消防局员工仍未接种疫苗。
-
-据新闻媒体报道，**市政疫苗强制接种令预计将于周一开始实施，截至上周五晚间，所有市政机构中尚有26,600名市政工作人员仍未接种疫苗**，纽约警察局84%的人接种了疫苗，卫生部77%的人接种了疫苗。**那些一针都没有接种的人将被无薪停职。**
-
-原文连接：[https://www.newsmax.com/newsfront/nyfd-vaccinemandate-newyorkcity/2021/10/31/id/1042681/](https://www.newsmax.com/newsfront/nyfd-vaccinemandate-newyorkcity/2021/10/31/id/1042681/)
+原文连接：[https://www.thegatewaypundit.com/2021/11/wonder-drug-new-international-ivermectin-report-64-studies-shows-86-success-prophylaxis-67-success-early-treatment/](https://www.thegatewaypundit.com/2021/11/wonder-drug-new-international-ivermectin-report-64-studies-shows-86-success-prophylaxis-67-success-early-treatment/)
 
 （本文评论仅代表个人观点）
 
@@ -42,7 +35,7 @@
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉磯盤古農場歡迎您加入: (或點擊上方圖片）
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 

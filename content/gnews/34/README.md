@@ -2,23 +2,36 @@
 ---
 
 
-## 文贵爆料 3/11: “毁人不倦&#8221;的”圣人“朱镕基
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1636652/)
+## 疫苗强制令导致美国多地公共设施人员短缺
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636687/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-1.jpg)
-提到总理朱镕基，总让人有一种高山仰止的敬仰之情，然而，世人都错看了他。郭文贵先生在10月29日的大直播中说，朱镕基视百姓的生命如草芥，是大秦赵高和李斯的综合体。
+作者：美东香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+10月30日，据报道称，由于新冠疫苗强制令造成的人员短缺，纽约26家消防公司已经在全市范围内停业。纽约市民担心，这种情况会带来灾难性后果。
 
-房地产税什么时候开始？房地产税是真正的是从93年到95年就开始讨论，当时叫中房，当时中房是代表中国房地产的政策，然后南部叫深房，叫北有中房、南有深房。朱镕基太王八蛋了。中国老百姓当年下岗的时候啊，是带着老婆卖淫的、带着闺女卖淫的，报告他以后，朱镕基是哈哈大笑的。他说我们还再能稳定个十年、二十年，就这个畜生。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-3.jpeg)
 
-朱镕基当时就说了，房地产税是解决所有中国历史上经济问题的最重要的标志，这是我朱镕基一九八七年讲的，你们去查查啊，说征房地产税之日就是中国经济所有历史问题都解决了。在这之前就卖地，叫地方债务，而且炒作、洗钱、再洗钱，然后拿着这些热钱到外国去并购。我跟吴仪聊了七个小时。她说到朱镕基的时候，她说，朱镕基这个家伙心里有个魔，我越看他越像当年的毛泽东附体，她说他把老百姓死亡当成兴奋剂。
+同时，在洛杉矶县，数千名拒绝新冠疫苗强制令的副警长和文职人员也正面临停职的境况。该县警长称，鲁莽地执行新冠疫苗强制令将导致全县44%的警力流失，这会将公共安全置于危险之中。
 
-郭先生说，朱镕基这个家伙是个中国邪恶的赵高和李斯综合体啊！
+另外，在亚利桑那州，图森水务公司的一名员工声表示，该公司正在因新冠疫苗强制令而“失去员工”。据了解，该公司不得不从其他地区和其他部门抽调人员，用以帮助专门负责监督水质和饮用水参数的部门保持运营。
 
-参考链接：
+此前，郭文贵先生多次在直播中示警，疫苗灾难将导致全球基础设施大崩溃。而今，事实证明，这种情况已经发生在全美乃至全世界各地。
 
-[2021年11月03 日 文贵大直播](https://gettr.com/streaming/pfyckddba1)
+参考链接: [Mandate Meltdown: 26 NYC Firestations Shuttered, LA Sheriff Warns Of ‘Mass Exodus’, Tucson Water District Faces ‘Staff Shortage’](https://www.zerohedge.com/covid-19/mandate-meltdown-26-ny-firestations-shuttered-la-sheriff-warns-mass-exodus-tucson-water)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/3/2021 10:35 PM (UTC)`
+
+NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共政府负责!我们必须尽全力解放香港，支持香港人，我与你们站在一起！<br/><br/>A Declaration from NBA player Enes Kanter：We must act. We must hold Chinese government accountable! We must do everything we can to help free Hong Kong! We must support Hong Kongers. I stand with you! <br/>
+![img](https://media.gettr.com/group9/getter/2021/11/03/22/35/a2be5e56-a2bd-f348-9b75-0fbc4d8b43e5/out.jpg)
+
+---
+
 `@miles 11/3/2021 10:15 PM (UTC)`
 
 11/1/2021 【HCoin To the Moon Celebration】 The wealth of Himalaya  Reserve belongs to our grassroots people and don’t forget about our mission of taking down the CCP.<br/><br/>11/1/2021 【HCoin to The Moon庆典】喜联储的财富属于民天下，永远不要忘记我们的使命是消灭共产党<br/>
@@ -289,13 +296,6 @@ Hcoin To The Moon <br/><br/>词：威廉王<br/>曲：唐平<br/>编曲： SFG<b
 
 杰森·米勒：大型科技公司正在成为以左翼审查制度和反美国主义而闻名的品牌，Facebook的改名是其末日的开始<br/><br/>Jason Miller: Big techs are becoming brands that are best known for left-wing censorship and anti-Americanism. Facebook's name change is the beginning of its end.
 ![img](https://media.gettr.com/group39/getter/2021/10/31/01/07/a7c5a560-dacc-5f54-8a36-e2d19a747c60/out.jpg)
-
----
-
-`@miles 10/30/2021 11:16 PM (UTC)`
-
-10月30号：尊敬的战友们好，全世界都在．深呼吸的等待着两件事儿，共产党是否攻打台湾？喜币上市以后会是什么样的情况？
-![img](https://media.gettr.com/group23/getter/2021/10/30/23/16/3a428f3f-8581-09a5-6d63-794f6ee8a0fe/out.jpg)
 
 ---
 

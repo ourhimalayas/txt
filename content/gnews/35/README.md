@@ -2,25 +2,23 @@
 ---
 
 
-## 坎特国会山前声援中国人权 指责NBA保持沉默
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636651/)
+## 中共要求3-11岁儿童在12月底前完成新冠疫苗接种
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636671/)
 
-作者：澳喜农场 – 在远方
+作者：香草山 Noemi
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-此前，美国NBA球员坎特曾为西藏人权发声。10月30日，坎特于华盛顿国会山下再次参加为中国人权声援的集会，替新疆受打压的维吾尔族和其他少数族裔再度向世界发出呐喊。
+在当地时间10月30日的新冠疫情新闻发布会上，中共国家卫健委疾控局副局长吴良有要求在12月底完成墙内3-11岁儿童的全程新冠疫苗接种。 目前，这一规定正在中共国包括北京、上海、广东在内的十余个省市中强制推行。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide10-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide12-1.jpeg)
 
-集会上，坎特身穿印有四面旗帜的T恤，分别是代表维吾尔人的蓝旗，香港行政区区旗，西藏雪山狮子旗和东蒙古人民自治政府的旗帜。坎特在发言时并没有只局限于新疆地区，他也鼓励包括西藏人、台湾人、香港人在内的所有人团结在一起，为自由努力。
+消息称，此举引发了墙内民众的广泛质疑。他们指出，中共当局没有给出儿童接种新冠疫苗的数据报告，也没有披露这些疫苗是否已经完成了三期试验。同时，他们质问当局，疫苗造成的各类副作用是否有人负责。更有民众表示，宁可让孩子休学，也不会接种新冠疫苗。
 
-另外，坎特指出，对于中共在人权上的恶行，NBA居然一直保持沉默。为此，坎特还批评说，作为NBA运动员，他为NBA感到悲哀和羞耻。
-
-参考链接: [NBA球员坎特加入中国人权集会 国会山下斥责NBA保持沉默](https://www.rfa.org/mandarin/yataibaodao/shaoshuminzu/wy-10302021190844.html)
+参考链接: [中疾控答21记者：3-11岁人群接种新冠疫苗，要在知情、同意的基础上](https://m.21jingji.com/article/20211030/herald/4c9ca32989cac1708076ac67b69822f9.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
 总编：飞虹
-编辑：Irene木木
+编辑：珈沅
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

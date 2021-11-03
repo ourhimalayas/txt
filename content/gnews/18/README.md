@@ -2,12 +2,20 @@
 ---
 
 
-## 邪恶势力制造全球混乱、攫取利益和权力，奴役全人类
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1637039/)
+## 西媒头条 — 第101期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1637064/)
 
-10/28/2021 泽连科医生：先锋集团和贝莱德是所有行业、媒体、学术界和政治界的股东。他们通过一些基金会，在全世界制造混乱以攫取商业利益和权力。只有受到启示的神圣力量才能战胜这个歌利亚。而我对即将发生的救赎非常非常乐观，它将重新平衡我们的黑暗世界。
+**制作：蚂蚁兄弟**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/xm1103.001.jpeg)
+
+***发稿: 信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+
+
 
  
 
