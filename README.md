@@ -15,125 +15,125 @@
 
 ---
 
-### [新泽西州的州长选举结果被推迟公布](/content/gnews/1/README.md)
+### [秘翻在线： 五角大楼报告说中共曾担心美国在2020年大选前开战](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [文·贵天成——文贵先生谈“房产税”（一）](/content/gnews/2/README.md)
+### [疫情见缓 急诊室爆满为哪般](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [新泽西州的州长选举结果被推迟公布](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [文·贵天成——文贵先生谈“房产税”（一）](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [张高丽玩处女,中共输掉美国选举,喜币交易量何时放开](/content/gnews/3/README.md)
+### [张高丽玩处女,中共输掉美国选举,喜币交易量何时放开](/content/gnews/5/README.md)
  ` NewFOC`
 
-### [中共病毒及其疫苗全球超限战中的典型案例（十三）](/content/gnews/4/README.md)
+### [中共病毒及其疫苗全球超限战中的典型案例（十三）](/content/gnews/6/README.md)
  ` 纽约香草山MOS01`
 
-### [三个标志性事件发生后喜币的价格才真正地出来](/content/gnews/5/README.md)
+### [三个标志性事件发生后喜币的价格才真正地出来](/content/gnews/7/README.md)
  ` NewFOC`
 
-### [西班牙变更法律允许出版商分享收入后，谷歌新闻将回归](/content/gnews/6/README.md)
+### [西班牙变更法律允许出版商分享收入后，谷歌新闻将回归](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [北交所备具，挑战美国](/content/gnews/7/README.md)
+### [北交所备具，挑战美国](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [每日快报：共和党人赢得弗吉尼亚州州长竞选](/content/gnews/8/README.md)
+### [每日快报：共和党人赢得弗吉尼亚州州长竞选](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [历史上的11月1日](/content/gnews/9/README.md)
+### [历史上的11月1日](/content/gnews/11/README.md)
  ` 纽约香草山MOS01`
 
-### [【温哥华扬帆农场】中共CCP向灭亡的道路上狂奔 出口将面对较高关税及其它优惠被取消！](/content/gnews/10/README.md)
+### [【温哥华扬帆农场】中共CCP向灭亡的道路上狂奔 出口将面对较高关税及其它优惠被取消！](/content/gnews/12/README.md)
  ` 温哥华扬帆农场`
 
-### [币圈新闻动态：HCN价格突破10HDO，流通市值突破100亿美元](/content/gnews/11/README.md)
+### [币圈新闻动态：HCN价格突破10HDO，流通市值突破100亿美元](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [GTV新闻访谈简报|2021年11月3日晚](/content/gnews/12/README.md)
+### [GTV新闻访谈简报|2021年11月3日晚](/content/gnews/14/README.md)
  ` 纽约香草山MOS01`
 
-### [维加诺主教发布公开信反对接种疫苗](/content/gnews/13/README.md)
+### [维加诺主教发布公开信反对接种疫苗](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [雅典娜时报-第102期](/content/gnews/14/README.md)
+### [雅典娜时报-第102期](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [11/3/2021 文贵直播：张高丽是想当皇帝的人，他和习有个人恩怨，习非弄死他不可](/content/gnews/15/README.md)
+### [11/3/2021 文贵直播：张高丽是想当皇帝的人，他和习有个人恩怨，习非弄死他不可](/content/gnews/17/README.md)
  ` 秘密翻译组-北美组`
 
-### [美联邦传播委员会以安全理由撤销中国电信公司许可](/content/gnews/16/README.md)
+### [美联邦传播委员会以安全理由撤销中国电信公司许可](/content/gnews/18/README.md)
  ` 纽约香草山MOS01`
 
-### [捷克3000多新增病例都已接种中共病毒疫苗仍然感染](/content/gnews/17/README.md)
+### [捷克3000多新增病例都已接种中共病毒疫苗仍然感染](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [怀疑抗体数量下降，医务人员连续4次接种中共病毒疫苗](/content/gnews/18/README.md)
+### [怀疑抗体数量下降，医务人员连续4次接种中共病毒疫苗](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [五角大楼报告：中共国扩张核武库超预期](/content/gnews/19/README.md)
+### [五角大楼报告：中共国扩张核武库超预期](/content/gnews/21/README.md)
  ` 美国政要直译推`
 
-### [11/3/2021 郝海东：十岁左右的郭晶晶在抽屉竟然放了避孕套！](/content/gnews/20/README.md)
+### [11/3/2021 郝海东：十岁左右的郭晶晶在抽屉竟然放了避孕套！](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [郭文贵精品视频-中共史诗级的金融海啸将席卷全球](/content/gnews/21/README.md)
+### [郭文贵精品视频-中共史诗级的金融海啸将席卷全球](/content/gnews/23/README.md)
  ` 澳喜农场`
 
-### [华盛顿DC法官对抗拜登强制令，保护未接种原告免遭解职](/content/gnews/22/README.md)
+### [华盛顿DC法官对抗拜登强制令，保护未接种原告免遭解职](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [澳大利亚州取消对接种疫苗的居民的所有限制](/content/gnews/23/README.md)
+### [澳大利亚州取消对接种疫苗的居民的所有限制](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [安大略省政府将停止对医护人员的强制接种措施](/content/gnews/24/README.md)
+### [安大略省政府将停止对医护人员的强制接种措施](/content/gnews/26/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [共和党赢得弗吉尼亚州州长席位](/content/gnews/25/README.md)
+### [共和党赢得弗吉尼亚州州长席位](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国北京突现日常必需品恐慌性抢购潮](/content/gnews/26/README.md)
+### [中共国北京突现日常必需品恐慌性抢购潮](/content/gnews/28/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [加拿大魁北克省政府放弃强制医护接种疫苗](/content/gnews/27/README.md)
+### [加拿大魁北克省政府放弃强制医护接种疫苗](/content/gnews/29/README.md)
  ` 加拿大扬帆农场多伦多Gnews组 Himalaya Sailing Farm Toronto(CA)`
 
-### [举报：研究人员称辉瑞疫苗试验存在数据完整性问题](/content/gnews/28/README.md)
+### [举报：研究人员称辉瑞疫苗试验存在数据完整性问题](/content/gnews/30/README.md)
  ` MG FARM`
 
-### [美国弗吉尼亚州选举首位女性非裔共和党州长](/content/gnews/29/README.md)
+### [美国弗吉尼亚州选举首位女性非裔共和党州长](/content/gnews/31/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [受强制接种政策影响加航部分员工被无薪停职](/content/gnews/30/README.md)
+### [受强制接种政策影响加航部分员工被无薪停职](/content/gnews/32/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [11/3/2021 文贵直播：最近的彭帅事件证明了文贵四年来关于中共邪恶的爆料](/content/gnews/31/README.md)
+### [11/3/2021 文贵直播：最近的彭帅事件证明了文贵四年来关于中共邪恶的爆料](/content/gnews/33/README.md)
  ` 秘密翻译组-北美组`
 
-### [因患疫苗血栓症台湾受害者获得高额赔偿](/content/gnews/32/README.md)
+### [因患疫苗血栓症台湾受害者获得高额赔偿](/content/gnews/34/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [全接种疫苗的洛杉矶市长病毒检测呈阳性](/content/gnews/33/README.md)
+### [全接种疫苗的洛杉矶市长病毒检测呈阳性](/content/gnews/35/README.md)
  ` HimalayaRussia`
 
-### [11/3/2021 文贵直播：弗吉尼亚州长选举将改变世界的命运](/content/gnews/34/README.md)
+### [11/3/2021 文贵直播：弗吉尼亚州长选举将改变世界的命运](/content/gnews/36/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共国加剧对网络媒体的审查力度](/content/gnews/35/README.md)
+### [中共国加剧对网络媒体的审查力度](/content/gnews/37/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [特鲁多对扼杀加拿大石油和天然气的灾难性承诺](/content/gnews/36/README.md)
- ` MG FARM`
-
-### [蓬佩奥将参选下届美国总统](/content/gnews/37/README.md)
+### [蓬佩奥将参选下届美国总统](/content/gnews/38/README.md)
  ` 日本东京方舟农场`
 
-### [一树梨花压海棠——张高丽和嫩草的故事](/content/gnews/38/README.md)
+### [一树梨花压海棠——张高丽和嫩草的故事](/content/gnews/39/README.md)
  ` 秘密翻译组-原创组`
 
-### [聚焦：高盛预测以太坊今年年底前再涨80%](/content/gnews/39/README.md)
+### [聚焦：高盛预测以太坊今年年底前再涨80%](/content/gnews/40/README.md)
  ` 丁过`
-
-### [文贵大直播 11/03 喜币的铸币权、无国界流通价值还远未显现](/content/gnews/40/README.md)
- ` 秘密翻译组-原创组`
 
 ### [2021/11/02 墙内世界](/content/gnews/41/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

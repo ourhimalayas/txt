@@ -2,25 +2,32 @@
 ---
 
 
-## 中共国加剧对网络媒体的审查力度
-` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1637450/)
+## 全接种疫苗的洛杉矶市长病毒检测呈阳性
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1637461/)
 
-原文采编：文莱   编译撰稿：文所未闻
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-10-edited.jpg)图片来源：HLWL
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/L.jpg)jonathandesverneyusanews.com
+我们以很不悦悦（文贵先生常用语）的心情宣布，洛杉矶市长加塞蒂（Garcetti），在完全接种疫苗的情况下，中共病毒检测呈阳性，进入隔离状态。
 
+《门道专家》报道说，周三（11月3日），完全接种了疫苗的洛杉矶市长埃里克·加塞蒂（Eric Garcetti）对中共病毒检测呈阳性，随后被隔离。
 
-据加拿大自媒体《后千禧年》11月2日报道，中共国近期修改了刑法，将诽谤所谓“中共国烈士和英雄”的行为定为刑事犯罪。该项新法律自今年3月起已经生效。
+回想一下，加塞蒂去年在封城高峰期，禁止人们在沙滩上晒日光浴。
 
-该法律由“中共国家网络管理局”来落实执行，其任务是控制和监测该国互联网。同时，该机构设立了举报热线，并公布了一份禁止中国人讨论的十大“谣言”清单，包括关于“红军长征”和“朝鲜战争”等政治敏感话题。。
+加塞蒂还断了违反其封锁规定的居民住宅的水和电。
 
-在中共国，类似“天安门大屠杀”这样的话题已被其网管局严令封杀，该项新法已将中共政权的审查制度推到一个更严酷的水平。自今年三月生效以来，已有多人因该新法而被当局刑事起诉。
+现在，尽管他有戴口罩、用消毒剂，以及有疫苗接种强迫症的习惯，他还是感染了中共病毒。
 
-* * *
+（全文完）
 
-校对编辑，发稿：硫酸羟氯喹64
+还好，没有看到加塞蒂像其他极左人士那样对接种疫苗的追捧。比如尼尔·卡武托（Neil Cavuto），那位在去年总统大选时，亚利桑那州还没有计票完成的情况下，就宣布拜登获胜的福克斯电视节目主持人，几周前，完全接种疫苗的他测试呈阳性，竟然恬不知耻地宣扬，“我若是没有接种疫苗，情况会更糟……”
 
-[原文链接：](https://thepostmillennial.com/china-bans-online-scrutiny-of-national-heroes-and-communist-figures)
+无独有偶，上周白宫新闻首席秘书普萨基测试呈阳性，以同样的腔调夸赞疫苗，“我得感谢疫苗，使我的症状减轻……”从这些人统一口径的表现来看，很容易让人猜想是打疫苗后脑残的一种表现形式吗？不去过多地谴责他们了，毕竟也是受害者，祝他们早日康复。
+
+原文链接：
+
+[https://www.thegatewaypundit.com/2021/11/fully-vaccinated-la-mayor-garcetti-tests-positive-covid-goes-isolation/](https://www.thegatewaypundit.com/2021/11/fully-vaccinated-la-mayor-garcetti-tests-positive-covid-goes-isolation/)
 
  
 

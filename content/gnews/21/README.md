@@ -2,41 +2,61 @@
 ---
 
 
-## 郭文贵精品视频-中共史诗级的金融海啸将席卷全球
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1637565/)
+## 五角大楼报告：中共国扩张核武库超预期
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1637607/)
 
-撰稿：澳喜cindy
+众议员帕特·法伦： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 正在不知疲倦地破坏美国和我们的盟友。 这届政府需要什么才能醒来？ 【附国会山报：五角大楼报告：中共国扩张核武库超预期】
 
-我们知道经营生意以合理的融资比率达到预期的收益是正常的。也就是融来的资金所能创造出来的价值不但能够抵掉融资成本还要有相当的盈利，这才是正常的逻辑。然而中共很多房地产公司、保险公司如：恒大地产、融创地产、大连万达、平安保险还有海航集团等用假账大量贷款、海外并购，把国内的钱洗到海外。他们这样做不是做生意，也不是贷款，这是在盗取国家的财富。
 
-在融资方面他们采用的手段大多都是：
 
-1.在国内高息揽储20%-30%利息。
+> China is working tirelessly to undermine the United States and our allies. 
+> 
+> What will it take for this Administration to wake up? [https://t.co/jspHV4xPWz](https://t.co/jspHV4xPWz)
+> — Rep. Pat Fallon (@RepPatFallon) [November 3, 2021](https://twitter.com/RepPatFallon/status/1455979843762507780?ref_src=twsrc%5Etfw)
 
-2.没有任何抵押物只凭掌权者的一封信“信托”就可轻而易举的获得国内银行几百亿几千亿贷款。
 
-3.以各种名目到国际上的养老基金、保险基金忽悠骗钱，或到欧美国家的上市公司融资。
 
-恒大地产是中共国众多公司的典型代表。恒大欠100多家中共国银行和100多家其他金融机构的债，债务价值3000亿美元。近期的巨额美元债利息支付危机，各国都极其恐惧，特别是日本、德国、英国与中共深度合作的资金占他们自己国家的外汇比率非常之高。中国房地产海外融资至2020年底总额至少13.34万亿美元 。在蓝金黄和巨大的利益面前，所有人都无视这些企业和基金的虚假报表，其结果就是全球众多发达国家的养老金、医疗保险基金被套牢。
+众议员吉姆·英霍夫： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 继续冷酷地扩张其核武库。一份新的国防部报告称，到 2030 年，中国可能拥有超过 1,000 枚核武器。然而，美总统拜登仍然不关心——就像在阿富汗一样，他危险地与外界脱节！ 更多请阅读 [http://wsj.com/articles/china](https://t.co/nwkmu21OR3?amp=1)… 【附华尔街日报和CNN的两则新闻】
 
-恒⼤房地产真正的利润仅是10-15%，而恒⼤借钱的利息却是20-30%，还有令人乍舌的高负债率。恒大净负债率 99.7%、融创地产 86.8%、绿地120%。所以他们的投资盈利模式完全不能平衡他们的杠杆。
 
-中共市政当局利用自己的政府信誉轻而易举的就可以借到钱。地方官员试图创造更高的GDP增长率，提升其城市在全国的地位，不考虑项目投资收益，也不考虑所建项目是否有需求，不顾一切开始了大都市竞相建造摩天大楼、六车道高速公路、国际机场和酒店、庞大的购物区和游乐设施、体育场。当然不排除大量利益进了个人的腰包。 导致中共地方债总额高达15万亿美元。
 
-中共通过独家垄断土地供应，推高地价，回收了超发的120万亿美元。制造了人类历史上最大的房地产泡沫。房地产企业又用这个虚高的房价做抵押来融资，地方政府用此发地方债，发债对象不止是中国人民，还有全球各国的养老金、保险金、金融机构。抵押得来的钱却被盗国贼家族掏空，资金转移，债留中国。
+> China’s relentless expansion of its nuclear arsenal continues unchecked. A new [@DeptofDefense](https://twitter.com/DeptofDefense?ref_src=twsrc%5Etfw) report says China is likely to have &gt;1,000 nukes by 2030. Yet [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) remains unconcerned – just like with Afghanistan, he’s dangerously disconnected!
+> More ➡️ [https://t.co/HdOvQncJww](https://t.co/HdOvQncJww) [pic.twitter.com/UBf3YEBkO5](https://t.co/UBf3YEBkO5)
+> — Sen. Jim Inhofe (@JimInhofe) [November 3, 2021](https://twitter.com/JimInhofe/status/1455993437090635780?ref_src=twsrc%5Etfw)
 
-这几十年的中国房地产行业的高速发展，供给远远大于实际需求，国家、地方没有全盘的规划，只要能搞到指标搞到钱也不考虑刚需人口的需求量和实际购买力、经济效益如何，就盲目上马。导致“鬼城”遍地。完全赌的是经济永远向上发展，那么就永远有投机客买进炒房。房子价格年年升高，投机买入资金源源不断进入市场，房企的收支还能勉强维持。但是近3年的中美贸易战使中国整体经济环境改变，大量外企外迁失业人数增加，中共病毒和疫苗生化超限战对世界经济前所未有的打击，各国经济都出现负增长。更使国内企业呈现倒闭潮加剧大批人员失业，导致各种消费的极度萎缩。以前地方政府都是卖地为主要财政收入。目前房地产面临崩盘，房子都没人愿意买。政府卖地也就自然没有人买了。必然产生财政资金荒。据说各地方连公务员的薪水都告急，就更不要说还巨额外债了，结局只有一个，赖账破产。
 
-欧美、日本房地产市值总和不到90万亿美元，而中国已经90万亿。中国房地产市值占GDP500%，而日本房地产危机爆发时仅300%，美国08年160%。经济运行是有其规律可循的。所以中国的房地产泡沫定会爆破，并将牵连到几十个上下游产业及银行、保险、金融机构的崩溃。中国将会回到几十年前的经济惨状。
 
-而被中共国的“巨大利益”诱惑而来的西方国家的养老金和保险金目前超过50%都已经蒸发不见了。中共已经把全球绑架了！
+众议院军事委员会共和党： 委员迈克·罗杰斯说“要么美国挺身而出，以前所未有的国防现代化来迎接这一挑战，要么我们将世界舞台让给 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)。如果我们不改变方向，那就停止担心会侮辱 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 吧，该立刻开始担心的是怎么生活在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 统治之下”众议院军事委员会共和党： “这份报告应该够清楚让拜登政府看到这一段时间以来不言而喻的事情——中共国构成了一个真正且迫在眉睫的威胁。为我们自己的军事现代化而竭尽全力已不再是一种选择。” 【附罗杰斯议员就中共国军力报告所发的声明】
 
-中共的房地产企业和地方政府债务隐秘、不透明、复杂庞大，很难准确摸清其底数，问题越来越突出。其宛如脱缰的野马，中央也无法控制。企业和政府靠“借债还旧”过日子，新发债务没有转化为投资，出现了负债杠杆率和经济增速的“背离”现象。中国巨大的房地产泡沫和高地方债务极有可能首先触发金融核爆进而快速的波及到全世界，一场史诗级的金融灾难不可避免。
 
-（本文观点纯属个人与Gnews无关）
 
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1.jpg)
+> "Either the US rises to meet this challenge w/ unprecedented defense modernization, or we cede the world stage to the CCP. It is past time to stop worrying about insulting China & start worrying about living under CCP rule if we don’t change course immediately." [@RepMikeRogersAL](https://twitter.com/RepMikeRogersAL?ref_src=twsrc%5Etfw) [pic.twitter.com/y6SleT7KYC](https://t.co/y6SleT7KYC)
+> — Armed Services GOP (@HASCRepublicans) [November 3, 2021](https://twitter.com/HASCRepublicans/status/1455989805771329538?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·华尔兹： 如果历史重演，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 将通过在北京举办 2022 年奥运变得胆大妄为而台湾将受到威胁。 俄罗斯在 2014 年奥运后两个月入侵乌克兰。国际奥委会必须将比赛搬离,否则我们必须抵制 [#北京冬奥会](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A?src=hashtag_click)。 【转推：前白宫国安顾问布莱恩警告说中共国可能会在冬奥会后2024美总统大选前对台湾动武】
+
+
+
+> If history repeats itself, the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) will be emboldened by hosting the 2022 Olympics in Beijing and Taiwan will be threatened.
+> 
+> Russia invaded Ukraine two months after the 2014 Olympics. The IOC must move the games or we must [#BoycottBeijing2022](https://twitter.com/hashtag/BoycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/AlzZu52dcG](https://t.co/AlzZu52dcG)
+> — Rep. Mike Waltz (@michaelgwaltz) [November 3, 2021](https://twitter.com/michaelgwaltz/status/1456010797893636097?ref_src=twsrc%5Etfw)
+
+
+
+众议员肯·巴克： 真正的问题是——该节目的制作人是如何允许使用在法律上不准确的地图的？国际法庭驳回了 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对南中国海的主张。好莱坞对 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的要求持续效忠令人非常担忧。 【附路透社报道：（线上影院）Netflix 在菲律宾抱怨中国地图（包含南中国海）后撤掉了谍战剧】
+
+
+
+> The real question is — how did the show’s producers allow a legally inaccurate map to be used? International courts have denied China’s claims over the South China Sea. Hollywood’s continued allegiance to the CCP’s demands is wildly concerning.[https://t.co/SqHbgCZCIe](https://t.co/SqHbgCZCIe)
+> — Rep. Ken Buck (@RepKenBuck) [November 3, 2021](https://twitter.com/RepKenBuck/status/1455996866575966213?ref_src=twsrc%5Etfw)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
