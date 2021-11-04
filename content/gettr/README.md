@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/4/2021 11:26 AM (UTC)`
+
+11/3/2021 Miles Guo: It is too late for the CCP to impose a property tax, and this will not only lead to the downfall of the CCP but will also devastate the entire country! I have said long ago that houses are for living instead of speculation and profit-making! The CCP's plan to delay its economic collapse by imposing a property tax is doomed to fail!<br/><br/>11/3/2021 文贵直播：中共征收房产税为时已晚，亡党亡国！文贵早就说过，房子是来住的，不是来炒的！中共借征收房产税以延缓其经济崩溃的计划注定会失败<br/>
+![img](https://media.gettr.com/group35/getter/2021/11/04/11/26/b622f1fe-8afe-17f1-9ba1-5dec7e0665e6/out.jpg)
+
+---
+
 `@miles 11/4/2021 10:48 AM (UTC)`
 
 11月4号，未来的37天内．会是爆料革命．政治，经济．革命队伍．一个新的关键增长期！我们已经做到了．让新中国人在每天早上，从一个新的．真的．快乐的，美好的梦中醒来来！从健康的．充满激情的，愉悦的……希望中开始新的一天！共产党你👉完了……感谢上天万佛万神对新中国联邦人的眷顾和恩赐。🙏🙏🙏🙏🙏🙏🙏🙏🙏❤️❤️❤️
@@ -287,13 +294,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 11月1号：这个伟大的日子确实让人太激动了，七哥现在边看直播！边吃着家常饭．最爱吃的还是家常饭，最爱穿的还是粗布衣！永远不会改变的东西……就是我们来自草根！
 ![img](https://media.gettr.com/group27/getter/2021/11/01/11/18/edba00ad-abb4-8a61-c603-d27b49328f84/out.jpg)
-
----
-
-`@miles 11/1/2021 11:13 AM (UTC)`
-
-Hcoin To The Moon <br/><br/>词：威廉王<br/>曲：唐平<br/>编曲： SFG<br/><br/>自由 多么熟悉的字眼<br/>却不知不觉 离我越来越遥远<br/>曾经那个意气风发的少年<br/>为了生存只能拼命挣钱<br/><br/>财富 是他们画下的大饼<br/>虚幻背后发现全都是陷阱<br/>经济各种暴雷  房价崩的稀碎<br/>抬起头 前路一片漆黑<br/><br/>welcome to the world<br/>to the new world<br/>welcome to the world <br/>Hcoin to the moon <br/><br/>welcome to the world<br/>to the new world<br/>welcome to the world <br/>Hcoin to the moon <br/>Hcoin to the moon <br/>Hcoin to the moon <br/><br/>安全 最前沿加密技术出手<br/>（Set me free）<br/>让你的财富 没人能夺走<br/>稳定币 浮动币 设计天下无双<br/>（I can see）<br/>还有二十帕 黄金挂钩<br/>摧毁 不停压榨你的机器<br/>（It’s our time）<br/>从此不再做金钱的奴隶<br/>喜联储的大门 永远敞开向你<br/>（Future‘s bright）<br/>前途光明  就在喜币<br/><br/>welcome to the world<br/>to the new world<br/>welcome to the world <br/>Hcoin to the moon<br/><br/>welcome to the world<br/>to the new world<br/>welcome to the world <br/>Hcoin to the moon<br/><br/>Hcoin to the moon<br/>Hcoin to the moon<br/>Hcoin to the moon<br/>Hcoin to the moon
-![img](https://media.gettr.com/group42/getter/2021/11/01/11/31df0ff6-c806-f7e0-aa46-61209a980746/out.jpg)
 
 ---
 
