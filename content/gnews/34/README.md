@@ -2,10 +2,10 @@
 ---
 
 
-## 郭文贵：任何人无权拒绝贸易货币下的喜支付体系
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639288/)
+## 美陆军医生：一早上因疫苗伤害，不得不让3名飞行员停飞
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639424/)
 
-11/1/2021 【HCoin to The Moon庆典】郭文贵先生：任何人无权拒绝贸易货币下的喜支付体系。
+11/02/2021 在美国参议员罗恩·约翰逊主持的小组讨论中，美国陆军外科医生特蕾莎·朗说：“一个早上之内，由于疫苗导致的伤害，我不得不让3名飞行员停飞”。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

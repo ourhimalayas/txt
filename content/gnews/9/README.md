@@ -2,87 +2,165 @@
 ---
 
 
-## 加拿大魁北克&#8212;不再对现有的医疗工作者强制接种疫苗，新员工除外
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1639676/)
+## 中共开征房地产税是中共走向北朝鲜与人类文明对决的开始
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1639812/)
 
-翻译：真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-04-171016.png)图片来源：网络
-来自CTV NEWS  星期三十一月三日的新闻报道
+[https://gtv.org/video/id=61846260adfd99590c3330c7](https://gtv.org/video/id=61846260adfd99590c3330c7)
 
-蒙特利尔——魁北克省卫生部长周三表示，面对急剧减少的服务，魁北克省决定不再强迫已经雇用的医护人员接种 COVID-19 疫苗。
+所有地方(政府)上的地方债要爆雷了
+Todas las deudas locales (gubernamentales) están a punto de explotarse
 
-卫生部长克里斯蒂安·杜贝 (Christian Dubé) 表示，如果继续进行 11 月 15 日截止日的规定，则该省将面临减少500 项服务或调整。
+卖地卖不出去了
+Ya no pueden vender terrenos
 
-他说与之前的计划不同，现在只要求新员工接种疫苗，尽管随着时间的推移，该省将努力用接种疫苗的工人替代这些工人。
+现在回过头来
+Ahora vienen
 
-杜贝说，目前那些没有接种疫苗的人将接受“严格”的检测系统，每周进行 3 次检测，拒绝者将被无薪停职。未接种疫苗的人也不会获得 COVID-19 奖金或保留奖金。
+来割你的韭菜
+Y cortan tus puerros
 
-“失去 8,000卫生人员将对我们的卫生医疗系统产生毁灭性的后果，”杜贝说，“在这 8,000 名未接种疫苗的工作人员中，有 5,000 名与患者有直接接触，其中包括 1,200 名护士和 1,300 名护工，其中许多人在疗养院工作”。
+让你买过的房子, 欠过的债
+La casa que compraste, las deudas que debías
 
-然而，该省希望改变他们的工作，让他们远离最脆弱的病人。
+再让你为你的债再付利息
+Te permite pagar más intereses por tu deuda
 
-**面对威胁，数千人接种了疫苗**
+这真的是人
+Esto realmente es
 
-自从该省在 8 月底首次提出最后通牒，告诉工作人员如果在截止日期前没有接种疫苗，他们将被无薪停职，因此整体疫苗接种统计数据也有了很大改善。
+生的时候在娘胎里边
+Cuando el ser humano está en el vientre de su madre
 
-公共卫生主任 Horacio Arruda 博士说，公共卫生保健人员的疫苗接种率已从 93% 上升到 97%。私立机构的统计数据尚不清楚。
+就开始征税
+Comienza a cobrar impuestos
 
-周三的消息是在该省已经将工作人员接种疫苗的原定截止日期（10 月 15 日）推迟一个月之后发布的。当局说，自那次推迟以来，又有大约 15,000 人接种了疫苗。
+到你长大开始各种税
+Hasta cuando crezcas empiezan todo tipo de impuestos
 
-Dubé 说，他仍然对 3% 的医护人员没有接种疫苗感到非常不满，但表示 97% 的覆盖率是“非常棒”，同时还赞扬了整个魁北克人的疫苗接种率。
+到死了就是把火葬场弄很贵
+Incluso, hasta morirse es encarecer el crematorio
 
-“对于包括我自己在内的许多魁北克人来说，卫生工作者不接种疫苗这一点仍然无法理解，”他说，该省已经“尽一切努力”说服剩下的 3%。
+再把这个放骨灰盆的地方, 墓地再弄很贵
+Y también con el lugar para poner las cenizas y el cementerio
 
-“我认为有些人会对这个决定感到失望，”他说，“我想提醒所有魁北克人，他们接种了大量疫苗……这意味着由此我们今天可以做出这个决定。”
+现在是把这一切再跟你收一遍税
+Ahora es volver a cobrar todos estos impuestos
 
-目前，公共系统中未接种疫苗但与患者有直接接触的工作人员必须在轮班前每周接受 3 次 COVID-19 检测。
+中国这个社会, 土地属于国家的
+En la sociedad de China, el terreno le pertenece al país
 
-**对疗养院的担忧**
+房地产是租赁的70年
+Los inmuebles se alquilan por 70 años
 
-大流行病管理主任丹尼尔·帕雷 (Daniel Paré) 表示，目前对员工进行全面重组，例如将所有未接种疫苗的员工从癌症病房或新生儿病房或所有疗养院中撤出，是不现实的。然而，我们的目标是在不严重干扰护理的情况下做到这一点。
+产权70年
+Derechos de propiedad durante 70 años
 
-他说，该省将对检测要求极为严格，必须是“系统的”。
+房地产寿命平均30年
+La vida útil promedio de las propiedades inmobiliarias es de 30 años
 
-除了未接种疫苗的人（目前在魁北克因病毒住院的可能性是未接种疫苗的人的 19 倍），老年人仍然面临 COVID-19 的最高风险，因为他们的免疫系统比年轻人弱得多，这意味着他们的身体不能从疫苗中产生强大的抗体。
+你贷款(买)的房子是你平均工资, 58年才能交完的房租
+La casa que compraste por préstamo es según el promedio de tu salario, implica que debes terminar de pagarla por 58 años
 
-当被问及他是否对自己的母亲住在疗养院的想法感到满意时，他的母亲确实住在疗养院，事实上，他住在疗养院里——杜贝说是的，他认为风险很低。
+房地产是GDP的4倍到10倍
+La propiedad inmobiliaria es de 4 a 10 veces del producto interno bruto (PIB)
 
-他说，总体上“很少有”未接种疫苗的员工，还有测试要求。
+你拿房地产税, 这简直是比抢劫还夸张
+El impuesto inmobiliario que cobras, es realmente más exagerado que robar
 
-第三，现在疗养院的防护设备要好得多，他说，“第一波情况并非如此。”
+结果盖了个名, 戴了个帽子, 叫做共同富裕
+Como resultado, se obtiene un nombre y se le pone un sombrero llamado prosperidad en conjunto
 
-第四，老年人将接受加强注射，以帮助保护他们的免疫力。
+这种愚蠢的事情也有人信呢
+Igualmente hay personas que creen en este tipo de asunto tan ridículo como este
 
-最后，他说他预计未来几个月情况仍然会发生变化。
+你的国家, 你的土地, 你的空气
+Tu país, tu terreno, tu oxígeno
 
-“我想说的是，一旦 CEO 有能力用接种过疫苗的 [员工] 替换未接种疫苗的 [员工]，他们就会这样做。”
+他把地主给推翻了, 它成大地主了
+Él derrocó al propietario y se convirtió en un gran propietario
 
-**未接种疫苗的护士们的律师“高兴”**
+把地让你盖了房子
+Te dió el terreno para construir una casa
 
-在法庭上对疫苗强制令提出质疑的蒙特利尔律师娜塔莉亚·马诺尔 (Natalia Manole) 表示，她对这个消息感到“高兴”。
+盖了30年就应该拆掉的房子
+Se construye una casa que debería ser demolida 30 años después
 
-“我认为政府基本上别无选择，”她周三告诉 CTV 新闻。
+70年的(土地)租赁权
+El arrendamiento de 70 años (terreno)
 
-“令我惊讶的是，在颁布法令之前，这种情况并没有被真正审查过……为什么刚才，就在它应该生效的前几天？他们可以接触了解取消疫苗令意图的信息。”
+商业才50年
+Si el comercio es solamente de 50 años
 
-10 月底，Manole 向魁北克高等法院提出法律挑战，质疑政府法令的有效性并要求对其发出禁令。
+现在让你交房地产税
+Ahora te dicen para pagar el impuesto inmobiliario
 
-该禁令认为，与强制接种疫苗或解雇相比，常规检测是遏制 COVID-19 传播的更好选择。
+然后你生孩子呢, (计算房地产税时) 就减60平米
+Entonces, si tienes un bebé, (al calcular el impuesto sobre bienes inmuebles), se te reducirá en 60 metros cuadrados
 
-作为回应，高等法院法官 Michel Yergeau 同意在 11 月 15 日做出决定，无论政府做出什么决定。尽管政府取消了授权，但该计划不变。
+你不生孩子呢, 你就基本破产
+Si no tienes hijos, básicamente irás a la quiebra
 
-“这是一份呈交给法官的法律文件，政治与法院、司法机构不同，”马诺尔说。
+然后电费, 水费
+Luego es el costo de la electricidad y el agua
 
-“政府决定不再对医护人员实施这种疫苗接种指令这一事实，并不意味着该法令一开始就有效力。因此，法院首先必须就该法令的法律效力做出判决。”
+中国人连美国这个牛和马都不如
+Los chinos son inferiores al ganado y los caballos estadounidenses
 
-**点评：**重大胜利！加国一些地区已经停止了对医疗工作者的强制疫苗接种。安大略和魁北克两个大省的政府率先屈服退让，会改变整个国家从联邦到地方的不合法的疫苗强制暴政。
+一个月60度电
+60 kWh por mes
 
-原文链接：[https://montreal.ctvnews.ca/vaccines-won-t-be-mandatory-for-existing-quebec-health-care-workers-only-new-hires-1.5650001](https://montreal.ctvnews.ca/vaccines-won-t-be-mandatory-for-existing-quebec-health-care-workers-only-new-hires-1.5650001)
+人家美国是600度电
+En EE. UU son 600 kWh
 
-编辑/发布：LILY
+然后要干掉美国征服世界
+Y quieren derribar al EE. UU para apoderarse del mundo
 
-20211104
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+然后我们最优越的体制
+Y luego nuestro sistema más superior
+
+所以说现在你看共产党的房地产税有多荒唐
+Por eso, ahora ves lo absurdo que es el impuesto inmobiliario del Partido Comunista
+
+竟然有法国的一个在中国投资的(人)问我
+Alguien de Francia que invirtió en China me preguntó
+
+欸, Miles这是不是说明共产党的经济很稳定
+Hey Miles, esto significa que la economía del Partido Comunista es muy estable
+
+哎唷, 我说那么稳定, 你赶快去投资啊
+Ay, dije, si es tan estable entonces vaya a invertir
+
+快去, 再投点儿
+Vaya, invierta más
+
+中国给房地产征税的开始
+El comienzo de China con el cobro de impuestos inmobiliarios
+
+绝对是中共走向北朝鲜与人类文明的对决的开始
+Es absolutamente el inicio de la marcha del PCCh hacia Corea del Norte y el enfrentamiento entre la civilización humana
+
+———————————————————
+
+**原视频网址：** [https://gettr.com/post/pfo7k8769b](https://gettr.com/post/pfo7k8769b)
+
+日期：11/04/2021
+原视频标题：中共开征房地产税是中共走向北朝鲜与人类文明对决的开始
+La recaudación del impuesto inmobiliario por parte del PCCh es el comienzo de la marcha del PCCh hacia Corea del Norte y el enfrentamiento entre la civilización humana
+原视频日期：10/31/2021
+任务编号：KC222(2740)
+视频时间段：0:00-2:02
+
+西听校: 洛杉矶盘古农场- 霙霙（文霙）
+翻译: 洛杉矶盘古农场- 小文萱
+翻译终校: 洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
