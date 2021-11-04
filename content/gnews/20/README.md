@@ -2,20 +2,32 @@
 ---
 
 
-## 秘翻在线: 中共军队在福建南部演练渡河作战
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1639480/)
+## 四家外国科技公司因从事恶意网络活动被美国政府列入黑名单
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1639514/)
 
-撰稿：西枫westca
+**作者：日本东京方舟农场 子辰**
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-3.jpg)图片来源：网络截屏
-据网易11月4日报道，中共陆军73集团军在福建南部水域，进行渡河作战演练。主要以舟桥部队的浮桥架设演练为主。
+据《美国之音》11月4日报道，四家外国科技公司近日被美国列入黑名单，它们分别是：以色列的NSO集团（NSO Group）、Candiru、俄罗斯的“积极技术”（Positive Technologies）以及新加坡的“计算机安全行动咨询有限公司”（Computer Security Initiative Consultancy PTE. LTD）。
 
-舟桥部队是军事后勤工程保障的重要兵种。在传统战争中，如果桥梁受损，舟桥部队要立即收集水情数据、地形勘测，利用冲锋舟、汽艇等装备作为架设作业动力源，架筑浮桥。73集团军某政治部主任说:“下一步我们还要构设险难复杂条件，锤炼官兵战场应急处置能力，进一步提升部队遂行渡河工程保障任务能力。”中共国的小粉红立即high起来，评论道，今天能练渡河，明天实操渡海，直接攻过去，一举收复台湾岛。
+美国国务院指责这四家科技公司从事违背美国国家安全或外交政策利益的活动，称它们研发的这些间谍软件，被用作恶意针对政府官员、记者、商人、活动人士、学者和使馆工作人员的工具。
 
-在21世纪科技如此发展的今天，我们已得知，若有战争，中共国的所有军事设施会在3分钟内全部被毁。中共还在演练这种近100年前的战争手段，是弱智还是糊弄百姓？
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-12.jpg)图片来源：https://www.voachinese.com/a/us-blacklists-four-foreign-companies-for-malicious-cyber-activitie-20211103/6298687.html
 
-**新闻来源：**[燃！陆军第73集团军在闽南水域，进行渡河作战演练！ |舟桥|浮桥\_网易新闻 (163.com)](https://www.163.com/news/article/GNURVBC10001899O.html)
+据《路透社》报道，NSO Group和Candiru都被指控向威权政府出售间谍软件产品；Positive Technologies 则是因向俄罗斯安全部队提供协助，美国因此对它们实施制裁。美国国务院表示，这四家公司在向美国出口产品方面将面临严厉限制。截止发稿前，四家被制裁公司尚未就此事发表评论。
+
+*参考链接：*
+
+[美国政府将从事”恶意网络活动”的四家外国公司列入黑名单](https://www.voachinese.com/a/us-blacklists-four-foreign-companies-for-malicious-cyber-activitie-20211103/6298687.html)
+
+* * *
+
+
+```
+素材采编：子辰
+编辑：青衣青青
+校对/发布：Ranting
+```
+
 
  
 

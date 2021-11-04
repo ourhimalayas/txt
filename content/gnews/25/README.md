@@ -2,10 +2,10 @@
 ---
 
 
-## 美陆军医生：一早上因疫苗伤害，不得不让3名飞行员停飞
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639424/)
+## 郭文贵：喜财富属于民天下，我们的使命是消灭共产党
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639447/)
 
-11/02/2021 在美国参议员罗恩·约翰逊主持的小组讨论中，美国陆军外科医生特蕾莎·朗说：“一个早上之内，由于疫苗导致的伤害，我不得不让3名飞行员停飞”。
+11/1/2021 【HCoin to The Moon庆典】郭文贵先生：喜财富属于民天下，不要忘记我们的使命是消灭共产党。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
