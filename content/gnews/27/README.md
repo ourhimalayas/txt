@@ -2,10 +2,10 @@
 ---
 
 
-## 喜币将成为人类上共同认可的捍卫正义的力量，越走越远
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639225/)
+## 郭文贵先生：永远记住真诚、善待一切、唯真不破辨善恶
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639280/)
 
-11/1/2021 【HCoin to The Moon庆典】喜币会成为人类上大家共同认可的捍卫正义的力量，越走越远。
+11/1/2021 【HCoin to The Moon庆典】永远记住：真诚、善待一切、唯真不破分辨善恶。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

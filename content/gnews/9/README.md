@@ -2,10 +2,10 @@
 ---
 
 
-## 中国人将为仅有使用权的房子每年缴纳高额房产税
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639389/)
+## 郭文贵：喜财富属于民天下，我们的使命是消灭共产党
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639447/)
 
-10/25/2021 中国人将为仅有使用权的房子每年缴纳高额房产税。
+11/1/2021 【HCoin to The Moon庆典】郭文贵先生：喜财富属于民天下，不要忘记我们的使命是消灭共产党。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
