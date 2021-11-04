@@ -2,31 +2,62 @@
 ---
 
 
-## 基恩表示，台湾应武装自己为美国和其盟友的介入争取时间
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1638851/)
+## 全球精英一天碳排放量超1,600苏格兰人一年
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1638990/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月2日，美国退休四星上将杰克-基恩在接受采访时谈及，习近平已经为其政权定下目标，要通过所谓的“统一”来控制台湾。而习此举的一大目的在于，想要吞并台湾所拥有的高科技技术，包括台湾的芯片制造业。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-15.jpg)
-对此，基恩将军呼吁，台湾应更多的武装自己，或可引入长期兵役模式或预备役制度。基恩将军强调，通过台湾的反击，在让中共付出代价的同时，还能为美国及盟友们的助台参战争取更多的时间。
+编译：Jenny Ball
 
-另一方面，帮助台湾加强武装，也是美国重新构建在太平洋的武装力量的重要组成部分。在应对中共在该地区愈演愈烈的军事威胁上，台湾可帮助美国以最快的速度重新建立自己的力量。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-4-1.jpg)图片来源：westernjournal.com
 
-参考链接：
+本周在苏格兰格拉斯哥举行的联合国 COP26 峰会上，来自世界各地的精英领导人的气候虚伪达到了新高。
 
-[20211102退休四星將軍Jack Keane接受Maria採訪](https://www.gettr.com/post/pfvo9v6a9f)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-总编/编辑：Irene木木
-校正/发稿：Fei797
+据第六页([Page Six](https://pagesix.com/2021/11/01/outrage-as-vips-take-private-jets-to-climate-summit/))报道，超过 400架私人飞机降落在峰会上，载有像亚马逊的杰夫·贝索斯（Jeff Bezos）这样的私营企业领导人。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这个数字甚至不包括政府飞机，不包括乔·拜登总统的空军一号。
+
+“普通私人飞机，我们不是在谈论空军一号，在飞行中每小时排放两吨二氧化碳，”英国运输与环境运动的马特·芬奇（Matt Finch）告诉《星期日邮报》。
+
+“从上下文来看，普通公民的总碳量——包括他们旅行的任何地方和他们消费的一切——每年约为 8 吨。”
+
+“私人飞机对环境的危害再怎么强调也不为过，这是最糟糕的长途旅行方式。我们的研究发现，大多数旅程可以通过定期航班轻松完成，”他补充道。
+
+此外，苏格兰媒体还确定，**这些载有世界上最富有和最有权势的人的喷气式飞机，将排放大约**** 13,000 ****吨二氧化碳**。
+
+据《每日邮报》报道，从这个角度来看，这与 1,600 名苏格兰人每年的碳排放量相同。
+
+**这还不包括政府代表团使用的飞机的排放量，因此实际上碳足迹要大得多**。
+
+普通人很难在气候问题上认真对待这些精英，**当他们不能为自己的碳足迹负责时，尤其是在参加有关气候变化的活动时**。
+
+如果 COP26 的组织者真关心这个问题，他们本可以在 Zoom 上举行峰会并避免尴尬。
+
+而在这些会议上做出的决定将影响到我们农民身上，但他们飞走做生意去了。
+
+他们的全球社会地位，从查尔斯王子到比尔·盖茨的每个人都有机会为世界其他地区的气候解决方案发表意见，尽管他们作为低等平民的经验很少（除非涉及离婚）。
+
+虽然左派将批评气候危言耸听的人斥为“反科学”，但如果领导人想说服人们采取气候行动，就需要看到他们的虚伪。
+
+如果损害确实是不可逆转的，并且对人类构成了生存威胁，那么 COP26 应该做出适当的调整。
+
+**正如美国人在冠状病毒封锁中所看到的那样，如果金字塔顶端的人不能遵守自己的规则，人们就不太可能遵守命令。**** ****同样的标准适用于气候变化。**
+
+**评论：看看参加COP26峰会都是什么人，是不是也是极力强制疫苗的同一拨人？这是巧合吗？这是长期的阴谋。他们一个会议的飞行，就比欧洲一个镇子全能的碳排放都高，多么虚伪，其目的极其险恶，一石多鸟：**
+
+- **用“反科学”伪命题达到一切政治目的：任何用科学论据质疑他们所谓气候话题的人，都冠以“反科学”，他们就可以和邪恶中共勾搭，让世界碳排放最高环境污染已经祸害到今后几代人的中共，毫无约束的继续用“Made in China”绑架世界。**
+- **用所谓气候问题洗脑我们的下一代——记得十年前，我上小学的孩子很严肃地告诉我：世界上牛放的屁就能让气候变暖。我以为孩子幻想，没想到是他们科学课的内容，而且不容置疑，是世界顶级科学家的结论。让孩子从小就以为牛是世界未来灾难的罪魁祸首！**
+- **正如美国人在冠状病毒封锁中所看到的那样，金字塔顶端的人不能遵守自己的规则，但是他们可以任意制造违背常识的规则控制全人类。所以发展到今天的全球疫苗灾难，因为这些个“精英”已经不满足用牛达到目的，他们要用疫苗消灭人口，让他们享受更加可控的环境！**
+
+
+**参考资料：**[westernjournal][Jet-Riding Global Elite Flock to Scotland, Emit More CO2 in 1 Day Than 1,600 Scots Produce in a Year](https://www.westernjournal.com/jet-riding-global-elite-flock-scotland-emit-co2-1-day-1600-scots-produce-year/?utm_source=Email&amp;utm_medium=CTBreaking&amp;utm_campaign=breaking&amp;utm_content=conservative-tribune&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

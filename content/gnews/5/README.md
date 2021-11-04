@@ -2,10 +2,10 @@
 ---
 
 
-## 我们的能力和海外力量的保护使中共无法消灭喜联储
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639206/)
+## 郭文贵先生：永远记住真诚、善待一切、唯真不破辨善恶
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639280/)
 
-11/1/2021 【HCoin to The Moon庆典】郭文贵先生：我们的能力和海外力量的保护使中共无法消灭喜联储
+11/1/2021 【HCoin to The Moon庆典】永远记住：真诚、善待一切、唯真不破分辨善恶。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

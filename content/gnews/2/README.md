@@ -2,10 +2,10 @@
 ---
 
 
-## 澳洲正坠入里根《选择的时刻》演讲中警告的极权主义国家
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639238/)
+## 一名护士因拒绝接种中共病毒疫苗而被迫离职
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639299/)
 
-10/30/2021 天空新闻Alan Jones评论痛斥澳洲正在堕落为极权主义国家，让人联想到里根几十年前的著名演说。里根的警告正在西方成为现实。
+10/30/2021 一名凯撒医院的护士因宗教信仰而拒绝接种中共病毒疫苗，被迫离职。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

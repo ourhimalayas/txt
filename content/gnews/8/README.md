@@ -2,10 +2,10 @@
 ---
 
 
-## 我们拥有了自己的自由财富，才拥有了保护自己和家人的力量和话语权，这就是新中国联邦的意义
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639173/)
+## 澳洲正坠入里根《选择的时刻》演讲中警告的极权主义国家
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639238/)
 
-11/1/2021【HCoin To the Moon 庆典】郭文贵先生：我们拥有了自己的自由财富，才拥有了保护自己和家人的力量和话语权，这就是新中国联邦的意义
+10/30/2021 天空新闻Alan Jones评论痛斥澳洲正在堕落为极权主义国家，让人联想到里根几十年前的著名演说。里根的警告正在西方成为现实。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

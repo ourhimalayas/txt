@@ -2,30 +2,22 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月04日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1638991/)
+## 文贵爆料 3/11: 中共的罪恶，张高丽难以望其项背
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1639039/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36.png)
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-03-at-5.55.30-PM.png)
+没有最恶，只有更恶。文贵先生在11月3日的大直播中，向人们展示了前中共副总理、中央政治局常委张高丽对女童畸形、扭曲、不伦的欲望，并进一步指出他的罪孽与中共及其他一些政治局常委相比，就显得相形失色、微不足道。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-3.png)
-文章仅代表作者本人观点，与Gnews无关
+张德江比张高丽干净吗？一定不是，张德江比他玩的大多了去了。李长春干净吗？李长春玩的比他高了多少亿万倍，是不是？你说你跟曾庆红比，连毛也轮不着啊，对不对？你跟孟建柱比，孟建柱比他不知道高多少段位，是吧？你要跟王岐山比，王岐山看张高丽比周亮还低啊，就啥都不是。就说明共产党内部的斗争啊很乱、很low啊。而且说明中共没有任何一个人有脑子，都是胡扯，而且找彭帅出来爆料。
 
-视频参看：2021.11.04早GTV新闻访谈
+啥时候人们才能真正知道中共的邪恶呢？真的是大屠杀，新疆大屠杀、西藏大屠杀，还有六四死了多少人，六四后抓了多少人，你才会真的知道原来中国人不但活得不如猪狗，说句老实话，中国人任何人活着都有原罪的，你忽视了这种人类的灾难，你还在培养凶手，你还在尊敬他、爱他。所以我们大家要一定要牢记，咱用一面镜子就能照出我们是人、是鬼，用共产党这个镜子能照出我们的伟大。
 
-[https://gtv.org/broadcast/watch/6183d1f311d186296801834d](https://gtv.org/broadcast/watch/6183d1f311d186296801834d)
+郭先生说，共产党的残忍真不是你们想象的，你认不清共产党的残忍，你就永远不会知道新中国联邦真正的价值。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[2021年11月03 日 文贵大直播](https://gettr.com/streaming/pfyckddba1)
 
  
 

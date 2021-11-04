@@ -2,50 +2,32 @@
 ---
 
 
-## 新泽西州长选举共和党竞选人尚未承认失败
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1639151/)
+## 阿斯利康文件为加拿大卫生部批准新的COVID-19疗法
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1639213/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-edited.jpg)图片来源：网络
+据CTV News报道，制药商阿斯利康 (AstraZeneca) 已向加拿大卫生部提出申请，批准其预防新冠病毒的新疗法。在疫苗市场逐渐饱和的情况下，抗病毒药物成为下一个被关注的市场。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/N-2.jpg)thenewamerican.com
-在主流媒体一片宣称民主党人菲尔墨菲（Phil Murphy）获得新泽西州长连任后，数小时前墨菲自己也宣布获胜，但是共和党竞选人杰克·恰塔雷利（Jack Ciattarelli）到现在为止，也没有像弗吉尼亚败选人向胜选人表示祝贺那样，向所谓的获胜人菲尔墨菲祝贺，相反看到了众多的质疑。
+近日，制药商阿斯利康公司（AstraZeneca）针对新型冠状病毒的混合型抗体疗法已被证明对非感染者有预防作用，而且在症状初次出现后的一周内给予患者治疗，可以避免病情恶化。
 
-《贝克尔新闻》（Becker News）这样报道，“新泽西州州长竞选提醒美国，在这个国家，我们离选举诚信还有很长的路要走。共和党候选人杰克·恰塔雷利（Jack Ciattarelli）与现任民主党州长菲尔·墨菲（Phil Murphy）的竞选中，在周二（11月2日）深夜，当大多数美国人入睡的时候，他仍保持着4.2万张选票的领先。目前，恰塔雷利的得票率为88%，有1000票的微弱优势。
+据媒体报道，阿斯利康研制的新型药物名为 AZD7442，是由 SARS-CoV-2 病毒感染的恢复期患者捐献的 B 细胞中分离出的 AZD8895 和 AZD1061 的联合体，是一种能够预防又能治疗新冠病毒的长效抗体药物（Long Acting Antibody，LAAB）。阿斯利康公司在2020年6月获得授权，随后对其进行了优化。
 
-在整个选举之夜，恰塔雷利在州长竞选中表现出色的主要原因是他在蓝郡的表现，尤其是卑尔根（Bergen）郡，在晚上的大部分时间里，他都以惊人的领先优势领先……”【1】
+AZD7442 的半衰期要比传统抗体长三倍多，可提供长达12个月的保护。如果阿斯利康研发的药物获得批准，标志着这将是同类预防新冠病毒疗法中首个获得加拿大卫生部批准的。今年8月，阿斯利康 (AstraZeneca) 公布了其试验结果，该结果表明，与安慰剂相比，AZD7442抗体组合药物让症状性新冠的发病风险降低了77%。
 
-《门道专家》直接用了“诡计”的字眼，“民主党人在新泽西州州长竞选中的诡计——共和党人以100%的选票赢得了最大的郡，然后选票翻转，民主党人奇迹般地赢得了该郡……
+阿斯利康在声明中表示，该试验包括了可能需要额外保护，以防止SARS-CoV-2感染的合并症患者。  该试验的首席研究员、伦敦大学学院（University College London）重症监护医学教授Hugh Montgomery说:“随着全球范围内新冠重症病例的不断增加，我们迫切需要像 AZD7442 这样的新药物。这些药物可以用来保护弱势人群，避免他们感染新冠病毒，也可以帮助预防疾病的进一步恶化。”
 
-在全州83%的选票统计中，共和党人恰塔雷利以4.2万票领先全州，此时，新泽西州最大的郡卑尔根郡宣布了100%的报告，恰塔雷利赢得了52%的选票。
+根据822人参与的试验数据显示，其中一半人服用AZD7442，另一半服用生理盐水安慰剂，以做对照。阿斯利康组有18例新冠肺炎患者病情恶化，安慰剂组有37例。这种鸡尾酒疗法大多数人都适用。初步研究结果表明，AZD7442能够提供广泛的保护，防止感染新冠病毒，包括对预防变异毒株Mu和Delta同样有效。抗体疗法是抗击新冠肺炎的重要方式，可以作为疫苗的补充工具，为那些注射疫苗后却没有产生免疫反应群体提供保护，或保护那些无法注射疫苗的人。癌症患者或免疫系统较弱的人也可以使用这种疗法。
 
-然后情况变了，几分钟后，87%的选票统计完毕，卑尔根郡的选举结果发生了变化，突然墨菲以51%的选票领先该郡，恰塔雷利在该州的4.2万张领先选票同时也减少到1600张。”【2】
+阿斯利康加拿大公司科学事务副总裁Dr. Alex Romanovschi表示，这种“治疗”方法是一个重要的选择，特别是对免疫力低下，并且在接种疫苗后无法产生抗体的弱势群体。如今，向加拿大卫生部提出紧急使用申请，让我们距离能够长期提供额外的新冠预防措施又近了一步。10月初，阿斯利康已经向美国食品和药物管理局（Food And Drug Administration，FDA）提交了 AZD7442 用于预防新冠病毒的紧急使用授权申请。
 
-《塔克·卡尔森团队》则有更多的报道，“非法行为：新泽西州州长选举工作人员告诉非公民和未注册选民，她将允许他‘现在可以填写选票’”。【3】
+来源链接：[https://www.google.com/amp/s/beta.ctvnews.ca/national/coronavirus/2021/11/3/1\_5650404.html](https://www.google.com/amp/s/beta.ctvnews.ca/national/coronavirus/2021/11/3/1_5650404.html)
 
-“新泽西州州长竞选中的报告问题引起了一些担忧，据 NBC 新闻全国政治记者史蒂夫·科纳奇(Steve Kornacki) 称，新泽西州哈德逊郡的早期投票是‘重复计算的’。显然，双重计票让民主党候选人菲利普·墨菲获得了 10,732 票，而他的共和党对手杰克·恰塔雷利只获得了 2,842 票。科纳奇继续说计数‘现在已经确定’，然而，许多人担心这样的错误甚至一开始就犯了。”【4】
+编辑/发布：LILY
 
-“新泽西州选举混乱：56 台投票机一夜之间关闭，不计票数，必须被带去仓库”。【5】
+20211104
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 
-亚利桑那州参议员、退役战斗机女飞行员温迪·罗杰斯（Wendy Rogers）直接发出呼吁，“审计新泽西！”【6】
-
-选举到了令人不能信服的程度，也就失去了选举的意义，谁希望看到这一幕？那就是独裁专制政府。参与舞弊的人们不一定都喜欢专制暴君，只是在个人喜好、利益诱惑下放弃了原则，没有真正意识到背后恶势力的图谋。所以，揭露罪恶、曝光阴谋、唤醒世界、认知中共是世界当务之急。
-
-笔者不希望目前新泽西州长选举是被操控的结果，但是出现了质疑，就应该进入消除质疑的程序，而不是打压、禁声，通过透明的解释，让失利者心服口服。
-
-有关链接：
-
-【1】[https://beckernews.com/watch-new-jersey-county-flips-from-red-to-blue-with-100-reported-giving-phil-murphy-the-lead-42877/](https://beckernews.com/watch-new-jersey-county-flips-from-red-to-blue-with-100-reported-giving-phil-murphy-the-lead-42877/)
-
-【2】[https://www.thegatewaypundit.com/2021/11/breaking-democrat-tricks-new-jersey-governors-race-republican-winning-largest-county-100-votes-counted-vote-flips-democrat-miraculously-wins-county/](https://www.thegatewaypundit.com/2021/11/breaking-democrat-tricks-new-jersey-governors-race-republican-winning-largest-county-100-votes-counted-vote-flips-democrat-miraculously-wins-county/)
-
-【3】[https://teamtuckercarlson.com/news/illegal-conduct-new-jersey-gubernatorial-election-worker-tells-non-citizen-and-non-registered-voter-she-will-allow-him-to-fill-out-completely-a-ballot-now/](https://teamtuckercarlson.com/news/illegal-conduct-new-jersey-gubernatorial-election-worker-tells-non-citizen-and-non-registered-voter-she-will-allow-him-to-fill-out-completely-a-ballot-now/)
-
-【4】[https://teamtuckercarlson.com/news/early-vote-double-counted-in-hudson-county-was-fixed-and-gave-gop-candidate-lead/](https://teamtuckercarlson.com/news/early-vote-double-counted-in-hudson-county-was-fixed-and-gave-gop-candidate-lead/)
-
-【5】[https://teamtuckercarlson.com/news/nj-election-chaos-56-voting-machines-shut-down-overnight-without-votes-being-counted-will-have-to-be-brought-to-warehouse/](https://teamtuckercarlson.com/news/nj-election-chaos-56-voting-machines-shut-down-overnight-without-votes-being-counted-will-have-to-be-brought-to-warehouse/)
-
-【6】[https://twitter.com/WendyRogersAZ/status/1456279218246062093](https://twitter.com/WendyRogersAZ/status/1456279218246062093)
 
  
 

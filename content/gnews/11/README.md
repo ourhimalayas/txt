@@ -2,10 +2,10 @@
 ---
 
 
-## 纳瓦罗新书《川普时间》证明郭文贵提供中共病毒关键情报
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639143/)
+## 我们的能力和海外力量的保护使中共无法消灭喜联储
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639206/)
 
-11/1/2021【HCoin To the Moon 庆典】纳瓦罗新书《川普时间》证明郭文贵提供了中共病毒的关键情报。该书被美国国家安全委员会批准。美国会未来会要求解密关于中共生物武器的机密文件。
+11/1/2021 【HCoin to The Moon庆典】郭文贵先生：我们的能力和海外力量的保护使中共无法消灭喜联储
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
