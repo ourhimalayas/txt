@@ -2,135 +2,33 @@
 ---
 
 
-## 预知灾难并处理灾难是爆料革命的核心
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1638296/)
+## 物华天宝
+` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1638354/)
 
-[https://gtv.org/video/id=6183a59eadfd99590c32fc12](https://gtv.org/video/id=6183a59eadfd99590c32fc12)
+By：银河勇气星｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-23.jpg)圖片：驕子
+喜币上市那天，逼近deadline的时候了，喜联储的工作的人都不认识喜币的创造者文贵先生。为了督促他们紧急上市，CEO威廉打开直播给办公室的工作人员看。他们惊讶，这人谁啊，居然连着侃了17个小时。
 
-**郭文贵
-Miles Guo**
+西方国家都很注重休假，下班就是下班，不会在办公室多呆一分钟。法律保护工作者的权益，在发生了员工和公司的冲突时，HR和律师，都是向着弱者即员工这一方的，基本权益都可以得到保护。而在中共国，双休日是90年代中期才开始的，尽管有了双休日，但是因为过分的压榨，能执行双休日的单位一般都是国企央企，真正的有创造价值的私人企业里，加班加点那是常事，如果不愿意一起加班内卷，老板可以随时把人踢走，再换下一个。中共国把中国人变成全球资本家最便宜的奴隶，辛苦工作一辈子，连一套房都攒不下。西方国家的民主，几乎是踩着中国人的血汗上去的。而共产党还给国内洗脑，西方国家的自由民主不利于团结，不利于国家的进步，作为一个中国人就是要爱党爱国，世界一片糟糕，风景这边独好，我们次次都赢，热血沸腾吧中国人。人日环时这种拿着老百姓的税款进行洗脑的媒体挖空心思编造谎言，世界上最动听的好话都让共产党说完了。
 
-大家看到的那个Coinbase, 已经停止中国人注册
-The Coinbase that you see has stopped Chinese people registration
+中国人在世界上的形象，常年以来都是被共产党大腹便便穷奢极欲的各级官员所代表，被各种派出去的经过训练的燕子和蛇代表，被既得利益群体在机场不排队大声说话的小粉红代表，妥妥的，三个代表，江泽民同志水平够高吧，水平这么高的人，不懂怎么吃鱼，还哔哔叭叭在那儿说上日语了。你不会吃就不会吃，这么好吃的鱼都堵不上他那张狂妄自大的嘴，试问人间还有什么贪婪是他没体会过的？燕子和蛇，吴征杨澜。杨澜天天找钥匙，吴征带着他去找，和当年那些被逼下岗无法生活，带着老婆女儿一起出卖肉体的人有什么区别？区别可大了，一个人但凡有点活路都不至于把自家老婆女儿带出去做肉体生意的，而吴征杨澜，他俩不仅物质上活得挺好的，且在墙内老百姓心里那可是人上人，能少得了富贵享受吗？在国外的各种小粉红，吃着别国的各种社会福利，还顺带收割着国内的房租租金，有的开了社交账号专给国内做代购，嘴里还一边大骂着别国的自由民主，遇到能够给母国长脸出点力的事儿（海外民运等）都争先恐后地去做那些害人害己的事情，民主国家的安静机场，堵不上他们粉红色的吆喝。
 
-上星期就都知道了，我没说因为人家是上市公司，咱要注意
-I knew it last week. I didn’t say that because they are listed companies, we should pay attention
+![](https://assets.gnews.org/wp-content/uploads/2021/11/JZM_1095645359_n-702670.jpg)江泽民16连 / 图源：网路
 
-哎呀我的妈呀，火币没了，币安整个这一块儿全都没了
-Oh my god, Huobi is gone, Binance is all gone
+喜币上市的这一天，那个在镜头前神侃了17个小时的七哥震惊了喜联储的工作人员，“比你有才华有能力的人比你更勤奋”。而对于战友来说，我们都习惯了这样长时间的等待。直播是我们这场爆料革命的开始，七哥每次直播时间都很长，嫌长，别看就行。在西方国家里，他们认为的不可思议的事情，中国人的勤奋，或者在他们看来叫做超时工作，可以到这种程度。然而就是如此勤奋的中国人，创造的巨额财富都被共产党几个大家族把持，中国人别说拿回属于自己的财富了，就是合法花出去一分钱都会被层层盘剥。这么多年，中国人在海外，从来没有一个像样的机构，一个组织，或者一个power man来保护同胞的，出了事都是互相推脱。七哥说国外的同一个行业的，人家彼此都很护着自己的对手，都给互相介绍女友，介绍工作，可以合伙来坑老板的钱。而在中共国都是同行相见分外眼红。经历过文革的荼毒，举报，不信任，延续在中共国的每一个人身上，以前一直觉得文革离很遥远，原是我不懂。慢慢想一遍，文革就在身边。同事举报，老板压榨，搞小团体，私底下交易，改口很多已经决定的法律文件，经常就是一分钟改一个主意。像这次喜联储上市，很多战友一会儿改一下一会儿改一下，给别人的工作造成巨大的困难，往往这种人还觉得自己没有做错任何事。（当然不排除刻意捣乱的）
 
-比特币你买去吧，你买比特币去，你告诉我你买啥币
-You buy bitcoin？Can you? tell me what coin you can buy
+喜币让中国人第一次在海外拥有了合法的铸币权，一切共产党迫害中国人的历史都会结束。中国人的面孔不要被代表，自己就是自己。被残害了这么久，当我们的喜联储上市的时候，17个小时对战友来说，真得不算长。中国人的勤奋是被世界熟知了，中国人的智慧将会在世界上遍地开花。我们不怕时间长，怕得是什么都不做，一天24个小时，直播17个小时是过，玩手机玩17个小时也是过。那个能够神侃17个小时的文贵先生，带给人类的都是对未来的美好希望，不看他看谁，当今这个糟糕的世界还能看谁？
 
-是中国人你上这些地方你注册，你带中国名的，都给你干掉可能
-Chinese people go to these places and you register, if you have a Chinese name, they will get rid of you
-
-而且共产党在全球的银行发布，不仅限于中国人，像Rachel这样的，
-And the Communist Party’s announcement in banking system around the world is not only limited to the Chinese people, like Rachel
-
-长着中国脸，在上海呆过，上海出生，它就认为你是中国人
-with a Chinese face, used to live in Shanghai, born in Shanghai, they still think you’re Chinese citizen, not a US citizen
-
-这是多流氓的共产党，就是他在国际上的金融界说
-Communist Party is such a rogue which is what it said in the international financial world
-
-我不管你拿哪国护照，我都拿你当中国人对待
-I don’t care which country’s passport you’re holding, I will treat you as a Chinese citizen
-
-你回到中国，我照样拿中国法律对待你，也可以去抓你
-When you come back to China, I still treat you under Chinese law and I can arrest you
-
-你觉得共产党还有耍这流氓的吗？
-Don’t you think the Communist Party still plays this like hooligan?
-
-战友们，我们爆料革命的男人和女人都要有几条
-My comrades in arms, our men and women of the whistleblower movement should have several qualities
-
-善良，辨别善恶的能力和真假的能力，还有自信
-Kindness, the ability to distinguish between good and evil, true and false, also self-confidence
-
-七哥这个自信劲儿，天下所向披靡，不是不要脸，开玩笑不算
-QiGe(Miles) has the self-confidence and also is invincible in the world, not shameless, don’t count my joke
-
-说实话就是自信，靠的是啥，靠的实力，
-It’s just self-confidence, that is what it depends on, the strength
-
-我敢昨天说格芯, 我投资早于阿布扎比，你们谁敢说，下周一喜币上市
-I dare to talk about that Global Foundries, I invested earlier than Abu Dhabi, who dare to say that Hcoin will be listed next Monday
-
-你会看到中国人你不买喜币，你买啥
-You will see that if Chinese people don’t buy Hcoins, what else do you buy?
-
-你说火币要完，它火币就完了，它就火不起来了，叫灭火币
-If you say that Huobi is about to the end, Huobi will end, and it won’t be popular anymore, it’s should be called extinguishing coin
-
-火币立马加一字叫灭火币，就完了
-Huobi immediately adds one word called extinguishing coin, and it’s over
-
-我说马云完了，马云嗝屁啦，那蔡崇信多牛，又买NBA，又买这个洋基
-After I talk about Jack Ma, Jack Ma is done, that Joseph Chung-Hsin Tsais is so bold, he bought the NBA and the Yankees
-
-又买了，也嗝屁了啦，是吧，
-and bought it again and he’s done too, right?
-
-许家印那小爱马仕领带，跟那个, 是吧
-Xu Jiayin’s little Hermes tie, right?
-
-所有兄弟姐妹们，咱们新中国联邦，今天咱们大直播的时候
-All brothers and sisters, our the new Federal State of China, today when we’re having this live broadcast
-
-谁有我们快乐，我们有什么担心的告诉我，
-who is happier than us, you tell me what are we worried about
-
-我们担心黄金涨，不担心
-are we worried about the price rise of gold? we don’t
-
-担心没石油，咱不担心，担心没粮食吃，咱真不担心
-Are we worried about no oil, food shortage? we really don’t
-
-担心货币贬值，担心人民币玩球蛋，一点不担心
-Are we worried about currency depreciation, worried about RMB will be gone? not worried at all
-
-担心没电，咱也不担心，所有这些事发生就我们好
-Are we worried about the lack of electricity, we’re not worry about either, All these things happened, we’re the only good one
-
-都不好就咱好，咱不希望人家不好，更重要的是
-All not doing good, only we’re good, we don’t want others not doing good, and more importantly
-
-疫苗灾难到了的时候，所有今天看的出来，房地产危机、金融危机
-When the vaccine disaster arrives, all we can see today, the real estate crisis, the financial crisis
-
-所有的这些东西，（包括）粮食危机都会无限放大
-All these things, (including) the food crisis will be infinitely magnified
-
-只有我们告诉了世界，这个世界上你生存的真不是粮食，这真不是黄金
-Only we have told the world that what you can survive in this world, is really not food, is really not gold
-
-就是你提前预知灾难的能力和你处理灾难的准备
-it’s your ability to predict disasters in advance and your preparedness to deal with disasters
-
-这才是爆料革命的核心
-This is the core of the whistleblower movement
+物华天宝，龙光射牛斗之墟。一切都是刚刚开始。
 
 * * *
 
-Date:11/02/2021
-原视频标题: 预知灾难并处理灾难是爆料革命的核心
-Foreseeing disasters and dealing with them is the core of the whistleblower movement
-原视频日期：2021/10/29
-原视频链接 https://gettr.com/post/pfo3jq1823
-任务编号：KC219(2735)
-视频时间段 : 0:00-2:18
-英听校：洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+作者：骄子
+审核：兵嫂、天雷滚滚
+发布：骄子
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/欢迎战友回家-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

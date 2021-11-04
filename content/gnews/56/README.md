@@ -2,46 +2,44 @@
 ---
 
 
-## 11/03/2021 国际财经快讯：喜币成交价突破10美元，24小时成交量达234万枚; 美联储会议前，全球股市保持在历史最高点附近
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1636472/)
+## 俄罗斯全网报道彭帅指控张高丽对其性侵丑闻
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1636647/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/20211103-1.jpg)[图片来源](https://himalaya.exchange/)
-**1.喜币成交价突破10美元，24小时成交量达234万枚**
+俄罗斯莫斯科喀秋莎农场 星河
 
-[截止11月3日9:29分，万众瞩目的喜币（Himalaya Coin, HCN）成交价突破10美元，24小时交易量达到234万枚。喜币是全世界首次与黄金锚定的加密数字货币，拥有严格的KYC和军用级安全机制，喜币将成为全世界人们自由支配自己的合法财富，安全地拥有财富，让私人财富保值增值的最佳手段。喜币成功上市，必须将成为人类历史上最具深远影响的大事。](https://gnews.org/1635245/)
+编辑上传 水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/P.jpg)news.yahoo.com
+美东时间11月3日报道，两届网球大满贯得主彭帅指控前中共国第一副总理张高丽对其进行了性侵。彭帅周二在中共国社交网络微博的官方页面上提出了这一指控，但该帖子很快被删除。俄罗斯媒体全网对此进行了报道。
 
-[郭文贵先生曾说：”通过区块链技术，以20%的黄金为锚，回到布雷顿森林体系，喜币将是世界上最安全的货币，也是人类未来的一种生活方式。” 喜币还在去中心化的区块链技术中加入了以责任为中心的管理制度。在上市之前，喜币采用了最严格的KYC审查制度，使其成为世界上最干净的加密货币。它绝不会像比特币或火币那样成为洗钱工具。](https://gnews.org/1635245/)
+彭帅的指控在互联网上被广泛传播，对她的名字和“网球”一词的搜索被阻止，与此有关。据《华盛顿邮报》报道，周三，即使不提及这些指控，也不可能在微博上发布带有彭帅和张高丽名字的帖子，中共国互联网上会马上显示帖子违反“相关法律和法规”的警告，彭的个人主页上的评论也已被禁止。
 
-**2.美联储会议前，全球股市保持在历史最高点附近**
+彭帅承认她无法提供证据。她说，这位官员第一次袭击她是在10多年前（2007年至2012年），当时张高丽任中共天津市委书记。此后，他们有很长一段时间没有见面。
 
-[香港，11月3日（路透社）–周三，全球股市在亚洲保持在纪录高点附近，而货币市场和美国国债持稳，因为投资者在等待世界最大经济体预期的大流行时期的货币刺激政策的放松。美国联邦储备委员会预计将在格林威治时间18点的政策声明中宣布缩减其每月1200亿美元的资产购买计划。市场几乎可以肯定美联储将缩减资产购买计划，但也在关注决策者是否会对明年加息的可能性做出任何暗示。追踪50个国家股票表现的MSCI世界各国指数下跌0.01%，刚刚脱离周二创下的纪录高点，因为欧洲美股因企业盈利强劲而大涨。](https://www.reuters.com/business/cop/global-markets-wrapup-2-2021-11-03/)
+大约三年前，张高丽已经退休，他邀请彭帅和他的妻子一起打网球，然后在他们家吃饭。在那里，他再次强迫彭帅与他发生了性关系。这位网球运动员指出，她“从未同意过，所发生的事情让她流泪”。彭帅最终同意了与张高丽的婚外情，这种情况一直持续到最近。
 
-**3.芯片短缺导致德国10月新车注册量下降35%**
+35岁的彭帅是前世界排名第一的双打选手。她总共赢得了25场WTA比赛（包括两个单打冠军）。彭帅在2013年赢得了温网冠军，在2014年在罗兰∙加洛斯球场折桂。
 
-[柏林（路透社）–一位熟悉此事的人士周三告诉路透社，由于全球半导体短缺继续导致生产瓶颈，10月份德国的新车注册量下降了35%，约为179,000辆。该人士说：”需求是存在的，”他补充说，由于需要半导体的汽车零部件的生产延迟，该行业无法跟上供应。在过去几个月里，由于芯片供应滞后，汽车制造商不得不停止生产线，并大多将稀缺的零件安装在高利润的大型车辆上，这促使许多客户购买二手车而不是等待新车。过去几个月，新车注册量已经以两位数的百分比缩减，但没有像10月份那样急剧下降。](https://www.oann.com/german-new-car-registrations-fall-35-in-october-due-to-chip-shortage/)
+11月1日，张高丽满75岁。他从2013-2018年担任中共国第一副总理，在此之前，他在中国共产党党内担任过各种职务。2017年，俄罗斯总理梅德韦杰夫在访问中共国期间授予张高丽友谊勋章，以表彰他对加强与俄罗斯合作过程中所做出的巨大贡献。
 
-**4.台湾10月出口将连续16个月增长**
+参考链接：
 
-[台北（路透社）–路透社的一项调查显示，随着全球经济重新走上复苏之路，台湾10月份的出口可能连续第16个月增长，原因是半导体和电子产品的需求强劲。台湾是全球芯片生产中心，也是苹果公司的主要供应商，是亚洲主要的科技产品出口国之一，贸易数据被视为衡量全球科技产品需求的一个重要指标。路透社对10位分析师的调查显示，上个月的出口预计将比去年同期增长24.4%，尽管比9月份29.2%的增幅有所放缓。出口预测在增长15%和38.2%之间，反映了全球经济复苏的不确定性和COVID-19大流行病造成的持续供应链中断。另外，消费者价格指数（CPI）预计将比去年同期增长2.58%，而9月份的增幅为2.63%。通胀数据将于周五公布，随后是周一的贸易数据。](https://www.oann.com/taiwan-october-exports-set-to-rise-for-16th-straight-month-reuters-poll/)
+[https://sportrbc.ru/news/618296c89a79474fee1a8fb3?ruid=uUjlA11ELf50EEeBAwNeAg==&from=from\_main\_14](https://sportrbc.ru/news/618296c89a79474fee1a8fb3?ruid=uUjlA11ELf50EEeBAwNeAg==&amp;from=from_main_14)
 
-**5.欧洲股市因企业盈利增长而达到新的高峰**
+[https://lenta.ru/news/2021/11/03/vicepremierlitay/](https://lenta.ru/news/2021/11/03/vicepremierlitay/)
 
-[(路透社）–欧洲股市周三创下新的纪录高点，因为最近企业盈利状况良好，金属价格回升，抵消了石油股下滑带来的损失。泛欧STOXX 600指数在上涨了0.2%之后，在早盘交易中持平，在美国联邦储备委员会预期缩减大流行时期的刺激措施之前，全球股市也在历史最高点徘徊。美国银行欧洲股票策略师Milla Savova说：”增长重新加速的希望，实际债券收益率的回落，以及欧洲盈利季节的支持，这些都有助于市场的重新反弹”。然而，萨沃瓦警告说，由于主要央行考虑缩减大流行时期的刺激措施，这种复苏将被证明是短暂的。STOXX 600指数在11月以连续的纪录高点拉开序幕，因为投资者看淡了对供应链瓶颈和劳动力短缺导致的通胀上升的担忧，盈利季节被证明比预期要强得多。Refinitiv IBES的新数据显示，欧洲公司第三季度的利润预计将比去年同期猛增57.2%，达到1023亿欧元（1185亿美元），比上周预测的52%增长有所改善。](https://www.oann.com/european-shares-hit-fresh-peaks-on-earnings-boost/)
+[https://www.gazeta.ru/sport/news/2021/11/03/n\_16797667.shtml](https://www.gazeta.ru/sport/news/2021/11/03/n_16797667.shtml)
 
-**6.货币市场因欧洲央行激进的加息押注而缓和**
+[https://www.kp.ru/sports/tennis/byvshego-vicze-premera-obvinili-v-domogatelstvah-chempionki-bolshogo-shlema/](https://www.kp.ru/sports/tennis/byvshego-vicze-premera-obvinili-v-domogatelstvah-chempionki-bolshogo-shlema/)
 
-[伦敦（路透社）–欧元区货币市场减少了对欧洲央行积极收紧政策的押注，周三定位为在2022年底前加息一次，每次加息10个基点，而本周早些时候定价为两次。欧洲央行2022年12月会议前的货币市场期货显示，这种举措的可能性为100%。在本周初，市场定价曾指出，到2022年7月会有整整10个基点的举措，到2022年10月会有两次加息。预期的回落与欧元区债券市场的广泛复苏是一致的，在上周欧洲央行行长拉加德(Christine Lagarde)没有更坚定地反对明年加息的激进市场定价，令投资者失望后，欧元区债券市场大幅抛售。](https://www.oann.com/money-markets-ease-up-on-aggressive-ecb-rate-hike-bets/)
+[https://www.sport-express.ru/tennis/wta/news/eks-tennisistka-obvinila-byvshego-vice-premera-kitaya-v-seksualnom-nasilii-1853280/](https://www.sport-express.ru/tennis/wta/news/eks-tennisistka-obvinila-byvshego-vice-premera-kitaya-v-seksualnom-nasilii-1853280/)
 
-**7.俄罗斯服务业10月份因客户需求疲软而收缩**
+[https://www.championat.com/tennis/news-4502569-chempionka-tbsh-obvinila-byvshego-vice-premera-kitaya-v-seksualnom-nasilii.html](https://www.championat.com/tennis/news-4502569-chempionka-tbsh-obvinila-byvshego-vice-premera-kitaya-v-seksualnom-nasilii.html)
 
-[莫斯科（路透社）–周三的一项调查显示，10月份俄罗斯服务业的活动在三个月内第二次收缩，受制于疲软的客户需求和今年以来新订单的首次收缩。IHS Markit的采购经理人指数（PMI）从9月份的50.5降至10月份的48.8，低于区分扩张和收缩的50关口。”IHS Markit的经济学家Sian Jones说：”由于客户需求减弱，新业务在2021年首次下降，病毒案件的复发进一步打击了该行业。然而，国外需求在第四季度初恢复了增长，新的出口订单略有增加。由于服务提供商寻求削减成本，他们的就业人数再次减少。虽然只是微不足道，但劳动力数量的下降是三个月以来的第二次。](https://www.oann.com/russian-services-sector-contracts-in-oct-due-to-weak-client-demand-pmi/)
+[https://www.sports.ru/tennis/1102832648-eks-tennisistka-obvinila-byvshego-vicze-premera-kitaya-v-seksualnom-na.html](https://www.sports.ru/tennis/1102832648-eks-tennisistka-obvinila-byvshego-vicze-premera-kitaya-v-seksualnom-na.html)
 
-**8.新西兰央行认为通胀风险可能导致利率上升**
+[https://politexpert.net/266195-byvshaya-pervaya-raketka-mira-shuai-pen-zayavila-o-nasilii-so-storony-vice-premera-kitaya](https://politexpert.net/266195-byvshaya-pervaya-raketka-mira-shuai-pen-zayavila-o-nasilii-so-storony-vice-premera-kitaya)
 
-[惠灵顿（路透社）–新西兰中央银行周三警告说，不断增长的全球通胀风险可能导致利率上升和资产价值下降。新西兰储备银行（RBNZ）在其两年一度的金融稳定报告中说，面对COVID-19，该国的金融系统仍然具有弹性。但它指出，更持续的通胀压力和任何通胀预期的增加，加上较弱的增长，可能导致金融条件的突然收紧。”随着全球通胀风险的加剧，已经捉襟见肘的资产价格正面临着全球利率上升的阻力，”新西兰央行行长Adrian Orr说。新西兰的消费者价格指数（CPI）已经飙升，而失业率在周三创下历史新低，促使市场谈论新西兰央行在11月24日开会时进一步加息。新西兰上个月七年来首次加息，并表示将进一步收紧。奥尔说，劳动力市场和其他数据 “非常不稳定”，但基本趋势是明确的。](https://www.oann.com/new-zealand-central-bank-flags-inflation-risks-financial-system-sound/)
-
-By 【秘密翻译组-金融法律组】
-作者：千年等一回
+[https://sport24.ru/news/tennis/2021-11-03-eks-pervaya-raketka-mira-obvinila-byvshego-vitse-premyera-kitaya-v-seksualnom-nasilii](https://sport24.ru/news/tennis/2021-11-03-eks-pervaya-raketka-mira-obvinila-byvshego-vitse-premyera-kitaya-v-seksualnom-nasilii)
 
  
 

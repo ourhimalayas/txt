@@ -2,42 +2,34 @@
 ---
 
 
-## 字节跳动创始人张一鸣卸任董事长
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1638224/)
+## 辉瑞死亡疫苗：2800 例死亡与某批次辉瑞疫苗相关
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1638271/)
 
-翻译：西班牙喜悦农场–wenwu
+编译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1.jpg)据报道，字节跳动创始人张一鸣身价约为 445 亿美元。 彭博新闻
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown.png)图片来源：redvoicemedia.com
 
-据周二（2日）晚间报道，字节跳动（ByteDance Ltd.）创始人张一鸣将在[辞去](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)（5月）TikTok 的[首席执行官](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)的数月后，一并辞去字节跳动的董事长（3日）的位置。
+在周一的节目中，我们的斯图·彼得斯先生 [(Stew Peters](https://www.redvoicemedia.com/2021/11/vaers-reveals-death-by-lot-number-specific-states-get-certain-vials/)) 研究了疫苗不良事件报告系统 (VAERS) 中最新的令人不安的启示。彼得斯说，CDC 使用的“系统的数据表明，这些疫苗造成的死亡和与之相关的副作用，远远超过历史上任何和所有先前疫苗的总和。”
 
-[彭博新闻](https://www.bloomberg.com/news/articles/2021-11-03/bytedance-s-zhang-exits-board-joining-exodus-by-tech-founders?srnd=technology-vp&amp;sref=Oeyjq8by)和[路透社](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)援引熟悉此事的消息人士的话[报道](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)称，字节跳动的首席执行官 Liang Rubo 将接替张先生担任董事长。
+《每日曝光》（Daily Exposé）的一项新分析发现，在 Covid-19 疫苗接种报告的所有死亡中，100% 来自仅有的 5% 的疫苗批次，即使在该组中，少数疫苗批次的死亡人数和不良反应比其他人多，”彼得斯说。“如果这是真的，那么劣质疫苗的质量控制会导致受污染的批次被淘汰，不必要地导致数千人死亡。”
 
-周二早些时候，字节跳动宣布了一项将公司重组为六个业务部门的计划。作为重组的一部分，《华尔街日报》报道称，字节跳动[首席财务官](https://www.wsj.com/articles/bytedance-cfo-is-stepping-down-to-focus-on-tiktok-11635885543?mod=Searchresults_pos1&amp;page=1&amp;mod=article_inline) Shou Zi Chew 将卸任，专注于他作为 TikTok 首席执行官的角色。
+为了进一步讨论这个问题，彼得斯与简·鲁比( Jane Ruby )博士坐了下来，他们说这里的作用远不止劣质的质量控制。鲁比解释说，我们在这里看到的是：“在该国的一个地区，人们正在死亡并永久残疾，但在该国其他地区却没有。”
 
-随着中共国政府[收紧对互联网公司的控制](https://www.marketwatch.com/story/chinas-communist-party-exerting-tighter-control-over-the-countrys-internet-giants-01633320070?mod=article_inline)，38 岁的张是最近一位离开他们创立的公司的中共国亿万富翁。拼多多公司[PDD， +0.12%](https://www.marketwatch.com/investing/stock/PDD?mod=MW_story_quote)的创始人兼董事长 Colin Huang于 [3月](https://www.marketwatch.com/story/pinduoduo-founder-colin-huang-steps-down-from-company-11615997079?mod=article_inline)退出该公司；京东商城[JD， +0.82%](https://www.marketwatch.com/investing/stock/JD?mod=MW_story_quote)的创始人兼董事长刘强东于9月份退出[了公司的](https://www.marketwatch.com/articles/jd-com-says-founder-stepping-back-from-day-to-day-running-of-the-business-51630941420?mod=article_inline)日常管理；快手科技（Kuaishou Technology）联合创始人兼首席执行官 Su Hua 于[上周同样退出了公司](https://www.wsj.com/articles/chinese-video-platform-kuaishou-says-ceo-steps-down-11635529476?mod=article_inline)。
+鲁比然后查阅了这些数字，引用了辉瑞的一张图表，该图表显示：“96% 的辉瑞批次的死亡报告为零。**这意味着大约**** 2800 ****例报告的死亡仅与那****4%****批次的辉瑞疫苗相关**。”
 
-总部位于北京的字节跳动成立于 2012 年，其热门应用 TikTok 每月拥有近 7 亿用户。截至上一轮融资时，私人持有的字节跳动估值为 1400 亿美元，但 [据彭博社报道](https://www.bloomberg.com/news/articles/2021-03-30/bytedance-is-said-valued-at-250-billion-in-private-trades?sref=Oeyjq8by) ，今年早些时候私有估值约为 2500 亿美元。
+“此外，请记住辉瑞的五个批号与之相关，这些批号，每个批次有 61 至 80 人死亡。 另一组每组死亡 81 至 100 人，”她继续说道。 “而且有两个不同的批号分别有超过 100 人死亡。”
 
-彭博亿万富翁指数将张先生列为[全球第 31 位最富有的人，](https://www.bloomberg.com/billionaires/profiles/yiming-zhang/?sref=Oeyjq8by)财富价值约为 445 亿美元。
+**评论：这些试验数据完全应该是诸如辉瑞这样的疫苗公司在实验室过程中得出的数据，灾难的是，他们的试验得以用全世界人給他们当白老鼠！谁之过？**
 
-**简评：**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1-1.jpg)图片来源于[禁文网](https://www.bannedbook.org/bnews/bannedvideo/20210908/1620501.html)
-
-**据2021年11月3日《DESCARGITAS》报道，中共国政府将越来越关注富有的科技企业家，许多亿万富翁积累了权力，并影响了威权。**
-
-**阿里巴巴的联合创始人马云一直是被镇压的主要受害者，最近飞离中共国到西班牙度假。自从习近平主席去年阻止了他的在线金融平台蚂蚁金服集团的上市计划后，马云就限制了公开露面（此举曾发生在毛泽东时代）；外国科技公司与雅虎一起退出中共国，本周宣布“由于商业和法律环境变得越来越具有挑战性，离开中共国。”随着新的《数据保护法》于周一（1日）在中共国生效，恰好是雅虎退出中共国的时间，法律规定了私人公司收集个人信息的条件，并制定了如何使用这些信息的规则。**
-
-**最后，向同胞们呼吁不要打疫苗，并且加入新中国联邦大家庭；从喜币上市可见，新中国联邦的实力是实实在在的。**
-
-新闻来源：[marketwatch.com] [ByteDance founder Zhang Yiming steps down as chairman: reports](https://www.marketwatch.com/story/bytedance-founder-zhang-yiming-steps-down-as-chairman-reports-11635909977) | 发布时间：2021年11月2日
+**参考资料：**[redvoicemedia][Pfizer Death Jab: “2,800 Reported Deaths Were Associated With Just 4% of the Lots of Pf](https://www.redvoicemedia.com/2021/11/pfizer-death-jab-2800-reported-deaths-were-associated-with-just-4-of-the-lots-of-pfizer-vaccines-dr-jane-ruby/?utm_medium=ppt&amp;utm_source=pushnotification)
 
 * * *
 
-*发稿：信心的选择*
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
 
  
 

@@ -2,86 +2,44 @@
 ---
 
 
-## 喜币如果没有支付系统是不完整的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1638269/)
+## 弗州选举“血腥屠杀”之夜 自由派媒体无法应对
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1638320/)
 
-[https://gtv.org/video/id=6183a68badfd99590c32fc49](https://gtv.org/video/id=6183a68badfd99590c32fc49)
+**编译：JennyBall**
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip119.png)图片来源：teamtuckercarlson.com
 
-这个喜币的支付系统，如果没有提前的筹划和计划
-If this Hcoin payment system is not planned and planned in advance
+哦，我亲爱的主，这太神奇了。就像弗吉尼亚一样，看起来毫无希望——格伦·扬金（Glenn Youngkin）拯救了这一天。这位州长候选人在昨天的老自治领选举中，击败了民主党人特里·麦考利夫（Terry McAuliffe）。
 
-这一块大蛋糕就没了
-this big cake is gone
+共和党主导了该州，在全州范围内赢得了所有三个办公室。扬金赢得了州长的胜利。 杰森·米亚雷斯（Jason Miyares ）是我们的新司法部长。温森·西尔斯(Winsome Sears )是我们的副州长。她是第一位占据州办公室的黑人女性。
 
-还有这个喜币没有支付系统，它是不完整的
-Also if Hcoin doesn’t have payment system, it is incomplete
+众议院也以 51-49 翻牌。伙计们，为迈克尔·布隆伯格倒一杯。他枪支控制的企图已经死亡，但在做出决定之前多亏他枪控啊。
 
-你没有一个金融知识和有一个新中国联邦的国家概念，你不会这么做的
-If you don’t have a financial knowledge and a national concept of the New Federal State of China, you would not do that
+民主党人应该将此作为反思的时刻。什么地方出了错？**我们知道出了什么问题**。这并不难。事实上，民主党可以轻松扭转局面并卷土重来。首先，永远不要与（孩子们的）父母开战——永远不要。其次，当你与中产阶级白人女性及其支持的东西开战时，几乎可以肯定你的政治毁灭。2021 年选举的波动表明，这是一个不支持民主党的国家。弗吉尼亚州的投票率也很高，打破了高投票率选举保证民主党获胜的神话。
 
-一个事情的结果, 你能看出一个人的初衷和初心
-From the result of an event, you can see a person’s mind
+取而代之的是，自由派媒体以其一惯常做派的疯狂。这是一个“唤醒”的感恩节自助餐，会让任何理智的美国选民从白痴中昏迷。这是白人至上。MSNBC 尽最大努力安抚自由派美国，乔伊·里德 (Joy Reid) 宣布共和党构成国家安全风险。她还说，教育是那些不想教孩子历史的白人的准则。我的眼睛滚动得不够用力。妮可·华莱士 (Nicole Wallace) 继续谈论批判种族理论是多么“不真实”，并对弗吉尼亚州的大规模共和党浪潮表示遗憾（通过福克斯新闻）：
 
-而且这个支付系统未来最重要的就是要战友们在各地去实行代理
-and the most important thing for this payment system in the future is to require comrades in arms to implement agents everywhere
+MSNBC 主持人妮可·华莱士周二在自由网络的选举之夜报道期间， 一边吐槽弗吉尼亚共和党州长候选人格伦·扬金，一边宣布批判种族理论“不真实”。
 
-大家一定记住你代理的前提，你不是在各农场的战友是不可能让你代理的
-Everyone must remember the premise of you being an agent, if you are not a comrades in arms of each Farm and it is impossible for you to act as an agent
+扬金的批评者试图将他与前总统唐纳德·川普联系起来，并驳回该州父母普遍存在的与教育相关的担忧，但华莱士，共和党的后裔，变成了狂热的自由派专家，在一次党派咆哮中设法做到了这两点。
 
-不是谁来都给你代理的，这绝对不是人人都有的机会
-This is not for everyone, the opportunity is absolutely not for everyone
+华莱士说：“他在川普的祭坛上敬拜……他并没有在大谎言或致命的叛乱上与川普保持太多距离。”“所以，我认为真正不祥的是，批判的种族理论是不真实的，它使郊区支持川普的共和党人的支持率提高了 15%。” 是的，即使是 NBC 新闻记者也指出，杨金绝对不是川普，这就是为什么麦考利夫的攻击线从未奏效的原因。
 
-而且这必须是法治基金的捐款者排第一位
-Donors to the Rule of Law Fund must come first
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip120.png)
 
-然后是GTV的老椅子投资者，然后是喜币G|CLUB的投资者
-Then the original investors of GTV, and then the investors of Hcoin and G|CLUB
+**点评**： **无论党派如何，如果想赢得人民的信任，“永远不要与（孩子们的）父母开战——永远不要。”**
 
-这是个最基本的常识，就像我当初说的几个月以前
-This is the most basic concept, as I said a few months ago
-
-咱们现在所有GTV的GTV公司拥有喜联储的5%的股份, 盖特的5%的股份
-Now all our shareholders of GTV company own 5% of the shares of the Himalaya Federal Reserve, own 5% stake of Gettr’s
-
-你这是开玩笑吗？兄弟姐妹们，现在想想这是多大的钱，
-are you kidding me? Brothers and sisters, now think about how large amount money this is
-
-就这个概念, 你拿到那个SPAC的公司, 上市得值多少钱
-If our G-TV uses SPAC’ way of going public, How much value will it be?
-
-那么今天已经还差几十个小时咱们喜币就要上市了, 在一个月后就上支付系统了，
-So today, it’s dozens of hours away before our HCoin will be listed
-
-战友们想想你在全世界各地
-Comrades in arms, think about it, you are at all over the world
-
-你有过这样的祖国的概念吗？
-Have you ever had such a concept of the motherland?
-
-你有过和你生命和利益未来相连接的, 这样的希望和这样的机会吗？
-Have you ever had this kind of hope and this kind of opportunity connected to the future of your life and interests?
+**新闻来源**： [teamtuckercarlson.com][It Was A ‘Bloodbath’ For Democrats Last Night…And The Liberal Media Couldn’t Handle It](https://teamtuckercarlson.com/news/it-was-a-bloodbath-for-democrats-last-night-and-the-liberal-media-couldnt-handle-it/)
 
 * * *
 
-Date:11/03/2021
-原视频标题: 喜币如果没有支付系统是不完整的
-Hcoin is incomplete without a payment system
-原视频日期：2021/10/29
-原视频链接 https://gettr.com/post/pfpg3x3c6e
-任务编号：2737
-视频时间段 : 0:00-1:28
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+
+
 
  
 

@@ -2,57 +2,86 @@
 ---
 
 
-## 视频| 青蒿素是中国送给世界的礼物
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1638219/)
+## 喜币如果没有支付系统是不完整的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1638269/)
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+[https://gtv.org/video/id=6183a68badfd99590c32fc49](https://gtv.org/video/id=6183a68badfd99590c32fc49)
 
-制作：香草山视频部
+**郭文贵
+Miles Guo**
 
+这个喜币的支付系统，如果没有提前的筹划和计划
+If this Hcoin payment system is not planned and planned in advance
 
+这一块大蛋糕就没了
+this big cake is gone
 
-当世界仍然受到新冠病毒浪潮的威胁时，人们注意到一些权威人士并不总是像他们所宣扬的那样一直戴着口罩。部分原因可能是因为他们得到了某种特殊待遇，从而使他们免受影响。据悉，中共官员已经获得了某种解药，可以治疗Covid-19病毒。因此，在这些享有特权的少数人中从未有Covid-19感染的报道。如果有解毒剂，那不是很好吗？如果有的话，谁有，普通人什么时候能有呢？在郭先生8月30日的直播中，他向世界揭开了这个谜团–是的，有一种Covid-19的解药，名字叫青蒿素。而中国共产党拥有它，并一直向世界隐瞒这个秘密。
+还有这个喜币没有支付系统，它是不完整的
+Also if Hcoin doesn’t have payment system, it is incomplete
 
-**什么是青蒿素？ 青蒿素的历史**
+你没有一个金融知识和有一个新中国联邦的国家概念，你不会这么做的
+If you don’t have a financial knowledge and a national concept of the New Federal State of China, you would not do that
 
-青蒿素是屠呦呦女士在1972年发现的，经过几十年的努力，她一直在寻找治疗寄生虫病的方法。这一成就对人类意义重大，屠呦呦女士于2015年10月5日被瑞典卡罗林斯卡学院授予诺贝尔医学奖。
+一个事情的结果, 你能看出一个人的初衷和初心
+From the result of an event, you can see a person’s mind
 
-青蒿素及其半合成衍生物是一组用于治疗疟疾的药物。青蒿素是一种从青蒿中提取的抗疟内酯。
+而且这个支付系统未来最重要的就是要战友们在各地去实行代理
+and the most important thing for this payment system in the future is to require comrades in arms to implement agents everywhere
 
-中国人知道这种植物的药用价值至少有两千年的历史。该属的名称来自希腊神话中的阿尔特弥斯女神，更确切地说，可能是以公元前四世纪的植物学家和医学研究者–迦里亚女王阿尔特弥斯二世命名。
+大家一定记住你代理的前提，你不是在各农场的战友是不可能让你代理的
+Everyone must remember the premise of you being an agent, if you are not a comrades in arms of each Farm and it is impossible for you to act as an agent
 
-屠呦呦女士认为这本书中的一个提示是她的灵感来源，即《急诊处方手册》，描述了基于传统中草药的临床研究，由葛洪写于公元340年。它记录了从青蒿这种草药中提取的一个关键提示 – 该草药应浸泡在冷水中。”用两升水浸泡一把清荷，拧出汁液，然后全部喝掉。” 屠呦呦女士一直在孜孜不倦地寻找青蒿素，直到这次发现，她深有体会地说：”青蒿素是中国传统医学送给世界的礼物’。
+不是谁来都给你代理的，这绝对不是人人都有的机会
+This is not for everyone, the opportunity is absolutely not for everyone
 
-**青蒿素的用途是什么？**
+而且这必须是法治基金的捐款者排第一位
+Donors to the Rule of Law Fund must come first
 
-2021年8月30日，郭文贵先生向世人揭开了一个秘密：青蒿素是抵御Covid-19的最佳药物，可以减少或中和Covid-19疫苗接种引起的一系列副作用。它可以作为Covid-19的解药。
+然后是GTV的老椅子投资者，然后是喜币G|CLUB的投资者
+Then the original investors of GTV, and then the investors of Hcoin and G|CLUB
 
-根据郭先生在东京奥运会前获得的情报，按照计划，中共为所有中国运动员使用了青蒿素片/丸和青蒿素喷雾剂。因此，中国的运动员和最有特权的党内高级官员获得了对Covid-19的免疫。目前，市场上只有青蒿素片剂，喷雾剂尚未上市。
+这是个最基本的常识，就像我当初说的几个月以前
+This is the most basic concept, as I said a few months ago
 
-显然，郭先生的直播在药店市场上掀起了一场大风暴–在他的惊人披露之后的一个多小时内，青蒿素的价格在全世界的在线市场上飙升，然后 “售罄 “的标志被全面挂起。
+咱们现在所有GTV的GTV公司拥有喜联储的5%的股份, 盖特的5%的股份
+Now all our shareholders of GTV company own 5% of the shares of the Himalaya Federal Reserve, own 5% stake of Gettr’s
 
-参考资料：
-[https://gnews.org/1507678/](https://gnews.org/1507678/https://gnews.org/1513216/https://gnews.org/1501326/)
-[https://gnews.org/1513216/](https://gnews.org/1507678/https://gnews.org/1513216/https://gnews.org/1501326/)
-[https://gnews.org/1501326/](https://gnews.org/1507678/https://gnews.org/1513216/https://gnews.org/1501326/)
+你这是开玩笑吗？兄弟姐妹们，现在想想这是多大的钱，
+are you kidding me? Brothers and sisters, now think about how large amount money this is
 
+就这个概念, 你拿到那个SPAC的公司, 上市得值多少钱
+If our G-TV uses SPAC’ way of going public, How much value will it be?
 
+那么今天已经还差几十个小时咱们喜币就要上市了, 在一个月后就上支付系统了，
+So today, it’s dozens of hours away before our HCoin will be listed
 
-*发稿：雪梨*
+战友们想想你在全世界各地
+Comrades in arms, think about it, you are at all over the world
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+你有过这样的祖国的概念吗？
+Have you ever had such a concept of the motherland?
 
-**更多资讯，更多关注**
+你有过和你生命和利益未来相连接的, 这样的希望和这样的机会吗？
+Have you ever had this kind of hope and this kind of opportunity connected to the future of your life and interests?
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+* * *
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+Date:11/03/2021
+原视频标题: 喜币如果没有支付系统是不完整的
+Hcoin is incomplete without a payment system
+原视频日期：2021/10/29
+原视频链接 https://gettr.com/post/pfpg3x3c6e
+任务编号：2737
+视频时间段 : 0:00-1:28
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
