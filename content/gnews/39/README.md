@@ -2,23 +2,26 @@
 ---
 
 
-## 美国卡车运输协会考虑取消政府合同，而非解雇未接种疫苗员工
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1637940/)
+## 纳瓦罗称美国经济正面临滞涨与通缩并存的局面
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1637942/)
 
-作者：纽约香草山福音部 – lilian89
+作者：日本方舟农场 – Andy5
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-为了遵守拜登政府的强制疫苗令，美国卡车运输协会（ATA）正在考虑取消所有的政府合同，而非解雇必要数量的卡车司机。尽管政府合同可能有利可图，但在当前司机人数已远远不足的情况下，不为政府拉货而仅为私人提供运输服务，既可充分利用现有人力，也可缓解供应线的危机。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture44.jpg)
-包括UPS、联邦快递和亚马逊在内的其他航运机构也准备反击疫苗强制接种令，他们已要求拜登政府将该任务推迟到2022年。
+11月2日，纳瓦罗先生在接受班农作战室采访时指出，美国经济正面临着史无前例的衰退，与此同时也承受着通货膨胀的巨大压力。 纳瓦罗先生表示，现在的经济状况，是他作为一个宏观经济学家，在整个生涯中都没有见过的更恶劣态势。他强调，当前政府同70年代卡特政府一样，正在执行挥霍无度的金融政策，随时都可能出现70年代，滞涨和通缩并存的10年大萧条局面。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture66-1.jpg)
+而早在2020年3月和6月，郭先生在大直播中就提到，在工业产品过度、成品便宜但没人购买的时候，与生活必需物质，比如口罩等却千金难求。疫情之后，世界经济将出现长期衰败。而喜币系统的上线，是人们保全自己财产的一缕曙光。
 
-“随着旺季的到来，政府当局对承包商的强制疫苗政策，可能会成为假日期间 运输公司为客户提供服务的主要绊脚石。”货运航空公司协会主席斯蒂芬·阿尔特曼解释道：“如果员工决定辞职或退休，而非接种疫苗，日益严重的工人短缺情况很可能会进一步恶化。”
-
-参考链接：[美国卡车运输协会考虑取消政府合同，而非解雇未接种疫苗员工](https://djhjmedia.com/steven/truckers-weigh-canceling-government-contracts-rather-than-firing-unvaccinated-workers/)
+参考链接：
+1. [纳瓦罗称美国经济正面临滞涨与通缩并存的局面](https://gettr.com/post/pfpeeo20b0)
+2. [纳瓦罗称美国经济正面临滞涨与通缩并存的局面](https://gettr.com/post/pfpa5sed26)
+3. [纳瓦罗称美国经济正面临滞涨与通缩并存的局面](https://gettr.com/post/pfp4bd2bfa)
+4. [纳瓦罗称美国经济正面临滞涨与通缩并存的局面](https://www.gettr.com/post/pfxr9wac95)
+5. [纳瓦罗称美国经济正面临滞涨与通缩并存的局面](https://cn.nikkei.com/politicsaeconomy/epolitics/46508-2021-10-29-09-45-33.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 总编：Irene木木
-编辑：小鹿妞妞
+编辑：AN
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

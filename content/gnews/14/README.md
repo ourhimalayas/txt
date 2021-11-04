@@ -2,22 +2,29 @@
 ---
 
 
-## 秘翻在线：巴西颁布法令禁止雇主解雇未接种疫苗员工
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1638238/)
+## 中共国占全球二氧化碳排放量的 31%
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1638325/)
 
-#### 翻译/撰稿：zzballack
+新闻来源：德国世界报网页版
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-2.jpg)图片来源：华尔街日报
-《布雷特巴特新闻网》（Breitbart）11月3日援引巴西媒体《环球报》（O Globo）的报道，巴西劳工部长米尔顿·里贝罗 (Onyx Lorenzoni)11月1日发布了一项法令，禁止雇主在“雇佣或维持就业”时要求员工提供中共病毒疫苗的接种证明。法令写道，“在雇佣工人的选择过程中强制要求提供疫苗接种证明，以及因未出示疫苗接种证明而以所谓的正当理由解雇员工，被认为是一种歧视性做法。”
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-根据新条例，雇主可以制定病毒的相关指南，并鼓励其员工接种新冠疫苗。“但是，如果任何员工不出示他们的疫苗接种卡，公司不能因此将其解雇。如果他们这样做，他们可以选择让员工复职，或在其缺勤期间支付双倍的报酬。”
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_0552.jpg)
 
-关于是否接种疫苗的选择只属于公民，里贝罗11月1日通过社交媒体回应说：“这属于你的个人自由范围，这必须得到尊重。无论是航空公司、经销商或者商店，作为雇主，你必须尊重巴西的法律和巴西公民的权利，这就是颁布这项法令的原因，禁止任何和所有以此为由的解雇行为。这份文件只有一个目标：保护自由权，保证数百万巴西人的工作和工作机会。”
 
-巴西圣保罗地区的劳工法院今年7月裁定当地一家市立医院将一名选择不接种疫苗的清洁工助理解雇是出于“正当理由”的行为，这个案子开了一个不好的先例。在全球的疫苗暴政愈演愈烈的情况下，巴西劳工部的这一最新法令无疑会激励人们反抗暴政，捍卫自身权益。
+图片来源： 视频截图
 
-新闻来源：[Brazil Bans Employers from Firing Unvaccinated Workers](https://www.breitbart.com/latin-america/2021/11/03/brazil-bans-employers-from-firing-unvaccinated-workers/)
+2021年，中国占全球温室气体排放量的 31%。这源于在格拉斯哥全球气候会议上发表的一项研究项目的气候报告。
+
+去年，中国占全球温室气体排放量的 31%。这来自研究项目 2021 年全球碳项目的气候报告，该报告于周四在格拉斯哥举行的世界气候大会 COP26 之际发布。
+
+全球碳项目的作者解释说，二氧化碳排放量的大幅增加可能是由于中国经济比世界其他地区更早地从新冠危机中恢复过来。能源部门和工业是造成较高二氧化碳排放量的原因。
+
+报告称，今年全球温室气体排放量将再次接近新冠病毒大流行前的水平。研究人员表示，如果今年的趋势继续下去，则不能排除 2022 年排放量进一步增加的可能性。当道路和空中交通恢复到以前的水平时尤其如此。
+
+原文链接：[https://www.welt.de/politik/ausland/article234829530/COP26-China-fuer-31-Prozent-der-globalen-CO2-Emissionen-verantwortlich-Rueckgang-in-Deutschland.html](https://www.welt.de/politik/ausland/article234829530/COP26-China-fuer-31-Prozent-der-globalen-CO2-Emissionen-verantwortlich-Rueckgang-in-Deutschland.html)
+
+责任编辑、发布： Shuizhuyu
 
  
 

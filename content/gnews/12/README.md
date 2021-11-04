@@ -2,86 +2,40 @@
 ---
 
 
-## 喜币如果没有支付系统是不完整的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1638269/)
+## 英国名校西敏公学撤出中共国 受中共教育新规打压
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1638335/)
 
-[https://gtv.org/video/id=6183a68badfd99590c32fc49](https://gtv.org/video/id=6183a68badfd99590c32fc49)
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-3.png)
+图片来自网络
 
-**郭文贵
-Miles Guo**
+据《大纪元》2021年11月4日报道，英国名校西敏公学（Westminster School）宣布取消在中共国开设一系列学院的计划，原因是中共当局日益严厉的打压。
 
-这个喜币的支付系统，如果没有提前的筹划和计划
-If this Hcoin payment system is not planned and planned in advance
+西敏公学是英国最负盛名的学校之一，有六位英国首相曾就读于这所公校。
 
-这一块大蛋糕就没了
-this big cake is gone
+在中共颁布教育新规，禁止私立学校使用外国课程和教科书教授中共国公民后，西敏公学取消了该校原计划到2028年在中共国开设6所学校的计划。这一事件成为中共国国际教育在迅速扩张后走向逆转的最引人注目的事件之一。
 
-还有这个喜币没有支付系统，它是不完整的
-Also if Hcoin doesn’t have payment system, it is incomplete
+西敏公学位于成都的第一所中共国学校目前已经建成，原定于今年9月开学，计划招收2000名3至18岁的学生，以双语教学。然而，该校董事会主席马克·巴顿（Mark Ba​​tten）11月2日致信学生和校友称，该计划由于疫情和“中国（中共）教育政策的近期变化”而结束。巴顿表示，现在发展此类学校的前景已与2017年大不相同。
 
-你没有一个金融知识和有一个新中国联邦的国家概念，你不会这么做的
-If you don’t have a financial knowledge and a national concept of the New Federal State of China, you would not do that
+西敏公学在一份声明中表示，“中国（中共）制定了多项新的教育法规，这将影响成都拟建学校的运营，因此，“不太可能获得在最初计划模型上运营的许可证”。
 
-一个事情的结果, 你能看出一个人的初衷和初心
-From the result of an event, you can see a person’s mind
+据英国《泰晤士报》报道，英国下议院外交事务委员会主席、保守党议员汤姆·图根哈特（Tom Tugendhat）指出，在习近平领导下的中（共）国，文化交流的空间正在缩小。
 
-而且这个支付系统未来最重要的就是要战友们在各地去实行代理
-and the most important thing for this payment system in the future is to require comrades in arms to implement agents everywhere
+英国《电讯报》的报道也指出，今年早些时候有消息称，在中共国的英国著名私立学校将被迫放弃课程，只教授北京（中共）批准的课程。这是习近平主席要求确保“思想正确”更广泛努力的一部分。
 
-大家一定记住你代理的前提，你不是在各农场的战友是不可能让你代理的
-Everyone must remember the premise of you being an agent, if you are not a comrades in arms of each Farm and it is impossible for you to act as an agent
+根据中共的教育新规定，从幼儿园到九年级，国际学校现在必须教授与中共国公立学校相同的课程。所有私立学校现在都必须“坚持中国共产党的领导”，此举旨在让中共对孩子的学习有更大的监督力度。
 
-不是谁来都给你代理的，这绝对不是人人都有的机会
-This is not for everyone, the opportunity is absolutely not for everyone
+此外，已于9月生效的新规定还限制外国控制和参与私立学校的运营，要求学校董事会成员为中共国人，并试图规范昂贵的学费。
 
-而且这必须是法治基金的捐款者排第一位
-Donors to the Rule of Law Fund must come first
+咨询公司“威廉克拉伦斯教育”（William Clarence Education）董事总经理斯蒂芬·斯普里格斯（Stephen Spriggs）指出：“学校将中（共）国视为铺满黄金的土地总是存在风险的。你有可能因其政府的政策而改变。”
 
-然后是GTV的老椅子投资者，然后是喜币G|CLUB的投资者
-Then the original investors of GTV, and then the investors of Hcoin and G|CLUB
+斯普里格斯还认为，将有更多英国学校撤出中共国，转而瞄准更多“政治稳定”的国家。
 
-这是个最基本的常识，就像我当初说的几个月以前
-This is the most basic concept, as I said a few months ago
+中共国与世界的“文化脱钩”正在进行中。在习近平的领导下，中共国近年来正在全面走向倒退，重回闭关锁国的老路，主动或被动地与世界脱钩，与文明社会为敌。这是一条倒退路，也是一条不归路。
 
-咱们现在所有GTV的GTV公司拥有喜联储的5%的股份, 盖特的5%的股份
-Now all our shareholders of GTV company own 5% of the shares of the Himalaya Federal Reserve, own 5% stake of Gettr’s
+注：本文仅代表作者观点
 
-你这是开玩笑吗？兄弟姐妹们，现在想想这是多大的钱，
-are you kidding me? Brothers and sisters, now think about how large amount money this is
-
-就这个概念, 你拿到那个SPAC的公司, 上市得值多少钱
-If our G-TV uses SPAC’ way of going public, How much value will it be?
-
-那么今天已经还差几十个小时咱们喜币就要上市了, 在一个月后就上支付系统了，
-So today, it’s dozens of hours away before our HCoin will be listed
-
-战友们想想你在全世界各地
-Comrades in arms, think about it, you are at all over the world
-
-你有过这样的祖国的概念吗？
-Have you ever had such a concept of the motherland?
-
-你有过和你生命和利益未来相连接的, 这样的希望和这样的机会吗？
-Have you ever had this kind of hope and this kind of opportunity connected to the future of your life and interests?
-
-* * *
-
-Date:11/03/2021
-原视频标题: 喜币如果没有支付系统是不完整的
-Hcoin is incomplete without a payment system
-原视频日期：2021/10/29
-原视频链接 https://gettr.com/post/pfpg3x3c6e
-任务编号：2737
-视频时间段 : 0:00-1:28
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**新闻链接：**[https://twitter.com/dajiyuan/status/1456139281395855361](https://twitter.com/dajiyuan/status/1456139281395855361)
 
  
 

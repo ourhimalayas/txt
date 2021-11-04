@@ -2,48 +2,36 @@
 ---
 
 
-## 你买的喜币严格讲叫喜联储,你买的是铸币权和造钱的权力
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1638014/)
+## 喜联储全面庆贺喜币上市同时美联储减少“量化宽松”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1638038/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-13-1536x864_副本.png)
-据[2021年11月03 日 文贵大直播：彭帅爆张高丽丑闻，再次验证爆料革命的真实性；喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产；房地产税会灭国灭党；共和党在弗吉尼亚州长竞选获胜意味着什么](https://gtv.org/video/id=61827dfd11d186296800dd83)时间点58：03——
+作者：东京樱花团｜捆绑CCP一千年
 
-**郭文贵先生：**你买的喜币叫Himalaya Exchange，严格讲就叫喜联储，你买的是喜联储。你买的是铸币权和币，你买的是钱和造钱的权力，你别忘了，这个不是币，你买的是Himalaya Exchange，它是造币权和钱。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/喜联储全面庆贺喜币上市同时美联储减少量化宽松.png)[*图片来源*](https://thehill.com/sites/default/files/styles/thumb_small_article/public/federalreserve_091619gn6_lead.jpg?itok=Xu4rOgZ6)
 
-啥叫股票呢？股票是公司的一个盈利的一个希望，它能流通吗？它能买鸡蛋吗？它能买衣服吗？它能再决定多印刷吗？——不可能！它是有限的一个范围内的一个承诺，你看得是长期的它的盈利和财务，它不能流通、不能交易。
+据《[朝日新闻](https://www.asahi.com/articles/ASPC41SHGPC4UHBI002.html)》11月3日消息称：美联储理事会（FRB）决定这个月开始减少 “量化宽松” 政策，这意味着美联储（央行）减少购买国债规模，“收紧”货币政策行动的开始。这是从大流行导致大萧条以来应对疫情下的经济危机所做出经济正常化努力道路上的第一步。
 
-你买的喜币你可以去买G-Fashion，你可以买飞飞的兜兜，可以买爱米粒的上次脱的衣裳，你可以买好海东先生签过字的球、叶钊颖的球——什么都可以买！无限的大，它有交易权。
+从去年3月出台的应对COVID19病毒危机的“紧急”货币政策来看，美国将在经济复苏的背景下迈出正常化努力的第一步。这意味着经济水平调整到一定“通缩”的程度。“美联储已将基准利率区间下调至 0 至 0.25%”。[**阅读更多**](https://thehill.com/policy/finance/economy/579879-federal-reserve-announces-tapering-of-bond-purchases)
 
-还有你买的Exchange是交易，它是铸币权！股票跟它一比，流通VS非流通，所以它的权力是什么，它被批准了100年1000个亿的币，你不能改，你改了就不行，刚才就我告诉你，所以衡量Himalaya的所有的价格都是1000亿个币结算，你当然不能按10亿币结算了。
+- ***延展阅读：***[***量化宽松副作用显现 美联储年内缩减购债可期***](http://www.xinhuanet.com/2021-08/19/c_1127777139.htm)
 
-你现在比如说Elon Musk的股票，我现在就是多少股，你可以你再增发你都是这个股都在那搁着呢，你不可能说我卖完了，我现在Tesla我有1000亿股，我现在实际我有10000亿股，你不可以，你的增发是在你的股票的基础上来的，你是一个鸡蛋掰碎了给大家分去。这个币可不是的，第一天就决定你有多大，你只有1000亿个，个数是不可以改变的。
 
-还有一个，你买的喜联储是铸币权呐，兄弟呀，它不是光是……，你买的是钱和印钱的权力，哇塞，这大了去了，而且它全流通，而且无国界，Elon Musk的股票可以到中国买吗？Elon Musk的股票在北朝鲜你可以买吗？现在最垂涎喜币的绝对不是你我，也不是共产党，一定是北朝鲜，一定是伊朗、俄罗斯。越闭塞的地方越想要这个，因为它是保值的，绝对保值。
+该消息指出，联邦公开市场委员会（FOMC）3日决定放慢购买国债步伐，计划从 11 月开始，从购买美国国债等资产共计1200亿美元（约14万亿日元）中每月减少 150 亿美元的购买，并在 2022 年中期停止美联储的资产扩张。之后，将通过“取消零利率”（加息）进入全面常态化。
 
-（以下暂略）
+- ***延展阅读：***[***美联储旧金山报告显示：乔·拜登的1.9万亿救援计划正在加剧通货膨胀***](https://www.cnn.com/2021/10/19/economy/inflation-biden-stimulus/index.html)
 
-撰稿：喜马拉雅的肉夹馍；
 
-审核：喜马拉雅的馍夹肉；
+在病毒大流行导致严重的供应链中断的冲突下，某些行业价格上涨如（租金上涨）的时间比央行官员预期的要长，以及工资压力和工人严重短缺的矛盾加剧，引发了人们对长时期通胀预期的担忧。但美国此时宣布从大流行中复苏是否为时尚早？
 
-校对：Maarago；
+在全球经济危机仍不确定的情势下，[喜马拉雅联储](https://himalaya.exchange/)发行的数字加密货币喜币（H Coin）于美国11月1日晚间时间上市，这将给全球经济如何走出困境提供了一个可以避险的稳定的货币工具。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+喜币的三大优势无人可以忽视，正如它的创立者[**郭文贵先生所言**](https://app.gettr.com/streaming/pfthc26264)：1，在西方世界金融机构认可。2，喜币所有区块链技术是世界上最好的。3，区块链技术和有中心化的负责是（财富）最安全的。（2:33:58时段）
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+2021年11月4日
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
