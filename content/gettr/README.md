@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/4/2021 1:08 AM (UTC)`
+
+11/3/2021 Hao Haidong couple reveal: Guo Jingjing, a retired female champion diver, had condoms in her drawer when she was just about 10 years old in 1992<br/><br/>11/3/2021 郝海东夫妇爆料：92年十岁左右的郭晶晶在抽屉竟然放了避孕套！<br/>
+![img](https://media.gettr.com/group22/getter/2021/11/04/01/08/7207bb2d-219c-0693-e337-db0207da2d16/out.jpg)
+
+---
+
 `@miles 11/3/2021 11:41 PM (UTC)`
 
 11/3/2021 Miles Guo: The recent incident of Peng Shuai has proven everything I have exposed regarding the CCP’s evil deeds in the past 4 years. The CCP’s old kleptocrats, including Zhang Gaoli, sexually abuse the entire family of the Chinese Lao Baixing, including the girl, her mother, and her grandmother, while the kleptocrats‘ wives would help them guard the door<br/><br/>11/3/2021 文贵直播：最近的彭帅事件证明了文贵4年来关于中共邪恶的爆料；包括张高丽在内的中共老杂毛玩弄老白姓全家，女儿、妈妈和奶奶三代人都不放过，老杂毛的夫人们还帮忙他们把门<br/>
@@ -289,13 +296,6 @@ Hcoin To The Moon <br/><br/>词：威廉王<br/>曲：唐平<br/>编曲： SFG<b
 
 <br/>喜马拉雅币上市时间：<br/>格林威治时间：<br/>2021年11月1日 11:11 AM<br/>美国东部时间：<br/>2021年11月1日 07:11 AM<br/>北京时间：<br/>2021年11月1日 07:11 PM<br/><br/>直播平台：<br/>GTV：<br/>郭文贵MILES<br/>GETTR ：<br/>MILES GUO<br/><br/><br/>直播时间：<br/>格林威治时间：<br/>09:37 AM<br/>美国东部时间：    <br/>05:37 AM<br/>北京时间：<br/>05:37 PM
 ![img](https://media.gettr.com/group7/origin/2021/10/31/08/7d220c73-c9bb-425d-6b57-6a5ab924873c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 10/31/2021 2:03 AM (UTC)`
-
-尽管美国食品和药物管理局（FDA）知道因中共病毒致死的5-11岁儿童人数很少，他们仍然计划要给孩子们接种疫苗<br/><br/>FDA plans to roll out Covid vaccination for children aged 5-11 despite knowing the low death tolls in this age group associated with CCP Virus 
-![img](https://media.gettr.com/group46/getter/2021/10/31/02/03/a9a935cd-80c1-c5ff-6f6a-4db5889861cc/out.jpg)
 
 ---
 
