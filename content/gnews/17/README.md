@@ -2,51 +2,31 @@
 ---
 
 
-## 美国国际旅行新规：11月8日起，外国旅客入境将被要求全面接种疫苗
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1637362/)
+## 美联储开始踩刹车
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1637397/)
 
-作者：纽约香草山 – AlexZ
+**翻译：**沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-03-184356-edited.png)图片来源：网络
+来自纽约美国有线电视新闻网的报道：自 2020 年 3 月以来，美联储一直在不断地将经济刺激踏板推向金融市场，自大流行病在全球舞台上爆发以来，它首次放慢了脚步。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+美联储每月购买价值数十亿美元的政府债券和其他资产，通过 Covid 支持经济。 但现在央行正在降低每月购买的步伐，将美国国债的债券购买量减少 100 亿美元，机构抵押贷款支持证券的购买量减少 50 亿美元。
 
+美联储很难摆脱刺激创可贴，它将暂时将目标利率维持在接近零的水平。 它本月仍将购买至少 700 亿美元的美国国债和至少 350 亿美元的抵押贷款支持证券。 从 12 月开始，这些金额将分别降至至少 600 亿美元和至少 300 亿美元。
 
+谨慎小心地放松紧急刺激措施就是所谓的逐渐减少，美联储已电报此举，这是投资者和分析师的预期。
 
+美联储主席杰罗姆鲍威尔在周三的新闻发布会上对记者说：“我们认为现在是缩减规模的时候了，因为经济已经朝着我们的目标取得了实质性进展。”“我们认为现在还不是加息的时候，”他补充说，并表示劳动力市场复苏仍有更多空间。 例如，尽管自大流行以来美国的就业市场已经走了很长一段路，但劳动力参与率仍然低于 Covid 19之前。 也就是说，明年有可能实现最大的就业，鲍威尔说。“加息时间将取决于经济情况，我认为我们可以耐心等待”鲍威尔说。
 
+美联储宣布后，市场并没有立即出现“缩减恐慌”，主要股指甚至小幅走高，尽管股市只是在温和的范围内波动。
 
-10月25日，白宫和CDC宣布，将于11月8日对国际旅行者实施新的疫苗接种政策。国务院发言人内德-普莱斯说：”从11月8日起，前往美国的外国国民航空旅行者将被要求全面接种疫苗，并在美国登机前提供疫苗接种状况证明。”
+美联储计划在未来每个月类似地降低资产购买速度。，不过，它表示，如果经济前景发生变化，它已准备好放慢步伐或扭转缩减趋势。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1343-1-nedpa.jpg)图片：ANDREW HARNIK/POOL/AFP via Getty Images
+新闻链接：[https://t.co/NvHRNsjJps](https://t.co/NvHRNsjJps)
 
-据说此举是为了 “把健康放在第一位”。然而，批评者称此举具有侵略性，而且没有必要。尽管有新规比以往更加严格，但美国表示仍将要求所有旅行者，无论是否接种疫苗，在登机前都要接受 COVID 检测。
+编辑/发布：LILY
 
-据普莱斯证实，那些有资格旅行但尚未接种疫苗的人，需要在航班起飞前一天内提供 COVID-19 阴性检测证明。对于接种疫苗的人，测试要求仍然是在航班起飞前三天。
-
-**新闻链接：**
-
-1. [U.S. changes international travel requirements, COVID vaccine policy | One America News Network (oann.com)](https://www.oann.com/u-s-changes-international-travel-requirements-covid-vaccine-policy/)
-2. [Frequently Asked Questions on COVID-19 Vaccinations and Testing for International Travel (state.gov)](https://travel.state.gov/content/travel/en/international-travel/emergencies/covid-19-faqs-for-travel-to-the-us-information.html)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-**校对/发稿：小鹿**
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
+20211103
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 
 
 

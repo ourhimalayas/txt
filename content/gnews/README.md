@@ -15,104 +15,104 @@
 
 ---
 
-### [受强制接种政策影响加航部分员工被无薪停职](/content/gnews/1/README.md)
+### [中共国北京突现日常必需品恐慌性抢购潮](/content/gnews/1/README.md)
  ` 加拿大枫叶农场《枫叶快讯》`
 
-### [11/3/2021 文贵直播：最近的彭帅事件证明了文贵四年来关于中共邪恶的爆料](/content/gnews/2/README.md)
- ` 秘密翻译组-北美组`
+### [加拿大魁北克省政府放弃强制医护接种疫苗](/content/gnews/2/README.md)
+ ` 加拿大扬帆农场多伦多Gnews组 Himalaya Sailing Farm Toronto(CA)`
 
-### [因患疫苗血栓症台湾受害者获得高额赔偿](/content/gnews/3/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [全接种疫苗的洛杉矶市长病毒检测呈阳性](/content/gnews/4/README.md)
- ` HimalayaRussia`
-
-### [11/3/2021 文贵直播：弗吉尼亚州长选举将改变世界的命运](/content/gnews/5/README.md)
- ` 秘密翻译组-北美组`
-
-### [中共国加剧对网络媒体的审查力度](/content/gnews/6/README.md)
- ` 加拿大枫叶农场《枫叶快讯》`
-
-### [特鲁多对扼杀加拿大石油和天然气的灾难性承诺](/content/gnews/7/README.md)
+### [举报：研究人员称辉瑞疫苗试验存在数据完整性问题](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [蓬佩奥将参选下届美国总统](/content/gnews/8/README.md)
+### [美国弗吉尼亚州选举首位女性非裔共和党州长](/content/gnews/4/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [受强制接种政策影响加航部分员工被无薪停职](/content/gnews/5/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [11/3/2021 文贵直播：最近的彭帅事件证明了文贵四年来关于中共邪恶的爆料](/content/gnews/6/README.md)
+ ` 秘密翻译组-北美组`
+
+### [因患疫苗血栓症台湾受害者获得高额赔偿](/content/gnews/7/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [全接种疫苗的洛杉矶市长病毒检测呈阳性](/content/gnews/8/README.md)
+ ` HimalayaRussia`
+
+### [11/3/2021 文贵直播：弗吉尼亚州长选举将改变世界的命运](/content/gnews/9/README.md)
+ ` 秘密翻译组-北美组`
+
+### [中共国加剧对网络媒体的审查力度](/content/gnews/10/README.md)
+ ` 加拿大枫叶农场《枫叶快讯》`
+
+### [特鲁多对扼杀加拿大石油和天然气的灾难性承诺](/content/gnews/11/README.md)
+ ` MG FARM`
+
+### [蓬佩奥将参选下届美国总统](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [一树梨花压海棠——张高丽和嫩草的故事](/content/gnews/9/README.md)
+### [一树梨花压海棠——张高丽和嫩草的故事](/content/gnews/13/README.md)
  ` 秘密翻译组-原创组`
 
-### [加拿大生活美谈 2021-10-28第二十七期](/content/gnews/10/README.md)
+### [加拿大生活美谈 2021-10-28第二十七期](/content/gnews/14/README.md)
  ` canadalifetalk`
 
-### [中共外交部尴尬回应张高丽性侵丑闻](/content/gnews/11/README.md)
+### [中共外交部尴尬回应张高丽性侵丑闻](/content/gnews/15/README.md)
  ` 日本东京方舟农场`
 
-### [疫情快讯](/content/gnews/12/README.md)
+### [疫情快讯](/content/gnews/16/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美联储开始踩刹车](/content/gnews/13/README.md)
+### [美联储开始踩刹车](/content/gnews/17/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [聚焦：高盛预测以太坊今年年底前再涨80%](/content/gnews/14/README.md)
+### [聚焦：高盛预测以太坊今年年底前再涨80%](/content/gnews/18/README.md)
  ` 丁过`
 
-### [张高丽与彭帅“谈恋爱”](/content/gnews/15/README.md)
+### [张高丽与彭帅“谈恋爱”](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共墙内武统台湾消息满天飞用意何在](/content/gnews/16/README.md)
+### [中共墙内武统台湾消息满天飞用意何在](/content/gnews/20/README.md)
  ` 澳喜农场`
 
-### [美国国际旅行新规：11月8日起，外国旅客入境将被要求全面接种疫苗](/content/gnews/17/README.md)
+### [美国国际旅行新规：11月8日起，外国旅客入境将被要求全面接种疫苗](/content/gnews/21/README.md)
  ` 纽约香草山MOS01`
 
-### [文贵大直播 11/03 喜币的铸币权、无国界流通价值还远未显现](/content/gnews/18/README.md)
+### [文贵大直播 11/03 喜币的铸币权、无国界流通价值还远未显现](/content/gnews/22/README.md)
  ` 秘密翻译组-原创组`
 
-### [郝叶爆料2021.11.3：郭晶晶在未成年时被性侵](/content/gnews/19/README.md)
+### [郝叶爆料2021.11.3：郭晶晶在未成年时被性侵](/content/gnews/23/README.md)
  ` 秘密翻译组-原创组`
 
-### [因新冠肺炎病例,数万人突然被封锁在上海迪士尼乐园内](/content/gnews/20/README.md)
+### [因新冠肺炎病例,数万人突然被封锁在上海迪士尼乐园内](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [埃隆·马斯克说他愿意花60亿美元来对抗世界饥饿](/content/gnews/21/README.md)
+### [埃隆·马斯克说他愿意花60亿美元来对抗世界饥饿](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021/11/02 墙内世界](/content/gnews/22/README.md)
+### [2021/11/02 墙内世界](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [威斯敏斯特公学取消了进入中共国建立姊妹学校的计划](/content/gnews/23/README.md)
+### [威斯敏斯特公学取消了进入中共国建立姊妹学校的计划](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳大利亚为香港公民提供新的永久居留签证](/content/gnews/24/README.md)
+### [澳大利亚为香港公民提供新的永久居留签证](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [研究报告显示，伊维菌素是预防和治疗COVID-19的特效药](/content/gnews/25/README.md)
+### [研究报告显示，伊维菌素是预防和治疗COVID-19的特效药](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [佛州州长宣布组建新警察部队追究选举犯罪](/content/gnews/26/README.md)
+### [佛州州长宣布组建新警察部队追究选举犯罪](/content/gnews/30/README.md)
  ` HimalayaRussia`
 
-### [魁北克现有卫生工作者不会强制接种疫苗，只有新员工才需要](/content/gnews/27/README.md)
- ` MG FARM`
-
-### [疫苗强制令遭抵制，纽约市26家消防站因员工短缺而关闭](/content/gnews/28/README.md)
+### [疫苗强制令遭抵制，纽约市26家消防站因员工短缺而关闭](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美参议院着手正式终止拜登企业疫苗强制令](/content/gnews/29/README.md)
- ` HimalayaRussia`
-
-### [2021年11月1日喜币上市大直播全文字版（二）](/content/gnews/30/README.md)
+### [2021年11月1日喜币上市大直播全文字版（二）](/content/gnews/32/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [共和党人执掌弗吉尼亚州](/content/gnews/31/README.md)
+### [共和党人执掌弗吉尼亚州](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [重析CDC研究后，研究人员呼吁停止为孕妇接种](/content/gnews/32/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [DC每日热点1103](/content/gnews/33/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [邪恶势力制造全球混乱、攫取利益和权力，奴役全人类](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
