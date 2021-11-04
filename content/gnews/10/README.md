@@ -2,30 +2,12 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月04日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1638991/)
+## 纳瓦罗新书《川普时间》证明郭文贵提供中共病毒关键情报
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639143/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36.png)
+11/1/2021【HCoin To the Moon 庆典】纳瓦罗新书《川普时间》证明郭文贵提供了中共病毒的关键情报。该书被美国国家安全委员会批准。美国会未来会要求解密关于中共生物武器的机密文件。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-3.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：2021.11.04早GTV新闻访谈
-
-[https://gtv.org/broadcast/watch/6183d1f311d186296801834d](https://gtv.org/broadcast/watch/6183d1f311d186296801834d)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

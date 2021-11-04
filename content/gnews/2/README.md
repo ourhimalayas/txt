@@ -2,10 +2,10 @@
 ---
 
 
-## 斯坦尼斯航天中心的员工抗议拜登专制蛮横的疫苗强制令
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639111/)
+## 喜币将成为人类上共同认可的捍卫正义的力量，越走越远
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639225/)
 
-10/30/2021 一个美国新闻记者汤姆·麦格拉思采访了密西西比州斯坦尼斯航天中心的一些员工，他们正在抗议拜登专制蛮横的疫苗强制令。
+11/1/2021 【HCoin to The Moon庆典】喜币会成为人类上大家共同认可的捍卫正义的力量，越走越远。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

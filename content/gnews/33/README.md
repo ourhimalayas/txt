@@ -2,12 +2,20 @@
 ---
 
 
-## 11/3/2021 文贵直播：中共征收房产税为时已晚，亡党亡国！
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1638566/)
+## 西媒头条 — 第102期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1638742/)
 
-秘密翻译组-北美组
+**制作：蚂蚁兄弟**
+
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/xm1104.001.jpeg)
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
 
 
+
+ 
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

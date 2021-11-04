@@ -2,11 +2,10 @@
 ---
 
 
-## 郭文贵：喜马拉雅联储能耐受每秒16亿次骇客攻击
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639123/)
+## 澳洲正坠入里根《选择的时刻》演讲中警告的极权主义国家
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639238/)
 
-11/1/2021【HCoin To the Moon 庆典】郭文贵先生：喜马拉雅联储能耐受每秒16亿次骇客攻击；
-纳瓦罗新书称：川普总统发出旅行禁令，是因为听取郭先生关于中共病毒的情报。
+10/30/2021 天空新闻Alan Jones评论痛斥澳洲正在堕落为极权主义国家，让人联想到里根几十年前的著名演说。里根的警告正在西方成为现实。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,58 +2,42 @@
 ---
 
 
-## CNN报道彭帅揭张高丽性侵丑闻遭中共全面封杀
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1637865/)
+## 字节跳动创始人张一鸣卸任董事长
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1638224/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+翻译：西班牙喜悦农场–wenwu
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/P-1.jpg)bloomberg.com
-CNN的文章题目是，“中共国网球明星指控前中共国家领导人性侵犯，引发中共全面审查”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1.jpg)据报道，字节跳动创始人张一鸣身价约为 445 亿美元。 彭博新闻
 
-全文如下：
+据周二（2日）晚间报道，字节跳动（ByteDance Ltd.）创始人张一鸣将在[辞去](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)（5月）TikTok 的[首席执行官](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)的数月后，一并辞去字节跳动的董事长（3日）的位置。
 
-一位中共国网球明星对一位前国家领导人的爆发性指控被全面审查所掩盖，当局竞相抹去任何关于在中共国互联网上提及的政治敏感丑闻。
+[彭博新闻](https://www.bloomberg.com/news/articles/2021-11-03/bytedance-s-zhang-exits-board-joining-exodus-by-tech-founders?srnd=technology-vp&amp;sref=Oeyjq8by)和[路透社](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)援引熟悉此事的消息人士的话[报道](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)称，字节跳动的首席执行官 Liang Rubo 将接替张先生担任董事长。
 
-35岁的彭帅，前温布尔登网球公开赛和法网双打冠军，周二（11月2日）指控退休副总理张高丽强迫她发生性行为，（此消息）根据彭在微博（中共国类似推特的社交媒体平台）上的验证账户中删除的帖子截图。
+周二早些时候，字节跳动宣布了一项将公司重组为六个业务部门的计划。作为重组的一部分，《华尔街日报》报道称，字节跳动[首席财务官](https://www.wsj.com/articles/bytedance-cfo-is-stepping-down-to-focus-on-tiktok-11635885543?mod=Searchresults_pos1&amp;page=1&amp;mod=article_inline) Shou Zi Chew 将卸任，专注于他作为 TikTok 首席执行官的角色。
 
-CNN无法独立核实这篇1600多字的帖子的真实性，并且已联系彭和中共国务院新闻办公室征求意见，该办公室负责为其中央政府处理新闻查询。
+随着中共国政府[收紧对互联网公司的控制](https://www.marketwatch.com/story/chinas-communist-party-exerting-tighter-control-over-the-countrys-internet-giants-01633320070?mod=article_inline)，38 岁的张是最近一位离开他们创立的公司的中共国亿万富翁。拼多多公司[PDD， +0.12%](https://www.marketwatch.com/investing/stock/PDD?mod=MW_story_quote)的创始人兼董事长 Colin Huang于 [3月](https://www.marketwatch.com/story/pinduoduo-founder-colin-huang-steps-down-from-company-11615997079?mod=article_inline)退出该公司；京东商城[JD， +0.82%](https://www.marketwatch.com/investing/stock/JD?mod=MW_story_quote)的创始人兼董事长刘强东于9月份退出[了公司的](https://www.marketwatch.com/articles/jd-com-says-founder-stepping-back-from-day-to-day-running-of-the-business-51630941420?mod=article_inline)日常管理；快手科技（Kuaishou Technology）联合创始人兼首席执行官 Su Hua 于[上周同样退出了公司](https://www.wsj.com/articles/chinese-video-platform-kuaishou-says-ceo-steps-down-11635529476?mod=article_inline)。
 
-在这封写给张高丽的公开信中，她声称一段断断续续的恋情至少持续了10年，彭说她向他敞开了心扉。
+总部位于北京的字节跳动成立于 2012 年，其热门应用 TikTok 每月拥有近 7 亿用户。截至上一轮融资时，私人持有的字节跳动估值为 1400 亿美元，但 [据彭博社报道](https://www.bloomberg.com/news/articles/2021-03-30/bytedance-is-said-valued-at-250-billion-in-private-trades?sref=Oeyjq8by) ，今年早些时候私有估值约为 2500 亿美元。
 
-她写道：“你为什么要回到我身边，带我到你家强迫我与你发生性关系？是的，我没有任何证据，而且根本不可能有证据。”
+彭博亿万富翁指数将张先生列为[全球第 31 位最富有的人，](https://www.bloomberg.com/billionaires/profiles/yiming-zhang/?sref=Oeyjq8by)财富价值约为 445 亿美元。
 
-“我无法形容自己有多恶心，有多少次我问自己，我还是一个人吗？我感觉自己像一具行尸走肉，我每天都在演戏，哪个人才是真正的我？”
+**简评：**
 
-美国有线电视新闻网（CNN）无法联系到75岁的张高丽，张曾在中共国领导人习近平的第一届任期内担任中共中央的政治局常委，从2012到2017，他于2018年卸任国务院副总理。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1-1.jpg)图片来源于[禁文网](https://www.bannedbook.org/bnews/bannedvideo/20210908/1620501.html)
 
-在中共国，即使在退休后，（类似）张高丽这样的高级领导仍然不易接近，也不公开，这使得他几乎不可能就此发表评论。
+**据2021年11月3日《DESCARGITAS》报道，中共国政府将越来越关注富有的科技企业家，许多亿万富翁积累了权力，并影响了威权。**
 
-中共国羽翼未丰的“我也遭受过性侵”（#MeToo）运动过去曾以学者、非政府组织工作人员和名人为目标，但结果各不相同，这次它第一次进入了共产党高层。
+**阿里巴巴的联合创始人马云一直是被镇压的主要受害者，最近飞离中共国到西班牙度假。自从习近平主席去年阻止了他的在线金融平台蚂蚁金服集团的上市计划后，马云就限制了公开露面（此举曾发生在毛泽东时代）；外国科技公司与雅虎一起退出中共国，本周宣布“由于商业和法律环境变得越来越具有挑战性，离开中共国。”随着新的《数据保护法》于周一（1日）在中共国生效，恰好是雅虎退出中共国的时间，法律规定了私人公司收集个人信息的条件，并制定了如何使用这些信息的规则。**
 
-“我们必须认识到，彭帅选择直言不讳是多么了不起。很少有人会有勇气这么做，因为这可能会以牺牲你自己和家人的安全为代价。” 现居纽约的著名中国女权主义者吕平说。
+**最后，向同胞们呼吁不要打疫苗，并且加入新中国联邦大家庭；从喜币上市可见，新中国联邦的实力是实实在在的。**
 
-丑闻发生在中共六中全会这样一次关键的北京党内精英会议的前几天，这也增加了政治敏感性，预计这次会议将为习近平巩固第三个任期铺平道路。
+新闻来源：[marketwatch.com] [ByteDance founder Zhang Yiming steps down as chairman: reports](https://www.marketwatch.com/story/bytedance-founder-zhang-yiming-steps-down-as-chairman-reports-11635909977) | 发布时间：2021年11月2日
 
-全面审查
+* * *
 
-彭的指控在网络上引起了轩然大波，审查的速度和力度之快在该国之前的任何#MeToo事件中都是前所未见的。
+*发稿：信心的选择*
 
-她在周二（11月2日）晚上10点后不久发表的长篇帖子，不到30分钟即被删除，它的截图最初在社交媒体和私人聊天组中广泛传播，但很快它们也被审查，包括其他讨论此案的帖子。
-
-截至周三（11月3日）晚上，彭的已核实账户仍在微博上，拥有50多万粉丝，但它已被禁止搜索，她之前帖子下的所有评论部分也被关闭。
-
-……
-
-（摘译完）
-
-文章内容对爆料革命的战友不是什么稀罕事了，随后我们看到中共崴脚部发言人汪文斌被问及对此问题如何看时回答“我不知道有这事，再说这不属于外交范畴，下一个问题。”
-
-11月3日大直播中文贵先生、郝海东、叶钊颖已经揭露了这类事件出现在中共最高层属于司空见惯，只能说明中共所谓领导人和其体制的烂。文贵先生已经指出，这是习对张高丽下手的动作，属于习报家仇、私仇，段位实在不高。问题是在这个时间点，CNN也作出了如此大篇幅的报道，反映的是中共内斗的升级。
-
-原文链接：
-
-[https://edition.cnn.com/2021/11/03/china/china-metoo-peng-shuai-zhang-gaoli-intl-hnk/index.html](https://edition.cnn.com/2021/11/03/china/china-metoo-peng-shuai-zhang-gaoli-intl-hnk/index.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
 
  
 

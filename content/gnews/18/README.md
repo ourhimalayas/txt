@@ -2,42 +2,49 @@
 ---
 
 
-## 中国网球运动员彭帅指控中国前国家副主席性侵案
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1638850/)
+## 中共约谈四大卫视 “政治一言堂”时代来临
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1639014/)
 
-编译：蚂蚁兄弟
+作者：香草山农场 – 文尊
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/e3c6b37c-2246-491d-a7b1-d803ed31260a.jpeg)路透社资料图
 
-2014年世界双打排名第一的中国网球运动员彭帅直指与中共国国家前副主席张高丽地下情人的性行为关系，在中共国引发了一场丑闻，政府正试图通过互联网审查加以遏制。
 
-彭帅在微博的账户上发布一条爱情心理感受的文章，但几小时后该信息就消失了，同样的情况也时常发生在社交网络上的所有评论上，中共政府会迅速删除对其不良的信息。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-这位世界排名第189位的35岁球员声称，75岁的中国副主席张高丽在2012年至2017年间强迫她发生了性关系。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-1.png)图片来源：lavanguardia.com
 
-“我知道像您这样杰出的人，张高丽副总理，曾说过您并不害怕”，彭帅在她的帖子中写道，“但即使只是我，像鸡蛋撞石头，或飞蛾扑火，自寻死路，我也会说出您的真相”。这段文字已在成千上万的网民中传播。
+当地时间10月29日，中共媒体报道称，上海、江苏、浙江、湖南广播电视台因所谓的“过度娱乐化”问题被约谈。
 
-2014年，对于这位在双打赛场上表现出色的伟大女运动员来说是个里程碑，她和她的搭档谢淑薇赢得了两个大满贯，多哈公开赛和法国网球公开赛的女双冠军。
+此前，中共大肆渲染娱乐界“清朗行动”，打压、惩治、抓捕一系列中共演艺界相关人员。中共的党内斗争完全影射进与其牵连颇深的中共娱乐圈，现如今更是波及各大电台。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-8.jpg)
+对此，有关评论称，中共此举的核心在于，试图严格控制墙内民众的思想，为其一党独大再次清扫出一条新的道路。在中共的政治与经济濒临崩塌的时刻，中共恐将进入“政治一言堂”的时代。
 
-在她的公开申诉中，这位网球运动员感叹她没有证据来支持她的指控。一些媒体和新闻机构试图联系她，但到目前为止，她拒绝发表任何评论。
+参考链接：
+[中央宣传部、国家广电总局约谈4省市广播电视台](https://m.gmw.cn/baijia/2021-10/30/35273964.html)
 
-**简评：**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-**在没听郭先生直播之前，一定会认为这又是哪个过气明星想蹭中共高官的名气，炒作绯闻，达到自己的目的。自从叶女侠和郝海东出来证明这类事情就在今天真实的发生着，我们也就不觉得奇怪了。性骚扰在中共体制内是常见的事，但受害者往往不敢直接点名，加上这起事件涉及像张高丽层级这么高的前政府官员，所以各界都惊吓到了。也许彭帅是无意，也许是有意、有计划的把此事说出来，中共也做出了封锁信息遏制言论的举动。毫无预兆的爆出了如此的大“绯闻”，我们不得不怀疑这其中参杂了复杂的政治斗争的背景。**
+总编：Jack Li文阳
+编辑：Irene木木
+校对/发稿：为真不破20
 
-**彭帅如今她将受到多大的威胁和恐吓，中共的黑暗不是我们所能想象的，希望彭帅好好活着。**
+**更多资讯，更多关注**
 
-**参考资料：**[lavanguardia][La tenista china Peng Shuai acusa de agresión sexual al exvicepresidente de su país](https://www.lavanguardia.com/deportes/tenis/20211103/7836334/estrella-tenis-china-acusa-agresion-sexual-exvicepresidente-pais.html)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-* * *
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-*审核：Aries的星*
-*校对：阿伯塔*
-*发布：信心的选择*
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

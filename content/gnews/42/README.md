@@ -2,42 +2,50 @@
 ---
 
 
-## 字节跳动创始人张一鸣卸任董事长
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1638224/)
+## 11/04/2021 国际财经快讯：喜币上市第三天价格突破15美元，24小时涨幅超84%；美联储缩减购债规模，预计明年6月前结束刺激政策
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1638488/)
 
-翻译：西班牙喜悦农场–wenwu
+![](https://assets.gnews.org/wp-content/uploads/2021/11/20211104-2.jpg)[图片来源](https://himalaya.exchange/)
+**1.喜币价格突破15美元，24小时涨幅超过84%**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1.jpg)据报道，字节跳动创始人张一鸣身价约为 445 亿美元。 彭博新闻
+密翻金融组11月04日报道，喜币（Himalaya Coin, HCN）在喜马拉雅交易所（Himalaya Exchange）上市第三天，交易价格24小时内涨幅超过84%，截稿时喜币价格持续在15美元左右高位震荡，24小时最低价格为8.054美元(HDO)，24小时交易量达到 2,399,504.017 (HCN)，创上市以来新高。目前24小时不间断交易中，币值依旧还在攀升，预计未来依旧会创出新高。
 
-据周二（2日）晚间报道，字节跳动（ByteDance Ltd.）创始人张一鸣将在[辞去](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)（5月）TikTok 的[首席执行官](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)的数月后，一并辞去字节跳动的董事长（3日）的位置。
+评论：喜联储HCN自11/01上市以来，每天都创出新高，持有原始币值的新中国联邦人的财富均增长了150倍，HCN的市场流通值从10亿美元上升到149亿美元，这是金融史上从来没有过的奇迹。在各国经济普遍不景气的情况下，HCN的诞生和投资热情可谓一枝独秀，一币难求。
 
-[彭博新闻](https://www.bloomberg.com/news/articles/2021-11-03/bytedance-s-zhang-exits-board-joining-exodus-by-tech-founders?srnd=technology-vp&amp;sref=Oeyjq8by)和[路透社](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)援引熟悉此事的消息人士的话[报道](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)称，字节跳动的首席执行官 Liang Rubo 将接替张先生担任董事长。
+**2.美联储缩减购债规模，预计明年6月前结束刺激政策**
 
-周二早些时候，字节跳动宣布了一项将公司重组为六个业务部门的计划。作为重组的一部分，《华尔街日报》报道称，字节跳动[首席财务官](https://www.wsj.com/articles/bytedance-cfo-is-stepping-down-to-focus-on-tiktok-11635885543?mod=Searchresults_pos1&amp;page=1&amp;mod=article_inline) Shou Zi Chew 将卸任，专注于他作为 TikTok 首席执行官的角色。
+[美国联邦储备委员会（简称：美联储）批准本月开始缩减债券购买，为其因应疫情而采取的刺激措施翻过一个篇章。目前人们担心通胀压力持续的时间可能比美联储官员们今年早些时候预期的要长。美联储官员同意将每月1,200亿美元的资产购买规模在11月和12月各缩减150亿美元，按照这样的速度，到明年6月将完全撤回该计划。美联储主席鲍威尔(Jerome H. Powell)表示，相对于今年早些时候的市场预期，官员们将购债计划的潜在结束日期提前，以防如果通胀压力扩大，明年他们需要升息为经济降温。](https://cn.wsj.com/articles/%E7%BE%8E%E8%81%94%E5%82%A8%E5%BC%80%E5%A7%8B%E5%89%8A%E5%87%8F%E5%80%BA%E5%88%B8%E8%B4%AD%E4%B9%B0%E9%87%8F-%E8%AE%A1%E5%88%92%E6%98%8E%E5%B9%B46%E6%9C%88%E5%89%8D%E7%BB%93%E6%9D%9F%E5%88%BA%E6%BF%80%E6%94%BF%E7%AD%96-11635981610)
 
-随着中共国政府[收紧对互联网公司的控制](https://www.marketwatch.com/story/chinas-communist-party-exerting-tighter-control-over-the-countrys-internet-giants-01633320070?mod=article_inline)，38 岁的张是最近一位离开他们创立的公司的中共国亿万富翁。拼多多公司[PDD， +0.12%](https://www.marketwatch.com/investing/stock/PDD?mod=MW_story_quote)的创始人兼董事长 Colin Huang于 [3月](https://www.marketwatch.com/story/pinduoduo-founder-colin-huang-steps-down-from-company-11615997079?mod=article_inline)退出该公司；京东商城[JD， +0.82%](https://www.marketwatch.com/investing/stock/JD?mod=MW_story_quote)的创始人兼董事长刘强东于9月份退出[了公司的](https://www.marketwatch.com/articles/jd-com-says-founder-stepping-back-from-day-to-day-running-of-the-business-51630941420?mod=article_inline)日常管理；快手科技（Kuaishou Technology）联合创始人兼首席执行官 Su Hua 于[上周同样退出了公司](https://www.wsj.com/articles/chinese-video-platform-kuaishou-says-ceo-steps-down-11635529476?mod=article_inline)。
+**3.瑞士信贷将退出主经纪商业务，重心转向财富管理**
 
-总部位于北京的字节跳动成立于 2012 年，其热门应用 TikTok 每月拥有近 7 亿用户。截至上一轮融资时，私人持有的字节跳动估值为 1400 亿美元，但 [据彭博社报道](https://www.bloomberg.com/news/articles/2021-03-30/bytedance-is-said-valued-at-250-billion-in-private-trades?sref=Oeyjq8by) ，今年早些时候私有估值约为 2500 亿美元。
+[瑞士信贷集团(Credit Suisse Group AG, CSGN.EB, CS)周四宣布，将退出主经纪商业务，并将重心从投行转向财富管理。作为新战略的一部分，瑞士信贷新任董事长希望降低公司的风险敞口。瑞士信贷表示，将在今明两年退出Prime Services，部分地区例外。该公司还将把投行部门的资本减少逾30亿美元。（约合32.9亿美元）资本。该公司将雇用约500名新客户经理，并加强技术方面的投资，力争到2024年使资产管理规模达到约1.1万亿瑞郎，增加超过10亿瑞郎的经常性收入。瑞士信贷在今年早些时候经历了Archegos Capital Management爆仓和Greensill Capital倒闭的双重打击，令该公司蒙受了几十亿美元的损失，迫使其投行主管和首席风险官离职，也促使瑞士信贷紧急强化管理风险。](https://cn.wsj.com/articles/%E7%91%9E%E5%A3%AB%E4%BF%A1%E8%B4%B7%E5%B0%86%E9%80%80%E5%87%BA%E4%B8%BB%E7%BB%8F%E7%BA%AA%E5%95%86%E4%B8%9A%E5%8A%A1-%E9%87%8D%E5%BF%83%E8%BD%AC%E5%90%91%E8%B4%A2%E5%AF%8C%E7%AE%A1%E7%90%86-11636013710)
 
-彭博亿万富翁指数将张先生列为[全球第 31 位最富有的人，](https://www.bloomberg.com/billionaires/profiles/yiming-zhang/?sref=Oeyjq8by)财富价值约为 445 亿美元。
+**4.美国甲烷排放新规是一项唾手可得的成果**
 
-**简评：**
+[收紧后美国的联邦甲烷法规可能是环保人士、石油巨头和美国第一大石油游说团体拥有共识的少数几个领域之一。这使得美国总统拜登(Joe Biden)很轻松地获得一项成果。美国国家环境保护局(U.S. Environmental Protection Agency, 简称EPA) 周二宣布了收紧后的甲烷规定，其中的一项内容是首次寻求对现有油气井的甲烷排放进行监管，并对新井制定了更严格的要求。EPA估计，与2005年的水平相比，这些规定将使所涉及甲烷排放源的排放量减少74%。考虑到目前监控和抑制甲烷泄漏的各种可用设备，这一举措对于环保来说可谓花小钱办大事。甚至对一些天然气生产商来说，这在经济上也是有意义的，因为对它们来说，泄漏的甲烷越多，卖出的天然气就越少。](https://cn.wsj.com/articles/%E7%BE%8E%E5%9B%BD%E7%94%B2%E7%83%B7%E6%8E%92%E6%94%BE%E6%96%B0%E8%A7%84%E6%98%AF%E4%B8%80%E9%A1%B9%E5%94%BE%E6%89%8B%E5%8F%AF%E5%BE%97%E7%9A%84%E6%88%90%E6%9E%9C-11636008009)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1-1.jpg)图片来源于[禁文网](https://www.bannedbook.org/bnews/bannedvideo/20210908/1620501.html)
+**5.特斯拉正式开始向其他电动汽车开放充电网络**
 
-**据2021年11月3日《DESCARGITAS》报道，中共国政府将越来越关注富有的科技企业家，许多亿万富翁积累了权力，并影响了威权。**
+[特斯拉将首次向其他电动汽车开放充电网络。斯拉本周早些时候说，实验将在荷兰的10个地点开始。据路透社本周报道，非特斯拉电动汽车的司机将能够通过特斯拉应用程序访问增压器。由于非特斯拉司机使用这些站点，特斯拉将监控这些站点的拥堵情况。特斯拉在欧洲使用相同的标准，如果成功，这将有助于汽车制造商延长其计划。据路透社报道，对非特斯拉客户的收费将包括额外的成本，用于支持不同的车辆和基础设施/网站调整。特斯拉将执行价格折扣为那些注册成收费会员资格的司机。特斯拉评论道：”此举有助于我们为世界加速向可持续能源过渡的使命。特斯拉在全球总共运营着25，000台增压器，如果荷兰的试点项目进展顺利，这些增压器最终都会全面参与到该项目中来。](https://www.zerohedge.com/markets/tesla-officially-starting-open-its-charging-network-other-evs)
 
-**阿里巴巴的联合创始人马云一直是被镇压的主要受害者，最近飞离中共国到西班牙度假。自从习近平主席去年阻止了他的在线金融平台蚂蚁金服集团的上市计划后，马云就限制了公开露面（此举曾发生在毛泽东时代）；外国科技公司与雅虎一起退出中共国，本周宣布“由于商业和法律环境变得越来越具有挑战性，离开中共国。”随着新的《数据保护法》于周一（1日）在中共国生效，恰好是雅虎退出中共国的时间，法律规定了私人公司收集个人信息的条件，并制定了如何使用这些信息的规则。**
+**6.随着低风再次袭来， 煤炭在 Cop26 保持照明**
 
-**最后，向同胞们呼吁不要打疫苗，并且加入新中国联邦大家庭；从喜币上市可见，新中国联邦的实力是实实在在的。**
+[英国失败的可再生能源战略是全国性的尴尬。几乎整个昨日的风力发电价格都处于极度低位，Drax的其余两台燃煤机组以4000欧元/兆瓦时的价格提供当天的节约，几乎是当前危机爆发前批发价格的100倍，许多其他化石燃料发电机也以惊人的价格进行救援。事实上，昨天，即11月3日，GB电网的每日总成本创下了新的纪录。此前的3800万英镑纪录是目前日均纪录的20倍，被打破了600万英镑的利润率，新纪录为4470万英镑。原因很容易从平衡机制报告服务自己的传输系统燃料组合图表中识别。风力发电，深蓝色的酒吧，是极低的大部分时间，只有至少1GW，低于其容量的5%。](https://www.zerohedge.com/commodities/coal-keeps-lights-cop26-low-wind-strikes-again)
 
-新闻来源：[marketwatch.com] [ByteDance founder Zhang Yiming steps down as chairman: reports](https://www.marketwatch.com/story/bytedance-founder-zhang-yiming-steps-down-as-chairman-reports-11635909977) | 发布时间：2021年11月2日
+**7.NAGA Group AG：NAGA宣布推出NAGA Pay**
 
-* * *
+[德国汉堡–(美国商业资讯)–NAGA Group AG (XETRA: N4G, ISIN: DE000A161NR7)是面向交易、加密货币与支付的社交网络NAGA.com的提供商。公司宣布推出革命性的支付平台“NAGA Pay”，支持英国/欧洲支付以及VISA借记卡。NAGA Pay的独特计划结合了IBAN账户、VISA借记卡、经纪账户、跟单交易以及实体加密货币钱包等，其中实体加密货币钱包正等待取得许可。全新的NAGA Pay应用支持欧洲经济区和英国的支付业务，并支持已被全球逾1.4亿户商家接受的、获全球认可的VISA借记卡。用户可在NAGA Pay应用中免费进行银行转账和向朋友汇款。此外，NAGA Pay已融合到整个NAGA交易基础设施中。](http://www.businesswirechina.com/zh/news/48592.html)
 
-*发稿：信心的选择*
+**8.ASML市值较年初涨7成，独自领跑业界**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
+[世界最大半导体光刻设备厂商荷兰ASML控股持续实现盈利增长。原因是受半导体需求增长的推动，最尖端产品生产所需的“EUV（极紫外）光刻设备”的订单蜂拥而至。ASML的股价较年初上涨了7成以上。总市值超过约2800亿欧元，达到德国大众和德国西门子的2倍以上，已成为总市值最高的欧洲科技企业。背后的原因是除了半导体市场本身的增长性之外，还在于ASML是生产半导体心脏部位的光刻设备的领头企业这一地位。2021财年（截至2021年12月），ASML的营业收入预计达到185～188亿欧元，同比上年增加3成以上。](https://cn.nikkei.com/industry/itelectric-appliance/46544-2021-11-03-05-00-20.html)
+
+**9.索尼推出首款配备“1英寸传感器”的手机**
+
+[索尼宣布，12月15日将推出首款配备“1英寸传感器”的大屏智能手机“Xperia PRO-I”。采用高级袖珍数码相机使用的传感器，提高了摄影功能。直营店的价格为19.8万日元（约合人民币1.1万元）。背面的摄像头有3种焦距，24毫米的广角镜头采用了1英寸传感器。有效像素为1220万。由于1英寸传感器能比普通手机传感器获取更多光线，因此在夜间及傍晚等明暗对比较大的场合也保持高画质，背景虚化效果也更加出色。](https://cn.nikkei.com/product/pdigital/46571-2021-11-04-10-41-13.html)
+
+By 【秘密翻译组-金融组】
+作者：和理非
 
  
 

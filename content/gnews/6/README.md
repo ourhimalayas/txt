@@ -2,49 +2,57 @@
 ---
 
 
-## 恒大地产成都公司发布停工留职通知书
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1639018/)
+## 上个月在BC省232个航班上出现新冠
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1639178/)
 
-作者：日本方舟农场 – Andy5
+作者：Ian Holliday
+翻译: HimaCoby
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Chart.jpg)
 
+根据不列颠哥伦比亚省疾病控制中心的数据，连续第三个月有超过 200 架载有新冠病例的航班经过不列颠哥伦比亚省机场。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+截至周三晚上，BCCDC 已发布了 10 月份在该省机场起飞或降落的 232 架不同航班的暴露通知。最近飞行的人测试呈阳性并且他们同行班的人也被添加到列表中，这个数字可能会继续增长。
 
+10 月份的最终总数肯定无法达到 8 月份创下的历史新高，当时 BCCDC 最终将 522 个航班添加到了名单中。然而，10 月仍可能与 9 月的 269 次飞行暴露相近。
 
+当一名或多名乘客的新冠检测呈阳性时，航班会被添加到列表中。尽管飞机上的冠状病毒传播很少见，但已经有一些记录在案的例子。
 
-当地时间10月31日的消息称，恒大地产成都和重庆公司相继发布相关项目的停工留职通知书。通知书中提及，鉴于公司运作困难、亟待调整，需对涉及人员进行停工留职处理，期限为2021年11月1日至2022年10月31日，在此期间，停工人员需提交辞职申请后，方可就职于其他用人机构，否则公司将追究法律责任。
+BCCDC 建议任何在航班上接触过新冠的人对症状进行 14 天的自我监测，如果出现任何症状，应寻求测试和自我隔离。
 
-相关评论称，相较于许家印此前蒙混过关的复工复产言论，恒大的债务危机在这些停工通知上得以真正显现。另一方面，通知书中明确提到，恒大部分项目已停工待产，因此，这绝不只是中共所谓的“个案”。恒大的爆雷已成定局，其资金链的断裂恐将无法再被掩盖。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-11.jpg)
-参考链接：
-1. [多家香港龙头地产企业大量购入柴犬币，作为资产平衡和企业储备](https://www.163.com/dy/article/GNJQKHCJ05526O4T.html?f=post1603_tab_news)
-2. [成都之後，重慶的恆大公司也爆出類似通知 只給員工發放最低保障工資，社保和防務公積金照樣繳納⋯](https://www.gettr.com/post/pfoob8a8cf)
-3. [刘鹤谈房地产合理资金需求，释放这些楼市信号](https://news.sina.com.cn/c/2021-10-21/doc-iktzqtyu2584466.shtml)
+可以在BCCDC 网站上找到最近的风险航班以及被认为具有较高风险的受影响行程的完整列表。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+自大流行开始以来，通过不列颠哥伦比亚省机场的飞机上暴露数量往往与该省的病例数量遵循相同的模式。
 
-总编：Jack Li文阳
-编辑：Irene木木
-校对/发稿：为真不破20
+然而，这两种趋势在 8 月变得有些脱节，因为 BC 的第四波飞行暴露打破了之前的记录，达到历史最高水平。
 
-**更多资讯，更多关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/CHart1.png)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+加拿大于 9 月 9 日再次开始欢迎国际游客，10 月份国际航班上的接触人数确实比 9 月份有所增加。这种温和的增长是由于更多的国际游客来到不列颠哥伦比亚省还是其他因素导致的，目前尚不清楚。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Chart2.png)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+同样不清楚的是，新的国内航空旅客疫苗接种要求证明将对未来的航班暴露数量产生什么影响。自 10 月 30 日起，所有在加拿大境内乘坐飞机、火车或游轮旅行的乘客都必须在登机前出示疫苗接种证明。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+來源：[https://bc.ctvnews.ca/covid-19-exposures-on-232-flights-and-counting-in-b-c-last-month-1.5651967](https://bc.ctvnews.ca/covid-19-exposures-on-232-flights-and-counting-in-b-c-last-month-1.5651967)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+（文章仅代表作者个人观点）
 
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
