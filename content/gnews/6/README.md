@@ -2,54 +2,25 @@
 ---
 
 
-## 美国国际旅行新规：11月8日起，外国旅客入境将被要求全面接种疫苗
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1637362/)
+## 中共国加剧对网络媒体的审查力度
+` 加拿大枫叶农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1637450/)
 
-作者：纽约香草山 – AlexZ
+原文采编：文莱   编译撰稿：文所未闻
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-10-edited.jpg)图片来源：HLWL
 
 
+据加拿大自媒体《后千禧年》11月2日报道，中共国近期修改了刑法，将诽谤所谓“中共国烈士和英雄”的行为定为刑事犯罪。该项新法律自今年3月起已经生效。
 
-10月25日，白宫和CDC宣布，将于11月8日对国际旅行者实施新的疫苗接种政策。国务院发言人内德-普莱斯说：”从11月8日起，前往美国的外国国民航空旅行者将被要求全面接种疫苗，并在美国登机前提供疫苗接种状况证明。”
+该法律由“中共国家网络管理局”来落实执行，其任务是控制和监测该国互联网。同时，该机构设立了举报热线，并公布了一份禁止中国人讨论的十大“谣言”清单，包括关于“红军长征”和“朝鲜战争”等政治敏感话题。。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1343-1-nedpa.jpg)图片：ANDREW HARNIK/POOL/AFP via Getty Images
+在中共国，类似“天安门大屠杀”这样的话题已被其网管局严令封杀，该项新法已将中共政权的审查制度推到一个更严酷的水平。自今年三月生效以来，已有多人因该新法而被当局刑事起诉。
 
-据说此举是为了 “把健康放在第一位”。然而，批评者称此举具有侵略性，而且没有必要。尽管有新规比以往更加严格，但美国表示仍将要求所有旅行者，无论是否接种疫苗，在登机前都要接受 COVID 检测。
+* * *
 
-据普莱斯证实，那些有资格旅行但尚未接种疫苗的人，需要在航班起飞前一天内提供 COVID-19 阴性检测证明。对于接种疫苗的人，测试要求仍然是在航班起飞前三天。
+校对编辑，发稿：硫酸羟氯喹64
 
-**新闻链接：**
-
-1. [U.S. changes international travel requirements, COVID vaccine policy | One America News Network (oann.com)](https://www.oann.com/u-s-changes-international-travel-requirements-covid-vaccine-policy/)
-2. [Frequently Asked Questions on COVID-19 Vaccinations and Testing for International Travel (state.gov)](https://travel.state.gov/content/travel/en/international-travel/emergencies/covid-19-faqs-for-travel-to-the-us-information.html)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-**校对/发稿：小鹿**
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+[原文链接：](https://thepostmillennial.com/china-bans-online-scrutiny-of-national-heroes-and-communist-figures)
 
  
 

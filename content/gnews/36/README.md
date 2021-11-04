@@ -2,32 +2,31 @@
 ---
 
 
-## 中共要求3-11岁儿童在12月底前完成新冠疫苗接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636671/)
+## 世界各地的人民纷纷觉醒并游行抗议疫苗护照和疫苗极权
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1636990/)
 
-作者：香草山 Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在当地时间10月30日的新冠疫情新闻发布会上，中共国家卫健委疾控局副局长吴良有要求在12月底完成墙内3-11岁儿童的全程新冠疫苗接种。 目前，这一规定正在中共国包括北京、上海、广东在内的十余个省市中强制推行。
+世界各地的人民纷纷觉醒并游行抗议疫苗护照和疫苗极权，以捍卫他们的自由和基本的人权。水能载舟，亦能覆舟。我们拭目以待！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide12-1.jpeg)
+2021年10月29日，澳大利亚人在需要疫苗护照的餐厅和酒吧外野餐以抗议疫苗强制政策。
 
-消息称，此举引发了墙内民众的广泛质疑。他们指出，中共当局没有给出儿童接种新冠疫苗的数据报告，也没有披露这些疫苗是否已经完成了三期试验。同时，他们质问当局，疫苗造成的各类副作用是否有人负责。更有民众表示，宁可让孩子休学，也不会接种新冠疫苗。
+2021年10月30日，新西兰人跳传统的毛利舞抗议疫苗强制政策。
 
-参考链接: [中疾控答21记者：3-11岁人群接种新冠疫苗，要在知情、同意的基础上](https://m.21jingji.com/article/20211030/herald/4c9ca32989cac1708076ac67b69822f9.html)
+2021年10月29日，超过1万墨尔本市民游行抗议疫苗护照。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+2021年10月30日，加拿大蒙特利尔和魁北克市民游行抗议本地疫苗护照。
 
-总编：飞虹
-编辑：珈沅
-校正/发稿：谐趣园
+2021年10月29日，纽约的牧师、教师以及其他城市工作者聚集在民事法庭外抗议疫苗强制政策。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2021年10月29日，意大利福贾：人们再次走上街头抗议疫苗护照。
+
+2021年10月30日，伦敦：人们举行大规模游行抗议非自由、不道德的，适得其反的疫苗护照。
+
+2021年10月31日，瑞士人民游行抗议疫苗护照。
+
+2021年10月31日，法国人民游行抗议疫苗护照。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
