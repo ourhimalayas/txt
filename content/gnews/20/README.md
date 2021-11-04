@@ -2,35 +2,35 @@
 ---
 
 
-## 西班牙变更法律允许出版商分享收入后，谷歌新闻将回归
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1637765/)
+## 菲律宾总统发誓惩罚地方官员，除非Covid-19疫苗的推广有改善
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1637854/)
 
 #### **【雅典娜快讯】，紧贴时事脉搏**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/dt.common.streams.StreamServer.cls_-820x420-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/菲律宾.jpg)
 
 
 
-图片来源：slashgear.com
+图片来源：asia.nikkei.com
 
 
 #### 编译：小红帽
 
-字母控股（Alphabet）表示，谷歌新闻将 “很快 ”重返西班牙，因为该国政府修改了立法，使第三方机构能够直接与这家互联网巨头和其他平台进行谈判。
+菲律宾总统罗德里戈·杜特尔特 (Rodrigo Duterte) 威胁说，如果政府官员未能达到该国中共病毒（Covid-19）疫苗推广的目标，将对其进行惩罚。目前只有三分之一左右的人口完全接种了疫苗。
 
-西班牙周二通过了一项欧盟版权法，基本上是为谷歌新闻回归该国铺平了道路。
+在周三播出的一条录音信息中，杜特尔特挑战政府官员，要求将每天的中共病毒疫苗接种量从目前的平均50万次增加到至少100万次。
 
-该集团的版权指令必须适用于所有成员国，要求谷歌和脸书等互联网巨头与出版商分享收入。
+他声称，该国拥有足够的疫苗，因此没有理由不能在这个拥有1.09亿人口的国家加快推广接种速度。在该国，其中7700万人有资格接种疫苗。
 
-该法还取消了集体收费，并使公司能够与出版商达成协议。
+“我们在疫苗接种计划的整体情况中看到了断层线。我并不满意。”他说。
 
-除了谷歌新闻服务的回归，“新的版权法允许西班牙媒体机构–无论大小–就如何发现他们的内容以及他们想如何利用这些内容赚钱做出自己的决定，”克莱马雷斯说。
+这位直言不讳的领导人上个月提议，在反疫苗接种者睡觉时为他们接种疫苗，并要求地方官员做更多工作。总统争辩说，“没有以最迅速的方式执行或使用给予他们的疫苗”的官员将受到制裁并追究其责任。他没有详细说明处罚可能是什么。
 
-在马德里通过立法，要求字母控股和其他新闻聚合机构支付集体许可费，以重新发布标题或故事片断后，谷歌新闻于2014年底在西班牙关闭。
+总统已要求警察和军队使用航空资源向全国各省和岛屿运送疫苗。
 
-西班牙政府坚持认为需要采取新的措施，因为他们“承认出版公司和新闻制作者有权为使用他们的内容而获得报酬”。
+作为逐步放松封锁措施的一部分，政府周三宣布将从周四开始取消马尼拉地区的夜间宵禁。
 
-**参考新闻：**[Google News to relaunch in Spain ‘soon’ after Madrid law change allows companies and publishers to decide how to share revenue — RT World News](https://www.rt.com/news/539263-google-news-relaunch-spain/)
+**参考新闻：**[Philippines’ Duterte vows to punish local officials unless Covid-19 vaccine rollout improves — RT World News](https://www.rt.com/news/539240-philippines-duterte-vaccines-covid19/)
 
 ***发布：小红帽***
 

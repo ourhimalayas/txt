@@ -2,43 +2,26 @@
 ---
 
 
-## 喜币市值从0到五千亿美元用了11分钟还是120分钟
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1637902/)
+## 秘翻在线：卡车司机们厌倦了为加州港口积压危机背黑锅
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1637950/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tteerrrr_副本.jpg)
-据[2021年11月03 日 文贵大直播：彭帅爆张高丽丑闻，再次验证爆料革命的真实性；喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产；房地产税会灭国灭党；共和党在弗吉尼亚州长竞选获胜意味着什么](https://gtv.org/video/id=61827dfd11d186296800dd83)时间点13：22——
+#### 翻译/撰稿：沙子最怕你不理它
 
-**郭文贵先生：**今天可以说喜币绝对是，绝对是在全世界最最震撼的一个经济大战，最最震撼的！今天毫不夸张的说，我们的喜币将是世界上引导世界金融系统改变的一个最关键的一个世纪性的开始。咱一会儿也会谈到这个事情。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-1.png)图片来源：freightwaves
+据《零对冲》11月3日报道，卡车司机们对被广泛报道的“司机短缺是加州港口积压货物主要原因”说法提出质疑。司机们都非常急迫想要让卡车快速通过装卸流程，但是港口系统终端的缺陷，以及硬件装备的短缺让他们大量的时间浪费在等待上；取回被迫放在计划外港口的集装箱更是让司机们的处境雪上加霜。
 
-那么大家看到了有人说当时的币安用了13年从0到5000亿，比特币是用了八年从0到5000亿，咱们的喜币，你们的喜币，不是咱的，我还没资格咱的——我没有，你们的喜币把从0到5000亿用了120分钟是不对的，喜币一上开始就有人就往下忽悠个价值直接就10块多，11分钟就有人10块多。
+港口卡车司机周一告诉FreightWaves，奥克兰国际集装箱码头（OICT）网站自前一天以来一直关闭，因此卡车公司无法获得船舶出口接收名单。OICT是港口最大的装卸码头，归SSA 国际（SSA International）所有。SSA的一名客户服务经理证实了此事。随着码头运营商推动自动化以减少人际互动，系统中的一个故障就会导致起重机操作员和卡车司机在没有进一步指示的情况下无法进行下一步行动，但最终为这些运营商的错误付出代价的是码头工人和卡车司机。而运输公司也因为怕遭到码头运营商的报复而忍气吞声。
 
-但是喜币的交易系统是从低往上的，不是你出高就是你的，人家要价你给价、人要价你给价，有卖货的，那不是海东先生我出1000，你就上一千了，这政清懂这个，是吧？那不可能的，你没人卖货。你凭啥一千，你这来砸场子来了是吗，是不是？我们这过得好好一碗饺子一块钱，直接来1万块钱，你就不是直接来买来了嘛。
+奥克兰AB运输公司的老板比尔•阿波迪（Bill Aboudi)表示，自己按小时付工资给司机，如今却只能让司机在奥克兰港口剩余的三个码头排队等货。阿波迪说，他的司机每天要等四至六个小时才可能拉到一个集装箱。在“积压危机”之前，他的司机平均每天可以拉三四个集装箱。面对这种问题运输公司不得不适量裁员。
 
-所以他当时就11分钟就有人出到十块零七，你还记得王雁平过来跟我说，当然人家这个系统就是科学的，你有卖的就是真卖家、真买家你来吧，是不是？你拿真钱你拿真股，是人家是从几毛钱买几毛钱卖，三毛钱啪啪啪开始到达了120分钟。但是这个120分钟也好，11分钟也好，绝对是震撼了世界。
+持续的疫情使电子商务格外繁忙，也使物流行业的需求激增，一些公司预测到业务量的攀升雇佣了额外的司机以应付突增的业务，但港口并未对此做好准备。一位运输公司总裁告诉FreightWaves：“如果港口效率高，每周释放我的200个集装箱，我就不必解雇任何人，但港口每周只能提供大约130到140个集装箱，这已经这样持续了几个月，看不到尽头。”
 
-（以下暂略）
+缺乏货柜拖车架也加剧了港口拥堵。一些卡车司机表示，他们因将拖车架退还给错误的设备供应商而被开罚单，并被禁止进入航站楼30天至180天以上。对于港口开出的罚单或禁令，卡车司机没有正当的上诉程序，如果承运公司对卡车司机的禁令提出抗议，面对他们的将是禁令的延长。
 
-撰稿：喜马拉雅的肉夹馍；
+最近，席尔瓦（Silva）的一些运往奥克兰港的货物被投到洛杉矶和长滩的港口，这加剧了人们对海运承运人和码头运营商的失望。卡车司机们厌倦了为取回被放错的集装箱而来回折腾。
 
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+原文链接：[Truckers Tired Of Taking Blame For Congestion Crisis At California Ports](https://www.zerohedge.com/economics/truckers-tired-taking-blame-congestion-crisis-california-ports)
 
  
 

@@ -2,68 +2,22 @@
 ---
 
 
-## 历史上的11月1日
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1637746/)
+## 疫情见缓 急诊室爆满为哪般
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1637828/)
 
-作者：美东香草山 – 山本不惑
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-2.png)
+图片来源： 网络
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+“零对冲”网11月3日转载themostimportantnews.com的报道，美国新冠病例近期的每日新增不到几个月前的一半，但各地医院的急诊却出现了人满为患的异象，令人深思。
 
+比如，29日有报道描述密歇根州兰辛市的史派罗医院（Sparrow Hospital），72间急诊病房全部满员，走廊里长串的担架上躺满了病人，面对大量的病情比以往严重得多的患者，医护人员不堪重负，急诊室护理主任用焦虑得近乎发抖的声音对记者表示 “这景象太让人难过了”。据工作人员透露，这些患者的主要症状包括“腹痛”、“呼吸系统问题”、“血栓”和“心脏病”等。
 
+疫情爆发的确延误了很多慢性病患者的治疗，但这些症状中的“心脏病”不能不引起人们的注意，先回顾几件这几天才发生的事。10月30日， 美国宾州的17岁男生巴克拉格（Blake Barklage）在他的足球队一起庆祝了比赛胜利后、晚上因“突发性心脏病”离世；10月27日，原本健康的美国12岁男孩基德（Jayson Kidd）在学校篮球训练热身时，因“冠状动脉问题”突然离世；10月30日，33岁的巴塞罗那射脚阿奎罗（Sergio Aguero）在对阵阿拉维斯的赛场上突然倒地，抢救后被诊断“心律失常”；11月1日，冰岛松达尔足球俱乐部的28岁中场帕森（Emil Pálsson）在比赛中心脏骤停……
 
+心脏病一向是老年人的杀手，而越来越多的健康年轻人出现这样的严重问题，如何解释？
 
-
-
-> 郭文贵先生在27日的大直播中说，11月1日是一个符合五行的福满之日。历史上的11月1日，也曾经发生过不少开天辟地影响世界的大事
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1345.jpg)图源网络
-
-1512年，意大利文艺复兴画家米开朗基罗在西斯廷礼拜堂完成绘制天顶壁画《创世纪》。
-
-1520年，麥哲倫在環遊世界航行中，发现南美连接太平洋和大西洋的通道，将其命名为麦哲伦海峡。
-
-1688年，光荣革命期间，奥兰治亲王威廉从荷兰海勒富茨勒伊斯出发，应邀前往英国从詹姆斯二世手中夺取王位。
-
-1800年，约翰·亚当斯成为美国历史上首位住进白宫的总统。
-
-1928年，國民政府成立中央银行，宋子文出任首任总裁。日后这成了中国银行的诞生日
-
-1952年，美國进行第一颗氢弹试验。
-
-1993年，《马斯特里赫特条约》生效，欧洲联盟正式成立。
-
-人类历史上即将迎来又一个开天辟地的11月1日。
-
-**新闻链接：**
-
-1. [2021年10月27日郭先生直播大雨围城速记 – GNEWS](https://gnews.org/zh-hans/1621292/)
-2. [11月1日 – 维基百科，自由的百科全书 (wikipedia.org)](https://zh.wikipedia.org/wiki/11%E6%9C%881%E6%97%A5)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-**校对/发稿：小鹿**
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+**新闻来源：**[Something Really Strange Is Happening At Hospitals All Over America](https://www.zerohedge.com/medical/something-really-strange-happening-hospitals-all-over-america)
 
  
 

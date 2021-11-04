@@ -2,30 +2,60 @@
 ---
 
 
-## 共和党赢得弗吉尼亚州州长席位
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1637521/)
+## 五角大楼报告：中共国扩张核武库超预期
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1637607/)
 
-**撰稿：黄金精神**
+众议员帕特·法伦： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 正在不知疲倦地破坏美国和我们的盟友。 这届政府需要什么才能醒来？ 【附国会山报：五角大楼报告：中共国扩张核武库超预期】
 
-**责编：胡天**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16359864311.png)**图片来源：全国公共广播电台**
-弗吉尼亚州尚蒂利（Chantilly），共和党人格伦·杨金（Glenn Youngkin）赢得了弗吉尼亚州州长的竞选。杨金已经取得了3个百分点的领先优势，这一优势反映了杨金和他的政党在弗吉尼亚州和其他州的重大优势。
 
-据三家电视网络报道，杨金击败了民主党人特里·麦考利夫（Terry McAuliffe）。这是对麦考利夫的重大打击，麦考利夫长期以来一直是民主党建制派政治的固定成员，此前曾在2014年至2018年担任州长，在2001年至2005年担任民主党全国委员会主席。
 
-在新泽西州，民主党州长菲尔·墨菲(Phil Murphy)与共和党人杰克·西塔雷利(Jack Ciattarelli)的竞争意外地激烈。在这两个州，共和党候选人不仅在较小的农村县进一步扩大了共和党的优势，而且还削减了民主党人近年来在多样化、人口密集的郊区建立的优势。截至午夜时分，西塔雷利领先墨菲不到一个百分点，但预期的选票已达四分之三，而且在一些民主党人云集的城市仍有选票。
+> China is working tirelessly to undermine the United States and our allies. 
+> 
+> What will it take for this Administration to wake up? [https://t.co/jspHV4xPWz](https://t.co/jspHV4xPWz)
+> — Rep. Pat Fallon (@RepPatFallon) [November 3, 2021](https://twitter.com/RepPatFallon/status/1455979843762507780?ref_src=twsrc%5Etfw)
 
-这一结果不仅将在弗吉尼亚州，可能还有新泽西州，而且在整个国家的政治格局中掀起冲击。民主党的失败也是对该党进入2022年中期选举的一个警告，人们普遍认为这是对拜登总统执政头两年的公投。随着麦考利夫和杨金之间的民调趋于紧张，拜登在弗吉尼亚州的支持率也呈下降趋势。
 
-弗吉尼亚州公共访问项目（The Virginia Public Access Project）还预测，共和党人至少翻转了6个州众议院席位，在民主党人于2019年接管后重新控制了下议院。民主党人在州参议院仍以21比19的微弱优势领先，而参议院的席位在今年没有出现。
 
-这场选举创造了全州创纪录的投票率。今年有超过320万弗吉尼亚人投了票，这将使其成为弗吉尼亚州州长选举有史以来最高的投票率，并使其略低于2018年中期选举的投票率。
+众议员吉姆·英霍夫： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 继续冷酷地扩张其核武库。一份新的国防部报告称，到 2030 年，中国可能拥有超过 1,000 枚核武器。然而，美总统拜登仍然不关心——就像在阿富汗一样，他危险地与外界脱节！ 更多请阅读 [http://wsj.com/articles/china](https://t.co/nwkmu21OR3?amp=1)… 【附华尔街日报和CNN的两则新闻】
 
-拜登一年前以10个百分点的优势赢得了弗吉尼亚州的选举，在周二的选举前，杨金在公开和私人民调中一直在稳步提升对麦考利夫的优势。尽管该州整体呈现蓝色，但这符合几十年来的政治历史，即在前一次选举中赢得白宫的政党几乎总是在第二年的州长选举中失利。
 
-首次参选的富豪、前私募股权公司凯雷集团的首席执行官杨金也成为自2009年以来第一个赢得全州选举的共和党人，当时鲍勃·麦克唐纳（ Bob McDonnell）以17个百分点的优势获胜。
 
-**[新闻来源](https://thehill.com/homenews/campaign/579436-youngkin-wins-virginia-governors-race，https://www.politico.com/news/2021/11/02/virginia-governor-race-polls-close-518625)**
+> China’s relentless expansion of its nuclear arsenal continues unchecked. A new [@DeptofDefense](https://twitter.com/DeptofDefense?ref_src=twsrc%5Etfw) report says China is likely to have &gt;1,000 nukes by 2030. Yet [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) remains unconcerned – just like with Afghanistan, he’s dangerously disconnected!
+> More ➡️ [https://t.co/HdOvQncJww](https://t.co/HdOvQncJww) [pic.twitter.com/UBf3YEBkO5](https://t.co/UBf3YEBkO5)
+> — Sen. Jim Inhofe (@JimInhofe) [November 3, 2021](https://twitter.com/JimInhofe/status/1455993437090635780?ref_src=twsrc%5Etfw)
+
+
+
+众议院军事委员会共和党： 委员迈克·罗杰斯说“要么美国挺身而出，以前所未有的国防现代化来迎接这一挑战，要么我们将世界舞台让给 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)。如果我们不改变方向，那就停止担心会侮辱 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 吧，该立刻开始担心的是怎么生活在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 统治之下”众议院军事委员会共和党： “这份报告应该够清楚让拜登政府看到这一段时间以来不言而喻的事情——中共国构成了一个真正且迫在眉睫的威胁。为我们自己的军事现代化而竭尽全力已不再是一种选择。” 【附罗杰斯议员就中共国军力报告所发的声明】
+
+
+
+> "Either the US rises to meet this challenge w/ unprecedented defense modernization, or we cede the world stage to the CCP. It is past time to stop worrying about insulting China & start worrying about living under CCP rule if we don’t change course immediately." [@RepMikeRogersAL](https://twitter.com/RepMikeRogersAL?ref_src=twsrc%5Etfw) [pic.twitter.com/y6SleT7KYC](https://t.co/y6SleT7KYC)
+> — Armed Services GOP (@HASCRepublicans) [November 3, 2021](https://twitter.com/HASCRepublicans/status/1455989805771329538?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·华尔兹： 如果历史重演，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 将通过在北京举办 2022 年奥运变得胆大妄为而台湾将受到威胁。 俄罗斯在 2014 年奥运后两个月入侵乌克兰。国际奥委会必须将比赛搬离,否则我们必须抵制 [#北京冬奥会](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A?src=hashtag_click)。 【转推：前白宫国安顾问布莱恩警告说中共国可能会在冬奥会后2024美总统大选前对台湾动武】
+
+
+
+> If history repeats itself, the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) will be emboldened by hosting the 2022 Olympics in Beijing and Taiwan will be threatened.
+> 
+> Russia invaded Ukraine two months after the 2014 Olympics. The IOC must move the games or we must [#BoycottBeijing2022](https://twitter.com/hashtag/BoycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/AlzZu52dcG](https://t.co/AlzZu52dcG)
+> — Rep. Mike Waltz (@michaelgwaltz) [November 3, 2021](https://twitter.com/michaelgwaltz/status/1456010797893636097?ref_src=twsrc%5Etfw)
+
+
+
+众议员肯·巴克： 真正的问题是——该节目的制作人是如何允许使用在法律上不准确的地图的？国际法庭驳回了 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对南中国海的主张。好莱坞对 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的要求持续效忠令人非常担忧。 【附路透社报道：（线上影院）Netflix 在菲律宾抱怨中国地图（包含南中国海）后撤掉了谍战剧】
+
+
+
+> The real question is — how did the show’s producers allow a legally inaccurate map to be used? International courts have denied China’s claims over the South China Sea. Hollywood’s continued allegiance to the CCP’s demands is wildly concerning.[https://t.co/SqHbgCZCIe](https://t.co/SqHbgCZCIe)
+> — Rep. Ken Buck (@RepKenBuck) [November 3, 2021](https://twitter.com/RepKenBuck/status/1455996866575966213?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 

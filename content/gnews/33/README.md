@@ -2,60 +2,76 @@
 ---
 
 
-## 五角大楼报告：中共国扩张核武库超预期
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1637607/)
+## 【温哥华扬帆农场】中共CCP向灭亡的道路上狂奔 出口将面对较高关税及其它优惠被取消！
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1637741/)
 
-众议员帕特·法伦： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 正在不知疲倦地破坏美国和我们的盟友。 这届政府需要什么才能醒来？ 【附国会山报：五角大楼报告：中共国扩张核武库超预期】
+温哥华扬帆农场  Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/110321-.jpeg)
+2021年10月25日，中共国伪政权海关总署发布2021年第84号公告，《关于不再对输欧盟成员国、英国、加拿大、土耳其、乌克兰和列支敦士登等国家货物签发普惠制原产地证书的公告》。公告称，自2021年12月1日起，对输往欧盟成员国、英国、加拿大、土耳其、乌克兰和列支敦士登等已不再给予中国普惠制关税优惠待遇国家的货物，海关不再签发普惠制原产地证书。发往上述国家的货物发货人需要原产地证明文件的，可以申请领取非优惠原产地证书。
 
+简评：
 
+这标志着自2021年12月1日起，中共国将不会获得欧盟、英国、加拿大、土耳其、乌克兰、列支登等32国较贸易最惠国更佳待遇的“普遍优惠制度”待遇。届时，仍给予中共国普惠制待遇的国家仅剩挪威、新西兰及澳洲三国。
 
-> China is working tirelessly to undermine the United States and our allies. 
-> 
-> What will it take for this Administration to wake up? [https://t.co/jspHV4xPWz](https://t.co/jspHV4xPWz)
-> — Rep. Pat Fallon (@RepPatFallon) [November 3, 2021](https://twitter.com/RepPatFallon/status/1455979843762507780?ref_src=twsrc%5Etfw)
+普惠制，全称普及特惠税制度(Generalized System of Preferences, GSP)，它是世界上32个发达国家对发展中国家出口产品给予的普遍的、非歧视的、非互惠的优惠关税，是在最惠国关税基础上进一步减税以至免税的一种特惠关税。这项政策有利于帮助受惠国增加出口，促进工业化和经济发展。
 
+然而，入世20年，有关中共国不遵守规则，拒不履行“入世”承诺，一直是国际社会和中共国争执的一个焦点。美国、澳大利亚及其他国家在几天前结束的世贸组织贸易审议中对中共国提出强烈批评。中共国根本就是中共CCP一党之国，哪有市场经济。
 
+[中华人民共和国公司法（2018年修订）](https://www.sipf.com.cn/flfg/2020/03/12855.shtml)第十九条规定：”在公司中，根据中国共产党章程的规定，设立中国共产党的组织，开展党的活动。公司应当为党组织的活动提供必要条件“。
 
-众议员吉姆·英霍夫： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 继续冷酷地扩张其核武库。一份新的国防部报告称，到 2030 年，中国可能拥有超过 1,000 枚核武器。然而，美总统拜登仍然不关心——就像在阿富汗一样，他危险地与外界脱节！ 更多请阅读 [http://wsj.com/articles/china](https://t.co/nwkmu21OR3?amp=1)… 【附华尔街日报和CNN的两则新闻】
+2020年12月31日，国资发改革规〔2020〕86号《[关于印发《国有企业公司章程制定管理办法》的通知](http://www.gov.cn/zhengce/zhengceku/2021-02/28/content_5589299.htm)》第四条明确规定“国有企业公司章程的制定管理应当坚持党的全面领导”；第九条“明确党组织研究讨论是董事会、经理层决策重大问题的前置程序……由党支部（党总支）对企业重大事项进行集体研究把关……公司党委（党组）……讨论和决定企业重大事项”。
 
+中共国没有市场经济，一切经济行为服从于中共CCP，中共CCP的党法大于对WTO的承诺！
 
+中共国作为澳大利亚最大贸易伙伴。今年初，澳大利亚要求WHO对新冠病毒（中共CCP病毒）起源展开国际调查，中澳贸易关系进一步恶化，中共国先后开始对从澳大利亚的葡萄酒和大麦进口以及澳大利亚牛肉、煤炭和葡萄的有限进口征收关税，被美国政府称为“经济胁迫”。
 
-> China’s relentless expansion of its nuclear arsenal continues unchecked. A new [@DeptofDefense](https://twitter.com/DeptofDefense?ref_src=twsrc%5Etfw) report says China is likely to have &gt;1,000 nukes by 2030. Yet [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) remains unconcerned – just like with Afghanistan, he’s dangerously disconnected!
-> More ➡️ [https://t.co/HdOvQncJww](https://t.co/HdOvQncJww) [pic.twitter.com/UBf3YEBkO5](https://t.co/UBf3YEBkO5)
-> — Sen. Jim Inhofe (@JimInhofe) [November 3, 2021](https://twitter.com/JimInhofe/status/1455993437090635780?ref_src=twsrc%5Etfw)
+中共国伪政权、中共CCP，完全凌驾于一切法律和承诺基础之上！
 
+可喜的是，目前来看，澳洲取消给予中共国的普遍优惠制度也应当时日无多。
 
+今年9月，澳大利亚向WTO提出就中共国对澳大利亚进口葡萄酒征收的惩罚性关税进行第一次审议的要求遭到中共国阻止。10月26日，世界贸易组织召开闭门会议，同意澳大利亚要求审议的第二次请求，世界贸易组织成立一个委员会，就中共国对澳大利亚进口葡萄酒征收的惩罚性关税进行审议。
 
-众议院军事委员会共和党： 委员迈克·罗杰斯说“要么美国挺身而出，以前所未有的国防现代化来迎接这一挑战，要么我们将世界舞台让给 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)。如果我们不改变方向，那就停止担心会侮辱 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 吧，该立刻开始担心的是怎么生活在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 统治之下”众议院军事委员会共和党： “这份报告应该够清楚让拜登政府看到这一段时间以来不言而喻的事情——中共国构成了一个真正且迫在眉睫的威胁。为我们自己的军事现代化而竭尽全力已不再是一种选择。” 【附罗杰斯议员就中共国军力报告所发的声明】
+美国国会议员Sen. McSally, Martha 于2020年10月1日提出的《[China Trade Relations Act of 2020](https://www.congress.gov/bill/116th-congress/senate-bill/4609/all-info?r=3&amp;s=1)》法案，Sen. Scott, RickSen和Inhofe, James M. 于2021年3月17日向参议完提交的2021《[China Trade Relations Act of 2021](https://www.congress.gov/bill/117th-congress/senate-bill/785/all-info)》法案，都提出撤销中共国的永久最惠国待遇，将中共国视为非发展中国家。
 
+中共国的出口将面对较高关税及其它优惠被取消！
 
+中共CCP正在开历史倒车，中共国的声音只有一个——“习大神”！中共国的思想只有一个——“习思想“！中共国正在光速西朝鲜化！
 
-> "Either the US rises to meet this challenge w/ unprecedented defense modernization, or we cede the world stage to the CCP. It is past time to stop worrying about insulting China & start worrying about living under CCP rule if we don’t change course immediately." [@RepMikeRogersAL](https://twitter.com/RepMikeRogersAL?ref_src=twsrc%5Etfw) [pic.twitter.com/y6SleT7KYC](https://t.co/y6SleT7KYC)
-> — Armed Services GOP (@HASCRepublicans) [November 3, 2021](https://twitter.com/HASCRepublicans/status/1455989805771329538?ref_src=twsrc%5Etfw)
+2020年12月，中共国与欧盟签定《中欧全面投资协定》，之后，德国总理默克尔、法国总统马克龙等多次帮助中共CCP斡旋，原本预计可于今年5月20日在欧洲议会通过。但今年3月，为回应西方国家就新疆维吾尔人问题对中共国的制裁，习大神政权突然加速向灭亡的道路上狂奔，东升西降，俯视欧洲，平视美国。向10名欧盟政治人物及4个实体实施制裁措施。最终导致欧盟议会以599票赞同、30票反对与58票弃权的压倒性优势通过冻结中欧投资协定批准程序。
 
+习大神政权正在向恐怖组织靠拢。中共国外交部甚至敦促美国领导的西方国家与塔利班接触并解除对塔里班恐怖组织的制裁！ 2021年10月25日，中共国外长王毅和阿富汗塔利班恐怖组织，副总理巴拉达尔在卡塔尔举行会谈。在这之前，中共国已经保证向阿富汗提供大约3100万美元的援助，包括目前中共国非常紧张的食品供应。这一次，王毅又向塔里班保证提供额外600万美元的援助，包括药物和食品。
 
+中南坑内斗，习大神什么时候万碎？
 
-众议员迈克·华尔兹： 如果历史重演，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 将通过在北京举办 2022 年奥运变得胆大妄为而台湾将受到威胁。 俄罗斯在 2014 年奥运后两个月入侵乌克兰。国际奥委会必须将比赛搬离,否则我们必须抵制 [#北京冬奥会](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A?src=hashtag_click)。 【转推：前白宫国安顾问布莱恩警告说中共国可能会在冬奥会后2024美总统大选前对台湾动武】
+参考资料：
 
+[海关总署公告2021年第84号（关于不再对输欧盟成员国、英国、加拿大、土耳其、乌克兰和列支敦士登等国家货物签发普惠制原产地证书的公告）](http://www.customs.gov.cn/customs/302249/302266/302267/3971349/index.html)
 
+[欧盟等32国下月起叫停中国贸易优惠待遇](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211102-%E6%AC%A7%E7%9B%9F%E7%AD%8932%E5%9B%BD%E4%B8%8B%E6%9C%88%E8%B5%B7%E5%8F%AB%E5%81%9C%E4%B8%AD%E5%9B%BD%E8%B4%B8%E6%98%93%E4%BC%98%E6%83%A0%E5%BE%85%E9%81%87)
 
-> If history repeats itself, the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) will be emboldened by hosting the 2022 Olympics in Beijing and Taiwan will be threatened.
-> 
-> Russia invaded Ukraine two months after the 2014 Olympics. The IOC must move the games or we must [#BoycottBeijing2022](https://twitter.com/hashtag/BoycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/AlzZu52dcG](https://t.co/AlzZu52dcG)
-> — Rep. Mike Waltz (@michaelgwaltz) [November 3, 2021](https://twitter.com/michaelgwaltz/status/1456010797893636097?ref_src=twsrc%5Etfw)
+[All Information (Except Text) for S.4609 – China Trade Relations Act of 2020](https://www.congress.gov/bill/116th-congress/senate-bill/4609/all-info?r=3&amp;s=1)
 
+[S.785 – China Trade Relations Act of 2021](/Users/gguan/Downloads/S.785%20-%20China%20Trade%20Relations%20Act%20of%202021)
 
+[欧盟议会冻结中欧投资协定 要求中方解除制裁](https://www.bbc.com/zhongwen/simp/world-57197738)
 
-众议员肯·巴克： 真正的问题是——该节目的制作人是如何允许使用在法律上不准确的地图的？国际法庭驳回了 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对南中国海的主张。好莱坞对 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的要求持续效忠令人非常担忧。 【附路透社报道：（线上影院）Netflix 在菲律宾抱怨中国地图（包含南中国海）后撤掉了谍战剧】
+[【最惠國待遇】英加歐32國取消中國最惠國待遇](https://inews.hket.com/article/3096729/%E3%80%90%E6%9C%80%E6%83%A0%E5%9C%8B%E5%BE%85%E9%81%87%E3%80%91%E8%8B%B1%E5%8A%A0%E6%AD%9032%E5%9C%8B%E5%8F%96%E6%B6%88%E4%B8%AD%E5%9C%8B%E6%9C%80%E6%83%A0%E5%9C%8B%E5%BE%85%E9%81%87%E3%80%80%E4%B8%AD%E5%9C%8B%E6%B5%25B)
 
+[入世20年，中国违背承诺做法更加隐晦](https://www.voachinese.com/a/china-wto-20211028/6289492.html)
 
+[世界贸易组织将审议中国对澳大利亚葡萄酒征收的进口关税](https://www.voachinese.com/a/wto-to-examine-china-duties-20211027/6288089.html)
 
-> The real question is — how did the show’s producers allow a legally inaccurate map to be used? International courts have denied China’s claims over the South China Sea. Hollywood’s continued allegiance to the CCP’s demands is wildly concerning.[https://t.co/SqHbgCZCIe](https://t.co/SqHbgCZCIe)
-> — Rep. Ken Buck (@RepKenBuck) [November 3, 2021](https://twitter.com/RepKenBuck/status/1455996866575966213?ref_src=twsrc%5Etfw)
+[中国敦促美国领导的西方国家与塔利班接触并解除制裁](https://www.voachinese.com/a/china-urge-engagement-with-taliban-20211026/6286721.html)
 
+[中华人民共和国公司法（2018年修订）](https://www.sipf.com.cn/flfg/2020/03/12855.shtml)
 
+[关于印发《国有企业公司章程制定管理办法》的通知](http://www.gov.cn/zhengce/zhengceku/2021-02/28/content_5589299.htm)
 
+[China Trade Relations Act of 2020](https://www.congress.gov/bill/116th-congress/senate-bill/4609/all-info?r=3&amp;s=1)
 
+（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+
+编审：文敏    发布：文敏
 
  
 

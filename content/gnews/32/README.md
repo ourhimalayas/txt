@@ -2,13 +2,67 @@
 ---
 
 
-## 怀疑抗体数量下降，医务人员连续4次接种中共病毒疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1637613/)
+## 历史上的11月1日
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1637746/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._4-scaled.jpg)
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+作者：美东香草山 – 山本不惑
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
+
+> 郭文贵先生在27日的大直播中说，11月1日是一个符合五行的福满之日。历史上的11月1日，也曾经发生过不少开天辟地影响世界的大事
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1345.jpg)图源网络
+
+1512年，意大利文艺复兴画家米开朗基罗在西斯廷礼拜堂完成绘制天顶壁画《创世纪》。
+
+1520年，麥哲倫在環遊世界航行中，发现南美连接太平洋和大西洋的通道，将其命名为麦哲伦海峡。
+
+1688年，光荣革命期间，奥兰治亲王威廉从荷兰海勒富茨勒伊斯出发，应邀前往英国从詹姆斯二世手中夺取王位。
+
+1800年，约翰·亚当斯成为美国历史上首位住进白宫的总统。
+
+1928年，國民政府成立中央银行，宋子文出任首任总裁。日后这成了中国银行的诞生日
+
+1952年，美國进行第一颗氢弹试验。
+
+1993年，《马斯特里赫特条约》生效，欧洲联盟正式成立。
+
+人类历史上即将迎来又一个开天辟地的11月1日。
+
+**新闻链接：**
+
+1. [2021年10月27日郭先生直播大雨围城速记 – GNEWS](https://gnews.org/zh-hans/1621292/)
+2. [11月1日 – 维基百科，自由的百科全书 (wikipedia.org)](https://zh.wikipedia.org/wiki/11%E6%9C%881%E6%97%A5)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+**校对/发稿：小鹿**
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
 
 
  
