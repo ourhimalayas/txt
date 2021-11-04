@@ -2,57 +2,42 @@
 ---
 
 
-## 视频| 青蒿素是中国送给世界的礼物
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1638219/)
+## 字节跳动创始人张一鸣卸任董事长
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1638224/)
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+翻译：西班牙喜悦农场–wenwu
 
-制作：香草山视频部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1.jpg)据报道，字节跳动创始人张一鸣身价约为 445 亿美元。 彭博新闻
 
+据周二（2日）晚间报道，字节跳动（ByteDance Ltd.）创始人张一鸣将在[辞去](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)（5月）TikTok 的[首席执行官](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)的数月后，一并辞去字节跳动的董事长（3日）的位置。
 
+[彭博新闻](https://www.bloomberg.com/news/articles/2021-11-03/bytedance-s-zhang-exits-board-joining-exodus-by-tech-founders?srnd=technology-vp&amp;sref=Oeyjq8by)和[路透社](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)援引熟悉此事的消息人士的话[报道](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)称，字节跳动的首席执行官 Liang Rubo 将接替张先生担任董事长。
 
-当世界仍然受到新冠病毒浪潮的威胁时，人们注意到一些权威人士并不总是像他们所宣扬的那样一直戴着口罩。部分原因可能是因为他们得到了某种特殊待遇，从而使他们免受影响。据悉，中共官员已经获得了某种解药，可以治疗Covid-19病毒。因此，在这些享有特权的少数人中从未有Covid-19感染的报道。如果有解毒剂，那不是很好吗？如果有的话，谁有，普通人什么时候能有呢？在郭先生8月30日的直播中，他向世界揭开了这个谜团–是的，有一种Covid-19的解药，名字叫青蒿素。而中国共产党拥有它，并一直向世界隐瞒这个秘密。
+周二早些时候，字节跳动宣布了一项将公司重组为六个业务部门的计划。作为重组的一部分，《华尔街日报》报道称，字节跳动[首席财务官](https://www.wsj.com/articles/bytedance-cfo-is-stepping-down-to-focus-on-tiktok-11635885543?mod=Searchresults_pos1&amp;page=1&amp;mod=article_inline) Shou Zi Chew 将卸任，专注于他作为 TikTok 首席执行官的角色。
 
-**什么是青蒿素？ 青蒿素的历史**
+随着中共国政府[收紧对互联网公司的控制](https://www.marketwatch.com/story/chinas-communist-party-exerting-tighter-control-over-the-countrys-internet-giants-01633320070?mod=article_inline)，38 岁的张是最近一位离开他们创立的公司的中共国亿万富翁。拼多多公司[PDD， +0.12%](https://www.marketwatch.com/investing/stock/PDD?mod=MW_story_quote)的创始人兼董事长 Colin Huang于 [3月](https://www.marketwatch.com/story/pinduoduo-founder-colin-huang-steps-down-from-company-11615997079?mod=article_inline)退出该公司；京东商城[JD， +0.82%](https://www.marketwatch.com/investing/stock/JD?mod=MW_story_quote)的创始人兼董事长刘强东于9月份退出[了公司的](https://www.marketwatch.com/articles/jd-com-says-founder-stepping-back-from-day-to-day-running-of-the-business-51630941420?mod=article_inline)日常管理；快手科技（Kuaishou Technology）联合创始人兼首席执行官 Su Hua 于[上周同样退出了公司](https://www.wsj.com/articles/chinese-video-platform-kuaishou-says-ceo-steps-down-11635529476?mod=article_inline)。
 
-青蒿素是屠呦呦女士在1972年发现的，经过几十年的努力，她一直在寻找治疗寄生虫病的方法。这一成就对人类意义重大，屠呦呦女士于2015年10月5日被瑞典卡罗林斯卡学院授予诺贝尔医学奖。
+总部位于北京的字节跳动成立于 2012 年，其热门应用 TikTok 每月拥有近 7 亿用户。截至上一轮融资时，私人持有的字节跳动估值为 1400 亿美元，但 [据彭博社报道](https://www.bloomberg.com/news/articles/2021-03-30/bytedance-is-said-valued-at-250-billion-in-private-trades?sref=Oeyjq8by) ，今年早些时候私有估值约为 2500 亿美元。
 
-青蒿素及其半合成衍生物是一组用于治疗疟疾的药物。青蒿素是一种从青蒿中提取的抗疟内酯。
+彭博亿万富翁指数将张先生列为[全球第 31 位最富有的人，](https://www.bloomberg.com/billionaires/profiles/yiming-zhang/?sref=Oeyjq8by)财富价值约为 445 亿美元。
 
-中国人知道这种植物的药用价值至少有两千年的历史。该属的名称来自希腊神话中的阿尔特弥斯女神，更确切地说，可能是以公元前四世纪的植物学家和医学研究者–迦里亚女王阿尔特弥斯二世命名。
+**简评：**
 
-屠呦呦女士认为这本书中的一个提示是她的灵感来源，即《急诊处方手册》，描述了基于传统中草药的临床研究，由葛洪写于公元340年。它记录了从青蒿这种草药中提取的一个关键提示 – 该草药应浸泡在冷水中。”用两升水浸泡一把清荷，拧出汁液，然后全部喝掉。” 屠呦呦女士一直在孜孜不倦地寻找青蒿素，直到这次发现，她深有体会地说：”青蒿素是中国传统医学送给世界的礼物’。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1-1.jpg)图片来源于[禁文网](https://www.bannedbook.org/bnews/bannedvideo/20210908/1620501.html)
 
-**青蒿素的用途是什么？**
+**据2021年11月3日《DESCARGITAS》报道，中共国政府将越来越关注富有的科技企业家，许多亿万富翁积累了权力，并影响了威权。**
 
-2021年8月30日，郭文贵先生向世人揭开了一个秘密：青蒿素是抵御Covid-19的最佳药物，可以减少或中和Covid-19疫苗接种引起的一系列副作用。它可以作为Covid-19的解药。
+**阿里巴巴的联合创始人马云一直是被镇压的主要受害者，最近飞离中共国到西班牙度假。自从习近平主席去年阻止了他的在线金融平台蚂蚁金服集团的上市计划后，马云就限制了公开露面（此举曾发生在毛泽东时代）；外国科技公司与雅虎一起退出中共国，本周宣布“由于商业和法律环境变得越来越具有挑战性，离开中共国。”随着新的《数据保护法》于周一（1日）在中共国生效，恰好是雅虎退出中共国的时间，法律规定了私人公司收集个人信息的条件，并制定了如何使用这些信息的规则。**
 
-根据郭先生在东京奥运会前获得的情报，按照计划，中共为所有中国运动员使用了青蒿素片/丸和青蒿素喷雾剂。因此，中国的运动员和最有特权的党内高级官员获得了对Covid-19的免疫。目前，市场上只有青蒿素片剂，喷雾剂尚未上市。
+**最后，向同胞们呼吁不要打疫苗，并且加入新中国联邦大家庭；从喜币上市可见，新中国联邦的实力是实实在在的。**
 
-显然，郭先生的直播在药店市场上掀起了一场大风暴–在他的惊人披露之后的一个多小时内，青蒿素的价格在全世界的在线市场上飙升，然后 “售罄 “的标志被全面挂起。
+新闻来源：[marketwatch.com] [ByteDance founder Zhang Yiming steps down as chairman: reports](https://www.marketwatch.com/story/bytedance-founder-zhang-yiming-steps-down-as-chairman-reports-11635909977) | 发布时间：2021年11月2日
 
-参考资料：
-[https://gnews.org/1507678/](https://gnews.org/1507678/https://gnews.org/1513216/https://gnews.org/1501326/)
-[https://gnews.org/1513216/](https://gnews.org/1507678/https://gnews.org/1513216/https://gnews.org/1501326/)
-[https://gnews.org/1501326/](https://gnews.org/1507678/https://gnews.org/1513216/https://gnews.org/1501326/)
+* * *
 
+*发稿：信心的选择*
 
-
-*发稿：雪梨*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
 
  
 
