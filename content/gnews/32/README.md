@@ -2,36 +2,71 @@
 ---
 
 
-## 日本要闻汇编 11月4日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1638471/)
+## 西喜时事新闻简报 — 美国时事篇
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1638493/)
 
-素材：东京樱花团｜GNEWS组
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/日本要闻汇编-11月4日.png)[*图片来源*](https://img.kyodonews.net/chinese/public/images/posts/5ef5e85beaebe0640df4ecc86da72b9c/photo_l.jpg)
+您若想了解全文报导内容，请点击标题链接
 
-1、[**茂木接任自民党干事长 组阁前岸田兼外相**](https://china.kyodonews.net/news/2021/11/ab421f207bc8--.html)
+（喜联储挂钩美元、喜市代替股市）
 
-日本自民党4日在党总部召开总务会会议，决定由外相茂木敏充接替甘利明出任干事长。茂木10次当选众议员，是历任政务调查会长和经济产业相等的资深议员。甘利因在众院选举小选区落败而向首相岸田文雄表达了辞职意向。岸田在官邸向媒体透露，组建第二届岸田内阁前由自己兼任外相一职。
+1. [Steve Cortes:美国2020年总统大选的投票是无效的](https://www.thegatewaypundit.com/2021/11/steve-cortes-reveals-new-truth-hijacked-2020-election-2020-presidential-vote-not-valid/)
 
-2、[**官房长官反驳日本入选“化石奖”**](https://china.kyodonews.net/news/2021/11/c84c5aa6f2b2.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip124.png)
 
-共同社4日消息，由于岸田首相没能在COP26首脑级会议上表明废除燃煤发电的具体计划，向全球变暖对策态度消极国家颁发的“化石奖”今年授予了日本。官房长官松野博一4日在记者会上就此反驳。他强调，首相岸田文雄在《联合国气候变化框架公约》第26次缔约方会议（COP26）上宣布的援助发展中国家应对全球变暖措施“得到了众多与会国家的高度评价和欢迎”。松野还称，日本正积ji推进2050年实现温室气体净零排放的“碳中和”计划。
+据《门户网》2021年11月3日电，在假新闻和社交媒体巨头的协助下，民主党人和沼泽地从唐纳德·川普总统和共和党人手中偷走了一场历史性的压倒性（2020年）大举。其中，宾夕法尼亚州是最令人印象深刻的”胜利”（窃取了79.5万张领先票）。
 
-3、[**SOMPO将测试新冠疫苗接种证明APP**](https://china.kyodonews.net/news/2021/11/6c4d51a96245-sompoapp.html)
+周三（3日），Newsmax主持人Steve Cortes讨论了2020年的选举：”第14修正案的平等保护[条款](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%88%A9%E5%9D%9A%E5%90%88%E4%BC%97%E5%9B%BD%E5%AE%AA%E6%B3%95%E7%AC%AC%E5%8D%81%E5%9B%9B%E6%9D%A1%E4%BF%AE%E6%AD%A3%E6%A1%88)遭到了大规模的违反。你不能让投票日的川普选民接受与邮寄选民完全不同的、更严格的标准。这是2020年总统投票无效的主要原因之一。”
 
-日本SOMPO控股3日透露，将开发证明已接种新冠疫苗的智能手机APP，启动面向普及的实证试验。该APP将设计成也能够发送餐饮店和宾馆等的优惠券，在促进接种的同时，助力经济活动重启。东京都已启动使用免费通讯APP“LINE”的同类举措。日本政府也考虑提供以取得个人编号为前提的APP。
+2. [爆炸性新闻：民主党在新泽西州州长选举中耍花招](https://www.thegatewaypundit.com/2021/11/breaking-democrat-tricks-new-jersey-governors-race-republican-winning-largest-county-100-votes-counted-vote-flips-democrat-miraculously-wins-county/)
 
-4、[**日本等多国反对美国电动汽车税收抵免方案**](https://china.kyodonews.net/news/2021/11/75ea9390ac34.html)
+据《门户网》2021年11月3日电，在昨晚(2日）新泽西州州长竞选中，共和党人Jack Ciattarelli在该州最大的县–Bergen County领先现任民主党州长PhilMurphy。 然后事情奇迹般地发生了变化，这个推文中的[视频](https://twitter.com/NewDayForNJ/status/1455886115039326208?s=20)（如上图）对此作了描述。
 
-共同社华盛顿3日消息，围绕美国拜登政府提出的旨在普及电动汽车（EV）的税收抵免方案，日本等25个国家和地区的驻美大使近日发表联合公开信，以该方案优待本国、违反国际协定为由，要求进行修改。方案已被写入以气候变化对策和育儿支援为主要内容的总额约1.75万亿美元的巨额支出法案中，公开信要求尽快做出应对。另一方面，丰田汽车公司等日本各汽车巨头也发表了批评声明。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip125.png)
 
-5、[**东京奥运村开始向各地归还建设时所借木材**](https://china.kyodonews.net/news/2021/11/a3b6d1a363dd.html)
+在该州83%的选票统计中，共和党人Jack Ciattarelli在全州范围内领先4.2万票。 此时，新泽西州最大的县–Bergen County声称100%选票已经报到了，尘埃落定后Jack Ciattarelli赢得52%的选票；几分钟后，随着87%的选票被计入，Bergen County的结果发生了变化，据报道，Phil Murphy突然在该县以51%的票数领先；Jack Ciattarelli在该州的4.2万张选票此时也缩减为1600张的领先优势…
 
-共同社4日报道，关于为建设东京奥运村和残奥村（东京都中央区晴海）的交流空间“Village Plaza”而从日本全国借用的木材，归还工作已于2日启动。木材在打上证明曾用于奥运的烙印后，到明年2月底前全部归还。预计将作为奥运遗产，用于各地方政府公共设施的内部装饰材料、公园长椅、小学改建工程。
+3.[VA共和党人不仅赢得了全州范围的大型竞选，还从民主党手里夺走了七个众议院席位](https://www.thegatewaypundit.com/2021/11/virginia-not-wins-big-statewide-races-house-also-turns-red-gains-seven-seats-democrats/)
 
-*编辑：东京樱花团 / 文小白
-发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip126.png)
+
+据《门户网》2021年11月3日电，弗吉尼亚州于周二晚上在选举结果中显示，把拜登的疯狂政策和行动踢到一边，跳上了MAGA运动；弗吉尼亚州的共和党人不仅有史以来第一次在竞选拿下了州长、总检察长和副州长，而且还赢得了众议院的选举。
+
+弗吉尼亚州的众议院也变红了。共和党占据了所有席位，从民主党手中抢走了7个席位。这使他们在弗吉尼亚众议院比民主党多了 2 票。
+
+4. [已接种疫苗的洛杉矶市长 Garcetti 中共病毒检测呈阳性，进入隔离状态](https://www.thegatewaypundit.com/2021/11/fully-vaccinated-la-mayor-garcetti-tests-positive-covid-goes-isolation/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip128.png)
+
+据《门户网》2021年11月3日电，已接种疫苗的洛杉矶市长埃里克·加塞蒂 (Eric Garcetti) 周三（3日）检测出中共病毒呈阳性，并被隔离；Garcetti 还关闭了违反封锁令的住宅居民的水电，他怕死却有了中共病毒。
+
+5. [佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）成立选举诚信执法办公室](https://www.thegatewaypundit.com/2021/11/florida-governor-ron-desantis-holds-presser-announces-new-law-enforcement-office-election-integrity/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip129.png)
+
+据《门户网》2021年11月3日电，佛罗里达州州长 Ron DeSanitis 今天（3日）上午在棕榈滩举行了发布会，宣布成立一个新的选举诚信单位来解决大选中舞弊的问题：建立一个全州执法办公室，以调查和起诉选举犯罪和欺诈行为；违反新的“选票收集”法的处罚从轻罪增加到三级重罪；收集选票的人需要向全州选票执法办公室上报自己的工作。
+
+经济衰退是指你的邻居失去了工作。 萧条是指你失去你的工作。 经济复苏是当福奇医生失去他在白宫的工作时。 他一次又一次地犯错。他的大流行政策已经损害了数千万人的利益。 我们知道美国国立卫生研究院一直在做的事情，是对动物的虐待，他们对这些比格犬和这些小狗所做的事情。 我很抱歉，我们的税款不应该用于此。
+
+佛州州长在[15:10](https://cbsloc.al/2ZPnD7A)分时称 “拜登，布兰登政府”（the Biden, the Brandon Administration ），人群中爆发出”让布兰登走”（Let’s Go Brandon）的欢呼。
+
+6. [五角大楼在新报告中称，中共国正在迅速扩大其核武库](https://www.cnbc.com/2021/11/03/china-is-rapidly-expanding-its-nuclear-arsenal-pentagon-says.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip131.png)
+
+据《CNBC》2021年11月3日电，五角大楼周三表示，中共国正在迅速扩大其核武库，到 2030 年可能拥有1千枚核弹头（美国库存大约有3750枚），这是北京雄心勃勃的军事建设的一部分；中共国拥有“一系列针对台湾的军事行动的选择”，包括潜在的空中和海上封锁以进行全面的两栖入侵。
+
+[习近平在10月8日的讲话中说：](https://www.cnbc.com/2021/10/09/china-president-xi-jinping-on-reunification-with-taiwan.html) “祖国完全统一的历史任务必须完成，一定会完成。”而周三早些时候，美国参谋长联席会议主席、美国陆军上将马克·米利在阿斯彭安全论坛上说： “根据我对中共国的分析，我认为在不久的将来不太可能。”
+
+* * *
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,23 +2,27 @@
 ---
 
 
-## 全球因新冠病毒死亡的人数突破500万
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1637780/)
+## OSHA暂停对疫苗副作用的报告来推进疫苗接种强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1637808/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：MOS – 柳是多水土透
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月1日，数据统计显示，全球因新冠病毒死亡的人数突破了500万人，当中，美、加、欧盟、英国和巴西等国家的死亡人数近全球总死亡人数的一半，而仅美国一地就记录了超过74.5万的患者失去生命——这使得新冠病毒成为仅次于心脏病和中风的全球第三大致死疾病。
+11月2日，美国有关媒体报道称，职业安全与健康局，又称OSHA，正在含蓄地鼓励雇主隐藏新冠疫苗副作用的报告，并试图通过这一操作，加快实施一项紧急授权的联邦新冠疫苗强制令。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-2.jpeg)
 
-但相关人员评论道，相较于其他疾病，新冠病毒还存在另一个致死因素，那就是新冠疫苗所带来的严重副作用。另一方面，与别的自然疾病导致的痛苦相比，新冠病毒及疫苗除了对世界经济造成毁灭性的影响之外，其也会给幸存者带来巨大的精神摧残。对此，郭文贵先生在11月3日的直播中示警世界，疫苗所带来的次生灾难或将在2022年5月前后完全显现。
+报道中提及，早在今年春天，OSHA对于新冠疫苗的相关要求就已经发生了改变。此前，OSHA要求雇主在接种新冠疫苗的问题上必须遵循自愿原则，且不得报复不愿接种疫苗的员工——这是美国1904号法规的一部分。但是，这项声明于今年5月22日消失在OSHA的官网上。
 
-参考链接: [\[LIVE\] Coronavirus Pandemic: Real Time Dashboard, World Maps, Charts, News](https://www.youtube.com/watch?v=NMre6IAAAiU)
+另一方面，为了强制推行新冠疫苗的接种，美国劳工部和OSHA甚至要求雇主暂停上报新冠疫苗的副作用案例 。
+
+但有评论表示，对于政府的这一行为，美国的民众已经逐渐开始觉醒。大量的事实证明，民众在强制疫苗令和个人安全中选择了后者，为此，他们宁愿失去工作。
+
+参考链接: [As ’emergency’ workplace vax mandate looms, OSHA guidance stems flow of adverse reaction reports](https://justthenews.com/government/federal-agencies/feds-suspend-requirement-report-covid-vaccine-side-effects-employer)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
 总编：Irene木木
-编辑：AN
+编辑：Irene木木
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

@@ -2,28 +2,23 @@
 ---
 
 
-## 纳瓦罗先生新书上市，解密与福奇的正面交锋
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1637774/)
+## 全球因新冠病毒死亡的人数突破500万
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1637780/)
 
-作者：日本方舟农场 –  Andy5
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月1日，皮特-纳瓦罗先生在接受采访时介绍，他的新书《In Trump Time》将于11月2日正式发售。
+11月1日，数据统计显示，全球因新冠病毒死亡的人数突破了500万人，当中，美、加、欧盟、英国和巴西等国家的死亡人数近全球总死亡人数的一半，而仅美国一地就记录了超过74.5万的患者失去生命——这使得新冠病毒成为仅次于心脏病和中风的全球第三大致死疾病。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-3.jpeg)
 
-采访节目里，纳瓦罗先生也谈到了新书中关于新冠病毒的一些内容。他在书中两次强调，武汉病毒研究所是一个生物武器实验室，这里也是新冠病毒的案发地。他还提到，早前，郭文贵先生也多次对新冠病毒发出过警告。
+但相关人员评论道，相较于其他疾病，新冠病毒还存在另一个致死因素，那就是新冠疫苗所带来的严重副作用。另一方面，与别的自然疾病导致的痛苦相比，新冠病毒及疫苗除了对世界经济造成毁灭性的影响之外，其也会给幸存者带来巨大的精神摧残。对此，郭文贵先生在11月3日的直播中示警世界，疫苗所带来的次生灾难或将在2022年5月前后完全显现。
 
-另外，纳瓦罗先生还解密了当时推行中共国旅行禁令的曲折经过，也包括为此与福奇的争吵。纳瓦罗先生指出，福奇最大的谎言不是在国会听证上否认功能增强实验，而是在2020年1月底，对来自武汉病毒研究所的生物武器——新冠病毒，知情不报，甚至掩盖真相。纳瓦罗先生透露，他曾两次要求川普总统炒掉福奇，但自己也差一点因此被炒掉。纳瓦罗先生表示，历史将最终证明，在新冠病毒问题上，他是一位比福奇更优秀的科学家。更多细节，请关注纳瓦罗先生的新书——《In Trump Time》。
-
-参考链接:
-1）[20211101（喜幣上市的那一天）納瓦羅博士接受The First採訪](https://www.gettr.com/post/pfxr9wac95)
-2）[20211101（喜幣上市的那一天）納瓦羅博士接受The First採訪（part2）](https://www.gettr.com/post/pfxyoe8363)
-3）[皮特.纳瓦罗 新书 《川普时代》，今天出版了 2021年11月2日](https://www.gettr.com/post/pfvor539fc)
+参考链接: [\[LIVE\] Coronavirus Pandemic: Real Time Dashboard, World Maps, Charts, News](https://www.youtube.com/watch?v=NMre6IAAAiU)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：童谣
-编辑：Kathy文艺
+总编：Irene木木
+编辑：AN
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
