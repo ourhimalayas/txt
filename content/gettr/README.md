@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/4/2021 11:55 AM (UTC)`
+
+11月4号，尊敬的战友们好！你们健身了吗？传播CCP病毒，香港灾难和疫苗解药的真相了吗？一切都已经开始！
+![img](https://media.gettr.com/group25/getter/2021/11/04/11/55/9bd94c8d-8065-f09a-709e-1b46f7913b3e/out.jpg)
+
+---
+
 `@miles 11/4/2021 11:26 AM (UTC)`
 
 11/3/2021 Miles Guo: It is too late for the CCP to impose a property tax, and this will not only lead to the downfall of the CCP but will also devastate the entire country! I have said long ago that houses are for living instead of speculation and profit-making! The CCP's plan to delay its economic collapse by imposing a property tax is doomed to fail!<br/><br/>11/3/2021 文贵直播：中共征收房产税为时已晚，亡党亡国！文贵早就说过，房子是来住的，不是来炒的！中共借征收房产税以延缓其经济崩溃的计划注定会失败<br/>
@@ -287,13 +294,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 1 Nov 2021 Himalaya Exchange is able to withstand hacking at 1.6 billion times/sec. Peter Navarro wrote in his book that Trump issued the travel ban based on Miles Guo’s intelligence on the CCP virus.<br/><br/>11/1/2021 喜马拉雅联储能耐受每秒16亿次骇客攻击；纳瓦罗在其新书中写道：川普总统发出旅行禁令，是因为听取了郭文贵先生关于中共病毒的情报。
 ![img](https://media.gettr.com/group17/getter/2021/11/01/17/12/568443e6-d2f5-7079-d10d-31d2c05de9a1/out.jpg)
-
----
-
-`@miles 11/1/2021 11:18 AM (UTC)`
-
-11月1号：这个伟大的日子确实让人太激动了，七哥现在边看直播！边吃着家常饭．最爱吃的还是家常饭，最爱穿的还是粗布衣！永远不会改变的东西……就是我们来自草根！
-![img](https://media.gettr.com/group27/getter/2021/11/01/11/18/edba00ad-abb4-8a61-c603-d27b49328f84/out.jpg)
 
 ---
 
