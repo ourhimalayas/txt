@@ -2,38 +2,49 @@
 ---
 
 
-## 中共当局警告人们要储备食物以度过冬天
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1638908/)
+## 中共约谈四大卫视 “政治一言堂”时代来临
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1639014/)
 
-编译：蚂蚁兄弟
+作者：香草山农场 – 文尊
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-3.jpg)市民去超市储备食物 EFE
 
-中国政府提出的为冬季储备粮食的建议令民众担忧。超市里到处都是消费者，他们把白菜、大米、盐、油和鸡蛋放在购物车中，这种画面以前只有在销售季节才能看到的。“消息一出来，人们就慌了，在超市里疯狂购物”，一位用户在中国社交网络微博上写道。反应是如此夸张，以至于国家媒体只用了几个小时就试图平息事态，并要求民众不要有“过度的想象”。
 
-中共喉舌《经济日报》强调说，这只是一个被禁传的警告。但是公民有理由感到不安：大流行病、与台湾的紧张关系以及毁坏农作物的意外暴雨都是供应危机中的一个威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-10月份的极端天气损害了中国主要蔬菜生产地区山东的农业生产，价格也相应上涨。上周，黄瓜、菠菜和西兰花的价格比10月初翻了一番。
 
-当局要求消费者囤积蔬菜，以应对可能出现的价格进一步上涨，政府说它已经准备好库存，“在适当时候”提供给民众。
 
-**简评：**
+当地时间10月29日，中共媒体报道称，上海、江苏、浙江、湖南广播电视台因所谓的“过度娱乐化”问题被约谈。
 
-**号称“以不足10%的耕地养活了世界22%人口”的中共国，难道粮食就这样出问题了吗？**
+此前，中共大肆渲染娱乐界“清朗行动”，打压、惩治、抓捕一系列中共演艺界相关人员。中共的党内斗争完全影射进与其牵连颇深的中共娱乐圈，现如今更是波及各大电台。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-8.jpg)
+对此，有关评论称，中共此举的核心在于，试图严格控制墙内民众的思想，为其一党独大再次清扫出一条新的道路。在中共的政治与经济濒临崩塌的时刻，中共恐将进入“政治一言堂”的时代。
 
-**一贯以谎言欺骗世界，欺骗中国百姓的中共政府，这次粮食恐怕真的要出问题了。其实，为了满足国内老百姓粮食的需求，中共国的粮食一直以来主要依靠进口。中共向全世界释放了病毒，发动了超限战之后，世界已经被搅乱。中共国的外贸和经济已经到达了崩溃的边缘。对外贸易的萎缩，地产的“暴雷”，对外投资的失败，已经是中共的外汇捉襟见肘。而十几年来的地产经济，已经使中共国的耕地大面积被当地政府卖掉，用以盖楼。**
+参考链接：
+[中央宣传部、国家广电总局约谈4省市广播电视台](https://m.gmw.cn/baijia/2021-10/30/35273964.html)
 
-**中共国这次的粮食也许真的要出现问题了，而中共政府又会像从前一样，把这次的饥荒推给天。只希望这次缺粮的影响能够小一些，因为中国的绝大多数的百姓是勤劳的，是善良的。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-**参考资料：**[lavanguardia][China alerta a la población de que haga acopio de víveres para pasar el invierno](https://www.lavanguardia.com/internacional/20211102/7833053/china-alerta-poblacion-hagan-acopio-comida-viveres-pasar-invierno.html)
+总编：Jack Li文阳
+编辑：Irene木木
+校对/发稿：为真不破20
 
-* * *
+**更多资讯，更多关注**
 
-*审核：Aries的星*
-*校对：信心满满*
-*发布：信心的选择*
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
