@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/4/2021 10:48 AM (UTC)`
+
+11月4号，未来的37天内．会是爆料革命．政治，经济．革命队伍．一个新的关键增长期！我们已经做到了．让新中国人在每天早上，从一个新的．真的．快乐的，美好的梦中醒来来！从健康的．充满激情的，愉悦的……希望中开始新的一天！共产党你👉完了……感谢上天万佛万神对新中国联邦人的眷顾和恩赐。🙏🙏🙏🙏🙏🙏🙏🙏🙏❤️❤️❤️
+![img](https://media.gettr.com/group45/getter/2021/11/04/10/48/22513e95-f364-58a2-d3d7-46769bf6a847/37fad30307a16074ed505c2813d0cb33.jpg)
+
+---
+
 `@miles 11/4/2021 8:13 AM (UTC)`
 
 11/1/2021 【HCoin to The Moon庆典】<br/>喜交所上市前采访各职能团队，做好上市最后的准备<br/><br/>11/1/2021 【HCoin To the Moon Celebration】 <br/>Interviewing all functional teams of Himalaya Exchange just prior to launch， getting everything ready to go
@@ -287,13 +294,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 Hcoin To The Moon <br/><br/>词：威廉王<br/>曲：唐平<br/>编曲： SFG<br/><br/>自由 多么熟悉的字眼<br/>却不知不觉 离我越来越遥远<br/>曾经那个意气风发的少年<br/>为了生存只能拼命挣钱<br/><br/>财富 是他们画下的大饼<br/>虚幻背后发现全都是陷阱<br/>经济各种暴雷  房价崩的稀碎<br/>抬起头 前路一片漆黑<br/><br/>welcome to the world<br/>to the new world<br/>welcome to the world <br/>Hcoin to the moon <br/><br/>welcome to the world<br/>to the new world<br/>welcome to the world <br/>Hcoin to the moon <br/>Hcoin to the moon <br/>Hcoin to the moon <br/><br/>安全 最前沿加密技术出手<br/>（Set me free）<br/>让你的财富 没人能夺走<br/>稳定币 浮动币 设计天下无双<br/>（I can see）<br/>还有二十帕 黄金挂钩<br/>摧毁 不停压榨你的机器<br/>（It’s our time）<br/>从此不再做金钱的奴隶<br/>喜联储的大门 永远敞开向你<br/>（Future‘s bright）<br/>前途光明  就在喜币<br/><br/>welcome to the world<br/>to the new world<br/>welcome to the world <br/>Hcoin to the moon<br/><br/>welcome to the world<br/>to the new world<br/>welcome to the world <br/>Hcoin to the moon<br/><br/>Hcoin to the moon<br/>Hcoin to the moon<br/>Hcoin to the moon<br/>Hcoin to the moon
 ![img](https://media.gettr.com/group42/getter/2021/11/01/11/31df0ff6-c806-f7e0-aa46-61209a980746/out.jpg)
-
----
-
-`@miles 11/1/2021 9:37 AM (UTC)`
-
-“HCOIN TO THE MOON” 喜马拉雅币上市庆典
-![img](https://media.gettr.com/group30/origin/2021/11/01/09/114a50be-85ff-f9a7-eec1-20b602a50f71/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
