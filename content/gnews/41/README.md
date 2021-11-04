@@ -2,32 +2,31 @@
 ---
 
 
-## 中共要求3-11岁儿童在12月底前完成新冠疫苗接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636671/)
+## 共和党人执掌弗吉尼亚州
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1637104/)
 
-作者：香草山 Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在当地时间10月30日的新冠疫情新闻发布会上，中共国家卫健委疾控局副局长吴良有要求在12月底完成墙内3-11岁儿童的全程新冠疫苗接种。 目前，这一规定正在中共国包括北京、上海、广东在内的十余个省市中强制推行。
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide12-1.jpeg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-2.jpg)图片来源：STEVE HELBER / AP
+11月3日综合报道， 美国弗吉尼亚州长选举看似来自共和党的格伦·扬金（Glenn Youngkin) 击败了民主党人，成为自2009年以来第一位获得联邦全州公职的共和党人。同时，共和党人温索姆·西尔斯（Winsome Sears）将成为弗吉尼亚州下一任副州长，成为联邦400年立法史上第一位女性、第一位有色人种女性任此职位。
 
-消息称，此举引发了墙内民众的广泛质疑。他们指出，中共当局没有给出儿童接种新冠疫苗的数据报告，也没有披露这些疫苗是否已经完成了三期试验。同时，他们质问当局，疫苗造成的各类副作用是否有人负责。更有民众表示，宁可让孩子休学，也不会接种新冠疫苗。
+而在去年的总统选举中，民主党在弗吉尼亚州可是以压倒性优势战胜共和党。据Newsmax 分析，此次共和党获胜，有以下原因起到了关键作用：
 
-参考链接: [中疾控答21记者：3-11岁人群接种新冠疫苗，要在知情、同意的基础上](https://m.21jingji.com/article/20211030/herald/4c9ca32989cac1708076ac67b69822f9.html)
+1. 选民反对疫苗护照、COVID口罩；
+2. 黑人选票缺失，原因在黑人一直对接种疫苗犹豫不决。不接受疫苗接种人士可能被开除造成的影响；
+3. 处理南部边境难民危机、阿富汗撤军解决方式、通货膨胀飙升等带来拜登的支持率降低；
+4. 批判性种族理论带来的反弹；
+5. 执政党对于经济政策带来的供应链问题、通胀飙升带来反对声；
+6. 民主党试图指责共和党参选人是前总统川普的傀儡，但这可能带来反弹，使当初投票拜登的选民转变立场。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：飞虹
-编辑：珈沅
-校正/发稿：谐趣园
+格伦杨金在竞选中表示他将通过减税来推动弗吉尼亚州的经济复苏，以及家长在公共教育系统的选择。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这场选举是民主党在中期选举前一年的一次挫折，中期选举将决定国会的控制权。如果共和党控制国会两院，甚至一院，将影响拜登的执政和通过立法能力。而今晚在新泽西州的州长选举中，共和党州长候选人Jack Ciattarelli有极大可能挑战成功， 另据郭文贵先生今天直播中透露夏威夷、西雅图等地的选举也是共和党领先。这些政党领导人会是新中国联邦的支持者， 喜联储的拥护者。 希望在灭共的道路上，有越来越多的人加入进来，加快灭共步伐！
+
+**新闻来源：**[EARTHQUAKE:  6 Reasons GOP Won and CRT, Mandates, Biden Lost | Newsmax.com](https://www.newsmax.com/politics/ciattarelli-mcauliffe-murphy-trump/2021/11/03/id/1043059/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

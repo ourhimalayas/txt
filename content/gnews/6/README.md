@@ -2,12 +2,21 @@
 ---
 
 
-## 华盛顿DC法官对抗拜登强制令，保护未接种原告免遭解职
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1637544/)
+## 雅典娜时报-第102期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1637683/)
 
-10/29/2021 华盛顿DC联邦地区法官Colleen Kollar-Kotelly做出相关裁定，防止那些未接种疫苗的原告遭军队解职和处分，对抗拜登政府疫苗强制令。2021年10月29日，Colleen Kollar-Kotelly法官针对疫苗宗教豁免申请待处理及豁免申请遭拒且选择上诉的原告案件做出裁定。
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-3.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-1.png)
+***发布：小红帽***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

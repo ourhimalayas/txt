@@ -2,42 +2,40 @@
 ---
 
 
-## 西喜时事新闻简报 — 美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1636729/)
+## 佛州州长宣布组建新警察部队追究选举犯罪
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1637238/)
 
-**翻译：土饭团**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-您若想了解全文报导内容，请点击标题链接
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/D.png)biznewspost.com
+《只是新闻》（just the news）11月3日发表文章，题目“佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）公布新警察部队计划，以追究佛罗里达州的选举犯罪”。副标题，“州长还寻求加强对选举犯罪的惩罚，并暗示他想取消投票箱”。
 
-1[.Ernst的“FAUCI法案”禁止美国资助在中共国进行的“功能增益”研究](https://www.foxnews.com/politics/ernsts-fauci-act-bans-us-funding-for-gain-of-function-research-in-china)
+全文如下：
 
-福克斯新闻11月1日电，爱荷华州共和党参议员Joni Ernst正在提出立法，旨在禁止资助中共国的“功能增益”研究，同时呼吁“全面核算”美国税收如何用于该研究。Ernst在周一的一份新闻稿中说：“多年来，美国的税收被输送到共产主义中共国，资助武汉实验室的冠状病毒的危险实验，而资助这些活动的部门负责人Fauci博士却没有向国会说明真相。”
+佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）周三宣布，他将组建一支新的警察部队，专职追查选举犯罪，并希望立法者加强对那些在投票时作弊的人的惩罚，这表明共和党加强选举诚信的努力远未结束。
 
-2.[Antony Blinken: 美国将支持台湾对抗中共国侵略](https://www.foxnews.com/media/antony-blinken-us-will-support-taiwan-against-chinese-aggression)
+这位共和党州长在佛罗里达州西棕榈滩举行的新闻发布会上，宣布成立选举犯罪和安全办公室，就在几个月前，他签署了一项加强邮寄选票安全的法律，许多州的共和党人都在寻求对2020年选举进行全州范围的审计。
 
-福克斯新闻10月31日电，在美国总统Biden发誓保护台湾不受任何中共国的入侵后一个多星期，国务卿Antony Blinken周日表示，美国将支持台湾反对中共国的侵略。“我们的政策没有改变，”Blinken说。“Biden在美国参议院作参议员时强烈支持这个承诺，一个根据《台湾关系法》作出的长期承诺，以确保台湾有办法保卫自己，我们坚持这个承诺。”
+德桑蒂斯州长在描述他希望与新的调查办公室建立的威慑力量时说，“我向你保证：抓了第一个后，再也不会有人想这样做了。”
 
-3[.Waltz抨击美国公司“沉迷于中共国资金”，称它们对美国构成严重威胁](https://www.foxnews.com/politics/michael-waltz-organizations-drunk-on-chinese-money-nba-enes-kanter)
+德桑蒂斯还呼吁共和党控制的立法机构对投递箱的使用施加更多限制，这表明在该州首次批准投递箱的两年后，他已经对其价值感到失望。他说：”我甚至不认为我们应该有投递箱。”
 
-福克斯新闻10月31日电，佛罗里达州共和党议员Michael Waltz抨击“沉迷于中共国资金”的美国公司和其他组织，并赞扬NBA球员Enes Kanter公开表态反对支持该国。就在我们说话的时候，一场种族灭绝正在发生。但是，因为每个人都醉心于中共国的钱，包括2月份发生的奥运赞助商，每个人都想视而不见。
+他说，新办公室将有助于重点打击非法选举手段，如收割选票，即第三方非法收集选民的选票，并将其交付计票。
 
-4.[面临安全威胁，美国吊销中共国电信牌照](https://www.aninews.in/news/world/us/amid-security-threats-us-revokes-china-telecoms-licence20211031103703/)
+“如果有人在收集选票，你就向这些人报告，这是他们唯一的工作。” 他说，“在这些郡中，有些郡会处理这些案件，但这不是他们的专长，他们有所有这些其他的犯罪，他们必须处理。所以当它发生时，选举已经结束了。”
 
-ANI 10月31日电，出于国家安全考虑，美国撤销了中共国电信的牌照，以应对中共国公司可能对其关键网络的渗透。这一决定是由美国联邦通信委员会（FCC）做出的，它发生在一个重要的时刻，在美国总统Joe Biden和他的中共国同行近平誓言要在多年的紧张关系升级后重建沟通渠道后不久。
+民主党人立即嘲笑了他的声明。
 
-5[.美中特使举行会谈](https://www.nwaonline.com/news/2021/nov/01/top-envoys-for-us-china-hold-meeting/)
+奥兰多州众议员安娜·埃斯卡马尼（Anna Eskamani）在推特上说：“出现了更多针对佛罗里达州选举的攻击，就像2020年一样，我们州昨晚举行了选举，没有任何问题，为什么我们的州长不断制造党派混乱？”。
 
-The Northwest Arkansas Democrat-Gazette 11月1日电，作为20国集团峰会的一部分，美国国务卿Antony Blinken周日会见了中共国外交部长—这次接触旨在，确保世界上两个最大经济体之间激烈竞争的关系不会转向公开冲突。国务院高级官员将这次谈话描述为坦诚的、建设性的和富有成效的，并说Blinken在大约一小时的会议中清楚地表达了美国的关切。这些官员坚持不透露姓名，以讨论交流情况。
+（全文完）
 
-* * *
+笔者发自肺腑地认为，美国必须这样做了，必须用立法、司法手段打击选举的舞弊欺诈。一旦出现大规模的舞弊，包括媒体对质疑的打压、禁声，不良律师的混搅蛮缠，司法的袒护和回避，当这些系统性出现时将动摇美国的国本，发展下去就会亡国。所以，乱世必用重典，还大选以公众透明，才能确保2022、2024正义的回归！
 
-*审核：蚂蚁兄弟
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+原文链接：
 
-
-
+[https://justthenews.com/politics-policy/elections/desantis-unveils-plan-new-police-force-pursue-election-crimes](https://justthenews.com/politics-policy/elections/desantis-unveils-plan-new-police-force-pursue-election-crimes)
 
  
 

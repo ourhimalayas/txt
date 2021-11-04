@@ -2,34 +2,33 @@
 ---
 
 
-## 疫情快讯
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1637407/)
+## 全接种疫苗的洛杉矶市长病毒检测呈阳性
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1637461/)
 
-**翻译：**沉默老歌
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-不列颠哥伦比亚省：记录了 406 例新的 COVID-19 病例和 5 例死亡病例
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-03-185717.png)
-有 445 人住院，其中 137 人在重症监护室
-加拿大广播公司新闻
-发布时间：2021 年 11 月 2 日
-最后更新：2021 年 11 月 2 日
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-03-185819.png)
-COVID-19 日常生活
-11 月 1 日，温哥华市中心，一名蒙面行人带着一只猫在笼子里。（Ben Nelms/CBC）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-03-190547-edited.png)
-阅读评论：
-不列颠哥伦比亚省周二宣布了 406 例新的 COVID-19 病例和 5 例死亡病例。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/L.jpg)jonathandesverneyusanews.com
+我们以很不悦悦（文贵先生常用语）的心情宣布，洛杉矶市长加塞蒂（Garcetti），在完全接种疫苗的情况下，中共病毒检测呈阳性，进入隔离状态。
 
-省政府在一份书面声明中表示，目前卑诗省有 4,694 例感染新型冠状病毒的活跃病例。
+《门道专家》报道说，周三（11月3日），完全接种了疫苗的洛杉矶市长埃里克·加塞蒂（Eric Garcetti）对中共病毒检测呈阳性，随后被隔离。
 
-共有445人住院，其中137人在重症监护室。
+回想一下，加塞蒂去年在封城高峰期，禁止人们在沙滩上晒日光浴。
 
-新闻链接：[https://www.cbc.ca/amp/1.6233974](https://www.cbc.ca/amp/1.6233974)
+加塞蒂还断了违反其封锁规定的居民住宅的水和电。
 
-编辑/发布：LILY
+现在，尽管他有戴口罩、用消毒剂，以及有疫苗接种强迫症的习惯，他还是感染了中共病毒。
 
-20211103
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+（全文完）
+
+还好，没有看到加塞蒂像其他极左人士那样对接种疫苗的追捧。比如尼尔·卡武托（Neil Cavuto），那位在去年总统大选时，亚利桑那州还没有计票完成的情况下，就宣布拜登获胜的福克斯电视节目主持人，几周前，完全接种疫苗的他测试呈阳性，竟然恬不知耻地宣扬，“我若是没有接种疫苗，情况会更糟……”
+
+无独有偶，上周白宫新闻首席秘书普萨基测试呈阳性，以同样的腔调夸赞疫苗，“我得感谢疫苗，使我的症状减轻……”从这些人统一口径的表现来看，很容易让人猜想是打疫苗后脑残的一种表现形式吗？不去过多地谴责他们了，毕竟也是受害者，祝他们早日康复。
+
+原文链接：
+
+[https://www.thegatewaypundit.com/2021/11/fully-vaccinated-la-mayor-garcetti-tests-positive-covid-goes-isolation/](https://www.thegatewaypundit.com/2021/11/fully-vaccinated-la-mayor-garcetti-tests-positive-covid-goes-isolation/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

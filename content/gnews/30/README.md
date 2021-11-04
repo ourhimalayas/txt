@@ -2,54 +2,26 @@
 ---
 
 
-## 美国国际旅行新规：11月8日起，外国旅客入境将被要求全面接种疫苗
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1637362/)
+## 一树梨花压海棠——张高丽和嫩草的故事
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1637442/)
 
-作者：纽约香草山 – AlexZ
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-03-at-5.55.30-PM.png)
+权利是一剂胜似”伟哥“的春药，它可以蔑视一切纲纪伦常，践踏一切美好。郭文贵先生在11月3日的大直播中，讲述了前副总理、中央政治局常委张高丽和一些未成年女孩的丑闻。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+我从二零一七年我说老杂毛玩女人，老婆开门，你们都不信，这回证明不但开门，很多当官的老婆还帮助老公。某个常委玩小孩，小孩在哭，老婆帮助把孩子嘴给捂上，扳住孩子的腿，让老公玩。我这不是我说的啊，这是抓起来的李东生给我说的。但是这个事情说明共产党绝对是跟小孩谈恋爱。张高丽的秘书孙俊平和我认识多年，他说：你知道我们老板爱谈恋，不论老少，他可不只玩小的，老的他也玩。这就是二零一七年爆料我跟你们说的，很多人一玩是玩一家三代，奶奶、妈妈、闺女啊，这是这是共产党的最爱，干你八代。
 
+郝海东说，彭帅13岁时到天津时，张高丽是天津市委书记。一个现役的女运动员就可以被市委书记带上床。
 
+郭先生说，俊平是那个张高丽的秘书，俊平当时也帮他找处女、找姑娘，那时候就多了去了。结果俊平的弟弟带着孩子有一天去俊平家，张高丽的眼神就在他那个亲侄女身上，就是离不开了。然后这个张高丽就说让你弟弟带着闺女来啊，可以住在我家呀。俊平就说：领导，这个孩子来不了，张高丽不高兴了，你必须让她来。俊平跪下来求他，领导，你都要高升了，你就别再碰她了，领导，你进北京，我不跟你进北京，我就留在这里，我保证我守口如瓶，你把我全家都俊平了。孙俊平全家一直俊平。
 
+张高丽有四个养女，只是名义上的，也是要陪他。某个演员，就像最火的之一的演员啊，从十二岁就跟着某政治局一个人睡觉，打了七次胎，最后一个不到十六岁把子宫割了啊。
 
+郭先生说，共产党的残忍真不是你们想象的，你认不清共产党的残忍，你就永远不会知道新中国联邦真正的价值。
 
-10月25日，白宫和CDC宣布，将于11月8日对国际旅行者实施新的疫苗接种政策。国务院发言人内德-普莱斯说：”从11月8日起，前往美国的外国国民航空旅行者将被要求全面接种疫苗，并在美国登机前提供疫苗接种状况证明。”
+参考链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1343-1-nedpa.jpg)图片：ANDREW HARNIK/POOL/AFP via Getty Images
-
-据说此举是为了 “把健康放在第一位”。然而，批评者称此举具有侵略性，而且没有必要。尽管有新规比以往更加严格，但美国表示仍将要求所有旅行者，无论是否接种疫苗，在登机前都要接受 COVID 检测。
-
-据普莱斯证实，那些有资格旅行但尚未接种疫苗的人，需要在航班起飞前一天内提供 COVID-19 阴性检测证明。对于接种疫苗的人，测试要求仍然是在航班起飞前三天。
-
-**新闻链接：**
-
-1. [U.S. changes international travel requirements, COVID vaccine policy | One America News Network (oann.com)](https://www.oann.com/u-s-changes-international-travel-requirements-covid-vaccine-policy/)
-2. [Frequently Asked Questions on COVID-19 Vaccinations and Testing for International Travel (state.gov)](https://travel.state.gov/content/travel/en/international-travel/emergencies/covid-19-faqs-for-travel-to-the-us-information.html)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-**校对/发稿：小鹿**
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+[2021年11月03 日 文贵大直播](https://gettr.com/streaming/pfyckddba1)
 
  
 
