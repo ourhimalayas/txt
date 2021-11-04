@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/4/2021 8:13 AM (UTC)`
+
+11/1/2021 【HCoin to The Moon庆典】<br/>喜交所上市前采访各职能团队，做好上市最后的准备<br/><br/>11/1/2021 【HCoin To the Moon Celebration】 <br/>Interviewing all functional teams of Himalaya Exchange just prior to launch， getting everything ready to go
+![img](https://media.gettr.com/group22/getter/2021/11/04/08/13/d36d31f0-0262-7bf3-93f6-bf4c3a312e74/out.jpg)
+
+---
+
 `@miles 11/4/2021 5:06 AM (UTC)`
 
 11/3/2021 Miles Guo: The truth about the CCP virus and its vaccines are the biggest bullets of the New Federal State of China, followed by the Himalaya Reserve and GETTR; Zhang Gaoli is obscene and incompetent and was the first to say that Xi would step down after his first term; If the CCP is not destroyed, everyone’s children could be wrecked by them<br/><br/>11/3/2021 文贵直播：疫苗和病毒的真相是新中国联邦最大的子弹，喜联储和盖特次之；淫荡、无能的张高丽最早说习近平当完一届得下台；共产党不灭，每个人的孩子都可能被他们糟蹋！<br/>
@@ -287,15 +294,6 @@ Hcoin To The Moon <br/><br/>词：威廉王<br/>曲：唐平<br/>编曲： SFG<b
 
 “HCOIN TO THE MOON” 喜马拉雅币上市庆典
 ![img](https://media.gettr.com/group30/origin/2021/11/01/09/114a50be-85ff-f9a7-eec1-20b602a50f71/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@himalayaitaly 10/31/2021 8:05 PM (UTC)`
-
-意大利，第一家支持喜币支付的饭店诞生。只要你有喜币可以在店内消费享受所有美食。
-![img](https://media.gettr.com/group49/origin/2021/10/31/20/a9e07058-b619-052b-0cc6-57cbcbda8a19/34a541a9cbf04cb98cdbdd1a00093dc3.jpeg)
 
 ---
 
