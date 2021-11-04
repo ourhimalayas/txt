@@ -2,15 +2,13 @@
 ---
 
 
-## 加拿大及各省疫情一览表
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1639003/)
+## 斯坦尼斯航天中心的员工抗议拜登专制蛮横的疫苗强制令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639111/)
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-04-at-11.43.51-AM.jpeg)
-编辑/发布：LILY
+10/30/2021 一个美国新闻记者汤姆·麦格拉思采访了密西西比州斯坦尼斯航天中心的一些员工，他们正在抗议拜登专制蛮横的疫苗强制令。
 
-20211104
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

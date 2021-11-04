@@ -2,39 +2,31 @@
 ---
 
 
-## 中共当局警告人们要储备食物以度过冬天
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1638908/)
+## Truth Social被控违反软件版权许可
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1639001/)
 
-编译：蚂蚁兄弟
+作者：纽约香草山农场 – 007
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-3.jpg)市民去超市储备食物 EFE
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-中国政府提出的为冬季储备粮食的建议令民众担忧。超市里到处都是消费者，他们把白菜、大米、盐、油和鸡蛋放在购物车中，这种画面以前只有在销售季节才能看到的。“消息一出来，人们就慌了，在超市里疯狂购物”，一位用户在中国社交网络微博上写道。反应是如此夸张，以至于国家媒体只用了几个小时就试图平息事态，并要求民众不要有“过度的想象”。
+11月2日，据盖特消息显示，近日，软件自由保护协会发文称，社交应用Truth Social复制了受AGPLv3协议保护的Mastodon公司源代码。依照规定，复制方需向用户分发自己的源代码链接，但Truth Social目前无视了公开源代码的请求。规定中提及，如果30天内Truth Social不纠正违规行为，AGPLv3所授予的权利将自动永久终止。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-4.jpg)
+目前，Mastodon公司正在尝试通过法律途径解决这一问题， 其创始人表示，Truth Social违反许可规则，Mastodon可以采取法律行动。他补充道，Mastodon公司已经联系了对方公司的法律顾问。
 
-中共喉舌《经济日报》强调说，这只是一个被禁传的警告。但是公民有理由感到不安：大流行病、与台湾的紧张关系以及毁坏农作物的意外暴雨都是供应危机中的一个威胁。
+参考链接：
 
-10月份的极端天气损害了中国主要蔬菜生产地区山东的农业生产，价格也相应上涨。上周，黄瓜、菠菜和西兰花的价格比10月初翻了一番。
+[Truth Social被指控违反版权许可，SFC和Mastodon 可能提起诉讼](https://gettr.com/post/pfugq19e98)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编/编辑：Irene木木
+校正/发稿：Fei797
 
-当局要求消费者囤积蔬菜，以应对可能出现的价格进一步上涨，政府说它已经准备好库存，“在适当时候”提供给民众。
-
-**简评：**
-
-**号称“以不足10%的耕地养活了世界22%人口”的中共国，难道粮食就这样出问题了吗？**
-
-**一贯以谎言欺骗世界，欺骗中国百姓的中共政府，这次粮食恐怕真的要出问题了。其实，为了满足国内老百姓粮食的需求，中共国的粮食一直以来主要依靠进口。中共向全世界释放了病毒，发动了超限战之后，世界已经被搅乱。中共国的外贸和经济已经到达了崩溃的边缘。对外贸易的萎缩，地产的“暴雷”，对外投资的失败，已经是中共的外汇捉襟见肘。而十几年来的地产经济，已经使中共国的耕地大面积被当地政府卖掉，用以盖楼。**
-
-**中共国这次的粮食也许真的要出现问题了，而中共政府又会像从前一样，把这次的饥荒推给天。只希望这次缺粮的影响能够小一些，因为中国的绝大多数的百姓是勤劳的，是善良的。**
-
-**参考资料：**[lavanguardia][China alerta a la población de que haga acopio de víveres para pasar el invierno](https://www.lavanguardia.com/internacional/20211102/7833053/china-alerta-poblacion-hagan-acopio-comida-viveres-pasar-invierno.html)
-
-* * *
-
-*审核：Aries的星*
-*校对：信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

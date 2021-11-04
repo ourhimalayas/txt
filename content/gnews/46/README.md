@@ -2,36 +2,59 @@
 ---
 
 
-## OSHA暂停对疫苗副作用的报告来推进疫苗接种强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1637808/)
+## CNN报道彭帅揭张高丽性侵丑闻遭中共全面封杀
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1637865/)
 
-作者：MOS – 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月2日，美国有关媒体报道称，职业安全与健康局，又称OSHA，正在含蓄地鼓励雇主隐藏新冠疫苗副作用的报告，并试图通过这一操作，加快实施一项紧急授权的联邦新冠疫苗强制令。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-2.jpeg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/P-1.jpg)bloomberg.com
+CNN的文章题目是，“中共国网球明星指控前中共国家领导人性侵犯，引发中共全面审查”。
 
-报道中提及，早在今年春天，OSHA对于新冠疫苗的相关要求就已经发生了改变。此前，OSHA要求雇主在接种新冠疫苗的问题上必须遵循自愿原则，且不得报复不愿接种疫苗的员工——这是美国1904号法规的一部分。但是，这项声明于今年5月22日消失在OSHA的官网上。
+全文如下：
 
-另一方面，为了强制推行新冠疫苗的接种，美国劳工部和OSHA甚至要求雇主暂停上报新冠疫苗的副作用案例 。
+一位中共国网球明星对一位前国家领导人的爆发性指控被全面审查所掩盖，当局竞相抹去任何关于在中共国互联网上提及的政治敏感丑闻。
 
-但有评论表示，对于政府的这一行为，美国的民众已经逐渐开始觉醒。大量的事实证明，民众在强制疫苗令和个人安全中选择了后者，为此，他们宁愿失去工作。
+35岁的彭帅，前温布尔登网球公开赛和法网双打冠军，周二（11月2日）指控退休副总理张高丽强迫她发生性行为，（此消息）根据彭在微博（中共国类似推特的社交媒体平台）上的验证账户中删除的帖子截图。
 
-参考链接: [As ’emergency’ workplace vax mandate looms, OSHA guidance stems flow of adverse reaction reports](https://justthenews.com/government/federal-agencies/feds-suspend-requirement-report-covid-vaccine-side-effects-employer)
+CNN无法独立核实这篇1600多字的帖子的真实性，并且已联系彭和中共国务院新闻办公室征求意见，该办公室负责为其中央政府处理新闻查询。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+在这封写给张高丽的公开信中，她声称一段断断续续的恋情至少持续了10年，彭说她向他敞开了心扉。
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
+她写道：“你为什么要回到我身边，带我到你家强迫我与你发生性关系？是的，我没有任何证据，而且根本不可能有证据。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“我无法形容自己有多恶心，有多少次我问自己，我还是一个人吗？我感觉自己像一具行尸走肉，我每天都在演戏，哪个人才是真正的我？”
+
+美国有线电视新闻网（CNN）无法联系到75岁的张高丽，张曾在中共国领导人习近平的第一届任期内担任中共中央的政治局常委，从2012到2017，他于2018年卸任国务院副总理。
+
+在中共国，即使在退休后，（类似）张高丽这样的高级领导仍然不易接近，也不公开，这使得他几乎不可能就此发表评论。
+
+中共国羽翼未丰的“我也遭受过性侵”（#MeToo）运动过去曾以学者、非政府组织工作人员和名人为目标，但结果各不相同，这次它第一次进入了共产党高层。
+
+“我们必须认识到，彭帅选择直言不讳是多么了不起。很少有人会有勇气这么做，因为这可能会以牺牲你自己和家人的安全为代价。” 现居纽约的著名中国女权主义者吕平说。
+
+丑闻发生在中共六中全会这样一次关键的北京党内精英会议的前几天，这也增加了政治敏感性，预计这次会议将为习近平巩固第三个任期铺平道路。
+
+全面审查
+
+彭的指控在网络上引起了轩然大波，审查的速度和力度之快在该国之前的任何#MeToo事件中都是前所未见的。
+
+她在周二（11月2日）晚上10点后不久发表的长篇帖子，不到30分钟即被删除，它的截图最初在社交媒体和私人聊天组中广泛传播，但很快它们也被审查，包括其他讨论此案的帖子。
+
+截至周三（11月3日）晚上，彭的已核实账户仍在微博上，拥有50多万粉丝，但它已被禁止搜索，她之前帖子下的所有评论部分也被关闭。
+
+……
+
+（摘译完）
+
+文章内容对爆料革命的战友不是什么稀罕事了，随后我们看到中共崴脚部发言人汪文斌被问及对此问题如何看时回答“我不知道有这事，再说这不属于外交范畴，下一个问题。”
+
+11月3日大直播中文贵先生、郝海东、叶钊颖已经揭露了这类事件出现在中共最高层属于司空见惯，只能说明中共所谓领导人和其体制的烂。文贵先生已经指出，这是习对张高丽下手的动作，属于习报家仇、私仇，段位实在不高。问题是在这个时间点，CNN也作出了如此大篇幅的报道，反映的是中共内斗的升级。
+
+原文链接：
+
+[https://edition.cnn.com/2021/11/03/china/china-metoo-peng-shuai-zhang-gaoli-intl-hnk/index.html](https://edition.cnn.com/2021/11/03/china/china-metoo-peng-shuai-zhang-gaoli-intl-hnk/index.html)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,51 +2,42 @@
 ---
 
 
-## 欧洲议会官方代表团首次访问台湾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1638732/)
+## 中国网球运动员彭帅指控中国前国家副主席性侵案
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1638850/)
 
-作者：纽约香草山医疗部 – 云豹
+编译：蚂蚁兄弟
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/e3c6b37c-2246-491d-a7b1-d803ed31260a.jpeg)路透社资料图
 
+2014年世界双打排名第一的中国网球运动员彭帅直指与中共国国家前副主席张高丽地下情人的性行为关系，在中共国引发了一场丑闻，政府正试图通过互联网审查加以遏制。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+彭帅在微博的账户上发布一条爱情心理感受的文章，但几小时后该信息就消失了，同样的情况也时常发生在社交网络上的所有评论上，中共政府会迅速删除对其不良的信息。
 
+这位世界排名第189位的35岁球员声称，75岁的中国副主席张高丽在2012年至2017年间强迫她发生了性关系。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-1.png)图片来源：lavanguardia.com
 
-欧洲议会「外国干预欧盟民主程序特别委员会」代表团于11月3日抵达台湾，进行为期三天的访问。这是欧洲议会对台湾进行的首次官方访问，政治意义重大。
+“我知道像您这样杰出的人，张高丽副总理，曾说过您并不害怕”，彭帅在她的帖子中写道，“但即使只是我，像鸡蛋撞石头，或飞蛾扑火，自寻死路，我也会说出您的真相”。这段文字已在成千上万的网民中传播。
 
-访问团成员包括欧盟特别委员会主席法国籍格鲁克斯曼、立陶宛前总理库比柳斯、捷克、奥地利、希腊、意大利等7位跨党团欧洲议会议员，以及相关行政人员及党团政策顾问共13人。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-26.jpg)
-代表团访台期间将会晤蔡英文总统和其他台湾政府高级官员，就虚假信息，网络攻击等复合式威胁等议题深入交换意见。并与相关智库、媒体及公民社会团体座谈，交流如何辨别及对抗虚假信息攻击的经验。
+2014年，对于这位在双打赛场上表现出色的伟大女运动员来说是个里程碑，她和她的搭档谢淑薇赢得了两个大满贯，多哈公开赛和法国网球公开赛的女双冠军。
 
-台湾外交部发表声明表示，台湾将继续加强与欧盟的合作，共同对抗专制政权的侵犯，坚定捍卫共享的民主，自由，法制及人权等普世价值。
+在她的公开申诉中，这位网球运动员感叹她没有证据来支持她的指控。一些媒体和新闻机构试图联系她，但到目前为止，她拒绝发表任何评论。
 
-参考链接：
-[歐洲議會代表團抵台 主席：高興來支持我們朋友](https://www.cna.com.tw/news/firstnews/202111035002.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+**简评：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+**在没听郭先生直播之前，一定会认为这又是哪个过气明星想蹭中共高官的名气，炒作绯闻，达到自己的目的。自从叶女侠和郝海东出来证明这类事情就在今天真实的发生着，我们也就不觉得奇怪了。性骚扰在中共体制内是常见的事，但受害者往往不敢直接点名，加上这起事件涉及像张高丽层级这么高的前政府官员，所以各界都惊吓到了。也许彭帅是无意，也许是有意、有计划的把此事说出来，中共也做出了封锁信息遏制言论的举动。毫无预兆的爆出了如此的大“绯闻”，我们不得不怀疑这其中参杂了复杂的政治斗争的背景。**
 
-总编：飞虹
-编辑：珈沅
-校对/发稿：为真不破20
+**彭帅如今她将受到多大的威胁和恐吓，中共的黑暗不是我们所能想象的，希望彭帅好好活着。**
 
-**更多资讯，更多关注**
+**参考资料：**[lavanguardia][La tenista china Peng Shuai acusa de agresión sexual al exvicepresidente de su país](https://www.lavanguardia.com/deportes/tenis/20211103/7836334/estrella-tenis-china-acusa-agresion-sexual-exvicepresidente-pais.html)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+* * *
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+*审核：Aries的星*
+*校对：阿伯塔*
+*发布：信心的选择*
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
 
  
 
