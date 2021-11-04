@@ -2,20 +2,20 @@
 ---
 
 
-## 接种和未疫苗的人会一样传播 Delta 变体
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1638076/)
+## COVID-19最新情报｜辉瑞广告影片诱导儿童相信“接种疫苗可成为超级英雄”（影音版）
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1638096/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11031-2.jpg)图片来自路透社
-发表在《柳叶刀》小组的传染病医学杂志上的一项研究表明疫苗保护的局限性：接种了双剂量新冠疫苗并感染了冠状病毒 delta 变体的个人与未接种疫苗的人有着非常相似的传播疾病的速度。
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜4/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_0.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：https://gettr.com/user/mightygroup）**
 
-在英国进行的为期一年的研究共监测了 621 名出现新冠病毒症状的人，研究人员得出结论：感染 delta 变体的接种疫苗个体的感染率为 25%，而未接种疫苗的个体感染率为 38%。当你去看家庭接触者时，这两个指数更接近，其中接种疫苗但有症状的受试者的感染率为 25%，而未接种疫苗的受试者为 23%。
+为了尽快实现为美国 5～11 岁儿童接种新冠疫苗的计划，辉瑞日前录制一辑洗脑式的广告，诱导儿童相信，接种疫苗就是拯救他人，拿出勇气接受注射就可以获得超能力，成为超级英雄。
 
-研究人员在他们的结论中明确表示：“尽管目前的疫苗在预防新冠病毒引起的严重疾病和死亡方面仍然有效，但结果表明，单独接种疫苗不足以防止 delta 变体在家庭环境中的传播”。
+以下为影片：
 
-原文链接：[https://europa.today.it/attualita/vaccinati-trasmettono-variante-delta-come-non-vaccinati.html#\_ga=2.75835285.1002968678.1635926454-145009575.1615972944](https://europa.today.it/attualita/vaccinati-trasmettono-variante-delta-come-non-vaccinati.html#_ga=2.75835285.1002968678.1635926454-145009575.1615972944)
+* * *
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+来源｜参见影片
 
  
 
