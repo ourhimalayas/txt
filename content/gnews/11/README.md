@@ -2,61 +2,83 @@
 ---
 
 
-## 五角大楼报告：中共国扩张核武库超预期
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1637607/)
+## 币圈新闻动态：HCN价格突破10HDO，流通市值突破100亿美元
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1637701/)
 
-众议员帕特·法伦： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 正在不知疲倦地破坏美国和我们的盟友。 这届政府需要什么才能醒来？ 【附国会山报：五角大楼报告：中共国扩张核武库超预期】
+*喜马拉雅华盛顿DC 编辑：aQ*
 
-
-
-> China is working tirelessly to undermine the United States and our allies. 
-> 
-> What will it take for this Administration to wake up? [https://t.co/jspHV4xPWz](https://t.co/jspHV4xPWz)
-> — Rep. Pat Fallon (@RepPatFallon) [November 3, 2021](https://twitter.com/RepPatFallon/status/1455979843762507780?ref_src=twsrc%5Etfw)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
 
 
 
-众议员吉姆·英霍夫： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 继续冷酷地扩张其核武库。一份新的国防部报告称，到 2030 年，中国可能拥有超过 1,000 枚核武器。然而，美总统拜登仍然不关心——就像在阿富汗一样，他危险地与外界脱节！ 更多请阅读 [http://wsj.com/articles/china](https://t.co/nwkmu21OR3?amp=1)… 【附华尔街日报和CNN的两则新闻】
-
-
-
-> China’s relentless expansion of its nuclear arsenal continues unchecked. A new [@DeptofDefense](https://twitter.com/DeptofDefense?ref_src=twsrc%5Etfw) report says China is likely to have &gt;1,000 nukes by 2030. Yet [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) remains unconcerned – just like with Afghanistan, he’s dangerously disconnected!
-> More ➡️ [https://t.co/HdOvQncJww](https://t.co/HdOvQncJww) [pic.twitter.com/UBf3YEBkO5](https://t.co/UBf3YEBkO5)
-> — Sen. Jim Inhofe (@JimInhofe) [November 3, 2021](https://twitter.com/JimInhofe/status/1455993437090635780?ref_src=twsrc%5Etfw)
-
-
-
-众议院军事委员会共和党： 委员迈克·罗杰斯说“要么美国挺身而出，以前所未有的国防现代化来迎接这一挑战，要么我们将世界舞台让给 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)。如果我们不改变方向，那就停止担心会侮辱 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 吧，该立刻开始担心的是怎么生活在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 统治之下”众议院军事委员会共和党： “这份报告应该够清楚让拜登政府看到这一段时间以来不言而喻的事情——中共国构成了一个真正且迫在眉睫的威胁。为我们自己的军事现代化而竭尽全力已不再是一种选择。” 【附罗杰斯议员就中共国军力报告所发的声明】
-
-
-
-> "Either the US rises to meet this challenge w/ unprecedented defense modernization, or we cede the world stage to the CCP. It is past time to stop worrying about insulting China & start worrying about living under CCP rule if we don’t change course immediately." [@RepMikeRogersAL](https://twitter.com/RepMikeRogersAL?ref_src=twsrc%5Etfw) [pic.twitter.com/y6SleT7KYC](https://t.co/y6SleT7KYC)
-> — Armed Services GOP (@HASCRepublicans) [November 3, 2021](https://twitter.com/HASCRepublicans/status/1455989805771329538?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·华尔兹： 如果历史重演，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 将通过在北京举办 2022 年奥运变得胆大妄为而台湾将受到威胁。 俄罗斯在 2014 年奥运后两个月入侵乌克兰。国际奥委会必须将比赛搬离,否则我们必须抵制 [#北京冬奥会](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A?src=hashtag_click)。 【转推：前白宫国安顾问布莱恩警告说中共国可能会在冬奥会后2024美总统大选前对台湾动武】
-
-
-
-> If history repeats itself, the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) will be emboldened by hosting the 2022 Olympics in Beijing and Taiwan will be threatened.
-> 
-> Russia invaded Ukraine two months after the 2014 Olympics. The IOC must move the games or we must [#BoycottBeijing2022](https://twitter.com/hashtag/BoycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/AlzZu52dcG](https://t.co/AlzZu52dcG)
-> — Rep. Mike Waltz (@michaelgwaltz) [November 3, 2021](https://twitter.com/michaelgwaltz/status/1456010797893636097?ref_src=twsrc%5Etfw)
-
-
-
-众议员肯·巴克： 真正的问题是——该节目的制作人是如何允许使用在法律上不准确的地图的？国际法庭驳回了 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对南中国海的主张。好莱坞对 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的要求持续效忠令人非常担忧。 【附路透社报道：（线上影院）Netflix 在菲律宾抱怨中国地图（包含南中国海）后撤掉了谍战剧】
-
-
-
-> The real question is — how did the show’s producers allow a legally inaccurate map to be used? International courts have denied China’s claims over the South China Sea. Hollywood’s continued allegiance to the CCP’s demands is wildly concerning.[https://t.co/SqHbgCZCIe](https://t.co/SqHbgCZCIe)
-> — Rep. Ken Buck (@RepKenBuck) [November 3, 2021](https://twitter.com/RepKenBuck/status/1455996866575966213?ref_src=twsrc%5Etfw)
+## 每日一问
 
 
 
 
 
+喜联储的股票和喜马拉雅币有什么联系和区别呢？
+
+
+
+
+
+## 喜马拉雅交易所要闻
+
+
+
+
+
+- 喜交所行情显示，HCN价格突破10HDO，流通市值第一次突破到100亿美元。
+
+
+
+
+
+
+## 新闻动态
+
+
+
+
+
+1. 路透社报道，根据数字资产研究机构Crypto Compare，数字投资产品的资产管理规模（AUM）在10月增长45.5%，达到747亿美元的纪录新高。基于比特币产品的AUM总规模增长52.2%，达到552亿美元，基于以太币的基金AUM增长了30%，达到159亿美元，双双创下新高。
+2. 11月3日消息，根据最新数据显示，NFT链上销售总额突破130亿美元，创下历史新高。目前NFT销售额排名前三的区块链分别是：以太坊、Ronin和Flow。
+3. 11月3日消息，根据最新数据显示，比特币市值达到1.16万亿美元，而当前腾讯市值为5,886.1亿美元，这意味着比特币市值约达到腾讯的两倍。
+4. 11月3日消息，Riot Blockchain预计2022年总算力将达8.6EH/s，较此前预计的7.7EH/s上调了11.7%。此外，Riot Blockchain称其10月份通过挖矿获得了464枚比特币，同比增长433%，截至10月底，Riot今年通过挖矿获得的比特币数量为2,921枚。
+5. 11月3日消息，板球NFT平台Faze Technologies宣布完成1,740万美元种子轮融资，本轮融资由Tiger Global领投。Faze Technologies是一个板球NFT平台，旨在建立一个板球元宇宙，目前已与国际板球理事会（ICC）签署协议，将于近期以板球运动为主题创建独家系列NFT数字收藏品，该系列NFT将在Flow区块链上发布。
+6. 11月3日消息，资产管理规模超过17亿美元加密指数基金管理公司Bitwise Asset今天宣布推出Bitwise Compound（COMP）基金，该基金将直接投资于Compound协议的原生代币COMP。
+7. 11月3日消息，波场基金会已与NFT市场APENFT联手推出1亿美元的基金，以支持NFT项目和数字艺术家。APENFT表示，Art Dream基金旨在收集“有意义的故事并促进元宇宙中的金融和文化包容性”。
+8. 11月3日消息，FTX.US背后的公司West Realm Shires Services周三宣布与肯塔基大学男子篮球队达成一项新的赞助协议。FTX.US将以美元支付其篮球运动员，并允许他们创造可在FTXNFT市场上出售的NFT并从中获利。此外，FTX.US将向篮球运动员选择的慈善机构捐款。
+9. 11月3日消息，NBA球员凯文•杜兰特（Kevin Durant）和商业伙伴Rich Kleiman成立了名为Infinite Acquisition Corp的特殊目的收购公司（SPAC），公开募股最高可达2亿美元。该公司正在考虑收购或与一家私人加密行业公司合并以使其上市。
+10. 11月3日消息，Stark Ware宣布与智能合约钱包Argent达成战略合作，双方将在建设以太坊Rollup扩容方案Stark Net上展开合作。
+11. GlobeNewsWire报道，加拿大轻型电动汽车制造商Daymak宣布将商业化、无排放的加密货币挖矿解决方案Crypto Solar Tree用于其Daymak产品生态系统，Crypto Solar Tree目前正在申请专利。
+12. Decrypt报道，国际象棋联合会（FIDE）宣布与TONlabs建立合作伙伴关系，以推出一个专门用于国际象棋运动的新NFT市场ChessNFT.com，展示具有国际象棋标志性时刻的数字艺术和收藏品。
+13. 11月3日消息，Crypto.com宣布成为亚马逊旗下的游戏直播平台Twitch赛事品牌Twitch Rivals的官方全球营销合作伙伴以及官方全球加密货币平台合作伙伴。Crypto.com将获得品牌展示、媒体投放等权利，双方的合作关系将在于11月4日在拉斯维加斯举行的“Twitch Rivals：Ultimate Challenge”比赛期间展示。
+14. 11月3日消息，顶级赛车队红牛车队（Red Bull Racing）将在Tezos（XTZ）上发布自己的数字收藏品。包括一系列独特的赛车纪念品，将从其最佳速度赛车手Sergio“Checo”Pérez Mendoza限量版墨西哥GP头盔开始。一万个独特的头盔将在下一届墨西哥大奖赛前几天作为NFT发布。
+15. TheBlock报道，Coinbase正在测试一项新的基于订阅的服务Coinbase One，将提供给少数用户开始使用，功能包括零费用交易和优先电话支持，还计划增加账户保护。目前尚不清楚Coinbase将为新服务收取多少费用
+16. 11月3日消息，波卡生态链上衍生品平台dTrade将其在波卡上的协议命名为Firefly。dTrade将在Kusama平行链Moonriver上部署，Firefly则将在Moonbeam成为波卡平行链后在其上进行部署。
+17. 11月3日消息，在EOS基金会举行的社区会议中，EOS基金会负责人Yves La Rose表示EOS有计划支持EVM，已经开始筹集资源部署，上线时间预计为2022年上半年。
+18. 11月3日消息，随着SOL创下新高，亿万富翁Chamath Palihapitiya投资了800万美元于专注于Solana的初创公司Syndica。这家Web3.0初创公司专注于构建Solana区块链的生态系统。
+19. 11月3日消息，在周三早上的协议升级中，代币化汇款协议Stellar推出了一个自动做市商（AMM），它将与其基于订单簿的路由和匹配引擎一起运行。Stellar生态系统负责人Justin Rice表示，在协议级别添加AMM是开发人员和用户之间的一个普遍要求。
+20. 北京商报报道，今年“双•11”将在北京冬奥会场、上海市、深圳市、大连市、西安市、青岛市、长沙市、苏州市、成都市、海南省、雄安新区等11个试点地区同时启动红包活动大幅拓展了数字人民币的试点场景。
+21. 美通社报道，西雅图区块链公司KaJ Labs开发的Lithosphere加密货币平台启动了与巴西中央银行的讨论，以合作推出该国的数字雷亚尔（巴西货币）。巴西中央银行（BCB）行长表示，巴西中央银行正在巴西雷亚尔数字化计划上“取得进展”，并可能最早在2022年发布中央银行数字货币，前提是满足实施数字货币的基础设施和必要条件。
+22. Decrypt报道，英国国家犯罪署（NCA）已命令丝绸之路管理员Thomas White交出价值667,000美元（490,000英镑）的比特币。
+23. 11月3日消息，拜登政府正式提名康奈尔大学法学院教授Saule Omarova为货币监理署（OCC）署长候选人。Omarova仍将需要接受确认，这将需要在参议院进行一系列听证会和投票，但尚未任何具体时间安排。虽然政府于9月宣布了提名计划，但正式程序目前刚刚开始。
+24. 11月3日消息，美国证券交易委员会（SEC）正在仔细研究灰度将其灰度比特币基金（GBTC）转换为现货比特币交易所交易基金（ETF）的申请。SEC于11月2日发布了一份通知，就纽约证券交易所Arca为此提交的拟议规则变更征求意见反馈。
+25. 11月3日消息，美国货币监理署（OCC）代理署长Michael Hsu宣布其办公室的加密审查已经结束。此外，Hsu在任职之初对各机构之间缺乏协调一致的努力来澄清加密规则和监管加密公司的问题表示不满。为此，他在OCC、美联储和联邦存款保险公司之间建立了“加密冲刺”。
+26. 11月3日消息，美国众议员Tom Emmer和Darren Soto呼吁美国证券交易委员会及其主席Gary Gensler批准现货比特币ETF。两位议员指出，提供CME比特币期货敞口的产品的波动性可能比比特币现货ETF大得多，并且由于比特币期货通常交易的溢价以及每月滚动期货合约的成本，可能会向投资者收取更高的费用。
+27. 11月3日消息，刚刚在美国纽约市市长选举中胜出的Eric Adams表示，他想把纽约转变为一个加密友好的城市。他希望加密成为一个途径，可刺激该市的金融增长。他将致力于探讨是什么阻碍了纽约“比特币和加密货币的增长”。Adams还表示，他特别关注迈阿密最近在加密领域取得的成功，并希望在加密领域与该市进行“友好竞争”。
+
+
+
+
+
+*编辑：aQ
+发布：文顾*
+
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
