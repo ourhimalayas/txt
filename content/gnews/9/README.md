@@ -2,42 +2,33 @@
 ---
 
 
-## 字节跳动创始人张一鸣卸任董事长
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1638224/)
+## 国际刑事法院已对委内瑞拉涉嫌危害人类罪展开正式调查
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1638295/)
 
-翻译：西班牙喜悦农场–wenwu
+新闻来源：德国世界报网页版
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1.jpg)据报道，字节跳动创始人张一鸣身价约为 445 亿美元。 彭博新闻
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-据周二（2日）晚间报道，字节跳动（ByteDance Ltd.）创始人张一鸣将在[辞去](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)（5月）TikTok 的[首席执行官](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)的数月后，一并辞去字节跳动的董事长（3日）的位置。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Venezuela-International-Court.jpg)
 
-[彭博新闻](https://www.bloomberg.com/news/articles/2021-11-03/bytedance-s-zhang-exits-board-joining-exodus-by-tech-founders?srnd=technology-vp&amp;sref=Oeyjq8by)和[路透社](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)援引熟悉此事的消息人士的话[报道](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)称，字节跳动的首席执行官 Liang Rubo 将接替张先生担任董事长。
 
-周二早些时候，字节跳动宣布了一项将公司重组为六个业务部门的计划。作为重组的一部分，《华尔街日报》报道称，字节跳动[首席财务官](https://www.wsj.com/articles/bytedance-cfo-is-stepping-down-to-focus-on-tiktok-11635885543?mod=Searchresults_pos1&amp;page=1&amp;mod=article_inline) Shou Zi Chew 将卸任，专注于他作为 TikTok 首席执行官的角色。
+图片来源： 美联社
 
-随着中共国政府[收紧对互联网公司的控制](https://www.marketwatch.com/story/chinas-communist-party-exerting-tighter-control-over-the-countrys-internet-giants-01633320070?mod=article_inline)，38 岁的张是最近一位离开他们创立的公司的中共国亿万富翁。拼多多公司[PDD， +0.12%](https://www.marketwatch.com/investing/stock/PDD?mod=MW_story_quote)的创始人兼董事长 Colin Huang于 [3月](https://www.marketwatch.com/story/pinduoduo-founder-colin-huang-steps-down-from-company-11615997079?mod=article_inline)退出该公司；京东商城[JD， +0.82%](https://www.marketwatch.com/investing/stock/JD?mod=MW_story_quote)的创始人兼董事长刘强东于9月份退出[了公司的](https://www.marketwatch.com/articles/jd-com-says-founder-stepping-back-from-day-to-day-running-of-the-business-51630941420?mod=article_inline)日常管理；快手科技（Kuaishou Technology）联合创始人兼首席执行官 Su Hua 于[上周同样退出了公司](https://www.wsj.com/articles/chinese-video-platform-kuaishou-says-ceo-steps-down-11635529476?mod=article_inline)。
+国际刑事法院已对委内瑞拉涉嫌危害人类罪展开正式调查。首席检察官卡里姆·汗（Karim Khan）周三宣布调查，他刚刚结束了对委内瑞拉为期三天的访问。
 
-总部位于北京的字节跳动成立于 2012 年，其热门应用 TikTok 每月拥有近 7 亿用户。截至上一轮融资时，私人持有的字节跳动估值为 1400 亿美元，但 [据彭博社报道](https://www.bloomberg.com/news/articles/2021-03-30/bytedance-is-said-valued-at-250-billion-in-private-trades?sref=Oeyjq8by) ，今年早些时候私有估值约为 2500 亿美元。
+汗在与有争议的委内瑞拉总统尼古拉斯·马杜罗举行的新闻发布会上说，他了解委内瑞拉的政治断层以及对南美国家局势的不同地缘政治立场。但他不会容忍干预刑事法庭的调查。
 
-彭博亿万富翁指数将张先生列为[全球第 31 位最富有的人，](https://www.bloomberg.com/billionaires/profiles/yiming-zhang/?sref=Oeyjq8by)财富价值约为 445 亿美元。
+2018 年 2 月，国际刑事法院开始对委内瑞拉可能存在的危害人类罪进行初步调查。 据称，自 2017 年 4 月以来，政府“经常过度使用武力”来驱散和镇压示威活动，并虐待反对派囚犯。据说发生了酷刑和处决。同时，也审查政府反对者可能的暴力行为。
 
-**简评：**
+下一步是对这些指控进行正式调查。这究竟包括什么，汗不想更详细地解释。但这是拉丁美洲国家首次进行此类研究。迄今为止，国际刑事法院主要关注非洲的暴行。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1-1.jpg)图片来源于[禁文网](https://www.bannedbook.org/bnews/bannedvideo/20210908/1620501.html)
+“这是一个转折点，”人权组织人权观察组织的何塞·米格尔·维万科（José Miguel Vivanco）说。现在不仅受害者有希望，而且马杜罗总统有可能对其安全部队犯下的罪行负责。但是需要数年时间才能提出指控。
 
-**据2021年11月3日《DESCARGITAS》报道，中共国政府将越来越关注富有的科技企业家，许多亿万富翁积累了权力，并影响了威权。**
+马杜罗说他不同意汗开始调查的观点。但他相信，与首席检察官达成的协议将使委内瑞拉当局也可以进行自己的调查，也可以使真相大白。
 
-**阿里巴巴的联合创始人马云一直是被镇压的主要受害者，最近飞离中共国到西班牙度假。自从习近平主席去年阻止了他的在线金融平台蚂蚁金服集团的上市计划后，马云就限制了公开露面（此举曾发生在毛泽东时代）；外国科技公司与雅虎一起退出中共国，本周宣布“由于商业和法律环境变得越来越具有挑战性，离开中共国。”随着新的《数据保护法》于周一（1日）在中共国生效，恰好是雅虎退出中共国的时间，法律规定了私人公司收集个人信息的条件，并制定了如何使用这些信息的规则。**
+原文链接：[https://www.welt.de/politik/ausland/article234829612/Venezuela-Verbrechen-gegen-die-Menschlichkeit-werden-untersucht.html](https://www.welt.de/politik/ausland/article234829612/Venezuela-Verbrechen-gegen-die-Menschlichkeit-werden-untersucht.html)
 
-**最后，向同胞们呼吁不要打疫苗，并且加入新中国联邦大家庭；从喜币上市可见，新中国联邦的实力是实实在在的。**
-
-新闻来源：[marketwatch.com] [ByteDance founder Zhang Yiming steps down as chairman: reports](https://www.marketwatch.com/story/bytedance-founder-zhang-yiming-steps-down-as-chairman-reports-11635909977) | 发布时间：2021年11月2日
-
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
+责任编辑、发布： Shuizhuyu
 
  
 

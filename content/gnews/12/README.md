@@ -2,33 +2,86 @@
 ---
 
 
-## 银河快讯：习近平&#8221;共同富裕&#8221;使日本减少投资；SOMPO推出疫苗接种证明APP
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1638209/)
+## 喜币如果没有支付系统是不完整的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1638269/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-14.png)[图片来源](https://udn.com/)
-**1.****日本被环境组织指责不积极**
+[https://gtv.org/video/id=6183a68badfd99590c32fc49](https://gtv.org/video/id=6183a68badfd99590c32fc49)
 
-[据NHK 11月3日报道，结合正在英国举行的联合国气候变化大会（COP26），一个国际环境非政府组织宣布，它已选择日本作为 “化石奖 “的获奖者，以表彰那些被认为不愿意应对全球变暖的国家。选择日本的理由是，岸田首相在缔约方大会峰会上的讲话 “谈到了促进火力发电站”。它还批评日本政府 “沉迷于使用氨和氢气来产生无碳发电的梦想”，并说 “我们必须明白，这种不成熟和昂贵的技术与开采化石燃料有关”。](https://www3.nhk.or.jp/news/html/20211103/k10013333191000.html?utm_int=all_side_ranking-social_001)
+**郭文贵
+Miles Guo**
 
-**2.习近平的 “共同富裕 “目标可能使日本减少投资中共国**
+这个喜币的支付系统，如果没有提前的筹划和计划
+If this Hcoin payment system is not planned and planned in advance
 
-[据共同社11月3日报道，习近平推动实现 “共同富裕”，旨在缩小国内的收入差距，这引发了日本公司的担忧，即这个人口最多的国家在未来会成为一少有吸引力的市场。在中共国工作的日本商人说，他们对北京目前的政策方向感到失望，这可能会扼杀中国富人的消费和投资，反过来可能会阻碍国家经济的扩大。中国共产党一直在加强对该国IT巨头的监控，以遏制他们的垄断行为和无序的资本扩张，这引发了人们对中国高科技产业的创新将受到阻碍的担忧。](https://english.kyodonews.net/news/2021/11/3f1db2594729-focus-xis-common-prosperity-goal-may-make-japan-loath-to-invest-in-china.html)
+这一块大蛋糕就没了
+this big cake is gone
 
-**3.****日本年轻人中厌食症患者增加60%**
+还有这个喜币没有支付系统，它是不完整的
+Also if Hcoin doesn’t have payment system, it is incomplete
 
-[据共同社 11月3日报道，一项调查显示，在2020年到今年3月，20岁以下28名男孩和230名的女孩被新诊断为饮食失调，都比前一年增长了60%以上。这可能是由于中共病毒大流行期间压力和焦虑的增加。根据国家儿童健康与发展中心上个月发布的调查，尽管患者人数上升，但一些医院缺乏那些病情严重的患者可用的床位。](https://english.kyodonews.net/news/2021/11/3570fc204b39-new-anorexic-patients-up-60-among-young-people-in-japan-amid-covid.html)
+你没有一个金融知识和有一个新中国联邦的国家概念，你不会这么做的
+If you don’t have a financial knowledge and a national concept of the New Federal State of China, you would not do that
 
-**4.****SOMPO公司将提供疫苗接种证明应用程序**
+一个事情的结果, 你能看出一个人的初衷和初心
+From the result of an event, you can see a person’s mind
 
-[据NHK 11月3日报道，大型损害保险公司SOMPO控股公司正在推出一款提供疫苗接种证明应用程序。 该应用程序的目的是防止感染的传播，同时激活经济。该应用程序由SOMPO控股公司开发，可以保存接种后颁发的疫苗接种证书和PCR测试结果，并显示了疫苗接种历史和阴性证明。该公司首先与德岛县合作，计划下周开始提供该应用程序，以验证用户是否能在该县主办的活动中顺利检查其疫苗接种履历。](https://www3.nhk.or.jp/news/html/20211103/k10013333061000.html?utm_int=all_side_business-ranking_003)
+而且这个支付系统未来最重要的就是要战友们在各地去实行代理
+and the most important thing for this payment system in the future is to require comrades in arms to implement agents everywhere
 
-**5.****岸田首相在COP26峰会结束后从英国返回**
+大家一定记住你代理的前提，你不是在各农场的战友是不可能让你代理的
+Everyone must remember the premise of you being an agent, if you are not a comrades in arms of each Farm and it is impossible for you to act as an agent
 
-[据共同社 11月3日报道，包括出席联合国气候变化会议及COP26峰会，岸田首相在完成对英国的一系列访问后，于3日下午返回日本。他在会上提出了在2050年实现碳中和的目标，包括在2030年将温室气体排放量比2013年减少46%。 他还表示愿意向发展中国家提供高达100亿美元的额外援助。岸田首相将于下周10日召开国会特别会议，在被提名为第101任首相后，他将立即举行第二届岸田内阁的就职典礼，该内阁将在本月中旬编制新的经济措施并准备补充预算计划。](https://www3.nhk.or.jp/news/html/20211103/k10013333161000.html?utm_int=news-politics_contents_list-items_001)
+不是谁来都给你代理的，这绝对不是人人都有的机会
+This is not for everyone, the opportunity is absolutely not for everyone
 
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Tagomi
+而且这必须是法治基金的捐款者排第一位
+Donors to the Rule of Law Fund must come first
+
+然后是GTV的老椅子投资者，然后是喜币G|CLUB的投资者
+Then the original investors of GTV, and then the investors of Hcoin and G|CLUB
+
+这是个最基本的常识，就像我当初说的几个月以前
+This is the most basic concept, as I said a few months ago
+
+咱们现在所有GTV的GTV公司拥有喜联储的5%的股份, 盖特的5%的股份
+Now all our shareholders of GTV company own 5% of the shares of the Himalaya Federal Reserve, own 5% stake of Gettr’s
+
+你这是开玩笑吗？兄弟姐妹们，现在想想这是多大的钱，
+are you kidding me? Brothers and sisters, now think about how large amount money this is
+
+就这个概念, 你拿到那个SPAC的公司, 上市得值多少钱
+If our G-TV uses SPAC’ way of going public, How much value will it be?
+
+那么今天已经还差几十个小时咱们喜币就要上市了, 在一个月后就上支付系统了，
+So today, it’s dozens of hours away before our HCoin will be listed
+
+战友们想想你在全世界各地
+Comrades in arms, think about it, you are at all over the world
+
+你有过这样的祖国的概念吗？
+Have you ever had such a concept of the motherland?
+
+你有过和你生命和利益未来相连接的, 这样的希望和这样的机会吗？
+Have you ever had this kind of hope and this kind of opportunity connected to the future of your life and interests?
+
+* * *
+
+Date:11/03/2021
+原视频标题: 喜币如果没有支付系统是不完整的
+Hcoin is incomplete without a payment system
+原视频日期：2021/10/29
+原视频链接 https://gettr.com/post/pfpg3x3c6e
+任务编号：2737
+视频时间段 : 0:00-1:28
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

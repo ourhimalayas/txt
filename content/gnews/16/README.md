@@ -2,33 +2,42 @@
 ---
 
 
-## 昔日“摩托车大王”负债近百亿，13家子公司申破产！
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1638144/)
+## 字节跳动创始人张一鸣卸任董事长
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1638224/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/698812678f594c16a920db2445a34dc2-2.jpg)网络图片
+翻译：西班牙喜悦农场–wenwu
 
-编辑摘要：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1.jpg)据报道，字节跳动创始人张一鸣身价约为 445 亿美元。 彭博新闻
 
-据海西商界11月3日报道，日前，隆鑫控股有限公司“隆鑫系”旗下13家房地产、金融投资、再生资源等行业向重庆法院申请破产。
+据周二（2日）晚间报道，字节跳动（ByteDance Ltd.）创始人张一鸣将在[辞去](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)（5月）TikTok 的[首席执行官](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)的数月后，一并辞去字节跳动的董事长（3日）的位置。
 
-上世纪九十年代，涂建华以摩托车起家。隆鑫摩托车常年位居国产摩托车销量及出口业务的前两位。资产超400亿，涂建华被称为“一代国产摩托车大王”。
+[彭博新闻](https://www.bloomberg.com/news/articles/2021-11-03/bytedance-s-zhang-exits-board-joining-exodus-by-tech-founders?srnd=technology-vp&amp;sref=Oeyjq8by)和[路透社](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)援引熟悉此事的消息人士的话[报道](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)称，字节跳动的首席执行官 Liang Rubo 将接替张先生担任董事长。
 
-因扩张过快，并购规模过大，最终因隆鑫地产爆雷导致隆鑫控股引发连锁的债务危机。隆鑫控股的资产负债率接近70%。截至2019年3月，隆鑫控股总资产459.03亿元，总负债高达319.13亿元。涂建华本人成为被执行人，被限制高消费，且涉及司法案件高达39个。
+周二早些时候，字节跳动宣布了一项将公司重组为六个业务部门的计划。作为重组的一部分，《华尔街日报》报道称，字节跳动[首席财务官](https://www.wsj.com/articles/bytedance-cfo-is-stepping-down-to-focus-on-tiktok-11635885543?mod=Searchresults_pos1&amp;page=1&amp;mod=article_inline) Shou Zi Chew 将卸任，专注于他作为 TikTok 首席执行官的角色。
 
-中共的体制下，没有人是安全的，没有一家企业能长久、良好地运转。
+随着中共国政府[收紧对互联网公司的控制](https://www.marketwatch.com/story/chinas-communist-party-exerting-tighter-control-over-the-countrys-internet-giants-01633320070?mod=article_inline)，38 岁的张是最近一位离开他们创立的公司的中共国亿万富翁。拼多多公司[PDD， +0.12%](https://www.marketwatch.com/investing/stock/PDD?mod=MW_story_quote)的创始人兼董事长 Colin Huang于 [3月](https://www.marketwatch.com/story/pinduoduo-founder-colin-huang-steps-down-from-company-11615997079?mod=article_inline)退出该公司；京东商城[JD， +0.82%](https://www.marketwatch.com/investing/stock/JD?mod=MW_story_quote)的创始人兼董事长刘强东于9月份退出[了公司的](https://www.marketwatch.com/articles/jd-com-says-founder-stepping-back-from-day-to-day-running-of-the-business-51630941420?mod=article_inline)日常管理；快手科技（Kuaishou Technology）联合创始人兼首席执行官 Su Hua 于[上周同样退出了公司](https://www.wsj.com/articles/chinese-video-platform-kuaishou-says-ceo-steps-down-11635529476?mod=article_inline)。
 
-新闻参考链接：[负债近百亿，13家子公司申请破产！昔日“摩托车大王”沦为老赖？](https://k.sina.cn/article_1914706185_72201909001011z36.html?from=finance&amp;kdurlshow=1&amp;sinawapsharesource=newsapp)
+总部位于北京的字节跳动成立于 2012 年，其热门应用 TikTok 每月拥有近 7 亿用户。截至上一轮融资时，私人持有的字节跳动估值为 1400 亿美元，但 [据彭博社报道](https://www.bloomberg.com/news/articles/2021-03-30/bytedance-is-said-valued-at-250-billion-in-private-trades?sref=Oeyjq8by) ，今年早些时候私有估值约为 2500 亿美元。
+
+彭博亿万富翁指数将张先生列为[全球第 31 位最富有的人，](https://www.bloomberg.com/billionaires/profiles/yiming-zhang/?sref=Oeyjq8by)财富价值约为 445 亿美元。
+
+**简评：**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1-1.jpg)图片来源于[禁文网](https://www.bannedbook.org/bnews/bannedvideo/20210908/1620501.html)
+
+**据2021年11月3日《DESCARGITAS》报道，中共国政府将越来越关注富有的科技企业家，许多亿万富翁积累了权力，并影响了威权。**
+
+**阿里巴巴的联合创始人马云一直是被镇压的主要受害者，最近飞离中共国到西班牙度假。自从习近平主席去年阻止了他的在线金融平台蚂蚁金服集团的上市计划后，马云就限制了公开露面（此举曾发生在毛泽东时代）；外国科技公司与雅虎一起退出中共国，本周宣布“由于商业和法律环境变得越来越具有挑战性，离开中共国。”随着新的《数据保护法》于周一（1日）在中共国生效，恰好是雅虎退出中共国的时间，法律规定了私人公司收集个人信息的条件，并制定了如何使用这些信息的规则。**
+
+**最后，向同胞们呼吁不要打疫苗，并且加入新中国联邦大家庭；从喜币上市可见，新中国联邦的实力是实实在在的。**
+
+新闻来源：[marketwatch.com] [ByteDance founder Zhang Yiming steps down as chairman: reports](https://www.marketwatch.com/story/bytedance-founder-zhang-yiming-steps-down-as-chairman-reports-11635909977) | 发布时间：2021年11月2日
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+*发稿：信心的选择*
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
 
  
 

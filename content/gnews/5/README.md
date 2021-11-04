@@ -2,86 +2,22 @@
 ---
 
 
-## 喜币如果没有支付系统是不完整的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1638269/)
+## WHO批准印度新冠疫苗“科瓦克辛”列入紧急使用清单
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1638329/)
 
-[https://gtv.org/video/id=6183a68badfd99590c32fc49](https://gtv.org/video/id=6183a68badfd99590c32fc49)
+韩国天池农场——追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-04-at-19.27.02.jpeg)
+据柏林时事11月3日报道  世界卫生组织(以下简称WHO)3日，批准印度巴拉特生物技术公司生产的疫苗科瓦克辛（COVAXIN）列入世卫组织紧急使用清单(EUL)。
 
-**郭文贵
-Miles Guo**
+到目前为止，WHO已经批准美国、英国、中国和印度开发的疫苗列入世卫组织紧急使用清单里。印度是亚洲第二个获得批准的国家。
 
-这个喜币的支付系统，如果没有提前的筹划和计划
-If this Hcoin payment system is not planned and planned in advance
+WHO指出，该疫苗的有效性约为78%。对18周岁以上人群接种该疫苗，WHO建议第一针剂和第二针剂的间隔为4周。
 
-这一块大蛋糕就没了
-this big cake is gone
+美国产的辉瑞和莫德纳疫苗的长期保存要超低温，而科瓦克辛（COVAXIN）是属于传统灭活疫苗。WHO认为由于其易于储存的特点，它非常适合在中低收入国家使用。
 
-还有这个喜币没有支付系统，它是不完整的
-Also if Hcoin doesn’t have payment system, it is incomplete
+科瓦克辛在印度当局已批准使用，经WHO批准紧急使用，将有可能通过联合采购疫苗国际框架“COVAX”向发展中国家分发疫苗。
 
-你没有一个金融知识和有一个新中国联邦的国家概念，你不会这么做的
-If you don’t have a financial knowledge and a national concept of the New Federal State of China, you would not do that
-
-一个事情的结果, 你能看出一个人的初衷和初心
-From the result of an event, you can see a person’s mind
-
-而且这个支付系统未来最重要的就是要战友们在各地去实行代理
-and the most important thing for this payment system in the future is to require comrades in arms to implement agents everywhere
-
-大家一定记住你代理的前提，你不是在各农场的战友是不可能让你代理的
-Everyone must remember the premise of you being an agent, if you are not a comrades in arms of each Farm and it is impossible for you to act as an agent
-
-不是谁来都给你代理的，这绝对不是人人都有的机会
-This is not for everyone, the opportunity is absolutely not for everyone
-
-而且这必须是法治基金的捐款者排第一位
-Donors to the Rule of Law Fund must come first
-
-然后是GTV的老椅子投资者，然后是喜币G|CLUB的投资者
-Then the original investors of GTV, and then the investors of Hcoin and G|CLUB
-
-这是个最基本的常识，就像我当初说的几个月以前
-This is the most basic concept, as I said a few months ago
-
-咱们现在所有GTV的GTV公司拥有喜联储的5%的股份, 盖特的5%的股份
-Now all our shareholders of GTV company own 5% of the shares of the Himalaya Federal Reserve, own 5% stake of Gettr’s
-
-你这是开玩笑吗？兄弟姐妹们，现在想想这是多大的钱，
-are you kidding me? Brothers and sisters, now think about how large amount money this is
-
-就这个概念, 你拿到那个SPAC的公司, 上市得值多少钱
-If our G-TV uses SPAC’ way of going public, How much value will it be?
-
-那么今天已经还差几十个小时咱们喜币就要上市了, 在一个月后就上支付系统了，
-So today, it’s dozens of hours away before our HCoin will be listed
-
-战友们想想你在全世界各地
-Comrades in arms, think about it, you are at all over the world
-
-你有过这样的祖国的概念吗？
-Have you ever had such a concept of the motherland?
-
-你有过和你生命和利益未来相连接的, 这样的希望和这样的机会吗？
-Have you ever had this kind of hope and this kind of opportunity connected to the future of your life and interests?
-
-* * *
-
-Date:11/03/2021
-原视频标题: 喜币如果没有支付系统是不完整的
-Hcoin is incomplete without a payment system
-原视频日期：2021/10/29
-原视频链接 https://gettr.com/post/pfpg3x3c6e
-任务编号：2737
-视频时间段 : 0:00-1:28
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[参考新闻](https://news.yahoo.co.jp/articles/1b4e2c74e243dbd5ef46f9ada722cad7b18916bb)
 
  
 

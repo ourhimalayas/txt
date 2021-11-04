@@ -2,20 +2,33 @@
 ---
 
 
-## 接种和未疫苗的人会一样传播 Delta 变体
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1638076/)
+## 昔日“摩托车大王”负债近百亿，13家子公司申破产！
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1638144/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11031-2.jpg)图片来自路透社
-发表在《柳叶刀》小组的传染病医学杂志上的一项研究表明疫苗保护的局限性：接种了双剂量新冠疫苗并感染了冠状病毒 delta 变体的个人与未接种疫苗的人有着非常相似的传播疾病的速度。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/698812678f594c16a920db2445a34dc2-2.jpg)网络图片
 
-在英国进行的为期一年的研究共监测了 621 名出现新冠病毒症状的人，研究人员得出结论：感染 delta 变体的接种疫苗个体的感染率为 25%，而未接种疫苗的个体感染率为 38%。当你去看家庭接触者时，这两个指数更接近，其中接种疫苗但有症状的受试者的感染率为 25%，而未接种疫苗的受试者为 23%。
+编辑摘要：
 
-研究人员在他们的结论中明确表示：“尽管目前的疫苗在预防新冠病毒引起的严重疾病和死亡方面仍然有效，但结果表明，单独接种疫苗不足以防止 delta 变体在家庭环境中的传播”。
+据海西商界11月3日报道，日前，隆鑫控股有限公司“隆鑫系”旗下13家房地产、金融投资、再生资源等行业向重庆法院申请破产。
 
-原文链接：[https://europa.today.it/attualita/vaccinati-trasmettono-variante-delta-come-non-vaccinati.html#\_ga=2.75835285.1002968678.1635926454-145009575.1615972944](https://europa.today.it/attualita/vaccinati-trasmettono-variante-delta-come-non-vaccinati.html#_ga=2.75835285.1002968678.1635926454-145009575.1615972944)
+上世纪九十年代，涂建华以摩托车起家。隆鑫摩托车常年位居国产摩托车销量及出口业务的前两位。资产超400亿，涂建华被称为“一代国产摩托车大王”。
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+因扩张过快，并购规模过大，最终因隆鑫地产爆雷导致隆鑫控股引发连锁的债务危机。隆鑫控股的资产负债率接近70%。截至2019年3月，隆鑫控股总资产459.03亿元，总负债高达319.13亿元。涂建华本人成为被执行人，被限制高消费，且涉及司法案件高达39个。
+
+中共的体制下，没有人是安全的，没有一家企业能长久、良好地运转。
+
+新闻参考链接：[负债近百亿，13家子公司申请破产！昔日“摩托车大王”沦为老赖？](https://k.sina.cn/article_1914706185_72201909001011z36.html?from=finance&amp;kdurlshow=1&amp;sinawapsharesource=newsapp)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

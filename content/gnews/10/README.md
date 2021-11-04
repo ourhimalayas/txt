@@ -2,57 +2,27 @@
 ---
 
 
-## 视频| 青蒿素是中国送给世界的礼物
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1638219/)
+## 欧盟委员会主席冯德莱恩的47公里的公务飞行
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1638273/)
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+新闻来源：德国世界报网页版
 
-制作：香草山视频部
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-
-
-当世界仍然受到新冠病毒浪潮的威胁时，人们注意到一些权威人士并不总是像他们所宣扬的那样一直戴着口罩。部分原因可能是因为他们得到了某种特殊待遇，从而使他们免受影响。据悉，中共官员已经获得了某种解药，可以治疗Covid-19病毒。因此，在这些享有特权的少数人中从未有Covid-19感染的报道。如果有解毒剂，那不是很好吗？如果有的话，谁有，普通人什么时候能有呢？在郭先生8月30日的直播中，他向世界揭开了这个谜团–是的，有一种Covid-19的解药，名字叫青蒿素。而中国共产党拥有它，并一直向世界隐瞒这个秘密。
-
-**什么是青蒿素？ 青蒿素的历史**
-
-青蒿素是屠呦呦女士在1972年发现的，经过几十年的努力，她一直在寻找治疗寄生虫病的方法。这一成就对人类意义重大，屠呦呦女士于2015年10月5日被瑞典卡罗林斯卡学院授予诺贝尔医学奖。
-
-青蒿素及其半合成衍生物是一组用于治疗疟疾的药物。青蒿素是一种从青蒿中提取的抗疟内酯。
-
-中国人知道这种植物的药用价值至少有两千年的历史。该属的名称来自希腊神话中的阿尔特弥斯女神，更确切地说，可能是以公元前四世纪的植物学家和医学研究者–迦里亚女王阿尔特弥斯二世命名。
-
-屠呦呦女士认为这本书中的一个提示是她的灵感来源，即《急诊处方手册》，描述了基于传统中草药的临床研究，由葛洪写于公元340年。它记录了从青蒿这种草药中提取的一个关键提示 – 该草药应浸泡在冷水中。”用两升水浸泡一把清荷，拧出汁液，然后全部喝掉。” 屠呦呦女士一直在孜孜不倦地寻找青蒿素，直到这次发现，她深有体会地说：”青蒿素是中国传统医学送给世界的礼物’。
-
-**青蒿素的用途是什么？**
-
-2021年8月30日，郭文贵先生向世人揭开了一个秘密：青蒿素是抵御Covid-19的最佳药物，可以减少或中和Covid-19疫苗接种引起的一系列副作用。它可以作为Covid-19的解药。
-
-根据郭先生在东京奥运会前获得的情报，按照计划，中共为所有中国运动员使用了青蒿素片/丸和青蒿素喷雾剂。因此，中国的运动员和最有特权的党内高级官员获得了对Covid-19的免疫。目前，市场上只有青蒿素片剂，喷雾剂尚未上市。
-
-显然，郭先生的直播在药店市场上掀起了一场大风暴–在他的惊人披露之后的一个多小时内，青蒿素的价格在全世界的在线市场上飙升，然后 “售罄 “的标志被全面挂起。
-
-参考资料：
-[https://gnews.org/1507678/](https://gnews.org/1507678/https://gnews.org/1513216/https://gnews.org/1501326/)
-[https://gnews.org/1513216/](https://gnews.org/1507678/https://gnews.org/1513216/https://gnews.org/1501326/)
-[https://gnews.org/1501326/](https://gnews.org/1507678/https://gnews.org/1513216/https://gnews.org/1501326/)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Uebergabe-A319-Missionsflugzeug-an-die-Bundeswehr.jpg)
 
 
+图片来源： 德新社
 
-*发稿：雪梨*
+在空中飞行 19 分钟，而不是在轨道上行驶一个小时。由于欧盟委员会主席乌尔苏拉·冯德莱恩乘坐私人飞机完成了从维也纳到布拉迪斯拉发的短途路程，因此受到强烈的批评和嘲讽。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+当欧盟委员会主席乌尔苏拉·冯德莱恩 (CDU) 谈到气候保护时，使用了“先驱角色”和“铁路年”等词。就在最近，在格拉斯哥气候峰会开始时，冯德莱恩谈到了影响每个人的气候保护责任。 “我们全世界的人都必须走做得更多。 ”
 
-**更多资讯，更多关注**
+然而，在 6 月 21 日，冯德莱恩乘坐私人飞机从维也纳飞到了斯洛伐克首都布拉迪斯拉发——尽管这两个机场相距仅 47 公里，因为乌鸦飞行。乘坐火车将花费冯德莱恩一小时七分钟。尽管如此，她还是决定在空中飞行 19 分钟。这次旅行造成了大约 1130 公斤的二氧化碳。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+原文链接：[https://www.welt.de/politik/ausland/article234830514/Privatjet-fuer-47-Kilometer-Kritik-an-EU-Kommissionschefin-von-der-Leyen.html](https://www.welt.de/politik/ausland/article234830514/Privatjet-fuer-47-Kilometer-Kritik-an-EU-Kommissionschefin-von-der-Leyen.html)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+责任编辑、发布： Shuizhuyu
 
  
 
