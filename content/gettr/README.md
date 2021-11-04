@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/4/2021 1:52 PM (UTC)`
+
+11/1/2021 【HCoin to The Moon庆典】喜交所上市倒计时<br/><br/>11/1/2021 【HCoin To the Moon Celebration】 Countdown to the launch of Himalaya Exchange<br/>
+![img](https://media.gettr.com/group20/getter/2021/11/04/13/52/9a854503-d8d6-eda2-1d8b-4b15651dae04/out.jpg)
+
+---
+
+`@miles 11/4/2021 1:47 PM (UTC)`
+
+11/1/2021 【HCoin to The Moon庆典】喜交所CEO Jesse Brown：喜交所的目标是创建一个系统，让您实现财务自由支配和对自己的财富拥有主权<br/><br/>11/1/2021 【HCoin To the Moon Celebration】 Jesse Brown, CEO of Himalaya Exchange: The aim of the HIMALAYA EXCHANGE is to create a system that enables financial freedom and sovereignty over your own money.<br/>
+![img](https://media.gettr.com/group48/getter/2021/11/04/13/258e0f52-ff6a-b6d8-01c7-c1fc118bc323/out.jpg)
+
+---
+
 `@miles 11/4/2021 11:55 AM (UTC)`
 
 11月4号，尊敬的战友们好！你们健身了吗？传播CCP病毒，香港灾难和疫苗解药的真相了吗？一切都已经开始！
@@ -280,20 +294,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 11/1/2021 【HCoin To the Moon Celebration】Peter Navarro’s book “In Trump Time” confirms the critical intelligence from Miles Guo on the CCP virus. The book is approved by the National Security Council. US Congress will request declassification of related documents on the CCP bioweapon.<br/><br/>11/1/2021【HCoin To the Moon 庆典】纳瓦罗新书《川普时间》证明郭文贵先生提供了中共病毒的关键情报。该书被美国国家安全委员会批准。美国会未来会要求解密关于中共生物武器的机密文件。
 ![img](https://media.gettr.com/group35/getter/2021/11/01/19/59/9c838b65-bfe6-0b6f-daf8-ef130f91dc13/out.jpg)
-
----
-
-`@miles 11/1/2021 5:34 PM (UTC)`
-
-11/1/2021 [HCoin To the Moon Celebration]：The Chinese Communist Party’s so-called senior cadres always pretend they know everything by brainwashing others and crashing others’ confidence to achieve their ultimate goal to fool and cheat their own people<br/><br/>11/1/2021【HCoin To the Moon 庆典】： 中共所谓的领导在外都装神弄鬼，利用洗脑和愚民政策欺骗老百姓！
-![img](https://media.gettr.com/group30/getter/2021/11/01/17/34/6e350814-4788-196b-cdf3-d5f856d97fe3/out.jpg)
-
----
-
-`@miles 11/1/2021 5:12 PM (UTC)`
-
-1 Nov 2021 Himalaya Exchange is able to withstand hacking at 1.6 billion times/sec. Peter Navarro wrote in his book that Trump issued the travel ban based on Miles Guo’s intelligence on the CCP virus.<br/><br/>11/1/2021 喜马拉雅联储能耐受每秒16亿次骇客攻击；纳瓦罗在其新书中写道：川普总统发出旅行禁令，是因为听取了郭文贵先生关于中共病毒的情报。
-![img](https://media.gettr.com/group17/getter/2021/11/01/17/12/568443e6-d2f5-7079-d10d-31d2c05de9a1/out.jpg)
 
 ---
 
