@@ -2,44 +2,32 @@
 ---
 
 
-## 2021/11/03墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1638452/)
+## 有声|#FauciLiedDogsDied成热搜 “虐狗实验”持续发酵
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1638516/)
 
-一、   11月2日，浙江省杭州市上城区南宋皇城遗址凤凰山脚路东面，大量军车运输坦克等装备！
+配音：香草山美食部 – 玫瑰园
 
-二、  10月29日，江西东乡收费站，收费员的眼睛瞎了，硬说白菜不属于青菜。不给放行。
+两天前非营利组织“白衣废物”就福奇所在的NIH资助了一项残酷的幼犬实验进行了指控。此事在社交媒体引发了巨大的反响。#FauciLiedDogsDied 成为推特热搜。
 
-三、  2021年10月30日，北京市朝阳吉庆里小区，天安门故宮前门也开始做核酸 。
+该项实验旨在以幼犬作为诱饵吸引有传染性的沙蝇叮咬，感染后注射实验药物以查验有效程度。实验过程中细节的描述因过于残忍引起网民的强烈不适，而这种生理及心理的不适超越了左右之分。
 
-四、   近日忻州原平，一小学惊现“等级划分”，领导子女、权势垄断部门子女、也要分清楚？
+佛州州长德桑蒂斯说，这是“难以想象和令人厌恶”的，纳税人的钱不能被这样使用，福奇必须要承担责任。众议员泰勒·格林发起了一个国会请愿书，她说资助虐狗实验和中共生物武器杀死几百万人的最高薪酬联邦雇员需要被解雇。在这条推特热搜下，左翼人士同样心有余悸。有人留言：幸亏我的狗很安全！
 
-五、  11月1日，广东广州，村经营一年停车收入约740余万，村民质疑围村收费合法性。
+美国文化中，狗是重要的家庭成员。这次爆出的“虐狗”丑闻，在社交媒体持续发酵，有望撼动福奇在科学、医疗界坚不可摧的地位。
 
-六、  11月1日，广东肇庆，一货车司机在服务区休息时，担心油被偷睡在油箱上。
+文字版原文：[#FauciLiedDogsDied成热搜 “虐狗实验”持续发酵](https://gnews.org/zh-hans/1635974/)
 
-七、  货车司机在加油站调头，员工找司机要一包烟，否则不让走。
+音频处理：喜山必胜Maverick
 
-八、   昆明绝症老人蜗居在儿子家门口半个月，儿子声称父亲有偏激行为，已断绝关系。
-
-九、  10月31日，长春患癌老太，杀害丈夫后点燃了房子。派出所称是因为不想把家产留给老头，目前该女子已被控制。
-
-十、  10月31日 贵州贵阳，恒大中央公园合同法定交房日期已逾期，工地依然处于停工状态，业主收房遥遥无期。
-
-十一、  11月1日 陕西西安，西安莲湖大唐医院被曝过度医疗 多人普通检查后被手术花费上万。
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

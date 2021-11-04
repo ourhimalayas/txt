@@ -2,71 +2,30 @@
 ---
 
 
-## 西喜时事新闻简报 — 美国时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1638493/)
+## 美国防部：中共国核弹量可于2030年达千枚
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1638585/)
 
-**编译：西班牙巴塞罗那喜悦农场-wenwu**
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-12.jpg)
+[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.dw.com%2Fimage%2F59518387_303.jpg&amp;imgrefurl=https%3A%2F%2Fwww.dw.com%2Fzh%2F%25E6%2581%2592%25E5%25A4%25A7%25E5%258D%25B1%25E6%259C%25BA%25E5%2587%25BA%25E5%2594%25AE%25E9%2583%25A8%25E5%2588%2586%25E8%2582%25A1%25E6%259D%2583%25E7%25A0%25B4%25E5%25B1%2580-%25E4%25B8%25AD%25E5%259B%25BD%25E7%25A7%25B0%25E9%25A3%258E%25E9%2599%25A9%25E5%258F%25AF%25E6%258E%25A7%2Fa-59569138&amp;tbnid=k84sdE0mqZZaCM&amp;vet=12ahUKEwiv7dDbovbzAhXITPUHHTcaBcIQMygKegUIARCzAQ..i&amp;docid=eW-6voN23xKetM&amp;w=700&amp;h=394&amp;q=%E6%81%92%E5%A4%A7%E5%80%BA%E5%8A%A1%E6%98%AF%E6%9B%B4%E5%A4%A7%E7%BB%8F%E6%B5%8E%E5%8D%B1%E6%9C%BA%E7%9A%84%E5%89%8D%E5%A5%8F&amp;ved=2ahUKEwiv7dDbovbzAhXITPUHHTcaBcIQMygKegUIARCzAQ)
 
-您若想了解全文报导内容，请点击标题链接
+在周三 (11月3日) 公布的中共国军力报告中，美国国防部修订了过去对中共国核武库的估计。修订后的中共国核弹头数量是一年前预想的两倍多。五角大楼在报告中称，中共国正在扩大其核武库中的核弹头数量，其速度远远超过美国国防部一年前的预测。
 
-（喜联储挂钩美元、喜市代替股市）
+报告发现，中共已经扩大并加快了其军事武器库的升级速度。五角大楼在报告中称，它认为中共国到2030年可以将其核武库中的核弹头数量增加到1000枚，但报告中并无披露中共国目前拥有的数量。一年前，美国国防部曾预测中共国拥有约200枚核弹头，到2030年这一核武库的规模可能会增加一倍。
 
-1. [Steve Cortes:美国2020年总统大选的投票是无效的](https://www.thegatewaypundit.com/2021/11/steve-cortes-reveals-new-truth-hijacked-2020-election-2020-presidential-vote-not-valid/)
+美国国防部还认为，中共国可能已拥有被称为核三位一体的运载系统机制，用于从空中、陆地和海上发射核弹，美国和俄罗斯已经拥有这项技术长达几十年了。 不过，华盛顿评估认为，中共国不太可能对美国这样的核武大国发动无端的核战争。相反，国防部认为，中共国正在建立其能力，以建立可信的威慑力，并以可信的核毁灭威胁来吓唬其对手。该报告也指出，中共开始建造至少三个新的导弹场，这些导弹场可以累计包含数百个地下发射井，可以发射洲际弹道导弹（ICBM）。美国国防部也提到了中共国众所周知的DF-17中程弹道导弹的测试，该导弹具有高超音速滑翔器，可以躲避美国的导弹防御技术。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip124.png)
+该报告是基于美国国防部到2020年所收集的信息，没有提到上个月参谋长联席会议主席米利将军（Mark Milley）对中共国今年夏天进行的高超音速武器试验表示的担忧。在周三报告发布前不久，米利在阿斯彭安全论坛 (Aspen Security Forum) 上说，中共国的高超音速导弹试验和其他进展证实了国际社会所面临的危险。他说：“我们正在目睹全球和地缘战略力量的最大转变之一。”
 
-据《门户网》2021年11月3日电，在假新闻和社交媒体巨头的协助下，民主党人和沼泽地从唐纳德·川普总统和共和党人手中偷走了一场历史性的压倒性（2020年）大举。其中，宾夕法尼亚州是最令人印象深刻的”胜利”（窃取了79.5万张领先票）。
+拜登政府目前正在对美国的核政策进行全面审查，目前其政府还没有透露对中共国的担忧会如何影响美国的核政策，尽管预计拜登政府会对美国、英国和澳大利亚的协议推出进一步的计划。美国国防部指出，随着中共国努力增强其在所有领域，即空中、陆地、海上、太空和网络空间的力量，核问题远不是解放军热衷于测试美国的唯一领域。国防部担心，中共国希望发展的海外基地有一天会“干扰”美国的军事行动，甚至可能支持针对美国的军事行动。
 
-周三（3日），Newsmax主持人Steve Cortes讨论了2020年的选举：”第14修正案的平等保护[条款](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%88%A9%E5%9D%9A%E5%90%88%E4%BC%97%E5%9B%BD%E5%AE%AA%E6%B3%95%E7%AC%AC%E5%8D%81%E5%9B%9B%E6%9D%A1%E4%BF%AE%E6%AD%A3%E6%A1%88)遭到了大规模的违反。你不能让投票日的川普选民接受与邮寄选民完全不同的、更严格的标准。这是2020年总统投票无效的主要原因之一。”
+信息来源：
 
-2. [爆炸性新闻：民主党在新泽西州州长选举中耍花招](https://www.thegatewaypundit.com/2021/11/breaking-democrat-tricks-new-jersey-governors-race-republican-winning-largest-county-100-votes-counted-vote-flips-democrat-miraculously-wins-county/)
+[美国防部：中国核弹量可于2030年达千枚](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD%E9%98%B2%E9%83%A8%E4%B8%AD%E5%9B%BD%E6%A0%B8%E5%BC%B9%E9%87%8F%E5%8F%AF%E6%96%BC2030%E5%B9%B4%E8%BE%BE%E5%8D%83%E6%9E%9A/a-59714950)
 
-据《门户网》2021年11月3日电，在昨晚(2日）新泽西州州长竞选中，共和党人Jack Ciattarelli在该州最大的县–Bergen County领先现任民主党州长PhilMurphy。 然后事情奇迹般地发生了变化，这个推文中的[视频](https://twitter.com/NewDayForNJ/status/1455886115039326208?s=20)（如上图）对此作了描述。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip125.png)
-
-在该州83%的选票统计中，共和党人Jack Ciattarelli在全州范围内领先4.2万票。 此时，新泽西州最大的县–Bergen County声称100%选票已经报到了，尘埃落定后Jack Ciattarelli赢得52%的选票；几分钟后，随着87%的选票被计入，Bergen County的结果发生了变化，据报道，Phil Murphy突然在该县以51%的票数领先；Jack Ciattarelli在该州的4.2万张选票此时也缩减为1600张的领先优势…
-
-3.[VA共和党人不仅赢得了全州范围的大型竞选，还从民主党手里夺走了七个众议院席位](https://www.thegatewaypundit.com/2021/11/virginia-not-wins-big-statewide-races-house-also-turns-red-gains-seven-seats-democrats/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip126.png)
-
-据《门户网》2021年11月3日电，弗吉尼亚州于周二晚上在选举结果中显示，把拜登的疯狂政策和行动踢到一边，跳上了MAGA运动；弗吉尼亚州的共和党人不仅有史以来第一次在竞选拿下了州长、总检察长和副州长，而且还赢得了众议院的选举。
-
-弗吉尼亚州的众议院也变红了。共和党占据了所有席位，从民主党手中抢走了7个席位。这使他们在弗吉尼亚众议院比民主党多了 2 票。
-
-4. [已接种疫苗的洛杉矶市长 Garcetti 中共病毒检测呈阳性，进入隔离状态](https://www.thegatewaypundit.com/2021/11/fully-vaccinated-la-mayor-garcetti-tests-positive-covid-goes-isolation/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip128.png)
-
-据《门户网》2021年11月3日电，已接种疫苗的洛杉矶市长埃里克·加塞蒂 (Eric Garcetti) 周三（3日）检测出中共病毒呈阳性，并被隔离；Garcetti 还关闭了违反封锁令的住宅居民的水电，他怕死却有了中共病毒。
-
-5. [佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）成立选举诚信执法办公室](https://www.thegatewaypundit.com/2021/11/florida-governor-ron-desantis-holds-presser-announces-new-law-enforcement-office-election-integrity/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip129.png)
-
-据《门户网》2021年11月3日电，佛罗里达州州长 Ron DeSanitis 今天（3日）上午在棕榈滩举行了发布会，宣布成立一个新的选举诚信单位来解决大选中舞弊的问题：建立一个全州执法办公室，以调查和起诉选举犯罪和欺诈行为；违反新的“选票收集”法的处罚从轻罪增加到三级重罪；收集选票的人需要向全州选票执法办公室上报自己的工作。
-
-经济衰退是指你的邻居失去了工作。 萧条是指你失去你的工作。 经济复苏是当福奇医生失去他在白宫的工作时。 他一次又一次地犯错。他的大流行政策已经损害了数千万人的利益。 我们知道美国国立卫生研究院一直在做的事情，是对动物的虐待，他们对这些比格犬和这些小狗所做的事情。 我很抱歉，我们的税款不应该用于此。
-
-佛州州长在[15:10](https://cbsloc.al/2ZPnD7A)分时称 “拜登，布兰登政府”（the Biden, the Brandon Administration ），人群中爆发出”让布兰登走”（Let’s Go Brandon）的欢呼。
-
-6. [五角大楼在新报告中称，中共国正在迅速扩大其核武库](https://www.cnbc.com/2021/11/03/china-is-rapidly-expanding-its-nuclear-arsenal-pentagon-says.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip131.png)
-
-据《CNBC》2021年11月3日电，五角大楼周三表示，中共国正在迅速扩大其核武库，到 2030 年可能拥有1千枚核弹头（美国库存大约有3750枚），这是北京雄心勃勃的军事建设的一部分；中共国拥有“一系列针对台湾的军事行动的选择”，包括潜在的空中和海上封锁以进行全面的两栖入侵。
-
-[习近平在10月8日的讲话中说：](https://www.cnbc.com/2021/10/09/china-president-xi-jinping-on-reunification-with-taiwan.html) “祖国完全统一的历史任务必须完成，一定会完成。”而周三早些时候，美国参谋长联席会议主席、美国陆军上将马克·米利在阿斯彭安全论坛上说： “根据我对中共国的分析，我认为在不久的将来不太可能。”
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
-
-
-
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

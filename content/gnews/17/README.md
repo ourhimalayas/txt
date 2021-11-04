@@ -2,25 +2,31 @@
 ---
 
 
-## 有声|#FauciLiedDogsDied成热搜 “虐狗实验”持续发酵
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1638516/)
+## 郭文贵先生11月3日大直播的三个要点
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1638610/)
 
-配音：香草山美食部 – 玫瑰园
+作者：香草山农场教育部-晓仙女
 
-两天前非营利组织“白衣废物”就福奇所在的NIH资助了一项残酷的幼犬实验进行了指控。此事在社交媒体引发了巨大的反响。#FauciLiedDogsDied 成为推特热搜。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-该项实验旨在以幼犬作为诱饵吸引有传染性的沙蝇叮咬，感染后注射实验药物以查验有效程度。实验过程中细节的描述因过于残忍引起网民的强烈不适，而这种生理及心理的不适超越了左右之分。
+11月3日，郭文贵先生在《文贵大直播》节目中提及了三个要点：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-25.jpg)
+第一，前网球选手彭帅在微博平台发帖爆料，中共前国务院副总理张高丽曾多次强迫其与之发生性关系，并威胁其保守秘密。这一事件也可对应郭文贵先生自2017年起的爆料，即中共常委强奸处女，玩弄幼女等变态行径的事实。
 
-佛州州长德桑蒂斯说，这是“难以想象和令人厌恶”的，纳税人的钱不能被这样使用，福奇必须要承担责任。众议员泰勒·格林发起了一个国会请愿书，她说资助虐狗实验和中共生物武器杀死几百万人的最高薪酬联邦雇员需要被解雇。在这条推特热搜下，左翼人士同样心有余悸。有人留言：幸亏我的狗很安全！
+第二，在国内房地产债务集中爆雷之际，中共对居民住房征收房产税，这是既灭党，又灭国的祸国殃民之举。中共于此内忧外困的多事之秋，向没有土地产权的中国劳苦百姓征收所谓“房产税”，旨在拼死挣扎、苟延残喘，但结果只会“党国双亡”。
 
-美国文化中，狗是重要的家庭成员。这次爆出的“虐狗”丑闻，在社交媒体持续发酵，有望撼动福奇在科学、医疗界坚不可摧的地位。
+第三，喜币成功上市的时间点至关重要——这与当下的世界政治变局有着千丝万缕的联系。爆料革命引领的灭共事业已深入地影响了全球政治、经济和军事的各个方面。
 
-文字版原文：[#FauciLiedDogsDied成热搜 “虐狗实验”持续发酵](https://gnews.org/zh-hans/1635974/)
+详细内容，我们会在节目中持续跟进解读。
 
-音频处理：喜山必胜Maverick
+参考链接：
 
-发稿：Tom Li
-![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+[2021年11月03 日 文贵大直播：彭帅爆张高丽丑闻，再次验证爆料革命的真实性](https://gtv.org/video/id=61827dfd11d186296800dd83)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编：Irene木木
+编辑：Zion文恩
+校正/发稿：Fei797
+
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

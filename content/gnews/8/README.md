@@ -2,40 +2,36 @@
 ---
 
 
-## 从宇宙本质看喜币
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1638587/)
+## 喜币与股票的本质区别
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1638718/)
 
-作者: JuvenGuo
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Hcoin_02_01112021.jpg)
-世界翘首以盼的喜马拉雅交易平台（Himalaya Exchange）与喜马拉雅币（Himalaya Coin）于2021年11月1日隆重上市了！
+作者：纽约香草山文艺部 – 宁文静
 
-文贵先生在喜币发布庆典现场谈到一个观点：无论是货币还是法币，大部分都是存起来沉淀的资金，真正拿出来用的只是很少的一部分。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-以氢原子为例，如果从体积的角度来看，氢原子核中的质子，只占氢原子核体积的极小的一部分，而氢原子核同样只占原子体积的极小的一部分；如果从质量上比较，结果则恰恰相反，质子占原子核总质量的百分之九十九以上，原子核也占原子总质量的百分之九十九以上。
+在11月3日的大直播中，郭文贵先生指出了喜币与股票的本质区别。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-13.jpg)
+股票是上市公司分配的公司所有权，通过向股东派发股利或股息，分享公司成长或市场波动带来的利润，同时承担公司运作风险。股票不能流通，但可以增发，其价值体现在市值，是对公司盈利能力的期望。
 
-再以恒星为例，恒星整个寿命中，发生核聚变所燃烧掉的质量只占恒星总质量中极小的比例。
+而喜币的上市，宣告了喜联储的正式成立。喜币的盈利额有20%的黄金锚定，其价值直接取决于贵金属。至于喜币涨跌的曲线，则是将来向喜银行申请贷款的重要依据。加之喜币将会每年固定发行10亿个，因此喜币的市值并不按照此时此刻的流通市价来计算，而是整个喜币系统的估值。更重要的是，喜币可以24小时在线交易，无国界流通。
 
-喜币中的稳定币、浮动币既有百分之二十黄金作为储备，未来又有喜美元、喜日元等与各国法币或者其他货币挂钩，就像原子中的电子跳跃和其他原子形成各种化合物。
+另外，喜联储代表的是新中国联邦的铸币权，这决定了喜币与其它加密货币和股票的本质区别。而即将上线的“喜支付”，更将彻底改变现有的结算方式，实现真正的自由贸易。
 
-文贵先生所阐述的货币原理，与原子、恒星原理相通。喜币本就是一个符合宇宙本质的金融系统，将会在相当长的时间里伴随人类走出地球牢笼，融入星际文明。
+参考链接：
 
-***校对**:仙女儿-文善*
+[喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产](https://gtv.org/video/id=61827dfd11d186296800dd83)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编：Irene木木
+编辑：Zion文恩
+校正/发稿：Fei797
 
-***审核**: 文明明*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

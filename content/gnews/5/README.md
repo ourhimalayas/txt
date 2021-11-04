@@ -2,21 +2,17 @@
 ---
 
 
-## 美国前美国国务卿迈克.蓬佩奥接受福克斯采访：美国价值正在回归
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1638616/)
+## 西媒头条 — 第102期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1638742/)
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-04-091705-edited.png)图片来源：网络
-美国前美国国务卿迈克.蓬佩奥接受福克斯采访：美国价值正在回归。
+**制作：蚂蚁兄弟**
 
-蓬佩奥说，昨天的竞选与美国价值观有关，这是关于我们在美利坚合众国的生活方式，美国人正在收复他们的国家。
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/xm1104.001.jpeg)
+***发稿：信心满满***
 
-新闻来源：[11.3.21 Mike On Fox And Friends – YouTube](https://www.youtube.com/watch?v=zKLz9wQWc_4)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
 
-编辑/发布：LILY
-
-20211104
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 
 
  
