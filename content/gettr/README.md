@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/4/2021 2:05 PM (UTC)`
+
+11/1/2021 【HCoin to The Moon庆典】喜交所CEO Jesse Brown：尽管面临挑战，我们已经为世界建立了一个新的金融体系<br/><br/>11/1/2021 【HCoin To the Moon Celebration】 CEO of Himalaya Exchange Jesse Brown: Despite the challenges, we have established a new financial system for the world <br/>
+![img](https://media.gettr.com/group23/getter/2021/11/04/14/05/9be45d9a-4195-0569-b1f0-6d1af74078a7/out.jpg)
+
+---
+
 `@miles 11/4/2021 1:52 PM (UTC)`
 
 11/1/2021 【HCoin to The Moon庆典】喜交所上市倒计时<br/><br/>11/1/2021 【HCoin To the Moon Celebration】 Countdown to the launch of Himalaya Exchange<br/>
@@ -287,13 +294,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 11/1/2021 【HCoin To the Moon Celebration】With our own free wealth, we then have the power and the voice to protect ourselves and families, this is the meaning of the New Federal State of China<br/><br/>11/1/2021【HCoin To the Moon 庆典】我们拥有了自己的自由财富，才拥有了保护自己和家人的力量和话语权，这就是新中国联邦的意义
 ![img](https://media.gettr.com/group14/getter/2021/11/01/20/22/44ca31bf-2088-fafd-3224-dcba23d4b187/out.jpg)
-
----
-
-`@miles 11/1/2021 7:59 PM (UTC)`
-
-11/1/2021 【HCoin To the Moon Celebration】Peter Navarro’s book “In Trump Time” confirms the critical intelligence from Miles Guo on the CCP virus. The book is approved by the National Security Council. US Congress will request declassification of related documents on the CCP bioweapon.<br/><br/>11/1/2021【HCoin To the Moon 庆典】纳瓦罗新书《川普时间》证明郭文贵先生提供了中共病毒的关键情报。该书被美国国家安全委员会批准。美国会未来会要求解密关于中共生物武器的机密文件。
-![img](https://media.gettr.com/group35/getter/2021/11/01/19/59/9c838b65-bfe6-0b6f-daf8-ef130f91dc13/out.jpg)
 
 ---
 
