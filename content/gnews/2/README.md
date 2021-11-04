@@ -2,10 +2,10 @@
 ---
 
 
-## 喜币将成为人类上共同认可的捍卫正义的力量，越走越远
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639225/)
+## 澳洲正坠入里根《选择的时刻》演讲中警告的极权主义国家
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639238/)
 
-11/1/2021 【HCoin to The Moon庆典】喜币会成为人类上大家共同认可的捍卫正义的力量，越走越远。
+10/30/2021 天空新闻Alan Jones评论痛斥澳洲正在堕落为极权主义国家，让人联想到里根几十年前的著名演说。里根的警告正在西方成为现实。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

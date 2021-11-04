@@ -2,11 +2,10 @@
 ---
 
 
-## 郭文贵：喜马拉雅联储能耐受每秒16亿次骇客攻击
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639123/)
+## 纳瓦罗新书《川普时间》证明郭文贵提供中共病毒关键情报
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639143/)
 
-11/1/2021【HCoin To the Moon 庆典】郭文贵先生：喜马拉雅联储能耐受每秒16亿次骇客攻击；
-纳瓦罗新书称：川普总统发出旅行禁令，是因为听取郭先生关于中共病毒的情报。
+11/1/2021【HCoin To the Moon 庆典】纳瓦罗新书《川普时间》证明郭文贵提供了中共病毒的关键情报。该书被美国国家安全委员会批准。美国会未来会要求解密关于中共生物武器的机密文件。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

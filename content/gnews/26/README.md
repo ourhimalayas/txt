@@ -2,39 +2,46 @@
 ---
 
 
-## 中共当局警告人们要储备食物以度过冬天
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1638908/)
+## 中共商务部再发家庭储备生活必需品公告
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1638909/)
 
-编译：蚂蚁兄弟
+作者：日本方舟农场 – Andy5
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-3.jpg)市民去超市储备食物 EFE
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-中国政府提出的为冬季储备粮食的建议令民众担忧。超市里到处都是消费者，他们把白菜、大米、盐、油和鸡蛋放在购物车中，这种画面以前只有在销售季节才能看到的。“消息一出来，人们就慌了，在超市里疯狂购物”，一位用户在中国社交网络微博上写道。反应是如此夸张，以至于国家媒体只用了几个小时就试图平息事态，并要求民众不要有“过度的想象”。
+当地时间11月 1日，中共商务部再次提出“鼓励家庭根据需要储备一定数量的生活必需品”这一概念。对此，即便中共各大官媒纷纷发文舆情，但依然引起了墙内民众的广泛关注。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-10.jpg)
+今年中旬开始，先是河南、四川、湖北等地的暴雨，随即珠江流域又发生大旱，再加上能源危机导致的拉闸限电，以及全球货物运输供应链的困境，中共墙内如今的境况已是菜比肉贵。为此，中共之前还推出了所谓的“粮食节约行动方案”，当中甚至向民众提出要“走出精米白面的误区”这一说辞。
 
-中共喉舌《经济日报》强调说，这只是一个被禁传的警告。但是公民有理由感到不安：大流行病、与台湾的紧张关系以及毁坏农作物的意外暴雨都是供应危机中的一个威胁。
+评论称，中共近期大肆宣传“十八连丰”，但墙内现状却是，吃糠咽菜的日子恐怕就要到来了。
 
-10月份的极端天气损害了中国主要蔬菜生产地区山东的农业生产，价格也相应上涨。上周，黄瓜、菠菜和西兰花的价格比10月初翻了一番。
+参考链接：
 
-当局要求消费者囤积蔬菜，以应对可能出现的价格进一步上涨，政府说它已经准备好库存，“在适当时候”提供给民众。
+[商务部：鼓励家庭根据需要储存一定数量的生活必需品，满足日常生活和突发情况的需要](https://finance.sina.com.cn/china/gncj/2021-11-01/doc-iktzqtyu4803543.shtml)
 
-**简评：**
+[胡锡进：商务部鼓励家庭储存一定数量生活必需品 别解读歪了](https://i.ifeng.com/c/8Aq6XvRsewd)
 
-**号称“以不足10%的耕地养活了世界22%人口”的中共国，难道粮食就这样出问题了吗？**
+[经济日报：不要过度解读甚至误读储存一定生活必需品](http://www.ce.cn/xwzx/gnsz/gdxw/202111/02/t20211102_37052204.shtml)
 
-**一贯以谎言欺骗世界，欺骗中国百姓的中共政府，这次粮食恐怕真的要出问题了。其实，为了满足国内老百姓粮食的需求，中共国的粮食一直以来主要依靠进口。中共向全世界释放了病毒，发动了超限战之后，世界已经被搅乱。中共国的外贸和经济已经到达了崩溃的边缘。对外贸易的萎缩，地产的“暴雷”，对外投资的失败，已经是中共的外汇捉襟见肘。而十几年来的地产经济，已经使中共国的耕地大面积被当地政府卖掉，用以盖楼。**
+[商务部发通知鼓励家庭储存生活必需品？不应过度解读，更无需盲目囤物](https://www.jfdaily.com/news/detail?id=420261)
 
-**中共国这次的粮食也许真的要出现问题了，而中共政府又会像从前一样，把这次的饥荒推给天。只希望这次缺粮的影响能够小一些，因为中国的绝大多数的百姓是勤劳的，是善良的。**
+[不必误读“商务部通知”去“抢购物资”](https://www.sohu.com/a/498761025_114988)
 
-**参考资料：**[lavanguardia][China alerta a la población de que haga acopio de víveres para pasar el invierno](https://www.lavanguardia.com/internacional/20211102/7833053/china-alerta-poblacion-hagan-acopio-comida-viveres-pasar-invierno.html)
+[**“走出精米白面误区”正式写入节粮行动方案**](https://m.bjnews.com.cn/detail/163577072414162.html)
 
-* * *
+[节粮减损 重在行动](http://opinion.people.com.cn/n1/2021/1101/c1003-32269634.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编：Irene木木
+编辑：AN
+校正/发稿：Fei797
 
-*审核：Aries的星*
-*校对：信心满满*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,49 +2,38 @@
 ---
 
 
-## 雅虎正式退出中共国市场
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1638855/)
+## 中共当局警告人们要储备食物以度过冬天
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1638908/)
 
-作者：英国喜庄园 – I770775
+编译：蚂蚁兄弟
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-3.jpg)市民去超市储备食物 EFE
 
+中国政府提出的为冬季储备粮食的建议令民众担忧。超市里到处都是消费者，他们把白菜、大米、盐、油和鸡蛋放在购物车中，这种画面以前只有在销售季节才能看到的。“消息一出来，人们就慌了，在超市里疯狂购物”，一位用户在中国社交网络微博上写道。反应是如此夸张，以至于国家媒体只用了几个小时就试图平息事态，并要求民众不要有“过度的想象”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+中共喉舌《经济日报》强调说，这只是一个被禁传的警告。但是公民有理由感到不安：大流行病、与台湾的紧张关系以及毁坏农作物的意外暴雨都是供应危机中的一个威胁。
 
+10月份的极端天气损害了中国主要蔬菜生产地区山东的农业生产，价格也相应上涨。上周，黄瓜、菠菜和西兰花的价格比10月初翻了一番。
 
+当局要求消费者囤积蔬菜，以应对可能出现的价格进一步上涨，政府说它已经准备好库存，“在适当时候”提供给民众。
 
-因中共国商业和法律环境的恶化，11月1日，美国雅虎公司正式停止在中共国大陆地区的所有服务。
+**简评：**
 
-雅虎曾经是全球第一门户搜索网站，其业务遍及世界24个国家和地区，拥有超过5亿的独立用户。1999年9月，雅虎的中国区网站正式开通，2013年，宣布关停中国区新闻和邮件服务，2015年，关闭北京全球研发中心，并大幅裁员数百人。
+**号称“以不足10%的耕地养活了世界22%人口”的中共国，难道粮食就这样出问题了吗？**
 
-鉴于中共国近年来对互联网的审查，海外各大科技企业纷纷撤出中国市场。这次雅虎的正式离场，成为中共国所有外资企业命运的缩影。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-14.jpg)
-参考链接：
-[雅虎正式退出中国 停止其在中国大陆地区的所有服务](https://new.qq.com/omn/20211102/20211102A0DJQ200.html)
+**一贯以谎言欺骗世界，欺骗中国百姓的中共政府，这次粮食恐怕真的要出问题了。其实，为了满足国内老百姓粮食的需求，中共国的粮食一直以来主要依靠进口。中共向全世界释放了病毒，发动了超限战之后，世界已经被搅乱。中共国的外贸和经济已经到达了崩溃的边缘。对外贸易的萎缩，地产的“暴雷”，对外投资的失败，已经是中共的外汇捉襟见肘。而十几年来的地产经济，已经使中共国的耕地大面积被当地政府卖掉，用以盖楼。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+**中共国这次的粮食也许真的要出现问题了，而中共政府又会像从前一样，把这次的饥荒推给天。只希望这次缺粮的影响能够小一些，因为中国的绝大多数的百姓是勤劳的，是善良的。**
 
-总编：飞虹
-编辑：雪梨
-校对/发稿：为真不破20
+**参考资料：**[lavanguardia][China alerta a la población de que haga acopio de víveres para pasar el invierno](https://www.lavanguardia.com/internacional/20211102/7833053/china-alerta-poblacion-hagan-acopio-comida-viveres-pasar-invierno.html)
 
-**更多资讯，更多关注**
+* * *
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*审核：Aries的星*
+*校对：信心满满*
+*发布：信心的选择*
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
 
  
 
