@@ -2,62 +2,57 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共病毒时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1639482/)
+## 川普：格伦·杨金的胜利证明了MAGA运动比以往更强大
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1639530/)
 
-翻译：西班牙喜悦农场–wenwu
+【简评：】*弗吉尼亚州早在8月份就要求所有市政雇员接种疫苗，拒绝接种者将受处分。这次共和党候选人在弗吉尼亚州州长竞选中获胜，看到了人民的力量，那里的人民厌倦了低迷的经济，厌倦了强制的疫苗接种令，厌倦了独裁的统治手法。文贵先生告诉我们，要知善恶，要有辨别是非的能力，要勇敢表达自己的意愿。这次选举的确看到了美国的伟大，人民可以用自己手上的选票发出自己的声音。*
 
-您若想了解全文报导内容，请点击标题链接
+据《布雷巴特新闻网》作者：CHARLIE SPIERING 2021年11月2日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-61-e1636056779277.png)美国前总统唐纳德-川普周二庆祝了共和党候选人格伦-杨金在弗吉尼亚州州长竞选中的胜利。
+图片来源：CHARLIE SPIERING
+**周二，前总统唐纳德·川普（****Donald Trump）庆祝共和党候选人格伦·扬金（Glenn Youngkin）在弗吉尼亚州州长竞选中获胜。**
 
-（爱惜生命 远离疫苗）
+**川普在一份声明中写道，“MAGA（让美国再次伟大）运动比以往任何时候都更大更强**，格伦·扬金将是一位伟大的州长。”
 
-**1. [令人不安的辉瑞广告告诉孩子们他们将从中共疫苗中，获得超能力](https://www.thegatewaypundit.com/2021/11/pure-evil-disturbing-pfizer-ad-tells-kids-get-superpowers-covid-jab-video/)**
+川普在竞选中支持杨金，并鼓励选民支持他，但他没有为这位候选人举办竞选集会，在这个州，总统乔**·**拜登在2020年以10个百分点的优势战胜了前总统。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/jabsuperheropfizer.jpg)
+在79%的选区报告中，杨金领先他的民主党挑战者、前州长特里**·**麦考利夫近十个百分点。
 
-据《门户网》2021年11月3日电，辉瑞公司本周获得CDC的批准，向儿童提供实验性的中共病毒（covid19）疫苗；今年芝加哥接种疫苗的儿童比全国各地死于中共病毒的儿童多。
+**川普将杨金的胜利归功于支持他竞选总统的那个“让美国再次伟大”联盟。**
 
-辉瑞公司发布了这个令人不安的[广告](https://rumble.com/voor6p-pure-evil-disturbing-pfizer-ad-tells-kids-theyll-get-superpowers-from-covid.html)，告诉孩子们如果接种中共疫苗，他们将获得超能力。天哪，这群人是多么变态的恶人。
+他写道，“我想感谢我的基地，感谢他们踊跃出来为格伦**·**杨金投票，没有你们，他就不会接近胜利。”
 
-**2. [辉瑞 COVID 疫苗 2021 年销售额有望达到 360 亿美元](https://childrenshealthdefense.org/defender/pfizer-covid-vaccine-sales-billions/) **
+川普还嘲讽麦考利夫把大部分竞选时间都花在他身上，认为这只会帮助杨金。“麦考利夫所做的一切都是在谈论川普、川普、川普，而他却输了！这说明了什么，假新闻？” 川普问道，“我猜作为民主党竞选的人不会再这样做了。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Pfizer-Covid-vaccine-most-lucrative-in-history-feature-800x417-1.jpg)
+川普认为，由于麦考利夫试图将他与杨金联系在一起，他从来没有必要在弗吉尼亚州举行集会。
 
-据《捍卫者》2021年11月3日电，辉瑞与 BioNTech 合作开发的中共疫苗的[收入](https://thehill.com/policy/healthcare/579615-pfizer-expects-36-billion-in-sales-from-covid-vaccine)将[达到 360 亿美元，](https://thehill.com/policy/healthcare/579615-pfizer-expects-36-billion-in-sales-from-covid-vaccine)高于此前估计的 335 亿美元；根据承诺采购合同的[17 亿剂](https://www.axios.com/pfizer-covid-19-vaccine-sales-third-quarter-2021-9dd18e78-ae17-4e4e-9e4d-cfacefeababa.html)，该
+他写道：“我甚至不需要为杨金举行集会，因为麦考利夫为我做了这件事。”
 
-[公司预测](https://thehill.com/policy/healthcare/579615-pfizer-expects-36-billion-in-sales-from-covid-vaccine)2022 年的销售额为 290 亿美元。[据 Axios 报道](https://www.axios.com/pfizer-covid-19-vaccine-sales-third-quarter-2021-9dd18e78-ae17-4e4e-9e4d-cfacefeababa.html)，辉瑞公司表示明年将生产多达 40 亿剂，这意味着它仍有 23 亿剂可以销售。
+川普在周一晚上为杨金做了大约10分钟的电话集会，就在周二早上投票开始前的几个小时，敦促他的支持者去投票。
 
-随着美国食品和药物管理局 (FDA) 最近批准该疫苗用于 5 至 11 岁的儿童，辉瑞公司的优势可能会增加；CDC 主任 Rochelle Walensky 博士在周二晚间[签署了该决定](https://www.reuters.com/world/us/us-cdc-advisers-vote-covid-19-vaccine-young-children-2021-11-02/)，5 至 11 岁的儿童最早可以在今天开始接种 COVID 疫苗。
+川普说，“我们的关系很好，他是个了不起的人。”并称赞杨金作为一个商人取得了“巨大的成功”。
 
-根据辉瑞公司最近的季度报告，在2021年第二季度，与2020年同期相比，2021年上半年的”SI&A成本费用”增加了10%，其中包括营销和广告，当时还没有中共疫苗上市；通过”赞助”影响电视新闻节目和信息节目来积极报道辉瑞毒疫苗，辉瑞公司的意图可能不仅仅是单单涉及提高疫苗接种率：
+杨金的胜利向联邦的民主党人发出了一个信息，他们在这个自2014年以来一直选举民主党州长的州里正在失去支持。
 
-“美国早安，由辉瑞公司为您带来”。”CBS健康观察，由辉瑞赞助”。”Anderson Cooper 360°，由辉瑞公司提供”。“ABC新闻夜线，由辉瑞公司为您带来”。”CNN今晚，由辉瑞公司为您带来。”
+美国总统拜登两次亲自为麦考利夫竞选，但这并不足以重振其低迷的竞选。
 
-**3. [中共国中共病毒疫情延扩涉及14个省市](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211104-%E4%B8%AD%E5%9B%BD%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E5%BB%B6%E6%89%A9%E6%B6%89%E5%8F%8A14%E4%B8%AA%E7%9C%81%E5%B8%82) **
+拜登在弗吉尼亚州的投票结束前几小时表明了麦考利夫将获胜的信心。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yH5BAEAAAAALAAAAAABAAEAAAIBRAA7.png)
+拜登在苏格兰格拉斯哥举行的新闻发布会上近乎小声地说：“我们会赢的。”仿佛在分享一个秘密，他把脸低到话筒里，“我认为我们将在弗吉尼亚州获胜。”
 
-据《法广网》援引《中央社》2021年11月4日电，中共国德尔塔变异株引起的中共病毒疫情持续升温；中共下周将召开19届六中全会。中共国3日新增87宗本土确诊病例，另外本土无症状感染者则有15例，合计破百，疫情涉及14个省市（分别是黑龙江45例、河北23例、宁夏4例、江苏3例、河南3例、内蒙古2例、四川2例、甘肃2例、山东、重庆和青海各1例）。
+原文连接：[https://www.breitbart.com/politics/2021/11/02/donald-trump-glenn-youngkin-win-proves-maga-movement-bigger-and-stronger-than-ever-before/](https://www.breitbart.com/politics/2021/11/02/donald-trump-glenn-youngkin-win-proves-maga-movement-bigger-and-stronger-than-ever-before/)
 
-**4. [伊维菌素成功治疗了早期推出的 Vax 面瘫副作用](https://creativedestructionmedia.com/news/2021/11/03/breaking-early-rollout-vax-injured-claim-ivermectin-successfully-treated-their-paralysis/)**
+（本文评论仅代表个人观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-3-1.png)
+翻译：洛杉矶盘古农场 – TrueSky
 
-据《CD Media》2021年11月3日电，美国对话主持人 Christine Dolan 与中共疫苗副作用患者 Angelia Desselle 和 Shawn Vidiella [交谈](https://rumble.com/voop41-early-rollout-vax-injured-claim-ivermectin-successfully-treated-their-paral.html)。两人描述了服用伊维菌素如何帮助缓解疫苗引起的面部麻痹，以及其他严重症状。然而，伊维菌素的使用仍然受到限制。两位女性都要求与安东尼·福奇博士进行面对面的对质。
+评论/校编：洛杉矶盘古农场 – 明子
 
-**5. [拜登为疫苗授权设定了严格的最后期限](https://www.axios.com/covid-vaccine-mandate-private-sector-biden-osha-eea6e85d-fefe-4e4b-8cc0-0564c764bdf4.html)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-4-1.png)
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-据《AXIOS》2021年11月4日电，拜登总统将于周四（4日）宣布，某些雇主必须确保其员工在 2022 年 1 月 4 日之前每周都接种完疫苗或接受检测，否则将面临每次违规近1.4万美元的联邦罚款。美国劳工部职业安全与健康管理局 (OSHA) 将代表白宫执行中共病毒（COVID-19）疫苗接种和检测紧急临时标准，该标准影响了大约三分之二的美国工人。
-
-商务部长吉娜·雷蒙多 (GinaRaimondo)周末对哥伦比亚广播公司的“[面向国家](https://www.cbsnews.com/news/transcript-commerce-secretary-gina-raimondo-on-face-the-nation-october-31-2021/)”节目表示，将疫苗授权期限的确定推迟到假期之后将是一个“大错误”（推迟是为了与医疗机构和美国雇主“保持一致” ）。
-
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
