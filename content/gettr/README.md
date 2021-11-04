@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/4/2021 5:06 AM (UTC)`
+
+11/3/2021 Miles Guo: The truth about the CCP virus and its vaccines are the biggest bullets of the New Federal State of China, followed by the Himalaya Reserve and GETTR; Zhang Gaoli is obscene and incompetent and was the first to say that Xi would step down after his first term; If the CCP is not destroyed, everyone’s children could be wrecked by them<br/><br/>11/3/2021 文贵直播：疫苗和病毒的真相是新中国联邦最大的子弹，喜联储和盖特次之；淫荡、无能的张高丽最早说习近平当完一届得下台；共产党不灭，每个人的孩子都可能被他们糟蹋！<br/>
+![img](https://media.gettr.com/group22/getter/2021/11/04/05/06/9f2484a0-5038-07ea-f44d-5f984c743b9c/out.jpg)
+
+---
+
 `@miles 11/4/2021 2:14 AM (UTC)`
 
 11/3/2021 Miles Guo: Zhang Gaoli wanted to be the “emperor” of Communist China, and he and Xi have a personal grudge. So, Xi wants to eliminate him anyway; The CCP’s old kleptocrats like Zhang Gaoli who went through Culture Revolution have had prostitutes and committed rapes together with their wives disguised with so called “true love”<br/><br/>11/3/2021 文贵直播：张高丽是想当皇帝的人，他和习有个人恩怨，习非弄死他不可；张高丽等文革时代出来的中共老杂毛们打着谈恋爱的名义，和他们的老婆一起嫖娼、强奸
@@ -289,13 +296,6 @@ Hcoin To The Moon <br/><br/>词：威廉王<br/>曲：唐平<br/>编曲： SFG<b
 
 意大利，第一家支持喜币支付的饭店诞生。只要你有喜币可以在店内消费享受所有美食。
 ![img](https://media.gettr.com/group49/origin/2021/10/31/20/a9e07058-b619-052b-0cc6-57cbcbda8a19/34a541a9cbf04cb98cdbdd1a00093dc3.jpeg)
-
----
-
-`@miles 10/31/2021 9:22 PM (UTC)`
-
-10月31日：任何不干净的钱和来路不明的钱．和所谓的快钱都可能给你带来杀身之祸，任何人懂得这个道理之后，都会明白如何的尊重和善待财富，才能让自己享受财富带来的一切．看看照片中，这两个人以及他们的家人．现在是何等的痛苦和悲哀，希望我们所有的的战友们。都能善待，我们的财富，不要成为财富的奴隶……<br/><br/>【海航董事长陈峰家族4.98%股权的全数归零，陈峰名下的香港豪宅也被接管人以7折卖出，连陈峰姪子陈超投资的香港豪宅，近日遭债权人接管，2栋豪宅总价值超过30亿元，陈峰家族一毛钱也没拿回。】
-![img](https://media.gettr.com/group2/getter/2021/10/31/21/22/ff7a535e-d3dd-e0de-9f6f-4d67d9e000ee/812527349ca4c3d7167ed1eb6babf3d8.jpg)
 
 ---
 
