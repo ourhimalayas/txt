@@ -2,33 +2,86 @@
 ---
 
 
-## 美联储启动货币根本性货币
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1638218/)
+## 喜币如果没有支付系统是不完整的
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1638269/)
 
-新闻来源：德国南德报网页版
+[https://gtv.org/video/id=6183a68badfd99590c32fc49](https://gtv.org/video/id=6183a68badfd99590c32fc49)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+**郭文贵
+Miles Guo**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/sharon-mccutcheon-8lnbXtxFGZw-unsplash-scaled.jpg)
+这个喜币的支付系统，如果没有提前的筹划和计划
+If this Hcoin payment system is not planned and planned in advance
 
+这一块大蛋糕就没了
+this big cake is gone
 
-图片来源： Unplash
+还有这个喜币没有支付系统，它是不完整的
+Also if Hcoin doesn’t have payment system, it is incomplete
 
-物价暴涨、工资上涨、失业率下降：周三，美联储从最新经济数据中得出结论，并启动了货币政策的根本性转变。货币当局在华盛顿宣布，他们将从 11 月开始逐步减少对美国政府债券和抵押贷款支持证券的大规模购买。通过该计划，自新冠危机爆发以来，美联储一直在逐月向经济注入 1200 亿美元，以保持长期贷款利率处于低位并稳定经济。未来，该金额每月应减少 150 亿美元。
+你没有一个金融知识和有一个新中国联邦的国家概念，你不会这么做的
+If you don’t have a financial knowledge and a national concept of the New Federal State of China, you would not do that
 
-对于美国公民来说，减少购买国债和抵押贷款的政策暂时可能不会产生任何后果，即使汽车购买者或建筑商的借贷成本在中期内可能会上升。尽管如此，该决定的范围也不能高估，因为其背后无非是试图遏制通胀，正确地结束零利率政策，回归更正常的指导原则。这是否会成功是未知的。
+一个事情的结果, 你能看出一个人的初衷和初心
+From the result of an event, you can see a person’s mind
 
-在冠状病毒大流行之初，美联储采取果断的降息措施，为防止美国经济出现更剧烈的崩溃做出了决定性贡献。但与此同时，超宽松货币政策的弊端也逐渐显现：最近汽油、天然气和许多日常用品的价格上涨，最近将美国通胀率推高至5.4%，这并不是其原因。但它有利于发展。
+而且这个支付系统未来最重要的就是要战友们在各地去实行代理
+and the most important thing for this payment system in the future is to require comrades in arms to implement agents everywhere
 
-美联储通过其决定发出的信号更加清晰。这不仅意味着他们现在非常关注通胀趋势。相反，世界上其他主要中央银行也面临越来越大的压力，要求对价格上涨采取更加批判的态度——例如欧洲中央银行 (ECB)：由于通货膨胀，它迄今为止一直犹豫不决做出决定欧元区 19 个国家的利率仍有很大差异。但同样事实是，平均数在几个月内翻了一番，达到 4.1%。德国为 4.5%，甚至更高。
+大家一定记住你代理的前提，你不是在各农场的战友是不可能让你代理的
+Everyone must remember the premise of you being an agent, if you are not a comrades in arms of each Farm and it is impossible for you to act as an agent
 
-美联储长期以来一直试图将长期贷款利率保持在较低水平，随着开始退出宽松的货币政策，美联储也在为再次瞄准长期和短期贷款利率做准备。许多专家预计，在假定所有证券购买于 2022 年中期结束后，央行将开始逐步提高其最重要的关键利率，即所谓的隔夜目标范围，目前几乎为零。这将是 2020 年 3 月以来的首次加息，也是 2018 年 12 月以来的首次加息。周三，货币政策委员会没有采取这样的措施。美联储主席杰罗姆鲍威尔表示，“现在还不是加息的时候”。
+不是谁来都给你代理的，这绝对不是人人都有的机会
+This is not for everyone, the opportunity is absolutely not for everyone
 
-鲍威尔长期以来一直希望价格压力会很快自行消失，因为这主要是由于大流行导致暂时的生产和交付瓶颈。央行行长现在承认问题比最初假设的要严重。 “我们现在的通胀水平并不是我们所说的物价稳定，”他说。例如，他知道汽油和食品的高成本是低收入人群的问题。然而，美联储继续假设通胀压力将从明年夏天开始再次缓解——比预期晚得多。如果即使这个预测结果证明过于乐观，央行也将“毫不犹豫地采取行动”。
+而且这必须是法治基金的捐款者排第一位
+Donors to the Rule of Law Fund must come first
 
-原文链接：[https://www.sueddeutsche.de/wirtschaft/fed-us-notenbank-inflation-geldpolitik-zinsen-1.5455597](https://www.sueddeutsche.de/wirtschaft/fed-us-notenbank-inflation-geldpolitik-zinsen-1.5455597)
+然后是GTV的老椅子投资者，然后是喜币G|CLUB的投资者
+Then the original investors of GTV, and then the investors of Hcoin and G|CLUB
 
-责任编辑、发布： Shuizhuyu
+这是个最基本的常识，就像我当初说的几个月以前
+This is the most basic concept, as I said a few months ago
+
+咱们现在所有GTV的GTV公司拥有喜联储的5%的股份, 盖特的5%的股份
+Now all our shareholders of GTV company own 5% of the shares of the Himalaya Federal Reserve, own 5% stake of Gettr’s
+
+你这是开玩笑吗？兄弟姐妹们，现在想想这是多大的钱，
+are you kidding me? Brothers and sisters, now think about how large amount money this is
+
+就这个概念, 你拿到那个SPAC的公司, 上市得值多少钱
+If our G-TV uses SPAC’ way of going public, How much value will it be?
+
+那么今天已经还差几十个小时咱们喜币就要上市了, 在一个月后就上支付系统了，
+So today, it’s dozens of hours away before our HCoin will be listed
+
+战友们想想你在全世界各地
+Comrades in arms, think about it, you are at all over the world
+
+你有过这样的祖国的概念吗？
+Have you ever had such a concept of the motherland?
+
+你有过和你生命和利益未来相连接的, 这样的希望和这样的机会吗？
+Have you ever had this kind of hope and this kind of opportunity connected to the future of your life and interests?
+
+* * *
+
+Date:11/03/2021
+原视频标题: 喜币如果没有支付系统是不完整的
+Hcoin is incomplete without a payment system
+原视频日期：2021/10/29
+原视频链接 https://gettr.com/post/pfpg3x3c6e
+任务编号：2737
+视频时间段 : 0:00-1:28
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

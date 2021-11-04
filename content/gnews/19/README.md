@@ -2,29 +2,22 @@
 ---
 
 
-## 中共国占全球二氧化碳排放量的 31%
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1638325/)
+## 韩国新增2667例中共病毒确诊病例，创单日第四新高
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1638381/)
 
-新闻来源：德国世界报网页版
+韩国首尔天池农场——追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-04-at-20.11.17.jpeg)
+韩国财经新闻11月3日的报道  根据韩国中央防疫对策本部3日的通报，截至当天0时，韩国较前一天0时新增中共病毒确诊病例2667例，累计确诊超过37万例。
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+单日新增病例较前一天增加了1078例，再次超过2000例，成为历史的第四新高，这也是继9月30日的2561例之后单日再超过2500例。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_0552.jpg)
+韩国本月1日开始进入第一阶段的新的防疫体制“与疫共存”的生活模式，随着防止感染的意识的松懈，到人多的场所的次数的增加，预计在本周的确诊病例有可能持续增长。
 
+当天新增病例中，社区感染病例为2640例，其中首都圈2073例，其他地区567例。境外输入性病例27例。
 
-图片来源： 视频截图
+当天新增18例死亡病例，累计死亡2892例，平均致死率0.78%。重症患者共计378例，较前一天增加31例。
 
-2021年，中国占全球温室气体排放量的 31%。这源于在格拉斯哥全球气候会议上发表的一项研究项目的气候报告。
-
-去年，中国占全球温室气体排放量的 31%。这来自研究项目 2021 年全球碳项目的气候报告，该报告于周四在格拉斯哥举行的世界气候大会 COP26 之际发布。
-
-全球碳项目的作者解释说，二氧化碳排放量的大幅增加可能是由于中国经济比世界其他地区更早地从新冠危机中恢复过来。能源部门和工业是造成较高二氧化碳排放量的原因。
-
-报告称，今年全球温室气体排放量将再次接近新冠病毒大流行前的水平。研究人员表示，如果今年的趋势继续下去，则不能排除 2022 年排放量进一步增加的可能性。当道路和空中交通恢复到以前的水平时尤其如此。
-
-原文链接：[https://www.welt.de/politik/ausland/article234829530/COP26-China-fuer-31-Prozent-der-globalen-CO2-Emissionen-verantwortlich-Rueckgang-in-Deutschland.html](https://www.welt.de/politik/ausland/article234829530/COP26-China-fuer-31-Prozent-der-globalen-CO2-Emissionen-verantwortlich-Rueckgang-in-Deutschland.html)
-
-责任编辑、发布： Shuizhuyu
+[参考新闻](https://m.news.naver.com/read?mode=LSD&amp;mid=sec&amp;sid1=102&amp;oid=014&amp;aid=0004733426)
 
  
 
