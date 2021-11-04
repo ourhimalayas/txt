@@ -2,42 +2,40 @@
 ---
 
 
-## 字节跳动创始人张一鸣卸任董事长
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1638224/)
+## 英国名校西敏公学撤出中共国 受中共教育新规打压
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1638335/)
 
-翻译：西班牙喜悦农场–wenwu
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-3.png)
+图片来自网络
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1.jpg)据报道，字节跳动创始人张一鸣身价约为 445 亿美元。 彭博新闻
+据《大纪元》2021年11月4日报道，英国名校西敏公学（Westminster School）宣布取消在中共国开设一系列学院的计划，原因是中共当局日益严厉的打压。
 
-据周二（2日）晚间报道，字节跳动（ByteDance Ltd.）创始人张一鸣将在[辞去](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)（5月）TikTok 的[首席执行官](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)的数月后，一并辞去字节跳动的董事长（3日）的位置。
+西敏公学是英国最负盛名的学校之一，有六位英国首相曾就读于这所公校。
 
-[彭博新闻](https://www.bloomberg.com/news/articles/2021-11-03/bytedance-s-zhang-exits-board-joining-exodus-by-tech-founders?srnd=technology-vp&amp;sref=Oeyjq8by)和[路透社](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)援引熟悉此事的消息人士的话[报道](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)称，字节跳动的首席执行官 Liang Rubo 将接替张先生担任董事长。
+在中共颁布教育新规，禁止私立学校使用外国课程和教科书教授中共国公民后，西敏公学取消了该校原计划到2028年在中共国开设6所学校的计划。这一事件成为中共国国际教育在迅速扩张后走向逆转的最引人注目的事件之一。
 
-周二早些时候，字节跳动宣布了一项将公司重组为六个业务部门的计划。作为重组的一部分，《华尔街日报》报道称，字节跳动[首席财务官](https://www.wsj.com/articles/bytedance-cfo-is-stepping-down-to-focus-on-tiktok-11635885543?mod=Searchresults_pos1&amp;page=1&amp;mod=article_inline) Shou Zi Chew 将卸任，专注于他作为 TikTok 首席执行官的角色。
+西敏公学位于成都的第一所中共国学校目前已经建成，原定于今年9月开学，计划招收2000名3至18岁的学生，以双语教学。然而，该校董事会主席马克·巴顿（Mark Ba​​tten）11月2日致信学生和校友称，该计划由于疫情和“中国（中共）教育政策的近期变化”而结束。巴顿表示，现在发展此类学校的前景已与2017年大不相同。
 
-随着中共国政府[收紧对互联网公司的控制](https://www.marketwatch.com/story/chinas-communist-party-exerting-tighter-control-over-the-countrys-internet-giants-01633320070?mod=article_inline)，38 岁的张是最近一位离开他们创立的公司的中共国亿万富翁。拼多多公司[PDD， +0.12%](https://www.marketwatch.com/investing/stock/PDD?mod=MW_story_quote)的创始人兼董事长 Colin Huang于 [3月](https://www.marketwatch.com/story/pinduoduo-founder-colin-huang-steps-down-from-company-11615997079?mod=article_inline)退出该公司；京东商城[JD， +0.82%](https://www.marketwatch.com/investing/stock/JD?mod=MW_story_quote)的创始人兼董事长刘强东于9月份退出[了公司的](https://www.marketwatch.com/articles/jd-com-says-founder-stepping-back-from-day-to-day-running-of-the-business-51630941420?mod=article_inline)日常管理；快手科技（Kuaishou Technology）联合创始人兼首席执行官 Su Hua 于[上周同样退出了公司](https://www.wsj.com/articles/chinese-video-platform-kuaishou-says-ceo-steps-down-11635529476?mod=article_inline)。
+西敏公学在一份声明中表示，“中国（中共）制定了多项新的教育法规，这将影响成都拟建学校的运营，因此，“不太可能获得在最初计划模型上运营的许可证”。
 
-总部位于北京的字节跳动成立于 2012 年，其热门应用 TikTok 每月拥有近 7 亿用户。截至上一轮融资时，私人持有的字节跳动估值为 1400 亿美元，但 [据彭博社报道](https://www.bloomberg.com/news/articles/2021-03-30/bytedance-is-said-valued-at-250-billion-in-private-trades?sref=Oeyjq8by) ，今年早些时候私有估值约为 2500 亿美元。
+据英国《泰晤士报》报道，英国下议院外交事务委员会主席、保守党议员汤姆·图根哈特（Tom Tugendhat）指出，在习近平领导下的中（共）国，文化交流的空间正在缩小。
 
-彭博亿万富翁指数将张先生列为[全球第 31 位最富有的人，](https://www.bloomberg.com/billionaires/profiles/yiming-zhang/?sref=Oeyjq8by)财富价值约为 445 亿美元。
+英国《电讯报》的报道也指出，今年早些时候有消息称，在中共国的英国著名私立学校将被迫放弃课程，只教授北京（中共）批准的课程。这是习近平主席要求确保“思想正确”更广泛努力的一部分。
 
-**简评：**
+根据中共的教育新规定，从幼儿园到九年级，国际学校现在必须教授与中共国公立学校相同的课程。所有私立学校现在都必须“坚持中国共产党的领导”，此举旨在让中共对孩子的学习有更大的监督力度。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1-1.jpg)图片来源于[禁文网](https://www.bannedbook.org/bnews/bannedvideo/20210908/1620501.html)
+此外，已于9月生效的新规定还限制外国控制和参与私立学校的运营，要求学校董事会成员为中共国人，并试图规范昂贵的学费。
 
-**据2021年11月3日《DESCARGITAS》报道，中共国政府将越来越关注富有的科技企业家，许多亿万富翁积累了权力，并影响了威权。**
+咨询公司“威廉克拉伦斯教育”（William Clarence Education）董事总经理斯蒂芬·斯普里格斯（Stephen Spriggs）指出：“学校将中（共）国视为铺满黄金的土地总是存在风险的。你有可能因其政府的政策而改变。”
 
-**阿里巴巴的联合创始人马云一直是被镇压的主要受害者，最近飞离中共国到西班牙度假。自从习近平主席去年阻止了他的在线金融平台蚂蚁金服集团的上市计划后，马云就限制了公开露面（此举曾发生在毛泽东时代）；外国科技公司与雅虎一起退出中共国，本周宣布“由于商业和法律环境变得越来越具有挑战性，离开中共国。”随着新的《数据保护法》于周一（1日）在中共国生效，恰好是雅虎退出中共国的时间，法律规定了私人公司收集个人信息的条件，并制定了如何使用这些信息的规则。**
+斯普里格斯还认为，将有更多英国学校撤出中共国，转而瞄准更多“政治稳定”的国家。
 
-**最后，向同胞们呼吁不要打疫苗，并且加入新中国联邦大家庭；从喜币上市可见，新中国联邦的实力是实实在在的。**
+中共国与世界的“文化脱钩”正在进行中。在习近平的领导下，中共国近年来正在全面走向倒退，重回闭关锁国的老路，主动或被动地与世界脱钩，与文明社会为敌。这是一条倒退路，也是一条不归路。
 
-新闻来源：[marketwatch.com] [ByteDance founder Zhang Yiming steps down as chairman: reports](https://www.marketwatch.com/story/bytedance-founder-zhang-yiming-steps-down-as-chairman-reports-11635909977) | 发布时间：2021年11月2日
+注：本文仅代表作者观点
 
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
+**新闻链接：**[https://twitter.com/dajiyuan/status/1456139281395855361](https://twitter.com/dajiyuan/status/1456139281395855361)
 
  
 

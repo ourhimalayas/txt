@@ -2,42 +2,68 @@
 ---
 
 
-## 赢得弗吉尼亚州后
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1638412/)
+## 西喜时事新闻简报 — 美国时事篇
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1638493/)
 
-**编译：JennyBall**
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip122.png)图片来源：redvoicemedia.com
+您若想了解全文报导内容，请点击标题链接
 
-共和党昨晚在弗吉尼亚度过了一个美好的夜晚。不过，选举本身很重要，这意味着我们不会再被特里·麦考利夫担任四年州长所困。这意味着，麦考利夫不再提供他的无限批判种族理论（CTR）的平台。
+（喜联储挂钩美元、喜市代替股市）
 
-这对疫苗授权有更大意义。格伦·扬金（Glenn Youngkin）说，他不会要求国家工作人员接种疫苗。麦考利夫想强迫该州的每一位教师都接种疫苗，并每天都要戴口罩，否则他们就会失业。麦考利夫想强迫每所公立学校的每个孩子每天都戴口罩。
+1. [Steve Cortes:美国2020年总统大选的投票是无效的](https://www.thegatewaypundit.com/2021/11/steve-cortes-reveals-new-truth-hijacked-2020-election-2020-presidential-vote-not-valid/)
 
-麦考利夫承诺禁止所有所谓的“攻击性武器”，同时减少刑事处罚，雇佣更多的公设辩护人，**让更多的犯罪垃圾出狱**。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip124.png)
 
-麦考利夫在结束竞选时表示，他希望对该州的教师进行种族清洗。他说，白人太多了。 不可接受， 摆脱白人。
+据《门户网》2021年11月3日电，在假新闻和社交媒体巨头的协助下，民主党人和沼泽地从唐纳德·川普总统和共和党人手中偷走了一场历史性的压倒性（2020年）大举。其中，宾夕法尼亚州是最令人印象深刻的”胜利”（窃取了79.5万张领先票）。
 
-因此，就目前而言，弗吉尼亚人至少可以避免这种情况。
+周三（3日），Newsmax主持人Steve Cortes讨论了2020年的选举：”第14修正案的平等保护[条款](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%88%A9%E5%9D%9A%E5%90%88%E4%BC%97%E5%9B%BD%E5%AE%AA%E6%B3%95%E7%AC%AC%E5%8D%81%E5%9B%9B%E6%9D%A1%E4%BF%AE%E6%AD%A3%E6%A1%88)遭到了大规模的违反。你不能让投票日的川普选民接受与邮寄选民完全不同的、更严格的标准。这是2020年总统投票无效的主要原因之一。”
 
-即使格伦·扬金让保守派失望，他获胜的事实也表明了一些东西。**它表明候选人可以反对**** CRT****，反对疫苗授权，反对左派的暴虐过度，**即使在蓝色状态下，**即使左派在他们控制的州中操纵选举的所有策略，也可以获胜**。
+2. [爆炸性新闻：民主党在新泽西州州长选举中耍花招](https://www.thegatewaypundit.com/2021/11/breaking-democrat-tricks-new-jersey-governors-race-republican-winning-largest-county-100-votes-counted-vote-flips-democrat-miraculously-wins-county/)
 
-无论杨金政府发生什么事情，所有“美国优先”的爱国者都应该从中吸取教训。请记住，每次懦夫和黑客出来告诉你，获胜的唯一方法是复制民主党，并以“适度”的名义屈服于他们想要的一切。
+据《门户网》2021年11月3日电，在昨晚(2日）新泽西州州长竞选中，共和党人Jack Ciattarelli在该州最大的县–Bergen County领先现任民主党州长PhilMurphy。 然后事情奇迹般地发生了变化，这个推文中的[视频](https://twitter.com/NewDayForNJ/status/1455886115039326208?s=20)（如上图）对此作了描述。
 
-当然，即使你不住在弗吉尼亚，昨晚也是个好消息。**安提法**废除明尼阿波利斯警察局的努力失败了。废除邦联纪念碑的地方选票被压垮了。新泽西州州长的竞选比任何人预期的都要接近得多。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip125.png)
 
-明年，乔·拜登 (Joe Biden) 领导的民主党将不得不为疫苗强制执行、自己造成的短缺、大规模通货膨胀、犯罪爆炸和不存在的边界，失去全国。现在，他们继续虚构经济状况良好，但到明年，如果这种情况也消失了，也不要感到惊讶。
+在该州83%的选票统计中，共和党人Jack Ciattarelli在全州范围内领先4.2万票。 此时，新泽西州最大的县–Bergen County声称100%选票已经报到了，尘埃落定后Jack Ciattarelli赢得52%的选票；几分钟后，随着87%的选票被计入，Bergen County的结果发生了变化，据报道，Phil Murphy突然在该县以51%的票数领先；Jack Ciattarelli在该州的4.2万张选票此时也缩减为1600张的领先优势…
 
-**评论： 爆料革命的引领人文贵先生说：中共必在他发起的邪恶疫苗阴谋中灭亡。这次弗吉尼亚州竞选结果，和美国许多其他州的竞选结果，都验证了这个预言：跟着共产党走向灭亡。跟着共产党的疫苗阴谋的人，都将被历史审判！**
+3.[VA共和党人不仅赢得了全州范围的大型竞选，还从民主党手里夺走了七个众议院席位](https://www.thegatewaypundit.com/2021/11/virginia-not-wins-big-statewide-races-house-also-turns-red-gains-seven-seats-democrats/)
 
-**新闻来源**：[redvoicemedia.com] [Peter Navarro: “Strap Fauci in a Chair, Make Him Confess His Crimes”](https://www.redvoicemedia.com/2021/11/peter-navarro-strap-fauci-in-a-chair-make-him-confess-his-crimes/?utm_medium=ppt&amp;utm_source=pushnotification)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip126.png)
+
+据《门户网》2021年11月3日电，弗吉尼亚州于周二晚上在选举结果中显示，把拜登的疯狂政策和行动踢到一边，跳上了MAGA运动；弗吉尼亚州的共和党人不仅有史以来第一次在竞选拿下了州长、总检察长和副州长，而且还赢得了众议院的选举。
+
+弗吉尼亚州的众议院也变红了。共和党占据了所有席位，从民主党手中抢走了7个席位。这使他们在弗吉尼亚众议院比民主党多了 2 票。
+
+4. [已接种疫苗的洛杉矶市长 Garcetti 中共病毒检测呈阳性，进入隔离状态](https://www.thegatewaypundit.com/2021/11/fully-vaccinated-la-mayor-garcetti-tests-positive-covid-goes-isolation/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip128.png)
+
+据《门户网》2021年11月3日电，已接种疫苗的洛杉矶市长埃里克·加塞蒂 (Eric Garcetti) 周三（3日）检测出中共病毒呈阳性，并被隔离；Garcetti 还关闭了违反封锁令的住宅居民的水电，他怕死却有了中共病毒。
+
+5. [佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）成立选举诚信执法办公室](https://www.thegatewaypundit.com/2021/11/florida-governor-ron-desantis-holds-presser-announces-new-law-enforcement-office-election-integrity/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip129.png)
+
+据《门户网》2021年11月3日电，佛罗里达州州长 Ron DeSanitis 今天（3日）上午在棕榈滩举行了发布会，宣布成立一个新的选举诚信单位来解决大选中舞弊的问题：建立一个全州执法办公室，以调查和起诉选举犯罪和欺诈行为；违反新的“选票收集”法的处罚从轻罪增加到三级重罪；收集选票的人需要向全州选票执法办公室上报自己的工作。
+
+经济衰退是指你的邻居失去了工作。 萧条是指你失去你的工作。 经济复苏是当福奇医生失去他在白宫的工作时。 他一次又一次地犯错。他的大流行政策已经损害了数千万人的利益。 我们知道美国国立卫生研究院一直在做的事情，是对动物的虐待，他们对这些比格犬和这些小狗所做的事情。 我很抱歉，我们的税款不应该用于此。
+
+佛州州长在[15:10](https://cbsloc.al/2ZPnD7A)分时称 “拜登，布兰登政府”（the Biden, the Brandon Administration ），人群中爆发出”让布兰登走”（Let’s Go Brandon）的欢呼。
+
+6. [五角大楼在新报告中称，中共国正在迅速扩大其核武库](https://www.cnbc.com/2021/11/03/china-is-rapidly-expanding-its-nuclear-arsenal-pentagon-says.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip131.png)
+
+据《CNBC》2021年11月3日电，五角大楼周三表示，中共国正在迅速扩大其核武库，到 2030 年可能拥有1千枚核弹头（美国库存大约有3750枚），这是北京雄心勃勃的军事建设的一部分；中共国拥有“一系列针对台湾的军事行动的选择”，包括潜在的空中和海上封锁以进行全面的两栖入侵。
+
+[习近平在10月8日的讲话中说：](https://www.cnbc.com/2021/10/09/china-president-xi-jinping-on-reunification-with-taiwan.html) “祖国完全统一的历史任务必须完成，一定会完成。”而周三早些时候，美国参谋长联席会议主席、美国陆军上将马克·米利在阿斯彭安全论坛上说： “根据我对中共国的分析，我认为在不久的将来不太可能。”
 
 * * *
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+***发稿：信心满满***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
 
 
 

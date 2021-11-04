@@ -2,43 +2,32 @@
 ---
 
 
-## 郭先生谈喜币的铸币权及其无国界流通价值
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1638437/)
+## 有声|#FauciLiedDogsDied成热搜 “虐狗实验”持续发酵
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1638516/)
 
-**By:秘翻新闻**
+配音：香草山美食部 – 玫瑰园
 
-***2021-11-04***
-[![](https://assets.gnews.org/wp-content/uploads/2021/11/1104-2.jpg)](https://gtv.org/broadcast/watch/6183a03011d1862968017525)点击图片观看视频
-**新闻摘要:**
+两天前非营利组织“白衣废物”就福奇所在的NIH资助了一项残酷的幼犬实验进行了指控。此事在社交媒体引发了巨大的反响。#FauciLiedDogsDied 成为推特热搜。
 
-1.中共高官玩女人一家三代  郝董爆郭晶晶未成年被性侵
+该项实验旨在以幼犬作为诱饵吸引有传染性的沙蝇叮咬，感染后注射实验药物以查验有效程度。实验过程中细节的描述因过于残忍引起网民的强烈不适，而这种生理及心理的不适超越了左右之分。
 
-2.瑞丽抵边村民 群起抗议要生存
+佛州州长德桑蒂斯说，这是“难以想象和令人厌恶”的，纳税人的钱不能被这样使用，福奇必须要承担责任。众议员泰勒·格林发起了一个国会请愿书，她说资助虐狗实验和中共生物武器杀死几百万人的最高薪酬联邦雇员需要被解雇。在这条推特热搜下，左翼人士同样心有余悸。有人留言：幸亏我的狗很安全！
 
-3.中共商务部发文引发民众恐慌 大量抢购民生必需品
+美国文化中，狗是重要的家庭成员。这次爆出的“虐狗”丑闻，在社交媒体持续发酵，有望撼动福奇在科学、医疗界坚不可摧的地位。
 
-4.黑龙江甘肃疫情升温 北京铁路停售23个地區车票
+文字版原文：[#FauciLiedDogsDied成热搜 “虐狗实验”持续发酵](https://gnews.org/zh-hans/1635974/)
 
-5.郭先生谈喜币的铸币权及其无国界流通价值
+音频处理：喜山必胜Maverick
 
-6.创造历史！共和党在州长和副州长选举中横扫弗州
-
-7.巴西颁布法令禁止雇主解雇未接种疫苗员工
-
-8.沙特批准辉瑞疫苗用于5-11岁儿童
-
-9.受中共病毒影响 美联储或提早加息应对通胀
-
-10.台湾成立专案小组，防备北京利用深伪技术影响公投大选
-
-**GTV链接：**[https://gtv.org/broadcast/watch/6183a03011d1862968017525](https://gtv.org/broadcast/watch/6183a03011d1862968017525)
-
-发布: 文橙
-
-* * *
-
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+发稿：Tom Li
+![This image has an empty alt attribute; its file name is image0.jpeg](https://assets.gnews.org/wp-content/uploads/2021/10/image0.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

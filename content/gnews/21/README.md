@@ -2,64 +2,45 @@
 ---
 
 
-## 疫苗轮盘：某些批次疫苗比其他批次更致命
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1638369/)
+## 购喜币者拥有的是钱,而股票只是被钞票要买的一个希望
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1638470/)
 
-**编译：JennyBall**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/PHOTO-2021-11-04-18-38-34_副本.jpg)
+据[2021年11月03 日 文贵大直播：彭帅爆张高丽丑闻，再次验证爆料革命的真实性；喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产；房地产税会灭国灭党；共和党在弗吉尼亚州长竞选获胜意味着什么](https://gtv.org/video/id=61827dfd11d186296800dd83)时间点1：01：17——
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip121.png)图片来源：newstarget.com
+**郭文贵先生：**还有一个大家告诉的一块钱升值意味着什么，一块钱乘以1000亿那就是1000亿，1000亿个，你乘以10亿个就是10亿，你看它动每一点儿的时候，它不是股票的跌幅。所有喜币的跌幅升下都会被列为未来喜币在任何抵押下的所有证据财务，股票不会的，股票现在我评估你多少钱就多少钱，但是喜币不是的，它是真钱的交易过后我认可的币，我卖你跌下来不等于说我就是这币就没了。
 
-一项新调查发现的数据显示，某些批次的武汉冠状病毒（Covid-19）“疫苗接种”比其他批次更致命。
+别忘了，我郝海东现在我拥有十万个币，你现在跌到三块钱了，我拿的我10万个币我还是10万个，你涨1000块钱，我10万个币还是10万个币，为什么？它是个币的属性，因为是以个数决定的，Elon Musk的股票很厉害，你拿着10万股郝海东先生，我不关心你10万股是10万还是100万，你这个10万值多少钱，你是被币来衡量的，10万股现在涨了1000块钱一股了——100万，涨一块钱了，那就是10万块钱，我不管你多少股。
 
-这些额外致命的地块分布在美国各地，而不仅仅是一个地区或区域。其中许多也是在国会大厦“起义”期间的早期引入的。
+但对拥有币的人来讲，我不管你多少价我都有10万币，因为我这个10万币不是根据价格的起伏的，我的10万币有20%的黄金在这搁着呢——储备。我随时可以变成喜美元，你告诉我Elon Musk的股票能马上可以变成美元吗？你要抛吧，还有个你没了以后谁给你20%啊，没有的！他没有锚定、没有基础。
 
-这些数据是公开可用的，但由于其输入疫苗不良事件报告系统 (VAERS) 的方式而难以检索。但是，对于那些具有解析它的专业知识的人来说，它就在那里。
+这是币和股票，股票是希望，币是真金白银，币可以全球流通无障碍。股票只在股票市场某种范围内。不是鸡和蛋，刚才战友说是鸡和蛋，不是鸡和蛋的问题，是真真正正的它是一个无限大的一个摸得着的，它是一个印钞的一个机器。
 
-“燃烧平台”（Burning Platform）使用名为 Postgres 的系统将其分离。使用这种方法，发现莫德纳和辉瑞-生物科技注射剂的死亡分布遍布整个地图。
+你那个是被机器被钞票要买的一个希望而已，而且随时可以不存在。它是有价值的，它是无价值的。兄弟，你们搞明白的时候，今天你们记住，你买的是钱，你买的不是希望。股票是希望，所以今天喜联储的上市牛就牛在这儿，你谁都操作不了，它是24小时在线，我原来跟你说上市以前我都不知道24小时，我真不知道。
 
-一些疫苗非常致命，而另一些疫苗几乎没有死亡，至少报告的人数不多。这可能归因于报告错误，或者某些批次可能比其他批次更危险。
+（以下暂略）
 
-“我们没有关于标准批次大小的可靠信息，但新闻文章表明，平均批次大小为 1000 瓶（约 6000 剂），” 《曝光》(The Expose) 报道，该公司对这些异常现象引起关注。
+撰稿：喜马拉雅的肉夹馍；
 
-“针对单个批号流感疫苗 ，VAERS 报告的最多不良事件报告数量为 26。更令人震惊地发现，针对单个批号的流感疫苗向 VAERS 报告的不良事件报告数量最多。截至 2021 年 10 月 15 日，辉瑞 Covid-19 疫苗为 3,563，这并非异常。”
+审核：喜马拉雅的馍夹肉；
 
-**VAERS ****故意隐藏疫苗批次，使查询相关的伤害和死亡几乎不可能**
+校对：Maarago；
 
-不幸的是，很难提取数据并使其有意义，因为 VAERS 数据库的构建方式是有意将伤害和死亡与特定疫苗批次分开。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-换句话说，它需要额外的努力来匹配并理解它。幸运的是，“燃烧平台”投入了工作并以一种更清晰的方式呈现了真实情况。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-“……数据跨两个表，并且在 VAERS 发布时不相关，并且，他们的网站上没有快速简便的报告，可以按批号对事件进行比较，”该网站解释道。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-“虽然可以从他们的网页上进行这种分析，但这并不容易。”
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-不过，**Postgres 使之成为可能**，现在已经不在是秘密了。显然，只有少数注射批次的死亡人数过多，而绝大多数注射的死亡人数要少得多。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-这对于辉瑞和莫德纳都是如此，只是要明确一点。这两个品牌的疫苗在大量注射批次中的死亡人数分布相似，这表明正在发生一些严重的有趣事件。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-“**你想告诉我 CDC、NIH 和 FDA 不知道这件事吗？**”燃烧平台问道。
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-“我可以将这些数据存入数据库，对它运行 30 秒的查询，并在这些关联的分布应该是正常的或至少接近正常的情况下，立即识别出与某些批号相关的急剧上升的死亡和危险率，在所有生产和使用的批次中应该是正常的，或者至少接近正常？”
-
-**大多数批次都附有个位数的死亡人数**，而少数包含大部分。就结果分布而言，**这甚至远非“接近”。**
-
-燃烧平台上提供了对所有这些的更深入分析。
-
-**点评：我们都问问**“ **你想告诉我 CDC、NIH 和 FDA 不知道这件事吗？**”
-
-本文来源包括：[TheExpose.uk](https://theexpose.uk/2021/10/31/100-percent-of-covid-19-vaccine-deaths-caused-by-just-5-percent-of-the-batches-produced/)
- [TheBurningPlatform.com](https://www.theburningplatform.com/2021/11/02/uh-thats-not-a-conspiracy-theory)
- [NaturalNews.com](https://www.naturalnews.com/2021-10-31-moderna-covid-booster-shot-gut-feeling-not-science.html)
-
-**新闻来源**：[newstarget.com][JAB ROULETTE: Some covid “vaccine” lots found to be far deadlier than others](https://www.newstarget.com/2021-11-02-jab-roulette-covid-vaccine-lots-deadlier.html)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

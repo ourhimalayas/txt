@@ -2,32 +2,25 @@
 ---
 
 
-## 彼得·纳瓦罗“爆料人和真相！”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1638433/)
+## 欧盟取消中共国关税普惠，实属咎由自取
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1638504/)
 
-**编译：JennyBall**
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-24.jpg)
+[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fimg.kuajingyan.com%2Fhome%2F2019-08-15%2Fb506e4ad6508d6ed.jpg&amp;imgrefurl=https%3A%2F%2Fwww.kuajingyan.com%2Farticle%2F8065&amp;tbnid=jNw1SJh_nly-tM&amp;vet=12ahUKEwij9Piq2v7zAhXOK7cAHW5-BHkQMygDegUIARChAQ..i&amp;docid=9L2wXWKApSuCSM&amp;w=550&amp;h=309&amp;q=%E5%85%B3%E7%A8%8E&amp;ved=2ahUKEwij9Piq2v7zAhXOK7cAHW5-BHkQMygDegUIARChAQ)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip123.png)图片来源：redvoicemedia.com
+11月4日凤凰网报道，据来自欧洲各方的消息，从今年12月1日起，欧盟成员国、英国和加拿大等32个国家即将取消对中国普惠制的关税优惠政策。中共国海关总署日前也发出公告称，自2021年12月1日起，对输往欧盟成员国、英国、加拿大、土耳其、乌克兰和列支敦士登等地货物，不再签发普遍优惠制度原产地证书，从而证实了欧洲国家已不再给予中共国普惠制关税优惠待遇的消息。
 
-川普前高级助手彼得·纳瓦罗（Peter Navarro）加入“斯图·彼得斯秀”,讨论福奇罪行，这些罪行都在纳瓦罗的新书《川普时代》中曝光，可在 PeterNavarro.com  上找到。
+普惠制的全称就是普遍优惠制度，是发达国家的给惠国对发展中国家及地区的受惠国出口制成品和半制成品给予普遍的、非歧视的、非互惠的关税优惠制度。就是在最惠国税率基础上，进一步给予受惠国进口关税政策，中共国也积极利用普惠制扩大向发达国家的出口业务。取消普惠制待遇后，中共国出口商品已经不能凭借普惠制原产地证书享受关税优惠，海关的相关签证措施也将随之发生调整。这次欧盟等多国取消对中共国关税优惠待遇，会影响到中共国的一些低利润及需要大量劳工的产业。中共国自称经济总量已经跃居全球第二大经济实体，中共公布的数据人均GDP已经超过了一万美元，按照标准，已不是发展中国家，欧盟的做法是合情合理。
 
-彼得斯问了纳瓦罗弗吉尼亚州势均力敌的选举，并怀疑传统媒体可能会利用这次选举来冷却全国各地的审计工作。在谈话中，彼得斯还指出杨金（Youngkin）在第一天弗吉尼亚州下令进行审计的重要性。
+一个时期以来，中共国的言语和表现，已经把自己表述为比资本主还富裕和强大的国家，大规模的送，持续不断的捐，争着抢着跑在世界前列，所谓的下一盘大棋，其结果是搬石头砸自己的脚，所有的惩罚都是咎由自取的结果。
 
-玛莎（Martha ）和伊曼纽尔·科尔特斯（Emanuel Cortes）也参加了彼得斯的节目，他们说，他们的兄弟正试图撤销玛莎对她自闭症女儿的监护权，以便他可以给她注射危险而致命的 COVID 疫苗。更糟糕的是那个撒旦兄弟恰好也是市长，他利用自己的地位来霸凌法院，允许他用导致数万美国人死亡的神秘物质注射杀害这个脆弱的成年人。
+信息来源：[欧盟取消关税普惠，不承认中国是发展中国家](https://mr.mbd.baidu.com/r/vPEUr3Qxq0?f=cp&amp;rs=208158433&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=34d1493282635c2c)
 
-简·鲁比（Jane Ruby ）博士参加了每周一次的“问简医生问题”“Ask Dr. Jane”部分的“彼得斯秀”，当时鲁比宣布新的研究结果表明，加强注射的伤害效力比第一组的注射“强 10 倍”，仅 VAERS 网站就记录了近 20,000 人的死亡，据说这仅占实际不良事件的 1%。
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
 
-**评论：希望更多的人能够看到纳瓦罗先生的新书《川普时代》，因为在第23页，纳瓦罗明确地佐证到，川普总统能够在2020年1月31日发出限飞令——禁止来自中共国的航班，就是因为得到了爆料革命的情报，这个命令挽救了美国。也就是说，真相挽救了美国！书中将曝光科学教皇福奇的真面目，爆料革命歌曲唱到：“真相掀怒潮！拔剑覆红朝！”只有真相才能让更多的人从疫苗灾难中觉醒，自救，行动！**
-
-**新闻来源**：[redvoicemedia.com][“The Stew Peters Show” Nov 3, 2021: WHISTLEBLOWERS & TRUTH!](https://www.redvoicemedia.com/2021/11/the-stew-peters-show-nov-3-2021-whistleblowers-truth/?utm_source=right-rail-latest)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
 
  
 

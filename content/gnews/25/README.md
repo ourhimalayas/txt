@@ -2,30 +2,43 @@
 ---
 
 
-## 中共国占全球二氧化碳排放量的 31%
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1638325/)
+## 郭先生谈喜币的铸币权及其无国界流通价值
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1638437/)
 
-新闻来源：德国世界报网页版
+**By:秘翻新闻**
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+***2021-11-04***
+[![](https://assets.gnews.org/wp-content/uploads/2021/11/1104-2.jpg)](https://gtv.org/broadcast/watch/6183a03011d1862968017525)点击图片观看视频
+**新闻摘要:**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_0552.jpg)
+1.中共高官玩女人一家三代  郝董爆郭晶晶未成年被性侵
 
+2.瑞丽抵边村民 群起抗议要生存
 
-图片来源： 视频截图
+3.中共商务部发文引发民众恐慌 大量抢购民生必需品
 
-2021年，中国占全球温室气体排放量的 31%。这源于在格拉斯哥全球气候会议上发表的一项研究项目的气候报告。
+4.黑龙江甘肃疫情升温 北京铁路停售23个地區车票
 
-去年，中国占全球温室气体排放量的 31%。这来自研究项目 2021 年全球碳项目的气候报告，该报告于周四在格拉斯哥举行的世界气候大会 COP26 之际发布。
+5.郭先生谈喜币的铸币权及其无国界流通价值
 
-全球碳项目的作者解释说，二氧化碳排放量的大幅增加可能是由于中国经济比世界其他地区更早地从新冠危机中恢复过来。能源部门和工业是造成较高二氧化碳排放量的原因。
+6.创造历史！共和党在州长和副州长选举中横扫弗州
 
-报告称，今年全球温室气体排放量将再次接近新冠病毒大流行前的水平。研究人员表示，如果今年的趋势继续下去，则不能排除 2022 年排放量进一步增加的可能性。当道路和空中交通恢复到以前的水平时尤其如此。
+7.巴西颁布法令禁止雇主解雇未接种疫苗员工
 
-原文链接：[https://www.welt.de/politik/ausland/article234829530/COP26-China-fuer-31-Prozent-der-globalen-CO2-Emissionen-verantwortlich-Rueckgang-in-Deutschland.html](https://www.welt.de/politik/ausland/article234829530/COP26-China-fuer-31-Prozent-der-globalen-CO2-Emissionen-verantwortlich-Rueckgang-in-Deutschland.html)
+8.沙特批准辉瑞疫苗用于5-11岁儿童
 
-责任编辑、发布： Shuizhuyu
+9.受中共病毒影响 美联储或提早加息应对通胀
 
+10.台湾成立专案小组，防备北京利用深伪技术影响公投大选
+
+**GTV链接：**[https://gtv.org/broadcast/watch/6183a03011d1862968017525](https://gtv.org/broadcast/watch/6183a03011d1862968017525)
+
+发布: 文橙
+
+* * *
+
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
