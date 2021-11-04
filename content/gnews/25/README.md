@@ -2,14 +2,10 @@
 ---
 
 
-## 怀疑抗体数量下降，医务人员连续4次接种中共病毒疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1637613/)
+## 11/3/2021 文贵直播：张高丽是想当皇帝的人，他和习有个人恩怨，习非弄死他不可
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1637682/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._4-scaled.jpg)
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
-
+秘密翻译组-北美组
 
  
 

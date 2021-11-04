@@ -2,22 +2,44 @@
 ---
 
 
-## 疫情见缓 急诊室爆满为哪般
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1637828/)
+## 菲律宾总统发誓惩罚地方官员，除非Covid-19疫苗的推广有改善
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1637854/)
 
-编译：致敬香港！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-2.png)
-图片来源： 网络
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-“零对冲”网11月3日转载themostimportantnews.com的报道，美国新冠病例近期的每日新增不到几个月前的一半，但各地医院的急诊却出现了人满为患的异象，令人深思。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/菲律宾.jpg)
 
-比如，29日有报道描述密歇根州兰辛市的史派罗医院（Sparrow Hospital），72间急诊病房全部满员，走廊里长串的担架上躺满了病人，面对大量的病情比以往严重得多的患者，医护人员不堪重负，急诊室护理主任用焦虑得近乎发抖的声音对记者表示 “这景象太让人难过了”。据工作人员透露，这些患者的主要症状包括“腹痛”、“呼吸系统问题”、“血栓”和“心脏病”等。
 
-疫情爆发的确延误了很多慢性病患者的治疗，但这些症状中的“心脏病”不能不引起人们的注意，先回顾几件这几天才发生的事。10月30日， 美国宾州的17岁男生巴克拉格（Blake Barklage）在他的足球队一起庆祝了比赛胜利后、晚上因“突发性心脏病”离世；10月27日，原本健康的美国12岁男孩基德（Jayson Kidd）在学校篮球训练热身时，因“冠状动脉问题”突然离世；10月30日，33岁的巴塞罗那射脚阿奎罗（Sergio Aguero）在对阵阿拉维斯的赛场上突然倒地，抢救后被诊断“心律失常”；11月1日，冰岛松达尔足球俱乐部的28岁中场帕森（Emil Pálsson）在比赛中心脏骤停……
 
-心脏病一向是老年人的杀手，而越来越多的健康年轻人出现这样的严重问题，如何解释？
+图片来源：asia.nikkei.com
 
-**新闻来源：**[Something Really Strange Is Happening At Hospitals All Over America](https://www.zerohedge.com/medical/something-really-strange-happening-hospitals-all-over-america)
+
+#### 编译：小红帽
+
+菲律宾总统罗德里戈·杜特尔特 (Rodrigo Duterte) 威胁说，如果政府官员未能达到该国中共病毒（Covid-19）疫苗推广的目标，将对其进行惩罚。目前只有三分之一左右的人口完全接种了疫苗。
+
+在周三播出的一条录音信息中，杜特尔特挑战政府官员，要求将每天的中共病毒疫苗接种量从目前的平均50万次增加到至少100万次。
+
+他声称，该国拥有足够的疫苗，因此没有理由不能在这个拥有1.09亿人口的国家加快推广接种速度。在该国，其中7700万人有资格接种疫苗。
+
+“我们在疫苗接种计划的整体情况中看到了断层线。我并不满意。”他说。
+
+这位直言不讳的领导人上个月提议，在反疫苗接种者睡觉时为他们接种疫苗，并要求地方官员做更多工作。总统争辩说，“没有以最迅速的方式执行或使用给予他们的疫苗”的官员将受到制裁并追究其责任。他没有详细说明处罚可能是什么。
+
+总统已要求警察和军队使用航空资源向全国各省和岛屿运送疫苗。
+
+作为逐步放松封锁措施的一部分，政府周三宣布将从周四开始取消马尼拉地区的夜间宵禁。
+
+**参考新闻：**[Philippines’ Duterte vows to punish local officials unless Covid-19 vaccine rollout improves — RT World News](https://www.rt.com/news/539240-philippines-duterte-vaccines-covid19/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
