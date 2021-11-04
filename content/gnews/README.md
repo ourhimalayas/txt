@@ -15,98 +15,98 @@
 
 ---
 
-### [美国防部正积极制定对策应对中共试射的高超音速导弹](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [文贵视角:喜交所(喜联储)正在给中共&#8221;放血&#8221;](/content/gnews/2/README.md)
+### [文贵爆料 3/11: 中共的罪恶，张高丽难以望其项背](/content/gnews/1/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共当局警告人们要储备食物以度过冬天](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [雅虎正式退出中共国市场](/content/gnews/4/README.md)
- ` GTV新闻访谈`
-
-### [基恩表示，台湾应武装自己为美国和其盟友的介入争取时间](/content/gnews/5/README.md)
- ` GTV新闻访谈`
-
-### [中国网球运动员彭帅指控中国前国家副主席性侵案](/content/gnews/6/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [11/04/21 香港快讯 【哀我中大】毕业礼校园多处现横额 保安一度威胁清场](/content/gnews/7/README.md)
- ` 英喜-粵語組`
-
-### [11/3/2021 文贵直播：除掉张高丽主要是出于习近平的个人恩怨](/content/gnews/8/README.md)
- ` 秘密翻译组-北美组`
-
-### [美台加强教育领域的合作](/content/gnews/9/README.md)
- ` GTV新闻访谈`
-
-### [西媒头条 — 第102期](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [从彭帅被张高丽性侵说起](/content/gnews/11/README.md)
- ` 银河勇气之星`
-
-### [欧洲议会官方代表团首次访问台湾](/content/gnews/12/README.md)
- ` GTV新闻访谈`
-
-### [喜币与股票的本质区别](/content/gnews/13/README.md)
- ` GTV新闻访谈`
-
-### [世界粮食价格创10年新高](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [喜币上市：踏上世界货币的巅峰之路](/content/gnews/15/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [秘翻在线：中共步步紧逼 台湾拟加强训练预备役部队](/content/gnews/16/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [税赋和徭役](/content/gnews/17/README.md)
- ` 骄子`
-
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/18/README.md)
- ` wenwu`
-
-### [美国前美国国务卿迈克.蓬佩奥接受福克斯采访：美国价值正在回归](/content/gnews/19/README.md)
+### [加拿大及各省疫情一览表](/content/gnews/2/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [铅水之祸](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭文贵先生2021年11月04日盖特视频（6分07秒）全文字版](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭文贵先生11月3日大直播的三个要点](/content/gnews/22/README.md)
+### [Truth Social被控违反软件版权许可](/content/gnews/3/README.md)
  ` GTV新闻访谈`
 
-### [文·贵天成——文贵先生谈“吴征、杨澜”（十五）](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
+### [GTV新闻访谈简报|2021年11月04日早](/content/gnews/4/README.md)
+ ` 纽约香草山MOS01`
 
-### [美国防部：中共国核弹量可于2030年达千枚](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [全球精英一天碳排放量超1,600苏格兰人一年](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [墙内要闻汇编 11月4日](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [美国防部正积极制定对策应对中共试射的高超音速导弹](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/3/2021 文贵直播：中共征收房产税为时已晚，亡党亡国！](/content/gnews/26/README.md)
+### [文贵视角:喜交所(喜联储)正在给中共&#8221;放血&#8221;](/content/gnews/7/README.md)
+ ` 秘密翻译组-原创组`
+
+### [中共商务部再发家庭储备生活必需品公告](/content/gnews/8/README.md)
+ ` GTV新闻访谈`
+
+### [中共当局警告人们要储备食物以度过冬天](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [雅虎正式退出中共国市场](/content/gnews/10/README.md)
+ ` GTV新闻访谈`
+
+### [基恩表示，台湾应武装自己为美国和其盟友的介入争取时间](/content/gnews/11/README.md)
+ ` GTV新闻访谈`
+
+### [中国网球运动员彭帅指控中国前国家副主席性侵案](/content/gnews/12/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [11/04/21 香港快讯 【哀我中大】毕业礼校园多处现横额 保安一度威胁清场](/content/gnews/13/README.md)
+ ` 英喜-粵語組`
+
+### [11/3/2021 文贵直播：除掉张高丽主要是出于习近平的个人恩怨](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|纳瓦罗新书《川普时代》透露爆料革命的影响力](/content/gnews/27/README.md)
+### [美台加强教育领域的合作](/content/gnews/15/README.md)
+ ` GTV新闻访谈`
+
+### [西媒头条 — 第102期](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [从彭帅被张高丽性侵说起](/content/gnews/17/README.md)
+ ` 银河勇气之星`
+
+### [欧洲议会官方代表团首次访问台湾](/content/gnews/18/README.md)
+ ` GTV新闻访谈`
+
+### [喜币与股票的本质区别](/content/gnews/19/README.md)
+ ` GTV新闻访谈`
+
+### [世界粮食价格创10年新高](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [税赋和徭役](/content/gnews/21/README.md)
+ ` 骄子`
+
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/22/README.md)
+ ` wenwu`
+
+### [郭文贵先生2021年11月04日盖特视频（6分07秒）全文字版](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文·贵天成——文贵先生谈“吴征、杨澜”（十五）](/content/gnews/24/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国防部：中共国核弹量可于2030年达千枚](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [墙内要闻汇编 11月4日](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [11/3/2021 文贵直播：中共征收房产税为时已晚，亡党亡国！](/content/gnews/27/README.md)
+ ` 秘密翻译组-北美组`
+
+### [有声|纳瓦罗新书《川普时代》透露爆料革命的影响力](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [11/3/2021 文贵直播：疫苗和病毒的真相是新中国联邦最大的子弹](/content/gnews/28/README.md)
+### [11/3/2021 文贵直播：疫苗和病毒的真相是新中国联邦最大的子弹](/content/gnews/29/README.md)
  ` 秘密翻译组-北美组`
 
-### [文·贵天成——文贵先生谈“吴征、杨澜”（十四）](/content/gnews/29/README.md)
+### [文·贵天成——文贵先生谈“吴征、杨澜”（十四）](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [11/4/2021 中日财经爆：佳兆业步恒大后尘，也要暴雷？](/content/gnews/30/README.md)
+### [11/4/2021 中日财经爆：佳兆业步恒大后尘，也要暴雷？](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：中共粮食到底是充足还是短缺？](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [西喜时事新闻简报 — 美国时事篇](/content/gnews/32/README.md)
  ` wenwu`
