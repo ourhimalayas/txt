@@ -2,25 +2,21 @@
 ---
 
 
-## 列支敦士登、卢森堡等多国投资新中国联邦喜联储
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1637938/)
+## 喜币将成为新世界秩序下的正义捍卫者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1637943/)
 
-作者：英国喜庄园 – I770775
-
+作者：纽约香草山 – Noemi
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+2021年11月1日，在“Hcoin to the moon”庆典上，文贵先生再次声明，喜联储、喜币与喜美元的横空出世是超前地改变了现有的金融市场规则，比特币已经跨过了法律红线，但Hcoin永远不会越过法律的红线！一切跨过了法律红线的金融货币、产品、系统都终将崩溃。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture11.jpg)
+文贵先生说，比特币作为加密货币的鼻祖，它的开创性是伟大的，可以说，它所代表的区块链加密货币技术改变了人类的一切。但是跨过了法律红线的比特币注定只能沦为黑暗势力的洗钱工具，它只称得上是一个“奉献者”。而在法律允许范围内改变规则的喜币，不会接受任何的洗钱和违法犯罪行为，它会成为新世界秩序下坚定的正义捍卫者。在人权和财富安全的新世界里，喜币终将越走越远。
 
-在11月1日喜币上市庆典的直播中，郭文贵先生透露，列支敦士登、卢森堡等多个WTO成员国不惧中共威胁，毅然撤回与中共国贸易关税最惠国的待遇。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture33.jpg)
-郭先生表示，这些国家基本上已经与中共脱钩，并转向投资新中国联邦的喜联储。其中，新中国联邦喜联储的第一个大额储备银行就来自列支敦士登，喜联储主席威廉姆已经与该国签订了金融服务合同。另外，作为全球人均GDP最高的国家，卢森堡也已经是喜联储另一家大型储备银行和黄金合作银行的合作方。
-
-郭先生还提到，目前，新中国联邦的委托公司与澳大利亚、新西兰、加拿大等多个国家的商谈仍在进行中，未来会有越来越多的国家与新中国联邦站在一起。
-
-参考链接：[列支敦士登、卢森堡等多国投资新中国联邦喜联储](https://gettr.com/user/miles)
+参考链接：[喜币将成为新世界秩序下的正义捍卫者](https://gettr.com/post/pfu92y109d)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 总编：Irene木木
-编辑：Irene木木
+编辑：AN
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
@@ -29,7 +25,9 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

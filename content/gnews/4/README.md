@@ -2,16 +2,14 @@
 ---
 
 
-## 辉瑞双倍剂量的有效性在几个月后下降
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1638095/)
+## 五角大楼对中共国核武库发出警告
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1638140/)
 
 翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11032.jpg)图片来自Wsj
-发表在《新英格兰医学杂志》上的一项新的以色列研究表明：辉瑞疫苗的有效性在所有年龄段的几个月后都会下降。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11041.jpg)图片来自world Politics Review
+11 月 3 日–五角大楼发表的一份报告中说到：中共国发展核武库的速度比预期快得多，与美国的差距在日益缩小。该报告解释了中共国在 2027 年之前拥有 700 枚核弹头，到 2030 年预期将达到 1000 枚，与五角大楼一年前的预测相比，他们的军火库增加了一倍。
 
-在所有年龄组中，双倍剂量疫苗赋予的免疫力在最后一次接种后的几个月内大幅下降，感染率的增加可能有两个原因：疫苗效力的降低和Delta 变体的高传染性。该研究表明，对于辉瑞疫苗的第二剂，接种后 1 周至 2 个月期间的效力从 96% 下降到接种后 4-7 个月期间的 84%。迄今为止，以色列约有 300 万人接种了第三剂辉瑞。
-
-原文链接：[https://www.repubblica.it/salute/2021/11/02/news/l\_efficacia\_della\_doppia\_dose\_pfizer\_cala\_dopo\_pochi\_mesi\_lo\_dice\_uno\_studio\_israeliano-324297816/?ref=RHTP-VS-I287621970-P16-S5-T1](https://www.repubblica.it/salute/2021/11/02/news/l_efficacia_della_doppia_dose_pfizer_cala_dopo_pochi_mesi_lo_dice_uno_studio_israeliano-324297816/?ref=RHTP-VS-I287621970-P16-S5-T1)
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/03/allarme-pentagono-sullarsenale-nucleare-della-cina\_452f44bd-517a-48c2-8ade-fd38e50fcc1c.html](https://www.ansa.it/sito/notizie/topnews/2021/11/03/allarme-pentagono-sullarsenale-nucleare-della-cina_452f44bd-517a-48c2-8ade-fd38e50fcc1c.html)
 
 责任编辑/发布：意大利达芬奇农场   萧亦
 

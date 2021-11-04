@@ -2,25 +2,18 @@
 ---
 
 
-## 美国开始对5—11岁儿童下手
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1638054/)
+## 辉瑞双倍剂量的有效性在几个月后下降
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1638095/)
 
-撰稿：东京樱花团/闻雨
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11032.jpg)图片来自Wsj
+发表在《新英格兰医学杂志》上的一项新的以色列研究表明：辉瑞疫苗的有效性在所有年龄段的几个月后都会下降。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/美国开始对5—11岁儿童下手.png)
+在所有年龄组中，双倍剂量疫苗赋予的免疫力在最后一次接种后的几个月内大幅下降，感染率的增加可能有两个原因：疫苗效力的降低和Delta 变体的高传染性。该研究表明，对于辉瑞疫苗的第二剂，接种后 1 周至 2 个月期间的效力从 96% 下降到接种后 4-7 个月期间的 84%。迄今为止，以色列约有 300 万人接种了第三剂辉瑞。
 
-11月2日，美国疾控中心（CDC）宣布，建议5-11岁儿童接种辉瑞公司的病毒疫苗。11月3日，美国媒体报道，一些地区已经开始接种。该疫苗针对约2800万人，向各州分发疫苗的工作已经开始，接种工作将在下周正式开始。
+原文链接：[https://www.repubblica.it/salute/2021/11/02/news/l\_efficacia\_della\_doppia\_dose\_pfizer\_cala\_dopo\_pochi\_mesi\_lo\_dice\_uno\_studio\_israeliano-324297816/?ref=RHTP-VS-I287621970-P16-S5-T1](https://www.repubblica.it/salute/2021/11/02/news/l_efficacia_della_doppia_dose_pfizer_cala_dopo_pochi_mesi_lo_dice_uno_studio_israeliano-324297816/?ref=RHTP-VS-I287621970-P16-S5-T1)
 
-根据日本厚生劳动省公布的文件说，辉瑞公司的中共病毒疫苗目前正在进行临床试验中，其实验在2023年5月2日才能完成。也就是说，疫苗还在实验阶段，打了疫苗以后无论出了什么问题，辉瑞公司都是可以不负任何责任的。
-
-经过这将近一年的观察，我们已经知道中共病毒疫苗是不仅不能预防感染，而且还有很多致命的副作用，你想让自己的孩子成为他们的小白鼠吗？
-
-信息来源：[米、5～11歳の接種始まる　当局が推奨、来週本格化](https://news.yahoo.co.jp/articles/fb66c800af86b7de9a7a471eec8ec0214ce24f87)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
-
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 
