@@ -2,26 +2,45 @@
 ---
 
 
-## 北交所备具，挑战美国
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1637760/)
+## 菲律宾总统发誓惩罚地方官员，除非Covid-19疫苗的推广有改善
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1637854/)
 
-撰稿：东京樱花团/知了知了
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/北交所备具，挑战美国.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.dw.com%2Fimage%2F59518387_303.jpg&amp;imgrefurl=https%3A%2F%2Fwww.dw.com%2Fzh%2F%25E6%2581%2592%25E5%25A4%25A7%25E5%258D%25B1%25E6%259C%25BA%25E5%2587%25BA%25E5%2594%25AE%25E9%2583%25A8%25E5%2588%2586%25E8%2582%25A1%25E6%259D%2583%25E7%25A0%25B4%25E5%25B1%2580-%25E4%25B8%25AD%25E5%259B%25BD%25E7%25A7%25B0%25E9%25A3%258E%25E9%2599%25A9%25E5%258F%25AF%25E6%258E%25A7%2Fa-59569138&amp;tbnid=k84sdE0mqZZaCM&amp;vet=12ahUKEwiv7dDbovbzAhXITPUHHTcaBcIQMygKegUIARCzAQ..i&amp;docid=eW-6voN23xKetM&amp;w=700&amp;h=394&amp;q=%E6%81%92%E5%A4%A7%E5%80%BA%E5%8A%A1%E6%98%AF%E6%9B%B4%E5%A4%A7%E7%BB%8F%E6%B5%8E%E5%8D%B1%E6%9C%BA%E7%9A%84%E5%89%8D%E5%A5%8F&amp;ved=2ahUKEwiv7dDbovbzAhXITPUHHTcaBcIQMygKegUIARCzAQ)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/菲律宾.jpg)
 
-11月2日晚间，北交所正式发布交易、会员管理的2件基本业务规则，以及相应的31件细则，内容涉及发行上市、证券交易、融资并购、会员管理规则等方面。截至目前，北京证券交易所7件基本业务规则已全部发布，北交所制度框架搭建基本完成。
 
-这是一个典型的投机平台，核心规则无不围绕激励赌博、鼓励炒作、奖励做市的原则展开。其中，新三板精选层平移北交所首日，其股票交易实施30%的涨跌幅限制；股票公开上市交易首日，或退市整理期首日，不设涨跌幅限制。交易方式方面，采取竞价交易、大宗交易、盘后固定价格交易。其中，竞价交易可以引入做市商机制。
 
-这又是一个典型的政治交易平台，文贵先生谈及北交所，目的就是把人民币和中共国政治经济国际化。引入外国中小企业，至北交所融获人民币，直接推进人民币国际化。在西方经济即将崩时，中共国提出要约，别用美元，全用虚拟人民币。这是中共国金融国际化、政治化、独裁化，彻彻底底的开始，挑战的就是美元和美国金融。中共不疯狂，美国永远不会醒来，美国不感到自身威胁，一定不会行动。
+图片来源：asia.nikkei.com
 
-信息来源：
 
-[北交所开市准备再进一步，七大基本业务规则悉数落地](https://www.yicai.com/news/101217427.html)
+#### 编译：小红帽
 
-*编辑：东京樱花团/ 喜马拉雅的微尘
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
+菲律宾总统罗德里戈·杜特尔特 (Rodrigo Duterte) 威胁说，如果政府官员未能达到该国中共病毒（Covid-19）疫苗推广的目标，将对其进行惩罚。目前只有三分之一左右的人口完全接种了疫苗。
+
+在周三播出的一条录音信息中，杜特尔特挑战政府官员，要求将每天的中共病毒疫苗接种量从目前的平均50万次增加到至少100万次。
+
+他声称，该国拥有足够的疫苗，因此没有理由不能在这个拥有1.09亿人口的国家加快推广接种速度。在该国，其中7700万人有资格接种疫苗。
+
+“我们在疫苗接种计划的整体情况中看到了断层线。我并不满意。”他说。
+
+这位直言不讳的领导人上个月提议，在反疫苗接种者睡觉时为他们接种疫苗，并要求地方官员做更多工作。总统争辩说，“没有以最迅速的方式执行或使用给予他们的疫苗”的官员将受到制裁并追究其责任。他没有详细说明处罚可能是什么。
+
+总统已要求警察和军队使用航空资源向全国各省和岛屿运送疫苗。
+
+作为逐步放松封锁措施的一部分，政府周三宣布将从周四开始取消马尼拉地区的夜间宵禁。
+
+**参考新闻：**[Philippines’ Duterte vows to punish local officials unless Covid-19 vaccine rollout improves — RT World News](https://www.rt.com/news/539240-philippines-duterte-vaccines-covid19/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

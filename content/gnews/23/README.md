@@ -2,22 +2,47 @@
 ---
 
 
-## 疫情见缓 急诊室爆满为哪般
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1637828/)
+## 一天内近四万澳大利亚人签署了“杀死法案”请愿书
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1637921/)
 
-编译：致敬香港！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-2.png)
-图片来源： 网络
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-“零对冲”网11月3日转载themostimportantnews.com的报道，美国新冠病例近期的每日新增不到几个月前的一半，但各地医院的急诊却出现了人满为患的异象，令人深思。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a13607cf753faf19de520d6fec4346253c3e94a5.jpg)
 
-比如，29日有报道描述密歇根州兰辛市的史派罗医院（Sparrow Hospital），72间急诊病房全部满员，走廊里长串的担架上躺满了病人，面对大量的病情比以往严重得多的患者，医护人员不堪重负，急诊室护理主任用焦虑得近乎发抖的声音对记者表示 “这景象太让人难过了”。据工作人员透露，这些患者的主要症状包括“腹痛”、“呼吸系统问题”、“血栓”和“心脏病”等。
 
-疫情爆发的确延误了很多慢性病患者的治疗，但这些症状中的“心脏病”不能不引起人们的注意，先回顾几件这几天才发生的事。10月30日， 美国宾州的17岁男生巴克拉格（Blake Barklage）在他的足球队一起庆祝了比赛胜利后、晚上因“突发性心脏病”离世；10月27日，原本健康的美国12岁男孩基德（Jayson Kidd）在学校篮球训练热身时，因“冠状动脉问题”突然离世；10月30日，33岁的巴塞罗那射脚阿奎罗（Sergio Aguero）在对阵阿拉维斯的赛场上突然倒地，抢救后被诊断“心律失常”；11月1日，冰岛松达尔足球俱乐部的28岁中场帕森（Emil Pálsson）在比赛中心脏骤停……
 
-心脏病一向是老年人的杀手，而越来越多的健康年轻人出现这样的严重问题，如何解释？
+图片来源：smh.com.au
 
-**新闻来源：**[Something Really Strange Is Happening At Hospitals All Over America](https://www.zerohedge.com/medical/something-really-strange-happening-hospitals-all-over-america)
+
+#### 翻译：小鱼儿
+编辑：小红帽
+
+近四万澳大利亚人在一天内签署了“杀死”丹尼尔·安德鲁斯法案的请愿书。
+
+叛逆新闻（Rebel News）创建了一个请愿书，交给维多利亚州总督琳达·德绍 AC（Linda Dessau AC）阁下，要求她拒绝御准。
+
+多年来，维多利亚州的州长在社交媒体上被戏称为“独裁者丹”。现在，丹尼尔·安德鲁斯提出了一项法案，为自己建立独裁权力。
+
+该法案第8A条赋予安德鲁斯与1933年德国纳粹独裁统治相同的专制权力。该法案已经在下议院通过，预计将在11月中旬在上议院通过。
+
+如果《2021年公共卫生和福利修正案（大流行病管理）法案》通过成为法律，州长将能够完全自行决定宣布大流行病无限期延长，并行使他认为 “必要”的任何紧急权力。
+
+该法案还明确规定对“特定人群”的歧视是合法的，这引起了人们对未接种疫苗者可能面临多年持续困难的担忧。
+
+这将给维多利亚州造成一种情况，即所有正常的法律都被暂停，而去支持紧急权力（甚至在没有传染病的情况下）。
+
+上周，数以千计的维多利亚人举行了反对该法案的游行。
+
+参考新闻：[‘Kill the Bill’: 38K+ sign petition in ONE day – Rebel News](https://www.rebelnews.com/kill_the_bill_38k_sign_petition_in_one_day)
+
+***发布：小红帽***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

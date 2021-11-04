@@ -2,25 +2,34 @@
 ---
 
 
-## 秘翻在线： 五角大楼报告说中共曾担心美国在2020年大选前开战
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1637850/)
+## 墙内“喜交所”搜索量排全球第一
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1637937/)
 
-#### 翻译：  Evalu
+作者：英国喜庄园 – I770775
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月1日，喜币公开上市，震惊了世界，更惊醒了墙内无数老百姓。
 
-#### 校对： 胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-55.png)      图片来源： /www.dw.com
-美国政治新闻网站Mediaite11月3日报道，星期三，美国五角大楼给国会的关于中共国家军事能力方面的年度报告中详细描述了在2020年底美国总统大选时中共国如何认为美国会采取严厉的军事威胁。
+近日，“喜交所”的搜索量，在短短几天时间内，快速增长百分之五十以上。从搜索量地区排名来看，前五名的国家和地区依次是：中国大陆，香港，澳大利亚，新西兰，新加坡。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture22.jpg)
+非常值得关注的是，在被禁止使用谷歌的中共国，“喜交所”的搜索量却高居榜首。显然，喜币上市，震撼了墙内百姓，将会有巨量的人搜索量却高居榜首，参与喜币的交易，实现个人财富自由。
 
-这份报告对中共国增加核武器研发和弹道导弹表示担忧，也证实了当时的国防部长马克·埃斯伯指示参谋长联席会议主席马克·米利给中共国军事对手打电话明确告诉他美国不会攻击（中国）。
+喜币是世界金融海啸来临之际，新中国联邦为全世界打造的金融诺亚方舟。喜币未来的价值将远超人们的想象。
 
-在2020年10月底，中共国国防部也证实了埃斯伯用官方频道向中共确认“美国并没有意图要煽动起针对中共国的军事危机。”
+参考链接：[墙内“喜交所”搜索量排全球第一](https://gettr.com/post/pfuv191e44)
 
-米利给中共国打电话，最早是在鲍伯·伍德沃徳与罗伯特·柯斯塔合写的书《危险》中透露的，导致了人们对米利的愤怒，认为他对时任的川普总统造成危害。当时是在中共国媒体中到处散布着美国要在大选的最后几天将要故意挑起事端以致引起大规模军事冲突，使得当时中共军队增加警觉，增加调防。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-在题为“中国人民解放军的军事和安全进展”的报告中，警告说中共国到2027年可能会有700枚核弹头，比2020年库存的约200枚将有大幅增加，到十年后数量可能增加一倍。米利说：“我们和世界正在见证全球和地区力量的最大变动。”他认为中共最近的超音速导弹试验和其他军事能力的进展应该引起世界其他地区人们的高度重视。
+总编：木白
+编辑：木白
+校对/发稿：Hetangyuese
 
-[新闻来源](http://Pentagon%20Report%20Says%20China%20Feared%20U.S.%20Would%20Start%20War%20Ahead%20of%202020%20Election)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
