@@ -2,44 +2,38 @@
 ---
 
 
-## 西班牙变更法律允许出版商分享收入后，谷歌新闻将回归
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1637765/)
+## 新泽西州的州长选举结果被推迟公布
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1637824/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+撰稿：Grace
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-4.png)
+图片来源：Newjerseynews
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/dt.common.streams.StreamServer.cls_-820x420-1.jpeg)
+据《纽约邮报》11月3日报道，新泽西州州长的竞选仍然悬而未决，几十台机器在计票前已经被关闭。
 
+当地选举官员说，因为一名投票站工作人员的失误，导致了该州人口第二多的埃塞克斯县(Essex County)的56个投票区的机器在选票统计前被关闭。
 
+这一失误使得民主党州长菲.墨菲(Phil Murphy)和共和党候选人杰克.西塔雷利(Jack Ciattarelli)之间的激烈竞争陷入了僵局。
 
-图片来源：slashgear.com
+埃塞克斯县的县书记员克里斯托弗.杜金（Christopher Durkin）说：“ 这些机器必须被带回仓库，法官将发布命令，让我们打开这些机器，检索结果并公布这些结果。”
 
+杜金表示他希望在周四晚上之前得到各区的结果。
 
-#### 编译：小红帽
+在2020年的总统选举中，埃塞克斯县的民主党投票率很高。
 
-字母控股（Alphabet）表示，谷歌新闻将 “很快 ”重返西班牙，因为该国政府修改了立法，使第三方机构能够直接与这家互联网巨头和其他平台进行谈判。
+据报道，选举开始后，墨菲在民意调查中一直领先，但是，在周三，希亚塔雷利将他们之间的选票差距一度缩小到全州范围内的465票。
 
-西班牙周二通过了一项欧盟版权法，基本上是为谷歌新闻回归该国铺平了道路。
+杜尔金说，受机器错误影响的埃塞克斯县大部分地区位于纽瓦克（Newark）、蒙特克莱尔（Montclair）、马普勒伍德（Maplewood）、东奥兰治和欧文顿（East Orange and Irvington）。他说，这些地区可以关系到10,000至15,000张选票。
 
-该集团的版权指令必须适用于所有成员国，要求谷歌和脸书等互联网巨头与出版商分享收入。
+另一方面，帕塞克县(Paterson)的帕特森市(Passaic County)市长安德鲁.萨伊格(Andrew Sayegh）表示，该县现在和埃塞克斯县的情况一样，法官现在必须批准一项命令，解除投票机的封条，以便统计选票。
 
-该法还取消了集体收费，并使公司能够与出版商达成协议。
+据估计，全州89%的选票已经上报，但还有几十万张选票需要统计。
 
-除了谷歌新闻服务的回归，“新的版权法允许西班牙媒体机构–无论大小–就如何发现他们的内容以及他们想如何利用这些内容赚钱做出自己的决定，”克莱马雷斯说。
+政治专家说，考虑到这些选票的来源和邮寄选票的典型趋势，尚未统计的选票预计会向墨菲倾斜。
 
-在马德里通过立法，要求字母控股和其他新闻聚合机构支付集体许可费，以重新发布标题或故事片断后，谷歌新闻于2014年底在西班牙关闭。
+但考虑到比赛的激烈程度，重新计票的可能性很大。
 
-西班牙政府坚持认为需要采取新的措施，因为他们“承认出版公司和新闻制作者有权为使用他们的内容而获得报酬”。
-
-**参考新闻：**[Google News to relaunch in Spain ‘soon’ after Madrid law change allows companies and publishers to decide how to share revenue — RT World News](https://www.rt.com/news/539263-google-news-relaunch-spain/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**新闻来源：**[**NJ gov race results delayed after vote-counting snafu hits key county**](https://nypost.com/2021/11/03/nj-governor-race-results-delayed-amid-poll-machine-snafus/?utm_campaign=SocialFlow&amp;utm_medium=SocialFlow&amp;utm_source=NYPTwitter)** **
 
  
 
