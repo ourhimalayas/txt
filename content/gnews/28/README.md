@@ -2,14 +2,21 @@
 ---
 
 
-## 怀疑抗体数量下降，医务人员连续4次接种中共病毒疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1637613/)
+## 雅典娜时报-第102期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1637683/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._4-scaled.jpg)
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+#### **《雅典娜时报》汇聚全球新闻时事**
 
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-3.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-1.png)
+***发布：小红帽***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

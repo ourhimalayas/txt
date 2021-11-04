@@ -2,47 +2,38 @@
 ---
 
 
-## 三个标志性事件发生后喜币的价格才真正地出来
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1637770/)
+## 新泽西州的州长选举结果被推迟公布
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1637824/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/09276_副本.jpg)
-据[2021年11月03 日 文贵大直播：彭帅爆张高丽丑闻，再次验证爆料革命的真实性；喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产；房地产税会灭国灭党；共和党在弗吉尼亚州长竞选获胜意味着什么](https://gtv.org/video/id=61827dfd11d186296800dd83)时间点3：32：29——
+撰稿：Grace
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-4.png)
+图片来源：Newjerseynews
 
-**郭文贵先生：**我再告诉你们，喜币发生的事情，一，咱往后看，三到五周就美国中期选举完几乎就任，然后是明年五月份，真正是明年五月份疫苗灾难的开始，世界经济的整个大调整或者是崩塌或者是下行，咱给它在地球挖了个最深的一个漏钱的漏斗，咱是最深的，就像那个水一样。
+据《纽约邮报》11月3日报道，新泽西州州长的竞选仍然悬而未决，几十台机器在计票前已经被关闭。
 
-咱是在喜马拉雅山下面最低处水是最多的，咱就挖了个最深的斗，只要它泄洪，水都得跑咱这来，你没有选择，水不是往高处走，水往低处流，我从来说水永远往低处流，我就挖了个漏斗在这等着，喜币现在远着呢，咱正在挖这个坑过程当中。
+当地选举官员说，因为一名投票站工作人员的失误，导致了该州人口第二多的埃塞克斯县(Essex County)的56个投票区的机器在选票统计前被关闭。
 
-欧元会不会出事？欧元为什么欧元现在一点都不自信，三十几个国家跟共产党脱了，大家记住是天大的事儿，已经脱钩了！三十多个国家脱钩都有可能接受新中国联邦是合法政权，也可能接受咱喜联储是合法货币。
+这一失误使得民主党州长菲.墨菲(Phil Murphy)和共和党候选人杰克.西塔雷利(Jack Ciattarelli)之间的激烈竞争陷入了僵局。
 
-我告诉你，接下来政清你这个小子，你要说说，我这喜欢死你了，七哥要陪你睡一晚上，我陪你，我当女的你当男的，放心。我告诉你，记住七哥说的话，你们要盯住三个标志事件，任何一个真正的有权威的投资机构投喜联储、系支付的时候，叫Exchange，那是喜币的一个标志事件；
+埃塞克斯县的县书记员克里斯托弗.杜金（Christopher Durkin）说：“ 这些机器必须被带回仓库，法官将发布命令，让我们打开这些机器，检索结果并公布这些结果。”
 
-第二件事儿，当有一个国家或有一个地方批给你虚拟货币银行牌照，或国家批给你的整个的就是所谓的虚拟交易市场国家级的牌照的时候，这是第二、第三个大事。
+杜金表示他希望在周四晚上之前得到各区的结果。
 
-到最后的时候，当某国家宣布我承认你是我国家的法币、主权货币的时候，喜币的价格才真正的出来，没这个之前你都当成虚幻，你都当成不存在。
+在2020年的总统选举中，埃塞克斯县的民主党投票率很高。
 
-（以下暂略）
+据报道，选举开始后，墨菲在民意调查中一直领先，但是，在周三，希亚塔雷利将他们之间的选票差距一度缩小到全州范围内的465票。
 
-撰稿：喜马拉雅的肉夹馍；
+杜尔金说，受机器错误影响的埃塞克斯县大部分地区位于纽瓦克（Newark）、蒙特克莱尔（Montclair）、马普勒伍德（Maplewood）、东奥兰治和欧文顿（East Orange and Irvington）。他说，这些地区可以关系到10,000至15,000张选票。
 
-审核：喜马拉雅的馍夹肉；
+另一方面，帕塞克县(Paterson)的帕特森市(Passaic County)市长安德鲁.萨伊格(Andrew Sayegh）表示，该县现在和埃塞克斯县的情况一样，法官现在必须批准一项命令，解除投票机的封条，以便统计选票。
 
-校对：Maarago；
+据估计，全州89%的选票已经上报，但还有几十万张选票需要统计。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+政治专家说，考虑到这些选票的来源和邮寄选票的典型趋势，尚未统计的选票预计会向墨菲倾斜。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+但考虑到比赛的激烈程度，重新计票的可能性很大。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**新闻来源：**[**NJ gov race results delayed after vote-counting snafu hits key county**](https://nypost.com/2021/11/03/nj-governor-race-results-delayed-amid-poll-machine-snafus/?utm_campaign=SocialFlow&amp;utm_medium=SocialFlow&amp;utm_source=NYPTwitter)** **
 
  
 

@@ -2,38 +2,44 @@
 ---
 
 
-## 新泽西州的州长选举结果被推迟公布
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1637824/)
+## 菲律宾总统发誓惩罚地方官员，除非Covid-19疫苗的推广有改善
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1637854/)
 
-撰稿：Grace
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-4.png)
-图片来源：Newjerseynews
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-据《纽约邮报》11月3日报道，新泽西州州长的竞选仍然悬而未决，几十台机器在计票前已经被关闭。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/菲律宾.jpg)
 
-当地选举官员说，因为一名投票站工作人员的失误，导致了该州人口第二多的埃塞克斯县(Essex County)的56个投票区的机器在选票统计前被关闭。
 
-这一失误使得民主党州长菲.墨菲(Phil Murphy)和共和党候选人杰克.西塔雷利(Jack Ciattarelli)之间的激烈竞争陷入了僵局。
 
-埃塞克斯县的县书记员克里斯托弗.杜金（Christopher Durkin）说：“ 这些机器必须被带回仓库，法官将发布命令，让我们打开这些机器，检索结果并公布这些结果。”
+图片来源：asia.nikkei.com
 
-杜金表示他希望在周四晚上之前得到各区的结果。
 
-在2020年的总统选举中，埃塞克斯县的民主党投票率很高。
+#### 编译：小红帽
 
-据报道，选举开始后，墨菲在民意调查中一直领先，但是，在周三，希亚塔雷利将他们之间的选票差距一度缩小到全州范围内的465票。
+菲律宾总统罗德里戈·杜特尔特 (Rodrigo Duterte) 威胁说，如果政府官员未能达到该国中共病毒（Covid-19）疫苗推广的目标，将对其进行惩罚。目前只有三分之一左右的人口完全接种了疫苗。
 
-杜尔金说，受机器错误影响的埃塞克斯县大部分地区位于纽瓦克（Newark）、蒙特克莱尔（Montclair）、马普勒伍德（Maplewood）、东奥兰治和欧文顿（East Orange and Irvington）。他说，这些地区可以关系到10,000至15,000张选票。
+在周三播出的一条录音信息中，杜特尔特挑战政府官员，要求将每天的中共病毒疫苗接种量从目前的平均50万次增加到至少100万次。
 
-另一方面，帕塞克县(Paterson)的帕特森市(Passaic County)市长安德鲁.萨伊格(Andrew Sayegh）表示，该县现在和埃塞克斯县的情况一样，法官现在必须批准一项命令，解除投票机的封条，以便统计选票。
+他声称，该国拥有足够的疫苗，因此没有理由不能在这个拥有1.09亿人口的国家加快推广接种速度。在该国，其中7700万人有资格接种疫苗。
 
-据估计，全州89%的选票已经上报，但还有几十万张选票需要统计。
+“我们在疫苗接种计划的整体情况中看到了断层线。我并不满意。”他说。
 
-政治专家说，考虑到这些选票的来源和邮寄选票的典型趋势，尚未统计的选票预计会向墨菲倾斜。
+这位直言不讳的领导人上个月提议，在反疫苗接种者睡觉时为他们接种疫苗，并要求地方官员做更多工作。总统争辩说，“没有以最迅速的方式执行或使用给予他们的疫苗”的官员将受到制裁并追究其责任。他没有详细说明处罚可能是什么。
 
-但考虑到比赛的激烈程度，重新计票的可能性很大。
+总统已要求警察和军队使用航空资源向全国各省和岛屿运送疫苗。
 
-**新闻来源：**[**NJ gov race results delayed after vote-counting snafu hits key county**](https://nypost.com/2021/11/03/nj-governor-race-results-delayed-amid-poll-machine-snafus/?utm_campaign=SocialFlow&amp;utm_medium=SocialFlow&amp;utm_source=NYPTwitter)** **
+作为逐步放松封锁措施的一部分，政府周三宣布将从周四开始取消马尼拉地区的夜间宵禁。
+
+**参考新闻：**[Philippines’ Duterte vows to punish local officials unless Covid-19 vaccine rollout improves — RT World News](https://www.rt.com/news/539240-philippines-duterte-vaccines-covid19/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
