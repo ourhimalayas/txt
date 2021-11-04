@@ -2,47 +2,52 @@
 ---
 
 
-## 因新冠肺炎病例,数万人突然被封锁在上海迪士尼乐园内
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1637312/)
+## 美国国际旅行新规：11月8日起，外国旅客入境将被要求全面接种疫苗
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1637362/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-03_22-27-36.jpg)网络图片
+作者：纽约香草山 – AlexZ
 
-摘要翻译:
-
-《台湾英文新闻》报道，上海迪士尼乐园在万圣节前夜（10月31日）当天突然关闭大门。数以万计的游客被迫滞留园内，直到完成核酸检测。
-
-上海迪士尼度假区于周日晚间突然宣布关闭上海迪士尼乐园和迪士尼小镇。其发表的一份声明中称：“此举是为遵守中共当局疫情防控的要求”。然而，当时仍在园内的游客被告知，他们必须接受核酸检测才能离开。
-
-在一个社交媒体上展现的超现实场景中，可以看到烟花在乐园上空飞舞、扬声器里播放着宁静的音乐，而游客被穿着全套防护服的工作人员强制接受核酸检测。另一段视频则显示，大批穿着全套个人防护设备的工作人员在园内穿行，而一名警卫则站在铁门前，将园内游客挡在园内。
-
-据中共官方喉舌CGTN（中国环球电视网）称，该度假村于10月30日（当地时间）发现新冠肺炎确诊病例后被关闭。据报道，这位确诊的感染者是一名来自江西省的女性，曾被列为另一确诊病例的接触者。她于周六游览了上海迪士尼乐园，周日下午在附近的浙江省杭州市检测出阳性。
-
-截至周一上午（11月1日），上海迪士尼乐园和迪士尼小镇的33863名游客检测结果均呈阴性，从该地区收集的920件物品和样本病毒检测结果也呈阴性。据中共官方媒体报道，周末共有约十万名游客游览了该度假村。
-
-游客被要求在离开公园24小时后再次接受检测。他们没有被强迫集中隔离，但被要求进行居家隔离、监测自身健康状况，并在两周内再次接受检测。
-
-根据中共疫情防控的要求，迪士尼乐园将关闭至周二（11月2日）。
-
-**简评：**
-
-中共国多地再次爆发新一轮疫情。上海迪士尼乐园因一例新冠肺炎确诊病例被突然关闭，数万人被迫滞留园内接受核酸检测。对于关闭乐园的真实原因、病毒的真相和疫情的实际情况，作为老百姓的我们无从得知。中共国通过其官方喉舌媒体带出的“官方消息”、营造出的抗疫胜利的假象和疫苗的谎言，绑架着千千万万无辜的百姓。有谁知道下一次的出行我们会被困在哪里，会不会像这些游客这么“幸运”检测全部呈阴性、不需要集中隔离？百姓还要承受多少次这种大规模、高频次、为政治目的和经济利益的病毒核酸检测？
-
-新闻链接: [Thousands suddenly locked inside Shanghai Disneyland over COVID case](https://www.taiwannews.com.tw/en/news/4331937)
-
-***翻译/简评**：Miao*
-
-***校对**：Julia Win*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+10月25日，白宫和CDC宣布，将于11月8日对国际旅行者实施新的疫苗接种政策。国务院发言人内德-普莱斯说：”从11月8日起，前往美国的外国国民航空旅行者将被要求全面接种疫苗，并在美国登机前提供疫苗接种状况证明。”
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1343-1-nedpa.jpg)图片：ANDREW HARNIK/POOL/AFP via Getty Images
+
+据说此举是为了 “把健康放在第一位”。然而，批评者称此举具有侵略性，而且没有必要。尽管有新规比以往更加严格，但美国表示仍将要求所有旅行者，无论是否接种疫苗，在登机前都要接受 COVID 检测。
+
+据普莱斯证实，那些有资格旅行但尚未接种疫苗的人，需要在航班起飞前一天内提供 COVID-19 阴性检测证明。对于接种疫苗的人，测试要求仍然是在航班起飞前三天。
+
+**新闻链接：**
+
+1. [U.S. changes international travel requirements, COVID vaccine policy | One America News Network (oann.com)](https://www.oann.com/u-s-changes-international-travel-requirements-covid-vaccine-policy/)
+2. [Frequently Asked Questions on COVID-19 Vaccinations and Testing for International Travel (state.gov)](https://travel.state.gov/content/travel/en/international-travel/emergencies/covid-19-faqs-for-travel-to-the-us-information.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+**校对/发稿：小鹿**
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
 
 
 
