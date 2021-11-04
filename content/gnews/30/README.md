@@ -2,48 +2,34 @@
 ---
 
 
-## 一天内近四万澳大利亚人签署了“杀死法案”请愿书
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1637921/)
+## 墙内“喜交所”搜索量排全球第一
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1637937/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：英国喜庄园 – I770775
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月1日，喜币公开上市，震惊了世界，更惊醒了墙内无数老百姓。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a13607cf753faf19de520d6fec4346253c3e94a5.jpg)
+近日，“喜交所”的搜索量，在短短几天时间内，快速增长百分之五十以上。从搜索量地区排名来看，前五名的国家和地区依次是：中国大陆，香港，澳大利亚，新西兰，新加坡。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture22.jpg)
+非常值得关注的是，在被禁止使用谷歌的中共国，“喜交所”的搜索量却高居榜首。显然，喜币上市，震撼了墙内百姓，将会有巨量的人搜索量却高居榜首，参与喜币的交易，实现个人财富自由。
 
+喜币是世界金融海啸来临之际，新中国联邦为全世界打造的金融诺亚方舟。喜币未来的价值将远超人们的想象。
 
+参考链接：[墙内“喜交所”搜索量排全球第一](https://gettr.com/post/pfuv191e44)
 
-图片来源：smh.com.au
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
+总编：木白
+编辑：木白
+校对/发稿：Hetangyuese
 
-#### 翻译：小鱼儿
-编辑：小红帽
-
-近四万澳大利亚人在一天内签署了“杀死”丹尼尔·安德鲁斯法案的请愿书。
-
-叛逆新闻（Rebel News）创建了一个请愿书，交给维多利亚州总督琳达·德绍 AC（Linda Dessau AC）阁下，要求她拒绝御准。
-
-多年来，维多利亚州的州长在社交媒体上被戏称为“独裁者丹”。现在，丹尼尔·安德鲁斯提出了一项法案，为自己建立独裁权力。
-
-该法案第8A条赋予安德鲁斯与1933年德国纳粹独裁统治相同的专制权力。该法案已经在下议院通过，预计将在11月中旬在上议院通过。
-
-如果《2021年公共卫生和福利修正案（大流行病管理）法案》通过成为法律，州长将能够完全自行决定宣布大流行病无限期延长，并行使他认为 “必要”的任何紧急权力。
-
-该法案还明确规定对“特定人群”的歧视是合法的，这引起了人们对未接种疫苗者可能面临多年持续困难的担忧。
-
-这将给维多利亚州造成一种情况，即所有正常的法律都被暂停，而去支持紧急权力（甚至在没有传染病的情况下）。
-
-上周，数以千计的维多利亚人举行了反对该法案的游行。
-
-参考新闻：[‘Kill the Bill’: 38K+ sign petition in ONE day – Rebel News](https://www.rebelnews.com/kill_the_bill_38k_sign_petition_in_one_day)
-
-***发布：小红帽***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

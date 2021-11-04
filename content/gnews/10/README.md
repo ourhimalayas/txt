@@ -2,18 +2,16 @@
 ---
 
 
-## 接种和未疫苗的人会一样传播 Delta 变体
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1638076/)
+## 辉瑞双倍剂量的有效性在几个月后下降
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1638095/)
 
 翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11031-2.jpg)图片来自路透社
-发表在《柳叶刀》小组的传染病医学杂志上的一项研究表明疫苗保护的局限性：接种了双剂量新冠疫苗并感染了冠状病毒 delta 变体的个人与未接种疫苗的人有着非常相似的传播疾病的速度。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11032.jpg)图片来自Wsj
+发表在《新英格兰医学杂志》上的一项新的以色列研究表明：辉瑞疫苗的有效性在所有年龄段的几个月后都会下降。
 
-在英国进行的为期一年的研究共监测了 621 名出现新冠病毒症状的人，研究人员得出结论：感染 delta 变体的接种疫苗个体的感染率为 25%，而未接种疫苗的个体感染率为 38%。当你去看家庭接触者时，这两个指数更接近，其中接种疫苗但有症状的受试者的感染率为 25%，而未接种疫苗的受试者为 23%。
+在所有年龄组中，双倍剂量疫苗赋予的免疫力在最后一次接种后的几个月内大幅下降，感染率的增加可能有两个原因：疫苗效力的降低和Delta 变体的高传染性。该研究表明，对于辉瑞疫苗的第二剂，接种后 1 周至 2 个月期间的效力从 96% 下降到接种后 4-7 个月期间的 84%。迄今为止，以色列约有 300 万人接种了第三剂辉瑞。
 
-研究人员在他们的结论中明确表示：“尽管目前的疫苗在预防新冠病毒引起的严重疾病和死亡方面仍然有效，但结果表明，单独接种疫苗不足以防止 delta 变体在家庭环境中的传播”。
-
-原文链接：[https://europa.today.it/attualita/vaccinati-trasmettono-variante-delta-come-non-vaccinati.html#\_ga=2.75835285.1002968678.1635926454-145009575.1615972944](https://europa.today.it/attualita/vaccinati-trasmettono-variante-delta-come-non-vaccinati.html#_ga=2.75835285.1002968678.1635926454-145009575.1615972944)
+原文链接：[https://www.repubblica.it/salute/2021/11/02/news/l\_efficacia\_della\_doppia\_dose\_pfizer\_cala\_dopo\_pochi\_mesi\_lo\_dice\_uno\_studio\_israeliano-324297816/?ref=RHTP-VS-I287621970-P16-S5-T1](https://www.repubblica.it/salute/2021/11/02/news/l_efficacia_della_doppia_dose_pfizer_cala_dopo_pochi_mesi_lo_dice_uno_studio_israeliano-324297816/?ref=RHTP-VS-I287621970-P16-S5-T1)
 
 责任编辑/发布：意大利达芬奇农场   萧亦
 
