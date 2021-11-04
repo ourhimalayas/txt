@@ -2,70 +2,42 @@
 ---
 
 
-## 工党支持率下降，新西兰政府信任度降至阿德恩2017年担任总理以来的最低点
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1638153/)
+## 字节跳动创始人张一鸣卸任董事长
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1638224/)
 
-Kazusa 文纱
+翻译：西班牙喜悦农场–wenwu
 
-**10月份，新西兰工党/绿党政府的支持率下降了5%至50%，工党本身的支持率下降了6%至 39.5%。在此期间，整个10月新西兰最大的城市奥克兰的封锁继续延续。对绿党的支持率上升了1%至10.5%。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1.jpg)据报道，字节跳动创始人张一鸣身价约为 445 亿美元。 彭博新闻
 
-执政党团现在只领先议会反对党国民党/新西兰行动党/毛利党6%的支持率，达44%，自9月以来上升了3%。这一增长是由国家党的支持率上升3%驱动的，达到26%。新西兰行动党的支持率保持在16%的历史高位，毛利党的支持率保持在2%。
+据周二（2日）晚间报道，字节跳动（ByteDance Ltd.）创始人张一鸣将在[辞去](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)（5月）TikTok 的[首席执行官](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)的数月后，一并辞去字节跳动的董事长（3日）的位置。
 
-6%的少数选民支持议会以外的其他小党派，10月份对新西兰第一党的支持率上升1%，达到2.5%；机会党下降0.5%，达到1%，对新保守党的支持率为1.5%。
+[彭博新闻](https://www.bloomberg.com/news/articles/2021-11-03/bytedance-s-zhang-exits-board-joining-exodus-by-tech-founders?srnd=technology-vp&amp;sref=Oeyjq8by)和[路透社](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)援引熟悉此事的消息人士的话[报道](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)称，字节跳动的首席执行官 Liang Rubo 将接替张先生担任董事长。
 
-这项最新的新西兰罗伊-摩根投票意向调查是通过电话进行的，包括固定电话和手机。在10月期间对新西兰全国范围内的929名选民接受了横截面调查。选民们被问到。”如果今天举行新西兰选举，哪个政党会得到你的选票？” 在所有接受调查的选民中，有4%的人没有指定政党，该比率下降了1%。
+周二早些时候，字节跳动宣布了一项将公司重组为六个业务部门的计划。作为重组的一部分，《华尔街日报》报道称，字节跳动[首席财务官](https://www.wsj.com/articles/bytedance-cfo-is-stepping-down-to-focus-on-tiktok-11635885543?mod=Searchresults_pos1&amp;page=1&amp;mod=article_inline) Shou Zi Chew 将卸任，专注于他作为 TikTok 首席执行官的角色。
 
-**10****月新西兰政府信心指数下降15.5****个百分点至109.5–****这是自杰辛达-****阿德恩四年前于2017****年底担任总理以来的最低值**
+随着中共国政府[收紧对互联网公司的控制](https://www.marketwatch.com/story/chinas-communist-party-exerting-tighter-control-over-the-countrys-internet-giants-01633320070?mod=article_inline)，38 岁的张是最近一位离开他们创立的公司的中共国亿万富翁。拼多多公司[PDD， +0.12%](https://www.marketwatch.com/investing/stock/PDD?mod=MW_story_quote)的创始人兼董事长 Colin Huang于 [3月](https://www.marketwatch.com/story/pinduoduo-founder-colin-huang-steps-down-from-company-11615997079?mod=article_inline)退出该公司；京东商城[JD， +0.82%](https://www.marketwatch.com/investing/stock/JD?mod=MW_story_quote)的创始人兼董事长刘强东于9月份退出[了公司的](https://www.marketwatch.com/articles/jd-com-says-founder-stepping-back-from-day-to-day-running-of-the-business-51630941420?mod=article_inline)日常管理；快手科技（Kuaishou Technology）联合创始人兼首席执行官 Su Hua 于[上周同样退出了公司](https://www.wsj.com/articles/chinese-video-platform-kuaishou-says-ceo-steps-down-11635529476?mod=article_inline)。
 
-罗伊-摩根政府信心指数在10月份下降了15.5个百分点，至109.5，处于总理杰辛达-阿德恩四年前于2017年10月上任以来的最低水平。政府信心的下降是在奥克兰封锁延长至整个10月之后发生的。
+总部位于北京的字节跳动成立于 2012 年，其热门应用 TikTok 每月拥有近 7 亿用户。截至上一轮融资时，私人持有的字节跳动估值为 1400 亿美元，但 [据彭博社报道](https://www.bloomberg.com/news/articles/2021-03-30/bytedance-is-said-valued-at-250-billion-in-private-trades?sref=Oeyjq8by) ，今年早些时候私有估值约为 2500 亿美元。
 
-10月，只有48%的新西兰选民（下降了9个百分点）表示新西兰正在 “朝着正确的方向发展”，而38.5%的人（上升了6.5个百分点）表示新西兰正在 “朝着错误的方向发展”。
+彭博亿万富翁指数将张先生列为[全球第 31 位最富有的人，](https://www.bloomberg.com/billionaires/profiles/yiming-zhang/?sref=Oeyjq8by)财富价值约为 445 亿美元。
 
-最新的澳新银行-罗伊-摩根消费者信心评级在10月份下降了6.5个百分点至98，现在低于2021年10月23/24日澳大利亚城市悉尼、墨尔本和堪培拉在10月初全部摆脱封锁后的最新消费者信心数字106.8。
+**简评：**
 
-**女性继续支持工党-****绿党，而男性则支持国家-****新西兰行动党**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1-1.jpg)图片来源于[禁文网](https://www.bannedbook.org/bnews/bannedvideo/20210908/1620501.html)
 
-总理杰辛达-阿德恩的优势在于工党从女性那里获得的巨大支持优势。近五分之三的女性（57.5%）支持工党（49%）或绿党（8.5%），而只有42%的男性支持工党（28.5%）或绿党（13.5%）–阿德恩的工党在女性中获得了20.5%的巨大 “性别差距”。
+**据2021年11月3日《DESCARGITAS》报道，中共国政府将越来越关注富有的科技企业家，许多亿万富翁积累了权力，并影响了威权。**
 
-男性更有可能支持议会反对派，48.5%的人支持国民党（28.5%）、新西兰行动党（17.5%）或毛利党（2.5%），而40%的女性支持国民党（24%）、新西兰行动党（14.5%）或毛利党（1.5%）。
+**阿里巴巴的联合创始人马云一直是被镇压的主要受害者，最近飞离中共国到西班牙度假。自从习近平主席去年阻止了他的在线金融平台蚂蚁金服集团的上市计划后，马云就限制了公开露面（此举曾发生在毛泽东时代）；外国科技公司与雅虎一起退出中共国，本周宣布“由于商业和法律环境变得越来越具有挑战性，离开中共国。”随着新的《数据保护法》于周一（1日）在中共国生效，恰好是雅虎退出中共国的时间，法律规定了私人公司收集个人信息的条件，并制定了如何使用这些信息的规则。**
 
-**罗伊-****摩根的政府信心指数为116****，而男性则为102.5****。**
+**最后，向同胞们呼吁不要打疫苗，并且加入新中国联邦大家庭；从喜币上市可见，新中国联邦的实力是实实在在的。**
 
-最新的罗伊-摩根政府信心数据证实了这一趋势，该数据显示，49.5%的女性认为新西兰正在 “朝着正确的方向发展”，而46%的男性认为，只有33.5%的女性认为新西兰正在 “朝着错误的方向发展”，而43.5%的男性认为。
+新闻来源：[marketwatch.com] [ByteDance founder Zhang Yiming steps down as chairman: reports](https://www.marketwatch.com/story/bytedance-founder-zhang-yiming-steps-down-as-chairman-reports-11635909977) | 发布时间：2021年11月2日
 
-总的来说，罗伊-摩根的政府信心指数为116，而男性只有102.5，差距为13.5分。
+* * *
 
-**按性别划分的政党投票分析**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-9.png)
-**罗伊-****摩根公司首席执行官Michele Levine****说，奥克兰的封锁已经延长到11****月，以配合国家目标90%****合格人口的全面疫苗接种率的目标以便能开始放宽奥克兰与全国其他地区之间的限制。**
+*发稿：信心的选择*
 
-*“今天的罗伊-**摩根新西兰民意调查显示，新西兰人似乎终于对使用封锁来阻止COVID-19**的传播感到厌倦，该国现在实现了高比例的疫苗接种。截至本周，87%**的合格人口至少接种了一剂疫苗，72%**的合格人口现在已经完全接种。”*
-
-*“新西兰的全面接种率（72%**）仅次于邻国澳大利亚的数字（76%**），在过去的几周里，由于全面接种率超过70%**，大悉尼地区、大墨尔本地区和堪培拉地区的延长封锁都已经结束。”*
-
-*“10**月份，对工党领导的政府的支持率下降到50%**，比9**月份下降了5%**。对工党的支持率为39.5%**（下降6%**点），而对绿党的支持率上升1%**点，达到10.5%**。”*
-
-*“相比之下，10**月份对议会反对党的支持率上升了3%**，达到44%**，其中对国家党的支持率上升了3%**，达到26%**，推动了这一增长。对ACT**新西兰的支持率稳定在16%**的历史高位，对毛利党的支持率保持不变，为2%**。”*
-
-*“证实工党领导的政府支持率下降的是10**月份罗伊-**摩根关键信心指标的下降。罗伊-**摩根政府信心指数降至109.5**，比9**月份下降了15.5**个百分点。这是自总理杰辛达-**阿登(Jacinda Ardern)**四年前于2017**年10**月上台以来的最低政府信心评级。在男性中，政府信心指数仅勉强处于正值，为102.5**。”*
-
-*“随着政府信心的下降，澳新银行-**罗伊-**摩根消费者信心评级也连续第四个月下降，下降6.5**个百分点至98**。这是自2020**年5**月大流行初期（97.3**）以来的最低消费者信心评级。”*
-
-*“总理杰辛达-**阿登(Jacinda Ardern)**表示，当90%**的12**岁以上符合条件的人口完全接种疫苗时，限制将大幅减少，这可能会在12**月初发生。”*
-
-*“这一严格的基准很可能会看到，在未来两个月内，随着邻国澳大利亚等国家在11**月更全面地开放国内和国际旅行，支持率将继续偏离执政的工党。”*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-10.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3.png)
-**投票意向总结**
-
-下表将新西兰罗伊-摩根关于投票意向的最新民意调查与2020年10月17日大选的结果进行了比较。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4.png)
-**两党优选：工党领导的政府 ****对比 ****议会反对党**
-
-*\***在2020**年的新西兰大选中，工党获得了50.01%**的选票，这足以让他们自己执政，但工党选择与绿党签署 “**合作协议”**，绿党获得了7.86%**的选票。有三个政党当选为非政府的议会成员，由国民党（25.58%**）、新西兰行动党（7.59%**）和毛利党（1.17%**）领导。*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture5.png)
-译者评：长期的封锁与新冠疫苗施打政策并没有给新西兰带来转机，民众生活缺乏对未来的希望，对政府的信心与支持也呈下降趋势。当然，我们有理由相信区区民调下降并不能成为新西兰当局扭转当前疫苗与病毒政策的推动力，只会成为政客推进疫苗施打的借口。疫苗灾难远没有开始，民众从对政府政策的不满到真正觉醒还需灾难与时间的洗礼。至于事态发展如何，让我们继续看下去
-
-[文章来源](https://www.roymorgan.com/findings/8849-nz-national-voting-intention-october-2021-202111010502)
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
 
  
 

@@ -2,25 +2,21 @@
 ---
 
 
-## 墙内“喜交所”搜索量排全球第一
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1637937/)
+## 喜币将成为新世界秩序下的正义捍卫者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1637943/)
 
-作者：英国喜庄园 – I770775
+作者：纽约香草山 – Noemi
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月1日，喜币公开上市，震惊了世界，更惊醒了墙内无数老百姓。
+2021年11月1日，在“Hcoin to the moon”庆典上，文贵先生再次声明，喜联储、喜币与喜美元的横空出世是超前地改变了现有的金融市场规则，比特币已经跨过了法律红线，但Hcoin永远不会越过法律的红线！一切跨过了法律红线的金融货币、产品、系统都终将崩溃。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture11.jpg)
+文贵先生说，比特币作为加密货币的鼻祖，它的开创性是伟大的，可以说，它所代表的区块链加密货币技术改变了人类的一切。但是跨过了法律红线的比特币注定只能沦为黑暗势力的洗钱工具，它只称得上是一个“奉献者”。而在法律允许范围内改变规则的喜币，不会接受任何的洗钱和违法犯罪行为，它会成为新世界秩序下坚定的正义捍卫者。在人权和财富安全的新世界里，喜币终将越走越远。
 
-近日，“喜交所”的搜索量，在短短几天时间内，快速增长百分之五十以上。从搜索量地区排名来看，前五名的国家和地区依次是：中国大陆，香港，澳大利亚，新西兰，新加坡。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture22.jpg)
-非常值得关注的是，在被禁止使用谷歌的中共国，“喜交所”的搜索量却高居榜首。显然，喜币上市，震撼了墙内百姓，将会有巨量的人搜索量却高居榜首，参与喜币的交易，实现个人财富自由。
-
-喜币是世界金融海啸来临之际，新中国联邦为全世界打造的金融诺亚方舟。喜币未来的价值将远超人们的想象。
-
-参考链接：[墙内“喜交所”搜索量排全球第一](https://gettr.com/post/pfuv191e44)
+参考链接：[喜币将成为新世界秩序下的正义捍卫者](https://gettr.com/post/pfu92y109d)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：木白
-编辑：木白
+总编：Irene木木
+编辑：AN
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
@@ -29,7 +25,9 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

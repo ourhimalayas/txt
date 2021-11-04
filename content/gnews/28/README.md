@@ -2,32 +2,27 @@
 ---
 
 
-## 美国卡车运输协会考虑取消政府合同，而非解雇未接种疫苗员工
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1637940/)
+## 秘翻在线：卡车司机们厌倦了为加州港口积压危机背黑锅
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1637950/)
 
-作者：纽约香草山福音部 – lilian89
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-为了遵守拜登政府的强制疫苗令，美国卡车运输协会（ATA）正在考虑取消所有的政府合同，而非解雇必要数量的卡车司机。尽管政府合同可能有利可图，但在当前司机人数已远远不足的情况下，不为政府拉货而仅为私人提供运输服务，既可充分利用现有人力，也可缓解供应线的危机。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture44.jpg)
-包括UPS、联邦快递和亚马逊在内的其他航运机构也准备反击疫苗强制接种令，他们已要求拜登政府将该任务推迟到2022年。
+#### 翻译/撰稿：沙子最怕你不理它
 
-“随着旺季的到来，政府当局对承包商的强制疫苗政策，可能会成为假日期间 运输公司为客户提供服务的主要绊脚石。”货运航空公司协会主席斯蒂芬·阿尔特曼解释道：“如果员工决定辞职或退休，而非接种疫苗，日益严重的工人短缺情况很可能会进一步恶化。”
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-1.png)图片来源：freightwaves
+据《零对冲》11月3日报道，卡车司机们对被广泛报道的“司机短缺是加州港口积压货物主要原因”说法提出质疑。司机们都非常急迫想要让卡车快速通过装卸流程，但是港口系统终端的缺陷，以及硬件装备的短缺让他们大量的时间浪费在等待上；取回被迫放在计划外港口的集装箱更是让司机们的处境雪上加霜。
 
-参考链接：[美国卡车运输协会考虑取消政府合同，而非解雇未接种疫苗员工](https://djhjmedia.com/steven/truckers-weigh-canceling-government-contracts-rather-than-firing-unvaccinated-workers/)
+港口卡车司机周一告诉FreightWaves，奥克兰国际集装箱码头（OICT）网站自前一天以来一直关闭，因此卡车公司无法获得船舶出口接收名单。OICT是港口最大的装卸码头，归SSA 国际（SSA International）所有。SSA的一名客户服务经理证实了此事。随着码头运营商推动自动化以减少人际互动，系统中的一个故障就会导致起重机操作员和卡车司机在没有进一步指示的情况下无法进行下一步行动，但最终为这些运营商的错误付出代价的是码头工人和卡车司机。而运输公司也因为怕遭到码头运营商的报复而忍气吞声。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+奥克兰AB运输公司的老板比尔•阿波迪（Bill Aboudi)表示，自己按小时付工资给司机，如今却只能让司机在奥克兰港口剩余的三个码头排队等货。阿波迪说，他的司机每天要等四至六个小时才可能拉到一个集装箱。在“积压危机”之前，他的司机平均每天可以拉三四个集装箱。面对这种问题运输公司不得不适量裁员。
 
-总编：Irene木木
-编辑：小鹿妞妞
-校对/发稿：Hetangyuese
+持续的疫情使电子商务格外繁忙，也使物流行业的需求激增，一些公司预测到业务量的攀升雇佣了额外的司机以应付突增的业务，但港口并未对此做好准备。一位运输公司总裁告诉FreightWaves：“如果港口效率高，每周释放我的200个集装箱，我就不必解雇任何人，但港口每周只能提供大约130到140个集装箱，这已经这样持续了几个月，看不到尽头。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+缺乏货柜拖车架也加剧了港口拥堵。一些卡车司机表示，他们因将拖车架退还给错误的设备供应商而被开罚单，并被禁止进入航站楼30天至180天以上。对于港口开出的罚单或禁令，卡车司机没有正当的上诉程序，如果承运公司对卡车司机的禁令提出抗议，面对他们的将是禁令的延长。
+
+最近，席尔瓦（Silva）的一些运往奥克兰港的货物被投到洛杉矶和长滩的港口，这加剧了人们对海运承运人和码头运营商的失望。卡车司机们厌倦了为取回被放错的集装箱而来回折腾。
+
+原文链接：[Truckers Tired Of Taking Blame For Congestion Crisis At California Ports](https://www.zerohedge.com/economics/truckers-tired-taking-blame-congestion-crisis-california-ports)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

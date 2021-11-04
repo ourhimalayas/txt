@@ -2,60 +2,47 @@
 ---
 
 
-## 五角大楼报告：中共国扩张核武库超预期
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1637607/)
+## 三个标志性事件发生后喜币的价格才真正地出来
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1637770/)
 
-众议员帕特·法伦： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 正在不知疲倦地破坏美国和我们的盟友。 这届政府需要什么才能醒来？ 【附国会山报：五角大楼报告：中共国扩张核武库超预期】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/09276_副本.jpg)
+据[2021年11月03 日 文贵大直播：彭帅爆张高丽丑闻，再次验证爆料革命的真实性；喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产；房地产税会灭国灭党；共和党在弗吉尼亚州长竞选获胜意味着什么](https://gtv.org/video/id=61827dfd11d186296800dd83)时间点3：32：29——
 
+**郭文贵先生：**我再告诉你们，喜币发生的事情，一，咱往后看，三到五周就美国中期选举完几乎就任，然后是明年五月份，真正是明年五月份疫苗灾难的开始，世界经济的整个大调整或者是崩塌或者是下行，咱给它在地球挖了个最深的一个漏钱的漏斗，咱是最深的，就像那个水一样。
 
+咱是在喜马拉雅山下面最低处水是最多的，咱就挖了个最深的斗，只要它泄洪，水都得跑咱这来，你没有选择，水不是往高处走，水往低处流，我从来说水永远往低处流，我就挖了个漏斗在这等着，喜币现在远着呢，咱正在挖这个坑过程当中。
 
-> China is working tirelessly to undermine the United States and our allies. 
-> 
-> What will it take for this Administration to wake up? [https://t.co/jspHV4xPWz](https://t.co/jspHV4xPWz)
-> — Rep. Pat Fallon (@RepPatFallon) [November 3, 2021](https://twitter.com/RepPatFallon/status/1455979843762507780?ref_src=twsrc%5Etfw)
+欧元会不会出事？欧元为什么欧元现在一点都不自信，三十几个国家跟共产党脱了，大家记住是天大的事儿，已经脱钩了！三十多个国家脱钩都有可能接受新中国联邦是合法政权，也可能接受咱喜联储是合法货币。
 
+我告诉你，接下来政清你这个小子，你要说说，我这喜欢死你了，七哥要陪你睡一晚上，我陪你，我当女的你当男的，放心。我告诉你，记住七哥说的话，你们要盯住三个标志事件，任何一个真正的有权威的投资机构投喜联储、系支付的时候，叫Exchange，那是喜币的一个标志事件；
 
+第二件事儿，当有一个国家或有一个地方批给你虚拟货币银行牌照，或国家批给你的整个的就是所谓的虚拟交易市场国家级的牌照的时候，这是第二、第三个大事。
 
-众议员吉姆·英霍夫： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 继续冷酷地扩张其核武库。一份新的国防部报告称，到 2030 年，中国可能拥有超过 1,000 枚核武器。然而，美总统拜登仍然不关心——就像在阿富汗一样，他危险地与外界脱节！ 更多请阅读 [http://wsj.com/articles/china](https://t.co/nwkmu21OR3?amp=1)… 【附华尔街日报和CNN的两则新闻】
+到最后的时候，当某国家宣布我承认你是我国家的法币、主权货币的时候，喜币的价格才真正的出来，没这个之前你都当成虚幻，你都当成不存在。
 
+（以下暂略）
 
+撰稿：喜马拉雅的肉夹馍；
 
-> China’s relentless expansion of its nuclear arsenal continues unchecked. A new [@DeptofDefense](https://twitter.com/DeptofDefense?ref_src=twsrc%5Etfw) report says China is likely to have &gt;1,000 nukes by 2030. Yet [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) remains unconcerned – just like with Afghanistan, he’s dangerously disconnected!
-> More ➡️ [https://t.co/HdOvQncJww](https://t.co/HdOvQncJww) [pic.twitter.com/UBf3YEBkO5](https://t.co/UBf3YEBkO5)
-> — Sen. Jim Inhofe (@JimInhofe) [November 3, 2021](https://twitter.com/JimInhofe/status/1455993437090635780?ref_src=twsrc%5Etfw)
+审核：喜马拉雅的馍夹肉；
 
+校对：Maarago；
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-众议院军事委员会共和党： 委员迈克·罗杰斯说“要么美国挺身而出，以前所未有的国防现代化来迎接这一挑战，要么我们将世界舞台让给 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)。如果我们不改变方向，那就停止担心会侮辱 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 吧，该立刻开始担心的是怎么生活在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 统治之下”众议院军事委员会共和党： “这份报告应该够清楚让拜登政府看到这一段时间以来不言而喻的事情——中共国构成了一个真正且迫在眉睫的威胁。为我们自己的军事现代化而竭尽全力已不再是一种选择。” 【附罗杰斯议员就中共国军力报告所发的声明】
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-> "Either the US rises to meet this challenge w/ unprecedented defense modernization, or we cede the world stage to the CCP. It is past time to stop worrying about insulting China & start worrying about living under CCP rule if we don’t change course immediately." [@RepMikeRogersAL](https://twitter.com/RepMikeRogersAL?ref_src=twsrc%5Etfw) [pic.twitter.com/y6SleT7KYC](https://t.co/y6SleT7KYC)
-> — Armed Services GOP (@HASCRepublicans) [November 3, 2021](https://twitter.com/HASCRepublicans/status/1455989805771329538?ref_src=twsrc%5Etfw)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-众议员迈克·华尔兹： 如果历史重演，[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 将通过在北京举办 2022 年奥运变得胆大妄为而台湾将受到威胁。 俄罗斯在 2014 年奥运后两个月入侵乌克兰。国际奥委会必须将比赛搬离,否则我们必须抵制 [#北京冬奥会](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A?src=hashtag_click)。 【转推：前白宫国安顾问布莱恩警告说中共国可能会在冬奥会后2024美总统大选前对台湾动武】
-
-
-
-> If history repeats itself, the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) will be emboldened by hosting the 2022 Olympics in Beijing and Taiwan will be threatened.
-> 
-> Russia invaded Ukraine two months after the 2014 Olympics. The IOC must move the games or we must [#BoycottBeijing2022](https://twitter.com/hashtag/BoycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/AlzZu52dcG](https://t.co/AlzZu52dcG)
-> — Rep. Mike Waltz (@michaelgwaltz) [November 3, 2021](https://twitter.com/michaelgwaltz/status/1456010797893636097?ref_src=twsrc%5Etfw)
-
-
-
-众议员肯·巴克： 真正的问题是——该节目的制作人是如何允许使用在法律上不准确的地图的？国际法庭驳回了 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对南中国海的主张。好莱坞对 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的要求持续效忠令人非常担忧。 【附路透社报道：（线上影院）Netflix 在菲律宾抱怨中国地图（包含南中国海）后撤掉了谍战剧】
-
-
-
-> The real question is — how did the show’s producers allow a legally inaccurate map to be used? International courts have denied China’s claims over the South China Sea. Hollywood’s continued allegiance to the CCP’s demands is wildly concerning.[https://t.co/SqHbgCZCIe](https://t.co/SqHbgCZCIe)
-> — Rep. Ken Buck (@RepKenBuck) [November 3, 2021](https://twitter.com/RepKenBuck/status/1455996866575966213?ref_src=twsrc%5Etfw)
-
-
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
