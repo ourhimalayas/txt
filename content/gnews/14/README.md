@@ -2,10 +2,10 @@
 ---
 
 
-## 郭文贵：任何人无权拒绝贸易货币下的喜支付体系
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639288/)
+## 疫苗诱发的心肌炎比中共病毒引发的心肌炎要严重得多
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639362/)
 
-11/1/2021 【HCoin to The Moon庆典】郭文贵先生：任何人无权拒绝贸易货币下的喜支付体系。
+10/27/2021 彼得·麦卡洛医生透露，疫苗诱发的心肌炎比中共病毒导致的心肌炎要严重得多，因为疫苗中的脂质纳米颗粒直接进入心脏，引发剧烈的心电图变化、胸痛和早期心力衰竭。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

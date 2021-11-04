@@ -2,10 +2,10 @@
 ---
 
 
-## 喜币将成为人类上共同认可的捍卫正义的力量，越走越远
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639225/)
+## 巨星歌手席琳·迪翁会否成为改变加拿大疫苗现状的人？
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639307/)
 
-11/1/2021 【HCoin to The Moon庆典】喜币会成为人类上大家共同认可的捍卫正义的力量，越走越远。
+10/17/2021 巨星歌手席琳·迪翁或因接种疫苗卧床不起，最后一刻取消演出。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

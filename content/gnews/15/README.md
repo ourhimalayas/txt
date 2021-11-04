@@ -2,10 +2,10 @@
 ---
 
 
-## 郭文贵先生：永远记住真诚、善待一切、唯真不破辨善恶
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639280/)
+## 纽约市长的疫苗强制令，可能会使市民付出生命代价
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639350/)
 
-11/1/2021 【HCoin to The Moon庆典】永远记住：真诚、善待一切、唯真不破分辨善恶。
+10/30/2021 纽约市长白思豪的疫苗强制令周五（10月29日）生效，威胁到相关人员的生计，造成纽约市警察局、消防、急救部门等的人员短缺、响应滞后，这可能导致纽约市民付出生命代价。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

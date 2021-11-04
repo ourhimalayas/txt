@@ -2,50 +2,67 @@
 ---
 
 
-## 新泽西州长选举共和党竞选人尚未承认失败
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1639151/)
+## 为什么未接种疫苗的加拿大人说他们不会接种新冠疫苗
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1639249/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：Hannah Jackson
+翻译: HimaCoby
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/N-2.jpg)thenewamerican.com
-在主流媒体一片宣称民主党人菲尔墨菲（Phil Murphy）获得新泽西州长连任后，数小时前墨菲自己也宣布获胜，但是共和党竞选人杰克·恰塔雷利（Jack Ciattarelli）到现在为止，也没有像弗吉尼亚败选人向胜选人表示祝贺那样，向所谓的获胜人菲尔墨菲祝贺，相反看到了众多的质疑。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Why-not-2.png)
 
-《贝克尔新闻》（Becker News）这样报道，“新泽西州州长竞选提醒美国，在这个国家，我们离选举诚信还有很长的路要走。共和党候选人杰克·恰塔雷利（Jack Ciattarelli）与现任民主党州长菲尔·墨菲（Phil Murphy）的竞选中，在周二（11月2日）深夜，当大多数美国人入睡的时候，他仍保持着4.2万张选票的领先。目前，恰塔雷利的得票率为88%，有1000票的微弱优势。
+一项新的民意调查发现，加拿大人未接种新冠疫苗的主要原因是“个人自由”和“健康问题” 。
 
-在整个选举之夜，恰塔雷利在州长竞选中表现出色的主要原因是他在蓝郡的表现，尤其是卑尔根（Bergen）郡，在晚上的大部分时间里，他都以惊人的领先优势领先……”【1】
+这项由安格斯里德研究所(ARI) 进行并于周三公布的调查发现，58% 未接种疫苗的加拿大人表示，他们不接种疫苗的主要原因是“个人自由”，而同样数量的受访者则表示“健康担忧”作为他们的理由。
 
-《门道专家》直接用了“诡计”的字眼，“民主党人在新泽西州州长竞选中的诡计——共和党人以100%的选票赢得了最大的郡，然后选票翻转，民主党人奇迹般地赢得了该郡……
+今年 9 月 29 日至 10 月 3 日期间进行的在线调查还发现，三分之一（34%）未接种疫苗的受访者表示他们没有接种疫苗，因为他们认为该病毒不会对健康构成严重威胁。
 
-在全州83%的选票统计中，共和党人恰塔雷利以4.2万票领先全州，此时，新泽西州最大的郡卑尔根郡宣布了100%的报告，恰塔雷利赢得了52%的选票。
+10% 的未接种疫苗的受访者表示，由于 “宗教原因” 他们没有接种疫苗，而 3% 的受访者表示他们 “还没有开始接种疫苗” 。当被问及为什么没有接种疫苗时，另有 11% 的人回答 “其他” 。
 
-然后情况变了，几分钟后，87%的选票统计完毕，卑尔根郡的选举结果发生了变化，突然墨菲以51%的选票领先该郡，恰塔雷利在该州的4.2万张领先选票同时也减少到1600张。”【2】
+调查还发现，绝大多数（90%）未接种疫苗的参与者表示他们同意大流行的健康风险被“夸大”的说法，而 84% 的人表示他们相信自己的免疫系统足够强大以对抗新冠感染。
 
-《塔克·卡尔森团队》则有更多的报道，“非法行为：新泽西州州长选举工作人员告诉非公民和未注册选民，她将允许他‘现在可以填写选票’”。【3】
+更重要的是，20% 的未接种疫苗的受访者表示他们“绝对同意”新冠是一个“完全与政府控制有关的阴谋”，而 35% 的人表示他们“大部分”同意该声明。
 
-“新泽西州州长竞选中的报告问题引起了一些担忧，据 NBC 新闻全国政治记者史蒂夫·科纳奇(Steve Kornacki) 称，新泽西州哈德逊郡的早期投票是‘重复计算的’。显然，双重计票让民主党候选人菲利普·墨菲获得了 10,732 票，而他的共和党对手杰克·恰塔雷利只获得了 2,842 票。科纳奇继续说计数‘现在已经确定’，然而，许多人担心这样的错误甚至一开始就犯了。”【4】
+35% 未接种疫苗的人还表示，他们 “绝对同意” 注射疫苗的副作用比病毒更严重，而另外 41% 的人表示他们 “大部分” 同意。
 
-“新泽西州选举混乱：56 台投票机一夜之间关闭，不计票数，必须被带去仓库”。【5】
+##### 谁未接种疫苗？
 
-亚利桑那州参议员、退役战斗机女飞行员温迪·罗杰斯（Wendy Rogers）直接发出呼吁，“审计新泽西！”【6】
+根据 ARI 的调查结果，虽然加拿大是第 14 大接种新冠疫苗的国家，但大约 8% 的加拿大成年人尚未接种疫苗。
 
-选举到了令人不能信服的程度，也就失去了选举的意义，谁希望看到这一幕？那就是独裁专制政府。参与舞弊的人们不一定都喜欢专制暴君，只是在个人喜好、利益诱惑下放弃了原则，没有真正意识到背后恶势力的图谋。所以，揭露罪恶、曝光阴谋、唤醒世界、认知中共是世界当务之急。
+民意调查还发现，男性比女性更有可能避免接种新冠疫苗。
 
-笔者不希望目前新泽西州长选举是被操控的结果，但是出现了质疑，就应该进入消除质疑的程序，而不是打压、禁声，通过透明的解释，让失利者心服口服。
+表示不会接种疫苗的男性比例最高的是 18 至 34 岁的男性。调查发现，12% 的男性表示不会接种疫苗，而同龄女性中只有 6% 表示会避免中枪。
 
-有关链接：
+与此同时，年龄在 35 至 54 岁之间的男性中有 9% 表示他们不会接种疫苗，而同一年龄组中只有 6% 的女性表示他们不会接种疫苗。
 
-【1】[https://beckernews.com/watch-new-jersey-county-flips-from-red-to-blue-with-100-reported-giving-phil-murphy-the-lead-42877/](https://beckernews.com/watch-new-jersey-county-flips-from-red-to-blue-with-100-reported-giving-phil-murphy-the-lead-42877/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Why-not.png)
 
-【2】[https://www.thegatewaypundit.com/2021/11/breaking-democrat-tricks-new-jersey-governors-race-republican-winning-largest-county-100-votes-counted-vote-flips-democrat-miraculously-wins-county/](https://www.thegatewaypundit.com/2021/11/breaking-democrat-tricks-new-jersey-governors-race-republican-winning-largest-county-100-votes-counted-vote-flips-democrat-miraculously-wins-county/)
+调查还发现，原住民拒绝接种新冠疫苗的可能性是那些没有被认定为有色人种的人的两倍。
 
-【3】[https://teamtuckercarlson.com/news/illegal-conduct-new-jersey-gubernatorial-election-worker-tells-non-citizen-and-non-registered-voter-she-will-allow-him-to-fill-out-completely-a-ballot-now/](https://teamtuckercarlson.com/news/illegal-conduct-new-jersey-gubernatorial-election-worker-tells-non-citizen-and-non-registered-voter-she-will-allow-him-to-fill-out-completely-a-ballot-now/)
+ARI 网站上写道： “政府仍有许多工作要做，以克服由于医疗系统对原住民几代人的虐待而造成的不信任。”
 
-【4】[https://teamtuckercarlson.com/news/early-vote-double-counted-in-hudson-county-was-fixed-and-gave-gop-candidate-lead/](https://teamtuckercarlson.com/news/early-vote-double-counted-in-hudson-county-was-fixed-and-gave-gop-candidate-lead/)
+根据民意调查，13% 的原住民受访者表示他们没有接种过新冠疫苗，而自称为有色人种的人中有 8% 拒绝接种疫苗。
 
-【5】[https://teamtuckercarlson.com/news/nj-election-chaos-56-voting-machines-shut-down-overnight-without-votes-being-counted-will-have-to-be-brought-to-warehouse/](https://teamtuckercarlson.com/news/nj-election-chaos-56-voting-machines-shut-down-overnight-without-votes-being-counted-will-have-to-be-brought-to-warehouse/)
+调查发现，在避免接种新冠疫苗的受访者中，有 6% 的人表示他们并不认为自己是可见的少数群体。
 
-【6】[https://twitter.com/WendyRogersAZ/status/1456279218246062093](https://twitter.com/WendyRogersAZ/status/1456279218246062093)
+來源：https://www.ctvnews.ca/health/coronavirus/personal-freedom-and-health-concerns-why-unvaccinated-canadians-say-they-won-t-get-the-covid-19-shot-1.5651940
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

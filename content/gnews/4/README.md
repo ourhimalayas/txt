@@ -2,10 +2,10 @@
 ---
 
 
-## 州长墨菲拒绝评论他当选后的秘密疫苗强制令计划
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639372/)
+## 郭文贵：喜财富属于民天下，我们的使命是消灭共产党
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639447/)
 
-10/29/2021 菲尔·墨菲对于记录着他的员工谈论他会在上任后推行强制疫苗的录像回避而不发表评论。相反地，因为记者要问他疫苗的问题，他控告记者存在骚扰犯罪并试图通过地理阻隔阻止他发问。
+11/1/2021 【HCoin to The Moon庆典】郭文贵先生：喜财富属于民天下，不要忘记我们的使命是消灭共产党。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
