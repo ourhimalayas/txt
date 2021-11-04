@@ -2,23 +2,27 @@
 ---
 
 
-## 中共要求3-11岁儿童在12月底前完成新冠疫苗接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636671/)
+## 疫苗强制令导致美国多地公共设施人员短缺
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1636687/)
 
-作者：香草山 Noemi
+作者：美东香草山农场 – 文真
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在当地时间10月30日的新冠疫情新闻发布会上，中共国家卫健委疾控局副局长吴良有要求在12月底完成墙内3-11岁儿童的全程新冠疫苗接种。 目前，这一规定正在中共国包括北京、上海、广东在内的十余个省市中强制推行。
+10月30日，据报道称，由于新冠疫苗强制令造成的人员短缺，纽约26家消防公司已经在全市范围内停业。纽约市民担心，这种情况会带来灾难性后果。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide12-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-3.jpeg)
 
-消息称，此举引发了墙内民众的广泛质疑。他们指出，中共当局没有给出儿童接种新冠疫苗的数据报告，也没有披露这些疫苗是否已经完成了三期试验。同时，他们质问当局，疫苗造成的各类副作用是否有人负责。更有民众表示，宁可让孩子休学，也不会接种新冠疫苗。
+同时，在洛杉矶县，数千名拒绝新冠疫苗强制令的副警长和文职人员也正面临停职的境况。该县警长称，鲁莽地执行新冠疫苗强制令将导致全县44%的警力流失，这会将公共安全置于危险之中。
 
-参考链接: [中疾控答21记者：3-11岁人群接种新冠疫苗，要在知情、同意的基础上](https://m.21jingji.com/article/20211030/herald/4c9ca32989cac1708076ac67b69822f9.html)
+另外，在亚利桑那州，图森水务公司的一名员工声表示，该公司正在因新冠疫苗强制令而“失去员工”。据了解，该公司不得不从其他地区和其他部门抽调人员，用以帮助专门负责监督水质和饮用水参数的部门保持运营。
+
+此前，郭文贵先生多次在直播中示警，疫苗灾难将导致全球基础设施大崩溃。而今，事实证明，这种情况已经发生在全美乃至全世界各地。
+
+参考链接: [Mandate Meltdown: 26 NYC Firestations Shuttered, LA Sheriff Warns Of ‘Mass Exodus’, Tucson Water District Faces ‘Staff Shortage’](https://www.zerohedge.com/covid-19/mandate-meltdown-26-ny-firestations-shuttered-la-sheriff-warns-mass-exodus-tucson-water)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：飞虹
-编辑：珈沅
+总编：Irene木木
+编辑：Irene木木
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

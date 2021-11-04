@@ -2,13 +2,13 @@
 ---
 
 
-## 华盛顿DC法官对抗拜登强制令，保护未接种原告免遭解职
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1637544/)
+## 捷克3000多新增病例都已接种中共病毒疫苗仍然感染
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1637633/)
 
-10/29/2021 华盛顿DC联邦地区法官Colleen Kollar-Kotelly做出相关裁定，防止那些未接种疫苗的原告遭军队解职和处分，对抗拜登政府疫苗强制令。2021年10月29日，Colleen Kollar-Kotelly法官针对疫苗宗教豁免申请待处理及豁免申请遭拒且选择上诉的原告案件做出裁定。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1104-scaled.jpg)
+*编辑：东京樱花团/简报小组*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,42 @@
 ---
 
 
-## 共和党人执掌弗吉尼亚州
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1637104/)
+## 研究报告显示，伊维菌素是预防和治疗COVID-19的特效药
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1637239/)
 
-撰稿：西枫westca
+【简评：】*随着伊维菌素对COVID-19的预防和治疗效果已经是不争的事实，在印度北方邦、德里，在日本等很多国家和地方都已经有应用伊维菌素的成功案例，且基本上完全消灭了COVID-19疫情。面对种种成功的事实，美国疾病控制与预防中心（CDC）、福奇博士（Dr. Fauci）和FDA依然选择视而不见，并继续推广毒疫苗，视人民的生命如蝼蚁，他们已经完全为了利益背弃了自己的信仰和良心。*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-41-e1635971507129.png)图片来源：《网关专家》
+据《网关专家》记者Jim Hoft，2021年11月1日报道：
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-2.jpg)图片来源：STEVE HELBER / AP
-11月3日综合报道， 美国弗吉尼亚州长选举看似来自共和党的格伦·扬金（Glenn Youngkin) 击败了民主党人，成为自2009年以来第一位获得联邦全州公职的共和党人。同时，共和党人温索姆·西尔斯（Winsome Sears）将成为弗吉尼亚州下一任副州长，成为联邦400年立法史上第一位女性、第一位有色人种女性任此职位。
+一份包含64项研究的新的国际报告显示，伊维菌素作为冠状病毒COVID-19预防药物的成功率为86%，且早期治疗中的成功率为67%。
 
-而在去年的总统选举中，民主党在弗吉尼亚州可是以压倒性优势战胜共和党。据Newsmax 分析，此次共和党获胜，有以下原因起到了关键作用：
+这一结果与过去一年中报道的超过290多项关于羟氯喹的研究相呼应。
 
-1. 选民反对疫苗护照、COVID口罩；
-2. 黑人选票缺失，原因在黑人一直对接种疫苗犹豫不决。不接受疫苗接种人士可能被开除造成的影响；
-3. 处理南部边境难民危机、阿富汗撤军解决方式、通货膨胀飙升等带来拜登的支持率降低；
-4. 批判性种族理论带来的反弹；
-5. 执政党对于经济政策带来的供应链问题、通胀飙升带来反对声；
-6. 民主党试图指责共和党参选人是前总统川普的傀儡，但这可能带来反弹，使当初投票拜登的选民转变立场。
+尽管这些药物在同行评审研究中持续有效，但美国疾病控制与预防中心（CDC）、福奇博士（Dr. Fauci）和美国食品和药物管理局嘲笑使用这些药物治疗中共病毒COVID-19。到某个时候，他们将不得不把他们自己的傲骄放在一边，承认自己错了，并承认这可能是导致数百万人死于这种致命病毒的原因。
+
+《网关专家》对CDC的决定进行了大量报道，这些决定导致数千名美国人死亡。
+
+**新的国际报告显示，伊维菌素在预防和降低死亡率方面表现非常出色。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-42-e1635971631142.png)图片来源：《网关专家》
+伊维菌素比其他药物效果更好。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-43-e1635971695784.png)图片来源：《网关专家》
+网址：https://ivmmeta.com，可以看到上述研究全文，供您细读。
+
+原文连接：[https://www.thegatewaypundit.com/2021/11/wonder-drug-new-international-ivermectin-report-64-studies-shows-86-success-prophylaxis-67-success-early-treatment/](https://www.thegatewaypundit.com/2021/11/wonder-drug-new-international-ivermectin-report-64-studies-shows-86-success-prophylaxis-67-success-early-treatment/)
+
+（本文评论仅代表个人观点）
+
+翻译/评论：洛杉矶盘古农场 –钢蛋儿
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – 明子
 
 
-格伦杨金在竞选中表示他将通过减税来推动弗吉尼亚州的经济复苏，以及家长在公共教育系统的选择。
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-这场选举是民主党在中期选举前一年的一次挫折，中期选举将决定国会的控制权。如果共和党控制国会两院，甚至一院，将影响拜登的执政和通过立法能力。而今晚在新泽西州的州长选举中，共和党州长候选人Jack Ciattarelli有极大可能挑战成功， 另据郭文贵先生今天直播中透露夏威夷、西雅图等地的选举也是共和党领先。这些政党领导人会是新中国联邦的支持者， 喜联储的拥护者。 希望在灭共的道路上，有越来越多的人加入进来，加快灭共步伐！
-
-**新闻来源：**[EARTHQUAKE:  6 Reasons GOP Won and CRT, Mandates, Biden Lost | Newsmax.com](https://www.newsmax.com/politics/ciattarelli-mcauliffe-murphy-trump/2021/11/03/id/1043059/)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

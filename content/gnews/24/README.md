@@ -2,53 +2,37 @@
 ---
 
 
-## 美国国际旅行新规：11月8日起，外国旅客入境将被要求全面接种疫苗
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1637362/)
+## 中共外交部尴尬回应张高丽性侵丑闻
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1637429/)
 
-作者：纽约香草山 – AlexZ
+**作者：日本东京方舟农场 子辰**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+据大纪元11月03日报道，有外媒在中共外交部记者会上提问有关张高丽性侵的事，发言人汪文斌尴尬回应称自己没听说过此事。
 
+中共当日外交部例行记者会中，彭博社记者就张高丽性侵事件询问中方的看法。中共外交部发言人汪文斌听完问题后相当尴尬，回应称没有听说过此事，称这不是外交问题，而且体育总局也没有对此事有过任何回应。
 
+日前，现年35岁的彭帅昨日深夜突然在微博上发长文，自曝遭七十多岁的中共前副总理张高丽性侵多次，指控张高丽“用完就丢”，自己悲惨沦为张高丽的泄欲工具。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-6.jpg)图片来源：https://www.epochtimes.com/gb/21/11/3/n13350643.htm
 
+据爆，张高丽首次性骚扰彭帅的时候，彭帅才19岁，而张高丽已59岁。更让人震惊的细节是，张高丽的妻子康洁知道这一切，而且在张高丽再次性侵她的时候，康洁就守在门外。
 
-10月25日，白宫和CDC宣布，将于11月8日对国际旅行者实施新的疫苗接种政策。国务院发言人内德-普莱斯说：”从11月8日起，前往美国的外国国民航空旅行者将被要求全面接种疫苗，并在美国登机前提供疫苗接种状况证明。”
+彭帅发出这份约1700字的长微博后，随即遭到删除，彭帅的微博账号也被关闭，所有关于“彭帅”、“张高丽”等关键字也一律被封锁，甚至连“网球”一词都成为了禁语。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1343-1-nedpa.jpg)图片：ANDREW HARNIK/POOL/AFP via Getty Images
+而在中共外交部官网今天的例行记者会文稿中，上述这段提问，也已被删除。
 
-据说此举是为了 “把健康放在第一位”。然而，批评者称此举具有侵略性，而且没有必要。尽管有新规比以往更加严格，但美国表示仍将要求所有旅行者，无论是否接种疫苗，在登机前都要接受 COVID 检测。
+*参考链接：*
 
-据普莱斯证实，那些有资格旅行但尚未接种疫苗的人，需要在航班起飞前一天内提供 COVID-19 阴性检测证明。对于接种疫苗的人，测试要求仍然是在航班起飞前三天。
+[中共外交部新闻会 外媒追问张高丽性侵丑闻](https://www.epochtimes.com/gb/21/11/3/n13350643.htm)
 
-**新闻链接：**
-
-1. [U.S. changes international travel requirements, COVID vaccine policy | One America News Network (oann.com)](https://www.oann.com/u-s-changes-international-travel-requirements-covid-vaccine-policy/)
-2. [Frequently Asked Questions on COVID-19 Vaccinations and Testing for International Travel (state.gov)](https://travel.state.gov/content/travel/en/international-travel/emergencies/covid-19-faqs-for-travel-to-the-us-information.html)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-**校对/发稿：小鹿**
+* * *
 
 
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
+```
+素材采编：子辰
+编辑：文顺
+校对/发布：Ranting
+```
 
 
  

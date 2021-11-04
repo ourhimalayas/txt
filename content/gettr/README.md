@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/4/2021 2:03 AM (UTC)`
+
+10月3日：昔日救死扶伤的医院．变成了活人送葬场……这都是中国共产党犯下的滔天的罪行．共产党你完了。<br/><br/>【全美国的医院的急诊室灌满了疫苗心脏病。 https://www.zerohedge.com/medical/something-really-strange-happening-hospitals-all-over-america】
+![img](https://media.gettr.com/group12/getter/2021/11/04/02/bc109d1b-a5e1-6edb-6c9c-7b1c0fad8116/8e6830650b9df18e41d8add4e032d9ec.jpg)
+
+---
+
 `@miles 11/4/2021 1:08 AM (UTC)`
 
 11/3/2021 Hao Haidong couple reveal: Guo Jingjing, a retired female champion diver, had condoms in her drawer when she was just about 10 years old in 1992<br/><br/>11/3/2021 郝海东夫妇爆料：92年十岁左右的郭晶晶在抽屉竟然放了避孕套！<br/>
@@ -289,13 +296,6 @@ Hcoin To The Moon <br/><br/>词：威廉王<br/>曲：唐平<br/>编曲： SFG<b
 
 在 GETTR 上加入我的直播。
 ![img](https://media.gettr.com/group1/getter/2021/10/23/19/bef325e0-a7dd-eef4-f1c5-6977a36aeaf7/7f87f676c946650f527b3506087be38c.jpeg)
-
----
-
-`@miles 10/31/2021 8:54 AM (UTC)`
-
-<br/>喜马拉雅币上市时间：<br/>格林威治时间：<br/>2021年11月1日 11:11 AM<br/>美国东部时间：<br/>2021年11月1日 07:11 AM<br/>北京时间：<br/>2021年11月1日 07:11 PM<br/><br/>直播平台：<br/>GTV：<br/>郭文贵MILES<br/>GETTR ：<br/>MILES GUO<br/><br/><br/>直播时间：<br/>格林威治时间：<br/>09:37 AM<br/>美国东部时间：    <br/>05:37 AM<br/>北京时间：<br/>05:37 PM
-![img](https://media.gettr.com/group7/origin/2021/10/31/08/7d220c73-c9bb-425d-6b57-6a5ab924873c/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

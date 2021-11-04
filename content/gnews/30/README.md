@@ -2,42 +2,54 @@
 ---
 
 
-## 研究报告显示，伊维菌素是预防和治疗COVID-19的特效药
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1637239/)
+## 美国国际旅行新规：11月8日起，外国旅客入境将被要求全面接种疫苗
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1637362/)
 
-【简评：】*随着伊维菌素对COVID-19的预防和治疗效果已经是不争的事实，在印度北方邦、德里，在日本等很多国家和地方都已经有应用伊维菌素的成功案例，且基本上完全消灭了COVID-19疫情。面对种种成功的事实，美国疾病控制与预防中心（CDC）、福奇博士（Dr. Fauci）和FDA依然选择视而不见，并继续推广毒疫苗，视人民的生命如蝼蚁，他们已经完全为了利益背弃了自己的信仰和良心。*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-41-e1635971507129.png)图片来源：《网关专家》
-据《网关专家》记者Jim Hoft，2021年11月1日报道：
+作者：纽约香草山 – AlexZ
 
-一份包含64项研究的新的国际报告显示，伊维菌素作为冠状病毒COVID-19预防药物的成功率为86%，且早期治疗中的成功率为67%。
-
-这一结果与过去一年中报道的超过290多项关于羟氯喹的研究相呼应。
-
-尽管这些药物在同行评审研究中持续有效，但美国疾病控制与预防中心（CDC）、福奇博士（Dr. Fauci）和美国食品和药物管理局嘲笑使用这些药物治疗中共病毒COVID-19。到某个时候，他们将不得不把他们自己的傲骄放在一边，承认自己错了，并承认这可能是导致数百万人死于这种致命病毒的原因。
-
-《网关专家》对CDC的决定进行了大量报道，这些决定导致数千名美国人死亡。
-
-**新的国际报告显示，伊维菌素在预防和降低死亡率方面表现非常出色。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-42-e1635971631142.png)图片来源：《网关专家》
-伊维菌素比其他药物效果更好。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-43-e1635971695784.png)图片来源：《网关专家》
-网址：https://ivmmeta.com，可以看到上述研究全文，供您细读。
-
-原文连接：[https://www.thegatewaypundit.com/2021/11/wonder-drug-new-international-ivermectin-report-64-studies-shows-86-success-prophylaxis-67-success-early-treatment/](https://www.thegatewaypundit.com/2021/11/wonder-drug-new-international-ivermectin-report-64-studies-shows-86-success-prophylaxis-67-success-early-treatment/)
-
-（本文评论仅代表个人观点）
-
-翻译/评论：洛杉矶盘古农场 –钢蛋儿
-
-校对：洛杉矶盘古农场 – Mike Li
-
-编辑：洛杉矶盘古农场 – 明子
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+10月25日，白宫和CDC宣布，将于11月8日对国际旅行者实施新的疫苗接种政策。国务院发言人内德-普莱斯说：”从11月8日起，前往美国的外国国民航空旅行者将被要求全面接种疫苗，并在美国登机前提供疫苗接种状况证明。”
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1343-1-nedpa.jpg)图片：ANDREW HARNIK/POOL/AFP via Getty Images
+
+据说此举是为了 “把健康放在第一位”。然而，批评者称此举具有侵略性，而且没有必要。尽管有新规比以往更加严格，但美国表示仍将要求所有旅行者，无论是否接种疫苗，在登机前都要接受 COVID 检测。
+
+据普莱斯证实，那些有资格旅行但尚未接种疫苗的人，需要在航班起飞前一天内提供 COVID-19 阴性检测证明。对于接种疫苗的人，测试要求仍然是在航班起飞前三天。
+
+**新闻链接：**
+
+1. [U.S. changes international travel requirements, COVID vaccine policy | One America News Network (oann.com)](https://www.oann.com/u-s-changes-international-travel-requirements-covid-vaccine-policy/)
+2. [Frequently Asked Questions on COVID-19 Vaccinations and Testing for International Travel (state.gov)](https://travel.state.gov/content/travel/en/international-travel/emergencies/covid-19-faqs-for-travel-to-the-us-information.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+**校对/发稿：小鹿**
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
