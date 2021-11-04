@@ -2,10 +2,10 @@
 ---
 
 
-## VAERS数据显示年轻男性接种疫苗后患心肌炎风险加剧
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639096/)
+## 我们的能力和海外力量的保护使中共无法消灭喜联储
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639206/)
 
-10/27/2021 疾控中心中共病毒反应小组马修·奥斯特博士：疫苗不良事件报告系统数据显示年轻男性打疫苗后心肌炎风险增加。
+11/1/2021 【HCoin to The Moon庆典】郭文贵先生：我们的能力和海外力量的保护使中共无法消灭喜联储
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

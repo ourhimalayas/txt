@@ -2,10 +2,10 @@
 ---
 
 
-## 喜币将成为人类上共同认可的捍卫正义的力量，越走越远
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639225/)
+## 杰森·米勒：我们需要从大型科技寡头手中夺回言论自由
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639326/)
 
-11/1/2021 【HCoin to The Moon庆典】喜币会成为人类上大家共同认可的捍卫正义的力量，越走越远。
+11/01/2021 盖特首席执行官杰森·米勒：我们正处于美国历史上最糟糕的政治审查时期。我们需要从大型科技寡头手中夺回言论自由的权利。是时候让人们重新拥有发声的权力，让人们不再做旁观者。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

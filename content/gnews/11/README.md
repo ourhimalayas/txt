@@ -2,10 +2,10 @@
 ---
 
 
-## 我们的能力和海外力量的保护使中共无法消灭喜联储
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639206/)
+## 巨星歌手席琳·迪翁会否成为改变加拿大疫苗现状的人？
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639307/)
 
-11/1/2021 【HCoin to The Moon庆典】郭文贵先生：我们的能力和海外力量的保护使中共无法消灭喜联储
+10/17/2021 巨星歌手席琳·迪翁或因接种疫苗卧床不起，最后一刻取消演出。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

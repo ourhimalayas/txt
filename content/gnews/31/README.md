@@ -2,25 +2,31 @@
 ---
 
 
-## 文贵视角:喜交所(喜联储)正在给中共&#8221;放血&#8221;
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1638936/)
+## Truth Social被控违反软件版权许可
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1639001/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Image-2-3.jpg)
-**喜币一飞冲天**
+作者：纽约香草山农场 – 007
 
-「H coin to the moon!」「H coin to the moon!」郭文贵先生在11月3日的直播中高兴地唱着。喜币正式上市，新中国联邦人乐翻天!
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-「成立喜马拉雅交易所的目的是创建一个系统，让人民能实现财务自由支配及拥有财富的自主权。」文贵先生在11月4日的盖特文指出。「在一天之内，喜交所新增加的KYC人数已有六万多人，快超越通过KYC的7万7千人，其中包括在大陆的中国人，很多人都在想办法把钱转出大陆。」
+11月2日，据盖特消息显示，近日，软件自由保护协会发文称，社交应用Truth Social复制了受AGPLv3协议保护的Mastodon公司源代码。依照规定，复制方需向用户分发自己的源代码链接，但Truth Social目前无视了公开源代码的请求。规定中提及，如果30天内Truth Social不纠正违规行为，AGPLv3所授予的权利将自动永久终止。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-4.jpg)
+目前，Mastodon公司正在尝试通过法律途径解决这一问题， 其创始人表示，Truth Social违反许可规则，Mastodon可以采取法律行动。他补充道，Mastodon公司已经联系了对方公司的法律顾问。
 
-**喜交所将让共产党大失血**
+参考链接：
 
-喜交所甫成立不久，中共国就出现”失血”现象，许多资金企图在中共倒台之前，寻求安全的诺亚方舟，而全世界唯一一个与黄金挂勾的虚拟货币”喜币”正是最安全保值的不二选择。
+[Truth Social被指控违反版权许可，SFC和Mastodon 可能提起诉讼](https://gettr.com/post/pfugq19e98)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编/编辑：Irene木木
+校正/发稿：Fei797
 
-「还没开始呢!..新中国联邦至少需要7亿人都在喜交所登记注册，…我不希望再有像杨改兰那样，因为没饭吃而被迫杀死自己的孩子及自杀的悲苦母亲。…现在要做的是让更多人加入新中国联邦，将来有机会分到喜联储的股票。」文贵先生坚定地说。对于贫困的人而言，喜交所可以是一个充满希望及生机的金融诺亚方舟。
-
-然而对于邪恶的共产党而言，「一旦喜交所被某国承认并给予虚拟银行牌照、虚拟银行交易所，并且作为国家流通法币，那么喜币绝对秒杀’去中心化’、洗黑钱的比特币！」由于比特币在暗网的交易与共产党息息相关，喜交所的成立将彻底改变国际金融游戏规则，加速对中共的”放血”，抽光共产党赖以为生的肮脏血液(金钱)，共产党绝无活路!
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

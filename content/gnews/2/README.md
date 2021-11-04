@@ -2,10 +2,10 @@
 ---
 
 
-## 一名护士因拒绝接种中共病毒疫苗而被迫离职
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639299/)
+## 中国人将为仅有使用权的房子每年缴纳高额房产税
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639389/)
 
-10/30/2021 一名凯撒医院的护士因宗教信仰而拒绝接种中共病毒疫苗，被迫离职。
+10/25/2021 中国人将为仅有使用权的房子每年缴纳高额房产税。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

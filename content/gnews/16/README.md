@@ -2,50 +2,40 @@
 ---
 
 
-## 新泽西州长选举共和党竞选人尚未承认失败
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1639151/)
+## 圣诞节购物出状况：澳大利亚面临物流危机
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1639263/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**整理：纱娜宝宝**
+**校对 /编辑：**守望黎明
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/N-2.jpg)thenewamerican.com
-在主流媒体一片宣称民主党人菲尔墨菲（Phil Murphy）获得新泽西州长连任后，数小时前墨菲自己也宣布获胜，但是共和党竞选人杰克·恰塔雷利（Jack Ciattarelli）到现在为止，也没有像弗吉尼亚败选人向胜选人表示祝贺那样，向所谓的获胜人菲尔墨菲祝贺，相反看到了众多的质疑。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG-1147.JPG.jpg)图片来源：The Sydney Morning Herald
 
-《贝克尔新闻》（Becker News）这样报道，“新泽西州州长竞选提醒美国，在这个国家，我们离选举诚信还有很长的路要走。共和党候选人杰克·恰塔雷利（Jack Ciattarelli）与现任民主党州长菲尔·墨菲（Phil Murphy）的竞选中，在周二（11月2日）深夜，当大多数美国人入睡的时候，他仍保持着4.2万张选票的领先。目前，恰塔雷利的得票率为88%，有1000票的微弱优势。
 
-在整个选举之夜，恰塔雷利在州长竞选中表现出色的主要原因是他在蓝郡的表现，尤其是卑尔根（Bergen）郡，在晚上的大部分时间里，他都以惊人的领先优势领先……”【1】
+据《悉尼先驱晨报》11月4日报道，澳大利亚竞争和消费者委员会（ACCC）主席罗德˖西姆斯对消费者发出警告，今年要从现在开始就提早准备圣诞节购物以应对由新冠疫情导致的全球供应链紧缩，而港口海洋事务工会有争议的雇佣配额进一步加剧了这种状况。
 
-《门道专家》直接用了“诡计”的字眼，“民主党人在新泽西州州长竞选中的诡计——共和党人以100%的选票赢得了最大的郡，然后选票翻转，民主党人奇迹般地赢得了该郡……
+这一状况对于本地进出口企业来说是“灾难性的连锁反应”， 西姆斯说， “物流是一个像钟表一样运作的系统，一旦受损会引发巨大的连锁反应。物流的危机也让商家不得不告诉他们的客户，提前做好商品迟到和缺货准备。”
 
-在全州83%的选票统计中，共和党人恰塔雷利以4.2万票领先全州，此时，新泽西州最大的郡卑尔根郡宣布了100%的报告，恰塔雷利赢得了52%的选票。
+可是新发表的一个ACCC的报告指出，澳大利亚的供应链危机早在疫情爆发之前就已经存在，昂贵的运费和货运的中断及延迟使澳洲港口运行被公认为效率远低于国际标准。澳洲两大集装箱港口悉尼和墨尔本在世界银行对于世界上351个国际港口的分析中处于倒数的10-15%，有的海外货运公司干脆取消了澳洲的业务。
 
-然后情况变了，几分钟后，87%的选票统计完毕，卑尔根郡的选举结果发生了变化，突然墨菲以51%的选票领先该郡，恰塔雷利在该州的4.2万张领先选票同时也减少到1600张。”【2】
+同时，海洋事务工会正在交涉一个很有争议的条款，要求70%以上雇员由雇员的家庭成员和朋友组成， 或是经由工会进行挑选。这项工会的要求造成了有的船只无法在珀斯的弗里曼多港口停泊，甚至导致有些航运公司认定到悉尼的波特尼港装卸就肯定会亏本。到达波特尼港的船只都要先等待一整天，平均等待时间从以前通行的11.9小时增到了2020-21年的21.2小时，几乎翻了一倍。货运的混乱还导致了空集装箱的丢失，加剧了拥堵并进一步延迟了交货时间从几周到几个月。
 
-《塔克·卡尔森团队》则有更多的报道，“非法行为：新泽西州州长选举工作人员告诉非公民和未注册选民，她将允许他‘现在可以填写选票’”。【3】
+标普全球普氏能源资讯的数据显示，自去年以来，全球关键贸易航线的运费已经飙升了七倍。 据ACCC 所知，耐克现在要支付高达 20,000 美元来运送一集装箱运动鞋，而不是通常的 2,000 美元，这使得销售一些运动鞋实际上已经无利可图。 由于货运成本增加了5到10倍， 而能够转嫁给消费者的费用则很有限，这就使得小型进出口商被挤出市场，而大商家的利润也大大降低。其结果最终只能是消费者付出得更多但买到的东西更少。
 
-“新泽西州州长竞选中的报告问题引起了一些担忧，据 NBC 新闻全国政治记者史蒂夫·科纳奇(Steve Kornacki) 称，新泽西州哈德逊郡的早期投票是‘重复计算的’。显然，双重计票让民主党候选人菲利普·墨菲获得了 10,732 票，而他的共和党对手杰克·恰塔雷利只获得了 2,842 票。科纳奇继续说计数‘现在已经确定’，然而，许多人担心这样的错误甚至一开始就犯了。”【4】
+海上航线的频繁突然取消，网上购物的盛行更加突显了物流的压力，ACCC呼吁大家要尽早进行圣诞购物以分散物流高峰季的压力.
 
-“新泽西州选举混乱：56 台投票机一夜之间关闭，不计票数，必须被带去仓库”。【5】
+而海洋事务工会则否认了存在那么个70%的雇佣设限。
 
-亚利桑那州参议员、退役战斗机女飞行员温迪·罗杰斯（Wendy Rogers）直接发出呼吁，“审计新泽西！”【6】
+（文章内容仅代表作者个人观点，与GNEWS无关）
 
-选举到了令人不能信服的程度，也就失去了选举的意义，谁希望看到这一幕？那就是独裁专制政府。参与舞弊的人们不一定都喜欢专制暴君，只是在个人喜好、利益诱惑下放弃了原则，没有真正意识到背后恶势力的图谋。所以，揭露罪恶、曝光阴谋、唤醒世界、认知中共是世界当务之急。
+原文链接：[Christmas Chaos： Australia Facing Disastrous Shipping Crisis](https://www.smh.com.au/business/consumer-affairs/christmas-chaos-australia-facing-disastrous-shipping-crisis-20211103-p595rv.html)
 
-笔者不希望目前新泽西州长选举是被操控的结果，但是出现了质疑，就应该进入消除质疑的程序，而不是打压、禁声，通过透明的解释，让失利者心服口服。
+发布：Janek
 
-有关链接：
-
-【1】[https://beckernews.com/watch-new-jersey-county-flips-from-red-to-blue-with-100-reported-giving-phil-murphy-the-lead-42877/](https://beckernews.com/watch-new-jersey-county-flips-from-red-to-blue-with-100-reported-giving-phil-murphy-the-lead-42877/)
-
-【2】[https://www.thegatewaypundit.com/2021/11/breaking-democrat-tricks-new-jersey-governors-race-republican-winning-largest-county-100-votes-counted-vote-flips-democrat-miraculously-wins-county/](https://www.thegatewaypundit.com/2021/11/breaking-democrat-tricks-new-jersey-governors-race-republican-winning-largest-county-100-votes-counted-vote-flips-democrat-miraculously-wins-county/)
-
-【3】[https://teamtuckercarlson.com/news/illegal-conduct-new-jersey-gubernatorial-election-worker-tells-non-citizen-and-non-registered-voter-she-will-allow-him-to-fill-out-completely-a-ballot-now/](https://teamtuckercarlson.com/news/illegal-conduct-new-jersey-gubernatorial-election-worker-tells-non-citizen-and-non-registered-voter-she-will-allow-him-to-fill-out-completely-a-ballot-now/)
-
-【4】[https://teamtuckercarlson.com/news/early-vote-double-counted-in-hudson-county-was-fixed-and-gave-gop-candidate-lead/](https://teamtuckercarlson.com/news/early-vote-double-counted-in-hudson-county-was-fixed-and-gave-gop-candidate-lead/)
-
-【5】[https://teamtuckercarlson.com/news/nj-election-chaos-56-voting-machines-shut-down-overnight-without-votes-being-counted-will-have-to-be-brought-to-warehouse/](https://teamtuckercarlson.com/news/nj-election-chaos-56-voting-machines-shut-down-overnight-without-votes-being-counted-will-have-to-be-brought-to-warehouse/)
-
-【6】[https://twitter.com/WendyRogersAZ/status/1456279218246062093](https://twitter.com/WendyRogersAZ/status/1456279218246062093)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

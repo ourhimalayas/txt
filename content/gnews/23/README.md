@@ -2,54 +2,57 @@
 ---
 
 
-## 中共国网球名将彭帅在微博自爆曾被张高丽玩弄并遭遗弃
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1639020/)
+## 上个月在BC省232个航班上出现新冠
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1639178/)
 
-作者：英国喜庄园 – I770775
+作者：Ian Holliday
+翻译: HimaCoby
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Chart.jpg)
 
+根据不列颠哥伦比亚省疾病控制中心的数据，连续第三个月有超过 200 架载有新冠病例的航班经过不列颠哥伦比亚省机场。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+截至周三晚上，BCCDC 已发布了 10 月份在该省机场起飞或降落的 232 架不同航班的暴露通知。最近飞行的人测试呈阳性并且他们同行班的人也被添加到列表中，这个数字可能会继续增长。
 
+10 月份的最终总数肯定无法达到 8 月份创下的历史新高，当时 BCCDC 最终将 522 个航班添加到了名单中。然而，10 月仍可能与 9 月的 269 次飞行暴露相近。
 
+当一名或多名乘客的新冠检测呈阳性时，航班会被添加到列表中。尽管飞机上的冠状病毒传播很少见，但已经有一些记录在案的例子。
 
-11月2日，中共国网球选手彭帅在微博发帖爆料，称中共国前副总理张高丽曾与她多次发生性关系，并指控张高丽在事后很长时间内借口有事儿与她断绝联系，试图抹去他们之间不可告人的关系。
+BCCDC 建议任何在航班上接触过新冠的人对症状进行 14 天的自我监测，如果出现任何症状，应寻求测试和自我隔离。
 
-郭文贵先生从2017年爆料开始，多次爆出中共高层乱伦、玩弄幼女等丑恶嘴脸。
+可以在BCCDC 网站上找到最近的风险航班以及被认为具有较高风险的受影响行程的完整列表。
 
-针对彭帅的这次自爆，郭先生在盖文里忍不住再次怒骂：包养运动员，对中南坑那些道貌岸然的中央领导来说，再正常不过了。他们有一个算一个，无不以玩弄幼女为乐。
+自大流行开始以来，通过不列颠哥伦比亚省机场的飞机上暴露数量往往与该省的病例数量遵循相同的模式。
 
-郭先生感叹，可悲的中国人，被这些伪君子统治了七十多年，是时候醒过来，站起来反抗了。
+然而，这两种趋势在 8 月变得有些脱节，因为 BC 的第四波飞行暴露打破了之前的记录，达到历史最高水平。
 
-11月3日，郭先生在大直播中再谈彭帅爆料事件，认为这是中共高层内部斗争的结果，一方面验证了爆料革命的真实性、准确性，另一方面表明，中共总是习惯使用一些极其幼稚的手段试图达到自己的某些私人目的，根本不具备管理国家的基本能力。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-2.jpg)
-参考链接：
-1. 郭先生盖特：[11月2号：张高丽这个孙子，包养运动员的事情是在中南坑里！在正常不过的了，可是悲哀的事情，整个中国体育界只有一个郝海东．一个叶钊颖．该醒来了……中国的少男少女们。](https://gettr.com/post/pfuwdu33fb)
-2. [彭帅事件真相扑朔迷离 专家：共产党不许人们议论](https://www.dw.com/zh/%E5%BD%AD%E5%B8%85%E4%BA%8B%E4%BB%B6%E7%9C%9F%E7%9B%B8%E6%89%91%E6%9C%94%E8%BF%B7%E7%A6%BB-%E4%B8%93%E5%AE%B6%E5%85%B1%E4%BA%A7%E5%85%9A%E4%B8%8D%E8%AE%B8%E4%BA%BA%E4%BB%AC%E8%AE%AE%E8%AE%BA/a-59702973)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/CHart1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+加拿大于 9 月 9 日再次开始欢迎国际游客，10 月份国际航班上的接触人数确实比 9 月份有所增加。这种温和的增长是由于更多的国际游客来到不列颠哥伦比亚省还是其他因素导致的，目前尚不清楚。
 
-总编：飞虹
-编辑：Zion文恩
-校对/发稿：为真不破20
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Chart2.png)
 
-**更多资讯，更多关注**
+同样不清楚的是，新的国内航空旅客疫苗接种要求证明将对未来的航班暴露数量产生什么影响。自 10 月 30 日起，所有在加拿大境内乘坐飞机、火车或游轮旅行的乘客都必须在登机前出示疫苗接种证明。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+來源：[https://bc.ctvnews.ca/covid-19-exposures-on-232-flights-and-counting-in-b-c-last-month-1.5651967](https://bc.ctvnews.ca/covid-19-exposures-on-232-flights-and-counting-in-b-c-last-month-1.5651967)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+（文章仅代表作者个人观点）
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
+**关注我们**
 
+Discord 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
