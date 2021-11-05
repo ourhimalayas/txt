@@ -2,32 +2,39 @@
 ---
 
 
-## 铸币权力的转移将解构专制权力与垄断
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1640097/)
+## 不管喜币上市还是任何事情我们永远不会依靠外国人
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1640225/)
 
-**作者：**MSGZ
-**编辑：**Candy
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-7_副本.jpg)
+据[2021年11月03 日 文贵大直播：彭帅爆张高丽丑闻，再次验证爆料革命的真实性；喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产；房地产税会灭国灭党；共和党在弗吉尼亚州长竞选获胜意味着什么](https://gtv.org/video/id=61827dfd11d186296800dd83)时间点1：15：36——
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-65.png)图片来源 hcr
+**郭文贵先生：**刚才你说到我们这个币，那天开始的时候，天下就那么下，下边就猜，啊，谁来了，你看主会场的后边摆着香槟，下面一片猜的谁呀？——蓬皮奥，猜皮特.纳瓦罗的，猜班农的。我很不高兴，为什么中国人这么大事一定要请外国人来？他来了能给你带来啥呀？他不会给我们带来一分钱，只能我们给他们钱，他会给我们带来合作，但是我们不能依靠他们，就是今天也不会依靠他们，永远不会依靠他们，我们中国人咋就这么贱呢！
 
+所以当时你知道非常有意思，就是孙俊平的我们之间一个好哥们，他也是咱战友，现在绝对在电视机前面呢，现在是广州市里边的一个政协的高官，给我发信息——七哥为啥咱们战友这么贱呢？非要希望外国人来，就没有一个希望中国人来的。咱中国人啥时候你有好事，别老想着外国人行不行？不是外国的月亮都是圆的！
 
-主宰铸币权力和形塑货币流通的形式，是一个国家、政权、寡头集团维持其权力的必要工具和手段 。控制了货币的产生和输出，就能控制官僚系统和军队，以此维持权力的存续。
+（以下暂略）
 
-从几千年前，由城邦国家到帝国时代，再到民族国家时代，乃至美国，铸币权始终被政权和政府垄断。美国表面上虽然不是中央集权政府，可是其主权货币的铸造和输出一直被掌控在家族式财阀手中，其财政决策过程没有经过充分的民主过程。这种以家族模式运作的小集团，很容易与掌握公共权力的政府（本质上也是小集团）形成黑箱操作。这能形成事实上的专治与垄断，也就是产生了“中心化”。
+撰稿：喜马拉雅的肉夹馍；
 
-喜联储作为货币铸造发行实体，她的所有权将不会归国家、政府、或几个财阀所有，而是其股权将由全体新中国联邦人民共同持有。这是对“国家专治权力本质”和金融史的颠覆性创举。是人类金融历史上的第一次。
+审核：喜马拉雅的馍夹肉；
 
-这一壮举是“去货币权力中心化”和“去国家化”的开端。喜币的加密货币属性、去市场中心化属性，以及发行数量和运行的公开透明化，保障了个人对其自身财富的主权和流通的自由。这将会消弭国家与国家之间存在的界限。
+校对：Maarago；
 
-更重要的，喜币的运作蓝图和将要达到的实际效用能瓦解“有垄断倾向的政治和非政治实体”对于妄图宰制财富的技术可能性。进而达到有效遏制国家主义、政治小团体对于权力扩张和构建垄断的欲望。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-**发布：**Candy
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,20 +2,54 @@
 ---
 
 
-## 秘翻在线: 中共军队在福建南部演练渡河作战
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1639480/)
+## 联合国粮农组织：10月份世界粮食价格创10年新高
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1639873/)
 
-撰稿：西枫westca
+作者：纽约香草山农-四季
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-3.jpg)图片来源：网络截屏
-据网易11月4日报道，中共陆军73集团军在福建南部水域，进行渡河作战演练。主要以舟桥部队的浮桥架设演练为主。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-舟桥部队是军事后勤工程保障的重要兵种。在传统战争中，如果桥梁受损，舟桥部队要立即收集水情数据、地形勘测，利用冲锋舟、汽艇等装备作为架设作业动力源，架筑浮桥。73集团军某政治部主任说:“下一步我们还要构设险难复杂条件，锤炼官兵战场应急处置能力，进一步提升部队遂行渡河工程保障任务能力。”中共国的小粉红立即high起来，评论道，今天能练渡河，明天实操渡海，直接攻过去，一举收复台湾岛。
 
-在21世纪科技如此发展的今天，我们已得知，若有战争，中共国的所有军事设施会在3分钟内全部被毁。中共还在演练这种近100年前的战争手段，是弱智还是糊弄百姓？
 
-**新闻来源：**[燃！陆军第73集团军在闽南水域，进行渡河作战演练！ |舟桥|浮桥\_网易新闻 (163.com)](https://www.163.com/news/article/GNURVBC10001899O.html)
+
+
+11月4日，总部设在罗马的联合国粮食及农业组织（FAO）表示，受到谷物和植物油上涨的影响，世界粮食价格在10月份已经连续第三个月上涨，达到了10年来的新高峰。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1351-1-2021-11-04T093001Z_2_LYNXMPEHA30H4_RTROPTP_0_PHILIPPINES-RICE_1.jpg)图片来源：REUTERS/Kham
+
+联合国粮食及农业组织食品价格指数的跟踪显示，全球贸易量最大的食品商品的国际价格，上个月的平均指数为133.2点，而9月份的修正后指数为129.2点。
+
+粮农组织表示，主要出口国特别是美、加、俄三国的小麦收成减少、全球市场供应紧张，将继续给小麦价格带来上行压力。世界植物油价格本月跳涨9.6%，创下历史新记录。相比之下，10月份全球糖价回落1.8%，结束了连续6个月的上涨。由于小麦贸易增加，粮农组织对全球谷物贸易预测上调至新纪录。
+
+在过去一年中，受收割受挫和需求强劲的推动，农产品价格已经急剧上升。
+
+**原文链接：**
+
+[World food prices hit new 10-year high in October -FAO | One America News Network (oann.com)](https://www.oann.com/world-food-prices-hit-new-10-year-high-in-october-fao/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

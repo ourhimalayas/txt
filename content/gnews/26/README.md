@@ -2,42 +2,42 @@
 ---
 
 
-## 2021/11/04文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1639917/)
+## 在英国发布有关疫苗的“虚假信息 ”可能会被判入狱两年
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1640051/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/110414.png)[盖特直播链接](https://gettr.com/post/pg1kj3494c)
-七哥真地不在乎别人是否真的信七哥，信不信七哥跟七哥没有关系，那是你的事情。信不信我不重要，最重要的是你能不能真地赚到钱。你可以不信我，只要你赚到钱；你可以不信我，只要你是个善良的人。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-喜联储和新中国联邦的建立的初衷不是为了让你信，我们是为了灭共而存在的。你信不信，开不开账号，买不买，那是要看你的造化和机会。
-
-我们的战友曾经4年的跟随，战友们付出太多，不仅是信任，甚至是把命交给了我；他们用6千万美元，一共7万7千人，创造了和拥有了一个全人类最富有的，最有希望、成长最快的一个万亿帝国，现在估值已达到1.45万亿美元了。目前新增的用户达到6万多人，快追上原有战友的数目了，总数达到13万多。这是仍然是很少的数字，14亿中国人，我们希望至少有7亿人来注册，还早着呢！
-
-我不希望任何家庭像杨改兰那样，我不希望任何家庭的女儿出现像彭帅那样的遭遇。傻得可怜！
-
-新中国联邦不要你们的任何回报，也不要取你们的任何东西，一切自由！战友们6千万，获得了一个1，5万亿（美元）的帝国，服不服？！
-
-中国人都太天真了，跟着党走，虚无缥缈的理想，太过于理想化。如果信仰不能帮到你，那就叫欺骗。首先要你们健康、安全、富有、没有恐惧，然后我们才能知道信仰的味道。
-
-（喜）币的价格还早着呢，早着呢，咱走着看……
-
-***听写**：阿甘*
-
-***校对: **小雨*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/201223-nurse-vaccine-died-covid-fact-check-carousel-1608696281095.jpg)
 
 
 
+图片来源：rappler.com
 
+
+#### 编译：小红帽
+
+在英国，根据一项新的法律，在网上发布有关中共病毒（COVID-19）疫苗的“虚假信息”的人可能面临两年监禁。
+
+英国的《在线安全法案》因其广泛的覆盖面而受到公民自由团体的猛烈批评。
+
+据《纽约时报》报道，该法律将制定“故意虚假通讯”的罪行，“将那些发送或发布他们知道是虚假的信息，意图对潜在受众造成情感、心理或身体伤害”的人定罪。政府消息人士举了“反疫苗者传播他们知道是不真实的虚假信息”的例子。
+
+鉴于当局认为关于大流行病和疫苗的各种信息都是“虚假的”，但后来证明是真实的，这是个令人不寒而栗的前景。
+
+该法案还将在确定帖子或消息是否犯罪时，将目前更严格的“不雅”或“严重冒犯”内容的标准更改为更广泛的“有害影响”定义。
+
+显然，这更符合英国的仇恨言论法，即不是根据是否真的发生了仇恨言论或仇恨事件，而是根据假定的受害者感觉他们成为了目标，来确定是否犯下了仇恨言论行为。
+
+**参考新闻：**[People in UK Who Post “False Information” About Vaccines Could be Jailed For Two Years – Summit News](https://summit.news/2021/11/01/people-in-uk-who-post-false-information-about-vaccines-could-be-jailed-for-two-years/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

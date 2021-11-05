@@ -2,30 +2,34 @@
 ---
 
 
-## 秘翻在线 :中共企图引发太空的珍珠岛事件?
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1640183/)
+## 举报人揭辉瑞疫苗试验“伪造数据”后，辉瑞正接受调查
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1640245/)
 
-撰稿：William
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/11/p-scaled.jpg)
-图片:网路
+#### 翻译：小鱼儿
+编辑：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/11/corona_vax_vials.jpg)
+一家参与研究的合同公司证实，正在在调查辉瑞公司关于中共病毒（COVID-19）疫苗重要试验中涉嫌存在的问题。
 
-**中共”实践21号”是卫星粉碎机**
+Ventavia研究集团（Ventavia Research Group）在2020年秋季运营了几个试验点。布鲁克·杰克逊（Brook Jackson）在此期间为该公司工作。她告诉《英国医学杂志》（BMJ），该试验充满了问题，包括数据造假。她向食品和药物管理局（FDA）通报了她所看到的问题，并在几小时内被解雇。
 
-根据《零对冲》(Zero Hedge) 的报导,10 月 24 日，中共将”实践21号”卫星送入轨道。中共国航天科技集团公司宣称此次任务是为了减轻和消除太空碎片。”实践21号”有一个机械手臂，可以用来移动超过1亿片漂浮在地球周围的太空垃圾，但同时也可捕获、禁用、摧毁或以其他方式使其他国家的卫星无法使用，因此”实践21号”是名副其实的卫星粉碎机(satellite crusher)。
+从事临床试验工作超过15年的杰克逊告诉《英国医学杂志》，她多次向上司提出关于她所目睹事情的担忧，包括病人安全问题。她开始觉得自己的报告被忽视了，于是用手机拍照。一张照片显然显示，针头被丢弃在一个塑料袋里，而不是一个盒子里；而另一张照片展示了包装材料，显示了试验参与者的识别号码，表明他们可能已经被解除了盲法。
 
-《胜利空间：美国如何保持超级大国》一书的作者布兰登•魏彻特(Brandon Weichert)告诉盖特斯通研究所(Gatestone)，中共国发射卫星到地球的同步轨道，同步轨道是美国最敏感的卫星系统关键位置，其中包括核战指挥、通信和控制（NC3）、监视和军事通信。
+杰克逊在9月25日给美国食品和药物管理局的信息中列出了她所关注的12个问题，包括参与者在接受注射后没有被监测，以及疫苗没有在适当的温度下储存。她称，Ventavia公司的工作人员因汇报问题而成为上级的目标。
 
-美国地球同步轨道上的卫星远离地球，既昂贵又难以更换，”如果失去任何的这些卫星系统，眼前并没有足以替代品，这将使得中共国军队在爆发战争行动时占尽先机。”
+杰克逊说，美国食品和药物管理局给她发了一封电子邮件，确认收到了清单。她还接到了美国食品和药物管理局检查员的电话，但此后再也没有收到该机构的消息。
 
-**太空争霸战正在开始**
+参考新闻： [Pfizer Vax Trial Being Probed After Whistleblower Exposes ‘Falsified Data’, According To Contractor | ZeroHedge](https://www.zerohedge.com/covid-19/whistleblower-reports-falsified-data-and-other-flaws-pfizer-vax-trial-being-investigated)
 
-魏彻特指出，中共正在规划一个太空珍珠港事件。幸运的是，美国还有伊隆•马斯克。他的 SpaceX 正在低地球轨道上建造 Starlink 电信卫星星座。完工之后，一旦中共国粉碎、激光、击落或冲撞美国在太空的军事轨道，将会有大约42，000颗卫星供美军使用。
+***发布：小红帽***
 
-太空是全世界最终的战略高地，关乎地球的控制权。邪恶的中共企图掌握至高权 ，然而从中共内部的经济崩盘、乃至外太空的争霸战，中共完全没有赢面，只能是彻头彻尾的输家。
-
-新闻来源：[China’s “Satellite Crusher”: Space Pearl Harbor Is Coming](http://China's%20&quot;Satellite%20Crusher&quot;:%20Space%20Pearl%20Harbor%20Is%20Coming)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

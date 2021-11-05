@@ -2,33 +2,181 @@
 ---
 
 
-## 郭文貴精品視頻-一個完美的無與倫比的貨幣Himalaya Coin誕生了
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1639663/)
+## 共产党不是拿房地产税，拿的是重新分配财富的权力
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1639907/)
 
-撰稿：澳喜cindy
+[https://gtv.org/video/id=6184619eadfd99590c333092](https://gtv.org/video/id=6184619eadfd99590c333092)
 
-1/11/2021是新中國聯邦人大喜的日子，是繼4/6/2020新中國聯邦成立的重要的日子之後，又一個值得紀念的日子。這一天我們的金融才子郭文貴先生的驚人之作-Himalaya Coin成功上市了！它意味著新中國聯邦的央行成立了！一個完美的無與倫比的貨幣誕生了！一個合法、合規、與黃金掛鈎、全球無界、可流通、現代加密、區塊鏈技術集一體的安全貨幣面世了！
+喜币, 喜联储上市
+Cuando se hace el listado de la moneda y la Reserva Federal de Himalaya
 
-作為37000位參與Himalaya Coin 投資者，我們有幸作為跟隨者成為時代潮流的弄潮兒。也毫無懸念地將獲得其它人所無法獲得的豐厚的回報。
+G-TV, G-CLUB
+G-TV, G-CLUB
 
-郭先生把我們戰友當作親人，讓我們活的更體面、更有尊嚴。他精心策劃的讓為爆料革命貢獻大的戰友以非常低的象徵性的價格持有喜幣，使37000個戰友佔10億個發行幣的60%份額，已成為民天下的金融系統。而形成鮮明對比的中共這個流氓體制就是用弱民、苦民統治人民，容不得你有財富。對私企老闆的非人的掠奪迫害，令人發指。
+所有的这一切它不是一个单纯的存在
+Todo esto no es una simple existencia
 
-我們新中國聯邦人的使命就是滅共。為了這個目的我們必須強大自己，我們必須有強大的經濟實力才可能吸納更多人才和有影響力的權威人士，和我們共同滅共。
+是一个爆料革命, 新中国联邦的信任
+Es un Movimiento de Denunciantes, es la confianza hacia el Nuevo Estado Federal de China
 
-中共幾年來一直沒有停止對爆料革命的戰友們的打壓，他們窮凶極惡恨不能把我們消滅掉。在這次喜幣上市過程中，中共用幾百億次/秒黑客攻擊喜聯儲的交易系統，試圖阻止喜幣的上市。但沒有被攻癱仍然正常運行。可知新中國聯邦的背後有著巨大的力量在守護著我們才使得喜幣上市圓滿成功。
+你的为人, 你的判断力, 你的信仰
+Tu personalidad, tu criterio, tu creencia
 
-郭先生用他的才華、他的人際關係、他超高的社交能力和信譽，凝聚了世界眾多財力雄厚的精英團隊共同打造了我們新中國聯邦的金融諾亞方舟-G系列。
+你对人的一个相处的关系的综合存在
+La existencia integral de la relación que tienes con las personas
 
-喜幣給我們帶來無限的期望和喜悅。郭先生不但給我們開啓了民智還讓我們甚至我們的子孫有一個從來沒有想過的如此美好的未來和憧憬。
+那么我们要看到这是什么
+Y qué es lo que debemos ver
 
-「當有權威的投資機構投資Exchange時；當有一個國家批給我們一個虛擬交易市場國家級牌照的時候；當有國家承認喜幣為他們國家的法幣的時候，喜幣的價格才開始真正的體現出來。」郭先生還說：「喜聯儲最大的價值就是：民天下」
+现在看到国内的房地产
+Ahora vean las propiedades inmobiliarias a nivel nacional de China
 
-「我們買喜幣買的就是喜聯儲，因為它有鑄幣權和錢幣。喜幣的屬性是以個數計量，無論價格的漲跌，喜幣百年發行量是公之於眾的定數。意味著新中國聯邦的鑄幣權已經開始得到世界的接受和認可。滅共是我們重要的核心，也是唯一的目標。滅完共建立一個信仰自由、法治獨立、真正的民天下的一個新中國聯邦政權。」我們戰友們絕不能辜負郭先生對我們的殷切希望，要對得起郭先生對我們的一片心意， 攜起手來同心協力滅掉邪惡的中共那幾個家族。
+我们爆料房地产
+Nosotros denunciamos acerca de eso
 
-（本文觀點純屬個人與Gnews無關）
+2017年说马云, 这些人要完蛋的时候
+En 2017, decimos que Jack Ma y estas personas van a morir
 
-*編輯：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1.jpg)
+国内这个房地产税谁说的
+Quién dijo acerca de las propiedades inmobiliarias a nivel nacional
+
+七哥最早说的吧
+Fui quien lo dijo al principio
+
+我说这个时候, 对我最大的攻击的人是谁
+En este momento, quién es el mayor enemigo para mi
+
+全是体制内的高官
+Todos los altos funcionarios del sistema
+
+说文贵, 你这个太离谱了
+Dijeron, Wengui, eres muy absurdo
+
+想一想拿房地产税
+Si piensan cobrar impuestos sobre propiedades inmobiliarias
+
+他说共产党都得倒台
+El Partido Comunista debe caerse
+
+想一想征房地产税
+Si piensan en los impuestos inmobiliarios
+
+他说中国人都得上街
+Él dijo que los chinos deben salir a las calles
+
+这是一个政治局委员
+Este fue un miembro del Politburó
+
+还有上海这个老领导跟我说的
+Y un líder de Shanghai que me lo dijeron
+
+他说, 文贵这话就别再说了
+Dijo, Wengui no digas estas palabras
+
+这会让更多人攻击你, 让你成为笑话
+Esto puede causar que más personas te ataquen y te conviertas en un chiste
+
+前天也就是我那天, 就是咱们确定这个1111的时候
+Ante ayer, fue el día que decidimos lo que será el 11 de noviembre
+
+在这个正兴奋之后
+Cuando todos estábamos muy contentos
+
+老领导的家人给我发信息
+La familia del líder me mandó un mensaje
+
+能否方便通话
+Si podía hablar por teléfono
+
+其中有政泉的两套房子
+Dentro de eso había dos casas de Zhengquan
+
+他说, 有些东西要我帮忙
+Dijo, tenía algunas cosas que necesitaba de mi ayuda
+
+我说我跟政泉没有啥联系了
+Le respondí, ya casi no hablo con Zhengquan
+
+帮不上忙, 一个人都没有联系
+No le puedo ayudar, ya no hablo con ninguno de ellos
+
+最后他说
+Finalmente, él dijo
+
+你说的房地产的这个纳税的事情
+Lo que dijiste de la tributación de propiedades inmobiliarias
+
+当时还说你
+En aquel momento no creía en ti
+
+现在看, 说明你是对的
+Ahora que veo, tienes la razón
+
+我都忘了跟人家说过
+Yo ni me acuerdo que se lo dije a él
+
+后来我回了个信息
+Luego respondí el mensaje
+
+我说不是拿房地产税
+Le dije, no es cobrar los impuestos inmobiliarios
+共产党拿的是重新分配财富的权利
+Lo que toma el Partido Comunista es el poder de redistribuir la riqueza
+
+那么现在你看到国内一片宣传
+Ahora ves la publicidad que están haciendo en China
+
+说叫大家共同富裕
+Diciendo para que todos seamos ricos
+
+以为拿了房地产税, 大家共同富裕
+Creen que, al cobrar los impuestos inmobiliarios, todos pueden ser ricos
+
+你说这个愚蠢到啥程度
+Miren lo estúpido que son
+
+共产党拿完房地产税, 会让你家(孩子)上学不拿钱嘛
+El Partido Comunista luego de cobrar los impuestos inmobiliarios, ¿dejaría a tus hijos ir al colegio sin pagar?
+
+会让你得了癌症
+Dejaría a ti con cáncer
+
+让你在医院里躺着享受高干待遇吗
+Y estar en el hospital ¿disfrutando el tratamiento de alto nivel?
+
+会让你信用卡免交钱吗
+¿No necesitas pagar la tarjeta de crédito?
+
+会让你免车贷吗
+O ¿conseguirás un préstamo de carro gratis?
+
+一样都不会(少), 只会越来越多
+Nada de esto serán menos, sino poco a poco aumentando
+
+就不会维稳了嘛, 只能是越来越维稳
+Ya no se mantendrá la estabilidad, sólo puede ser cada vez más estable
+
+———————————————————
+
+日期：11/03/2021
+原视频标题：共产党不是拿房地产税，拿的是重新分配财富的权力
+El Partido Comunista no cobra impuestos inmobiliarios, se toma el poder de redistribuir la riqueza
+原视频日期：10/27/2021
+原视频网址： https://gettr.com/post/pfodt90665
+任务编号：KC221(2739)
+视频时间段：0:00-2:03
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

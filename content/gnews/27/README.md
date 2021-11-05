@@ -2,181 +2,37 @@
 ---
 
 
-## 共产党不是拿房地产税，拿的是重新分配财富的权力
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1639907/)
+## DeSantis 宣布佛罗里达州对拜登疫苗授权提起诉讼
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1640043/)
 
-[https://gtv.org/video/id=6184619eadfd99590c333092](https://gtv.org/video/id=6184619eadfd99590c333092)
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-04-213130-edited.png)图片来源：网络
 
-喜币, 喜联储上市
-Cuando se hace el listado de la moneda y la Reserva Federal de Himalaya
 
-G-TV, G-CLUB
-G-TV, G-CLUB
+佛罗里达州州长罗恩·德桑蒂斯周四宣布，他的州将正式对拜登总统的 COVID-19 疫苗授权提起诉讼。德桑蒂斯说，拜登疫苗的授权“与权力有限且被列举的政府不一致”。
 
-所有的这一切它不是一个单纯的存在
-Todo esto no es una simple existencia
+在坦帕与州总检察长阿什利穆迪举行的新闻发布会上，德桑蒂斯表示，佛罗里达州将与佐治亚州、阿拉巴马州和私人原告一起，就职业安全与健康管理局 (OSHA) 对雇主的疫苗授权提起诉讼。
 
-是一个爆料革命, 新中国联邦的信任
-Es un Movimiento de Denunciantes, es la confianza hacia el Nuevo Estado Federal de China
+马歇尔抨击军方对疫苗授权的“欺凌”，誓言支持寻求豁免的服务人员。
 
-你的为人, 你的判断力, 你的信仰
-Tu personalidad, tu criterio, tu creencia
+罗恩·德桑蒂斯在新闻发布会上讲话中说：“这与权力有限和列举权力的政府不一致。”  “没有一般的警察权力，没有权力从联邦政府授权给美国人民。” “个人应该对自己的医疗保健做出明智的选择，”他补充说， “他们不应该被迫接受刺戳。”
 
-你对人的一个相处的关系的综合存在
-La existencia integral de la relación que tienes con las personas
+佛罗里达州州长罗恩·德桑蒂斯 (Ron DeSantis) 宣布，他所在的州正在就联邦疫苗授权起诉拜登政府。
 
-那么我们要看到这是什么
-Y qué es lo que debemos ver
+根据白宫周四发布的一份情况说明书，职业安全与健康管理局给拥有超过 100 名员工的雇主规定了 1 月 4 日的最后期限，以遵守这项规定，并威胁要对违抗的企业每次违规罚款高达 14,000 美元。拥有超过 100 名员工的雇主必须确保所有员工都接种了疫苗，或者每周接受检测并戴上口罩。
 
-现在看到国内的房地产
-Ahora vean las propiedades inmobiliarias a nivel nacional de China
+DeSantis 说，因为这是 OSHA 的挑战，所以诉讼将直接提交给第十一巡回上诉法院。 他表示，佛罗里达州立法者还将在 11 月 15 日参加特别立法会议，以制定一项法案，为佛罗里达州雇员提供保护。
 
-我们爆料房地产
-Nosotros denunciamos acerca de eso
+他警告说：“尽管影响深远，但这只是他们正在考虑做的事情的开始。”
 
-2017年说马云, 这些人要完蛋的时候
-En 2017, decimos que Jack Ma y estas personas van a morir
+与 OSHA 不同，医疗保险和医疗补助服务中心正在发布一项规则，要求参与医疗保险和医疗补助的设施中的卫生保健工作者全面接种疫苗。 与 OSHA 规则不同，影响卫生保健工作者的 CMS 规则不允许进行疫苗接种的替代测试。
 
-国内这个房地产税谁说的
-Quién dijo acerca de las propiedades inmobiliarias a nivel nacional
+原文链接：[https://t.co/17vz7Gy18y](https://t.co/17vz7Gy18y)
 
-七哥最早说的吧
-Fui quien lo dijo al principio
+编辑/发布：LILY
 
-我说这个时候, 对我最大的攻击的人是谁
-En este momento, quién es el mayor enemigo para mi
-
-全是体制内的高官
-Todos los altos funcionarios del sistema
-
-说文贵, 你这个太离谱了
-Dijeron, Wengui, eres muy absurdo
-
-想一想拿房地产税
-Si piensan cobrar impuestos sobre propiedades inmobiliarias
-
-他说共产党都得倒台
-El Partido Comunista debe caerse
-
-想一想征房地产税
-Si piensan en los impuestos inmobiliarios
-
-他说中国人都得上街
-Él dijo que los chinos deben salir a las calles
-
-这是一个政治局委员
-Este fue un miembro del Politburó
-
-还有上海这个老领导跟我说的
-Y un líder de Shanghai que me lo dijeron
-
-他说, 文贵这话就别再说了
-Dijo, Wengui no digas estas palabras
-
-这会让更多人攻击你, 让你成为笑话
-Esto puede causar que más personas te ataquen y te conviertas en un chiste
-
-前天也就是我那天, 就是咱们确定这个1111的时候
-Ante ayer, fue el día que decidimos lo que será el 11 de noviembre
-
-在这个正兴奋之后
-Cuando todos estábamos muy contentos
-
-老领导的家人给我发信息
-La familia del líder me mandó un mensaje
-
-能否方便通话
-Si podía hablar por teléfono
-
-其中有政泉的两套房子
-Dentro de eso había dos casas de Zhengquan
-
-他说, 有些东西要我帮忙
-Dijo, tenía algunas cosas que necesitaba de mi ayuda
-
-我说我跟政泉没有啥联系了
-Le respondí, ya casi no hablo con Zhengquan
-
-帮不上忙, 一个人都没有联系
-No le puedo ayudar, ya no hablo con ninguno de ellos
-
-最后他说
-Finalmente, él dijo
-
-你说的房地产的这个纳税的事情
-Lo que dijiste de la tributación de propiedades inmobiliarias
-
-当时还说你
-En aquel momento no creía en ti
-
-现在看, 说明你是对的
-Ahora que veo, tienes la razón
-
-我都忘了跟人家说过
-Yo ni me acuerdo que se lo dije a él
-
-后来我回了个信息
-Luego respondí el mensaje
-
-我说不是拿房地产税
-Le dije, no es cobrar los impuestos inmobiliarios
-共产党拿的是重新分配财富的权利
-Lo que toma el Partido Comunista es el poder de redistribuir la riqueza
-
-那么现在你看到国内一片宣传
-Ahora ves la publicidad que están haciendo en China
-
-说叫大家共同富裕
-Diciendo para que todos seamos ricos
-
-以为拿了房地产税, 大家共同富裕
-Creen que, al cobrar los impuestos inmobiliarios, todos pueden ser ricos
-
-你说这个愚蠢到啥程度
-Miren lo estúpido que son
-
-共产党拿完房地产税, 会让你家(孩子)上学不拿钱嘛
-El Partido Comunista luego de cobrar los impuestos inmobiliarios, ¿dejaría a tus hijos ir al colegio sin pagar?
-
-会让你得了癌症
-Dejaría a ti con cáncer
-
-让你在医院里躺着享受高干待遇吗
-Y estar en el hospital ¿disfrutando el tratamiento de alto nivel?
-
-会让你信用卡免交钱吗
-¿No necesitas pagar la tarjeta de crédito?
-
-会让你免车贷吗
-O ¿conseguirás un préstamo de carro gratis?
-
-一样都不会(少), 只会越来越多
-Nada de esto serán menos, sino poco a poco aumentando
-
-就不会维稳了嘛, 只能是越来越维稳
-Ya no se mantendrá la estabilidad, sólo puede ser cada vez más estable
-
-———————————————————
-
-日期：11/03/2021
-原视频标题：共产党不是拿房地产税，拿的是重新分配财富的权力
-El Partido Comunista no cobra impuestos inmobiliarios, se toma el poder de redistribuir la riqueza
-原视频日期：10/27/2021
-原视频网址： https://gettr.com/post/pfodt90665
-任务编号：KC221(2739)
-视频时间段：0:00-2:03
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+20211104
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
