@@ -2,30 +2,20 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月05日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1641988/)
+## 文贵爆料 5/11: 疫苗下的中共国婴儿——那一刻出生，那一刻死去
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1642032/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36.png)
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-4.jpg)
+疫苗如同一只无形之手牢牢地扼住了人类的命运，其实真实的世界更为残酷。郭文贵先生在11月5日的大直播中，讲述了一个惨绝人寰的故事，在中共国，因病毒疫苗而致残的婴儿在出生的那一刻，就被颈死。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-4.png)
-文章仅代表作者本人观点，与Gnews无关
+给孩子打疫苗、给老人打疫苗啊，无穷无尽的故事。北京那个卫生局的哥们说，七哥，你知道现在生孩子每天都很多，现在给我们一个标准，露头孩子，一看有残疾，一看不对劲，立马就拿着纱布直接从头上拽着就缠，惨死啊，之后就把包扔出去，就不让你活着出来了。每天这样的事都发生啊，妈妈说我们生孩子要做一个扫描嘛，看孩子是否正常吧？他说，关键是扫描时孩子正常，一出来就不正常。啥原因呢？打完疫苗的孩子心脏是动的，看孩子是个孩子，他一出来要不没眼，有孩子脑袋有肿瘤了。其实你知道悲哀在哪里吗？没见过多少父母觉得这是打疫苗的原因，他们认为这是自己的错。
 
-视频参看：2021.11.05早GTV新闻访谈
+郭先生说，人在最幸福的时候，在向往和追逐美好的时候，他每天都生活在希望之中。生活是最美好。可是当你打了疫苗之后，你每天生活在不确定之中、在惶恐之中，你不知道哪天什么死去是最恐怖的一件事情。
 
-[https://gtv.org/broadcast/watch/6185238e11d186296801f034](https://gtv.org/broadcast/watch/6185238e11d186296801f034)
+参考链接：
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[2021年11月05 日 文贵大直播](https://gettr.com/streaming/pg3lvx539f)
 
  
 
