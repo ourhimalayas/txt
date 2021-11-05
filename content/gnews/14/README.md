@@ -2,52 +2,69 @@
 ---
 
 
-## 如果中国入侵,马克米利将军不会承诺保卫台湾
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1642105/)
+## 求扩散：拒绝新冠疫苗，保护好我们的孩子
+` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1642116/)
 
-作者：Ian Miles Cheong
-翻译：HimaFAFA
+By：银河勇气星｜天雷滚滚
+
+全世界都已经批准给3-11岁的小孩打新冠疫苗了。作为父母，不管有没有给孩子打了疫苗的，先看看这篇文章，还来得及！因为一旦疫苗进入体内，就不可逆转了。
+
+首先，我们来看看目前新冠总死亡人数500万人以上，占全球人数0.6%，儿童的的死亡人数更低，看看《柳叶刀》的统计：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image001.jpg)
+然后，我们要知道疫苗研发要经过多长时间呢，至少8年。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image002.jpg)
+其实，8年的时间还是最保守的。因为疫苗研发大体可以分为三个阶段。 研发，临床试验， 生产。在早期研发阶段中， 科学家们会尝试各种各样的方法，去寻找安全并且可以复制的疫苗。在经过实验室检验后， 它们将进入临床测试阶段，针对不同群体，对疫苗的安全性、高效性和副作用进行评估。最后，是制药阶段，疫苗将被生产和发配给大众接种。
+
+**而现在给我们的打的新冠疫苗一年不到，给孩子们打的疫苗半年不到，**这些疫苗可能连给小白鼠的实验都没做，你敢让孩子们去做小白鼠吗？
+
+第三，你知道这些新冠疫苗是什么成分组成的吗？
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image003.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image004.jpg)
 
 
+第四，我们再来看看打了疫苗之后防疫效果如何。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image005.jpg)
+“很难说”是什么意思，你懂的。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image006.jpg)
+再补充，证据多一点更有力。
 
-参谋长联席会议主席马克米利将军拒绝承诺在中国入侵的情况下保卫台湾。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image007.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image008.jpg)
 
-在本周阿斯彭安全论坛的一次活动中，当NBC 新闻的莱斯特霍尔特问及他对此事的立场时，米利说他“只对和平结果感兴趣” 。
 
-霍尔特问米莱，中国是否准备在这个主权岛国采取行动，它认为这是一个脱离大陆的省份。米利回应说，他认为短期内不会采取任何行动，这意味着接下来的 6 到 24 个月，但警告说“任何事情都有可能发生”。
+既然不能预防，新冠病死率本来就不高，尤其是小孩，我们何必让孩子挨这一针。 如果只是没效果，也算了，就当白打了。半年过去了，有些人的效果已经出现了。什么效果呢，请看：
 
-“话虽如此，但中国人正在明确且毫不含糊地建立能力，在未来某个时候向国家领导人提供这些选择，如果他们愿意的话。但在不久的将来，可能不会。但任何事情都有可能发生，”他说。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image009.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image010.jpg)
 
-当被问及美国对台湾的承诺时，米利回答说：“嗯，正如你们所知，我们有《台湾关系法》以及与之配套的三份公报，”据《每日电讯报》报道。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image011.jpg)
+也许你说这个是假的，来个真人秀：
 
-“它们诞生于尼克松政府时期，”他补充道。“这些仍然是美国政府的政策，这确实是一个模棱两可的问题。但我们希望美国政府的政策是，无论台湾和中华人民共和国有什么问题，他们都按照台湾岛民和中国人民的意愿和平解决。我们只对和平结果感兴趣。”
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image012.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image013.jpg)
 
-米利警告说，如果迫在眉睫，美国“绝对”有能力在世界范围内做各种各样的事情，包括为台湾拿起武器，但最终决定权在总统手中。
 
-“我们绝对有能力在世界各地做各种各样的事情，包括如果需要，那些是政策性的需总统决定，无论我们是否这样做，台湾关系法的也是政策，”米利说。
+看看幼儿园小朋友接种后的反应。这是财新网报道的，尽管去网上找，还在。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image014.jpg)
+再加上，几乎国内媒体都在说，新冠大流行明年年初要结束了，都结束了，为什么还要打？
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image015.jpg)
+即使没有结束，特效药也出来了，为什么还要打？其实，解药是青蒿素，特效药是伊维菌素，这是爆料革命战友冒死付出来的消息，同胞们。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image016.jpg)
+我知道很多人把小孩带去打针，一是怕老师给找麻烦，二是怀有侥幸心理，觉得这种坏事不会轮到自己和小孩身上。我现在贴出来致病致死的案例只是我看到的N分之一只要有心，都能找到，最好来Gettr，搜一下，中外案例海量。作为中国的家长，我们把全部的爱都给了孩子，我们把全部的寄望也都寄托在了孩子身上。现在，他们还没有长大，他们什么都不懂，正是需要家长拿出智慧拿出勇气保护他们不受侵害的时候，如果你的孩子在几年内出现各种反应，你将何以面对你的孩子，何以面对自己的懦弱。在拒绝打疫苗这件事上，没有任何的借口，为了孩子的健康，请勇敢地对新冠疫苗说NO!
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image017.jpg)
+我不赞成战无明网友的做法，老师是无辜的，他们可能也跟所有的家长一样，不明真相，但你可以拒绝，可以像广州区伯一样说得强硬一点。最后，用网友的诗歌作结，请各位同胞，保护好孩子，保护好自己的未来。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image018.jpg)
+* * *
 
-“但我们绝对有能力，”他说。“这没有问题。”
+作者：天雷滚滚
+审核：兵嫂、骄子
+发布：骄子
 
-來源：[https://www.rebelnews.com/general\_mark\_milley\_wont\_commit\_to\_defending\_taiwan\_if\_china\_invades](https://www.rebelnews.com/general_mark_milley_wont_commit_to_defending_taiwan_if_china_invades)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-（文章仅代表作者个人观点）
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
