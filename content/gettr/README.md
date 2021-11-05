@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/5/2021 9:59 PM (UTC)`
+
+在 GETTR 上加入我的直播。
+![img](https://media.gettr.com/group1/getter/2021/10/23/19/bef325e0-a7dd-eef4-f1c5-6977a36aeaf7/7f87f676c946650f527b3506087be38c.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gfashion 11/5/2021 5:52 PM (UTC)`
@@ -289,13 +296,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 11/1/2021 【HCoin To the Moon Celebration】HCoin will become the universally recognized force for defending justice and have a bright future<br/><br/>11/1/2021 【HCoin to The Moon庆典】喜币会成为人类上大家共同认可的捍卫正义的力量，并将越走越远。<br/>
 ![img](https://media.gettr.com/group8/getter/2021/11/02/10/59/12c0e807-9995-5166-c9d5-60d8a8279234/out.jpg)
-
----
-
-`@miles 11/2/2021 10:51 AM (UTC)`
-
-11/1/2021 【HCoin To the Moon Celebration】Never forget to be kind, be honest, and distinguish evil and good with “Only truth prevails” <br/><br/>11/1/2021 【HCoin to The Moon庆典】永远记住：真诚、善待一切、唯真不破, 分辨善恶。
-![img](https://media.gettr.com/group45/getter/2021/11/02/10/51/28d62348-fcde-47b1-1726-dcf7455c94a7/out.jpg)
 
 ---
 
