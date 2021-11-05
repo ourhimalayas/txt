@@ -2,42 +2,40 @@
 ---
 
 
-## 意大利疑似covid-19死亡人数从13万人更正为3千多人
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1640543/)
+## 内蒙古额济纳旗疫情严重 官员免职成替罪羊
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1640597/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：澳喜农场 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+截止26日8日，中共内蒙古额济纳旗确诊新冠病例78例。内蒙自治区党委以所谓加大防控力度为由，免去了今年6月才上任的额济纳旗旗委书记陈占云的职务。在此之前，该旗已经免去了旗卫健委主任和副主任的职务。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Coronavirus-Patient-Hospital-Bed.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-30.jpg)
+
+新的旗委书记，由上级阿拉善盟盟委书记代钦兼任。他到任后立刻在额济纳旗实施了，禁止居民出户和旅客出店的严厉措施，并招致广泛民怨。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+- [https://www.163.com/news/article/GN84KS7N0001899O.html?clickfrom=w\_yw](https://www.163.com/news/article/GN84KS7N0001899O.html?clickfrom=w_yw)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1.jpg)
 
-图片来源：afinalwarning.com
+***编辑***：***Irene木木***
+***校对/发稿：海阔天空1***
 
+**更多资讯，更多关注**
 
-#### 编译：小红帽
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-意大利高等卫生研究所的一份新报告对该国具有误导性的中共病毒（covid-19）死亡人数进行了客观分析。
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-意大利官方公布的中共病毒死亡人数在2021年10月上升至132,161。这个数字是不真实的，因为中共病毒是在仓促和受贿的情况下使用非特定的诊断标准被诊断出来的。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-在仔细查看医疗报告后证明，呼吸道感染可能是一个诱因，但并未直接导致这些中共病毒患者的大部分死亡。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-各种形式的医疗事故、拒绝治疗、非人道的隔离、营养不良和不道德的护理标准是这场全球医疗危机的根源。大流行的死亡是真实的，但原因是歪曲的。
-
-一项新的医学分析将意大利的中共病毒死亡人数减少了97.1%，并对这些人在医院死亡的原因提供了更准确的描述。只有3,783例病例与中共病毒诊断直接相关。由于PCR测试从一开始就以欺诈方式进行了校准，因此即使是这3,783例中共病毒病例也是可疑的。
-
-自从世界卫生组织 (WHO) 宣布中共病毒全球大流行以来，世界各地的医疗系统以不同的方式处理住院患者。“出于谨慎考虑”，医院系统做出了模糊的诊断，将任何“疑似感染”的人归类为中共病毒的官方病例。
-
-**参考新闻：**[HUGE! Italy’s Suspected Covid Death Tally Corrected from 132,161 to 3,783 (humansarefree.com)](https://humansarefree.com/2021/11/huge-italys-suspected-covid-death-tally-corrected-from-132161-to-3783.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

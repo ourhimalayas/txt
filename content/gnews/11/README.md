@@ -2,51 +2,24 @@
 ---
 
 
-## 美联邦参议员霍利提出武装台湾法案
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640719/)
+## 日本首推中共病毒预防药，疑含伊维菌素青蒿素
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640749/)
 
-作者：纽约香草山医疗部 – 云豹
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12-1.png)[图片来源](http://covid19anddruguse-1024x576.xn--png%20%281024576%29%20%28nyan-jp-omc.net%29/)
+读卖新闻11月5日报道，日本厚生劳动省5日特别批准了一种名为“抗体鸡尾酒疗法”的中共病毒治疗药物“ロナプリーブ”，同时，它成为第一个抑制发病的预防药物。到目前为止，它仅用于输液和注射。
 
+满足以下条件可用药预防：（1）中共病毒的密切接触者，或无症状感染者（2）原则上重症化风险高的人（3）未接种疫苗，接种效果不明显的人。
 
+日本政府虽然不承认，但郭先生提到，日本使用伊维菌素和青蒿素，使中共病毒感染人数骤减，此次的预防药物，是否也包含伊维菌素和青蒿素呢？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+信息来源：
 
+[コロナ発症予防薬、厚労省が特例承認…点滴だけでなく注射も認める](https://www.yomiuri.co.jp/medical/20211105-OYT1T50194/)
 
-
-美国共和党籍联邦参议员霍利于11月2日提出「武装台湾法案」，确保台湾拥有足够的、阻止中共入侵所需的不对称防卫战力。
-
-这项法案要求美国国防部长规划台湾安全援助倡议，在2023至2027年的财政年度中，每年拨款30亿美元，用于给台湾提供设备、培训及其他支援。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-15.jpg)
-法案中的附带条件是，台湾在不对称防卫战力的投资上，必须与美国所提供的支援相匹配，同时要求美国在出售、租赁或以其他方式提供台湾常规武器时，应以台湾能部署可靠的不对称防卫战力为目标。
-
-中共正在尽其全力想要控制印太地区，霍利强调，美国应竭尽所能协助台湾强化自身的防卫力量。
-
-参考链接：
-[助台防禦中國入侵 美參議員提武裝台灣法案](https://www.cna.com.tw/news/firstnews/202111030013.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

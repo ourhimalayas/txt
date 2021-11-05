@@ -2,31 +2,35 @@
 ---
 
 
-## 11/5/2021中日财经爆 ：“油盐酱醋“都涨价，受苦的还是老百姓
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640779/)
+## 政府排挤黄金作为“替代”货币，未来比特币价格翻倍
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1640826/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5646.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimagepphcloud.dwnews.cc%2Fpph%2Fimage%2F162%2F361%2F656.jpg&amp;imgrefurl=https%3A%2F%2Fm.dwnews.cc%2FnewsDetail_forward_15238373&amp;tbnid=9GynDRf9CRtMhM&amp;vet=12ahUKEwjUkoe56oD0AhVdTPUHHdnPDiEQMygAegUIARCkAQ..i&amp;docid=OSNAGii9jA_ciM&amp;w=888&amp;h=608&amp;q=%E2%80%9C%E6%B2%B9%E7%9B%90%E9%85%B1%E9%86%8B%E2%80%9C%E9%83%BD%E6%B6%A8%E4%BB%B7&amp;ved=2ahUKEwjUkoe56oD0AhVdTPUHHdnPDiEQMygAegUIARCkAQ)
-11月4日，肉类食品专营企业得利斯称，一个月前已对预制菜相关牛肉类产品价格已进行了调整，近期也对部分牛肉类产品进行了再次提价。在必选消费品提价这件事上，得利斯不是第一个“吃螃蟹的人”。
+#### 翻译：Sara9 
+编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5823-4.jpg)**图片来源：Blockonmi**
+今年比特币和其他加密货币横扫华尔街，很多大银行纷纷介入加密货币业务。而比特币价格从去年同期的15000美元飙升至现在的60000美元，这对金融界造成了不小的冲击。
 
-在更早前的10月13日，海天味业发公告称，将对酱油、蚝油、酱料等部分产品的出厂价格进行调整，调整幅度为3%-7%不等。
+摩根大通最新预计，比特币长期价格有可能翻一倍多到146000美元，而分析师警告，极端的价格波动性可能导致其价格快速滑落至35000美元。同时，在（上一轮）出现1500亿美元的加密货币价格暴跌时，大资金正在抛弃比特币而转向以太坊。
 
-10月22日，洽洽食品也称，将对葵花子系列产品以及南[瓜子](https://36kr.com/projectDetails/3968812)、小而香西瓜子产品的出厂价格调整，提价幅度为8%-18%不等。
+【备注：新中国联邦喜币正是采用的是由摩根大通开发的基于以太坊的Quorum区块链技术，Quorum是一种联盟链解决方案。】
 
-随即，被称为“中国最大制醋企业”的恒顺醋业也宣布将于自11月20日起对部分产品进行价格调整，调整幅度5%-15%不等。主营[调味品](https://36kr.com/projectDetails/335067)的[加加](https://www.36dianping.com/space/4848401030?mp=zzquote)食品也在16日起对多种产品调价，上调幅度3%-7%不等。
+目前，市场上对于比特币上升到100000美元是很多加密货币市场观察家今明两年的共识。摩根大通的警告，对这种说法提出了挑战。
 
-近日，金龙鱼放出信号称，关于调价，公司要平衡消费者的接受度与公司的成本、利润及长远发展之间的关系，较为稳健的处理调价问题。
+分析师也认为，由于前所未有的通胀压力，不仅是各种基金用它来对冲货币贬值，一般散户也在更多的跟进到这个财富安全天堂。目前美国通胀是13年来最高的，让比特币的价格在过去的12个月以来增加了300%，使整个加密货币市场总量增加到2万亿美元。
 
-此外，盐业上市公司也于进入宣布集体涨价，继雪天盐业称小包食盐出厂价近期陆续提价后，云南能投也透露，对部分食盐产品及工业盐产品价格进行上调。
+市场将比特币作为黄金的通货膨胀对冲替代品有浓厚兴趣，任何这种（政府）对黄金作为“替代”货币的排挤都意味着比特币在长期内有很大的上升空间。
 
-至此，中共国内市场“油盐酱醋”到食品肉类已全部涨价。对于本就单价不高的食品以及日用品来说，原材料成本上涨的压力传导到了消费者身上。“涨价潮”来袭，部分消费者已经开始“囤货”。
+原文链接：[JPMorgan Doubles Down On Its Massive Bitcoin Price Prediction—But Adds A Serious Warning (forbes.com)](https://www.forbes.com/sites/billybambrough/2021/11/04/jpmorgan-doubles-down-on-its-massive-bitcoin-price-prediction-but-adds-a-serious-warning/?sh=1ba9b9f14511)
 
-消息来源:
-[受原材料成本影响，“油盐酱醋”已全部涨价](https://36kr.com/p/1471582648461059)
+**发布：文泓**
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

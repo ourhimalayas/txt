@@ -2,26 +2,22 @@
 ---
 
 
-## 秘翻在线：共和党参议员推出《台湾吓阻法案》
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1640693/)
+## 秘翻在线：白宫证实一名与拜登欧洲之行陪同人员感染中共病毒
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1640721/)
 
 #### 撰稿：彩虹
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-14.jpg)图片来源：路透社
-11月4日，《国会山报》（The Hill）报道，随着台海紧张局势的不断升级，美国共和党参议员提出一项法案，寻求增加对台湾的军事援助。该法案名为《台湾吓阻法案》（Taiwan Deterrence Act），目的在于加强台湾的防御能力，以抵御来自于中共的侵略攻击。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-15.jpg)图片来源：美联社
+11月5日，《新闻极限》（Newsmax）引述美联社报道，指一名与拜登一起欧洲旅行的人在苏格兰被检测出感染了中共病毒。周四，美国政府对其予以了证实。
 
-该法案由参议院外交关系委员会高级官员共和党人詹姆斯·里施（Jim Risch）为主要提案人，共同提案人包括：马可·鲁比奥（Marco Rubio）、米特·罗姆尼（Mitt Romney）、约翰·康宁（John Cornyn）、比尔·海格提（Bill Hagerty）和迈克·克拉波（Mike Crapo）。
+值得注意的是，该名感染中共病毒的人是无症状感染者，同时，他也是完全接种了中共病毒疫苗的人。
 
-该法案规定，只要台湾满足某些条件，美国将每年向台湾提供20亿美元的军事拨款和贷款，直到2032年。这些条件包括台湾承诺要与美国的支出相匹配，以及台湾要同意与美国就如何提高台湾的防御能力进行长期规划。
-
-值得注意的是，该法案还将修改《武器出口管制法》（Arms Export Control Act），使得美国能够更加容易地向台湾出售武器。
-
-报道指，如果该法案获得通过，则将每年对台湾针对中共国的防御能力进行一次评估。
+白宫表示，出于谨慎考虑，以及美国疾病控制和预防中心（CDC）的指导，与此人有密切接触的一些工作人员没有乘坐空军一号返回美国，而是乘坐另一架政府飞机回国。
 
 **新闻来源**
 
-[Republican Senators request military aid for Taiwan amid pressure from China](https://thehill.com/homenews/senate/580198-republican-senators-request-military-aid-for-taiwan-amid-pressure-from-china)
+[Traveler With Biden Tested Positive for Virus in Scotland](https://www.newsmax.com/newsfront/virus-outbreak-biden/2021/11/04/id/1043400/)
 
  
 

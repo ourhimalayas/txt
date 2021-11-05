@@ -2,25 +2,38 @@
 ---
 
 
-## COVID-19最新情报｜即便证据在眼前 佛奇仍否认曾资助武毒所
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1640735/)
+## 美国参议院一致通过《安全设备法案》进一步缩小华为中兴的生存空间
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1640802/)
 
-台灣寶島農場 疫情關注組｜發佈日期/ 5/11/2021
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在FCC将要剔除CCP三大运营商之后，美国参议院也在本周四一致投票批准《安全设备法案》立法，此法案上周在美国众院以420-4的压倒性结果通过，该法案将禁止华为、中兴等被视为带来安全威胁的公司，从美国监管机构也就是FCC获得新的设备许可证，以及禁止FCC审查上述企业。同时海能达通信和海康威视也是此法案制裁的对象。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-5.jpg)
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+- [https://www.reuters.com/article/us-congress-huawei-zte-restrictions-1029-idCNKBS2HJ0D6](https://www.reuters.com/article/us-congress-huawei-zte-restrictions-1029-idCNKBS2HJ0D6)
 
 
-美国参议员兰德·保罗于11月4日的参议院听证会上，质询美国国家过敏和传染病研究所([NIAID](https://www.niaid.nih.gov/))主任安东尼．佛奇，关于“美国国立卫生研究院是否资助武汉病毒研究所进行功能增强实验”是否执意继续撒谎。（[相关影片片段](https://www.nationalreview.com/news/rand-paul-rips-into-fauci-over-continued-gain-of-function-research-denials-demands-resignation/https://www.nationalreview.com/videos/rand-paul-rips-into-fauci-over-persistent-gain-of-function-research-denials-demands-resignation/)）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
 
-参议员保罗引用[美国国立卫生研究院承认曾经资助武汉病毒研究所进行病毒功能增强实验](https://www.nationalreview.com/news/nih-admits-to-funding-gain-of-function-research-in-wuhan-says-ecohealth-violated-reporting-requirements/)，指责佛奇公开撒谎，谎称NIH不曾资助过武毒所进行功能增强实验。保罗称：武汉病毒实验所的实验，目的在于让自然界的病毒更具危险性。佛奇撒谎美国卫生研究院未资助武汉实验室一事，保罗称这是玩语言游戏，佛奇的行为已经对美国、世界造成了明显的威胁。
+***编辑***：***Irene木木***
+***校对/发稿：海阔天空1***
 
-保罗强调，资助实验室进行病毒功能增强实验，可以创造出新病毒，导致下一次的大流行。新冠病毒目前致死率约为“百分之一”，然而武汉病毒实验室正在试验一种死亡率在15-50%的新病毒，这对人类文明造成巨大的威胁。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-2-1.jpg)
-* * *
+**更多资讯，更多关注**
 
-参考来源｜[NATIONAL REVIEW](https://www.nationalreview.com/news/rand-paul-rips-into-fauci-over-continued-gain-of-function-research-denials-demands-resignation/)
-撰文｜zhong
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

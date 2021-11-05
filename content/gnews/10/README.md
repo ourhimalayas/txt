@@ -2,47 +2,24 @@
 ---
 
 
-## 华为成立4大军团，同时出售服务器业务
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640720/)
+## 30万册漫画免费读，日本疑似为第三针做准备
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640756/)
 
-作者：日本方舟农场 – Andy5
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/11/123.png)[图片来源](https://www.smartmagazine.jp/kansai/article/fun/2332/)
+每日新闻11月5日报道，“在接种新型冠状病毒疫苗的等待时间中，您可以免费阅读约30万本漫画。” 京都市将京都国际漫画博物馆（中京区）设为集体接种点，该接种点目前很受欢迎。
 
+接种地点在博物馆的一楼大厅，闭馆后从下午6点半到8点半开放，通常需要入场费（成人900日元），但如果预约新冠疫苗接种，预约接种者可以在接种前等待时间内，或接种后免费阅读馆内收藏的约30万册漫画，其同伴（一名）也可免费阅读。
 
+该举措是为促进接种率相对低的年轻人接种疫苗,似乎在为即将开始的第三针疫苗推广做准备。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+信息来源：
 
+[マンガ30万冊読み放題　京都市の接種会場、人気で予約枠を拡大](https://mainichi.jp/articles/20211105/k00/00m/040/126000c)
 
-
-据墙内11月3日的消息，继3月成立煤炭军团之后，华为最近正式组建数据中心能源军团、智能光伏军团、海关和港口军团、智慧公路军团4大军团组织，并高调举行了军团组建成立大会。
-
-据上周的数据显示，华为前三季度整体营收同比下降37%，手机出货量则下降了73.8%。而因被美国列入黑名单，不能开展正常业务，华为考虑将出售依靠抄袭思科起家的服务器业务。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-12.jpg)
-参考链接：
-1. [Huawei said to sell key server division due to US blacklisting](https://www.bloomberg.com/news/articles/2021-11-02/huawei-said-to-sell-key-server-division-due-to-u-s-blacklisting?sref=V7uxlNge)
-2. [华为军团组建成立大会，任正非：和平是打出来的](https://www.sohu.com/a/499087347_115565)
-3. [华为营收减少2000亿元背后：手机销量同比降77％，对手苹果大中华区业绩涨83％](https://www.sohu.com/a/498084501_115565)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
 
 
  
