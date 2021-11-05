@@ -2,30 +2,30 @@
 ---
 
 
-## 中共能源危机持续，与美国签巨额天然气合同
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641632/)
+## 网球名将彭帅指控中共前副总理张高丽引发网络热议
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641836/)
 
-作者：MOS 柳是多水土透
+作者：纽约香草山佛教部 – 文一
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，有报道指出，虽然中共的煤炭期货下滑了约35%，但中共的能源危机仍远未缓解。数据显示，先是中共国内几个主要产煤大省的水灾降低了本土供应，加之与澳大利亚的关系持续恶化，导致煤炭进口短缺，中共的实货煤炭依旧极其昂贵。入冬后，中共国内还增添了燃煤供暖的需求，这将加剧中共的能源短缺。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-13.jpg)
-另一方面，中共国内部分地区今年降雨量减少，依赖降水量的供电也难以为继，部分工厂被强制限电。这也导致中共国内液化天然气价格的大幅上涨。
+此前，郭文贵先生在盖特和大直播中解读了中共前副总理张高丽性侵网球名将彭帅的事件，而后，该事件在网络上持续发酵，多家国际媒体跟进报道。
 
-为了解决迫在眉睫的能源问题，中共与美国路易斯安那州的天然气企业签署了一份20年的协议，以确保美国向中共国出口400万吨的液化天然气。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-2.jpeg)
 
-相关评论指出，2019年中美贸易战期间，中共几乎切断了对美国化石能源产品的进口，此次签署如此巨额的天然气协议，或与中共每况愈下的国际与国内环境有关。
+11月4日，美国媒体发文详述了这一事件，当中提及，中共职业网球名将彭帅于11月2日晚间通过微博平台发帖控诉中共前副总理张高丽性侵，但该帖随后被删除。另有消息对该事件评论道，这是中共最高权力阶层首次受到此类公开指控。评论认为，这也是该事件被中共政府极力打压的原因所在。有评论指出，此次事件反映了中共内斗、清算的政治信号。
 
-参考链接：
+参考链接: 
+1)[https://gettr.com/post/pfuwdu33fb](https://gettr.com/post/pfuwdu33fb)
+2) [2021年11月03 日 文贵大直播：彭帅爆张高丽丑闻，再次验证爆料革命的真实性；喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产；房地产税会灭国灭党；共和党在弗吉尼亚州长竞选获胜意味着什么](https://gtv.org/video/id=61827dfd11d186296800dd83)
+3) [中国网球名将彭帅指控前副总理引发网络热议](https://cn.wsj.com/articles/中国网球名将彭帅指控前副总理引发网络热议-11636004717)
+4) [简报：彭帅指控张高丽性侵；美国称中国将在2030年前拥有1000枚核弹头](https://www.nytimes.com/zh-hans/2021/11/03/world/asia/china-peng-shuai-zhang-gaoli.html)
+5) [彭帅事件真相扑朔迷离 专家：共产党不许人们议论](https://www.dw.com/zh/彭帅事件真相扑朔迷离-专家共产党不许人们议论/a-59702973)
+6) [VOA连线：谢田 彭帅举报张高丽反应中共内斗、清算政治信号 – 11月 04, 2021](https://podtail.se/podcast/voa/voa-11-04-2021/)
 
-[中国为应对能源短缺和减排狂买美国天然气](https://cn.wsj.com/articles/%E4%B8%AD%E5%9B%BD%E4%B8%BA%E5%BA%94%E5%AF%B9%E8%83%BD%E6%BA%90%E7%9F%AD%E7%BC%BA%E5%92%8C%E5%87%8F%E6%8E%92%E7%8B%82%E4%B9%B0%E7%BE%8E%E5%9B%BD%E5%A4%A9%E7%84%B6%E6%B0%94-11635903309)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-[Sinopec signs China’s largest long-term LNG contract with U.S. firm](https://www.reuters.com/business/energy/sinopec-signs-20-yr-lng-contract-with-us-venture-global-lng-2021-11-04/)
-
-[《RUSSELL专栏》中国动力煤期货虽暴跌35% 然现货价格依然坚挺](https://cn.reuters.com/article/column-russell-china-coal-drv-1026-idCNKBS2HG0QZ)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 总编：Irene木木
-编辑：Kathy文艺/Irene木木
-校正/发稿：Fei797
+编辑：小鹿妞妞
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

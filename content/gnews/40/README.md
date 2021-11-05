@@ -2,27 +2,28 @@
 ---
 
 
-## 疫苗的有效率到底是多少？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1640850/)
+## 欧洲央行现在正在软化欧元
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1640957/)
 
-撰稿：Runaway
-![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率1-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率2-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率3-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率4-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率5-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率6-1.jpg)
-以上数据统计的分析表明，接种双重疫苗的人群将在未来3-6个月内不但失去疫苗的有效性，还将失去自然免疫力。面对欧洲的冬、春各种病毒容易传染的季节，失去自然免疫力的人群将面临灾难性的后果。
+新闻来源：德国法兰克福报网页版
 
-另据BBC和ABC NEWS今日报道，“世卫组织再次警告欧洲处于大流行的中心”，“世卫组织表示，对欧洲的COVID-19激增严重关切，因为住院人数在一周内翻了一番”。
-雅典娜农场
-（文章仅代表作者观点，与Gnews无关）
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-发稿：Runaway
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/der-ezb-turm-im-frankfurter.jpg)
 
-参考链接：
 
-[Europe’s COVID-19 surge a ‘grave concern’ says WHO, as hospitalisations double in one week](https://www.abc.net.au/news/2021-11-05/europe-grave-concern-500k-covid-deaths-surge/100596398)
+图片来源： FAZ
 
-[Covid: WHO warns Europe once again at epicentre of pandemic](https://www.bbc.com/news/world-europe-59160525)
+美国中央银行释放出了货币政策的转变。这使欧洲货币承担巨大压力。 我们都看到了纳斯达克指数创下历史新高。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+欧洲货币联盟的通货膨胀率仍然很高，而欧元的外部价值自夏季以来一直在弱化。在这种情况下，美国联邦储备委员会 (Fed) 于周三晚间宣布了货币政策的变化。它最早将于 11 月开始减少债券购买，并在明年年中结束。 这表明更高的利差有利于美国债券，而以牺牲欧洲债券为代价，这可能会加强美元并进一步削弱欧元。
+
+这反过来意味着更高的进口价格，这可能会进一步加剧欧洲的通货膨胀。然而，市场对欧元区的通胀预期最近回落至 2% 以下。
+
+原文链接：[https://www.faz.net/aktuell/finanzen/us-notenbank-fed-wechselt-kurs-und-setzt-euro-unter-druck-17618425.html](https://www.faz.net/aktuell/finanzen/us-notenbank-fed-wechselt-kurs-und-setzt-euro-unter-druck-17618425.html)
+
+责任编辑、发布： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

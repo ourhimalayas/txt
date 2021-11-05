@@ -2,36 +2,38 @@
 ---
 
 
-## 11/5/2021中日财经爆：天雷滚滚！中共国地产股债双杀
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1641385/)
+## 中共能源危机持续，与美国签巨额天然气合同
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641632/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-35.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fx0.ifengimg.com%2Fres%2F2021%2F85CBC215C39D4D7AD0A40998153BC06E7CB5987E_size24_w720_h360.jpeg&amp;imgrefurl=https%3A%2F%2Fi.ifeng.com%2Fc%2F89orhrzLfFR&amp;tbnid=_llKS-arfrAtCM&amp;vet=12ahUKEwio1YG9noH0AhVB95QKHci2D9oQMygnegUIARDuAQ..i&amp;docid=aoi6MhElR-SHeM&amp;w=720&amp;h=360&amp;itg=1&amp;q=%E8%82%A1%E5%80%BA%E5%8F%8C%E6%9D%80&amp;ved=2ahUKEwio1YG9noH0AhVB95QKHci2D9oQMygnegUIARDuAQ)
-11月15日地产债大幅收跌出现临停潮。“20阳城01”跌超34%盘中两次临停，“20金科03”跌超26%盘中临停，“15世茂02”跌超25%盘中临停，“20世茂G1”跌超24%盘中临停，“19世茂G2”跌超21%盘中临停，“19世茂G1”跌超20%盘中临停，“20金科01”跌超17%。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-11.png)
-另外，港股内房股午后跌幅扩大。中国奥园领跌超15%，世茂集团跌超13.98%，建业跌超8%，新城发展、融创中国跌超7%，中骏集团、禹洲集团跌超6%，时代中国、雅居乐等跌超5%。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-7.png)
-国际评级机构惠誉在11月3日的报告中宣布，将中国奥园集团股份有限公司(China Aoyuan Group Limited，简称：“中国奥园”，03883.HK)的长期外币发行人违约评级(IDR)从“BB”下调至“B+”，展望“负面”。
+作者：MOS 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，有报道指出，虽然中共的煤炭期货下滑了约35%，但中共的能源危机仍远未缓解。数据显示，先是中共国内几个主要产煤大省的水灾降低了本土供应，加之与澳大利亚的关系持续恶化，导致煤炭进口短缺，中共的实货煤炭依旧极其昂贵。入冬后，中共国内还增添了燃煤供暖的需求，这将加剧中共的能源短缺。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-13.jpg)
+另一方面，中共国内部分地区今年降雨量减少，依赖降水量的供电也难以为继，部分工厂被强制限电。这也导致中共国内液化天然气价格的大幅上涨。
 
-惠誉还将中国奥园的高级无抵押评级及其未偿付美元高级无抵押票据的评级从“BB-”下调至“B+”，回收率评级为“RR4”。惠誉在对其最新的企业评级标准公布后，将其所有评级从评级观察名单中移除。
+为了解决迫在眉睫的能源问题，中共与美国路易斯安那州的天然气企业签署了一份20年的协议，以确保美国向中共国出口400万吨的液化天然气。
 
-惠誉认为，在资本市场波动性较大的情况下，中国奥园的财务灵活性不断下降，预计其将利用其现金余额偿还到期的资本市场债务。
+相关评论指出，2019年中美贸易战期间，中共几乎切断了对美国化石能源产品的进口，此次签署如此巨额的天然气协议，或与中共每况愈下的国际与国内环境有关。
 
-近日，信托圈流传出一则消息，“世茂与陆家嘴信托谈延期”，关于此事，世茂集团发布澄清声明。
+参考链接：
 
-11月5日，世茂集团发布澄清声明，昨日在网上流传“世茂与陆家嘴信托谈延期”的消息，经内部摸排以及与陆家嘴信托确认，目前世茂集团与陆家嘴信托合作正常，过往从未有过逾期或面临延期偿付事项。然而市场已经是草木皆兵。
+[中国为应对能源短缺和减排狂买美国天然气](https://cn.wsj.com/articles/%E4%B8%AD%E5%9B%BD%E4%B8%BA%E5%BA%94%E5%AF%B9%E8%83%BD%E6%BA%90%E7%9F%AD%E7%BC%BA%E5%92%8C%E5%87%8F%E6%8E%92%E7%8B%82%E4%B9%B0%E7%BE%8E%E5%9B%BD%E5%A4%A9%E7%84%B6%E6%B0%94-11635903309)
 
-下午，世茂集团旗下部分跌幅扩大。截至发稿，19世茂G2跌21%，19世茂G1跌20%、15世茂02跌25.81%，20世茂G1跌24%。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-4.png)
-截至发稿，世茂集团跌13%，至13港元/股。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-2.png)
-消息来源：
+[Sinopec signs China’s largest long-term LNG contract with U.S. firm](https://www.reuters.com/business/energy/sinopec-signs-20-yr-lng-contract-with-us-venture-global-lng-2021-11-04/)
 
-[股债双杀！地产成“地雷”？大批地产债“熔断”，更传世茂出事？刚刚紧急澄清！](https://posts.careerengine.us/p/6184e64b3a46887be74cf8d2?from=latest-posts-panel&amp;type=title)
+[《RUSSELL专栏》中国动力煤期货虽暴跌35% 然现货价格依然坚挺](https://cn.reuters.com/article/column-russell-china-coal-drv-1026-idCNKBS2HG0QZ)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编：Irene木木
+编辑：Kathy文艺/Irene木木
+校正/发稿：Fei797
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
