@@ -2,23 +2,27 @@
 ---
 
 
-## 100名长期教师、TDSB工作人员在未披露COVID-19疫苗接种状况后休无薪假
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1639664/)
+## 美众议员提案禁止联邦资金用于强制疫苗接种
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1639704/)
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-1-edited.jpg)图片来源：网络
-来自多伦多新闻网报道：TDSB 的 100 名固定教师和工作人员在未披露 COVID-19 疫苗接种情况后被无薪休假。
+#### **翻译：雨季仰光** | 校对：沙拉猫
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1104news.png)图片来源：网络合成
+据《每日传讯》（Daily Caller）11月3日报道，共和党阿拉巴马州（Alabama）众议员莫∙布鲁克斯（Mo Brooks）于周三提交了一份议案，该议案将禁止联邦资金用于“建立、实施或强推”强制疫苗接种令。共和党人之前试图将一份相同内容的修正案作为另一资助联邦政府议案的附加条款时，遭到了参议院的否决。
 
-多伦多教育局 (TDSB) 的所有全职和临时工作人员中有近 2% 在拒绝透露他们的 COVID-19 疫苗接种情况后被无薪休假。
+这次布鲁克斯的提案更进了一步，提议禁止联邦资金用于任何强制疫苗接种。联邦雇员尤其是军事人员一般都被要求接受某些疫苗以抵御各种传染病。继德尔塔变种导致的病例逐步增长后，美国联邦政府于9月份开始加紧推广冠状病毒强制疫苗接种政策。除了针对联邦雇员外，拜登总统还宣布职业健康和安全管理局（OHSA）将通过一项紧急条例，要求所有雇员超过100人的公司要么接受强制疫苗接种令，要么雇员就得每周进行病毒检测。但此紧急条例目前尚未正式公布。
 
-TDSB 表示，截至 11 月 2 日下午 5 点，100 名长期工作人员和 643 名临时工作人员没有提交他们的强制性疫苗证明，因此被安排无纪律的行政无薪休假。
+就在拜登政府宣布强制疫苗令后不久，在亚利桑那州安迪∙比格斯（Andy Biggs）的带领下，众议院共和党人提交了一项议案，禁止联邦政府对其雇员或私企进行强制疫苗接种。一些共和党州在拜登政府宣布强制疫苗令后，也随即发起了法律诉讼以阻止该强制令生效。
 
-来源链接：[https://toronto.ctvnews.ca/100-permanent-teachers-staff-at-tdsb-placed-on-unpaid-leave-after-not-disclosing-covid-19-vaccination-status-1.5651913](https://toronto.ctvnews.ca/100-permanent-teachers-staff-at-tdsb-placed-on-unpaid-leave-after-not-disclosing-covid-19-vaccination-status-1.5651913)
+布鲁克斯告诉《每日传讯》记者，美国人民现在是时候采取行动，知道谁和他们站在一起保卫宪法和自由。国会应该立案来昭示他们在此事上的立场。像他一样的议员在人们正在失去工作时，不能再闲坐一旁袖手旁观了。
 
-编辑/发布：LILY
+**评**：拜登政府是按下葫芦浮起瓢，把精力都浪费在折腾美国人民身上，有这种“契而不舍”的劲头好好把美国经济好好治理一下，把那些尸位素餐或者说祸害国民的福奇之流好好收拾收拾，也不至于今天看到恰似1984年美国人民因极其愤恨民主党前任卡特的不作为胡作为而将49个州的选票几近全红把选票投给共和党里根总统。物极必反，看近期美国各州选举的态势也知道美国人民受够了。
 
-20211104
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+（评论只代表作者观点）
+
+新闻来源：[EXCLUSIVE: Rep. Brooks Introduces Bill To Ban Federal Funding For Vaccine Mandates](https://dailycaller.com/2021/11/03/mo-brooks-ban-federal-funding-vaccine-mandates/)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
