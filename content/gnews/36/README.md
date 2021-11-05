@@ -2,32 +2,43 @@
 ---
 
 
-## 台湾防备中共利用深伪技术制造混乱
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641482/)
+## 喜币未来是打通全球金融壁垒
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1641688/)
 
-作者：纽约香草山农场 – 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月3日，台湾国安局官员向立法院证实，国安局现已成立专案小组，应对中共利用深伪技术妨害台湾安全和稳定的行为。国安局透露，中共的深伪技术可仿造台湾领导人的影音或照片，从而可利用其影响台湾未来的公投和大选。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-16.jpg)
-深伪技术，即透过人工智能的深度学习技术伪造信息，现多为不法分子的牟利工具，也是中共用来侵扰台湾、干预台湾政治的手段。情报显示，自2018年起，中共的这类操作就层出不穷。截至目前，台湾今年已经监测到了5万多次来自中共的网络攻击。
+**By:[秘翻新视野](https://gtv.org/video/id=61849ef111d186296801be89)**
 
-有关评论显示，中共如今仍不放弃侵占台湾的野心，台湾需谨慎防备中共利用人工智能技术，在台湾重大事件或政治问题中操控舆论、制造混乱的邪恶计划。
+***2021-11-5***
+[![](https://assets.gnews.org/wp-content/uploads/2021/11/IMAGE-2021-11-05-212630.jpg)](https://gtv.org/video/id=61849ef111d186296801be89)*点击图片观看完整视频*
+**一，**近日中共国著名女子网球运动员彭帅公开披露，曾遭到中共前政治局常委、国务院副总理张高丽性侵，并在其妻子允许下与张高丽保持情人关系。
 
-参考链接：
+多位明星因为性丑闻而被媒体舆论炒的沸沸扬扬，但是张高丽彭帅事件却被全网禁言，微博被删。共产党向来都是双重标准，所谓的高道德标准都是用来衡量别人。
 
-[台湾成立专案小组，防备北京利用深伪技术影响公投大选](https://www.voachinese.com/a/taiwan-establishes-task-force-against-china-electron-meddling-deepfakes-20211103/6298493.html)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-总编：飞虹
-编辑：AN
-校正/发稿：Fei797
+台湾媒体关于张高丽彭帅事件的报道讨论也分蓝绿统独。很多政论节目都用不小的篇幅讨论这件事情，但是支持国民党的政论节目却只字未提。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+彭帅在微博里提到，张高丽的老婆还在门口把风，在中共这种体制下，产生出这种扭曲变态的典型。
+
+文贵先生也提到张高丽这件事不会有后续，什么也不会发生。单纯只是习近平要整张高丽，因他在深圳习家的地盘上作威作福多年。
+
+**二，喜币涨势喜人**
+
+新中国联邦藏富于民，普普通通的穷战友们赶上了文贵先生的这一波浩浩荡荡的造富运动，对比中共只会割韭菜，融会贯通实施商鞅的愚民五术。
+
+喜币上市不到48小时，总市值达到所有虚拟货币排名第一，流通市值也达到虚拟货币前23名。直接体现了新中国联邦的实力。
+
+文贵先生说，喜币未来是打通全球的任督二脉，打通全球金融壁垒。
+
+**GETTR-PAY**就是**HPAY**，**HPAY**在**GETTR**它是同一个系统。每个人都有做自己和赚钱的机会。
+
+**详细内容请观看GTV直播：**[https://gtv.org/video/id=61849ef111d186296801be89](https://gtv.org/video/id=61849ef111d186296801be89)
+
+*发布:星星*
+
+* * *
+
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/IMAGE-2021-08-12-195949.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,38 +2,51 @@
 ---
 
 
-## 因疫苗强制接种令，皇家墨尔本医院损失51名雇员
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1642055/)
+## 如果中国入侵,马克米利将军不会承诺保卫台湾
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1642105/)
 
-**翻译：月映万川**
-**编辑：Janek**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/RMH.jpg)
+作者：Ian Miles Cheong
+翻译：HimaFAFA
 
 
-图片来源：[https://www.blueapache.com/virus-hits-royal-melbourne-hospital-and-its-not-the-type-they-normally-see/](https://www.blueapache.com/virus-hits-royal-melbourne-hospital-and-its-not-the-type-they-normally-see/)
 
-大约有不到1%的墨尔本皇家医院的雇员没有在规定的时间完成免疫要求。这些雇员包括了，护士，病房职员，和管理人员。
+参谋长联席会议主席马克米利将军拒绝承诺在中国入侵的情况下保卫台湾。
 
-维多利亚州政府的疫苗强制令用于，所有在医疗系统工作的人员甚至包括自雇人士和合同工。这些岗位包括，行政人员，在医疗单位里的零售人员，医生，护士，和提供诊断成像服务的员工。而维多利亚州要求最后的接种时间是，所有医疗工作者必须在10月29日前接种第一针。据皇家墨尔本医院的发言人表示，8名员工选择不接种疫苗而辞职，另外8名员工在说明不接受强制疫苗后被停职，而另外35名员工被强制停薪留职。
+在本周阿斯彭安全论坛的一次活动中，当NBC 新闻的莱斯特霍尔特问及他对此事的立场时，米利说他“只对和平结果感兴趣” 。
 
-悉尼大学流行病学教授亚历山德拉·马蒂努克（Alexandra Martinuik）说，“如果这些员工继续选择不接种疫苗或没有医疗豁免，我认为让这些工作在医疗岗位的员工辞职是很合理的，或者让他们接受停薪留职。因为，让他们继续工作会给他们自己，病人和同事带来更多的风险。”
+霍尔特问米莱，中国是否准备在这个主权岛国采取行动，它认为这是一个脱离大陆的省份。米利回应说，他认为短期内不会采取任何行动，这意味着接下来的 6 到 24 个月，但警告说“任何事情都有可能发生”。
 
-目前，只有皇家墨尔本医院给出了他们因受强制疫苗接种令，而导致的人员流失问题。大多数的维多利亚州医院都没有给出他们答案。
+“话虽如此，但中国人正在明确且毫不含糊地建立能力，在未来某个时候向国家领导人提供这些选择，如果他们愿意的话。但在不久的将来，可能不会。但任何事情都有可能发生，”他说。
 
-新南威士州的卫生部负责收集关于强制疫苗令对于医疗机构的影响。目前由于数据还在收集中，卫生部尚不能就此问题给出答案。
+当被问及美国对台湾的承诺时，米利回答说：“嗯，正如你们所知，我们有《台湾关系法》以及与之配套的三份公报，”据《每日电讯报》报道。
 
-在十月初，新南威士州卫生部表示，少于千分之一的员工会因为强制疫苗接种令而辞职，以此来表示强制令不会导致医疗员工短缺。
+“它们诞生于尼克松政府时期，”他补充道。“这些仍然是美国政府的政策，这确实是一个模棱两可的问题。但我们希望美国政府的政策是，无论台湾和中华人民共和国有什么问题，他们都按照台湾岛民和中国人民的意愿和平解决。我们只对和平结果感兴趣。”
 
-昆士兰卫生部部长伊薇特·德阿特 (Yvette D’Ath)表示，7000多名医疗系统的雇员尚未提供他们的疫苗接种状态，这其中的4000人马上就要被要求提供疫苗接种证明，或者被停薪停职。
+米利警告说，如果迫在眉睫，美国“绝对”有能力在世界范围内做各种各样的事情，包括为台湾拿起武器，但最终决定权在总统手中。
 
-发布：Janek
+“我们绝对有能力在世界各地做各种各样的事情，包括如果需要，那些是政策性的需总统决定，无论我们是否这样做，台湾关系法的也是政策，”米利说。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+“但我们绝对有能力，”他说。“这没有问题。”
+
+來源：[https://www.rebelnews.com/general\_mark\_milley\_wont\_commit\_to\_defending\_taiwan\_if\_china\_invades](https://www.rebelnews.com/general_mark_milley_wont_commit_to_defending_taiwan_if_china_invades)
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

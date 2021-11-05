@@ -2,38 +2,29 @@
 ---
 
 
-## 网球名将彭帅指控中共前副总理张高丽引发网络热议
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641836/)
+## 许多covid-19幸存者失去味觉和嗅觉，治疗并非易事
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1641893/)
 
-作者：纽约香草山佛教部 – 文一
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-此前，郭文贵先生在盖特和大直播中解读了中共前副总理张高丽性侵网球名将彭帅的事件，而后，该事件在网络上持续发酵，多家国际媒体跟进报道。
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-05-102950-edited.png)图片来源：网络
+020 年圣诞节后的第二天早上，Carolyn Hinds 醒来发现自己闻不到或尝不到任何东西。 随后几天出现了 COVID-19 的其他迹象，例如发烧、咳嗽和肌肉酸痛。 这些症状随着时间的推移而消退，但她缺乏嗅觉和味觉却没有。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-2.jpeg)
+直到今天，38 岁的 Hinds 几乎闻不到任何东西，她的味觉仍然扭曲——甜的东西会留下奇怪的回味，咸的食物会让她的胃不舒服，香料会让她的嘴唇和舌头燃烧，但尝起来却什么也没有。 “这些事情会在精神上和身体上困扰你，因为它会改变你体验世界的方式，”她说。
 
-11月4日，美国媒体发文详述了这一事件，当中提及，中共职业网球名将彭帅于11月2日晚间通过微博平台发帖控诉中共前副总理张高丽性侵，但该帖随后被删除。另有消息对该事件评论道，这是中共最高权力阶层首次受到此类公开指控。评论认为，这也是该事件被中共政府极力打压的原因所在。有评论指出，此次事件反映了中共内斗、清算的政治信号。
+最近的两人在墨西哥高档度假胜地附近的激烈枪战中丧生，认为牛奶很贵吗？ 它的成本可能会更高。
 
-参考链接: 
-1)[https://gettr.com/post/pfuwdu33fb](https://gettr.com/post/pfuwdu33fb)
-2) [2021年11月03 日 文贵大直播：彭帅爆张高丽丑闻，再次验证爆料革命的真实性；喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产；房地产税会灭国灭党；共和党在弗吉尼亚州长竞选获胜意味着什么](https://gtv.org/video/id=61827dfd11d186296800dd83)
-3) [中国网球名将彭帅指控前副总理引发网络热议](https://cn.wsj.com/articles/中国网球名将彭帅指控前副总理引发网络热议-11636004717)
-4) [简报：彭帅指控张高丽性侵；美国称中国将在2030年前拥有1000枚核弹头](https://www.nytimes.com/zh-hans/2021/11/03/world/asia/china-peng-shuai-zhang-gaoli.html)
-5) [彭帅事件真相扑朔迷离 专家：共产党不许人们议论](https://www.dw.com/zh/彭帅事件真相扑朔迷离-专家共产党不许人们议论/a-59702973)
-6) [VOA连线：谢田 彭帅举报张高丽反应中共内斗、清算政治信号 – 11月 04, 2021](https://podtail.se/podcast/voa/voa-11-04-2021/)
+“我们所做的没有什么值得打喷嚏的。”明尼阿波利斯的活动家在“取消资助”投票失败后展望未来“为什么我不能握住他的手？”最高法院将决定牧师在执行死刑期间可以提供什么安慰法官驳回凯尔·里滕豪斯 (Kyle Rittenhouse) 陪审员在关于雅各布布莱克拍摄的“种族”笑话“这个国家的实际情况”之后的陪审员在贫困线以下的史诗般的 6 年之旅。 认为牛奶很贵？ 它的成本可能会更高。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+也许最糟糕的是，Hinds 的医生说他们不知道如何治疗她。  “已经 10 个月了，”她说。  “我有点想这就是[永远]的样子。”
 
-总编：Irene木木
-编辑：小鹿妞妞
-校正/发稿：谐趣园
+COVID-19 大流行将近两年后，很多人都处于 Hinds 的位置。 嗅觉丧失不是 COVID 特有的现象——它可能由于其他病毒、神经系统疾病、吸烟、头部受伤和正常衰老等原因而发生——但这种流行病大大增加了其患病率。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+来源链接：[https://t.co/GpJsfIftJ2](https://t.co/GpJsfIftJ2)
+
+编辑/发布：LILY
+
+20211105
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

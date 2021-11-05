@@ -2,25 +2,25 @@
 ---
 
 
-## 因担忧债务违约 中共房企股价跳水
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641699/)
+## 有声|墙内“喜交所”搜索量排全球第一
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1641849/)
 
-作者：MOS 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月4日的消息称，近期，中共在香港上市的房企股票全线下跌，其中，恒大、碧桂园、融创等房企的跌幅在2.3%到3.4%之间，而佳兆业集团的股票则暴跌近14%。数据显示，佳兆业集团10月份的销售额约为81亿元人民币，同比下降30.5%。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-6.jpg)
-相关人员指出，和融创等中共房企一样，佳兆业集团也通过向境外发行垃圾债券，用以规避中共政府严格控制的境内银行贷款。因此，在未来一年中，佳兆业即将到期的境外债务规模仅次于恒大。
+配音：香草山美食部 – 玫瑰园
 
-分析师表示，中共的房地产行业规模达5万亿美元，是中共经济增长的主要动力，但是，在未来几个月内，中共的房地产行业和其整体的经济状况将会持续恶化。
+11月1日，喜币公开上市，震惊了世界，更惊醒了墙内无数老百姓。
 
-参考链接：
+近日，“喜交所”的搜索量，在短短几天时间内，快速增长百分之五十以上。从搜索量地区排名来看，前五名的国家和地区依次是：中国大陆，香港，澳大利亚，新西兰，新加坡。
 
-[佳兆业旗下公司未如期兑付理财产品 流动性危机升级–消息人士（更新版）](https://cn.reuters.com/article/instant-article/idCNKBS2HP0TQ)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-总编：Irene木木
-编辑：文特
-校正/发稿：Fei797
+非常值得关注的是，在被禁止使用谷歌的中共国，“喜交所”的搜索量却高居榜首。显然，喜币上市，震撼了墙内百姓，将会有巨量的人搜索量却高居榜首，参与喜币的交易，实现个人财富自由。
 
+喜币是世界金融海啸来临之际，新中国联邦为全世界打造的金融诺亚方舟。喜币未来的价值将远超人们的想象。
+
+文字版原文：[墙内“喜交所”搜索量排全球第一](https://gnews.org/zh-hans/1637937/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

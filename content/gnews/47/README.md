@@ -2,50 +2,22 @@
 ---
 
 
-## 中共包括福建在内多地出现疯狂抢购,民众因抢粮大打出手
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1640926/)
+## 秘翻在线：中共强硬断供欧洲“镁”，脱钩时代已开启
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1641227/)
 
-据[银河勇气之星（新号）@COURAGESTARnew](https://twitter.com/COURAGESTARnew)于[下午3:14 · 2021年11月5日](https://twitter.com/COURAGESTARnew/status/1456520286015148033)发布的推文——
+**撰稿：Ping**
 
-This scene is very sad.Don’t happen again 这一幕非常令人心疼，别再发生了
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-05-201952.jpg)
+近日中共媒体报道，针对西方发达国家对中共芯片，高科技产品等供应限制的情况，中共做出强硬反击“断供欧盟”，让西方国家尝到“苦头”。这就包括铝合金的重要原料镁的断供。这一信息的发出，标志着中共与西方发达国家脱钩已成定局，也印证了郭文贵先生大直播中提到，欧洲国家已经做出决定正式与中共脱钩。
 
+众所周知，金属镁是汽车，航天制造重要的原材料，中共断供“镁”是否就能真正击中西方国家的经济要害呢？曾经在中美贸易战最激烈的时刻，稀土也是中共用来要挟断供西方的一个筹码。对于镁的储备量，曾经有俄国媒体报道世界上最大的菱镁矿储量，即生产镁的原料，在俄罗斯和朝鲜。中国镁产量的减少为俄罗斯扩大现代工业所需的这种金属的市场份额提供了好机会。可见狡猾的俄罗斯不会是中共的忠实盟友，在利益面前一定会做出衡量和判断。个人认为经济全球化的时代，各国经济早已经形成了“你中有我，我中有你”的关系。脱钩对双方经济都会造成严重的伤害。但是郭先生自2017年爆料开始，就提到中美脱钩，中欧脱钩的必然性。因为自中共加入WHO开始，西方发达国家就一步步钻进中共设的蓝金黄的布局当中。将资本的邪恶行完全彰显出来，使得西方一帮流氓政客将西方文明国家拖入共产党的邪恶布局中。但是，西方文明的伟大就在于，他们是民主法治的国家，一旦他们认识到，共产党是一切邪恶的根源后，就会做出积极的补救措施。如今欧洲与中共的脱钩，就是文明正义的选择。
 
+脱钩对西方国家的经济一定会带来不小的影响。中共就是西方经济文明发展链条上的一颗毒瘤，虽然割下来的时候会很痛，但是对于其今后的发展却是利大于弊的。然而对中共的经济发展的影响却不是中共官媒报道的那么强硬。中共国假大空，作为世界第二大经济大国，却没有一样拿的出的技术，所有高科技尖端的产品，例如芯片都是靠进口。一旦中共与西方发达国家脱钩，中共的高科技产品生产链就会脆断，这也就预示着中共国闭关锁国的时代已然来临。
 
-> This scene is very sad.Don’t happen again
-> 这一幕非常令人心疼，别再发生了🙏 [pic.twitter.com/w2qjWy1rNN](https://t.co/w2qjWy1rNN)
-> — 银河勇气之星⭐（新号） (@COURAGESTARnew) [November 5, 2021](https://twitter.com/COURAGESTARnew/status/1456520286015148033?ref_src=twsrc%5Etfw)
+西方发达国家与中共的脱钩，中共第二大经济强国的地位就已经成为历史。离北韩的距离却是越来越近了，老百姓吃草的日子不远了。郭文贵先生多次在大直播中对中共国老百姓的生存深感担忧。共产党的邪恶，却要带走那么多无辜的百姓，如果老百姓自己不觉醒，还继续相信共产党，那真的就是快步跨进火葬场。在此，再次呼吁中共国的老百姓一定要认清共产党的邪恶，爱国不等于爱共产党。
 
-
-
-根据视频显示，中共内地多地持续出现疯狂抢购，因为抢粮而大打出手，有些地区超市被抢购一空，（北京）卖大米的从来没想到今年能这么火。福建省南安超市货架货品都被抢光了，货架货品都被抢光喽，南安湖西超市都被抢光了，整家超市都被抢光的，祥龙干货带头抢光了厦门唐朝食品配送商的存货。
-
-关于存粮的问题，郭文贵先生也在[2021年11月03 日 文贵大直播：彭帅爆张高丽丑闻，再次验证爆料革命的真实性；喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产；房地产税会灭国灭党；共和党在弗吉尼亚州长竞选获胜意味着什么](https://gtv.org/video/id=61827dfd11d186296800dd83)中进行了解惑。
-
-郭先生提到共产党也知道现在国外进口的粮食越来越困难，国内很多所谓的战略粮是给国家军队用的，不是给老百姓用的，另外由于今年中共国到处发大水，因自然灾难导致严重缺粮，并且中共现在并没有发放公粮的体制，到时候即使有公粮也发不下去，所以中共鼓励大家存粮，用囤粮的办法解决中共国根本没有战争时期或自然灾难下分配粮食的体制，避免饿死更多人。
-
-自助者天必助之，远离一线二线城市，远离军事目标，储存必要的生活物资并保证在至暗时刻来临时有基本的水电通讯条件和安全的庇护场所或许应该是十四亿同胞们目前最急需解决的事情了。
-
-撰稿：喜马拉雅的肉夹馍
-
-审核：喜马拉雅的馍夹肉
-
-校对：Maarago
-
-（文章内容仅代表作者个人观点）
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[**新闻来源**](https://www.163.com/dy/article/GNT5NOSR0535I9HM.html?f=post2020_dy_recommends)
 
  
 

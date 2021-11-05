@@ -2,29 +2,21 @@
 ---
 
 
-## 维加诺主教再发公开信反对疫苗接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641871/)
+## 有声|中共要求3-11岁儿童在12月底前完成新冠疫苗接种
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1641943/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月2日，相关消息显示，大主教卡洛·维加诺致函美国红衣主教协会会长，要求停止新冠疫苗的接种。
+配音：香草山教育部 – 蒙古鸿雁
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-4.jpeg)
+在当地时间10月30日的新冠疫情新闻发布会上，中共国家卫健委疾控局副局长吴良有要求在12月底完成墙内3-11岁儿童的全程新冠疫苗接种。 目前，这一规定正在中共国包括北京、上海、广东在内的十余个省市中强制推行。
 
-维加诺主教认为，新冠疫苗在研发过程中没有经过严格的安全测试，在全球范围内施打这种疫苗等于用实验药物在人类身上做试验。
+消息称，此举引发了墙内民众的广泛质疑。他们指出，中共当局没有给出儿童接种新冠疫苗的数据报告，也没有披露这些疫苗是否已经完成了三期试验。同时，他们质问当局，疫苗造成的各类副作用是否有人负责。更有民众表示，宁可让孩子休学，也不会接种新冠疫苗。
 
-再者，主教表示，目前已经基本确认，新冠病毒疫苗既不能帮助人体免疫新冠病毒，也不能阻止病毒的传染，相反，疫苗还有严重的副作用。过去9个月中，新冠疫苗造成的死亡人数比其他所有疫苗在过去30年内造成的还多。
+文字版原文：[中共要求3-11岁儿童在12月底前完成新冠疫苗接种](https://gnews.org/zh-hans/1636671/)
 
-主教还提及，已经被证实的有效治疗药物被美国以及欧洲的医疗主管机构阻止使用。为此，主教谴责了大重启计划，同时斥责教皇方济各犯下“反人类罪”，实行“对抗上帝的撒旦之举”。
+音频处理：喜山必胜Maverick
 
-参考链接: [Archbishop Viganò Writes Stunning Letter On Vaccine Program](https://www.zerohedge.com/covid-19/archbishop-vigano-writes-stunning-letter-vaccine-program)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
-
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
@@ -32,8 +24,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
