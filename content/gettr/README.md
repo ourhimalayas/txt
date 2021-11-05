@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/5/2021 1:48 AM (UTC)`
+
+11/3/2021 Miles Guo: Zhang Wenyuan is Zhang Gaoli’s illegitimate child rather than his nephew, and Zhang Gaoli’s so-called “adopted daughters” are in fact his mistresses;  Zhang Gaoli is the “king” of Guangdong and Shenzhen, and Xi Yuanping (Xi Jinping’s younger brother) would even avoid Zhang Gaoli whenever he ran into Zhang<br/><br/>11/3/2021 文贵直播: 张文远是张高丽私生子而不是侄子，张高丽的所谓“养女“竟是其情妇；张高丽是广东王、深圳王，习远平见张高丽都得躲着<br/>
+![img](https://media.gettr.com/group49/getter/2021/11/05/01/6e9a35a2-38e1-56a0-3dd8-2749b048f4ba/out.jpg)
+
+---
+
 `@miles 11/5/2021 1:04 AM (UTC)`
 
 11/3/2021 Miles Guo: The CCP’s entire real estate sector is doomed, and the day the real estate collapses is the day the CCP will be taken down, with both the Jiang family and Zeng family waiting for Xi Jinping to be finished; the purpose for the CCP to impose property taxes is to sustain its Ponzi scheme. Why will collecting property taxes devastate both the CCP and the Communist China?<br/><br/>11/3/2021 文贵直播: 中共的整个房地产领域都快完了，房地产崩溃之日就是灭共之时，江家、曾家都等着习完蛋；中共征收房产税是为了延续其庞氏骗局，为什么说征收房地产税将导致亡党亡国？<br/>
@@ -287,13 +294,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 11/1/2021 [HCoin To the Moon Celebration]: The CCP is using the UK as the command center for its anti-Whistleblowers' Movement task force and to attack the Himalaya Coin. But because we are well-prepared to resist and are protected by the UK and other countries, we are able to crush the CCP's crazy operations. Had it not been so, the launch of Himalay Coin would have been delayed for a month.<br/><br/>11/1/2021【HCoin To the Moon 庆典】：中共将英国作为平爆小组的指挥中心以攻击喜联储，但我们有绝对的实力反抗并得到了英国等国家的保护，成功粉碎了中共疯狂的行动，否则喜币将推迟一个月上市<br/>
 ![img](https://media.gettr.com/group9/getter/2021/11/02/00/25/5d62d522-fbdc-15cf-5d37-ae1099743a9e/out.jpg)
-
----
-
-`@miles 11/1/2021 8:49 PM (UTC)`
-
-“HCOIN TO THE MOON” 喜马拉雅币上市庆典
-![img](https://media.gettr.com/group30/origin/2021/11/01/09/114a50be-85ff-f9a7-eec1-20b602a50f71/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

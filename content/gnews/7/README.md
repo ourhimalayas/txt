@@ -2,46 +2,42 @@
 ---
 
 
-## 美国前线医生组织起诉Kaiser Permanente：强制接种疫苗既不合法，也不科学
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1639937/)
+## 美军表态有能力保卫台湾，中共警告不要干涉台湾问题
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1640001/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/110416.jpg)凯萨医疗机构。来自网络图片
-摘要翻译：
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-上周，在美国前线医生**(AFLDS)**民权组织的支持下，约翰**·**霍华德** (John Howard) **律师和戴维利尔法律集团** (Davillier Law Group) **向美国加利福尼亚北区地方法院提起诉讼，控告美国最大的医疗保健机构之一的凯萨医疗机构**(Kaiser Permanente)**。** **该诉讼提告凯萨医疗机构要求其**217,000**名员工或在**2021**年**9**月**30**日之前接种疫苗，或被迫无薪休假。如果员工在**2021**年**12**月**1**日后仍不接种疫苗，他们将被解雇。已有**4,000 **多名员工向美国前线医生寻求民权援助。
-
-声明说：**“**美国前线医生一直公开表示，强制使用新冠疫苗在法律上是不合法的，在科学上也是不安全的。说不合法是因为接种疫苗并不能阻止**Delta**的传播，因此，这只是个人的治疗选择。说它们不安全是因为疫苗会导致接种的人成为病毒载量极高的超级传播者，并且会因为接种疫苗而导致病情加重，住院率和死亡率也会高于未接种疫苗的人。此外，世界各地都在使用更有效、更安全的治疗方法，例如，印度政府宣布在它人口高达**2.4**亿的最大州，疫苗接种率非常低，但通过大量使用伊维菌素，现已成为**‘**无新冠病毒**’**地区。**”**
-
-凯萨医疗机构声称它只是遵循**CDC**指南。对此，美国前线医生表示：**“CDC**无权强制要求所有人接种疫苗，这会使得像凯萨医疗机构这样的许多组织得以威胁员工**‘**不接种，无工作**’**。作为美国最大的医疗保健机构，凯萨具有巨大的影响力，并有迹象显示，凯萨医疗机构与本应独立行事的政策决策者之间存在隐晦的关系。原告还揭示了**CDC**和**FDA**与凯萨医疗机构密切配合来强制推行疫苗接种。**”**
-
-美国前线医生表示：**“**凯萨医疗机构的强制规定违反了宪法和加利福尼亚州法律。起诉书提到他们违反了第** 14 **条修正案的正当程序条款和平等保护条款、加州宪法、侵犯隐私法、涉及公开披露个人隐私、违反了计算机收集个人信息的安全保护法，以及故意造成情绪困扰等。诉状称强制接种疫苗侵犯了多项被最高法院确认为人们固有的基本宪法权利，包括生命、财产、自由、身体完整性和隐私权。**”**
-
-**Simone Gold**博士既是医生又是律师，也是美国前线医生的创始人，他认为**“**凯撒案是我们的阿拉莫之战（注：可参考电影《边城英烈传》）。如果我们允许强大的利益集团践踏人权，强制接种疫苗来对付一种大多数人已经有免疫力，并且处于工作年龄的美国人有**99.98%**以上存活率的病毒，那么，他们会进一步侵犯人们的自由。此外，凯撒的做法很无耻，他们远不止是用失业来要胁，他们还伙同联邦和州政府采用全行业停止雇佣和和永久性停止雇佣的手段来胁迫员工。**”**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/110417.jpg)美国前线医生
-**简评：**
-
-肆虐全球一年多的冠状病毒和世界各国都在推进的疫苗，与地球上每一个人的身心利益、以及整个人类的生死存亡，已经息息相关、不可分离。每个人，都拥有最起码的选择权。对自己的身体，自己有权决定，是人的基本权利，受宪法和法律的保护，为什么一定被要求接种？要求民众接种疫苗，却先声明免责，这是何等滑稽的逻辑？如果不接种，就不能上学、上班、买菜、看病，这是给人们选择的自由吗？这不是侵犯人权，又是什么？
-
-疫苗接种的授权及实施都掌握在医疗机构手中。从表面上看，全世界的医疗机构是由所谓的**“**专业技术人士**”**组成和管理的，而事实上，操控权则掌控在各大药厂的手中。政府，控制了医生的执照。药厂，控制了医生的处方权。
-
-新闻链接：[America’s Frontline Doctors files complaint against Kaiser Permanente: ‘COVID vaccine mandates are both illegal as a matter of law and unsafe as a matter of science’](https://americasfrontlinedoctors.org/2/frontlinenews/americas-frontline-doctors-files-complaint-against-kaiser-permanente-covid-vaccine-mandates-are-both-illegal-as-a-matter-of-law-and-unsafe-as-a-matter-of-science/)
-
-***编辑**: 希望*
-
-***校对**: 文明明*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/台湾.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+图片来源： REUTERS/Tyrone Siu
 
 
+#### 编译：小红帽
+
+在美国参谋长联席会议主席马克·米利（Mark Milley）表示他的军队有能力保卫台湾对抗北京当局之后，中国外交部对美国进行了回击，要求华盛顿当局不要干涉台湾问题。
+
+周四，中国外交部发言人汪文斌在每日新闻发布会上发表讲话，要求美国停止对台湾发表可能助长“分裂主义势力嚣张气焰”的言论。
+
+“任何人都不能低估中国捍卫国家主权和领土完整的坚定决心和意志。我们绝不允许任何人、任何势力以任何方式将台湾从祖国的怀抱中分裂出去。”
+
+汪文斌呼吁美方尊重一个中国政策，履行中美联合公报对北京当局的承诺，并表示应谨慎妥善处理涉台问题。
+
+米利在阿斯彭安全论坛（Aspen Security Forum）上发表讲话说，美军“绝对有能力”从中共国手中保卫台湾，并补充说“这一点毫无疑问”。
+
+米利将军还表示，他不相信中共国会在短期内入侵台湾。然而，北京当局“显然”正在建立军事能力，以便其未来的领导人有这个选择。
+
+**参考新闻：**[China tells US to back down after explosive Taiwan comment — RT World News](https://www.rt.com/news/539367-china-taiwan-us-military-milley/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
