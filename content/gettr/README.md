@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/5/2021 9:29 AM (UTC)`
+
+11/3/2021 Miles Guo: What are the three milestones indicating the true value of the Himalaya Coin? What does it mean for 30 European countries to decouple with the CCP? Republicans won both elections in Virginia and Long Island, indicating that the US wins while the CCP has lost!<br/><br/>11/3/2021 文贵直播: 体现喜币真正价值的三个标志性事件是什么？欧洲30国跟中共脱钩意味着什么？共和党在弗吉尼亚和长岛胜选，这说明美国赢了，中共输了！<br/>
+![img](https://media.gettr.com/group22/getter/2021/11/05/09/29/e8542b71-7eda-b188-65f6-10de4415b5e5/out.jpg)
+
+---
+
 `@miles 11/5/2021 4:33 AM (UTC)`
 
 11/1/2021 【HCoin to The Moon庆典】我们的网络安全小组是世界上最好的；我们的客户是上帝<br/><br/>11/1/2021 【HCoin To the Moon Celebration】 Our cybersecurity team  is among the best in the world and our customers are the king.
@@ -287,13 +294,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 “HCOIN TO THE MOON” 喜马拉雅币上市庆典
 ![img](https://media.gettr.com/group30/origin/2021/11/01/09/114a50be-85ff-f9a7-eec1-20b602a50f71/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 11/2/2021 1:48 AM (UTC)`
-
-11/1/2021 [HCoin To the Moon Celebration]: What does “loyalty” mean? We, the Whistleblowers’ Movement and the New Federal State of China, shall forget “loyalty” - decentralization, but we shall keep “honesty” - treating others with honesty and “honesty” lies in what we do not what we say<br/><br/>11/1/2021【HCoin To the Moon 庆典】：什么是“忠诚”？爆料革命和新中国联邦要摒弃“忠” - 去中心化，但一定要有“诚” - 以“诚”待人、“诚”在行动<br/>
-![img](https://media.gettr.com/group5/getter/2021/11/02/01/48/7c9f4d25-946a-5ca4-f246-72414635ce3c/out.jpg)
 
 ---
 
