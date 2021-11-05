@@ -2,32 +2,40 @@
 ---
 
 
-## 参议院兰德-保罗呼吁福奇辞职
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641961/)
+## 中共国将面临粮食危机 百姓只能自生自灭
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1642056/)
 
-作者：纽约香草山 – AlexZ
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月4日，美国参议员兰德·保罗在关于持续大流行的参议院听证会上呼吁福奇辞职。
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide10-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/0FA9A4A7-7D28-4769-B7C2-05C7F2C6EFD9.jpeg)（图片来自网络）
 
-有媒体认为，福奇“变种病毒”是当今美国健康的最大威胁。为此，保罗强调，过去一年中，他对福奇的评估100%正确。保罗提到，福奇此前坚称对“功能增强”实验不知情，但事实却是，该实验得到来自NIH的资助，且为了掩盖这一事实，福奇甚至更改了NIH官方网站上对“功能增强”的定义。
+11月3日，郭文贵先生在他的大直播节目中指出，中共商务部发通知鼓励百姓囤粮，主要是因为粮食严重短缺，并且中共没有公储粮系统，以及在紧急状态下的粮食分配体制。虽然中共有国家战备粮，但它也只用于国家军队，中共国百姓只能自身自灭。
 
-保罗表示，大量证据表明，新冠病毒来自实验室，福奇的所作所为全然是对自身罪行的掩盖。
+郭先生在直播中表示，虽然也不排除有可能是在为万一发生台海战争做准备，但中共发通知鼓励百姓囤粮，应该与台海问题没有太大关系。
 
-参考链接: [Sen. Rand Paul Calls on Dr. Fauci to Resign: “What You’ve Done Is Change the Definition on Your Website to Try and Cover Your Ass” (VIDEO)](https://www.thegatewaypundit.com/2021/11/sen-rand-paul-calls-dr-fauci-resign-done-change-definition-website-try-cover-ass-video/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
+郭先生认为，商务部让百姓囤粮的主要原因是：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+一、今年洪涝严重，国内粮食严重减产；
+
+二、中共“战狼外交”和其他政治原因导致粮食进口难度增加；
+
+三、中共没有在自然灾害或战争时期下发分配粮食的体制。即便中共有国家战备粮，但也仅用于国家军队，不会考虑中共国百姓。
+
+郭先生还分析指出，由于中共在国际上一直宣称要武统台湾，导致多个民主国家为维护国际秩序聚焦南海，再加上近期美国各州的大选结果对中共十分不利，因此，目前台海战争的主导权或许已不在中共手中。
+
+*注：本文仅代表作者观点*
+
+*参考链接：[https://gtv.org/video/id=61827dfd11d186296800dd83](https://gtv.org/video/id=61827dfd11d186296800dd83)*
+
+* * *
+
+
+```
+素材采编：幽蘭自得
+编辑：青衣青青
+校对： 小星星
+发布：miumiu
+```
 
 
  

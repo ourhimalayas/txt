@@ -2,36 +2,43 @@
 ---
 
 
-## 小拜登参股 中石化正建最大天然气储存设施
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1642212/)
+## 当医生“只是服从命令&#8221;时会发生什么
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1642252/)
 
-**翻译：lulumi**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip142.png)图片来源：thenationalpulse.com
-随着美国天然气价格的飙升，一个与亨特·拜登有联系的中国石油公司正在建造其有史以来最大的天然气储存设施。
-
-中石化，又称中国石油化工集团公司，是中国共产党政权控制的石油和天然气企业。其“全资子公司”中石化销售公司拥有亨特·拜登的私募股权公司BHR Partners近10亿美元的投资。
-
-这个有争议的投资基金的投资让BHR Partners在中石化积累了近30%的股份，这笔交易于2015年3月敲定。
-
-据报道，亨特仍然拥有BHR Partners 10%的股份，其LinkedIn个人资料强调了其在中石化的投资，透露其参与了“国有企业改革试点交易，涉及将中石化集团的非石油业务分离和资本化为中石化销售公司。”
-
-该能源公司的一份新闻稿“中石化华北地区最大的天然气存储集群将投入运营”详细介绍了其破纪录的新天然气存储设施。其目前的储气规模为100.3亿立方米，在其他储气设施建成后，预计将再增加11.16亿立方米。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip143.png)中石化的新天然气储存设施
-公司解释说：“中石化继续加快储气设施建设，提高中国的储气和调峰能力。公司正在加紧完成包括中原储气库群、湖北黄昌储气库等重点项目，更在完成包括山东永21、中原油田地区威11、吉林省古溪、四川省清溪等储气设施后，稳步扩大天然气储气规模，有效提高储气能力和天然气调峰能力，保障天然气供应，”
-
-在拜登白宫取消Keystone XL管道建设的情况下，中石化的新项目涪陵页岩气田在全国范围内创下了产量记录。
-
-**新闻来源**：[thenationalpulse.com] [As U.S. Gas Prices Skyrocket, A Hunter Biden-Linked Chinese Oil Firm is Building Its Largest-Ever Gas Storage Facility.](https://thenationalpulse.com/news/biden-linked-oil-firm-hits-record-levels-of-production/)
-
-* * *
-
-***审核：文乐
-校对：信心满满
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+作者：RebelNews
+翻译：HimaFAFA
 
 
+
+在昨晚的节目伊斯拉黎凡特的秀中，伊斯拉看了约瑟夫·门格勒，卡尔·勃兰特和纳粹医生的审判——纽伦堡判决。
+
+审判那些可怕的纳粹分子的法庭写下了一个代码，一系列规则，比如十诫。它有十点概述了对人类研究的医学伦理。
+
+我们今天是否遵循医学的道德准则？当谈到新冠疫苗时，我们强迫人们在失去工作、职业和职位，在痛苦中接受医疗程序。这答案似乎是否定的。
+
+对此，伊斯拉说：
+
+你如何描述这种大规模的道德违反或它是什麽？是否我们回归了纽伦堡之前的价值观？医生做了政治家命令他们做的事情，导致死亡了。对不起，你告诉我，在过去的两年里，纳粹医生布兰特是否也会遵循以公共卫生的名义？
+
+來源：https://www.rebelnews.com/what\_happens\_when\_doctors\_just\_follow\_orders
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

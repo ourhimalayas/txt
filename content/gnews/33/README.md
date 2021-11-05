@@ -2,29 +2,34 @@
 ---
 
 
-## 许多covid-19幸存者失去味觉和嗅觉，治疗并非易事
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1641893/)
+## 福奇曾资助20余名美国科学家与武汉病毒研究所深度合作
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641947/)
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-05-102950-edited.png)图片来源：网络
-020 年圣诞节后的第二天早上，Carolyn Hinds 醒来发现自己闻不到或尝不到任何东西。 随后几天出现了 COVID-19 的其他迹象，例如发烧、咳嗽和肌肉酸痛。 这些症状随着时间的推移而消退，但她缺乏嗅觉和味觉却没有。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月2日，据相关媒体报道，有20余名美国科学家从福奇所在的机构中获得资助，担任武汉病毒研究所的访问学者和客座讲师。而这些信息均来自于武汉病毒研究所的官方网站及年度报告。
 
-直到今天，38 岁的 Hinds 几乎闻不到任何东西，她的味觉仍然扭曲——甜的东西会留下奇怪的回味，咸的食物会让她的胃不舒服，香料会让她的嘴唇和舌头燃烧，但尝起来却什么也没有。 “这些事情会在精神上和身体上困扰你，因为它会改变你体验世界的方式，”她说。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-7.jpeg)
 
-最近的两人在墨西哥高档度假胜地附近的激烈枪战中丧生，认为牛奶很贵吗？ 它的成本可能会更高。
+这些美国学者的研究方向包括癌症、与细胞或病毒RNA结合的小分子药物、新传染病的预防和控制、RNA病毒基因组的非模板功能，以及疫苗开发的相关内容，他们也多次获得福奇所属的美国国家过敏和传染病研究所的赠款。
 
-“我们所做的没有什么值得打喷嚏的。”明尼阿波利斯的活动家在“取消资助”投票失败后展望未来“为什么我不能握住他的手？”最高法院将决定牧师在执行死刑期间可以提供什么安慰法官驳回凯尔·里滕豪斯 (Kyle Rittenhouse) 陪审员在关于雅各布布莱克拍摄的“种族”笑话“这个国家的实际情况”之后的陪审员在贫困线以下的史诗般的 6 年之旅。 认为牛奶很贵？ 它的成本可能会更高。
+评论人士称，NIH此前承认，福奇与达扎克的机构合作资助了武汉病毒研究所的“功能增强”研究，加上这些由福奇支持的美国科学家在病毒传染与疫苗开发方面和中共的深度合作，或将为新冠病毒溯源提供强有力的证据。
 
-也许最糟糕的是，Hinds 的医生说他们不知道如何治疗她。  “已经 10 个月了，”她说。  “我有点想这就是[永远]的样子。”
+参考链接: [EXC: Over 20 Fauci-Funded Researchers Have Served At the Chinese Communist-Run Wuhan Lab.](Over%2020%20Fauci-Funded%20Researchers%20Have%20Served%20At%20the%20Chinese%20Communist-Run%20Wuhan%20Lab.)
 
-COVID-19 大流行将近两年后，很多人都处于 Hinds 的位置。 嗅觉丧失不是 COVID 特有的现象——它可能由于其他病毒、神经系统疾病、吸烟、头部受伤和正常衰老等原因而发生——但这种流行病大大增加了其患病率。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-来源链接：[https://t.co/GpJsfIftJ2](https://t.co/GpJsfIftJ2)
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-编辑/发布：LILY
-
-20211105
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

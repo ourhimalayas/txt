@@ -2,44 +2,35 @@
 ---
 
 
-## 共和党参选人拒绝承认新泽西州长的选举结果
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1642193/)
+## 俄罗斯外交官被发现死在驻德使馆前
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1642230/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+新闻来源：德国明镜报网页版
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/J.jpg)diojourneyzz.blogspot.com
-昨天（11月5日）笔者发文，“新泽西州长选举共和党竞选人尚未承认失败”【1】，数小时后杰克·恰塔雷利（Jack Ciattarelli）正式宣布，“拒绝承认新泽西州州长的选举结果”，《福克斯新闻》发表了上述题目的文章，文章副标题称，墨菲（Murphy）宣布了获胜，两位候选人的差距不到一个百分点。【2】
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-全文如下：
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/96e3dde2-55f2-4e50-be01-4e8c56d2ba2b_w948_r1.778_fpx59.21_fpy49.99.jpg)Passanten gehen an der russischen Botschaft in Berlin-Mitte vorbei. Nach dem mutmaßlichen Auftragsmord an einem Georgier in Berlin gibt es eine diplomatische Krise zwischen Deutschland und Russland. Die Bundesanwaltschaft hat die Ermittlungen übernommen. Sie verfolgt den Anfangsverdacht, dass staatliche Stellen in Russland oder in der Teilrepublik Tschetschenien dahinterstecken. Die Bundesregierung wies zwei russische Diplomaten aus.
 
-新泽西州共和党州长候选人杰克·恰塔雷利拒绝承认在选举中失败，尽管媒体称现任民主党州长菲尔·墨菲（Phil Murphy）获胜。
 
-“州长昨晚的胜利演讲为时过早。” 恰塔雷利周四（11月4日）在推特上的视频消息中说，“在每一张合法选票统计完毕之前，任何人都不应宣布胜利或放弃选举。”
+图片来源：德新社
 
-墨菲宣布获胜之际，两位候选人在一场势均力敌的角逐中的差距还不到一个百分点，这是许多分析师在一个典型的蓝州没有预料到的结果。
+俄罗斯驻柏林大使馆发生不明原因死亡事件。据《明镜周刊》报道，柏林警方的财产保护人员于 10 月 19 日上午 7 点 20 分左右在柏林大使馆大楼前的人行道上发现了一具毫无生气的尸体。救援人员的复苏尝试没有成功。
 
-但恰塔雷利称，“在统计了240万张选票之后，仍有数万张邮寄选票和临时选票有待统计。”
+显然，这名男子是从柏林米特区的俄罗斯驻德大使馆大楼的楼上掉下来的。根据一份官方外交官名单，自 2019 年夏季以来，这位 35 岁的年轻人已被任命为驻柏林的第二大使馆秘书。然而，德国安全当局将他视为俄罗斯国内特勤局 FSB 的伪装雇员。
 
-剩余选票的清点过程可能会拖延数周，11月8日之前到达的选票仍有资格清点。共和党候选人还可以要求重新计票，根据新泽西州法律，如果有理由相信在该次选举的计票过程中出现错误，他必须在17天内提出申诉要求。
+据说他还与FSB第二部门的一名高级官员有关。在俄罗斯，该部门除其他外负责打击恐怖主义，并被西方情报机构与所谓的蒂尔加滕谋杀案联系起来，其中一名格鲁吉亚流亡者于 2019 年夏天在柏林在光天化日之下被枪杀。
 
-恰塔雷利在视频中说：“我不希望成为人们谈论的疯狂阴谋论或网络谣言的受害者，尽管任何可信的报告都会受到重视，但请不要相信你在网上看到或读到的一切。”
+根据明镜周刊、调查平台 Bellingcat 和 The Insider 以及美国新闻频道 CNN 的研究，FSB 第二部门的官员也参与了 2020 年夏天对俄罗斯反对派政治家阿列克谢·纳瓦尔尼的毒杀。
 
-恰塔雷利的竞选班子没有表示是否会在紧张的竞争中重新计票，而是选择在决定下一步行动之前先看看其余的选票结果如何。
+据明镜周刊消息，在外交官被发现死亡的情况下，俄罗斯大使馆不同意对尸体进行尸检。安全界人士表示，据称坠落的情况和死因“不明”。由于死者具有外交身份，检察官无法进行死亡调查。目前还不清楚是否有第三方疏忽的迹象。
 
-恰塔雷利拒绝认输的前一天，他的竞选团队说，媒体这样报道这场竞争是“不负责任的”，该州不确定还有多少选票需要统计。
+据《明镜周刊》消息，这名外交官的遗体现已转移到俄罗斯。当被问到时，俄罗斯大使馆谈到了一场“悲惨的事故”，但由于“道德原因”而没有评论。
 
-他的竞选团队说：“菲尔·墨菲和杰克·恰塔雷利在240万张选票中相差不到百分之一。当新泽西州务卿甚至都不知道还有多少张选票需要清点时，媒体这样发布消息是不负责任的。”
+类似的事件在2003年就已经引起轰动。当时，代表的搬运工从他在使馆场地的公寓坠落。
 
-（全文完）
+原文链接：[https://www.sueddeutsche.de/politik/russische-botschaft-berlin-spion-1.5457166](https://www.sueddeutsche.de/politik/russische-botschaft-berlin-spion-1.5457166)
 
-看来恰塔雷利比笔者理性多了，“我不希望成为人们谈论的疯狂阴谋论或网络谣言的受害者，尽管任何可信的报告都会受到重视，但请不要相信你在网上看到或读到的一切。”是的，利用你喜欢相信的心态，编造一些让你上当受骗的假新闻来搅乱视听，是中共之流惯用伎俩，不可不防。恰塔雷利的态度是客观的，“在每一张合法选票统计完毕之前，任何人都不应宣布胜利或放弃选举。”正如昨天笔者的观点，“我们不希望目前新泽西州长选举是被操控的结果，但是出现了质疑，就应该进入消除质疑的程序……让失利者心服口服。”
-
-有关链接：
-
-【1】[https://gnews.org/zh-hans/1639151/](https://gnews.org/zh-hans/1639151/)
-
-【2】[https://www.foxnews.com/politics/jack-caittarelli-refuses-to-concede-nj-gubernatorial-race](https://www.foxnews.com/politics/jack-caittarelli-refuses-to-concede-nj-gubernatorial-race)
+责任编辑、发布： Shuizhuyu
 
  
 
