@@ -2,35 +2,43 @@
 ---
 
 
-## 俄罗斯外交官被发现死在驻德使馆前
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1642230/)
+## 当医生“只是服从命令&#8221;时会发生什么
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1642252/)
 
-新闻来源：德国明镜报网页版
-
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/96e3dde2-55f2-4e50-be01-4e8c56d2ba2b_w948_r1.778_fpx59.21_fpy49.99.jpg)Passanten gehen an der russischen Botschaft in Berlin-Mitte vorbei. Nach dem mutmaßlichen Auftragsmord an einem Georgier in Berlin gibt es eine diplomatische Krise zwischen Deutschland und Russland. Die Bundesanwaltschaft hat die Ermittlungen übernommen. Sie verfolgt den Anfangsverdacht, dass staatliche Stellen in Russland oder in der Teilrepublik Tschetschenien dahinterstecken. Die Bundesregierung wies zwei russische Diplomaten aus.
+作者：RebelNews
+翻译：HimaFAFA
 
 
-图片来源：德新社
 
-俄罗斯驻柏林大使馆发生不明原因死亡事件。据《明镜周刊》报道，柏林警方的财产保护人员于 10 月 19 日上午 7 点 20 分左右在柏林大使馆大楼前的人行道上发现了一具毫无生气的尸体。救援人员的复苏尝试没有成功。
+在昨晚的节目伊斯拉黎凡特的秀中，伊斯拉看了约瑟夫·门格勒，卡尔·勃兰特和纳粹医生的审判——纽伦堡判决。
 
-显然，这名男子是从柏林米特区的俄罗斯驻德大使馆大楼的楼上掉下来的。根据一份官方外交官名单，自 2019 年夏季以来，这位 35 岁的年轻人已被任命为驻柏林的第二大使馆秘书。然而，德国安全当局将他视为俄罗斯国内特勤局 FSB 的伪装雇员。
+审判那些可怕的纳粹分子的法庭写下了一个代码，一系列规则，比如十诫。它有十点概述了对人类研究的医学伦理。
 
-据说他还与FSB第二部门的一名高级官员有关。在俄罗斯，该部门除其他外负责打击恐怖主义，并被西方情报机构与所谓的蒂尔加滕谋杀案联系起来，其中一名格鲁吉亚流亡者于 2019 年夏天在柏林在光天化日之下被枪杀。
+我们今天是否遵循医学的道德准则？当谈到新冠疫苗时，我们强迫人们在失去工作、职业和职位，在痛苦中接受医疗程序。这答案似乎是否定的。
 
-根据明镜周刊、调查平台 Bellingcat 和 The Insider 以及美国新闻频道 CNN 的研究，FSB 第二部门的官员也参与了 2020 年夏天对俄罗斯反对派政治家阿列克谢·纳瓦尔尼的毒杀。
+对此，伊斯拉说：
 
-据明镜周刊消息，在外交官被发现死亡的情况下，俄罗斯大使馆不同意对尸体进行尸检。安全界人士表示，据称坠落的情况和死因“不明”。由于死者具有外交身份，检察官无法进行死亡调查。目前还不清楚是否有第三方疏忽的迹象。
+你如何描述这种大规模的道德违反或它是什麽？是否我们回归了纽伦堡之前的价值观？医生做了政治家命令他们做的事情，导致死亡了。对不起，你告诉我，在过去的两年里，纳粹医生布兰特是否也会遵循以公共卫生的名义？
 
-据《明镜周刊》消息，这名外交官的遗体现已转移到俄罗斯。当被问到时，俄罗斯大使馆谈到了一场“悲惨的事故”，但由于“道德原因”而没有评论。
+來源：https://www.rebelnews.com/what\_happens\_when\_doctors\_just\_follow\_orders
 
-类似的事件在2003年就已经引起轰动。当时，代表的搬运工从他在使馆场地的公寓坠落。
+（文章仅代表作者个人观点）
 
-原文链接：[https://www.sueddeutsche.de/politik/russische-botschaft-berlin-spion-1.5457166](https://www.sueddeutsche.de/politik/russische-botschaft-berlin-spion-1.5457166)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-责任编辑、发布： Shuizhuyu
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

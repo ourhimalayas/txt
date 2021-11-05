@@ -2,43 +2,36 @@
 ---
 
 
-## 字节跳动创始人张一鸣卸任董事长
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1638224/)
+## 喜联储全面庆贺喜币上市同时美联储减少“量化宽松”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1638038/)
 
-翻译：西班牙喜悦农场–wenwu
+作者：东京樱花团｜捆绑CCP一千年
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1.jpg)据报道，字节跳动创始人张一鸣身价约为 445 亿美元。 彭博新闻
+![](https://assets.gnews.org/wp-content/uploads/2021/11/喜联储全面庆贺喜币上市同时美联储减少量化宽松.png)[*图片来源*](https://thehill.com/sites/default/files/styles/thumb_small_article/public/federalreserve_091619gn6_lead.jpg?itok=Xu4rOgZ6)
 
-据周二（2日）晚间报道，字节跳动（ByteDance Ltd.）创始人张一鸣将在[辞去](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)（5月）TikTok 的[首席执行官](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)的数月后，一并辞去字节跳动的董事长（3日）的位置。
+据《[朝日新闻](https://www.asahi.com/articles/ASPC41SHGPC4UHBI002.html)》11月3日消息称：美联储理事会（FRB）决定这个月开始减少 “量化宽松” 政策，这意味着美联储（央行）减少购买国债规模，“收紧”货币政策行动的开始。这是从大流行导致大萧条以来应对疫情下的经济危机所做出经济正常化努力道路上的第一步。
 
-[彭博新闻](https://www.bloomberg.com/news/articles/2021-11-03/bytedance-s-zhang-exits-board-joining-exodus-by-tech-founders?srnd=technology-vp&amp;sref=Oeyjq8by)和[路透社](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)援引熟悉此事的消息人士的话[报道](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)称，字节跳动的首席执行官 Liang Rubo 将接替张先生担任董事长。
+从去年3月出台的应对COVID19病毒危机的“紧急”货币政策来看，美国将在经济复苏的背景下迈出正常化努力的第一步。这意味着经济水平调整到一定“通缩”的程度。“美联储已将基准利率区间下调至 0 至 0.25%”。[**阅读更多**](https://thehill.com/policy/finance/economy/579879-federal-reserve-announces-tapering-of-bond-purchases)
 
-周二早些时候，字节跳动宣布了一项将公司重组为六个业务部门的计划。作为重组的一部分，《华尔街日报》报道称，字节跳动[首席财务官](https://www.wsj.com/articles/bytedance-cfo-is-stepping-down-to-focus-on-tiktok-11635885543?mod=Searchresults_pos1&amp;page=1&amp;mod=article_inline) Shou Zi Chew 将卸任，专注于他作为 TikTok 首席执行官的角色。
+- ***延展阅读：***[***量化宽松副作用显现 美联储年内缩减购债可期***](http://www.xinhuanet.com/2021-08/19/c_1127777139.htm)
 
-随着中共国政府[收紧对互联网公司的控制](https://www.marketwatch.com/story/chinas-communist-party-exerting-tighter-control-over-the-countrys-internet-giants-01633320070?mod=article_inline)，38 岁的张是最近一位离开他们创立的公司的中共国亿万富翁。拼多多公司[PDD， +0.12%](https://www.marketwatch.com/investing/stock/PDD?mod=MW_story_quote)的创始人兼董事长 Colin Huang于 [3月](https://www.marketwatch.com/story/pinduoduo-founder-colin-huang-steps-down-from-company-11615997079?mod=article_inline)退出该公司；京东商城[JD， +0.82%](https://www.marketwatch.com/investing/stock/JD?mod=MW_story_quote)的创始人兼董事长刘强东于9月份退出[了公司的](https://www.marketwatch.com/articles/jd-com-says-founder-stepping-back-from-day-to-day-running-of-the-business-51630941420?mod=article_inline)日常管理；快手科技（Kuaishou Technology）联合创始人兼首席执行官 Su Hua 于[上周同样退出了公司](https://www.wsj.com/articles/chinese-video-platform-kuaishou-says-ceo-steps-down-11635529476?mod=article_inline)。
 
-总部位于北京的字节跳动成立于 2012 年，其热门应用 TikTok 每月拥有近 7 亿用户。截至上一轮融资时，私人持有的字节跳动估值为 1400 亿美元，但 [据彭博社报道](https://www.bloomberg.com/news/articles/2021-03-30/bytedance-is-said-valued-at-250-billion-in-private-trades?sref=Oeyjq8by) ，今年早些时候私有估值约为 2500 亿美元。
+该消息指出，联邦公开市场委员会（FOMC）3日决定放慢购买国债步伐，计划从 11 月开始，从购买美国国债等资产共计1200亿美元（约14万亿日元）中每月减少 150 亿美元的购买，并在 2022 年中期停止美联储的资产扩张。之后，将通过“取消零利率”（加息）进入全面常态化。
 
-彭博亿万富翁指数将张先生列为[全球第 31 位最富有的人，](https://www.bloomberg.com/billionaires/profiles/yiming-zhang/?sref=Oeyjq8by)财富价值约为 445 亿美元。
+- ***延展阅读：***[***美联储旧金山报告显示：乔·拜登的1.9万亿救援计划正在加剧通货膨胀***](https://www.cnn.com/2021/10/19/economy/inflation-biden-stimulus/index.html)
 
-**简评：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1-1.jpg)图片来源于[禁文网](https://www.bannedbook.org/bnews/bannedvideo/20210908/1620501.html)
+在病毒大流行导致严重的供应链中断的冲突下，某些行业价格上涨如（租金上涨）的时间比央行官员预期的要长，以及工资压力和工人严重短缺的矛盾加剧，引发了人们对长时期通胀预期的担忧。但美国此时宣布从大流行中复苏是否为时尚早？
 
-**据2021年11月3日《DESCARGITAS》报道，中共国政府将越来越关注富有的科技企业家，许多亿万富翁积累了权力，并影响了威权。**
+在全球经济危机仍不确定的情势下，[喜马拉雅联储](https://himalaya.exchange/)发行的数字加密货币喜币（H Coin）于美国11月1日晚间时间上市，这将给全球经济如何走出困境提供了一个可以避险的稳定的货币工具。
 
-**阿里巴巴的联合创始人马云一直是被镇压的主要受害者，最近飞离中共国到西班牙度假。自从习近平主席去年阻止了他的在线金融平台蚂蚁金服集团的上市计划后，马云就限制了公开露面（此举曾发生在毛泽东时代）；外国科技公司与雅虎一起退出中共国，本周宣布“由于商业和法律环境变得越来越具有挑战性，离开中共国。”随着新的《数据保护法》于周一（1日）在中共国生效，恰好是雅虎退出中共国的时间，法律规定了私人公司收集个人信息的条件，并制定了如何使用这些信息的规则。**
+喜币的三大优势无人可以忽视，正如它的创立者[**郭文贵先生所言**](https://app.gettr.com/streaming/pfthc26264)：1，在西方世界金融机构认可。2，喜币所有区块链技术是世界上最好的。3，区块链技术和有中心化的负责是（财富）最安全的。（2:33:58时段）
 
-**最后，向同胞们呼吁不要打疫苗，并且加入新中国联邦大家庭；从喜币上市可见，新中国联邦的实力是实实在在的。**
+2021年11月4日
 
-新闻来源：[marketwatch.com] [ByteDance founder Zhang Yiming steps down as chairman: reports](https://www.marketwatch.com/story/bytedance-founder-zhang-yiming-steps-down-as-chairman-reports-11635909977) | 发布时间：2021年11月2日
-
-* * *
-
-*发稿：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
-
+*编辑：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
