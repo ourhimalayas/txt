@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gfashion 11/5/2021 5:52 PM (UTC)`
+
+Starts with a Vision...
+![img](https://media.gettr.com/group32/origin/2021/11/05/17/ad49129f-2c28-b862-7041-4915e7c27d1d/c9e77c9c635454a423ffd28b6243fe07.jpeg)
+
+---
+
 `@miles 11/5/2021 12:04 PM (UTC)`
 
 2021年11月5日 文贵大直播：香港股市跌动与糟糕的中共经济；维洲共和党赢与台湾及爆料革命；张高丽玩弄女性与高层政治事件；喜联储独立法人商业运作与我们
@@ -287,13 +296,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 11/1/2021 【HCoin To the Moon Celebration】Never forget to be kind, be honest, and distinguish evil and good with “Only truth prevails” <br/><br/>11/1/2021 【HCoin to The Moon庆典】永远记住：真诚、善待一切、唯真不破, 分辨善恶。
 ![img](https://media.gettr.com/group45/getter/2021/11/02/10/51/28d62348-fcde-47b1-1726-dcf7455c94a7/out.jpg)
-
----
-
-`@miles 11/2/2021 10:31 AM (UTC)`
-
-2021年11月2日: 法治基金,法治社会每周捐款留言精选集<br/>法治基金, 法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>2nd of November, 2021 Weekly Rule of Law Foundation and Society donors messages collection <br/>The Rule of Law Foundation and Society team heartfully thank all of our supporters and donors！
-![img](https://media.gettr.com/group8/getter/2021/11/02/10/31/36cc78f1-c0a4-fd97-69a1-d0cc76dc6a25/out.jpg)
 
 ---
 
