@@ -2,67 +2,60 @@
 ---
 
 
-## 邮件显示：CDC更改了“疫苗”的定义
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1642237/)
+## 拥有了喜币就拥有了铸币权！喜币与股票的本质区别！
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1642324/)
 
-编译： Jenny Ball
+你买的喜币叫Himalaya Exchange，严格讲就叫喜联储，你买的是喜联储。你买的是铸币权和币，你买的是钱和造钱的权力，你别忘了，这个不是币，你买的是Himalaya Exchange，它是造币权和钱。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-77.png)图片来源： theepochtimes.com
+You are buying HCoin (HCN) from the Himalaya Exchange, strictly speaking, it is from the Himalaya Reserve, you are actually buying into the Himalaya Reserve. What you bought is not only currencies, but also the right of issuing currencies. Please remember, this is not limited to currencies, you are buying into the Himalaya Exchange, which includes currencies and the right to issue currencies.
 
-在佐治亚州亚特兰大市的档案照片中可以看到疾病控制和预防中心的总部。（塔米查普尔/路透社）
+啥叫股票呢？股票是公司的一个盈利的一个希望，它能流通吗？它能买鸡蛋吗？它能买衣服吗？它能再决定多印刷吗？——不可能！它是有限的一个范围内的一个承诺，你看得是长期的它的盈利和财务，它不能流通、不能交易。
 
-根据新发布的内部电子邮件，疾病控制与预防中心 ([CDC](https://www.theepochtimes.com/t-cdc))[更改了“疫苗”的定义](https://www.theepochtimes.com/cdc-changes-definition-of-vaccine-so-it-cant-be-interpreted-to-mean-that-vaccines-are-100-effective_3990135.html)，因为担心原定义不适用于 COVID-19 疫苗。
+What then are stocks? Stocks represent the expectation that a company will be profitable. Can it be used in circulation? Can it be used to buy eggs? Can it be used to buy clothing? Can you print it out like currencies? Impossible! Stocks represent a promise within certain limitations. Its long-term financial value is based on future profitability. Stocks cannot be used in circulation for buying and selling purposes.
 
-疫苗的定义以前是：**“**一种产品，可以刺激人的免疫系统对特定疾病产生免疫力，从而保护人免受该疾病的侵害。**” **该定义现在改为：**“**一种用于刺激人体对疾病的免疫反应的制剂。**”**
+你买的喜币你可以去买G-Fashion，你可以买飞飞的兜兜，可以买爱米粒的上次脱的衣裳，你可以买好海东先生签过字的球、叶钊颖的球——什么都可以买！无限的大，它有。
 
-你可能也会喜欢下面内容：
+The HCN you own can be used to buy products from G-Fashion. You can buy Feifei’s purse, you can buy Emily’s jacket, you can buy the soccer ball signed by Mr. Hao, also the badminton birdie from Mrs. Ye. You can buy almost anything! The possibility is unlimited since it (HCN) is used for trading purposes.
 
-- 《大纪元TV》评论：COVID-19 疫苗——弊大于利？
-- 在重新分析 CDC 研究后，研究人员呼吁停止为孕妇接种 COVID-19 疫苗
+还有你买的Exchange是交易，它是铸币权！股票跟它一比，流通VS非流通，所以它的权力是什么，它被批准了100年1000个亿的币，你不能改，你改了就不行，刚才就我告诉你，所以衡量Himalaya的所有的价格都是以1000亿个币结算，你当然不能按10亿币计算了。
+
+Moreover you are buying into the Exchange and its right of issuing currencies! Compared to stocks, the HCN is used in circulation. It has a set of rules. The Himalaya Exchange is approved to issue 100 billion coins over the next 100 years. It cannot be altered as I mentioned previously. Therefore if you want to evaluate the Himalaya Reserve, it has to be based on 100 billion coins vs 1 billion coins.
+
+你现在比如说Elon Musk的股票，我现在就是多少股，你可以你再增发你都是这个股都在那搁着呢，你不可能说我卖完了，我现在Tesla我有1000亿股，我现在实际我有10000亿股，你不可以，你的增发是在你的股票的基础上来的，你是一个鸡蛋掰碎了给大家分去。这个币可不是的，第一天就决定你有多大，你只有1000亿个，个数是不可以改变的。
+
+For example let’s take a look of Elon Musk’s stocks. The value of the newly issued stocks are based on the value of the existing ones. When new stocks are issued, it is as if the cake has been sliced into smaller pieces meanwhile the size of the cake is unchanged. However it is a different scenario when it comes to HCN, the quantity is determined in day one, since the number of HCN is limited to 100 billion, and this number cannot be changed.
+
+还有一个，你买的喜联储是铸币权呐，兄弟呀，它不是光是……，你买的是钱和印钱的权力，哇塞，这大了去了，而且它全流通，而且无国界，Elon Musk的股票可以到中国买吗？Elon Musk的股票在北朝鲜你可以买吗？现在最垂涎喜币的绝对不是你我，也不是共产党，一定是北朝鲜，一定是伊朗、俄罗斯。越闭塞的地方越想要这个，因为它是保值的，绝对保值。
+
+Another matter is that you are buying into the Himalaya Reserve with its right to issue currencies. You are indeed buying both the currencies and the right to issue currencies. This is huge because HCN is used in circulation beyond the borders of nations. Can you buy Elon Musk’s stocks in China? Can you buy his stocks in North Korea? At this moment the people who desperately want to own HCN are not you and me, neither is the CCP. They are the groups in North Korea, Iran and Russia. The more isolated a regime is, the more it wants to own HCN, all because it (HCN) can maintain its value.
+ 
+说完这的时候，所以我说你没说清楚吧，所以今天我要政清哥来好啊，我要当众虐待你。你赚那么多钱你不跟我分，我不虐待你才怪了。我让你要知道，年轻人你要搞明白，你是喜马拉雅的希望，你必须成为大家，而且在大家成长中长大，研究它的本质。
+
+After saying this, I am glad that our guest Zhengqing is here. Since you have made a fortune, let me challenge you. I will make it clear that you and other young people are the hopes of our Himalaya System, you have to grow with everyone and understand its essence.
+
+还有一个大家告诉的，一块钱升值意味着什么，一块钱乘以1000亿那就是1000亿，1000亿个，你乘以10亿个就是10亿，你看它动每一点儿的时候，它不是股票的跌幅。所有喜币的跌幅升下都会被列为未来喜币在任何抵押下的所有证据财务，股票不会的，股票现在我评估你多少钱就多少钱，但是喜币不是的，它是真钱的交易过后我认可的币，我卖你跌下来不等于说我就是这币就没了。
+
+Let me say this to everyone, what does it mean when HCN increases its value by one dollar? One dollar multiplied by 100 billion is $100 billion. One dollar multiplied by 1 billion is $1 billion. Even it only moves a little bit, it is unlike the changes in the stock market. All the changes in value that the HCN has made today will have an impact on the future financial matters, including when it is used as collaterals. Stocks are different, the value of stocks are the same as its valuation today. However the HCN is different, it is a recognized currency after being used in real circulation, even if the value decreases, the HCN is still there.  
+
+别忘了，我郝海东现在我拥有十万个币，你现在跌到三块钱了，我拿的我10万个币我还是10万个币，你涨1000块钱，我10万个币还是10万个币，为什么？它是个币的属性，因为是以个数决定的，Elon Musk的股票很厉害，你拿着10万股，郝海东先生，我不关心你10万股是10万还是100万，你这个10万值多少钱，你是被币来衡量的，10万股现在涨了1000块钱一股了——100万，涨一块钱了，那就是10万块钱，我不管你多少股。
+
+Don’t forget about this, If I have 100 thousand HCN, when each coin is worth $3, I still have 100 thousand coins, when it appreciates to $1000/coin, my 100 thousand coins are still there. Why? Such is the intrinsic characteristic of a coin, since its value is determined by the number of coins.  If you have 100 thousand shares of Elon Musk’s stocks, it doesn’t matter whether its value is $100 thousand or $1 million, since these 100 thousand shares are valued by coins. If each share has increased to $1000, it will result in a total value of $100 million, if each share increases by $1, you will have gained $100 thousand, doesn’t matter how many shares you actually have.
+
+但对于拥有币的人来讲，我不管你多少价我都有10万币，因为我这个10万币不是根据价格的起伏的，我的10万币有20%的黄金在这搁着呢——储备。我随时可以变成喜美元，你告诉我Elon Musk的股票能马上可以变成美元吗？你要抛吧，还有个你没了以后谁给你20%啊，没有的！他没有锚定、没有基础。
+
+However when it comes to the person who owns 100 thousand HCN, it doesn’t matter what value the coins have, he always owns 100 thousand HCN, since the value of the 100 HCN doesn’t fluctuate given it is pegged to gold equalling 20% of its value as a reserve. I can convert it to US dollars anytime. How can you convert Elon Musk’s stocks to US dollars at will? Also if the stocks one day have no value, who is going to give you the 20% value like the HCN has. The stocks are not pegged to anything therefore lack a foundation.
+
+这是币和股票，股票是希望，币是真金白银，币可以全球流通无障碍。股票只在股票市场某种范围内。不是鸡和蛋，刚才战友说是鸡和蛋，不是鸡和蛋的问题，是真真正正的它是一个无限大的一个摸得着的，它是一个印钞的一个机器。
+
+This is the difference between stocks and HCN. The stocks represents a hope and the HCN is equivalent to real gold and silver, which can be used freely around the globe. The stocks are limited to only the stock market. It is not a question of chicken and egg, the HCN system is an unlimited yet tangible system, a system that can issue currencies.
 
 
-- 第 2 部分：亚伦·凯里亚蒂（Aaron Kheriaty ）博士关于“生物安全监测”、不正当的疫苗激励措施，以及对儿童进行 COVID-19 疫苗的测试
-- CDC：两种疫苗的免疫力，COVID-19 至少持续 6 个月
+你那个是被机器被钞票要买的一个希望而已，而且随时可以不存在。它是有价值的，它是无价值的。兄弟，你们搞明白的时候，今天你们记住，你买的是钱，你买的不是希望。那个是股票是希望，所以今天喜联储的上市牛就牛在这儿，你谁都操作不了，它是24小时在线。
 
+The hope (stocks) that you have is valued by the currencies, and its value can disappear anytime. The stocks have a price, and the HCN system is priceless. Brothers, please remember that you are buying currencies instead of hopes. The stocks represent hopes. That is why the IPO of the Himalaya Reserve today is very significant, it cannot be interfered by anyone, and it is online 24-7.
 
-- 流行病学家表示，针对儿童的 COVID-19 疫苗强制令“令人担忧”
-- CDC 建议 5 至 11 岁的儿童接种辉瑞 (Pfizer) 的 COVID-19 疫苗
+**（文章内容仅代表新西兰-财经G乐部节目观点）**
 
-
-根据新发布的电子邮件，在 8 月份，在定义更改前不久，CDC 的一名员工表示，“右翼 COVID-19 大流行否认者会……使用该定义来论证**mRNA **疫苗不是疫苗”。
-
-辉瑞和莫德纳的COVID-19 疫苗利用了信使RNA（mRNA）技术。在最初被宣传为预防感染和严重疾病的疫苗之后，在美国获准使用的所有三种 COVID-19 疫苗后，接种这些疫苗几个月后，其抗感染效果均大幅下降。
-
-CDC 员工说，按照原定义“现有的 COVID-19 疫苗就不是疫苗，因为它们只能预防严重症状”。
-
-该机构的首席健康传播专家艾莉西亚·唐斯（Alycia Downs ）于 8 月 19 日给一位同事发了消息，说她需要更新定义和其他类似的定义，“因为这些定义已经过时，并且被一些人用来说 COVID-19 疫苗是不是根据 CDC 自己定义的疫苗。”
-
-唐斯没有得到回应，所以她在接下来的一周再次发消息。
-
-“我们发布的疫苗定义是有问题的，人们用它来谴责**COVID-19 **疫苗不是基于我们自己定义的疫苗，”她写道。
-
-另一位 CDC 官员瓦莱丽·莫雷利 (Valerie Morelli) 于**9 **月**1 **日批准了这一更改，尽管它似乎与她在早先的文件中提出的定义大相径庭。
-
-莫雷利写道：“如果这是针对普通大众的，我很乐意做出改变。”
-
-这些电子邮件是由律师特拉维斯·米勒（Travis Miller）通过信息自由法的要求获得的。 CDC 没有质疑它们的真实性。
-
-取而代之的是，该机构通过电子邮件向《大纪元时报》发送了与 2021 年早些时候询问这一变化时收到的相同回复。该机构表示，定义的**“**措辞略有变化**”“**并未影响整体定义**”**，并且之前的定义“可以解释为疫苗是 100% 有效的，而任何疫苗都不是这种情况。因此当前的定义更加透明，并且还描述了接种疫苗的方式。”
-
-CDC 网站的其他部分仍然说 COVID-19 疫苗具有免疫力。
-
-该网站写道：“接种疫苗后，身体通常需要 2 周时间才能对导致 COVID-19 的病毒建立保护（免疫力）。”
-
-**评论：CDC已经彻底没有道德底线了，他们对疫苗定义做了根本性改变，从防御病毒变成了防止病毒的严重症状，这要多么无耻！同时也佐证：CDC强制的Covid疫苗根本没有防御Covid病毒的作用！但却在光天化日之下继续撒谎，在“CDC 网站的其他部分仍然说 COVID-19 疫苗具有免疫力”。难道我们老百姓像CDC以为的那么无知？**
-
-**新闻来源**：[theepochtimes.com] [CDC Changed Definition of ‘Vaccine’ Because of COVID-19 Vaccines: Emails](https://www.theepochtimes.com/cdc-changed-definition-of-vaccine-because-of-covid-19-vaccines-emails_4083638.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-11-04)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

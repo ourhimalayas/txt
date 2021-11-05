@@ -2,46 +2,39 @@
 ---
 
 
-## 中共当局敦促人们在可能出现短缺的情况下囤积粮食
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1642411/)
+## 蔡英文首次公开承认美国驻军台湾
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1642500/)
 
-编译：蚂蚁兄弟
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Hong-Kong-mercado-verduras-getty.jpg)Imagen: Getty
-据“经济专家报”报道，面对“气象现象”和“冠状病毒爆发的可能”等理由造成的食品短缺，中共国政府周二敦促公众储备食品和他们可能需要的任何其他产品，以备不时之需。
+**视频翻译：Lish
+校对/编辑：枳实
+剪辑/字幕：蛮吉**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image1-1.png)
+台湾对中共国投下重磅炸弹，揭秘美国在台湾的驻军情况。
 
-在一份声明中，商务部敦促不要对此类报告“反应过度”，但敦促公众谨慎行事，以免“在他们居住的地区发生禁闭时措手不及”。
+美国和中共国之间事态的重大升级。台湾透露，在与中国的紧张关系下，美国部队正在训练其士兵。台湾总统蔡英文称岛上有少量美军，台湾表示希望美国在面对中共国的任何攻击时能保卫该岛。
 
-该部的指令是在蔬菜价格上涨引起民众对可能的供应削减的担忧后发出的。
+为什么美军会在台湾？
 
-最近几周，中国的蔬菜价格飙升，造成了几个月前无法想象的局面：一些蔬菜已经比肉贵了。据报道，餐馆和商店利用冰柜和冰箱囤积了大量的蔬菜。这种现象对于已经受到能源短缺和严格控制病毒措施影响的消费者来说是一个新的让人头痛的问题。
+“在台湾有少量的美军，帮助训练，我们与美国广泛的合作，旨在提高我们的国防能力。”
 
-商务部的最新数据显示，蔬菜批发价格在过去四周飙升了28%，现在处于2月以来的最高水平。今年主要种植区的暴雨使农作物受损，而煤炭价格上涨也使温室农业更加昂贵。
+“我有信心，如果有必要，美国会帮助保卫台湾，对抗中共国。”
 
-与此同时，《人民日报》发布了一条“令人欣慰”的信息，称政府通常每年都会发布类似的指令，不过鉴于自然灾害的普遍性和病毒的传播，今年已经“提前”了。
+——台湾总统蔡英文接受CNN采访
 
-政府还敦促地方政府“做好工作”，确保供应链和价格维持稳定。冠状病毒大流行促使政府增加了对食品的关注，并制定了一系列食品安全法。
+关于目前在台湾的美军人数，没有得到证实。蔡英文的讲话是1979年以来台湾领导人首次公开承认美国的驻军。继台湾总统的此番重磅炸弹后，中共国指责美国试图 “挑起事端”。
 
-“该指令呼吁地方当局支持产品的流动，与蔬菜、大米和石油等生产商建立合作关系。那些可以持续的产品应该及时供应和储存”政府坚持说。
+在中共国从空中侵扰台湾后，美国和中共国之间的紧张关系最近几周有所加剧。美国总统拜登最近誓言支持台湾反抗任何中共国的侵略行为。美国还呼吁让台湾加入联合国。
 
-**简评：**
+视频来源：[Taiwan drops bombshell on China as U.S troops train Taiwanese army amid tensions with Beijing](https://www.youtube.com/watch?v=-bW1URV6rgs)
 
-**中共国的粮食主要依靠进口。“以不足10%的耕地养活了世界20%以上的人口”，这是中共传播给中国百姓的彻头彻尾的谎言。**
+发布：Janek
 
-**中共政府的“战狼外交”政策及外汇储备的枯竭，已经让中共国很难再大量进口粮食到国内。加之国内各种能源价格的几次上涨，已经让粮食蔬菜等的运输成本大幅攀升。**
-
-**缺粮显然已经成了中共国内不争的事实。然而，中共政府依旧利用“天灾”为借口，把缺粮推给“老天”。“以备不时之需”的警告，无疑是要找一个“自己没有准备好”的借口，之后把即将发生的饥荒责任，推给百姓。**
-
-**参考资料：**[eleconomista.es][China insta a la población a hacer acopio de alimentos ante una posible escasez](https://www.eleconomista.es/economia/noticias/11461128/11/21/El-Gobierno-chino-insta-a-la-poblacion-a-hacer-acopio-de-alimentos-de-cara-al-invierno-ante-una-posible-escasez.html)
-
-* * *
-
-*审核：Aries的星*
-*校对：阿伯塔*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
-
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

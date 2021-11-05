@@ -2,35 +2,49 @@
 ---
 
 
-## 俄罗斯外交官被发现死在驻德使馆前
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1642230/)
+## 维多利亚出版商可能在货轮起火事件中丢失了数千本儿童读物
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1642294/)
 
-新闻来源：德国明镜报网页版
+作者：Yvonne Raymond
+翻译: HimaFAFA
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2021/11/ship.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/96e3dde2-55f2-4e50-be01-4e8c56d2ba2b_w948_r1.778_fpx59.21_fpy49.99.jpg)Passanten gehen an der russischen Botschaft in Berlin-Mitte vorbei. Nach dem mutmaßlichen Auftragsmord an einem Georgier in Berlin gibt es eine diplomatische Krise zwischen Deutschland und Russland. Die Bundesanwaltschaft hat die Ermittlungen übernommen. Sie verfolgt den Anfangsverdacht, dass staatliche Stellen in Russland oder in der Teilrepublik Tschetschenien dahinterstecken. Die Bundesregierung wies zwei russische Diplomaten aus.
+一家位于加拿大维多利亚的出版公司担心在三叶草点附近的一艘运输船上发生火灾后，其能否满足节前订单。
 
+自 10 月下旬以来，MV 吉英金斯顿公司在海上发生两次重大故障后一直停泊在该地区。许多集装箱在船上着火，在此之前，有109 个集装箱在风暴中被抛入大海。
 
-图片来源：德新社
+欧尔卡图书出版商表示，他们了解到船上有 15,000 本书，现在正在等待了解它们的状态。
 
-俄罗斯驻柏林大使馆发生不明原因死亡事件。据《明镜周刊》报道，柏林警方的财产保护人员于 10 月 19 日上午 7 点 20 分左右在柏林大使馆大楼前的人行道上发现了一具毫无生气的尸体。救援人员的复苏尝试没有成功。
+出版商在一份新闻稿中说：“尚不清楚这些书籍是在火灾中被毁、在水中丢失还是仍在船上并可能在未来被卸下。”
 
-显然，这名男子是从柏林米特区的俄罗斯驻德大使馆大楼的楼上掉下来的。根据一份官方外交官名单，自 2019 年夏季以来，这位 35 岁的年轻人已被任命为驻柏林的第二大使馆秘书。然而，德国安全当局将他视为俄罗斯国内特勤局 FSB 的伪装雇员。
+至少，这家独立企业表示，其五本儿童读物的发行将被推迟，其中四本是由维多利亚作家撰写的。
 
-据说他还与FSB第二部门的一名高级官员有关。在俄罗斯，该部门除其他外负责打击恐怖主义，并被西方情报机构与所谓的蒂尔加滕谋杀案联系起来，其中一名格鲁吉亚流亡者于 2019 年夏天在柏林在光天化日之下被枪杀。
+该公司的声明没有提供有关哪些产品受到影响的信息。
 
-根据明镜周刊、调查平台 Bellingcat 和 The Insider 以及美国新闻频道 CNN 的研究，FSB 第二部门的官员也参与了 2020 年夏天对俄罗斯反对派政治家阿列克谢·纳瓦尔尼的毒杀。
+欧尔卡补充说：“这是在全球供应链已经面临严重延误的情况下发生的，这对加拿大出版商来说又是一项挑战，他们的打印机和纸张的使用也受到大流行的严重影响。”
 
-据明镜周刊消息，在外交官被发现死亡的情况下，俄罗斯大使馆不同意对尸体进行尸检。安全界人士表示，据称坠落的情况和死因“不明”。由于死者具有外交身份，检察官无法进行死亡调查。目前还不清楚是否有第三方疏忽的迹象。
+出版商安德鲁·伍尔里奇表示，欧尔卡正在将更多的印刷品移回加拿大，而不是与海外印刷商合作。该决定是今年早些时候做出的。
 
-据《明镜周刊》消息，这名外交官的遗体现已转移到俄罗斯。当被问到时，俄罗斯大使馆谈到了一场“悲惨的事故”，但由于“道德原因”而没有评论。
+來源：[https://vancouverisland.ctvnews.ca/victoria-publisher-may-have-lost-thousands-of-kids-books-amid-mv-zim-kingston-fire-1.5653892](https://vancouverisland.ctvnews.ca/victoria-publisher-may-have-lost-thousands-of-kids-books-amid-mv-zim-kingston-fire-1.5653892)
 
-类似的事件在2003年就已经引起轰动。当时，代表的搬运工从他在使馆场地的公寓坠落。
+（文章仅代表作者个人观点）
 
-原文链接：[https://www.sueddeutsche.de/politik/russische-botschaft-berlin-spion-1.5457166](https://www.sueddeutsche.de/politik/russische-botschaft-berlin-spion-1.5457166)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-责任编辑、发布： Shuizhuyu
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

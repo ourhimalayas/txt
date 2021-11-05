@@ -2,62 +2,80 @@
 ---
 
 
-## 病毒不是目的，病毒是手段，疫苗是真正的这场灾难的目的
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1642276/)
+## [重点推荐]Newsmax记者Robinson因触及疫苗背后可怕的故事被停职
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1642455/)
 
-我可以负责任地告诉大家，你再看我一周前、两周前、三周前，所有的疫苗说过的事情：病毒不是目的，病毒是手段，疫苗是真正的这场灾难的目的。
+温哥华扬帆农场  Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/emerald-robinson-.jpg)
+图片来源：newsmax.com
 
-I am fully responsible for what I am about to say. Please consider what I said in the past three weeks about the vaccine: The virus is only an instrument, the delivery of the vaccine is the final goal of this disaster.
+疫苗既不能预防中共CCP病毒感染，也不能减少死亡，疫苗对人体免疫系统产生巨大伤害，疫苗后遗症，大量注射疫苗人群出现疫苗严重的副作用。疫苗的背后究竟隐藏着多少阴谋，这是人类需要得到答案。
 
-七哥2020年1月2号、2020年2月2号我都在直播中说过，这场灾难共产党所有的这个所谓的病毒绝对就是生化病毒。
+然而，中共CCP病毒究竟从哪里来，它究竟想干什么，没有人去追究。中共CCP病毒疫苗里面是否含有有毒物质、生物发光标记物、氧化石墨烯、其它神经控制纳米微电子材料，背后究竟隐藏着多少可怕的故事。当人们开始触及，就是面对结束的时候。
 
-I have mentioned this in the broadcasts on Jan 2 and Feb 2, 2020 that this so called virus from the CCP is actually a biological weapon.
+美国媒体Newsmax对待自己的记者Emerald Robinson的态度，实在另人痛心！
 
-我再重申：来自中国共产党的生化病毒，不是中国人的，是（共产党）有意识的长期的积累，这是1969年、1970年在美国已经研发成熟的冠状病毒生化武器，后来被共产党蓝金黄美国，由在美国学习和美国有人出卖美国技术给了中共。
+就在三天前，也就是2021年11月2日，拥有43.8万粉丝的Newsmax 驻白宫记者Emerald Robinson推文称，“疫苗含有一种称为荧光素酶的生物发光标记物，以便您可以被追踪”。（Dear Christians: the vaccines contain a bioluminescent marker called LUCIFERASE so that you can be tracked. Read the last book of the New Testament to see how this end.）
 
-Let me repeat myself: This weapon-grade virus from the CCP is not from the Chinese people, instead it is the result of a long-term deliberate plan of the CCP. The technology to weaponize corona viruses was already mature in the US in the late 1960s. It was later acquired by the CCP by infiltrating the scholars and relevant personnel in the US.
+该推文被认为是Emerald Robinson又一次揭露中共CCP病毒起源、疫苗含有生物发光标记物、氧化石墨烯及可以控制人类神经活动的“大重启”。几个小时后，Emerald Robinson被Newsmax停职，推特账号被锁定。
 
-中共把它尝试要用在香港运动和美国到武汉的军人运动会上，就是要释放病毒。而且释放病毒要停止香港运动，对打台湾制造国际恐怖，有计划地进行它的全人类的和黑暗势力统治人类的整个计划。
+Newsmax执行副总裁兼首席内容官 Elliot Jacobson也被迫发表声明：“Newsmax 强烈支持中共CCP病毒疫苗总体上是安全有效的，宣称没有看到任何证据表明荧光素酶或荧光素存在于任何疫苗中，或者它们被用作任何种类的生物发光标记物。（原文：Newsmax is a strong proponent that Covid 19 vaccines are overarchingly safe and effective. while at the same time raising concerns that mandates infringe on personal liberty and privacy. We have seen no evidence to suggest LUCIFERASE or LUCIFERIN are present in any vaccines or that they are used as any sort bioluminescent marker）。
 
-The CCP tried to use the Covid-19 virus on the freedom fighters in Hong Kong, and the US participants of the World Military Games in Wuhan. The CCP aimed to suppress the demonstration in Hong Kong and threaten the whole world in preparation of the attack of Taiwan. It is a part of a plan to enslave the whole human race in collaboration with the dark force of the world.
+Newsmax的母公司Newsmax Media也不得不向所有订阅用户发送澄清信：“Newsmax 坚信并报道了 Covid 19（中共CCP病毒）疫苗是安全有效的。我们不相信这些疫苗含有任何有毒物质或追踪标记，而且 Newsmax 从未报道过此类虚假声明。出现在 Newsmax 上的许多医学专家都支持使用该疫苗“。（原文：Newsmax strongly believes and has reported that the Covid 19 vaccines are safe and effective. We do not believe the vaccines contain any toxic materials or tracking markers, and such false claims have never been reported on Newsmax. The many medical experts appearing on Newsmax have supported the use of the vaccine.）
 
-病毒制造恐慌、死亡、经济萎软，然后把供应链全部打断，同时把世界上金融家希望的所有的养老基金不能兑现的、挪用的，（让）全部老人死掉。金融界认为多余的、还不了的债然后全都不用还。
+在完整看完Emerald Robinson的[Covid19 – The Spartacus Letter](https://www.theautomaticearth.com/2021/09/spartacus/)公开信后，笔者不由对她由衷的尊敬。
 
-The virus will cause panic, death and a recession of the economy. It will break down the supply chains. At the same time it will kill most of the seniors around the world so that they will have no claim of their pension investments, which have been stolen by the elites in the financial market. The debts that cannot be repaid in the global financial system are therefore forgiven.
+正如她的签名 “与黑暗势力的枉然努力划清界限，并且将其揭示给天下。”（Have nothing to do with the fruitless deeds of darkness, but rather expose them.） 一样，Emerald Robinson是一位彻底的保守主义者。
 
-全世界的政治格局由于黑暗势力和他们之间的合作，只认可他们能同流合污、共同上过床、共同扛过枪、未来还能共同嫖娼的这些所谓政客。
+2021年9月28日，Emerald Robinson发文《[America’s Elections Are Rigged (And Everybody Knows It)](https://emeralddb3.substack.com/p/americas-elections-are-rigged-and)》，揭露美国的选举是被操纵的，亚利桑那审计只是最新的例子。在9月28日的文章中，Emerald Robinson质疑，美国总统选举，为什么7个州800个县的7800万张美国选票被送到海外，由一家在2020年选举前3年就已经破产了的西班牙巴塞罗那的SCYTL公司来“处理”？SCYTL在瑞士建立了一个投票系统，但在瑞士当局于2019年启动公开代码审查后，研究人员发现了源代码中的错误，允许系统的操作者在不被发现的情况下可以随意改变投票。
 
-The grim political outlook of the world is a result of the collusion between the dark force and these corrupt politicians. They all have common evil practices and hope it will continue in the future.
+今年5月，在白宫新闻发布会上，Emerald Robinson向Paski询问了美国国立卫生研究院(the National Institutes of Health)和武汉病毒研究所之间的资助关系、病毒从实验室泄漏的可能性，以及拜登总统是否就冠状病毒(中共CCP病毒)的起源向中共国国家主席习近平施压。Paski的回答居然是：“I’m sorry, Emerald. I think you’ve had plenty of time today. “
 
-那么这些统治是什么呢？首先是辉瑞制药、中国的科兴制药、中国的国药、还有瑞士几大制药厂。全世界最大的药厂和全世界的大概200万个专利，在不超过十个家族控制着。
+Emerald Robinson在2021年9月下旬的推文，“大流行是迫使你接种疫苗，打疫苗就是逼你拿到疫苗护照。疫苗护照是强迫你进入社会信用体系，社会信用体系是为了迫使你服从政府。”
 
-So what are these groups of people in charge of? Firstly they control Pfizer, Kexing Pharmaceutical, China National Pharmaceutical Group and a few big pharmaceutical companies in Switzerland. Most of the big pharmaceutical companies around the world and about 2 million patents are controlled by no more than ten families.
+Emerald Robinson正在揭露一个事实，大量临床证据表明中共CCP病毒疫苗并不像宣传的那样有效时，她的声音完全被压制。Emerald Robinson认为，疫苗是一种连锁反应，迫使公民最终“服从政府”。
 
-其中体现的手段，全美国的所有媒体在四个半家族控制。我说这话我都负法律责任，谁不服谁来告我，谁不告我谁是孙子。全美国的媒体四个半家族，全人类的社交媒体就两个半家族控制。全世界的财富是1%的人拥有和90%的人同样比例的财富。
+在一封题为《[Covid19 – The Spartacus Letter](https://www.theautomaticearth.com/2021/09/spartacus/)》的长达几十页公开信中，Emerald Robinson已经完全触及到了中共CCP病毒、疫苗背后的巨大阴谋。
 
-All the media in the US are controlled by four and a half families. I am legally responsible in saying all these things, so feel free to sue me if you think I am lying. All the media in the US are controlled by four and a half families and all the social media around the world are controlled by two and a half families. 1% of the global population possesses the same amount of wealth as the other 90%.
+Emerald Robinson的团队经过数千个小时，从众多资料中得出这是一场生化武器战争的结论，安东尼·福奇在国会撒谎，应该被判重罪。疫苗是一种毒药，包含有毒物质、生物发光标记物、氧化石墨烯和其它神经控制纳米微电子材料！！！
 
-而且这次对种族是有计划的谋杀。现在可能最惨的就可能是对犹太人，然后最惨的很有可能就是加拿大，然后就是美国人。
+武汉病毒研究所正在进行的功能增强性研究的资金来自 Peter Daszak。Peter Daszak 经营着一个名为 EcoHealth Alliance 的非政府组织（生态健康联盟），而生态健康联盟从福奇的the National Institutes of Health/National Institute of Allergy and Infectious Diseases获得了数百万美元的赠款。NIH/NIAID 向武毒所捐赠了几百万美元，DTRA 和 USAID 分别为这项研究捐赠了数千万美元，总共超过一亿美元。
 
-This premeditated genocide will hit the Jews the hardest, then will be the Canadians and the Americans.
+由于生物战袭击，我们不得不眼睁睁地看着美国和自由世界陷入无情的衰落。我们和无数其他人一样，被一个未经选举、不负责任的精英针对美国人民和我们的盟友所进行的宣传和心理战行动所害。我们正在看着医疗机构向数百万美国同胞注入真正的毒药，而不是一场战斗。
 
-那么这次打病毒中招最厉害的是什么？律师、会计师、明星、运动员、国家公务员。这些人被干掉以后，正好解决了现在人类太聪明、太专业，都追求法治、民主、自由的人类。没有人类了、没有律师、没有会计师、没有医生、没有年轻的政治家，就剩下了中南坑那些老杂毛。
+在这封公开信中，Emerald Robinson提到了一个令人震惊的事实，参与疫苗研究的科学家与从事将纳米技术与细胞结合的科学家之间的联系。2020 年 6 月 9 日，与武汉理工大学合作，拥有数十年经验的哈佛纳米技术研究员 Charles Lieber 被美国司法部以欺诈罪起诉。Charles Lieber 从美国国防部特别是军事智库 DARPA、AFOSR 和 ONR，以及 NIH 和 MITRE获得了数百万美元的赠款，进行生物纳米技术，或者纳米技术与活细胞的融合研究。随后，中共国政府以千人计划为幌子，贿赂Charles Lieber等西方科学家分享专有研发信息，用于解放军的研究。
 
-What groups of people suffer the most in this around of vaccine attack? It will be the lawyers, accountants, celebrities, athletes and government workers. After the death of these intelligent people with specialized skills, who also pursued rule of law, democracy and freedom, all there is left are the CCP elites in Zhongnan Pit.
+Emerald Robinson在公开信中明确指出， COVID-19（中共CCP病毒）疫苗含有氧化还原石墨烯纳米颗粒。日本研究人员还在 COVID-19 （中共CCP病毒）疫苗中发现了无法解释的污染物。石墨烯载流子迁移率15000cm2/（V·s）（室温），是人类已知的具有最高导电性的物质，并且在某些情况下具有顺磁性。Charles Lieber 自己的论文描述了将硅纳米线用于脑机接口或“神经花边”技术。他的论文描述了神经元如何内吞整个硅纳米线或其中的一部分，监测甚至调节神经元活动。可以植入人类心脏以远程监测其活动的人造组织支架。
 
-还剩下了今天你看到的加拿大、日本、以色列这些疯狂的完全没有末日的，完全没有末日感，也没有未来的这帮流氓政客。大家看明白了吗？这就是结局。
+Emerald Robinson突然被停职，绝非NEWSMAX宣称的简单推文误导这么简单，事实上，Emerald Robinson已经触及到中共CCP病毒、疫苗、暗势力、大重启等可怕的故事！
 
-There are also these corrupt and insane politicians in Canada, Japan and Israel, who have no sense of the end and have no future. They will also remain. Is it clear to everyone? This will be the end result.
+#  
 
-所以说疫苗灾难、疫苗大屠杀、疫苗的次生灾难，这才是真正最核心的。今天你看到疫苗灾难了吗？你没有看到。疫苗灾难发生了吗？根本没发生呢！你看到这都是偶然事件。
+参考资料：
 
-Therefore the core issue is the disaster and genocide brought by the vaccine. Have you seen the disaster brought by the vaccine? No you have not. Has the vaccine disaster already happened? No it has not. All you have seen so far are only occasional incidents
+[Newsmax White House correspondent is removed from the air after she claimed vaccines contain demonic markers that allow people to be tracked](/Users/quhui/Downloads/Newsmax%20White%20House%20correspondent%20is%20removed%20from%20the%20air%20after%20she%20claimed%20vaccines%20contain%20demonic%20markers%20that%20allow%20people%20to%20be%20tracked)
 
-所有的抗议它不是大觉醒，它只是一个非常朦胧的一个在觉醒。
+[@EmeraldRobinson](https://twitter.com/EmeraldRobinson)
 
-All the demonstrations right now are not the sign of a great awakening, it is only a partial awakening of the mankind.
+[Covid19 – The Spartacus Letter](https://www.theautomaticearth.com/2021/09/spartacus/)
 
-**（文章内容仅代表新西兰-财经G乐部节目观点）**
+[Newsmax Benches Star Who Claimed COVID Vaccines Contain Satanic Trackers](https://www.thedailybeast.com/newsmax-benches-reporter-emerald-robinson-who-tweeted-about-satan-linked-vaccines)
+
+[Opinion: Newsmax forced to admit vaccines don’t make you glow](https://www.washingtonpost.com/opinions/2021/11/04/newsmax-forced-admit-vaccines-dont-make-you-glow/)
+
+[Newsmax白宫记者Emerald Robinson：美国的选举是被操纵的，亚利桑那审计只是最新的例子](/Users/quhui/Downloads/Newsmax白宫记者Emerald%20Robinson：美国的选举是被操纵的，亚利桑那审计只是最新的例子)
+
+[America’s Elections Are Rigged (And Everybody Knows It)](/Users/quhui/Downloads/America's%20Elections%20Are%20Rigged%20%28And%20Everybody%20Knows%20It%29)
+
+[@AlbertBourla](https://twitter.com/AlbertBourla/status/1369734954498818052)
+
+[@ErikWemple](https://twitter.com/ErikWemple)
+
+（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+
+编审：文敏    发布：文敏
+
+
 
  
 
