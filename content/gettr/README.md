@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/5/2021 4:33 AM (UTC)`
+
+11/1/2021 【HCoin to The Moon庆典】我们的网络安全小组是世界上最好的；我们的客户是上帝<br/><br/>11/1/2021 【HCoin To the Moon Celebration】 Our cybersecurity team  is among the best in the world and our customers are the king.
+![img](https://media.gettr.com/group4/getter/2021/11/05/04/33/8c1e8fd9-c37c-583e-119e-1143444f27aa/out.jpg)
+
+---
+
 `@miles 11/5/2021 1:48 AM (UTC)`
 
 11/3/2021 Miles Guo: Zhang Wenyuan is Zhang Gaoli’s illegitimate child rather than his nephew, and Zhang Gaoli’s so-called “adopted daughters” are in fact his mistresses;  Zhang Gaoli is the “king” of Guangdong and Shenzhen, and Xi Yuanping (Xi Jinping’s younger brother) would even avoid Zhang Gaoli whenever he ran into Zhang<br/><br/>11/3/2021 文贵直播: 张文远是张高丽私生子而不是侄子，张高丽的所谓“养女“竟是其情妇；张高丽是广东王、深圳王，习远平见张高丽都得躲着<br/>
@@ -287,13 +294,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 11/1/2021 [HCoin To the Moon Celebration]: What does “loyalty” mean? We, the Whistleblowers’ Movement and the New Federal State of China, shall forget “loyalty” - decentralization, but we shall keep “honesty” - treating others with honesty and “honesty” lies in what we do not what we say<br/><br/>11/1/2021【HCoin To the Moon 庆典】：什么是“忠诚”？爆料革命和新中国联邦要摒弃“忠” - 去中心化，但一定要有“诚” - 以“诚”待人、“诚”在行动<br/>
 ![img](https://media.gettr.com/group5/getter/2021/11/02/01/48/7c9f4d25-946a-5ca4-f246-72414635ce3c/out.jpg)
-
----
-
-`@miles 11/2/2021 12:25 AM (UTC)`
-
-11/1/2021 [HCoin To the Moon Celebration]: The CCP is using the UK as the command center for its anti-Whistleblowers' Movement task force and to attack the Himalaya Coin. But because we are well-prepared to resist and are protected by the UK and other countries, we are able to crush the CCP's crazy operations. Had it not been so, the launch of Himalay Coin would have been delayed for a month.<br/><br/>11/1/2021【HCoin To the Moon 庆典】：中共将英国作为平爆小组的指挥中心以攻击喜联储，但我们有绝对的实力反抗并得到了英国等国家的保护，成功粉碎了中共疯狂的行动，否则喜币将推迟一个月上市<br/>
-![img](https://media.gettr.com/group9/getter/2021/11/02/00/25/5d62d522-fbdc-15cf-5d37-ae1099743a9e/out.jpg)
 
 ---
 

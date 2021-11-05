@@ -2,32 +2,81 @@
 ---
 
 
-## 铸币权力的转移将解构专制权力与垄断
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1640097/)
+## 前白宫经济顾问皮特·纳瓦罗： 正如郭文贵唱的&#8221;打倒中共&#8221;
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1640156/)
 
-**作者：**MSGZ
-**编辑：**Candy
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-65.png)图片来源 hcr
+前白宫经济顾问皮特·纳瓦罗： 大纪元的史诗级文章。正如郭文贵唱的：打倒 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)！ 立即在亚马逊上购买《川普时代》：[https://bit.ly/InTrumpTimeT](https://t.co/En2l0LXENX?amp=1) 【附大纪元文章：“打倒 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)，振兴美国工人”：川普顾问彼得纳瓦罗在新书中概述了他的使命】
 
 
-主宰铸币权力和形塑货币流通的形式，是一个国家、政权、寡头集团维持其权力的必要工具和手段 。控制了货币的产生和输出，就能控制官僚系统和军队，以此维持权力的存续。
 
-从几千年前，由城邦国家到帝国时代，再到民族国家时代，乃至美国，铸币权始终被政权和政府垄断。美国表面上虽然不是中央集权政府，可是其主权货币的铸造和输出一直被掌控在家族式财阀手中，其财政决策过程没有经过充分的民主过程。这种以家族模式运作的小集团，很容易与掌握公共权力的政府（本质上也是小集团）形成黑箱操作。这能形成事实上的专治与垄断，也就是产生了“中心化”。
+> Epic article in Epoch Times. As Miles Guo sings: Taking down the CCP!
+> 
+> Buy In Trump Today on Amazon: [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy) [https://t.co/nwRAqF2GF5](https://t.co/nwRAqF2GF5)
+> — Peter Navarro (@RealPNavarro) [November 4, 2021](https://twitter.com/RealPNavarro/status/1456382956713431053?ref_src=twsrc%5Etfw)
 
-喜联储作为货币铸造发行实体，她的所有权将不会归国家、政府、或几个财阀所有，而是其股权将由全体新中国联邦人民共同持有。这是对“国家专治权力本质”和金融史的颠覆性创举。是人类金融历史上的第一次。
 
-这一壮举是“去货币权力中心化”和“去国家化”的开端。喜币的加密货币属性、去市场中心化属性，以及发行数量和运行的公开透明化，保障了个人对其自身财富的主权和流通的自由。这将会消弭国家与国家之间存在的界限。
 
-更重要的，喜币的运作蓝图和将要达到的实际效用能瓦解“有垄断倾向的政治和非政治实体”对于妄图宰制财富的技术可能性。进而达到有效遏制国家主义、政治小团体对于权力扩张和构建垄断的欲望。
+众议院少数党领袖凯文·麦卡锡： 民主党的“美国制造”税正在将我们的生产转移到美国以外的地方，并将其转移到中国。
 
-**发布：**Candy
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+> .[@RepBryanSteil](https://twitter.com/RepBryanSteil?ref_src=twsrc%5Etfw):
+> 
+> Democrats’ "Made-in-America" Tax is shifting our production outside of the United States, and shifting it to China. [pic.twitter.com/M3RRuI1nfA](https://t.co/M3RRuI1nfA)
+> — Kevin McCarthy (@GOPLeader) [November 4, 2021](https://twitter.com/GOPLeader/status/1456384635722665984?ref_src=twsrc%5Etfw)
+
+
+
+参议员兰德·保罗： 再多的花言巧语也无法让福奇摆脱在国会面前撒谎的事实。[#FauciResign](https://twitter.com/hashtag/FauciResign?src=hashtag_click)[#蝠奇辞职](https://twitter.com/hashtag/%E8%9D%A0%E5%A5%87%E8%BE%9E%E8%81%8C?src=hashtag_click) 【附中文字幕：如果我们不了解蝠奇的研究有多危险，这种事可能还会重演】
+
+
+
+> No amount of smarmy word salad will get Fauci out of the fact that he lied before Congress. [#FauciResign](https://twitter.com/hashtag/FauciResign?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/lo81FphHeq](https://t.co/lo81FphHeq)
+> — Senator Rand Paul (@RandPaul) [November 4, 2021](https://twitter.com/RandPaul/status/1456403509784555530?ref_src=twsrc%5Etfw)
+
+
+
+众议院外交委员会共和党： 领袖麦考尔：” 在美国人得知 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 测试了一种可以携带核弹头的高超音速滑翔飞行器后不到一个月，我们现在又了解到他们计划在本十年末将其核弹头库存的规模扩大四倍。 “[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 已经显著加剧了他们的侵略行为，这应该成为美国和我们的盟友的一个巨大警告。现在是世界各地民主力量团结起来应对中共造成的危险的威权威胁的时候了.”
+
+
+
+> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) "Less than one month after Americans learn China tested a hypersonic glide vehicle that could carry a nuclear warhead, we now learn they plan to quadruple the size of their nuclear warhead stockpile by the end of this decade. [https://t.co/v6LWFL3myz](https://t.co/v6LWFL3myz)
+> — House Foreign Affairs GOP (@HouseForeignGOP) [November 4, 2021](https://twitter.com/HouseForeignGOP/status/1456362586597908487?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克·蓬佩奥： 距北京奥运会开幕还有整整三个月时间。 国际奥委非常明确地被 [#共产党](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的金钱所腐蚀，并情愿对 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 犯下的人权暴行 (包括种族灭绝) 视而不见。 还来得及进行抵制。
+
+
+
+> Exactly 3 months until the Beijing Olympics are scheduled to start. The IOC has made it clear it has been corrupted by Communist Party money & is willing to turn a blind eye to the human rights atrocities committed by the CCP (including genocide).
+> 
+> There is still time to boycott.
+> — Mike Pompeo (@mikepompeo) [November 4, 2021](https://twitter.com/mikepompeo/status/1456330721145106443?ref_src=twsrc%5Etfw)
+
+
+
+参议员霍利新闻办公室： “[#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 危在旦夕，但未来尚未书写。” 霍利参议员发出警告，关切台湾在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 加强侵略行径情况下的命运。“《武装台湾法案》将确保 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hashtag_click) 拥有威慑 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 入侵所需的不对称防御能力——只要台湾做好准备，在未来艰难的岁月里做出艰难的选择来保卫自己。” 请看完整版本： 【附参议院官网霍利议员网页：参议员霍利继续与台湾站在一起，提出新法案以帮助该国武装自己】
+
+
+
+> “Taiwan is in grave danger, but the future is not yet written.” Sen. Hawley warns of Taiwan’s fate amidst heightened aggression from China.
+> — Senator Hawley Press Office (@SenHawleyPress) [November 4, 2021](https://twitter.com/SenHawleyPress/status/1456291503882575884?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·沃尔茨： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 是美国从未面临过的最大威胁。 然而我们还在资助他们的腐败，他们的军事扩张，甚至还有他们的种族屠杀——同时拜登总统和哈里斯副总统全都袖手旁观。 请看视频关于 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的真相。
+
+
+
+> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s the biggest threat America has ever faced.
+> 
+> AND we're bankrolling their corruption, their military expansion, and even their genocide — all while Pres. Biden and VP Harris sit by idly and watch. 
+> 
+> Watch to learn the TRUTH about communist China: [pic.twitter.com/41xMoWlvUj](https://t.co/41xMoWlvUj)
+> — Rep. Mike Waltz (@michaelgwaltz) [November 4, 2021](https://twitter.com/michaelgwaltz/status/1456254654761746435?ref_src=twsrc%5Etfw)
+
+
 
  
 

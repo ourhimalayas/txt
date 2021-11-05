@@ -2,30 +2,39 @@
 ---
 
 
-## 共和党州政府官员反对雇主的强制疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1640216/)
+## 不管喜币上市还是任何事情我们永远不会依靠外国人
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1640225/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-6.png)
-图片来源：网络截图
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-7_副本.jpg)
+据[2021年11月03 日 文贵大直播：彭帅爆张高丽丑闻，再次验证爆料革命的真实性；喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产；房地产税会灭国灭党；共和党在弗吉尼亚州长竞选获胜意味着什么](https://gtv.org/video/id=61827dfd11d186296800dd83)时间点1：15：36——
 
-据美联社阿肯色州小石城（LITTLE ROCK）10月5日报道，共和党官员周四对总统拜登最新要求私营企业员工接种中共病毒疫苗的详细规定作出了迅速的谴责回应。威胁要采取一系列诉讼和其他行动来阻止这一强制要求，他们认为这是政府过度扩张的赤裸裸的例子。
+**郭文贵先生：**刚才你说到我们这个币，那天开始的时候，天下就那么下，下边就猜，啊，谁来了，你看主会场的后边摆着香槟，下面一片猜的谁呀？——蓬皮奥，猜皮特.纳瓦罗的，猜班农的。我很不高兴，为什么中国人这么大事一定要请外国人来？他来了能给你带来啥呀？他不会给我们带来一分钱，只能我们给他们钱，他会给我们带来合作，但是我们不能依靠他们，就是今天也不会依靠他们，永远不会依靠他们，我们中国人咋就这么贱呢！
 
-至少有两个保守派团体迅速采取行动，对工作场所的强制安全提起诉讼，越来越多的共和党州长和总检察长表示，最快在周五就会有更多诉讼。一些共和党领导的州，如得克萨斯州，阿肯色州已经通过了法律或行政命令，旨在保护那些可能不想遵守的雇主。
+所以当时你知道非常有意思，就是孙俊平的我们之间一个好哥们，他也是咱战友，现在绝对在电视机前面呢，现在是广州市里边的一个政协的高官，给我发信息——七哥为啥咱们战友这么贱呢？非要希望外国人来，就没有一个希望中国人来的。咱中国人啥时候你有好事，别老想着外国人行不行？不是外国的月亮都是圆的！
 
-共和党人南卡罗来纳州总检察长艾伦·威尔逊(Alan Wilson)周四通过发言人说“这项规定是垃圾，它是违宪的，我们将与之斗争。”
+（以下暂略）
 
-自从拜登在9月份预告这一要求以来，各州一直在为这一要求做准备。周四发布的职业安全与健康管理规定要求拥有100名或更多员工的公司在1月4日前接种疫苗，或每周进行测试。如果不遵守规定，可能会导致每项违规行为受到近14,000美元的处罚。联邦官员还留下了将这一规定扩大到小型雇主的可能性。
+撰稿：喜马拉雅的肉夹馍；
 
-阿拉巴马州、亚利桑那州、阿肯色州、佛罗里达州、爱达荷州、印第安纳州、爱荷华州、路易斯安那州、密苏里州、蒙大拿州、内布拉斯加州、新罕布什尔州、俄克拉荷马州和南达科他州的共和党州长或总检察长周四表示，他们最快将于周五对这项任务提起诉讼。保守派媒体公司The Daily Wire周四向联邦法院提出挑战。一家支持保守派的律师事务所代表的密歇根州和俄亥俄州的公司也是如此。
+审核：喜马拉雅的馍夹肉；
 
-印第安纳州州长埃里克·霍尔科姆在一份声明中表示联邦政府的这种做法是前所未有的，将给供应链和劳动力带来有害的、意想不到的后果。
+校对：Maarago；
 
-来自共和党人和保守派团体对工作场所授权的挑战预计将是基础广泛且迅速的，反映了中共病毒疫苗对策已经陷入了党派分歧。在周四宣布OSHA的规则后，民主党州长和总检察长们相对安静。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-所有26个共和党州的总检察长此前都表示，他们将反对这些要求，他们中的大多数人都签署了一封给拜登的信，质疑OSHA是否有法律权力要求注射疫苗或病毒测试。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-新闻来源：[GOP state officials push back on employer vaccine mandate](https://apnews.com/article/covid-states-suing-employer-vaccine-mandates-f4300ed015ed716a1054949cf199a25a)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

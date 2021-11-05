@@ -2,39 +2,33 @@
 ---
 
 
-## 不管喜币上市还是任何事情我们永远不会依靠外国人
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1640225/)
+## 11/5/2021中日财经爆：“安徽第一房企”也暴雷
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640237/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9-7_副本.jpg)
-据[2021年11月03 日 文贵大直播：彭帅爆张高丽丑闻，再次验证爆料革命的真实性；喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产；房地产税会灭国灭党；共和党在弗吉尼亚州长竞选获胜意味着什么](https://gtv.org/video/id=61827dfd11d186296800dd83)时间点1：15：36——
+#### 撰稿：东京樱花团/peterwong
 
-**郭文贵先生：**刚才你说到我们这个币，那天开始的时候，天下就那么下，下边就猜，啊，谁来了，你看主会场的后边摆着香槟，下面一片猜的谁呀？——蓬皮奥，猜皮特.纳瓦罗的，猜班农的。我很不高兴，为什么中国人这么大事一定要请外国人来？他来了能给你带来啥呀？他不会给我们带来一分钱，只能我们给他们钱，他会给我们带来合作，但是我们不能依靠他们，就是今天也不会依靠他们，永远不会依靠他们，我们中国人咋就这么贱呢！
+11月3日，安徽恒泰房地产开发有限责任公司（以下简称恒泰地产）在其官方微信发布声明称，网络上近日出现的有关恒泰集团及其下属公司开发的项目破产重整的言论完全失实。公司目前确实遇到了前所未有的困难，但公司坚决履行企业主体责任，全力以赴复工复产，保交楼，想尽一切办法恢复正常经营，全力保障客户的合法权益。
 
-所以当时你知道非常有意思，就是孙俊平的我们之间一个好哥们，他也是咱战友，现在绝对在电视机前面呢，现在是广州市里边的一个政协的高官，给我发信息——七哥为啥咱们战友这么贱呢？非要希望外国人来，就没有一个希望中国人来的。咱中国人啥时候你有好事，别老想着外国人行不行？不是外国的月亮都是圆的！
+事实上，自去年以来，被称为“安徽第一房企”的恒泰地产就陷入持续不断的风波中，先是被曝出旗下各地楼盘项目大范围停工，紧接着又一度传出破产被收购的消息。
 
-（以下暂略）
+自去年下半年以来，恒泰地产旗下大量项目被曝出停工、逾期交房、烂尾等问题。以青岛胶州上合达观天下项目为例，有业主表示，该项目逾期交房已有半年，且工地处于全面停工状态，业主无法与开发商方面取得联系。此外，昆明的恒泰滇池名门项目进度也比较缓慢，并出现延期交房的情况，业主维权事件不断。
 
-撰稿：喜马拉雅的肉夹馍；
+恒泰地产旗下被曝停工的远不止上述项目。如位于马鞍山的阳光威尼斯等楼盘也被曝存在停工、违约问题，无锡的恒泰悦璟府项目和长沙恒泰芙蓉悦府均被曝出停工消息。同时，哈尔滨、重庆等多地的恒泰旗下楼盘项目也接连被曝出停工消息。
 
-审核：喜马拉雅的馍夹肉；
+与此同时，恒泰地产还因拖欠账款多次列为失信被执行人。中国执行信息公开网显示，恒泰地产被各地法院列为执行人的记录已达20余次，其中，两次列为失信被执行人。
 
-校对：Maarago；
+另外，启信宝显示，恒泰地产的自身风险达839条，关联风险更是高达3162条。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-7.png)
+在房企融资情况愈发严峻的背景下，项目新开工量继续减缓。克而瑞数据显示，9月全国新开工面积17442万平方米，较2019年和2020年同期分别降15.2%和13.5%。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+信息来源：
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+[“安徽第一房企”被曝破产重整? 恒泰地产：遇到前所未有困难，全力“保交付”](http://www.nbd.com.cn/articles/2021-11-04/1981206.html)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
