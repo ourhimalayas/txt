@@ -2,34 +2,22 @@
 ---
 
 
-## 政府排挤黄金作为“替代”货币，未来比特币价格翻倍
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1640826/)
+## 公民记者张展有死亡的风险
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1640886/)
 
-#### 翻译：Sara9 
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5823-4.jpg)**图片来源：Blockonmi**
-今年比特币和其他加密货币横扫华尔街，很多大银行纷纷介入加密货币业务。而比特币价格从去年同期的15000美元飙升至现在的60000美元，这对金融界造成了不小的冲击。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11052.jpg)图片来自BBC
+中共国公民记者张展以“扰乱公共秩序”罪名被捕入狱，现在面临死亡的风险。
 
-摩根大通最新预计，比特币长期价格有可能翻一倍多到146000美元，而分析师警告，极端的价格波动性可能导致其价格快速滑落至35000美元。同时，在（上一轮）出现1500亿美元的加密货币价格暴跌时，大资金正在抛弃比特币而转向以太坊。
+现年 38 岁的张展在 2020 年底被判处四年徒刑后正在绝食。2020 年 2 月，前律师、时任公民记者的张展前往武汉调查疫情爆发情况。随后，她在社交媒体上谴责当局逮捕独立记者并恐吓感染者家属保持沉默。她于 2020 年 5 月在武汉失踪，次月再次出现在上海的监狱中，被控“挑拨离间，制造麻烦”。
 
-【备注：新中国联邦喜币正是采用的是由摩根大通开发的基于以太坊的Quorum区块链技术，Quorum是一种联盟链解决方案。】
+国际特赦组织针对这名记者不稳定的健康状况发出了谴责，该组织在一份声明中敦促中共国当局释放自 2020 年 6 月以来一直绝食的张展。她在这几个月之中都是被强行喂食并用铁链锁着，以至于她无法取下喂食探针。庭审时，她因虚弱无法站立，坐在轮椅上。7 月 31 日，由于她的健康状况严重，她接收了住院治疗，但随后又被送回监狱。
 
-目前，市场上对于比特币上升到100000美元是很多加密货币市场观察家今明两年的共识。摩根大通的警告，对这种说法提出了挑战。
+不幸的是，一个消息得到了家人的证实。詹展有活不长的风险。记者的一位不愿透露姓名的律师说，这家人三周前曾要求探望因拒绝食物而通过鼻管喂食的张展，但没有得到回应。
 
-分析师也认为，由于前所未有的通胀压力，不仅是各种基金用它来对冲货币贬值，一般散户也在更多的跟进到这个财富安全天堂。目前美国通胀是13年来最高的，让比特币的价格在过去的12个月以来增加了300%，使整个加密货币市场总量增加到2万亿美元。
+原文链接：[https://www.today.it/mondo/zhang-zhan.html](https://www.today.it/mondo/zhang-zhan.html)
 
-市场将比特币作为黄金的通货膨胀对冲替代品有浓厚兴趣，任何这种（政府）对黄金作为“替代”货币的排挤都意味着比特币在长期内有很大的上升空间。
-
-原文链接：[JPMorgan Doubles Down On Its Massive Bitcoin Price Prediction—But Adds A Serious Warning (forbes.com)](https://www.forbes.com/sites/billybambrough/2021/11/04/jpmorgan-doubles-down-on-its-massive-bitcoin-price-prediction-but-adds-a-serious-warning/?sh=1ba9b9f14511)
-
-**发布：文泓**
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

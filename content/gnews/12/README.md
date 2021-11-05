@@ -2,50 +2,49 @@
 ---
 
 
-## 中共包括福建在内多地出现疯狂抢购,民众因抢粮大打出手
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1640926/)
+## 班农专访6: 反抗强制疫苗就是反抗共产主义
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1640968/)
 
-据[银河勇气之星（新号）@COURAGESTARnew](https://twitter.com/COURAGESTARnew)于[下午3:14 · 2021年11月5日](https://twitter.com/COURAGESTARnew/status/1456520286015148033)发布的推文——
+**简评：**
 
-This scene is very sad.Don’t happen again 这一幕非常令人心疼，别再发生了
+强制疫苗政策推出后，美国民众一直没有停止反抗。纽约市超过一万人上街抗议。新中国联邦的郭文贵先生、纳瓦罗先生、班农战斗室、GTV、GNews做了大量宣传和推动工作。民调显示美国70%的民众相信病毒来自武汉实验室。文贵先生反对任何人接种疫苗，尤其不应该给儿童注射疫苗。他认为只有了解病毒的起源和结构，才可能有疫苗。疫苗强制令是共产主义在各个国家的延伸。
+
+[GTV视频链接](https://gtv.org/video/id=617cd074adfd99590c3161ef)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/110502.jpg)
+**主持人：**班农先生，关于疫苗，我们看到纽约市超过一万人，包括政府雇员、警察、消防员，在布鲁克林大桥抗议强制疫苗。他们打出的标语是，“共产主义是终极变种”。你是否认为反抗强制疫苗就是反抗共产主义？谢谢。
+
+**班农先生：**我同意。共产主义意味着对人的完全管控。它是无神主义的，把党奉为神明，从而达到对个体的完全控制。
+
+强制疫苗非常严厉，我反对这样做。我不反对疫苗，但我对这个疫苗保持怀疑。原因之一就是文贵的出色工作，从病毒初期他就分析了其中的各种问题。
+
+拉斯穆森民调显示，70%美国民众相信病毒来自武汉实验室，尽管所有主流媒体都反对这个说法，就是因为文贵、班农战斗室、GNews、GTV、还有文贵的直播。
+
+文贵和彼得纳瓦罗，要知道纳瓦罗是白宫推动疫苗研发的核心成员之一。他比任何人都明白疫苗的弊端。他警告了人们疫苗的弱点，哪些人群应该接种疫苗，还有他为什么反对强制疫苗。他和马龙博士有很多相通立场。马龙博士是美国的顶级生物化学专家，不是一个反疫苗者。他毕生研究疫苗，也提出了相同的警告。
+
+这要归功于文贵不断的直播，我认为在他谈到的所有话题上，疫苗是他最多也是最着重强调的。文贵做了详细的解释，对疫苗做了仔细的研究。他研究了中共的疫苗和美国的疫苗，他坚决反对接种这些疫苗，而他并不是反疫苗者，只因为文贵看到了科学事实，他对这些疫苗保持怀疑。他坚持认为感染病毒的人的天然免疫比疫苗更好。
+
+文贵还坚信病毒源于中共生物武器实验室，而且是故意释放，他非常担忧那些感染病毒的人。
+
+我认为这些西方国家的强制疫苗政策正在瓦解，因为拜登用总统令把它强加于这些公司。我们看到疫苗强制政策在每个州不断瓦解，无论是德州还是弗罗里达。现在你们看到这些公司，尤其是航空和物流公司，开始让步了。
+
+我认为文贵和纳瓦罗做了非常出色的工作，这将让人们回到科学和数据。文贵坚持反对给儿童和青少年接种疫苗，在把病毒研究透彻之前，任何人都不该打疫苗。
+
+所以我认为那个标语非常贴切，共产主义就是终极病毒。还有，共产主义就是黑帮主义，把一群腐败犯罪分子的意愿强加于无辜百姓。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/班农专访.jpg)
+*字幕：Vekap | 听写：云岭| 翻译：Wade| 校对：Roberts|简评/文字整理/编辑：胖丁*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> This scene is very sad.Don’t happen again
-> 这一幕非常令人心疼，别再发生了🙏 [pic.twitter.com/w2qjWy1rNN](https://t.co/w2qjWy1rNN)
-> — 银河勇气之星⭐（新号） (@COURAGESTARnew) [November 5, 2021](https://twitter.com/COURAGESTARnew/status/1456520286015148033?ref_src=twsrc%5Etfw)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
-根据视频显示，中共内地多地持续出现疯狂抢购，因为抢粮而大打出手，有些地区超市被抢购一空，（北京）卖大米的从来没想到今年能这么火。福建省南安超市货架货品都被抢光了，货架货品都被抢光喽，南安湖西超市都被抢光了，整家超市都被抢光的，祥龙干货带头抢光了厦门唐朝食品配送商的存货。
-
-关于存粮的问题，郭文贵先生也在[2021年11月03 日 文贵大直播：彭帅爆张高丽丑闻，再次验证爆料革命的真实性；喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产；房地产税会灭国灭党；共和党在弗吉尼亚州长竞选获胜意味着什么](https://gtv.org/video/id=61827dfd11d186296800dd83)中进行了解惑。
-
-郭先生提到共产党也知道现在国外进口的粮食越来越困难，国内很多所谓的战略粮是给国家军队用的，不是给老百姓用的，另外由于今年中共国到处发大水，因自然灾难导致严重缺粮，并且中共现在并没有发放公粮的体制，到时候即使有公粮也发不下去，所以中共鼓励大家存粮，用囤粮的办法解决中共国根本没有战争时期或自然灾难下分配粮食的体制，避免饿死更多人。
-
-自助者天必助之，远离一线二线城市，远离军事目标，储存必要的生活物资并保证在至暗时刻来临时有基本的水电通讯条件和安全的庇护场所或许应该是十四亿同胞们目前最急需解决的事情了。
-
-撰稿：喜马拉雅的肉夹馍
-
-审核：喜马拉雅的馍夹肉
-
-校对：Maarago
-
-（文章内容仅代表作者个人观点）
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

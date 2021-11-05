@@ -2,48 +2,39 @@
 ---
 
 
-## 中共国本轮疫情已波及19个省份
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640803/)
+## 旧金山将强制5岁儿童进入餐厅时出示疫苗护照
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1640834/)
 
-作者：英国喜庄园 – I770775
+翻译**：Lulumi**
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-72.png) 图片来源**：** summit.news
 
+在8月份对12岁以上的儿童实施类似的强制措施后，及CDC紧急批准5-11岁的儿童注射辉瑞生物技术公司的疫苗后，当局将对更小的儿童提出同样的要求。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+这可能会引起进一步的争议和反对，因为相当多的家长已经声称他们不会让孩子接种疫苗。
 
+一项民意调查发现，三分之一的父母“肯定不会”让他们的孩子接种疫苗，只有27%的父母表示他们会让孩子“立即”接种疫苗。
 
+在美国，儿童占所有中共病毒死亡人数的不到0.1%，许多人警告说，疫苗带来的风险可能超过了他们感染病毒的风险。
 
-中共国多家媒体报道，自10月17日西安报告2例确诊病例以来，在短短半个月的时间里，疫情已经波及北京、河北、甘肃、内蒙古等19个省份，其中内蒙古、甘肃、黑龙江等省份的确诊病例均已过百，全国累计确诊病例已超过700例。
+旧金山卫生官员苏珊·菲利普（Susan Philip）说，在开始因无法出示疫苗护照而被机构拒绝之前，父母将有大约两个月的时间让他们的孩子接种疫苗。
 
-因为反复的防控封锁，中共国百姓的生活苦不堪言。钟南山依旧无视百姓疾苦，表示在强有力的监管和防控下，全国疫情会在一个月内得到有效控制。但随着感染人数的持续攀升，中共恐难掩盖本轮疫情真相。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-3.jpg)
-参考链接：
-1. [本轮疫情已波及19省份，这些风险点得警惕！](https://finance.sina.com.cn/jjxw/2021-11-04/doc-iktzscyy3519830.shtml)
-2. [本轮疫情已波及19省份](https://news.ifeng.com/c/8At9AVPuhA6)
+她说：“我们肯定想等待，并确保儿童有机会接种疫苗，所以在大概八周后将向孩子们提供疫苗，所以在有限的时间内，我们计划不会有这些（儿童出示疫苗护照）的要求，”她说。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+“但在某些时候，5至11岁的孩子也必须出示疫苗接种证明才能进入一些相同的环境。”
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+根据旧金山目前的规定，12岁以上的人如果没有打过疫苗，就不允许进入酒吧、餐馆、健身房或剧院。
 
-**更多资讯，更多关注**
+尽管完全接种疫苗的人仍然可能被感染并传播病毒，但卫生官员没有提供中共病毒测试阴性的证明的选项。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**新闻来源**：[summit.news] [San Francisco to Force 5-Year-Olds to Show Vaccine Passport to Enter Restaurants](https://summit.news/2021/11/04/san-francisco-to-force-5-year-olds-to-show-vaccine-passport-to-enter-restaurants/)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+* * *
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,30 @@
 ---
 
 
-## 共和党希望取得维州议会多数，民主党试图继续保持权力
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1640863/)
+## Youngkin在维州民意调查中领先，被视为2022年中期选举的风向标
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1640925/)
 
 作者：纽约香草山农场 – 柳是多水土透
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-在维州众议院民主党有10席优势，如共和党想夺得多数权，需要在本次选举中至少赢得6席。
+共和党维吉尼亚州候选人Youngkin在民调中领先，福克斯新闻显示，企业家Youngkin领先对手8%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/10.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11.png)
 
-最近的民意调查显示，两党在包含州长席位的公职中竞争激烈。共和党曾在1991-2009近30年中保持维州众议院控制权，但民主党在2017和19年选举中取得进展。
+他的竞争者，前州长Terry McAuliffe的竞选集会在本周有更少的人参加，除了深蓝地区阿灵顿以外。
 
-“我们有信心赢回流失到民主党的席位” 少数派领袖Todd Gilbert的发言人R-Shenandoah说到 “选民意识到民主党停止了强制性犯罪报告，让学校变得更不安全，他们从监狱释放了危险的罪犯并且把警察当敌人来看待。民主党征收燃油税，使家庭的能源账单至少增长800美金”。
+教育是本次竞选主题之一，团结了维州的保守派。McAuliffe 在辩论中说到“家长不应该决定学校教什么”，之后其领先优势开始缓慢消失。
 
-在得到议会控制权后，民主党通过了一系列法案，包含更严格的枪支控制，大麻合法化，授权地区政府提高税收，工会授权，增加最低收入，刑事司法改革和严厉的环境保护规章等。
+与之相对，Youngkin认为 “若我当选，家长将有权为孩子的教育做决定”。
+
+选举被视为2022年中期选举的民意风向标并广受关注，将在周二举行。
 
 （本文仅代表作者观点）
 
 参考阅读：
 
-- [https://justthenews.com/nation/states/republicans-hope-flip-virginia-house-dems-try-keep-control](https://justthenews.com/nation/states/republicans-hope-flip-virginia-house-dems-try-keep-control)
+- [https://justthenews.com/government/state-houses/youngkin-campaign-surging-final-days-virginia-race-could-be-predictor-2022](https://justthenews.com/government/state-houses/youngkin-campaign-surging-final-days-virginia-race-could-be-predictor-2022)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)

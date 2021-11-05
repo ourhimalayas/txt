@@ -2,38 +2,47 @@
 ---
 
 
-## 美国参议院一致通过《安全设备法案》进一步缩小华为中兴的生存空间
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1640802/)
+## 中共国本轮疫情已波及19个省份
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640803/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在FCC将要剔除CCP三大运营商之后，美国参议院也在本周四一致投票批准《安全设备法案》立法，此法案上周在美国众院以420-4的压倒性结果通过，该法案将禁止华为、中兴等被视为带来安全威胁的公司，从美国监管机构也就是FCC获得新的设备许可证，以及禁止FCC审查上述企业。同时海能达通信和海康威视也是此法案制裁的对象。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-5.jpg)
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-- [https://www.reuters.com/article/us-congress-huawei-zte-restrictions-1029-idCNKBS2HJ0D6](https://www.reuters.com/article/us-congress-huawei-zte-restrictions-1029-idCNKBS2HJ0D6)
+作者：英国喜庄园 – I770775
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
 
-***编辑***：***Irene木木***
-***校对/发稿：海阔天空1***
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+中共国多家媒体报道，自10月17日西安报告2例确诊病例以来，在短短半个月的时间里，疫情已经波及北京、河北、甘肃、内蒙古等19个省份，其中内蒙古、甘肃、黑龙江等省份的确诊病例均已过百，全国累计确诊病例已超过700例。
+
+因为反复的防控封锁，中共国百姓的生活苦不堪言。钟南山依旧无视百姓疾苦，表示在强有力的监管和防控下，全国疫情会在一个月内得到有效控制。但随着感染人数的持续攀升，中共恐难掩盖本轮疫情真相。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-3.jpg)
+参考链接：
+1. [本轮疫情已波及19省份，这些风险点得警惕！](https://finance.sina.com.cn/jjxw/2021-11-04/doc-iktzscyy3519830.shtml)
+2. [本轮疫情已波及19省份](https://news.ifeng.com/c/8At9AVPuhA6)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
