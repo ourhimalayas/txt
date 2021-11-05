@@ -15,95 +15,95 @@
 
 ---
 
-### [马斯克揭露联合国运营儿童性交易](/content/gnews/1/README.md)
- ` 纽约香草山MOS03`
+### [中共推进房地产税，既要灭党也要灭国](/content/gnews/1/README.md)
+ ` YALUN 亚伦`
 
-### [11/3/2021 文贵直播：中共的整个房地产领域都快完了，房地产崩溃之日就是灭共之时](/content/gnews/2/README.md)
- ` 秘密翻译组-北美组`
-
-### [支持审查制度团体——反数字仇恨中心，竟是由亲中机构所资助](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共国颁布新法加速执行闭关锁国方针](/content/gnews/4/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [美国前线医生组织起诉Kaiser Permanente：强制接种疫苗既不合法，也不科学](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021/11/04文贵先生盖特精要](/content/gnews/6/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [共产党不是拿房地产税，拿的是重新分配财富的权力](/content/gnews/7/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [英政府批准了【默克公司】抗“新冠病毒”药](/content/gnews/8/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [参与辉瑞疫苗试验的科研公司遭指控](/content/gnews/9/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [联合国粮农组织：10月份世界粮食价格创10年新高](/content/gnews/10/README.md)
- ` 纽约香草山MOS02`
-
-### [全球供应链中断的负面影响或将持续蔓延](/content/gnews/11/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [澳大利亚联邦银行推出数字货币服务](/content/gnews/12/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [俄亥俄州共和党人提出法案以禁止任何堕胎想法](/content/gnews/13/README.md)
- ` wenwu`
-
-### [魁北克省放弃对医护人员的强制接种政策](/content/gnews/14/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [美国跨党派参议员提出法案，阻止中共收购美国个人数据](/content/gnews/15/README.md)
- ` 纽约香草山MOS02`
-
-### [因疫情影响全球航空旅游业一蹶不振](/content/gnews/16/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [中共开征房地产税是中共走向北朝鲜与人类文明对决的开始](/content/gnews/17/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [辉瑞公司COVID-19疫苗的信誉是让人质疑的](/content/gnews/18/README.md)
- ` wenwu`
-
-### [郭文贵先生11月3日大直播概要](/content/gnews/19/README.md)
+### [美军表态有能力保卫台湾，中共警告不要干涉台湾问题](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [参议员霍利提出法案，帮助台湾武装抵御中共可能的入侵](/content/gnews/20/README.md)
+### [马斯克揭露联合国运营儿童性交易](/content/gnews/3/README.md)
+ ` 纽约香草山MOS03`
+
+### [11/3/2021 文贵直播：中共的整个房地产领域都快完了，房地产崩溃之日就是灭共之时](/content/gnews/4/README.md)
+ ` 秘密翻译组-北美组`
+
+### [支持审查制度团体——反数字仇恨中心，竟是由亲中机构所资助](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [全球接种疫苗国家的排序](/content/gnews/21/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [中共国颁布新法加速执行闭关锁国方针](/content/gnews/6/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
 
-### [美众议员提案禁止联邦资金用于强制疫苗接种](/content/gnews/22/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国各地的医院正在发生一些非常奇怪的事情](/content/gnews/23/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [欧洲议会开历史先河，首次派代表团访台](/content/gnews/24/README.md)
+### [美国前线医生组织起诉Kaiser Permanente：强制接种疫苗既不合法，也不科学](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大魁北克&#8212;不再对现有的医疗工作者强制接种疫苗，新员工除外](/content/gnews/25/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [2021/11/04文贵先生盖特精要](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [五角大楼：中国到2030年可能拥有1000枚核弹头](/content/gnews/26/README.md)
- ` MG FARM`
-
-### [100名长期教师、TDSB工作人员在未披露COVID-19疫苗接种状况后休无薪假](/content/gnews/27/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [郭文貴精品視頻-一個完美的無與倫比的貨幣Himalaya Coin誕生了](/content/gnews/28/README.md)
- ` 澳喜农场`
-
-### [通货膨胀、工资增长，挑战美联储“过渡性”通胀的说法](/content/gnews/29/README.md)
+### [共产党不是拿房地产税，拿的是重新分配财富的权力](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [NBA球星埃内斯•坎特对“邪教”中共说：“香港将自由！”](/content/gnews/30/README.md)
+### [英政府批准了【默克公司】抗“新冠病毒”药](/content/gnews/10/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [参与辉瑞疫苗试验的科研公司遭指控](/content/gnews/11/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [联合国粮农组织：10月份世界粮食价格创10年新高](/content/gnews/12/README.md)
+ ` 纽约香草山MOS02`
+
+### [全球供应链中断的负面影响或将持续蔓延](/content/gnews/13/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [澳大利亚联邦银行推出数字货币服务](/content/gnews/14/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [俄亥俄州共和党人提出法案以禁止任何堕胎想法](/content/gnews/15/README.md)
+ ` wenwu`
+
+### [魁北克省放弃对医护人员的强制接种政策](/content/gnews/16/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [美国跨党派参议员提出法案，阻止中共收购美国个人数据](/content/gnews/17/README.md)
+ ` 纽约香草山MOS02`
+
+### [因疫情影响全球航空旅游业一蹶不振](/content/gnews/18/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [中共开征房地产税是中共走向北朝鲜与人类文明对决的开始](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [辉瑞公司COVID-19疫苗的信誉是让人质疑的](/content/gnews/20/README.md)
+ ` wenwu`
+
+### [郭文贵先生11月3日大直播概要](/content/gnews/21/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [参议员霍利提出法案，帮助台湾武装抵御中共可能的入侵](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [全球接种疫苗国家的排序](/content/gnews/23/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [美众议员提案禁止联邦资金用于强制疫苗接种](/content/gnews/24/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国各地的医院正在发生一些非常奇怪的事情](/content/gnews/25/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [欧洲议会开历史先河，首次派代表团访台](/content/gnews/26/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [加拿大魁北克&#8212;不再对现有的医疗工作者强制接种疫苗，新员工除外](/content/gnews/27/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [五角大楼：中国到2030年可能拥有1000枚核弹头](/content/gnews/28/README.md)
+ ` MG FARM`
+
+### [郭文貴精品視頻-一個完美的無與倫比的貨幣Himalaya Coin誕生了](/content/gnews/29/README.md)
+ ` 澳喜农场`
+
+### [通货膨胀、工资增长，挑战美联储“过渡性”通胀的说法](/content/gnews/30/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [美国中共病毒疫苗顾问参加中共资助的研讨会](/content/gnews/31/README.md)
  ` 日本东京方舟农场`

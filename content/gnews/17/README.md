@@ -2,164 +2,54 @@
 ---
 
 
-## 中共开征房地产税是中共走向北朝鲜与人类文明对决的开始
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1639812/)
+## 美国跨党派参议员提出法案，阻止中共收购美国个人数据
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1639842/)
 
-[https://gtv.org/video/id=61846260adfd99590c3330c7](https://gtv.org/video/id=61846260adfd99590c3330c7)
+作者：纽约香草山农场  – 四季
 
-所有地方(政府)上的地方债要爆雷了
-Todas las deudas locales (gubernamentales) están a punto de explotarse
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-卖地卖不出去了
-Ya no pueden vender terrenos
 
-现在回过头来
-Ahora vienen
 
-来割你的韭菜
-Y cortan tus puerros
 
-让你买过的房子, 欠过的债
-La casa que compraste, las deudas que debías
 
-再让你为你的债再付利息
-Te permite pagar más intereses por tu deuda
+美国共和党籍联邦参议员鲁比奥（Marco Rubio）和民主党籍联邦参议员沃尔纳克（Raphael Warnock）共同发起《敏感个人数据保护法案》，要求外国投资者在对处理敏感个人数据的美国公司进行投资时，必须进行强制性的申报，从而加强关键的监管。
 
-这真的是人
-Esto realmente es
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1349.jpg)图片来源：路透社
 
-生的时候在娘胎里边
-Cuando el ser humano está en el vientre de su madre
+该法案将保护美国人的重要个人信息，如基因检测结果、健康状况、保险申请、经济困难数据、安全许可信息、地理位置数据、私人电子邮件、用于生成政府身份证明的数据以及信用报告信息。
 
-就开始征税
-Comienza a cobrar impuestos
+两位参议员表示，像中共国这样的对手利用收购来储存数据，给美国人带来“个人隐私和国家安全方面的风险”。
 
-到你长大开始各种税
-Hasta cuando crezcas empiezan todo tipo de impuestos
+美国国家反情报收集与安全中心在今年2月发表的一份报告中说，中共国多年来以合法和非法手段——包括收购处理个人敏感健康资料和其他个人数据的美国公司，与美国的医院、大学和其他研究机构合作，以及黑客袭击——从美国和世界其他各国收集大量医疗健康方面的数据。报告称，此举不仅对美国人的个人隐私构成威胁，而且危及美国的经济与国家安全。
 
-到死了就是把火葬场弄很贵
-Incluso, hasta morirse es encarecer el crematorio
+**参考阅读：**
 
-再把这个放骨灰盆的地方, 墓地再弄很贵
-Y también con el lugar para poner las cenizas y el cementerio
+[美跨党派参议员提出个人数据保护法案，限制中国收购美国人的个人数据 (voachinese.com)](https://www.voachinese.com/a/marco-rubio-warnock-personal-data-protection-bill-china-20211103/6298765.html)
 
-现在是把这一切再跟你收一遍税
-Ahora es volver a cobrar todos estos impuestos
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
 
-中国这个社会, 土地属于国家的
-En la sociedad de China, el terreno le pertenece al país
+编辑/校对/发稿：小鹿
 
-房地产是租赁的70年
-Los inmuebles se alquilan por 70 años
 
-产权70年
-Derechos de propiedad durante 70 años
 
-房地产寿命平均30年
-La vida útil promedio de las propiedades inmobiliarias es de 30 años
+**更多资讯，更多关注**
 
-你贷款(买)的房子是你平均工资, 58年才能交完的房租
-La casa que compraste por préstamo es según el promedio de tu salario, implica que debes terminar de pagarla por 58 años
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-房地产是GDP的4倍到10倍
-La propiedad inmobiliaria es de 4 a 10 veces del producto interno bruto (PIB)
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-你拿房地产税, 这简直是比抢劫还夸张
-El impuesto inmobiliario que cobras, es realmente más exagerado que robar
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-结果盖了个名, 戴了个帽子, 叫做共同富裕
-Como resultado, se obtiene un nombre y se le pone un sombrero llamado prosperidad en conjunto
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-这种愚蠢的事情也有人信呢
-Igualmente hay personas que creen en este tipo de asunto tan ridículo como este
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
-你的国家, 你的土地, 你的空气
-Tu país, tu terreno, tu oxígeno
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-他把地主给推翻了, 它成大地主了
-Él derrocó al propietario y se convirtió en un gran propietario
 
-把地让你盖了房子
-Te dió el terreno para construir una casa
 
-盖了30年就应该拆掉的房子
-Se construye una casa que debería ser demolida 30 años después
 
-70年的(土地)租赁权
-El arrendamiento de 70 años (terreno)
-
-商业才50年
-Si el comercio es solamente de 50 años
-
-现在让你交房地产税
-Ahora te dicen para pagar el impuesto inmobiliario
-
-然后你生孩子呢, (计算房地产税时) 就减60平米
-Entonces, si tienes un bebé, (al calcular el impuesto sobre bienes inmuebles), se te reducirá en 60 metros cuadrados
-
-你不生孩子呢, 你就基本破产
-Si no tienes hijos, básicamente irás a la quiebra
-
-然后电费, 水费
-Luego es el costo de la electricidad y el agua
-
-中国人连美国这个牛和马都不如
-Los chinos son inferiores al ganado y los caballos estadounidenses
-
-一个月60度电
-60 kWh por mes
-
-人家美国是600度电
-En EE. UU son 600 kWh
-
-然后要干掉美国征服世界
-Y quieren derribar al EE. UU para apoderarse del mundo
-
-然后我们最优越的体制
-Y luego nuestro sistema más superior
-
-所以说现在你看共产党的房地产税有多荒唐
-Por eso, ahora ves lo absurdo que es el impuesto inmobiliario del Partido Comunista
-
-竟然有法国的一个在中国投资的(人)问我
-Alguien de Francia que invirtió en China me preguntó
-
-欸, Miles这是不是说明共产党的经济很稳定
-Hey Miles, esto significa que la economía del Partido Comunista es muy estable
-
-哎唷, 我说那么稳定, 你赶快去投资啊
-Ay, dije, si es tan estable entonces vaya a invertir
-
-快去, 再投点儿
-Vaya, invierta más
-
-中国给房地产征税的开始
-El comienzo de China con el cobro de impuestos inmobiliarios
-
-绝对是中共走向北朝鲜与人类文明的对决的开始
-Es absolutamente el inicio de la marcha del PCCh hacia Corea del Norte y el enfrentamiento entre la civilización humana
-
-———————————————————
-
-**原视频网址：** [https://gettr.com/post/pfo7k8769b](https://gettr.com/post/pfo7k8769b)
-
-日期：11/04/2021
-原视频标题：中共开征房地产税是中共走向北朝鲜与人类文明对决的开始
-La recaudación del impuesto inmobiliario por parte del PCCh es el comienzo de la marcha del PCCh hacia Corea del Norte y el enfrentamiento entre la civilización humana
-原视频日期：10/31/2021
-任务编号：KC222(2740)
-视频时间段：0:00-2:02
-
-西听校: 洛杉矶盘古农场- 霙霙（文霙）
-翻译: 洛杉矶盘古农场- 小文萱
-翻译终校: 洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

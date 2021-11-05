@@ -2,54 +2,25 @@
 ---
 
 
-## 联合国粮农组织：10月份世界粮食价格创10年新高
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1639873/)
+## 英政府批准了【默克公司】抗“新冠病毒”药
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1639887/)
 
-作者：纽约香草山农-四季
+原文采编：青青       编译撰稿：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a.png)图片来源：CTV
 
 
+据加拿大【CTV新闻】11月4日报道，英国政府当天对迄今为止成功治疗“新冠病毒”的第一种药物进行了有条件使用授权。尽管尚不明确该药的具体上市时间，但英国却由此成为首个批准【默克公司】提供其药物治疗方法的国家。
 
-11月4日，总部设在罗马的联合国粮食及农业组织（FAO）表示，受到谷物和植物油上涨的影响，世界粮食价格在10月份已经连续第三个月上涨，达到了10年来的新高峰。
+据悉，该被命名为“莫努匹拉韦”的药片被授权给18岁及以上、“新冠病毒”检测呈阳性的成年人使用，并且患者至少存在一个能发展成为严重疾病的风险因素，如肥胖或心脏病等。患有轻度至中度该病毒感染者将每次服用四片，每天两次，持续五天。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1351-1-2021-11-04T093001Z_2_LYNXMPEHA30H4_RTROPTP_0_PHILIPPINES-RICE_1.jpg)图片来源：REUTERS/Kham
+报道还称，“莫努匹拉韦”也在等待美国、欧盟和其他地区医药监管机构的审查。其中，【美国食品和药物管理局】上个月曾宣布，它将在11月下旬召集成立一个独立专家小组，以研究审查该药的安全性和有效性。
 
-联合国粮食及农业组织食品价格指数的跟踪显示，全球贸易量最大的食品商品的国际价格，上个月的平均指数为133.2点，而9月份的修正后指数为129.2点。
+* * *
 
-粮农组织表示，主要出口国特别是美、加、俄三国的小麦收成减少、全球市场供应紧张，将继续给小麦价格带来上行压力。世界植物油价格本月跳涨9.6%，创下历史新记录。相比之下，10月份全球糖价回落1.8%，结束了连续6个月的上涨。由于小麦贸易增加，粮农组织对全球谷物贸易预测上调至新纪录。
+校对编辑，发稿：硫酸羟氯喹64
 
-在过去一年中，受收割受挫和需求强劲的推动，农产品价格已经急剧上升。
-
-**原文链接：**
-
-[World food prices hit new 10-year high in October -FAO | One America News Network (oann.com)](https://www.oann.com/world-food-prices-hit-new-10-year-high-in-october-fao/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+[原文链接：](https://www.ctvnews.ca/health/coronavirus/u-k-authorizes-merck-antiviral-pill-1st-shown-to-treat-covid-19-1.5651764)
 
  
 

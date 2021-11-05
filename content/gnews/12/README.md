@@ -2,25 +2,54 @@
 ---
 
 
-## 澳大利亚联邦银行推出数字货币服务
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1639855/)
+## 联合国粮农组织：10月份世界粮食价格创10年新高
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1639873/)
 
-原文采编：UCool优酷 编译撰稿：文所未闻
+作者：纽约香草山农-四季
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-2-edited.jpg)图片来源：GNEWS
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-据韩国《经济时报》11月3日报道，作为澳大利亚首家最大金融机构，【澳大利亚联邦银行】目前已正式推出针对零售客户的加密数字货币服务。此举将对澳大利亚的银行业产生巨大影响。
 
-据悉，该银行将与一家位于纽约的加密货币交易所合作，允许其客户交易比特币、以太坊等加密数字货币。并将在未来几周开始其加密货币交易服务的试点营运。
 
-【澳大利亚联邦银行】首席执行官为此表示，加密数字货币的出现以及客户对此不断增长的需求为金融服务领域创造了挑战和机遇。银行完全可以通过提供安全可信的加密货币交易平台而在该投资邻域中发挥其重要作用。
 
-* * *
+11月4日，总部设在罗马的联合国粮食及农业组织（FAO）表示，受到谷物和植物油上涨的影响，世界粮食价格在10月份已经连续第三个月上涨，达到了10年来的新高峰。
 
-校对编辑，发稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1351-1-2021-11-04T093001Z_2_LYNXMPEHA30H4_RTROPTP_0_PHILIPPINES-RICE_1.jpg)图片来源：REUTERS/Kham
 
-[原文链接：](https://www.econotimes.com/Cryptocurrency-Commonwealth-Bank-of-Australia-becomes-the-countrys-first-to-offer-crypto-trading-services-1620577)
+联合国粮食及农业组织食品价格指数的跟踪显示，全球贸易量最大的食品商品的国际价格，上个月的平均指数为133.2点，而9月份的修正后指数为129.2点。
+
+粮农组织表示，主要出口国特别是美、加、俄三国的小麦收成减少、全球市场供应紧张，将继续给小麦价格带来上行压力。世界植物油价格本月跳涨9.6%，创下历史新记录。相比之下，10月份全球糖价回落1.8%，结束了连续6个月的上涨。由于小麦贸易增加，粮农组织对全球谷物贸易预测上调至新纪录。
+
+在过去一年中，受收割受挫和需求强劲的推动，农产品价格已经急剧上升。
+
+**原文链接：**
+
+[World food prices hit new 10-year high in October -FAO | One America News Network (oann.com)](https://www.oann.com/world-food-prices-hit-new-10-year-high-in-october-fao/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
