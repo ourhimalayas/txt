@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/5/2021 12:04 PM (UTC)`
+
+2021年11月5日 文贵大直播：香港股市跌动与糟糕的中共经济；维洲共和党赢与台湾及爆料革命；张高丽玩弄女性与高层政治事件；喜联储独立法人商业运作与我们
+![img](https://media.gettr.com/group22/origin/2021/11/05/12/41c406bb-be1b-c198-31d5-7946a859f12f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 11/5/2021 11:04 AM (UTC)`
 
 10月5号：尊敬的战友们好，今天星期五的大直播前．提前锻炼，因为今天没有时间锻炼了……任何情况下都不要给自己的承诺．和目标．找任何借口放弃！一切都已经开始！
@@ -287,13 +294,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 2021年11月2日: 法治基金,法治社会每周捐款留言精选集<br/>法治基金, 法治社会团队衷心感谢所有的捐款者和支持者！<br/><br/>2nd of November, 2021 Weekly Rule of Law Foundation and Society donors messages collection <br/>The Rule of Law Foundation and Society team heartfully thank all of our supporters and donors！
 ![img](https://media.gettr.com/group8/getter/2021/11/02/10/31/36cc78f1-c0a4-fd97-69a1-d0cc76dc6a25/out.jpg)
-
----
-
-`@miles 11/2/2021 4:59 AM (UTC)`
-
-11/1/2021【HCoin To the Moon Celebration】: We support both Pompeo and Trump running for President of the United States as long as they are determined to take down the CCP! We will not take sides!<br/><br/>11/1/2021【HCoin To the Moon 庆典】：我们既支持蓬培奥也支持川普竞选美国总统，只要他们坚决灭共！我们不会在他们之间选边儿站队！<br/>
-![img](https://media.gettr.com/group3/getter/2021/11/02/04/59/862c7ad2-9690-4a0c-8be6-1b80c49dba5a/out.jpg)
 
 ---
 
