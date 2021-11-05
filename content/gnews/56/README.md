@@ -2,38 +2,43 @@
 ---
 
 
-## 国际要闻汇编 11月4日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1637933/)
+## 字节跳动创始人张一鸣卸任董事长
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1638224/)
 
-#### 素材：东京樱花团｜GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-6.png)[*图片来源*](https://gdb.voanews.com/A2C057AA-C9EC-4D92-9459-222BB0157387_w1597_n_r1_st.jpg)
-1、[**CDC支持，拜登推广5-11岁儿童新冠疫苗**](https://www.voachinese.com/a/biden-pediatric-covid19-vaccine-20211103/6298956.html)
+翻译：西班牙喜悦农场–wenwu
 
-据美国之音3日消息，美国CDC通过5到11岁的儿童可以施打儿童辉瑞新冠疫苗，美国总统拜登11月3号下午在白宫说，政府上星期就开始配送辉瑞药厂的儿童疫苗到全美各地，他呼吁全美家长带孩子接种。美国疾管中心主任瓦兰斯基(Rochelle Walensky)在11月3号下午的白宫新冠疫情小组记者会上说，CDC的免疫咨议委员会星期二开会，检验了各项数据，还有临床实验之后的资料，建议美国5到11岁的儿童可以施打。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1.jpg)据报道，字节跳动创始人张一鸣身价约为 445 亿美元。 彭博新闻
 
-2、[**共和党籍政治素人赢选举, 拜登总统前景堪忧**](https://www.voachinese.com/a/virginia-election-republican-win-implication-for-biden-20211103/6298368.html)
+据周二（2日）晚间报道，字节跳动（ByteDance Ltd.）创始人张一鸣将在[辞去](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)（5月）TikTok 的[首席执行官](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)的数月后，一并辞去字节跳动的董事长（3日）的位置。
 
-在周二（2日）举行的美国弗吉尼亚州州长选举中，首次竞选公职的共和党籍候选人格伦・杨金（Glenn Youngkin）出人意料地战胜民主党籍的前州长特瑞・麦考利夫（Terry McAuliffe），成为弗吉尼亚州12年来的首位共和党籍州长。杨金曾是全球最大和最多元的投资公司之一的凯雷投资集团的执行长，也是一位从未竞选过公职的共和党政治素人，先前的民调也显示麦考利夫一度大幅领先杨金，没想到麦考利夫居然大意失了荆州。弗吉尼亚的这次州长选举有着影响力超越弗州的重大政治意义，既可能成为明年11月美国中期选举的风向标，又可以被视为对拜登总统将近一年来施政情况的民意公投。
+[彭博新闻](https://www.bloomberg.com/news/articles/2021-11-03/bytedance-s-zhang-exits-board-joining-exodus-by-tech-founders?srnd=technology-vp&amp;sref=Oeyjq8by)和[路透社](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)援引熟悉此事的消息人士的话[报道](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)称，字节跳动的首席执行官 Liang Rubo 将接替张先生担任董事长。
 
-3、[**美担心台海地区陷入意外战争**](https://www.voachinese.com/a/china-taiwan-war-20211103/6298911.html)
+周二早些时候，字节跳动宣布了一项将公司重组为六个业务部门的计划。作为重组的一部分，《华尔街日报》报道称，字节跳动[首席财务官](https://www.wsj.com/articles/bytedance-cfo-is-stepping-down-to-focus-on-tiktok-11635885543?mod=Searchresults_pos1&amp;page=1&amp;mod=article_inline) Shou Zi Chew 将卸任，专注于他作为 TikTok 首席执行官的角色。
 
-美国之音3日报道，台湾国防部的数据显示，到本月初为止，中国军机闯入台湾西南防空识别区已经超过700架次。此外，扰台军机距离台湾越来越近、机种越来越多，在“绕岛巡航”时开始左转、沿台湾东海岸飞行。观察人士担心，随着中国加大对台湾的军事压力，发生意外危机的风险只会越来越大。但美国参谋长联席会议主席马克·米利3日说，中国不太可能在这段时间动武。观察人士也警告说，目前台海地区真正的危机或并不在于北京会立即全面开战，而是解放军大量战机扰台等冒险行为容易导致台海地区陷入一场意外战争。
+随着中共国政府[收紧对互联网公司的控制](https://www.marketwatch.com/story/chinas-communist-party-exerting-tighter-control-over-the-countrys-internet-giants-01633320070?mod=article_inline)，38 岁的张是最近一位离开他们创立的公司的中共国亿万富翁。拼多多公司[PDD， +0.12%](https://www.marketwatch.com/investing/stock/PDD?mod=MW_story_quote)的创始人兼董事长 Colin Huang于 [3月](https://www.marketwatch.com/story/pinduoduo-founder-colin-huang-steps-down-from-company-11615997079?mod=article_inline)退出该公司；京东商城[JD， +0.82%](https://www.marketwatch.com/investing/stock/JD?mod=MW_story_quote)的创始人兼董事长刘强东于9月份退出[了公司的](https://www.marketwatch.com/articles/jd-com-says-founder-stepping-back-from-day-to-day-running-of-the-business-51630941420?mod=article_inline)日常管理；快手科技（Kuaishou Technology）联合创始人兼首席执行官 Su Hua 于[上周同样退出了公司](https://www.wsj.com/articles/chinese-video-platform-kuaishou-says-ceo-steps-down-11635529476?mod=article_inline)。
 
-4、[**中共审查课程 英国名校撤出中国**](https://www.aboluowang.com/2021/1104/1667639.html)
+总部位于北京的字节跳动成立于 2012 年，其热门应用 TikTok 每月拥有近 7 亿用户。截至上一轮融资时，私人持有的字节跳动估值为 1400 亿美元，但 [据彭博社报道](https://www.bloomberg.com/news/articles/2021-03-30/bytedance-is-said-valued-at-250-billion-in-private-trades?sref=Oeyjq8by) ，今年早些时候私有估值约为 2500 亿美元。
 
-英国大名鼎鼎的私立寄宿学校威斯敏斯特中学(Westminster School，也称为西敏公学)周二(2日)宣布，由于中共颁布新规定，要求所有课程设计必须得到北京批准，因此决定将停止在中国的营运。根据英国《电讯报》报导，威斯敏斯特中学在2017年公布将在中国四川省成都市设立双语分校，希望把收入拿来补贴伦敦弱势学生，但有鉴于“中国教育政策最近发生变化”，这项计划现已腰斩。中共要求所有私立学校现在都必须“维护中国共产党的领导”，即使是国际学校，从幼儿园到九年级也必须教授与中国公立学校相同的课程。此外，还限制外国控制及参与私校营运，规定学校董事会成员必须是中国人，并试图规范昂贵学费。
+彭博亿万富翁指数将张先生列为[全球第 31 位最富有的人，](https://www.bloomberg.com/billionaires/profiles/yiming-zhang/?sref=Oeyjq8by)财富价值约为 445 亿美元。
 
-5、[**台湾成立专案小组，防备北京利用深伪技术影响公投大选**](https://www.voachinese.com/a/taiwan-establishes-task-force-against-china-electron-meddling-deepfakes-20211103/6298493.html)
+**简评：**
 
-台湾国安局副局长陈进广周三（3日）在立法院证实，国安局已经成立专案小组，因对北京当局有可能利用深伪技术（Al Deepfake）变造台湾领导人影音或照片，影响台湾未来的公投和大选，以及国家安全和社会稳定。陈进广透露，国安局掌握的情资显示，中共当局自2018年起就对台湾领导人有影音和照片的变造情形。深伪技术不仅可能成为北京侵扰台湾、干预台湾政治的手段，而且也已经成为不法分子犯法或牟利的工具。内政部长徐国勇建议，可在刑法中增订“深伪犯罪条款”，明确其构成要件，符合罪刑法定原则。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1-1.jpg)图片来源于[禁文网](https://www.bannedbook.org/bnews/bannedvideo/20210908/1620501.html)
 
-6、[**美国启动专项行动 严格审查中国留学生**](https://www.aboluowang.com/2021/1104/1667622.html)
+**据2021年11月3日《DESCARGITAS》报道，中共国政府将越来越关注富有的科技企业家，许多亿万富翁积累了权力，并影响了威权。**
 
-中共官方11月2日透露，中共教育部留学服务中心的微信公众号发布文章说，今年8月上旬，美国海关与边境保护局（CBP）启动专项行动，强化对中国赴美留学的理工科人员审查力度，重点关注持有赴美学生签证（F1签证）的科学、技术、工程、数学类中国留学人员。美国情报部门近年来一直警告称，中共正在利用留学生间谍窃取美国机密，给美国带来国家安全风险。因此，美国政府2020年5月发布公告，禁止与中共军方有关、持F签（学生签证）和J签（访问学者签证）的中国留学生和学者入境美国。
+**阿里巴巴的联合创始人马云一直是被镇压的主要受害者，最近飞离中共国到西班牙度假。自从习近平主席去年阻止了他的在线金融平台蚂蚁金服集团的上市计划后，马云就限制了公开露面（此举曾发生在毛泽东时代）；外国科技公司与雅虎一起退出中共国，本周宣布“由于商业和法律环境变得越来越具有挑战性，离开中共国。”随着新的《数据保护法》于周一（1日）在中共国生效，恰好是雅虎退出中共国的时间，法律规定了私人公司收集个人信息的条件，并制定了如何使用这些信息的规则。**
 
-*编辑：东京樱花团 / 文小白
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**最后，向同胞们呼吁不要打疫苗，并且加入新中国联邦大家庭；从喜币上市可见，新中国联邦的实力是实实在在的。**
+
+新闻来源：[marketwatch.com] [ByteDance founder Zhang Yiming steps down as chairman: reports](https://www.marketwatch.com/story/bytedance-founder-zhang-yiming-steps-down-as-chairman-reports-11635909977) | 发布时间：2021年11月2日
+
+* * *
+
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

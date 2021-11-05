@@ -2,26 +2,24 @@
 ---
 
 
-## COVID-19最新情报｜疫苗专家：新冠疫苗只会减弱儿童免疫力
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1640682/)
+## 日本首推中共病毒预防药，疑含伊维菌素青蒿素
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640749/)
 
-台灣寶島農場 疫情關注組｜發佈日期/ 5/11/2021
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12-1.png)[图片来源](http://covid19anddruguse-1024x576.xn--png%20%281024576%29%20%28nyan-jp-omc.net%29/)
+读卖新闻11月5日报道，日本厚生劳动省5日特别批准了一种名为“抗体鸡尾酒疗法”的中共病毒治疗药物“ロナプリーブ”，同时，它成为第一个抑制发病的预防药物。到目前为止，它仅用于输液和注射。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+满足以下条件可用药预防：（1）中共病毒的密切接触者，或无症状感染者（2）原则上重症化风险高的人（3）未接种疫苗，接种效果不明显的人。
 
+日本政府虽然不承认，但郭先生提到，日本使用伊维菌素和青蒿素，使中共病毒感染人数骤减，此次的预防药物，是否也包含伊维菌素和青蒿素呢？
 
-一项[研究](https://www.medrxiv.org/content/10.1101/2021.07.31.21261387v4.full.pdf)指出，当前的新冠疫苗接种后突破性感染仍具备传染力。外媒指出以色列、美国等国家接续爆发突破性感染，重症病例中95%已经接受至少一剂疫苗、住院治疗中90%曾接种疫苗。
+信息来源：
 
-关于批准儿童接种新冠疫苗一事，德国感染研究中心疫苗开发办公室负责人[Geert Vanden Bossche 博士](https://www.geertvandenbossche.org/)曾参与GSK Biologicals、Novartis Vaccines、Solvay Biologicals等疫苗公司的研发，也曾是比尔和梅琳达·盖茨基金会的相关团队成员。他表示：新冠疫苗只会减弱儿童的免疫力。
+[コロナ発症予防薬、厚労省が特例承認…点滴だけでなく注射も認める](https://www.yomiuri.co.jp/medical/20211105-OYT1T50194/)
 
-美国国家医学图书馆网站上一篇[文献](https://pubmed.ncbi.nlm.nih.gov/32975552/)指出，与成年人相比，新冠病毒对儿童、青少年的传染性较低，但研究并未提供有关于儿童传染性的资讯。另一篇[研究指出](https://www.nature.com/articles/s41590-020-00826-9?campaign_id=154&amp;emc=edit_cb_20201106&amp;instance_id=23895&amp;nl=coronavirus-briefing&amp;regi_id=61609026&amp;segment_id=43815&amp;te=1&amp;user_id=73aefc51739a420f3d188e5...)，儿童感染新冠病毒的症状与成人不同，儿童通常为无症状、轻症，很少出现严重的呼吸道症状，但有可能并发罕见的小儿多系统发炎症候群。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-2.jpg)
-* * *
-
-参考来源｜[Natural News](https://www.naturalnews.com/2021-11-03-covid-vaccine-poses-more-risks-to-children.html)/[Nature Immunology](https://www.nature.com/articles/s41590-020-00826-9?campaign_id=154&amp;emc=edit_cb_20201106&amp;instance_id=23895&amp;nl=coronavirus-briefing&amp;regi_id=61609026&amp;segment_id=43815&amp;te=1&amp;user_id=73aefc51739a420f3d188e5...)/[National Library of Medicine](https://pubmed.ncbi.nlm.nih.gov/33031427/)/[National Library of Medicine](https://pubmed.ncbi.nlm.nih.gov/32975552/)
-撰文｜zhong
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

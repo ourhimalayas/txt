@@ -2,34 +2,27 @@
 ---
 
 
-## 韩国新冠病毒感染剧增
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640172/)
+## 澳大利亚正在训练军人上门挨家挨户强制疫苗接种
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1640461/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-截至当地时间11月3日0时，韩国单日确诊数达2667例，为历史第四高水平。韩联社称，这或许说明，本月1日启动的第一阶段“与疫共存”模式，以及上周五起连续三天的万圣节庆典，对疫情的后续影响开始显现。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture6.jpg)
-据悉，韩国首都首尔的两剂疫苗接种率已达76.7%，但在10月31日的646例新增确诊感染者中，仍有近半数、已完成两剂疫苗接种的“突破性感染”病例。目前，首尔市共有1万2663人在接种疫苗后依然感染病毒。
+撰稿：喜国公民
+视频来自网络
+近日，有澳大利亚现役军人向外界透露，部队的将军们正在强迫士兵们接受如何上门给居民强制疫苗接种的训练。
 
-然而，首尔防疫统筹兼市民健康局局长 朴有美却坚称，仍需对体弱及50岁以上人群进行疫苗追加接种，全然罔顾 “疫苗无用甚至有害”这一事实。
+训练在城区的训练场进行，包括怎样挨家挨户地把人们从家里拉出来，由医务人员强迫给居民接种疫苗。
 
-参考链接：
-1. [韩国新冠病毒感染剧增](https://cn.yna.co.kr/view/MYH20211103007900881?section=video/videos)
-2. [韩国新冠病毒感染剧增](https://news.yahoo.co.jp/articles/7d4bb7baa1d4606affe046394264c88653976ca9)
+训练还包括去野外的灌木丛中，抓捕那些逃跑的人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+令人难以置信的是，一个国家要动用军队来攻击自己的国民。这与欺压百姓的中共相比，是有过之而无不及。
 
-总编：Irene木木
-编辑：小鹿妞妞
-校对/发稿：Hetangyuese
+在2021年9月，澳洲政府任命了一名将军，约翰·弗里文中将，担任应对新冠病毒的联合指挥中心主任，来推动澳洲的疫苗强制接种。政府还为此提供了必要的资源。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+[这位将军曾表示](https://www.theaustralian.com.au/nation/politics/covid19-plan-b-to-target-the-reluctant/news-story/668e8071493c68441ec8bd285bd51b23?utm_source=TheAustralian&amp;utm_medium=email&amp;utm_campaign=editorial&amp;utm_content=TATodaysHeadlinesSubAM)，他的策略是要追踪那些对疫苗接种表示排斥或犹豫不决的人。
+
+(本文纯属个人观点，与Gnews无关)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

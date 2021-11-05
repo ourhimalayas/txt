@@ -2,35 +2,31 @@
 ---
 
 
-## 欧洲代表团首次访台，自动灭共进行中
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1640713/)
+## 11/5/2021中日财经爆 ：“油盐酱醋“都涨价，受苦的还是老百姓
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640779/)
 
-撰稿： 天鵝
+#### 整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5646.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimagepphcloud.dwnews.cc%2Fpph%2Fimage%2F162%2F361%2F656.jpg&amp;imgrefurl=https%3A%2F%2Fm.dwnews.cc%2FnewsDetail_forward_15238373&amp;tbnid=9GynDRf9CRtMhM&amp;vet=12ahUKEwjUkoe56oD0AhVdTPUHHdnPDiEQMygAegUIARCkAQ..i&amp;docid=OSNAGii9jA_ciM&amp;w=888&amp;h=608&amp;q=%E2%80%9C%E6%B2%B9%E7%9B%90%E9%85%B1%E9%86%8B%E2%80%9C%E9%83%BD%E6%B6%A8%E4%BB%B7&amp;ved=2ahUKEwjUkoe56oD0AhVdTPUHHdnPDiEQMygAegUIARCkAQ)
+11月4日，肉类食品专营企业得利斯称，一个月前已对预制菜相关牛肉类产品价格已进行了调整，近期也对部分牛肉类产品进行了再次提价。在必选消费品提价这件事上，得利斯不是第一个“吃螃蟹的人”。
 
-根据Independent报道[1]，2021年11月4日台湾总统蔡英文在总统办公室会见了来访的欧洲议会议员。欧洲议会代表团团长表示，目前是欧盟加强与台湾合作的“大好时机”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16360999941.png)图片来源： [https://static.independent.co.uk/2021/11/04/11/GettyImages-1236334830.jpg?width=990&auto=webp&quality=75](https://static.independent.co.uk/2021/11/04/11/GettyImages-1236334830.jpg?width=990&amp;auto=webp&amp;quality=75)
-同一天，中共国外交部发言人汪文斌在例行记者会上被提问时[2]，对此事表示了“强烈不满和坚决反对”，但言辞谦卑，要求欧洲议会“充分认识台湾问题的复杂敏感性，恪守欧方对一个中国原则的承诺，慎重妥善处理涉台问题，维护好中欧关系发展的政治基础”。中共一改前几个月的“飞扬跋扈”，“战狗外交”政策，此次的低调回应全面打脸了习神在辛亥革命110周年发表的统一台湾的宣言，让墙内的鸡血群众非常失望，中共宣传的“四个自信”也荡然无存。王毅出访中东欧效果甚微，此时中共也无暇顾及外交事务，加之中共内斗白热化，内部政治极不稳定，随时可能出现政治动荡危机。
+在更早前的10月13日，海天味业发公告称，将对酱油、蚝油、酱料等部分产品的出厂价格进行调整，调整幅度为3%-7%不等。
 
-欧洲议会此次访台，是有史以来第一个访问台湾的官方代表团。欧洲议会（外国干预欧盟民主程序特别委员会）主任拉斐尔·格鲁克斯曼 (Raphael Glucksmann) 告诉台湾总统：“我们带着一个非常简单、非常明确的信息来到这里。你不是一个人。欧洲与你们站在一起，捍卫自由、捍卫法治和人类尊严。”
+10月22日，洽洽食品也称，将对葵花子系列产品以及南[瓜子](https://36kr.com/projectDetails/3968812)、小而香西瓜子产品的出厂价格调整，提价幅度为8%-18%不等。
 
-欧洲议会在上个月通过了一项决议，呼吁议会“加强欧盟与台湾的政治关系”，短短时间内欧洲就迅速的行动了起来。格鲁克斯曼还说道，“我们的访问应被视为重要的第一步。但接下来，我们需要一个非常具体的高层会议议程和高层具体步骤，以建立更强大的欧盟-台湾伙伴关系”。从本周四开始，代表团将开展为期三天的访问，向台湾取经对抗威权威胁。
+随即，被称为“中国最大制醋企业”的恒顺醋业也宣布将于自11月20日起对部分产品进行价格调整，调整幅度5%-15%不等。主营[调味品](https://36kr.com/projectDetails/335067)的[加加](https://www.36dianping.com/space/4848401030?mp=zzquote)食品也在16日起对多种产品调价，上调幅度3%-7%不等。
 
-中共国海关总署本周也发出公告，“自2021年12月1日起，对输往欧盟成员国、英国、加拿大、土耳其、乌克兰和列支敦士登等地货物，不再签发普遍优惠制度原产地证书”，证实了美国、加拿大、欧洲等国家已不再给予中共国普惠制关税优惠待遇的消息。正如郭先生很早以前就说的，西方国家一定会与中共国脱钩，只是时间早晚的，代价几何的问题，自动脱钩，自动灭共的时代早已开始。如今，欧盟在如此短的时间内就迅速地做出行动，反映出了这些国家对中共国的脱钩方案很早就在谋划中了，充分体现了我们爆料革命、新中国联邦提供的关键信息和建议意义非凡。中共给全世界带来的灾难和损失正在不断发酵、增长，中共灭亡的日子不远了。
+近日，金龙鱼放出信号称，关于调价，公司要平衡消费者的接受度与公司的成本、利润及长远发展之间的关系，较为稳健的处理调价问题。
 
-(本文纯属个人观点，与Gnews无关)
+此外，盐业上市公司也于进入宣布集体涨价，继雪天盐业称小包食盐出厂价近期陆续提价后，云南能投也透露，对部分食盐产品及工业盐产品价格进行上调。
 
-参考消息：
+至此，中共国内市场“油盐酱醋”到食品肉类已全部涨价。对于本就单价不高的食品以及日用品来说，原材料成本上涨的压力传导到了消费者身上。“涨价潮”来袭，部分消费者已经开始“囤货”。
 
-[1]China warns EU not to make ‘mistake’ as first official delegation visits Taiwan, calling for closer ties
+消息来源:
+[受原材料成本影响，“油盐酱醋”已全部涨价](https://36kr.com/p/1471582648461059)
 
-[https://www.independent.co.uk/asia/china/china-eu-delegation-taiwan-b1951406.html](https://www.independent.co.uk/asia/china/china-eu-delegation-taiwan-b1951406.html)
-
-[2] 2021年11月4日外交部发言人汪文斌主持例行记者会
-
-[https://www.fmprc.gov.cn/web/fyrbt\_673021/jzhsl\_673025/t1918679.shtml](https://www.fmprc.gov.cn/web/fyrbt_673021/jzhsl_673025/t1918679.shtml)
-
-发布：五饼二鱼
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

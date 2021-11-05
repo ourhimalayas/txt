@@ -2,28 +2,25 @@
 ---
 
 
-## 中共国又一房企百亿理财产品爆雷 佳兆业股价再次暴跌
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1640674/)
+## COVID-19最新情报｜即便证据在眼前 佛奇仍否认曾资助武毒所
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1640735/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-7.png)
-图片来自网络
+台灣寶島農場 疫情關注組｜發佈日期/ 5/11/2021
 
-据《希望之声》2021年11月5日报道，11月4日，中共国地产开发商佳兆业担保的一款理财产品突发爆雷，涉及金额约127亿元人民币。当天，佳兆业在港股市场的市值跌至每股1港元，跌幅达15%，跌至历史最低点。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-佳兆业在声明中表示，公司由于信用评级下调以及“房地产市场环境恶劣”，正面临“前所未有的流动性压力”。企业方目前正在试图解决理财产品的付款问题。
 
-然而，众多投资者却毫不买账。11月4日，近千名投资人前往佳兆业深圳总部维权，场面一片混乱。
+美国参议员兰德·保罗于11月4日的参议院听证会上，质询美国国家过敏和传染病研究所([NIAID](https://www.niaid.nih.gov/))主任安东尼．佛奇，关于“美国国立卫生研究院是否资助武汉病毒研究所进行功能增强实验”是否执意继续撒谎。（[相关影片片段](https://www.nationalreview.com/news/rand-paul-rips-into-fauci-over-continued-gain-of-function-research-denials-demands-resignation/https://www.nationalreview.com/videos/rand-paul-rips-into-fauci-over-persistent-gain-of-function-research-denials-demands-resignation/)）
 
-“野村证券”信用分析师艾丽丝·陈（Iris Chen）表示，这样的问题会进一步影响中共国房地产市场。投资者越来越担心地产开发商担保的理财产品的可靠性，原因是理财产品的运营状况通常很难从公司的财务报告中追踪，这导致这种投资风险极高。
+参议员保罗引用[美国国立卫生研究院承认曾经资助武汉病毒研究所进行病毒功能增强实验](https://www.nationalreview.com/news/nih-admits-to-funding-gain-of-function-research-in-wuhan-says-ecohealth-violated-reporting-requirements/)，指责佛奇公开撒谎，谎称NIH不曾资助过武毒所进行功能增强实验。保罗称：武汉病毒实验所的实验，目的在于让自然界的病毒更具危险性。佛奇撒谎美国卫生研究院未资助武汉实验室一事，保罗称这是玩语言游戏，佛奇的行为已经对美国、世界造成了明显的威胁。
 
-此外，佳兆业在11月3日晚间表示，其10月地产合约销售额较上年同期下降逾 30%，这加剧了企业的资金链困境。
+保罗强调，资助实验室进行病毒功能增强实验，可以创造出新病毒，导致下一次的大流行。新冠病毒目前致死率约为“百分之一”，然而武汉病毒实验室正在试验一种死亡率在15-50%的新病毒，这对人类文明造成巨大的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-2-1.jpg)
+* * *
 
-由于投资者越来越担心佳兆业偿还债务的能力，佳兆业的股价在今年的跌幅达到近 73%。惠誉和标准普尔全球评级均在10月份，将已经为垃圾级的佳兆业评级下调至 CCC+，接近其评级范围的底部，理由是该企业的再融资活动构成风险。
-
-注：本文仅代表作者观点
-
-**新闻链接：**[https://www.soundofhope.org/post/562464](https://www.soundofhope.org/post/562464)
+参考来源｜[NATIONAL REVIEW](https://www.nationalreview.com/news/rand-paul-rips-into-fauci-over-continued-gain-of-function-research-denials-demands-resignation/)
+撰文｜zhong
 
  
 

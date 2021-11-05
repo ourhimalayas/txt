@@ -2,26 +2,25 @@
 ---
 
 
-## 秘翻在线：共和党参议员推出《台湾吓阻法案》
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1640693/)
+## 30万册漫画免费读，日本疑似为第三针做准备
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640756/)
 
-#### 撰稿：彩虹
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/11/123.png)[图片来源](https://www.smartmagazine.jp/kansai/article/fun/2332/)
+每日新闻11月5日报道，“在接种新型冠状病毒疫苗的等待时间中，您可以免费阅读约30万本漫画。” 京都市将京都国际漫画博物馆（中京区）设为集体接种点，该接种点目前很受欢迎。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-14.jpg)图片来源：路透社
-11月4日，《国会山报》（The Hill）报道，随着台海紧张局势的不断升级，美国共和党参议员提出一项法案，寻求增加对台湾的军事援助。该法案名为《台湾吓阻法案》（Taiwan Deterrence Act），目的在于加强台湾的防御能力，以抵御来自于中共的侵略攻击。
+接种地点在博物馆的一楼大厅，闭馆后从下午6点半到8点半开放，通常需要入场费（成人900日元），但如果预约新冠疫苗接种，预约接种者可以在接种前等待时间内，或接种后免费阅读馆内收藏的约30万册漫画，其同伴（一名）也可免费阅读。
 
-该法案由参议院外交关系委员会高级官员共和党人詹姆斯·里施（Jim Risch）为主要提案人，共同提案人包括：马可·鲁比奥（Marco Rubio）、米特·罗姆尼（Mitt Romney）、约翰·康宁（John Cornyn）、比尔·海格提（Bill Hagerty）和迈克·克拉波（Mike Crapo）。
+该举措是为促进接种率相对低的年轻人接种疫苗,似乎在为即将开始的第三针疫苗推广做准备。
 
-该法案规定，只要台湾满足某些条件，美国将每年向台湾提供20亿美元的军事拨款和贷款，直到2032年。这些条件包括台湾承诺要与美国的支出相匹配，以及台湾要同意与美国就如何提高台湾的防御能力进行长期规划。
+信息来源：
 
-值得注意的是，该法案还将修改《武器出口管制法》（Arms Export Control Act），使得美国能够更加容易地向台湾出售武器。
+[マンガ30万冊読み放題　京都市の接種会場、人気で予約枠を拡大](https://mainichi.jp/articles/20211105/k00/00m/040/126000c)
 
-报道指，如果该法案获得通过，则将每年对台湾针对中共国的防御能力进行一次评估。
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
 
-**新闻来源**
-
-[Republican Senators request military aid for Taiwan amid pressure from China](https://thehill.com/homenews/senate/580198-republican-senators-request-military-aid-for-taiwan-amid-pressure-from-china)
 
  
 
