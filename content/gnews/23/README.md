@@ -2,20 +2,47 @@
 ---
 
 
-## 为辉瑞工作的公司伪造疫苗数据
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1640897/)
+## 班农专访2: 中共第三次六中全会聚焦其政权的合法性
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1640948/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11053.jpg)图片来自Corvelva
-由调查记者 Paul D Thacker 撰写并发表在英国医学杂志上的一篇文章披露：在德克萨斯州一家专门从事临床试验的公司 Ventavia 中工作的一名内部目击者称该公司向美国食品和药物管理局 (Fda) 报告了许多关于疫苗的虚假数据。
+**简评：**
 
-这篇文章的主要来源是前 Ventavia 员工 Brook Jackson，他在辉瑞 / BioNTech 疫苗测试上工作了两周，他目睹了许多虚假伪造，包括“双盲”评估系统中的一些问题。
+即将召开的中共历史上第三次六中全会聚焦其政权的合法性。中共现在内外交困，国内经济面临崩溃，燃料危机、食物短缺，另一方面中共又积极想要攻打台湾，并以一带一路继续其扩张野心，成为亚洲甚至全球霸主。中共现在正处在一场你死我活的内部的政治斗争中，六中全会是权力的聚焦点。
 
-消息人士称，这家德克萨斯公司雇用了训练有素的疫苗接种员，并且对辉瑞关键 III 期研究中报告的不良事件的跟进速度非常缓慢。
+[GTV视频链接](https://gtv.org/video/id=617cb437adfd99590c315985)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/110501.jpg)
+**视频字幕：**
 
-原文链接：[https://www.today.it/partner/adnkronos/salute/covid-bmj-azienda-che-lavorava-per-pfizer-ha-falsificato-dati-vaccino.html](https://www.today.it/partner/adnkronos/salute/covid-bmj-azienda-che-lavorava-per-pfizer-ha-falsificato-dati-vaccino.html)
+**主持人Castle：**11月初中共将举行六中全会，将产生中共历史上的第三次决议，是党内的一个非常重要的指导性文件，历史上只做过两次。第一个是毛泽东为了推动马列主义的政治运动所做的，第二个是邓小平为了停止阶级斗争，集中精力发展经济所做的。你认为习近平在党的历史的第三个决议中想做什么？谢谢。
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+**班农先生：**我认为习近平正在做的是寻找（其统治的）合法性。我认为他们最大的焦点是合法性的来源。好让中国人民认为他们是一个真正的合法政府，而不仅仅是一个革命政府或在一段时间内赢得内战的政府。
+
+我认为习近平的全部重点将是试图向中国人民证明这一点，并通过围绕统一台湾来激发这一点。另外一方面是以中国人民为代价的一带一路，渴望成为全球霸主，不仅是亚洲，而是全球。
+
+11月，将进入中国有史以来最寒冷严酷的冬天，燃料有限、食物有限，没什么能力奉上春节礼物。所以在接下来的90天里，他（习近平）会有真正的麻烦。他必须把人们的注意力转移开。
+
+而且我认为，每一个努力都是为了让人们把注意力集中到某种扩张性，中国梦，中共的扩张和其合法性，权力的扩张。这非常重要。但除此之外，我认为习近平最大的障碍是，他和其他派别正处于一场关于中国内部经济的你死我活的斗争中。以及，坦率地说，为什么中国人民没有像世界上其他人民那样繁荣兴旺所给习带来的政治压力。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/班农专访.jpg)
+*字幕/听写：云岭| 翻译：致良知| 校对：Roberts|简评/文字整理/编辑：胖丁*
+
+
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
+
+
+
 
  
 

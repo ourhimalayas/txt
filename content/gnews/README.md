@@ -15,149 +15,149 @@
 
 ---
 
-### [盖特：可以自由发表言论的安全平台](/content/gnews/1/README.md)
+### [樱花灭共诗——末途之罪（新韵）](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [喜币是数字货币而非虚拟货币](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [喜交所上市前采访各职能团队](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [由于中共的严厉审查，雅虎撤出中共国](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共灭亡的倒计时正式开启](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [秘翻在线：中共强硬断供欧洲“镁”，脱钩时代已开启](/content/gnews/6/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [保护劳工人权，日本迈出历史性一步](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [盖特：可以自由发表言论的安全平台](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [辉瑞前副总裁叶顿：我们正走向阴谋的第五步骤](/content/gnews/2/README.md)
+### [辉瑞前副总裁叶顿：我们正走向阴谋的第五步骤](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [辉瑞疫苗在美试验中严重违规 伪造数据](/content/gnews/3/README.md)
+### [辉瑞疫苗在美试验中严重违规 伪造数据](/content/gnews/10/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [保罗议员致信福奇要求其提供狗的动物实验信息](/content/gnews/4/README.md)
+### [保罗议员致信福奇要求其提供狗的动物实验信息](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [西媒头条 — 第103期](/content/gnews/5/README.md)
+### [西媒头条 — 第103期](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国台办：“台独”将被追究刑责，或禁止进入大陆](/content/gnews/6/README.md)
+### [中共国台办：“台独”将被追究刑责，或禁止进入大陆](/content/gnews/13/README.md)
  ` 首尔天池农场`
 
-### [中共和美国精英就疫苗问题在科学界深度融合](/content/gnews/7/README.md)
+### [中共和美国精英就疫苗问题在科学界深度融合](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [立陶宛外交副部长：中共国对待立陶宛的方式为欧洲敲响“警钟”](/content/gnews/8/README.md)
+### [立陶宛外交副部长：中共国对待立陶宛的方式为欧洲敲响“警钟”](/content/gnews/15/README.md)
  ` 首尔天池农场`
 
-### [2021年11月5日 澳喜要闻摘要](/content/gnews/9/README.md)
+### [2021年11月5日 澳喜要闻摘要](/content/gnews/16/README.md)
  ` 澳喜农场`
 
-### [国际刑事法院调查委内瑞拉](/content/gnews/10/README.md)
+### [国际刑事法院调查委内瑞拉](/content/gnews/17/README.md)
  ` Shuizhuyu`
 
-### [中共模式：健康儿童行动五年新目标](/content/gnews/11/README.md)
+### [中共模式：健康儿童行动五年新目标](/content/gnews/18/README.md)
  ` 儒为`
 
-### [班农专访6: 反抗强制疫苗就是反抗共产主义](/content/gnews/12/README.md)
+### [班农专访6: 反抗强制疫苗就是反抗共产主义](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [喜币成功上市让我更加全力以赴灭共](/content/gnews/13/README.md)
+### [喜币成功上市让我更加全力以赴灭共](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [来自澳大利亚的“SOS求救”澳洲反抗暴政者呼吁国际社会支援](/content/gnews/14/README.md)
+### [来自澳大利亚的“SOS求救”澳洲反抗暴政者呼吁国际社会支援](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [欧洲央行现在正在软化欧元](/content/gnews/15/README.md)
+### [欧洲央行现在正在软化欧元](/content/gnews/22/README.md)
  ` Shuizhuyu`
 
-### [班农专访2: 中共第三次六中全会聚焦其政权的合法性](/content/gnews/16/README.md)
+### [班农专访2: 中共第三次六中全会聚焦其政权的合法性](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [网球冠军彭帅自爆被前中共常委张高丽性侵](/content/gnews/17/README.md)
+### [网球冠军彭帅自爆被前中共常委张高丽性侵](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共包括福建在内多地出现疯狂抢购,民众因抢粮大打出手](/content/gnews/18/README.md)
+### [中共包括福建在内多地出现疯狂抢购,民众因抢粮大打出手](/content/gnews/25/README.md)
  ` NewFOC`
 
-### [Youngkin在维州民意调查中领先，被视为2022年中期选举的风向标](/content/gnews/19/README.md)
+### [Youngkin在维州民意调查中领先，被视为2022年中期选举的风向标](/content/gnews/26/README.md)
  ` 纽约香草山MOS02`
 
-### [北京人大代表独立参选人成中共阶级敌人（709维权律师家属宣布独立参选区县人大代表续报）](/content/gnews/20/README.md)
+### [北京人大代表独立参选人成中共阶级敌人（709维权律师家属宣布独立参选区县人大代表续报）](/content/gnews/27/README.md)
  ` 纽约香草山MOS02`
 
-### [邦吉诺：要么留下我，要么留下“強制令”](/content/gnews/21/README.md)
+### [邦吉诺：要么留下我，要么留下“強制令”](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国出价千万美元逮捕暗黑黑客](/content/gnews/22/README.md)
+### [美国出价千万美元逮捕暗黑黑客](/content/gnews/29/README.md)
  ` Shuizhuyu`
 
-### [为辉瑞工作的公司伪造疫苗数据](/content/gnews/23/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [公民记者张展有死亡的风险](/content/gnews/24/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [共和党希望取得维州议会多数，民主党试图继续保持权力](/content/gnews/25/README.md)
- ` 纽约香草山MOS02`
-
-### [疫苗的有效率到底是多少？](/content/gnews/26/README.md)
+### [疫苗的有效率到底是多少？](/content/gnews/30/README.md)
  ` 澳喜农场`
 
-### [比尔·盖茨希望美国和英国花数十亿在“细菌游戏”上](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [旧金山将强制5岁儿童进入餐厅时出示疫苗护照](/content/gnews/28/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共国本轮疫情已波及19个省份](/content/gnews/29/README.md)
+### [中共国本轮疫情已波及19个省份](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [11/5/2021中日财经爆 ：“油盐酱醋“都涨价，受苦的还是老百姓](/content/gnews/30/README.md)
+### [11/5/2021中日财经爆 ：“油盐酱醋“都涨价，受苦的还是老百姓](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/5/2021中日财经爆：中国移动被美退市，回A股割韭菜](/content/gnews/31/README.md)
+### [11/5/2021中日财经爆：中国移动被美退市，回A股割韭菜](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/5/2021中日财经爆：教培“团灭”，东方已败](/content/gnews/32/README.md)
+### [11/5/2021中日财经爆：教培“团灭”，东方已败](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [COVID-19最新情报｜即便证据在眼前 佛奇仍否认曾资助武毒所](/content/gnews/33/README.md)
+### [COVID-19最新情报｜即便证据在眼前 佛奇仍否认曾资助武毒所](/content/gnews/35/README.md)
  ` G&#124;News TAIWAN`
 
-### [中共国多地出现粮食抢购现象](/content/gnews/34/README.md)
+### [中共国多地出现粮食抢购现象](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [华为成立4大军团，同时出售服务器业务](/content/gnews/35/README.md)
+### [华为成立4大军团，同时出售服务器业务](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [美联邦参议员霍利提出武装台湾法案](/content/gnews/36/README.md)
+### [美联邦参议员霍利提出武装台湾法案](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [美国商务部次长提名人称，将严管对华科技出口](/content/gnews/37/README.md)
+### [美国商务部次长提名人称，将严管对华科技出口](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
-### [岸田文雄外交首秀 与拜登会晤强化美日同盟](/content/gnews/38/README.md)
- ` GTV新闻访谈`
-
-### [COVID-19最新情报｜疫苗专家：新冠疫苗只会减弱儿童免疫力](/content/gnews/39/README.md)
+### [COVID-19最新情报｜疫苗专家：新冠疫苗只会减弱儿童免疫力](/content/gnews/40/README.md)
  ` G&#124;News TAIWAN`
 
-### [文·贵天成——文贵先生谈“吴征、杨澜”（十八）](/content/gnews/40/README.md)
+### [文·贵天成——文贵先生谈“吴征、杨澜”（十八）](/content/gnews/41/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文·贵天成——文贵先生谈“吴征、杨澜”（十七）](/content/gnews/41/README.md)
+### [文·贵天成——文贵先生谈“吴征、杨澜”（十七）](/content/gnews/42/README.md)
  ` 墨尔本雅典娜农场`
 
-### [爆料革命——历史的今天10月29日](/content/gnews/42/README.md)
+### [爆料革命——历史的今天10月29日](/content/gnews/43/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [11/5/2021中日财经爆：李鬼告赢了李逵，无印良品输给了山寨](/content/gnews/43/README.md)
+### [11/5/2021中日财经爆：李鬼告赢了李逵，无印良品输给了山寨](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [维迦诺大主教一封有关疫苗的公开信](/content/gnews/44/README.md)
+### [维迦诺大主教一封有关疫苗的公开信](/content/gnews/45/README.md)
  ` 墨尔本雅典娜农场`
 
-### [喜联储是新中国联邦人的利益共同体和中央银行铸币中心](/content/gnews/45/README.md)
+### [喜联储是新中国联邦人的利益共同体和中央银行铸币中心](/content/gnews/46/README.md)
  ` NewFOC`
 
-### [11/5/2021中日财经爆：中共股市骗局，富祥药业一天蒸发23亿](/content/gnews/46/README.md)
+### [11/5/2021中日财经爆：中共股市骗局，富祥药业一天蒸发23亿](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [举报人揭辉瑞疫苗试验“伪造数据”后，辉瑞正接受调查](/content/gnews/47/README.md)
+### [举报人揭辉瑞疫苗试验“伪造数据”后，辉瑞正接受调查](/content/gnews/48/README.md)
  ` 墨尔本雅典娜农场`
-
-### [议员敦促拜登政府应减少在保卫台湾问题上的模糊性](/content/gnews/48/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [在英国发布有关疫苗的“虚假信息 ”可能会被判入狱两年](/content/gnews/49/README.md)
  ` 墨尔本雅典娜农场`

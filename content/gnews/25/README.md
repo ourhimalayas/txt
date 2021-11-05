@@ -2,46 +2,50 @@
 ---
 
 
-## 共和党希望取得维州议会多数，民主党试图继续保持权力
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1640863/)
+## 中共包括福建在内多地出现疯狂抢购,民众因抢粮大打出手
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1640926/)
 
-作者：纽约香草山农场 – 柳是多水土透
+据[银河勇气之星（新号）@COURAGESTARnew](https://twitter.com/COURAGESTARnew)于[下午3:14 · 2021年11月5日](https://twitter.com/COURAGESTARnew/status/1456520286015148033)发布的推文——
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-在维州众议院民主党有10席优势，如共和党想夺得多数权，需要在本次选举中至少赢得6席。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/10.png)
-
-最近的民意调查显示，两党在包含州长席位的公职中竞争激烈。共和党曾在1991-2009近30年中保持维州众议院控制权，但民主党在2017和19年选举中取得进展。
-
-“我们有信心赢回流失到民主党的席位” 少数派领袖Todd Gilbert的发言人R-Shenandoah说到 “选民意识到民主党停止了强制性犯罪报告，让学校变得更不安全，他们从监狱释放了危险的罪犯并且把警察当敌人来看待。民主党征收燃油税，使家庭的能源账单至少增长800美金”。
-
-在得到议会控制权后，民主党通过了一系列法案，包含更严格的枪支控制，大麻合法化，授权地区政府提高税收，工会授权，增加最低收入，刑事司法改革和严厉的环境保护规章等。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-- [https://justthenews.com/nation/states/republicans-hope-flip-virginia-house-dems-try-keep-control](https://justthenews.com/nation/states/republicans-hope-flip-virginia-house-dems-try-keep-control)
+This scene is very sad.Don’t happen again 这一幕非常令人心疼，别再发生了
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
 
-***编辑***：***正义的小新***
-***校对/发稿：海阔天空1***
+> This scene is very sad.Don’t happen again
+> 这一幕非常令人心疼，别再发生了🙏 [pic.twitter.com/w2qjWy1rNN](https://t.co/w2qjWy1rNN)
+> — 银河勇气之星⭐（新号） (@COURAGESTARnew) [November 5, 2021](https://twitter.com/COURAGESTARnew/status/1456520286015148033?ref_src=twsrc%5Etfw)
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+根据视频显示，中共内地多地持续出现疯狂抢购，因为抢粮而大打出手，有些地区超市被抢购一空，（北京）卖大米的从来没想到今年能这么火。福建省南安超市货架货品都被抢光了，货架货品都被抢光喽，南安湖西超市都被抢光了，整家超市都被抢光的，祥龙干货带头抢光了厦门唐朝食品配送商的存货。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+关于存粮的问题，郭文贵先生也在[2021年11月03 日 文贵大直播：彭帅爆张高丽丑闻，再次验证爆料革命的真实性；喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产；房地产税会灭国灭党；共和党在弗吉尼亚州长竞选获胜意味着什么](https://gtv.org/video/id=61827dfd11d186296800dd83)中进行了解惑。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+郭先生提到共产党也知道现在国外进口的粮食越来越困难，国内很多所谓的战略粮是给国家军队用的，不是给老百姓用的，另外由于今年中共国到处发大水，因自然灾难导致严重缺粮，并且中共现在并没有发放公粮的体制，到时候即使有公粮也发不下去，所以中共鼓励大家存粮，用囤粮的办法解决中共国根本没有战争时期或自然灾难下分配粮食的体制，避免饿死更多人。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+自助者天必助之，远离一线二线城市，远离军事目标，储存必要的生活物资并保证在至暗时刻来临时有基本的水电通讯条件和安全的庇护场所或许应该是十四亿同胞们目前最急需解决的事情了。
+
+撰稿：喜马拉雅的肉夹馍
+
+审核：喜马拉雅的馍夹肉
+
+校对：Maarago
+
+（文章内容仅代表作者个人观点）
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

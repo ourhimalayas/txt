@@ -2,25 +2,47 @@
 ---
 
 
-## COVID-19最新情报｜疫苗专家：新冠疫苗只会减弱儿童免疫力
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1640682/)
+## 美国商务部次长提名人称，将严管对华科技出口
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640718/)
 
-台灣寶島農場 疫情關注組｜發佈日期/ 5/11/2021
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+作者：纽约香草山农场 – 柳是多水土透
 
 
-一项[研究](https://www.medrxiv.org/content/10.1101/2021.07.31.21261387v4.full.pdf)指出，当前的新冠疫苗接种后突破性感染仍具备传染力。外媒指出以色列、美国等国家接续爆发突破性感染，重症病例中95%已经接受至少一剂疫苗、住院治疗中90%曾接种疫苗。
 
-关于批准儿童接种新冠疫苗一事，德国感染研究中心疫苗开发办公室负责人[Geert Vanden Bossche 博士](https://www.geertvandenbossche.org/)曾参与GSK Biologicals、Novartis Vaccines、Solvay Biologicals等疫苗公司的研发，也曾是比尔和梅琳达·盖茨基金会的相关团队成员。他表示：新冠疫苗只会减弱儿童的免疫力。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-美国国家医学图书馆网站上一篇[文献](https://pubmed.ncbi.nlm.nih.gov/32975552/)指出，与成年人相比，新冠病毒对儿童、青少年的传染性较低，但研究并未提供有关于儿童传染性的资讯。另一篇[研究指出](https://www.nature.com/articles/s41590-020-00826-9?campaign_id=154&amp;emc=edit_cb_20201106&amp;instance_id=23895&amp;nl=coronavirus-briefing&amp;regi_id=61609026&amp;segment_id=43815&amp;te=1&amp;user_id=73aefc51739a420f3d188e5...)，儿童感染新冠病毒的症状与成人不同，儿童通常为无症状、轻症，很少出现严重的呼吸道症状，但有可能并发罕见的小儿多系统发炎症候群。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-2.jpg)
-* * *
 
-参考来源｜[Natural News](https://www.naturalnews.com/2021-11-03-covid-vaccine-poses-more-risks-to-children.html)/[Nature Immunology](https://www.nature.com/articles/s41590-020-00826-9?campaign_id=154&amp;emc=edit_cb_20201106&amp;instance_id=23895&amp;nl=coronavirus-briefing&amp;regi_id=61609026&amp;segment_id=43815&amp;te=1&amp;user_id=73aefc51739a420f3d188e5...)/[National Library of Medicine](https://pubmed.ncbi.nlm.nih.gov/33031427/)/[National Library of Medicine](https://pubmed.ncbi.nlm.nih.gov/32975552/)
-撰文｜zhong
+
+拜登总统提名美国商务部次长人选Alan Estevez，在给共和党参议员科顿和Bill Hagerty的书面信中表示，将尽最大努力，加快推出关于先进技术的新规则。并许诺在适当情况下，加强美国对半导体软件和技术销售的限制，包括“积极地”监管对中共国的科技出口。
+
+美国商务部负责工业和安全事务的次长，主掌工业与安全局BIS，主要负责与国务院一同监管出口敌对国家的敏感受控技术及产品，及在合规的情况下签发授权。在美中科技战背景下，BIS的作用至为重要。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-17.jpg)
+参考链接：
+[美国商务部次长提名人称将严管对华科技出口 参议员科顿放弃阻挠任命](https://cn.reuters.com/article/usa-commerce-official-china-11tues-idCNKBS2HO07V)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：童谣
+编辑：Kathy文艺
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

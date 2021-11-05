@@ -2,40 +2,40 @@
 ---
 
 
-## 比尔·盖茨希望美国和英国花数十亿在“细菌游戏”上
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1640841/)
+## 北京人大代表独立参选人成中共阶级敌人（709维权律师家属宣布独立参选区县人大代表续报）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1640913/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：澳喜农场 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+本月15日，中共709维权律师大抓捕案的14名家属，在发表独立候选人联合宣言，表示要参选区级人大代表以后，就受到了中共当局的严加管控，被当成上访户和阶级敌人。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/bill-gates-768x515-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-1.jpeg)
+
+参选人之一的朱秀玲计划29日进行选举宣传，但是中共的警车自21日起就停在她的小区门口，有警察直接上门警告她当天不得外出。还有选民家门口有警察在24小时看守，根本无法出门。另有两名选民被警察强行带到外地“旅游”，等到投票时才能回到北京，选举宣传活动被迫取消。还有选民在发布竞选宣言之后，当地乡政府竟然开始对其居住的房屋进行强拆。 虽然中共《宪法》规定允许独立候选人参加地方选举，但是对老百姓来说，这只是一场骗局而已。这些选民的遭遇，正是对中共党魁习近平所称的，中共国“最广泛、最真实、最管用”的社会主义民主的最好讽刺。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+- [https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/xx-10292021111437.html](https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/xx-10292021111437.html)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
 
-图片来源：AP Photo / Anja Niedringhaus, File
+***编辑***：***正义的小新***
+***校对/发稿：海阔天空1***
 
+**更多资讯，更多关注**
 
-#### 编译：小红帽
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-比尔·盖茨 (Bill Gates) 建议将数十亿美元投入到全球流行病工作组，开展“细菌游戏”，为未来的疾病爆发或生物攻击做准备，从而引起了批评人士的警惕。
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-盖茨在本周的COP26峰会上与卫生特别委员会主席和英国前卫生部长杰里米·亨特（Jeremy Hunt）讨论时发表了上述评论。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-盖茨称：“[世界卫生组织]层面上，大流行病工作组每年可能需要大约10亿美元。该工作组正在进行监测，并进行我称之为‘细菌游戏’的练习。”他给出了一个生物恐怖分子在多个机场释放天花的“假设”场景，作为一种潜在的“细菌游戏”，可为攻击做准备。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-盖茨表示，由于中共病毒（COVID-19）大流行，他的“全球大流行工作组”必须尽早获得资金，并且应该成为一个“优先事项”。明年必须得到这些拨款的地方就包括这个全球大流行工作组。美国和英国都需要先花 “几百亿”进行研究和开发。
-
-盖茨说，这项研究和开发将包括使疫苗更便宜、获得“大（制药）工厂”以及“根除”普通感冒和流感。
-
-**参考新闻：**[Bill Gates wants US & UK to spend billions on ‘germ games’ — RT World News](https://www.rt.com/news/539398-bill-gates-germ-games-pandemic/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

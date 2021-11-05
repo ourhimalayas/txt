@@ -2,27 +2,49 @@
 ---
 
 
-## 疫苗的有效率到底是多少？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1640850/)
+## Youngkin在维州民意调查中领先，被视为2022年中期选举的风向标
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1640925/)
 
-撰稿：Runaway
-![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率1-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率2-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率3-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率4-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率5-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率6-1.jpg)
-以上数据统计的分析表明，接种双重疫苗的人群将在未来3-6个月内不但失去疫苗的有效性，还将失去自然免疫力。面对欧洲的冬、春各种病毒容易传染的季节，失去自然免疫力的人群将面临灾难性的后果。
+作者：纽约香草山农场 – 柳是多水土透
 
-另据BBC和ABC NEWS今日报道，“世卫组织再次警告欧洲处于大流行的中心”，“世卫组织表示，对欧洲的COVID-19激增严重关切，因为住院人数在一周内翻了一番”。
-雅典娜农场
-（文章仅代表作者观点，与Gnews无关）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-发稿：Runaway
+共和党维吉尼亚州候选人Youngkin在民调中领先，福克斯新闻显示，企业家Youngkin领先对手8%。
 
-参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11.png)
 
-[Europe’s COVID-19 surge a ‘grave concern’ says WHO, as hospitalisations double in one week](https://www.abc.net.au/news/2021-11-05/europe-grave-concern-500k-covid-deaths-surge/100596398)
+他的竞争者，前州长Terry McAuliffe的竞选集会在本周有更少的人参加，除了深蓝地区阿灵顿以外。
 
-[Covid: WHO warns Europe once again at epicentre of pandemic](https://www.bbc.com/news/world-europe-59160525)
+教育是本次竞选主题之一，团结了维州的保守派。McAuliffe 在辩论中说到“家长不应该决定学校教什么”，之后其领先优势开始缓慢消失。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+与之相对，Youngkin认为 “若我当选，家长将有权为孩子的教育做决定”。
+
+选举被视为2022年中期选举的民意风向标并广受关注，将在周二举行。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+- [https://justthenews.com/government/state-houses/youngkin-campaign-surging-final-days-virginia-race-could-be-predictor-2022](https://justthenews.com/government/state-houses/youngkin-campaign-surging-final-days-virginia-race-could-be-predictor-2022)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+
+***编辑***：***正义的小新***
+***校对/发稿：海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

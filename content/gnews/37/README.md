@@ -2,10 +2,10 @@
 ---
 
 
-## 美国商务部次长提名人称，将严管对华科技出口
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640718/)
+## 华为成立4大军团，同时出售服务器业务
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640720/)
 
-作者：纽约香草山农场 – 柳是多水土透
+作者：日本方舟农场 – Andy5
 
 
 
@@ -13,17 +13,18 @@
 
 
 
-拜登总统提名美国商务部次长人选Alan Estevez，在给共和党参议员科顿和Bill Hagerty的书面信中表示，将尽最大努力，加快推出关于先进技术的新规则。并许诺在适当情况下，加强美国对半导体软件和技术销售的限制，包括“积极地”监管对中共国的科技出口。
+据墙内11月3日的消息，继3月成立煤炭军团之后，华为最近正式组建数据中心能源军团、智能光伏军团、海关和港口军团、智慧公路军团4大军团组织，并高调举行了军团组建成立大会。
 
-美国商务部负责工业和安全事务的次长，主掌工业与安全局BIS，主要负责与国务院一同监管出口敌对国家的敏感受控技术及产品，及在合规的情况下签发授权。在美中科技战背景下，BIS的作用至为重要。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-17.jpg)
+据上周的数据显示，华为前三季度整体营收同比下降37%，手机出货量则下降了73.8%。而因被美国列入黑名单，不能开展正常业务，华为考虑将出售依靠抄袭思科起家的服务器业务。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-12.jpg)
 参考链接：
-[美国商务部次长提名人称将严管对华科技出口 参议员科顿放弃阻挠任命](https://cn.reuters.com/article/usa-commerce-official-china-11tues-idCNKBS2HO07V)
+1. [Huawei said to sell key server division due to US blacklisting](https://www.bloomberg.com/news/articles/2021-11-02/huawei-said-to-sell-key-server-division-due-to-u-s-blacklisting?sref=V7uxlNge)
+2. [华为军团组建成立大会，任正非：和平是打出来的](https://www.sohu.com/a/499087347_115565)
+3. [华为营收减少2000亿元背后：手机销量同比降77％，对手苹果大中华区业绩涨83％](https://www.sohu.com/a/498084501_115565)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-总编：童谣
-编辑：Kathy文艺
+总编/编辑：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

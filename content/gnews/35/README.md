@@ -2,48 +2,25 @@
 ---
 
 
-## 华为成立4大军团，同时出售服务器业务
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640720/)
+## COVID-19最新情报｜即便证据在眼前 佛奇仍否认曾资助武毒所
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1640735/)
 
-作者：日本方舟农场 – Andy5
+台灣寶島農場 疫情關注組｜發佈日期/ 5/11/2021
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
 
-据墙内11月3日的消息，继3月成立煤炭军团之后，华为最近正式组建数据中心能源军团、智能光伏军团、海关和港口军团、智慧公路军团4大军团组织，并高调举行了军团组建成立大会。
+美国参议员兰德·保罗于11月4日的参议院听证会上，质询美国国家过敏和传染病研究所([NIAID](https://www.niaid.nih.gov/))主任安东尼．佛奇，关于“美国国立卫生研究院是否资助武汉病毒研究所进行功能增强实验”是否执意继续撒谎。（[相关影片片段](https://www.nationalreview.com/news/rand-paul-rips-into-fauci-over-continued-gain-of-function-research-denials-demands-resignation/https://www.nationalreview.com/videos/rand-paul-rips-into-fauci-over-persistent-gain-of-function-research-denials-demands-resignation/)）
 
-据上周的数据显示，华为前三季度整体营收同比下降37%，手机出货量则下降了73.8%。而因被美国列入黑名单，不能开展正常业务，华为考虑将出售依靠抄袭思科起家的服务器业务。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-12.jpg)
-参考链接：
-1. [Huawei said to sell key server division due to US blacklisting](https://www.bloomberg.com/news/articles/2021-11-02/huawei-said-to-sell-key-server-division-due-to-u-s-blacklisting?sref=V7uxlNge)
-2. [华为军团组建成立大会，任正非：和平是打出来的](https://www.sohu.com/a/499087347_115565)
-3. [华为营收减少2000亿元背后：手机销量同比降77％，对手苹果大中华区业绩涨83％](https://www.sohu.com/a/498084501_115565)
+参议员保罗引用[美国国立卫生研究院承认曾经资助武汉病毒研究所进行病毒功能增强实验](https://www.nationalreview.com/news/nih-admits-to-funding-gain-of-function-research-in-wuhan-says-ecohealth-violated-reporting-requirements/)，指责佛奇公开撒谎，谎称NIH不曾资助过武毒所进行功能增强实验。保罗称：武汉病毒实验所的实验，目的在于让自然界的病毒更具危险性。佛奇撒谎美国卫生研究院未资助武汉实验室一事，保罗称这是玩语言游戏，佛奇的行为已经对美国、世界造成了明显的威胁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+保罗强调，资助实验室进行病毒功能增强实验，可以创造出新病毒，导致下一次的大流行。新冠病毒目前致死率约为“百分之一”，然而武汉病毒实验室正在试验一种死亡率在15-50%的新病毒，这对人类文明造成巨大的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-2-1.jpg)
+* * *
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+参考来源｜[NATIONAL REVIEW](https://www.nationalreview.com/news/rand-paul-rips-into-fauci-over-continued-gain-of-function-research-denials-demands-resignation/)
+撰文｜zhong
 
  
 

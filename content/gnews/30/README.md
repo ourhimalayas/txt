@@ -2,31 +2,27 @@
 ---
 
 
-## 11/5/2021中日财经爆 ：“油盐酱醋“都涨价，受苦的还是老百姓
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640779/)
+## 疫苗的有效率到底是多少？
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1640850/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5646.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimagepphcloud.dwnews.cc%2Fpph%2Fimage%2F162%2F361%2F656.jpg&amp;imgrefurl=https%3A%2F%2Fm.dwnews.cc%2FnewsDetail_forward_15238373&amp;tbnid=9GynDRf9CRtMhM&amp;vet=12ahUKEwjUkoe56oD0AhVdTPUHHdnPDiEQMygAegUIARCkAQ..i&amp;docid=OSNAGii9jA_ciM&amp;w=888&amp;h=608&amp;q=%E2%80%9C%E6%B2%B9%E7%9B%90%E9%85%B1%E9%86%8B%E2%80%9C%E9%83%BD%E6%B6%A8%E4%BB%B7&amp;ved=2ahUKEwjUkoe56oD0AhVdTPUHHdnPDiEQMygAegUIARCkAQ)
-11月4日，肉类食品专营企业得利斯称，一个月前已对预制菜相关牛肉类产品价格已进行了调整，近期也对部分牛肉类产品进行了再次提价。在必选消费品提价这件事上，得利斯不是第一个“吃螃蟹的人”。
+撰稿：Runaway
+![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率1-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率2-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率3-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率4-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率5-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率6-1.jpg)
+以上数据统计的分析表明，接种双重疫苗的人群将在未来3-6个月内不但失去疫苗的有效性，还将失去自然免疫力。面对欧洲的冬、春各种病毒容易传染的季节，失去自然免疫力的人群将面临灾难性的后果。
 
-在更早前的10月13日，海天味业发公告称，将对酱油、蚝油、酱料等部分产品的出厂价格进行调整，调整幅度为3%-7%不等。
+另据BBC和ABC NEWS今日报道，“世卫组织再次警告欧洲处于大流行的中心”，“世卫组织表示，对欧洲的COVID-19激增严重关切，因为住院人数在一周内翻了一番”。
+雅典娜农场
+（文章仅代表作者观点，与Gnews无关）
 
-10月22日，洽洽食品也称，将对葵花子系列产品以及南[瓜子](https://36kr.com/projectDetails/3968812)、小而香西瓜子产品的出厂价格调整，提价幅度为8%-18%不等。
+发稿：Runaway
 
-随即，被称为“中国最大制醋企业”的恒顺醋业也宣布将于自11月20日起对部分产品进行价格调整，调整幅度5%-15%不等。主营[调味品](https://36kr.com/projectDetails/335067)的[加加](https://www.36dianping.com/space/4848401030?mp=zzquote)食品也在16日起对多种产品调价，上调幅度3%-7%不等。
+参考链接：
 
-近日，金龙鱼放出信号称，关于调价，公司要平衡消费者的接受度与公司的成本、利润及长远发展之间的关系，较为稳健的处理调价问题。
+[Europe’s COVID-19 surge a ‘grave concern’ says WHO, as hospitalisations double in one week](https://www.abc.net.au/news/2021-11-05/europe-grave-concern-500k-covid-deaths-surge/100596398)
 
-此外，盐业上市公司也于进入宣布集体涨价，继雪天盐业称小包食盐出厂价近期陆续提价后，云南能投也透露，对部分食盐产品及工业盐产品价格进行上调。
+[Covid: WHO warns Europe once again at epicentre of pandemic](https://www.bbc.com/news/world-europe-59160525)
 
-至此，中共国内市场“油盐酱醋”到食品肉类已全部涨价。对于本就单价不高的食品以及日用品来说，原材料成本上涨的压力传导到了消费者身上。“涨价潮”来袭，部分消费者已经开始“囤货”。
-
-消息来源:
-[受原材料成本影响，“油盐酱醋”已全部涨价](https://36kr.com/p/1471582648461059)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
