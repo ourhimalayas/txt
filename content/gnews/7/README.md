@@ -2,23 +2,20 @@
 ---
 
 
-## 保护劳工人权，日本迈出历史性一步
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1641219/)
+## 调查：近半数驻香港记者计划离港
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1641377/)
 
-#### 撰稿: 东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1122.jpg)[图片来源](https://cn.nikkei.com/politicsaeconomy/economic-policy/44843-2021-05-25-01-34-56.html)
-据时事通信社报道，11月5日，服装等纺织行业团体联盟-日本纺织产业联合会与国际劳工组织（ILO）签署了保护劳工人权的备忘录。
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/11/123.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.zaobao.com.sg%2Fs3%2Ffiles%2Fstyles%2Farticle_large_crop%2Fpublic%2F2021-11%2Fgangji.jpg%3Fitok%3D9_l-1ubb&amp;imgrefurl=https%3A%2F%2Fwww.zaobao.com.sg%2Frealtime%2Fchina%2Fstory20211105-1210493&amp;tbnid=hhgVaLIrLQQNXM&amp;vet=12ahUKEwijkvHfnIH0AhUITpQKHRNDDLIQMygCegQIARAW..i&amp;docid=GuLj7xjjOWbZiM&amp;w=800&amp;h=500&amp;itg=1&amp;q=%E8%B0%83%E6%9F%A5%EF%BC%9A%E8%BF%91%E5%8D%8A%E6%95%B0%E9%A9%BB%E9%A6%99%E6%B8%AF%E8%AE%B0%E8%80%85%E8%AE%A1%E5%88%92%E7%A6%BB%E6%B8%AF&amp;ved=2ahUKEwijkvHfnIH0AhUITpQKHRNDDLIQMygCegQIARAW)
+香港外国记者会（FCC）的一项最新调查显示，自《香港国安法》出台以来，香港新闻工作者的工作条件明显恶化，且将近一半的记者表示，他们正考虑要离开香港。FCC在今年8月底至10月底针对其记者会员进行了问卷调查，搜集了70名为驻港外国媒体工作的记者的回复，以及29名为香港本地媒体工作的记者的回复，共99份答复。该调查显示，有84%的受访者表示，自2020年6月《香港国安法》施行以来，新闻业工作环境已“变得更糟”。
 
-联合会计划在明年7月前制定出指导方针，以消除不公平的低工资和强迫劳动现象。并将与国际劳工组织合作，确保准则符合国际标准。
+另外，记者的个人安全也是一大问题，因为许多人也对可能的网络或实体监控感到担忧。调查显示，有46%的受访者说，随着香港新闻自由度下降，他们现在正考虑或已经有计划要离开香港。台湾外籍记者联谊会（TFCC）向德国之声表示，自《香港国安法》通过以来，该协会陆续收到在香港的外媒记者询问该如何前往台湾。根据台湾外交部去年12月底统计，2020年全年新增了34位有进行注记的外媒记者。
 
-日本经济产业省曾在7月要求业界制定指导方针。在服装供应链方面，一方面日本国内亟需改善在日外国技术培训生的待遇；另外，与中共国新疆维吾尔自治区的“新疆棉”有关的人权问题也在国际社会上引起反响。
+信息来源：
 
-毋庸置疑，中共在新疆犯下种族灭绝的滔天大罪已在国际社会引起高度关注。针对少子高龄的社会现状及其引发的劳动力紧缺矛盾，近年来，日本政府通过引进中共国以及东南亚国家的年轻务工人员加以缓解，但外国研修生在日本遭遇的种种不公，也常见诸报端。日本政府能直视存在的问题，并通过与国际相关组织寻求合作，制定准则，予以约束，使受害者也能有法可依，这才是一国应有的态度与作为。而反观中共国，务工人员谈何人权？关于“新疆棉”一事，中共更是三缄其口，甚至倒打一耙。俗话说得好，防民之口甚于防川。中共，你真的是在灭亡之道上狂奔啊!!
+[调查：近半数驻香港记者计划离港](https://www.dw.com/zh/%E8%B0%83%E6%9F%A5%E8%BF%91%E5%8D%8A%E6%95%B0%E9%A9%BB%E9%A6%99%E6%B8%AF%E8%AE%B0%E8%80%85%E8%AE%A1%E5%88%92%E7%A6%BB%E6%B8%AF/a-59728202)
 
-信息来源:
-[人権侵害排除へ覚書　繊維業界、ILOと](https://news.yahoo.co.jp/articles/64a481d0be0744460dfee8c488b3a62ea916f38a)
-
-*编辑：东京樱花团/喜马拉雅的微尘
+*校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  

@@ -2,27 +2,18 @@
 ---
 
 
-## 疫苗的有效率到底是多少？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1640850/)
+## 立陶宛外交副部长：中共国对待立陶宛的方式为欧洲敲响“警钟”
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1640990/)
 
-撰稿：Runaway
-![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率1-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率2-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率3-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率4-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率5-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率6-1.jpg)
-以上数据统计的分析表明，接种双重疫苗的人群将在未来3-6个月内不但失去疫苗的有效性，还将失去自然免疫力。面对欧洲的冬、春各种病毒容易传染的季节，失去自然免疫力的人群将面临灾难性的后果。
+韩国首尔天池农场—虎眼　校对/上传—无明逆流
+![](https://assets.gnews.org/wp-content/uploads/2021/11/04a3067b-4d13-46b1-a0d2-8db272d10144.jpg)
+据俄罗斯卫星通讯社4日报道，立陶宛外交部副部长普兰克维丘斯在当地时间3日在华盛顿安全论坛上表示，中共对待立陶宛的方式为欧洲敲响了“警钟”，他还呼吁欧盟成员与中共国打交道时要团结一致。
+普兰克维丘斯称：“我认为，这在很多方面都敲响了警钟，特别是让欧洲同胞明白，如果想捍卫民主，就必须站出来表达支持。为了让欧洲在世界上具有可信度并成为美国的合作伙伴，必须针对中共国采取行动。”他还表示，“我们必须口径一致，否则我们就没有信誉度可言，无法捍卫自己的利益，也无法与北京建立平等关系。”
 
-另据BBC和ABC NEWS今日报道，“世卫组织再次警告欧洲处于大流行的中心”，“世卫组织表示，对欧洲的COVID-19激增严重关切，因为住院人数在一周内翻了一番”。
-雅典娜农场
-（文章仅代表作者观点，与Gnews无关）
+在这之前，立陶宛总统吉塔纳斯·瑙塞达曾在与美国总统拜登举行的非正式会谈上表示，他和拜登讨论了与中共国的外交冲突以及加强与台湾关系等问题。在立陶宛和中共国的外交冲突议题上，他获得了美国总统对他的支持。
 
-发稿：Runaway
+立陶宛在台湾议题上的敢为言行也刺痛了中共外交部的神经。中共外交部发言人声称，世界上只有一个中国，中华人民共和国政府是代表全中国的唯一合法政府，敦促立方立即纠正错误决定，不要在错误的道路上越走越远。并一同警告了台湾，称“台独分子在国际上搞分裂活动不会得逞，而且是死路一条。”
 
-参考链接：
-
-[Europe’s COVID-19 surge a ‘grave concern’ says WHO, as hospitalisations double in one week](https://www.abc.net.au/news/2021-11-05/europe-grave-concern-500k-covid-deaths-surge/100596398)
-
-[Covid: WHO warns Europe once again at epicentre of pandemic](https://www.bbc.com/news/world-europe-59160525)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

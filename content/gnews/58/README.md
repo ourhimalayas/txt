@@ -2,34 +2,42 @@
 ---
 
 
-## 聚焦：高盛预测以太坊今年年底前再涨80%
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1637394/)
+## 字节跳动创始人张一鸣卸任董事长
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1638224/)
 
-#### 温哥华扬帆农场 丁过
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Ethereum_800x533_L_1556445201.jpg)来源：英为财情
-郭文贵先生在今天的直播中透露，以太坊的高层主动和郭先生联系，有意用以太坊和喜马拉雅币换币，被郭先生拒绝了。
+翻译：西班牙喜悦农场–wenwu
 
-据英为财情11月3日报道，高盛全球市场董事总经理伯恩哈德·瑞泽尔卡近日在报告中表示，加密货币资产在过去几年一直紧密跟踪通货膨胀，以太坊与通货膨胀的关系尤其紧密。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1.jpg)据报道，字节跳动创始人张一鸣身价约为 445 亿美元。 彭博新闻
 
-瑞泽尔卡通过研究发现，加密货币指数的变化和市场通货膨胀预期指标存在很强的相关性 。他的的预测模型显示，到今年年底，以太坊可能飙升至8000美元，较此前创下的4600美元的历史高点再涨80%。
+据周二（2日）晚间报道，字节跳动（ByteDance Ltd.）创始人张一鸣将在[辞去](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)（5月）TikTok 的[首席执行官](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)的数月后，一并辞去字节跳动的董事长（3日）的位置。
 
-以太坊于2015年 7月30日正式发布，同年8 月 10日价格为0.68美元，今天的价格是4623美元，价差达到惊人的6800倍。
+[彭博新闻](https://www.bloomberg.com/news/articles/2021-11-03/bytedance-s-zhang-exits-board-joining-exodus-by-tech-founders?srnd=technology-vp&amp;sref=Oeyjq8by)和[路透社](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)援引熟悉此事的消息人士的话[报道](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)称，字节跳动的首席执行官 Liang Rubo 将接替张先生担任董事长。
 
-通货膨胀归根结底是货币现象，加密货币之所以涨势凶猛，其深层原因是：贵金属货币具有天然通缩属性，很难适应和满足经济扩张和财富增长，因此美元以黄金为锚的布雷顿森林体系最终走向解体。而无锚印钞则刚好相反，在人性的贪婪和政府的印钞冲动共同作用下推升了通胀，参与制造了一轮又一轮经济灾难。
-![古代货币都是铜钱，不容易防伪，怎么解决盗铸问题？](https://n.sinaimg.cn/sinakd20200314ac/267/w640h427/20200314/02c3-iquxrui2379626.jpg)来源：新浪
-如何避免政府或少数掌握权力的人操纵货币，建立真正的信用体系？实际上古代中外有智慧的统治者们已经解决了当时就存在的这个问题，就是政权向民间让渡铸币权，允许民间竞争性造币和发行货币，用市场机制来解决货币供需矛盾和建立良币驱逐劣币机制。
+周二早些时候，字节跳动宣布了一项将公司重组为六个业务部门的计划。作为重组的一部分，《华尔街日报》报道称，字节跳动[首席财务官](https://www.wsj.com/articles/bytedance-cfo-is-stepping-down-to-focus-on-tiktok-11635885543?mod=Searchresults_pos1&amp;page=1&amp;mod=article_inline) Shou Zi Chew 将卸任，专注于他作为 TikTok 首席执行官的角色。
 
-稍为留意就会发现，凡是在货币发行上自我约束的朝代，王朝寿命都比较长，比如宋朝长期外有北方强敌，同时遭遇气候急剧变冷的打击，但还是享国319年，和官民关系和谐、共同抗敌有莫大关系。很大程度上这应归因于铸币权下放后，政权不能通过货币税大肆掠夺民间财富，为社会建立了基于信赖、平等的契约关系。
+随着中共国政府[收紧对互联网公司的控制](https://www.marketwatch.com/story/chinas-communist-party-exerting-tighter-control-over-the-countrys-internet-giants-01633320070?mod=article_inline)，38 岁的张是最近一位离开他们创立的公司的中共国亿万富翁。拼多多公司[PDD， +0.12%](https://www.marketwatch.com/investing/stock/PDD?mod=MW_story_quote)的创始人兼董事长 Colin Huang于 [3月](https://www.marketwatch.com/story/pinduoduo-founder-colin-huang-steps-down-from-company-11615997079?mod=article_inline)退出该公司；京东商城[JD， +0.82%](https://www.marketwatch.com/investing/stock/JD?mod=MW_story_quote)的创始人兼董事长刘强东于9月份退出[了公司的](https://www.marketwatch.com/articles/jd-com-says-founder-stepping-back-from-day-to-day-running-of-the-business-51630941420?mod=article_inline)日常管理；快手科技（Kuaishou Technology）联合创始人兼首席执行官 Su Hua 于[上周同样退出了公司](https://www.wsj.com/articles/chinese-video-platform-kuaishou-says-ceo-steps-down-11635529476?mod=article_inline)。
 
-和古代相比，现代社会的经济结构发生了巨大变化，但信用仍然是人类和平、繁荣的重要基石。加密货币在出现十多年后，越来越多的人意识到，处于自由竞争和创新状态的加密货币，或许就是解决困扰现代人货币信用问题的最佳、最终方案。
+总部位于北京的字节跳动成立于 2012 年，其热门应用 TikTok 每月拥有近 7 亿用户。截至上一轮融资时，私人持有的字节跳动估值为 1400 亿美元，但 [据彭博社报道](https://www.bloomberg.com/news/articles/2021-03-30/bytedance-is-said-valued-at-250-billion-in-private-trades?sref=Oeyjq8by) ，今年早些时候私有估值约为 2500 亿美元。
 
-令人欣慰的是，除了中共国等几个极权国家之外，美国等绝大多数国家的政府都充分认识到了货币改革的重要性，对加密货币釆取了开放包容的态度。两天前刚刚上市面世的喜马拉雅币，就是一种真正的民造、民有、民享的世界性货币，这样的良币必将改变世界。
+彭博亿万富翁指数将张先生列为[全球第 31 位最富有的人，](https://www.bloomberg.com/billionaires/profiles/yiming-zhang/?sref=Oeyjq8by)财富价值约为 445 亿美元。
 
-参考来源：
+**简评：**
 
-**[高盛：与通胀紧密相关，以太坊有望两个月内暴涨80%](https://cn.investing.com/news/cryptocurrency-news/article-2059408)**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1-1.jpg)图片来源于[禁文网](https://www.bannedbook.org/bnews/bannedvideo/20210908/1620501.html)
 
-（文章仅代表作者观点，与GNEWS无关）
+**据2021年11月3日《DESCARGITAS》报道，中共国政府将越来越关注富有的科技企业家，许多亿万富翁积累了权力，并影响了威权。**
+
+**阿里巴巴的联合创始人马云一直是被镇压的主要受害者，最近飞离中共国到西班牙度假。自从习近平主席去年阻止了他的在线金融平台蚂蚁金服集团的上市计划后，马云就限制了公开露面（此举曾发生在毛泽东时代）；外国科技公司与雅虎一起退出中共国，本周宣布“由于商业和法律环境变得越来越具有挑战性，离开中共国。”随着新的《数据保护法》于周一（1日）在中共国生效，恰好是雅虎退出中共国的时间，法律规定了私人公司收集个人信息的条件，并制定了如何使用这些信息的规则。**
+
+**最后，向同胞们呼吁不要打疫苗，并且加入新中国联邦大家庭；从喜币上市可见，新中国联邦的实力是实实在在的。**
+
+新闻来源：[marketwatch.com] [ByteDance founder Zhang Yiming steps down as chairman: reports](https://www.marketwatch.com/story/bytedance-founder-zhang-yiming-steps-down-as-chairman-reports-11635909977) | 发布时间：2021年11月2日
+
+* * *
+
+*发稿：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
 
  
 

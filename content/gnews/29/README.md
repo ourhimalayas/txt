@@ -2,29 +2,45 @@
 ---
 
 
-## 美国出价千万美元逮捕暗黑黑客
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1640907/)
+## 中共和美国精英就疫苗问题在科学界深度融合
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1640999/)
 
-新闻来源：德国法兰克福报网页版
+**简评：**
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+在中共最近召开的一个研讨会上，“蝙蝠女”石正丽参加并发表了关于新冠病毒变种的主题演讲，美国食品药物管理局和疾病控制中心的新冠疫苗顾问也出席了这次由中共资助的会议。中共和美国精英就疫苗的融洽不言而喻。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/die-usa-haben-10-millionen.jpg)
+[GTV视频链接](https://gtv.org/video/id=6181e636adfd99590c3283ff)
 
 
-图片来源： FAZ
 
-美国悬赏 1000 万美元，以寻找黑客组织 Darkside 领导人的关键线索。美国国务院周四表示，这是关于“保护世界各地的勒索软件受害者免受网络犯罪分子的利用”。美国联邦警察 FBI 将针对美国公司的多次网络攻击归咎于 Darkside。
+**视频字幕：**
 
-攻击者使用所谓的勒索软件，该软件用于锁定或加密计算机系统，以便向用户勒索金钱以释放数据。该术语包含赎金的英文单词。华盛顿将 2021 年 5 月对殖民地管道的袭击归咎于据称在俄罗斯开展业务的该组织。
+**OAN主持人：**就在大约一个月前，你报道了在中国有一个研讨会，其中中国的军事研究人员石正丽也在场，美国食品和药物管理局（FDA）和疾病控制中心（CDC）的新冠疫苗顾问也出席了。请你谈谈其中的一些进展。
 
-全世界都在通缉罪，国务院还悬赏 500 万美元，奖励那些导致逮捕参与暗黑势力袭击的人的信息，无论这个信息的来源是从那个国家而来。
+**Natalie Winters：**好的。蝙蝠女石正丽不仅仅出席了这次会议，她实际上还发表主题演讲，讲了一些新冠病毒的不同变种。
 
-过去几个月，美国发生了多起引人注目的勒索软件攻击。美国总统乔·拜登 (Joe Biden) 政府希望对此类袭击采取果断行动，并于 10 月与 30 多个州就此主题举行了虚拟峰会。
+正如你所说的，中共国的军事研究人员也出席了，而且这整个活动是由中国共产党资助的，这让人非常好奇。正如人们所了解的，中国共产党和美国的建制派非常喜欢在很多这样的问题上协作。
 
-原文链接：[https://www.faz.net/aktuell/politik/ausland/darkside-hacker-usa-bieten-10-millionen-fuer-die-festnahme-17619281.html](https://www.faz.net/aktuell/politik/ausland/darkside-hacker-usa-bieten-10-millionen-fuer-die-festnahme-17619281.html)
+因此，一个名叫Stanley Perlman，任职于美国食品药物管理局的新冠疫苗咨询委员会和疾病控制中心的该疫苗推广计划咨询委员会的人，他同“蝙蝠女”，还有一些美国国立卫生研究院的研究人员，一起参加了这次会议，这并不出乎意料。
 
-责任编辑、发布： Shuizhuyu
+我认为这再次说明了中共和美国精英之间的这种融合，特别是在科学界。
+
+
+
+*字幕：nights | 听写：云岭| 翻译：clau|简评/文字整理/编辑：胖丁*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

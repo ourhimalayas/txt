@@ -2,42 +2,57 @@
 ---
 
 
-## 字节跳动创始人张一鸣卸任董事长
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1638224/)
+## 通货膨胀、工资增长，挑战美联储“过渡性”通胀的说法
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1639646/)
 
-翻译：西班牙喜悦农场–wenwu
+【评语：】*美国联邦储备委员会11月3日宣布，将从11月晚些时候起逐月减少150亿美元资产购买规模，并视情况调整购债速度，以降低对市场的刺激力度。同时，美联储维持联邦基金利率目标区间在零至0.25%之间。美联储正式开始拧紧水龙头，预计在明年6月份结束放水。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1.jpg)据报道，字节跳动创始人张一鸣身价约为 445 亿美元。 彭博新闻
+据《路透社》作者：Howard Schneider，2021年11月1日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-62-e1636058817613.png)图为2018年8月22日，美国华盛顿特区的美联储大楼。图片来源：路透社/Chris Wattie
+《路透社》华盛顿11月1日 —— 物价和工资增长达到数十年来的高点，本周可能会让美联储官员面临挑战，因为他们试图保持平衡，一方面确保通货膨胀得到控制；另一方面希望经济恢复有尽可能多的时间，恢复自大流行以来失去的工作岗位。
 
-据周二（2日）晚间报道，字节跳动（ByteDance Ltd.）创始人张一鸣将在[辞去](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)（5月）TikTok 的[首席执行官](https://www.marketwatch.com/story/ceo-of-tiktok-parent-bytedance-to-step-down-11621479617?mod=article_inline)的数月后，一并辞去字节跳动的董事长（3日）的位置。
+周一，投资者继续增加他们的预期，即高企和持续的通货膨胀将迫使美联储比政策制定者预测的更早和更快地提高利率。根据CME集团FedWatch的数据，联邦基金期货合约现在意味着明年将有三次0.25％的加息，而截至上周末该预期是两次。
 
-[彭博新闻](https://www.bloomberg.com/news/articles/2021-11-03/bytedance-s-zhang-exits-board-joining-exodus-by-tech-founders?srnd=technology-vp&amp;sref=Oeyjq8by)和[路透社](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)援引熟悉此事的消息人士的话[报道](https://www.reuters.com/business/cop/bytedance-founder-zhang-step-down-chairman-bloomberg-news-2021-11-03/)称，字节跳动的首席执行官 Liang Rubo 将接替张先生担任董事长。
+同时，采购经理们认为价格压力继续增加，随着制造业企业承担更高的投入成本，供应管理协会的价格指数大幅上升。
 
-周二早些时候，字节跳动宣布了一项将公司重组为六个业务部门的计划。作为重组的一部分，《华尔街日报》报道称，字节跳动[首席财务官](https://www.wsj.com/articles/bytedance-cfo-is-stepping-down-to-focus-on-tiktok-11635885543?mod=Searchresults_pos1&amp;page=1&amp;mod=article_inline) Shou Zi Chew 将卸任，专注于他作为 TikTok 首席执行官的角色。
+高盛(Goldman Sachs)的经济学家表示，尽管决策者倾向于在加息方面保持耐心，但他们暂缓加息的窗口可能正在缩小，他们将成为最新的提前加息的呼吁人，将加息提前一整年至2022年7月。
 
-随着中共国政府[收紧对互联网公司的控制](https://www.marketwatch.com/story/chinas-communist-party-exerting-tighter-control-over-the-countrys-internet-giants-01633320070?mod=article_inline)，38 岁的张是最近一位离开他们创立的公司的中共国亿万富翁。拼多多公司[PDD， +0.12%](https://www.marketwatch.com/investing/stock/PDD?mod=MW_story_quote)的创始人兼董事长 Colin Huang于 [3月](https://www.marketwatch.com/story/pinduoduo-founder-colin-huang-steps-down-from-company-11615997079?mod=article_inline)退出该公司；京东商城[JD， +0.82%](https://www.marketwatch.com/investing/stock/JD?mod=MW_story_quote)的创始人兼董事长刘强东于9月份退出[了公司的](https://www.marketwatch.com/articles/jd-com-says-founder-stepping-back-from-day-to-day-running-of-the-business-51630941420?mod=article_inline)日常管理；快手科技（Kuaishou Technology）联合创始人兼首席执行官 Su Hua 于[上周同样退出了公司](https://www.wsj.com/articles/chinese-video-platform-kuaishou-says-ceo-steps-down-11635529476?mod=article_inline)。
+**高盛经济学家Jan Hatzius和其他人写道，他们预计，以密切监测的核心个人消费支出价格指数衡量的通胀率仍将高于3% —— 这是自20世纪90年代初以来未见的通胀率，而且远远高于美联储2%的目标。**
 
-总部位于北京的字节跳动成立于 2012 年，其热门应用 TikTok 每月拥有近 7 亿用户。截至上一轮融资时，私人持有的字节跳动估值为 1400 亿美元，但 [据彭博社报道](https://www.bloomberg.com/news/articles/2021-03-30/bytedance-is-said-valued-at-250-billion-in-private-trades?sref=Oeyjq8by) ，今年早些时候私有估值约为 2500 亿美元。
+就业市场的各个方面，特别是劳动力参与率，不太可能恢复到大流行前的水平，而且似乎仍未达到美联储承诺在加息前恢复的“最大就业”的目标。
 
-彭博亿万富翁指数将张先生列为[全球第 31 位最富有的人，](https://www.bloomberg.com/billionaires/profiles/yiming-zhang/?sref=Oeyjq8by)财富价值约为 445 亿美元。
+他们写道，“自（联邦公开市场委员会）上次在9月开会以来，失业率进一步下降，平均时薪和就业成本指数都出现了强劲的增长，通胀率仍然很高。”这挑战美联储的说法，即通胀将自行过去，不需要使用加息来收紧信贷条件和减缓企业和家庭购买。
 
-**简评：**
+**崩溃的时间表**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1-1.jpg)图片来源于[禁文网](https://www.bannedbook.org/bnews/bannedvideo/20210908/1620501.html)
+美联储本周召开会议，并将于周三下午2点（格林威治标准时间18:00）发布新的政策声明，随后美联储主席鲍威尔将于下午2点30分（格林威治标准时间18:30）召开新闻发布会。官员们预计将批准缩减目前每月1200亿美元的债券购买计划，到明年年中将完全停止购买 —— 这是脱离2021年初为应对大流行病带来的经济影响而出台的核心政策的第一步。
 
-**据2021年11月3日《DESCARGITAS》报道，中共国政府将越来越关注富有的科技企业家，许多亿万富翁积累了权力，并影响了威权。**
+当时，政策制定者认为他们将有充足的时间来最终逐步取消债券购买，而且通货膨胀的风险很小。即使在今年早些时候物价开始加速上涨时，美联储官员也争辩说，通胀高增长速度将被证明是“过渡性的”，不会让他们急于加息。
 
-**阿里巴巴的联合创始人马云一直是被镇压的主要受害者，最近飞离中共国到西班牙度假。自从习近平主席去年阻止了他的在线金融平台蚂蚁金服集团的上市计划后，马云就限制了公开露面（此举曾发生在毛泽东时代）；外国科技公司与雅虎一起退出中共国，本周宣布“由于商业和法律环境变得越来越具有挑战性，离开中共国。”随着新的《数据保护法》于周一（1日）在中共国生效，恰好是雅虎退出中共国的时间，法律规定了私人公司收集个人信息的条件，并制定了如何使用这些信息的规则。**
+**然而，这个时间表可能会崩溃。**
 
-**最后，向同胞们呼吁不要打疫苗，并且加入新中国联邦大家庭；从喜币上市可见，新中国联邦的实力是实实在在的。**
+根据CME集团的数据，联邦基金期货合约的交易现在意味着美联储在明年6月加息的概率超过65%，就在缩表预期结束时。第二次加息预计在9月，第三次在12月。一个月前，利率市场指标显示，最早在6月加息的可能性不到20%，明年加息两次的可能性相对来说可以忽略不计。
 
-新闻来源：[marketwatch.com] [ByteDance founder Zhang Yiming steps down as chairman: reports](https://www.marketwatch.com/story/bytedance-founder-zhang-yiming-steps-down-as-chairman-reports-11635909977) | 发布时间：2021年11月2日
+谈到通货膨胀，这可能是一个令人困惑的时刻。起初被指责为预期的暂时性供应中断和在某些情况下变得难以找到的商品的消费支出激增，但价格上涨的速度仍然比预期的要高。
 
-* * *
+预计明年商品通胀不仅会缓解，而且实际上会在一轮价格下跌中逆转。但服务成本预计将弥补差额，特别是如果最近员工薪酬的跳升被证明是持续的现象。
 
-*发稿：信心的选择*
+工资和福利的增加将给中央银行带来一个特别的挑战，即确定雇员获得更好的报酬是因为生产力在提高，还是因为就业市场和可用工人的数量因大流行病而失去了同步性。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
+**其中一个将被视为积极的发展；另一个则可能会使通胀风险进一步上升。**
+
+Evercore ISI副主席Krishna Guha写道：“所有这些都让鲍威尔在 11 月的会议上可能处境艰难，这个可能性比几周前看起来要大得多。”因为他试图在委员会中使那些准备明年加息的人和那些准备表现出更大耐心的人之间大致达成一种平衡。
+
+他写道：“这一切都不能证明过渡性理论最终是错误的，但相信过度通胀将可能被证明是过渡性的测试并不成熟。”
+
+文章来源[： https://www.reuters.com/business/inflation-wage-data-challenge-fed-transitory-narrative-2021-11-01/](https://www.reuters.com/business/inflation-wage-data-challenge-fed-transitory-narrative-2021-11-01/)
+
+（本文评论仅代表个人观点） 翻译/评论：洛杉矶盘古农场 – Mike Li
+校对/编辑：洛杉矶盘古农场 – 明子
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

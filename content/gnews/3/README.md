@@ -2,12 +2,10 @@
 ---
 
 
-## 喜交所上市前采访各职能团队
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1641237/)
+## 11/3/2021 文贵直播：体现喜币真正价值的三个标志性事件是什么？
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1641406/)
 
-11/1/2021 【HCoin to The Moon庆典】喜交所上市前采访各职能团队，做好上市最后的准备。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+秘密翻译组-北美组
 
  
 

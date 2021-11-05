@@ -2,43 +2,36 @@
 ---
 
 
-## 西喜时事新闻简报 — 美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1636729/)
+## 喜联储全面庆贺喜币上市同时美联储减少“量化宽松”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1638038/)
 
-**翻译：土饭团**
+作者：东京樱花团｜捆绑CCP一千年
 
-您若想了解全文报导内容，请点击标题链接
+![](https://assets.gnews.org/wp-content/uploads/2021/11/喜联储全面庆贺喜币上市同时美联储减少量化宽松.png)[*图片来源*](https://thehill.com/sites/default/files/styles/thumb_small_article/public/federalreserve_091619gn6_lead.jpg?itok=Xu4rOgZ6)
 
-1[.Ernst的“FAUCI法案”禁止美国资助在中共国进行的“功能增益”研究](https://www.foxnews.com/politics/ernsts-fauci-act-bans-us-funding-for-gain-of-function-research-in-china)
+据《[朝日新闻](https://www.asahi.com/articles/ASPC41SHGPC4UHBI002.html)》11月3日消息称：美联储理事会（FRB）决定这个月开始减少 “量化宽松” 政策，这意味着美联储（央行）减少购买国债规模，“收紧”货币政策行动的开始。这是从大流行导致大萧条以来应对疫情下的经济危机所做出经济正常化努力道路上的第一步。
 
-福克斯新闻11月1日电，爱荷华州共和党参议员Joni Ernst正在提出立法，旨在禁止资助中共国的“功能增益”研究，同时呼吁“全面核算”美国税收如何用于该研究。Ernst在周一的一份新闻稿中说：“多年来，美国的税收被输送到共产主义中共国，资助武汉实验室的冠状病毒的危险实验，而资助这些活动的部门负责人Fauci博士却没有向国会说明真相。”
+从去年3月出台的应对COVID19病毒危机的“紧急”货币政策来看，美国将在经济复苏的背景下迈出正常化努力的第一步。这意味着经济水平调整到一定“通缩”的程度。“美联储已将基准利率区间下调至 0 至 0.25%”。[**阅读更多**](https://thehill.com/policy/finance/economy/579879-federal-reserve-announces-tapering-of-bond-purchases)
 
-2.[Antony Blinken: 美国将支持台湾对抗中共国侵略](https://www.foxnews.com/media/antony-blinken-us-will-support-taiwan-against-chinese-aggression)
-
-福克斯新闻10月31日电，在美国总统Biden发誓保护台湾不受任何中共国的入侵后一个多星期，国务卿Antony Blinken周日表示，美国将支持台湾反对中共国的侵略。“我们的政策没有改变，”Blinken说。“Biden在美国参议院作参议员时强烈支持这个承诺，一个根据《台湾关系法》作出的长期承诺，以确保台湾有办法保卫自己，我们坚持这个承诺。”
-
-3[.Waltz抨击美国公司“沉迷于中共国资金”，称它们对美国构成严重威胁](https://www.foxnews.com/politics/michael-waltz-organizations-drunk-on-chinese-money-nba-enes-kanter)
-
-福克斯新闻10月31日电，佛罗里达州共和党议员Michael Waltz抨击“沉迷于中共国资金”的美国公司和其他组织，并赞扬NBA球员Enes Kanter公开表态反对支持该国。就在我们说话的时候，一场种族灭绝正在发生。但是，因为每个人都醉心于中共国的钱，包括2月份发生的奥运赞助商，每个人都想视而不见。
-
-4.[面临安全威胁，美国吊销中共国电信牌照](https://www.aninews.in/news/world/us/amid-security-threats-us-revokes-china-telecoms-licence20211031103703/)
-
-ANI 10月31日电，出于国家安全考虑，美国撤销了中共国电信的牌照，以应对中共国公司可能对其关键网络的渗透。这一决定是由美国联邦通信委员会（FCC）做出的，它发生在一个重要的时刻，在美国总统Joe Biden和他的中共国同行近平誓言要在多年的紧张关系升级后重建沟通渠道后不久。
-
-5[.美中特使举行会谈](https://www.nwaonline.com/news/2021/nov/01/top-envoys-for-us-china-hold-meeting/)
-
-The Northwest Arkansas Democrat-Gazette 11月1日电，作为20国集团峰会的一部分，美国国务卿Antony Blinken周日会见了中共国外交部长—这次接触旨在，确保世界上两个最大经济体之间激烈竞争的关系不会转向公开冲突。国务院高级官员将这次谈话描述为坦诚的、建设性的和富有成效的，并说Blinken在大约一小时的会议中清楚地表达了美国的关切。这些官员坚持不透露姓名，以讨论交流情况。
-
-* * *
-
-*审核：蚂蚁兄弟
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+- ***延展阅读：***[***量化宽松副作用显现 美联储年内缩减购债可期***](http://www.xinhuanet.com/2021-08/19/c_1127777139.htm)
 
 
+该消息指出，联邦公开市场委员会（FOMC）3日决定放慢购买国债步伐，计划从 11 月开始，从购买美国国债等资产共计1200亿美元（约14万亿日元）中每月减少 150 亿美元的购买，并在 2022 年中期停止美联储的资产扩张。之后，将通过“取消零利率”（加息）进入全面常态化。
+
+- ***延展阅读：***[***美联储旧金山报告显示：乔·拜登的1.9万亿救援计划正在加剧通货膨胀***](https://www.cnn.com/2021/10/19/economy/inflation-biden-stimulus/index.html)
 
 
+在病毒大流行导致严重的供应链中断的冲突下，某些行业价格上涨如（租金上涨）的时间比央行官员预期的要长，以及工资压力和工人严重短缺的矛盾加剧，引发了人们对长时期通胀预期的担忧。但美国此时宣布从大流行中复苏是否为时尚早？
+
+在全球经济危机仍不确定的情势下，[喜马拉雅联储](https://himalaya.exchange/)发行的数字加密货币喜币（H Coin）于美国11月1日晚间时间上市，这将给全球经济如何走出困境提供了一个可以避险的稳定的货币工具。
+
+喜币的三大优势无人可以忽视，正如它的创立者[**郭文贵先生所言**](https://app.gettr.com/streaming/pfthc26264)：1，在西方世界金融机构认可。2，喜币所有区块链技术是世界上最好的。3，区块链技术和有中心化的负责是（财富）最安全的。（2:33:58时段）
+
+2021年11月4日
+
+*编辑：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 老黑*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
