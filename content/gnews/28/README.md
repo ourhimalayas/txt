@@ -2,22 +2,22 @@
 ---
 
 
-## 香港中文大学毕业生声援因反送中被判刑的同学
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641393/)
+## 台湾防备中共利用深伪技术制造混乱
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641482/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：纽约香草山农场 – 007
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月4日，在香港中文大学的毕业典礼上，该校学生再次发起了抗议行动，反对学校接管学生会的行为，以及声援因参与“反送中”运动被判刑而不能毕业的同学。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-18.jpg)
-为了表达抗议，香港中文大学的学生在校园内贴出大型抗议布条，上书“还我学生自治”等标语。还有毕业生举着写有同学姓名的纸牌，为那些在“反送中”运动里被捕的同学声援，纸牌上写着：“我们毕业了，但他们不能”。
+当地时间11月3日，台湾国安局官员向立法院证实，国安局现已成立专案小组，应对中共利用深伪技术妨害台湾安全和稳定的行为。国安局透露，中共的深伪技术可仿造台湾领导人的影音或照片，从而可利用其影响台湾未来的公投和大选。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-16.jpg)
+深伪技术，即透过人工智能的深度学习技术伪造信息，现多为不法分子的牟利工具，也是中共用来侵扰台湾、干预台湾政治的手段。情报显示，自2018年起，中共的这类操作就层出不穷。截至目前，台湾今年已经监测到了5万多次来自中共的网络攻击。
 
-对此，有评论指出，香港是新中国联邦的圣城——虽然民主的火种暂时被中共强权打压，但它永远不会熄灭。正义终将迎来最后的胜利，让无数牺牲的年轻生命得以安息。
+有关评论显示，中共如今仍不放弃侵占台湾的野心，台湾需谨慎防备中共利用人工智能技术，在台湾重大事件或政治问题中操控舆论、制造混乱的邪恶计划。
 
 参考链接：
 
-[香港中大畢業典禮再現抗議 聲援反送中被判刑同儕](https://www.cna.com.tw/news/firstnews/202111040383.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+[台湾成立专案小组，防备北京利用深伪技术影响公投大选](https://www.voachinese.com/a/taiwan-establishes-task-force-against-china-electron-meddling-deepfakes-20211103/6298493.html)
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-总编：Irene木木
+总编：飞虹
 编辑：AN
 校正/发稿：Fei797
 

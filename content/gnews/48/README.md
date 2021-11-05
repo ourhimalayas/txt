@@ -2,26 +2,27 @@
 ---
 
 
-## 11/5/2021中日财经爆：教培“团灭”，东方已败
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640739/)
+## 11/5/2021中日财经爆 ：“油盐酱醋“都涨价，受苦的还是老百姓
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640779/)
 
 #### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-32.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fk12-pc.koocdn.com%2Fimg%2FvideoPoster.dd2e9486.jpg&amp;imgrefurl=https%3A%2F%2Fwww.koolearn.com%2F&amp;tbnid=2TPJufSylXBwSM&amp;vet=12ahUKEwi6kL7p14D0AhVbS_UHHWfnCZcQMygDegUIARClAQ..i&amp;docid=EOIHh6FqcrbFuM&amp;w=1920&amp;h=780&amp;q=%E6%96%B0%E4%B8%9C%E6%96%B9&amp;ved=2ahUKEwi6kL7p14D0AhVbS_UHHWfnCZcQMygDegUIARClAQ)
-三言财经 11月4日消息，今日，新东方公众号发布文章表示，因为业务调整，新东方各地学校退租了部分校区，校区是退租了，但是遗留下来了一堆崭新的课桌椅。这些课桌椅都是新东方为了让新东方的孩子们有更好的学习环境专门定制的，有些可以根据孩子的身高调节高度，有些做了圆角的设计避免孩子不小心磕到头，而这些定制桌椅，每套大概市场价六七百块钱。新东方希望物尽其用，决定将这些闲置课桌椅，捐赠给有需要的乡村学校。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5646.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimagepphcloud.dwnews.cc%2Fpph%2Fimage%2F162%2F361%2F656.jpg&amp;imgrefurl=https%3A%2F%2Fm.dwnews.cc%2FnewsDetail_forward_15238373&amp;tbnid=9GynDRf9CRtMhM&amp;vet=12ahUKEwjUkoe56oD0AhVdTPUHHdnPDiEQMygAegUIARCkAQ..i&amp;docid=OSNAGii9jA_ciM&amp;w=888&amp;h=608&amp;q=%E2%80%9C%E6%B2%B9%E7%9B%90%E9%85%B1%E9%86%8B%E2%80%9C%E9%83%BD%E6%B6%A8%E4%BB%B7&amp;ved=2ahUKEwjUkoe56oD0AhVdTPUHHdnPDiEQMygAegUIARCkAQ)
+11月4日，肉类食品专营企业得利斯称，一个月前已对预制菜相关牛肉类产品价格已进行了调整，近期也对部分牛肉类产品进行了再次提价。在必选消费品提价这件事上，得利斯不是第一个“吃螃蟹的人”。
 
-俞敏洪给新东方全国学校的校长说了这件事，呼吁有闲置课桌椅的分校都行动起来，“既不浪费课桌椅，也是做了好事。”
+在更早前的10月13日，海天味业发公告称，将对酱油、蚝油、酱料等部分产品的出厂价格进行调整，调整幅度为3%-7%不等。
 
-截至目前，郑州、西安、合肥、成都、宜昌、佛山、兰州、连云港、武汉、乌鲁木齐、太原、海口等新东方分校，共计捐出了共73,366套这样的新桌椅。
+10月22日，洽洽食品也称，将对葵花子系列产品以及南[瓜子](https://36kr.com/projectDetails/3968812)、小而香西瓜子产品的出厂价格调整，提价幅度为8%-18%不等。
 
-俞敏洪在朋友圈转发文章，并留言表示，教培时代结束，新东方把崭新的课桌椅，捐献给了乡村学校，已经捐献了近八万套。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-16.jpg)
-[新东方](https://www.epochtimes.com/gb/tag/%E6%96%B0%E4%B8%9C%E6%96%B9.html)集团10月25日宣布，将停止经营中共国内地义务教育阶段学科类校外培训服务。近期，在中共“双减”政策的持续打压下，中共国多家大型教育培训机构几乎遭“团灭”。
+随即，被称为“中国最大制醋企业”的恒顺醋业也宣布将于自11月20日起对部分产品进行价格调整，调整幅度5%-15%不等。主营[调味品](https://36kr.com/projectDetails/335067)的[加加](https://www.36dianping.com/space/4848401030?mp=zzquote)食品也在16日起对多种产品调价，上调幅度3%-7%不等。
 
-消息来源：
+近日，金龙鱼放出信号称，关于调价，公司要平衡消费者的接受度与公司的成本、利润及长远发展之间的关系，较为稳健的处理调价问题。
 
-[俞敏洪：教培时代结束，新东方捐献近八万套课桌椅给乡村学校](http://www.sycaijing.com/news/flash?id=114130)
+此外，盐业上市公司也于进入宣布集体涨价，继雪天盐业称小包食盐出厂价近期陆续提价后，云南能投也透露，对部分食盐产品及工业盐产品价格进行上调。
 
-[中共打压下 新东方宣布停止经营大陆教培服务](https://www.epochtimes.com/gb/21/10/25/n13329228.htm)
+至此，中共国内市场“油盐酱醋”到食品肉类已全部涨价。对于本就单价不高的食品以及日用品来说，原材料成本上涨的压力传导到了消费者身上。“涨价潮”来袭，部分消费者已经开始“囤货”。
+
+消息来源:
+[受原材料成本影响，“油盐酱醋”已全部涨价](https://36kr.com/p/1471582648461059)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

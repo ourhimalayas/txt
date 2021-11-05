@@ -2,36 +2,22 @@
 ---
 
 
-## 郭先生对战友们的几个小忠告
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641292/)
+## 调查：近半数驻香港记者计划离港
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1641377/)
 
-作者：美东香草山 – 新世界的一员
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/11/123.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.zaobao.com.sg%2Fs3%2Ffiles%2Fstyles%2Farticle_large_crop%2Fpublic%2F2021-11%2Fgangji.jpg%3Fitok%3D9_l-1ubb&amp;imgrefurl=https%3A%2F%2Fwww.zaobao.com.sg%2Frealtime%2Fchina%2Fstory20211105-1210493&amp;tbnid=hhgVaLIrLQQNXM&amp;vet=12ahUKEwijkvHfnIH0AhUITpQKHRNDDLIQMygCegQIARAW..i&amp;docid=GuLj7xjjOWbZiM&amp;w=800&amp;h=500&amp;itg=1&amp;q=%E8%B0%83%E6%9F%A5%EF%BC%9A%E8%BF%91%E5%8D%8A%E6%95%B0%E9%A9%BB%E9%A6%99%E6%B8%AF%E8%AE%B0%E8%80%85%E8%AE%A1%E5%88%92%E7%A6%BB%E6%B8%AF&amp;ved=2ahUKEwijkvHfnIH0AhUITpQKHRNDDLIQMygCegQIARAW)
+香港外国记者会（FCC）的一项最新调查显示，自《香港国安法》出台以来，香港新闻工作者的工作条件明显恶化，且将近一半的记者表示，他们正考虑要离开香港。FCC在今年8月底至10月底针对其记者会员进行了问卷调查，搜集了70名为驻港外国媒体工作的记者的回复，以及29名为香港本地媒体工作的记者的回复，共99份答复。该调查显示，有84%的受访者表示，自2020年6月《香港国安法》施行以来，新闻业工作环境已“变得更糟”。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+另外，记者的个人安全也是一大问题，因为许多人也对可能的网络或实体监控感到担忧。调查显示，有46%的受访者说，随着香港新闻自由度下降，他们现在正考虑或已经有计划要离开香港。台湾外籍记者联谊会（TFCC）向德国之声表示，自《香港国安法》通过以来，该协会陆续收到在香港的外媒记者询问该如何前往台湾。根据台湾外交部去年12月底统计，2020年全年新增了34位有进行注记的外媒记者。
 
-就战友们而言，11月1日可谓是个改变终生的日子——喜币于这一天上市，从此战友们拥有了最干净的钱财，实现了真正的财富自由。重要的是，战友们不仅拥有了每分每秒都在增长的财富，还拥有了属于新中国联邦的铸币权。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-34.jpg)
-对于战友们的“一夜暴富”，文贵先生在当天的直播中提到，花钱其实比挣钱难，因此他也发自肺腑地向战友们提出了几点小忠告：
+信息来源：
 
-首先，一定要善待父母和兄弟姐妹，也要爱自己的孩子；再者，不要嫉妒曾经的朋友，更不要向他们炫耀，要尊重每一个人；其三，不要开始尝试狗肉，或奇怪的肉类食物，或是食用野生动物；最后，不论残疾人的初衷如何，要对他们施以援手，他们是上天派来试探善良的温度计。
+[调查：近半数驻香港记者计划离港](https://www.dw.com/zh/%E8%B0%83%E6%9F%A5%E8%BF%91%E5%8D%8A%E6%95%B0%E9%A9%BB%E9%A6%99%E6%B8%AF%E8%AE%B0%E8%80%85%E8%AE%A1%E5%88%92%E7%A6%BB%E6%B8%AF/a-59728202)
 
-郭先生提醒战友们，有了财富之后，一定要多积善，少作恶！
-
-参考链接：
-
-[战友们拥有财富后 七哥的几个小要求](https://gettr.com/post/pg2oq54a83)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-总编：Irene木木
-编辑：AN
-校正/发稿：Fei797
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

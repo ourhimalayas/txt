@@ -2,18 +2,27 @@
 ---
 
 
-## 欧盟议会代表团正式访台
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1640854/)
+## 国际刑事法院调查委内瑞拉
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1640975/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11051.jpg)图片来自BBC
-11 月 5 日 -身为欧洲议会外国干涉特别委员会 (Inge) 主席Raphael Glucksmann 表示 “我们的访问表明台湾对于欧洲的重要性，它体现了该地区的自由和民主。我们来传达信息，即台湾并不孤单，你们的民主对于欧盟原则和欧洲的长期利益都至关重要”。
+新闻来源：德国法兰克福报网页版
 
-他表示：“欧洲议会代表团对台湾进行正式访问是在向台湾学习，是因为它代表了如何以公开和民主的方式对抗外国干涉和虚假信息的例子，我们来学习台湾的成功经验并将这些经验带回欧洲“。
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/05/delegazione-pe-a-taiwan-vostra-democrazia-cruciale-per-ue\_2f879961-9e14-49c9-a389-779b54c93578.html](https://www.ansa.it/sito/notizie/topnews/2021/11/05/delegazione-pe-a-taiwan-vostra-democrazia-cruciale-per-ue_2f879961-9e14-49c9-a389-779b54c93578.html)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/nicolas-maduro-und-karim-khan-chefanklaeger-des-in-istgh-1.jpg)
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+
+图片来源： FAZ
+
+这是在总统府拍摄的一张不寻常的照片。它展示了委内瑞拉的社会主义统治者尼古拉斯·马杜罗 (Nicolás Maduro) 和总部位于海牙的国际刑事法院 (ICC) 的首席检察官卡里姆·汗 (Karim Khan)。他们手里拿着两份文件。这是双方于周三签署的协议。国际刑事法院希望调查在 2017 年的反对社会主义政府的抗议活动中， 是否对反对派犯下了危害人类罪。
+
+当时有一百名抗议者被杀。同年，2015 年选举产生的国民议会被剥夺权力，取而代之的是制宪议会，其中反对派占三分之二多数。至少自 2019 年备受争议的连任以来，马杜罗在国际上基本上与世隔绝。
+
+马杜罗在电视上说，首席检察官决定调查真相。 “我们不同意这个决定，但我们尊重它。” 所以这不仅仅是一张不寻常的照片，也是他选择的不寻常的词。大约三年前宣布自己为反总统的反对派政治家胡安·瓜伊多 (Juan Guaidó) 对这一消息表示欢迎。最重要的是，这是抗议活动的受害者及其家人希望日后正义的一个原因。
+
+原文链接：[https://www.faz.net/aktuell/finanzen/us-notenbank-fed-wechselt-kurs-und-setzt-euro-unter-druck-17618425.html](https://www.faz.net/aktuell/finanzen/us-notenbank-fed-wechselt-kurs-und-setzt-euro-unter-druck-17618425.html)
+
+责任编辑、发布： Shuizhuyu
 
  
 

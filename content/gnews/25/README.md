@@ -2,23 +2,29 @@
 ---
 
 
-## 台湾防备中共利用深伪技术制造混乱
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641482/)
+## 中共能源危机持续，与美国签巨额天然气合同
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641632/)
 
-作者：纽约香草山农场 – 007
+作者：MOS 柳是多水土透
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月3日，台湾国安局官员向立法院证实，国安局现已成立专案小组，应对中共利用深伪技术妨害台湾安全和稳定的行为。国安局透露，中共的深伪技术可仿造台湾领导人的影音或照片，从而可利用其影响台湾未来的公投和大选。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-16.jpg)
-深伪技术，即透过人工智能的深度学习技术伪造信息，现多为不法分子的牟利工具，也是中共用来侵扰台湾、干预台湾政治的手段。情报显示，自2018年起，中共的这类操作就层出不穷。截至目前，台湾今年已经监测到了5万多次来自中共的网络攻击。
+近日，有报道指出，虽然中共的煤炭期货下滑了约35%，但中共的能源危机仍远未缓解。数据显示，先是中共国内几个主要产煤大省的水灾降低了本土供应，加之与澳大利亚的关系持续恶化，导致煤炭进口短缺，中共的实货煤炭依旧极其昂贵。入冬后，中共国内还增添了燃煤供暖的需求，这将加剧中共的能源短缺。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-13.jpg)
+另一方面，中共国内部分地区今年降雨量减少，依赖降水量的供电也难以为继，部分工厂被强制限电。这也导致中共国内液化天然气价格的大幅上涨。
 
-有关评论显示，中共如今仍不放弃侵占台湾的野心，台湾需谨慎防备中共利用人工智能技术，在台湾重大事件或政治问题中操控舆论、制造混乱的邪恶计划。
+为了解决迫在眉睫的能源问题，中共与美国路易斯安那州的天然气企业签署了一份20年的协议，以确保美国向中共国出口400万吨的液化天然气。
+
+相关评论指出，2019年中美贸易战期间，中共几乎切断了对美国化石能源产品的进口，此次签署如此巨额的天然气协议，或与中共每况愈下的国际与国内环境有关。
 
 参考链接：
 
-[台湾成立专案小组，防备北京利用深伪技术影响公投大选](https://www.voachinese.com/a/taiwan-establishes-task-force-against-china-electron-meddling-deepfakes-20211103/6298493.html)
+[中国为应对能源短缺和减排狂买美国天然气](https://cn.wsj.com/articles/%E4%B8%AD%E5%9B%BD%E4%B8%BA%E5%BA%94%E5%AF%B9%E8%83%BD%E6%BA%90%E7%9F%AD%E7%BC%BA%E5%92%8C%E5%87%8F%E6%8E%92%E7%8B%82%E4%B9%B0%E7%BE%8E%E5%9B%BD%E5%A4%A9%E7%84%B6%E6%B0%94-11635903309)
+
+[Sinopec signs China’s largest long-term LNG contract with U.S. firm](https://www.reuters.com/business/energy/sinopec-signs-20-yr-lng-contract-with-us-venture-global-lng-2021-11-04/)
+
+[《RUSSELL专栏》中国动力煤期货虽暴跌35% 然现货价格依然坚挺](https://cn.reuters.com/article/column-russell-china-coal-drv-1026-idCNKBS2HG0QZ)
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-总编：飞虹
-编辑：AN
+总编：Irene木木
+编辑：Kathy文艺/Irene木木
 校正/发稿：Fei797
 
 **更多资讯，更多关注**
