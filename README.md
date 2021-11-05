@@ -15,112 +15,112 @@
 
 ---
 
-### [参与辉瑞疫苗试验的科研公司遭指控](/content/gnews/1/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
+### [2021/11/04文贵先生盖特精要](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [联合国粮农组织：10月份世界粮食价格创10年新高](/content/gnews/2/README.md)
- ` 纽约香草山MOS02`
-
-### [全球供应链中断的负面影响或将持续蔓延](/content/gnews/3/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [澳大利亚联邦银行推出数字货币服务](/content/gnews/4/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [俄亥俄州共和党人提出法案以禁止任何堕胎想法](/content/gnews/5/README.md)
- ` wenwu`
-
-### [魁北克省放弃对医护人员的强制接种政策](/content/gnews/6/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [美国跨党派参议员提出法案，阻止中共收购美国个人数据](/content/gnews/7/README.md)
- ` 纽约香草山MOS02`
-
-### [因疫情影响全球航空旅游业一蹶不振](/content/gnews/8/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [中共开征房地产税是中共走向北朝鲜与人类文明对决的开始](/content/gnews/9/README.md)
+### [共产党不是拿房地产税，拿的是重新分配财富的权力](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [辉瑞公司COVID-19疫苗的信誉是让人质疑的](/content/gnews/10/README.md)
+### [英政府批准了【默克公司】抗“新冠病毒”药](/content/gnews/3/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [参与辉瑞疫苗试验的科研公司遭指控](/content/gnews/4/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [联合国粮农组织：10月份世界粮食价格创10年新高](/content/gnews/5/README.md)
+ ` 纽约香草山MOS02`
+
+### [全球供应链中断的负面影响或将持续蔓延](/content/gnews/6/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [澳大利亚联邦银行推出数字货币服务](/content/gnews/7/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [俄亥俄州共和党人提出法案以禁止任何堕胎想法](/content/gnews/8/README.md)
  ` wenwu`
 
-### [郭文贵先生11月3日大直播概要](/content/gnews/11/README.md)
+### [魁北克省放弃对医护人员的强制接种政策](/content/gnews/9/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [美国跨党派参议员提出法案，阻止中共收购美国个人数据](/content/gnews/10/README.md)
+ ` 纽约香草山MOS02`
+
+### [因疫情影响全球航空旅游业一蹶不振](/content/gnews/11/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [中共开征房地产税是中共走向北朝鲜与人类文明对决的开始](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [辉瑞公司COVID-19疫苗的信誉是让人质疑的](/content/gnews/13/README.md)
+ ` wenwu`
+
+### [郭文贵先生11月3日大直播概要](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [参议员霍利提出法案，帮助台湾武装抵御中共可能的入侵](/content/gnews/12/README.md)
+### [参议员霍利提出法案，帮助台湾武装抵御中共可能的入侵](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [全球接种疫苗国家的排序](/content/gnews/13/README.md)
+### [全球接种疫苗国家的排序](/content/gnews/16/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美众议员提案禁止联邦资金用于强制疫苗接种](/content/gnews/14/README.md)
+### [美众议员提案禁止联邦资金用于强制疫苗接种](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国各地的医院正在发生一些非常奇怪的事情](/content/gnews/15/README.md)
+### [美国各地的医院正在发生一些非常奇怪的事情](/content/gnews/18/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [欧洲议会开历史先河，首次派代表团访台](/content/gnews/16/README.md)
+### [欧洲议会开历史先河，首次派代表团访台](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大魁北克&#8212;不再对现有的医疗工作者强制接种疫苗，新员工除外](/content/gnews/17/README.md)
+### [加拿大魁北克&#8212;不再对现有的医疗工作者强制接种疫苗，新员工除外](/content/gnews/20/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [五角大楼：中国到2030年可能拥有1000枚核弹头](/content/gnews/18/README.md)
+### [五角大楼：中国到2030年可能拥有1000枚核弹头](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [100名长期教师、TDSB工作人员在未披露COVID-19疫苗接种状况后休无薪假](/content/gnews/19/README.md)
+### [100名长期教师、TDSB工作人员在未披露COVID-19疫苗接种状况后休无薪假](/content/gnews/22/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [郭文貴精品視頻-一個完美的無與倫比的貨幣Himalaya Coin誕生了](/content/gnews/20/README.md)
+### [郭文貴精品視頻-一個完美的無與倫比的貨幣Himalaya Coin誕生了](/content/gnews/23/README.md)
  ` 澳喜农场`
 
-### [通货膨胀、工资增长，挑战美联储“过渡性”通胀的说法](/content/gnews/21/README.md)
+### [通货膨胀、工资增长，挑战美联储“过渡性”通胀的说法](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [安大略省将不强制要求医院工作人员接种COVID-19疫苗](/content/gnews/22/README.md)
+### [安大略省将不强制要求医院工作人员接种COVID-19疫苗](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [立陶宛呼吁欧盟团结一致应对中共](/content/gnews/23/README.md)
+### [立陶宛呼吁欧盟团结一致应对中共](/content/gnews/26/README.md)
  ` 日本东京方舟农场`
 
-### [NBA球星埃内斯•坎特对“邪教”中共说：“香港将自由！”](/content/gnews/24/README.md)
+### [NBA球星埃内斯•坎特对“邪教”中共说：“香港将自由！”](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [“不要帮凶种族灭绝” 人权组织督促取消转播冬奥会](/content/gnews/25/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [不仅仅是护理人员的问题：卑诗省 911呼叫延迟背后的原因](/content/gnews/26/README.md)
+### [不仅仅是护理人员的问题：卑诗省 911呼叫延迟背后的原因](/content/gnews/28/README.md)
  ` MG FARM`
 
-### [川普：格伦·杨金的胜利证明了MAGA运动比以往更强大](/content/gnews/27/README.md)
+### [川普：格伦·杨金的胜利证明了MAGA运动比以往更强大](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/28/README.md)
- ` wenwu`
-
-### [美国中共病毒疫苗顾问参加中共资助的研讨会](/content/gnews/29/README.md)
+### [美国中共病毒疫苗顾问参加中共资助的研讨会](/content/gnews/30/README.md)
  ` 日本东京方舟农场`
 
-### [秘翻在线: 中共军队在福建南部演练渡河作战](/content/gnews/30/README.md)
+### [秘翻在线: 中共军队在福建南部演练渡河作战](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美疾控中心一项漏洞百出的报告称疫苗比自然免疫更有效](/content/gnews/31/README.md)
+### [美疾控中心一项漏洞百出的报告称疫苗比自然免疫更有效](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [郭文贵：喜财富属于民天下，我们的使命是消灭共产党](/content/gnews/32/README.md)
+### [郭文贵：喜财富属于民天下，我们的使命是消灭共产党](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [NBA球员埃内斯·坎特声援香港](/content/gnews/33/README.md)
+### [NBA球员埃内斯·坎特声援香港](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美陆军医生：一早上因疫苗伤害，不得不让3名飞行员停飞](/content/gnews/34/README.md)
+### [美陆军医生：一早上因疫苗伤害，不得不让3名飞行员停飞](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [澳昆士兰州约4000名医疗工作者因未接种疫苗被停职](/content/gnews/35/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [郭文贵：任何人无权拒绝贸易货币下的喜支付体系](/content/gnews/36/README.md)
+### [澳昆士兰州约4000名医疗工作者因未接种疫苗被停职](/content/gnews/36/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [法西斯主义在行动：多名FDA成员与辉瑞有经济来往](/content/gnews/37/README.md)

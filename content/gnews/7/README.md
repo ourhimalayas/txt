@@ -2,54 +2,25 @@
 ---
 
 
-## 美国跨党派参议员提出法案，阻止中共收购美国个人数据
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1639842/)
+## 澳大利亚联邦银行推出数字货币服务
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1639855/)
 
-作者：纽约香草山农场  – 四季
+原文采编：UCool优酷 编译撰稿：文所未闻
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-2-edited.jpg)图片来源：GNEWS
 
 
+据韩国《经济时报》11月3日报道，作为澳大利亚首家最大金融机构，【澳大利亚联邦银行】目前已正式推出针对零售客户的加密数字货币服务。此举将对澳大利亚的银行业产生巨大影响。
 
-美国共和党籍联邦参议员鲁比奥（Marco Rubio）和民主党籍联邦参议员沃尔纳克（Raphael Warnock）共同发起《敏感个人数据保护法案》，要求外国投资者在对处理敏感个人数据的美国公司进行投资时，必须进行强制性的申报，从而加强关键的监管。
+据悉，该银行将与一家位于纽约的加密货币交易所合作，允许其客户交易比特币、以太坊等加密数字货币。并将在未来几周开始其加密货币交易服务的试点营运。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1349.jpg)图片来源：路透社
+【澳大利亚联邦银行】首席执行官为此表示，加密数字货币的出现以及客户对此不断增长的需求为金融服务领域创造了挑战和机遇。银行完全可以通过提供安全可信的加密货币交易平台而在该投资邻域中发挥其重要作用。
 
-该法案将保护美国人的重要个人信息，如基因检测结果、健康状况、保险申请、经济困难数据、安全许可信息、地理位置数据、私人电子邮件、用于生成政府身份证明的数据以及信用报告信息。
+* * *
 
-两位参议员表示，像中共国这样的对手利用收购来储存数据，给美国人带来“个人隐私和国家安全方面的风险”。
+校对编辑，发稿：硫酸羟氯喹64
 
-美国国家反情报收集与安全中心在今年2月发表的一份报告中说，中共国多年来以合法和非法手段——包括收购处理个人敏感健康资料和其他个人数据的美国公司，与美国的医院、大学和其他研究机构合作，以及黑客袭击——从美国和世界其他各国收集大量医疗健康方面的数据。报告称，此举不仅对美国人的个人隐私构成威胁，而且危及美国的经济与国家安全。
-
-**参考阅读：**
-
-[美跨党派参议员提出个人数据保护法案，限制中国收购美国人的个人数据 (voachinese.com)](https://www.voachinese.com/a/marco-rubio-warnock-personal-data-protection-bill-china-20211103/6298765.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+[原文链接：](https://www.econotimes.com/Cryptocurrency-Commonwealth-Bank-of-Australia-becomes-the-countrys-first-to-offer-crypto-trading-services-1620577)
 
  
 

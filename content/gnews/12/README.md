@@ -2,66 +2,164 @@
 ---
 
 
-## 参议员霍利提出法案，帮助台湾武装抵御中共可能的入侵
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1639730/)
+## 中共开征房地产税是中共走向北朝鲜与人类文明对决的开始
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1639812/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/110412.jpg)密苏里州共和党参议员乔希•霍利于2021年2月26日在佛罗里达州奥兰多凯悦酒店举行的保守党政治行动会议(CPAC)上发表讲话。 (Joe Raedle/盖蒂图片)
-**摘要翻译:**
+[https://gtv.org/video/id=61846260adfd99590c3330c7](https://gtv.org/video/id=61846260adfd99590c3330c7)
 
-来自《大纪元时报》11月3日的报道，
+所有地方(政府)上的地方债要爆雷了
+Todas las deudas locales (gubernamentales) están a punto de explotarse
 
-密苏里州共和党参议员乔什·霍利11月2日提出一项法案，寻求加强台湾这个自治岛屿，在遭到中共袭击时的自卫能力。
+卖地卖不出去了
+Ya no pueden vender terrenos
 
-“台湾正处于严重的危险之中，但未来如何还未有定论。”霍利在一份介绍2021年《武装台湾法》的新闻稿中写道。
+现在回过头来
+Ahora vienen
 
-霍利表示，该法案将通过每年拨款30亿美元，用于一项新的《台湾安全援助计划》，以加强台湾对不对称防御能力的部署，从而加强台湾对中共入侵的防御。
+来割你的韭菜
+Y cortan tus puerros
 
-该法将责成国防部长制定安全倡议，并在2023至2027财年每年为该倡议拨款30亿美元。
+让你买过的房子, 欠过的债
+La casa que compraste, las deudas que debías
 
-立法规定，这些资金将专门用于加速台湾部署“必要的不对称能力，以延迟、削弱和抵抗中共的入侵”。
+再让你为你的债再付利息
+Te permite pagar más intereses por tu deuda
 
-霍利引用了美国和台湾官员的警告，称“中共国可能会在未来几年内试图入侵台湾”。
+这真的是人
+Esto realmente es
 
-“我们必须竭尽全力帮助台湾紧急强化其防御能力。如果说中共最近的行动向世界展示了任何讯息，那就是中共政权将不惜一切代价主宰印太地区，进而主宰全世界。”霍利在一份声明中说。“我们绝不能让他们得逞。”
+生的时候在娘胎里边
+Cuando el ser humano está en el vientre de su madre
 
-最近几周，中共升级了对台湾的军事骚扰，包括通过中共军机飞越台湾防空区来展示武力。
+就开始征税
+Comienza a cobrar impuestos
 
-中共领导人习近平10月初在一次讲话中誓言要实现“国家统一”，称台湾的独立是“民族复兴的严重隐患”。
+到你长大开始各种税
+Hasta cuando crezcas empiezan todo tipo de impuestos
 
-美国目前保持着长达数十年的外交政策，这个政策被称为“战略模糊”，这意味着它在是否会保护台湾的问题上故意含糊其辞。
+到死了就是把火葬场弄很贵
+Incluso, hasta morirse es encarecer el crematorio
 
-然而，法律（《台湾关系法》(the Taiwan Relations Act)）要求华盛顿为台湾提供足够的、用于自卫的军事装备。
+再把这个放骨灰盆的地方, 墓地再弄很贵
+Y también con el lugar para poner las cenizas y el cementerio
 
-台湾总统蔡英文此前曾表示，台湾将“不惜一切代价”保障其免受中共日益扩张的侵略，她上周证实，40年来美军首次在台湾领土上驻扎。
+现在是把这一切再跟你收一遍税
+Ahora es volver a cobrar todos estos impuestos
 
-蔡英文说，如果台湾受到中共国的攻击，她确信美国会保卫台湾。
+中国这个社会, 土地属于国家的
+En la sociedad de China, el terreno le pertenece al país
 
-“鉴于我们与美国的长期关系，以及美国人民和国会的支持，我确实有信心。”她在10 月27日播出的采访中告诉CNN。“本届政府对台湾提供了很大帮助。”
+房地产是租赁的70年
+Los inmuebles se alquilan por 70 años
 
-**简评：**
+产权70年
+Derechos de propiedad durante 70 años
 
-中共政权在习近平上台后，所谓“民族统一”的论调不断升级，如今中共国内经济下滑，政局不稳，习近平当局完全有可能通过发起一场对台战争转嫁国内矛盾，巩固其岌岌可危的统治地位。而台湾国民党时下正积极参与和推进的四合一公投，目标也在配合中共，搞乱台湾。面对这种内忧外患的局面，能否平息台湾岛内的政治纷争，集结民心，考验着蔡英文政府的领导能力。
+房地产寿命平均30年
+La vida útil promedio de las propiedades inmobiliarias es de 30 años
 
-据美国之音报道，霍利参议员提出的《武装台湾法》虽然提出将确保台湾拥有遏制中共国侵略的不对称防御力，但其前提是台湾要做好准备，在未来艰难的时间里“做出必要的自卫选择”。这与郭文贵先生了解到的信息是一致的，即台湾如果想要获得美国的保护，必须是台湾人民愿意奋起反抗中共可能发起的侵略，否则美国即使是愿意保护台湾，也出师无名。希望台湾各政治派别和台湾人民，最终能够做出明智的有利于台湾未来的选择。
+你贷款(买)的房子是你平均工资, 58年才能交完的房租
+La casa que compraste por préstamo es según el promedio de tu salario, implica que debes terminar de pagarla por 58 años
 
-新闻链接: [Sen. Hawley Introduces Bill to Help Taiwan Arm Itself Against Potential China Invasion](https://www.theepochtimes.com/sen-hawley-introduces-bill-to-help-taiwan-arm-itself-against-potential-china-invasion_4083536.html)
+房地产是GDP的4倍到10倍
+La propiedad inmobiliaria es de 4 a 10 veces del producto interno bruto (PIB)
 
-***翻译/简评**：Harvey (叶知秋)*
+你拿房地产税, 这简直是比抢劫还夸张
+El impuesto inmobiliario que cobras, es realmente más exagerado que robar
 
-***校对**：Julia Win*
+结果盖了个名, 戴了个帽子, 叫做共同富裕
+Como resultado, se obtiene un nombre y se le pone un sombrero llamado prosperidad en conjunto
 
-* * *
+这种愚蠢的事情也有人信呢
+Igualmente hay personas que creen en este tipo de asunto tan ridículo como este
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+你的国家, 你的土地, 你的空气
+Tu país, tu terreno, tu oxígeno
 
+他把地主给推翻了, 它成大地主了
+Él derrocó al propietario y se convirtió en un gran propietario
 
-编辑：【英国伦敦喜庄园编辑部】
+把地让你盖了房子
+Te dió el terreno para construir una casa
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+盖了30年就应该拆掉的房子
+Se construye una casa que debería ser demolida 30 años después
 
+70年的(土地)租赁权
+El arrendamiento de 70 años (terreno)
 
+商业才50年
+Si el comercio es solamente de 50 años
+
+现在让你交房地产税
+Ahora te dicen para pagar el impuesto inmobiliario
+
+然后你生孩子呢, (计算房地产税时) 就减60平米
+Entonces, si tienes un bebé, (al calcular el impuesto sobre bienes inmuebles), se te reducirá en 60 metros cuadrados
+
+你不生孩子呢, 你就基本破产
+Si no tienes hijos, básicamente irás a la quiebra
+
+然后电费, 水费
+Luego es el costo de la electricidad y el agua
+
+中国人连美国这个牛和马都不如
+Los chinos son inferiores al ganado y los caballos estadounidenses
+
+一个月60度电
+60 kWh por mes
+
+人家美国是600度电
+En EE. UU son 600 kWh
+
+然后要干掉美国征服世界
+Y quieren derribar al EE. UU para apoderarse del mundo
+
+然后我们最优越的体制
+Y luego nuestro sistema más superior
+
+所以说现在你看共产党的房地产税有多荒唐
+Por eso, ahora ves lo absurdo que es el impuesto inmobiliario del Partido Comunista
+
+竟然有法国的一个在中国投资的(人)问我
+Alguien de Francia que invirtió en China me preguntó
+
+欸, Miles这是不是说明共产党的经济很稳定
+Hey Miles, esto significa que la economía del Partido Comunista es muy estable
+
+哎唷, 我说那么稳定, 你赶快去投资啊
+Ay, dije, si es tan estable entonces vaya a invertir
+
+快去, 再投点儿
+Vaya, invierta más
+
+中国给房地产征税的开始
+El comienzo de China con el cobro de impuestos inmobiliarios
+
+绝对是中共走向北朝鲜与人类文明的对决的开始
+Es absolutamente el inicio de la marcha del PCCh hacia Corea del Norte y el enfrentamiento entre la civilización humana
+
+———————————————————
+
+**原视频网址：** [https://gettr.com/post/pfo7k8769b](https://gettr.com/post/pfo7k8769b)
+
+日期：11/04/2021
+原视频标题：中共开征房地产税是中共走向北朝鲜与人类文明对决的开始
+La recaudación del impuesto inmobiliario por parte del PCCh es el comienzo de la marcha del PCCh hacia Corea del Norte y el enfrentamiento entre la civilización humana
+原视频日期：10/31/2021
+任务编号：KC222(2740)
+视频时间段：0:00-2:02
+
+西听校: 洛杉矶盘古农场- 霙霙（文霙）
+翻译: 洛杉矶盘古农场- 小文萱
+翻译终校: 洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

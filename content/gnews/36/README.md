@@ -2,10 +2,10 @@
 ---
 
 
-## 郭文贵：任何人无权拒绝贸易货币下的喜支付体系
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639288/)
+## 澳昆士兰州约4000名医疗工作者因未接种疫苗被停职
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1639408/)
 
-11/1/2021 【HCoin to The Moon庆典】郭文贵先生：任何人无权拒绝贸易货币下的喜支付体系。
+11/02/2021 澳洲新闻：澳昆士兰州约4000名医疗工作者由于疫苗截止日未接种疫苗而被停职.离开了本已摇摇欲坠的医疗系统.
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
