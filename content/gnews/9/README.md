@@ -2,58 +2,37 @@
 ---
 
 
-## 捷克政治家呼吁采取“一个台湾政策”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1642527/)
+## 北京冬奥会私密“娱乐中心”将会让运动员兴奋地飞翔
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1642547/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Chinese-Communist-U.S.-Consulate-640x480-2-1.jpg)Source: Twitter
+#### 作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-10.png)[*图片来源*](http://www.gd.gov.cn/img/0/463/463545/3180419.jpg)
+北京冬奥会开赛在即已成定局。值得一提的是，冬奥村居住区地下还“藏”着一处“娱乐中心”，将利用VR、5G等全新科技，让来自世界不同地域的人士以全新的角度体验智能特殊服务。
 
-来自《台湾英语新闻》11月5日的报道，一位捷克政治家周四（11月4日）在推特上呼吁他的国家采取“一个台湾政策”，并上传了一张地图，明确表明台湾是一个独立于中共国的国家。
+据中共国[新华社](http://bj.news.cn/2021-11/05/c_1128034479.htm)5日消息称：作为冬奥会提供服务保障时间最长最大的非竞赛场馆之一，北京冬奥村（冬残奥村）将为运动员及随队官员提供53天全天候24小时保障服务。
 
-在欧洲议会议员访问台湾期间，总部位于布拉格的欧洲价值安全政策智库主任雅库布·扬达(Jakub Janda)发布了一条针对欧洲领导人的推文。他将台湾描述为一个“具有法治运作的友好自由民主国家”。
+据悉，北京冬奥村将于2022年1月23日预开村，1月27日正式开村，2月23日闭村；冬残奥村自2022年2月23日预开村，2月25日正式开村，3月16日闭村。冬奥服务场馆分别有运行区、广场区、居住区三大区域。
 
-杨达随后呼吁欧洲领导人宣布“一个台湾政策”。他表示，承认中国共产党“现在占领大陆领土”的“一个中国政策”可以继续。
-
-然而，他表示，随着对台湾的新政策，欧洲各国政府可以“以任何我们想要的方式”与该国接触。为了强调台湾不受中共管辖的观点，他附上了一张地图，国家用鲜红色，上面用亮黄色字体写着“中共国”字样，而台湾用蓝色，标记着“不是中共国（这是台湾）”。
-
-两年以来，杨达一直是台湾的坚定拥护者。他表示支持布拉格市长兹德涅克·贺吉普(Zdenek Hrib)于2019年提出的要该市爱乐乐团访问台湾的建议，此前中共政府取消了该乐团的中共国巡演，以报复捷克拒绝驱逐一名台湾外交官。
-
-那一年，他也曾支持捷克共和国议会55名议员联署致函世界卫生组织(WHO)要求其允许台湾作为观察员参加即将举行的世界卫生大会(WHA)。
+- ***延展阅读：***[***美国之音：美国敦促中共国在北京冬奥会上允许记者能有自由***](https://www.voanews.com/a/us-urges-china-to-allow-journalists-freedom-at-beijing-olympics/6301057.html)
+- ***延展阅读：***[***路透社：美国呼吁中共国不要限制冬奥会记者的自由***](https://www.reuters.com/lifestyle/sports/us-calls-china-not-limit-journalists-freedom-2022-beijing-winter-olympics-2021-11-04/)
 
 
+冬奥村将推出智能机器人代表团接待中心，这将全方位收集运动员信息，“科技冬奥”是北京冬奥会和冬残奥会体现的科技元素。机器人是导引服务工作的重要补充，也是为了更好地符合疫情防控需求。机器人还将负责行李寄存，或者带领运动员来到验证点验证后再办理入住。机器人还将出现在村长办公室、餐厅以及北京小屋。在村长办公室，双臂协同机器人将为宾客们提供沏茶服务。餐厅将引入智能引导机器人、炒菜机器人等多个种类的机器人，还配备了智能餐台、智能取餐柜等设施。整个冬奥会办成了机器人智能服务比赛，或许还有智能特殊服务，连运动员卧室床都是智能化服务。
 
-> Taiwan = friendly liberal democratic state with functioning rule of law
-> 
-> Europeans should declare our One Taiwan Policy:
-> 
-> Within One China Policy, we recognise Chinese Communists now occupy the continental territory.But we will engage Taiwan in any way we want[#OneTaiwanPolicy](https://twitter.com/hashtag/OneTaiwanPolicy?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/ElV0qXtj50](https://t.co/ElV0qXtj50)
-> — Jakub Janda (@\_JakubJanda) [November 4, 2021](https://twitter.com/_JakubJanda/status/1456116871045029891?ref_src=twsrc%5Etfw)
+赛时，北京冬奥村将为运动员和随队官员提供2338个床位。为了让运动员睡眠得到保障，释放比赛的紧张压力，运动员们睡的床都配有一个遥控器，可以为不同使用场景下人体脊柱提供最佳支撑。值得一提的是，居住区地下还“藏”着一处“娱乐中心”，将以科技创新+传统文化作为项目核心，利用VR、5G等全新科技。
+
+- ***延展阅读：***[***中国网球明星指控前中共最高领导人性侵犯，引发全面审查***](https://edition.cnn.com/2021/11/03/china/china-metoo-peng-shuai-zhang-gaoli-intl-hnk/index.html)
 
 
+从上述AI智能服务功能设施介绍看，中共国将为本届冬奥会官员+运动员提供多方位蓝金黄服务，这或许是习近平最希望看到的“冬奥外交”结果。
 
-推特部分翻译：
+根据目前情势看，中共为此次冬奥会开启了足够的外交攻势，据[雅虎日本消息](https://news.yahoo.co.jp/articles/d5ae54fe2a236bc020668b8b8b41300d17a799a0)称，日本启动了“北京2022年冬奥会日本国家队支持推介会”，4日跳台滑雪25岁的美女板高梨（Sara Takanashi）在东京“国家队支持推介会”上说，“我认为这会带来好的结果，我正在努力争取金牌。”此外，就此次活动将会提供舒适的睡眠时，高梨兴奋地说：“比赛后虽然无法摆脱兴奋状态，但若闻着自己最喜欢的香味，躺在床上思考着然后就能入睡了。我目前沉迷于一种叫Palo Santo的芬香，让我感觉就像在排毒。”[**阅读更多**](https://news.yahoo.co.jp/articles/7bfff36f166b43d71b7f8ce655fa7d6d8bd556af)
 
-台湾 = 具有法制运作的友好自由民主国家
-欧洲人应该宣布我们的一个台湾政策：在一个中国政策中，我们承认中国共产党现在占领了大陆领土。但我们会以任何我们想要的方式与台湾接触。
+2021年11月5日
 
-简评：
-
-捷克作为欧盟的成员国之一，近年来一直与台湾保持着良好的外交关系，2020年捷克参议院议长米洛什·维斯特奇尔就无视中共国的反对，率团访问了台湾一周。通过雅库布·扬达发布的这条针对欧洲领导人的推文以及欧洲议会代表团11月3日到访台湾展开的访问活动，可以看出欧盟正在逐渐调整“一中政策”。欧盟执委会副主席波瑞尔最近也发言称，中共国对台湾的威胁对欧盟安全有直接冲击。希望台湾蔡英文政府能够抓住时机，加强与欧盟各国的合作，争取更多的国际支持来对抗中共不断加强的文攻武赫。
-
-新闻链接:
-
-[Czech politician calls for ‘one Taiwan policy’](https://www.taiwannews.com.tw/en/news/4335803)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+*编辑：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
