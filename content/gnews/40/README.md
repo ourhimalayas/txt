@@ -2,38 +2,38 @@
 ---
 
 
-## 中共能源危机持续，与美国签巨额天然气合同
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641632/)
+## 银河快讯：岸田首相将在月底前访问美国；日本呼吁中共国提高核战略透明度
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1641870/)
 
-作者：MOS 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，有报道指出，虽然中共的煤炭期货下滑了约35%，但中共的能源危机仍远未缓解。数据显示，先是中共国内几个主要产煤大省的水灾降低了本土供应，加之与澳大利亚的关系持续恶化，导致煤炭进口短缺，中共的实货煤炭依旧极其昂贵。入冬后，中共国内还增添了燃煤供暖的需求，这将加剧中共的能源短缺。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-13.jpg)
-另一方面，中共国内部分地区今年降雨量减少，依赖降水量的供电也难以为继，部分工厂被强制限电。这也导致中共国内液化天然气价格的大幅上涨。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-19.png)[图片来源](https://www.chinatimes.com/)
+**1.****岸田首相将在月底前访问美国**
 
-为了解决迫在眉睫的能源问题，中共与美国路易斯安那州的天然气企业签署了一份20年的协议，以确保美国向中共国出口400万吨的液化天然气。
+[据时事通讯社 11月4日报道，日本首相岸田文雄将于11月访问美国，与美国总统拜登会谈。预计国会特别会议最早将于11月下旬召开，届时首相将发表政策演讲并讨论2021财政年度补充预算法案，由于年内工作繁忙，日本政府已经决定在会议之前访问。在最近访问英国期间，首相与拜登总统进行了简短的会晤，并同意他在年底前访问美国，举行一次正式会谈。](https://news.yahoo.co.jp/articles/5912a9dca33f3bc63e347855a6e27f604ac7f600)
 
-相关评论指出，2019年中美贸易战期间，中共几乎切断了对美国化石能源产品的进口，此次签署如此巨额的天然气协议，或与中共每况愈下的国际与国内环境有关。
+**2.****美参院外交委员会同意伊曼纽尔出任驻日大使**
 
-参考链接：
+[据共同社11月4日报道，美国参议院外交委员会3日以多数赞成，批准了总统拜登（民主党）提名芝加哥前市长伊曼纽尔出任下任驻日本大使的人事安排。2名民主党议员和1名共和党议员表示反对，未形成全会一致。在参议院全体会议上获批基本成定局，预计批准后他将作为驻日大使到任。伊曼纽尔历任克林顿政府的总统助理和总统顾问、奥巴马政府的白宫办公厅主任等民主党政府要职，2011～2019年担任了两届芝加哥市长。](https://tchina.kyodonews.net/news/2021/11/8e9d6366d292.html)
 
-[中国为应对能源短缺和减排狂买美国天然气](https://cn.wsj.com/articles/%E4%B8%AD%E5%9B%BD%E4%B8%BA%E5%BA%94%E5%AF%B9%E8%83%BD%E6%BA%90%E7%9F%AD%E7%BC%BA%E5%92%8C%E5%87%8F%E6%8E%92%E7%8B%82%E4%B9%B0%E7%BE%8E%E5%9B%BD%E5%A4%A9%E7%84%B6%E6%B0%94-11635903309)
+**3.****日本官房长官呼吁中共国提高核战略透明度**
 
-[Sinopec signs China’s largest long-term LNG contract with U.S. firm](https://www.reuters.com/business/energy/sinopec-signs-20-yr-lng-contract-with-us-venture-global-lng-2021-11-04/)
+[据共同社 11月4日报道，日本官房长官松野博一就强调中共国增强核战力意图的美国国防部年度报告，表示“中共国的军力动向对日本而言是极其重大的关注事项。我们将与相关国家携手，呼吁中共国提高包括核政策在内的军力透明度，并遵守国际行动规范”。松野指出，中共国迅速且在各种新领域也强化军力。他表示，中共国“扩大了在东海、南海以及太平洋的活动，已成为包括日本的地区和国际社会在安全保障上的强烈关切。”](https://tchina.kyodonews.net/news/2021/11/7e6531edca0f.html)
 
-[《RUSSELL专栏》中国动力煤期货虽暴跌35% 然现货价格依然坚挺](https://cn.reuters.com/article/column-russell-china-coal-drv-1026-idCNKBS2HG0QZ)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-总编：Irene木木
-编辑：Kathy文艺/Irene木木
-校正/发稿：Fei797
+**4.****岸田内阁称将带着紧迫感落实政策**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[据共同社 11月4日报道，日本首相岸田文雄在官邸就岸田内阁上台迎来一个月向媒体表示，“通过大选获得了国民的信任托付。将带着紧迫感落实政策。”公明党党首山口那津男在党会议上提到向18岁以下儿童统一发放10万日元（约合人民币5600元）等众院选举竞选承诺，强调“将努力通过执政党磋商迅速付诸推行”。关于明年夏季的参院选举，山口指出“兑现政策承诺和实际成绩有利于选战，将带着这个思想准备切实应对。”](https://tchina.kyodonews.net/news/2021/11/8622f00cb7f8.html)
+
+**5.****日本三大航运公司无力解决船舶集装箱短缺问题**
+
+[据NHK 11月4日报道，三家主要的航运公司，日本邮船公司、商船三井公司和川崎汽船公司，在宣布其本财年中期财务业绩的新闻发布会上宣布，由于货物流动将继续保持旺盛，特别是在美国和中共国，集装箱短缺没有结束的前景。日本邮船表示，”在明年2月庆祝春节前，拥堵问题不会轻易解决。另一方面，这三家公司都上调了本财年的最终利润预测，称由于集装箱短缺推动运费上涨，他们预计利润将比上年增长3.4至5.3倍。](https://www3.nhk.or.jp/news/html/20211104/k10013334661000.html?utm_int=news-business_contents_list-items_010)
+
+**6.****丰田的中期业绩：销售和利润创纪录，美国需求迅速恢复**
+
+[据NHK 11月4日报道， 丰田汽车公司在4月至9月的上半财年中期业绩中报告了创纪录的销售和利润，这得益于美国和其他市场的销售增长，并提高了今年的利润预期。 然而，该公司表示，疲软的日元将对未来的利润产生很大影响，原材料价格飙升可能会对收益造成压力。本财政年度的最终利润预测已从2.3万亿日元上调至2.49万亿日元。](https://www3.nhk.or.jp/news/html/20211104/k10013334321000.html?utm_int=news-business_contents_list-items_015)
+
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：Curiosity
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,41 +2,34 @@
 ---
 
 
-## 喜币未来是打通全球金融壁垒
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1641688/)
+## 布朗参议员和同僚挑战新冠疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641912/)
 
-**By:[秘翻新视野](https://gtv.org/video/id=61849ef111d186296801be89)**
+作者：MOS – 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月3日，来自印第安纳州的共和党参议员布劳恩，带领其他40位共和党议员正在挑战美国政府即将对私营企业实行的新冠疫苗强制接种令。
 
-***2021-11-5***
-[![](https://assets.gnews.org/wp-content/uploads/2021/11/IMAGE-2021-11-05-212630.jpg)](https://gtv.org/video/id=61849ef111d186296801be89)*点击图片观看完整视频*
-**一，**近日中共国著名女子网球运动员彭帅公开披露，曾遭到中共前政治局常委、国务院副总理张高丽性侵，并在其妻子允许下与张高丽保持情人关系。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-3.jpeg)
 
-多位明星因为性丑闻而被媒体舆论炒的沸沸扬扬，但是张高丽彭帅事件却被全网禁言，微博被删。共产党向来都是双重标准，所谓的高道德标准都是用来衡量别人。
+据悉，美国白宫将于本周发布一项关于新冠疫苗的规定，当中要求，若公司员工人数超过100人，则强制该企业执行新冠疫苗接种命令。预计，该规定将影响多达8000 万美国人的工作现状。
 
-台湾媒体关于张高丽彭帅事件的报道讨论也分蓝绿统独。很多政论节目都用不小的篇幅讨论这件事情，但是支持国民党的政论节目却只字未提。
+为此，布劳恩呼吁所有议员加入这次行动，用“国会审查法案”授予的权力取消这个“严重越权”的强制令。 布劳恩认为，接种新冠疫苗与否属于个人医疗选择，不应该受到政府胁迫。因此，他愿努力与同事一起，反对新冠疫苗强制令，保护受雇于私营公司的数百万美国公民的人身自由。
 
-彭帅在微博里提到，张高丽的老婆还在门口把风，在中共这种体制下，产生出这种扭曲变态的典型。
+参考链接: [Sen. Braun, Colleagues Challenge Biden’s Vaccine Mandate](https://www.oann.com/sen-braun-colleagues-challenge-bidens-vaccine-mandate/)
 
-文贵先生也提到张高丽这件事不会有后续，什么也不会发生。单纯只是习近平要整张高丽，因他在深圳习家的地盘上作威作福多年。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-**二，喜币涨势喜人**
+总编：Irene木木
+编辑：AN
+校正/发稿：谐趣园
 
-新中国联邦藏富于民，普普通通的穷战友们赶上了文贵先生的这一波浩浩荡荡的造富运动，对比中共只会割韭菜，融会贯通实施商鞅的愚民五术。
-
-喜币上市不到48小时，总市值达到所有虚拟货币排名第一，流通市值也达到虚拟货币前23名。直接体现了新中国联邦的实力。
-
-文贵先生说，喜币未来是打通全球的任督二脉，打通全球金融壁垒。
-
-**GETTR-PAY**就是**HPAY**，**HPAY**在**GETTR**它是同一个系统。每个人都有做自己和赚钱的机会。
-
-**详细内容请观看GTV直播：**[https://gtv.org/video/id=61849ef111d186296801be89](https://gtv.org/video/id=61849ef111d186296801be89)
-
-*发布:星星*
-
-* * *
-
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/IMAGE-2021-08-12-195949.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

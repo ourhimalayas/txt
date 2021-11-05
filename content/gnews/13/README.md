@@ -2,35 +2,38 @@
 ---
 
 
-## 俄罗斯外交官被发现死在驻德使馆前
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1642230/)
+## DC每日热点1105
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1642275/)
 
-新闻来源：德国明镜报网页版
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1A13DB3E-49C2-4997-B716-FB96326BC051-scaled.jpeg)
+道琼斯指数 36470.84 ▲0.96%
+纳斯达克指数 16032.93 ▲0.58%
+WTI纽约原油CFD 79.347 ▲0.68%
+布伦特原油CFD 80.791 ▲0.31%
+标普中概股50指数 3,631.81CNY▼23.93%
+美元兑人民币 1USD=6.402RMB
+美元兑港币 1USD=7.784HKD
+国际黄金 1796.10美元/盎司
+全球CCP病毒感染人数 249,541,012 例
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/96e3dde2-55f2-4e50-be01-4e8c56d2ba2b_w948_r1.778_fpx59.21_fpy49.99.jpg)Passanten gehen an der russischen Botschaft in Berlin-Mitte vorbei. Nach dem mutmaßlichen Auftragsmord an einem Georgier in Berlin gibt es eine diplomatische Krise zwischen Deutschland und Russland. Die Bundesanwaltschaft hat die Ermittlungen übernommen. Sie verfolgt den Anfangsverdacht, dass staatliche Stellen in Russland oder in der Teilrepublik Tschetschenien dahinterstecken. Die Bundesregierung wies zwei russische Diplomaten aus.
-
-
-图片来源：德新社
-
-俄罗斯驻柏林大使馆发生不明原因死亡事件。据《明镜周刊》报道，柏林警方的财产保护人员于 10 月 19 日上午 7 点 20 分左右在柏林大使馆大楼前的人行道上发现了一具毫无生气的尸体。救援人员的复苏尝试没有成功。
-
-显然，这名男子是从柏林米特区的俄罗斯驻德大使馆大楼的楼上掉下来的。根据一份官方外交官名单，自 2019 年夏季以来，这位 35 岁的年轻人已被任命为驻柏林的第二大使馆秘书。然而，德国安全当局将他视为俄罗斯国内特勤局 FSB 的伪装雇员。
-
-据说他还与FSB第二部门的一名高级官员有关。在俄罗斯，该部门除其他外负责打击恐怖主义，并被西方情报机构与所谓的蒂尔加滕谋杀案联系起来，其中一名格鲁吉亚流亡者于 2019 年夏天在柏林在光天化日之下被枪杀。
-
-根据明镜周刊、调查平台 Bellingcat 和 The Insider 以及美国新闻频道 CNN 的研究，FSB 第二部门的官员也参与了 2020 年夏天对俄罗斯反对派政治家阿列克谢·纳瓦尔尼的毒杀。
-
-据明镜周刊消息，在外交官被发现死亡的情况下，俄罗斯大使馆不同意对尸体进行尸检。安全界人士表示，据称坠落的情况和死因“不明”。由于死者具有外交身份，检察官无法进行死亡调查。目前还不清楚是否有第三方疏忽的迹象。
-
-据《明镜周刊》消息，这名外交官的遗体现已转移到俄罗斯。当被问到时，俄罗斯大使馆谈到了一场“悲惨的事故”，但由于“道德原因”而没有评论。
-
-类似的事件在2003年就已经引起轰动。当时，代表的搬运工从他在使馆场地的公寓坠落。
-
-原文链接：[https://www.sueddeutsche.de/politik/russische-botschaft-berlin-spion-1.5457166](https://www.sueddeutsche.de/politik/russische-botschaft-berlin-spion-1.5457166)
-
-责任编辑、发布： Shuizhuyu
+1、中共国最高检宣布逮捕前公安部副部长孙力军
+2、美国敦促中共国不要在2022年冬季奥运会期间时限制记者的报道机会和行动
+3、马云2017年会晤川普一事曾惹恼中共当局
+4、拜登推出“重建更美好世界”倡议，抗衡中共“一带一路”
+5、美多位重量级共和党参议员提出《台湾威慑法》，要求拨款加强台湾防务
+6、中共正力推数字人民币，计划冬奥会期间全面推出，这令在华经营的美国公司承受压力，陷入维护数据安全和在华商业利益的两难困境
+7、英国准备生产稀土磁铁，减少对中共国的依赖
+8、美国每周申请失业补贴人数降至疫情以来新低
+9、拜登政府宣布适用于大公司和医疗保健人员的疫苗强制接种令
+10、俄印继续加强合作 中印仍是俄武器主要买主
+11、旗下公司理财产品未如期兑付，中国房企佳兆业债务危机升级
+12、台湾国安局长：台湾不可能在武力胁迫下与北京谈判
+13、英国西敏公学取消在华设校计划
+14、林郑月娥望中港明年2月通关 传港粤12月中先行 机场将分隔处理中外旅客
+15、法国新冠案例再起 周一起39省学校再强制口罩
+16、减排大突破 20国承诺停止投资海外化石燃料计划
+17、调查：美国人最关注的已不再是新冠疫情
 
  
 
