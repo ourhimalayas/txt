@@ -2,47 +2,29 @@
 ---
 
 
-## 中共国本轮疫情已波及19个省份
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640803/)
+## 美国出价千万美元逮捕暗黑黑客
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1640907/)
 
-作者：英国喜庄园 – I770775
+新闻来源：德国法兰克福报网页版
 
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-中共国多家媒体报道，自10月17日西安报告2例确诊病例以来，在短短半个月的时间里，疫情已经波及北京、河北、甘肃、内蒙古等19个省份，其中内蒙古、甘肃、黑龙江等省份的确诊病例均已过百，全国累计确诊病例已超过700例。
-
-因为反复的防控封锁，中共国百姓的生活苦不堪言。钟南山依旧无视百姓疾苦，表示在强有力的监管和防控下，全国疫情会在一个月内得到有效控制。但随着感染人数的持续攀升，中共恐难掩盖本轮疫情真相。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-3.jpg)
-参考链接：
-1. [本轮疫情已波及19省份，这些风险点得警惕！](https://finance.sina.com.cn/jjxw/2021-11-04/doc-iktzscyy3519830.shtml)
-2. [本轮疫情已波及19省份](https://news.ifeng.com/c/8At9AVPuhA6)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/die-usa-haben-10-millionen.jpg)
 
 
+图片来源： FAZ
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+美国悬赏 1000 万美元，以寻找黑客组织 Darkside 领导人的关键线索。美国国务院周四表示，这是关于“保护世界各地的勒索软件受害者免受网络犯罪分子的利用”。美国联邦警察 FBI 将针对美国公司的多次网络攻击归咎于 Darkside。
 
+攻击者使用所谓的勒索软件，该软件用于锁定或加密计算机系统，以便向用户勒索金钱以释放数据。该术语包含赎金的英文单词。华盛顿将 2021 年 5 月对殖民地管道的袭击归咎于据称在俄罗斯开展业务的该组织。
 
+全世界都在通缉罪，国务院还悬赏 500 万美元，奖励那些导致逮捕参与暗黑势力袭击的人的信息，无论这个信息的来源是从那个国家而来。
+
+过去几个月，美国发生了多起引人注目的勒索软件攻击。美国总统乔·拜登 (Joe Biden) 政府希望对此类袭击采取果断行动，并于 10 月与 30 多个州就此主题举行了虚拟峰会。
+
+原文链接：[https://www.faz.net/aktuell/politik/ausland/darkside-hacker-usa-bieten-10-millionen-fuer-die-festnahme-17619281.html](https://www.faz.net/aktuell/politik/ausland/darkside-hacker-usa-bieten-10-millionen-fuer-die-festnahme-17619281.html)
+
+责任编辑、发布： Shuizhuyu
 
  
 

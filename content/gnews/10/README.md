@@ -2,24 +2,38 @@
 ---
 
 
-## 30万册漫画免费读，日本疑似为第三针做准备
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640756/)
+## 不应该给孩子接种疫苗
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1640851/)
 
-#### 撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/11/123.png)[图片来源](https://www.smartmagazine.jp/kansai/article/fun/2332/)
-每日新闻11月5日报道，“在接种新型冠状病毒疫苗的等待时间中，您可以免费阅读约30万本漫画。” 京都市将京都国际漫画博物馆（中京区）设为集体接种点，该接种点目前很受欢迎。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Bild-6.png)
 
-接种地点在博物馆的一楼大厅，闭馆后从下午6点半到8点半开放，通常需要入场费（成人900日元），但如果预约新冠疫苗接种，预约接种者可以在接种前等待时间内，或接种后免费阅读馆内收藏的约30万册漫画，其同伴（一名）也可免费阅读。
+**简评：**
 
-该举措是为促进接种率相对低的年轻人接种疫苗,似乎在为即将开始的第三针疫苗推广做准备。
+疫苗病例之一：一个16岁的健康男孩，没有潜在疾病，接种疫苗之后患上了致命的心律失常。经复苏治疗后，目前情况稳定。在没有关于疫苗安全性的完整数据时，不应该给孩子接种疫苗。
 
-信息来源：
+GTV视频链接：[Dr. Ayelet Ramon:一个完全健康的16岁男孩现在患有致命的心律失常](https://gtv.org/video/id=6170bf0ec1d11973d3c5dff9)
 
-[マンガ30万冊読み放題　京都市の接種会場、人気で予約枠を拡大](https://mainichi.jp/articles/20211105/k00/00m/040/126000c)
+**视频字幕：**
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+人物介绍：Ayelet Ramon医生，Dana-Dwek儿童医院急救室主任
+
+今天早晨來了一个十几岁的孩子，一个完全健康的16岁男孩，现在患有致命的心律失常。我们对他进行了复苏治疗，目前情况稳定。我知道这个男孩接种了疫苗，而且我知道他没有潜在疾病。我不确认卫生部会不会调查这一病例，对此我感到非常不舒服。
+
+我认为必须向家长保证调查此类事件，获得真实准确的数据，然后让家长做出他们的決定。当我们还没有关于疫苗安全性的完整数据时，以及当病毒引起的并发症在儿童中极为罕见时，我们不应该强迫家长给孩子接种疫苗。
+
+字幕：free20200604 / 听写：云岭 / 翻译：Roberts / PR：Wade / 简评/文字整理/编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
 
 
  

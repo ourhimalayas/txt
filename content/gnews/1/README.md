@@ -2,34 +2,50 @@
 ---
 
 
-## 政府排挤黄金作为“替代”货币，未来比特币价格翻倍
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1640826/)
+## 中共包括福建在内多地出现疯狂抢购,民众因抢粮大打出手
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1640926/)
 
-#### 翻译：Sara9 
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5823-4.jpg)**图片来源：Blockonmi**
-今年比特币和其他加密货币横扫华尔街，很多大银行纷纷介入加密货币业务。而比特币价格从去年同期的15000美元飙升至现在的60000美元，这对金融界造成了不小的冲击。
+据[银河勇气之星（新号）@COURAGESTARnew](https://twitter.com/COURAGESTARnew)于[下午3:14 · 2021年11月5日](https://twitter.com/COURAGESTARnew/status/1456520286015148033)发布的推文——
 
-摩根大通最新预计，比特币长期价格有可能翻一倍多到146000美元，而分析师警告，极端的价格波动性可能导致其价格快速滑落至35000美元。同时，在（上一轮）出现1500亿美元的加密货币价格暴跌时，大资金正在抛弃比特币而转向以太坊。
+This scene is very sad.Don’t happen again 这一幕非常令人心疼，别再发生了
 
-【备注：新中国联邦喜币正是采用的是由摩根大通开发的基于以太坊的Quorum区块链技术，Quorum是一种联盟链解决方案。】
 
-目前，市场上对于比特币上升到100000美元是很多加密货币市场观察家今明两年的共识。摩根大通的警告，对这种说法提出了挑战。
 
-分析师也认为，由于前所未有的通胀压力，不仅是各种基金用它来对冲货币贬值，一般散户也在更多的跟进到这个财富安全天堂。目前美国通胀是13年来最高的，让比特币的价格在过去的12个月以来增加了300%，使整个加密货币市场总量增加到2万亿美元。
+> This scene is very sad.Don’t happen again
+> 这一幕非常令人心疼，别再发生了🙏 [pic.twitter.com/w2qjWy1rNN](https://t.co/w2qjWy1rNN)
+> — 银河勇气之星⭐（新号） (@COURAGESTARnew) [November 5, 2021](https://twitter.com/COURAGESTARnew/status/1456520286015148033?ref_src=twsrc%5Etfw)
 
-市场将比特币作为黄金的通货膨胀对冲替代品有浓厚兴趣，任何这种（政府）对黄金作为“替代”货币的排挤都意味着比特币在长期内有很大的上升空间。
 
-原文链接：[JPMorgan Doubles Down On Its Massive Bitcoin Price Prediction—But Adds A Serious Warning (forbes.com)](https://www.forbes.com/sites/billybambrough/2021/11/04/jpmorgan-doubles-down-on-its-massive-bitcoin-price-prediction-but-adds-a-serious-warning/?sh=1ba9b9f14511)
 
-**发布：文泓**
+根据视频显示，中共内地多地持续出现疯狂抢购，因为抢粮而大打出手，有些地区超市被抢购一空，（北京）卖大米的从来没想到今年能这么火。福建省南安超市货架货品都被抢光了，货架货品都被抢光喽，南安湖西超市都被抢光了，整家超市都被抢光的，祥龙干货带头抢光了厦门唐朝食品配送商的存货。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+关于存粮的问题，郭文贵先生也在[2021年11月03 日 文贵大直播：彭帅爆张高丽丑闻，再次验证爆料革命的真实性；喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产；房地产税会灭国灭党；共和党在弗吉尼亚州长竞选获胜意味着什么](https://gtv.org/video/id=61827dfd11d186296800dd83)中进行了解惑。
+
+郭先生提到共产党也知道现在国外进口的粮食越来越困难，国内很多所谓的战略粮是给国家军队用的，不是给老百姓用的，另外由于今年中共国到处发大水，因自然灾难导致严重缺粮，并且中共现在并没有发放公粮的体制，到时候即使有公粮也发不下去，所以中共鼓励大家存粮，用囤粮的办法解决中共国根本没有战争时期或自然灾难下分配粮食的体制，避免饿死更多人。
+
+自助者天必助之，远离一线二线城市，远离军事目标，储存必要的生活物资并保证在至暗时刻来临时有基本的水电通讯条件和安全的庇护场所或许应该是十四亿同胞们目前最急需解决的事情了。
+
+撰稿：喜马拉雅的肉夹馍
+
+审核：喜马拉雅的馍夹肉
+
+校对：Maarago
+
+（文章内容仅代表作者个人观点）
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

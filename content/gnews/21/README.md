@@ -2,35 +2,34 @@
 ---
 
 
-## 欧洲代表团首次访台，自动灭共进行中
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1640713/)
+## 11/5/2021中日财经爆：中国移动被美退市，回A股割韭菜
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640763/)
 
-撰稿： 天鵝
+#### 整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5454.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fimgcdn.yicai.com%2Fvms-new%2F2021%2F05%2Fafaa942e-e321-4ce4-912b-19d9c4406c9b.jpg&amp;imgrefurl=https%3A%2F%2Fwww.yicai.com%2Fnews%2F101054007.html&amp;tbnid=kl63KXC2_NuoGM&amp;vet=12ahUKEwjShMud6ID0AhVVS_UHHXeZCNgQMygKegUIARCiAQ..i&amp;docid=DJ_yTRv--3MfXM&amp;w=2500&amp;h=1667&amp;q=%E4%B8%AD%E5%9B%BD%E7%A7%BB%E5%8A%A8%E5%9B%9E%E5%BD%92A%E8%82%A1&amp;ved=2ahUKEwjShMud6ID0AhVVS_UHHXeZCNgQMygKegUIARCiAQ)
+11月4日晚间，记者从证监会官网获悉，中国移动有限公司(下称“中国移动”)首发获通过。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/676.jpg)
+据IPO日报此前报道，中国移动此次在A股上市计划募集资金560亿元，这一募资金额将超过刚上市不久的中国电信以及2020年上市的中芯国际，成为A股近十年以来的最大IPO。
 
-根据Independent报道[1]，2021年11月4日台湾总统蔡英文在总统办公室会见了来访的欧洲议会议员。欧洲议会代表团团长表示，目前是欧盟加强与台湾合作的“大好时机”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16360999941.png)图片来源： [https://static.independent.co.uk/2021/11/04/11/GettyImages-1236334830.jpg?width=990&auto=webp&quality=75](https://static.independent.co.uk/2021/11/04/11/GettyImages-1236334830.jpg?width=990&amp;auto=webp&amp;quality=75)
-同一天，中共国外交部发言人汪文斌在例行记者会上被提问时[2]，对此事表示了“强烈不满和坚决反对”，但言辞谦卑，要求欧洲议会“充分认识台湾问题的复杂敏感性，恪守欧方对一个中国原则的承诺，慎重妥善处理涉台问题，维护好中欧关系发展的政治基础”。中共一改前几个月的“飞扬跋扈”，“战狗外交”政策，此次的低调回应全面打脸了习神在辛亥革命110周年发表的统一台湾的宣言，让墙内的鸡血群众非常失望，中共宣传的“四个自信”也荡然无存。王毅出访中东欧效果甚微，此时中共也无暇顾及外交事务，加之中共内斗白热化，内部政治极不稳定，随时可能出现政治动荡危机。
+由于中国移动是一家已在境外上市的红筹企业，这次回A股选择的上市标准为“市值不低于2000亿元”。截至11月4日收盘，中国移动港股总市值达8150.08亿元，远高于上市标准。
 
-欧洲议会此次访台，是有史以来第一个访问台湾的官方代表团。欧洲议会（外国干预欧盟民主程序特别委员会）主任拉斐尔·格鲁克斯曼 (Raphael Glucksmann) 告诉台湾总统：“我们带着一个非常简单、非常明确的信息来到这里。你不是一个人。欧洲与你们站在一起，捍卫自由、捍卫法治和人类尊严。”
+从问询问题来看，证监会对公司与中国移动集团之间的关系、信息安全管理制度、劳务派遣用工等方面给予了重点关注。
 
-欧洲议会在上个月通过了一项决议，呼吁议会“加强欧盟与台湾的政治关系”，短短时间内欧洲就迅速的行动了起来。格鲁克斯曼还说道，“我们的访问应被视为重要的第一步。但接下来，我们需要一个非常具体的高层会议议程和高层具体步骤，以建立更强大的欧盟-台湾伙伴关系”。从本周四开始，代表团将开展为期三天的访问，向台湾取经对抗威权威胁。
+前总统川普去年11月签署了一项行政令，禁止美国人投资美国政府认定的帮助中共军方、情报和安全部门的中国公司，也不能投资其相关金融产品。
 
-中共国海关总署本周也发出公告，“自2021年12月1日起，对输往欧盟成员国、英国、加拿大、土耳其、乌克兰和列支敦士登等地货物，不再签发普遍优惠制度原产地证书”，证实了美国、加拿大、欧洲等国家已不再给予中共国普惠制关税优惠待遇的消息。正如郭先生很早以前就说的，西方国家一定会与中共国脱钩，只是时间早晚的，代价几何的问题，自动脱钩，自动灭共的时代早已开始。如今，欧盟在如此短的时间内就迅速地做出行动，反映出了这些国家对中共国的脱钩方案很早就在谋划中了，充分体现了我们爆料革命、新中国联邦提供的关键信息和建议意义非凡。中共给全世界带来的灾难和损失正在不断发酵、增长，中共灭亡的日子不远了。
+5月7日，中国移动有限公司、中国联通（香港）有限公司和中国电信股份有限公司各自表示，他们预计纽约证券交易所将向[美国证券交易委员会](https://www.epochtimes.com/gb/tag/%E7%BE%8E%E5%9B%BD%E8%AF%81%E5%88%B8%E4%BA%A4%E6%98%93%E5%A7%94%E5%91%98%E4%BC%9A.html)（SEC）申请，允许他们的美国存托凭证（ADR）进行退市。退市将在美国证券交易委员会收到通知的10天后生效。
 
-(本文纯属个人观点，与Gnews无关)
+退市意味着这中国三大电信公司被纽交所强制摘牌，投资者不能再通过纽交所买卖这些股票。
 
-参考消息：
+消息来源：
 
-[1]China warns EU not to make ‘mistake’ as first official delegation visits Taiwan, calling for closer ties
+[“巨无霸”来了！中国移动首发过会，五大问题成关注重点](http://www.jwview.com/jingwei/html/11-04/440411.shtml)
 
-[https://www.independent.co.uk/asia/china/china-eu-delegation-taiwan-b1951406.html](https://www.independent.co.uk/asia/china/china-eu-delegation-taiwan-b1951406.html)
+[中国三大电信公司上诉失败 纽交所将下架](https://www.epochtimes.com/gb/21/5/7/n12931720.htm)
 
-[2] 2021年11月4日外交部发言人汪文斌主持例行记者会
-
-[https://www.fmprc.gov.cn/web/fyrbt\_673021/jzhsl\_673025/t1918679.shtml](https://www.fmprc.gov.cn/web/fyrbt_673021/jzhsl_673025/t1918679.shtml)
-
-发布：五饼二鱼
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,39 @@
 ---
 
 
-## 11/5/2021中日财经爆：教培“团灭”，东方已败
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640739/)
+## 旧金山将强制5岁儿童进入餐厅时出示疫苗护照
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1640834/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-32.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fk12-pc.koocdn.com%2Fimg%2FvideoPoster.dd2e9486.jpg&amp;imgrefurl=https%3A%2F%2Fwww.koolearn.com%2F&amp;tbnid=2TPJufSylXBwSM&amp;vet=12ahUKEwi6kL7p14D0AhVbS_UHHWfnCZcQMygDegUIARClAQ..i&amp;docid=EOIHh6FqcrbFuM&amp;w=1920&amp;h=780&amp;q=%E6%96%B0%E4%B8%9C%E6%96%B9&amp;ved=2ahUKEwi6kL7p14D0AhVbS_UHHWfnCZcQMygDegUIARClAQ)
-三言财经 11月4日消息，今日，新东方公众号发布文章表示，因为业务调整，新东方各地学校退租了部分校区，校区是退租了，但是遗留下来了一堆崭新的课桌椅。这些课桌椅都是新东方为了让新东方的孩子们有更好的学习环境专门定制的，有些可以根据孩子的身高调节高度，有些做了圆角的设计避免孩子不小心磕到头，而这些定制桌椅，每套大概市场价六七百块钱。新东方希望物尽其用，决定将这些闲置课桌椅，捐赠给有需要的乡村学校。
+翻译**：Lulumi**
 
-俞敏洪给新东方全国学校的校长说了这件事，呼吁有闲置课桌椅的分校都行动起来，“既不浪费课桌椅，也是做了好事。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-72.png) 图片来源**：** summit.news
 
-截至目前，郑州、西安、合肥、成都、宜昌、佛山、兰州、连云港、武汉、乌鲁木齐、太原、海口等新东方分校，共计捐出了共73,366套这样的新桌椅。
+在8月份对12岁以上的儿童实施类似的强制措施后，及CDC紧急批准5-11岁的儿童注射辉瑞生物技术公司的疫苗后，当局将对更小的儿童提出同样的要求。
 
-俞敏洪在朋友圈转发文章，并留言表示，教培时代结束，新东方把崭新的课桌椅，捐献给了乡村学校，已经捐献了近八万套。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-16.jpg)
-[新东方](https://www.epochtimes.com/gb/tag/%E6%96%B0%E4%B8%9C%E6%96%B9.html)集团10月25日宣布，将停止经营中共国内地义务教育阶段学科类校外培训服务。近期，在中共“双减”政策的持续打压下，中共国多家大型教育培训机构几乎遭“团灭”。
+这可能会引起进一步的争议和反对，因为相当多的家长已经声称他们不会让孩子接种疫苗。
 
-消息来源：
+一项民意调查发现，三分之一的父母“肯定不会”让他们的孩子接种疫苗，只有27%的父母表示他们会让孩子“立即”接种疫苗。
 
-[俞敏洪：教培时代结束，新东方捐献近八万套课桌椅给乡村学校](http://www.sycaijing.com/news/flash?id=114130)
+在美国，儿童占所有中共病毒死亡人数的不到0.1%，许多人警告说，疫苗带来的风险可能超过了他们感染病毒的风险。
 
-[中共打压下 新东方宣布停止经营大陆教培服务](https://www.epochtimes.com/gb/21/10/25/n13329228.htm)
+旧金山卫生官员苏珊·菲利普（Susan Philip）说，在开始因无法出示疫苗护照而被机构拒绝之前，父母将有大约两个月的时间让他们的孩子接种疫苗。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+她说：“我们肯定想等待，并确保儿童有机会接种疫苗，所以在大概八周后将向孩子们提供疫苗，所以在有限的时间内，我们计划不会有这些（儿童出示疫苗护照）的要求，”她说。
+
+“但在某些时候，5至11岁的孩子也必须出示疫苗接种证明才能进入一些相同的环境。”
+
+根据旧金山目前的规定，12岁以上的人如果没有打过疫苗，就不允许进入酒吧、餐馆、健身房或剧院。
+
+尽管完全接种疫苗的人仍然可能被感染并传播病毒，但卫生官员没有提供中共病毒测试阴性的证明的选项。
+
+**新闻来源**：[summit.news] [San Francisco to Force 5-Year-Olds to Show Vaccine Passport to Enter Restaurants](https://summit.news/2021/11/04/san-francisco-to-force-5-year-olds-to-show-vaccine-passport-to-enter-restaurants/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

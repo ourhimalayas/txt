@@ -2,28 +2,51 @@
 ---
 
 
-## 中共国又一房企百亿理财产品爆雷 佳兆业股价再次暴跌
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1640674/)
+## 中共国多地出现粮食抢购现象
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640724/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-7.png)
-图片来自网络
+作者：日本方舟农场 – Andy5
 
-据《希望之声》2021年11月5日报道，11月4日，中共国地产开发商佳兆业担保的一款理财产品突发爆雷，涉及金额约127亿元人民币。当天，佳兆业在港股市场的市值跌至每股1港元，跌幅达15%，跌至历史最低点。
 
-佳兆业在声明中表示，公司由于信用评级下调以及“房地产市场环境恶劣”，正面临“前所未有的流动性压力”。企业方目前正在试图解决理财产品的付款问题。
 
-然而，众多投资者却毫不买账。11月4日，近千名投资人前往佳兆业深圳总部维权，场面一片混乱。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-“野村证券”信用分析师艾丽丝·陈（Iris Chen）表示，这样的问题会进一步影响中共国房地产市场。投资者越来越担心地产开发商担保的理财产品的可靠性，原因是理财产品的运营状况通常很难从公司的财务报告中追踪，这导致这种投资风险极高。
 
-此外，佳兆业在11月3日晚间表示，其10月地产合约销售额较上年同期下降逾 30%，这加剧了企业的资金链困境。
 
-由于投资者越来越担心佳兆业偿还债务的能力，佳兆业的股价在今年的跌幅达到近 73%。惠誉和标准普尔全球评级均在10月份，将已经为垃圾级的佳兆业评级下调至 CCC+，接近其评级范围的底部，理由是该企业的再融资活动构成风险。
+继商务部发布的《鼓励家庭根据需要粗存一定数量的生活必需品》的声明后，北京时间11月4日，重庆、郑州、江常州、温州，甚至北京都出现了粮食抢购的现象。
 
-注：本文仅代表作者观点
+据招商证券最新发布的10月宏观报告，10月份，28种重点监测蔬菜价格环比增幅达19%。此外，盐业集体涨价，平均涨幅30%-35%不等。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-9.jpg)
+郭文贵先生在直播中提到，中共从来没有制定应对突发事件、针对民用物资的补给政策。在遭受河南重大水灾，和外汇短缺的形势下，中共国恐将发生因粮食短缺，而导致的人道灾难。
 
-**新闻链接：**[https://www.soundofhope.org/post/562464](https://www.soundofhope.org/post/562464)
+参考链接：
+1. [重庆人的抢购潮：大米、方便面、蔬菜被买空了？](https://www.163.com/dy/article/GNTVK78E0537SBFJ.html?f=post2020_dy_recommends)
+2. [热点聚焦：“好心可能办错事” 中国部分城市商品抢购潮给预期管理提个醒](https://cn.reuters.com/article/insight-china-moc-supermarket-food-1104-idCNKBS2HP099)
+3. [中国盐业上市公司集体涨价](https://www.zaobao.com.sg/realtime/china/story20211104-1210312)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：飞虹
+编辑：雪梨
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/5/2021 10:35 AM (UTC)`
+
+Dr. David Wiseman: FDA打破了一个又一个规则，这绝对太离谱了。英国医学杂志一篇论文报告了多方面的严重不当行为，包括数据造假、揭盲和各种状况，这完全是FDA的失职，是对孩子的不负责任！<br/><br/>The FDA has broken one rule after another, which is absolutely outrageous. A paper in the British Medical Journal reported serious misconduct in many aspects, including data falsification, unblinding, and various situations. This is completely the FDA's negligence and irresponsibility to the child!
+![img](https://media.gettr.com/group13/origin/2021/11/05/10/35/08f3d657-68d8-cb2f-7bd0-400a525b6b18/out.jpg)
+
+---
+
 `@miles 11/5/2021 9:29 AM (UTC)`
 
 11/3/2021 Miles Guo: What are the three milestones indicating the true value of the Himalaya Coin? What does it mean for 30 European countries to decouple with the CCP? Republicans won both elections in Virginia and Long Island, indicating that the US wins while the CCP has lost!<br/><br/>11/3/2021 文贵直播: 体现喜币真正价值的三个标志性事件是什么？欧洲30国跟中共脱钩意味着什么？共和党在弗吉尼亚和长岛胜选，这说明美国赢了，中共输了！<br/>
@@ -287,13 +294,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 11/1/2021 【HCoin To the Moon Celebration】The Himalaya Reserve wouldn’t be disappeared by the CCP with our capability and overseas protection.<br/><br/> 11/1/2021 【HCoin to The Moon庆典】我们的能力和海外力量的保护，使中共无法消灭喜联储
 ![img](https://media.gettr.com/group39/getter/2021/11/02/03/42/07d65798-fd87-03dc-2d5e-036e5b752895/out.jpg)
-
----
-
-`@miles 11/2/2021 1:55 AM (UTC)`
-
-“HCOIN TO THE MOON” 喜马拉雅币上市庆典
-![img](https://media.gettr.com/group30/origin/2021/11/01/09/114a50be-85ff-f9a7-eec1-20b602a50f71/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

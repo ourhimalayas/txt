@@ -2,27 +2,42 @@
 ---
 
 
-## 澳大利亚正在训练军人上门挨家挨户强制疫苗接种
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1640461/)
+## 美国退休两星将军称美国需要避开战略模糊清晰表述：中共国一旦动手美国就会保卫台湾
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1640629/)
 
-撰稿：喜国公民
-视频来自网络
-近日，有澳大利亚现役军人向外界透露，部队的将军们正在强迫士兵们接受如何上门给居民强制疫苗接种的训练。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国退休两星将军Arnold Punaro(阿诺德·L·普纳罗)接受Maria采访。
 
-训练在城区的训练场进行，包括怎样挨家挨户地把人们从家里拉出来，由医务人员强迫给居民接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9.png)
 
-训练还包括去野外的灌木丛中，抓捕那些逃跑的人。
+Maria首先继续鞭策拜登政府将对中共国的描述从竞争对手改为敌国，然后提到CCP对台湾的威胁。 将军首先赞同Maria说中共国是敌国的说法，因为中共国说过要颠覆西方民主成为支配世界的力量。然后将军提到美国说的太多做得太少，2000年左右就讨论过太平洋很重要，但是目前美国的海军数量落后于CCP海军。
 
-令人难以置信的是，一个国家要动用军队来攻击自己的国民。这与欺压百姓的中共相比，是有过之而无不及。
+对于CCP威胁台湾，将军表示美国需要避免美台关系法中的战略模糊，做出一个不在模棱两可的声明，告诉CCP只要它做出动作，美国就会保卫台湾帮助台湾，并且需要传递出美国就在那里的信号。
 
-在2021年9月，澳洲政府任命了一名将军，约翰·弗里文中将，担任应对新冠病毒的联合指挥中心主任，来推动澳洲的疫苗强制接种。政府还为此提供了必要的资源。
+（本文仅代表作者观点）
 
-[这位将军曾表示](https://www.theaustralian.com.au/nation/politics/covid19-plan-b-to-target-the-reluctant/news-story/668e8071493c68441ec8bd285bd51b23?utm_source=TheAustralian&amp;utm_medium=email&amp;utm_campaign=editorial&amp;utm_content=TATodaysHeadlinesSubAM)，他的策略是要追踪那些对疫苗接种表示排斥或犹豫不决的人。
+参考阅读：
 
-(本文纯属个人观点，与Gnews无关)
+- [https://gettr.com/post/pfflep1dc1](https://gettr.com/post/pfflep1dc1)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1.jpg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+
+***编辑***：***Irene木木***
+***校对/发稿：海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

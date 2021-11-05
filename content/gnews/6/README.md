@@ -2,38 +2,20 @@
 ---
 
 
-## 美国参议院一致通过《安全设备法案》进一步缩小华为中兴的生存空间
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1640802/)
+## 为辉瑞工作的公司伪造疫苗数据
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1640897/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在FCC将要剔除CCP三大运营商之后，美国参议院也在本周四一致投票批准《安全设备法案》立法，此法案上周在美国众院以420-4的压倒性结果通过，该法案将禁止华为、中兴等被视为带来安全威胁的公司，从美国监管机构也就是FCC获得新的设备许可证，以及禁止FCC审查上述企业。同时海能达通信和海康威视也是此法案制裁的对象。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11053.jpg)图片来自Corvelva
+由调查记者 Paul D Thacker 撰写并发表在英国医学杂志上的一篇文章披露：在德克萨斯州一家专门从事临床试验的公司 Ventavia 中工作的一名内部目击者称该公司向美国食品和药物管理局 (Fda) 报告了许多关于疫苗的虚假数据。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-5.jpg)
+这篇文章的主要来源是前 Ventavia 员工 Brook Jackson，他在辉瑞 / BioNTech 疫苗测试上工作了两周，他目睹了许多虚假伪造，包括“双盲”评估系统中的一些问题。
 
-（本文仅代表作者观点）
+消息人士称，这家德克萨斯公司雇用了训练有素的疫苗接种员，并且对辉瑞关键 III 期研究中报告的不良事件的跟进速度非常缓慢。
 
-参考阅读：
+原文链接：[https://www.today.it/partner/adnkronos/salute/covid-bmj-azienda-che-lavorava-per-pfizer-ha-falsificato-dati-vaccino.html](https://www.today.it/partner/adnkronos/salute/covid-bmj-azienda-che-lavorava-per-pfizer-ha-falsificato-dati-vaccino.html)
 
-- [https://www.reuters.com/article/us-congress-huawei-zte-restrictions-1029-idCNKBS2HJ0D6](https://www.reuters.com/article/us-congress-huawei-zte-restrictions-1029-idCNKBS2HJ0D6)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
-
-***编辑***：***Irene木木***
-***校对/发稿：海阔天空1***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

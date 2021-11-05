@@ -2,10 +2,10 @@
 ---
 
 
-## 华为成立4大军团，同时出售服务器业务
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640720/)
+## 中共国本轮疫情已波及19个省份
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640803/)
 
-作者：日本方舟农场 – Andy5
+作者：英国喜庄园 – I770775
 
 
 
@@ -13,14 +13,13 @@
 
 
 
-据墙内11月3日的消息，继3月成立煤炭军团之后，华为最近正式组建数据中心能源军团、智能光伏军团、海关和港口军团、智慧公路军团4大军团组织，并高调举行了军团组建成立大会。
+中共国多家媒体报道，自10月17日西安报告2例确诊病例以来，在短短半个月的时间里，疫情已经波及北京、河北、甘肃、内蒙古等19个省份，其中内蒙古、甘肃、黑龙江等省份的确诊病例均已过百，全国累计确诊病例已超过700例。
 
-据上周的数据显示，华为前三季度整体营收同比下降37%，手机出货量则下降了73.8%。而因被美国列入黑名单，不能开展正常业务，华为考虑将出售依靠抄袭思科起家的服务器业务。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-12.jpg)
+因为反复的防控封锁，中共国百姓的生活苦不堪言。钟南山依旧无视百姓疾苦，表示在强有力的监管和防控下，全国疫情会在一个月内得到有效控制。但随着感染人数的持续攀升，中共恐难掩盖本轮疫情真相。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-3.jpg)
 参考链接：
-1. [Huawei said to sell key server division due to US blacklisting](https://www.bloomberg.com/news/articles/2021-11-02/huawei-said-to-sell-key-server-division-due-to-u-s-blacklisting?sref=V7uxlNge)
-2. [华为军团组建成立大会，任正非：和平是打出来的](https://www.sohu.com/a/499087347_115565)
-3. [华为营收减少2000亿元背后：手机销量同比降77％，对手苹果大中华区业绩涨83％](https://www.sohu.com/a/498084501_115565)
+1. [本轮疫情已波及19省份，这些风险点得警惕！](https://finance.sina.com.cn/jjxw/2021-11-04/doc-iktzscyy3519830.shtml)
+2. [本轮疫情已波及19省份](https://news.ifeng.com/c/8At9AVPuhA6)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 

@@ -2,27 +2,24 @@
 ---
 
 
-## 秘翻在线：共和党参议员推出《台湾吓阻法案》
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1640693/)
+## 日本首推中共病毒预防药，疑含伊维菌素青蒿素
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640749/)
 
-#### 撰稿：彩虹
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12-1.png)[图片来源](http://covid19anddruguse-1024x576.xn--png%20%281024576%29%20%28nyan-jp-omc.net%29/)
+读卖新闻11月5日报道，日本厚生劳动省5日特别批准了一种名为“抗体鸡尾酒疗法”的中共病毒治疗药物“ロナプリーブ”，同时，它成为第一个抑制发病的预防药物。到目前为止，它仅用于输液和注射。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-14.jpg)图片来源：路透社
-11月4日，《国会山报》（The Hill）报道，随着台海紧张局势的不断升级，美国共和党参议员提出一项法案，寻求增加对台湾的军事援助。该法案名为《台湾吓阻法案》（Taiwan Deterrence Act），目的在于加强台湾的防御能力，以抵御来自于中共的侵略攻击。
+满足以下条件可用药预防：（1）中共病毒的密切接触者，或无症状感染者（2）原则上重症化风险高的人（3）未接种疫苗，接种效果不明显的人。
 
-该法案由参议院外交关系委员会高级官员共和党人詹姆斯·里施（Jim Risch）为主要提案人，共同提案人包括：马可·鲁比奥（Marco Rubio）、米特·罗姆尼（Mitt Romney）、约翰·康宁（John Cornyn）、比尔·海格提（Bill Hagerty）和迈克·克拉波（Mike Crapo）。
+日本政府虽然不承认，但郭先生提到，日本使用伊维菌素和青蒿素，使中共病毒感染人数骤减，此次的预防药物，是否也包含伊维菌素和青蒿素呢？
 
-该法案规定，只要台湾满足某些条件，美国将每年向台湾提供20亿美元的军事拨款和贷款，直到2032年。这些条件包括台湾承诺要与美国的支出相匹配，以及台湾要同意与美国就如何提高台湾的防御能力进行长期规划。
+信息来源：
 
-值得注意的是，该法案还将修改《武器出口管制法》（Arms Export Control Act），使得美国能够更加容易地向台湾出售武器。
+[コロナ発症予防薬、厚労省が特例承認…点滴だけでなく注射も認める](https://www.yomiuri.co.jp/medical/20211105-OYT1T50194/)
 
-报道指，如果该法案获得通过，则将每年对台湾针对中共国的防御能力进行一次评估。
-
-**新闻来源**
-
-[Republican Senators request military aid for Taiwan amid pressure from China](https://thehill.com/homenews/senate/580198-republican-senators-request-military-aid-for-taiwan-amid-pressure-from-china)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

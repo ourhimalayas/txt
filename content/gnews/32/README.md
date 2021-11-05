@@ -2,41 +2,52 @@
 ---
 
 
-## 美国退休两星将军称美国需要避开战略模糊清晰表述：中共国一旦动手美国就会保卫台湾
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1640629/)
+## 岸田文雄外交首秀 与拜登会晤强化美日同盟
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640717/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国退休两星将军Arnold Punaro(阿诺德·L·普纳罗)接受Maria采访。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9.png)
-
-Maria首先继续鞭策拜登政府将对中共国的描述从竞争对手改为敌国，然后提到CCP对台湾的威胁。 将军首先赞同Maria说中共国是敌国的说法，因为中共国说过要颠覆西方民主成为支配世界的力量。然后将军提到美国说的太多做得太少，2000年左右就讨论过太平洋很重要，但是目前美国的海军数量落后于CCP海军。
-
-对于CCP威胁台湾，将军表示美国需要避免美台关系法中的战略模糊，做出一个不在模棱两可的声明，告诉CCP只要它做出动作，美国就会保卫台湾帮助台湾，并且需要传递出美国就在那里的信号。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-- [https://gettr.com/post/pfflep1dc1](https://gettr.com/post/pfflep1dc1)
+作者：英国喜庄园 – I770770
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
 
-***编辑***：***Irene木木***
-***校对/发稿：海阔天空1***
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+据日本共同社报道，11月2日，日本新首相岸田文雄，在气候峰会期间与拜登会面，这也是岸田文雄上任以来的外交首秀。
+
+据了解，双方会谈的主要内容是，加强美日同盟的合作关系，构建自由开放的印太地区，以共同对抗中共在该地区的军事威胁。
+
+岸田文雄还承诺，在五年内提供100亿美元，帮助亚洲各国走上零碳排放的道路。
+
+日美首脑还将联合盟友，通过帮助发展中国家，以抗衡中共“一带一路”的侵略图谋。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-31.jpg)
+参考链接：
+1. [岸田首次与拜登会面 确认强化日美同盟](https://www.epochtimes.com/gb/21/11/3/n13349332.htm)
+2. [日首相岸田外交首秀：首次与拜登面谈 强化日美同盟](http://www.takungpao.com/news/232111/2021/1103/650629.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：童谣
+编辑：Kathy文艺
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

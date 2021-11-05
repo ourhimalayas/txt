@@ -2,40 +2,25 @@
 ---
 
 
-## 内蒙古额济纳旗疫情严重 官员免职成替罪羊
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1640597/)
+## COVID-19最新情报｜疫苗专家：新冠疫苗只会减弱儿童免疫力
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1640682/)
 
-作者：澳喜农场 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-截止26日8日，中共内蒙古额济纳旗确诊新冠病例78例。内蒙自治区党委以所谓加大防控力度为由，免去了今年6月才上任的额济纳旗旗委书记陈占云的职务。在此之前，该旗已经免去了旗卫健委主任和副主任的职务。
+台灣寶島農場 疫情關注組｜發佈日期/ 5/11/2021
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-30.jpg)
-
-新的旗委书记，由上级阿拉善盟盟委书记代钦兼任。他到任后立刻在额济纳旗实施了，禁止居民出户和旅客出店的严厉措施，并招致广泛民怨。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-- [https://www.163.com/news/article/GN84KS7N0001899O.html?clickfrom=w\_yw](https://www.163.com/news/article/GN84KS7N0001899O.html?clickfrom=w_yw)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1.jpg)
+一项[研究](https://www.medrxiv.org/content/10.1101/2021.07.31.21261387v4.full.pdf)指出，当前的新冠疫苗接种后突破性感染仍具备传染力。外媒指出以色列、美国等国家接续爆发突破性感染，重症病例中95%已经接受至少一剂疫苗、住院治疗中90%曾接种疫苗。
 
-***编辑***：***Irene木木***
-***校对/发稿：海阔天空1***
+关于批准儿童接种新冠疫苗一事，德国感染研究中心疫苗开发办公室负责人[Geert Vanden Bossche 博士](https://www.geertvandenbossche.org/)曾参与GSK Biologicals、Novartis Vaccines、Solvay Biologicals等疫苗公司的研发，也曾是比尔和梅琳达·盖茨基金会的相关团队成员。他表示：新冠疫苗只会减弱儿童的免疫力。
 
-**更多资讯，更多关注**
+美国国家医学图书馆网站上一篇[文献](https://pubmed.ncbi.nlm.nih.gov/32975552/)指出，与成年人相比，新冠病毒对儿童、青少年的传染性较低，但研究并未提供有关于儿童传染性的资讯。另一篇[研究指出](https://www.nature.com/articles/s41590-020-00826-9?campaign_id=154&amp;emc=edit_cb_20201106&amp;instance_id=23895&amp;nl=coronavirus-briefing&amp;regi_id=61609026&amp;segment_id=43815&amp;te=1&amp;user_id=73aefc51739a420f3d188e5...)，儿童感染新冠病毒的症状与成人不同，儿童通常为无症状、轻症，很少出现严重的呼吸道症状，但有可能并发罕见的小儿多系统发炎症候群。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-2.jpg)
+* * *
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+参考来源｜[Natural News](https://www.naturalnews.com/2021-11-03-covid-vaccine-poses-more-risks-to-children.html)/[Nature Immunology](https://www.nature.com/articles/s41590-020-00826-9?campaign_id=154&amp;emc=edit_cb_20201106&amp;instance_id=23895&amp;nl=coronavirus-briefing&amp;regi_id=61609026&amp;segment_id=43815&amp;te=1&amp;user_id=73aefc51739a420f3d188e5...)/[National Library of Medicine](https://pubmed.ncbi.nlm.nih.gov/33031427/)/[National Library of Medicine](https://pubmed.ncbi.nlm.nih.gov/32975552/)
+撰文｜zhong
 
  
 
