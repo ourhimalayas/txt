@@ -2,180 +2,63 @@
 ---
 
 
-## 共产党不是拿房地产税，拿的是重新分配财富的权力
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1639907/)
+## 郭文贵直播摘要和音频 2021.11.01
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1639957/)
 
-[https://gtv.org/video/id=6184619eadfd99590c333092](https://gtv.org/video/id=6184619eadfd99590c333092)
+摘要撰稿人：文俊
 
-喜币, 喜联储上市
-Cuando se hace el listado de la moneda y la Reserva Federal de Himalaya
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-2.jpg)
+**视频链接**：[https://gtv.org/video/id=618159b92051c747ccf8c38c](https://gtv.org/video/id=618159b92051c747ccf8c38c) part1
 
-G-TV, G-CLUB
-G-TV, G-CLUB
+[https://gtv.org/video/id=618052ba11d1862968ffaa0d](https://gtv.org/video/id=618052ba11d1862968ffaa0d) part2
 
-所有的这一切它不是一个单纯的存在
-Todo esto no es una simple existencia
 
-是一个爆料革命, 新中国联邦的信任
-Es un Movimiento de Denunciantes, es la confianza hacia el Nuevo Estado Federal de China
 
-你的为人, 你的判断力, 你的信仰
-Tu personalidad, tu criterio, tu creencia
+**音频链接：**
 
-你对人的一个相处的关系的综合存在
-La existencia integral de la relación que tienes con las personas
 
-那么我们要看到这是什么
-Y qué es lo que debemos ver
 
-现在看到国内的房地产
-Ahora vean las propiedades inmobiliarias a nivel nacional de China
+**摘要：**
 
-我们爆料房地产
-Nosotros denunciamos acerca de eso
+1 蓬佩奥宣布竞选美国总统
+2 纳瓦罗书23页写明白爆料革命影响白宫
+3 鸡血王很多观点要变成真的了 不只是价格
+4 喜美元未来会有很高的利息
+5 喜联储将来有喜贷款和喜支付
+6 可能很多国家承认喜币国家法定货币
+7 对父母最好爱就是你健康、你强大、你活下去
+8 政府就两个权力：货币铸造权和军队，现在又多了个权力-社交媒体
+9 战友论毛论块买 是不可能了
+10 喜币 无论今天开盘什么价格，都是三年后价格的千分之一，万分之一
+11 没有前10国家保护 喜联储不可能存在的
+12 政客开直播打赏有公关游说的功能
+13 直播打赏有获得合法秘密和情报的功能
+14 喜联储第一个储备银行就是莱特斯顿的
+15 WTO的几个国家和中共国脱钩，就是新中国联邦的力量促成的
+16 聪明人，共产党是挡不住你购买喜币
+17 忠诚：忠诚于事，诚实待人
+18 我们追求人人平等，人命天授。不需要奉献，奉献其实就是要你牺牲，我们把奉献改成献奉的战友间关系
+19 喜美元收入钱的利润预估超过170倍
+20 未来3-5年喜联储会创造十多个摩根家族
+21 如何让喜联储成为世界金融的标准我们就赢了
+22 GCLUBS卡将来变成信用卡 购物卡一身的H-PAY卡
+23 共产党决定推迟到冬奥会后打台湾
+24 共产党将军和七哥要十万个喜币
+25 一共3.7万战友，拥有6亿喜币
+26 喜币上市让中国从家天下变成民天下
+27 告诫战友们要先让自己父母过好，有钱了第一个对父母好
+28 有了钱，不炫耀，别吃奇奇怪怪的肉了，善待残疾人
+29 绿色代表资本主义，红色代表社会主义
+30 我们有6亿币在战友手上，价格你说的算，你不抛，价格一直往上升
+31 喜币没有周末，七天24小时不停交易
+32 永远不可能回到今天的价格
 
-2017年说马云, 这些人要完蛋的时候
-En 2017, decimos que Jack Ma y estas personas van a morir
 
-国内这个房地产税谁说的
-Quién dijo acerca de las propiedades inmobiliarias a nivel nacional
 
-七哥最早说的吧
-Fui quien lo dijo al principio
 
-我说这个时候, 对我最大的攻击的人是谁
-En este momento, quién es el mayor enemigo para mi
 
-全是体制内的高官
-Todos los altos funcionarios del sistema
-
-说文贵, 你这个太离谱了
-Dijeron, Wengui, eres muy absurdo
-
-想一想拿房地产税
-Si piensan cobrar impuestos sobre propiedades inmobiliarias
-
-他说共产党都得倒台
-El Partido Comunista debe caerse
-
-想一想征房地产税
-Si piensan en los impuestos inmobiliarios
-
-他说中国人都得上街
-Él dijo que los chinos deben salir a las calles
-
-这是一个政治局委员
-Este fue un miembro del Politburó
-
-还有上海这个老领导跟我说的
-Y un líder de Shanghai que me lo dijeron
-
-他说, 文贵这话就别再说了
-Dijo, Wengui no digas estas palabras
-
-这会让更多人攻击你, 让你成为笑话
-Esto puede causar que más personas te ataquen y te conviertas en un chiste
-
-前天也就是我那天, 就是咱们确定这个1111的时候
-Ante ayer, fue el día que decidimos lo que será el 11 de noviembre
-
-在这个正兴奋之后
-Cuando todos estábamos muy contentos
-
-老领导的家人给我发信息
-La familia del líder me mandó un mensaje
-
-能否方便通话
-Si podía hablar por teléfono
-
-其中有政泉的两套房子
-Dentro de eso había dos casas de Zhengquan
-
-他说, 有些东西要我帮忙
-Dijo, tenía algunas cosas que necesitaba de mi ayuda
-
-我说我跟政泉没有啥联系了
-Le respondí, ya casi no hablo con Zhengquan
-
-帮不上忙, 一个人都没有联系
-No le puedo ayudar, ya no hablo con ninguno de ellos
-
-最后他说
-Finalmente, él dijo
-
-你说的房地产的这个纳税的事情
-Lo que dijiste de la tributación de propiedades inmobiliarias
-
-当时还说你
-En aquel momento no creía en ti
-
-现在看, 说明你是对的
-Ahora que veo, tienes la razón
-
-我都忘了跟人家说过
-Yo ni me acuerdo que se lo dije a él
-
-后来我回了个信息
-Luego respondí el mensaje
-
-我说不是拿房地产税
-Le dije, no es cobrar los impuestos inmobiliarios
-共产党拿的是重新分配财富的权利
-Lo que toma el Partido Comunista es el poder de redistribuir la riqueza
-
-那么现在你看到国内一片宣传
-Ahora ves la publicidad que están haciendo en China
-
-说叫大家共同富裕
-Diciendo para que todos seamos ricos
-
-以为拿了房地产税, 大家共同富裕
-Creen que, al cobrar los impuestos inmobiliarios, todos pueden ser ricos
-
-你说这个愚蠢到啥程度
-Miren lo estúpido que son
-
-共产党拿完房地产税, 会让你家(孩子)上学不拿钱嘛
-El Partido Comunista luego de cobrar los impuestos inmobiliarios, ¿dejaría a tus hijos ir al colegio sin pagar?
-
-会让你得了癌症
-Dejaría a ti con cáncer
-
-让你在医院里躺着享受高干待遇吗
-Y estar en el hospital ¿disfrutando el tratamiento de alto nivel?
-
-会让你信用卡免交钱吗
-¿No necesitas pagar la tarjeta de crédito?
-
-会让你免车贷吗
-O ¿conseguirás un préstamo de carro gratis?
-
-一样都不会(少), 只会越来越多
-Nada de esto serán menos, sino poco a poco aumentando
-
-就不会维稳了嘛, 只能是越来越维稳
-Ya no se mantendrá la estabilidad, sólo puede ser cada vez más estable
-
-———————————————————
-
-日期：11/03/2021
-原视频标题：共产党不是拿房地产税，拿的是重新分配财富的权力
-El Partido Comunista no cobra impuestos inmobiliarios, se toma el poder de redistribuir la riqueza
-原视频日期：10/27/2021
-原视频网址： https://gettr.com/post/pfodt90665
-任务编号：KC221(2739)
-视频时间段：0:00-2:03
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑发布：闪电训练
 
  
 

@@ -2,61 +2,42 @@
 ---
 
 
-## 马斯克揭露联合国运营儿童性交易
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1639976/)
+## 在英国发布有关疫苗的“虚假信息 ”可能会被判入狱两年
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1640051/)
 
-作者：纽约香草山福音部 – Jinglechenge
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/201223-nurse-vaccine-died-covid-fact-check-carousel-1608696281095.jpg)
 
 
 
+图片来源：rappler.com
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/20211105.jpg)
+#### 编译：小红帽
 
+在英国，根据一项新的法律，在网上发布有关中共病毒（COVID-19）疫苗的“虚假信息”的人可能面临两年监禁。
 
+英国的《在线安全法案》因其广泛的覆盖面而受到公民自由团体的猛烈批评。
 
-很久以来，马斯克的推特帖子已经成了头条新闻。这位大亨甚至可以通过他的推文影响金融市场，加密领域就是最好的例子之一。只需一条推文，马斯克就可以让比特币及其它数字资产的价格一忽儿天上一忽儿地下。
+据《纽约时报》报道，该法律将制定“故意虚假通讯”的罪行，“将那些发送或发布他们知道是虚假的信息，意图对潜在受众造成情感、心理或身体伤害”的人定罪。政府消息人士举了“反疫苗者传播他们知道是不真实的虚假信息”的例子。
 
-现在，他在 10 月 31 日的两条推文又掀起了轩然大波，其内容更是让人震惊。
+鉴于当局认为关于大流行病和疫苗的各种信息都是“虚假的”，但后来证明是真实的，这是个令人不寒而栗的前景。
 
-事情是这样的。
+该法案还将在确定帖子或消息是否犯罪时，将目前更严格的“不雅”或“严重冒犯”内容的标准更改为更广泛的“有害影响”定义。
 
-联合国世界粮食计划署主任 10 月 26 日在CNN声称，若马斯克能捐赠 60 亿美元的话，就可以结束全世界的饥荒。言外之意，60 亿美元仅相当于马斯克2%的资产，微乎其微，拿出来也不会心痛，却能解决世界的温饱，多好的善事啊，快点！
+显然，这更符合英国的仇恨言论法，即不是根据是否真的发生了仇恨言论或仇恨事件，而是根据假定的受害者感觉他们成为了目标，来确定是否犯下了仇恨言论行为。
 
-马斯克立马在推特上（10月31日）反唇相讥：如果联合国世界粮食计划署向公众提供透明的会计核算，公开其花钱计划的话，他将立即出售特斯拉股票凑齐60亿美元。其实，他们在2020年花了84亿美元都没能结束饥饿。
+**参考新闻：**[People in UK Who Post “False Information” About Vaccines Could be Jailed For Two Years – Summit News](https://summit.news/2021/11/01/people-in-uk-who-post-false-information-about-vaccines-could-be-jailed-for-two-years/)
 
-这位计划署主任即刻狡辩说：这笔钱将花得透明又公开，我愿意为此事与你会面。
+***发布：小红帽***
 
-马斯克立即链接了一篇关于联合国官员在给孩子们食物之前要求性服务的报告，呛声道，“这里发生了什么？”言下之意，你这位主任要不要先公开澄清此事，然后再来问我要钱？要不然，我怎么信得过这钱会被花在正确的地方，而不是被拿去干些污秽不堪之事？
-
-这份于 2015 年发表的报告是这样开头：“年仅 9 岁的儿童被逼用性服务换取食物，而联合国官员们对此视而不见”，然后是这样总结的：“在联合国当局得知性虐待指控后的一年半多，没有人为此犯罪行为被追责或被捕”，反而是爆料此事的被赶出了联合国。
-
-管中窥豹，联合国已经腐败得司空见惯。
-
-参考：[www.warroom.org](http://www.warroom.org) episode 1384
-
-（本文仅代表作者个人观点）
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/calendar_nov.jpg)
-
-
-
-编辑/校对/发稿：武裝的羔羊
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
