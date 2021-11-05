@@ -2,13 +2,23 @@
 ---
 
 
-## 我们的网络安全小组是世界上最好的，客户是上帝
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1641243/)
+## 樱花灭共诗——末途之罪（新韵）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1641299/)
 
-11/1/2021 【HCoin to The Moon庆典】我们的网络安全小组是世界上最好的，客户是上帝。
+#### 作者：东京樱花团/曲非烟
+![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
+觑淫台海慕熙皇，大统可期步小康。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+虎旅难登一脉岛，韭仓徒累再冬粮。
 
+末途踽踽称孤寡，罪业愆愆应帝王。
+
+泽下江湖皆蕴水，泛舟何处太平洋。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/42.jpg)[图片来源](https://gettr.com/post/pfgnn9f855)
+*插图：东京樱花团/闪闪*
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

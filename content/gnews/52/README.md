@@ -2,35 +2,30 @@
 ---
 
 
-## 举报人揭辉瑞疫苗试验“伪造数据”后，辉瑞正接受调查
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1640245/)
+## 11/5/2021中日财经爆：中共股市骗局，富祥药业一天蒸发23亿
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640260/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/sz300497.jpg)[图片来源](https://finance.sina.com.cn/stock/s/2021-11-04/doc-iktzqtyu5420478.shtml)
+11月4日，[富祥药业](https://finance.sina.com.cn/realstock/company/sz300497/nc.shtml)早盘小幅高开，上午10点左右其股价有一波拉升，一度涨幅达4.91%，不过午后，该股股价开始一路走低，最后1小时交易时段，股价更是加速“跳水”，截至当日收盘，富祥药业报17.45元，跌幅19.21%，全天成交16.48亿元，换手率高达18.58%。一天23亿市值蒸发。
 
-#### 翻译：小鱼儿
-编辑：小红帽
-![](https://assets.gnews.org/wp-content/uploads/2021/11/corona_vax_vials.jpg)
-一家参与研究的合同公司证实，正在在调查辉瑞公司关于中共病毒（COVID-19）疫苗重要试验中涉嫌存在的问题。
+**值得注意的是，今日最高价格买入的投资者，跌幅高达23%。**
 
-Ventavia研究集团（Ventavia Research Group）在2020年秋季运营了几个试验点。布鲁克·杰克逊（Brook Jackson）在此期间为该公司工作。她告诉《英国医学杂志》（BMJ），该试验充满了问题，包括数据造假。她向食品和药物管理局（FDA）通报了她所看到的问题，并在几小时内被解雇。
+股吧里，网友也是懵了。
 
-从事临床试验工作超过15年的杰克逊告诉《英国医学杂志》，她多次向上司提出关于她所目睹事情的担忧，包括病人安全问题。她开始觉得自己的报告被忽视了，于是用手机拍照。一张照片显然显示，针头被丢弃在一个塑料袋里，而不是一个盒子里；而另一张照片展示了包装材料，显示了试验参与者的识别号码，表明他们可能已经被解除了盲法。
+有网友表示，突然注意，大家都有好多疑问对吧？
 
-杰克逊在9月25日给美国食品和药物管理局的信息中列出了她所关注的12个问题，包括参与者在接受注射后没有被监测，以及疫苗没有在适当的温度下储存。她称，Ventavia公司的工作人员因汇报问题而成为上级的目标。
+也有网友表示：“来时好好的，回不去了，谁能告诉我今天经历了什么？”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-16.png)
+也有投资者表示：“一天亏22个点”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-9.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-6.png)
+信息来源：
 
-杰克逊说，美国食品和药物管理局给她发了一封电子邮件，确认收到了清单。她还接到了美国食品和药物管理局检查员的电话，但此后再也没有收到该机构的消息。
+[尾盘闪崩！23亿市值蒸发，2.1万股东懵了！网友炸锅：1天亏22个点，还有人表示亏13万，发生了什么？](https://finance.sina.com.cn/stock/s/2021-11-04/doc-iktzqtyu5420478.shtml)
 
-参考新闻： [Pfizer Vax Trial Being Probed After Whistleblower Exposes ‘Falsified Data’, According To Contractor | ZeroHedge](https://www.zerohedge.com/covid-19/whistleblower-reports-falsified-data-and-other-flaws-pfizer-vax-trial-being-investigated)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

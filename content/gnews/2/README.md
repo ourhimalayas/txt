@@ -2,24 +2,38 @@
 ---
 
 
-## 唾手可得解药
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1641473/)
+## 中共能源危机持续，与美国签巨额天然气合同
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641632/)
 
-#### 作者：东京樱花团｜阿恩
-![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-9.png)[*图片来源*](https://cdn.hk01.com/di/media/images/dw/20211104/533036854564360192046317.jpeg/XvVxP7aa7bMpJd1pfeY7gu6kMCAyK08kE9-gLRPfoC0?v=w1920)
-香港在中共极权暴政的统治下，悲惨的事件从未停止。2019年反逃犯条例运动，香港出现大量死亡个案，大海中、高楼下、郊野公园里、水塘中，每天都有“无可疑”的尸体发现案……多少香港母亲以泪洗面，因为没有人能为她们的孩子伸冤，活着的家人还要受到中共长期的死亡威胁，稍有不从就会全家消失。国安恶法实施后，中共肆无忌惮地抓捕异见人士，用长期的羁押和漫长的审讯消磨民主人士的意志，他们与亲人要忍受长期的别离，天伦之乐被剥夺，父亲、丈夫、妻子、儿子、女儿的义务被践踏，甚至有人连至亲离世赴丧也要多番申请才被应允。
+作者：MOS 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，有报道指出，虽然中共的煤炭期货下滑了约35%，但中共的能源危机仍远未缓解。数据显示，先是中共国内几个主要产煤大省的水灾降低了本土供应，加之与澳大利亚的关系持续恶化，导致煤炭进口短缺，中共的实货煤炭依旧极其昂贵。入冬后，中共国内还增添了燃煤供暖的需求，这将加剧中共的能源短缺。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-13.jpg)
+另一方面，中共国内部分地区今年降雨量减少，依赖降水量的供电也难以为继，部分工厂被强制限电。这也导致中共国内液化天然气价格的大幅上涨。
 
-毒疫苗在港府强权下已覆盖到12岁至17岁的青少年，不打针就不允许面授的规定，逼迫许多孩子就范。今日终于爆出13岁女童8月打了两针毒疫苗，10月出现低烧气促死亡。医院原本拒绝呈报死亡个案，因为注射疫苗与死亡时间超过了14天，但死者父母质疑医院的作法，迫使医院向卫生署呈报了女儿死亡个案。迄今为止，香港没有一宗死亡个案被认定与毒疫苗有关，孩子的父母应该很清楚不可能在中共的独裁下获得任何公义，但是孩子的父母很勇敢，他们不想让自己的女儿死得不明不白，他们最后能为养育了13年的孩子所作的，就是公开她的死因，让香港人都能警醒起来保护自己的孩子。
+为了解决迫在眉睫的能源问题，中共与美国路易斯安那州的天然气企业签署了一份20年的协议，以确保美国向中共国出口400万吨的液化天然气。
 
-我们不愿意看到香港的青少年一个接一个地离开他们的父母，虽然父母在同意书上签字意同谋杀，但这并非出于他们的本意。感恩爆料革命郭文贵先生一早就公布了治疗中共新冠病毒的解药和毒疫苗的解药，详细的处方经过新中国联邦农场医生团队审核后公布在爆料革命自家社交平台Gettr上。许多跟随爆料革命的战友早已将这个好消息传递给了内地同胞，这些药物经过短暂的禁售后，如今已全面开放热销。然而走在抗争前线的香港却有越来越多的人去打疫苗，许多人为搏中黄金、中豪车、做业主甘心情愿去扎毒针；有的人为了能去教会而打疫苗，有的为了能去学校面授而就范……中共病毒和疫苗解药的消息当然也有传入香港，不过相比内地同胞的信心，香港人确实差了很多。
+相关评论指出，2019年中美贸易战期间，中共几乎切断了对美国化石能源产品的进口，此次签署如此巨额的天然气协议，或与中共每况愈下的国际与国内环境有关。
 
-忠心期盼更多香港的父母能尽快关注和登录我们的盖特（Gettr），及时获得解药信息，守护好上帝赐予你的孩子，没有枉死就不再有悲伤的眼泪。
+参考链接：
 
-**资料来源：**[**13岁女童低烧气促入威院 出院翌日离世 死前两个月曾打疫苗**](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/697136/13%E6%AD%B2%E5%A5%B3%E7%AB%A5%E4%BD%8E%E7%87%92%E6%B0%A3%E4%BF%83%E5%85%A5%E5%A8%81%E9%99%A2-%E5%87%BA%E9%99%A2%E7%BF%8C%E6%97%A5%E9%9B%A2%E4%B8%96-%E6%AD%BB%E5%89%8D%E5%85%A9%E5%80%8B%E6%9C%88%E6%9B%BE%E6%89%93%E7%96%AB%E8%8B%97)
+[中国为应对能源短缺和减排狂买美国天然气](https://cn.wsj.com/articles/%E4%B8%AD%E5%9B%BD%E4%B8%BA%E5%BA%94%E5%AF%B9%E8%83%BD%E6%BA%90%E7%9F%AD%E7%BC%BA%E5%92%8C%E5%87%8F%E6%8E%92%E7%8B%82%E4%B9%B0%E7%BE%8E%E5%9B%BD%E5%A4%A9%E7%84%B6%E6%B0%94-11635903309)
 
-*编辑：东京樱花团 / 文小白
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+[Sinopec signs China’s largest long-term LNG contract with U.S. firm](https://www.reuters.com/business/energy/sinopec-signs-20-yr-lng-contract-with-us-venture-global-lng-2021-11-04/)
+
+[《RUSSELL专栏》中国动力煤期货虽暴跌35% 然现货价格依然坚挺](https://cn.reuters.com/article/column-russell-china-coal-drv-1026-idCNKBS2HG0QZ)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编：Irene木木
+编辑：Kathy文艺/Irene木木
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

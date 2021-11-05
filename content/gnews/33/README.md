@@ -2,27 +2,45 @@
 ---
 
 
-## 欧洲央行现在正在软化欧元
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1640957/)
+## 中共和美国精英就疫苗问题在科学界深度融合
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1640999/)
 
-新闻来源：德国法兰克福报网页版
+**简评：**
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+在中共最近召开的一个研讨会上，“蝙蝠女”石正丽参加并发表了关于新冠病毒变种的主题演讲，美国食品药物管理局和疾病控制中心的新冠疫苗顾问也出席了这次由中共资助的会议。中共和美国精英就疫苗的融洽不言而喻。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/der-ezb-turm-im-frankfurter.jpg)
+[GTV视频链接](https://gtv.org/video/id=6181e636adfd99590c3283ff)
 
 
-图片来源： FAZ
 
-美国中央银行释放出了货币政策的转变。这使欧洲货币承担巨大压力。 我们都看到了纳斯达克指数创下历史新高。
+**视频字幕：**
 
-欧洲货币联盟的通货膨胀率仍然很高，而欧元的外部价值自夏季以来一直在弱化。在这种情况下，美国联邦储备委员会 (Fed) 于周三晚间宣布了货币政策的变化。它最早将于 11 月开始减少债券购买，并在明年年中结束。 这表明更高的利差有利于美国债券，而以牺牲欧洲债券为代价，这可能会加强美元并进一步削弱欧元。
+**OAN主持人：**就在大约一个月前，你报道了在中国有一个研讨会，其中中国的军事研究人员石正丽也在场，美国食品和药物管理局（FDA）和疾病控制中心（CDC）的新冠疫苗顾问也出席了。请你谈谈其中的一些进展。
 
-这反过来意味着更高的进口价格，这可能会进一步加剧欧洲的通货膨胀。然而，市场对欧元区的通胀预期最近回落至 2% 以下。
+**Natalie Winters：**好的。蝙蝠女石正丽不仅仅出席了这次会议，她实际上还发表主题演讲，讲了一些新冠病毒的不同变种。
 
-原文链接：[https://www.faz.net/aktuell/finanzen/us-notenbank-fed-wechselt-kurs-und-setzt-euro-unter-druck-17618425.html](https://www.faz.net/aktuell/finanzen/us-notenbank-fed-wechselt-kurs-und-setzt-euro-unter-druck-17618425.html)
+正如你所说的，中共国的军事研究人员也出席了，而且这整个活动是由中国共产党资助的，这让人非常好奇。正如人们所了解的，中国共产党和美国的建制派非常喜欢在很多这样的问题上协作。
 
-责任编辑、发布： Shuizhuyu
+因此，一个名叫Stanley Perlman，任职于美国食品药物管理局的新冠疫苗咨询委员会和疾病控制中心的该疫苗推广计划咨询委员会的人，他同“蝙蝠女”，还有一些美国国立卫生研究院的研究人员，一起参加了这次会议，这并不出乎意料。
+
+我认为这再次说明了中共和美国精英之间的这种融合，特别是在科学界。
+
+
+
+*字幕：nights | 听写：云岭| 翻译：clau|简评/文字整理/编辑：胖丁*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

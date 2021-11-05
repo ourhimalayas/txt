@@ -2,48 +2,27 @@
 ---
 
 
-## Youngkin在维州民意调查中领先，被视为2022年中期选举的风向标
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1640925/)
+## 国际刑事法院调查委内瑞拉
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1640975/)
 
-作者：纽约香草山农场 – 柳是多水土透
+新闻来源：德国法兰克福报网页版
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-共和党维吉尼亚州候选人Youngkin在民调中领先，福克斯新闻显示，企业家Youngkin领先对手8%。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11.png)
-
-他的竞争者，前州长Terry McAuliffe的竞选集会在本周有更少的人参加，除了深蓝地区阿灵顿以外。
-
-教育是本次竞选主题之一，团结了维州的保守派。McAuliffe 在辩论中说到“家长不应该决定学校教什么”，之后其领先优势开始缓慢消失。
-
-与之相对，Youngkin认为 “若我当选，家长将有权为孩子的教育做决定”。
-
-选举被视为2022年中期选举的民意风向标并广受关注，将在周二举行。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-- [https://justthenews.com/government/state-houses/youngkin-campaign-surging-final-days-virginia-race-could-be-predictor-2022](https://justthenews.com/government/state-houses/youngkin-campaign-surging-final-days-virginia-race-could-be-predictor-2022)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/nicolas-maduro-und-karim-khan-chefanklaeger-des-in-istgh-1.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+图片来源： FAZ
 
-***编辑***：***正义的小新***
-***校对/发稿：海阔天空1***
+这是在总统府拍摄的一张不寻常的照片。它展示了委内瑞拉的社会主义统治者尼古拉斯·马杜罗 (Nicolás Maduro) 和总部位于海牙的国际刑事法院 (ICC) 的首席检察官卡里姆·汗 (Karim Khan)。他们手里拿着两份文件。这是双方于周三签署的协议。国际刑事法院希望调查在 2017 年的反对社会主义政府的抗议活动中， 是否对反对派犯下了危害人类罪。
 
-**更多资讯，更多关注**
+当时有一百名抗议者被杀。同年，2015 年选举产生的国民议会被剥夺权力，取而代之的是制宪议会，其中反对派占三分之二多数。至少自 2019 年备受争议的连任以来，马杜罗在国际上基本上与世隔绝。
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+马杜罗在电视上说，首席检察官决定调查真相。 “我们不同意这个决定，但我们尊重它。” 所以这不仅仅是一张不寻常的照片，也是他选择的不寻常的词。大约三年前宣布自己为反总统的反对派政治家胡安·瓜伊多 (Juan Guaidó) 对这一消息表示欢迎。最重要的是，这是抗议活动的受害者及其家人希望日后正义的一个原因。
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+原文链接：[https://www.faz.net/aktuell/finanzen/us-notenbank-fed-wechselt-kurs-und-setzt-euro-unter-druck-17618425.html](https://www.faz.net/aktuell/finanzen/us-notenbank-fed-wechselt-kurs-und-setzt-euro-unter-druck-17618425.html)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+责任编辑、发布： Shuizhuyu
 
  
 

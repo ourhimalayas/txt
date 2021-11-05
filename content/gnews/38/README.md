@@ -2,31 +2,51 @@
 ---
 
 
-## 11/5/2021中日财经爆 ：“油盐酱醋“都涨价，受苦的还是老百姓
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640779/)
+## 中共包括福建在内多地出现疯狂抢购,民众因抢粮大打出手
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1640926/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5646.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimagepphcloud.dwnews.cc%2Fpph%2Fimage%2F162%2F361%2F656.jpg&amp;imgrefurl=https%3A%2F%2Fm.dwnews.cc%2FnewsDetail_forward_15238373&amp;tbnid=9GynDRf9CRtMhM&amp;vet=12ahUKEwjUkoe56oD0AhVdTPUHHdnPDiEQMygAegUIARCkAQ..i&amp;docid=OSNAGii9jA_ciM&amp;w=888&amp;h=608&amp;q=%E2%80%9C%E6%B2%B9%E7%9B%90%E9%85%B1%E9%86%8B%E2%80%9C%E9%83%BD%E6%B6%A8%E4%BB%B7&amp;ved=2ahUKEwjUkoe56oD0AhVdTPUHHdnPDiEQMygAegUIARCkAQ)
-11月4日，肉类食品专营企业得利斯称，一个月前已对预制菜相关牛肉类产品价格已进行了调整，近期也对部分牛肉类产品进行了再次提价。在必选消费品提价这件事上，得利斯不是第一个“吃螃蟹的人”。
+据[银河勇气之星（新号）@COURAGESTARnew](https://twitter.com/COURAGESTARnew)于[下午3:14 · 2021年11月5日](https://twitter.com/COURAGESTARnew/status/1456520286015148033)发布的推文——
 
-在更早前的10月13日，海天味业发公告称，将对酱油、蚝油、酱料等部分产品的出厂价格进行调整，调整幅度为3%-7%不等。
+This scene is very sad.Don’t happen again 这一幕非常令人心疼，别再发生了
 
-10月22日，洽洽食品也称，将对葵花子系列产品以及南[瓜子](https://36kr.com/projectDetails/3968812)、小而香西瓜子产品的出厂价格调整，提价幅度为8%-18%不等。
 
-随即，被称为“中国最大制醋企业”的恒顺醋业也宣布将于自11月20日起对部分产品进行价格调整，调整幅度5%-15%不等。主营[调味品](https://36kr.com/projectDetails/335067)的[加加](https://www.36dianping.com/space/4848401030?mp=zzquote)食品也在16日起对多种产品调价，上调幅度3%-7%不等。
 
-近日，金龙鱼放出信号称，关于调价，公司要平衡消费者的接受度与公司的成本、利润及长远发展之间的关系，较为稳健的处理调价问题。
+> This scene is very sad.Don’t happen again
+> 这一幕非常令人心疼，别再发生了🙏 [pic.twitter.com/w2qjWy1rNN](https://t.co/w2qjWy1rNN)
+> — 银河勇气之星⭐（新号） (@COURAGESTARnew) [November 5, 2021](https://twitter.com/COURAGESTARnew/status/1456520286015148033?ref_src=twsrc%5Etfw)
 
-此外，盐业上市公司也于进入宣布集体涨价，继雪天盐业称小包食盐出厂价近期陆续提价后，云南能投也透露，对部分食盐产品及工业盐产品价格进行上调。
 
-至此，中共国内市场“油盐酱醋”到食品肉类已全部涨价。对于本就单价不高的食品以及日用品来说，原材料成本上涨的压力传导到了消费者身上。“涨价潮”来袭，部分消费者已经开始“囤货”。
 
-消息来源:
-[受原材料成本影响，“油盐酱醋”已全部涨价](https://36kr.com/p/1471582648461059)
+根据视频显示，中共内地多地持续出现疯狂抢购，因为抢粮而大打出手，有些地区超市被抢购一空，（北京）卖大米的从来没想到今年能这么火。福建省南安超市货架货品都被抢光了，货架货品都被抢光喽，南安湖西超市都被抢光了，整家超市都被抢光的，祥龙干货带头抢光了厦门唐朝食品配送商的存货。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+关于存粮的问题，郭文贵先生也在[2021年11月03 日 文贵大直播：彭帅爆张高丽丑闻，再次验证爆料革命的真实性；喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产；房地产税会灭国灭党；共和党在弗吉尼亚州长竞选获胜意味着什么](https://gtv.org/video/id=61827dfd11d186296800dd83)中进行了解惑。
+
+郭先生提到共产党也知道现在国外进口的粮食越来越困难，国内很多所谓的战略粮是给国家军队用的，不是给老百姓用的，另外由于今年中共国到处发大水，因自然灾难导致严重缺粮，并且中共现在并没有发放公粮的体制，到时候即使有公粮也发不下去，所以中共鼓励大家存粮，用囤粮的办法解决中共国根本没有战争时期或自然灾难下分配粮食的体制，避免饿死更多人。
+
+自助者天必助之，远离一线二线城市，远离军事目标，储存必要的生活物资并保证在至暗时刻来临时有基本的水电通讯条件和安全的庇护场所或许应该是十四亿同胞们目前最急需解决的事情了。
+
+撰稿：喜马拉雅的肉夹馍
+
+审核：喜马拉雅的馍夹肉
+
+校对：Maarago
+
+（文章内容仅代表作者个人观点）
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

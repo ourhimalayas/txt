@@ -2,47 +2,27 @@
 ---
 
 
-## 中共国本轮疫情已波及19个省份
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640803/)
+## 欧洲央行现在正在软化欧元
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1640957/)
 
-作者：英国喜庄园 – I770775
+新闻来源：德国法兰克福报网页版
 
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-中共国多家媒体报道，自10月17日西安报告2例确诊病例以来，在短短半个月的时间里，疫情已经波及北京、河北、甘肃、内蒙古等19个省份，其中内蒙古、甘肃、黑龙江等省份的确诊病例均已过百，全国累计确诊病例已超过700例。
-
-因为反复的防控封锁，中共国百姓的生活苦不堪言。钟南山依旧无视百姓疾苦，表示在强有力的监管和防控下，全国疫情会在一个月内得到有效控制。但随着感染人数的持续攀升，中共恐难掩盖本轮疫情真相。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-3.jpg)
-参考链接：
-1. [本轮疫情已波及19省份，这些风险点得警惕！](https://finance.sina.com.cn/jjxw/2021-11-04/doc-iktzscyy3519830.shtml)
-2. [本轮疫情已波及19省份](https://news.ifeng.com/c/8At9AVPuhA6)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/der-ezb-turm-im-frankfurter.jpg)
 
 
+图片来源： FAZ
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+美国中央银行释放出了货币政策的转变。这使欧洲货币承担巨大压力。 我们都看到了纳斯达克指数创下历史新高。
 
+欧洲货币联盟的通货膨胀率仍然很高，而欧元的外部价值自夏季以来一直在弱化。在这种情况下，美国联邦储备委员会 (Fed) 于周三晚间宣布了货币政策的变化。它最早将于 11 月开始减少债券购买，并在明年年中结束。 这表明更高的利差有利于美国债券，而以牺牲欧洲债券为代价，这可能会加强美元并进一步削弱欧元。
 
+这反过来意味着更高的进口价格，这可能会进一步加剧欧洲的通货膨胀。然而，市场对欧元区的通胀预期最近回落至 2% 以下。
+
+原文链接：[https://www.faz.net/aktuell/finanzen/us-notenbank-fed-wechselt-kurs-und-setzt-euro-unter-druck-17618425.html](https://www.faz.net/aktuell/finanzen/us-notenbank-fed-wechselt-kurs-und-setzt-euro-unter-druck-17618425.html)
+
+责任编辑、发布： Shuizhuyu
 
  
 

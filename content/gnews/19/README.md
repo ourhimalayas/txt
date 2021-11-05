@@ -2,10 +2,10 @@
 ---
 
 
-## 由于中共的严厉审查，雅虎撤出中共国
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1641235/)
+## 我们的网络安全小组是世界上最好的，客户是上帝
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1641243/)
 
-11/03/2021 欧亚集团科技政策部门总经理保罗·特里奥洛：由于中共的严厉审查，雅虎撤出中共国；诸如谷歌，领英等科技公司也因为相同原因撤离中共国。
+11/1/2021 【HCoin to The Moon庆典】我们的网络安全小组是世界上最好的，客户是上帝。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
