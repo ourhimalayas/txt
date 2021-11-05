@@ -2,18 +2,27 @@
 ---
 
 
-## 欧盟议会代表团正式访台
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1640854/)
+## 欧洲央行现在正在软化欧元
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1640957/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11051.jpg)图片来自BBC
-11 月 5 日 -身为欧洲议会外国干涉特别委员会 (Inge) 主席Raphael Glucksmann 表示 “我们的访问表明台湾对于欧洲的重要性，它体现了该地区的自由和民主。我们来传达信息，即台湾并不孤单，你们的民主对于欧盟原则和欧洲的长期利益都至关重要”。
+新闻来源：德国法兰克福报网页版
 
-他表示：“欧洲议会代表团对台湾进行正式访问是在向台湾学习，是因为它代表了如何以公开和民主的方式对抗外国干涉和虚假信息的例子，我们来学习台湾的成功经验并将这些经验带回欧洲“。
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/05/delegazione-pe-a-taiwan-vostra-democrazia-cruciale-per-ue\_2f879961-9e14-49c9-a389-779b54c93578.html](https://www.ansa.it/sito/notizie/topnews/2021/11/05/delegazione-pe-a-taiwan-vostra-democrazia-cruciale-per-ue_2f879961-9e14-49c9-a389-779b54c93578.html)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/der-ezb-turm-im-frankfurter.jpg)
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+
+图片来源： FAZ
+
+美国中央银行释放出了货币政策的转变。这使欧洲货币承担巨大压力。 我们都看到了纳斯达克指数创下历史新高。
+
+欧洲货币联盟的通货膨胀率仍然很高，而欧元的外部价值自夏季以来一直在弱化。在这种情况下，美国联邦储备委员会 (Fed) 于周三晚间宣布了货币政策的变化。它最早将于 11 月开始减少债券购买，并在明年年中结束。 这表明更高的利差有利于美国债券，而以牺牲欧洲债券为代价，这可能会加强美元并进一步削弱欧元。
+
+这反过来意味着更高的进口价格，这可能会进一步加剧欧洲的通货膨胀。然而，市场对欧元区的通胀预期最近回落至 2% 以下。
+
+原文链接：[https://www.faz.net/aktuell/finanzen/us-notenbank-fed-wechselt-kurs-und-setzt-euro-unter-druck-17618425.html](https://www.faz.net/aktuell/finanzen/us-notenbank-fed-wechselt-kurs-und-setzt-euro-unter-druck-17618425.html)
+
+责任编辑、发布： Shuizhuyu
 
  
 

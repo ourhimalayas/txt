@@ -2,48 +2,38 @@
 ---
 
 
-## 华为成立4大军团，同时出售服务器业务
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640720/)
+## 美国参议院一致通过《安全设备法案》进一步缩小华为中兴的生存空间
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1640802/)
 
 作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在FCC将要剔除CCP三大运营商之后，美国参议院也在本周四一致投票批准《安全设备法案》立法，此法案上周在美国众院以420-4的压倒性结果通过，该法案将禁止华为、中兴等被视为带来安全威胁的公司，从美国监管机构也就是FCC获得新的设备许可证，以及禁止FCC审查上述企业。同时海能达通信和海康威视也是此法案制裁的对象。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-5.jpg)
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+- [https://www.reuters.com/article/us-congress-huawei-zte-restrictions-1029-idCNKBS2HJ0D6](https://www.reuters.com/article/us-congress-huawei-zte-restrictions-1029-idCNKBS2HJ0D6)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-据墙内11月3日的消息，继3月成立煤炭军团之后，华为最近正式组建数据中心能源军团、智能光伏军团、海关和港口军团、智慧公路军团4大军团组织，并高调举行了军团组建成立大会。
-
-据上周的数据显示，华为前三季度整体营收同比下降37%，手机出货量则下降了73.8%。而因被美国列入黑名单，不能开展正常业务，华为考虑将出售依靠抄袭思科起家的服务器业务。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-12.jpg)
-参考链接：
-1. [Huawei said to sell key server division due to US blacklisting](https://www.bloomberg.com/news/articles/2021-11-02/huawei-said-to-sell-key-server-division-due-to-u-s-blacklisting?sref=V7uxlNge)
-2. [华为军团组建成立大会，任正非：和平是打出来的](https://www.sohu.com/a/499087347_115565)
-3. [华为营收减少2000亿元背后：手机销量同比降77％，对手苹果大中华区业绩涨83％](https://www.sohu.com/a/498084501_115565)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
+***编辑***：***Irene木木***
+***校对/发稿：海阔天空1***
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
 
  
 

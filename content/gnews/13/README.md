@@ -2,34 +2,48 @@
 ---
 
 
-## 政府排挤黄金作为“替代”货币，未来比特币价格翻倍
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1640826/)
+## Youngkin在维州民意调查中领先，被视为2022年中期选举的风向标
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1640925/)
 
-#### 翻译：Sara9 
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5823-4.jpg)**图片来源：Blockonmi**
-今年比特币和其他加密货币横扫华尔街，很多大银行纷纷介入加密货币业务。而比特币价格从去年同期的15000美元飙升至现在的60000美元，这对金融界造成了不小的冲击。
+作者：纽约香草山农场 – 柳是多水土透
 
-摩根大通最新预计，比特币长期价格有可能翻一倍多到146000美元，而分析师警告，极端的价格波动性可能导致其价格快速滑落至35000美元。同时，在（上一轮）出现1500亿美元的加密货币价格暴跌时，大资金正在抛弃比特币而转向以太坊。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-【备注：新中国联邦喜币正是采用的是由摩根大通开发的基于以太坊的Quorum区块链技术，Quorum是一种联盟链解决方案。】
+共和党维吉尼亚州候选人Youngkin在民调中领先，福克斯新闻显示，企业家Youngkin领先对手8%。
 
-目前，市场上对于比特币上升到100000美元是很多加密货币市场观察家今明两年的共识。摩根大通的警告，对这种说法提出了挑战。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11.png)
 
-分析师也认为，由于前所未有的通胀压力，不仅是各种基金用它来对冲货币贬值，一般散户也在更多的跟进到这个财富安全天堂。目前美国通胀是13年来最高的，让比特币的价格在过去的12个月以来增加了300%，使整个加密货币市场总量增加到2万亿美元。
+他的竞争者，前州长Terry McAuliffe的竞选集会在本周有更少的人参加，除了深蓝地区阿灵顿以外。
 
-市场将比特币作为黄金的通货膨胀对冲替代品有浓厚兴趣，任何这种（政府）对黄金作为“替代”货币的排挤都意味着比特币在长期内有很大的上升空间。
+教育是本次竞选主题之一，团结了维州的保守派。McAuliffe 在辩论中说到“家长不应该决定学校教什么”，之后其领先优势开始缓慢消失。
 
-原文链接：[JPMorgan Doubles Down On Its Massive Bitcoin Price Prediction—But Adds A Serious Warning (forbes.com)](https://www.forbes.com/sites/billybambrough/2021/11/04/jpmorgan-doubles-down-on-its-massive-bitcoin-price-prediction-but-adds-a-serious-warning/?sh=1ba9b9f14511)
+与之相对，Youngkin认为 “若我当选，家长将有权为孩子的教育做决定”。
 
-**发布：文泓**
+选举被视为2022年中期选举的民意风向标并广受关注，将在周二举行。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+（本文仅代表作者观点）
+
+参考阅读：
+
+- [https://justthenews.com/government/state-houses/youngkin-campaign-surging-final-days-virginia-race-could-be-predictor-2022](https://justthenews.com/government/state-houses/youngkin-campaign-surging-final-days-virginia-race-could-be-predictor-2022)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+
+***编辑***：***正义的小新***
+***校对/发稿：海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

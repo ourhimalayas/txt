@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/5/2021 11:04 AM (UTC)`
+
+10月5号：尊敬的战友们好，今天星期五的大直播前．提前锻炼，因为今天没有时间锻炼了……任何情况下都不要给自己的承诺．和目标．找任何借口放弃！一切都已经开始！
+![img](https://media.gettr.com/group20/getter/2021/11/05/11/04/7d86519e-4ca0-00dc-9d75-fa11f74cacae/out.jpg)
+
+---
+
+`@miles 11/5/2021 10:57 AM (UTC)`
+
+Dr. Peter Navarro: One of the goals in the book "In Trump Time" is to fire Fauci and get the truth about the vaccine. There is one chapter in the book that if we used hydroxychloroquine sulfate, maybe we could reduce deaths by half. The book also paints the whole picture of Fauci. Plenty of stuff about Fauci has not been reported, whether it is related to the vaccines, therapeutics, math and some of the evil roles he plays!<br/><br/> 《川普时代》书中的一个目的就是炒掉福奇，获得疫苗的真相。书中有章节描述到，如果我们使用了硫酸羟氯喹，也许我们可以减少一半的死亡。书中还描绘了福奇的全貌，很多关于福奇的信息没有被报导，不管是有关疫苗、治疗或统计方面及其所扮演的邪恶角色！
+![img](https://media.gettr.com/group46/origin/2021/11/05/10/57/5918c8a2-3e9b-6c42-44f8-69eebc5c9ee3/out.jpg)
+
+---
+
 `@miles 11/5/2021 10:35 AM (UTC)`
 
 Dr. David Wiseman: FDA打破了一个又一个规则，这绝对太离谱了。英国医学杂志一篇论文报告了多方面的严重不当行为，包括数据造假、揭盲和各种状况，这完全是FDA的失职，是对孩子的不负责任！<br/><br/>The FDA has broken one rule after another, which is absolutely outrageous. A paper in the British Medical Journal reported serious misconduct in many aspects, including data falsification, unblinding, and various situations. This is completely the FDA's negligence and irresponsibility to the child!
@@ -280,20 +294,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 11/1/2021【HCoin To the Moon Celebration】: We support both Pompeo and Trump running for President of the United States as long as they are determined to take down the CCP! We will not take sides!<br/><br/>11/1/2021【HCoin To the Moon 庆典】：我们既支持蓬培奥也支持川普竞选美国总统，只要他们坚决灭共！我们不会在他们之间选边儿站队！<br/>
 ![img](https://media.gettr.com/group3/getter/2021/11/02/04/59/862c7ad2-9690-4a0c-8be6-1b80c49dba5a/out.jpg)
-
----
-
-`@miles 11/2/2021 3:49 AM (UTC)`
-
-11/1/2021 [HCoin To the Moon Celebration]: Liechtenstein decided to decouple with the CCP to invest in the Himalaya Reserve; Luxembourg, with the world's highest GDP per capita, would rather decouple with the CCP in order to invest in the Himalaya Reserve; on behalf of the Himalaya Reserve, Europe's largest political lobbying firm is lobbying various countries around the world to decouple with the CCP!<br/><br/>11/1/2021【HCoin To the Moon 庆典】：列支敦士登因投资喜联储而果断跟中共脱钩；全球人均GDP最高的卢森堡宁愿跟中共脱钩也要投资喜联储；欧洲最大的政治游说公司正在为喜联储在全球游说多国与中共脱钩！<br/>
-![img](https://media.gettr.com/group22/getter/2021/11/02/03/49/44d1ec47-3c8f-1c6b-a8dc-fca393abcf24/out.jpg)
-
----
-
-`@miles 11/2/2021 3:42 AM (UTC)`
-
-11/1/2021 【HCoin To the Moon Celebration】The Himalaya Reserve wouldn’t be disappeared by the CCP with our capability and overseas protection.<br/><br/> 11/1/2021 【HCoin to The Moon庆典】我们的能力和海外力量的保护，使中共无法消灭喜联储
-![img](https://media.gettr.com/group39/getter/2021/11/02/03/42/07d65798-fd87-03dc-2d5e-036e5b752895/out.jpg)
 
 ---
 

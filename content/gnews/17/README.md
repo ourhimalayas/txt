@@ -2,47 +2,20 @@
 ---
 
 
-## 中共国本轮疫情已波及19个省份
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640803/)
+## 为辉瑞工作的公司伪造疫苗数据
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1640897/)
 
-作者：英国喜庄园 – I770775
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11053.jpg)图片来自Corvelva
+由调查记者 Paul D Thacker 撰写并发表在英国医学杂志上的一篇文章披露：在德克萨斯州一家专门从事临床试验的公司 Ventavia 中工作的一名内部目击者称该公司向美国食品和药物管理局 (Fda) 报告了许多关于疫苗的虚假数据。
 
+这篇文章的主要来源是前 Ventavia 员工 Brook Jackson，他在辉瑞 / BioNTech 疫苗测试上工作了两周，他目睹了许多虚假伪造，包括“双盲”评估系统中的一些问题。
 
+消息人士称，这家德克萨斯公司雇用了训练有素的疫苗接种员，并且对辉瑞关键 III 期研究中报告的不良事件的跟进速度非常缓慢。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+原文链接：[https://www.today.it/partner/adnkronos/salute/covid-bmj-azienda-che-lavorava-per-pfizer-ha-falsificato-dati-vaccino.html](https://www.today.it/partner/adnkronos/salute/covid-bmj-azienda-che-lavorava-per-pfizer-ha-falsificato-dati-vaccino.html)
 
-
-
-中共国多家媒体报道，自10月17日西安报告2例确诊病例以来，在短短半个月的时间里，疫情已经波及北京、河北、甘肃、内蒙古等19个省份，其中内蒙古、甘肃、黑龙江等省份的确诊病例均已过百，全国累计确诊病例已超过700例。
-
-因为反复的防控封锁，中共国百姓的生活苦不堪言。钟南山依旧无视百姓疾苦，表示在强有力的监管和防控下，全国疫情会在一个月内得到有效控制。但随着感染人数的持续攀升，中共恐难掩盖本轮疫情真相。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-3.jpg)
-参考链接：
-1. [本轮疫情已波及19省份，这些风险点得警惕！](https://finance.sina.com.cn/jjxw/2021-11-04/doc-iktzscyy3519830.shtml)
-2. [本轮疫情已波及19省份](https://news.ifeng.com/c/8At9AVPuhA6)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

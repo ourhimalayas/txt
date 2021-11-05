@@ -2,46 +2,46 @@
 ---
 
 
-## 共和党希望取得维州议会多数，民主党试图继续保持权力
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1640863/)
+## 来自澳大利亚的“SOS求救”澳洲反抗暴政者呼吁国际社会支援
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1640965/)
 
-作者：纽约香草山农场 – 柳是多水土透
+撰稿/视频翻译：Jenny
+视频剪辑/字幕：一灯一智
+我们呼求国际支援，呼吁在全球范围内展开 “澳大利亚SOS “活动，时间：2021年12月4日中午12点，
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+我们呼吁政治家、国际领导人和所有相关公民对我们的求救作出回应。
 
-在维州众议院民主党有10席优势，如共和党想夺得多数权，需要在本次选举中至少赢得6席。
+假如您同情并愿意帮助我们，请这样做：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/10.png)
+**你可以在自己的平台上发表公开声明，使用您自己的信纸或设计，宣布您支持这一事件和我们国家，为自由而战。**
 
-最近的民意调查显示，两党在包含州长席位的公职中竞争激烈。共和党曾在1991-2009近30年中保持维州众议院控制权，但民主党在2017和19年选举中取得进展。
+**在网站上，你会看到我们的媒体发布，请随意在你的公告中使用其中任何部分。向我们寻求设计帮助，网址：[\[email protected\]](/cdn-cgi/l/email-protection#38595c555156784a5d515f56514c5d5c5d55575b4a595b41594d4b4c4a59545159165b575516594d)**
 
-“我们有信心赢回流失到民主党的席位” 少数派领袖Todd Gilbert的发言人R-Shenandoah说到 “选民意识到民主党停止了强制性犯罪报告，让学校变得更不安全，他们从监狱释放了危险的罪犯并且把警察当敌人来看待。民主党征收燃油税，使家庭的能源账单至少增长800美金”。
+**您可以熟悉我们向政府提出的要求，如果您支持这些要求，请在您的公告中注明**。
 
-在得到议会控制权后，民主党通过了一系列法案，包含更严格的枪支控制，大麻合法化，授权地区政府提高税收，工会授权，增加最低收入，刑事司法改革和严厉的环境保护规章等。
+**如果您是国会议员，并有支持给予一定数量的澳大利亚人庇护的想法，请在你的公告中包括这一点。**
 
-（本文仅代表作者观点）
+**如果您是国家领导人，并且有权力给予一定数量的澳大利亚人庇护，请在您的公告中写明。**
 
-参考阅读：
+**如果您是一个有影响力的人，或者经营著一个媒体节目或平台，请帮助宣传这一活动。莫妮卡将应您的要求接受采访。请发电子邮件给我们：**[\[email protected\]](/cdn-cgi/l/email-protection#ec818988858dac9e89858b82859889888981838f9e8d8f958d999f989e8d80858dc28f8381c28d99)
 
-- [https://justthenews.com/nation/states/republicans-hope-flip-virginia-house-dems-try-keep-control](https://justthenews.com/nation/states/republicans-hope-flip-virginia-house-dems-try-keep-control)
+**如果您是想在您的国家参加这个活动的人，请下载并分享我们的社交媒体。**
 
+**您也可以打印和分发传单，它们可以在这个页面上找到。在我们的媒体发布中，我们有关于当天的标志的想法。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+**请在您的帖子中使用#SOSfromAustralia**
 
-***编辑***：***正义的小新***
-***校对/发稿：海阔天空1***
+组织者已然在声明呼吁“**有权力给予一定数量的澳大利亚人庇护**”的国家领导人给予支援，这是多么的绝望。这段视频也许会让您更加明白澳洲即将面临的恐怖局面。
+视频制作：喜国公民
+推荐相关文章：[澳大利亚正在训练军人上门挨家挨户强制疫苗接种](https://gnews.org/zh-hans/1640461/)
 
-**更多资讯，更多关注**
+（本文纯属个人观点，与Gnews无关）
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[原文链接：](https://www.reignitedemocracyaustralia.com.au/sos/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1.jpg)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
