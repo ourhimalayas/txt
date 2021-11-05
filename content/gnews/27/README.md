@@ -2,157 +2,173 @@
 ---
 
 
-## 中共开征房地产税是中共走向北朝鲜与人类文明对决的开始
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1639812/)
+## 共产党不是拿房地产税，拿的是重新分配财富的权力
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1639907/)
 
-[https://gtv.org/video/id=61846260adfd99590c3330c7](https://gtv.org/video/id=61846260adfd99590c3330c7)
+[https://gtv.org/video/id=6184619eadfd99590c333092](https://gtv.org/video/id=6184619eadfd99590c333092)
 
-所有地方(政府)上的地方债要爆雷了
-Todas las deudas locales (gubernamentales) están a punto de explotarse
+喜币, 喜联储上市
+Cuando se hace el listado de la moneda y la Reserva Federal de Himalaya
 
-卖地卖不出去了
-Ya no pueden vender terrenos
+G-TV, G-CLUB
+G-TV, G-CLUB
 
-现在回过头来
-Ahora vienen
+所有的这一切它不是一个单纯的存在
+Todo esto no es una simple existencia
 
-来割你的韭菜
-Y cortan tus puerros
+是一个爆料革命, 新中国联邦的信任
+Es un Movimiento de Denunciantes, es la confianza hacia el Nuevo Estado Federal de China
 
-让你买过的房子, 欠过的债
-La casa que compraste, las deudas que debías
+你的为人, 你的判断力, 你的信仰
+Tu personalidad, tu criterio, tu creencia
 
-再让你为你的债再付利息
-Te permite pagar más intereses por tu deuda
+你对人的一个相处的关系的综合存在
+La existencia integral de la relación que tienes con las personas
 
-这真的是人
-Esto realmente es
+那么我们要看到这是什么
+Y qué es lo que debemos ver
 
-生的时候在娘胎里边
-Cuando el ser humano está en el vientre de su madre
+现在看到国内的房地产
+Ahora vean las propiedades inmobiliarias a nivel nacional de China
 
-就开始征税
-Comienza a cobrar impuestos
+我们爆料房地产
+Nosotros denunciamos acerca de eso
 
-到你长大开始各种税
-Hasta cuando crezcas empiezan todo tipo de impuestos
+2017年说马云, 这些人要完蛋的时候
+En 2017, decimos que Jack Ma y estas personas van a morir
 
-到死了就是把火葬场弄很贵
-Incluso, hasta morirse es encarecer el crematorio
+国内这个房地产税谁说的
+Quién dijo acerca de las propiedades inmobiliarias a nivel nacional
 
-再把这个放骨灰盆的地方, 墓地再弄很贵
-Y también con el lugar para poner las cenizas y el cementerio
+七哥最早说的吧
+Fui quien lo dijo al principio
 
-现在是把这一切再跟你收一遍税
-Ahora es volver a cobrar todos estos impuestos
+我说这个时候, 对我最大的攻击的人是谁
+En este momento, quién es el mayor enemigo para mi
 
-中国这个社会, 土地属于国家的
-En la sociedad de China, el terreno le pertenece al país
+全是体制内的高官
+Todos los altos funcionarios del sistema
 
-房地产是租赁的70年
-Los inmuebles se alquilan por 70 años
+说文贵, 你这个太离谱了
+Dijeron, Wengui, eres muy absurdo
 
-产权70年
-Derechos de propiedad durante 70 años
+想一想拿房地产税
+Si piensan cobrar impuestos sobre propiedades inmobiliarias
 
-房地产寿命平均30年
-La vida útil promedio de las propiedades inmobiliarias es de 30 años
+他说共产党都得倒台
+El Partido Comunista debe caerse
 
-你贷款(买)的房子是你平均工资, 58年才能交完的房租
-La casa que compraste por préstamo es según el promedio de tu salario, implica que debes terminar de pagarla por 58 años
+想一想征房地产税
+Si piensan en los impuestos inmobiliarios
 
-房地产是GDP的4倍到10倍
-La propiedad inmobiliaria es de 4 a 10 veces del producto interno bruto (PIB)
+他说中国人都得上街
+Él dijo que los chinos deben salir a las calles
 
-你拿房地产税, 这简直是比抢劫还夸张
-El impuesto inmobiliario que cobras, es realmente más exagerado que robar
+这是一个政治局委员
+Este fue un miembro del Politburó
 
-结果盖了个名, 戴了个帽子, 叫做共同富裕
-Como resultado, se obtiene un nombre y se le pone un sombrero llamado prosperidad en conjunto
+还有上海这个老领导跟我说的
+Y un líder de Shanghai que me lo dijeron
 
-这种愚蠢的事情也有人信呢
-Igualmente hay personas que creen en este tipo de asunto tan ridículo como este
+他说, 文贵这话就别再说了
+Dijo, Wengui no digas estas palabras
 
-你的国家, 你的土地, 你的空气
-Tu país, tu terreno, tu oxígeno
+这会让更多人攻击你, 让你成为笑话
+Esto puede causar que más personas te ataquen y te conviertas en un chiste
 
-他把地主给推翻了, 它成大地主了
-Él derrocó al propietario y se convirtió en un gran propietario
+前天也就是我那天, 就是咱们确定这个1111的时候
+Ante ayer, fue el día que decidimos lo que será el 11 de noviembre
 
-把地让你盖了房子
-Te dió el terreno para construir una casa
+在这个正兴奋之后
+Cuando todos estábamos muy contentos
 
-盖了30年就应该拆掉的房子
-Se construye una casa que debería ser demolida 30 años después
+老领导的家人给我发信息
+La familia del líder me mandó un mensaje
 
-70年的(土地)租赁权
-El arrendamiento de 70 años (terreno)
+能否方便通话
+Si podía hablar por teléfono
 
-商业才50年
-Si el comercio es solamente de 50 años
+其中有政泉的两套房子
+Dentro de eso había dos casas de Zhengquan
 
-现在让你交房地产税
-Ahora te dicen para pagar el impuesto inmobiliario
+他说, 有些东西要我帮忙
+Dijo, tenía algunas cosas que necesitaba de mi ayuda
 
-然后你生孩子呢, (计算房地产税时) 就减60平米
-Entonces, si tienes un bebé, (al calcular el impuesto sobre bienes inmuebles), se te reducirá en 60 metros cuadrados
+我说我跟政泉没有啥联系了
+Le respondí, ya casi no hablo con Zhengquan
 
-你不生孩子呢, 你就基本破产
-Si no tienes hijos, básicamente irás a la quiebra
+帮不上忙, 一个人都没有联系
+No le puedo ayudar, ya no hablo con ninguno de ellos
 
-然后电费, 水费
-Luego es el costo de la electricidad y el agua
+最后他说
+Finalmente, él dijo
 
-中国人连美国这个牛和马都不如
-Los chinos son inferiores al ganado y los caballos estadounidenses
+你说的房地产的这个纳税的事情
+Lo que dijiste de la tributación de propiedades inmobiliarias
 
-一个月60度电
-60 kWh por mes
+当时还说你
+En aquel momento no creía en ti
 
-人家美国是600度电
-En EE. UU son 600 kWh
+现在看, 说明你是对的
+Ahora que veo, tienes la razón
 
-然后要干掉美国征服世界
-Y quieren derribar al EE. UU para apoderarse del mundo
+我都忘了跟人家说过
+Yo ni me acuerdo que se lo dije a él
 
-然后我们最优越的体制
-Y luego nuestro sistema más superior
+后来我回了个信息
+Luego respondí el mensaje
 
-所以说现在你看共产党的房地产税有多荒唐
-Por eso, ahora ves lo absurdo que es el impuesto inmobiliario del Partido Comunista
+我说不是拿房地产税
+Le dije, no es cobrar los impuestos inmobiliarios
+共产党拿的是重新分配财富的权利
+Lo que toma el Partido Comunista es el poder de redistribuir la riqueza
 
-竟然有法国的一个在中国投资的(人)问我
-Alguien de Francia que invirtió en China me preguntó
+那么现在你看到国内一片宣传
+Ahora ves la publicidad que están haciendo en China
 
-欸, Miles这是不是说明共产党的经济很稳定
-Hey Miles, esto significa que la economía del Partido Comunista es muy estable
+说叫大家共同富裕
+Diciendo para que todos seamos ricos
 
-哎唷, 我说那么稳定, 你赶快去投资啊
-Ay, dije, si es tan estable entonces vaya a invertir
+以为拿了房地产税, 大家共同富裕
+Creen que, al cobrar los impuestos inmobiliarios, todos pueden ser ricos
 
-快去, 再投点儿
-Vaya, invierta más
+你说这个愚蠢到啥程度
+Miren lo estúpido que son
 
-中国给房地产征税的开始
-El comienzo de China con el cobro de impuestos inmobiliarios
+共产党拿完房地产税, 会让你家(孩子)上学不拿钱嘛
+El Partido Comunista luego de cobrar los impuestos inmobiliarios, ¿dejaría a tus hijos ir al colegio sin pagar?
 
-绝对是中共走向北朝鲜与人类文明的对决的开始
-Es absolutamente el inicio de la marcha del PCCh hacia Corea del Norte y el enfrentamiento entre la civilización humana
+会让你得了癌症
+Dejaría a ti con cáncer
+
+让你在医院里躺着享受高干待遇吗
+Y estar en el hospital ¿disfrutando el tratamiento de alto nivel?
+
+会让你信用卡免交钱吗
+¿No necesitas pagar la tarjeta de crédito?
+
+会让你免车贷吗
+O ¿conseguirás un préstamo de carro gratis?
+
+一样都不会(少), 只会越来越多
+Nada de esto serán menos, sino poco a poco aumentando
+
+就不会维稳了嘛, 只能是越来越维稳
+Ya no se mantendrá la estabilidad, sólo puede ser cada vez más estable
 
 ———————————————————
 
-**原视频网址：** [https://gettr.com/post/pfo7k8769b](https://gettr.com/post/pfo7k8769b)
+日期：11/03/2021
+原视频标题：共产党不是拿房地产税，拿的是重新分配财富的权力
+El Partido Comunista no cobra impuestos inmobiliarios, se toma el poder de redistribuir la riqueza
+原视频日期：10/27/2021
+原视频网址： https://gettr.com/post/pfodt90665
+任务编号：KC221(2739)
+视频时间段：0:00-2:03
 
-日期：11/04/2021
-原视频标题：中共开征房地产税是中共走向北朝鲜与人类文明对决的开始
-La recaudación del impuesto inmobiliario por parte del PCCh es el comienzo de la marcha del PCCh hacia Corea del Norte y el enfrentamiento entre la civilización humana
-原视频日期：10/31/2021
-任务编号：KC222(2740)
-视频时间段：0:00-2:02
-
-西听校: 洛杉矶盘古农场- 霙霙（文霙）
-翻译: 洛杉矶盘古农场- 小文萱
-翻译终校: 洛杉矶盘古农场- 霙霙（文霙）
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
 字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow

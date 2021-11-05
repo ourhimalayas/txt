@@ -2,42 +2,30 @@
 ---
 
 
-## 美军表态有能力保卫台湾，中共警告不要干涉台湾问题
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1640001/)
+## 秘翻在线 :中共企图引发太空的珍珠岛事件?
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1640183/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+撰稿：William
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/台湾.png)
+校对：牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/11/p-scaled.jpg)
+图片:网路
 
+**中共”实践21号”是卫星粉碎机**
 
+根据《零对冲》(Zero Hedge) 的报导,10 月 24 日，中共将”实践21号”卫星送入轨道。中共国航天科技集团公司宣称此次任务是为了减轻和消除太空碎片。”实践21号”有一个机械手臂，可以用来移动超过1亿片漂浮在地球周围的太空垃圾，但同时也可捕获、禁用、摧毁或以其他方式使其他国家的卫星无法使用，因此”实践21号”是名副其实的卫星粉碎机(satellite crusher)。
 
-图片来源： REUTERS/Tyrone Siu
+《胜利空间：美国如何保持超级大国》一书的作者布兰登•魏彻特(Brandon Weichert)告诉盖特斯通研究所(Gatestone)，中共国发射卫星到地球的同步轨道，同步轨道是美国最敏感的卫星系统关键位置，其中包括核战指挥、通信和控制（NC3）、监视和军事通信。
 
+美国地球同步轨道上的卫星远离地球，既昂贵又难以更换，”如果失去任何的这些卫星系统，眼前并没有足以替代品，这将使得中共国军队在爆发战争行动时占尽先机。”
 
-#### 编译：小红帽
+**太空争霸战正在开始**
 
-在美国参谋长联席会议主席马克·米利（Mark Milley）表示他的军队有能力保卫台湾对抗北京当局之后，中国外交部对美国进行了回击，要求华盛顿当局不要干涉台湾问题。
+魏彻特指出，中共正在规划一个太空珍珠港事件。幸运的是，美国还有伊隆•马斯克。他的 SpaceX 正在低地球轨道上建造 Starlink 电信卫星星座。完工之后，一旦中共国粉碎、激光、击落或冲撞美国在太空的军事轨道，将会有大约42，000颗卫星供美军使用。
 
-周四，中国外交部发言人汪文斌在每日新闻发布会上发表讲话，要求美国停止对台湾发表可能助长“分裂主义势力嚣张气焰”的言论。
+太空是全世界最终的战略高地，关乎地球的控制权。邪恶的中共企图掌握至高权 ，然而从中共内部的经济崩盘、乃至外太空的争霸战，中共完全没有赢面，只能是彻头彻尾的输家。
 
-“任何人都不能低估中国捍卫国家主权和领土完整的坚定决心和意志。我们绝不允许任何人、任何势力以任何方式将台湾从祖国的怀抱中分裂出去。”
-
-汪文斌呼吁美方尊重一个中国政策，履行中美联合公报对北京当局的承诺，并表示应谨慎妥善处理涉台问题。
-
-米利在阿斯彭安全论坛（Aspen Security Forum）上发表讲话说，美军“绝对有能力”从中共国手中保卫台湾，并补充说“这一点毫无疑问”。
-
-米利将军还表示，他不相信中共国会在短期内入侵台湾。然而，北京当局“显然”正在建立军事能力，以便其未来的领导人有这个选择。
-
-**参考新闻：**[China tells US to back down after explosive Taiwan comment — RT World News](https://www.rt.com/news/539367-china-taiwan-us-military-milley/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[China’s “Satellite Crusher”: Space Pearl Harbor Is Coming](http://China's%20&quot;Satellite%20Crusher&quot;:%20Space%20Pearl%20Harbor%20Is%20Coming)
 
  
 

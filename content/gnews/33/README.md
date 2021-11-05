@@ -2,57 +2,34 @@
 ---
 
 
-## 通货膨胀、工资增长，挑战美联储“过渡性”通胀的说法
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1639646/)
+## 俄亥俄州共和党人提出法案以禁止任何堕胎想法
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1639848/)
 
-【评语：】*美国联邦储备委员会11月3日宣布，将从11月晚些时候起逐月减少150亿美元资产购买规模，并视情况调整购债速度，以降低对市场的刺激力度。同时，美联储维持联邦基金利率目标区间在零至0.25%之间。美联储正式开始拧紧水龙头，预计在明年6月份结束放水。*
+翻译：西班牙喜悦农场–wenwu
 
-据《路透社》作者：Howard Schneider，2021年11月1日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-62-e1636058817613.png)图为2018年8月22日，美国华盛顿特区的美联储大楼。图片来源：路透社/Chris Wattie
-《路透社》华盛顿11月1日 —— 物价和工资增长达到数十年来的高点，本周可能会让美联储官员面临挑战，因为他们试图保持平衡，一方面确保通货膨胀得到控制；另一方面希望经济恢复有尽可能多的时间，恢复自大流行以来失去的工作岗位。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/236341121-810x500-1.png)耶拿鲍威尔 / https://ohiohouse.gov/
 
-周一，投资者继续增加他们的预期，即高企和持续的通货膨胀将迫使美联储比政策制定者预测的更早和更快地提高利率。根据CME集团FedWatch的数据，联邦基金期货合约现在意味着明年将有三次0.25％的加息，而截至上周末该预期是两次。
+当最高法院[审理](https://www.lifesitenews.com/news/breaking-supreme-court-hearing-arguments-in-texas-heartbeat-law-cases/)对德克萨斯州“[心跳法案](https://www.l/)”的[挑战时](https://www.lifesitenews.com/news/breaking-supreme-court-hearing-arguments-in-texas-heartbeat-law-cases/)，俄亥俄州共和党人提出了一项法案，该[法案](https://www.l/)比德克萨斯州的法律更进一步禁止几乎所有的堕胎，也就是说无论是胎儿在心脏活动或女性妊娠时间，皆为非法的。
 
-同时，采购经理们认为价格压力继续增加，随着制造业企业承担更高的投入成本，供应管理协会的价格指数大幅上升。
+周二（2日），俄亥俄州共和党议员[提出了](https://www.cincinnati.com/story/news/politics/2021/11/02/ohio-gop-lawmakers-introduce-abortion-ban)[众议院第 480 号法案](https://ohiohouse.gov/legislation/134/hb480)，该[法案](https://ohiohouse.gov/legislation/134/hb480)将 “未出生的孩子”定义为“从受精到活产”的个体。该立法将禁止堕胎，规定该州任何人管理、采购或出售”以终止妇女的妊娠为目的的任何仪器、药品、药物或任何其他物质、设备或手段，以及知道了通过任何这些手段并有合理的可能性下导致未出生的孩子死亡”，即为犯罪。
 
-高盛(Goldman Sachs)的经济学家表示，尽管决策者倾向于在加息方面保持耐心，但他们暂缓加息的窗口可能正在缩小，他们将成为最新的提前加息的呼吁人，将加息提前一整年至2022年7月。
+HB 480（众议院480法案）得到[超过一半的俄亥俄州众议院共和党人的](https://www.cleveland.com/open/2021/11/ohio-gop-lawmakers-introduce-texas-style-abortion-ban-bill.html)支持，由共和党州代表 Jena Powell 和 Thomas Hall 以及 33 位共和党人，共同提案人提出。
 
-**高盛经济学家Jan Hatzius和其他人写道，他们预计，以密切监测的核心个人消费支出价格指数衡量的通胀率仍将高于3% —— 这是自20世纪90年代初以来未见的通胀率，而且远远高于美联储2%的目标。**
+[众议员鲍威尔（Powell）在一份声明中说：](https://www.cleveland.com/open/2021/11/ohio-gop-lawmakers-introduce-texas-style-abortion-ban-bill.html) “必须在俄亥俄州保护出生和未出生的人类生命的神圣性，”并补充说该法案，也称为 2363 法案（[估计在美国每天有 2363 名儿童因堕胎而丧生）](https://2363.org/) )，是“关于保护我们出生和生活的基本宪法权利。堕胎会杀死儿童、伤害家庭并伤害妇女。我们可以，而且必须做得更好。”
 
-就业市场的各个方面，特别是劳动力参与率，不太可能恢复到大流行前的水平，而且似乎仍未达到美联储承诺在加息前恢复的“最大就业”的目标。
+在会议厅，鲍威尔[确认](https://www.nationalreview.com/news/ohio-legislature-introduces-texas-style-pro-life-bill-empowering-private-citizens-to-sue-abortion-pr) HB 480 有意类似于德克萨斯州的亲生命法（pro-life law），并指出俄亥俄州的法案“利用了成功的德克萨斯心跳法案中的执行机制”，该法案授权公民个人对除怀孕母亲以外的任何协助堕胎的人提起民事诉讼，要求赔偿一万美元或以上。
 
-他们写道，“自（联邦公开市场委员会）上次在9月开会以来，失业率进一步下降，平均时薪和就业成本指数都出现了强劲的增长，通胀率仍然很高。”这挑战美联储的说法，即通胀将自行过去，不需要使用加息来收紧信贷条件和减缓企业和家庭购买。
+与德克萨斯州的法律相比，俄亥俄州的法案更进一步，它禁止在检测到胎儿的心跳后—通常是在怀孕六周左右–进行堕胎，该法案将禁止在怀孕期间的任何时间进行堕胎。
 
-**崩溃的时间表**
+该法案还明确禁止化学堕胎，堵住了在中共病毒（COVID-19）[大流行](https://www.lifesitenews.com/opinion/using-the-abortion-pill-turns-a-womans-own-home-into-an-abortion-mill/)期间[越来越受欢迎的](https://www.lifesitenews.com/opinion/using-the-abortion-pill-turns-a-womans-own-home-into-an-abortion-mill/)选择，因为有医生向准妈妈邮寄了堕胎药物，约占目前[美国堕胎案件的 40%](https://www.guttmacher.org/fact-sheet/induced-abortion-united-states)。
 
-美联储本周召开会议，并将于周三下午2点（格林威治标准时间18:00）发布新的政策声明，随后美联储主席鲍威尔将于下午2点30分（格林威治标准时间18:30）召开新闻发布会。官员们预计将批准缩减目前每月1200亿美元的债券购买计划，到明年年中将完全停止购买 —— 这是脱离2021年初为应对大流行病带来的经济影响而出台的核心政策的第一步。
+**新闻来源：**[lifesitenews.com] [Ohio Republicans introduce bill to effectively ban all abortions following Texas Heartbeat Act](https://www.lifesitenews.com/news/ohio-republicans-introduce-bill-to-effectively-ban-all-abortions-following-texas-heartbeat-act/?utm_source=featured&amp;utm_campaign=usa) | 发布时间：2021年11月4日
 
-当时，政策制定者认为他们将有充足的时间来最终逐步取消债券购买，而且通货膨胀的风险很小。即使在今年早些时候物价开始加速上涨时，美联储官员也争辩说，通胀高增长速度将被证明是“过渡性的”，不会让他们急于加息。
+* * *
 
-**然而，这个时间表可能会崩溃。**
+*发稿：信心的选择*
 
-根据CME集团的数据，联邦基金期货合约的交易现在意味着美联储在明年6月加息的概率超过65%，就在缩表预期结束时。第二次加息预计在9月，第三次在12月。一个月前，利率市场指标显示，最早在6月加息的可能性不到20%，明年加息两次的可能性相对来说可以忽略不计。
-
-谈到通货膨胀，这可能是一个令人困惑的时刻。起初被指责为预期的暂时性供应中断和在某些情况下变得难以找到的商品的消费支出激增，但价格上涨的速度仍然比预期的要高。
-
-预计明年商品通胀不仅会缓解，而且实际上会在一轮价格下跌中逆转。但服务成本预计将弥补差额，特别是如果最近员工薪酬的跳升被证明是持续的现象。
-
-工资和福利的增加将给中央银行带来一个特别的挑战，即确定雇员获得更好的报酬是因为生产力在提高，还是因为就业市场和可用工人的数量因大流行病而失去了同步性。
-
-**其中一个将被视为积极的发展；另一个则可能会使通胀风险进一步上升。**
-
-Evercore ISI副主席Krishna Guha写道：“所有这些都让鲍威尔在 11 月的会议上可能处境艰难，这个可能性比几周前看起来要大得多。”因为他试图在委员会中使那些准备明年加息的人和那些准备表现出更大耐心的人之间大致达成一种平衡。
-
-他写道：“这一切都不能证明过渡性理论最终是错误的，但相信过度通胀将可能被证明是过渡性的测试并不成熟。”
-
-文章来源[： https://www.reuters.com/business/inflation-wage-data-challenge-fed-transitory-narrative-2021-11-01/](https://www.reuters.com/business/inflation-wage-data-challenge-fed-transitory-narrative-2021-11-01/)
-
-（本文评论仅代表个人观点） 翻译/评论：洛杉矶盘古农场 – Mike Li
-校对/编辑：洛杉矶盘古农场 – 明子
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
 
  
 
