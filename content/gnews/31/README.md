@@ -2,70 +2,30 @@
 ---
 
 
-## 中共病毒及其疫苗全球超限战中的典型案例（十四）
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1640200/)
+## 共和党州政府官员反对雇主的强制疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1640216/)
 
-作者：香草山信息部 6zero4
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-6.png)
+图片来源：网络截图
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36.png)
+据美联社阿肯色州小石城（LITTLE ROCK）10月5日报道，共和党官员周四对总统拜登最新要求私营企业员工接种中共病毒疫苗的详细规定作出了迅速的谴责回应。威胁要采取一系列诉讼和其他行动来阻止这一强制要求，他们认为这是政府过度扩张的赤裸裸的例子。
 
+至少有两个保守派团体迅速采取行动，对工作场所的强制安全提起诉讼，越来越多的共和党州长和总检察长表示，最快在周五就会有更多诉讼。一些共和党领导的州，如得克萨斯州，阿肯色州已经通过了法律或行政命令，旨在保护那些可能不想遵守的雇主。
 
+共和党人南卡罗来纳州总检察长艾伦·威尔逊(Alan Wilson)周四通过发言人说“这项规定是垃圾，它是违宪的，我们将与之斗争。”
 
-**纽约一家大型医疗保健系统解雇了1400名未接种疫苗的员工**
+自从拜登在9月份预告这一要求以来，各州一直在为这一要求做准备。周四发布的职业安全与健康管理规定要求拥有100名或更多员工的公司在1月4日前接种疫苗，或每周进行测试。如果不遵守规定，可能会导致每项违规行为受到近14,000美元的处罚。联邦官员还留下了将这一规定扩大到小型雇主的可能性。
 
-员工分布在纽约市、韦斯特切斯特和长岛地区的大型医疗系统诺斯韦尔健康公司（Northwell Health）2021年10月5日发布声明表示，占该公司2%的 1400名员工因为拒绝接种COVID-19疫苗已被解雇，至此该公司下属所有23家医院的在职工作人员已经100%接种了疫苗。另外，因拒绝接种疫苗而被解雇的员工还无法享受退休计划等福利。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-66.png)
-诺斯维尔公司表示对在这种情况下失去任何员工都感到遗憾，但作为该州最大的医疗保健提供商，拥有一支全面接种疫苗的工作队伍是保护员工、患者和我们所服务社区的健康和安全职责的重要措施，以能够在我们所有的医疗设施中提供持续的特殊护理并确保其全面运行。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-67.png)
-注册护士特林奇诺（John Trinchino）上周被诺斯韦尔的斯塔顿岛大学医院（Staten Island University Hospital）解雇了。他因已从COVID-19病毒感染中康复而对强制接种疫苗感到厌恶，称这侵犯了人们的自由。纽约Riverhead市诺斯韦尔医院的护理技师Karen Roses则表示，她知道拒绝接种疫苗意味着失去工作，但她不会因为任何原因受到任何人的霸凌，并称这不是反对疫苗，而是选择自由。
+阿拉巴马州、亚利桑那州、阿肯色州、佛罗里达州、爱达荷州、印第安纳州、爱荷华州、路易斯安那州、密苏里州、蒙大拿州、内布拉斯加州、新罕布什尔州、俄克拉荷马州和南达科他州的共和党州长或总检察长周四表示，他们最快将于周五对这项任务提起诉讼。保守派媒体公司The Daily Wire周四向联邦法院提出挑战。一家支持保守派的律师事务所代表的密歇根州和俄亥俄州的公司也是如此。
 
-**瑞典、丹麦因潜在的心脏炎症和其他副作用而禁止使用****Moderna****疫苗**
+印第安纳州州长埃里克·霍尔科姆在一份声明中表示联邦政府的这种做法是前所未有的，将给供应链和劳动力带来有害的、意想不到的后果。
 
-2021年10月6日，瑞典公共卫生局发布了一份声明表示，基于一项针对30岁及以下的人的研究，发现Moderna疫苗有副作用增加的风险，更易引起心肌炎和心包炎等危险心脏炎症，因此出于谨慎考虑，决定禁止对所有1991年及以后出生的人使用Moderna的Spikevax疫苗。几小时后，丹麦卫生当局也加入了瑞典的行列，暂停对18岁及以下的年轻人使用Moderna疫苗。这一消息使得Moderna的股价在盘前交易中进一步下跌。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-68.png)
-但瑞典卫生机构并没有限制所有mRNA新冠疫苗的使用，而是推荐用辉瑞疫苗替代Moderna疫苗给这个年龄段的人接种。今年5月，欧盟药品监管机构（EMA）首次批准了辉瑞疫苗针对年轻人的疫苗接种，随后在7月批准了Moderna疫苗针对12岁以上儿童的疫苗接种。相较于福奇等美国顶级公共卫生官员以及他们的大型制药公司盟友继续推动对越来越年轻的人强制接种新冠疫苗，并可能很快推广到6个月大的婴儿进行疫苗接种的情况，EMA和欧盟各国卫生当局在批准疫苗方面比美国同行要谨慎得多，并实施了更多与年龄有关的限制。
+来自共和党人和保守派团体对工作场所授权的挑战预计将是基础广泛且迅速的，反映了中共病毒疫苗对策已经陷入了党派分歧。在周四宣布OSHA的规则后，民主党州长和总检察长们相对安静。
 
-**澳大利亚人被强制要求向警方提供可追踪地理位置的自拍，以证明自己正在进行隔离**
+所有26个共和党州的总检察长此前都表示，他们将反对这些要求，他们中的大多数人都签署了一封给拜登的信，质疑OSHA是否有法律权力要求注射疫苗或病毒测试。
 
-据2021年10月6日零对冲报道，澳大利亚当局在最新一轮的COVID-19疫情爆发期间，要求其公民在卫生工作人员随机打来电话后的5分钟内，必须发送一张向警方提供地理位置追踪的居家自拍照片，以证明自己待在家里进行居家隔离。如果没有及时回应，卫生部门工作人员和警方就会出现在他们面前进行当面惩罚。此举自今天开始在新南威尔士州和维多利亚州试行。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-69.png)
-澳大利亚此举使用的就是面部识别技术，是之前英国曾经建议使用的东西，但由于英国担心侵犯公民隐私而最终放弃执行了。这是澳大利亚确凿的侵犯公民隐私的政府监视令，再次突显出澳大利亚当局朝着专制的方向越走越远。
-
-**加拿大公布对旅行人员和联邦雇员的疫苗强制接种令**
-
-据10月6日零对冲报道，加拿大总理特鲁多（Justin Trudeau）在上个月的仓促联邦选举中以微弱优势连任后，决定利用手中的一切政治资本，在疫苗接种率停滞不前的加拿大推出疫苗强制接种令。特鲁多政府要求所有公务员要么接种疫苗，要么无薪休假，包括核心公共行政部门的所有联邦雇员和加拿大皇家骑警，他们将被要求签署一份“认证”表格，保证自己已经接种了疫苗，随时接受管理人员对其疫苗接种状态的“审计”，并提供疫苗接种证明。
-
-包括清洁人员在内的联邦承包商必须接种疫苗才能进入政府大楼开展工作，特鲁多政府还要求联邦监管的航空、铁路和海洋运输部门的所有员工必须为他们的员工建立有效的疫苗接种政策，并有几周时间申请宗教或医疗豁免，否则将被迫在疫苗接种或失业之间做出选择。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-70.png)
-另外，10月30日之后，所有乘坐飞机、火车或船舶年满12岁以上的旅客都将被要求疫苗接种，需在登上公共交通工具前申报自己的疫苗接种状况并提供证明文件。在11月30日之前，将有一个短暂的过渡期，即对于正在接种疫苗的旅行人员，如果他们能在旅行中的72小时内出示有效的COVID-19病毒检测结果也可放行。
-
-未接种疫苗的联邦雇员和联邦承包商工作人员，甚至不允许在家工作，将被处以行政放假，并停止支付工资，而且没有资格享受就业保险福利。
-
-特鲁多在一份声明中还吹嘘说，加拿大对未接种疫苗的人的旅行限制措施是世界上最严格、最强有力的，并称现在不是采取折中措施的时候。
-
-图片和新闻源于:
-
-[https://www.zerohedge.com/political/large-new-york-health-care-system-fires-1400-unvaccinated-workers](https://www.zerohedge.com/political/large-new-york-health-care-system-fires-1400-unvaccinated-workers)
-
-[https://www.zerohedge.com/covid-19/sweden-denmark-restrict-use-moderna-jab-over-risk-heart-inflammation-other-side-effects](https://www.zerohedge.com/covid-19/sweden-denmark-restrict-use-moderna-jab-over-risk-heart-inflammation-other-side-effects)
-
-[https://www.zerohedge.com/covid-19/australians-being-mandated-provide-police-geo-trackable-selfies-prove-theyre-quarantininghttps://www.zerohedge.com/geopolitical/canada-unveils-vaccine-mandate-travelers-federal-employees](https://www.zerohedge.com/covid-19/australians-being-mandated-provide-police-geo-trackable-selfies-prove-theyre-quarantininghttps://www.zerohedge.com/geopolitical/canada-unveils-vaccine-mandate-travelers-federal-employees)
-
-审核/上传： 浪迹天涯
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+新闻来源：[GOP state officials push back on employer vaccine mandate](https://apnews.com/article/covid-states-suing-employer-vaccine-mandates-f4300ed015ed716a1054949cf199a25a)
 
  
 

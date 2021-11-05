@@ -2,22 +2,20 @@
 ---
 
 
-## 雅典娜时报-第103期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1640301/)
+## 
+` 加拿大扬帆农场多伦多Gnews组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1640359/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+* * *
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/11/b25eb833813c79f0.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/1-17.png)
-***发布：小红帽***
+更多加拿大杨帆农场的频道，请关注：
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+- [GTV: 加拿大扬帆农场多伦多频道](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
+- [GTV: 加拿大扬帆农场多伦多蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
+- [GTV: 加拿大扬帆农场多伦多枫叶财经](https://gtv.org/user/5f359954313eaf1e3716cfc1)
+- [喜马拉雅加拿大杨帆农场discord](https://discord.com/invite/BUDfsdPjJA)
+- [GETTR: 加拿大扬帆农场多伦多频道](https://gettr.com/user/torontofarmcn)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Canada_MPL_banner.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

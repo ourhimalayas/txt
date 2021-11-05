@@ -2,40 +2,30 @@
 ---
 
 
-## 不管喜币上市还是任何事情我们永远不会依靠外国人
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1640225/)
+## 11/5/2021中日财经爆：中共股市骗局，富祥药业一天蒸发23亿
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640260/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9-7_副本.jpg)
-据[2021年11月03 日 文贵大直播：彭帅爆张高丽丑闻，再次验证爆料革命的真实性；喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产；房地产税会灭国灭党；共和党在弗吉尼亚州长竞选获胜意味着什么](https://gtv.org/video/id=61827dfd11d186296800dd83)时间点1：15：36——
+#### 撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/sz300497.jpg)[图片来源](https://finance.sina.com.cn/stock/s/2021-11-04/doc-iktzqtyu5420478.shtml)
+11月4日，[富祥药业](https://finance.sina.com.cn/realstock/company/sz300497/nc.shtml)早盘小幅高开，上午10点左右其股价有一波拉升，一度涨幅达4.91%，不过午后，该股股价开始一路走低，最后1小时交易时段，股价更是加速“跳水”，截至当日收盘，富祥药业报17.45元，跌幅19.21%，全天成交16.48亿元，换手率高达18.58%。一天23亿市值蒸发。
 
-**郭文贵先生：**刚才你说到我们这个币，那天开始的时候，天下就那么下，下边就猜，啊，谁来了，你看主会场的后边摆着香槟，下面一片猜的谁呀？——蓬皮奥，猜皮特.纳瓦罗的，猜班农的。我很不高兴，为什么中国人这么大事一定要请外国人来？他来了能给你带来啥呀？他不会给我们带来一分钱，只能我们给他们钱，他会给我们带来合作，但是我们不能依靠他们，就是今天也不会依靠他们，永远不会依靠他们，我们中国人咋就这么贱呢！
+**值得注意的是，今日最高价格买入的投资者，跌幅高达23%。**
 
-所以当时你知道非常有意思，就是孙俊平的我们之间一个好哥们，他也是咱战友，现在绝对在电视机前面呢，现在是广州市里边的一个政协的高官，给我发信息——七哥为啥咱们战友这么贱呢？非要希望外国人来，就没有一个希望中国人来的。咱中国人啥时候你有好事，别老想着外国人行不行？不是外国的月亮都是圆的！
+股吧里，网友也是懵了。
 
-（以下暂略）
+有网友表示，突然注意，大家都有好多疑问对吧？
 
-撰稿：喜马拉雅的肉夹馍；
+也有网友表示：“来时好好的，回不去了，谁能告诉我今天经历了什么？”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-16.png)
+也有投资者表示：“一天亏22个点”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-9.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-6.png)
+信息来源：
 
-审核：喜马拉雅的馍夹肉；
+[尾盘闪崩！23亿市值蒸发，2.1万股东懵了！网友炸锅：1天亏22个点，还有人表示亏13万，发生了什么？](https://finance.sina.com.cn/stock/s/2021-11-04/doc-iktzqtyu5420478.shtml)
 
-校对：Maarago；
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

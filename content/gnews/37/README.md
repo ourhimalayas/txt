@@ -2,23 +2,23 @@
 ---
 
 
-## DWAC股票连日暴跌，格芯股价累计涨幅近30％
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640168/)
+## 巴西禁止雇主解雇未接种疫苗的工人
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640169/)
 
-作者：英国喜庄园 – I770775
+作者：纽约香草山信息部 – 诺雅
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-根据相关网站的数据，与川普媒体相关的DWAC股票，股价跌幅逐日上升。11月2日，该股盘中跌幅一度达13％。截至11月3日收盘，其股票市值仅相当于最高点时的约40％，投资者损失惨重。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture300.jpg)
-而半导体巨头格芯，自上市以来，股票持续大涨。11月的第一个交易日，受美股半导体板块走强的影响，格芯股价在上一交易日大涨超5％的基础上，盘前狂拉13％以上，连续两日涨幅超20％。11月3日，格芯股价继续大涨4.57％，以59美元的整数值收盘，公司市值比IPO估值高出25％以上。据悉，格芯公司的产能利用率已经超过100％，公司2023年底的圆晶产能都已售罄。
+11月1日，巴西劳工部长洛伦佐尼签署了一项反对疫苗强制的新法令，禁止雇主在聘用或维持雇佣关系时，要求提供冠状病毒疫苗接种证明。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture600.jpg)
+洛伦佐尼表示，这项法令只有一个目标：维护自由权，保证数百万巴西人的工作和工作机会。所有公司必须尊重巴西的法律和巴西公民的权利，禁止任何因为拒绝接种疫苗而遭到解雇的行为。
 
-参考链接：
-1. [DWAC股票连日暴跌，格芯股价累计涨幅近30％](https://m.10jqka.com.cn/20211022/c633574978.shtml?client_userid=F12p1&amp;share_hxapp=gsc&amp;share_action=&amp;back_source=qqhy)
-2. [DWAC股票连日暴跌，格芯股价累计涨幅近30％](http://wap.stockstar.com/detail/SS2021110200001543)
+据悉，根据新法令，雇主可以制定冠状病毒指南，但不能以未接种疫苗为由解雇员工，如果雇主已经解雇了他们，则可以选择让工人复职，或给他们支付缺勤期间的双倍报酬。
+
+参考链接：[巴西禁止雇主解雇未接种疫苗的工人](https://www.breitbart.com/latin-america/2021/11/03/brazil-bans-employers-from-firing-unvaccinated-workers/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 总编：飞虹
-编辑：飞虹
+编辑：雪梨
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

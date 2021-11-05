@@ -2,23 +2,25 @@
 ---
 
 
-## 巴西禁止雇主解雇未接种疫苗的工人
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640169/)
+## 疫苗灾难恐将到来
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640170/)
 
-作者：纽约香草山信息部 – 诺雅
+作者：纽约香草山农场 – 蓝天大海
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月1日，巴西劳工部长洛伦佐尼签署了一项反对疫苗强制的新法令，禁止雇主在聘用或维持雇佣关系时，要求提供冠状病毒疫苗接种证明。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture600.jpg)
-洛伦佐尼表示，这项法令只有一个目标：维护自由权，保证数百万巴西人的工作和工作机会。所有公司必须尊重巴西的法律和巴西公民的权利，禁止任何因为拒绝接种疫苗而遭到解雇的行为。
+据《重要新闻》11月2日报道，美国各地医院的急诊室及病房人满为患，但这些病人都不是新冠病毒感染者。
 
-据悉，根据新法令，雇主可以制定冠状病毒指南，但不能以未接种疫苗为由解雇员工，如果雇主已经解雇了他们，则可以选择让工人复职，或给他们支付缺勤期间的双倍报酬。
+病患的严重程度和范围很广泛，包括腹痛、呼吸系统问题、血栓、心脏病等。更为严重的是，血栓和心脏病病例中有大量年轻人，年轻死亡病例也有很多。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture500.jpg)
+记者写到，上周六，宾夕法尼亚州的一名高中生因“突发心脏病”而死亡；在同一州，一名健康的12岁男孩也死于心脏病；上周末，巴塞罗那前锋塞尔吉奥·阿奎罗在比赛中突然倒地，被诊断出心律失常；两天后，冰岛中场球员埃米尔·帕尔松在比赛中心脏骤停，导致挪威乙级联赛的一场足球比赛于周一暂停。
 
-参考链接：[巴西禁止雇主解雇未接种疫苗的工人](https://www.breitbart.com/latin-america/2021/11/03/brazil-bans-employers-from-firing-unvaccinated-workers/)
+《零对冲》11月3日转载了这篇文章，短短5小时就有两千三百多条评论，很多人认为这些后果是由疫苗造成。疫苗灾难正在走来，绝不是危言耸听！
+
+参考链接：[疫苗灾难恐将到来](https://www.zerohedge.com/medical/something-really-strange-happening-hospitals-all-over-america)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：飞虹
-编辑：雪梨
+总编：雪梨
+编辑：DM
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
