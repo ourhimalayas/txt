@@ -2,43 +2,31 @@
 ---
 
 
-## 有声|历史上的11月1日
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1641998/)
+## 卡森医生（Ben Carson ）揭示为什么孩子 “绝对不” 应该接种 COVID 疫苗——“巨大的实验”
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1642115/)
 
-作者：香草山教育部 – 蒙古鸿雁
+翻译：真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-05-123537-edited.png)图片来源：网络
+来自网络媒体(RED VOICE MEDIA) 星期四十一月4日的新闻报道：约翰霍普金斯儿童中心前外科医生本卡森博士本周发表讲话，警告儿童“绝对不要”接种 COVID-19 疫苗，因为乔拜登为他们接种疫苗的努力是一项“巨大的实验”。 卡森继续警告说，没有足够的数据来确定疫苗造成的长期风险。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+“当我们知道疾病对他们的风险相对较小，但我们不知道未来的风险是什么时，我们是否想让我们的孩子处于危险之中？ 我们为什么要做这样的事情？ 这毫无意义，”卡森告诉福克斯新闻。
 
-郭文贵先生在27日的大直播中说，11月1日是一个符合五行的福满之日。历史上的11月1日，也曾经发生过不少开天辟地影响世界的大事
+当直接询问儿童是否应该接种疫苗时，卡森回答说“绝对不应该”，并补充说“儿童患COVID-19的死亡率为 0.025，与季节性流感的死亡率非常相似。”
 
-1512年，意大利文艺复兴画家米开朗基罗在西斯廷礼拜堂完成绘制天顶壁画《创世纪》。
+“而且我们多年来一直没有经历过季节性流感的所有这些事情，”他说，并引用了表明自然免疫“非常、非常有效”的研究。
 
-1520年，麥哲倫在環遊世界航行中，发现南美连接太平洋和大西洋的通道，将其命名为麦哲伦海峡。
+“你看看克利夫兰诊所的研究，他们有 1,300 名以前被感染的医护人员，没有人再次感染，”他说。 “所以，我知道 CDC 正在提出他们的建议，并试图以他们的方式扭转局面。但我们应该查看所有数据。”
 
-1688年，光荣革命期间，奥兰治亲王威廉从荷兰海勒富茨勒伊斯出发，应邀前往英国从詹姆斯二世手中夺取王位。
+在此之前，疾病控制与预防中心的独立顾问小组一致投票推荐辉瑞-BioNTech 的 COVID-19 疫苗接种两剂系列，用于 5 至 11 岁的儿童。乔·拜登总统周三对此表示庆祝，称其为“进一步加快我们摆脱这种流行病的道路向前迈出的一大步”。当然，他没有提供任何证据来支持疫苗对儿童“安全有效”，因为没有证据表明它将如何影响他们。
 
-1800年，约翰·亚当斯成为美国历史上首位住进白宫的总统。
+**注：**本杰明·所罗门·卡森 (Benjamin Solomon Carson Sr.，1951 年 9 月 18 日出生) 是美国退休的神经外科医生和政治家，曾于 2017 年至 2021 年担任第 17 任美国住房和城市发展部长。他是 2016 年美国总统候选人 共和党初选。 他被认为是神经外科领域的先驱。非常成就卓著的黑人。** **
 
-1928年，國民政府成立中央银行，宋子文出任首任总裁。日后这成了中国银行的诞生日
+原文链接：[https://www.redvoicemedia.com/2021/11/dr-ben-carson-reveals-why-kids-should-absolutely-not-get-covid-vaccine-giant-experiment/?utm\_source=home-headline-stories](https://www.redvoicemedia.com/2021/11/dr-ben-carson-reveals-why-kids-should-absolutely-not-get-covid-vaccine-giant-experiment/?utm_source=home-headline-stories)
 
-1952年，美國进行第一颗氢弹试验。
+编辑/发布：LILY
 
-1993年，《马斯特里赫特条约》生效，欧洲联盟正式成立。
-
-人类历史上即将迎来又一个开天辟地的11月1日
-
-文字版原文：[历史上的11月1日](https://gnews.org/zh-hans/1637746/)
-
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+20211105
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 
 
  

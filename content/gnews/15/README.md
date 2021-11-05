@@ -2,27 +2,23 @@
 ---
 
 
-## 维加诺主教再发公开信反对疫苗接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641871/)
+## 参议院兰德-保罗呼吁福奇辞职
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641961/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山 – AlexZ
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月2日，相关消息显示，大主教卡洛·维加诺致函美国红衣主教协会会长，要求停止新冠疫苗的接种。
+11月4日，美国参议员兰德·保罗在关于持续大流行的参议院听证会上呼吁福奇辞职。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide10-4.jpeg)
 
-维加诺主教认为，新冠疫苗在研发过程中没有经过严格的安全测试，在全球范围内施打这种疫苗等于用实验药物在人类身上做试验。
+有媒体认为，福奇“变种病毒”是当今美国健康的最大威胁。为此，保罗强调，过去一年中，他对福奇的评估100%正确。保罗提到，福奇此前坚称对“功能增强”实验不知情，但事实却是，该实验得到来自NIH的资助，且为了掩盖这一事实，福奇甚至更改了NIH官方网站上对“功能增强”的定义。
 
-再者，主教表示，目前已经基本确认，新冠病毒疫苗既不能帮助人体免疫新冠病毒，也不能阻止病毒的传染，相反，疫苗还有严重的副作用。过去9个月中，新冠疫苗造成的死亡人数比其他所有疫苗在过去30年内造成的还多。
+保罗表示，大量证据表明，新冠病毒来自实验室，福奇的所作所为全然是对自身罪行的掩盖。
 
-主教还提及，已经被证实的有效治疗药物被美国以及欧洲的医疗主管机构阻止使用。为此，主教谴责了大重启计划，同时斥责教皇方济各犯下“反人类罪”，实行“对抗上帝的撒旦之举”。
-
-参考链接: [Archbishop Viganò Writes Stunning Letter On Vaccine Program](https://www.zerohedge.com/covid-19/archbishop-vigano-writes-stunning-letter-vaccine-program)
-
+参考链接: [Sen. Rand Paul Calls on Dr. Fauci to Resign: “What You’ve Done Is Change the Definition on Your Website to Try and Cover Your Ass” (VIDEO)](https://www.thegatewaypundit.com/2021/11/sen-rand-paul-calls-dr-fauci-resign-done-change-definition-website-try-cover-ass-video/)
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
-
 总编：Irene木木
-编辑：Kathy文艺
+编辑：Irene木木
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

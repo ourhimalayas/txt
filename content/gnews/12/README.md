@@ -2,35 +2,20 @@
 ---
 
 
-## 布朗参议员和同僚挑战新冠疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641912/)
+## 文贵爆料 5/11: 疫苗下的中共国婴儿——那一刻出生，那一刻死去
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1642032/)
 
-作者：MOS – 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月3日，来自印第安纳州的共和党参议员布劳恩，带领其他40位共和党议员正在挑战美国政府即将对私营企业实行的新冠疫苗强制接种令。
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-4.jpg)
+疫苗如同一只无形之手牢牢地扼住了人类的命运，其实真实的世界更为残酷。郭文贵先生在11月5日的大直播中，讲述了一个惨绝人寰的故事，在中共国，因病毒疫苗而致残的婴儿在出生的那一刻，就被颈死。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-3.jpeg)
+给孩子打疫苗、给老人打疫苗啊，无穷无尽的故事。北京那个卫生局的哥们说，七哥，你知道现在生孩子每天都很多，现在给我们一个标准，露头孩子，一看有残疾，一看不对劲，立马就拿着纱布直接从头上拽着就缠，惨死啊，之后就把包扔出去，就不让你活着出来了。每天这样的事都发生啊，妈妈说我们生孩子要做一个扫描嘛，看孩子是否正常吧？他说，关键是扫描时孩子正常，一出来就不正常。啥原因呢？打完疫苗的孩子心脏是动的，看孩子是个孩子，他一出来要不没眼，有孩子脑袋有肿瘤了。其实你知道悲哀在哪里吗？没见过多少父母觉得这是打疫苗的原因，他们认为这是自己的错。
 
-据悉，美国白宫将于本周发布一项关于新冠疫苗的规定，当中要求，若公司员工人数超过100人，则强制该企业执行新冠疫苗接种命令。预计，该规定将影响多达8000 万美国人的工作现状。
+郭先生说，人在最幸福的时候，在向往和追逐美好的时候，他每天都生活在希望之中。生活是最美好。可是当你打了疫苗之后，你每天生活在不确定之中、在惶恐之中，你不知道哪天什么死去是最恐怖的一件事情。
 
-为此，布劳恩呼吁所有议员加入这次行动，用“国会审查法案”授予的权力取消这个“严重越权”的强制令。 布劳恩认为，接种新冠疫苗与否属于个人医疗选择，不应该受到政府胁迫。因此，他愿努力与同事一起，反对新冠疫苗强制令，保护受雇于私营公司的数百万美国公民的人身自由。
+参考链接：
 
-参考链接: [Sen. Braun, Colleagues Challenge Biden’s Vaccine Mandate](https://www.oann.com/sen-braun-colleagues-challenge-bidens-vaccine-mandate/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
-
-总编：Irene木木
-编辑：AN
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+[2021年11月05 日 文贵大直播](https://gettr.com/streaming/pg3lvx539f)
 
  
 

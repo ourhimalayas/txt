@@ -2,31 +2,25 @@
 ---
 
 
-## 中共能源危机持续，与美国签巨额天然气合同
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641632/)
+## 有声|墙内“喜交所”搜索量排全球第一
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1641849/)
 
-作者：MOS 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，有报道指出，虽然中共的煤炭期货下滑了约35%，但中共的能源危机仍远未缓解。数据显示，先是中共国内几个主要产煤大省的水灾降低了本土供应，加之与澳大利亚的关系持续恶化，导致煤炭进口短缺，中共的实货煤炭依旧极其昂贵。入冬后，中共国内还增添了燃煤供暖的需求，这将加剧中共的能源短缺。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-13.jpg)
-另一方面，中共国内部分地区今年降雨量减少，依赖降水量的供电也难以为继，部分工厂被强制限电。这也导致中共国内液化天然气价格的大幅上涨。
+配音：香草山美食部 – 玫瑰园
 
-为了解决迫在眉睫的能源问题，中共与美国路易斯安那州的天然气企业签署了一份20年的协议，以确保美国向中共国出口400万吨的液化天然气。
+11月1日，喜币公开上市，震惊了世界，更惊醒了墙内无数老百姓。
 
-相关评论指出，2019年中美贸易战期间，中共几乎切断了对美国化石能源产品的进口，此次签署如此巨额的天然气协议，或与中共每况愈下的国际与国内环境有关。
+近日，“喜交所”的搜索量，在短短几天时间内，快速增长百分之五十以上。从搜索量地区排名来看，前五名的国家和地区依次是：中国大陆，香港，澳大利亚，新西兰，新加坡。
 
-参考链接：
+非常值得关注的是，在被禁止使用谷歌的中共国，“喜交所”的搜索量却高居榜首。显然，喜币上市，震撼了墙内百姓，将会有巨量的人搜索量却高居榜首，参与喜币的交易，实现个人财富自由。
 
-[中国为应对能源短缺和减排狂买美国天然气](https://cn.wsj.com/articles/%E4%B8%AD%E5%9B%BD%E4%B8%BA%E5%BA%94%E5%AF%B9%E8%83%BD%E6%BA%90%E7%9F%AD%E7%BC%BA%E5%92%8C%E5%87%8F%E6%8E%92%E7%8B%82%E4%B9%B0%E7%BE%8E%E5%9B%BD%E5%A4%A9%E7%84%B6%E6%B0%94-11635903309)
+喜币是世界金融海啸来临之际，新中国联邦为全世界打造的金融诺亚方舟。喜币未来的价值将远超人们的想象。
 
-[Sinopec signs China’s largest long-term LNG contract with U.S. firm](https://www.reuters.com/business/energy/sinopec-signs-20-yr-lng-contract-with-us-venture-global-lng-2021-11-04/)
+文字版原文：[墙内“喜交所”搜索量排全球第一](https://gnews.org/zh-hans/1637937/)
 
-[《RUSSELL专栏》中国动力煤期货虽暴跌35% 然现货价格依然坚挺](https://cn.reuters.com/article/column-russell-china-coal-drv-1026-idCNKBS2HG0QZ)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-总编：Irene木木
-编辑：Kathy文艺/Irene木木
-校正/发稿：Fei797
+音频处理：喜山必胜Maverick
 
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
