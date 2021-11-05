@@ -2,38 +2,29 @@
 ---
 
 
-## 维加诺主教再发公开信反对疫苗接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641871/)
+## 许多covid-19幸存者失去味觉和嗅觉，治疗并非易事
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1641893/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月2日，相关消息显示，大主教卡洛·维加诺致函美国红衣主教协会会长，要求停止新冠疫苗的接种。
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-05-102950-edited.png)图片来源：网络
+020 年圣诞节后的第二天早上，Carolyn Hinds 醒来发现自己闻不到或尝不到任何东西。 随后几天出现了 COVID-19 的其他迹象，例如发烧、咳嗽和肌肉酸痛。 这些症状随着时间的推移而消退，但她缺乏嗅觉和味觉却没有。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-4.jpeg)
+直到今天，38 岁的 Hinds 几乎闻不到任何东西，她的味觉仍然扭曲——甜的东西会留下奇怪的回味，咸的食物会让她的胃不舒服，香料会让她的嘴唇和舌头燃烧，但尝起来却什么也没有。 “这些事情会在精神上和身体上困扰你，因为它会改变你体验世界的方式，”她说。
 
-维加诺主教认为，新冠疫苗在研发过程中没有经过严格的安全测试，在全球范围内施打这种疫苗等于用实验药物在人类身上做试验。
+最近的两人在墨西哥高档度假胜地附近的激烈枪战中丧生，认为牛奶很贵吗？ 它的成本可能会更高。
 
-再者，主教表示，目前已经基本确认，新冠病毒疫苗既不能帮助人体免疫新冠病毒，也不能阻止病毒的传染，相反，疫苗还有严重的副作用。过去9个月中，新冠疫苗造成的死亡人数比其他所有疫苗在过去30年内造成的还多。
+“我们所做的没有什么值得打喷嚏的。”明尼阿波利斯的活动家在“取消资助”投票失败后展望未来“为什么我不能握住他的手？”最高法院将决定牧师在执行死刑期间可以提供什么安慰法官驳回凯尔·里滕豪斯 (Kyle Rittenhouse) 陪审员在关于雅各布布莱克拍摄的“种族”笑话“这个国家的实际情况”之后的陪审员在贫困线以下的史诗般的 6 年之旅。 认为牛奶很贵？ 它的成本可能会更高。
 
-主教还提及，已经被证实的有效治疗药物被美国以及欧洲的医疗主管机构阻止使用。为此，主教谴责了大重启计划，同时斥责教皇方济各犯下“反人类罪”，实行“对抗上帝的撒旦之举”。
+也许最糟糕的是，Hinds 的医生说他们不知道如何治疗她。  “已经 10 个月了，”她说。  “我有点想这就是[永远]的样子。”
 
-参考链接: [Archbishop Viganò Writes Stunning Letter On Vaccine Program](https://www.zerohedge.com/covid-19/archbishop-vigano-writes-stunning-letter-vaccine-program)
+COVID-19 大流行将近两年后，很多人都处于 Hinds 的位置。 嗅觉丧失不是 COVID 特有的现象——它可能由于其他病毒、神经系统疾病、吸烟、头部受伤和正常衰老等原因而发生——但这种流行病大大增加了其患病率。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+来源链接：[https://t.co/GpJsfIftJ2](https://t.co/GpJsfIftJ2)
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
+编辑/发布：LILY
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+20211105
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

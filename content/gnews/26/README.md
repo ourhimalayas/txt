@@ -2,33 +2,31 @@
 ---
 
 
-## 辉瑞疫苗被爆临床试验数据造假问题严重
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1641948/)
+## GTV新闻访谈简报|2021年11月05日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1641988/)
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-04-113208.png)图片来源：网络
-据约翰斯·霍普金斯大学发布的数据显示，美国累计新冠肺炎确诊病例超4632万例，累计死亡病例超75万例。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36.png)
 
-近日，世界著名医学期刊《英国医学杂志》发表报告称，美国制药巨头辉瑞公司的合作伙伴“文塔维亚”研究集团的前雇员布鲁克·杰克逊爆料，“文塔维亚”在进行辉瑞新冠疫苗临床试验过程中存在伪造实验数据、操作不规范等严重问题。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-4.png)
+文章仅代表作者本人观点，与Gnews无关
 
-据爆料，从2020年8月辉瑞新冠疫苗试验开始不久，就有实验人员篡改数据。此外，杰克逊还目睹了许多严重问题：
+视频参看：2021.11.05早GTV新闻访谈
 
-“注射过疫苗的志愿者被留在走廊里，没有临床研究人员监控”
+[https://gtv.org/broadcast/watch/6185238e11d186296801f034](https://gtv.org/broadcast/watch/6185238e11d186296801f034)
 
-“注射出现不良反应没有及时上报”
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-“疫苗没有在适当的温度下储存”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 
-“实验室样本标签错误”
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-杰克逊表示，她曾向文塔维亚集团的高层汇报了这些问题，但公司的董事们对此反应敷衍。随后，杰克逊向美国药管局就这些问题进行了投诉，然而就在递交报告的同一天，她就被文塔维亚集团解雇了，理由是“无法胜任工作”。
-
-值得注意的是，在辉瑞公司于2020年12月提交给美国药管局咨询委员会的简报文件中，并未提及在文塔维亚临床试验中存在的任何问题。不久，辉瑞疫苗被正式授予紧急使用授权。
-
-编辑/发布：LILY
-
-20211105
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
