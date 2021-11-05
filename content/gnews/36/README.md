@@ -2,10 +2,10 @@
 ---
 
 
-## 喜交所上市倒计时
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1641241/)
+## 我们的网络安全小组是世界上最好的，客户是上帝
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1641243/)
 
-11/1/2021 【HCoin to The Moon庆典】喜交所上市倒计时。
+11/1/2021 【HCoin to The Moon庆典】我们的网络安全小组是世界上最好的，客户是上帝。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

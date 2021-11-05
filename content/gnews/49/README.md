@@ -2,8 +2,8 @@
 ---
 
 
-## COVID-19最新情报｜疫苗专家：新冠疫苗只会减弱儿童免疫力
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1640682/)
+## COVID-19最新情报｜即便证据在眼前 佛奇仍否认曾资助武毒所
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1640735/)
 
 台灣寶島農場 疫情關注組｜發佈日期/ 5/11/2021
 
@@ -11,15 +11,15 @@
 **更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
 
-一项[研究](https://www.medrxiv.org/content/10.1101/2021.07.31.21261387v4.full.pdf)指出，当前的新冠疫苗接种后突破性感染仍具备传染力。外媒指出以色列、美国等国家接续爆发突破性感染，重症病例中95%已经接受至少一剂疫苗、住院治疗中90%曾接种疫苗。
+美国参议员兰德·保罗于11月4日的参议院听证会上，质询美国国家过敏和传染病研究所([NIAID](https://www.niaid.nih.gov/))主任安东尼．佛奇，关于“美国国立卫生研究院是否资助武汉病毒研究所进行功能增强实验”是否执意继续撒谎。（[相关影片片段](https://www.nationalreview.com/news/rand-paul-rips-into-fauci-over-continued-gain-of-function-research-denials-demands-resignation/https://www.nationalreview.com/videos/rand-paul-rips-into-fauci-over-persistent-gain-of-function-research-denials-demands-resignation/)）
 
-关于批准儿童接种新冠疫苗一事，德国感染研究中心疫苗开发办公室负责人[Geert Vanden Bossche 博士](https://www.geertvandenbossche.org/)曾参与GSK Biologicals、Novartis Vaccines、Solvay Biologicals等疫苗公司的研发，也曾是比尔和梅琳达·盖茨基金会的相关团队成员。他表示：新冠疫苗只会减弱儿童的免疫力。
+参议员保罗引用[美国国立卫生研究院承认曾经资助武汉病毒研究所进行病毒功能增强实验](https://www.nationalreview.com/news/nih-admits-to-funding-gain-of-function-research-in-wuhan-says-ecohealth-violated-reporting-requirements/)，指责佛奇公开撒谎，谎称NIH不曾资助过武毒所进行功能增强实验。保罗称：武汉病毒实验所的实验，目的在于让自然界的病毒更具危险性。佛奇撒谎美国卫生研究院未资助武汉实验室一事，保罗称这是玩语言游戏，佛奇的行为已经对美国、世界造成了明显的威胁。
 
-美国国家医学图书馆网站上一篇[文献](https://pubmed.ncbi.nlm.nih.gov/32975552/)指出，与成年人相比，新冠病毒对儿童、青少年的传染性较低，但研究并未提供有关于儿童传染性的资讯。另一篇[研究指出](https://www.nature.com/articles/s41590-020-00826-9?campaign_id=154&amp;emc=edit_cb_20201106&amp;instance_id=23895&amp;nl=coronavirus-briefing&amp;regi_id=61609026&amp;segment_id=43815&amp;te=1&amp;user_id=73aefc51739a420f3d188e5...)，儿童感染新冠病毒的症状与成人不同，儿童通常为无症状、轻症，很少出现严重的呼吸道症状，但有可能并发罕见的小儿多系统发炎症候群。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-2.jpg)
+保罗强调，资助实验室进行病毒功能增强实验，可以创造出新病毒，导致下一次的大流行。新冠病毒目前致死率约为“百分之一”，然而武汉病毒实验室正在试验一种死亡率在15-50%的新病毒，这对人类文明造成巨大的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-2-1.jpg)
 * * *
 
-参考来源｜[Natural News](https://www.naturalnews.com/2021-11-03-covid-vaccine-poses-more-risks-to-children.html)/[Nature Immunology](https://www.nature.com/articles/s41590-020-00826-9?campaign_id=154&amp;emc=edit_cb_20201106&amp;instance_id=23895&amp;nl=coronavirus-briefing&amp;regi_id=61609026&amp;segment_id=43815&amp;te=1&amp;user_id=73aefc51739a420f3d188e5...)/[National Library of Medicine](https://pubmed.ncbi.nlm.nih.gov/33031427/)/[National Library of Medicine](https://pubmed.ncbi.nlm.nih.gov/32975552/)
+参考来源｜[NATIONAL REVIEW](https://www.nationalreview.com/news/rand-paul-rips-into-fauci-over-continued-gain-of-function-research-denials-demands-resignation/)
 撰文｜zhong
 
  
