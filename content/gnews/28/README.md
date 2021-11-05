@@ -2,27 +2,25 @@
 ---
 
 
-## 维加诺主教再发公开信反对疫苗接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641871/)
+## 布朗参议员和同僚挑战新冠疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641912/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：MOS – 柳是多水土透
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月2日，相关消息显示，大主教卡洛·维加诺致函美国红衣主教协会会长，要求停止新冠疫苗的接种。
+11月3日，来自印第安纳州的共和党参议员布劳恩，带领其他40位共和党议员正在挑战美国政府即将对私营企业实行的新冠疫苗强制接种令。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-3.jpeg)
 
-维加诺主教认为，新冠疫苗在研发过程中没有经过严格的安全测试，在全球范围内施打这种疫苗等于用实验药物在人类身上做试验。
+据悉，美国白宫将于本周发布一项关于新冠疫苗的规定，当中要求，若公司员工人数超过100人，则强制该企业执行新冠疫苗接种命令。预计，该规定将影响多达8000 万美国人的工作现状。
 
-再者，主教表示，目前已经基本确认，新冠病毒疫苗既不能帮助人体免疫新冠病毒，也不能阻止病毒的传染，相反，疫苗还有严重的副作用。过去9个月中，新冠疫苗造成的死亡人数比其他所有疫苗在过去30年内造成的还多。
+为此，布劳恩呼吁所有议员加入这次行动，用“国会审查法案”授予的权力取消这个“严重越权”的强制令。 布劳恩认为，接种新冠疫苗与否属于个人医疗选择，不应该受到政府胁迫。因此，他愿努力与同事一起，反对新冠疫苗强制令，保护受雇于私营公司的数百万美国公民的人身自由。
 
-主教还提及，已经被证实的有效治疗药物被美国以及欧洲的医疗主管机构阻止使用。为此，主教谴责了大重启计划，同时斥责教皇方济各犯下“反人类罪”，实行“对抗上帝的撒旦之举”。
-
-参考链接: [Archbishop Viganò Writes Stunning Letter On Vaccine Program](https://www.zerohedge.com/covid-19/archbishop-vigano-writes-stunning-letter-vaccine-program)
+参考链接: [Sen. Braun, Colleagues Challenge Biden’s Vaccine Mandate](https://www.oann.com/sen-braun-colleagues-challenge-bidens-vaccine-mandate/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
 总编：Irene木木
-编辑：Kathy文艺
+编辑：AN
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

@@ -2,67 +2,35 @@
 ---
 
 
-## 维州警方向年仅 10 岁的儿童开出 260 多张口罩罚款
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1642198/)
+## 俄罗斯外交官被发现死在驻德使馆前
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1642230/)
 
-作者：Alexandra Marshall
-翻译: HimaFAFA
+新闻来源：德国明镜报网页版
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Police.png)
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-维多利亚州警方已向儿童发出数百罚款因未戴口罩。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/96e3dde2-55f2-4e50-be01-4e8c56d2ba2b_w948_r1.778_fpx59.21_fpy49.99.jpg)Passanten gehen an der russischen Botschaft in Berlin-Mitte vorbei. Nach dem mutmaßlichen Auftragsmord an einem Georgier in Berlin gibt es eine diplomatische Krise zwischen Deutschland und Russland. Die Bundesanwaltschaft hat die Ermittlungen übernommen. Sie verfolgt den Anfangsverdacht, dass staatliche Stellen in Russland oder in der Teilrepublik Tschetschenien dahinterstecken. Die Bundesregierung wies zwei russische Diplomaten aus.
 
-截至 2021 年 6 月，已记录了 260 多起导致罚款的违规行为。其中至少有 29 起是针对 10 至 14 岁的儿童。
 
-年幼的儿童每次犯罪将面临 40 美元的罚款，而 15 岁以上的儿童将面临 80 美元的罚款。
+图片来源：德新社
 
-在维多利亚州强制实施口罩公共卫生命令期间，这些罚款是针对在街上、公园里玩耍或在火车站等候的儿童进行的。
+俄罗斯驻柏林大使馆发生不明原因死亡事件。据《明镜周刊》报道，柏林警方的财产保护人员于 10 月 19 日上午 7 点 20 分左右在柏林大使馆大楼前的人行道上发现了一具毫无生气的尸体。救援人员的复苏尝试没有成功。
 
-警方发言人说：“只要有可能，警方就会向儿童发出警告，而不是罚款。” “如果违反首席卫生官的指示是明显的或故意的，并且该年轻人没有资格受到再次警告，就可能需要发出处罚通知。”
+显然，这名男子是从柏林米特区的俄罗斯驻德大使馆大楼的楼上掉下来的。根据一份官方外交官名单，自 2019 年夏季以来，这位 35 岁的年轻人已被任命为驻柏林的第二大使馆秘书。然而，德国安全当局将他视为俄罗斯国内特勤局 FSB 的伪装雇员。
 
-因孩子没有在户外戴口罩而被罚款，特别是当他们的许多父母失业且缺钱时，被视为残忍且有害的。
+据说他还与FSB第二部门的一名高级官员有关。在俄罗斯，该部门除其他外负责打击恐怖主义，并被西方情报机构与所谓的蒂尔加滕谋杀案联系起来，其中一名格鲁吉亚流亡者于 2019 年夏天在柏林在光天化日之下被枪杀。
 
-任何 12 岁及以上的人都必须在室内戴口罩，而 3 年级及以上的学生仍然必须戴口罩。强烈建议2 年级学生也广泛执行。
+根据明镜周刊、调查平台 Bellingcat 和 The Insider 以及美国新闻频道 CNN 的研究，FSB 第二部门的官员也参与了 2020 年夏天对俄罗斯反对派政治家阿列克谢·纳瓦尔尼的毒杀。
 
-维州教育部发言人证实，在联邦政府确定所有学龄儿童接种疫苗之前，戴口罩仍将是学校系统内的一项强制性规定。这似乎消除了父母关于是否希望他们的孩子接种疫苗的选择。
+据明镜周刊消息，在外交官被发现死亡的情况下，俄罗斯大使馆不同意对尸体进行尸检。安全界人士表示，据称坠落的情况和死因“不明”。由于死者具有外交身份，检察官无法进行死亡调查。目前还不清楚是否有第三方疏忽的迹象。
 
-墨尔本皇家儿童医院的儿科医生简·门罗表示，维州儿童戴口罩的规定“得到了良好科学的支持”。
+据《明镜周刊》消息，这名外交官的遗体现已转移到俄罗斯。当被问到时，俄罗斯大使馆谈到了一场“悲惨的事故”，但由于“道德原因”而没有评论。
 
-“很简单，很安全。戴口罩的孩子没有健康风险。这很容易做到，也是常识。有些人可能仍然对我们为什么需要这样做感到困惑，这是因为我们想让孩子们回到学校并将他们留在那里，” 门罗说。
+类似的事件在2003年就已经引起轰动。当时，代表的搬运工从他在使馆场地的公寓坠落。
 
-并非所有专家和家长都同意这些有争议的措施。尤其是维多利亚警方执行的“过度惩罚性”执法。
+原文链接：[https://www.sueddeutsche.de/politik/russische-botschaft-berlin-spion-1.5457166](https://www.sueddeutsche.de/politik/russische-botschaft-berlin-spion-1.5457166)
 
-儿童和青少年事务首席专员莉安娜·布坎南表达了她对维多利亚州政府允许警察对幼儿进行罚款的卫生命令的担忧。
-
-布坎南指出，警察对幼儿处以罚款的行为可能会不必要地将他们卷入刑事司法系统。
-
-“[布坎南]非常担心边缘化儿童收到罚款的前景，因为我们知道这不会产生什么影响，而且在他们无力支付时，只会冒着将他们卷入刑事司法系统的风险。”
-
-维多利亚青年事务委员会首席执行官凯瑟琳埃利斯表示，她更希望维多利亚警方向儿童分发口罩，而不是罚款。
-
-儿童，尤其是幼儿，在学校整天戴着口罩会感到不适。如果他们一再不服从戴口罩的指示，他们发现自己会被拘留或被遣送回家。
-
-很少有人知道维多利亚的孩子在如此年轻的时候被警察罚款后会对心理健康产生什么长期影响。
-
-來源：[https://www.rebelnews.com/260\_fines\_issued\_to\_children\_by\_victoria\_police](https://www.rebelnews.com/260_fines_issued_to_children_by_victoria_police)
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+责任编辑、发布： Shuizhuyu
 
  
 
