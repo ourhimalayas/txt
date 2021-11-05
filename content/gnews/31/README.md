@@ -2,25 +2,30 @@
 ---
 
 
-## 发现HIV的诺贝尔奖得主称冠状病毒肯定是从武汉实验室释放出来的，含有HIV DNA
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1640065/)
+## 喜币上市48小时内突破10美元，总市值居虚拟币全球第一
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640167/)
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/hiv-blood-cells-aids-edited.jpg)图片来源：网络
-Hiv-Blood-Cells-Aids 被认为首先发现艾滋病病毒并因此获得诺贝尔医学奖的人，对武汉冠状病毒 (COVID-19) 的所谓性质提出了一些令人不安的说法。根据法国病毒学家 Luc Montagnier的说法，武汉冠状病毒 (COVID-19) 并不像主流媒体最初声称的那样起源于武汉的湿货市场。 他争辩说，它实际上来自武汉的一个实验室，并且含有与 HIV 相同的 DNA。  Hematrex® 是一种草本循环系统支持配方，可促进血管强度和弹性，促进全身健康的血液流动。
+作者：英国喜庄园 – I770775
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+美东时间 11月3日，上午9点多，喜币的单价突破10美元，达10.544美元，流通市值跃居全球虚拟币第13位，总市值居全球虚拟币第一。喜币上市不足48小时，已打破了虚拟币发行的多项世界纪录。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture200.jpg)
+郭先生在当天的大直播里说，喜币的上市，全世界最紧张的并不是共产党，而是华尔街的金融大佬。喜币将终结华尔街资本对世界金融的垄断。
 
-在接受Why Doctor 采访时，发生在 4 月 16 日，蒙塔尼耶解释说，虽然武汉冠状病毒来自受污染的蝙蝠肉可能是一个“美丽的传说”，但事实是，它实际上是一种人工插入 HIV 基因序列的转基因 (GMO) 病毒 进入其基因组。“自 2000 年代初以来，武汉市实验室就专门研究这些冠状病毒，”蒙塔尼耶说，并补充说“他们在这方面拥有专业知识。” 蒙塔尼耶与他的数学家同事让-克洛德·佩雷斯 (Jean-Claude Perrez) 一起研究了武汉冠状病毒 (COVID-19) 的“最小细节”，发现它实际上与 HIV 非常相似。 “印度研究人员试图发表一项研究，该研究表明这种冠状病毒的完整基因组 具有另一种病毒的序列，即 HIV，即病毒 AIDS，”他补充说。
+新中国联邦和世界合作的最重要的实力，就是铸币权。而喜联储，就是新中国联邦在喜马拉雅的山谷底部精心打造的一个全球金融的蓄水池。在全球经济崩塌之际，全球的大额资本将会源源不断地流入喜联储，和新中国联邦站在一起。
 
-事实证明，这些印度研究人员在发表后被迫撤回了他们的研究，这显然是为了对武汉冠状病毒 (COVID-19) 的真相保密。 世界不应该知道这件事是“巫师学徒的作品”，引用蒙塔尼耶的雄辩的话，然而“科学真理总是最终出现”，无论谁试图将其掩埋。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-来源链接：[https://t.co/d1iWK3W5K4](https://t.co/d1iWK3W5K4)
+总编：Irene木木
+编辑：木白
+校对/发稿：Hetangyuese
 
-编辑/发布：LILY
-
-20211104
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

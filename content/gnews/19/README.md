@@ -2,32 +2,39 @@
 ---
 
 
-## 参议员兰德.保罗再次拷问福奇并建议他辞职
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1640202/)
+## 不管喜币上市还是任何事情我们永远不会依靠外国人
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1640225/)
 
-撰稿：Grace
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-15.png)
-图片来源：nypost
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-7_副本.jpg)
+据[2021年11月03 日 文贵大直播：彭帅爆张高丽丑闻，再次验证爆料革命的真实性；喜交所的上市标志着新中国联邦的中央银行，铸币中心成立了，这是新中国联邦人永远的财产；房地产税会灭国灭党；共和党在弗吉尼亚州长竞选获胜意味着什么](https://gtv.org/video/id=61827dfd11d186296800dd83)时间点1：15：36——
 
-11月4日在国会山，参议员兰德.保罗 (Rand Paul)再次拷问在美国臭名昭著的骗子,和得到最高薪的美国官员，安东尼.福奇 (Anthony Fauci)。
+**郭文贵先生：**刚才你说到我们这个币，那天开始的时候，天下就那么下，下边就猜，啊，谁来了，你看主会场的后边摆着香槟，下面一片猜的谁呀？——蓬皮奥，猜皮特.纳瓦罗的，猜班农的。我很不高兴，为什么中国人这么大事一定要请外国人来？他来了能给你带来啥呀？他不会给我们带来一分钱，只能我们给他们钱，他会给我们带来合作，但是我们不能依靠他们，就是今天也不会依靠他们，永远不会依靠他们，我们中国人咋就这么贱呢！
 
-一开场，保罗参议员就说出了大多数美国人最想说的话。他说：“我今天不指望你会承认你批准了NIH对武汉的增强功能研究的资助。但是，你反复的否认已经让人感到厌倦，坦率地说，大多数美国人不相信你。”
+所以当时你知道非常有意思，就是孙俊平的我们之间一个好哥们，他也是咱战友，现在绝对在电视机前面呢，现在是广州市里边的一个政协的高官，给我发信息——七哥为啥咱们战友这么贱呢？非要希望外国人来，就没有一个希望中国人来的。咱中国人啥时候你有好事，别老想着外国人行不行？不是外国的月亮都是圆的！
 
-保罗参议员强调“NIH已经承认，Eco健康联盟确实在武汉进行了实验，创造了自然界中没有的病毒，而这些病毒的致死率确实有了提高。事实已经很清楚了。美国国立卫生研究院确实资助了武汉的增强功能研究。”
+（以下暂略）
 
-保罗参议员还指责福奇 “不愿意为目前的大流行病承担任何责任，也不愿意采取任何措施来防止增强功能研究可能释放出更加致命的病毒。” 保罗认为这是“对这国家和全世界是有危险的。”
+撰稿：喜马拉雅的肉夹馍；
 
-保罗正式地问福奇：“你今天会不会最终为资助武汉的增强功能研究承担一些责任？”
+审核：喜马拉雅的馍夹肉；
 
-不出所料，福奇再次否认他资助了武汉的增强功能研究。然而，保罗参议员迅速地回应说：”我们知道你从NIH网站上删除了增强功能”。
+校对：Maarago；
 
-福奇狡猾地把话题转向一些试验操作框架和指南，并且假装认真地向保罗参议员解释增强功能的定义。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-参议员保罗再次打断福奇说：“在同一天，NIH说，是的，在武汉有一个增强功能研究。同一天，该（增强功能）定义却出现了新的定义。（NIH）试图以一种方式定义武汉发生的事情。除非你接受责任，否则我们是不会尝试去防止另一个实验室泄漏。这种危险的实验，你不承认它是危险的，由于（你）缺乏判断力，我认为现在是你辞职的时候了。”
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-听到这句话后，福奇拿着笔记本的两只手开始颤抖了起来。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-**新闻来源：****https://www.youtube.com/watch?v=JBqXYpO1QpE&t=510s **
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
