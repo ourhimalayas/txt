@@ -2,32 +2,26 @@
 ---
 
 
-## 巴西禁止雇主解雇未接种疫苗的工人
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640169/)
+## 11/5/2021中日财经爆：出售盛京银行股份，许家印又套现110亿
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640203/)
 
-作者：纽约香草山信息部 – 诺雅
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月1日，巴西劳工部长洛伦佐尼签署了一项反对疫苗强制的新法令，禁止雇主在聘用或维持雇佣关系时，要求提供冠状病毒疫苗接种证明。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture600.jpg)
-洛伦佐尼表示，这项法令只有一个目标：维护自由权，保证数百万巴西人的工作和工作机会。所有公司必须尊重巴西的法律和巴西公民的权利，禁止任何因为拒绝接种疫苗而遭到解雇的行为。
+#### 撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6798885572055718912.png)[图片来源](http://www.nbd.com.cn/articles/2021-11-05/1981583.html)
+11月4日，港交所披露易公布的最新信息显示，10月18日，在完成两次股份出售事项后，恒大在盛京银行的持股由32.02亿股降为12.82亿股，而沈阳国资控制的盛京金控将超越恒大成为盛京银行第一大股东。
 
-据悉，根据新法令，雇主可以制定冠状病毒指南，但不能以未接种疫苗为由解雇员工，如果雇主已经解雇了他们，则可以选择让工人复职，或给他们支付缺勤期间的双倍报酬。
+据此前盛京银行公告，恒大转让盛京银行股权分为两笔，第一笔转让盛京银行股权1.67亿股，第二笔转让17.53亿股，交易价分别为6元/股、5.7元/股。
 
-参考链接：[巴西禁止雇主解雇未接种疫苗的工人](https://www.breitbart.com/latin-america/2021/11/03/brazil-bans-employers-from-firing-unvaccinated-workers/)
+在完成出售事项后，10月18日，中国恒大董事局主席许家印在盛京银行的内资股持股比例从49.59%下降至了19.85%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+按照交易价计算，上诉两笔股权出售完成，许家印套现共计约110亿元。
 
-总编：飞虹
-编辑：雪梨
-校对/发稿：Hetangyuese
+信息来源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+[大减持！恒大套现110亿，许家印内部会议：必须全力以赴保交楼，才能还欠款](http://www.nbd.com.cn/articles/2021-11-05/1981583.html)
+
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

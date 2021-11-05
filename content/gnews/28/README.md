@@ -2,34 +2,31 @@
 ---
 
 
-## 疫苗灾难恐将到来
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640170/)
+## 共和党州政府官员反对雇主的强制疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1640216/)
 
-作者：纽约香草山农场 – 蓝天大海
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据《重要新闻》11月2日报道，美国各地医院的急诊室及病房人满为患，但这些病人都不是新冠病毒感染者。
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-6.png)
+图片来源：网络截图
 
-病患的严重程度和范围很广泛，包括腹痛、呼吸系统问题、血栓、心脏病等。更为严重的是，血栓和心脏病病例中有大量年轻人，年轻死亡病例也有很多。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture500.jpg)
-记者写到，上周六，宾夕法尼亚州的一名高中生因“突发心脏病”而死亡；在同一州，一名健康的12岁男孩也死于心脏病；上周末，巴塞罗那前锋塞尔吉奥·阿奎罗在比赛中突然倒地，被诊断出心律失常；两天后，冰岛中场球员埃米尔·帕尔松在比赛中心脏骤停，导致挪威乙级联赛的一场足球比赛于周一暂停。
+据美联社阿肯色州小石城（LITTLE ROCK）10月5日报道，共和党官员周四对总统拜登最新要求私营企业员工接种中共病毒疫苗的详细规定作出了迅速的谴责回应。威胁要采取一系列诉讼和其他行动来阻止这一强制要求，他们认为这是政府过度扩张的赤裸裸的例子。
 
-《零对冲》11月3日转载了这篇文章，短短5小时就有两千三百多条评论，很多人认为这些后果是由疫苗造成。疫苗灾难正在走来，绝不是危言耸听！
+至少有两个保守派团体迅速采取行动，对工作场所的强制安全提起诉讼，越来越多的共和党州长和总检察长表示，最快在周五就会有更多诉讼。一些共和党领导的州，如得克萨斯州，阿肯色州已经通过了法律或行政命令，旨在保护那些可能不想遵守的雇主。
 
-参考链接：[疫苗灾难恐将到来](https://www.zerohedge.com/medical/something-really-strange-happening-hospitals-all-over-america)
+共和党人南卡罗来纳州总检察长艾伦·威尔逊(Alan Wilson)周四通过发言人说“这项规定是垃圾，它是违宪的，我们将与之斗争。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+自从拜登在9月份预告这一要求以来，各州一直在为这一要求做准备。周四发布的职业安全与健康管理规定要求拥有100名或更多员工的公司在1月4日前接种疫苗，或每周进行测试。如果不遵守规定，可能会导致每项违规行为受到近14,000美元的处罚。联邦官员还留下了将这一规定扩大到小型雇主的可能性。
 
-总编：雪梨
-编辑：DM
-校对/发稿：Hetangyuese
+阿拉巴马州、亚利桑那州、阿肯色州、佛罗里达州、爱达荷州、印第安纳州、爱荷华州、路易斯安那州、密苏里州、蒙大拿州、内布拉斯加州、新罕布什尔州、俄克拉荷马州和南达科他州的共和党州长或总检察长周四表示，他们最快将于周五对这项任务提起诉讼。保守派媒体公司The Daily Wire周四向联邦法院提出挑战。一家支持保守派的律师事务所代表的密歇根州和俄亥俄州的公司也是如此。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+印第安纳州州长埃里克·霍尔科姆在一份声明中表示联邦政府的这种做法是前所未有的，将给供应链和劳动力带来有害的、意想不到的后果。
+
+来自共和党人和保守派团体对工作场所授权的挑战预计将是基础广泛且迅速的，反映了中共病毒疫苗对策已经陷入了党派分歧。在周四宣布OSHA的规则后，民主党州长和总检察长们相对安静。
+
+所有26个共和党州的总检察长此前都表示，他们将反对这些要求，他们中的大多数人都签署了一封给拜登的信，质疑OSHA是否有法律权力要求注射疫苗或病毒测试。
+
+新闻来源：[GOP state officials push back on employer vaccine mandate](https://apnews.com/article/covid-states-suing-employer-vaccine-mandates-f4300ed015ed716a1054949cf199a25a)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

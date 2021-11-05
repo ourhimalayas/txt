@@ -2,42 +2,37 @@
 ---
 
 
-## 在英国发布有关疫苗的“虚假信息 ”可能会被判入狱两年
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1640051/)
+## 三大标志性事件见证喜币真正的价值
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640166/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：纽约香草山农场 – 恩永存
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+郭文贵先生在11月3日的大直播中谈到，当喜币经历三大标志性事件，喜币才能真正体现其价值。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture100.jpg)
+第一，当任何一家权威的投资机构投资喜联储，这表明喜币展现了其投资价值，也将吸引更多的投资机构。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/201223-nurse-vaccine-died-covid-fact-check-carousel-1608696281095.jpg)
+第二，当一个国家或地区批准喜联储虚拟货币银行、虚拟货币交易牌照，喜币将正式于市场流通。当人们逐渐接受喜币支付时，更多国家将会陆续批准喜币交易牌照。
 
+第三，第一个主权国家宣布喜币成为国家主权货币，这标志着新中国联邦已被国际承认。
 
+届时，作为新中国联邦货币，喜币的价值将得到市场的验证和体现。
 
-图片来源：rappler.com
+参考链接：[三大标志性事件见证喜币真正的价值](https://gettr.com/post/pfyckddba1)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-#### 编译：小红帽
+总编：飞虹
+编辑：飞虹/雪梨
+校对/发稿：Hetangyuese
 
-在英国，根据一项新的法律，在网上发布有关中共病毒（COVID-19）疫苗的“虚假信息”的人可能面临两年监禁。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-英国的《在线安全法案》因其广泛的覆盖面而受到公民自由团体的猛烈批评。
-
-据《纽约时报》报道，该法律将制定“故意虚假通讯”的罪行，“将那些发送或发布他们知道是虚假的信息，意图对潜在受众造成情感、心理或身体伤害”的人定罪。政府消息人士举了“反疫苗者传播他们知道是不真实的虚假信息”的例子。
-
-鉴于当局认为关于大流行病和疫苗的各种信息都是“虚假的”，但后来证明是真实的，这是个令人不寒而栗的前景。
-
-该法案还将在确定帖子或消息是否犯罪时，将目前更严格的“不雅”或“严重冒犯”内容的标准更改为更广泛的“有害影响”定义。
-
-显然，这更符合英国的仇恨言论法，即不是根据是否真的发生了仇恨言论或仇恨事件，而是根据假定的受害者感觉他们成为了目标，来确定是否犯下了仇恨言论行为。
-
-**参考新闻：**[People in UK Who Post “False Information” About Vaccines Could be Jailed For Two Years – Summit News](https://summit.news/2021/11/01/people-in-uk-who-post-false-information-about-vaccines-could-be-jailed-for-two-years/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
