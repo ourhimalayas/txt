@@ -2,23 +2,25 @@
 ---
 
 
-## DWAC股票连日暴跌，格芯股价累计涨幅近30％
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640168/)
+## 韩国新冠病毒感染剧增
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1640172/)
 
-作者：英国喜庄园 – I770775
+作者：日本方舟农场 – Andy5
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-根据相关网站的数据，与川普媒体相关的DWAC股票，股价跌幅逐日上升。11月2日，该股盘中跌幅一度达13％。截至11月3日收盘，其股票市值仅相当于最高点时的约40％，投资者损失惨重。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture300.jpg)
-而半导体巨头格芯，自上市以来，股票持续大涨。11月的第一个交易日，受美股半导体板块走强的影响，格芯股价在上一交易日大涨超5％的基础上，盘前狂拉13％以上，连续两日涨幅超20％。11月3日，格芯股价继续大涨4.57％，以59美元的整数值收盘，公司市值比IPO估值高出25％以上。据悉，格芯公司的产能利用率已经超过100％，公司2023年底的圆晶产能都已售罄。
+截至当地时间11月3日0时，韩国单日确诊数达2667例，为历史第四高水平。韩联社称，这或许说明，本月1日启动的第一阶段“与疫共存”模式，以及上周五起连续三天的万圣节庆典，对疫情的后续影响开始显现。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture6.jpg)
+据悉，韩国首都首尔的两剂疫苗接种率已达76.7%，但在10月31日的646例新增确诊感染者中，仍有近半数、已完成两剂疫苗接种的“突破性感染”病例。目前，首尔市共有1万2663人在接种疫苗后依然感染病毒。
+
+然而，首尔防疫统筹兼市民健康局局长 朴有美却坚称，仍需对体弱及50岁以上人群进行疫苗追加接种，全然罔顾 “疫苗无用甚至有害”这一事实。
 
 参考链接：
-1. [DWAC股票连日暴跌，格芯股价累计涨幅近30％](https://m.10jqka.com.cn/20211022/c633574978.shtml?client_userid=F12p1&amp;share_hxapp=gsc&amp;share_action=&amp;back_source=qqhy)
-2. [DWAC股票连日暴跌，格芯股价累计涨幅近30％](http://wap.stockstar.com/detail/SS2021110200001543)
+1. [韩国新冠病毒感染剧增](https://cn.yna.co.kr/view/MYH20211103007900881?section=video/videos)
+2. [韩国新冠病毒感染剧增](https://news.yahoo.co.jp/articles/7d4bb7baa1d4606affe046394264c88653976ca9)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：飞虹
-编辑：飞虹
+总编：Irene木木
+编辑：小鹿妞妞
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
