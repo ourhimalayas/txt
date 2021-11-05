@@ -2,32 +2,37 @@
 ---
 
 
-## 墨尔本赛马节两名完全接种疫苗者感染新冠病毒
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1640480/)
+## 国际要闻汇编 11月5日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640502/)
 
-#### 翻译：月映万川 
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5825-6.jpg)图片来源：9 News
-11月5日，澳大利亚维多利亚州政府已经向参加墨尔本赛马节的所有人士发出了新冠病毒警告。当日维多利亚赛马俱乐部宣布，在周二的活动中已经检测到了2例阳性新冠病毒感染者。
+素材：东京樱花团｜GNEWS组
 
-其中一位感染者是一名合同工，他分别在周六的德比日和周二的赛马节在比赛场地工作过；另一位感染者是一名赞助商，其在赛马节当天在比赛看台。两位感染者均已经接种过两剂新冠疫苗，并且互相之间没有任何病例联系。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/国际要闻汇编-11月5日.png)[*图片来源*](https://gdb.voanews.com/3a75a699-14fe-4b02-a377-67f06f0742dc_cx0_cy4_cw0_w1597_n_r1_st.jpg)
 
-赛马比赛是唯一一项可以在维州封锁期间被允许进行的活动。在过去的18个月里，只有很少的感染病例是在比赛期间传播的。
+1、[**美多位重量级共和党参议员提出《台湾威慑法》**](https://www.voachinese.com/a/US-senate-taiwan-bill-20211104/6300521.html)
 
-赛事当局正在联系在杯赛当天前往现场的赞助人，并建议他们监测自己的健康状况，并在出现任何症状时接受检测。
+据路透社消息，美国共和党参议员在推出《武装台湾法》后，周四（4日）又提出《台湾威慑法》，将授权每年20亿美元的“外国军事融资” 用于台湾，直到2030年，以加强台湾的防务。“外国军事融资”是美国政府的赠款和贷款，使其他国家能够购买美国生产的武器和国防设备。尽管该法案仅得到参议院少数党共和党人的联署，但它增加了国会对民主党总统拜登的压力，要求他采取更大胆的行动，加强与外交上受到孤立的台湾的关系。
 
-本周五的维州的新冠报告中，有1343例新增感染，10例死亡病例。
+2、[**拜登政府宣布适用于大公司和医疗保健人员的疫苗强制接种令**](https://www.voachinese.com/a/biden-administration-issues-covid-vaccine-mandate-for-large-companies-health-care-workers-20211104/6300310.html)
 
-原文链接：[Melbourne Cup COVID alert after infected contractor worked on site for two days | 7NEWS](https://7news.com.au/sport/melbourne-cup/melbourne-cup-covid-alert-after-infected-contractor-worked-on-site-for-two-days-c-4441669.amp)
+白宫周四(4日)公布了接种新冠疫苗的新规则，这些规则适用于有100名或更多雇员的美国公司，要求这些公司的员工在1月4日之前完全接种疫苗，否则将至少每周接受一次检测。白宫还公布了类似规则，适用于参与联邦医疗保险(Medicare)和联邦医疗补助(Medicaid)的设施所雇用的医疗保健人员。按照规则，各部门必须允许雇员请假接种疫苗。还要求未接种疫苗的员工在工作场所戴口罩。
 
-发布：文泓
+3、[**七十七国承诺逐步淘汰燃煤电厂**](https://www.voachinese.com/a/Britain-Urges-to-End-Era-of-Coal-20211104/6300155.html)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据路透社报道，联合国气候大会的主办国英国周四（4日）表示，为期两周的会议将逐步结束煤炭使用，77个国家签署了一项承诺，将逐步淘汰燃煤电厂，并停止建设新的燃煤电厂。燃煤电厂的发电量占全球总发电量的35%以上。煤炭是世界上使用最广泛的燃料，今年对这种燃料的需求将创下新的纪录。许多发展中国家，尤其是中国、印度和印度尼西亚，依赖廉价煤炭和其他化石燃料来发展，但这些燃料不利于环境和健康。
+
+4、[**英国准备生产稀土磁铁，减少对中国的依赖**](https://www.voachinese.com/a/us-china-rare-earth-magnet-20211104/6300349.html)
+
+路透社周四(4日)独家报道，在政府支持下，英国可能恢复用于电动汽车和风力涡轮机的超强磁铁的国内生产，以减少对中国的依赖，并实现关键的减排目标。英国是《联合国气候变化框架公约》第26次缔约方大会（COP26）的主办国。上个月，英国政府制定了实现净零碳排放战略的计划，其中包括花费8.5亿英镑（合11.5亿美元）来支持电动汽车及其供应链的推出。
+
+5、[**美国与新加坡防长会面 答应增进两军在印太地区的联合部署**](https://www.aboluowang.com/2021/1105/1668042.html)
+
+美国国防部长奥斯汀周三（3日）与到访的新加坡国防部长黄永宏举行会谈，寻求扩大防务关系共同应对印太地区的安全挑战。会谈后，五角大楼发表一份会后新闻稿，称奥斯汀部长重申美国致力于继续与新加坡军队的联合训练项目，双方还同意增进两军在印太地区的联合部署行动，包括美国空军和海军轮驻新加坡的行动。
+
+*编辑：东京樱花团 / 文小白
+发布：东京樱花团 / 老黑*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
 
  
 

@@ -15,101 +15,101 @@
 
 ---
 
-### [COVID-19最新情报｜疫苗专家：新冠疫苗只会减弱儿童免疫力](/content/gnews/1/README.md)
+### [欧洲代表团首次访台，自动灭共进行中](/content/gnews/1/README.md)
+ ` 澳喜农场`
+
+### [外媒报道NBA以反击中共“重塑”其“社会正义”形象](/content/gnews/2/README.md)
+ ` 澳喜农场`
+
+### [秘翻在线：共和党参议员推出《台湾吓阻法案》](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [COVID-19最新情报｜疫苗专家：新冠疫苗只会减弱儿童免疫力](/content/gnews/4/README.md)
  ` G&#124;News TAIWAN`
 
-### [文·贵天成——文贵先生谈“吴征、杨澜”（十八）](/content/gnews/2/README.md)
+### [文·贵天成——文贵先生谈“吴征、杨澜”（十八）](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国又一房企百亿理财产品爆雷 佳兆业股价再次暴跌](/content/gnews/3/README.md)
+### [中共国又一房企百亿理财产品爆雷 佳兆业股价再次暴跌](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [一个老战友如何理解“干掉共产党以后我们最重要的是要有信仰”](/content/gnews/4/README.md)
+### [一个老战友如何理解“干掉共产党以后我们最重要的是要有信仰”](/content/gnews/7/README.md)
  ` 澳喜农场`
 
-### [英国准备恢复国内稀土磁铁生产 降低对中共国依赖](/content/gnews/5/README.md)
+### [英国准备恢复国内稀土磁铁生产 降低对中共国依赖](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [文·贵天成——文贵先生谈“吴征、杨澜”（十七）](/content/gnews/6/README.md)
+### [文·贵天成——文贵先生谈“吴征、杨澜”（十七）](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [NBA球星坎特无惧中共封杀再度力挺香港](/content/gnews/7/README.md)
+### [NBA球星坎特无惧中共封杀再度力挺香港](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [疫情时代如何理解人类生存的意义](/content/gnews/8/README.md)
+### [疫情时代如何理解人类生存的意义](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [爆料革命——历史的今天10月29日](/content/gnews/9/README.md)
+### [【玫瑰看新闻】第195期](/content/gnews/12/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [爆料革命——历史的今天10月29日](/content/gnews/13/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [2021年10月28-29日 郭先生视频重点内容整理](/content/gnews/10/README.md)
+### [2021年10月28-29日 郭先生视频重点内容整理](/content/gnews/14/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [内蒙古额济纳旗疫情严重 官员免职成替罪羊](/content/gnews/11/README.md)
+### [内蒙古额济纳旗疫情严重 官员免职成替罪羊](/content/gnews/15/README.md)
  ` 纽约香草山MOS02`
 
-### [爆料革命—历史的今天10月27日](/content/gnews/12/README.md)
+### [爆料革命—历史的今天10月27日](/content/gnews/16/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [多只地产债券暴跌或临时停牌](/content/gnews/13/README.md)
+### [多只地产债券暴跌或临时停牌](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [比起张德江、李长春、曾庆红、王岐山,张高丽是九牛一毛](/content/gnews/14/README.md)
+### [比起张德江、李长春、曾庆红、王岐山,张高丽是九牛一毛](/content/gnews/18/README.md)
  ` NewFOC`
 
-### [2021年10月25-27日 郭先生视频重点内容整理](/content/gnews/15/README.md)
+### [2021年10月25-27日 郭先生视频重点内容整理](/content/gnews/19/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [一位爆料革命战友的遭遇和心声](/content/gnews/16/README.md)
+### [一位爆料革命战友的遭遇和心声](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【文炬拾字】如何面对喜币带来的巨额财富](/content/gnews/17/README.md)
+### [【文炬拾字】如何面对喜币带来的巨额财富](/content/gnews/21/README.md)
  ` 温哥华扬帆农场`
 
-### [张高丽最早说习最多五年滚蛋,他玩处女与我们息息相关](/content/gnews/18/README.md)
- ` NewFOC`
-
-### [意大利疑似covid-19死亡人数从13万人更正为3千多人](/content/gnews/19/README.md)
+### [意大利疑似covid-19死亡人数从13万人更正为3千多人](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年11月1日喜币上市大直播全文字版（四）](/content/gnews/20/README.md)
+### [2021年11月1日喜币上市大直播全文字版（四）](/content/gnews/23/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [比特币一定不是2100万个](/content/gnews/21/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [美共和党参议员提出《台湾威慑法》，加强台湾防务](/content/gnews/22/README.md)
+### [美共和党参议员提出《台湾威慑法》，加强台湾防务](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [国际要闻汇编 11月5日](/content/gnews/23/README.md)
+### [国际要闻汇编 11月5日](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [喜币上市四喜临门](/content/gnews/24/README.md)
+### [喜币上市四喜临门](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [墨尔本赛马节两名完全接种疫苗者感染新冠病毒](/content/gnews/25/README.md)
+### [墨尔本赛马节两名完全接种疫苗者感染新冠病毒](/content/gnews/27/README.md)
  ` 走进澳洲`
 
-### [澳大利亚正在训练军人上门挨家挨户强制疫苗接种](/content/gnews/26/README.md)
+### [澳大利亚正在训练军人上门挨家挨户强制疫苗接种](/content/gnews/28/README.md)
  ` 澳喜农场`
 
-### [11/5/2021中日财经爆：李鬼告赢了李逵，无印良品输给了山寨](/content/gnews/27/README.md)
+### [11/5/2021中日财经爆：李鬼告赢了李逵，无印良品输给了山寨](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [维迦诺大主教一封有关疫苗的公开信](/content/gnews/28/README.md)
+### [维迦诺大主教一封有关疫苗的公开信](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [雅典娜时报-第103期](/content/gnews/29/README.md)
+### [雅典娜时报-第103期](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美军首脑对是否保护台湾不置可](/content/gnews/30/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [喜联储是新中国联邦人的利益共同体和中央银行铸币中心](/content/gnews/31/README.md)
+### [喜联储是新中国联邦人的利益共同体和中央银行铸币中心](/content/gnews/32/README.md)
  ` NewFOC`
-
-### [就中共病毒疫情，日本政府又出补贴新政](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [11/5/2021中日财经爆：中共股市骗局，富祥药业一天蒸发23亿](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
