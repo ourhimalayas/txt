@@ -2,31 +2,23 @@
 ---
 
 
-## 中共能源危机持续，与美国签巨额天然气合同
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641632/)
+## 有声|美国国际旅行新规：11月8日起，外国旅客入境将被要求全面接种疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1641881/)
 
-作者：MOS 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，有报道指出，虽然中共的煤炭期货下滑了约35%，但中共的能源危机仍远未缓解。数据显示，先是中共国内几个主要产煤大省的水灾降低了本土供应，加之与澳大利亚的关系持续恶化，导致煤炭进口短缺，中共的实货煤炭依旧极其昂贵。入冬后，中共国内还增添了燃煤供暖的需求，这将加剧中共的能源短缺。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-13.jpg)
-另一方面，中共国内部分地区今年降雨量减少，依赖降水量的供电也难以为继，部分工厂被强制限电。这也导致中共国内液化天然气价格的大幅上涨。
+配音：香草山香港部 – 文凯琳
 
-为了解决迫在眉睫的能源问题，中共与美国路易斯安那州的天然气企业签署了一份20年的协议，以确保美国向中共国出口400万吨的液化天然气。
+10月25日，白宫和CDC宣布，将于11月8日对国际旅行者实施新的疫苗接种政策。国务院发言人内德-普莱斯说：”从11月8日起，前往美国的外国国民航空旅行者将被要求全面接种疫苗，并在美国登机前提供疫苗接种状况证明。”
 
-相关评论指出，2019年中美贸易战期间，中共几乎切断了对美国化石能源产品的进口，此次签署如此巨额的天然气协议，或与中共每况愈下的国际与国内环境有关。
+据说此举是为了 “把健康放在第一位”。然而，批评者称此举具有侵略性，而且没有必要。尽管有新规比以往更加严格，但美国表示仍将要求所有旅行者，无论是否接种疫苗，在登机前都要接受 COVID 检测。
 
-参考链接：
+据普莱斯证实，那些有资格旅行但尚未接种疫苗的人，需要在航班起飞前一天内提供 COVID-19 阴性检测证明。对于接种疫苗的人，测试要求仍然是在航班起飞前三天。
 
-[中国为应对能源短缺和减排狂买美国天然气](https://cn.wsj.com/articles/%E4%B8%AD%E5%9B%BD%E4%B8%BA%E5%BA%94%E5%AF%B9%E8%83%BD%E6%BA%90%E7%9F%AD%E7%BC%BA%E5%92%8C%E5%87%8F%E6%8E%92%E7%8B%82%E4%B9%B0%E7%BE%8E%E5%9B%BD%E5%A4%A9%E7%84%B6%E6%B0%94-11635903309)
+文字版原文：[美国国际旅行新规：11月8日起，外国旅客入境将被要求全面接种疫苗](https://gnews.org/zh-hans/1637362/)
 
-[Sinopec signs China’s largest long-term LNG contract with U.S. firm](https://www.reuters.com/business/energy/sinopec-signs-20-yr-lng-contract-with-us-venture-global-lng-2021-11-04/)
+音频处理：喜山必胜Maverick
 
-[《RUSSELL专栏》中国动力煤期货虽暴跌35% 然现货价格依然坚挺](https://cn.reuters.com/article/column-russell-china-coal-drv-1026-idCNKBS2HG0QZ)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-总编：Irene木木
-编辑：Kathy文艺/Irene木木
-校正/发稿：Fei797
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

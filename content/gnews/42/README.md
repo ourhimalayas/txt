@@ -2,48 +2,17 @@
 ---
 
 
-## Youngkin在维州民意调查中领先，被视为2022年中期选举的风向标
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1640925/)
+## 立陶宛外交副部长：中共国对待立陶宛的方式为欧洲敲响“警钟”
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1640990/)
 
-作者：纽约香草山农场 – 柳是多水土透
+韩国首尔天池农场—虎眼　校对/上传—无明逆流
+![](https://assets.gnews.org/wp-content/uploads/2021/11/04a3067b-4d13-46b1-a0d2-8db272d10144.jpg)
+据俄罗斯卫星通讯社4日报道，立陶宛外交部副部长普兰克维丘斯在当地时间3日在华盛顿安全论坛上表示，中共对待立陶宛的方式为欧洲敲响了“警钟”，他还呼吁欧盟成员与中共国打交道时要团结一致。
+普兰克维丘斯称：“我认为，这在很多方面都敲响了警钟，特别是让欧洲同胞明白，如果想捍卫民主，就必须站出来表达支持。为了让欧洲在世界上具有可信度并成为美国的合作伙伴，必须针对中共国采取行动。”他还表示，“我们必须口径一致，否则我们就没有信誉度可言，无法捍卫自己的利益，也无法与北京建立平等关系。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在这之前，立陶宛总统吉塔纳斯·瑙塞达曾在与美国总统拜登举行的非正式会谈上表示，他和拜登讨论了与中共国的外交冲突以及加强与台湾关系等问题。在立陶宛和中共国的外交冲突议题上，他获得了美国总统对他的支持。
 
-共和党维吉尼亚州候选人Youngkin在民调中领先，福克斯新闻显示，企业家Youngkin领先对手8%。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11.png)
-
-他的竞争者，前州长Terry McAuliffe的竞选集会在本周有更少的人参加，除了深蓝地区阿灵顿以外。
-
-教育是本次竞选主题之一，团结了维州的保守派。McAuliffe 在辩论中说到“家长不应该决定学校教什么”，之后其领先优势开始缓慢消失。
-
-与之相对，Youngkin认为 “若我当选，家长将有权为孩子的教育做决定”。
-
-选举被视为2022年中期选举的民意风向标并广受关注，将在周二举行。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-- [https://justthenews.com/government/state-houses/youngkin-campaign-surging-final-days-virginia-race-could-be-predictor-2022](https://justthenews.com/government/state-houses/youngkin-campaign-surging-final-days-virginia-race-could-be-predictor-2022)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
-
-***编辑***：***正义的小新***
-***校对/发稿：海阔天空1***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+立陶宛在台湾议题上的敢为言行也刺痛了中共外交部的神经。中共外交部发言人声称，世界上只有一个中国，中华人民共和国政府是代表全中国的唯一合法政府，敦促立方立即纠正错误决定，不要在错误的道路上越走越远。并一同警告了台湾，称“台独分子在国际上搞分裂活动不会得逞，而且是死路一条。”
 
  
 

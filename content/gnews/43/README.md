@@ -2,27 +2,28 @@
 ---
 
 
-## 疫苗的有效率到底是多少？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1640850/)
+## 国际刑事法院调查委内瑞拉
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1640975/)
 
-撰稿：Runaway
-![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率1-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率2-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率3-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率4-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率5-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗有效率6-1.jpg)
-以上数据统计的分析表明，接种双重疫苗的人群将在未来3-6个月内不但失去疫苗的有效性，还将失去自然免疫力。面对欧洲的冬、春各种病毒容易传染的季节，失去自然免疫力的人群将面临灾难性的后果。
+新闻来源：德国法兰克福报网页版
 
-另据BBC和ABC NEWS今日报道，“世卫组织再次警告欧洲处于大流行的中心”，“世卫组织表示，对欧洲的COVID-19激增严重关切，因为住院人数在一周内翻了一番”。
-雅典娜农场
-（文章仅代表作者观点，与Gnews无关）
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-发稿：Runaway
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/nicolas-maduro-und-karim-khan-chefanklaeger-des-in-istgh-1.jpg)
 
-参考链接：
 
-[Europe’s COVID-19 surge a ‘grave concern’ says WHO, as hospitalisations double in one week](https://www.abc.net.au/news/2021-11-05/europe-grave-concern-500k-covid-deaths-surge/100596398)
+图片来源： FAZ
 
-[Covid: WHO warns Europe once again at epicentre of pandemic](https://www.bbc.com/news/world-europe-59160525)
+这是在总统府拍摄的一张不寻常的照片。它展示了委内瑞拉的社会主义统治者尼古拉斯·马杜罗 (Nicolás Maduro) 和总部位于海牙的国际刑事法院 (ICC) 的首席检察官卡里姆·汗 (Karim Khan)。他们手里拿着两份文件。这是双方于周三签署的协议。国际刑事法院希望调查在 2017 年的反对社会主义政府的抗议活动中， 是否对反对派犯下了危害人类罪。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/10/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
+当时有一百名抗议者被杀。同年，2015 年选举产生的国民议会被剥夺权力，取而代之的是制宪议会，其中反对派占三分之二多数。至少自 2019 年备受争议的连任以来，马杜罗在国际上基本上与世隔绝。
+
+马杜罗在电视上说，首席检察官决定调查真相。 “我们不同意这个决定，但我们尊重它。” 所以这不仅仅是一张不寻常的照片，也是他选择的不寻常的词。大约三年前宣布自己为反总统的反对派政治家胡安·瓜伊多 (Juan Guaidó) 对这一消息表示欢迎。最重要的是，这是抗议活动的受害者及其家人希望日后正义的一个原因。
+
+原文链接：[https://www.faz.net/aktuell/finanzen/us-notenbank-fed-wechselt-kurs-und-setzt-euro-unter-druck-17618425.html](https://www.faz.net/aktuell/finanzen/us-notenbank-fed-wechselt-kurs-und-setzt-euro-unter-druck-17618425.html)
+
+责任编辑、发布： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

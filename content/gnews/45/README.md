@@ -2,30 +2,27 @@
 ---
 
 
-## 11/5/2021中日财经爆：中国移动被美退市，回A股割韭菜
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640763/)
+## 11/5/2021中日财经爆 ：“油盐酱醋“都涨价，受苦的还是老百姓
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640779/)
 
 #### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5454.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fimgcdn.yicai.com%2Fvms-new%2F2021%2F05%2Fafaa942e-e321-4ce4-912b-19d9c4406c9b.jpg&amp;imgrefurl=https%3A%2F%2Fwww.yicai.com%2Fnews%2F101054007.html&amp;tbnid=kl63KXC2_NuoGM&amp;vet=12ahUKEwjShMud6ID0AhVVS_UHHXeZCNgQMygKegUIARCiAQ..i&amp;docid=DJ_yTRv--3MfXM&amp;w=2500&amp;h=1667&amp;q=%E4%B8%AD%E5%9B%BD%E7%A7%BB%E5%8A%A8%E5%9B%9E%E5%BD%92A%E8%82%A1&amp;ved=2ahUKEwjShMud6ID0AhVVS_UHHXeZCNgQMygKegUIARCiAQ)
-11月4日晚间，记者从证监会官网获悉，中国移动有限公司(下称“中国移动”)首发获通过。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/676.jpg)
-据IPO日报此前报道，中国移动此次在A股上市计划募集资金560亿元，这一募资金额将超过刚上市不久的中国电信以及2020年上市的中芯国际，成为A股近十年以来的最大IPO。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5646.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimagepphcloud.dwnews.cc%2Fpph%2Fimage%2F162%2F361%2F656.jpg&amp;imgrefurl=https%3A%2F%2Fm.dwnews.cc%2FnewsDetail_forward_15238373&amp;tbnid=9GynDRf9CRtMhM&amp;vet=12ahUKEwjUkoe56oD0AhVdTPUHHdnPDiEQMygAegUIARCkAQ..i&amp;docid=OSNAGii9jA_ciM&amp;w=888&amp;h=608&amp;q=%E2%80%9C%E6%B2%B9%E7%9B%90%E9%85%B1%E9%86%8B%E2%80%9C%E9%83%BD%E6%B6%A8%E4%BB%B7&amp;ved=2ahUKEwjUkoe56oD0AhVdTPUHHdnPDiEQMygAegUIARCkAQ)
+11月4日，肉类食品专营企业得利斯称，一个月前已对预制菜相关牛肉类产品价格已进行了调整，近期也对部分牛肉类产品进行了再次提价。在必选消费品提价这件事上，得利斯不是第一个“吃螃蟹的人”。
 
-由于中国移动是一家已在境外上市的红筹企业，这次回A股选择的上市标准为“市值不低于2000亿元”。截至11月4日收盘，中国移动港股总市值达8150.08亿元，远高于上市标准。
+在更早前的10月13日，海天味业发公告称，将对酱油、蚝油、酱料等部分产品的出厂价格进行调整，调整幅度为3%-7%不等。
 
-从问询问题来看，证监会对公司与中国移动集团之间的关系、信息安全管理制度、劳务派遣用工等方面给予了重点关注。
+10月22日，洽洽食品也称，将对葵花子系列产品以及南[瓜子](https://36kr.com/projectDetails/3968812)、小而香西瓜子产品的出厂价格调整，提价幅度为8%-18%不等。
 
-前总统川普去年11月签署了一项行政令，禁止美国人投资美国政府认定的帮助中共军方、情报和安全部门的中国公司，也不能投资其相关金融产品。
+随即，被称为“中国最大制醋企业”的恒顺醋业也宣布将于自11月20日起对部分产品进行价格调整，调整幅度5%-15%不等。主营[调味品](https://36kr.com/projectDetails/335067)的[加加](https://www.36dianping.com/space/4848401030?mp=zzquote)食品也在16日起对多种产品调价，上调幅度3%-7%不等。
 
-5月7日，中国移动有限公司、中国联通（香港）有限公司和中国电信股份有限公司各自表示，他们预计纽约证券交易所将向[美国证券交易委员会](https://www.epochtimes.com/gb/tag/%E7%BE%8E%E5%9B%BD%E8%AF%81%E5%88%B8%E4%BA%A4%E6%98%93%E5%A7%94%E5%91%98%E4%BC%9A.html)（SEC）申请，允许他们的美国存托凭证（ADR）进行退市。退市将在美国证券交易委员会收到通知的10天后生效。
+近日，金龙鱼放出信号称，关于调价，公司要平衡消费者的接受度与公司的成本、利润及长远发展之间的关系，较为稳健的处理调价问题。
 
-退市意味着这中国三大电信公司被纽交所强制摘牌，投资者不能再通过纽交所买卖这些股票。
+此外，盐业上市公司也于进入宣布集体涨价，继雪天盐业称小包食盐出厂价近期陆续提价后，云南能投也透露，对部分食盐产品及工业盐产品价格进行上调。
 
-消息来源：
+至此，中共国内市场“油盐酱醋”到食品肉类已全部涨价。对于本就单价不高的食品以及日用品来说，原材料成本上涨的压力传导到了消费者身上。“涨价潮”来袭，部分消费者已经开始“囤货”。
 
-[“巨无霸”来了！中国移动首发过会，五大问题成关注重点](http://www.jwview.com/jingwei/html/11-04/440411.shtml)
-
-[中国三大电信公司上诉失败 纽交所将下架](https://www.epochtimes.com/gb/21/5/7/n12931720.htm)
+消息来源:
+[受原材料成本影响，“油盐酱醋”已全部涨价](https://36kr.com/p/1471582648461059)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

@@ -2,25 +2,25 @@
 ---
 
 
-## 台湾防备中共利用深伪技术制造混乱
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641482/)
+## 有声|墙内“喜交所”搜索量排全球第一
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1641849/)
 
-作者：纽约香草山农场 – 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月3日，台湾国安局官员向立法院证实，国安局现已成立专案小组，应对中共利用深伪技术妨害台湾安全和稳定的行为。国安局透露，中共的深伪技术可仿造台湾领导人的影音或照片，从而可利用其影响台湾未来的公投和大选。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-16.jpg)
-深伪技术，即透过人工智能的深度学习技术伪造信息，现多为不法分子的牟利工具，也是中共用来侵扰台湾、干预台湾政治的手段。情报显示，自2018年起，中共的这类操作就层出不穷。截至目前，台湾今年已经监测到了5万多次来自中共的网络攻击。
+配音：香草山美食部 – 玫瑰园
 
-有关评论显示，中共如今仍不放弃侵占台湾的野心，台湾需谨慎防备中共利用人工智能技术，在台湾重大事件或政治问题中操控舆论、制造混乱的邪恶计划。
+11月1日，喜币公开上市，震惊了世界，更惊醒了墙内无数老百姓。
 
-参考链接：
+近日，“喜交所”的搜索量，在短短几天时间内，快速增长百分之五十以上。从搜索量地区排名来看，前五名的国家和地区依次是：中国大陆，香港，澳大利亚，新西兰，新加坡。
 
-[台湾成立专案小组，防备北京利用深伪技术影响公投大选](https://www.voachinese.com/a/taiwan-establishes-task-force-against-china-electron-meddling-deepfakes-20211103/6298493.html)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-总编：飞虹
-编辑：AN
-校正/发稿：Fei797
+非常值得关注的是，在被禁止使用谷歌的中共国，“喜交所”的搜索量却高居榜首。显然，喜币上市，震撼了墙内百姓，将会有巨量的人搜索量却高居榜首，参与喜币的交易，实现个人财富自由。
 
+喜币是世界金融海啸来临之际，新中国联邦为全世界打造的金融诺亚方舟。喜币未来的价值将远超人们的想象。
+
+文字版原文：[墙内“喜交所”搜索量排全球第一](https://gnews.org/zh-hans/1637937/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

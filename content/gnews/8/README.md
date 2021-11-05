@@ -2,28 +2,29 @@
 ---
 
 
-## 有声|喜币将成为新世界秩序下的正义捍卫者
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1641675/)
+## 许多covid-19幸存者失去味觉和嗅觉，治疗并非易事
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1641893/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-2021年11月1日，在“Hcoin to the moon”庆典上，文贵先生再次声明，喜联储、喜币与喜美元的横空出世是超前地改变了现有的金融市场规则，比特币已经跨过了法律红线，但Hcoin永远不会越过法律的红线！一切跨过了法律红线的金融货币、产品、系统都终将崩溃。
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-05-102950-edited.png)图片来源：网络
+020 年圣诞节后的第二天早上，Carolyn Hinds 醒来发现自己闻不到或尝不到任何东西。 随后几天出现了 COVID-19 的其他迹象，例如发烧、咳嗽和肌肉酸痛。 这些症状随着时间的推移而消退，但她缺乏嗅觉和味觉却没有。
 
-文贵先生说，比特币作为加密货币的鼻祖，它的开创性是伟大的，可以说，它所代表的区块链加密货币技术改变了人类的一切。但是跨过了法律红线的比特币注定只能沦为黑暗势力的洗钱工具，它只称得上是一个“奉献者”。而在法律允许范围内改变规则的喜币，不会接受任何的洗钱和违法犯罪行为，它会成为新世界秩序下坚定的正义捍卫者。在人权和财富安全的新世界里，喜币终将越走越远。
+直到今天，38 岁的 Hinds 几乎闻不到任何东西，她的味觉仍然扭曲——甜的东西会留下奇怪的回味，咸的食物会让她的胃不舒服，香料会让她的嘴唇和舌头燃烧，但尝起来却什么也没有。 “这些事情会在精神上和身体上困扰你，因为它会改变你体验世界的方式，”她说。
 
-文字版原文：[喜币将成为新世界秩序下的正义捍卫者](https://gnews.org/zh-hans/1637943/)
+最近的两人在墨西哥高档度假胜地附近的激烈枪战中丧生，认为牛奶很贵吗？ 它的成本可能会更高。
 
-音频处理：喜山必胜Maverick
+“我们所做的没有什么值得打喷嚏的。”明尼阿波利斯的活动家在“取消资助”投票失败后展望未来“为什么我不能握住他的手？”最高法院将决定牧师在执行死刑期间可以提供什么安慰法官驳回凯尔·里滕豪斯 (Kyle Rittenhouse) 陪审员在关于雅各布布莱克拍摄的“种族”笑话“这个国家的实际情况”之后的陪审员在贫困线以下的史诗般的 6 年之旅。 认为牛奶很贵？ 它的成本可能会更高。
 
-发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+也许最糟糕的是，Hinds 的医生说他们不知道如何治疗她。  “已经 10 个月了，”她说。  “我有点想这就是[永远]的样子。”
+
+COVID-19 大流行将近两年后，很多人都处于 Hinds 的位置。 嗅觉丧失不是 COVID 特有的现象——它可能由于其他病毒、神经系统疾病、吸烟、头部受伤和正常衰老等原因而发生——但这种流行病大大增加了其患病率。
+
+来源链接：[https://t.co/GpJsfIftJ2](https://t.co/GpJsfIftJ2)
+
+编辑/发布：LILY
+
+20211105
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

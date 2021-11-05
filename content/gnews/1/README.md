@@ -2,32 +2,31 @@
 ---
 
 
-## 有声|墙内“喜交所”搜索量排全球第一
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1641849/)
+## GTV新闻访谈简报|2021年11月05日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1641988/)
 
-配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36.png)
 
-11月1日，喜币公开上市，震惊了世界，更惊醒了墙内无数老百姓。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-4.png)
+文章仅代表作者本人观点，与Gnews无关
 
-近日，“喜交所”的搜索量，在短短几天时间内，快速增长百分之五十以上。从搜索量地区排名来看，前五名的国家和地区依次是：中国大陆，香港，澳大利亚，新西兰，新加坡。
+视频参看：2021.11.05早GTV新闻访谈
 
-非常值得关注的是，在被禁止使用谷歌的中共国，“喜交所”的搜索量却高居榜首。显然，喜币上市，震撼了墙内百姓，将会有巨量的人搜索量却高居榜首，参与喜币的交易，实现个人财富自由。
+[https://gtv.org/broadcast/watch/6185238e11d186296801f034](https://gtv.org/broadcast/watch/6185238e11d186296801f034)
 
-喜币是世界金融海啸来临之际，新中国联邦为全世界打造的金融诺亚方舟。喜币未来的价值将远超人们的想象。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-文字版原文：[墙内“喜交所”搜索量排全球第一](https://gnews.org/zh-hans/1637937/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 
-音频处理：喜山必胜Maverick
-
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
