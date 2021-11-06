@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/6/2021 2:07 AM (UTC)`
+
+11/5/2021 Miles Guo: The CCP failed to stop the launch of the Himalaya Coin in various countries, and more than 1,000 financial institutions have opened accounts at Himalaya Exchange. The CCP concludes that “the Himalaya Coin has triumphed over the Communist China”.<br/><br/>11/5/2021 文贵直播： 中共在各国阻止喜币上市的行动彻底失败，1000多家金融机构已入驻喜交易所；中共的结论是喜币已成功达到“一币赢一国“！<br/>
+![img](https://media.gettr.com/group27/getter/2021/11/06/02/07/d8097fd2-5726-f45d-9514-4e243093e9d4/out.jpg)
+
+---
+
 `@miles 11/5/2021 11:51 PM (UTC)`
 
 在 GETTR 上加入我的直播。
@@ -289,13 +296,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 11月2号：尊敬的战友们好，我们一起开启了一个崭新的新的不同的经济生活！而共产党进入了更大的麻烦．内部的政治斗争正在进入了白热化状态，共产党你完了！
 ![img](https://media.gettr.com/group38/getter/2021/11/02/16/06/0c85646c-3ed3-e3eb-0003-4fb8c2c76659/29cc48842876d6d3b401f098b93bfa68.jpg)
-
----
-
-`@miles 11/2/2021 12:53 PM (UTC)`
-
-11月2号：共产党想干啥了，真的在往福建方向布兵吗？真想咋活咋活。
-![img](https://media.gettr.com/group16/getter/2021/11/02/12/53/027f5bc4-5bb5-78a7-e8ab-b5e1a4476266/out.jpg)
 
 ---
 
