@@ -2,48 +2,57 @@
 ---
 
 
-## “你并不孤单”：欧盟议会代表团第一次正式访问台湾
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1642491/)
+## 捷克政治家呼吁采取“一个台湾政策”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1642527/)
 
-**据《日经亚洲》2021年11月4日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/zzz-a5lef-kg7xa.jpg)台湾总统蔡英文（右）和欧洲议会外国干涉特别委员会主席拉斐尔·格鲁克斯曼（Raphael Glucksmann）于11月4日在台北会面。图片来源：路透社
-《路透社》台北 —— 欧洲议会第一个前往台湾的官方代表团周四表示，这个外交孤立的岛屿并不孤单，并呼吁采取更大胆的行动加强欧盟与台湾的关系，因为台北面临来自北京的越来越大的压力。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Chinese-Communist-U.S.-Consulate-640x480-2-1.jpg)Source: Twitter
 
-除了小小的梵蒂冈城外，台湾与任何欧洲国家都没有正式的外交关系，但它热衷于深化与欧盟成员国的关系。
+来自《台湾英语新闻》11月5日的报道，一位捷克政治家周四（11月4日）在推特上呼吁他的国家采取“一个台湾政策”，并上传了一张地图，明确表明台湾是一个独立于中共国的国家。
 
-此次访问正值中共国加大军事压力之际，包括中共国战机多次在民主台湾附近执行任务，北京声称这是自己的领土，不排除以武力夺取。
+在欧洲议会议员访问台湾期间，总部位于布拉格的欧洲价值安全政策智库主任雅库布·扬达(Jakub Janda)发布了一条针对欧洲领导人的推文。他将台湾描述为一个“具有法治运作的友好自由民主国家”。
 
-“我们带着一个非常简单、非常明确的信息来到这里：你们并不孤单。欧洲与你们站在一起。”欧洲议会法国议员拉斐尔·格鲁克斯曼在脸书直播的一次会议上告诉台湾总统蔡英文.
+杨达随后呼吁欧洲领导人宣布“一个台湾政策”。他表示，承认中国共产党“现在占领大陆领土”的“一个中国政策”可以继续。
 
-“我们的访问应该被视为重要的第一步。”率领代表团的格鲁克斯曼说，“但接下来我们需要一个非常具体的高层会议议程和高层具体步骤，以建立更强大的欧盟-台湾伙伴关系。”
+然而，他表示，随着对台湾的新政策，欧洲各国政府可以“以任何我们想要的方式”与该国接触。为了强调台湾不受中共管辖的观点，他附上了一张地图，国家用鲜红色，上面用亮黄色字体写着“中共国”字样，而台湾用蓝色，标记着“不是中共国（这是台湾）”。
 
-为期三天的访问由欧洲议会外国干涉民主进程委员会组织，将包括与台湾官员就虚假信息和网络攻击等威胁进行交流。
+两年以来，杨达一直是台湾的坚定拥护者。他表示支持布拉格市长兹德涅克·贺吉普(Zdenek Hrib)于2019年提出的要该市爱乐乐团访问台湾的建议，此前中共政府取消了该乐团的中共国巡演，以报复捷克拒绝驱逐一名台湾外交官。
 
-蔡英文警告说，中共国会加大在台湾获得影响力的努力，要求安全机构反击渗透活动。
+那一年，他也曾支持捷克共和国议会55名议员联署致函世界卫生组织(WHO)要求其允许台湾作为观察员参加即将举行的世界卫生大会(WHA)。
 
-“我们希望建立一个反对虚假信息的民主联盟。”蔡英文在总统府告诉代表团。
 
-“我们相信台湾和欧盟当然可以继续加强我们在所有领域的伙伴关系。”
 
-台湾外交部长吴钊燮上个月罕见地访问欧洲，这激怒了北京，北京警告东道国不要破坏与中国的关系。
+> Taiwan = friendly liberal democratic state with functioning rule of law
+> 
+> Europeans should declare our One Taiwan Policy:
+> 
+> Within One China Policy, we recognise Chinese Communists now occupy the continental territory.But we will engage Taiwan in any way we want[#OneTaiwanPolicy](https://twitter.com/hashtag/OneTaiwanPolicy?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/ElV0qXtj50](https://t.co/ElV0qXtj50)
+> — Jakub Janda (@\_JakubJanda) [November 4, 2021](https://twitter.com/_JakubJanda/status/1456116871045029891?ref_src=twsrc%5Etfw)
 
-由于担心北京的报复，大多数国家都不愿意接待台湾高级部长或派高级官员到台湾岛。
 
-上个月，欧洲议会通过了一项不具约束力的决议，旨在深化与台湾的关系，其中包括研究投资协议等措施。
 
-中共国外交部发言人王文斌周三在北京举行的每日新闻发布会上谴责了这次会晤。
+推特部分翻译：
 
-“我们敦促欧方纠正错误，不要向台独势力发出错误信号，否则将损害中欧关系。”他告诉记者。
+台湾 = 具有法制运作的友好自由民主国家
+欧洲人应该宣布我们的一个台湾政策：在一个中国政策中，我们承认中国共产党现在占领了大陆领土。但我们会以任何我们想要的方式与台湾接触。
 
-**文章来源：**[https://asia.nikkei.com/Politics/International-relations/You-are-not-alone-EU-Parliament-delegation-tells-Taiwan-on-1st-official-visit](https://asia.nikkei.com/Politics/International-relations/You-are-not-alone-EU-Parliament-delegation-tells-Taiwan-on-1st-official-visit)
+简评：
 
-翻译：洛杉矶盘古农场 – Raul
-校对/编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+捷克作为欧盟的成员国之一，近年来一直与台湾保持着良好的外交关系，2020年捷克参议院议长米洛什·维斯特奇尔就无视中共国的反对，率团访问了台湾一周。通过雅库布·扬达发布的这条针对欧洲领导人的推文以及欧洲议会代表团11月3日到访台湾展开的访问活动，可以看出欧盟正在逐渐调整“一中政策”。欧盟执委会副主席波瑞尔最近也发言称，中共国对台湾的威胁对欧盟安全有直接冲击。希望台湾蔡英文政府能够抓住时机，加强与欧盟各国的合作，争取更多的国际支持来对抗中共不断加强的文攻武赫。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻链接:
+
+[Czech politician calls for ‘one Taiwan policy’](https://www.taiwannews.com.tw/en/news/4335803)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

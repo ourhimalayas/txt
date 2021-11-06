@@ -2,23 +2,30 @@
 ---
 
 
-## 四问财经真相
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1642607/)
+## 有声|脸书将其消费者定位最低年龄下调至6岁儿童
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1642669/)
 
-作者：天天打包包
-![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_0929.png)
-关于 [#财经真相](https://gettr.com/hashtag/%23%E8%B4%A2%E7%BB%8F%E7%9C%9F%E7%9B%B8) ，本来念在是战友的情况下，给你留点面子，但是你要阴阳怪气砸喜币，好家伙，我直接翻脸，就问你几个问题：
+配音：香草山教育部 – 蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月30日，据盖特提供的脸书——现更名为Meta公司的内部员工爆料信息显示，早在今年4月9日，其公司内部的一篇博客文章表明，该公司计划招聘多个职位，并将其受众从当前13岁的底线门槛，降至6到9岁的孩子。
 
-1.你有没有在几年前，鼓吹“人民币要暴跌，要大贬值”，开始拉爆料革命战友进你所谓的外汇discord群，然后你让战友填你的外汇经纪人代码，你赚战友佣金？
+批评者认为，Meta平台的这些文件清楚地表明，该公司的首要任务不是努力降低其现有平台对青少年的危害，而是更偏向于吸引年幼的孩子，并为其建立Meta产品的终生用户渠道，但其产品对年幼的孩子来说并不安全。
 
-2. 人民币从你鼓吹的7块涨到现在6.4了，有多少战友听了你的话，亏钱，破产？你要不要负责？
+针对Meta的这一行径，盖特CEO杰森·米勒先生在其盖文中直接评论到：“Meta的行为让人觉得不舒服”。而盖特用户的盖文评论更是直接了当地认为，Meta此举涉嫌虐待儿童。
 
-3. 你的22手人民币空单是真是假？如果是假的我希望是真的，因为你说假话我希望你多亏点钱**😂**。如果是真的我希望是假的，因为我希望你还能有点钱留着，补偿亏钱的战友。
+文字版原文：[脸书将其消费者定位最低年龄下调至6岁儿童](https://gnews.org/zh-hans/1636614/)
 
-4.你如果质疑我说的真实性，那我问你，你的discord名字是不是叫waihui？
-![](https://assets.gnews.org/wp-content/uploads/2021/11/e2095c743516a5bd449b3a3f1d2f92f8-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/0af519a50c38d23720e5f07ce2a3a3ab.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/48d23c6100549b3c3c95e3369167ce7a.jpg)
-审核校对：Barry Jack
-上传排版：F
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

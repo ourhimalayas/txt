@@ -2,30 +2,26 @@
 ---
 
 
-## 11/5/2021中日财经爆：中共股市骗局，富祥药业一天蒸发23亿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640260/)
+## COVID-19最新情报｜即便证据在眼前 佛奇仍否认曾资助武毒所
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1640735/)
 
-#### 撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/sz300497.jpg)[图片来源](https://finance.sina.com.cn/stock/s/2021-11-04/doc-iktzqtyu5420478.shtml)
-11月4日，[富祥药业](https://finance.sina.com.cn/realstock/company/sz300497/nc.shtml)早盘小幅高开，上午10点左右其股价有一波拉升，一度涨幅达4.91%，不过午后，该股股价开始一路走低，最后1小时交易时段，股价更是加速“跳水”，截至当日收盘，富祥药业报17.45元，跌幅19.21%，全天成交16.48亿元，换手率高达18.58%。一天23亿市值蒸发。
+台灣寶島農場 疫情關注組｜發佈日期/ 5/11/2021
 
-**值得注意的是，今日最高价格买入的投资者，跌幅高达23%。**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-股吧里，网友也是懵了。
 
-有网友表示，突然注意，大家都有好多疑问对吧？
+美国参议员兰德·保罗于11月4日的参议院听证会上，质询美国国家过敏和传染病研究所([NIAID](https://www.niaid.nih.gov/))主任安东尼．佛奇，关于“美国国立卫生研究院是否资助武汉病毒研究所进行功能增强实验”是否执意继续撒谎。（[相关影片片段](https://www.nationalreview.com/news/rand-paul-rips-into-fauci-over-continued-gain-of-function-research-denials-demands-resignation/https://www.nationalreview.com/videos/rand-paul-rips-into-fauci-over-persistent-gain-of-function-research-denials-demands-resignation/)）
 
-也有网友表示：“来时好好的，回不去了，谁能告诉我今天经历了什么？”
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-16.png)
-也有投资者表示：“一天亏22个点”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-9.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-6.png)
-信息来源：
+参议员保罗引用[美国国立卫生研究院承认曾经资助武汉病毒研究所进行病毒功能增强实验](https://www.nationalreview.com/news/nih-admits-to-funding-gain-of-function-research-in-wuhan-says-ecohealth-violated-reporting-requirements/)，指责佛奇公开撒谎，谎称NIH不曾资助过武毒所进行功能增强实验。保罗称：武汉病毒实验所的实验，目的在于让自然界的病毒更具危险性。佛奇撒谎美国卫生研究院未资助武汉实验室一事，保罗称这是玩语言游戏，佛奇的行为已经对美国、世界造成了明显的威胁。
 
-[尾盘闪崩！23亿市值蒸发，2.1万股东懵了！网友炸锅：1天亏22个点，还有人表示亏13万，发生了什么？](https://finance.sina.com.cn/stock/s/2021-11-04/doc-iktzqtyu5420478.shtml)
+保罗强调，资助实验室进行病毒功能增强实验，可以创造出新病毒，导致下一次的大流行。新冠病毒目前致死率约为“百分之一”，然而武汉病毒实验室正在试验一种死亡率在15-50%的新病毒，这对人类文明造成巨大的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-2-1.jpg)
+* * *
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+参考来源｜[NATIONAL REVIEW](https://www.nationalreview.com/news/rand-paul-rips-into-fauci-over-continued-gain-of-function-research-denials-demands-resignation/)
+撰文｜zhong
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

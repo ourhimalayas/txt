@@ -2,46 +2,21 @@
 ---
 
 
-## 普京警告西方民主国家不要走苏共的老路
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1642608/)
+## 雅典娜时报-第104期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1642687/)
 
-撰稿/翻译：Jenny
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-字幕翻译：Rosa
-视频截取自SkyNews
-澳大利亚Sky News电视台热议了一番俄罗斯总统两周前关于西方国家，特别是美国正在泛滥的“封杀文化”的观点。这次一反常态的是，西方媒体以欣赏的口吻在谈论普京的观点。
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/7.png)
+***发布：小红帽***
 
-另据《先驱太阳报》记者Caleb Bond称，俄罗斯总统弗拉基米尔-普京表示西方正在通过轰轰烈烈展开“政治正确运动”来摧毁自己，记者认为关于这一点普京是**正确**的。
-
-普京于10月21日，在索契举行的瓦尔代国际讨论俱乐部年会上发表了演讲，会议主题《21世纪的全球大变革》。
-
-他对西方的封杀文化和贴政治标签（扣帽子）提出了警告，他提示俄罗斯在共产主义统治时期已经 “走过了那一步”。
-
-普京认为某些西方国家打着“争取平等的斗争”已经到了荒唐的地步。
-
-“看看这种变化是非常有趣的，我的意思是，你看看那些在60年代、70年代、80年代上大学的人，他们确实在为言论自由而斗争，为表达自由而斗争，在某种程度上，为个人自由而斗争。现在上大学的人 “从根本上 “相信过去由左派推动的同样的想法，但现在他们的策略是让不同意的人闭嘴。”
-
-过去左翼人士铺设的道路，现在被左翼人士撕毁，据说是以他们祖先的名义进行的斗争。
-
-他在会上还引用了马丁．路德．金的话：‘“我有一个梦想，我的四个小孩有一天会生活在一个国家，在这个国家里，人们不会根据肤色，而是根据内涵来评判他们。”普京说：“这才是真正的价值。你知道，布尔什维克不仅谈论将财产国有化，而且谈论将妇女国有化，”
-
-**普京一语道破共产极权国家的本质。**
-
-那些争取平等的运动，其实就是打着自由的旗号放飞自己，让同性恋婚姻，吸食大麻合法化；对传统价值观则挥舞“封杀文化”大棒，反对种族主义是他们的最爱，却推出黑名贵运动。推崇政治正确的极左思想其实就是白色恐怖。
-
-普京的这段演讲不仅是对白左横行的美国，加拿大及澳大利亚的警示，同时也是对中共国和北朝鲜等这样极权暴政的警示。我们都应该回归人性，摒弃那些反人类的共产主义思潮，因为那个没有未来！
-
-[视频来源：](https://www.skynews.com.au/opinion/andrew-bolt/putin-is-right-in-claiming-the-west-is-destroying-itself-through-woke-politics/video/8afbf3686f05f8ddb0016f7d71dc9e51)
-
-（本文纯属个人观点，与G news 无关）
-
-发布：Jenny
-
-视频剪辑/字幕：澳洲天好蓝
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1.jpg)
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
