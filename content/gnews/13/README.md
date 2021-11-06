@@ -2,36 +2,35 @@
 ---
 
 
-## 美国学校试图推行儿童疫苗接种，专业医生极力反对
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1644292/)
+## 佳兆业理财产品爆雷 相关上市公司停牌
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1644362/)
 
-作者：MOS – 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月5日，美国媒体报道称，11月3日起，美国各大医疗机构和药房将推行5至11岁儿童用新冠疫苗。据悉，部分地区已为此推出各类所谓的“激励措施”，试图推广儿童用新冠疫苗。
+**撰稿：日本东京方舟农场  海星**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-4.jpeg)
+11月5日，中共国地产开发商佳兆业集团担保的一款理财产品爆雷，导致该公司和旗下3家子公司股票全部停牌。
 
-但据盖特消息报道，戴维-威斯曼医生极力反对向儿童注射新冠疫苗的政策。他表示，新冠疫苗对于儿童来说是非常不安全的。威斯曼医生指出，FDA以及CDC收到的儿童疫苗支持证据仅基于辉瑞公司的少数研究结果，但这些研究有些并没有使用经过验证的资源，还有些研究结果没有得到足够的数据检验。另外，疫苗公司更改了儿童用新冠疫苗的配方，但这一配方甚至没有经过动物测试，就直接被投入了使用。
+据《自由时报》报道，11月4日，由锦恒财富发行、佳兆业担保的一款理财产品未能如期兑付，涉及金额高达127亿人民币。当日，佳兆业股价和债券暴跌，股票下跌15%，跌至每股1港元，创下最低记录。
 
-威斯曼医生提到，已经有相关人士爆料了疫苗制造公司包括数据造假在内的各类不当操作行为，在此基础上，FDA对儿童用新冠疫苗的授权是非常不负责任的做法。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-20.jpg)图片来源：https://ec.ltn.com.tw/article/breakingnews/3726812
 
-参考链接：
-1）[Schools to Distribute Covid-19 Shots, Incentives to Vaccinate Children](https://www.wsj.com/articles/schools-to-distribute-covid-19-vaccines-incentives-to-kids-11636113601)
-2）[https://gettr.com/post/pg3kkm1567](https://gettr.com/post/pg3kkm1567)
+11月5日，佳兆业集团及旗下的佳兆业健康、佳兆业美好和佳兆业资本相继宣布在港股停牌。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+此前，惠誉和标准普尔全球评级均将佳兆业的信用评级下调至 CCC+，接近其评级范围的底部。
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
+此外，11月4日，众多投资者由于担心佳兆业偿还债务的能力，前往其深圳总部维权，场面一片混乱。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*参考链接：*
+
+[佳兆業未兌付理財產品 旗下4公司今停牌](https://ec.ltn.com.tw/article/breakingnews/3726812)
+
+* * *
+
+
+```
+素材采编：海星
+编辑：青衣青青
+校对/发布：Ranting
+```
 
 
  

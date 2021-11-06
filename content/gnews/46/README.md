@@ -2,54 +2,33 @@
 ---
 
 
-## 2021/11/05墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1643381/)
+## 新晋纽约市长力争加密货币先机
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1643167/)
 
-一、  网曝湖南一女婴住垃圾堆，脸上苍蝇乱飞。当地妇联却以尊重其母亲抚养权为由推卸责任。
+作者：英国喜庄园 – I770775
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间11月4日，刚刚胜选的纽约市长亚当斯，公开宣称自己对加密货币情有独钟。他表示，不仅他本人的前三份工资单都要以比特币的形式领取，而且他会努力把纽约转变为一个对加密货币友好的城市，争夺美国加密货币的首都地位。亚当斯坚信：“纽约市将成为加密货币行业的中心”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture113.jpg)
+加密货币以其私密性、安全性和便捷性，正受到世界越来越多人的欢迎，其被政府用作法币也将成为大势所趋。最近刚刚诞生的喜联储的加密数字货币Hcoin，与黄金挂钩，责任中心化，将成为加密货币中最卓越的选择。
 
-二、   11月1日，网传山东滨州滨医附院，很多孩子高烧不退，传80％都是大叶性肺炎
+参考链接：
+1. [新晋纽约市长力争加密货币先机](http://http--www.sinovision.net/society/202111/00506827.htm)
+2. [新晋纽约市长力争加密货币先机](https://blockchain.51cto.com/art/202111/688633.htm)
+3. [新晋纽约市长力争加密货币先机](https://tech.ifeng.com/c/83YyYlKVi6d)
 
-三、   11月3日，广州康乐村，几万人在这里找不到工作。俗称：康乐失业村。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-四、   广东东莞,以前热闹的城市如今萧条冷落，实体经济艰难，商户的商铺成了停车的车库。
+总编：童谣
+编辑：AN
+校对/发稿：Hetangyuese
 
-五、   在城市“高速发展”中出力农民工群体，干一辈子也不可能拥有一套属于自己的房子。
-
-六、   被裹挟的家长.安徽一幼儿园老师通知给小孩子送指定牌子的泡面桶和零食空桶（包装）去学校。为了孩子，只能被迫接受。
-
-七、   男子病重，高昂的医药费，让家人只能自制呼吸机维持其生命。
-
-八、   住户在半夜被通知需自我隔离一周，否则会被抓去集中管理半个月。
-
-九、   外卖生意影响学校饭堂经营，广东高校与外卖商起冲突，堵在校园门口阻挡送外卖。
-
-十、   11月4日 重庆。大爷在超市买了50斤大米，透过半透明的袋子发现里面都是霉米。
-
-十一、   11月3日，浙江湖州。男子拍视频质疑商家大米售价两天翻一倍，商家回应：前两天是活动价！
-
-十二、   11月4日，河北廊坊，卖菜大爷收到假钱, 大姐给零钱安慰。
-
-十三、  祖国的大好河山？市民拍摄被污染的河流。
-
-十四、   11月3日，钟南山：新冠病毒可能长期存在，但可控制其大规模传播。 “中共国福奇”口出狂言，其邪恶用意是什么？
-
-
-
-
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

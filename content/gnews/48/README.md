@@ -2,27 +2,34 @@
 ---
 
 
-## COVID-19 最新情报｜美国陆军外科医生作证：上级官员忽视疫苗对飞行安全的隐患
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1643266/)
+## 中共房地产崩溃之日 就是灭共之时
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1643165/)
 
-**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜6/11/2021**
+作者：五月花农场 – DM
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+郭文贵先生在11月3日大直播中谈到，中共的整个房地产领域摇摇欲坠。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_0.jpg)
+在中共国，老百姓没有土地所有权。今年将近47%的房地产，包括当年签订的30年或50年的租赁合同，纷纷临近期限或早已到期。另一边，中共官员们享有的所谓免费、低价房产也不是永久的，以钱笼络的党员随时会放弃对中共虚假的忠诚。因为害怕老百姓放弃房产，加征房地产税成了中共延续庞氏骗局的最末之伎。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture112.jpg)
+郭先生说，美国11次金融危机和二战以后的日本经济危机，全和房地产有关，房地产是导致金融信心崩溃的信号。更重要的是，中共所用的高杠杆，老百姓要付58年的平均工资，才能够付清购房款。而房地产的总市值是整个GDP的10倍之多，是货币发行量的10倍之多。
 
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+当人们不需要地产的时候，它会一毛不值，这个国家的金融系统也就毁了。而且，中共是单一金融系统，由一党全权控制着，房地产倒塌，老百姓的信心会在瞬间崩溃。
 
-美国威斯康星州共和党参议员约翰逊（R-Wisconsin）于当地时间 11 月 2 日举办了一场圆桌讨论会，会上，美国陆军资深军医、陆军中校，特丽萨·朗（Theresa Long）声明自己在《军事举报人保护法》下作证：“我确信 COVID-19 疫苗对士兵的健康和军事准备的威胁比病毒本身更大，他们应该立即停止飞行。”
+参考链接：[中共房地产崩溃之日 就是灭共之时](https://gettr.com/post/pg45ws9043)
 
-她指出，飞行员可能会因 COVID-19 疫苗的副作用而在半空中死亡，希望让接种过疫苗的飞行员停飞以监测心肌炎的症状（包括慢性疲劳），这可能导致他们在半空中死于心力衰竭。可惜，她的担忧被上级忽视了，“我做了很多努力，希望高级医疗官员至少将这种风险告知士兵，但我的担忧被忽视了。”陆军上级“甚至没有暂停”疫苗接种来跟进相关问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-她强调，美国人才是最终承担风险的人，“医学并不完美，医生亦不完美，这种疫苗更加不完美。然而，我们正强制要求每个美国人登上一架由不适合执行飞行任务的人员所驾驶的飞机。”
+总编：童谣
+编辑：AN
+校对/发稿：Hetangyuese
 
-**直击听证现场，可点击[Gettr](https://gettr.com/post/pg7bq51ab9)了解**
-
-目前，美国空军已经解雇了40 名军人，现在正准备惩罚其他数千名未能在官员规定的最后期限前接种疫苗的人，根据空军的数据，截至上周末，仍有多达 1.2 万名现役空军士兵和太空部队监护人没有接种疫苗。有评论担心，这将大大破坏美国的自卫能力。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-3.jpg)
-来源｜[AL](https://www.al.com/news/2021/11/alabama-based-army-surgeon-says-she-warned-of-covid-vaccine-injuries-was-ignored.html)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
