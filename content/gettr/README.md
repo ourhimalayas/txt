@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/6/2021 5:31 PM (UTC)`
+
+@gfashion @DDNYC 
+> `@gfashion 11/6/2021 12:43 PM (UTC)`<br/>Rock your sole…
+![img](https://media.gettr.com/group38/getter/2021/11/06/12/43/6f6105c1-d99e-62da-cc02-3fde06bd8bcb/cd2918c9da3db3007b252e8e329f96f6.jpg)
+
+---
+
 `@miles 11/6/2021 3:11 PM (UTC)`
 
 11月6号：尊敬的战友们好！正在努力加入喜联储开喜美元帐号，准备买喜币的战友们……一定准确快速正确的聪明的准备好KYC的有关材料，这是关键的关键！
@@ -289,13 +297,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 11月2号：世界的大事儿都在发生中……每一件大事的发生都对中国共产党是致命的打击👊……在美国Miles <br/><br/>Virginia弗吉尼亚的选举将再一次的震撼世界．共产党的愚蠢的行动……永远是我们灭共的最好的工具和证据．共产党你完了！
 ![img](https://media.gettr.com/group42/getter/2021/11/01/03/00/bb6530e3-01aa-235e-baf4-3ba7e2b3ba70/29377db852b34e8302c2a202028c43b0.jpg)
-
----
-
-`@miles 11/2/2021 11:17 PM (UTC)`
-
-11/2/2021 Miles Guo’s GETTR: Zhang Gaoli messes around with Peng Shuai, and all the CCP old kleptocrats sexually abuse virgins; Taking down the CCP is our central and the only goal; After the CCP is destroyed, we will establish the government of the New Federal State of China that has rule of law and religious freedom, and truly belongs to the people<br/><br/>11/2/2021 文贵盖特: 张高丽玩彭帅，中共老杂毛全都是玩幼女；灭共是我们的核心，唯一的目标，灭完共，建立一个有法治和信仰自由的、真正民天下的新中国联邦政权
-![img](https://media.gettr.com/group46/getter/2021/11/02/23/17/01d90dda-644d-e33e-a41e-1e3a9fbf74be/out.jpg)
 
 ---
 
