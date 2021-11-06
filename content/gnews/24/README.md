@@ -2,56 +2,44 @@
 ---
 
 
-## 辉瑞疫苗一项重要临床试验存在问题被调查
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1642692/)
+## 美11个州起诉拜登政府私营企业疫苗强制令
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1642721/)
 
 俄罗斯莫斯科喀秋莎农场   仰望七星
 
 编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/P-2.jpg)liberalforum.net
-《塔克·卡尔森团队》发表文章，题目是，“辉瑞中共病毒疫苗试验问题的报告正在接受调查”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/V-2.jpg)俄罗斯莫斯科喀秋莎农场 剿匪打工仔
+《汉尼提》（Hannity）发表文章，“11 个州起诉拜登政府私营企业疫苗强制令”。【1】
 
 全文如下：
 
-参与研究的一家合同公司证实，辉瑞公司的一项中共病毒疫苗的重要临床试验被指存在问题，正在接受调查。
+11个州的总检察长星期五（11月5日）提起诉讼，阻止拜登政府对拥有100名以上雇员的私营企业实施疫苗强制令，强制令定于1月4日生效。
 
-在2020年秋季“文塔维亚研究机构”（Ventavia Research Group）运营了几个试验点，在此期间为该机构工作的布鲁克·杰克逊（Brook Jackson）告诉《英格兰医学杂志》（the British Medical Journal），该试验充满了各种问题，包括伪造数据。
+如果颁布，这项强迫令将适用于8400万工作人员，其中约3100万人尚未接种疫苗。
 
-杰克逊说，她向食品和药物管理局（FDA）通报了她所目睹的问题，并在数小时内被解雇。
+“这项强迫令是违宪的、非法的、不明智的。” 诉讼书说。该诉讼由密苏里州总检察长埃里克·施密特（Eric Schmitt）领导。
 
-“文塔维亚” 向《大纪元》（The Epoch Times）证实，该公司去年雇用了杰克逊两周时间。业务发展和沟通总监劳伦·福尔曼（Lauren Foreman）在一封电子邮件中表示，“文塔维亚”正在调查杰克逊的指控。
+该诉讼由密苏里州提起，阿拉斯加、亚利桑那州、阿肯色州、蒙大拿州、内布拉斯加州、新罕布什尔州、爱荷华州、北达科他州、南达科他州和怀俄明州加入了诉讼。
 
-“‘文塔维亚’非常重视研究合规性、数据完整性和参与者的安全，赞成其支持开发拯救生命的疫苗的重要工作，并正在进行相应的调查。” 她说。
+“对大型私营企业的这项命令，是政府抗击中共病毒工作中影响最深远、政治上最具争议的措施，至少有24个州的总检察长声言要起诉，共和党州长和一些行业贸易团体已经站出来反对这一行政令，而美国20%仍未接种疫苗的成年人也反对这项强制令。” 《纽约时报》报道。
 
-美国食品和药物管理局（FDA）似乎证实了其对此事的了解。
+这项强制令于9月宣布，推迟到了1月初生效，以帮助缓解对节日期间供应链的担忧。
 
-一位女发言人在电子邮件中告诉《大纪元》：“尽管FDA目前无法对这一正在进行的事件作进一步评论，但FDA对用于批准辉瑞中共病毒疫苗的紧急使用授权和正式批准其‘Comirnaty’疫苗的数据充满信心。”
+“与‘职业安全与健康管理局’（OSHA，The Occupational Safety and Health Administration）不同，‘医疗保险和医疗补助服务中心’（CMS，the Centers for Medicare and Medicaid Services）正在发布一项规定，要求参与医疗保险和医疗补助的医疗机构的医护人员全面接种疫苗，CMS规定也将于1月4日生效，它覆盖了全国约76,000家医疗机构的1,700多万工人。”《福克斯新闻》报道。
 
-“文塔维亚”参与了申请辉瑞疫苗紧急使用授权（EUA）的试验，FDA后来正式批准了“Comirnaty”疫苗，而在美国使用的所有辉瑞疫苗仍然是紧急使用授权（EUA）版本的。
+福克斯补充道：“白宫周四（11月4日）还表示，将把其联邦承包商疫苗强制令的最后期限从12月8日推迟到1月4日，共和党总检察长联盟已经对联邦承包商强制令提起了诉讼。”
 
-辉瑞公司没有立即回应置评请求。
-
-杰克逊在临床试验方面工作了15年多，她告诉《英格兰医学杂志》，她反复向她的上级提出她对所目睹情况的担忧，包括患者安全方面的担忧。她开始觉得自己的报告被忽视，于是开始用手机拍照。一张照片明显表明针头被丢弃在塑料袋中而不是盒子中，而另一张照片则显示出包装材料上有试验参与者的身份号码，这些都表明临床试验不是在双盲条件下做的，（笔者注：这违反了临床试验的设计标准）。
-
-杰克逊在9月25日给FDA的一封信中列出了她所关注的12个问题，包括参与者在接受注射后没有接受监控，疫苗没有储存在适当的温度下，她还指控“文塔维亚”的员工因报告的问题而成为上级关注的目标。
-
-杰克逊说，FDA给她发了一封电子邮件，确认收到了相关人员的名单，她还接到了FDA检查员的电话，但从那时起她就再也没有收到该机构的任何消息。
-
-《大纪元》根据《信息自由法》（Freedom of Information Act）已经向FDA提交了一份请求，请求FDA提供涉及杰克逊的电子邮件以及FDA关于该消息的内部通信。
-
-FDA8月份表示，它检查了153个试验点中的9个，“文塔维亚”的所有试验点均未接受检查。
-
-一名FDA官员在检查总结中写道，检查是受限制的，“因为研究正在进行，新药调查（IND，investigational new drug ）所需确认和比较的数据尚未完成。”
-
-派克塞尔（Paraexel）技术副总裁菲利普·克鲁克（Philip Crooker）在2020年12月的一次论坛上表示，一些制药公司被豁免了检查，或者FDA官员决定进行远程检查。根据FDA的数据，2020年对国内试验点的检查从2019年的13001次骤降至6574次。
+阅读《纽约时报》的完整报道原文给了链接。
 
 （全文完）
 
-从FDA官员的回复看得出对辉瑞公司的袒护，既然“检查受限制”、“研究正在进行”、“数据尚未完成”，你们怎么能据此不完整数据就批准了疫苗紧急使用授权？甚至还正式批准了一款有名无实的疫苗？有人向你们举报了内部的问题，举报者随即遭到解雇。怎样越看越像中共国出现的问题？其实，看看FDA、CDC背后的金主，再看看他们和几大制药企业之间的人员流动，就很容易明白啥叫“利益冲突”。这次中共病毒疫苗灾难发生，越来越让人看清这些大药企和卫生监管部门等机构长期狼狈为奸，视普通人生命如儿戏的假恶丑态，等待他们的必将是世纪审判！
+州总检察长动起来了，最高立法者的参议院也在行动【2】，爆料革命、新中国联邦已经将美国揭露中共罪恶、阴谋集团罪孽的行动推向了新的高潮。
 
-原文链接：
+有关链接：
 
-[https://teamtuckercarlson.com/news/report-of-problems-with-pfizer-covid-vaccine-trial-being-investigated/](https://teamtuckercarlson.com/news/report-of-problems-with-pfizer-covid-vaccine-trial-being-investigated/)
+【1】[https://hannity.com/media-room/breaking-11-states-sue-biden-administration-over-vax-mandate-for-private-businesses/?utm\_source=rss&utm\_medium=rss&utm\_campaign=breaking-11-states-sue-biden-administration-over-vax-mandate-for-private-businesses&utm\_source=hootsuite](https://hannity.com/media-room/breaking-11-states-sue-biden-administration-over-vax-mandate-for-private-businesses/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=breaking-11-states-sue-biden-administration-over-vax-mandate-for-private-businesses&amp;utm_source=hootsuite)
+
+【2】[https://gnews.org/zh-hans/1637182/](https://gnews.org/zh-hans/1637182/)
 
  
 

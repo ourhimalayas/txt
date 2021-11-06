@@ -2,30 +2,32 @@
 ---
 
 
-## 有声|脸书将其消费者定位最低年龄下调至6岁儿童
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1642669/)
+## GTV新闻访谈简报|2021年11月5日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1642693/)
 
-配音：香草山教育部 – 蒙古鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-10月30日，据盖特提供的脸书——现更名为Meta公司的内部员工爆料信息显示，早在今年4月9日，其公司内部的一篇博客文章表明，该公司计划招聘多个职位，并将其受众从当前13岁的底线门槛，降至6到9岁的孩子。
+作者：香草山翻译部
 
-批评者认为，Meta平台的这些文件清楚地表明，该公司的首要任务不是努力降低其现有平台对青少年的危害，而是更偏向于吸引年幼的孩子，并为其建立Meta产品的终生用户渠道，但其产品对年幼的孩子来说并不安全。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36.png)
 
-针对Meta的这一行径，盖特CEO杰森·米勒先生在其盖文中直接评论到：“Meta的行为让人觉得不舒服”。而盖特用户的盖文评论更是直接了当地认为，Meta此举涉嫌虐待儿童。
 
-文字版原文：[脸书将其消费者定位最低年龄下调至6岁儿童](https://gnews.org/zh-hans/1636614/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1105text-SC.png)
+校对：Stay文苑
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[11.5 晚GTV新闻访谈](https://gtv.org/broadcast/watch/6185cbfb11d18629680240c1)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
 
  
 
