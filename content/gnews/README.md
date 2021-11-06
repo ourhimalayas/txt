@@ -15,107 +15,107 @@
 
 ---
 
-### [有声|脸书将其消费者定位最低年龄下调至6岁儿童](/content/gnews/1/README.md)
- ` MOSREC`
-
-### [新西兰财经G乐部 2021年11月5日](/content/gnews/2/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [有声|坎特国会山前声援中国人权 指责NBA保持沉默](/content/gnews/3/README.md)
- ` MOSREC`
-
-### [新西兰财经G乐部 2021年11月4日](/content/gnews/4/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [11/5/2021 文贵直播： 中共在各国阻止喜币上市的行动彻底失败，1000多家金融机构已入驻喜交易所](/content/gnews/5/README.md)
- ` 秘密翻译组-北美组`
-
-### [2021年11月3日文贵大直播简报](/content/gnews/6/README.md)
- ` 秘密翻译组-原创组`
-
-### [普京警告西方民主国家不要走苏共的老路](/content/gnews/7/README.md)
- ` 澳喜农场`
-
-### [四问财经真相](/content/gnews/8/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [辉瑞研究中心举报人质疑数据可靠性](/content/gnews/9/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [文贵爆料2021.11.5 一位资本主义创始者老银行家对战友的三点智慧建议](/content/gnews/10/README.md)
- ` 秘密翻译组-原创组`
-
-### [反了](/content/gnews/11/README.md)
- ` 纽约香草山MOS03`
-
-### [文贵爆料2021.11.5：遵守规则与法律是新中国联邦人必须践行的常识](/content/gnews/12/README.md)
- ` 秘密翻译组-原创组`
-
-### [华尔街下调对中共国经济增长预期](/content/gnews/13/README.md)
- ` 纽约香草山MOS02`
-
-### [樱花灭共诗——南乡子•抢购潮](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本将根据合同开始疫苗活性药物成分的生产](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [墙内要闻汇编 11月5日](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [英国西敏公学中止在中共国建校计划](/content/gnews/17/README.md)
- ` 纽约香草山MOS02`
-
-### [北京冬奥会私密“娱乐中心”将会让运动员兴奋地飞翔](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [加拿大新感染新冠的人数12岁以下儿童最多](/content/gnews/19/README.md)
- ` MG FARM`
-
-### [捷克政治家呼吁采取“一个台湾政策”](/content/gnews/20/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [疫情占用新州医疗资源，手术遥遥无期病人只能等死](/content/gnews/21/README.md)
- ` 走进澳洲`
-
-### [中共當局敦促人們在可能出現短缺的情況下囤積糧食](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [辉瑞公司首席执行官被捕？](/content/gnews/23/README.md)
- ` Itana`
-
-### [中共叫嚣要对台外长吴钊燮等“台独”分子追究刑事责任](/content/gnews/24/README.md)
- ` 军迷wilson`
-
-### [中共即将囯有化百年《南华早报》](/content/gnews/25/README.md)
- ` 军迷wilson`
-
-### [蔡英文首次公开承认美国驻军台湾](/content/gnews/26/README.md)
+### [雅典娜时报-第104期](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“你并不孤单”：欧盟议会代表团第一次正式访问台湾](/content/gnews/27/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [有声|脸书将其消费者定位最低年龄下调至6岁儿童](/content/gnews/2/README.md)
+ ` MOSREC`
 
-### [Covid疫苗刺突蛋白破坏DNA修复途径，为癌症的生长和传播铺平了道路](/content/gnews/28/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [新西兰财经G乐部 2021年11月5日](/content/gnews/3/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [文贵爆料2021.11.5：新中国联邦和台湾可以同级别一起加入联合国](/content/gnews/29/README.md)
+### [有声|坎特国会山前声援中国人权 指责NBA保持沉默](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [新西兰财经G乐部 2021年11月4日](/content/gnews/5/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [11/5/2021 文贵直播： 中共在各国阻止喜币上市的行动彻底失败，1000多家金融机构已入驻喜交易所](/content/gnews/6/README.md)
+ ` 秘密翻译组-北美组`
+
+### [2021年11月3日文贵大直播简报](/content/gnews/7/README.md)
  ` 秘密翻译组-原创组`
 
-### [美国各地的医院正在发生一些非常奇怪的事情](/content/gnews/30/README.md)
+### [普京警告西方民主国家不要走苏共的老路](/content/gnews/8/README.md)
+ ` 澳喜农场`
+
+### [四问财经真相](/content/gnews/9/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [辉瑞研究中心举报人质疑数据可靠性](/content/gnews/10/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [文贵爆料2021.11.5 一位资本主义创始者老银行家对战友的三点智慧建议](/content/gnews/11/README.md)
+ ` 秘密翻译组-原创组`
+
+### [反了](/content/gnews/12/README.md)
+ ` 纽约香草山MOS03`
+
+### [文贵爆料2021.11.5：遵守规则与法律是新中国联邦人必须践行的常识](/content/gnews/13/README.md)
+ ` 秘密翻译组-原创组`
+
+### [华尔街下调对中共国经济增长预期](/content/gnews/14/README.md)
+ ` 纽约香草山MOS02`
+
+### [樱花灭共诗——南乡子•抢购潮](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本将根据合同开始疫苗活性药物成分的生产](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [墙内要闻汇编 11月5日](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [英国西敏公学中止在中共国建校计划](/content/gnews/18/README.md)
+ ` 纽约香草山MOS02`
+
+### [北京冬奥会私密“娱乐中心”将会让运动员兴奋地飞翔](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加拿大新感染新冠的人数12岁以下儿童最多](/content/gnews/20/README.md)
+ ` MG FARM`
+
+### [捷克政治家呼吁采取“一个台湾政策”](/content/gnews/21/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [疫情占用新州医疗资源，手术遥遥无期病人只能等死](/content/gnews/22/README.md)
+ ` 走进澳洲`
+
+### [中共當局敦促人們在可能出現短缺的情況下囤積糧食](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年11月3日郭文贵先生直播全文字版](/content/gnews/31/README.md)
+### [辉瑞公司首席执行官被捕？](/content/gnews/24/README.md)
+ ` Itana`
+
+### [中共叫嚣要对台外长吴钊燮等“台独”分子追究刑事责任](/content/gnews/25/README.md)
+ ` 军迷wilson`
+
+### [中共即将囯有化百年《南华早报》](/content/gnews/26/README.md)
+ ` 军迷wilson`
+
+### [蔡英文首次公开承认美国驻军台湾](/content/gnews/27/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [“你并不孤单”：欧盟议会代表团第一次正式访问台湾](/content/gnews/28/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [Covid疫苗刺突蛋白破坏DNA修复途径，为癌症的生长和传播铺平了道路](/content/gnews/29/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [文贵爆料2021.11.5：新中国联邦和台湾可以同级别一起加入联合国](/content/gnews/30/README.md)
+ ` 秘密翻译组-原创组`
+
+### [美国各地的医院正在发生一些非常奇怪的事情](/content/gnews/31/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021年11月3日郭文贵先生直播全文字版](/content/gnews/32/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [[重点推荐]Newsmax记者Robinson因触及疫苗背后可怕的故事被停职](/content/gnews/32/README.md)
+### [[重点推荐]Newsmax记者Robinson因触及疫苗背后可怕的故事被停职](/content/gnews/33/README.md)
  ` 温哥华扬帆农场`
 
-### [研究报告揭示中共病毒和疫苗抑制DNA修复破坏免疫系统](/content/gnews/33/README.md)
+### [研究报告揭示中共病毒和疫苗抑制DNA修复破坏免疫系统](/content/gnews/34/README.md)
  ` 日本东京方舟农场`
-
-### [中共当局敦促人们在可能出现短缺的情况下囤积粮食](/content/gnews/34/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [拥有了喜币就拥有了铸币权！喜币与股票的本质区别！](/content/gnews/35/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
