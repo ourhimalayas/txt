@@ -2,30 +2,27 @@
 ---
 
 
-## 喜币价格上涨200倍，估值突破两万亿美元
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1643166/)
+## COVID-19 最新情报｜美国陆军外科医生作证：上级官员忽视疫苗对飞行安全的隐患
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1643266/)
 
-作者：英国喜庄园 – I770775
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-盘古时间，11月5日早上八点多，喜币单价在一路上升的路上，顺利突破20美元，涨幅达200倍。至此，喜币流通市值已达200亿美元，总估值突破两万亿美元，稳居所有加密货币前列。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture111.jpg)
-自11月1日上市以来，喜币价格一直保持稳步上升的态势：24小时就达8.050美元，48小时内突破10美元，72小时内突破20美元……在短短三天的时间内，喜币就完成了比特币整整7年的成绩，这是全球虚拟币市场绝无仅有的成绩。
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜6/11/2021**
 
-参考链接：[喜币价格上涨200倍，估值突破两万亿美元](https://himalaya.exchange/trading)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_0.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-总编：飞虹
-编辑：文徬
-校对/发稿：Hetangyuese
+美国威斯康星州共和党参议员约翰逊（R-Wisconsin）于当地时间 11 月 2 日举办了一场圆桌讨论会，会上，美国陆军资深军医、陆军中校，特丽萨·朗（Theresa Long）声明自己在《军事举报人保护法》下作证：“我确信 COVID-19 疫苗对士兵的健康和军事准备的威胁比病毒本身更大，他们应该立即停止飞行。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+她指出，飞行员可能会因 COVID-19 疫苗的副作用而在半空中死亡，希望让接种过疫苗的飞行员停飞以监测心肌炎的症状（包括慢性疲劳），这可能导致他们在半空中死于心力衰竭。可惜，她的担忧被上级忽视了，“我做了很多努力，希望高级医疗官员至少将这种风险告知士兵，但我的担忧被忽视了。”陆军上级“甚至没有暂停”疫苗接种来跟进相关问题。
+
+她强调，美国人才是最终承担风险的人，“医学并不完美，医生亦不完美，这种疫苗更加不完美。然而，我们正强制要求每个美国人登上一架由不适合执行飞行任务的人员所驾驶的飞机。”
+
+**直击听证现场，可点击[Gettr](https://gettr.com/post/pg7bq51ab9)了解**
+
+目前，美国空军已经解雇了40 名军人，现在正准备惩罚其他数千名未能在官员规定的最后期限前接种疫苗的人，根据空军的数据，截至上周末，仍有多达 1.2 万名现役空军士兵和太空部队监护人没有接种疫苗。有评论担心，这将大大破坏美国的自卫能力。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-3.jpg)
+来源｜[AL](https://www.al.com/news/2021/11/alabama-based-army-surgeon-says-she-warned-of-covid-vaccine-injuries-was-ignored.html)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

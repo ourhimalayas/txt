@@ -2,52 +2,16 @@
 ---
 
 
-## 欧洲央行表示需要发行数字货币
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1644507/)
+## 加拿大疫情统计
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1644584/)
 
-作者：纽约香草山农场 – 四季
+2021年11月6日
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+作者：沉默老歌
 
-
-
-
-
-欧洲央行执委帕内塔(Fabio Panetta)11月5日表示，欧洲央行有必要发行数字欧元，如将发起的空间完全让给稳定币等私营部门，可能会危及金融稳定，削弱央行的作用。
-
-帕内塔表示，历史证明，金融稳定和公众对货币的信任需要公共货币和私人货币一道被广泛使用。
-
-欧洲央行一直在致力于设计一种数字货币，像现金一样直接由央行发行，并已于7月14日宣布启动数字欧元项目并展开相关调研，预计该项目仍可能需要大约五年时间才能推出一种真正的货币。
-
-全球数字货币热潮升温，喜马拉雅币在上市后短短3天内创下了价格上涨200倍的记录，其估值已经突破2万亿美元。
-
-**参考阅读：**
-
-[欧洲央行不能将数字货币空间完全让位于私营部门–执委帕内塔 | Reuters](https://cn.reuters.com/article/ecb-panetta-digital-euro-1106-idCNKBS2HR037)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+截止时间2021年11月5日美东时间20:00
+![](https://assets.gnews.org/wp-content/uploads/2021/11/110621.jpg)
+发布：涅
 
  
 

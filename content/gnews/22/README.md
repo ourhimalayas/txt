@@ -2,34 +2,37 @@
 ---
 
 
-## “海底捞”将关停300家门店
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1644269/)
+## 佳兆业理财产品爆雷 相关上市公司停牌
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1644362/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月5日，相关报道提及，海底捞在香港联交所发布公告表示，将于2021年底，逐步关停300家左右经营业绩不佳的门店。
+**撰稿：日本东京方舟农场  海星**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-5.jpeg)
+11月5日，中共国地产开发商佳兆业集团担保的一款理财产品爆雷，导致该公司和旗下3家子公司股票全部停牌。
 
-消息称，截至2021年6月31日，海底捞全球门店总数约为1600家。但从财报的数据看，今年上半年，海底捞的营收业绩为200亿元，净利润仅0.97亿元，与2019年同期相比大幅下降，暴跌近90%。另有数据显示，截至目前，海底捞的股价年内已下跌70%，市值蒸发超过3500亿港元。
+据《自由时报》报道，11月4日，由锦恒财富发行、佳兆业担保的一款理财产品未能如期兑付，涉及金额高达127亿人民币。当日，佳兆业股价和债券暴跌，股票下跌15%，跌至每股1港元，创下最低记录。
 
-有关评论表示，海底捞是中共统治下私营企业的缩影。在中共经济面临崩溃的当下，中共国内没有一个企业是安全的。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-20.jpg)图片来源：https://ec.ltn.com.tw/article/breakingnews/3726812
 
-参考链接：[“火锅之王”扩张之殇：海底捞将关停1/5门店](https://m.sohu.com/a/499459254_100011510/?pvid=000115_3w_a)
+11月5日，佳兆业集团及旗下的佳兆业健康、佳兆业美好和佳兆业资本相继宣布在港股停牌。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+此前，惠誉和标准普尔全球评级均将佳兆业的信用评级下调至 CCC+，接近其评级范围的底部。
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
+此外，11月4日，众多投资者由于担心佳兆业偿还债务的能力，前往其深圳总部维权，场面一片混乱。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*参考链接：*
+
+[佳兆業未兌付理財產品 旗下4公司今停牌](https://ec.ltn.com.tw/article/breakingnews/3726812)
+
+* * *
+
+
+```
+素材采编：海星
+编辑：青衣青青
+校对/发布：Ranting
+```
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

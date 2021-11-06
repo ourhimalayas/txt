@@ -2,34 +2,51 @@
 ---
 
 
-## 中共力推数字人民币，意图建立支付防火墙
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1644214/)
+## 中共病毒疫苗诱发的心肌炎比自然感染严重100倍
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1644308/)
 
-作者：东京樱花团 – 修文
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据11月5 日的消息显示，近日，中共官方正在力推数字人民币的使用。据了解，中共计划在明年冬奥会期间全面推出数字人民币，并要求在冬奥会开幕前，包括麦当劳、耐克和Visa在内的美国各大公司需安装支持数字人民币的系统。
+**撰稿：日本东京方舟农场  北极**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-3.jpeg)
+“秘密翻译组”11月4日发布在GNEWS上的一段视频揭示，接种中共病毒疫苗所诱发的心肌炎，其严重程度超过自然感染中共病毒所引发心肌炎的10-100倍。
 
-美国安全中心的高级研究员称，外企如果为了商业利益，只能被迫加入这个系统。如果数字人民币普及，中共将建立起一道支付防火墙，并以此向全球公司施压。
+在该视频中，来自德克萨斯州的彼得·麦卡洛（Peter McCullough）博士指出，感染中共病毒所导致的心肌炎，症状轻微，不会导致严重后果，仅会在血液化验中观察到肌钙蛋白升高。
 
-有评论指出，中共的此番要求使得这些公司陷入了维护数据安全和在华商业利益的两难困境。多位相关人士指出，数字人民币倾向于给中共当局更多的权力，但给货币持有人更少权利，且中共政府正试图以此加强对支付数据的控制，并遏制同行业的竞争对手。
+麦卡洛博士进一步指出，接种中共病毒疫苗所诱发的心肌炎，症状严重。因为疫苗中的脂质纳米颗粒直接进入心脏，引发剧烈的心电图变化、胸痛和早期心力衰竭，而血液中肌钙蛋白浓度超过病毒感染所导致心肌炎的10-100倍。
 
-参考链接：[中国力推数字人民币 外国商户压力大](https://www.voachinese.com/a/china-digital-yuan-us-companies-20211104/6300428.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-26.png)图片来自网络
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+麦卡洛博士进一步解释说，前期临床研究表明，接种疫苗后，疫苗并未局限在注射部位，而是进入血液，随循环分布全身各个系统。当疫苗中的脂质纳米颗粒到达心脏时，心脏就会表现出因刺突蛋白而产生的反应，从而引起自身免疫系统对心脏展开攻击。
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：谐趣园
+肌钙蛋白是一种针对表征心肌炎引发的心脏损伤的血液检测。根据“实验在线网站”（lab tests online）信息，肌钙蛋白存在于心肌内。当心肌细胞损伤时，肌钙蛋白就会被释放到血循环中。正常情况下，血液中的肌钙蛋白含量非常少；如果发生大面积心肌损伤，血液中就会出现高浓度的肌钙蛋白。麦卡洛博士特别强调，因疫苗引发的心肌炎是一个大问题，比因感染中共病毒引发的心肌炎更严重、更突出，特别是发生在儿童身上，则是表现得尤其严重。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*参考链接：*
+
+[肌钙蛋白](https://labtestsonline.org.cn/tests/troponin)
+
+
+
+> [疫苗诱发的心肌炎比中共病毒引发的心肌炎要严重得多](https://gnews.org/zh-hans/1639362/)
+
+
+
+
+
+> [美国前线医生起诉书(3)：疫苗的风险超过它们的好处](https://gnews.org/zh-hans/1425988/)
+
+
+
+* * *
+
+
+```
+素材采编：北极
+编辑：青衣青青
+校对/发布：Ranting
+```
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
