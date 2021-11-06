@@ -2,35 +2,63 @@
 ---
 
 
-## 人人都有一双眼
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1642103/)
+## 病毒不是目的，病毒是手段，疫苗是真正的这场灾难的目的
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1642276/)
 
-By：银河勇气星｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/11/33.jpg)
-共产党的高官无论是否在高位，张高丽这样的n把手，排到不知道多靠后了，敢性侵运动员彭帅，且张高丽的老婆处处纵容。张的秘书天天给他找处女找姑娘，有天竟然就差点让自己的亲侄女堕入魔窟，秘书用自己全家一直被边控才换回了亲侄女脱离张高丽那双魔爪。一江春水向东流，也许多少幼女处女的血泪流尽，比不上张高丽的一句“宇宙很大，地球就是一粒沙”。知流勇退，张高丽送给秘书这样一幅字，油头油嘴弄得滑腻腻。似乎到了张高丽这儿，谁都站不稳。
+我可以负责任地告诉大家，你再看我一周前、两周前、三周前，所有的疫苗说过的事情：病毒不是目的，病毒是手段，疫苗是真正的这场灾难的目的。
 
-七哥直播里说张高丽那是要做皇帝的人，根本不想做什么常委。然而如果让张高丽来西方法治国家和七哥PK，他连给七哥当司机都不能一周做五天，只让他做四天，给四天的钱。中南坑的狂妄在全世界排第一谁敢排第二？小金也不过是个后来学习者，有不及而无不过，小金不敢在自己大哥中南坑面前狂，但是中南坑敢在全世界狂。七哥那时候给战友说全世界都要遵从的金钱法则，有那么三条，1钱从哪儿来，2钱到哪儿去，3别人给你代持的钱去处是否合法，这三条，中南坑赵姓子孙和金家都不用遵守。换句话说，共产党就不是这个世界应该存在得如此普遍的现象，还统治了世界上20percent的人口。
+I am fully responsible for what I am about to say. Please consider what I said in the past three weeks about the vaccine: The virus is only an instrument, the delivery of the vaccine is the final goal of this disaster.
 
-共产国际是个邪魔组织，搞地下交易，探人隐私，偷听才是他们的主业。本来都是些见不得光的事情，没想到从屎达林那里走向了明面。紧接着屎达林的亲儿子毛贼东又把这股血光邪火铺满在中国大地。监听，边控，把人性的阴暗面的事情进行记录存档，拿来要挟每个人。作为人，有身体，有生理，有精神波动，那些非正常时候的你不想第二个人知道的事情，有人给你录下来，某天还在一个大会议厅里像放电影一样，台下坐着涉事观众，让你们彼此看一看另外一个世界的自己。比恐怖片还恐怖。邪教里面说“全视之眼”，他们正在做着这些一览无余的事情，把你从里到外都透视一遍，让人时刻活在恐惧中。
+七哥2020年1月2号、2020年2月2号我都在直播中说过，这场灾难共产党所有的这个所谓的病毒绝对就是生化病毒。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7df799652a7ce5dd.jpg)各种各样的全视之眼 / 图源：网路
+I have mentioned this in the broadcasts on Jan 2 and Feb 2, 2020 that this so called virus from the CCP is actually a biological weapon.
 
-这样的邪恶势力在地球这里打着各种幌子，如果按照正常渠道入驻地球，对他们来说是一定不可以的。然而自从科技社会进步以来，无处不在的摄像头盯着你的一举一动，五花八门的APP收集着各种隐私信息，最近的疫苗通行证，更加把全面生物信息监控纳入合法纳入“为你好”的程式中。共产党和邪恶组织找到了人类社会畅行无阻的牌照，就是把不合理不合法的操作变得合法甚至变得高尚。什么是好什么是坏，最基本的辨别善恶的能力，在这些泾渭不分的所谓规则里，都没有了。张高丽就是想睡人家彭帅，你有那个魅力，有那个能力，男女荷尔蒙到了那个点，还怕她不和你睡吗？还把人家彭帅给吓哭了，还非要给人讲哲学，讲太空，“宇宙很大，地球就是一粒沙”。张高丽连性行为是什么都不知道，他给彭帅在这讲宇宙，讲地球。
+我再重申：来自中国共产党的生化病毒，不是中国人的，是（共产党）有意识的长期的积累，这是1969年、1970年在美国已经研发成熟的冠状病毒生化武器，后来被共产党蓝金黄美国，由在美国学习和美国有人出卖美国技术给了中共。
 
-共产党和邪恶组织了解到的人性，就是那么一点点，大海里的一滴水。宇宙就是很大，人类现在发明的任何vehicle都无法超过光速，但是人的思想那可是比光速快多了。现实世界的发明创造仅仅用了人大脑能力的一点点，更大更广阔的世界在等着人类去探索，那会儿说不定有多精彩。正因为共产党怕的就是这个，邪恶组织就怕你把大脑全开发了对他们进行反杀，他那一点点容量，一点点技术，和真正的技术PK起来，呵呵。好比共产党天天叫嚣要打台湾，而美国只要用3分钟就能全部给他摧毁，就这他还天天叫嚣，呵呵。
+Let me repeat myself: This weapon-grade virus from the CCP is not from the Chinese people, instead it is the result of a long-term deliberate plan of the CCP. The technology to weaponize corona viruses was already mature in the US in the late 1960s. It was later acquired by the CCP by infiltrating the scholars and relevant personnel in the US.
 
-共产党的习家，江家，脑子里天天就是人斗人那一套，带着文革的血液，做着封建时代的皇帝梦，一夜回到大秦，回到朕的家天下时代。老话说家有一老如有一宝，岁数大在任何时候都好像挺吃香的，“我吃过的盐比你走过的路都多”，大人们经常这样教育小辈。共产党100年，走哪儿都是倚老卖老，岁数大了不起的样子，动不动就中国上下五千年历史，这够岁数大吧，但有你共产党什么事儿？岁数再大，历史再长，吃的盐再多，一个活在过去的人没有未来，天天想着回到过去，你问问秦始皇同不同意？被困在时间里的人，活动范围就是那么点大，未来尚且没有进入他的眼睛，他只能倒着走，只能重复历史里所谓的辉煌。他们的眼睛都好小好小。
+中共把它尝试要用在香港运动和美国到武汉的军人运动会上，就是要释放病毒。而且释放病毒要停止香港运动，对打台湾制造国际恐怖，有计划地进行它的全人类的和黑暗势力统治人类的整个计划。
 
-当年鲧治水，办法就是堵水，越堵越堵不住。共产党攻击爆料革命喜联储的办法就是硬堵，黑客各种攻击，内部各种分化。带走的只是爆料革命不需要的人，从这个意义来说，爆料革命新中国联邦很大，看得很远，七哥带我们一路同行。
+The CCP tried to use the Covid-19 virus on the freedom fighters in Hong Kong, and the US participants of the World Military Games in Wuhan. The CCP aimed to suppress the demonstration in Hong Kong and threaten the whole world in preparation of the attack of Taiwan. It is a part of a plan to enslave the whole human race in collaboration with the dark force of the world.
 
-* * *
+病毒制造恐慌、死亡、经济萎软，然后把供应链全部打断，同时把世界上金融家希望的所有的养老基金不能兑现的、挪用的，（让）全部老人死掉。金融界认为多余的、还不了的债然后全都不用还。
 
-作者：骄子
-审核：兵嫂、天雷滚滚
-发布：骄子
+The virus will cause panic, death and a recession of the economy. It will break down the supply chains. At the same time it will kill most of the seniors around the world so that they will have no claim of their pension investments, which have been stolen by the elites in the financial market. The debts that cannot be repaid in the global financial system are therefore forgiven.
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家-1.jpeg)
+全世界的政治格局由于黑暗势力和他们之间的合作，只认可他们能同流合污、共同上过床、共同扛过枪、未来还能共同嫖娼的这些所谓政客。
+
+The grim political outlook of the world is a result of the collusion between the dark force and these corrupt politicians. They all have common evil practices and hope it will continue in the future.
+
+那么这些统治是什么呢？首先是辉瑞制药、中国的科兴制药、中国的国药、还有瑞士几大制药厂。全世界最大的药厂和全世界的大概200万个专利，在不超过十个家族控制着。
+
+So what are these groups of people in charge of? Firstly they control Pfizer, Kexing Pharmaceutical, China National Pharmaceutical Group and a few big pharmaceutical companies in Switzerland. Most of the big pharmaceutical companies around the world and about 2 million patents are controlled by no more than ten families.
+
+其中体现的手段，全美国的所有媒体在四个半家族控制。我说这话我都负法律责任，谁不服谁来告我，谁不告我谁是孙子。全美国的媒体四个半家族，全人类的社交媒体就两个半家族控制。全世界的财富是1%的人拥有和90%的人同样比例的财富。
+
+All the media in the US are controlled by four and a half families. I am legally responsible in saying all these things, so feel free to sue me if you think I am lying. All the media in the US are controlled by four and a half families and all the social media around the world are controlled by two and a half families. 1% of the global population possesses the same amount of wealth as the other 90%.
+
+而且这次对种族是有计划的谋杀。现在可能最惨的就可能是对犹太人，然后最惨的很有可能就是加拿大，然后就是美国人。
+
+This premeditated genocide will hit the Jews the hardest, then will be the Canadians and the Americans.
+
+那么这次打病毒中招最厉害的是什么？律师、会计师、明星、运动员、国家公务员。这些人被干掉以后，正好解决了现在人类太聪明、太专业，都追求法治、民主、自由的人类。没有人类了、没有律师、没有会计师、没有医生、没有年轻的政治家，就剩下了中南坑那些老杂毛。
+
+What groups of people suffer the most in this around of vaccine attack? It will be the lawyers, accountants, celebrities, athletes and government workers. After the death of these intelligent people with specialized skills, who also pursued rule of law, democracy and freedom, all there is left are the CCP elites in Zhongnan Pit.
+
+还剩下了今天你看到的加拿大、日本、以色列这些疯狂的完全没有末日的，完全没有末日感，也没有未来的这帮流氓政客。大家看明白了吗？这就是结局。
+
+There are also these corrupt and insane politicians in Canada, Japan and Israel, who have no sense of the end and have no future. They will also remain. Is it clear to everyone? This will be the end result.
+
+所以说疫苗灾难、疫苗大屠杀、疫苗的次生灾难，这才是真正最核心的。今天你看到疫苗灾难了吗？你没有看到。疫苗灾难发生了吗？根本没发生呢！你看到这都是偶然事件。
+
+Therefore the core issue is the disaster and genocide brought by the vaccine. Have you seen the disaster brought by the vaccine? No you have not. Has the vaccine disaster already happened? No it has not. All you have seen so far are only occasional incidents
+
+所有的抗议它不是大觉醒，它只是一个非常朦胧的一个在觉醒。
+
+All the demonstrations right now are not the sign of a great awakening, it is only a partial awakening of the mankind.
+
+**（文章内容仅代表新西兰-财经G乐部节目观点）**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
