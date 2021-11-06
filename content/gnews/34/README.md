@@ -2,10 +2,10 @@
 ---
 
 
-## 接种疫苗后仍感染 加拿大魁北克不再强制推行疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1643007/)
+## 中共公布前三季度31家A股上市房企亏损，经济寒冬已经来临
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1643022/)
 
-作者：洛杉矶盘古农场 – 滴水穿石
+作者：日本方舟农场 – Andy5
 
 
 
@@ -13,17 +13,22 @@
 
 
 
-当地时间11月3日的消息称，加拿大魁北克匹兹堡企鹅曲棍球队中的多名队员在接种新冠疫苗后依旧感染新冠病毒。消息称，该球队中的每位球员都接种了两剂疫苗，有些人甚至还接受了“加强注射”作为预防措施，该球队队员对目前的蔓延病例深感不安。
+中共发布了前三季度121家在A股上市的房地产企业的数据，其中前三季度营业收入同比下滑者达到40家，占总数的1/3；而归属母公司净利润同比下降的，更是达到了52家，超过4成；有31家房企在亏损。有意思的是，121家房企营业收入同比增长23.2%的同时，净利润却同比下降了29.5%。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-11.jpg)
+值得关注的是，在这121家房企中，前三季度“经营”现金流为负数的有50家，“投资”现金流为负数的有73家，“筹资”现金流为负数的达到77家，“期末”净现金流为负数的达到了76家，也就是说，超过4-6成的房企现金流为负数。
 
-最终魁北克政府在新冠疫苗接种问题上做出了退让。当地卫生部长表示，在医疗服务面临中断风险之际，对于那些不愿接种新冠疫苗的医护人员，政府将不再继续推行强制接种政策。消息显示，魁北克现今大约有一万四千名医护人员得以摆脱强制接种疫苗的危险。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-22.jpg)
+房地产企业如此负面的数字，自然也影响了股市，恒大、佳兆业纷纷停牌，11月5日世茂集团的两支股票也出现了超过20%的大跌，创3年来的新低。
+
+从利润、资金流、股票表现来看，不仅仅只是近期最热点的恒大，中共的大部分房企正在一个个爆雷，房地产的寒冬已经来临。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-14.jpg)
 参考链接：
-1. [Québec recule sur la vaccination obligatoire des travailleurs de la santé](https://www.24heures.ca/2021/11/03/quebec-recule-sur-la-vaccination-obligatoire-des-travailleurs-de-la-sante?utm_medium=cxense&amp;utm_source=journaldequebec.com&amp;utm_campaign=reco#cxrecs_s)
-2. [Sidney Crosby déclaré positif à la COVID-19](https://www.journaldemontreal.com/2021/11/03/sidney-crosby-declare-positif-a-la-covid-1)
+1. [前三季度31家A股房企亏损！万科等遭受利润下滑，行业缩表未结束](https://finance.sina.com.cn/stock/hyyj/2021-11-03/doc-iktzscyy3452090.shtml)
+2. [內房｜世茂境內債暴瀉逾兩成　臨時停牌　股價創三年低](https://www.hk01.com/%E8%B2%A1%E7%B6%93%E5%BF%AB%E8%A8%8A/697246/%E5%85%A7%E6%88%BF-%E4%B8%96%E8%8C%82%E5%A2%83%E5%85%A7%E5%82%B5%E6%9A%B4%E7%80%89%E9%80%BE%E5%85%A9%E6%88%90-%E8%87%A8%E6%99%82%E5%81%9C%E7%89%8C-%E8%82%A1%E5%83%B9%E5%89%B5%E4%B8%89%E5%B9%B4%E4%BD%8E)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-总编/编辑：Irene木木
+总编：童谣
+编辑： AN
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

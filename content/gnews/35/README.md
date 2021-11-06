@@ -2,26 +2,47 @@
 ---
 
 
-## 美国11个州就拜登政府的疫苗新规提起诉讼
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1643002/)
+## 墙内油盐酱醋组团涨价
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1643020/)
 
-#### 翻译/撰稿：zzballack
+作者：英国喜庄园 – I770775
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16361780901.png)
-图片来源：KCUR.org
 
-据《新闻极限》（Newsmax）11月5日报道，美国11个州的总检察长11月5日对拜登政府提起诉讼，挑战一项针对员工人数超过100人的公司的新疫苗要求。
 
-美国安全与卫生署（OSHA）的新规要求雇员超过100人的公司需强制其员工接种中共病毒疫苗，或者每周接受核酸检测并且在工作时佩戴口罩。该规定将于2022年1月4日开始实施，一旦不遵守规定，每项违规行为将受到近14000美元的罚款。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-这起向位于密苏里州圣路易斯市（St. Louis）的第八巡回上诉法院提起的诉讼认为，强制接种中共病毒疫苗的权力属于各州，而不是联邦政府。
 
-密苏里州总检察长埃里克·施米特（Eric Schmitt）在法庭文件中说：“这个强制令是违宪的、不合法的，也是不明智的。密苏里州雇佣了130万名员工的总计3443名私营雇主可能会受到疫苗新规的影响。我上诉的目的是保护个人自由和密苏里州的企业，并回击那些仅仅想要权力和控制的官僚暴君。”
 
-加入密苏里州诉讼的还有阿拉斯加、亚利桑那、阿肯色、蒙大拿、内布拉斯加、新罕布什尔、北达科他、南达科他和怀俄明州的共和党总检察长以及爱荷华州的总检察长–民主党人汤姆·米勒（Tom Miller），另外还有一些私营雇主、非营利和宗教组织。
+中共国相关媒体消息，由于材料成本上涨，利润受到挤压，近日，油盐酱醋等各大龙头企业相继发布涨价通知：
 
-新闻来源：[11 States File Suit Against Biden’s Business Vaccine Mandate](https://www.newsmax.com/streettalk/gop-pushback-covid-biden-businesses/2021/11/05/id/1043442/)
+金龙鱼食用油公司表示，产品涨价的理由是，为平衡消费者的接受度与公司的成本、利润及长远发展之间的关系；雪天盐业、云南盐业、苏盐集团等盐业巨头集体宣布涨价，最高涨幅达35%；继海天味业首先宣布对酱油、蚝油、酱料等产品价格进行上调后，行业各品牌的酱油、蚝油等调料先后宣布涨价；醋业老大恒顺醋业公司决定自11月20日起，对其产品价格上浮5%-15%不等。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-20.jpg)
+参考链接：
+1. [28亿存款被莫名质押，渤海银行最新回应！油盐酱醋巨头组团提价，北上资金爆买食品龙头](https://stock.stockstar.com/SS2021110500002160.shtml)
+2. [多家食品上市公司回应调价计划，盐业公司集体宣布涨价](https://www.thepaper.cn/newsDetail_forward_15222550)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：木白
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
