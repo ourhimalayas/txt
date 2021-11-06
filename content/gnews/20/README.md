@@ -2,44 +2,44 @@
 ---
 
 
-## 超一半未接种疫苗的美国人表示不会改变他们主意
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1642717/)
+## 美11个州起诉拜登政府私营企业疫苗强制令
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1642721/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/rk_astrazeneca-australia_120421.jpg)图片来源：straitstimes.com
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/V-2.jpg)俄罗斯莫斯科喀秋莎农场 剿匪打工仔
+《汉尼提》（Hannity）发表文章，“11 个州起诉拜登政府私营企业疫苗强制令”。【1】
 
+全文如下：
 
-#### 编译：小红帽
+11个州的总检察长星期五（11月5日）提起诉讼，阻止拜登政府对拥有100名以上雇员的私营企业实施疫苗强制令，强制令定于1月4日生效。
 
-一项民意调查结果显示，超过一半未接种中共病毒（COVID-19）疫苗的美国人表示“没有任何事情”会改变他们对接种疫苗的看法。
+如果颁布，这项强迫令将适用于8400万工作人员，其中约3100万人尚未接种疫苗。
 
-波士顿、纽约和巴塞罗那的研究人员发现，53%没有接种疫苗的人中不会被任何人说服去接种疫苗。
+“这项强迫令是违宪的、非法的、不明智的。” 诉讼书说。该诉讼由密苏里州总检察长埃里克·施密特（Eric Schmitt）领导。
 
-13%的人表示，他们可能会被密友或家人的建议所左右，而9%的人表示，家庭医生的建议可能会改变他们的想法。
+该诉讼由密苏里州提起，阿拉斯加、亚利桑那州、阿肯色州、蒙大拿州、内布拉斯加州、新罕布什尔州、爱荷华州、北达科他州、南达科他州和怀俄明州加入了诉讼。
 
-“调查数据显示，保守派、生活贫困者和外出工作的人更有可能反对接种疫苗，”《每日邮报》报道。
+“对大型私营企业的这项命令，是政府抗击中共病毒工作中影响最深远、政治上最具争议的措施，至少有24个州的总检察长声言要起诉，共和党州长和一些行业贸易团体已经站出来反对这一行政令，而美国20%仍未接种疫苗的成年人也反对这项强制令。” 《纽约时报》报道。
 
-该调查是在2021年4月进行的，这一事实是在“德尔塔（delta）”病例激增和拜登政府宣布疫苗授权计划之前进行的。
+这项强制令于9月宣布，推迟到了1月初生效，以帮助缓解对节日期间供应链的担忧。
 
-6个多月前，民意调查发现21%的受访者表示他们不想接种疫苗。
+“与‘职业安全与健康管理局’（OSHA，The Occupational Safety and Health Administration）不同，‘医疗保险和医疗补助服务中心’（CMS，the Centers for Medicare and Medicaid Services）正在发布一项规定，要求参与医疗保险和医疗补助的医疗机构的医护人员全面接种疫苗，CMS规定也将于1月4日生效，它覆盖了全国约76,000家医疗机构的1,700多万工人。”《福克斯新闻》报道。
 
-目前的数据显示，大约20%的美国成年人仍未接种疫苗，这意味着在此期间只有大约1%的人被说服。
+福克斯补充道：“白宫周四（11月4日）还表示，将把其联邦承包商疫苗强制令的最后期限从12月8日推迟到1月4日，共和党总检察长联盟已经对联邦承包商强制令提起了诉讼。”
 
-虽然极少数美国人表示，无法改变他们在接种疫苗方面的想法，但在德国，这一数字要高得多。
+阅读《纽约时报》的完整报道原文给了链接。
 
-正如之前报道的，90%未接种疫苗的德国人表示他们不会接种，只有其余10%的人表示他们“可能”会接种或尚未决定。
+（全文完）
 
-**参考新闻：**[More Than Half of Unvaccinated Americans Say Nothing Will Change Their Mind – Summit News](https://summit.news/2021/11/04/more-than-half-of-unvaccinated-americans-say-nothing-will-change-their-mind/)
+州总检察长动起来了，最高立法者的参议院也在行动【2】，爆料革命、新中国联邦已经将美国揭露中共罪恶、阴谋集团罪孽的行动推向了新的高潮。
 
-***发布：小红帽***
+有关链接：
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+【1】[https://hannity.com/media-room/breaking-11-states-sue-biden-administration-over-vax-mandate-for-private-businesses/?utm\_source=rss&utm\_medium=rss&utm\_campaign=breaking-11-states-sue-biden-administration-over-vax-mandate-for-private-businesses&utm\_source=hootsuite](https://hannity.com/media-room/breaking-11-states-sue-biden-administration-over-vax-mandate-for-private-businesses/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=breaking-11-states-sue-biden-administration-over-vax-mandate-for-private-businesses&amp;utm_source=hootsuite)
+
+【2】[https://gnews.org/zh-hans/1637182/](https://gnews.org/zh-hans/1637182/)
 
  
 

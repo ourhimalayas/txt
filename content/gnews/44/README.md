@@ -2,59 +2,80 @@
 ---
 
 
-## 拥有了喜币就拥有了铸币权！喜币与股票的本质区别！
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1642324/)
+## [重点推荐]Newsmax记者Robinson因触及疫苗背后可怕的故事被停职
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1642455/)
 
-你买的喜币叫Himalaya Exchange，严格讲就叫喜联储，你买的是喜联储。你买的是铸币权和币，你买的是钱和造钱的权力，你别忘了，这个不是币，你买的是Himalaya Exchange，它是造币权和钱。
+温哥华扬帆农场  Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/emerald-robinson-.jpg)
+图片来源：newsmax.com
 
-You are buying HCoin (HCN) from the Himalaya Exchange, strictly speaking, it is from the Himalaya Reserve, you are actually buying into the Himalaya Reserve. What you bought is not only currencies, but also the right of issuing currencies. Please remember, this is not limited to currencies, you are buying into the Himalaya Exchange, which includes currencies and the right to issue currencies.
+疫苗既不能预防中共CCP病毒感染，也不能减少死亡，疫苗对人体免疫系统产生巨大伤害，疫苗后遗症，大量注射疫苗人群出现疫苗严重的副作用。疫苗的背后究竟隐藏着多少阴谋，这是人类需要得到答案。
 
-啥叫股票呢？股票是公司的一个盈利的一个希望，它能流通吗？它能买鸡蛋吗？它能买衣服吗？它能再决定多印刷吗？——不可能！它是有限的一个范围内的一个承诺，你看得是长期的它的盈利和财务，它不能流通、不能交易。
+然而，中共CCP病毒究竟从哪里来，它究竟想干什么，没有人去追究。中共CCP病毒疫苗里面是否含有有毒物质、生物发光标记物、氧化石墨烯、其它神经控制纳米微电子材料，背后究竟隐藏着多少可怕的故事。当人们开始触及，就是面对结束的时候。
 
-What then are stocks? Stocks represent the expectation that a company will be profitable. Can it be used in circulation? Can it be used to buy eggs? Can it be used to buy clothing? Can you print it out like currencies? Impossible! Stocks represent a promise within certain limitations. Its long-term financial value is based on future profitability. Stocks cannot be used in circulation for buying and selling purposes.
+美国媒体Newsmax对待自己的记者Emerald Robinson的态度，实在另人痛心！
 
-你买的喜币你可以去买G-Fashion，你可以买飞飞的兜兜，可以买爱米粒的上次脱的衣裳，你可以买好海东先生签过字的球、叶钊颖的球——什么都可以买！无限的大，它有。
+就在三天前，也就是2021年11月2日，拥有43.8万粉丝的Newsmax 驻白宫记者Emerald Robinson推文称，“疫苗含有一种称为荧光素酶的生物发光标记物，以便您可以被追踪”。（Dear Christians: the vaccines contain a bioluminescent marker called LUCIFERASE so that you can be tracked. Read the last book of the New Testament to see how this end.）
 
-The HCN you own can be used to buy products from G-Fashion. You can buy Feifei’s purse, you can buy Emily’s jacket, you can buy the soccer ball signed by Mr. Hao, also the badminton birdie from Mrs. Ye. You can buy almost anything! The possibility is unlimited since it (HCN) is used for trading purposes.
+该推文被认为是Emerald Robinson又一次揭露中共CCP病毒起源、疫苗含有生物发光标记物、氧化石墨烯及可以控制人类神经活动的“大重启”。几个小时后，Emerald Robinson被Newsmax停职，推特账号被锁定。
 
-还有你买的Exchange是交易，它是铸币权！股票跟它一比，流通VS非流通，所以它的权力是什么，它被批准了100年1000个亿的币，你不能改，你改了就不行，刚才就我告诉你，所以衡量Himalaya的所有的价格都是以1000亿个币结算，你当然不能按10亿币计算了。
+Newsmax执行副总裁兼首席内容官 Elliot Jacobson也被迫发表声明：“Newsmax 强烈支持中共CCP病毒疫苗总体上是安全有效的，宣称没有看到任何证据表明荧光素酶或荧光素存在于任何疫苗中，或者它们被用作任何种类的生物发光标记物。（原文：Newsmax is a strong proponent that Covid 19 vaccines are overarchingly safe and effective. while at the same time raising concerns that mandates infringe on personal liberty and privacy. We have seen no evidence to suggest LUCIFERASE or LUCIFERIN are present in any vaccines or that they are used as any sort bioluminescent marker）。
 
-Moreover you are buying into the Exchange and its right of issuing currencies! Compared to stocks, the HCN is used in circulation. It has a set of rules. The Himalaya Exchange is approved to issue 100 billion coins over the next 100 years. It cannot be altered as I mentioned previously. Therefore if you want to evaluate the Himalaya Reserve, it has to be based on 100 billion coins vs 1 billion coins.
+Newsmax的母公司Newsmax Media也不得不向所有订阅用户发送澄清信：“Newsmax 坚信并报道了 Covid 19（中共CCP病毒）疫苗是安全有效的。我们不相信这些疫苗含有任何有毒物质或追踪标记，而且 Newsmax 从未报道过此类虚假声明。出现在 Newsmax 上的许多医学专家都支持使用该疫苗“。（原文：Newsmax strongly believes and has reported that the Covid 19 vaccines are safe and effective. We do not believe the vaccines contain any toxic materials or tracking markers, and such false claims have never been reported on Newsmax. The many medical experts appearing on Newsmax have supported the use of the vaccine.）
 
-你现在比如说Elon Musk的股票，我现在就是多少股，你可以你再增发你都是这个股都在那搁着呢，你不可能说我卖完了，我现在Tesla我有1000亿股，我现在实际我有10000亿股，你不可以，你的增发是在你的股票的基础上来的，你是一个鸡蛋掰碎了给大家分去。这个币可不是的，第一天就决定你有多大，你只有1000亿个，个数是不可以改变的。
+在完整看完Emerald Robinson的[Covid19 – The Spartacus Letter](https://www.theautomaticearth.com/2021/09/spartacus/)公开信后，笔者不由对她由衷的尊敬。
 
-For example let’s take a look of Elon Musk’s stocks. The value of the newly issued stocks are based on the value of the existing ones. When new stocks are issued, it is as if the cake has been sliced into smaller pieces meanwhile the size of the cake is unchanged. However it is a different scenario when it comes to HCN, the quantity is determined in day one, since the number of HCN is limited to 100 billion, and this number cannot be changed.
+正如她的签名 “与黑暗势力的枉然努力划清界限，并且将其揭示给天下。”（Have nothing to do with the fruitless deeds of darkness, but rather expose them.） 一样，Emerald Robinson是一位彻底的保守主义者。
 
-还有一个，你买的喜联储是铸币权呐，兄弟呀，它不是光是……，你买的是钱和印钱的权力，哇塞，这大了去了，而且它全流通，而且无国界，Elon Musk的股票可以到中国买吗？Elon Musk的股票在北朝鲜你可以买吗？现在最垂涎喜币的绝对不是你我，也不是共产党，一定是北朝鲜，一定是伊朗、俄罗斯。越闭塞的地方越想要这个，因为它是保值的，绝对保值。
+2021年9月28日，Emerald Robinson发文《[America’s Elections Are Rigged (And Everybody Knows It)](https://emeralddb3.substack.com/p/americas-elections-are-rigged-and)》，揭露美国的选举是被操纵的，亚利桑那审计只是最新的例子。在9月28日的文章中，Emerald Robinson质疑，美国总统选举，为什么7个州800个县的7800万张美国选票被送到海外，由一家在2020年选举前3年就已经破产了的西班牙巴塞罗那的SCYTL公司来“处理”？SCYTL在瑞士建立了一个投票系统，但在瑞士当局于2019年启动公开代码审查后，研究人员发现了源代码中的错误，允许系统的操作者在不被发现的情况下可以随意改变投票。
 
-Another matter is that you are buying into the Himalaya Reserve with its right to issue currencies. You are indeed buying both the currencies and the right to issue currencies. This is huge because HCN is used in circulation beyond the borders of nations. Can you buy Elon Musk’s stocks in China? Can you buy his stocks in North Korea? At this moment the people who desperately want to own HCN are not you and me, neither is the CCP. They are the groups in North Korea, Iran and Russia. The more isolated a regime is, the more it wants to own HCN, all because it (HCN) can maintain its value.
- 
-说完这的时候，所以我说你没说清楚吧，所以今天我要政清哥来好啊，我要当众虐待你。你赚那么多钱你不跟我分，我不虐待你才怪了。我让你要知道，年轻人你要搞明白，你是喜马拉雅的希望，你必须成为大家，而且在大家成长中长大，研究它的本质。
+今年5月，在白宫新闻发布会上，Emerald Robinson向Paski询问了美国国立卫生研究院(the National Institutes of Health)和武汉病毒研究所之间的资助关系、病毒从实验室泄漏的可能性，以及拜登总统是否就冠状病毒(中共CCP病毒)的起源向中共国国家主席习近平施压。Paski的回答居然是：“I’m sorry, Emerald. I think you’ve had plenty of time today. “
 
-After saying this, I am glad that our guest Zhengqing is here. Since you have made a fortune, let me challenge you. I will make it clear that you and other young people are the hopes of our Himalaya System, you have to grow with everyone and understand its essence.
+Emerald Robinson在2021年9月下旬的推文，“大流行是迫使你接种疫苗，打疫苗就是逼你拿到疫苗护照。疫苗护照是强迫你进入社会信用体系，社会信用体系是为了迫使你服从政府。”
 
-还有一个大家告诉的，一块钱升值意味着什么，一块钱乘以1000亿那就是1000亿，1000亿个，你乘以10亿个就是10亿，你看它动每一点儿的时候，它不是股票的跌幅。所有喜币的跌幅升下都会被列为未来喜币在任何抵押下的所有证据财务，股票不会的，股票现在我评估你多少钱就多少钱，但是喜币不是的，它是真钱的交易过后我认可的币，我卖你跌下来不等于说我就是这币就没了。
+Emerald Robinson正在揭露一个事实，大量临床证据表明中共CCP病毒疫苗并不像宣传的那样有效时，她的声音完全被压制。Emerald Robinson认为，疫苗是一种连锁反应，迫使公民最终“服从政府”。
 
-Let me say this to everyone, what does it mean when HCN increases its value by one dollar? One dollar multiplied by 100 billion is $100 billion. One dollar multiplied by 1 billion is $1 billion. Even it only moves a little bit, it is unlike the changes in the stock market. All the changes in value that the HCN has made today will have an impact on the future financial matters, including when it is used as collaterals. Stocks are different, the value of stocks are the same as its valuation today. However the HCN is different, it is a recognized currency after being used in real circulation, even if the value decreases, the HCN is still there.  
+在一封题为《[Covid19 – The Spartacus Letter](https://www.theautomaticearth.com/2021/09/spartacus/)》的长达几十页公开信中，Emerald Robinson已经完全触及到了中共CCP病毒、疫苗背后的巨大阴谋。
 
-别忘了，我郝海东现在我拥有十万个币，你现在跌到三块钱了，我拿的我10万个币我还是10万个币，你涨1000块钱，我10万个币还是10万个币，为什么？它是个币的属性，因为是以个数决定的，Elon Musk的股票很厉害，你拿着10万股，郝海东先生，我不关心你10万股是10万还是100万，你这个10万值多少钱，你是被币来衡量的，10万股现在涨了1000块钱一股了——100万，涨一块钱了，那就是10万块钱，我不管你多少股。
+Emerald Robinson的团队经过数千个小时，从众多资料中得出这是一场生化武器战争的结论，安东尼·福奇在国会撒谎，应该被判重罪。疫苗是一种毒药，包含有毒物质、生物发光标记物、氧化石墨烯和其它神经控制纳米微电子材料！！！
 
-Don’t forget about this, If I have 100 thousand HCN, when each coin is worth $3, I still have 100 thousand coins, when it appreciates to $1000/coin, my 100 thousand coins are still there. Why? Such is the intrinsic characteristic of a coin, since its value is determined by the number of coins.  If you have 100 thousand shares of Elon Musk’s stocks, it doesn’t matter whether its value is $100 thousand or $1 million, since these 100 thousand shares are valued by coins. If each share has increased to $1000, it will result in a total value of $100 million, if each share increases by $1, you will have gained $100 thousand, doesn’t matter how many shares you actually have.
+武汉病毒研究所正在进行的功能增强性研究的资金来自 Peter Daszak。Peter Daszak 经营着一个名为 EcoHealth Alliance 的非政府组织（生态健康联盟），而生态健康联盟从福奇的the National Institutes of Health/National Institute of Allergy and Infectious Diseases获得了数百万美元的赠款。NIH/NIAID 向武毒所捐赠了几百万美元，DTRA 和 USAID 分别为这项研究捐赠了数千万美元，总共超过一亿美元。
 
-但对于拥有币的人来讲，我不管你多少价我都有10万币，因为我这个10万币不是根据价格的起伏的，我的10万币有20%的黄金在这搁着呢——储备。我随时可以变成喜美元，你告诉我Elon Musk的股票能马上可以变成美元吗？你要抛吧，还有个你没了以后谁给你20%啊，没有的！他没有锚定、没有基础。
+由于生物战袭击，我们不得不眼睁睁地看着美国和自由世界陷入无情的衰落。我们和无数其他人一样，被一个未经选举、不负责任的精英针对美国人民和我们的盟友所进行的宣传和心理战行动所害。我们正在看着医疗机构向数百万美国同胞注入真正的毒药，而不是一场战斗。
 
-However when it comes to the person who owns 100 thousand HCN, it doesn’t matter what value the coins have, he always owns 100 thousand HCN, since the value of the 100 HCN doesn’t fluctuate given it is pegged to gold equalling 20% of its value as a reserve. I can convert it to US dollars anytime. How can you convert Elon Musk’s stocks to US dollars at will? Also if the stocks one day have no value, who is going to give you the 20% value like the HCN has. The stocks are not pegged to anything therefore lack a foundation.
+在这封公开信中，Emerald Robinson提到了一个令人震惊的事实，参与疫苗研究的科学家与从事将纳米技术与细胞结合的科学家之间的联系。2020 年 6 月 9 日，与武汉理工大学合作，拥有数十年经验的哈佛纳米技术研究员 Charles Lieber 被美国司法部以欺诈罪起诉。Charles Lieber 从美国国防部特别是军事智库 DARPA、AFOSR 和 ONR，以及 NIH 和 MITRE获得了数百万美元的赠款，进行生物纳米技术，或者纳米技术与活细胞的融合研究。随后，中共国政府以千人计划为幌子，贿赂Charles Lieber等西方科学家分享专有研发信息，用于解放军的研究。
 
-这是币和股票，股票是希望，币是真金白银，币可以全球流通无障碍。股票只在股票市场某种范围内。不是鸡和蛋，刚才战友说是鸡和蛋，不是鸡和蛋的问题，是真真正正的它是一个无限大的一个摸得着的，它是一个印钞的一个机器。
+Emerald Robinson在公开信中明确指出， COVID-19（中共CCP病毒）疫苗含有氧化还原石墨烯纳米颗粒。日本研究人员还在 COVID-19 （中共CCP病毒）疫苗中发现了无法解释的污染物。石墨烯载流子迁移率15000cm2/（V·s）（室温），是人类已知的具有最高导电性的物质，并且在某些情况下具有顺磁性。Charles Lieber 自己的论文描述了将硅纳米线用于脑机接口或“神经花边”技术。他的论文描述了神经元如何内吞整个硅纳米线或其中的一部分，监测甚至调节神经元活动。可以植入人类心脏以远程监测其活动的人造组织支架。
 
-This is the difference between stocks and HCN. The stocks represents a hope and the HCN is equivalent to real gold and silver, which can be used freely around the globe. The stocks are limited to only the stock market. It is not a question of chicken and egg, the HCN system is an unlimited yet tangible system, a system that can issue currencies.
+Emerald Robinson突然被停职，绝非NEWSMAX宣称的简单推文误导这么简单，事实上，Emerald Robinson已经触及到中共CCP病毒、疫苗、暗势力、大重启等可怕的故事！
+
+#  
+
+参考资料：
+
+[Newsmax White House correspondent is removed from the air after she claimed vaccines contain demonic markers that allow people to be tracked](/Users/quhui/Downloads/Newsmax%20White%20House%20correspondent%20is%20removed%20from%20the%20air%20after%20she%20claimed%20vaccines%20contain%20demonic%20markers%20that%20allow%20people%20to%20be%20tracked)
+
+[@EmeraldRobinson](https://twitter.com/EmeraldRobinson)
+
+[Covid19 – The Spartacus Letter](https://www.theautomaticearth.com/2021/09/spartacus/)
+
+[Newsmax Benches Star Who Claimed COVID Vaccines Contain Satanic Trackers](https://www.thedailybeast.com/newsmax-benches-reporter-emerald-robinson-who-tweeted-about-satan-linked-vaccines)
+
+[Opinion: Newsmax forced to admit vaccines don’t make you glow](https://www.washingtonpost.com/opinions/2021/11/04/newsmax-forced-admit-vaccines-dont-make-you-glow/)
+
+[Newsmax白宫记者Emerald Robinson：美国的选举是被操纵的，亚利桑那审计只是最新的例子](/Users/quhui/Downloads/Newsmax白宫记者Emerald%20Robinson：美国的选举是被操纵的，亚利桑那审计只是最新的例子)
+
+[America’s Elections Are Rigged (And Everybody Knows It)](/Users/quhui/Downloads/America's%20Elections%20Are%20Rigged%20%28And%20Everybody%20Knows%20It%29)
+
+[@AlbertBourla](https://twitter.com/AlbertBourla/status/1369734954498818052)
+
+[@ErikWemple](https://twitter.com/ErikWemple)
+
+（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+
+编审：文敏    发布：文敏
 
 
-你那个是被机器被钞票要买的一个希望而已，而且随时可以不存在。它是有价值的，它是无价值的。兄弟，你们搞明白的时候，今天你们记住，你买的是钱，你买的不是希望。那个是股票是希望，所以今天喜联储的上市牛就牛在这儿，你谁都操作不了，它是24小时在线。
-
-The hope (stocks) that you have is valued by the currencies, and its value can disappear anytime. The stocks have a price, and the HCN system is priceless. Brothers, please remember that you are buying currencies instead of hopes. The stocks represent hopes. That is why the IPO of the Himalaya Reserve today is very significant, it cannot be interfered by anyone, and it is online 24-7.
-
-**（文章内容仅代表新西兰-财经G乐部节目观点）**
 
  
 

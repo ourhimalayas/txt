@@ -2,26 +2,28 @@
 ---
 
 
-## 蓝光发展累计未偿还债务本息近242亿
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1642764/)
+## 惊爆：辉瑞首席执行官因欺诈被逮捕！
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1642778/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/images.jpg)蓝光发展累计未偿还债务本息近242亿 网络图片
-据新京报11月5日报道，截至2021年11月5日，蓝光发展及下属子公司新增到期未能偿还的债务本息金额26.64亿元。累计银行贷款、信托贷款、债务融资工具等债务共计241.71亿元。
+#### 撰稿：罗马骑士
 
-蓝光发展找了很多理由来解释，但根本的原因是中共虚假的经济到了暴雷的时候。假的就是假的，没钱还债就是没钱还债。
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-79.png)
+根据加拿大保守海狸网独家报道：辉瑞首席执行官阿尔伯特·布尔拉(Albert Bourla )周五早上，在位于纽约斯卡斯代尔富人聚集区的家中，被联邦调查局指控犯有多项欺诈罪而逮捕。布尔拉在等待保释听证会期间将被关押，联邦警探正在他的居处以及在全国其他多处拥有的物业里，执行搜查令。
 
-新闻参考链接：[https://c.m.163.com/news/a/GO2ONARC0512D3VJ.html?spss=newsapp](https://c.m.163.com/news/a/GO2ONARC0512D3VJ.html?spss=newsapp)
+阿尔伯特·布尔拉在 COVID-19“疫苗”的有效性上因欺骗客户而面临欺诈指控。 辉瑞被指控伪造数据并支付巨额贿赂。 根据联邦调查局特工的说法，辉瑞在疫苗的有效性方面撒谎，并在疫苗可能产生的严重副作用方面误导客户。 辉瑞被指控贿赂政府和主流媒体以确保对这一切非法行为保持沉默。
 
-* * *
+由于辉瑞公司和研究合作伙伴“伪造数据、患者随机无障碍试验、雇用缺乏训练有素的疫苗接种人员以及对不良事件的跟进缓慢”，阿尔伯特·布尔拉 (Albert Bourla) 已经陷入困境。 据 BMJ 报道，举报人布鲁克·杰克逊，因为试图阻止正在实施的欺诈行为而遭到解雇。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+在10月，Project Veritas 发布了一系列被称为“PfizerLeaks”的泄密事件。 在视频中，另一位辉瑞举报人透露了该公司在 COVID-19“疫苗”中使用流产的胎儿细胞，但辉瑞一直试图向公众隐瞒这一事实。
+
+如果罪名成立，阿尔伯特可能会在监狱中度过余生。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+> [CEO of Pfizer arrested, charged with fraud – media blackout as #PfizerGate trends](https://www.conservativebeaver.com/2021/11/05/ceo-of-pfizer-arrested-charged-with-fraud-media-blackout/)
+
+
 
 
 

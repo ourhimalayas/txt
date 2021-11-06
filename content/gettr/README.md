@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/6/2021 4:52 AM (UTC)`
+
+11/5/2021 Miles Guo: The jabs that the CCP gave to its troops are not COVID vaccines but the antibodies to boost immunity, while the Chinese Lao Baixing are injected with the experimental COVID jabs, and this clearly shows the evil of the CCP<br/><br/>11/5/2021 文贵直播：中共给军方打的不是疫苗而是增强免疫的抗体，而中国老百姓却被打了实验性的冠状病毒疫苗，这体现了中共的邪恶<br/>
+![img](https://media.gettr.com/group20/getter/2021/11/06/04/52/d4f55fce-bf7d-24e3-8dd0-fb2007b20a14/out.jpg)
+
+---
+
+`@miles 11/6/2021 4:47 AM (UTC)`
+
+11/5/2021 Miles Guo: In the hospitals in Beijing, there are at least 20,000 people who died abruptly and 70,000 people diagnosed with cancer or terminal cancer in the past month; Beijing’s garbage dump ended up being the crematorium; facing the COVID vaccine disaster, the CCP is telling a big lie!<br/><br/>11/5/2021 文贵直播：近一个月在北京医院至少有2万人猝死，7万人患癌症或癌症晚期；北京的垃圾场沦为火葬场；在疫苗灾难面前，中共却撒下弥天大谎！<br/>
+![img](https://media.gettr.com/group6/getter/2021/11/06/04/47/d44e330b-4fa7-e4fc-b67c-24621c147848/out.jpg)
+
+---
+
 `@miles 11/6/2021 3:08 AM (UTC)`
 
 11/5/2021 Miles Guo: The biggest enemy of our New Federal State of China is the ignorance the CCP instilled in the minds of the Chinese people; Meng Jianzhu has slept with numerous people and their daughters, mothers and even grandmothers; Kang Jie is even more evil than her husband, Zhang Gaoli. This is the biggest wickedness of the CCP’s system!<br/><br/>11/5/2021 文贵直播： 中共给中国人灌输的无知是我们新中国联邦最大的敌人；孟建柱以延年益寿的名义睡了无数家庭的三代人；张高丽的夫人康洁比他更邪恶，这是中共体制的大恶！<br/>
@@ -282,20 +296,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 在 GETTR 上加入我的直播。
 ![img](https://media.gettr.com/group1/getter/2021/10/23/19/bef325e0-a7dd-eef4-f1c5-6977a36aeaf7/7f87f676c946650f527b3506087be38c.jpeg)
-
----
-
-`@miles 11/2/2021 4:35 PM (UTC)`
-
-11月2号，尊敬的战友们好！永远不要忘了灭共是我们的最终使命！建立一个让中国有独立的法治……信仰的自由．民主的社会的新中国联邦共和国，是我们的信仰，和必须实现的目标，一切都已经开始！
-![img](https://media.gettr.com/group43/getter/2021/11/02/16/35/4e258f5d-c433-8f17-4dab-94a3fc22c60a/out.jpg)
-
----
-
-`@miles 11/2/2021 4:30 PM (UTC)`
-
-11月2号：张高丽这个孙子，包养运动员的事情是在中南坑里！在正常不过的了，可是悲哀的事情，整个中国体育界只有一个郝海东．一个叶钊颖．该醒来了……中国的少男少女们。
-![img](https://media.gettr.com/group48/getter/2021/11/02/16/94f6ffbc-1056-cf04-ffb0-4a342ce12fac/d13b9a41d67938c68a5bc83562c45514.jpg)
 
 ---
 

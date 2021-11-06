@@ -2,30 +2,34 @@
 ---
 
 
-## 有声|脸书将其消费者定位最低年龄下调至6岁儿童
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1642669/)
+## 澳大利亚全国内阁会议今日讨论5-11岁儿童接种问题
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1642679/)
 
-配音：香草山教育部 – 蒙古鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-10月30日，据盖特提供的脸书——现更名为Meta公司的内部员工爆料信息显示，早在今年4月9日，其公司内部的一篇博客文章表明，该公司计划招聘多个职位，并将其受众从当前13岁的底线门槛，降至6到9岁的孩子。
+翻译：Sara9
+编辑：热锅小蚂蚁
+![](https://assets.gnews.org/wp-content/uploads/2021/11/辉瑞疫苗注射-1.png)图片来源：盖地图像 
+据ABC中文5日报道，昨天结束欧洲外访行程返澳的澳大利亚总理莫里森今天将召开全国内阁会议，重点讨论儿童接种疫苗问题。
 
-批评者认为，Meta平台的这些文件清楚地表明，该公司的首要任务不是努力降低其现有平台对青少年的危害，而是更偏向于吸引年幼的孩子，并为其建立Meta产品的终生用户渠道，但其产品对年幼的孩子来说并不安全。
+美国已经开始为5-11岁的儿童接种减小剂量的辉瑞疫苗，澳大利亚何时开始也越来越受到关注。
 
-针对Meta的这一行径，盖特CEO杰森·米勒先生在其盖文中直接评论到：“Meta的行为让人觉得不舒服”。而盖特用户的盖文评论更是直接了当地认为，Meta此举涉嫌虐待儿童。
+澳大利亚医疗用品管理局（TGA）[表示](https://www.abc.net.au/chinese/2021-11-04/vaccination-for-young-children-5-to-12-australia-medical-advice/100591080)，可能会在本月底之前就是否向5-11岁儿童提供辉瑞疫苗做出决定。
 
-文字版原文：[脸书将其消费者定位最低年龄下调至6岁儿童](https://gnews.org/zh-hans/1636614/)
+维州州长安德鲁也明确表示，在今天的全国内阁会议上将重点讨论给儿童接种疫苗的问题，他表示希望孩子们在圣诞假期期间能在有疫苗保护的情况下外出玩耍。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+数位医学专家表示，虽然5-11岁年龄段的孩子在感染新冠后很少会产生严重不适或者需要住院治疗，但是任何能减少风险的做法都是好的。
 
+*发布：热锅小蚂蚁*
+
+原文链接：[https://www.abc.net.au/chinese/2021-11-05/national-cabinet-to-discuss-vaccination-for-young-children/100596450](https://www.abc.net.au/chinese/2021-11-05/national-cabinet-to-discuss-vaccination-for-young-children/100596450)
+
+**发布：****文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
