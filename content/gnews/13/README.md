@@ -2,48 +2,57 @@
 ---
 
 
-## 中共當局敦促人們在可能出現短缺的情況下囤積糧食
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1642520/)
+## 捷克政治家呼吁采取“一个台湾政策”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1642527/)
 
-編譯：螞蟻兄弟
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Chinese-Communist-U.S.-Consulate-640x480-2-1.jpg)Source: Twitter
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Hong-Kong-mercado-verduras-getty.jpg)Imagen: Getty
+来自《台湾英语新闻》11月5日的报道，一位捷克政治家周四（11月4日）在推特上呼吁他的国家采取“一个台湾政策”，并上传了一张地图，明确表明台湾是一个独立于中共国的国家。
 
-據“經濟專家報”報導，面對“氣象現象”和“冠狀病毒爆發的可能”等理由造成的食品短缺，中共國政府週二敦促公眾儲備食品和他們可能需要的任何其他產品，以備不時之需。
+在欧洲议会议员访问台湾期间，总部位于布拉格的欧洲价值安全政策智库主任雅库布·扬达(Jakub Janda)发布了一条针对欧洲领导人的推文。他将台湾描述为一个“具有法治运作的友好自由民主国家”。
 
-在一份聲明中，商務部敦促不要對此類報告“反應過度”，但敦促公眾謹慎行事，以免“在他們居住的地區發生禁閉時措手不及”。
+杨达随后呼吁欧洲领导人宣布“一个台湾政策”。他表示，承认中国共产党“现在占领大陆领土”的“一个中国政策”可以继续。
 
-該部的指令是在蔬菜價格上漲引起民眾對可能的供應削減的擔憂後發出的。
+然而，他表示，随着对台湾的新政策，欧洲各国政府可以“以任何我们想要的方式”与该国接触。为了强调台湾不受中共管辖的观点，他附上了一张地图，国家用鲜红色，上面用亮黄色字体写着“中共国”字样，而台湾用蓝色，标记着“不是中共国（这是台湾）”。
 
-最近幾周，中國的蔬菜價格飆升，造成了幾個月前無法想像的局面：一些蔬菜已經比肉貴了。據報導，餐館和商店利用冰櫃和冰箱囤積了大量的蔬菜。這種現象對於已經受到能源短缺和嚴格控制病毒措施影響的消費者來說是一個新的讓人頭痛的問題。
+两年以来，杨达一直是台湾的坚定拥护者。他表示支持布拉格市长兹德涅克·贺吉普(Zdenek Hrib)于2019年提出的要该市爱乐乐团访问台湾的建议，此前中共政府取消了该乐团的中共国巡演，以报复捷克拒绝驱逐一名台湾外交官。
 
-商務部的最新資料顯示，蔬菜批發價格在過去四周飆升了28%，現在處於2月以來的最高水準。今年主要種植區的暴雨使農作物受損，而煤炭價格上漲也使溫室農業更加昂貴。
+那一年，他也曾支持捷克共和国议会55名议员联署致函世界卫生组织(WHO)要求其允许台湾作为观察员参加即将举行的世界卫生大会(WHA)。
 
-與此同時，《人民日報》發佈了一條“令人欣慰”的資訊，稱政府通常每年都會發佈類似的指令，不過鑒於自然災害的普遍性和病毒的傳播，今年已經“提前”了。
 
-政府還敦促地方政府“做好工作”，確保供應鏈和價格維持穩定。冠狀病毒大流行促使政府增加了對食品的關注，並制定了一系列食品安全法。
 
-“該指令呼籲地方當局支援產品的流動，與蔬菜、大米和石油等生產商建立合作關係。那些可以持續的產品應該及時供應和儲存”政府堅持說。
+> Taiwan = friendly liberal democratic state with functioning rule of law
+> 
+> Europeans should declare our One Taiwan Policy:
+> 
+> Within One China Policy, we recognise Chinese Communists now occupy the continental territory.But we will engage Taiwan in any way we want[#OneTaiwanPolicy](https://twitter.com/hashtag/OneTaiwanPolicy?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/ElV0qXtj50](https://t.co/ElV0qXtj50)
+> — Jakub Janda (@\_JakubJanda) [November 4, 2021](https://twitter.com/_JakubJanda/status/1456116871045029891?ref_src=twsrc%5Etfw)
 
-**簡評：**
 
-**中共國的糧食主要依靠進口。“以不足10%的耕地養活了世界20%以上的人口”，這是中共傳播給中國百姓的徹頭徹尾的謊言。**
 
-**中共政府的“戰狼外交”政策及外匯儲備的枯竭，已經讓中共國很難再大量進口糧食到國內。加之國內各種能源價格的幾次上漲，已經讓糧食蔬菜等的運輸成本大幅攀升。**
+推特部分翻译：
 
-**缺糧顯然已經成了中共國內不爭的事實。然而，中共政府依舊利用“天災”為藉口，把缺糧推給“老天”。“以備不時之需”的警告，無疑是要找一個“自己沒有準備好”的藉口，之後把即將發生的饑荒責任，推給百姓。**
+台湾 = 具有法制运作的友好自由民主国家
+欧洲人应该宣布我们的一个台湾政策：在一个中国政策中，我们承认中国共产党现在占领了大陆领土。但我们会以任何我们想要的方式与台湾接触。
 
-**參考資料：**[eleconomista.es][China insta a la población a hacer acopio de alimentos ante una posible escasez](https://www.eleconomista.es/economia/noticias/11461128/11/21/El-Gobierno-chino-insta-a-la-poblacion-a-hacer-acopio-de-alimentos-de-cara-al-invierno-ante-una-posible-escasez.html)
+简评：
+
+捷克作为欧盟的成员国之一，近年来一直与台湾保持着良好的外交关系，2020年捷克参议院议长米洛什·维斯特奇尔就无视中共国的反对，率团访问了台湾一周。通过雅库布·扬达发布的这条针对欧洲领导人的推文以及欧洲议会代表团11月3日到访台湾展开的访问活动，可以看出欧盟正在逐渐调整“一中政策”。欧盟执委会副主席波瑞尔最近也发言称，中共国对台湾的威胁对欧盟安全有直接冲击。希望台湾蔡英文政府能够抓住时机，加强与欧盟各国的合作，争取更多的国际支持来对抗中共不断加强的文攻武赫。
+
+新闻链接:
+
+[Czech politician calls for ‘one Taiwan policy’](https://www.taiwannews.com.tw/en/news/4335803)
 
 * * *
 
-*審核：Aries的星*
-*校對：阿伯塔*
-*發稿：信心的選擇*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

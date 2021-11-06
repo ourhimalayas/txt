@@ -2,80 +2,90 @@
 ---
 
 
-## [重点推荐]Newsmax记者Robinson因触及疫苗背后可怕的故事被停职
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1642455/)
+## 美国各地的医院正在发生一些非常奇怪的事情
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1642475/)
 
-温哥华扬帆农场  Michael.Tonny
-![](https://assets.gnews.org/wp-content/uploads/2021/11/emerald-robinson-.jpg)
-图片来源：newsmax.com
+**编译：七叶之芒**
 
-疫苗既不能预防中共CCP病毒感染，也不能减少死亡，疫苗对人体免疫系统产生巨大伤害，疫苗后遗症，大量注射疫苗人群出现疫苗严重的副作用。疫苗的背后究竟隐藏着多少阴谋，这是人类需要得到答案。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip146.png)图片来源：zerohedge.com
 
-然而，中共CCP病毒究竟从哪里来，它究竟想干什么，没有人去追究。中共CCP病毒疫苗里面是否含有有毒物质、生物发光标记物、氧化石墨烯、其它神经控制纳米微电子材料，背后究竟隐藏着多少可怕的故事。当人们开始触及，就是面对结束的时候。
+在这个已经充满了许多谜团的一年里，我有另一个非常奇怪的谜团要与你们分享。全美国的急诊室都被塞得满满的，似乎没有人能够解释为什么会发生这种情况。现在，美国每天新增的COVID病例数量还不到几个月前的一半。这确实是个好消息，许多人认为这是一种迹象，表明这种大流行病正在消退。让我们希望这是真的。随着感染病毒的人减少，你会认为这将意味着我们的急诊室应该被清空，但实际上情况恰恰相反。在全国各地，急诊室绝对拥挤，在许多情况下，我们看到重病患者在走廊里接受治疗，因为所有的急诊室都已经满了。
 
-美国媒体Newsmax对待自己的记者Emerald Robinson的态度，实在另人痛心！
+让我给你举个例子说明我在说些什么。以下内容来自一篇题为“急诊室被重病患者淹没，尽管许多人没有Covid”的文章：
 
-就在三天前，也就是2021年11月2日，拥有43.8万粉丝的Newsmax 驻白宫记者Emerald Robinson推文称，“疫苗含有一种称为荧光素酶的生物发光标记物，以便您可以被追踪”。（Dear Christians: the vaccines contain a bioluminescent marker called LUCIFERASE so that you can be tracked. Read the last book of the New Testament to see how this end.）
+在密歇根州兰辛市斯帕罗医院的急诊科内，工作人员正在努力照顾那些比他们所见到过的更严重的病人。
 
-该推文被认为是Emerald Robinson又一次揭露中共CCP病毒起源、疫苗含有生物发光标记物、氧化石墨烯及可以控制人类神经活动的“大重启”。几个小时后，Emerald Robinson被Newsmax停职，推特账号被锁定。
+急诊室的护士长蒂法尼-杜桑(Tiffani Dusang)看着躺在一长排被推到医院走廊的米色墙壁下的担架上的病人，几乎被压抑的焦虑所震动。“这很难看”，她用温暖的德克萨斯口音说。
 
-Newsmax执行副总裁兼首席内容官 Elliot Jacobson也被迫发表声明：“Newsmax 强烈支持中共CCP病毒疫苗总体上是安全有效的，宣称没有看到任何证据表明荧光素酶或荧光素存在于任何疫苗中，或者它们被用作任何种类的生物发光标记物。（原文：Newsmax is a strong proponent that Covid 19 vaccines are overarchingly safe and effective. while at the same time raising concerns that mandates infringe on personal liberty and privacy. We have seen no evidence to suggest LUCIFERASE or LUCIFERIN are present in any vaccines or that they are used as any sort bioluminescent marker）。
+但她也无能为力。急诊室的72个房间已经被填满。
 
-Newsmax的母公司Newsmax Media也不得不向所有订阅用户发送澄清信：“Newsmax 坚信并报道了 Covid 19（中共CCP病毒）疫苗是安全有效的。我们不相信这些疫苗含有任何有毒物质或追踪标记，而且 Newsmax 从未报道过此类虚假声明。出现在 Newsmax 上的许多医学专家都支持使用该疫苗“。（原文：Newsmax strongly believes and has reported that the Covid 19 vaccines are safe and effective. We do not believe the vaccines contain any toxic materials or tracking markers, and such false claims have never been reported on Newsmax. The many medical experts appearing on Newsmax have supported the use of the vaccine.）
+谁能解释一下为什么会发生这种情况？
 
-在完整看完Emerald Robinson的[Covid19 – The Spartacus Letter](https://www.theautomaticearth.com/2021/09/spartacus/)公开信后，笔者不由对她由衷的尊敬。
+**如果COVID病例的数量又开始激增，那么急诊室人满为患就说得通了。**
 
-正如她的签名 “与黑暗势力的枉然努力划清界限，并且将其揭示给天下。”（Have nothing to do with the fruitless deeds of darkness, but rather expose them.） 一样，Emerald Robinson是一位彻底的保守主义者。
+**但是在密歇根州的这家特殊医院，我们被告知，一些主要的治疗内容包括“腹痛”、“呼吸系统问题”、“血凝块”和“心脏状况”：**
 
-2021年9月28日，Emerald Robinson发文《[America’s Elections Are Rigged (And Everybody Knows It)](https://emeralddb3.substack.com/p/americas-elections-are-rigged-and)》，揭露美国的选举是被操纵的，亚利桑那审计只是最新的例子。在9月28日的文章中，Emerald Robinson质疑，美国总统选举，为什么7个州800个县的7800万张美国选票被送到海外，由一家在2020年选举前3年就已经破产了的西班牙巴塞罗那的SCYTL公司来“处理”？SCYTL在瑞士建立了一个投票系统，但在瑞士当局于2019年启动公开代码审查后，研究人员发现了源代码中的错误，允许系统的操作者在不被发现的情况下可以随意改变投票。
+几个月的治疗延误使慢性病加重，症状恶化。医生和护士说，疾病的严重程度差别很大，包括腹痛、呼吸系统问题、血凝块、心脏疾病和自杀企图等情况。
 
-今年5月，在白宫新闻发布会上，Emerald Robinson向Paski询问了美国国立卫生研究院(the National Institutes of Health)和武汉病毒研究所之间的资助关系、病毒从实验室泄漏的可能性，以及拜登总统是否就冠状病毒(中共CCP病毒)的起源向中共国国家主席习近平施压。Paski的回答居然是：“I’m sorry, Emerald. I think you’ve had plenty of time today. “
+**提到“心脏疾病”立即引起了我的注意，因为我最近在新闻中经常看到这种情况。**
 
-Emerald Robinson在2021年9月下旬的推文，“大流行是迫使你接种疫苗，打疫苗就是逼你拿到疫苗护照。疫苗护照是强迫你进入社会信用体系，社会信用体系是为了迫使你服从政府。”
+例如，宾夕法尼亚州的一名高中生刚刚死于“突发的心脏事件”：
 
-Emerald Robinson正在揭露一个事实，大量临床证据表明中共CCP病毒疫苗并不像宣传的那样有效时，她的声音完全被压制。Emerald Robinson认为，疫苗是一种连锁反应，迫使公民最终“服从政府”。
+这位高中足球经理“非常享受”他的球队在周六获得冠军的胜利。当天晚上，他就死了。
 
-在一封题为《[Covid19 – The Spartacus Letter](https://www.theautomaticearth.com/2021/09/spartacus/)》的长达几十页公开信中，Emerald Robinson已经完全触及到了中共CCP病毒、疫苗背后的巨大阴谋。
+现在，已故学生布莱克-巴克雷奇的高中正在哀悼他的早逝。据费城6ABC报道，悲剧发生在宾夕法尼亚州蒙哥马利县的拉萨尔学院高中。
 
-Emerald Robinson的团队经过数千个小时，从众多资料中得出这是一场生化武器战争的结论，安东尼·福奇在国会撒谎，应该被判重罪。疫苗是一种毒药，包含有毒物质、生物发光标记物、氧化石墨烯和其它神经控制纳米微电子材料！！！
+在一封致家长的信中，学校宣布这位高三学生在周六晚上“突发心脏事件”后死亡。
 
-武汉病毒研究所正在进行的功能增强性研究的资金来自 Peter Daszak。Peter Daszak 经营着一个名为 EcoHealth Alliance 的非政府组织（生态健康联盟），而生态健康联盟从福奇的the National Institutes of Health/National Institute of Allergy and Infectious Diseases获得了数百万美元的赠款。NIH/NIAID 向武毒所捐赠了几百万美元，DTRA 和 USAID 分别为这项研究捐赠了数千万美元，总共超过一亿美元。
+在同一州的其他地方，一个原本健康的12岁男孩因为冠状动脉的问题而突然死亡：
 
-由于生物战袭击，我们不得不眼睁睁地看着美国和自由世界陷入无情的衰落。我们和无数其他人一样，被一个未经选举、不负责任的精英针对美国人民和我们的盟友所进行的宣传和心理战行动所害。我们正在看着医疗机构向数百万美国同胞注入真正的毒药，而不是一场战斗。
+在家人和朋友的悲痛中，一名12岁的孩子在学校篮球训练的热身中过早死亡，死因已经出来了。
 
-在这封公开信中，Emerald Robinson提到了一个令人震惊的事实，参与疫苗研究的科学家与从事将纳米技术与细胞结合的科学家之间的联系。2020 年 6 月 9 日，与武汉理工大学合作，拥有数十年经验的哈佛纳米技术研究员 Charles Lieber 被美国司法部以欺诈罪起诉。Charles Lieber 从美国国防部特别是军事智库 DARPA、AFOSR 和 ONR，以及 NIH 和 MITRE获得了数百万美元的赠款，进行生物纳米技术，或者纳米技术与活细胞的融合研究。随后，中共国政府以千人计划为幌子，贿赂Charles Lieber等西方科学家分享专有研发信息，用于解放军的研究。
+据匹兹堡TribLive报道，据阿勒格尼县验尸官办公室称，12岁的杰森-基德，来自宾夕法尼亚州布里奇维尔，死于涉及其冠状动脉的自然原因。
 
-Emerald Robinson在公开信中明确指出， COVID-19（中共CCP病毒）疫苗含有氧化还原石墨烯纳米颗粒。日本研究人员还在 COVID-19 （中共CCP病毒）疫苗中发现了无法解释的污染物。石墨烯载流子迁移率15000cm2/（V·s）（室温），是人类已知的具有最高导电性的物质，并且在某些情况下具有顺磁性。Charles Lieber 自己的论文描述了将硅纳米线用于脑机接口或“神经花边”技术。他的论文描述了神经元如何内吞整个硅纳米线或其中的一部分，监测甚至调节神经元活动。可以植入人类心脏以远程监测其活动的人造组织支架。
+心脏问题一直在夺取着老年人的生命，但奇怪的是，这么多健康的年轻人为什么会出现了这些问题。
 
-Emerald Robinson突然被停职，绝非NEWSMAX宣称的简单推文误导这么简单，事实上，Emerald Robinson已经触及到中共CCP病毒、疫苗、暗势力、大重启等可怕的故事！
+**上周末，巴塞罗那前锋塞尔吉奥-阿圭罗在一场比赛中突然倒在了球场上。**
 
-#  
+**他后来被诊断出患有“心律失常”：**
 
-参考资料：
+巴塞罗那足球队的前锋塞尔吉奥-阿圭罗在周六对阵阿拉维斯的比赛中晕倒，被诊断为心律失常。
 
-[Newsmax White House correspondent is removed from the air after she claimed vaccines contain demonic markers that allow people to be tracked](/Users/quhui/Downloads/Newsmax%20White%20House%20correspondent%20is%20removed%20from%20the%20air%20after%20she%20claimed%20vaccines%20contain%20demonic%20markers%20that%20allow%20people%20to%20be%20tracked)
+这位33岁的阿根廷人在体育场接受了医务人员的检查，然后被送往附近的一家医院，他仍在等待接受进一步的检查。
 
-[@EmeraldRobinson](https://twitter.com/EmeraldRobinson)
+就在两天后，挪威的一场比赛因一名球员在比赛过程中出现“心脏骤停”而戛然而止：
 
-[Covid19 – The Spartacus Letter](https://www.theautomaticearth.com/2021/09/spartacus/)
+周一，挪威乙级联赛的一场足球比赛因冰岛中场埃米尔-帕尔森在比赛中遭遇心脏骤停而停止了。
 
-[Newsmax Benches Star Who Claimed COVID Vaccines Contain Satanic Trackers](https://www.thedailybeast.com/newsmax-benches-reporter-emerald-robinson-who-tweeted-about-satan-linked-vaccines)
+他的俱乐部在一份声明中说，这位28岁的索甘达尔球员是在与Stjordals-Blink的比赛进入第12分钟时发病的。
 
-[Opinion: Newsmax forced to admit vaccines don’t make you glow](https://www.washingtonpost.com/opinions/2021/11/04/newsmax-forced-admit-vaccines-dont-make-you-glow/)
+我一直在看到很多这样的故事。
 
-[Newsmax白宫记者Emerald Robinson：美国的选举是被操纵的，亚利桑那审计只是最新的例子](/Users/quhui/Downloads/Newsmax白宫记者Emerald%20Robinson：美国的选举是被操纵的，亚利桑那审计只是最新的例子)
+**那么，为什么这么多年轻人的心脏突然出现了如此严重的问题？**
 
-[America’s Elections Are Rigged (And Everybody Knows It)](/Users/quhui/Downloads/America's%20Elections%20Are%20Rigged%20%28And%20Everybody%20Knows%20It%29)
+有谁能向我解释一下这个问题吗？
 
-[@AlbertBourla](https://twitter.com/AlbertBourla/status/1369734954498818052)
+**简评：**
 
-[@ErikWemple](https://twitter.com/ErikWemple)
+**本文用事实阐述了，在这段时间无论是美国还是在其他国家，健康人群（尤其是年轻人）的心脏疾病、血凝块、呼吸疾病激增，并占据了医院中大部分的病床。作者在文末的结尾提出了疑问“为什么这么多年轻人的心脏突然出现了如此严重的问题？”**
 
-（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+**这个问题的答案无疑和疫苗有关。相关疾病人群，无疑是在接种疫苗之后，出现了健康问题。（可查看原文评论留言。）**
 
-编审：文敏    发布：文敏
+**疫苗的灾害还没有完全显现，已然有许多健康的人住进了医院。随着时间的不断推进，疫苗灾难或许会在明年的五月左右大面积爆发。世界将会迎来什么？**
 
+**许多国家已经开始停止推进疫苗接种政策，我们虽然看到了好的一面。但是全世界已经有38亿人接种了疫苗。当疫苗的灾难真的来临之时，是我们不敢想象的。**
 
+**我们要继续呼吁：“停止接种疫苗，科学合理的使用伊维菌素和青蒿素，让世界把疫苗灾难的损失降到最低！”**
+
+**新闻来源**：[zerohedge.com] [Something Really Strange Is Happening At Hospitals All Over America](https://www.zerohedge.com/medical/something-really-strange-happening-hospitals-all-over-america)
+
+* * *
+
+***审核：Aries的星
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
 
  
 

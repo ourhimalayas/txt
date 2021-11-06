@@ -2,59 +2,47 @@
 ---
 
 
-## 拥有了喜币就拥有了铸币权！喜币与股票的本质区别！
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1642324/)
+## 欧洲议会代表团不顾中国的反对访问台湾
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1642368/)
 
-你买的喜币叫Himalaya Exchange，严格讲就叫喜联储，你买的是喜联储。你买的是铸币权和币，你买的是钱和造钱的权力，你别忘了，这个不是币，你买的是Himalaya Exchange，它是造币权和钱。
+**编译：蚂蚁兄弟**
 
-You are buying HCoin (HCN) from the Himalaya Exchange, strictly speaking, it is from the Himalaya Reserve, you are actually buying into the Himalaya Reserve. What you bought is not only currencies, but also the right of issuing currencies. Please remember, this is not limited to currencies, you are buying into the Himalaya Exchange, which includes currencies and the right to issue currencies.
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip145.png)歐洲議會代表團團長法國拉斐爾·格魯克斯曼與台灣總統蔡英文會面 – 
+EFE
 
-啥叫股票呢？股票是公司的一个盈利的一个希望，它能流通吗？它能买鸡蛋吗？它能买衣服吗？它能再决定多印刷吗？——不可能！它是有限的一个范围内的一个承诺，你看得是长期的它的盈利和财务，它不能流通、不能交易。
+在日益紧张的军事局势中，欧洲议会议员首次前往台湾，呼吁台湾形成一个反对独裁的民主联盟。
 
-What then are stocks? Stocks represent the expectation that a company will be profitable. Can it be used in circulation? Can it be used to buy eggs? Can it be used to buy clothing? Can you print it out like currencies? Impossible! Stocks represent a promise within certain limitations. Its long-term financial value is based on future profitability. Stocks cannot be used in circulation for buying and selling purposes.
+在一个因冠状病毒大流行而日益分化的世界中，民主国家反对独裁政权的联盟继续形成。欧洲议会代表团首次访问台湾。这是一个历史性的事件，因为这个拥有2300万人口的岛屿是一个事实上的独立国家，但只有15个小国承认它，因为中共国声称拥有主权并要求其他国家与台湾政府断绝外交关系。
 
-你买的喜币你可以去买G-Fashion，你可以买飞飞的兜兜，可以买爱米粒的上次脱的衣裳，你可以买好海东先生签过字的球、叶钊颖的球——什么都可以买！无限的大，它有。
+在军事局势日益紧张的情况下，13名欧洲议会议员不顾北京的反对，于周四会见了台湾总统蔡英文。最近的一次发生在上个月，150架中国喷气式飞机侵入台湾的防空识别区数日之久。这次入侵再次引发了台湾海峡的战争阴影。
 
-The HCN you own can be used to buy products from G-Fashion. You can buy Feifei’s purse, you can buy Emily’s jacket, you can buy the soccer ball signed by Mr. Hao, also the badminton birdie from Mrs. Ye. You can buy almost anything! The possibility is unlimited since it (HCN) is used for trading purposes.
+“我们带着一个非常简单和非常明确的信息来到这里。你并不孤单，欧洲与你同在，并为你捍卫自由和法治”，作为代表团团长的法国欧洲议会议员拉斐尔-格鲁克斯曼对蔡总统表示声援。代表团的所有成员都是欧盟外国干涉民主进程特别委员会的成员，该委员会负责调查和防止中共国和俄罗斯等独裁政权的虚假信息和网络攻击。
 
-还有你买的Exchange是交易，它是铸币权！股票跟它一比，流通VS非流通，所以它的权力是什么，它被批准了100年1000个亿的币，你不能改，你改了就不行，刚才就我告诉你，所以衡量Himalaya的所有的价格都是以1000亿个币结算，你当然不能按10亿币计算了。
+据中新社报道，格鲁克斯曼建议：“我们的访问应被看作是重要的第一步。但下一次我们需要一个非常具体的高级别会议议程，以作出决定，在欧盟和台湾之间建立一个更强大的伙伴关系。”
 
-Moreover you are buying into the Exchange and its right of issuing currencies! Compared to stocks, the HCN is used in circulation. It has a set of rules. The Himalaya Exchange is approved to issue 100 billion coins over the next 100 years. It cannot be altered as I mentioned previously. Therefore if you want to evaluate the Himalaya Reserve, it has to be based on 100 billion coins vs 1 billion coins.
+因为欧洲议会议员说，欧盟正受到精心策划的削弱民主制度的攻击，代表团希望从这个受到中共国威胁的台湾身上学习如何应对这种威胁。“台湾也渴望与我们的欧洲朋友分享其打击虚假信息的经验，这将深化我们的伙伴关系，并帮助我们维护我们享有的自由和民主的生活方式”，蔡总统提出。她说，她的目标是形成“一个反对虚假信息的民主联盟”，因为在她看来，这是一个全球性的挑战。
 
-你现在比如说Elon Musk的股票，我现在就是多少股，你可以你再增发你都是这个股都在那搁着呢，你不可能说我卖完了，我现在Tesla我有1000亿股，我现在实际我有10000亿股，你不可以，你的增发是在你的股票的基础上来的，你是一个鸡蛋掰碎了给大家分去。这个币可不是的，第一天就决定你有多大，你只有1000亿个，个数是不可以改变的。
+欧洲议会代表团于周三抵达并于周五离开，这是西方国家对台湾的最新支持，而台湾传统上一直得到美国的支持。近来，欧洲也向台湾政府伸出了援助之手，以对抗习近平日益专制的中共的国际崛起。这一点在上个月台湾外长吴钊燮访问斯洛伐克和捷克共和国期间就可以看到，这两个国家有着痛苦的共产主义历史，与立陶宛一起领导着反对中共政权的行动。此外，欧洲议会已经通过了一项不具约束力的决议，以加强与台湾的关系，推动投资协议，与此同时布鲁塞尔和北京在去年年底签署的协议也搁浅了。
 
-For example let’s take a look of Elon Musk’s stocks. The value of the newly issued stocks are based on the value of the existing ones. When new stocks are issued, it is as if the cake has been sliced into smaller pieces meanwhile the size of the cake is unchanged. However it is a different scenario when it comes to HCN, the quantity is determined in day one, since the number of HCN is limited to 100 billion, and this number cannot be changed.
+**简评：**
 
-还有一个，你买的喜联储是铸币权呐，兄弟呀，它不是光是……，你买的是钱和印钱的权力，哇塞，这大了去了，而且它全流通，而且无国界，Elon Musk的股票可以到中国买吗？Elon Musk的股票在北朝鲜你可以买吗？现在最垂涎喜币的绝对不是你我，也不是共产党，一定是北朝鲜，一定是伊朗、俄罗斯。越闭塞的地方越想要这个，因为它是保值的，绝对保值。
+**中共政府那肆意叫嚣的“战狼外交”终于得到了西方世界“无声”而有力的“回复”。随着美国议员的访台，到如今的欧洲议员访台，西方世界的民主国家最终还是站在了拥有自由和民主的台湾一边。**
 
-Another matter is that you are buying into the Himalaya Reserve with its right to issue currencies. You are indeed buying both the currencies and the right to issue currencies. This is huge because HCN is used in circulation beyond the borders of nations. Can you buy Elon Musk’s stocks in China? Can you buy his stocks in North Korea? At this moment the people who desperately want to own HCN are not you and me, neither is the CCP. They are the groups in North Korea, Iran and Russia. The more isolated a regime is, the more it wants to own HCN, all because it (HCN) can maintain its value.
- 
-说完这的时候，所以我说你没说清楚吧，所以今天我要政清哥来好啊，我要当众虐待你。你赚那么多钱你不跟我分，我不虐待你才怪了。我让你要知道，年轻人你要搞明白，你是喜马拉雅的希望，你必须成为大家，而且在大家成长中长大，研究它的本质。
+**再看看“墙内”中共媒体对攻打台湾的大肆宣传和煽动，无疑现在中共政权把自己逼到了一个两难的境地。但是我们依旧不能低估中共对台湾虎视眈眈的狼子野心。向来不遵守国际规则，只注重权力和利益的中共，似乎依旧没有彻底放弃攻打台湾的计划。**
 
-After saying this, I am glad that our guest Zhengqing is here. Since you have made a fortune, let me challenge you. I will make it clear that you and other young people are the hopes of our Himalaya System, you have to grow with everyone and understand its essence.
+**我们不希望看到战争的发生，不过我们看到西方世界的民主国家纷纷认清了中共，表明了立场。这一点是值得让人欣慰的。**
 
-还有一个大家告诉的，一块钱升值意味着什么，一块钱乘以1000亿那就是1000亿，1000亿个，你乘以10亿个就是10亿，你看它动每一点儿的时候，它不是股票的跌幅。所有喜币的跌幅升下都会被列为未来喜币在任何抵押下的所有证据财务，股票不会的，股票现在我评估你多少钱就多少钱，但是喜币不是的，它是真钱的交易过后我认可的币，我卖你跌下来不等于说我就是这币就没了。
+**新闻来源：**[abc.es] [Una delegación del Parlamento Europeo desafía a China y visita Taiwán](https://www.abc.es/internacional/abci-delegacion-parlamento-europeo-desafia-china-y-visita-taiwan-202111041459_noticia.html)
 
-Let me say this to everyone, what does it mean when HCN increases its value by one dollar? One dollar multiplied by 100 billion is $100 billion. One dollar multiplied by 1 billion is $1 billion. Even it only moves a little bit, it is unlike the changes in the stock market. All the changes in value that the HCN has made today will have an impact on the future financial matters, including when it is used as collaterals. Stocks are different, the value of stocks are the same as its valuation today. However the HCN is different, it is a recognized currency after being used in real circulation, even if the value decreases, the HCN is still there.  
+* * *
 
-别忘了，我郝海东现在我拥有十万个币，你现在跌到三块钱了，我拿的我10万个币我还是10万个币，你涨1000块钱，我10万个币还是10万个币，为什么？它是个币的属性，因为是以个数决定的，Elon Musk的股票很厉害，你拿着10万股，郝海东先生，我不关心你10万股是10万还是100万，你这个10万值多少钱，你是被币来衡量的，10万股现在涨了1000块钱一股了——100万，涨一块钱了，那就是10万块钱，我不管你多少股。
+***审核：Aries的星
+校对：阿伯塔
+发布：信心满满***
 
-Don’t forget about this, If I have 100 thousand HCN, when each coin is worth $3, I still have 100 thousand coins, when it appreciates to $1000/coin, my 100 thousand coins are still there. Why? Such is the intrinsic characteristic of a coin, since its value is determined by the number of coins.  If you have 100 thousand shares of Elon Musk’s stocks, it doesn’t matter whether its value is $100 thousand or $1 million, since these 100 thousand shares are valued by coins. If each share has increased to $1000, it will result in a total value of $100 million, if each share increases by $1, you will have gained $100 thousand, doesn’t matter how many shares you actually have.
-
-但对于拥有币的人来讲，我不管你多少价我都有10万币，因为我这个10万币不是根据价格的起伏的，我的10万币有20%的黄金在这搁着呢——储备。我随时可以变成喜美元，你告诉我Elon Musk的股票能马上可以变成美元吗？你要抛吧，还有个你没了以后谁给你20%啊，没有的！他没有锚定、没有基础。
-
-However when it comes to the person who owns 100 thousand HCN, it doesn’t matter what value the coins have, he always owns 100 thousand HCN, since the value of the 100 HCN doesn’t fluctuate given it is pegged to gold equalling 20% of its value as a reserve. I can convert it to US dollars anytime. How can you convert Elon Musk’s stocks to US dollars at will? Also if the stocks one day have no value, who is going to give you the 20% value like the HCN has. The stocks are not pegged to anything therefore lack a foundation.
-
-这是币和股票，股票是希望，币是真金白银，币可以全球流通无障碍。股票只在股票市场某种范围内。不是鸡和蛋，刚才战友说是鸡和蛋，不是鸡和蛋的问题，是真真正正的它是一个无限大的一个摸得着的，它是一个印钞的一个机器。
-
-This is the difference between stocks and HCN. The stocks represents a hope and the HCN is equivalent to real gold and silver, which can be used freely around the globe. The stocks are limited to only the stock market. It is not a question of chicken and egg, the HCN system is an unlimited yet tangible system, a system that can issue currencies.
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
 
 
-你那个是被机器被钞票要买的一个希望而已，而且随时可以不存在。它是有价值的，它是无价值的。兄弟，你们搞明白的时候，今天你们记住，你买的是钱，你买的不是希望。那个是股票是希望，所以今天喜联储的上市牛就牛在这儿，你谁都操作不了，它是24小时在线。
-
-The hope (stocks) that you have is valued by the currencies, and its value can disappear anytime. The stocks have a price, and the HCN system is priceless. Brothers, please remember that you are buying currencies instead of hopes. The stocks represent hopes. That is why the IPO of the Himalaya Reserve today is very significant, it cannot be interfered by anyone, and it is online 24-7.
-
-**（文章内容仅代表新西兰-财经G乐部节目观点）**
 
  
 

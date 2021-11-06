@@ -2,27 +2,21 @@
 ---
 
 
-## 布朗参议员和同僚挑战新冠疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641912/)
+## 有声|中共要求3-11岁儿童在12月底前完成新冠疫苗接种
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1641943/)
 
-作者：MOS – 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月3日，来自印第安纳州的共和党参议员布劳恩，带领其他40位共和党议员正在挑战美国政府即将对私营企业实行的新冠疫苗强制接种令。
+配音：香草山教育部 – 蒙古鸿雁
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-3.jpeg)
+在当地时间10月30日的新冠疫情新闻发布会上，中共国家卫健委疾控局副局长吴良有要求在12月底完成墙内3-11岁儿童的全程新冠疫苗接种。 目前，这一规定正在中共国包括北京、上海、广东在内的十余个省市中强制推行。
 
-据悉，美国白宫将于本周发布一项关于新冠疫苗的规定，当中要求，若公司员工人数超过100人，则强制该企业执行新冠疫苗接种命令。预计，该规定将影响多达8000 万美国人的工作现状。
+消息称，此举引发了墙内民众的广泛质疑。他们指出，中共当局没有给出儿童接种新冠疫苗的数据报告，也没有披露这些疫苗是否已经完成了三期试验。同时，他们质问当局，疫苗造成的各类副作用是否有人负责。更有民众表示，宁可让孩子休学，也不会接种新冠疫苗。
 
-为此，布劳恩呼吁所有议员加入这次行动，用“国会审查法案”授予的权力取消这个“严重越权”的强制令。 布劳恩认为，接种新冠疫苗与否属于个人医疗选择，不应该受到政府胁迫。因此，他愿努力与同事一起，反对新冠疫苗强制令，保护受雇于私营公司的数百万美国公民的人身自由。
+文字版原文：[中共要求3-11岁儿童在12月底前完成新冠疫苗接种](https://gnews.org/zh-hans/1636671/)
 
-参考链接: [Sen. Braun, Colleagues Challenge Biden’s Vaccine Mandate](https://www.oann.com/sen-braun-colleagues-challenge-bidens-vaccine-mandate/)
+音频处理：喜山必胜Maverick
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
-
-总编：Irene木木
-编辑：AN
-校正/发稿：谐趣园
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
@@ -30,8 +24,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
