@@ -2,35 +2,35 @@
 ---
 
 
-## 数千名抗议者在墨尔本游行反对疫苗规定和新流行病法案
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1643134/)
+## 美国未接种疫苗者超过半数称不会改变想法
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1643193/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**翻译：Lish **
+**编辑：Julia**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/美国图片-1.png)图片来源：Zerohedge.com
+一项民意调查的结果显示，超过一半未接种疫苗的美国人说 “没有什么 “会改变他们对接种疫苗的想法。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/3a8970e759bb03f2cf01bb5dcde48915.jpg)
+波士顿、纽约和巴塞罗那的研究人员发现，53%的没有接种过疫苗的受访者不会被任何人说服去接种疫苗。
 
+13%的人说他们可能会被亲密的朋友或家人的建议所左右，而9%的人说家庭医生的建议可能会改变他们的想法。
 
+《每日邮报》报道，”有调查数据显示，保守派、生活贫困的人以及在外工作的人更有可能反对接种疫苗”。
 
-图片来源：NCA NewsWire / Luis Ascui
+这项调查是在2021年4月进行的，在 “德尔塔 “病毒病例激增和拜登政府的疫苗授权计划宣布之前，这就说明了问题。
 
+6个多月前，该民意调查发现，21%的受访者表示他们不想接种疫苗。
 
-#### 编译：小红帽
+目前的数字显示，大约20%的美国成年人仍然没有接种疫苗，这意味着在此期间只有大约1%的人被说服了。
 
-数以千计的抗议人士涌上墨尔本中央商务区的街道，以抗议维多利亚州新的流行病法案和州政府强加的疫苗规定。
+正如我们之前强调的那样，未接种疫苗的美国人在员工人数超过100人的公司(里工作时)，将被迫接受在室内戴口罩的惩罚。
 
-抗议者举着包括“杀死法案”在内的标语，同时呼吁维州州长丹尼尔·安德鲁斯（Daniel Andrews）辞职。
+虽然仅有刚过半数的美国人在接种疫苗的问题上表示他们的想法不会改变，但在德国，这一数字明显更高。
 
-安德鲁斯政府的大流行管理法案将赋予州长宣布大流行的权力，并以三个月为单位延长，同时赋予卫生部长无与伦比的空间来执行有争议的公共卫生命令。
+正如我们之前所报道的，在未接种中共病毒疫苗的德国人中，90%的人声称他们不会接种，剩下10%的人则称他们 “可能 “会接种或仍未决定。
 
-维多利亚州的反对派领导马修·盖伊（Matthew Guy）强烈地反对该法案，宣称如果他在明年11月当选，将立即废除该法案。
+*发布：热锅小蚂蚁*
 
-昆士兰州参议员兼助理总检察长阿曼达·斯托克 (Amanda Stoker) 周五表示，在经历了近两年的大范围封锁和中共病毒（COVID-19）限制之后，安德鲁斯先生“加倍行使了严厉的权力”。
-
-斯托克女士告诉澳大利亚天空新闻：“政府应退一步说，‘我们如何从中吸取教训，以便在类似的情况下，不会不必要地限制个人的生存能力’。”
-
-**参考新闻：**[Thousands of protesters return to Melbourne’s CBD to rally against vaccine mandates and new pandemic laws | Sky News Australia](https://www.skynews.com.au/australia-news/coronavirus/thousands-of-protesters-return-to-melbournes-cbd-to-rally-against-vaccine-mandates-and-new-pandemic-laws/news-story/2d30023e928c4d6c1de8c04babe0cdd9)
-
-***发布：小红帽***
+原文链接：[More Than Half Of Unvaccinated Americans Say Nothing Will Change Their Mind | ZeroHedge](https://www.zerohedge.com/covid-19/more-half-unvaccinated-americans-say-nothing-will-change-their-mind)
 
 **更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
