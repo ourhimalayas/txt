@@ -2,11 +2,13 @@
 ---
 
 
-## 11/5/2021 文贵直播： 中共给中国人灌输的无知是我们新中国联邦最大的敌人
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1642756/)
+## 美参议员提出《台湾威慑法》以加强台湾防御中共
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1642815/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1106-scaled.jpg)
+*编辑：东京樱花团/简报小组*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

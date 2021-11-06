@@ -2,58 +2,73 @@
 ---
 
 
-## 北京上月七万多起癌症两万起猝死,濒死者直接拉北门烧掉
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1642987/)
+## 幣圈新聞動態：HCN價格5日回調至13HDO後反彈，目前在18HDO附近震蕩
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1643021/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/0C86226D-1538-4E4E-BB3A-D095470F442D_副本.jpg)
-据[2021年11月5日文贵大直播：危机中的财富与财富中的危机；投资，投机，投票权的关系；喜币价格涨的真实性，公平性，对比香港恒生指数的虚假；无知无善，一定要付出法律的代价](https://gtv.org/video/id=61851d9f11d186296801e582)时间点1：22：45——
+*喜馬拉雅華盛頓DC 編輯：aQ*
 
-**郭文贵先生：**想想老班长，有钱以后你打了疫苗，你知道国内现在疫苗是什么感觉吗？就像你看不到有多少人跳楼死一样！我告诉大家仅仅北京过去的一个月，在医院里边所谓的癌症和癌症晚期，北京就出现7万多起。
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
 
-北京死亡就是猝死，最起码两万起，他说我保守地说两万起，这是谁呀？这是北京市卫生局的哥们告诉我的。
 
-他说七哥绝对不是所谓的什么三起两起，他说从武汉到现在共产党承认只死了七十多个人。他说你不觉得全世界的玩笑吗？怎么可能死七十多个人，这开大玩笑了这不是！所以共产党这个造假流氓到了这种千夫所指、天诛地灭呀！它把老百姓当猪狗啊！
 
-就像王岐山那个787飞机——787是人家正常经营啊！是吧？海航——海航是国家拥有啊，国营的。哇塞，这王八蛋就敢说，国营的他最后变成私人的了。
+## 每日一問
 
-然后我一说贯君、刘呈杰、孙瑶，他弄个视频出来了，哇塞，这个是贯君，这是孙瑶，还坐在那块录像，在纪委办案点，这孙子敢造这么个假！
 
-你们体会不到，你们永远没有我这感觉，这是我和你们之间最大的痛苦，就像隔着屏幕我想摸不着你们的感觉，你知道我那种痛苦，你七哥的痛苦真的是万锥扎心的感觉，这个民族怎么到了这个程度了，他敢造一假视频出来！
 
-然后我听到了疫苗这事情，咱们那个卫生局那个哥们说他七哥跟你说，来的他说死的人，几乎路上说这个人还有多大希望，说有20%——直接送北门去，啥叫北门知道吗？就是昌平那块儿的一个火葬场。
 
-原来现在有一个过去就北京，你一定要记住北京周围有一万多个垃圾堆，已经是1000年了。
 
-就是中国这么大的国——强大的国，从大清朝800年垃圾清出北京外还在那儿堆着没有处理的，后来是再往外拉，万个垃圾堆，你想北京城那就是一口痰嘛！
+法律常識的欠缺，是不是容易導致道德綁架？
 
-后来是七哥在他拿到奥运会以后，我跟北京市建议——贾庆林、刘淇，我说北京如果不把垃圾堆处理，你开奥运会你是丢人的，后来的那个当时的副市长陈刚到了丹麦、挪威，刘永清、胡锦涛主席亲自批示去考研了垃圾发电。
 
-北京垃圾发的电已经占到北京50%了，那些垃圾堆才没了，现在好几个没处理的垃圾堆已经变成了烧人的地方。这是他原话告诉我的，他说七哥你知道那几个地方的，就是北门就是几个垃圾场，直接就给你烧完就扔垃圾堆里。
 
-（以下暂略）
 
-撰稿：喜马拉雅的肉夹馍；
 
-审核：喜马拉雅的馍夹肉；
+## 喜馬拉雅交易所要聞
 
-校对：Maarago；
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+- 喜交所行情顯示，HCN價格5日回調至13HDO後反彈，目前在18HDO附近震蕩。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
+
+## 新聞動態
+
+
+
+
+
+1. Decrypt報道，根據LinkedIn為彭博社的一項研究，加密行業沒有形成單一中心，紐約、舊金山和洛杉磯這三個城市在2021年占據了加密工作招聘的最大份額，其次是邁阿密和芝加哥。研究中其余53%的加密工作分散在全國各地的中等城市，如奧斯汀、鹽湖城和波特蘭。
+2. Businesswire報道，加密原生風險監控公司Solidus Labs今日宣布完成1,500萬美元戰略融資，Liberty City Ventures領投，Exor Seeds和GSR參投。Solidus Labs於5月份完成2,000萬美元的A輪融資。
+3. Coindesk報道，FTX宣布已與Solana Ventures、光速創投合作推出1億美元專項基金，用於投資在Solana生態中製作鏈遊的工作室以及初創公司。
+4. 11月5日消息，遊戲工作室CoreLoop完成1,200萬美元融資。該公司於去年由手遊老手Vincenzo Alagna和Dan Chao創立。該筆資金將用於使用區塊鏈技術開發沙盒大型多人在線遊戲。
+5. Cointelegraph報道，加密支付網關Bitfinex Pay宣布與MetaMask集成，MetaMask是由ConsenSys提供支持的流行瀏覽器和錢包擴展。此次集成於周五正式上線，Metamask超過1,000萬活躍用戶可以使用Bitfinex Pay。
+6. 11月5日消息，加密貨幣平臺Blockchain.com宣布為美國佐治亞州超過1,000萬居民推出加密交易。該加密平臺現在可在30多個州使用，並且正在積極通過更多許可批準。
+7. 11月5日消息，分布式雲計算平臺iExec雲算寶與微軟雲計算平臺Azure就發展「機密計算」達成合作夥伴關系，iExec利用英特爾軟件防護擴展（SGX）來保護機器學習中的敏感代碼和數據。
+8. 11月5日消息，基於Cardano的ADA Lend宣布即將進行跨平臺開發，跨平臺集成將簡化並允許更大範圍的用戶訪問去中心化金融服務。
+9. Figment報道，加密基礎設施服務商Figment宣布，其正在著手將區塊鏈數據索引項目The Graph集成Cosmos，本次集成將允許The Graph對Cosmos生態系統數據進行索引和查詢。
+10. BitcoinMagazine報道，今日又有兩位美國市長宣布接受BTC支付薪水，分別是坦帕市市長Jane Castor和傑克遜市市長Chokwe Antar Lumumba，此前邁阿密市市長和紐約市市長均宣布將接受BTC支付薪水。
+11. 官方消息，Moonriver於11月5日上線SUSHI流動性挖礦。此外，Sushi和Moonbeam已經計劃建立更廣泛的合作關系，Sushi希望使用Moonriver和Moonbeam作為首選平行鏈在Kusama和Polkadot上部署其完整產品線，而Moonriver和Moonbeam希望將基於Substrate的流動性網絡與基於EVM的流動性網絡結合起來。
+12. 11月6日消息，Web 3.0項目Mask Network正式上線Mask 2.0版本，主要特性包括Mask錢包在移動端與瀏覽器端均已支持多鏈網絡，含目前5個兼容EVM的L1和L2網絡，也為非EVM鏈奠定了基礎，還提供了跨鏈橋的快速訪問。
+13. CryptoBriefing報道，NEM宣布第七次硬分叉Harlock，NEM節點將投票決定NEM區塊鏈是否合並為Symbol的子鏈，或一種特定於交易的側鏈。Harlock預計將在區塊高度3,464,800處執行。
+14. 官方消息，Coinbase宣布為紐約居民提供交易、購買、出售和存儲SHIB。
+15. 11月6日消息，數字資產平臺Bakkt周五在一份聲明中表示，除比特幣外，該公司很快將向客戶提供以太坊交易服務。Bakkt的機構客戶也可以使用該公司的托管服務來存儲以太坊。Bakkt由洲際交易所（紐約證券交易所的母公司）於2018年推出，作為一個加密貨幣托管機構，目前只交易比特幣。
+16. 11月6日消息，Paradigm聯合創始人兼管理合夥人Matt Huang已加入在線支付服務商Stripe的董事會，作為長期投資者和業內領先的加密專家，Matt的觀點將對Stripe提供幫助。此前報道，Stripe正組建加密團隊以構建Web3支付網絡。
+17. 11月6日消息，美國眾議院議長佩洛西稱，希望眾議院能在感恩節前通過支出法案，相信有很多進步黨團成員會投票支持基礎設施法案。
+
+
+
+
+
+*編輯：aQ
+發布：文顧*
+
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

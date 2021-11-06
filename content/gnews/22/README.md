@@ -2,28 +2,32 @@
 ---
 
 
-## 俄罗斯驻德国大使馆前发现外交官尸体
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1642849/)
+## 有声|布朗参议员和同僚挑战新冠疫苗强制令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1642929/)
 
-撰稿：东京樱花团/待命（文晓）
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月3日，来自印第安纳州的共和党参议员布劳恩，带领其他40位共和党议员正在挑战美国政府即将对私营企业实行的新冠疫苗强制接种令。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/俄罗斯驻德国大使馆前发现外交官尸体.png)
+据悉，美国白宫将于本周发布一项关于新冠疫苗的规定，当中要求，若公司员工人数超过100人，则强制该企业执行新冠疫苗接种命令。预计，该规定将影响多达8000 万美国人的工作现状。
 
-11月6日时事通信消息：据法新社5日报道，在德国首都柏林的俄罗斯大使馆前, 发现俄罗斯外交官的尸体。
+为此，布劳恩呼吁所有议员加入这次行动，用“国会审查法案”授予的权力取消这个“严重越权”的强制令。 布劳恩认为，接种新冠疫苗与否属于个人医疗选择，不应该受到政府胁迫。因此，他愿努力与同事一起，反对新冠疫苗强制令，保护受雇于私营公司的数百万美国公民的人身自由。
 
-最早报道发现尸体的德国《明镜周刊》称，警方于10月19日在人行道上发现了一具男子的尸体，据信他是在从使馆坠落后死亡。死者是俄罗斯大使馆的一名二等秘书，35岁。但德国当局表示，他们相信这名外交官也是俄罗斯联邦安全局（FSB）的一名情报人员。德国外交部的一位发言人说，该部“了解”这一案件，但没有提供细节。
+原文链接: [布朗参议员和同僚挑战新冠疫苗强制令](https://gnews.org/zh-hans/1641912/)
 
-俄罗斯大使馆承认该外交官的死亡，并将其描述为“悲惨事故”。并坚持认为，“西方媒体的猜测”是“完全不准确的”。
+音频处理：喜山必胜Maverick
 
-据报道，这名死去的外交官还与联邦安全局第二部的一名高级官员有联系。西方情报机构认为该部门参与了2019年在柏林市中心谋杀格鲁吉亚国民泽利姆汗-康戈什维利的事件。
+发稿：呼吸的雾霾（文小呼吸）
 
-[信息源](https://news.yahoo.co.jp/articles/7ec912a22bf56012c69d7e823b2bb76b4d4e59d3)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-（图片源自本文链接）
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

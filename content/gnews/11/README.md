@@ -2,28 +2,47 @@
 ---
 
 
-## 秘翻在线：国会山就预先授权总统军事保卫台湾进行辩论中
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1642973/)
+## 墙内油盐酱醋组团涨价
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1643020/)
 
-#### 撰稿：彩虹
+作者：英国喜庄园 – I770775
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-3.jpg)图片来源：Devdiscourse
-10月6日，《新闻极限》（Newsmax）发布文章，引述《政客》（Politico）的报道，指国会山就是否预先授权乔·拜登（Joe Biden）总统，在台湾面临中共国入侵之前使用军事力量保护台湾而进行辩论中。
 
-文章指，1979年的《台湾关系法》的战略模糊原则规定，在面对中共国攻击或入侵台湾时，美国对是否保卫台湾“不做承诺”。
 
-来自弗吉尼亚州的众议员伊莱恩·卢里亚（Elaine Luria）说：“如果我们以一种限制冲突范围的方式进行干预，以阻止中共国入侵台湾或者吓阻中共国，那么我们就可以避免一场全面的战争。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-参议员乔什·霍利（Josh Hawley）则提出立法，每年向台湾发送30亿美元，从而提升台湾军事开支以准备迎接可能来自中共国的攻击。
 
-而来自马萨诸塞州的众议员吉姆·麦戈文（Jim McGovern）则认为，“我对冷战还是热战不感兴趣，我认为我们应该专注于寻找任何可能避免冲突的方法。”
 
-报道说，一位政府高级官员告诉《政客》，白宫“将继续就这些重要问题与国会接触”，并且说拜登政府不会重新审视战略模糊政策。
+中共国相关媒体消息，由于材料成本上涨，利润受到挤压，近日，油盐酱醋等各大龙头企业相继发布涨价通知：
 
-**新闻来源**
+金龙鱼食用油公司表示，产品涨价的理由是，为平衡消费者的接受度与公司的成本、利润及长远发展之间的关系；雪天盐业、云南盐业、苏盐集团等盐业巨头集体宣布涨价，最高涨幅达35%；继海天味业首先宣布对酱油、蚝油、酱料等产品价格进行上调后，行业各品牌的酱油、蚝油等调料先后宣布涨价；醋业老大恒顺醋业公司决定自11月20日起，对其产品价格上浮5%-15%不等。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-20.jpg)
+参考链接：
+1. [28亿存款被莫名质押，渤海银行最新回应！油盐酱醋巨头组团提价，北上资金爆买食品龙头](https://stock.stockstar.com/SS2021110500002160.shtml)
+2. [多家食品上市公司回应调价计划，盐业公司集体宣布涨价](https://www.thepaper.cn/newsDetail_forward_15222550)
 
-[Senators Debate Military Authorization for Taiwan](https://www.newsmax.com/newsfront/senate-taiwan-china/2021/11/05/id/1043545/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：木白
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

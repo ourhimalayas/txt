@@ -2,26 +2,52 @@
 ---
 
 
-## 美国11个州就拜登政府的疫苗新规提起诉讼
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1643002/)
+## 中共公布前三季度31家A股上市房企亏损，经济寒冬已经来临
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1643028/)
 
-#### 翻译/撰稿：zzballack
+作者：日本方舟农场 – Andy5
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16361780901.png)
-图片来源：KCUR.org
 
-据《新闻极限》（Newsmax）11月5日报道，美国11个州的总检察长11月5日对拜登政府提起诉讼，挑战一项针对员工人数超过100人的公司的新疫苗要求。
 
-美国安全与卫生署（OSHA）的新规要求雇员超过100人的公司需强制其员工接种中共病毒疫苗，或者每周接受核酸检测并且在工作时佩戴口罩。该规定将于2022年1月4日开始实施，一旦不遵守规定，每项违规行为将受到近14000美元的罚款。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-这起向位于密苏里州圣路易斯市（St. Louis）的第八巡回上诉法院提起的诉讼认为，强制接种中共病毒疫苗的权力属于各州，而不是联邦政府。
 
-密苏里州总检察长埃里克·施米特（Eric Schmitt）在法庭文件中说：“这个强制令是违宪的、不合法的，也是不明智的。密苏里州雇佣了130万名员工的总计3443名私营雇主可能会受到疫苗新规的影响。我上诉的目的是保护个人自由和密苏里州的企业，并回击那些仅仅想要权力和控制的官僚暴君。”
 
-加入密苏里州诉讼的还有阿拉斯加、亚利桑那、阿肯色、蒙大拿、内布拉斯加、新罕布什尔、北达科他、南达科他和怀俄明州的共和党总检察长以及爱荷华州的总检察长–民主党人汤姆·米勒（Tom Miller），另外还有一些私营雇主、非营利和宗教组织。
+中共发布了前三季度121家在A股上市的房地产企业的数据，其中前三季度营业收入同比下滑者达到40家，占总数的1/3；而归属母公司净利润同比下降的，更是达到了52家，超过4成；有31家房企在亏损。有意思的是，121家房企营业收入同比增长23.2%的同时，净利润却同比下降了29.5%。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-11.jpg)
+值得关注的是，在这121家房企中，前三季度“经营”现金流为负数的有50家，“投资”现金流为负数的有73家，“筹资”现金流为负数的达到77家，“期末”净现金流为负数的达到了76家，也就是说，超过4-6成的房企现金流为负数。
 
-新闻来源：[11 States File Suit Against Biden’s Business Vaccine Mandate](https://www.newsmax.com/streettalk/gop-pushback-covid-biden-businesses/2021/11/05/id/1043442/)
+房地产企业如此负面的数字，自然也影响了股市，恒大、佳兆业纷纷停牌，11月5日世茂集团的两支股票也出现了超过20%的大跌，创3年来的新低。
+
+从利润、资金流、股票表现来看，不仅仅只是近期最热点的恒大，中共的大部分房企正在一个个爆雷，房地产的寒冬已经来临。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-14.jpg)
+参考链接：
+1. [前三季度31家A股房企亏损！万科等遭受利润下滑，行业缩表未结束](https://finance.sina.com.cn/stock/hyyj/2021-11-03/doc-iktzscyy3452090.shtml)
+2. [內房｜世茂境內債暴瀉逾兩成　臨時停牌　股價創三年低](https://www.hk01.com/%E8%B2%A1%E7%B6%93%E5%BF%AB%E8%A8%8A/697246/%E5%85%A7%E6%88%BF-%E4%B8%96%E8%8C%82%E5%A2%83%E5%85%A7%E5%82%B5%E6%9A%B4%E7%80%89%E9%80%BE%E5%85%A9%E6%88%90-%E8%87%A8%E6%99%82%E5%81%9C%E7%89%8C-%E8%82%A1%E5%83%B9%E5%89%B5%E4%B8%89%E5%B9%B4%E4%BD%8E)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：童谣
+编辑： AN
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
