@@ -2,129 +2,34 @@
 ---
 
 
-## 视频| 如何把握好喜币交易的时机？
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1644245/)
+## “海底捞”将关停300家门店
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1644269/)
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月5日，相关报道提及，海底捞在香港联交所发布公告表示，将于2021年底，逐步关停300家左右经营业绩不佳的门店。
 
-制作：香草山视频部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-5.jpeg)
 
+消息称，截至2021年6月31日，海底捞全球门店总数约为1600家。但从财报的数据看，今年上半年，海底捞的营收业绩为200亿元，净利润仅0.97亿元，与2019年同期相比大幅下降，暴跌近90%。另有数据显示，截至目前，海底捞的股价年内已下跌70%，市值蒸发超过3500亿港元。
 
+有关评论表示，海底捞是中共统治下私营企业的缩影。在中共经济面临崩溃的当下，中共国内没有一个企业是安全的。
 
-喜币今天你看到上市
+参考链接：[“火锅之王”扩张之殇：海底捞将关停1/5门店](https://m.sohu.com/a/499459254_100011510/?pvid=000115_3w_a)
 
-最关键的就是它降生了、它出生了
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-你完全没有看到它是男是女
-
-你完全没有看到它到底是长啥样
-
-它还没呼吸呢
-
-第一声还没出来呢
-
-它连爹妈根本不可能喊
-
-你现在对它多好的评价
-
-多坏的评价都是错的
-
-兄弟姐妹们
-
-你要记住两个最核心的观点
-
-你是一毛钱买的一个币
-
-而且赔了我负责
-
-赚了是你的
-
-你不要干因为你买一毛钱的币
-
-造成终生后悔
-
-战友们你们一定要把你们的币
-
-坚持到最起码那三个重要原则的发生
-
-第二个你看到那个交易的时候
-
-交易的对量它一直走到时候
-
-你可是兑现一部分
-
-剩下的钱你就等着再等着
-
-等什么？
-
-等着你剩下的钱你不用纳税
-
-你记住你这200万你是要纳税的
-
-肯定你在出去之前你是要纳税的
-
-你千万被偷税别死在税上
-
-死在穷上已经是很可怜了
-
-是不死不活的
-
-你有钱死在税上呆在监狱里
-
-人在监狱钱在喜币
-
-那你就更惨了
-
-兄弟姐妹们
-
-除了这个之外你就要看着
-
-就是让自己把钱变成能到贷款的时候
-
-拿着可贷款、不用交税
-
-你就去花去
-
-你想干啥干啥
-
-这时候你就可以更加精明的运作
-
-这个时候就到什么时候了？
-
-盖特要上市
-
-新GTV也有可能随时都上市
-
-你还可以继续增加
-
-就是用钱真的是来滚雪球的挣钱
-
-就是这个时候如果需要钱
-
-你什么都能贴现的情况下
-
-你就没有负担了
-
-这时候涨跌跟你都没有关系 你就不要管涨跌了
-
-
-
-*发稿：雪梨*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

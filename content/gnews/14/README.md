@@ -2,29 +2,34 @@
 ---
 
 
-## 脸书和Instagram消息功能在故障后恢复正常
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1644511/)
+## CDC 主任拒绝告诉参议员有多少 CDC 员工完全接种了疫苗
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1644553/)
 
-据《华尔街日报》作者：Joseph Pisani，2021年11月3日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-91-e1636226599199.png)位于加州门洛帕克的META平台总部。
-照片：NICK OTTO/BLOOMBERG NEWS
-脸书和Instagram的消息功能在周三下午遭遇了长达数小时的中断，之后似乎又重新上线，这是Meta Platforms Inc的产品在一个月内遭遇的第三次中断。
+2021年11月6日
 
-根据追踪网站故障的网站Downdetector的数据，美国东部时间周三下午2点左右，关于故障的报告开始激增。Meta（前称Facebook Inc.）的一位女发言人当时说：“我们知道有些人在访问Messenger、Workplace Chat和Instagram DMs时遇到了麻烦。”
+作者：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/11/110621.png)
+来源：网络
 
-原文连接：[https://www.wsj.com/amp/articles/facebook-and-instagram-messaging-functions-are-down-11635969955](https://www.wsj.com/amp/articles/facebook-and-instagram-messaging-functions-are-down-11635969955)
+自去年年底第一种疫苗获得紧急授权以来, CDC 一直处于大流行期间推动 COVID-19 疫苗接种的最前沿。
 
-翻译：洛杉矶盘古农场 – TrueSky
+“CDC 员工接种疫苗的百分比是多少？” 在华盛顿举行的参议院卫生委员会听证会上，参议员比尔·卡西迪（R-La.）向疾病预防控制中心负责人罗谢尔·瓦伦斯基博士提问。
 
-校对：洛杉矶盘古农场 – Mike Li
+“我们正在积极鼓励所有员工接种疫苗，并进行外展活动，以使我们的机构接种疫苗，”瓦伦斯基回应道。
 
-编辑：洛杉矶盘古农场 – 心照
+参议员理查德·伯尔（R-N.C.）是该小组的最高共和党人，在听证会结束前重新讨论了这个话题。
 
+“你真的不知道 CDC 接种疫苗的人数的答案，还是你只是不想回答参议员卡西迪的问题？” 伯尔想知道。
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+瓦伦斯基拒绝直接回答。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+“我们仍在积极收集这些数据，并且这些数据会实时更新，”她说。
+
+伯尔要求在 11 月 8 日之前将这些数字发送给委员会。
+
+来源链接：[https://t.co/6ZHxWQOpcw](https://t.co/6ZHxWQOpcw)
+
+发布：涅
 
  
 
