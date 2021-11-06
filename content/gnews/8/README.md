@@ -2,27 +2,124 @@
 ---
 
 
-## 文贵先生谈投资、投机和投票
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1643451/)
+## 比特币会彻底消失？
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1643510/)
 
-**整理：凯鹿
-编辑：Kelly**
+[https://gtv.org/video/id=61863cdcadfd99590c33ae43](https://gtv.org/video/id=61863cdcadfd99590c33ae43)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/11.6-2.jpg)图片来源：Ai-CIO
+**郭文贵
+Miles Guo**
 
+我想告诉大家啊
+I want to tell everyone that
 
-**文贵先生2021年11月5日大直播：**
-战友们，今天发生了很多大事： 其中一个，你拥有财富，你永远要懂得，财富不是双刃剑，财富和你之间有一个大老虎，稍加不慎就被它吃掉。昨天，美国的老银行家说：“我希望你告诉那些穷兄弟姐妹们，我一生，我家族创造了世界上50%的财富，跟他们分享，我父亲、我爷爷告诉我的——人的一生中，确实像中国人说的，危机中有机会，很聪明的中国人，但是中国人从来没有说过机会中的危机和财富中的危机。” 咱老说危机中有机会抓住，但从来听说机会和财富中的危机。 你在危机中获得的财富，你获得财富就有危机。 还有一个他说：“你要记住，平台投资，这是一个造币权、股票和货币的区别，我看到你直播中讲了，我女儿也给我翻译了，你还要加上一个最重要的一句话，你们的平台、投资股票和货币的区别是—你们现在要投资的是科技货币，科技货币没有科技性，就啥都没了。 但科技货币只能存在于有法律的国家。当科技没有主权的时候，科技货币是不存在的。就像中国共产党，没有人去买他的科技货币。”老人家讲的好啊！然后他说：“文贵告诉战友们，你们的投资、投机和投票权这个关系要搞清楚。 ”
+区块链，咱有两个要给大家说的事
+There are two points I want to make clear to you about blockchain
 
-我们新中国联邦多幸运啊，拥有一个资本主义的创始者，曾经拥有世界一半财富的人给我们提建议，要把投资、投机和投票搞清楚。没有投票权的经济体是不可能有投资的真实性、真实能力和未来的，没有投票的所有投资都是投机，就像北朝鲜，就像香港现在一样。深刻地记下来！
+你一定要知道区块链技术和区块链的拥有者的（关系）
+You must know the relationship between blockchain technology and the owner of the blockchain
 
-发布：文武全才
+它是个行政体制，也就是法律结构
+It is an administrative system, that is, a legal structure
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+这完全两回事，我再重申一遍
+I emphasize one more time that these are two completely different things
+
+区块链是去中心化的技术
+Blockchain is decentralized technology
+
+所有的货币都是去中心化技术，没有一个不去中心化的
+All digital currencies are decentralized technologies, everyone is decentralized
+
+它的拥有者和创造者是不是去中心化的？这是完全两回事
+But whether its owners and creators are decentralized? That is two completely different thing
+比特币它是去中心化的
+Bitcoin is decentralized
+
+那么我昨天晚上，我和喜联储的律师，还有我们的喜联储的主席
+Last night, I was with the lawyer of the Himalaya Reserve and the president of the Himalaya Reserve
+
+我跟他说，我说两件事情，绝对比特币就消失
+I told them that two things would absolutely wipe out the value of Bitcoin
+
+这里presentation，你是讲不出来的，这就是7哥牛的地方
+The presentation is not telling here, that’s where I’m good at
+
+你讲100天，7哥就一句话，就讲的比你厉害
+You talk about it 100 days, it’s a sentence for me, it speaks more than you
+
+政清你要学一学
+Zhengqing, you have to learn
+
+知道我从小就学会了，师傅高在哪儿啊？
+I have learned since I was a child. What is the master’s greatness?
+
+就是最后那一拳把你撂倒，这就叫师傅
+That is, he can take you down in one move, which is called master
+
+被撂倒了就是徒弟
+If you are knocked down, you are a disciple
+
+现在7哥给你们教教
+Let me teach you now
+
+比特币，为什么我昨天跟他们讲
+About Bitcoin, why I told them yesterday
+
+都在说比特币的技术，区块链不可能超过2100万的
+It’s all about the technology of bitcoin, the blockchain, the 21 million coins
+
+所有的价值都是因为它2100万
+All the value is because of the 21 million coins limit
+
+所有全人类区块链技术的，任何人都迷信一件事儿
+Blockchain technology for all mankind, everyone is superstitious about one thing
+
+包括你政清，你回答我
+Including you Zhengqing, get me an answer
+
+你是不是相信，绝对相信只有2100个
+Do you believe, absolutely believe that there are only 2100 coins?
+
+你相信吧，政清
+You do, right?
+
+对，没有人怀疑，但是我告诉你
+Yes, no one doubts it, but I’m telling you
+
+只要有一个人说它确实超过2100万个，2110万个
+It only takes one person to say that it does exceed 21 million, 21.1 million
+
+比特币彻底归零，这你相信吧
+Bitcoin’s value has completely gone to zero, do you believe that?
+
+因为这个神话已经没有了嘛，它就成空气了
+Because the myth is gone, it becomes an air currency
+
+我可以告诉大家，比特币一定不是2100万个，走着看
+I can tell you that bitcoin must not be 21 million coins, wait and see
+
+到那时候，所有比特币就没了，消失了，空气，一分都没了
+At that point, all the value will be gone and disappeared in the air, not even a penny left
+
+* * *
+
+Date: 11/04/2021
+原视频标题: 比特币会彻底消失？
+Bitcoin’s value will disappear completely
+原视频日期：2021/10/29
+原视频链接：[https://twitter.com/se1y7cblljselva/status/1454775137115336725?s=24](https://twitter.com/se1y7cblljselva/status/1454775137115336725?s=24)
+任务编号：KC224(2738)
+视频时间段 : 0:00-1:48
+英听校：洛杉矶盘古农场 – Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

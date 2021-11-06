@@ -2,54 +2,48 @@
 ---
 
 
-## 对逻辑免疫：疫苗首要是毁大脑，从而盲目接受更多疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1643335/)
+## 中共国紧急购买北极液化天然气
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1643408/)
 
-编译：Jenny Ball
+**编译：蚂蚁兄弟**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Man-Stupid-Dumb-Face-Young.jpg)图片来源：newstarget.com
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip147.png)
 
-在过去的 60 年里，有些疫苗可能挽救了一些生命，包括麻疹疫苗和可能的脊髓灰质炎疫苗。然而，**随着疫苗接种而来的是腐败的病原体，**它们在实验室中酿造和繁殖，以破坏人体免疫系统、中枢神经系统，是的，系统性大脑功能。我们已经看到致命的猪病毒（称为圆环病毒）故意插入儿童轮状病毒疫苗中。我们已经看到，在肯尼亚、非洲推广的疫苗中，使用了[消毒化学品](https://www.scirp.org/Journal/PaperInformation.aspx?PaperID=81838)。而[脊髓灰质炎疫苗](https://www.naturalnews.com/2020-10-15-gates-vaccine-spreads-polio-across-africa.html)实际上会传播脊髓灰质炎。
+中共国最近通过所谓的北方海路从俄罗斯进口了一批液化天然气，在中共国的能源短缺已经影响到工业和全球供应链的情况下，中共国称这是最紧迫的一次天然气运输。
 
-我们见证了数十年的多剂量流感疫苗也就是“流感疫苗”，其中含有过量的汞，已知会导致脑损伤。毕竟，汞是地球上毒性最强的非放射性元素。现在，**我们在疫苗中引入了**** mRNA ****技术，您自己的细胞会被诱骗产生数十亿个有毒的刺突蛋白，这些蛋白充斥血管系统，限制氧气和营养物质流向大脑**。
+挪威媒体High North News周三援引中共官媒的报道说，“弗拉基米尔-沃罗宁号”破冰船最近从俄罗斯生产商诺瓦泰克的亚马尔工厂向中共国深圳港运送了7万吨液化天然气。
 
-CDC 和 CCP 正在为接种疫苗的人创造免疫力，**但这不是你想的那种**。疫苗对逻辑产生了免疫力，这是它们真正提供的唯一免疫力。对 Covid 病毒的任何免疫力尚未得到证实，怀疑存在的一点点作用在几个月内就会减弱，这使得整个疫苗接种活动变得毫无价值，而且完全有害。
+深圳天然气公司收到了来自俄罗斯的液化天然气货物，中共媒体称其为冬季取暖季的紧急供应。
 
-人们定期接种疫苗，并让他们的孩子接种疫苗的主要原因，是因为大众媒体已经说服他们这是唯一安全的做法，而这些疫苗的内容使他们陷入**医学昏迷**——**一种被淘汰的心态，**** ****很容易相信编造、歪曲和伪造的****“****安全有效****”****的口头禅**。
+业内人士告诉路透社，亚洲12月交货的液化天然气价格上周下跌10%，平均为每百万英热单位（mmBtu）31美元。与上个冬季开始时的价格相比，该价格仍然很高。
 
-**Covid ****疫苗不能阻止感染病毒也不能阻止传播病毒，尽管几乎所有接种过疫苗的羊群一样的人们都相信疫苗。 **
+新加坡的一位交易员周五告诉路透社，中共国的液化天然气需求上周似乎略有缓解，因为这个世界第二大经济体更多使用煤炭发电，并且正在提高炼油厂的产量。
 
-有一点是肯定的，几乎所有接种了 FDA 和 CDC 推荐的每种疫苗的美国人都 100% 地相信，这些疫苗是完全安全且高效的，**而没有看到任何科学证据来证明这一点**。数以百万计的疫苗狂热者声称，谈到医学非常强调“以科学为基础”，**但仅仅因为他们以完全合规的方式销售疫苗，并不意味着它是基于科学的合规性**。
+然而，中共国仍在努力解决能源短缺问题，包括柴油供应。
 
-看看阿片类药物的流行就知道了。这就是造福人类的“科学”吗？ 阿片类药物“安全有效”吗？ 它们是为了更大的利益而开发的，它们对你的心脏和大脑有好处吗？ 现在是仔细研究疫苗的时候了，特别是 Covid 疫苗，以及它们的真正功能。
+周日，中共国国家粮食和战略储备局表示，中共国已经从燃料库存中释放了汽油和柴油，以阻止在中共国部分地区加剧波动的价格飙升。
 
-起初，逻辑是服用 Covid 疫苗以防止感染 Covid，从而防止其传播。**然后科学粉碎了那个****“****假事实****”****。**然后，人们认为，如果接种疫苗可以保护他们可以聚集在一起，但这种说法随着科学而支离破碎。
+彭博社援引政府的话说：“从库存中释放的柴油和汽油将用于增加市场资源，减少供应短缺，以稳定供应和价格”。
 
-**CDC ****需要一个新的叙述**。接下来是疫苗可以防止您感染后的严重 Covid 症状理论。 这就是为什么疫苗让你变得愚蠢（对逻辑免疫），所以你不会记得疫苗行业刚刚犯下的所有错误，你会相信下一个大谎言。
+中共国最近几天采取行动，通过政府干预来结束煤炭价格的飙升，引发了上周煤炭价格的暴跌。
 
-请记住，氟化水会降低智商，流感疫苗中的汞会损害大脑功能，而现在注射凝块会使大脑缺氧。间接地，这些计划中的毒素会导致受害者对逻辑免疫，因此他们将继续摄入和注射它们。现在是“强制性”Covid“加强”注射，它们根本不是疫苗，**而是防止您的身体**[对抗疾病](https://www.naturalnews.com/2021-11-02-covid-vaccines-inhibit-dna-repair-cause-cancer.html)**（包括癌症）的基因疗法**。
+中共国的煤炭价格上涨和能源短缺在第三季度减缓了中共国经济的增长，现在有可能在第四季度蔓延到全球供应链中。
 
-将您的真实新闻拨号发到 [Pandemic.news](https://pandemic.news/2021-08-27-top-8-ways-americans-pollute-their-bodies-every-day.html)，以随时了解 Covid 诈骗的设计陷阱。不需要科学家，或医生就可以看到[Covid 疫苗](https://www.naturalnews.com/2021-09-16-covid-vaccines-devastating-long-term-effects.html)、瑞德希韦、**口罩和呼吸机正在加剧大流行的问题，**造成它们自己的大流行。
+**简评：**
 
-点评： 一句话，**就是让人们失去一个人的常识**！
+**“The winter is coming.”美剧《权力的游戏》中的这句经典台词，用来形容现在的中共国，恐怕再合适不过了。冬季已经来临，中共国出现了能源短缺的情况。或许是中共外汇的枯竭，或许是中共那“战狼外交”的政策在贸易上所带来的负面影响。面对这一切危机，伤害最大的即是全世界和中共国的百姓。**
 
-**文章信息来源****:**
+**中共通过对国内百姓的压榨，用劳动密集型产业绑架了世界经济。其能源的短缺，必将引起全世界产业链的断裂。糟糕的经济环境和即将崩塌的金融系统，中共已经走在了灭亡的边缘。**
 
-[Pandemic.news](https://www.pandemic.news/2021-03-04-who-insider-exposes-gavi-gates-perpetrating-plandemic.html)
+**邪恶的中共政权必将在历史的轮回中被淘汰，而世界的经济只有在消灭掉这个邪恶政权之后，才能重塑。**
 
-[TruthWiki.org](https://www.truthwiki.org/cdc-centers-for-disease-control-and-prevention/)
-
-[NaturalNews.com](https://www.naturalnews.com/2021-11-02-covid-vaccines-inhibit-dna-repair-cause-cancer.html)
-
-[ZeroHedge.com](https://www.zerohedge.com/covid-19/joe-rogan-crushes-cnn-over-ivermectin-horse-paste-propaganda-gets-gupta-concede)[Scirp.org](https://www.scirp.org/Journal/PaperInformation.aspx?PaperID=81838)
-
-新闻来源：[newstarget][IMMUNE TO LOGIC: The first goal of vaccines is to damage the brains of the vaccinated so they keep blindly taking more shots](https://www.newstarget.com/2021-11-04-first-goal-of-vaccines-damage-brains-of-vaccinated-keep-taking-more-shots.html)
+**新闻来源**：[worldenergytrade.com] [China adquiere por emergencia un cargamento de GNL del Ártico](https://www.worldenergytrade.com/oil-gas/distribucion/china-adquiere-por-emergencia-un-cargamento-de-gnl-del-artico)
 
 * * *
 
-*审核：文乐
+***审核：Aries的星
 校对：阿伯塔
-发布：信心的选择*
+发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
 

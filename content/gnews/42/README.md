@@ -2,49 +2,37 @@
 ---
 
 
-## 美共和党参议员联名提出《台湾吓阻法案》强化台湾自卫能力
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1642998/)
+## 虚假恒指将引发香港金融灾难
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1642974/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：纽约香草山农场 四季
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-美国参议院外交委员会共和党籍参议员里契于11月4日联合其他议员提出“台湾吓阻法案”。这是继2日参议院军委会参议员霍利提出“武装台湾法案”后，美国参议员在3天内提出的第2项助台法案。 显示美国政界越来越重视如何加强台湾的自卫能力，以对抗中共的威胁。
+郭文贵先生在11月5日的大直播中揭示，在过去几年里，香港的恒生指数都是虚假的，它和美元挂钩的基数从未被披露过。另外，其中几家主要的金融机构指数占据恒生指数的20%多，且当中超过一半都是香港和中共国内的房地产按揭贷款和房地产信托公司。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2021.11.06AM-PICTURES-1234568910-图片备用.004.jpeg)
+为了维持虚假的繁荣，恒生指数靠伪造数据维持在两万四千点。但是，广东、江苏、江浙一带的贸易纺织、出口型企业，以及东莞各大企业都已经倒闭，而正是这些企业支撑着恒生指数。
 
-法案要求，从2023至2032年的财政年度预算中，每年由美国国务院提供给台湾20亿美元的“外国军事融资”。要求修订武器出口管制法，让军事武器能更方便的转让给台湾。 法案生效后的180天内，美国国务卿与国防部长须向国会相关委员会递交年度报告，提供对台湾促进自我防卫能力的评估结果。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-41.jpg)
-这些参议员皆认为，中共持续在破坏印太地区的稳定，美国必须兑现捍卫台湾等盟友的承诺。 这项立法将确保美国能做好准备，并能在中共进一步侵犯台湾时对台湾提供援助。
+如今，广交会几乎零成交的这一惨淡事实，加之中共控制的房地产企业近期频现债务违约的现状，都说明中共的虚假经济已经危如累卵。郭先生提到，泡沫一旦被戳破，房贷危机、人道危机及债务危机的国际化，将给香港带来无以复加的金融灾难，继而导致全球经济的崩塌。
 
-参考链接：
-[助台強化自衛能力 美參議員提台灣嚇阻法案](https://www.cna.com.tw/news/acul/202110280200.aspx)
+参考链接：[2021年11月5日文贵大直播：(2). 喜币价格涨跌的真实性，公平性，对比香港恒生指数的虚假](https://gtv.org/video/id=61851d9f11d186296801e582)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-总编：飞虹
-编辑：文徬
-校对/发稿：为真不破20
+总编：Irene木木
+编辑：Zion文恩
+校正/发稿：我不在这里
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

@@ -2,12 +2,28 @@
 ---
 
 
-## 南达科他州正与其他几个州对违宪的疫苗强制令提起诉讼
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1643138/)
+## 纽约市必需岗位工人示威抗议疫苗强制接种
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1643279/)
 
-11/02/2021 南达科他州州长克里斯蒂·诺姆宣布反对拜登政府的疫苗强制令，因为宪法没有赋予他们采取这种违宪行动的权力。
+**翻译：Lish
+校对：精靈藍
+字幕/剪辑：蛮吉
+编辑：枳实**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+纽约市必需岗位工人勤奋地努力应对这场几乎影响到世界每个方面的流行病。他们中的许多人将自己和家人置于危险之中，但现在随着大流行病的结束，他们已经从去年夏天英雄成为今天的被牺牲者，收到了最后通牒并收到解雇通知。
+
+今天是这个伟大城市的工人站出来反对不合理的强制接种的日子。 我们工人是这个城市的基础，没有这个基础就会崩溃。
+
+视频链接：[ANTI-VAX NYC WORKERS PROTEST COVID-19 VACCINE MANDATES WITH MASSIVE MARCH FROM BROOKLYN](https://www.bitchute.com/video/K2ZgmWbrT6V4/)
+
+发布：Janek
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

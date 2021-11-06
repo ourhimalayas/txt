@@ -2,58 +2,40 @@
 ---
 
 
-## 德鲁博士：我不再相信福奇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1643377/)
+## 美国CDC新令 未接种疫苗的儿童航空乘客无需隔离
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1643460/)
 
-编译：Jenny Ball
+作者：日本东京方舟农场 – 冰糖葫芦喵
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+《路透社》华盛顿10月30日报道，美国疾控中心（CDC）主任，罗谢尔·瓦伦斯基(Rochelle Walensky)签署了一项修订命令，澄清未接种中共病毒疫苗的18岁以下儿童和青少年，在乘坐飞机抵达美国后，不再需要自我隔离7天。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-1.png)
+周一，美国CDC发布的一项命令规定，未接种疫苗的18岁以下儿童如果单独旅行，将被隔离几天，费用自理。这项隔离命令的发布，引起一些外国航空乘客和家长们的恐慌。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-3-1.jpg)图片来源：原文视频截图
+11月8日，美国将取消禁止大多数非美国公民入境的特别旅行限制。对在过去14天内曾在英国、欧洲26个没有边境管制的申根国家、爱尔兰、中国、印度、南非、伊朗和巴西呆过的非美国公民取消限制令。它还了实施新的规定，要求几乎所有外国成年航空游客都要接种中共病毒疫苗，没有宗教豁免。
 
-电视名人和医生德鲁·平斯基（Drew Pinsky）博士说，由于福奇最近几个月的行为，特别是他资助中共国实验室病毒研究方面所扮演的角色，他无法再信任安东尼·福奇博士。
+（本文仅代表作者观点）
 
-周二，平斯基接受保守派评论员和“烈焰传媒”（ Blaze Media ）的主持人戴夫·鲁宾（Dave Rubin）的采访。在采访中，平斯基明确表示，福奇几十年来一直是他可以信任的信息来源——直到现在才不再相信了。
+参考阅读：
 
-“所以，谈到了与福奇的经历，我认为你对福奇很公平，几乎过于公平，”鲁宾对平斯基说。
+- [https://www.reuters.com/world/us/cdc-clarifies-unvaccinated-young-foreign-travelers-do-not-need-quarantine-2021-10-30/](https://www.reuters.com/world/us/cdc-clarifies-unvaccinated-young-foreign-travelers-do-not-need-quarantine-2021-10-30/)
 
-“我太公平了，因为我和他一起经历了五次大流行，”平斯基在谈到福奇时说。“在 HIV、MERS、SARS-1、H1N1 期间，他是我真正相信的男人。H1N1 是一场可怕的流行病， 你甚至不知道发生了什么……那很糟糕，你正在担心这个。为什么我们至少没有对那个做出温和的反应？”
 
-“所以，我认为他变质了……每个人都被掺假了，这就是我们这个时代的新部落主义（1），”他谈到福奇时说。“而且我认为他会恢复中庸。我认为他的整体功能一直是——比如，他的判断力很棒，而且……直到今天，我仍然相信我们会看到他看起来还不错的平均数。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
 
-（注释1: 新部落主义，也称为现代部落主义或新部落主义，是一种社会学概念，它假设人类已经进化到生活在部落社会，而不是大众社会，因此会自然形成构成新部落的社会网络。）
+***编辑***：***正义的小新***
+***校对/发稿：海阔天空1***
 
-“然而，”平斯基说，“他终于做了一件让我感到不安的事情，那就是，我不知道你是否记得在国会面前，多次，每当问他关于功能获得或资金的问题时—— 他会说，‘我很困惑。 你在说什么？’”
+**更多资讯，更多关注**
 
-“两天前他说，‘你知道，我们确实资助了改变病毒功能。’……你为什么不告诉我们？ ……现在就像，’好吧，我不能相信你。’ 你知道我们在问什么。”
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-平斯基不愿评论福奇是否故意向国会撒谎，但他确实表示，福奇的行为和缺乏透明度造成了“疫苗犹豫”。
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-“现在已经到了要告诉 [疫苗犹豫] 人，你的问题是……你不知道该相信谁，”他建议人们，找一个他们的家人可以信任的医生，希望他会与他们和他们的孩子讨论什么对他们最有利。
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-平斯基还表示，他“总体上”反对强制使用口罩和疫苗等物品。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-但谈话的重点是明确的， 对于医学界的人和像平斯基这样的人来说，对福奇所说的持保留态度的人越来越多，**因为在当今的政治气候中，他们会因大声疾呼而蒙受巨大损失。**
-
-福奇今年在国会作证时，当然多次否认 NIH 与资助武汉实验室的功能获得性研究有任何关系。他不止一次与肯塔基州的共和党参议员兰德·保罗发生冲突。
-
-我们现在知道，多亏了 NIH 首席副主任劳伦斯·塔巴克（Lawrence Tabak）和 《拦截》The Intercept 的一份报告，得以证实福奇的否认是不真实的。
-
-“ The Intercept 获得的文件包含新的证据，**表明武汉病毒研究所和附近的武汉大学动物实验中心，以及他们的合作者，美国的非营利组织‘生态健康联盟’，参与了美国政府定义为‘获得功能的研究’，故意使病毒更具致病性或传播性以研究它们，尽管美国资助机构规定这笔钱不能用于该目的**，” The Intercept 在 9 月报道。
-
-“这项有争议的实验的拨款来自美国国立卫生研究院NIH下属的国家过敏和传染病研究所，该研究所由安东尼·福奇领导。”
-
-自 COVID-19 大流行初期以来，福奇就一直处于前沿和中心位置，从一开始，他似乎每周都在削弱自己的信息传递。 **他还成为了政府过度、无能、残忍和不诚实的代言人——近四年后，他也失去了德鲁博士的信任。**
-
-**点评**：连**德鲁博士这样的专家都不再信任福奇，为什么我们老百姓还要听他欺骗而失去健康的身体和生命？**
-
-**参考资料：**[westernjournal][Dr. Drew: I ‘Can’t Trust’ Fauci Because Top Doc Wasn’t Transparent About Connections to Wuhan Lab](https://www.westernjournal.com/dr-drew-cant-trust-fauci-top-doc-wasnt-transparent-connections-wuhan-lab/?utm_source=Email&amp;utm_medium=CTBreaking&amp;utm_campaign=breaking&amp;utm_content=conservative-tribune&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

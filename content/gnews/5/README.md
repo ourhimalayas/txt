@@ -2,37 +2,44 @@
 ---
 
 
-## 拜登总统违宪？全美掀起反疫苗抗议
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1643476/)
+## 澳助理总检察长抨击维州州长借疫情扩张权力
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1643522/)
 
-#### 作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-11.png)[*图片来源*](https://gdb.voanews.com/F8968A85-1FC0-43CC-B4CC-AEB4A670F22C_w1597_n_r1_st.jpg)
-反拜登政府疫苗或可致“总统违宪”成为事实。强制疫苗授权在全美发酵，白宫发言人在新闻发布会上为强制疫苗令辩解说：“政府致力于挽救生命。”乔治亚州州长布赖恩·P·肯普和司法部长克里斯·卡尔今天宣布已提起诉讼，挑战拜登政府的疫苗授权，称“联邦政府正在前所未有地滥用权力”。
+**翻译整理：月映万川
+编辑：翼族**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11.6-3.jpg)图片来源：The Australian
+近日，澳大利亚助理总检察长抨击了州长丹尼尔·安德鲁斯“史无前例”的大流行集权。维多利亚州安德鲁斯政府已经在下议院通过了一项新的大流行法案，该新法案将在上议院进行投票审议。
 
-据NHK 11月6日消息称：美国过半州政府提出疫苗强制接种禁令，称“拜登政府要求从明年1月起为员工100人以上的公司接种COVID19病毒疫苗是违宪的”。其中，德克萨斯州总检察长发表声明称，“对私营企业强制接种疫苗是政府滥用职权。”[**阅读更多**](https://youtu.be/lepqvdXoA2E)
+身兼昆士兰州参议员和助理总检察长身份的阿曼达·斯托克说，在经过两年的大规模封锁和新冠限制以后，州长又进一步想加强他的权力，新的法案将允许政府随意“剥夺人民的自由”。
 
-5日以来，至少有 26 个州投诉纷至沓来。预计明年中期选举的政治冲突将加剧，包括反对派共和党担任州长和总检察长的南德克萨斯州和佛罗里达州，正在寻求联邦法院的禁令，称他们“侵犯了宪法保障的个人自由”。
+“如果法案在上议院（参议院）也通过的话，这将赋予政府巨大的权力，任何个人与团体的自由都可能因疫情原因而被限制。”
 
-- ***延展阅读：***[***随着1月4日强制疫苗接种截止日临近，越来越多人在谷歌上搜索“如何购买假疫苗卡***](https://www.newsweek.com/fake-vaccine-cards-google-searches-increase-january-4-covid-mandate-deadline-1646264)***”***
+斯托克说：“更让人警觉地是，无论你是否真的在应对一场大流行，州长都可以用这一借口来获取更大的权力。这将蕴含着巨大和潜在无限的危险。”
 
+“所有对歧视的保护都必须被废除掉，因为维多利亚州政府背书了这些行为。新法允许政府随意歧视任何人，并剥夺任何人的自由，限制他们的活动，并且对任何人都可以强加医疗措施。”她进一步阐明了新的大流行法的危害。
 
-- ***延展阅读：***[***美国之音：随着COVID-19病例激增，德国政府呼吁所有人施打加强针***](https://www.voanews.com/a/german-government-calls-for-covid-19-booster-shots-for-all-as-cases-surge-/6301999.html)
+“这些都是在澳大利亚历史上闻所未闻，且耸人听闻的。”
 
+虽然，斯托克女士没有明确指出联邦政府是否会干预维州的大流行法案，但是她却指出联邦莫里森政府能够根据宪法第51条的《对外事务权力》的解释，来废除掉维州新的大流行法案。
 
-据此，白宫发言人让皮埃尔强调强制接种疫苗是可以的，他在新闻发布会上为其辩解说：“政府有权采取措施保护工人的健康和安全。我们摆脱了全球流行病对人民生命的威胁。白宫致力于挽救生命。”
+进一步讲，联邦政府可以使用《对外事务权力》在某些澳大利亚肩负国际责任的领域进行立法，尽管这些领域一般是由州政府进行管辖的。虽然，期望联邦政府使用这一权力只是理论上的可能。
 
-显然，随着1月4日日益临近，反拜登政府疫苗强制授权在全美发酵，从共和党州政府以及普通美国人，人们越来越意识到疫苗暴政不仅是共产主义产物，更是直接危及每一个人的生命健康，可以说，反疫苗控诉的司法行动或可导致“拜登总统违宪”成为事实。这种反人权的疫苗政治化恶果不仅成为拜登总统即将面临的灾难，也是所有民主国家政府的噩梦。而爆料革命的口头禅“[**相信共产党，走进火葬场**](https://www.gettr.com/post/p6ku0h)”将适合所有相信疫苗的政客。
+维多利亚州反对党领袖马修盖已经表达了对这个法案的强烈反对，并且称自己一旦当选，会马上废除这个法案。
 
-- 延展阅读：[众议院共和党人誓言与CMS疫苗规则而战](https://www.modernhealthcare.com/politics-policy/house-republicans-vow-fight-over-cms-vaccine-rule)
+目前，这一法案已经被提交到上议院讨论，并且需要21个赞成票通过。
 
+安德鲁斯政府已经有17个赞成票来自于本党，并且外界相信，政府已经获得了绿党、动物正义党和因果党的支持，每一个党都会提供一张赞成票。
 
-随着美国州长选举[共和党大胜](https://www.cbsnews.com/live-updates/election-results-2021-governor-virginia-youngkin-new-jersey-murphy/)的热情推动下，秉持保守价值的州长们纷纷起来挑战联邦政府，“乔治亚州亚特兰大 ——州长布赖恩·P·肯普和司法部长克里斯·卡尔今天宣布，佐治亚州已提起诉讼，挑战拜登政府的雇主疫苗授权。”州长布赖恩·P·肯普说：“(疫苗强制令）除了诋毁美国人的个人选择外，**乔·拜登的疫苗授权是非法的**，也是（掩盖）经济灾难的一个秘诀，”司法部长卡尔说： “联邦政府无权对佐治亚州的公司及其员工施加医疗保健决定。我们正在反击这种前所未有的滥用权力的授权行为。”
+**原文链接**：[Amanda Stoker: Daniel Andrews’ pandemic powers are ‘unprecedented’ and should be ‘deeply scary’ for Victorians](https://www.skynews.com.au/australia-news/politics/amanda-stoker-daniel-andrews-pandemic-powers-are-unprecedented-and-should-be-deeply-scary-for-victorians/news-story/ccfe9eacae733e2230b1b510d0ada3bd?amp)
 
-2021年11月6日
+发布：文武全才
 
-*编辑：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
