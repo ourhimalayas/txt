@@ -2,24 +2,52 @@
 ---
 
 
-## 英国率先批准默沙东口服药治新冠肺炎
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1644419/)
+## 欧洲央行表示需要发行数字货币
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1644507/)
 
-2021年11月6日
+作者：纽约香草山农场 – 四季
 
-素材报导：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/merck-scaled-e1636220225573.jpeg)图片来源：NurPhoto, CNBN
-英国成为全球第一个通过使用美国默沙东集团和Ridgeback Biotherapeutics联合研发抗疫口服药的国家。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-根据临床试验结果显示，若在染疫初期服用口服药Molnupiravir，患者重症和死亡风险可以减半。路透社报道，英国药物及保健产品管理局建议，这款口服药Molnupiravir应该在患者确诊或出现症状的5日内服用。
 
-外媒指出，英国已购买了近50万粒Molnupiravir。英国政府和国民保健署将很快公布，Molnupiravir投入使用的日期。默沙东计划今年底前生产1,000万个疗程的用药，预计2022年可能生产2,000万个疗程药。
 
-据悉，美国监管当局正在考虑批准Molnupiravir的紧急使用授权；欧盟药品管理局也开始审查。
 
-来源链接：[https://hd.stheadline.com/news/realtime/wo/2271068/即時-國際-英國率先批准默沙東口服藥治新冠肺炎-確診5日內服用](https://hd.stheadline.com/news/realtime/wo/2271068/即時-國際-英國率先批准默沙東口服藥治新冠肺炎-確診5日內服用)
 
-编辑：木千
+欧洲央行执委帕内塔(Fabio Panetta)11月5日表示，欧洲央行有必要发行数字欧元，如将发起的空间完全让给稳定币等私营部门，可能会危及金融稳定，削弱央行的作用。
+
+帕内塔表示，历史证明，金融稳定和公众对货币的信任需要公共货币和私人货币一道被广泛使用。
+
+欧洲央行一直在致力于设计一种数字货币，像现金一样直接由央行发行，并已于7月14日宣布启动数字欧元项目并展开相关调研，预计该项目仍可能需要大约五年时间才能推出一种真正的货币。
+
+全球数字货币热潮升温，喜马拉雅币在上市后短短3天内创下了价格上涨200倍的记录，其估值已经突破2万亿美元。
+
+**参考阅读：**
+
+[欧洲央行不能将数字货币空间完全让位于私营部门–执委帕内塔 | Reuters](https://cn.reuters.com/article/ecb-panetta-digital-euro-1106-idCNKBS2HR037)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

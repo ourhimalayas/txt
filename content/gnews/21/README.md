@@ -2,25 +2,27 @@
 ---
 
 
-## 中共力推数字人民币，意图建立支付防火墙
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1644214/)
+## 美国学校试图推行儿童疫苗接种，专业医生极力反对
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1644292/)
 
-作者：东京樱花团 – 修文
+作者：MOS – 柳是多水土透
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据11月5 日的消息显示，近日，中共官方正在力推数字人民币的使用。据了解，中共计划在明年冬奥会期间全面推出数字人民币，并要求在冬奥会开幕前，包括麦当劳、耐克和Visa在内的美国各大公司需安装支持数字人民币的系统。
+11月5日，美国媒体报道称，11月3日起，美国各大医疗机构和药房将推行5至11岁儿童用新冠疫苗。据悉，部分地区已为此推出各类所谓的“激励措施”，试图推广儿童用新冠疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-4.jpeg)
 
-美国安全中心的高级研究员称，外企如果为了商业利益，只能被迫加入这个系统。如果数字人民币普及，中共将建立起一道支付防火墙，并以此向全球公司施压。
+但据盖特消息报道，戴维-威斯曼医生极力反对向儿童注射新冠疫苗的政策。他表示，新冠疫苗对于儿童来说是非常不安全的。威斯曼医生指出，FDA以及CDC收到的儿童疫苗支持证据仅基于辉瑞公司的少数研究结果，但这些研究有些并没有使用经过验证的资源，还有些研究结果没有得到足够的数据检验。另外，疫苗公司更改了儿童用新冠疫苗的配方，但这一配方甚至没有经过动物测试，就直接被投入了使用。
 
-有评论指出，中共的此番要求使得这些公司陷入了维护数据安全和在华商业利益的两难困境。多位相关人士指出，数字人民币倾向于给中共当局更多的权力，但给货币持有人更少权利，且中共政府正试图以此加强对支付数据的控制，并遏制同行业的竞争对手。
+威斯曼医生提到，已经有相关人士爆料了疫苗制造公司包括数据造假在内的各类不当操作行为，在此基础上，FDA对儿童用新冠疫苗的授权是非常不负责任的做法。
 
-参考链接：[中国力推数字人民币 外国商户压力大](https://www.voachinese.com/a/china-digital-yuan-us-companies-20211104/6300428.html)
+参考链接：
+1）[Schools to Distribute Covid-19 Shots, Incentives to Vaccinate Children](https://www.wsj.com/articles/schools-to-distribute-covid-19-vaccines-incentives-to-kids-11636113601)
+2）[https://gettr.com/post/pg3kkm1567](https://gettr.com/post/pg3kkm1567)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：飞虹
-编辑：飞虹
+总编：Irene木木
+编辑：Irene木木
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -30,6 +32,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
