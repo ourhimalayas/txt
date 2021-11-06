@@ -2,51 +2,41 @@
 ---
 
 
-## 中共国紧急购买北极液化天然气
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1643408/)
+## 西澳公布解封计划：两针疫苗接种率必须达到90%以上
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1643469/)
 
-**编译：蚂蚁兄弟**
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/11/116-scaled.jpg)图片来源：Pexels免费照片素材库；摄影：FRANK MERIÑO
+西澳大利亚州发布的最新消息公开了该州的解封计划。根据该计划，除非西澳大利亚州12岁以上人群的两针疫苗注射突破90%，否则政府将继续保持封锁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip147.png)
+根据目前的疫苗接种趋势，解封预计将在明年一月以及二月之间。截至当地时间11月6日，西澳大利亚的疫苗两剂接种率已达到64.9%，而一剂疫苗接种率即将突破80%——该数据为全澳最低。
 
-中共国最近通过所谓的北方海路从俄罗斯进口了一批液化天然气，在中共国的能源短缺已经影响到工业和全球供应链的情况下，中共国称这是最紧迫的一次天然气运输。
+就在上周，西澳大利亚已经宣布来自新南威尔士州、维多利亚州以及首都领地的旅行者必须完全接种两剂疫苗才可以入境——这一政策从11月5日起便已经开始实施。旅行者现在必须提出疫苗接种证明、或者医疗豁免文件才可以通过入境流程。
 
-挪威媒体High North News周三援引中共官媒的报道说，“弗拉基米尔-沃罗宁号”破冰船最近从俄罗斯生产商诺瓦泰克的亚马尔工厂向中共国深圳港运送了7万吨液化天然气。
+西澳大利亚州总理Mark McGowan甚至宣称对于今后的国内旅行，两针疫苗接种将成为最为基本的前提条件和原则。虽然目前西澳对于昆士兰、南澳等地的旅行者要求依然维持原样，但Mark McGowan表示：接下来不西澳对于其它州的疫情风险评级是高是低，这一要求都会被推行。
 
-深圳天然气公司收到了来自俄罗斯的液化天然气货物，中共媒体称其为冬季取暖季的紧急供应。
+在西澳总理的脸书评论，许多网友表示了对这一举措的不满和愤怒。部分网友认为这一 举措进一步增加了家庭团聚的困难，而另一些网友则要求Mark McGowan提供支持这一措施的医学建议或证据。
 
-业内人士告诉路透社，亚洲12月交货的液化天然气价格上周下跌10%，平均为每百万英热单位（mmBtu）31美元。与上个冬季开始时的价格相比，该价格仍然很高。
+一些西澳的本地民众也表示了对总理的失望，同时警告执政者将会失去本地百姓对他们的支持以及最终。“这里不是维多利亚州。”一位Knight女士的留言获得了超过150条点赞。
 
-新加坡的一位交易员周五告诉路透社，中共国的液化天然气需求上周似乎略有缓解，因为这个世界第二大经济体更多使用煤炭发电，并且正在提高炼油厂的产量。
+与此同时，越来越多的疫苗接种网店已经在全西澳铺展开来，以至于澳洲第九新闻甚至称这一周末为西澳大利亚的“超级疫苗周末”。
 
-然而，中共国仍在努力解决能源短缺问题，包括柴油供应。
+（本文纯属个人观点，与Gnews无关）
 
-周日，中共国国家粮食和战略储备局表示，中共国已经从燃料库存中释放了汽油和柴油，以阻止在中共国部分地区加剧波动的价格飙升。
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
 
-彭博社援引政府的话说：“从库存中释放的柴油和汽油将用于增加市场资源，减少供应短缺，以稳定供应和价格”。
+新闻参考链接：
 
-中共国最近几天采取行动，通过政府干预来结束煤炭价格的飙升，引发了上周煤炭价格的暴跌。
+[澳洲第九新闻（一）](https://www.9news.com.au/national/australia-breaking-news-live-updates-november-4-2021-cleo-smith-found-police-investigation-continues-coronavirus-alert-for-queensland-town/70db40fe-b3db-4cc0-8e47-9330eaafc2e7)
 
-中共国的煤炭价格上涨和能源短缺在第三季度减缓了中共国经济的增长，现在有可能在第四季度蔓延到全球供应链中。
+[澳洲第九新闻（二）](https://www.9news.com.au/national/western-australia-border-restrictions-wa-to-require-anyone-from-victoria-nsw-and-act-to-be-fully-vaccinated-against-covid-19/2f88e4df-c852-42ec-a394-a4026e7e1d69)
 
-**简评：**
+[澳洲第九新闻（三）](https://www.9news.com.au/national/coronavirus-vaccine-rollout-australia-state-by-state-guide-covid19-vaccination-rates-single-dose-double-doses-explainer/abacde8f-d35e-45ee-83bc-069ede212ecf)
 
-**“The winter is coming.”美剧《权力的游戏》中的这句经典台词，用来形容现在的中共国，恐怕再合适不过了。冬季已经来临，中共国出现了能源短缺的情况。或许是中共外汇的枯竭，或许是中共那“战狼外交”的政策在贸易上所带来的负面影响。面对这一切危机，伤害最大的即是全世界和中共国的百姓。**
+[澳洲第九新闻（四）](https://www.9news.com.au/videos/national/western-australias-super-vax-weekend-gets-underway/ckvnns396007b0jpfgmwovi0m)
 
-**中共通过对国内百姓的压榨，用劳动密集型产业绑架了世界经济。其能源的短缺，必将引起全世界产业链的断裂。糟糕的经济环境和即将崩塌的金融系统，中共已经走在了灭亡的边缘。**
-
-**邪恶的中共政权必将在历史的轮回中被淘汰，而世界的经济只有在消灭掉这个邪恶政权之后，才能重塑。**
-
-**新闻来源**：[worldenergytrade.com] [China adquiere por emergencia un cargamento de GNL del Ártico](https://www.worldenergytrade.com/oil-gas/distribucion/china-adquiere-por-emergencia-un-cargamento-de-gnl-del-artico)
-
-* * *
-
-***审核：Aries的星
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
-
+[西澳总理脸书](https://www.facebook.com/photo.php?fbid=432544968234354&amp;set=a.263657845123068&amp;type=3)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
