@@ -2,124 +2,46 @@
 ---
 
 
-## 比特币会彻底消失？
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1643510/)
+## 中共国煤价暴涨是国企带头炒高 民企并未得利
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1643597/)
 
-[https://gtv.org/video/id=61863cdcadfd99590c33ae43](https://gtv.org/video/id=61863cdcadfd99590c33ae43)
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-8.png)
+图片来源网络
 
-**郭文贵
-Miles Guo**
+据《大纪元》2021年11月4日报道，中共国动力煤等煤炭价格从今年3月份以来一路上涨，至10月中旬已暴涨至2500多元/吨。一名民营煤矿老板对《大纪元》表示，煤价上涨是国营企业炒起来的。
 
-我想告诉大家啊
-I want to tell everyone that
+据《时代财经》报道，自今年3月以来，中共国的煤价就持续攀升。从3月份的571元（人民币，下同）/吨，到4月初的700多元/吨，一直涨到10月中旬的2500多元/吨。
 
-区块链，咱有两个要给大家说的事
-There are two points I want to make clear to you about blockchain
+对此，在内蒙古鄂尔多斯开矿16年的民营煤矿老板王先生（化名）日前对《大纪元》表示， 煤价是国营企业先炒起来的。
 
-你一定要知道区块链技术和区块链的拥有者的（关系）
-You must know the relationship between blockchain technology and the owner of the blockchain
+王先生说，煤价涨得有点过头了，但带头涨价的并不是民营企业，而是国有大矿，如陕煤集团这些大企业。民营企业是跟随着国营企业涨价的。此外，他还指出，实际上鄂尔多斯的煤并没有涨多少，榆林卖2200元的煤，在鄂尔多斯，同质量的煤只卖1500元。
 
-它是个行政体制，也就是法律结构
-It is an administrative system, that is, a legal structure
+王先生还表示，煤价炒高的其中一个原因是，一些过去房地产的游资在政府规定了房企的“三条红线”后，很多资金从房地产市场出来进了煤炭市场。这些资金一哄而上，就把煤价炒了起来。再加上中国人“买涨不买跌”的心理也起到了推升煤价的作用。而现在煤价涨得过高，政府想要强行打压煤价也打不下来。
 
-这完全两回事，我再重申一遍
-I emphasize one more time that these are two completely different things
+虽然煤价现在涨得这么高，但是王先生却表示，民企煤矿挣不到多少钱，因为十几年前好煤和煤层厚的煤基本都已被挖走了，现在即便放开挖煤也挖不出什么东西来。其次，现在道路管控严格，流通不畅，煤运不出去。民营企业又没有固定买家，政府不给保供，民企需花钱自己卖，这又增加了成本。
 
-区块链是去中心化的技术
-Blockchain is decentralized technology
+此外，王先生还指出，民企煤矿在挖完煤后还要付绿化费，再买矿时不仅要给政府补偿，还要给村民补偿。再加上资源不够政府会减产能，因此还要不停地花钱去买产能。
 
-所有的货币都是去中心化技术，没有一个不去中心化的
-All digital currencies are decentralized technologies, everyone is decentralized
+干了16年挖煤生意的王先生无奈地表示，因为挣不到什么钱自己已经不想干了，可是欠账却还不了，他的三个煤矿已经借了三十多个亿。
 
-它的拥有者和创造者是不是去中心化的？这是完全两回事
-But whether its owners and creators are decentralized? That is two completely different thing
-比特币它是去中心化的
-Bitcoin is decentralized
+面对不断高企的煤价，中共国家发改委近日不断发文公开干预煤炭价格，令煤炭期货价格大幅下跌。然而这一非市场行为的干预举动，究竟能维持多久效果，令人生疑。
 
-那么我昨天晚上，我和喜联储的律师，还有我们的喜联储的主席
-Last night, I was with the lawyer of the Himalaya Reserve and the president of the Himalaya Reserve
+对于中共国现在煤炭短缺、供需矛盾大，有业内人士表示，主要原因是中共前几年去产能，关闭了大量煤矿，造成产量下降。据中共国煤炭工业协会统计，“十三五”期间中共国累计退出煤矿5500处左右，退出煤炭产能10亿吨/年以上，煤矿数量减少到4700处以下。
 
-我跟他说，我说两件事情，绝对比特币就消失
-I told them that two things would absolutely wipe out the value of Bitcoin
+此外，中共当局出于报复，抵制对澳大利亚的煤炭进口；再加上今年印度尼西亚洪水、蒙古瘟疫肆虐，使这两个国家出口到中共国的煤炭数量下滑。中共海关总署的数据显示，今年前4个月，煤炭累计进口9013万吨，同比减少3649万吨，下降28.8%。
 
-这里presentation，你是讲不出来的，这就是7哥牛的地方
-The presentation is not telling here, that’s where I’m good at
+以上这些都是造成煤炭短缺的原因。然而，煤价暴涨民企煤老板却没有受益，那么究竟谁受益了呢？
 
-你讲100天，7哥就一句话，就讲的比你厉害
-You talk about it 100 days, it’s a sentence for me, it speaks more than you
+虽然中共近来用计划经济的手段不断推出对煤价的打压措施，令煤价下滑，但评论人士王剑对此表示，商品价格是由市场决定的，中共这样做最后造成的结果就是有价无市，无法从根本上解决煤炭短缺问题。
 
-政清你要学一学
-Zhengqing, you have to learn
+信达证券分析师左前明和周杰则表示，考虑煤企建矿意愿和能力下降，以及3年以上的建矿周期，煤炭供给在“十四五”期间或难响应需求增长，当前正处在煤炭经济新一轮周期上行的早中期。
 
-知道我从小就学会了，师傅高在哪儿啊？
-I have learned since I was a child. What is the master’s greatness?
+只因澳大利亚要求查明中共病毒真相，中共就抵制进口澳大利亚煤炭，不惜花倍数的价格从第三国进口仍是产自澳大利亚的煤炭，再加上国企和房地产市场的游资疯炒煤价，导致煤价暴涨，而最终为此买单的是苦难的中共国百姓。
 
-就是最后那一拳把你撂倒，这就叫师傅
-That is, he can take you down in one move, which is called master
+注：本文仅代表作者观点
 
-被撂倒了就是徒弟
-If you are knocked down, you are a disciple
-
-现在7哥给你们教教
-Let me teach you now
-
-比特币，为什么我昨天跟他们讲
-About Bitcoin, why I told them yesterday
-
-都在说比特币的技术，区块链不可能超过2100万的
-It’s all about the technology of bitcoin, the blockchain, the 21 million coins
-
-所有的价值都是因为它2100万
-All the value is because of the 21 million coins limit
-
-所有全人类区块链技术的，任何人都迷信一件事儿
-Blockchain technology for all mankind, everyone is superstitious about one thing
-
-包括你政清，你回答我
-Including you Zhengqing, get me an answer
-
-你是不是相信，绝对相信只有2100个
-Do you believe, absolutely believe that there are only 2100 coins?
-
-你相信吧，政清
-You do, right?
-
-对，没有人怀疑，但是我告诉你
-Yes, no one doubts it, but I’m telling you
-
-只要有一个人说它确实超过2100万个，2110万个
-It only takes one person to say that it does exceed 21 million, 21.1 million
-
-比特币彻底归零，这你相信吧
-Bitcoin’s value has completely gone to zero, do you believe that?
-
-因为这个神话已经没有了嘛，它就成空气了
-Because the myth is gone, it becomes an air currency
-
-我可以告诉大家，比特币一定不是2100万个，走着看
-I can tell you that bitcoin must not be 21 million coins, wait and see
-
-到那时候，所有比特币就没了，消失了，空气，一分都没了
-At that point, all the value will be gone and disappeared in the air, not even a penny left
-
-* * *
-
-Date: 11/04/2021
-原视频标题: 比特币会彻底消失？
-Bitcoin’s value will disappear completely
-原视频日期：2021/10/29
-原视频链接：[https://twitter.com/se1y7cblljselva/status/1454775137115336725?s=24](https://twitter.com/se1y7cblljselva/status/1454775137115336725?s=24)
-任务编号：KC224(2738)
-视频时间段 : 0:00-1:48
-英听校：洛杉矶盘古农场 – Mike Li
-翻译：洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻链接：[https://twitter.com/dajiyuan/status/1456778362488229895](https://twitter.com/dajiyuan/status/1456778362488229895)
 
  
 

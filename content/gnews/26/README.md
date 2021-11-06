@@ -2,45 +2,32 @@
 ---
 
 
-## 万圣节前夕，“鱿鱼游戏”Cosplay在全球蔓延
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1643536/)
+## 有声|美联邦参议员霍利提出武装台湾法案
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1643655/)
 
-作者：英国喜庄园 – I770775
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-每年11月1日，是西方社会的传统节日——万圣节。
+配音：香草山美食部 – 玫瑰园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/下载-1.jpg)
+美国共和党籍联邦参议员霍利于11月2日提出「武装台湾法案」，确保台湾拥有足够的、阻止中共入侵所需的不对称防卫战力。
 
-在今年万圣节来临之前，韩剧《鱿鱼游戏》中的服饰，成为人们服装类搜索量最高的词语。美国、西班牙、比利时等国家的很多学生争相模仿，体验游戏生死考验。
+这项法案要求美国国防部长规划台湾安全援助倡议，在2023至2027年的财政年度中，每年拨款30亿美元，用于给台湾提供设备、培训及其他支援。
 
-由于游戏失败面临的惩罚是死亡，有心理学家指出，这种暴力程度过高的游戏会对青少年的成长有不良影响，一些校方也不得不发布紧急禁令，严禁学生在万圣节Cosplay《鱿鱼游戏》。
+法案中的附带条件是，台湾在不对称防卫战力的投资上，必须与美国所提供的支援相匹配，同时要求美国在出售、租赁或以其他方式提供台湾常规武器时，应以台湾能部署可靠的不对称防卫战力为目标。
 
-今年9月份开播的《鱿鱼游戏》，讲述了一群陷入经济困境的成年人，为了赢取巨额奖金参加生死逃杀的游戏故事。有分析人士认为，该剧剧情隐射了中共极权统治下人们极度内卷的悲惨生活。
+中共正在尽其全力想要控制印太地区，霍利强调，美国应竭尽所能协助台湾强化自身的防卫力量。
 
-（本文仅代表作者观点）
+文字版原文：[美联邦参议员霍利提出武装台湾法案](https://gnews.org/zh-hans/1640719/)
 
-参考阅读：
+音频处理：喜山必胜Maverick
 
-- [https://www.163.com/dy/article/GNDKICMK0543OQ0G.html](https://www.163.com/dy/article/GNDKICMK0543OQ0G.html)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
-
-***编辑***：**木白**
-***校对/发稿：海阔天空1***
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 **更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

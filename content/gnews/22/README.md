@@ -2,30 +2,44 @@
 ---
 
 
-## 美国共和党联邦众议员提出重新审视一中政策
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1643602/)
+## 伊维菌素在印度北方邦大量使用取得很好的预防效果
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1643678/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-5.png)
-图片来自网络
+作者：纽约香草山农场 福音部 – lilian89
 
-据《美国之音》11月6日报道，美国国会共和党联邦众议员克劳迪娅·坦尼（ Claudia Tenney）日前在接受专访时表示，中（共）国不是假想敌，而是美国当今最大的敌人，是“当代的苏联”。坦尼认为，美国应该重新审视一中政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-坦尼议员还呼吁国会两党和行政部门支持她提出的《中国观察法》（China Watcher Act），为国务院提供资源，在全球各地监测中共国的影响力。
+近日，伊维菌素因其有效性而备受赞扬。
 
-在台湾问题上，坦尼议员指出，中共近来在台海地区不断采取咄咄逼人的行动，是在试验美国的决心。她认为，是时候重新审议美国的“一中政策”了。她还表示，不希望“台湾变成另一个香港”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2021-10-31_06-28-01.png)
 
-坦尼认为，在结束阿富汗的军事行动后，现在的台湾局势在某种程度上已成为美国最为紧迫的国际议题之一。她认为，现在比以往任何时候都需要明确展示美国支持台湾的态度。
+印度人口最多的北方邦，已经开始同时使用伊维菌素和羟氯喹。其结果是惊人的。印度北方邦的33个地区现在已经摆脱了COVID-19，于此现象形成鲜明反差的是，其疫苗接种率却低得令人发指。北方邦和德里的COVID-19病例都出现了令人难以置信的下降，因为他们及早使用伊维菌素进行预防。而喀拉拉邦，一个位于印度南部的小邦，过度依赖疫苗而不太依赖伊维菌素，自去年8月以来，报告显示COVID-19病例大幅增加，而北方邦的人口比喀拉拉邦多八倍。
 
-坦尼众议员表示，面对强势的中共，美国政府也应在军事协防台湾方面更加积极。
+可是，CDC、Faucistein博士和西方主流媒体一直在抨击伊维菌素。
 
-坦尼众议员在台湾议题上的立场和主张，清晰反映了国会共和党人对台湾的高度支持。
+（本文仅代表作者观点）
 
-本星期，美国参议院军事委员会共和党参议员乔什·霍利（Josh Hawley）率先推出了《武装台湾法》（Arm Taiwan Act）草案，提出每年拨款30亿美元提升台湾不对称战力的计划；随后，外交关系委员会多位重量级共和党议员共同推出了《台湾威慑法》（Taiwan Deterrence Act），寻求授权每年向台湾提供20亿美元及其他援助，以加强台湾的防务。
+参考阅读：
 
-注：本文仅代表作者观点
+- [https://djhjmedia.com/steven/71-out-of-75-districts-in-uttar-pradesh-india-its-most-populated-state-reported-no-covid-19-cases-in-24-hours-after-implementing-ivermectin-protocol/](https://djhjmedia.com/steven/71-out-of-75-districts-in-uttar-pradesh-india-its-most-populated-state-reported-no-covid-19-cases-in-24-hours-after-implementing-ivermectin-protocol/)
 
-**新闻链接：**[https://twitter.com/VOAChinese/status/1456948242483236869](https://twitter.com/VOAChinese/status/1456948242483236869)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+
+***编辑***：***木白***
+***校对/发稿：海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

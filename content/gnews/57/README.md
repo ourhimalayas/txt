@@ -2,36 +2,45 @@
 ---
 
 
-## 11/5/2021中日财经爆：天雷滚滚！中共国地产股债双杀
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1641385/)
+## 11/5/2021国际财经快讯：喜币价格最高突破20美元；AIG利润超过华尔街对一般保险提振的预期
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1641500/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-35.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fx0.ifengimg.com%2Fres%2F2021%2F85CBC215C39D4D7AD0A40998153BC06E7CB5987E_size24_w720_h360.jpeg&amp;imgrefurl=https%3A%2F%2Fi.ifeng.com%2Fc%2F89orhrzLfFR&amp;tbnid=_llKS-arfrAtCM&amp;vet=12ahUKEwio1YG9noH0AhVB95QKHci2D9oQMygnegUIARDuAQ..i&amp;docid=aoi6MhElR-SHeM&amp;w=720&amp;h=360&amp;itg=1&amp;q=%E8%82%A1%E5%80%BA%E5%8F%8C%E6%9D%80&amp;ved=2ahUKEwio1YG9noH0AhVB95QKHci2D9oQMygnegUIARDuAQ)
-11月15日地产债大幅收跌出现临停潮。“20阳城01”跌超34%盘中两次临停，“20金科03”跌超26%盘中临停，“15世茂02”跌超25%盘中临停，“20世茂G1”跌超24%盘中临停，“19世茂G2”跌超21%盘中临停，“19世茂G1”跌超20%盘中临停，“20金科01”跌超17%。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-11.png)
-另外，港股内房股午后跌幅扩大。中国奥园领跌超15%，世茂集团跌超13.98%，建业跌超8%，新城发展、融创中国跌超7%，中骏集团、禹洲集团跌超6%，时代中国、雅居乐等跌超5%。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-7.png)
-国际评级机构惠誉在11月3日的报告中宣布，将中国奥园集团股份有限公司(China Aoyuan Group Limited，简称：“中国奥园”，03883.HK)的长期外币发行人违约评级(IDR)从“BB”下调至“B+”，展望“负面”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-17.png)[图片来源](https://www.reuters.com/)
+**1.喜币价格最高突破20美元**
 
-惠誉还将中国奥园的高级无抵押评级及其未偿付美元高级无抵押票据的评级从“BB-”下调至“B+”，回收率评级为“RR4”。惠誉在对其最新的企业评级标准公布后，将其所有评级从评级观察名单中移除。
+[秘翻金融组11月5日报道，喜币（Himalaya Coin, HCN）在喜马拉雅交易所（Himalaya Exchange）上市第四天，交易价格最高突破20美元，截稿时喜币价格持续在17美元左右，交易价格24小时内涨幅超过46%，24小时交易量达到1,664,814.997(HCN)。目前24小时不间断交易中，币值依旧还在攀升，预计未来依旧会创出新高。喜联储HCN自11月1日上市以来，每天都创出新高，持有原始币值的新中国联邦人的财富均增长了170倍，HCN的市场流通值从10亿美元上升到约170亿美元。Himalaya Coin的设计理念以保值为本，是大众能够在日常生活中安心使用的货币。创建HCN的宗旨是为了让用户在日常生活中收获真正的价值和效用。无论是用数字货币进行转账还是支付，Himalaya Coin都将通过Himalaya Pay App，在全球范围内实现快捷和简便的支付交易。](https://himalaya.exchange/trading)
 
-惠誉认为，在资本市场波动性较大的情况下，中国奥园的财务灵活性不断下降，预计其将利用其现金余额偿还到期的资本市场债务。
+**2.投资者在“太便宜”的电信股中寻求深层价值**
 
-近日，信托圈流传出一则消息，“世茂与陆家嘴信托谈延期”，关于此事，世茂集团发布澄清声明。
+[一些投资者正在收购遭受重创的电信网络股票，押注AT&T和Verizon等公司提供价值，尽管竞争激烈且收入增长前景黯淡。尽管标准普尔500指数今年迄今已上涨24.6%，但美国三大电信股一直在朝着相反的方向发展。AT&T(T.N)股价在2021年下跌近13%，接近十多年来的最低水平。Verizon Communications(VZ.N)股价下跌约10%，而规模较小的竞争对手T-Mobile US(TMUS.O)股价下跌约9%。电信公司通常被视为保守投资者的堡垒，因为它们的股息相对较高，有时在市场波动期间享有“避风港”地位。](https://www.reuters.com/business/media-telecom/investor-seek-deep-value-too-cheap-telecom-shares-2021-11-04/)
 
-11月5日，世茂集团发布澄清声明，昨日在网上流传“世茂与陆家嘴信托谈延期”的消息，经内部摸排以及与陆家嘴信托确认，目前世茂集团与陆家嘴信托合作正常，过往从未有过逾期或面临延期偿付事项。然而市场已经是草木皆兵。
+**3.缓慢的港口可能会造成货运危机**
 
-下午，世茂集团旗下部分跌幅扩大。截至发稿，19世茂G2跌21%，19世茂G1跌20%、15世茂02跌25.81%，20世茂G1跌24%。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-4.png)
-截至发稿，世茂集团跌13%，至13港元/股。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-2.png)
-消息来源：
+[ACCC表示，随着供应问题的恶化，港口的长期问题已导致短缺、价格上涨和通货膨胀。天空新闻商业编辑罗斯格林伍德表示，全球卡车司机短缺，零售商宜家警告价格上涨和利润下降。格林伍德先生表示，澳大利亚港口的工业行动和“世界上一些最慢的港口处理”的结合导致成本进一步上涨。他告诉澳大利亚天空新闻说：“然后，由于这些集装箱短缺，你首先得支付将货物运送到澳大利亚的价格，所以这一切都增加了我们支付的价格。”](https://www.skynews.com.au/business/finance/slow-ports-could-create-cargo-crisis/video/ddee0cc6352d0c4ca7f2701bf2098eae)
 
-[股债双杀！地产成“地雷”？大批地产债“熔断”，更传世茂出事？刚刚紧急澄清！](https://posts.careerengine.us/p/6184e64b3a46887be74cf8d2?from=latest-posts-panel&amp;type=title)
+**4.多米诺股价下跌19%**
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+[价格在上涨，利率也面临着上涨的压力，但如果公司不将这些成本转嫁给消费者，它们将面临股价下跌。天空新闻商业编辑罗斯格林伍德表示，Domino的股价昨天下跌了19%，使公司损失约20亿美元。他说，Domino的CEO Don Meij声称下降是基于不准确的销售数据和价格上涨。格林伍德先生表示，成本上升影响了多米诺的利润率，导致股价因收入受阻而下跌，但多米诺不会是唯一受到这种影响的公司。](https://www.skynews.com.au/business/markets/dominos-share-price-drops-19-per-cent/video/15e3997d2c797df749a8ec9d48e67a43)
+
+**5.减少的Delta浪潮促进了美国的就业增长**
+
+[随着夏季COVID-19感染激增带来的逆风消退，美国10月就业增长可能加速，这提供了更多证据表明经济活动在第四季度初恢复势头。但劳工部周五密切关注的就业报告预计将显示工人短缺持续存在，即使在联邦政府资助的失业救济金到期并且学校重新开放以进行面对面学习之后。尽管如此，在冠状病毒的Delta变体和整个经济范围内的商品短缺将第三季度的增长限制在一年以来的最低水平之后，它将与不断上升的消费者信心和服务业活动一起描绘出更有利的经济图景。](https://www.oann.com/subsiding-delta-wave-seen-boosting-u-s-job-growth-worker-shortages-still-a-constraint/)
+
+**6.美国开放边境后六周内达美航空预订量飙升**
+
+[自9月20日美国表示将为完全接种疫苗的游客重新开放以来，达美航空公司的国际预订量在六周内激增了450%。白宫曾表示，该国将于11月对来自33个国家的航空旅客重新开放，包括中国、印度、巴西和欧洲大部分地区。它表示将从11月8日起取消限制。这家美国航空公司表示，国际航班预计将在11月8日满负荷运行，接下来几周的客运量会很高。它将运营139个航班，从38个国家的55个国际目的地降落在美国，提供超过25,000个座位。](https://www.oann.com/delta-bookings-soar-in-six-weeks-after-u-s-move-to-open-borders/)
+
+**7.星展银行公布第三季度利润增长**
+
+[星展集团(DBSM.SI)预计明年将公布更高的拨备前利润，此前东南亚最大的银行第三季度净利润增长31%超出预期，得益于手续费收入增长和改善资产质量。周五的业绩为华侨银行(OCBC.SI)和大华银行(UOBH.SI)等新加坡银行的强劲季度画上了句号，与此同时，全球银行在受COVID-19大流行打击和经济活动改善的市场中反弹。Sanford C. Bernstein 的高级分析师Kevin Kwek表示：“这三家银行的贷款增长已经出现一些复苏，信贷成本降低的好处已经在底线中。”](https://www.reuters.com/business/singapore-lender-dbs-posts-31-rise-q3-profit-beats-estimates-2021-11-04/)
+
+**8.AIG利润超过华尔街对一般保险提振的预期**
+
+[美国国际集团(AIG.N)周四的季度利润超出市场预期，因为其一般保险业务面临的自然灾害和与COVID-19大流行相关的索赔较少。这家美国保险公司第三季度的一般保险业务承保收入为2000万美元，而去年同期为亏损4.23亿美元。该业务记录的灾难损失为6.28亿美元，主要来自飓风艾达以及英国和欧洲的洪水。相比之下，一年前为7.9亿美元，其中包括的COVID-19损失1.85亿美元。去年，全球保险公司面临与健康危机相关的支出急剧增加，但更广泛的COVID-19疫苗供应缓解了压力。](https://www.reuters.com/business/finance/aig-profit-beats-wall-st-estimates-general-insurance-boost-2021-11-04/)
+
+By 【秘密翻译组-金融组】
+作者：小海星
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

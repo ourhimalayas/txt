@@ -2,29 +2,29 @@
 ---
 
 
-## 本开始担忧今年冬季电力供给不足
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1643552/)
+## 数据显示100%的新冠病毒疫苗死亡与5%的批次有关
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1643665/)
 
-作者：日本方舟农场 – Andy5
+作者：纽约香草山农场 – 宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-日本产经新闻于31日发文称，日本经济产业省称今年冬天的电力供给状况可能是过去十年以来最严峻的。而十年之前正好是311东日本大地震的那一年，日本损失了福岛核电站。
+据英国The Expose网站独家报道，根据政府官方数据，几乎所有的新冠病毒疫苗死亡病例与5%的生产批次相关联。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-302.png)
+调查中使用的数据是从VAERS数据库中提取的。截至2021年10月15日的公开报告，共有171,463起针对辉瑞新冠病毒疫苗的不良事件，以及2,828人死亡和14,262人住院。涉及的疫苗批号总数为4,522。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/CIIQ6VQ7K5KIHK2OKPEQVDOZBY.jpg)
+数据显示，64%的批次涉及22%的不良反应报告，1.6%的批次涉及了76%的不良反应报告，而令人震惊的是，集中在2个批次的负面报告竟然超过了3000份！接种后死亡的报告中，96%的批次范围不涉及死亡，剩下的4%涉及所有2828例死亡。对Moderna的分析得出同样的结论，即95%的批次没有死亡报告，5%的批次与所有2,603例死亡有关。
 
-而目前日本所面临的最大挑战不是地震而是跟欧洲一样，主要因为液化天然气价格上涨，并且日本自身在扩大太阳能的过程中舍弃了很多以前的石油发电系统，同时311以来核电站的扩展和修复也没能有迅速的进展。
-
-目前日本经济产业省预测明年2月，日本全国的预备电力供应只占总共能发电量的3%。接下来的疫苗灾难以及地震等天灾的不确定性，可能会让日本出现突发停电的状况，在日本的战友请务必做好准备。
+结论是：辉瑞疫苗与Moderna疫苗仅仅5%的批次造成了所有已报告VAERS的死亡病例。这一结果令世人震惊。
 
 （本文仅代表作者观点）
 
 参考阅读：
 
-- [https://www.sankei.com/article/20211031-I2UHPH7GGRKF7FCEDKNYPQFRCU/](https://www.sankei.com/article/20211031-I2UHPH7GGRKF7FCEDKNYPQFRCU/)
+- [https://theexpose.uk/2021/10/31/100-percent-of-covid-19-vaccine-deaths-caused-by-just-5-percent-of-the-batches-produced/](https://theexpose.uk/2021/10/31/100-percent-of-covid-19-vaccine-deaths-caused-by-just-5-percent-of-the-batches-produced/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
 
-***编辑***：***Jack Li文阳***
+***编辑***：***Irene木木***
 ***校对/发稿：海阔天空1***
 
 **更多资讯，更多关注**

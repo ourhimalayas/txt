@@ -2,30 +2,32 @@
 ---
 
 
-## 11/5/2021中日财经爆：中国移动被美退市，回A股割韭菜
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1640763/)
+## 11/5/2021中日财经爆：天雷滚滚！中共国地产股债双杀
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1641385/)
 
 #### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5454.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fimgcdn.yicai.com%2Fvms-new%2F2021%2F05%2Fafaa942e-e321-4ce4-912b-19d9c4406c9b.jpg&amp;imgrefurl=https%3A%2F%2Fwww.yicai.com%2Fnews%2F101054007.html&amp;tbnid=kl63KXC2_NuoGM&amp;vet=12ahUKEwjShMud6ID0AhVVS_UHHXeZCNgQMygKegUIARCiAQ..i&amp;docid=DJ_yTRv--3MfXM&amp;w=2500&amp;h=1667&amp;q=%E4%B8%AD%E5%9B%BD%E7%A7%BB%E5%8A%A8%E5%9B%9E%E5%BD%92A%E8%82%A1&amp;ved=2ahUKEwjShMud6ID0AhVVS_UHHXeZCNgQMygKegUIARCiAQ)
-11月4日晚间，记者从证监会官网获悉，中国移动有限公司(下称“中国移动”)首发获通过。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/676.jpg)
-据IPO日报此前报道，中国移动此次在A股上市计划募集资金560亿元，这一募资金额将超过刚上市不久的中国电信以及2020年上市的中芯国际，成为A股近十年以来的最大IPO。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-35.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fx0.ifengimg.com%2Fres%2F2021%2F85CBC215C39D4D7AD0A40998153BC06E7CB5987E_size24_w720_h360.jpeg&amp;imgrefurl=https%3A%2F%2Fi.ifeng.com%2Fc%2F89orhrzLfFR&amp;tbnid=_llKS-arfrAtCM&amp;vet=12ahUKEwio1YG9noH0AhVB95QKHci2D9oQMygnegUIARDuAQ..i&amp;docid=aoi6MhElR-SHeM&amp;w=720&amp;h=360&amp;itg=1&amp;q=%E8%82%A1%E5%80%BA%E5%8F%8C%E6%9D%80&amp;ved=2ahUKEwio1YG9noH0AhVB95QKHci2D9oQMygnegUIARDuAQ)
+11月15日地产债大幅收跌出现临停潮。“20阳城01”跌超34%盘中两次临停，“20金科03”跌超26%盘中临停，“15世茂02”跌超25%盘中临停，“20世茂G1”跌超24%盘中临停，“19世茂G2”跌超21%盘中临停，“19世茂G1”跌超20%盘中临停，“20金科01”跌超17%。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-11.png)
+另外，港股内房股午后跌幅扩大。中国奥园领跌超15%，世茂集团跌超13.98%，建业跌超8%，新城发展、融创中国跌超7%，中骏集团、禹洲集团跌超6%，时代中国、雅居乐等跌超5%。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-7.png)
+国际评级机构惠誉在11月3日的报告中宣布，将中国奥园集团股份有限公司(China Aoyuan Group Limited，简称：“中国奥园”，03883.HK)的长期外币发行人违约评级(IDR)从“BB”下调至“B+”，展望“负面”。
 
-由于中国移动是一家已在境外上市的红筹企业，这次回A股选择的上市标准为“市值不低于2000亿元”。截至11月4日收盘，中国移动港股总市值达8150.08亿元，远高于上市标准。
+惠誉还将中国奥园的高级无抵押评级及其未偿付美元高级无抵押票据的评级从“BB-”下调至“B+”，回收率评级为“RR4”。惠誉在对其最新的企业评级标准公布后，将其所有评级从评级观察名单中移除。
 
-从问询问题来看，证监会对公司与中国移动集团之间的关系、信息安全管理制度、劳务派遣用工等方面给予了重点关注。
+惠誉认为，在资本市场波动性较大的情况下，中国奥园的财务灵活性不断下降，预计其将利用其现金余额偿还到期的资本市场债务。
 
-前总统川普去年11月签署了一项行政令，禁止美国人投资美国政府认定的帮助中共军方、情报和安全部门的中国公司，也不能投资其相关金融产品。
+近日，信托圈流传出一则消息，“世茂与陆家嘴信托谈延期”，关于此事，世茂集团发布澄清声明。
 
-5月7日，中国移动有限公司、中国联通（香港）有限公司和中国电信股份有限公司各自表示，他们预计纽约证券交易所将向[美国证券交易委员会](https://www.epochtimes.com/gb/tag/%E7%BE%8E%E5%9B%BD%E8%AF%81%E5%88%B8%E4%BA%A4%E6%98%93%E5%A7%94%E5%91%98%E4%BC%9A.html)（SEC）申请，允许他们的美国存托凭证（ADR）进行退市。退市将在美国证券交易委员会收到通知的10天后生效。
+11月5日，世茂集团发布澄清声明，昨日在网上流传“世茂与陆家嘴信托谈延期”的消息，经内部摸排以及与陆家嘴信托确认，目前世茂集团与陆家嘴信托合作正常，过往从未有过逾期或面临延期偿付事项。然而市场已经是草木皆兵。
 
-退市意味着这中国三大电信公司被纽交所强制摘牌，投资者不能再通过纽交所买卖这些股票。
-
+下午，世茂集团旗下部分跌幅扩大。截至发稿，19世茂G2跌21%，19世茂G1跌20%、15世茂02跌25.81%，20世茂G1跌24%。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-4.png)
+截至发稿，世茂集团跌13%，至13港元/股。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-2.png)
 消息来源：
 
-[“巨无霸”来了！中国移动首发过会，五大问题成关注重点](http://www.jwview.com/jingwei/html/11-04/440411.shtml)
-
-[中国三大电信公司上诉失败 纽交所将下架](https://www.epochtimes.com/gb/21/5/7/n12931720.htm)
+[股债双杀！地产成“地雷”？大批地产债“熔断”，更传世茂出事？刚刚紧急澄清！](https://posts.careerengine.us/p/6184e64b3a46887be74cf8d2?from=latest-posts-panel&amp;type=title)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

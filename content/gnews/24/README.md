@@ -2,29 +2,32 @@
 ---
 
 
-## FBI突袭探测拜登女儿日记的真实项目职员
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1643554/)
+## 有声|维加诺主教再发公开信反对疫苗接种
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1643672/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-21.png)
-图片来源： finance.sina.com.cn
+配音：香草山美食部 – 玫瑰园
 
-零对冲网11月5日报道，FBI周四突袭了两处与真实项目有关的两处地址，是探测据称拜登女儿的日记被盗的部分，据纽约时报在真实项目创始人詹姆士·欧基夫报出来遭突袭1小时后称，很有兴趣去了解这次的突袭。
+当地时间11月2日，相关消息显示，大主教卡洛·维加诺致函美国红衣主教协会会长，要求停止新冠疫苗的接种。
 
-在中区曼哈顿的公寓房的真实项目长期雇员斯班瑟·米兹家中搜查认股权证。在真实项目尚未公布日记摘录之时，另一个保守派媒体发布了几十页从2020年10月24日美国总统大选前最后几天的手抄本，该网站称他们从另一个不发布信息的组织收到了爆料者的文件。
+维加诺主教认为，新冠疫苗在研发过程中没有经过严格的安全测试，在全球范围内施打这种疫苗等于用实验药物在人类身上做试验。
 
-据报告，真实项目知道真正的日记下落，并有阿什利·拜登的录音承认是她的。欧基夫说：“去年底，有告密者向我们爆料说他们有阿什利·拜登日记的复印件，告密者称他们与不同媒体谈判为出售该日记复印件。最后我们做出了道德上的决定，部分原因也是因为不确定该日记是否是真的，如果这个日记确实是阿什利的，或者日记中的内容确实发生了，我们还是不能发表其中任何部份。”
+再者，主教表示，目前已经基本确认，新冠病毒疫苗既不能帮助人体免疫新冠病毒，也不能阻止病毒的传染，相反，疫苗还有严重的副作用。过去9个月中，新冠疫苗造成的死亡人数比其他所有疫苗在过去30年内造成的还多。
 
-欧基夫说他们在阿什利律师拒绝接受或认记这份日记后就把这个日记交给了执法部门。这位真实项目创始人加了一段陈述，“我们不知道纽约时报怎么会知道在我们的报告者家中发生搜查认股权证的事，关于搜查认股权证的事情，在大陪审团调查中是秘密的。”
+主教还提及，已经被证实的有效治疗药物被美国以及欧洲的医疗主管机构阻止使用。为此，主教谴责了大重启计划，同时斥责教皇方济各犯下“反人类罪”，实行“对抗上帝的撒旦之举”。
 
-纽约时报称司法部自2020年10月以来一直在调查这事，一位拜登家庭的代表报告说有几样阿什利·拜登的私人物品在一次有人入室偷盗后被偷。
+文字版原文：[维加诺主教再发公开信反对疫苗接种](https://gnews.org/zh-hans/1641871/)
 
+音频处理：喜山必胜Maverick
 
-
-###### **新闻来源： **[FBI Raids Project Veritas Staffer In Probe Over Biden Daughter’s Diary](https://www.zerohedge.com/political/fbi-raids-project-veritas-staffer-probe-over-biden-daughters-diary)
-
-
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
