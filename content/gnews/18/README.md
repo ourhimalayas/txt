@@ -2,32 +2,29 @@
 ---
 
 
-## 不惧中共施压 欧盟两主席支持与台湾深化关系
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1643492/)
+## 数据显示100%的新冠病毒疫苗死亡与5%的批次有关
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1643665/)
 
-作者：澳喜农场 – 在远方
+作者：纽约香草山农场 – 宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-10月28日，欧盟理事会主席米歇尔，与欧盟执行委员会主席冯德莱恩表态称，支持立陶宛与台湾互设代表处，并强调，欧盟成员国有权与台湾深化关系。
+据英国The Expose网站独家报道，根据政府官方数据，几乎所有的新冠病毒疫苗死亡病例与5%的生产批次相关联。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-302.png)
+调查中使用的数据是从VAERS数据库中提取的。截至2021年10月15日的公开报告，共有171,463起针对辉瑞新冠病毒疫苗的不良事件，以及2,828人死亡和14,262人住院。涉及的疫苗批号总数为4,522。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/45aae6cf-6fc9-480e-b874-40811753b657.jpeg)
+数据显示，64%的批次涉及22%的不良反应报告，1.6%的批次涉及了76%的不良反应报告，而令人震惊的是，集中在2个批次的负面报告竟然超过了3000份！接种后死亡的报告中，96%的批次范围不涉及死亡，剩下的4%涉及所有2828例死亡。对Moderna的分析得出同样的结论，即95%的批次没有死亡报告，5%的批次与所有2,603例死亡有关。
 
-两位主席在给欧洲议会，福尔摩沙俱乐部的署名回函中强调，台湾在立陶宛开设代表处，并未违反欧盟的一中政策。
-
-两位主席再审，欧盟不能接受中共对欧盟成员国的威胁、政治施压和胁迫措施，并将反击这类行为。在对外尤其中共政权时，欧盟内部的团结，是维护成员的利益及价值观的关键。
-
-在欧盟表态坚定支持立陶宛的同时，台湾国家发展委员会主委龚明鑫，率领的中东欧经贸考察团，也在立陶宛签署六项产经了解备忘录。这是立陶宛有史以来，所接待最大规模的台湾访团。
+结论是：辉瑞疫苗与Moderna疫苗仅仅5%的批次造成了所有已报告VAERS的死亡病例。这一结果令世人震惊。
 
 （本文仅代表作者观点）
 
 参考阅读：
 
-- [https://www.taiwannews.com.tw/en/news/4329133](https://www.taiwannews.com.tw/en/news/4329133)
-- [https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-10292021135418.html](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-10292021135418.html)
+- [https://theexpose.uk/2021/10/31/100-percent-of-covid-19-vaccine-deaths-caused-by-just-5-percent-of-the-batches-produced/](https://theexpose.uk/2021/10/31/100-percent-of-covid-19-vaccine-deaths-caused-by-just-5-percent-of-the-batches-produced/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
 
-***编辑***：***Jack Li文阳 /正义的小新***
+***编辑***：***Irene木木***
 ***校对/发稿：海阔天空1***
 
 **更多资讯，更多关注**

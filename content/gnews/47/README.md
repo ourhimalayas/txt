@@ -2,28 +2,38 @@
 ---
 
 
-## 11/6/2021中日财经爆：关店300家，海底捞扛不住了
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1642830/)
+## 喜币创造的世界财富神话
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1642965/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-40.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Ftblg.k-img.com%2Fresize%2F660x370c%2Frestaurant%2Fimages%2FRvw%2F79427%2F79427574.jpg%3Ftoken%3Dcdba893%26api%3Dv2&amp;imgrefurl=https%3A%2F%2Ftabelog.com%2Ftokyo%2FA1304%2FA130401%2F13213528%2F&amp;tbnid=VtoNTOgmVrvkCM&amp;vet=12ahUKEwjJxvW524L0AhUOe94KHWEIAu4QMygJegUIARDDAQ..i&amp;docid=CHaJ-1gn4oo6IM&amp;w=660&amp;h=370&amp;q=%E6%B5%B7%E5%BA%95%E6%8D%9E&amp;ved=2ahUKEwjJxvW524L0AhUOe94KHWEIAu4QMygJegUIARDDAQ)
-11月5日晚间，海底捞发布公告，称将于今年12月31日前逐步关停300家左右经营未达预期门店，其中部分门店将暂时休整、择机重开，休整周期最长不超过两年。
+作者：英国喜庄园 I770775
 
-“目前的苦果只能由我们一口一口咽下去。我们在此向大家保证，海底捞1000余家门店服务员的笑脸依旧灿烂。”发布公告同时，海底捞通过官方微博发表了“致关心海底捞的朋友”的一封信，公开信的结尾如上所述。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-海底捞的关店动作早有预兆。今年6月，在海底捞股东周年大会上，董事长张勇曾公开反思，承认在2020年6月作出门店扩张的决定是错误的。
+在11月5日的大直播中，郭先生分享了喜联储在世界金融史上划时代的意义。
 
-这在财报上有突出显示。2019年、2020年，海底捞分别新开门店308家、544家，并在2021年上半年新增299家店。截至2021年6月31日，海底捞全球门店总数达1597家。
+郭先生提到，就在喜币上市前，中共不仅对喜交所连续发动每秒几百万次的黑客攻击，而且还以国家的名义向世界多国正式发函，诬陷喜币是洗钱的骗局，要求当地国配合其阻止喜交所的注册以及喜币的上市。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2021.11.06AM-PICTURES-1234568910-图片备用.001-1.jpeg)
+但数据证明，自喜币上市后短短三天时间，喜币的价格已经达到20美元，涨幅高达两百倍，是中共外汇储备的两倍多。 另外，喜币和喜美元的涨跌起伏完全是市场的真实交易，是世界上每个人都可以自由使用的货币。
 
-但激进拓店同时，海底捞翻台率却逐年下降。2018—2020年，海底捞翻台率则从5次/天直降至3.5次/天。2021年上半年，海底捞翻台率继续降至3次/天，低于2020年同期的3.3次/天。
+郭先生还补充道，直至此时，仍有90％的投资者尚未入场。然而，全球已有1100家金融机构通过了喜马拉雅交易所的KYC，因此大资金很快就会入场。到那时，喜联储的威力才会逐渐显示出来，即中共所惧怕的“一币赢一国 ”。
 
-消息来源：
+参考链接：[2021年11月5日 文贵大直播：(4). 喜联储独立法人商业运作与我们](https://gettr.com/post/pg3lvx539f)
 
-[太突然！海底捞今年要关300家店，网友：那我们去哪里过生日？](https://mobile.time-weekly.com/v2/articles/5lJn9y)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+总编：Irene木木
+编辑：文特
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

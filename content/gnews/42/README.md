@@ -2,38 +2,32 @@
 ---
 
 
-## 虚假恒指将引发香港金融灾难
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1642974/)
+## 11/6/2021中日财经爆：新华信托爆雷，中共国信托无信
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1643135/)
 
-作者：纽约香草山农场 四季
+#### 整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-42.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Fsinakd20210906s%2F519%2Fw891h428%2F20210906%2F9729-7e8820b192eca0b58612a287255a0ee9.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.sina.com.cn%2Ftrust%2Fxthydt%2F2021-09-06%2Fdoc-iktzscyx2603245.shtml&amp;tbnid=iZjlbGrusyG0OM&amp;vet=12ahUKEwjM4Jrlk4P0AhW0QPUHHWOWBp4QMygEegUIARCfAQ..i&amp;docid=27rFYtWhPlT0LM&amp;w=891&amp;h=428&amp;q=%E6%96%B0%E5%8D%8E%E4%BF%A1%E6%89%98&amp;ved=2ahUKEwjM4Jrlk4P0AhW0QPUHHWOWBp4QMygEegUIARCfAQ)
+11月3日，海南海药股份有限公司（下称“海南海药”）发布公告，公司近期就与新华信托股份有限公司（下称“新华信托”）等公司的营业信托纠纷案件提起诉讼。此次诉讼涉及到海南海药与新华信托2019年签署的《新华信托华晟系列-华穗19号单一资金信托信托合同》（下称“华穗19号信托”），信托规模为人民币2亿元，期限12个月。截至公告披露日，新华信托仍未兑付相应的本金和2021年9月23日之后的利息。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+实际上，在海南海药向法院提起诉讼前，华穗19号信托已经两次延长还款期限。根据公司9月24日公告，海南海药在2020年12月17日与新华信托签署补充协议，约定信托期限由12个月变更为18个月；2021年6月23日，海南海药再次与新华信托签署补充协议，约定信托期限由18个月变为21个月。
 
+据悉，新华信托成立于1979年，背后的股东包括上海珊瑚礁信息系统有限公司（持股比例40%）、上海纪辉资产管理有限公司（持股比例21.42%）、新产业投资股份有限公司（持股比例17.32%）等。公司2019年财报显示，其营业收入1.71亿元，同比减少66.98%；净利润为1558.64万元，同比减少73.34%。
 
+海南海药曾在2021年9月24日收到深交所下发的《关于对海南海药股份有限公司的关注函》，当中被问询华穗19号信托的底层资产情况，资金最终投向、是否与公司及公司控股股东、董监高存在关联关系，以及逾期兑付对公司生产经营产生的影响。
 
-郭文贵先生在11月5日的大直播中揭示，在过去几年里，香港的恒生指数都是虚假的，它和美元挂钩的基数从未被披露过。另外，其中几家主要的金融机构指数占据恒生指数的20%多，且当中超过一半都是香港和中共国内的房地产按揭贷款和房地产信托公司。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2021.11.06AM-PICTURES-1234568910-图片备用.004.jpeg)
-为了维持虚假的繁荣，恒生指数靠伪造数据维持在两万四千点。但是，广东、江苏、江浙一带的贸易纺织、出口型企业，以及东莞各大企业都已经倒闭，而正是这些企业支撑着恒生指数。
+海南海药回复称，公司对新华信托、重庆金赛进行了核实，华穗19号信托的底层资产和资金的最终投向均为重庆金赛，其用于补充流动资金及归还银行贷款。公司经函证核实，现公司控股股东海南华同实业有限公司、本公司董监高及原控股股东深圳市南方同正投资有限公司与重庆金赛均不存在关联关系。
 
-如今，广交会几乎零成交的这一惨淡事实，加之中共控制的房地产企业近期频现债务违约的现状，都说明中共的虚假经济已经危如累卵。郭先生提到，泡沫一旦被戳破，房贷危机、人道危机及债务危机的国际化，将给香港带来无以复加的金融灾难，继而导致全球经济的崩塌。
+更早之前，海南海药还于2021年6月1日收到深交所关于公司2020年年报的问询函，提到2020年末海南海药其他应收款余额为10.23亿元，其中归类为往来款的金额为9.75亿元。深交所要求披露上述往来款的具体明细。
 
-参考链接：[2021年11月5日文贵大直播：(2). 喜币价格涨跌的真实性，公平性，对比香港恒生指数的虚假](https://gtv.org/video/id=61851d9f11d186296801e582)
+海南海药在随后的回复中对此进行了披露，南方同正、重庆赛诺、重庆金赛均列于其他应收款-往来款的明细名单前三，账面余额分别为4.46亿元、3.58亿元和1.16亿元，占2020年公司其他应收款中往来款的94%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+消息来源:
 
-总编：Irene木木
-编辑：Zion文恩
-校正/发稿：我不在这里
+[两度延期后，2亿信托本金仍未收回！海南海药这次决定起诉新华信托……](http://www.nbd.com.cn/articles/2021-11-03/1979559.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

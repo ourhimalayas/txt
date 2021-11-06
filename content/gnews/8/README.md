@@ -2,28 +2,55 @@
 ---
 
 
-## FBI突袭探测拜登女儿日记的真实项目职员
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1643554/)
+## 喜币之歌《Hcion To the Moon》唱响时空
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1643767/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-21.png)
-图片来源： finance.sina.com.cn
+作者：英国喜庄园 – I770775
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月1号，随着喜马拉雅币的上市，由战友威廉王作词、唐平作曲、郭文贵先生演唱的喜币之歌《Hcion To the Moon》唱响时空，词句铿锵有力，旋律打动人心：
 
-零对冲网11月5日报道，FBI周四突袭了两处与真实项目有关的两处地址，是探测据称拜登女儿的日记被盗的部分，据纽约时报在真实项目创始人詹姆士·欧基夫报出来遭突袭1小时后称，很有兴趣去了解这次的突袭。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/JF110101_9-3【DE】-400x225-1.jpg)
 
-在中区曼哈顿的公寓房的真实项目长期雇员斯班瑟·米兹家中搜查认股权证。在真实项目尚未公布日记摘录之时，另一个保守派媒体发布了几十页从2020年10月24日美国总统大选前最后几天的手抄本，该网站称他们从另一个不发布信息的组织收到了爆料者的文件。
+自由，多么熟悉的字眼， 
+却不知不觉， 离我越来越遥远 。
+曾经，那个意气风发的少年 ， 
+为了生存，只能拼命挣钱。
+ 财富 ，是他们画下的大饼， 
+虚幻背后发现全都是陷阱 。 
+经济各种暴雷 ，房价崩得稀碎 。 
+抬起头 ，前路一片漆黑。
 
-据报告，真实项目知道真正的日记下落，并有阿什利·拜登的录音承认是她的。欧基夫说：“去年底，有告密者向我们爆料说他们有阿什利·拜登日记的复印件，告密者称他们与不同媒体谈判为出售该日记复印件。最后我们做出了道德上的决定，部分原因也是因为不确定该日记是否是真的，如果这个日记确实是阿什利的，或者日记中的内容确实发生了，我们还是不能发表其中任何部份。”
+安全 ，最前沿加密技术出手 ， 
+让你的财富 ，没人能夺走 。 
+稳定币 ，浮动币 ，设计天下无双 。 
+还有二十帕， 黄金挂钩， 摧毁，不停压榨你的机器 。
+ 从此，不再做金钱的奴隶， 
+喜联储的大门 ，永远敞开向你 。 
+前途光明 ，就在喜币。
 
-欧基夫说他们在阿什利律师拒绝接受或认记这份日记后就把这个日记交给了执法部门。这位真实项目创始人加了一段陈述，“我们不知道纽约时报怎么会知道在我们的报告者家中发生搜查认股权证的事，关于搜查认股权证的事情，在大陪审团调查中是秘密的。”
+（本文仅代表作者观点）
 
-纽约时报称司法部自2020年10月以来一直在调查这事，一位拜登家庭的代表报告说有几样阿什利·拜登的私人物品在一次有人入室偷盗后被偷。
+参考阅读：
 
-
-
-###### **新闻来源： **[FBI Raids Project Veritas Staffer In Probe Over Biden Daughter’s Diary](https://www.zerohedge.com/political/fbi-raids-project-veritas-staffer-probe-over-biden-daughters-diary)
+- [https://gettr.com/post/pfs1skea81](https://gettr.com/post/pfs1skea81)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+
+***编辑***：***Irene木木***
+***校对/发稿：海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

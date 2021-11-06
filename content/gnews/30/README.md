@@ -2,53 +2,124 @@
 ---
 
 
-## 2021/11/05墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1643381/)
+## 比特币会彻底消失？
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1643510/)
 
-一、  网曝湖南一女婴住垃圾堆，脸上苍蝇乱飞。当地妇联却以尊重其母亲抚养权为由推卸责任。
+[https://gtv.org/video/id=61863cdcadfd99590c33ae43](https://gtv.org/video/id=61863cdcadfd99590c33ae43)
 
-二、   11月1日，网传山东滨州滨医附院，很多孩子高烧不退，传80％都是大叶性肺炎
+**郭文贵
+Miles Guo**
 
-三、   11月3日，广州康乐村，几万人在这里找不到工作。俗称：康乐失业村。
+我想告诉大家啊
+I want to tell everyone that
 
-四、   广东东莞,以前热闹的城市如今萧条冷落，实体经济艰难，商户的商铺成了停车的车库。
+区块链，咱有两个要给大家说的事
+There are two points I want to make clear to you about blockchain
 
-五、   在城市“高速发展”中出力农民工群体，干一辈子也不可能拥有一套属于自己的房子。
+你一定要知道区块链技术和区块链的拥有者的（关系）
+You must know the relationship between blockchain technology and the owner of the blockchain
 
-六、   被裹挟的家长.安徽一幼儿园老师通知给小孩子送指定牌子的泡面桶和零食空桶（包装）去学校。为了孩子，只能被迫接受。
+它是个行政体制，也就是法律结构
+It is an administrative system, that is, a legal structure
 
-七、   男子病重，高昂的医药费，让家人只能自制呼吸机维持其生命。
+这完全两回事，我再重申一遍
+I emphasize one more time that these are two completely different things
 
-八、   住户在半夜被通知需自我隔离一周，否则会被抓去集中管理半个月。
+区块链是去中心化的技术
+Blockchain is decentralized technology
 
-九、   外卖生意影响学校饭堂经营，广东高校与外卖商起冲突，堵在校园门口阻挡送外卖。
+所有的货币都是去中心化技术，没有一个不去中心化的
+All digital currencies are decentralized technologies, everyone is decentralized
 
-十、   11月4日 重庆。大爷在超市买了50斤大米，透过半透明的袋子发现里面都是霉米。
+它的拥有者和创造者是不是去中心化的？这是完全两回事
+But whether its owners and creators are decentralized? That is two completely different thing
+比特币它是去中心化的
+Bitcoin is decentralized
 
-十一、   11月3日，浙江湖州。男子拍视频质疑商家大米售价两天翻一倍，商家回应：前两天是活动价！
+那么我昨天晚上，我和喜联储的律师，还有我们的喜联储的主席
+Last night, I was with the lawyer of the Himalaya Reserve and the president of the Himalaya Reserve
 
-十二、   11月4日，河北廊坊，卖菜大爷收到假钱, 大姐给零钱安慰。
+我跟他说，我说两件事情，绝对比特币就消失
+I told them that two things would absolutely wipe out the value of Bitcoin
 
-十三、  祖国的大好河山？市民拍摄被污染的河流。
+这里presentation，你是讲不出来的，这就是7哥牛的地方
+The presentation is not telling here, that’s where I’m good at
 
-十四、   11月3日，钟南山：新冠病毒可能长期存在，但可控制其大规模传播。 “中共国福奇”口出狂言，其邪恶用意是什么？
+你讲100天，7哥就一句话，就讲的比你厉害
+You talk about it 100 days, it’s a sentence for me, it speaks more than you
 
+政清你要学一学
+Zhengqing, you have to learn
 
+知道我从小就学会了，师傅高在哪儿啊？
+I have learned since I was a child. What is the master’s greatness?
 
+就是最后那一拳把你撂倒，这就叫师傅
+That is, he can take you down in one move, which is called master
 
+被撂倒了就是徒弟
+If you are knocked down, you are a disciple
+
+现在7哥给你们教教
+Let me teach you now
+
+比特币，为什么我昨天跟他们讲
+About Bitcoin, why I told them yesterday
+
+都在说比特币的技术，区块链不可能超过2100万的
+It’s all about the technology of bitcoin, the blockchain, the 21 million coins
+
+所有的价值都是因为它2100万
+All the value is because of the 21 million coins limit
+
+所有全人类区块链技术的，任何人都迷信一件事儿
+Blockchain technology for all mankind, everyone is superstitious about one thing
+
+包括你政清，你回答我
+Including you Zhengqing, get me an answer
+
+你是不是相信，绝对相信只有2100个
+Do you believe, absolutely believe that there are only 2100 coins?
+
+你相信吧，政清
+You do, right?
+
+对，没有人怀疑，但是我告诉你
+Yes, no one doubts it, but I’m telling you
+
+只要有一个人说它确实超过2100万个，2110万个
+It only takes one person to say that it does exceed 21 million, 21.1 million
+
+比特币彻底归零，这你相信吧
+Bitcoin’s value has completely gone to zero, do you believe that?
+
+因为这个神话已经没有了嘛，它就成空气了
+Because the myth is gone, it becomes an air currency
+
+我可以告诉大家，比特币一定不是2100万个，走着看
+I can tell you that bitcoin must not be 21 million coins, wait and see
+
+到那时候，所有比特币就没了，消失了，空气，一分都没了
+At that point, all the value will be gone and disappeared in the air, not even a penny left
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Date: 11/04/2021
+原视频标题: 比特币会彻底消失？
+Bitcoin’s value will disappear completely
+原视频日期：2021/10/29
+原视频链接：[https://twitter.com/se1y7cblljselva/status/1454775137115336725?s=24](https://twitter.com/se1y7cblljselva/status/1454775137115336725?s=24)
+任务编号：KC224(2738)
+视频时间段 : 0:00-1:48
+英听校：洛杉矶盘古农场 – Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

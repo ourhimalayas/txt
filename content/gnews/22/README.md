@@ -2,40 +2,30 @@
 ---
 
 
-## 美国CDC新令 未接种疫苗的儿童航空乘客无需隔离
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1643460/)
+## 美国共和党联邦众议员提出重新审视一中政策
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1643602/)
 
-作者：日本东京方舟农场 – 冰糖葫芦喵
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-《路透社》华盛顿10月30日报道，美国疾控中心（CDC）主任，罗谢尔·瓦伦斯基(Rochelle Walensky)签署了一项修订命令，澄清未接种中共病毒疫苗的18岁以下儿童和青少年，在乘坐飞机抵达美国后，不再需要自我隔离7天。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-1.png)
-周一，美国CDC发布的一项命令规定，未接种疫苗的18岁以下儿童如果单独旅行，将被隔离几天，费用自理。这项隔离命令的发布，引起一些外国航空乘客和家长们的恐慌。
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-5.png)
+图片来自网络
 
-11月8日，美国将取消禁止大多数非美国公民入境的特别旅行限制。对在过去14天内曾在英国、欧洲26个没有边境管制的申根国家、爱尔兰、中国、印度、南非、伊朗和巴西呆过的非美国公民取消限制令。它还了实施新的规定，要求几乎所有外国成年航空游客都要接种中共病毒疫苗，没有宗教豁免。
+据《美国之音》11月6日报道，美国国会共和党联邦众议员克劳迪娅·坦尼（ Claudia Tenney）日前在接受专访时表示，中（共）国不是假想敌，而是美国当今最大的敌人，是“当代的苏联”。坦尼认为，美国应该重新审视一中政策。
 
-（本文仅代表作者观点）
+坦尼议员还呼吁国会两党和行政部门支持她提出的《中国观察法》（China Watcher Act），为国务院提供资源，在全球各地监测中共国的影响力。
 
-参考阅读：
+在台湾问题上，坦尼议员指出，中共近来在台海地区不断采取咄咄逼人的行动，是在试验美国的决心。她认为，是时候重新审议美国的“一中政策”了。她还表示，不希望“台湾变成另一个香港”。
 
-- [https://www.reuters.com/world/us/cdc-clarifies-unvaccinated-young-foreign-travelers-do-not-need-quarantine-2021-10-30/](https://www.reuters.com/world/us/cdc-clarifies-unvaccinated-young-foreign-travelers-do-not-need-quarantine-2021-10-30/)
+坦尼认为，在结束阿富汗的军事行动后，现在的台湾局势在某种程度上已成为美国最为紧迫的国际议题之一。她认为，现在比以往任何时候都需要明确展示美国支持台湾的态度。
 
+坦尼众议员表示，面对强势的中共，美国政府也应在军事协防台湾方面更加积极。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+坦尼众议员在台湾议题上的立场和主张，清晰反映了国会共和党人对台湾的高度支持。
 
-***编辑***：***正义的小新***
-***校对/发稿：海阔天空1***
+本星期，美国参议院军事委员会共和党参议员乔什·霍利（Josh Hawley）率先推出了《武装台湾法》（Arm Taiwan Act）草案，提出每年拨款30亿美元提升台湾不对称战力的计划；随后，外交关系委员会多位重量级共和党议员共同推出了《台湾威慑法》（Taiwan Deterrence Act），寻求授权每年向台湾提供20亿美元及其他援助，以加强台湾的防务。
 
-**更多资讯，更多关注**
+注：本文仅代表作者观点
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**新闻链接：**[https://twitter.com/VOAChinese/status/1456948242483236869](https://twitter.com/VOAChinese/status/1456948242483236869)
 
  
 
