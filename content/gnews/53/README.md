@@ -2,38 +2,21 @@
 ---
 
 
-## 中共能源危机持续，与美国签巨额天然气合同
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1641632/)
+## 文贵爆料 5/11: 疫苗下的中共国婴儿——那一刻出生，那一刻死去
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1642032/)
 
-作者：MOS 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，有报道指出，虽然中共的煤炭期货下滑了约35%，但中共的能源危机仍远未缓解。数据显示，先是中共国内几个主要产煤大省的水灾降低了本土供应，加之与澳大利亚的关系持续恶化，导致煤炭进口短缺，中共的实货煤炭依旧极其昂贵。入冬后，中共国内还增添了燃煤供暖的需求，这将加剧中共的能源短缺。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-13.jpg)
-另一方面，中共国内部分地区今年降雨量减少，依赖降水量的供电也难以为继，部分工厂被强制限电。这也导致中共国内液化天然气价格的大幅上涨。
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-4.jpg)
+疫苗如同一只无形之手牢牢地扼住了人类的命运，其实真实的世界更为残酷。郭文贵先生在11月5日的大直播中，讲述了一个惨绝人寰的故事，在中共国，因病毒疫苗而致残的婴儿在出生的那一刻，就被颈死。
 
-为了解决迫在眉睫的能源问题，中共与美国路易斯安那州的天然气企业签署了一份20年的协议，以确保美国向中共国出口400万吨的液化天然气。
+给孩子打疫苗、给老人打疫苗啊，无穷无尽的故事。北京那个卫生局的哥们说，七哥，你知道现在生孩子每天都很多，现在给我们一个标准，露头孩子，一看有残疾，一看不对劲，立马就拿着纱布直接从头上拽着就缠，惨死啊，之后就把包扔出去，就不让你活着出来了。每天这样的事都发生啊，妈妈说我们生孩子要做一个扫描嘛，看孩子是否正常吧？他说，关键是扫描时孩子正常，一出来就不正常。啥原因呢？打完疫苗的孩子心脏是动的，看孩子是个孩子，他一出来要不没眼，有孩子脑袋有肿瘤了。其实你知道悲哀在哪里吗？没见过多少父母觉得这是打疫苗的原因，他们认为这是自己的错。
 
-相关评论指出，2019年中美贸易战期间，中共几乎切断了对美国化石能源产品的进口，此次签署如此巨额的天然气协议，或与中共每况愈下的国际与国内环境有关。
+郭先生说，人在最幸福的时候，在向往和追逐美好的时候，他每天都生活在希望之中。生活是最美好。可是当你打了疫苗之后，你每天生活在不确定之中、在惶恐之中，你不知道哪天什么死去是最恐怖的一件事情。
 
 参考链接：
 
-[中国为应对能源短缺和减排狂买美国天然气](https://cn.wsj.com/articles/%E4%B8%AD%E5%9B%BD%E4%B8%BA%E5%BA%94%E5%AF%B9%E8%83%BD%E6%BA%90%E7%9F%AD%E7%BC%BA%E5%92%8C%E5%87%8F%E6%8E%92%E7%8B%82%E4%B9%B0%E7%BE%8E%E5%9B%BD%E5%A4%A9%E7%84%B6%E6%B0%94-11635903309)
+[2021年11月05 日 文贵大直播](https://gettr.com/streaming/pg3lvx539f)
 
-[Sinopec signs China’s largest long-term LNG contract with U.S. firm](https://www.reuters.com/business/energy/sinopec-signs-20-yr-lng-contract-with-us-venture-global-lng-2021-11-04/)
-
-[《RUSSELL专栏》中国动力煤期货虽暴跌35% 然现货价格依然坚挺](https://cn.reuters.com/article/column-russell-china-coal-drv-1026-idCNKBS2HG0QZ)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-总编：Irene木木
-编辑：Kathy文艺/Irene木木
-校正/发稿：Fei797
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

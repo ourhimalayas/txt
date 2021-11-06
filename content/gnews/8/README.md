@@ -2,47 +2,20 @@
 ---
 
 
-## 签署请愿书：扼杀维州州长安德鲁斯新法案
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1643265/)
+## 气候会议COP26是失败的
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1643291/)
 
-**翻译：小鱼儿
-编辑：文泓**
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11061.jpg)图片来自Ambient&Ambienti
+11 月 5 日–年轻的瑞典活动家谴责正在苏格兰举行的气候会议时说:”所有人都清楚 CoP26 是失败的”,他指责这些世界领导人和有权势的人很清楚他们在做什么，只不过是在用一个“好演讲”来隐藏夸夸其谈的空话。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image1-2.png)图片来源：News Weekly & SkyNews
+这是一场排除了来自下层声音的会议，真正受影响最严重的人仍然闻所未闻。但事实却不会撒谎，我们需要立即大幅削减排放量，但我们必须从根本上改变我们的社会。气候危机源于这样一个原则，即拥有更多资源的人有权剥削他人。
 
+几十年的 bla bla bla的同时，他们继续为化石燃料建造新的基础设施，开设新的煤矿，而不是向受影响最严重的国家支付损失，这是可耻的。
 
-这个史无前例的时代，需要前所未有的措施。
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/05/greta-e-chiaro-a-tutti-che-la-cop26-e-un-fallimento\_70ad4099-8429-42b9-9b04-8b5f91b4688b.html](https://www.ansa.it/sito/notizie/topnews/2021/11/05/greta-e-chiaro-a-tutti-che-la-cop26-e-un-fallimento_70ad4099-8429-42b9-9b04-8b5f91b4688b.html)
 
-当前：71,824个签名
-目标：10万个签名
-
-历史上，德国《魏玛宪法》第48条授权一个人通过紧急法令，导致了纳粹的独裁统治。希特勒利用第48条给他的独裁统治盖上了合法的印章。
-
-今天，维多利亚州丹尼尔·安德鲁斯新法案的第8A条就是（纳粹）的第48条。它赋予了安德鲁斯享有（纳粹）1933年不受约束的、同样的暴政权力。
-
-这个危险的法案于10月25日在下议院通过，预计将在11月16日至19日之间的某一天在上议院通过，在菲奥娜·帕滕议员、萨曼莎·拉特南议员和安迪·麦迪克议员的帮助下，他们不断地与这个政府一起投票支持延长当前法案下的（政府）紧急权力。【备注：以上三位都是维州立法委员会成员。】
-
-一旦这一令人发指的立法通过，就只有一个机会来阻止这一法案。
-
-虽然这是史无前例的，但我们现在转向总督，要求尊敬的琳达·德绍·AC按照澳大利亚政府和民主的核心原则行事，并要求她：
-
-——拒绝批准《2021年公共卫生和福利修正案（大流行病管理）》，以及对州长所提方案导致的后果提出警告。
-
-必须这样做，因为拟议的法律不符合澳大利亚宪法，当然也不符合法治，而且公然无视本州和整个联邦的民主和宪法框架。
-
-那么，你能做什么？
-在这份请愿书上签名，并把它分享给你认识的每个人，因为我们的签名越多，总督就越难驳回人民的请愿。
-
-原文链接：[SIGN THE PETITION: Kill Dan’s Bill – Rebel News](https://www.rebelnews.com/kill_dans_bill)
-
-发布：Janek
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 
