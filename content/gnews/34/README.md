@@ -2,56 +2,28 @@
 ---
 
 
-## 喜币之歌《Hcion To the Moon》唱响时空
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1643767/)
+## 有声|全球因新冠病毒死亡的人数突破500万
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1643991/)
 
-作者：英国喜庄园 – I770775
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月1号，随着喜马拉雅币的上市，由战友威廉王作词、唐平作曲、郭文贵先生演唱的喜币之歌《Hcion To the Moon》唱响时空，词句铿锵有力，旋律打动人心：
+配音：香草山教育部 – 蒙古鸿雁
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/JF110101_9-3【DE】-400x225-1.jpg)
+11月1日，数据统计显示，全球因新冠病毒死亡的人数突破了500万人，当中，美、加、欧盟、英国和巴西等国家的死亡人数近全球总死亡人数的一半，而仅美国一地就记录了超过74.5万的患者失去生命——这使得新冠病毒成为仅次于心脏病和中风的全球第三大致死疾病。
 
-自由，多么熟悉的字眼， 
-却不知不觉， 离我越来越遥远 。
-曾经，那个意气风发的少年 ， 
-为了生存，只能拼命挣钱。
- 财富 ，是他们画下的大饼， 
-虚幻背后发现全都是陷阱 。 
-经济各种暴雷 ，房价崩得稀碎 。 
-抬起头 ，前路一片漆黑。
+但相关人员评论道，相较于其他疾病，新冠病毒还存在另一个致死因素，那就是新冠疫苗所带来的严重副作用。另一方面，与别的自然疾病导致的痛苦相比，新冠病毒及疫苗除了对世界经济造成毁灭性的影响之外，其也会给幸存者带来巨大的精神摧残。对此，郭文贵先生在11月3日的直播中示警世界，疫苗所带来的次生灾难或将在2022年5月前后完全显现。
 
-安全 ，最前沿加密技术出手 ， 
-让你的财富 ，没人能夺走 。 
-稳定币 ，浮动币 ，设计天下无双 。 
-还有二十帕， 黄金挂钩， 摧毁，不停压榨你的机器 。
- 从此，不再做金钱的奴隶， 
-喜联储的大门 ，永远敞开向你 。 
-前途光明 ，就在喜币。
+文字版原文：[全球因新冠病毒死亡的人数突破500万](https://gnews.org/zh-hans/1637780/)
 
-（本文仅代表作者观点）
+音频处理：喜山必胜Maverick
 
-参考阅读：
-
-- [https://gettr.com/post/pfs1skea81](https://gettr.com/post/pfs1skea81)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
-
-***编辑***：***Irene木木***
-***校对/发稿：海阔天空1***
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 **更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
