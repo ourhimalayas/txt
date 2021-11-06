@@ -2,54 +2,20 @@
 ---
 
 
-## 英国西敏公学中止在中共国建校计划
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1642550/)
+## 文贵爆料2021.11.5：遵守规则与法律是新中国联邦人必须践行的常识
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1642582/)
 
-作者：纽约香草山农 – 四季
+撰稿：回响
+![此图像的alt属性为空；文件名为图像-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/%E5%9B%BE%E5%83%8F-1.jpg)图片来源：GETTR & GTV
+11月5日，G系列的创意设计人郭文贵先生在大直播中明确发布：即刻起，没有经过喜联盟备案、授权，任何人不得就喜币问题做任何信息发布。这是非常严肃的法律问题，会涉及到触犯法律与否的底线。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+郭先生和现场嘉宾讨论，今天喜币交易所30秒的下跌说明什么？他最后明确阐述，核心是三个体现：这是一个真实的市场；价格波动真实的反映；喜币取现买卖是真实的交易。并通过简单的举例让大家明白根本不存在所谓“护盘”的可能。
 
+郭先生用活生生的事实分享并说明，富可敌国的资深投资家（笔者猜测是摩根先生）所言非虚：**科技货币，只能存在于法治国家；没有投票权的经济体是不可能有未来的。投资、投机和投票权是所有新中国联邦人必须学习、掌握和践行的基础常识**。无论是日常工作中的点点滴滴，还是涉及公众利益的重大事宜，都必须尊重规则、遵守法律。
 
+【原文链接】https://gtv.org/broadcast/watch/61851d9f11d186296801e583
 
-
-
-11月2日，拥有900年历史的英国著名私校西敏公学(Westminster School) 以新冠肺炎疫情及中共国近期改变的教育政策为由，中止了在中共国设立多间学校的计划。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1358.jpg)图片来源：路透社
-
-西敏公学表示，已经放弃在中共国设立6间姊妹学校，包括一间由2017年开始筹备，已经兴建好的四川成都学校。按照原本计划，该新学校会录取2000多名3至18岁学生，以双语教学；其余5间学校则计划会在2028年前完成建筑。
-
-中共近年强调限制民办教育和官方意识形态。今年4月，中共颁布新法例，不再批准由外国实质控制，提供九年义务教育的民办学校，一些省市更限制课程中使用外国教科书。
-
-中共在意识形态方面的逐步收紧，以及对西方普世价值的惧怕，势必将对已经在中共国办学的众多国际学校产生深远影响。
-
-**参考阅读：**
-
-[因疫情及教育政策转变 英国威斯敏斯特公学中止中国设校计划 (voachinese.com)](https://www.voachinese.com/a/westminster-school-stops-plans-for-sister-schools-in-china-after-tightening-of-education-policies-20211103/6298784.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+校对发布：Shifter
 
  
 

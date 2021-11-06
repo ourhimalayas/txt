@@ -2,40 +2,62 @@
 ---
 
 
-## 文贵直播2021.11.5：喜币上市就是对中共的抽筋扒皮
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1642144/)
+## 病毒不是目的，病毒是手段，疫苗是真正的这场灾难的目的
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1642276/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图像-1.jpg)
-图片来源：GTV截屏
+我可以负责任地告诉大家，你再看我一周前、两周前、三周前，所有的疫苗说过的事情：病毒不是目的，病毒是手段，疫苗是真正的这场灾难的目的。
 
-**郭先生在直播中形容喜币上市对中共就是就是抽筋扒皮的感觉。对国内体制内或者整个国内经济界、金融界的实际影响巨大。**
+I am fully responsible for what I am about to say. Please consider what I said in the past three weeks about the vaccine: The virus is only an instrument, the delivery of the vaccine is the final goal of this disaster.
 
-**1. 戳穿中共弥天大谎：没有共产党，中国人民就没有小康幸福生活**
+七哥2020年1月2号、2020年2月2号我都在直播中说过，这场灾难共产党所有的这个所谓的病毒绝对就是生化病毒。
 
-老百姓的钱一旦有出口的时候，共产党就没有钱了，这个巨人就倒下了。共产党被扒皮是啥感觉呢？就是共产党一贯说爹亲娘亲不如党亲，啥都共产党这个党爹给的，党娘给的。不断给老百姓洗脑，“没有共产党，就没有新中国，没有共产党，没有小康、没有幸福，甚至你连生孩子的权利都没有”。老百姓生第二个孩子就让你家破，生第三个孩子让你家破加人亡。现在改为生一个必须，生两个很好，生三个最妙，四个不用国家给你养老。所有的这些共产党的逻辑就是：“你的钱是党爹给的”，“宇宙无限大，咱们只是一粒沙”，“爹亲娘亲不如党亲”。
+I have mentioned this in the broadcasts on Jan 2 and Feb 2, 2020 that this so called virus from the CCP is actually a biological weapon.
 
-现在喜币喜联储上市，一步扒皮就扒出来了。老百姓想啊：哇塞，没喊他们新中国联邦，没喊他娘啊，也没把自己老婆、闺女给他玩儿，也不需要玩这个宇宙和沙子游戏，也不用听他们的话呀，我们就可以行了呀。这就是抽筋扒皮的感觉。
+我再重申：来自中国共产党的生化病毒，不是中国人的，是（共产党）有意识的长期的积累，这是1969年、1970年在美国已经研发成熟的冠状病毒生化武器，后来被共产党蓝金黄美国，由在美国学习和美国有人出卖美国技术给了中共。
 
-**2. 打脸玩虚拟货币屡试屡败的人民银行**
+Let me repeat myself: This weapon-grade virus from the CCP is not from the Chinese people, instead it is the result of a long-term deliberate plan of the CCP. The technology to weaponize corona viruses was already mature in the US in the late 1960s. It was later acquired by the CCP by infiltrating the scholars and relevant personnel in the US.
 
-据海关的某副关长，他当年是吴仪副总理的秘书说，外贸出口的三分之一的钱都留在了海外。这个喜币、喜联储上市，几乎就是对中国人民银行绝对的打脸。一国之人民银行当爹当娘，数字人民币屡试屡不成功，现在所谓的交易试点到了六百多亿，竟然发现百分之九十七全是自己的国有银行玩啊，找出一些假的朝阳群众啊来去玩虚拟货币，拿走还说不会用。
+中共把它尝试要用在香港运动和美国到武汉的军人运动会上，就是要释放病毒。而且释放病毒要停止香港运动，对打台湾制造国际恐怖，有计划地进行它的全人类的和黑暗势力统治人类的整个计划。
 
-3. **喜币在全球媒体的关注下，在各国法律的监管下，在中共的军事攻击下，上线运行成功，真实交易国际化，这才是真正的对中共抽筋扒皮**
+The CCP tried to use the Covid-19 virus on the freedom fighters in Hong Kong, and the US participants of the World Military Games in Wuhan. The CCP aimed to suppress the demonstration in Hong Kong and threaten the whole world in preparation of the attack of Taiwan. It is a part of a plan to enslave the whole human race in collaboration with the dark force of the world.
 
-喜币喜联储代表了任何中国人在公平的法律司法的制度下，都有机会。你付出，你承担责任，你就能得到。不需要给共产党跪下。 喜联储已经有1100多家金融机构开户了，流通市值200亿，市场估值2万亿美元（CCP在海外的钱也才1万亿美元）。
+病毒制造恐慌、死亡、经济萎软，然后把供应链全部打断，同时把世界上金融家希望的所有的养老基金不能兑现的、挪用的，（让）全部老人死掉。金融界认为多余的、还不了的债然后全都不用还。
 
-**4. ****脱华和排华正在进行中，加入新中国联邦和拥有喜币有的重要性将体现在未来**
+The virus will cause panic, death and a recession of the economy. It will break down the supply chains. At the same time it will kill most of the seniors around the world so that they will have no claim of their pension investments, which have been stolen by the elites in the financial market. The debts that cannot be repaid in the global financial system are therefore forgiven.
 
-郭先生说：联合国会费中共每年只拿几亿美元就强奸200多个国家，那我们包你3年,包你10年，你承认新中国联邦不?!
+全世界的政治格局由于黑暗势力和他们之间的合作，只认可他们能同流合污、共同上过床、共同扛过枪、未来还能共同嫖娼的这些所谓政客。
 
-现在世界脱华和排华正在进行中， 疫苗病毒的真相还不确定，一旦确定， 这事儿大了! 到那时你才知道拥有新中国联邦,拥有喜币是什么概念。
+The grim political outlook of the world is a result of the collusion between the dark force and these corrupt politicians. They all have common evil practices and hope it will continue in the future.
 
-一个恶币，一个善币，善币战胜恶币，一币赢一国！
+那么这些统治是什么呢？首先是辉瑞制药、中国的科兴制药、中国的国药、还有瑞士几大制药厂。全世界最大的药厂和全世界的大概200万个专利，在不超过十个家族控制着。
 
-参考来源：
+So what are these groups of people in charge of? Firstly they control Pfizer, Kexing Pharmaceutical, China National Pharmaceutical Group and a few big pharmaceutical companies in Switzerland. Most of the big pharmaceutical companies around the world and about 2 million patents are controlled by no more than ten families.
 
-[1.2021年11月5号大直播](https://gtv.org/video/id=61851d9f11d186296801e582)
+其中体现的手段，全美国的所有媒体在四个半家族控制。我说这话我都负法律责任，谁不服谁来告我，谁不告我谁是孙子。全美国的媒体四个半家族，全人类的社交媒体就两个半家族控制。全世界的财富是1%的人拥有和90%的人同样比例的财富。
+
+All the media in the US are controlled by four and a half families. I am legally responsible in saying all these things, so feel free to sue me if you think I am lying. All the media in the US are controlled by four and a half families and all the social media around the world are controlled by two and a half families. 1% of the global population possesses the same amount of wealth as the other 90%.
+
+而且这次对种族是有计划的谋杀。现在可能最惨的就可能是对犹太人，然后最惨的很有可能就是加拿大，然后就是美国人。
+
+This premeditated genocide will hit the Jews the hardest, then will be the Canadians and the Americans.
+
+那么这次打病毒中招最厉害的是什么？律师、会计师、明星、运动员、国家公务员。这些人被干掉以后，正好解决了现在人类太聪明、太专业，都追求法治、民主、自由的人类。没有人类了、没有律师、没有会计师、没有医生、没有年轻的政治家，就剩下了中南坑那些老杂毛。
+
+What groups of people suffer the most in this around of vaccine attack? It will be the lawyers, accountants, celebrities, athletes and government workers. After the death of these intelligent people with specialized skills, who also pursued rule of law, democracy and freedom, all there is left are the CCP elites in Zhongnan Pit.
+
+还剩下了今天你看到的加拿大、日本、以色列这些疯狂的完全没有末日的，完全没有末日感，也没有未来的这帮流氓政客。大家看明白了吗？这就是结局。
+
+There are also these corrupt and insane politicians in Canada, Japan and Israel, who have no sense of the end and have no future. They will also remain. Is it clear to everyone? This will be the end result.
+
+所以说疫苗灾难、疫苗大屠杀、疫苗的次生灾难，这才是真正最核心的。今天你看到疫苗灾难了吗？你没有看到。疫苗灾难发生了吗？根本没发生呢！你看到这都是偶然事件。
+
+Therefore the core issue is the disaster and genocide brought by the vaccine. Have you seen the disaster brought by the vaccine? No you have not. Has the vaccine disaster already happened? No it has not. All you have seen so far are only occasional incidents
+
+所有的抗议它不是大觉醒，它只是一个非常朦胧的一个在觉醒。
+
+All the demonstrations right now are not the sign of a great awakening, it is only a partial awakening of the mankind.
+
+**（文章内容仅代表新西兰-财经G乐部节目观点）**
 
  
 

@@ -2,28 +2,31 @@
 ---
 
 
-## 11/6/2021中日财经爆：关店300家，海底捞扛不住了
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1642830/)
+## 路透社：香港大学新课程列出违反国安法的危险
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1642866/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-40.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Ftblg.k-img.com%2Fresize%2F660x370c%2Frestaurant%2Fimages%2FRvw%2F79427%2F79427574.jpg%3Ftoken%3Dcdba893%26api%3Dv2&amp;imgrefurl=https%3A%2F%2Ftabelog.com%2Ftokyo%2FA1304%2FA130401%2F13213528%2F&amp;tbnid=VtoNTOgmVrvkCM&amp;vet=12ahUKEwjJxvW524L0AhUOe94KHWEIAu4QMygJegUIARDDAQ..i&amp;docid=CHaJ-1gn4oo6IM&amp;w=660&amp;h=370&amp;q=%E6%B5%B7%E5%BA%95%E6%8D%9E&amp;ved=2ahUKEwjJxvW524L0AhUOe94KHWEIAu4QMygJegUIARDDAQ)
-11月5日晚间，海底捞发布公告，称将于今年12月31日前逐步关停300家左右经营未达预期门店，其中部分门店将暂时休整、择机重开，休整周期最长不超过两年。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-2.jpg)路透社：香港大学新课程列出违反国安法的危险 网络图片
+据路透社5日消息，上个月，数千名香港大学生参加了有关香港国安法的必修课。这些课程列出了违法的危险，包括如何将聊天组中的消息解释为严重违规，可处以终身监禁。
 
-“目前的苦果只能由我们一口一口咽下去。我们在此向大家保证，海底捞1000余家门店服务员的笑脸依旧灿烂。”发布公告同时，海底捞通过官方微博发表了“致关心海底捞的朋友”的一封信，公开信的结尾如上所述。
+北京去年实施的香港国安法规定，必须在学校和大学教授国家安全。这是亲北京的港府打击大学生的最新举措，香港和中共当局指责他们煽动和领导了2019年的民主抗议活动。法律将惩罚任何北京认为的颠覆、分裂国家等行为，最高可判处无期徒刑。在因抗议活动而被捕的大约10,000 人中，近4,000人是学生。
 
-海底捞的关店动作早有预兆。今年6月，在海底捞股东周年大会上，董事长张勇曾公开反思，承认在2020年6月作出门店扩张的决定是错误的。
+这些课程是对香港自由的西式大学教育体系的攻击。中共国内对民众的洗脑是从儿童开始，香港的民主活动大学生走在了最前列，所以，他们成为了第一批被改造的对象。中共邪魔不除，洗脑就不会停止，直到把所有的大学生和民众都洗成不辩明是非、不知道善恶的爱国小粉红。推翻中共，香港的自由将回归。
 
-这在财报上有突出显示。2019年、2020年，海底捞分别新开门店308家、544家，并在2021年上半年新增299家店。截至2021年6月31日，海底捞全球门店总数达1597家。
+新闻参考链接：[https://www.rfa.org/mandarin/Xinwen/8-11052021153513.html](https://www.rfa.org/mandarin/Xinwen/8-11052021153513.html)
 
-但激进拓店同时，海底捞翻台率却逐年下降。2018—2020年，海底捞翻台率则从5次/天直降至3.5次/天。2021年上半年，海底捞翻台率继续降至3次/天，低于2020年同期的3.3次/天。
+* * *
 
-消息来源：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[太突然！海底捞今年要关300家店，网友：那我们去哪里过生日？](https://mobile.time-weekly.com/v2/articles/5lJn9y)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
