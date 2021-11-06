@@ -2,42 +2,51 @@
 ---
 
 
-## 抵制拜登疫苗强制令 美数千情报人员拒绝接种疫苗
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1644332/)
+## 接下来要清理农场代持的币、假义工报的币和给错的币
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1644400/)
 
-**撰稿：日本东京方舟农场  Kevin wang**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/81-3-1_副本.jpg)
+据[2021年11月5日文贵大直播：危机中的财富与财富中的危机；投资，投机，投票权的关系；喜币价格涨的真实性，公平性，对比香港恒生指数的虚假；无知无善，一定要付出法律的代价](https://gtv.org/video/id=61851d9f11d186296801e582)时间点和给错的币3：24：40——
 
-美国拜登政府的强制疫苗政策目前受到广泛质疑和抵制。美国众议院情报委员会成员近日表示，在美国情报界的18个机构中，有40%的人员未接种疫苗。联邦参议员保罗则认为，疫苗强制令违宪。
+**郭文贵先生：**另外一个再重申一遍，任何战友特别是投资战友不准随便发言，你要承担法律后果，你要承担法律，你是战友，因为你拿的一毛钱买的币，这是跟给你没啥两样，是倒贴钱给你。
 
-据《大纪元》11月6日报道，美国众议院情报委员会成员克里斯‧斯图尔特援引拜登政府提供给众议院情报委员会的未公开信息披露，在美国情报界的18个机构中，有40%的人员未接种疫苗，人数达数千。
+你还在那块真把自己当投资者身份了，然后在那边光光光批，你以为你是伪类呀，是不是？你想骂就骂，想干啥干啥，你拿了一毛钱的币你就必须维护这个币，这点要求一点不过分吧，是吧？
 
-报道还称，拜登的强制疫苗令已遭到众多州政府和部门的抗议，并引发了一系列诉讼，尤其是在共和党人占主导地位的州。目前已有19个州提起诉讼，状告拜登政府强制联邦工作人员和承包商执行疫苗令。
+特别是对铁血组特别是对联盟委员会，你要保持配合和尊重，我们接下来最关键的事情，要最快的时间把每个农场的代持的币一个不能少，这个代持币会出有天大的事儿，这真是一币难求，接下来是一币可以毁人呐！
 
-将于明年1月4日生效的针对私营企业的疫苗令也引发了范围更广的抵制。由劳工部职业安全与健康管理局（OSHA）颁布的这项规则要求：拥有100名以上员工的私营企业雇主，必须确保雇员完全接种COVID-19（中共病毒）疫苗，或者每周进行病毒检测，否则将面临经济处罚。
+这个事儿老班长在这儿呢，求求你了，你再不弄，下次直播我就天天我就在这喊你，因为后果是你先负责，第二就是长岛哥，然后就联盟委员会、农场主，你农场主你不能拿着钱不干事儿！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-27.png)图片来自网络
+而且我们要真的要清除农场里的很多坏人，就我们现在的农场主说啥事儿共产党就知道，这是很可怕的，把代持的币还有一些那所谓的假义工报的币各农场你真要查清楚。这假义工报这币就刚才我说那个例子这很多了，他拿了币一定不干别的就砸你。
 
-拜登的疫苗令引发国家安全担忧的另一领域是国防部。由于担心针对国防承包商的疫苗令会导致军事供应链出现问题，10月下旬，众议院军事委员会的十几名共和党议员向白宫和国防部长劳埃德‧奥斯汀（Lloyd Austin）请愿，要求暂停五角大楼的疫苗令。
+还有那没签合同的，是吧，你必须把他币给他收了，因为你整个联盟委员会你要负责任，人家喜联储不管你，反正我这币给你了，你爱怎么弄怎么弄，它才不管呢。
 
-另据社交媒体GETTR注册用户Himalaya Global（喜站）报道，联邦参议员保罗日前在接受采访时表示，他反对强制接种疫苗。他认为，在一个自由的社会里，人们应该自己决定将什么药物注射到自己的身体里。
+但是你老班长、你长岛哥、各农场主，你要是把这个给币给错了，你用这个币来砸的时候，对不起，你们必须负责任！这是七哥要求你，你要为新中国联邦负责任，你要为这七万七千个战友负责任。
 
-保罗还表示，疫苗强制令因未经立法机关通过，属于违宪，很可能会被最高法院判为无效。
+而且现在所有的这个G-TV的投资还有所有的事情必须尽快对账完毕没有时间了！
 
-*参考链接：*
+（以下暂略）
 
-[拒絕接種疫苗 數千美情報官員面臨解僱風險](https://www.epochtimes.com/b5/21/11/5/n13356146.htm)
+撰稿：喜马拉雅的肉夹馍；
 
-[Senator Paul: Biden’s vaccine mandate Executive Order is unconstitutional. Ii will be in all likelihood struck down by the Supreme Court. 参议员保罗：拜登的疫苗强制令违宪，将会被最高法推翻！](https://gettr.com/post/pfwo1k0ac9)
+审核：喜马拉雅的馍夹肉；
 
-* * *
+校对：Maarago；
 
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-```
-素材采编：Kevin wang
-编辑：青衣青青
-校对/发布：Ranting
-```
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
