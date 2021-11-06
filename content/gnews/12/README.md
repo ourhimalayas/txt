@@ -2,48 +2,24 @@
 ---
 
 
-## 接种疫苗后仍感染 加拿大魁北克不再强制推行疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1643007/)
+## 疫苗接种者，方可攀登富士山
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1643063/)
 
-作者：洛杉矶盘古农场 – 滴水穿石
+撰稿：东京樱花团/鲤鱼打挺
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗接种者，方可攀登富士山.png)[图片来源](https://zh-tw.zekkeijapan.com/area/index/9/)
 
+共同通信11月6日报道，静冈县和NEC等在静冈县的裾野市进行了一项实证实验，攀登富士山时，在登山口，需要通过面部识别系统确认登山者的新冠疫苗接种史和身体状况，验证通过方可入山，预计最早于2022年执行。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+实验参与者在手机专用的app中提前上传面部照片、健康状况信息、疫苗接种记录和PCR测试的阴性结果。入山时，只需进行面部识别即可验证通过。测验当天约有30人，戴上口罩也只需几秒钟后便成了身份验证。
 
+日本政府一步步限制未接种疫苗者的各项服务，似乎是变相的“强制接种”。
 
+信息来源：[富士山登山客の顔認証実験、静岡　ワクチン接種歴や体調を事前登録](https://www.tokyo-np.co.jp/article/141264)
 
-当地时间11月3日的消息称，加拿大魁北克匹兹堡企鹅曲棍球队中的多名队员在接种新冠疫苗后依旧感染新冠病毒。消息称，该球队中的每位球员都接种了两剂疫苗，有些人甚至还接受了“加强注射”作为预防措施，该球队队员对目前的蔓延病例深感不安。
-
-最终魁北克政府在新冠疫苗接种问题上做出了退让。当地卫生部长表示，在医疗服务面临中断风险之际，对于那些不愿接种新冠疫苗的医护人员，政府将不再继续推行强制接种政策。消息显示，魁北克现今大约有一万四千名医护人员得以摆脱强制接种疫苗的危险。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-22.jpg)
-参考链接：
-1. [Québec recule sur la vaccination obligatoire des travailleurs de la santé](https://www.24heures.ca/2021/11/03/quebec-recule-sur-la-vaccination-obligatoire-des-travailleurs-de-la-sante?utm_medium=cxense&amp;utm_source=journaldequebec.com&amp;utm_campaign=reco#cxrecs_s)
-2. [Sidney Crosby déclaré positif à la COVID-19](https://www.journaldemontreal.com/2021/11/03/sidney-crosby-declare-positif-a-la-covid-1)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：Irene木木
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,21 @@
 ---
 
 
-## 11/6/2021中日财经爆：关店300家，海底捞扛不住了
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1642830/)
+## 秘翻在线：美CDC主任参院听证 拒绝透露职员接种率
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1642939/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-40.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Ftblg.k-img.com%2Fresize%2F660x370c%2Frestaurant%2Fimages%2FRvw%2F79427%2F79427574.jpg%3Ftoken%3Dcdba893%26api%3Dv2&amp;imgrefurl=https%3A%2F%2Ftabelog.com%2Ftokyo%2FA1304%2FA130401%2F13213528%2F&amp;tbnid=VtoNTOgmVrvkCM&amp;vet=12ahUKEwjJxvW524L0AhUOe94KHWEIAu4QMygJegUIARDDAQ..i&amp;docid=CHaJ-1gn4oo6IM&amp;w=660&amp;h=370&amp;q=%E6%B5%B7%E5%BA%95%E6%8D%9E&amp;ved=2ahUKEwjJxvW524L0AhUOe94KHWEIAu4QMygJegUIARDDAQ)
-11月5日晚间，海底捞发布公告，称将于今年12月31日前逐步关停300家左右经营未达预期门店，其中部分门店将暂时休整、择机重开，休整周期最长不超过两年。
+**编译：致敬香港！**
 
-“目前的苦果只能由我们一口一口咽下去。我们在此向大家保证，海底捞1000余家门店服务员的笑脸依旧灿烂。”发布公告同时，海底捞通过官方微博发表了“致关心海底捞的朋友”的一封信，公开信的结尾如上所述。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-06-132700.jpg)
+“零对冲”网11月5日报道，美国疾控预防中心（CDC）主任瓦伦斯基（Rochelle Walensky）在4日举行的参议院卫生委员会听证中，极力回避透露CDC职员已接种新冠疫苗的比率。
 
-海底捞的关店动作早有预兆。今年6月，在海底捞股东周年大会上，董事长张勇曾公开反思，承认在2020年6月作出门店扩张的决定是错误的。
+听证会上，共和党参议员、医生卡西迪（Bill Cassidy）提问CDC职员已接种新冠疫苗的比率，瓦伦斯基却只说“我们正积极宣传、鼓励所有员工接种。”会议尾声，共和党首席议员伯尔（Richard Burr）再次质询瓦伦斯基“是不知道CDC员工接种人数、还是只是不想回答？”她继续闪烁其词，称“我们仍在积极收集数据、并实时更新。”伯尔于是要求CDC在11月8日周一前呈报数据，瓦伦斯基辩称，“我们正努力更新数据，但我还得跟工作人员确认后才能知道周一能否提供数据。”伯尔回击指出，总统行政令规定所有联邦政府职员（包括CDC职员）须在11月8日前出示接种证明，否则将面临纪律处分，如果CDC到时候还在收集数据，那将如何按时执行？瓦伦斯基再次绕弯强调CDC正在努力，并会在适当期限前得到数据。伯尔反问，“如果CDC不需要遵守规则，那私营企业为什么要遵守？” 瓦伦斯基只有含糊其辞，称“我将确保我们遵守规则，希望其他人也能遵守。”卡西迪议员追问，CDC亚特兰大总部的职员是否仍有75%在远程办公，瓦伦斯基拒绝证实、但也未否认。
 
-这在财报上有突出显示。2019年、2020年，海底捞分别新开门店308家、544家，并在2021年上半年新增299家店。截至2021年6月31日，海底捞全球门店总数达1597家。
+关于疫苗的效力，伯尔议员提出：有以色列的研究发现自然免疫力比辉瑞疫苗提供的保护要高；其它研究也表明感染中共病毒康复后，记忆B细胞提供的自然免疫力可持续一年；而CDC近期也有简报认为自然免疫力可持续至少6个月。瓦伦斯基则将这些研究归为“回顾性研究、观察性研究，以及我们无法进行的前瞻性研究”，努力淡化这些数据的重要性。
 
-但激进拓店同时，海底捞翻台率却逐年下降。2018—2020年，海底捞翻台率则从5次/天直降至3.5次/天。2021年上半年，海底捞翻台率继续降至3次/天，低于2020年同期的3.3次/天。
+**新闻来源：**[CDC Director Refuses To Tell Senators How Many CDC Employees Are Fully-Vaxx’d](https://www.zerohedge.com/covid-19/cdc-director-refuses-tell-senators-how-many-cdc-employees-are-fully-vaxxd)
 
-消息来源：
-
-[太突然！海底捞今年要关300家店，网友：那我们去哪里过生日？](https://mobile.time-weekly.com/v2/articles/5lJn9y)
-
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

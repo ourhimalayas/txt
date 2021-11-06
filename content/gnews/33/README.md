@@ -2,26 +2,32 @@
 ---
 
 
-## 11/6/2021中日财经爆：恒大5年花了5万亿，拿什么钱还你？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1642822/)
+## 有声|布朗参议员和同僚挑战新冠疫苗强制令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1642929/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-39.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.dw.com%2Fimage%2F59518387_303.jpg&amp;imgrefurl=https%3A%2F%2Fwww.dw.com%2Fzh%2F%25E6%2581%2592%25E5%25A4%25A7%25E5%258D%25B1%25E6%259C%25BA%25E5%2587%25BA%25E5%2594%25AE%25E9%2583%25A8%25E5%2588%2586%25E8%2582%25A1%25E6%259D%2583%25E7%25A0%25B4%25E5%25B1%2580-%25E4%25B8%25AD%25E5%259B%25BD%25E7%25A7%25B0%25E9%25A3%258E%25E9%2599%25A9%25E5%258F%25AF%25E6%258E%25A7%2Fa-59569138&amp;tbnid=k84sdE0mqZZaCM&amp;vet=12ahUKEwiv7dDbovbzAhXITPUHHTcaBcIQMygKegUIARCzAQ..i&amp;docid=eW-6voN23xKetM&amp;w=700&amp;h=394&amp;q=%E6%81%92%E5%A4%A7%E5%80%BA%E5%8A%A1%E6%98%AF%E6%9B%B4%E5%A4%A7%E7%BB%8F%E6%B5%8E%E5%8D%B1%E6%9C%BA%E7%9A%84%E5%89%8D%E5%A5%8F&amp;ved=2ahUKEwiv7dDbovbzAhXITPUHHTcaBcIQMygKegUIARCzAQ)
-据中国青年报，11月4日，在恒大集团举行的内部会议上，恒大集团董事局主席许家印给员工鼓劲加油时说：“越是公司困难的时候，大家越要有定力，房地产是资金密集型行业，需要庞大的现金流。”
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月3日，来自印第安纳州的共和党参议员布劳恩，带领其他40位共和党议员正在挑战美国政府即将对私营企业实行的新冠疫苗强制接种令。
 
-许家印在会议上称，“我给大家讲一组数据：从2016年1月1日到2021年6月30日，5年半的时间，我们几项主要的支出就达5.01万亿元，其中归还到期贷款本金22500亿元，支付贷款利息3670亿元（即本金和利息共计约2.61万亿元），交纳税金2216亿元，支付土地款9634亿元，支付工程款、材料款等建安费用9736亿元，管理及营销费用支出2381亿元。”
+据悉，美国白宫将于本周发布一项关于新冠疫苗的规定，当中要求，若公司员工人数超过100人，则强制该企业执行新冠疫苗接种命令。预计，该规定将影响多达8000 万美国人的工作现状。
 
-11月3日，恒大集团官方微信发布消息称，今年7-10月，恒大完成546个批次交楼工作，涉及184个不同项目、57462户业主。其中，7月交楼项目105个，户数20980户；8月交楼项目85个，户数21106户；9月交楼项目48个，户数7808户；10月交楼项目39个，户数7568户。
+为此，布劳恩呼吁所有议员加入这次行动，用“国会审查法案”授予的权力取消这个“严重越权”的强制令。 布劳恩认为，接种新冠疫苗与否属于个人医疗选择，不应该受到政府胁迫。因此，他愿努力与同事一起，反对新冠疫苗强制令，保护受雇于私营公司的数百万美国公民的人身自由。
 
-恒大集团如今正面临着流动性危机。“复工复产保交楼”作为恒大当前的头等大事，许家印强调，只有复工复产，恢复销售和经营，才能保质保量向业主交楼，才能解决上下游合作伙伴的商票兑付，才能完成财富产品的兑付，才能逐步归还金融机构的借款。
+原文链接: [布朗参议员和同僚挑战新冠疫苗强制令](https://gnews.org/zh-hans/1641912/)
 
-消息来源：
+音频处理：喜山必胜Maverick
 
-[许家印公布惊人数据：恒大5年半花5万亿！许家印又套现了110亿元](https://www.sohu.com/a/499262943_639898)
+发稿：呼吸的雾霾（文小呼吸）
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
