@@ -2,21 +2,28 @@
 ---
 
 
-## 雅典娜时报-第104期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1642687/)
+## 蓝光发展累计未偿还债务本息近242亿
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1642764/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/images.jpg)蓝光发展累计未偿还债务本息近242亿 网络图片
+据新京报11月5日报道，截至2021年11月5日，蓝光发展及下属子公司新增到期未能偿还的债务本息金额26.64亿元。累计银行贷款、信托贷款、债务融资工具等债务共计241.71亿元。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/7.png)
-***发布：小红帽***
+蓝光发展找了很多理由来解释，但根本的原因是中共虚假的经济到了暴雷的时候。假的就是假的，没钱还债就是没钱还债。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻参考链接：[https://c.m.163.com/news/a/GO2ONARC0512D3VJ.html?spss=newsapp](https://c.m.163.com/news/a/GO2ONARC0512D3VJ.html?spss=newsapp)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

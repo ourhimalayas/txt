@@ -2,55 +2,29 @@
 ---
 
 
-## 华尔街下调对中共国经济增长预期
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1642570/)
+## 有声|脸书将其消费者定位最低年龄下调至6岁儿童
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1642669/)
 
-作者：纽约香草山农场 – 四季
+配音：香草山教育部 – 蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月30日，据盖特提供的脸书——现更名为Meta公司的内部员工爆料信息显示，早在今年4月9日，其公司内部的一篇博客文章表明，该公司计划招聘多个职位，并将其受众从当前13岁的底线门槛，降至6到9岁的孩子。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+批评者认为，Meta平台的这些文件清楚地表明，该公司的首要任务不是努力降低其现有平台对青少年的危害，而是更偏向于吸引年幼的孩子，并为其建立Meta产品的终生用户渠道，但其产品对年幼的孩子来说并不安全。
 
+针对Meta的这一行径，盖特CEO杰森·米勒先生在其盖文中直接评论到：“Meta的行为让人觉得不舒服”。而盖特用户的盖文评论更是直接了当地认为，Meta此举涉嫌虐待儿童。
 
+文字版原文：[脸书将其消费者定位最低年龄下调至6岁儿童](https://gnews.org/zh-hans/1636614/)
 
-
-
-鉴于中共出口增长的减缓，以及对新冠病毒疫情再爆发的担心，美国华尔街巨头银行纷纷降低了对中国经济增长的预期。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1359-1.jpg)图片来源：美联社
-
-11月5日，摩根大通第五次下调了对中共国增长的预期，并称该行现在预计今年全年增长7.8%，2022年增长4.7%。理由是电力短缺造成影响而且新冠疫情复燃打击消费者支出和服务业。
-
-自8月以来，高盛、摩根大通和摩根士丹利均降低了对中共国经济增长的预期。摩根士丹将季度增长下调到1.6%，高盛将季度预期从5.8% 降低到2.3%，全年预期从8.6%下调到8.3%，而摩根大通则将季度增长从4.3% 降低到2.0%，全年预期从9.1% 减少到8.9%。
-
-此前公布的中共国贸易数据显示，出口增长低于预期。而周一公布的数据表明，工厂通胀的上升速度高于前一个月，并超出市场预期，这对要努力应对不断上涨的原材料成本的企业无疑是雪上加霜，给已经失去复苏动力的经济增加了巨大压力。
-
-**参考阅读：**
-
-1. [中国疫情抬头出口减缓 华尔街下调对中国经济增长预期 (voachinese.com)](https://www.voachinese.com/a/Wall-Street-investment-banks-cut-China-growth-forecasts-20210809/5996232.html)
-2. [摩根大通8月以来第五次下调中国经济增长预期 | Reuters](https://cn.reuters.com/article/jpmorgan-chase-chia-gdp-forecast-1105-idCNKBS2HQ10X)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 **更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

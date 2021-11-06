@@ -2,20 +2,34 @@
 ---
 
 
-## 文贵爆料2021.11.5：遵守规则与法律是新中国联邦人必须践行的常识
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1642582/)
+## 澳大利亚全国内阁会议今日讨论5-11岁儿童接种问题
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1642679/)
 
-撰稿：回响
-![此图像的alt属性为空；文件名为图像-1.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/%E5%9B%BE%E5%83%8F-1.jpg)图片来源：GETTR & GTV
-11月5日，G系列的创意设计人郭文贵先生在大直播中明确发布：即刻起，没有经过喜联盟备案、授权，任何人不得就喜币问题做任何信息发布。这是非常严肃的法律问题，会涉及到触犯法律与否的底线。
+翻译：Sara9
+编辑：热锅小蚂蚁
+![](https://assets.gnews.org/wp-content/uploads/2021/11/辉瑞疫苗注射-1.png)图片来源：盖地图像 
+据ABC中文5日报道，昨天结束欧洲外访行程返澳的澳大利亚总理莫里森今天将召开全国内阁会议，重点讨论儿童接种疫苗问题。
 
-郭先生和现场嘉宾讨论，今天喜币交易所30秒的下跌说明什么？他最后明确阐述，核心是三个体现：这是一个真实的市场；价格波动真实的反映；喜币取现买卖是真实的交易。并通过简单的举例让大家明白根本不存在所谓“护盘”的可能。
+美国已经开始为5-11岁的儿童接种减小剂量的辉瑞疫苗，澳大利亚何时开始也越来越受到关注。
 
-郭先生用活生生的事实分享并说明，富可敌国的资深投资家（笔者猜测是摩根先生）所言非虚：**科技货币，只能存在于法治国家；没有投票权的经济体是不可能有未来的。投资、投机和投票权是所有新中国联邦人必须学习、掌握和践行的基础常识**。无论是日常工作中的点点滴滴，还是涉及公众利益的重大事宜，都必须尊重规则、遵守法律。
+澳大利亚医疗用品管理局（TGA）[表示](https://www.abc.net.au/chinese/2021-11-04/vaccination-for-young-children-5-to-12-australia-medical-advice/100591080)，可能会在本月底之前就是否向5-11岁儿童提供辉瑞疫苗做出决定。
 
-【原文链接】https://gtv.org/broadcast/watch/61851d9f11d186296801e583
+维州州长安德鲁也明确表示，在今天的全国内阁会议上将重点讨论给儿童接种疫苗的问题，他表示希望孩子们在圣诞假期期间能在有疫苗保护的情况下外出玩耍。
 
-校对发布：Shifter
+数位医学专家表示，虽然5-11岁年龄段的孩子在感染新冠后很少会产生严重不适或者需要住院治疗，但是任何能减少风险的做法都是好的。
+
+*发布：热锅小蚂蚁*
+
+原文链接：[https://www.abc.net.au/chinese/2021-11-05/national-cabinet-to-discuss-vaccination-for-young-children/100596450](https://www.abc.net.au/chinese/2021-11-05/national-cabinet-to-discuss-vaccination-for-young-children/100596450)
+
+**发布：****文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,30 +2,80 @@
 ---
 
 
-## 文贵爆料 (2021/11/5) 无知是新中国联邦最大的敌人
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1642258/)
+## [重点推荐]Newsmax记者Robinson因触及疫苗背后可怕的故事被停职
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1642455/)
 
-撰稿：柯亭
-![此图像的alt属性为空；文件名为Screen-Shot-2021-11-05-at-1.54.36-PM.png](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-05-at-1.54.36-PM.png)图片来源：GTV & GETTR
-11月5日，文贵先生在直播中说有国内战友就喜币11月1日上市评论说，**喜币是现代的币、阳光下的币、全球流通的币，喜币上市一币赢一国**。
+温哥华扬帆农场  Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/emerald-robinson-.jpg)
+图片来源：newsmax.com
 
-文贵先生说，人穷不可怕，但那些家里放了几吨非法来源的现金，你怎么能活过来呢？所以他们只能干一件事解压，就是给小女孩讲宇宙无穷大地球是一粒沙，老婆站岗自己去上床。这是变态的结果。
+疫苗既不能预防中共CCP病毒感染，也不能减少死亡，疫苗对人体免疫系统产生巨大伤害，疫苗后遗症，大量注射疫苗人群出现疫苗严重的副作用。疫苗的背后究竟隐藏着多少阴谋，这是人类需要得到答案。
 
-文贵先生说，1989年后那些所谓的海外民运人士，**之所以能持续欺骗30多年，是因为我们太无知、太软弱**。那些因无知而被像路大脑袋（王定刚）、九指妖（魏丽红）、高冰尘这样的人欺骗的人，应该拿起法律这个武器，让他们为无善和欺骗付出代价。
+然而，中共CCP病毒究竟从哪里来，它究竟想干什么，没有人去追究。中共CCP病毒疫苗里面是否含有有毒物质、生物发光标记物、氧化石墨烯、其它神经控制纳米微电子材料，背后究竟隐藏着多少可怕的故事。当人们开始触及，就是面对结束的时候。
 
-文贵先生说，有些人问我喜币能买东西吗、未来能涨到多少、未来能随时兑换成现金吗？你干脆让我拉几吨现金给你家得了。这种无知的人，就很容易受骗。就像当年的CCP一样，说我们一起干掉国民党，然后就有美国式的民主；干掉地主，你就可以当地主、干地主的老婆和女儿。就像当年CCP“大跃进”一样，说一个母猪一次能下几百个仔。
+美国媒体Newsmax对待自己的记者Emerald Robinson的态度，实在另人痛心！
 
-文贵先生提到文喜战友跑到他当年在中央公园拍过照片的地方录视频、发信息。文喜说我完了、可能坚持不了多久啦、可能会做出愚蠢的行动。文贵先生问文喜，你这是威胁呢、还是跟我谈情说爱呢？文贵先生还补充说，当年文喜还在我家附近租了个房子。
+就在三天前，也就是2021年11月2日，拥有43.8万粉丝的Newsmax 驻白宫记者Emerald Robinson推文称，“疫苗含有一种称为荧光素酶的生物发光标记物，以便您可以被追踪”。（Dear Christians: the vaccines contain a bioluminescent marker called LUCIFERASE so that you can be tracked. Read the last book of the New Testament to see how this end.）
 
-文贵先生指出，**中共国内地的房地产都快崩塌了，香港的股票指数还虚假地维持在2万4千多点。你如果相信这个指数是真的，那也是一种无知**。
+该推文被认为是Emerald Robinson又一次揭露中共CCP病毒起源、疫苗含有生物发光标记物、氧化石墨烯及可以控制人类神经活动的“大重启”。几个小时后，Emerald Robinson被Newsmax停职，推特账号被锁定。
 
-文贵先生说，有战友在3-4美元价格时卖出喜币，然后买了一个26万美元的房子；这比你不买比还更悲哀。喜币现在涨到20美元的价格，你已经是几百万美元买的这个房子；未来当你卖出的喜币变成几千万美元的时候，你住这个房子不就成了地狱吗？你最起码等到15或20美元的价格再卖喜币，也不至于那么后悔。
+Newsmax执行副总裁兼首席内容官 Elliot Jacobson也被迫发表声明：“Newsmax 强烈支持中共CCP病毒疫苗总体上是安全有效的，宣称没有看到任何证据表明荧光素酶或荧光素存在于任何疫苗中，或者它们被用作任何种类的生物发光标记物。（原文：Newsmax is a strong proponent that Covid 19 vaccines are overarchingly safe and effective. while at the same time raising concerns that mandates infringe on personal liberty and privacy. We have seen no evidence to suggest LUCIFERASE or LUCIFERIN are present in any vaccines or that they are used as any sort bioluminescent marker）。
 
-**郭文贵先生希望战友们有钱、有安全、还能享受财富；不要无知、无善，不要被财富给毁了；因为钱可以杀人于无形之中。钱不是一切，不要让无知继续成为你的魔。CCP几十年播下的无知，是新中国联邦最大的敌人**。
+Newsmax的母公司Newsmax Media也不得不向所有订阅用户发送澄清信：“Newsmax 坚信并报道了 Covid 19（中共CCP病毒）疫苗是安全有效的。我们不相信这些疫苗含有任何有毒物质或追踪标记，而且 Newsmax 从未报道过此类虚假声明。出现在 Newsmax 上的许多医学专家都支持使用该疫苗“。（原文：Newsmax strongly believes and has reported that the Covid 19 vaccines are safe and effective. We do not believe the vaccines contain any toxic materials or tracking markers, and such false claims have never been reported on Newsmax. The many medical experts appearing on Newsmax have supported the use of the vaccine.）
 
-参考链接：[11月5日文贵先生直播](https://gettr.com/streaming/pg3lvx539f)
+在完整看完Emerald Robinson的[Covid19 – The Spartacus Letter](https://www.theautomaticearth.com/2021/09/spartacus/)公开信后，笔者不由对她由衷的尊敬。
 
-校对发布：Shifter
+正如她的签名 “与黑暗势力的枉然努力划清界限，并且将其揭示给天下。”（Have nothing to do with the fruitless deeds of darkness, but rather expose them.） 一样，Emerald Robinson是一位彻底的保守主义者。
+
+2021年9月28日，Emerald Robinson发文《[America’s Elections Are Rigged (And Everybody Knows It)](https://emeralddb3.substack.com/p/americas-elections-are-rigged-and)》，揭露美国的选举是被操纵的，亚利桑那审计只是最新的例子。在9月28日的文章中，Emerald Robinson质疑，美国总统选举，为什么7个州800个县的7800万张美国选票被送到海外，由一家在2020年选举前3年就已经破产了的西班牙巴塞罗那的SCYTL公司来“处理”？SCYTL在瑞士建立了一个投票系统，但在瑞士当局于2019年启动公开代码审查后，研究人员发现了源代码中的错误，允许系统的操作者在不被发现的情况下可以随意改变投票。
+
+今年5月，在白宫新闻发布会上，Emerald Robinson向Paski询问了美国国立卫生研究院(the National Institutes of Health)和武汉病毒研究所之间的资助关系、病毒从实验室泄漏的可能性，以及拜登总统是否就冠状病毒(中共CCP病毒)的起源向中共国国家主席习近平施压。Paski的回答居然是：“I’m sorry, Emerald. I think you’ve had plenty of time today. “
+
+Emerald Robinson在2021年9月下旬的推文，“大流行是迫使你接种疫苗，打疫苗就是逼你拿到疫苗护照。疫苗护照是强迫你进入社会信用体系，社会信用体系是为了迫使你服从政府。”
+
+Emerald Robinson正在揭露一个事实，大量临床证据表明中共CCP病毒疫苗并不像宣传的那样有效时，她的声音完全被压制。Emerald Robinson认为，疫苗是一种连锁反应，迫使公民最终“服从政府”。
+
+在一封题为《[Covid19 – The Spartacus Letter](https://www.theautomaticearth.com/2021/09/spartacus/)》的长达几十页公开信中，Emerald Robinson已经完全触及到了中共CCP病毒、疫苗背后的巨大阴谋。
+
+Emerald Robinson的团队经过数千个小时，从众多资料中得出这是一场生化武器战争的结论，安东尼·福奇在国会撒谎，应该被判重罪。疫苗是一种毒药，包含有毒物质、生物发光标记物、氧化石墨烯和其它神经控制纳米微电子材料！！！
+
+武汉病毒研究所正在进行的功能增强性研究的资金来自 Peter Daszak。Peter Daszak 经营着一个名为 EcoHealth Alliance 的非政府组织（生态健康联盟），而生态健康联盟从福奇的the National Institutes of Health/National Institute of Allergy and Infectious Diseases获得了数百万美元的赠款。NIH/NIAID 向武毒所捐赠了几百万美元，DTRA 和 USAID 分别为这项研究捐赠了数千万美元，总共超过一亿美元。
+
+由于生物战袭击，我们不得不眼睁睁地看着美国和自由世界陷入无情的衰落。我们和无数其他人一样，被一个未经选举、不负责任的精英针对美国人民和我们的盟友所进行的宣传和心理战行动所害。我们正在看着医疗机构向数百万美国同胞注入真正的毒药，而不是一场战斗。
+
+在这封公开信中，Emerald Robinson提到了一个令人震惊的事实，参与疫苗研究的科学家与从事将纳米技术与细胞结合的科学家之间的联系。2020 年 6 月 9 日，与武汉理工大学合作，拥有数十年经验的哈佛纳米技术研究员 Charles Lieber 被美国司法部以欺诈罪起诉。Charles Lieber 从美国国防部特别是军事智库 DARPA、AFOSR 和 ONR，以及 NIH 和 MITRE获得了数百万美元的赠款，进行生物纳米技术，或者纳米技术与活细胞的融合研究。随后，中共国政府以千人计划为幌子，贿赂Charles Lieber等西方科学家分享专有研发信息，用于解放军的研究。
+
+Emerald Robinson在公开信中明确指出， COVID-19（中共CCP病毒）疫苗含有氧化还原石墨烯纳米颗粒。日本研究人员还在 COVID-19 （中共CCP病毒）疫苗中发现了无法解释的污染物。石墨烯载流子迁移率15000cm2/（V·s）（室温），是人类已知的具有最高导电性的物质，并且在某些情况下具有顺磁性。Charles Lieber 自己的论文描述了将硅纳米线用于脑机接口或“神经花边”技术。他的论文描述了神经元如何内吞整个硅纳米线或其中的一部分，监测甚至调节神经元活动。可以植入人类心脏以远程监测其活动的人造组织支架。
+
+Emerald Robinson突然被停职，绝非NEWSMAX宣称的简单推文误导这么简单，事实上，Emerald Robinson已经触及到中共CCP病毒、疫苗、暗势力、大重启等可怕的故事！
+
+#  
+
+参考资料：
+
+[Newsmax White House correspondent is removed from the air after she claimed vaccines contain demonic markers that allow people to be tracked](/Users/quhui/Downloads/Newsmax%20White%20House%20correspondent%20is%20removed%20from%20the%20air%20after%20she%20claimed%20vaccines%20contain%20demonic%20markers%20that%20allow%20people%20to%20be%20tracked)
+
+[@EmeraldRobinson](https://twitter.com/EmeraldRobinson)
+
+[Covid19 – The Spartacus Letter](https://www.theautomaticearth.com/2021/09/spartacus/)
+
+[Newsmax Benches Star Who Claimed COVID Vaccines Contain Satanic Trackers](https://www.thedailybeast.com/newsmax-benches-reporter-emerald-robinson-who-tweeted-about-satan-linked-vaccines)
+
+[Opinion: Newsmax forced to admit vaccines don’t make you glow](https://www.washingtonpost.com/opinions/2021/11/04/newsmax-forced-admit-vaccines-dont-make-you-glow/)
+
+[Newsmax白宫记者Emerald Robinson：美国的选举是被操纵的，亚利桑那审计只是最新的例子](/Users/quhui/Downloads/Newsmax白宫记者Emerald%20Robinson：美国的选举是被操纵的，亚利桑那审计只是最新的例子)
+
+[America’s Elections Are Rigged (And Everybody Knows It)](/Users/quhui/Downloads/America's%20Elections%20Are%20Rigged%20%28And%20Everybody%20Knows%20It%29)
+
+[@AlbertBourla](https://twitter.com/AlbertBourla/status/1369734954498818052)
+
+[@ErikWemple](https://twitter.com/ErikWemple)
+
+（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+
+编审：文敏    发布：文敏
+
+
 
  
 

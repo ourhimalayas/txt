@@ -2,22 +2,33 @@
 ---
 
 
-## 日本将根据合同开始疫苗活性药物成分的生产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1642561/)
+## 有声|坎特国会山前声援中国人权 指责NBA保持沉默
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1642653/)
 
-#### 撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-24.png)（图片源自本文链接）
-日本早间电视新闻报道：位于滋贺县的生物技术公司高良生物决定按照委托合同，为一种新的，运用“信使RNA”的中共病毒疫苗，开始疫苗活性药物成分（API）的大宗散装生产。
+作者：香草山教育部 – 蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+此前，美国NBA球员坎特曾为西藏人权发声。10月30日，坎特于华盛顿国会山下再次参加为中国人权声援的集会，替新疆受打压的维吾尔族和其他少数族裔再度向世界发出呐喊。
 
-该疫苗与美国辉瑞公司和莫德纳疫苗系同类，日本目前依靠进口。日本国内生产的开始，将减少采购风险并提供稳定的供应。高良生物利用公司在滋贺县草津本社工厂的现有设施，新工厂将在明年1月前准备好生产。
+集会上，坎特身穿印有四面旗帜的T恤，分别是代表维吾尔人的蓝旗，香港行政区区旗，西藏雪山狮子旗和东蒙古人民自治政府的旗帜。坎特在发言时并没有只局限于新疆地区，他也鼓励包括西藏人、台湾人、香港人在内的所有人团结在一起，为自由努力。
 
-就辉瑞公司的疫苗而言，预计每年能够生产1200万剂，高良生物公司的一位代表说：我们将确保疫苗的稳定供应，希望能为国内基础设施的发展做出贡献。
+另外，坎特指出，对于中共在人权上的恶行，NBA居然一直保持沉默。为此，坎特还批评说，作为NBA运动员，他为NBA感到悲哀和羞耻。
 
-信息来源：[コロナワクチン原薬を国内受託製造へ　安定供給期待](https://news.tv-asahi.co.jp/news_society/articles/000234257.html)
+文字版原文：[坎特国会山前声援中国人权 指责NBA保持沉默](https://gnews.org/zh-hans/1636651/)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
