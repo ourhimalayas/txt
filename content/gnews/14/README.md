@@ -2,32 +2,87 @@
 ---
 
 
-## 有声|美国跨党派参议员提出法案，阻止中共收购美国个人数据
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1643967/)
+## 视频| 为什么香港恒生指数要保在24000点
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1644076/)
 
-配音：香草山教育部 – 蒙古鸿雁
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-美国共和党籍联邦参议员鲁比奥（Marco Rubio）和民主党籍联邦参议员沃尔纳克（Raphael Warnock）共同发起《敏感个人数据保护法案》，要求外国投资者在对处理敏感个人数据的美国公司进行投资时，必须进行强制性的申报，从而加强关键的监管。
+制作：香草山视频部
 
-该法案将保护美国人的重要个人信息，如基因检测结果、健康状况、保险申请、经济困难数据、安全许可信息、地理位置数据、私人电子邮件、用于生成政府身份证明的数据以及信用报告信息。
 
-两位参议员表示，像中共国这样的对手利用收购来储存数据，给美国人带来“个人隐私和国家安全方面的风险”。
 
-美国国家反情报收集与安全中心在今年2月发表的一份报告中说，中共国多年来以合法和非法手段——包括收购处理个人敏感健康资料和其他个人数据的美国公司，与美国的医院、大学和其他研究机构合作，以及黑客袭击——从美国和世界其他各国收集大量医疗健康方面的数据。报告称，此举不仅对美国人的个人隐私构成威胁，而且危及美国的经济与国家安全。
+七哥说过一个擀面杖子经济
 
-文字版原文：[美国跨党派参议员提出法案，阻止中共收购美国个人数据](https://gnews.org/zh-hans/1639842/)
+无论是上海还是香港
 
-音频处理：喜山必胜Maverick
+共产党都订好的界线
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+你不能跨过这个界线
+
+那就是说你这个为什么要保两万四呢
+
+很多人不懂
+
+你看看香港是全世界排在前20名买美国国债的
+
+大概在3000亿美元你们可以查一下啊 2700到3000亿美元
+
+那么同时香港的经济体 也就是说4000多亿、5000亿美元
+
+而且香港的港币是跟美元挂钩的 他是稳定币嘛
+
+所以香港港币和美元有这个 两三千亿美元的美元挂钩
+
+他没有这个基本的钱他是挂不了勾的
+
+你没有这个东西做这个美元被支撑
+
+你怎么挂勾挂什么勾啊是吧
+
+那么香港过去呢就是24000点和他3000亿美元的美债
+
+绝不能再低了 再低他就挂不了勾啦 不称勾啦是吧
+
+那么你就看得出来过去这几年从爆料开始
+
+这个整个恒生的所谓的指数绝对是假的
+
+为什么 你看国内的房地产
+
+房地产现在跌到什么程度了呢
+
+大家都可以看一看啊
+
+几个大的所有前20家房地产公司没有任何营利可以说今年
+
+你每年盈利15到35的时候
+
+香港恒生也是两万四
+
+你不盈利了香港恒生还是两万四
+
+然后香港恒生说我的指数里面包含大陆的指数已经超过50%了
+
+你有这样说假话的吗
+
+
+
+*发稿：雪梨*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

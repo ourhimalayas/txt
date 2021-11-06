@@ -2,32 +2,30 @@
 ---
 
 
-## 有声|联合国粮农组织：10月份世界粮食价格创10年新高
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1643836/)
+## 北京终身禁止台湾高层政治人物入境
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1644017/)
 
-配音：香草山教育部 – 蒙古鸿雁
+新闻来源：德国法兰克福报网页版
 
-11月4日，总部设在罗马的联合国粮食及农业组织（FAO）表示，受到谷物和植物油上涨的影响，世界粮食价格在10月份已经连续第三个月上涨，达到了10年来的新高峰。
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-联合国粮食及农业组织食品价格指数的跟踪显示，全球贸易量最大的食品商品的国际价格，上个月的平均指数为133.2点，而9月份的修正后指数为129.2点。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/hat-china-veraergert-der.jpg)
 
-粮农组织表示，主要出口国特别是美、加、俄三国的小麦收成减少、全球市场供应紧张，将继续给小麦价格带来上行压力。世界植物油价格本月跳涨9.6%，创下历史新记录。相比之下，10月份全球糖价回落1.8%，结束了连续6个月的上涨。由于小麦贸易增加，粮农组织对全球谷物贸易预测上调至新纪录。
 
-在过去一年中，受收割受挫和需求强劲的推动，农产品价格已经急剧上升。
+图片来源： FAZ
 
-文字版原文：[联合国粮农组织：10月份世界粮食价格创10年新高](https://gnews.org/zh-hans/1639873/)
+中国已宣布对台湾总理苏曾章、议长游思坤和外交部长吴钊燮进行制裁。北京国台办发言人周五表示，所有“分裂主义者”将被终身禁止入境和在中国从事商业活动。中共已经编制了一份台湾独立人士名单。这些台湾人有关联的公司不再被允许在中国开展业务。被制裁者所在的机构不得与中国境内的组织合作。
 
-音频处理：喜山必胜Maverick
+中国政府发言人还谈到了刑事调查，但没有提供任何细节。但是上述三位政客而言，入境禁令不太可能产生任何后果。很难想象他们会去中国旅行。台湾本身出于国家安全原因限制公职人员前往中华人民共和国。目前尚不清楚制裁是否是新措施。这三位被点名的政客长期以来一直被中国官方媒体辱骂为“祖国的叛徒”。
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+北京的口头升级恰逢欧洲议会代表团首次正式访问台湾。国会议员周四会见了蔡英文总统。法国代表团团长拉斐尔·格鲁克斯曼说：“我们带着一个非常简单而明确的信息来到这里：你们并不孤单。欧洲支持你”。格鲁克斯曼也被列入制裁名单，仅仅因为他承诺反对压迫维吾尔人。
+
+10 月，欧洲议会通过决议，支持与台湾建立更紧密的关系。蔡英文表示，台湾希望与欧盟合作处理虚假信息等问题。上周，台湾外长吴亦凡访问了立陶宛、斯洛伐克、捷克和布鲁塞尔。两个国家都不承认台湾是一个独立的国家。
+
+原文链接：[https://www.faz.net/aktuell/politik/ausland/china-verbietet-taiwans-spitzenpolitikern-einreise-17620240.html](https://www.faz.net/aktuell/politik/ausland/china-verbietet-taiwans-spitzenpolitikern-einreise-17620240.html)
+
+责任编辑、发布： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

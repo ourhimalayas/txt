@@ -2,37 +2,26 @@
 ---
 
 
-## 郭先生解析投资、投机与投票的区别
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1642972/)
+## COVID-19 最新情报｜美国陆军外科医生作证：上级官员忽视疫苗对飞行安全的隐患
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1643266/)
 
-作者：香草山农场 火来
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜6/11/2021**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_0.jpg)
 
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
+美国威斯康星州共和党参议员约翰逊（R-Wisconsin）于当地时间 11 月 2 日举办了一场圆桌讨论会，会上，美国陆军资深军医、陆军中校，特丽萨·朗（Theresa Long）声明自己在《军事举报人保护法》下作证：“我确信 COVID-19 疫苗对士兵的健康和军事准备的威胁比病毒本身更大，他们应该立即停止飞行。”
 
-11月5日，郭文贵先生在大直播中谈到了一位金融界前辈的观念，即中国人常说，危机中蕴藏着机会，但机会和财富中也蕴藏着危机。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2021.11.06AM-PICTURES-1234568910-图片备用.002.jpeg)
-现如今，喜联储刚刚上市，共产党正逐渐走向灭亡，加之郭文贵先生的协调和多方运作，对爆料革命的战友来说，战友们拥有单价仅有0.1美元的喜币，而喜币又在一周内升值近200倍。
+她指出，飞行员可能会因 COVID-19 疫苗的副作用而在半空中死亡，希望让接种过疫苗的飞行员停飞以监测心肌炎的症状（包括慢性疲劳），这可能导致他们在半空中死于心力衰竭。可惜，她的担忧被上级忽视了，“我做了很多努力，希望高级医疗官员至少将这种风险告知士兵，但我的担忧被忽视了。”陆军上级“甚至没有暂停”疫苗接种来跟进相关问题。
 
-为此，文贵先生提醒战友：一定要善待机会，同时提升自身的认知能力。要知道，机会中也蕴藏着危机，所以不要成为财富的奴隶。再者，战友需要懂得投资、投机和投票三者间的关系——喜币是要求投票权的投资机会，而没有投票权的投资是没有未来的。
+她强调，美国人才是最终承担风险的人，“医学并不完美，医生亦不完美，这种疫苗更加不完美。然而，我们正强制要求每个美国人登上一架由不适合执行飞行任务的人员所驾驶的飞机。”
 
-参考链接：[2021年11月5日文贵大直播：(2). 投资，投机，投票权的关系](https://www.gtv.org/video/id=61851d9f11d186296801e582)
+**直击听证现场，可点击[Gettr](https://gettr.com/post/pg7bq51ab9)了解**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
-
-总编：Irene木木
-编辑：小鹿妞妞
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+目前，美国空军已经解雇了40 名军人，现在正准备惩罚其他数千名未能在官员规定的最后期限前接种疫苗的人，根据空军的数据，截至上周末，仍有多达 1.2 万名现役空军士兵和太空部队监护人没有接种疫苗。有评论担心，这将大大破坏美国的自卫能力。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-3.jpg)
+来源｜[AL](https://www.al.com/news/2021/11/alabama-based-army-surgeon-says-she-warned-of-covid-vaccine-injuries-was-ignored.html)
 
  
 

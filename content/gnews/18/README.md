@@ -2,51 +2,64 @@
 ---
 
 
-## 脱华到排华正在进行中,不确定的理由主要在疫苗和冠状病毒
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1643861/)
+## 2021/11/04 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1644030/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/EtAkL7DUcAAwaZO_副本.jpg)
-据[2021年11月5日文贵大直播：危机中的财富与财富中的危机；投资，投机，投票权的关系；喜币价格涨的真实性，公平性，对比香港恒生指数的虚假；无知无善，一定要付出法律的代价](https://gtv.org/video/id=61851d9f11d186296801e582)时间点3：10：00——
+**主播**：大卫｜**嘉宾**：政清、爱米粒
 
-**郭文贵先生：**我觉得反华的事情绝对我觉得我们明年可能有几个大事儿，我觉得防止反华的事情和疫苗灾难死亡几乎是明年占据我们所有的大部分精力与财富和时间，是我们最重要的目标，就是这个疫苗灾难大家千万你记住一过了明年5月份，你们就知道世界会啥样，完全和你想象得不一样，就是疫苗灾难，疫苗灾难有多坏，反华就会有多坏。
+[GTV视频链接](https://gtv.org/video/id=6183cb7111d1862968018127)
 
-它唯一的好处就是说对咱灭共是大大的帮助，但是我们绝不希望以反华为代价来达到灭共，这个你们懂我意思吗？这绝对不可以的，一定的，会越来越严重！而且我现在，你们没感觉，因为你们生活都很………，我像每天我99%的时间都是跟外国人打交道，而且是全球化的，不是仅一个城市、一个美国，就你能感受到就是在跟我们作为老朋友的人，他们现在对整个中国人和中国真的是越来越不好。
 
-你像欧洲这几十个国家跟共产党的脱钩，你们知道有多大呀这个！就那个海关的那副关长，就是王雪冰兄的老班老领导，真他的老领导说的，他说我们大姐一生中最大的贡献就是整个入世，他说现在我们是真的是被踢出了世，入世和踢世他说一晃不过20年，太可怕了！
 
-这个是挡不住的！人家出世就是跟你断交了！就差一个国家认可的外交关系了，跟你不来往了！就差没，就是像两个人一样，我就差没跟你上法庭了，但是跟你之间已经是没有经济来往了，咱俩不是哥们不是朋友了，下一步就是什么？文化来往都会越来越慢，最后就是断。
+**板块1—国际财经**
 
-你千万别忘了印尼排华事件，你去看一看1968年之前，1961年之前和1949年，印尼华人是中国共产党、中国人民的骄傲——最好的朋友，都快共产主义了！一夜之间杀掉了50万人，干掉了100多万人，人类的惨——三个南京大屠杀！
+1. 昨日《大卫作战室》因救助感染中共病毒战友而取消一期。
 
-这就是今天你看到这个三十几个国家跟它干灭的，昨天下午欧洲某国家现在跟共产党还好着呢！人家找我了，说，Miles，我承认你新中国联邦你给我多少钱，你怎么保证，我要你的喜币。我说我真给不了你喜币，给不了！
+2. 美联储开始撤回大流行援助，将在本月晚些时候开始缩减购债规模。美联储通过购债买债和疯狂印钞托起疫情后的美国经济和股市，同时存在大量泡沫，缩减购债规模将使流动资金从美国股市逃离，恰逢喜联储上市，预计将是“热钱”的好去处。
 
-我现在咱要拿喜币去买这些国家，那咱能买老多国家承认新中国联邦了，咱真不能这么干！为什么呢？这个时候这么干，新中国联邦未来就在全世界形成就跟共产党，第二个共产党。这帮王八蛋就太黑，要的价也很高，咱肯定不干，我也没权做这个决定。
+3. DWAC（厕所股）持续低迷。
 
-那么说明啥？脱华到排华，它正在进行中，而且在不确定的理由，什么叫不确定的理由？主要是疫苗和冠状病毒，一旦疫苗灾难和冠状病毒被确认，我可以告诉你那真的是太大了。战友们到那时候，你才知道新中国联邦，你才知道你拥有了喜美元喜币多重要！
+**板块2–喜币**
 
-（以下暂略）
+1. 喜币交易“奇怪”现象——只有买没有卖。喜币价格突破15美元，预计突破20美元无阻碍。上市三周后机构、大资金即将进场，升值更可观。喜联储的强大对新中国联邦在世界范围内的政治影响力有重要影响。
 
-撰稿：喜马拉雅的肉夹馍；
+2. 喜交所同时在线1600万人次登录，中共数以亿计攻击造成系统缓慢，但没有任何数据受到干扰。
 
-审核：喜马拉雅的馍夹肉；
+**板块3–国内经济**
 
-校对：Maarago；
+1. 李克强警告中共国经济面临“下行压力”。国内政治斗争、国际上穷兵黩武、国内半军管控制、疫情反反复复致使中共国经济不乐观。李克强“罕见”发声为国内老百姓打“心理预防针”。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+2. 爆料革命将救助战友肉身和钱财撤离中共国，登上“诺亚方舟”。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+3. 中共国房屋销售暴跌32%，将爆出各银行违约的烂账。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**板块4–台湾**
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+1. 近期美欧中台事件：中共暂停攻台计划、拜登和美白宫最近表态保护台湾、欧盟取消中共国最惠国待遇、欧洲议会议员访问台湾。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+2. 美国防部发布《中华人民共和国军事和安全发展报告》。五角大楼指出中共国有望在2030前拥有1000枚弹头，揭露解放军正以“三战理念”指导对美国超限战：心理战（解放军军机飞越台海等）、舆论战（用利益诱惑消磨台内部反抗意识）、法律战（制造法律陷阱）。美国逐渐意识到中共的邪恶目的。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+3. 前川普国家完全顾问奥布莱恩警告中共国到2024年（冬奥会和美国总统选举之间）对台湾“挑事”。美国所获信息与爆料革命公布信息高度吻合。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+
+[![](https://spark.adobe.com/page/SHtBJlQQObzUX/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)](https://spark.adobe.com/page/SHtBJlQQObzUX/images/75c397e1-6185-41f3-b6b3-d2944d5e973b.jpg?asset_id=518c922f-77a8-48c2-bc35-e8fe00fda43d&amp;img_etag=%22bd6661e76ae612910ada2e107dbab090%22&amp;size=1024)
+*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
+
+免责声明: 本文只代表编译、作者观点， 与 Gnews平台无关。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://spark.adobe.com/page/SHtBJlQQObzUX/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/SHtBJlQQObzUX/images/ebb1ed76-c143-4ed6-8630-fd29a6b9a2ef.jpg?asset_id=d3c479df-142a-4b39-80ba-1faf08f230b3&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+
 
  
 

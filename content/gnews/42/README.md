@@ -2,52 +2,41 @@
 ---
 
 
-## COVID-19 最新情报｜关于“新冠口服药” 你不可不知的泽连科方案
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1643348/)
+## 西澳公布解封计划：两针疫苗接种率必须达到90%以上
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1643469/)
 
-**撰文｜ 台灣寶島農場 疫情關注組 / 發佈時間｜6/11/2021**
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/11/116-scaled.jpg)图片来源：Pexels免费照片素材库；摄影：FRANK MERIÑO
+西澳大利亚州发布的最新消息公开了该州的解封计划。根据该计划，除非西澳大利亚州12岁以上人群的两针疫苗注射突破90%，否则政府将继续保持封锁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+根据目前的疫苗接种趋势，解封预计将在明年一月以及二月之间。截至当地时间11月6日，西澳大利亚的疫苗两剂接种率已达到64.9%，而一剂疫苗接种率即将突破80%——该数据为全澳最低。
 
+就在上周，西澳大利亚已经宣布来自新南威尔士州、维多利亚州以及首都领地的旅行者必须完全接种两剂疫苗才可以入境——这一政策从11月5日起便已经开始实施。旅行者现在必须提出疫苗接种证明、或者医疗豁免文件才可以通过入境流程。
 
-#### 大药厂相继开发“新冠口服药”
+西澳大利亚州总理Mark McGowan甚至宣称对于今后的国内旅行，两针疫苗接种将成为最为基本的前提条件和原则。虽然目前西澳对于昆士兰、南澳等地的旅行者要求依然维持原样，但Mark McGowan表示：接下来不西澳对于其它州的疫情风险评级是高是低，这一要求都会被推行。
 
-[联合新闻网](https://udn.com/news/story/121707/5869991)引述英国每日邮报报导，继默沙东（Merck & Co.）药厂之后，辉瑞制药5日表示，研发实验新冠口服药可以有效降低九成染疫住院、死亡风险。且药物副作用小，辉瑞首席科学家受访表示：很少可以看到有药物效力将近90%，且将近100%避免病患死亡。
+在西澳总理的脸书评论，许多网友表示了对这一举措的不满和愤怒。部分网友认为这一 举措进一步增加了家庭团聚的困难，而另一些网友则要求Mark McGowan提供支持这一措施的医学建议或证据。
 
-#### 新冠治疗方案早已存在：羟氯喹、锌、阿奇霉素
+一些西澳的本地民众也表示了对总理的失望，同时警告执政者将会失去本地百姓对他们的支持以及最终。“这里不是维多利亚州。”一位Knight女士的留言获得了超过150条点赞。
 
-早在 2020 年新冠疫情爆发后不久，弗拉基米尔 · 泽连科(Vladmir Zelenko)医生就发现通过“[羟氯喹(hydroxychloro- quine)+ 锌(zinc)以及阿奇霉素(azithromycin)](https://vladimirzelenkomd.com/prophylaxis-protocol/)**”**的早期治疗可以将感染新冠病毒的风险降低 80%，而且几乎没有副作用。可是这篇 2020 年 12 月就已经发表的研究成果几乎从未被政策制订者和主流媒体提及。
+与此同时，越来越多的疫苗接种网店已经在全西澳铺展开来，以至于澳洲第九新闻甚至称这一周末为西澳大利亚的“超级疫苗周末”。
 
-澤連科醫生的論文《[COVID-19 outpatients: early risk-stratified treatment with zinc plus low-dose hydroxy- chloroquine and azithromycin: a retrospective case series study](http://COVID-19%20outpatients:%20early%20risk-stratified%20treatment%20with%20zinc%20plus%20low-%20dose%20hydroxychloroquine%20and%20azithromycin:%20a%20retrospective%20case%20series%20study.%20https://www.sciencedirect.com/science/article/pii/S0924857920304258)》对新冠病毒治疗有里程碑式贡献。
+（本文纯属个人观点，与Gnews无关）
 
-如今注射新冠疫苗成为了政策制订者和媒体鼓吹的对抗新冠病毒的主要方案，然而多地在广泛推广新冠疫苗后不仅没有遏制住新冠病毒的传播，甚至因为疫苗不良反应出现大量人间悲剧。
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
 
-1. 台湾：截至 10 月 20 日，疫苗不良反应死亡人数达到 912 人，仅仅 7 个 月就超过了过去 20 个月因新冠病毒死亡的人数。
-2. 新加坡：新冠疫苗接种率 最高的国家之一，84% 的人口已完整接种两针疫苗，14% 的人口接种了疫苗加强针。10月27日新加坡突破单日感染人数最高纪录，当天共5324人感染新冠病毒。
+新闻参考链接：
 
+[澳洲第九新闻（一）](https://www.9news.com.au/national/australia-breaking-news-live-updates-november-4-2021-cleo-smith-found-police-investigation-continues-coronavirus-alert-for-queensland-town/70db40fe-b3db-4cc0-8e47-9330eaafc2e7)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/圖片-1.jpg)新加坡疫苗灾难
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/圖片-21.jpg)台湾疫苗灾难
+[澳洲第九新闻（二）](https://www.9news.com.au/national/western-australia-border-restrictions-wa-to-require-anyone-from-victoria-nsw-and-act-to-be-fully-vaccinated-against-covid-19/2f88e4df-c852-42ec-a394-a4026e7e1d69)
 
+[澳洲第九新闻（三）](https://www.9news.com.au/national/coronavirus-vaccine-rollout-australia-state-by-state-guide-covid19-vaccination-rates-single-dose-double-doses-explainer/abacde8f-d35e-45ee-83bc-069ede212ecf)
 
-弗拉基米尔 · 泽连科(Vladmir Zelenko)医生是第一位创新出新冠病毒治疗方案的美国人，包含他在内的 43 名医生因应对新冠病毒大流行作出的贡献被提名诺贝尔和平奖。这篇文章也是泽连科医生创新出治疗方案——[泽连科方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)的重要依据之一。
+[澳洲第九新闻（四）](https://www.9news.com.au/videos/national/western-australias-super-vax-weekend-gets-underway/ckvnns396007b0jpfgmwovi0m)
 
-- 羟氯喹：自身免疫系统疾病常用治疗药物，[WHO](https://www.who.int/groups/expert-committee-on-selection-and-use-of-essential-medicines/essential-medicines-listshttps://www.who.int/groups/expert-committee-on-selection-and-use-of-essential-medicines/essential-medicines-lists)将其列为治疗系统性红斑狼疮的基本药物之一。在美国最经常使用的处方药物排行第 128 位。
-- 锌：人体内超过 300 种酶需要锌保持活性。大量研究结果表明锌对于提升免疫系统、身体抗氧化、减少发炎等有效。几乎每一家药店都会售卖多种锌补充 药物。
-- 阿奇霉素：治疗许多细菌感染的抗细菌药，于 1980 年被发现，1981 年正式被推出。阿奇霉素在世界卫生组织基本药物标准清单登录有案，迄今在医学上已被使用接近 40 年的时间。
-
-
-泽连科医生在2020年新冠爆发初期，当时缺少针对性的治疗方案，也没有疫苗(并不是说现在的疫苗很好，事实上泽连科医生非常痛恨现在的新冠疫苗，多次称呼其为“死亡毒针”(death shot)。因此，从住院患者的角度进行治疗研究，发现[泽连科方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)不仅可以治疗感染者，更可以预防新冠病毒，那么这对于减缓甚至终结新冠病毒大流行有重大意义。
-
-- 关键分享：[新冠病毒相关论文解析——通过羟氯喹 + 锌，以及阿奇霉素的早期风险分层治疗](https://assets.gnews.org/wp-content/uploads/2021/11/zelenko-2.pdf)
-(文章内容主要依照论文解析，推荐详读了解新冠预防、治疗可能方案；用药仍须依照个案状况，谘询医生，本文仅提供不同观点供读者思考)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-4.jpg)
-* * *
-
-撰文｜寻文客、zhong
-
+[西澳总理脸书](https://www.facebook.com/photo.php?fbid=432544968234354&amp;set=a.263657845123068&amp;type=3)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

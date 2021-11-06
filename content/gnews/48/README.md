@@ -2,38 +2,32 @@
 ---
 
 
-## 喜币创造的世界财富神话
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1642965/)
+## 11/6/2021中日财经爆：新华信托爆雷，中共国信托无信
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1643135/)
 
-作者：英国喜庄园 I770775
+#### 整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-42.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Fsinakd20210906s%2F519%2Fw891h428%2F20210906%2F9729-7e8820b192eca0b58612a287255a0ee9.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.sina.com.cn%2Ftrust%2Fxthydt%2F2021-09-06%2Fdoc-iktzscyx2603245.shtml&amp;tbnid=iZjlbGrusyG0OM&amp;vet=12ahUKEwjM4Jrlk4P0AhW0QPUHHWOWBp4QMygEegUIARCfAQ..i&amp;docid=27rFYtWhPlT0LM&amp;w=891&amp;h=428&amp;q=%E6%96%B0%E5%8D%8E%E4%BF%A1%E6%89%98&amp;ved=2ahUKEwjM4Jrlk4P0AhW0QPUHHWOWBp4QMygEegUIARCfAQ)
+11月3日，海南海药股份有限公司（下称“海南海药”）发布公告，公司近期就与新华信托股份有限公司（下称“新华信托”）等公司的营业信托纠纷案件提起诉讼。此次诉讼涉及到海南海药与新华信托2019年签署的《新华信托华晟系列-华穗19号单一资金信托信托合同》（下称“华穗19号信托”），信托规模为人民币2亿元，期限12个月。截至公告披露日，新华信托仍未兑付相应的本金和2021年9月23日之后的利息。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+实际上，在海南海药向法院提起诉讼前，华穗19号信托已经两次延长还款期限。根据公司9月24日公告，海南海药在2020年12月17日与新华信托签署补充协议，约定信托期限由12个月变更为18个月；2021年6月23日，海南海药再次与新华信托签署补充协议，约定信托期限由18个月变为21个月。
 
-在11月5日的大直播中，郭先生分享了喜联储在世界金融史上划时代的意义。
+据悉，新华信托成立于1979年，背后的股东包括上海珊瑚礁信息系统有限公司（持股比例40%）、上海纪辉资产管理有限公司（持股比例21.42%）、新产业投资股份有限公司（持股比例17.32%）等。公司2019年财报显示，其营业收入1.71亿元，同比减少66.98%；净利润为1558.64万元，同比减少73.34%。
 
-郭先生提到，就在喜币上市前，中共不仅对喜交所连续发动每秒几百万次的黑客攻击，而且还以国家的名义向世界多国正式发函，诬陷喜币是洗钱的骗局，要求当地国配合其阻止喜交所的注册以及喜币的上市。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2021.11.06AM-PICTURES-1234568910-图片备用.001-1.jpeg)
-但数据证明，自喜币上市后短短三天时间，喜币的价格已经达到20美元，涨幅高达两百倍，是中共外汇储备的两倍多。 另外，喜币和喜美元的涨跌起伏完全是市场的真实交易，是世界上每个人都可以自由使用的货币。
+海南海药曾在2021年9月24日收到深交所下发的《关于对海南海药股份有限公司的关注函》，当中被问询华穗19号信托的底层资产情况，资金最终投向、是否与公司及公司控股股东、董监高存在关联关系，以及逾期兑付对公司生产经营产生的影响。
 
-郭先生还补充道，直至此时，仍有90％的投资者尚未入场。然而，全球已有1100家金融机构通过了喜马拉雅交易所的KYC，因此大资金很快就会入场。到那时，喜联储的威力才会逐渐显示出来，即中共所惧怕的“一币赢一国 ”。
+海南海药回复称，公司对新华信托、重庆金赛进行了核实，华穗19号信托的底层资产和资金的最终投向均为重庆金赛，其用于补充流动资金及归还银行贷款。公司经函证核实，现公司控股股东海南华同实业有限公司、本公司董监高及原控股股东深圳市南方同正投资有限公司与重庆金赛均不存在关联关系。
 
-参考链接：[2021年11月5日 文贵大直播：(4). 喜联储独立法人商业运作与我们](https://gettr.com/post/pg3lvx539f)
+更早之前，海南海药还于2021年6月1日收到深交所关于公司2020年年报的问询函，提到2020年末海南海药其他应收款余额为10.23亿元，其中归类为往来款的金额为9.75亿元。深交所要求披露上述往来款的具体明细。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+海南海药在随后的回复中对此进行了披露，南方同正、重庆赛诺、重庆金赛均列于其他应收款-往来款的明细名单前三，账面余额分别为4.46亿元、3.58亿元和1.16亿元，占2020年公司其他应收款中往来款的94%。
 
-总编：Irene木木
-编辑：文特
-校正/发稿：我不在这里
+消息来源:
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[两度延期后，2亿信托本金仍未收回！海南海药这次决定起诉新华信托……](http://www.nbd.com.cn/articles/2021-11-03/1979559.html)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

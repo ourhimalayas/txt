@@ -2,30 +2,46 @@
 ---
 
 
-## 美国共和党联邦众议员提出重新审视一中政策
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1643602/)
+## 中共商务部鼓励家庭储备物资应对突发情况
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1643723/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-5.png)
-图片来自网络
+作者：纽约香草山文艺部 – 宁文静
 
-据《美国之音》11月6日报道，美国国会共和党联邦众议员克劳迪娅·坦尼（ Claudia Tenney）日前在接受专访时表示，中（共）国不是假想敌，而是美国当今最大的敌人，是“当代的苏联”。坦尼认为，美国应该重新审视一中政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-坦尼议员还呼吁国会两党和行政部门支持她提出的《中国观察法》（China Watcher Act），为国务院提供资源，在全球各地监测中共国的影响力。
 
-在台湾问题上，坦尼议员指出，中共近来在台海地区不断采取咄咄逼人的行动，是在试验美国的决心。她认为，是时候重新审议美国的“一中政策”了。她还表示，不希望“台湾变成另一个香港”。
 
-坦尼认为，在结束阿富汗的军事行动后，现在的台湾局势在某种程度上已成为美国最为紧迫的国际议题之一。她认为，现在比以往任何时候都需要明确展示美国支持台湾的态度。
+11月1日，中共商务部下发做好今冬明春生活必需品市场保供稳价的通知。一反常态的是，鼓励普通家庭根据需要储备一定数量的生活必需品，以满足日常生活和突发情况的需要。
 
-坦尼众议员表示，面对强势的中共，美国政府也应在军事协防台湾方面更加积极。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/下载-1-1.jpg)
 
-坦尼众议员在台湾议题上的立场和主张，清晰反映了国会共和党人对台湾的高度支持。
+此前，有居民因为在朋友圈建议囤货，被当地公安机关以违反《治安管理处罚法》处以5天的行政拘留。各地政府一直贯彻的是“稳定压倒一切”的准则，对民众自发的储备物资，尤其对抢购粮油蔬菜等生存必需品引发民众恐慌的言行，采取定点扑灭、打击“造谣、传谣”的高压态势。
 
-本星期，美国参议院军事委员会共和党参议员乔什·霍利（Josh Hawley）率先推出了《武装台湾法》（Arm Taiwan Act）草案，提出每年拨款30亿美元提升台湾不对称战力的计划；随后，外交关系委员会多位重量级共和党议员共同推出了《台湾威慑法》（Taiwan Deterrence Act），寻求授权每年向台湾提供20亿美元及其他援助，以加强台湾的防务。
+“勿谓言之不预”。在全国多省市疫情反弹、攻占台湾的呼声日益高涨的背景下，中共官方如此明确地要求各地建立应急投放集散地和网点，鼓励家庭或个人囤积物资——如此反常，令人担忧。
 
-注：本文仅代表作者观点
+（本文仅代表作者观点）
 
-**新闻链接：**[https://twitter.com/VOAChinese/status/1456948242483236869](https://twitter.com/VOAChinese/status/1456948242483236869)
+参考阅读：
+
+- [https://finance.sina.cn/tech/2021-11-01/detail-iktzqtyu4803978.d.html?fromtech=1&from=wap](https://finance.sina.cn/tech/2021-11-01/detail-iktzqtyu4803978.d.html?fromtech=1&amp;from=wap)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+
+***编辑***：***Irene木木***
+***校对/发稿：海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

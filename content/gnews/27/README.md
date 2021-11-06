@@ -2,47 +2,30 @@
 ---
 
 
-## 中共商务部鼓励家庭储备物资应对突发情况
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1643723/)
+## 有声|美国将反击中共钢铁产业的不公平竞争
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1643871/)
 
-作者：纽约香草山文艺部 – 宁文静
+配音：香草山教育部 – 蒙古鸿雁
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月2日，美国贸易代表戴琪出席了由美国钢铁协会和美国钢铁制造商协会共同在华盛顿举办的大会。会上，戴琪指出，美国政府将全力阻止中共过剩的钢铁进口产品对美国的钢铁产业和市场造成损害，同时将努力提振美国钢铁产业的竞争力。
 
+戴琪表示，钢铁产业是制造业的基础，过去20年间，中共政府通过巨额补贴、牺牲环境、劳工剥削和低价倾销等不公平的竞争手段，使得中共的钢铁产量猛增，但这是不可持续的。
 
+对此，戴琪补充道，美国将动用并开发各式新工具，同时通过与其他经济体和国家合作，保护美国免受多年来因中共不公平竞争而造成的损害。
 
-11月1日，中共商务部下发做好今冬明春生活必需品市场保供稳价的通知。一反常态的是，鼓励普通家庭根据需要储备一定数量的生活必需品，以满足日常生活和突发情况的需要。
+文字版原文：[美国将反击中共钢铁产业的不公平竞争](https://gnews.org/zh-hans/1637764/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/下载-1-1.jpg)
+音频处理：喜山必胜Maverick
 
-此前，有居民因为在朋友圈建议囤货，被当地公安机关以违反《治安管理处罚法》处以5天的行政拘留。各地政府一直贯彻的是“稳定压倒一切”的准则，对民众自发的储备物资，尤其对抢购粮油蔬菜等生存必需品引发民众恐慌的言行，采取定点扑灭、打击“造谣、传谣”的高压态势。
-
-“勿谓言之不预”。在全国多省市疫情反弹、攻占台湾的呼声日益高涨的背景下，中共官方如此明确地要求各地建立应急投放集散地和网点，鼓励家庭或个人囤积物资——如此反常，令人担忧。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-- [https://finance.sina.cn/tech/2021-11-01/detail-iktzqtyu4803978.d.html?fromtech=1&from=wap](https://finance.sina.cn/tech/2021-11-01/detail-iktzqtyu4803978.d.html?fromtech=1&amp;from=wap)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
-
-***编辑***：***Irene木木***
-***校对/发稿：海阔天空1***
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 **更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
