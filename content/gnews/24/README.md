@@ -2,52 +2,22 @@
 ---
 
 
-## 欧洲央行表示需要发行数字货币
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1644507/)
+## 秘翻在线: 六中全会前 多名维权人士在京失踪
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1644626/)
 
-作者：纽约香草山农场 – 四季
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/警方統一抓捕行動.jpg)图片来源：www.adhrrf.org
+据大纪元11月6日报道， 在中共六中全会前夕，多名维权人士失踪。
 
+每当中共国有大型会议或敏感日期之前，都会控制在北京居住的维权人士。有人在家中被从老家来的公安前来直接强制遣返，有的在返乡路上，有的下落不明。即使在返回家乡后，他们也不能完全得到自由，当地都会对他们非法拘留。
 
+早在一周前，北京已经开始清理访民，一些出租房也被挨家挨户排查是否有访民居住。进京的路上包括火车、公路都有人盘查，在信访办四周都是截访人员，拦阻访民进京，国家信访局已经不让信访登记。
 
+中共国一方面打着“人民至上”的旗号，干着“人民至下”，“以人民为敌”的勾当。公检法就是充当打手的职位。任何提出不同意见的民众会被害得四处流浪，无家可归。推翻这样一个邪恶政权，人人有责！
 
-
-欧洲央行执委帕内塔(Fabio Panetta)11月5日表示，欧洲央行有必要发行数字欧元，如将发起的空间完全让给稳定币等私营部门，可能会危及金融稳定，削弱央行的作用。
-
-帕内塔表示，历史证明，金融稳定和公众对货币的信任需要公共货币和私人货币一道被广泛使用。
-
-欧洲央行一直在致力于设计一种数字货币，像现金一样直接由央行发行，并已于7月14日宣布启动数字欧元项目并展开相关调研，预计该项目仍可能需要大约五年时间才能推出一种真正的货币。
-
-全球数字货币热潮升温，喜马拉雅币在上市后短短3天内创下了价格上涨200倍的记录，其估值已经突破2万亿美元。
-
-**参考阅读：**
-
-[欧洲央行不能将数字货币空间完全让位于私营部门–执委帕内塔 | Reuters](https://cn.reuters.com/article/ecb-panetta-digital-euro-1106-idCNKBS2HR037)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+**新闻来源：**[六中全会前 多名维权人遭绑架失踪 | 访民 | 维权人士 | 大纪元 (epochtimes.com)](https://www.epochtimes.com/gb/21/11/6/n13357986.htm)
 
  
 

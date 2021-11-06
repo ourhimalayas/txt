@@ -2,10 +2,10 @@
 ---
 
 
-## 泽连科：疫苗是减少人口的优生项目
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1644730/)
+## 泽连科：大规模接种疫苗促成致命毒株，并加剧大流行
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1644890/)
 
-10/30/2021 泽连科医生说疫苗是优生项目，用来杀死部分人口，造成慢性病。
+10/30/2021 泽连科：大规模接种疫苗促成了致命毒株，并加剧了大流行；我们正生活在全球性的生化武器袭击中。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

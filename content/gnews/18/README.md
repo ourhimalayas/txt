@@ -2,14 +2,12 @@
 ---
 
 
-## Eglise医生：不要打疫苗，感染病毒并不是世界末日
-` Itana` [轉載自GNews](https://gnews.org/zh-hans/1644606/)
+## 反对中共病毒早期治疗的CDC、FDA、WHO及NIH“希望人们死亡”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1644734/)
 
-By Himalaya Italy Ana
+10/30/2021 泽连科医生：反对中共病毒早期治疗的疾控中心、食品和药物管理局、世卫组织、及美国国立卫生研究院“希望人们死亡”。
 
-Eglise医生接受GTV真人真实栏目的采访，她对于感染病毒后的人应该如何做给出了专业的回答，并且给了我们极大的信心。她说到不要打疫苗，感染病毒并不是世界末日，及时治疗可以帮助人体建立强大抗病毒的免疫力。
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

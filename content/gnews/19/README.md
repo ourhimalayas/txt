@@ -2,16 +2,12 @@
 ---
 
 
-## 加拿大疫情统计
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1644584/)
+## 泽连科：因为抗体依赖性增强效应，疫苗产生的抗体有害
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1644732/)
 
-2021年11月6日
+10/30/2021 泽连科医生：因为抗体依赖性增强效应，疫苗产生的抗体可致死；预防措施和早期治疗可以大大减少病毒死亡率。
 
-作者：沉默老歌
-
-截止时间2021年11月5日美东时间20:00
-![](https://assets.gnews.org/wp-content/uploads/2021/11/110621.jpg)
-发布：涅
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

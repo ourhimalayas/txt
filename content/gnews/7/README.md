@@ -2,36 +2,24 @@
 ---
 
 
-## 福奇博士关于新冠病毒的致命谎言
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1644829/)
+## 中共国盐业调味料集体宣布涨价
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1644978/)
 
-翻    译：小鱼儿
-编辑整理：热锅小蚂蚁
-![](https://assets.gnews.org/wp-content/uploads/2021/11/福奇.png)图片来源：网络
-彼得-纳瓦罗：
+#### 撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5646.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Fblog%2Fcrawl%2F127%2Fw550h377%2F20211104%2Fcbb4-77eaeed5c45b12f0ed19a14f32f1fdd3.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.sina.com.cn%2Fstock%2Fhyyj%2F2021-11-04%2Fdoc-iktzscyy3666043.shtml&amp;tbnid=3hEjT5NknpXxrM&amp;vet=12ahUKEwjio6_c-YP0AhUOvpQKHVRoAiUQMygHegQIARAl..i&amp;docid=uw65k9eXh6lToM&amp;w=550&amp;h=377&amp;q=%E4%B8%AD%E5%85%B1%E5%9B%BD%E7%9B%90%E4%B8%9A%E8%B0%83%E5%91%B3%E6%96%99%E9%9B%86%E4%BD%93%E5%AE%A3%E5%B8%83%E6%B6%A8%E4%BB%B7&amp;hl=zh-CN&amp;ved=2ahUKEwjio6_c-YP0AhUOvpQKHVRoAiUQMygHegQIARAl)
+腾讯新闻近日报道，继雪天盐业称小包食盐出厂价近期陆续提价后，云南能投也透露，对部分食盐产品及工业盐产品价格进行了上调，综合平均调价幅度30%-35%不等。
 
-2021年5月11日，安东尼-福奇博士向参议员兰德-保罗和国会谎报了他的机构在武汉一个生物武器实验室资助的功能实验的收益情况。仅仅因为这一点，福奇博士就应该穿上橙色的连体衣。然而，福奇博士更大的谎言是一个不作为。
+前几日，加加食品对加加酱油、蚝油、料酒、鸡精和醋系列产品的出厂价格上调3%-7%不等的新闻，造成一种市场整体涨价的趋势，带来新一轮“涨价潮”。
 
-福奇博士的不作为的大谎言可以追溯到2020年1月31日。正如我在新书《特朗普时代》中所记录的那样，那是我与福奇博士的第一次对决后的三天。
+中共国盐业公司集体宣布涨价，同时调味料也宣布涨价，今年以来，煤炭、人工、运输及包装成本纷纷上涨，而关乎民生的日用产品的食盐集体涨价，会带动食品市场联动效应，未来会对基层居民的生活雪上加霜。
 
-福奇博士坚持认为该病毒的风险很低，而且旅行禁令并不奏效。
+信息来源：
 
-事实上，如果我们知道福奇博士拒绝告诉我们的事情，我们就会采取完全不同的策略来对抗这种大流行病，其中包括对共产党中国采取更积极的态度，迫使其全面披露。这种不同的策略很可能挽救了全世界数百万人的生命和数十万美国人，因为我们会更快地找到病毒及其遗传密码背后的真相。
+[多家食品上市公司回应调价计划，盐业公司集体宣布涨价](https://ms.mbd.baidu.com/r/vXuXLGAjq8?f=cp&amp;rs=1463287175&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0645fe06bb241a9b)
 
-必须立即将福奇博士从美国国家卫生研究院除名。他必须被绑在国会山的椅子上，承认他的罪行，然后被移送到法庭–包括民事和刑事法庭–并对他所违反的法律负责，包括对国会撒谎。他是一个反社会者、自恋者和罪犯，这个国家已经受够了。
-
-彼得-纳瓦罗是前总统贸易和制造业政策助理，也是新书《特朗普时代：美国瘟疫年记》（All Seasons Press）的作者。
-
-*发布：热锅小蚂蚁*
-
-参考新闻：[https://www.washingtontimes.com/news/2021/nov/4/dr-faucis-deadly-lie-of-omission/](https://www.washingtontimes.com/news/2021/nov/4/dr-faucis-deadly-lie-of-omission/)
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

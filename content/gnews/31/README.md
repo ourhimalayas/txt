@@ -2,50 +2,29 @@
 ---
 
 
-## 中共病毒疫苗诱发的心肌炎比自然感染严重100倍
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1644308/)
+## 脸书和Instagram消息功能在故障后恢复正常
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1644511/)
 
-**撰稿：日本东京方舟农场  北极**
+据《华尔街日报》作者：Joseph Pisani，2021年11月3日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-91-e1636226599199.png)位于加州门洛帕克的META平台总部。
+照片：NICK OTTO/BLOOMBERG NEWS
+脸书和Instagram的消息功能在周三下午遭遇了长达数小时的中断，之后似乎又重新上线，这是Meta Platforms Inc的产品在一个月内遭遇的第三次中断。
 
-“秘密翻译组”11月4日发布在GNEWS上的一段视频揭示，接种中共病毒疫苗所诱发的心肌炎，其严重程度超过自然感染中共病毒所引发心肌炎的10-100倍。
+根据追踪网站故障的网站Downdetector的数据，美国东部时间周三下午2点左右，关于故障的报告开始激增。Meta（前称Facebook Inc.）的一位女发言人当时说：“我们知道有些人在访问Messenger、Workplace Chat和Instagram DMs时遇到了麻烦。”
 
-在该视频中，来自德克萨斯州的彼得·麦卡洛（Peter McCullough）博士指出，感染中共病毒所导致的心肌炎，症状轻微，不会导致严重后果，仅会在血液化验中观察到肌钙蛋白升高。
+原文连接：[https://www.wsj.com/amp/articles/facebook-and-instagram-messaging-functions-are-down-11635969955](https://www.wsj.com/amp/articles/facebook-and-instagram-messaging-functions-are-down-11635969955)
 
-麦卡洛博士进一步指出，接种中共病毒疫苗所诱发的心肌炎，症状严重。因为疫苗中的脂质纳米颗粒直接进入心脏，引发剧烈的心电图变化、胸痛和早期心力衰竭，而血液中肌钙蛋白浓度超过病毒感染所导致心肌炎的10-100倍。
+翻译：洛杉矶盘古农场 – TrueSky
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-26.png)图片来自网络
+校对：洛杉矶盘古农场 – Mike Li
 
-麦卡洛博士进一步解释说，前期临床研究表明，接种疫苗后，疫苗并未局限在注射部位，而是进入血液，随循环分布全身各个系统。当疫苗中的脂质纳米颗粒到达心脏时，心脏就会表现出因刺突蛋白而产生的反应，从而引起自身免疫系统对心脏展开攻击。
-
-肌钙蛋白是一种针对表征心肌炎引发的心脏损伤的血液检测。根据“实验在线网站”（lab tests online）信息，肌钙蛋白存在于心肌内。当心肌细胞损伤时，肌钙蛋白就会被释放到血循环中。正常情况下，血液中的肌钙蛋白含量非常少；如果发生大面积心肌损伤，血液中就会出现高浓度的肌钙蛋白。麦卡洛博士特别强调，因疫苗引发的心肌炎是一个大问题，比因感染中共病毒引发的心肌炎更严重、更突出，特别是发生在儿童身上，则是表现得尤其严重。
-
-*参考链接：*
-
-[肌钙蛋白](https://labtestsonline.org.cn/tests/troponin)
+编辑：洛杉矶盘古农场 – 心照
 
 
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-> [疫苗诱发的心肌炎比中共病毒引发的心肌炎要严重得多](https://gnews.org/zh-hans/1639362/)
-
-
-
-
-
-> [美国前线医生起诉书(3)：疫苗的风险超过它们的好处](https://gnews.org/zh-hans/1425988/)
-
-
-
-* * *
-
-
-```
-素材采编：北极
-编辑：青衣青青
-校对/发布：Ranting
-```
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
