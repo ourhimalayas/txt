@@ -2,28 +2,87 @@
 ---
 
 
-## 有声|全球因新冠病毒死亡的人数突破500万
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1643991/)
+## 视频| 为什么香港恒生指数要保在24000点
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1644076/)
 
-配音：香草山教育部 – 蒙古鸿雁
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-11月1日，数据统计显示，全球因新冠病毒死亡的人数突破了500万人，当中，美、加、欧盟、英国和巴西等国家的死亡人数近全球总死亡人数的一半，而仅美国一地就记录了超过74.5万的患者失去生命——这使得新冠病毒成为仅次于心脏病和中风的全球第三大致死疾病。
+制作：香草山视频部
 
-但相关人员评论道，相较于其他疾病，新冠病毒还存在另一个致死因素，那就是新冠疫苗所带来的严重副作用。另一方面，与别的自然疾病导致的痛苦相比，新冠病毒及疫苗除了对世界经济造成毁灭性的影响之外，其也会给幸存者带来巨大的精神摧残。对此，郭文贵先生在11月3日的直播中示警世界，疫苗所带来的次生灾难或将在2022年5月前后完全显现。
 
-文字版原文：[全球因新冠病毒死亡的人数突破500万](https://gnews.org/zh-hans/1637780/)
 
-音频处理：喜山必胜Maverick
+七哥说过一个擀面杖子经济
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+无论是上海还是香港
+
+共产党都订好的界线
+
+你不能跨过这个界线
+
+那就是说你这个为什么要保两万四呢
+
+很多人不懂
+
+你看看香港是全世界排在前20名买美国国债的
+
+大概在3000亿美元你们可以查一下啊 2700到3000亿美元
+
+那么同时香港的经济体 也就是说4000多亿、5000亿美元
+
+而且香港的港币是跟美元挂钩的 他是稳定币嘛
+
+所以香港港币和美元有这个 两三千亿美元的美元挂钩
+
+他没有这个基本的钱他是挂不了勾的
+
+你没有这个东西做这个美元被支撑
+
+你怎么挂勾挂什么勾啊是吧
+
+那么香港过去呢就是24000点和他3000亿美元的美债
+
+绝不能再低了 再低他就挂不了勾啦 不称勾啦是吧
+
+那么你就看得出来过去这几年从爆料开始
+
+这个整个恒生的所谓的指数绝对是假的
+
+为什么 你看国内的房地产
+
+房地产现在跌到什么程度了呢
+
+大家都可以看一看啊
+
+几个大的所有前20家房地产公司没有任何营利可以说今年
+
+你每年盈利15到35的时候
+
+香港恒生也是两万四
+
+你不盈利了香港恒生还是两万四
+
+然后香港恒生说我的指数里面包含大陆的指数已经超过50%了
+
+你有这样说假话的吗
+
+
+
+*发稿：雪梨*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
