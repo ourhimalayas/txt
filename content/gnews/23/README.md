@@ -2,47 +2,22 @@
 ---
 
 
-## 接种疫苗后仍感染 加拿大魁北克不再强制推行疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1643007/)
+## 秘翻在线：泰德·克鲁兹提出法案阻止为未成年人注射中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1643023/)
 
-作者：洛杉矶盘古农场 – 滴水穿石
+#### 撰稿：彩虹
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2.jpg)图片来源：雅虎
+11月6日，《新闻极限》（Newsmax）发布文章，报道参议员泰德·克鲁兹（Ted Cruz）提出一项法案，旨在禁止联邦政府和公立学校要求为儿童接种中共病毒（COVID-19）疫苗。
 
+根据克鲁兹办公室发布的声明，该法案“禁止联邦政府以及州、地方、部落或地区一级的卫生与公众服务部（Department of Health and Human Services）和（或）疾病预防控制中心（CDC）的任何联邦资金接受者‘要求任何18岁或以下的个人接种疫苗’”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+声明还说：“父母应该有权与他们的家庭医生协商，决定什么对他们的孩子是最好的。我对COVID-19疫苗的看法一直很明确：不能有任何形式的强制接种规定。拜登总统和他的政府一再无视医疗隐私权和个人自由，向美国企业推行非法和繁重的疫苗接种任务。现在他们正准备通过向父母施压来向孩子们推行接种疫苗任务，所有这些都没有考虑到相应的风险或自然免疫的好处”。
 
+**新闻来源**
 
-
-当地时间11月3日的消息称，加拿大魁北克匹兹堡企鹅曲棍球队中的多名队员在接种新冠疫苗后依旧感染新冠病毒。消息称，该球队中的每位球员都接种了两剂疫苗，有些人甚至还接受了“加强注射”作为预防措施，该球队队员对目前的蔓延病例深感不安。
-
-最终魁北克政府在新冠疫苗接种问题上做出了退让。当地卫生部长表示，在医疗服务面临中断风险之际，对于那些不愿接种新冠疫苗的医护人员，政府将不再继续推行强制接种政策。消息显示，魁北克现今大约有一万四千名医护人员得以摆脱强制接种疫苗的危险。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-22.jpg)
-参考链接：
-1. [Québec recule sur la vaccination obligatoire des travailleurs de la santé](https://www.24heures.ca/2021/11/03/quebec-recule-sur-la-vaccination-obligatoire-des-travailleurs-de-la-sante?utm_medium=cxense&amp;utm_source=journaldequebec.com&amp;utm_campaign=reco#cxrecs_s)
-2. [Sidney Crosby déclaré positif à la COVID-19](https://www.journaldemontreal.com/2021/11/03/sidney-crosby-declare-positif-a-la-covid-1)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：Irene木木
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[Ted Cruz Looking to Block Vaccine Mandates for Kids](https://www.newsmax.com/newsfront/cruz-vaccines-minors-mandates/2021/11/05/id/1043457/)
 
  
 
