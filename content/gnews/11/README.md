@@ -2,14 +2,12 @@
 ---
 
 
-## Eglise医生：不要打疫苗，感染病毒并不是世界末日
-` Itana` [轉載自GNews](https://gnews.org/zh-hans/1644606/)
+## 泽连科：因为抗体依赖性增强效应，疫苗产生的抗体有害
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1644732/)
 
-By Himalaya Italy Ana
+10/30/2021 泽连科医生：因为抗体依赖性增强效应，疫苗产生的抗体可致死；预防措施和早期治疗可以大大减少病毒死亡率。
 
-Eglise医生接受GTV真人真实栏目的采访，她对于感染病毒后的人应该如何做给出了专业的回答，并且给了我们极大的信心。她说到不要打疫苗，感染病毒并不是世界末日，及时治疗可以帮助人体建立强大抗病毒的免疫力。
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

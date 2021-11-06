@@ -2,29 +2,22 @@
 ---
 
 
-## 脸书和Instagram消息功能在故障后恢复正常
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1644511/)
+## 秘翻在线: 六中全会前 多名维权人士在京失踪
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1644626/)
 
-据《华尔街日报》作者：Joseph Pisani，2021年11月3日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-91-e1636226599199.png)位于加州门洛帕克的META平台总部。
-照片：NICK OTTO/BLOOMBERG NEWS
-脸书和Instagram的消息功能在周三下午遭遇了长达数小时的中断，之后似乎又重新上线，这是Meta Platforms Inc的产品在一个月内遭遇的第三次中断。
+撰稿：西枫westca
 
-根据追踪网站故障的网站Downdetector的数据，美国东部时间周三下午2点左右，关于故障的报告开始激增。Meta（前称Facebook Inc.）的一位女发言人当时说：“我们知道有些人在访问Messenger、Workplace Chat和Instagram DMs时遇到了麻烦。”
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/警方統一抓捕行動.jpg)图片来源：www.adhrrf.org
+据大纪元11月6日报道， 在中共六中全会前夕，多名维权人士失踪。
 
-原文连接：[https://www.wsj.com/amp/articles/facebook-and-instagram-messaging-functions-are-down-11635969955](https://www.wsj.com/amp/articles/facebook-and-instagram-messaging-functions-are-down-11635969955)
+每当中共国有大型会议或敏感日期之前，都会控制在北京居住的维权人士。有人在家中被从老家来的公安前来直接强制遣返，有的在返乡路上，有的下落不明。即使在返回家乡后，他们也不能完全得到自由，当地都会对他们非法拘留。
 
-翻译：洛杉矶盘古农场 – TrueSky
+早在一周前，北京已经开始清理访民，一些出租房也被挨家挨户排查是否有访民居住。进京的路上包括火车、公路都有人盘查，在信访办四周都是截访人员，拦阻访民进京，国家信访局已经不让信访登记。
 
-校对：洛杉矶盘古农场 – Mike Li
+中共国一方面打着“人民至上”的旗号，干着“人民至下”，“以人民为敌”的勾当。公检法就是充当打手的职位。任何提出不同意见的民众会被害得四处流浪，无家可归。推翻这样一个邪恶政权，人人有责！
 
-编辑：洛杉矶盘古农场 – 心照
-
-
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**新闻来源：**[六中全会前 多名维权人遭绑架失踪 | 访民 | 维权人士 | 大纪元 (epochtimes.com)](https://www.epochtimes.com/gb/21/11/6/n13357986.htm)
 
  
 

@@ -2,43 +2,55 @@
 ---
 
 
-## 喜币美东时间福满之日喜币上市是天意,差一天就会完球蛋
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1644432/)
+## 南卡罗来纳州州长禁止内阁机构强制执行疫苗强制令
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1644559/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/032802_副本.jpg)
-据[2021年11月5日文贵大直播：危机中的财富与财富中的危机；投资，投机，投票权的关系；喜币价格涨的真实性，公平性，对比香港恒生指数的虚假；无知无善，一定要付出法律的代价](https://gtv.org/video/id=61851d9f11d186296801e582)时间点和给错的币3：26：48——
+【评论：】*美国越来越多的州使用行政手段，反对拜登政府的“强制疫苗政策”，并且，有越来越多的州加入起诉“反对联邦承包商的疫苗强制令”的队伍，这是一个风向标，相信这一风向将影响全球民主国家。相反，所谓的许多“主流媒体”对于疫苗危害的事实真相不仅讳莫如深，而且还大肆禁言。*
 
-**郭文贵先生：**你们从来不看七哥的优点，就在上市前多少小时，这个老班长知道，他们突然要说再给三天的时间，要给三天是啥结果今天你想想？后果不堪设想。
+*对于生命和健康的选择是每个人的权力，我们需要了解更多的事实真相，捍卫我们的权益，作出每个生命个体正确的决定，而不是政客和利益者的过度扩张和强制措施。*
 
-昨天我跟他那个律师我说的，我说你们现在知道郭文贵了，你们那帮王八蛋竟然不知道我是谁，说我是哪来的侃爷，侃十七个小时，我说你让我问你，（小Sarah提醒郭先生时间到了，此处有删节）。
+据《Breitbart》记者JOSHUA CAPLAN， 2021年11月4日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-93-e1636227985651.png)图片源自Breitbart.com
+**南卡罗来纳州州长亨利·麦克马斯特（Henry McMaster） (R) 周四宣布，他将发布一项行政命令，阻止棕榈州的内阁机构在该州发布或执行冠状病毒疫苗强制令。**
 
-我再说，我告诉大家，我跟那律师说如果说我们不上，共产党的8号所谓的六中全会，共产党的11号马上要过节，要对台湾进行一个新的宣示和威胁，我说漏了你说这，然后呢人民币数字化要上市——15号，北交所上市。所谓反金融诈骗、全球扫黑运动开始，咱得多少战友没机会呀！
+该指令是在拜登政府表示将进行“计划检查”并征收巨额罚款以确保企业遵守其将于1月4日生效的联邦疫苗规定后几个小时发布的。
 
-我说律师你们懂个屁！你们要是懂的话你干嘛你到新中国联邦来干呐！你别找我们的战友啊！是不是？这就叫机会，差一天就完球蛋了你知道吗？而且这是天意，是吧，不管如何都是2021年11月1号上的市——晚上，美东时间，对呀，新中国联邦的时间了现在是吧。
+“我将发布一项行政命令，禁止任何南卡罗来纳州内阁机构发布或执行任何疫苗强制令。”麦克马斯特说，并补充说他将“要求所有州机构报告与联邦政府就疫苗强制令进行的任何沟通，以备诉讼。”
 
-（以下暂略）
+主题：很难相信我们从拜登政府那里看到的过度扩张。白宫不断发布公然违反宪法的疫苗强制令，迫使南卡罗来纳州的居民在疫苗和工作之间做出选择。以下是我们为阻止他们而采取的措施：
 
-撰稿：喜马拉雅的肉夹馍；
+1. 我将发布一项行政命令，禁止任何南卡罗来纳州内阁机构发布或执行任何疫苗强制令。
 
-审核：喜马拉雅的馍夹肉；
 
-校对：Maarago；
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+> THREAD: It’s hard to believe the overreach we’ve seen from the Biden Administration. Blatantly unconstitutional vaccine mandates keep coming from the White House that are forcing South Carolinians to choose between a vaccine and their jobs. Here’s what we’re doing to stop them: [pic.twitter.com/NlqkPdhAk5](https://t.co/NlqkPdhAk5)
+> — Gov. Henry McMaster (@henrymcmaster) [November 4, 2021](https://twitter.com/henrymcmaster/status/1456314458733699072?ref_src=twsrc%5Etfw)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+此外，**麦克马斯特将拜登的疫苗强制令称为“公然违宪”，并表示这些限制“迫使南卡罗来纳州人在疫苗和工作之间做出选择”。**
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+州长表示，南卡罗来纳州将加入由佐治亚州州长布赖恩坎普 (R) 领导的诉讼，反对联邦承包商的疫苗强制令。迄今为止，其他六个州已加入诉讼，更多州可能很快会加入南卡罗来纳州的行动中。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+**麦克马斯特说：“我认为我们将不得不在多个方面一直与这件事作斗争，直到最高法院。”**
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+文章来源：[https://www.breitbart.com/politics/2021/11/04/south-carolina-henry-mcmaster-vaccine-mandates/](https://www.breitbart.com/politics/2021/11/04/south-carolina-henry-mcmaster-vaccine-mandates/)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+翻译：洛杉矶盘古农场–Raul
+
+校对：洛杉矶盘古农场–Mike Li
+
+评论：洛杉矶盘古农场–心照
+
+编辑：洛杉矶盘古农场–心照
+
+
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉磯盤古農場歡迎您加入: (或點擊上方圖片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
 
  
 
