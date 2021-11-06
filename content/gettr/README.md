@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/6/2021 11:21 AM (UTC)`
+
+11/5/2021 Miles Guo: The CCP’s tyranny has lasted for 70 years, but no one rose to resist it, to expose or to disprove its lies, leading to the unprecedented ignorance of the Chinese people. The babies with COVID-vaccine-induced birth defects and disabilities are wrapped with gauze and smothered to death before being thrown away upon arriving in this world. What’s pathetic is that few parents realize that the COVID vaccines are to blame, while they believe it’s their own faults<br/><br/>11/5/2021 文贵直播：中共横行霸道70年，就是没有人去反抗，去戳穿它，去证明它，让中国人无知到了什么程度；中共疫苗致畸、致残的胎儿一降生即被残忍地缠死抛尸，悲哀的是没有父母认为这是打疫苗的错，都是自己的错<br/>
+![img](https://media.gettr.com/group34/getter/2021/11/06/11/21/94da3e6b-2c2e-333b-baa6-08197202307a/out.jpg)
+
+---
+
 `@miles 11/6/2021 4:52 AM (UTC)`
 
 11/5/2021 Miles Guo: The jabs that the CCP gave to its troops are not COVID vaccines but the antibodies to boost immunity, while the Chinese Lao Baixing are injected with the experimental COVID jabs, and this clearly shows the evil of the CCP<br/><br/>11/5/2021 文贵直播：中共给军方打的不是疫苗而是增强免疫的抗体，而中国老百姓却被打了实验性的冠状病毒疫苗，这体现了中共的邪恶<br/>
@@ -289,13 +296,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 11月2日：真假之分……天地之别，可悲可恨的一群无知的中共国下三滥所谓的成功人士……
 ![img](https://media.gettr.com/group13/getter/2021/11/02/19/31/0cf7b07d-c533-b95f-b3d0-2d2d6fb613c3/9a6b0c26c5ef5bc698b53f9d66b9bce1.jpg)
-
----
-
-`@miles 11/2/2021 5:36 PM (UTC)`
-
-在 GETTR 上加入我的直播。
-![img](https://media.gettr.com/group1/getter/2021/10/23/19/bef325e0-a7dd-eef4-f1c5-6977a36aeaf7/7f87f676c946650f527b3506087be38c.jpeg)
 
 ---
 
