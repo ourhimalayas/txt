@@ -2,13 +2,10 @@
 ---
 
 
-## 2021年11月3日文贵大直播简报
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1642624/)
+## 11/5/2021 文贵直播： 中共在各国阻止喜币上市的行动彻底失败，1000多家金融机构已入驻喜交易所
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1642632/)
 
-简报制作：艾伦
-焦点报道：秘翻原创组
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-1.jpg)图片来源：GTV & GETTR![](https://assets.gnews.org/wp-content/uploads/2021/11/11月3日简报1.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/11月3日简报2.png)
-校对发布：Shifter
+秘密翻译组-北美组
 
  
 

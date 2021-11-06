@@ -2,48 +2,39 @@
 ---
 
 
-## “你并不孤单”：欧盟议会代表团第一次正式访问台湾
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1642491/)
+## 蔡英文首次公开承认美国驻军台湾
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1642500/)
 
-**据《日经亚洲》2021年11月4日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/zzz-a5lef-kg7xa.jpg)台湾总统蔡英文（右）和欧洲议会外国干涉特别委员会主席拉斐尔·格鲁克斯曼（Raphael Glucksmann）于11月4日在台北会面。图片来源：路透社
-《路透社》台北 —— 欧洲议会第一个前往台湾的官方代表团周四表示，这个外交孤立的岛屿并不孤单，并呼吁采取更大胆的行动加强欧盟与台湾的关系，因为台北面临来自北京的越来越大的压力。
+**视频翻译：Lish
+校对/编辑：枳实
+剪辑/字幕：蛮吉**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image1-1.png)
+台湾对中共国投下重磅炸弹，揭秘美国在台湾的驻军情况。
 
-除了小小的梵蒂冈城外，台湾与任何欧洲国家都没有正式的外交关系，但它热衷于深化与欧盟成员国的关系。
+美国和中共国之间事态的重大升级。台湾透露，在与中国的紧张关系下，美国部队正在训练其士兵。台湾总统蔡英文称岛上有少量美军，台湾表示希望美国在面对中共国的任何攻击时能保卫该岛。
 
-此次访问正值中共国加大军事压力之际，包括中共国战机多次在民主台湾附近执行任务，北京声称这是自己的领土，不排除以武力夺取。
+为什么美军会在台湾？
 
-“我们带着一个非常简单、非常明确的信息来到这里：你们并不孤单。欧洲与你们站在一起。”欧洲议会法国议员拉斐尔·格鲁克斯曼在脸书直播的一次会议上告诉台湾总统蔡英文.
+“在台湾有少量的美军，帮助训练，我们与美国广泛的合作，旨在提高我们的国防能力。”
 
-“我们的访问应该被视为重要的第一步。”率领代表团的格鲁克斯曼说，“但接下来我们需要一个非常具体的高层会议议程和高层具体步骤，以建立更强大的欧盟-台湾伙伴关系。”
+“我有信心，如果有必要，美国会帮助保卫台湾，对抗中共国。”
 
-为期三天的访问由欧洲议会外国干涉民主进程委员会组织，将包括与台湾官员就虚假信息和网络攻击等威胁进行交流。
+——台湾总统蔡英文接受CNN采访
 
-蔡英文警告说，中共国会加大在台湾获得影响力的努力，要求安全机构反击渗透活动。
+关于目前在台湾的美军人数，没有得到证实。蔡英文的讲话是1979年以来台湾领导人首次公开承认美国的驻军。继台湾总统的此番重磅炸弹后，中共国指责美国试图 “挑起事端”。
 
-“我们希望建立一个反对虚假信息的民主联盟。”蔡英文在总统府告诉代表团。
+在中共国从空中侵扰台湾后，美国和中共国之间的紧张关系最近几周有所加剧。美国总统拜登最近誓言支持台湾反抗任何中共国的侵略行为。美国还呼吁让台湾加入联合国。
 
-“我们相信台湾和欧盟当然可以继续加强我们在所有领域的伙伴关系。”
+视频来源：[Taiwan drops bombshell on China as U.S troops train Taiwanese army amid tensions with Beijing](https://www.youtube.com/watch?v=-bW1URV6rgs)
 
-台湾外交部长吴钊燮上个月罕见地访问欧洲，这激怒了北京，北京警告东道国不要破坏与中国的关系。
+发布：Janek
 
-由于担心北京的报复，大多数国家都不愿意接待台湾高级部长或派高级官员到台湾岛。
-
-上个月，欧洲议会通过了一项不具约束力的决议，旨在深化与台湾的关系，其中包括研究投资协议等措施。
-
-中共国外交部发言人王文斌周三在北京举行的每日新闻发布会上谴责了这次会晤。
-
-“我们敦促欧方纠正错误，不要向台独势力发出错误信号，否则将损害中欧关系。”他告诉记者。
-
-**文章来源：**[https://asia.nikkei.com/Politics/International-relations/You-are-not-alone-EU-Parliament-delegation-tells-Taiwan-on-1st-official-visit](https://asia.nikkei.com/Politics/International-relations/You-are-not-alone-EU-Parliament-delegation-tells-Taiwan-on-1st-official-visit)
-
-翻译：洛杉矶盘古农场 – Raul
-校对/编辑：洛杉矶盘古农场 – 明子
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
