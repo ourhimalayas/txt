@@ -2,10 +2,10 @@
 ---
 
 
-## 接种疫苗后仍感染 加拿大魁北克不再强制推行疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1643007/)
+## 墙内油盐酱醋组团涨价
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1643020/)
 
-作者：洛杉矶盘古农场 – 滴水穿石
+作者：英国喜庄园 – I770775
 
 
 
@@ -13,17 +13,17 @@
 
 
 
-当地时间11月3日的消息称，加拿大魁北克匹兹堡企鹅曲棍球队中的多名队员在接种新冠疫苗后依旧感染新冠病毒。消息称，该球队中的每位球员都接种了两剂疫苗，有些人甚至还接受了“加强注射”作为预防措施，该球队队员对目前的蔓延病例深感不安。
+中共国相关媒体消息，由于材料成本上涨，利润受到挤压，近日，油盐酱醋等各大龙头企业相继发布涨价通知：
 
-最终魁北克政府在新冠疫苗接种问题上做出了退让。当地卫生部长表示，在医疗服务面临中断风险之际，对于那些不愿接种新冠疫苗的医护人员，政府将不再继续推行强制接种政策。消息显示，魁北克现今大约有一万四千名医护人员得以摆脱强制接种疫苗的危险。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-22.jpg)
+金龙鱼食用油公司表示，产品涨价的理由是，为平衡消费者的接受度与公司的成本、利润及长远发展之间的关系；雪天盐业、云南盐业、苏盐集团等盐业巨头集体宣布涨价，最高涨幅达35%；继海天味业首先宣布对酱油、蚝油、酱料等产品价格进行上调后，行业各品牌的酱油、蚝油等调料先后宣布涨价；醋业老大恒顺醋业公司决定自11月20日起，对其产品价格上浮5%-15%不等。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-20.jpg)
 参考链接：
-1. [Québec recule sur la vaccination obligatoire des travailleurs de la santé](https://www.24heures.ca/2021/11/03/quebec-recule-sur-la-vaccination-obligatoire-des-travailleurs-de-la-sante?utm_medium=cxense&amp;utm_source=journaldequebec.com&amp;utm_campaign=reco#cxrecs_s)
-2. [Sidney Crosby déclaré positif à la COVID-19](https://www.journaldemontreal.com/2021/11/03/sidney-crosby-declare-positif-a-la-covid-1)
+1. [28亿存款被莫名质押，渤海银行最新回应！油盐酱醋巨头组团提价，北上资金爆买食品龙头](https://stock.stockstar.com/SS2021110500002160.shtml)
+2. [多家食品上市公司回应调价计划，盐业公司集体宣布涨价](https://www.thepaper.cn/newsDetail_forward_15222550)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-总编/编辑：Irene木木
+总编/编辑：木白
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

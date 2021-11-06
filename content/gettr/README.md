@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/6/2021 11:49 AM (UTC)`
+
+班农先生：喜币成功上市是丰碑式的，新中国联邦和新中国人现在有了新货币。新中国联邦的版图正各就各位，反共力量的制度化令人惊叹。对比中共造成的死亡和破坏，新中国联邦、爆料革命和文贵先生带来的是正面影响，用顶尖的科技、真实的资本、真实的领导力去支撑这样的体系发展壮大是非常了不起的。<br/><br/>Mr. Bannon: The initial success of H-Coin is monumental. The New Federal State of China and the New Chinese now have new currency. The territory of the NFSC is taking its place, and the institutionalization of anti-CCP forces is impressive. Compared with the death and destruction caused by the CCP, the NFSC, the Whistleblower Movement, and Mr. Miles have had a positive impact. Using top technology, real capital, and real leadership to support the development and growth of such a system is pretty remarkable.
+![img](https://media.gettr.com/group1/origin/2021/11/06/11/49/2bfed491-37af-33f4-f41b-25799665200f/out.jpg)
+
+---
+
 `@miles 11/6/2021 11:21 AM (UTC)`
 
 11/5/2021 Miles Guo: The CCP’s tyranny has lasted for 70 years, but no one rose to resist it, to expose or to disprove its lies, leading to the unprecedented ignorance of the Chinese people. The babies with COVID-vaccine-induced birth defects and disabilities are wrapped with gauze and smothered to death before being thrown away upon arriving in this world. What’s pathetic is that few parents realize that the COVID vaccines are to blame, while they believe it’s their own faults<br/><br/>11/5/2021 文贵直播：中共横行霸道70年，就是没有人去反抗，去戳穿它，去证明它，让中国人无知到了什么程度；中共疫苗致畸、致残的胎儿一降生即被残忍地缠死抛尸，悲哀的是没有父母认为这是打疫苗的错，都是自己的错<br/>
@@ -289,13 +296,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 11/1/2021 [HCoin To the Moon Celebration]: The notion of “Feng Xian” (sacrifice and contribute) is the biggest lie in history, and the Whistleblowers’ Movement has replaced “Feng Xian” with “Xian Feng” (heartfelt offering), which means I take actions and give you my selfless and sincere love. The Himalaya Coin is my heartfelt offering to all of our fellow fighters.<br/><br/>11/1/2021【HCoin To the Moon 庆典】：“奉献”是历史上最大的谎言，爆料革命把“奉献”改为“献奉” - 我行动，给你我无私的、真诚的爱，喜币是七哥给战友们的“献奉”<br/>
 ![img](https://media.gettr.com/group25/getter/2021/11/02/22/09/02fef904-cea9-f58e-98fa-f921b762c8ee/out.jpg)
-
----
-
-`@miles 11/2/2021 7:31 PM (UTC)`
-
-11月2日：真假之分……天地之别，可悲可恨的一群无知的中共国下三滥所谓的成功人士……
-![img](https://media.gettr.com/group13/getter/2021/11/02/19/31/0cf7b07d-c533-b95f-b3d0-2d2d6fb613c3/9a6b0c26c5ef5bc698b53f9d66b9bce1.jpg)
 
 ---
 

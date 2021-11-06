@@ -3,7 +3,7 @@
 
 
 ## 中共公布前三季度31家A股上市房企亏损，经济寒冬已经来临
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1643022/)
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1643028/)
 
 作者：日本方舟农场 – Andy5
 

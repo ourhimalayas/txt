@@ -2,47 +2,18 @@
 ---
 
 
-## 签署请愿书：扼杀维州州长安德鲁斯新法案
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1643265/)
+## 美国无疫苗的战线：从飞机乘客到情报机构
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1643311/)
 
-**翻译：小鱼儿
-编辑：文泓**
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11063.jpg)图片来自Houston Chronicle
+美国联邦航空机构 (FAA) 已将 37 起暴力乘客案件移交给 FBI，这些人涉及飞机上的骚乱行为。美国联邦航空局仅在今年就报告了5,033 起事件，其中 3,642 起涉及拒绝戴防护口罩的个人。数字表明了一种不容忍的气氛，对乘务员进行口头和身体攻击，有些还被视频记录下来。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image1-2.png)图片来源：News Weekly & SkyNews
+来自美国留在无疫苗 No Vax 战线上的还有18 个情报机构的数千名官员和雇员，他们尚未接种疫苗，我们谈论的百分比在 20% 到 40% 的这样一个数字。那些未能在11 月 22 日之前接种疫苗的人有被解雇的风险。这种情况使国会感到震惊，因为它可能会危及整个安全部门的运作。
 
+原文链接：[https://www.corriere.it/america-cina/2021/11/05/skimpflation-americana-pentole-cinesi-43efd946-3e17-11ec-b8f4-254f69e7c034.shtml](https://www.corriere.it/america-cina/2021/11/05/skimpflation-americana-pentole-cinesi-43efd946-3e17-11ec-b8f4-254f69e7c034.shtml)
 
-这个史无前例的时代，需要前所未有的措施。
-
-当前：71,824个签名
-目标：10万个签名
-
-历史上，德国《魏玛宪法》第48条授权一个人通过紧急法令，导致了纳粹的独裁统治。希特勒利用第48条给他的独裁统治盖上了合法的印章。
-
-今天，维多利亚州丹尼尔·安德鲁斯新法案的第8A条就是（纳粹）的第48条。它赋予了安德鲁斯享有（纳粹）1933年不受约束的、同样的暴政权力。
-
-这个危险的法案于10月25日在下议院通过，预计将在11月16日至19日之间的某一天在上议院通过，在菲奥娜·帕滕议员、萨曼莎·拉特南议员和安迪·麦迪克议员的帮助下，他们不断地与这个政府一起投票支持延长当前法案下的（政府）紧急权力。【备注：以上三位都是维州立法委员会成员。】
-
-一旦这一令人发指的立法通过，就只有一个机会来阻止这一法案。
-
-虽然这是史无前例的，但我们现在转向总督，要求尊敬的琳达·德绍·AC按照澳大利亚政府和民主的核心原则行事，并要求她：
-
-——拒绝批准《2021年公共卫生和福利修正案（大流行病管理）》，以及对州长所提方案导致的后果提出警告。
-
-必须这样做，因为拟议的法律不符合澳大利亚宪法，当然也不符合法治，而且公然无视本州和整个联邦的民主和宪法框架。
-
-那么，你能做什么？
-在这份请愿书上签名，并把它分享给你认识的每个人，因为我们的签名越多，总督就越难驳回人民的请愿。
-
-原文链接：[SIGN THE PETITION: Kill Dan’s Bill – Rebel News](https://www.rebelnews.com/kill_dans_bill)
-
-发布：Janek
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

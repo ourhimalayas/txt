@@ -2,29 +2,41 @@
 ---
 
 
-## 文贵视角2021.11.5 喜币的核心价值是真实，其巨大价值远未开始
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1643382/)
+## 西澳公布解封计划：两针疫苗接种率必须达到90%以上
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1643469/)
 
-撰稿：千年等一回
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-05-at-5.08.38-PM.png)图片来源：GETTR & GTV
-郭文贵先生在11月5日的直播中谈到喜币时表示，喜币的真实才是它的核心价值，不真实必然死，没有值钱不值钱。现在喜币的90%功能还没开通，货币还没形成交易量，机构投资者还没入场，喜支付没开始运作，喜美元大量存款贷款没开始，现在只是刚刚开门营业。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/11/116-scaled.jpg)图片来源：Pexels免费照片素材库；摄影：FRANK MERIÑO
+西澳大利亚州发布的最新消息公开了该州的解封计划。根据该计划，除非西澳大利亚州12岁以上人群的两针疫苗注射突破90%，否则政府将继续保持封锁。
 
-就象餐馆刚开张，服务员没到位呢，现在有人打嗝说自己吃太饱了，那是自我感觉、虚假的反应。现在的整个情况，一定是起起伏伏才叫真实。
+根据目前的疫苗接种趋势，解封预计将在明年一月以及二月之间。截至当地时间11月6日，西澳大利亚的疫苗两剂接种率已达到64.9%，而一剂疫苗接种率即将突破80%——该数据为全澳最低。
 
-另外，大家要懂得学习、善用这个系统，全世界86%的虚拟货币是美国人控制的，剩下才是中共国、日本、加拿大。今天喜币、喜美元是美加日不能用，90%市场没开始，我们的战友才7万多人，新加入的一共约13万人，Coinbase上市时是五千万用户，喜币的潜力还远远没有发挥出来，这是基本常识。
+就在上周，西澳大利亚已经宣布来自新南威尔士州、维多利亚州以及首都领地的旅行者必须完全接种两剂疫苗才可以入境——这一政策从11月5日起便已经开始实施。旅行者现在必须提出疫苗接种证明、或者医疗豁免文件才可以通过入境流程。
 
-Elon Musk十年投资，中间起起伏伏，被干掉70%多，从第一年投资到最后的投资者，77%～79%都离场了，挣钱是后来的10-20%。这个结果，原来大多数人都白忙活了，成为垫底的人，而且还冒着风险，所以我们投资要有基本常识。
+西澳大利亚州总理Mark McGowan甚至宣称对于今后的国内旅行，两针疫苗接种将成为最为基本的前提条件和原则。虽然目前西澳对于昆士兰、南澳等地的旅行者要求依然维持原样，但Mark McGowan表示：接下来不西澳对于其它州的疫情风险评级是高是低，这一要求都会被推行。
 
-郭先生谈到喜币变现时说，你拿了钱你准备干啥，你像郭晶晶买避孕套？学张高丽玩宇宙无限大？昨天小白战友问郭先生：啥时候卖好啊？郭先生回答说，今年年底或年初。如果你需要钱你现在卖也行，明年五月份后你再观察观察。郭先生说，在这之前，他没有任何观点。
+在西澳总理的脸书评论，许多网友表示了对这一举措的不满和愤怒。部分网友认为这一 举措进一步增加了家庭团聚的困难，而另一些网友则要求Mark McGowan提供支持这一措施的医学建议或证据。
 
-**喜币的核心价值体现要在未来三个重要时间点：一是喜支付上线，二是机构投资者全面出手，三是有国家持有的主权基金加入、喜币获得虚拟银行牌照和成为国家批准的交易所或批准****为****法币，这是核心的核心。**
+一些西澳的本地民众也表示了对总理的失望，同时警告执政者将会失去本地百姓对他们的支持以及最终。“这里不是维多利亚州。”一位Knight女士的留言获得了超过150条点赞。
 
-对于喜币的价值，郭先生说，我们要有基本判断常识，有起伏高低、有出有进才叫真实市场反应。这是币，不是股，永远看涨是不对的。
+与此同时，越来越多的疫苗接种网店已经在全西澳铺展开来，以至于澳洲第九新闻甚至称这一周末为西澳大利亚的“超级疫苗周末”。
 
-参考链接：https://gtv.org/video/id=61851d9f11d186296801e582
+（本文纯属个人观点，与Gnews无关）
 
-校对发布：Shifter
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
 
+新闻参考链接：
+
+[澳洲第九新闻（一）](https://www.9news.com.au/national/australia-breaking-news-live-updates-november-4-2021-cleo-smith-found-police-investigation-continues-coronavirus-alert-for-queensland-town/70db40fe-b3db-4cc0-8e47-9330eaafc2e7)
+
+[澳洲第九新闻（二）](https://www.9news.com.au/national/western-australia-border-restrictions-wa-to-require-anyone-from-victoria-nsw-and-act-to-be-fully-vaccinated-against-covid-19/2f88e4df-c852-42ec-a394-a4026e7e1d69)
+
+[澳洲第九新闻（三）](https://www.9news.com.au/national/coronavirus-vaccine-rollout-australia-state-by-state-guide-covid19-vaccination-rates-single-dose-double-doses-explainer/abacde8f-d35e-45ee-83bc-069ede212ecf)
+
+[澳洲第九新闻（四）](https://www.9news.com.au/videos/national/western-australias-super-vax-weekend-gets-underway/ckvnns396007b0jpfgmwovi0m)
+
+[西澳总理脸书](https://www.facebook.com/photo.php?fbid=432544968234354&amp;set=a.263657845123068&amp;type=3)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
