@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/6/2021 1:54 PM (UTC)`
+
+11月6号：尊敬的战友们好．你们健身了吗？传播．C C P病毒．香港危机．疫苗解药的真相了吗？七哥今天一天都和DC来的朋友开会，就没有时间录长视频了……明天的大直播间！
+![img](https://media.gettr.com/group5/getter/2021/11/06/13/54/e6bc26ae-3637-cc97-f7f8-9709cf927fe7/out.jpg)
+
+---
+
 `@miles 11/6/2021 11:49 AM (UTC)`
 
 班农先生：喜币成功上市是丰碑式的，新中国联邦和新中国人现在有了新货币。新中国联邦的版图正各就各位，反共力量的制度化令人惊叹。对比中共造成的死亡和破坏，新中国联邦、爆料革命和文贵先生带来的是正面影响，用顶尖的科技、真实的资本、真实的领导力去支撑这样的体系发展壮大是非常了不起的。<br/><br/>Mr. Bannon: The initial success of H-Coin is monumental. The New Federal State of China and the New Chinese now have new currency. The territory of the NFSC is taking its place, and the institutionalization of anti-CCP forces is impressive. Compared with the death and destruction caused by the CCP, the NFSC, the Whistleblower Movement, and Mr. Miles have had a positive impact. Using top technology, real capital, and real leadership to support the development and growth of such a system is pretty remarkable.
@@ -289,13 +296,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 11/1/2021 [HCoin To the Moon Celebration]: Fellow fighters, the first thing you should do is to take care of your parents if you become wealthy; The significance of the Himalaya Coin is that it works in the entire world and that it can absolutely bring financial freedom to numerous people across the globe<br/><br/>11/1/2021【HCoin To the Moon 庆典】：战友们， 如果你们有钱了，第一个就要对自己的父母好；喜币的意义在于它在全世界都管用，而且它绝对能给很多人带来财富自由！
 ![img](https://media.gettr.com/group39/getter/2021/11/02/22/17/5fa14cdf-200e-8ebc-eafe-862f85c80406/out.jpg)
-
----
-
-`@miles 11/2/2021 10:09 PM (UTC)`
-
-11/1/2021 [HCoin To the Moon Celebration]: The notion of “Feng Xian” (sacrifice and contribute) is the biggest lie in history, and the Whistleblowers’ Movement has replaced “Feng Xian” with “Xian Feng” (heartfelt offering), which means I take actions and give you my selfless and sincere love. The Himalaya Coin is my heartfelt offering to all of our fellow fighters.<br/><br/>11/1/2021【HCoin To the Moon 庆典】：“奉献”是历史上最大的谎言，爆料革命把“奉献”改为“献奉” - 我行动，给你我无私的、真诚的爱，喜币是七哥给战友们的“献奉”<br/>
-![img](https://media.gettr.com/group25/getter/2021/11/02/22/09/02fef904-cea9-f58e-98fa-f921b762c8ee/out.jpg)
 
 ---
 

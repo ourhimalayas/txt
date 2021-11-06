@@ -2,58 +2,77 @@
 ---
 
 
-## 德鲁博士：我不再相信福奇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1643377/)
+## 中共病毒及其疫苗全球超限战中的典型案例（十五）
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1643429/)
 
-编译：Jenny Ball
+作者：香草山信息部 6zero4
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-3-1.jpg)图片来源：原文视频截图
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36.png)
 
-电视名人和医生德鲁·平斯基（Drew Pinsky）博士说，由于福奇最近几个月的行为，特别是他资助中共国实验室病毒研究方面所扮演的角色，他无法再信任安东尼·福奇博士。
 
-周二，平斯基接受保守派评论员和“烈焰传媒”（ Blaze Media ）的主持人戴夫·鲁宾（Dave Rubin）的采访。在采访中，平斯基明确表示，福奇几十年来一直是他可以信任的信息来源——直到现在才不再相信了。
 
-“所以，谈到了与福奇的经历，我认为你对福奇很公平，几乎过于公平，”鲁宾对平斯基说。
+**科罗拉多医院拒绝对未接种疫苗的妇女进行肾脏移植**
 
-“我太公平了，因为我和他一起经历了五次大流行，”平斯基在谈到福奇时说。“在 HIV、MERS、SARS-1、H1N1 期间，他是我真正相信的男人。H1N1 是一场可怕的流行病， 你甚至不知道发生了什么……那很糟糕，你正在担心这个。为什么我们至少没有对那个做出温和的反应？”
+据零对冲2021年10月6日报道，当前已有56%的美国人接种了COVID-19疫苗，明显低于拜登总统7月4日透露的全民疫苗接种目标70%。疫苗通行证让没有接种新冠疫苗的人遭受着令人震惊和痛苦的非人道歧视，使生活颇具挫折感，尤其是最近对一个未接种疫苗的人的医疗歧视是非常恐怖的。
 
-“所以，我认为他变质了……每个人都被掺假了，这就是我们这个时代的新部落主义（1），”他谈到福奇时说。“而且我认为他会恢复中庸。我认为他的整体功能一直是——比如，他的判断力很棒，而且……直到今天，我仍然相信我们会看到他看起来还不错的平均数。”
+科罗拉多州一名患有5期肾衰竭的妇女卢塔莉（Leilani Lutali）因和她的肾脏捐赠者丰娜（Jaimee Fougner）都没有接种新冠疫苗，上周接到总部位于科罗拉多州奥罗拉（Aurora）的医疗保健系统UCHealth的书面通知，要求她们俩必须在10月底之前完成疫苗接种，否则就会从移植手术名单上删除。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-85.png)
+卢塔莉和丰娜两人在一年前的圣经查经课上相识，由于宗教原因以及太多的不确定性，他们都拒绝接种新冠疫苗。今年8月，UCHealth告诉卢塔利，接种疫苗并不是手术的必要条件。但到了9月28日，UCHealth对器官移植的捐赠者和接受者的COVID-19疫苗接种有了新政策，要求手术双方都必须全面接种新冠疫苗。目前她们俩正在科罗拉多州内匆忙寻找另一家医院，来为未接种疫苗的她们做肾脏移植手术。这是针对未接种疫苗的人令人发指的歧视。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-86.png)
+丰娜表示自己愿意捐赠一个完美的肾脏给卢塔莉以挽救她的生命，这不会影响移植名单上的其他病人，但却无能为力地目睹UCHealth的新手术政策正在谋杀自己的朋友卢塔莉。卢塔莉也表示为了移植手术本身的责任问题，自己可以签署一份医疗豁免文书，让医院远离任何因为自己没有接种新冠疫苗而可能出现的问题，或者申请医疗豁免以避免自己接种新冠疫苗，但都无济于事。
 
-（注释1: 新部落主义，也称为现代部落主义或新部落主义，是一种社会学概念，它假设人类已经进化到生活在部落社会，而不是大众社会，因此会自然形成构成新部落的社会网络。）
+**芬兰加入瑞典和丹麦限制年轻人接种****Moderna****新冠疫苗的行列**
 
-“然而，”平斯基说，“他终于做了一件让我感到不安的事情，那就是，我不知道你是否记得在国会面前，多次，每当问他关于功能获得或资金的问题时—— 他会说，‘我很困惑。 你在说什么？’”
+2021年10月7日，芬兰公共卫生当局宣布，由于心脏炎症等罕见但非常有害的副作用的风险，将停止对年轻男性接种Moderna疫苗。这是继昨天瑞典和丹麦卫生官员分别宣布禁止对所有年轻人和儿童接种Moderna疫苗后，芬兰成为限制使用Moderna新冠疫苗的第三个北欧国家。芬兰健康研究所所长萨尔米宁（Mika Salminen）表示，芬兰将仿效瑞典改为给1991年或以后出生的男性注射辉瑞疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-87.png)
+瑞典、丹麦和芬兰三个国家都是引用了同一项尚未发表的北欧研究数据做出上述决定的，该研究发现30岁以下接种Moderna 的Spikevax新冠疫苗的男性患心肌炎的风险高于其他人群。该研究的初步数据已送交欧盟药品监管机构（EMA）作进一步评估并可能在未来几周内发表。其实EMA早在今年7月份就确定，在一些接种了Moderna新冠疫苗的年轻男性患者中，发现了罕见的心脏炎症病例。
 
-“两天前他说，‘你知道，我们确实资助了改变病毒功能。’……你为什么不告诉我们？ ……现在就像，’好吧，我不能相信你。’ 你知道我们在问什么。”
+**旧金山地区放松了对****COVID-19****疫情的限制措施，英国将****47****个国家从旅行“红色名单”中移除**
 
-平斯基不愿评论福奇是否故意向国会撒谎，但他确实表示，福奇的行为和缺乏透明度造成了“疫苗犹豫”。
+2021年10月7日，随着COVID-19病例的继续下降与疫苗接种率的持续上升，旧金山当局宣布湾区8县，包括阿拉米达、康特拉科斯塔、马林、纳帕、旧金山、圣马特奥、圣克拉拉和索诺马县，将从10月15日开始放松对室内强制佩戴口罩的要求等大部分当地疫情限制措施。这8个县在德尔塔病毒感染激增的情况下，都在8月份恢复了室内强制佩戴口罩的规定。不过此前包括加州州长纽森（Gavin Newsom）和旧金山市长布里德（London Breed）在内的几位知名加州政界人士都被发现违反了他们自己发布的COVID – 19疫情限制措施。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-89.png)
+布里德在一份声明中表示，如果湾区8县降到CDC规定的COVID-19疫情中等传播水平和当地卫生官员规定的低住院率，即使在疫苗接种人口未达到80%的县，且在5-11岁儿童获得疫苗接种三周后，疫情限制措施也可取消。如果当地COVID-19病例和住院人数在未来一周保持稳定或下降，且没有12岁以下儿童在场，并采取了通风和其它安全防护措施的情况下，人们可以在需要出示疫苗接种证明的室内空间，包括健身房、办公室和小型聚会场所，可以不戴口罩。
 
-“现在已经到了要告诉 [疫苗犹豫] 人，你的问题是……你不知道该相信谁，”他建议人们，找一个他们的家人可以信任的医生，希望他会与他们和他们的孩子讨论什么对他们最有利。
+英国卫生当局在一个月以来首次在一天内报告了超过4万例COVID-19病毒感染病例的情况下，最近却将47个国家从“红色名单”中移除，这些国家是旅行者回国后必须进行隔离的国家。即使是前往绿色名单上的国家，完全接种了新冠疫苗的英国旅行者也需要在第二天进行病毒检测，亦或在出发前进行病毒检测。英国是否会进一步放宽旅行限制可能取决于未来一周新冠病例数的突破方向。
 
-平斯基还表示，他“总体上”反对强制使用口罩和疫苗等物品。
+**洛杉矶县治安官拒绝执行疫苗强制接种令**
 
-但谈话的重点是明确的， 对于医学界的人和像平斯基这样的人来说，对福奇所说的持保留态度的人越来越多，**因为在当今的政治气候中，他们会因大声疾呼而蒙受巨大损失。**
+2021年10月6日，洛杉矶市议会通过了一项法案并将于11月4日生效，要求市政工作人员必须接种COVID-19疫苗，且任何进入酒吧、餐馆、健身房和其他公共场所的人，必须出示COVID-19疫苗接种或病毒阴性检测证明。鉴于上月洛杉矶警察局1.2万名警员中有24%在寻求宗教或医疗豁免以回避疫苗接种，这将是一个巨大的问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-88.png)
+2021年10月8日，洛杉矶县治安官维兰纽瓦（Alex Villanueva）宣布拒绝执行这一疫苗强制接种令，并表示如果他执行此命令，将面临失去超过10%即多达数百名警察的局面。尤其在2021年前6个月凶杀案比去年激增31%之际，执行COVID – 19疫苗强制接种令将严重削弱警察队伍。
 
-福奇今年在国会作证时，当然多次否认 NIH 与资助武汉实验室的功能获得性研究有任何关系。他不止一次与肯塔基州的共和党参议员兰德·保罗发生冲突。
 
-我们现在知道，多亏了 NIH 首席副主任劳伦斯·塔巴克（Lawrence Tabak）和 《拦截》The Intercept 的一份报告，得以证实福奇的否认是不真实的。
 
-“ The Intercept 获得的文件包含新的证据，**表明武汉病毒研究所和附近的武汉大学动物实验中心，以及他们的合作者，美国的非营利组织‘生态健康联盟’，参与了美国政府定义为‘获得功能的研究’，故意使病毒更具致病性或传播性以研究它们，尽管美国资助机构规定这笔钱不能用于该目的**，” The Intercept 在 9 月报道。
+> LA Sheriff Villanueva says that he will not enforce a vaccine mandate, saying employees are willing to get fired over it. "I don't want to be in a position to lose 5, 10% of my workforce overnight on a vaccine mandate." [pic.twitter.com/9DNJTeJUoY](https://t.co/9DNJTeJUoY)
+> — Alene Tchekmedyian (@AleneTchek) [October 7, 2021](https://twitter.com/AleneTchek/status/1446135107027234825?ref_src=twsrc%5Etfw)
 
-“这项有争议的实验的拨款来自美国国立卫生研究院NIH下属的国家过敏和传染病研究所，该研究所由安东尼·福奇领导。”
 
-自 COVID-19 大流行初期以来，福奇就一直处于前沿和中心位置，从一开始，他似乎每周都在削弱自己的信息传递。 **他还成为了政府过度、无能、残忍和不诚实的代言人——近四年后，他也失去了德鲁博士的信任。**
 
-**点评**：连**德鲁博士这样的专家都不再信任福奇，为什么我们老百姓还要听他欺骗而失去健康的身体和生命？**
+维兰纽瓦还表示，这个问题已经变得如此政治化，很多警员宁愿被解雇或下岗也不愿接种疫苗；我不会强迫任何人并拒绝执行该命令，是因为该命令没有科学依据。
 
-**参考资料：**[westernjournal][Dr. Drew: I ‘Can’t Trust’ Fauci Because Top Doc Wasn’t Transparent About Connections to Wuhan Lab](https://www.westernjournal.com/dr-drew-cant-trust-fauci-top-doc-wasnt-transparent-connections-wuhan-lab/?utm_source=Email&amp;utm_medium=CTBreaking&amp;utm_campaign=breaking&amp;utm_content=conservative-tribune&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
+图片和新闻源于:
 
-* * *
+[https://www.zerohedge.com/medical/colorado-hospital-set-deny-kidney-transplant-unvaxxed-woman](https://www.zerohedge.com/medical/colorado-hospital-set-deny-kidney-transplant-unvaxxed-woman)
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
+[https://www.zerohedge.com/covid-19/finland-joins-sweden-denmark-limiting-use-modernas-jab-young-men](https://www.zerohedge.com/covid-19/finland-joins-sweden-denmark-limiting-use-modernas-jab-young-men)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+[https://www.zerohedge.com/covid-19/san-francisco-eases-indoor-mask-requirements-uk-removes-47-countries-travel-red-listhttps://www.zerohedge.com/political/los-angeles-county-sheriff-refuses-enforce-vaccine-mandate](https://www.zerohedge.com/covid-19/san-francisco-eases-indoor-mask-requirements-uk-removes-47-countries-travel-red-listhttps://www.zerohedge.com/political/los-angeles-county-sheriff-refuses-enforce-vaccine-mandate)
+
+审核/上传： 浪迹天涯
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

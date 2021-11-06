@@ -2,28 +2,42 @@
 ---
 
 
-## 大直播7·24——马斯克因何被罚
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1643501/)
+## 本开始担忧今年冬季电力供给不足
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1643552/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/elon-musk-163038299116x9-1.jpg)图片来源：NEWS18
-**整理：**顺其自然
-**编辑：**翼族
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+日本产经新闻于31日发文称，日本经济产业省称今年冬天的电力供给状况可能是过去十年以来最严峻的。而十年之前正好是311东日本大地震的那一年，日本损失了福岛核电站。
 
-美国时间11月5日，郭先生与几位嘉宾做了个四个多小时的直播，郭先生提到喜币时提醒战友不要轻易对喜币发表言论。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/CIIQ6VQ7K5KIHK2OKPEQVDOZBY.jpg)
 
-伊隆·马斯克只是因为对其特斯拉股票说了一些相关的话（比某些战友的言论轻一百倍），美国SEC就处罚了他数千万美元。任何人代表喜联储发表喜币观点都要谨慎，不实的言论都要停止。拥有喜币的战友需要到联盟委员会备案认证以后才能回答，否则任何回答都是犯法，这是很大的事。喜联储是上市公司，上市公司是不能乱说话的。
+而目前日本所面临的最大挑战不是地震而是跟欧洲一样，主要因为液化天然气价格上涨，并且日本自身在扩大太阳能的过程中舍弃了很多以前的石油发电系统，同时311以来核电站的扩展和修复也没能有迅速的进展。
 
-关于马斯克，大约在2018年8月7日美国东部时间的下午12:48，在股票交易时间段，马斯克在自己2200万粉丝的Twitter上发帖子称：“我正在考虑以每股420美元的价格私有化特斯拉。资金已经到位。我希望，即使公司私有化之后，所有当前投资者仍可继续作为公司的投资者。我们将创建一个特殊目的基金来确保大家仍持有特斯拉股份。股东要么以420美元的价格出售股份，或持有股份并私有化。投资者支持已确认。此事仍未成定数的唯一原因在于还没有进行股东投票。”
+目前日本经济产业省预测明年2月，日本全国的预备电力供应只占总共能发电量的3%。接下来的疫苗灾难以及地震等天灾的不确定性，可能会让日本出现突发停电的状况，在日本的战友请务必做好准备。
 
-之后，美国证券交易委员会SEC表示，马斯克所发的推特不符合事实，后来马斯克为其言论支付了两千万美元罚金，与SEC达成和解，并且马斯克卸任了特斯拉董事长，但仍留任CEO职务。
+（本文仅代表作者观点）
 
-*发布：翼族*
+参考阅读：
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+- [https://www.sankei.com/article/20211031-I2UHPH7GGRKF7FCEDKNYPQFRCU/](https://www.sankei.com/article/20211031-I2UHPH7GGRKF7FCEDKNYPQFRCU/)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+
+***编辑***：***Jack Li文阳***
+***校对/发稿：海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,28 +2,42 @@
 ---
 
 
-## FBI突袭探测拜登女儿日记的真实项目职员
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1643554/)
+## 数据显示100%的新冠病毒疫苗死亡与5%的批次有关
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1643665/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-21.png)
-图片来源： finance.sina.com.cn
+作者：纽约香草山农场 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据英国The Expose网站独家报道，根据政府官方数据，几乎所有的新冠病毒疫苗死亡病例与5%的生产批次相关联。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-302.png)
+调查中使用的数据是从VAERS数据库中提取的。截至2021年10月15日的公开报告，共有171,463起针对辉瑞新冠病毒疫苗的不良事件，以及2,828人死亡和14,262人住院。涉及的疫苗批号总数为4,522。
 
-零对冲网11月5日报道，FBI周四突袭了两处与真实项目有关的两处地址，是探测据称拜登女儿的日记被盗的部分，据纽约时报在真实项目创始人詹姆士·欧基夫报出来遭突袭1小时后称，很有兴趣去了解这次的突袭。
+数据显示，64%的批次涉及22%的不良反应报告，1.6%的批次涉及了76%的不良反应报告，而令人震惊的是，集中在2个批次的负面报告竟然超过了3000份！接种后死亡的报告中，96%的批次范围不涉及死亡，剩下的4%涉及所有2828例死亡。对Moderna的分析得出同样的结论，即95%的批次没有死亡报告，5%的批次与所有2,603例死亡有关。
 
-在中区曼哈顿的公寓房的真实项目长期雇员斯班瑟·米兹家中搜查认股权证。在真实项目尚未公布日记摘录之时，另一个保守派媒体发布了几十页从2020年10月24日美国总统大选前最后几天的手抄本，该网站称他们从另一个不发布信息的组织收到了爆料者的文件。
+结论是：辉瑞疫苗与Moderna疫苗仅仅5%的批次造成了所有已报告VAERS的死亡病例。这一结果令世人震惊。
 
-据报告，真实项目知道真正的日记下落，并有阿什利·拜登的录音承认是她的。欧基夫说：“去年底，有告密者向我们爆料说他们有阿什利·拜登日记的复印件，告密者称他们与不同媒体谈判为出售该日记复印件。最后我们做出了道德上的决定，部分原因也是因为不确定该日记是否是真的，如果这个日记确实是阿什利的，或者日记中的内容确实发生了，我们还是不能发表其中任何部份。”
+（本文仅代表作者观点）
 
-欧基夫说他们在阿什利律师拒绝接受或认记这份日记后就把这个日记交给了执法部门。这位真实项目创始人加了一段陈述，“我们不知道纽约时报怎么会知道在我们的报告者家中发生搜查认股权证的事，关于搜查认股权证的事情，在大陪审团调查中是秘密的。”
+参考阅读：
 
-纽约时报称司法部自2020年10月以来一直在调查这事，一位拜登家庭的代表报告说有几样阿什利·拜登的私人物品在一次有人入室偷盗后被偷。
-
-
-
-###### **新闻来源： **[FBI Raids Project Veritas Staffer In Probe Over Biden Daughter’s Diary](https://www.zerohedge.com/political/fbi-raids-project-veritas-staffer-probe-over-biden-daughters-diary)
+- [https://theexpose.uk/2021/10/31/100-percent-of-covid-19-vaccine-deaths-caused-by-just-5-percent-of-the-batches-produced/](https://theexpose.uk/2021/10/31/100-percent-of-covid-19-vaccine-deaths-caused-by-just-5-percent-of-the-batches-produced/)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+
+***编辑***：***Irene木木***
+***校对/发稿：海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
