@@ -2,44 +2,30 @@
 ---
 
 
-## 超一半未接种疫苗的美国人表示不会改变他们主意
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1642717/)
+## 恶劣环境下中共国LGBT平权组织宣布中止运作
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1642831/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-1.jpg)恶劣环境下中共国LGBT平权组织宣布中止运作 网络图片
+据自由亚洲电台11月5日报道，中共国一个LGBT群体的倡导组织“同志平等权益促进会”4日宣布，将停止所有活动，并关闭社交媒体账户。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/rk_astrazeneca-australia_120421.jpg)图片来源：straitstimes.com
+在线微信公众号及微博帐号均已注销，微信号即刻停止使用，
+
+中共对国民的管控是全方位无死角，无处不在，且包括精神层面的。凡是形成组织的，不管涉及什么、无论规模大小，一律关停。所谓的大国自信，居然容不得微不足道的自媒体和小小的一个平权组织。
+
+新闻参考链接：[https://www.rfa.org/mandarin/Xinwen/10-11052021153626.html](https://www.rfa.org/mandarin/Xinwen/10-11052021153626.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-#### 编译：小红帽
+编辑：【英国伦敦喜庄园编辑部】
 
-一项民意调查结果显示，超过一半未接种中共病毒（COVID-19）疫苗的美国人表示“没有任何事情”会改变他们对接种疫苗的看法。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-波士顿、纽约和巴塞罗那的研究人员发现，53%没有接种疫苗的人中不会被任何人说服去接种疫苗。
 
-13%的人表示，他们可能会被密友或家人的建议所左右，而9%的人表示，家庭医生的建议可能会改变他们的想法。
-
-“调查数据显示，保守派、生活贫困者和外出工作的人更有可能反对接种疫苗，”《每日邮报》报道。
-
-该调查是在2021年4月进行的，这一事实是在“德尔塔（delta）”病例激增和拜登政府宣布疫苗授权计划之前进行的。
-
-6个多月前，民意调查发现21%的受访者表示他们不想接种疫苗。
-
-目前的数据显示，大约20%的美国成年人仍未接种疫苗，这意味着在此期间只有大约1%的人被说服。
-
-虽然极少数美国人表示，无法改变他们在接种疫苗方面的想法，但在德国，这一数字要高得多。
-
-正如之前报道的，90%未接种疫苗的德国人表示他们不会接种，只有其余10%的人表示他们“可能”会接种或尚未决定。
-
-**参考新闻：**[More Than Half of Unvaccinated Americans Say Nothing Will Change Their Mind – Summit News](https://summit.news/2021/11/04/more-than-half-of-unvaccinated-americans-say-nothing-will-change-their-mind/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

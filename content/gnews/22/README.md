@@ -2,29 +2,28 @@
 ---
 
 
-## 有声|新书《真正的安东尼·福奇》即将上市
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1642739/)
+## 俄罗斯驻德国大使馆前发现外交官尸体
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1642849/)
 
-配音：香草山教育部 – 蒙古鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-相关消息称，新书《真正的安东尼·福奇》将于11月9日正式上市。据悉，书中详细地揭示了安东尼·福奇和他的制药团队是如何从疾病中获取丰厚的利润，以及他工作的这50年给美国公共卫生造成了何种灾难性的后果。
+撰稿：东京樱花团/待命（文晓）
 
-安东尼·福奇，美国国家过敏症和传染病研究所主任。数据显示，福奇每年以科学研究的名义，支配约61 亿美元的美国纳税人资金。而这些资金支持其研究所大量开发新药和疫苗，并逐渐转变为大型制药公司的产品孵化器。多年来，福奇获得了超乎想象的权利，比如，可以批准和授权相关药物和疫苗，或借联邦“知识与创新”领导人的名号，在军队实行独裁统治，包括允许委员会紧急使用授权新冠疫苗等。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/俄罗斯驻德国大使馆前发现外交官尸体.png)
 
-但书中提到，福奇一再违反联邦法律，违规进行有毒的艾滋病和癌症化学疗法的致命实验。另外，福奇资助的一些疫苗给世界民众造成的伤害远超过它们声称的效用。
+11月6日时事通信消息：据法新社5日报道，在德国首都柏林的俄罗斯大使馆前, 发现俄罗斯外交官的尸体。
 
-文字版原文：[新书《真正的安东尼·福奇》即将上市](https://gnews.org/zh-hans/1636640/)
+最早报道发现尸体的德国《明镜周刊》称，警方于10月19日在人行道上发现了一具男子的尸体，据信他是在从使馆坠落后死亡。死者是俄罗斯大使馆的一名二等秘书，35岁。但德国当局表示，他们相信这名外交官也是俄罗斯联邦安全局（FSB）的一名情报人员。德国外交部的一位发言人说，该部“了解”这一案件，但没有提供细节。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+俄罗斯大使馆承认该外交官的死亡，并将其描述为“悲惨事故”。并坚持认为，“西方媒体的猜测”是“完全不准确的”。
+
+据报道，这名死去的外交官还与联邦安全局第二部的一名高级官员有联系。西方情报机构认为该部门参与了2019年在柏林市中心谋杀格鲁吉亚国民泽利姆汗-康戈什维利的事件。
+
+[信息源](https://news.yahoo.co.jp/articles/7ec912a22bf56012c69d7e823b2bb76b4d4e59d3)
+
+（图片源自本文链接）
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/老黑*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

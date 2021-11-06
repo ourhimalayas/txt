@@ -2,25 +2,29 @@
 ---
 
 
-## 文贵爆料2021.11.5 一位资本主义创始者老银行家对战友的三点智慧建议
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1642584/)
+## 有声|美联邦传播委员会以安全理由撤销中国电信公司许可
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1642710/)
 
-撰稿：Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-05-at-8.04.48-PM.png)图片来源：GETTR & GTV
-郭文贵先生在2021年11月5日大直播中提到新中国联邦非常的幸运，在喜币刚刚上市的时刻，有一位美国银行家，一位资本主义的创始者，曾经拥有世界一半财富的人给我们提出几点中肯的建议，希望郭先生能告诉爆料革命的穷兄弟姐妹们：
+配音：香草山教育部 – 蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+10月26日，美国联邦传播委员会（FCC）撤销了中国电信美洲子公司在美国的运营许可，并要求其必须在60天内终止州际与国际电信业务。
 
-第一，他的祖父和父亲都告诉过他，人的一生中，危机中有机会，中国人在这方面很有智慧，但却从来没说过机会中的危机和财富中的危机。
+此次撤销的理由是安全问题。FCC指出，中国电信美洲子公司受到中共的利用与控制，极有可能被迫遵守中共的要求，让中共存取资料、中断美国通讯，也有可能借此对美国从事间谍活动与其他有害活动。
 
-第二，平台投资喜联储的造币权和股票、货币的区别，除了郭先生直播中提到的，还要加上最重要的一句话：科技货币没有科技性就没有（货币价值）了，科技货币只能存在于有法律的国家。当科技没有主权的时候，科技货币是不存在的。就像中共，没人去买中共的科技货币。
+FCC还指出，中国电信美洲子公司对FCC及美国其他政府机构缺乏坦诚、可信度与可靠性，无法获得FCC和美国其他政府机构对该电信营运商的基本信任。
 
-第三，要把投资、投机和投票权的关系要搞清楚。没有投票权的经济体是不可能有投资的真实性、真实能力性和未来的。没有投票权的所有的投资都是投机，就像北朝鲜和现在的香港一样。
+文字版原文：[美联邦传播委员会以安全理由撤销中国电信公司许可](https://gnews.org/zh-hans/1637675/)
 
-参考来源：https://gettr.com/streaming/pg3lvx539f
-
-校对发布：Shifter
-
-
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,30 @@
 ---
 
 
-## 澳大利亚全国内阁会议今日讨论5-11岁儿童接种问题
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1642679/)
+## 被引渡至美受审的江苏国安官员经济间谍罪名成立
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1642792/)
 
-翻译：Sara9
-编辑：热锅小蚂蚁
-![](https://assets.gnews.org/wp-content/uploads/2021/11/辉瑞疫苗注射-1.png)图片来源：盖地图像 
-据ABC中文5日报道，昨天结束欧洲外访行程返澳的澳大利亚总理莫里森今天将召开全国内阁会议，重点讨论儿童接种疫苗问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown.jpg)被引渡至美受审的江苏国安官员经济间谍罪名成立 网络图片
+据美国之音11月6日报道，俄亥俄州5日裁定一名被引渡至美国受审的中共国国安官员盗窃美国多家航空航天公司商业机密罪名成立。他被指控试图为中共国政府窃取与通用电气航空公司有关的复合材料飞机引擎风扇专有技术。这是世界上任何其他公司都未曾复制的技术。
 
-美国已经开始为5-11岁的儿童接种减小剂量的辉瑞疫苗，澳大利亚何时开始也越来越受到关注。
+中共国江苏省国安厅徐延军至少从2013年12月起就在美国从事间谍活动。他于2018年10月被引渡到美国接受审判。他是第一位被引渡至美国接受审判的中共国政府情报官员。如果把所有被判成立的罪名加在一起，徐延军可面临最长60年监禁和5百多万美元罚款。
 
-澳大利亚医疗用品管理局（TGA）[表示](https://www.abc.net.au/chinese/2021-11-04/vaccination-for-young-children-5-to-12-australia-medical-advice/100591080)，可能会在本月底之前就是否向5-11岁儿童提供辉瑞疫苗做出决定。
+徐延军是国家赞助的经济间谍，目的在于窃取美国技术，以壮大中共的经济和使军队获益。中共以假骗偷治国，宁愿养间谍去国外偷技术，也不会发展国内的科技。如今各国防盗意识都在加强，一旦中共偷不了技术，那么所有的所谓自主研发的科技都会一夜之间陷入瘫痪。
 
-维州州长安德鲁也明确表示，在今天的全国内阁会议上将重点讨论给儿童接种疫苗的问题，他表示希望孩子们在圣诞假期期间能在有疫苗保护的情况下外出玩耍。
+新闻参考链接：[https://www.voachinese.com/a/jury-convicts-chinese-security-agent-in-aviation-espionage-case-20211105/6302073.html](https://www.voachinese.com/a/jury-convicts-chinese-security-agent-in-aviation-espionage-case-20211105/6302073.html)
 
-数位医学专家表示，虽然5-11岁年龄段的孩子在感染新冠后很少会产生严重不适或者需要住院治疗，但是任何能减少风险的做法都是好的。
+* * *
 
-*发布：热锅小蚂蚁*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-原文链接：[https://www.abc.net.au/chinese/2021-11-05/national-cabinet-to-discuss-vaccination-for-young-children/100596450](https://www.abc.net.au/chinese/2021-11-05/national-cabinet-to-discuss-vaccination-for-young-children/100596450)
 
-**发布：****文泓**
+编辑：【英国伦敦喜庄园编辑部】
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

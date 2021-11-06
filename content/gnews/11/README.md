@@ -2,30 +2,28 @@
 ---
 
 
-## 恶劣环境下中共国LGBT平权组织宣布中止运作
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1642831/)
+## 秘翻在线：国会山就预先授权总统军事保卫台湾进行辩论中
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1642973/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-1.jpg)恶劣环境下中共国LGBT平权组织宣布中止运作 网络图片
-据自由亚洲电台11月5日报道，中共国一个LGBT群体的倡导组织“同志平等权益促进会”4日宣布，将停止所有活动，并关闭社交媒体账户。
+#### 撰稿：彩虹
 
-在线微信公众号及微博帐号均已注销，微信号即刻停止使用，
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-3.jpg)图片来源：Devdiscourse
+10月6日，《新闻极限》（Newsmax）发布文章，引述《政客》（Politico）的报道，指国会山就是否预先授权乔·拜登（Joe Biden）总统，在台湾面临中共国入侵之前使用军事力量保护台湾而进行辩论中。
 
-中共对国民的管控是全方位无死角，无处不在，且包括精神层面的。凡是形成组织的，不管涉及什么、无论规模大小，一律关停。所谓的大国自信，居然容不得微不足道的自媒体和小小的一个平权组织。
+文章指，1979年的《台湾关系法》的战略模糊原则规定，在面对中共国攻击或入侵台湾时，美国对是否保卫台湾“不做承诺”。
 
-新闻参考链接：[https://www.rfa.org/mandarin/Xinwen/10-11052021153626.html](https://www.rfa.org/mandarin/Xinwen/10-11052021153626.html)
+来自弗吉尼亚州的众议员伊莱恩·卢里亚（Elaine Luria）说：“如果我们以一种限制冲突范围的方式进行干预，以阻止中共国入侵台湾或者吓阻中共国，那么我们就可以避免一场全面的战争。”
 
-* * *
+参议员乔什·霍利（Josh Hawley）则提出立法，每年向台湾发送30亿美元，从而提升台湾军事开支以准备迎接可能来自中共国的攻击。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+而来自马萨诸塞州的众议员吉姆·麦戈文（Jim McGovern）则认为，“我对冷战还是热战不感兴趣，我认为我们应该专注于寻找任何可能避免冲突的方法。”
 
+报道说，一位政府高级官员告诉《政客》，白宫“将继续就这些重要问题与国会接触”，并且说拜登政府不会重新审视战略模糊政策。
 
-编辑：【英国伦敦喜庄园编辑部】
+**新闻来源**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+[Senators Debate Military Authorization for Taiwan](https://www.newsmax.com/newsfront/senate-taiwan-china/2021/11/05/id/1043545/)
 
  
 

@@ -2,26 +2,31 @@
 ---
 
 
-## 11/6/2021中日财经爆：恒大5年花了5万亿，拿什么钱还你？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1642822/)
+## 秘翻在线：众议院共和党高层将采取行动, 阻止拜登的强制疫苗规定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1642957/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-39.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.dw.com%2Fimage%2F59518387_303.jpg&amp;imgrefurl=https%3A%2F%2Fwww.dw.com%2Fzh%2F%25E6%2581%2592%25E5%25A4%25A7%25E5%258D%25B1%25E6%259C%25BA%25E5%2587%25BA%25E5%2594%25AE%25E9%2583%25A8%25E5%2588%2586%25E8%2582%25A1%25E6%259D%2583%25E7%25A0%25B4%25E5%25B1%2580-%25E4%25B8%25AD%25E5%259B%25BD%25E7%25A7%25B0%25E9%25A3%258E%25E9%2599%25A9%25E5%258F%25AF%25E6%258E%25A7%2Fa-59569138&amp;tbnid=k84sdE0mqZZaCM&amp;vet=12ahUKEwiv7dDbovbzAhXITPUHHTcaBcIQMygKegUIARCzAQ..i&amp;docid=eW-6voN23xKetM&amp;w=700&amp;h=394&amp;q=%E6%81%92%E5%A4%A7%E5%80%BA%E5%8A%A1%E6%98%AF%E6%9B%B4%E5%A4%A7%E7%BB%8F%E6%B5%8E%E5%8D%B1%E6%9C%BA%E7%9A%84%E5%89%8D%E5%A5%8F&amp;ved=2ahUKEwiv7dDbovbzAhXITPUHHTcaBcIQMygKegUIARCzAQ)
-据中国青年报，11月4日，在恒大集团举行的内部会议上，恒大集团董事局主席许家印给员工鼓劲加油时说：“越是公司困难的时候，大家越要有定力，房地产是资金密集型行业，需要庞大的现金流。”
+**撰稿：Grace**
 
-许家印在会议上称，“我给大家讲一组数据：从2016年1月1日到2021年6月30日，5年半的时间，我们几项主要的支出就达5.01万亿元，其中归还到期贷款本金22500亿元，支付贷款利息3670亿元（即本金和利息共计约2.61万亿元），交纳税金2216亿元，支付土地款9634亿元，支付工程款、材料款等建安费用9736亿元，管理及营销费用支出2381亿元。”
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-06-133353.jpg)图片来源：re-pre
+据福克斯新闻（Fox News）11月5日报道，共和党人打算推动一项不赞成的决议（a resolution of disapproval），迫使每一位国会议员说出他们是否支持拜登的强制中共病毒疫苗规定。
 
-11月3日，恒大集团官方微信发布消息称，今年7-10月，恒大完成546个批次交楼工作，涉及184个不同项目、57462户业主。其中，7月交楼项目105个，户数20980户；8月交楼项目85个，户数21106户；9月交楼项目48个，户数7808户；10月交楼项目39个，户数7568户。
+报道称，众议院教育和劳工保护小组委员会（Education and Labor Subcommittee on Workforce Protections）的众议院共和党高层将在下周采取措施，阻止拜登的 “违宪 “的强制中共病毒疫苗规定。
 
-恒大集团如今正面临着流动性危机。“复工复产保交楼”作为恒大当前的头等大事，许家印强调，只有复工复产，恢复销售和经营，才能保质保量向业主交楼，才能解决上下游合作伙伴的商票兑付，才能完成财富产品的兑付，才能逐步归还金融机构的借款。
+宾夕法尼亚州（Pennsylvania）共和党议员弗雷德.凯勒(Fred Keller)在周五表示，在与印第安纳州共和党参议员迈克.布劳恩(Mike Braun) 的协调下，共和党人将尝试利用《国会审查法》(Congressional Review Act )使拜登的行政命令失效。
 
-消息来源：
+凯勒在接受采访时说：“《国会审查法》允许我们作为国会议员在行政部门发布这些任务时对其进行约束，我们正在行使我们的宪法权力。”
 
-[许家印公布惊人数据：恒大5年半花5万亿！许家印又套现了110亿元](https://www.sohu.com/a/499262943_639898)
+为了试图让全美的疫苗接种率提高，拜登要求从2022年1月4日开始，所有拥有100名员工或以上的私营公司必须执行强制疫苗规定。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+据估计，民主党的1.75万亿美元法案可能会大规模增加对违反疫苗规定的雇主的罚款。但是，共和党立法者根本不同意拜登的这一疫苗规定。凯勒说： “联邦政府并不统治人民，联邦政府是由各州组成的。”他还强调：“是我们人民给了政府权力，政府没有给人民权力。”
+
+据报道，本周早些时候，布劳恩(Braun)宣布，他将带领至少42名其他参议院共和党人挑战拜登的行政命令。而且，包括少数党领袖米奇.麦康奈尔(Mitch McConnell) 在内的其他8名共和党参议员也支持利用《国会审查法》来阻止总统的行动，但他们目前正在等待程序上的备案。
+
+**新闻来源：**[House Republicans move to stall Biden’s vaccine mandate](https://www.foxnews.com/politics/house-republicans-move-stall-biden-vaccine-mandate)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
