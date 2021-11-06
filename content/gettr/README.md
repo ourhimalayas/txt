@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/6/2021 11:40 PM (UTC)`
+
+11/05/2021 Miles Guo: Both the decoupling with the Communist China and the anti-Chinese movement are ongoing in the entire world. The worse the disasters caused by the COVID vaccines, the worse the the anti-Chinese movement will be; Only when the truth about the COVID vaccine disaster and the coronavirus is confirmed will we realize the importance of having our NFSC, Himalaya Dollar, and Himalaya Coin<br/><br/>11/05/2021 文贵直播: 全世界脱华和排华正在进行中，疫苗灾难有多坏，排华就有多糟；当疫苗灾难和冠状病毒的真相被确认时，我们才能知道拥有新中国联邦、喜美元和喜币有多重要<br/>
+![img](https://media.gettr.com/group44/getter/2021/11/06/23/40/98beb596-f007-dd72-5610-e0be478498f0/out.jpg)
+
+---
+
 `@miles 11/6/2021 8:56 PM (UTC)`
 
 11-6：一切都已经开始！【美国🇺🇸联邦第五上诉法院发布命令暂时停止败登的疫苗强制令。败登政府必须在11月8日下午5点前回应法院对疫苗强制令提出的质疑。】
@@ -290,13 +297,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 2021年11月3日 文贵大直播 常委张高丽恋幼女十几年  中共信仰缺失与心理变态   房地产债务违约与房产税   喜币上市到底意味着什么
 ![img](https://media.gettr.com/group49/origin/2021/11/03/12/911e8ea5-7d7c-add8-daea-5296755e7055/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 11/3/2021 11:21 AM (UTC)`
-
-11月3日：我的乖乖呀……美国大变【共和党人格伦·杨金(Glenn Youngkin)在弗吉尼亚州州长竞选中获胜，他利用最近的势头对民主党在里士满和华盛顿的控制进行了谴责。 根据三家电视网络的报道，杨金击败了民主党人特里·麦考利夫，击败了麦考利夫成为维吉尼亚州自上世纪70年代以来首位连任州长的竞选。50.7%比48.6% 共和党杨金获胜虽然这是一场州级选举，但这场竞选被视为拜登2020年获胜和明年11月关键的中期选举之间的关键风向标。维吉尼亚州和全国的民意调查显示总统的公众支持率大幅下降，民主党在国会中仅占微弱多数，并在2022年捍卫摇摆州的州长职位。虽然川普支持杨金，但他从未亲自代表杨金出现在该州，因为这位候选人试图走一条微妙的路线，抓住并激励这位前总统最热心的支持者但没有吓到大批郊区居民，这些人在川普入主白宫期间大量逃离共和党。<br/><br/>尽管如此，川普还是宣布了自己和杨金在该州的胜利。“我要感谢我的基地组织全力支持格伦·杨金，”这位前总统在媒体宣布获胜者数小时前发表声明说：“没有你们，他就不可能获胜。”由于川普这位前总统在弗吉尼亚州极不受欢迎，麦考利夫（民主党候选人）和他的盟友长期以来一直努力将杨金与川普联系在一起。然而，杨金的胜利似乎证实了这一策略没有像预期的那样奏效，向即将进入中期选举的共和党和民主党候选人发出了一个信号。】
-![img](https://media.gettr.com/group20/getter/2021/11/03/11/9549642e-698c-4b83-d5b6-a1ad09068d22/1f2025b7cf8bd277175e9750b64c592a.jpg)
 
 ---
 
