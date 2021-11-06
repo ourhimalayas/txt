@@ -15,119 +15,119 @@
 
 ---
 
-### [美国未接种疫苗者超过半数称不会改变想法](/content/gnews/1/README.md)
+### [COVID-19 最新情报｜美国陆军外科医生作证：上级官员忽视疫苗对飞行安全的隐患](/content/gnews/1/README.md)
+ ` G&#124;News TAIWAN`
+
+### [签署请愿书：扼杀维州州长安德鲁斯新法案](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [G时评：没有信仰的竞争，就是一场灾难](/content/gnews/2/README.md)
+### [新西兰接种两针疫苗患者在家中过世](/content/gnews/3/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [中共国公安部前副部长孙力军被正式逮捕](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [11/6/2021中日财经爆：云鸟科技“爆雷”,云鸟是个什么鸟？](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [从张高丽性丑闻延伸看中共官员的极度贪婪无耻行为](/content/gnews/6/README.md)
+ ` 澳喜农场`
+
+### [银河快讯：日本或向儿童发10万日元现金；德国军舰近20年首次访问日本](/content/gnews/7/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [美国未接种疫苗者超过半数称不会改变想法](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [G时评：没有信仰的竞争，就是一场灾难](/content/gnews/9/README.md)
  ` GISELLE`
 
-### [封锁的西澳大利亚州将疫苗接种率目标定为90％](/content/gnews/3/README.md)
+### [封锁的西澳大利亚州将疫苗接种率目标定为90％](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [南达科他州正与其他几个州对违宪的疫苗强制令提起诉讼](/content/gnews/4/README.md)
+### [南达科他州正与其他几个州对违宪的疫苗强制令提起诉讼](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [习近平在第26届联合国气候变化大会报告揭示中共的虚伪性](/content/gnews/5/README.md)
+### [习近平在第26届联合国气候变化大会报告揭示中共的虚伪性](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/6/2021中日财经爆：新华信托爆雷，中共国信托无信](/content/gnews/6/README.md)
+### [11/6/2021中日财经爆：新华信托爆雷，中共国信托无信](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [数千名抗议者在墨尔本游行反对疫苗规定和新流行病法案](/content/gnews/7/README.md)
+### [数千名抗议者在墨尔本游行反对疫苗规定和新流行病法案](/content/gnews/14/README.md)
  ` 走进澳洲`
 
-### [澳央行取消刺激政策，股市恐下跌10%](/content/gnews/8/README.md)
+### [澳央行取消刺激政策，股市恐下跌10%](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：中共情报官员被判定试图窃取美国的航空机密](/content/gnews/9/README.md)
+### [秘翻在线：中共情报官员被判定试图窃取美国的航空机密](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [串珠439:中共上层随意篡改土地容积率狼狈为奸](/content/gnews/10/README.md)
+### [串珠439:中共上层随意篡改土地容积率狼狈为奸](/content/gnews/17/README.md)
  ` 郭爆料串珠`
 
-### [串珠438:房产税本质是共产党要拿回财富分配大权](/content/gnews/11/README.md)
+### [串珠438:房产税本质是共产党要拿回财富分配大权](/content/gnews/18/README.md)
  ` 郭爆料串珠`
 
-### [串珠437:地产崩溃是中国最大噩梦，比土改文革还惨](/content/gnews/12/README.md)
+### [串珠437:地产崩溃是中国最大噩梦，比土改文革还惨](/content/gnews/19/README.md)
  ` 郭爆料串珠`
 
-### [串珠436:中国人均打工120年不吃不喝才能买套房](/content/gnews/13/README.md)
+### [串珠436:中国人均打工120年不吃不喝才能买套房](/content/gnews/20/README.md)
  ` 郭爆料串珠`
 
-### [日本坦言国产1号疫苗的临床试验结果失败](/content/gnews/14/README.md)
+### [日本坦言国产1号疫苗的临床试验结果失败](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/6/2021中日财经爆：房地产崩塌，学区降价600万甩卖](/content/gnews/15/README.md)
+### [11/6/2021中日财经爆：房地产崩塌，学区降价600万甩卖](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫苗接种者，方可攀登富士山](/content/gnews/16/README.md)
+### [疫苗接种者，方可攀登富士山](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [辉瑞广告欺骗儿童打疫苗后会变成“超级英雄”](/content/gnews/17/README.md)
+### [辉瑞广告欺骗儿童打疫苗后会变成“超级英雄”](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新西兰女孩注射第一剂辉瑞疫苗后产生严重不良反应](/content/gnews/18/README.md)
+### [新西兰女孩注射第一剂辉瑞疫苗后产生严重不良反应](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [提议立法保护关键岗位员工不会因不打疫苗而被解雇](/content/gnews/19/README.md)
+### [提议立法保护关键岗位员工不会因不打疫苗而被解雇](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [每日快报：第一个被引渡到美国的中共国间谍被判定试图窃取商业机密](/content/gnews/20/README.md)
+### [每日快报：第一个被引渡到美国的中共国间谍被判定试图窃取商业机密](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [推特警告：澳洲政府将解决网上匿名账户问题](/content/gnews/21/README.md)
+### [推特警告：澳洲政府将解决网上匿名账户问题](/content/gnews/28/README.md)
  ` 走进澳洲`
 
-### [中共公布前三季度31家A股上市房企亏损，经济寒冬已经来临](/content/gnews/22/README.md)
+### [中共公布前三季度31家A股上市房企亏损，经济寒冬已经来临](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线：泰德·克鲁兹提出法案阻止为未成年人注射中共病毒疫苗](/content/gnews/23/README.md)
+### [秘翻在线：泰德·克鲁兹提出法案阻止为未成年人注射中共病毒疫苗](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共公布前三季度31家A股上市房企亏损，经济寒冬已经来临](/content/gnews/24/README.md)
+### [中共公布前三季度31家A股上市房企亏损，经济寒冬已经来临](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [幣圈新聞動態：HCN價格5日回調至13HDO後反彈，目前在18HDO附近震蕩](/content/gnews/25/README.md)
+### [幣圈新聞動態：HCN價格5日回調至13HDO後反彈，目前在18HDO附近震蕩](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [墙内油盐酱醋组团涨价](/content/gnews/26/README.md)
+### [墙内油盐酱醋组团涨价](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [接种疫苗后仍感染 加拿大魁北克不再强制推行疫苗](/content/gnews/27/README.md)
+### [接种疫苗后仍感染 加拿大魁北克不再强制推行疫苗](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [美国11个州就拜登政府的疫苗新规提起诉讼](/content/gnews/28/README.md)
+### [美国11个州就拜登政府的疫苗新规提起诉讼](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美共和党参议员联名提出《台湾吓阻法案》强化台湾自卫能力](/content/gnews/29/README.md)
+### [美共和党参议员联名提出《台湾吓阻法案》强化台湾自卫能力](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [有声| 福奇曾资助20余名美国科学家与武汉病毒研究所深度合作](/content/gnews/30/README.md)
+### [有声| 福奇曾资助20余名美国科学家与武汉病毒研究所深度合作](/content/gnews/37/README.md)
  ` MOSREC`
 
-### [北京上月七万多起癌症两万起猝死,濒死者直接拉北门烧掉](/content/gnews/31/README.md)
+### [北京上月七万多起癌症两万起猝死,濒死者直接拉北门烧掉](/content/gnews/38/README.md)
  ` NewFOC`
-
-### [秘翻在线：国会山就预先授权总统军事保卫台湾进行辩论中](/content/gnews/32/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声|参议院兰德·保罗呼吁福奇辞职](/content/gnews/33/README.md)
- ` MOSREC`
-
-### [秘翻在线：众议院共和党高层将采取行动, 阻止拜登的强制疫苗规定](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [爆料革命新中国联邦既带来巨额财富还让战友成为无苗族](/content/gnews/35/README.md)
- ` NewFOC`
-
-### [秘翻在线：美CDC主任参院听证 拒绝透露职员接种率](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声|布朗参议员和同僚挑战新冠疫苗强制令](/content/gnews/37/README.md)
- ` MOSREC`
-
-### [秘翻在线：罗杰斯寻求中共病毒的治疗而不是打疫苗](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [2008金融危机无足轻重，美国市场正在酝酿金融海啸](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`

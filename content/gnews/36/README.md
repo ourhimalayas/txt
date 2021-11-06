@@ -2,20 +2,49 @@
 ---
 
 
-## 秘翻在线：美CDC主任参院听证 拒绝透露职员接种率
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1642939/)
+## 美共和党参议员联名提出《台湾吓阻法案》强化台湾自卫能力
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1642998/)
 
-**编译：致敬香港！**
+作者：纽约香草山医疗部 – 云豹
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-06-132700.jpg)
-“零对冲”网11月5日报道，美国疾控预防中心（CDC）主任瓦伦斯基（Rochelle Walensky）在4日举行的参议院卫生委员会听证中，极力回避透露CDC职员已接种新冠疫苗的比率。
 
-听证会上，共和党参议员、医生卡西迪（Bill Cassidy）提问CDC职员已接种新冠疫苗的比率，瓦伦斯基却只说“我们正积极宣传、鼓励所有员工接种。”会议尾声，共和党首席议员伯尔（Richard Burr）再次质询瓦伦斯基“是不知道CDC员工接种人数、还是只是不想回答？”她继续闪烁其词，称“我们仍在积极收集数据、并实时更新。”伯尔于是要求CDC在11月8日周一前呈报数据，瓦伦斯基辩称，“我们正努力更新数据，但我还得跟工作人员确认后才能知道周一能否提供数据。”伯尔回击指出，总统行政令规定所有联邦政府职员（包括CDC职员）须在11月8日前出示接种证明，否则将面临纪律处分，如果CDC到时候还在收集数据，那将如何按时执行？瓦伦斯基再次绕弯强调CDC正在努力，并会在适当期限前得到数据。伯尔反问，“如果CDC不需要遵守规则，那私营企业为什么要遵守？” 瓦伦斯基只有含糊其辞，称“我将确保我们遵守规则，希望其他人也能遵守。”卡西迪议员追问，CDC亚特兰大总部的职员是否仍有75%在远程办公，瓦伦斯基拒绝证实、但也未否认。
 
-关于疫苗的效力，伯尔议员提出：有以色列的研究发现自然免疫力比辉瑞疫苗提供的保护要高；其它研究也表明感染中共病毒康复后，记忆B细胞提供的自然免疫力可持续一年；而CDC近期也有简报认为自然免疫力可持续至少6个月。瓦伦斯基则将这些研究归为“回顾性研究、观察性研究，以及我们无法进行的前瞻性研究”，努力淡化这些数据的重要性。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-**新闻来源：**[CDC Director Refuses To Tell Senators How Many CDC Employees Are Fully-Vaxx’d](https://www.zerohedge.com/covid-19/cdc-director-refuses-tell-senators-how-many-cdc-employees-are-fully-vaxxd)
+
+
+美国参议院外交委员会共和党籍参议员里契于11月4日联合其他议员提出“台湾吓阻法案”。这是继2日参议院军委会参议员霍利提出“武装台湾法案”后，美国参议员在3天内提出的第2项助台法案。 显示美国政界越来越重视如何加强台湾的自卫能力，以对抗中共的威胁。
+
+法案要求，从2023至2032年的财政年度预算中，每年由美国国务院提供给台湾20亿美元的“外国军事融资”。要求修订武器出口管制法，让军事武器能更方便的转让给台湾。 法案生效后的180天内，美国国务卿与国防部长须向国会相关委员会递交年度报告，提供对台湾促进自我防卫能力的评估结果。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-41.jpg)
+这些参议员皆认为，中共持续在破坏印太地区的稳定，美国必须兑现捍卫台湾等盟友的承诺。 这项立法将确保美国能做好准备，并能在中共进一步侵犯台湾时对台湾提供援助。
+
+参考链接：
+[助台強化自衛能力 美參議員提台灣嚇阻法案](https://www.cna.com.tw/news/acul/202110280200.aspx)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：飞虹
+编辑：文徬
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

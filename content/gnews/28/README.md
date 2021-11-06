@@ -2,26 +2,42 @@
 ---
 
 
-## 美国11个州就拜登政府的疫苗新规提起诉讼
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1643002/)
+## 推特警告：澳洲政府将解决网上匿名账户问题
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1643034/)
 
-#### 翻译/撰稿：zzballack
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16361780901.png)
-图片来源：KCUR.org
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/be-completely-anonymous-online.jpg)
 
-据《新闻极限》（Newsmax）11月5日报道，美国11个州的总检察长11月5日对拜登政府提起诉讼，挑战一项针对员工人数超过100人的公司的新疫苗要求。
 
-美国安全与卫生署（OSHA）的新规要求雇员超过100人的公司需强制其员工接种中共病毒疫苗，或者每周接受核酸检测并且在工作时佩戴口罩。该规定将于2022年1月4日开始实施，一旦不遵守规定，每项违规行为将受到近14000美元的罚款。
 
-这起向位于密苏里州圣路易斯市（St. Louis）的第八巡回上诉法院提起的诉讼认为，强制接种中共病毒疫苗的权力属于各州，而不是联邦政府。
+图片来源：vpncreative.ne
 
-密苏里州总检察长埃里克·施米特（Eric Schmitt）在法庭文件中说：“这个强制令是违宪的、不合法的，也是不明智的。密苏里州雇佣了130万名员工的总计3443名私营雇主可能会受到疫苗新规的影响。我上诉的目的是保护个人自由和密苏里州的企业，并回击那些仅仅想要权力和控制的官僚暴君。”
 
-加入密苏里州诉讼的还有阿拉斯加、亚利桑那、阿肯色、蒙大拿、内布拉斯加、新罕布什尔、北达科他、南达科他和怀俄明州的共和党总检察长以及爱荷华州的总检察长–民主党人汤姆·米勒（Tom Miller），另外还有一些私营雇主、非营利和宗教组织。
+#### 编译：小红帽
 
-新闻来源：[11 States File Suit Against Biden’s Business Vaccine Mandate](https://www.newsmax.com/streettalk/gop-pushback-covid-biden-businesses/2021/11/05/id/1043442/)
+推特（Twitter）警告说，政府试图解决社交媒体上匿名账户的问题，对减少网络滥用方面是“无效”。推特称这是一个“社会问题”，无法通过“技术解决方案”解决。
+
+周五，在推特联合组织的一个小组讨论会上，该网站在澳大利亚和新西兰的公共政策总监卡拉·海因斯利（Kara Hinesley）警告说，对匿名的担忧已经“过于简单化了”，系统设计的改变不能解决社会问题。
+
+据ZDNet报道，海因斯利认为，识别用户“可能会损害 [那些] 依赖匿名和假名上网的人”，例如举报人、持不同政见者和家庭虐待受害者等。
+
+澳大利亚总理斯科特·莫里森 (Scott Morrison)曾谴责社交媒体允许匿名 “摧毁人们的生活……而不受惩罚”。他警告社交媒体公司，法规将让他们对网络上的有毒内容和仇恨言论“负责”。
+
+通过《在线安全法》，澳大利亚政府将赋予电子安全专员权力，迫使社交媒体巨头披露那些被控的网络欺凌者的个人信息。新权力预计将于2022年生效。
+
+预计英国政府也将在今年推出其《在线安全法案》，据报道该法案旨在惩罚社交媒体上扯皮行为的潜在“有害影响”。
+
+**参考新闻：**[Banning anonymity online won’t curb hate, Twitter official says — RT World News](https://www.rt.com/news/539475-twitter-banning-anonymity-reducing-abuse/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

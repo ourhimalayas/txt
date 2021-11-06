@@ -2,42 +2,37 @@
 ---
 
 
-## 数千名抗议者在墨尔本游行反对疫苗规定和新流行病法案
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1643134/)
+## 银河快讯：日本或向儿童发10万日元现金；德国军舰近20年首次访问日本
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1643218/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-20.png)[图片来源](https://boxun.com)
+**1.****日本或向18岁以下的儿童发放10万日元的现金**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/3a8970e759bb03f2cf01bb5dcde48915.jpg)
+[据共同社11月5日报道，日本政府和执政党正在考虑为18岁或以下的儿童每人提供10万日元（880美元），试图缓解疫情带来的影响。如果一切顺利，现金发放计划将被纳入首相岸田文雄计划在11月中旬制定的价值“几十万亿日元”的新经济刺激计划。但有些人对不考虑收入水平而发放这么多钱的现金持谨慎态度。多达2000万名儿童将有资格获得这一福利，这将需要大约2万亿日元，而此时日本已经背负了所有国家中最多的债务，超过了其经济规模的两倍。](https://english.kyodonews.net/news/2021/11/37472f159862-breaking-news-japan-mulls-100000-yen-cash-handout-for-all-aged-18-or-younger.html)
 
+**2.****全日空与维珍轨道公司将合作开展卫星发射业务**
 
+[据共同社11月5日报道，全日空控股公司和维珍轨道公司表示，他们已经签署了一份谅解备忘录，在日本开展从飞机上发射卫星的业务合作。两家公司将从2022年开始，通过从日本西南部大分县的一个机场发射维珍轨道公司的喷气机，争取在10年内发射20颗卫星。全日空公司的母公司全日空控股将出资建造移动地面支持设备，以准备维珍轨道公司的LauncherOne火箭系统。全日空还将负责在日本获得监管部门的批准和营销。](https://english.kyodonews.net/news/2021/11/1ad9991d225e-ana-virgin-orbit-to-cooperate-in-satellite-launch-business-in-japan.html)
 
-图片来源：NCA NewsWire / Luis Ascui
+**3.****三大钢铁企业提高本年度最终利润**
 
+[据NHK 11月5日报道，三大钢铁巨头新日本制铁公司、JFE控股公司和神户制钢所宣布了其4月至9月的全集团财务业绩，所有三大钢铁制造商都上调了本财年的最终盈利预测。随着中共病毒疫情的好转，经济活动的正常化，汽车和其他制造业对钢铁产品的需求有所恢复，在煤炭和铁矿石等原材料价格上涨的背景下，钢铁产品的价格被提高。新日本制铁公司将其预测从3700亿日元修正为5200亿日元，JFE控股公司将其预测从2400亿日元修正为2500亿日元，神户制钢株式会社将其预测从400亿日元修正为500亿日元。](https://www3.nhk.or.jp/news/html/20211105/k10013336431000.html?utm_int=news-business_contents_list-items_005)
 
-#### 编译：小红帽
+**4.****德国军舰近20年来首次访问日本**
 
-数以千计的抗议人士涌上墨尔本中央商务区的街道，以抗议维多利亚州新的流行病法案和州政府强加的疫苗规定。
+[据ANN 11月5日报道，防卫大臣视察了一艘停靠在东京港口的德国海军护卫舰，表明日本打算进一步发展与德国的防务合作。他说：“巴伐利亚号的停靠不仅象征着双边关系的加强，而且还为日本和德国未来进一步发展防务合作提供了一个跳板。”巴伐利亚号护卫舰自4日以来一直在关东地区南部水域与自卫队进行联合训练演习，并于4月5日下午2点左右在东京靠港。巴伐利亚号的目的是监督朝鲜的“海上贸易”做法，即朝鲜违反联合国制裁在海上转运货物，同时也是为了遏制中共国在印太地区日益增长的影响力。](https://news.yahoo.co.jp/articles/348bc0bfd6d6081fce70d25da24e9309db05688f)
 
-抗议者举着包括“杀死法案”在内的标语，同时呼吁维州州长丹尼尔·安德鲁斯（Daniel Andrews）辞职。
+**5.COP26：日本没有参加“无煤”声明**
 
-安德鲁斯政府的大流行管理法案将赋予州长宣布大流行的权力，并以三个月为单位延长，同时赋予卫生部长无与伦比的空间来执行有争议的公共卫生命令。
+[据产经新闻 11月5日报道，在《联合国气候变化框架公约》（UNFCCC）第26次缔约方会议（COP26）上，摆脱排放大量二氧化碳（CO2）的煤炭的努力正在加速进行。 4日，主持会议的英国宣布，有40多个国家赞同一项旨在逐步淘汰燃煤发电的声明。 然而，日本、美国、中共国、澳大利亚、印度和其他国家并没有加入这一声明，揭示了在打击煤炭方面的差距。据英国政府称，190个国家和机构，包括金融机构和公司，已经认可了该声明。](https://news.yahoo.co.jp/articles/3c53cd263a154d0c98cf470ce9c7840554a9e29b)
 
-维多利亚州的反对派领导马修·盖伊（Matthew Guy）强烈地反对该法案，宣称如果他在明年11月当选，将立即废除该法案。
+**6.****在芯片缺乏的情况下，本田削减2021财年净利润前景和汽车销售目标**
 
-昆士兰州参议员兼助理总检察长阿曼达·斯托克 (Amanda Stoker) 周五表示，在经历了近两年的大范围封锁和中共病毒（COVID-19）限制之后，安德鲁斯先生“加倍行使了严厉的权力”。
+[据共同社11月5日报道，本田汽车公司周五将其当前业务年度的净利润前景下调17.2%，至5,550亿日元（49亿美元），因为零部件短缺促使其汽车销售目标大幅削减，而且原材料成本飙升也对底线造成了压力。同时，销售额现在被认为是14.60万亿日元，低于其先前预计的15.45万亿日元。最新的销售前景仍然比上一财年增长了10.9%。本田将2021财年的汽车年销售目标进一步降低了65万辆，至420万辆。这一数字低于2020财年455万辆的销量。](https://english.kyodonews.net/news/2021/11/0db34a6d2237-update2-honda-cuts-fy-2021-net-profit-outlook-car-sales-target-amid-chip-crunch.html)
 
-斯托克女士告诉澳大利亚天空新闻：“政府应退一步说，‘我们如何从中吸取教训，以便在类似的情况下，不会不必要地限制个人的生存能力’。”
-
-**参考新闻：**[Thousands of protesters return to Melbourne’s CBD to rally against vaccine mandates and new pandemic laws | Sky News Australia](https://www.skynews.com.au/australia-news/coronavirus/thousands-of-protesters-return-to-melbournes-cbd-to-rally-against-vaccine-mandates-and-new-pandemic-laws/news-story/2d30023e928c4d6c1de8c04babe0cdd9)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：Windfish
 
  
 
