@@ -16,6 +16,8 @@
 ---
 ## 頁面 16/37 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [37](/content/README-37.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)
 
+[文字版：2019年12月9日上午郭文贵报平安直播](/content/2019/12/20191211-5104769377059048027.md)
+
 [文字版：2019年12月8日文贵报平安](/content/2019/12/20191210-8975996201411180459.md)
 
 [文字版：2019年12月7日郭先生对话钢铁侠](/content/2019/12/20191209-6749356903573144336.md)
@@ -63,8 +65,6 @@
 [文字版： 2019年11月14日郭文贵先生华盛顿直播：香港一定赢！](/content/2019/11/20191115-1929062712375432404.md)
 
 [文字版：2019年11月12日郭文贵先生关于香港最新局势紧急直播](/content/2019/11/20191113-7768308991130879569.md)
-
-[文字版：2019年11月11日文贵班农谈](/content/2019/11/20191113-3588929521846219666.md)
 
 
 ## 頁面 16/37 [**<**](/content/README-15.md) [1](/content/README.md) ... [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) **16** [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) [21](/content/README-21.md) ... [37](/content/README-37.md) [**>**](/content/README-17.md) [查看全部](/content/README-all.md)

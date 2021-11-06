@@ -16,6 +16,8 @@
 ---
 ## 頁面 12/37 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [37](/content/README-37.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
 
+[文字版:2020年4月14日郭先生G-TV直播](/content/2020/04/20200418-2928137426806462584.md)
+
 [文字版:2020年4月11日郭先生GTV直播](/content/2020/04/20200415-8766682257981187519.md)
 
 [文字版:2020年4月10日郭先生直播](/content/2020/04/20200415-6756741546928314849.md)
@@ -63,8 +65,6 @@
 [文字版：2020年3月13日文贵船上分享美食和预告周六早上直播](/content/2020/03/20200316-6955651449637446921.md)
 
 [文字版:2020年3月12日谈华尔街股市暴跌，世界资产重新分配](/content/2020/03/20200314-7640814044022850534.md)
-
-[文字版：2020年3月11日文贵谈未来3到5年能健康地活着就是最幸福的事了](/content/2020/03/20200314-8958776205330396975.md)
 
 
 ## 頁面 12/37 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [37](/content/README-37.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)

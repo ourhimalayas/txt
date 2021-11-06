@@ -16,6 +16,8 @@
 ---
 ## 頁面 21/37 [**<**](/content/README-20.md) [1](/content/README.md) ... [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) **21** [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) ... [37](/content/README-37.md) [**>**](/content/README-22.md) [查看全部](/content/README-all.md)
 
+[文字版：郭先生2019年7月7日聊聊我们的郭媒体，感谢战友们的辛勤付出](/content/2019/07/20190708-1629076298190675341.md)
+
 [文字版：2019年7月6日与彭文正先生连线----灭共保台](/content/2019/07/20190707-3878113483367388120.md)
 
 [文字版：2019年7月5日文贵船上直播](/content/2019/07/20190706-5106022506023396161.md)
@@ -63,8 +65,6 @@
 [文字版：2019年6月5日 庞皮奥的讲话与香港 6.9 大游行](/content/2019/06/20190606-5836717562215401221.md)
 
 [文字版2019年5月31日文貴試直播](/content/2019/06/20190605-8092628019236727777.md)
-
-[文字版：2019年6月2日，班農與郭文貴談林鄭賣港](/content/2019/06/20190604-5110748633595841625.md)
 
 
 ## 頁面 21/37 [**<**](/content/README-20.md) [1](/content/README.md) ... [16](/content/README-16.md) [17](/content/README-17.md) [18](/content/README-18.md) [19](/content/README-19.md) [20](/content/README-20.md) **21** [22](/content/README-22.md) [23](/content/README-23.md) [24](/content/README-24.md) [25](/content/README-25.md) [26](/content/README-26.md) ... [37](/content/README-37.md) [**>**](/content/README-22.md) [查看全部](/content/README-all.md)
