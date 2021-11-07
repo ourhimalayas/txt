@@ -16,6 +16,10 @@
 ---
 ## 頁面 30/37 [**<**](/content/README-29.md) [1](/content/README.md) ... [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) **30** [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) ... [37](/content/README-37.md) [**>**](/content/README-31.md) [查看全部](/content/README-all.md)
 
+[郭文贵先生与陈志煜对话录音（中英字幕）](/content/2018/04/20180425-6089618542439587251.md)
+
+[文字版4月24日在重庆公安认罪的陈氏兄弟是现任常委秘书的家人！](/content/2018/04/20180425-1035788071787459036.md)
+
 [文字版4月22日2个视频1.文贵要射向明镜的10个问彈！2.文贵报平安视频盗国贼新的一波行动](/content/2018/04/20180422-7434374756497601766.md)
 
 [文字版4月19号文贵谈明镜](/content/2018/04/20180422-6701679411518433297.md)
@@ -61,10 +65,6 @@
 [ 文字版： 3月28日香港黑警察与金正恩访华！](/content/2018/04/20180418-7167850208053713596.md)
 
 [文字版：2018年3月27号郭先生2个视频1.海航要重新洗牌．王岐山要干什么大事？2. 不允许任何劵商买卖方正股票为的啥？](/content/2018/04/20180418-7199501813043943627.md)
-
-[文字版：2018年3月26日2个视频1.不能将爆料变成娱乐！2.为什么他们让一个女人祼体站几个小时？](/content/2018/04/20180418-2462703104101503083.md)
-
-[文字版：3月24号郭先生平安视频向大家汇报．昨天的会议交流＂中南妖与中南怪＂情况！一切都是刚刚开始](/content/2018/04/20180418-6369908428549122870.md)
 
 
 ## 頁面 30/37 [**<**](/content/README-29.md) [1](/content/README.md) ... [25](/content/README-25.md) [26](/content/README-26.md) [27](/content/README-27.md) [28](/content/README-28.md) [29](/content/README-29.md) **30** [31](/content/README-31.md) [32](/content/README-32.md) [33](/content/README-33.md) [34](/content/README-34.md) [35](/content/README-35.md) ... [37](/content/README-37.md) [**>**](/content/README-31.md) [查看全部](/content/README-all.md)

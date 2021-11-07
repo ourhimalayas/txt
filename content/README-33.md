@@ -16,6 +16,10 @@
 ---
 ## 頁面 33/37 [**<**](/content/README-32.md) [1](/content/README.md) ... [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) **33** [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [**>**](/content/README-34.md) [查看全部](/content/README-all.md)
 
+[2017/12/02《澳洲之声》重磅访谈 / 昭明专访袁红冰（之六）：借诸郭文贵向伪类亮剑之天赐良机，发起重建中国海外民主运动道德形象与政治灵魂的运动！](/content/2018/04/20180418-3422500630253145548.md)
+
+[2017年12月1号郭宝胜：就我父母被家乡公安施压的三点声明、推筹会最该被邀参加世界政党大会《今日热评》](/content/2018/04/20180418-1392173713763860435.md)
+
 [BBG Watch：美国-中国经济与安全审查委员会对郭文贵和美国之音的调查结果](/content/2018/04/20180418-1652882263538149002.md)
 
 [曹长青：谁在制造“民运”乱象？郭文贵错在哪里？（视频文字稿）](/content/2018/04/20180418-6784868507419879908.md)
@@ -61,10 +65,6 @@
 [（文字稿）曹长青：滕彪八个不择手段诋毁郭文贵，要做名副其实的“乱伦彪”？](/content/2018/04/20180418-1176717369305738792.md)
 
 [Breitbart 报道：中国报道特朗普与习近平在反恐及遣返“逃犯“等方面取得“重大一致意见“](/content/2018/04/20180418-7095490617264238723.md)
-
-[Bill Gertz: 特朗普在中美高峰会上反对加强与中国的执法关系](/content/2018/04/20180418-2982915845250551148.md)
-
-[11月8日文贵twitter再次被封7天后的报平安视频](/content/2018/04/20180418-7262790199483543364.md)
 
 
 ## 頁面 33/37 [**<**](/content/README-32.md) [1](/content/README.md) ... [28](/content/README-28.md) [29](/content/README-29.md) [30](/content/README-30.md) [31](/content/README-31.md) [32](/content/README-32.md) **33** [34](/content/README-34.md) [35](/content/README-35.md) [36](/content/README-36.md) [37](/content/README-37.md) [**>**](/content/README-34.md) [查看全部](/content/README-all.md)
