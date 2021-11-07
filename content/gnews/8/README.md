@@ -2,21 +2,28 @@
 ---
 
 
-## 雅典娜时报-第105期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1645214/)
+## GTV新闻访谈简报|2021年11月6日晚
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645228/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/1106text-SC.png)
+校对：Stay文苑
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/9-1.png)
-***发布：小红帽***
+编辑：Stay文苑
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+发稿：Stay文苑
+
+视频参看：[11.6 晚GTV新闻访谈](https://gtv.org/broadcast/watch/61871db211d186296802acfd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://紐約香草山農場%20%20|%20GTV-香草山之聲%20紐約香草山農場GTV-%20|%20MOS%20TALK%20香草山訪談%20紐約香草山農場%20|%20GETTR%20紐約香草山農場%20｜YouTube%20歡迎加入香草山農場%20%20|%20Discord)
 
  
 

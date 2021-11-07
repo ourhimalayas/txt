@@ -2,28 +2,50 @@
 ---
 
 
-## 美国联邦法院暂缓执行拜登违反宪法的私人雇主疫苗强制政策
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1645131/)
+## 辉瑞新冠病毒疫苗2021年销售额有望达到360亿美元
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1645132/)
 
-**整理：**Kari 
-**编辑：**李易通
+![](https://assets.gnews.org/wp-content/uploads/2021/11/110507-1.jpg)图片：@childrenshealthdefense.org
+**摘要翻译：**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/联邦法院-1-e1636248415230.jpg)图片来自网络
+辉瑞公司周二宣布，该公司预计今年将从与BioNTech公司合作开发的新冠病毒疫苗中，获得约360亿美元的收入——比此前估计的335亿美元有所增加。
+
+辉瑞的新冠病毒疫苗迅速成为世界上销量最高的药物。在财报电话会议上，辉瑞公司首席执行官Albert Bourla表示，仅在第三季度，该疫苗就贡献了130亿美元的收入，使今年的总收入达到243亿美元。
+
+辉瑞公司表示，在税前及与BioNTech分割利润后，其疫苗的利润率是“20多倍”，这意味着仅辉瑞今年的疫苗利润就可能接近100亿美元。2021年疫苗的销售额，大约相当于辉瑞公司预计的其2021年其它业务收入的80%。
+
+根据承诺的17亿剂疫苗的采购合同，该公司预测2022年的销售额为290亿美元。 据Axios报道，辉瑞公司表示，明年将生产多达40亿剂疫苗，这意味着它仍有23亿剂可以销售。
+
+在美国和欧洲，辉瑞公司得益于，拥有首个被批准用于加强剂量和用于青少年及儿童的疫苗。据该公司称，截至10月31日，其在美国的平均市场份额为74%，在欧洲为80%，分别高于4月份的56%和70%。
+
+随着美国食品和药物管理局 (FDA) 最近批准该疫苗用于5至11岁的儿童，辉瑞公司的优势可能会增加。
+
+辉瑞的目标可能是长期的：如果一年一次或半年一次的新冠病毒加强针成为现实，辉瑞公司可能正准备让自己在竞争中名列前茅。
+
+通过“赞助”电视新闻和信息节目，辉瑞公司的目的可能不仅仅是提高疫苗接种率：他们可能希望影响这些媒体的新闻报道，以各种方式使这些报道有利于他们。
+
+**简评：**
+
+辉瑞公司在CCP的新冠病毒灾难中所发的不义之财，将给人类带来严重的后果。很多报导辉瑞公司伪造数据，并大量贿赂。辉瑞公司在疫苗的有效性上撒谎，并在疫苗成分以及可能产生的严重副作用上误导了客户。辉瑞公司被指控贿赂政府和主流媒体，但其均不予回应。
+
+新闻链接：[Top-Selling Drug in the World — Pfizer COVID Vaccine 2021 Sales on Track to Hit $36 Billion](https://childrenshealthdefense.org/defender/pfizer-covid-vaccine-sales-billions/)
+
+***翻译/简评**：希望*
+
+***校对**：Julia Win*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-奥斯丁–今天（2021年11月6日），第五巡回上诉法院批准了德克萨斯公共政策基金会（TPPF）的紧急动议，以 “该疫苗强制政策存在严重的法律和宪法问题 “为由，暂停执行拜登政府的私人雇主疫苗强制授权。
+编辑：【英国伦敦喜庄园编辑部】
 
-TPPF（Texas Public Policy Foundation）代表德克萨斯州临时人员企业联盟提出动议，认为国会从未赋予职业安全与健康管理局试图结束大流行病的权力，也没有权力以这种方式监管那些不在州界以外经营的公司。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-“TPPF总法律顾问罗伯特-亨内克（Robert Henneke）说：”第五巡回法庭迅速转向，暂停联邦政府的私人雇主疫苗强制政策，表明它存在深刻而明显的宪法问题。”这应该向白宫发出一个信息，这项疫苗强制政策不仅是考虑不周，而且是违反宪法的。
 
-***发布：***Candy
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

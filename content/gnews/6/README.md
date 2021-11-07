@@ -2,28 +2,48 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月6日晚
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645228/)
+## 台湾一男子接种两针CCP病毒疫苗后死亡
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645249/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/1106text-SC.png)
-校对：Stay文苑
+作者：英国喜庄园 – I770775
 
-编辑：Stay文苑
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-发稿：Stay文苑
+11月2日，台湾多家媒体报道，台湾南投县一名46岁的男子，接种第二针阿斯利康疫苗后，很快死亡。
 
-视频参看：[11.6 晚GTV新闻访谈](https://gtv.org/broadcast/watch/61871db211d186296802acfd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/214298.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+据了解，该名男子在今年7月接种了第一针疫苗，当时就曾发生严重的不良反应。按规定，他在10月又去接种了第二针，不幸的是，就在他接种第二针疫苗后不久，疫苗导致的副作夺去了男子年轻的生命。
+
+随着全世界CCP病毒疫苗的大面积强制接种，各国由疫苗导致死亡的人数一直在不断上升。
+台湾本来是全球疫情防控做得最好的几个国家之一，确诊人数比例极低，但由于政府无视病毒和疫苗的真相，全民强行推打毒疫苗，使全岛的确诊病例大幅度攀升，由接种疫苗导致死亡的人数比例也排在世界前列。
+
+截至10月7日16时，台湾由疫苗接种引发的死亡人数达850人，岛内所有新冠确诊死亡的人数为845人，“台湾接种疫苗死亡人数首超确诊死亡人数”引起不少网友热议，这一话题也一度冲上新浪微博的热搜榜单。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+- [http://www.taihainet.com/news/twnews/twsh/2021-11-03/2567403.html](http://www.taihainet.com/news/twnews/twsh/2021-11-03/2567403.html)
+- [http://www.chinanews.com/tw/2021/10-09/9582221.shtml](http://www.chinanews.com/tw/2021/10-09/9582221.shtml)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+
+***编辑***：***童谣***
+***校对/发稿：海阔天空1***
 
 **更多资讯，更多关注**
 
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://紐約香草山農場%20%20|%20GTV-香草山之聲%20紐約香草山農場GTV-%20|%20MOS%20TALK%20香草山訪談%20紐約香草山農場%20|%20GETTR%20紐約香草山農場%20｜YouTube%20歡迎加入香草山農場%20%20|%20Discord)
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

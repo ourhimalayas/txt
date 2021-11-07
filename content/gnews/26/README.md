@@ -2,44 +2,24 @@
 ---
 
 
-## 7个月40次核酸检测，中共如此薅羊毛
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645055/)
+## 美联邦法院冻结拜登政府对企业强制疫苗令
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1645061/)
 
-作者：纽约香草山农场 – 鹰(文言)
+#### 撰稿：罗马骑士
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-95.png)
+根据《今日俄罗斯新闻》2021 年 11 月 6 日报道，美国联邦上诉法院已暂停总统乔·拜登的企业雇主疫苗接种授权，因为此授权有违宪的问题而被冻结。
 
-疫情导致瑞丽市常住人口从50万减至20万，市民7个月间歇封闭管理期间核酸检测次数多达40次，某网约车司机7个月90次核酸检测，平均每周3.2次。虽然当地政府称全员核酸检测费用由政府承担，但市政府的医疗开支归根结底依旧来自于底层民众的税收。
+拜登的强制执行令，就是拥有 100 名或更多员工的公司，必须要求员工接种 Covid-19 疫苗或每周接受检测。 在美国第五巡回上诉法院介入之前，许多共和党的州和企业，已经对拜登的有争议的授权提出了法律挑战。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/下载-2.jpg)
+由于“严重的法定和宪法上的问题”，法院于本周六，在授权1 月截止日期前，搁置了这项强制令。上诉法院的请愿书来自企业和多个州，包括德克萨斯州。
 
-根据2021年2月初瑞丽市人民医院核酸检测费用下调至76元/次，虽然混检价格略低，但如此频繁的核酸检测，说明检测试剂的精准度低下，显露中共利用疫情变相收割民财的行径。核酸检测以及封闭管理不仅增大了民众的生活开支，更造成严重的断供和断收，让百姓债务压力激增。
+根据法院的决定，政府必须在周一之前对请愿人提出的“永久禁令”作出回应。
 
-（本文仅代表作者观点）
-
-参考阅读：
-
-- [https://www.163.com/dy/article/GNI0NQU60534IAKI.html](https://www.163.com/dy/article/GNI0NQU60534IAKI.html)
-- [http://www.ruili.gov.cn/shrl/yl/content-182-7649-1.html](http://www.ruili.gov.cn/shrl/yl/content-182-7649-1.html)
-- [https://news.sina.com.cn/c/2021-10-30/doc-iktzscyy2622689.shtml](https://news.sina.com.cn/c/2021-10-30/doc-iktzscyy2622689.shtml)
+[文章来源](https://www.rt.com/usa/539556-court-freezes-biden-vaccine-mandate/)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
-
-***编辑***：***木白***
-***校对/发稿：海阔天空1***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
