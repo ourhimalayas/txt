@@ -2,17 +2,34 @@
 ---
 
 
-## 中共为了成功举办冬奥会，掩盖每天因疫苗死亡达十万人的事实
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1646648/)
+## 中共的打土豪运动继续蔓延
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1646699/)
 
-韩国首尔天池农场——–追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-08-at-00.25.15.jpeg)
-根据文贵先生11月7日的大直播爆料，中共的官员上星期给中央写报告说中国现在疫苗死亡案例，如脑梗、心梗、眼梗、车梗和冠状病毒的死亡病例，每天都在10万起以上。
+作者：英国喜庄园 – I770775
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月3日，据多家中共媒体报道，相声演员于谦旗下的矮马养殖公司被指隐瞒真实情况、弄虚作假，被列入经营异常名录。
 
-钟南山已经被干掉了，钟南山家族已经被抓了好几个了。有用吗？抓了钟南山咱（新中国联邦）高兴有啥用？没有钟南山还会有李南山。中共为了掩盖那十几万人的死亡，就为了成功举办一个冬奥会，这个国家已经没有希望了。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-4.jpeg)
 
-事实证明，普通的中国人在中共眼里就是它维持统治的工具而已。制造了病毒，把中国人当成他们疫苗的试验品，并不顾及这些普通人的生死存亡。钟南山也只是中共的一个棋子而已，没有利用价值了一样被丢弃。再一次证明只有消灭中国共产党，中国人民才有希望和未来。
+据了解，于谦的矮马养殖公司全称北京天精地华养殖有限公司，成立于2010年9月，经营范围包括家禽、家畜养殖，以及影视策划等。该公司的主推业务还包括设特兰矮马种群宠物公园，以及相关的儿童马术游乐园。
 
+据有关人士分析，于谦早先从主流相声院团辞职，随后加入民间相声团体，鉴于中共演艺界与中共各派系间错综复杂的关系，再加上中共动荡不安的经济现状与党内愈演愈烈的内斗拼杀，中共的打土豪运动或将继续蔓延至中共国内的各个角落。
+
+参考链接：[于谦养矮马的公司被列入经营异常：拥有国内最大设特兰矮马种群宠物公园](http://news.hexun.com/2021-11-05/204683829.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
