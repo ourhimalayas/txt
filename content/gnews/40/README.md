@@ -2,17 +2,36 @@
 ---
 
 
-## 中共为了成功举办冬奥会，掩盖每天因疫苗死亡达十万人的事实
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1646648/)
+## 首位被引渡的中共间谍 法庭裁定罪成
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1646685/)
 
-韩国首尔天池农场——–追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-08-at-00.25.15.jpeg)
-根据文贵先生11月7日的大直播爆料，中共的官员上星期给中央写报告说中国现在疫苗死亡案例，如脑梗、心梗、眼梗、车梗和冠状病毒的死亡病例，每天都在10万起以上。
+作者：MOS – 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月5日，美国俄亥俄州开庭审理了一宗涉及中共的间谍案，案件当中，徐某是首位被引渡到美国受审的中共间谍。对此，联邦陪审团一致裁定，中共间谍徐某罪名成立。
 
-钟南山已经被干掉了，钟南山家族已经被抓了好几个了。有用吗？抓了钟南山咱（新中国联邦）高兴有啥用？没有钟南山还会有李南山。中共为了掩盖那十几万人的死亡，就为了成功举办一个冬奥会，这个国家已经没有希望了。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-3.jpeg)
 
-事实证明，普通的中国人在中共眼里就是它维持统治的工具而已。制造了病毒，把中国人当成他们疫苗的试验品，并不顾及这些普通人的生死存亡。钟南山也只是中共的一个棋子而已，没有利用价值了一样被丢弃。再一次证明只有消灭中国共产党，中国人民才有希望和未来。
+据悉，徐某被指控从美国航空企业盗取商业秘密，而美国司法部对其的控告罪名包括：阴谋和企图实施经济间谍行为，以及盗窃商业机密罪。
 
+根据法庭文件显示，徐某曾使用多个身份进行间谍行为，其目标主要针对美国及海外的航空企业，试图盗取包含通用电气飞机引擎的复合材料叶片在内的各类航空相关技术。
+
+FBI助理局长艾伦指出， “这是由国家主导的间谍行为，其目的在于试图摧毁美国的经济”。 助理司法部长墨菲也称赞了美国法庭的裁决。
+
+参考链接：[Chinese spy convicted of trying to steal U.S. aviation secrets in historic trial](https://justthenews.com/government/security/chinese-spy-convicted-trying-stealing-us-aviation-secrets-historic-trial)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：Jack Li文阳
+编辑：Ivy001
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

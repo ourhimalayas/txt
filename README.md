@@ -15,125 +15,125 @@
 
 ---
 
-### [中共第十九届六中全会或将是习近平最后的绝唱](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [国际要闻汇编 11月7日](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [墙内要闻汇编 11月7日](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本要闻汇编 11月7日](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新中国联邦不是为了求人信任 我们是灭共的](/content/gnews/5/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [华夏视角系列之一：值喜币上市之际，谈战友之间的“三分清”](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美媒警示中共对美国的军事威胁日愈增长](/content/gnews/7/README.md)
- ` HimalayaRussia`
-
-### [中共不允许老百姓购买数字货币的真正原因是什么？](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
-
-### [西班牙团队利用拉曼光谱分析法在所有疫苗中发现氧化石墨烯](/content/gnews/9/README.md)
- ` 加拿大扬帆农场多伦多Gnews组 Himalaya Sailing Farm Toronto(CA)`
-
-### [墙内如何用身份证一次性过喜币KYC](/content/gnews/10/README.md)
- ` 加拿大扬帆农场多伦多Gnews组 Himalaya Sailing Farm Toronto(CA)`
-
-### [观点：我们的气候变化战略不能依赖中共国](/content/gnews/11/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [盖特是支持言论自由，反对取消文化的人完美的地方](/content/gnews/12/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [11/7/2021文贵爆料: Kraken拥有国家银行执照，是加密货币领域最大的独角兽之一](/content/gnews/13/README.md)
- ` 秘密翻译组-原创组`
-
-### [疫苗强制令引发的警告、诉讼和机场骚乱在全国层出不穷](/content/gnews/14/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [乌克兰人抗议接种疫苗，因为COVID病例激增](/content/gnews/15/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [疫苗可视作有预谋的、一级谋杀和种族灭绝](/content/gnews/16/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [欧盟等32国取消中共国贸易优惠待遇](/content/gnews/17/README.md)
+### [反疫苗人士批评《芝麻街》主角大鸟对儿童进行政治宣传](/content/gnews/1/README.md)
  ` 日本东京方舟农场`
 
-### [护士抗议者：“目前38个重症病人中有30个打了疫苗”](/content/gnews/18/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [美国联邦上诉法庭对拜登政府的疫苗接种令发出冻结令](/content/gnews/2/README.md)
+ ` 日本东京方舟农场`
 
-### [纳瓦罗《在川普时代》一书中揭露福奇在白宫犯下的罪行](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [CNN刊文污蔑班农先生](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [美国务院声明美方“一个中国”政策有异于中共的版本](/content/gnews/20/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [美前国防高官：中共政权之邪恶如同纳粹](/content/gnews/4/README.md)
+ ` 日本东京方舟农场`
 
-### [NFL球员亚伦·罗杰斯解释他为何反对疫苗强制令](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [美国共和党全国委员会起诉联邦政府，要求停止强制 COVID-19疫苗令](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [国会议员兰德质询福奇，指控NIH资助中共病毒增强实验](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [中共第十九届六中全会或将是习近平最后的绝唱](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [瑞德西韦致死的患者可能超过中共病毒](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [国际要闻汇编 11月7日](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [如果足够早地进行治疗，中共病毒比流感的危害还小](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [墙内要闻汇编 11月7日](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|新晋纽约市长力争加密货币先机](/content/gnews/25/README.md)
- ` MOSREC`
+### [日本要闻汇编 11月7日](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|喜币价格上涨200倍，估值突破两万亿美元](/content/gnews/26/README.md)
- ` MOSREC`
+### [新中国联邦不是为了求人信任 我们是灭共的](/content/gnews/10/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [罗伯特·肯尼迪呼吁全球罢工，维护自己的权利](/content/gnews/27/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [华夏视角系列之一：值喜币上市之际，谈战友之间的“三分清”](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年11月7日郭文贵先生大直播重点及概要](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [GTV新闻访谈简报|2021年11月7日早](/content/gnews/29/README.md)
- ` 纽约香草山MOS01`
-
-### [疫苗强制令是基于医疗和接种状况的新型种族隔离制度](/content/gnews/30/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [纽约市民抗议强制给小孩接种疫苗](/content/gnews/31/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [辉瑞与多国签霸王合同，疫苗恐怖主义横行](/content/gnews/32/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [有声|欧洲央行表示需要发行数字货币](/content/gnews/33/README.md)
- ` MOSREC`
-
-### [美国取消与主要 COVID-19 疫苗制造商的合同](/content/gnews/34/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美国联邦上诉法院冻结拜登政府的企业疫苗强制令](/content/gnews/35/README.md)
- ` GTV新闻访谈`
-
-### [美两议员提议案支持立陶宛加强与台湾的关系](/content/gnews/36/README.md)
+### [美媒警示中共对美国的军事威胁日愈增长](/content/gnews/12/README.md)
  ` HimalayaRussia`
 
-### [中共的打土豪运动继续蔓延](/content/gnews/37/README.md)
- ` GTV新闻访谈`
+### [中共不允许老百姓购买数字货币的真正原因是什么？](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [文贵爆料 7/11: 留住喜币，草根也能笑傲江湖](/content/gnews/38/README.md)
+### [西班牙团队利用拉曼光谱分析法在所有疫苗中发现氧化石墨烯](/content/gnews/14/README.md)
+ ` 加拿大扬帆农场多伦多Gnews组 Himalaya Sailing Farm Toronto(CA)`
+
+### [墙内如何用身份证一次性过喜币KYC](/content/gnews/15/README.md)
+ ` 加拿大扬帆农场多伦多Gnews组 Himalaya Sailing Farm Toronto(CA)`
+
+### [观点：我们的气候变化战略不能依赖中共国](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [盖特是支持言论自由，反对取消文化的人完美的地方](/content/gnews/17/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [11/7/2021文贵爆料: Kraken拥有国家银行执照，是加密货币领域最大的独角兽之一](/content/gnews/18/README.md)
  ` 秘密翻译组-原创组`
 
-### [首位被引渡的中共间谍 法庭裁定罪成](/content/gnews/39/README.md)
+### [疫苗强制令引发的警告、诉讼和机场骚乱在全国层出不穷](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [乌克兰人抗议接种疫苗，因为COVID病例激增](/content/gnews/20/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [疫苗可视作有预谋的、一级谋杀和种族灭绝](/content/gnews/21/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [欧盟等32国取消中共国贸易优惠待遇](/content/gnews/22/README.md)
+ ` 日本东京方舟农场`
+
+### [护士抗议者：“目前38个重症病人中有30个打了疫苗”](/content/gnews/23/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [纳瓦罗《在川普时代》一书中揭露福奇在白宫犯下的罪行](/content/gnews/24/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国务院声明美方“一个中国”政策有异于中共的版本](/content/gnews/25/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [NFL球员亚伦·罗杰斯解释他为何反对疫苗强制令](/content/gnews/26/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [国会议员兰德质询福奇，指控NIH资助中共病毒增强实验](/content/gnews/27/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [瑞德西韦致死的患者可能超过中共病毒](/content/gnews/28/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [如果足够早地进行治疗，中共病毒比流感的危害还小](/content/gnews/29/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [有声|新晋纽约市长力争加密货币先机](/content/gnews/30/README.md)
+ ` MOSREC`
+
+### [有声|喜币价格上涨200倍，估值突破两万亿美元](/content/gnews/31/README.md)
+ ` MOSREC`
+
+### [罗伯特·肯尼迪呼吁全球罢工，维护自己的权利](/content/gnews/32/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [GTV新闻访谈简报|2021年11月7日早](/content/gnews/33/README.md)
+ ` 纽约香草山MOS01`
+
+### [疫苗强制令是基于医疗和接种状况的新型种族隔离制度](/content/gnews/34/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [有声|欧洲央行表示需要发行数字货币](/content/gnews/35/README.md)
+ ` MOSREC`
+
+### [美国联邦上诉法院冻结拜登政府的企业疫苗强制令](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [中共为了成功举办冬奥会，掩盖每天因疫苗死亡达十万人的事实](/content/gnews/40/README.md)
- ` 首尔天池农场`
+### [美两议员提议案支持立陶宛加强与台湾的关系](/content/gnews/37/README.md)
+ ` HimalayaRussia`
+
+### [中共的打土豪运动继续蔓延](/content/gnews/38/README.md)
+ ` GTV新闻访谈`
+
+### [文贵爆料 7/11: 留住喜币，草根也能笑傲江湖](/content/gnews/39/README.md)
+ ` 秘密翻译组-原创组`
+
+### [首位被引渡的中共间谍 法庭裁定罪成](/content/gnews/40/README.md)
+ ` GTV新闻访谈`
 
 ### [人性的扭曲——告密者](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
@@ -189,6 +189,6 @@
 ### [零对冲：美国供应链只会变得更糟](/content/gnews/58/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线: 六中全会前 多名维权人士在京失踪](/content/gnews/59/README.md)
- ` 秘密翻譯組G-Translators`
+### [2021年11月7日郭先生直播小飞象速记](/content/gnews/59/README.md)
+ ` Mr. Miles Guo's News Briefing`
 

@@ -2,23 +2,34 @@
 ---
 
 
-## 文贵爆料 7/11: 留住喜币，草根也能笑傲江湖
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1646689/)
+## 中共的打土豪运动继续蔓延
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1646699/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/766f9ef0-cbc7-477c-9561-52f825d04dcd.jpg)
-陈年佳酿，越久越醇。而留住喜币，更是留住了希望，留住了未来。 郭文贵先生在11月7日的大直播中，讲述了喜币不仅在未来有着巨大的升值空间，而且可以用来借贷，值得一生拥有。
+作者：英国喜庄园 – I770775
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月3日，据多家中共媒体报道，相声演员于谦旗下的矮马养殖公司被指隐瞒真实情况、弄虚作假，被列入经营异常名录。
 
-我们应该感谢联盟委员会，他们太难了，能让你这几万个战友进来，那么你现在要再进来的战友们，你们互帮就是要顺利地过kyc，顺利汇钱变成喜美元，你才能买到喜币啊。就像今天如果是涨到两千了，头两天卖了那个两块钱的，或者卖个十几块钱、二十块钱的，真的，你这一辈子再也不可能买回来？你看的就是那个有限的钱，未来的升值空间，跟你就都没有关系了，你终生不可能再回来啊。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-4.jpeg)
 
-我告诉战友们，你们不用太长时间，快则一两个月，慢则不会超过明年五月份，你们就一辈子等了，为什么这几个月就不能等吗？到那时候你就可以贷款，我永远不卖币。现在我告诉你，你们拥有一万个币的人，你需要多少钱？你一万个币现在就是二百万美元吧。二百万美元你说你能花多少钱？你贷五十万美元，其中的二十万美元干什么？我告诉大家，你一定马上到喜联储存款去，我要存一个五年期或七年期。一年百分之七的利息是给你喜币，是吧？有币给你，我为啥你卖掉喜币呢？
+据了解，于谦的矮马养殖公司全称北京天精地华养殖有限公司，成立于2010年9月，经营范围包括家禽、家畜养殖，以及影视策划等。该公司的主推业务还包括设特兰矮马种群宠物公园，以及相关的儿童马术游乐园。
 
-郭先生说，很多人进入食堂后，只看到了馒头和包子，却没看到旁边还有龙虾和鲍鱼。
+据有关人士分析，于谦早先从主流相声院团辞职，随后加入民间相声团体，鉴于中共演艺界与中共各派系间错综复杂的关系，再加上中共动荡不安的经济现状与党内愈演愈烈的内斗拼杀，中共的打土豪运动或将继续蔓延至中共国内的各个角落。
 
-参考链接：
+参考链接：[于谦养矮马的公司被列入经营异常：拥有国内最大设特兰矮马种群宠物公园](http://news.hexun.com/2021-11-05/204683829.html)
 
-[2021年11月07日 文贵大直播](https://gettr.com/streaming/pga8le9f31)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
+总编：飞虹
+编辑：飞虹
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
