@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/7/2021 12:26 PM (UTC)`
+
+2021年11月7日 文贵大直播：虚拟货币知多少     喜币未来有多牛
+![img](https://media.gettr.com/group16/origin/2021/11/07/12/717a6e8c-396a-fa23-382a-5a5787a88ddd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 11/7/2021 3:17 AM (UTC)`
 
 11/05/2021 Miles Guo: The triumphs of the US Republican Party is a miracle. The U.S. will destroy the CCP within 3 minutes if it dares to launch a war in Taiwan.  The UN will be provided with the funds by the Himalaya Reserve for 3-5 years, in exchange for Taiwan’s joining the UN. Taiwan will be protected by all the countries in the world.<br/><br/>11/05/2021 文贵直播: 美国共和党大赢，若中共胆敢对台湾动武，美国三分钟就可以摧毁它。喜联储可为联合国提供3-5年的资金，作为台湾加入联合国的交换条件，这样台湾就会受到全世界各国的保护。<br/>
@@ -290,13 +297,6 @@ CDC近日发布的一项漏洞百出的报告称疫苗比自然免疫更有效�
 
 NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共政府负责!我们必须尽全力解放香港，支持香港人，我与你们站在一起！<br/><br/>A Declaration from NBA player Enes Kanter：We must act. We must hold Chinese government accountable! We must do everything we can to help free Hong Kong! We must support Hong Kongers. I stand with you! <br/>
 ![img](https://media.gettr.com/group9/getter/2021/11/03/22/35/a2be5e56-a2bd-f348-9b75-0fbc4d8b43e5/out.jpg)
-
----
-
-`@miles 11/3/2021 10:15 PM (UTC)`
-
-11/1/2021 【HCoin To the Moon Celebration】 The wealth of Himalaya  Reserve belongs to our grassroots people and don’t forget about our mission of taking down the CCP.<br/><br/>11/1/2021 【HCoin to The Moon庆典】喜联储的财富属于民天下，永远不要忘记我们的使命是消灭共产党<br/>
-![img](https://media.gettr.com/group9/getter/2021/11/03/22/15/595ed3c2-8480-a980-059e-d57599c1a0e3/out.jpg)
 
 ---
 
