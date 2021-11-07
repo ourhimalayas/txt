@@ -2,37 +2,36 @@
 ---
 
 
-## 有声|中共病毒及其疫苗全球超限战中的典型案例（十四）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1645634/)
+## 女仆为自由而行
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1645748/)
 
-配音：香草山教育部 – 蒙古鸿雁
+**翻译：**小鱼儿
+**编辑：**李易通
+![](https://assets.gnews.org/wp-content/uploads/2021/11/女仆.jpeg)图片来源：澳大利亚自由独立新闻网
+阿德莱德的12人结群装扮成女仆，以强调澳大利亚政府日益增长的暴政。她们举着标语，上面写着”战斗是有福的”和”你的沉默是服从”等信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-109-1280x172-1.jpg)
+女仆们从伦德尔公园出发，走过伦德尔购物中心，有一些当地人请求跟她们拍照。还有一些时间，她们站在一个十字路口向驾驶者传播信息。
 
+虽然只是一个很小的团体，但她们在市内获得了很多关注，并在伦德尔购物中心展开了许多关于疫苗接种选择的对话，得到了围观者的反应，有消极也有积极的。
 
+整个抗议活动是无声的，非常和平。许多观众手里拿着传单，他们被邀请参加阿德莱德自由集会，该集会将在本月20日举行，是世界自由运动的一部分。
 
-**纽约一家大型医疗保健系统解雇了1400名未接种疫苗的员工**
+她们经过一名正在宣讲《圣经》的男子时说：”我们有权决定在我们的身体里放什么，只有上帝和我才能做出这个选择”。一名在伦德尔购物中心场地工作的男子，手里也拿着一张传单，为即将到来的抗议活动做宣传。
 
-员工分布在纽约市、韦斯特切斯特和长岛地区的大型医疗系统诺斯韦尔健康公司（Northwell Health）2021年10月5日发布声明表示，占该公司2%的 1400名员工因为拒绝接种COVID-19疫苗已被解雇，至此该公司下属所有23家医院的在职工作人员已经100%接种了疫苗。另外，因拒绝接种疫苗而被解雇的员工还无法享受退休计划等福利。
+今天，这个城市许多不同的行业都在忙碌中，从素食者的外展抗议到那些传播上帝信息的人，但女仆们似乎得到了商场里所有人的关注。
 
+该团体正在提高澳大利亚人对于自由医疗选择和政府过度行为的认识。她们鼓励大家在一起参加本月的下一次自由集会，并希望这将成为阿德莱德市最大的活动。
 
+*发布：热锅小蚂蚁*
 
-**文字版原文：[中共病毒及其疫苗全球超限战中的典型案例（十四）](https://gnews.org/zh-hans/1640200/)**
+参考新闻：[https://afipn.com.au/the-handmaids-walk-for-freedom/](https://afipn.com.au/the-handmaids-walk-for-freedom/)
 
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

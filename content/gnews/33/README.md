@@ -2,10 +2,10 @@
 ---
 
 
-## 洛杉矶市长中共病毒检测呈阳性，接种过两针疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645589/)
+## 德国海军20年来首次停靠日本港，并明确指出这是针对中共国在印太地区的行为
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645626/)
 
-作者：洛杉矶盘古农场 – 滴水穿石
+作者：日本方舟农场 – Andy5
 
 
 
@@ -13,19 +13,21 @@
 
 
 
-周四 （11月4日）， 正在苏格兰在参加联合国气候变化会议的洛杉矶市长埃里克·加塞蒂，做中共病毒检测呈阳性。
+近日，德国海军在结束与日本海上自卫队联合演习之后，20年来首次停靠日本港口。日本东京港举行了欢迎仪式。
 
-50 岁的加塞蒂市长在 今年1 月被医务人员建议接种了第一剂Moderna 疫苗。市长发言人称，他在 2 月份接受了第二剂注射。
+本次靠港的是德国海军巡防舰巴戈利亚号。该舰的德国军人明确指出，此次停靠东京港，是针对中共。
 
-有专家分析称，强制推行全民中共病毒疫苗接种与政客、医药集团间的暗中勾兑有关。而勾兑的政客必会为其邪恶行为付出代价。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-25.jpg)
+日本防卫大臣岸信夫在视察了巴戈利亚号之后发表讲话称，本次停靠意义巨大。德国海军来访是确保“自由开放的印太”，反映出德国在积极履行对印太和平与稳定做出贡献的承诺。
+
+专家称，这一举动明确表示，德国正在追随整个欧洲的步伐，由亲共转向与中共对抗和脱钩。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-15.jpg)
 参考链接：
-1. [‘This could be my room for a few days’: Garcetti tests positive, isolates in Scotland](https://www.latimes.com/california/story/2021-11-03/l-a-mayor-eric-garcetti-tests-positive-for-covid-19)
-2. [Garcetti reports some fever and head cold symptoms following covid-19 diagnosis](https://www.latimes.com/california/story/2021-11-04/garcetti-reports-some-fever-and-head-cold-symptoms-following-covid-19-diagnosis)
+[20211105日本東京電視台 1.德國海軍巡防艦巴伐利亞（Bayern也可翻作拜仁）號 年來首次停靠日本港口](https://www.gettr.com/post/pg7hf8e37b)
+[German frigate arrives in Tokyo as China ties cool in post-Merkel era](https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/German-frigate-arrives-in-Tokyo-as-China-ties-cool-in-post-Merkel-era)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-总编/编辑：木白
+总编/编辑：飞虹
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

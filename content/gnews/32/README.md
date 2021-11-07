@@ -2,51 +2,37 @@
 ---
 
 
-## 彭佩奥盖特发文呼吁抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645605/)
+## 有声|中共病毒及其疫苗全球超限战中的典型案例（十四）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1645634/)
 
-作者：英国喜庄园 – I770775
+配音：香草山教育部 – 蒙古鸿雁
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-109-1280x172-1.jpg)
 
 
 
-11月4日中午，美国前国务卿彭佩奥在盖特发文，呼吁国际社会坚决抵制北京冬奥会的召开。
+**纽约一家大型医疗保健系统解雇了1400名未接种疫苗的员工**
 
-彭佩奥说，离北京冬奥会的开幕还有整整三个月，国际社会应该联合起来进行抵制，时间还来得及。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.2.jpg)
-彭佩奥指责国际奥委会的不作为。认为国际奥委会因为接受了中国共产党的腐化，对中共犯下的种族灭绝暴行，选择视而不见。
+员工分布在纽约市、韦斯特切斯特和长岛地区的大型医疗系统诺斯韦尔健康公司（Northwell Health）2021年10月5日发布声明表示，占该公司2%的 1400名员工因为拒绝接种COVID-19疫苗已被解雇，至此该公司下属所有23家医院的在职工作人员已经100%接种了疫苗。另外，因拒绝接种疫苗而被解雇的员工还无法享受退休计划等福利。
 
-这是彭佩奥在24小时里连发的第二条关于中共的盖文，在前一条里，彭佩奥称，“中共不是美国的竞争对手，而是敌人。”
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-1.jpg)
-参考链接：
-彭佩奥盖特： [Exactly 3 months until the Beijing Olympics are scheduled to start. The IOC has made it clear it has been corrupted by Communist Party money & is willing to turn a blind eye to the human rights atrocities committed by the CCP (including genocide).](https://gettr.com/post/pg2elgd999)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-总编/编辑：木白
-校对/发稿：为真不破20
+**文字版原文：[中共病毒及其疫苗全球超限战中的典型案例（十四）](https://gnews.org/zh-hans/1640200/)**
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
