@@ -2,30 +2,48 @@
 ---
 
 
-## 秘翻在线：联邦上诉法院暂停了拜登政府的强制中共病毒疫苗规定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1645490/)
+## 彭佩奥盖特发文呼吁抵制北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645605/)
 
-**撰稿：Grace**
+作者：英国喜庄园 – I770775
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-07-123554.jpg)图片来源：Libertaswritters
-据匹兹堡CBS 11月6日报道，在当日，美国第五巡回上诉法院 (the U.S. Court of Appeals for the Fifth Circuit)对拜登政府的强制中共病毒疫苗规定发布了临时禁令。
 
-在11月4日， 拜登政府利用职业安全与健康管理局（OSHA）的一项规则，要求拥有100名或以上员工的私营公司必须在2022年1月4日前，强制要求其员工接种中共病毒疫苗或对员工进行定期测试，否则将面临巨额罚款。
 
-而Townhall 称，联邦法院的这项裁决是在得克萨斯州、犹他州、路易斯安那州、密西西比州和南卡罗来纳州的州检察长以及私营企业提起诉讼后作出的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-法院发出的文件写道：“由于请愿书使人相信强制规定存在严重的法律和宪法问题，因此强制规定被暂停，等待本法院的进一步行动”。联邦法院命令拜登政府在周一之前对永久禁令的动议作出回应，而原告必须在周二之前提交他们可能有的任何答复。德州总检察长肯.帕克斯顿(Ken Paxton)强调，他们赢了，但这并不是道路的终点。
 
-路易斯安那州总检察长杰夫.兰德里(Jeff Landry)指出， “总统不会在没有宪法规定的制衡下将医疗程序强加给美国人民”。但是，法院 “也要求我们进行明智的审查”。法律顾问萨拉.哈比森(Sarah Harbison)说：”我相信，法院将看到强制疫苗规定的真实面目-绕过国会制定法律的企图。”
 
-Townhall 称，不仅在第五巡回法院有反对强制疫苗的诉讼，其他地方也有这样的诉讼，比如，在第六巡回法院代表就业创造者网络（JCN）的诉讼，和在第八巡回法院代表《每日电讯报》提起的诉讼。
+11月4日中午，美国前国务卿彭佩奥在盖特发文，呼吁国际社会坚决抵制北京冬奥会的召开。
 
-匹兹堡CBS报道说，目前至少有27个州在几个巡回法院提起诉讼，挑战拜登政府的强制中共病毒疫苗规定。
+彭佩奥说，离北京冬奥会的开幕还有整整三个月，国际社会应该联合起来进行抵制，时间还来得及。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.2.jpg)
+彭佩奥指责国际奥委会的不作为。认为国际奥委会因为接受了中国共产党的腐化，对中共犯下的种族灭绝暴行，选择视而不见。
 
-**新闻来源： **[Federal Appeals Court Issues Temporary Halt On Biden Administration’s Vaccine Requirement](https://pittsburgh.cbslocal.com/2021/11/06/5th-circuit-court-of-appeals-halts-vaccine-mandate/)
+这是彭佩奥在24小时里连发的第二条关于中共的盖文，在前一条里，彭佩奥称，“中共不是美国的竞争对手，而是敌人。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-1.jpg)
+参考链接：
+彭佩奥盖特： [Exactly 3 months until the Beijing Olympics are scheduled to start. The IOC has made it clear it has been corrupted by Communist Party money & is willing to turn a blind eye to the human rights atrocities committed by the CCP (including genocide).](https://gettr.com/post/pg2elgd999)
 
-[BREAKING: Federal Court Stays Biden Vaccine Mandate for Private Businesses](https://townhall.com/tipsheet/rebeccadowns/2021/11/06/fifth-circuit-appeals-court-stays-president-joe-bidens-vaccine-mandate-n2598690)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：木白
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

@@ -2,46 +2,24 @@
 ---
 
 
-## 台湾外长吴钊燮访问捷克之后欧洲议会官方代表团首度访问台湾
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645282/)
+## 美国高等法院制止拜登政府强制接种疫苗的违宪行为
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1645479/)
 
-作者：日本方舟农场 – Andy5
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-14.png)
+（图片源自本文链接）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月7日时事通信报道：华盛顿时报消息，美国南部路易斯安那州的一个联邦巡回法院6日发布了一项禁令，暂停联邦政府对私营部门作为义务，强制雇员接种中共病毒疫苗的计划。
 
-台湾外交部长访问捷克之后，欧洲议会官方代表团也访问台湾，本次访问将持续3天。
+将在明年1月4日生效的强制接种疫苗计划，如果因此不能得到执行，拜登政府关于如何结束中共病毒灾难的说辞将被击碎。据美国媒体报道，高等法院的法官说，联邦政府的行动存在“严重的法律和宪法问题”。他命令联邦政府在11月8日前提交对该禁令的答复。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/捕获2.png)
+4日，拜登政府正式宣布，雇用100人以上的公司将被要求为其员工接种疫苗或每周对他们进行感染测试，从明年1月起对不遵守规定的公司进行处罚。由联邦资助的医疗保健机构也将被要求为其雇员接种疫苗，美国有超过1亿名员工将受到这一要求的约束。
 
-据称本代表团还将见“行政院长”苏贞昌、“立法院长”游锡堃、陆委会主委邱太三、“外交部副部长”以及蔡英文总统。代表团团长格鲁克斯曼在启程前往台湾之前说，“台湾在应对外来不断和复杂的虚假信息攻击时动员全社会力量，同时又不限制民主空间，这一经验很特别。”
+对此，包括共和党人担任州长的佛罗里达州和佐治亚州在内的二十多个州已经在全国各地的联邦法院提起诉讼，认为该任务违反了联邦法律和宪法。依照高等法院的命令，佐治亚州总检察长卡尔在推特上宣布，他将“继续与联邦的过激行为作斗争，以保护各州及其公民的权利”。
 
-CCP对此发文也还使用了“窜访”这个词，足以见得CCP内心狭隘以及欧洲跟台湾动作频繁让CCP感觉到了恐惧，毕竟年初CCP以为会跟欧盟达成的协议到现在都处于中止状态。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-- [https://www.sohu.com/a/498893209\_115479](https://www.sohu.com/a/498893209_115479)
-- [https://www.voachinese.com/a/taiwan-european-parliament-20211103/6297920.html](https://www.voachinese.com/a/taiwan-european-parliament-20211103/6297920.html)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
-
-***编辑***：***童谣***
-***校对/发稿：海阔天空1***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,49 +2,24 @@
 ---
 
 
-## 台湾一男子接种两针CCP病毒疫苗后死亡
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645249/)
+## 美一联邦高院暂停新冠疫苗强制接种
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1645462/)
 
-作者：英国喜庄园 – I770775
+#### 撰稿: 东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/11/16-54.png)[图片来源](https://news.yahoo.co.jp/articles/353a0a9474ff241f1b22924271742b23ff72deff/images/000)
+据华盛顿共同社报道，美国南部路易斯安那州新奥尔良市的一家联邦高等法院周四下令，暂停拜登政府要求企业雇员强制接种新冠疫苗政策。因其引发了“严重的法律和宪法问题”。该诉讼是由各公司和反对派共和党担任州长的州提出的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+根据拜登政府宣布的应对新冠病毒的行动指南，职业安全与健康管理局（OSHA）4日，要求员工人数超过 100 人的公司，必须做到全员接种，亦或每周进行一次测试。并宣布将在明年1月4日之后对违规行为处以14,000美元的罚款。
 
-11月2日，台湾多家媒体报道，台湾南投县一名46岁的男子，接种第二针阿斯利康疫苗后，很快死亡。
+随时美国2022中期选举共和党力挽狂澜，卷土重来，以其稳操胜券之势，拜登政府的疫苗强制接种令在各个州终会偃旗息鼓。让我们为之祈祷，公道自在人心！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/214298.png)
+信息源:
 
-据了解，该名男子在今年7月接种了第一针疫苗，当时就曾发生严重的不良反应。按规定，他在10月又去接种了第二针，不幸的是，就在他接种第二针疫苗后不久，疫苗导致的副作夺去了男子年轻的生命。
+[ワクチン義務化、一時差し止め　米高裁、各州など提訴](https://news.yahoo.co.jp/articles/353a0a9474ff241f1b22924271742b23ff72deff)
 
-随着全世界CCP病毒疫苗的大面积强制接种，各国由疫苗导致死亡的人数一直在不断上升。
-台湾本来是全球疫情防控做得最好的几个国家之一，确诊人数比例极低，但由于政府无视病毒和疫苗的真相，全民强行推打毒疫苗，使全岛的确诊病例大幅度攀升，由接种疫苗导致死亡的人数比例也排在世界前列。
-
-截至10月7日16时，台湾由疫苗接种引发的死亡人数达850人，岛内所有新冠确诊死亡的人数为845人，“台湾接种疫苗死亡人数首超确诊死亡人数”引起不少网友热议，这一话题也一度冲上新浪微博的热搜榜单。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-- [http://www.taihainet.com/news/twnews/twsh/2021-11-03/2567403.html](http://www.taihainet.com/news/twnews/twsh/2021-11-03/2567403.html)
-- [http://www.chinanews.com/tw/2021/10-09/9582221.shtml](http://www.chinanews.com/tw/2021/10-09/9582221.shtml)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
-
-***编辑***：***童谣***
-***校对/发稿：海阔天空1***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,46 +2,22 @@
 ---
 
 
-## Facebook 将关闭面部识别系统
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645554/)
+## 秘翻在线:研究表明疫苗效力随着时间推移急剧下降
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1645661/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+#### 翻译/撰稿：黃金精神
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-2.png)图片来源：路透社
+11月4日据《洛杉矶时报》报道，由来自奥克兰公共卫生研究所（Public Health Institute）、旧金山退伍军人事务医疗中心（Veterans Affairs Medical Center）和德克萨斯大学健康科学中心的团队进行的一项新的研究表明，随着Delta变种病毒成为美国各地中共病毒主导毒株，美国人可用的所有三种中共疫苗病毒都失去了一些保护能力，在一群退伍军人中，疫苗效力下降了35%~85%。
 
-据路透社报道，Facebook人工智能副总裁11月2日表示，监管机构仍在制定一套明确的规则来管理人脸识别技术的使用。在这种持续的不确定情况下，应该限制该技术的应用范围。
+早在3月初，研究人员搜集了80万名美国退伍军人记录发现，Delta变种病毒的感染能力与三种疫苗的预防能力大致相当。但在接下来的六个月里，这种情况发生了巨大变化。到9月底，莫德纳两剂量疫苗在三月份测得有89%的效力，但现在仅有58%；辉瑞两剂量疫苗效力从87%下降到45%；最引人注目的是，强生单剂量疫苗效力从86%骤降到只有13%。这些发现发表在周四的《科学》杂志上。
 
-Facebook作为世界上最大的社交媒体平台宣布取消人脸识别，是因为科技行业在过去几年中一直面临着对使用该技术的道德问题的清算。
+该项研究追踪了2月1日至10月1日间美国武装部队780225名退伍军人。其中近50万人接种了疫苗，而只有不到30万人没有接种疫苗。研究人群中男性是女性的六倍，而且他们的年龄偏大，大约48%是65岁或以上，29%是50至64岁，24%是50岁以下。
 
-批评人士表示，出于安全目的，面部识别技术可能会损害隐私，针对边缘化群体，并使侵入性监控正常化。
+尽管在整个研究期间，年长的退伍军人比年轻的退伍军人更有可能死亡，但疫苗对疾病和死亡保护作用的下降在年轻人和老年人中都有体现。
 
-消息发布之际，Facebook一直受到监管机构和立法者的严格审查。其他一些高科技公司也针对该技术做出了调整，IBM已永久停止面部识别产品的销售，微软和亚马逊也已无限期暂停相关技术对警方的销售。
-
-Facebook这一决定将删除超过10亿人的“面部识别模板”。Facebook发言人表示，该行动将在全球范围内进行，预计将于12月完成。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-- [https://www.todayonline.com/world/facebook-will-shut-down-facial-recognition-system?utm\_source=ground.news&utm\_medium=referral](https://www.todayonline.com/world/facebook-will-shut-down-facial-recognition-system?utm_source=ground.news&amp;utm_medium=referral)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
-
-***编辑***：***Irene木木***
-***校对/发稿：海阔天空1***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**新闻来源**](https://www.latimes.com/science/story/2021-11-04/study-shows-dramatic-decline-in-effectiveness-of-covid-19-vaccines)
 
  
 
