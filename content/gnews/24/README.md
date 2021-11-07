@@ -2,34 +2,31 @@
 ---
 
 
-## COVID-19 最新情报｜面对公卫威胁 美跨党派提案 台湾作为印太伙伴
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1645087/)
+## 警惕澳洲个别网络供应商对喜马拉雅交易所平台的屏蔽
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1645117/)
 
-**台灣寶島農場 疫情關注組 / 發佈時間｜7/11/2021**
+撰稿：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TPG.png)图片来自网络
+喜马拉雅交易所，喜美元和喜币已于11月1日成功上线，有很多用户已成功购买到了喜币，也有越来越多的用户开始注册喜美元账户，努力通过KYC。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+由于喜马拉雅交易所刚刚开通，而且又经历了来自黑客的军事级别的攻击，一些用户遇到了登录困难，无法收到验证码等情况，自然会认为这是由于喜交所网站还不稳定，而忽视了自己的网络供应商的问题。
 
+有用户发现个别澳洲网络供应商对喜马拉雅交易所网站进行了屏蔽。例如，[OOCOM公司](https://occom.com.au/)的宽带服务无法访问喜马拉雅交易所网站。
 
-#### 美跨党派提案，美台合作抗新冠
+也有采用[TPG宽带服务](https://www.tpg.com.au/nbn?gclid=CjwKCAjwz5iMBhAEEiwAMEAwGEYJ7SYLx8RMfMpQ9vvBNYLZOnHu8KZT-9AJ7MGrSc-E75JwgWFxTxoChTQQAvD_BwE)的用户在通过了喜马拉雅交易所的KYC之后，点击“充值”按钮后，看不到银行汇款信息而无法给银行汇款。该用户多次联系了喜交所客服寻求帮助，尝试清理浏览记录，用不同的浏览器登录等，可就是看不到银行汇款信息。
 
-美共和党友台参议员卢比欧、科顿（Tom Cotton）及民主党议员寇提兹马斯托（Catherine Cortez-Masto）等人跨党派提案，在AIT设立美台传染病监控中心（U.S.-Taiwan Infectious Disease Monitoring Center），每年向国会提交研究和报告来决定中心的资金、人员需求，并与台湾疾病管制署（CDC）合作。
+这样持续了一个星期。在一位朋友的提醒下，这位用户改用自己的手机移动网络登录喜马拉雅交易所网站，结果发现一切正常，是TPG宽带服务商的问题。
 
-据台湾媒体报导，法案主要目的在于交流双方政府在公卫威胁上的专业知识，进驻人员将包括至少3名美国卫生及公共服务部（HHS）的传染病专家，至少1名其他联邦部门成员，也可能聘雇台湾当地员工或台CDC人员。
+近期，[美国广播和通信监管机构联邦通信委员会](https://gnews.org/zh-hans/1620571/)[(FCC)](https://gnews.org/zh-hans/1620571/)撤销了中国电信在美国的运营许可证，并提到这家中共国公司可能会渗透关键网络，从而带来安全风险。
 
-#### 美共和党友台参议员马可．卢比欧（Marco Rubio）
+在澳大利亚的情况又如何呢？中共的黑手会在澳洲的电信网络从事非法间谍活动吗？
 
-卢比欧对台湾给予长期关注、支持，2021年9月台湾与立陶宛互设代表处引起中共挞伐，他强调“中国共产党不代表台湾，没有权利支配世上其他国家如何称呼，或如何与台湾人民来往。”
+[据报道](https://www.channelnews.com.au/exclusive-china-telecom-huawei-doing-a-roaring-trade-with-partners-tpg-aapt-optus/)，中国电信和华为正在通过 Optus、AAPT 和 TPG 等运营商在澳大利亚开展业务。很多网络供应商都在使用华为生产的路由器。
 
-卢比欧在本次跨党派提案声明：“对于犯下种族灭绝的中国共产党政权来说，封锁新冠疫情消息，导致毁灭性后果在全球爆发的行径并不让人吃惊，我们在印太地区需要一个可靠且公开透明的伙伴，能够提供我们精确的讯息来防止、减缓未来可能面临的公卫危机，台北相较于全球具有先进的公卫体系，也是一个值得信赖的民主盟友和珍贵朋友。”
+(本文纯属个人观点，与Gnews无关)
 
-此外，卢比欧早在2018年5月便针对中共的窃取美国科技、威胁美国国家安全等，推动以保护国家安全为目的之“美中公平贸易执行法”（Fair Trade with China Enforcement Act），禁止美中两国交易“敏感科技”之法源，同时，更提高课征跨国公司来自中国的所得税，借以钳制中国窃取美国智慧财产。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-5.jpg)
-* * *
-
-新闻来源｜[自由时报](https://news.ltn.com.tw/news/politics/breakingnews/3727870)、[美参议员卢比欧推动禁止与中国交易敏感科技之法案-资策会](https://stli.iii.org.tw/article-detail.aspx?no=64&amp;tp=0&amp;i=72&amp;d=8038)
-撰稿｜zhong
-
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

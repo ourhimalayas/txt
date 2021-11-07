@@ -2,42 +2,42 @@
 ---
 
 
-## 美国多名众议员共同提出《自然免疫是真实法案》
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645202/)
+## 欧洲代表团敦促国际社会加强与台湾的交流
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1645225/)
 
-作者：纽约香草山翻译部 – defiance
+![](https://assets.gnews.org/wp-content/uploads/2021/11/110604-1.jpg)2021 年 11 月 5 日，欧洲议会外国干涉问题特别委员会主席拉斐尔·格鲁克斯曼 (Raphael Glucksmann)（右三）和欧洲议会代表团其他成员出席在台湾台北举行的新闻发布会。图片来源：路透社
+周五，欧洲议会代表团团长敦促国际社会与台湾进行更多的互动，以帮助台湾化解与中共国之间的紧张状态，并驳斥了中共有关访问台湾是一种挑衅的说法。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共抨击外国政治家的访台行为是一种“挑衅”。周四，对于欧洲议会首次“官方”代表团访台，中共当局表示“强烈不满和坚决反对”。
 
-近日，田纳西州众议员黛安娜·哈什巴格与其他10名众议员共同提出《自然免疫是真实法案》，该法案与犹他州参议员迈克·李等4名参议员先前提出的法案相配套。法案将要求联邦机构 “承认、接受并同意根据颁布的若干法规，如实陈述与冠状病毒相关的自然豁免”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Covid-19-Coronavirus-Bubble-Protection-Virus.jpg)
-“国会报告”中指出，有大量证据表明，从冠状病毒中康复的人对再感染确有保护作用。并有多项研究显示，冠状病毒患者的自然免疫力很强，类似或优于疫苗的保护。美国疾病控制和预防中心也声称，冠状病毒疫苗并不能防止冠状病毒的传播。
+来自法国的欧洲议会成员拉斐尔·格鲁克斯曼（ Raphael Glucksmann）在台北的一个新闻发布会上说，“来台湾不是一种挑衅，这是正常的。”
 
-该法案的共同提案人，众议员丹尼尔-韦伯斯特在一份书面声明中表示，太多的医学领袖拒绝公开承认被压倒性数据证明了的东西，即自然免疫力给予个人的保护是真实、强大和持久的。否认科学只会助长现有的混乱、错误信息，引发美国人民的不信任。这项法案有助于恢复公众对公共卫生系统的信任和信心，让我们继续与冠状病毒做斗争。
+自2016年蔡英文当选总统以来，中共当局加大了对其政府在军事和外交上的压力，因为她认为台湾岛是一个事实上拥有独立主权的国家，不是“一个中共国”的一部分。
 
-（本文仅代表作者观点）
+台湾国防部长警告说，上个月中共的军机创纪录地侵入台湾防空识别区，台湾与中共方面的军事紧张局势达到了40年来的最高点。
 
-参考阅读：
+**简评：**
 
-- [https://vaccines.news/2021-10-29-rep-diana-harshbarger-introduces-natural-immunity-act.html](https://vaccines.news/2021-10-29-rep-diana-harshbarger-introduces-natural-immunity-act.html)
+台湾是一个有法、遵守法律的国家，这是西方社会愿意和台湾加强合作的原因之一。中共国则是一个无法无天的、几个人说了算的独裁体制，不但其统治下的老百姓缺乏财产和安全保障，相信西方社会的不安也开始凸现——与中共合作会助长它的邪恶，最终会伤害自己。
+
+新闻链接：[European delegation urges more interactions with Taiwan](https://www.thehindu.com/news/international/european-delegation-urges-more-interactions-with-taiwan/article37346392.ece)
+
+***翻译/简评：**乡间小路*
+
+***校对**：Julia Win*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+编辑：【英国伦敦喜庄园编辑部】
 
-***编辑***：***Irene木木***
-***校对/发稿：海阔天空1***
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

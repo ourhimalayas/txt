@@ -2,44 +2,33 @@
 ---
 
 
-## 7个月40次核酸检测，中共如此薅羊毛
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645055/)
+## COVID-19 最新情报｜面对公卫威胁 美跨党派提案 台湾作为印太伙伴
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1645087/)
 
-作者：纽约香草山农场 – 鹰(文言)
+**台灣寶島農場 疫情關注組 / 發佈時間｜7/11/2021**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-疫情导致瑞丽市常住人口从50万减至20万，市民7个月间歇封闭管理期间核酸检测次数多达40次，某网约车司机7个月90次核酸检测，平均每周3.2次。虽然当地政府称全员核酸检测费用由政府承担，但市政府的医疗开支归根结底依旧来自于底层民众的税收。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/下载-2.jpg)
-
-根据2021年2月初瑞丽市人民医院核酸检测费用下调至76元/次，虽然混检价格略低，但如此频繁的核酸检测，说明检测试剂的精准度低下，显露中共利用疫情变相收割民财的行径。核酸检测以及封闭管理不仅增大了民众的生活开支，更造成严重的断供和断收，让百姓债务压力激增。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-- [https://www.163.com/dy/article/GNI0NQU60534IAKI.html](https://www.163.com/dy/article/GNI0NQU60534IAKI.html)
-- [http://www.ruili.gov.cn/shrl/yl/content-182-7649-1.html](http://www.ruili.gov.cn/shrl/yl/content-182-7649-1.html)
-- [https://news.sina.com.cn/c/2021-10-30/doc-iktzscyy2622689.shtml](https://news.sina.com.cn/c/2021-10-30/doc-iktzscyy2622689.shtml)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+#### 美跨党派提案，美台合作抗新冠
 
-***编辑***：***木白***
-***校对/发稿：海阔天空1***
+美共和党友台参议员卢比欧、科顿（Tom Cotton）及民主党议员寇提兹马斯托（Catherine Cortez-Masto）等人跨党派提案，在AIT设立美台传染病监控中心（U.S.-Taiwan Infectious Disease Monitoring Center），每年向国会提交研究和报告来决定中心的资金、人员需求，并与台湾疾病管制署（CDC）合作。
 
-**更多资讯，更多关注**
+据台湾媒体报导，法案主要目的在于交流双方政府在公卫威胁上的专业知识，进驻人员将包括至少3名美国卫生及公共服务部（HHS）的传染病专家，至少1名其他联邦部门成员，也可能聘雇台湾当地员工或台CDC人员。
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+#### 美共和党友台参议员马可．卢比欧（Marco Rubio）
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+卢比欧对台湾给予长期关注、支持，2021年9月台湾与立陶宛互设代表处引起中共挞伐，他强调“中国共产党不代表台湾，没有权利支配世上其他国家如何称呼，或如何与台湾人民来往。”
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+卢比欧在本次跨党派提案声明：“对于犯下种族灭绝的中国共产党政权来说，封锁新冠疫情消息，导致毁灭性后果在全球爆发的行径并不让人吃惊，我们在印太地区需要一个可靠且公开透明的伙伴，能够提供我们精确的讯息来防止、减缓未来可能面临的公卫危机，台北相较于全球具有先进的公卫体系，也是一个值得信赖的民主盟友和珍贵朋友。”
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+此外，卢比欧早在2018年5月便针对中共的窃取美国科技、威胁美国国家安全等，推动以保护国家安全为目的之“美中公平贸易执行法”（Fair Trade with China Enforcement Act），禁止美中两国交易“敏感科技”之法源，同时，更提高课征跨国公司来自中国的所得税，借以钳制中国窃取美国智慧财产。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-5.jpg)
+* * *
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+新闻来源｜[自由时报](https://news.ltn.com.tw/news/politics/breakingnews/3727870)、[美参议员卢比欧推动禁止与中国交易敏感科技之法案-资策会](https://stli.iii.org.tw/article-detail.aspx?no=64&amp;tp=0&amp;i=72&amp;d=8038)
+撰稿｜zhong
 
  
 

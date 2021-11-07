@@ -2,171 +2,26 @@
 ---
 
 
-## 财富是多人属性的 它可以创造权力 可以让权力干正事
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1644983/)
+## 美司法部：首名被引渡至美受审中国情报官罪名成立
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1644984/)
 
-[https://gtv.org/video/id=6186810dadfd99590c33be81](https://gtv.org/video/id=6186810dadfd99590c33be81)
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-45.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fgdb.voanews.com%2F274D63D0-B255-4C26-978A-986ACC1E5A78_cx0_cy12_cw0_w1080_h608_s.jpg&amp;imgrefurl=https%3A%2F%2Fwww.voachinese.com%2Fa%2Fjury-convicts-chinese-security-agent-in-aviation-espionage-case-20211105%2F6302073.html&amp;tbnid=9q2kmqr8twpOwM&amp;vet=12ahUKEwjg8Jrz_YP0AhUJB94KHRClCjsQMygBegQIARB5..i&amp;docid=BMyoeL51ZUx2jM&amp;w=1080&amp;h=608&amp;itg=1&amp;q=%E7%BE%8E%E5%8F%B8%E6%B3%95%E9%83%A8%EF%BC%9A%E9%A6%96%E5%90%8D%E8%A2%AB%E5%BC%95%E6%B8%A1%E8%87%B3%E7%BE%8E%E5%8F%97%E5%AE%A1%E4%B8%AD%E5%9B%BD%E6%83%85%E6%8A%A5%E5%AE%98%E7%BD%AA%E5%90%8D%E6%88%90%E7%AB%8B&amp;hl=zh-CN&amp;ved=2ahUKEwjg8Jrz_YP0AhUJB94KHRClCjsQMygBegQIARB5)
+根据美国司法部周五(11月5日)发布的消息，一个联邦陪审团当天裁定，中共江苏省国家安全厅六局副处长徐延军(音译，Yanjun Xu，又译徐彦君 )串谋和企图从事经济间谍活动以及窃取商业机密罪名成立，面临最长可达60年的监禁和500多万美元的罚款。声明还介绍，被告是首位被引渡至美国接受审判的中共国情报官员。2018年4月，徐延军在比利时被捕，并在六个月后被引渡至美国接受审判。其所在的江苏省安全厅隶属中共国国家安全部，主要职能包括情报收集分析、反间谍、政治保卫等。
 
-**郭文贵**
-**Miles Guo**
+根据法庭文件和庭审中提供的证据，徐延军至少从2013年12月起就开始瞄准航空和航天公司，招募这些公司的专家以赴大学演讲的名义前往中共国，为他们支付费用和津贴，并计划在其中取得“高度机密”。一个具体案例：徐延军锁定了位于俄亥俄州辛辛那提地区的通用电气航空(GE Aviation)。该公司拥有的复合材料飞机引擎风扇技术是世界任何其他公司都未曾复制的技术。
 
-没有财富自由的家庭
-A family without wealth and freedom
+美国司法部负责国家安全司的助理部长奥尔森（Matthew G. Olsen）在周五的声明中表示：“一名在职情报官因经济间谍而被定罪，凸显商业机密是中共国政府工业现代化计划不可或缺的一部分”，但是，奥尔森继续指出，“这次定罪还表明，美国不会坐视中共国或任何其它国家试图窃取而不是研究和开发关键技术。相反，在我们盟友的支持下，我们将继续调查、起诉并追究那些试图非法窃取美国智慧结晶的人。”俄亥俄南区代理联邦检察官帕特尔(Vipal J Patel)在司法部的声明中介绍：“徐延军密谋为中共国政府从事经济间谍活动，他试图窃取行业领先的美国航空技术公司的宝贵创新和商业机密。”
 
-和谐、快乐、健康、 有尊严几乎都无从谈起
-it’s almost impossible that know where to begin talking about harmony, happiness, health, and dignity
+“这是由中共国家赞助的经济间谍活动，旨在窃取美国技术，使美国人失业，”联邦调查局（FBI）负责反情报部门助理局长科勒(Alan E. Kohler Jr.)在声明中指出：“对那些怀疑中共国真正目标的人来说，这应当让人警醒；他们正在窃取美国技术以使其经济和军方获益。联邦调查局正在与50多家美国政府机构合作，分享信息和调查资源，以阻止中共国的非法活动。”针对徐延军的案件，一名联邦法官将做出量刑裁决。目前尚未确定量刑宣判的日期。
 
-财富属性最后都是社会的
-Wealth attribute is all belong to society in the end
+信息来源：
 
-这一句话就是，所有的钱都是归社会的
-It means all money belongs to society
+[美司法部：首名被引渡至美受审中国情报官罪名成立](https://www.dw.com/zh/%E7%BE%8E%E5%8F%B8%E6%B3%95%E9%83%A8%E9%A6%96%E5%90%8D%E8%A2%AB%E5%BC%95%E6%B8%A1%E8%87%B3%E7%BE%8E%E5%8F%97%E5%AE%A1%E4%B8%AD%E5%9B%BD%E6%83%85%E6%8A%A5%E5%AE%98%E7%BD%AA%E5%90%8D%E6%88%90%E7%AB%8B/a-59740481)
 
-但是这个财富属性的创造者和享用者
-But the creator and beneficiary of this wealth attribute
-
-就是社会上最高级统治者
-is the superlative ruler
-
-这你就明白了钱到底咋回事儿
-Then you will understand what the money is really about
-
-然后也告诉我们货币是怎么回事
-and then tell us what the currency is all about
-
-金银怎么回事
-as well as with gold and silver
-
-这对我当时来讲，一个十几岁的孩子
-To me at the time, a teenager
-
-这是很大的事，就你认清了钱到底姓啥
-that was a big deal because you recognized that who owns money at the end
-
-你再过3年5年
-3 years or 5 years later
-
-你看今天你所有对财富的理解
-look back to your understanding of all wealth today
-
-你就觉得是个天大的耻辱和笑话
-you would feel that it’s the biggest joke and shame
-
-第3个就是最重要的
-The 3rd one is the most important
-
-当你有信仰和理想的时候，你会越来越明白
-When you have beliefs and goals, you will understand more and more of
-
-这个世界很伟大、很丑陋的两个极端
-these two extremes in the world which are very and ugly
-
-都伟大立不了财富
-The wealth would not be created if everyone is great
-
-丑陋是因为财富
-Ugliness is because of wealth
-
-当你把这个问题搞明白的时候
-When you understand these questions
-
-你想做伟大吗
-Do you want to be virtuous?
-
-你想做让你自己爱的人吗
-Would you want to be the one that you love?
-
-你想让别人发自内心的尊重你吗
-Would you like to have others respected you by heart?
-
-绝对你会知道，你要拥有干净的财富
-You will definitely understand that you have to have a transparent wealth
-
-财富会让你拥有自己的能力和证明的机会
-and wealth will let you have the ability to own yourself and the opportunity to veri-fy
-
-所以说
-That being said
-
-经过我做生意，搞酒店、房地产、金融
-after I did business, engaged in hotels, real estate, finance
-
-我所有的从清丰看守所出来以后（的经历）
-and all experiences that I had inside the Qingfeng Detention Center
-
-我发自内心地说，我一定要在财富上自由后
-I had said it from bottom of my heart that I must be free in wealth
-
-让家人都安全、孩子长大后
-kept family members safe, and after children grew up
-
-我灭共的事业才能开始
-and then I could start my career of eliminating the communism
-
-否则无从谈起
-Otherwise, there’s no way to talk about it
-
-但是财富这个东西，它也很有意思的
-But wealth is also very interesting
-
-财不是个单字，是一个贝一个才加个富成为财富
-(The Chinese character) of “wealth” is not an individual character. It’s formed by the radical of a shell and talent, and add a rich to become wealth
-
-财富是多人属性
-Wealth is multi-person attribute
-
-如果你一个人有钱那叫富有，它不叫财富
-One person has the money doesn’t mean you are wealthy. It’s called rich
-
-财富是多人属性下的
-Wealth is based on multi-person attribute
-
-当你把财富（跟）更多人分享的时候那你就是财富
-When you share your wealth with more people, then you are wealthy
-
-当我觉得新中国联邦人都拥有财富的时候
-When I feel that all people of the New Federal China have wealth
-
-那才叫真正的财富
-that is the real wealth
-
-财富可以创造权利
-Wealth creates power
-
-可以让权力干正事
-and allow the authority to do the right thing
-
-那么我们就要创造干净的财富去干干净的事
-Therefore, we must create a clean wealth and to do clean business
-
-这就是当初我想灭共之初
-This is the beginning of my desire to eliminate the communists
-
-这30年的准备, 时时刻刻想着
-This has been prepared for 30 years and kept in my mind all the time
-
-———————————————————
-
-**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1455865144043470857?s=24](https://twitter.com/se1y7cblljselva/status/1455865144043470857?s=24)
-
-Date: 11/03/2021
-原视频标题:财富是多人属性的 它可以创造权力 可以让权力干正事
-Wealth is a multi-person attribute. It can create power for somebody and allow them to do the right thing
-原视频日期：2021/11/01
-任务编号：KC225(2759)
-视频时间段 : 0:00-2:13
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
