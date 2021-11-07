@@ -2,31 +2,47 @@
 ---
 
 
-## 有声|华尔街下调对中共国经济增长预期
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1646764/)
+## 美国取消与主要 COVID-19 疫苗制造商的合同
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1646783/)
 
-配音：香草山美食部-玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-鉴于中共出口增长的减缓，以及对新冠病毒疫情再爆发的担心，美国华尔街巨头银行纷纷降低了对中国经济增长的预期。
+**编译：JennyBall**
 
-11月5日，摩根大通第五次下调了对中共国增长的预期，并称该行现在预计今年全年增长7.8%，2022年增长4.7%。理由是电力短缺造成影响而且新冠疫情复燃打击消费者支出和服务业。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip156.png)紧急情况生物解决方案工厂是强生公司 COVID-19 疫苗的制造合作伙伴，于 2021 年 4 月 9 日出现在马里兰州巴尔的摩。（索尔勒布/法新社通过盖蒂图片社Saul Loeb/AFP via Getty Images）
 
-自8月以来，高盛、摩根大通和摩根士丹利均降低了对中共国经济增长的预期。摩根士丹将季度增长下调到1.6%，高盛将季度预期从5.8% 降低到2.3%，全年预期从8.6%下调到8.3%，而摩根大通则将季度增长从4.3% 降低到2.0%，全年预期从9.1% 减少到8.9%。
+美国政府取消了与紧急情况生物解决方案工厂（Emergent BioSolutions）的合同，该公司是一家主要疫苗制造商，因强生公司的 COVID-19 疫苗的 1500 万剂疫苗批次不良而受到调查。
 
-此前公布的中共国贸易数据显示，出口增长低于预期。而周一公布的数据表明，工厂通胀的上升速度高于前一个月，并超出市场预期，这对要努力应对不断上涨的原材料成本的企业无疑是雪上加霜，给已经失去复苏动力的经济增加了巨大压力。
+这家总部位于马里兰州的公司在一份收益报告中表示，卫生与公共服务部和 Emergent 共同同意于 11 月 1 日终止合同。
 
-文字版原文：[华尔街下调对中共国经济增长预期](https://gnews.org/zh-hans/1642570/)
+取消意味着合同减少了约 1.8 亿美元。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+该合同于 2012 年 6 月达成。其中包括制造癌症和结核病疫苗的疗法。 2020 年，它扩大到包括第三方 COVID-19 疫苗和疗法的制造。
+
+但 Emergent 在一批强生疫苗原料药方面的工作，被确定毁掉了大约 1500 万剂疫苗。那里的工人混合了强生注射剂和阿斯利康疫苗的成分。
+
+这个问题将强生疫苗的推出推迟了几个月。
+
+拜登政府任命强生公司负责疫苗生产，但据报道，监管机构后来决定，需要再丢弃 6000 万剂疫苗。
+
+该监管机构在 4 月份公布的一份报告中表示，食品和药物管理局（FDA）的调查人员后来发现，该工厂的条件不合格，包括地板上的黑色残留物和各个房间的油漆剥落，以及废物处理不足和材料过度拥挤。
+
+他们说，工人没有遵循标准协议来防止交叉污染。
+
+Emergent 当时在一份声明中表示，它“致力于与 FDA 和强生公司合作，以迅速解决所发现的问题。”
+
+**评论：昨天联邦第五上诉法院已经命令暂停拜登政府的疫苗强制令，现在美国政府已经取消了与紧急情况生物解决方案工厂的合同。一切已经开始！反抗疫苗的胜利，就是人类免受强权政府和中共邪恶势力, 拥有自由的未来的开始！**
+
+**新闻来源**：[theepochtimes.com][US Cancels Contract With Major COVID-19 Vaccine Manufacturer](https://www.theepochtimes.com/mkt_morningbrief/us-cancels-contract-with-major-covid-19-vaccine-manufacturer_4090080.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-11-07&amp;mktids=8f6850ca508e34d23651239c0ee807b6&amp;est=N9jAEqRqJpMus1RzOazc2ipBvfYZv%2FMrlQHwdJbb7CfaY%2FkZS2FA2jSBnECK%2B8NA7iFx9w%3D%3D)
+
+* * *
+
+***审核：文乐
+校对：信心满满
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

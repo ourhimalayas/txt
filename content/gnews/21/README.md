@@ -2,10 +2,10 @@
 ---
 
 
-## 纽约市民抗议强制给小孩接种疫苗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1646806/)
+## 疫苗强制令是基于医疗和接种状况的新型种族隔离制度
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1646817/)
 
-11/04/2021 纽约市民抗议强制给小孩接种疫苗。
+11/03/2021 儿童健康保护组织的宣传联络员斯蒂芬妮·洛克里奇奥表示中共病毒疫苗强制令是一种基于医疗和疫苗接种状况的新型种族隔离制度。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
