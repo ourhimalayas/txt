@@ -2,49 +2,32 @@
 ---
 
 
-## 美联储宣布将终结经济刺激计划
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645431/)
+## 秘翻在线：联邦上诉法院暂停了拜登政府的强制中共病毒疫苗规定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1645490/)
 
-作者：纽约香草山农场 – 柳是多水土透
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美联储周三提出量化宽松终结时间表，此轮经济刺激行动在川普总统推动下于2020年3月开始，向市场注入了数万亿美元流动性，以应对疫情封锁带来的经济危机。
+**撰稿：Grace**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/捕获-3.png)
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-07-123554.jpg)图片来源：Libertaswritters
+据匹兹堡CBS 11月6日报道，在当日，美国第五巡回上诉法院 (the U.S. Court of Appeals for the Fifth Circuit)对拜登政府的强制中共病毒疫苗规定发布了临时禁令。
 
-根据联储公布的计划，2020年第4季度将减少购债300亿美金，之后逐步缩减至22年6月终止。联储主席鲍威尔(Jerome H. Powell)表示，相较早前的市场预期，购债计划的潜在结束日期提前，以防如果通胀压力扩大。
+在11月4日， 拜登政府利用职业安全与健康管理局（OSHA）的一项规则，要求拥有100名或以上员工的私营公司必须在2022年1月4日前，强制要求其员工接种中共病毒疫苗或对员工进行定期测试，否则将面临巨额罚款。
 
-迄今为止的数月美国遭受了5%以上的持续恶行通胀，美元全球货币的溢出效应 导致德国等欧洲国家通胀率升至4%以上。鲍威尔坚称大量印钞造成的通胀为“一过性的”，此结论被认为与数据不符
+而Townhall 称，联邦法院的这项裁决是在得克萨斯州、犹他州、路易斯安那州、密西西比州和南卡罗来纳州的州检察长以及私营企业提起诉讼后作出的。
 
-新冠疫情期间的量化宽松为史上最大，超过08年金融危机，除造成央行资产负债表从4.4万激增至约9万亿美元外，有价证券房地产短时间快速升值，带来泡沫经济担忧
+法院发出的文件写道：“由于请愿书使人相信强制规定存在严重的法律和宪法问题，因此强制规定被暂停，等待本法院的进一步行动”。联邦法院命令拜登政府在周一之前对永久禁令的动议作出回应，而原告必须在周二之前提交他们可能有的任何答复。德州总检察长肯.帕克斯顿(Ken Paxton)强调，他们赢了，但这并不是道路的终点。
 
-近两年，联邦政府通过国会法案授权 财政部举债数万亿美元，在财政部发债缺乏中日政府等传统债权人购买时，只能由联储扩表出资回购，俗称印钞票。此时，若美金失去国际地位，则会造成像阿根廷式的债务违约
+路易斯安那州总检察长杰夫.兰德里(Jeff Landry)指出， “总统不会在没有宪法规定的制衡下将医疗程序强加给美国人民”。但是，法院 “也要求我们进行明智的审查”。法律顾问萨拉.哈比森(Sarah Harbison)说：”我相信，法院将看到强制疫苗规定的真实面目-绕过国会制定法律的企图。”
 
-历史经验表明，在预期联储加息时，资金会从新兴市场回流美国本土。此时为避免汇率波动，其它央行会预防性提前加息，造成流动性的全球降低，进一步促进经济低。
+Townhall 称，不仅在第五巡回法院有反对强制疫苗的诉讼，其他地方也有这样的诉讼，比如，在第六巡回法院代表就业创造者网络（JCN）的诉讼，和在第八巡回法院代表《每日电讯报》提起的诉讼。
 
-（本文仅代表作者观点）
+匹兹堡CBS报道说，目前至少有27个州在几个巡回法院提起诉讼，挑战拜登政府的强制中共病毒疫苗规定。
 
-参考阅读：
+**新闻来源： **[Federal Appeals Court Issues Temporary Halt On Biden Administration’s Vaccine Requirement](https://pittsburgh.cbslocal.com/2021/11/06/5th-circuit-court-of-appeals-halts-vaccine-mandate/)
 
-- [https://cn.reuters.com/article/insight-fed-1103-wedn-policy-changes-idCNKBS2HO15O](https://cn.reuters.com/article/insight-fed-1103-wedn-policy-changes-idCNKBS2HO15O)
-- [https://cn.wsj.com/articles/%E7%BE%8E%E8%81%94%E5%82%A8%E5%BC%80%E5%A7%8B%E5%89%8A%E5%87%8F%E5%80%BA%E5%88%B8%E8%B4%AD%E4%B9%B0%E9%87%8F-%E8%AE%A1%E5%88%92%E6%98%8E%E5%B9%B46%E6%9C%88%E5%89%8D%E7%BB%93%E6%9D%9F%E5%88%BA%E6%BF%80%E6%94%BF%E7%AD%96-11635981610](https://cn.wsj.com/articles/%E7%BE%8E%E8%81%94%E5%82%A8%E5%BC%80%E5%A7%8B%E5%89%8A%E5%87%8F%E5%80%BA%E5%88%B8%E8%B4%AD%E4%B9%B0%E9%87%8F-%E8%AE%A1%E5%88%92%E6%98%8E%E5%B9%B46%E6%9C%88%E5%89%8D%E7%BB%93%E6%9D%9F%E5%88%BA%E6%BF%80%E6%94%BF%E7%AD%96-11635981610)
+[BREAKING: Federal Court Stays Biden Vaccine Mandate for Private Businesses](https://townhall.com/tipsheet/rebeccadowns/2021/11/06/fifth-circuit-appeals-court-stays-president-joe-bidens-vaccine-mandate-n2598690)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
-
-***编辑***：***Irene木木***
-***校对/发稿：海阔天空1***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

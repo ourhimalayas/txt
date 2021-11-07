@@ -2,28 +2,40 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月6日晚
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645228/)
+## 蓬佩奥：选举显示美国人“正在重新夺回他们的国家”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645356/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/1106text-SC.png)
-校对：Stay文苑
+作者：纽约香草山农场 – 新世界的一员
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+前国务卿迈克·庞佩奥说，格伦·杨金在弗吉尼亚州州长竞选中获胜对整个国家来说是个好兆头。庞佩奥星期三早上在福克斯新闻上说：”这是美国人正在收复自己的国家的全国性现象。杨金击败前民主党州长特里·麦考利夫，震惊了民主党和大多数民调机构。蓬佩奥：选举显示美国人“正在重新夺回他们的国家”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/捕获3.png)
+共和党人格伦·杨金在弗吉尼亚州州长竞选中获胜，成为维吉尼亚州自上世纪70年代以来首位连任州长的竞选。虽然这是一场州级选举，但这场竞选被视为拜登2020年获胜和明年11月关键的中期选举之间的关键风向标。
 
-编辑：Stay文苑
+世界自由灯塔渐渐明亮了，崇尚民主自由的人民又看见了希望，世界将会大改变。
 
-发稿：Stay文苑
+（本文仅代表作者观点）
 
-视频参看：[11.6 晚GTV新闻访谈](https://gtv.org/broadcast/watch/61871db211d186296802acfd)
+参考阅读：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+- [https://gettr.com/post/pfzwyddd09](https://gettr.com/post/pfzwyddd09)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+
+***编辑***：***Irene木木***
+***校对/发稿：海阔天空1***
 
 **更多资讯，更多关注**
 
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://紐約香草山農場%20%20|%20GTV-香草山之聲%20紐約香草山農場GTV-%20|%20MOS%20TALK%20香草山訪談%20紐約香草山農場%20|%20GETTR%20紐約香草山農場%20｜YouTube%20歡迎加入香草山農場%20%20|%20Discord)
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

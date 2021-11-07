@@ -2,54 +2,33 @@
 ---
 
 
-## 比尔盖茨希望美英投资“细菌游戏”来应对天花恐怖袭击
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1645039/)
+## COVID-19 最新情报｜面对公卫威胁 美跨党派提案 台湾作为印太伙伴
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1645087/)
 
-**评论：最为一名非流行病专家，比尔盖茨对“天花恐怖袭击”的警告令人震惊。我们不禁要思考一下在这场新冠病毒的袭击中比尔盖茨扮演了什么角色？他又据何断言或预测“天花恐怖袭击”？这是不是某些暗黑力量正在筹划的下一次灭绝人类的计划？**
+**台灣寶島農場 疫情關注組 / 發佈時間｜7/11/2021**
 
-**据《雅虎新闻》记者Luke O’Reilly，2021年11月4日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/axfqo-mb611-2.jpg)**（PA Wire)**
-比尔·盖茨警告说，各国政府必须提供数十亿美元的研发资金，为未来的流行病和天花恐怖袭击做好准备。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-盖茨在与英国卫生特别委员会主席杰里米·亨特(Jeremy Hunt)进行“政策交流”采访时，提出了这一警告。
 
-盖茨还呼吁成立一个新的世界卫生组织流行病特别工作组，其每年可能要花费10亿美元。
+#### 美跨党派提案，美台合作抗新冠
 
-他说，虽然这项研究可能很昂贵，但它也可能带来其他创新，比如根除流感和普通感冒。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-04-153453.png)**（PA Wire)**
-他说，像美国和英国这样的国家必须花费“数百亿”来资助这项研究。
+美共和党友台参议员卢比欧、科顿（Tom Cotton）及民主党议员寇提兹马斯托（Catherine Cortez-Masto）等人跨党派提案，在AIT设立美台传染病监控中心（U.S.-Taiwan Infectious Disease Monitoring Center），每年向国会提交研究和报告来决定中心的资金、人员需求，并与台湾疾病管制署（CDC）合作。
 
-他说：“我希望在五年内，我可以写一本书，名为《我们已经准备好应对下一场流行病》，但这将需要数百亿的研发资金，美国和英国将参与其中。”
+据台湾媒体报导，法案主要目的在于交流双方政府在公卫威胁上的专业知识，进驻人员将包括至少3名美国卫生及公共服务部（HHS）的传染病专家，至少1名其他联邦部门成员，也可能聘雇台湾当地员工或台CDC人员。
 
-“世界卫生组织级别的大流行特别工作组每年可能需要10亿美元，他们在进行监测，实际上也在进行我所说的‘细菌游戏’。”
+#### 美共和党友台参议员马可．卢比欧（Marco Rubio）
 
-盖茨表示，“细菌游戏”可能包括为生物恐怖主义行为做准备，比如针对机场的天花袭击。
+卢比欧对台湾给予长期关注、支持，2021年9月台湾与立陶宛互设代表处引起中共挞伐，他强调“中国共产党不代表台湾，没有权利支配世上其他国家如何称呼，或如何与台湾人民来往。”
 
-“你会说，好吧，如果一个生物恐怖分子把天花带到10个机场怎么办？你知道，世界会作何反应？自然导致的流行病和生物恐怖主义导致的流行病甚至可能比我们今天经历的更糟糕。”
+卢比欧在本次跨党派提案声明：“对于犯下种族灭绝的中国共产党政权来说，封锁新冠疫情消息，导致毁灭性后果在全球爆发的行径并不让人吃惊，我们在印太地区需要一个可靠且公开透明的伙伴，能够提供我们精确的讯息来防止、减缓未来可能面临的公卫危机，台北相较于全球具有先进的公卫体系，也是一个值得信赖的民主盟友和珍贵朋友。”
 
-尽管发出了可怕的警告，这位世界第四大富豪在接受采访时也表现出乐观的态度，他预计，增加预防流行病的资金将带来“难以置信的有益的”医疗创新。
+此外，卢比欧早在2018年5月便针对中共的窃取美国科技、威胁美国国家安全等，推动以保护国家安全为目的之“美中公平贸易执行法”（Fair Trade with China Enforcement Act），禁止美中两国交易“敏感科技”之法源，同时，更提高课征跨国公司来自中国的所得税，借以钳制中国窃取美国智慧财产。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-5.jpg)
+* * *
 
-“好消息是我们需要做大量的研发工作来为下一次大流行做好准备，比如制造便宜的疫苗、建立大型工厂、根除流感、消除普通感冒、将疫苗制成一小块贴在手臂上的贴片，放在你的胳膊上，即使在没有大流行的年份，这些东西也会非常有益。”他说。
-
-他补充说，作为慈善家工作的一部分，他将继续谈论防范大流行的问题。
-
-他说：“因此，除了气候信息和正在进行的抗击穷人疾病的斗争，流行病防范是我将经常谈论的事情。
-
-“我认为它会找到肥沃的土壤，因为，你知道，我们损失了数万亿美元和数百万人的生命。公民希望政府不要让这种事情再次发生。”
-
-**原文连接：**[https://uk.news.yahoo.com/bill-gates-warns-smallpox-terror-000100099.html?soc\_src=social-sh&soc\_trk=tw&tsrc=twtr&guccounter=1&guce\_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce\_referrer\_sig=AQAAAHF5lh-t\_18\_ctKi9Mk8tNpBE5\_D20g81fut\_8hsr4IVQfyACw7\_IzaHxwZrUz1Qmeg\_xInZFflJR\_pe1ut3VkjgG9ahPu6\_glLwE1GABl75enZ2\_94WywixXz4gsZ5pervSWPVRNrtYD9B4Cym5x53bxQ7YjE9VTDshY5f64LJ5](https://uk.news.yahoo.com/bill-gates-warns-smallpox-terror-000100099.html?soc_src=social-sh&amp;soc_trk=tw&amp;tsrc=twtr&amp;guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAHF5lh-t_18_ctKi9Mk8tNpBE5_D20g81fut_8hsr4IVQfyACw7_IzaHxwZrUz1Qmeg_xInZFflJR_pe1ut3VkjgG9ahPu6_glLwE1GABl75enZ2_94WywixXz4gsZ5pervSWPVRNrtYD9B4Cym5x53bxQ7YjE9VTDshY5f64LJ5)
-
-**(本文评论仅代表个人观点）**
-
-翻译：洛杉矶盘古农场–钢蛋儿
-校对：洛杉矶盘古农场–Mike Li
-评论：洛杉矶盘古农场–钢蛋儿
-编辑：洛杉矶盘古农场–心照
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻来源｜[自由时报](https://news.ltn.com.tw/news/politics/breakingnews/3727870)、[美参议员卢比欧推动禁止与中国交易敏感科技之法案-资策会](https://stli.iii.org.tw/article-detail.aspx?no=64&amp;tp=0&amp;i=72&amp;d=8038)
+撰稿｜zhong
 
  
 
