@@ -2,45 +2,41 @@
 ---
 
 
-## 纽约当选市长解释“重新审视”疫苗强制令
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1646731/)
+## 美国取消与主要 COVID-19 疫苗制造商的合同
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1646783/)
 
-**编译：lulumi**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip155.png)2021年11月2日，纽约市当选市长埃里克·亚当斯（Eric Adams）在纽约市布鲁克林万豪酒店举行的2021年选举胜利之夜派对上对支持者讲话。(Angela Weiss/AFP via Getty Images)
-纽约市当选市长周五解释了他说要“重新审视”该市对工人的COVID-19疫苗强制令时的意思。
+**编译：JennyBall**
 
-亚当斯在周三的一次有线电视节目中说：“我们需要重新审视我们将如何解决疫苗任务。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip156.png)紧急情况生物解决方案工厂是强生公司 COVID-19 疫苗的制造合作伙伴，于 2021 年 4 月 9 日出现在马里兰州巴尔的摩。（索尔勒布/法新社通过盖蒂图片社Saul Loeb/AFP via Getty Images）
 
-亚当斯说，他将鼓励市长比尔·德布拉西奥（Bill de Blasio）与工会交谈，因为各方试图就如何处理豁免申请和其他细节达成协议。
+美国政府取消了与紧急情况生物解决方案工厂（Emergent BioSolutions）的合同，该公司是一家主要疫苗制造商，因强生公司的 COVID-19 疫苗的 1500 万剂疫苗批次不良而受到调查。
 
-这些评论让一些人表示乐观，认为亚当斯会放宽强制令，这是全国最严厉的任务之一。
+这家总部位于马里兰州的公司在一份收益报告中表示，卫生与公共服务部和 Emergent 共同同意于 11 月 1 日终止合同。
 
-11月5日，亚当斯在接受CNN采访时被问及他的意思。
+取消意味着合同减少了约 1.8 亿美元。
 
-亚当斯首先赞扬了德布拉西奥能够与四个主要工会达成协议，然后强调了与工会领导人对话的重要性。他还表示，他可以改变对那些声称有宗教豁免权的人的处理方式。
+该合同于 2012 年 6 月达成。其中包括制造癌症和结核病疫苗的疗法。 2020 年，它扩大到包括第三方 COVID-19 疫苗和疗法的制造。
 
-“我会关注的一个领域是，如果你有一个家长因为宗教原因而有能力不为他们的任何孩子接种疫苗，我们不能突然改变这一规则，”他说。
+但 Emergent 在一批强生疫苗原料药方面的工作，被确定毁掉了大约 1500 万剂疫苗。那里的工人混合了强生注射剂和阿斯利康疫苗的成分。
 
-他说：“如果这是这位家长20多年来的一贯做法，那么我们现在必须尊重这一点，即使是现在的（中共病毒）疫苗，这些都是我想要钻研的领域，并确保我们继续取得我们所见证的成功，”他补充说。
+这个问题将强生疫苗的推出推迟了几个月。
 
-主持人沃尔夫·布利策(Wolf Blitzer)想知道为什么要改变这项强制令，因为自从实施这项任务以来，城市工人的疫苗接种率已经提高到92%。
+拜登政府任命强生公司负责疫苗生产，但据报道，监管机构后来决定，需要再丢弃 6000 万剂疫苗。
 
-“因为我们在这方面是成功的，这就是为什么我们可以重新审视，并确保我们得到100%。是什么阻止了后面8%的人？让我们找出来，”亚当斯说。”如果我们不坐下来，真正挖掘是什么阻止了这最后的8%，我们就不会达到我们的目标。”
+该监管机构在 4 月份公布的一份报告中表示，食品和药物管理局（FDA）的调查人员后来发现，该工厂的条件不合格，包括地板上的黑色残留物和各个房间的油漆剥落，以及废物处理不足和材料过度拥挤。
 
-这位民主党人承认，部分纽约工人可能继续抵制接种中共病毒COVID-19疫苗，但表示希望让至少四分之三的未接种疫苗者接种疫苗。
+他们说，工人没有遵循标准协议来防止交叉污染。
 
-亚当斯轻松赢得选举，接替任期有限的德布拉西奥，他还表示，导致布鲁克林篮网队的凯里·欧文（Kyrie Irving）本赛季至今没有上场的规则不会被改变。
+Emergent 当时在一份声明中表示，它“致力于与 FDA 和强生公司合作，以迅速解决所发现的问题。”
 
-“纽约市不会改变他们的规则，”他说。
+**评论：昨天联邦第五上诉法院已经命令暂停拜登政府的疫苗强制令，现在美国政府已经取消了与紧急情况生物解决方案工厂的合同。一切已经开始！反抗疫苗的胜利，就是人类免受强权政府和中共邪恶势力, 拥有自由的未来的开始！**
 
-欧文仍然没有接种疫苗，由于市政府的疫苗强制令，他不被允许参加篮网队的主场比赛。由于这种情况，球队正在阻止他参加客场比赛。
-
-**新闻来源**：[**theepochtimes.com**] [New York Mayor-Elect Explains Plans to ‘Revisit’ Vaccine Mandate](https://www.theepochtimes.com/new-york-mayor-elect-explains-plans-to-revisit-vaccine-mandate_4089954.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-11-07)
+**新闻来源**：[theepochtimes.com][US Cancels Contract With Major COVID-19 Vaccine Manufacturer](https://www.theepochtimes.com/mkt_morningbrief/us-cancels-contract-with-major-covid-19-vaccine-manufacturer_4090080.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-11-07&amp;mktids=8f6850ca508e34d23651239c0ee807b6&amp;est=N9jAEqRqJpMus1RzOazc2ipBvfYZv%2FMrlQHwdJbb7CfaY%2FkZS2FA2jSBnECK%2B8NA7iFx9w%3D%3D)
 
 * * *
 
 ***审核：文乐
-校对：阿伯塔
+校对：信心满满
 发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
