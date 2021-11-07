@@ -2,39 +2,45 @@
 ---
 
 
-## 卡尔文森号航母打击群，高调展开南海针对性战备演练
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1645204/)
+## 台湾外长吴钊燮访问捷克之后欧洲议会官方代表团首度访问台湾
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645282/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-35.jpeg)
-撰文：台湾宝岛农场 快慢机
+作者：日本方舟农场 – Andy5
 
-美军卡尔文森号航母打击群，11月3日刚刚南下驶离南海后，便于次日再度经由民都洛海峡北上折返，战术机动至南沙群岛周边区域。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-36.jpeg)
-据南海态势感知平台最新消息，美军卡尔文森号核动力航母打击集群，刚刚于11月3日南下经巴拉巴克海峡驶离南海水域后，随即便于次日诡异的再次经由民都洛海峡北上折返，战术机动至南沙群岛附近区域。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-而此前一直游弋于南海周边水域的卡尔文森号航母打击集群，刚刚完成与日本海自“加贺”号轻型直升机航母的联合海上演训任务。期间卡尔文森号航母打击集群，还曾启动了“一级战备”及“大规模伤亡”的应急状态模式。用以检验整个航母作战群，在遭受极端武装冲突下的生存及作战能力。
+台湾外交部长访问捷克之后，欧洲议会官方代表团也访问台湾，本次访问将持续3天。
 
-据悉，这是2021年美军航母打击集群第九次进出南海，同时也是卡尔文森号航母打击集群的年度第4次进出南海的高频任务记录。相较于2020年的同期数据而言，2021年度的美军大型海上作战集群，在南海的任务强度近乎提升了一倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/捕获2.png)
 
-南海九段线的东南区域咽喉要冲！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-37.jpeg)
-11月4日突然北上感折返机动至南沙群岛周边区域的卡尔文森号航母打击集群。选择经由菲律宾群岛区域的民都洛海峡的战术目的还是非常值得推敲的。该海峡毗邻菲律宾海峡，与南海及苏禄海相连，是南海东南方向，进出印度洋与太平洋的，一条战略地位及其重要的海上航道。
+据称本代表团还将见“行政院长”苏贞昌、“立法院长”游锡堃、陆委会主委邱太三、“外交部副部长”以及蔡英文总统。代表团团长格鲁克斯曼在启程前往台湾之前说，“台湾在应对外来不断和复杂的虚假信息攻击时动员全社会力量，同时又不限制民主空间，这一经验很特别。”
 
-美军卡尔文森号航母打击集群，这次所作出的极为罕见的，在24小时内经由巴拉巴克海峡南下驶离南海，再由苏禄海经民都洛海峡北上折返，高速机动至南沙群岛周边区域的，犹如回马枪式一般的战术动作，并不排除是在有针对性的，对中共部署于南沙群岛周边的军事岛礁，展开模拟合围攻击演练。
+CCP对此发文也还使用了“窜访”这个词，足以见得CCP内心狭隘以及欧洲跟台湾动作频繁让CCP感觉到了恐惧，毕竟年初CCP以为会跟欧盟达成的协议到现在都处于中止状态。
 
-民都洛海峡最窄处不足80公里跨度，战时可谓易守难攻，无论是封锁中共三亚榆林港内的南海舰队南下，抑或是阻断经由印度洋与南太平洋进入南海的海上生命运输线来讲，都足以轻松达到四两拨千斤的战术效果。
+（本文仅代表作者观点）
 
-本文仅代表笔者个人观点！
+参考阅读：
 
-资料链接：[https://mil.news.sina.com.cn/china/2021-11-06/doc-iktzscyy3981660.shtml](https://mil.news.sina.com.cn/china/2021-11-06/doc-iktzscyy3981660.shtml)
+- [https://www.sohu.com/a/498893209\_115479](https://www.sohu.com/a/498893209_115479)
+- [https://www.voachinese.com/a/taiwan-european-parliament-20211103/6297920.html](https://www.voachinese.com/a/taiwan-european-parliament-20211103/6297920.html)
 
-* * *
 
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+
+***编辑***：***童谣***
+***校对/发稿：海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,38 +2,32 @@
 ---
 
 
-## 美第五巡回上诉法院暂停拜登企业疫苗强制令
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1644969/)
+## Moderna下调新冠疫苗年度销售预期，市值蒸发250亿美元
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1645020/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**简评：伊维菌素对COVID-19的预防和治疗效果已经是不争的事实，在印度北方邦、德里，在日本等很多国家和地方都已经有应用伊维菌素的成功案例，且基本上完全消灭了COVID-19疫情。相信越来越多国家和地区都会觉醒，届时，Moderna等毒疫苗生产公司的股价就不仅是大跌，而是要血崩了。**
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/V-3-scaled.jpg)schermverenigingheerenleed.nl
-昨天（11月5日）笔者转发了“美11个州起诉拜登政府私营企业疫苗强制令”的文章【1】，今天就有法院作出了回应。
+**据《路透社》记者Richard Beales ，2021年11月5日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/apley-iz2ll.jpg)2021年1月29日，在美国纽约市曼哈顿，一名医护人员在SOMOS社区护理中心运营的弹出式疫苗接种现场进行Moderna COVID-19疫苗接种的准备工作。图片来源：路透社/Mike Segar/File Photo
+路透（纽约）：11月4日—Moderna (MRNA.O) 的股价周四暴跌近20%，市值蒸发250亿美元，此前该公司将今年的新冠疫苗销售预期从200亿美元下调至150亿——180亿美元。
 
-《门道专家》报道，一家上诉法院已发出暂缓令，暂时停止了乔·拜登对拥有100名或更多员工的企业的疫苗强制令。【2】
+疫苗生产和运输的困难导致了此次对疫苗销售额的下调。一些原定于今年交付的剂量已转移到2022年初。 Moderna的“信使RNA疫苗”迅速推出令人瞩目，但它的规模或经验比不上竞争对手辉瑞(Pfizer)，因此从审批进度到产量等方面都处于滞后状态。
 
-文章说，美国联邦第五巡回上诉法院的裁决是在多个州的总检察长对政府提起诉讼之后作出的。
+即使在周四下跌后，该股自2019年底以来仍实现了14倍的涨幅。 Moderna还将推出更多其他疗法，但其目前对Covid-19疫苗的依赖导致了股价的波动。在Refinitiv的17位分析师中，8位建议买入，4位建议卖出，目标股价从当前水平的三分之一到近一倍不等。在这个股价范围内，谁也说不准。
 
-法院表示，他们发现该强制令存在“严重的法定和宪法”问题。
+**原文连接：**[https://www.reuters.com/breakingviews/modernas-production-side-effects-2021-11-05/](https://www.reuters.com/breakingviews/modernas-production-side-effects-2021-11-05/)
 
-劳工律师西玛南达（Seema Nanda）告诉路透社，劳工部“对其法律权限有信心”发布该规定，该规定将由“职业安全与健康管理局”（OSHA）执行。
+**（本文评论仅代表个人观点）**
 
-她说：“职业安全与健康法明确赋予OSHA权力，在机构发现工人面临严重危险的紧急情况下，OSHA有权迅速采取行动，有必要制定新的标准来保护他们，我们完全准备在法庭上捍卫这一标准。”
+翻译：洛杉矶盘古农场–钢蛋儿
+校对：洛杉矶盘古农场–Mike Li
+评论：洛杉矶盘古农场–钢蛋儿
+编辑：洛杉矶盘古农场–心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-路透社的报道补充说，“这项长达两页的法庭令要求拜登政府必须在周一下午5点之前回应法院对疫苗强制令的质疑。”
-
-拜登的疫苗强制令将于1月4日生效，并将适用于8420万名工作人员和190万个私营部门的工作岗位。
-
-（全文完）
-
-州法院、联邦法院若是都像联邦第五巡回上诉法院作出这样明智的裁决，阴谋集团得逞的可能性会大大减少。新中国联邦正在奋力呼唤，觉醒的人虽然越来越多，但迄今为止还没有一个民主党州长起来反对疫苗强制政策。看起来，唤醒更多的美国人，任重而道远。
-
-有关链接：
-
-【1】[https://gnews.org/zh-hans/1642721/](https://gnews.org/zh-hans/1642721/)
-
-【2】[https://www.thegatewaypundit.com/2021/11/breaking-appeals-court-temporarily-halts-bidens-vaccine-mandate-businesses/](https://www.thegatewaypundit.com/2021/11/breaking-appeals-court-temporarily-halts-bidens-vaccine-mandate-businesses/)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

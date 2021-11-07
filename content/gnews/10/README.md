@@ -2,31 +2,43 @@
 ---
 
 
-## 警惕澳洲个别网络供应商对喜马拉雅交易所平台的屏蔽
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1645117/)
+## 美国多名众议员共同提出《自然免疫是真实法案》
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645202/)
 
-撰稿：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2021/11/TPG.png)图片来自网络
-喜马拉雅交易所，喜美元和喜币已于11月1日成功上线，有很多用户已成功购买到了喜币，也有越来越多的用户开始注册喜美元账户，努力通过KYC。
+作者：纽约香草山翻译部 – defiance
 
-由于喜马拉雅交易所刚刚开通，而且又经历了来自黑客的军事级别的攻击，一些用户遇到了登录困难，无法收到验证码等情况，自然会认为这是由于喜交所网站还不稳定，而忽视了自己的网络供应商的问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-有用户发现个别澳洲网络供应商对喜马拉雅交易所网站进行了屏蔽。例如，[OOCOM公司](https://occom.com.au/)的宽带服务无法访问喜马拉雅交易所网站。
+近日，田纳西州众议员黛安娜·哈什巴格与其他10名众议员共同提出《自然免疫是真实法案》，该法案与犹他州参议员迈克·李等4名参议员先前提出的法案相配套。法案将要求联邦机构 “承认、接受并同意根据颁布的若干法规，如实陈述与冠状病毒相关的自然豁免”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Covid-19-Coronavirus-Bubble-Protection-Virus.jpg)
+“国会报告”中指出，有大量证据表明，从冠状病毒中康复的人对再感染确有保护作用。并有多项研究显示，冠状病毒患者的自然免疫力很强，类似或优于疫苗的保护。美国疾病控制和预防中心也声称，冠状病毒疫苗并不能防止冠状病毒的传播。
 
-也有采用[TPG宽带服务](https://www.tpg.com.au/nbn?gclid=CjwKCAjwz5iMBhAEEiwAMEAwGEYJ7SYLx8RMfMpQ9vvBNYLZOnHu8KZT-9AJ7MGrSc-E75JwgWFxTxoChTQQAvD_BwE)的用户在通过了喜马拉雅交易所的KYC之后，点击“充值”按钮后，看不到银行汇款信息而无法给银行汇款。该用户多次联系了喜交所客服寻求帮助，尝试清理浏览记录，用不同的浏览器登录等，可就是看不到银行汇款信息。
+该法案的共同提案人，众议员丹尼尔-韦伯斯特在一份书面声明中表示，太多的医学领袖拒绝公开承认被压倒性数据证明了的东西，即自然免疫力给予个人的保护是真实、强大和持久的。否认科学只会助长现有的混乱、错误信息，引发美国人民的不信任。这项法案有助于恢复公众对公共卫生系统的信任和信心，让我们继续与冠状病毒做斗争。
 
-这样持续了一个星期。在一位朋友的提醒下，这位用户改用自己的手机移动网络登录喜马拉雅交易所网站，结果发现一切正常，是TPG宽带服务商的问题。
+（本文仅代表作者观点）
 
-近期，[美国广播和通信监管机构联邦通信委员会](https://gnews.org/zh-hans/1620571/)[(FCC)](https://gnews.org/zh-hans/1620571/)撤销了中国电信在美国的运营许可证，并提到这家中共国公司可能会渗透关键网络，从而带来安全风险。
+参考阅读：
 
-在澳大利亚的情况又如何呢？中共的黑手会在澳洲的电信网络从事非法间谍活动吗？
+- [https://vaccines.news/2021-10-29-rep-diana-harshbarger-introduces-natural-immunity-act.html](https://vaccines.news/2021-10-29-rep-diana-harshbarger-introduces-natural-immunity-act.html)
 
-[据报道](https://www.channelnews.com.au/exclusive-china-telecom-huawei-doing-a-roaring-trade-with-partners-tpg-aapt-optus/)，中国电信和华为正在通过 Optus、AAPT 和 TPG 等运营商在澳大利亚开展业务。很多网络供应商都在使用华为生产的路由器。
 
-(本文纯属个人观点，与Gnews无关)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1.jpg)
+***编辑***：***Irene木木***
+***校对/发稿：海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

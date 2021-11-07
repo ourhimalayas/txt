@@ -2,51 +2,26 @@
 ---
 
 
-## COVID-19 最新情报｜关于“新冠口服药” 你不可不知的泽连科方案
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1643348/)
+## 海底捞刚刚宣布：关停300家门店
+` 儒为` [轉載自GNews](https://gnews.org/zh-hans/1643397/)
 
-**撰文｜ 台灣寶島農場 疫情關注組 / 發佈時間｜6/11/2021**
+作者：意大利达芬奇农场-儒为
+![](https://assets.gnews.org/wp-content/uploads/2021/11/海底捞.jpeg)封面来源：网络图片
+2021年11月5日晚间，海底捞发布公告称，决定在2021年12月31日前逐步关停300家左右客流量相对较低及经营业绩不如预期的海底捞门店，其中部分门店将暂时休整、择机重开，休整周期最长不超过两年。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+看到这条信息时一点都不感到吃惊，这只是刚刚开始。海底捞这种“海底捞月”式的扩张模式只是中共模式的一个缩影。只注重外在虚伪的军事化服务，食物本身大量使用化学调料、大量劣质食材滥用，但却卖出高昂的价格，再加上背后同中共的勾兑，只注重资本的掠夺，忽略一个做餐饮企业的职业操守，出问题是必然的，只是时间问题。
 
+同时海底捞宣布开展“啄木鸟”计划，由海底捞执行董事兼副首席执行官杨利娟全权负责，持续关注经营业绩不佳门店，重建并强化部分职能部门，恢复大区管理体系，强化内部管理和考核机制，收缩业务扩张，期望进一步改善公司经营状况。
 
-#### 大药厂相继开发“新冠口服药”
+海底捞在国内国外大肆建立分店，不仅仅是一家餐饮企业，已经沦为中共割韭菜和海外渗透的工具。“海底捞月”扩张不成，转给开展“啄木鸟”计划，这只是自欺欺人而已。中共国老百姓以后真的吃不起海底捞了，不管是化学调料还是劣质食材都不重要了；中共国老百姓也不用再抱怨海底捞只卖服务和不停加水，又贵又难吃。
 
-[联合新闻网](https://udn.com/news/story/121707/5869991)引述英国每日邮报报导，继默沙东（Merck & Co.）药厂之后，辉瑞制药5日表示，研发实验新冠口服药可以有效降低九成染疫住院、死亡风险。且药物副作用小，辉瑞首席科学家受访表示：很少可以看到有药物效力将近90%，且将近100%避免病患死亡。
+中共病毒和疫苗灾难、欧美各国逐渐同中共脱钩、中共内部政治斗争、出口受限造成大量工厂倒闭、大量失业和次生灾难，造成的后果不敢想象，海底捞关停300家门店只是刚刚开始，骗钱的资金链断裂造成的后果会如雪崩，海底捞后果也不难想象。
 
-#### 新冠治疗方案早已存在：羟氯喹、锌、阿奇霉素
+中共国老百姓为了应对不可预测的危机，现在已经开始囤积各种生活物资，不管中共发出这个信息的出发点是什么？但老百姓多囤积些生活物资是必须的。
 
-早在 2020 年新冠疫情爆发后不久，弗拉基米尔 · 泽连科(Vladmir Zelenko)医生就发现通过“[羟氯喹(hydroxychloro- quine)+ 锌(zinc)以及阿奇霉素(azithromycin)](https://vladimirzelenkomd.com/prophylaxis-protocol/)**”**的早期治疗可以将感染新冠病毒的风险降低 80%，而且几乎没有副作用。可是这篇 2020 年 12 月就已经发表的研究成果几乎从未被政策制订者和主流媒体提及。
+新闻来源：🔗[突发！海底捞刚刚宣布：关停300家门店](https://www.163.com/dy/article/GO31PCFU0519DTSV.html)
 
-澤連科醫生的論文《[COVID-19 outpatients: early risk-stratified treatment with zinc plus low-dose hydroxy- chloroquine and azithromycin: a retrospective case series study](http://COVID-19%20outpatients:%20early%20risk-stratified%20treatment%20with%20zinc%20plus%20low-%20dose%20hydroxychloroquine%20and%20azithromycin:%20a%20retrospective%20case%20series%20study.%20https://www.sciencedirect.com/science/article/pii/S0924857920304258)》对新冠病毒治疗有里程碑式贡献。
-
-如今注射新冠疫苗成为了政策制订者和媒体鼓吹的对抗新冠病毒的主要方案，然而多地在广泛推广新冠疫苗后不仅没有遏制住新冠病毒的传播，甚至因为疫苗不良反应出现大量人间悲剧。
-
-1. 台湾：截至 10 月 20 日，疫苗不良反应死亡人数达到 912 人，仅仅 7 个 月就超过了过去 20 个月因新冠病毒死亡的人数。
-2. 新加坡：新冠疫苗接种率 最高的国家之一，84% 的人口已完整接种两针疫苗，14% 的人口接种了疫苗加强针。10月27日新加坡突破单日感染人数最高纪录，当天共5324人感染新冠病毒。
-
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/圖片-1.jpg)新加坡疫苗灾难
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/圖片-21.jpg)台湾疫苗灾难
-
-
-弗拉基米尔 · 泽连科(Vladmir Zelenko)医生是第一位创新出新冠病毒治疗方案的美国人，包含他在内的 43 名医生因应对新冠病毒大流行作出的贡献被提名诺贝尔和平奖。这篇文章也是泽连科医生创新出治疗方案——[泽连科方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)的重要依据之一。
-
-- 羟氯喹：自身免疫系统疾病常用治疗药物，[WHO](https://www.who.int/groups/expert-committee-on-selection-and-use-of-essential-medicines/essential-medicines-listshttps://www.who.int/groups/expert-committee-on-selection-and-use-of-essential-medicines/essential-medicines-lists)将其列为治疗系统性红斑狼疮的基本药物之一。在美国最经常使用的处方药物排行第 128 位。
-- 锌：人体内超过 300 种酶需要锌保持活性。大量研究结果表明锌对于提升免疫系统、身体抗氧化、减少发炎等有效。几乎每一家药店都会售卖多种锌补充 药物。
-- 阿奇霉素：治疗许多细菌感染的抗细菌药，于 1980 年被发现，1981 年正式被推出。阿奇霉素在世界卫生组织基本药物标准清单登录有案，迄今在医学上已被使用接近 40 年的时间。
-
-
-泽连科医生在2020年新冠爆发初期，当时缺少针对性的治疗方案，也没有疫苗(并不是说现在的疫苗很好，事实上泽连科医生非常痛恨现在的新冠疫苗，多次称呼其为“死亡毒针”(death shot)。因此，从住院患者的角度进行治疗研究，发现[泽连科方案](https://vladimirzelenkomd.com/prophylaxis-protocol/)不仅可以治疗感染者，更可以预防新冠病毒，那么这对于减缓甚至终结新冠病毒大流行有重大意义。
-
-- 关键分享：[新冠病毒相关论文解析——通过羟氯喹 + 锌，以及阿奇霉素的早期风险分层治疗](https://assets.gnews.org/wp-content/uploads/2021/11/zelenko-2.pdf)
-(文章内容主要依照论文解析，推荐详读了解新冠预防、治疗可能方案；用药仍须依照个案状况，谘询医生，本文仅提供不同观点供读者思考)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-4.jpg)
-* * *
-
-撰文｜寻文客、zhong
+*编辑/校对/发稿：意大利达芬奇农场-儒为*
 
  
 

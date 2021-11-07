@@ -2,24 +2,45 @@
 ---
 
 
-## 中共国盐业调味料集体宣布涨价
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1644978/)
+## 7个月40次核酸检测，中共如此薅羊毛
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645055/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5646.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Fblog%2Fcrawl%2F127%2Fw550h377%2F20211104%2Fcbb4-77eaeed5c45b12f0ed19a14f32f1fdd3.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.sina.com.cn%2Fstock%2Fhyyj%2F2021-11-04%2Fdoc-iktzscyy3666043.shtml&amp;tbnid=3hEjT5NknpXxrM&amp;vet=12ahUKEwjio6_c-YP0AhUOvpQKHVRoAiUQMygHegQIARAl..i&amp;docid=uw65k9eXh6lToM&amp;w=550&amp;h=377&amp;q=%E4%B8%AD%E5%85%B1%E5%9B%BD%E7%9B%90%E4%B8%9A%E8%B0%83%E5%91%B3%E6%96%99%E9%9B%86%E4%BD%93%E5%AE%A3%E5%B8%83%E6%B6%A8%E4%BB%B7&amp;hl=zh-CN&amp;ved=2ahUKEwjio6_c-YP0AhUOvpQKHVRoAiUQMygHegQIARAl)
-腾讯新闻近日报道，继雪天盐业称小包食盐出厂价近期陆续提价后，云南能投也透露，对部分食盐产品及工业盐产品价格进行了上调，综合平均调价幅度30%-35%不等。
+作者：纽约香草山农场 – 鹰(文言)
 
-前几日，加加食品对加加酱油、蚝油、料酒、鸡精和醋系列产品的出厂价格上调3%-7%不等的新闻，造成一种市场整体涨价的趋势，带来新一轮“涨价潮”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-中共国盐业公司集体宣布涨价，同时调味料也宣布涨价，今年以来，煤炭、人工、运输及包装成本纷纷上涨，而关乎民生的日用产品的食盐集体涨价，会带动食品市场联动效应，未来会对基层居民的生活雪上加霜。
+疫情导致瑞丽市常住人口从50万减至20万，市民7个月间歇封闭管理期间核酸检测次数多达40次，某网约车司机7个月90次核酸检测，平均每周3.2次。虽然当地政府称全员核酸检测费用由政府承担，但市政府的医疗开支归根结底依旧来自于底层民众的税收。
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/下载-2.jpg)
 
-[多家食品上市公司回应调价计划，盐业公司集体宣布涨价](https://ms.mbd.baidu.com/r/vXuXLGAjq8?f=cp&amp;rs=1463287175&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0645fe06bb241a9b)
+根据2021年2月初瑞丽市人民医院核酸检测费用下调至76元/次，虽然混检价格略低，但如此频繁的核酸检测，说明检测试剂的精准度低下，显露中共利用疫情变相收割民财的行径。核酸检测以及封闭管理不仅增大了民众的生活开支，更造成严重的断供和断收，让百姓债务压力激增。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+（本文仅代表作者观点）
+
+参考阅读：
+
+- [https://www.163.com/dy/article/GNI0NQU60534IAKI.html](https://www.163.com/dy/article/GNI0NQU60534IAKI.html)
+- [http://www.ruili.gov.cn/shrl/yl/content-182-7649-1.html](http://www.ruili.gov.cn/shrl/yl/content-182-7649-1.html)
+- [https://news.sina.com.cn/c/2021-10-30/doc-iktzscyy2622689.shtml](https://news.sina.com.cn/c/2021-10-30/doc-iktzscyy2622689.shtml)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+
+***编辑***：***木白***
+***校对/发稿：海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
