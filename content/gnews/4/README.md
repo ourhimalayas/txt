@@ -2,24 +2,38 @@
 ---
 
 
-## 秘翻在线：数千违反政府防疫规定的澳洲人尚未缴纳罚款 其资产或被扣押
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1645702/)
+## 全球首个国家&#8211;哥斯达黎加强制所有儿童接种Covid-19疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1645785/)
 
-#### 翻译/撰稿：zzballack
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-29.png)图片来源：SBS News
-据《网关专家》（Gateway Pundit）11月6日报道，对于澳大利亚第二大州昆士兰（Queensland）州违反了政府苛刻的防疫规定的居民来说，如果他们不及时缴纳相应的罚款，其存在银行的钱、房子或其他资产面临着被政府剥夺的风险。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Untitled.png)
 
-至少从今年9月开始，昆州卫生厅要求昆州罚款执行登记处（SPER）追查高达3046笔违反防疫规定的未付罚款，总金额为520万澳元。这些罚款涉及2755名个人和企业，他们被指控在中共病毒疫情期间违反公共卫生令。昆州官方的最新数据显示，其中18.4%的价值约100万澳元的罚款尚未缴纳，SPER正在“积极执法”追讨罚款。据《布里斯班时报》（Brisbane Times）报道，SPER的发言人称，执法措施“可能包括扣押银行账户或工资、登记财产抵押或吊销驾照”。另有25.2%的罚款正处于调查当中，民众可以在当局未采取行动前支付罚金。56.4%的罚款已全额支付或制定了支付计划。
 
-除了这些未付罚款，昆州卫生厅还请了私人收债公司帮忙追讨被拖欠的2045笔、价值达570万澳元逾期未付的酒店检疫费。来澳游客不仅在抵达澳州后被强制进入隔离中心2周，还被寄送总额数千美元的酒店住宿账单。昆州卫生厅的一位女发言人说：“昆州人理所当然地希望游客能够支付他们的酒店检疫住宿费，而不是让纳税人来买单。”截至10月8日，昆州已开出44350张酒店检疫发票，其中大约有11%已严重逾期。预计未来几个月会有更多的人拖欠。
 
-据澳媒《9News》报道，预计这些极端措施将在澳州的其他地区实施，这可能给各州政府带来近1亿澳元的总收入。仅在新南威尔士州，尚未缴纳的疫情违规罚款就超过了5600万澳元。
+图片来源：Reuters: Mayela Lopez
 
-请记住，在漫长的封锁期间，许多公民不被允许工作或以其它任何方式谋生。除非是来自警察或军方人员的“骚扰”否则昆州居民不能离开房子。如果他们敢离家太远，就会被开罚单和罚款。澳州各级政府利用疫情和中共病毒疫苗实施的暴政让澳州逐渐沦为一个专制国家，澳洲人甚至全世界的老百姓必须团结起来抗争，夺回属于我们的自由和个人权利。
 
-新闻来源：[Dystopia Down Under: Thousands of Australians With Unpaid Fines for Breaking Covid Rules Have Bank Accounts Raided and Property Siezed As Tyrannical Government Chases Millions in Fees](https://www.thegatewaypundit.com/2021/11/dystopia-thousands-australians-unpaid-fines-breaking-covid-rules-bank-accounts-raided-property-siezed-tyrannical-government-chases-millions-fees/)
+#### 编译：小红帽
+
+哥斯达黎加已成为世界上第一个强制要求儿童接种中共病毒(Covid-19)疫苗的国家。如果父母不遵守规定，他们将面临制裁，并且他们的孩子可能会被强迫接种疫苗。
+
+该国卫生部周五宣布，根据法律规定，中共病毒疫苗已被添加到儿童疫苗接种清单中。国家疫苗接种和流行病学委员会(CNVE)已宣布所有18岁以下的未成年人都必须接种中共病毒疫苗。
+
+从2022年开始，如果哥斯达黎加的父母不为他们的孩子接种中共病毒疫苗，他们现在可能会面临尚未明确的制裁。以前，如果哥斯达黎加人拒绝为他们的孩子接种麻疹等疾病疫苗作为强制免疫计划的一部分，他们会被报告给卫生部。卫生部随后启动了一项“特殊法律程序”，让未成年人在未经父母同意的情况下进行疫苗接种。
+
+目前尚不清楚同样的计划是否适用于中共病毒疫苗，但它已被添加到所谓的“基本清单”中，其中包括针对水痘、脊髓灰质炎和人乳头瘤病毒 (HPV)的免疫接种。15岁以上的青少年也可以在没有成年人陪同的情况下接种中共病毒疫苗。
+
+**参考新闻：**[All children will have to take Covid-19 jab in Costa Rica — RT World News](https://www.rt.com/news/539555-costa-rica-vaccination-children-mandatory/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

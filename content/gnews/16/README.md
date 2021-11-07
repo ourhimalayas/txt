@@ -2,51 +2,22 @@
 ---
 
 
-## 1200万元存款不翼而飞，储户被判担责八成
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645582/)
+## 秘翻在线:研究表明疫苗效力随着时间推移急剧下降
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1645661/)
 
-作者：英国喜庄园 – I770775
+#### 翻译/撰稿：黃金精神
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-2.png)图片来源：路透社
+11月4日据《洛杉矶时报》报道，由来自奥克兰公共卫生研究所（Public Health Institute）、旧金山退伍军人事务医疗中心（Veterans Affairs Medical Center）和德克萨斯大学健康科学中心的团队进行的一项新的研究表明，随着Delta变种病毒成为美国各地中共病毒主导毒株，美国人可用的所有三种中共疫苗病毒都失去了一些保护能力，在一群退伍军人中，疫苗效力下降了35%~85%。
 
+早在3月初，研究人员搜集了80万名美国退伍军人记录发现，Delta变种病毒的感染能力与三种疫苗的预防能力大致相当。但在接下来的六个月里，这种情况发生了巨大变化。到9月底，莫德纳两剂量疫苗在三月份测得有89%的效力，但现在仅有58%；辉瑞两剂量疫苗效力从87%下降到45%；最引人注目的是，强生单剂量疫苗效力从86%骤降到只有13%。这些发现发表在周四的《科学》杂志上。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+该项研究追踪了2月1日至10月1日间美国武装部队780225名退伍军人。其中近50万人接种了疫苗，而只有不到30万人没有接种疫苗。研究人群中男性是女性的六倍，而且他们的年龄偏大，大约48%是65岁或以上，29%是50至64岁，24%是50岁以下。
 
+尽管在整个研究期间，年长的退伍军人比年轻的退伍军人更有可能死亡，但疫苗对疾病和死亡保护作用的下降在年轻人和老年人中都有体现。
 
-
-连日来，一则“1200万存款被银行转走，储户被判担责八成”的新闻登上墙内网络热搜，引发力网友关注。
-
-据了解，当事人丁女士，做了一辈子生意，把辛辛苦苦攒下来的1200万元存入山西清徐农村商业银行。后来其存单和身份证被银行职员王某骗取，成功转走她的1200万元存款。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-46.jpg)
-今年9月，山西省清徐县法院对丁女士的起诉作出判决，认定银行只承担20%的责任，其余80%的责任由储户承担。
-
-11月4日，丁女士的儿子，以“正义迟早会来92”的网名在社交平台发文，表示当事人对法院的这一判决严重不服。有律师对此事发文评论：显然，银行应该承担主要责任。
-
-参考链接：
-1. [1200万存款被银行职员私自转走，储户被判担责八成，律师：银行应承担主要责任](https://finance.sina.com.cn/jjxw/2021-11-06/doc-iktzqtyu5749586.shtml)
-2. [银行职员转走1200万存款 储户担责八成？当事人回应](https://news.ifeng.com/c/8AvX55VNv4r)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[**新闻来源**](https://www.latimes.com/science/story/2021-11-04/study-shows-dramatic-decline-in-effectiveness-of-covid-19-vaccines)
 
  
 

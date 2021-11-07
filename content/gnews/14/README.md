@@ -2,50 +2,42 @@
 ---
 
 
-## 彭佩奥盖特发文呼吁抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645605/)
+## 数千名美军现役空军和太空军成员错过了COVID &#8211; 19疫苗强制接种的最后期限
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645668/)
 
-作者：英国喜庄园 – I770775
+作者：纽约香草山信息部 – 6zero4
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+五角大楼自8月底宣布各军种军人都必须严格执行疫苗强制接种令的两个月后，11月2日是美国空军和太空部队现役军人接种新冠疫苗的最后期限。但截至当天，在32.6万美国空军和太空部队的现役军人中，95.9%的人完全接种了新冠疫苗，96.9%的人至少接种了一针。约有8500名空军和太空部队的现役军人尚未接种疫苗，其中800人口头拒绝了疫苗接种，2753人还没有开始疫苗接种，4933人正在等待医疗和宗教豁免申请的批准。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2021-11-04_09-39-35.png)
+
+这8500多名空军和太空部队现役军人因不遵守国防部的疫苗强制接种令，而面临被大规模开除的风险，其中40名军人已经被迫从部队退役。最困难的是空军指挥官将开始根据相关法律和政策，对不遵守疫苗强制接种令的飞行员及其主管进行纪律处分，包括签发行政文书、实施非司法惩罚，甚至提交军事法庭指控。尤其是开除那些驾驶隐形战机和轰炸机的战略支援军人，将危及美国的全球战略准备实力。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+- [https://www.zerohedge.com/covid-19/thousands-active-duty-air-force-members-miss-deadline-covid-shots](https://www.zerohedge.com/covid-19/thousands-active-duty-air-force-members-miss-deadline-covid-shots)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-11月4日中午，美国前国务卿彭佩奥在盖特发文，呼吁国际社会坚决抵制北京冬奥会的召开。
-
-彭佩奥说，离北京冬奥会的开幕还有整整三个月，国际社会应该联合起来进行抵制，时间还来得及。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.2.jpg)
-彭佩奥指责国际奥委会的不作为。认为国际奥委会因为接受了中国共产党的腐化，对中共犯下的种族灭绝暴行，选择视而不见。
-
-这是彭佩奥在24小时里连发的第二条关于中共的盖文，在前一条里，彭佩奥称，“中共不是美国的竞争对手，而是敌人。”
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-1.jpg)
-参考链接：
-彭佩奥盖特： [Exactly 3 months until the Beijing Olympics are scheduled to start. The IOC has made it clear it has been corrupted by Communist Party money & is willing to turn a blind eye to the human rights atrocities committed by the CCP (including genocide).](https://gettr.com/post/pg2elgd999)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：木白
-校对/发稿：为真不破20
+***编辑***：***Irene木木***
+***校对/发稿：海阔天空1***
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
 
  
 

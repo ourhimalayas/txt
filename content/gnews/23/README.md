@@ -2,33 +2,50 @@
 ---
 
 
-## “无苗族”为什么高贵？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1645498/)
+## 洛杉矶市长中共病毒检测呈阳性，接种过两针疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645589/)
 
-撰稿：喜妈
-![](https://assets.gnews.org/wp-content/uploads/2021/11/701.jpg)图片来自网络截图
-现在的世界，由于有广泛和普遍的疫情存在，受到世界邪恶力量的影响和压迫，各国的注射率居高不下。无数人受到蒙蔽和欺骗，形成了巨大数量已经注射了中共病毒的毒疫苗的人群。世界面对着即将存在“苗族”和“无苗族”的区分。
+作者：洛杉矶盘古农场 – 滴水穿石
 
-文贵先生指出，“我们是世界上最高贵的族”。笔者通过参与爆料革命有幸成为“无苗族”的其中一员。我认为，“无苗族”之所以高贵，贵在首先就是稀少。凡是推行中共病毒疫苗的国家和地区，基本上大都过半，尤其是我们所在的澳洲，现在全澳成人两针的注射率已经达到80%。那么可以想见，各个年龄段已经注射的总和数字是非常惊人的。而如果统计那些只打了一针或者稍后仍然会去注射人口，那么相信这个比率会极高，同时背后所形成的数字是巨大的。
 
-此外，由于各国对中共病毒疫苗推行不见减缓，反而加速；不见停止，反而更加猖狂，这就更加令人揪心，恶果可想而知。民间除了爆料革命已经形成气候，拥有自己的团队和世界影响力；其他民间的反抗邪恶力量，也不断有各种觉醒和反击，可是目前来看，还是少数群体，或者还在酝酿之中，发展壮大之中，甚为艰难！这也是事实。这也更加反证爆料革命的正确、特殊和伟大。
 
-也就是说，从现在非常残酷的事实来看，“苗族”势必会成为大多数，而“无苗族”则是各国的必然少数。我们也自然因为稀少而珍贵，珍贵当然也是高贵的评估标准之一。珍贵者，稀少者，必然就值得景仰和爱惜。为什么呢？因为，从我们根据爆料革命所了解到的：“无苗族”没有收到中共病毒和毒疫苗污染啊。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-没有污染意味着什么呢？那就是说“无苗族”的身体健康，基因正常，一切身体器官都是富有活性的，这就是为什么文贵先生说将来的“无苗族”会成为人类基因库的重要贡献者。这样的特殊性难道不是高贵的其中一个条件吗？我们因为我们的正义捍卫和谨守，而得到的自身生命与健康存续；也同样富有对人类未来和物种延续的光荣与责任。
 
-“无苗族”的高贵除了这些人本身的数量稀少、具备的光荣责任之外，还有就是“无苗族”身上具备的高尚品质。因为，凡是可以在政府鼓动、媒体歪曲和家庭压力之下，都还坚持不打疫苗的人，那么他们就肯定是：开放心态、正直坚定、捍卫真相、勇敢独立的人。如果这些有着优秀品质的人，又能够将自己的身体和精神都用于人类的未来，他们不仅维护正义，还积极传播真相，拯救他人，这样的人，难道不是高贵的集中体现吗？
 
-因此，我觉得“无苗族”珍贵而且高贵，光荣而且骄傲。我们恰好是因为这种高贵，而更加值得珍惜和捍卫“无苗族”的身份。因为，我们的斗争和努力，恰好是高贵的意义本身，也是高贵的具体表达。我为自己是“无苗族”而欣喜和激动。同时，我也希望自己并请“无苗族”同行战友，一起珍惜自己的难得机缘，谨守正义和光荣的责任。
+周四 （11月4日）， 正在苏格兰在参加联合国气候变化会议的洛杉矶市长埃里克·加塞蒂，做中共病毒检测呈阳性。
 
-（本文纯属个人观点，与Gnews无关）
+50 岁的加塞蒂市长在 今年1 月被医务人员建议接种了第一剂Moderna 疫苗。市长发言人称，他在 2 月份接受了第二剂注射。
 
-*发稿：MG1*
+有专家分析称，强制推行全民中共病毒疫苗接种与政客、医药集团间的暗中勾兑有关。而勾兑的政客必会为其邪恶行为付出代价。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-25.jpg)
+参考链接：
+1. [‘This could be my room for a few days’: Garcetti tests positive, isolates in Scotland](https://www.latimes.com/california/story/2021-11-03/l-a-mayor-eric-garcetti-tests-positive-for-covid-19)
+2. [Garcetti reports some fever and head cold symptoms following covid-19 diagnosis](https://www.latimes.com/california/story/2021-11-04/garcetti-reports-some-fever-and-head-cold-symptoms-following-covid-19-diagnosis)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1.jpg)
+总编/编辑：木白
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
