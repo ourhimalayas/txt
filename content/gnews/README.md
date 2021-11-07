@@ -15,89 +15,89 @@
 
 ---
 
-### [秘翻在线：恒大出售两架湾流G650喷气机以偿还外国债权人](/content/gnews/1/README.md)
+### [文贵视角:「相信」与「信仰」不是一回事](/content/gnews/1/README.md)
+ ` 秘密翻译组-原创组`
+
+### [秘翻在线：恒大出售两架湾流G650喷气机以偿还外国债权人](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [11/5/2021 文贵直播：美国共和党大赢，若中共胆敢对台湾动武，美国三分钟就可以摧毁它](/content/gnews/2/README.md)
+### [11/5/2021 文贵直播：美国共和党大赢，若中共胆敢对台湾动武，美国三分钟就可以摧毁它](/content/gnews/3/README.md)
  ` 秘密翻译组-北美组`
 
-### [日本无印良品商标遭中企侵权案山寨再次告赢正版](/content/gnews/3/README.md)
+### [日本无印良品商标遭中企侵权案山寨再次告赢正版](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：癌症，心梗，脑梗等病亡人数频发，或将成为疫苗时代的常态](/content/gnews/4/README.md)
+### [秘翻在线：癌症，心梗，脑梗等病亡人数频发，或将成为疫苗时代的常态](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [联邦尚未付疫苗所致伤害与死亡—-不知联邦有特殊资金](/content/gnews/5/README.md)
+### [联邦尚未付疫苗所致伤害与死亡—-不知联邦有特殊资金](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [江城子 卖红薯](/content/gnews/6/README.md)
+### [江城子 卖红薯](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [真相工程创始人因阿什利·拜登日记被FBI抄家](/content/gnews/7/README.md)
+### [真相工程创始人因阿什利·拜登日记被FBI抄家](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [CCP中疾控吹嘘墙内疫苗安全性好过平常年份的各种疫苗](/content/gnews/8/README.md)
+### [CCP中疾控吹嘘墙内疫苗安全性好过平常年份的各种疫苗](/content/gnews/9/README.md)
  ` 纽约香草山MOS03`
 
-### [我们不能在技术上依赖中国（二）](/content/gnews/9/README.md)
+### [我们不能在技术上依赖中国（二）](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [江城子 失学](/content/gnews/10/README.md)
+### [江城子 失学](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [领航者](/content/gnews/11/README.md)
+### [领航者](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [不要问丧钟为谁而鸣](/content/gnews/12/README.md)
+### [不要问丧钟为谁而鸣](/content/gnews/13/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [福临门](/content/gnews/13/README.md)
+### [福临门](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [欧盟法院暂停向进入欧洲议会大楼使用绿色通行证](/content/gnews/14/README.md)
+### [欧盟法院暂停向进入欧洲议会大楼使用绿色通行证](/content/gnews/15/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [悔恨](/content/gnews/15/README.md)
+### [悔恨](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [海底捞年底前将关闭300家店铺](/content/gnews/16/README.md)
+### [海底捞年底前将关闭300家店铺](/content/gnews/17/README.md)
  ` 纽约香草山MOS03`
 
-### [柏林墙](/content/gnews/17/README.md)
+### [柏林墙](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国情报员在美国被判间谍罪](/content/gnews/18/README.md)
+### [中共国情报员在美国被判间谍罪](/content/gnews/19/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [真实鬼故事](/content/gnews/19/README.md)
+### [真实鬼故事](/content/gnews/20/README.md)
  ` 银河勇气之星`
 
-### [最新消息：联邦法院阻止拜登政府的疫苗接种授权](/content/gnews/20/README.md)
+### [最新消息：联邦法院阻止拜登政府的疫苗接种授权](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [蓬佩奥：中共国是世界上最大的气候污染国](/content/gnews/21/README.md)
+### [蓬佩奥：中共国是世界上最大的气候污染国](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [我们不能在技术上依赖中国（一）](/content/gnews/22/README.md)
+### [我们不能在技术上依赖中国（一）](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共病毒及其疫苗全球超限战中的典型案例（十六）](/content/gnews/23/README.md)
+### [中共病毒及其疫苗全球超限战中的典型案例（十六）](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [医生说10年内无法完全了解 COVID 疫苗的副作用](/content/gnews/24/README.md)
+### [医生说10年内无法完全了解 COVID 疫苗的副作用](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [喜交所的成功上市是NFSC中央银行的铸币权银行的成立](/content/gnews/25/README.md)
+### [喜交所的成功上市是NFSC中央银行的铸币权银行的成立](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [11/03班农专访8: 谁来为因疫苗产生的副作用和死亡负责？](/content/gnews/26/README.md)
+### [11/03班农专访8: 谁来为因疫苗产生的副作用和死亡负责？](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC大中华时事：中共吹嘘进博会](/content/gnews/27/README.md)
+### [DC大中华时事：中共吹嘘进博会](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [七哥说— 第26期](/content/gnews/28/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [勿忘香港！《时代革命》电影东京特别放映，全球第二场](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

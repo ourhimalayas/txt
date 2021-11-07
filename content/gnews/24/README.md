@@ -2,64 +2,68 @@
 ---
 
 
-## 医生说10年内无法完全了解 COVID 疫苗的副作用
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1646056/)
+## 中共病毒及其疫苗全球超限战中的典型案例（十六）
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1646069/)
 
-**编译：JennyBall**
+作者：香草山信息部 6zero4
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip151.png)
-
-在 [CHD.TV](https://live.childrenshealthdefense.org/) 的最新一集“逆风”中，保罗·托马斯（Paul Thomas）博士采访了两名医疗专业人士，他们讨论了他们如何不顾医院和美国食品和药物管理局 (FDA) 的规定来治疗 COVID 患者。
-
-在CHD.TV 与主持人保罗·博士合作的最新两集“逆风”，保罗介绍了两名医疗专业人员，他们成功治疗了 COVID 患者，没有任何死亡。
-
-嘉宾们——在免疫学和介入内分泌学方面接受过高级医学培训的眼科医生吉姆·米汉（[Dr. Jim Meehan](https://www.meehanmd.com/about)）博士和米勒家庭儿科（[Miller Family Pediatrics](https://www.millerpeds.com/)）的医师助理斯科特·米勒（[Scott Miller](https://www.millerpeds.com/scottmiller) ）——重点讨论了这个问题：医疗专业人士如何克服被谴责的恐惧，用主流媒体打压的治疗方法，拯救患者免于死亡。
-
-托马斯描述，在最近一次上班的路上，他如何经过一群戴着口罩并“与社会保持距离”6英尺的年轻学童。作为父亲和儿科医生，“感觉太不对劲了，”他说。
-
-“看着其中一些孩子的眼睛，你看到无神的目光，”托马斯说。
-
-托马斯和米汉谈到了口罩、[COVID疫苗](https://childrenshealthdefense.org/defender_category/covid/)和[疫苗伤害](https://childrenshealthdefense.org/defender/vaers-cdc-deaths-injuries-covid-vaccines-fda-emergency-use-pfizer-kids/)。
-
-米汉分享了他为什么认为口罩无效、不必要和有害的循证科学分析。米汗还讨论了他使用医院未提供的，可用的[疗法](https://childrenshealthdefense.org/defender/rfk-jr-podcast-dr-ryan-cole-pathologist-early-treatment-keydelta-variant/)治疗患者的经验，以及关于 COVID 治疗的社交媒体帖子是如何被禁止的。
-
-在米汗医生治疗的大约 4,000 名 COVID 患者中，没有人死亡。米汉说，他的病人很早就来找他治疗。在医院里，他成功治疗了 20 多名未通过医院 COVID 协议的患者，其中包括一名服用了两轮[瑞德西韦](https://childrenshealthdefense.org/defender/remdesivir-fda-approval-who-ineffective-covid/)的 66 岁男子。
-
-米汗医生说，在 COVID 疫苗推出后不久，他开始意识到疫苗的[不良反应](https://childrenshealthdefense.org/defender/vaers-cdc-deaths-injuries-covid-vaccines-fda-emergency-use-pfizer-kids/)，包括流产、血管炎、炎症和 [血凝块形成](https://childrenshealthdefense.org/defender/jessica-berg-wilson-dies-covid-vaccine-twitter-censors-obituary/)。
-
-托马斯在他的儿科实践中看到了一例接种疫苗后的[心肌炎病例](https://ca.childrenshealthdefense.org/home-page/risks-of-myocarditis-are-covid-vaccines-in-our-childrens-best-interest/)。
-
-米汉说：
-
-“这可能是你，这可能是你的孩子，你的女儿，这可能是你的父亲……这些是[实验性](https://www.fda.gov/drugs/types-applications/investigational-new-drug-ind-application#Introduction)疫苗。我们还需要十年时间才能知道不良反应的严重程度。我们还需要数年时间才能确定我们可能会因[抗体依赖性增强](https://childrenshealthdefense.org/defender/potential-covid-vaccine-related-ticking-time-bomb/)而失去 10% 的人口”。
-
-**在****米汗医生****开始看到**** COVID ****疫苗受伤的年轻和大学年龄患者后，他在他的网站上添加了紧急声明**。后来，他因发布关于[刺突蛋白](https://childrenshealthdefense.org/defender/moderna-pfizer-vaccines-blood-clots-inflammation-brain-heart/)的危险性，以及动物研究表明：这些蛋白如何穿过血脑屏障，并导致神经系统伤害，从而被禁止进入社交媒体。
-
-米汉说，他对 COVID 疫苗接种的安全警告全面适用，尤其是孕妇、儿童和青少年。
-
-“**我们不能为儿童接种疫苗，统计证明他们死于 COVID-19 的机会为零**，”他说，并分享了约翰斯·霍普金斯大学最近的一项分析数据，该分析发现25 岁以下儿童中，有 330 多例 COVID 死亡，数据表明大多数 或者几乎所有的孩子似乎都患有危及生命的既往疾病。
-
-米勒使用了 FDA 批准的疗法，但这些疗法未被 FDA 批准用于治疗 COVID，这导致他失去了医疗执照。
-
-米勒在他的实践中对待儿童和成人一样。 他的儿科患者没有一个死于 COVID 或住院。
-
-米勒讨论了迫使他反对该系统,并倡导适用于 COVID 的行之有效的治疗方法的研究和道德义务。他说：“当有这么多人需要这些信息时，我觉得逐一告诉人们是徒劳的，所以我才开始公开谈论它。”
-
-**评论：这么不可思议，米勒医生使用的疗法治愈病人，****FDA****却吊销了他的医疗执照。还要比这更荒唐的事情吗！政府没有行医执照，却有权强制人们接种****10****年后才能够彻底看到不良反应的试验药品！**
-
-**快清醒啊还在被无良“科学家”欺骗的人们！**
-
-**新闻来源**：[childrenshealthdefense.org] [Full Extent of COVID Vaccine Reactions Won’t Be Known for at Least 10 Years, Physician Says](https://childrenshealthdefense.org/defender/chd-tv-against-wind-paul-thomas-jim-meehan-scott-miller-fda-covid/)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36.png)
 
 
+
+**参议员保罗抨击撒谎成性的福奇：他因自然免疫挫败了其大规模疫苗接种计划而无视自然免疫的作用**
+
+2021年10月8日，参议员保罗（Rand Paul）指责NIAID主任福奇刻意无视COVID-19病毒引发自然免疫的益处，因为这将破坏福奇的大规模疫苗接种计划，进一步抨击了福奇将每个人都需要接种COVID-19疫苗的想法为“无稽之谈”。前几天有人问福奇关于人体对COVID-19病毒感染后获得自然免疫力的看法，福奇表示从没想过自然免疫这个问题，对此没有任何评论，这是赤裸裸地无视自然免疫存在的意义！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-97.png)
+保罗对自然免疫的比喻很贴切：85岁的你的死亡概率是你10岁时的1万倍，难道我们应该像对待85岁老人一样对待一个10岁的孩子吗？这简直是无稽之谈，是对自然免疫的刻意无视！
+
+上周，卫生部长贝塞拉（Xavier Becerra）当着保罗的面嘲笑那些不接种疫苗而选择自然免疫的人傲慢、独裁且不配为美国人。卫生官员对未接种疫苗的人表现得如此歇斯底里，他们对自然免疫的无视恰恰证明了自然免疫的实际作用和意义！
+
+**8****个佛罗里达学区因违反州卫生局口罩禁令而受到州教育委员会的惩罚**
+
+2021年10月7日，佛罗里达州教育委员会对该州8个学区（Brevard, Broward, Duval, Hillsborough, Leon, Miami-Dade, Orange 与 Palm Beach县）进行经济处罚，因为这些学区无视该州禁止在学校里戴口罩的规定而强制让学生在校戴口罩。该规定支持《父母权利法案》，是上个月由该州卫生局通过的一项紧急规定，强调学生戴不戴口罩的要求由父母或法定监护人全权决定。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-98.png)
+州教育委员会委员科科伦（Richard Corcoran）向委员会报告说，在作出处罚决定前，这8个县都没有提供任何证明自己遵守了这个法律的信息，建议扣留每位学校董事会成员年薪的十二分之一，并暂停任何联邦安全项目基金对这些学区的拨款。
+
+联邦政府以偿还这些学区因无视该法律禁止学校戴口罩的规定而损失了资金的名义，已从联邦安全项目拨款中拿走了纳税人的这部分专项资金。科科伦因此表示联邦拨款是用来“收买学区”的，联邦政府干预了州教育委员会管理其教育系统的责任，这违反了宪法第十修正案。科科伦还表示，每个佛罗里达人都应该对联邦政府干涉州教育问题感到愤怒，我们不应受到联邦政府的胁迫。
+
+**夏威夷州已经实际上要求持“疫苗护照”入境**
+
+零对冲2021年10月8日报道，近几个月来，夏威夷事实上已经在执行“疫苗护照”政策，一些试图持假的疫苗接种卡或病毒检测结果进入夏威夷的人在边境被捕，并可能被判入狱。最初，来自加州的一对父子持假疫苗接种卡入境夏威夷而成为第一个引起全国关注的案例；今年夏天，一名持有假Maderna疫苗接种卡的芝加哥女子试图进入这个度假天堂时被发现；最近，一对30多岁的洛杉矶夫妇谎报新冠病毒检测呈阴性，试图避开COVID-19病毒测试以进入夏威夷后自费在酒店进行长期隔离，他们在边境被捕并被遣送回加州，目前正在等待法庭审判。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-99.png)
+根据夏威夷地方法律，持假疫苗接种卡最高可被罚款5000美元或最长一年的监禁。同时，在夏威夷境内的健身房、酒吧和餐馆等公共场所，也已仿效纽约和旧金山等美国大城市而推出了新冠疫苗护照，并称其为数字智能健康卡，虽然它还没有完全在夏威夷强制执行，但已经在鼓励当地企业开始强制执行了。
+
+**新加坡的****AI****聊天机器人因对****COVID-19****疫情给出不当建议后被下架了**
+
+2021年10月8日零对冲报道，最近新加坡卫生部从其官网上删除了人工智能聊天机器人“杰米”，因为它的“失控”和“错位”，为人们提供了与COVID-19相关问题极不恰当的答案，让人难以置信并使事态变得更糟。AI聊天机器人“杰米”使用自然语言处理引擎来回答公众提出的问题，最近“杰米”在回答一名用户问“我儿子的COVID-19病毒检测呈阳性，我该怎么办？”时回答道：“至少在你的女性伴侣怀孕期间，你应该通过正确并持续使用避孕套或禁欲来进行安全性行为”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-100.png)
+另一位居民问：“我在哪里可以得到ART（快速抗原检测）？”时，“杰米”却提供了“脊髓灰质炎疫苗”的答复。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-101.png)
+AI聊天机器人在新加坡的其它几十个政府网站上运行良好，但不知道为什么在询问新冠病毒问题时却给出了糟糕的答案，这仍然是个有趣的谜。
+
+图片和新闻源于:
+
+[https://www.zerohedge.com/political/watch-rand-paul-blasts-lying-fauci-he-ignores-natural-immunity-because-it-foils-his-mass](https://www.zerohedge.com/political/watch-rand-paul-blasts-lying-fauci-he-ignores-natural-immunity-because-it-foils-his-mass)
+
+[https://www.zerohedge.com/political/florida-state-board-sanctions-eight-school-districts-defying-ban-mask-mandates](https://www.zerohedge.com/political/florida-state-board-sanctions-eight-school-districts-defying-ban-mask-mandates)
+
+[https://www.zerohedge.com/covid-19/one-us-state-already-has-de-facto-vaccine-passport-requirement-just-enterhttps://www.zerohedge.com/technology/singapore-drops-ai-chatbot-after-giving-inappropriate-advice-about-covid](https://www.zerohedge.com/covid-19/one-us-state-already-has-de-facto-vaccine-passport-requirement-just-enterhttps://www.zerohedge.com/technology/singapore-drops-ai-chatbot-after-giving-inappropriate-advice-about-covid)
+
+审核/上传：浪迹天涯
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

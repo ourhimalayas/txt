@@ -2,14 +2,16 @@
 ---
 
 
-## 领航者
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1646193/)
+## 江城子 失学
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1646198/)
 
 作者：文北
-![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_3490.jpg)
-《领航者》 
-任尔星辰古今烁，吾凭日月照長河。 
-雄才大略領航者，迎風破浪断江波！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_3492.jpg)
+《江城子 失学》 
+何处归途遇来路，细回顾，多感触。 
+几双赤足，被红尘缚住， 一国百姓两样人，有贫苦，有巨富。 
+满朝文武如泥塑，为权腐，为利碌。 愁眉紧蹙，也于事无补。 
+两千年后闭国门，商鞅术，奴万物…
 
 * * *
 

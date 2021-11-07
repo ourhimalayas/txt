@@ -2,25 +2,18 @@
 ---
 
 
-## 悔恨
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1646178/)
+## 欧盟法院暂停向进入欧洲议会大楼使用绿色通行证
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1646180/)
 
-作者：文北
-![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_3489.jpg)
-《悔恨》 
-早年信共党，晚景好凄凉。 
-犹忆往音事，狠抓裆中央！
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11062-ansa.jpg)图片来自ANSA
+11 月 7 日-比利时新闻社报道：“欧盟法院院长已决定暂时暂停强制执行进入欧洲议会大楼的绿色通行证，并指出一些欧洲议会议员和欧洲议会的工作人员已就这一强加提出上诉”。
 
-* * *
+比利时机构规定：欧盟法院院长将在未来几周内就明确暂停在欧洲议会中使用绿色通行证的请求作出第二项决定，目前暂不知道欧盟法院院长的决定。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/07/tribunale-ue-sospende-obbligo-uso-green-pass-al-pe\_97f60465-6118-4364-baed-36ede9c11134.html](https://www.ansa.it/sito/notizie/topnews/2021/11/07/tribunale-ue-sospende-obbligo-uso-green-pass-al-pe_97f60465-6118-4364-baed-36ede9c11134.html)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 
