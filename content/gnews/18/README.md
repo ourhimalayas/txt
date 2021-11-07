@@ -2,16 +2,14 @@
 ---
 
 
-## 【美国推出带有 #加密货币 基础设施的法案】📣📣
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1646450/)
+## 【 #未来货币 的形式】💸💳🪙
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1646527/)
 
-据 CoinDesk 报道，美国众议院以至少 218 票赞成的表决结果投票通过了基础设施法案，其中包含 [#加密货币](https://gettr.com/hashtag/%23%E5%8A%A0%E5%AF%86%E8%B4%A7%E5%B8%81) 纳税申报要求的条款。目前该法案已送交美国总统拜登签字。接下来美国财政部仍需解释其计划并发布指导意见，阐明企业或其他实体如何履行该法案。
+“就像邮票随着互联网和电子邮件的出现而失去其用处一样，现金在一个日益数字化的经济中也可能失去其存在的意义。”
 
-[#财经G评](https://gettr.com/hashtag/%23%E8%B4%A2%E7%BB%8FG%E8%AF%84)：
-
-[#比特币](https://gettr.com/hashtag/%23%E6%AF%94%E7%89%B9%E5%B8%81) 引领各行业对区块链的研究，而区块链技术不是去中心化的而是弱中心化，减少中心控制与干预。传统金融模式一直在演变支付技术，却无法改变金融行业的基础建设。传统金融系统早就应该研究区块链并制定一套可应用的制度体系了。
-![img](https://media.gettr.com/group28/getter/2021/11/06/12/11/bae51794-38a6-2256-cd4a-a9a886d6ff69/0e6514d418471cd2ba48bd8b11fc9a1e.jpg)
-参考链接：https://www.coindesk.com/business/2021/11/06/house-sends-infrastructure-bill-with-crypto-tax-provision-to-us-president/
+路透社消息，#欧洲央行 执委帕内塔(Fabio Panetta)在周五的一次演讲中表示：欧洲央行一直在致力于设计一种 [#数字货币](https://gettr.com/hashtag/%23%E6%95%B0%E5%AD%97%E8%B4%A7%E5%B8%81)，像现金一样直接由央行发行，但该项目仍可能需要五年的时间才能完成。
+![img](https://media.gettr.com/group25/getter/2021/11/06/08/45/991cbf0e-4e6a-a4c1-dec1-ae0f8eec6c85/f4ee1db1bd03312495adb0bf2acd906e_500x0.jpg)
+参考链接：[https://cn.reuters.com/article/ecb-pan…](https://cn.reuters.com/article/ecb-panetta-digital-euro-1106-idCNKBS2HR037?il=0)
 
 **（文章内容仅代表新西兰-财经G乐部节目观点）**
 

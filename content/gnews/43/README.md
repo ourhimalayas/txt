@@ -2,29 +2,31 @@
 ---
 
 
-## 班农先生谈喜币上市的意义
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645980/)
+## 欧盟议员代表团正式访问台湾
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645985/)
 
-作者：英国喜庄园 I770775
+作者：香草山农场 文真
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+当地时间11月3日，欧盟“外国干涉民主进程委员会”的13名成员组团抵达台湾，进行了为期三天的官方访问——这是欧盟议会首次派遣官方代表团访问台湾。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1107AM（1-9）視頻備用.003.jpeg)
+在访问的过程中，代表团与蔡英文总统和数位部长唐凤进行了会晤，并访问了台湾的智囊团、非政府组织和其他致力于打击虚假信息的组织。
 
+代表团团长、法国籍欧盟议会议员格鲁克斯曼称赞，台湾民主的蓬勃发展令人敬畏。他还强调，专制政权不是未来。
 
-11月3日，美国前白宫首席战略顾问史蒂夫-班农先生接受了英喜农场战友的采访。在采访中，班农先生谈到了喜币上市对新中国联邦的重大意义。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1107AM（1-9）視頻備用.001.jpeg)
-班农先生说，喜币成功上市是丰碑式的。新中国联邦和新中国人有了新货币，且随着喜币的上市，新中国联邦的版图正各就各位：GTV、GNews 和 Gettr正在发挥媒体的核爆作用，将中共的邪恶传播到全世界；同时，喜币、喜联储发挥着融资功能，持续汇聚全球的金融资本。
+近期，台湾与欧盟的双边整体关系与合作交流程度不断提升。上个月，台湾外交部长吴钊燮对欧洲多国以及欧盟总部进行了访问。随后，欧盟议会通过了首份“欧盟-台湾政治关系与合作”报告，目的在于加强欧盟的对台合作，旨在共同对抗中共专制政权的侵犯。
 
-班农先生赞扬，新中国联邦的灭共力量制度化委实令人惊叹。
+参考链接：
 
-班农先生还提到，相比中共造成的死亡和破坏，新中国联邦、爆料革命和文贵先生一直都在给全世界带来正面的影响。他还补充道，新中国联邦用顶尖的科技、雄厚的资本和真实的领导力支撑起如此庞大的体系，并使其发展壮大，这非常了不起。
+1. [European Union Lawmakers Meet Taiwan Premier in First Official Visit](https://www.breitbart.com/europe/2021/11/06/european-union-lawmakers-meet-taiwan-premier-in-first-official-visit/)
+2. [欧洲议会官方代表团首访台湾 台北称意义重大](https://www.voachinese.com/a/taiwan-european-parliament-20211103/6297920.html)
 
-参考链接：[班农先生：喜币成功上市是丰碑式的，新中国联邦和新中国人现在有了新货币。…….](https://www.gettr.com/post/pg6y60db1d)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-总编：Jack Li文阳
-编辑：文特
+总编：Irene木木
+编辑：Ivy001
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**

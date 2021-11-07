@@ -2,28 +2,30 @@
 ---
 
 
-## 共和党出手抵制！联邦上诉法院冻结拜登政府疫苗接种令
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1646459/)
+## 有声|中共国多地出现粮食抢购现象
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1646540/)
 
-撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-27.jpg)
-[图片来源](https://thepostmillennial.com/migrants-separated-compensated-biden?utm_campaign=64474)
+配音：香草山教育部 – 蒙古鸿雁
 
-当地时间11月6日，美国联邦上诉法院颁布冻结令，暂时禁止拜登政府要求雇员超过一百人的公司接种新冠疫苗或每周接受测试的规定，理由是这项规定存在“严重的法定和宪法”问题。
+继商务部发布的《鼓励家庭根据需要粗存一定数量的生活必需品》的声明后，北京时间11月4日，重庆、郑州、江常州、温州，甚至北京都出现了粮食抢购的现象。
 
-美国联邦第五巡回上诉法院做出此项裁决前，众多共和党人领导的州对拜登政府这项新规定提出法律挑战。此项裁决是对德克萨斯州、路易斯安那州、密西西比州、南卡罗莱纳州和犹他州以及几个商家和权益组织提出的联合上诉做出的回应。这项规定同时在其它法庭面临不同的法律挑战。拜登政府两天前公布了这项规定，共和党州长们立即誓言要采取法律行动，理由是规定超越了政府的合法权限。
+据招商证券最新发布的10月宏观报告，10月份，28种重点监测蔬菜价格环比增幅达19%。此外，盐业集体涨价，平均涨幅30%-35%不等。
 
-拜登政府疫苗接种令被冻结事件，至少传递两个信号，一是中共病毒疫苗真相和灾难已为越来越多人了解；二是对于美国中期选举，共和党开始强势布局。
+郭文贵先生在直播中提到，中共从来没有制定应对突发事件、针对民用物资的补给政策。在遭受河南重大水灾，和外汇短缺的形势下，中共国恐将发生因粮食短缺，而导致的人道灾难。
 
-信息来源：
+文字版原文：[中共国多地出现粮食抢购现象](https://gnews.org/zh-hans/1640724/)
 
-[美上诉法庭冻结拜登提出的疫苗接种令](https://www.voachinese.com/a/biden-vaccine-rule-frozen-20211106/6302858.html?utm_medium=proxy&amp;utm_campaign=persagg&amp;utm_source=nthlink&amp;utm_content=title&amp;utm_term=cn)
+音频处理：喜山必胜Maverick
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-4.jpg)
-
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
