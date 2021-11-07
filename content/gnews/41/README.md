@@ -2,20 +2,22 @@
 ---
 
 
-## “海底捞”将关停300家门店
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1644269/)
+## 美国学校试图推行儿童疫苗接种，专业医生极力反对
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1644292/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：MOS – 柳是多水土透
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月5日，相关报道提及，海底捞在香港联交所发布公告表示，将于2021年底，逐步关停300家左右经营业绩不佳的门店。
+11月5日，美国媒体报道称，11月3日起，美国各大医疗机构和药房将推行5至11岁儿童用新冠疫苗。据悉，部分地区已为此推出各类所谓的“激励措施”，试图推广儿童用新冠疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-4.jpeg)
 
-消息称，截至2021年6月31日，海底捞全球门店总数约为1600家。但从财报的数据看，今年上半年，海底捞的营收业绩为200亿元，净利润仅0.97亿元，与2019年同期相比大幅下降，暴跌近90%。另有数据显示，截至目前，海底捞的股价年内已下跌70%，市值蒸发超过3500亿港元。
+但据盖特消息报道，戴维-威斯曼医生极力反对向儿童注射新冠疫苗的政策。他表示，新冠疫苗对于儿童来说是非常不安全的。威斯曼医生指出，FDA以及CDC收到的儿童疫苗支持证据仅基于辉瑞公司的少数研究结果，但这些研究有些并没有使用经过验证的资源，还有些研究结果没有得到足够的数据检验。另外，疫苗公司更改了儿童用新冠疫苗的配方，但这一配方甚至没有经过动物测试，就直接被投入了使用。
 
-有关评论表示，海底捞是中共统治下私营企业的缩影。在中共经济面临崩溃的当下，中共国内没有一个企业是安全的。
+威斯曼医生提到，已经有相关人士爆料了疫苗制造公司包括数据造假在内的各类不当操作行为，在此基础上，FDA对儿童用新冠疫苗的授权是非常不负责任的做法。
 
-参考链接：[“火锅之王”扩张之殇：海底捞将关停1/5门店](https://m.sohu.com/a/499459254_100011510/?pvid=000115_3w_a)
+参考链接：
+1）[Schools to Distribute Covid-19 Shots, Incentives to Vaccinate Children](https://www.wsj.com/articles/schools-to-distribute-covid-19-vaccines-incentives-to-kids-11636113601)
+2）[https://gettr.com/post/pg3kkm1567](https://gettr.com/post/pg3kkm1567)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
@@ -30,6 +32,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

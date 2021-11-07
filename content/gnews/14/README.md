@@ -2,38 +2,170 @@
 ---
 
 
-## 美第五巡回上诉法院暂停拜登企业疫苗强制令
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1644969/)
+## 财富是多人属性的 它可以创造权力 可以让权力干正事
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1644983/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+[https://gtv.org/video/id=6186810dadfd99590c33be81](https://gtv.org/video/id=6186810dadfd99590c33be81)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/V-3-scaled.jpg)schermverenigingheerenleed.nl
-昨天（11月5日）笔者转发了“美11个州起诉拜登政府私营企业疫苗强制令”的文章【1】，今天就有法院作出了回应。
+**郭文贵**
+**Miles Guo**
 
-《门道专家》报道，一家上诉法院已发出暂缓令，暂时停止了乔·拜登对拥有100名或更多员工的企业的疫苗强制令。【2】
+没有财富自由的家庭
+A family without wealth and freedom
 
-文章说，美国联邦第五巡回上诉法院的裁决是在多个州的总检察长对政府提起诉讼之后作出的。
+和谐、快乐、健康、 有尊严几乎都无从谈起
+it’s almost impossible that know where to begin talking about harmony, happiness, health, and dignity
 
-法院表示，他们发现该强制令存在“严重的法定和宪法”问题。
+财富属性最后都是社会的
+Wealth attribute is all belong to society in the end
 
-劳工律师西玛南达（Seema Nanda）告诉路透社，劳工部“对其法律权限有信心”发布该规定，该规定将由“职业安全与健康管理局”（OSHA）执行。
+这一句话就是，所有的钱都是归社会的
+It means all money belongs to society
 
-她说：“职业安全与健康法明确赋予OSHA权力，在机构发现工人面临严重危险的紧急情况下，OSHA有权迅速采取行动，有必要制定新的标准来保护他们，我们完全准备在法庭上捍卫这一标准。”
+但是这个财富属性的创造者和享用者
+But the creator and beneficiary of this wealth attribute
 
-路透社的报道补充说，“这项长达两页的法庭令要求拜登政府必须在周一下午5点之前回应法院对疫苗强制令的质疑。”
+就是社会上最高级统治者
+is the superlative ruler
 
-拜登的疫苗强制令将于1月4日生效，并将适用于8420万名工作人员和190万个私营部门的工作岗位。
+这你就明白了钱到底咋回事儿
+Then you will understand what the money is really about
 
-（全文完）
+然后也告诉我们货币是怎么回事
+and then tell us what the currency is all about
 
-州法院、联邦法院若是都像联邦第五巡回上诉法院作出这样明智的裁决，阴谋集团得逞的可能性会大大减少。新中国联邦正在奋力呼唤，觉醒的人虽然越来越多，但迄今为止还没有一个民主党州长起来反对疫苗强制政策。看起来，唤醒更多的美国人，任重而道远。
+金银怎么回事
+as well as with gold and silver
 
-有关链接：
+这对我当时来讲，一个十几岁的孩子
+To me at the time, a teenager
 
-【1】[https://gnews.org/zh-hans/1642721/](https://gnews.org/zh-hans/1642721/)
+这是很大的事，就你认清了钱到底姓啥
+that was a big deal because you recognized that who owns money at the end
 
-【2】[https://www.thegatewaypundit.com/2021/11/breaking-appeals-court-temporarily-halts-bidens-vaccine-mandate-businesses/](https://www.thegatewaypundit.com/2021/11/breaking-appeals-court-temporarily-halts-bidens-vaccine-mandate-businesses/)
+你再过3年5年
+3 years or 5 years later
+
+你看今天你所有对财富的理解
+look back to your understanding of all wealth today
+
+你就觉得是个天大的耻辱和笑话
+you would feel that it’s the biggest joke and shame
+
+第3个就是最重要的
+The 3rd one is the most important
+
+当你有信仰和理想的时候，你会越来越明白
+When you have beliefs and goals, you will understand more and more of
+
+这个世界很伟大、很丑陋的两个极端
+these two extremes in the world which are very and ugly
+
+都伟大立不了财富
+The wealth would not be created if everyone is great
+
+丑陋是因为财富
+Ugliness is because of wealth
+
+当你把这个问题搞明白的时候
+When you understand these questions
+
+你想做伟大吗
+Do you want to be virtuous?
+
+你想做让你自己爱的人吗
+Would you want to be the one that you love?
+
+你想让别人发自内心的尊重你吗
+Would you like to have others respected you by heart?
+
+绝对你会知道，你要拥有干净的财富
+You will definitely understand that you have to have a transparent wealth
+
+财富会让你拥有自己的能力和证明的机会
+and wealth will let you have the ability to own yourself and the opportunity to veri-fy
+
+所以说
+That being said
+
+经过我做生意，搞酒店、房地产、金融
+after I did business, engaged in hotels, real estate, finance
+
+我所有的从清丰看守所出来以后（的经历）
+and all experiences that I had inside the Qingfeng Detention Center
+
+我发自内心地说，我一定要在财富上自由后
+I had said it from bottom of my heart that I must be free in wealth
+
+让家人都安全、孩子长大后
+kept family members safe, and after children grew up
+
+我灭共的事业才能开始
+and then I could start my career of eliminating the communism
+
+否则无从谈起
+Otherwise, there’s no way to talk about it
+
+但是财富这个东西，它也很有意思的
+But wealth is also very interesting
+
+财不是个单字，是一个贝一个才加个富成为财富
+(The Chinese character) of “wealth” is not an individual character. It’s formed by the radical of a shell and talent, and add a rich to become wealth
+
+财富是多人属性
+Wealth is multi-person attribute
+
+如果你一个人有钱那叫富有，它不叫财富
+One person has the money doesn’t mean you are wealthy. It’s called rich
+
+财富是多人属性下的
+Wealth is based on multi-person attribute
+
+当你把财富（跟）更多人分享的时候那你就是财富
+When you share your wealth with more people, then you are wealthy
+
+当我觉得新中国联邦人都拥有财富的时候
+When I feel that all people of the New Federal China have wealth
+
+那才叫真正的财富
+that is the real wealth
+
+财富可以创造权利
+Wealth creates power
+
+可以让权力干正事
+and allow the authority to do the right thing
+
+那么我们就要创造干净的财富去干干净的事
+Therefore, we must create a clean wealth and to do clean business
+
+这就是当初我想灭共之初
+This is the beginning of my desire to eliminate the communists
+
+这30年的准备, 时时刻刻想着
+This has been prepared for 30 years and kept in my mind all the time
+
+———————————————————
+
+**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1455865144043470857?s=24](https://twitter.com/se1y7cblljselva/status/1455865144043470857?s=24)
+
+Date: 11/03/2021
+原视频标题:财富是多人属性的 它可以创造权力 可以让权力干正事
+Wealth is a multi-person attribute. It can create power for somebody and allow them to do the right thing
+原视频日期：2021/11/01
+任务编号：KC225(2759)
+视频时间段 : 0:00-2:13
+
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
