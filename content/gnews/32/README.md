@@ -2,26 +2,16 @@
 ---
 
 
-## 香草山翻译部周刊|2021年11月07日第21期
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1646639/)
+## 中共为了成功举办冬奥会，掩盖每天因疫苗死亡达十万人的事实
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1646648/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36.png)
+韩国首尔天池农场——–追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-08-at-00.25.15.jpeg)
+根据文贵先生11月7日的大直播爆料，中共的官员上星期给中央写报告说中国现在疫苗死亡案例，如脑梗、心梗、眼梗、车梗和冠状病毒的死亡病例，每天都在10万起以上。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/text-CN-1.png)
-文章仅代表作者本人观点，与Gnews无关
+钟南山已经被干掉了，钟南山家族已经被抓了好几个了。有用吗？抓了钟南山咱（新中国联邦）高兴有啥用？没有钟南山还会有李南山。中共为了掩盖那十几万人的死亡，就为了成功举办一个冬奥会，这个国家已经没有希望了。
 
-总编： GBWater
-编辑：Lakers
-发稿：Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+事实证明，普通的中国人在中共眼里就是它维持统治的工具而已。制造了病毒，把中国人当成他们疫苗的试验品，并不顾及这些普通人的生死存亡。钟南山也只是中共的一个棋子而已，没有利用价值了一样被丢弃。再一次证明只有消灭中国共产党，中国人民才有希望和未来。
 
  
 

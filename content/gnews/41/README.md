@@ -2,18 +2,27 @@
 ---
 
 
-## 【美国推出带有 #加密货币 基础设施的法案】📣📣
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1646450/)
+## 共和党出手抵制！联邦上诉法院冻结拜登政府疫苗接种令
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1646459/)
 
-据 CoinDesk 报道，美国众议院以至少 218 票赞成的表决结果投票通过了基础设施法案，其中包含 [#加密货币](https://gettr.com/hashtag/%23%E5%8A%A0%E5%AF%86%E8%B4%A7%E5%B8%81) 纳税申报要求的条款。目前该法案已送交美国总统拜登签字。接下来美国财政部仍需解释其计划并发布指导意见，阐明企业或其他实体如何履行该法案。
+撰稿：东京樱花团/天路天道
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-27.jpg)
+[图片来源](https://thepostmillennial.com/migrants-separated-compensated-biden?utm_campaign=64474)
 
-[#财经G评](https://gettr.com/hashtag/%23%E8%B4%A2%E7%BB%8FG%E8%AF%84)：
+当地时间11月6日，美国联邦上诉法院颁布冻结令，暂时禁止拜登政府要求雇员超过一百人的公司接种新冠疫苗或每周接受测试的规定，理由是这项规定存在“严重的法定和宪法”问题。
 
-[#比特币](https://gettr.com/hashtag/%23%E6%AF%94%E7%89%B9%E5%B8%81) 引领各行业对区块链的研究，而区块链技术不是去中心化的而是弱中心化，减少中心控制与干预。传统金融模式一直在演变支付技术，却无法改变金融行业的基础建设。传统金融系统早就应该研究区块链并制定一套可应用的制度体系了。
-![img](https://media.gettr.com/group28/getter/2021/11/06/12/11/bae51794-38a6-2256-cd4a-a9a886d6ff69/0e6514d418471cd2ba48bd8b11fc9a1e.jpg)
-参考链接：https://www.coindesk.com/business/2021/11/06/house-sends-infrastructure-bill-with-crypto-tax-provision-to-us-president/
+美国联邦第五巡回上诉法院做出此项裁决前，众多共和党人领导的州对拜登政府这项新规定提出法律挑战。此项裁决是对德克萨斯州、路易斯安那州、密西西比州、南卡罗莱纳州和犹他州以及几个商家和权益组织提出的联合上诉做出的回应。这项规定同时在其它法庭面临不同的法律挑战。拜登政府两天前公布了这项规定，共和党州长们立即誓言要采取法律行动，理由是规定超越了政府的合法权限。
 
-**（文章内容仅代表新西兰-财经G乐部节目观点）**
+拜登政府疫苗接种令被冻结事件，至少传递两个信号，一是中共病毒疫苗真相和灾难已为越来越多人了解；二是对于美国中期选举，共和党开始强势布局。
+
+信息来源：
+
+[美上诉法庭冻结拜登提出的疫苗接种令](https://www.voachinese.com/a/biden-vaccine-rule-frozen-20211106/6302858.html?utm_medium=proxy&amp;utm_campaign=persagg&amp;utm_source=nthlink&amp;utm_content=title&amp;utm_term=cn)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-4.jpg)
+
 
  
 

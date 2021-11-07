@@ -2,12 +2,30 @@
 ---
 
 
-## 深圳市政府官员威胁佳兆业理财产品受害者
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1646785/)
+## GTV新闻访谈简报|2021年11月7日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1646834/)
 
-11/04/2021 深圳市政府官员威胁佳兆业理财产品受害者：喊口号就涉嫌非法集会，已把所有人的面孔都记下来。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-1.png)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-6.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：2021.11.07早GTV新闻访谈
+
+[https://gtv.org/video/id=6187d42f11d186296802fed5](https://gtv.org/video/id=6187d42f11d186296802fed5)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
