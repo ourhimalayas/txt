@@ -2,10 +2,10 @@
 ---
 
 
-## 1200万元存款不翼而飞，储户被判担责八成
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645582/)
+## 洛杉矶市长中共病毒检测呈阳性，接种过两针疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645589/)
 
-作者：英国喜庄园 – I770775
+作者：洛杉矶盘古农场 – 滴水穿石
 
 
 
@@ -13,17 +13,15 @@
 
 
 
-连日来，一则“1200万存款被银行转走，储户被判担责八成”的新闻登上墙内网络热搜，引发力网友关注。
+周四 （11月4日）， 正在苏格兰在参加联合国气候变化会议的洛杉矶市长埃里克·加塞蒂，做中共病毒检测呈阳性。
 
-据了解，当事人丁女士，做了一辈子生意，把辛辛苦苦攒下来的1200万元存入山西清徐农村商业银行。后来其存单和身份证被银行职员王某骗取，成功转走她的1200万元存款。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-46.jpg)
-今年9月，山西省清徐县法院对丁女士的起诉作出判决，认定银行只承担20%的责任，其余80%的责任由储户承担。
+50 岁的加塞蒂市长在 今年1 月被医务人员建议接种了第一剂Moderna 疫苗。市长发言人称，他在 2 月份接受了第二剂注射。
 
-11月4日，丁女士的儿子，以“正义迟早会来92”的网名在社交平台发文，表示当事人对法院的这一判决严重不服。有律师对此事发文评论：显然，银行应该承担主要责任。
-
+有专家分析称，强制推行全民中共病毒疫苗接种与政客、医药集团间的暗中勾兑有关。而勾兑的政客必会为其邪恶行为付出代价。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-25.jpg)
 参考链接：
-1. [1200万存款被银行职员私自转走，储户被判担责八成，律师：银行应承担主要责任](https://finance.sina.com.cn/jjxw/2021-11-06/doc-iktzqtyu5749586.shtml)
-2. [银行职员转走1200万存款 储户担责八成？当事人回应](https://news.ifeng.com/c/8AvX55VNv4r)
+1. [‘This could be my room for a few days’: Garcetti tests positive, isolates in Scotland](https://www.latimes.com/california/story/2021-11-03/l-a-mayor-eric-garcetti-tests-positive-for-covid-19)
+2. [Garcetti reports some fever and head cold symptoms following covid-19 diagnosis](https://www.latimes.com/california/story/2021-11-04/garcetti-reports-some-fever-and-head-cold-symptoms-following-covid-19-diagnosis)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 

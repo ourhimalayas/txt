@@ -2,26 +2,26 @@
 ---
 
 
-## 零对冲：美国供应链只会变得更糟
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1645764/)
+## 4%的美国人因加密货币赚钱而辞职
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1645769/)
 
 #### 撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-27.jpg)[图片来源](https://alt-market.us/heres-why-u-s-supply-chain-problems-will-only-get-worse/)
-当地时间11月5日晚，零对冲转载Brandon Smith文章，认为政府越想控制事情，事情就越糟。当前，美国由货币超发引发的通货膨胀和美元贬值，以及强制疫苗政策引发的港口工人短缺和卡车司机短缺等劳工缺乏问题，将严重威胁美国供应链的安全。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/121-2.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2021%252F0327%252F40042d77j00qqlv5o000zc000o500f8m.jpg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FG63C9G9B05118H7I.html&amp;tbnid=bCDmyoDrIQ8qDM&amp;vet=10CDsQMyiBAWoXChMIsMbSuveC9AIVAAAAAB0AAAAAEAI..i&amp;docid=n_YT2OK35D-LpM&amp;w=650&amp;h=410&amp;itg=1&amp;q=%E5%8A%A0%E5%AF%86%E8%B4%A7%E5%B8%81%20%E8%B4%A2%E5%AF%8C%E8%87%AA%E7%94%B1&amp;ved=0CDsQMyiBAWoXChMIsMbSuveC9AIVAAAAAB0AAAAAEAI)
+当地时间11月5日晚间，零对冲发文称，至少一项调查显示，4%的美国人辞职，是由于投资加密货币获得了财务自由，另有7%的人说他们知道有人正在这样做。
 
-文章提出，欲解决供应链问题，不能从强制行政和滥发货币着手，相应的办法有四，一是，结束中共病毒；二是，在美国本土鼓励制造业；三是，结束美联储；四是，让美国回归金本位。
+调查进一步显示，年轻投资者将联邦政府和各州发放的足额刺激资金投入加密货币市场，以加密财富为途径实现了比上一代更富有，也更有可能视其为长期投资。
 
-这篇文章展示出一种反社会主义、反福利经济的倾向。一个世纪以来，自由资本主义所倡导的自由市场被福利经济所倡导的政府大规模干预市场所压制，以至于民间习惯于高税收和高福利，政府权力也越来越大。直至今日，政府已在强制疫苗和滥发货币等方面鲜受制约，这不仅会引发供应链断裂，或还会引起权力重新分配，文中有言，“最终，完全分权才是政府强加混乱难题的答案”。
+文中认为，美国劳动力短缺的一个因素就是加密货币市场的财富效应造成了很多美国人放弃工作。但由于大量职位空缺，多数加密货币投资者可能会转向业余投机者的角色，并回到工作岗位。
+
+文贵先生也在直播中多次谈及数字货币，认为人类正在走入数字货币时代，目前约4万亿美元市值，当美国控制数字货币的标准和制定标准话语权时，数字货币市值大概在会达到20万亿美元。当前，美国的发展趋势印证了文贵先生的判断，数字货币势不可挡，它不仅造富，还能容纳各种分工。随着喜币上市交易和Hpay的即将推出，数字货币时代已经来到。
 
 信息来源：
 
-[这就是美国供应链问题只会变得更糟的原因](https://www.zerohedge.com/economics/heres-why-us-supply-chain-problems-will-only-get-worse)
+[4% 的美国人表示，由于他们的加密货币收益，他们已经辞去了工作](https://www.zerohedge.com/crypto/4-americans-say-they-have-quit-their-jobs-thanks-their-crypto-gains)
 
 *校对：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

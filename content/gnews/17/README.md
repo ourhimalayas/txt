@@ -2,42 +2,58 @@
 ---
 
 
-## 数千名美军现役空军和太空军成员错过了COVID &#8211; 19疫苗强制接种的最后期限
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645668/)
+## 剪裙边
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1645688/)
 
-作者：纽约香草山信息部 – 6zero4
+[![](https://spark.adobe.com/page/HD8mAJJ2oS3eZ/images/181B5D34-9CEF-4FE3-A58D-250DE342B5C6.png?asset_id=4D1A6D0F-3AFF-4562-9CDE-985DB857E7D2&amp;size=1024)](https://spark.adobe.com/page/HD8mAJJ2oS3eZ/images/181B5D34-9CEF-4FE3-A58D-250DE342B5C6.png?asset_id=4D1A6D0F-3AFF-4562-9CDE-985DB857E7D2&amp;size=1024)（*图片来源：美联社*）
+作者：范海辛（英喜庄园）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日各地物价疯涨，有不少地区还出现了超市抢购潮。因此有网友问我，这个现象背后有何原因？有人认为与武统台湾有关，也有人认为与新冠秋冬再起有关，我以为，both，可能与二者都有关，但主要是前者。（这里还要解释一下，物价上涨与超市抢购潮有各自的不同原因，我这里主要分析的是近期出现的抢购潮，此潮当然与涨价有关，但更主要的是因前述二因。）
+[![](https://spark.adobe.com/page/HD8mAJJ2oS3eZ/images/8C7811C1-AF2B-4A9E-9739-E51B66E396A3.png?asset_id=1908672D-23E1-4DD9-A8A4-DE61F1AA257A&amp;size=1024)](https://spark.adobe.com/page/HD8mAJJ2oS3eZ/images/8C7811C1-AF2B-4A9E-9739-E51B66E396A3.png?asset_id=1908672D-23E1-4DD9-A8A4-DE61F1AA257A&amp;size=1024)（*图片来源：Getty Images*）
+于是问题来了，既然是武统台湾所致，你老范（作者）前个时期还信誓旦旦地说近期不会武统台湾，岂不是自打脸蛋？
 
-五角大楼自8月底宣布各军种军人都必须严格执行疫苗强制接种令的两个月后，11月2日是美国空军和太空部队现役军人接种新冠疫苗的最后期限。但截至当天，在32.6万美国空军和太空部队的现役军人中，95.9%的人完全接种了新冠疫苗，96.9%的人至少接种了一针。约有8500名空军和太空部队的现役军人尚未接种疫苗，其中800人口头拒绝了疫苗接种，2753人还没有开始疫苗接种，4933人正在等待医疗和宗教豁免申请的批准。
+我以为，近期大陆出现的武统举动，譬如粤闽浙沿海出现的大规模的军车调动集结，一是为了威慑台独，二是国内高层活动需要，当然也不排除第三点，也即本文的主题“剪裙边”。但在阐释剪裙边前，还是要解释为何这些举动与武统无直接关系。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2021-11-04_09-39-35.png)
+9月10日，中美两国首脑通电话，习以“柳暗花明又一村”来比喻当前两国关系。这次通话不久，孟晚舟被释放。虽然媒体没有报道这次通话的内容，想必中方对台海问题交了底，我估计这个底就是，只要台湾不独，这里就不会动武。也是居于此猜测，我才写了《武统花开》一文。
 
-这8500多名空军和太空部队现役军人因不遵守国防部的疫苗强制接种令，而面临被大规模开除的风险，其中40名军人已经被迫从部队退役。最困难的是空军指挥官将开始根据相关法律和政策，对不遵守疫苗强制接种令的飞行员及其主管进行纪律处分，包括签发行政文书、实施非司法惩罚，甚至提交军事法庭指控。尤其是开除那些驾驶隐形战机和轰炸机的战略支援军人，将危及美国的全球战略准备实力。
+大陆不会武统台湾本岛，不等于不会对台湾周边的小岛动手，所谓剪裙边指的就是这个——扫清外围。眼下看来，剪裙边有三个目标，按难易程度排列，最易拿下的是金门、马祖，第二是东沙岛，第三是南沙北部的太平岛。
 
-（本文仅代表作者观点）
+金门、马祖离大陆最近，本来就属于福建省，近大陆而远台岛。大陆如果想拿下金马，是分分钟的事，而台湾对金马，本来就认为是累赘，你们大陆想拿就拿去。但拿下金马对大陆的统一台湾、冲出第一岛链的意义和作用并不大。
+[![](https://spark.adobe.com/page/HD8mAJJ2oS3eZ/images/0F5C3D46-868B-4602-BBCF-3BFECB132264.png?asset_id=8CD759BD-846F-4190-B078-5F800E4723BB&amp;size=1024)](https://spark.adobe.com/page/HD8mAJJ2oS3eZ/images/0F5C3D46-868B-4602-BBCF-3BFECB132264.png?asset_id=8CD759BD-846F-4190-B078-5F800E4723BB&amp;size=1024)*东沙岛*（*图片来源：网络图片*）
+东沙岛实际是一个环状岛礁，面积也不是很大，但地理位置十分重要，扼守着南海北部的交通要冲，尤其对潜艇和反潜作战具有价值。东沙在行政管理上原属广东汕尾的陆丰市，现由台湾高雄代管。
 
-参考阅读：
+第三个剪裙边的目标是太平岛，这是中共国控制南沙群岛海域的不沉的航空母舰，其重要性自不待言。
 
-- [https://www.zerohedge.com/covid-19/thousands-active-duty-air-force-members-miss-deadline-covid-shots](https://www.zerohedge.com/covid-19/thousands-active-duty-air-force-members-miss-deadline-covid-shots)
+我以为最近一两年，大陆如果剪裙边，首选目标可能是东沙（拿下金马只是捎带）。
 
+理由如下：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+美《台湾关系法》第15条对台湾的定义：「台湾」词将视情况需要，包括台湾及澎湖列岛，这些岛上的人民、公司及根据适用于这些岛屿的法律而设立或组成的其它团体及机构，1979年1月1日以前美国承认为中华民国的台湾治理当局，以及任何接替的治理当局（包括政治分支机构、机构等）。
 
-***编辑***：***Irene木木***
-***校对/发稿：海阔天空1***
+由此可见，美国携守台湾仅指台湾本岛与其西南方的澎湖列岛，而剪裙边的三岛都不在美国的法律义务之内。
 
-**更多资讯，更多关注**
+攻占东沙岛，是对美国的试探。
+[![](https://spark.adobe.com/page/HD8mAJJ2oS3eZ/images/EF9C55DD-6215-4E1F-A635-70CE3A8CA88C.jpg?asset_id=3A8A845E-055F-41F0-9AA0-8447E12C1A17&amp;size=2560)](https://spark.adobe.com/page/HD8mAJJ2oS3eZ/images/EF9C55DD-6215-4E1F-A635-70CE3A8CA88C.jpg?asset_id=3A8A845E-055F-41F0-9AA0-8447E12C1A17&amp;size=600)（*图片来源：网络图片*）
+拿下东沙岛有利于震慑台独，更有利于在党内加强四个意识与两个维护，而这是压倒一切的。同时也有利于在国内打压屁民的不满。
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+在军事上，有利于我国海军对南海和台海的控制，遏阻美国核潜艇的活动。
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+东沙岛台湾驻军只有500多人，易攻难守，可能大陆一宣布，即可兵不血刃占领。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+一旦大陆拿下金马与东沙，拿下太平岛则如探囊取物。而减去这三岛的台湾就如被剪去裙边的甲鱼，虽还不会马上死，但活下去就难了。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+以上只是概率预测，非铁嘴独断。读者诸君切莫为此而去超市抢购。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+***编辑：【英国伦敦喜庄园编辑部】***
+
+*校对：仙女儿-文善 | 审核：神奇四侠 | PAGE：彼岸花*
+
+- [点击阅读英国伦敦喜庄园在G-News的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+[![](https://spark.adobe.com/page/HD8mAJJ2oS3eZ/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)](https://spark.adobe.com/page/HD8mAJJ2oS3eZ/images/A3120A68-78FC-4A63-8703-7DECBA8B05D5.jpg?asset_id=4E893AAF-61E8-44BA-86E9-2C1D7377B120&amp;size=1024)
+
 
  
 
