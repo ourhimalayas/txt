@@ -2,24 +2,47 @@
 ---
 
 
-## 秘翻在线：NFL球星阿隆·罗杰斯因其对疫苗的怀疑言论而被赞助商抛弃
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1645822/)
+## 加拿大安省魁省将停止医护人员强制接种令
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645873/)
 
-#### 翻译/撰稿：zzballack
+作者：纽约香草山文艺部 – 宁文静
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16362740661.png)         图片来源：sbnation.com
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-据《纽约邮报》（New York Post）11月6日报道， NFL球星阿隆·罗杰斯 (Aaron Rodgers)因为对中共病毒疫苗中的一种成分过敏因此拒绝接种疫苗。一天之后，自2012年开始聘请罗杰斯担任代言人、总部位于绿湾（Green Bay）的医疗保健集团Prevea Health宣布不再赞助罗杰斯。
 
-Preva Health 11月6日在一份声明中说道：“我们公司仍然坚定地致力于在中共病毒大流行中保护病人、员工、供应商和社区，这包括鼓励和帮助所有符合条件的人群接种疫苗，以防止病毒进一步严重影响生活和生计。”
+11月3日，加拿大安省省长福特宣布，该省将不会强制其医护人员接种“新冠病毒疫苗”，并认为强制接种政策将会危及安省目前大量的医护工作。福特说，在权衡了数万名医护人员离职所带来的负面影响与安省的疫情现状之后，当局决定将决策权交给各个医院。
 
-罗杰斯11月5日在《帕特·迈克菲秀》（The Pat McAfee Show）节目中表示，他对辉瑞和莫德纳疫苗中的一种成分过敏，并且不相信强生公司的疫苗，因为他了解到有些朋友对这种疫苗有不良反应，而且这种疫苗因血栓问题而被暂时停用。另外担心疫苗会影响生育能力。罗杰斯还听从了网红主播乔·罗根 (Joe Rogan)治疗中共病毒的建议。之前感染了中共病毒的罗根因为选择服用伊维菌素治疗而非接种疫苗被媒体抹黑和谩骂。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/捕获5.png)
 
-对于因为没有接种疫苗而被媒体羞辱和抵制，并被认为自私，罗杰斯回应说：“这是它们的宣传，把你做的一个对你的身体最有利的决定歪曲成是自私的行为。媒体宣称的这是一个未接种疫苗者的大流行病也完全是一个谎言。不要再对我撒谎了，在我看来，个人的医疗决定应该是私人问题。”
+当天，魁北克省卫生部长克里斯蒂安也作出了同样的决定。她说，如果遵循11月15日的截止期限，魁省将减少或调整500项医疗服务，失去8000名员工将对整个医疗体系造成毁灭性后果。
 
-新闻来源：[Aaron Rodgers dropped by sponsor Prevea Health after COVID vaccine comments](https://nypost.com/2021/11/06/aaron-rodgers-dropped-by-sponsor-prevea-health-over-vaccine-talk/)
+而近日有媒体爆出美国的医院急诊室人满为患，疾患包括腹痛、呼吸系统问题、血栓、心脏病等。不仅美国，澳洲、欧洲，同样“奇怪的事情正在发生”。疫苗灾难性的后果正在凸现。此刻如果还坚持医务人员的疫苗强制令，无疑是雪上加霜。不单单反映在医疗系统，而是体现在整个社会的运转环节中，取消这一违反人权的政府强令，势在必行。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+- [https://globalnews.ca/news/8346947/quebec-drops-vaccine-mandate-among-health-care-workers/](https://globalnews.ca/news/8346947/quebec-drops-vaccine-mandate-among-health-care-workers/)
+- [https://www.msn.com/en-ca/news/canada/ford-wont-impose-covid-19-vaccine-mandate-for-ontario-health-care-workers/ar-AAQhJzg](https://www.msn.com/en-ca/news/canada/ford-wont-impose-covid-19-vaccine-mandate-for-ontario-health-care-workers/ar-AAQhJzg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+
+***编辑***：***Irene木木***
+***校对/发稿：海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
