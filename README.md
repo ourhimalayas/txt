@@ -15,23 +15,23 @@
 
 ---
 
-### [银河快讯：日本地热发电站增加三倍；本田将在印度为三轮车提供电池共享](/content/gnews/1/README.md)
+### [人性的扭曲——告密者](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [银河快讯：日本地热发电站增加三倍；本田将在印度为三轮车提供电池共享](/content/gnews/2/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [朝鲜半岛：正式结束战争，还是再燃战火？](/content/gnews/2/README.md)
+### [朝鲜半岛：正式结束战争，还是再燃战火？](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|英国西敏公学中止在中共国建校计划](/content/gnews/3/README.md)
+### [有声|英国西敏公学中止在中共国建校计划](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [南希·佩洛西语无伦次引热议](/content/gnews/4/README.md)
+### [南希·佩洛西语无伦次引热议](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [蔡崇信：无改变《南华早报》股权计划](/content/gnews/5/README.md)
+### [蔡崇信：无改变《南华早报》股权计划](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [喜交所的成功上市是NFSC中央銀行的鑄幣權銀行的成立](/content/gnews/6/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [有声|喜币上市开辟了共同创造与财富管理的人类新纪元](/content/gnews/7/README.md)
  ` MOSREC`
