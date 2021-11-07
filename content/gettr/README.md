@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/7/2021 3:17 AM (UTC)`
+
+11/05/2021 Miles Guo: The triumphs of the US Republican Party is a miracle. The U.S. will destroy the CCP within 3 minutes if it dares to launch a war in Taiwan.  The UN will be provided with the funds by the Himalaya Reserve for 3-5 years, in exchange for Taiwan’s joining the UN. Taiwan will be protected by all the countries in the world.<br/><br/>11/05/2021 文贵直播: 美国共和党大赢，若中共胆敢对台湾动武，美国三分钟就可以摧毁它。喜联储可为联合国提供3-5年的资金，作为台湾加入联合国的交换条件，这样台湾就会受到全世界各国的保护。<br/>
+![img](https://media.gettr.com/group21/getter/2021/11/07/03/6e97222a-7849-b735-a61f-139a8a42b349/out.jpg)
+
+---
+
 `@miles 11/6/2021 11:40 PM (UTC)`
 
 11/05/2021 Miles Guo: Both the decoupling with the Communist China and the anti-Chinese movement are ongoing in the entire world. The worse the disasters caused by the COVID vaccines, the worse the the anti-Chinese movement will be; Only when the truth about the COVID vaccine disaster and the coronavirus is confirmed will we realize the importance of having our NFSC, Himalaya Dollar, and Himalaya Coin<br/><br/>11/05/2021 文贵直播: 全世界脱华和排华正在进行中，疫苗灾难有多坏，排华就有多糟；当疫苗灾难和冠状病毒的真相被确认时，我们才能知道拥有新中国联邦、喜美元和喜币有多重要<br/>
@@ -290,13 +297,6 @@ NBA球员内思.坎特声援香港: 我们必须行动起来，必须让中共�
 
 11/1/2021 【HCoin To the Moon Celebration】 The wealth of Himalaya  Reserve belongs to our grassroots people and don’t forget about our mission of taking down the CCP.<br/><br/>11/1/2021 【HCoin to The Moon庆典】喜联储的财富属于民天下，永远不要忘记我们的使命是消灭共产党<br/>
 ![img](https://media.gettr.com/group9/getter/2021/11/03/22/15/595ed3c2-8480-a980-059e-d57599c1a0e3/out.jpg)
-
----
-
-`@miles 11/3/2021 12:20 PM (UTC)`
-
-2021年11月3日 文贵大直播 常委张高丽恋幼女十几年  中共信仰缺失与心理变态   房地产债务违约与房产税   喜币上市到底意味着什么
-![img](https://media.gettr.com/group49/origin/2021/11/03/12/911e8ea5-7d7c-add8-daea-5296755e7055/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
