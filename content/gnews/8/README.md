@@ -2,51 +2,22 @@
 ---
 
 
-## 德国海军20年来首次停靠日本港，并明确指出这是针对中共国在印太地区的行为
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645626/)
+## 秘翻在线:研究表明疫苗效力随着时间推移急剧下降
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1645661/)
 
-作者：日本方舟农场 – Andy5
+#### 翻译/撰稿：黃金精神
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-2.png)图片来源：路透社
+11月4日据《洛杉矶时报》报道，由来自奥克兰公共卫生研究所（Public Health Institute）、旧金山退伍军人事务医疗中心（Veterans Affairs Medical Center）和德克萨斯大学健康科学中心的团队进行的一项新的研究表明，随着Delta变种病毒成为美国各地中共病毒主导毒株，美国人可用的所有三种中共疫苗病毒都失去了一些保护能力，在一群退伍军人中，疫苗效力下降了35%~85%。
 
+早在3月初，研究人员搜集了80万名美国退伍军人记录发现，Delta变种病毒的感染能力与三种疫苗的预防能力大致相当。但在接下来的六个月里，这种情况发生了巨大变化。到9月底，莫德纳两剂量疫苗在三月份测得有89%的效力，但现在仅有58%；辉瑞两剂量疫苗效力从87%下降到45%；最引人注目的是，强生单剂量疫苗效力从86%骤降到只有13%。这些发现发表在周四的《科学》杂志上。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+该项研究追踪了2月1日至10月1日间美国武装部队780225名退伍军人。其中近50万人接种了疫苗，而只有不到30万人没有接种疫苗。研究人群中男性是女性的六倍，而且他们的年龄偏大，大约48%是65岁或以上，29%是50至64岁，24%是50岁以下。
 
+尽管在整个研究期间，年长的退伍军人比年轻的退伍军人更有可能死亡，但疫苗对疾病和死亡保护作用的下降在年轻人和老年人中都有体现。
 
-
-近日，德国海军在结束与日本海上自卫队联合演习之后，20年来首次停靠日本港口。日本东京港举行了欢迎仪式。
-
-本次靠港的是德国海军巡防舰巴戈利亚号。该舰的德国军人明确指出，此次停靠东京港，是针对中共。
-
-日本防卫大臣岸信夫在视察了巴戈利亚号之后发表讲话称，本次停靠意义巨大。德国海军来访是确保“自由开放的印太”，反映出德国在积极履行对印太和平与稳定做出贡献的承诺。
-
-专家称，这一举动明确表示，德国正在追随整个欧洲的步伐，由亲共转向与中共对抗和脱钩。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-15.jpg)
-参考链接：
-[20211105日本東京電視台 1.德國海軍巡防艦巴伐利亞（Bayern也可翻作拜仁）號 年來首次停靠日本港口](https://www.gettr.com/post/pg7hf8e37b)
-[German frigate arrives in Tokyo as China ties cool in post-Merkel era](https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/German-frigate-arrives-in-Tokyo-as-China-ties-cool-in-post-Merkel-era)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[**新闻来源**](https://www.latimes.com/science/story/2021-11-04/study-shows-dramatic-decline-in-effectiveness-of-covid-19-vaccines)
 
  
 
