@@ -2,28 +2,46 @@
 ---
 
 
-## 中共国各地抗疫封锁 民众不知还能坚持多久
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1645538/)
+## Facebook 将关闭面部识别系统
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645554/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/111121161_8798b35d-c296-47e8-a3fd-5e70a04ca352.jpg)*网络资料图*
-据自由亚洲电台11月6日报道，首都北京十多所学校近期关闭，一列从上海开往北京的高铁上数百人在途中被转移至隔离点，云南边境小城瑞丽经历着自2020年初武汉封城以来规模最大的一次新冠疫情封锁，一名两岁儿童迄今接受了100次核酸检测……
+作者：纽约香草山教育部 – Naughty(文行)
 
-随着Delta变种病毒蔓延，新的封锁和限制措施正在中共国全面实施。清零策略扰乱了很多中共国人的正常生活，民众开始感到疲倦。中共的自欺欺人不知道还能坚持多久，民众的忍耐也不知道能坚持多久。把老百姓关在家里就能实现“新冠零传播”吗？病毒解药已经告知天下，中共还在草菅人命，愚昧、软弱的中国人民，何时能真正的觉醒，走出家门，向专制政权说不！早一天醒来吧！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-新闻参考链接：[https://www.rfa.org/mandarin/Xinwen/8-11062021170149.html](https://www.rfa.org/mandarin/Xinwen/8-11062021170149.html)
+据路透社报道，Facebook人工智能副总裁11月2日表示，监管机构仍在制定一套明确的规则来管理人脸识别技术的使用。在这种持续的不确定情况下，应该限制该技术的应用范围。
 
-编辑：胖丁
+Facebook作为世界上最大的社交媒体平台宣布取消人脸识别，是因为科技行业在过去几年中一直面临着对使用该技术的道德问题的清算。
 
-* * *
+批评人士表示，出于安全目的，面部识别技术可能会损害隐私，针对边缘化群体，并使侵入性监控正常化。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+消息发布之际，Facebook一直受到监管机构和立法者的严格审查。其他一些高科技公司也针对该技术做出了调整，IBM已永久停止面部识别产品的销售，微软和亚马逊也已无限期暂停相关技术对警方的销售。
+
+Facebook这一决定将删除超过10亿人的“面部识别模板”。Facebook发言人表示，该行动将在全球范围内进行，预计将于12月完成。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+- [https://www.todayonline.com/world/facebook-will-shut-down-facial-recognition-system?utm\_source=ground.news&utm\_medium=referral](https://www.todayonline.com/world/facebook-will-shut-down-facial-recognition-system?utm_source=ground.news&amp;utm_medium=referral)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+***编辑***：***Irene木木***
+***校对/发稿：海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

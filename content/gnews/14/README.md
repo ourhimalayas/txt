@@ -2,42 +2,40 @@
 ---
 
 
-## 数千名美军现役空军和太空军成员错过了COVID &#8211; 19疫苗强制接种的最后期限
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645668/)
+## 11个州对拜登提出的企业强制疫苗接种要求提起诉讼
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1645710/)
 
-作者：纽约香草山信息部 – 6zero4
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GetFile-2.jpg)佛罗里达州州长Ron DeSantis于2021年9月16日星期四在佛罗里达州劳德代尔堡布劳沃德健康医疗中心举行的新闻发布会上发表讲话 （图片来源：Wilfredo Lee/AP）
+摘要翻译：美国11个州的总检察长周五对乔·拜登总统的政府提起诉讼，挑战对员工超过100 人的公司的工人的新疫苗要求。在位于圣路易斯的美国第八巡回上诉法院提起的诉讼认为，强制接种疫苗的权力在于各州，而不是联邦政府。密苏里州总检察长埃里克·施密特是明年争夺该州美国参议院空缺席位的几位共和党人之一，他提交的法庭文件说：“这项授权违宪、非法且不明智。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国职业安全与健康管理局新的规定要求员工人数超过100人的公司要求员工接种 COVID-19 疫苗或每周接受病毒检测，并在工作时戴口罩。要求是在1月4日生效。不遵守规定可能导致每次违规罚款近14,000美元。
 
-五角大楼自8月底宣布各军种军人都必须严格执行疫苗强制接种令的两个月后，11月2日是美国空军和太空部队现役军人接种新冠疫苗的最后期限。但截至当天，在32.6万美国空军和太空部队的现役军人中，95.9%的人完全接种了新冠疫苗，96.9%的人至少接种了一针。约有8500名空军和太空部队的现役军人尚未接种疫苗，其中800人口头拒绝了疫苗接种，2753人还没有开始疫苗接种，4933人正在等待医疗和宗教豁免申请的批准。
+施密特说，密苏里州有3,443名私人雇主可以满足强制疫苗要求，雇员人数接近130万。他说提起的诉讼是“为了保护个人自由，保护密苏里州的企业，并反击只想获得权力和控制权的官僚暴君。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2021-11-04_09-39-35.png)
+拜登政府一直鼓励广泛接种疫苗，以此作为摆脱大流行病的最快方法。白宫发言人周四表示，这项授权旨在阻止一种已在美国夺走750,000多条生命的疾病的传播。
 
-这8500多名空军和太空部队现役军人因不遵守国防部的疫苗强制接种令，而面临被大规模开除的风险，其中40名军人已经被迫从部队退役。最困难的是空军指挥官将开始根据相关法律和政策，对不遵守疫苗强制接种令的飞行员及其主管进行纪律处分，包括签发行政文书、实施非司法惩罚，甚至提交军事法庭指控。尤其是开除那些驾驶隐形战机和轰炸机的战略支援军人，将危及美国的全球战略准备实力。
+密苏里州与阿拉斯加州、亚利桑那州、阿肯色州、蒙大拿州、内布拉斯加州、新罕布什尔州、北达科他州、南达科他州和怀俄明州的共和党总检察长一起参与了诉讼。爱荷华州总检察长汤姆·米勒的办公室，民主党人，也加入了诉讼，还有几家私人、非营利和宗教雇主。
 
-（本文仅代表作者观点）
+保守派媒体公司每日电报周四向联邦法院提起诉讼。密歇根州和俄亥俄州的一家保守派律师事务所代表的公司也提起了诉讼。
 
-参考阅读：
+简评：美国11个州对拜登的商业疫苗授权提起诉讼，全球目前没有任何一家疫苗研发和制造公司或厂家，也没有任何一个政府，向民众说明过，这个疫苗所预防和对抗的冠状病毒来自哪里，分析过疫苗对抗病毒之机理的合理性和安全性。
 
-- [https://www.zerohedge.com/covid-19/thousands-active-duty-air-force-members-miss-deadline-covid-shots](https://www.zerohedge.com/covid-19/thousands-active-duty-air-force-members-miss-deadline-covid-shots)
+事实上，新冠疫苗既不能预防中共CCP病毒感染，也不能减少死亡，疫苗对人体免疫系统产生巨大伤害，导致后遗症，大量注射疫苗人群出现严重的疫苗副作用。疫苗的背后究竟隐藏着多少阴谋，这是人类需要得到答案。
+
+新闻链接：
+
+[11 States File Suit Against Biden’s Business Vaccine Mandate](https://www.newsmax.com/finance/streettalk/gop-pushback-covid-biden-businesses/2021/11/05/id/1043442/)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+编辑：【英国伦敦喜庄园编辑部】
 
-***编辑***：***Irene木木***
-***校对/发稿：海阔天空1***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

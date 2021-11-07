@@ -2,50 +2,44 @@
 ---
 
 
-## 彭佩奥盖特发文呼吁抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645605/)
+## 西澳大利亚人口大规模接种疫苗后医院不堪重负
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1645627/)
 
-作者：英国喜庄园 – I770775
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/c99ad44fa6beb71a5aaa16896d9851a8c2e70833.jpg)
 
 
 
-11月4日中午，美国前国务卿彭佩奥在盖特发文，呼吁国际社会坚决抵制北京冬奥会的召开。
-
-彭佩奥说，离北京冬奥会的开幕还有整整三个月，国际社会应该联合起来进行抵制，时间还来得及。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.2.jpg)
-彭佩奥指责国际奥委会的不作为。认为国际奥委会因为接受了中国共产党的腐化，对中共犯下的种族灭绝暴行，选择视而不见。
-
-这是彭佩奥在24小时里连发的第二条关于中共的盖文，在前一条里，彭佩奥称，“中共不是美国的竞争对手，而是敌人。”
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-1.jpg)
-参考链接：
-彭佩奥盖特： [Exactly 3 months until the Beijing Olympics are scheduled to start. The IOC has made it clear it has been corrupted by Communist Party money & is willing to turn a blind eye to the human rights atrocities committed by the CCP (including genocide).](https://gettr.com/post/pg2elgd999)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+图片来源：watoday.com.au
 
 
+#### 编译：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+在拥有近300万人口的西澳大利亚州（WA）正在发生一些非常奇怪的事情。西澳州已被封锁，并与东部各州的中共病毒（COVID-19）影响隔离开来。
 
+被封锁的西澳大利亚州很少有中共病毒病例，这让他们有时间为可能到来的病毒做好准备，其中包括大规模的疫苗接种工作。该州模拟了中共病毒在2022年初，即明年初的到来。
 
+然而，随着疫苗接种率的提高，医院里的新病人却不堪重负，州长无法解释原因。
+
+西澳州长马克·麦高恩（Mark McGowan）在10月31日发表关于医院目前不堪重负的评论： “我们的医院承受着巨大的压力。（澳大利亚其他地区）也是如此。这是以前没有人见过的，我们医院的需求增长，为什么会这样，这很难说……有大量的病人到医院来，我们正在尽一切努力来处理。”
+
+显然，这里存在很多问题。
+
+中共病毒或其任何变种在西澳大利亚州的人群中不存在。同时，西澳大利亚州的人口正在接种疫苗。然后，西澳大利亚州的医院变得不堪重负，而且不是因为中共病毒。
+
+除了接种疫苗导致住院之外，还能有什么原因呢？
+
+**参考新闻：**[Something Very Weird Happening in Western Australia: Hospitals Overwhelmed & Vaccinations Continue But THEY HAVE NO COVID (humansarefree.com)](https://humansarefree.com/2021/11/australia-hospitals-overwhelmed-no-covid.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

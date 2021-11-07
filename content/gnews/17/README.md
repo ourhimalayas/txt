@@ -2,37 +2,43 @@
 ---
 
 
-## 有声|中共病毒及其疫苗全球超限战中的典型案例（十四）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1645634/)
+## 数千名美军现役空军和太空军成员错过了COVID &#8211; 19疫苗强制接种的最后期限
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645668/)
 
-配音：香草山教育部 – 蒙古鸿雁
+作者：纽约香草山信息部 – 6zero4
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-109-1280x172-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+五角大楼自8月底宣布各军种军人都必须严格执行疫苗强制接种令的两个月后，11月2日是美国空军和太空部队现役军人接种新冠疫苗的最后期限。但截至当天，在32.6万美国空军和太空部队的现役军人中，95.9%的人完全接种了新冠疫苗，96.9%的人至少接种了一针。约有8500名空军和太空部队的现役军人尚未接种疫苗，其中800人口头拒绝了疫苗接种，2753人还没有开始疫苗接种，4933人正在等待医疗和宗教豁免申请的批准。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2021-11-04_09-39-35.png)
+
+这8500多名空军和太空部队现役军人因不遵守国防部的疫苗强制接种令，而面临被大规模开除的风险，其中40名军人已经被迫从部队退役。最困难的是空军指挥官将开始根据相关法律和政策，对不遵守疫苗强制接种令的飞行员及其主管进行纪律处分，包括签发行政文书、实施非司法惩罚，甚至提交军事法庭指控。尤其是开除那些驾驶隐形战机和轰炸机的战略支援军人，将危及美国的全球战略准备实力。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+- [https://www.zerohedge.com/covid-19/thousands-active-duty-air-force-members-miss-deadline-covid-shots](https://www.zerohedge.com/covid-19/thousands-active-duty-air-force-members-miss-deadline-covid-shots)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
 
-**纽约一家大型医疗保健系统解雇了1400名未接种疫苗的员工**
-
-员工分布在纽约市、韦斯特切斯特和长岛地区的大型医疗系统诺斯韦尔健康公司（Northwell Health）2021年10月5日发布声明表示，占该公司2%的 1400名员工因为拒绝接种COVID-19疫苗已被解雇，至此该公司下属所有23家医院的在职工作人员已经100%接种了疫苗。另外，因拒绝接种疫苗而被解雇的员工还无法享受退休计划等福利。
-
-
-
-**文字版原文：[中共病毒及其疫苗全球超限战中的典型案例（十四）](https://gnews.org/zh-hans/1640200/)**
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+***编辑***：***Irene木木***
+***校对/发稿：海阔天空1***
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
