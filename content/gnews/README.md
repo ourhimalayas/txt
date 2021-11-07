@@ -15,122 +15,122 @@
 
 ---
 
-### [辉瑞新冠病毒疫苗2021年销售额有望达到360亿美元](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [卡尔文森号航母打击群，高调展开南海针对性战备演练](/content/gnews/1/README.md)
+ ` G-NEWS TAIWAN`
 
-### [美国联邦法院暂缓执行拜登违反宪法的私人雇主疫苗强制政策](/content/gnews/2/README.md)
+### [文·贵天成——文贵先生谈“吴征、杨澜”（二十）](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [20岁的香港维权人士成港版《国安法》最年轻的罪犯](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [爆炸性新闻：爆料人举报辉瑞疫苗发光，含有毒荧光素酶、氧化石墨烯化合物](/content/gnews/3/README.md)
+ ` 波士顿五月花农场`
 
-### [警惕澳洲个别网络供应商对喜马拉雅交易所平台的屏蔽](/content/gnews/4/README.md)
+### [魔幻币市六日游—Himalaya Coin上市交易随想](/content/gnews/4/README.md)
  ` 澳喜农场`
 
-### [因武汉报道入狱的中共国记者由于绝食抗议而 “濒临死亡”](/content/gnews/5/README.md)
+### [习近平称，中共国对国家补贴的谈判持开放态度](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [20211106文贵先生盖特精要](/content/gnews/6/README.md)
+### [辉瑞新冠病毒疫苗2021年销售额有望达到360亿美元](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [COVID-19 最新情报｜面对公卫威胁 美跨党派提案 台湾作为印太伙伴](/content/gnews/7/README.md)
+### [美国联邦法院暂缓执行拜登违反宪法的私人雇主疫苗强制政策](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [灭共侠——一个英雄的传奇](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [20岁的香港维权人士成港版《国安法》最年轻的罪犯](/content/gnews/9/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [警惕澳洲个别网络供应商对喜马拉雅交易所平台的屏蔽](/content/gnews/10/README.md)
+ ` 澳喜农场`
+
+### [因武汉报道入狱的中共国记者由于绝食抗议而 “濒临死亡”](/content/gnews/11/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [20211106文贵先生盖特精要](/content/gnews/12/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [COVID-19 最新情报｜面对公卫威胁 美跨党派提案 台湾作为印太伙伴](/content/gnews/13/README.md)
  ` G&#124;News TAIWAN`
 
-### [德国军舰时隔20年再访日本](/content/gnews/8/README.md)
+### [德国军舰时隔20年再访日本](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美联邦法院冻结拜登政府对企业强制疫苗令](/content/gnews/9/README.md)
+### [美联邦法院冻结拜登政府对企业强制疫苗令](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [7个月40次核酸检测，中共如此薅羊毛](/content/gnews/10/README.md)
+### [7个月40次核酸检测，中共如此薅羊毛](/content/gnews/16/README.md)
  ` 纽约香草山MOS02`
 
-### [比尔盖茨希望美英投资“细菌游戏”来应对天花恐怖袭击](/content/gnews/11/README.md)
+### [比尔盖茨希望美英投资“细菌游戏”来应对天花恐怖袭击](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美军核潜艇南海撞击事故调查结果:撞上未知海山](/content/gnews/12/README.md)
+### [美军核潜艇南海撞击事故调查结果:撞上未知海山](/content/gnews/18/README.md)
  ` 纽约香草山MOS02`
 
-### [Moderna下调新冠疫苗年度销售预期，市值蒸发250亿美元](/content/gnews/13/README.md)
+### [Moderna下调新冠疫苗年度销售预期，市值蒸发250亿美元](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [巴克迪教授：威胁生命的伤害&#8211;所有接种疫苗者的凝血功能受损](/content/gnews/14/README.md)
+### [巴克迪教授：威胁生命的伤害&#8211;所有接种疫苗者的凝血功能受损](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [《我是音雄》第二季第十一期第九场初赛｜节目预告](/content/gnews/15/README.md)
+### [《我是音雄》第二季第十一期第九场初赛｜节目预告](/content/gnews/21/README.md)
  ` 我是音雄`
 
-### [不满未被点名“台独分子” 驻德代表谢志伟发文“抗议”](/content/gnews/16/README.md)
+### [不满未被点名“台独分子” 驻德代表谢志伟发文“抗议”](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [齐洛房地产赌注失败，将关闭购房业务并解雇两千员工](/content/gnews/17/README.md)
+### [齐洛房地产赌注失败，将关闭购房业务并解雇两千员工](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美司法部：首名被引渡至美受审中国情报官罪名成立](/content/gnews/18/README.md)
+### [美司法部：首名被引渡至美受审中国情报官罪名成立](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [财富是多人属性的 它可以创造权力 可以让权力干正事](/content/gnews/19/README.md)
+### [财富是多人属性的 它可以创造权力 可以让权力干正事](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共国盐业调味料集体宣布涨价](/content/gnews/20/README.md)
+### [中共国盐业调味料集体宣布涨价](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [调查：华为如何渗透到法国？（二）](/content/gnews/21/README.md)
+### [调查：华为如何渗透到法国？（二）](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [国际要闻汇编 11月6日](/content/gnews/22/README.md)
+### [国际要闻汇编 11月6日](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美第五巡回上诉法院暂停拜登企业疫苗强制令](/content/gnews/23/README.md)
+### [美第五巡回上诉法院暂停拜登企业疫苗强制令](/content/gnews/29/README.md)
  ` HimalayaRussia`
 
-### [泽连科：儿童接种中共病毒疫苗——纳粹大屠杀的优生学议程](/content/gnews/24/README.md)
+### [泽连科：儿童接种中共病毒疫苗——纳粹大屠杀的优生学议程](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [泽连科：大规模接种疫苗促成致命毒株，并加剧大流行](/content/gnews/25/README.md)
+### [泽连科：大规模接种疫苗促成致命毒株，并加剧大流行](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021年11月5日郭文贵先生直播全文字版](/content/gnews/26/README.md)
+### [2021年11月5日郭文贵先生直播全文字版](/content/gnews/32/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [11/5/2021 文贵直播：全世界脱华和排华正在进行中，疫苗灾难有多坏，排华就有多糟](/content/gnews/27/README.md)
+### [11/5/2021 文贵直播：全世界脱华和排华正在进行中，疫苗灾难有多坏，排华就有多糟](/content/gnews/33/README.md)
  ` 秘密翻译组-北美组`
 
-### [福奇博士关于新冠病毒的致命谎言](/content/gnews/28/README.md)
+### [福奇博士关于新冠病毒的致命谎言](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文贵先生谈疫苗灾难与排华](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
-
-### [泽连科：政治家、学者、媒体和企业界完美合造恐惧大流行](/content/gnews/30/README.md)
+### [泽连科：政治家、学者、媒体和企业界完美合造恐惧大流行](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [反对中共病毒早期治疗的CDC、FDA、WHO及NIH“希望人们死亡”](/content/gnews/31/README.md)
+### [反对中共病毒早期治疗的CDC、FDA、WHO及NIH“希望人们死亡”](/content/gnews/36/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [泽连科：因为抗体依赖性增强效应，疫苗产生的抗体有害](/content/gnews/32/README.md)
+### [泽连科：因为抗体依赖性增强效应，疫苗产生的抗体有害](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [泽连科：疫苗是减少人口的优生项目](/content/gnews/33/README.md)
+### [泽连科：疫苗是减少人口的优生项目](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [保护好你的孩子！](/content/gnews/34/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [文贵先生谈联合国](/content/gnews/35/README.md)
- ` 墨尔本雅典娜农场`
-
-### [这些年拍的谋部电影原来是剧透](/content/gnews/36/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [秘翻在线: 六中全会前 多名维权人士在京失踪](/content/gnews/37/README.md)
+### [秘翻在线: 六中全会前 多名维权人士在京失踪](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [调查：华为如何渗透到法国？（一）](/content/gnews/38/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [Eglise医生：不要打疫苗，感染病毒并不是世界末日](/content/gnews/39/README.md)
- ` Itana`
 
 ### [抵制拜登疫苗强制令 美数千情报人员拒绝接种疫苗](/content/gnews/40/README.md)
  ` 日本东京方舟农场`

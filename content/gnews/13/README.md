@@ -2,32 +2,33 @@
 ---
 
 
-## Moderna下调新冠疫苗年度销售预期，市值蒸发250亿美元
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1645020/)
+## COVID-19 最新情报｜面对公卫威胁 美跨党派提案 台湾作为印太伙伴
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1645087/)
 
-**简评：伊维菌素对COVID-19的预防和治疗效果已经是不争的事实，在印度北方邦、德里，在日本等很多国家和地方都已经有应用伊维菌素的成功案例，且基本上完全消灭了COVID-19疫情。相信越来越多国家和地区都会觉醒，届时，Moderna等毒疫苗生产公司的股价就不仅是大跌，而是要血崩了。**
+**台灣寶島農場 疫情關注組 / 發佈時間｜7/11/2021**
 
-**据《路透社》记者Richard Beales ，2021年11月5日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/apley-iz2ll.jpg)2021年1月29日，在美国纽约市曼哈顿，一名医护人员在SOMOS社区护理中心运营的弹出式疫苗接种现场进行Moderna COVID-19疫苗接种的准备工作。图片来源：路透社/Mike Segar/File Photo
-路透（纽约）：11月4日—Moderna (MRNA.O) 的股价周四暴跌近20%，市值蒸发250亿美元，此前该公司将今年的新冠疫苗销售预期从200亿美元下调至150亿——180亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-疫苗生产和运输的困难导致了此次对疫苗销售额的下调。一些原定于今年交付的剂量已转移到2022年初。 Moderna的“信使RNA疫苗”迅速推出令人瞩目，但它的规模或经验比不上竞争对手辉瑞(Pfizer)，因此从审批进度到产量等方面都处于滞后状态。
 
-即使在周四下跌后，该股自2019年底以来仍实现了14倍的涨幅。 Moderna还将推出更多其他疗法，但其目前对Covid-19疫苗的依赖导致了股价的波动。在Refinitiv的17位分析师中，8位建议买入，4位建议卖出，目标股价从当前水平的三分之一到近一倍不等。在这个股价范围内，谁也说不准。
+#### 美跨党派提案，美台合作抗新冠
 
-**原文连接：**[https://www.reuters.com/breakingviews/modernas-production-side-effects-2021-11-05/](https://www.reuters.com/breakingviews/modernas-production-side-effects-2021-11-05/)
+美共和党友台参议员卢比欧、科顿（Tom Cotton）及民主党议员寇提兹马斯托（Catherine Cortez-Masto）等人跨党派提案，在AIT设立美台传染病监控中心（U.S.-Taiwan Infectious Disease Monitoring Center），每年向国会提交研究和报告来决定中心的资金、人员需求，并与台湾疾病管制署（CDC）合作。
 
-**（本文评论仅代表个人观点）**
+据台湾媒体报导，法案主要目的在于交流双方政府在公卫威胁上的专业知识，进驻人员将包括至少3名美国卫生及公共服务部（HHS）的传染病专家，至少1名其他联邦部门成员，也可能聘雇台湾当地员工或台CDC人员。
 
-翻译：洛杉矶盘古农场–钢蛋儿
-校对：洛杉矶盘古农场–Mike Li
-评论：洛杉矶盘古农场–钢蛋儿
-编辑：洛杉矶盘古农场–心照
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+#### 美共和党友台参议员马可．卢比欧（Marco Rubio）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+卢比欧对台湾给予长期关注、支持，2021年9月台湾与立陶宛互设代表处引起中共挞伐，他强调“中国共产党不代表台湾，没有权利支配世上其他国家如何称呼，或如何与台湾人民来往。”
+
+卢比欧在本次跨党派提案声明：“对于犯下种族灭绝的中国共产党政权来说，封锁新冠疫情消息，导致毁灭性后果在全球爆发的行径并不让人吃惊，我们在印太地区需要一个可靠且公开透明的伙伴，能够提供我们精确的讯息来防止、减缓未来可能面临的公卫危机，台北相较于全球具有先进的公卫体系，也是一个值得信赖的民主盟友和珍贵朋友。”
+
+此外，卢比欧早在2018年5月便针对中共的窃取美国科技、威胁美国国家安全等，推动以保护国家安全为目的之“美中公平贸易执行法”（Fair Trade with China Enforcement Act），禁止美中两国交易“敏感科技”之法源，同时，更提高课征跨国公司来自中国的所得税，借以钳制中国窃取美国智慧财产。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-5.jpg)
+* * *
+
+新闻来源｜[自由时报](https://news.ltn.com.tw/news/politics/breakingnews/3727870)、[美参议员卢比欧推动禁止与中国交易敏感科技之法案-资策会](https://stli.iii.org.tw/article-detail.aspx?no=64&amp;tp=0&amp;i=72&amp;d=8038)
+撰稿｜zhong
 
  
 

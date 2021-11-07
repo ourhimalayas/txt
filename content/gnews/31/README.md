@@ -2,10 +2,10 @@
 ---
 
 
-## 反对中共病毒早期治疗的CDC、FDA、WHO及NIH“希望人们死亡”
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1644734/)
+## 泽连科：大规模接种疫苗促成致命毒株，并加剧大流行
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1644890/)
 
-10/30/2021 泽连科医生：反对中共病毒早期治疗的疾控中心、食品和药物管理局、世卫组织、及美国国立卫生研究院“希望人们死亡”。
+10/30/2021 泽连科：大规模接种疫苗促成了致命毒株，并加剧了大流行；我们正生活在全球性的生化武器袭击中。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,45 +2,31 @@
 ---
 
 
-## 7个月40次核酸检测，中共如此薅羊毛
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645055/)
+## 警惕澳洲个别网络供应商对喜马拉雅交易所平台的屏蔽
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1645117/)
 
-作者：纽约香草山农场 – 鹰(文言)
+撰稿：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TPG.png)图片来自网络
+喜马拉雅交易所，喜美元和喜币已于11月1日成功上线，有很多用户已成功购买到了喜币，也有越来越多的用户开始注册喜美元账户，努力通过KYC。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+由于喜马拉雅交易所刚刚开通，而且又经历了来自黑客的军事级别的攻击，一些用户遇到了登录困难，无法收到验证码等情况，自然会认为这是由于喜交所网站还不稳定，而忽视了自己的网络供应商的问题。
 
-疫情导致瑞丽市常住人口从50万减至20万，市民7个月间歇封闭管理期间核酸检测次数多达40次，某网约车司机7个月90次核酸检测，平均每周3.2次。虽然当地政府称全员核酸检测费用由政府承担，但市政府的医疗开支归根结底依旧来自于底层民众的税收。
+有用户发现个别澳洲网络供应商对喜马拉雅交易所网站进行了屏蔽。例如，[OOCOM公司](https://occom.com.au/)的宽带服务无法访问喜马拉雅交易所网站。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/下载-2.jpg)
+也有采用[TPG宽带服务](https://www.tpg.com.au/nbn?gclid=CjwKCAjwz5iMBhAEEiwAMEAwGEYJ7SYLx8RMfMpQ9vvBNYLZOnHu8KZT-9AJ7MGrSc-E75JwgWFxTxoChTQQAvD_BwE)的用户在通过了喜马拉雅交易所的KYC之后，点击“充值”按钮后，看不到银行汇款信息而无法给银行汇款。该用户多次联系了喜交所客服寻求帮助，尝试清理浏览记录，用不同的浏览器登录等，可就是看不到银行汇款信息。
 
-根据2021年2月初瑞丽市人民医院核酸检测费用下调至76元/次，虽然混检价格略低，但如此频繁的核酸检测，说明检测试剂的精准度低下，显露中共利用疫情变相收割民财的行径。核酸检测以及封闭管理不仅增大了民众的生活开支，更造成严重的断供和断收，让百姓债务压力激增。
+这样持续了一个星期。在一位朋友的提醒下，这位用户改用自己的手机移动网络登录喜马拉雅交易所网站，结果发现一切正常，是TPG宽带服务商的问题。
 
-（本文仅代表作者观点）
+近期，[美国广播和通信监管机构联邦通信委员会](https://gnews.org/zh-hans/1620571/)[(FCC)](https://gnews.org/zh-hans/1620571/)撤销了中国电信在美国的运营许可证，并提到这家中共国公司可能会渗透关键网络，从而带来安全风险。
 
-参考阅读：
+在澳大利亚的情况又如何呢？中共的黑手会在澳洲的电信网络从事非法间谍活动吗？
 
-- [https://www.163.com/dy/article/GNI0NQU60534IAKI.html](https://www.163.com/dy/article/GNI0NQU60534IAKI.html)
-- [http://www.ruili.gov.cn/shrl/yl/content-182-7649-1.html](http://www.ruili.gov.cn/shrl/yl/content-182-7649-1.html)
-- [https://news.sina.com.cn/c/2021-10-30/doc-iktzscyy2622689.shtml](https://news.sina.com.cn/c/2021-10-30/doc-iktzscyy2622689.shtml)
+[据报道](https://www.channelnews.com.au/exclusive-china-telecom-huawei-doing-a-roaring-trade-with-partners-tpg-aapt-optus/)，中国电信和华为正在通过 Optus、AAPT 和 TPG 等运营商在澳大利亚开展业务。很多网络供应商都在使用华为生产的路由器。
 
+(本文纯属个人观点，与Gnews无关)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
-
-***编辑***：***木白***
-***校对/发稿：海阔天空1***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
