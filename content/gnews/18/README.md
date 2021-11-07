@@ -2,14 +2,14 @@
 ---
 
 
-## 柏林墙
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1646172/)
+## 领航者
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1646193/)
 
 作者：文北
-![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_3495.jpg)
-《柏林墙》 
-时劳英雄造，建功趁年少。 
-谁说柏林墙，万古永不倒？
+![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_3490.jpg)
+《领航者》 
+任尔星辰古今烁，吾凭日月照長河。 
+雄才大略領航者，迎風破浪断江波！
 
 * * *
 

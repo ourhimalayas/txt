@@ -2,54 +2,46 @@
 ---
 
 
-## 医生说10年内无法完全了解 COVID 疫苗的副作用
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1646056/)
+## 最新消息：联邦法院阻止拜登政府的疫苗接种授权
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1646152/)
 
-**编译：JennyBall**
+**翻译：JennyBall**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip152.png)图片来源：teamtuckercarlson.com
+联邦上诉法院刚刚停止了拜登的疫苗授权。德克萨斯州州长格雷格·阿博特 (Greg Abbott) 周六宣布，寻求暂时摆脱繁重法律的美国人获胜。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip151.png)
+法院的命令与拜登政府刚刚颁布的职业安全与卫生条例有关。三名法院法官发布了以下决定。
 
-在 [CHD.TV](https://live.childrenshealthdefense.org/) 的最新一集“逆风”中，保罗·托马斯（Paul Thomas）博士采访了两名医疗专业人士，他们讨论了他们如何不顾医院和美国食品和药物管理局 (FDA) 的规定来治疗 COVID 患者。
+该命令说：“在法院之前，请愿人提出了一项紧急动议，要求在加快司法审查期间，暂停执行职业安全与健康管理局 2021 年 11 月 5 日的紧急临时标准 2（“授权”）。 “由于请愿书让人相信授权存在严重的法定和宪法问题，授权在此搁置，等待本法院采取进一步行动。”
 
-在CHD.TV 与主持人保罗·博士合作的最新两集“逆风”，保罗介绍了两名医疗专业人员，他们成功治疗了 COVID 患者，没有任何死亡。
+法院随后命令联邦政府在 11 月 8 日之前做出回应。在拜登政府最初于 9 月宣布后，职业安全与健康管理局 (OSHA) 法规于周四正式发布。
 
-嘉宾们——在免疫学和介入内分泌学方面接受过高级医学培训的眼科医生吉姆·米汉（[Dr. Jim Meehan](https://www.meehanmd.com/about)）博士和米勒家庭儿科（[Miller Family Pediatrics](https://www.millerpeds.com/)）的医师助理斯科特·米勒（[Scott Miller](https://www.millerpeds.com/scottmiller) ）——重点讨论了这个问题：医疗专业人士如何克服被谴责的恐惧，用主流媒体打压的治疗方法，拯救患者免于死亡。
+“拜登政府周四下令，美国公司确保其员工在 1 月 4 日之前完全接种 Covid-19 疫苗，或定期进行 Covid-19 测试——让他们在久候且具激烈争议的授权生效之前休假，”CNBC 报道。
 
-托马斯描述，在最近一次上班的路上，他如何经过一群戴着口罩并“与社会保持距离”6英尺的年轻学童。作为父亲和儿科医生，“感觉太不对劲了，”他说。
+“周四，政府还将联邦承包商遵守更严格的员工疫苗要求的截止日期，从 12 月 8 日推迟到 1 月 4 日，以配合为其他私营公司和医疗保健提供者设定的截止日期，”该报告还说。
 
-“看着其中一些孩子的眼睛，你看到无神的目光，”托马斯说。
+报告指出：“劳工部下属的职业安全与健康管理局发布的新规定，适用于拥有 100 名或更多员工的企业。”“根据要求，所有未接种疫苗的工人，必须在 12 月 5 日之前开始戴口罩，并在 1 月截止日期后，每周进行一次阴性 Covid 测试。除非州或地方法律或工会合同另有要求，否则公司无需支付或提供测试费用。任何检测呈阳性的人都被禁止上班。”
 
-托马斯和米汉谈到了口罩、[COVID疫苗](https://childrenshealthdefense.org/defender_category/covid/)和[疫苗伤害](https://childrenshealthdefense.org/defender/vaers-cdc-deaths-injuries-covid-vaccines-fda-emergency-use-pfizer-kids/)。
+报告补充说：“公司还必须在 12 月 5 日之前，为员工提供带薪接种时间和带薪病假，以便他们从任何副作用中恢复过来。”
 
-米汉分享了他为什么认为口罩无效、不必要和有害的循证科学分析。米汗还讨论了他使用医院未提供的，可用的[疗法](https://childrenshealthdefense.org/defender/rfk-jr-podcast-dr-ryan-cole-pathologist-early-treatment-keydelta-variant/)治疗患者的经验，以及关于 COVID 治疗的社交媒体帖子是如何被禁止的。
+职业安全与健康管理局还将在全国范围内监管工作场所，以确保不执行非法授权。
 
-在米汗医生治疗的大约 4,000 名 COVID 患者中，没有人死亡。米汉说，他的病人很早就来找他治疗。在医院里，他成功治疗了 20 多名未通过医院 COVID 协议的患者，其中包括一名服用了两轮[瑞德西韦](https://childrenshealthdefense.org/defender/remdesivir-fda-approval-who-ineffective-covid/)的 66 岁男子。
+“OSHA将提供示例实施计划和情况说明书以及其他材料，以帮助公司采用新规则，”CNBC 报道。
 
-米汗医生说，在 COVID 疫苗推出后不久，他开始意识到疫苗的[不良反应](https://childrenshealthdefense.org/defender/vaers-cdc-deaths-injuries-covid-vaccines-fda-emergency-use-pfizer-kids/)，包括流产、血管炎、炎症和 [血凝块形成](https://childrenshealthdefense.org/defender/jessica-berg-wilson-dies-covid-vaccine-twitter-censors-obituary/)。
+“OSHA 还将进行现场工作场所检查，以确保公司遵守规则，一位高级政府官员说。 对违规行为的处罚，从每次严重违规的 13,653 美元，到136,532 美元不等，”报告补充说。
 
-托马斯在他的儿科实践中看到了一例接种疫苗后的[心肌炎病例](https://ca.childrenshealthdefense.org/home-page/risks-of-myocarditis-are-covid-vaccines-in-our-childrens-best-interest/)。
+“疫苗授权涵盖了私营部门就业的 8400 万人，这是自 2020 年 3 月该病毒被宣布为大流行以来，最广泛地使用联邦权力来保护工人免受 Covid-19 侵害，”它继续说道。
 
-米汉说：
+9 月中旬，24 名州检察长威胁要在行政命令宣布后，就联邦疫苗授权起诉拜登政府。 这些州总检察长向拜登政府递交了一封值得一读的信。
 
-“这可能是你，这可能是你的孩子，你的女儿，这可能是你的父亲……这些是[实验性](https://www.fda.gov/drugs/types-applications/investigational-new-drug-ind-application#Introduction)疫苗。我们还需要十年时间才能知道不良反应的严重程度。我们还需要数年时间才能确定我们可能会因[抗体依赖性增强](https://childrenshealthdefense.org/defender/potential-covid-vaccine-related-ticking-time-bomb/)而失去 10% 的人口”。
+AG 的信中写道：“我们，24 个州的总检察长，写信反对你们强制要求为普通公民接种疫苗的企图。”“9 月 9 日，你宣布你将命令劳工部根据《职业安全与健康 (OSH) 法》发布紧急临时标准，该标准将要求私营部门雇主去要求他们的大多数员工，要么接种COVID-19疫苗 、要么提交每周测试或被解雇**。你的计划是灾难性的，而且适得其反**。从政策的角度来看，这项法令不可能赢得人心——它只会进一步引发怀疑。 至少有一些美国人宁愿离职也不服从。”
 
-**在****米汗医生****开始看到**** COVID ****疫苗受伤的年轻和大学年龄患者后，他在他的网站上添加了紧急声明**。后来，他因发布关于[刺突蛋白](https://childrenshealthdefense.org/defender/moderna-pfizer-vaccines-blood-clots-inflammation-brain-heart/)的危险性，以及动物研究表明：这些蛋白如何穿过血脑屏障，并导致神经系统伤害，从而被禁止进入社交媒体。
+信中补充说：“该政策也没有考虑到员工之间的差异，这可能证明雇主给予更细微的待遇是合理的。”“**最明显的是，你的政策莫名其妙地没有承认自然免疫**。事实上，疾病预防控制中心估计，到 2021 年 5 月下旬，已经有超过 1.2 亿美国人被感染，而今天这个数字可能会高出数千万，而且你的全面授权没有考虑到许多工人——例如那些在家工作的人，或在户外工作——无论疫苗状态如何，他们几乎都没有从同事那里接触到的风险。一刀切的政策不是理性的决策。 这是为了权力而权力。”
 
-米汉说，他对 COVID 疫苗接种的安全警告全面适用，尤其是孕妇、儿童和青少年。
+“**你的法令也是非法的，**”信中补充道。“您提议通过《职业安全与卫生法》中很少使用的紧急临时标准条款来执行您的任务。根据国会研究服务处的说法，自 1983 年以来，该部门仅尝试过一次采用紧急临时标准（今年 6 月出现了一次例外，目前正受到质疑）。紧急临时标准不需要经过通知和评论，发布后立即生效。由于缺乏程序和监督，法院对这些标准持怀疑态度。1971 年至 1983 年间， OSHA发布了九项紧急临时标准。其中，六项受到挑战。法院在四起案件中完全取消或保留标准，在另一起案件中，部分保留标准，仅维持六起案件中的一项。”
 
-“**我们不能为儿童接种疫苗，统计证明他们死于 COVID-19 的机会为零**，”他说，并分享了约翰斯·霍普金斯大学最近的一项分析数据，该分析发现25 岁以下儿童中，有 330 多例 COVID 死亡，数据表明大多数 或者几乎所有的孩子似乎都患有危及生命的既往疾病。
+因此，拜登的联邦疫苗授权，在法庭上遇到了第一次挑战。**到目前为止，这项公然违宪的法令看起来很严峻。**
 
-米勒使用了 FDA 批准的疗法，但这些疗法未被 FDA 批准用于治疗 COVID，这导致他失去了医疗执照。
-
-米勒在他的实践中对待儿童和成人一样。 他的儿科患者没有一个死于 COVID 或住院。
-
-米勒讨论了迫使他反对该系统,并倡导适用于 COVID 的行之有效的治疗方法的研究和道德义务。他说：“当有这么多人需要这些信息时，我觉得逐一告诉人们是徒劳的，所以我才开始公开谈论它。”
-
-**评论：这么不可思议，米勒医生使用的疗法治愈病人，****FDA****却吊销了他的医疗执照。还要比这更荒唐的事情吗！政府没有行医执照，却有权强制人们接种****10****年后才能够彻底看到不良反应的试验药品！**
-
-**快清醒啊还在被无良“科学家”欺骗的人们！**
-
-**新闻来源**：[childrenshealthdefense.org] [Full Extent of COVID Vaccine Reactions Won’t Be Known for at Least 10 Years, Physician Says](https://childrenshealthdefense.org/defender/chd-tv-against-wind-paul-thomas-jim-meehan-scott-miller-fda-covid/)
+**新闻来源**：[teamtuckercarlson.com] [Breaking: Federal Court Blocks Biden Administration’s Vaccination Mandate](https://teamtuckercarlson.com/news/breaking-federal-court-blocks-biden-administrations-vaccination-mandate/)
 
 * * *
 
@@ -58,8 +50,6 @@
 发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
-
-
 
  
 

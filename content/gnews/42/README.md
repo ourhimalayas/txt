@@ -2,49 +2,20 @@
 ---
 
 
-## 洛杉矶市长中共病毒检测呈阳性，接种过两针疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645589/)
+## 狮城快讯：海底捞调整策略 关停300家店面
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1645831/)
 
-作者：洛杉矶盘古农场 – 滴水穿石
+**撰稿：小坡**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-07-201116.jpg)
+11月5日晚间，海底捞集团发布公告称，将于2021年12月31日前逐步关停300家左右经营未达预期门店，其中部分门店（包括海外门店）将暂时休整、择机重开，休整周期最长不超过两年。海底捞称关停门店是公司2019年制定的快速扩张策略所导致的，具体有门店选址失误，让各级管理人员无法理解且疲于奔命的组织结构变革、优秀店经理数量不足、过度相信连住利益的KPI指标，以及企业文化建设的不足。
 
+新加坡的战友们应该都知道，海底捞的老板张勇及家人2018年就来到了新加坡，而且获得了新加坡国籍，2019年至2020年张勇登上福布斯《新加坡50大富豪榜》榜首，成為新加坡首富。但是由于过去两年的中共病毒疫情影响，呼吸器和监护仪等器材需求大增，在深圳交易所挂牌的迈瑞医疗集团股价一年来上扬了19％，李西廷的财富增加52亿美元，今年一举拿下新加坡首富位置，而张勇和舒萍夫妇的财富从190亿美元减至160亿美元，掉到第四位。
 
+国内媒体借此机会唱衰张勇，还冷嘲热讽说他把海底捞搞成了外资公司，钱都被新加坡赚了，为了避税无所不用其极云云。小坡到觉得，张勇这样做一点错都没有，而且是民营企业家里面很聪明的，以他草根的出身，以及一路辛苦打拼得到今天的一切，相信他对中共的认识非常清楚，说不定也是我们的战友呢！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+总之，希望海底捞能够坚持住，用良心食材做健康火锅，疫情后一定会重放异彩！
 
-
-
-周四 （11月4日）， 正在苏格兰在参加联合国气候变化会议的洛杉矶市长埃里克·加塞蒂，做中共病毒检测呈阳性。
-
-50 岁的加塞蒂市长在 今年1 月被医务人员建议接种了第一剂Moderna 疫苗。市长发言人称，他在 2 月份接受了第二剂注射。
-
-有专家分析称，强制推行全民中共病毒疫苗接种与政客、医药集团间的暗中勾兑有关。而勾兑的政客必会为其邪恶行为付出代价。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-25.jpg)
-参考链接：
-1. [‘This could be my room for a few days’: Garcetti tests positive, isolates in Scotland](https://www.latimes.com/california/story/2021-11-03/l-a-mayor-eric-garcetti-tests-positive-for-covid-19)
-2. [Garcetti reports some fever and head cold symptoms following covid-19 diagnosis](https://www.latimes.com/california/story/2021-11-04/garcetti-reports-some-fever-and-head-cold-symptoms-following-covid-19-diagnosis)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**[新闻来源](https://mp.weixin.qq.com/s/LBP58NQqe67hK15twoLtVw)**
 
  
 

@@ -2,47 +2,40 @@
 ---
 
 
-## 11/03班农专访Q5: 喜币公开上市的里程碑式意义
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1645934/)
+## 澳防长呼吁马克龙放下两国分歧 共同对抗中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645986/)
 
-**简评：**
+作者： 英国喜庄园 I770775
 
-11月1日，喜币成功上市。两小时后价格飙升了50倍，现在已经超过百倍。新中国、新中国人、新货币、Gnews、GTV、Gettr、GFashion、喜币、喜联储等，新中国联邦的版图正在各就各位，反共力量制度化正在形成。整个G系列的建立和形成的规模很惊人，喜币背后的区块链技术更是震惊了世人。美国人也从G系列获得真实的信息。中共一直关注G系列的动态，他们害怕国内百姓的觉醒，更害怕海外华人在自由的国度里打造出的这样反抗暴政和奴役的生态体系。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-[GTV视频链接](https://gtv.org/video/id=618670edadfd99590c33ba8b)
+当地时间11月4日，澳大利亚国防部长达顿敦促法国政府，不要因潜艇合同被取消而“受伤”，澳法两国应抛开分歧，专注于应对中共带来的“巨大不确定性”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1107AM（1-9）視頻備用.004.jpeg)
+早在今年9月份，为应对中共威胁，澳大利亚与美英签署了有关核潜艇的协议，同时取消了与法国签署的常规动力潜艇大单，这使一向亲密的澳法关系出现了一定程度的裂痕。
 
+当地时间11月1日，澳大利亚媒体披露了一则马克龙在9月发给莫里森的短信。短信显示，马克龙在合同正式取消前就已知晓此事，之所以此后不依不饶地纠缠，无非是背后有中共蓝金黄的力量在不断施加影响。
 
+对此，达顿毫不客气地表示，马克龙的所作所为只是为明年的总统大选“装模作样”。达顿强调，澳法两国应该继续携手前进，并且法国政府应该意识到，只有放下分歧，共同对抗中共，才是最符合两个国家利益的明智选择。
 
-**视频字幕：**
+参考链接：
 
-**英喜主持人Nina：**这周一是喜币公开发行的日子，两小时后，价格飙升了50倍。现在已经超过了百倍。作为新中国联邦的联合创始人，你认为喜币有何重要意义？
-
-**班农先生：**这是丰碑式的。新中国、新中国人，现在又有了新货币。（喜币）成功上市太牛了。很多人在这里投入的巨大的精力是令人惊叹的。同时，你们也有了喜联储。所以我认为（新中国联邦的）版图正各就各位，包括Gnews、GTV、GETTR、喜币、喜联储、新中国联邦、爆料革命。反共力量的制度化令人惊叹。
-
-对比中共在过去几年造成的死亡和破坏，新中国联邦、文贵和爆料革命带来的是正面影响，还有今天的盖特、Gfashion、喜联储，各地的喜马拉雅农场、喜币，这太惊人了。这些项目的建立和规模太惊人了。
-
-还有他们的专业，盖特是目前最专业的推特替代品。美国市场上还有Peter Thiel等人的竞争。（G系列）加在一起太惊人了，还有由此带来的人与人之间的信任。我一直听说美国人也从G系列获取真实信息。所以这太了不起了。
-
-爆料革命一直在曝光真相上做得很出色。新中国联邦人每次的游行都非常有礼貌、很执着、穿着得体，他们的行动把人们惊呆了。
-
-喜币还有背后的区块链技术，震惊了世人。我认为缔造这样的体系是非常困难的，用顶尖的科技、真实的资本和真实的领导力去支撑这样的体系让它发展壮大，是非常了不起的。
-
-毫无疑问这是中共最关注的原因，因为中共最怕的是墙内的老百姓，但同时他们更害怕生活在自由空气里的海外华人，打造出这样了不起的体系来反抗中共的暴政和奴役。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/班农专访.jpg)
-编辑：【英国伦敦喜庄园编辑部】
-
-*视频字幕/听写：云岭 | 翻译：Wade | 校对： Roberts | 简评/文字整理/编辑：胖丁 | Page：Daoiii*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+1. [杠上了？因取消潜艇订单被法国怒喷后，莫里森：我永远不后悔](https://www.163.com/dy/article/GK9KCN9T0514R9OJ.html)
+2. [这也行？澳防长呼吁法国将受伤的感情放到一边 专注于应对中国](https://news.ifeng.com/c/8AvAAXiSUZz)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+编辑/总编：飞虹
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 

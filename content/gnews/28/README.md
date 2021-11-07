@@ -2,38 +2,68 @@
 ---
 
 
-## DC大中华时事：中共吹嘘进博会
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1646044/)
+## 中共病毒及其疫苗全球超限战中的典型案例（十六）
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1646069/)
 
-*编辑：西北风 / 作图：*信正
+作者：香草山信息部 6zero4
 
-![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36.png)
 
-#   牆国妄语每日驳
 
-### 11.07.2021
 
-[时评｜搞“台独”分裂绝对没有好下场！ (huanqiu.com)](https://m.huanqiu.com/article/45UCBCaSATn)
+**参议员保罗抨击撒谎成性的福奇：他因自然免疫挫败了其大规模疫苗接种计划而无视自然免疫的作用**
 
-***简评：*谁是分裂中国的罪葵祸首，当然是中共。自中共进入华夏以来，外蒙古独立了，台湾实事上独立了，今天和未来如果中共继续执政祸害下去，新疆和西藏也必将独立。如果我们看西藏和新疆人口结构比例，西藏300多万常住人口，藏族人口占到91%，新疆2500万常住人口，少数民族占总人口57%。中共对新疆西藏少数民族文化上的灭绝，经济上的掠夺，种族上的迫害和打压在未来会随著中共的崩溃全部爆发出来，以现有人口结构如果西藏、新疆寻求政治上的独立，那是顺理成章的必然的结果。中共治下的国土，真正种下的是种族愁恨而不是种族大溶和，这也是中共真正的带结中国的恶。大好河山尽毁，国土分裂，可中共现在无耻的说台湾搞台独分裂。如何避免这种局面，也只能靠我们新中国联邦人自己的努力，新中国联邦得有足够的实力，财力、物力、人力，我们不可能依靠美国等西方强国去真正帮助我们解决中国现在和将来面临的这些问题，如果中共崩溃，美国和西方国家只会重演中国淸未民初，美苏冷战结束苏联解体历史一幕，不会真正帮到中国，毕竟国家之间地缘政治讲的是利益。中共治下造成的烂滩子己不言而喻，新中国联邦承担的历史责任也不言而喻，喜币上市，G系列的状大意义也不言而喻。**
+2021年10月8日，参议员保罗（Rand Paul）指责NIAID主任福奇刻意无视COVID-19病毒引发自然免疫的益处，因为这将破坏福奇的大规模疫苗接种计划，进一步抨击了福奇将每个人都需要接种COVID-19疫苗的想法为“无稽之谈”。前几天有人问福奇关于人体对COVID-19病毒感染后获得自然免疫力的看法，福奇表示从没想过自然免疫这个问题，对此没有任何评论，这是赤裸裸地无视自然免疫存在的意义！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-97.png)
+保罗对自然免疫的比喻很贴切：85岁的你的死亡概率是你10岁时的1万倍，难道我们应该像对待85岁老人一样对待一个10岁的孩子吗？这简直是无稽之谈，是对自然免疫的刻意无视！
 
-### 11.07.2021
+上周，卫生部长贝塞拉（Xavier Becerra）当着保罗的面嘲笑那些不接种疫苗而选择自然免疫的人傲慢、独裁且不配为美国人。卫生官员对未接种疫苗的人表现得如此歇斯底里，他们对自然免疫的无视恰恰证明了自然免疫的实际作用和意义！
 
-[外媒评述：进博会彰显中国市场巨大魅力\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20211107/2459090.shtml)
+**8****个佛罗里达学区因违反州卫生局口罩禁令而受到州教育委员会的惩罚**
 
-***简评：*中共一直以来以以中国市场巨大魅力来威逼利诱西方国家。这也只有在中共这种极权体制下不讲人权的暴政才能讲出的话。西方国家看中的是中国廉价的劳动力，在全球经济产业链中国廉价劳动力只是其中一环，中共可以以污染空气，土地，河流，卖光地上地下的资源，出卖子宫的经济政策吸引西方国家企业，这在其他任何国家任何政府都是不会被充许的。这才是中共嘴里真正中国巨大市场魅力的秘密。中共治下没有科技创新能力，科技才是第一生产力，只有科技上的不断创新才能真正创造巨大市场，在中共体制下中国人没有科技创新能力，卖完了子宫，还能卖什么，所谓的巨大市场魅力只是一个国际笑话。**
+2021年10月7日，佛罗里达州教育委员会对该州8个学区（Brevard, Broward, Duval, Hillsborough, Leon, Miami-Dade, Orange 与 Palm Beach县）进行经济处罚，因为这些学区无视该州禁止在学校里戴口罩的规定而强制让学生在校戴口罩。该规定支持《父母权利法案》，是上个月由该州卫生局通过的一项紧急规定，强调学生戴不戴口罩的要求由父母或法定监护人全权决定。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-98.png)
+州教育委员会委员科科伦（Richard Corcoran）向委员会报告说，在作出处罚决定前，这8个县都没有提供任何证明自己遵守了这个法律的信息，建议扣留每位学校董事会成员年薪的十二分之一，并暂停任何联邦安全项目基金对这些学区的拨款。
 
-### 11.07.2021
+联邦政府以偿还这些学区因无视该法律禁止学校戴口罩的规定而损失了资金的名义，已从联邦安全项目拨款中拿走了纳税人的这部分专项资金。科科伦因此表示联邦拨款是用来“收买学区”的，联邦政府干预了州教育委员会管理其教育系统的责任，这违反了宪法第十修正案。科科伦还表示，每个佛罗里达人都应该对联邦政府干涉州教育问题感到愤怒，我们不应受到联邦政府的胁迫。
 
-[外媒：伊拉克总理躲过无人机暗杀\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/ckkx/kuaixun20211107/2459088.shtml)
+**夏威夷州已经实际上要求持“疫苗护照”入境**
 
-***简评：*现代高科技下未来战争模式也发生了根本改变，过去战争由人海战术到近代的海陆空天协同做战，未来战争更多的将会依靠无人机等定点清除让领导先走的模式。这是最高效也是成本最低的也是最符合人道的一种战争模式。想想不远的未来中共和美日西方国家最终发展到以军事战争为最终解决方案时，无人机定点淸除等高科技武器将会大显神威，让领导先走的战争模式中国民众也是真心支持和拥护的。**
+零对冲2021年10月8日报道，近几个月来，夏威夷事实上已经在执行“疫苗护照”政策，一些试图持假的疫苗接种卡或病毒检测结果进入夏威夷的人在边境被捕，并可能被判入狱。最初，来自加州的一对父子持假疫苗接种卡入境夏威夷而成为第一个引起全国关注的案例；今年夏天，一名持有假Maderna疫苗接种卡的芝加哥女子试图进入这个度假天堂时被发现；最近，一对30多岁的洛杉矶夫妇谎报新冠病毒检测呈阴性，试图避开COVID-19病毒测试以进入夏威夷后自费在酒店进行长期隔离，他们在边境被捕并被遣送回加州，目前正在等待法庭审判。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-99.png)
+根据夏威夷地方法律，持假疫苗接种卡最高可被罚款5000美元或最长一年的监禁。同时，在夏威夷境内的健身房、酒吧和餐馆等公共场所，也已仿效纽约和旧金山等美国大城市而推出了新冠疫苗护照，并称其为数字智能健康卡，虽然它还没有完全在夏威夷强制执行，但已经在鼓励当地企业开始强制执行了。
 
-#   港台资讯
-![](https://media.discordapp.net/attachments/858887785507323904/906773453422612500/DC11.7-1.jpg?width=961&amp;height=541)![](https://media.discordapp.net/attachments/858887785507323904/906773632477450260/DC11.7-3.jpg?width=961&amp;height=541)![](https://media.discordapp.net/attachments/858887785507323904/906773633127571466/DC11.7_2.jpg?width=961&amp;height=541)
-*编辑：西北风*
-*作图：信正
-发布：文顾*
+**新加坡的****AI****聊天机器人因对****COVID-19****疫情给出不当建议后被下架了**
+
+2021年10月8日零对冲报道，最近新加坡卫生部从其官网上删除了人工智能聊天机器人“杰米”，因为它的“失控”和“错位”，为人们提供了与COVID-19相关问题极不恰当的答案，让人难以置信并使事态变得更糟。AI聊天机器人“杰米”使用自然语言处理引擎来回答公众提出的问题，最近“杰米”在回答一名用户问“我儿子的COVID-19病毒检测呈阳性，我该怎么办？”时回答道：“至少在你的女性伴侣怀孕期间，你应该通过正确并持续使用避孕套或禁欲来进行安全性行为”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-100.png)
+另一位居民问：“我在哪里可以得到ART（快速抗原检测）？”时，“杰米”却提供了“脊髓灰质炎疫苗”的答复。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-101.png)
+AI聊天机器人在新加坡的其它几十个政府网站上运行良好，但不知道为什么在询问新冠病毒问题时却给出了糟糕的答案，这仍然是个有趣的谜。
+
+图片和新闻源于:
+
+[https://www.zerohedge.com/political/watch-rand-paul-blasts-lying-fauci-he-ignores-natural-immunity-because-it-foils-his-mass](https://www.zerohedge.com/political/watch-rand-paul-blasts-lying-fauci-he-ignores-natural-immunity-because-it-foils-his-mass)
+
+[https://www.zerohedge.com/political/florida-state-board-sanctions-eight-school-districts-defying-ban-mask-mandates](https://www.zerohedge.com/political/florida-state-board-sanctions-eight-school-districts-defying-ban-mask-mandates)
+
+[https://www.zerohedge.com/covid-19/one-us-state-already-has-de-facto-vaccine-passport-requirement-just-enterhttps://www.zerohedge.com/technology/singapore-drops-ai-chatbot-after-giving-inappropriate-advice-about-covid](https://www.zerohedge.com/covid-19/one-us-state-already-has-de-facto-vaccine-passport-requirement-just-enterhttps://www.zerohedge.com/technology/singapore-drops-ai-chatbot-after-giving-inappropriate-advice-about-covid)
+
+审核/上传：浪迹天涯
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 
