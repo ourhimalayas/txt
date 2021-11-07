@@ -2,39 +2,42 @@
 ---
 
 
-## 卡尔文森号航母打击群，高调展开南海针对性战备演练
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1645204/)
+## 美国将反击中共钢铁产业的不公平竞争
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645277/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-35.jpeg)
-撰文：台湾宝岛农场 快慢机
+作者：纽约香草山农场 – 007
 
-美军卡尔文森号航母打击群，11月3日刚刚南下驶离南海后，便于次日再度经由民都洛海峡北上折返，战术机动至南沙群岛周边区域。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-36.jpeg)
-据南海态势感知平台最新消息，美军卡尔文森号核动力航母打击集群，刚刚于11月3日南下经巴拉巴克海峡驶离南海水域后，随即便于次日诡异的再次经由民都洛海峡北上折返，战术机动至南沙群岛附近区域。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-而此前一直游弋于南海周边水域的卡尔文森号航母打击集群，刚刚完成与日本海自“加贺”号轻型直升机航母的联合海上演训任务。期间卡尔文森号航母打击集群，还曾启动了“一级战备”及“大规模伤亡”的应急状态模式。用以检验整个航母作战群，在遭受极端武装冲突下的生存及作战能力。
+1月2日，美国钢铁协会和美国钢铁制造商协会在华盛顿举行大会，出席的美国贸易代表戴琪指出，美国政府将尽全力，阻止中国钢铁产品进口对美国钢铁产业和市场造成的损害，提振美国钢铁产业的竞争力。
 
-据悉，这是2021年美军航母打击集群第九次进出南海，同时也是卡尔文森号航母打击集群的年度第4次进出南海的高频任务记录。相较于2020年的同期数据而言，2021年度的美军大型海上作战集群，在南海的任务强度近乎提升了一倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/捕获-2.png)
 
-南海九段线的东南区域咽喉要冲！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-37.jpeg)
-11月4日突然北上感折返机动至南沙群岛周边区域的卡尔文森号航母打击集群。选择经由菲律宾群岛区域的民都洛海峡的战术目的还是非常值得推敲的。该海峡毗邻菲律宾海峡，与南海及苏禄海相连，是南海东南方向，进出印度洋与太平洋的，一条战略地位及其重要的海上航道。
+钢铁产业是制造业基础，过去20年来中国钢产量猛增，占全球产量的将近60%，这离不开中共的巨额补贴、牺牲环境、劳工剥削、低价倾销等不公平竞争手段，最终是不可持续的。戴琪表示，将动用所有工具，并探索开发新的工具，包括通过与其他经济体和国家的合作，保护美国免受多年来中共不公平竞争造成的的损害。
 
-美军卡尔文森号航母打击集群，这次所作出的极为罕见的，在24小时内经由巴拉巴克海峡南下驶离南海，再由苏禄海经民都洛海峡北上折返，高速机动至南沙群岛周边区域的，犹如回马枪式一般的战术动作，并不排除是在有针对性的，对中共部署于南沙群岛周边的军事岛礁，展开模拟合围攻击演练。
+（本文仅代表作者观点）
 
-民都洛海峡最窄处不足80公里跨度，战时可谓易守难攻，无论是封锁中共三亚榆林港内的南海舰队南下，抑或是阻断经由印度洋与南太平洋进入南海的海上生命运输线来讲，都足以轻松达到四两拨千斤的战术效果。
+参考阅读：
 
-本文仅代表笔者个人观点！
+- [https://www.voachinese.com/a/tai-on-china-steel-harm-20211102/6297133.html](https://www.voachinese.com/a/tai-on-china-steel-harm-20211102/6297133.html)
 
-资料链接：[https://mil.news.sina.com.cn/china/2021-11-06/doc-iktzscyy3981660.shtml](https://mil.news.sina.com.cn/china/2021-11-06/doc-iktzscyy3981660.shtml)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
 
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+***编辑***：***童谣***
+***校对/发稿：海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

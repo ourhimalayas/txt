@@ -2,55 +2,26 @@
 ---
 
 
-## 比尔盖茨希望美英投资“细菌游戏”来应对天花恐怖袭击
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1645039/)
+## 美司法部：首名被引渡至美受审中国情报官罪名成立
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1644984/)
 
-**评论：最为一名非流行病专家，比尔盖茨对“天花恐怖袭击”的警告令人震惊。我们不禁要思考一下在这场新冠病毒的袭击中比尔盖茨扮演了什么角色？他又据何断言或预测“天花恐怖袭击”？这是不是某些暗黑力量正在筹划的下一次灭绝人类的计划？**
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-45.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fgdb.voanews.com%2F274D63D0-B255-4C26-978A-986ACC1E5A78_cx0_cy12_cw0_w1080_h608_s.jpg&amp;imgrefurl=https%3A%2F%2Fwww.voachinese.com%2Fa%2Fjury-convicts-chinese-security-agent-in-aviation-espionage-case-20211105%2F6302073.html&amp;tbnid=9q2kmqr8twpOwM&amp;vet=12ahUKEwjg8Jrz_YP0AhUJB94KHRClCjsQMygBegQIARB5..i&amp;docid=BMyoeL51ZUx2jM&amp;w=1080&amp;h=608&amp;itg=1&amp;q=%E7%BE%8E%E5%8F%B8%E6%B3%95%E9%83%A8%EF%BC%9A%E9%A6%96%E5%90%8D%E8%A2%AB%E5%BC%95%E6%B8%A1%E8%87%B3%E7%BE%8E%E5%8F%97%E5%AE%A1%E4%B8%AD%E5%9B%BD%E6%83%85%E6%8A%A5%E5%AE%98%E7%BD%AA%E5%90%8D%E6%88%90%E7%AB%8B&amp;hl=zh-CN&amp;ved=2ahUKEwjg8Jrz_YP0AhUJB94KHRClCjsQMygBegQIARB5)
+根据美国司法部周五(11月5日)发布的消息，一个联邦陪审团当天裁定，中共江苏省国家安全厅六局副处长徐延军(音译，Yanjun Xu，又译徐彦君 )串谋和企图从事经济间谍活动以及窃取商业机密罪名成立，面临最长可达60年的监禁和500多万美元的罚款。声明还介绍，被告是首位被引渡至美国接受审判的中共国情报官员。2018年4月，徐延军在比利时被捕，并在六个月后被引渡至美国接受审判。其所在的江苏省安全厅隶属中共国国家安全部，主要职能包括情报收集分析、反间谍、政治保卫等。
 
-**据《雅虎新闻》记者Luke O’Reilly，2021年11月4日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/axfqo-mb611-2.jpg)**（PA Wire)**
-比尔·盖茨警告说，各国政府必须提供数十亿美元的研发资金，为未来的流行病和天花恐怖袭击做好准备。
+根据法庭文件和庭审中提供的证据，徐延军至少从2013年12月起就开始瞄准航空和航天公司，招募这些公司的专家以赴大学演讲的名义前往中共国，为他们支付费用和津贴，并计划在其中取得“高度机密”。一个具体案例：徐延军锁定了位于俄亥俄州辛辛那提地区的通用电气航空(GE Aviation)。该公司拥有的复合材料飞机引擎风扇技术是世界任何其他公司都未曾复制的技术。
 
-盖茨在与英国卫生特别委员会主席杰里米·亨特(Jeremy Hunt)进行“政策交流”采访时，提出了这一警告。
+美国司法部负责国家安全司的助理部长奥尔森（Matthew G. Olsen）在周五的声明中表示：“一名在职情报官因经济间谍而被定罪，凸显商业机密是中共国政府工业现代化计划不可或缺的一部分”，但是，奥尔森继续指出，“这次定罪还表明，美国不会坐视中共国或任何其它国家试图窃取而不是研究和开发关键技术。相反，在我们盟友的支持下，我们将继续调查、起诉并追究那些试图非法窃取美国智慧结晶的人。”俄亥俄南区代理联邦检察官帕特尔(Vipal J Patel)在司法部的声明中介绍：“徐延军密谋为中共国政府从事经济间谍活动，他试图窃取行业领先的美国航空技术公司的宝贵创新和商业机密。”
 
-盖茨还呼吁成立一个新的世界卫生组织流行病特别工作组，其每年可能要花费10亿美元。
+“这是由中共国家赞助的经济间谍活动，旨在窃取美国技术，使美国人失业，”联邦调查局（FBI）负责反情报部门助理局长科勒(Alan E. Kohler Jr.)在声明中指出：“对那些怀疑中共国真正目标的人来说，这应当让人警醒；他们正在窃取美国技术以使其经济和军方获益。联邦调查局正在与50多家美国政府机构合作，分享信息和调查资源，以阻止中共国的非法活动。”针对徐延军的案件，一名联邦法官将做出量刑裁决。目前尚未确定量刑宣判的日期。
 
-他说，虽然这项研究可能很昂贵，但它也可能带来其他创新，比如根除流感和普通感冒。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-04-153453.png)**（PA Wire)**
-他说，像美国和英国这样的国家必须花费“数百亿”来资助这项研究。
+信息来源：
 
-他说：“我希望在五年内，我可以写一本书，名为《我们已经准备好应对下一场流行病》，但这将需要数百亿的研发资金，美国和英国将参与其中。”
+[美司法部：首名被引渡至美受审中国情报官罪名成立](https://www.dw.com/zh/%E7%BE%8E%E5%8F%B8%E6%B3%95%E9%83%A8%E9%A6%96%E5%90%8D%E8%A2%AB%E5%BC%95%E6%B8%A1%E8%87%B3%E7%BE%8E%E5%8F%97%E5%AE%A1%E4%B8%AD%E5%9B%BD%E6%83%85%E6%8A%A5%E5%AE%98%E7%BD%AA%E5%90%8D%E6%88%90%E7%AB%8B/a-59740481)
 
-“世界卫生组织级别的大流行特别工作组每年可能需要10亿美元，他们在进行监测，实际上也在进行我所说的‘细菌游戏’。”
-
-盖茨表示，“细菌游戏”可能包括为生物恐怖主义行为做准备，比如针对机场的天花袭击。
-
-“你会说，好吧，如果一个生物恐怖分子把天花带到10个机场怎么办？你知道，世界会作何反应？自然导致的流行病和生物恐怖主义导致的流行病甚至可能比我们今天经历的更糟糕。”
-
-尽管发出了可怕的警告，这位世界第四大富豪在接受采访时也表现出乐观的态度，他预计，增加预防流行病的资金将带来“难以置信的有益的”医疗创新。
-
-“好消息是我们需要做大量的研发工作来为下一次大流行做好准备，比如制造便宜的疫苗、建立大型工厂、根除流感、消除普通感冒、将疫苗制成一小块贴在手臂上的贴片，放在你的胳膊上，即使在没有大流行的年份，这些东西也会非常有益。”他说。
-
-他补充说，作为慈善家工作的一部分，他将继续谈论防范大流行的问题。
-
-他说：“因此，除了气候信息和正在进行的抗击穷人疾病的斗争，流行病防范是我将经常谈论的事情。
-
-“我认为它会找到肥沃的土壤，因为，你知道，我们损失了数万亿美元和数百万人的生命。公民希望政府不要让这种事情再次发生。”
-
-**原文连接：**[https://uk.news.yahoo.com/bill-gates-warns-smallpox-terror-000100099.html?soc\_src=social-sh&soc\_trk=tw&tsrc=twtr&guccounter=1&guce\_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce\_referrer\_sig=AQAAAHF5lh-t\_18\_ctKi9Mk8tNpBE5\_D20g81fut\_8hsr4IVQfyACw7\_IzaHxwZrUz1Qmeg\_xInZFflJR\_pe1ut3VkjgG9ahPu6\_glLwE1GABl75enZ2\_94WywixXz4gsZ5pervSWPVRNrtYD9B4Cym5x53bxQ7YjE9VTDshY5f64LJ5](https://uk.news.yahoo.com/bill-gates-warns-smallpox-terror-000100099.html?soc_src=social-sh&amp;soc_trk=tw&amp;tsrc=twtr&amp;guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAHF5lh-t_18_ctKi9Mk8tNpBE5_D20g81fut_8hsr4IVQfyACw7_IzaHxwZrUz1Qmeg_xInZFflJR_pe1ut3VkjgG9ahPu6_glLwE1GABl75enZ2_94WywixXz4gsZ5pervSWPVRNrtYD9B4Cym5x53bxQ7YjE9VTDshY5f64LJ5)
-
-**(本文评论仅代表个人观点）**
-
-翻译：洛杉矶盘古农场–钢蛋儿
-校对：洛杉矶盘古农场–Mike Li
-评论：洛杉矶盘古农场–钢蛋儿
-编辑：洛杉矶盘古农场–心照
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
