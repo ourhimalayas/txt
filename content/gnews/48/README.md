@@ -2,23 +2,24 @@
 ---
 
 
-## 秘翻在线: 六中全会前 多名维权人士在京失踪
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1644626/)
+## 中共国盐业调味料集体宣布涨价
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1644978/)
 
-撰稿：西枫westca
+#### 撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5646.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Fblog%2Fcrawl%2F127%2Fw550h377%2F20211104%2Fcbb4-77eaeed5c45b12f0ed19a14f32f1fdd3.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.sina.com.cn%2Fstock%2Fhyyj%2F2021-11-04%2Fdoc-iktzscyy3666043.shtml&amp;tbnid=3hEjT5NknpXxrM&amp;vet=12ahUKEwjio6_c-YP0AhUOvpQKHVRoAiUQMygHegQIARAl..i&amp;docid=uw65k9eXh6lToM&amp;w=550&amp;h=377&amp;q=%E4%B8%AD%E5%85%B1%E5%9B%BD%E7%9B%90%E4%B8%9A%E8%B0%83%E5%91%B3%E6%96%99%E9%9B%86%E4%BD%93%E5%AE%A3%E5%B8%83%E6%B6%A8%E4%BB%B7&amp;hl=zh-CN&amp;ved=2ahUKEwjio6_c-YP0AhUOvpQKHVRoAiUQMygHegQIARAl)
+腾讯新闻近日报道，继雪天盐业称小包食盐出厂价近期陆续提价后，云南能投也透露，对部分食盐产品及工业盐产品价格进行了上调，综合平均调价幅度30%-35%不等。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/警方統一抓捕行動.jpg)图片来源：www.adhrrf.org
-据大纪元11月6日报道， 在中共六中全会前夕，多名维权人士失踪。
+前几日，加加食品对加加酱油、蚝油、料酒、鸡精和醋系列产品的出厂价格上调3%-7%不等的新闻，造成一种市场整体涨价的趋势，带来新一轮“涨价潮”。
 
-每当中共国有大型会议或敏感日期之前，都会控制在北京居住的维权人士。有人在家中被从老家来的公安前来直接强制遣返，有的在返乡路上，有的下落不明。即使在返回家乡后，他们也不能完全得到自由，当地都会对他们非法拘留。
+中共国盐业公司集体宣布涨价，同时调味料也宣布涨价，今年以来，煤炭、人工、运输及包装成本纷纷上涨，而关乎民生的日用产品的食盐集体涨价，会带动食品市场联动效应，未来会对基层居民的生活雪上加霜。
 
-早在一周前，北京已经开始清理访民，一些出租房也被挨家挨户排查是否有访民居住。进京的路上包括火车、公路都有人盘查，在信访办四周都是截访人员，拦阻访民进京，国家信访局已经不让信访登记。
+信息来源：
 
-中共国一方面打着“人民至上”的旗号，干着“人民至下”，“以人民为敌”的勾当。公检法就是充当打手的职位。任何提出不同意见的民众会被害得四处流浪，无家可归。推翻这样一个邪恶政权，人人有责！
+[多家食品上市公司回应调价计划，盐业公司集体宣布涨价](https://ms.mbd.baidu.com/r/vXuXLGAjq8?f=cp&amp;rs=1463287175&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0645fe06bb241a9b)
 
-**新闻来源：**[六中全会前 多名维权人遭绑架失踪 | 访民 | 维权人士 | 大纪元 (epochtimes.com)](https://www.epochtimes.com/gb/21/11/6/n13357986.htm)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

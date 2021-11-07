@@ -2,14 +2,14 @@
 ---
 
 
-## 封门
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1646164/)
+## 领航者
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1646193/)
 
 作者：文北
-![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_3496.jpg)
-《封门》 
-冥间纸钱封活路，鬼门关上血祝福。 
-家中无粮便无命，舍下儿孙舍父母？
+![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_3490.jpg)
+《领航者》 
+任尔星辰古今烁，吾凭日月照長河。 
+雄才大略領航者，迎風破浪断江波！
 
 * * *
 

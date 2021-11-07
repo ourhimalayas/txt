@@ -2,37 +2,21 @@
 ---
 
 
-## 有声|中共病毒及其疫苗全球超限战中的典型案例（十四）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1645634/)
+## 狮城快讯：海底捞调整策略 关停300家店面
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1645831/)
 
-配音：香草山教育部 – 蒙古鸿雁
+**撰稿：小坡**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-07-201116.jpg)
+11月5日晚间，海底捞集团发布公告称，将于2021年12月31日前逐步关停300家左右经营未达预期门店，其中部分门店（包括海外门店）将暂时休整、择机重开，休整周期最长不超过两年。海底捞称关停门店是公司2019年制定的快速扩张策略所导致的，具体有门店选址失误，让各级管理人员无法理解且疲于奔命的组织结构变革、优秀店经理数量不足、过度相信连住利益的KPI指标，以及企业文化建设的不足。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-109-1280x172-1.jpg)
+新加坡的战友们应该都知道，海底捞的老板张勇及家人2018年就来到了新加坡，而且获得了新加坡国籍，2019年至2020年张勇登上福布斯《新加坡50大富豪榜》榜首，成為新加坡首富。但是由于过去两年的中共病毒疫情影响，呼吸器和监护仪等器材需求大增，在深圳交易所挂牌的迈瑞医疗集团股价一年来上扬了19％，李西廷的财富增加52亿美元，今年一举拿下新加坡首富位置，而张勇和舒萍夫妇的财富从190亿美元减至160亿美元，掉到第四位。
 
+国内媒体借此机会唱衰张勇，还冷嘲热讽说他把海底捞搞成了外资公司，钱都被新加坡赚了，为了避税无所不用其极云云。小坡到觉得，张勇这样做一点错都没有，而且是民营企业家里面很聪明的，以他草根的出身，以及一路辛苦打拼得到今天的一切，相信他对中共的认识非常清楚，说不定也是我们的战友呢！
 
+总之，希望海底捞能够坚持住，用良心食材做健康火锅，疫情后一定会重放异彩！
 
-**纽约一家大型医疗保健系统解雇了1400名未接种疫苗的员工**
+**[新闻来源](https://mp.weixin.qq.com/s/LBP58NQqe67hK15twoLtVw)**
 
-员工分布在纽约市、韦斯特切斯特和长岛地区的大型医疗系统诺斯韦尔健康公司（Northwell Health）2021年10月5日发布声明表示，占该公司2%的 1400名员工因为拒绝接种COVID-19疫苗已被解雇，至此该公司下属所有23家医院的在职工作人员已经100%接种了疫苗。另外，因拒绝接种疫苗而被解雇的员工还无法享受退休计划等福利。
-
-
-
-**文字版原文：[中共病毒及其疫苗全球超限战中的典型案例（十四）](https://gnews.org/zh-hans/1640200/)**
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

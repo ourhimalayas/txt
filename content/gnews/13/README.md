@@ -2,14 +2,14 @@
 ---
 
 
-## 郭文贵
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1646156/)
+## 福临门
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1646188/)
 
 作者：文北
-![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_3497.jpg)
-《郭文贵》 
-立信义之决心，聚良善之生民。 
-以无畏之智勇，灭今日之暴秦。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_3494.jpg)
+《福临门》 
+正义联邦大门开，福满人间喜币来。 
+灭共事业承天命，爆料战友同发财！
 
 * * *
 

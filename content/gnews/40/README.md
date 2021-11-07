@@ -2,50 +2,30 @@
 ---
 
 
-## 洛杉矶市长中共病毒检测呈阳性，接种过两针疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645589/)
+## 如果杨改兰在日本，会有人这样为她呐喊！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1645757/)
 
-作者：洛杉矶盘古农场 – 滴水穿石
+#### 撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-30.png)（图片源自本文链接）
+11月7日京都新闻消息：日本京都府龟冈市，与全国和京都府的平均水平相比，国家福利使用者的数量急剧下降，一个公民团体在10月份举行会议，讨论了该市的福利管理问题。
 
+律师和研究人员在会上发言，指出了家庭，特别是在单亲母亲家庭，儿童人口数大幅减少问题。 现已成立调查小组，通过采访相关人员来调查情况，并要求市和县政府进行改进。会上，调查组联合主席、全国福利问题委员会秘书、律师大藤博义例举了过去北九州市因 “隔离措施 ”压制福利申请数量而导致的饿死和自杀案例。还用数据说明了该市对福利管理的不寻常——与当时其它城市相比，使用福利的单亲母亲家庭非常少等问题。
 
+他还举例指出，根据《宪法》第25条，福利制度是公民应该享有的无差别平等权利，但国会议员和媒体对该制度的抨击使人们在现实中难以享用。根据该制度，可以口头申请，福利局无权不接受申请。如果当事人同意，政府没有理由拒绝其协助者陪同咨询或申请。由于中共病毒蔓延，政府目前正在放宽对该系统的使用要求。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+小组共同主席、花园大学吉永纯教授批评说，领取母亲和儿童福利的家庭数量减少，势必会影响到儿童的健康成长，这与儿童贫困有关。
 
+龟冈市政府的核心受到质疑，该活动由公民思考贫困和福利问题协会组织发起，约有70人参加。
 
+看到这样的报道，想起了我的同胞杨改兰。如果她能听到这样的消息，该会是怎样的感受？如果杨改兰生活在日本，她有必要杀了自己的孩子，自己也自杀吗？是邪恶中共活活逼死了她！中共一日不灭，就还会再出现不知多少个杨改兰！
 
-周四 （11月4日）， 正在苏格兰在参加联合国气候变化会议的洛杉矶市长埃里克·加塞蒂，做中共病毒检测呈阳性。
+信息来源：
 
-50 岁的加塞蒂市长在 今年1 月被医务人员建议接种了第一剂Moderna 疫苗。市长发言人称，他在 2 月份接受了第二剂注射。
+[市の生活保護利用、母子世帯で大幅減　「削減の標的」市民団体が調査へ　京都・亀岡](https://news.yahoo.co.jp/articles/f15ec8130788ef99f3262565f9b6a4b8903a0901)
 
-有专家分析称，强制推行全民中共病毒疫苗接种与政客、医药集团间的暗中勾兑有关。而勾兑的政客必会为其邪恶行为付出代价。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-25.jpg)
-参考链接：
-1. [‘This could be my room for a few days’: Garcetti tests positive, isolates in Scotland](https://www.latimes.com/california/story/2021-11-03/l-a-mayor-eric-garcetti-tests-positive-for-covid-19)
-2. [Garcetti reports some fever and head cold symptoms following covid-19 diagnosis](https://www.latimes.com/california/story/2021-11-04/garcetti-reports-some-fever-and-head-cold-symptoms-following-covid-19-diagnosis)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

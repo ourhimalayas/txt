@@ -2,49 +2,24 @@
 ---
 
 
-## 彭佩奥盖特发文呼吁抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645605/)
+## 零对冲：美国供应链只会变得更糟
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1645764/)
 
-作者：英国喜庄园 – I770775
+#### 撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-27.jpg)[图片来源](https://alt-market.us/heres-why-u-s-supply-chain-problems-will-only-get-worse/)
+当地时间11月5日晚，零对冲转载Brandon Smith文章，认为政府越想控制事情，事情就越糟。当前，美国由货币超发引发的通货膨胀和美元贬值，以及强制疫苗政策引发的港口工人短缺和卡车司机短缺等劳工缺乏问题，将严重威胁美国供应链的安全。
 
+文章提出，欲解决供应链问题，不能从强制行政和滥发货币着手，相应的办法有四，一是，结束中共病毒；二是，在美国本土鼓励制造业；三是，结束美联储；四是，让美国回归金本位。
 
+这篇文章展示出一种反社会主义、反福利经济的倾向。一个世纪以来，自由资本主义所倡导的自由市场被福利经济所倡导的政府大规模干预市场所压制，以至于民间习惯于高税收和高福利，政府权力也越来越大。直至今日，政府已在强制疫苗和滥发货币等方面鲜受制约，这不仅会引发供应链断裂，或还会引起权力重新分配，文中有言，“最终，完全分权才是政府强加混乱难题的答案”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+信息来源：
 
+[这就是美国供应链问题只会变得更糟的原因](https://www.zerohedge.com/economics/heres-why-us-supply-chain-problems-will-only-get-worse)
 
-
-11月4日中午，美国前国务卿彭佩奥在盖特发文，呼吁国际社会坚决抵制北京冬奥会的召开。
-
-彭佩奥说，离北京冬奥会的开幕还有整整三个月，国际社会应该联合起来进行抵制，时间还来得及。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.2.jpg)
-彭佩奥指责国际奥委会的不作为。认为国际奥委会因为接受了中国共产党的腐化，对中共犯下的种族灭绝暴行，选择视而不见。
-
-这是彭佩奥在24小时里连发的第二条关于中共的盖文，在前一条里，彭佩奥称，“中共不是美国的竞争对手，而是敌人。”
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-1.jpg)
-参考链接：
-彭佩奥盖特： [Exactly 3 months until the Beijing Olympics are scheduled to start. The IOC has made it clear it has been corrupted by Communist Party money & is willing to turn a blind eye to the human rights atrocities committed by the CCP (including genocide).](https://gettr.com/post/pg2elgd999)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
 
 
  

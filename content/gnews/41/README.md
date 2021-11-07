@@ -2,8 +2,8 @@
 ---
 
 
-## 1200万元存款不翼而飞，储户被判担责八成
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645582/)
+## 彭佩奥盖特发文呼吁抵制北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645605/)
 
 作者：英国喜庄园 – I770775
 
@@ -13,17 +13,16 @@
 
 
 
-连日来，一则“1200万存款被银行转走，储户被判担责八成”的新闻登上墙内网络热搜，引发力网友关注。
+11月4日中午，美国前国务卿彭佩奥在盖特发文，呼吁国际社会坚决抵制北京冬奥会的召开。
 
-据了解，当事人丁女士，做了一辈子生意，把辛辛苦苦攒下来的1200万元存入山西清徐农村商业银行。后来其存单和身份证被银行职员王某骗取，成功转走她的1200万元存款。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-46.jpg)
-今年9月，山西省清徐县法院对丁女士的起诉作出判决，认定银行只承担20%的责任，其余80%的责任由储户承担。
+彭佩奥说，离北京冬奥会的开幕还有整整三个月，国际社会应该联合起来进行抵制，时间还来得及。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.2.jpg)
+彭佩奥指责国际奥委会的不作为。认为国际奥委会因为接受了中国共产党的腐化，对中共犯下的种族灭绝暴行，选择视而不见。
 
-11月4日，丁女士的儿子，以“正义迟早会来92”的网名在社交平台发文，表示当事人对法院的这一判决严重不服。有律师对此事发文评论：显然，银行应该承担主要责任。
-
+这是彭佩奥在24小时里连发的第二条关于中共的盖文，在前一条里，彭佩奥称，“中共不是美国的竞争对手，而是敌人。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-1.jpg)
 参考链接：
-1. [1200万存款被银行职员私自转走，储户被判担责八成，律师：银行应承担主要责任](https://finance.sina.com.cn/jjxw/2021-11-06/doc-iktzqtyu5749586.shtml)
-2. [银行职员转走1200万存款 储户担责八成？当事人回应](https://news.ifeng.com/c/8AvX55VNv4r)
+彭佩奥盖特： [Exactly 3 months until the Beijing Olympics are scheduled to start. The IOC has made it clear it has been corrupted by Communist Party money & is willing to turn a blind eye to the human rights atrocities committed by the CCP (including genocide).](https://gettr.com/post/pg2elgd999)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 

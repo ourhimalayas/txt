@@ -2,61 +2,62 @@
 ---
 
 
-## 11/03班农专访Q6: 世界精英领袖会议主题是超人类主义
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1645969/)
+## 医生说10年内无法完全了解 COVID 疫苗的副作用
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1646056/)
 
-**简评：**
+**编译：JennyBall**
 
-梵蒂冈举行的为期三天的世界精英领袖会议主题是超人类主义，这也是2025 中共制造计划的主要目的—用人工智能和机器人取代人类。中共经济面临崩溃，科技公司和制造业正在撤出中共国，9万亿美元的房地产即将崩盘。21世纪的今天，拥有世界上最悠久文明的中国人民处在饥寒交迫、食物和能源短缺的生活状态。而中共国却要花费数百亿美元举办冬奥会展示中共政党的所谓的伟大。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip151.png)
 
-西方精英阶层一直跪舔中共，与中共狼狈为奸，通过奴隶化中国人民赚钱更多的财富。新中国联邦的郭文贵先生不断向西方发出警告，唤醒对中共的邪恶毫不知情的民众。美国各州共和党选举的胜利表明西方的反共力量在美国老百姓的带领下获得了巨大的政治胜利。
+在 [CHD.TV](https://live.childrenshealthdefense.org/) 的最新一集“逆风”中，保罗·托马斯（Paul Thomas）博士采访了两名医疗专业人士，他们讨论了他们如何不顾医院和美国食品和药物管理局 (FDA) 的规定来治疗 COVID 患者。
 
-[GTV视频链接](https://gtv.org/video/id=618771d5adfd99590c33f972)
+在CHD.TV 与主持人保罗·博士合作的最新两集“逆风”，保罗介绍了两名医疗专业人员，他们成功治疗了 COVID 患者，没有任何死亡。
 
+嘉宾们——在免疫学和介入内分泌学方面接受过高级医学培训的眼科医生吉姆·米汉（[Dr. Jim Meehan](https://www.meehanmd.com/about)）博士和米勒家庭儿科（[Miller Family Pediatrics](https://www.millerpeds.com/)）的医师助理斯科特·米勒（[Scott Miller](https://www.millerpeds.com/scottmiller) ）——重点讨论了这个问题：医疗专业人士如何克服被谴责的恐惧，用主流媒体打压的治疗方法，拯救患者免于死亡。
 
+托马斯描述，在最近一次上班的路上，他如何经过一群戴着口罩并“与社会保持距离”6英尺的年轻学童。作为父亲和儿科医生，“感觉太不对劲了，”他说。
 
+“看着其中一些孩子的眼睛，你看到无神的目光，”托马斯说。
 
+托马斯和米汉谈到了口罩、[COVID疫苗](https://childrenshealthdefense.org/defender_category/covid/)和[疫苗伤害](https://childrenshealthdefense.org/defender/vaers-cdc-deaths-injuries-covid-vaccines-fda-emergency-use-pfizer-kids/)。
 
-**视频字幕：**
+米汉分享了他为什么认为口罩无效、不必要和有害的循证科学分析。米汗还讨论了他使用医院未提供的，可用的[疗法](https://childrenshealthdefense.org/defender/rfk-jr-podcast-dr-ryan-cole-pathologist-early-treatment-keydelta-variant/)治疗患者的经验，以及关于 COVID 治疗的社交媒体帖子是如何被禁止的。
 
-**英喜主持人Olivia：**2021年10月21至23日，梵蒂冈进行了世界精英领袖会议。你在战斗室提到了这个会议，能否给我们的观众讲讲它将如何影响全球政府的政策？谢谢
+在米汗医生治疗的大约 4,000 名 COVID 患者中，没有人死亡。米汉说，他的病人很早就来找他治疗。在医院里，他成功治疗了 20 多名未通过医院 COVID 协议的患者，其中包括一名服用了两轮[瑞德西韦](https://childrenshealthdefense.org/defender/remdesivir-fda-approval-who-ineffective-covid/)的 66 岁男子。
 
-**班农先生：**Olivia我随后会说这个问题。
+米汗医生说，在 COVID 疫苗推出后不久，他开始意识到疫苗的[不良反应](https://childrenshealthdefense.org/defender/vaers-cdc-deaths-injuries-covid-vaccines-fda-emergency-use-pfizer-kids/)，包括流产、血管炎、炎症和 [血凝块形成](https://childrenshealthdefense.org/defender/jessica-berg-wilson-dies-covid-vaccine-twitter-censors-obituary/)。
 
-首先我想强调的是为什么科技公司还有制造业正在撤出中国。不只是影子银行的债务危机，9万亿美金的房地产崩盘。这完全是王岐山和中共的杰作。不关中国人的事，中国百姓有全世界最高的储蓄率，他们把一半赚到的辛苦钱存起来，因为中国没有社保。然而这成为了中共地缘政治的优势，老百姓的存款被中共挥霍了。他们基本上就是偷走了老百姓的存款。
+托马斯在他的儿科实践中看到了一例接种疫苗后的[心肌炎病例](https://ca.childrenshealthdefense.org/home-page/risks-of-myocarditis-are-covid-vaccines-in-our-childrens-best-interest/)。
 
-现在因为中共的无能，对治理国家经济的无能。他们的无能不仅造成了影子银行和金融体系的危机，也造成了老百姓粮食和能源的危机，还有即将到来的困苦寒冬。同时，中共还要在冬季奥运会上耗费数百亿美元，向世界展示自己的伟大。不是中国人的伟大，而是中共自己的意志。这时候世界精英们依旧舔腚中共，但中国百姓却要在冬天饥寒交迫。
+米汉说：
 
-21世纪最古老，给人类发展做出最多贡献的文明，一个上万年历史，与埃及波斯一样悠久的文明，.为什么21世纪的我们已经在讨论高端芯片、机器人这样听上去像科幻，但却已经是现实的事物，然而中国百姓还在发愁冬天缺乏能源和食物？之所以有这种情况，就是因为中共犯罪集团在治理国家，把一切据为己有，毫不在乎中国百姓。这样的状况太荒诞了。
+“这可能是你，这可能是你的孩子，你的女儿，这可能是你的父亲……这些是[实验性](https://www.fda.gov/drugs/types-applications/investigational-new-drug-ind-application#Introduction)疫苗。我们还需要十年时间才能知道不良反应的严重程度。我们还需要数年时间才能确定我们可能会因[抗体依赖性增强](https://childrenshealthdefense.org/defender/potential-covid-vaccine-related-ticking-time-bomb/)而失去 10% 的人口”。
 
-中国是世界上最伟大的文明，这是事实。我所生活的西方文明要年轻上千年，甚至波斯印度和埃及也要比中国年轻。然而在21世紀，中国百姓却要忍饥挨冻。
+**在****米汗医生****开始看到**** COVID ****疫苗受伤的年轻和大学年龄患者后，他在他的网站上添加了紧急声明**。后来，他因发布关于[刺突蛋白](https://childrenshealthdefense.org/defender/moderna-pfizer-vaccines-blood-clots-inflammation-brain-heart/)的危险性，以及动物研究表明：这些蛋白如何穿过血脑屏障，并导致神经系统伤害，从而被禁止进入社交媒体。
 
-为什么会这样？为什么世界允许这样？号称每一个人都是按照上帝的样子创造的，受着圣灵的庇护。我们为什么能容忍中国人的遭遇？原因就是中共体系是围绕奴役中国人而建的，世界精英就是这样赚钱的。他们与中共犯罪集团做生意，中共让他们赚更多钱、更富有。他们住的更好，衣食豪奢，因为他们不在乎。不在乎西方老百姓，更不在乎中国百姓，他们毫无人性。他们认为中国百姓就是奴隶，可以被机器人取代，这就是那个会议的主题，超人类主义。
+米汉说，他对 COVID 疫苗接种的安全警告全面适用，尤其是孕妇、儿童和青少年。
 
-要知道中共重视的，看看2025中共制造计划，排名前6的工业就是超人类主义的驱动力量。超人类主义的目的就是用人工智能和机器人取代人类。这就是为什么中共只有9000万党员，你认为他们会在意中国百姓被机器人取代吗？他们会毫不在意。
+“**我们不能为儿童接种疫苗，统计证明他们死于 COVID-19 的机会为零**，”他说，并分享了约翰斯·霍普金斯大学最近的一项分析数据，该分析发现25 岁以下儿童中，有 330 多例 COVID 死亡，数据表明大多数 或者几乎所有的孩子似乎都患有危及生命的既往疾病。
 
-文贵教给我们最重要的一个道理就是，中共和精英统治阶层一直在与中国百姓作战。他们计划的一部分就是弱民、饥民、愚民，把老百姓压在死亡线上，不让他们有多余的精力，不让他们获取信息，不让他们学习。
+米勒使用了 FDA 批准的疗法，但这些疗法未被 FDA 批准用于治疗 COVID，这导致他失去了医疗执照。
 
-这就是他们的计划，也就是我们今天的境况。这很荒谬，毫无道理。不用说人道，很明显这里没有人道，明显是非人的。明显违反所有西方的宗教概念，还有印度埃及波斯犹太教所有宗教。明显是不道德的，更重要的是不符合逻辑。因为这样的行为搞垮了整个世界，全世界被一个跨国犯罪集团掌控。然而西方精英还在继续舔腚中共。“你们污染了那么多空气、水、大地，求求你们致力于气候变化吧”。
+米勒在他的实践中对待儿童和成人一样。 他的儿科患者没有一个死于 COVID 或住院。
 
-不过我们知道，你每天都在毒害中国人。所以他们的生命不能更长久，生活条件不能更好。但中共却让这些西方软弱领导人颜面扫地，这就是我们今天的处境。这就是为什么在过去48-72小时，西方的反共力量在美国老百姓带领下获得了巨大的政治胜利。这就是为什么过去的48小时是至关重要的。
-![](https://assets.gnews.org/wp-content/uploads/2021/10/班农专访.jpg)
-编辑：【英国伦敦喜庄园编辑部】
+米勒讨论了迫使他反对该系统,并倡导适用于 COVID 的行之有效的治疗方法的研究和道德义务。他说：“当有这么多人需要这些信息时，我觉得逐一告诉人们是徒劳的，所以我才开始公开谈论它。”
 
-*视频字幕：雨中漫步 | 听写：云岭 | 翻译：Wade | 校对： Roberts | 简评/文字整理/编辑：胖丁 | Page：Daoiii*
+**评论：这么不可思议，米勒医生使用的疗法治愈病人，****FDA****却吊销了他的医疗执照。还要比这更荒唐的事情吗！政府没有行医执照，却有权强制人们接种****10****年后才能够彻底看到不良反应的试验药品！**
 
+**快清醒啊还在被无良“科学家”欺骗的人们！**
 
+**新闻来源**：[childrenshealthdefense.org] [Full Extent of COVID Vaccine Reactions Won’t Be Known for at Least 10 Years, Physician Says](https://childrenshealthdefense.org/defender/chd-tv-against-wind-paul-thomas-jim-meehan-scott-miller-fda-covid/)
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
 
 
 

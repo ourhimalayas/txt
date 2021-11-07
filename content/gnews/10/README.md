@@ -2,20 +2,27 @@
 ---
 
 
-## 中共国情报员在美国被判间谍罪
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1646165/)
+## 江城子 失学
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1646198/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11061-bbc.jpg)图片来自BBC
-英国《金融时报》报道称：一名中共国情报员在美国因窃取通用电气公司的机密而被判有罪。来自江苏省的许艳军在比利时于2018年被捕后受到五项罪名指控，因为他试图窃取由GE独家制造的飞机发动机特别冷却系统的秘密。
+作者：文北
+![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_3492.jpg)
+《江城子 失学》 
+何处归途遇来路，细回顾，多感触。 
+几双赤足，被红尘缚住， 一国百姓两样人，有贫苦，有巨富。 
+满朝文武如泥塑，为权腐，为利碌。 愁眉紧蹙，也于事无补。 
+两千年后闭国门，商鞅术，奴万物…
 
-美国联邦调查局反情报部门副主任艾伦·科勒说  ：“对于那些仍然怀疑中共国真实意图的人来说，这一定是一个警钟，中共国想要窃取美国的机密，以造福他们自己的国防和工业”。
+* * *
 
-英国金融报纸强调：这标志着美国的一个巨大胜利。美国安全机构长期以来一直对中共国企图接管美国先进技术，特别是在人工智能和量子领域的企图发出警告。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-原文链接：[https://www.repubblica.it/esteri/2021/11/06/news/intelligence\_cina\_general\_electric\_segreti\_spionaggio\_industriale\_usa-325310902/](https://www.repubblica.it/esteri/2021/11/06/news/intelligence_cina_general_electric_segreti_spionaggio_industriale_usa-325310902/)
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
