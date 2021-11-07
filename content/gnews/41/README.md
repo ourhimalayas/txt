@@ -2,36 +2,49 @@
 ---
 
 
-## 美国学校试图推行儿童疫苗接种，专业医生极力反对
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1644292/)
+## 中共病毒疫苗诱发的心肌炎比自然感染严重100倍
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1644308/)
 
-作者：MOS – 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月5日，美国媒体报道称，11月3日起，美国各大医疗机构和药房将推行5至11岁儿童用新冠疫苗。据悉，部分地区已为此推出各类所谓的“激励措施”，试图推广儿童用新冠疫苗。
+**撰稿：日本东京方舟农场  北极**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-4.jpeg)
+“秘密翻译组”11月4日发布在GNEWS上的一段视频揭示，接种中共病毒疫苗所诱发的心肌炎，其严重程度超过自然感染中共病毒所引发心肌炎的10-100倍。
 
-但据盖特消息报道，戴维-威斯曼医生极力反对向儿童注射新冠疫苗的政策。他表示，新冠疫苗对于儿童来说是非常不安全的。威斯曼医生指出，FDA以及CDC收到的儿童疫苗支持证据仅基于辉瑞公司的少数研究结果，但这些研究有些并没有使用经过验证的资源，还有些研究结果没有得到足够的数据检验。另外，疫苗公司更改了儿童用新冠疫苗的配方，但这一配方甚至没有经过动物测试，就直接被投入了使用。
+在该视频中，来自德克萨斯州的彼得·麦卡洛（Peter McCullough）博士指出，感染中共病毒所导致的心肌炎，症状轻微，不会导致严重后果，仅会在血液化验中观察到肌钙蛋白升高。
 
-威斯曼医生提到，已经有相关人士爆料了疫苗制造公司包括数据造假在内的各类不当操作行为，在此基础上，FDA对儿童用新冠疫苗的授权是非常不负责任的做法。
+麦卡洛博士进一步指出，接种中共病毒疫苗所诱发的心肌炎，症状严重。因为疫苗中的脂质纳米颗粒直接进入心脏，引发剧烈的心电图变化、胸痛和早期心力衰竭，而血液中肌钙蛋白浓度超过病毒感染所导致心肌炎的10-100倍。
 
-参考链接：
-1）[Schools to Distribute Covid-19 Shots, Incentives to Vaccinate Children](https://www.wsj.com/articles/schools-to-distribute-covid-19-vaccines-incentives-to-kids-11636113601)
-2）[https://gettr.com/post/pg3kkm1567](https://gettr.com/post/pg3kkm1567)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-26.png)图片来自网络
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+麦卡洛博士进一步解释说，前期临床研究表明，接种疫苗后，疫苗并未局限在注射部位，而是进入血液，随循环分布全身各个系统。当疫苗中的脂质纳米颗粒到达心脏时，心脏就会表现出因刺突蛋白而产生的反应，从而引起自身免疫系统对心脏展开攻击。
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：谐趣园
+肌钙蛋白是一种针对表征心肌炎引发的心脏损伤的血液检测。根据“实验在线网站”（lab tests online）信息，肌钙蛋白存在于心肌内。当心肌细胞损伤时，肌钙蛋白就会被释放到血循环中。正常情况下，血液中的肌钙蛋白含量非常少；如果发生大面积心肌损伤，血液中就会出现高浓度的肌钙蛋白。麦卡洛博士特别强调，因疫苗引发的心肌炎是一个大问题，比因感染中共病毒引发的心肌炎更严重、更突出，特别是发生在儿童身上，则是表现得尤其严重。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*参考链接：*
+
+[肌钙蛋白](https://labtestsonline.org.cn/tests/troponin)
+
+
+
+> [疫苗诱发的心肌炎比中共病毒引发的心肌炎要严重得多](https://gnews.org/zh-hans/1639362/)
+
+
+
+
+
+> [美国前线医生起诉书(3)：疫苗的风险超过它们的好处](https://gnews.org/zh-hans/1425988/)
+
+
+
+* * *
+
+
+```
+素材采编：北极
+编辑：青衣青青
+校对/发布：Ranting
+```
+
+
 
 
  

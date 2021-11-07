@@ -2,33 +2,28 @@
 ---
 
 
-## COVID-19 最新情报｜面对公卫威胁 美跨党派提案 台湾作为印太伙伴
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1645087/)
+## 美国联邦法院暂缓执行拜登违反宪法的私人雇主疫苗强制政策
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1645131/)
 
-**台灣寶島農場 疫情關注組 / 發佈時間｜7/11/2021**
+**整理：**Kari 
+**编辑：**李易通
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/联邦法院-1-e1636248415230.jpg)图片来自网络
 
 
-#### 美跨党派提案，美台合作抗新冠
+奥斯丁–今天（2021年11月6日），第五巡回上诉法院批准了德克萨斯公共政策基金会（TPPF）的紧急动议，以 “该疫苗强制政策存在严重的法律和宪法问题 “为由，暂停执行拜登政府的私人雇主疫苗强制授权。
 
-美共和党友台参议员卢比欧、科顿（Tom Cotton）及民主党议员寇提兹马斯托（Catherine Cortez-Masto）等人跨党派提案，在AIT设立美台传染病监控中心（U.S.-Taiwan Infectious Disease Monitoring Center），每年向国会提交研究和报告来决定中心的资金、人员需求，并与台湾疾病管制署（CDC）合作。
+TPPF（Texas Public Policy Foundation）代表德克萨斯州临时人员企业联盟提出动议，认为国会从未赋予职业安全与健康管理局试图结束大流行病的权力，也没有权力以这种方式监管那些不在州界以外经营的公司。
 
-据台湾媒体报导，法案主要目的在于交流双方政府在公卫威胁上的专业知识，进驻人员将包括至少3名美国卫生及公共服务部（HHS）的传染病专家，至少1名其他联邦部门成员，也可能聘雇台湾当地员工或台CDC人员。
+“TPPF总法律顾问罗伯特-亨内克（Robert Henneke）说：”第五巡回法庭迅速转向，暂停联邦政府的私人雇主疫苗强制政策，表明它存在深刻而明显的宪法问题。”这应该向白宫发出一个信息，这项疫苗强制政策不仅是考虑不周，而且是违反宪法的。
 
-#### 美共和党友台参议员马可．卢比欧（Marco Rubio）
+***发布：***Candy
 
-卢比欧对台湾给予长期关注、支持，2021年9月台湾与立陶宛互设代表处引起中共挞伐，他强调“中国共产党不代表台湾，没有权利支配世上其他国家如何称呼，或如何与台湾人民来往。”
-
-卢比欧在本次跨党派提案声明：“对于犯下种族灭绝的中国共产党政权来说，封锁新冠疫情消息，导致毁灭性后果在全球爆发的行径并不让人吃惊，我们在印太地区需要一个可靠且公开透明的伙伴，能够提供我们精确的讯息来防止、减缓未来可能面临的公卫危机，台北相较于全球具有先进的公卫体系，也是一个值得信赖的民主盟友和珍贵朋友。”
-
-此外，卢比欧早在2018年5月便针对中共的窃取美国科技、威胁美国国家安全等，推动以保护国家安全为目的之“美中公平贸易执行法”（Fair Trade with China Enforcement Act），禁止美中两国交易“敏感科技”之法源，同时，更提高课征跨国公司来自中国的所得税，借以钳制中国窃取美国智慧财产。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-5.jpg)
-* * *
-
-新闻来源｜[自由时报](https://news.ltn.com.tw/news/politics/breakingnews/3727870)、[美参议员卢比欧推动禁止与中国交易敏感科技之法案-资策会](https://stli.iii.org.tw/article-detail.aspx?no=64&amp;tp=0&amp;i=72&amp;d=8038)
-撰稿｜zhong
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,54 +2,36 @@
 ---
 
 
-## 比尔盖茨希望美英投资“细菌游戏”来应对天花恐怖袭击
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1645039/)
+## 20211106文贵先生盖特精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1645088/)
 
-**评论：最为一名非流行病专家，比尔盖茨对“天花恐怖袭击”的警告令人震惊。我们不禁要思考一下在这场新冠病毒的袭击中比尔盖茨扮演了什么角色？他又据何断言或预测“天花恐怖袭击”？这是不是某些暗黑力量正在筹划的下一次灭绝人类的计划？**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/110605.png)[盖特直播链接](https://gettr.com/post/pg8h58eb5f)
+刚才接到喜联储律师的电话，说现在有太多的中国人想注册喜联储，每天我们要处理的量非常大，所以说现在还有很多人都没有进来。大家请一定记住，当你想加入到喜联储来买喜美元和喜币，首先要做好KYC，才能开得了喜美元账号，这个程序先后要明白。上网搜索‘Himalaya Exchange’, 然后回答好25个KYC问题，都是标准问题。最主要的问题：资产证明、资金来源、身份信息，可以先打印出来，把每个问题先看好再填，不要来回重复，也把该准备好的证明都准备好了，尽量把25个问题做好做准确了争取一次通过。英语不好没关系，因为也有中文的系统，对照着看，最好中英两份都填好了一起发过去。
 
-**据《雅虎新闻》记者Luke O’Reilly，2021年11月4日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/axfqo-mb611-2.jpg)**（PA Wire)**
-比尔·盖茨警告说，各国政府必须提供数十亿美元的研发资金，为未来的流行病和天花恐怖袭击做好准备。
+请大家抓紧时间，以现在这个价格是最后的机会，赶紧加入，不然成本太高。我希望有更多真正的战友和懂喜联储的同胞们赶紧加入；如果真不行，请专业人士帮你完成KYC。
 
-盖茨在与英国卫生特别委员会主席杰里米·亨特(Jeremy Hunt)进行“政策交流”采访时，提出了这一警告。
+现在网上出现了一个“喜马拉雅交易所”的另外一个相同的网站，那个是真的，为了测试功能和公开一些测试的信息，这是必须要有的。可是被共产党给攻击了，网站上很多说明信息出纰漏了或被删减，例如“这里是喜马拉雅官方的测试网站，属于喜马拉雅交易所，你点击哪里可以进入真正的运行交易网站……” 缺乏了信息就给人带来了困惑，但很快这个问题会被解决。
 
-盖茨还呼吁成立一个新的世界卫生组织流行病特别工作组，其每年可能要花费10亿美元。
+喜美元很快将推出有息存款的业务，利息在5%—7%上下，分活期和长期两项，喜支付（Hpay）大概会在12月底以前一定会上线，以及代理规则也会发出公告。
 
-他说，虽然这项研究可能很昂贵，但它也可能带来其他创新，比如根除流感和普通感冒。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-04-153453.png)**（PA Wire)**
-他说，像美国和英国这样的国家必须花费“数百亿”来资助这项研究。
+大家最关心的提现功能，很快喜联储会公布提现的具体事宜。现在要等待律师最后的批准，而且都要经过政府、法律合规的检查和批准。新加入的战友注册喜马拉雅交易所要准备好KYC！
 
-他说：“我希望在五年内，我可以写一本书，名为《我们已经准备好应对下一场流行病》，但这将需要数百亿的研发资金，美国和英国将参与其中。”
+***听写**：阿甘*
 
-“世界卫生组织级别的大流行特别工作组每年可能需要10亿美元，他们在进行监测，实际上也在进行我所说的‘细菌游戏’。”
+***校对: **小雨*
 
-盖茨表示，“细菌游戏”可能包括为生物恐怖主义行为做准备，比如针对机场的天花袭击。
+* * *
 
-“你会说，好吧，如果一个生物恐怖分子把天花带到10个机场怎么办？你知道，世界会作何反应？自然导致的流行病和生物恐怖主义导致的流行病甚至可能比我们今天经历的更糟糕。”
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-尽管发出了可怕的警告，这位世界第四大富豪在接受采访时也表现出乐观的态度，他预计，增加预防流行病的资金将带来“难以置信的有益的”医疗创新。
 
-“好消息是我们需要做大量的研发工作来为下一次大流行做好准备，比如制造便宜的疫苗、建立大型工厂、根除流感、消除普通感冒、将疫苗制成一小块贴在手臂上的贴片，放在你的胳膊上，即使在没有大流行的年份，这些东西也会非常有益。”他说。
+编辑：【英国伦敦喜庄园编辑部】
 
-他补充说，作为慈善家工作的一部分，他将继续谈论防范大流行的问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-他说：“因此，除了气候信息和正在进行的抗击穷人疾病的斗争，流行病防范是我将经常谈论的事情。
 
-“我认为它会找到肥沃的土壤，因为，你知道，我们损失了数万亿美元和数百万人的生命。公民希望政府不要让这种事情再次发生。”
-
-**原文连接：**[https://uk.news.yahoo.com/bill-gates-warns-smallpox-terror-000100099.html?soc\_src=social-sh&soc\_trk=tw&tsrc=twtr&guccounter=1&guce\_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce\_referrer\_sig=AQAAAHF5lh-t\_18\_ctKi9Mk8tNpBE5\_D20g81fut\_8hsr4IVQfyACw7\_IzaHxwZrUz1Qmeg\_xInZFflJR\_pe1ut3VkjgG9ahPu6\_glLwE1GABl75enZ2\_94WywixXz4gsZ5pervSWPVRNrtYD9B4Cym5x53bxQ7YjE9VTDshY5f64LJ5](https://uk.news.yahoo.com/bill-gates-warns-smallpox-terror-000100099.html?soc_src=social-sh&amp;soc_trk=tw&amp;tsrc=twtr&amp;guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAHF5lh-t_18_ctKi9Mk8tNpBE5_D20g81fut_8hsr4IVQfyACw7_IzaHxwZrUz1Qmeg_xInZFflJR_pe1ut3VkjgG9ahPu6_glLwE1GABl75enZ2_94WywixXz4gsZ5pervSWPVRNrtYD9B4Cym5x53bxQ7YjE9VTDshY5f64LJ5)
-
-**(本文评论仅代表个人观点）**
-
-翻译：洛杉矶盘古农场–钢蛋儿
-校对：洛杉矶盘古农场–Mike Li
-评论：洛杉矶盘古农场–钢蛋儿
-编辑：洛杉矶盘古农场–心照
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

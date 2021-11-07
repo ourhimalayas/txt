@@ -2,170 +2,58 @@
 ---
 
 
-## 财富是多人属性的 它可以创造权力 可以让权力干正事
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1644983/)
+## 巴克迪教授：威胁生命的伤害&#8211;所有接种疫苗者的凝血功能受损
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1645010/)
 
-[https://gtv.org/video/id=6186810dadfd99590c33be81](https://gtv.org/video/id=6186810dadfd99590c33be81)
+翻译：七叶之芒
 
-**郭文贵**
-**Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/r24_bhakdi.jpg)图片：照片蒙太奇 Report24；背景图片 freepik @agartist
 
-没有财富自由的家庭
-A family without wealth and freedom
+在5月27日于汉堡举行的“只是有点刺痛–新的Covid-19疫苗有什么风险”研讨会上，世界知名的流行病学家苏查里特·巴克迪教授做出了一个令人震惊的启示。根据他的最新发现，绝对所有接种mRNA疫苗的人都会出现凝血功能障碍。问题是可能导致潜在的致命性血栓形成。
 
-和谐、快乐、健康、 有尊严几乎都无从谈起
-it’s almost impossible that know where to begin talking about harmony, happiness, health, and dignity
+巴克迪教授在研讨会上发言时，报告了一位医学同事的电话。他检查了他诊所里所有的人在接种mRNA疫苗之前和之后的血液。在超过30%的接种者中，即60人中的20人，血液凝固被激活（起源：“开启”）。根据巴克迪教授的说法，血液凝固的激活基本上意味着有生命危险的伤害。或者用其他历史悠久的话来说“血液在静脉中凝结”。
 
-财富属性最后都是社会的
-Wealth attribute is all belong to society in the end
+**疫苗接种必须停止。有可能是致命的副作用**
 
-这一句话就是，所有的钱都是归社会的
-It means all money belongs to society
+根据巴克迪教授的说法，施用一种能激活体内血液凝固的物质将是极其危险的。该过程必须立即停止。目前，来自巴伐利亚的第二位专家已经证实了这一结果–他确认所有接种者的血液凝固被100%激活了。巴克迪周围的研究小组总共与不同国家的50名不同医生进行了相应的检查。为此，我们制定了一个精确的研究设计。医生的结果目前正在核实中，并将很快公布。
 
-但是这个财富属性的创造者和享用者
-But the creator and beneficiary of this wealth attribute
+**任何人都可以用很少的费用为自己核实索赔**
 
-就是社会上最高级统治者
-is the superlative ruler
+科学家们的发现可以在任何家庭医生的办公室得到验证。巴克迪邀请所有接种疫苗的人在接种前一周和接种后一周做一次血细胞计数。“D-dimers”的价值有待确定。据巴克迪说，如果你自己付钱，每次的分析费用约为10欧元。该教授假设，如果怀疑属实，所有迄今已接种疫苗的人将有权获得赔偿。
 
-这你就明白了钱到底咋回事儿
-Then you will understand what the money is really about
+巴克迪还有一个明确的、无比重要的信息：“从我们的孩子开始。把手拿开！”
 
-然后也告诉我们货币是怎么回事
-and then tell us what the currency is all about
+关于凝血功能障碍的提取物：
 
-金银怎么回事
-as well as with gold and silver
+（视频链接：[https://youtu.be/6UkpImKHus4](https://youtu.be/6UkpImKHus4)）
 
-这对我当时来讲，一个十几岁的孩子
-To me at the time, a teenager
+专题讨论会 “只是有点刺痛–新的Covid-19疫苗有什么风险 “的完整过程视频：
 
-这是很大的事，就你认清了钱到底姓啥
-that was a big deal because you recognized that who owns money at the end
+（视频链接：[https://tube.aerztefueraufklaerung.de/videos/watch/baaede3d-7e35-47cb-9d28-c6c2df410503](https://tube.aerztefueraufklaerung.de/videos/watch/baaede3d-7e35-47cb-9d28-c6c2df410503)）
 
-你再过3年5年
-3 years or 5 years later
+*如果您决定在接种疫苗前后做这种测定，请将结果告知我们：**[\[email protected\]](/cdn-cgi/l/email-protection)**。也欢迎你告诉我们你接种疫苗后的经历。我们对没有副作用的病例和有轻微和严重副作用的病例（包括死亡）同样感兴趣。*
 
-你看今天你所有对财富的理解
-look back to your understanding of all wealth today
+在所有接种疫苗的人中，静脉血凝块，血液凝结，血液凝结障碍，covid-19……
 
-你就觉得是个天大的耻辱和笑话
-you would feel that it’s the biggest joke and shame
+**简评：**
 
-第3个就是最重要的
-The 3rd one is the most important
+**随着时间的推移，接种疫苗对人体的危害已经逐渐显现。科学界也做出了相应的研究，良心的科学家们也开始了大声的“疾呼”。可能科学家们需要更多的时间去进行更细致的实验和研究。但是接种mRNA疫苗后能引起致命性血栓，似乎已经成为不争的事实。**
 
-当你有信仰和理想的时候，你会越来越明白
-When you have beliefs and goals, you will understand more and more of
+**全世界已经有38亿人注射了疫苗，随着时间的推移，这个结果是灾难性的。**
 
-这个世界很伟大、很丑陋的两个极端
-these two extremes in the world which are very and ugly
+**我们需要让更多的人知道，伊维菌素和青蒿素对疫苗接种者有“排毒”的作用。**
 
-都伟大立不了财富
-The wealth would not be created if everyone is great
+**我们需要大声疾呼：“从我们的孩子开始。把手拿开！”**
 
-丑陋是因为财富
-Ugliness is because of wealth
+参考资料：[report24.news][Prof. Bhakdi: Lebensgefährliche Verletzung – gestörte Blutgerinnung bei allen Geimpften](https://report24.news/prof-bhakdi-lebensgefaehrliche-verletzung-blutgerinnungsstoerung-bei-allen-geimpften/)
 
-当你把这个问题搞明白的时候
-When you understand these questions
+* * *
 
-你想做伟大吗
-Do you want to be virtuous?
+*审核：Aries的星*
+*校对：信心满满*
+*发布：信心的选择*
 
-你想做让你自己爱的人吗
-Would you want to be the one that you love?
-
-你想让别人发自内心的尊重你吗
-Would you like to have others respected you by heart?
-
-绝对你会知道，你要拥有干净的财富
-You will definitely understand that you have to have a transparent wealth
-
-财富会让你拥有自己的能力和证明的机会
-and wealth will let you have the ability to own yourself and the opportunity to veri-fy
-
-所以说
-That being said
-
-经过我做生意，搞酒店、房地产、金融
-after I did business, engaged in hotels, real estate, finance
-
-我所有的从清丰看守所出来以后（的经历）
-and all experiences that I had inside the Qingfeng Detention Center
-
-我发自内心地说，我一定要在财富上自由后
-I had said it from bottom of my heart that I must be free in wealth
-
-让家人都安全、孩子长大后
-kept family members safe, and after children grew up
-
-我灭共的事业才能开始
-and then I could start my career of eliminating the communism
-
-否则无从谈起
-Otherwise, there’s no way to talk about it
-
-但是财富这个东西，它也很有意思的
-But wealth is also very interesting
-
-财不是个单字，是一个贝一个才加个富成为财富
-(The Chinese character) of “wealth” is not an individual character. It’s formed by the radical of a shell and talent, and add a rich to become wealth
-
-财富是多人属性
-Wealth is multi-person attribute
-
-如果你一个人有钱那叫富有，它不叫财富
-One person has the money doesn’t mean you are wealthy. It’s called rich
-
-财富是多人属性下的
-Wealth is based on multi-person attribute
-
-当你把财富（跟）更多人分享的时候那你就是财富
-When you share your wealth with more people, then you are wealthy
-
-当我觉得新中国联邦人都拥有财富的时候
-When I feel that all people of the New Federal China have wealth
-
-那才叫真正的财富
-that is the real wealth
-
-财富可以创造权利
-Wealth creates power
-
-可以让权力干正事
-and allow the authority to do the right thing
-
-那么我们就要创造干净的财富去干干净的事
-Therefore, we must create a clean wealth and to do clean business
-
-这就是当初我想灭共之初
-This is the beginning of my desire to eliminate the communists
-
-这30年的准备, 时时刻刻想着
-This has been prepared for 30 years and kept in my mind all the time
-
-———————————————————
-
-**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1455865144043470857?s=24](https://twitter.com/se1y7cblljselva/status/1455865144043470857?s=24)
-
-Date: 11/03/2021
-原视频标题:财富是多人属性的 它可以创造权力 可以让权力干正事
-Wealth is a multi-person attribute. It can create power for somebody and allow them to do the right thing
-原视频日期：2021/11/01
-任务编号：KC225(2759)
-视频时间段 : 0:00-2:13
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
 
  
 

@@ -2,32 +2,55 @@
 ---
 
 
-## 不满未被点名“台独分子” 驻德代表谢志伟发文“抗议”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1644991/)
+## 比尔盖茨希望美英投资“细菌游戏”来应对天花恐怖袭击
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1645039/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-13.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fweb.popo8.com%2F202111%2F06%2F12%2F6e33f7e988type_png_size_785_188_end.jpg&amp;imgrefurl=https%3A%2F%2Fwww.6parknews.com%2Fnewspark%2Fview.php%3Fapp%3Dnews%26act%3Dview%26nid%3D515877&amp;tbnid=Xlb-BjEd3hVOWM&amp;vet=12ahUKEwjk14bg_4P0AhUHBN4KHSsSAB4QMygBegQIARAU..i&amp;docid=YQI780RhVuZJdM&amp;w=785&amp;h=417&amp;itg=1&amp;q=%E4%B8%8D%E6%BB%A1%E6%9C%AA%E8%A2%AB%E7%82%B9%E5%90%8D%E2%80%9C%E5%8F%B0%E7%8B%AC%E5%88%86%E5%AD%90%E2%80%9D%20%E9%A9%BB%E5%BE%B7%E4%BB%A3%E8%A1%A8%E8%B0%A2%E5%BF%97%E4%BC%9F%E5%8F%91%E6%96%87%E2%80%9C%E6%8A%97%E8%AE%AE%E2%80%9D&amp;hl=zh-CN&amp;ved=2ahUKEwjk14bg_4P0AhUHBN4KHSsSAB4QMygBegQIARAU)
-在两岸关系持续紧绷之际，中共首次明确了对支持台湾独立人士的惩罚，被点名的包括台湾外交部长吴钊燮、立法院长游锡堃和行政院长苏贞昌。
+**评论：最为一名非流行病专家，比尔盖茨对“天花恐怖袭击”的警告令人震惊。我们不禁要思考一下在这场新冠病毒的袭击中比尔盖茨扮演了什么角色？他又据何断言或预测“天花恐怖袭击”？这是不是某些暗黑力量正在筹划的下一次灭绝人类的计划？**
 
-中共国台办发言人朱凤莲周五表示：“一段时期以来，苏贞昌、游锡堃、吴钊燮三人与极少数台独顽固分子极力煽动两岸对立、恶意攻击诬蔑大陆、谋‘独’言行恶劣、勾连外部势力分裂国家，严重破坏两岸关系，严重危害台海和平稳定，严重损害两岸同胞共同利益和中华民族根本利益。”
+**据《雅虎新闻》记者Luke O’Reilly，2021年11月4日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/axfqo-mb611-2.jpg)**（PA Wire)**
+比尔·盖茨警告说，各国政府必须提供数十亿美元的研发资金，为未来的流行病和天花恐怖袭击做好准备。
 
-她还提到，大陆方面依法对清单在列的上述“台独”顽固分子实施惩戒，禁止其本人及家属进入大陆和香港、澳门特别行政区，限制其关联机构与大陆有关组织、个人进行合作，绝不允许其关联企业和金主在大陆谋利，以及采取其它必要的惩戒措施。朱凤莲是在被记者问及大陆方面是否正在针对“台独”分子的严惩措施时，做出了上述表述。这是中共国首次公开表示制定了此类名单。
+盖茨在与英国卫生特别委员会主席杰里米·亨特(Jeremy Hunt)进行“政策交流”采访时，提出了这一警告。
 
-对此，台湾陆委会周五晚间正告北京当局，台湾是民主法治社会，更非对岸管辖，不接受专制威权的恫吓威胁。陆委会还表示，台湾政府将针对中共对台恶意举措等事态发展，研议适时采取必要反制与防范措施，同时审慎检视两岸交流合作及其以政治干预企业经营的可能影响，研修相关应对法制规范，以确保国家安全及民众权益。
+盖茨还呼吁成立一个新的世界卫生组织流行病特别工作组，其每年可能要花费10亿美元。
 
-台湾外交部长吴钊燮周六在外交部推特账号上以英文发文写道：“在被中共列入黑名单并被终身追责后，我收到无数的祝贺。许多人因为没有得到承认而感到嫉妒；有些人问哪里可以申请。为了配得上这份难得的殊荣，我将继续为台湾自由民主奋战。”
+他说，虽然这项研究可能很昂贵，但它也可能带来其他创新，比如根除流感和普通感冒。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-04-153453.png)**（PA Wire)**
+他说，像美国和英国这样的国家必须花费“数百亿”来资助这项研究。
 
-台湾驻德代表谢志伟则在脸书发文道，他上网到处搜寻发现没有自己的名字：“我抗议！我向中共政权强烈抗议！你们怎么可以漏掉我的名字？！” 谢志伟写道：“我这么多年来未改初衷地捍卫台湾主权、自由、民主！我这么多年来痛批无良、无耻、没血、没泪的中共政权！同时，也没放过满手血腥的老K 。我力挺中国民运、西藏、香港、维吾尔、南蒙古等等。这些还不够吗？我有少吗？”
+他说：“我希望在五年内，我可以写一本书，名为《我们已经准备好应对下一场流行病》，但这将需要数百亿的研发资金，美国和英国将参与其中。”
 
-他讽刺表示，“你们怎么可以这样对待我？！仿佛我向来都是在骗人！如此损我名誉，毁我名节！人们将会如何地嘲笑我？！”谢志伟还在脸书上向中共国提出强烈抗议称：“立刻将我的名字补进‘台独顽固分子’名单！”值得一提的是，民进党籍的台湾总统蔡英文也没有被国台办点名为台独分子。
+“世界卫生组织级别的大流行特别工作组每年可能需要10亿美元，他们在进行监测，实际上也在进行我所说的‘细菌游戏’。”
 
-信息来源：
+盖茨表示，“细菌游戏”可能包括为生物恐怖主义行为做准备，比如针对机场的天花袭击。
 
-[不满未被点名“台独分子” 驻德代表谢志伟发文“抗议”](https://www.dw.com/zh/%E4%B8%8D%E6%BB%A1%E6%9C%AA%E8%A2%AB%E7%82%B9%E5%90%8D%E5%8F%B0%E7%8B%AC%E5%88%86%E5%AD%90-%E9%A9%BB%E5%BE%B7%E4%BB%A3%E8%A1%A8%E8%B0%A2%E5%BF%97%E4%BC%9F%E5%8F%91%E6%96%87%E6%8A%97%E8%AE%AE/a-59740329)
+“你会说，好吧，如果一个生物恐怖分子把天花带到10个机场怎么办？你知道，世界会作何反应？自然导致的流行病和生物恐怖主义导致的流行病甚至可能比我们今天经历的更糟糕。”
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+尽管发出了可怕的警告，这位世界第四大富豪在接受采访时也表现出乐观的态度，他预计，增加预防流行病的资金将带来“难以置信的有益的”医疗创新。
+
+“好消息是我们需要做大量的研发工作来为下一次大流行做好准备，比如制造便宜的疫苗、建立大型工厂、根除流感、消除普通感冒、将疫苗制成一小块贴在手臂上的贴片，放在你的胳膊上，即使在没有大流行的年份，这些东西也会非常有益。”他说。
+
+他补充说，作为慈善家工作的一部分，他将继续谈论防范大流行的问题。
+
+他说：“因此，除了气候信息和正在进行的抗击穷人疾病的斗争，流行病防范是我将经常谈论的事情。
+
+“我认为它会找到肥沃的土壤，因为，你知道，我们损失了数万亿美元和数百万人的生命。公民希望政府不要让这种事情再次发生。”
+
+**原文连接：**[https://uk.news.yahoo.com/bill-gates-warns-smallpox-terror-000100099.html?soc\_src=social-sh&soc\_trk=tw&tsrc=twtr&guccounter=1&guce\_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce\_referrer\_sig=AQAAAHF5lh-t\_18\_ctKi9Mk8tNpBE5\_D20g81fut\_8hsr4IVQfyACw7\_IzaHxwZrUz1Qmeg\_xInZFflJR\_pe1ut3VkjgG9ahPu6\_glLwE1GABl75enZ2\_94WywixXz4gsZ5pervSWPVRNrtYD9B4Cym5x53bxQ7YjE9VTDshY5f64LJ5](https://uk.news.yahoo.com/bill-gates-warns-smallpox-terror-000100099.html?soc_src=social-sh&amp;soc_trk=tw&amp;tsrc=twtr&amp;guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAHF5lh-t_18_ctKi9Mk8tNpBE5_D20g81fut_8hsr4IVQfyACw7_IzaHxwZrUz1Qmeg_xInZFflJR_pe1ut3VkjgG9ahPu6_glLwE1GABl75enZ2_94WywixXz4gsZ5pervSWPVRNrtYD9B4Cym5x53bxQ7YjE9VTDshY5f64LJ5)
+
+**(本文评论仅代表个人观点）**
+
+翻译：洛杉矶盘古农场–钢蛋儿
+校对：洛杉矶盘古农场–Mike Li
+评论：洛杉矶盘古农场–钢蛋儿
+编辑：洛杉矶盘古农场–心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
