@@ -2,28 +2,34 @@
 ---
 
 
-## 美国要加强台湾参与联合国
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1644035/)
+## “海底捞”将关停300家门店
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1644269/)
 
-新闻来源：德国法兰克福报网页版
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月5日，相关报道提及，海底捞在香港联交所发布公告表示，将于2021年底，逐步关停300家左右经营业绩不佳的门店。
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-5.jpeg)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/die-volksrepublik-china-sieht.jpg)
+消息称，截至2021年6月31日，海底捞全球门店总数约为1600家。但从财报的数据看，今年上半年，海底捞的营收业绩为200亿元，净利润仅0.97亿元，与2019年同期相比大幅下降，暴跌近90%。另有数据显示，截至目前，海底捞的股价年内已下跌70%，市值蒸发超过3500亿港元。
 
+有关评论表示，海底捞是中共统治下私营企业的缩影。在中共经济面临崩溃的当下，中共国内没有一个企业是安全的。
 
-图片来源： FAZ
+参考链接：[“火锅之王”扩张之殇：海底捞将关停1/5门店](https://m.sohu.com/a/499459254_100011510/?pvid=000115_3w_a)
 
-美国主张台湾进一步参与联合国。华盛顿这样做是在打开一个联合国高级官员回避的话题。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-有一个问题可能会让任何联合国高级官员感到尴尬：您对台湾的参与有何看法？去年，世界卫生组织总干事顾问加拿大人布鲁斯·艾尔沃德（Bruce Aylward）本应在接受采访时回答这个问题。起初他声称没有听到她的声音。然后他挂了。香港电视台RTHK坚持，再次致电艾尔沃德。对于另一个台湾问题，他回答说：“我们已经谈过中国了。”这一集显示了中国在联合国的影响力有多大。尤其是在台湾的参与方面，该国自 1971 年以来一直以不同的策略为之奋斗。
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：谐趣园
 
-上周，美国国务卿布林肯就台湾参与联合国系统问题发表声明。正式的场合是北京在 50 年前接管了中国的联合国总部，台北在此之前一直持有该总部。布林肯明确表示：台湾是一个“民主成功的故事”，体现了联合国在透明度、人权和法治方面的价值观。鉴于国际社会面临前所未有的复杂问题，需要各方的帮助。这不是一个政治问题，而是一个务实问题。
-
-原文链接：[https://www.faz.net/aktuell/politik/ausland/china-verbietet-taiwans-spitzenpolitikern-einreise-17620240.html](https://www.faz.net/aktuell/politik/ausland/china-verbietet-taiwans-spitzenpolitikern-einreise-17620240.html)
-
-责任编辑、发布： Shuizhuyu
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

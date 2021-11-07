@@ -2,170 +2,64 @@
 ---
 
 
-## 财富是多人属性的 它可以创造权力 可以让权力干正事
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1644983/)
+## 《我是音雄》第二季第十一期第九场初赛｜节目预告
+` 我是音雄` [轉載自GNews](https://gnews.org/zh-hans/1645005/)
 
-[https://gtv.org/video/id=6186810dadfd99590c33be81](https://gtv.org/video/id=6186810dadfd99590c33be81)
+灭共尖峰时刻，音雄再度归来！2021年度《我是音雄》震撼来袭！
 
-**郭文贵**
-**Miles Guo**
+由喜马拉雅农场联盟和G|Music倾心打造的新中国联邦“音乐灭共”节目《我是音雄》第二季第十一期，将于美东时间2021年11月6日周六晚10点，即北京时间11月7日周日早10点，在GTV正式开播。
 
-没有财富自由的家庭
-A family without wealth and freedom
+请订阅喜马拉雅农场联盟频道：
 
-和谐、快乐、健康、 有尊严几乎都无从谈起
-it’s almost impossible that know where to begin talking about harmony, happiness, health, and dignity
+GTV   [https://gtv.org/video/id=613ecf61751e4f2b0e518675](https://gtv.org/video/id=613ecf61751e4f2b0e518675)
 
-财富属性最后都是社会的
-Wealth attribute is all belong to society in the end
+Youtube   [https://youtube.com/channel/UC\_E99PLRQHapCyjREgnFyrg](https://youtube.com/channel/UC_E99PLRQHapCyjREgnFyrg)
 
-这一句话就是，所有的钱都是归社会的
-It means all money belongs to society
+* * *
 
-但是这个财富属性的创造者和享用者
-But the creator and beneficiary of this wealth attribute
+**GMUSIC – ****我是音雄****第二季第十一期****第九场初赛****共有****8****位选手**
 
-就是社会上最高级统治者
-is the superlative ruler
+**1****号选手：五饼二鱼（澳大利亚澳喜农场）**
 
-这你就明白了钱到底咋回事儿
-Then you will understand what the money is really about
+2019年4月去泰国旅游偶然在YouTube看到七哥的爆料。当我听到“盗国贼”这个词让我非常震惊！七哥的爆料对我来说如同当头棒喝，我从小粉红一下子变成灭共参与者。我开始了解爆料革命、正视共产党的假丑恶，决心跟随七哥消灭中共！
 
-然后也告诉我们货币是怎么回事
-and then tell us what the currency is all about
+**2****号选手：****Ruth ****（华盛顿****DC****农场）**
 
-金银怎么回事
-as well as with gold and silver
+希望登上《我是音雄》新中国联邦大型音乐灭共平台，传递新中国联邦人对正义和美好的追求与向往。让更多的同胞乘着音乐的翅膀，和战友们一起飞翔，直到喜玛拉雅之颠！
 
-这对我当时来讲，一个十几岁的孩子
-To me at the time, a teenager
+**3****号选手：打不死小强（喜马拉雅新加坡狮城农场）**
 
-这是很大的事，就你认清了钱到底姓啥
-that was a big deal because you recognized that who owns money at the end
+来新加坡求学并工作已经11年了。2017年在YouTube 上无意间看到七哥的直播爆料，从看热闹到半信半疑，最后彻底被这个男人征服了。我很荣幸能成为新中国联邦的一份子，为音乐灭共出一份力量。
 
-你再过3年5年
-3 years or 5 years later
+**4****号选手：宇宙之泾****（日本东京方舟农场）**
 
-你看今天你所有对财富的理解
-look back to your understanding of all wealth today
+很高兴再次来到新中国联邦大型音乐灭共节目《我是音雄》的舞台。继第一届《我是音雄》参赛以来，在草根小哥的信任支持下委以重任，负责GTV直播组和文化灭共组的工作。感恩七哥，感恩爆料革命，让我们共同守护心中的信仰之星——七芒星，共同守护我们的家园—新中国联邦!
 
-你就觉得是个天大的耻辱和笑话
-you would feel that it’s the biggest joke and shame
+**5****号选手：政清****（台湾宝岛农场）**
 
-第3个就是最重要的
-The 3rd one is the most important
+从2017年起通过纽约时报的专访开始关注郭先生，随后和大家一样一发而不可收，目前担任台湾宝岛农场CEO。十分感叹郭先生所构建的商业帝国，也非常有幸可以参与到G系列和HCoin的投资当中，能够结识像小唐姐威廉王这样杰出的战友是非常大的惊喜和荣幸，也特别期待能够在《我是音雄》当中接触到更多有才华的战友。
 
-当你有信仰和理想的时候，你会越来越明白
-When you have beliefs and goals, you will understand more and more of
+**6****号选手：葛朗台太太（波士顿五月花农场）**
 
-这个世界很伟大、很丑陋的两个极端
-these two extremes in the world which are very and ugly
+从2017年5月就开始听文贵先生直播。感谢郭先生和爆料革命还有战友们一起传播真相！感谢救命之恩，因为郭先生的爆料，我和我的家人才没有接种毒疫苗。响应郭先生的号召，支持《我是音雄》节目，是我来参加海选的原因。
 
-都伟大立不了财富
-The wealth would not be created if everyone is great
+**7****号选手：钟仁（新西兰伊甸农场）**
 
-丑陋是因为财富
-Ugliness is because of wealth
+跟着爸爸了解到爆料革命，随着各种事情的发生，深刻认识到共产党的罪恶；在做传播的同时，希望可以用更多的方式去灭共。音乐灭共也是大势所趋，让更多的人听到我们新中国联邦的声音。
 
-当你把这个问题搞明白的时候
-When you understand these questions
+**8****号选手：疯狂蚂蚁（台湾宝岛农场）**
 
-你想做伟大吗
-Do you want to be virtuous?
+三年前一次偶然机会让我听到了爆料革命，当时我感觉很震撼，也因此结缘爆料革命，虽然得不到家人的认可，更得不到朋友的理解，但是我坚信唯真不破，就是最后的胜利。希望与更多的战友一起登上喜马拉雅之巅、创造新世纪、开创新纪元。
 
-你想做让你自己爱的人吗
-Would you want to be the one that you love?
+![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-07-at-10.56.10-AM.png)
 
-你想让别人发自内心的尊重你吗
-Would you like to have others respected you by heart?
+G|Music创始人郭先生单曲打榜Billboard，向世界展示爆料革命、新中国联邦的实力，将“以歌灭共”推向高潮。音乐就是子弹，歌唱就有力量！《我是音雄》参赛战友将给大家带来什么样的感动呢？让我们拭目以待！
 
-绝对你会知道，你要拥有干净的财富
-You will definitely understand that you have to have a transparent wealth
+《我是音雄》文宣组： May
 
-财富会让你拥有自己的能力和证明的机会
-and wealth will let you have the ability to own yourself and the opportunity to veri-fy
+编辑/审核：暗黑
 
-所以说
-That being said
-
-经过我做生意，搞酒店、房地产、金融
-after I did business, engaged in hotels, real estate, finance
-
-我所有的从清丰看守所出来以后（的经历）
-and all experiences that I had inside the Qingfeng Detention Center
-
-我发自内心地说，我一定要在财富上自由后
-I had said it from bottom of my heart that I must be free in wealth
-
-让家人都安全、孩子长大后
-kept family members safe, and after children grew up
-
-我灭共的事业才能开始
-and then I could start my career of eliminating the communism
-
-否则无从谈起
-Otherwise, there’s no way to talk about it
-
-但是财富这个东西，它也很有意思的
-But wealth is also very interesting
-
-财不是个单字，是一个贝一个才加个富成为财富
-(The Chinese character) of “wealth” is not an individual character. It’s formed by the radical of a shell and talent, and add a rich to become wealth
-
-财富是多人属性
-Wealth is multi-person attribute
-
-如果你一个人有钱那叫富有，它不叫财富
-One person has the money doesn’t mean you are wealthy. It’s called rich
-
-财富是多人属性下的
-Wealth is based on multi-person attribute
-
-当你把财富（跟）更多人分享的时候那你就是财富
-When you share your wealth with more people, then you are wealthy
-
-当我觉得新中国联邦人都拥有财富的时候
-When I feel that all people of the New Federal China have wealth
-
-那才叫真正的财富
-that is the real wealth
-
-财富可以创造权利
-Wealth creates power
-
-可以让权力干正事
-and allow the authority to do the right thing
-
-那么我们就要创造干净的财富去干干净的事
-Therefore, we must create a clean wealth and to do clean business
-
-这就是当初我想灭共之初
-This is the beginning of my desire to eliminate the communists
-
-这30年的准备, 时时刻刻想着
-This has been prepared for 30 years and kept in my mind all the time
-
-———————————————————
-
-**原视频链接: **[https://twitter.com/se1y7cblljselva/status/1455865144043470857?s=24](https://twitter.com/se1y7cblljselva/status/1455865144043470857?s=24)
-
-Date: 11/03/2021
-原视频标题:财富是多人属性的 它可以创造权力 可以让权力干正事
-Wealth is a multi-person attribute. It can create power for somebody and allow them to do the right thing
-原视频日期：2021/11/01
-任务编号：KC225(2759)
-视频时间段 : 0:00-2:13
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+校正/发稿：正义的小新
 
  
 
