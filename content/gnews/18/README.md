@@ -2,25 +2,18 @@
 ---
 
 
-## 领航者
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1646193/)
+## 【美国推出带有 #加密货币 基础设施的法案】📣📣
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1646450/)
 
-作者：文北
-![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_3490.jpg)
-《领航者》 
-任尔星辰古今烁，吾凭日月照長河。 
-雄才大略領航者，迎風破浪断江波！
+据 CoinDesk 报道，美国众议院以至少 218 票赞成的表决结果投票通过了基础设施法案，其中包含 [#加密货币](https://gettr.com/hashtag/%23%E5%8A%A0%E5%AF%86%E8%B4%A7%E5%B8%81) 纳税申报要求的条款。目前该法案已送交美国总统拜登签字。接下来美国财政部仍需解释其计划并发布指导意见，阐明企业或其他实体如何履行该法案。
 
-* * *
+[#财经G评](https://gettr.com/hashtag/%23%E8%B4%A2%E7%BB%8FG%E8%AF%84)：
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[#比特币](https://gettr.com/hashtag/%23%E6%AF%94%E7%89%B9%E5%B8%81) 引领各行业对区块链的研究，而区块链技术不是去中心化的而是弱中心化，减少中心控制与干预。传统金融模式一直在演变支付技术，却无法改变金融行业的基础建设。传统金融系统早就应该研究区块链并制定一套可应用的制度体系了。
+![img](https://media.gettr.com/group28/getter/2021/11/06/12/11/bae51794-38a6-2256-cd4a-a9a886d6ff69/0e6514d418471cd2ba48bd8b11fc9a1e.jpg)
+参考链接：https://www.coindesk.com/business/2021/11/06/house-sends-infrastructure-bill-with-crypto-tax-provision-to-us-president/
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**（文章内容仅代表新西兰-财经G乐部节目观点）**
 
  
 

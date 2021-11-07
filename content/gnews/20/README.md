@@ -2,25 +2,30 @@
 ---
 
 
-## 福临门
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1646188/)
+## 【 #美国债 十大持有国 Top Ten Foreign Holders of U.S. Debt 】📣📣📣
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1646441/)
 
-作者：文北
-![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_3494.jpg)
-《福临门》 
-正义联邦大门开，福满人间喜币来。 
-灭共事业承天命，爆料战友同发财！
+1. Japan: $1,271.7B
 
-* * *
+2. [#CommunistChina](https://gettr.com/hashtag/%23CommunistChina): $1,081.6B
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+3. U.K.: $395.3B
 
+4. Ireland: $271.5B
 
-编辑：【英国伦敦喜庄园编辑部】
+5. Brazil: $264.4B
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+6. Luxembourg: $246.1B
+
+7. Hong Kong: $245.3B
+
+8. Switzerland: $244.6B
+
+9. Cayman Islands: $207.2B
+
+10. Belgium: $206.1B
+![](https://assets.gnews.org/wp-content/uploads/2021/11/b332d06c1357ba9e0dd2011191c6792b.jpg)
+**（文章内容仅代表新西兰-财经G乐部节目观点）**
 
  
 

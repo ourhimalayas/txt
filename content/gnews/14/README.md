@@ -2,55 +2,28 @@
 ---
 
 
-## 真相工程创始人因阿什利·拜登日记被FBI抄家
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1646204/)
+## 有声|北京人大代表独立参选人成中共阶级敌人（709维权律师家属宣布独立参选区县人大代表续报）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1646515/)
 
-**翻译：lulumi**
+配音：香草山教育部 – 蒙古鸿雁
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip153.png)*詹姆斯·奥基夫（James O’Keefe）在纽约的家周六被FBI特工突袭。*
+本月15日，中共709维权律师大抓捕案的14名家属，在发表独立候选人联合宣言，表示要参选区级人大代表以后，就受到了中共当局的严加管控，被当成上访户和阶级敌人。
 
-周五，FBI对与真相工程（Project Veritas）有关的人在纽约的两个地址进行了搜查，这是调查阿什利·拜登（Ashley Biden）的日记在2020年大选前不久如何被公开的一部分。
+参选人之一的朱秀玲计划29日进行选举宣传，但是中共的警车自21日起就停在她的小区门口，有警察直接上门警告她当天不得外出。还有选民家门口有警察在24小时看守，根本无法出门。另有两名选民被警察强行带到外地“旅游”，等到投票时才能回到北京，选举宣传活动被迫取消。还有选民在发布竞选宣言之后，当地乡政府竟然开始对其居住的房屋进行强拆。 虽然中共《宪法》规定允许独立候选人参加地方选举，但是对老百姓来说，这只是一场骗局而已。这些选民的遭遇，正是对中共党魁习近平所称的，中共国“最广泛、最真实、最管用”的社会主义民主的最好讽刺。
 
-作为这项“调查”的一部分，真相工程创始人詹姆斯·奥基夫的家也被FBI特工突袭。
+文字版原文：[北京人大代表独立参选人成中共阶级敌人（709维权律师家属宣布独立参选区县人大代表续报）](https://gnews.org/zh-hans/1640913/)
 
-真正的美国人德鲁·埃尔南德斯（Drew Hernandez）认为他知道他们为什么要突袭奥基夫。
+音频处理：喜山必胜Maverick
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip154.png)
-
-《纽约时报》报道说：“ FBI在纽约执行搜查令，这是司法部对阿什利·拜登日记的内容如何被一个右翼网站发布的调查的一部分。”
-
-在突击检查进行了一个小时后，《纽约时报》联系了其中一名记者，要求他对这项机密调查发表评论。
-
-《纽约时报》是第一个报道这个事件的人。在詹姆斯·奥基夫的家于早上6点被突击检查后，他们甚至还主动要求他发表评论。
-
-2020年10月，阿什利·拜登与FBI联系，报告说有几件物品在一次入室盗窃中被盗，包括她的日记。
-
-其实真相工程从未发表过阿什利·拜登的日记，实际上是另一个保守派网站发表了。
-
-奥基夫：“尽管我们的法律团队之前与司法部联系过，并主动传达了无可置疑的事实，证明真相工程没有参与犯罪活动和/或犯罪意图，但FBI还是拿走了真相工程现任和前任记者的材料。”
-
-“像任何记者一样，我们经常处理收到的来源信息，并采取步骤核实其真实性、合法性和新闻价值。我们的努力是负责任的、有道德的新闻工作，我们毫不怀疑真相工程在每一个步骤上都是正确的。”
-
-奥基夫在发布关于调查真相工程记者的声明时，“将自己置于巨大的风险之中”。FBI在第二天就搜查了他的家。
-
-奥基夫说，他们一拿到日记，就试图把它还给代表阿什利的一名律师。该律师拒绝对日记进行鉴定，因此他们将日记交给了执法部门。
-
-奥基夫在他家被FBI搜查的前一天说：“这项联邦调查有政治的味道。”
-
-拜登政权正在利用FBI来对付自由媒体。
-
-**新闻来源**：[**thegatewaypundit.com**][BREAKING: FBI Raids Project Veritas Founder James O’Keefe’s Home Over Ashley Biden Diary](https://www.thegatewaypundit.com/2021/11/breaking-fbi-raids-project-veritas-founder-james-okeefes-home-ashley-biden-diary/)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
-
-
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

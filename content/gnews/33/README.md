@@ -2,41 +2,46 @@
 ---
 
 
-## 欧盟议员代表团正式访问台湾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645985/)
+## CCP中疾控吹嘘墙内疫苗安全性好过平常年份的各种疫苗
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1646200/)
 
-作者：香草山农场 文真
+作者：日本方舟农场 – Andy5
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-当地时间11月3日，欧盟“外国干涉民主进程委员会”的13名成员组团抵达台湾，进行了为期三天的官方访问——这是欧盟议会首次派遣官方代表团访问台湾。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1107AM（1-9）視頻備用.003.jpeg)
-在访问的过程中，代表团与蔡英文总统和数位部长唐凤进行了会晤，并访问了台湾的智囊团、非政府组织和其他致力于打击虚假信息的组织。
-
-代表团团长、法国籍欧盟议会议员格鲁克斯曼称赞，台湾民主的蓬勃发展令人敬畏。他还强调，专制政权不是未来。
-
-近期，台湾与欧盟的双边整体关系与合作交流程度不断提升。上个月，台湾外交部长吴钊燮对欧洲多国以及欧盟总部进行了访问。随后，欧盟议会通过了首份“欧盟-台湾政治关系与合作”报告，目的在于加强欧盟的对台合作，旨在共同对抗中共专制政权的侵犯。
-
-参考链接：
-
-1. [European Union Lawmakers Meet Taiwan Premier in First Official Visit](https://www.breitbart.com/europe/2021/11/06/european-union-lawmakers-meet-taiwan-premier-in-first-official-visit/)
-2. [欧洲议会官方代表团首访台湾 台北称意义重大](https://www.voachinese.com/a/taiwan-european-parliament-20211103/6297920.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM-1.png)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-总编：Irene木木
-编辑：Ivy001
-校正/发稿：我不在这里
+郭先生多次提到墙内因为疫苗而出现各种梗，甚至很多畸形婴儿直接被处理掉之后，CCP反而开始鼓吹自己的疫苗安全性。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/13.jpg)
+
+作为之前接收日本疫苗提高儿童免疫力，自己开始制作疫苗就出现各种毒疫苗事件的CCP，竟然大言不惭地说对于CCPVirus的疫苗安全性，超过了平常年份的各种疫苗，这很明显就不符合逻辑。现在全世界正在减慢推进疫苗接种，尤其是以美国军方为首，各行各业都有拒绝接种疫苗的人士大量出现，而CCP似乎就是想通过宣传“安全性”进一步通过疫苗投毒。
+
+郭先生不止一次说过，病毒只是引子真正害人的是疫苗。CCP在疫苗上撒谎的同时继续推进疫苗接种尤其是扩展到对3-11岁儿童的接种，就跟去年病毒爆发时先不承认出现新型病毒并要求全世界不要对中共国采取旅行禁令，等着造成全球大流行后甩锅给意大利、美国的手法如出一辙。目前的隐瞒疫苗副作用同时强制疫苗接种，就等同于去年CCP不承认人传人的阶段，正如郭先生所说疫苗所造成的灾难远远没有开始。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+- [https://china.huanqiu.com/article/45SicopKpVal](https://china.huanqiu.com/article/45SicopKpVal)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0.jpeg)
+
+***编辑***：***Irene木木***
+***校对/发稿：海阔天空1***
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

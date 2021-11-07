@@ -2,33 +2,25 @@
 ---
 
 
-## COVID-19 最新情报｜面对公卫威胁 美跨党派提案 台湾作为印太伙伴
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1645087/)
+## 零对冲：美国供应链只会变得更糟
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1645764/)
 
-**台灣寶島農場 疫情關注組 / 發佈時間｜7/11/2021**
+#### 撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-27.jpg)[图片来源](https://alt-market.us/heres-why-u-s-supply-chain-problems-will-only-get-worse/)
+当地时间11月5日晚，零对冲转载Brandon Smith文章，认为政府越想控制事情，事情就越糟。当前，美国由货币超发引发的通货膨胀和美元贬值，以及强制疫苗政策引发的港口工人短缺和卡车司机短缺等劳工缺乏问题，将严重威胁美国供应链的安全。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+文章提出，欲解决供应链问题，不能从强制行政和滥发货币着手，相应的办法有四，一是，结束中共病毒；二是，在美国本土鼓励制造业；三是，结束美联储；四是，让美国回归金本位。
 
+这篇文章展示出一种反社会主义、反福利经济的倾向。一个世纪以来，自由资本主义所倡导的自由市场被福利经济所倡导的政府大规模干预市场所压制，以至于民间习惯于高税收和高福利，政府权力也越来越大。直至今日，政府已在强制疫苗和滥发货币等方面鲜受制约，这不仅会引发供应链断裂，或还会引起权力重新分配，文中有言，“最终，完全分权才是政府强加混乱难题的答案”。
 
-#### 美跨党派提案，美台合作抗新冠
+信息来源：
 
-美共和党友台参议员卢比欧、科顿（Tom Cotton）及民主党议员寇提兹马斯托（Catherine Cortez-Masto）等人跨党派提案，在AIT设立美台传染病监控中心（U.S.-Taiwan Infectious Disease Monitoring Center），每年向国会提交研究和报告来决定中心的资金、人员需求，并与台湾疾病管制署（CDC）合作。
+[这就是美国供应链问题只会变得更糟的原因](https://www.zerohedge.com/economics/heres-why-us-supply-chain-problems-will-only-get-worse)
 
-据台湾媒体报导，法案主要目的在于交流双方政府在公卫威胁上的专业知识，进驻人员将包括至少3名美国卫生及公共服务部（HHS）的传染病专家，至少1名其他联邦部门成员，也可能聘雇台湾当地员工或台CDC人员。
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
 
-#### 美共和党友台参议员马可．卢比欧（Marco Rubio）
-
-卢比欧对台湾给予长期关注、支持，2021年9月台湾与立陶宛互设代表处引起中共挞伐，他强调“中国共产党不代表台湾，没有权利支配世上其他国家如何称呼，或如何与台湾人民来往。”
-
-卢比欧在本次跨党派提案声明：“对于犯下种族灭绝的中国共产党政权来说，封锁新冠疫情消息，导致毁灭性后果在全球爆发的行径并不让人吃惊，我们在印太地区需要一个可靠且公开透明的伙伴，能够提供我们精确的讯息来防止、减缓未来可能面临的公卫危机，台北相较于全球具有先进的公卫体系，也是一个值得信赖的民主盟友和珍贵朋友。”
-
-此外，卢比欧早在2018年5月便针对中共的窃取美国科技、威胁美国国家安全等，推动以保护国家安全为目的之“美中公平贸易执行法”（Fair Trade with China Enforcement Act），禁止美中两国交易“敏感科技”之法源，同时，更提高课征跨国公司来自中国的所得税，借以钳制中国窃取美国智慧财产。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-5.jpg)
-* * *
-
-新闻来源｜[自由时报](https://news.ltn.com.tw/news/politics/breakingnews/3727870)、[美参议员卢比欧推动禁止与中国交易敏感科技之法案-资策会](https://stli.iii.org.tw/article-detail.aspx?no=64&amp;tp=0&amp;i=72&amp;d=8038)
-撰稿｜zhong
 
  
 

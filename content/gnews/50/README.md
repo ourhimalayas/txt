@@ -2,24 +2,34 @@
 ---
 
 
-## 中共国盐业调味料集体宣布涨价
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1644978/)
+## COVID-19 最新情报｜面对公卫威胁 美跨党派提案 台湾作为印太伙伴
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1645087/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5646.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Fblog%2Fcrawl%2F127%2Fw550h377%2F20211104%2Fcbb4-77eaeed5c45b12f0ed19a14f32f1fdd3.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.sina.com.cn%2Fstock%2Fhyyj%2F2021-11-04%2Fdoc-iktzscyy3666043.shtml&amp;tbnid=3hEjT5NknpXxrM&amp;vet=12ahUKEwjio6_c-YP0AhUOvpQKHVRoAiUQMygHegQIARAl..i&amp;docid=uw65k9eXh6lToM&amp;w=550&amp;h=377&amp;q=%E4%B8%AD%E5%85%B1%E5%9B%BD%E7%9B%90%E4%B8%9A%E8%B0%83%E5%91%B3%E6%96%99%E9%9B%86%E4%BD%93%E5%AE%A3%E5%B8%83%E6%B6%A8%E4%BB%B7&amp;hl=zh-CN&amp;ved=2ahUKEwjio6_c-YP0AhUOvpQKHVRoAiUQMygHegQIARAl)
-腾讯新闻近日报道，继雪天盐业称小包食盐出厂价近期陆续提价后，云南能投也透露，对部分食盐产品及工业盐产品价格进行了上调，综合平均调价幅度30%-35%不等。
+**台灣寶島農場 疫情關注組 / 發佈時間｜7/11/2021**
 
-前几日，加加食品对加加酱油、蚝油、料酒、鸡精和醋系列产品的出厂价格上调3%-7%不等的新闻，造成一种市场整体涨价的趋势，带来新一轮“涨价潮”。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-中共国盐业公司集体宣布涨价，同时调味料也宣布涨价，今年以来，煤炭、人工、运输及包装成本纷纷上涨，而关乎民生的日用产品的食盐集体涨价，会带动食品市场联动效应，未来会对基层居民的生活雪上加霜。
 
-信息来源：
+#### 美跨党派提案，美台合作抗新冠
 
-[多家食品上市公司回应调价计划，盐业公司集体宣布涨价](https://ms.mbd.baidu.com/r/vXuXLGAjq8?f=cp&amp;rs=1463287175&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0645fe06bb241a9b)
+美共和党友台参议员卢比欧、科顿（Tom Cotton）及民主党议员寇提兹马斯托（Catherine Cortez-Masto）等人跨党派提案，在AIT设立美台传染病监控中心（U.S.-Taiwan Infectious Disease Monitoring Center），每年向国会提交研究和报告来决定中心的资金、人员需求，并与台湾疾病管制署（CDC）合作。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+据台湾媒体报导，法案主要目的在于交流双方政府在公卫威胁上的专业知识，进驻人员将包括至少3名美国卫生及公共服务部（HHS）的传染病专家，至少1名其他联邦部门成员，也可能聘雇台湾当地员工或台CDC人员。
+
+#### 美共和党友台参议员马可．卢比欧（Marco Rubio）
+
+卢比欧对台湾给予长期关注、支持，2021年9月台湾与立陶宛互设代表处引起中共挞伐，他强调“中国共产党不代表台湾，没有权利支配世上其他国家如何称呼，或如何与台湾人民来往。”
+
+卢比欧在本次跨党派提案声明：“对于犯下种族灭绝的中国共产党政权来说，封锁新冠疫情消息，导致毁灭性后果在全球爆发的行径并不让人吃惊，我们在印太地区需要一个可靠且公开透明的伙伴，能够提供我们精确的讯息来防止、减缓未来可能面临的公卫危机，台北相较于全球具有先进的公卫体系，也是一个值得信赖的民主盟友和珍贵朋友。”
+
+此外，卢比欧早在2018年5月便针对中共的窃取美国科技、威胁美国国家安全等，推动以保护国家安全为目的之“美中公平贸易执行法”（Fair Trade with China Enforcement Act），禁止美中两国交易“敏感科技”之法源，同时，更提高课征跨国公司来自中国的所得税，借以钳制中国窃取美国智慧财产。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-5.jpg)
+* * *
+
+新闻来源｜[自由时报](https://news.ltn.com.tw/news/politics/breakingnews/3727870)、[美参议员卢比欧推动禁止与中国交易敏感科技之法案-资策会](https://stli.iii.org.tw/article-detail.aspx?no=64&amp;tp=0&amp;i=72&amp;d=8038)
+撰稿｜zhong
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

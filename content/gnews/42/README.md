@@ -2,20 +2,37 @@
 ---
 
 
-## 狮城快讯：海底捞调整策略 关停300家店面
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1645831/)
+## 美国务院发言人首次提出与中共不同的“一中政策”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645981/)
 
-**撰稿：小坡**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-07-201116.jpg)
-11月5日晚间，海底捞集团发布公告称，将于2021年12月31日前逐步关停300家左右经营未达预期门店，其中部分门店（包括海外门店）将暂时休整、择机重开，休整周期最长不超过两年。海底捞称关停门店是公司2019年制定的快速扩张策略所导致的，具体有门店选址失误，让各级管理人员无法理解且疲于奔命的组织结构变革、优秀店经理数量不足、过度相信连住利益的KPI指标，以及企业文化建设的不足。
+作者：纽约香草山医疗部 云豹
 
-新加坡的战友们应该都知道，海底捞的老板张勇及家人2018年就来到了新加坡，而且获得了新加坡国籍，2019年至2020年张勇登上福布斯《新加坡50大富豪榜》榜首，成為新加坡首富。但是由于过去两年的中共病毒疫情影响，呼吸器和监护仪等器材需求大增，在深圳交易所挂牌的迈瑞医疗集团股价一年来上扬了19％，李西廷的财富增加52亿美元，今年一举拿下新加坡首富位置，而张勇和舒萍夫妇的财富从190亿美元减至160亿美元，掉到第四位。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-国内媒体借此机会唱衰张勇，还冷嘲热讽说他把海底捞搞成了外资公司，钱都被新加坡赚了，为了避税无所不用其极云云。小坡到觉得，张勇这样做一点错都没有，而且是民营企业家里面很聪明的，以他草根的出身，以及一路辛苦打拼得到今天的一切，相信他对中共的认识非常清楚，说不定也是我们的战友呢！
+11月4日的记者会上，美国国务院发言人普莱斯首度代表美国官方声明，美国坚持的“一中”政策与中共所认知的显著不同。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1107AM（1-9）視頻備用.002.jpeg)
+记者会上，当被问及拜登总统对待台湾的态度问题以及美国是否计划保护台湾时，普莱斯表示，美国对台湾的政策没有改变，即美国会信守在《台湾关系法》中做出的承诺，继续支持台湾的自卫能力，并且反对任何意图单方面改变台海现状的行动。
 
-总之，希望海底捞能够坚持住，用良心食材做健康火锅，疫情后一定会重放异彩！
+对于美国的保护行为是否包括军事行动这一问题，普莱斯则强调，《台湾关系法》中有非常清楚的表述，美国将会做出符合《台湾关系法》的行动。
 
-**[新闻来源](https://mp.weixin.qq.com/s/LBP58NQqe67hK15twoLtVw)**
+在“一中”政策的问题上，普莱斯明确提出，美国支持的“一中”政策与中共版本的“一中”政策有着显著的差异。
+
+参考链接：[Department Press Briefing – November 04, 2021](https://www.state.gov/briefings/department-press-briefing-november-04-2021/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+
+总编：Ivy001 
+编辑：文特
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
