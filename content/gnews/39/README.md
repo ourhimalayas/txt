@@ -2,38 +2,36 @@
 ---
 
 
-## 银河快讯：日本地热发电站增加三倍；本田将在印度为三轮车提供电池共享
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1646587/)
+## 首位被引渡的中共间谍 法庭裁定罪成
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1646685/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-32.png)[图片来源](https://english.kyodonews.net/)
-**1.****日本的地热发电站增加三倍**
+作者：MOS – 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月5日，美国俄亥俄州开庭审理了一宗涉及中共的间谍案，案件当中，徐某是首位被引渡到美国受审的中共间谍。对此，联邦陪审团一致裁定，中共间谍徐某罪名成立。
 
-[据共同社11月6日报道，自2011年日本东北部福岛发生核灾难以来，日本的地热发电厂数量已经翻了四番。尽管热能与核电工程协会的数据显示了这一激增，但地热发电仅占该国总发电量的0.3%，因为许多工厂的规模很小。随着世界各国领导人在苏格兰格拉斯哥举行的联合国气候会谈上呼吁采取紧急行动来控制全球变暖，分析家们说，日本加快引进可再生能源至关重要。日本政府的目标是在2030年将温室气体排放量从2013年的水平降低46%。](https://english.kyodonews.net/news/2021/11/f55c4e0600e7-coronavirus-pandemic-latest-nov-6-2021.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-3.jpeg)
 
-**2.****本田将在印度为三轮车提供电池共享服务**
+据悉，徐某被指控从美国航空企业盗取商业秘密，而美国司法部对其的控告罪名包括：阴谋和企图实施经济间谍行为，以及盗窃商业机密罪。
 
-[据共同社11月6日报道，本田汽车公司将于2022年上半年在印度启动电动三轮车出租车的电池共享服务，因为这个世界第三大二氧化碳排放国正在加紧努力实现碳中和。本田将为三轮车出租车建立电池站，使用本田的新型便携式锂离子电池，使司机能够将低电量的电池换成充满电的电池。本田公司将使用其最新的移动式电源组交换器，与以前的型号相比，它可以使三轮车在一次充电的情况下行驶1.2倍。](https://english.kyodonews.net/news/2021/11/ea7645ddd111-honda-to-start-battery-sharing-service-for-tricycle-taxis-in-india.html)
+根据法庭文件显示，徐某曾使用多个身份进行间谍行为，其目标主要针对美国及海外的航空企业，试图盗取包含通用电气飞机引擎的复合材料叶片在内的各类航空相关技术。
 
-**3.****保障半导体安全的新系统曝光**
+FBI助理局长艾伦指出， “这是由国家主导的间谍行为，其目的在于试图摧毁美国的经济”。 助理司法部长墨菲也称赞了美国法庭的裁决。
 
-[据NHK 11月6日报道，日本政府正计划设立一个基金，以确保国内半导体的生产能力，以建立经济安全，并透露了新系统的具体建议。根据该计划，政府将通过该基金补贴建设新半导体工厂的一半费用，条件是该公司在选址后将继续生产和投资，并且在供需紧张的情况下增加产量以确保半导体的稳定供应。在半导体行业，世界上最大的半导体合同制造商台湾台积电上个月宣布，它计划在日本建立一个新工厂。](https://www3.nhk.or.jp/news/html/20211106/k10013336491000.html?utm_int=all_side_business-ranking_002)
+参考链接：[Chinese spy convicted of trying to steal U.S. aviation secrets in historic trial](https://justthenews.com/government/security/chinese-spy-convicted-trying-stealing-us-aviation-secrets-historic-trial)
 
-**4.****10个县的青年集会呼吁对气候变化采取行动**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-[据NHK 11月6日报道，为了配合在英国举行的联合国第二十六届会议，日本的年轻人举行集会，强调对气候变化采取行动的必要性。这些集会是由呼吁对气候变化采取行动的青年团体在日本各地的10个县组织的，包括北海道和静冈。一位参加活动的31岁女性说：“我真的被比我年轻的一代人的认真呼吁所感动。 我认为，利用日本的技术，我们可以建立一个不依赖燃煤发电的系统，所以我想要求采取具体措施。”](https://www3.nhk.or.jp/news/html/20211106/k10013337331000.html?utm_int=all_side_ranking-social_002)
+总编：Jack Li文阳
+编辑：Ivy001
+校正/发稿：谐趣园
 
-**5.****日本新增241例中共病毒确诊病例，两人死亡**
-
-[据NHK 11月6日报道，6日，迄今已在全国范围内公布了241个病例。 此外，有两人死亡，一个在滋贺县，一个在神奈川县。 日本共有1,724,415人被确认感染，包括1,723,703人在机场接受检疫，712名乘客和船员在游轮上。 总共有18322人死亡，包括日本的18309个确诊病例和邮轮上的13人。](https://www3.nhk.or.jp/news/html/20211106/k10013337381000.html)
-
-**6.****内阁官房长官表示将美军基地迁至边野古是唯一的解决方案**
-
-[据NHK 11月6日报道，内阁官房长官上任后首次访问冲绳县，与居住在美军普天间基地附近的居民交换了意见，并与玉木知事会面。 针对玉木提出的暂停将普天间基地迁往名护市边野古的要求，内阁官房长官表示，将基地迁往边野古是唯一的解决方案，并请求大家理解。内阁官房长官松野表示，政府将考虑当地居民的意见，并针对他们的意见采取相应的措施。](https://www3.nhk.or.jp/news/html/20211106/k10013337391000.html?utm_int=news-politics_contents_list-items_001)
-
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Windfish
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

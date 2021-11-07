@@ -2,31 +2,27 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月7日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1646834/)
+## 有声|新晋纽约市长力争加密货币先机
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1646861/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-1.png)
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间11月4日，刚刚胜选的纽约市长亚当斯，公开宣称自己对加密货币情有独钟。他表示，不仅他本人的前三份工资单都要以比特币的形式领取，而且他会努力把纽约转变为一个对加密货币友好的城市，争夺美国加密货币的首都地位。亚当斯坚信：“纽约市将成为加密货币行业的中心”。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-6.png)
-文章仅代表作者本人观点，与Gnews无关
+加密货币以其私密性、安全性和便捷性，正受到世界越来越多人的欢迎，其被政府用作法币也将成为大势所趋。最近刚刚诞生的喜联储的加密数字货币Hcoin，与黄金挂钩，责任中心化，将成为加密货币中最卓越的选择。
 
-视频参看：2021.11.07早GTV新闻访谈
+文字版原文：[新晋纽约市长力争加密货币先机](https://gnews.org/zh-hans/1643167/)
 
-[https://gtv.org/video/id=6187d42f11d186296802fed5](https://gtv.org/video/id=6187d42f11d186296802fed5)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 **更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

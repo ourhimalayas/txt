@@ -2,27 +2,24 @@
 ---
 
 
-## 中共的打土豪运动继续蔓延
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1646699/)
+## 有声|欧洲央行表示需要发行数字货币
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1646796/)
 
-作者：英国喜庄园 – I770775
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月3日，据多家中共媒体报道，相声演员于谦旗下的矮马养殖公司被指隐瞒真实情况、弄虚作假，被列入经营异常名录。
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+欧洲央行执委帕内塔(Fabio Panetta)11月5日表示，欧洲央行有必要发行数字欧元，如将发起的空间完全让给稳定币等私营部门，可能会危及金融稳定，削弱央行的作用。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-4.jpeg)
+帕内塔表示，历史证明，金融稳定和公众对货币的信任需要公共货币和私人货币一道被广泛使用。
 
-据了解，于谦的矮马养殖公司全称北京天精地华养殖有限公司，成立于2010年9月，经营范围包括家禽、家畜养殖，以及影视策划等。该公司的主推业务还包括设特兰矮马种群宠物公园，以及相关的儿童马术游乐园。
+欧洲央行一直在致力于设计一种数字货币，像现金一样直接由央行发行，并已于7月14日宣布启动数字欧元项目并展开相关调研，预计该项目仍可能需要大约五年时间才能推出一种真正的货币。
 
-据有关人士分析，于谦早先从主流相声院团辞职，随后加入民间相声团体，鉴于中共演艺界与中共各派系间错综复杂的关系，再加上中共动荡不安的经济现状与党内愈演愈烈的内斗拼杀，中共的打土豪运动或将继续蔓延至中共国内的各个角落。
+全球数字货币热潮升温，喜马拉雅币在上市后短短3天内创下了价格上涨200倍的记录，其估值已经突破2万亿美元。
 
-参考链接：[于谦养矮马的公司被列入经营异常：拥有国内最大设特兰矮马种群宠物公园](http://news.hexun.com/2021-11-05/204683829.html)
+文字版原文：[欧洲央行表示需要发行数字货币](https://gnews.org/zh-hans/1644507/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
-
-总编：飞虹
-编辑：飞虹
-校正/发稿：谐趣园
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

@@ -2,20 +2,18 @@
 ---
 
 
-## 中共国情报员在美国被判间谍罪
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1646165/)
+## 【美国推出带有 #加密货币 基础设施的法案】📣📣
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1646450/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11061-bbc.jpg)图片来自BBC
-英国《金融时报》报道称：一名中共国情报员在美国因窃取通用电气公司的机密而被判有罪。来自江苏省的许艳军在比利时于2018年被捕后受到五项罪名指控，因为他试图窃取由GE独家制造的飞机发动机特别冷却系统的秘密。
+据 CoinDesk 报道，美国众议院以至少 218 票赞成的表决结果投票通过了基础设施法案，其中包含 [#加密货币](https://gettr.com/hashtag/%23%E5%8A%A0%E5%AF%86%E8%B4%A7%E5%B8%81) 纳税申报要求的条款。目前该法案已送交美国总统拜登签字。接下来美国财政部仍需解释其计划并发布指导意见，阐明企业或其他实体如何履行该法案。
 
-美国联邦调查局反情报部门副主任艾伦·科勒说  ：“对于那些仍然怀疑中共国真实意图的人来说，这一定是一个警钟，中共国想要窃取美国的机密，以造福他们自己的国防和工业”。
+[#财经G评](https://gettr.com/hashtag/%23%E8%B4%A2%E7%BB%8FG%E8%AF%84)：
 
-英国金融报纸强调：这标志着美国的一个巨大胜利。美国安全机构长期以来一直对中共国企图接管美国先进技术，特别是在人工智能和量子领域的企图发出警告。
+[#比特币](https://gettr.com/hashtag/%23%E6%AF%94%E7%89%B9%E5%B8%81) 引领各行业对区块链的研究，而区块链技术不是去中心化的而是弱中心化，减少中心控制与干预。传统金融模式一直在演变支付技术，却无法改变金融行业的基础建设。传统金融系统早就应该研究区块链并制定一套可应用的制度体系了。
+![img](https://media.gettr.com/group28/getter/2021/11/06/12/11/bae51794-38a6-2256-cd4a-a9a886d6ff69/0e6514d418471cd2ba48bd8b11fc9a1e.jpg)
+参考链接：https://www.coindesk.com/business/2021/11/06/house-sends-infrastructure-bill-with-crypto-tax-provision-to-us-president/
 
-原文链接：[https://www.repubblica.it/esteri/2021/11/06/news/intelligence\_cina\_general\_electric\_segreti\_spionaggio\_industriale\_usa-325310902/](https://www.repubblica.it/esteri/2021/11/06/news/intelligence_cina_general_electric_segreti_spionaggio_industriale_usa-325310902/)
-
-责任编辑/发布：意大利达芬奇农场   萧亦
+**（文章内容仅代表新西兰-财经G乐部节目观点）**
 
  
 

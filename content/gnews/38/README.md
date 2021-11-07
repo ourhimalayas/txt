@@ -2,26 +2,22 @@
 ---
 
 
-## 香草山翻译部周刊|2021年11月07日第21期
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1646639/)
+## 文贵爆料 7/11: 留住喜币，草根也能笑傲江湖
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1646689/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36.png)
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/766f9ef0-cbc7-477c-9561-52f825d04dcd.jpg)
+陈年佳酿，越久越醇。而留住喜币，更是留住了希望，留住了未来。 郭文贵先生在11月7日的大直播中，讲述了喜币不仅在未来有着巨大的升值空间，而且可以用来借贷，值得一生拥有。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/text-CN-1.png)
-文章仅代表作者本人观点，与Gnews无关
+我们应该感谢联盟委员会，他们太难了，能让你这几万个战友进来，那么你现在要再进来的战友们，你们互帮就是要顺利地过kyc，顺利汇钱变成喜美元，你才能买到喜币啊。就像今天如果是涨到两千了，头两天卖了那个两块钱的，或者卖个十几块钱、二十块钱的，真的，你这一辈子再也不可能买回来？你看的就是那个有限的钱，未来的升值空间，跟你就都没有关系了，你终生不可能再回来啊。
 
-总编： GBWater
-编辑：Lakers
-发稿：Lakers
+我告诉战友们，你们不用太长时间，快则一两个月，慢则不会超过明年五月份，你们就一辈子等了，为什么这几个月就不能等吗？到那时候你就可以贷款，我永远不卖币。现在我告诉你，你们拥有一万个币的人，你需要多少钱？你一万个币现在就是二百万美元吧。二百万美元你说你能花多少钱？你贷五十万美元，其中的二十万美元干什么？我告诉大家，你一定马上到喜联储存款去，我要存一个五年期或七年期。一年百分之七的利息是给你喜币，是吧？有币给你，我为啥你卖掉喜币呢？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+郭先生说，很多人进入食堂后，只看到了馒头和包子，却没看到旁边还有龙虾和鲍鱼。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+参考链接：
+
+[2021年11月07日 文贵大直播](https://gettr.com/streaming/pga8le9f31)
 
  
 
