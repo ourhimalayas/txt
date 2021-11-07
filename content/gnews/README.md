@@ -15,88 +15,88 @@
 
 ---
 
-### [Facebook 将关闭面部识别系统](/content/gnews/1/README.md)
- ` 纽约香草山MOS02`
-
-### [浅谈现阶段“无苗族”对“苗族”的态度](/content/gnews/2/README.md)
- ` 澳喜农场`
-
-### [中共国各地抗疫封锁 民众不知还能坚持多久](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共国的房地产与金融危机还有多远](/content/gnews/4/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [全球航班追踪APP遭中共国下架](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [“无苗族”为什么高贵？](/content/gnews/6/README.md)
- ` 澳喜农场`
-
-### [秘翻在线：联邦上诉法院暂停了拜登政府的强制中共病毒疫苗规定](/content/gnews/7/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美国高等法院制止拜登政府强制接种疫苗的违宪行为](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [11/7/2021中日财经爆：千万存款被银行盗走，储户还要担责8成？](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美一联邦高院暂停新冠疫苗强制接种](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭文贵先生2021年11月06日盖特视频（6分37秒）全文字版](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美联储宣布将终结经济刺激计划](/content/gnews/12/README.md)
- ` 纽约香草山MOS02`
-
-### [任正非最新战狼发言，继续给墙内百姓打鸡血](/content/gnews/13/README.md)
- ` 纽约香草山MOS02`
-
-### [氧化石墨烯 &#8211; 中共CCP病毒疫苗背后真正的杀手](/content/gnews/14/README.md)
- ` 加拿大扬帆农场多伦多Gnews组 Himalaya Sailing Farm Toronto(CA)`
-
-### [郭文贵先生谈爆料革命战友和新中国联邦人的忠诚、奉献与唯真不破！](/content/gnews/15/README.md)
- ` 纽约香草山MOS02`
-
-### [加密货币支付将如何颠覆数十亿美元的交易费行业](/content/gnews/16/README.md)
+### [违背联邦政策，维州安德鲁斯政府为中共国进博会捧场](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [蓬佩奥：选举显示美国人“正在重新夺回他们的国家”](/content/gnews/17/README.md)
- ` 纽约香草山MOS02`
-
-### [台湾外长吴钊燮访问捷克之后欧洲议会官方代表团首度访问台湾](/content/gnews/18/README.md)
- ` 纽约香草山MOS02`
-
-### [美国将反击中共钢铁产业的不公平竞争](/content/gnews/19/README.md)
- ` 纽约香草山MOS02`
-
-### [台湾一男子接种两针CCP病毒疫苗后死亡](/content/gnews/20/README.md)
- ` 纽约香草山MOS02`
-
-### [马斯克为台湾写诗](/content/gnews/21/README.md)
- ` 纽约香草山MOS02`
-
-### [GTV新闻访谈简报|2021年11月6日晚](/content/gnews/22/README.md)
+### [彭佩奥盖特发文呼吁抵制北京冬奥会](/content/gnews/2/README.md)
  ` GTV新闻访谈`
 
-### [欧洲代表团敦促国际社会加强与台湾的交流](/content/gnews/23/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [1200万元存款不翼而飞，储户被判担责八成](/content/gnews/3/README.md)
+ ` GTV新闻访谈`
 
-### [雅典娜时报-第105期](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国多名众议员共同提出《自然免疫是真实法案》](/content/gnews/25/README.md)
+### [Facebook 将关闭面部识别系统](/content/gnews/4/README.md)
  ` 纽约香草山MOS02`
 
-### [文·贵天成——文贵先生谈“吴征、杨澜”（二十）](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [魔幻币市六日游—Himalaya Coin上市交易随想](/content/gnews/27/README.md)
+### [浅谈现阶段“无苗族”对“苗族”的态度](/content/gnews/5/README.md)
  ` 澳喜农场`
 
-### [警惕澳洲个别网络供应商对喜马拉雅交易所平台的屏蔽](/content/gnews/28/README.md)
+### [中共国各地抗疫封锁 民众不知还能坚持多久](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共国的房地产与金融危机还有多远](/content/gnews/7/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [全球航班追踪APP遭中共国下架](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [“无苗族”为什么高贵？](/content/gnews/9/README.md)
+ ` 澳喜农场`
+
+### [秘翻在线：联邦上诉法院暂停了拜登政府的强制中共病毒疫苗规定](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国高等法院制止拜登政府强制接种疫苗的违宪行为](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [11/7/2021中日财经爆：千万存款被银行盗走，储户还要担责8成？](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美一联邦高院暂停新冠疫苗强制接种](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [郭文贵先生2021年11月06日盖特视频（6分37秒）全文字版](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美联储宣布将终结经济刺激计划](/content/gnews/15/README.md)
+ ` 纽约香草山MOS02`
+
+### [任正非最新战狼发言，继续给墙内百姓打鸡血](/content/gnews/16/README.md)
+ ` 纽约香草山MOS02`
+
+### [氧化石墨烯 &#8211; 中共CCP病毒疫苗背后真正的杀手](/content/gnews/17/README.md)
+ ` 加拿大扬帆农场多伦多Gnews组 Himalaya Sailing Farm Toronto(CA)`
+
+### [郭文贵先生谈爆料革命战友和新中国联邦人的忠诚、奉献与唯真不破！](/content/gnews/18/README.md)
+ ` 纽约香草山MOS02`
+
+### [加密货币支付将如何颠覆数十亿美元的交易费行业](/content/gnews/19/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [蓬佩奥：选举显示美国人“正在重新夺回他们的国家”](/content/gnews/20/README.md)
+ ` 纽约香草山MOS02`
+
+### [台湾外长吴钊燮访问捷克之后欧洲议会官方代表团首度访问台湾](/content/gnews/21/README.md)
+ ` 纽约香草山MOS02`
+
+### [美国将反击中共钢铁产业的不公平竞争](/content/gnews/22/README.md)
+ ` 纽约香草山MOS02`
+
+### [台湾一男子接种两针CCP病毒疫苗后死亡](/content/gnews/23/README.md)
+ ` 纽约香草山MOS02`
+
+### [马斯克为台湾写诗](/content/gnews/24/README.md)
+ ` 纽约香草山MOS02`
+
+### [GTV新闻访谈简报|2021年11月6日晚](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
+
+### [欧洲代表团敦促国际社会加强与台湾的交流](/content/gnews/26/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [文·贵天成——文贵先生谈“吴征、杨澜”（二十）](/content/gnews/27/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [魔幻币市六日游—Himalaya Coin上市交易随想](/content/gnews/28/README.md)
  ` 澳喜农场`
 
 ### [20211106文贵先生盖特精要](/content/gnews/29/README.md)

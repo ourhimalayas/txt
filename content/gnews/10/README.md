@@ -2,24 +2,33 @@
 ---
 
 
-## 美一联邦高院暂停新冠疫苗强制接种
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1645462/)
+## 秘翻在线：联邦上诉法院暂停了拜登政府的强制中共病毒疫苗规定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1645490/)
 
-#### 撰稿: 东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16-54.png)[图片来源](https://news.yahoo.co.jp/articles/353a0a9474ff241f1b22924271742b23ff72deff/images/000)
-据华盛顿共同社报道，美国南部路易斯安那州新奥尔良市的一家联邦高等法院周四下令，暂停拜登政府要求企业雇员强制接种新冠疫苗政策。因其引发了“严重的法律和宪法问题”。该诉讼是由各公司和反对派共和党担任州长的州提出的。
+**撰稿：Grace**
 
-根据拜登政府宣布的应对新冠病毒的行动指南，职业安全与健康管理局（OSHA）4日，要求员工人数超过 100 人的公司，必须做到全员接种，亦或每周进行一次测试。并宣布将在明年1月4日之后对违规行为处以14,000美元的罚款。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-07-123554.jpg)图片来源：Libertaswritters
+据匹兹堡CBS 11月6日报道，在当日，美国第五巡回上诉法院 (the U.S. Court of Appeals for the Fifth Circuit)对拜登政府的强制中共病毒疫苗规定发布了临时禁令。
 
-随时美国2022中期选举共和党力挽狂澜，卷土重来，以其稳操胜券之势，拜登政府的疫苗强制接种令在各个州终会偃旗息鼓。让我们为之祈祷，公道自在人心！
+在11月4日， 拜登政府利用职业安全与健康管理局（OSHA）的一项规则，要求拥有100名或以上员工的私营公司必须在2022年1月4日前，强制要求其员工接种中共病毒疫苗或对员工进行定期测试，否则将面临巨额罚款。
 
-信息源:
+而Townhall 称，联邦法院的这项裁决是在得克萨斯州、犹他州、路易斯安那州、密西西比州和南卡罗来纳州的州检察长以及私营企业提起诉讼后作出的。
 
-[ワクチン義務化、一時差し止め　米高裁、各州など提訴](https://news.yahoo.co.jp/articles/353a0a9474ff241f1b22924271742b23ff72deff)
+法院发出的文件写道：“由于请愿书使人相信强制规定存在严重的法律和宪法问题，因此强制规定被暂停，等待本法院的进一步行动”。联邦法院命令拜登政府在周一之前对永久禁令的动议作出回应，而原告必须在周二之前提交他们可能有的任何答复。德州总检察长肯.帕克斯顿(Ken Paxton)强调，他们赢了，但这并不是道路的终点。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+路易斯安那州总检察长杰夫.兰德里(Jeff Landry)指出， “总统不会在没有宪法规定的制衡下将医疗程序强加给美国人民”。但是，法院 “也要求我们进行明智的审查”。法律顾问萨拉.哈比森(Sarah Harbison)说：”我相信，法院将看到强制疫苗规定的真实面目-绕过国会制定法律的企图。”
+
+Townhall 称，不仅在第五巡回法院有反对强制疫苗的诉讼，其他地方也有这样的诉讼，比如，在第六巡回法院代表就业创造者网络（JCN）的诉讼，和在第八巡回法院代表《每日电讯报》提起的诉讼。
+
+匹兹堡CBS报道说，目前至少有27个州在几个巡回法院提起诉讼，挑战拜登政府的强制中共病毒疫苗规定。
+
+**新闻来源： **[Federal Appeals Court Issues Temporary Halt On Biden Administration’s Vaccine Requirement](https://pittsburgh.cbslocal.com/2021/11/06/5th-circuit-court-of-appeals-halts-vaccine-mandate/)
+
+[BREAKING: Federal Court Stays Biden Vaccine Mandate for Private Businesses](https://townhall.com/tipsheet/rebeccadowns/2021/11/06/fifth-circuit-appeals-court-stays-president-joe-bidens-vaccine-mandate-n2598690)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
