@@ -2,36 +2,51 @@
 ---
 
 
-## 首位被引渡的中共间谍 法庭裁定罪成
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1646685/)
+## 纽约当选市长解释“重新审视”疫苗强制令
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1646731/)
 
-作者：MOS – 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月5日，美国俄亥俄州开庭审理了一宗涉及中共的间谍案，案件当中，徐某是首位被引渡到美国受审的中共间谍。对此，联邦陪审团一致裁定，中共间谍徐某罪名成立。
+**编译：lulumi**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip155.png)2021年11月2日，纽约市当选市长埃里克·亚当斯（Eric Adams）在纽约市布鲁克林万豪酒店举行的2021年选举胜利之夜派对上对支持者讲话。(Angela Weiss/AFP via Getty Images)
+纽约市当选市长周五解释了他说要“重新审视”该市对工人的COVID-19疫苗强制令时的意思。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-3.jpeg)
+亚当斯在周三的一次有线电视节目中说：“我们需要重新审视我们将如何解决疫苗任务。”
 
-据悉，徐某被指控从美国航空企业盗取商业秘密，而美国司法部对其的控告罪名包括：阴谋和企图实施经济间谍行为，以及盗窃商业机密罪。
+亚当斯说，他将鼓励市长比尔·德布拉西奥（Bill de Blasio）与工会交谈，因为各方试图就如何处理豁免申请和其他细节达成协议。
 
-根据法庭文件显示，徐某曾使用多个身份进行间谍行为，其目标主要针对美国及海外的航空企业，试图盗取包含通用电气飞机引擎的复合材料叶片在内的各类航空相关技术。
+这些评论让一些人表示乐观，认为亚当斯会放宽强制令，这是全国最严厉的任务之一。
 
-FBI助理局长艾伦指出， “这是由国家主导的间谍行为，其目的在于试图摧毁美国的经济”。 助理司法部长墨菲也称赞了美国法庭的裁决。
+11月5日，亚当斯在接受CNN采访时被问及他的意思。
 
-参考链接：[Chinese spy convicted of trying to steal U.S. aviation secrets in historic trial](https://justthenews.com/government/security/chinese-spy-convicted-trying-stealing-us-aviation-secrets-historic-trial)
+亚当斯首先赞扬了德布拉西奥能够与四个主要工会达成协议，然后强调了与工会领导人对话的重要性。他还表示，他可以改变对那些声称有宗教豁免权的人的处理方式。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+“我会关注的一个领域是，如果你有一个家长因为宗教原因而有能力不为他们的任何孩子接种疫苗，我们不能突然改变这一规则，”他说。
 
-总编：Jack Li文阳
-编辑：Ivy001
-校正/发稿：谐趣园
+他说：“如果这是这位家长20多年来的一贯做法，那么我们现在必须尊重这一点，即使是现在的（中共病毒）疫苗，这些都是我想要钻研的领域，并确保我们继续取得我们所见证的成功，”他补充说。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+主持人沃尔夫·布利策(Wolf Blitzer)想知道为什么要改变这项强制令，因为自从实施这项任务以来，城市工人的疫苗接种率已经提高到92%。
+
+“因为我们在这方面是成功的，这就是为什么我们可以重新审视，并确保我们得到100%。是什么阻止了后面8%的人？让我们找出来，”亚当斯说。”如果我们不坐下来，真正挖掘是什么阻止了这最后的8%，我们就不会达到我们的目标。”
+
+这位民主党人承认，部分纽约工人可能继续抵制接种中共病毒COVID-19疫苗，但表示希望让至少四分之三的未接种疫苗者接种疫苗。
+
+亚当斯轻松赢得选举，接替任期有限的德布拉西奥，他还表示，导致布鲁克林篮网队的凯里·欧文（Kyrie Irving）本赛季至今没有上场的规则不会被改变。
+
+“纽约市不会改变他们的规则，”他说。
+
+欧文仍然没有接种疫苗，由于市政府的疫苗强制令，他不被允许参加篮网队的主场比赛。由于这种情况，球队正在阻止他参加客场比赛。
+
+**新闻来源**：[**theepochtimes.com**] [New York Mayor-Elect Explains Plans to ‘Revisit’ Vaccine Mandate](https://www.theepochtimes.com/new-york-mayor-elect-explains-plans-to-revisit-vaccine-mandate_4089954.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-11-07)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

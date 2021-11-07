@@ -2,28 +2,39 @@
 ---
 
 
-## 人性的扭曲——告密者
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1646647/)
+## 美国联邦上诉法院冻结拜登政府的企业疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1646716/)
 
-撰稿：东京樱花团/华夏伊人
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-7.jpg)
-[图片来源](https://www.secretchina.com/news/gb/2020/12/01/953955.html):[文革期间，诬陷告密整人者，不乏其人](https://www.secretchina.com/news/gb/2020/12/01/953955.html)
+作者：纽约香草山农场 – 蓝天大海
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月6日，美国联邦第五巡回上诉法院发布命令称，暂时冻结拜登政府发布的企业新冠疫苗强制令。该强制令要求，拥有超过100名员工的美国公司，其所有员工必须接种新冠疫苗或每周接受新冠病毒测试。
 
-告密者是世间最无耻的人，告密挑动了人性灵魂深处最大的、最卑劣的恶。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-5.jpeg)
 
-盛产告密者的地方，一定缺乏良知和人性。小时候，对老师鼓励和表扬告密者，我深恶痛绝；现在，每每看到儿子举报父亲、学生举报老师、员工举报上级、“朝阳大妈”像幽灵一样存在的时候，虽然我并不认识任何一个当事人，但是我的心在流血，感受到了以德报怨，无耻卑鄙的人格带来的对良知和人性的伤害。
+巡回法院给出的冻结理由是，该强制令存在“严重的法律和宪法”问题，同时，法院要求拜登政府必须在11月8日下午5点前回应法院对新冠疫苗强制令提出的质疑。
 
-当越来越多的人从告密中得到荣誉、鼓励，获得利益的时候，大多数人都会忘记告密是一种令人所不齿的行为，并将告密赋予了某种意识形态上的正确性，堂而皇之地将告密进行到底。久而久之营造出告密的环境，人人自危、相互猜忌、让人恐惧，最终达到剥夺信任感，摧毁社会道德。
+日前，德克萨斯州总检察长肯·帕克斯顿曾就新冠疫苗强制令起诉了拜登政府。检方认为，强制员工接种新冠疫苗或每周接受病毒检测的命令是“滥用权利”且“完全违宪”，为此，检方要求法院下令取消该强制令。
 
-科技的发展本应是为人类带来方便和安全的，但事实上，我们所依赖的科技巨头却助纣为虐变相地成为最大的告密者。传统的告密者也许会选择性的告密，而如今告密在高科技的加持下，已经变得随时随地无处不在：摄像头时刻监视着你的一举一动；社交媒体时刻监控着你的言论，大数据对你的个人信息了如指掌，最终的结果是：我们每一个人都在不知不觉中裸奔。
+在赢得初步胜利后，帕克斯顿总检察长表示，关于新冠疫苗的斗争尚未结束，他将继续反对和抵制联邦政府的一切越权和违宪行为。
 
-告密带给民族、国家和人们的是灾难。顾彦武先生的至理名言：政权倒了是亡国，道德倒了是亡天下。希望世界能够醒来，恢复人性和良知，重拾道德，从我们穿上被动脱下的每一件衣服开始吧！
+参考链接：
+1）[https://gettr.com/post/pg8ksk6ac7](https://gettr.com/post/pg8ksk6ac7)
+2）[https://gettr.com/post/pg9n1i0b88](https://gettr.com/post/pg9n1i0b88)
+3）[Federal Appeals Court Blocks Biden’s ‘Big-Company’ Vaxx-Mandate](https://www.zerohedge.com/political/federal-appeals-court-blocks-bidens-big-company-vaxx-mandate)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
+总编：Irene木木
+编辑：文特
+校正/发稿：谐趣园
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

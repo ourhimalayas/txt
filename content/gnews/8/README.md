@@ -2,10 +2,10 @@
 ---
 
 
-## 终极格斗冠军赛主席说他不会强制要求选手们接种疫苗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1646743/)
+## 纽约市民抗议强制给小孩接种疫苗
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1646806/)
 
-11/06/2021 终极格斗冠军赛主席达纳·怀特表示他不会强制要求选手们接种疫苗，在纽约以外，观众无论是否接种了疫苗都可以去现场看比赛。
+11/04/2021 纽约市民抗议强制给小孩接种疫苗。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

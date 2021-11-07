@@ -2,51 +2,31 @@
 ---
 
 
-## 纽约当选市长解释“重新审视”疫苗强制令
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1646731/)
+## 有声|欧洲央行表示需要发行数字货币
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1646796/)
 
-**编译：lulumi**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip155.png)2021年11月2日，纽约市当选市长埃里克·亚当斯（Eric Adams）在纽约市布鲁克林万豪酒店举行的2021年选举胜利之夜派对上对支持者讲话。(Angela Weiss/AFP via Getty Images)
-纽约市当选市长周五解释了他说要“重新审视”该市对工人的COVID-19疫苗强制令时的意思。
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+欧洲央行执委帕内塔(Fabio Panetta)11月5日表示，欧洲央行有必要发行数字欧元，如将发起的空间完全让给稳定币等私营部门，可能会危及金融稳定，削弱央行的作用。
 
-亚当斯在周三的一次有线电视节目中说：“我们需要重新审视我们将如何解决疫苗任务。”
+帕内塔表示，历史证明，金融稳定和公众对货币的信任需要公共货币和私人货币一道被广泛使用。
 
-亚当斯说，他将鼓励市长比尔·德布拉西奥（Bill de Blasio）与工会交谈，因为各方试图就如何处理豁免申请和其他细节达成协议。
+欧洲央行一直在致力于设计一种数字货币，像现金一样直接由央行发行，并已于7月14日宣布启动数字欧元项目并展开相关调研，预计该项目仍可能需要大约五年时间才能推出一种真正的货币。
 
-这些评论让一些人表示乐观，认为亚当斯会放宽强制令，这是全国最严厉的任务之一。
+全球数字货币热潮升温，喜马拉雅币在上市后短短3天内创下了价格上涨200倍的记录，其估值已经突破2万亿美元。
 
-11月5日，亚当斯在接受CNN采访时被问及他的意思。
+文字版原文：[欧洲央行表示需要发行数字货币](https://gnews.org/zh-hans/1644507/)
 
-亚当斯首先赞扬了德布拉西奥能够与四个主要工会达成协议，然后强调了与工会领导人对话的重要性。他还表示，他可以改变对那些声称有宗教豁免权的人的处理方式。
-
-“我会关注的一个领域是，如果你有一个家长因为宗教原因而有能力不为他们的任何孩子接种疫苗，我们不能突然改变这一规则，”他说。
-
-他说：“如果这是这位家长20多年来的一贯做法，那么我们现在必须尊重这一点，即使是现在的（中共病毒）疫苗，这些都是我想要钻研的领域，并确保我们继续取得我们所见证的成功，”他补充说。
-
-主持人沃尔夫·布利策(Wolf Blitzer)想知道为什么要改变这项强制令，因为自从实施这项任务以来，城市工人的疫苗接种率已经提高到92%。
-
-“因为我们在这方面是成功的，这就是为什么我们可以重新审视，并确保我们得到100%。是什么阻止了后面8%的人？让我们找出来，”亚当斯说。”如果我们不坐下来，真正挖掘是什么阻止了这最后的8%，我们就不会达到我们的目标。”
-
-这位民主党人承认，部分纽约工人可能继续抵制接种中共病毒COVID-19疫苗，但表示希望让至少四分之三的未接种疫苗者接种疫苗。
-
-亚当斯轻松赢得选举，接替任期有限的德布拉西奥，他还表示，导致布鲁克林篮网队的凯里·欧文（Kyrie Irving）本赛季至今没有上场的规则不会被改变。
-
-“纽约市不会改变他们的规则，”他说。
-
-欧文仍然没有接种疫苗，由于市政府的疫苗强制令，他不被允许参加篮网队的主场比赛。由于这种情况，球队正在阻止他参加客场比赛。
-
-**新闻来源**：[**theepochtimes.com**] [New York Mayor-Elect Explains Plans to ‘Revisit’ Vaccine Mandate](https://www.theepochtimes.com/new-york-mayor-elect-explains-plans-to-revisit-vaccine-mandate_4089954.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-11-07)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
-
-
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
