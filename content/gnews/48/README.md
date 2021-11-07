@@ -2,51 +2,32 @@
 ---
 
 
-## 中共病毒疫苗诱发的心肌炎比自然感染严重100倍
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1644308/)
+## 香港新闻自由持续恶化，近半数记者计划离港
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1644619/)
 
-**撰稿：日本东京方舟农场  北极**
+作者：英国喜庄园 – I770775
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+近日，根据香港外国记者会的调查，近半数驻港记者正考虑或计划离开香港，超过八成的受访者都认同，香港的新闻业工作环境已“明显恶化”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture100000.jpg)
+除了言论环境的糟糕，导致驻港记者要离开的原因还有个人安全问题。许多人反映，他们对香港的网络或实体监控感到恐惧。
 
-“秘密翻译组”11月4日发布在GNEWS上的一段视频揭示，接种中共病毒疫苗所诱发的心肌炎，其严重程度超过自然感染中共病毒所引发心肌炎的10-100倍。
+中共强推《香港国安法》以来，香港言论自由遭受严重破坏，香港新闻自由持续恶化。
 
-在该视频中，来自德克萨斯州的彼得·麦卡洛（Peter McCullough）博士指出，感染中共病毒所导致的心肌炎，症状轻微，不会导致严重后果，仅会在血液化验中观察到肌钙蛋白升高。
+参考链接：[香港新闻自由持续恶化，近半数记者计划离港](https://amp.dw.com/zh/%E8%B0%83%E6%9F%A5%E8%BF%91%E5%8D%8A%E6%95%B0%E9%A9%BB%E9%A6%99%E6%B8%AF%E8%AE%B0%E8%80%85%E8%AE%A1%E5%88%92%E7%A6%BB%E6%B8%AF/a-59728202)
 
-麦卡洛博士进一步指出，接种中共病毒疫苗所诱发的心肌炎，症状严重。因为疫苗中的脂质纳米颗粒直接进入心脏，引发剧烈的心电图变化、胸痛和早期心力衰竭，而血液中肌钙蛋白浓度超过病毒感染所导致心肌炎的10-100倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-26.png)图片来自网络
+总编：木白
+编辑：木白
+校对/发稿：Hetangyuese
 
-麦卡洛博士进一步解释说，前期临床研究表明，接种疫苗后，疫苗并未局限在注射部位，而是进入血液，随循环分布全身各个系统。当疫苗中的脂质纳米颗粒到达心脏时，心脏就会表现出因刺突蛋白而产生的反应，从而引起自身免疫系统对心脏展开攻击。
-
-肌钙蛋白是一种针对表征心肌炎引发的心脏损伤的血液检测。根据“实验在线网站”（lab tests online）信息，肌钙蛋白存在于心肌内。当心肌细胞损伤时，肌钙蛋白就会被释放到血循环中。正常情况下，血液中的肌钙蛋白含量非常少；如果发生大面积心肌损伤，血液中就会出现高浓度的肌钙蛋白。麦卡洛博士特别强调，因疫苗引发的心肌炎是一个大问题，比因感染中共病毒引发的心肌炎更严重、更突出，特别是发生在儿童身上，则是表现得尤其严重。
-
-*参考链接：*
-
-[肌钙蛋白](https://labtestsonline.org.cn/tests/troponin)
-
-
-
-> [疫苗诱发的心肌炎比中共病毒引发的心肌炎要严重得多](https://gnews.org/zh-hans/1639362/)
-
-
-
-
-
-> [美国前线医生起诉书(3)：疫苗的风险超过它们的好处](https://gnews.org/zh-hans/1425988/)
-
-
-
-* * *
-
-
-```
-素材采编：北极
-编辑：青衣青青
-校对/发布：Ranting
-```
-
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

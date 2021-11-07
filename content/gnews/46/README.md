@@ -2,34 +2,23 @@
 ---
 
 
-## 美参众院两党议员同时提出“美台公共卫生保护法案”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1644620/)
+## 秘翻在线: 六中全会前 多名维权人士在京失踪
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1644626/)
 
-作者：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-近日，美国政府对台湾表示支持的态度越发明朗。美国国会密集出台各种助台、合作法案。
+撰稿：西枫westca
 
-继共和党籍联邦参议员霍利于11月2日提出“武装台湾法案”、参议院外交委员会共和党籍参议员里契于11月4日联合其他议员提出“台湾吓阻法案”后，共和党籍参议员柯顿及民主党籍众议员肯纳4日分别在参、众两院提出“美台公卫保护法案”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture100000000.jpg)
-该法案要求美国国务卿与卫生部长、及其他相关机构首长协商，从2022年财政年度开始，每年提供135万美元预算，在美国在台协会设立传染病监控中心，指派美国传染病专家进驻，监控区域的公共卫生情况。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/警方統一抓捕行動.jpg)图片来源：www.adhrrf.org
+据大纪元11月6日报道， 在中共六中全会前夕，多名维权人士失踪。
 
-法案要求监控中心必须有来自美国国家卫生研究所、美国疾病管制暨预防中心或美国食品及药物管理局的专家，要求美国国务院、美国国际开发总署等其他相关单位，也至少要指派一人参与，允许监控中心雇用台湾籍人员，并且必须与台湾卫生福利部疾病管制署合作，将研究后的结果提供给美国及台湾政府参考。
+每当中共国有大型会议或敏感日期之前，都会控制在北京居住的维权人士。有人在家中被从老家来的公安前来直接强制遣返，有的在返乡路上，有的下落不明。即使在返回家乡后，他们也不能完全得到自由，当地都会对他们非法拘留。
 
-参考链接：[美参众院两党议员同时提出“美台公共卫生保护法案”](https://www.cna.com.tw/news/aipl/202111060013.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+早在一周前，北京已经开始清理访民，一些出租房也被挨家挨户排查是否有访民居住。进京的路上包括火车、公路都有人盘查，在信访办四周都是截访人员，拦阻访民进京，国家信访局已经不让信访登记。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+中共国一方面打着“人民至上”的旗号，干着“人民至下”，“以人民为敌”的勾当。公检法就是充当打手的职位。任何提出不同意见的民众会被害得四处流浪，无家可归。推翻这样一个邪恶政权，人人有责！
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+**新闻来源：**[六中全会前 多名维权人遭绑架失踪 | 访民 | 维权人士 | 大纪元 (epochtimes.com)](https://www.epochtimes.com/gb/21/11/6/n13357986.htm)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
