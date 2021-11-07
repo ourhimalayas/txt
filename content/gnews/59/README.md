@@ -2,33 +2,23 @@
 ---
 
 
-## 新晋纽约市长力争加密货币先机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1643167/)
+## 秘翻在线: 六中全会前 多名维权人士在京失踪
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1644626/)
 
-作者：英国喜庄园 – I770775
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间11月4日，刚刚胜选的纽约市长亚当斯，公开宣称自己对加密货币情有独钟。他表示，不仅他本人的前三份工资单都要以比特币的形式领取，而且他会努力把纽约转变为一个对加密货币友好的城市，争夺美国加密货币的首都地位。亚当斯坚信：“纽约市将成为加密货币行业的中心”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture113.jpg)
-加密货币以其私密性、安全性和便捷性，正受到世界越来越多人的欢迎，其被政府用作法币也将成为大势所趋。最近刚刚诞生的喜联储的加密数字货币Hcoin，与黄金挂钩，责任中心化，将成为加密货币中最卓越的选择。
+撰稿：西枫westca
 
-参考链接：
-1. [新晋纽约市长力争加密货币先机](http://http--www.sinovision.net/society/202111/00506827.htm)
-2. [新晋纽约市长力争加密货币先机](https://blockchain.51cto.com/art/202111/688633.htm)
-3. [新晋纽约市长力争加密货币先机](https://tech.ifeng.com/c/83YyYlKVi6d)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/警方統一抓捕行動.jpg)图片来源：www.adhrrf.org
+据大纪元11月6日报道， 在中共六中全会前夕，多名维权人士失踪。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+每当中共国有大型会议或敏感日期之前，都会控制在北京居住的维权人士。有人在家中被从老家来的公安前来直接强制遣返，有的在返乡路上，有的下落不明。即使在返回家乡后，他们也不能完全得到自由，当地都会对他们非法拘留。
 
-总编：童谣
-编辑：AN
-校对/发稿：Hetangyuese
+早在一周前，北京已经开始清理访民，一些出租房也被挨家挨户排查是否有访民居住。进京的路上包括火车、公路都有人盘查，在信访办四周都是截访人员，拦阻访民进京，国家信访局已经不让信访登记。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+中共国一方面打着“人民至上”的旗号，干着“人民至下”，“以人民为敌”的勾当。公检法就是充当打手的职位。任何提出不同意见的民众会被害得四处流浪，无家可归。推翻这样一个邪恶政权，人人有责！
+
+**新闻来源：**[六中全会前 多名维权人遭绑架失踪 | 访民 | 维权人士 | 大纪元 (epochtimes.com)](https://www.epochtimes.com/gb/21/11/6/n13357986.htm)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

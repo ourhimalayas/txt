@@ -2,27 +2,30 @@
 ---
 
 
-## 首位被引渡的中共间谍 法庭裁定罪成
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1646685/)
+## 美国联邦上诉法院冻结拜登政府的企业疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1646716/)
 
-作者：MOS – 柳是多水土透
+作者：纽约香草山农场 – 蓝天大海
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月5日，美国俄亥俄州开庭审理了一宗涉及中共的间谍案，案件当中，徐某是首位被引渡到美国受审的中共间谍。对此，联邦陪审团一致裁定，中共间谍徐某罪名成立。
+11月6日，美国联邦第五巡回上诉法院发布命令称，暂时冻结拜登政府发布的企业新冠疫苗强制令。该强制令要求，拥有超过100名员工的美国公司，其所有员工必须接种新冠疫苗或每周接受新冠病毒测试。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-5.jpeg)
 
-据悉，徐某被指控从美国航空企业盗取商业秘密，而美国司法部对其的控告罪名包括：阴谋和企图实施经济间谍行为，以及盗窃商业机密罪。
+巡回法院给出的冻结理由是，该强制令存在“严重的法律和宪法”问题，同时，法院要求拜登政府必须在11月8日下午5点前回应法院对新冠疫苗强制令提出的质疑。
 
-根据法庭文件显示，徐某曾使用多个身份进行间谍行为，其目标主要针对美国及海外的航空企业，试图盗取包含通用电气飞机引擎的复合材料叶片在内的各类航空相关技术。
+日前，德克萨斯州总检察长肯·帕克斯顿曾就新冠疫苗强制令起诉了拜登政府。检方认为，强制员工接种新冠疫苗或每周接受病毒检测的命令是“滥用权利”且“完全违宪”，为此，检方要求法院下令取消该强制令。
 
-FBI助理局长艾伦指出， “这是由国家主导的间谍行为，其目的在于试图摧毁美国的经济”。 助理司法部长墨菲也称赞了美国法庭的裁决。
+在赢得初步胜利后，帕克斯顿总检察长表示，关于新冠疫苗的斗争尚未结束，他将继续反对和抵制联邦政府的一切越权和违宪行为。
 
-参考链接：[Chinese spy convicted of trying to steal U.S. aviation secrets in historic trial](https://justthenews.com/government/security/chinese-spy-convicted-trying-stealing-us-aviation-secrets-historic-trial)
+参考链接：
+1）[https://gettr.com/post/pg8ksk6ac7](https://gettr.com/post/pg8ksk6ac7)
+2）[https://gettr.com/post/pg9n1i0b88](https://gettr.com/post/pg9n1i0b88)
+3）[Federal Appeals Court Blocks Biden’s ‘Big-Company’ Vaxx-Mandate](https://www.zerohedge.com/political/federal-appeals-court-blocks-bidens-big-company-vaxx-mandate)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：Jack Li文阳
-编辑：Ivy001
+总编：Irene木木
+编辑：文特
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

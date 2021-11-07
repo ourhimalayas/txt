@@ -2,26 +2,27 @@
 ---
 
 
-## 蔡崇信：无改变《南华早报》股权计划
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1646561/)
+## 香草山翻译部周刊|2021年11月07日第21期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1646639/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-17.jpg)
-[图片来源](https://www.itsiwei.com/2709.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36.png)
 
-据路透社报道，中共国电子商务巨头阿里巴巴并无意出售香港英文报纸《南华早报》的股权。《南华早报》CEO刘可瑞（Gary Liu）在写给员工的一份信函中称，阿里巴巴的联合创始人蔡崇信希望向员工传达一个信息，即澄清没有改变所有权的计划。刘可瑞引述蔡崇信的话写道，“从来没有进行过关于《南华早报》所有权的任何讨论，阿里巴巴也没有做出任何旨在改变的计划。任何相关的传言或猜测都是没有根据的。”
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/text-CN-1.png)
+文章仅代表作者本人观点，与Gnews无关
 
-路透社称看到这份《南华早报》的内部信函，但该报管理层不愿对此做出任何置评。一位发言人说，任何有关阿里巴巴考虑出售《南华早报》的报导均属“不实”。 上周五（11月5日）彭博社报道，该报道援引消息人士称，隶属于中国财政部的文化央企紫荆文化（香港）集团，对于从阿里巴巴集团手中收购香港老牌报纸《南华早报》感兴趣。该报道还指出，其他由国家支持的实体也可能寻求收购《南华早报》，并补充说，收购交易不一定会发生。
+总编： GBWater
+编辑：Lakers
+发稿：Lakers
 
-创刊于1903年的《南华早报》已经有118年历史，是香港销量最高的英语报纸。 阿里巴巴于2015年底收购了南华早报集团，在当时引起了很大争议，被认为是一起政治高度敏感的收购案，让人担心这份报纸是否会采取亲中立场、收窄新闻自由的空间。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 
-信息来源：
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[阿里巴巴联合创始人蔡崇信：无改变《南华早报》股权计划](https://www.dw.com/zh/%E9%98%BF%E9%87%8C%E5%B7%B4%E5%B7%B4%E8%81%94%E5%90%88%E5%88%9B%E5%A7%8B%E4%BA%BA%E8%94%A1%E5%B4%87%E4%BF%A1%E6%97%A0%E6%94%B9%E5%8F%98%E5%8D%97%E5%8D%8E%E6%97%A9%E6%8A%A5%E8%82%A1%E6%9D%83%E8%AE%A1%E5%88%92/a-59746588)
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

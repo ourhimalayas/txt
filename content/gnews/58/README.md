@@ -2,51 +2,24 @@
 ---
 
 
-## 中共病毒疫苗诱发的心肌炎比自然感染严重100倍
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1644308/)
+## 中共国盐业调味料集体宣布涨价
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1644978/)
 
-**撰稿：日本东京方舟农场  北极**
+#### 撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5646.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Fblog%2Fcrawl%2F127%2Fw550h377%2F20211104%2Fcbb4-77eaeed5c45b12f0ed19a14f32f1fdd3.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.sina.com.cn%2Fstock%2Fhyyj%2F2021-11-04%2Fdoc-iktzscyy3666043.shtml&amp;tbnid=3hEjT5NknpXxrM&amp;vet=12ahUKEwjio6_c-YP0AhUOvpQKHVRoAiUQMygHegQIARAl..i&amp;docid=uw65k9eXh6lToM&amp;w=550&amp;h=377&amp;q=%E4%B8%AD%E5%85%B1%E5%9B%BD%E7%9B%90%E4%B8%9A%E8%B0%83%E5%91%B3%E6%96%99%E9%9B%86%E4%BD%93%E5%AE%A3%E5%B8%83%E6%B6%A8%E4%BB%B7&amp;hl=zh-CN&amp;ved=2ahUKEwjio6_c-YP0AhUOvpQKHVRoAiUQMygHegQIARAl)
+腾讯新闻近日报道，继雪天盐业称小包食盐出厂价近期陆续提价后，云南能投也透露，对部分食盐产品及工业盐产品价格进行了上调，综合平均调价幅度30%-35%不等。
 
-“秘密翻译组”11月4日发布在GNEWS上的一段视频揭示，接种中共病毒疫苗所诱发的心肌炎，其严重程度超过自然感染中共病毒所引发心肌炎的10-100倍。
+前几日，加加食品对加加酱油、蚝油、料酒、鸡精和醋系列产品的出厂价格上调3%-7%不等的新闻，造成一种市场整体涨价的趋势，带来新一轮“涨价潮”。
 
-在该视频中，来自德克萨斯州的彼得·麦卡洛（Peter McCullough）博士指出，感染中共病毒所导致的心肌炎，症状轻微，不会导致严重后果，仅会在血液化验中观察到肌钙蛋白升高。
+中共国盐业公司集体宣布涨价，同时调味料也宣布涨价，今年以来，煤炭、人工、运输及包装成本纷纷上涨，而关乎民生的日用产品的食盐集体涨价，会带动食品市场联动效应，未来会对基层居民的生活雪上加霜。
 
-麦卡洛博士进一步指出，接种中共病毒疫苗所诱发的心肌炎，症状严重。因为疫苗中的脂质纳米颗粒直接进入心脏，引发剧烈的心电图变化、胸痛和早期心力衰竭，而血液中肌钙蛋白浓度超过病毒感染所导致心肌炎的10-100倍。
+信息来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-26.png)图片来自网络
+[多家食品上市公司回应调价计划，盐业公司集体宣布涨价](https://ms.mbd.baidu.com/r/vXuXLGAjq8?f=cp&amp;rs=1463287175&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=0645fe06bb241a9b)
 
-麦卡洛博士进一步解释说，前期临床研究表明，接种疫苗后，疫苗并未局限在注射部位，而是进入血液，随循环分布全身各个系统。当疫苗中的脂质纳米颗粒到达心脏时，心脏就会表现出因刺突蛋白而产生的反应，从而引起自身免疫系统对心脏展开攻击。
-
-肌钙蛋白是一种针对表征心肌炎引发的心脏损伤的血液检测。根据“实验在线网站”（lab tests online）信息，肌钙蛋白存在于心肌内。当心肌细胞损伤时，肌钙蛋白就会被释放到血循环中。正常情况下，血液中的肌钙蛋白含量非常少；如果发生大面积心肌损伤，血液中就会出现高浓度的肌钙蛋白。麦卡洛博士特别强调，因疫苗引发的心肌炎是一个大问题，比因感染中共病毒引发的心肌炎更严重、更突出，特别是发生在儿童身上，则是表现得尤其严重。
-
-*参考链接：*
-
-[肌钙蛋白](https://labtestsonline.org.cn/tests/troponin)
-
-
-
-> [疫苗诱发的心肌炎比中共病毒引发的心肌炎要严重得多](https://gnews.org/zh-hans/1639362/)
-
-
-
-
-
-> [美国前线医生起诉书(3)：疫苗的风险超过它们的好处](https://gnews.org/zh-hans/1425988/)
-
-
-
-* * *
-
-
-```
-素材采编：北极
-编辑：青衣青青
-校对/发布：Ranting
-```
-
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
