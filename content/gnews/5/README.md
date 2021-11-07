@@ -2,36 +2,47 @@
 ---
 
 
-## 首位被引渡的中共间谍 法庭裁定罪成
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1646685/)
+## 美国取消与主要 COVID-19 疫苗制造商的合同
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1646783/)
 
-作者：MOS – 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月5日，美国俄亥俄州开庭审理了一宗涉及中共的间谍案，案件当中，徐某是首位被引渡到美国受审的中共间谍。对此，联邦陪审团一致裁定，中共间谍徐某罪名成立。
+**编译：JennyBall**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-3.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip156.png)紧急情况生物解决方案工厂是强生公司 COVID-19 疫苗的制造合作伙伴，于 2021 年 4 月 9 日出现在马里兰州巴尔的摩。（索尔勒布/法新社通过盖蒂图片社Saul Loeb/AFP via Getty Images）
 
-据悉，徐某被指控从美国航空企业盗取商业秘密，而美国司法部对其的控告罪名包括：阴谋和企图实施经济间谍行为，以及盗窃商业机密罪。
+美国政府取消了与紧急情况生物解决方案工厂（Emergent BioSolutions）的合同，该公司是一家主要疫苗制造商，因强生公司的 COVID-19 疫苗的 1500 万剂疫苗批次不良而受到调查。
 
-根据法庭文件显示，徐某曾使用多个身份进行间谍行为，其目标主要针对美国及海外的航空企业，试图盗取包含通用电气飞机引擎的复合材料叶片在内的各类航空相关技术。
+这家总部位于马里兰州的公司在一份收益报告中表示，卫生与公共服务部和 Emergent 共同同意于 11 月 1 日终止合同。
 
-FBI助理局长艾伦指出， “这是由国家主导的间谍行为，其目的在于试图摧毁美国的经济”。 助理司法部长墨菲也称赞了美国法庭的裁决。
+取消意味着合同减少了约 1.8 亿美元。
 
-参考链接：[Chinese spy convicted of trying to steal U.S. aviation secrets in historic trial](https://justthenews.com/government/security/chinese-spy-convicted-trying-stealing-us-aviation-secrets-historic-trial)
+该合同于 2012 年 6 月达成。其中包括制造癌症和结核病疫苗的疗法。 2020 年，它扩大到包括第三方 COVID-19 疫苗和疗法的制造。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+但 Emergent 在一批强生疫苗原料药方面的工作，被确定毁掉了大约 1500 万剂疫苗。那里的工人混合了强生注射剂和阿斯利康疫苗的成分。
 
-总编：Jack Li文阳
-编辑：Ivy001
-校正/发稿：谐趣园
+这个问题将强生疫苗的推出推迟了几个月。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+拜登政府任命强生公司负责疫苗生产，但据报道，监管机构后来决定，需要再丢弃 6000 万剂疫苗。
+
+该监管机构在 4 月份公布的一份报告中表示，食品和药物管理局（FDA）的调查人员后来发现，该工厂的条件不合格，包括地板上的黑色残留物和各个房间的油漆剥落，以及废物处理不足和材料过度拥挤。
+
+他们说，工人没有遵循标准协议来防止交叉污染。
+
+Emergent 当时在一份声明中表示，它“致力于与 FDA 和强生公司合作，以迅速解决所发现的问题。”
+
+**评论：昨天联邦第五上诉法院已经命令暂停拜登政府的疫苗强制令，现在美国政府已经取消了与紧急情况生物解决方案工厂的合同。一切已经开始！反抗疫苗的胜利，就是人类免受强权政府和中共邪恶势力, 拥有自由的未来的开始！**
+
+**新闻来源**：[theepochtimes.com][US Cancels Contract With Major COVID-19 Vaccine Manufacturer](https://www.theepochtimes.com/mkt_morningbrief/us-cancels-contract-with-major-covid-19-vaccine-manufacturer_4090080.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-11-07&amp;mktids=8f6850ca508e34d23651239c0ee807b6&amp;est=N9jAEqRqJpMus1RzOazc2ipBvfYZv%2FMrlQHwdJbb7CfaY%2FkZS2FA2jSBnECK%2B8NA7iFx9w%3D%3D)
+
+* * *
+
+***审核：文乐
+校对：信心满满
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

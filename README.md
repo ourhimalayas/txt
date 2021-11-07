@@ -15,140 +15,140 @@
 
 ---
 
-### [本·卡尔森：儿童不应注射中共病毒疫苗，这是场大型实验](/content/gnews/1/README.md)
+### [疫苗强制令是基于医疗和接种状况的新型种族隔离制度](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [给儿童注射中共病毒疫苗与历史上的儿童献祭没有区别](/content/gnews/2/README.md)
+### [纽约市民抗议强制给小孩接种疫苗](/content/gnews/2/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共的打土豪运动继续蔓延](/content/gnews/3/README.md)
+### [辉瑞与多国签霸王合同，疫苗恐怖主义横行](/content/gnews/3/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [深圳市政府官员威胁佳兆业理财产品受害者](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国取消与主要 COVID-19 疫苗制造商的合同](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|华尔街下调对中共国经济增长预期](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [一女士讲述辉瑞疫苗第三针导致的严重副作用](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [终极格斗冠军赛主席说他不会强制要求选手们接种疫苗](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [疾控中心主任反复回避关于其员工的疫苗接种率的问题](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [纽约当选市长解释“重新审视”疫苗强制令](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [本·卡尔森：儿童不应注射中共病毒疫苗，这是场大型实验](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国联邦上诉法院冻结拜登政府的企业疫苗强制令](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [文贵爆料 7/11: 留住喜币，草根也能笑傲江湖](/content/gnews/4/README.md)
+### [纽约当选市长亚当斯表示，他的前三份薪水用比特币支付](/content/gnews/13/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [给儿童注射中共病毒疫苗与历史上的儿童献祭没有区别](/content/gnews/14/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共的打土豪运动继续蔓延](/content/gnews/15/README.md)
+ ` GTV新闻访谈`
+
+### [文贵爆料 7/11: 留住喜币，草根也能笑傲江湖](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [首位被引渡的中共间谍 法庭裁定罪成](/content/gnews/5/README.md)
+### [首位被引渡的中共间谍 法庭裁定罪成](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [中共为了成功举办冬奥会，掩盖每天因疫苗死亡达十万人的事实](/content/gnews/6/README.md)
+### [中共为了成功举办冬奥会，掩盖每天因疫苗死亡达十万人的事实](/content/gnews/18/README.md)
  ` 首尔天池农场`
 
-### [人性的扭曲——告密者](/content/gnews/7/README.md)
+### [人性的扭曲——告密者](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [香草山翻译部周刊|2021年11月07日第21期](/content/gnews/8/README.md)
+### [香草山翻译部周刊|2021年11月07日第21期](/content/gnews/20/README.md)
  ` 纽约香草山MOS01`
 
-### [银河快讯：日本地热发电站增加三倍；本田将在印度为三轮车提供电池共享](/content/gnews/9/README.md)
+### [银河快讯：日本地热发电站增加三倍；本田将在印度为三轮车提供电池共享](/content/gnews/21/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [朝鲜半岛：正式结束战争，还是再燃战火？](/content/gnews/10/README.md)
+### [朝鲜半岛：正式结束战争，还是再燃战火？](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|英国西敏公学中止在中共国建校计划](/content/gnews/11/README.md)
+### [有声|英国西敏公学中止在中共国建校计划](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [南希·佩洛西语无伦次引热议](/content/gnews/12/README.md)
+### [南希·佩洛西语无伦次引热议](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [蔡崇信：无改变《南华早报》股权计划](/content/gnews/13/README.md)
+### [蔡崇信：无改变《南华早报》股权计划](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|喜币上市开辟了共同创造与财富管理的人类新纪元](/content/gnews/14/README.md)
+### [有声|喜币上市开辟了共同创造与财富管理的人类新纪元](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [中共国用拉闸限电达到涨价目的](/content/gnews/15/README.md)
+### [中共国用拉闸限电达到涨价目的](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【 #佳兆业 旗下理财产品未能如期兑付】](/content/gnews/16/README.md)
+### [【 #佳兆业 旗下理财产品未能如期兑付】](/content/gnews/28/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [有声|中共国多地出现粮食抢购现象](/content/gnews/17/README.md)
+### [有声|中共国多地出现粮食抢购现象](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [【 #未来货币 的形式】💸💳🪙](/content/gnews/18/README.md)
+### [【 #未来货币 的形式】💸💳🪙](/content/gnews/30/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [文贵爆料（11/7）：班农第三次改变世界：德州巡回法院对拜登政府发出禁制令](/content/gnews/19/README.md)
+### [文贵爆料（11/7）：班农第三次改变世界：德州巡回法院对拜登政府发出禁制令](/content/gnews/31/README.md)
  ` 秘密翻译组-原创组`
 
-### [数千名拒绝接种疫苗的情报人员可能被开除](/content/gnews/20/README.md)
+### [数千名拒绝接种疫苗的情报人员可能被开除](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|北京人大代表独立参选人成中共阶级敌人（709维权律师家属宣布独立参选区县人大代表续报）](/content/gnews/21/README.md)
+### [有声|北京人大代表独立参选人成中共阶级敌人（709维权律师家属宣布独立参选区县人大代表续报）](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [11/07/21 香港快讯 12 港人案 于内地服刑 10 个月 邓棨然家书问《攻壳》 狱中接受劳教考核](/content/gnews/22/README.md)
+### [11/07/21 香港快讯 12 港人案 于内地服刑 10 个月 邓棨然家书问《攻壳》 狱中接受劳教考核](/content/gnews/34/README.md)
  ` 英喜-粵語組`
 
-### [11/7/2021国内经济财经周报：喜币上市5一周涨势喜人；港股本周跌跌不休](/content/gnews/23/README.md)
+### [11/7/2021国内经济财经周报：喜币上市5一周涨势喜人；港股本周跌跌不休](/content/gnews/35/README.md)
  ` 秘密翻译组金融团队`
 
-### [共和党出手抵制！联邦上诉法院冻结拜登政府疫苗接种令](/content/gnews/24/README.md)
+### [共和党出手抵制！联邦上诉法院冻结拜登政府疫苗接种令](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【美国推出带有 #加密货币 基础设施的法案】📣📣](/content/gnews/25/README.md)
+### [【美国推出带有 #加密货币 基础设施的法案】📣📣](/content/gnews/37/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [樱花灭共诗——辛丑寒衣节](/content/gnews/26/README.md)
+### [樱花灭共诗——辛丑寒衣节](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【 #美国债 十大持有国 Top Ten Foreign Holders of U.S. Debt 】📣📣📣](/content/gnews/27/README.md)
+### [【 #美国债 十大持有国 Top Ten Foreign Holders of U.S. Debt 】📣📣📣](/content/gnews/39/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [关于中共六中全会，日本媒体如是说](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [立法者：福奇的机构未能监督风险实验](/content/gnews/29/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [DC每日热点1107](/content/gnews/30/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [【信仰之声】对70多年苦难的反思](/content/gnews/31/README.md)
+### [【信仰之声】对70多年苦难的反思](/content/gnews/40/README.md)
  ` 纽约香草山MOS03`
 
-### [文贵视角:「相信」与「信仰」不是一回事](/content/gnews/32/README.md)
+### [文贵视角:「相信」与「信仰」不是一回事](/content/gnews/41/README.md)
  ` 秘密翻译组-原创组`
 
-### [秘翻在线：恒大出售两架湾流G650喷气机以偿还外国债权人](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [11/5/2021 文贵直播：美国共和党大赢，若中共胆敢对台湾动武，美国三分钟就可以摧毁它](/content/gnews/34/README.md)
- ` 秘密翻译组-北美组`
-
-### [日本无印良品商标遭中企侵权案山寨再次告赢正版](/content/gnews/35/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [秘翻在线：癌症，心梗，脑梗等病亡人数频发，或将成为疫苗时代的常态](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [联邦尚未付疫苗所致伤害与死亡—-不知联邦有特殊资金](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [我们不能在技术上依赖中国（二）](/content/gnews/38/README.md)
+### [我们不能在技术上依赖中国（二）](/content/gnews/42/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国情报员在美国被判间谍罪](/content/gnews/39/README.md)
+### [中共国情报员在美国被判间谍罪](/content/gnews/43/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [真实鬼故事](/content/gnews/40/README.md)
+### [真实鬼故事](/content/gnews/44/README.md)
  ` 银河勇气之星`
 
-### [我们不能在技术上依赖中国（一）](/content/gnews/41/README.md)
+### [我们不能在技术上依赖中国（一）](/content/gnews/45/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [澳防长呼吁马克龙放下两国分歧 共同对抗中共](/content/gnews/42/README.md)
- ` GTV新闻访谈`
-
-### [欧盟议员代表团正式访问台湾](/content/gnews/43/README.md)
- ` GTV新闻访谈`
-
-### [美国务院发言人首次提出与中共不同的“一中政策”](/content/gnews/44/README.md)
- ` GTV新闻访谈`
-
-### [班农先生谈喜币上市的意义](/content/gnews/45/README.md)
- ` GTV新闻访谈`
 
 ### [台湾前线｜4大公投涉及台湾存亡 却沦为政治操弄](/content/gnews/46/README.md)
  ` G&#124;News TAIWAN`

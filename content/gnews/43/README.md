@@ -2,41 +2,20 @@
 ---
 
 
-## 欧盟议员代表团正式访问台湾
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645985/)
+## 中共国情报员在美国被判间谍罪
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1646165/)
 
-作者：香草山农场 文真
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11061-bbc.jpg)图片来自BBC
+英国《金融时报》报道称：一名中共国情报员在美国因窃取通用电气公司的机密而被判有罪。来自江苏省的许艳军在比利时于2018年被捕后受到五项罪名指控，因为他试图窃取由GE独家制造的飞机发动机特别冷却系统的秘密。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国联邦调查局反情报部门副主任艾伦·科勒说  ：“对于那些仍然怀疑中共国真实意图的人来说，这一定是一个警钟，中共国想要窃取美国的机密，以造福他们自己的国防和工业”。
 
-当地时间11月3日，欧盟“外国干涉民主进程委员会”的13名成员组团抵达台湾，进行了为期三天的官方访问——这是欧盟议会首次派遣官方代表团访问台湾。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1107AM（1-9）視頻備用.003.jpeg)
-在访问的过程中，代表团与蔡英文总统和数位部长唐凤进行了会晤，并访问了台湾的智囊团、非政府组织和其他致力于打击虚假信息的组织。
+英国金融报纸强调：这标志着美国的一个巨大胜利。美国安全机构长期以来一直对中共国企图接管美国先进技术，特别是在人工智能和量子领域的企图发出警告。
 
-代表团团长、法国籍欧盟议会议员格鲁克斯曼称赞，台湾民主的蓬勃发展令人敬畏。他还强调，专制政权不是未来。
+原文链接：[https://www.repubblica.it/esteri/2021/11/06/news/intelligence\_cina\_general\_electric\_segreti\_spionaggio\_industriale\_usa-325310902/](https://www.repubblica.it/esteri/2021/11/06/news/intelligence_cina_general_electric_segreti_spionaggio_industriale_usa-325310902/)
 
-近期，台湾与欧盟的双边整体关系与合作交流程度不断提升。上个月，台湾外交部长吴钊燮对欧洲多国以及欧盟总部进行了访问。随后，欧盟议会通过了首份“欧盟-台湾政治关系与合作”报告，目的在于加强欧盟的对台合作，旨在共同对抗中共专制政权的侵犯。
-
-参考链接：
-
-1. [European Union Lawmakers Meet Taiwan Premier in First Official Visit](https://www.breitbart.com/europe/2021/11/06/european-union-lawmakers-meet-taiwan-premier-in-first-official-visit/)
-2. [欧洲议会官方代表团首访台湾 台北称意义重大](https://www.voachinese.com/a/taiwan-european-parliament-20211103/6297920.html)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
-
-总编：Irene木木
-编辑：Ivy001
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

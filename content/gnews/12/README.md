@@ -2,61 +2,39 @@
 ---
 
 
-## 南希·佩洛西语无伦次引热议
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1646562/)
+## 美国联邦上诉法院冻结拜登政府的企业疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1646716/)
 
-翻译：Lulumi
+作者：纽约香草山农场 – 蓝天大海
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月6日，美国联邦第五巡回上诉法院发布命令称，暂时冻结拜登政府发布的企业新冠疫苗强制令。该强制令要求，拥有超过100名员工的美国公司，其所有员工必须接种新冠疫苗或每周接受新冠病毒测试。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-9-1.jpg)图片来源：conservativebrief.com
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-5.jpeg)
 
-佩洛西陷入不连贯的胡言乱语后，人们的关注度越来越高。
+巡回法院给出的冻结理由是，该强制令存在“严重的法律和宪法”问题，同时，法院要求拜登政府必须在11月8日下午5点前回应法院对新冠疫苗强制令提出的质疑。
 
-矩阵是不是出小故障了？如果有的话，谁能帮忙解释一下众议院议长、加州议员南希·佩洛西在说什么？
+日前，德克萨斯州总检察长肯·帕克斯顿曾就新冠疫苗强制令起诉了拜登政府。检方认为，强制员工接种新冠疫苗或每周接受病毒检测的命令是“滥用权利”且“完全违宪”，为此，检方要求法院下令取消该强制令。
 
-众议院议长本周举行了每周一次的新闻发布会，开始时一切正常，但到最后她却结结巴巴，说话毫无意义。
+在赢得初步胜利后，帕克斯顿总检察长表示，关于新冠疫苗的斗争尚未结束，他将继续反对和抵制联邦政府的一切越权和违宪行为。
 
-当她谈到通过总统乔·拜登的“重建更好家园”议程时，新闻发布会陷入了语无伦次的混乱。
+参考链接：
+1）[https://gettr.com/post/pg8ksk6ac7](https://gettr.com/post/pg8ksk6ac7)
+2）[https://gettr.com/post/pg9n1i0b88](https://gettr.com/post/pg9n1i0b88)
+3）[Federal Appeals Court Blocks Biden’s ‘Big-Company’ Vaxx-Mandate](https://www.zerohedge.com/political/federal-appeals-court-blocks-bidens-big-company-vaxx-mandate)
 
-我们从议长的网站上抓取了文字记录，以便对她所说的内容有一定的了解，或者至少了解她所说的话。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-议长说：“另一件事，我们正在得到或——我们正在向参议院发送东西。我们所做的大部分产品是——除了现在我们可能在最后一小时左右增加了——我们增加的一些内容是参议院的，对法案的，比如听证会。伯尼不喜欢听证会——不好意思——伯尼喜欢听证会。曼钦不希望在法案中加入听证会和所有这些东西。因此，有些是面向参议院的，然后我们有家庭/医疗假。我们想，如果他们把东西放进去，那么我们就可以把东西放进去，即使曼钦不喜欢，”
+总编：Irene木木
+编辑：文特
+校正/发稿：谐趣园
 
-她还说：“所以，我们正在获得一些伯德和特权。我认为，我们主要是得到了特权擦洗，因为特权擦洗对一个法案来说是致命的。伯德？嗯，这很重要。你必须把它拿出来，但违反特权可以把你拿出来。所以，我们也是边走边做。但是，当我们通过一项法案时，他们就会看到它的总体情况，并做出一些……”
-
-如果你在挠头，想知道你刚刚读到的内容，不要担心，这不是你的问题。我们也感到困惑，但我们认为她说的是医疗保险对助听器的覆盖。
-
-另一位记者提出了一个后续问题，试图解读议长在说什么，结果情况变得更糟。
-
-“有没有担心这些都是，引用一下，‘信息传递’，因为他们必须把其中的一些东西拿出来，不管你送过去什么？而你说你不打算发送一个信息传递法案，”记者说。
-
-她说：“不，不。我们不会发送一个信息传递法案。但我们要确保我们发送的东西不是伯德可或伯德浴或特权擦洗。它们是我们从事的两个演习，以备不时之需——洗澡演习，我们得到了良好的回应。”
-
-语无伦次的胡言乱语在推特上引发了一连串的嘲讽，其中以演员詹姆斯·伍兹为首。
-
-他说：“如果你是一名警察，如果你拦下的司机像这样说话，你有多大可能会下令进行酒精测试？”
-
-“中风还是故障？你来决定。”，另一位推特用户说。
-
-“总统和议长之间的讨论必须具有娱乐性。”，另一位说。
-
-“如果她穿着一件道袍，并坐在阿卡姆疯人院的一个角落里，有3个警卫24小时看着她。似乎只有这样才说得通。”另一个用户认为。
-
-“她是不是中风了，没有告诉任何人？这是唯一不涉及毒品或酒精的解释，”另一个人推测。
-
-一位关心的推特用户说：“每个人都如此关心纳税申报，而他们应该只想看到核磁共振的结果。她和乔已经走了。我们正在被痴呆的老恐龙‘领导’”。
-
-另一个人说：“老年痴呆会传染吗，因为南希·佩洛西听起来像拜登，而且边说边编词？有人知道她在说什么吗？痴呆症是对民主党领导层的要求吗？”。这成为一个好问题。
-
-**参考资料：**[conservativebrief][Concern Mounts After Pelosi Descends Into Incoherent Rambling](https://conservativebrief.com/pelosi-descends-54057/?utm_source=CB&amp;utm_medium=DJD)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
