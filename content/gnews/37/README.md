@@ -2,52 +2,37 @@
 ---
 
 
-## 1200万元存款不翼而飞，储户被判担责八成
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645582/)
+## 有声|中共病毒及其疫苗全球超限战中的典型案例（十四）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1645634/)
 
-作者：英国喜庄园 – I770775
+配音：香草山教育部 – 蒙古鸿雁
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-109-1280x172-1.jpg)
 
 
 
-连日来，一则“1200万存款被银行转走，储户被判担责八成”的新闻登上墙内网络热搜，引发力网友关注。
+**纽约一家大型医疗保健系统解雇了1400名未接种疫苗的员工**
 
-据了解，当事人丁女士，做了一辈子生意，把辛辛苦苦攒下来的1200万元存入山西清徐农村商业银行。后来其存单和身份证被银行职员王某骗取，成功转走她的1200万元存款。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-46.jpg)
-今年9月，山西省清徐县法院对丁女士的起诉作出判决，认定银行只承担20%的责任，其余80%的责任由储户承担。
+员工分布在纽约市、韦斯特切斯特和长岛地区的大型医疗系统诺斯韦尔健康公司（Northwell Health）2021年10月5日发布声明表示，占该公司2%的 1400名员工因为拒绝接种COVID-19疫苗已被解雇，至此该公司下属所有23家医院的在职工作人员已经100%接种了疫苗。另外，因拒绝接种疫苗而被解雇的员工还无法享受退休计划等福利。
 
-11月4日，丁女士的儿子，以“正义迟早会来92”的网名在社交平台发文，表示当事人对法院的这一判决严重不服。有律师对此事发文评论：显然，银行应该承担主要责任。
 
-参考链接：
-1. [1200万存款被银行职员私自转走，储户被判担责八成，律师：银行应承担主要责任](https://finance.sina.com.cn/jjxw/2021-11-06/doc-iktzqtyu5749586.shtml)
-2. [银行职员转走1200万存款 储户担责八成？当事人回应](https://news.ifeng.com/c/8AvX55VNv4r)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+**文字版原文：[中共病毒及其疫苗全球超限战中的典型案例（十四）](https://gnews.org/zh-hans/1640200/)**
 
-总编/编辑：木白
-校对/发稿：为真不破20
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

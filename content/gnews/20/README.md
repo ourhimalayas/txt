@@ -2,47 +2,38 @@
 ---
 
 
-## 加拿大安省魁省将停止医护人员强制接种令
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645873/)
+## DC大中华时事：中共吹嘘进博会
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1646044/)
 
-作者：纽约香草山文艺部 – 宁文静
+*编辑：西北风 / 作图：*信正
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
 
+#   牆国妄语每日驳
 
+### 11.07.2021
 
-11月3日，加拿大安省省长福特宣布，该省将不会强制其医护人员接种“新冠病毒疫苗”，并认为强制接种政策将会危及安省目前大量的医护工作。福特说，在权衡了数万名医护人员离职所带来的负面影响与安省的疫情现状之后，当局决定将决策权交给各个医院。
+[时评｜搞“台独”分裂绝对没有好下场！ (huanqiu.com)](https://m.huanqiu.com/article/45UCBCaSATn)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/捕获5.png)
+***简评：*谁是分裂中国的罪葵祸首，当然是中共。自中共进入华夏以来，外蒙古独立了，台湾实事上独立了，今天和未来如果中共继续执政祸害下去，新疆和西藏也必将独立。如果我们看西藏和新疆人口结构比例，西藏300多万常住人口，藏族人口占到91%，新疆2500万常住人口，少数民族占总人口57%。中共对新疆西藏少数民族文化上的灭绝，经济上的掠夺，种族上的迫害和打压在未来会随著中共的崩溃全部爆发出来，以现有人口结构如果西藏、新疆寻求政治上的独立，那是顺理成章的必然的结果。中共治下的国土，真正种下的是种族愁恨而不是种族大溶和，这也是中共真正的带结中国的恶。大好河山尽毁，国土分裂，可中共现在无耻的说台湾搞台独分裂。如何避免这种局面，也只能靠我们新中国联邦人自己的努力，新中国联邦得有足够的实力，财力、物力、人力，我们不可能依靠美国等西方强国去真正帮助我们解决中国现在和将来面临的这些问题，如果中共崩溃，美国和西方国家只会重演中国淸未民初，美苏冷战结束苏联解体历史一幕，不会真正帮到中国，毕竟国家之间地缘政治讲的是利益。中共治下造成的烂滩子己不言而喻，新中国联邦承担的历史责任也不言而喻，喜币上市，G系列的状大意义也不言而喻。**
 
-当天，魁北克省卫生部长克里斯蒂安也作出了同样的决定。她说，如果遵循11月15日的截止期限，魁省将减少或调整500项医疗服务，失去8000名员工将对整个医疗体系造成毁灭性后果。
+### 11.07.2021
 
-而近日有媒体爆出美国的医院急诊室人满为患，疾患包括腹痛、呼吸系统问题、血栓、心脏病等。不仅美国，澳洲、欧洲，同样“奇怪的事情正在发生”。疫苗灾难性的后果正在凸现。此刻如果还坚持医务人员的疫苗强制令，无疑是雪上加霜。不单单反映在医疗系统，而是体现在整个社会的运转环节中，取消这一违反人权的政府强令，势在必行。
+[外媒评述：进博会彰显中国市场巨大魅力\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20211107/2459090.shtml)
 
-（本文仅代表作者观点）
+***简评：*中共一直以来以以中国市场巨大魅力来威逼利诱西方国家。这也只有在中共这种极权体制下不讲人权的暴政才能讲出的话。西方国家看中的是中国廉价的劳动力，在全球经济产业链中国廉价劳动力只是其中一环，中共可以以污染空气，土地，河流，卖光地上地下的资源，出卖子宫的经济政策吸引西方国家企业，这在其他任何国家任何政府都是不会被充许的。这才是中共嘴里真正中国巨大市场魅力的秘密。中共治下没有科技创新能力，科技才是第一生产力，只有科技上的不断创新才能真正创造巨大市场，在中共体制下中国人没有科技创新能力，卖完了子宫，还能卖什么，所谓的巨大市场魅力只是一个国际笑话。**
 
-参考阅读：
+### 11.07.2021
 
-- [https://globalnews.ca/news/8346947/quebec-drops-vaccine-mandate-among-health-care-workers/](https://globalnews.ca/news/8346947/quebec-drops-vaccine-mandate-among-health-care-workers/)
-- [https://www.msn.com/en-ca/news/canada/ford-wont-impose-covid-19-vaccine-mandate-for-ontario-health-care-workers/ar-AAQhJzg](https://www.msn.com/en-ca/news/canada/ford-wont-impose-covid-19-vaccine-mandate-for-ontario-health-care-workers/ar-AAQhJzg)
+[外媒：伊拉克总理躲过无人机暗杀\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/ckkx/kuaixun20211107/2459088.shtml)
 
+***简评：*现代高科技下未来战争模式也发生了根本改变，过去战争由人海战术到近代的海陆空天协同做战，未来战争更多的将会依靠无人机等定点清除让领导先走的模式。这是最高效也是成本最低的也是最符合人道的一种战争模式。想想不远的未来中共和美日西方国家最终发展到以军事战争为最终解决方案时，无人机定点淸除等高科技武器将会大显神威，让领导先走的战争模式中国民众也是真心支持和拥护的。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
-
-***编辑***：***Irene木木***
-***校对/发稿：海阔天空1***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+#   港台资讯
+![](https://media.discordapp.net/attachments/858887785507323904/906773453422612500/DC11.7-1.jpg?width=961&amp;height=541)![](https://media.discordapp.net/attachments/858887785507323904/906773632477450260/DC11.7-3.jpg?width=961&amp;height=541)![](https://media.discordapp.net/attachments/858887785507323904/906773633127571466/DC11.7_2.jpg?width=961&amp;height=541)
+*编辑：西北风*
+*作图：信正
+发布：文顾*
 
  
 

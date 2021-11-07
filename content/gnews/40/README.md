@@ -2,33 +2,49 @@
 ---
 
 
-## COVID-19 最新情报｜面对公卫威胁 美跨党派提案 台湾作为印太伙伴
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1645087/)
+## 洛杉矶市长中共病毒检测呈阳性，接种过两针疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1645589/)
 
-**台灣寶島農場 疫情關注組 / 發佈時間｜7/11/2021**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+作者：洛杉矶盘古农场 – 滴水穿石
 
 
-#### 美跨党派提案，美台合作抗新冠
 
-美共和党友台参议员卢比欧、科顿（Tom Cotton）及民主党议员寇提兹马斯托（Catherine Cortez-Masto）等人跨党派提案，在AIT设立美台传染病监控中心（U.S.-Taiwan Infectious Disease Monitoring Center），每年向国会提交研究和报告来决定中心的资金、人员需求，并与台湾疾病管制署（CDC）合作。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-据台湾媒体报导，法案主要目的在于交流双方政府在公卫威胁上的专业知识，进驻人员将包括至少3名美国卫生及公共服务部（HHS）的传染病专家，至少1名其他联邦部门成员，也可能聘雇台湾当地员工或台CDC人员。
 
-#### 美共和党友台参议员马可．卢比欧（Marco Rubio）
 
-卢比欧对台湾给予长期关注、支持，2021年9月台湾与立陶宛互设代表处引起中共挞伐，他强调“中国共产党不代表台湾，没有权利支配世上其他国家如何称呼，或如何与台湾人民来往。”
+周四 （11月4日）， 正在苏格兰在参加联合国气候变化会议的洛杉矶市长埃里克·加塞蒂，做中共病毒检测呈阳性。
 
-卢比欧在本次跨党派提案声明：“对于犯下种族灭绝的中国共产党政权来说，封锁新冠疫情消息，导致毁灭性后果在全球爆发的行径并不让人吃惊，我们在印太地区需要一个可靠且公开透明的伙伴，能够提供我们精确的讯息来防止、减缓未来可能面临的公卫危机，台北相较于全球具有先进的公卫体系，也是一个值得信赖的民主盟友和珍贵朋友。”
+50 岁的加塞蒂市长在 今年1 月被医务人员建议接种了第一剂Moderna 疫苗。市长发言人称，他在 2 月份接受了第二剂注射。
 
-此外，卢比欧早在2018年5月便针对中共的窃取美国科技、威胁美国国家安全等，推动以保护国家安全为目的之“美中公平贸易执行法”（Fair Trade with China Enforcement Act），禁止美中两国交易“敏感科技”之法源，同时，更提高课征跨国公司来自中国的所得税，借以钳制中国窃取美国智慧财产。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-5.jpg)
-* * *
+有专家分析称，强制推行全民中共病毒疫苗接种与政客、医药集团间的暗中勾兑有关。而勾兑的政客必会为其邪恶行为付出代价。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-25.jpg)
+参考链接：
+1. [‘This could be my room for a few days’: Garcetti tests positive, isolates in Scotland](https://www.latimes.com/california/story/2021-11-03/l-a-mayor-eric-garcetti-tests-positive-for-covid-19)
+2. [Garcetti reports some fever and head cold symptoms following covid-19 diagnosis](https://www.latimes.com/california/story/2021-11-04/garcetti-reports-some-fever-and-head-cold-symptoms-following-covid-19-diagnosis)
 
-新闻来源｜[自由时报](https://news.ltn.com.tw/news/politics/breakingnews/3727870)、[美参议员卢比欧推动禁止与中国交易敏感科技之法案-资策会](https://stli.iii.org.tw/article-detail.aspx?no=64&amp;tp=0&amp;i=72&amp;d=8038)
-撰稿｜zhong
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：木白
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

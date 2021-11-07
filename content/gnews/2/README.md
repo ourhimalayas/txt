@@ -2,21 +2,27 @@
 ---
 
 
-## 七哥说— 第26期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1646032/)
+## 江城子 失学
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1646198/)
 
-**制作：Inzaghi**
+作者：文北
+![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_3492.jpg)
+《江城子 失学》 
+何处归途遇来路，细回顾，多感触。 
+几双赤足，被红尘缚住， 一国百姓两样人，有贫苦，有巨富。 
+满朝文武如泥塑，为权腐，为利碌。 愁眉紧蹙，也于事无补。 
+两千年后闭国门，商鞅术，奴万物…
 
-天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
-不抛弃，不放弃的正是你心中那一份对信念的坚定。
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2021-10-31_6.17.47.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2021-11-07_10.45.22.png)
 
-*发稿**：**Nuevo唐人*
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip111.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
