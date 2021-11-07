@@ -2,34 +2,43 @@
 ---
 
 
-## 加拿大安省魁省将停止医护人员强制接种令
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645873/)
+## 台湾之战 Part 1
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645901/)
 
-作者：纽约香草山文艺部 – 宁文静
-
+作者：纽约香草山农场 – 柳是多水土透
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中国启动“灰区战争”试图统治台湾，以下是多位军事战略家做的沙盘推演。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/捕获9.png)
 
+72年前共党在血腥内战后控制大陆，民国政府迁至台湾。自那时起，中国已成为匹敌美国的霸权，台湾则进化成民主的先进经济体并得到美国支持。经历了几十年的平静，现在台海战云密布，虽然不能预测最终结局，但台湾战争已然开始。
 
-11月3日，加拿大安省省长福特宣布，该省将不会强制其医护人员接种“新冠病毒疫苗”，并认为强制接种政策将会危及安省目前大量的医护工作。福特说，在权衡了数万名医护人员离职所带来的负面影响与安省的疫情现状之后，当局决定将决策权交给各个医院。
+解放军（PLA）对台发动以恐吓为目的的“灰区战争”，含近乎每天发生的军事演习，巡逻，监视，在武装冲突边缘游走。近来中国增加了入侵台领空的军机，同时以装沙船包围台远海岛屿。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/捕获5.png)
+军事策略家认为此举在于缓慢耗损台抵抗能力，但亦有可能增强岛内民众保卫家园决心。虽无法预测未来，中日台澳美等国军事家推演了几种中国可能控制台湾的方式，以及台美日等国联军的反制。
 
-当天，魁北克省卫生部长克里斯蒂安也作出了同样的决定。她说，如果遵循11月15日的截止期限，魁省将减少或调整500项医疗服务，失去8000名员工将对整个医疗体系造成毁灭性后果。
+习与中共的几种军事策略都有相应风险，亦会对盟军带来不同的挑战。习的选项包括夺取台外海岛屿，对台海上封锁和全面入侵，以上任何一项都可能失控并产生中美为台湾发生的全面战争。
 
-而近日有媒体爆出美国的医院急诊室人满为患，疾患包括腹痛、呼吸系统问题、血栓、心脏病等。不仅美国，澳洲、欧洲，同样“奇怪的事情正在发生”。疫苗灾难性的后果正在凸现。此刻如果还坚持医务人员的疫苗强制令，无疑是雪上加霜。不单单反映在医疗系统，而是体现在整个社会的运转环节中，取消这一违反人权的政府强令，势在必行。
+此报告基于对10位左右军事战略家和15位现任和退役美台澳日军官的采访，分析若干种战争情景，同时援引了公开的军事出版物，部分现役军人要求匿名。
+
+对北京来说占台使中国突破第一岛链，投射军力至西太平洋，同时威胁日韩安全。但他须小心美国干预，PLA数十年未经战争测试，败北会危及党国统治。
+
+对美国为首的联盟，台湾沦陷危及美在亚洲地位。若美不能或不愿协防台湾，堪培拉首尔和东京会受到北京军事胁迫。一些会考虑转而与中结盟，另一些会考虑拥核自卫。
+
+一些军事指挥官认为，如果美选择防御台湾，在愈加强大的PLA面前并没有100%把握能成功。但美正在发展和部署新一代武器系统。
+
+在日本看来，进出口海运路线受北京控制不可接受，而且从台湾基地PLA可以威胁日南部岛屿。现在高级官员公开承认，东京必须帮助美国协防台湾。
 
 （本文仅代表作者观点）
 
 参考阅读：
 
-- [https://globalnews.ca/news/8346947/quebec-drops-vaccine-mandate-among-health-care-workers/](https://globalnews.ca/news/8346947/quebec-drops-vaccine-mandate-among-health-care-workers/)
-- [https://www.msn.com/en-ca/news/canada/ford-wont-impose-covid-19-vaccine-mandate-for-ontario-health-care-workers/ar-AAQhJzg](https://www.msn.com/en-ca/news/canada/ford-wont-impose-covid-19-vaccine-mandate-for-ontario-health-care-workers/ar-AAQhJzg)
+- [https://www.reuters.com/investigates/special-report/taiwan-china-wargames/](https://www.reuters.com/investigates/special-report/taiwan-china-wargames/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
 
-***编辑***：***Irene木木***
+***编辑***：***Ivy001***
 ***校对/发稿：海阔天空1***
 
 **更多资讯，更多关注**

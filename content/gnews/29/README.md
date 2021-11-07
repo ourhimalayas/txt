@@ -2,34 +2,37 @@
 ---
 
 
-## 女仆为自由而行
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1645748/)
+## 全球首个国家&#8211;哥斯达黎加强制所有儿童接种Covid-19疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1645785/)
 
-**翻译：**小鱼儿
-**编辑：**李易通
-![](https://assets.gnews.org/wp-content/uploads/2021/11/女仆.jpeg)图片来源：澳大利亚自由独立新闻网
-阿德莱德的12人结群装扮成女仆，以强调澳大利亚政府日益增长的暴政。她们举着标语，上面写着”战斗是有福的”和”你的沉默是服从”等信息。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-女仆们从伦德尔公园出发，走过伦德尔购物中心，有一些当地人请求跟她们拍照。还有一些时间，她们站在一个十字路口向驾驶者传播信息。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Untitled.png)
 
-虽然只是一个很小的团体，但她们在市内获得了很多关注，并在伦德尔购物中心展开了许多关于疫苗接种选择的对话，得到了围观者的反应，有消极也有积极的。
 
-整个抗议活动是无声的，非常和平。许多观众手里拿着传单，他们被邀请参加阿德莱德自由集会，该集会将在本月20日举行，是世界自由运动的一部分。
 
-她们经过一名正在宣讲《圣经》的男子时说：”我们有权决定在我们的身体里放什么，只有上帝和我才能做出这个选择”。一名在伦德尔购物中心场地工作的男子，手里也拿着一张传单，为即将到来的抗议活动做宣传。
+图片来源：Reuters: Mayela Lopez
 
-今天，这个城市许多不同的行业都在忙碌中，从素食者的外展抗议到那些传播上帝信息的人，但女仆们似乎得到了商场里所有人的关注。
 
-该团体正在提高澳大利亚人对于自由医疗选择和政府过度行为的认识。她们鼓励大家在一起参加本月的下一次自由集会，并希望这将成为阿德莱德市最大的活动。
+#### 编译：小红帽
 
-*发布：热锅小蚂蚁*
+哥斯达黎加已成为世界上第一个强制要求儿童接种中共病毒(Covid-19)疫苗的国家。如果父母不遵守规定，他们将面临制裁，并且他们的孩子可能会被强迫接种疫苗。
 
-参考新闻：[https://afipn.com.au/the-handmaids-walk-for-freedom/](https://afipn.com.au/the-handmaids-walk-for-freedom/)
+该国卫生部周五宣布，根据法律规定，中共病毒疫苗已被添加到儿童疫苗接种清单中。国家疫苗接种和流行病学委员会(CNVE)已宣布所有18岁以下的未成年人都必须接种中共病毒疫苗。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+从2022年开始，如果哥斯达黎加的父母不为他们的孩子接种中共病毒疫苗，他们现在可能会面临尚未明确的制裁。以前，如果哥斯达黎加人拒绝为他们的孩子接种麻疹等疾病疫苗作为强制免疫计划的一部分，他们会被报告给卫生部。卫生部随后启动了一项“特殊法律程序”，让未成年人在未经父母同意的情况下进行疫苗接种。
+
+目前尚不清楚同样的计划是否适用于中共病毒疫苗，但它已被添加到所谓的“基本清单”中，其中包括针对水痘、脊髓灰质炎和人乳头瘤病毒 (HPV)的免疫接种。15岁以上的青少年也可以在没有成年人陪同的情况下接种中共病毒疫苗。
+
+**参考新闻：**[All children will have to take Covid-19 jab in Costa Rica — RT World News](https://www.rt.com/news/539555-costa-rica-vaccination-children-mandatory/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

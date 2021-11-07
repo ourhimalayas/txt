@@ -2,24 +2,47 @@
 ---
 
 
-## 港闻前线｜第三针预约率不理想 港府研更严厉措施 政府雇员首当其冲
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1645821/)
+## 加拿大安省魁省将停止医护人员强制接种令
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1645873/)
 
-**撰文/ 台湾宝岛农场 港台前线关注组｜发布日期/ 7/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Bank-Manager-Banner.jpg)
-【要点】香港第三剂新冠疫苗开打在即，公务员事务局局长聂德权今早在电视节目中指，截止目前，有 35000 人预约第三针，港府不排除会视接种率推出更严厉措施，对仍未打针的政府雇员将收紧检疫规管，将“两周一检”缩短至“一周一检”，并呼吁企业跟随，共同推动本港接种率进一步上升。
+作者：纽约香草山文艺部 – 宁文静
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/11/港台前線-（HK模板）.jpg)
-【香港】特区政府早前公布，凡合资格人士（免疫力较弱及高感染风险人士）下星期四起可免费接种第三剂新冠疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-公务员事务局局长聂德权今早（7日）在无线节目《讲清讲楚》中指，截止目前，有 3,5000 人预约第三针疫苗，但现阶段会否要求市民必须接种三针疫苗后，才允许出入特定场所，政府会视乎第三针接种情况，暂时未必会就此推动更严厉措施。
 
-现时香港首针疫苗的整体接种率未及七成，港府可能会率先针对仍未打针的政府雇员，收紧检疫规管，由原来的两星期自费检查一次，缩短至每七日一次，并同时希望其他企业跟随做法，一起推动香港 20 至 59 岁组别的疫苗接种率进一步攀升。
 
-* * *
+11月3日，加拿大安省省长福特宣布，该省将不会强制其医护人员接种“新冠病毒疫苗”，并认为强制接种政策将会危及安省目前大量的医护工作。福特说，在权衡了数万名医护人员离职所带来的负面影响与安省的疫情现状之后，当局决定将决策权交给各个医院。
 
-来源｜TVB 电视节目《讲清讲楚 7/11/2021》
+![](https://assets.gnews.org/wp-content/uploads/2021/11/捕获5.png)
+
+当天，魁北克省卫生部长克里斯蒂安也作出了同样的决定。她说，如果遵循11月15日的截止期限，魁省将减少或调整500项医疗服务，失去8000名员工将对整个医疗体系造成毁灭性后果。
+
+而近日有媒体爆出美国的医院急诊室人满为患，疾患包括腹痛、呼吸系统问题、血栓、心脏病等。不仅美国，澳洲、欧洲，同样“奇怪的事情正在发生”。疫苗灾难性的后果正在凸现。此刻如果还坚持医务人员的疫苗强制令，无疑是雪上加霜。不单单反映在医疗系统，而是体现在整个社会的运转环节中，取消这一违反人权的政府强令，势在必行。
+
+（本文仅代表作者观点）
+
+参考阅读：
+
+- [https://globalnews.ca/news/8346947/quebec-drops-vaccine-mandate-among-health-care-workers/](https://globalnews.ca/news/8346947/quebec-drops-vaccine-mandate-among-health-care-workers/)
+- [https://www.msn.com/en-ca/news/canada/ford-wont-impose-covid-19-vaccine-mandate-for-ontario-health-care-workers/ar-AAQhJzg](https://www.msn.com/en-ca/news/canada/ford-wont-impose-covid-19-vaccine-mandate-for-ontario-health-care-workers/ar-AAQhJzg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+
+***编辑***：***Irene木木***
+***校对/发稿：海阔天空1***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

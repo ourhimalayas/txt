@@ -2,24 +2,25 @@
 ---
 
 
-## 秘翻在线：数千违反政府防疫规定的澳洲人尚未缴纳罚款 其资产或被扣押
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1645702/)
+## 零对冲：美国供应链只会变得更糟
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1645764/)
 
-#### 翻译/撰稿：zzballack
+#### 撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-27.jpg)[图片来源](https://alt-market.us/heres-why-u-s-supply-chain-problems-will-only-get-worse/)
+当地时间11月5日晚，零对冲转载Brandon Smith文章，认为政府越想控制事情，事情就越糟。当前，美国由货币超发引发的通货膨胀和美元贬值，以及强制疫苗政策引发的港口工人短缺和卡车司机短缺等劳工缺乏问题，将严重威胁美国供应链的安全。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-29.png)图片来源：SBS News
-据《网关专家》（Gateway Pundit）11月6日报道，对于澳大利亚第二大州昆士兰（Queensland）州违反了政府苛刻的防疫规定的居民来说，如果他们不及时缴纳相应的罚款，其存在银行的钱、房子或其他资产面临着被政府剥夺的风险。
+文章提出，欲解决供应链问题，不能从强制行政和滥发货币着手，相应的办法有四，一是，结束中共病毒；二是，在美国本土鼓励制造业；三是，结束美联储；四是，让美国回归金本位。
 
-至少从今年9月开始，昆州卫生厅要求昆州罚款执行登记处（SPER）追查高达3046笔违反防疫规定的未付罚款，总金额为520万澳元。这些罚款涉及2755名个人和企业，他们被指控在中共病毒疫情期间违反公共卫生令。昆州官方的最新数据显示，其中18.4%的价值约100万澳元的罚款尚未缴纳，SPER正在“积极执法”追讨罚款。据《布里斯班时报》（Brisbane Times）报道，SPER的发言人称，执法措施“可能包括扣押银行账户或工资、登记财产抵押或吊销驾照”。另有25.2%的罚款正处于调查当中，民众可以在当局未采取行动前支付罚金。56.4%的罚款已全额支付或制定了支付计划。
+这篇文章展示出一种反社会主义、反福利经济的倾向。一个世纪以来，自由资本主义所倡导的自由市场被福利经济所倡导的政府大规模干预市场所压制，以至于民间习惯于高税收和高福利，政府权力也越来越大。直至今日，政府已在强制疫苗和滥发货币等方面鲜受制约，这不仅会引发供应链断裂，或还会引起权力重新分配，文中有言，“最终，完全分权才是政府强加混乱难题的答案”。
 
-除了这些未付罚款，昆州卫生厅还请了私人收债公司帮忙追讨被拖欠的2045笔、价值达570万澳元逾期未付的酒店检疫费。来澳游客不仅在抵达澳州后被强制进入隔离中心2周，还被寄送总额数千美元的酒店住宿账单。昆州卫生厅的一位女发言人说：“昆州人理所当然地希望游客能够支付他们的酒店检疫住宿费，而不是让纳税人来买单。”截至10月8日，昆州已开出44350张酒店检疫发票，其中大约有11%已严重逾期。预计未来几个月会有更多的人拖欠。
+信息来源：
 
-据澳媒《9News》报道，预计这些极端措施将在澳州的其他地区实施，这可能给各州政府带来近1亿澳元的总收入。仅在新南威尔士州，尚未缴纳的疫情违规罚款就超过了5600万澳元。
+[这就是美国供应链问题只会变得更糟的原因](https://www.zerohedge.com/economics/heres-why-us-supply-chain-problems-will-only-get-worse)
 
-请记住，在漫长的封锁期间，许多公民不被允许工作或以其它任何方式谋生。除非是来自警察或军方人员的“骚扰”否则昆州居民不能离开房子。如果他们敢离家太远，就会被开罚单和罚款。澳州各级政府利用疫情和中共病毒疫苗实施的暴政让澳州逐渐沦为一个专制国家，澳洲人甚至全世界的老百姓必须团结起来抗争，夺回属于我们的自由和个人权利。
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
 
-新闻来源：[Dystopia Down Under: Thousands of Australians With Unpaid Fines for Breaking Covid Rules Have Bank Accounts Raided and Property Siezed As Tyrannical Government Chases Millions in Fees](https://www.thegatewaypundit.com/2021/11/dystopia-thousands-australians-unpaid-fines-breaking-covid-rules-bank-accounts-raided-property-siezed-tyrannical-government-chases-millions-fees/)
 
  
 
