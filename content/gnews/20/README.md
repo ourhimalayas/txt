@@ -2,32 +2,28 @@
 ---
 
 
-## 澳洲违反防疫规定且未缴纳罚款者 资产将被剥夺或扣押
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648598/)
+## 加拿大通货膨胀令物价快速飙升
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1648717/)
 
-作者：美东香草山 – 新世界的一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月6日，媒体报道，在澳大利亚第二大州昆士兰州，居民若违反政府苛刻的防疫规定，又不能及时缴纳相应的罚款，其存在银行的钱、房子或其他资产将面临被政府剥夺的风险。
+采编：青青，  编译撰稿：文明(添草灭共)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-5.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-21-edited.jpg)图片来源：TN
 
-自今年9月，昆州卫生厅要求昆州罚款执行登记处追查违反防疫规定的未付罚款。最新数据显示，有价值约一百万澳元的罚款尚未缴纳。当地媒体称，对这些人的执法措施可能包括扣押银行账户或工资、登记财产抵押或吊销驾照。另有媒体报道，预计这些极端措施也将在澳州其他地区实施，这可能给各州政府带来近一亿澳元的总收入。
 
-参考链接：[https://gettr.com/post/pgaqowf379](https://gettr.com/post/pgaqowf379)
+据加拿大自媒体【真北方】11月4日报道，[加拿大统计局]的最新数据显示，该国各地区大部分食品和生活用品的价格正快速升高。  
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+该报告举例称，与上一年度相比，卑诗省的鸡肉价格增长了21%；安省的培根和魁省的土豆价格都上涨了24%；其他主要食品诸如猪肉，蔬菜，禽蛋等价格都有大幅上涨。
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：谐趣园
+尽管如此，但加拿大央行却一直否认当前的通货膨胀趋势，认为该现象只是暂时的，且基本物价上涨属于正常波动。目前，加拿大银行已将其通胀率目标上调至4.75%的历史新高。  
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+此前，[加拿大纳税人联合会]已对该国高涨的通胀情况表示担忧，并就此归咎政府称：自从2020年3月初“新冠病毒”疫情以来，加拿大印钞量已超过3800亿加元，联邦政府及其央行应立即停止其过量印钞之举。同时，必须控制政府的超额支出并减免税赋，以避免高昂的生活开支令加拿大国民最终无法承受的风险。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://tnc.news/2021/11/04/surge-in-price-of-basic-groceries-reaches-double-digits-statistics-canada/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

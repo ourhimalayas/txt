@@ -2,27 +2,45 @@
 ---
 
 
-## 美联邦法院判定强制接种政策“违宪”
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1648453/)
+## 喜联储私人区块链技术确保高效安全
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648538/)
 
-采编：UCool 优酷 编译撰稿：文明(添草灭共)
+作者：美东香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月7日，郭文贵先生在GTV大直播中，分析了喜联储所采用的私人区块链的技术优势。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-30.jpg)
+第一，喜联储使用私人区块链技术，每秒钟的交易量可达一百，甚至一万单。而使用公开区块链技术，交易速度很慢，每秒交易只有十单，甚至更少。
+第二，当遭遇黑客攻击时，公开区块链技术支持的数字货币，一旦被盗窃，就无法追回。而喜联储的私人区块链技术，能够确保数字货币的绝对安全，即使被黑客盗取，因有迹可查，可以追回。
+最后，喜联储的私人区块链保证个人信息的绝对安全。通过喜联储KYC的账户信息，不会被任何政府或个人获取，这才叫真正的去中心化。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-18-edited.jpg)图片来源：WSJ
+参考链接：
+[2021年11月07日 文贵大直播：爆料革命班农战斗室发起的百家私人企业起诉，第五法庭暂停拜登政府强制疫苗令的重大意义；虚拟币交易所，银行，币价，市值，估值与提现之间的关系；中共为了冬奥会，掩盖疫苗死亡真相；喜交所的私链技术针对灭共而设计，打破中共对虚拟币的垄断与控制](https://gtv.org/video/id=6187c5e211d186296802ed33)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：Ivy001
+编辑：Jack Li文阳
+校对/发稿：Fei797
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
-据【每日邮报】11月6日报道，美国联邦【第五巡回上诉法院】当天对总统拜登的“新冠病毒疫苗”强制接种政策发布了暂停令。
 
-此前，拜登政府曾发布命令，规定那些雇员达到100人以上的公司都必须要让其员工在明年1月4日之前接种“新冠病毒疫苗”，或者每周进行病毒检测。违反以上法规的雇主将面临巨额罚款。
 
-据悉，该接种政策涵盖了美国大中型企业的约8400多万名员工。拜登此令一出，随即遭到德克萨斯州、路易斯安那州、密西西比州、南卡罗来纳州和犹他州等多个州的拒绝。目前，共有11个州对此提出了反对诉讼。
 
-最终，[联邦第五巡回上诉法院]判定总统的该项“强制接种规定”严重违宪，并出具了【暂停令】以阻止该政策的执行。同时，要求拜登政府在11月8日下午5点前必须对此禁令作出回应。
 
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-[原文链接:](https://www.dailymail.co.uk/news/article-10172647/Circuit-Court-BLOCKS-Joe-Bidens-vaccine-mandate.html)
 
  
 

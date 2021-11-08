@@ -2,23 +2,18 @@
 ---
 
 
-## 加拿大保守党欲保障未接种者的自由权利
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1648702/)
+## 如果价格暴涨将减少53 亿欧元消费
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1648830/)
 
-采编：文莱， 校对编辑：硫酸羟氯喹64
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11081.jpg)图片来自Bloomberg
+Confcommercio 研究办公室对 2021 年第四季度通胀上升对家庭消费影响的估计如下结论：今年最后几个月通货膨胀的任何爆发都将大大减少家庭消费，并有可能对圣诞节购买产生负面影响并减缓 2022 年的增长。事实上，假设平均价格上涨 3%，大约 27 亿欧元的消费将损失，在 4% 通货膨胀的不太不切实际的假设中可能会达到 53 亿欧元。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-20-edited.jpg)图片来源：TN
+在这两种情况下，近四分之三的损失来自可支配收入购买力的立即下降，其余来自以流动形式持有的金融财富；这种消费的减少还受到能源价格上涨导致的强制性费用增加的影响，这些费用已经转移到电费和燃气费中。
 
+原文链接：[https://www.ansa.it/sito/notizie/economia/2021/11/08/confcommercio-se-fiammata-prezzi-rischio-53-mld-consumi\_6f5983d7-e2be-48b6-b1b0-2a79543dc3d9.html](https://www.ansa.it/sito/notizie/economia/2021/11/08/confcommercio-se-fiammata-prezzi-rischio-53-mld-consumi_6f5983d7-e2be-48b6-b1b0-2a79543dc3d9.html)
 
-据加拿大自媒体《真北方》11月5日报道，由多达30名保守党议员联合组成的【公民自由核心小组】，正在为那些因未接种“新冠病毒疫苗”而失去工作的加拿大人讨回公道。
-
-据悉，该保守党核心小组是在加拿大10月份的选举之后成立的，其宗旨是着重关注那些因未接种疫苗而被其雇主辞退的加拿大人，并试图帮助他们摆脱目前窘迫的困境。同时，呼吁和督促加拿大各企业雇主为其不愿或不能接种该疫苗的雇员提供基础便利。
-
-为此，该小组成员表示，国会议员的主要工作之一就是提出选民正在关注的重要问题，并让有关专家参与和设定一个当局可实行的措施，以真正确保该国公民的权利和自由得到基本保障。
-
-本台记者   文莱，硫酸羟氯喹64 综合报道
-
-[原文链接：](https://tnc.news/2021/11/05/dozens-of-conservative-mps-form-caucus-to-defend-rights-of-unvaccinated-canadians/)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 
