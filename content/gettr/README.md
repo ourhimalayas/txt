@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/8/2021 6:06 AM (UTC)`
+
+11/7/2021 Miles Guo: The CCP is now increasing its infiltration to us and has launched insane cyber attacks on the Himalaya Exchange. Fellow fighters should keep an eye on anything suspicious<br/><br/>11/7/2021 文贵直播：目前中共正加大渗透，并对喜联储进行了疯狂的黑客攻击，面对风吹草动，战友们要睁大眼睛<br/>
+![img](https://media.gettr.com/group44/getter/2021/11/08/06/06/9775dfdc-61f2-7d0b-63e7-70c41e8b6772/out.jpg)
+
+---
+
 `@miles 11/8/2021 3:14 AM (UTC)`
 
 11/7/2021 Miles Guo: The smog floating over Beijing certainly contains the corpses of the dead people and babies with birth defects cremated on a daily basis. The disaster caused by the COVID vaccines is bound to happen in the entire humanity; the New Federal State of China is like the only hand leading us from the darkness to the light<br/><br/>11/7/2021 文贵直播：北京上空飘的雾霾其中一定有焚烧每天死的人和畸形婴儿的尸体；全人类必将爆发疫苗大灾难；新中国联邦好比是唯一的一只小手在牵着我们从黑暗走向光明<br/>
@@ -290,13 +297,6 @@ Dr. David Wiseman: FDA打破了一个又一个规则，这绝对太离谱了。�
 
 11/3/2021 Hao Haidong couple reveal: Guo Jingjing, a retired female champion diver, had condoms in her drawer when she was just about 10 years old in 1992<br/><br/>11/3/2021 郝海东夫妇爆料：92年十岁左右的郭晶晶在抽屉竟然放了避孕套！<br/>
 ![img](https://media.gettr.com/group22/getter/2021/11/04/01/08/7207bb2d-219c-0693-e337-db0207da2d16/out.jpg)
-
----
-
-`@miles 11/3/2021 11:41 PM (UTC)`
-
-11/3/2021 Miles Guo: The recent incident of Peng Shuai has proven everything I have exposed regarding the CCP’s evil deeds in the past 4 years. The CCP’s old kleptocrats, including Zhang Gaoli, sexually abuse the entire family of the Chinese Lao Baixing, including the girl, her mother, and her grandmother, while the kleptocrats‘ wives would help them guard the door<br/><br/>11/3/2021 文贵直播：最近的彭帅事件证明了文贵4年来关于中共邪恶的爆料；包括张高丽在内的中共老杂毛玩弄老白姓全家，女儿、妈妈和奶奶三代人都不放过，老杂毛的夫人们还帮忙他们把门<br/>
-![img](https://media.gettr.com/group45/getter/2021/11/03/23/41/a94f5335-249e-cf9f-2b74-6173b02dfc84/out.jpg)
 
 ---
 
