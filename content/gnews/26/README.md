@@ -2,158 +2,30 @@
 ---
 
 
-## 喜联储藏富于民是为灭共做准备！
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1648160/)
+## 秘翻在线：中共十九届六中全会今天召开 未来方向受极度关注
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1648249/)
 
-[https://gtv.org/video/id=6189083fadfd99590c346236](https://gtv.org/video/id=6189083fadfd99590c346236)
+**撰稿：葛大饼**
 
-我让大家中国人真的是(过上)体面尊严的生活
-Yo hice que todos los chinos realmente puedan pasar una vida digna y decente
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-08-210028.jpg)
+根据2021年11月7日新浪报道，中共第十九届中央委员会第六次全体会议将于11月8日至11日在北京召开。
 
-真不是口头语
-Realmente no lo estoy hablando nada más
+在十九届六中全会即将召开之际，新闻回顾了中共第十九届中央委员会的前五次全体会议：
 
-我现在就真的把战友们当爹娘
-Ahora mismo estoy viendo a mis compañeros luchadores como mis padres
+十九届一中全会，由习近平同志主持会议， 选举产生了新一届中央领导机构。
 
-真的是这样想
-De verdad lo pienso así
+十九届二中全会，全会由中央政治局主持，全会号召，全党同志要更加紧密地团结在以习近平同志为核心的党中央周围，以习近平新时代中国特色社会主义思想为指导，全面深入贯彻党的十九大精神和本次全会精神。
 
-因为我的父母, 我母亲已经过世了
-Porque mis padres, mi madre ya falleció
+十九届三中全会，全会由中央政治局主持，全会号召，全党全国各族人民要紧密团结在以习近平同志为核心的党中央周围，统一思想，统一行动，为实现中华民族伟大复兴的中国梦而奋斗。
 
-我父亲现在已经是中风的状态
-Y mi padre ahora está en un estado de derrame cerebral
+十九届四中全会，全会由中央政治局主持，全会号召，全党全国各族人民要更加紧密地团结在以习近平同志为核心的党中央周围，为实现“两个一百年”奋斗目标、实现中华民族伟大复兴的中国梦而努力奋斗。
 
-我的家人全被绑架成肉票
-Todos los miembros de mi familia fueron secuestrados en boletos de carne
+十九届五中全会，全会由中央政治局主持，全会一致认为，有习近平同志作为党中央的核心、全党的核心领航掌舵，我们一定能够在新时代把中国特色社会主义更加有力地推向前进。
 
-我现在所有的生命就在你们身上体现
-Actualmente, toda mi vida se refleja en ustedes
+看完历届会议概要，会议主体都是围绕着一个人转，那么这样的铺垫恐怕也预示着六中全会必将是声音高度一致的大会。但事实上中共党媒强调这次会议要解决两个重要问题：一个是看清楚过去为什么能够成功？一个是弄明白未来如何继续成功？显然这两个问题是近些年党内争议最大的，对未来中共走向何方的确定问题注定会在中共内部各派引起激烈斗争并在这次会议到达你死我活的地步。 郭文贵先生直播透露，中共十九届六中全会，最核心的将是决定中共国社会到底走什么制度的问题：是北朝鲜化，还是走向国际化，让我们拭目以待。
 
-我就要让你们过上体面的生活
-Yo quiero que ustedes pasen una vida decente
-
-我要让你们的父母就是我们的父母
-Quiero que sus padres, es decir, nuestros padres
-
-绝对不能再过那种没有尊严的(生活)
-No pasen de nuevo una vida sin dignidad
-
-那种真的是太苦太苦的日子了, 人和畜生不分
-Esos días son realmente muy amargos, no hay distinción entre humanos y animales
-
-人不如畜生
-El humano es inferior a los animales
-
-还有我们即使有了钱, 在中国看到的所有人
-Y a pesar que tengamos dinero, todas las personas que vieron en China
-
-那种无知, 那种愚昧被洗脑
-Ese tipo de ignorancia y que su cerebro es lavado
-
-咱不就干了两件事吗
-Nosotros ¿no realizamos dos cosas?
-
-启民智, 变成民天下
-Abrir la sabiduría del pueblo para que el mundo sea de todos
-
-所有全世界的财富几乎都是家天下的财富
-La riqueza de todo el mundo es casi de toda la familia
-
-今天很多战友没有说明白, 我们今天喜联储最大的价值
-Hoy muchos compañeros luchadores que no hablaron claro acerca del valor mayor de nuestra Reserva Federal de Himalaya
-
-他就是民天下的财富
-Es la riqueza de todo el pueblo
-
-他属于战友们, 你想一想
-Les pertenece a los compañeros luchadores, piensa
-
-3万7千多个战友, 占有了10亿中60%的喜币
-Más de 37 mil compañeros luchadores ocuparon el 60% de los mil millones de la moneda de Himalaya
-
-是不是民天下, 没有世界一个机构是这样的
-Es del pueblo o no, no hay ninguna organización en el mundo como esta
-
-而我们今天在庆贺什么
-Y hoy de qué estamos celebrando
-
-一个货币的诞生
-El nacimiento de una moneda
-
-所以我刚才我看了Qmay演出
-Por eso, hace rato ví el show de Qmay
-
-她老公孩子坐在旁边
-Su esposo e hijos estaban sentados al lado
-
-你看这个时光啊
-Mire estos momentos
-
-这个就是现实啊
-Esta es la realidad
-
-我们的喜币你看看
-Mira nuestra moneda de Himalaya
-
-而且你想想, 一个将军要跟我们要10万喜币
-Además, puedes pensar, un general quiere pedirnos cien mil de monedas de Himalaya
-
-理所当然
-Obviamente
-
-就这不要脸的, 共产党听到这就把他抓了
-Es una vergüenza, el Partido Comunista lo arrestó cuando lo escuchó
-
-我说这是个中国的将军, 我当时赶快手机让他看
-Dije que este es un general de China, en aquel momento le mostré con mi teléfono
-
-他楞了, 他说干什么, 要喜币
-Él se quedó sorprendido y preguntó, qué estás haciendo, quiero moneda de Himalaya
-
-这就是老班长
-Este es Lao Banzhang
-
-他说, 我们真的是兄弟姊妹们
-Él dijo, nosotros realmente somos hermanos y hermanas
-
-我们感受到了, 我们真有天命啊
-Sentimos que sinceramente tenemos el Mandato del Cielo
-
-每个人你要怀疑这个的时候
-Cada uno de ustedes cuando quiere sospechar de esto
-
-当你不忠于这个的时候
-O cuando no eres fiel
-
-你一定会被淘汰掉
-Serás eliminado
-
-永远别忘了, 我们有使命
-Nunca olvides, tenemos una misión
-
-就是要灭共, 什么都是为灭共准备的
-Que es eliminar al comunismo, todo es por la preparación de la extinción del comunismo
-
-* * *
-
-日期：11/06/2021
-原视频标题：喜联储藏富于民是为灭共做准备！
-¡La acumulación de la riqueza de la Reserva Federal de Himalaya entre los ciudadanos es una preparación para la extinción del comunismo!
-原视频日期：11/03/2021
-原视频网址：[https://twitter.com/se1y7cblljselva/status/1455834163211165698?s=24](https://twitter.com/se1y7cblljselva/status/1455834163211165698?s=24)
-任务编号：KC228(2760)
-视频时间段：0:00-2:14
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**[新闻来源](https://news.sina.cn/gn/2021-11-07/detail-iktzqtyu5952708.d.html?from=wap)**
 
  
 

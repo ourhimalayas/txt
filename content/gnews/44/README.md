@@ -2,31 +2,26 @@
 ---
 
 
-## 疫苗灾情｜法国 34 岁世界纪录保持者接种疫苗后患上心脏病 职业生涯面临终结
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1647934/)
+## 中共欲饮鸩续命，再次推出城市更新
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1648014/)
 
-**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 8/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2c82b8914a2be6279ef40e51a3db53e5.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+#### 撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/11/wre.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2019%252F08%252F08%252F7455d45df2ab4716b51d9b81265f9760.jpeg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FEM24HRB605359TSB.html&amp;tbnid=lFOLpchoaxK9jM&amp;vet=12ahUKEwib7_iu54f0AhUBUvUHHXqcDDcQMygGegUIARClAQ..i&amp;docid=2nbCTE-LxVaT5M&amp;w=650&amp;h=399&amp;q=%E5%9F%8E%E5%B8%82%E6%9B%B4%E6%96%B0&amp;ved=2ahUKEwib7_iu54f0AhUBUvUHHXqcDDcQMygGegUIARClAQ)
+中共国住房和城乡建设部于11月4日发布《关于开展第一批城市更新试点工作的通知》（下称《通知》），决定在北京、南京、苏州、成都、重庆、沈阳、宁波、厦门、西安、长沙等21个重点城市（区）开展第一批城市更新试点工作。
 
-【法国】今年 34 岁的 Florian Dagoury 是目前静态屏气自由潜水领域的世界纪录保持者，他在接种完第二剂辉瑞 COVID-19 疫苗的第 40 日，被诊断出患有心肌炎和心包炎。
+通知最核心的内容有三，1、**政策针对区域核心城市**；2、**加大各级财政资金投入，加强各类金融机构信贷支持，完善社会资本参与机制**；3、**创新土地**、**不动产、产业、财税、金融等相关配套政策**。
 
-这位旅居在泰国的法国籍优秀运动员过去以保持屏气 10 分 30 秒而闻名世界，最近他因屏气能力显著下降而求诊心脏科权威，才发现自己的职业生涯恐怕会因疫苗副作用而终结。
+上次城市更新，早在2014年至2018年间就在三四线城市普遍施行，当时名为“货币化棚改”，保守估计总投入约10万亿元。实际是对三四线城市的定向货币宽松，效果是诱使三四线城市涨价去库存，消化了超10亿平方米商品房库存，竟将三四线城市处于崩溃边缘的房地产强行激活，硬性续命至今。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_0056.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_0055.jpg)
+故伎重演，中共再次祭出定向货币宽松，目的是保核心城市房地产，为自身续命。当年房地产总市值约200万亿，现近4至5倍市值，托市代价是中共不能承受之重。水漫金山，通货膨胀将直线飙升，民众将以购买力疯狂贬值为代价，成为中共续命的牺牲品。在与世界脱钩、供应链断裂、疫苗灾难、通货膨胀、房地产起爆的情况下，中共祭出定向水龙头就能续命？做梦。
 
+信息来源：
 
-以下是他分享在个人 instagram 上的贴文：
+[住房和城乡建设部办公厅关于开展第一批城市更新试点工作的通知](http://www.gov.cn/zhengce/zhengceku/2021-11/06/content_5649443.htm)
 
-*只是想分享下，我接种疫苗后的恼人经历，也许有其他的自由潜水者发生类似的故事，不知道你们有没有好转？ 接种第二剂疫苗后，我注意到我的心率远高于正常水平，并且我的屏气能力显著下降。睡眠期间，我的心率为 65-70bpm，而不是过去正常的 37-45bpm。白天，我现在总是超过 100bpm 而不是过去的 65bpm。即使我放松的坐着，有一次我只不过和朋友吃饭，心律达到了 177bpm !!!!  第二针之后第 10 天，我去看心脏病科专家，他告诉我这是辉瑞疫苗的常见副作用，不用担心，休息一下就会过去。 40 天后，我没有任何进展，我又去看了另一位心脏病科专家，被诊断出患有心肌炎、心包炎和微量二尖瓣反流！ 这是由免疫系统引起的心肌炎症和一些失去正常闭合功能的瓣膜血液回漏。 我的第一想法和建议是选择一种像 Sputnik（俄罗斯疫苗）、Sinovac（科兴）、Sinopharm（国药） 这样的采用原始方式研制的疫苗……而不是那些新的 mRNA 疫苗。*
-
-**小编提醒：中国大陆和香港普遍采用科兴和国药疫苗，不少人因此患上癌症、急性白血病、性勃起障碍、月经紊乱甚至猝死，不过被官方刻意掩盖。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗_0-1.jpg)
-* * *
-
-来源｜[个案058](https://www.instagram.com/p/CUrJkJ-FuFd/?utm_medium=copy_link)
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,29 +2,47 @@
 ---
 
 
-## 奥尔特加赢得有争议的尼加拉瓜总统选举
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1648306/)
+## 又一名拜登随从人员感染CCP病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648363/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/umstrittene-wahl-praesident.jpg)
+作者：英国喜庄园 – I770775
 
 
-图片来源： FAZ
 
-根据官方消息，伊加拉瓜的国家元首丹尼尔奥尔特加在有争议的总统选举中以绝对多数，赢得了总统选举。根据周一晚上（当地时间）公布的近 50% 的选票计算结果，奥尔特加的得票率为 75%。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-这位执政了 14 年的前游击队领导人在选举前几个月逮捕了几名主要的反对派政客，使他们无法竞选总统。
 
-有五名几乎不为人知的有希望的候选与奥尔特加竞争。批评者指责国家元首多年来发展出越来越专制和压制的政府风格。以及他废除了限制总统任期的宪法规定。
 
-选举伴随着来自国内外的大量批评。根据在线报纸“机密”的报道，选民投票率很低。它说，除了少数例外，没有排长队或其他大量人群。由于镇压而不得不离开该国的反对派成员已从流亡中呼吁抵制投票。
+11月4日,据白宫方面的消息证实，拜登的一名助手CCP病毒检测呈阳性。这是继上周白宫新闻秘书感染后，白宫又一名拜登的随从人员感染CCP病毒。
 
-美国总统乔拜登称周日的投票是一场“闹剧”。所有可用的“外交和经济手段”将用于追究丹尼尔奥尔特加总统及其夫人和副总统罗萨里奥穆里略的责任。邻国哥斯达黎加政府周日也表示，它不会承认这次选举，因为它不是在民主条件下进行的。
+据悉，该助手任职于白宫国家安全委员会，之前陪同拜登前往英国参加《联合国气候变化框架公约》第26次缔约方大会，并在大会最后一天被检测出阳性，目前留在苏格兰以完成隔离期。不幸的的是，拜登此行，不仅随行助手感染了ccp病毒，随他出席会议的洛杉矶市市长贾西提也没能躲过病毒侵袭，目前，贾西提正在隔离中。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-29.jpg)
+参考链接：
+[白宫：拜登一助手新冠检测呈阳性 此前一同前往欧洲](https://finance.sina.com.cn/jjxw/2021-11-06/doc-iktzqtyu5676347.shtml)
 
-原文链接：[新闻来源：德国法兰克福报网页版](https://www.faz.net/aktuell/politik/ausland/nicaragua-ortega-siegt-bei-umstrittener-praesidentenwahl-17623902.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-责任编辑、发布： Shuizhuyu
+总编：文特
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

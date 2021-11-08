@@ -2,36 +2,41 @@
 ---
 
 
-## 有声|美国联邦上诉法院冻结拜登政府的企业疫苗强制令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1648358/)
+## 有声|众议院通过1万亿美元的基础设施计划
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1648416/)
 
 配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月6日，美国联邦第五巡回上诉法院发布命令称，暂时冻结拜登政府发布的企业新冠疫苗强制令。该强制令要求，拥有超过100名员工的美国公司，其所有员工必须接种新冠疫苗或每周接受新冠病毒测试。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国众议院周五晚上通过了一项历史性的 1 万亿美元基础设施一揽子计划，并计划投票允许对其更大的社会支出和气候法案进行正式辩论，这表明在中间派和激进派之间存在数月分歧后，拜登总统的议程取得了进展。
 
-巡回法院给出的冻结理由是，该强制令存在“严重的法律和宪法”问题，同时，法院要求拜登政府必须在11月8日下午5点前回应法院对新冠疫苗强制令提出的质疑。
+计划对更大的社会支出法案进行的最终投票被取消，因为一群温和派——足以阻止该措施——拒绝支持它，直到他们对其经济成本做出正式估计。
 
-日前，德克萨斯州总检察长肯·帕克斯顿曾就新冠疫苗强制令起诉了拜登政府。检方认为，强制员工接种新冠疫苗或每周接受病毒检测的命令是“滥用权利”且“完全违宪”，为此，检方要求法院下令取消该强制令。
+对基础设施法案的成功投票以 228 票对 206 票获得批准，标志着拜登议程急需展示势头，由于国会山中间派和激进派之间的深度不信任，该议程遭受了挫折， 8 月，参议院已经批准拜登的两党基础设施​​法案，为加州提供资金。1 万亿美元基础设施法案将交给拜登总统签署，白宫发言人周五表示，拜登将签署该协议。
 
-在赢得初步胜利后，帕克斯顿总检察长表示，关于新冠疫苗的斗争尚未结束，他将继续反对和抵制联邦政府的一切越权和违宪行为。
+（本文仅代表作者观点）
 
-文字版原文：[美国联邦上诉法院冻结拜登政府的企业疫苗强制令](https://gnews.org/zh-hans/1646716/)
+文字版原文：[众议院通过1万亿美元的基础设施计划](https://gnews.org/zh-hans/1645882/)
 
 音频处理：喜山必胜Maverick
 
 发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
 
 
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
