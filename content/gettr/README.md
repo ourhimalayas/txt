@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/8/2021 1:11 PM (UTC)`
+
+泽连科医生：中共病毒人为制造用来维持全球恐慌的生物武器。任何能够治疗COVID-19和威胁到恐惧机制的东西都被边缘化、压制和诋毁，任何反对政府说法的人都会被封杀。它们的全部意义在于利用恐惧促使70亿人去接受注射毒疫苗。<br/><br/>Dr. Zelenko: COVID-19 was artificially made bioweapon to maintain global fear. Anything that could treat COVID-19 and threaten the mechanism of fear was marginalized, suppressed and vilified,  and all people against the government's narrative were deplatformed. The whole point of them was to scare 7 billion people into taking a poison death shot.<br/>
+![img](https://media.gettr.com/group40/getter/2021/11/08/13/11/425b19c7-2ba9-4815-3a71-d5271d735976/out.jpg)
+
+---
+
 `@miles 11/8/2021 1:04 PM (UTC)`
 
 泽连科医生：疾控中心的中共肺炎治疗方案告诉医生，在病人发展成肺部并发症之前不要对其进行治疗。这与数十项研究的观察结果所表明的早期治疗能降低85%的住院和死亡率不符。所以是政府想让人们去死。<br/><br/>Dr. Zelenko: CDC COVID-19 protocols tells doctors not to treat patients until they develop lung complications which is inconsistent with the observations of dozens of studies that show an 85% reduction in hospitalization and death if you treat people early. So the government wants people to die.
@@ -290,13 +297,6 @@ Dr. David Wiseman: FDA打破了一个又一个规则，这绝对太离谱了。�
 
 11/3/2021 Miles Guo: It is too late for the CCP to impose a property tax, and this will not only lead to the downfall of the CCP but will also devastate the entire country! I have said long ago that houses are for living instead of speculation and profit-making! The CCP's plan to delay its economic collapse by imposing a property tax is doomed to fail!<br/><br/>11/3/2021 文贵直播：中共征收房产税为时已晚，亡党亡国！文贵早就说过，房子是来住的，不是来炒的！中共借征收房产税以延缓其经济崩溃的计划注定会失败<br/>
 ![img](https://media.gettr.com/group35/getter/2021/11/04/11/26/b622f1fe-8afe-17f1-9ba1-5dec7e0665e6/out.jpg)
-
----
-
-`@miles 11/4/2021 10:48 AM (UTC)`
-
-11月4号，未来的37天内．会是爆料革命．政治，经济．革命队伍．一个新的关键增长期！我们已经做到了．让新中国人在每天早上，从一个新的．真的．快乐的，美好的梦中醒来来！从健康的．充满激情的，愉悦的……希望中开始新的一天！共产党你👉完了……感谢上天万佛万神对新中国联邦人的眷顾和恩赐。🙏🙏🙏🙏🙏🙏🙏🙏🙏❤️❤️❤️
-![img](https://media.gettr.com/group45/getter/2021/11/04/10/48/22513e95-f364-58a2-d3d7-46769bf6a847/37fad30307a16074ed505c2813d0cb33.jpg)
 
 ---
 
