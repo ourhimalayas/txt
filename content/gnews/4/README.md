@@ -2,20 +2,30 @@
 ---
 
 
-## 父母越来越担心将会被迫为幼儿接种疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1647717/)
+## 德国海军拟每两年向印太派遣舰船
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1647772/)
 
-编译：沙子最怕你不理它
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-30.png)
-FDA和CDC违背顾问们的建议，决定在本月早些时候批准5至11岁的儿童药物时，尽管大多数健康的儿童几乎没有理由接种新冠病毒疫苗，但很快，他们需要做出决定：要么交出孩子并为他们接种疫苗；要么等着那些本该依照美国法律和宪法享受公共教育和他服务的孩子们被排出在整个系统之外（尽管司法判例会有点复杂）。这一切都是因为担心父母担心疫苗接种的长期影响，特别是想在以色列科学家已经确认了造成人体解刨学差异方面的sars-cov-2蛋白质。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_l.jpg)*德国海军中将舍恩巴赫接受共同社专访。11月6日摄于东京都江东区。（共同社）*
+据共同社11月8日报道，德国海军中将舍恩巴赫近日表示，为了维护印太地区基于法律的国际秩序，有可能每两年一次向该地区派遣舰船。
 
-虽然很多疫苗针对未成年人的指导剂量在调整后减低了，但随着辉瑞发布其“奇迹”新冠病毒药丸，以及数据显示辉瑞的药丸将弱势患者的住院人数减少了89%，拜登政府为幼儿注射疫苗的计划正遇到父母日益增长的抵制，他们对疫苗的安全性表示担忧，认为没有必要，或有其他理由抵制通过制药巨头和美国政府合作开发的疫苗。甚至一些自己接种过疫苗的父母也反对为五至11岁的孩子接种疫苗，因为他们担心对年轻患者可能更具影响的副作用。
+德国于2020年制定了印太战略大纲。今年8月护卫舰“巴伐利亚”号从德国出发，经澳大利亚、美属关岛后在日本近海与海上自卫队展开联合训练，本月5日驶入东京港。这是自2002年以来，德国舰船再次停靠日本港口。
 
-来自田纳西州的言语治疗师娜瑞卡•戴维斯（Narika Davis）和她的丈夫一起接种了新冠病毒疫苗，因为作为可能接触病毒的一线工作人员，他们想保护自己的家人。但他们目前决定不给他们的孩子接种疫苗，作为她所说的全国性“实验”的一部分。还有一些家长认为只是为了让孩子们接受公共教育并不能成为强迫他们给孩子们接种疫苗的理由。
+因为中共在南海和东海活动频繁，美国、英国、法国，包括现在德国都加强了对这一地区的关注。中共是世界和平的破坏者，各国为了本地区的稳定，不约而同联合起来，一致对抗中共。
 
-科学界里对儿童疫苗众说纷纭，但父母为孩子接种疫苗的担忧大幅增加，更大范围的中国病毒疫苗注射可能会让孩子长期失学，是否要为儿童接种中共病毒疫苗的争议非常大并且在政治上不受欢迎。
+新闻参考链接：[https://china.kyodonews.net/news/2021/11/ee02f4359b6c.html](https://china.kyodonews.net/news/2021/11/ee02f4359b6c.html)
 
-来源：[Parents Increasingly Worried About Being Forced To Vaccinate Young Children As Biden Tightens Mandates](https://www.zerohedge.com/covid-19/parents-increasingly-worried-about-being-forced-vaccinate-young-children-biden-tightens)
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
