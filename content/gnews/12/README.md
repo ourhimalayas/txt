@@ -2,27 +2,23 @@
 ---
 
 
-## 纳瓦罗抨击福奇的疫苗政策是对儿童的变相虐待
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648529/)
+## 澳洲违反防疫规定且未缴纳罚款者 资产将被剥夺或扣押
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648598/)
 
-作者：日本方舟农场 – Andy5
+作者：美东香草山 – 新世界的一员
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月4日，前白宫顾问皮特-纳瓦罗在参加班农战斗室节目时指出，福奇推行疫苗强制政策，会对美国儿童造成极大困扰。福奇应该立即停止这种做法。
+11月6日，媒体报道，在澳大利亚第二大州昆士兰州，居民若违反政府苛刻的防疫规定，又不能及时缴纳相应的罚款，其存在银行的钱、房子或其他资产将面临被政府剥夺的风险。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-9.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-5.jpeg)
 
-纳瓦罗说，他本人当初同意研发疫苗，初衷是提供给那些有意愿接种的人，而不是对所有人强制接种，尤其是儿童。福奇主张六岁以下儿童强制接种“实验性”的疫苗，无疑是对儿童的一种变相虐待。
+自今年9月，昆州卫生厅要求昆州罚款执行登记处追查违反防疫规定的未付罚款。最新数据显示，有价值约一百万澳元的罚款尚未缴纳。当地媒体称，对这些人的执法措施可能包括扣押银行账户或工资、登记财产抵押或吊销驾照。另有媒体报道，预计这些极端措施也将在澳州其他地区实施，这可能给各州政府带来近一亿澳元的总收入。
 
-纳瓦罗批评福奇，作为医学专家，福奇却一直靠撒谎欺骗大众。福奇最大的谎言，就是借口所谓的疏忽，来掩盖他早在去年1月就知道病毒来源真相，却选择知而不报。
- 
-最后，纳瓦罗再次呼吁，美国民众需要知道病毒和疫苗的真相，需要知道“福奇撒谎，美国人死亡”这一事实。
-
-参考链接：[https://www.gettr.com/post/pgazpu8a98](https://www.gettr.com/post/pgazpu8a98)
+参考链接：[https://gettr.com/post/pgaqowf379](https://gettr.com/post/pgaqowf379)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：Ivy001 
-编辑：AN
+总编：飞虹
+编辑：飞虹
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

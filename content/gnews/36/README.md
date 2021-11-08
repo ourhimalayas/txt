@@ -2,57 +2,43 @@
 ---
 
 
-## 克鲁兹议员提法案 禁止美国强制儿童接种中共病毒疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648318/)
+## 有声|台湾一男子接种两针CCP病毒疫苗后死亡
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1648381/)
 
-作者：纽约香草山农场 – 飞虹
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月2日，台湾多家媒体报道，台湾南投县一名46岁的男子，接种第二针阿斯利康疫苗后，很快死亡。
+
+据了解，该名男子在今年7月接种了第一针疫苗，当时就曾发生严重的不良反应。按规定，他在10月又去接种了第二针，不幸的是，就在他接种第二针疫苗后不久，疫苗导致的副作夺去了男子年轻的生命。
+
+随着全世界CCP病毒疫苗的大面积强制接种，各国由疫苗导致死亡的人数一直在不断上升。
+台湾本来是全球疫情防控做得最好的几个国家之一，确诊人数比例极低，但由于政府无视病毒和疫苗的真相，全民强行推打毒疫苗，使全岛的确诊病例大幅度攀升，由接种疫苗导致死亡的人数比例也排在世界前列。
+
+截至10月7日16时，台湾由疫苗接种引发的死亡人数达850人，岛内所有新冠确诊死亡的人数为845人，“台湾接种疫苗死亡人数首超确诊死亡人数”引起不少网友热议，这一话题也一度冲上新浪微博的热搜榜单。
+
+（本文仅代表作者观点）
+
+文字版原文：[台湾一男子接种两针CCP病毒疫苗后死亡](https://gnews.org/zh-hans/1645249/)
+
+音频处理：喜山必胜Maverick
+
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
 
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-11月5日，美国多家媒体报道，得克萨斯州参议员特德·克鲁兹提出一项法案，要求禁止联邦、州和地方各级政府强制儿童接种中共病毒疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-1.jpg)
-法案内容重点包括：
-
-1. 禁止联邦政府和任何从州、地方、部落 或地区卫生和公众服务部获得联邦资金的人 要求任何18岁或以下的人接种新冠病毒疫苗。
-
-2. 禁止任何学区或其他教育实体强制要求18岁或以下的学生接种中共病毒疫苗。
-
-3. 如果任何学区实施了授权，则无权获得本法案涉及的一些资助。
-
-4. 未成年人接种中共病毒疫苗需要父母同意。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-54.jpg)
-针对该法案，克鲁兹议员发表声明说：父母应该有权在咨询家庭医生后决定什么对他们的孩子最好。拜登总统和他的政府一再无视医疗隐私权和人身自由，推行非法和繁重的疫苗强制令。我提出这项法案，以确保拜登总统及其政府不参与与儿童健康有关的决策，这是应该留给父母的。
-
-参考链接：
-1. [Cruz introduces bill prohibiting vaccine mandate for minors](https://www.indianagazette.com/news/national/cruz-introduces-bill-prohibiting-vaccine-mandate-for-minors/article_405cc0cf-ceb7-52a2-a20d-83507c3d6edf.html)
-2. [法案文本](https://www.cruz.senate.gov/imo/media/doc/20211104.covidmandatebill.pdf)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：木白
-校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
 
  
 

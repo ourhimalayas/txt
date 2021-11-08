@@ -2,29 +2,49 @@
 ---
 
 
-## 奥尔特加赢得有争议的尼加拉瓜总统选举
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1648306/)
+## 欧洲央行计划发行数字货币
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648359/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/umstrittene-wahl-praesident.jpg)
+作者：英国喜庄园 – I770775
 
 
-图片来源： FAZ
 
-根据官方消息，伊加拉瓜的国家元首丹尼尔奥尔特加在有争议的总统选举中以绝对多数，赢得了总统选举。根据周一晚上（当地时间）公布的近 50% 的选票计算结果，奥尔特加的得票率为 75%。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-这位执政了 14 年的前游击队领导人在选举前几个月逮捕了几名主要的反对派政客，使他们无法竞选总统。
 
-有五名几乎不为人知的有希望的候选与奥尔特加竞争。批评者指责国家元首多年来发展出越来越专制和压制的政府风格。以及他废除了限制总统任期的宪法规定。
 
-选举伴随着来自国内外的大量批评。根据在线报纸“机密”的报道，选民投票率很低。它说，除了少数例外，没有排长队或其他大量人群。由于镇压而不得不离开该国的反对派成员已从流亡中呼吁抵制投票。
+11月5日，欧洲央行执委帕内塔表示，欧洲央行计划在五年内发行欧元数字货币。意图与私人交易所发行的稳定币相竞争，维护岌岌可危的央行金融体系。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-20.jpg)
+随着世界经济发展不确定性增强，全球多个国家和地区的央行都在探索发行法定的数字货币，极力防止生机勃发的私人交易所，终将撼动政府发行法币的权利。
 
-美国总统乔拜登称周日的投票是一场“闹剧”。所有可用的“外交和经济手段”将用于追究丹尼尔奥尔特加总统及其夫人和副总统罗萨里奥穆里略的责任。邻国哥斯达黎加政府周日也表示，它不会承认这次选举，因为它不是在民主条件下进行的。
+有专业人士指出，以喜币为代表的去中心化的数字货币，以其私密、便捷、无国界实时流通等诸多优势，取代由政府主导发行的传统法币，将是人类社会发展的必然趋势。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-18.jpg)
+参考链接：
+1. [欧洲央行近期将决定是否建立官方数字货币](https://blog.51cto.com/u_15342942/3652495)
+2. [欧洲央行不能将数字货币空间完全让位于私营部门–执委帕内塔](https://www.reuters.com/article/ecb-euro-digital-idCNL4S2RW38A)
 
-原文链接：[新闻来源：德国法兰克福报网页版](https://www.faz.net/aktuell/politik/ausland/nicaragua-ortega-siegt-bei-umstrittener-praesidentenwahl-17623902.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-责任编辑、发布： Shuizhuyu
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

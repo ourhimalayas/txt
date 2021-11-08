@@ -2,32 +2,38 @@
 ---
 
 
-## 新加坡新增2553例中共病毒感染者
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1648261/)
+## 有声|马斯克为台湾写诗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1648327/)
 
-**撰稿：日本东京方舟农场  子辰**
-
-据CAN 11月7日报道，新加坡本周日报告的中共病毒数新增2553例，死亡人数已经达到497例。死者年龄介乎 45 至 89 岁。其中包括一名 85 岁接种疫苗的老者。
-
-报告显示，新加坡过去一周的社区病例感染增长率为0.81。新增病例中，有 2,548 例感染是来自于本地传播，其中社区 2,343 例及农民工宿舍的 205 例。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-27.jpg)图片来源：https://www.channelnewsasia.com/singapore/covid-19-new-cases-deaths-weekly-infection-growth-rate-nov-7-moh-2296881
-
-另据统计，新加坡 85% 的人口已经接种了两剂 COVID-19 疫苗。其中大约86% 的人至少接受了一次注射，而 18% 的人接受了加强注射。
-
-*参考链接：*
-
-[Singapore reports 2,553 new COVID-19 cases and 17 more deaths](https://www.channelnewsasia.com/singapore/covid-19-new-cases-deaths-weekly-infection-growth-rate-nov-7-moh-2296881)
-
-* * *
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
 
 
-```
-素材采编：子辰
-编辑：文顺
-校对/发布：Ranting
-```
+马斯克是一位世界级的富豪，正义而善良2021/11/2号马斯克的推文出现了一首中文诗，煮豆燃豆萁，豆在斧中泣，本是同根生，相煎何太急。这是曹植的七步成诗，反映的是曹丕为了称帝霸天下，不惜迫害杀害同胞兄弟的残忍和恶毒，这诗一经推出，不但引起墙外疯狂的转载和点赞，同样引起墙内的网络震动，人们在中共打击言论自由的严密监控下，用疯狂的点赞和打赏，强力表达了反抗中共为了霸权不惜生灵涂炭，为了巩固政权发起对台战争，中国共产党发起的每一场战争和战斗，死的都是平民百姓的孩子们，习大神再一次把人民当成了中共政权的铜墙铁壁，一经发动对台战争，现代的高科技的战斗，那将是一场白骨如山的大灾难，可怜的老百姓永远是战争的牺牲品，中共不灭灾难不断。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%8D%95%E8%8E%B7-1.png)
+（本文仅代表作者观点）
 
+文字版原文：[马斯克为台湾写诗](https://gnews.org/zh-hans/1645231/)
+
+音频处理：喜山必胜Maverick
+
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
