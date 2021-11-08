@@ -2,30 +2,46 @@
 ---
 
 
-## 日本政府の新型コロナウィルス「第６波」の備えについて
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1648250/)
+## 又一名拜登随从人员感染CCP病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648363/)
 
-翻訳： 東京櫻花団/夏目&山竹
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-10.png)
-(画像は東京桜花団設計組によるものです)
+作者：英国喜庄园 – I770775
 
-政府は、CCPコロナウイルス感染の「第６波」対策として、無症状者のＰＣＲ検査と抗原検査を無料で実施する方針を固めた。
 
-また、希望する軽症者全員をホテルなどの「待機施設」に滞在させるため、都道府県に施設の準備を要請する考えだ。陽性者を早期に発見するとともに、重症化を防ぐ狙いがある。
 
-以前と違い、新しい内閣が次の「第6波」に備え、軽症者が自宅待機から、ホテル滞在に変え、又、無症状でもPCR検査をただで受けるなど、積極的に取り込む姿勢を国民に見せ、好感度アップを狙っていると思われる。その他、3回目のワクチンを積極的に推進している。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-筆者は、新しい内閣のやる気を認めるが、本気で国民のためなら、まず、新型コロナウィルスの真相から認識する事。それから、医療現場の現状をもとに、徹底的、有効的な対策を取る事こそ、国民を守れるのだ。
 
-例え、有効性と安全性が全く保証できないワクチンを止め、イベルメクチンを治療薬に認定する。その他、ワクチンによる被害を認め、真剣に治療、対策を考える。
 
-一番有効な方法は、「爆料革命」の引率者、郭文貴氏のお話を聞く事だが、すぐは無理だと分かる、遠くない将来、各国政府は耳を傾けると信じるのだ。
+11月4日,据白宫方面的消息证实，拜登的一名助手CCP病毒检测呈阳性。这是继上周白宫新闻秘书感染后，白宫又一名拜登的随从人员感染CCP病毒。
 
-[情報源](https://news.yahoo.co.jp/pickup/6409152)
+据悉，该助手任职于白宫国家安全委员会，之前陪同拜登前往英国参加《联合国气候变化框架公约》第26次缔约方大会，并在大会最后一天被检测出阳性，目前留在苏格兰以完成隔离期。不幸的的是，拜登此行，不仅随行助手感染了ccp病毒，随他出席会议的洛杉矶市市长贾西提也没能躲过病毒侵袭，目前，贾西提正在隔离中。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-29.jpg)
+参考链接：
+[白宫：拜登一助手新冠检测呈阳性 此前一同前往欧洲](https://finance.sina.com.cn/jjxw/2021-11-06/doc-iktzqtyu5676347.shtml)
 
-校正：東京桜花団/待命（文暁）
-アップロード：東京桜花団/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：文特
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
 
 
  

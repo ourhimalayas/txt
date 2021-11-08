@@ -2,39 +2,20 @@
 ---
 
 
-## 新冠疫情挤占医疗资源，维多利亚州救护车服务橙色预警
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1648076/)
+## 秘翻在线：英国殡仪业人士证实死婴堆积在太平间
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1648206/)
 
-**编译整理：月映万川**
-**编辑：文泓**
+**翻译：Nstar**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image1-1.jpeg)图片来源：ABCNews
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-08-203427.jpg)
+据英国当地媒体报道，在接受英国抵抗组织的采访时，担任丧葬承办人超过三年的韦斯利谈到了他在所谓的“大流行”期间的经历以及他最近在太平间看到的情况。
 
+他说，他目前看到无数死婴和新生儿被存放在冷藏库中，并堆积在太平间等待葬礼。他和其他殡仪业者处理的婴儿数量史无前例，与自 Covid 注射剂推出以来已经死亡的 30 多岁和 40 多岁的年轻人数量过多相匹配。中共疫情刚开始时，停尸房出现了一连串的死亡事件，几个月后就平静下来了。
 
-上周六，澳大利亚维多利亚州州长发布预警称，本州的医疗系统已在崩溃边缘。
+2020 年夏天，大多数年轻人的自杀率有所上升，但当 2020 年秋天到来时，一切都相当平静。然后，他说，“到 2021 年 1 月，数字开始飙升……那是因为人们正在接种疫苗。” 现在，他在两周内举行了他见过的最多的葬礼，而在年轻人中，他平均“一口气”举行了 12 场葬礼，而在注射 Covid 之前，他只会看到“四五场葬礼，而不是 12 场，并不是所有的人都在那个年龄段。”而现在，他说，他看到的是很多新生婴儿……“非常多，大约 30 个”，而他习惯于只看到三四个。换句话说，新出生婴儿的死亡人数是他通常看到数量的 10 倍——太多了，他们不得不把他们留在有更多空间的成人区。“很明显，他们要么被流产，要么足月被分娩，但关于这方面的说法并不多，”他说。为了正确看待死亡原因，今年只有一个病患是因为中共病毒死亡，其余的都是心肌炎、梗塞（心脏病发作）和一些肺炎。他还指出，在大流行开始时死亡的“任何人”在他们的死亡证明上都被标记为 Covid，但自从引入 Covid 注射后，这种情况就没有发生过。
 
-墨尔本的第六次封锁终于结束，正当人们想要恢复疫情前生活状态时，而医护资源已经捉襟见肘。周六晚间，由于巨大的需求量，维州紧急救护服务被迫宣布进入“橙色预警”。
-
-维州救护车工会秘书长丹尼·赫尔说：“在那晚某个时间，曾经接到过70个呼叫紧急救援的电话，但是却没有任何救护车可以用。”
-
-即使救护车能够把病人送到医院，但是医院也没有床位接收病人入院，这是因为新冠病例加剧挤占了过多的医疗资源。
-
-上周日的新闻发布会上，安德鲁斯州长却把目前的医疗系统崩溃问题归结于未接种疫苗者。
-
-目前维多利亚州，12岁以上人口完全接种率已经达到了84%。
-
-而周日，维多利亚州报告了1173例感染，9人因新冠去世，96人目前在ICU。
-
-原文链接：[Victorian ambulances declare code orange on weekend as health system stretched by COVID cases](https://7news.com.au/lifestyle/health-wellbeing/victorian-ambulances-declare-code-orange-on-weekend-as-health-system-stretched-by-covid-cases-c-4472268)
-
-发布：Janek
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**[新闻来源](https://theexpose.uk/2021/11/07/british-funeral-director-dead-babies-are-piling-up-in-morgues/)**
 
  
 

@@ -2,77 +2,36 @@
 ---
 
 
-## 如果中期选举保守党赢，立法承认虚拟货币成为美国第二选择
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1648247/)
+## 有声|美国联邦上诉法院冻结拜登政府的企业疫苗强制令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1648358/)
 
-[https://gtv.org/video/id=618907adadfd99590c346219](https://gtv.org/video/id=618907adadfd99590c346219)
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月6日，美国联邦第五巡回上诉法院发布命令称，暂时冻结拜登政府发布的企业新冠疫苗强制令。该强制令要求，拥有超过100名员工的美国公司，其所有员工必须接种新冠疫苗或每周接受新冠病毒测试。
 
-郭文贵
-Miles Guo
+巡回法院给出的冻结理由是，该强制令存在“严重的法律和宪法”问题，同时，法院要求拜登政府必须在11月8日下午5点前回应法院对新冠疫苗强制令提出的质疑。
 
-共产党的房地产，共产党现在整个的在美国挖的坑，自己挖的坑
-The real estate of the Communist Party, the pit that the Communist Party dig in the United States now, they dig themselves
+日前，德克萨斯州总检察长肯·帕克斯顿曾就新冠疫苗强制令起诉了拜登政府。检方认为，强制员工接种新冠疫苗或每周接受病毒检测的命令是“滥用权利”且“完全违宪”，为此，检方要求法院下令取消该强制令。
 
-干掉了半个美国的人，这些美国人的报复已经席卷而来
-Wiped out half of the Americans, and the revenge of these Americans has swept through
+在赢得初步胜利后，帕克斯顿总检察长表示，关于新冠疫苗的斗争尚未结束，他将继续反对和抵制联邦政府的一切越权和违宪行为。
 
-你说今天弗吉尼亚Long Island这些人赢，你不如说保守党赢了
-people in Virginia, Long Island won today, you might say that the Conservative Party won today
+文字版原文：[美国联邦上诉法院冻结拜登政府的企业疫苗强制令](https://gnews.org/zh-hans/1646716/)
 
-保守党赢，保守党恨的是谁呀？它不恨拜登
-If the Conservative Party wins, who does the Conservative Party hate? It doesn’t hate Biden
+音频处理：喜山必胜Maverick
 
-我不相信任何人恨拜登的，他不告诉你，
-I don’t believe anyone hates Biden, he won’t tell you
+发稿：呼吸的雾霾（文小呼吸）
 
-它恨共产党，绝对最恨共产党
-It hates the Communist Party, absolutely hates the Communist Party most
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-走着看，国会，参众两院回来之日，是管着美国的钱呢
-We’ll see, when the Conservative Party win the Congress and the Senate, which are in charge of American money
 
-一系列的法律，没有法律在美国寸步难行
-There will be a series of legislation, without the support of legislation, it is difficult to go anywhere in the United States
-一立法那都是，它能立法它就能立咱新中国联邦代表中国人呢
-It’s all about legislation. If it can legislate, it can establish the New Federal State of China to represent the Chinese people
 
-它有多大呀，兄弟姐妹们，它只有立法承认虚拟货币
-How big is it, brothers and sisters, it only has legislation to recognize virtual currency
-
-在美国成为第二个货币选择，咱是最大的赢家
-to become the second currency choice in the United States, we are the biggest winner
-
-它只要立法，把共产党的所有海外资产查封，咱是最大的赢家
-It only needs to legislate to seal up all the overseas assets of the Communist Party, we are the biggest winner
-
-这些人赢了，不如说是共产党输了
-These people won, it is better to say that the Communist Party lost
-
-你别把民主党和共和党分，是共产党和美国人谁赢了
-Don’t divide the Democrats and Republicans, it’s between the communist Party and American
-
-现在是美国人赢了，共产党输了
-Now the Americans have won, the Communist Party have lost
-
-* * *
-
-Date:11/05/2021
-原视频标题: 如果中期选举保守党赢，立法承认虚拟货币成为美国第二选择
-If the Conservative Party wins the mid-term elections, the legislation recognizes virtual currency as the second choice in the United States
-原视频日期：2021/11/01
-原视频链接 [https://twitter.com/se1y7cblljselva/status/1456599741865758730?s=24](https://twitter.com/se1y7cblljselva/status/1456599741865758730?s=24)
-任务编号：KC227(2786)
-视频时间段 : 0:00-1:28
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

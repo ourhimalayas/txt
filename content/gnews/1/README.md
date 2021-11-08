@@ -2,29 +2,24 @@
 ---
 
 
-## 11/8/2021中日财经爆：要赖账？恒大又有2笔到期债券利息未付
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1648268/)
+## 文贵爆料 7/11: 永远拿不走的喜币——任你妙手神偷
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1648388/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-28.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpic2.zhimg.com%2Fv2-fa9c1710abb2d765f3b1af3e201a5dcb_ipico.jpg%3Fsource%3D172ae18b&amp;imgrefurl=https%3A%2F%2Fzhuanlan.zhihu.com%2Fp%2F60832589&amp;tbnid=iIpbXXlMCVmiwM&amp;vet=12ahUKEwjvivm14oj0AhVBAN4KHXJaA98QMygEegUIARChAQ..i&amp;docid=seGzKk0ftej7PM&amp;w=1080&amp;h=719&amp;q=%E8%80%81%E8%B5%96&amp;ved=2ahUKEwjvivm14oj0AhVBAN4KHXJaA98QMygEegUIARChAQ)
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/766f9ef0-cbc7-477c-9561-52f825d04dcd.jpg)
+喜币在设计之初，便已未雨绸缪。郭文贵先生在11月7日的大直播中说，喜币天生就是灭共的，中共永远拿不走，绝对安全，且不可查、不可寻、不可辨识。
 
-路透11月8日报道，两位熟悉情况的消息人士表示，截至亚洲时段周一上午，中国恒大集团[3333.HK](https://cn.reuters.com/companies/3333.HK)子公司Scenery Journey Ltd部分美元债券的持有人尚未收到周六到期债券的利息。
+我告诉你喜联储用的区块链技术，有两种技术，一个叫私人区块链，一个叫公开区块链。很多交易所的区块链技术全是公开的，只有我们是私人区块链。为啥咱要用私人区块链？
 
-该公司2022年11月到期、票面利率为13%以及2023年11月到期、票息为13.75%的债券应在周六进行半年一次的付息，总金额为8249万美元。
+第一条，我们的私人区块链每一秒钟可以做到100单到1000单甚至到10000单。公开链大概一分钟可能做十单，一秒钟有时候连一单半单都做不了，很慢，那你说喜联储怎么用啊？没法用！它是技术决定的运行。
 
-在11月6日之前未兑付利息，则将启动30天的支付宽限期。此前该公司在宽限期届满前支付了之前到期的票息，勉强避免了违约。
+第二条，私人区块链什么概念？大家记住了吗？不但是共产党，任何国家政府都不可能，除了喜联储和人家勾兑之外，没有一个人能拿到你的个人信息，绝不可能！世界上只有我们敢说这句话，绝对不可能！就这么简单。这是非区块链技术，KYC完加密完的币的信息和技术，没有人包括喜联储也拿不到，永远不可能， 进门之前你知道我是谁，经过KYC安保确认，我进了门以后，一换脸，你再也找不着我了，这才叫去中心化，去中心化就是永远不可查、不可寻、不可辨识。你未来会知道咱们的这个有多厉害，这是第二条。
 
-有一个宽限期将于11月10日(周三)结束，涉及10月11日到期的逾1.48亿美元的票息。
+郭先生说，只有咱们的这个技术你拿走没用，你还得还回来，因为是有痕迹的，我都能拿回来——绝对的安全！这就是对付共产党的招儿。咱天生就是灭共的，这个币就是灭共。共产党把这个币拿走你白拿。牛吧？
 
-消息来源:
+参考链接：
 
-[中国恒大子公司的部分离岸债券持有人未收到周六到期债券的利息](https://cn.reuters.com/article/evergrande-bondholders-offshore-1108-mon-idCNKBS2HT0A0?il=0)
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
-
+[2021年11月07日 文贵大直播](https://gettr.com/streaming/pga8le9f31)
 
  
 

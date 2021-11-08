@@ -2,37 +2,158 @@
 ---
 
 
-## 银河快讯：日本公司疫情中恢复不平衡；航空自卫队考虑保卫钓鱼岛
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1648033/)
+## 喜联储藏富于民是为灭共做准备！
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1648160/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-36.png)[图片来源](https://3g.163.com/)
-**1.****岸田首相视察首都圈联合防灾演习**
+[https://gtv.org/video/id=6189083fadfd99590c346236](https://gtv.org/video/id=6189083fadfd99590c346236)
 
-[据NHK 11月7日报道，岸田首相从首相官邸乘坐直升机访问了横滨市，并观察了由东京都和神奈川县等首都圈9个市镇联合举行的模拟相模湾发生8.1级地震的防灾训练。演习期间，岸田首相亲自参加了最初的灭火演习，并听取了关于在停电情况下如何使用电动车供电的介绍。 他说：“我们必须采取更坚实的措施，为东京都正下方和南海海槽地震为首的各种灾害做好准备。”他表示，今后他仍然考虑如何使防灾措施可期待万全。](https://www3.nhk.or.jp/news/html/20211107/k10013337751000.html?utm_int=news-politics_contents_list-items_001)
+我让大家中国人真的是(过上)体面尊严的生活
+Yo hice que todos los chinos realmente puedan pasar una vida digna y decente
 
-**2.****日本公司仍然看到从疫情中恢复的不平衡**
+真不是口头语
+Realmente no lo estoy hablando nada más
 
-[据共同社11月7日报道，虽然全日空和其国内竞争对手日本航空公司的盈利预计将比一年前有所改善，但它们仍然预测在截至3月的业务年度中，净亏损分别为1,000亿日元和1,460亿日元。在不进行裁员的情况下，这两家公司将通过退休和遏制为削减固定成本的新规招聘，从而缩减其员工队伍。政府有望恢复补贴计划，以刺激日本当地的旅游业，这将成为运输和旅游部门的一个利好。](https://english.kyodonews.net/news/2021/11/e5d72dab667f-focus-japan-inc-still-seeing-uneven-recovery-from-pandemic-as-services-lag.html)
+我现在就真的把战友们当爹娘
+Ahora mismo estoy viendo a mis compañeros luchadores como mis padres
 
-**3.****航空自卫队考虑保卫钓鱼岛**
+真的是这样想
+De verdad lo pienso así
 
-[据产经新闻 11月7日报道，航空自卫队正在考虑将附近岛屿上的一个民用机场作为战斗机和其他飞机的作战基地，以备与中共国在钓鱼岛和其他西南岛屿的偶发性事件。目前，航空自卫队在从九州南部到台湾东部的南西群岛只有一个战斗机作战基地，即冲绳岛的那霸机场。如果那霸机场的跑道被中共国的导弹摧毁，那么西南诸岛将失去战斗机和其他飞机的运营据点。扩大运营据点的计划是构想以冲绳县偏远岛屿的机场来替代那霸机场。](https://news.yahoo.co.jp/articles/4ed996783264d2d97411c508ec7aec5124ae8ed7)
+因为我的父母, 我母亲已经过世了
+Porque mis padres, mi madre ya falleció
 
-**4.****各铁路公司采取措施防止刺伤事件**
+我父亲现在已经是中风的状态
+Y mi padre ahora está en un estado de derrame cerebral
 
-[据时事通讯社11月7日报道，8月，10名乘客在一列小田急列车上遭到袭击。 铁路和公交公司正急于加强列车内巡逻和采取扩大安全设备等措施，但仍有许多问题需解决以确保乘客的安全，包括行李检查的有效性。国土交通省修改了条例，允许车站工作人员从7月开始检查乘客的行李。 但是有人对措施的难度表示担忧，巴士公司有关人士表示：“车上只有一个司机，检查起来很困难。”](https://news.yahoo.co.jp/articles/50437bd36d2ac3913fa6a1223e58df49ae51c288)
+我的家人全被绑架成肉票
+Todos los miembros de mi familia fueron secuestrados en boletos de carne
 
-**5.****日本全国新增162例感染者，东京21例**
+我现在所有的生命就在你们身上体现
+Actualmente, toda mi vida se refleja en ustedes
 
-[据时事通讯社报道，7日确认162例中共病毒新病例。这是自去年8月2日以来首次无新死亡报告。 重症病例的数量为100，与前一天相同。日本总死亡人数为18321人。自去年2月确认首例死亡，随今年春季爆发的“第四波”而增加，至今年4月突破万人。在东京，本日新确认21例病例。 比前周日少一人，连续第11天降至30以下。](https://news.yahoo.co.jp/articles/789f3bc4d2731b3430b82bea21d7de8bdc7b9c7f)
+我就要让你们过上体面的生活
+Yo quiero que ustedes pasen una vida decente
 
-**6.****日本首相将首次访美**
+我要让你们的父母就是我们的父母
+Quiero que sus padres, es decir, nuestros padres
 
-[据共同社 11月7日报道，在岸田文雄首相和美国总统拜登在英国的首次会晤中同意尽早举行正式会谈后，日本和美国政府已经开始为岸田文雄首相的首次访美制定日程。 考虑到国会的日程安排，日方表示倾向于在11月进行访问。 目前还不清楚他是否能够在11月出访，美国政府由于执政党内在围绕一项大型支出法案上大量耗时，几乎没有时间进行外交活动。](https://news.yahoo.co.jp/articles/8416b85d4988a80831d0e057466a6c2878ef07da)
+绝对不能再过那种没有尊严的(生活)
+No pasen de nuevo una vida sin dignidad
 
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Tagomi
+那种真的是太苦太苦的日子了, 人和畜生不分
+Esos días son realmente muy amargos, no hay distinción entre humanos y animales
+
+人不如畜生
+El humano es inferior a los animales
+
+还有我们即使有了钱, 在中国看到的所有人
+Y a pesar que tengamos dinero, todas las personas que vieron en China
+
+那种无知, 那种愚昧被洗脑
+Ese tipo de ignorancia y que su cerebro es lavado
+
+咱不就干了两件事吗
+Nosotros ¿no realizamos dos cosas?
+
+启民智, 变成民天下
+Abrir la sabiduría del pueblo para que el mundo sea de todos
+
+所有全世界的财富几乎都是家天下的财富
+La riqueza de todo el mundo es casi de toda la familia
+
+今天很多战友没有说明白, 我们今天喜联储最大的价值
+Hoy muchos compañeros luchadores que no hablaron claro acerca del valor mayor de nuestra Reserva Federal de Himalaya
+
+他就是民天下的财富
+Es la riqueza de todo el pueblo
+
+他属于战友们, 你想一想
+Les pertenece a los compañeros luchadores, piensa
+
+3万7千多个战友, 占有了10亿中60%的喜币
+Más de 37 mil compañeros luchadores ocuparon el 60% de los mil millones de la moneda de Himalaya
+
+是不是民天下, 没有世界一个机构是这样的
+Es del pueblo o no, no hay ninguna organización en el mundo como esta
+
+而我们今天在庆贺什么
+Y hoy de qué estamos celebrando
+
+一个货币的诞生
+El nacimiento de una moneda
+
+所以我刚才我看了Qmay演出
+Por eso, hace rato ví el show de Qmay
+
+她老公孩子坐在旁边
+Su esposo e hijos estaban sentados al lado
+
+你看这个时光啊
+Mire estos momentos
+
+这个就是现实啊
+Esta es la realidad
+
+我们的喜币你看看
+Mira nuestra moneda de Himalaya
+
+而且你想想, 一个将军要跟我们要10万喜币
+Además, puedes pensar, un general quiere pedirnos cien mil de monedas de Himalaya
+
+理所当然
+Obviamente
+
+就这不要脸的, 共产党听到这就把他抓了
+Es una vergüenza, el Partido Comunista lo arrestó cuando lo escuchó
+
+我说这是个中国的将军, 我当时赶快手机让他看
+Dije que este es un general de China, en aquel momento le mostré con mi teléfono
+
+他楞了, 他说干什么, 要喜币
+Él se quedó sorprendido y preguntó, qué estás haciendo, quiero moneda de Himalaya
+
+这就是老班长
+Este es Lao Banzhang
+
+他说, 我们真的是兄弟姊妹们
+Él dijo, nosotros realmente somos hermanos y hermanas
+
+我们感受到了, 我们真有天命啊
+Sentimos que sinceramente tenemos el Mandato del Cielo
+
+每个人你要怀疑这个的时候
+Cada uno de ustedes cuando quiere sospechar de esto
+
+当你不忠于这个的时候
+O cuando no eres fiel
+
+你一定会被淘汰掉
+Serás eliminado
+
+永远别忘了, 我们有使命
+Nunca olvides, tenemos una misión
+
+就是要灭共, 什么都是为灭共准备的
+Que es eliminar al comunismo, todo es por la preparación de la extinción del comunismo
+
+* * *
+
+日期：11/06/2021
+原视频标题：喜联储藏富于民是为灭共做准备！
+¡La acumulación de la riqueza de la Reserva Federal de Himalaya entre los ciudadanos es una preparación para la extinción del comunismo!
+原视频日期：11/03/2021
+原视频网址：[https://twitter.com/se1y7cblljselva/status/1455834163211165698?s=24](https://twitter.com/se1y7cblljselva/status/1455834163211165698?s=24)
+任务编号：KC228(2760)
+视频时间段：0:00-2:14
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

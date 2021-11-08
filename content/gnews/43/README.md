@@ -2,32 +2,44 @@
 ---
 
 
-## 拜登与哈里斯的支持率一个比一个冷
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1647657/)
+## 纽约当选市长亚当斯称将用比特币领取前三份工资
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1647967/)
 
-撰稿：Grace
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-7.png)
-图片来源：re-pre
+**编译：lulumi**
 
-据美国《每日邮报》11月7日报道，乔.拜登的支持率跌至了新低，而他的副总统的支持率却是比他的更糟。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip157.png)2021年11月2日，纽约市当选市长埃里克·亚当斯（Eric Adams）在纽约市布鲁克林区布鲁克林大桥的纽约万豪酒店举行的选举之夜派对上发言。(Michael M. Santiago/Getty Images)
 
-现在距2022年美国的中期选举还有一年的时间，可是乔.拜登的支持率却是已经降到了一个可怕的新低点，这让共和党人在国会的选票上，已经占据了明显的领先优势。
+亚当斯在推特上写道：“在纽约我们总是干大事，所以当我成为市长时，我将用比特币来支付我的前三份薪水”。“纽约市将成为加密货币行业和其他快速增长的创新行业的中心！大家拭目以待！”
 
-据报道，在11月3号至11月5号进行的萨福克大学民意调查（Suffolk University Poll）发现，拜登在独立选民中的支持率下降到了38%的新低。
+这位当选市长的推文是对迈阿密市长弗朗西斯·苏亚雷斯（Francis Suarez）的回应，他在自己的推特消息中写道，他将用世界上最大的加密货币——比特币来领取他的第一份薪水。周二赢得连任的苏亚雷斯一直是加密货币的拥护者，他的目标是将迈阿密建设成一个加密货币创新的中心。
 
-报道称，自由主义者曾经将哈里斯视为一个独特的冠军，但是，最近他们对哈里斯感到很失望。他们认为2022 年 11 月 8 日的选举，将决定民主党能否对国会有控制权，也决定民主党对拜登后两年的任期的影响的大小。
+民主党人亚当斯在周二的选举中轻松击败了共和党人、守护天使平民安全巡逻队的创始人柯蒂斯·斯利瓦（Curtis Sliwa），将在1月成为美国人口最多的城市的第二个黑人市长。
 
-可是，现在拜登的支持率却是这么地低下，这让这些自由主义者对民主党在明年的选举不太看好。
+外汇经纪商奥丹姆（Oandam）的高级市场分析师爱德华·莫亚（Edward Moya）在谈到亚当斯的宣布时说：“这向你表明，比特币正在吸引广泛的兴趣，你现在可以把纽约市长包括在内。”
 
-以下是来自《每日邮报》的报道的部分调查结果：
+“但最终，埃里克·亚当斯对于动摇那些持观望态度的人加入加密世界并不是一个非常有影响力的人，”他补充说。
 
-46%的受访者，包括16%的曾经投票给拜登的人表示，拜登作为总统，所做的工作比他们预期的要差。
+这并不是亚当斯第一次提出两个城市之间的加密货币竞争的前景。在6月赢得民主党的市长提名后，他发表了胜利演讲，其中他发誓该城市将成为“比特币的中心”和“所有技术的中心”。
 
-近三分之二的美国人（64%）表示，他们不希望拜登在2024年竞选第二个任期。这其中包括28%的民主党人。
+他说：“迈阿密，你已经有了你的竞选机会”。
 
-而拜登的副总统卡马拉.哈里斯的支持率是28%–比拜登还要差。民调显示，51%的人不赞成她所做的工作。
+与非营利组织CityCoins合作，这个佛罗里达州的城市在8月发布了一个名为MiamiCoin的加密货币。CityCoins将消费者在电脑上创建或“挖出”的任何MiamiCoin的30%发送给该市。据《华盛顿邮报》报道，截至9月，该项目为迈阿密创造了710万美元。
 
-**新闻来源：** [Gloomy landscape for Democrats in midterms as Biden’s approval drops to 38% in USA TODAY/Suffolk poll](https://www.usatoday.com/story/news/politics/2021/11/07/biden-approval-falls-38-midterms-loom-usa-today-suffolk-poll/6320098001/?utm_campaign=snd-autopilot)
+将纽约转变为加密货币中心的努力可能会引起纽约总检察长莱蒂西亚·詹姆斯（Letitia James）的审查，她最近对未注册的加密货币公司进行了打击。上周，詹姆斯宣布参选纽约州长。
+
+比特币的波动性很大，周四中午时分，比特币的交易价格在61,260美元左右，当天下跌了3%。
+
+**新闻来源**：[**theepochtimes.com**][New York Mayor-Elect Adams Says He Will Take His First 3 Paychecks in Bitcoin](https://www.theepochtimes.com/new-york-mayor-elect-adams-says-he-will-take-his-first-3-paychecks-in-bitcoin_4088243.html?utm_source=ai_recommender&amp;utm_medium=article_top)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
+
+
 
  
 

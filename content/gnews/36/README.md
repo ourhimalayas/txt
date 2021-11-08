@@ -2,44 +2,39 @@
 ---
 
 
-## 纽约当选市长亚当斯称将用比特币领取前三份工资
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1647967/)
+## 新冠疫情挤占医疗资源，维多利亚州救护车服务橙色预警
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1648076/)
 
-**编译：lulumi**
+**编译整理：月映万川**
+**编辑：文泓**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip157.png)2021年11月2日，纽约市当选市长埃里克·亚当斯（Eric Adams）在纽约市布鲁克林区布鲁克林大桥的纽约万豪酒店举行的选举之夜派对上发言。(Michael M. Santiago/Getty Images)
-
-亚当斯在推特上写道：“在纽约我们总是干大事，所以当我成为市长时，我将用比特币来支付我的前三份薪水”。“纽约市将成为加密货币行业和其他快速增长的创新行业的中心！大家拭目以待！”
-
-这位当选市长的推文是对迈阿密市长弗朗西斯·苏亚雷斯（Francis Suarez）的回应，他在自己的推特消息中写道，他将用世界上最大的加密货币——比特币来领取他的第一份薪水。周二赢得连任的苏亚雷斯一直是加密货币的拥护者，他的目标是将迈阿密建设成一个加密货币创新的中心。
-
-民主党人亚当斯在周二的选举中轻松击败了共和党人、守护天使平民安全巡逻队的创始人柯蒂斯·斯利瓦（Curtis Sliwa），将在1月成为美国人口最多的城市的第二个黑人市长。
-
-外汇经纪商奥丹姆（Oandam）的高级市场分析师爱德华·莫亚（Edward Moya）在谈到亚当斯的宣布时说：“这向你表明，比特币正在吸引广泛的兴趣，你现在可以把纽约市长包括在内。”
-
-“但最终，埃里克·亚当斯对于动摇那些持观望态度的人加入加密世界并不是一个非常有影响力的人，”他补充说。
-
-这并不是亚当斯第一次提出两个城市之间的加密货币竞争的前景。在6月赢得民主党的市长提名后，他发表了胜利演讲，其中他发誓该城市将成为“比特币的中心”和“所有技术的中心”。
-
-他说：“迈阿密，你已经有了你的竞选机会”。
-
-与非营利组织CityCoins合作，这个佛罗里达州的城市在8月发布了一个名为MiamiCoin的加密货币。CityCoins将消费者在电脑上创建或“挖出”的任何MiamiCoin的30%发送给该市。据《华盛顿邮报》报道，截至9月，该项目为迈阿密创造了710万美元。
-
-将纽约转变为加密货币中心的努力可能会引起纽约总检察长莱蒂西亚·詹姆斯（Letitia James）的审查，她最近对未注册的加密货币公司进行了打击。上周，詹姆斯宣布参选纽约州长。
-
-比特币的波动性很大，周四中午时分，比特币的交易价格在61,260美元左右，当天下跌了3%。
-
-**新闻来源**：[**theepochtimes.com**][New York Mayor-Elect Adams Says He Will Take His First 3 Paychecks in Bitcoin](https://www.theepochtimes.com/new-york-mayor-elect-adams-says-he-will-take-his-first-3-paychecks-in-bitcoin_4088243.html?utm_source=ai_recommender&amp;utm_medium=article_top)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image1-1.jpeg)图片来源：ABCNews
 
 
+上周六，澳大利亚维多利亚州州长发布预警称，本州的医疗系统已在崩溃边缘。
+
+墨尔本的第六次封锁终于结束，正当人们想要恢复疫情前生活状态时，而医护资源已经捉襟见肘。周六晚间，由于巨大的需求量，维州紧急救护服务被迫宣布进入“橙色预警”。
+
+维州救护车工会秘书长丹尼·赫尔说：“在那晚某个时间，曾经接到过70个呼叫紧急救援的电话，但是却没有任何救护车可以用。”
+
+即使救护车能够把病人送到医院，但是医院也没有床位接收病人入院，这是因为新冠病例加剧挤占了过多的医疗资源。
+
+上周日的新闻发布会上，安德鲁斯州长却把目前的医疗系统崩溃问题归结于未接种疫苗者。
+
+目前维多利亚州，12岁以上人口完全接种率已经达到了84%。
+
+而周日，维多利亚州报告了1173例感染，9人因新冠去世，96人目前在ICU。
+
+原文链接：[Victorian ambulances declare code orange on weekend as health system stretched by COVID cases](https://7news.com.au/lifestyle/health-wellbeing/victorian-ambulances-declare-code-orange-on-weekend-as-health-system-stretched-by-covid-cases-c-4472268)
+
+发布：Janek
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

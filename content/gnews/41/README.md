@@ -2,21 +2,26 @@
 ---
 
 
-## 父母越来越担心将会被迫为幼儿接种疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1647717/)
+## 中共欲饮鸩续命，再次推出城市更新
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1648014/)
 
-编译：沙子最怕你不理它
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-30.png)
-FDA和CDC违背顾问们的建议，决定在本月早些时候批准5至11岁的儿童药物时，尽管大多数健康的儿童几乎没有理由接种新冠病毒疫苗，但很快，他们需要做出决定：要么交出孩子并为他们接种疫苗；要么等着那些本该依照美国法律和宪法享受公共教育和他服务的孩子们被排出在整个系统之外（尽管司法判例会有点复杂）。这一切都是因为担心父母担心疫苗接种的长期影响，特别是想在以色列科学家已经确认了造成人体解刨学差异方面的sars-cov-2蛋白质。
+#### 撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/11/wre.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2019%252F08%252F08%252F7455d45df2ab4716b51d9b81265f9760.jpeg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FEM24HRB605359TSB.html&amp;tbnid=lFOLpchoaxK9jM&amp;vet=12ahUKEwib7_iu54f0AhUBUvUHHXqcDDcQMygGegUIARClAQ..i&amp;docid=2nbCTE-LxVaT5M&amp;w=650&amp;h=399&amp;q=%E5%9F%8E%E5%B8%82%E6%9B%B4%E6%96%B0&amp;ved=2ahUKEwib7_iu54f0AhUBUvUHHXqcDDcQMygGegUIARClAQ)
+中共国住房和城乡建设部于11月4日发布《关于开展第一批城市更新试点工作的通知》（下称《通知》），决定在北京、南京、苏州、成都、重庆、沈阳、宁波、厦门、西安、长沙等21个重点城市（区）开展第一批城市更新试点工作。
 
-虽然很多疫苗针对未成年人的指导剂量在调整后减低了，但随着辉瑞发布其“奇迹”新冠病毒药丸，以及数据显示辉瑞的药丸将弱势患者的住院人数减少了89%，拜登政府为幼儿注射疫苗的计划正遇到父母日益增长的抵制，他们对疫苗的安全性表示担忧，认为没有必要，或有其他理由抵制通过制药巨头和美国政府合作开发的疫苗。甚至一些自己接种过疫苗的父母也反对为五至11岁的孩子接种疫苗，因为他们担心对年轻患者可能更具影响的副作用。
+通知最核心的内容有三，1、**政策针对区域核心城市**；2、**加大各级财政资金投入，加强各类金融机构信贷支持，完善社会资本参与机制**；3、**创新土地**、**不动产、产业、财税、金融等相关配套政策**。
 
-来自田纳西州的言语治疗师娜瑞卡•戴维斯（Narika Davis）和她的丈夫一起接种了新冠病毒疫苗，因为作为可能接触病毒的一线工作人员，他们想保护自己的家人。但他们目前决定不给他们的孩子接种疫苗，作为她所说的全国性“实验”的一部分。还有一些家长认为只是为了让孩子们接受公共教育并不能成为强迫他们给孩子们接种疫苗的理由。
+上次城市更新，早在2014年至2018年间就在三四线城市普遍施行，当时名为“货币化棚改”，保守估计总投入约10万亿元。实际是对三四线城市的定向货币宽松，效果是诱使三四线城市涨价去库存，消化了超10亿平方米商品房库存，竟将三四线城市处于崩溃边缘的房地产强行激活，硬性续命至今。
 
-科学界里对儿童疫苗众说纷纭，但父母为孩子接种疫苗的担忧大幅增加，更大范围的中国病毒疫苗注射可能会让孩子长期失学，是否要为儿童接种中共病毒疫苗的争议非常大并且在政治上不受欢迎。
+故伎重演，中共再次祭出定向货币宽松，目的是保核心城市房地产，为自身续命。当年房地产总市值约200万亿，现近4至5倍市值，托市代价是中共不能承受之重。水漫金山，通货膨胀将直线飙升，民众将以购买力疯狂贬值为代价，成为中共续命的牺牲品。在与世界脱钩、供应链断裂、疫苗灾难、通货膨胀、房地产起爆的情况下，中共祭出定向水龙头就能续命？做梦。
 
-来源：[Parents Increasingly Worried About Being Forced To Vaccinate Young Children As Biden Tightens Mandates](https://www.zerohedge.com/covid-19/parents-increasingly-worried-about-being-forced-vaccinate-young-children-biden-tightens)
+信息来源：
 
+[住房和城乡建设部办公厅关于开展第一批城市更新试点工作的通知](http://www.gov.cn/zhengce/zhengceku/2021-11/06/content_5649443.htm)
+
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

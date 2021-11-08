@@ -2,30 +2,33 @@
 ---
 
 
-## 疫苗灾情｜法国 34 岁世界纪录保持者接种疫苗后患上心脏病 职业生涯面临终结
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1647934/)
+## 以太币持续看涨，首次突破4,700美元关口
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1648039/)
 
-**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 8/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2c82b8914a2be6279ef40e51a3db53e5.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/nimg.ws_.126.net_.jpg)以太币持续看涨，首次突破4,700美元关口 网络图片
 
-【法国】今年 34 岁的 Florian Dagoury 是目前静态屏气自由潜水领域的世界纪录保持者，他在接种完第二剂辉瑞 COVID-19 疫苗的第 40 日，被诊断出患有心肌炎和心包炎。
+据华尔街日报11月8日报道，全球第二大加密货币—以太币在过去一个月一直上涨，7日首次突破4,700美元关口。
 
-这位旅居在泰国的法国籍优秀运动员过去以保持屏气 10 分 30 秒而闻名世界，最近他因屏气能力显著下降而求诊心脏科权威，才发现自己的职业生涯恐怕会因疫苗副作用而终结。
+按市值计算，以太币是世界第二大加密货币，在以太坊区块链上运行。3日创下历史新高，赶上了比特币的涨势。比特币目前约报63,078美元，今年上涨了约117%。以太币则涨了六倍。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_0056.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_0055.jpg)
+数字货币是未来的趋势。11月1号新中国联邦的国家货币—HCoin成功上市，开市两小时价格飙升50倍。与黄金挂钩的HCoin喜币拥有其他数字货币无与伦比的保值和升值空间，是中国人财富最安全的保障。
 
+新闻参考链接：[https://cn.wsj.com/articles/以太币继续其创纪录涨势-首次突破4-700美元关口-11636338361](https://cn.wsj.com/articles/%25E4%25BB%25A5%25E5%25A4%25AA%25E5%25B8%2581%25E7%25BB%25A7%25E7%25BB%25AD%25E5%2585%25B6%25E5%2588%259B%25E7%25BA%25AA%25E5%25BD%2595%25E6%25B6%25A8%25E5%258A%25BF-%25E9%25A6%2596%25E6%25AC%25A1%25E7%25AA%2581%25E7%25A0%25B44-700%25E7%25BE%258E%25E5%2585%2583%25E5%2585%25B3%25E5%258F%25A3-11636338361)
 
-以下是他分享在个人 instagram 上的贴文：
-
-*只是想分享下，我接种疫苗后的恼人经历，也许有其他的自由潜水者发生类似的故事，不知道你们有没有好转？ 接种第二剂疫苗后，我注意到我的心率远高于正常水平，并且我的屏气能力显著下降。睡眠期间，我的心率为 65-70bpm，而不是过去正常的 37-45bpm。白天，我现在总是超过 100bpm 而不是过去的 65bpm。即使我放松的坐着，有一次我只不过和朋友吃饭，心律达到了 177bpm !!!!  第二针之后第 10 天，我去看心脏病科专家，他告诉我这是辉瑞疫苗的常见副作用，不用担心，休息一下就会过去。 40 天后，我没有任何进展，我又去看了另一位心脏病科专家，被诊断出患有心肌炎、心包炎和微量二尖瓣反流！ 这是由免疫系统引起的心肌炎症和一些失去正常闭合功能的瓣膜血液回漏。 我的第一想法和建议是选择一种像 Sputnik（俄罗斯疫苗）、Sinovac（科兴）、Sinopharm（国药） 这样的采用原始方式研制的疫苗……而不是那些新的 mRNA 疫苗。*
-
-**小编提醒：中国大陆和香港普遍采用科兴和国药疫苗，不少人因此患上癌症、急性白血病、性勃起障碍、月经紊乱甚至猝死，不过被官方刻意掩盖。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗_0-1.jpg)
 * * *
 
-来源｜[个案058](https://www.instagram.com/p/CUrJkJ-FuFd/?utm_medium=copy_link)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
+
 
  
 

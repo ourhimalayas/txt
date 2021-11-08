@@ -2,29 +2,76 @@
 ---
 
 
-## 强国谎言：不断发展全过程人民民主，加强选举全过程监督
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1648095/)
+## 如果中期选举保守党赢，立法承认虚拟货币成为美国第二选择
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1648247/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4E6B97E4-FBCA-4EE6-B3A7-3E97E5667791.png)
-11月5日，习近平参加区人大代表的选举投票时强调：“不断发展全过程人民民主，加强选举全过程监督”。估计是脑子肿瘤开始恶化了，习忘记自己是怎么上位的。
+[https://gtv.org/video/id=618907adadfd99590c346219](https://gtv.org/video/id=618907adadfd99590c346219)
 
-郭文贵先生之前爆料[南普陀计划](https://www.youtube.com/watch?v=RzoGHbjQ8Fc)：在江泽民主导的南普陀会议上，习被内定为共产党傀儡总书记。投选票的是共产党，验票的是共产党，唱票的是共产党，宣票的也是共产党，中共的各级选举根本没有民主。中共的最高层都可以被少数人在茶话会上内定，那共产党所谓的民主选举只是在走民主形式的过场，演戏给中国人民看。
+郭文贵
+Miles Guo
 
-共产党称：“选举人大代表，是人民代表大会制度的基础”。如果中国人民一人一票选出人民代表，那是极好的。共产党的人大代表首先是共产党内部推荐，这个内部包括各行各业的共产党员，当然也会出现一些无党派人士和民主党派人士，那也是极少的。在一党独大的中共国，中共体制以外的代表不出意外的以共产党旨意为转移。
+共产党的房地产，共产党现在整个的在美国挖的坑，自己挖的坑
+The real estate of the Communist Party, the pit that the Communist Party dig in the United States now, they dig themselves
 
-习称“不断发展全过程人民民主”，他也诚实的说明了中共国选举过程中没有实行人民民主。过去70年，我们听惯了“不断发展、不断深化、不断加强”等这样的词语。“不断”一词在中文解释里是“不绝，接连不断”。一人一票就可以实现真正的人民民主，可是共产党却不断说谎要搞人民民主。它说的“不断”，就是告诉所有人，共产党不可能实现人民民主，套用中共的一句话：民主永远在路上！
+干掉了半个美国的人，这些美国人的报复已经席卷而来
+Wiped out half of the Americans, and the revenge of these Americans has swept through
 
-他还称要加强选举全过程监督。《中华人民共和国全国人民代表大会和地方各级人民代表大会选举法》是中共国的各级选举的基本法规。选举完全可以依法进行选举，为什么还要加强全过程监督呢？按习字面的理解：加强说明历届的选举监督都不透明；选举本来就是个系统过程，不存在上过程和下过程。还要强调全过程，说明整个过程共产党根本不想给人民一点民主。选举如果依法办事，自有相关智能部门的依法监督。我想习所谓的监督就是选举要在共产党的绝对控制下。
+你说今天弗吉尼亚Long Island这些人赢，你不如说保守党赢了
+people in Virginia, Long Island won today, you might say that the Conservative Party won today
 
-共产党从来都只说废话，当然谎言讲一百遍还是谎言。日后共产党走向被告席的时候，我很想替国人问个问题，他们相信自己说的话么？共产党从来都没有给中国人民主，也永远不会给中国人民主。因为共产党就是个封建专制政党，所有的选举只是为了服务它更专制的统治，它领导下的中共国永远不可能成为民主国家。
+保守党赢，保守党恨的是谁呀？它不恨拜登
+If the Conservative Party wins, who does the Conservative Party hate? It doesn’t hate Biden
 
-【文章观点仅代表作者个人，与Gnews平台无关】
+我不相信任何人恨拜登的，他不告诉你，
+I don’t believe anyone hates Biden, he won’t tell you
 
+它恨共产党，绝对最恨共产党
+It hates the Communist Party, absolutely hates the Communist Party most
 
+走着看，国会，参众两院回来之日，是管着美国的钱呢
+We’ll see, when the Conservative Party win the Congress and the Senate, which are in charge of American money
 
-作者：洛杉矶盘古农场 – 文如
+一系列的法律，没有法律在美国寸步难行
+There will be a series of legislation, without the support of legislation, it is difficult to go anywhere in the United States
+一立法那都是，它能立法它就能立咱新中国联邦代表中国人呢
+It’s all about legislation. If it can legislate, it can establish the New Federal State of China to represent the Chinese people
 
-编辑：洛杉矶盘古农场 – 柯镇恶
+它有多大呀，兄弟姐妹们，它只有立法承认虚拟货币
+How big is it, brothers and sisters, it only has legislation to recognize virtual currency
+
+在美国成为第二个货币选择，咱是最大的赢家
+to become the second currency choice in the United States, we are the biggest winner
+
+它只要立法，把共产党的所有海外资产查封，咱是最大的赢家
+It only needs to legislate to seal up all the overseas assets of the Communist Party, we are the biggest winner
+
+这些人赢了，不如说是共产党输了
+These people won, it is better to say that the Communist Party lost
+
+你别把民主党和共和党分，是共产党和美国人谁赢了
+Don’t divide the Democrats and Republicans, it’s between the communist Party and American
+
+现在是美国人赢了，共产党输了
+Now the Americans have won, the Communist Party have lost
+
+* * *
+
+Date:11/05/2021
+原视频标题: 如果中期选举保守党赢，立法承认虚拟货币成为美国第二选择
+If the Conservative Party wins the mid-term elections, the legislation recognizes virtual currency as the second choice in the United States
+原视频日期：2021/11/01
+原视频链接 [https://twitter.com/se1y7cblljselva/status/1456599741865758730?s=24](https://twitter.com/se1y7cblljselva/status/1456599741865758730?s=24)
+任务编号：KC227(2786)
+视频时间段 : 0:00-1:28
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

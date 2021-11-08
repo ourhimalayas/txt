@@ -2,35 +2,50 @@
 ---
 
 
-## 11/8/2021中日财经爆：疫苗灾难帮凶“康希诺”崩了，市值暴跌1400亿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1648195/)
+## 美国数千名情报官员拒绝接种疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648317/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-53.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimagecloud.thepaper.cn%2Fthepaper%2Fimage%2F111%2F657%2F480.jpg&amp;imgrefurl=https%3A%2F%2Fm.thepaper.cn%2FnewsDetail_forward_11027061&amp;tbnid=K234Evh4AcUrwM&amp;vet=12ahUKEwj9ssXl3oj0AhVoR_UHHTmLAcQQMygPegUIARCVAQ..i&amp;docid=5ooY-fbEjkKH9M&amp;w=1399&amp;h=798&amp;q=%E5%BA%B7%E5%B8%8C%E8%AF%BA&amp;ved=2ahUKEwj9ssXl3oj0AhVoR_UHHTmLAcQQMygPegUIARCVAQ)
+作者：英国喜庄园 – I770775
 
-11月8日，康希诺低开低走，盘中一度大跌超11%。截止发稿时，康希诺跌逾10%，股价为239元，总市值为590亿。同时，康希诺生物-B开盘大跌近20%，截止发稿时，仍大跌15%，报收于163元。
 
-康希诺有着“A+H疫苗第一股”、“中共病毒疫苗第一股”之称，今年6月，康希诺A股的股价一度涨至798元，总市值达到1971亿，此后，康希诺的股价跌跌不休，跌幅达到70%，如今市值仅剩不到600亿，缩水了近1400亿。
 
-按康希诺公布的1.9万股民计算，三个月时间户均亏损724万，创下近三个月来跌幅之最、亏损最多的股票之一。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-18.png)
-2019年3月，康希诺以22港元发行价在港股上市。股价在经历近8个月震荡后，从11月开始，康希诺在港股上演了一波上升浪。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-7个月时间内，康希诺从36元港元附近最高上涨至285.8港元，期间涨幅超600%。刺激股价上扬的直接因素是疫情期间，康希诺与中共军方陈薇团队合作，进行中共病毒疫苗临床试验。康希诺也因此“一疫成名”。
 
-2020年8月13日，康希诺又以209.71元/股发行价在科创板实现上市，成为继泽璟制药、百奥泰、前沿生物、神州细胞、君实生物、天智航之后，第七家未盈利的科创板上市公司。不过，康希诺在A股上市后表现平平。上市首日创下477元高价，涨至798元后又大幅回调。
 
-今年以来，中共病毒疫苗实现商业化，康希诺上半年实现营收约20.61亿元。由于全球疫苗仍处于供不应求状态，外界普遍认为康希诺旗下中共病毒疫苗产品具有潜在的市场。
+11月5日，美国数千名情报官员表示，宁可辞职也绝不遵守拜登政府的新冠疫苗接种政策。
 
-也正是从今年4月份中旬开始，在中共病毒疫苗全面注射和资金的热炒下，康希诺迎来新一波涨幅，三个月时间内快速实现翻倍。不过，在一轮炒作过后，获利资金逐渐退出，康希诺的股价在6月见顶之后，便一路下跌，到现在不止是腰斩了。
+据悉，拜登政府的疫苗接种政策受到各个行业的抵制，截至10月底，全国至少有20%的情报官员拒绝接种疫苗，而部分情报机构多达40%的情报官员都拒绝接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-2.jpg)
+美国众议院情报委员会成员克里斯·斯图尔特表示，拜登政府无视民众呼声，其疫苗强制令可能会导致政府在同一天失去数千名情报雇员，这将会对国家安全造成严重影响。
 
-# 消息来源:
+斯图尔特还呼吁，拜登政府不仅应该对医疗、宗教等原因的人给予豁免接种，更应该推迟对情报官员的强制接种规定。
 
-**[又暴跌10%！中共病毒疫苗第一股崩了，缩水1400亿，发生了什么？](https://www.sohu.com/a/499811827_157944?spm=smpc.sub-channel.fd-news.7.1636340400153R0UNl7U)**
+参考链接：
+[因拒绝接种疫苗，美国数千名情报官员或将被解雇](https://finance.sina.com.cn/jjxw/2021-11-06/doc-iktzqtyu5761734.shtml)
 
-校对：东京樱花团/知了知了yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：飞虹
+编辑：文特
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
 
 
  
