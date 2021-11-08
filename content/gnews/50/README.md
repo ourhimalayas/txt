@@ -2,23 +2,39 @@
 ---
 
 
-## 文贵爆料 7/11: 留住喜币，草根也能笑傲江湖
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1646689/)
+## 美国联邦上诉法院冻结拜登政府的企业疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1646716/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/766f9ef0-cbc7-477c-9561-52f825d04dcd.jpg)
-陈年佳酿，越久越醇。而留住喜币，更是留住了希望，留住了未来。 郭文贵先生在11月7日的大直播中，讲述了喜币不仅在未来有着巨大的升值空间，而且可以用来借贷，值得一生拥有。
+作者：纽约香草山农场 – 蓝天大海
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月6日，美国联邦第五巡回上诉法院发布命令称，暂时冻结拜登政府发布的企业新冠疫苗强制令。该强制令要求，拥有超过100名员工的美国公司，其所有员工必须接种新冠疫苗或每周接受新冠病毒测试。
 
-我们应该感谢联盟委员会，他们太难了，能让你这几万个战友进来，那么你现在要再进来的战友们，你们互帮就是要顺利地过kyc，顺利汇钱变成喜美元，你才能买到喜币啊。就像今天如果是涨到两千了，头两天卖了那个两块钱的，或者卖个十几块钱、二十块钱的，真的，你这一辈子再也不可能买回来？你看的就是那个有限的钱，未来的升值空间，跟你就都没有关系了，你终生不可能再回来啊。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-5.jpeg)
 
-我告诉战友们，你们不用太长时间，快则一两个月，慢则不会超过明年五月份，你们就一辈子等了，为什么这几个月就不能等吗？到那时候你就可以贷款，我永远不卖币。现在我告诉你，你们拥有一万个币的人，你需要多少钱？你一万个币现在就是二百万美元吧。二百万美元你说你能花多少钱？你贷五十万美元，其中的二十万美元干什么？我告诉大家，你一定马上到喜联储存款去，我要存一个五年期或七年期。一年百分之七的利息是给你喜币，是吧？有币给你，我为啥你卖掉喜币呢？
+巡回法院给出的冻结理由是，该强制令存在“严重的法律和宪法”问题，同时，法院要求拜登政府必须在11月8日下午5点前回应法院对新冠疫苗强制令提出的质疑。
 
-郭先生说，很多人进入食堂后，只看到了馒头和包子，却没看到旁边还有龙虾和鲍鱼。
+日前，德克萨斯州总检察长肯·帕克斯顿曾就新冠疫苗强制令起诉了拜登政府。检方认为，强制员工接种新冠疫苗或每周接受病毒检测的命令是“滥用权利”且“完全违宪”，为此，检方要求法院下令取消该强制令。
+
+在赢得初步胜利后，帕克斯顿总检察长表示，关于新冠疫苗的斗争尚未结束，他将继续反对和抵制联邦政府的一切越权和违宪行为。
 
 参考链接：
+1）[https://gettr.com/post/pg8ksk6ac7](https://gettr.com/post/pg8ksk6ac7)
+2）[https://gettr.com/post/pg9n1i0b88](https://gettr.com/post/pg9n1i0b88)
+3）[Federal Appeals Court Blocks Biden’s ‘Big-Company’ Vaxx-Mandate](https://www.zerohedge.com/political/federal-appeals-court-blocks-bidens-big-company-vaxx-mandate)
 
-[2021年11月07日 文贵大直播](https://gettr.com/streaming/pga8le9f31)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
+总编：Irene木木
+编辑：文特
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
