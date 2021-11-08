@@ -2,21 +2,32 @@
 ---
 
 
-## IMF：韩国未来五年债务增速在发达国家居榜首
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1647380/)
+## 美国共和党联邦众议员提出重新审视一中政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1647465/)
 
-作者：韩国天池农场  追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-08-at-11.22.45.jpeg)图片来源：韩国联合新闻
-据韩国联合新闻11月8日的报道 国际货币基金组织（IMF）日前发布的《财政监测报告》预测报告，韩国政府债务5年后的2026年，将达到国内生产总值（GDP）的66.7%，较今年底的51.3%升高15.4个百分点，在被IMF列为发达国家的35个国家中增速居榜首。
+作者：美东香草山新世界的一员/秘密翻译组——青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月6日美国有媒体报道，美国国会共和党联邦众议员克劳迪娅·坦尼日前在接受专访时表示，中（共）国不是假想敌，而是美国当今最大的敌人，是“当代的苏联”。她呼吁国会两党和行政部门支持《中国观察法》，在全球各地监测中共国的影响力。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-1.jpg)
+克劳迪娅指出，面对强势的中共，美国政府也应在军事协防台湾方面更加积极。不希望台湾成下一个香港，是时候重新审议美国的“一中政策”了。
 
-导致这一局面的主要原因是，在少子老龄化等因素迫使国家债务增加的情况下，韩国未能像其他发达国家那样，在新冠疫情爆发后加紧实施紧缩性财政政策。
+近日，美国参议院军事委员会共和党参议员乔什·霍利推出了《武装台湾法》草案，提出每年拨款30亿美元提升台湾不对称战力的计划；外交关系委员会多位重量级共和党议员共同推出了《台湾威慑法》寻求授权每年向台湾提供20亿美元及其他援助，以加强台湾的防务。
 
-专家指出，从中长期来看，纳税人口减少而受益人口增多，是国家债务增长的结构性原因。政府在去年发布的《长期财政展望》中预测，到2060年，韩国国家债务占GDP的比例将升至64%到81%之间。
+参考链接：[美国共和党联邦众议员提出重新审视一中政策](https://gettr.com/post/pg78o4b8f2)
 
-但是，韩国今年国家债务占GDP的比例为51.3%，在35个发达国家中排在第25，是处于中下游。多数观点认为，虽然债务增速最快，但是目前的债务水平相对较低，财政状况维持稳健。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-[新闻来源](http://naver.me/FiLFK066)
+总编：木白
+编辑：木白
+校对/发稿：Hetangyuese
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

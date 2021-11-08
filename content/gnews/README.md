@@ -15,110 +15,110 @@
 
 ---
 
-### [愚蠢和无知终是害了自己的命](/content/gnews/1/README.md)
- ` 银河勇气之星`
+### [港闻前线｜《时代革命》日本公映 观众泪流满面 港人唏嘘“这是一场只剩下眼泪和痛苦的民主运动”](/content/gnews/1/README.md)
+ ` G&#124;News TAIWAN`
 
-### [很多麻烦在等着扎克伯格的“元宇宙”计划](/content/gnews/2/README.md)
+### [前公安部副部长孙立军在中共六中全会前被正式批捕](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [拜登与哈里斯的支持率一个比一个冷](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本8日起放宽入境限制](/content/gnews/3/README.md)
- ` 首尔天池农场`
+### [接种两剂疫苗的新州居民恢复自由，其他人则继续受限制](/content/gnews/4/README.md)
+ ` 走进澳洲`
 
-### [拜登的疫苗任务面临联邦工作人员的首次考验](/content/gnews/4/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [日本政府决定11月8日起放宽入境政策](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [又一P2P公司倒下](/content/gnews/6/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [11/7/2021中日财经爆：泛海爆雷，卢志强的“锅盖”不够用了](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【小雨专栏】在路上040——电脑篇](/content/gnews/8/README.md)
+### [小雨专栏】在路上041——大树篇](/content/gnews/5/README.md)
  ` 温哥华扬帆农场`
 
-### [郭文贵直播摘要和音频 2021.11.07](/content/gnews/9/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [愚蠢和无知终是害了自己的命](/content/gnews/6/README.md)
+ ` 银河勇气之星`
 
-### [11/7/2021 文贵直播：北京上空飘的雾霾其中一定有焚烧每天死的人和畸形婴儿的尸体，全人类必将爆发疫苗大灾难](/content/gnews/10/README.md)
- ` 秘密翻译组-北美组`
+### [很多麻烦在等着扎克伯格的“元宇宙”计划](/content/gnews/7/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [未敢忘记，是谁杀了“他”？——写在周梓乐同学遇害2周年之际](/content/gnews/11/README.md)
- ` 澳喜农场`
-
-### [中共病毒及其疫苗全球超限战中的典型案例（十七）](/content/gnews/12/README.md)
- ` 纽约香草山MOS01`
-
-### [意大利卫生研究所大幅降低中共病毒官方死亡人数](/content/gnews/13/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共国科技巨头如何适时套现](/content/gnews/14/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [喜币为什么要2021年11月1日上市？](/content/gnews/15/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [美国共和党联邦众议员提出重新审视一中政策](/content/gnews/16/README.md)
- ` GTV新闻访谈`
-
-### [抓住时机，大量中国人正涌入喜交所](/content/gnews/17/README.md)
- ` GTV新闻访谈`
-
-### [GTV新闻访谈简报|2021年11月7日晚](/content/gnews/18/README.md)
- ` 纽约香草山MOS01`
-
-### [【小人物】被共产主义腐蚀的灵魂——回忆我的同学大军](/content/gnews/19/README.md)
- ` 纽约香草山MOS01`
-
-### [以应对COVID-19为由，奥地利拟于对未接种疫苗的人实施封锁](/content/gnews/20/README.md)
- ` 墨尔本雅典娜农场`
-
-### [围绕加密货币的监管之战正在酝酿之中](/content/gnews/21/README.md)
- ` 墨尔本雅典娜农场`
-
-### [香港外国记者会调查指香港新闻自由全面恶化](/content/gnews/22/README.md)
- ` 纽约香草山MOS02`
-
-### [IMF：韩国未来五年债务增速在发达国家居榜首](/content/gnews/23/README.md)
+### [日本8日起放宽入境限制](/content/gnews/8/README.md)
  ` 首尔天池农场`
 
-### [泛海控股债券违约扩大，所持民生控股股份被冻结](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [拜登的疫苗任务面临联邦工作人员的首次考验](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [串珠444:“共同富裕”在大陆是割韭菜在港是共产共妻](/content/gnews/25/README.md)
- ` 郭爆料串珠`
-
-### [美国联邦上诉法庭冻结拜登疫苗强制令](/content/gnews/26/README.md)
+### [日本政府决定11月8日起放宽入境政策](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [串珠443:中共强推房地产税必亡党亡国！](/content/gnews/27/README.md)
- ` 郭爆料串珠`
+### [又一P2P公司倒下](/content/gnews/11/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [官防长官就美军基地搬迁与冲绳市民交换意见](/content/gnews/28/README.md)
+### [11/7/2021中日财经爆：泛海爆雷，卢志强的“锅盖”不够用了](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [雅典娜时报-第106期](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
+### [【小雨专栏】在路上040——电脑篇](/content/gnews/13/README.md)
+ ` 温哥华扬帆农场`
 
-### [跟美国一千年的和平协议是对中国最好的](/content/gnews/30/README.md)
+### [郭文贵直播摘要和音频 2021.11.07](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美前情报总监谈“通俄门”调查将证明“真理自明”](/content/gnews/31/README.md)
- ` HimalayaRussia`
-
-### [11/7/2021 文贵直播：喜联储对中共最大的威胁是让其在数字货币时代丧失话语权](/content/gnews/32/README.md)
+### [11/7/2021 文贵直播：北京上空飘的雾霾其中一定有焚烧每天死的人和畸形婴儿的尸体，全人类必将爆发疫苗大灾难](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [前白宫顾问彼得·纳瓦罗： 福奇致命的刻意隐瞒应该让他穿上囚衣](/content/gnews/33/README.md)
- ` 美国政要直译推`
+### [未敢忘记，是谁杀了“他”？——写在周梓乐同学遇害2周年之际](/content/gnews/16/README.md)
+ ` 澳喜农场`
 
-### [一则宗教豁免避开强制疫苗的经历](/content/gnews/34/README.md)
- ` 纽约香草山MOS03`
+### [中共病毒及其疫苗全球超限战中的典型案例（十七）](/content/gnews/17/README.md)
+ ` 纽约香草山MOS01`
 
-### [研究显示三种中共病毒疫苗的效用正在 &#8220;急剧 &#8220;下降](/content/gnews/35/README.md)
+### [意大利卫生研究所大幅降低中共病毒官方死亡人数](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
+
+### [中共国科技巨头如何适时套现](/content/gnews/19/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [喜币为什么要2021年11月1日上市？](/content/gnews/20/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [哥斯达黎加宣布强制为儿童接种新冠疫苗](/content/gnews/21/README.md)
+ ` GTV新闻访谈`
+
+### [台湾国防部指出 中共在台大量散布假信息](/content/gnews/22/README.md)
+ ` GTV新闻访谈`
+
+### [美国共和党联邦众议员提出重新审视一中政策](/content/gnews/23/README.md)
+ ` GTV新闻访谈`
+
+### [抓住时机，大量中国人正涌入喜交所](/content/gnews/24/README.md)
+ ` GTV新闻访谈`
+
+### [GTV新闻访谈简报|2021年11月7日晚](/content/gnews/25/README.md)
+ ` 纽约香草山MOS01`
+
+### [【小人物】被共产主义腐蚀的灵魂——回忆我的同学大军](/content/gnews/26/README.md)
+ ` 纽约香草山MOS01`
+
+### [以应对COVID-19为由，奥地利拟于对未接种疫苗的人实施封锁](/content/gnews/27/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [围绕加密货币的监管之战正在酝酿之中](/content/gnews/28/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [香港外国记者会调查指香港新闻自由全面恶化](/content/gnews/29/README.md)
+ ` 纽约香草山MOS02`
+
+### [IMF：韩国未来五年债务增速在发达国家居榜首](/content/gnews/30/README.md)
+ ` 首尔天池农场`
+
+### [泛海控股债券违约扩大，所持民生控股股份被冻结](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [串珠444:“共同富裕”在大陆是割韭菜在港是共产共妻](/content/gnews/32/README.md)
+ ` 郭爆料串珠`
+
+### [美国联邦上诉法庭冻结拜登疫苗强制令](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [跟美国一千年的和平协议是对中国最好的](/content/gnews/34/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [11/7/2021 文贵直播：喜联储对中共最大的威胁是让其在数字货币时代丧失话语权](/content/gnews/35/README.md)
+ ` 秘密翻译组-北美组`
 
 ### [反疫苗人士批评《芝麻街》主角大鸟对儿童进行政治宣传](/content/gnews/36/README.md)
  ` 日本东京方舟农场`
