@@ -2,32 +2,28 @@
 ---
 
 
-## 有声| 中共病毒及其疫苗全球超限战中的典型案例（十七）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1647726/)
+## 秘翻在线：扭扭捏捏 《新闻极限》表示反对强制接种中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1647798/)
 
-配音：香草山教育部-蒙古鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-**871名消防员打算起诉洛杉矶的COVID-19疫苗强制接种令**
+#### 撰稿：彩虹
 
-2021年10月7日，代表871名消防员的洛杉矶消防员联合会（UFLAC）向洛杉矶当局提交了一份文件，意图起诉该市对公职人员的疫苗强制接种令，并要求赔偿每人因接种新冠疫苗而造成人身损害的费用250万美元。该文件给洛杉矶当局45天时间进行评估，到期将对其提起法律诉讼。洛杉矶消防局（LAFD）总共有3435名消防员，打算起诉该市的871名消防员约占总数的四分之一。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-5.jpg)图片来源：沙龙网
+11月8日，《新闻极限》（Newsmax）编辑组发表了题为《新闻极限为何反对强制接种疫苗？答案在这里》的文章，对于一些问题做了自问自答。
 
+文章认为，OSHA的新规定将于2022年1月4日开始生效，要求100人以上的企业强制所有员工全面接种中共病毒疫苗，或者每周接受测试。《新闻极限》没有要求员工强制接种疫苗，我们也不打算对此进行要求。并且在执行规定方面做的更好，为员工免费提供每周病毒测试。
 
+《新闻极限》指出，尽管如此，它们认为联邦政府要求（强制接种中共病毒疫苗）是不好的甚至也可能是非法的。拜登政府决定执行OSHA的要求，是对联邦权力的危险越权。
 
-**文字版原文：[中共病毒及其疫苗全球超限战中的典型案例（十七）](https://gnews.org/zh-hans/1647490/)**
+文章报道，上周五，美国第五巡回上诉法院下令暂停实施企业强制员工接种病毒疫苗。该法院由三位法官组成的小组表示，他们“有理由相信该强制接种疫苗存在严重的法律和宪法问题”。
 
+对此，《新闻极限》表示正在关注这一案件和其他法律行动，同时考虑自己的法律选择。
 
+对于其他的问题，《新闻极限》也做了许多的自我辩护，比如鼓吹疫苗的好处、川普的接种疫苗等方面。虽然反对强制接种，但是一捧一踩整体上尽量做到不得罪任何一方。
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+**新闻来源**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[Newsmax Opposes Vaccine Mandate, Here’s Why](https://www.newsmax.com/newsfront/vaccine-mandates-constitution-overreach-privacy/2021/11/07/id/1043635/)
 
  
 

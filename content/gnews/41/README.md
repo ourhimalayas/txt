@@ -2,33 +2,32 @@
 ---
 
 
-## 反疫苗人士批评《芝麻街》主角大鸟对儿童进行政治宣传
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1647207/)
+## 抓住时机，大量中国人正涌入喜交所
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1647464/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+作者：纽约香草山农场 – 恩永存
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月6日，郭文贵先生在Gettr上透露，近日喜交所注册人数暴增，有大量中国人正在涌入喜交所。相关律师告诉郭先生，目前喜交所正在繁忙工作，90%的新注册用户正等待通过KYC。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-2.jpg)
+郭先生提醒大家，想要买喜币，必须开通喜美元账户，开通账户必须通过KYC。注册中出现的许多问题来自KYC环节。其中最核心的问题是资产证明，需要提供资金来源和身份信息。注册中的25个问题一定要填写准确，才能一次通过。
 
-美国反疫苗人士及部分共和党人批评美国儿童节目《芝麻街》中的主要角色“大鸟”（Bid Bird）11月6日发推特宣布自己已打疫苗这一行为，认为此举是在对儿童进行疫苗“政治宣传”（propaganda）。
+郭先生希望更多的人加入喜交所交易喜币。因为，目前是很好的时机。过一段时间，买入喜币的成本会更高。
 
-据《自由时报》援引《独立报》的消息报道称，美国长青儿童节目《芝麻街》中的布偶角色——黄色“大鸟”，11月6日用其官方账号发推文称：我今天也打了疫苗！翅膀有点酸，但这会让我的身体有额外的防卫，保护自己，也保护他人。”
+参考链接：[抓住时机，大量中国人正涌入喜交所](https://gettr.com/post/pg8h58eb5f)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-24.jpg)图片来源：https://news.ltn.com.tw/news/world/breakingnews/3729112
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-这一明显是在为打疫苗做宣传的举动，引来包括来自德州的联邦参议员克鲁兹（Ted Cruz）在内的部分共和党人，以及众多反疫苗人士的批评，认为这是政府对儿童进行疫苗“政治宣传”。有网友表示，美国政府刚刚批准给儿童接种疫苗，就出现这种宣传，令他们“毛骨悚然”。
+总编：木白
+编辑：木白
+校对/发稿：Hetangyuese
 
-*参考链接：*
-
-[《芝麻街》大鳥也打疫苗！美國反疫苗人士氣炸](https://news.ltn.com.tw/news/world/breakingnews/3729112)
-
-* * *
-
-
-```
-素材采编：幽蘭自得
-编辑：青衣青青
-校对/发布：Ranting
-```
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

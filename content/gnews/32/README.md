@@ -2,32 +2,32 @@
 ---
 
 
-## 拜登与哈里斯的支持率一个比一个冷
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1647657/)
+## 有声| 中共病毒及其疫苗全球超限战中的典型案例（十七）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1647726/)
 
-撰稿：Grace
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-7.png)
-图片来源：re-pre
+配音：香草山教育部-蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+**871名消防员打算起诉洛杉矶的COVID-19疫苗强制接种令**
 
-据美国《每日邮报》11月7日报道，乔.拜登的支持率跌至了新低，而他的副总统的支持率却是比他的更糟。
+2021年10月7日，代表871名消防员的洛杉矶消防员联合会（UFLAC）向洛杉矶当局提交了一份文件，意图起诉该市对公职人员的疫苗强制接种令，并要求赔偿每人因接种新冠疫苗而造成人身损害的费用250万美元。该文件给洛杉矶当局45天时间进行评估，到期将对其提起法律诉讼。洛杉矶消防局（LAFD）总共有3435名消防员，打算起诉该市的871名消防员约占总数的四分之一。
 
-现在距2022年美国的中期选举还有一年的时间，可是乔.拜登的支持率却是已经降到了一个可怕的新低点，这让共和党人在国会的选票上，已经占据了明显的领先优势。
 
-据报道，在11月3号至11月5号进行的萨福克大学民意调查（Suffolk University Poll）发现，拜登在独立选民中的支持率下降到了38%的新低。
 
-报道称，自由主义者曾经将哈里斯视为一个独特的冠军，但是，最近他们对哈里斯感到很失望。他们认为2022 年 11 月 8 日的选举，将决定民主党能否对国会有控制权，也决定民主党对拜登后两年的任期的影响的大小。
+**文字版原文：[中共病毒及其疫苗全球超限战中的典型案例（十七）](https://gnews.org/zh-hans/1647490/)**
 
-可是，现在拜登的支持率却是这么地低下，这让这些自由主义者对民主党在明年的选举不太看好。
 
-以下是来自《每日邮报》的报道的部分调查结果：
 
-46%的受访者，包括16%的曾经投票给拜登的人表示，拜登作为总统，所做的工作比他们预期的要差。
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
-近三分之二的美国人（64%）表示，他们不希望拜登在2024年竞选第二个任期。这其中包括28%的民主党人。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-而拜登的副总统卡马拉.哈里斯的支持率是28%–比拜登还要差。民调显示，51%的人不赞成她所做的工作。
-
-**新闻来源：** [Gloomy landscape for Democrats in midterms as Biden’s approval drops to 38% in USA TODAY/Suffolk poll](https://www.usatoday.com/story/news/politics/2021/11/07/biden-approval-falls-38-midterms-loom-usa-today-suffolk-poll/6320098001/?utm_campaign=snd-autopilot)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

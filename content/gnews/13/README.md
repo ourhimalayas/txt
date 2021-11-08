@@ -2,36 +2,56 @@
 ---
 
 
-## 国际要闻汇编 11月8日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1647808/)
+## 澳大利亚启动COVID-19加强型疫苗接种计划，优先考虑养老院老人和残疾人
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1647938/)
 
-素材：东京樱花团｜GNEWS组
+**翻译：小鱼儿
+编辑：Staryanyan**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/国际要闻汇编-11月8日.png)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1108/20211108061656906.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_8782-scaled.jpg)图片来源：ITV
 
-1、[**白宫重磅表态不再寻求改变中共**](https://www.aboluowang.com/2021/1108/1669163.html)
 
-美国总统国家安全顾问杰克·沙利文，在接受美国有线电视新闻网CNN采访时表示，美国不再寻求改变中共，而是寻找与中共共存的有利机会。沙利文说：“我想，以前对华方针的一个错误是认为通过美国政策的实施，我们将达到对中国体制的根本转变。这不是拜登政府的目标”、“两个大国在可预见的未来可以在国际体系内工作”。
+随着澳大利亚政府的COVID-19强化接种计划的启动，那些六个月前卷起袖子接受了两剂初级疫苗接种的人现在将接受第三次强化疫苗的接种。
 
-2、[**美将召开全球民主峰会 考验美全球领导力**](https://www.voachinese.com/a/biden-s-democracy-summit-problematic-invite-list-casts-shadow-on-impact-20211107/6303397.html)
+澳大利亚政府的COVID-19加强针计划于周一正式启动。
 
-路透社报道，美国将于12月9至10日召开有100多个国家参与的民主峰会，实现总统拜登的一项主要竞选承诺，帮助遏止全球范围的民主倒退及对权利及自由的侵蚀。权利活动人士质疑，这次视频峰会能否推动受邀与会的领导人采取有意义的行动，而其中的一些领导人被指责有独裁倾向。报道说，12月的民主峰会将对拜登总统在今年2月发表首次外交政策讲话中所做出的承诺是一个考验，即他任内美国将重返全球领导地位，对抗中国和俄罗斯领导的独裁势力。
+所有居住在澳大利亚的18岁及以上的人，如果在至少六个月前接受了两剂COVID-19疫苗接种，现在将有资格接受第三次加强疫苗注射。
 
-3、[**中国10月份出口激增 顺差达845亿美元**](https://www.voachinese.com/a/china-economic-numbers-in-october-20211107/6303323.html)
+卫生部长格雷格-亨特在一份声明中说，养老院的老人和残疾人将是加强型疫苗接种计划的最初重点。
 
-中国海关周日（7日）表示，10月份的出口达到3002亿美元，比一年前增长27.1%，进口达到2157亿，比一年前增加20.6%，10月份的贸易顺差为845亿，高于9月份的668亿。表明随着美国等一些主要中国出口产品市场需求的增加，中国经济试图在克服电力短缺和新冠病毒疫情反弹的影响。
+他在周一说：”强化疫苗推广计划将最先针对老人和残疾人，因为这些群体中的绝大多数人在6个月或更久之前就已经接种了第二针，因此他们具备接受第三针强化疫苗注射的条件。
 
-4、[**白宫“有信心”其疫苗接种强制令将得到维持**](https://www.voachinese.com/a/white-house-confident-its-vaccination-mandate-will-be-upheld/6303624.html)
+澳大利亚免疫技术咨询小组（ATAGI）已推荐辉瑞公司制作的疫苗作为加强针。
 
-白宫周日（7日）表示，有信心法庭最终会批准拜登总统的疫苗接种强制令，即拥有100名或更多员工的美国企业坚持要求其员工要么接种新冠病毒疫苗，要么频繁进行检测。许多反对总统全国强制令的州长，以及一些政府雇员工会和工人个人发起了诉讼，试图阻止拜登的命令。美国上诉法庭周六（6日）裁决该项规定存在严重的法律和宪法问题，并颁布冻结令暂时禁止其实行。
+接受过两次阿斯利康或Moderna疫苗注射的澳大利亚人仍有资格接受辉瑞公司的加强针注射。
 
-5、[**白宫安全顾问表示美国希望保持台湾现状**](https://www.aboluowang.com/2021/1108/1669172.html)
+ATAGI目前不建议免疫力严重低下的居民接种第三针以完成其主要的疫苗接种过程，而是建议他们进行加强针注射。
 
-白宫国家安全顾问杰克·沙利文在接受CNN电视台的采访时表示：“美国认为台湾的现状符合中国、台湾和美国的利益，符合地区稳定和和平的利益。我们反对单方面改变现状。我们对中方的做法表示关切，他们的行为在一定程度上损害了两岸关系的安全与稳定。
+亨特先生赞扬了COVID-19疫苗在确保居民获得病毒保护方面的重要性。
 
-*编辑：东京樱花团 / 文小白
-发布：东京樱花团 / 老黑*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
+今天是光明正大地谈论澳大利亚的加强剂量计划的正式开始。
+
+澳大利亚是世界上最早开始强化计划的国家之一，所有第一次接种超过六个月的人都可以接种。
+
+– Greg Hunt（@GregHuntMP） 2021年11月7日说：”在加强剂方面，人们必须知道，两剂COVID-19疫苗可以提供非常好的保护，特别是针对严重的疾病。
+
+“在第二剂后的6个月或更长时间内，加强剂将确保第一剂的保护作用更加强大和持久，应该有助于防止病毒的传播。”
+
+虽然该计划于周一才正式开始，但截至周六，已经有超过17.3万个加强剂被实施。
+
+社区药房也将能够从周一开始实施辉瑞公司的疫苗注射。
+
+**参考新闻：**[https://www.skynews.com.au/australia-news/coronavirus/australias-covid19-booster-vaccination-program-launches-with-residential-aged-care-and-disability-facilities-given-priority/news-story/6e3dbf2b0702c7e2bdf701287ff6683b](https://www.skynews.com.au/australia-news/coronavirus/australias-covid19-booster-vaccination-program-launches-with-residential-aged-care-and-disability-facilities-given-priority/news-story/6e3dbf2b0702c7e2bdf701287ff6683b)
+
+发布：Janek
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

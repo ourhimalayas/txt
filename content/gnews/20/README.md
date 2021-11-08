@@ -2,31 +2,24 @@
 ---
 
 
-## 德国海军拟每两年向印太派遣舰船
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1647772/)
+## 与病毒共存，日本“紧急宣言”新指标
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1647820/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_l.jpg)*德国海军中将舍恩巴赫接受共同社专访。11月6日摄于东京都江东区。（共同社）*
-据共同社11月8日报道，德国海军中将舍恩巴赫近日表示，为了维护印太地区基于法律的国际秩序，有可能每两年一次向该地区派遣舰船。
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-8.png)[图片来源](https://uf.cari.com.my/forumx/cforum/portal/202005/05/154016xxzsrxbnipzaesxx.jpg)
+11月8日共同通信报道，日本国民超7成接种了新冠疫苗，重症化风险在某种程度也降低了。在此背景下，由之前关注“新增感染数的等级”，修改为关注“医疗系统服务的等级”，将感染状况控制在医疗系统能接受的范围，着眼于促进社会经济活动恢复。
 
-德国于2020年制定了印太战略大纲。今年8月护卫舰“巴伐利亚”号从德国出发，经澳大利亚、美属关岛后在日本近海与海上自卫队展开联合训练，本月5日驶入东京港。这是自2002年以来，德国舰船再次停靠日本港口。
+在8月8日的小组委员会会议上，提出一个新指标，根据医疗系统提供服务的紧张程度，划分为4级。例如，“3级”，即第二严重的情况，将被定义为重症患者的病床利用率达到或超过50%，考虑发布“紧急事态宣言”。新增感染人数只作为决策的参考。
 
-因为中共在南海和东海活动频繁，美国、英国、法国，包括现在德国都加强了对这一地区的关注。中共是世界和平的破坏者，各国为了本地区的稳定，不约而同联合起来，一致对抗中共。
+日本中共病毒感染目前得到控制，但政府仍然为第6波流行做准备，此次新指标的出现，表明日本社会在更大程度上与中共病毒共存。
 
-新闻参考链接：[https://china.kyodonews.net/news/2021/11/ee02f4359b6c.html](https://china.kyodonews.net/news/2021/11/ee02f4359b6c.html)
+信息来源：
 
-编辑：胖丁
+[政府分科会、コロナ新指標で合意　ステージからレベルに分類変更](https://news.yahoo.co.jp/articles/113c342967a08b15ca9a47027743a91644858b82)
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

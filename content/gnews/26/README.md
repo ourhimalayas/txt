@@ -2,20 +2,40 @@
 ---
 
 
-## 父母越来越担心将会被迫为幼儿接种疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1647717/)
+## 自由集会在封锁条件下进行，这在北领地尚属首次
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1647784/)
 
-编译：沙子最怕你不理它
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-30.png)
-FDA和CDC违背顾问们的建议，决定在本月早些时候批准5至11岁的儿童药物时，尽管大多数健康的儿童几乎没有理由接种新冠病毒疫苗，但很快，他们需要做出决定：要么交出孩子并为他们接种疫苗；要么等着那些本该依照美国法律和宪法享受公共教育和他服务的孩子们被排出在整个系统之外（尽管司法判例会有点复杂）。这一切都是因为担心父母担心疫苗接种的长期影响，特别是想在以色列科学家已经确认了造成人体解刨学差异方面的sars-cov-2蛋白质。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image1.jpeg)**图片来源：** [https://afipn.com.au/freedom-rally-goes-ahead-under-lockdown-conditions-for-the-first-time-in-the-nt/](https://afipn.com.au/freedom-rally-goes-ahead-under-lockdown-conditions-for-the-first-time-in-the-nt/)
 
-虽然很多疫苗针对未成年人的指导剂量在调整后减低了，但随着辉瑞发布其“奇迹”新冠病毒药丸，以及数据显示辉瑞的药丸将弱势患者的住院人数减少了89%，拜登政府为幼儿注射疫苗的计划正遇到父母日益增长的抵制，他们对疫苗的安全性表示担忧，认为没有必要，或有其他理由抵制通过制药巨头和美国政府合作开发的疫苗。甚至一些自己接种过疫苗的父母也反对为五至11岁的孩子接种疫苗，因为他们担心对年轻患者可能更具影响的副作用。
+**翻译：小鱼儿
+编辑：李易通**
 
-来自田纳西州的言语治疗师娜瑞卡•戴维斯（Narika Davis）和她的丈夫一起接种了新冠病毒疫苗，因为作为可能接触病毒的一线工作人员，他们想保护自己的家人。但他们目前决定不给他们的孩子接种疫苗，作为她所说的全国性“实验”的一部分。还有一些家长认为只是为了让孩子们接受公共教育并不能成为强迫他们给孩子们接种疫苗的理由。
+11月4日星期四晚上10点左右，人们宣布北领地收到了有史以来第一例COVID-19的社区传播病例。检测结果呈阳性的人在凯瑟琳工作，最近曾去过达尔文。凯瑟琳市宣布实行72小时封锁，而达尔文市则进入72小时封锁状态。对于完全接种疫苗的人来说，只要他们戴上口罩，封锁基本上是照常进行。那些没有完全接种疫苗的人被告知要考虑全面封锁。这意味着每天只能离开家锻炼1小时，或进行必要的活动，如买菜。那些没有完全接种疫苗的人也被告知不能去工作。
 
-科学界里对儿童疫苗众说纷纭，但父母为孩子接种疫苗的担忧大幅增加，更大范围的中国病毒疫苗注射可能会让孩子长期失学，是否要为儿童接种中共病毒疫苗的争议非常大并且在政治上不受欢迎。
+11月5日上午，很快就可以看到，因为未接种疫苗的人不能正常工作，整个经济和医疗系统就无法运转。所以到11月5日午餐时间，所有未接种疫苗的从事基础工作的人都被叫去工作–这也包括很多通常不被认为是必要的工作，比如服务员。
 
-来源：[Parents Increasingly Worried About Being Forced To Vaccinate Young Children As Biden Tightens Mandates](https://www.zerohedge.com/covid-19/parents-increasingly-worried-about-being-forced-vaccinate-young-children-biden-tightens)
+在这一天，有确凿的报告显示，一些Woolworths和加油站拒绝未接种疫苗的人进入，尽管它们被认为是一种基本服务。这一天证明，当疫苗授权在11月13日生效时，北部地区的经济将陷入严重困境。
+
+首席部长迈克尔-冈纳在新闻发布会上提到，如果出现进一步的病例增加，封锁的时间可能会延长。其中一个疫情爆发点是达尔文最大的夜总会，所以可能会出现更多的病例。截至11月6日，又有2人的病毒检测结果呈阳性。
+
+一个自由集会计划于11月6日下午3点在该市举行，虽然最初因为封锁而无法确定是否进行，但人们决定修改集会计划并继续进行。新的计划是驾驶汽车车队沿着预先指定的路线向城市郊区行驶，然后步行进入。
+
+警察在城镇周围设置了路障，因为只允许接种疫苗的人进入，在汽车车队由于警察的封锁而走得最远之后，人们才开始徒步行进。
+
+来自Larrakia民族的部落君主带领着游行队伍，他们面对着警察的封锁。人群试图冲破警察的防线，这导致警察使用胡椒喷雾并逮捕了少数人。大多数人超过了封锁线，继续向城市行进。人们被警告说，领土反应小组已被召来作为后援，他们决定在植物园重新集结。
+
+最后，考虑到公共安全的最佳利益，他们决定不试图突破另一个更有准备的警察封锁，而是和平地散开，并在下周的集会上重新集结，这将比以往更强大。
+
+发布：Janek
+
+**参考新闻：**[https://afipn.com.au/freedom-rally-goes-ahead-under-lockdown-conditions-for-the-first-time-in-the-nt/](https://afipn.com.au/freedom-rally-goes-ahead-under-lockdown-conditions-for-the-first-time-in-the-nt/)
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
