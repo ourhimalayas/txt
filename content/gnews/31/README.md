@@ -2,32 +2,24 @@
 ---
 
 
-## 澳洲违反防疫规定且未缴纳罚款者 资产将被剥夺或扣押
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648598/)
+## 加拿大政要被迫为“疫苗致死”言论道歉
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1648628/)
 
-作者：美东香草山 – 新世界的一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月6日，媒体报道，在澳大利亚第二大州昆士兰州，居民若违反政府苛刻的防疫规定，又不能及时缴纳相应的罚款，其存在银行的钱、房子或其他资产将面临被政府剥夺的风险。
+采编：文明 编译撰稿：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-5.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-19-edited-scaled.jpg)图片来源：GAM
 
-自今年9月，昆州卫生厅要求昆州罚款执行登记处追查违反防疫规定的未付罚款。最新数据显示，有价值约一百万澳元的罚款尚未缴纳。当地媒体称，对这些人的执法措施可能包括扣押银行账户或工资、登记财产抵押或吊销驾照。另有媒体报道，预计这些极端措施也将在澳州其他地区实施，这可能给各州政府带来近一亿澳元的总收入。
 
-参考链接：[https://gettr.com/post/pgaqowf379](https://gettr.com/post/pgaqowf379)
+据加拿大《环球邮报》11月6日报道，安大略省立法机构独立成员希利尔，当天已为其在社交媒体上曾使用病故者的名字和照片来暗示他们因接种“新冠病毒疫苗”而死亡的言论道歉。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+据悉，希利尔在整个疫情期间经常发布有关“新冠病毒”的真实信息和该病毒的实验室来源理论。此前，该政客在其社交媒体上展示了一系列突然莫名病故年轻人的新闻报道照片，并呼吁警方调查这些死亡案例与该疫苗的联系。
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：谐趣园
+为此，安省立法机构不久前通过了一项谴责希利尔以上行为的动议。在该机构的要求和压力下，希利尔日前被迫公开道歉，声称他已删除了该备受争议的言论，并对其行为给死者家庭造成的进一步困扰表示歉意。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+事件发生后，尽管[安省公共卫生局]辩解称，所有报告给公共卫生部的接种后死亡案例都会被彻底调查，但迄今为止，当局仅确定了一起因接种“阿斯利康疫苗”后而导致“血栓症”并死亡的案例。
+
+[原文链接：](https://www.theglobeandmail.com/canada/article-politician-randy-hillier-apologizes-for-social-media-post-suggesting/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
