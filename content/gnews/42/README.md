@@ -2,40 +2,45 @@
 ---
 
 
-## 有声|众议院通过1万亿美元的基础设施计划
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1648416/)
+## 喜联储私人区块链技术确保高效安全
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648538/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国众议院周五晚上通过了一项历史性的 1 万亿美元基础设施一揽子计划，并计划投票允许对其更大的社会支出和气候法案进行正式辩论，这表明在中间派和激进派之间存在数月分歧后，拜登总统的议程取得了进展。
+作者：美东香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月7日，郭文贵先生在GTV大直播中，分析了喜联储所采用的私人区块链的技术优势。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-30.jpg)
+第一，喜联储使用私人区块链技术，每秒钟的交易量可达一百，甚至一万单。而使用公开区块链技术，交易速度很慢，每秒交易只有十单，甚至更少。
+第二，当遭遇黑客攻击时，公开区块链技术支持的数字货币，一旦被盗窃，就无法追回。而喜联储的私人区块链技术，能够确保数字货币的绝对安全，即使被黑客盗取，因有迹可查，可以追回。
+最后，喜联储的私人区块链保证个人信息的绝对安全。通过喜联储KYC的账户信息，不会被任何政府或个人获取，这才叫真正的去中心化。
 
-计划对更大的社会支出法案进行的最终投票被取消，因为一群温和派——足以阻止该措施——拒绝支持它，直到他们对其经济成本做出正式估计。
+参考链接：
+[2021年11月07日 文贵大直播：爆料革命班农战斗室发起的百家私人企业起诉，第五法庭暂停拜登政府强制疫苗令的重大意义；虚拟币交易所，银行，币价，市值，估值与提现之间的关系；中共为了冬奥会，掩盖疫苗死亡真相；喜交所的私链技术针对灭共而设计，打破中共对虚拟币的垄断与控制](https://gtv.org/video/id=6187c5e211d186296802ed33)
 
-对基础设施法案的成功投票以 228 票对 206 票获得批准，标志着拜登议程急需展示势头，由于国会山中间派和激进派之间的深度不信任，该议程遭受了挫折， 8 月，参议院已经批准拜登的两党基础设施​​法案，为加州提供资金。1 万亿美元基础设施法案将交给拜登总统签署，白宫发言人周五表示，拜登将签署该协议。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-（本文仅代表作者观点）
-
-文字版原文：[众议院通过1万亿美元的基础设施计划](https://gnews.org/zh-hans/1645882/)
-
-音频处理：喜山必胜Maverick
-
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
-
-
+总编：Ivy001
+编辑：Jack Li文阳
+校对/发稿：Fei797
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
+
+
+
 
  
 

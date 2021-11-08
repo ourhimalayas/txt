@@ -2,18 +2,30 @@
 ---
 
 
-## 中共国建造美国航母模型
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1648849/)
+## GTV新闻访谈简报|2021年11月8日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1648913/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11082.jpg)图片来自BBC
-中共国在中部若羌地区建造了美国航母和舰船的模型。Usni.org网站通过两位专家 HI Sutton 和 Sam LaGrone的文章揭示了这一点。类似模型的图像过去已经流传，但现在的这些似乎有所改进，有些可以在轨道上移动。当局的目标是，在此结构上安装机载设备和系统，以使它们尽可能的真实化。同时射程接近北京经常测试DF21D反舰导弹的区域，该导弹正是为了对抗美国海军航空母舰而设计的。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-1.png)
 
-与此同时，中共国加强了海上前线的培训，并正在努力增加其舰队可用的车辆数量。五角大楼最新报告称，中共国目前拥有355台，四年内可能达到420台。
+作者：香草山翻译部
+![]()
+文章仅代表作者本人观点，与Gnews无关
 
-原文链接：[https://www.corriere.it/america-cina/2021/11/08/partito-comunista-cinese-riscrive-storia-7f81c5ac-406d-11ec-87fb-b565e6aab98c.shtml](https://www.corriere.it/america-cina/2021/11/08/partito-comunista-cinese-riscrive-storia-7f81c5ac-406d-11ec-87fb-b565e6aab98c.shtml)
+视频参看：2021.11.08早GTV新闻访谈
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+[https://gtv.org/video/id=618925cf11d18629680351bc](https://gtv.org/video/id=618925cf11d18629680351bc)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-1.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
