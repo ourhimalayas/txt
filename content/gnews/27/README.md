@@ -2,45 +2,30 @@
 ---
 
 
-## 以应对COVID-19为由，奥地利拟于对未接种疫苗的人实施封锁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1647419/)
+## 台湾国防部指出 中共在台大量散布假信息
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1647466/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：纽约香草山医疗部 – 云豹
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月7日，台湾国防部在送达立法院的《订定境外网络心战作为守则》《国军反制中共认知作战作为》两份报告书中指出，中共是目前对台进行网络攻击的最主要、最激进的境外势力。中共近年来融合了信息战、宣传战、网络战等手段，向台湾媒体及民众发送大量真假难辨的讯息，企图造成台湾内部的争端及混乱。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4-2.jpg)
+国防部也提到，中共透过“外宣”“粉红”等方式，对台湾实施信息战。他们利用潜伏在台湾内部的“在地协力者”，在其操控的媒体上散播大量虚假信息，让民众一时无法分辨真假，造成心理恐慌。为了应对中共虚假信息超限战，除了国防部在快速追查谣言的来源外，军事新闻处也将做出实时响应，通过在官方网站、社群平台主动向国内外澄清，让真相及时公布于世。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/shutterstock_2010995402-800x450-1.jpg)
+参考链接：[台湾国防部指出 中共在台大量散布假信息](https://www.cna.com.tw/news/aipl/202111070093.aspx)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
+总编：飞虹
+编辑：文特
+校对/发稿：Hetangyuese
 
-图片来源：euractiv.com
-
-
-#### 编译：小红帽
-
-在没有接种疫苗的人被禁止进入大部分公共场所之后，奥地利已经接近于对未接种疫苗的人实施全面封锁。
-
-根据RT报道，禁令将于下周生效，并将适用于咖啡馆、酒吧、餐厅、剧院、滑雪场、酒店、理发店和任何涉及25人以上的活动。这些措施将影响36%尚未完全接种疫苗的居民。
-
-上个月，奥地利政府已经对重症监护室的入住率进行了限制，如果违反该规定，将触发对未接种疫苗的人实施封锁措施。
-
-一旦重症监护室的入住人数达到600人，或占重症监护室总容量的三分之一，新的规则就会被触发。
-
-这些措施将超出疫苗护照的范围，规定未接种疫苗的人必须呆在家里，只有在购买食物等“基本所需物品”的情况下才能离开。
-
-这可能会以类似于第一次封锁的方式执行，由警察对人们进行抽查，询问他们是否有外出的许可。
-
-奥地利将是第一个对未接种疫苗的人专门实施 “呆在家里 “措施的主要国家，但它（这种暴政模式）最终可能被复制到其他地方。
-
-**参考新闻：**[Austria Moves Closer to Imposing Lockdown on the Unvaccinated (humansarefree.com)](https://humansarefree.com/2021/11/austria-to-impose-lockdown-on-the-unvaccinated.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
