@@ -2,41 +2,50 @@
 ---
 
 
-## 奥地利针对未接种疫苗者的禁令即将生效 无视疫苗副作用
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1647220/)
+## 前白宫顾问彼得·纳瓦罗： 福奇致命的刻意隐瞒应该让他穿上囚衣
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1647236/)
 
-**撰稿：日本东京方舟农场  海星**
-
-据《美联社》11月6日报道，奥地利政府声称，由于中共病毒患者激增，因此将于11月8日开始执行禁止未接种疫苗者部分行动的规定。
-
-该规定要求未接种疫苗者从11月8日起，不得进入餐厅、酒店和美发沙龙，或参加 25 人以上的公共活动。
-
-奥地利政府11月6日声称，该国单日新增中共病毒患者人数超过了去年单日新增患者人数，并以此鼓动民众去接种疫苗。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-25.jpg)图片来自网络
-
-然而，奥地利政府却只字未提疫苗的有效性以及对人体产生的副作用。作为参照国家，与奥地利同属欧盟的瑞典，在今年5月中旬时，就已收到超过30000份关于疫苗接种的不良反应报告。
-
-奥地利政府的这项限制规定预计将有4个星期的缓冲期。只注射1剂者在此期间可以持PCR检测结果通行。但缓冲期一过，便只有完全接种者和染病后康复人士不受限制。此前，奥地利首都维也纳也执行过类似的限制措施，而这次的范围将扩大到全国。
-
-*参考链接：*
-
-[Austria to bar unvaccinated from restaurants as cases rise](https://apnews.com/article/coronavirus-pandemic-lifestyle-europe-health-austria-b10bc4b4c1e049e45dc0afb875de835d)
+前白宫顾问彼得·纳瓦罗： 福奇致命的刻意隐瞒应该让他穿上囚衣。华盛顿时报再次切中要点。请广泛转发。将福奇穿上囚衣，远离我们的孩子。 我的新书 《川普时代》在亚马逊上的全文，请访问 【附华盛顿时报文章：福奇博士的致命隐瞒 他明知新冠病毒可能源于武汉实验室却决定不告诉任何人】
 
 
 
-> [瑞典记录与中共病毒疫苗接种有关的副作用超过3万例](https://gnews.org/zh-hans/1265119/)
+> Fauci's DEADLY lie of omission should put him in an orange jump suit. [@washtimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw) scores again! Please retweet far/wide. Put [#firefauci](https://twitter.com/hashtag/firefauci?src=hash&amp;ref_src=twsrc%5Etfw) in orange jumpsuit away from our kids. 
+> Full story in my new book In Trump Time on amazon at [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy)[https://t.co/3qKPV04yd0](https://t.co/3qKPV04yd0)
+> — Peter Navarro (@RealPNavarro) [November 5, 2021](https://twitter.com/RealPNavarro/status/1456740141205180419?ref_src=twsrc%5Etfw)
 
 
 
-* * *
+比尔·戈茨转美国海军研究所新闻推文： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在偏远沙漠地区建造美国航母和驱逐舰形状的导弹目标-USNI新闻 卫星图像：[@Maxar](https://twitter.com/Maxar) 【附文章链接：根据卫星图像公司 Maxar提供给USNI新闻的照片，中共国军队在塔克拉玛干沙漠建造了美国航空母舰和其他美国军舰形状的目标，作为新目标靶场综合体的一部分】
 
 
-```
-素材采编：海星
-编辑：青衣青青
-校对/发布：Ranting
-```
+
+> China Builds Missile Targets Shaped Like U.S. Aircraft Carrier, Destroyers in Remote Desert – USNI News
+> 
+> Satellite image: [@Maxar](https://twitter.com/Maxar?ref_src=twsrc%5Etfw)[https://t.co/TM9rnTYqox](https://t.co/TM9rnTYqox) [pic.twitter.com/5snxpZWJ4z](https://t.co/5snxpZWJ4z)
+> — USNI News (@USNINews) [November 7, 2021](https://twitter.com/USNINews/status/1457381578619953161?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 是一个正在崛起的大国，它正在努力超越美国军队。 对美国来说，现在是从强势地位采取行动并保持战略威慑的时候了。【转[http://stripes.com](https://t.co/DazustRZoC?amp=1)报道：美国防部关于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军事的新报告详细介绍了其核技术的进步和日益增长的国际影响力 美国防部关于中国军力的新报告详细介绍了中国的持续快速进步，突出表现在其核计划、高超音速导弹的增长、国际影响力的增加和向其他国家的扩张。】
+
+
+
+> Communist China is a rising power that is well on its way to outpacing the U.S. military. It’s time for the United States to act from a position of strength and to maintain strategic deterrence.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 7, 2021](https://twitter.com/MarshaBlackburn/status/1457442093576687618?ref_src=twsrc%5Etfw)
+
+
+
+众议员兰斯·古登： 80% 的选民希望国会遏制大型科技公司的权力。 这就是为什么我与他人共同创立了“摆脱科技寡头核心小组” 国会有机会通过美国网上选择和创新法案来控制大型科技公司！ 【附nationalview的文章：摆脱网上大卖场：是时候反对亚马逊的垄断了】
+
+
+
+> 80% of voters want Congress to CURB Big Tech's power.
+> 
+> That’s why I co-founded the Freedom From Big Tech Caucus.
+> 
+> Congress has the opportunity to REIN IN Big Tech with the American Choice and Innovation Online Act![https://t.co/iY695IRZum](https://t.co/iY695IRZum)
+> — Lance Gooden (@Lancegooden) [November 5, 2021](https://twitter.com/Lancegooden/status/1456730569530880010?ref_src=twsrc%5Etfw)
+
 
 
  

@@ -2,28 +2,36 @@
 ---
 
 
-## 人性的扭曲——告密者
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1646647/)
+## 首位被引渡的中共间谍 法庭裁定罪成
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1646685/)
 
-撰稿：东京樱花团/华夏伊人
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-7.jpg)
-[图片来源](https://www.secretchina.com/news/gb/2020/12/01/953955.html):[文革期间，诬陷告密整人者，不乏其人](https://www.secretchina.com/news/gb/2020/12/01/953955.html)
+作者：MOS – 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月5日，美国俄亥俄州开庭审理了一宗涉及中共的间谍案，案件当中，徐某是首位被引渡到美国受审的中共间谍。对此，联邦陪审团一致裁定，中共间谍徐某罪名成立。
 
-告密者是世间最无耻的人，告密挑动了人性灵魂深处最大的、最卑劣的恶。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-3.jpeg)
 
-盛产告密者的地方，一定缺乏良知和人性。小时候，对老师鼓励和表扬告密者，我深恶痛绝；现在，每每看到儿子举报父亲、学生举报老师、员工举报上级、“朝阳大妈”像幽灵一样存在的时候，虽然我并不认识任何一个当事人，但是我的心在流血，感受到了以德报怨，无耻卑鄙的人格带来的对良知和人性的伤害。
+据悉，徐某被指控从美国航空企业盗取商业秘密，而美国司法部对其的控告罪名包括：阴谋和企图实施经济间谍行为，以及盗窃商业机密罪。
 
-当越来越多的人从告密中得到荣誉、鼓励，获得利益的时候，大多数人都会忘记告密是一种令人所不齿的行为，并将告密赋予了某种意识形态上的正确性，堂而皇之地将告密进行到底。久而久之营造出告密的环境，人人自危、相互猜忌、让人恐惧，最终达到剥夺信任感，摧毁社会道德。
+根据法庭文件显示，徐某曾使用多个身份进行间谍行为，其目标主要针对美国及海外的航空企业，试图盗取包含通用电气飞机引擎的复合材料叶片在内的各类航空相关技术。
 
-科技的发展本应是为人类带来方便和安全的，但事实上，我们所依赖的科技巨头却助纣为虐变相地成为最大的告密者。传统的告密者也许会选择性的告密，而如今告密在高科技的加持下，已经变得随时随地无处不在：摄像头时刻监视着你的一举一动；社交媒体时刻监控着你的言论，大数据对你的个人信息了如指掌，最终的结果是：我们每一个人都在不知不觉中裸奔。
+FBI助理局长艾伦指出， “这是由国家主导的间谍行为，其目的在于试图摧毁美国的经济”。 助理司法部长墨菲也称赞了美国法庭的裁决。
 
-告密带给民族、国家和人们的是灾难。顾彦武先生的至理名言：政权倒了是亡国，道德倒了是亡天下。希望世界能够醒来，恢复人性和良知，重拾道德，从我们穿上被动脱下的每一件衣服开始吧！
+参考链接：[Chinese spy convicted of trying to steal U.S. aviation secrets in historic trial](https://justthenews.com/government/security/chinese-spy-convicted-trying-stealing-us-aviation-secrets-historic-trial)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-4.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
+总编：Jack Li文阳
+编辑：Ivy001
+校正/发稿：谐趣园
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
