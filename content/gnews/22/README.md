@@ -2,49 +2,50 @@
 ---
 
 
-## 前白宫顾问彼得·纳瓦罗： 福奇致命的刻意隐瞒应该让他穿上囚衣
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1647236/)
+## 香港外国记者会调查指香港新闻自由全面恶化
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1647417/)
 
-前白宫顾问彼得·纳瓦罗： 福奇致命的刻意隐瞒应该让他穿上囚衣。华盛顿时报再次切中要点。请广泛转发。将福奇穿上囚衣，远离我们的孩子。 我的新书 《川普时代》在亚马逊上的全文，请访问 【附华盛顿时报文章：福奇博士的致命隐瞒 他明知新冠病毒可能源于武汉实验室却决定不告诉任何人】
+作者：纽约香草山农场 – 四季
 
-
-
-> Fauci's DEADLY lie of omission should put him in an orange jump suit. [@washtimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw) scores again! Please retweet far/wide. Put [#firefauci](https://twitter.com/hashtag/firefauci?src=hash&amp;ref_src=twsrc%5Etfw) in orange jumpsuit away from our kids. 
-> Full story in my new book In Trump Time on amazon at [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy)[https://t.co/3qKPV04yd0](https://t.co/3qKPV04yd0)
-> — Peter Navarro (@RealPNavarro) [November 5, 2021](https://twitter.com/RealPNavarro/status/1456740141205180419?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
 
-比尔·戈茨转美国海军研究所新闻推文： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在偏远沙漠地区建造美国航母和驱逐舰形状的导弹目标-USNI新闻 卫星图像：[@Maxar](https://twitter.com/Maxar) 【附文章链接：根据卫星图像公司 Maxar提供给USNI新闻的照片，中共国军队在塔克拉玛干沙漠建造了美国航空母舰和其他美国军舰形状的目标，作为新目标靶场综合体的一部分】
+
+
+在香港外国记者会11月5日发布的一项调查中，受访新闻工作者认为记者在香港的工作环境全面恶化。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1369.jpg)图片来源：王四维/美国之音
+
+调查报告显示，在99位受访新闻工作者中，91%的受访新闻工作者表示，他们对港府可能立法禁止当局“假新闻”感到“非常担忧”。约84% 的受访者表示，自中共2020年6月30日强推香港国安法以来，香港新闻业被迫进行自我审查、避免敏感话题，工作环境“变得更糟了”。同时，约46% 的受访者表示，由于香港的新闻自由下降，他们正在计划离开香港。而中共国方面称这项调查是在“肆意攻击”香港国安法和香港新闻自由。
+
+自“港版国安法”实施以来，港府加大镇压公民社会，引起了香港和国际社会的广泛谴责。
+
+**参考阅读：**
+
+[港外国记者会调查指香港新闻自由令人担忧 (voachinese.com)](https://www.voachinese.com/a/china-lashes-out-at-press-freedom-survey-in-hong-kong-20211105/6301360.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+编辑/校对/发稿：小鹿
 
 
 
-> China Builds Missile Targets Shaped Like U.S. Aircraft Carrier, Destroyers in Remote Desert – USNI News
-> 
-> Satellite image: [@Maxar](https://twitter.com/Maxar?ref_src=twsrc%5Etfw)[https://t.co/TM9rnTYqox](https://t.co/TM9rnTYqox) [pic.twitter.com/5snxpZWJ4z](https://t.co/5snxpZWJ4z)
-> — USNI News (@USNINews) [November 7, 2021](https://twitter.com/USNINews/status/1457381578619953161?ref_src=twsrc%5Etfw)
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-
-参议员玛莎·布莱克本： [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 是一个正在崛起的大国，它正在努力超越美国军队。 对美国来说，现在是从强势地位采取行动并保持战略威慑的时候了。【转[http://stripes.com](https://t.co/DazustRZoC?amp=1)报道：美国防部关于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军事的新报告详细介绍了其核技术的进步和日益增长的国际影响力 美国防部关于中国军力的新报告详细介绍了中国的持续快速进步，突出表现在其核计划、高超音速导弹的增长、国际影响力的增加和向其他国家的扩张。】
-
-
-
-> Communist China is a rising power that is well on its way to outpacing the U.S. military. It’s time for the United States to act from a position of strength and to maintain strategic deterrence.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 7, 2021](https://twitter.com/MarshaBlackburn/status/1457442093576687618?ref_src=twsrc%5Etfw)
-
-
-
-众议员兰斯·古登： 80% 的选民希望国会遏制大型科技公司的权力。 这就是为什么我与他人共同创立了“摆脱科技寡头核心小组” 国会有机会通过美国网上选择和创新法案来控制大型科技公司！ 【附nationalview的文章：摆脱网上大卖场：是时候反对亚马逊的垄断了】
-
-
-
-> 80% of voters want Congress to CURB Big Tech's power.
-> 
-> That’s why I co-founded the Freedom From Big Tech Caucus.
-> 
-> Congress has the opportunity to REIN IN Big Tech with the American Choice and Innovation Online Act![https://t.co/iY695IRZum](https://t.co/iY695IRZum)
-> — Lance Gooden (@Lancegooden) [November 5, 2021](https://twitter.com/Lancegooden/status/1456730569530880010?ref_src=twsrc%5Etfw)
 
 
 

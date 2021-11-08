@@ -2,30 +2,12 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月7日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1646834/)
+## 护士抗议者：“目前38个重症病人中有30个打了疫苗”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1646934/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-1.png)
+11/03/2021 记者们采访了一位从事了32年护士工作的反疫苗抗议者。她告诉他们，许多年轻人在接种疫苗后得了心肌炎。而且与媒体所说的不同，医院里到处都是接种疫苗的病人。她被停薪留职，因为她不想听从政府的说法，把疫苗强推给精神病人。她认为澳洲医疗系统已经完全崩坏了，单单在南澳，护士就会流失近2500名。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-6.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：2021.11.07早GTV新闻访谈
-
-[https://gtv.org/video/id=6187d42f11d186296802fed5](https://gtv.org/video/id=6187d42f11d186296802fed5)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

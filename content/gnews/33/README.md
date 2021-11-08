@@ -2,38 +2,52 @@
 ---
 
 
-## 墙内要闻汇编 11月7日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1647118/)
+## 前白宫顾问彼得·纳瓦罗： 福奇致命的刻意隐瞒应该让他穿上囚衣
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1647236/)
 
-#### 素材：东京樱花团｜GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-110.png)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1107/20211107054431161.jpg)
-1、[**胡编呛“台独分子”财路将被断 遭中国网民嘲讽**](https://www.aboluowang.com/2021/1107/1668809.html)
+前白宫顾问彼得·纳瓦罗： 福奇致命的刻意隐瞒应该让他穿上囚衣。华盛顿时报再次切中要点。请广泛转发。将福奇穿上囚衣，远离我们的孩子。 我的新书 《川普时代》在亚马逊上的全文，请访问 【附华盛顿时报文章：福奇博士的致命隐瞒 他明知新冠病毒可能源于武汉实验室却决定不告诉任何人】
 
-中国国台办5日点名行政院长苏贞昌、立法院长游锡堃、外交部长吴钊燮为“台独顽固分子”，并且宣布对三人的惩戒措施。胡锡进认为，台湾经济与中国及港澳的关联度很高，中国禁止他们本人和家人前往大陆和港澳地区，尤其是限制其关联机构与中国有关组织、个人进行合作，绝不允许其关联企业和金主在中国谋利，将产生威慑扩散，极大限制台湾企业和社会组织与他们和他们家人发生联系的积极性。
 
-不过随即有中国网友留言质疑：“有啥震慑力度你倒是说说看”、“本来拿台湾就没办法啦，要是能打早就打了，要能制裁早就经济制裁了！根本没用。”还有更多中国网友嘲讽：“你看他怕了，都怕的笑了”、“你还真没辙，都几十年了，不带这么骗自己的，你有辙，人家也不至于跳了几十年了都”、“但是很多谎言信者就是不信”、“还真的以为自己很牛逼，说点实话能把你骂翻”。
 
-2、[**黑龙江一医院发生火灾 火势从楼下直窜楼顶**](https://www.aboluowang.com/2021/1107/1668838.html)
+> Fauci's DEADLY lie of omission should put him in an orange jump suit. [@washtimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw) scores again! Please retweet far/wide. Put [#firefauci](https://twitter.com/hashtag/firefauci?src=hash&amp;ref_src=twsrc%5Etfw) in orange jumpsuit away from our kids. 
+> Full story in my new book In Trump Time on amazon at [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy)[https://t.co/3qKPV04yd0](https://t.co/3qKPV04yd0)
+> — Peter Navarro (@RealPNavarro) [November 5, 2021](https://twitter.com/RealPNavarro/status/1456740141205180419?ref_src=twsrc%5Etfw)
 
-11月6日早7时许，位于黑龙江鸡西市密山市密山镇的北大荒集团牡丹江分公司裴德医院发生火灾，主要集中在住院部北侧外墙，从楼下蔓延至楼顶逐渐都燃烧起来。医院住院部北侧的整个外墙在大火中燃烧，浓烟滚滚，好似一条“火龙”；医院内部有人员被困在浓烟中。中共官媒称，“初步了解事故原因是，住院部外接库房施工人员焊接作业操作不当，引燃苯板所致。”
 
-有微博网民留言说：“为了偷工减料，东北楼房的外墙保温都是易燃的泡沫板，根本就没有防火保温板，所以外墙火特大。”
 
-3、[**广东夫妻吃鱼吃到“染血OK绷”！验出“梅毒”她崩溃**](https://www.aboluowang.com/2021/1107/1668883.html)
+比尔·戈茨转美国海军研究所新闻推文： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在偏远沙漠地区建造美国航母和驱逐舰形状的导弹目标-USNI新闻 卫星图像：[@Maxar](https://twitter.com/Maxar) 【附文章链接：根据卫星图像公司 Maxar提供给USNI新闻的照片，中共国军队在塔克拉玛干沙漠建造了美国航空母舰和其他美国军舰形状的目标，作为新目标靶场综合体的一部分】
 
-广东一对夫妻10月26日至一间知名酸菜鱼店用餐，竟然在鱼汤里面吃到“染血OK绷”，起初餐厅提出赔偿，但夫妻两人仍认为，OK绷是医药用品，且沾有个人体液，担心带有病菌，为了心安，他们拒绝餐厅赔偿，并强硬要求当事厨师检查身体，不料检验结果发现厨师患有梅毒，这对夫妻至今仍未能确定自己是否也染病，他们事后向相关单位举报，目前事件调查中。
 
-4、[**湖南怀化宝马车连撞7车 多人躺地 致4死伤**](https://www.aboluowang.com/2021/1107/1669043.html)
 
-11月5日晚间，湖南怀化街头一辆宝马车失控，连撞多车和行人，导致2死、2伤。现场多人躺地一动不动。网传现场视频显示，现场一片狼藉，多处有血迹，宝马车车头受损严重，与之相撞的车尾也变形。周围不少民众围观，现场多人躺在地上，有的一动不动。其中有身穿格子上衣的女性，还有条纹打底衫的男子。近期，大陆接连发生死伤车祸。
+> China Builds Missile Targets Shaped Like U.S. Aircraft Carrier, Destroyers in Remote Desert – USNI News
+> 
+> Satellite image: [@Maxar](https://twitter.com/Maxar?ref_src=twsrc%5Etfw)[https://t.co/TM9rnTYqox](https://t.co/TM9rnTYqox) [pic.twitter.com/5snxpZWJ4z](https://t.co/5snxpZWJ4z)
+> — USNI News (@USNINews) [November 7, 2021](https://twitter.com/USNINews/status/1457381578619953161?ref_src=twsrc%5Etfw)
 
-5、[**17岁儿自杀后父亲卧底“约死群” 揭开恐怖世界**](https://www.aboluowang.com/2021/1107/1669055.html)
 
-中国一位45岁的中年男子痛失爱子后，为了搞明白儿子突然自杀原因，他潜入了网络上一个特殊的群组，发现了一个恐怖的世界——约死群，这里就像一个无底的黑洞，裹挟了大批心灵空虚、迷茫的青少年。在这个群组里，满屏都是死亡讯息，加入约死群的成员们，每天都在群里谈死亡，交流各种自杀的方法。更令人感到恐怖的是，约死的群体中，还会有人替那些有自杀念头的人准备好安眠药，封死门窗或点燃木炭。
 
-*编辑：东京樱花团 / 東洋武士
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+参议员玛莎·布莱克本： [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 是一个正在崛起的大国，它正在努力超越美国军队。 对美国来说，现在是从强势地位采取行动并保持战略威慑的时候了。【转[http://stripes.com](https://t.co/DazustRZoC?amp=1)报道：美国防部关于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军事的新报告详细介绍了其核技术的进步和日益增长的国际影响力 美国防部关于中国军力的新报告详细介绍了中国的持续快速进步，突出表现在其核计划、高超音速导弹的增长、国际影响力的增加和向其他国家的扩张。】
+
+
+
+> Communist China is a rising power that is well on its way to outpacing the U.S. military. It’s time for the United States to act from a position of strength and to maintain strategic deterrence.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 7, 2021](https://twitter.com/MarshaBlackburn/status/1457442093576687618?ref_src=twsrc%5Etfw)
+
+
+
+众议员兰斯·古登： 80% 的选民希望国会遏制大型科技公司的权力。 这就是为什么我与他人共同创立了“摆脱科技寡头核心小组” 国会有机会通过美国网上选择和创新法案来控制大型科技公司！ 【附nationalview的文章：摆脱网上大卖场：是时候反对亚马逊的垄断了】
+
+
+
+> 80% of voters want Congress to CURB Big Tech's power.
+> 
+> That’s why I co-founded the Freedom From Big Tech Caucus.
+> 
+> Congress has the opportunity to REIN IN Big Tech with the American Choice and Innovation Online Act![https://t.co/iY695IRZum](https://t.co/iY695IRZum)
+> — Lance Gooden (@Lancegooden) [November 5, 2021](https://twitter.com/Lancegooden/status/1456730569530880010?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
