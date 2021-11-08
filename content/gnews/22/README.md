@@ -2,50 +2,51 @@
 ---
 
 
-## 美国共和党全国委员会起诉联邦政府，要求停止强制 COVID-19疫苗令
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1647176/)
+## 前白宫顾问彼得·纳瓦罗： 福奇致命的刻意隐瞒应该让他穿上囚衣
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1647236/)
 
-据《justthenews.com》作者：Greg Piper，2021年11月5日报道：
-
-向华盛顿特区联邦上诉法院提交的请愿书称任务“违背了宪法权力，没有实质性证据支持，是任意的、反复无常的、滥用自由裁定权的”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11111-e1636326487439.jpg)图片源自justthenews.com
-共和党全国委员会兑现了其承诺，即一旦职业安全与健康管理局的雇主COVID-19疫苗任务的拟议法规于周五在《联邦公报》上公布，就对拜登政府提出起诉。
-
-在向美国特区巡回上诉法院而不是联邦地区法院提交的“复审请求”中，该政治组织表示，职业安全与健康管理局的“紧急临时标准”将对包括共和党全国委员会在内的数十万拥有100名或以上雇员的私营部门雇主产生“直接和有害的影响”。
-
-它将要求雇主在确保其雇员全面接种疫苗的总体要求之外，“为任何可能仍未接种疫苗的雇员建立昂贵、繁琐和可能产生污名的测试制度”。
-
-这项任务超出了职业安全与健康管理局的法定权限，“违反了宪法权力，没有实质性的证据支持，是任意的、反复无常的、滥用自由裁量权的行为，并且违反了法律。”文件中说，要求华盛顿特区巡回法院认定拟议的规则“不合法并将其搁置”。
-
-主席罗娜-麦克丹尼尔（Ronna McDaniel）周五对福克斯新闻说：“拜登政府将把那些在整个大流行病中工作、拯救生命的一线工人置于危险之中，这太令人震惊了。”
-
-她说，他们不应该“在把食物放在桌子上和他们的生计之间做出选择”，或者被迫接种疫苗，她嘲笑政府把被称为“紧急”的标准推迟到节后。
-
-反对这项强制接种任务的诉讼已经纷至沓来，包括来自亚利桑那州和就业创造者网络的诉讼。
-
-只有一家公共利益律师事务所，即捍卫自由联盟，代表几个宗教团体在多个巡回法庭提出了挑战。它加入了几个州的诉讼，并向第六巡回法院、第八巡回法院和第十一巡回法院提交了审查申请。
-
-【**评论：】*****中共于2020年1月向世界播放生化武器新冠病毒造成全球大疫情之后，与其邪恶的利益医药集团向全球各国政府推行问题新冠疫苗，并且用各国政府力量，有的国家运用军队与警察的力量强行全民接种问题新冠疫苗 。而这些新冠病毒疫苗内含有的纳米材料将导致接种者产生各种副作用如心梗和中风等等，现在疫苗接种者开始出现这些严重症状。疫苗的大灾难已经开始，世界将分成二大阵营：极权专制者强行疫苗接种令，而民主自由者决抵制接种疫苗。***
-
-原文连接：[https://justthenews.com/government/courts-law/republican-national-committee-sues-feds-halt-employer-covid-19-vaccine](https://justthenews.com/government/courts-law/republican-national-committee-sues-feds-halt-employer-covid-19-vaccine)
+前白宫顾问彼得·纳瓦罗： 福奇致命的刻意隐瞒应该让他穿上囚衣。华盛顿时报再次切中要点。请广泛转发。将福奇穿上囚衣，远离我们的孩子。 我的新书 《川普时代》在亚马逊上的全文，请访问 【附华盛顿时报文章：福奇博士的致命隐瞒 他明知新冠病毒可能源于武汉实验室却决定不告诉任何人】
 
 
 
-翻译：洛杉矶盘古农场 – TrueSky
-
-校对：洛杉矶盘古农场 – Mike Li
-
-评论：洛杉矶盘古农场 – 滴水穿石
-
-编辑：洛杉矶盘古农场 –  滴水穿石
-
-发布：洛杉矶盘古农场 – 子萍
+> Fauci's DEADLY lie of omission should put him in an orange jump suit. [@washtimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw) scores again! Please retweet far/wide. Put [#firefauci](https://twitter.com/hashtag/firefauci?src=hash&amp;ref_src=twsrc%5Etfw) in orange jumpsuit away from our kids. 
+> Full story in my new book In Trump Time on amazon at [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy)[https://t.co/3qKPV04yd0](https://t.co/3qKPV04yd0)
+> — Peter Navarro (@RealPNavarro) [November 5, 2021](https://twitter.com/RealPNavarro/status/1456740141205180419?ref_src=twsrc%5Etfw)
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+比尔·戈茨转美国海军研究所新闻推文： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在偏远沙漠地区建造美国航母和驱逐舰形状的导弹目标-USNI新闻 卫星图像：[@Maxar](https://twitter.com/Maxar) 【附文章链接：根据卫星图像公司 Maxar提供给USNI新闻的照片，中共国军队在塔克拉玛干沙漠建造了美国航空母舰和其他美国军舰形状的目标，作为新目标靶场综合体的一部分】
+
+
+
+> China Builds Missile Targets Shaped Like U.S. Aircraft Carrier, Destroyers in Remote Desert – USNI News
+> 
+> Satellite image: [@Maxar](https://twitter.com/Maxar?ref_src=twsrc%5Etfw)[https://t.co/TM9rnTYqox](https://t.co/TM9rnTYqox) [pic.twitter.com/5snxpZWJ4z](https://t.co/5snxpZWJ4z)
+> — USNI News (@USNINews) [November 7, 2021](https://twitter.com/USNINews/status/1457381578619953161?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 是一个正在崛起的大国，它正在努力超越美国军队。 对美国来说，现在是从强势地位采取行动并保持战略威慑的时候了。【转[http://stripes.com](https://t.co/DazustRZoC?amp=1)报道：美国防部关于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军事的新报告详细介绍了其核技术的进步和日益增长的国际影响力 美国防部关于中国军力的新报告详细介绍了中国的持续快速进步，突出表现在其核计划、高超音速导弹的增长、国际影响力的增加和向其他国家的扩张。】
+
+
+
+> Communist China is a rising power that is well on its way to outpacing the U.S. military. It’s time for the United States to act from a position of strength and to maintain strategic deterrence.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 7, 2021](https://twitter.com/MarshaBlackburn/status/1457442093576687618?ref_src=twsrc%5Etfw)
+
+
+
+众议员兰斯·古登： 80% 的选民希望国会遏制大型科技公司的权力。 这就是为什么我与他人共同创立了“摆脱科技寡头核心小组” 国会有机会通过美国网上选择和创新法案来控制大型科技公司！ 【附nationalview的文章：摆脱网上大卖场：是时候反对亚马逊的垄断了】
+
+
+
+> 80% of voters want Congress to CURB Big Tech's power.
+> 
+> That’s why I co-founded the Freedom From Big Tech Caucus.
+> 
+> Congress has the opportunity to REIN IN Big Tech with the American Choice and Innovation Online Act![https://t.co/iY695IRZum](https://t.co/iY695IRZum)
+> — Lance Gooden (@Lancegooden) [November 5, 2021](https://twitter.com/Lancegooden/status/1456730569530880010?ref_src=twsrc%5Etfw)
+
+
 
  
 

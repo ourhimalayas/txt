@@ -2,58 +2,36 @@
 ---
 
 
-## 西班牙团队利用拉曼光谱分析法在所有疫苗中发现氧化石墨烯
-` 加拿大扬帆农场多伦多Gnews组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1647071/)
+## 国际要闻汇编 11月7日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1647125/)
 
-作者： 加拿大温哥华扬帆农场 Michael.Tonny
-![](https://assets.gnews.org/wp-content/uploads/2021/11/micheal.png)[*图片来源*](https://www.laquintacolumna.net/)
-2021年11月2日La Quinta Columna分享了长达75页，利用micro-Raman（也称拉曼光谱）快速、无损的分析技术，对110个Pfzer, Astrazeneca, Moderna和Janssen疫苗接种样本的成份分析检测报告。
+#### 素材：东京樱花团｜GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-111.png)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1107/20211107063951847.jpg)
+1、[**新西兰总理表态 中新关系面临考验**](https://www.aboluowang.com/2021/1107/1668851.html)
 
-报告结论是，Pfzer, Astrazeneca, Moderna和Janssen疫苗中都存在氧化石墨烯。该报告同时包含了micro-Raman技术得到的大量光谱特征图像，通过这些图像，您可以直接观测到，疫苗中氧化石墨烯的光谱特征。
+2021年10月4日，新西兰总理阿德恩在惠灵顿出席记者会，阿德恩对美国增加参与印太地区事务的迹象表示欢迎，并表示新西兰政府与中国的关系“成熟”，允许分歧的存在。阿德恩下星期将主持APEC领导人在线峰会，讨论该地区如何从新冠疫情和疫情下的经济危机中恢复。美、中、日等国领导人都将参加这一峰会。
 
-报告下载地址为《1-INFORME\_TÉCNICO\_FINAL\_DETECCIÓN\_DE\_GRAFE…UNAS\_COVID》。La Quinta Columna同时给出了67份氧化石墨烯毒性的学术论文的下载地址。熟悉西班牙语的读者，可以把这份报告和67份关于氧化石墨烯毒性的学术论文翻译成中文或英语。
+2、[**传言法军毛衣为中国制 法国防部发言人辟谣**](https://www.aboluowang.com/2021/1107/1668811.html)
 
-这项研究由Pablo Campra博士独家进行的，Pablo Campra博士来自于西班牙阿尔梅里亚大学。这次研究没有任何私人或公共实体的任何类型的报酬。相关对象的表征仅对应于样本分析，但由于采样条件的限制，没有办法做到大规模抽样。
+据法国电台《法兰西24》四日报道，前经济部长、明年大选候选人蒙特堡表示，法国军方放弃了拥有40馀年历史的本土品牌Regain，却选择让中国制造商替军队提供毛衣。对此，法国国防部发言人葛宏强4日澄清，2019年Saint James与Leo Minor两间法国企业承接了法军的毛衣订单，不过有部分在突尼西亚与摩洛哥生产，与中国无任何关系。
 
-首先需要给读者科普的是，在光学显微镜下是看不到任何石墨烯成份的，必须采用高倍电子显微镜（暂且称为扫描电镜），才能达到那种分辨率。在光学显微镜下，也许您可以看到一个点之类的东西，也许是一些污垢，但实际你可能根本看不到石墨烯那样的东西，更不可能看到mRNA，proteins，virus。
+3、[**伊拉克总理遭暗杀未遂 至少6人受伤 巴格达进入紧急状态**](https://www.aboluowang.com/2021/1107/1668976.html)
 
-Pablo Campra博士本次分析方法，采用micro-Raman（拉曼光谱）快速、无损的光谱技术，通过光谱识别模式来验证材料成份，用单色激光激发后产生的振动，产生表现为红外发射峰的非弹性散射波，以表征石墨烯及其衍生物的晶格结构特征。利用光的散射效应，通过2D峰的峰形、峰位，以及2D峰与G峰的强度比，对石墨烯的层数进行表征的方法。
+伊拉克总理卡迪米（Kadhimi）的办公室说，总理官邸今晚遭无人机攻击，所幸卡迪米在这次“暗杀未遂行动”中“安然无恙”。官员表示，至少6名维安人员在空袭中受伤。目前伊拉克安全部队已采取必要措施，巴格达宣布进入紧急状态。
 
-在科学研究中，拉曼光谱分析法，是一种利用散射光谱，确定分子结构的方法。拉曼光谱分析法是基于印度科学家C.V.拉曼（Raman）所发现的拉曼散射效应，对与入射光频率不同的散射光谱进行分析以得到分子振动、转动方面信息，并应用于分子结构研究的一种分析方法。由于不同分子产生的光谱频率完全不同，您可以理解为拉曼光谱分析法是一种非常精确的快速、无损分析分子结构的方法。
+4、[**报导尼日利亚宗教迫害 大纪元时报记者被捕**](https://www.aboluowang.com/2021/1107/1669061.html)
 
-利用拉曼光谱可以鉴别出单层、双层、多层石墨烯和片状石墨、炭纳米管、活性炭间的区别。石墨烯与石墨的拉曼光谱有明显区别，两者在强度、峰位和峰形上均有所不同。而对于具有不同层数的石墨烯来说，可以通过2D峰的峰形、峰位，以及2D峰与G峰的强度比，来很好地区分层数在5层以下的石墨烯。单层石墨烯拉曼光谱的三个特点：（1）2D峰为单峰；（2）2D峰的强度远远高于G峰；（3）2D峰的峰位相对于其它层数石墨烯及片状石墨向左偏移。
+华盛顿的宗教自由倡导者抗议尼日利亚当局在11月4日监禁《大纪元时报》记者卢卡·宾尼亚特。宾尼亚特一直站在报导针对尼日利亚基督徒的暴行的前沿。美国国际宗教自由委员会（USCIRF）委员托尼·珀金斯对《大纪元时报》表示：“这是一个令人担忧的事态发展。如果一名记者因为报道政府拒绝起诉那些参与宗教暴行的人而被捕，这将进一步证明，尼日利亚政府是该国正在进行的严重和系统的宗教迫害的同谋。”
 
-La Quinta Columna采用的检测工具不是普通的光学显微镜，而是一种高达5百万像素，带有 USB 接口，专为在低光照条件下工作而设计，非常适合暗场的背光传感器激光光谱仪 Raman JASCO NRS-5100。
+宾尼亚特自己的在文章中指出，警方发言人使用了“冲突”一词，来描述全副武装的男子单方面袭击手无寸铁的男人、女人和儿童。大屠杀发生一个多月后，卡杜纳警方没有逮捕任何人，没有起诉任何人，事实上也没有对此进行任何解释。
 
-根据笔者的了解，在石墨烯研究和应用中，利用80万倍的日立SU8010高分辨场发射扫描电镜，也可以看到石墨烯的原貌，但是否可以看到疫苗中石墨烯的性状特征，不得而知。
+5、[**改名不管用 英部长誓言要Meta老板负刑事责任**](https://www.aboluowang.com/2021/1107/1669048.html)
 
-La Quinta Columna的结论。使用micro-Raman光谱技术对110瓶COVID19 疫苗进行了随机抽样，利用micro-Raman光谱耦合图像技术，表征微观物体，分析石墨烯及石墨烯衍生物分子结构特征的光谱图案，这些疫苗中，都存在表征石墨烯材料及其衍生物活性的化学结构特征。
+近日，英国数字、文化、媒体和体育大臣多里斯抨击了Meta公司（原Facebook）的品牌重塑，并承诺将根据处理网络有害内容的新法律对该社交媒体的老板进行刑事处罚。“重塑品牌是行不通的”，多里斯周四（11月4日）在关于在线安全法案的听证会上对议员们说，“当造成伤害时，我们会追捕它。”目前，英国政府正在推进全面的改革，以使社交媒体公司对在其平台上分享的有害和非法内容负责。该法案警告，对不遵守规定的公司处以高达10%的全球年收入或1800万英镑（约2420万美元）的罚款，两者以较高数额为准。
 
-氧化石墨烯进入不同器官后，表现的症状特征非常不同。在肺部，氧化石墨烯难以消除，会导致炎症、细胞浸润、肉芽肿形成和肺水肿。在肝脏中，氧化石墨烯纳米颗粒可以沿着十二指肠的胆管通过肝胆途径消除。此外，氧化石墨烯、聚乙二醇的功能衍生物主要在肝脏中积累，脾脏可以逐渐消除，可能通过肾脏和粪便排泄。此外，200 nm 的大尺寸氧化石墨烯颗粒（据笔者所知，这个尺寸的氧化石墨烯又称为炭纳米管或片状石墨），被脾脏物理过滤捕获。
-
-相比之下，大约 8 nm 的小颗粒可以通过尿液进入肾小管并被迅速清除而没有任何毒性。体内消除氧化石墨烯的途径尚未明确解释，但肾脏和粪便途径似乎是主要的消除途径。迄今为止，关于这种纳米材料的分布和排泄已经获得了几个有争议的结果。
-
-中共国研究人员Bo Li、Jianzhong Yang、Qing Huang、Yi Zhang、Cheng Peng、 Yujie Zhang、Yao He、Jiye Shi、Wenxin Li、Jun Hu & Chunhai Fan于2013年4月5日共同发表的论文《Biodistribution and pulmonary toxicity of intratracheally instilled graphene oxide in mice》中提到，气管内灌注氧化石墨烯纳米片可以保留在肺部，导致急性肺损伤和慢性肺纤维化。他们发现这些氧化石墨烯诱导的急性肺损伤与氧化应激有关。这也是笔者强烈建议不要佩戴石墨烯口罩的原因。
-
-氧化石墨烯的静脉内给药在小鼠中引起大量肺血栓栓塞。氧化石墨烯的促血栓形成特性取决于表面电荷的分布，将氧化石墨烯直接施用到小鼠的肺中会导致严重的慢性肺损伤。这些氧化石墨烯纳米片破坏了肺泡与毛细血管屏障，使炎症细胞渗入肺部并刺激促炎细胞因子的释放。
-
-有关氧化石墨烯的毒性，需要更多的文章去挖掘，敬请关注笔者的后续文章。
-
-**参考资料：**
-
-- [DESCARGA AQUÍ LOS INFORMES CIENTÍFICOS DEL INFORME TÉCNICO FINAL DE DETECCIÓN DE GRAFENO EN VACUNAS COVID](https://www.laquintacolumna.net/)
-- [Biodistribution and pulmonary toxicity of intratracheally instilled graphene oxide in mice（氧化石墨烯纳米粒子的合成和毒性：体外和体内研究的文献综述）](https://www.nature.com/articles/am20137)
-- [Synthesis and Toxicity of Graphene Oxide Nanoparticles: A Literature Review of In Vitro and In Vivo Studies](https://www.hindawi.com/journals/bmri/2021/5518999/)
-- [CONFIRMED! Graphene Oxide Main Ingredient In Covid Shots](https://ambassadorlove.wordpress.com/2021/08/09/confirmed-graphene-oxide-main-ingredient-in-covid-shots/)
-- [Graphene Oxide The Vector For Covid-19 Democide](https://www.thelibertybeacon.com/graphene-oxide-the-vector-for-covid-19-democide/)
-- [Environmental Mutagenicity and Carcinogenicity of Nanomaterials](https://www.hindawi.com/journals/bmri/2021/5518999/)
-- [石墨烯的层数如何表征？](https://www.sohu.com/a/314372560_99919252)
-
-
-* * *
-
-编辑/发稿： 云起时
-
+*编辑：东京樱花团 / 東洋武士
+发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

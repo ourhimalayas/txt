@@ -2,32 +2,21 @@
 ---
 
 
-## 反疫苗人士批评《芝麻街》主角大鸟对儿童进行政治宣传
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1647207/)
+## 雅典娜时报-第106期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1647271/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-美国反疫苗人士及部分共和党人批评美国儿童节目《芝麻街》中的主要角色“大鸟”（Bid Bird）11月6日发推特宣布自己已打疫苗这一行为，认为此举是在对儿童进行疫苗“政治宣传”（propaganda）。
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-37.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/1d09393d8094c496.png)
+***发布：小红帽***
 
-据《自由时报》援引《独立报》的消息报道称，美国长青儿童节目《芝麻街》中的布偶角色——黄色“大鸟”，11月6日用其官方账号发推文称：我今天也打了疫苗！翅膀有点酸，但这会让我的身体有额外的防卫，保护自己，也保护他人。”
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-24.jpg)图片来源：https://news.ltn.com.tw/news/world/breakingnews/3729112
-
-这一明显是在为打疫苗做宣传的举动，引来包括来自德州的联邦参议员克鲁兹（Ted Cruz）在内的部分共和党人，以及众多反疫苗人士的批评，认为这是政府对儿童进行疫苗“政治宣传”。有网友表示，美国政府刚刚批准给儿童接种疫苗，就出现这种宣传，令他们“毛骨悚然”。
-
-*参考链接：*
-
-[《芝麻街》大鳥也打疫苗！美國反疫苗人士氣炸](https://news.ltn.com.tw/news/world/breakingnews/3729112)
-
-* * *
-
-
-```
-素材采编：幽蘭自得
-编辑：青衣青青
-校对/发布：Ranting
-```
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

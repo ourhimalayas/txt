@@ -2,54 +2,52 @@
 ---
 
 
-## 打了疫苗怎么办？如何提高谷胱甘肽水平？
-` 加拿大扬帆农场多伦多Gnews组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1647098/)
+## CNN刊文污蔑班农先生
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1647179/)
 
-作者： 加拿大温哥华扬帆农场 Michael.Tonny
-![](https://assets.gnews.org/wp-content/uploads/2021/11/micheal1.jpg)*图片来源：zhuanlan.zhihu.com*
-疫苗含有氧化石墨烯，疫苗是一种毒药，疫苗是一个可怕的杀手！
+撰稿：西枫westca
 
-氧化石墨烯作为所有中共CCP疫苗的关键组成部分，它通过阻断谷胱甘肽来阻断体内解毒，已经导致大量细胞死亡、血液凝固、血小板聚集、凝血、细胞因子风暴、血栓形成、肺炎（流感样症状）、粘膜炎症、味觉和嗅觉丧失的疫苗后遗症惨痛案例。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/merlin_147522828_5bd5e35a-3d02-44cf-8639-2a5b27c266fb-master1050.jpg)图片来源：cn.nytimes.com
+11月7日CNN在“政治”专栏里发表了一篇攻击班农先生的评论。但从文章中列举的事实中反证了班农先生一直在为民主而战斗。
 
-西班牙阿尔梅里亚大学的生物化学家和研究人员们组成的La Quinta Columna研究团队，在2021年11月2日发表的75页分析报告已经证实，包含AstraZeca, Pfizer, Moderna, Sinovac, Janssen, Johnson & Johnson等所有公司生产的中共CCP病毒疫苗，均含有氧化石墨烯。
+班农先生在2017年川普总统任内担任过白宫首席战略师。他被公认为右翼代表人士，正在与调查1月6日美国国会大厦袭击事件的众议院委员会的传票进行抗争。司法部正在考虑是否就众议院对班农藐视法庭的投票采取行动。
 
-有什么治疗方法可以帮助想要摆脱这种含有氧化石墨烯有毒物质的人？如何帮助打了疫苗的人的身体在导致血栓形成和心血管相关并发症之前消除多余的氧化石墨烯，除了伊维菌素和羟氯喹之外，主要使用N-乙酰半胱氨酸，也直接使用谷胱甘肽。
+文章首先介绍了班农先生主持的极受欢迎的博客节目，即众所周知的“作战室”，该节目一周播出6天。虽然Spotify、YouTube和Twitter上禁止其播出。但”作战室”在苹果的应用程序中得到广泛下载。”作战室”一直处于美国播客排行榜的前100名；虽然没有准确的听众人数，但班农先生曾在10月底称，自2019年底推出以川普总统的第一次弹劾为主题的播客以来，总共被下载了1亿次。实际上，最近“作战室“已荣登政治类应用程序榜首。
 
-La Quinta Columna研究团队的研究成果显示，N-乙酰半胱氨酸和谷胱甘肽肯定可以降解石墨烯，它通过抑制或减少细胞因子风暴起作用，消除血栓形成的凝血现象。谷胱甘肽可以还原氧化石墨烯，即消除氧化石墨烯。
+“作战室”是美国最重要的偷窃选举的宣传者之一。 其认为川普总统 “以压倒性优势 “赢得了2020年大选，川普的胜利被一连串的作弊者从他手中夺走，总统拜登的胜利仍然可以被取消认证。CNN认为这些“谎言”煽动了1月6日的暴徒攻击国会山。
 
-我们体内有天然的谷胱甘肽储备，如果接种CCP病毒疫苗之前已经接种过流感疫苗的人群，再接种CCP病毒疫苗，可能将过量氧化石墨烯引入他们的身体，氧化石墨烯在平衡中超过谷胱甘肽时，在短短几分钟内，这个人的谷胱甘肽水平急剧下降，他们就会晕倒。
+CNN认为，在一集又一集的节目中，班农的“作战室”对选举是如何被盗的问题进行了详细的、“不正确”的描述。他的常客之一是迈克·林德尔(Mike Lindell)，这位枕头商人提出的阴谋性选举主张非常可笑，以至于福克斯公司拒绝播放援引这些主张的广告。林德尔的枕头公司一直是 “作战室 “的重复广告商，仅上周就出现了三次。
 
-对数百名在 ICU 中使用呼吸器和插管的处于死亡边缘的患者进行临床试验，通过直接静脉注射（甚至口服）或 N-乙酰半胱氨酸 600 毫克或更高剂量的谷胱甘肽治疗时，人们在数小时内开始恢复氧饱和度。
+班农还为特朗普前律师鲁迪·朱利安尼、川普前白宫官员彼得·纳瓦罗、疯狂的所谓 “数据分析师”塞斯·凯谢尔以及各种靠选举谎言竞选的摇摆州共和党候选人的被驳斥的选举主张提供了平台。
 
-里卡多·德尔加多怀疑，6 月 17 日，世界卫生组织希望通过 FDA 禁止上市 57 年的N-乙酰半胱氨酸商业化，是因为N-乙酰半胱氨酸是使疫苗失效的因素。我们还被告知打了疫苗不要吃海鲜，但海鲜也会提高谷胱甘肽水平，因此奉劝读者，不要觉得官方消息就一定是对的。我们还被告知不应该进行尸检，但Pasquale Bacco 博士在意大利进行了尸检，看到血栓，进而找到氧化石墨烯是引起心血管病的元凶。
-除了服用N-乙酰半胱氨酸，补锌是一种提高谷胱甘肽水平最简便的方法。
-在一篇由B J Mills, R D Lindeman, C A Lang发表的题为《Effect of zinc deficiency on blood glutathione level缺锌对血谷胱甘肽水平的影响》论文中，三位研究员通过连续17 天对年轻、成熟的大鼠喂养缺锌饮食，和对照组中正常喂养的大鼠血液中谷胱甘肽浓度水平进行比较。得出血液中谷胱甘肽水平的降低是缺锌引起的重要结论。
+“作战室”对选举欺骗的无情炮轰，如果只是说说而已，对美国民主的破坏力就够大了。班农在10月份谈到了他的努力如何降低了美国人对 “乔·拜登政权的合法性 “的信心。同时班农也敦促 “作战室 “的听众采取长期行动， 并恳请支持者通过报名担任 “选区委员 “来重塑共和党的形象。虽然这是些低级别的地方职位，不过，正如班农所强调的那样，它们很重要。担任选区职务的人在选择代表担任地方选举委员会成员和填补各州党机构的关键职位方面具有影响力。他们还经常担任地方选举工作人员。
 
-为此，La Quinta Columna研究团队就锌和氧化石墨烯之间的进一步研究成果显示，锌有助于提高谷胱甘肽水平，谷胱甘肽有助于降解氧化石墨烯。锌与谷胱甘肽有紧密关系，血液中锌的浓度越高，身体产生的谷胱甘肽就越多。
+目前还没有关于班农号召行动主义的影响的确凿数据。但ProPublica在9月报道说，在今年年初班农开始倡导共和党选区职位后，全国各县出现了不寻常的报名人数激增。
 
-锌可能需要γ-谷氨酰半胱氨酸合成酶 (GCL) 来合成谷胱甘肽。缺锌会导致细胞氧化剂增加，大脑中的谷胱甘肽代谢发生变化，神经元细胞退化，影响神经元细胞和大脑中的谷胱甘肽代谢。
+研究右翼极端分子的播客和其他在线通信的伊隆大学计算机科学教授和南方贫困法律中心高级研究员梅根·斯奎尔说，班农 “非常善于围绕他的播客创建社区”，将节目变成一种不只是被动的收听体验。她指出，Telegram上的”作战室 “粉丝群有数万名成员，Telegram是一个以小组聊天为特色的应用程序。”斯奎尔说：”粉丝们就可以扩展节目的信念，有时是以有害的方式。’’
 
-这意味着，如果疫苗副作用是由氧化石墨烯引起，那么，氧化石墨烯将消耗体内的还原剂，产生血栓等负面影响，最终导致细胞因子风暴。如果迅速提高谷胱甘肽水平，改变氧化应激，就应当可以降低CCP病毒感染者或苗苗族的死亡率和康复时间。
+CNN的评论称，”作战室”因班农在12月和1月初的言论而受到审查，当时他推崇选举谎言，含糊其辞地谈到他与同样希望推翻选举的chuanp顾问的谈话，敦促支持者在1月6日到华盛顿，并在1月5日预言 “明天所有的地狱都将崩溃”。
 
-西班牙塞维利亚的两名被迫接种疫苗的护士就是通过服用锌，身体的磁性在四五天之内就消失了。José Luis Sevillano 博士还提到，皮质类固醇也可以治疗这种疫苗后遗症。
+但班农即使在叛乱后也从未停止选举谎言之说。尽管”作战室”也涉及其他主题，包括最近涉及Covid-19大流行病、移民和弗吉尼亚州选举，但班农更专注于他所谓的关于2020年选举的 “11月3日运动”。
 
-参考资料：
+CNN列举了他们认为是自 7 月中旬以来作战室讲述的选举谎言中的10个：
 
-- [La Quinta Columna: ‘N-Acetylcysteine, precursor of glutathione, reduces and oxidizes graphene oxide’](https://www.orwell.city/2021/07/NAC-glutathione.html)
-- [Reaction between Graphene Oxide and Intracellular Glutathione Affects Cell Viability and Proliferation](https://pubmed.ncbi.nlm.nih.gov/33428377/)
-- [La Quinta Columna: Zinc helps raise glutathione levels and glutathione helps degrade graphene oxide](https://www.orwell.city/2021/07/zinc-glutathione.html)
-- [Preventive treatment with antioxidants for graphene oxide detoxification](https://www.orwell.city/2021/07/preventive-treatment-with-antioxidants.html)
-- [Biodistribution and pulmonary toxicity of intratracheally instilled graphene oxide in mice（氧化石墨烯纳米粒子的合成和毒性：体外和体内研究的文献综述）](https://www.nature.com/articles/am20137)
-- [石墨烯健康风险研究现状及展望](http://www.pibb.ac.cn/pibbcn/ch/reader/download_pdf.aspx?file_no=20140112&amp;year_id=2015&amp;quarter_id=1&amp;falg=1)
-- [对于视频“西班牙科学家找到移出氧化石墨烯方法”的内容概述](https://zhuanlan.zhihu.com/p/399742534)
-- [Ecotoxicological impact of graphene oxide: toxic effects on the model organism Artemia franciscana†](https://pubs.rsc.org/en/content/articlelanding/2020/en/d0en00747a)
-- [Graphene Oxide Detox Protocols For The Vaxxed and Unvaxxed](https://ambassadorlove.wordpress.com/2021/08/24/graphene-oxide-detox-protocols-for-the-vaxxed-and-unvaxxed/)
-- [Synthesis and Toxicity of Graphene Oxide Nanoparticles: A Literature Review of In Vitro and In Vivo Studies](https://www.hindawi.com/journals/bmri/2021/5518999/)
+- 班农说，川普不仅赢得了2020年的选举，而且 “以压倒性优势获胜”。
+- 纳瓦罗说，在选举之夜的午夜，”非常清楚，川普总统赢得了选举”。
+- 林德尔说，川普在2020年 “赢得了新罕布什尔和明尼苏达”。
+- 前川普白宫助手鲍里斯·埃普斯泰因说，亚利桑那州马里科帕县被 “74,000张额外的选票污染”；朱利安尼说，这些选票是 “民主党特工人员做出来的”。
+- 朱利安尼说，在佐治亚州，有6.8万人投票，尽管他们未达到18岁的法定投票年龄。
+- 在一次关于亚利桑那州的谈话中，朱利安尼断言，无证移民将被证明对 “30000，40000 “张非法选票负责。
+- 所谓的数据分析师Keshel说，在宾夕法尼亚州有一个”67个县的行动”，以欺诈方式 “削减 “川普的总票数。
+- Keshel说，”有一个计划 “来操纵佛罗里达州，只是因为川普在该州南部的选民中表现得比预期的好而失败，而且即使在德克萨斯州，选举结果也有 “极大的偏差”。
+- 电台主持人约翰·弗雷德里克斯说，佐治亚州的科布、富尔顿、德卡布和格温内特等县 “代表了佐治亚州大多数的假民主党选民，他们在那里有所有的欺诈行为。”
+- 林德尔说，选举技术公司Dominion Voting Systems是操纵选举的一个关键角色，然后参与了 “掩盖”。
 
 
-* * *
+作为左媒的带头人，CNN的受众遍布全球。自爆料革命运动以来，特别是在中共病毒肆虐全球、川普2020总统大选、强制毒疫苗关键问题，清楚地看到CNN完全丧失媒体应有的求真本性，它本应给公众提供事实真相、构造公众社会心理、正确引导民意走向。反之，CNN却隐瞒事实、编造更多谎言，起着“第四权力“的作用。我们相信，随着时间的推移，任何事件的真相终究会被披露，”正道主义“一定会展示其势力。 目前掌握着”话语权“的这些左媒一定会被抛弃。
 
-编辑/发稿： 云起时
+**新闻来源：**[Steve Bannon: DOJ officials unfazed by calls to expedite contempt decision – CNNPolitics](https://www.cnn.com/2021/11/06/politics/doj-steve-bannon-contempt-case/index.html)
 
  
 
