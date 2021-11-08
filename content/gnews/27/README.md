@@ -2,41 +2,32 @@
 ---
 
 
-## 中共禁止数字货币交易的根本原因
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648630/)
+## 2021/11/07文贵先生盖特精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1648683/)
 
-作者：美东香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月7日，郭文贵先生在GTV大直播中，揭露了中共禁止数字货币交易的根本原因。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-19.jpg)
-郭先生爆料，中共内部文件显示，中共研究数字货币是出于安全和政治的考虑。中共担心，一旦允许任何数字货币公司在中共国经营，中共金融的秘密和安全将荡然无存。因此，中共为保证数字货币时代的安全，不仅使用绝对“中心化”的区块链技术，和行政管理，垄断数字货币发行权，而且发行数字人民币，禁止中国人使用和购买其它数字货币。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1107010.png)[盖特直播链接](https://gettr.com/post/pgc3455291)
+11月7号对我们真的特别重要。共产党的十九届六中全会马上要开了。看看现在国内和香港的经济，病毒和疫苗灾难的实际发展情况走到哪一步了？
 
-中共企图控制西方国家“去中心化”的数字货币主导权，进而掌握西方国家的经济和安全信息。利用美国华尔街和伊朗进入比特币市场，郭先生指出，比特币挖矿机大多已被中共解放军控制。
+我们每一天的进步和战友们的日益成熟都是火箭般的，不能神话自己，但是需要看到我们爆料革命新中国联邦大直播的实际影响力。很多国内的战友们向我发来感谢和感动的信息，因为今天的大直播改变了很多人的想法。
 
-喜联储的诞生，一方面打破了中共控制数字货币的话语权，另一方面，对于中共向西方国家金融信息渗透的企图，是致命的打击。
+大家一定要对喜币有更深地了解，还有对我们未来的新中国联邦的国防和全球安全系统等等的一切，咱们拭目以待。自从喜联储上市的那一刻起，全球战友们的人身安全、财富安全等安全问题就摆在了我们新中国联邦的面前。新中国联邦在全世界行动力的保证，国内战友通讯安全的保证，我们会尽快完成安全的通讯系统。让各国官方更快的承认新中国联邦，形成利益共同体，共同分享财富，共同创造财富，更重要的是让世界上更多真正有信仰的人和我们站在一起！
 
-参考链接：
-[2021年11月07日 文贵大直播：爆料革命班农战斗室发起的百家私人企业起诉，第五法庭暂停拜登政府强制疫苗令的重大意义；虚拟币交易所，银行，币价，市值，估值与提现之间的关系；中共为了冬奥会，掩盖疫苗死亡真相；喜交所的私链技术针对灭共而设计，打破中共对虚拟币的垄断与控制](https://gtv.org/video/id=6187c5e211d186296802ed33)
+我现在要去休息一下，明早1:40要开亚洲会议，讨论共党“两会”的重点，会发生很多意想不到的事情。所有不信爆料革命的和不敢、不能跟随爆料革命的人，都会后悔的，未来几天你们会明白发生了哪些事情……记住今天，11月7日！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+***听写**：阿甘*
 
-总编：Irene木木
-编辑：Kathy文艺 
-校对/发稿：Fei797
+***校对: **小雨*
 
-**更多资讯，更多关注**
+* * *
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+编辑：【英国伦敦喜庄园编辑部】
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 
