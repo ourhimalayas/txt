@@ -2,38 +2,23 @@
 ---
 
 
-## 新冠疫苗提高致癌率 未来10年内将杀死数千万人
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1648530/)
+## 加拿大政要被迫为“疫苗致死”言论道歉
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1648628/)
 
-**撰稿：日本东京方舟农场  海星**
+采编：文明 编译撰稿：硫酸羟氯喹64
 
-近期，一篇发表在《艾迪·贝特曼医学博士网》上的文章披露，新冠疫苗不仅仅只是破坏人体免疫系统，还将导致癌症的发病率空前提高，并将在未来10年内杀死数千万人。
-
-该报导表示，美国目前有超过 1.91 亿人接种了两剂疫苗，超过 2.2 亿人接种了一剂疫苗，到2031年底将有数以千万计的美国人罹患癌症。
-
-报导指出，爱达荷州诊断实验室的负责人瑞恩·科尔（Ryan Cole）博士的报告显示，接种疫苗者患癌症的几率增加了 2000%。他在一段视频中表示，自 1 月 1 日以来，他在实验室中看到的子宫内膜癌的发病率比往年看到的增加了 20倍。他强调说，“我一点也不夸张，因为我每年都会查看数字，以前从未见过这么多子宫内膜癌。”
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-28.jpg)图片来源：https://dreddymd.com/2021/10/31/the-vaccine-cancer-atrocity-most-vaccinated-americans-will-lose-immune-function-by-christmas/
-
-报导称，2019 年，美国报告了近 600,000 例癌症死亡病例，并预测2022 年癌症死亡人数将激增至 100 万以上，癌症死亡率将在未来十年保持高位，这一切都归咎于支配政府政策和媒体宣传的犯罪制药集团从2021 年开始要求的疫苗接种。
-
-此外，保罗·科特雷尔博士在一段视频中披露，mRNA疫苗制造商故意在疫苗中添加化学品以消除人体免疫功能，从而保护mRNA链不受正常免疫反应的破坏。
-
-根据英国追踪接种疫苗者的一些数据显示，他们的免疫功能每周大约下降 5%。瑞典也发现在接种疫苗后的前 7 个月内，免疫保护迅速减弱：这种消除免疫的策略似乎可以暂时减轻病毒引发的症状，但它容易使身体受到其他疾病的威胁，包括癌症、流感、普通感冒等。
-
-*参考链接：*
-
-[THE VACCINE-CANCER ATROCITY: Like clockwork, most vaccinated Americans will lose immune function by Christmas and start growing accelerated CANCER tumors that will kill them over the next ten years](https://dreddymd.com/2021/10/31/the-vaccine-cancer-atrocity-most-vaccinated-americans-will-lose-immune-function-by-christmas/)
-
-* * *
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-19-edited-scaled.jpg)图片来源：GAM
 
 
-```
-素材采编：海星
-编辑：文顺
-校对/发布：Ranting
-```
+据加拿大《环球邮报》11月6日报道，安大略省立法机构独立成员希利尔，当天已为其在社交媒体上曾使用病故者的名字和照片来暗示他们因接种“新冠病毒疫苗”而死亡的言论道歉。
 
+据悉，希利尔在整个疫情期间经常发布有关“新冠病毒”的真实信息和该病毒的实验室来源理论。此前，该政客在其社交媒体上展示了一系列突然莫名病故年轻人的新闻报道照片，并呼吁警方调查这些死亡案例与该疫苗的联系。
+
+为此，安省立法机构不久前通过了一项谴责希利尔以上行为的动议。在该机构的要求和压力下，希利尔日前被迫公开道歉，声称他已删除了该备受争议的言论，并对其行为给死者家庭造成的进一步困扰表示歉意。
+
+事件发生后，尽管[安省公共卫生局]辩解称，所有报告给公共卫生部的接种后死亡案例都会被彻底调查，但迄今为止，当局仅确定了一起因接种“阿斯利康疫苗”后而导致“血栓症”并死亡的案例。
+
+[原文链接：](https://www.theglobeandmail.com/canada/article-politician-randy-hillier-apologizes-for-social-media-post-suggesting/)
 
  
 

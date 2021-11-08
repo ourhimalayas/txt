@@ -2,23 +2,18 @@
 ---
 
 
-## 加拿大保守党欲保障未接种者的自由权利
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1648702/)
+## 中共国建造美国航母模型
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1648849/)
 
-采编：文莱， 校对编辑：硫酸羟氯喹64
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11082.jpg)图片来自BBC
+中共国在中部若羌地区建造了美国航母和舰船的模型。Usni.org网站通过两位专家 HI Sutton 和 Sam LaGrone的文章揭示了这一点。类似模型的图像过去已经流传，但现在的这些似乎有所改进，有些可以在轨道上移动。当局的目标是，在此结构上安装机载设备和系统，以使它们尽可能的真实化。同时射程接近北京经常测试DF21D反舰导弹的区域，该导弹正是为了对抗美国海军航空母舰而设计的。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-20-edited.jpg)图片来源：TN
+与此同时，中共国加强了海上前线的培训，并正在努力增加其舰队可用的车辆数量。五角大楼最新报告称，中共国目前拥有355台，四年内可能达到420台。
 
+原文链接：[https://www.corriere.it/america-cina/2021/11/08/partito-comunista-cinese-riscrive-storia-7f81c5ac-406d-11ec-87fb-b565e6aab98c.shtml](https://www.corriere.it/america-cina/2021/11/08/partito-comunista-cinese-riscrive-storia-7f81c5ac-406d-11ec-87fb-b565e6aab98c.shtml)
 
-据加拿大自媒体《真北方》11月5日报道，由多达30名保守党议员联合组成的【公民自由核心小组】，正在为那些因未接种“新冠病毒疫苗”而失去工作的加拿大人讨回公道。
-
-据悉，该保守党核心小组是在加拿大10月份的选举之后成立的，其宗旨是着重关注那些因未接种疫苗而被其雇主辞退的加拿大人，并试图帮助他们摆脱目前窘迫的困境。同时，呼吁和督促加拿大各企业雇主为其不愿或不能接种该疫苗的雇员提供基础便利。
-
-为此，该小组成员表示，国会议员的主要工作之一就是提出选民正在关注的重要问题，并让有关专家参与和设定一个当局可实行的措施，以真正确保该国公民的权利和自由得到基本保障。
-
-本台记者   文莱，硫酸羟氯喹64 综合报道
-
-[原文链接：](https://tnc.news/2021/11/05/dozens-of-conservative-mps-form-caucus-to-defend-rights-of-unvaccinated-canadians/)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

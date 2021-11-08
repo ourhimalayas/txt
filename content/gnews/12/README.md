@@ -2,32 +2,57 @@
 ---
 
 
-## 澳洲违反防疫规定且未缴纳罚款者 资产将被剥夺或扣押
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648598/)
+## 中共国10月份煤炭进口量同比增长近一倍
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1648721/)
 
-作者：美东香草山 – 新世界的一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月6日，媒体报道，在澳大利亚第二大州昆士兰州，居民若违反政府苛刻的防疫规定，又不能及时缴纳相应的罚款，其存在银行的钱、房子或其他资产将面临被政府剥夺的风险。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/110712.jpg)2021 年 11 月 3 日，工人们在中共国北部山西省大同的一个煤矿附近分拣煤炭。图片：诺埃尔•塞利斯 | 法新社 | 盖蒂图片社
+**摘要翻译：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-5.jpeg)
+来自美国《全国广播公司商业频道》11月8日的报道，
 
-自今年9月，昆州卫生厅要求昆州罚款执行登记处追查违反防疫规定的未付罚款。最新数据显示，有价值约一百万澳元的罚款尚未缴纳。当地媒体称，对这些人的执法措施可能包括扣押银行账户或工资、登记财产抵押或吊销驾照。另有媒体报道，预计这些极端措施也将在澳州其他地区实施，这可能给各州政府带来近一亿澳元的总收入。
+根据周日公布的海关数据，尽管有迹象表明中共国的电力短缺正在缓解，但中共国10月份的煤炭进口量几乎是一年前的两倍。
 
-参考链接：[https://gettr.com/post/pgaqowf379](https://gettr.com/post/pgaqowf379)
+根据万得资讯(Wind Information)获取的数据，10月份煤炭每月采购量达到2690万吨，同比增长96.2%。然而，这比9月份的3290万吨下降了18.2%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+在许多工厂被迫减产后，中共当局自9月下旬开始急于解决该国的煤炭短缺问题。根据澳大利亚联邦银行的数据，到10月中旬，中共国出现严重缺电的省份从本月初的18个减少到2个。
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：谐趣园
+周日，中共国家电网表示，其运营地区的电力供需已恢复正常，但警告称，未来几个月仍将面临挑战。中共国按国家划分的煤炭进口数据将于11月晚些时候公布。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国仍然是中共国最大的单一国家贸易伙伴。中共国海关数据显示，10月份自美国进口同比大幅放缓至4.6%左右，而对美国出口保持近22.7%的高速增长。
+
+海关数据显示，来自澳大利亚——曾经是中共国最大的煤炭来源——的进口在10月份同比增长24.3%，低于9月份的50.7%。出口增长22.3%，略低于9月份的23.8%。
+
+据路透社报道，10月份中共国整体进口增长20.6%，低于预期的25%。中共国出口增长27.1%，超过路透社预测的24.5%。
+
+野村证券机构的首席中共国经济学家陆挺在周日的一份报告中表示，出口尤为重要，因为出口在过去一年半中一直是中共国最大的增长动力。
+
+不包括出厂价格的飙升，陆挺估计中共国10月份的出口同比仅增长7%。中共国上月生产物价指数将于周三公布。
+
+**简评：**
+
+由于中共病毒疫情的短暂缓解，全球流动性增加，全球大宗商品都大幅度涨价，带动能源价格，特别是煤炭的价格大幅上涨，而中共国则因为煤炭供应不足造成了全国范围内的电力短缺，所以中共政府不得不放开对澳煤的进口限制。
+
+从本篇报道所列举的经济数据可以看出，虽然疫情之后中共经济出现了短暂的增长，但后续增长仍然乏力。在全球经济低迷的大背景下，中共国恒大地产的暴雷及其债务违约事件的进一步蔓延，正不断冲击着中共国脆弱的经济。随着中共病毒真相和疫苗真相的不断被曝光，世界各国与中共政权政治对立、经济脱钩的局面将不可避免，中共政权的垮塌和经济的崩溃会很快到来。
+
+新闻链接：[China’s coal imports in October nearly doubled from a year ago](https://www.cnbc.com/2021/11/08/chinas-coal-imports-in-october-nearly-doubled-from-a-year-ago.html)
+
+***翻译/简评***：Harvey (叶知秋)
+
+***校对**：clau*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,44 @@
 ---
 
 
-## 有声|美国联邦上诉法院冻结拜登政府的企业疫苗强制令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1648358/)
+## 有声|台湾一男子接种两针CCP病毒疫苗后死亡
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1648381/)
 
 配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月6日，美国联邦第五巡回上诉法院发布命令称，暂时冻结拜登政府发布的企业新冠疫苗强制令。该强制令要求，拥有超过100名员工的美国公司，其所有员工必须接种新冠疫苗或每周接受新冠病毒测试。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月2日，台湾多家媒体报道，台湾南投县一名46岁的男子，接种第二针阿斯利康疫苗后，很快死亡。
 
-巡回法院给出的冻结理由是，该强制令存在“严重的法律和宪法”问题，同时，法院要求拜登政府必须在11月8日下午5点前回应法院对新冠疫苗强制令提出的质疑。
+据了解，该名男子在今年7月接种了第一针疫苗，当时就曾发生严重的不良反应。按规定，他在10月又去接种了第二针，不幸的是，就在他接种第二针疫苗后不久，疫苗导致的副作夺去了男子年轻的生命。
 
-日前，德克萨斯州总检察长肯·帕克斯顿曾就新冠疫苗强制令起诉了拜登政府。检方认为，强制员工接种新冠疫苗或每周接受病毒检测的命令是“滥用权利”且“完全违宪”，为此，检方要求法院下令取消该强制令。
+随着全世界CCP病毒疫苗的大面积强制接种，各国由疫苗导致死亡的人数一直在不断上升。
+台湾本来是全球疫情防控做得最好的几个国家之一，确诊人数比例极低，但由于政府无视病毒和疫苗的真相，全民强行推打毒疫苗，使全岛的确诊病例大幅度攀升，由接种疫苗导致死亡的人数比例也排在世界前列。
 
-在赢得初步胜利后，帕克斯顿总检察长表示，关于新冠疫苗的斗争尚未结束，他将继续反对和抵制联邦政府的一切越权和违宪行为。
+截至10月7日16时，台湾由疫苗接种引发的死亡人数达850人，岛内所有新冠确诊死亡的人数为845人，“台湾接种疫苗死亡人数首超确诊死亡人数”引起不少网友热议，这一话题也一度冲上新浪微博的热搜榜单。
 
-文字版原文：[美国联邦上诉法院冻结拜登政府的企业疫苗强制令](https://gnews.org/zh-hans/1646716/)
+（本文仅代表作者观点）
+
+文字版原文：[台湾一男子接种两针CCP病毒疫苗后死亡](https://gnews.org/zh-hans/1645249/)
 
 音频处理：喜山必胜Maverick
 
 发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
 
 
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

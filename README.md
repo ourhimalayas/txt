@@ -15,125 +15,125 @@
 
 ---
 
-### [中共国器官移植黑幕](/content/gnews/1/README.md)
- ` 波士顿五月花农场`
-
-### [民主党州长转向反对拜登疫苗强制令，“不正确”或“无效”措施](/content/gnews/2/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [美国保守派媒体人士遭[联邦调查局]突袭搜查](/content/gnews/3/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [中共国10月份煤炭进口量同比增长近一倍](/content/gnews/4/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [加拿大通货膨胀令物价快速飙升](/content/gnews/5/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [加拿大保守党欲保障未接种者的自由权利](/content/gnews/6/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [联盟工作汇报文字版摘要2021.11.7](/content/gnews/7/README.md)
- ` 纽约香草山MOS02`
-
-### [2021/11/07文贵先生盖特精要](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共禁止数字货币交易的根本原因](/content/gnews/9/README.md)
- ` GTV新闻访谈`
-
-### [墙内要闻汇编 11月8日](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [加拿大政要被迫为“疫苗致死”言论道歉](/content/gnews/11/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [澳洲违反防疫规定且未缴纳罚款者 资产将被剥夺或扣押](/content/gnews/12/README.md)
- ` GTV新闻访谈`
-
-### [喜联储技术优于加密货币领域最大的独角兽](/content/gnews/13/README.md)
- ` GTV新闻访谈`
-
-### [在毒疫苗下保护自己和身边的人](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [班农战斗室对暂停美国疫苗强制令起到关键作用](/content/gnews/15/README.md)
- ` GTV新闻访谈`
-
-### [串珠445:国产青蒿素哌喹片副作用多，谨遵医嘱](/content/gnews/16/README.md)
- ` 郭爆料串珠`
-
-### [西媒头条 — 第104期](/content/gnews/17/README.md)
+### [普京说现在的白左和当年的布尔什维克是同一群人 （二）](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [喜联储私人区块链技术确保高效安全](/content/gnews/18/README.md)
- ` GTV新闻访谈`
+### [德国发动机在中共国的军舰上](/content/gnews/2/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [新冠疫苗提高致癌率 未来10年内将杀死数千万人](/content/gnews/19/README.md)
- ` 日本东京方舟农场`
+### [格芯纳斯达克上市对喜币意义重大，中共国房地产将大暴雷](/content/gnews/3/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [纳瓦罗抨击福奇的疫苗政策是对儿童的变相虐待](/content/gnews/20/README.md)
- ` GTV新闻访谈`
+### [普京说现在的白左和当年的布尔什维克是同一群人 （一）](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [恒泰地产遭遇多地停工停产](/content/gnews/21/README.md)
- ` GTV新闻访谈`
-
-### [DC每日热点1108](/content/gnews/22/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [2021/11/7 喜币是投的铸币权](/content/gnews/23/README.md)
- ` Itana`
-
-### [喜联储可助台湾加入联合国](/content/gnews/24/README.md)
- ` GTV新闻访谈`
-
-### [美联邦法院判定强制接种政策“违宪”](/content/gnews/25/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [新中国联邦“共同富裕”的愿景](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [文·贵天成——文贵先生谈“吴征、杨澜”（二十四）](/content/gnews/27/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2021/11/07银行和交易所是什么关系？喜联储是什么？](/content/gnews/28/README.md)
- ` Itana`
-
-### [日本要闻汇编 11月8日](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|众议院通过1万亿美元的基础设施计划](/content/gnews/30/README.md)
- ` MOSREC`
-
-### [文·贵天成——文贵先生谈“吴征、杨澜”（二十三）](/content/gnews/31/README.md)
- ` 墨尔本雅典娜农场`
-
-### [六中全会将决定习向毛泽东式的权力巅峰挑战](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [班农专访7: 中共垮台后，志愿去中国帮助重建](/content/gnews/33/README.md)
+### [中共国富人寻求转移资金的新方法，避免习近平的财富再分配](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|羽毛球选手朱俊豪、张滨榕替中共背锅，被禁赛两年](/content/gnews/34/README.md)
- ` MOSREC`
+### [中共国建造美国航母模型](/content/gnews/6/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [文贵爆料 7/11: 永远拿不走的喜币——任你妙手神偷](/content/gnews/35/README.md)
- ` 秘密翻译组-原创组`
+### [如果价格暴涨将减少53 亿欧元消费](/content/gnews/7/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [有声|台湾一男子接种两针CCP病毒疫苗后死亡](/content/gnews/36/README.md)
- ` MOSREC`
+### [11/08/21 香港快讯 林郑预告扩大强制扫安心 ＂少数服从多数＂](/content/gnews/8/README.md)
+ ` 英喜-粵語組`
 
-### [又一名拜登随从人员感染CCP病毒](/content/gnews/37/README.md)
+### [中共国器官移植黑幕](/content/gnews/9/README.md)
+ ` 波士顿五月花农场`
+
+### [民主党州长转向反对拜登疫苗强制令，“不正确”或“无效”措施](/content/gnews/10/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [美国保守派媒体人士遭[联邦调查局]突袭搜查](/content/gnews/11/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [中共国10月份煤炭进口量同比增长近一倍](/content/gnews/12/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [加拿大通货膨胀令物价快速飙升](/content/gnews/13/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [加拿大保守党欲保障未接种者的自由权利](/content/gnews/14/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [联盟工作汇报文字版摘要2021.11.7](/content/gnews/15/README.md)
+ ` 纽约香草山MOS02`
+
+### [2021/11/07文贵先生盖特精要](/content/gnews/16/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共禁止数字货币交易的根本原因](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [欧洲央行计划发行数字货币](/content/gnews/38/README.md)
+### [墙内要闻汇编 11月8日](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加拿大政要被迫为“疫苗致死”言论道歉](/content/gnews/19/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [澳洲违反防疫规定且未缴纳罚款者 资产将被剥夺或扣押](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [有声|美国联邦上诉法院冻结拜登政府的企业疫苗强制令](/content/gnews/39/README.md)
+### [喜联储技术优于加密货币领域最大的独角兽](/content/gnews/21/README.md)
+ ` GTV新闻访谈`
+
+### [在毒疫苗下保护自己和身边的人](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [班农战斗室对暂停美国疫苗强制令起到关键作用](/content/gnews/23/README.md)
+ ` GTV新闻访谈`
+
+### [串珠445:国产青蒿素哌喹片副作用多，谨遵医嘱](/content/gnews/24/README.md)
+ ` 郭爆料串珠`
+
+### [西媒头条 — 第104期](/content/gnews/25/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [喜联储私人区块链技术确保高效安全](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [新冠疫苗提高致癌率 未来10年内将杀死数千万人](/content/gnews/27/README.md)
+ ` 日本东京方舟农场`
+
+### [纳瓦罗抨击福奇的疫苗政策是对儿童的变相虐待](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [恒泰地产遭遇多地停工停产](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [DC每日热点1108](/content/gnews/30/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [2021/11/7 喜币是投的铸币权](/content/gnews/31/README.md)
+ ` Itana`
+
+### [喜联储可助台湾加入联合国](/content/gnews/32/README.md)
+ ` GTV新闻访谈`
+
+### [美联邦法院判定强制接种政策“违宪”](/content/gnews/33/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [日本要闻汇编 11月8日](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|众议院通过1万亿美元的基础设施计划](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [澳洲启动Covid-19疫苗加强针运动，不明确是否还有第四针](/content/gnews/40/README.md)
- ` 走进澳洲`
+### [六中全会将决定习向毛泽东式的权力巅峰挑战](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [班农专访7: 中共垮台后，志愿去中国帮助重建](/content/gnews/37/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声|羽毛球选手朱俊豪、张滨榕替中共背锅，被禁赛两年](/content/gnews/38/README.md)
+ ` MOSREC`
+
+### [有声|台湾一男子接种两针CCP病毒疫苗后死亡](/content/gnews/39/README.md)
+ ` MOSREC`
+
+### [有声|美国联邦上诉法院冻结拜登政府的企业疫苗强制令](/content/gnews/40/README.md)
+ ` MOSREC`
 
 ### [有钱人的隐私风险](/content/gnews/41/README.md)
  ` 骄子`
