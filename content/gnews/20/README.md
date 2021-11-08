@@ -2,56 +2,53 @@
 ---
 
 
-## 澳大利亚启动COVID-19加强型疫苗接种计划，优先考虑养老院老人和残疾人
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1647938/)
+## Covid-19疫苗相隔一周杀了我的兄妹：这完全不该发生
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1647990/)
 
-**翻译：小鱼儿
-编辑：Staryanyan**
+编译： Jenny Ball
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_8782-scaled.jpg)图片来源：ITV
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-126.png) 图片来源： washingtonpost.com
 
+当我哥哥和姐姐所在的医院来电话时，我就说：“是Covid。”这是一个确信，而不是一个问题。我知道！尽管我们乞求和劝说他们不要打疫苗，他们还是接种了疫苗。
 
-随着澳大利亚政府的COVID-19强化接种计划的启动，那些六个月前卷起袖子接受了两剂初级疫苗接种的人现在将接受第三次强化疫苗的接种。
+我的悲伤立即涌上来，无可否认，愤怒是我压倒一切的情绪。尽管我爱他们，但对他们给自己造成的痛苦、给家人和许多朋友造成的痛苦，以及他们对医疗人员造成的创伤，让原本就不堪重负的医疗系统造成的负担。
 
-澳大利亚政府的COVID-19加强针计划于周一正式启动。
+接下来的几天就像过山车一样，在瘫痪般抑郁症和惊恐发作之间摇摆不定。我的心跳加速；我无法呼吸。我不知道情绪会导致这样的身体疼痛：我的头悸动，我的心痛，我的胃灼热，我的四肢发麻。但是当他们离开时，我不会允许自己坐在他们旁边或唱歌给他们听。
 
-所有居住在澳大利亚的18岁及以上的人，如果在至少六个月前接受了两剂COVID-19疫苗接种，现在将有资格接受第三次加强疫苗注射。
+医院只能抽出时间向一个人提供最新信息，因此我们等待报告，然后再将其传递给其他人。我的手机成了我的生命线，就像氧气面罩是他们的生命线一样。我一直把手机拿在手里，这样我就能听到和发自内心地感觉到所有的短信和电话。我不再使用我的电动牙刷，因为两分钟时间太长了，无法放下电话。
 
-卫生部长格雷格-亨特在一份声明中说，养老院的老人和残疾人将是加强型疫苗接种计划的最初重点。
+我不再看报纸了，因为我再也无法忍受坏消息了。我不知道那是什么日子。我在谷歌上搜索了有关Covid-19 的所有信息，以了解医生和护士出于善意而未说的内容。我在“收藏夹”中为殡仪馆、报纸讣告页面和遗嘱认证清单添加了书签。当提供食物时，我很惊讶我能忘了饿。
 
-他在周一说：”强化疫苗推广计划将最先针对老人和残疾人，因为这些群体中的绝大多数人在6个月或更久之前就已经接种了第二针，因此他们具备接受第三针强化疫苗注射的条件。
+三个时区的通信意味着每天开始得很早，有时在凌晨 3 点我渴望晚上，没有更多的电话或短信，但又害怕空虚，因为除了自怜和痛苦之外我无能为力。
 
-澳大利亚免疫技术咨询小组（ATAGI）已推荐辉瑞公司制作的疫苗作为加强针。
+我们等待不可避免的。我们祈祷，知道不会有奇迹，还是希望奇迹出现。
 
-接受过两次阿斯利康或Moderna疫苗注射的澳大利亚人仍有资格接受辉瑞公司的加强针注射。
+我哥哥多次撕下他的口罩，乞求回家。医生建议镇静，并最终给他插管。第一次打电话后的一周内，我哥哥去世了。
 
-ATAGI目前不建议免疫力严重低下的居民接种第三针以完成其主要的疫苗接种过程，而是建议他们进行加强针注射。
+哥哥是单亲家长，从2岁开始抚养女儿。他是个爱社交的橄榄球运动员，举止优雅又俏皮。他是每个人的朋友，他的问候总是能够温暖他人的心灵。
 
-亨特先生赞扬了COVID-19疫苗在确保居民获得病毒保护方面的重要性。
+我们开始为他最后的安息做准备，同时立即转移到我姐姐即将去世的地方。我麻木了。 一整天我在电话里重复了很多次信息，我忘记了对谁说的话，声音也变得嘶哑。
 
-今天是光明正大地谈论澳大利亚的加强剂量计划的正式开始。
+我担心我会忘记了一个重要的细节，或将某人从电话列表中删除了。我叫错了人的名字。我对几乎不认识的人说“我爱你”，我是认真的，因为他们爱我的兄弟姐妹。
 
-澳大利亚是世界上最早开始强化计划的国家之一，所有第一次接种超过六个月的人都可以接种。
+一天早上我醒来，有那么一瞬间，我不记得我哥哥走了，也不记得我姐姐一定会随后而去。 然后，我想起并知道太阳照样升起。
 
-– Greg Hunt（@GregHuntMP） 2021年11月7日说：”在加强剂方面，人们必须知道，两剂COVID-19疫苗可以提供非常好的保护，特别是针对严重的疾病。
+姐姐多次摘下口罩，乞求回家。医生建议临终关怀。她在她哥哥一周后去世。
 
-“在第二剂后的6个月或更长时间内，加强剂将确保第一剂的保护作用更加强大和持久，应该有助于防止病毒的传播。”
+姐姐是我的英雄。她是一名退伍军人，曾在越南担任了一年的陆军护士。她曾是一名出色的护士，后来成为一名企业家。她的丈夫几年前去世了，她没有孩子，但她的家和心都献给了她众多的朋友。
 
-虽然该计划于周一才正式开始，但截至周六，已经有超过17.3万个加强剂被实施。
+我的兄弟姐妹不再需要口罩。他们已经彻底回家了。我的兄姐过着充实的生活，但我知道，如果他们没有接种疫苗，他们本可以和我们在一起更长时间。我的心双重破碎。 我们失去了我哥哥的爽朗笑声、我姐姐的机智和他们慈爱的手臂。
 
-社区药房也将能够从周一开始实施辉瑞公司的疫苗注射。
+**评论：这一切都不该发生，但是怎么就发生了？中共与邪恶势力是罪魁祸首，但是，主流媒体对真相的掩盖和打压，罪过有过之而不及！不仅是有防火墙的中国人无法看到真相，在言论自由的西方和美国，人们经历着同样的言论管控和打压。所以，原本根本不可能发生的疫苗灾难，就实实在在的发生了！心情就像自己失去至亲一样难受！**
 
-**参考新闻：**[https://www.skynews.com.au/australia-news/coronavirus/australias-covid19-booster-vaccination-program-launches-with-residential-aged-care-and-disability-facilities-given-priority/news-story/6e3dbf2b0702c7e2bdf701287ff6683b](https://www.skynews.com.au/australia-news/coronavirus/australias-covid19-booster-vaccination-program-launches-with-residential-aged-care-and-disability-facilities-given-priority/news-story/6e3dbf2b0702c7e2bdf701287ff6683b)
+**新闻来源**：washingtonpost.com] [Opinion: Covid-19 killed my brother and sister a week apart. It didn’t have to happen.](https://www.washingtonpost.com/opinions/2021/11/07/covid-19-killed-my-brother-sister-week-apart-it-didnt-have-happen/?utm_campaign=wp_post_most&amp;utm_medium=email&amp;utm_source=newsletter&amp;wpisrc=nl_most&amp;carta-url=https%3A%2F%2Fs2.washingtonpost.com%2Fcar-ln-tr%2F35389df%2F618802649d2fda9d413b0ae0%2F5e2dde419bbc0f6326309bfd%2F17%2F70%2F618802649d2fda9d413b0ae0)
 
-发布：Janek
+* * *
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*审核：文乐
+校对: 阿伯塔
+发稿: Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

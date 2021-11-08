@@ -2,36 +2,33 @@
 ---
 
 
-## 哥斯达黎加宣布强制为儿童接种新冠疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1647467/)
+## 拜登与哈里斯的支持率一个比一个冷
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1647657/)
 
-作者：英国喜庄园 – I770775
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月6日，哥斯达黎加卫生部宣布，未成年人必须接种新冠疫苗，令该国成为世界上首个强制儿童接种新冠疫苗的国家。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture5-1.jpg)
-哥斯达黎加卫生部官员表示，新冠疫苗将被列入儿童基本疫苗接种清单。即从2022年3月开始，全国所有12岁以下的儿童必须接种新冠疫苗。
+撰稿：Grace
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-7.png)
+图片来源：re-pre
 
-有消息显示，哥斯达黎加政府早在10月底就与辉瑞公司签署了一项协议，规定该国政府将从辉瑞公司采购350万剂新冠疫苗，其中150万剂将用于5-11岁的儿童，其余的将向防疫人员、老年人口等提供加强针。
+据美国《每日邮报》11月7日报道，乔.拜登的支持率跌至了新低，而他的副总统的支持率却是比他的更糟。
 
-据悉该国政府自2020年12月底启动新冠疫苗接种工作以来，使用的一直是辉瑞疫苗。各国政府强行推行疫苗，必将带来无法挽回的疫苗灾难。
+现在距2022年美国的中期选举还有一年的时间，可是乔.拜登的支持率却是已经降到了一个可怕的新低点，这让共和党人在国会的选票上，已经占据了明显的领先优势。
 
-参考链接：
-1. [哥斯达黎加宣布强制为儿童接种新冠疫苗](https://news.sina.com.cn/w/2021-11-06/doc-iktzscyy4016933.shtml)
-2. [哥斯达黎加宣布强制为儿童接种新冠疫苗](https://bowenpress.com/news/bowen_329158.html)
+据报道，在11月3号至11月5号进行的萨福克大学民意调查（Suffolk University Poll）发现，拜登在独立选民中的支持率下降到了38%的新低。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+报道称，自由主义者曾经将哈里斯视为一个独特的冠军，但是，最近他们对哈里斯感到很失望。他们认为2022 年 11 月 8 日的选举，将决定民主党能否对国会有控制权，也决定民主党对拜登后两年的任期的影响的大小。
 
-总编：飞虹
-编辑：文特
-校对/发稿：Hetangyuese
+可是，现在拜登的支持率却是这么地低下，这让这些自由主义者对民主党在明年的选举不太看好。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+以下是来自《每日邮报》的报道的部分调查结果：
+
+46%的受访者，包括16%的曾经投票给拜登的人表示，拜登作为总统，所做的工作比他们预期的要差。
+
+近三分之二的美国人（64%）表示，他们不希望拜登在2024年竞选第二个任期。这其中包括28%的民主党人。
+
+而拜登的副总统卡马拉.哈里斯的支持率是28%–比拜登还要差。民调显示，51%的人不赞成她所做的工作。
+
+**新闻来源：** [Gloomy landscape for Democrats in midterms as Biden’s approval drops to 38% in USA TODAY/Suffolk poll](https://www.usatoday.com/story/news/politics/2021/11/07/biden-approval-falls-38-midterms-loom-usa-today-suffolk-poll/6320098001/?utm_campaign=snd-autopilot)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

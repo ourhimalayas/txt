@@ -2,39 +2,97 @@
 ---
 
 
-## 美国联邦上诉法院冻结拜登政府的企业疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1646716/)
+## 墙内如何用身份证一次性过喜币KYC
+` 加拿大扬帆农场多伦多Gnews组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1647039/)
 
-作者：纽约香草山农场 – 蓝天大海
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月6日，美国联邦第五巡回上诉法院发布命令称，暂时冻结拜登政府发布的企业新冠疫苗强制令。该强制令要求，拥有超过100名员工的美国公司，其所有员工必须接种新冠疫苗或每周接受新冠病毒测试。
+加拿大扬帆农场 – Guum
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GUUM.jpg)
+本文为用墙内身份证一次性通过喜币KYC的步骤及答案参照(笔试部分) —— 无需2次资料提交。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-5.jpeg)
+法定中文名字: 黄咬金
 
-巡回法院给出的冻结理由是，该强制令存在“严重的法律和宪法”问题，同时，法院要求拜登政府必须在11月8日下午5点前回应法院对新冠疫苗强制令提出的质疑。
+出生日期: 17/07/1977
 
-日前，德克萨斯州总检察长肯·帕克斯顿曾就新冠疫苗强制令起诉了拜登政府。检方认为，强制员工接种新冠疫苗或每周接受病毒检测的命令是“滥用权利”且“完全违宪”，为此，检方要求法院下令取消该强制令。
+国籍/公民身份: 中国居民
 
-在赢得初步胜利后，帕克斯顿总检察长表示，关于新冠疫苗的斗争尚未结束，他将继续反对和抵制联邦政府的一切越权和违宪行为。
+居住国家: 中国
 
-参考链接：
-1）[https://gettr.com/post/pg8ksk6ac7](https://gettr.com/post/pg8ksk6ac7)
-2）[https://gettr.com/post/pg9n1i0b88](https://gettr.com/post/pg9n1i0b88)
-3）[Federal Appeals Court Blocks Biden’s ‘Big-Company’ Vaxx-Mandate](https://www.zerohedge.com/political/federal-appeals-court-blocks-bidens-big-company-vaxx-mandate)
+地址: 贵州省贵阳市XX镇XX街7号
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+城市: 贵阳
 
-总编：Irene木木
-编辑：文特
-校正/发稿：谐趣园
+邮政编码: 550003
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**点击继续——**
+
+个人——
+你最喜欢的度假地点是哪里: 希腊
+添加更多——
+你最喜欢的电影是什么: 白老虎
+你的第一份工作是什么: 动画师
+
+**点击继续—**—
+
+电子邮件: [\[email protected\]](/cdn-cgi/l/email-protection)
+密码: Huang550003,Yaojin (必须含有大写,数字,特殊符号)
+确认密码: Huang550003,Yaojin
+打勾打勾打勾打勾
+点击创建帐户——
+
+**15分钟内尽快去邮箱查看收到的邮件,点击”这里”来激活账户——**
+
+电子邮件: [\[email protected\]](/cdn-cgi/l/email-protection)
+密码: Huang550003,Yaojin
+打勾打勾
+——点击登录
+——点击电话号码
+手机号码: +44 7777137577
+——点击发送代码
+短信验证码: XXXXXX(6位数)
+——点击完成验证
+
+出生地: 贵州省贵阳市
+(点击右下方保存并稍后继续,以下各项完成后都点保存并稍后继续)
+国籍/公民身份: 中国
+就业状况: 自雇
+职业: 其他——媒体，艺术与设计——自由3D动画师
+营业地点——除了您已办理税务登记的国家以外，请问您有沒有在其他国家 从事商业活动: 没有
+税务区——请问您个人或公司业务是否位于税收优惠区内？（例如自由经 济区和离岸管辖区）: 否
+年度营业额 (以现金结算) ——请问您个人及公司业务的年度收入中，约有多少个百分比以现 金收取: 0-10%
+年度营业额 (以加密货币结算) ——请问您个人及公司业务的年度收入中，约有多少个百分比以加 密货币收取: 0-10%收入来源——请告诉我们您的收入或资金来源。可选多于一项: 储蓄，薪金/业务收入
+财富来源——请告诉我们您的财富来源。可选多于一项: 就业收入，商业盈利
+服务需求——请选择您计划使用的服务。可选多于一项: 加密货币交易，长期投资，参与首次交易所发行，加密货币付款
+存款——请问您预计每年存入多少金额（美元及加密货币的总和）？（ 美元计）: &lt; 10,000 (核算好自己每年能汇多少就选多少)
+资金来源——请告诉我们您的资金将从哪些国家存入和/或转入: 新加坡, 台湾
+经验水平——请告诉我们您的加密货币交易经验水平: 初学者
+交易经验年数——请问您有多少年的加密货币交易经验: &lt;1年
+政治敏感人物——请问您、您的直系亲属或密切伙伴是否受到委托，或曾经受到委托，担任任何国家或国际机构的重要公共职务？这可以是在 国内或海外的政府机构、政府职位、监管职位或高级军事职位: 否
+
+点击进行身份验证——
+点击现在开始——
+点击开始——
+选中国——
+选身份证——
+点选更喜欢使用手机吗——
+(将链接发送至电子邮箱)输入您的电子邮箱地址: [\[email protected\]](/cdn-cgi/l/email-protection)
+点击发送——
+打开邮箱点击收到的邮件中的链接会跳转进行视频验证——人以及证件
+
+再次登录——
+电子邮件: [\[email protected\]](/cdn-cgi/l/email-protection)
+密码: Huang550003,Yaojin
+打勾打勾
+点击登录——
+验证状态显示: 待批准
+耐心等待……
+刷新或重登——显示: 已批准
+
+[参考链接](https://www.youtube.com/watch?v=RddydpkyFhE)
+
+* * *
+
+编辑/发稿：云起时
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
