@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/8/2021 1:04 PM (UTC)`
+
+泽连科医生：疾控中心的中共肺炎治疗方案告诉医生，在病人发展成肺部并发症之前不要对其进行治疗。这与数十项研究的观察结果所表明的早期治疗能降低85%的住院和死亡率不符。所以是政府想让人们去死。<br/><br/>Dr. Zelenko: CDC COVID-19 protocols tells doctors not to treat patients until they develop lung complications which is inconsistent with the observations of dozens of studies that show an 85% reduction in hospitalization and death if you treat people early. So the government wants people to die.
+![img](https://media.gettr.com/group14/getter/2021/11/08/13/04/448d13f9-5bb3-a174-c758-292df06d7359/out.jpg)
+
+---
+
+`@miles 11/8/2021 12:59 PM (UTC)`
+
+泽连科医生：中共病毒疫苗的推出预示着一场精心策划的大规模种族灭绝<br/><br/>Dr. Zelenko: The Rollout of COVID-19 Vaccines Prefaces a Plotted Mass Genocide<br/>
+![img](https://media.gettr.com/group4/getter/2021/11/08/12/59/55ffb6e7-0a79-ec08-da03-9dc2a273a91d/out.jpg)
+
+---
+
 `@miles 11/8/2021 12:48 PM (UTC)`
 
 泽连科医生：中共病毒疫苗会导致死亡和不育，而它所包含的追踪技术将对幸存者实施全球性奴役<br/><br/>Dr. Zelenko: CCP Virus Vaccine Causes Death and Infertility, and the Tracking Technology It Contains Will Impose Global Slavery on Survivors 
@@ -283,20 +297,6 @@ Dr. David Wiseman: FDA打破了一个又一个规则，这绝对太离谱了。�
 
 11月4号，未来的37天内．会是爆料革命．政治，经济．革命队伍．一个新的关键增长期！我们已经做到了．让新中国人在每天早上，从一个新的．真的．快乐的，美好的梦中醒来来！从健康的．充满激情的，愉悦的……希望中开始新的一天！共产党你👉完了……感谢上天万佛万神对新中国联邦人的眷顾和恩赐。🙏🙏🙏🙏🙏🙏🙏🙏🙏❤️❤️❤️
 ![img](https://media.gettr.com/group45/getter/2021/11/04/10/48/22513e95-f364-58a2-d3d7-46769bf6a847/37fad30307a16074ed505c2813d0cb33.jpg)
-
----
-
-`@miles 11/4/2021 8:13 AM (UTC)`
-
-11/1/2021 【HCoin to The Moon庆典】<br/>喜交所上市前采访各职能团队，做好上市最后的准备<br/><br/>11/1/2021 【HCoin To the Moon Celebration】 <br/>Interviewing all functional teams of Himalaya Exchange just prior to launch， getting everything ready to go
-![img](https://media.gettr.com/group22/getter/2021/11/04/08/13/d36d31f0-0262-7bf3-93f6-bf4c3a312e74/out.jpg)
-
----
-
-`@miles 11/4/2021 5:06 AM (UTC)`
-
-11/3/2021 Miles Guo: The truth about the CCP virus and its vaccines are the biggest bullets of the New Federal State of China, followed by the Himalaya Reserve and GETTR; Zhang Gaoli is obscene and incompetent and was the first to say that Xi would step down after his first term; If the CCP is not destroyed, everyone’s children could be wrecked by them<br/><br/>11/3/2021 文贵直播：疫苗和病毒的真相是新中国联邦最大的子弹，喜联储和盖特次之；淫荡、无能的张高丽最早说习近平当完一届得下台；共产党不灭，每个人的孩子都可能被他们糟蹋！<br/>
-![img](https://media.gettr.com/group22/getter/2021/11/04/05/06/9f2484a0-5038-07ea-f44d-5f984c743b9c/out.jpg)
 
 ---
 

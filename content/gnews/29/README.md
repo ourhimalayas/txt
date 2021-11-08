@@ -2,26 +2,26 @@
 ---
 
 
-## 习近平走在毛泽东的道路上
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1647940/)
+## 中共欲饮鸩续命，再次推出城市更新
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1648014/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+#### 撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/11/wre.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2019%252F08%252F08%252F7455d45df2ab4716b51d9b81265f9760.jpeg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FEM24HRB605359TSB.html&amp;tbnid=lFOLpchoaxK9jM&amp;vet=12ahUKEwib7_iu54f0AhUBUvUHHXqcDDcQMygGegUIARClAQ..i&amp;docid=2nbCTE-LxVaT5M&amp;w=650&amp;h=399&amp;q=%E5%9F%8E%E5%B8%82%E6%9B%B4%E6%96%B0&amp;ved=2ahUKEwib7_iu54f0AhUBUvUHHXqcDDcQMygGegUIARClAQ)
+中共国住房和城乡建设部于11月4日发布《关于开展第一批城市更新试点工作的通知》（下称《通知》），决定在北京、南京、苏州、成都、重庆、沈阳、宁波、厦门、西安、长沙等21个重点城市（区）开展第一批城市更新试点工作。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/liebt-den-pompoesen-auftritt.jpg)
+通知最核心的内容有三，1、**政策针对区域核心城市**；2、**加大各级财政资金投入，加强各类金融机构信贷支持，完善社会资本参与机制**；3、**创新土地**、**不动产、产业、财税、金融等相关配套政策**。
 
+上次城市更新，早在2014年至2018年间就在三四线城市普遍施行，当时名为“货币化棚改”，保守估计总投入约10万亿元。实际是对三四线城市的定向货币宽松，效果是诱使三四线城市涨价去库存，消化了超10亿平方米商品房库存，竟将三四线城市处于崩溃边缘的房地产强行激活，硬性续命至今。
 
-图片来源： FAZ
+故伎重演，中共再次祭出定向货币宽松，目的是保核心城市房地产，为自身续命。当年房地产总市值约200万亿，现近4至5倍市值，托市代价是中共不能承受之重。水漫金山，通货膨胀将直线飙升，民众将以购买力疯狂贬值为代价，成为中共续命的牺牲品。在与世界脱钩、供应链断裂、疫苗灾难、通货膨胀、房地产起爆的情况下，中共祭出定向水龙头就能续命？做梦。
 
-中国共产党中央委员会本周一开会。国家和党的领导人习近平可能会借此机会让他在历史书中的个人角色永垂不朽。
+信息来源：
 
-就连中华人民共和国的缔造者毛泽东也认为“古为今用”是必要的。 1945年，他通过了一项“关于我们党历史上的某些问题”的决议，其中一个词出现的频率特别高：错误。 这意味着他的党内反对者的错误。关于毛泽东本人，这份长达 50 多页的文件称，他的路线一直“完全正确”。
+[住房和城乡建设部办公厅关于开展第一批城市更新试点工作的通知](http://www.gov.cn/zhengce/zhengceku/2021-11/06/content_5649443.htm)
 
-本周，中国国家元首和党的领导人习近平希望延续他对党的历史的看法，将其视为一项共同决定。这是中国共产党一百年前成立以来的第三次这样的决议。中央委员会本周一在北京开会。它包括该国近 380 位最有权势和最有影响力的人。 部长、军事领导人、省长、各省党的领导人、党的主要机关主席。他们都要见证，习近平的统治标志着一个自己的时代，即他在 2017 年宣布的“新时代”。这与其说是在中国历史书中值得一提的地方，不如说是为习近平在明年秋天获得第三个任期的理由，尽管这违反了党的不成文法律。
-
-原文链接：[新闻来源：德国法兰克福报网页版](https://www.faz.net/aktuell/politik/ausland/warum-xi-jinping-in-der-geschichtspolitik-auf-maos-pfaden-wandelt-17622769.html)
-
-责任编辑、发布： Shuizhuyu
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
