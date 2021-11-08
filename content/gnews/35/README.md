@@ -2,32 +2,35 @@
 ---
 
 
-## 澳洲违反防疫规定且未缴纳罚款者 资产将被剥夺或扣押
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648598/)
+## 2021/11/07文贵先生盖特精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1648683/)
 
-作者：美东香草山 – 新世界的一员
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月6日，媒体报道，在澳大利亚第二大州昆士兰州，居民若违反政府苛刻的防疫规定，又不能及时缴纳相应的罚款，其存在银行的钱、房子或其他资产将面临被政府剥夺的风险。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1107010.png)[盖特直播链接](https://gettr.com/post/pgc3455291)
+11月7号对我们真的特别重要。共产党的十九届六中全会马上要开了。看看现在国内和香港的经济，病毒和疫苗灾难的实际发展情况走到哪一步了？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-5.jpeg)
+我们每一天的进步和战友们的日益成熟都是火箭般的，不能神话自己，但是需要看到我们爆料革命新中国联邦大直播的实际影响力。很多国内的战友们向我发来感谢和感动的信息，因为今天的大直播改变了很多人的想法。
 
-自今年9月，昆州卫生厅要求昆州罚款执行登记处追查违反防疫规定的未付罚款。最新数据显示，有价值约一百万澳元的罚款尚未缴纳。当地媒体称，对这些人的执法措施可能包括扣押银行账户或工资、登记财产抵押或吊销驾照。另有媒体报道，预计这些极端措施也将在澳州其他地区实施，这可能给各州政府带来近一亿澳元的总收入。
+大家一定要对喜币有更深地了解，还有对我们未来的新中国联邦的国防和全球安全系统等等的一切，咱们拭目以待。自从喜联储上市的那一刻起，全球战友们的人身安全、财富安全等安全问题就摆在了我们新中国联邦的面前。新中国联邦在全世界行动力的保证，国内战友通讯安全的保证，我们会尽快完成安全的通讯系统。让各国官方更快的承认新中国联邦，形成利益共同体，共同分享财富，共同创造财富，更重要的是让世界上更多真正有信仰的人和我们站在一起！
 
-参考链接：[https://gettr.com/post/pgaqowf379](https://gettr.com/post/pgaqowf379)
+我现在要去休息一下，明早1:40要开亚洲会议，讨论共党“两会”的重点，会发生很多意想不到的事情。所有不信爆料革命的和不敢、不能跟随爆料革命的人，都会后悔的，未来几天你们会明白发生了哪些事情……记住今天，11月7日！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+***听写**：阿甘*
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：谐趣园
+***校对: **小雨*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

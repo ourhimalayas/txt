@@ -2,38 +2,41 @@
 ---
 
 
-## 日本要闻汇编 11月8日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1648426/)
+## 喜联储技术优于加密货币领域最大的独角兽
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648587/)
 
-#### 素材：东京樱花团｜GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-1-5.png)[*图片来源*](https://tnimage.s3.hicloud.net.tw/photos/2021/11/08/1636353347-6188c54356dad.jpeg)
-1、[**新冠对策小组会就紧急事态宣言制定新指标**](https://china.kyodonews.net/news/2021/11/5250218e932d.html)
+作者：秘密翻译组 – 原创组
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+Kraken是一家位于美国加州的加密货币交易所和银行， 成立于2011年。它拥有国家银行执照， 是加密货币领域最大的独角兽之一。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-21.jpg)
+kraken公司产品包括加密货币交易所，场外交易柜台和期货交易平台。Kraken交易所提供加密货币和法定货币之间的交易， 并向彭博终端提供价格信息。在全球加密货币交易量排名第六。截止2021年，Kraken已经对美国48个州和176个国家的居民开放， 并提供72种可供交易的加密货币。
+2021年初，Kraken 已超过200亿美元的估值。其直接竞争对手Coinbase的估值预计为1000亿美元。郭先生在直播中提到，这两个公司使用的公共区块链技术，在技术层面远不及喜联储的私人区块链。虽然Kraken 在短时间内做到世界领先，但新中国联邦的金融系统将是世界级的金融航空母舰。
 
-日本政府新冠病毒感染症对策小组会8日召开会议，制定了评估新冠疫情的新指标。主要的变更点是相比新增感染人数，更重视医疗资源的告急程度，把原先的4个阶段分类改为5级。为避免出现医疗告急，要求利用病床数预测工具等，在较早阶段就采取紧急事态宣言等强力对策。
+参考链接：
 
-2、[**美国商务部长将首次访日 磋商钢铝关税**](https://china.kyodonews.net/news/2021/11/9697c14ceb48--.html)
+[11/7/2021文贵爆料: Kraken拥有国家银行执照，是加密货币领域最大的独角兽之一](https://gnews.org/zh-hans/1646976/)
 
-共同社华盛顿8日消息，美国商务部7日宣布，商务部长雷蒙多15日将到访东京，首次访问日本。美国贸易代表办公室代表凯瑟琳･戴（戴琦）也将在同一天访日。预计双方将磋商美国对从日本进口的钢铁和铝加征的关税等问题，还将商讨为抗衡中国而加强合作等。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-3、[**官房副长官表示关注中国六中全会动向**](https://china.kyodonews.net/news/2021/11/79850d473714.html)
+总编/编辑：文真
+校对/发稿：Fei797
 
-日本官房副长官矶崎仁彦8日在记者会上，就中国共产党第十九届中央委员会第六次全体会议（六中全会）表示：“正关注中国内政上的动向。”对于今后的日中关系，他指出“构筑有建设性的稳定关系对两国、地区和国际社会而言很重要”。
+**更多资讯，更多关注**
 
-4、[**日本近1年零3个月来首次新冠死亡零新增**](https://china.kyodonews.net/news/2021/11/9a9a3e31d1bd-13.html)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-日本国内7日的新冠感染症新增死亡人数为零，自去年8月2日以来时隔约1年零3个月首次零新增。原因可能是疫苗接种取得进展和治疗药物普及。当天新确诊162人感染，具体是大阪39人、东京21人、爱知16人、北海道和冈山各10人等。据厚生劳动省透露，重症患者为100人，与前一日相同。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-5、[**安倍将出任自民党细田派会长**](https://china.kyodonews.net/news/2021/11/681df4f460da.html)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-共同社8日消息，日本前首相安倍晋三将重返自民党最大派系细田派并出任会长。此事预计将在11日的细田派总会上正式决定。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-6、[**厚劳省调查53%的跳槽者对新工作满意**](https://china.kyodonews.net/news/2021/11/6be2c40abd66-53.html)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-日本厚生劳动省8日公布的2020年“跳槽者实态调查”显示，在2019年10月1日～2020年9月30日跳槽至新单位的人中，认为跳槽后的工作“满意”和“基本满意”的比例合计为53.4%。回答“不满意”和“有些不满意”的合计为11.4%。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
