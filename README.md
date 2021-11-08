@@ -123,13 +123,13 @@
 ### [中共禁止数字货币交易的根本原因](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [加拿大政要被迫为“疫苗致死”言论道歉](/content/gnews/37/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [澳洲违反防疫规定且未缴纳罚款者 资产将被剥夺或扣押](/content/gnews/38/README.md)
+### [澳洲违反防疫规定且未缴纳罚款者 资产将被剥夺或扣押](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [喜联储技术优于加密货币领域最大的独角兽](/content/gnews/39/README.md)
+### [喜联储技术优于加密货币领域最大的独角兽](/content/gnews/38/README.md)
+ ` GTV新闻访谈`
+
+### [班农战斗室对暂停美国疫苗强制令起到关键作用](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
 ### [喜联储私人区块链技术确保高效安全](/content/gnews/40/README.md)
@@ -168,27 +168,27 @@
 ### [天生灭共](/content/gnews/51/README.md)
  ` 骄子`
 
-### [新冠疫情挤占医疗资源，维多利亚州救护车服务橙色预警](/content/gnews/52/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共欲饮鸩续命，再次推出城市更新](/content/gnews/53/README.md)
+### [中共欲饮鸩续命，再次推出城市更新](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [纳瓦罗呼吁与中共全面脱钩，美国应让中共担责](/content/gnews/54/README.md)
+### [纳瓦罗呼吁与中共全面脱钩，美国应让中共担责](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [纽约当选市长亚当斯称将用比特币领取前三份工资](/content/gnews/55/README.md)
+### [纽约当选市长亚当斯称将用比特币领取前三份工资](/content/gnews/54/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [疫苗灾情｜法国 34 岁世界纪录保持者接种疫苗后患上心脏病 职业生涯面临终结](/content/gnews/56/README.md)
+### [疫苗灾情｜法国 34 岁世界纪录保持者接种疫苗后患上心脏病 职业生涯面临终结](/content/gnews/55/README.md)
  ` G&#124;News TAIWAN`
 
-### [11/7/2021中日财经爆：新股频频破发，觉醒“韭菜”加速逃离](/content/gnews/57/README.md)
+### [11/7/2021中日财经爆：新股频频破发，觉醒“韭菜”加速逃离](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【 #佳兆业 旗下理财产品未能如期兑付】](/content/gnews/58/README.md)
+### [【 #佳兆业 旗下理财产品未能如期兑付】](/content/gnews/57/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [【美国推出带有 #加密货币 基础设施的法案】📣📣](/content/gnews/59/README.md)
+### [【美国推出带有 #加密货币 基础设施的法案】📣📣](/content/gnews/58/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [医学视角：专业医生聊病毒和疫苗](/content/gnews/59/README.md)
+ ` 疫苗病毒专栏`
 

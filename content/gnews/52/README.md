@@ -2,40 +2,26 @@
 ---
 
 
-## 新冠疫情挤占医疗资源，维多利亚州救护车服务橙色预警
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1648076/)
+## 中共欲饮鸩续命，再次推出城市更新
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1648014/)
 
-**编译整理：月映万川**
-**编辑：文泓**
+#### 撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/11/wre.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2019%252F08%252F08%252F7455d45df2ab4716b51d9b81265f9760.jpeg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FEM24HRB605359TSB.html&amp;tbnid=lFOLpchoaxK9jM&amp;vet=12ahUKEwib7_iu54f0AhUBUvUHHXqcDDcQMygGegUIARClAQ..i&amp;docid=2nbCTE-LxVaT5M&amp;w=650&amp;h=399&amp;q=%E5%9F%8E%E5%B8%82%E6%9B%B4%E6%96%B0&amp;ved=2ahUKEwib7_iu54f0AhUBUvUHHXqcDDcQMygGegUIARClAQ)
+中共国住房和城乡建设部于11月4日发布《关于开展第一批城市更新试点工作的通知》（下称《通知》），决定在北京、南京、苏州、成都、重庆、沈阳、宁波、厦门、西安、长沙等21个重点城市（区）开展第一批城市更新试点工作。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image1-1.jpeg)图片来源：ABCNews
+通知最核心的内容有三，1、**政策针对区域核心城市**；2、**加大各级财政资金投入，加强各类金融机构信贷支持，完善社会资本参与机制**；3、**创新土地**、**不动产、产业、财税、金融等相关配套政策**。
 
+上次城市更新，早在2014年至2018年间就在三四线城市普遍施行，当时名为“货币化棚改”，保守估计总投入约10万亿元。实际是对三四线城市的定向货币宽松，效果是诱使三四线城市涨价去库存，消化了超10亿平方米商品房库存，竟将三四线城市处于崩溃边缘的房地产强行激活，硬性续命至今。
 
-上周六，澳大利亚维多利亚州州长发布预警称，本州的医疗系统已在崩溃边缘。
+故伎重演，中共再次祭出定向货币宽松，目的是保核心城市房地产，为自身续命。当年房地产总市值约200万亿，现近4至5倍市值，托市代价是中共不能承受之重。水漫金山，通货膨胀将直线飙升，民众将以购买力疯狂贬值为代价，成为中共续命的牺牲品。在与世界脱钩、供应链断裂、疫苗灾难、通货膨胀、房地产起爆的情况下，中共祭出定向水龙头就能续命？做梦。
 
-墨尔本的第六次封锁终于结束，正当人们想要恢复疫情前生活状态时，而医护资源已经捉襟见肘。周六晚间，由于巨大的需求量，维州紧急救护服务被迫宣布进入“橙色预警”。
+信息来源：
 
-维州救护车工会秘书长丹尼·赫尔说：“在那晚某个时间，曾经接到过70个呼叫紧急救援的电话，但是却没有任何救护车可以用。”
+[住房和城乡建设部办公厅关于开展第一批城市更新试点工作的通知](http://www.gov.cn/zhengce/zhengceku/2021-11/06/content_5649443.htm)
 
-即使救护车能够把病人送到医院，但是医院也没有床位接收病人入院，这是因为新冠病例加剧挤占了过多的医疗资源。
-
-上周日的新闻发布会上，安德鲁斯州长却把目前的医疗系统崩溃问题归结于未接种疫苗者。
-
-目前维多利亚州，12岁以上人口完全接种率已经达到了84%。
-
-而周日，维多利亚州报告了1173例感染，9人因新冠去世，96人目前在ICU。
-
-原文链接：[Victorian ambulances declare code orange on weekend as health system stretched by COVID cases](https://7news.com.au/lifestyle/health-wellbeing/victorian-ambulances-declare-code-orange-on-weekend-as-health-system-stretched-by-covid-cases-c-4472268)
-
-发布：Janek
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

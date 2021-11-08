@@ -2,12 +2,16 @@
 ---
 
 
-## 【 #佳兆业 旗下理财产品未能如期兑付】
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1646544/)
+## 【美国推出带有 #加密货币 基础设施的法案】📣📣
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1646450/)
 
-[#深圳佳兆业](https://gettr.com/hashtag/%23%E6%B7%B1%E5%9C%B3%E4%BD%B3%E5%85%86%E4%B8%9A) 理财产品的本息合计127.88亿元人民币：由 [#锦恒财富](https://gettr.com/hashtag/%23%E9%94%A6%E6%81%92%E8%B4%A2%E5%AF%8C) 发行、#佳兆业集团 担保的产品出现兑付逾期，佳兆业周四表示，已第一时间与锦恒财富沟通，共同商讨兑付方案。在香港上市的佳兆业股份，市值约为10亿美元，上周被评级机构降级的佳兆业有大约32亿美元的离岸优先票据在未来12个月内到期，下一批4亿美元的到期日在12月7日。该公司在11月11日和11月12日有总额超过5,900万美元的息票支付。
-![img](https://media.gettr.com/group20/getter/2021/11/05/11/25/d305e033-4aba-010c-72cf-f28f9d73f49b/c82735e7d973903af2b09e58b4ef4d68_500x0.jpg)
-参考链接：[https://cn.reuters.com/article/wrapup-…](https://cn.reuters.com/article/wrapup-china-kaisa-liquidity-1104-idCNKBS2HP1BZ?il=0)
+据 CoinDesk 报道，美国众议院以至少 218 票赞成的表决结果投票通过了基础设施法案，其中包含 [#加密货币](https://gettr.com/hashtag/%23%E5%8A%A0%E5%AF%86%E8%B4%A7%E5%B8%81) 纳税申报要求的条款。目前该法案已送交美国总统拜登签字。接下来美国财政部仍需解释其计划并发布指导意见，阐明企业或其他实体如何履行该法案。
+
+[#财经G评](https://gettr.com/hashtag/%23%E8%B4%A2%E7%BB%8FG%E8%AF%84)：
+
+[#比特币](https://gettr.com/hashtag/%23%E6%AF%94%E7%89%B9%E5%B8%81) 引领各行业对区块链的研究，而区块链技术不是去中心化的而是弱中心化，减少中心控制与干预。传统金融模式一直在演变支付技术，却无法改变金融行业的基础建设。传统金融系统早就应该研究区块链并制定一套可应用的制度体系了。
+![img](https://media.gettr.com/group28/getter/2021/11/06/12/11/bae51794-38a6-2256-cd4a-a9a886d6ff69/0e6514d418471cd2ba48bd8b11fc9a1e.jpg)
+参考链接：https://www.coindesk.com/business/2021/11/06/house-sends-infrastructure-bill-with-crypto-tax-provision-to-us-president/
 
 **（文章内容仅代表新西兰-财经G乐部节目观点）**
 
