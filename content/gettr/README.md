@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/8/2021 3:14 AM (UTC)`
+
+11/7/2021 Miles Guo: The smog floating over Beijing certainly contains the corpses of the dead people and babies with birth defects cremated on a daily basis. The disaster caused by the COVID vaccines is bound to happen in the entire humanity; the New Federal State of China is like the only hand leading us from the darkness to the light<br/><br/>11/7/2021 文贵直播：北京上空飘的雾霾其中一定有焚烧每天死的人和畸形婴儿的尸体；全人类必将爆发疫苗大灾难；新中国联邦好比是唯一的一只小手在牵着我们从黑暗走向光明<br/>
+![img](https://media.gettr.com/group15/getter/2021/11/08/03/14/17951574-9f5a-ed3d-2354-09a6d655cf3e/out.jpg)
+
+---
+
 `@miles 11/8/2021 12:48 AM (UTC)`
 
 11月7号：尊敬的战友们好……工作了一整天，吃了好几顿饭非常的兴奋，一切都已经开始！
@@ -290,13 +297,6 @@ Dr. David Wiseman: FDA打破了一个又一个规则，这绝对太离谱了。�
 
 11/3/2021 Miles Guo: The recent incident of Peng Shuai has proven everything I have exposed regarding the CCP’s evil deeds in the past 4 years. The CCP’s old kleptocrats, including Zhang Gaoli, sexually abuse the entire family of the Chinese Lao Baixing, including the girl, her mother, and her grandmother, while the kleptocrats‘ wives would help them guard the door<br/><br/>11/3/2021 文贵直播：最近的彭帅事件证明了文贵4年来关于中共邪恶的爆料；包括张高丽在内的中共老杂毛玩弄老白姓全家，女儿、妈妈和奶奶三代人都不放过，老杂毛的夫人们还帮忙他们把门<br/>
 ![img](https://media.gettr.com/group45/getter/2021/11/03/23/41/a94f5335-249e-cf9f-2b74-6173b02dfc84/out.jpg)
-
----
-
-`@miles 11/3/2021 11:32 PM (UTC)`
-
-11/3/2021 Miles Guo: The Virginia gubernatorial election will change the fate of the world; It’s a big deal that 30 European countries are to decouple with the CCP; If the CCP invaded Taiwan, the US has all sorts of excuses to justify its military operations against the CCP; Over-issuance of currencies has caused inflation worldwide; The stock market is controlled by tech companies<br/><br/>11/3/2021 文贵直播：弗吉尼亚州长选举将改变世界的命运；欧洲30个国家跟中共脱钩是天大的事；若中共攻台，美国有各种理由打中共；世界各地超发货币导致通胀；股市被科技公司所控制<br/>
-![img](https://media.gettr.com/group23/getter/2021/11/03/23/c337a9a2-a3a8-c189-1e5f-e4c06a943101/out.jpg)
 
 ---
 
