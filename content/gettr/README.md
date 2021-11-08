@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/8/2021 4:08 PM (UTC)`
+
+...
+![img](https://media.gettr.com/group23/origin/2021/11/08/16/6b89117c-d645-24ee-f0a1-8cfcde385805/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 11/8/2021 3:41 PM (UTC)`
 
 11月8号：七哥扎真真了……
@@ -290,13 +297,6 @@ Dr. David Wiseman: FDA打破了一个又一个规则，这绝对太离谱了。�
 
 11/1/2021 【HCoin to The Moon庆典】喜交所上市倒计时<br/><br/>11/1/2021 【HCoin To the Moon Celebration】 Countdown to the launch of Himalaya Exchange<br/>
 ![img](https://media.gettr.com/group20/getter/2021/11/04/13/52/9a854503-d8d6-eda2-1d8b-4b15651dae04/out.jpg)
-
----
-
-`@miles 11/4/2021 1:47 PM (UTC)`
-
-11/1/2021 【HCoin to The Moon庆典】喜交所CEO Jesse Brown：喜交所的目标是创建一个系统，让您实现财务自由支配和对自己的财富拥有主权<br/><br/>11/1/2021 【HCoin To the Moon Celebration】 Jesse Brown, CEO of Himalaya Exchange: The aim of the HIMALAYA EXCHANGE is to create a system that enables financial freedom and sovereignty over your own money.<br/>
-![img](https://media.gettr.com/group48/getter/2021/11/04/13/258e0f52-ff6a-b6d8-01c7-c1fc118bc323/out.jpg)
 
 ---
 
