@@ -2,55 +2,25 @@
 ---
 
 
-## 澳大利亚启动COVID-19加强型疫苗接种计划，优先考虑养老院老人和残疾人
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1647938/)
+## 无人机袭击伊拉克总理
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1647952/)
 
-**翻译：小鱼儿
-编辑：Staryanyan**
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_8782-scaled.jpg)图片来源：ITV
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/der-irakische.jpg)
 
 
-随着澳大利亚政府的COVID-19强化接种计划的启动，那些六个月前卷起袖子接受了两剂初级疫苗接种的人现在将接受第三次强化疫苗的接种。
+图片来源： FAZ
 
-澳大利亚政府的COVID-19加强针计划于周一正式启动。
+一架载有炸药的无人机袭击了伊拉克总理穆斯塔法·卡迪米（al-Kadhimi  ）在巴格达防御工事“绿区”的住所。伊拉克军方周日早上宣布，总理安然无恙地逃脱了暗杀企图。两名政府官员向路透社证实，卡迪米的住所至少遭到一次袭击。首相安然无恙。卡迪米在一条推文中写道，他很好。 他敦促所有伊拉克人保持冷静。到目前为止，还没有任何组织声称对这次袭击负责。
 
-所有居住在澳大利亚的18岁及以上的人，如果在至少六个月前接受了两剂COVID-19疫苗接种，现在将有资格接受第三次加强疫苗注射。
+“绿区”的西方外交官说，他们听到了爆炸声和枪声。最近几周，靠近伊朗的全副武装团体的支持者多次在“绿区”附近示威。他们抗议上次议会选举的结果，在选举中他们的议会权力被削弱。
 
-卫生部长格雷格-亨特在一份声明中说，养老院的老人和残疾人将是加强型疫苗接种计划的最初重点。
+选举之后是一场危机，经过长达一个月的权力斗争，前情报局长穆斯塔法·卡迪米于 5 月组建了政府。根据官方数据，什叶派神职人员穆克塔达·萨德尔所在的政党在 10 月的议会选举中以明显优势获胜。然而，伊拉克最有影响力的亲伊朗政客之一哈迪·阿米里并不承认萨德尔的选举胜利。
 
-他在周一说：”强化疫苗推广计划将最先针对老人和残疾人，因为这些群体中的绝大多数人在6个月或更久之前就已经接种了第二针，因此他们具备接受第三针强化疫苗注射的条件。
+原文链接：[新闻来源：德国法兰克福报网页版](https://www.faz.net/aktuell/politik/ausland/drohnenangriff-auf-irakischen-ministerpraesidenten-17622307.html)
 
-澳大利亚免疫技术咨询小组（ATAGI）已推荐辉瑞公司制作的疫苗作为加强针。
-
-接受过两次阿斯利康或Moderna疫苗注射的澳大利亚人仍有资格接受辉瑞公司的加强针注射。
-
-ATAGI目前不建议免疫力严重低下的居民接种第三针以完成其主要的疫苗接种过程，而是建议他们进行加强针注射。
-
-亨特先生赞扬了COVID-19疫苗在确保居民获得病毒保护方面的重要性。
-
-今天是光明正大地谈论澳大利亚的加强剂量计划的正式开始。
-
-澳大利亚是世界上最早开始强化计划的国家之一，所有第一次接种超过六个月的人都可以接种。
-
-– Greg Hunt（@GregHuntMP） 2021年11月7日说：”在加强剂方面，人们必须知道，两剂COVID-19疫苗可以提供非常好的保护，特别是针对严重的疾病。
-
-“在第二剂后的6个月或更长时间内，加强剂将确保第一剂的保护作用更加强大和持久，应该有助于防止病毒的传播。”
-
-虽然该计划于周一才正式开始，但截至周六，已经有超过17.3万个加强剂被实施。
-
-社区药房也将能够从周一开始实施辉瑞公司的疫苗注射。
-
-**参考新闻：**[https://www.skynews.com.au/australia-news/coronavirus/australias-covid19-booster-vaccination-program-launches-with-residential-aged-care-and-disability-facilities-given-priority/news-story/6e3dbf2b0702c7e2bdf701287ff6683b](https://www.skynews.com.au/australia-news/coronavirus/australias-covid19-booster-vaccination-program-launches-with-residential-aged-care-and-disability-facilities-given-priority/news-story/6e3dbf2b0702c7e2bdf701287ff6683b)
-
-发布：Janek
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+责任编辑、发布： Shuizhuyu
 
  
 

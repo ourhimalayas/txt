@@ -2,26 +2,39 @@
 ---
 
 
-## 要把不愿注射新冠疫苗的人关在家里吗？意大利病毒专家意见不一致
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1648061/)
+## 新冠疫情挤占医疗资源，维多利亚州救护车服务橙色预警
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1648076/)
 
-#### 翻译整理： 意大利罗马达芬奇农场            小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Schermata-2021-11-08-alle-11.22.44-1.png)
-图片来源：安莎社
+**编译整理：月映万川**
+**编辑：文泓**
 
-意大利病毒专家正在讨论如果疫情恶化是否要采取奥地利模式，他们意见尚未统一。
-
-**如果因新冠疫情而增加感染和住院人数，只对未接种疫苗的人封城。这是近期的一项可行性政策，并以奥地利模式为借鉴。奥地利模式已被明确地定义为“末世之武器”用来阻止瘟疫，用来说服那些犹豫不决之人打疫苗。**
-
-这一假设使意大利病毒界产生分歧， 有人对此感兴趣，有人认为荒唐，违宪。意大利卫生部副部长斯莱利说“我们有绿色护照，绿色护照就是避免封城……疫苗也是一种诊断手段。”珀莱利亚斯克病毒学家认为“病毒在不打疫苗人群之间的传播高于在打疫苗人群之间的传播。每一次人与人之间的接触都具有危险性，但是与非接种疫苗人之间的接触，会增加感染的传播性。如果采取这类措施，这也是对未接种疫苗者的保护。”巴赛蒂教授也持同样观点“如果接种人数停留在目前的数字而不增加， 短期内达不到90%的接种率，我同意对不打疫苗者采取严厉措施来加快全体免疫。” 而另一位病毒学家克里斯桑迪教授则认为 “这是在即兴发挥， 从传染学角度来看，因为打疫苗的人也传染病毒。一位因为身体原因不能打疫苗，怎么办？宪法对此并没有规定”。司法专家巴尔塔萨雷则引用宪法说“这是不允许的， 这是违宪并带有歧视性的。要么法律强制所有人都打疫苗，要么人们有选择的自由。只针对不打疫苗的人封城完全是违宪的。”
-
-这个世界很多人还生活在谎言之中， 有多少科学家和前线的医生护士勇敢地站出来揭露新冠疫苗真相， 但还是有不少所谓的权威人数为新冠疫苗站台。刚开始进行接种新冠疫苗时强调只要能达到80%的接种率就能达到全体免疫， 现在提高到90%， 不久的将来还会要求100%，还要第四针，第五针……爆料革命传播疫苗真相既是拯救别人，也是拯救自己。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image1-1.jpeg)图片来源：ABCNews
 
 
+上周六，澳大利亚维多利亚州州长发布预警称，本州的医疗系统已在崩溃边缘。
 
-`原文链接：https://www.iltempo.it/attualita/2021/11/03/news/lockdown-non-vaccinati-rissa-virologi-modello-austria-bassetti-pregliasco-sileri-crisanti-covid-green-pass-29307547/`
+墨尔本的第六次封锁终于结束，正当人们想要恢复疫情前生活状态时，而医护资源已经捉襟见肘。周六晚间，由于巨大的需求量，维州紧急救护服务被迫宣布进入“橙色预警”。
 
-责任编辑、发布： Xiao baige
+维州救护车工会秘书长丹尼·赫尔说：“在那晚某个时间，曾经接到过70个呼叫紧急救援的电话，但是却没有任何救护车可以用。”
+
+即使救护车能够把病人送到医院，但是医院也没有床位接收病人入院，这是因为新冠病例加剧挤占了过多的医疗资源。
+
+上周日的新闻发布会上，安德鲁斯州长却把目前的医疗系统崩溃问题归结于未接种疫苗者。
+
+目前维多利亚州，12岁以上人口完全接种率已经达到了84%。
+
+而周日，维多利亚州报告了1173例感染，9人因新冠去世，96人目前在ICU。
+
+原文链接：[Victorian ambulances declare code orange on weekend as health system stretched by COVID cases](https://7news.com.au/lifestyle/health-wellbeing/victorian-ambulances-declare-code-orange-on-weekend-as-health-system-stretched-by-covid-cases-c-4472268)
+
+发布：Janek
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
