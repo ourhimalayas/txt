@@ -2,40 +2,27 @@
 ---
 
 
-## 自由集会在封锁条件下进行，这在北领地尚属首次
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1647784/)
+## 11/7/2021中日财经爆：新股频频破发，觉醒“韭菜”加速逃离
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1647807/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image1.jpeg)**图片来源：** [https://afipn.com.au/freedom-rally-goes-ahead-under-lockdown-conditions-for-the-first-time-in-the-nt/](https://afipn.com.au/freedom-rally-goes-ahead-under-lockdown-conditions-for-the-first-time-in-the-nt/)
+#### 整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-52.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fqna.smzdm.com%2F202111%2F04%2F61838f5378872248.jpg_fo742.jpg&amp;imgrefurl=https%3A%2F%2Fpost.smzdm.com%2Fp%2Fa5dwwge8%2F&amp;tbnid=8yBdW5_Bon-SxM&amp;vet=12ahUKEwjev5Csjoj0AhVXBt4KHcg4Ct8QMygBegUIARCoAQ..i&amp;docid=iszfh-w8eXDBBM&amp;w=742&amp;h=314&amp;q=%E6%96%B0%E8%82%A1%E9%A2%91%E9%A2%91%E7%A0%B4%E5%8F%91&amp;ved=2ahUKEwjev5Csjoj0AhVXBt4KHcg4Ct8QMygBegUIARCoAQ)
+近期，打新收益率下降已经成为市场共识。10 月下旬以来，截至 11 月 5 日的 12 个交易日里，共有 18 只注册制新股上市，其中就有 9 只新股首日破发，占到半数。
 
-**翻译：小鱼儿
-编辑：李易通**
+从打新收益来看，中签新股也不再是“稳赚不赔”的买卖，过去动辄一签赚 5 万、10 万的”肉签”销声匿迹。高发行价的新股也从香喷喷的“潜力大肉签”变成了破发风险不低的群体。具体来看，发行价高达 110 元的成大生物首日收盘价仅 80 元，若按收盘价卖出中一签亏损 1.5 万元，发行价超过 90 元的中科微至、可孚医疗每签大约亏损 5695 元、2060 元。
 
-11月4日星期四晚上10点左右，人们宣布北领地收到了有史以来第一例COVID-19的社区传播病例。检测结果呈阳性的人在凯瑟琳工作，最近曾去过达尔文。凯瑟琳市宣布实行72小时封锁，而达尔文市则进入72小时封锁状态。对于完全接种疫苗的人来说，只要他们戴上口罩，封锁基本上是照常进行。那些没有完全接种疫苗的人被告知要考虑全面封锁。这意味着每天只能离开家锻炼1小时，或进行必要的活动，如买菜。那些没有完全接种疫苗的人也被告知不能去工作。
+上周四晚间，创业板新股天亿马发布了IPO在创业板上市的网上发行结果公告。公告显示，27.78万新股遭弃购，占总发行数量的比例为 2.36%。值得注意的是，就在前一天，新股强瑞技术也遭遇弃购，弃购占比更高，达到 2.76%，在 A 股新股历史上十分罕见。
 
-11月5日上午，很快就可以看到，因为未接种疫苗的人不能正常工作，整个经济和医疗系统就无法运转。所以到11月5日午餐时间，所有未接种疫苗的从事基础工作的人都被叫去工作–这也包括很多通常不被认为是必要的工作，比如服务员。
+数据显示，部分普通投资者已经选择 “用脚投票”，在中签后选择弃购。就在本周，强瑞技术、天亿马的新股弃购比例分别达到2.76%、2.36%，为 2019 年注册制实施以来唯二新股弃购率超过 1% 的股票。正常情况下，新股的弃购占比在百分之零点几到百分之零点零几之间波动。
 
-在这一天，有确凿的报告显示，一些Woolworths和加油站拒绝未接种疫苗的人进入，尽管它们被认为是一种基本服务。这一天证明，当疫苗授权在11月13日生效时，北部地区的经济将陷入严重困境。
+消息来源:
 
-首席部长迈克尔-冈纳在新闻发布会上提到，如果出现进一步的病例增加，封锁的时间可能会延长。其中一个疫情爆发点是达尔文最大的夜总会，所以可能会出现更多的病例。截至11月6日，又有2人的病毒检测结果呈阳性。
+[破发、弃购…打新市场正在变天！12天9只破发，机构也在陆续退出？未来新股咋操作？](https://news.stcn.com/sd/202111/t20211108_3843122.html)
 
-一个自由集会计划于11月6日下午3点在该市举行，虽然最初因为封锁而无法确定是否进行，但人们决定修改集会计划并继续进行。新的计划是驾驶汽车车队沿着预先指定的路线向城市郊区行驶，然后步行进入。
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
 
-警察在城镇周围设置了路障，因为只允许接种疫苗的人进入，在汽车车队由于警察的封锁而走得最远之后，人们才开始徒步行进。
-
-来自Larrakia民族的部落君主带领着游行队伍，他们面对着警察的封锁。人群试图冲破警察的防线，这导致警察使用胡椒喷雾并逮捕了少数人。大多数人超过了封锁线，继续向城市行进。人们被警告说，领土反应小组已被召来作为后援，他们决定在植物园重新集结。
-
-最后，考虑到公共安全的最佳利益，他们决定不试图突破另一个更有准备的警察封锁，而是和平地散开，并在下周的集会上重新集结，这将比以往更强大。
-
-发布：Janek
-
-**参考新闻：**[https://afipn.com.au/freedom-rally-goes-ahead-under-lockdown-conditions-for-the-first-time-in-the-nt/](https://afipn.com.au/freedom-rally-goes-ahead-under-lockdown-conditions-for-the-first-time-in-the-nt/)
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

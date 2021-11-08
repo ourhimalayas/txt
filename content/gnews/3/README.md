@@ -2,26 +2,34 @@
 ---
 
 
-## 中共欲饮鸩续命，再次推出城市更新
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1648014/)
+## 以太币持续看涨，首次突破4,700美元关口
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1648039/)
 
-#### 撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/11/wre.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2019%252F08%252F08%252F7455d45df2ab4716b51d9b81265f9760.jpeg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FEM24HRB605359TSB.html&amp;tbnid=lFOLpchoaxK9jM&amp;vet=12ahUKEwib7_iu54f0AhUBUvUHHXqcDDcQMygGegUIARClAQ..i&amp;docid=2nbCTE-LxVaT5M&amp;w=650&amp;h=399&amp;q=%E5%9F%8E%E5%B8%82%E6%9B%B4%E6%96%B0&amp;ved=2ahUKEwib7_iu54f0AhUBUvUHHXqcDDcQMygGegUIARClAQ)
-中共国住房和城乡建设部于11月4日发布《关于开展第一批城市更新试点工作的通知》（下称《通知》），决定在北京、南京、苏州、成都、重庆、沈阳、宁波、厦门、西安、长沙等21个重点城市（区）开展第一批城市更新试点工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/nimg.ws_.126.net_.jpg)以太币持续看涨，首次突破4,700美元关口 网络图片
 
-通知最核心的内容有三，1、**政策针对区域核心城市**；2、**加大各级财政资金投入，加强各类金融机构信贷支持，完善社会资本参与机制**；3、**创新土地**、**不动产、产业、财税、金融等相关配套政策**。
+据华尔街日报11月8日报道，全球第二大加密货币—以太币在过去一个月一直上涨，7日首次突破4,700美元关口。
 
-上次城市更新，早在2014年至2018年间就在三四线城市普遍施行，当时名为“货币化棚改”，保守估计总投入约10万亿元。实际是对三四线城市的定向货币宽松，效果是诱使三四线城市涨价去库存，消化了超10亿平方米商品房库存，竟将三四线城市处于崩溃边缘的房地产强行激活，硬性续命至今。
+按市值计算，以太币是世界第二大加密货币，在以太坊区块链上运行。3日创下历史新高，赶上了比特币的涨势。比特币目前约报63,078美元，今年上涨了约117%。以太币则涨了六倍。
 
-故伎重演，中共再次祭出定向货币宽松，目的是保核心城市房地产，为自身续命。当年房地产总市值约200万亿，现近4至5倍市值，托市代价是中共不能承受之重。水漫金山，通货膨胀将直线飙升，民众将以购买力疯狂贬值为代价，成为中共续命的牺牲品。在与世界脱钩、供应链断裂、疫苗灾难、通货膨胀、房地产起爆的情况下，中共祭出定向水龙头就能续命？做梦。
+数字货币是未来的趋势。11月1号新中国联邦的国家货币—HCoin成功上市，开市两小时价格飙升50倍。与黄金挂钩的HCoin喜币拥有其他数字货币无与伦比的保值和升值空间，是中国人财富最安全的保障。
 
-信息来源：
+新闻参考链接：[https://cn.wsj.com/articles/以太币继续其创纪录涨势-首次突破4-700美元关口-11636338361](https://cn.wsj.com/articles/%25E4%25BB%25A5%25E5%25A4%25AA%25E5%25B8%2581%25E7%25BB%25A7%25E7%25BB%25AD%25E5%2585%25B6%25E5%2588%259B%25E7%25BA%25AA%25E5%25BD%2595%25E6%25B6%25A8%25E5%258A%25BF-%25E9%25A6%2596%25E6%25AC%25A1%25E7%25AA%2581%25E7%25A0%25B44-700%25E7%25BE%258E%25E5%2585%2583%25E5%2585%25B3%25E5%258F%25A3-11636338361)
 
-[住房和城乡建设部办公厅关于开展第一批城市更新试点工作的通知](http://www.gov.cn/zhengce/zhengceku/2021-11/06/content_5649443.htm)
+* * *
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

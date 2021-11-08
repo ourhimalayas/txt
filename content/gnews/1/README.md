@@ -2,43 +2,40 @@
 ---
 
 
-## 拥有国家银行执照的Kraken是加密货币领域最大独角兽之一
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1648029/)
+## 新冠疫情挤占医疗资源，维多利亚州救护车服务橙色预警
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1648076/)
 
-**By:秘翻新闻**
+**编译整理：月映万川**
+**编辑：文泓**
 
-***2021-11-08***
-[![](https://assets.gnews.org/wp-content/uploads/2021/11/1108-2.jpg)](https://gtv.org/broadcast/watch/6188e68811d18629680345cf)点击图片观看视频
-**新闻摘要:**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image1-1.jpeg)图片来源：ABCNews
 
-1. 中国疫情多源头难清零 非人道防疫民不聊生
 
-2. 中共国蔬菜副食品价格飙涨 多地人民抱怨
+上周六，澳大利亚维多利亚州州长发布预警称，本州的医疗系统已在崩溃边缘。
 
-3. 董卿丈夫密春雷资本布局再被官媒大幅起底
+墨尔本的第六次封锁终于结束，正当人们想要恢复疫情前生活状态时，而医护资源已经捉襟见肘。周六晚间，由于巨大的需求量，维州紧急救护服务被迫宣布进入“橙色预警”。
 
-4. 海运费持续飙涨 中共外贸雪上加霜
+维州救护车工会秘书长丹尼·赫尔说：“在那晚某个时间，曾经接到过70个呼叫紧急救援的电话，但是却没有任何救护车可以用。”
 
-5.  美巡回法庭叫停拜登政府对大中型企业的疫苗强制令
+即使救护车能够把病人送到医院，但是医院也没有床位接收病人入院，这是因为新冠病例加剧挤占了过多的医疗资源。
 
-6.  美民主党州长公开反对拜登强制疫苗令
+上周日的新闻发布会上，安德鲁斯州长却把目前的医疗系统崩溃问题归结于未接种疫苗者。
 
-7.  拥有国家银行执照的Kraken是加密货币领域最大独角兽之一
+目前维多利亚州，12岁以上人口完全接种率已经达到了84%。
 
-8.  德国感染人数急剧上升
+而周日，维多利亚州报告了1173例感染，9人因新冠去世，96人目前在ICU。
 
-9.  Facebook改名无用 英部长誓言要Meta老板负刑事责任
+原文链接：[Victorian ambulances declare code orange on weekend as health system stretched by COVID cases](https://7news.com.au/lifestyle/health-wellbeing/victorian-ambulances-declare-code-orange-on-weekend-as-health-system-stretched-by-covid-cases-c-4472268)
 
-10.  美国能源部长：今冬取暖费预计将上涨
+发布：Janek
 
-**GTV链接：**[https://gtv.org/broadcast/watch/6188e68811d18629680345cf](https://gtv.org/broadcast/watch/6188e68811d18629680345cf)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-发布: 文橙
-
-* * *
-
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
