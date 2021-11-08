@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/8/2021 12:48 PM (UTC)`
+
+泽连科医生：中共病毒疫苗会导致死亡和不育，而它所包含的追踪技术将对幸存者实施全球性奴役<br/><br/>Dr. Zelenko: CCP Virus Vaccine Causes Death and Infertility, and the Tracking Technology It Contains Will Impose Global Slavery on Survivors 
+![img](https://media.gettr.com/group14/getter/2021/11/08/12/48/6abccd4e-ec01-d9a9-bbf4-c603c8b9fdef/out.jpg)
+
+---
+
 `@miles 11/8/2021 8:22 AM (UTC)`
 
 11/8/2021 Miles Guo: New Federal State of China needs to guarantee the personal safety and wealth safety of our fellow fighters, as well as our ability to take actions. We want to create and enjoy wealth wealth with the elite and people with faith around the world! Pay attention to the two sessions of the CPC! Those who disbelieve, dare not believe, those who failed to follow the Whistleblowers’ Movement will regret it!<br/><br/>11/8/2021 文贵直播: 新中国联邦要保证战友的人身、财产安全和在全世界的行动力。我们要和全世界的精英和有信仰的人一起创造和享受财富！关注两会！那些不信、不敢信和未跟随爆料革命的人会后悔！
@@ -290,13 +297,6 @@ Dr. David Wiseman: FDA打破了一个又一个规则，这绝对太离谱了。�
 
 11/3/2021 Miles Guo: The truth about the CCP virus and its vaccines are the biggest bullets of the New Federal State of China, followed by the Himalaya Reserve and GETTR; Zhang Gaoli is obscene and incompetent and was the first to say that Xi would step down after his first term; If the CCP is not destroyed, everyone’s children could be wrecked by them<br/><br/>11/3/2021 文贵直播：疫苗和病毒的真相是新中国联邦最大的子弹，喜联储和盖特次之；淫荡、无能的张高丽最早说习近平当完一届得下台；共产党不灭，每个人的孩子都可能被他们糟蹋！<br/>
 ![img](https://media.gettr.com/group22/getter/2021/11/04/05/06/9f2484a0-5038-07ea-f44d-5f984c743b9c/out.jpg)
-
----
-
-`@miles 11/4/2021 2:14 AM (UTC)`
-
-11/3/2021 Miles Guo: Zhang Gaoli wanted to be the “emperor” of Communist China, and he and Xi have a personal grudge. So, Xi wants to eliminate him anyway; The CCP’s old kleptocrats like Zhang Gaoli who went through Culture Revolution have had prostitutes and committed rapes together with their wives disguised with so called “true love”<br/><br/>11/3/2021 文贵直播：张高丽是想当皇帝的人，他和习有个人恩怨，习非弄死他不可；张高丽等文革时代出来的中共老杂毛们打着谈恋爱的名义，和他们的老婆一起嫖娼、强奸
-![img](https://media.gettr.com/group4/getter/2021/11/04/02/14/afaa63f0-b6b7-4632-6ea8-27d13b808346/out.jpg)
 
 ---
 
