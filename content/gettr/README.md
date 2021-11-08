@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/8/2021 3:41 PM (UTC)`
+
+11月8号：七哥扎真真了……
+![img](https://media.gettr.com/group30/getter/2021/11/08/15/41/3db685f9-2104-dc98-dbe7-5dd538d15bce/out.jpg)
+
+---
+
 `@miles 11/8/2021 1:32 PM (UTC)`
 
 11月吧：尊敬的战友们好，你们健身了吗？你们传播CCP病毒！香港危机和疫苗解药的真相了吗？一切都已经开始！
@@ -290,13 +297,6 @@ Dr. David Wiseman: FDA打破了一个又一个规则，这绝对太离谱了。�
 
 11/1/2021 【HCoin to The Moon庆典】喜交所CEO Jesse Brown：喜交所的目标是创建一个系统，让您实现财务自由支配和对自己的财富拥有主权<br/><br/>11/1/2021 【HCoin To the Moon Celebration】 Jesse Brown, CEO of Himalaya Exchange: The aim of the HIMALAYA EXCHANGE is to create a system that enables financial freedom and sovereignty over your own money.<br/>
 ![img](https://media.gettr.com/group48/getter/2021/11/04/13/258e0f52-ff6a-b6d8-01c7-c1fc118bc323/out.jpg)
-
----
-
-`@miles 11/4/2021 11:55 AM (UTC)`
-
-11月4号，尊敬的战友们好！你们健身了吗？传播CCP病毒，香港灾难和疫苗解药的真相了吗？一切都已经开始！
-![img](https://media.gettr.com/group25/getter/2021/11/04/11/55/9bd94c8d-8065-f09a-709e-1b46f7913b3e/out.jpg)
 
 ---
 
