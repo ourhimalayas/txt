@@ -2,46 +2,43 @@
 ---
 
 
-## 得克萨斯州参议员克鲁兹提出禁止强制给未成年人注射疫苗法案
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1647219/)
+## 研究显示三种中共病毒疫苗的效用正在 &#8220;急剧 &#8220;下降
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1647229/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/110706-1.jpg)*图片：特德·克鲁兹 by [Senator Ted Cruz](https://twitter.com/SenTedCruz/photo).*
-美国参议院司法委员会成员、德克萨斯州共和党参议员特德·克鲁兹（Ted Cruz）提出一项立法，该立法将禁止联邦政府和任何接受联邦资助的联邦、州和地方各级实体（包括学区）要求给未成年人接种新冠疫苗。
+**【雅典娜快讯】，紧贴时事脉搏**
 
-“经过咨询他们的家庭医生，父母应该有权决定对孩子来说什么是最好的，”他说。“我对新冠疫苗的看法一直很明确：不能有任何形式的强制。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/corona_vax_vials.jpg)图片来源：网络
 
-“乔·拜登总统和他的政府一再忽视医疗隐私权和个人自由，向美国企业推行不合法的、繁重的新冠疫苗强制令。现在他们正准备通过给父母施加压力来推行儿童强制疫苗——这都没有考虑相关的风险和人体的自然免疫能力。”
+翻译：Lish
+编辑：热锅小蚂蚁
 
-法案禁止任何学区或教育机构强制任何18岁及以下的学生接种新冠疫苗。
+据《洛杉矶时报》报道，对近80万各年龄段美国退伍军人患病记录的一项分析发现，三种主要中共病毒（COVID-19）疫苗的效用在六个月内出现了“戏剧性”的下降。
 
-法案还要求给未成年人接种新冠疫苗需要获得父母的同意，该法案适用于所有经紧急使用授权（EUA）批准使用的新冠疫苗，或者说，如果疫苗完全获批，第一个就要获得EUA的批准。
+从3月初到9月，随着德尔塔变体迅速成为全球主导的病毒毒株，摩德纳双剂量疫苗预防感染的能力从89%下降到了58%，辉瑞疫苗从87%下降到45%，而强生的单剂量疫苗从86%下降到只有13%。
 
-继美国疾病与预防控制中心（CDC）主任罗谢尔·瓦伦斯基（ Rochelle Walensky）博士批准辉瑞生物科技疫苗可以用于5到11岁孩子之后，克鲁兹提交了这项法案。在CDC之前，美国食品药品监督管理局（FDA）批准了辉瑞疫苗在5到11岁年龄段的EUA使用权。以前FDA批准了辉瑞疫苗在12到15岁年龄段的EUA使用权。
+这些研究周四发表在同行评议的《科学》杂志上。但同时报告又称，疫苗在同一时期预防美国老年人死亡的能力仍然有效。根据报道：接种了摩德纳疫苗的65岁及以上退伍军人中，与未接种的同龄退伍军人相比，发生所谓突破性感染的人死于中共病毒的可能性降低了76%*。*
 
-在得克萨斯，州长格雷格·阿博特（Greg Abbott）发布了一道行政令，禁止把强制疫苗和强制佩戴口罩作为雇佣和服务的一个条件，目前这两项都在法庭进行辩论。
+接种了辉瑞生物技术公司疫苗并随后经历了突破性感染的老年退伍军人，其死亡的可能性比未接种疫苗的同龄人低70%。
 
-**简评：**
+而且根据《洛杉矶时报》，当注射过一剂强生疫苗的老年退伍军人遭遇突破性感染时，他们的死亡可能性比没有注射任何疫苗的同龄人低52%*。*
 
-在美国，对未成年人的保护，不但真正有人（选民选出的议员）行动，而且可以通过法庭切实推进。在中共国，保护未成年人往往停留在“孩子是祖国的花朵”类似的陈词滥调上。既然不能指望政府对孩子提供保护，那做父母的更要倍加清醒，让孩子远离毒疫苗。
+对于65岁以下的退伍军人，辉瑞公司和摩德纳公司的疫苗分别能防止84%和82%的死亡，而强生公司的接种者与未接种疫苗的同龄人相比，死亡的可能性降低了73%。
 
-新闻链接：[Texas Sen. Cruz Introduces Bill Prohibiting Vaccine Mandate for Minors](https://georgiastarnews.com/2021/11/06/cruz-introduces-bill-prohibiting-vaccine-mandate-for-minors/)
+但是，目前美国人感染死亡率已经急剧下降。54岁以下的美国人的感染死亡率小于1%，55-64岁的感染死亡率是1.4%，65-74岁之间的感染死亡率则是2.7%。通过疫苗接种降低70%的死亡率实际意义并不大，而疫苗带来的副作用和致死率则远高于病毒感染的死亡率。
 
-***翻译**: 乡间小路*
+美国疾病控制和预防中心主任罗谢尔·瓦伦斯基（Rochelle Walensky）上个月承认疫苗不能防止传播。
 
-***校对**：感恩*
+目前由于加强针，人们开始质疑疫苗，其中就包括了前黑石的基金经理埃德·道德（Ed Dowd）。
 
-* * *
+原文链接：[Study Reveals ‘Dramatic’ Decline In All Three COVID-19 Vaccines’ Efficacy Over Time](https://www.zerohedge.com/covid-19/study-reveals-dramatic-decline-all-three-covid-19-vaccines-over-time)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+*发布：热锅小蚂蚁*
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
