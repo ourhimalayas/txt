@@ -2,38 +2,36 @@
 ---
 
 
-## 日本要闻汇编 11月8日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1648426/)
+## 纳瓦罗抨击福奇的疫苗政策是对儿童的变相虐待
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648529/)
 
-#### 素材：东京樱花团｜GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-1-5.png)[*图片来源*](https://tnimage.s3.hicloud.net.tw/photos/2021/11/08/1636353347-6188c54356dad.jpeg)
-1、[**新冠对策小组会就紧急事态宣言制定新指标**](https://china.kyodonews.net/news/2021/11/5250218e932d.html)
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月4日，前白宫顾问皮特-纳瓦罗在参加班农战斗室节目时指出，福奇推行疫苗强制政策，会对美国儿童造成极大困扰。福奇应该立即停止这种做法。
 
-日本政府新冠病毒感染症对策小组会8日召开会议，制定了评估新冠疫情的新指标。主要的变更点是相比新增感染人数，更重视医疗资源的告急程度，把原先的4个阶段分类改为5级。为避免出现医疗告急，要求利用病床数预测工具等，在较早阶段就采取紧急事态宣言等强力对策。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-9.jpeg)
 
-2、[**美国商务部长将首次访日 磋商钢铝关税**](https://china.kyodonews.net/news/2021/11/9697c14ceb48--.html)
+纳瓦罗说，他本人当初同意研发疫苗，初衷是提供给那些有意愿接种的人，而不是对所有人强制接种，尤其是儿童。福奇主张六岁以下儿童强制接种“实验性”的疫苗，无疑是对儿童的一种变相虐待。
 
-共同社华盛顿8日消息，美国商务部7日宣布，商务部长雷蒙多15日将到访东京，首次访问日本。美国贸易代表办公室代表凯瑟琳･戴（戴琦）也将在同一天访日。预计双方将磋商美国对从日本进口的钢铁和铝加征的关税等问题，还将商讨为抗衡中国而加强合作等。
+纳瓦罗批评福奇，作为医学专家，福奇却一直靠撒谎欺骗大众。福奇最大的谎言，就是借口所谓的疏忽，来掩盖他早在去年1月就知道病毒来源真相，却选择知而不报。
+ 
+最后，纳瓦罗再次呼吁，美国民众需要知道病毒和疫苗的真相，需要知道“福奇撒谎，美国人死亡”这一事实。
 
-3、[**官房副长官表示关注中国六中全会动向**](https://china.kyodonews.net/news/2021/11/79850d473714.html)
+参考链接：[https://www.gettr.com/post/pgazpu8a98](https://www.gettr.com/post/pgazpu8a98)
 
-日本官房副长官矶崎仁彦8日在记者会上，就中国共产党第十九届中央委员会第六次全体会议（六中全会）表示：“正关注中国内政上的动向。”对于今后的日中关系，他指出“构筑有建设性的稳定关系对两国、地区和国际社会而言很重要”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-4、[**日本近1年零3个月来首次新冠死亡零新增**](https://china.kyodonews.net/news/2021/11/9a9a3e31d1bd-13.html)
+总编：Ivy001 
+编辑：AN
+校正/发稿：谐趣园
 
-日本国内7日的新冠感染症新增死亡人数为零，自去年8月2日以来时隔约1年零3个月首次零新增。原因可能是疫苗接种取得进展和治疗药物普及。当天新确诊162人感染，具体是大阪39人、东京21人、爱知16人、北海道和冈山各10人等。据厚生劳动省透露，重症患者为100人，与前一日相同。
-
-5、[**安倍将出任自民党细田派会长**](https://china.kyodonews.net/news/2021/11/681df4f460da.html)
-
-共同社8日消息，日本前首相安倍晋三将重返自民党最大派系细田派并出任会长。此事预计将在11日的细田派总会上正式决定。
-
-6、[**厚劳省调查53%的跳槽者对新工作满意**](https://china.kyodonews.net/news/2021/11/6be2c40abd66-53.html)
-
-日本厚生劳动省8日公布的2020年“跳槽者实态调查”显示，在2019年10月1日～2020年9月30日跳槽至新单位的人中，认为跳槽后的工作“满意”和“基本满意”的比例合计为53.4%。回答“不满意”和“有些不满意”的合计为11.4%。
-
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,24 @@
 ---
 
 
-## 纳瓦罗抨击福奇的疫苗政策是对儿童的变相虐待
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648529/)
+## 加拿大政要被迫为“疫苗致死”言论道歉
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1648628/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月4日，前白宫顾问皮特-纳瓦罗在参加班农战斗室节目时指出，福奇推行疫苗强制政策，会对美国儿童造成极大困扰。福奇应该立即停止这种做法。
+采编：文明 编译撰稿：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-9.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-19-edited-scaled.jpg)图片来源：GAM
 
-纳瓦罗说，他本人当初同意研发疫苗，初衷是提供给那些有意愿接种的人，而不是对所有人强制接种，尤其是儿童。福奇主张六岁以下儿童强制接种“实验性”的疫苗，无疑是对儿童的一种变相虐待。
 
-纳瓦罗批评福奇，作为医学专家，福奇却一直靠撒谎欺骗大众。福奇最大的谎言，就是借口所谓的疏忽，来掩盖他早在去年1月就知道病毒来源真相，却选择知而不报。
- 
-最后，纳瓦罗再次呼吁，美国民众需要知道病毒和疫苗的真相，需要知道“福奇撒谎，美国人死亡”这一事实。
+据加拿大《环球邮报》11月6日报道，安大略省立法机构独立成员希利尔，当天已为其在社交媒体上曾使用病故者的名字和照片来暗示他们因接种“新冠病毒疫苗”而死亡的言论道歉。
 
-参考链接：[https://www.gettr.com/post/pgazpu8a98](https://www.gettr.com/post/pgazpu8a98)
+据悉，希利尔在整个疫情期间经常发布有关“新冠病毒”的真实信息和该病毒的实验室来源理论。此前，该政客在其社交媒体上展示了一系列突然莫名病故年轻人的新闻报道照片，并呼吁警方调查这些死亡案例与该疫苗的联系。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+为此，安省立法机构不久前通过了一项谴责希利尔以上行为的动议。在该机构的要求和压力下，希利尔日前被迫公开道歉，声称他已删除了该备受争议的言论，并对其行为给死者家庭造成的进一步困扰表示歉意。
 
-总编：Ivy001 
-编辑：AN
-校正/发稿：谐趣园
+事件发生后，尽管[安省公共卫生局]辩解称，所有报告给公共卫生部的接种后死亡案例都会被彻底调查，但迄今为止，当局仅确定了一起因接种“阿斯利康疫苗”后而导致“血栓症”并死亡的案例。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[原文链接：](https://www.theglobeandmail.com/canada/article-politician-randy-hillier-apologizes-for-social-media-post-suggesting/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
