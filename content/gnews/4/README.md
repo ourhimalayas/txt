@@ -2,41 +2,36 @@
 ---
 
 
-## 有声|众议院通过1万亿美元的基础设施计划
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1648416/)
+## 恒泰地产遭遇多地停工停产
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648518/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美国众议院周五晚上通过了一项历史性的 1 万亿美元基础设施一揽子计划，并计划投票允许对其更大的社会支出和气候法案进行正式辩论，这表明在中间派和激进派之间存在数月分歧后，拜登总统的议程取得了进展。
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月4日，“安徽第一房企”恒泰地产被曝光破产重整。恒泰地产承认遇到了前所未有的困难，并称“全力以赴复工复产，保交楼”。 但事实却与此相反。
 
-计划对更大的社会支出法案进行的最终投票被取消，因为一群温和派——足以阻止该措施——拒绝支持它，直到他们对其经济成本做出正式估计。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-3.jpeg)
 
-对基础设施法案的成功投票以 228 票对 206 票获得批准，标志着拜登议程急需展示势头，由于国会山中间派和激进派之间的深度不信任，该议程遭受了挫折， 8 月，参议院已经批准拜登的两党基础设施​​法案，为加州提供资金。1 万亿美元基础设施法案将交给拜登总统签署，白宫发言人周五表示，拜登将签署该协议。
+据悉，恒泰地产因多次拖欠账款被列为“失信被执行人”。恒泰青岛的项目已经逾期半年有余，处于停工状态。在昆明，业主维权事件不断。并且，在哈尔滨、重庆、无锡、长沙等地都出现了工地停工、违约等现象。
 
-（本文仅代表作者观点）
+据统计，2021年9月中共国房企新开工面积，同比2020年下降13.5%，比2019年更是下降了15.2%。
 
-文字版原文：[众议院通过1万亿美元的基础设施计划](https://gnews.org/zh-hans/1645882/)
+无法复工复产必定导致债务雪球越滚越大，中共房企爆雷的恶性事件恐无法避免。
 
-音频处理：喜山必胜Maverick
+参考链接：[“安徽第一房企”被曝破产重整? 恒泰地产：遇到前所未有困难，全力“保交付”](http://www.nbd.com.cn/articles/2021-11-04/1981206.html)
 
-发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
-
-
+总编：飞虹
+编辑：文特 
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

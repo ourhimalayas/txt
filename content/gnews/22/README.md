@@ -2,28 +2,36 @@
 ---
 
 
-## 日本首相任命中谷氏为首相助理，聚焦中共国人权
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1648299/)
+## 有声|美国联邦上诉法院冻结拜登政府的企业疫苗强制令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1648358/)
 
-撰稿: 东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-19.jpg)
-岸田首相决定任命前防卫大臣中谷为新设立的负责“人权问题”的首相助理一职。对此，中共国政府回应“绝不允许外部势力干涉”，旨在牵制日方。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月6日，美国联邦第五巡回上诉法院发布命令称，暂时冻结拜登政府发布的企业新冠疫苗强制令。该强制令要求，拥有超过100名员工的美国公司，其所有员工必须接种新冠疫苗或每周接受新冠病毒测试。
 
-岸田首相决定任命中谷氏为首相助理，目的是为了应对中共国新疆维吾尔自治区和香港的人权问题。
+巡回法院给出的冻结理由是，该强制令存在“严重的法律和宪法”问题，同时，法院要求拜登政府必须在11月8日下午5点前回应法院对新冠疫苗强制令提出的质疑。
 
-在8日的新闻发布会上，中共国外交部发言人汪文斌谴责了对中谷氏的任命一事。他说：“我们不评论日本的国内事务。”接着补充道：“我想指出，中国的内部事务是不允许外部势力干涉的。”
+日前，德克萨斯州总检察长肯·帕克斯顿曾就新冠疫苗强制令起诉了拜登政府。检方认为，强制员工接种新冠疫苗或每周接受病毒检测的命令是“滥用权利”且“完全违宪”，为此，检方要求法院下令取消该强制令。
 
-中谷氏目前是“人权外交—跨党派议员联盟”的联合主席。预计将于10日启动第二届岸田内阁时正式任命。
+在赢得初步胜利后，帕克斯顿总检察长表示，关于新冠疫苗的斗争尚未结束，他将继续反对和抵制联邦政府的一切越权和违宪行为。
 
-人权无国界。中共的掩耳盗铃，自欺欺人已招致了所有民主国家的反感。此次中谷氏能作为首相助理得到任用，无不证明了日方对中共国人权问题的关注。打蛇打七寸，一个无人权可言的国家，何谈外交，无外交就等同于“闭关锁国”，防火墙是中共自己建的，而邻国甚至国际社会的逐渐疏远，也是中共自作孽。对于一个冥顽不化，对内又残暴压制的政府，相信正义联盟会给出一个公判!
+文字版原文：[美国联邦上诉法院冻结拜登政府的企业疫苗强制令](https://gnews.org/zh-hans/1646716/)
 
-[信息源:](https://news.yahoo.co.jp/articles/c6b3981b2e58c8c1bec88701ca9e424d279d8d9c)
+音频处理：喜山必胜Maverick
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-4.jpg)
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
 
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

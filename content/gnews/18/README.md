@@ -2,57 +2,24 @@
 ---
 
 
-## 克鲁兹议员提法案 禁止美国强制儿童接种中共病毒疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648318/)
+## 文贵爆料 7/11: 永远拿不走的喜币——任你妙手神偷
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1648388/)
 
-作者：纽约香草山农场 – 飞虹
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/766f9ef0-cbc7-477c-9561-52f825d04dcd.jpg)
+喜币在设计之初，便已未雨绸缪。郭文贵先生在11月7日的大直播中说，喜币天生就是灭共的，中共永远拿不走，绝对安全，且不可查、不可寻、不可辨识。
 
+我告诉你喜联储用的区块链技术，有两种技术，一个叫私人区块链，一个叫公开区块链。很多交易所的区块链技术全是公开的，只有我们是私人区块链。为啥咱要用私人区块链？
 
+第一条，我们的私人区块链每一秒钟可以做到100单到1000单甚至到10000单。公开链大概一分钟可能做十单，一秒钟有时候连一单半单都做不了，很慢，那你说喜联储怎么用啊？没法用！它是技术决定的运行。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+第二条，私人区块链什么概念？大家记住了吗？不但是共产党，任何国家政府都不可能，除了喜联储和人家勾兑之外，没有一个人能拿到你的个人信息，绝不可能！世界上只有我们敢说这句话，绝对不可能！就这么简单。这是非区块链技术，KYC完加密完的币的信息和技术，没有人包括喜联储也拿不到，永远不可能， 进门之前你知道我是谁，经过KYC安保确认，我进了门以后，一换脸，你再也找不着我了，这才叫去中心化，去中心化就是永远不可查、不可寻、不可辨识。你未来会知道咱们的这个有多厉害，这是第二条。
 
-
-
-11月5日，美国多家媒体报道，得克萨斯州参议员特德·克鲁兹提出一项法案，要求禁止联邦、州和地方各级政府强制儿童接种中共病毒疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-1.jpg)
-法案内容重点包括：
-
-1. 禁止联邦政府和任何从州、地方、部落 或地区卫生和公众服务部获得联邦资金的人 要求任何18岁或以下的人接种新冠病毒疫苗。
-
-2. 禁止任何学区或其他教育实体强制要求18岁或以下的学生接种中共病毒疫苗。
-
-3. 如果任何学区实施了授权，则无权获得本法案涉及的一些资助。
-
-4. 未成年人接种中共病毒疫苗需要父母同意。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-54.jpg)
-针对该法案，克鲁兹议员发表声明说：父母应该有权在咨询家庭医生后决定什么对他们的孩子最好。拜登总统和他的政府一再无视医疗隐私权和人身自由，推行非法和繁重的疫苗强制令。我提出这项法案，以确保拜登总统及其政府不参与与儿童健康有关的决策，这是应该留给父母的。
+郭先生说，只有咱们的这个技术你拿走没用，你还得还回来，因为是有痕迹的，我都能拿回来——绝对的安全！这就是对付共产党的招儿。咱天生就是灭共的，这个币就是灭共。共产党把这个币拿走你白拿。牛吧？
 
 参考链接：
-1. [Cruz introduces bill prohibiting vaccine mandate for minors](https://www.indianagazette.com/news/national/cruz-introduces-bill-prohibiting-vaccine-mandate-for-minors/article_405cc0cf-ceb7-52a2-a20d-83507c3d6edf.html)
-2. [法案文本](https://www.cruz.senate.gov/imo/media/doc/20211104.covidmandatebill.pdf)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[2021年11月07日 文贵大直播](https://gettr.com/streaming/pga8le9f31)
 
  
 
