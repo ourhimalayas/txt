@@ -2,30 +2,44 @@
 ---
 
 
-## 泛海控股债券违约扩大，所持民生控股股份被冻结
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1647323/)
+## 以应对COVID-19为由，奥地利拟于对未接种疫苗的人实施封锁
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1647419/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/下载-1-2.jpg)
-据华夏时报11月7日报道，泛海控股自发生危机两年来没有得到有效解决。11月1日，泛海控股发布公告，附属境外公司出现两笔票据违约，本金余额总计为25.65亿元，抵押物已经被接管。受此影响，泛海控股11月2日股价大幅下跌。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-自2019年上半年开始，泛海控股连续亏损。2021年三季度报告显示，亏损面持续扩大，泛海控股不得不通过变卖资产自救。泛海控股持有的民生证券股份已被冻结，截止到2024年10月31日。
-
-中共的经济如同疫苗灾难一样，已经进入随时脑梗、心梗，倒地不起的状态。疫苗有解药，经济有策略，中共宁愿走上不归路，也不愿意真正地解决问题。那么唯一的办法就是延续中共一贯的作风，解决掉中共，新中国联邦顺应天意和民意成为中国人的新国家。没有中共的新中国，必定会走向民主、越来越好。
-
-新闻参考链接：[https://c.m.163.com/news/a/GO6VT8P00512D03F.html?spss=newsapp](https://c.m.163.com/news/a/GO6VT8P00512D03F.html?spss=newsapp)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/shutterstock_2010995402-800x450-1.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+图片来源：euractiv.com
+
+
+#### 编译：小红帽
+
+在没有接种疫苗的人被禁止进入大部分公共场所之后，奥地利已经接近于对未接种疫苗的人实施全面封锁。
+
+根据RT报道，禁令将于下周生效，并将适用于咖啡馆、酒吧、餐厅、剧院、滑雪场、酒店、理发店和任何涉及25人以上的活动。这些措施将影响36%尚未完全接种疫苗的居民。
+
+上个月，奥地利政府已经对重症监护室的入住率进行了限制，如果违反该规定，将触发对未接种疫苗的人实施封锁措施。
+
+一旦重症监护室的入住人数达到600人，或占重症监护室总容量的三分之一，新的规则就会被触发。
+
+这些措施将超出疫苗护照的范围，规定未接种疫苗的人必须呆在家里，只有在购买食物等“基本所需物品”的情况下才能离开。
+
+这可能会以类似于第一次封锁的方式执行，由警察对人们进行抽查，询问他们是否有外出的许可。
+
+奥地利将是第一个对未接种疫苗的人专门实施 “呆在家里 “措施的主要国家，但它（这种暴政模式）最终可能被复制到其他地方。
+
+**参考新闻：**[Austria Moves Closer to Imposing Lockdown on the Unvaccinated (humansarefree.com)](https://humansarefree.com/2021/11/austria-to-impose-lockdown-on-the-unvaccinated.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

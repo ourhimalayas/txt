@@ -2,49 +2,24 @@
 ---
 
 
-## 前白宫顾问彼得·纳瓦罗： 福奇致命的刻意隐瞒应该让他穿上囚衣
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1647236/)
+## 跟美国一千年的和平协议是对中国最好的
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1647264/)
 
-前白宫顾问彼得·纳瓦罗： 福奇致命的刻意隐瞒应该让他穿上囚衣。华盛顿时报再次切中要点。请广泛转发。将福奇穿上囚衣，远离我们的孩子。 我的新书 《川普时代》在亚马逊上的全文，请访问 【附华盛顿时报文章：福奇博士的致命隐瞒 他明知新冠病毒可能源于武汉实验室却决定不告诉任何人】
+跟美国人一千年的和平协议是对中国最好的，你想都别想，跟人家打架。它不是钱的事，不是武器的事，它是一个历史的堆积。
 
+**【郭先生直播摘要】****跟美国****一千年的和平协议是对中国最好的**
 
+**郭先生：**
 
-> Fauci's DEADLY lie of omission should put him in an orange jump suit. [@washtimes](https://twitter.com/WashTimes?ref_src=twsrc%5Etfw) scores again! Please retweet far/wide. Put [#firefauci](https://twitter.com/hashtag/firefauci?src=hash&amp;ref_src=twsrc%5Etfw) in orange jumpsuit away from our kids. 
-> Full story in my new book In Trump Time on amazon at [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy)[https://t.co/3qKPV04yd0](https://t.co/3qKPV04yd0)
-> — Peter Navarro (@RealPNavarro) [November 5, 2021](https://twitter.com/RealPNavarro/status/1456740141205180419?ref_src=twsrc%5Etfw)
+跟美国人一千年的和平协议是对中国最好的， 你想都别想，跟人家打架。它不是钱的事，不是武器的事，它是一个历史的堆积。 就像新中国联邦，七哥要没有三十年的共产党的堆积，今天你说这人，我张嘴就来，我张嘴就能编？我没有这些年的经营我就能搞出一个这个结构师，喜联储，我能搞出来GTV，盖特。我今天没有四年爆料，我今天跟你们讲的你们就信，那不可能。 它是一个时间的累积，多方面的累积的结果，这叫物质的世界。物是行动，导生的结果。质是什么？是一个事情的基本逻辑，合在一起叫物质，我们就在物质的世界里。
 
+共产党是什么？叫乌托邦。乌托邦就是幻想的主义者，谎言的主义者。你怎么能听他的呢？胡扯的。所以说打三分钟瞬间给它灭了，所以今天这选举的结果是什么，所有这些地方。你敢打台湾老子就修理你。真的政清艾米莉大牛巴黎，你们应该裸奔了，好好认真的裸奔，真的值得裸奔。 这事啊绝对对你们是安全的， 新中国联邦不可能绝对保证你安全，但是这个让你安全上加上安全。 这是我心里最开心的，他们嬴。
 
+第二个就是，绝对灭共啊，那个不是战友，告诉我哪个不是。导致这个赢得最重要结果是什么？千万别忘了，所有这些州的现场，所有的人都是战斗室的所有嘉宾。你看每一个，班农的战斗室是美国第一政治节目。在现场指挥弗吉尼亚的就是班农。 史蒂夫班农， 老头就没睡觉，喝了十七杯咖啡了， 十七杯咖啡了从昨晚到现在。 就老人家就在那折腾，女朋友都上去了，这就是人家班农，弄出来的，战斗室的赢家。你说战斗室的赢家，我们新中国联邦是不是最大赢家，是吧？
 
-比尔·戈茨转美国海军研究所新闻推文： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在偏远沙漠地区建造美国航母和驱逐舰形状的导弹目标-USNI新闻 卫星图像：[@Maxar](https://twitter.com/Maxar) 【附文章链接：根据卫星图像公司 Maxar提供给USNI新闻的照片，中共国军队在塔克拉玛干沙漠建造了美国航空母舰和其他美国军舰形状的目标，作为新目标靶场综合体的一部分】
+意味着什么？ 灭共的事业，保台湾的事业，它都是，真的不亚于那个喜币。 当你想想喜币要真的今天诞生， 和前天诞生，完全不一样。共产党的马上六中全会，还有三天就开始了。这个六中全会美国这个选举，彻底改变，内外改变。他们真的知道噩梦来了。
 
-
-
-> China Builds Missile Targets Shaped Like U.S. Aircraft Carrier, Destroyers in Remote Desert – USNI News
-> 
-> Satellite image: [@Maxar](https://twitter.com/Maxar?ref_src=twsrc%5Etfw)[https://t.co/TM9rnTYqox](https://t.co/TM9rnTYqox) [pic.twitter.com/5snxpZWJ4z](https://t.co/5snxpZWJ4z)
-> — USNI News (@USNINews) [November 7, 2021](https://twitter.com/USNINews/status/1457381578619953161?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 是一个正在崛起的大国，它正在努力超越美国军队。 对美国来说，现在是从强势地位采取行动并保持战略威慑的时候了。【转[http://stripes.com](https://t.co/DazustRZoC?amp=1)报道：美国防部关于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军事的新报告详细介绍了其核技术的进步和日益增长的国际影响力 美国防部关于中国军力的新报告详细介绍了中国的持续快速进步，突出表现在其核计划、高超音速导弹的增长、国际影响力的增加和向其他国家的扩张。】
-
-
-
-> Communist China is a rising power that is well on its way to outpacing the U.S. military. It’s time for the United States to act from a position of strength and to maintain strategic deterrence.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 7, 2021](https://twitter.com/MarshaBlackburn/status/1457442093576687618?ref_src=twsrc%5Etfw)
-
-
-
-众议员兰斯·古登： 80% 的选民希望国会遏制大型科技公司的权力。 这就是为什么我与他人共同创立了“摆脱科技寡头核心小组” 国会有机会通过美国网上选择和创新法案来控制大型科技公司！ 【附nationalview的文章：摆脱网上大卖场：是时候反对亚马逊的垄断了】
-
-
-
-> 80% of voters want Congress to CURB Big Tech's power.
-> 
-> That’s why I co-founded the Freedom From Big Tech Caucus.
-> 
-> Congress has the opportunity to REIN IN Big Tech with the American Choice and Innovation Online Act![https://t.co/iY695IRZum](https://t.co/iY695IRZum)
-> — Lance Gooden (@Lancegooden) [November 5, 2021](https://twitter.com/Lancegooden/status/1456730569530880010?ref_src=twsrc%5Etfw)
+视频剪辑：北方信使 |听写：雨山溪桥客 | 翻译 ： Arthur |校对：红色马克杯 |视频制作+字幕： CG. | 编辑&发布：黎明的光芒
 
 
 
