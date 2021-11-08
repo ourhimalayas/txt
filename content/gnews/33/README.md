@@ -2,40 +2,23 @@
 ---
 
 
-## 喜联储技术优于加密货币领域最大的独角兽
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648587/)
+## 加拿大政要被迫为“疫苗致死”言论道歉
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1648628/)
 
-作者：秘密翻译组 – 原创组
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-Kraken是一家位于美国加州的加密货币交易所和银行， 成立于2011年。它拥有国家银行执照， 是加密货币领域最大的独角兽之一。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-21.jpg)
-kraken公司产品包括加密货币交易所，场外交易柜台和期货交易平台。Kraken交易所提供加密货币和法定货币之间的交易， 并向彭博终端提供价格信息。在全球加密货币交易量排名第六。截止2021年，Kraken已经对美国48个州和176个国家的居民开放， 并提供72种可供交易的加密货币。
-2021年初，Kraken 已超过200亿美元的估值。其直接竞争对手Coinbase的估值预计为1000亿美元。郭先生在直播中提到，这两个公司使用的公共区块链技术，在技术层面远不及喜联储的私人区块链。虽然Kraken 在短时间内做到世界领先，但新中国联邦的金融系统将是世界级的金融航空母舰。
+采编：文明 编译撰稿：硫酸羟氯喹64
 
-参考链接：
-
-[11/7/2021文贵爆料: Kraken拥有国家银行执照，是加密货币领域最大的独角兽之一](https://gnews.org/zh-hans/1646976/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：文真
-校对/发稿：Fei797
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-19-edited-scaled.jpg)图片来源：GAM
 
 
+据加拿大《环球邮报》11月6日报道，安大略省立法机构独立成员希利尔，当天已为其在社交媒体上曾使用病故者的名字和照片来暗示他们因接种“新冠病毒疫苗”而死亡的言论道歉。
+
+据悉，希利尔在整个疫情期间经常发布有关“新冠病毒”的真实信息和该病毒的实验室来源理论。此前，该政客在其社交媒体上展示了一系列突然莫名病故年轻人的新闻报道照片，并呼吁警方调查这些死亡案例与该疫苗的联系。
+
+为此，安省立法机构不久前通过了一项谴责希利尔以上行为的动议。在该机构的要求和压力下，希利尔日前被迫公开道歉，声称他已删除了该备受争议的言论，并对其行为给死者家庭造成的进一步困扰表示歉意。
+
+事件发生后，尽管[安省公共卫生局]辩解称，所有报告给公共卫生部的接种后死亡案例都会被彻底调查，但迄今为止，当局仅确定了一起因接种“阿斯利康疫苗”后而导致“血栓症”并死亡的案例。
+
+[原文链接：](https://www.theglobeandmail.com/canada/article-politician-randy-hillier-apologizes-for-social-media-post-suggesting/)
 
  
 

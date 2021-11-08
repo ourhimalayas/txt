@@ -2,46 +2,34 @@
 ---
 
 
-## 喜联储私人区块链技术确保高效安全
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648538/)
+## 班农战斗室对暂停美国疫苗强制令起到关键作用
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648556/)
 
-作者：美东香草山农场 – 文真
+作者：英国喜庄园 – I770775
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月7日，郭文贵先生在GTV大直播中，分析了喜联储所采用的私人区块链的技术优势。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-30.jpg)
-第一，喜联储使用私人区块链技术，每秒钟的交易量可达一百，甚至一万单。而使用公开区块链技术，交易速度很慢，每秒交易只有十单，甚至更少。
-第二，当遭遇黑客攻击时，公开区块链技术支持的数字货币，一旦被盗窃，就无法追回。而喜联储的私人区块链技术，能够确保数字货币的绝对安全，即使被黑客盗取，因有迹可查，可以追回。
-最后，喜联储的私人区块链保证个人信息的绝对安全。通过喜联储KYC的账户信息，不会被任何政府或个人获取，这才叫真正的去中心化。
+11月7日，郭文贵先生在大直播中透露，班农战斗室的影响和运作，对暂停美国疫苗强制令起到了关键作用。由班农战斗室推动，一百多个小私营业主联合向第五巡回法庭提起诉讼。 第五巡回法院暂时阻止强制疫苗的总统令。法庭令虽然是临时的，但是疫苗强制政策已经宣告失败。
 
-参考链接：
-[2021年11月07日 文贵大直播：爆料革命班农战斗室发起的百家私人企业起诉，第五法庭暂停拜登政府强制疫苗令的重大意义；虚拟币交易所，银行，币价，市值，估值与提现之间的关系；中共为了冬奥会，掩盖疫苗死亡真相；喜交所的私链技术针对灭共而设计，打破中共对虚拟币的垄断与控制](https://gtv.org/video/id=6187c5e211d186296802ed33)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide4-3.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+自今年各国强推疫苗以来，郭先生不止一次强调，美国的疫苗令一定会被停止，而且一定会从私营业主的起诉开始。全世界疫苗灾难的根源是中共病毒，是美国官员腐败和中共勾兑的结果。停止疫苗灾难还要靠美国，美国首先停止强制疫苗，世界其它国家才能停止。
 
-总编：Ivy001
-编辑：Jack Li文阳
-校对/发稿：Fei797
+爆料革命揭露新冠病毒和疫苗的真相，并通过班农战斗室广泛传播到英语世界，在西方世界尤其在美国引起巨大反响。疫苗令遭暂停，展现新中国联邦、爆料革命和班农战斗室的巨大影响力。
+
+参考链接：[2021年11月07日 文贵大直播：爆料革命班农战斗室发起的百家私人企业起诉，第五法庭暂停拜登政府强制疫苗令的重大意义；虚拟币交易所，银行，币价，市值，估值与提现之间的关系；中共为了冬奥会，掩盖疫苗死亡真相；喜交所的私链技术针对灭共而设计，打破中共对虚拟币的垄断与控制](https://gtv.org/video/id=6187c5e211d186296802ed33)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：文真
+编辑：文真
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
-
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
