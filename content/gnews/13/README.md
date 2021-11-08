@@ -2,55 +2,30 @@
 ---
 
 
-## 澳大利亚启动COVID-19加强型疫苗接种计划，优先考虑养老院老人和残疾人
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1647938/)
+## 秘翻在线:全球主义者正想躲进&#8221;末日掩体&#8221;
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1647957/)
 
-**翻译：小鱼儿
-编辑：Staryanyan**
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/11/AZ.jpg)
+图片:网路
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_8782-scaled.jpg)图片来源：ITV
+**全球主义者恐慌性地购买”世界末日”掩体**
 
+据《零对冲》的报导，世界上最大的末日掩体建造者之一，阿特拉斯生存避难所 (Atlas Survival Shelters)的首席执行官罗恩·哈伯德(Ron Hubbard)说，透过释放病毒让人恐惧而施打疫苗，企图将人口控制在五亿以下的全球主义者，因为害怕被他们统治的人们”大觉醒”而揭开邪恶的面纱，现在几乎恐慌性地在购买”世界末日”掩体，尤其是在美国。
 
-随着澳大利亚政府的COVID-19强化接种计划的启动，那些六个月前卷起袖子接受了两剂初级疫苗接种的人现在将接受第三次强化疫苗的接种。
+**人类的”大觉醒”已来临**
 
-澳大利亚政府的COVID-19加强针计划于周一正式启动。
+事实上，二十一世纪的人类仍被奴役之中，无论是被车贷、房贷追赶着无法喘息，或是被主流媒体洗脑的人们，从来都没有实际的自由意志。然而全球的人们已逐渐意识到，他们不是天生就是任何统治阶级的奴隶，必须急迫的争取自由和摆脱政府掌控。人们终于觉醒，明白统治者奴役他们，並且窃取了他们的劳动成果。
 
-所有居住在澳大利亚的18岁及以上的人，如果在至少六个月前接受了两剂COVID-19疫苗接种，现在将有资格接受第三次加强疫苗注射。
+哈伯德警告说，全球主义者发现，一场”大觉醒”正在美国酝酿之中，而且反抗运动随即可能爆发。美国人民对于政府机构以及背后控制政府的人越来越感到愤怒，这个掌控系统逐渐失控。人们在精神层面上正在进化，许多人明白自己不是奴隶。
 
-卫生部长格雷格-亨特在一份声明中说，养老院的老人和残疾人将是加强型疫苗接种计划的最初重点。
+**人类必须”合作、不分裂”以对抗全球主义者**
 
-他在周一说：”强化疫苗推广计划将最先针对老人和残疾人，因为这些群体中的绝大多数人在6个月或更久之前就已经接种了第二针，因此他们具备接受第三针强化疫苗注射的条件。
+恶魔们想要更大的混乱和分裂，这就是人们现在面临通滞、疫苗灾难等种种危机的原因。如果人们无法和平相处，共同奋斗，恶魔们就能达成他们的统治人类的目的。
 
-澳大利亚免疫技术咨询小组（ATAGI）已推荐辉瑞公司制作的疫苗作为加强针。
+为自由的一场抗争不必然是暴力叛乱，但它必然会发生。当人们面临因为疫苗政策失去工作和所有一切的时候，他们别无选择，必定反抗到底。而企图利用疫苗政策想要掌控全世界的疯子们必将留在地狱接受审判。
 
-接受过两次阿斯利康或Moderna疫苗注射的澳大利亚人仍有资格接受辉瑞公司的加强针注射。
-
-ATAGI目前不建议免疫力严重低下的居民接种第三针以完成其主要的疫苗接种过程，而是建议他们进行加强针注射。
-
-亨特先生赞扬了COVID-19疫苗在确保居民获得病毒保护方面的重要性。
-
-今天是光明正大地谈论澳大利亚的加强剂量计划的正式开始。
-
-澳大利亚是世界上最早开始强化计划的国家之一，所有第一次接种超过六个月的人都可以接种。
-
-– Greg Hunt（@GregHuntMP） 2021年11月7日说：”在加强剂方面，人们必须知道，两剂COVID-19疫苗可以提供非常好的保护，特别是针对严重的疾病。
-
-“在第二剂后的6个月或更长时间内，加强剂将确保第一剂的保护作用更加强大和持久，应该有助于防止病毒的传播。”
-
-虽然该计划于周一才正式开始，但截至周六，已经有超过17.3万个加强剂被实施。
-
-社区药房也将能够从周一开始实施辉瑞公司的疫苗注射。
-
-**参考新闻：**[https://www.skynews.com.au/australia-news/coronavirus/australias-covid19-booster-vaccination-program-launches-with-residential-aged-care-and-disability-facilities-given-priority/news-story/6e3dbf2b0702c7e2bdf701287ff6683b](https://www.skynews.com.au/australia-news/coronavirus/australias-covid19-booster-vaccination-program-launches-with-residential-aged-care-and-disability-facilities-given-priority/news-story/6e3dbf2b0702c7e2bdf701287ff6683b)
-
-发布：Janek
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+消息来源:[Global Elite “Fear A Rebellion Is Brewing”, Says CEO Of Large Doomsday-Bunker Builder](http://Global%20Elite%20&quot;Fear%20A%20Rebellion%20Is%20Brewing&quot;,%20Says%20CEO%20Of%20Large%20Doomsday-Bunker%20Builder)
 
  
 

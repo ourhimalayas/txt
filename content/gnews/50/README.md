@@ -2,10 +2,10 @@
 ---
 
 
-## 疫苗强制令引发的警告、诉讼和机场骚乱在全国层出不穷
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1646962/)
+## 盖特是支持言论自由，反对取消文化的人完美的地方
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1646977/)
 
-11/03/2021 NTD新闻：拜登政府的疫苗强制令引发的警告、诉讼和机场骚乱在全国层出不穷。
+11/04/2021 盖特首席执行官杰森·米勒：如果你支持言论自由，反对取消文化，你就是加入盖特的完美人选。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
