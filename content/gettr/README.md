@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/8/2021 12:48 AM (UTC)`
+
+11月7号：尊敬的战友们好……工作了一整天，吃了好几顿饭非常的兴奋，一切都已经开始！
+![img](https://media.gettr.com/group43/getter/2021/11/08/00/48/9404b946-4b5b-4f92-4324-90d2c03ffe0c/out.jpg)
+
+---
+
 `@miles 11/8/2021 12:11 AM (UTC)`
 
 11/7/2021 Miles Guo: The biggest threat posed by the Himalaya Exchange to the CCP is to deprive the CCP’s control in the era of digital currency; The core technology of the Himalaya Exchange is the private blockchain, which ensures transactions to be processed in a secure and highly efficient manner, with all stolen Himalaya Coins being recoverable; no individual or government can access the personal information in the private blockchain<br/><br/>11/7/2021 文贵直播：喜联储对中共最大的威胁是让其在数字货币时代丧失控制权；喜联储的核心技术是私人区块链，它能高效和安全地处理交易，并保证被偷的喜币可全数追回；任何人或政府都无法获取私人区块链内的个人信息<br/>
@@ -290,13 +297,6 @@ Dr. David Wiseman: FDA打破了一个又一个规则，这绝对太离谱了。�
 
 11/3/2021 Miles Guo: The Virginia gubernatorial election will change the fate of the world; It’s a big deal that 30 European countries are to decouple with the CCP; If the CCP invaded Taiwan, the US has all sorts of excuses to justify its military operations against the CCP; Over-issuance of currencies has caused inflation worldwide; The stock market is controlled by tech companies<br/><br/>11/3/2021 文贵直播：弗吉尼亚州长选举将改变世界的命运；欧洲30个国家跟中共脱钩是天大的事；若中共攻台，美国有各种理由打中共；世界各地超发货币导致通胀；股市被科技公司所控制<br/>
 ![img](https://media.gettr.com/group23/getter/2021/11/03/23/c337a9a2-a3a8-c189-1e5f-e4c06a943101/out.jpg)
-
----
-
-`@miles 11/3/2021 11:21 PM (UTC)`
-
-CDC近日发布的一项漏洞百出的报告称疫苗比自然免疫更有效，这是CDC宣传工作的一部分，报告未经同行评审，只挑选对其有利的数据，CDC是为这份报告付费的金主；强制疫苗令是政客对权力的滥用<br/><br/>A recent CDC's flawed report says the vaccines are more effective than natural immunity. This report is part of it’s propaganda program which is non-peer reviewed  and an example of “cherry-picking”. CDC paid for this report. It’s abuse of power for government officials who insist mandate.<br/>
-![img](https://media.gettr.com/group41/getter/2021/11/03/23/21/8270693f-a49c-731b-1a8a-fcaebcfef0cd/out.jpg)
 
 ---
 
