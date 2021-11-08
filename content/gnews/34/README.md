@@ -2,13 +2,35 @@
 ---
 
 
-## 美国联邦上诉法庭冻结拜登疫苗强制令
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1647311/)
+## GTV新闻访谈简报|2021年11月7日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1647460/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/樱花快报1108早-scaled.jpg)
-*编辑：东京樱花团/简报小组*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+作者：香草山翻译部
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish.png)
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11071text-SC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[11.7  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61887d2111d18629680334ee)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://紐約香草山農場%20%20|%20GTV-香草山之聲%20紐約香草山農場GTV-%20|%20MOS%20TALK%20香草山訪談%20紐約香草山農場%20|%20GETTR%20紐約香草山農場%20｜YouTube%20歡迎加入香草山農場%20%20|%20Discord)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
