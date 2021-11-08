@@ -2,36 +2,23 @@
 ---
 
 
-## 首位被引渡的中共间谍 法庭裁定罪成
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1646685/)
+## 文贵爆料 7/11: 留住喜币，草根也能笑傲江湖
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1646689/)
 
-作者：MOS – 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月5日，美国俄亥俄州开庭审理了一宗涉及中共的间谍案，案件当中，徐某是首位被引渡到美国受审的中共间谍。对此，联邦陪审团一致裁定，中共间谍徐某罪名成立。
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/766f9ef0-cbc7-477c-9561-52f825d04dcd.jpg)
+陈年佳酿，越久越醇。而留住喜币，更是留住了希望，留住了未来。 郭文贵先生在11月7日的大直播中，讲述了喜币不仅在未来有着巨大的升值空间，而且可以用来借贷，值得一生拥有。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-3.jpeg)
+我们应该感谢联盟委员会，他们太难了，能让你这几万个战友进来，那么你现在要再进来的战友们，你们互帮就是要顺利地过kyc，顺利汇钱变成喜美元，你才能买到喜币啊。就像今天如果是涨到两千了，头两天卖了那个两块钱的，或者卖个十几块钱、二十块钱的，真的，你这一辈子再也不可能买回来？你看的就是那个有限的钱，未来的升值空间，跟你就都没有关系了，你终生不可能再回来啊。
 
-据悉，徐某被指控从美国航空企业盗取商业秘密，而美国司法部对其的控告罪名包括：阴谋和企图实施经济间谍行为，以及盗窃商业机密罪。
+我告诉战友们，你们不用太长时间，快则一两个月，慢则不会超过明年五月份，你们就一辈子等了，为什么这几个月就不能等吗？到那时候你就可以贷款，我永远不卖币。现在我告诉你，你们拥有一万个币的人，你需要多少钱？你一万个币现在就是二百万美元吧。二百万美元你说你能花多少钱？你贷五十万美元，其中的二十万美元干什么？我告诉大家，你一定马上到喜联储存款去，我要存一个五年期或七年期。一年百分之七的利息是给你喜币，是吧？有币给你，我为啥你卖掉喜币呢？
 
-根据法庭文件显示，徐某曾使用多个身份进行间谍行为，其目标主要针对美国及海外的航空企业，试图盗取包含通用电气飞机引擎的复合材料叶片在内的各类航空相关技术。
+郭先生说，很多人进入食堂后，只看到了馒头和包子，却没看到旁边还有龙虾和鲍鱼。
 
-FBI助理局长艾伦指出， “这是由国家主导的间谍行为，其目的在于试图摧毁美国的经济”。 助理司法部长墨菲也称赞了美国法庭的裁决。
+参考链接：
 
-参考链接：[Chinese spy convicted of trying to steal U.S. aviation secrets in historic trial](https://justthenews.com/government/security/chinese-spy-convicted-trying-stealing-us-aviation-secrets-historic-trial)
+[2021年11月07日 文贵大直播](https://gettr.com/streaming/pga8le9f31)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
-
-总编：Jack Li文阳
-编辑：Ivy001
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

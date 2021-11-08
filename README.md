@@ -15,146 +15,146 @@
 
 ---
 
-### [雅典娜时报-第106期](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美前情报总监谈“通俄门”调查将证明“真理自明”](/content/gnews/2/README.md)
- ` HimalayaRussia`
-
-### [11/7/2021 文贵直播：喜联储对中共最大的威胁是让其在数字货币时代丧失话语权](/content/gnews/3/README.md)
- ` 秘密翻译组-北美组`
-
-### [前白宫顾问彼得·纳瓦罗： 福奇致命的刻意隐瞒应该让他穿上囚衣](/content/gnews/4/README.md)
- ` 美国政要直译推`
-
-### [一则宗教豁免避开强制疫苗的经历](/content/gnews/5/README.md)
- ` 纽约香草山MOS03`
-
-### [研究显示三种中共病毒疫苗的效用正在 &#8220;急剧 &#8220;下降](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [奥地利针对未接种疫苗者的禁令即将生效 无视疫苗副作用](/content/gnews/7/README.md)
- ` 日本东京方舟农场`
-
-### [得克萨斯州参议员克鲁兹提出禁止强制给未成年人注射疫苗法案](/content/gnews/8/README.md)
+### [泛海控股债券违约扩大，所持民生控股股份被冻结](/content/gnews/1/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [反疫苗人士批评《芝麻街》主角大鸟对儿童进行政治宣传](/content/gnews/9/README.md)
- ` 日本东京方舟农场`
+### [串珠444:“共同富裕”在大陆是割韭菜在港是共产共妻](/content/gnews/2/README.md)
+ ` 郭爆料串珠`
 
-### [美国联邦上诉法庭对拜登政府的疫苗接种令发出冻结令](/content/gnews/10/README.md)
- ` 日本东京方舟农场`
-
-### [CNN刊文污蔑班农先生](/content/gnews/11/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美前国防高官：中共政权之邪恶如同纳粹](/content/gnews/12/README.md)
- ` 日本东京方舟农场`
-
-### [美国共和党全国委员会起诉联邦政府，要求停止强制 COVID-19疫苗令](/content/gnews/13/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共第十九届六中全会或将是习近平最后的绝唱](/content/gnews/14/README.md)
+### [美国联邦上诉法庭冻结拜登疫苗强制令](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际要闻汇编 11月7日](/content/gnews/15/README.md)
+### [串珠443:中共强推房地产税必亡党亡国！](/content/gnews/4/README.md)
+ ` 郭爆料串珠`
+
+### [官防长官就美军基地搬迁与冲绳市民交换意见](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内要闻汇编 11月7日](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本要闻汇编 11月7日](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新中国联邦不是为了求人信任 我们是灭共的](/content/gnews/18/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [华夏视角系列之一：值喜币上市之际，谈战友之间的“三分清”](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [打了疫苗怎么办？如何提高谷胱甘肽水平？](/content/gnews/20/README.md)
- ` 加拿大扬帆农场多伦多Gnews组 Himalaya Sailing Farm Toronto(CA)`
-
-### [美媒警示中共对美国的军事威胁日愈增长](/content/gnews/21/README.md)
- ` HimalayaRussia`
-
-### [中共不允许老百姓购买数字货币的真正原因是什么？](/content/gnews/22/README.md)
+### [雅典娜时报-第106期](/content/gnews/6/README.md)
  ` 墨尔本雅典娜农场`
 
-### [西班牙团队利用拉曼光谱分析法在所有疫苗中发现氧化石墨烯](/content/gnews/23/README.md)
- ` 加拿大扬帆农场多伦多Gnews组 Himalaya Sailing Farm Toronto(CA)`
+### [跟美国一千年的和平协议是对中国最好的](/content/gnews/7/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [墙内如何用身份证一次性过喜币KYC](/content/gnews/24/README.md)
- ` 加拿大扬帆农场多伦多Gnews组 Himalaya Sailing Farm Toronto(CA)`
-
-### [观点：我们的气候变化战略不能依赖中共国](/content/gnews/25/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [盖特是支持言论自由，反对取消文化的人完美的地方](/content/gnews/26/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [11/7/2021文贵爆料: Kraken拥有国家银行执照，是加密货币领域最大的独角兽之一](/content/gnews/27/README.md)
- ` 秘密翻译组-原创组`
-
-### [疫苗强制令引发的警告、诉讼和机场骚乱在全国层出不穷](/content/gnews/28/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [乌克兰人抗议接种疫苗，因为COVID病例激增](/content/gnews/29/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [疫苗可视作有预谋的、一级谋杀和种族灭绝](/content/gnews/30/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [欧盟等32国取消中共国贸易优惠待遇](/content/gnews/31/README.md)
- ` 日本东京方舟农场`
-
-### [护士抗议者：“目前38个重症病人中有30个打了疫苗”](/content/gnews/32/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [纳瓦罗《在川普时代》一书中揭露福奇在白宫犯下的罪行](/content/gnews/33/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国务院声明美方“一个中国”政策有异于中共的版本](/content/gnews/34/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [NFL球员亚伦·罗杰斯解释他为何反对疫苗强制令](/content/gnews/35/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [国会议员兰德质询福奇，指控NIH资助中共病毒增强实验](/content/gnews/36/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [瑞德西韦致死的患者可能超过中共病毒](/content/gnews/37/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [罗伯特·肯尼迪呼吁全球罢工，维护自己的权利](/content/gnews/38/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [GTV新闻访谈简报|2021年11月7日早](/content/gnews/39/README.md)
- ` 纽约香草山MOS01`
-
-### [疫苗强制令是基于医疗和接种状况的新型种族隔离制度](/content/gnews/40/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国联邦上诉法院冻结拜登政府的企业疫苗强制令](/content/gnews/41/README.md)
- ` GTV新闻访谈`
-
-### [美两议员提议案支持立陶宛加强与台湾的关系](/content/gnews/42/README.md)
+### [美前情报总监谈“通俄门”调查将证明“真理自明”](/content/gnews/8/README.md)
  ` HimalayaRussia`
 
-### [中共的打土豪运动继续蔓延](/content/gnews/43/README.md)
- ` GTV新闻访谈`
+### [11/7/2021 文贵直播：喜联储对中共最大的威胁是让其在数字货币时代丧失话语权](/content/gnews/9/README.md)
+ ` 秘密翻译组-北美组`
 
-### [文贵爆料 7/11: 留住喜币，草根也能笑傲江湖](/content/gnews/44/README.md)
- ` 秘密翻译组-原创组`
+### [前白宫顾问彼得·纳瓦罗： 福奇致命的刻意隐瞒应该让他穿上囚衣](/content/gnews/10/README.md)
+ ` 美国政要直译推`
 
-### [首位被引渡的中共间谍 法庭裁定罪成](/content/gnews/45/README.md)
- ` GTV新闻访谈`
+### [一则宗教豁免避开强制疫苗的经历](/content/gnews/11/README.md)
+ ` 纽约香草山MOS03`
 
-### [人性的扭曲——告密者](/content/gnews/46/README.md)
+### [研究显示三种中共病毒疫苗的效用正在 &#8220;急剧 &#8220;下降](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [奥地利针对未接种疫苗者的禁令即将生效 无视疫苗副作用](/content/gnews/13/README.md)
+ ` 日本东京方舟农场`
+
+### [得克萨斯州参议员克鲁兹提出禁止强制给未成年人注射疫苗法案](/content/gnews/14/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [反疫苗人士批评《芝麻街》主角大鸟对儿童进行政治宣传](/content/gnews/15/README.md)
+ ` 日本东京方舟农场`
+
+### [美国联邦上诉法庭对拜登政府的疫苗接种令发出冻结令](/content/gnews/16/README.md)
+ ` 日本东京方舟农场`
+
+### [CNN刊文污蔑班农先生](/content/gnews/17/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美前国防高官：中共政权之邪恶如同纳粹](/content/gnews/18/README.md)
+ ` 日本东京方舟农场`
+
+### [美国共和党全国委员会起诉联邦政府，要求停止强制 COVID-19疫苗令](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共第十九届六中全会或将是习近平最后的绝唱](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [银河快讯：日本地热发电站增加三倍；本田将在印度为三轮车提供电池共享](/content/gnews/47/README.md)
- ` 日本银河系农场-阿尔法星球`
+### [国际要闻汇编 11月7日](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [墙内要闻汇编 11月7日](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本要闻汇编 11月7日](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新中国联邦不是为了求人信任 我们是灭共的](/content/gnews/24/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [华夏视角系列之一：值喜币上市之际，谈战友之间的“三分清”](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [打了疫苗怎么办？如何提高谷胱甘肽水平？](/content/gnews/26/README.md)
+ ` 加拿大扬帆农场多伦多Gnews组 Himalaya Sailing Farm Toronto(CA)`
+
+### [美媒警示中共对美国的军事威胁日愈增长](/content/gnews/27/README.md)
+ ` HimalayaRussia`
+
+### [中共不允许老百姓购买数字货币的真正原因是什么？](/content/gnews/28/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [西班牙团队利用拉曼光谱分析法在所有疫苗中发现氧化石墨烯](/content/gnews/29/README.md)
+ ` 加拿大扬帆农场多伦多Gnews组 Himalaya Sailing Farm Toronto(CA)`
+
+### [墙内如何用身份证一次性过喜币KYC](/content/gnews/30/README.md)
+ ` 加拿大扬帆农场多伦多Gnews组 Himalaya Sailing Farm Toronto(CA)`
+
+### [观点：我们的气候变化战略不能依赖中共国](/content/gnews/31/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [盖特是支持言论自由，反对取消文化的人完美的地方](/content/gnews/32/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [11/7/2021文贵爆料: Kraken拥有国家银行执照，是加密货币领域最大的独角兽之一](/content/gnews/33/README.md)
+ ` 秘密翻译组-原创组`
+
+### [疫苗强制令引发的警告、诉讼和机场骚乱在全国层出不穷](/content/gnews/34/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [乌克兰人抗议接种疫苗，因为COVID病例激增](/content/gnews/35/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [疫苗可视作有预谋的、一级谋杀和种族灭绝](/content/gnews/36/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [欧盟等32国取消中共国贸易优惠待遇](/content/gnews/37/README.md)
+ ` 日本东京方舟农场`
+
+### [护士抗议者：“目前38个重症病人中有30个打了疫苗”](/content/gnews/38/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [纳瓦罗《在川普时代》一书中揭露福奇在白宫犯下的罪行](/content/gnews/39/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [罗伯特·肯尼迪呼吁全球罢工，维护自己的权利](/content/gnews/40/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [GTV新闻访谈简报|2021年11月7日早](/content/gnews/41/README.md)
+ ` 纽约香草山MOS01`
+
+### [美国联邦上诉法院冻结拜登政府的企业疫苗强制令](/content/gnews/42/README.md)
+ ` GTV新闻访谈`
+
+### [美两议员提议案支持立陶宛加强与台湾的关系](/content/gnews/43/README.md)
+ ` HimalayaRussia`
+
+### [中共的打土豪运动继续蔓延](/content/gnews/44/README.md)
+ ` GTV新闻访谈`
+
+### [文贵爆料 7/11: 留住喜币，草根也能笑傲江湖](/content/gnews/45/README.md)
+ ` 秘密翻译组-原创组`
+
+### [首位被引渡的中共间谍 法庭裁定罪成](/content/gnews/46/README.md)
+ ` GTV新闻访谈`
+
+### [人性的扭曲——告密者](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [【 #佳兆业 旗下理财产品未能如期兑付】](/content/gnews/48/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`

@@ -2,55 +2,36 @@
 ---
 
 
-## 打了疫苗怎么办？如何提高谷胱甘肽水平？
-` 加拿大扬帆农场多伦多Gnews组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1647098/)
+## 中共第十九届六中全会或将是习近平最后的绝唱
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1647129/)
 
-作者： 加拿大温哥华扬帆农场 Michael.Tonny
-![](https://assets.gnews.org/wp-content/uploads/2021/11/micheal1.jpg)*图片来源：zhuanlan.zhihu.com*
-疫苗含有氧化石墨烯，疫苗是一种毒药，疫苗是一个可怕的杀手！
+#### 作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-112.png)[*图片来源*](https://gdb.voanews.com/775A67DC-7296-4815-ACFB-69111EAD442D_w1597_n_r1_st.jpg)
+**中共本届《六中全会》一定是拿出台湾统一的时间表向党内施压。这将会是习近平挑战全党所有的政治斗争的最后一次绝唱，也将是中共最后的政治摊牌。**
 
-氧化石墨烯作为所有中共CCP疫苗的关键组成部分，它通过阻断谷胱甘肽来阻断体内解毒，已经导致大量细胞死亡、血液凝固、血小板聚集、凝血、细胞因子风暴、血栓形成、肺炎（流感样症状）、粘膜炎症、味觉和嗅觉丧失的疫苗后遗症惨痛案例。
+中共国新华社为11月8日即将召开的第十九届《六中全会》进行了所谓重点整理。文章透漏[从一届六中全会到十八届六中全会的所谓重点即毛泽东之后只有习近平](http://www.news.cn/politics/2021-11/07/c_1128040407.htm)。这基本符合外界所猜测的信息。
 
-西班牙阿尔梅里亚大学的生物化学家和研究人员们组成的La Quinta Columna研究团队，在2021年11月2日发表的75页分析报告已经证实，包含AstraZeca, Pfizer, Moderna, Sinovac, Janssen, Johnson & Johnson等所有公司生产的中共CCP病毒疫苗，均含有氧化石墨烯。
+文章称：2016年10月24日，中共十八届六中全会召开。全会通过《关于新形势下党内政治生活的若干准则》和《中国共产党党内监督条例》。明确习近平作为中共全党的核心地位，号召全党坚定不移维护党中央集中统一领导。并通过历史性的《决议》确立“习一尊”的地位，除毛泽东之外无他。
 
-有什么治疗方法可以帮助想要摆脱这种含有氧化石墨烯有毒物质的人？如何帮助打了疫苗的人的身体在导致血栓形成和心血管相关并发症之前消除多余的氧化石墨烯，除了伊维菌素和羟氯喹之外，主要使用N-乙酰半胱氨酸，也直接使用谷胱甘肽。
-
-La Quinta Columna研究团队的研究成果显示，N-乙酰半胱氨酸和谷胱甘肽肯定可以降解石墨烯，它通过抑制或减少细胞因子风暴起作用，消除血栓形成的凝血现象。谷胱甘肽可以还原氧化石墨烯，即消除氧化石墨烯。
-
-我们体内有天然的谷胱甘肽储备，如果接种CCP病毒疫苗之前已经接种过流感疫苗的人群，再接种CCP病毒疫苗，可能将过量氧化石墨烯引入他们的身体，氧化石墨烯在平衡中超过谷胱甘肽时，在短短几分钟内，这个人的谷胱甘肽水平急剧下降，他们就会晕倒。
-
-对数百名在 ICU 中使用呼吸器和插管的处于死亡边缘的患者进行临床试验，通过直接静脉注射（甚至口服）或 N-乙酰半胱氨酸 600 毫克或更高剂量的谷胱甘肽治疗时，人们在数小时内开始恢复氧饱和度。
-
-里卡多·德尔加多怀疑，6 月 17 日，世界卫生组织希望通过 FDA 禁止上市 57 年的N-乙酰半胱氨酸商业化，是因为N-乙酰半胱氨酸是使疫苗失效的因素。我们还被告知打了疫苗不要吃海鲜，但海鲜也会提高谷胱甘肽水平，因此奉劝读者，不要觉得官方消息就一定是对的。我们还被告知不应该进行尸检，但Pasquale Bacco 博士在意大利进行了尸检，看到血栓，进而找到氧化石墨烯是引起心血管病的元凶。
-除了服用N-乙酰半胱氨酸，补锌是一种提高谷胱甘肽水平最简便的方法。
-在一篇由B J Mills, R D Lindeman, C A Lang发表的题为《Effect of zinc deficiency on blood glutathione level缺锌对血谷胱甘肽水平的影响》论文中，三位研究员通过连续17 天对年轻、成熟的大鼠喂养缺锌饮食，和对照组中正常喂养的大鼠血液中谷胱甘肽浓度水平进行比较。得出血液中谷胱甘肽水平的降低是缺锌引起的重要结论。
-
-为此，La Quinta Columna研究团队就锌和氧化石墨烯之间的进一步研究成果显示，锌有助于提高谷胱甘肽水平，谷胱甘肽有助于降解氧化石墨烯。锌与谷胱甘肽有紧密关系，血液中锌的浓度越高，身体产生的谷胱甘肽就越多。
-
-锌可能需要γ-谷氨酰半胱氨酸合成酶 (GCL) 来合成谷胱甘肽。缺锌会导致细胞氧化剂增加，大脑中的谷胱甘肽代谢发生变化，神经元细胞退化，影响神经元细胞和大脑中的谷胱甘肽代谢。
-
-这意味着，如果疫苗副作用是由氧化石墨烯引起，那么，氧化石墨烯将消耗体内的还原剂，产生血栓等负面影响，最终导致细胞因子风暴。如果迅速提高谷胱甘肽水平，改变氧化应激，就应当可以降低CCP病毒感染者或苗苗族的死亡率和康复时间。
-
-西班牙塞维利亚的两名被迫接种疫苗的护士就是通过服用锌，身体的磁性在四五天之内就消失了。José Luis Sevillano 博士还提到，皮质类固醇也可以治疗这种疫苗后遗症。
-
-参考资料：
-
-- [La Quinta Columna: ‘N-Acetylcysteine, precursor of glutathione, reduces and oxidizes graphene oxide’](https://www.orwell.city/2021/07/NAC-glutathione.html)
-- [Reaction between Graphene Oxide and Intracellular Glutathione Affects Cell Viability and Proliferation](https://pubmed.ncbi.nlm.nih.gov/33428377/)
-- [La Quinta Columna: Zinc helps raise glutathione levels and glutathione helps degrade graphene oxide](https://www.orwell.city/2021/07/zinc-glutathione.html)
-- [Preventive treatment with antioxidants for graphene oxide detoxification](https://www.orwell.city/2021/07/preventive-treatment-with-antioxidants.html)
-- [Biodistribution and pulmonary toxicity of intratracheally instilled graphene oxide in mice（氧化石墨烯纳米粒子的合成和毒性：体外和体内研究的文献综述）](https://www.nature.com/articles/am20137)
-- [石墨烯健康风险研究现状及展望](http://www.pibb.ac.cn/pibbcn/ch/reader/download_pdf.aspx?file_no=20140112&amp;year_id=2015&amp;quarter_id=1&amp;falg=1)
-- [对于视频“西班牙科学家找到移出氧化石墨烯方法”的内容概述](https://zhuanlan.zhihu.com/p/399742534)
-- [Ecotoxicological impact of graphene oxide: toxic effects on the model organism Artemia franciscana†](https://pubs.rsc.org/en/content/articlelanding/2020/en/d0en00747a)
-- [Graphene Oxide Detox Protocols For The Vaxxed and Unvaxxed](https://ambassadorlove.wordpress.com/2021/08/24/graphene-oxide-detox-protocols-for-the-vaxxed-and-unvaxxed/)
-- [Synthesis and Toxicity of Graphene Oxide Nanoparticles: A Literature Review of In Vitro and In Vivo Studies](https://www.hindawi.com/journals/bmri/2021/5518999/)
+- ***延展阅读：***[***中共喉舌承认习近平主席策划与印度冲突***](https://www.republicworld.com/world-news/china/chinas-mouthpiece-admits-president-xi-jinping-planned-lac-conflict-with-india.html)
 
 
-* * *
+该文以1981年6月27日的中共十一届六中全会的召开为例，列举了第一届到十八届主要六中全会。其中提到了全会通过《关于建国以来党的若干历史问题的决议》。
 
-编辑/发稿： 云起时
+该《决议》概述了中共国成立32年来共产党的重大历史事件特别是肯定了“文化大革命”是重大探索，而非错误，并给毛泽东的历史地位重新正面评价，认为毛泽东思想作为党的指导思想的伟大意义，并一再肯定了毛的《决议》标志着“文革”成功的发动。
 
+- ***延展阅读：***[***中共六中全会决议将体现习近平如何希望树立其历史地位***](https://www.voachinese.com/a/afp-china-politics-xi-202111106/6302489.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+
+
+毋庸置疑，中共本届《六中全会》将再次以惊人之举，树立“习思想”，为了负众望，习近平一定是拿出统一台湾的时间表向党内施压。并一定会在政权难以为继之时发动真实版文革2.0，期待能“万岁”。
+
+郭文贵先生认为，“本届六中全会就是讲述所有的政治斗争的最后一次会议；所有六中全会确定的下一次两会上最后的政治摊牌。这次六中全会没有任何结果，主席副主席是连任没有人同意，这就是不确定性。”（见[2:26.30](https://gtv.org/video/id=6172b02683e948708d05c1b9%0a%0a)时段）
+
+2021年11月7日
+
+*编辑：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

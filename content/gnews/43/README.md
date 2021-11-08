@@ -2,34 +2,49 @@
 ---
 
 
-## 中共的打土豪运动继续蔓延
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1646699/)
+## 美两议员提议案支持立陶宛加强与台湾的关系
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1646714/)
 
-作者：英国喜庄园 – I770775
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月3日，据多家中共媒体报道，相声演员于谦旗下的矮马养殖公司被指隐瞒真实情况、弄虚作假，被列入经营异常名录。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-4.jpeg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/T.jpg)balticnewsdesk.com
+《台北时报》11月7日发表文章，题目“美国参议员提出决议案支持立陶宛促进与台湾关系的努力”。
 
-据了解，于谦的矮马养殖公司全称北京天精地华养殖有限公司，成立于2010年9月，经营范围包括家禽、家畜养殖，以及影视策划等。该公司的主推业务还包括设特兰矮马种群宠物公园，以及相关的儿童马术游乐园。
+全文如下：
 
-据有关人士分析，于谦早先从主流相声院团辞职，随后加入民间相声团体，鉴于中共演艺界与中共各派系间错综复杂的关系，再加上中共动荡不安的经济现状与党内愈演愈烈的内斗拼杀，中共的打土豪运动或将继续蔓延至中共国内的各个角落。
+两位美国参议员周五（11月5日）提出一项议案，支持立陶宛努力加强与台湾的关系，因为中共对对这个波罗的海国家改善与台北关系加大了压力。
 
-参考链接：[于谦养矮马的公司被列入经营异常：拥有国内最大设特兰矮马种群宠物公园](http://news.hexun.com/2021-11-05/204683829.html)
+此项提议是由美国参议院外交关系委员会成员、共和党参议员吉姆·里奇（Jim Risch）和参议院欧洲和地区安全合作外交关系小组委员会（the Senate Foreign Relations Subcommittee on Europe and Regional Security Cooperation）主席、民主党参议员珍妮·沙欣（Jeanne Shaheen）提出的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+该提议赞扬立陶宛加强与台湾的关系，承认立陶宛为凸显中共的恶意行为而采取的大胆步骤，并鼓励世界各国支持立陶宛，对抗中共的胁迫。
 
-总编：飞虹
-编辑：飞虹
-校正/发稿：谐趣园
+里奇在一份声明中说：“2021年7月20日，立陶宛政府宣布在其首都维尔纽斯（Vilnius）开设一个台湾代表处，自这一勇敢的决定以来，立陶宛一直面临着中共不可接受的经济报复。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+他说：“这项提案传达了一个信息，即当我们的朋友站起来反抗中共的恶意影响时，美国将支持他们。我赞扬立陶宛政府拒绝让其外交政策受外部势力的支配，我完全支持所有国家加强与台湾的关系。”
+
+立陶宛议会9月通过了一项法律修订案，为该国在没有正式外交关系的国家（如台湾）开设代表处铺平了道路。
+
+台北表示，它将在维尔纽斯开设一个名称中带有 “台湾 “字样的代表处，这与其他与它没有外交关系的国家的外国代表团形成鲜明对比。
+
+此后，北京对一些立陶宛产品实行禁运，并召回了立陶宛大使。
+
+提案说，中共阻止台湾有意义地参与国际组织，目的是在外交上孤立这个国家。
+
+这项提案只需要得到美国参议院的批准，因为它是美国国会表达意见的一种方式，对行政部门没有约束力。
+
+这是华盛顿支持立陶宛改善与台湾关系的最新努力。8月，美国国务卿安东尼·布林肯（Antony Blinken）在与立陶宛外交部长加布里埃尔·兰茨贝吉斯（Gabrielius Landsbergis）的通话中，将美国对维尔纽斯与台湾关系的支持描述为“铁板一块”。
+
+9月，布林肯在华盛顿会见了加布里埃利斯（Gabrielius），表示美国与立陶宛站在一起，反对来自中共的经济胁迫。
+
+（全文完）
+
+共同提案人是共和党的吉姆·里奇和民主党的珍妮·沙欣，说明在台湾问题上两党观点的一致性，不像对中共病毒溯源，民主党人几乎不动作，反而替中共掩盖。疫苗强制接种问题，民主党更像是在推波助澜。相信美国的系统，虽然遭受到了严重的侵蚀，系统还有强大的纠偏能力，一旦充分认识到中共的邪恶，立法者、精英层会像对待台湾一样，作出明智选择。
+
+原文链接：
+
+[https://www.taipeitimes.com/News/front/archives/2021/11/07/2003767455](https://www.taipeitimes.com/News/front/archives/2021/11/07/2003767455)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

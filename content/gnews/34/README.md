@@ -2,10 +2,10 @@
 ---
 
 
-## 美国务院声明美方“一个中国”政策有异于中共的版本
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1646918/)
+## 疫苗强制令引发的警告、诉讼和机场骚乱在全国层出不穷
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1646962/)
 
-11/04/2021 国务院发言人奈德·普莱斯声明美国将继续支持台湾的自卫行动的立场，并阐明美方的”一个中国 “政策有异于中共的版本。
+11/03/2021 NTD新闻：拜登政府的疫苗强制令引发的警告、诉讼和机场骚乱在全国层出不穷。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
