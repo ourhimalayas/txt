@@ -2,46 +2,45 @@
 ---
 
 
-## 中共国的侵略行为促使欧洲与台湾建立更紧密的联系
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1647695/)
+## 共产党无法渗透到喜联储更拿不到数字货币时代的话语权
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1647750/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1636252740-61873c44ad1a1.jpg)*（图片来自台湾总统办）*
-台北（台湾新闻）–上周欧洲议会官方代表团史无前例地访问了台北，该代表团团长说，中共国对台湾的侵略行为促使欧洲与这个岛国走得更近。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/98a132d56fc2de2e417fb299bfcef3de_副本.jpg)
+据[2021年11月07日 文贵大直播：爆料革命班农战斗室发起的百家私人企业起诉，第五法庭暂停拜登政府强制疫苗令的重大意义；虚拟币交易所，银行，币价，市值，估值与提现之间的关系；中共为了冬奥会，掩盖疫苗死亡真相；喜交所的私链技术针对灭共而设计，打破中共对虚拟币的垄断与控制](https://gtv.org/video/id=6187c5e211d186296802ed33)时间点3：51：26——
 
-周四（11月4日），欧洲议会外国干涉特别委员会主席拉斐尔·格鲁克斯曼 (Raphael Glucksmann ) ，在接受法国《解放报》采访时，提出了欧洲应加强对台湾支持的理由。
+**郭文贵先生：**第二个它更牛叉，千万别小看了共产党，说反过来我们要掌握了、控制了这个市场，掌握西方的数字货币的主导权，我们会去让所有的西方经济和安全掌握在我们手里，所以我们要掌握西方的数字货币的整个市场的去中心化后的话语权。
 
-他说，欧洲代表团于11月3日至5日对台湾的访问，旨在向世界发出一个信息，即“欧洲所有政治力量都承认与台湾交往的重要性”。
+哇塞，共产党牛着嘞，我这你都别碰，你的是我的，我的也是我的，来了！又来了，所以它比特币它和伊朗和华尔街嘎嘎地它就进去了，挖矿的人大多数最后都落到解放军手里。
 
-这位法国政治家认为，台湾通过整合智库、非政府组织和媒体，对中共国的虚假宣传活动做出了集体回应，令人印象深刻。他说，一个社会越有活力，它所拥有的对抗外部势力的力量就越大。
+然后你看到那个什么加拿大的那个币安公司的情报部门的赵长鹏完了，全完了，没了吧？看到了吧？七哥跟你说了吧？这全都收——人、钱全拿。然后在西方的数字的5G权力在我手里，我说让你涨就涨，我说让你降就降。
 
-当被问及欧盟如何从其转向更坚定地支持台湾中获益时，格鲁克斯曼表示，与民主国家结盟，反对威权主义不仅符合欧盟的利益，也是一个原则问题。“中共国的企图不仅限于台湾，不采取行动只会助长其日益增长的野心，”他认为。
+说到这儿的时候，你知道我们喜联储对共产党最大的威胁是什么？还真不是你想象它的钱能出来它害怕，我给你控制不就完了吗？它相信它自己能控制得了，——你出不去！
 
-格鲁克斯曼补充说，虽然欧盟无法保证台湾的安全，但它有许多其他选择来支持台湾，包括文化和经济交流。“我们越积极寻求与台湾的关系，如果中共政府试图入侵台湾，它所付出的代价就越大。”
+对它最大的打击是我们在外边的权力，就是你不可能渗透到喜联储，成为你的代言人，帮助你收集西方的金融技术，和跟你一起作恶。就是它勾织他了这一个所谓西方的数字货币时代到来的话语权，因为我们它做不到，这才是它最大的担心。
 
-这位官员告诉该报，欧洲议会将努力推动双边投资协议，并与台湾建立政治关系。
+（以下暂略）
 
-简评：
+撰稿：喜马拉雅的肉夹馍；
 
-年初欧洲小国立陶宛宣布退出北京出资主导的“17+1”论坛；8月份欧美等10多个国家的议会再发表共同声明，强烈谴责中共国。9月份呼吁欧盟制定对中共国新战略报告案，还支持欧盟与台湾谈判双边投资协定；11月份欧盟30多个国家宣布取消中共国“普遍优惠制”关税优惠待遇，同时欧盟代表团访问台湾对中共国再次探底线。
+审核：喜马拉雅的馍夹肉；
 
-新中国联邦的战友们都没有忘记郭先生曾经爆料，通过丹麦和英国的公关公司在英国和欧洲做了很多游说，以上种种现象有多少新中国联邦在背后工作的影响造成？只能等着未来揭秘得知。但从欧盟对中共国立场的转变，昭示着中共已经成为人人喊打的过街老鼠！CCP你完蛋了！
+校对：Maarago；
 
-新闻链接：[https://www.taiwannews.com.tw/en/news/4337554](https://www.taiwannews.com.tw/en/news/4337554)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-翻译/简评：Brianchow
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-PR：Julia Win
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-* * *
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-编辑：【英国伦敦喜庄园编辑部】
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

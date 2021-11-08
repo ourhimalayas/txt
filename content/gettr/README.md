@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/8/2021 8:22 AM (UTC)`
+
+11/8/2021 Miles Guo: New Federal State of China needs to guarantee the personal safety and wealth safety of our fellow fighters, as well as our ability to take actions. We want to create and enjoy wealth wealth with the elite and people with faith around the world! Pay attention to the two sessions of the CPC! Those who disbelieve, dare not believe, those who failed to follow the Whistleblowers’ Movement will regret it!<br/><br/>11/8/2021 文贵直播: 新中国联邦要保证战友的人身、财产安全和在全世界的行动力。我们要和全世界的精英和有信仰的人一起创造和享受财富！关注两会！那些不信、不敢信和未跟随爆料革命的人会后悔！
+![img](https://media.gettr.com/group17/getter/2021/11/08/08/22/aae3cea4-43be-c56b-9328-c53c168dfdaf/out.jpg)
+
+---
+
+`@miles 11/8/2021 8:13 AM (UTC)`
+
+11/7/2021 Miles Guo: The charm of the people of the NFSC is our commitment to truth and that we are faithful and taking down the CCP; the fellow fighters with conscience are everywhere, and they will surely be on the frontline of destroying the CCP; We will make our slogan “everything is just beginning” echo loudly over the Tiananmen Square, eradicate the fake, ugly, and evil of the CCP, and let the fellow fighters be the only one to enjoy the sceneries at the peak of the humanity<br/><br/>11/7/2021 文贵直播：新中国联邦人的魅力在于唯真不破、有信仰和灭共；有良知的战友无处不在，他们必将冲在灭共第一线；我们要让“一切都是刚刚开始”响彻天安门广场，抹平中共的假丑恶，并让战友们独享世界上最高的风光！<br/>
+![img](https://media.gettr.com/group25/getter/2021/11/08/08/13/97abb10d-2734-cf83-dc45-28c824c4273c/out.jpg)
+
+---
+
 `@miles 11/8/2021 6:06 AM (UTC)`
 
 11/7/2021 Miles Guo: The CCP is now increasing its infiltration to us and has launched insane cyber attacks on the Himalaya Exchange. Fellow fighters should keep an eye on anything suspicious<br/><br/>11/7/2021 文贵直播：目前中共正加大渗透，并对喜联储进行了疯狂的黑客攻击，面对风吹草动，战友们要睁大眼睛<br/>
@@ -283,20 +297,6 @@ Dr. David Wiseman: FDA打破了一个又一个规则，这绝对太离谱了。�
 
 11/3/2021 Miles Guo: Zhang Gaoli wanted to be the “emperor” of Communist China, and he and Xi have a personal grudge. So, Xi wants to eliminate him anyway; The CCP’s old kleptocrats like Zhang Gaoli who went through Culture Revolution have had prostitutes and committed rapes together with their wives disguised with so called “true love”<br/><br/>11/3/2021 文贵直播：张高丽是想当皇帝的人，他和习有个人恩怨，习非弄死他不可；张高丽等文革时代出来的中共老杂毛们打着谈恋爱的名义，和他们的老婆一起嫖娼、强奸
 ![img](https://media.gettr.com/group4/getter/2021/11/04/02/14/afaa63f0-b6b7-4632-6ea8-27d13b808346/out.jpg)
-
----
-
-`@miles 11/4/2021 2:03 AM (UTC)`
-
-10月3日：昔日救死扶伤的医院．变成了活人送葬场……这都是中国共产党犯下的滔天的罪行．共产党你完了。<br/><br/>【全美国的医院的急诊室灌满了疫苗心脏病。 https://www.zerohedge.com/medical/something-really-strange-happening-hospitals-all-over-america】
-![img](https://media.gettr.com/group12/getter/2021/11/04/02/bc109d1b-a5e1-6edb-6c9c-7b1c0fad8116/8e6830650b9df18e41d8add4e032d9ec.jpg)
-
----
-
-`@miles 11/4/2021 1:08 AM (UTC)`
-
-11/3/2021 Hao Haidong couple reveal: Guo Jingjing, a retired female champion diver, had condoms in her drawer when she was just about 10 years old in 1992<br/><br/>11/3/2021 郝海东夫妇爆料：92年十岁左右的郭晶晶在抽屉竟然放了避孕套！<br/>
-![img](https://media.gettr.com/group22/getter/2021/11/04/01/08/7207bb2d-219c-0693-e337-db0207da2d16/out.jpg)
 
 ---
 

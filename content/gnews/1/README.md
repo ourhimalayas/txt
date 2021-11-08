@@ -2,22 +2,30 @@
 ---
 
 
-## 秘翻在线：最近对美国发动攻击的黑客所用战术与中共国过去所用一致
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1647846/)
+## 疫苗灾情｜法国 34 岁世界纪录保持者接种疫苗后患上心脏病 职业生涯面临终结
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1647934/)
 
-#### 撰稿：彩虹
+**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 8/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2c82b8914a2be6279ef40e51a3db53e5.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-26.jpg)图片来源：Bleeping Computer
-11月7日，《新闻极限》（Newsmax）引述CNN报道，指疑似一伙国外黑客已经将攻击目标锁定为国防、能源、医疗保健、技术或教育行业等九个领域，而其中至少一个黑客（组织）在美国内部。
+【法国】今年 34 岁的 Florian Dagoury 是目前静态屏气自由潜水领域的世界纪录保持者，他在接种完第二剂辉瑞 COVID-19 疫苗的第 40 日，被诊断出患有心肌炎和心包炎。
 
-派拓网络（Palo Alto Networks）是总部位于美国加利福尼亚州圣克拉拉市的网络安全公司，该公司的高级管理人员瑞安·奥尔森（Ryan Olson）说，这九个被攻击的组织虽然只是“皮毛”，但任何与五角大楼有业务往来的承包商都坐拥一个潜在的信息库，“总的来说，即使该信息库不是机密信息，即使它只是关于业务是如何运作的信息，但这些信息对黑客来说还是非常有价值的”。
+这位旅居在泰国的法国籍优秀运动员过去以保持屏气 10 分 30 秒而闻名世界，最近他因屏气能力显著下降而求诊心脏科权威，才发现自己的职业生涯恐怕会因疫苗副作用而终结。
 
-派拓网络表示，这些黑客使用的战术与中共国黑客过去使用的战术一致。但是，到目前为止，国家安全局拒绝对这些黑客的身份发表评论。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_0056.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_0055.jpg)
 
-**新闻来源**
 
-[Hackers Target Sensitive Data With Multiple US Contractors](https://www.newsmax.com/us/hackers-china-unitedstates/2021/11/07/id/1043663/)
+以下是他分享在个人 instagram 上的贴文：
+
+*只是想分享下，我接种疫苗后的恼人经历，也许有其他的自由潜水者发生类似的故事，不知道你们有没有好转？ 接种第二剂疫苗后，我注意到我的心率远高于正常水平，并且我的屏气能力显著下降。睡眠期间，我的心率为 65-70bpm，而不是过去正常的 37-45bpm。白天，我现在总是超过 100bpm 而不是过去的 65bpm。即使我放松的坐着，有一次我只不过和朋友吃饭，心律达到了 177bpm !!!!  第二针之后第 10 天，我去看心脏病科专家，他告诉我这是辉瑞疫苗的常见副作用，不用担心，休息一下就会过去。 40 天后，我没有任何进展，我又去看了另一位心脏病科专家，被诊断出患有心肌炎、心包炎和微量二尖瓣反流！ 这是由免疫系统引起的心肌炎症和一些失去正常闭合功能的瓣膜血液回漏。 我的第一想法和建议是选择一种像 Sputnik（俄罗斯疫苗）、Sinovac（科兴）、Sinopharm（国药） 这样的采用原始方式研制的疫苗……而不是那些新的 mRNA 疫苗。*
+
+**小编提醒：中国大陆和香港普遍采用科兴和国药疫苗，不少人因此患上癌症、急性白血病、性勃起障碍、月经紊乱甚至猝死，不过被官方刻意掩盖。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗_0-1.jpg)
+* * *
+
+来源｜[个案058](https://www.instagram.com/p/CUrJkJ-FuFd/?utm_medium=copy_link)
 
  
 

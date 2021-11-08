@@ -15,107 +15,107 @@
 
 ---
 
-### [秘翻在线：最近对美国发动攻击的黑客所用战术与中共国过去所用一致](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [与病毒共存，日本“紧急宣言”新指标](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [国际要闻汇编 11月8日](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [11/7/2021中日财经爆：新股频频破发，觉醒“韭菜”加速逃离](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [芬兰封城介绍](/content/gnews/5/README.md)
- ` 澳喜农场`
-
-### [秘翻在线：扭扭捏捏 《新闻极限》表示反对强制接种中共病毒疫苗](/content/gnews/6/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [喜联储要打造一个消费系统闭环确保战友信息和财富安全](/content/gnews/7/README.md)
- ` NewFOC`
-
-### [自由集会在封锁条件下进行，这在北领地尚属首次](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
-
-### [喜币上市一周后的感想](/content/gnews/9/README.md)
- ` 澳喜农场`
-
-### [德国海军拟每两年向印太派遣舰船](/content/gnews/10/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [谈谈加密货币 比特币](/content/gnews/11/README.md)
- ` 加拿大扬帆农场多伦多视频组`
-
-### [喜币为灭共而生,喜币的私人区块链技术保证财富绝对安全](/content/gnews/12/README.md)
- ` NewFOC`
-
-### [共产党无法渗透到喜联储更拿不到数字货币时代的话语权](/content/gnews/13/README.md)
- ` NewFOC`
-
-### [有声| 中共病毒及其疫苗全球超限战中的典型案例（十七）](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [喜币虚拟货币是金融界的5G，去中心化去的就是共产党](/content/gnews/15/README.md)
- ` NewFOC`
-
-### [父母越来越担心将会被迫为幼儿接种疫苗](/content/gnews/16/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2021年11月7日郭先生盖特 — 视频盖特1「4分21秒」](/content/gnews/17/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [中共国的侵略行为促使欧洲与台湾建立更紧密的联系](/content/gnews/18/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [文·贵天成——文贵先生谈“吴征、杨澜”（二十一）](/content/gnews/19/README.md)
- ` 墨尔本雅典娜农场`
-
-### [呐喊](/content/gnews/20/README.md)
- ` 首尔天池农场`
-
-### [抵制选举后像僵尸一样梦游](/content/gnews/21/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [2021年11月5日郭文贵先生直播简报](/content/gnews/22/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [港闻前线｜《时代革命》日本公映 观众泪流满面 港人唏嘘“这是一场只剩下眼泪和痛苦的民主运动”](/content/gnews/23/README.md)
+### [疫苗灾情｜法国 34 岁世界纪录保持者接种疫苗后患上心脏病 职业生涯面临终结](/content/gnews/1/README.md)
  ` G&#124;News TAIWAN`
 
-### [前公安部副部长孙立军在中共六中全会前被正式批捕](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [DC大中华时事：中共评论赴美意愿走低](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [拜登与哈里斯的支持率一个比一个冷](/content/gnews/25/README.md)
+### [文·贵天成——文贵先生谈“吴征、杨澜”（二十二）](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [币圈新闻动态：喜交所每日提现限额将是10万美元](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [“双减”政策下，一家培训机构的故事](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [秘翻在线：最近对美国发动攻击的黑客所用战术与中共国过去所用一致](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [接种两剂疫苗的新州居民恢复自由，其他人则继续受限制](/content/gnews/26/README.md)
- ` 走进澳洲`
-
-### [小雨专栏】在路上041——大树篇](/content/gnews/27/README.md)
- ` 温哥华扬帆农场`
-
-### [愚蠢和无知终是害了自己的命](/content/gnews/28/README.md)
- ` 银河勇气之星`
-
-### [很多麻烦在等着扎克伯格的“元宇宙”计划](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [拜登的疫苗任务面临联邦工作人员的首次考验](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [又一P2P公司倒下](/content/gnews/31/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [11/7/2021中日财经爆：泛海爆雷，卢志强的“锅盖”不够用了](/content/gnews/32/README.md)
+### [与病毒共存，日本“紧急宣言”新指标](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/7/2021 文贵直播：北京上空飘的雾霾其中一定有焚烧每天死的人和畸形婴儿的尸体，全人类必将爆发疫苗大灾难](/content/gnews/33/README.md)
- ` 秘密翻译组-北美组`
+### [国际要闻汇编 11月8日](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [意大利卫生研究所大幅降低中共病毒官方死亡人数](/content/gnews/34/README.md)
+### [11/7/2021中日财经爆：新股频频破发，觉醒“韭菜”加速逃离](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [芬兰封城介绍](/content/gnews/10/README.md)
+ ` 澳喜农场`
+
+### [秘翻在线：扭扭捏捏 《新闻极限》表示反对强制接种中共病毒疫苗](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [喜联储要打造一个消费系统闭环确保战友信息和财富安全](/content/gnews/12/README.md)
+ ` NewFOC`
+
+### [自由集会在封锁条件下进行，这在北领地尚属首次](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
+
+### [喜币上市一周后的感想](/content/gnews/14/README.md)
+ ` 澳喜农场`
+
+### [德国海军拟每两年向印太派遣舰船](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [谈谈加密货币 比特币](/content/gnews/16/README.md)
+ ` 加拿大扬帆农场多伦多视频组`
+
+### [喜币为灭共而生,喜币的私人区块链技术保证财富绝对安全](/content/gnews/17/README.md)
+ ` NewFOC`
+
+### [共产党无法渗透到喜联储更拿不到数字货币时代的话语权](/content/gnews/18/README.md)
+ ` NewFOC`
+
+### [有声| 中共病毒及其疫苗全球超限战中的典型案例（十七）](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [喜币虚拟货币是金融界的5G，去中心化去的就是共产党](/content/gnews/20/README.md)
+ ` NewFOC`
+
+### [父母越来越担心将会被迫为幼儿接种疫苗](/content/gnews/21/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2021年11月7日郭先生盖特 — 视频盖特1「4分21秒」](/content/gnews/22/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [中共国的侵略行为促使欧洲与台湾建立更紧密的联系](/content/gnews/23/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [文·贵天成——文贵先生谈“吴征、杨澜”（二十一）](/content/gnews/24/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [呐喊](/content/gnews/25/README.md)
+ ` 首尔天池农场`
+
+### [抵制选举后像僵尸一样梦游](/content/gnews/26/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [2021年11月5日郭文贵先生直播简报](/content/gnews/27/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [港闻前线｜《时代革命》日本公映 观众泪流满面 港人唏嘘“这是一场只剩下眼泪和痛苦的民主运动”](/content/gnews/28/README.md)
+ ` G&#124;News TAIWAN`
+
+### [前公安部副部长孙立军在中共六中全会前被正式批捕](/content/gnews/29/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [拜登与哈里斯的支持率一个比一个冷](/content/gnews/30/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [接种两剂疫苗的新州居民恢复自由，其他人则继续受限制](/content/gnews/31/README.md)
+ ` 走进澳洲`
+
+### [小雨专栏】在路上041——大树篇](/content/gnews/32/README.md)
+ ` 温哥华扬帆农场`
+
+### [11/7/2021中日财经爆：泛海爆雷，卢志强的“锅盖”不够用了](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [11/7/2021 文贵直播：北京上空飘的雾霾其中一定有焚烧每天死的人和畸形婴儿的尸体，全人类必将爆发疫苗大灾难](/content/gnews/34/README.md)
+ ` 秘密翻译组-北美组`
 
 ### [哥斯达黎加宣布强制为儿童接种新冠疫苗](/content/gnews/35/README.md)
  ` GTV新闻访谈`
