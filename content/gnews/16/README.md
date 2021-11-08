@@ -2,59 +2,55 @@
 ---
 
 
-## 观点：我们的气候变化战略不能依赖中共国
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1646986/)
+## 打了疫苗怎么办？如何提高谷胱甘肽水平？
+` 加拿大扬帆农场多伦多Gnews组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1647098/)
 
-编译：七叶之芒
+作者： 加拿大温哥华扬帆农场 Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/micheal1.jpg)*图片来源：zhuanlan.zhihu.com*
+疫苗含有氧化石墨烯，疫苗是一种毒药，疫苗是一个可怕的杀手！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-107.png)图片来源： washingtonpost.com
+氧化石墨烯作为所有中共CCP疫苗的关键组成部分，它通过阻断谷胱甘肽来阻断体内解毒，已经导致大量细胞死亡、血液凝固、血小板聚集、凝血、细胞因子风暴、血栓形成、肺炎（流感样症状）、粘膜炎症、味觉和嗅觉丧失的疫苗后遗症惨痛案例。
 
-11月4日，中国国家主席习近平出现在上海一个媒体中心的巨型屏幕上。(路透社/Andrew Galbraith）（工作人员/路透社）。
+西班牙阿尔梅里亚大学的生物化学家和研究人员们组成的La Quinta Columna研究团队，在2021年11月2日发表的75页分析报告已经证实，包含AstraZeca, Pfizer, Moderna, Sinovac, Janssen, Johnson & Johnson等所有公司生产的中共CCP病毒疫苗，均含有氧化石墨烯。
 
-据报道，拜登政府在如何说服中共国在气候变化进行合作方面存在分歧。但中共国国家主席习近平明确表示他不感兴趣，至少目前是这样。美国需要转向一个对中共国有清醒认识的气候变化战略，而不是让美国的能源在未来依赖于与北京的良好关系。
+有什么治疗方法可以帮助想要摆脱这种含有氧化石墨烯有毒物质的人？如何帮助打了疫苗的人的身体在导致血栓形成和心血管相关并发症之前消除多余的氧化石墨烯，除了伊维菌素和羟氯喹之外，主要使用N-乙酰半胱氨酸，也直接使用谷胱甘肽。
 
-拜登总统上任时，他似乎相信自己可以与中共国主席建立密切的个人关系，从而改善日益坎坷的美中关系。但近一年来，拜登似乎意识到，习近平领导下的中共国已经发生了变化。即使在可能提供共同点的问题上，如气候变化，也基本上不可能进行合作。经过一年的真诚接触，拜登团队的所有努力都被回绝了。习近平甚至懒得出席在苏格
+La Quinta Columna研究团队的研究成果显示，N-乙酰半胱氨酸和谷胱甘肽肯定可以降解石墨烯，它通过抑制或减少细胞因子风暴起作用，消除血栓形成的凝血现象。谷胱甘肽可以还原氧化石墨烯，即消除氧化石墨烯。
 
-兰格拉斯哥举行的COP26气候峰会，或在罗马举行的20国集团会议。
+我们体内有天然的谷胱甘肽储备，如果接种CCP病毒疫苗之前已经接种过流感疫苗的人群，再接种CCP病毒疫苗，可能将过量氧化石墨烯引入他们的身体，氧化石墨烯在平衡中超过谷胱甘肽时，在短短几分钟内，这个人的谷胱甘肽水平急剧下降，他们就会晕倒。
 
-“中共国基本上没有出现在处理气候问题的任何承诺方面”，拜登在罗马的一次新闻发布会上说。“人们对此感到失望是有原因的。我自己也觉得很失望。”
+对数百名在 ICU 中使用呼吸器和插管的处于死亡边缘的患者进行临床试验，通过直接静脉注射（甚至口服）或 N-乙酰半胱氨酸 600 毫克或更高剂量的谷胱甘肽治疗时，人们在数小时内开始恢复氧饱和度。
 
-对于那些关注中共国国内近期发展的人来说，习近平的缺席并不令人惊讶。自从covid-19大流行病开始以来，中共国的终身主席没有离开过他的国家。他在国内有一个完整的计划。与此同时，习近平在清除他的对手；打击科技、金融、教育、游戏和房地产行业；将中国的核武库扩大四倍；用高压的政策统治着香港；威胁台湾；扩大对维吾尔族的暴行；压制新的病毒爆发；并且在准备2022年北京奥运会。
+里卡多·德尔加多怀疑，6 月 17 日，世界卫生组织希望通过 FDA 禁止上市 57 年的N-乙酰半胱氨酸商业化，是因为N-乙酰半胱氨酸是使疫苗失效的因素。我们还被告知打了疫苗不要吃海鲜，但海鲜也会提高谷胱甘肽水平，因此奉劝读者，不要觉得官方消息就一定是对的。我们还被告知不应该进行尸检，但Pasquale Bacco 博士在意大利进行了尸检，看到血栓，进而找到氧化石墨烯是引起心血管病的元凶。
+除了服用N-乙酰半胱氨酸，补锌是一种提高谷胱甘肽水平最简便的方法。
+在一篇由B J Mills, R D Lindeman, C A Lang发表的题为《Effect of zinc deficiency on blood glutathione level缺锌对血谷胱甘肽水平的影响》论文中，三位研究员通过连续17 天对年轻、成熟的大鼠喂养缺锌饮食，和对照组中正常喂养的大鼠血液中谷胱甘肽浓度水平进行比较。得出血液中谷胱甘肽水平的降低是缺锌引起的重要结论。
 
-在国内，习近平简直是在改写历史书，他建立了自毛泽东以来从未见过的个人崇拜。所有这一切的可信度取决于习近平继续中国的经济扩张，并执行民族主义-社会主义意识形态，抨击西方机构及其价值观。减少碳排放根本不在他的优先考虑之列。此外，与美国进行任何合作对他来说有着政治风险。
+为此，La Quinta Columna研究团队就锌和氧化石墨烯之间的进一步研究成果显示，锌有助于提高谷胱甘肽水平，谷胱甘肽有助于降解氧化石墨烯。锌与谷胱甘肽有紧密关系，血液中锌的浓度越高，身体产生的谷胱甘肽就越多。
 
-“我们经常犯这样的错误，即我们镜像并将我们的优先事项强加给他们，而事实并非如此”，美国外交政策委员会印太研究员迈克尔-索博利克说。“如果气候变化对拜登来说如此重要，他将需要把自己从他能与中共国做任何事情的观念中剥离出来。”
+锌可能需要γ-谷氨酰半胱氨酸合成酶 (GCL) 来合成谷胱甘肽。缺锌会导致细胞氧化剂增加，大脑中的谷胱甘肽代谢发生变化，神经元细胞退化，影响神经元细胞和大脑中的谷胱甘肽代谢。
 
-在拜登政府内部，一些官员如气候特使约翰-F-克里认为，整体关系必须得到改善，北京才愿意在气候问题上进行合作。其他官员如国家安全顾问Jake Sullivan坚持认为，中共国应该出于自身利益在气候方面进行合作。其结果是政策瘫痪。
+这意味着，如果疫苗副作用是由氧化石墨烯引起，那么，氧化石墨烯将消耗体内的还原剂，产生血栓等负面影响，最终导致细胞因子风暴。如果迅速提高谷胱甘肽水平，改变氧化应激，就应当可以降低CCP病毒感染者或苗苗族的死亡率和康复时间。
 
-现在，民主党众议院领导层正在搁置一项法案，以扩大对强迫维吾尔穆斯林和其他少数民族劳动的中国官员的制裁。这些领导人似乎相信中共国政府的说法，认为气候变化的进展需要对中共国的种族灭绝行为给予宽容。这不仅在道德上是错误的，而且在战略上也是愚蠢的。
+西班牙塞维利亚的两名被迫接种疫苗的护士就是通过服用锌，身体的磁性在四五天之内就消失了。José Luis Sevillano 博士还提到，皮质类固醇也可以治疗这种疫苗后遗症。
 
-只要中共国企业有强迫劳动产品的市场，其他国家（如美国）的竞争者就永远无法竞争。忽视这些暴行，只会让我们在未来更加依赖中共国的能源。通过打击中共国的人权侵犯行为，美国实际上可以增加其在发展未来产业方面的竞争优势。
+参考资料：
 
-“如果我们不打算坐等[中共]在气候变化问题上看到曙光，让我们向前迈进，解决他们构成的威胁，并剥夺他们利用一个种族灭绝的地区作为其‘一带一路’倡议的枢纽的能力”，索博利克说。
+- [La Quinta Columna: ‘N-Acetylcysteine, precursor of glutathione, reduces and oxidizes graphene oxide’](https://www.orwell.city/2021/07/NAC-glutathione.html)
+- [Reaction between Graphene Oxide and Intracellular Glutathione Affects Cell Viability and Proliferation](https://pubmed.ncbi.nlm.nih.gov/33428377/)
+- [La Quinta Columna: Zinc helps raise glutathione levels and glutathione helps degrade graphene oxide](https://www.orwell.city/2021/07/zinc-glutathione.html)
+- [Preventive treatment with antioxidants for graphene oxide detoxification](https://www.orwell.city/2021/07/preventive-treatment-with-antioxidants.html)
+- [Biodistribution and pulmonary toxicity of intratracheally instilled graphene oxide in mice（氧化石墨烯纳米粒子的合成和毒性：体外和体内研究的文献综述）](https://www.nature.com/articles/am20137)
+- [石墨烯健康风险研究现状及展望](http://www.pibb.ac.cn/pibbcn/ch/reader/download_pdf.aspx?file_no=20140112&amp;year_id=2015&amp;quarter_id=1&amp;falg=1)
+- [对于视频“西班牙科学家找到移出氧化石墨烯方法”的内容概述](https://zhuanlan.zhihu.com/p/399742534)
+- [Ecotoxicological impact of graphene oxide: toxic effects on the model organism Artemia franciscana†](https://pubs.rsc.org/en/content/articlelanding/2020/en/d0en00747a)
+- [Graphene Oxide Detox Protocols For The Vaxxed and Unvaxxed](https://ambassadorlove.wordpress.com/2021/08/24/graphene-oxide-detox-protocols-for-the-vaxxed-and-unvaxxed/)
+- [Synthesis and Toxicity of Graphene Oxide Nanoparticles: A Literature Review of In Vitro and In Vivo Studies](https://www.hindawi.com/journals/bmri/2021/5518999/)
 
-拜登政府不应该专注于说服中共国政府签署模糊的、不具约束力的承诺，而应该专注于建立一个国内气候变化产业，其供应线不通过中共国。
-
-在未来几十年里，美国及其合作伙伴将需要安全的太阳能电池板、半导体、电动汽车、稀土材料和更多产品的供应链。这将需要更多的前期投资，但从长远来看，它将创造更多的美国就业机会和更强大的国家安全。此外，这意味着在不成为“反人类罪行”的同谋的情况下拯救地球。
-
-我们必须始终敞开与中共国合作的大门，但不能以故意蒙蔽自己的现实情况为代价。中共国将按照自己的条件追求自己的发展。认为我们能在短期内改变这种情况是狂妄的。
-
-中共国在气候变化方面的失败不是克里的错，也不是华盛顿的中国鹰派的错。责任在于北京的决策者们。现在，美国的工作应是对中国所做的选择保持清醒的认识，并做出相应的回应。这是应对中共国挑战和气候挑战的最佳方式，这两个问题都不会很快好转。
-
-**简评：**
-
-**在习近平的傲慢之下，透露出了中共的无耻和无赖。美国应该更加清楚的认识到，中共从建党之初便是一个满口谎言的邪恶政体。它不会实现任何承诺过的事情。**
-
-**彻底认清中共的嘴脸，割断任何可能性的合作，也许才是最好的选择。因为如果你相信了一个骗子，那么在未来你的损失一定会比今天更大。**
-
-**新闻来源**：[washingtonpost.com][Opinion: Our climate change strategy can’t be dependent on China](https://www.washingtonpost.com/opinions/2021/11/04/climate-change-biden-xi-jinping-china-cooperation/)
 
 * * *
 
-*审核：Aries的星
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
+编辑/发稿： 云起时
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

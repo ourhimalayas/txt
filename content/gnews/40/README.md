@@ -2,36 +2,49 @@
 ---
 
 
-## 首位被引渡的中共间谍 法庭裁定罪成
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1646685/)
+## 美两议员提议案支持立陶宛加强与台湾的关系
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1646714/)
 
-作者：MOS – 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月5日，美国俄亥俄州开庭审理了一宗涉及中共的间谍案，案件当中，徐某是首位被引渡到美国受审的中共间谍。对此，联邦陪审团一致裁定，中共间谍徐某罪名成立。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-3.jpeg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/T.jpg)balticnewsdesk.com
+《台北时报》11月7日发表文章，题目“美国参议员提出决议案支持立陶宛促进与台湾关系的努力”。
 
-据悉，徐某被指控从美国航空企业盗取商业秘密，而美国司法部对其的控告罪名包括：阴谋和企图实施经济间谍行为，以及盗窃商业机密罪。
+全文如下：
 
-根据法庭文件显示，徐某曾使用多个身份进行间谍行为，其目标主要针对美国及海外的航空企业，试图盗取包含通用电气飞机引擎的复合材料叶片在内的各类航空相关技术。
+两位美国参议员周五（11月5日）提出一项议案，支持立陶宛努力加强与台湾的关系，因为中共对对这个波罗的海国家改善与台北关系加大了压力。
 
-FBI助理局长艾伦指出， “这是由国家主导的间谍行为，其目的在于试图摧毁美国的经济”。 助理司法部长墨菲也称赞了美国法庭的裁决。
+此项提议是由美国参议院外交关系委员会成员、共和党参议员吉姆·里奇（Jim Risch）和参议院欧洲和地区安全合作外交关系小组委员会（the Senate Foreign Relations Subcommittee on Europe and Regional Security Cooperation）主席、民主党参议员珍妮·沙欣（Jeanne Shaheen）提出的。
 
-参考链接：[Chinese spy convicted of trying to steal U.S. aviation secrets in historic trial](https://justthenews.com/government/security/chinese-spy-convicted-trying-stealing-us-aviation-secrets-historic-trial)
+该提议赞扬立陶宛加强与台湾的关系，承认立陶宛为凸显中共的恶意行为而采取的大胆步骤，并鼓励世界各国支持立陶宛，对抗中共的胁迫。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+里奇在一份声明中说：“2021年7月20日，立陶宛政府宣布在其首都维尔纽斯（Vilnius）开设一个台湾代表处，自这一勇敢的决定以来，立陶宛一直面临着中共不可接受的经济报复。”
 
-总编：Jack Li文阳
-编辑：Ivy001
-校正/发稿：谐趣园
+他说：“这项提案传达了一个信息，即当我们的朋友站起来反抗中共的恶意影响时，美国将支持他们。我赞扬立陶宛政府拒绝让其外交政策受外部势力的支配，我完全支持所有国家加强与台湾的关系。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+立陶宛议会9月通过了一项法律修订案，为该国在没有正式外交关系的国家（如台湾）开设代表处铺平了道路。
+
+台北表示，它将在维尔纽斯开设一个名称中带有 “台湾 “字样的代表处，这与其他与它没有外交关系的国家的外国代表团形成鲜明对比。
+
+此后，北京对一些立陶宛产品实行禁运，并召回了立陶宛大使。
+
+提案说，中共阻止台湾有意义地参与国际组织，目的是在外交上孤立这个国家。
+
+这项提案只需要得到美国参议院的批准，因为它是美国国会表达意见的一种方式，对行政部门没有约束力。
+
+这是华盛顿支持立陶宛改善与台湾关系的最新努力。8月，美国国务卿安东尼·布林肯（Antony Blinken）在与立陶宛外交部长加布里埃尔·兰茨贝吉斯（Gabrielius Landsbergis）的通话中，将美国对维尔纽斯与台湾关系的支持描述为“铁板一块”。
+
+9月，布林肯在华盛顿会见了加布里埃利斯（Gabrielius），表示美国与立陶宛站在一起，反对来自中共的经济胁迫。
+
+（全文完）
+
+共同提案人是共和党的吉姆·里奇和民主党的珍妮·沙欣，说明在台湾问题上两党观点的一致性，不像对中共病毒溯源，民主党人几乎不动作，反而替中共掩盖。疫苗强制接种问题，民主党更像是在推波助澜。相信美国的系统，虽然遭受到了严重的侵蚀，系统还有强大的纠偏能力，一旦充分认识到中共的邪恶，立法者、精英层会像对待台湾一样，作出明智选择。
+
+原文链接：
+
+[https://www.taipeitimes.com/News/front/archives/2021/11/07/2003767455](https://www.taipeitimes.com/News/front/archives/2021/11/07/2003767455)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
