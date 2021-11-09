@@ -2,34 +2,37 @@
 ---
 
 
-## 陕西下令民办学校以捐赠转让方式将学校交给政府
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1649879/)
+## 英首相约翰逊继续推广疫苗加强剂
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1649897/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片4-3.png)
-图片来自网络
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-140.png)图片来源：每日邮报
+**翻译：**小鱼儿
+**编辑：**Candy
 
-近期，陕西省政府出台新政策，要求民办义务教育学校以捐赠和转让等方式，将学校交给政府变为公立学校。
+目前约有十分之四符合条件的英国人未接种增强剂。英国首相鲍里斯·约翰逊说 ：有“太多”接种双剂疫苗的老人被送进医院，他敦促人们前去接受疫苗的增强针剂，因为增强剂能提供95%的保护。
 
-据《阿波罗新闻网》11月9日报道，今年8月，中共国教育部等八部门发布通知，规定公办学校不得参加民办学校教育。而仅仅两个月后，陕西省教育厅又进一步要求民办学校将学校捐给政府。
+传染病教授迈克·蒂尔德斯利（Mike Tildesley）博士说：Covid将会和流感一样，每年都持续循环。他警告说，这意味着人们的免疫力可能需要再次加强。
 
-据《华商报》网站报道，11月5日，陕西省政府举行“奋力谱写陕西高质量发展新篇章”系列新闻发布会第七场。陕西省教育厅副厅长高岭表示，该省将全面推进规范民办义务教育发展，鼓励民办义务教育学校举办者以捐赠、转让等方式，将学校交由地方政府办为公办学校，确保义务教育学位主要由公办学校或向政府购买服务提供。
+英国前疫苗部长纳齐姆·扎哈维（Nadhim Zahawi）称：增强剂可能每年都会发放。
 
-高岭还强调，要全面加强学校中党的建设，认真落实相关政策，按照党的教育方针办学立校、教书育人。
+鲍里斯.约翰逊今天警告说，前两剂疫苗在提供六个月的保护后，性能会大大减弱。约翰逊称，迄今为止已经发放的1000万个增强剂“非常有效”，它给人们提供的保护比单独的两剂高出95%。
 
-对此，熟悉中共国教育领域的评论人毕鑫在接受采访时表示，除了陕西省，河北省及北京市也在紧锣密鼓的进行所谓民办学校转公办的行动。
+约翰逊还敦促所有符合条件的人：50岁以上的人、健康者、社会护理工作者，16岁以上存在潜在健康问题的人则应在第二次接种后六个月再次接种加强针疫苗。
 
-毕鑫认为，这样做的大方向还是为了统一教育方式和方法，进一步统一思想教育。此外，毕鑫还认为，‘捐赠’和‘转让’就是用兼并的方式从民营企业手中抢占市场。而地方政府可以通过企业的奉献，向上一级政府申请专项教育费用。
+一位著名的政府顾问暗示，每年冬天可能都需要进行强化接种。纳齐姆·扎哈维也提出，疫苗将成为每年对抗中共病毒的一个策略。但其他专家表示，很可能不需要永无止境的加强剂循环，因为病毒总有一天会“淡出”。
 
-中共国的民办教育又名私立教育，与公办教育、公立教育的教育形式不同，民办学校不占政府财政性经费。
+英国迟缓的疫苗推广工作是由于人们对疫苗有效性的质疑，部长们也将原因归咎于人们不够积极主动。同时老年患者称他们无法通过电话预约，也不知道如何使用在线系统。
 
-对于中共官方以“规范民办义务教育”的名义，要求民办学校转移股权给政府所属机构，江苏宜兴时事评论人士张建平认为，目前，中共国的大气候是加强企业国有化，教育行业也不例外。然而在教育领域，公立学校本身就不具有教育公平这个前提，逼迫私企捐赠给政府是不理性的做法。
+**参考新闻：**[Boris Johnson warns ‘too many’ fully-vaccinated elderly Britons are ending up in hospital with Covid as PM urges nation to get their booster vaccine](https://www.dailymail.co.uk/news/article-10178297/Boris-Johnson-warns-fully-vaccinated-elderly-Britons-ending-hospital-Covid.html)
 
-上海某大学退休教师顾国平指出，陕西省政府对民办学校的要求，让人联想到中共建政初期的所谓公私合营。而迫使民办学校捐赠给政府，是为进一步控制社会、控制学校，专门给普通民众的子女洗脑，形成以党文化为中心的氛围，进一步控制意识形态。
+***发布：Candy***
 
-注：本文仅代表作者观点
-
-**新闻链接：**[https://www.aboluowang.com/2021/1109/1669519.html?utm\_source=dlvr.it&utm\_medium=twitter](https://www.aboluowang.com/2021/1109/1669519.html?utm_source=dlvr.it&amp;utm_medium=twitter)
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/Nz26pG64XF)[Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
