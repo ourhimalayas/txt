@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/9/2021 10:05 PM (UTC)`
+
+11/9/2021 Miles Guo: Only when the US stops the COVID vaccines, will the rest of the world call a halt to it. Our strategy hit the point! Today’s broadcast will witness another great moment since the cutoff of my live interview by VOA on April 19, 2017!<br/><br/><br/>11/9/2021 文贵直播: 只有美国叫停疫苗，全世界才会叫停疫苗。我们的策略直击要害！今天的直播会见证继四一九VOA断播事件后又一个伟大的时刻！<br/>
+![img](https://media.gettr.com/group19/getter/2021/11/09/22/05/eec8e95d-f838-feea-3858-d3c8bfdd3064/out.jpg)
+
+---
+
 `@miles 11/9/2021 9:07 PM (UTC)`
 
 11月9日：共产党的火葬事业已经开到全世界了，这真是全人类的悲哀。【英国殡仪业人士证实死婴堆积在太平间】
@@ -288,13 +295,6 @@ Starts with a Vision...
 
 2021年11月5日 文贵大直播：香港股市跌动与糟糕的中共经济；维洲共和党赢与台湾及爆料革命；张高丽玩弄女性与高层政治事件；喜联储独立法人商业运作与我们
 ![img](https://media.gettr.com/group22/origin/2021/11/05/12/41c406bb-be1b-c198-31d5-7946a859f12f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 11/5/2021 11:04 AM (UTC)`
-
-10月5号：尊敬的战友们好，今天星期五的大直播前．提前锻炼，因为今天没有时间锻炼了……任何情况下都不要给自己的承诺．和目标．找任何借口放弃！一切都已经开始！
-![img](https://media.gettr.com/group20/getter/2021/11/05/11/04/7d86519e-4ca0-00dc-9d75-fa11f74cacae/out.jpg)
 
 ---
 
