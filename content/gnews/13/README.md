@@ -2,52 +2,30 @@
 ---
 
 
-## 美国东亚事务新任助卿首次出访 只见盟友无意访华
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1649714/)
+## 有声|澳洲违反防疫规定且未缴纳罚款者 资产将被剥夺或扣押
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1649774/)
 
-作者：纽约香草山农场 – 飞虹
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月6日，媒体报道，在澳大利亚第二大州昆士兰州，居民若违反政府苛刻的防疫规定，又不能及时缴纳相应的罚款，其存在银行的钱、房子或其他资产将面临被政府剥夺的风险。
 
+自今年9月，昆州卫生厅要求昆州罚款执行登记处追查违反防疫规定的未付罚款。最新数据显示，有价值约一百万澳元的罚款尚未缴纳。当地媒体称，对这些人的执法措施可能包括扣押银行账户或工资、登记财产抵押或吊销驾照。另有媒体报道，预计这些极端措施也将在澳州其他地区实施，这可能给各州政府带来近一亿澳元的总收入。
 
+文字版原文：[澳洲违反防疫规定且未缴纳罚款者 资产将被剥夺或扣押](https://gnews.org/zh-hans/1648598/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+音频处理：喜山必胜Maverick
 
+发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-
-11月8日，美国新上任的负责东亚和太平洋事务的助理国务卿康达抵达东京，开始他上任后对该地区的首次访问。
-
-美国驻东京大使馆的推文说，康达当天与日本政府负责北美事务的官员举行了会谈，这将对地区和平与繁荣有积极作用，对应对当今最紧迫的挑战富有成效。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3.1-3.jpg)
-目前，中共在东中国海和南中国海的恶意扩张行为是美日同盟面临的最紧迫挑战。据了解，康达在东京访问三天后将在10日至12日访问韩国。
-
-康达精通中文，曾任白宫国安会亚太事务资深主任，曾三度被派驻北京。但康达此次亚洲之行，并未安排访华行程。
-
-参考链接：
-[美国东亚事务新任助卿首次出访 先访盟友未见访华安排](https://www.voachinese.com/a/us-top-diplomat-on-east-asia-visits-alliies-20211108/6304139.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：飞虹
-编辑：木白
-校对/发稿：为真不破20
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

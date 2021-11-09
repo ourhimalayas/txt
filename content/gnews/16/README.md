@@ -2,36 +2,49 @@
 ---
 
 
-## FDA和辉瑞公司隐瞒了COVID-19疫苗会导致儿童心肌炎的证据
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1649696/)
+## 台湾教育部下令驱逐“清华海峡研究院新竹办公室”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1649761/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/MGN_1280x960_10809C00-XDXMK.jpg)
+作者：纽约香草山医疗部 – 云豹
 
 
 
-图片来源：spokesman-recorder.com
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-#### 编译：小红帽
 
-辉瑞公司于今年10月被[托比-罗杰斯博士](https://tobyrogers.substack.com/p/ten-red-flags-in-the-fdas-risk-benefit)揭露，辉瑞在儿童身上的临床试验故意缩小规模以掩盖危害。这是制药业的一个众所周知的伎俩。今年夏天，美国食品和药物管理局（FDA）甚至呼吁辉瑞对此进行调查，并要求其扩大试验规模，而辉瑞公司选择忽略他们。
+11月8日，台湾教育部下令“清华海峡研究院新竹办公室”从即日起停用撤离，并停止租约。
 
-疫苗制造商使用的另一个伎俩是在短时间内监测试验参与者的不良事件。辉瑞公司只对第一组人群进行了两个月的不良事件跟踪，对第二组人群进行了17天的跟踪。但许多不良事件需要更长的时间才能显现出来。
+清华海峡研究院，是由清华校友会与中共厦门市政府、北京清华大学共同设立的。 该院在未经台湾政府许可的情况下，违法在新竹清华大学校园内租用房屋，设立了“清华海峡研究院新竹办公室”。
 
-如此短的观察期起到了掩盖对心脏的伤害的作用。辉瑞公司的研究似乎是为了掩盖心肌炎的危险。例如，他们使用私人的Optum健康声明数据库而不是公共的VAERS系统的数据来估计’过量’（读作：由注射引起的）心肌炎”。这确实很奇怪。为什么使用私人数据库而放弃使用政府管理的VAERS数据库？VAERS系统中有些东西显然是辉瑞公司和美国食品和药物管理局不想让人知道的。
+据了解，中共利用该办公室在台湾投资、揽才，并参与技术研发，以此渗透台湾教育领域。中共的渗透行为已违反了两岸的关系条例。检察单位目前正在进行调查中。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-33.jpg)
+参考链接：
+[教育部要求清華海峽研究院撤離 最重罰50萬元](https://www.cna.com.tw/news/firstnews/202111085005.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-**参考链接：**[The FDA and Pfizer Concealed Evidence That COVID-19 Vaccines Will Cause Myocarditis in Children – Great Mountain Publishing](https://greatmountainpublishing.com/2021/11/07/the-fda-and-pfizer-concealed-evidence-that-covid-19-vaccines-will-cause-myocarditis-in-children/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-***发布：小红帽***
+总编：飞虹
+编辑：木白
+校对/发稿：为真不破20
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
