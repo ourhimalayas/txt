@@ -2,36 +2,29 @@
 ---
 
 
-## 泽连科医生怒斥：新冠病毒是用来维持全球恐慌的人造生物武器
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651106/)
+## 传播疫苗真相，责无旁贷
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1651109/)
 
-作者：英国喜庄园 – I770775
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月2日，大胡子医生泽连科在媒体上再次公开发声，直指新冠病毒是“人为制造”的、用来维持全球恐慌的生物武器。
+**作者：**88JJ
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片186578.png)图片来源：GNEWS
+日本根据市民团体的要求，县政府公开信息显示，截至9月3日，大分县共有11例新冠疫苗接种后死亡病例，但我们不知道其因果关系。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-6.jpeg)
+该因果关系在“大分市民监察员”向大分县提出的信息公开请求中得到了澄清。据此，今年3月12日至9月3日，有461人向厚生劳动省报告，怀疑在大分县接种新冠疫苗后出现过敏性休克等副作用。其中，据报道有 11 名男性和女性在接种疫苗后死亡，其与疫苗接种的因果关系尚不清楚。
 
-泽连科医生表示，任何能够用来降低恐慌的东西，比如硫酸羟氯喹和伊维菌素等药物，以及任何具有常识的东西，还有任何可以弱化新冠病毒严重性的方法都被边缘化、被压制。另一方面，所有曝光真相的人或组织都会被卫生机构和各大医药公司诋毁。同时，各类对政府提出的质疑都会被媒体集体封杀。
+在本文后所附的链接中有日本雅虎的原文连接，可是被他们删除了，包括11月8日的日本超人气歌姬滨崎步晕倒之后，由于身体严重不适而取消了下周的音乐会，日本雅虎马上把她打了疫苗的网页链接删掉。
 
-泽连科医生强调，最关键的是，各国政府联合恐吓70亿人去接种有毒的死亡针剂，且但凡威胁到这个恐惧机制的东西都会被污名化。泽连科医生解释，政府为了维护这个机制，他们打压挽救生命的医药信息、截断获取救命药物的途径，并且封杀反对政府言论的医生。
+全世界大型媒体全都在极力隐藏疫苗接种后造成的身体伤害。
 
-泽连科医生认为，政府的所作所为就是为了强制推行死亡疫苗针剂的接种，但这些疫苗针剂会给人类带来血栓、心肌炎、流产，甚至引发潜在性种族灭绝的事件。
+文贵先生直接指出：只有美国停止强制接种疫苗，全世界的疫苗接种才会停止；如果美国不行动，这个世界永远都不会停止疫苗接种。
 
-参考链接：[https://www.gettr.com/post/pgeklt0aac](https://www.gettr.com/post/pgeklt0aac)
+感谢文贵先生，感谢爆料革命，带给我们希望和未来。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+编辑：卢卡斯
 
-总编：飞虹
-编辑：文特 
-校正/发稿：谐趣园
+发布：LILY
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+20211109
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
