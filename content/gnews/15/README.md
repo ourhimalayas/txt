@@ -2,29 +2,28 @@
 ---
 
 
-## 传播疫苗真相，责无旁贷
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1651109/)
+## 有声|喜联储可助台湾加入联合国
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1651176/)
 
-**作者：**88JJ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片186578.png)图片来源：GNEWS
-日本根据市民团体的要求，县政府公开信息显示，截至9月3日，大分县共有11例新冠疫苗接种后死亡病例，但我们不知道其因果关系。
+配音：香草山美食部-玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+11月5日，郭文贵先生在GTV大直播中谈到，只要联合国承认并邀请新中国联邦加入联合国，喜联储可以包揽联合国分摊给美国和中共国的、一年总共三、四十个亿美元的经费。台湾可以同新中国联邦一道加入联合国，这样台湾将会受到全世界的保护。
 
-该因果关系在“大分市民监察员”向大分县提出的信息公开请求中得到了澄清。据此，今年3月12日至9月3日，有461人向厚生劳动省报告，怀疑在大分县接种新冠疫苗后出现过敏性休克等副作用。其中，据报道有 11 名男性和女性在接种疫苗后死亡，其与疫苗接种的因果关系尚不清楚。
+11月1日，喜币成功上市。喜交所已吸引全球一千一百多家大机构加入。郭先生说，这几天多个大户注册喜联储帐户，说明他们要继续全球经济，而且中共没有真正攻打台湾的意图。
+近来美国共和党在各州大赢，对台湾是利好消息。如果中共胆敢攻打台湾，美国必定介入，后果会很严重，三分钟就将中共摧毁。当美国说要把台湾加入联合国的时候，世界各国将合法地保护新中国联邦和台湾，到时中共就将成为非法政权。
 
-在本文后所附的链接中有日本雅虎的原文连接，可是被他们删除了，包括11月8日的日本超人气歌姬滨崎步晕倒之后，由于身体严重不适而取消了下周的音乐会，日本雅虎马上把她打了疫苗的网页链接删掉。
+文字版原文：[喜联储可助台湾加入联合国](https://gnews.org/zh-hans/1648488/)
 
-全世界大型媒体全都在极力隐藏疫苗接种后造成的身体伤害。
-
-文贵先生直接指出：只有美国停止强制接种疫苗，全世界的疫苗接种才会停止；如果美国不行动，这个世界永远都不会停止疫苗接种。
-
-感谢文贵先生，感谢爆料革命，带给我们希望和未来。
-
-编辑：卢卡斯
-
-发布：LILY
-
-20211109
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

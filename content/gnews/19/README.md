@@ -2,36 +2,115 @@
 ---
 
 
-## NewsMax公开反对拜登政府的疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651071/)
+## 视频| 不打疫苗你就是人生赢家
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1651107/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月8日，NewsMax“唤醒美国”节目主持人罗布·芬纳蒂指出，拜登政府要求企业为员工接种新冠疫苗的规定是联邦权力的危险越权行为。为此，NewsMax坚决反对这项命令，并表示，没有人会被强制接种新冠疫苗，也不会有人遭遇被解雇的后果。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-6.jpeg)
+制作：香草山视频部
 
-NewsMax称，联邦政府此前从未有过为全国范围的公民强制接种疫苗的先例。显然，此次新冠疫苗强制接种命令是健康管理和职业安全部门利用权威，越过了传统的健康安全规定，是滥用权力的行为。
 
-Newsmax还提到，上周五，美国第五巡回上诉法院下令暂停执行新冠疫苗强制令，该媒体正在监控此案和其他法律行动的发展。 Newsmax认为，虽然法官声明该强制命令存在严重的法定和宪法问题，但在此案随后的听证会上，需要越来越多的公众觉醒并响应这一判决。
 
-评论人士提出，Newsmax是首家公开反对新冠疫苗强制令的媒体，而媒体明确的反对态度，对彻底取消新冠疫苗强制令将起到不容忽视的作用。
+你最后回答我们的战友一个问题
 
-参考链接：[Newsmax opposes Biden’s vaccine mandate, will not fire unvaccinated employees | Wake Up America](https://www.youtube.com/watch?v=sXnuQ3n8kRw)
+如果说未来我们有战友感染
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+你给他们的建议从感染的那一天
 
-总编：Irene木木 
-编辑：Kathy文艺 
-校正/发稿：谐趣园
+当然我们相信
+
+我们所有的战友都会做预防
+
+但是他很可能还会感染
+
+从感染的那一天到他的康复
+
+你会给一个怎样的建议？
+
+首先如果是被病毒感染
+
+并不是世界末日
+
+从某种意义上说是上帝给你一个机会
+
+让你建立一个最坚固的免疫系统
+
+天然免疫系统
+
+只不过你要经历一段痛苦的过程
+
+这是你要付出的代价
+
+但是你得到的会多于你受到的痛苦
+
+因为你一旦被病毒感染了以后
+
+只要你用药及时
+
+控制病毒复制期
+
+也就是病毒感染的前12天~14天
+
+这个阶段特别特别重要
+
+因为一旦控制了病毒控制的载量和数量
+
+也就意味着病毒没有机会产生那么多的碎片
+
+引起以后的巨大的免疫细胞因子风暴
+
+也就是从一开始就控制这个野兽
+
+把它控制在笼子里
+
+这样的话你即得到了最好的免疫力
+
+同时也不会受到那么多的痛苦
+
+而且你建立起了这个免疫力
+
+可以让你很健康的..
+
+可以说是终生可以
+
+因为对冠状病毒的自然保护是终身的
+
+尽管现在只有20多个月的疫情
+
+但是按照免疫学的肌理
+
+和现在我们得到的这些精确数据
+
+可以看到可能是个终身免疫的过程
+
+所以千万不要打疫苗
+
+被感染了不是世界末日
+
+只要你及时医疗
+
+控制并发症
+
+你是人生赢家
+
+
+
+*发稿：雪梨*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

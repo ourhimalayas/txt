@@ -2,33 +2,36 @@
 ---
 
 
-## 台湾一男子接种辉瑞疫苗后身体不适数日后身亡
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1650990/)
+## 中共十九届六中全会秘密召开
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651029/)
 
-**撰稿：日本东京方舟农场  Kevin wang**
+作者：英国喜庄园 – I770775
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月8日，中共第十九界六中全会在京西宾馆秘密召开。消息称，此次六中全会会期共四天，议题除了总结所谓的百年“成就与经验”外，还要审议通过中共第三份“历史决议”。
 
-据《苹果新闻网》报道，台湾一名邱姓男子在接种辉瑞疫苗后身体不适，数日后身亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-5.jpeg)
 
-报道称，这位邱姓男子于10月26日接种了辉瑞疫苗；11月1日曾对房东表示其在接种辉瑞疫苗后感到身体不适；11月5日，房东去收租时发现邱姓男子已经死亡。
+据了解，中共历史上的前两份历史决议分别于1945年和1981年审议通过，两次先后树立了毛泽东和邓小平在中共党内的绝对权威地位。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-45.png)图片来自网络
+评论人士指出，第三份历史决议或将为习近平在中共“二十大”前巩固权力提供有力保证。
 
-警方在调查后表示，因屋内没有打斗痕迹和遗书等，不排除与接种疫苗有关。
+对此，郭先生此前在直播中提及，此次“六中全会”将决定中国的未来是“北朝鲜化”，还是“国际化”。而习本人则力主私人企业国有化，将民众的财产盘剥到底。
 
-*参考链接：*
+参考链接：[中共六中全会登场 高层密会审议“历史决议”](https://www.epochtimes.com/gb/21/11/8/n13360344.htm/amp)
 
-[打BNT疫苗身體不適　桃園男陳屍租屋處](https://tw.appledaily.com/local/20211108/A47AEBUTQFE5FITHFUJHOSTYKQ/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-* * *
+总编：Irene木木
+编辑：Irene木木 
+校正/发稿：谐趣园
 
-
-```
-素材采编：Kevin wang
-编辑：青衣青青
-校对/发布：Ranting
-```
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
