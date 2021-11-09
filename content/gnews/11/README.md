@@ -2,23 +2,44 @@
 ---
 
 
-## 加拿大卫生部前药物顾问关于新冠疫苗监管问题
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1651476/)
+## 加文纽森在哪里？
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1651582/)
 
-作者：Tamara Ugolini
-翻译：HimaBoy
+作者：Ian Miles Cheong
+翻译：Himasally
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Interview.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Governor.png)
 
-本次采访中的匿名嘉宾此前曾与加拿大卫生部合作进行药品监管和审查，因为此与市场药品的营销和定价有关。她拥有药学博士学位和药学学士学位，我们一起剖析了最近英国医学杂志举报人发表的关于德克萨斯实验室监管不当行为的文章，该实验室负责进行辉瑞的一项临床试验。
+加州州长加文纽森失踪了，他的妻子詹妮弗·西贝尔·纽瑟姆发了一条神秘的推文，她立即删除了。纽瑟姆在今年早些时候的州长罢免选举中获胜，大约两周没有公开露面。
 
-我们还将讨论可能发生的潜在致命的问题和不一致的制造过程，例如导致三批莫德钠新冠疫苗因不锈钢污染物而在日本暂停的问题。早在 3 月份，加拿大卫生部就继续推进阿斯利康进口，总量的近三分之二来自一家被 FDA 指控存在质量控制问题的实验室。美国食品和药物管理局没有向美国市场发布该实验室生产的任何疫苗，但加拿大卫生部做到了。
+纽瑟姆本应参加在格拉斯哥举行的 COP26 气候峰会，但未能出席，理由是“家庭义务”是他奇怪缺席的原因。据《每日邮报》报道，他唯一的一次露面是在 11 月 1 日与妻子和孩子们在 Instagram 上发布的一张万圣节照片。他最后一次公开露面是在 10 月 27 日，当时他在奥克兰接受了新冠疫苗的加强注射。
 
-鉴于其中的一些背景，我们还深入研究了辉瑞从 2021 年 3 月开始泄露的文件，其中显示了制造问题和质量控制问题。这些质量问题可能有助于解释为什么有些人比其他人更容易出现疫苗不良反应。我的客人还提到了欧洲医学协会 (EMA)于 2020 年 12 月进行的审查，该审查于 2021 年 2 月更新，其中描述了与成品质量有关的所有问题：纯度、截断种类、批次间标准等。 EMA 文件36-41 是必须满足的特定义务，然后是建议。
+纽森的办公室没有回应美联社关于州长上周缺席的进一步询问。
 
-我们结束了对我的客人的采访，他敦促暂停，彻底审查监管问题，并停止对这种不确定和复杂的产品进行不分青红皂白的授权。
+萨克比记者索菲亚·波拉格写道：“加文纽森的办公室拒绝说明是什么’家庭义务’导致他取消了在苏格兰参加联合国气候变化大会的行程 。” “似乎这就是他的妻子，第一合伙人詹妮弗·西贝尔·纽瑟姆在这里所指的。”
 
-來源：[https://www.rebelnews.com/interview\_former\_health\_canada\_pharmaceutical\_adviser\_on\_regulatory\_issues\_with\_covid\_vaccines](https://www.rebelnews.com/interview_former_health_canada_pharmaceutical_adviser_on_regulatory_issues_with_covid_vaccines)
+波拉格随后发布了西贝尔纽森现已删除的推文截图，内容如下：
+
+有趣的是，某些人无法处理真相。当有人取消某事时，也许他们只是在办公室工作；也许在他们的空闲时间，他们是在家里和家人在一起，在孩子们的体育比赛中，或者和他们的妻子出去吃饭。请停止仇恨并获得生活。
+
+
+
+> Her tweet was deleted, but here’s a screenshot [pic.twitter.com/9neU0Z66mX](https://t.co/9neU0Z66mX)
+> — Sophia Bollag (@SophiaBollag) [November 8, 2021](https://twitter.com/SophiaBollag/status/1457572897443090432?ref_src=twsrc%5Etfw)
+
+
+
+纽森女发言人艾琳梅隆此前在一份声明中写道：“由于家庭义务，纽森州长将不再参加 2021 年联合国气候变化会议（COP26），而是以虚拟方式参加，重点关注加州具有里程碑意义的气候变化政策。”
+
+在萨克拉门托蜜蜂报：
+
+现在由州长埃莱尼·库纳拉基斯率领的加州代表团仍将参加会议。15 名议员仍计划与纽瑟姆政府的几名成员一起离开，其中包括环境保护部长贾里德·布卢门菲尔德和自然资源部长韦德·克劳福特。
+
+梅隆说，纽森的妻子、第一合伙人詹妮弗·西贝尔·纽瑟姆也取消了参加会议的行程。
+
+世界各国领导人正在苏格兰开会讨论减缓全球变暖步伐的战略。在州长取消之前，前州长杰里·布朗和环保活动人士表示，纽森将发挥重要作用，将金州减少温室气体排放的雄心勃勃的政策作为其他政府的榜样。
+
+來源：[https://www.rebelnews.com/where\_is\_gavin\_newsom\_california\_governor\_skips\_un\_missing\_since\_october](https://www.rebelnews.com/where_is_gavin_newsom_california_governor_skips_un_missing_since_october)
 
 （文章仅代表作者个人观点）
 
