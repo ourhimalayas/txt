@@ -2,20 +2,22 @@
 ---
 
 
-## 日本前教育部长：中国人权问题很严重
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1650530/)
+## 中共用户籍制度囚禁国人
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1650623/)
 
-撰稿：东京樱花团/黑猫
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-60.jpg)[图片来源](https://www.thepaper.cn/newsDetail_forward_15186183)
-日本前教育部长林芳正先生11月8日晚在BS富士电视台节目中，就中国新疆维吾尔自治区和其他地区的人权问题时强调说：“无论你怎么看，这都是一个我们应该认真关注的问题。 基本人权在中国也必须得到保障”。 林芳正先生有望被任命为将于11月10日就职的第二届岸田内阁的外交部长。
+#### 撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-61.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2FE6C8%2Fproduction%2F_120608095_52787ce8-bf52-4dc8-8eaf-11ad4665a748.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fbusiness-58599269&amp;tbnid=ChAQjwN3UnxKlM&amp;vet=12ahUKEwjH2vfti4v0AhUhzIsBHXt-BqsQMygAegUIARCuAQ..i&amp;docid=BNPQ2IObg3XV5M&amp;w=640&amp;h=360&amp;q=%E6%BE%B3%E9%97%A8&amp;ved=2ahUKEwjH2vfti4v0AhUhzIsBHXt-BqsQMygAegUIARCuAQ)
+11月9日央视新闻客户端消息，澳门特区公报11月8日刊登行政长官批示，规定非居民入境并在澳门逗留须具备的资产证明金额，其中提到，逗留不超过7日者，需具备最少5000澳门元。该批示将于11月15日生效。
 
-林芳正先生是日中议会友好联盟的主席。 在回答关于自民党内有人担心林先生可能与中国走得太近的说法时，他说：“（自民党内）有一个‘面向中国’的派别是可以的，但我们决不能成为中国的奉承者”。 他还说：“在谈判时，充分了解对方总比完全不了解对方要好”。
+根据批示，年满18岁的非居民入境澳门时应证明拥有可持续满足其本人及家庭成员在食物、住宿、医疗卫生方面基本需求的适当资源。若利害关系人证明持有以下所订金额的现金、旅行支票或可转让证券等无记名可转让票据，或以获澳门特区接纳的电子钱包方式及其他类似电子支付工具拥有货币，推定其具有适当资源：（一）逗留不超过7日者，最少5000澳门元；（二）逗留7日以上但不超过14日者，最少10000澳门元；（三）逗留14日以上但不超过21日者，最少15000澳门元；（四）逗留21日以上者，最少20000澳门元。作为利害关系人家庭成员入境澳门特区，上款所指金额按每人增加80%计算。
+
+这一政策施行，是针对内地大陆居民，其含义是外地人来澳门最低消费5000元，需要证明自己的账户最低有5000元，连5000都没有的不能来澳门，携带多少钱决定在澳门多久是错误的，大陆居民只能停留七天。而非内居民，则可以停留30天，这一政策是给外籍人开放，中共国在这片土地实施的政策，比封建社会的保甲制度严密百倍的户籍管理制度，不仅囚禁了国人的肉身裹足禁行，还囚禁洗脑了国人的思想，禁止思考反省。
 
 信息来源：
 
-[林元文科相、中国人権問題に懸念「どう考えても深刻」 – 産経ニュース (sankei.com)](https://www.sankei.com/article/20211109-PVLX7JLQMFLRXAQNCPF4GHVZ2Y/?utm_source=coins&amp;utm_medium=push&amp;utm_campaign=COINs)
+[非居民入境澳门11月15日起须出具资产证明](https://ms.mbd.baidu.com/r/w43uxDJBHq?f=cp&amp;rs=3431412490&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=1b0bb0dc2720d6fc)
 
-*编辑：东京樱花团/喜马拉雅的微尘
+*校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
