@@ -2,22 +2,20 @@
 ---
 
 
-## 应对中共攻台，日本将在与那国岛部署电子战部队
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1650348/)
+## 日本前教育部长：中国人权问题很严重
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1650530/)
 
-#### 撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/45-43.png)[图片来源](https://www.voachinese.com/a/japan-to-deploy-electronic-warfare-unit-on-island-to-monitor-taiwan-strait-20211109/6304703.html)
-美国之音11月9日消息，日本防卫省决定向冲绳县与那国岛现有的陆上自卫队驻屯地增加部署编制约70人的“电子战部队”，以便在台湾海峡与尖阁诸岛（中国称钓鱼岛）出现紧迫情势时，加强情报收集能力。防卫省计划于2023年底完成部署。
+撰稿：东京樱花团/黑猫
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-60.jpg)[图片来源](https://www.thepaper.cn/newsDetail_forward_15186183)
+日本前教育部长林芳正先生11月8日晚在BS富士电视台节目中，就中国新疆维吾尔自治区和其他地区的人权问题时强调说：“无论你怎么看，这都是一个我们应该认真关注的问题。 基本人权在中国也必须得到保障”。 林芳正先生有望被任命为将于11月10日就职的第二届岸田内阁的外交部长。
 
-台湾自由时报引述日本冲绳时报的报道说，防卫省在2022年度的预算概算要求中编列了约31亿日元（约合2739万美元），在与那国岛建造电子战部队的办公室和宿舍等设施。报道说，日本增加部署的电子战部队人数约为50至60人，加上陆上自卫队设施科员10人，全部编制大约为70人的规模。
-
-冲绳时报报道指出，日本电子战部队配备车载型网络电子战系统，可以进行电波收集、分析和敌方通信干扰等功能。报道说，与日本相邻的中国和俄罗斯都在提高电子战能力，防卫省希望通过加强电磁波新领域的应对能力，提高日本西南地区的防卫态势。
+林芳正先生是日中议会友好联盟的主席。 在回答关于自民党内有人担心林先生可能与中国走得太近的说法时，他说：“（自民党内）有一个‘面向中国’的派别是可以的，但我们决不能成为中国的奉承者”。 他还说：“在谈判时，充分了解对方总比完全不了解对方要好”。
 
 信息来源：
 
-[因应台海不测事件，日本拟在与那国岛部署电子战部队](https://www.voachinese.com/a/japan-to-deploy-electronic-warfare-unit-on-island-to-monitor-taiwan-strait-20211109/6304703.html)
+[林元文科相、中国人権問題に懸念「どう考えても深刻」 – 産経ニュース (sankei.com)](https://www.sankei.com/article/20211109-PVLX7JLQMFLRXAQNCPF4GHVZ2Y/?utm_source=coins&amp;utm_medium=push&amp;utm_campaign=COINs)
 
-*校对：东京樱花团/喜马拉雅的微尘
+*编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  

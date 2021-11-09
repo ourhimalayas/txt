@@ -2,44 +2,25 @@
 ---
 
 
-## 加密货币对冲通胀，市值已飙升至3万亿美元
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1650813/)
+## 加拿大卫生部顾问呼吁停止疫苗接种
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1650920/)
 
-**编译报导：文泓**
+采编：文明， 编译撰稿：苦尽甜来 (文来）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image1-8.png)**图片来源：CFO & CoinDesk**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/aa-edited.jpeg)图片来源：TN
 
 
-11月9日，当整个加密货币（交易）市值超过3万亿美元的几个小时后，比特币价格已经创下了惊人的历史新高。
+据加拿大自媒体【反判新闻】11月6日报道，曾与加拿大卫生部合作进行药品监管和审查的医药顾问，拥有药理学学士和博士双学位的匿名嘉宾，在当天接受该媒体采访时透露，当局曾讨论过其目前所推广的“新冠病毒疫苗”可能造成致命性后果的潜在健康问题。
 
-澳洲东部时间周二上午10点刚过，加密货币龙头品种比特币价格达到67,777美元。
+该爆料者指出，早在今年3月，由【加拿大卫生部】批准的“阿斯利康疫苗”的近三分之二数量来自一家曾被【美国食品和药物管理局】指控存在严重质量控制问题的实验室。这意味着加拿大政府允许进口并使用存在巨大安全隐患的不合格疫苗。
 
-根据加密货币专业研究网站CoinDesk的数据，在过去24小时内（比特币）上涨了4.4%。在2018年12月，它的售价仅为3424美元。
+另外，从不久前【辉瑞公司】泄露的内部文件中，同样清晰显示了其疫苗的制造缺陷和质量控制问题，包括产品纯度、截断种类、批次间标准等。这些都无疑解释了为什么有些接种者比其他人更容易出现疫苗不良反应的现象。为此，该嘉宾强烈呼吁，当局应立即停止对这些不确定和高风险的违规疫苗产品进行不负责任的授权接种。
 
-根据周一晚间的统计，随着主流投资者越来越多地加入进来，世界加密货币市场价值首次超过3万亿美元。
+* * *
 
-专业公司CoinGecko表示，加密货币市场价值已经达到3.007万亿美元，该公司追踪1万多种加密货币的价格。
+校对编辑，发稿：硫酸羟氯喹64
 
-“加密货币市场正在以令人震惊的速度增长，”瑞讯银行分析师指出。
-
-“当然存在投机，但有真实的投资者”，她说：“加密货币现在正在向传统金融进军，（似乎）每个人都在加入。”
-
-以太坊是市值第二大加密货币，本周一也创下了4768美元的历史新高。
-
-一些投资者将加密货币视为对冲通货膨胀的工具，随着世界经济经历疫情封锁后的重新开放，通货膨胀在全球范围内激增。
-
-市场分析师苏珊娜·斯特里克周一也表示，“最近加密货币的飙升……部分因素是投资者扎堆进入，将其视为对冲通货膨胀的工具”。
-
-原文链接：[Bitcoin price hits new high, Ethereum price surge sees crypto market cap soar past $3 trillion | news.com.au — Australia’s leading news site](https://www.news.com.au/finance/markets/bitcoin-ethereum-price-surge-sees-crypto-market-cap-soar-past-3-trillion/news-story/eab3d2e31614df94884c6cd703486e5e)
-
-发布：Janek
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[原文链接：](https://www.rebelnews.com/interview_former_health_canada_pharmaceutical_adviser_on_regulatory_issues_with_covid_vaccines)
 
  
 

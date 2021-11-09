@@ -2,27 +2,36 @@
 ---
 
 
-## 秘翻在线： 集权的金融业 抓不完的贪官
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1650942/)
+## 中共十九届六中全会秘密召开
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651029/)
 
-**撰稿：葛大饼**
+作者：英国喜庄园 – I770775
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月8日，中共第十九界六中全会在京西宾馆秘密召开。消息称，此次六中全会会期共四天，议题除了总结所谓的百年“成就与经验”外，还要审议通过中共第三份“历史决议”。
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-09-222229.jpg)图片来源：鸿瑞股票网
-根据2021年11月8日新浪报道， 近日光大银行南宁分行原行长周江涛被“双开”， 同日被“双开”的还有光大城乡环保有限公司原总经理陈鹏，两人此前都是光大系统里的资深职员。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-5.jpeg)
 
-新闻称自2021年以来，目前已至少有20位来自国有大行、政策性银行、股份行的高管被查，其中有12位来自各分行的“一把手”，而违规批贷成为金融腐败重灾区。
+据了解，中共历史上的前两份历史决议分别于1945年和1981年审议通过，两次先后树立了毛泽东和邓小平在中共党内的绝对权威地位。
 
-造成这种现象的主要原因是中共国的融资结构以间接融资为主，大部分企业资金来源于银行贷款。银行信贷作为资金提供的主要渠道，而银行的高层往往是是人权、事权、财权的最终责任人，可以直接决定或影响员工岗位、薪酬、职务等，这种体制下容易形成一言堂，权力集中的局面，银行高层也容易被金融腐败。
+评论人士指出，第三份历史决议或将为习近平在中共“二十大”前巩固权力提供有力保证。
 
-如何改变则金融行业这种现状，上中纪委刊发文章指出，要推动完善“分级、分权、规避、制衡”的授信审批机制，对关键岗位履职用权形成有效制衡。
+对此，郭先生此前在直播中提及，此次“六中全会”将决定中国的未来是“北朝鲜化”，还是“国际化”。而习本人则力主私人企业国有化，将民众的财产盘剥到底。
 
-中共国企业的现金流非常紧张，很多企业都是靠银行贷款续命，笔者国内有家人做私人企业，经常为了弄贷款要请银行领导吃饭喝酒。十来年前有个亲戚曾经贷款接近一个亿，后来因为各银行都迟迟不给贷款直接破产了，厂房各种财产均被政府和银行没收拍卖，那么多钱是追不回来了，那些钱是谁的钱？老百姓存在银行的钱！
+参考链接：[中共六中全会登场 高层密会审议“历史决议”](https://www.epochtimes.com/gb/21/11/8/n13360344.htm/amp)
 
-共产党这个体制不灭，口头上再好的改革没用！共产党这个体制不灭，抓不完的贪官！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-**[新闻来源](https://finance.sina.cn/2021-11-08/detail-iktzqtyu6154999.d.html?sinawapsharesource=newsapp&amp;wm=3200_0024)**
+总编：Irene木木
+编辑：Irene木木 
+校正/发稿：谐趣园
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

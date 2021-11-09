@@ -2,32 +2,24 @@
 ---
 
 
-## 文贵大直播的重大意义
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1650945/)
+## 坎普拉教授公开新冠疫苗中发现的氧化石墨烯照片
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651039/)
 
-作者：纽约香草山农场 – 恩永存
+作者：纽约香草山翻译部 – defiance
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在11月7日的大直播中提到，当天的直播内容包含重要的信息，希望战友尽可能地多次观看。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-43.jpg)
-另外，郭先生还从三个方面阐述了大直播的意义所在：
+当地时间11月5日，西班牙阿尔梅里亚大学的巴勃罗·坎普拉教授在一档直播节目中提及，他观测到辉瑞、牛津阿斯利康和科兴新冠疫苗中均含有氧化石墨烯分子，同时，他还向观众展示了疫苗中氧化石墨烯分子的照片。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-6.jpeg)
+相关报道显示，这是世界上首次对科兴新冠疫苗的成分进行展示。此前，坎普拉教授还展示过一些有关辉瑞疫苗成分的实验室报告。随即，智利、阿根廷等国家也对新冠疫苗进行了检验分析。
 
-第一，传播真相——美国被暂停的新冠疫苗强制令就是最好的例子，这是在郭先生的说服下由班农先生推动的，这也将改变美国和世界。
+该直播节目表示，节目组现已获得三种新冠疫苗的光学显微镜照片。检验结果显示，三种新冠疫苗中均被检测到氧化石墨烯的存在。据悉，检测到的氧化石墨烯分子呈现出褶皱的片状形态，长度和宽度均在20至30微米左右。
 
-第二，传授知识——比如，郭先生在直播中通过与战友们的互动和答疑，让战友们理解喜币的意义和机制，以及喜币将给战友们带来的权利与财富。
+参考链接：[Exclusive photos of graphene oxide found in Pfizer, AstraZeneca and Sinovac vaccines](https://www.orwell.city/2021/11/exclusive-photos.html)
 
-第三，传递情感——郭先生在反复多次的长直播中和战友们以心交心，真心真爱。
-
-除此之外，郭先生再次嘱咐战友，希望更多的同胞抓住机会，尽快通过喜马拉雅交易所的KYC认证，以便买到价格低廉的喜币。
-
-参考链接：
-
-[2021年11月7日 文贵大直播：虚拟货币知多少 喜币未来有多牛](https://gettr.com/post/pga8le9f31)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
 总编：飞虹
-编辑：Kathy文艺
-校正/发稿：Fei797
+编辑：文特 
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

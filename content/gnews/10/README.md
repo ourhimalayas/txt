@@ -2,20 +2,25 @@
 ---
 
 
-## 秘翻在线：中共病毒毒疫苗会引发GBS神经紊乱病症
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1650915/)
+## 加拿大央行开始发展数字货币系统
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1650981/)
 
-#### 撰稿翻译：Hakunamatata
+采编：青青  编译撰稿： 文明(添草灭共)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/jksladjfoiu34ti430ksldajf9i34ptkllsdaf.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-2-edited.jpg)图片来源：GNEWS
 
-一些知情人士告诉《儿童健康》，加州州长加文·纽森因10月最后一周接受的中共病毒毒疫苗加强注射而受到了疫苗所带来的不良反应。
 
-这位不愿透露姓名的消息人士说，纽森的症状与Guillain-Barré综合征(GBS)相关的症状相似，这是疫苗的已知副作用。GBS是指一种神经紊乱，身体免疫系统错误地攻击周围神经系统一部分的病症，神经网络以外的大脑和脊髓范围可以让人从软弱瘫痪到让人无法呼吸。 从10月27日后这位州长就再也没有公开露过面，纽森用高压手段向包括儿童在内的加州民众推广中共病毒毒疫苗。
+据加拿大【CTV新闻】11月7日报道，加拿大央行行长麦克莱姆日前在接受该媒体采访时透露，该国目前过度的通货膨胀现象是暂时性的，但持续时间可能会比预期更长。为此，当局正在采用量化宽松、保持低利率等金融措施对其进行控制。
 
-儿童健康防御委员会主席罗伯特·f·肯尼迪宣布：如果这是真的，州长在接种疫苗后遭受了衰弱的神经损伤，这也引发了严重的道德问题。他在实施咄咄逼人的政策迫使加州的儿童和工薪阶层承受类似的风险的同时，似乎也隐瞒了自己遭受到的毒疫苗的伤害。
+据【加拿大统计局】最新数据显示，该国目前的通胀率为4.4%，高于8月份的4.1%，并已升至2003年以来最高水平。中央银行预计到今年年底，通胀率将接近5%，远超出其2%的预期目标。
 
-原文链接：[**BREAKING: Source Tells Children’s Health Defense CA Gov Gavin Newsom Is Injured By Vaccine Booster, Not Seen In Weeks**](https://creativedestructionmedia.com/news/2021/11/08/breaking-source-tells-childrens-health-defense-ca-gov-gavin-newsome-is-injured-by-vaccine-booster-not-seen-in-weeks/)
+当被记者问及对比特币的看法时，该行长表示：由于比特币不具备购物等货币流通功能，因此不会是数字货币未来发展的一部分。同时，加密货币是一种市场投资，尽管目前交易物品数量仍然非常有限，但随着数字资产经济的日益繁荣，加拿大央行已开始研究数字货币的潜在金融能力，并最终由该国财政部决定将来是否发行央行加密数字货币系统。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://www.ctvnews.ca/politics/bank-of-canada-governor-says-inflation-transitory-but-not-short-lived-1.5655043)
 
  
 

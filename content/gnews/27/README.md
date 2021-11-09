@@ -2,35 +2,38 @@
 ---
 
 
-## 有声|被共产主义腐蚀的灵魂——回忆我的同学大军
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1650739/)
+## 日本要闻汇编 11月9日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1650832/)
 
-配音：香草山香港部 – 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+#### 素材：东京樱花团｜GNEWS组
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/119日要.png)[*图片来源*](https://static.taisounds.com/WebUpd/TaiSounds/society/yen-2177672_1920_20051209183026508.jpg)
 
-一个外地同学来我们所在的城市出差，几个老同学就小聚一下，让我再次见到了老同学大军。他是我大学同寝室的同学，我最近一次见他是多年前，而在这之前我们虽然都在一个城市工作和生活，多年也都不曾见面，也不愿意再见。当年我们学校期间感情还是很不错的，虽然时有分歧但终归是同学情深。有时候会感叹，是什么让我们让大家渐行渐远呢？
+1、[**日政府新设三个职能会议 向新资本主义迈进**](https://china.kyodonews.net/news/2021/11/c419826217fa--.html)
 
+日本官房长官松野博一9日记者会上宣布，已新设“数字田园都市国家构想实现会议”、“数字临时行政调查会”（数字临调）、“全年龄层型社会保障构筑会议”这3个会议。负责上述3个会议的阁僚分别是：世博相若宫健嗣负责数字田园都市会议，数字相牧岛Karen负责数字临调会议，经济再生担当相山际大志郎负责社保会议。
 
+2、[**自公两党商定10万补贴现金优惠券各半**](https://china.kyodonews.net/news/2021/11/de8bafddb119-10.html)
 
-**文字版原文：[【小人物】被共产主义腐蚀的灵魂——回忆我的同学大军](https://gnews.org/zh-hans/1647431/)**
+日本自民党干事长茂木敏充、公明党干事长石井启一9日在国会内会谈，围绕新冠疫情的经济对策，就向18岁以下孩子发放10万日元（约合人民币5670元）补贴的方针达成了一致。双方商定尽快发放5万日元现金，朝着明年春季再发放相当于5万日元的优惠券。
 
+3、[**美助理国务卿期待日本增加防卫预算**](https://china.kyodonews.net/news/2021/11/5ff5ede3045a.html)
 
+美国助理国务卿克里滕布林克9日在东京接受共同社独家专访，就日本的防卫预算表示“美国欢迎增加金额”，为遏制中国，他对在安全保障领域日本发挥更大作用表示期待。
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+4、[**日本经产大臣参加APEC部长级会议**](https://www3.nhk.or.jp/nhkworld/zh/news/331859/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+8日、亚太经合组织（APEC）部长级会议在线召开，日本经济产业大臣萩生田光一在会上强调了为从新冠疫情造成的严峻经济形势中复苏，加强区域合作的重要性。
 
+本次部长级会议从重点讨论如何重振受疫情冲击的经济。日本经济产业大臣萩生田光一与会。
 
+5、[**东京都内大学为迎留学生入境加紧准备**](https://www3.nhk.or.jp/nhkworld/zh/news/331925/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+伴随着新冠病毒口岸防疫措施的放宽，11月8日起，日本有条件重启留学生入境。原则上长期居留的留学生需确保14天隔离期，由大学等负责管理其行动。在东京都内的大学里，工作人员正加紧为迎接留学生做好准备。
+
+*校对：东京樱花团 / 文小白
+发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
