@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/9/2021 11:41 PM (UTC)`
+
+11月9号：我得乖乖嘞，这个提现十万美元意义之深远，就是改变世界的金融系统的又一个开始！这个世界很快就没有人再需要信用卡．支票．银行帐号，实现真正的财富的自由．和绝对的财富的隐私和保密．安全，有尊严的享受自己创造的财富，一切都已经开始！
+![img](https://media.gettr.com/group3/getter/2021/11/09/23/5ccf4008-0076-0925-f1c8-7f2aeb44040a/2492f39458c24938e8dbca54196d4b61.jpg)
+
+---
+
 `@miles 11/9/2021 10:21 PM (UTC)`
 
 11/9/2021 Miles Guo’s GETTR: The US reopened land and air borders on November 8. Why are so many people in the world, including the Europeans, flocking to the US? We should beware of the CCP taking this opportunity to release the CCP virus again. The CCP’s real estate crisis has led the Federal Reserve and the US Department of Treasury to raise the red flags, because the CCP simply has no money to repay its debts!<br/><br/>11/9/2021 文贵盖特: 11月8日美国开放陆空边境，为何全世界包括欧洲人都蜂拥而至？此时更要谨防中共借机再次放毒；中共房地产危机促使美联储、财政部敲响警钟，中共根本无钱可还！<br/>
@@ -283,13 +290,6 @@ The vaccination disaster has gradually become prominent: The patients in the ICU
 ---
 
 `@miles 11/5/2021 11:51 PM (UTC)`
-
-在 GETTR 上加入我的直播。
-![img](https://media.gettr.com/group1/getter/2021/10/23/19/bef325e0-a7dd-eef4-f1c5-6977a36aeaf7/7f87f676c946650f527b3506087be38c.jpeg)
-
----
-
-`@miles 11/5/2021 9:59 PM (UTC)`
 
 在 GETTR 上加入我的直播。
 ![img](https://media.gettr.com/group1/getter/2021/10/23/19/bef325e0-a7dd-eef4-f1c5-6977a36aeaf7/7f87f676c946650f527b3506087be38c.jpeg)
