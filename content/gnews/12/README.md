@@ -2,77 +2,153 @@
 ---
 
 
-## 2021年11月9日 澳喜要闻摘要
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1650488/)
+## 战友们有钱了就一定要让父母过上好日子
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1650498/)
 
-**撰稿：澳喜要闻小组**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-10.jpg)
-**1 ****资深护士抗议现场揭露真相：医院满是接种过的病人 伊维菌素绝对有效**
+[https://gtv.org/video/id=61891e71adfd99590c346937](https://gtv.org/video/id=61891e71adfd99590c346937)
 
-南澳一位有着32年护理经验，拥有护理学学士和心理健康护理硕士学位的资深注册护士，因拒绝接种疫苗被迫停薪留职，她在阿德莱德抗议现场勇敢发声，讲述她所知道的真相。
+郭文贵
+Miles Guo
 
-这位女士揭露，医院里的病人并不是中共病毒的患者居多，而是接种过疫苗的病人占了多数。一位在ICU工作的朋友向她透露，38个进入ICU的病人中有30个都是接种过疫苗的！疫苗带来严重的不良反应，致使20多岁人的大量死亡。心肌炎是一种非常罕见的疾病，可是现在的年轻人群体中却很常见，这将导致心脏移植，而澳洲是世界上器官捐献率最低的国家，那么对于这些年轻人，等于判了死刑。
+这个早上起来的时候就是这个
+This is what happened when I got up this morning
 
-疫苗强制接种政策已经让医疗系统崩溃，这位女士预估，仅就护士一职，南澳就将失去2500人，这只是其中一小部分。现在，救护车要90分钟才能赶到胸痛病人家中，人们会因为没有得到及时救助而死亡，但媒体却会说，他们死于中共病毒。
+我打坐的时间就是到我母亲前面去打坐
+I was in front of my mother’s portrait for my sit meditation
 
-这位女士还质疑疫苗的安全性。一个合格的疫苗需要20年才能生产出来，4-6个月不可能产生安全的疫苗，这种疫苗却还要给孩子们注射。
+往那一跪下
+As soon as I was kneeling down
 
-记者问除了疫苗，中共病毒是否还有其他治疗方法，这位女士斩钉截铁地确认伊维菌素、羟氯喹是绝对有效的药物。但澳大利亚卫生监管机构警告全科医生不许开伊维菌素处方，药店也被禁止销售。她特别提到印度的疫情得以控制就是因为伊维菌素。
+就是就是控制不住了
+I just couldn’t control myself
 
-来源：[https://twitter.com/HimalayaAthena1/status/1457566133431640065](https://twitter.com/HimalayaAthena1/status/1457566133431640065)
+就是突然就是想起
+because I suddenly recalled
 
+这老娘穷一辈子
+there, my dear old mother had been poor her whole life
 
+我小的时候我最重要的
+When I was little, the most important thing to me
 
-> South Australia registered nurse spoke out the truth（part2）
-> 南澳资深注册护士抗议现场接受采访揭露真相，医院重症监护室和急救部门因疫苗不堪重负（第二部分） [pic.twitter.com/y2sks6Djr8](https://t.co/y2sks6Djr8)
-> — 雅典娜农场HimalayaAthenaFarm (@HimalayaAthena1) [November 8, 2021](https://twitter.com/HimalayaAthena1/status/1457566311400165377?ref_src=twsrc%5Etfw)
+我就发愿让我爹娘过上这个有钱买酱油、买盐的日子
+was that I made a wish to let my parents live with enough money to buy salt and soy sauce
 
+我今天对着我老娘那个照片
+Today, I was facing my dear mother’s portrait
 
+我就说 老娘 儿子可以说让你不论在天堂
+I said, my dear old mother, your son could tell you that whether you are in heaven
 
-**2 ****白宫督促企业继续执行疫苗强制任务**
+如果你在人间
+or on earth
 
-白宫周一表示，尽管法院下令暂停疫苗强制令，但企业仍需要继续推进接种。
+永远不用再愁钱
+you never have to worry about money
 
-美国第五巡回上诉法院周六停止了总统乔.拜登的疫苗强制令，等待审查。同时至少有26个州的共和党总检察长在五个不同地区的上诉法院对拜登的疫苗和测试要求提出质疑。
+买酱油啊 买盐什么的
+for getting salt, soy sauce, or anything anymore
 
-但白宫副新闻秘书卡琳-让-皮埃尔在一次简报会上告诉记者，强制接种疫苗不应该等待，而是应该继续推进。
+哎呀 控制不住了
+I couldn’t control it
 
-在周一晚间的回应中，拜登政府要求法院取消暂停，鉴于疫苗接种和检测的截止日期要到 1 月，因此驳回了各州和公司声称的伤害“为时过早”。政府声称，随着病毒的传播，暂停要求“每天可能会导致数十人甚至数百人丧生”。劳工部和司法部还争辩说，OSHA 在国会规定的权限范围内行事。
+我希望所有的战友们都记住
+I hope all of our comrades will remember that
 
-据悉，辉瑞这周将寻求FDA给予向所有18岁以上成年人批准接种中共病毒疫苗加强针。
+先让你父母过好
+Letting your parents live well is preferred
 
-[https://www.cnbc.com/2021/11/08/biden-vaccine-mandate-white-house-tells-business-to-go-ahead-despite-court-pause.html](https://www.cnbc.com/2021/11/08/biden-vaccine-mandate-white-house-tells-business-to-go-ahead-despite-court-pause.html)
+如果生你养你的父母
+If your parents who gave birth to you and raised you
 
-**3 ****不能为****5-11****岁儿童接种疫苗****  ****这是一场巨大的实验**
+连酱油钱 吃不好喝不好
+now still can’t even afford to make a basic living
 
-约翰霍普金斯大学小儿神经外科负责人卡森博士表示坚决不同意CDC关于为5-11岁儿童接种中共病毒（COVID-19）疫苗的决定。
+那真是你是最失败的
+then you would be the worst failure
 
-卡森教授在接受福克斯玛丽亚采访时说，中共病毒在儿童中的致死率是0.025%，这与季节性流感的致死率非常相近，但是人们并不知道疫苗的长期副作用，这是一个巨大的实验。
+如果战友们有钱了
+However, if you are rich
 
-卡森博士强调自然免疫，已经有研究表明，自然免疫非常有效。他列举了克利夫兰诊所的研究，他们有1300名被中共病毒感染过的医护人员，没有一人再次被感染。
+你们第一个就要对自己的父母好
+your priority is to treat your parents well
 
-而发明mRNA疫苗的罗伯特•马龙（Robert Malone）博士在美国媒体上称，儿童接种新冠疫苗后，会面临巨大风险。他表示，通常来说，新冠病毒并不会直接导致感染者死亡，很多死亡病例都是因为先前就存在健康问题，从而被新冠病毒引起严重的并发症。健康的儿童即使感染新冠病毒也不需要住院，更不会死亡，事实上，他们得到的是强大的自然免疫力。在给儿童接种中共病毒疫苗的问题上，和马龙博士一起出镜的前线新冠病毒联盟的皮埃尔•科里（Pierre Kory）博士补充说，这是一场即将发生的人道主义灾难。
+就是兄弟姐妹们一定记住
+Brothers and sisters, you must remember
 
-来源：[Dr. Robert Malone to Newsmax: Vaccinated Children to Fare Worse | Newsmax.com](https://www.newsmax.com/newsmax-tv/covid19-children-vaccine/2021/11/08/id/1043818/)
+我最开心的就会有很多人的母亲过上好日子
+the cheeriest thing to me is seeing that lots of people’s mothers are living a good life
 
+我们每个人看到在社交媒体上
+Every one of us has seen on social media
 
+出现中国的老太太
+these Chinese seniors appearing
 
-> [Deleted Webpages Reveal Bill Gates Praising Chinese Communist Party Group’s ‘Friendship.’](https://thenationalpulse.com/exclusive/gates-headlined-cpaffc-event/)
+老人家那种苍凉的感觉
+The feeling of seeing those old seniors’ desolate
 
+心如刀绞
+breaks my heart
 
+我父亲现在他不需要钱了
+My father doesn’t need money anymore
 
-4 **中共军方在新疆沙漠建造美军航母标靶 **
+但是我觉得不要让自己的父亲因为钱受尽凌辱
+But I feel that we shouldn’t let our own father suffer humiliation because of money as well
 
-美国卫星公司麦克萨尔（Maxar）向多家媒体提供的卫星影像显示，中共军方在新疆塔克拉玛干沙漠靶场中，建造了等比例的美军航空母舰和伯克级导弹驱逐舰模拟标靶。卫星影像还显示，上述模拟标靶并非静止目标，而是能够在轨道上移动。美国海军研究所在一份报告中称，通过查看过去的卫星图像发现，中共军方首次仿造的美舰模型是一艘航母，时间在2019年3月至4月间。对此，中共国外交部发言人汪文斌在11月8日的例行记者会上仅表示，不了解这些情况。 （本台记者Leon报道）
+很多人父亲在外面真的是为了一家人过日子啊
+A lot of people’s fathers are really out there working for the sake of their whole family
 
-[卫星影像: 中国仿制美舰模型 在沙漠演练 (rfi.fr)](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211108-%E5%8D%AB%E6%98%9F%E5%BD%B1%E5%83%8F-%E4%B8%AD%E5%9B%BD%E4%BB%BF%E5%88%B6%E7%BE%8E%E8%88%B0%E6%A8%A1%E5%9E%8B-%E5%9C%A8%E6%B2%99%E6%BC%A0%E6%BC%94%E7%BB%83)
+太苦了
+It’s too hard
 
-5 **维珍银河将在****2022****年底启动商业服务 **
+这个我们当孩子
+Therefore, we as their children
 
-太空旅游公司维珍银河（Virgin Galactic）于11月9日公布的财报显示，自公司创办人布兰森（Richard Branson）亲自体验太空旅行后，该公司又售出100多张机票。迄今为止，维珍银河共售出700多张机票。在此基础上，维珍银河的商业服务将在2022年底展开。据悉，维珍银河目前的太空旅行机票售价45万美元。而该公司在2005年至2014年出售给约600名乘客的票价为20至25万美元。维珍银河CEO柯格拉齐（Michael Colglazier）在声明中说，维珍银河进入了机队扩增时期，有明确的路线图，将增加太空船的耐用性、可靠性和可预测性，为明年的商业服务做好准备。他还表示，太空旅行的需求很强劲，机票销售速度已经超出预期。
+如果有了钱了
+if we have money
 
-（本文仅限个人观点，与GNEWS无关）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
+想到是父母
+what we should think first of is our parents
+
+另外一个就是我觉得中国人真的是活得太可怜了
+The other one is that I feel so sad for what our Chinese people have lived by
+
+我希望这个喜币的诞生
+I hope that the born of this H-Coin
+
+能让中国人
+will enable the Chinese people
+
+真真正正能知道钱这个东西
+really recognize money
+
+它到底是姓啥 它到底属于谁
+What is it anyway? Who does it exactly belong to?
+
+它的权利在哪里
+and where are its rights?
+
+* * *
+
+Date: 11/04/2021
+原视频标题: 战友们有钱了就一定要让父母过上好日子
+We Must Make a Good Living For Our Parents When we Have The Money
+原视频日期：2021/11/01
+原视频链接: [https://twitter.com/se1y7cblljselva/status/1456193726984818691?s=24](https://twitter.com/se1y7cblljselva/status/1456193726984818691?s=24)
+任务编号：KC231(2773)
+视频时间段 : 0:00-1:52
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

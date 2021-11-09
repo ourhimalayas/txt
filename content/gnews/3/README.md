@@ -2,34 +2,65 @@
 ---
 
 
-## 参与爆料革命，重塑独立人格
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1650544/)
+## 中共阻挡喜币上市，在多国碰壁
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1650565/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-46.png)
-记得小时候，每次拿成绩单回家，老师会要求家长也写下对我的评语。不管成绩好坏，有句话我父亲总会写道：恳请老师严加管教。他和当时很多家长一样对子女的教育，完全依赖于老师的管教，寄希望子女成龙成凤，但却极少亲自参与我的成长。
+**郭文贵
+Miles Guo**
 
-如今，中国社会上这种依赖现象越来越多。国足依赖被归化的外国球员和著名外教来提升足球成绩；企业依赖剽窃的国外技术和产品来生存；面对共产党的奴役，很多人总依赖别人首先站出来去抗争；共产党年初开始在各地变相强制接种新冠毒疫苗，尽管对毒疫苗有很多疑虑，很多国人还是习惯性的依赖中共政府的通告去接种。
+你付出，你决策，你承担责任，你就应该得到
+You disburse, you make decisions, you take responsibility, you deserve
 
-是什么造成这种依赖现象呢？
+好，大家想过没有？共产党这几天在内部说什么
+well, have you thought about it? What did the Communist Party say internally these days
 
-有一种现象叫做“尼古丁依赖”，俗称烟瘾。是由于长期使用尼古丁，大脑犒赏系统内的神经可塑性发生变化，而对摄入尼古丁产生依赖。共产党统治下，从小就开始培养国人顺从的特性。要求学生戴红领巾，、行少先队礼、爱共产党、唱红歌等等，都是在一步步的让国人习惯性顺从。这种顺从就是“尼古丁依赖”。
+他们向习报告，听说，真的所有当初的预测真地发生了
+They reported to Xi and said that all the original predictions really happened
 
-从小就被要求听父母的话、听领导的话，而很难有自己的独立思维。独立思维都缺乏，也就更谈不上什么创新了。独立性差，相应的依赖性就强，所以整体缺乏独立思考能力，缺乏自主创新精神，而是互相抄袭，彼此参照。人与人之间缺乏最基本的平等意识和独立精神，而是互相束缚、互相压迫、互相拖累、互相依赖。
+第一，没在巴哈马、美国和英国、加拿大等地把这个喜币、喜联储干掉
+First, it did not kill the Hcoin and the Himalaya Reserve in the Bahamas, the United States, the United Kingdom, Canada, etc.
 
-可以说，共产党实行的驭民五术（1，愚民：统一思想。2，弱民：国强民弱，治国之道，务在弱民。3，疲民：为民寻事，疲于奔命，使民无瑕顾及他事。4，辱民：一是无自尊自信；二是唆之相互检举揭发，终日生活于恐惧氛围中。5，贫民：除了生活必须，剥夺余银余财（即通货膨胀或狂印钞票）；人穷志短。五者若不灵，杀之）摧毁了很多国人的独立人格。
+我们受到了这些国家的巨大的阻力
+We got great resistance from these countries
 
-爆料革命就是要让中国人重新建立独立人格。我很认同郭文贵先生的一些话：“你可以不相信我所说的，但请去验证；所有参加爆料革命的战友，忘记郭文贵，忘记农场主；对待任何事情唯真不破。”虽然会遇到叛徒、伪类和间谍，时不时给我们造成伤害，但是这些伤害都是有限的。因为爆料革命给了所有战友们一个重塑的机会，练就火眼金睛。
+说我们提供的文件，他们都不信，都不支持
+They said that they don’t believe or support the documents we(CCP) provided
 
-初加入农场时，我也有点摸不着头脑，所以逮住义工就问东问西，感谢义工们耐心的为我一一解答。后面发现，很多我想了解的资讯都可以在很多公告中找到，无非是多花点时间和精力。慢慢的我可以独立的去查找并解决自身问题，特别是今年开始的GTV追加投资项目和喜联储KYC这些看起来很复杂的文件，都是一次过。但同时，我也看到一些战友从来不自己做笔记、看以往的聊天记录或者关注农场通知，依赖实时提问来获取答案，农场的会议变成了客服答疑会。我们的义工太辛苦了，一个农场几千人，每人问一句，都要回几千条信息。工作量是惊人的，很多战友义工因为长时间超负荷工作，不得不暂停手中的工作进行休养。
+就到处发函，说这是涉嫌洗钱、犯罪、诈骗，
+CCP sent letters everywhere saying that it was suspected of money laundering, crime, and fraud
 
-这种严重的依赖行为就是共产党给我们种下的毒。就像有些战友被骗捐、骗财和骗色，都是因为过度轻信某个观点或者某人的看法，总是依赖别人帮自己处理问题，或者希望从别人那里直接得到问题的答案。
+这是为GTV洗钱，这话都敢说，
+This is money laundering for GTV, they dare to say this
 
-我们不仅要灭共，还要培养独立思考、独立判断和独立创造的能力，通过爆料革命重塑自己的独立人格。中国有句古话：兼听则明，偏信则暗。这也是文贵先生希望所有爆料革命战友不依赖于任何外在的精神权威，始终具有独立判断能力和独立自主的参与。
+这是人民银行反洗钱的人写出来的
+This is written by the anti-money laundering department of the People’s Bank of China
 
-【文章观点仅代表作者个人，与Gnews平台无关】
+老班长, 你说跟咱GTV啥关系，这王八蛋
+Old Squad Leader, what do you think it has to do with our GTV, irrational!
 
-作者：洛杉矶盘古农场 -文如
-编辑：洛杉矶盘古农场 –柯镇恶
+说这是跟GTV是一伙的，为GTV洗钱
+CCP said that this is the same group with GTV, laundering money for GTV
+
+GTV才多大市值，这现在多少钱
+GTV is not so big in market value, how much is Himalaya Reserve now
+
+人家各国政府说你胡扯，就是说官方的栽赃陷害没成功
+The governments of each countries said that you are nonsense, which means that the CCP’s official framing was unsuccessful
+
+* * *
+
+Date:11/08/2021
+原视频标题: 中共阻挡喜币上市，在多国碰壁
+The Chinese Communist Party blocks the listing of Hcoin and hits the stone walls in many countries
+原视频日期：2021/11/05
+原视频链接 [https://twitter.com/se1y7cblljselva/status/1457268511244386318?s=24](https://twitter.com/se1y7cblljselva/status/1457268511244386318?s=24)
+任务编号：KC234(2802)
+视频时间段 : 0:00-1:06
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
