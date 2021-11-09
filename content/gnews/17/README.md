@@ -2,26 +2,36 @@
 ---
 
 
-## 加拿大央行开始发展数字货币系统
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1650981/)
+## 中共十九届六中全会秘密召开
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651029/)
 
-采编：青青  编译撰稿： 文明(添草灭共)
+作者：英国喜庄园 – I770775
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月8日，中共第十九界六中全会在京西宾馆秘密召开。消息称，此次六中全会会期共四天，议题除了总结所谓的百年“成就与经验”外，还要审议通过中共第三份“历史决议”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-2-edited.jpg)图片来源：GNEWS
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-5.jpeg)
 
+据了解，中共历史上的前两份历史决议分别于1945年和1981年审议通过，两次先后树立了毛泽东和邓小平在中共党内的绝对权威地位。
 
-据加拿大【CTV新闻】11月7日报道，加拿大央行行长麦克莱姆日前在接受该媒体采访时透露，该国目前过度的通货膨胀现象是暂时性的，但持续时间可能会比预期更长。为此，当局正在采用量化宽松、保持低利率等金融措施对其进行控制。
+评论人士指出，第三份历史决议或将为习近平在中共“二十大”前巩固权力提供有力保证。
 
-据【加拿大统计局】最新数据显示，该国目前的通胀率为4.4%，高于8月份的4.1%，并已升至2003年以来最高水平。中央银行预计到今年年底，通胀率将接近5%，远超出其2%的预期目标。
+对此，郭先生此前在直播中提及，此次“六中全会”将决定中国的未来是“北朝鲜化”，还是“国际化”。而习本人则力主私人企业国有化，将民众的财产盘剥到底。
 
-当被记者问及对比特币的看法时，该行长表示：由于比特币不具备购物等货币流通功能，因此不会是数字货币未来发展的一部分。同时，加密货币是一种市场投资，尽管目前交易物品数量仍然非常有限，但随着数字资产经济的日益繁荣，加拿大央行已开始研究数字货币的潜在金融能力，并最终由该国财政部决定将来是否发行央行加密数字货币系统。
+参考链接：[中共六中全会登场 高层密会审议“历史决议”](https://www.epochtimes.com/gb/21/11/8/n13360344.htm/amp)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-校对编辑，发稿：硫酸羟氯喹64
+总编：Irene木木
+编辑：Irene木木 
+校正/发稿：谐趣园
 
-[原文链接：](https://www.ctvnews.ca/politics/bank-of-canada-governor-says-inflation-transitory-but-not-short-lived-1.5655043)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

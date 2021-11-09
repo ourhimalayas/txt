@@ -2,26 +2,40 @@
 ---
 
 
-## 加拿大卫生部顾问呼吁停止疫苗接种
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1650920/)
+## 文贵大直播的重大意义
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1650945/)
 
-采编：文明， 编译撰稿：苦尽甜来 (文来）
+作者：纽约香草山农场 – 恩永存
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在11月7日的大直播中提到，当天的直播内容包含重要的信息，希望战友尽可能地多次观看。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-43.jpg)
+另外，郭先生还从三个方面阐述了大直播的意义所在：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/aa-edited.jpeg)图片来源：TN
+第一，传播真相——美国被暂停的新冠疫苗强制令就是最好的例子，这是在郭先生的说服下由班农先生推动的，这也将改变美国和世界。
 
+第二，传授知识——比如，郭先生在直播中通过与战友们的互动和答疑，让战友们理解喜币的意义和机制，以及喜币将给战友们带来的权利与财富。
 
-据加拿大自媒体【反判新闻】11月6日报道，曾与加拿大卫生部合作进行药品监管和审查的医药顾问，拥有药理学学士和博士双学位的匿名嘉宾，在当天接受该媒体采访时透露，当局曾讨论过其目前所推广的“新冠病毒疫苗”可能造成致命性后果的潜在健康问题。
+第三，传递情感——郭先生在反复多次的长直播中和战友们以心交心，真心真爱。
 
-该爆料者指出，早在今年3月，由【加拿大卫生部】批准的“阿斯利康疫苗”的近三分之二数量来自一家曾被【美国食品和药物管理局】指控存在严重质量控制问题的实验室。这意味着加拿大政府允许进口并使用存在巨大安全隐患的不合格疫苗。
+除此之外，郭先生再次嘱咐战友，希望更多的同胞抓住机会，尽快通过喜马拉雅交易所的KYC认证，以便买到价格低廉的喜币。
 
-另外，从不久前【辉瑞公司】泄露的内部文件中，同样清晰显示了其疫苗的制造缺陷和质量控制问题，包括产品纯度、截断种类、批次间标准等。这些都无疑解释了为什么有些接种者比其他人更容易出现疫苗不良反应的现象。为此，该嘉宾强烈呼吁，当局应立即停止对这些不确定和高风险的违规疫苗产品进行不负责任的授权接种。
+参考链接：
 
-* * *
+[2021年11月7日 文贵大直播：虚拟货币知多少 喜币未来有多牛](https://gettr.com/post/pga8le9f31)
 
-校对编辑，发稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-[原文链接：](https://www.rebelnews.com/interview_former_health_canada_pharmaceutical_adviser_on_regulatory_issues_with_covid_vaccines)
+总编：飞虹
+编辑：Kathy文艺
+校正/发稿：Fei797
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

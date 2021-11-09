@@ -2,18 +2,22 @@
 ---
 
 
-## 坎普拉教授公开新冠疫苗中发现的氧化石墨烯照片
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651039/)
+## 泽连科医生怒斥：新冠病毒是用来维持全球恐慌的人造生物武器
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651106/)
 
-作者：纽约香草山翻译部 – defiance
+作者：英国喜庄园 – I770775
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月5日，西班牙阿尔梅里亚大学的巴勃罗·坎普拉教授在一档直播节目中提及，他观测到辉瑞、牛津阿斯利康和科兴新冠疫苗中均含有氧化石墨烯分子，同时，他还向观众展示了疫苗中氧化石墨烯分子的照片。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-6.jpeg)
-相关报道显示，这是世界上首次对科兴新冠疫苗的成分进行展示。此前，坎普拉教授还展示过一些有关辉瑞疫苗成分的实验室报告。随即，智利、阿根廷等国家也对新冠疫苗进行了检验分析。
+11月2日，大胡子医生泽连科在媒体上再次公开发声，直指新冠病毒是“人为制造”的、用来维持全球恐慌的生物武器。
 
-该直播节目表示，节目组现已获得三种新冠疫苗的光学显微镜照片。检验结果显示，三种新冠疫苗中均被检测到氧化石墨烯的存在。据悉，检测到的氧化石墨烯分子呈现出褶皱的片状形态，长度和宽度均在20至30微米左右。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-6.jpeg)
 
-参考链接：[Exclusive photos of graphene oxide found in Pfizer, AstraZeneca and Sinovac vaccines](https://www.orwell.city/2021/11/exclusive-photos.html)
+泽连科医生表示，任何能够用来降低恐慌的东西，比如硫酸羟氯喹和伊维菌素等药物，以及任何具有常识的东西，还有任何可以弱化新冠病毒严重性的方法都被边缘化、被压制。另一方面，所有曝光真相的人或组织都会被卫生机构和各大医药公司诋毁。同时，各类对政府提出的质疑都会被媒体集体封杀。
+
+泽连科医生强调，最关键的是，各国政府联合恐吓70亿人去接种有毒的死亡针剂，且但凡威胁到这个恐惧机制的东西都会被污名化。泽连科医生解释，政府为了维护这个机制，他们打压挽救生命的医药信息、截断获取救命药物的途径，并且封杀反对政府言论的医生。
+
+泽连科医生认为，政府的所作所为就是为了强制推行死亡疫苗针剂的接种，但这些疫苗针剂会给人类带来血栓、心肌炎、流产，甚至引发潜在性种族灭绝的事件。
+
+参考链接：[https://www.gettr.com/post/pgeklt0aac](https://www.gettr.com/post/pgeklt0aac)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 

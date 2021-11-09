@@ -2,42 +2,41 @@
 ---
 
 
-## 秘翻在线：“我们不会顺从”——洛杉矶数千工人、警察和消防员等集会抗议即将到来的中共病毒疫苗强制令
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1650844/)
+## 新中国联邦当下急需着手的三件事
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1650894/)
 
-#### 撰稿翻译：文斗
+作者：英国喜庄园 – I770775
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月7日，郭先生在直播中提到，喜币自上市以来一路增值，吸引了成千上万的墙内战友注册喜马拉雅交易所账号。但是，由于短时间内激增了大量的注册用户，再加上中共黑客的疯狂攻击，很多用户反复尝试认证系统却都无功而返。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-62.jpg)
+针对这一现状，文贵先生谈到，新中国联邦目前应该尽快完成以下三个目标：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/CE1A804FD820501AC49C84B1C382FEA517179F40_w840_h560.jpg)
+首先，帮助战友迅速地通过喜马拉雅交易所的KYC认证，换句话说，要帮助战友用较便宜的低价票登上喜联储这列最后的财富列车。
 
-美国右翼新闻网站“thegatewaypundit” 11月8日报道，周一上午，成千上万的市民聚集在洛杉矶市政厅外的君乐公园（Grand Park），抗议该市的专制疫苗强制令。人群中相当多数（如果不是大多数）是市政工作人员，包括洛杉矶警察局和洛杉矶消防局的成员，以及其他几个市政部门的雇员。
+其次，把所有战友的喜币安全化、集中化。可以利用基金管理的方式，把分散在战友手里的喜币集中在一起，防止机构和中共通过恶意做空喜币将战友洗出市场。
 
-洛杉矶全市雇员接种疫苗的最后期限将于12月18日开始。到那时任何还没有接种疫苗的人都将被解雇，除非他们获得了豁免——我们都知道他们有多大的可能发放这种豁免—— “不可能！”
+最后，在机构入驻以及喜联储全功能启动之前，让战友们在安全、合法、智慧地享受自己财富的同时，还不失去自己的币——让战友们既有币，又有钱。
 
-洛杉矶市的政策是全国最严格的政策之一，还包括一项对所有洛杉矶居民的限制性规定，该规定于11月4日开始实施。现在，任何12岁及以上的人进入大多数室内区域，包括健身房、餐馆、酒吧、体育赛事（室内或室外）以及其他一些常见的日常场所，都需要提供疫苗接种证明，这只会助长引发这次大规模抗议活动的公众愤怒。
+郭先生强调，这几件事要尽力在半年左右实现，最晚不能超过八个月。
 
-报道引用了一些现场推特视频：
+参考链接：
 
+[2021年11月07日 文贵大直播：(2). 虚拟币交易所，银行，币价，市值，估值与提现之间的关系；(4). 喜交所的私链技术针对灭共而设计，打破中共对虚拟币的垄断与控制](https://gtv.org/video/id=6187c5e211d186296802ed33)
 
-
-> “FREEDOM! FREEDOM!”
-> 
-> Anti mandate crowd including hundreds of government workers chant at LA City Hall. [pic.twitter.com/AFcgkJ0Qvc](https://t.co/AFcgkJ0Qvc)
-> — James Klüg (@realJamesKlug) [November 8, 2021](https://twitter.com/realJamesKlug/status/1457800730065076231?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 
 
-“争取自由集会游行”是由当地一个非营利组织——“消防员为自由”（Firefighters 4 Freedom）组织的，该组织由洛杉矶消防员约翰·诺克斯（John Knox）创立，目的是对抗中共病毒疫情之后的医疗暴政。
+总编/编辑：飞虹
+校正/发稿：Fei797
 
-在整个上午的集会中，几位发言者都传达了同样的信息——“停止强制接种疫苗”。
-
-据报道，“我们不会顺从”和“自由”的呼喊声响彻街头。
-
-许多抗议者挥舞着美国国旗，举着谴责强制要求戴口罩和疫苗接种的牌子，和平示威反对限制性的公共卫生措施。
-
-在接受当地新闻媒体采访时，几名市政府员工甚至直截了当地表示，他们宁愿失业也不注射实验性疫苗。
-
-原文链接：[**“We Will Not Comply” – Thousands – Including City Workers, LAPD Officers, and Firefighters – Gather Outside Los Angeles City Hall to Protest Upcoming Deadline for Covid Vaccine Mandates**](https://www.thegatewaypundit.com/2021/11/will-not-comply-thousands-including-city-workers-lapd-officers-firemen-gather-outside-los-angeles-city-hall-protest-upcoming-deadline-covid-vaccine-mandates-video/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

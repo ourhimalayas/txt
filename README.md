@@ -15,131 +15,131 @@
 
 ---
 
-### [有声|喜联储可助台湾加入联合国](/content/gnews/1/README.md)
+### [川普批评拜登政府对待中共太软弱](/content/gnews/1/README.md)
+ ` HimalayaRussia`
+
+### [11/9/2021 文贵直播：只有美国叫停疫苗，全世界才会叫停疫苗](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [中共国动摇了世界核秩序（一）](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|香港外国记者会调查指香港新闻自由全面恶化](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [银河快讯：日本开始接受新入境申请；东芝探讨拆分为三家企业单独上市](/content/gnews/2/README.md)
+### [有声|中共的打土豪运动继续蔓延](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [有声|喜联储可助台湾加入联合国](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [银河快讯：日本开始接受新入境申请；东芝探讨拆分为三家企业单独上市](/content/gnews/7/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [有声|台湾国防部指出 中共在台大量散布假信息](/content/gnews/3/README.md)
+### [有声|台湾国防部指出 中共在台大量散布假信息](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [传播疫苗真相，责无旁贷](/content/gnews/4/README.md)
+### [传播疫苗真相，责无旁贷](/content/gnews/9/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [视频| 不打疫苗你就是人生赢家](/content/gnews/5/README.md)
+### [视频| 不打疫苗你就是人生赢家](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [泽连科医生怒斥：新冠病毒是用来维持全球恐慌的人造生物武器](/content/gnews/6/README.md)
+### [泽连科医生怒斥：新冠病毒是用来维持全球恐慌的人造生物武器](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [11/09/21 香港快讯 高院一度拒绝梁锦威、陈多伟保释 今颁判词：国安法保释门槛适用](/content/gnews/7/README.md)
+### [11/09/21 香港快讯 高院一度拒绝梁锦威、陈多伟保释 今颁判词：国安法保释门槛适用](/content/gnews/12/README.md)
  ` 英喜-粵語組`
 
-### [NewsMax公开反对拜登政府的疫苗强制令](/content/gnews/8/README.md)
+### [NewsMax公开反对拜登政府的疫苗强制令](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [新疆老百姓被逼迫喝药](/content/gnews/9/README.md)
+### [新疆老百姓被逼迫喝药](/content/gnews/14/README.md)
  ` Itana`
 
-### [11/9/2021国际财经快讯：通用电气大涨；德国投资者情绪高涨](/content/gnews/10/README.md)
+### [11/9/2021国际财经快讯：通用电气大涨；德国投资者情绪高涨](/content/gnews/15/README.md)
  ` 秘密翻译组金融团队`
 
-### [坎普拉教授公开新冠疫苗中发现的氧化石墨烯照片](/content/gnews/11/README.md)
+### [坎普拉教授公开新冠疫苗中发现的氧化石墨烯照片](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [中共十九届六中全会秘密召开](/content/gnews/12/README.md)
+### [中共十九届六中全会秘密召开](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [美航母回马枪，测试秒瘫北斗导航](/content/gnews/13/README.md)
+### [美航母回马枪，测试秒瘫北斗导航](/content/gnews/18/README.md)
  ` 波士顿五月花农场`
 
-### [美联储副主席或因金融监管不力提前辞职](/content/gnews/14/README.md)
+### [美联储副主席或因金融监管不力提前辞职](/content/gnews/19/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [台湾一男子接种辉瑞疫苗后身体不适数日后身亡](/content/gnews/15/README.md)
+### [台湾一男子接种辉瑞疫苗后身体不适数日后身亡](/content/gnews/20/README.md)
  ` 日本东京方舟农场`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/16/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加拿大央行开始发展数字货币系统](/content/gnews/17/README.md)
+### [加拿大央行开始发展数字货币系统](/content/gnews/22/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [新闻自由不断紧缩，香港《立场新闻》总编辞职](/content/gnews/18/README.md)
+### [新闻自由不断紧缩，香港《立场新闻》总编辞职](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [西媒头条 — 第105期](/content/gnews/19/README.md)
+### [西媒头条 — 第105期](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [爆料革命战友是互相以生命相托](/content/gnews/20/README.md)
+### [爆料革命战友是互相以生命相托](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [文贵大直播的重大意义](/content/gnews/21/README.md)
+### [文贵大直播的重大意义](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线： 集权的金融业 抓不完的贪官](/content/gnews/22/README.md)
+### [秘翻在线： 集权的金融业 抓不完的贪官](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国重新开放美加陆地边境关口](/content/gnews/23/README.md)
+### [美国重新开放美加陆地边境关口](/content/gnews/28/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [中共病毒核酸检测是一场骗局？](/content/gnews/24/README.md)
+### [中共病毒核酸检测是一场骗局？](/content/gnews/29/README.md)
  ` 日本东京方舟农场`
 
-### [台湾国防部：中共国以灰色战术 动摇台湾民心士气](/content/gnews/25/README.md)
+### [台湾国防部：中共国以灰色战术 动摇台湾民心士气](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大卫生部顾问呼吁停止疫苗接种](/content/gnews/26/README.md)
+### [加拿大卫生部顾问呼吁停止疫苗接种](/content/gnews/31/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [秘翻在线：中共病毒毒疫苗会引发GBS神经紊乱病症](/content/gnews/27/README.md)
+### [秘翻在线：中共病毒毒疫苗会引发GBS神经紊乱病症](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新中国联邦当下急需着手的三件事](/content/gnews/28/README.md)
+### [新中国联邦当下急需着手的三件事](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [中南坑开会讨论啥了](/content/gnews/29/README.md)
+### [中南坑开会讨论啥了](/content/gnews/34/README.md)
  ` 骄子`
 
-### [强制接种政策加重安大略省教育业压力](/content/gnews/30/README.md)
+### [强制接种政策加重安大略省教育业压力](/content/gnews/35/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [11/7/2021 文贵直播：中共不让中国人买数字货币的根本原因是中共认为去中心化将导致其灭亡](/content/gnews/31/README.md)
+### [11/7/2021 文贵直播：中共不让中国人买数字货币的根本原因是中共认为去中心化将导致其灭亡](/content/gnews/36/README.md)
  ` 秘密翻译组-北美组`
 
-### [11/7/2021 文贵直播：美军在南海演习杀了个回马枪，进行了空、地联动，北斗导航系统瞬间被废掉](/content/gnews/32/README.md)
+### [11/7/2021 文贵直播：美军在南海演习杀了个回马枪，进行了空、地联动，北斗导航系统瞬间被废掉](/content/gnews/37/README.md)
  ` 秘密翻译组-北美组`
 
-### [秘翻在线：“我们不会顺从”——洛杉矶数千工人、警察和消防员等集会抗议即将到来的中共病毒疫苗强制令](/content/gnews/33/README.md)
+### [秘翻在线：“我们不会顺从”——洛杉矶数千工人、警察和消防员等集会抗议即将到来的中共病毒疫苗强制令](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新冠病毒母亲所产婴儿存在长期健康风险](/content/gnews/34/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [日本要闻汇编 11月9日](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [飞行员在接种新冠疫苗后失去了一切](/content/gnews/36/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|被共产主义腐蚀的灵魂——回忆我的同学大军](/content/gnews/37/README.md)
- ` MOSREC`
-
-### [玛乔丽·泰勒·格林：应被解雇的是福奇和斯卡伯勒，而不是急救人员](/content/gnews/38/README.md)
+### [玛乔丽·泰勒·格林：应被解雇的是福奇和斯卡伯勒，而不是急救人员](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [拜登政府想推行儿童疫苗强制令,儿童福利和安全受威胁](/content/gnews/39/README.md)
+### [拜登政府想推行儿童疫苗强制令,儿童福利和安全受威胁](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [FRB警告恒大问题波及美国冲击全球](/content/gnews/40/README.md)
+### [FRB警告恒大问题波及美国冲击全球](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共用户籍制度囚禁国人](/content/gnews/41/README.md)
+### [中共用户籍制度囚禁国人](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共阻挡喜币上市，在多国碰壁](/content/gnews/42/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [野蛮生长不会变成野人](/content/gnews/43/README.md)
  ` 银河勇气之星`
