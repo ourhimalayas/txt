@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/9/2021 1:58 AM (UTC)`
+
+11/7/2021 Miles Guo: The world has been changed by Mr. Bannon and us for three times; nothing is more important than the block of the vaccine mandate by the U.S. Fifth Circuit Court of Appeals, which was made possible by the War Room show, the people like Mr. Bannon who hasn’t and won’t get the COVID jabs, and spreading the truth about the COVID vaccines, and we have saved countless people’s lives; the Real People Real Stories interview with our fellow fighter Eglise has shocked the Americans<br/><br/><br/>11/7/2021 文贵直播：班农先生和我们三次改变了世界；战斗室促成美国联邦第五巡回法院叫停强制疫苗接种令，班农先生等人不打疫苗和传播疫苗真相无比重要，而且我们救了无数人的命；真人真事采访战友Eglise震撼了美国人<br/><br/><br/>
+![img](https://media.gettr.com/group10/getter/2021/11/09/01/58/9cb7bbf4-d645-b06d-a30d-7012cf2c3145/out.jpg)
+
+---
+
 `@miles 11/8/2021 4:08 PM (UTC)`
 
 ...
@@ -290,13 +297,6 @@ Dr. David Wiseman: FDA打破了一个又一个规则，这绝对太离谱了。�
 
 11/1/2021 【HCoin to The Moon庆典】喜交所CEO Jesse Brown：尽管面临挑战，我们已经为世界建立了一个新的金融体系<br/><br/>11/1/2021 【HCoin To the Moon Celebration】 CEO of Himalaya Exchange Jesse Brown: Despite the challenges, we have established a new financial system for the world <br/>
 ![img](https://media.gettr.com/group23/getter/2021/11/04/14/05/9be45d9a-4195-0569-b1f0-6d1af74078a7/out.jpg)
-
----
-
-`@miles 11/4/2021 1:52 PM (UTC)`
-
-11/1/2021 【HCoin to The Moon庆典】喜交所上市倒计时<br/><br/>11/1/2021 【HCoin To the Moon Celebration】 Countdown to the launch of Himalaya Exchange<br/>
-![img](https://media.gettr.com/group20/getter/2021/11/04/13/52/9a854503-d8d6-eda2-1d8b-4b15651dae04/out.jpg)
 
 ---
 
