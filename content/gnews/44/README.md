@@ -2,40 +2,27 @@
 ---
 
 
-## 喜联储技术优于加密货币领域最大的独角兽
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1648587/)
+## 加拿大通货膨胀令物价快速飙升
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1648717/)
 
-作者：秘密翻译组 – 原创组
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-Kraken是一家位于美国加州的加密货币交易所和银行， 成立于2011年。它拥有国家银行执照， 是加密货币领域最大的独角兽之一。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-21.jpg)
-kraken公司产品包括加密货币交易所，场外交易柜台和期货交易平台。Kraken交易所提供加密货币和法定货币之间的交易， 并向彭博终端提供价格信息。在全球加密货币交易量排名第六。截止2021年，Kraken已经对美国48个州和176个国家的居民开放， 并提供72种可供交易的加密货币。
-2021年初，Kraken 已超过200亿美元的估值。其直接竞争对手Coinbase的估值预计为1000亿美元。郭先生在直播中提到，这两个公司使用的公共区块链技术，在技术层面远不及喜联储的私人区块链。虽然Kraken 在短时间内做到世界领先，但新中国联邦的金融系统将是世界级的金融航空母舰。
+采编：青青，  编译撰稿：文明(添草灭共)
 
-参考链接：
-
-[11/7/2021文贵爆料: Kraken拥有国家银行执照，是加密货币领域最大的独角兽之一](https://gnews.org/zh-hans/1646976/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：文真
-校对/发稿：Fei797
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-21-edited.jpg)图片来源：TN
 
 
+据加拿大自媒体【真北方】11月4日报道，[加拿大统计局]的最新数据显示，该国各地区大部分食品和生活用品的价格正快速升高。  
+
+该报告举例称，与上一年度相比，卑诗省的鸡肉价格增长了21%；安省的培根和魁省的土豆价格都上涨了24%；其他主要食品诸如猪肉，蔬菜，禽蛋等价格都有大幅上涨。
+
+尽管如此，但加拿大央行却一直否认当前的通货膨胀趋势，认为该现象只是暂时的，且基本物价上涨属于正常波动。目前，加拿大银行已将其通胀率目标上调至4.75%的历史新高。  
+
+此前，[加拿大纳税人联合会]已对该国高涨的通胀情况表示担忧，并就此归咎政府称：自从2020年3月初“新冠病毒”疫情以来，加拿大印钞量已超过3800亿加元，联邦政府及其央行应立即停止其过量印钞之举。同时，必须控制政府的超额支出并减免税赋，以避免高昂的生活开支令加拿大国民最终无法承受的风险。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://tnc.news/2021/11/04/surge-in-price-of-basic-groceries-reaches-double-digits-statistics-canada/)
 
  
 

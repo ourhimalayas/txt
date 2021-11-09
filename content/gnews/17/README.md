@@ -2,12 +2,21 @@
 ---
 
 
-## 【HCoin To the Moon 庆典】纳瓦罗《川普时代》证明郭文贵提供了中共病毒关键情报（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1649545/)
+## 雅典娜时报-第107期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1649589/)
 
-11/1/2021【HCoin To the Moon 庆典】纳瓦罗新书《川普时代》证明郭文贵先生提供了中共病毒的关键情报，该书被美国国家安全委员会批准；美国国会未来会要求解密关于中共生物武器的机密文件。
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/11/119.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/1192.png)
+***发布：小红帽***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

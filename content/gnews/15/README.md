@@ -2,12 +2,10 @@
 ---
 
 
-## 【HCoin To the Moon 庆典】：列支敦士登因投资喜联储而跟中共脱钩（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1649547/)
+## 11/7/2021 文贵直播：班农先生和我们三次改变了世界
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1649616/)
 
-11/1/2021【HCoin To the Moon 庆典】：列支敦士登因投资喜联储而果断跟中共脱钩；全球人均GDP最高的卢森堡宁愿跟中共脱钩也要投资喜联储；欧洲最大的政治游说公司正在为喜联储在全球游说多国与中共脱钩！
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+秘密翻译组-北美组
 
  
 

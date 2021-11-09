@@ -2,27 +2,30 @@
 ---
 
 
-## 加拿大通货膨胀令物价快速飙升
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1648717/)
+## GTV新闻访谈简报|2021年11月8日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1648913/)
 
-采编：青青，  编译撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-1.png)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-21-edited.jpg)图片来源：TN
+作者：香草山翻译部
+![]()
+文章仅代表作者本人观点，与Gnews无关
 
+视频参看：2021.11.08早GTV新闻访谈
 
-据加拿大自媒体【真北方】11月4日报道，[加拿大统计局]的最新数据显示，该国各地区大部分食品和生活用品的价格正快速升高。  
+[https://gtv.org/video/id=618925cf11d18629680351bc](https://gtv.org/video/id=618925cf11d18629680351bc)
 
-该报告举例称，与上一年度相比，卑诗省的鸡肉价格增长了21%；安省的培根和魁省的土豆价格都上涨了24%；其他主要食品诸如猪肉，蔬菜，禽蛋等价格都有大幅上涨。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-尽管如此，但加拿大央行却一直否认当前的通货膨胀趋势，认为该现象只是暂时的，且基本物价上涨属于正常波动。目前，加拿大银行已将其通胀率目标上调至4.75%的历史新高。  
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-1.png)
 
-此前，[加拿大纳税人联合会]已对该国高涨的通胀情况表示担忧，并就此归咎政府称：自从2020年3月初“新冠病毒”疫情以来，加拿大印钞量已超过3800亿加元，联邦政府及其央行应立即停止其过量印钞之举。同时，必须控制政府的超额支出并减免税赋，以避免高昂的生活开支令加拿大国民最终无法承受的风险。
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://tnc.news/2021/11/04/surge-in-price-of-basic-groceries-reaches-double-digits-statistics-canada/)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

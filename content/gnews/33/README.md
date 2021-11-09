@@ -2,42 +2,62 @@
 ---
 
 
-## 聚焦：美国施压欧佩克+增产原油背后的真相
-` 军迷wilson` [轉載自GNews](https://gnews.org/zh-hans/1649306/)
+## 喜币的三个标志事件：权威机构投资、国家级牌照、主权货币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1649401/)
 
-#### 扬帆农场 军迷Wilson
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1D49C9AF8017E24343246CFF87D885F82A80E13A_w580_h330.jpg)来源：凤凰网
-国际原油价格较去年上升了一倍，创下7年来新高，今年以来欧洲和亚洲天然气价格上涨5倍以上，美国的天然气价格也上涨了2倍。由于导致上涨的各种因素正在发挥作用，国际油气价格远未见顶。
+[https://gtv.org/video/id=61890935adfd99590c346270](https://gtv.org/video/id=61890935adfd99590c346270)
 
-每当国际能源价格处于上升阶段时，就是能源出口国狂欢的时节，而日本、中共国等高度依赖能源进口的经济体总是陷入通胀上行和财政萎缩的双重困境中，这其实是一次全球财富再分配。
+**郭文贵**
+**Miles Guo**
 
-只有在供不应求的时候，能源出口国才有可能操纵价格获利，俄罗斯和沙特等产油国不会放过这样的机会！表面上看，原油和天然气（占全球22%）产量均为全球第一的美国，可以对欧佩克+通过限产推升能源价格开一只眼闭一只眼，但恰恰相反，美国正在不断施加压力要求欧佩克增产。
+七哥说的话，你们要盯住3个标志事件
+What QiGe(Miles) said, you have to keep eye on 3 sign events
 
-继乔.拜登公开指责俄罗斯、沙特故意限产推升油气价格后，白宫官员也频频喊话，称“欧佩克+拒绝加快增产可能危及全球经济复苏”。有媒体评论称，拜登政府一边喊着气候安全口号，一边施压欧佩克+增产，确实有损世界头号强国的风范。
-![美国通胀达到30年来最高水平，美联储本周可能打响紧缩第一枪- 西瓜视频](https://p3-sign.bdxiguaimg.com/tos-cn-v-0026/917b833a91014b4b993c28aa1ca11a61~tplv-pk90l89vgd-crop-center:864:486.jpeg?from=101_large_image_list&amp;x-expires=1667312139&amp;x-signature=KUqEP2csnWMxn3FBTAKNOYmHsqQ%3D)来源：西瓜视频
-欧佩克+的回绝使美国的态度趋于强硬，美国政府前顾问麦克纳利称，美国不仅将释放战略库存打压油价，同时还可能出台其他报复性选项。那么问题来了，美国为什么坚决要求欧佩克+增产呢？
+任何一个真正的有权威的投资机构投喜联储、喜支付的时候就是叫Exchange
+Every single truly authoritative investment institution invests in the Himalaya Exchange and HPay, it is called Exchange
 
-英国石油公司发布的最新数据显示，经过中共病毒疫情的冲击，石油消费量在全球能源消费结构中的占比仍高居榜首——31.2%，由于粮食生产高度依赖石油制品，当石油危机爆发时会迅迅引发粮食危机，所以，石油危机一旦爆发，意味着全面危机的爆发。
+那是喜币的一个标志事件，
+That is a landmark event for Hcoin
 
-美国劳工统计局提供的最新数据显示，9月美国汽油价格同比上涨超过42%，进口工业用品价格同比上涨45%，燃料、润滑油更是上涨了69%。食品、住房和汽油价格上涨推动了大部分的CPI涨幅。生活成本不断上升将美国的通胀率推升到30年新高。
+第二件事，当有一个国家或一个地方批给你虚拟货币银行牌照
+The second thing is when a country or a region grants it a virtual currency bank license
 
-当通货膨胀不断上行时，民众的消费能力就会不断下降，对政府就会失去信任，拜登政府就可能被迫提前下台，这是拜登政府极力打压油价的根本原因。
-![](https://seopic.699pic.com/photo/50056/2133.jpg_wh1200.jpg)来源：摄图网
-但当前的能源危机有拜登的“功劳”，拜登上台第一天，就以气候安全为由，命令停止加拿大到美国南部即将完工的100万桶/天输油管道建设，禁止在联邦土地上批准新的油气勘探项目。加上中共病毒疫情对油气产业链造成的巨大破坏，导致短期内无法恢复原有产能。
+或国家批给你整个所谓国家级的虚拟交易市场牌照的时候
+or when the country grants you the entire so-called national virtual trading li-cense
 
-美国能源信息署(EIA)最新报告显示：到2022年美国原油进口同比将增加62%，原因是到2021年底，原油产量为1130万桶/天，到2022年底为1190万桶/天，和2019年底的峰值1290万桶/天相差100万桶/天！
+这是第二，第三个大事件
+This is the second. The third major event
 
-由于能源供需双方的利益是根本对立的，加上长期的低油价导致石油产能不断萎缩，因此当前的能源危机不太可能使用外交、行政、货币等手段在短期内解决。
+到最后的时候，当某国家宣布我承认你是我国家的法币、主权货币的时候
+At the end, when a country that recognizes Hcoin as its country’s legal currency and sovereign currency
 
-能源占到总消费成本的40%，当生产、服务、生活的价格全面上涨，最终导致终端消费者普遍失去购买力时，为消费服务的生产和金融以及充满泡沫的股市就会统统崩溃。拜登政府极力呼吁美国本土的油气公司和欧佩克+增加产量，都是为了延缓这场大崩溃的到来，但作用相当有限。
+喜币的价格才真正的出来，
+The price of Hcoin will really come out
 
-参考来源：
+没这个之前你都当成虚幻,你都当成不存在
+Before that, you just have to think of Hcoin as an aircoin
 
-[白宫：欧佩克+拒绝加快增产可能危及全球经济复苏](http://www.ftchinese.com/interactive/52682?full=y&amp;gift_id=76c57e797a36a7b3293f438c78bbe350d666798c&amp;exclusive)
+**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1456639104880295940?s=24](https://twitter.com/se1y7cblljselva/status/1456639104880295940?s=24)
 
-[美国9月贸易逆差创历史新高，中共违背贸易协议](https://gnews.org/zh-hans/1644153/)
+———————————————————
 
-[焦点：OPEC+无视美国呼吁维持增产幅度不变 称美国可以自己上](https://cn.reuters.com/article/opec-plus-oil-production-us-1105-idCNKBS2HQ013)
+Date:11/06/2021
+原视频标题: 喜币的三个标志事件：权威机构投资、国家级牌照、主权货币
+HCoin’s three landmark events: investment by authoritative institutions, national-level licenses, and sovereign currency
+原视频日期：2021/11/01
+任务编号：KC230(2787)
+视频时间段 : 0:00-1:03
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

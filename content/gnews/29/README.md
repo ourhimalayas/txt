@@ -2,62 +2,22 @@
 ---
 
 
-## 喜币的三个标志事件：权威机构投资、国家级牌照、主权货币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1649401/)
+## 日本首相岸田文雄或提前至本月访美会晤拜登
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1649437/)
 
-[https://gtv.org/video/id=61890935adfd99590c346270](https://gtv.org/video/id=61890935adfd99590c346270)
+俄罗斯莫斯科喀秋莎农场  银河
 
-**郭文贵**
-**Miles Guo**
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/J-2.jpg)meritalk.com
+日本共同社11月8日报道，日美两国同意日本首相岸田文雄（Fumio Kishida）提前访美，与美国总统拜登（Joe Biden）进行会晤。东京方面计划将访问日期定在11月。
 
-七哥说的话，你们要盯住3个标志事件
-What QiGe(Miles) said, you have to keep eye on 3 sign events
+消息人士称，日本外务省副相森武夫(Takeo Mori)在东京与美国负责东亚和太平洋事务的助理国务卿丹尼尔·克里登布林克（Daniel Kritenbrink）举行会谈时达成了上述协议。同时两国官员在另一会议上商讨了实现印度洋-太平洋地区自由开放的途径，以及反击中共试图用强制措施改变地区现状的做法。
 
-任何一个真正的有权威的投资机构投喜联储、喜支付的时候就是叫Exchange
-Every single truly authoritative investment institution invests in the Himalaya Exchange and HPay, it is called Exchange
+克里登布林克与日本外务省亚洲和大洋洲事务局局长船中竹弘（Takehiro Funakoshi）在会晤中双方确认，在解决朝鲜上世纪七八十年代绑架日本公民的问题，以及朝鲜开发核武器和弹道导弹等问题上进行合作。这是他9月底就任美国负责东亚事务的最高外交官以来首次访问日本。他计划在日本停留到周三后进而访问首尔。
 
-那是喜币的一个标志事件，
-That is a landmark event for Hcoin
+参考链接：
 
-第二件事，当有一个国家或一个地方批给你虚拟货币银行牌照
-The second thing is when a country or a region grants it a virtual currency bank license
-
-或国家批给你整个所谓国家级的虚拟交易市场牌照的时候
-or when the country grants you the entire so-called national virtual trading li-cense
-
-这是第二，第三个大事件
-This is the second. The third major event
-
-到最后的时候，当某国家宣布我承认你是我国家的法币、主权货币的时候
-At the end, when a country that recognizes Hcoin as its country’s legal currency and sovereign currency
-
-喜币的价格才真正的出来，
-The price of Hcoin will really come out
-
-没这个之前你都当成虚幻,你都当成不存在
-Before that, you just have to think of Hcoin as an aircoin
-
-**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1456639104880295940?s=24](https://twitter.com/se1y7cblljselva/status/1456639104880295940?s=24)
-
-———————————————————
-
-Date:11/06/2021
-原视频标题: 喜币的三个标志事件：权威机构投资、国家级牌照、主权货币
-HCoin’s three landmark events: investment by authoritative institutions, national-level licenses, and sovereign currency
-原视频日期：2021/11/01
-任务编号：KC230(2787)
-视频时间段 : 0:00-1:03
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片: 洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[https://english.kyodonews.net/news/2021/11/fc88606cb6fc-japan-us-officials-agree-on-kishidas-early-visit-to-us.html](https://english.kyodonews.net/news/2021/11/fc88606cb6fc-japan-us-officials-agree-on-kishidas-early-visit-to-us.html)
 
  
 
