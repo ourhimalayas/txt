@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/9/2021 4:54 PM (UTC)`
+
+11月9号：这是真的假的呀，看他那副长相．这算是很好的答案了……我相信他的未来一定会被共产党毁掉。<br/><br/>【黄河便真可怜🥺 一个曾经的哥们儿了解其私生活 说他被后老婆（年轻二十多）整得不允许上床睡觉 前妻女儿和后老婆打得一塌糊涂 后老婆不允许他老娘进家门 他只好安排老母（已丧父）打道回中共国。说他2012年（？记不准）就完全被中共控制。】
+![img](https://media.gettr.com/group40/getter/2021/11/09/16/54/9c7133df-151b-fb98-d347-2f3d566a8389/a392919f42be57638aa54a3489300ce9.jpg)
+
+---
+
 `@miles 11/9/2021 2:03 PM (UTC)`
 
 11/7/2021 Miles Guo: The fundamental reason for the CCP to bar the Chinese people from buying digital currencies is because the CCP believes that decentralization will bring about its downfall. Thus, the CCP is imposing absolute centralization; the CCP can control the Western economy and security by dominating the digital currencies in the West<br/><br/>11/7/2021 文贵直播：中共不让中国人买数字货币的根本原因是中共认为去中心化将导致其灭亡，所以要进行绝对的中心化；中共通过获得西方数字货币的主导权，进而能控制西方的经济和安全<br/>
@@ -290,13 +297,6 @@ Dr. David Wiseman: FDA打破了一个又一个规则，这绝对太离谱了。�
 
 11/3/2021 Miles Guo: What are the three milestones indicating the true value of the Himalaya Coin? What does it mean for 30 European countries to decouple with the CCP? Republicans won both elections in Virginia and Long Island, indicating that the US wins while the CCP has lost!<br/><br/>11/3/2021 文贵直播: 体现喜币真正价值的三个标志性事件是什么？欧洲30国跟中共脱钩意味着什么？共和党在弗吉尼亚和长岛胜选，这说明美国赢了，中共输了！<br/>
 ![img](https://media.gettr.com/group22/getter/2021/11/05/09/29/e8542b71-7eda-b188-65f6-10de4415b5e5/out.jpg)
-
----
-
-`@miles 11/5/2021 4:33 AM (UTC)`
-
-11/1/2021 【HCoin to The Moon庆典】我们的网络安全小组是世界上最好的；我们的客户是上帝<br/><br/>11/1/2021 【HCoin To the Moon Celebration】 Our cybersecurity team  is among the best in the world and our customers are the king.
-![img](https://media.gettr.com/group4/getter/2021/11/05/04/33/8c1e8fd9-c37c-583e-119e-1143444f27aa/out.jpg)
 
 ---
 
