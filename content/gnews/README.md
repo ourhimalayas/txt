@@ -15,73 +15,73 @@
 
 ---
 
-### [专家说人工智能开始对现实世界产生巨大影响](/content/gnews/1/README.md)
+### [美最高法院拒绝阻止缅因州疫苗强制令](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [11/9/2021 文贵盖特: 中共六中全会内斗正酣；疫苗真相是爆料革命、新中国联邦带给世界最大的礼物](/content/gnews/2/README.md)
+### [比尔盖茨承认新冠疫苗不能阻止病毒传播](/content/gnews/2/README.md)
+ ` MG FARM`
+
+### [专家说人工智能开始对现实世界产生巨大影响](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [11/9/2021 文贵盖特: 中共六中全会内斗正酣；疫苗真相是爆料革命、新中国联邦带给世界最大的礼物](/content/gnews/4/README.md)
  ` 秘密翻译组-北美组`
 
-### [网络安全公司报告揭露中共黑客攻击了美国370家机构](/content/gnews/3/README.md)
+### [网络安全公司报告揭露中共黑客攻击了美国370家机构](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [DC每日热点1109](/content/gnews/4/README.md)
+### [DC每日热点1109](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [洛杉矶数千人集会抗议强制疫苗令](/content/gnews/5/README.md)
+### [洛杉矶数千人集会抗议强制疫苗令](/content/gnews/7/README.md)
  ` 日本东京方舟农场`
 
-### [国际工会呼吁奥委会、赞助商追究中国责任](/content/gnews/6/README.md)
+### [国际工会呼吁奥委会、赞助商追究中国责任](/content/gnews/8/README.md)
  ` MG FARM`
 
-### [工龄29年员工因拒绝接种新冠疫苗而被解雇](/content/gnews/7/README.md)
+### [工龄29年员工因拒绝接种新冠疫苗而被解雇](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [郭先生：美国能让台湾加入联合国，就能让新中国联邦加入联合国](/content/gnews/8/README.md)
+### [郭先生：美国能让台湾加入联合国，就能让新中国联邦加入联合国](/content/gnews/10/README.md)
  ` MG 澳喜农场多语组`
 
-### [美国商务部长雷蒙多下周出访亚洲 行程中无访华安排](/content/gnews/9/README.md)
+### [美国商务部长雷蒙多下周出访亚洲 行程中无访华安排](/content/gnews/11/README.md)
  ` 日本东京方舟农场`
 
-### [2021/11/09大卫作战室直播精要](/content/gnews/10/README.md)
+### [2021/11/09大卫作战室直播精要](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [回应法院暂停令：拜登政府辩称应继续疫苗强制令](/content/gnews/11/README.md)
+### [回应法院暂停令：拜登政府辩称应继续疫苗强制令](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [国会议员质疑拜登政府的核武器政策](/content/gnews/12/README.md)
+### [国会议员质疑拜登政府的核武器政策](/content/gnews/14/README.md)
  ` HimalayaRussia`
 
-### [中共国恒大集团又一子公司债券利息逾期未付](/content/gnews/13/README.md)
+### [中共国恒大集团又一子公司债券利息逾期未付](/content/gnews/15/README.md)
  ` 日本东京方舟农场`
 
-### [拜登将宣布与习近平达成一项重大协议](/content/gnews/14/README.md)
+### [拜登将宣布与习近平达成一项重大协议](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共高官们隐藏公务身份到西班牙操纵海外媒体和股市进行诈骗](/content/gnews/15/README.md)
+### [中共高官们隐藏公务身份到西班牙操纵海外媒体和股市进行诈骗](/content/gnews/17/README.md)
  ` MG 澳喜农场多语组`
 
-### [加文纽森在哪里？](/content/gnews/16/README.md)
+### [加文纽森在哪里？](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [加拿大卫生部前药物顾问关于新冠疫苗监管问题](/content/gnews/17/README.md)
+### [加拿大卫生部前药物顾问关于新冠疫苗监管问题](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [新泽西州长共和党竞选人考虑要求重新计票](/content/gnews/18/README.md)
+### [新泽西州长共和党竞选人考虑要求重新计票](/content/gnews/20/README.md)
  ` HimalayaRussia`
 
-### [四天全国大罢工 数十万人反抗疫苗授权](/content/gnews/19/README.md)
+### [供应链危机袭来，10月美国有20亿条缺货信息](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [供应链危机袭来，10月美国有20亿条缺货信息](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [昆士兰的COVID-19新规则对接种疫苗和未接种疫苗的人意味着什么？](/content/gnews/21/README.md)
+### [昆士兰的COVID-19新规则对接种疫苗和未接种疫苗的人意味着什么？](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [反对“批判性种族理论”不是“种族主义者”](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共国动摇了世界核秩序 （二）](/content/gnews/23/README.md)
+### [反对“批判性种族理论”不是“种族主义者”](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
 ### [川普批评拜登政府对待中共太软弱](/content/gnews/24/README.md)
@@ -114,80 +114,80 @@
 ### [11/9/2021国际财经快讯：通用电气大涨；德国投资者情绪高涨](/content/gnews/33/README.md)
  ` 秘密翻译组金融团队`
 
-### [爆料革命战友是互相以生命相托](/content/gnews/34/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [新中国联邦当下急需着手的三件事](/content/gnews/35/README.md)
+### [坎普拉教授公开新冠疫苗中发现的氧化石墨烯照片](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [中南坑开会讨论啥了](/content/gnews/36/README.md)
+### [爆料革命战友是互相以生命相托](/content/gnews/35/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [新中国联邦当下急需着手的三件事](/content/gnews/36/README.md)
+ ` GTV新闻访谈`
+
+### [中南坑开会讨论啥了](/content/gnews/37/README.md)
  ` 骄子`
 
-### [11/7/2021 文贵直播：中共不让中国人买数字货币的根本原因是中共认为去中心化将导致其灭亡](/content/gnews/37/README.md)
+### [11/7/2021 文贵直播：中共不让中国人买数字货币的根本原因是中共认为去中心化将导致其灭亡](/content/gnews/38/README.md)
  ` 秘密翻译组-北美组`
 
-### [11/7/2021 文贵直播：美军在南海演习杀了个回马枪，进行了空、地联动，北斗导航系统瞬间被废掉](/content/gnews/38/README.md)
+### [11/7/2021 文贵直播：美军在南海演习杀了个回马枪，进行了空、地联动，北斗导航系统瞬间被废掉](/content/gnews/39/README.md)
  ` 秘密翻译组-北美组`
 
-### [彭培奥：冬奥会后会是危险高峰](/content/gnews/39/README.md)
+### [彭培奥：冬奥会后会是危险高峰](/content/gnews/40/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [玛乔丽·泰勒·格林：应被解雇的是福奇和斯卡伯勒，而不是急救人员](/content/gnews/40/README.md)
+### [玛乔丽·泰勒·格林：应被解雇的是福奇和斯卡伯勒，而不是急救人员](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [拜登政府想推行儿童疫苗强制令,儿童福利和安全受威胁](/content/gnews/41/README.md)
+### [拜登政府想推行儿童疫苗强制令,儿童福利和安全受威胁](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共用户籍制度囚禁国人](/content/gnews/42/README.md)
+### [中共用户籍制度囚禁国人](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [野蛮生长不会变成野人](/content/gnews/43/README.md)
+### [野蛮生长不会变成野人](/content/gnews/44/README.md)
  ` 银河勇气之星`
 
-### [日本前教育部长：中国人权问题很严重](/content/gnews/44/README.md)
+### [日本前教育部长：中国人权问题很严重](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际要闻汇编 11月9日](/content/gnews/45/README.md)
+### [国际要闻汇编 11月9日](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内要闻汇编 11月9日](/content/gnews/46/README.md)
+### [墙内要闻汇编 11月9日](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [纳瓦罗：福奇是自恋狂和反社会者](/content/gnews/47/README.md)
+### [纳瓦罗：福奇是自恋狂和反社会者](/content/gnews/48/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [应对中共攻台，日本将在与那国岛部署电子战部队](/content/gnews/48/README.md)
+### [应对中共攻台，日本将在与那国岛部署电子战部队](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾前线｜空军退将夏瀛洲再度卖台 称“共军有权进入台湾空域”](/content/gnews/49/README.md)
+### [台湾前线｜空军退将夏瀛洲再度卖台 称“共军有权进入台湾空域”](/content/gnews/50/README.md)
  ` G&#124;News TAIWAN`
 
-### [新华社造神 引发海内外群嘲](/content/gnews/50/README.md)
+### [新华社造神 引发海内外群嘲](/content/gnews/51/README.md)
  ` GTV新闻访谈`
 
-### [亲历者爆料：中共按需杀人、活摘器官的血腥交易](/content/gnews/51/README.md)
+### [亲历者爆料：中共按需杀人、活摘器官的血腥交易](/content/gnews/52/README.md)
  ` GTV新闻访谈`
 
-### [喜联储、喜币的诞生天生就是灭共的](/content/gnews/52/README.md)
+### [喜联储、喜币的诞生天生就是灭共的](/content/gnews/53/README.md)
  ` GTV新闻访谈`
 
-### [郭先生大直播解析喜联储的独特之处](/content/gnews/53/README.md)
+### [郭先生大直播解析喜联储的独特之处](/content/gnews/54/README.md)
  ` GTV新闻访谈`
 
-### [欧盟拒绝披露与大药厂签署的涉及中共病毒疫苗的秘密合同交易](/content/gnews/54/README.md)
+### [欧盟拒绝披露与大药厂签署的涉及中共病毒疫苗的秘密合同交易](/content/gnews/55/README.md)
  ` 首尔天池农场`
 
-### [漫谈喜币与区块链](/content/gnews/55/README.md)
+### [漫谈喜币与区块链](/content/gnews/56/README.md)
  ` 温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [中共国10月份煤炭进口量同比增长近一倍](/content/gnews/56/README.md)
+### [中共国10月份煤炭进口量同比增长近一倍](/content/gnews/57/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大通货膨胀令物价快速飙升](/content/gnews/57/README.md)
+### [加拿大通货膨胀令物价快速飙升](/content/gnews/58/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
-
-### [喜联储私人区块链技术确保高效安全](/content/gnews/58/README.md)
- ` GTV新闻访谈`
 
 ### [彼得·纳瓦罗写道彭斯是最终背叛了凯撒川普的布鲁图斯](/content/gnews/59/README.md)
  ` 喜马拉雅-华盛顿DC农场`
