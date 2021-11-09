@@ -2,41 +2,30 @@
 ---
 
 
-## 秘翻在线：“我们不会顺从”——洛杉矶数千工人、警察和消防员等集会抗议即将到来的中共病毒疫苗强制令
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1650844/)
+## 台湾国防部：中共国以灰色战术 动摇台湾民心士气
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1650921/)
 
-#### 撰稿翻译：文斗
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-5.jpg)台湾国防部：中共国以灰色战术 动摇台湾民心士气 网络图片
+据德国之声中文网11月9日报道，台湾国防部今日在其两年一度的《国防报告书》中指出，解放军目前”已具备对我重要港口、机场及对外航道实施联合局部封锁，截断海、空交通路线能力，影响军备后勤资源整补与作战持续力。 “
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/CE1A804FD820501AC49C84B1C382FEA517179F40_w840_h560.jpg)
+报告还指出，中共国正在开展所谓的”灰色地带”战术，比如从去年九月至今年八月底，已有554架次中共军机进入台湾西南地区的防空识别区。而这种灰色地带威胁”具非战非和的模糊性，不仅消耗台湾方面战力，也动摇台湾民心士气，企图改变或挑战两岸既有现状，达成’不战夺台’的目标。
 
-美国右翼新闻网站“thegatewaypundit” 11月8日报道，周一上午，成千上万的市民聚集在洛杉矶市政厅外的君乐公园（Grand Park），抗议该市的专制疫苗强制令。人群中相当多数（如果不是大多数）是市政工作人员，包括洛杉矶警察局和洛杉矶消防局的成员，以及其他几个市政部门的雇员。
+另据路透社报道称，今年九站台湾国防部发表的”2021年中共军力报告书”便提出警告，解放军结合北斗卫星全时域定位等措施，已全盘掌握台湾军事动态及完善战场经营。并初具瘫痪防空、制海及反制作战体系的能力。
 
-洛杉矶全市雇员接种疫苗的最后期限将于12月18日开始。到那时任何还没有接种疫苗的人都将被解雇，除非他们获得了豁免——我们都知道他们有多大的可能发放这种豁免—— “不可能！”
+新闻参考链接： [https://p.dw.com/p/42luD](https://p.dw.com/p/42luD)
 
-洛杉矶市的政策是全国最严格的政策之一，还包括一项对所有洛杉矶居民的限制性规定，该规定于11月4日开始实施。现在，任何12岁及以上的人进入大多数室内区域，包括健身房、餐馆、酒吧、体育赛事（室内或室外）以及其他一些常见的日常场所，都需要提供疫苗接种证明，这只会助长引发这次大规模抗议活动的公众愤怒。
+* * *
 
-报道引用了一些现场推特视频：
-
-
-
-> “FREEDOM! FREEDOM!”
-> 
-> Anti mandate crowd including hundreds of government workers chant at LA City Hall. [pic.twitter.com/AFcgkJ0Qvc](https://t.co/AFcgkJ0Qvc)
-> — James Klüg (@realJamesKlug) [November 8, 2021](https://twitter.com/realJamesKlug/status/1457800730065076231?ref_src=twsrc%5Etfw)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-“争取自由集会游行”是由当地一个非营利组织——“消防员为自由”（Firefighters 4 Freedom）组织的，该组织由洛杉矶消防员约翰·诺克斯（John Knox）创立，目的是对抗中共病毒疫情之后的医疗暴政。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-在整个上午的集会中，几位发言者都传达了同样的信息——“停止强制接种疫苗”。
 
-据报道，“我们不会顺从”和“自由”的呼喊声响彻街头。
-
-许多抗议者挥舞着美国国旗，举着谴责强制要求戴口罩和疫苗接种的牌子，和平示威反对限制性的公共卫生措施。
-
-在接受当地新闻媒体采访时，几名市政府员工甚至直截了当地表示，他们宁愿失业也不注射实验性疫苗。
-
-原文链接：[**“We Will Not Comply” – Thousands – Including City Workers, LAPD Officers, and Firefighters – Gather Outside Los Angeles City Hall to Protest Upcoming Deadline for Covid Vaccine Mandates**](https://www.thegatewaypundit.com/2021/11/will-not-comply-thousands-including-city-workers-lapd-officers-firemen-gather-outside-los-angeles-city-hall-protest-upcoming-deadline-covid-vaccine-mandates-video/)
 
  
 

@@ -2,29 +2,41 @@
 ---
 
 
-## 美国参众议员搭军机访台！
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1650826/)
+## 新中国联邦当下急需着手的三件事
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1650894/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-4.jpg)美国参众议员搭军机访台！ 网络图片
-据台湾Newtalk新闻11月9日报道，今天晚间6时左右，传出美国海军一架C-40A行政专机降落台北松山机场。据称，该机是由美国国会所申请的专机，搭载美国参众议员来台访问。对此，台湾总统府发言人张惇涵表示，基于台美互信及协调结果，并尊重访宾意愿。总统府未进一步说明，相关资讯将由外交部适时对外说明。
+作者：英国喜庄园 – I770775
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月7日，郭先生在直播中提到，喜币自上市以来一路增值，吸引了成千上万的墙内战友注册喜马拉雅交易所账号。但是，由于短时间内激增了大量的注册用户，再加上中共黑客的疯狂攻击，很多用户反复尝试认证系统却都无功而返。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-62.jpg)
+针对这一现状，文贵先生谈到，新中国联邦目前应该尽快完成以下三个目标：
 
-同时台湾外交部指出，相关行程是由美国在台协会台北办事处(AIT/T)协调安排，外交部提供访团所需的行政协助，并就相关防疫措施协调中央流行疫情指挥中心。
+首先，帮助战友迅速地通过喜马拉雅交易所的KYC认证，换句话说，要帮助战友用较便宜的低价票登上喜联储这列最后的财富列车。
 
-新闻参考链接： [https://newtalk.tw/news/view/2021-11-09/664012](https://newtalk.tw/news/view/2021-11-09/664012)
+其次，把所有战友的喜币安全化、集中化。可以利用基金管理的方式，把分散在战友手里的喜币集中在一起，防止机构和中共通过恶意做空喜币将战友洗出市场。
 
-* * *
+最后，在机构入驻以及喜联储全功能启动之前，让战友们在安全、合法、智慧地享受自己财富的同时，还不失去自己的币——让战友们既有币，又有钱。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+郭先生强调，这几件事要尽力在半年左右实现，最晚不能超过八个月。
 
+参考链接：
 
-编辑：【英国伦敦喜庄园编辑部】
+[2021年11月07日 文贵大直播：(2). 虚拟币交易所，银行，币价，市值，估值与提现之间的关系；(4). 喜交所的私链技术针对灭共而设计，打破中共对虚拟币的垄断与控制](https://gtv.org/video/id=6187c5e211d186296802ed33)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 
+
+总编/编辑：飞虹
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

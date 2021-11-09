@@ -2,25 +2,24 @@
 ---
 
 
-## 新闻自由不断紧缩，香港《立场新闻》总编辞职
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1650978/)
+## 坎普拉教授公开新冠疫苗中发现的氧化石墨烯照片
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651039/)
 
-作者：英国喜庄园 – I770775
+作者：纽约香草山翻译部 – defiance
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月6日，《立场新闻》总编辑钟沛权通过脸书上一个非公开的群组表示，已于当地时间11月1日辞任《立场新闻》总编辑一职。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-35.jpg)
-据了解，《立场新闻》成立与2014年，由蔡东豪、钟沛权以及余家辉创立，一直以来对港共当局持批判态度，是一个偏向泛民主派的网络媒体。在香港“反送中”运动期间，该媒体持续报道抗争者动态，被港共当局视为眼中钉。 为此，早在今年6月底，《立场新闻》曾宣布，将5月之前刊出的文章全部下架，并暂停接受赞助。
+当地时间11月5日，西班牙阿尔梅里亚大学的巴勃罗·坎普拉教授在一档直播节目中提及，他观测到辉瑞、牛津阿斯利康和科兴新冠疫苗中均含有氧化石墨烯分子，同时，他还向观众展示了疫苗中氧化石墨烯分子的照片。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-6.jpeg)
+相关报道显示，这是世界上首次对科兴新冠疫苗的成分进行展示。此前，坎普拉教授还展示过一些有关辉瑞疫苗成分的实验室报告。随即，智利、阿根廷等国家也对新冠疫苗进行了检验分析。
 
-有知情人士透露，随着中共港区国安法的出台，香港的新闻自由度正在不断紧缩，像《立场新闻》这类媒体的“生存空间”也变得越来越小。而今，钟主编的辞职实乃意料之中，这也预示着《立场新闻》将走到尽头。
+该直播节目表示，节目组现已获得三种新冠疫苗的光学显微镜照片。检验结果显示，三种新冠疫苗中均被检测到氧化石墨烯的存在。据悉，检测到的氧化石墨烯分子呈现出褶皱的片状形态，长度和宽度均在20至30微米左右。
 
-参考链接：
+参考链接：[Exclusive photos of graphene oxide found in Pfizer, AstraZeneca and Sinovac vaccines](https://www.orwell.city/2021/11/exclusive-photos.html)
 
-[《立场新闻》总编辞职 香港媒体人：报道难以为继](https://www.dw.com/zh/%E7%AB%8B%E5%9C%BA%E6%96%B0%E9%97%BB%E6%80%BB%E7%BC%96%E8%BE%9E%E8%81%8C-%E9%A6%99%E6%B8%AF%E5%AA%92%E4%BD%93%E4%BA%BA%E6%8A%A5%E9%81%93%E9%9A%BE%E4%BB%A5%E4%B8%BA%E7%BB%A7/a-59752567)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-
-总编/编辑：AN
-校正/发稿：Fei797
+总编：飞虹
+编辑：文特 
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

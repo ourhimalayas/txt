@@ -2,40 +2,26 @@
 ---
 
 
-## 文贵大直播的重大意义
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1650945/)
+## 美联储副主席或因金融监管不力提前辞职
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1651005/)
 
-作者：纽约香草山农场 – 恩永存
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在11月7日的大直播中提到，当天的直播内容包含重要的信息，希望战友尽可能地多次观看。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-43.jpg)
-另外，郭先生还从三个方面阐述了大直播的意义所在：
+采編：UCool优酷 编译撰稿：文所未闻
 
-第一，传播真相——美国被暂停的新冠疫苗强制令就是最好的例子，这是在郭先生的说服下由班农先生推动的，这也将改变美国和世界。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-5.jpeg)图片来源：CNBC
 
-第二，传授知识——比如，郭先生在直播中通过与战友们的互动和答疑，让战友们理解喜币的意义和机制，以及喜币将给战友们带来的权利与财富。
 
-第三，传递情感——郭先生在反复多次的长直播中和战友们以心交心，真心真爱。
+据美国《CNBC新闻网》11月8日报道，现任【美国联邦储备委员会】副主席，负责该国银行监管事务的理事-夸尔斯当天宣布，他已向总统拜登正式提出将于12月底生效的辞职申请。
 
-除此之外，郭先生再次嘱咐战友，希望更多的同胞抓住机会，尽快通过喜马拉雅交易所的KYC认证，以便买到价格低廉的喜币。
+夸尔斯于2017年10月被正式提名为美联储董事会成员，随后被重新任命为理事会副主席，其任期原本至2032年结束。但在最近几周内，连同美联储主席鲍威尔一道，夸尔斯的所作所为备受各界诟病，特别有国会议员领导人指责其放松了对金融危机后各项出台法规的必要监管。
 
-参考链接：
+据悉，美央行行长布雷纳德有望成为夸尔斯的潜在继任者并负责该国金融市场的监管工作。同时，随着美联储主席鲍威尔的任期即将届满，这使得总统拜登有机会重整目前美联储内部的人事组织架构。
 
-[2021年11月7日 文贵大直播：虚拟货币知多少 喜币未来有多牛](https://gettr.com/post/pga8le9f31)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+校对编辑，发稿：硫酸羟氯喹64
 
-总编：飞虹
-编辑：Kathy文艺
-校正/发稿：Fei797
+[原文链接：](https://www.cnbc.com/2021/11/08/randal-quarles-to-resign-at-year-end-paving-way-for-biden-to-further-remake-the-federal-reserve.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

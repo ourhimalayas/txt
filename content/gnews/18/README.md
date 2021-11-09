@@ -2,31 +2,33 @@
 ---
 
 
-## 台湾国防部：中共国以灰色战术 动摇台湾民心士气
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1650921/)
+## 新闻自由不断紧缩，香港《立场新闻》总编辞职
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1650978/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-5.jpg)台湾国防部：中共国以灰色战术 动摇台湾民心士气 网络图片
-据德国之声中文网11月9日报道，台湾国防部今日在其两年一度的《国防报告书》中指出，解放军目前”已具备对我重要港口、机场及对外航道实施联合局部封锁，截断海、空交通路线能力，影响军备后勤资源整补与作战持续力。 “
+作者：英国喜庄园 – I770775
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月6日，《立场新闻》总编辑钟沛权通过脸书上一个非公开的群组表示，已于当地时间11月1日辞任《立场新闻》总编辑一职。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-35.jpg)
+据了解，《立场新闻》成立与2014年，由蔡东豪、钟沛权以及余家辉创立，一直以来对港共当局持批判态度，是一个偏向泛民主派的网络媒体。在香港“反送中”运动期间，该媒体持续报道抗争者动态，被港共当局视为眼中钉。 为此，早在今年6月底，《立场新闻》曾宣布，将5月之前刊出的文章全部下架，并暂停接受赞助。
 
-报告还指出，中共国正在开展所谓的”灰色地带”战术，比如从去年九月至今年八月底，已有554架次中共军机进入台湾西南地区的防空识别区。而这种灰色地带威胁”具非战非和的模糊性，不仅消耗台湾方面战力，也动摇台湾民心士气，企图改变或挑战两岸既有现状，达成’不战夺台’的目标。
+有知情人士透露，随着中共港区国安法的出台，香港的新闻自由度正在不断紧缩，像《立场新闻》这类媒体的“生存空间”也变得越来越小。而今，钟主编的辞职实乃意料之中，这也预示着《立场新闻》将走到尽头。
 
-另据路透社报道称，今年九站台湾国防部发表的”2021年中共军力报告书”便提出警告，解放军结合北斗卫星全时域定位等措施，已全盘掌握台湾军事动态及完善战场经营。并初具瘫痪防空、制海及反制作战体系的能力。
+参考链接：
 
-新闻参考链接： [https://p.dw.com/p/42luD](https://p.dw.com/p/42luD)
+[《立场新闻》总编辞职 香港媒体人：报道难以为继](https://www.dw.com/zh/%E7%AB%8B%E5%9C%BA%E6%96%B0%E9%97%BB%E6%80%BB%E7%BC%96%E8%BE%9E%E8%81%8C-%E9%A6%99%E6%B8%AF%E5%AA%92%E4%BD%93%E4%BA%BA%E6%8A%A5%E9%81%93%E9%9A%BE%E4%BB%A5%E4%B8%BA%E7%BB%A7/a-59752567)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+总编/编辑：AN
+校正/发稿：Fei797
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

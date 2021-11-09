@@ -2,38 +2,21 @@
 ---
 
 
-## 日本要闻汇编 11月9日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1650832/)
+## 秘翻在线：中共病毒毒疫苗会引发GBS神经紊乱病症
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1650915/)
 
-#### 素材：东京樱花团｜GNEWS组
+#### 撰稿翻译：Hakunamatata
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/119日要.png)[*图片来源*](https://static.taisounds.com/WebUpd/TaiSounds/society/yen-2177672_1920_20051209183026508.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/jksladjfoiu34ti430ksldajf9i34ptkllsdaf.jpg)
 
-1、[**日政府新设三个职能会议 向新资本主义迈进**](https://china.kyodonews.net/news/2021/11/c419826217fa--.html)
+一些知情人士告诉《儿童健康》，加州州长加文·纽森因10月最后一周接受的中共病毒毒疫苗加强注射而受到了疫苗所带来的不良反应。
 
-日本官房长官松野博一9日记者会上宣布，已新设“数字田园都市国家构想实现会议”、“数字临时行政调查会”（数字临调）、“全年龄层型社会保障构筑会议”这3个会议。负责上述3个会议的阁僚分别是：世博相若宫健嗣负责数字田园都市会议，数字相牧岛Karen负责数字临调会议，经济再生担当相山际大志郎负责社保会议。
+这位不愿透露姓名的消息人士说，纽森的症状与Guillain-Barré综合征(GBS)相关的症状相似，这是疫苗的已知副作用。GBS是指一种神经紊乱，身体免疫系统错误地攻击周围神经系统一部分的病症，神经网络以外的大脑和脊髓范围可以让人从软弱瘫痪到让人无法呼吸。 从10月27日后这位州长就再也没有公开露过面，纽森用高压手段向包括儿童在内的加州民众推广中共病毒毒疫苗。
 
-2、[**自公两党商定10万补贴现金优惠券各半**](https://china.kyodonews.net/news/2021/11/de8bafddb119-10.html)
+儿童健康防御委员会主席罗伯特·f·肯尼迪宣布：如果这是真的，州长在接种疫苗后遭受了衰弱的神经损伤，这也引发了严重的道德问题。他在实施咄咄逼人的政策迫使加州的儿童和工薪阶层承受类似的风险的同时，似乎也隐瞒了自己遭受到的毒疫苗的伤害。
 
-日本自民党干事长茂木敏充、公明党干事长石井启一9日在国会内会谈，围绕新冠疫情的经济对策，就向18岁以下孩子发放10万日元（约合人民币5670元）补贴的方针达成了一致。双方商定尽快发放5万日元现金，朝着明年春季再发放相当于5万日元的优惠券。
+原文链接：[**BREAKING: Source Tells Children’s Health Defense CA Gov Gavin Newsom Is Injured By Vaccine Booster, Not Seen In Weeks**](https://creativedestructionmedia.com/news/2021/11/08/breaking-source-tells-childrens-health-defense-ca-gov-gavin-newsome-is-injured-by-vaccine-booster-not-seen-in-weeks/)
 
-3、[**美助理国务卿期待日本增加防卫预算**](https://china.kyodonews.net/news/2021/11/5ff5ede3045a.html)
-
-美国助理国务卿克里滕布林克9日在东京接受共同社独家专访，就日本的防卫预算表示“美国欢迎增加金额”，为遏制中国，他对在安全保障领域日本发挥更大作用表示期待。
-
-4、[**日本经产大臣参加APEC部长级会议**](https://www3.nhk.or.jp/nhkworld/zh/news/331859/)
-
-8日、亚太经合组织（APEC）部长级会议在线召开，日本经济产业大臣萩生田光一在会上强调了为从新冠疫情造成的严峻经济形势中复苏，加强区域合作的重要性。
-
-本次部长级会议从重点讨论如何重振受疫情冲击的经济。日本经济产业大臣萩生田光一与会。
-
-5、[**东京都内大学为迎留学生入境加紧准备**](https://www3.nhk.or.jp/nhkworld/zh/news/331925/)
-
-伴随着新冠病毒口岸防疫措施的放宽，11月8日起，日本有条件重启留学生入境。原则上长期居留的留学生需确保14天隔离期，由大学等负责管理其行动。在东京都内的大学里，工作人员正加紧为迎接留学生做好准备。
-
-*校对：东京樱花团 / 文小白
-发布：东京樱花团 / 野猫*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
