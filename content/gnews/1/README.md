@@ -2,24 +2,27 @@
 ---
 
 
-## 海关数据显示，中共国20%粮食需进口
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1650074/)
+## COVID-19 最新情报｜州长去哪儿了？“失踪”12日 传美国加州州长因接种疫苗致面瘫
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1650116/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-40.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fi.epochtimes.com%2Fassets%2Fuploads%2F2020%2F03%2FGettyImages-623466984-450x290.jpg&amp;imgrefurl=https%3A%2F%2Fwww.epochtimes.com%2Fgb%2F21%2F2%2F25%2Fn12773370.htm&amp;tbnid=yAkNWQJnrvRowM&amp;vet=12ahUKEwiPpf7JxIr0AhUaKqYKHRwrDUYQMygJegUIARC_AQ..i&amp;docid=GEfQ6ZkOirTaFM&amp;w=450&amp;h=290&amp;q=%E7%B2%AE%E9%A3%9F&amp;ved=2ahUKEwiPpf7JxIr0AhUaKqYKHRwrDUYQMygJegUIARC_AQ)
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜9/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-近日中华粮网报道，海关总署公布的数据显示，中共国10月粮食进口量为968.4万吨，1—10月进口量为13795.6万吨，同比增加23%，占粮食总产量接近20%。有望超过2020年全年粮食进口总量14262.1万吨。其中，10月大豆进口量为510.9万吨。1—10月大豆进口量为7908.3万吨，同比减少5%，进口均价每吨3531.8元，上涨30.2%；10月食用植物油进口量为61.3万吨，1—10月食用植物油进口量为890万吨，同比增加4.6%。
+【美国】加州州长加文·纽瑟姆 (Gavin Newsom) 自从 10 月 27 日接种了莫德纳 COVID-19 疫苗后，就从公众视线中消失了，至今已有12日。期间，他相继取消了苏格兰的旅行，格拉斯哥的 COP26 联合国气候峰会，连视讯会议都通通取消。
 
-粮食是维系和平的基本因素，相对于疫情，自然灾害，能源短缺等问题，粮食显得格外重要，而中共国粮食供应量的20%全靠进口，随着病毒疫情的蔓延，中共国经济危机进一步扩大，而粮食危机也随之加剧。
+今日，美媒《The defender》率先爆料指，一名接近州长的消息人士透露，州长纽瑟姆受到了疫苗不良反应，并患上吉兰·巴雷综合征（GBS），该综合征最常见的症状就是面瘫。
 
-信息来源：
+该消息人士指出，事实上，纽瑟姆接种疫苗半小时后，当他召开新闻发布会时，脸就突然很红，然后他很快走下新闻台匆忙结束发布会。从那以后，他就再也没有出现在公众面前。
 
-[我国1-10月粮食进口量达1.38亿吨！](https://mo.mbd.baidu.com/r/w4vMod0euQ?f=cp&amp;rs=3273414826&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=b387c521876cacbb)
+[根据资料](https://www.cdc.gov/campylobacter/guillain-barre.html)，GBS 是是一种罕见的自身免疫性疾病，患者自身的免疫系统会损伤神经，导致肌肉无力，有时甚至瘫痪。GBS 可引起持续数周至数年的症状。大多数人会完全康复，但有些人会出现永久性神经损伤，甚至死亡，最常见症状之一就是面瘫，即面部的一侧开始下垂。
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
+早几日，加州当地的媒体报导指，州长纽瑟姆缺席各种活动的原因是“一直忙于处理家庭事务”，不过截止上周末，州长办公室一直未公布州长本周的工作安排。
+
+截止截稿前，又多一位人士[公开证实](https://stevekirsch.substack.com/p/gavin-newsom-is-out-of-sight-likely)，加州州长纽瑟姆因接种疫苗患上吉兰·巴雷综合征。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-S222pace-Channel-Banner.jpg)
+来源｜[The defender](https://childrenshealthdefense.org/defender/gov-gavin-newsom-moderna-booster-vaccine/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

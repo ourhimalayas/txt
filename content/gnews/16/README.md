@@ -2,37 +2,42 @@
 ---
 
 
-## 美国一联邦法院阻止拜登的大公司疫苗强制令
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1649928/)
+## 新一轮对美国的网络攻击疑与中共黑客高度相关
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1650000/)
 
-翻译: 波士顿五月花  jiasen
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-8.jpg)[Federal Appeals Court Blocks Biden’s ‘Big-Company’ Vaxx-Mandate](https://www.zerohedge.com/political/federal-appeals-court-blocks-bidens-big-company-vaxx-mandate)
-www.zerohedge.com
-美国一联邦法院在一项针对拜登政府的中共病毒疫苗强制令的诉讼中宣布诉方暂时获胜，该法院暂停了在德克萨斯州实施有争议的联邦政府规定。
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+有消息称，外国黑客已经侵犯了美国国防部门和其它敏感部门的数据。网络安保公司帕罗阿尔托的高管瑞恩表示，这一轮网络攻击针对国防、能源、医疗保健、技术或教育等九个部门。身份不明的黑客不断试图从美国国防承包商和其他敏感目标窃取关键数据。至少有一个黑客组织位于美国本土。
 
-德州共和党总检察长肯·帕克斯顿(Ken Paxton)周六在推特上表示：“昨天，我就非法的职业安全与健康管理局 (OSHA) 疫苗强制令对拜登政府提起了诉讼。我们赢了。今早，第五巡回法院以严重的法律和宪法问题为由，暂缓了强制令。战斗还未结束，我永远不会停止抵制政府的违宪越权行为！”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12-4.png)
 
-福克斯新闻报道，帕克斯顿在本周早些时候就疫苗强制令起诉了拜登政府，称强制雇员人数超过 100 的公司的员工接种疫苗或每周接受检测的举措是“完全违宪的”。他于周五在推特上表示：“拜登对私营企业的新疫苗强制令是骇人听闻的权力滥用。职业安全与健康管理局仅只有限的权力和特定的责任。这一最新举措远超它的权力范围。所谓的标准完全违宪。我要求法院将其撤销。”
+瑞恩说，黑客窃取了一些目标部门的密码，以保持对这些网络的长期访问。入侵者可以顺利拦截通过电子邮件发送或存储在计算机系统的敏感数据。任何与五角大楼做生意的公司都可以在电子邮件中包含外国间谍可能感兴趣的一系列国防合同数据。即使不是机密信息，也非常有价值。
 
-《华尔街日报》报道称，位于新奥尔良的第五巡回法院表示将迅速考虑是否发布针对疫苗强制和检测要求的禁令，并命令拜登政府于周一下午晚些时候提交初步法律文件。
+目前还不清楚谁对此负责，但攻击者的一些战术和工具与中国黑客组织的手段高度相关。CISA和FBI表示正在追踪和调查这一威胁，但拒绝就黑客身份发表评论。
 
-一些贸易团体已就疫苗强制令发出警告，称这将加剧全国性的供应链瓶颈恶化和人员短缺。
+（本文仅代表作者观点）
 
-白宫仍然相信这项强制令会经受得起法律挑战。白宫副新闻秘书卡琳·皮埃尔认为：“我们非常有信心强制令可以经得起法律挑战。至于这个问题的法律方面，让我清楚地澄清以避免将紧急临时标准被认定为疫苗强制令，这是错误信息或虚假信息。正如几个月来被明确解释的，仅从表面上看待紧急临时标准是不正确的。每周测试或接种疫苗是维护工作场所安全的一项标准。”
+参考阅读：
 
-做出这一决定之际，来自密苏里州的共和党参议员乔什·霍利表示，他加入了由来自印第安纳州的共和党参议员迈克·布劳恩牵头的一项动议，旨在根据《国会审查法》阻止拜登总统的私人雇主疫苗强制令。这是国会废除行政令的一个过程。包括参议院和众议院在内的国会共和党人正在寻求正式取消拜登的强制令。
+- [https://edition.cnn.com/2021/11/07/politics/hackers-defense-contractors-energy-health-care-nsa/index.html](https://edition.cnn.com/2021/11/07/politics/hackers-defense-contractors-energy-health-care-nsa/index.html)
 
-霍利在 11 月 5 日的新闻发布会中表示，拜登的强制令可能加剧当前的劳动力短缺和供应链问题，是“对美国公民基本权利的违宪侵犯”，并且“非法绕过了既定的监管程序”。拜登无视这一基本原则，迫使雇主要求员工接种疫苗、接受严格的测试程序，或被解雇。这是错误的，这将使我们国家的经济问题变得更糟，我们绝不能允许其生效。
 
-据今天联邦上诉法院的裁决，我们推测下一步将由最高法院决定美国政府到底拥有多大的权力。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
 
-新闻来源: [Federal Appeals Court Blocks Biden’s ‘Big-Company’ Vaxx-Mandate](https://www.zerohedge.com/political/federal-appeals-court-blocks-bidens-big-company-vaxx-mandate)
+***编辑***：***Irene木木***
+***校对/发稿：海阔天空1***
 
-* * *
+**更多资讯，更多关注**
 
-*素材来源：**jiasen*
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-*编辑**& 发布：jamie(文胤)*
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

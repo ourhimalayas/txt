@@ -2,44 +2,20 @@
 ---
 
 
-## 澳洲skynews报道另一封打杂客的邮件实锤蝠奇的NIH资助了功能增强实验
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1650011/)
+## 软银自2020年1-3 月以来，时隔5个季度首次出现亏损
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1650044/)
 
-作者：日本方舟农场 – Andy5
+作者：韩国首尔天池农场  追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-09-at-15.05.10.jpeg)图为：决算说明会软银集团董事长兼总裁孙正义
+据日本雅虎新闻11月8日的报道 软银集团（SBG）8日公布的2021年7-9月（国际会计准则）合并财报显示，最终损益为亏损3979亿日元（前一年同期盈余6274亿日元）。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+决算说明会指出，在主要投资国中国，随着中国政府加强对掌握大数据的IT企业的监管，软银所投资的企业股价大幅下降，对其收益产生影响。此次也是软银集团季度最终损益自 2020 年 1 ~3 月以来，时隔5个季度首次出现亏损。
 
-由于CCP不愿公开让全世界调查病毒起源，非营利组织和媒体们继续另辟蹊径，在信息自由法之下，深挖病毒起源的相关信息。并在上周爆出作为NIH和武毒所中间人的打杂客曾给NIH写了一封邮件，邮件的原文是：“太棒了！我们非常高兴能听到被冻结的功能增强实验资金被解除限制！” 可以看出打杂客清楚地承认NIH的资金被用于“功能增强实验”，并且NIH也对这件事是知情的。
+软银集团在中国投资的公司股票出现大跌，包含今年 6 月在美国市场上市的网约车服务滴滴出行中国公司，以及中国IT巨头阿里巴巴集团。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/捕获-5.png)
+在8日的财报说明会上，软银集团会长兼社长孙正义表明了“正处于严冬的风景之中”的看法。
 
-Skynews的主持人Sharri指出，这就证明蝠奇资助了武毒所的功能增强实验，并且蝠奇在国会撒谎否认了这一事实，这些证据都表明蝠奇需要立马被炒鱿鱼，并且NIH如同CCP一样在掩盖着武毒所正在进行的实验。
-
-同时Sharri还指出，目前仅有非营利组织和媒体在挖掘邮件中的信息来确定病毒起源的蛛丝马迹，公众能看到的都是被删减之后的信息，暗示如果全世界想要知道这场全球流行疫情的来龙去脉就需要政府级别的介入调查和信息公开。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-- [https://www.gettr.com/post/pgbctd9fcd](https://www.gettr.com/post/pgbctd9fcd)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
-
-***编辑***：***Irene木木***
-***校对/发稿：海阔天空1***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[参考新闻](https://news.yahoo.co.jp/articles/7d2bbf36c3038df679f667413a12f06136648f54)
 
  
 

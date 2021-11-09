@@ -2,52 +2,40 @@
 ---
 
 
-## 雾霾、寒潮加暴雪，墙内民众叫苦连天
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1649770/)
+## 秘翻在线：日本天后滨崎步紧急送院，媒体速删CCP病毒疫苗相关报道
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1649829/)
 
-作者：英国喜庄园 – I770775
+撰稿：文字焼
+![](https://assets.gnews.org/wp-content/uploads/2021/11/16364270271.png)图片来源：ANN NEWS
+日本歌坛天后滨崎步因休克紧急送院，日本主流媒体速删其已接种CCP病毒疫苗的相关报道。媒体为何删除报道？引起日本网友议论纷纷。我们从时间顺序来梳理一下媒体的报道：
 
+10月6日，据雅虎日本报道，滨崎步已完成CCP病毒疫苗接种。该文章在滨崎步紧急送院后被迅速删除，但网络是有记忆的。笔者找到了该文章的缓存链接，证明该报道是真实存在过的：
 
+[http://web.archive.org/web/20211007052005/https://news.yahoo.co.jp/articles/11f14db600f1ad8f2cd43fdb7064549ad392b166/](https://web.archive.org/web/20211007052005/https://news.yahoo.co.jp/articles/11f14db600f1ad8f2cd43fdb7064549ad392b166/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+附上截图：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/16364271391.png)
+同时，体育报知也报道了同样的新闻，并指出滨崎步在其官方Instagram上也发表了已完成CCP病毒疫苗接种，该文章也已被删除。不过，我们同样找到了能证明其存在过的缓存链接：[http://web.archive.org/web/20211107054323/https://hochi.news/articles/20211006-OHT1T51075.html?page=1](https://web.archive.org/web/20211107054323/https:/hochi.news/articles/20211006-OHT1T51075.html?page=1)
 
+附上截图：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/16364271391-1.png)
+11月7日， 日本媒体报道滨崎步因过敏性休克紧急送院：
 
+[https://news.yahoo.co.jp/articles/57e1b69cdf49b0b9e9cdcd66031b68afccbba706](https://news.yahoo.co.jp/articles/57e1b69cdf49b0b9e9cdcd66031b68afccbba706)
 
-连日来，中共国中东部地区连续多日出现重度雾霾。随后，一股强冷空气席卷全国，大部分地区一夜间气温骤降，暴雪临门，很多民众生活面临困境。
+11月8日：日本媒体再次出新闻，解释滨崎步并非因CCP病毒疫苗而导致过敏性休克，但又在文章中写道：据东京西武学园医疗技术学院院长、医学博士中原英臣说，过敏性休克是注射CCP病毒疫苗后常见的一个症状。当外来物质进入身体时，会引起过度反应。他说：“在严重的情况下，可能导致死亡”。
 
-从11月2日起，中共国中东部地区空气污染日渐严重，截至11月5日7时，京津冀及周边、汾渭平原、长三角等地区，共有85个城市的空气质量出现PM2.5超标污染，29个城市启动重污染天气预警。其间，从11月4日开始，一股寒潮对中共国自西北至东南展开全面侵袭，气温大幅下降，全国大部分地区气温下降8°~10°，局部地区降温达16°以上。6日下午，内蒙古通辽、吉林省长春等地连发多次暴雪红色预警。北方大部分地区从7日开始普降暴雪，多地降雪量突破历史极值，一夜之间进入寒冬。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-58.jpg)
-雾霾、寒潮、暴雪，使墙内百姓生活雪上加霜。
+相关链接：
 
-有消息人士称，因为煤炭价格飙涨，还有很多农村居民没有采购足够的煤，如何温暖地度过今年冬天的严寒，将是他们不得不面对且发愁的头等大事。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-2.jpg)
-参考链接：
-1. [寒潮黄色预警 全国大部气温将猛跌 局地降温达16摄氏度以上](https://news.china.com/socialgd/10000169/20211105/40238493.html)
-2. [PM2.5污染再起 中国东部29个城市启动重污染天气预警](http://binzhou.iqilu.com/rdjj/2021/1105/4992397.shtml)
-3. [内蒙古通辽连发3次暴雪红色预警信号 多地降雪量突破极值](https://news.sina.com.cn/c/2021-11-08/doc-iktzscyy4302434.shtml)
+[https://news.yahoo.co.jp/articles/14b5d3c0edcb26e93f78ab684de0b5fb0c4f361c](https://news.yahoo.co.jp/articles/14b5d3c0edcb26e93f78ab684de0b5fb0c4f361c)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+日本媒体删除新闻报道的行为令人不解，据说滨崎步现已恢复意识。祝天后早日康复。
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+信息来源：[https://news.tv-asahi.co.jp/news\_geinou/articles/hot\_20211107\_050.html](https://news.tv-asahi.co.jp/news_geinou/articles/hot_20211107_050.html)
 
-**更多资讯，更多关注**
+（文章仅代表作者个人观点）
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+责编：待命（文晓）
 
  
 

@@ -2,30 +2,38 @@
 ---
 
 
-## 日本的抗艾滋病疫苗让彻底治愈指日可待
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1649828/)
+## 英首相约翰逊继续推广疫苗加强剂
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1649897/)
 
-#### 撰稿:东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-59.jpg)[图片来源](https://www.hokkaido-np.co.jp/sp/article/609312?kjn)
-日本国家“医药基础、健康与营养研究所”的研究小组8日宣布，使用猴子试验，他们已经开发出一种疫苗技术，可以将艾滋病病毒从体内彻底清除。如果感染了艾滋病病毒，尚需持续性服用该药，但研究小组表示，这是“朝着彻底治愈迈出的一大步”。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-140.png)图片来源：每日邮报
+**翻译：**小鱼儿
+**编辑：**Candy
 
-研究小组把重点放在一种细菌上，这种细菌产生一种能加强免疫反应的物质。他们将这种细菌的基因与被削弱的艾滋病病毒的基因整合在一起，产生了一种活疫苗。当给食蟹猕猴注射该疫苗时，它们一度感染了艾滋病毒，但随后病毒就检测不出来了。
+目前约有十分之四符合条件的英国人未接种增强剂。英国首相鲍里斯·约翰逊说 ：有“太多”接种双剂疫苗的老人被送进医院，他敦促人们前去接受疫苗的增强针剂，因为增强剂能提供95%的保护。
 
-接种疫苗后，七只猴子中有六只检测不到病毒，尽管它们感染的是一种高毒性的病毒，能100%杀死被感染者。此外，当把六只幸存猴子的血液和淋巴结细胞注射到健康猴子体内时，其中四只猴子的病毒是检测不到的。
+传染病教授迈克·蒂尔德斯利（Mike Tildesley）博士说：Covid将会和流感一样，每年都持续循环。他警告说，这意味着人们的免疫力可能需要再次加强。
 
-未来，该研究小组希望从正在接受药物治疗的艾滋病患者身上采集病毒，制成个体疫苗并用于治疗。 与日本 BCG 实验室合作进行研究的灵长类动物医学科学研究中心主任保富康宏讲道：“我希望在五年内开始人体临床试验。”
+英国前疫苗部长纳齐姆·扎哈维（Nadhim Zahawi）称：增强剂可能每年都会发放。
 
-艾滋病是三大传染病之一，全世界有3770万人感染，日本感染人数超过2万。抗病毒药物已使该病毒的致命性降低，但目前的药物无法杀死体内的病毒。长期用药的副作用、高昂的治疗费用、耐药病毒的出现等成为问题。
+鲍里斯.约翰逊今天警告说，前两剂疫苗在提供六个月的保护后，性能会大大减弱。约翰逊称，迄今为止已经发放的1000万个增强剂“非常有效”，它给人们提供的保护比单独的两剂高出95%。
 
-同样的生物基因改造技术，中共国研发出新冠病毒，导致了病毒在全世界的蔓延，日本却用此技术研制出疫苗，攻克了医学难关，为全世界遭受艾滋病折磨的患者带来了福音。中共把所有的灾难嫁祸于人民，绑架着14亿国民，让海外华人也处境危矣。试问，建国70余年，中共为世界文明带来了什么？！除了利用人性弱点，“蓝金黄”以外，中共国又有什么资本让国人为之骄傲？!造假第一，污染第一，精神空虚第一，无信仰第一，等等，一个共产主义的怪胎——中共，正在腐蚀着这个世界。不痛不怒不清醒，又何以反抗。现在，正是正义集结时!
+约翰逊还敦促所有符合条件的人：50岁以上的人、健康者、社会护理工作者，16岁以上存在潜在健康问题的人则应在第二次接种后六个月再次接种加强针疫苗。
 
-信息来源：
+一位著名的政府顾问暗示，每年冬天可能都需要进行强化接种。纳齐姆·扎哈维也提出，疫苗将成为每年对抗中共病毒的一个策略。但其他专家表示，很可能不需要永无止境的加强剂循环，因为病毒总有一天会“淡出”。
 
-[エイズウイルスを完全に排除、サルでの実験で　「完治につながる」](https://news.yahoo.co.jp/articles/2ccca075a942ac3a29835f4a969b03c685b4c064)
+英国迟缓的疫苗推广工作是由于人们对疫苗有效性的质疑，部长们也将原因归咎于人们不够积极主动。同时老年患者称他们无法通过电话预约，也不知道如何使用在线系统。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**参考新闻：**[Boris Johnson warns ‘too many’ fully-vaccinated elderly Britons are ending up in hospital with Covid as PM urges nation to get their booster vaccine](https://www.dailymail.co.uk/news/article-10178297/Boris-Johnson-warns-fully-vaccinated-elderly-Britons-ending-hospital-Covid.html)
+
+***发布：Candy***
+
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/Nz26pG64XF)[Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
