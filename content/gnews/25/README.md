@@ -2,28 +2,51 @@
 ---
 
 
-## 疑为中共挖墙脚 台湾喊停清华海峡研究院在台运作
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1649640/)
+## 中共防资金外流，老虎、富途等跨境券商再被点名
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1649694/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-132.png)*台湾大学校园 (美国之音张佩芝摄，2017年11月23日)*
-据美国之音11月8日报道，中共国“清华海峡研究院”2016年在台湾清华大学设立的“清华海峡研究院新竹办公室”，目前被台湾方面停止运作，因为怀疑该学院帮助中共国在台湾招募科技人才。
-
-台湾新竹是全球高科技代工产业的重镇，半导体技术尤其发达，人才集中。由于中共大陆的科技企业被美国制裁，半导体技术和人才奇缺，因此台湾的人才、科技资源和机密被中共情报机构挖走的现象屡见不鲜。中共不支持发展本土科技，偷技术、挖墙脚，偷完西方偷台湾。一旦对方把防盗系统调整到最高级别，让中共无处可偷，真正的困境就显出来了。
-
-新闻参考链接：[http://dlvr.it/SC5hT4](https://dlvr.it/SC5hT4)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：英国喜庄园 – I770775
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+11月8日，中共媒体《经济日报》发文，点名老虎、富途等跨境互联网券商属“非法”券商，称不能允许它们“无证驾驶”，堵死了墙内普通股民投资境外股票的通道。
+
+这已经不是这两家跨境券商第一次被中共党媒点名了。10月14日，人民网曾借口存在用户信息安全等风险，对富途证券、老虎证券等互联网券商点名，使其股价大跌，造成市场恐慌。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-3.jpg)
+有专家指出，老虎、富途是跨境券商的龙头，前者是取得美国合法券商牌照的优质互联网券商，后者持香港证监会合法牌照。它们多年来为全世界股民参与美股、港股等各国股市提供了优质的券商服务，并不存在中共所谓的违法、不合规行为。
+
+中共此举，实则为进一步收紧资金外流通道，试图压缩券商业务寻找借口。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.2-2.jpg)
+参考链接：
+1. [“跨境券商”再被点名！经济日报发文：怎能无证驾驶](https://www.163.com/dy/article/GO9H2G9J0519C6T9.html)
+2. [老虎富途等跨境炒股属典型非法金融 股价大跌紧急回应](https://news.china.com/socialgd/10000169/20211108/40248551.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

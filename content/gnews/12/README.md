@@ -2,20 +2,17 @@
 ---
 
 
-## 有声|哥斯达黎加宣布强制为儿童接种新冠疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1649781/)
+## 有声|新中国联邦“共同富裕”的愿景
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1649791/)
 
 配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月6日，哥斯达黎加卫生部宣布，未成年人必须接种新冠疫苗，令该国成为世界上首个强制儿童接种新冠疫苗的国家。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月3日，郭文贵先生在GTV大直播中，描述了新中国联邦未来将会实现“共同富裕”的美好愿景。
 
-哥斯达黎加卫生部官员表示，新冠疫苗将被列入儿童基本疫苗接种清单。即从2022年3月开始，全国所有12岁以下的儿童必须接种新冠疫苗。
+新中国联邦拥有铸币权的银行，将会上市和发行股票，其中一部分原始股权将分配给所有爆料革命参与者和新中国联邦公民，终身所有，后代可继承。
+中共提倡的所谓“共享财富”，实际上是掠夺人民的财富，根本无法兑现。但是，新中国联邦将会为所有承认新中国联邦的灭共者，兑现“共享财富”的承诺。新中国联邦人都是新中国联邦中央银行的股东。新中国联邦会建立真正的利益共同体，千宗万代，利益共享。新中国联邦是真正的“民天下”。
 
-有消息显示，哥斯达黎加政府早在10月底就与辉瑞公司签署了一项协议，规定该国政府将从辉瑞公司采购350万剂新冠疫苗，其中150万剂将用于5-11岁的儿童，其余的将向防疫人员、老年人口等提供加强针。
-
-据悉该国政府自2020年12月底启动新冠疫苗接种工作以来，使用的一直是辉瑞疫苗。各国政府强行推行疫苗，必将带来无法挽回的疫苗灾难。
-
-文字版原文：[哥斯达黎加宣布强制为儿童接种新冠疫苗](https://gnews.org/zh-hans/1647467/)
+文字版原文：[新中国联邦“共同富裕”的愿景](https://gnews.org/zh-hans/1648445/)
 
 音频处理：喜山必胜Maverick
 
@@ -23,15 +20,13 @@
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-
-
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

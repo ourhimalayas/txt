@@ -2,10 +2,10 @@
 ---
 
 
-## 【HCoin To the Moon 庆典】：中共将英国作为平爆小组指挥中心攻击喜联储（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1649546/)
+## 【HCoin To the Moon 庆典】：列支敦士登因投资喜联储而跟中共脱钩（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1649547/)
 
-11/1/2021【HCoin To the Moon 庆典】：中共将英国作为平爆小组的指挥中心以攻击喜联储，但我们有绝对的实力反抗并得到了英国等国家的保护，成功粉碎了中共疯狂的行动，否则喜币将推迟一个月上市。
+11/1/2021【HCoin To the Moon 庆典】：列支敦士登因投资喜联储而果断跟中共脱钩；全球人均GDP最高的卢森堡宁愿跟中共脱钩也要投资喜联储；欧洲最大的政治游说公司正在为喜联储在全球游说多国与中共脱钩！
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

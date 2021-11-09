@@ -2,10 +2,10 @@
 ---
 
 
-## 日本首相任命新助理，应对中共国人权问题
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1649700/)
+## 法国官方证实中共病毒疫苗会引发心肌炎和心包炎
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1649707/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._9-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1109-scaled.jpg)
 *编辑：东京樱花团/简报小组*
 *发布：东京樱花团 / tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)

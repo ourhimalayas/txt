@@ -2,10 +2,10 @@
 ---
 
 
-## 【HCoin To the Moon 庆典】纳瓦罗《川普时代》证明郭文贵提供了中共病毒关键情报（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1649545/)
+## 【HCoin To the Moon 庆典】：中共将英国作为平爆小组指挥中心攻击喜联储（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1649546/)
 
-11/1/2021【HCoin To the Moon 庆典】纳瓦罗新书《川普时代》证明郭文贵先生提供了中共病毒的关键情报，该书被美国国家安全委员会批准；美国国会未来会要求解密关于中共生物武器的机密文件。
+11/1/2021【HCoin To the Moon 庆典】：中共将英国作为平爆小组的指挥中心以攻击喜联储，但我们有绝对的实力反抗并得到了英国等国家的保护，成功粉碎了中共疯狂的行动，否则喜币将推迟一个月上市。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
