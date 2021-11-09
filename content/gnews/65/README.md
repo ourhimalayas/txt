@@ -2,36 +2,64 @@
 ---
 
 
-## 美国证监会行政令：关于GTV MEDIA GROUP, INC., SARACA MEDIA GROUP, INC., and VOICE OF GUO MEDIA, INC.
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1531510/)
+## War Room 476-477 摘要：川普总统在113日月赢得连任选举是自发组织力量的流露; 是人民对人类命运共同体的大觉醒。
+` 巴塞罗那喜西农场` [轉載自GNews](https://gnews.org/zh-hans/530909/)
 
-根据《1933 年证券法》第8A 条启动停终程序行政令、作出结论及实施停终令
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/1-4.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/2-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/3-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/4-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/5-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/6-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/7-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/8-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/9-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/10.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/11-1.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/12.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/13.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/14.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/15.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/16.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/17.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/18.jpeg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/09/19.jpeg)
+- 作者：Jenny Ball
 
 
-[中文PDF版：](https://assets.gnews.org/wp-content/uploads/2021/09/SEC-order_20210913_中文翻译-V2.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/SEC-order_20210913_中文翻译-V2.pdf)
+***更多真相，请关注：[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)***
 
-[原版英文PDF：](https://assets.gnews.org/wp-content/uploads/2021/09/33-10979-1-1.pdf)[下载](https://assets.gnews.org/wp-content/uploads/2021/09/33-10979-1-1.pdf)
+班农：川普总统在113日月赢得连任选举是自发组织力量的流露; 是人民对人类命运共同体的大觉醒。
+
+川普在道义上有义务和责任执行人民的意愿和道德义务告慰诺曼底牺牲的孩子们。
+
+每个在11月3日投票的人都对在诺曼底死去而无法投票的孩子负有道义上的义务，
+
+他们发牢骚吗？他们是哭泣吗？没有，他们知道他们将为共和国而战斗到死。
+
+如果您允许这样的事情发生：将人民选举的胜利拱手让给盗窃选举的人，让给南希佩洛西的阴谋，我希望您向在D天死亡的孩子们解释。
+
+我们不能成为香蕉共和国那样的懦夫，如果我们允许进行一场无法核实，无法核查的非法投票，那么我们应该为自己感到羞耻。我们必须捍卫创始人遗赠给我们的珍宝。让乔·拜登1月20日进了白宫的唯一途径就是让左派窃取选举胜利，因为左派获胜的唯一途径就是我们将胜利拱手让给他们。
+
+2021年1月20日中午，唐纳德·J·川普将举起《特朗普家庭圣经》，并宣誓就任第二任总统。我们赢得了这次选举,我们需要像胜利者一样行事。川普已经连任，今天他应该开始执行连任四年美国总统的议程。民主党以为共和党人会像以往那样任其为所欲为，他们大错特错了。川普赢了选举，他即将开始第二任期，我们要开始工作。
+
+众议长佩洛西将不得不自食其果，因为她要去计算所有50个州的选票。
+
+福奇博士和联邦调查局局长雷今天都应被解雇。福奇必须揭露他与中共和世卫组织的每封电子邮件。
+
+华尔街希望平民主义者退出，他们希望与CCP重新开展业务。
+
+人民权威人士：宾夕法尼亚州的75万缺席选票是12％的选票。
+
+尽管昨天我们的投票率超过了92％，但左派现在正将退回到88％，以试图窃取胜利。
+
+所罗门报道：在费城这样的地方，我们看到了选举官员对选民的不同对待, 这种两级投票制是违反宪法的问题。我们正在对亚利桑那州，密歇根州，宾夕法尼亚州和威斯康星州进行全面的法律检查，查看每个选票数高于选民登记数选区的报告。
+
+12月6日，8月14日是我们在选举学院获得投票的关键日期, 现在该站起来了。
+
+12月6日就已经完成了；12月8日是安全港/
+
+12月14日选举学院。 如果我们错过这些，没什么大不了的，我们控制了议会，我知道纽约时报，CNN，MSNBC这些个“主流媒体”不喜欢，所以他们不谈论，但是这是现实，我们赢得了这场胜利，我们控制着每个机构，我们控制着法院，我们控制着州立法机关 ，我们控制了参议院。现在该大声说出来了，我们为此感到自豪，我们为控制这些机构感到自豪，因为我们赢得了选举。
+
+班农先生说关键时刻勇者胜，川普总统在就职日之前有很多牌可以出，我们有四个杀手锏：
+
+1.第二任总统
+
+2.国家立法机关
+
+3.众议院和参议院
+
+4.美国人民的意志
+
+我们将回到表明拜登犯罪集团出卖美国的“地狱硬盘”，检察长巴尔今天应该任命起诉乔·拜登的特别检察官。拉希姆·说希望见到川普政府资深的行政官员巴尔检察长捍卫选举的胜利成果，这样，我们不需要处于紧急状态，而需要通过交流的形式解决。宾夕法尼亚州在法律上的重大胜利为共和党人提供了更多的计票机会。Twitter现在正在审查阻止该信息的发布。
+
+班农告诫我们要迎击所有敌人-外国的和国内的。
+
+War Room 476：[https://podcasts.google.com/feed/aHR0cHM6Ly9saXN0ZW4ud2Fycm9vbS5vcmcvZmVlZC54bWw/episode/d2Fycm9vbWltcGVhY2htZW50LnBvZGJlYW4uY29tL2NjZTBhNTQ0LWIyZjAtM2E3NC05OGM2LTU0ZWFkZjVhZTU5OQ](https://podcasts.google.com/feed/aHR0cHM6Ly9saXN0ZW4ud2Fycm9vbS5vcmcvZmVlZC54bWw/episode/d2Fycm9vbWltcGVhY2htZW50LnBvZGJlYW4uY29tL2NjZTBhNTQ0LWIyZjAtM2E3NC05OGM2LTU0ZWFkZjVhZTU5OQ)
 
 
 
-+21
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/03174100/image0-15.jpg)Himalaya Spain’s official Parler account, stay tuned!
+
+1+

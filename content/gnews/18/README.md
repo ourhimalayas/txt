@@ -2,15 +2,15 @@
 ---
 
 
-## 美国国务院要求中共国无条件释放张展
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1650746/)
+## 美国参众议员搭军机访台！
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1650826/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-3.jpg)美国国务院要求中共国无条件释放张展 网络图片
-据自由亚洲电台11月9日报道，美国国务院发言人普莱斯（ Ned Price ）8日在例行记者会上说，美方对张展健康状况不断恶化表达深切担忧，多个报道引述了中国公民记者张展的家人，张展已接近死亡边缘，美国要求中共国立即无条件释张展，并且尊重新闻自由与及人民自由表达的权利。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-4.jpg)美国参众议员搭军机访台！ 网络图片
+据台湾Newtalk新闻11月9日报道，今天晚间6时左右，传出美国海军一架C-40A行政专机降落台北松山机场。据称，该机是由美国国会所申请的专机，搭载美国参众议员来台访问。对此，台湾总统府发言人张惇涵表示，基于台美互信及协调结果，并尊重访宾意愿。总统府未进一步说明，相关资讯将由外交部适时对外说明。
 
-去年在武汉揭露当地疫情的中国公民记者张展，被中共当局以“寻衅滋事”罪判处 4 年徒刑。张展在狱中绝食抗议，其健康情况备受关注。张展关注组发起人表示，美国发声让他们感到很振奋及欣慰，张展现在连头也抬不起来、四肢无力，情况堪忧，望更多政府发声。
+同时台湾外交部指出，相关行程是由美国在台协会台北办事处(AIT/T)协调安排，外交部提供访团所需的行政协助，并就相关防疫措施协调中央流行疫情指挥中心。
 
-新闻参考链接： [https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/jm-11092021061403.html](https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/jm-11092021061403.html)
+新闻参考链接： [https://newtalk.tw/news/view/2021-11-09/664012](https://newtalk.tw/news/view/2021-11-09/664012)
 
 * * *
 

@@ -2,24 +2,153 @@
 ---
 
 
-## 应对中共攻台，日本将在与那国岛部署电子战部队
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1650348/)
+## 战友们有钱了就一定要让父母过上好日子
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1650498/)
 
-#### 撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/45-43.png)[图片来源](https://www.voachinese.com/a/japan-to-deploy-electronic-warfare-unit-on-island-to-monitor-taiwan-strait-20211109/6304703.html)
-美国之音11月9日消息，日本防卫省决定向冲绳县与那国岛现有的陆上自卫队驻屯地增加部署编制约70人的“电子战部队”，以便在台湾海峡与尖阁诸岛（中国称钓鱼岛）出现紧迫情势时，加强情报收集能力。防卫省计划于2023年底完成部署。
+[https://gtv.org/video/id=61891e71adfd99590c346937](https://gtv.org/video/id=61891e71adfd99590c346937)
 
-台湾自由时报引述日本冲绳时报的报道说，防卫省在2022年度的预算概算要求中编列了约31亿日元（约合2739万美元），在与那国岛建造电子战部队的办公室和宿舍等设施。报道说，日本增加部署的电子战部队人数约为50至60人，加上陆上自卫队设施科员10人，全部编制大约为70人的规模。
+郭文贵
+Miles Guo
 
-冲绳时报报道指出，日本电子战部队配备车载型网络电子战系统，可以进行电波收集、分析和敌方通信干扰等功能。报道说，与日本相邻的中国和俄罗斯都在提高电子战能力，防卫省希望通过加强电磁波新领域的应对能力，提高日本西南地区的防卫态势。
+这个早上起来的时候就是这个
+This is what happened when I got up this morning
 
-信息来源：
+我打坐的时间就是到我母亲前面去打坐
+I was in front of my mother’s portrait for my sit meditation
 
-[因应台海不测事件，日本拟在与那国岛部署电子战部队](https://www.voachinese.com/a/japan-to-deploy-electronic-warfare-unit-on-island-to-monitor-taiwan-strait-20211109/6304703.html)
+往那一跪下
+As soon as I was kneeling down
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+就是就是控制不住了
+I just couldn’t control myself
+
+就是突然就是想起
+because I suddenly recalled
+
+这老娘穷一辈子
+there, my dear old mother had been poor her whole life
+
+我小的时候我最重要的
+When I was little, the most important thing to me
+
+我就发愿让我爹娘过上这个有钱买酱油、买盐的日子
+was that I made a wish to let my parents live with enough money to buy salt and soy sauce
+
+我今天对着我老娘那个照片
+Today, I was facing my dear mother’s portrait
+
+我就说 老娘 儿子可以说让你不论在天堂
+I said, my dear old mother, your son could tell you that whether you are in heaven
+
+如果你在人间
+or on earth
+
+永远不用再愁钱
+you never have to worry about money
+
+买酱油啊 买盐什么的
+for getting salt, soy sauce, or anything anymore
+
+哎呀 控制不住了
+I couldn’t control it
+
+我希望所有的战友们都记住
+I hope all of our comrades will remember that
+
+先让你父母过好
+Letting your parents live well is preferred
+
+如果生你养你的父母
+If your parents who gave birth to you and raised you
+
+连酱油钱 吃不好喝不好
+now still can’t even afford to make a basic living
+
+那真是你是最失败的
+then you would be the worst failure
+
+如果战友们有钱了
+However, if you are rich
+
+你们第一个就要对自己的父母好
+your priority is to treat your parents well
+
+就是兄弟姐妹们一定记住
+Brothers and sisters, you must remember
+
+我最开心的就会有很多人的母亲过上好日子
+the cheeriest thing to me is seeing that lots of people’s mothers are living a good life
+
+我们每个人看到在社交媒体上
+Every one of us has seen on social media
+
+出现中国的老太太
+these Chinese seniors appearing
+
+老人家那种苍凉的感觉
+The feeling of seeing those old seniors’ desolate
+
+心如刀绞
+breaks my heart
+
+我父亲现在他不需要钱了
+My father doesn’t need money anymore
+
+但是我觉得不要让自己的父亲因为钱受尽凌辱
+But I feel that we shouldn’t let our own father suffer humiliation because of money as well
+
+很多人父亲在外面真的是为了一家人过日子啊
+A lot of people’s fathers are really out there working for the sake of their whole family
+
+太苦了
+It’s too hard
+
+这个我们当孩子
+Therefore, we as their children
+
+如果有了钱了
+if we have money
+
+想到是父母
+what we should think first of is our parents
+
+另外一个就是我觉得中国人真的是活得太可怜了
+The other one is that I feel so sad for what our Chinese people have lived by
+
+我希望这个喜币的诞生
+I hope that the born of this H-Coin
+
+能让中国人
+will enable the Chinese people
+
+真真正正能知道钱这个东西
+really recognize money
+
+它到底是姓啥 它到底属于谁
+What is it anyway? Who does it exactly belong to?
+
+它的权利在哪里
+and where are its rights?
+
+* * *
+
+Date: 11/04/2021
+原视频标题: 战友们有钱了就一定要让父母过上好日子
+We Must Make a Good Living For Our Parents When we Have The Money
+原视频日期：2021/11/01
+原视频链接: [https://twitter.com/se1y7cblljselva/status/1456193726984818691?s=24](https://twitter.com/se1y7cblljselva/status/1456193726984818691?s=24)
+任务编号：KC231(2773)
+视频时间段 : 0:00-1:52
+英听校： 洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

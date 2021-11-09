@@ -2,153 +2,36 @@
 ---
 
 
-## 战友们有钱了就一定要让父母过上好日子
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1650498/)
+## 国际要闻汇编 11月9日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1650522/)
 
-[https://gtv.org/video/id=61891e71adfd99590c346937](https://gtv.org/video/id=61891e71adfd99590c346937)
+#### 素材：东京樱花团｜GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-153.png)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1109/20211109123530993.png)
+1、[**持刀闯德国慕尼黑百货公司 斩伤10岁童**](https://www.aboluowang.com/2021/1109/1669439.html)
 
-郭文贵
-Miles Guo
+德国慕尼黑周日（7日）晚发生持刀伤人案，一名57岁男子在一间百货公司向一名10岁男童挥刀施袭，后者颈部及肩膀受重伤，刀手因杀戈未遂当场被捕。案发百货公司位于慕尼黑旧城区的购物地带，疑凶于周日晚上在店内用厨刀刺向遇袭男童，途人随即制服疑犯并为男童救急，约50名警员在同晚7时40分左右赶到现场，拘捕涉案男子。男童身受重伤送院救治，但无生命危险，警方相信疑犯与男童不相识，正循杀人未遂方向调查事件。
 
-这个早上起来的时候就是这个
-This is what happened when I got up this morning
+2、[**法国戛纳发生持刀袭警事件 调查朝向“恐怖主义”**](https://www.aboluowang.com/2021/1109/1669437.html)
 
-我打坐的时间就是到我母亲前面去打坐
-I was in front of my mother’s portrait for my sit meditation
+法新社报道引述消息人士说，周一早上（11月8日）6点30分左右，在戛纳警察局门前，一名男子匆忙打开一辆停在路边的警车车门，用刀刺向第一名警察的”胸部”，然后绕过车辆，攻击警车负责人，同行的另一名警察随后用两枪回击重伤了他，目前凶犯生命有危险。根据警方消息，另外两名警察被同事的弹片轻微击中。警方称正在超“恐怖主义”方向进行调查。马克龙的五年任期开始以来，法国已经遭受了17次伊斯兰教袭击。也已经挫败了36起袭击事件，
 
-往那一跪下
-As soon as I was kneeling down
+3、[**日本众议员大选自民党告捷 经济优先外交随美**](https://www.aboluowang.com/2021/1109/1669434.html)
 
-就是就是控制不住了
-I just couldn’t control myself
+日本众议院选举在10月31日结果揭晓，执政党自由民主党获得绝对稳定多数席次。这次自民党在众议院席次上获得绝对稳定多数，对照原先媒体民调，可以说是大胜，也反映出日本民意对经济复苏的期待。专家认为投票结果显示施政重心将在防疫与经济，外交仍维持日美同盟基调，但寻求与中国对话，以建立经济联系。
 
-就是突然就是想起
-because I suddenly recalled
+4、[**退党中心谴责中共暴徒袭击巴黎End CCP义工**](https://www.aboluowang.com/2021/1109/1669711.html)
 
-这老娘穷一辈子
-there, my dear old mother had been poor her whole life
+11月6日下午，法国巴黎退党服务中心的义工王先生驱车准备参加当地的讲真相活动，当他开车行驶至巴黎市中心奥斯曼大道（Boulevard Haussmann）时，遭到中共暴徒的袭击，一个坐在车牌号为ER837 EM（大巴黎93省）车辆上的行凶者挑衅性地竖起中指，然后用金属物体对着王先生的车窗玻璃猛砸，把车窗的铁杠砸得凹陷，并指著车顶上“打倒中共恶魔”的展板和车门上“远离中共=远离病毒”的标语威胁说“你传播这个我们就要杀了你。”
 
-我小的时候我最重要的
-When I was little, the most important thing to me
+“打倒中共恶魔”的倡议书迄今全球已有超过160万人连署，这是历史潮流、人心所向，在世界多个国家也组织了“打倒中共恶魔”的车队传播这个信息，End CCP的洪流势不可挡，我们的步伐不会停止，也希望更多的正义人士加入到“打倒中共恶魔”的行列，让中共恶魔彻底解体的那一天早日到来。
 
-我就发愿让我爹娘过上这个有钱买酱油、买盐的日子
-was that I made a wish to let my parents live with enough money to buy salt and soy sauce
+5、[**希腊防疫新规上路 雅典商店外大排长龙**](https://www.aboluowang.com/2021/1109/1669517.html)
 
-我今天对着我老娘那个照片
-Today, I was facing my dear mother’s portrait
+希腊11月的中共病毒感染率几乎每天都在刷新纪录，促使有关当局本月2日宣布新的防疫措施，禁止没打疫苗且拿不出筛检阴性证明的民众进入咖啡厅、餐厅、政府机关、银行等地。已经施打疫苗的民众也得提供接种证明，使得雅典最繁忙的购物街埃姆（Ermou）大街上的商家外出现长长人龙。一名在服饰店外排队的女性说：“我不喜欢这样，我们不是在狱中生活，我们是有文明有教养的人，我一点也不喜欢这样。”
 
-我就说 老娘 儿子可以说让你不论在天堂
-I said, my dear old mother, your son could tell you that whether you are in heaven
-
-如果你在人间
-or on earth
-
-永远不用再愁钱
-you never have to worry about money
-
-买酱油啊 买盐什么的
-for getting salt, soy sauce, or anything anymore
-
-哎呀 控制不住了
-I couldn’t control it
-
-我希望所有的战友们都记住
-I hope all of our comrades will remember that
-
-先让你父母过好
-Letting your parents live well is preferred
-
-如果生你养你的父母
-If your parents who gave birth to you and raised you
-
-连酱油钱 吃不好喝不好
-now still can’t even afford to make a basic living
-
-那真是你是最失败的
-then you would be the worst failure
-
-如果战友们有钱了
-However, if you are rich
-
-你们第一个就要对自己的父母好
-your priority is to treat your parents well
-
-就是兄弟姐妹们一定记住
-Brothers and sisters, you must remember
-
-我最开心的就会有很多人的母亲过上好日子
-the cheeriest thing to me is seeing that lots of people’s mothers are living a good life
-
-我们每个人看到在社交媒体上
-Every one of us has seen on social media
-
-出现中国的老太太
-these Chinese seniors appearing
-
-老人家那种苍凉的感觉
-The feeling of seeing those old seniors’ desolate
-
-心如刀绞
-breaks my heart
-
-我父亲现在他不需要钱了
-My father doesn’t need money anymore
-
-但是我觉得不要让自己的父亲因为钱受尽凌辱
-But I feel that we shouldn’t let our own father suffer humiliation because of money as well
-
-很多人父亲在外面真的是为了一家人过日子啊
-A lot of people’s fathers are really out there working for the sake of their whole family
-
-太苦了
-It’s too hard
-
-这个我们当孩子
-Therefore, we as their children
-
-如果有了钱了
-if we have money
-
-想到是父母
-what we should think first of is our parents
-
-另外一个就是我觉得中国人真的是活得太可怜了
-The other one is that I feel so sad for what our Chinese people have lived by
-
-我希望这个喜币的诞生
-I hope that the born of this H-Coin
-
-能让中国人
-will enable the Chinese people
-
-真真正正能知道钱这个东西
-really recognize money
-
-它到底是姓啥 它到底属于谁
-What is it anyway? Who does it exactly belong to?
-
-它的权利在哪里
-and where are its rights?
-
-* * *
-
-Date: 11/04/2021
-原视频标题: 战友们有钱了就一定要让父母过上好日子
-We Must Make a Good Living For Our Parents When we Have The Money
-原视频日期：2021/11/01
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1456193726984818691?s=24](https://twitter.com/se1y7cblljselva/status/1456193726984818691?s=24)
-任务编号：KC231(2773)
-视频时间段 : 0:00-1:52
-英听校： 洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：东京樱花团 / 東洋武士
+发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

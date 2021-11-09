@@ -2,28 +2,25 @@
 ---
 
 
-## 美国参众议员搭军机访台！
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1650826/)
+## 加拿大卫生部顾问呼吁停止疫苗接种
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1650920/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-4.jpg)美国参众议员搭军机访台！ 网络图片
-据台湾Newtalk新闻11月9日报道，今天晚间6时左右，传出美国海军一架C-40A行政专机降落台北松山机场。据称，该机是由美国国会所申请的专机，搭载美国参众议员来台访问。对此，台湾总统府发言人张惇涵表示，基于台美互信及协调结果，并尊重访宾意愿。总统府未进一步说明，相关资讯将由外交部适时对外说明。
+采编：文明， 编译撰稿：苦尽甜来 (文来）
 
-同时台湾外交部指出，相关行程是由美国在台协会台北办事处(AIT/T)协调安排，外交部提供访团所需的行政协助，并就相关防疫措施协调中央流行疫情指挥中心。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/aa-edited.jpeg)图片来源：TN
 
-新闻参考链接： [https://newtalk.tw/news/view/2021-11-09/664012](https://newtalk.tw/news/view/2021-11-09/664012)
+
+据加拿大自媒体【反判新闻】11月6日报道，曾与加拿大卫生部合作进行药品监管和审查的医药顾问，拥有药理学学士和博士双学位的匿名嘉宾，在当天接受该媒体采访时透露，当局曾讨论过其目前所推广的“新冠病毒疫苗”可能造成致命性后果的潜在健康问题。
+
+该爆料者指出，早在今年3月，由【加拿大卫生部】批准的“阿斯利康疫苗”的近三分之二数量来自一家曾被【美国食品和药物管理局】指控存在严重质量控制问题的实验室。这意味着加拿大政府允许进口并使用存在巨大安全隐患的不合格疫苗。
+
+另外，从不久前【辉瑞公司】泄露的内部文件中，同样清晰显示了其疫苗的制造缺陷和质量控制问题，包括产品纯度、截断种类、批次间标准等。这些都无疑解释了为什么有些接种者比其他人更容易出现疫苗不良反应的现象。为此，该嘉宾强烈呼吁，当局应立即停止对这些不确定和高风险的违规疫苗产品进行不负责任的授权接种。
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+校对编辑，发稿：硫酸羟氯喹64
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+[原文链接：](https://www.rebelnews.com/interview_former_health_canada_pharmaceutical_adviser_on_regulatory_issues_with_covid_vaccines)
 
  
 
