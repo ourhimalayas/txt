@@ -2,29 +2,31 @@
 ---
 
 
-## 传播疫苗真相，责无旁贷
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1651109/)
+## 有声|香港外国记者会调查指香港新闻自由全面恶化
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1651223/)
 
-**作者：**88JJ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片186578.png)图片来源：GNEWS
-日本根据市民团体的要求，县政府公开信息显示，截至9月3日，大分县共有11例新冠疫苗接种后死亡病例，但我们不知道其因果关系。
+配音：香草山香港部 – 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
 
-该因果关系在“大分市民监察员”向大分县提出的信息公开请求中得到了澄清。据此，今年3月12日至9月3日，有461人向厚生劳动省报告，怀疑在大分县接种新冠疫苗后出现过敏性休克等副作用。其中，据报道有 11 名男性和女性在接种疫苗后死亡，其与疫苗接种的因果关系尚不清楚。
 
-在本文后所附的链接中有日本雅虎的原文连接，可是被他们删除了，包括11月8日的日本超人气歌姬滨崎步晕倒之后，由于身体严重不适而取消了下周的音乐会，日本雅虎马上把她打了疫苗的网页链接删掉。
+在香港外国记者会11月5日发布的一项调查中，受访新闻工作者认为记者在香港的工作环境全面恶化。
 
-全世界大型媒体全都在极力隐藏疫苗接种后造成的身体伤害。
+调查报告显示，在99位受访新闻工作者中，91%的受访新闻工作者表示，他们对港府可能立法禁止当局“假新闻”感到“非常担忧”。约84% 的受访者表示，自中共2020年6月30日强推香港国安法以来，香港新闻业被迫进行自我审查、避免敏感话题，工作环境“变得更糟了”。同时，约46% 的受访者表示，由于香港的新闻自由下降，他们正在计划离开香港。而中共国方面称这项调查是在“肆意攻击”香港国安法和香港新闻自由。
 
-文贵先生直接指出：只有美国停止强制接种疫苗，全世界的疫苗接种才会停止；如果美国不行动，这个世界永远都不会停止疫苗接种。
+自“港版国安法”实施以来，港府加大镇压公民社会，引起了香港和国际社会的广泛谴责。
 
-感谢文贵先生，感谢爆料革命，带给我们希望和未来。
+文字版原文：[香港外国记者会调查指香港新闻自由全面恶化](https://gnews.org/zh-hans/1647417/)
 
-编辑：卢卡斯
-
-发布：LILY
-
-20211109
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,32 @@
 ---
 
 
-## 加拿大央行开始发展数字货币系统
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1650981/)
+## 坎普拉教授公开新冠疫苗中发现的氧化石墨烯照片
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651039/)
 
-采编：青青  编译撰稿： 文明(添草灭共)
+作者：纽约香草山翻译部 – defiance
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月5日，西班牙阿尔梅里亚大学的巴勃罗·坎普拉教授在一档直播节目中提及，他观测到辉瑞、牛津阿斯利康和科兴新冠疫苗中均含有氧化石墨烯分子，同时，他还向观众展示了疫苗中氧化石墨烯分子的照片。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-6.jpeg)
+相关报道显示，这是世界上首次对科兴新冠疫苗的成分进行展示。此前，坎普拉教授还展示过一些有关辉瑞疫苗成分的实验室报告。随即，智利、阿根廷等国家也对新冠疫苗进行了检验分析。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-2-edited.jpg)图片来源：GNEWS
+该直播节目表示，节目组现已获得三种新冠疫苗的光学显微镜照片。检验结果显示，三种新冠疫苗中均被检测到氧化石墨烯的存在。据悉，检测到的氧化石墨烯分子呈现出褶皱的片状形态，长度和宽度均在20至30微米左右。
 
+参考链接：[Exclusive photos of graphene oxide found in Pfizer, AstraZeneca and Sinovac vaccines](https://www.orwell.city/2021/11/exclusive-photos.html)
 
-据加拿大【CTV新闻】11月7日报道，加拿大央行行长麦克莱姆日前在接受该媒体采访时透露，该国目前过度的通货膨胀现象是暂时性的，但持续时间可能会比预期更长。为此，当局正在采用量化宽松、保持低利率等金融措施对其进行控制。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-据【加拿大统计局】最新数据显示，该国目前的通胀率为4.4%，高于8月份的4.1%，并已升至2003年以来最高水平。中央银行预计到今年年底，通胀率将接近5%，远超出其2%的预期目标。
+总编：飞虹
+编辑：文特 
+校正/发稿：谐趣园
 
-当被记者问及对比特币的看法时，该行长表示：由于比特币不具备购物等货币流通功能，因此不会是数字货币未来发展的一部分。同时，加密货币是一种市场投资，尽管目前交易物品数量仍然非常有限，但随着数字资产经济的日益繁荣，加拿大央行已开始研究数字货币的潜在金融能力，并最终由该国财政部决定将来是否发行央行加密数字货币系统。
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://www.ctvnews.ca/politics/bank-of-canada-governor-says-inflation-transitory-but-not-short-lived-1.5655043)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
