@@ -2,30 +2,20 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月8日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1648913/)
+## 中共国十九届六中全会在京召开
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1649247/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-1.png)
+撰稿：西枫westca
 
-作者：香草山翻译部
-![]()
-文章仅代表作者本人观点，与Gnews无关
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-4.jpg)图片来源：新华社
+据新华社11月8日报道，中共十六届六中全会当日在北京召开，习近平做工作报告，并就《中共中央关于党的百年奋斗重大成就和历史经验的决议（讨论稿）》向全会作了说明。
 
-视频参看：2021.11.08早GTV新闻访谈
+中共全国代表大会每隔5年会举行一次，期间会有几届全会，即党的中央全会讨论当前问题。而各届的六中全会在历史上都占有重要地位。此次全会的主要议程是中共中央政治局向中央委员会报告工作，为明年秋季的中共二十大做准备。对此中国社会科学院马克思主义研究院党委书记辛向阳说，在迈向第二个百年征程的历史关头审议通过决议，必将为全党凝心聚力推动中国特色社会主义事业发展起到关键作用。”还有官媒称，总结好党的百年奋斗重大成就和历史经验，不仅有中国意义，还有世界意义，将为人类政治文明的发展和政党政治提供中国经验和中国方案。
 
-[https://gtv.org/video/id=618925cf11d18629680351bc](https://gtv.org/video/id=618925cf11d18629680351bc)
+在中共国经济迈向崩溃的边缘，外企纷纷撤离中共国、党内各派斗争日趋激化的形势下，此次全会却希望习近平能在党内巩固地位，为历史定调，为世界把脉。对习近平个人崇拜的鼓吹，是否会把他送上历史的审判台，让我们拭目以待。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻来源：**[新华网\_让新闻离你更近 (xinhuanet.com)](http://xinhuanet.com/)
 
  
 

@@ -2,38 +2,62 @@
 ---
 
 
-## 日本前防长将出任专职人权官 主要针对中共人权问题
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1649246/)
+## 喜币的三个标志事件：权威机构投资、国家级牌照、主权货币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1649401/)
 
-**撰稿：日本东京方舟农场  幽蘭自得**
+[https://gtv.org/video/id=61890935adfd99590c346270](https://gtv.org/video/id=61890935adfd99590c346270)
 
-据《大纪元》11月8日报道，日本前防卫大臣中谷元将出任专职人权议题的首相辅佐官。这一职位是由日本首相岸田文雄针对中共人权问题新设立的。
+**郭文贵**
+**Miles Guo**
 
-据悉，中谷元的任命预计将在11月10日正式生效。首相辅佐官的职责是负责收集和分析包括外务省、法务省等部会的人权问题信息。
+七哥说的话，你们要盯住3个标志事件
+What QiGe(Miles) said, you have to keep eye on 3 sign events
 
-“我将与外务大臣和经济产业大臣协商，就人权问题提出适当的意见和建议，”中谷在与岸田会谈后对记者说：“作为一个深切关注人权问题的政治人物，我希望能发挥我的知识和经验。”
+任何一个真正的有权威的投资机构投喜联储、喜支付的时候就是叫Exchange
+Every single truly authoritative investment institution invests in the Himalaya Exchange and HPay, it is called Exchange
 
-综合日本媒体报道，中谷是一名64岁的众议院议员。今年4月，他发起了一个跨党派小组，旨在起草立法，使日本能对侵犯人权的国家实施制裁。
+那是喜币的一个标志事件，
+That is a landmark event for Hcoin
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-29.jpg)前日本防卫大臣中谷元资料照。 (KAZUHIRO NOGI/AFP via Getty Images)
+第二件事，当有一个国家或一个地方批给你虚拟货币银行牌照
+The second thing is when a country or a region grants it a virtual currency bank license
 
-日本首相岸田在9月竞选时，承诺设立首相辅佐官这一职位。在此之前，一些批评人士指出，与美国和其它西方国家相比，日本对中共等极权政府的侵犯人权行为，一直少有积极的行动。分析人士认为，岸田希望中谷出任，表明他对人权问题的积极立场。
+或国家批给你整个所谓国家级的虚拟交易市场牌照的时候
+or when the country grants you the entire so-called national virtual trading li-cense
 
-内阁官房副长官矶崎仁彦也在记者会上证实，岸田在竞选首相时就表示，要以坚毅的态度应对台湾安全、香港民主以及维吾尔族人权等问题，并在美日同盟的基础上，守护民主、法治与人权等普世价值，对国际秩序有所贡献。
+这是第二，第三个大事件
+This is the second. The third major event
 
-*参考链接：*
+到最后的时候，当某国家宣布我承认你是我国家的法币、主权货币的时候
+At the end, when a country that recognizes Hcoin as its country’s legal currency and sovereign currency
 
-[關注中國人權 日相岸田任命前防長為人權官員](https://www.epochtimes.com/b5/21/11/8/n13361113.htm)
+喜币的价格才真正的出来，
+The price of Hcoin will really come out
 
-* * *
+没这个之前你都当成虚幻,你都当成不存在
+Before that, you just have to think of Hcoin as an aircoin
 
+**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1456639104880295940?s=24](https://twitter.com/se1y7cblljselva/status/1456639104880295940?s=24)
 
-```
-素材采编：幽蘭自得
-编辑：青衣青青
-校对/发布：Ranting
-```
+———————————————————
 
+Date:11/06/2021
+原视频标题: 喜币的三个标志事件：权威机构投资、国家级牌照、主权货币
+HCoin’s three landmark events: investment by authoritative institutions, national-level licenses, and sovereign currency
+原视频日期：2021/11/01
+任务编号：KC230(2787)
+视频时间段 : 0:00-1:03
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

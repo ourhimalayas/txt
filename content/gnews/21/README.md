@@ -2,32 +2,34 @@
 ---
 
 
-## 有声|首位被引渡的中共间谍 法庭裁定罪成
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1649398/)
+## 【有声读物】中共国多地出现粮食抢购现象
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1649487/)
 
 配音：香草山教育部 – 蒙古鸿雁
 
-11月5日，美国俄亥俄州开庭审理了一宗涉及中共的间谍案，案件当中，徐某是首位被引渡到美国受审的中共间谍。对此，联邦陪审团一致裁定，中共间谍徐某罪名成立。
+继商务部发布的《鼓励家庭根据需要粗存一定数量的生活必需品》的声明后，北京时间11月4日，重庆、郑州、江常州、温州，甚至北京都出现了粮食抢购的现象。
 
-据悉，徐某被指控从美国航空企业盗取商业秘密，而美国司法部对其的控告罪名包括：阴谋和企图实施经济间谍行为，以及盗窃商业机密罪。
+据招商证券最新发布的10月宏观报告，10月份，28种重点监测蔬菜价格环比增幅达19%。此外，盐业集体涨价，平均涨幅30%-35%不等。
 
-根据法庭文件显示，徐某曾使用多个身份进行间谍行为，其目标主要针对美国及海外的航空企业，试图盗取包含通用电气飞机引擎的复合材料叶片在内的各类航空相关技术。
+郭文贵先生在直播中提到，中共从来没有制定应对突发事件、针对民用物资的补给政策。在遭受河南重大水灾，和外汇短缺的形势下，中共国恐将发生因粮食短缺，而导致的人道灾难.
 
-FBI助理局长艾伦指出， “这是由国家主导的间谍行为，其目的在于试图摧毁美国的经济”。 助理司法部长墨菲也称赞了美国法庭的裁决。
-
-文字版原文：[首位被引渡的中共间谍 法庭裁定罪成](https://gnews.org/zh-hans/1646685/)
+文字版原文：中共国多地出现粮食抢购现象
 
 音频处理：喜山必胜Maverick
 
-发稿：Tom Li
+发稿：Daxia
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
