@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/9/2021 8:05 PM (UTC)`
+
+11月9号：尊敬的战友们好……任何拥有喜币……和准备拥有喜币的人，一定要看这篇文章拜托了🙏……感谢这位战友中的高人．写的这篇独特的文章。【可以预见，借助带有KYC的区块链技术的喜支付系统，凭借其实时结算-即秒到账的能力，以及比现有系统低得多的支付成本，将获得很强的市场竞争力。】<br/><br/><br/><br/><br/>https://gnews.org/zh-hans/1649255/
+
+---
+
 `@miles 11/9/2021 4:54 PM (UTC)`
 
 11月9号：这是真的假的呀，看他那副长相．这算是很好的答案了……我相信他的未来一定会被共产党毁掉。<br/><br/>【黄河便真可怜🥺 一个曾经的哥们儿了解其私生活 说他被后老婆（年轻二十多）整得不允许上床睡觉 前妻女儿和后老婆打得一塌糊涂 后老婆不允许他老娘进家门 他只好安排老母（已丧父）打道回中共国。说他2012年（？记不准）就完全被中共控制。】
@@ -290,13 +296,6 @@ Dr. Peter Navarro: One of the goals in the book "In Trump Time" is to fire Fauci
 
 Dr. David Wiseman: FDA打破了一个又一个规则，这绝对太离谱了。英国医学杂志一篇论文报告了多方面的严重不当行为，包括数据造假、揭盲和各种状况，这完全是FDA的失职，是对孩子的不负责任！<br/><br/>The FDA has broken one rule after another, which is absolutely outrageous. A paper in the British Medical Journal reported serious misconduct in many aspects, including data falsification, unblinding, and various situations. This is completely the FDA's negligence and irresponsibility to the child!
 ![img](https://media.gettr.com/group13/origin/2021/11/05/10/35/08f3d657-68d8-cb2f-7bd0-400a525b6b18/out.jpg)
-
----
-
-`@miles 11/5/2021 9:29 AM (UTC)`
-
-11/3/2021 Miles Guo: What are the three milestones indicating the true value of the Himalaya Coin? What does it mean for 30 European countries to decouple with the CCP? Republicans won both elections in Virginia and Long Island, indicating that the US wins while the CCP has lost!<br/><br/>11/3/2021 文贵直播: 体现喜币真正价值的三个标志性事件是什么？欧洲30国跟中共脱钩意味着什么？共和党在弗吉尼亚和长岛胜选，这说明美国赢了，中共输了！<br/>
-![img](https://media.gettr.com/group22/getter/2021/11/05/09/29/e8542b71-7eda-b188-65f6-10de4415b5e5/out.jpg)
 
 ---
 
