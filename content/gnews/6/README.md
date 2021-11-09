@@ -2,54 +2,41 @@
 ---
 
 
-## 飞行员在接种新冠疫苗后失去了一切
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1650778/)
+## 秘翻在线：“我们不会顺从”——洛杉矶数千工人、警察和消防员等集会抗议即将到来的中共病毒疫苗强制令
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1650844/)
 
-**翻译：Lish
-校对：精靈藍
-字幕/剪辑：蛮吉
-编辑：枳实**
+#### 撰稿翻译：文斗
 
-早上好，感谢约翰逊参议员给我这个机会。我的名字叫Cody Flint。我是一个33岁的丈夫，也是两个小男孩的父亲。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/CE1A804FD820501AC49C84B1C382FEA517179F40_w840_h560.jpg)
 
-我的职业是一名农业飞行员。总共有超过10,000小时的飞行。我的一生都非常健康，没有任何潜在的疾病。
+美国右翼新闻网站“thegatewaypundit” 11月8日报道，周一上午，成千上万的市民聚集在洛杉矶市政厅外的君乐公园（Grand Park），抗议该市的专制疫苗强制令。人群中相当多数（如果不是大多数）是市政工作人员，包括洛杉矶警察局和洛杉矶消防局的成员，以及其他几个市政部门的雇员。
 
-我在2月1日接种了第一剂辉瑞疫苗。30分钟内，我的头部出现了严重的刺痛，然后我的后颈部出现了烧灼感。
+洛杉矶全市雇员接种疫苗的最后期限将于12月18日开始。到那时任何还没有接种疫苗的人都将被解雇，除非他们获得了豁免——我们都知道他们有多大的可能发放这种豁免—— “不可能！”
 
-接种疫苗的两天后，我登机去做一件只需要几个小时的工作。起飞后，我立即察觉到我有些不对劲。我的视野开始越来越狭窄，头痛也越来越严重。
+洛杉矶市的政策是全国最严格的政策之一，还包括一项对所有洛杉矶居民的限制性规定，该规定于11月4日开始实施。现在，任何12岁及以上的人进入大多数室内区域，包括健身房、餐馆、酒吧、体育赛事（室内或室外）以及其他一些常见的日常场所，都需要提供疫苗接种证明，这只会助长引发这次大规模抗议活动的公众愤怒。
 
-大约在我飞行两小时后。我拉动飞机拉准备转弯，感觉到耳朵里有一股极强的压力。瞬间，我几乎晕厥过去，头晕目眩，丧失方向感，恶心，无法控制地发抖。
+报道引用了一些现场推特视频：
 
-感谢上帝，我得以顺利降落我的飞机。虽然我不记得我做过这个。
 
-我最初的得到诊断是眩晕和严重的惊恐发作，尽管我从来没有这两种病史，但后来诊断被改为左右外淋巴管瘘， 咽鼓管功能障碍和脑水肿导致的颅内压升高。
 
-我的病情继续恶化，医生告诉我，只能是疫苗的不良反应，或重大的头部创伤才会造成这么大的自发性损伤。
+> “FREEDOM! FREEDOM!”
+> 
+> Anti mandate crowd including hundreds of government workers chant at LA City Hall. [pic.twitter.com/AFcgkJ0Qvc](https://t.co/AFcgkJ0Qvc)
+> — James Klüg (@realJamesKlug) [November 8, 2021](https://twitter.com/realJamesKlug/status/1457800730065076231?ref_src=twsrc%5Etfw)
 
-在八个月里，我做了六次脊椎穿刺术，以监测我的颅内压，并做了两次间隔八周的手术，来修复瘘管。我几乎错过了一整年的生活包括和孩子一起的生活，在后院玩棒球游戏的日子，以及只是抱抱孩子的日子，（这一切）已经被一个病痛缠绕的身体所取代，不断地找医生看病，各种侵入性手术，但疑问总是比得到的答案更多。
 
-我不知道我是否还能再驾驶飞机。中共病毒疫苗夺走了我的事业，夺走了我辛辛苦苦建立的未来。我已经用我光了所有的积蓄来支付医疗费用，只是为了能够生存下去。
 
-我和我的家人正处于失去一切的边缘。我过去和现在都是支持科学和支持疫苗的。主要问题完全在于美国食品和药物管理局、疾病预防控制中心和美国国立卫生研究院拒绝承认这种疫苗正在摧毁真正有质量的生活。
+“争取自由集会游行”是由当地一个非营利组织——“消防员为自由”（Firefighters 4 Freedom）组织的，该组织由洛杉矶消防员约翰·诺克斯（John Knox）创立，目的是对抗中共病毒疫情之后的医疗暴政。
 
-联邦政府还没有帮助任何一个疫苗受伤者。我的理解是，考虑到联邦政府给了疫苗制造商充分的法律豁免权，让像我这样（被疫苗伤害的人）得不到帮助，所以联邦政府应该承担被这种疫苗伤害的人的责任。
+在整个上午的集会中，几位发言者都传达了同样的信息——“停止强制接种疫苗”。
 
-政府让我们无处求援。我的家人和我一团糟，在室内躲避新冠一年多。我们做了他们要求我们做的事，来参与解决问题。但这个解决方案已经夺走了我和我的家人的一切。
+据报道，“我们不会顺从”和“自由”的呼喊声响彻街头。
 
-我们一直被忽视和禁言。这是不对的，需要马上停止。现在是联邦政府尽自己的一份力量，承认我们的存在，并帮助我们的时候了。
+许多抗议者挥舞着美国国旗，举着谴责强制要求戴口罩和疫苗接种的牌子，和平示威反对限制性的公共卫生措施。
 
-有谁会真的认为让疫苗受害者等待多年才能得到帮助是公平的呢？我想我们都会同意，拒绝或拖延我们需要的帮助是不合情理的。我们迫切地需要这种帮助。谢谢大家。
+在接受当地新闻媒体采访时，几名市政府员工甚至直截了当地表示，他们宁愿失业也不注射实验性疫苗。
 
-[**视频链接**](https://rumble.com/vop2z7-commercial-airline-pilot-develops-brain-swelling-and-can-longer-fly-followi.html)
-
-发布：Janek
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原文链接：[**“We Will Not Comply” – Thousands – Including City Workers, LAPD Officers, and Firefighters – Gather Outside Los Angeles City Hall to Protest Upcoming Deadline for Covid Vaccine Mandates**](https://www.thegatewaypundit.com/2021/11/will-not-comply-thousands-including-city-workers-lapd-officers-firemen-gather-outside-los-angeles-city-hall-protest-upcoming-deadline-covid-vaccine-mandates-video/)
 
  
 

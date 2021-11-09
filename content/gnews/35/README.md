@@ -2,153 +2,31 @@
 ---
 
 
-## 战友们有钱了就一定要让父母过上好日子
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1650498/)
+## 野蛮生长不会变成野人
+` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1650531/)
 
-[https://gtv.org/video/id=61891e71adfd99590c346937](https://gtv.org/video/id=61891e71adfd99590c346937)
+By：银河勇气星｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/11/222-1.jpg)图：骄子
+投资是有余钱的人进行的把自己资产升值的方式。一个真理：让钱去生钱，比拿任何东西去生钱，得到的钱都多得多。一旦像滚雪球一样滚起来形成规模，那银行是要排队来求你的，任何一些大机构大组织都会求着你和你合作的。他们都是要来和你分一杯羹的，钱都是闻着味儿来的。怎样保持钱的现有规模，还要越滚越大，还健康，避免发生崩盘，就算崩盘了还有好几个方案能拉回来继续滚，那么对诞生架构和滚动过程中的速度，角度，路径，一定要做好各种规划，不能说是甩手掌柜一了百了跑掉不管了。
 
-郭文贵
-Miles Guo
+本来人生也是如此，不同的阶段干不同的事情，得到不同方面的成长。有了精子和卵子的结合，注定这以后会是一个人类，而基因里的记录将决定这精子卵子长成一个什么样的人类。野蛮生长也不是说人就能长成野人，长成蛮人。拿比特币打个比方，中本聪写了一个区块链的论文，后来有工程师根据他的论文搭建了比特币的区块链系统。区块链在很长一段时间内都便宜到不行，网上流传着的故事里，最著名的就是有人当年拿一万个比特币买披萨的故事。现在比特币涨到6万多一个了，能买多少个披萨了？比特币的市值涨了这么多，价格上看来已经让多少人叹为观止了，但是话说回来，比特币还是中本聪的可操作论文，可实现的技术手段，你能直接拿比特币买披萨吗？不能。前些日子Elon宣布特斯拉以后“很有可能”支持比特币支付的时候，比特币涨了一波，但是到现在了，还是没人拿比特币买了一辆特斯拉，一个也没有。比特币直接支付的交易都在暗网、深网，都是不合法的犯罪记录，哪个人敢用？所以什么就是什么，基因决定了大部分，中本聪就是写了一个架构代码，没有任何性质，野蛮生长也没把他变成异类。但是野蛮生长会把比特币带到哪里？无聊的人拿这个买披萨，共产党和邪恶组织用来洗钱犯罪。目前看来，比特币洗钱犯罪的性质因为涉及面太广，几乎覆盖了全部的比特币，这种性质已经不可能洗白了。
 
-这个早上起来的时候就是这个
-This is what happened when I got up this morning
+![](https://assets.gnews.org/wp-content/uploads/2021/11/47c00c7876d899009cdf0cf8e7c64a22.jpg-article.jpg)图源：网路
 
-我打坐的时间就是到我母亲前面去打坐
-I was in front of my mother’s portrait for my sit meditation
+喜联储诞生的基因是灭共和帮助中国人建立一个真正的一人一票的选举，这就注定了以后无论什么样的发展，都是以这个元神为主。虽然文贵先生讲2025年共产党会被爆料革命新中国联邦灭掉，但是共产党的残毒还在，帮助被洗脑的人恢复辨别善恶的能力，那是一个长期的过程。从这个意义上来说，喜联储一共1000亿个币，每年发行10亿个，需要100年，100年大概够用吧？100年后你我肉身已经消亡，那时候的世界什么样的，喜联储又会引领怎样的潮流，一定还和灭共有关和帮助中国人有关，这是写在基因里的能力。共产党的邪恶不仅仅是共产党造成的，坏人在任何时候都会煽风点火，世界已经面临了一次差点灭族的疫苗灾难，总会有些类似的灾难会卷土重来。每次我们回看历史的时候，像希特勒在斯大林战役后的疯魔状态天天吸毒，谁说话也听不进去，和如今的习近平一定要树立千古一帝的风范一定要打台湾谁劝也不行的这种现状，何其相似。邪恶力量在二战时期叫希特勒法西斯，搁现在叫共产党和某邪教组织。历史总在无限重复。
 
-往那一跪下
-As soon as I was kneeling down
+共产党这次打算把全世界都拉进来陪葬，这个坟坑挖得越来越大，越来越多的人被推进去填坑，被活埋。世界的金融走向何方，危难的时候人们苦苦呼唤着救世主，呼唤着god，god。喜联储就那样出生了。野蛮生长也许很快就会发生，七哥说喜联储是相当于在喜马拉雅山脚下挖了一个漏斗，钱会像水一样不断地漏进来，越低漏斗的承载量越大，水永远往低处走。水是真水，而那些表面上我们看到的HDO，以及以后会有的喜欧元喜日元，那个不过是含水的沙子，时而会起一些过滤的作用，时而还会抛起一些浪花。时间一定会把沙子全部过滤掉，最低调的水才会流下来，清澈。Hpay作为平衡这两方的桥梁。七哥说过喜币的三大重要时刻：1.某些大机构投资，2主权国家承认的虚拟银行牌照的获得，3某国将喜币作为储备货币。无论如何，这些事情关联的都是灭共，都是帮助中国人建立一个真正的一人一票的选举制度。
 
-就是就是控制不住了
-I just couldn’t control myself
-
-就是突然就是想起
-because I suddenly recalled
-
-这老娘穷一辈子
-there, my dear old mother had been poor her whole life
-
-我小的时候我最重要的
-When I was little, the most important thing to me
-
-我就发愿让我爹娘过上这个有钱买酱油、买盐的日子
-was that I made a wish to let my parents live with enough money to buy salt and soy sauce
-
-我今天对着我老娘那个照片
-Today, I was facing my dear mother’s portrait
-
-我就说 老娘 儿子可以说让你不论在天堂
-I said, my dear old mother, your son could tell you that whether you are in heaven
-
-如果你在人间
-or on earth
-
-永远不用再愁钱
-you never have to worry about money
-
-买酱油啊 买盐什么的
-for getting salt, soy sauce, or anything anymore
-
-哎呀 控制不住了
-I couldn’t control it
-
-我希望所有的战友们都记住
-I hope all of our comrades will remember that
-
-先让你父母过好
-Letting your parents live well is preferred
-
-如果生你养你的父母
-If your parents who gave birth to you and raised you
-
-连酱油钱 吃不好喝不好
-now still can’t even afford to make a basic living
-
-那真是你是最失败的
-then you would be the worst failure
-
-如果战友们有钱了
-However, if you are rich
-
-你们第一个就要对自己的父母好
-your priority is to treat your parents well
-
-就是兄弟姐妹们一定记住
-Brothers and sisters, you must remember
-
-我最开心的就会有很多人的母亲过上好日子
-the cheeriest thing to me is seeing that lots of people’s mothers are living a good life
-
-我们每个人看到在社交媒体上
-Every one of us has seen on social media
-
-出现中国的老太太
-these Chinese seniors appearing
-
-老人家那种苍凉的感觉
-The feeling of seeing those old seniors’ desolate
-
-心如刀绞
-breaks my heart
-
-我父亲现在他不需要钱了
-My father doesn’t need money anymore
-
-但是我觉得不要让自己的父亲因为钱受尽凌辱
-But I feel that we shouldn’t let our own father suffer humiliation because of money as well
-
-很多人父亲在外面真的是为了一家人过日子啊
-A lot of people’s fathers are really out there working for the sake of their whole family
-
-太苦了
-It’s too hard
-
-这个我们当孩子
-Therefore, we as their children
-
-如果有了钱了
-if we have money
-
-想到是父母
-what we should think first of is our parents
-
-另外一个就是我觉得中国人真的是活得太可怜了
-The other one is that I feel so sad for what our Chinese people have lived by
-
-我希望这个喜币的诞生
-I hope that the born of this H-Coin
-
-能让中国人
-will enable the Chinese people
-
-真真正正能知道钱这个东西
-really recognize money
-
-它到底是姓啥 它到底属于谁
-What is it anyway? Who does it exactly belong to?
-
-它的权利在哪里
-and where are its rights?
+喜联储可能未来会成为重新衡量世界经济价值的最重要参考货币。因为喜联储在这个进程中，关联着人类这个大群体的生死存亡，先有命活下来，再说赚钱。怎么活下来，得有希望，看到希望，就有信心，信心在哪里，钱就在哪里。
 
 * * *
 
-Date: 11/04/2021
-原视频标题: 战友们有钱了就一定要让父母过上好日子
-We Must Make a Good Living For Our Parents When we Have The Money
-原视频日期：2021/11/01
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1456193726984818691?s=24](https://twitter.com/se1y7cblljselva/status/1456193726984818691?s=24)
-任务编号：KC231(2773)
-视频时间段 : 0:00-1:52
-英听校： 洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+作者：骄子
+审核：兵嫂、天雷滚滚
+发布：骄子
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

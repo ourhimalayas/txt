@@ -2,28 +2,29 @@
 ---
 
 
-## 美国国务院要求中共国无条件释放张展
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1650746/)
+## 《国家脉动》揭露盖茨与中共统战部机构的交往历史
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1650803/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-3.jpg)美国国务院要求中共国无条件释放张展 网络图片
-据自由亚洲电台11月9日报道，美国国务院发言人普莱斯（ Ned Price ）8日在例行记者会上说，美方对张展健康状况不断恶化表达深切担忧，多个报道引述了中国公民记者张展的家人，张展已接近死亡边缘，美国要求中共国立即无条件释张展，并且尊重新闻自由与及人民自由表达的权利。
+整理报道：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/973278-bill-gates.jpg)图片来源：每日新闻与分析
+11月8日，《国家脉动》调查记者娜塔莉·温特斯（Natalie Winters）发布了调查文章，揭露了比尔·盖茨（Bill Gates）曾经高度称赞中国人民对外友好协会为建立“友好关系”而做出的努力。
 
-去年在武汉揭露当地疫情的中国公民记者张展，被中共当局以“寻衅滋事”罪判处 4 年徒刑。张展在狱中绝食抗议，其健康情况备受关注。张展关注组发起人表示，美国发声让他们感到很振奋及欣慰，张展现在连头也抬不起来、四肢无力，情况堪忧，望更多政府发声。
+众所周知，中国人民对外友好协会是中共统战部的机构，根据联邦美中安全与经济审查委员会的说法，这个机构由中国共产党投资数十亿美元进行经营，目的在于“收编和化解任何可能反对中共执政地位的政策和权威人士，影响外国个人和外国国家政策，为北京利益服务”。并且，中国人民对外友好协会也被美国国务院标记为“直接和恶意游说”美国官员和商业领袖。
 
-新闻参考链接： [https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/jm-11092021061403.html](https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/jm-11092021061403.html)
+文章披露，根据中国人民对外友好协会的存档网页显示，2014年6月17日，比尔·盖茨在该协会总部发表了讲话。根据该机构的总结，比尔·盖茨“他强调了中国人民对外友好协会在世界友爱互助中发挥的不可忽视的作用”。 此外，2017年，中国人民对外友好协会与清华大学共同举办了世界慈善论坛，盖茨向该协会发了一封贺信。作者指出，清华大学是中共领导人习近平的母校，设有“马克思主义学院”，在《纽约时报》、CNN等的协助下，培养下一代中共国国营媒体的宣传员。
 
-* * *
+**新闻来源：**
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[Deleted Webpages Reveal Bill Gates Praising Chinese Communist Party Group’s ‘Friendship.’](https://thenationalpulse.com/exclusive/gates-headlined-cpaffc-event/)
 
+发布：七彩光
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

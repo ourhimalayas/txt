@@ -2,36 +2,70 @@
 ---
 
 
-## 国际要闻汇编 11月9日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1650522/)
+## 中共阻挡喜币上市，在多国碰壁
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1650565/)
 
-#### 素材：东京樱花团｜GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-153.png)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1109/20211109123530993.png)
-1、[**持刀闯德国慕尼黑百货公司 斩伤10岁童**](https://www.aboluowang.com/2021/1109/1669439.html)
+**郭文贵
+Miles Guo**
 
-德国慕尼黑周日（7日）晚发生持刀伤人案，一名57岁男子在一间百货公司向一名10岁男童挥刀施袭，后者颈部及肩膀受重伤，刀手因杀戈未遂当场被捕。案发百货公司位于慕尼黑旧城区的购物地带，疑凶于周日晚上在店内用厨刀刺向遇袭男童，途人随即制服疑犯并为男童救急，约50名警员在同晚7时40分左右赶到现场，拘捕涉案男子。男童身受重伤送院救治，但无生命危险，警方相信疑犯与男童不相识，正循杀人未遂方向调查事件。
+你付出，你决策，你承担责任，你就应该得到
+You disburse, you make decisions, you take responsibility, you deserve
 
-2、[**法国戛纳发生持刀袭警事件 调查朝向“恐怖主义”**](https://www.aboluowang.com/2021/1109/1669437.html)
+好，大家想过没有？共产党这几天在内部说什么
+well, have you thought about it? What did the Communist Party say internally these days
 
-法新社报道引述消息人士说，周一早上（11月8日）6点30分左右，在戛纳警察局门前，一名男子匆忙打开一辆停在路边的警车车门，用刀刺向第一名警察的”胸部”，然后绕过车辆，攻击警车负责人，同行的另一名警察随后用两枪回击重伤了他，目前凶犯生命有危险。根据警方消息，另外两名警察被同事的弹片轻微击中。警方称正在超“恐怖主义”方向进行调查。马克龙的五年任期开始以来，法国已经遭受了17次伊斯兰教袭击。也已经挫败了36起袭击事件，
+他们向习报告，听说，真的所有当初的预测真地发生了
+They reported to Xi and said that all the original predictions really happened
 
-3、[**日本众议员大选自民党告捷 经济优先外交随美**](https://www.aboluowang.com/2021/1109/1669434.html)
+第一，没在巴哈马、美国和英国、加拿大等地把这个喜币、喜联储干掉
+First, it did not kill the Hcoin and the Himalaya Reserve in the Bahamas, the United States, the United Kingdom, Canada, etc.
 
-日本众议院选举在10月31日结果揭晓，执政党自由民主党获得绝对稳定多数席次。这次自民党在众议院席次上获得绝对稳定多数，对照原先媒体民调，可以说是大胜，也反映出日本民意对经济复苏的期待。专家认为投票结果显示施政重心将在防疫与经济，外交仍维持日美同盟基调，但寻求与中国对话，以建立经济联系。
+我们受到了这些国家的巨大的阻力
+We got great resistance from these countries
 
-4、[**退党中心谴责中共暴徒袭击巴黎End CCP义工**](https://www.aboluowang.com/2021/1109/1669711.html)
+说我们提供的文件，他们都不信，都不支持
+They said that they don’t believe or support the documents we(CCP) provided
 
-11月6日下午，法国巴黎退党服务中心的义工王先生驱车准备参加当地的讲真相活动，当他开车行驶至巴黎市中心奥斯曼大道（Boulevard Haussmann）时，遭到中共暴徒的袭击，一个坐在车牌号为ER837 EM（大巴黎93省）车辆上的行凶者挑衅性地竖起中指，然后用金属物体对着王先生的车窗玻璃猛砸，把车窗的铁杠砸得凹陷，并指著车顶上“打倒中共恶魔”的展板和车门上“远离中共=远离病毒”的标语威胁说“你传播这个我们就要杀了你。”
+就到处发函，说这是涉嫌洗钱、犯罪、诈骗，
+CCP sent letters everywhere saying that it was suspected of money laundering, crime, and fraud
 
-“打倒中共恶魔”的倡议书迄今全球已有超过160万人连署，这是历史潮流、人心所向，在世界多个国家也组织了“打倒中共恶魔”的车队传播这个信息，End CCP的洪流势不可挡，我们的步伐不会停止，也希望更多的正义人士加入到“打倒中共恶魔”的行列，让中共恶魔彻底解体的那一天早日到来。
+这是为GTV洗钱，这话都敢说，
+This is money laundering for GTV, they dare to say this
 
-5、[**希腊防疫新规上路 雅典商店外大排长龙**](https://www.aboluowang.com/2021/1109/1669517.html)
+这是人民银行反洗钱的人写出来的
+This is written by the anti-money laundering department of the People’s Bank of China
 
-希腊11月的中共病毒感染率几乎每天都在刷新纪录，促使有关当局本月2日宣布新的防疫措施，禁止没打疫苗且拿不出筛检阴性证明的民众进入咖啡厅、餐厅、政府机关、银行等地。已经施打疫苗的民众也得提供接种证明，使得雅典最繁忙的购物街埃姆（Ermou）大街上的商家外出现长长人龙。一名在服饰店外排队的女性说：“我不喜欢这样，我们不是在狱中生活，我们是有文明有教养的人，我一点也不喜欢这样。”
+老班长, 你说跟咱GTV啥关系，这王八蛋
+Old Squad Leader, what do you think it has to do with our GTV, irrational!
 
-*编辑：东京樱花团 / 東洋武士
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+说这是跟GTV是一伙的，为GTV洗钱
+CCP said that this is the same group with GTV, laundering money for GTV
+
+GTV才多大市值，这现在多少钱
+GTV is not so big in market value, how much is Himalaya Reserve now
+
+人家各国政府说你胡扯，就是说官方的栽赃陷害没成功
+The governments of each countries said that you are nonsense, which means that the CCP’s official framing was unsuccessful
+
+* * *
+
+Date:11/08/2021
+原视频标题: 中共阻挡喜币上市，在多国碰壁
+The Chinese Communist Party blocks the listing of Hcoin and hits the stone walls in many countries
+原视频日期：2021/11/05
+原视频链接 [https://twitter.com/se1y7cblljselva/status/1457268511244386318?s=24](https://twitter.com/se1y7cblljselva/status/1457268511244386318?s=24)
+任务编号：KC234(2802)
+视频时间段 : 0:00-1:06
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

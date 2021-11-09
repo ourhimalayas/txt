@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/9/2021 2:03 PM (UTC)`
+
+11/7/2021 Miles Guo: The fundamental reason for the CCP to bar the Chinese people from buying digital currencies is because the CCP believes that decentralization will bring about its downfall. Thus, the CCP is imposing absolute centralization; the CCP can control the Western economy and security by dominating the digital currencies in the West<br/><br/>11/7/2021 文贵直播：中共不让中国人买数字货币的根本原因是中共认为去中心化将导致其灭亡，所以要进行绝对的中心化；中共通过获得西方数字货币的主导权，进而能控制西方的经济和安全<br/>
+![img](https://media.gettr.com/group24/getter/2021/11/09/14/03/35cdad10-2e1f-c10d-25ea-8904ee76a8d2/out.jpg)
+
+---
+
 `@miles 11/9/2021 1:49 PM (UTC)`
 
 11月9号：尊敬的战友们好，你们健身了吗？你们在北京的六中全会发现什么了吗？你们传播C C P的病毒和疫苗的解药的真相了吗？一切都已经开始！
@@ -290,13 +297,6 @@ Dr. David Wiseman: FDA打破了一个又一个规则，这绝对太离谱了。�
 
 11/1/2021 【HCoin to The Moon庆典】我们的网络安全小组是世界上最好的；我们的客户是上帝<br/><br/>11/1/2021 【HCoin To the Moon Celebration】 Our cybersecurity team  is among the best in the world and our customers are the king.
 ![img](https://media.gettr.com/group4/getter/2021/11/05/04/33/8c1e8fd9-c37c-583e-119e-1143444f27aa/out.jpg)
-
----
-
-`@miles 11/5/2021 1:48 AM (UTC)`
-
-11/3/2021 Miles Guo: Zhang Wenyuan is Zhang Gaoli’s illegitimate child rather than his nephew, and Zhang Gaoli’s so-called “adopted daughters” are in fact his mistresses;  Zhang Gaoli is the “king” of Guangdong and Shenzhen, and Xi Yuanping (Xi Jinping’s younger brother) would even avoid Zhang Gaoli whenever he ran into Zhang<br/><br/>11/3/2021 文贵直播: 张文远是张高丽私生子而不是侄子，张高丽的所谓“养女“竟是其情妇；张高丽是广东王、深圳王，习远平见张高丽都得躲着<br/>
-![img](https://media.gettr.com/group49/getter/2021/11/05/01/6e9a35a2-38e1-56a0-3dd8-2749b048f4ba/out.jpg)
 
 ---
 
