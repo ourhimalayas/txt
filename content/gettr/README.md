@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/9/2021 6:21 AM (UTC)`
+
+11/07/2021 Miles Guo: The Communist China is focused on how to deceive the Lao Baixing, diverting the public’s attention, and internal struggles. In contrast, what makes America great is that it keeps running normally regardless of its internal fights. It’s said the US military came back for another exercise after they were done with the previous one and that joint operations between the space and ground forces were conducted during the exercise in the South China Sea, with the BeiDou Navigation Satellite System being rendered useless instantly<br/><br/>11/07/2021文贵直播：中共国研究的重点是如何坑骗老百姓、转移舆论和内斗，而美国的伟大之处在于无论如何内斗都不会影响其正常运作，据说美军在南海演习杀了个回马枪，进行了空、地联动，北斗导航系统瞬间被废掉<br/>
+![img](https://media.gettr.com/group25/getter/2021/11/09/06/21/0055774e-2591-52d6-a46f-cdd1af120517/out.jpg)
+
+---
+
 `@miles 11/9/2021 1:58 AM (UTC)`
 
 11/7/2021 Miles Guo: The world has been changed by Mr. Bannon and us for three times; nothing is more important than the block of the vaccine mandate by the U.S. Fifth Circuit Court of Appeals, which was made possible by the War Room show, the people like Mr. Bannon who hasn’t and won’t get the COVID jabs, and spreading the truth about the COVID vaccines, and we have saved countless people’s lives; the Real People Real Stories interview with our fellow fighter Eglise has shocked the Americans<br/><br/><br/>11/7/2021 文贵直播：班农先生和我们三次改变了世界；战斗室促成美国联邦第五巡回法院叫停强制疫苗接种令，班农先生等人不打疫苗和传播疫苗真相无比重要，而且我们救了无数人的命；真人真事采访战友Eglise震撼了美国人<br/><br/><br/>
@@ -290,13 +297,6 @@ Dr. David Wiseman: FDA打破了一个又一个规则，这绝对太离谱了。�
 
 11/3/2021 Miles Guo: Xi Jinping wants to eliminate Zhao Gaoli due to his own personal grudges; among the Jiang faction, Xi wants to destroy Wang Qishan, Meng Jianzhu, Zeng Qinghong and one other person whose identity cannot be disclosed now. Everyone needs to realize how cruel the CCP is！<br/><br/>11/3/2021 文贵直播: 除掉张高丽主要是出于习近平的个人恩怨，在江家人中习最想打击的是王岐山，孟建柱，曾庆红，和一个目前不方便透漏的人。每个人都要意识到共产党有多么残忍！<br/>
 ![img](https://media.gettr.com/group21/getter/2021/11/04/15/10/36366d56-db6c-5f5e-efdc-e4331fca369e/out.jpg)
-
----
-
-`@miles 11/4/2021 2:05 PM (UTC)`
-
-11/1/2021 【HCoin to The Moon庆典】喜交所CEO Jesse Brown：尽管面临挑战，我们已经为世界建立了一个新的金融体系<br/><br/>11/1/2021 【HCoin To the Moon Celebration】 CEO of Himalaya Exchange Jesse Brown: Despite the challenges, we have established a new financial system for the world <br/>
-![img](https://media.gettr.com/group23/getter/2021/11/04/14/05/9be45d9a-4195-0569-b1f0-6d1af74078a7/out.jpg)
 
 ---
 

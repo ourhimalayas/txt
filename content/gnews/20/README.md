@@ -2,49 +2,25 @@
 ---
 
 
-## 台湾教育部下令驱逐“清华海峡研究院新竹办公室”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1649761/)
+## 数十万人针对强制疫苗进行4天的全国大罢工
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1649895/)
 
-作者：纽约香草山医疗部 – 云豹
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-42.png)
+图片来源： http://wsj.com/
 
+零对冲网11月8日报道，一位人权律师和公众发言人利·登达斯说一个从11月8日到11日持续4天的反对强制疫苗的全国大罢工正在举行，这次罢工于周一从洛杉矶开始进行，行进的路线尚未透露。
 
+参加罢工抗议的人们来自不同行业，例如卡车公司和通信公司，航空和铁路工作人员因为1926年通过的铁路劳动法原因而无法获得联邦允许出来罢工，但有人匿名参加抗议。
+登达斯说：“有来自各个群体的人参与此次罢工，如黑命贵，同性恋，非同性恋，犹太人，穆斯林，美国原住民，亚裔，拉丁裔，基督徒，无神论者等所有群体来到一起，这是一个历史性时刻，这将不仅引起我们政府的注意，也会受到全球关注，强制疫苗是不可接受的。在这个国家，我们决定政府，我们的国父们知道这个真理：一个真正自由的国家就是民有，民治，民享的国家，今天的罢工标志着我们废除疫苗强制令，这是一个不能在自由社会存在的命令，我们是一个自由的社会。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+大纪元记者与一些参与罢工的人们进行了交谈，一位在雷神公司工作了18年的工程师克里斯汀·格雷斯说：“我选择上帝给我的免疫，12月18日起，我将失去收入因为我不愿意接受这种基因性实验性的东西注入我的血液，我已经从中共病毒中恢复，我在家工作，但政府要强行决定我的身体和医疗选择，我选择来自上帝的自然免疫而不是政府的强行措施。”
 
+一位来自缅因州的学校老师的：“ 人们有权利对自己和家庭作出最好的决定，这个强制令对美国人来说是反人类的，我们怎么能在这把剑下死亡？”
 
+很显然，这个疫苗強制令违背了人们自主决定自己身体的自由。
 
-11月8日，台湾教育部下令“清华海峡研究院新竹办公室”从即日起停用撤离，并停止租约。
-
-清华海峡研究院，是由清华校友会与中共厦门市政府、北京清华大学共同设立的。 该院在未经台湾政府许可的情况下，违法在新竹清华大学校园内租用房屋，设立了“清华海峡研究院新竹办公室”。
-
-据了解，中共利用该办公室在台湾投资、揽才，并参与技术研发，以此渗透台湾教育领域。中共的渗透行为已违反了两岸的关系条例。检察单位目前正在进行调查中。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-33.jpg)
-参考链接：
-[教育部要求清華海峽研究院撤離 最重罰50萬元](https://www.cna.com.tw/news/firstnews/202111085005.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：飞虹
-编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+##### **新闻来源： **[Hundreds Of Thousands To Go On Four-Day Nationwide Strike Over Vaccine Mandates](https://www.zerohedge.com/political/hundreds-thousands-go-four-day-nationwide-strike-over-vaccine-mandates)
 
  
 

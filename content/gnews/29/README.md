@@ -2,29 +2,31 @@
 ---
 
 
-## 疑为中共挖墙脚 台湾喊停清华海峡研究院在台运作
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1649640/)
+## 有声|新中国联邦“共同富裕”的愿景
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1649791/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-132.png)*台湾大学校园 (美国之音张佩芝摄，2017年11月23日)*
-据美国之音11月8日报道，中共国“清华海峡研究院”2016年在台湾清华大学设立的“清华海峡研究院新竹办公室”，目前被台湾方面停止运作，因为怀疑该学院帮助中共国在台湾招募科技人才。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月3日，郭文贵先生在GTV大直播中，描述了新中国联邦未来将会实现“共同富裕”的美好愿景。
 
-台湾新竹是全球高科技代工产业的重镇，半导体技术尤其发达，人才集中。由于中共大陆的科技企业被美国制裁，半导体技术和人才奇缺，因此台湾的人才、科技资源和机密被中共情报机构挖走的现象屡见不鲜。中共不支持发展本土科技，偷技术、挖墙脚，偷完西方偷台湾。一旦对方把防盗系统调整到最高级别，让中共无处可偷，真正的困境就显出来了。
+新中国联邦拥有铸币权的银行，将会上市和发行股票，其中一部分原始股权将分配给所有爆料革命参与者和新中国联邦公民，终身所有，后代可继承。
+中共提倡的所谓“共享财富”，实际上是掠夺人民的财富，根本无法兑现。但是，新中国联邦将会为所有承认新中国联邦的灭共者，兑现“共享财富”的承诺。新中国联邦人都是新中国联邦中央银行的股东。新中国联邦会建立真正的利益共同体，千宗万代，利益共享。新中国联邦是真正的“民天下”。
 
-新闻参考链接：[http://dlvr.it/SC5hT4](https://dlvr.it/SC5hT4)
+文字版原文：[新中国联邦“共同富裕”的愿景](https://gnews.org/zh-hans/1648445/)
 
-编辑：胖丁
+音频处理：喜山必胜Maverick
 
-* * *
+发稿：呼吸的雾霾（文小呼吸）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

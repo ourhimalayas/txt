@@ -2,30 +2,43 @@
 ---
 
 
-## 有声|澳洲违反防疫规定且未缴纳罚款者 资产将被剥夺或扣押
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1649774/)
+## 数十万美国人罢工四天以反对疫苗授权
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1649914/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月6日，媒体报道，在澳大利亚第二大州昆士兰州，居民若违反政府苛刻的防疫规定，又不能及时缴纳相应的罚款，其存在银行的钱、房子或其他资产将面临被政府剥夺的风险。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-自今年9月，昆州卫生厅要求昆州罚款执行登记处追查违反防疫规定的未付罚款。最新数据显示，有价值约一百万澳元的罚款尚未缴纳。当地媒体称，对这些人的执法措施可能包括扣押银行账户或工资、登记财产抵押或吊销驾照。另有媒体报道，预计这些极端措施也将在澳州其他地区实施，这可能给各州政府带来近一亿澳元的总收入。
-
-文字版原文：[澳洲违反防疫规定且未缴纳罚款者 资产将被剥夺或扣押](https://gnews.org/zh-hans/1648598/)
-
-音频处理：喜山必胜Maverick
-
-发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/3553Nationwide-strike.jpg)
 
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+图片来源：www.en.etemaaddaily.com
+
+
+#### 编译：小红帽
+
+据这次罢工的主要组织者、人权律师和公共演说家利·邓达斯(Leigh Dundas)说，一场大规模的全国性罢工于11月8日至11月11日举行，以反对疫苗授权。
+
+该活动于周一在美国洛杉矶拉开序幕。罢工涉及卡车运输和电信等不同行业的人。
+
+邓达斯告诉《大纪元》：“金门大桥集会将是一个史诗般的、史无前例的时刻。它将标志着–在退伍军人节的晚上–为期4天的全国性罢工。罢工由各地的普通工人组成”。
+
+“每一个团体：反疫苗、黑命贵、同性恋、异性恋、犹太人、穆斯林、美洲原住民、亚洲人、拉丁裔、基督徒、无神论者–所有团体–都在这一历史性时刻走到一起，不仅向我们自己的政府，而且向全世界的关注者吹响号角，疫苗授权将不再被容忍”。
+
+“在这个国家，我们就是政府，因为我们的开国元勋知道这个真理：一个真正的自由国家是一个民有、民治、民享的国家。我们是我们一直在等待的领导人”。
+
+“今天标志着我们退出了疫苗授权，因为疫苗授权是一个无法在自由社会中生存的概念，而我们确实就是：一个自由社会”。
+
+**参考链接：**[Hundreds Of Thousands To Go On Four-Day Nationwide Strike Over Vaccine Mandates | ZeroHedge](https://www.zerohedge.com/political/hundreds-thousands-go-four-day-nationwide-strike-over-vaccine-mandates)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

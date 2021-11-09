@@ -2,32 +2,12 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月8日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1649813/)
+## 泽连科：为何治疗中共病毒的任何东西都被打压？
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1649941/)
 
-作者：香草山翻译部
+11/02/2021 泽连科医生：中共病毒被人为制造用来维持全球恐慌，任何对恐慌机制构成威胁、能治疗中共病毒的都被边缘化、被打压、被诋毁，任何反对政府说法的人都会被封杀，他们的重点是要恐吓70亿人去打有毒的死亡针。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-1.png)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1108text-SC.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[11.8  晚GTV新闻访谈](https://gtv.org/broadcast/watch/6189ce8511d1862968037043)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

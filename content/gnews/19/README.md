@@ -2,46 +2,37 @@
 ---
 
 
-## 7·24专题——蓝盾系统
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1649762/)
+## 英首相约翰逊继续推广疫苗加强剂
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1649897/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/20161220141823_0850.jpg)
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-140.png)图片来源：每日邮报
+**翻译：**小鱼儿
+**编辑：**Candy
 
+目前约有十分之四符合条件的英国人未接种增强剂。英国首相鲍里斯·约翰逊说 ：有“太多”接种双剂疫苗的老人被送进医院，他敦促人们前去接受疫苗的增强针剂，因为增强剂能提供95%的保护。
 
+传染病教授迈克·蒂尔德斯利（Mike Tildesley）博士说：Covid将会和流感一样，每年都持续循环。他警告说，这意味着人们的免疫力可能需要再次加强。
 
-**图片来源：**蓝盾官网
+英国前疫苗部长纳齐姆·扎哈维（Nadhim Zahawi）称：增强剂可能每年都会发放。
 
+鲍里斯.约翰逊今天警告说，前两剂疫苗在提供六个月的保护后，性能会大大减弱。约翰逊称，迄今为止已经发放的1000万个增强剂“非常有效”，它给人们提供的保护比单独的两剂高出95%。
 
-#### **整理：**BENJ1、翼族**
-编辑：**翼族
+约翰逊还敦促所有符合条件的人：50岁以上的人、健康者、社会护理工作者，16岁以上存在潜在健康问题的人则应在第二次接种后六个月再次接种加强针疫苗。
 
-郭文贵先生11月7日大直播中提到蓝盾系统，郭先生说：
+一位著名的政府顾问暗示，每年冬天可能都需要进行强化接种。纳齐姆·扎哈维也提出，疫苗将成为每年对抗中共病毒的一个策略。但其他专家表示，很可能不需要永无止境的加强剂循环，因为病毒总有一天会“淡出”。
 
-之前有人给我发了文件说“我肯定要被抓”，把办案的东西给了我。给我（的东西）我现在发现（有）蓝盾我打不开啊，我又担心这蓝盾有问题，所以昨天查查蓝盾到底……原来我们弄过（蓝盾），这回蓝盾升级了。原来以色列一个人说有能力破解，但现在这蓝盾升级了，我破不了，你得给我点时间。所以我们昨天查蓝盾，我还不知道这里有啥，兄弟姐妹们，说不定打开以后有什么小视频、大视频的，吓人呼啦的。这个给料的人已经被抓了。多少资料呢？九个T，九个T的信息！如果这东西我们能打开的话，咱天天直播，你们就开心了，抠着脚趾头天天放料，绝对震撼世界，绝对震撼世界！
+英国迟缓的疫苗推广工作是由于人们对疫苗有效性的质疑，部长们也将原因归咎于人们不够积极主动。同时老年患者称他们无法通过电话预约，也不知道如何使用在线系统。
 
-蓝盾系统，自称是中国信息安全领域的领军企业。蓝盾股份成立于1999年，2012年3月15日在深交所创业板上市，公司由现任总裁柯宗贵和他的哥哥、现任蓝盾股份董事长柯宗庆共同创办。柯宗贵兄弟，祖籍广东汕头潮阳。
+**参考新闻：**[Boris Johnson warns ‘too many’ fully-vaccinated elderly Britons are ending up in hospital with Covid as PM urges nation to get their booster vaccine](https://www.dailymail.co.uk/news/article-10178297/Boris-Johnson-warns-fully-vaccinated-elderly-Britons-ending-hospital-Covid.html)
 
-蓝盾股份的研发重点主要是网络系统安全、数据安全、业务应用安全等，产品研发包括工控防火墙、第二代防火墙、下一代接入口保密检测、下一代数据库审计、下一代SOC【注：System on a Chip，单片系统或片上系统，是一个将电脑或其它电子系统集成到单一芯片的集成电路】、下一代WAF【注：Web Application Firewall，网络应用防火墙】、业务应用安全审计平台等。蓝盾建有“蓝盾安全库”，其中包括病毒木马库、漏洞库、IPS库、URL库、WAF库等。
+***发布：Candy***
 
-蓝盾股份的子公司“蓝盾技术”于2016年先后获得了**涉密信息**系统集成甲级资质证书、安防监控**涉密集成**甲级资质证书，并通过了CMMI5级评估认证。该子公司很有可能就是蓝盾与中共安全部门进行合作的一个商业体。
-
-蓝盾公司在云安全方面的产品，包括虚拟防火墙、虚拟SOC、虚拟堡垒机、虚拟网页防篡改、虚拟漏扫、虚拟WAF、虚拟上网行为审计、虚拟数据库审计等虚拟安全产品。
-
-2020年年报显示，蓝盾股份的主营业务为系统集成商、政府机关、其他行业、铁路、制造贸易，占营收比例分别为：59.71%、21.05%、6.11%、4.11%、2.66%。
-
-2021年10月16日，蓝盾股份公告称，因部分债务逾期事项，公司及相关子公司面临诉讼、支付相关违约金、滞纳金和罚息、被列入失信被执行人等情形。
-
-据公告，因资金流动性不足等原因，蓝盾股份已出现多起债务逾期，截至2020年9月27日，公司及部分子公司累计债务逾期未偿还金额高达15.66亿元。15.66亿元对于蓝盾股份是个什么概念？今年上半年，蓝盾股份的货币资金仅有1.06亿元，公司及部分子公司累计逾期债务金额几乎是货币资金的15倍之多！
-
-蓝盾股份的业绩情况同样令人担忧，上半年公司实现营收4.99亿元，同比下降48.92%；归属净利润亏损6753万元，同比下降146.5%。
-
-*发布：小红帽*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/Nz26pG64XF)[Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
