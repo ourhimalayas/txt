@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/9/2021 11:49 AM (UTC)`
+
+The vaccination disaster has gradually become prominent: The patients in the ICU of Ghent University Hospital are all vaccinated recently.<br/><br/>疫苗灾难逐渐凸显：在根特大学医院的重症室中，最近全是接种过疫苗的病人。
+![img](https://media.gettr.com/group33/origin/2021/11/09/11/49/b3f24d50-35f5-3dcc-ddcb-356d4ac41083/out.jpg)
+
+---
+
 `@miles 11/9/2021 6:21 AM (UTC)`
 
 11/07/2021 Miles Guo: The Communist China is focused on how to deceive the Lao Baixing, diverting the public’s attention, and internal struggles. In contrast, what makes America great is that it keeps running normally regardless of its internal fights. It’s said the US military came back for another exercise after they were done with the previous one and that joint operations between the space and ground forces were conducted during the exercise in the South China Sea, with the BeiDou Navigation Satellite System being rendered useless instantly<br/><br/>11/07/2021文贵直播：中共国研究的重点是如何坑骗老百姓、转移舆论和内斗，而美国的伟大之处在于无论如何内斗都不会影响其正常运作，据说美军在南海演习杀了个回马枪，进行了空、地联动，北斗导航系统瞬间被废掉<br/>
@@ -290,13 +297,6 @@ Dr. David Wiseman: FDA打破了一个又一个规则，这绝对太离谱了。�
 
 11/3/2021 Miles Guo: The CCP’s entire real estate sector is doomed, and the day the real estate collapses is the day the CCP will be taken down, with both the Jiang family and Zeng family waiting for Xi Jinping to be finished; the purpose for the CCP to impose property taxes is to sustain its Ponzi scheme. Why will collecting property taxes devastate both the CCP and the Communist China?<br/><br/>11/3/2021 文贵直播: 中共的整个房地产领域都快完了，房地产崩溃之日就是灭共之时，江家、曾家都等着习完蛋；中共征收房产税是为了延续其庞氏骗局，为什么说征收房地产税将导致亡党亡国？<br/>
 ![img](https://media.gettr.com/group14/getter/2021/11/05/01/04/d3ff8e3c-adeb-cb1b-2db5-47045d4c2780/out.jpg)
-
----
-
-`@miles 11/4/2021 3:10 PM (UTC)`
-
-11/3/2021 Miles Guo: Xi Jinping wants to eliminate Zhao Gaoli due to his own personal grudges; among the Jiang faction, Xi wants to destroy Wang Qishan, Meng Jianzhu, Zeng Qinghong and one other person whose identity cannot be disclosed now. Everyone needs to realize how cruel the CCP is！<br/><br/>11/3/2021 文贵直播: 除掉张高丽主要是出于习近平的个人恩怨，在江家人中习最想打击的是王岐山，孟建柱，曾庆红，和一个目前不方便透漏的人。每个人都要意识到共产党有多么残忍！<br/>
-![img](https://media.gettr.com/group21/getter/2021/11/04/15/10/36366d56-db6c-5f5e-efdc-e4331fca369e/out.jpg)
 
 ---
 
