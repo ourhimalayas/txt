@@ -2,21 +2,12 @@
 ---
 
 
-## 雅典娜时报-第107期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1649589/)
+## 11/3/郭文贵直播：疫苗和病毒真相是新中国联邦最大的子弹（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1649626/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+11/3/2021 郭文贵直播：疫苗和病毒的真相是新中国联邦最大的子弹，喜联储和盖特次之；淫荡、无能的张高丽最早说习近平当完一届得下台；共产党不灭，每个人的孩子都可能被他们糟蹋！
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/11/119.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/1192.png)
-***发布：小红帽***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

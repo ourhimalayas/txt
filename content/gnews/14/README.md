@@ -2,21 +2,25 @@
 ---
 
 
-## 有声|澳洲违反防疫规定且未缴纳罚款者 资产将被剥夺或扣押
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1649774/)
+## 有声|美国共和党联邦众议员提出重新审视一中政策
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1649799/)
 
 配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月6日，媒体报道，在澳大利亚第二大州昆士兰州，居民若违反政府苛刻的防疫规定，又不能及时缴纳相应的罚款，其存在银行的钱、房子或其他资产将面临被政府剥夺的风险。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月6日美国有媒体报道，美国国会共和党联邦众议员克劳迪娅·坦尼日前在接受专访时表示，中（共）国不是假想敌，而是美国当今最大的敌人，是“当代的苏联”。她呼吁国会两党和行政部门支持《中国观察法》，在全球各地监测中共国的影响力。
 
-自今年9月，昆州卫生厅要求昆州罚款执行登记处追查违反防疫规定的未付罚款。最新数据显示，有价值约一百万澳元的罚款尚未缴纳。当地媒体称，对这些人的执法措施可能包括扣押银行账户或工资、登记财产抵押或吊销驾照。另有媒体报道，预计这些极端措施也将在澳州其他地区实施，这可能给各州政府带来近一亿澳元的总收入。
+克劳迪娅指出，面对强势的中共，美国政府也应在军事协防台湾方面更加积极。不希望台湾成下一个香港，是时候重新审议美国的“一中政策”了。
 
-文字版原文：[澳洲违反防疫规定且未缴纳罚款者 资产将被剥夺或扣押](https://gnews.org/zh-hans/1648598/)
+近日，美国参议院军事委员会共和党参议员乔什·霍利推出了《武装台湾法》草案，提出每年拨款30亿美元提升台湾不对称战力的计划；外交关系委员会多位重量级共和党议员共同推出了《台湾威慑法》寻求授权每年向台湾提供20亿美元及其他援助，以加强台湾的防务。
+
+文字版原文：[美国共和党联邦众议员提出重新审视一中政策](https://gnews.org/zh-hans/1647465/)
 
 音频处理：喜山必胜Maverick
 
 发稿：呼吸的雾霾（文小呼吸）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
 
 
 **更多资讯，更多关注**
@@ -25,7 +29,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

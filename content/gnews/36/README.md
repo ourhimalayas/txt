@@ -2,10 +2,10 @@
 ---
 
 
-## 喜马拉雅联储能耐受每秒16亿次骇客攻击（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1649544/)
+## 【HCoin To the Moon 庆典】：列支敦士登因投资喜联储而跟中共脱钩（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1649547/)
 
-11/1/2021 喜马拉雅联储能耐受每秒16亿次骇客攻击；纳瓦罗在其新书中写道：川普总统发出旅行禁令，是因为听取了郭文贵先生关于中共病毒的情报。
+11/1/2021【HCoin To the Moon 庆典】：列支敦士登因投资喜联储而果断跟中共脱钩；全球人均GDP最高的卢森堡宁愿跟中共脱钩也要投资喜联储；欧洲最大的政治游说公司正在为喜联储在全球游说多国与中共脱钩！
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,40 +2,28 @@
 ---
 
 
-## 秘翻在线：日本天后滨崎步紧急送院，媒体速删CCP病毒疫苗相关报道
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1649829/)
+## 中共被欧盟等32国取消优惠关税后世贸资格已名存实亡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1649892/)
 
-撰稿：文字焼
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16364270271.png)图片来源：ANN NEWS
-日本歌坛天后滨崎步因休克紧急送院，日本主流媒体速删其已接种CCP病毒疫苗的相关报道。媒体为何删除报道？引起日本网友议论纷纷。我们从时间顺序来梳理一下媒体的报道：
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-8.png)
+（图片来自网络）
 
-10月6日，据雅虎日本报道，滨崎步已完成CCP病毒疫苗接种。该文章在滨崎步紧急送院后被迅速删除，但网络是有记忆的。笔者找到了该文章的缓存链接，证明该报道是真实存在过的：
+据《希望之声》2021年11月8日报道，近日，包括欧盟各国在内的32个世贸组织（WTO）成员国宣布取消对中共国的优惠关税。有专家分析，欧盟悄然无声地突然做出这样的决定，对中共打击相当大，中共的世贸资格实际上已是名存实亡。
 
-[http://web.archive.org/web/20211007052005/https://news.yahoo.co.jp/articles/11f14db600f1ad8f2cd43fdb7064549ad392b166/](https://web.archive.org/web/20211007052005/https://news.yahoo.co.jp/articles/11f14db600f1ad8f2cd43fdb7064549ad392b166/)
+中共海关总署近日发布公告称，从今年12月1日起，中（共）国对输往欧盟、英国、加拿大、土耳其和乌克兰等国的货物，不再签发“普遍优惠制”原产地证书。这一公告证明了上述国家已不再给予中（共）国“普惠制”关税优惠待遇。
 
-附上截图：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16364271391.png)
-同时，体育报知也报道了同样的新闻，并指出滨崎步在其官方Instagram上也发表了已完成CCP病毒疫苗接种，该文章也已被删除。不过，我们同样找到了能证明其存在过的缓存链接：[http://web.archive.org/web/20211107054323/https://hochi.news/articles/20211006-OHT1T51075.html?page=1](https://web.archive.org/web/20211107054323/https:/hochi.news/articles/20211006-OHT1T51075.html?page=1)
+著名时评人士唐靖远对此表示，中共海关的这则消息虽然很短，在中共国国内媒体上也几乎被忽视，但其实这对中共来说是个重大打击。几乎一夜之间，32个相对发达的国家就取消了中共享受了20年的优惠关税。再加上此前已取消中共“普惠制”待遇的日本、瑞士、俄罗斯、哈萨克斯坦和白俄罗斯，以及依然保持贸易战关税的美国，中共目前几乎面临所有经济发达国家的关税壁垒。
 
-附上截图：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16364271391-1.png)
-11月7日， 日本媒体报道滨崎步因过敏性休克紧急送院：
+唐靖远还谈到，习近平近日在上海举行的“中国国际进口博览会”开幕式上的演讲中多次提到世贸组织，声称“20年来，中共已全面履行了入世承诺”。 如此“红口白牙地在大庭广众之下，对一个几乎是尽人皆知的事实瞪眼撒谎”，实际上中共是“被打疼了在呻吟”而已。
 
-[https://news.yahoo.co.jp/articles/57e1b69cdf49b0b9e9cdcd66031b68afccbba706](https://news.yahoo.co.jp/articles/57e1b69cdf49b0b9e9cdcd66031b68afccbba706)
+美国南卡罗莱纳大学商学院的谢田教授也认为，取消优惠税率意味中共国产品的价格将会上升，这对中共国经济的影响非常大，中共国国内的消费、基础建设和进出口都会受到沉重打击。同时，产业链离开中共国的过程也将逐步加快。
 
-11月8日：日本媒体再次出新闻，解释滨崎步并非因CCP病毒疫苗而导致过敏性休克，但又在文章中写道：据东京西武学园医疗技术学院院长、医学博士中原英臣说，过敏性休克是注射CCP病毒疫苗后常见的一个症状。当外来物质进入身体时，会引起过度反应。他说：“在严重的情况下，可能导致死亡”。
+中共被欧盟等32国取消优惠关税后，世贸资格已名存实亡。而距离中共被彻底踢出世贸组织，相信也已为时不远。
 
-相关链接：
+注：本文仅代表作者观点
 
-[https://news.yahoo.co.jp/articles/14b5d3c0edcb26e93f78ab684de0b5fb0c4f361c](https://news.yahoo.co.jp/articles/14b5d3c0edcb26e93f78ab684de0b5fb0c4f361c)
-
-日本媒体删除新闻报道的行为令人不解，据说滨崎步现已恢复意识。祝天后早日康复。
-
-信息来源：[https://news.tv-asahi.co.jp/news\_geinou/articles/hot\_20211107\_050.html](https://news.tv-asahi.co.jp/news_geinou/articles/hot_20211107_050.html)
-
-（文章仅代表作者个人观点）
-
-责编：待命（文晓）
+新闻链接：[https://www.soundofhope.org/post/563505](https://www.soundofhope.org/post/563505)
 
  
 
