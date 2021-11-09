@@ -2,70 +2,26 @@
 ---
 
 
-## 中共阻挡喜币上市，在多国碰壁
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1650565/)
+## FRB警告恒大问题波及美国冲击全球
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1650636/)
 
-**郭文贵
-Miles Guo**
+#### 撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-42.jpg)[图片源](https://www.arabnews.jp/article/business/article_21989/)
+【华盛顿时事】美国联邦储备委员会（FRB）8日发布金融稳定报告，称以陷入危机的中共国房地产开发巨头恒大集团为首，该国房地产行业陷入困境；中共国金融体系受损并指出作为“短期风险”蔓延至美国的可能性。
 
-你付出，你决策，你承担责任，你就应该得到
-You disburse, you make decisions, you take responsibility, you deserve
+报告分析，中共国企业和地方政府的债务规模巨大，尤其是中小银行风险较高。报告说，在这种情况下，房地产价格的突然暴跌和投资者的风险规避，将引发金融体系的动荡。
 
-好，大家想过没有？共产党这几天在内部说什么
-well, have you thought about it? What did the Communist Party say internally these days
+报告中发出预警，值得一提的是，鉴于中共国经济和金融体系的规模，以及与其他国家广泛的贸易关系，“投资者情绪的恶化将影响全球金融市场，对全球增长构成风险，并影响美国。”
 
-他们向习报告，听说，真的所有当初的预测真地发生了
-They reported to Xi and said that all the original predictions really happened
+欲盖弥彰，从恒大刚开始暴雷，以美国为首的各个国家纷纷公开表明恒大的危机是可以规避的。现在终于纸盖不住火了，FRB都发布报告了。看来，全球经济确实危在旦夕，各国毫无节制的印炒背后，是不堪一击的被中共国深度勾兑的金融体系。中共这颗毒瘤已严重渗透到各个领域，恒大问题只是一小块遮羞布。要从根本上解决问题，运用了区块链技术，以黄金卯定，透明，公开，可查可追溯的喜联储应该是最好的选择了。上帝为人类关上一道门，必定会打开一扇窗。喜联储欢迎所有正义之士。
 
-第一，没在巴哈马、美国和英国、加拿大等地把这个喜币、喜联储干掉
-First, it did not kill the Hcoin and the Himalaya Reserve in the Bahamas, the United States, the United Kingdom, Canada, etc.
+信息来源：
 
-我们受到了这些国家的巨大的阻力
-We got great resistance from these countries
+[中国恒大問題、米国に波及も　金融システムに打撃　FRB報告](https://news.yahoo.co.jp/articles/b10083ecce0b06a355d9356594b25403ff76f1fd)
 
-说我们提供的文件，他们都不信，都不支持
-They said that they don’t believe or support the documents we(CCP) provided
-
-就到处发函，说这是涉嫌洗钱、犯罪、诈骗，
-CCP sent letters everywhere saying that it was suspected of money laundering, crime, and fraud
-
-这是为GTV洗钱，这话都敢说，
-This is money laundering for GTV, they dare to say this
-
-这是人民银行反洗钱的人写出来的
-This is written by the anti-money laundering department of the People’s Bank of China
-
-老班长, 你说跟咱GTV啥关系，这王八蛋
-Old Squad Leader, what do you think it has to do with our GTV, irrational!
-
-说这是跟GTV是一伙的，为GTV洗钱
-CCP said that this is the same group with GTV, laundering money for GTV
-
-GTV才多大市值，这现在多少钱
-GTV is not so big in market value, how much is Himalaya Reserve now
-
-人家各国政府说你胡扯，就是说官方的栽赃陷害没成功
-The governments of each countries said that you are nonsense, which means that the CCP’s official framing was unsuccessful
-
-* * *
-
-Date:11/08/2021
-原视频标题: 中共阻挡喜币上市，在多国碰壁
-The Chinese Communist Party blocks the listing of Hcoin and hits the stone walls in many countries
-原视频日期：2021/11/05
-原视频链接 [https://twitter.com/se1y7cblljselva/status/1457268511244386318?s=24](https://twitter.com/se1y7cblljselva/status/1457268511244386318?s=24)
-任务编号：KC234(2802)
-视频时间段 : 0:00-1:06
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

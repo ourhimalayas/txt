@@ -15,125 +15,125 @@
 
 ---
 
-### [蓝光发展 因债务问题涉及重大诉讼案件，涉案金额合计36.98亿元](/content/gnews/1/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
+### [日本要闻汇编 11月9日](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [飞行员在接种新冠疫苗后失去了一切](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [锦恒财富兑付逾期](/content/gnews/3/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [从一个白血病孩子说起](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [岚桥集团未按期足额兑付一期中票 涉及本息5.355亿元](/content/gnews/5/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [日本软银在中共国投资蒙受损失](/content/gnews/6/README.md)
+### [美国参众议员搭军机访台！](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国国务院要求中共国无条件释放张展](/content/gnews/7/README.md)
+### [加密货币对冲通胀，市值已飙升至3万亿美元](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [《国家脉动》揭露盖茨与中共统战部机构的交往历史](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [蓝光发展 因债务问题涉及重大诉讼案件，涉案金额合计36.98亿元](/content/gnews/5/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [飞行员在接种新冠疫苗后失去了一切](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [锦恒财富兑付逾期](/content/gnews/7/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [从一个白血病孩子说起](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [岚桥集团未按期足额兑付一期中票 涉及本息5.355亿元](/content/gnews/9/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [日本软银在中共国投资蒙受损失](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|被共产主义腐蚀的灵魂——回忆我的同学大军](/content/gnews/8/README.md)
+### [美国国务院要求中共国无条件释放张展](/content/gnews/11/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声|被共产主义腐蚀的灵魂——回忆我的同学大军](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [玛乔丽·泰勒·格林：应被解雇的是福奇和斯卡伯勒，而不是急救人员](/content/gnews/9/README.md)
+### [玛乔丽·泰勒·格林：应被解雇的是福奇和斯卡伯勒，而不是急救人员](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新东方的俞敏洪惨到直播去卖农产品了](/content/gnews/10/README.md)
+### [新东方的俞敏洪惨到直播去卖农产品了](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [拜登政府想推行儿童疫苗强制令,儿童福利和安全受威胁](/content/gnews/11/README.md)
+### [拜登政府想推行儿童疫苗强制令,儿童福利和安全受威胁](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [露宿者](/content/gnews/12/README.md)
+### [露宿者](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国的数字货币战略](/content/gnews/13/README.md)
+### [中共国的数字货币战略](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [岸田文雄，积极推动“第三针”接种](/content/gnews/14/README.md)
+### [岸田文雄，积极推动“第三针”接种](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共十九届六中全会是什么?](/content/gnews/15/README.md)
+### [中共十九届六中全会是什么?](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [日本重症化骤减，疑似为“第三针”造势](/content/gnews/16/README.md)
+### [日本重症化骤减，疑似为“第三针”造势](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [世界最高水平的运动员都受到新冠疫苗的伤害](/content/gnews/17/README.md)
+### [世界最高水平的运动员都受到新冠疫苗的伤害](/content/gnews/21/README.md)
  ` xiaobaige`
 
-### [FRB警告恒大问题波及美国冲击全球](/content/gnews/18/README.md)
+### [FRB警告恒大问题波及美国冲击全球](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共用户籍制度囚禁国人](/content/gnews/19/README.md)
+### [中共用户籍制度囚禁国人](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [护士：由于疫苗强制令,澳洲医疗系统已崩溃](/content/gnews/20/README.md)
+### [护士：由于疫苗强制令,澳洲医疗系统已崩溃](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [现在大多数卡车司机将免于接受疫苗接种的规定](/content/gnews/21/README.md)
+### [现在大多数卡车司机将免于接受疫苗接种的规定](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共阻挡喜币上市，在多国碰壁](/content/gnews/22/README.md)
+### [中共阻挡喜币上市，在多国碰壁](/content/gnews/26/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [台湾当局叫停清华海峡研究院在台运作](/content/gnews/23/README.md)
+### [台湾当局叫停清华海峡研究院在台运作](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [参与爆料革命，重塑独立人格](/content/gnews/24/README.md)
+### [参与爆料革命，重塑独立人格](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [强国谎言：新冠病毒零容忍政策彰显人民立场制度优势？](/content/gnews/25/README.md)
+### [强国谎言：新冠病毒零容忍政策彰显人民立场制度优势？](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [野蛮生长不会变成野人](/content/gnews/26/README.md)
+### [野蛮生长不会变成野人](/content/gnews/30/README.md)
  ` 银河勇气之星`
 
-### [日本前教育部长：中国人权问题很严重](/content/gnews/27/README.md)
+### [日本前教育部长：中国人权问题很严重](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [大企业对黑客束手无策](/content/gnews/28/README.md)
+### [大企业对黑客束手无策](/content/gnews/32/README.md)
  ` Shuizhuyu`
 
-### [国际要闻汇编 11月9日](/content/gnews/29/README.md)
+### [国际要闻汇编 11月9日](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内要闻汇编 11月9日](/content/gnews/30/README.md)
+### [墙内要闻汇编 11月9日](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [战友们有钱了就一定要让父母过上好日子](/content/gnews/31/README.md)
+### [战友们有钱了就一定要让父母过上好日子](/content/gnews/35/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [纳瓦罗：福奇是自恋狂和反社会者](/content/gnews/32/README.md)
+### [纳瓦罗：福奇是自恋狂和反社会者](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年11月9日 澳喜要闻摘要](/content/gnews/33/README.md)
+### [2021年11月9日 澳喜要闻摘要](/content/gnews/37/README.md)
  ` 澳喜农场`
 
-### [观1107文贵大直播有感（二）](/content/gnews/34/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [与非洲的伙伴关系符合德国的利益](/content/gnews/35/README.md)
- ` Shuizhuyu`
-
-### [秘翻在线：马斯克早已知晓社会主义巧取豪夺个人财富的手段](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [国内疫苗灾难正在爆发，钟南山家族开始被清算](/content/gnews/37/README.md)
+### [国内疫苗灾难正在爆发，钟南山家族开始被清算](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [定了，“习思想“将成为中国共产党的假擀面杖](/content/gnews/38/README.md)
+### [定了，“习思想“将成为中国共产党的假擀面杖](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美参议员提案：禁止涉联邦资金实体对未成年人执行疫苗强制令](/content/gnews/39/README.md)
+### [美参议员提案：禁止涉联邦资金实体对未成年人执行疫苗强制令](/content/gnews/40/README.md)
  ` 秘密翻译组-即时新闻播报组`
-
-### [投资阿里巴巴导致软银严重亏损](/content/gnews/40/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [应对中共攻台，日本将在与那国岛部署电子战部队](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
