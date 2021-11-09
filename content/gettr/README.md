@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/9/2021 10:21 PM (UTC)`
+
+11/9/2021 Miles Guo’s GETTR: The US reopened land and air borders on November 8. Why are so many people in the world, including the Europeans, flocking to the US? We should beware of the CCP taking this opportunity to release the CCP virus again. The CCP’s real estate crisis has led the Federal Reserve and the US Department of Treasury to raise the red flags, because the CCP simply has no money to repay its debts!<br/><br/>11/9/2021 文贵盖特: 11月8日美国开放陆空边境，为何全世界包括欧洲人都蜂拥而至？此时更要谨防中共借机再次放毒；中共房地产危机促使美联储、财政部敲响警钟，中共根本无钱可还！<br/>
+![img](https://media.gettr.com/group43/getter/2021/11/09/22/21/fd4c3237-8007-6b14-f937-9a5290315a38/out.jpg)
+
+---
+
+`@miles 11/9/2021 10:12 PM (UTC)`
+
+11/9/2021 Miles Guo’s GETTR: A Senior CCP Cadre died because he did not take my advice and proceeded to get the COVID jab instead; the internal fights in the CCP are getting fierce during the Sixth Plenary Session of the 19th Central Committee; the truth about the COVID vaccines is the biggest gift brought to the world by the Whistleblowers’ Movement and the New Federal State of China<br/><br/>11/9/2021 文贵盖特: 中共体制内高官因不听文贵劝告，打了疫苗而殒命；中共六中全会内斗正酣；疫苗真相是爆料革命、新中国联邦带给世界最大的礼物<br/>
+![img](https://media.gettr.com/group30/getter/2021/11/09/22/12/e1ef9150-d9b6-500b-95ea-5f1b5675a7c7/out.jpg)
+
+---
+
 `@miles 11/9/2021 10:05 PM (UTC)`
 
 11/9/2021 Miles Guo: Only when the US stops the COVID vaccines, will the rest of the world call a halt to it. Our strategy hit the point! Today’s broadcast will witness another great moment since the cutoff of my live interview by VOA on April 19, 2017!<br/><br/><br/>11/9/2021 文贵直播: 只有美国叫停疫苗，全世界才会叫停疫苗。我们的策略直击要害！今天的直播会见证继四一九VOA断播事件后又一个伟大的时刻！<br/>
@@ -279,22 +293,6 @@ The vaccination disaster has gradually become prominent: The patients in the ICU
 
 在 GETTR 上加入我的直播。
 ![img](https://media.gettr.com/group1/getter/2021/10/23/19/bef325e0-a7dd-eef4-f1c5-6977a36aeaf7/7f87f676c946650f527b3506087be38c.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gfashion 11/5/2021 5:52 PM (UTC)`
-
-Starts with a Vision...
-![img](https://media.gettr.com/group32/origin/2021/11/05/17/ad49129f-2c28-b862-7041-4915e7c27d1d/c9e77c9c635454a423ffd28b6243fe07.jpeg)
-
----
-
-`@miles 11/5/2021 12:04 PM (UTC)`
-
-2021年11月5日 文贵大直播：香港股市跌动与糟糕的中共经济；维洲共和党赢与台湾及爆料革命；张高丽玩弄女性与高层政治事件；喜联储独立法人商业运作与我们
-![img](https://media.gettr.com/group22/origin/2021/11/05/12/41c406bb-be1b-c198-31d5-7946a859f12f/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
