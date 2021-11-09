@@ -2,152 +2,36 @@
 ---
 
 
-## 战友们有钱了就一定要让父母过上好日子
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1650498/)
+## 台湾当局叫停清华海峡研究院在台运作
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1650558/)
 
-[https://gtv.org/video/id=61891e71adfd99590c346937](https://gtv.org/video/id=61891e71adfd99590c346937)
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-43.png)
+（图片来自网络）
 
-郭文贵
-Miles Guo
+《美国之音》11月8日消息，中共国“清华海峡研究院”在台机构因被怀疑是中共机构在台湾搞渗透，并帮助中共国招募科技人才，目前已被台湾当局要求停止其在台机构的运作。
 
-这个早上起来的时候就是这个
-This is what happened when I got up this morning
+据台湾《自由时报》报道，清华海峡研究院于2016年通过“自强工业科学基金会”向台湾国立清华大学承租校内办公场所，设立“清华海峡研究院新竹办公室”，并成立“两岸产业促进中心”。报道称，“新竹办公室”还曾于2017年赴中共国考察。
 
-我打坐的时间就是到我母亲前面去打坐
-I was in front of my mother’s portrait for my sit meditation
+根据该研究院官网信息显示，清华海峡研究院成立于2014年，是一家由厦门市人民政府、北京清华大学共同成立、按企业方式运作的事业单位。官网称，清华海峡研究院“服务于加快海峡西岸经济区和‘一带一路’核心区建设”。
 
-往那一跪下
-As soon as I was kneeling down
+台湾陆委会主委邱太三星期一在回应立法委员质询时表示，他今年7月才得知台湾清华大学设立了这所办公室，8月发函给教育部要求厘清问题。邱太三表示，如果确定有关机构违法违规，会依照《两岸人民关系条例》处置。
 
-就是就是控制不住了
-I just couldn’t control myself
+台湾《两岸人民关系条例》的有关条款规定：“大陆地区之非营利法人、团体或其他机构，非经各该主管机关许可，不得在台湾地区设立办事处或分支机构，从事业务活动。”
 
-就是突然就是想起
-because I suddenly recalled
+台湾教育部则表示，11月4日已经函请台湾清华大学校友总会和台湾清华大学，要求它们调查“新竹办公室”从事活动的情况，并报告给教育部。
 
-这老娘穷一辈子
-there, my dear old mother had been poor her whole life
+陆委会主委邱太三称，过去政府基于尊重学术，很少调查学术单位是否有被渗透的情况，使得学术单位成为可能的突破口。希望借由此次调查机会，检视台湾所有大专院校，调查是否有类似违规情况。
 
-我小的时候我最重要的
-When I was little, the most important thing to me
+台湾新竹是全球高科技代工产业的重镇，半导体技术尤其发达，人才集中。而中共国的科技企业在美国的出口制裁制约下，急需半导体技术和人才，帮助其发展本土芯片制造能力。
 
-我就发愿让我爹娘过上这个有钱买酱油、买盐的日子
-was that I made a wish to let my parents live with enough money to buy salt and soy sauce
+民进党籍立委赖瑞龙对台湾《民视新闻》表示，近年来，台湾的人才和科技机密被有中共国背景的机构挖走，这一现象屡见不鲜。中共过去一直是从台积电和联电窃取各种机密，拿到中共国去，甚至还将人才挖角过去，用完即弃。
 
-我今天对着我老娘那个照片
-Today, I was facing my dear mother’s portrait
+清华海峡研究院这一事件，清楚地证明了中共多年来一直在对台湾进行势力入侵，并窃取技术、拉拢人才。唯台湾政府直至今日才警醒。不过，亡羊补牢，为时不晚，台湾是时候借此事件对类似中共在台机构进行一次全面调查和清理了。
 
-我就说 老娘 儿子可以说让你不论在天堂
-I said, my dear old mother, your son could tell you that whether you are in heaven
+注：本文仅代表作者观点
 
-如果你在人间
-or on earth
-
-永远不用再愁钱
-you never have to worry about money
-
-买酱油啊 买盐什么的
-for getting salt, soy sauce, or anything anymore
-
-哎呀 控制不住了
-I couldn’t control it
-
-我希望所有的战友们都记住
-I hope all of our comrades will remember that
-
-先让你父母过好
-Letting your parents live well is preferred
-
-如果生你养你的父母
-If your parents who gave birth to you and raised you
-
-连酱油钱 吃不好喝不好
-now still can’t even afford to make a basic living
-
-那真是你是最失败的
-then you would be the worst failure
-
-如果战友们有钱了
-However, if you are rich
-
-你们第一个就要对自己的父母好
-your priority is to treat your parents well
-
-就是兄弟姐妹们一定记住
-Brothers and sisters, you must remember
-
-我最开心的就会有很多人的母亲过上好日子
-the cheeriest thing to me is seeing that lots of people’s mothers are living a good life
-
-我们每个人看到在社交媒体上
-Every one of us has seen on social media
-
-出现中国的老太太
-these Chinese seniors appearing
-
-老人家那种苍凉的感觉
-The feeling of seeing those old seniors’ desolate
-
-心如刀绞
-breaks my heart
-
-我父亲现在他不需要钱了
-My father doesn’t need money anymore
-
-但是我觉得不要让自己的父亲因为钱受尽凌辱
-But I feel that we shouldn’t let our own father suffer humiliation because of money as well
-
-很多人父亲在外面真的是为了一家人过日子啊
-A lot of people’s fathers are really out there working for the sake of their whole family
-
-太苦了
-It’s too hard
-
-这个我们当孩子
-Therefore, we as their children
-
-如果有了钱了
-if we have money
-
-想到是父母
-what we should think first of is our parents
-
-另外一个就是我觉得中国人真的是活得太可怜了
-The other one is that I feel so sad for what our Chinese people have lived by
-
-我希望这个喜币的诞生
-I hope that the born of this H-Coin
-
-能让中国人
-will enable the Chinese people
-
-真真正正能知道钱这个东西
-really recognize money
-
-它到底是姓啥 它到底属于谁
-What is it anyway? Who does it exactly belong to?
-
-它的权利在哪里
-and where are its rights?
-
-* * *
-
-Date: 11/04/2021
-原视频标题: 战友们有钱了就一定要让父母过上好日子
-We Must Make a Good Living For Our Parents When we Have The Money
-原视频日期：2021/11/01
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1456193726984818691?s=24](https://twitter.com/se1y7cblljselva/status/1456193726984818691?s=24)
-任务编号：KC231(2773)
-视频时间段 : 0:00-1:52
-英听校： 洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻链接：[https://twitter.com/VOAChinese/status/1457641302858743810](https://twitter.com/VOAChinese/status/1457641302858743810)
 
  
 

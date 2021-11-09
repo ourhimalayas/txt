@@ -2,24 +2,35 @@
 ---
 
 
-## 日本重症化骤减，疑似为“第三针”造势
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1650669/)
+## 有声|被共产主义腐蚀的灵魂——回忆我的同学大军
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1650739/)
 
-#### 撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-14.png)[图片来源](https://img.zjol.com.cn/mlf/dzw/pyw/zjsj/202104/W020210417393103424547.jpg)
-时事通信报道，11月9日，日本厚生劳动省称中共病毒重症化患者共计99人，这是自2020年8月4日（88人）以来，首次降至100人以下，报道称这是疫苗的效果。
+配音：香草山香港部 – 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
 
-2021年夏季中共病毒“第5波”流行期间，重症化患者在9月4日达到顶峰2223人，医疗体系面临者强大的压力，此后数量持续减少。专家称，第二针疫苗接种后，即便有突破性感染的情况出现，也只是轻度症状。
 
-日本政府依旧在为第三针疫苗做准备，感染人数骤减使社会对经济的恢复充满信心，舆论的引导加上回归正常生活的渴望，接受第三针疫苗的人会有多少呢？
+一个外地同学来我们所在的城市出差，几个老同学就小聚一下，让我再次见到了老同学大军。他是我大学同寝室的同学，我最近一次见他是多年前，而在这之前我们虽然都在一个城市工作和生活，多年也都不曾见面，也不愿意再见。当年我们学校期间感情还是很不错的，虽然时有分歧但终归是同学情深。有时候会感叹，是什么让我们让大家渐行渐远呢？
 
-信息来源：
 
-[全国の重症者１００人下回る　昨年８月以来―新型コロナ](https://www.jiji.com/jc/article?k=2021110900931&amp;g=soc)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**文字版原文：[【小人物】被共产主义腐蚀的灵魂——回忆我的同学大军](https://gnews.org/zh-hans/1647431/)**
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

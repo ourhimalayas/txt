@@ -2,69 +2,23 @@
 ---
 
 
-## 中共阻挡喜币上市，在多国碰壁
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1650565/)
+## 岸田文雄，积极推动“第三针”接种
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1650686/)
 
-**郭文贵
-Miles Guo**
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-4.png)[图片来源](https://mainichi.jp/articles/20211108/k00/00m/040/105000c)
+日本新闻网11月9日报道，政府决定12月开始追加接种中共病毒疫苗第三针，和之前一样，可以在工作场所进行。
 
-你付出，你决策，你承担责任，你就应该得到
-You disburse, you make decisions, you take responsibility, you deserve
+厚生劳动省称，第三针接种从医疗从业人员开始，接种费用将由政府承担。为积极应对“第6波”的流行，无症状者可以接受免费的PCR检查和抗体检查，岸田文雄首相预计最早于11月10日宣布这些措施。
 
-好，大家想过没有？共产党这几天在内部说什么
-well, have you thought about it? What did the Communist Party say internally these days
+信息来源：
 
-他们向习报告，听说，真的所有当初的预测真地发生了
-They reported to Xi and said that all the original predictions really happened
+[政府 職場接種でもワクチン３回目容認へ 無料ＰＣＲ検査も実施](https://news.tbs.co.jp/newseye/tbs_newseye4400813.htm?1636455589361)
 
-第一，没在巴哈马、美国和英国、加拿大等地把这个喜币、喜联储干掉
-First, it did not kill the Hcoin and the Himalaya Reserve in the Bahamas, the United States, the United Kingdom, Canada, etc.
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
 
-我们受到了这些国家的巨大的阻力
-We got great resistance from these countries
-
-说我们提供的文件，他们都不信，都不支持
-They said that they don’t believe or support the documents we(CCP) provided
-
-就到处发函，说这是涉嫌洗钱、犯罪、诈骗，
-CCP sent letters everywhere saying that it was suspected of money laundering, crime, and fraud
-
-这是为GTV洗钱，这话都敢说，
-This is money laundering for GTV, they dare to say this
-
-这是人民银行反洗钱的人写出来的
-This is written by the anti-money laundering department of the People’s Bank of China
-
-老班长, 你说跟咱GTV啥关系，这王八蛋
-Old Squad Leader, what do you think it has to do with our GTV, irrational!
-
-说这是跟GTV是一伙的，为GTV洗钱
-CCP said that this is the same group with GTV, laundering money for GTV
-
-GTV才多大市值，这现在多少钱
-GTV is not so big in market value, how much is Himalaya Reserve now
-
-人家各国政府说你胡扯，就是说官方的栽赃陷害没成功
-The governments of each countries said that you are nonsense, which means that the CCP’s official framing was unsuccessful
-
-* * *
-
-Date:11/08/2021
-原视频标题: 中共阻挡喜币上市，在多国碰壁
-The Chinese Communist Party blocks the listing of Hcoin and hits the stone walls in many countries
-原视频日期：2021/11/05
-原视频链接 [https://twitter.com/se1y7cblljselva/status/1457268511244386318?s=24](https://twitter.com/se1y7cblljselva/status/1457268511244386318?s=24)
-任务编号：KC234(2802)
-视频时间段 : 0:00-1:06
-英听校： 洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

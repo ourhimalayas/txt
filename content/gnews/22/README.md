@@ -2,38 +2,70 @@
 ---
 
 
-## 墙内要闻汇编 11月9日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1650508/)
+## 中共阻挡喜币上市，在多国碰壁
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1650565/)
 
-#### 素材：东京樱花团｜GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-14.png)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1109/20211109090306665.jpg)
-1、[**北京保安空前严密 异议人士禁止接受外媒采访**](https://www.aboluowang.com/2021/1109/1669512.html)
+**郭文贵
+Miles Guo**
 
-中共第十九届六中全会本周一至周四在北京京西宾馆举行。周一清晨，北京京西宾馆外以及周边地区的安保措施明显加强。宾馆外执勤的军人、警察每隔五十米一个流动哨，另有人行道上，许多疑似便衣人员，各个路口停著四、五辆公安和有“特警”字样的车辆、和防暴车等。同时，现场实施临时交通管制，所有车辆必须绕行。据北京多位异议人士对本台证实，异议人士查建国等多人士被上岗或警告不得接受媒体采访。另一位异议人士季风当天对本台说，目前不接受采访。
+你付出，你决策，你承担责任，你就应该得到
+You disburse, you make decisions, you take responsibility, you deserve
 
-2、[**北京涉疫封控区域 积雪不许运出**](https://www.aboluowang.com/2021/1109/1669592.html)
+好，大家想过没有？共产党这几天在内部说什么
+well, have you thought about it? What did the Communist Party say internally these days
 
-随著寒潮来袭，北京日前迎来今年入冬首场初雪。在中共病毒疫情下，扫雪铲冰也有特殊要求，据北京市城管委环卫处副处长杨金亮表示，涉疫封控区域的积雪，将就地堆放、消纳，不允许运输出封控区范围。
+他们向习报告，听说，真的所有当初的预测真地发生了
+They reported to Xi and said that all the original predictions really happened
 
-3、[**陕西下令民办学校以捐赠方式转让给政府**](https://www.aboluowang.com/2021/1109/1669519.html)
+第一，没在巴哈马、美国和英国、加拿大等地把这个喜币、喜联储干掉
+First, it did not kill the Hcoin and the Himalaya Reserve in the Bahamas, the United States, the United Kingdom, Canada, etc.
 
-今年8月中国教育部等八部门引发通知，规定公办学校不得参加民办学校教育。最近，陕西省教育厅更要求民办学校将学校捐给政府。上海某大学退休教师说，陕西省政府对民办学校的要求让人联想到中共建政初期所谓公私合营年代：“是进一步控制社会、控制学校，专门给普通民众的子女洗脑，形成以党文化为中心的氛围。我觉得这样做是为了进一步控制意识形态。”
+我们受到了这些国家的巨大的阻力
+We got great resistance from these countries
 
-4、[**河南教师打疫苗后离世 亲属维权**](https://www.aboluowang.com/2021/1109/1669474.html)
+说我们提供的文件，他们都不信，都不支持
+They said that they don’t believe or support the documents we(CCP) provided
 
-河南汝州市小学教师焦红强身体一直很健康，被学校强制注射了两针疫苗后，突然于7月12日离世。焦红强去世后，却找不到任何政府部门出面回应家属诉求。10月4日半夜，死者女儿在微博上发文，曝光事件经过。第二天村里书记、公安，警察都去找她，威胁说如果不删帖，引起舆论会来抓人。
+就到处发函，说这是涉嫌洗钱、犯罪、诈骗，
+CCP sent letters everywhere saying that it was suspected of money laundering, crime, and fraud
 
-5、[**湖北21岁女孩晨跑遇害**](https://www.aboluowang.com/2021/1109/1669701.html)
+这是为GTV洗钱，这话都敢说，
+This is money laundering for GTV, they dare to say this
 
-2021年11月1日，湖北十堰市一名21岁女孩晨跑时遇害，嫌疑犯张某被抓获。年仅21岁的朱甜甜，身高1.7米，长相甜美，晨跑当天她穿着绿色上衣，灰色长裤，手中拿着手机。她父亲朱先生说，1日早上7点40分他还与女儿通了电话，女儿说在南山爬山。但到了8点20分，女儿的手机就关机了。直到11月5日，朱甜甜的遗体在南山公园山上一处高台的草丛旁边被找到。她被发现时头发凌乱，衣衫不整，身体上还有抓痕。这些细节让人揪心，不少网友怀疑朱甜甜死前受到性侵害。
+这是人民银行反洗钱的人写出来的
+This is written by the anti-money laundering department of the People’s Bank of China
 
-6、[**大连一大学食堂涉疫 有厨师和面点师确诊**](https://www.aboluowang.com/2021/1109/1669542.html)
+老班长, 你说跟咱GTV啥关系，这王八蛋
+Old Squad Leader, what do you think it has to do with our GTV, irrational!
 
-11月8日，大连市进行全民核酸检测，民众冒雪排队做检测。辽宁的中共病毒本土疫情延烧，其中大连市确诊病例续增，某大学的多名食堂员工包括厨师和面点师均确诊，但官方未公布大学名称，引发网民质疑。大连官方通报11月7日大连市新增20例本土确诊病例（其中2例为无症状感染者转归）和12例无症状感染者。有网民表示，辽师海华学院已经发现学校食堂工作人员感染了，到现在还没有任何解决方案。“一万五千名学生吃的东西马上就没有了，让我们这些学生家长如何是好？！”
+说这是跟GTV是一伙的，为GTV洗钱
+CCP said that this is the same group with GTV, laundering money for GTV
 
-*编辑：东京樱花团 / 東洋武士
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+GTV才多大市值，这现在多少钱
+GTV is not so big in market value, how much is Himalaya Reserve now
+
+人家各国政府说你胡扯，就是说官方的栽赃陷害没成功
+The governments of each countries said that you are nonsense, which means that the CCP’s official framing was unsuccessful
+
+* * *
+
+Date:11/08/2021
+原视频标题: 中共阻挡喜币上市，在多国碰壁
+The Chinese Communist Party blocks the listing of Hcoin and hits the stone walls in many countries
+原视频日期：2021/11/05
+原视频链接 [https://twitter.com/se1y7cblljselva/status/1457268511244386318?s=24](https://twitter.com/se1y7cblljselva/status/1457268511244386318?s=24)
+任务编号：KC234(2802)
+视频时间段 : 0:00-1:06
+英听校： 洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

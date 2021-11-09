@@ -2,12 +2,12 @@
 ---
 
 
-## 拜登政府想推行儿童疫苗强制令,儿童福利和安全受威胁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1650706/)
+## 锦恒财富兑付逾期
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1650777/)
 
-11/04/2021 本届政府正试图通过强制手段在儿童中推广疫苗，这已经严重威胁到了儿童们的福利和安全。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+佳兆业方面公布数据，公司合作方锦恒财富目前到期未兑付逾3亿元，理财产品总金额约为127亿元。
+![img](https://media.gettr.com/group21/getter/2021/11/09/12/860640a5-2195-f688-fe85-6c99c789518a/e9676e681832692d08b6c81d08bacba9_500x0.jpg)
+**（文章内容仅代表新西兰-财经G乐部节目观点）**
 
  
 

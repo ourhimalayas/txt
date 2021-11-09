@@ -2,26 +2,22 @@
 ---
 
 
-## 与非洲的伙伴关系符合德国的利益
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1650464/)
+## 日本前教育部长：中国人权问题很严重
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1650530/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+撰稿：东京樱花团/黑猫
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-60.jpg)[图片来源](https://www.thepaper.cn/newsDetail_forward_15186183)
+日本前教育部长林芳正先生11月8日晚在BS富士电视台节目中，就中国新疆维吾尔自治区和其他地区的人权问题时强调说：“无论你怎么看，这都是一个我们应该认真关注的问题。 基本人权在中国也必须得到保障”。 林芳正先生有望被任命为将于11月10日就职的第二届岸田内阁的外交部长。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/an-einem-tisch-vertreter-der-g.jpg)
+林芳正先生是日中议会友好联盟的主席。 在回答关于自民党内有人担心林先生可能与中国走得太近的说法时，他说：“（自民党内）有一个‘面向中国’的派别是可以的，但我们决不能成为中国的奉承者”。 他还说：“在谈判时，充分了解对方总比完全不了解对方要好”。
 
+信息来源：
 
-图片来源： FAZ
+[林元文科相、中国人権問題に懸念「どう考えても深刻」 – 産経ニュース (sankei.com)](https://www.sankei.com/article/20211109-PVLX7JLQMFLRXAQNCPF4GHVZ2Y/?utm_source=coins&amp;utm_medium=push&amp;utm_campaign=COINs)
 
-德国新政府认为， 与非洲的关系是一项重要任务。在非洲发生的一切都会直接影响德国。我们需要平等的建立新的伙伴关系。
-
-自 20 世纪中叶以来，非洲人口增加了五倍，达到 13 亿。非常的每两个人中就有一个年龄在 18 岁以下。 在非洲大陆的 54 个国家中，也有很多国家已经实现了民主选举，公民的参与和新闻的自由正在蓬勃发展，年轻人要求获得工作和参与政治活动的权利，经济发展正在通过创新获得动力。
-
-当前， 气候危机和数字化标志下的转型、欧盟的凝聚力及其在迫在眉睫的大国竞争中的作用都是德国新联邦政府的艰巨任务。一直被低估的与非洲的关系， 也是新一届政府迫切要重视的问题， 总之，和非洲的良好伙伴关系符合德国的利益。
-
-原文链接：[新闻来源：德国法兰克福报网页版](https://www.faz.net/aktuell/politik/ausland/eine-afrika-politik-fuer-das-21-jahrhundert-17622693.html)
-
-责任编辑、发布： Shuizhuyu
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
