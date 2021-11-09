@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/9/2021 8:41 PM (UTC)`
+
+11月9号：水台不是一般的人．是个非常有才华有品位的战友，恭喜水台胸罩诞生。不知何时能出男装款的胸罩？<br/><br/>期待中🤣🤣🤣<br/><br/>【感谢战神点石成金】众所周知，“瞿水台牌胸罩”是郭先生一口创建的品牌。最初由一句玩笑诞生，但在多次的玩笑和娱乐中，这个品牌的价值逐渐显现和提升，被战友承认，并激励水台将它商品化，与战友分享。<br/>所以，水台牌胸罩腾空出世，首先要感恩战神！🙏🙏🙏】<br/><br/><br/><br/>https://twitter.com/q_shuitai/status/1458166579724800017?s=21
+
+---
+
 `@miles 11/9/2021 8:05 PM (UTC)`
 
 11月9号：尊敬的战友们好……任何拥有喜币……和准备拥有喜币的人，一定要看这篇文章拜托了🙏……感谢这位战友中的高人．写的这篇独特的文章。【可以预见，借助带有KYC的区块链技术的喜支付系统，凭借其实时结算-即秒到账的能力，以及比现有系统低得多的支付成本，将获得很强的市场竞争力。】<br/><br/><br/><br/><br/>https://gnews.org/zh-hans/1649255/
@@ -289,13 +295,6 @@ Starts with a Vision...
 
 Dr. Peter Navarro: One of the goals in the book "In Trump Time" is to fire Fauci and get the truth about the vaccine. There is one chapter in the book that if we used hydroxychloroquine sulfate, maybe we could reduce deaths by half. The book also paints the whole picture of Fauci. Plenty of stuff about Fauci has not been reported, whether it is related to the vaccines, therapeutics, math and some of the evil roles he plays!<br/><br/> 《川普时代》书中的一个目的就是炒掉福奇，获得疫苗的真相。书中有章节描述到，如果我们使用了硫酸羟氯喹，也许我们可以减少一半的死亡。书中还描绘了福奇的全貌，很多关于福奇的信息没有被报导，不管是有关疫苗、治疗或统计方面及其所扮演的邪恶角色！
 ![img](https://media.gettr.com/group46/origin/2021/11/05/10/57/5918c8a2-3e9b-6c42-44f8-69eebc5c9ee3/out.jpg)
-
----
-
-`@miles 11/5/2021 10:35 AM (UTC)`
-
-Dr. David Wiseman: FDA打破了一个又一个规则，这绝对太离谱了。英国医学杂志一篇论文报告了多方面的严重不当行为，包括数据造假、揭盲和各种状况，这完全是FDA的失职，是对孩子的不负责任！<br/><br/>The FDA has broken one rule after another, which is absolutely outrageous. A paper in the British Medical Journal reported serious misconduct in many aspects, including data falsification, unblinding, and various situations. This is completely the FDA's negligence and irresponsibility to the child!
-![img](https://media.gettr.com/group13/origin/2021/11/05/10/35/08f3d657-68d8-cb2f-7bd0-400a525b6b18/out.jpg)
 
 ---
 
