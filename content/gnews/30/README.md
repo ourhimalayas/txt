@@ -2,71 +2,32 @@
 ---
 
 
-## 中国人永远不能依靠外国人
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1649433/)
+## 有声|彭佩奥盖特发文呼吁抵制北京冬奥会
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1649491/)
 
-[https://gtv.org/video/id=618909e9adfd99590c3462ad](https://gtv.org/video/id=618909e9adfd99590c3462ad)
+配音：香草山教育部 – 蒙古鸿雁
 
-**郭文贵**
-**Miles Guo**
+11月4日中午，美国前国务卿彭佩奥在盖特发文，呼吁国际社会坚决抵制北京冬奥会的召开。
 
-孙海平全家一直被边控，你们去查去
-Sun Haiping’s family has been controlled by the border and restricted from ex-iting the country, go check it out
+彭佩奥说，离北京冬奥会的开幕还有整整三个月，国际社会应该联合起来进行抵制，时间还来得及。
 
-这个事儿你知道吓人不吓人孙海平这事儿
-you know how scary it is about Sun Haiping’s matter
+彭佩奥指责国际奥委会的不作为。认为国际奥委会因为接受了中国共产党的腐化，对中共犯下的种族灭绝暴行，选择视而不见。
 
-刚才你说到我们的喜币，那天开始的时候
-Just now, you talked about our HCoin, at the beginning of the launch day
+这是彭佩奥在24小时里连发的第二条关于中共的盖文，在前一条里，彭佩奥称，“中共不是美国的竞争对手，而是敌人。”
 
-天下就那么小，下边就猜，谁来了，
-The world is so small, everyone was guessing who’s here
+文字版原文：[彭佩奥盖特发文呼吁抵制北京冬奥会](https://gnews.org/zh-hans/1645605/)
 
-你看看在主会场后边摆着香槟，
-Look at the champagne at the back of the main venue
+音频处理：喜山必胜Maverick
 
-下边一片猜的，谁啊，庞佩奥
-Everybody’s guessing who’s here, Pompeo?
-
-猜彼得·纳瓦罗，猜班农，我很不高兴
-Maybe Peter Navarro or Bannon? I’m so upset
-
-为什么中国人这么大的事一定要请外国人来啊
-Why do the Chinese people have to invite foreigners for such a big event?
-
-他来了能给你带来啥呀，他不会给我们带来一分钱
-What can he bring you when he comes? He won’t bring us a penny
-
-只能我们给他们钱，他们会给我们带来合作
-Only we can give them money, they will bring us cooperation
-
-但是我们不能依靠他们，就是今天也不会依靠他们
-But we can’t rely on them, even today we won’t rely on them
-
-永远不会依靠他们，我们中国人咋就这么贱呢
-Never rely on them, why are we Chinese people so fawning over foreigners?
-
-———————————————————
-
-**原视频链接** [https://twitter.com/se1y7cblljselva/status/1456639637179408394?s=24](https://twitter.com/se1y7cblljselva/status/1456639637179408394?s=24)
-
-Date:11/07/2021
-原视频标题: 中国人永远不能依靠外国人
-Chinese people can never rely on foreigners
-原视频日期：2021/11/01
-任务编号：KC232(2789)
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片: 洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

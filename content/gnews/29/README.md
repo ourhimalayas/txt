@@ -2,23 +2,32 @@
 ---
 
 
-## 日本首相岸田文雄或提前至本月访美会晤拜登
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1649437/)
+## 有声|中共给军方打的不是疫苗而是增强免疫力的抗体
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1649542/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+配音：香草山教育部 – 蒙古鸿雁
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/J-2.jpg)meritalk.com
-日本共同社11月8日报道，日美两国同意日本首相岸田文雄（Fumio Kishida）提前访美，与美国总统拜登（Joe Biden）进行会晤。东京方面计划将访问日期定在11月。
+在疫苗灾难向世界走来之际，郭文贵在11月5日的直播中，揭露出邪恶的中共给军方打的不是疫苗，而是增强免疫力的抗体，但给中国老百姓打的却是实验性的冠状病毒疫苗。
 
-消息人士称，日本外务省副相森武夫(Takeo Mori)在东京与美国负责东亚和太平洋事务的助理国务卿丹尼尔·克里登布林克（Daniel Kritenbrink）举行会谈时达成了上述协议。同时两国官员在另一会议上商讨了实现印度洋-太平洋地区自由开放的途径，以及反击中共试图用强制措施改变地区现状的做法。
+郭先生说，作为中共核心工具的军方（包括陈薇）打的是。去年，陈薇来到武汉，通过媒体宣布已经研发出了新冠疫苗，并当众注射。
 
-克里登布林克与日本外务省亚洲和大洋洲事务局局长船中竹弘（Takehiro Funakoshi）在会晤中双方确认，在解决朝鲜上世纪七八十年代绑架日本公民的问题，以及朝鲜开发核武器和弹道导弹等问题上进行合作。这是他9月底就任美国负责东亚事务的最高外交官以来首次访问日本。他计划在日本停留到周三后进而访问首尔。
+郭先生指出，陈薇这招很厉害：让外国人相信她打了疫苗；让中国人相信必须打疫苗。实际上却是，给中共认为该死的老百姓打的，全是要人命的实验性新冠病毒疫苗。
 
-参考链接：
+郭先生强调，中共一箭多雕，而最重要的是中共利用中国老百姓做人体实验，可以研究新冠病毒疫苗。中共是彻底的反人类、大屠杀中国及世界人民的邪恶恐怖主义政党。
 
-[https://english.kyodonews.net/news/2021/11/fc88606cb6fc-japan-us-officials-agree-on-kishidas-early-visit-to-us.html](https://english.kyodonews.net/news/2021/11/fc88606cb6fc-japan-us-officials-agree-on-kishidas-early-visit-to-us.html)
+文字版原文：[中共给军方打的不是疫苗而是增强免疫力的抗体](https://gnews.org/zh-hans/1644618/)
 
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

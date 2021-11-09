@@ -2,12 +2,10 @@
 ---
 
 
-## 【HCoin To the Moon 庆典】纳瓦罗《川普时代》证明郭文贵提供了中共病毒关键情报（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1649545/)
+## 11/7/2021 文贵直播：班农先生和我们三次改变了世界
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1649616/)
 
-11/1/2021【HCoin To the Moon 庆典】纳瓦罗新书《川普时代》证明郭文贵先生提供了中共病毒的关键情报，该书被美国国家安全委员会批准；美国国会未来会要求解密关于中共生物武器的机密文件。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+秘密翻译组-北美组
 
  
 

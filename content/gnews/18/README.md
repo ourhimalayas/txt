@@ -2,56 +2,28 @@
 ---
 
 
-## 恒大子公司债券利息逾期未付
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1649581/)
+## 疑为中共挖墙脚 台湾喊停清华海峡研究院在台运作
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1649640/)
 
-作者：纽约香草山农场 – 四季
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-132.png)*台湾大学校园 (美国之音张佩芝摄，2017年11月23日)*
+据美国之音11月8日报道，中共国“清华海峡研究院”2016年在台湾清华大学设立的“清华海峡研究院新竹办公室”，目前被台湾方面停止运作，因为怀疑该学院帮助中共国在台湾招募科技人才。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+台湾新竹是全球高科技代工产业的重镇，半导体技术尤其发达，人才集中。由于中共大陆的科技企业被美国制裁，半导体技术和人才奇缺，因此台湾的人才、科技资源和机密被中共情报机构挖走的现象屡见不鲜。中共不支持发展本土科技，偷技术、挖墙脚，偷完西方偷台湾。一旦对方把防盗系统调整到最高级别，让中共无处可偷，真正的困境就显出来了。
 
+新闻参考链接：[http://dlvr.it/SC5hT4](https://dlvr.it/SC5hT4)
 
+编辑：胖丁
 
+* * *
 
-
-截至11月8日上午，恒大集团子公司景程有限公司（Scenery Journey Ltd）部分美元债券的持有人，尚未收到上周六到期的债券利息。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1378.jpg)图片来源：路透社
-
-据了解，景程公司2022年11月到期、票面利率为13%，以及2023年11月到期、票息为13.75%的债券本该在上周六进行半年一次的付息，总金额为8249万美元，但是债券持有人并未如期收到票息。
-
-根据规定，景程公司在星期六之前未兑付债券利息，即启动为期30天的支付宽限期。如果在30天宽限期过后仍未兑付票息，即被视为违约。除此之外，据悉，恒大集团在11月至12月期间，自身也将有3.38亿美元的海外美元债券的票息到期需要支付。
-
-恒大近几个月来，由于销售不畅，大量债务到期日接踵而至，公司现金流严重缺乏。市场担忧，在可见的未来，中共房地产的崩盘将对世界金融市场和经济造成巨大冲击。
-
-**参考阅读：**
-
-[中国恒大债务危机难解，又一子公司债券利息逾期未付 (voachinese.com)](https://www.voachinese.com/a/some-investors-have-not-received-evergrande-unit-s-bond-interest-due-nov-6-20211108/6304533.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

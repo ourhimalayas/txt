@@ -2,49 +2,36 @@
 ---
 
 
-## BC医生诊断患者患有“气候变化”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1649600/)
+## FDA和辉瑞公司隐瞒了COVID-19疫苗会导致儿童心肌炎的证据
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1649696/)
 
-作者：RebelNews
-翻译：HimaBoy
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Climate-Sick.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/MGN_1280x960_10809C00-XDXMK.jpg)
 
-不列颠哥伦比亚省的一名医生认为该患者的哮喘在今年夏天,该省历史性的热浪中恶化后，诊断出该患者患有“气候变化”。
 
-凯尔·梅里特博士是不列颠哥伦比亚省纳尔逊市库特尼湖医院急诊科的负责人，他解释了他 10 年职业生涯中第一次如何在病人的病历上写下“气候变化”。
 
-“如果我们不寻找根本原因，而只是治疗症状，我们只会越来越落后，”梅里特博士通过《时代殖民者》向冰川媒体解释道。
+图片来源：spokesman-recorder.com
 
-热浪期间创纪录的温度是造成BC 省 6 月份报告额外 500 人死亡的原因，该省在整个夏季也经历了多次野火，导致空气质量恶化。
 
-据医生说，高温加上空气质量差，加剧了许多患者的原有疾病。
+#### 编译：小红帽
 
-“这是我试图……处理我所看到的。我们在急诊室，我们照顾每一个人，从最有特权的到最脆弱的，从摇篮到坟墓，我们看到每一个人。而且很不希望看到人们受到影响，尤其是我们社会中最脆弱的人群。这令人沮丧，”梅里特说。
+辉瑞公司于今年10月被[托比-罗杰斯博士](https://tobyrogers.substack.com/p/ten-red-flags-in-the-fdas-risk-benefit)揭露，辉瑞在儿童身上的临床试验故意缩小规模以掩盖危害。这是制药业的一个众所周知的伎俩。今年夏天，美国食品和药物管理局（FDA）甚至呼吁辉瑞对此进行调查，并要求其扩大试验规模，而辉瑞公司选择忽略他们。
 
-梅里特概述了在酷热天气中，他如何开始联系该省的同事，最终与来自库特尼湖医院的其他 40 名医生和护士组成了一个名为“行星健康医生和护士”的小组 。
+疫苗制造商使用的另一个伎俩是在短时间内监测试验参与者的不良事件。辉瑞公司只对第一组人群进行了两个月的不良事件跟踪，对第二组人群进行了17天的跟踪。但许多不良事件需要更长的时间才能显现出来。
 
-该组织声称在其联盟中是无党派的，最近举办了一场名为BC红色代码的活动。11 月 4 日在省立法机构外，呼吁政府宣布“生态紧急状态”并终止对化石燃料行业的补贴。
+如此短的观察期起到了掩盖对心脏的伤害的作用。辉瑞公司的研究似乎是为了掩盖心肌炎的危险。例如，他们使用私人的Optum健康声明数据库而不是公共的VAERS系统的数据来估计’过量’（读作：由注射引起的）心肌炎”。这确实很奇怪。为什么使用私人数据库而放弃使用政府管理的VAERS数据库？VAERS系统中有些东西显然是辉瑞公司和美国食品和药物管理局不想让人知道的。
 
-來源：[https://www.rebelnews.com/bc\_doctor\_diagnoses\_patient\_with\_climate\_change](https://www.rebelnews.com/bc_doctor_diagnoses_patient_with_climate_change)
+**参考链接：**[The FDA and Pfizer Concealed Evidence That COVID-19 Vaccines Will Cause Myocarditis in Children – Great Mountain Publishing](https://greatmountainpublishing.com/2021/11/07/the-fda-and-pfizer-concealed-evidence-that-covid-19-vaccines-will-cause-myocarditis-in-children/)
 
-（文章仅代表作者个人观点）
+***发布：小红帽***
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-2.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
