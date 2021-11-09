@@ -2,56 +2,64 @@
 ---
 
 
-## 喜币的三个标志事件：权威机构投资、国家级牌照、主权货币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1649401/)
+## 中国人永远不能依靠外国人
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1649433/)
 
-[https://gtv.org/video/id=61890935adfd99590c346270](https://gtv.org/video/id=61890935adfd99590c346270)
+[https://gtv.org/video/id=618909e9adfd99590c3462ad](https://gtv.org/video/id=618909e9adfd99590c3462ad)
 
 **郭文贵**
 **Miles Guo**
 
-七哥说的话，你们要盯住3个标志事件
-What QiGe(Miles) said, you have to keep eye on 3 sign events
+孙海平全家一直被边控，你们去查去
+Sun Haiping’s family has been controlled by the border and restricted from ex-iting the country, go check it out
 
-任何一个真正的有权威的投资机构投喜联储、喜支付的时候就是叫Exchange
-Every single truly authoritative investment institution invests in the Himalaya Exchange and HPay, it is called Exchange
+这个事儿你知道吓人不吓人孙海平这事儿
+you know how scary it is about Sun Haiping’s matter
 
-那是喜币的一个标志事件，
-That is a landmark event for Hcoin
+刚才你说到我们的喜币，那天开始的时候
+Just now, you talked about our HCoin, at the beginning of the launch day
 
-第二件事，当有一个国家或一个地方批给你虚拟货币银行牌照
-The second thing is when a country or a region grants it a virtual currency bank license
+天下就那么小，下边就猜，谁来了，
+The world is so small, everyone was guessing who’s here
 
-或国家批给你整个所谓国家级的虚拟交易市场牌照的时候
-or when the country grants you the entire so-called national virtual trading li-cense
+你看看在主会场后边摆着香槟，
+Look at the champagne at the back of the main venue
 
-这是第二，第三个大事件
-This is the second. The third major event
+下边一片猜的，谁啊，庞佩奥
+Everybody’s guessing who’s here, Pompeo?
 
-到最后的时候，当某国家宣布我承认你是我国家的法币、主权货币的时候
-At the end, when a country that recognizes Hcoin as its country’s legal currency and sovereign currency
+猜彼得·纳瓦罗，猜班农，我很不高兴
+Maybe Peter Navarro or Bannon? I’m so upset
 
-喜币的价格才真正的出来，
-The price of Hcoin will really come out
+为什么中国人这么大的事一定要请外国人来啊
+Why do the Chinese people have to invite foreigners for such a big event?
 
-没这个之前你都当成虚幻,你都当成不存在
-Before that, you just have to think of Hcoin as an aircoin
+他来了能给你带来啥呀，他不会给我们带来一分钱
+What can he bring you when he comes? He won’t bring us a penny
 
-**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1456639104880295940?s=24](https://twitter.com/se1y7cblljselva/status/1456639104880295940?s=24)
+只能我们给他们钱，他们会给我们带来合作
+Only we can give them money, they will bring us cooperation
+
+但是我们不能依靠他们，就是今天也不会依靠他们
+But we can’t rely on them, even today we won’t rely on them
+
+永远不会依靠他们，我们中国人咋就这么贱呢
+Never rely on them, why are we Chinese people so fawning over foreigners?
 
 ———————————————————
 
-Date:11/06/2021
-原视频标题: 喜币的三个标志事件：权威机构投资、国家级牌照、主权货币
-HCoin’s three landmark events: investment by authoritative institutions, national-level licenses, and sovereign currency
+**原视频链接** [https://twitter.com/se1y7cblljselva/status/1456639637179408394?s=24](https://twitter.com/se1y7cblljselva/status/1456639637179408394?s=24)
+
+Date:11/07/2021
+原视频标题: 中国人永远不能依靠外国人
+Chinese people can never rely on foreigners
 原视频日期：2021/11/01
-任务编号：KC230(2787)
-视频时间段 : 0:00-1:03
+任务编号：KC232(2789)
 
 英听校: 洛杉矶盘古农场 – Layka
 翻译: 洛杉矶盘古农场 – Layka
 翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
 审片: 洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
