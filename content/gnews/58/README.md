@@ -2,14 +2,44 @@
 ---
 
 
-## 【 #佳兆业 旗下理财产品未能如期兑付】
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1646544/)
+## 纽约当选市长亚当斯称将用比特币领取前三份工资
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1647967/)
 
-[#深圳佳兆业](https://gettr.com/hashtag/%23%E6%B7%B1%E5%9C%B3%E4%BD%B3%E5%85%86%E4%B8%9A) 理财产品的本息合计127.88亿元人民币：由 [#锦恒财富](https://gettr.com/hashtag/%23%E9%94%A6%E6%81%92%E8%B4%A2%E5%AF%8C) 发行、#佳兆业集团 担保的产品出现兑付逾期，佳兆业周四表示，已第一时间与锦恒财富沟通，共同商讨兑付方案。在香港上市的佳兆业股份，市值约为10亿美元，上周被评级机构降级的佳兆业有大约32亿美元的离岸优先票据在未来12个月内到期，下一批4亿美元的到期日在12月7日。该公司在11月11日和11月12日有总额超过5,900万美元的息票支付。
-![img](https://media.gettr.com/group20/getter/2021/11/05/11/25/d305e033-4aba-010c-72cf-f28f9d73f49b/c82735e7d973903af2b09e58b4ef4d68_500x0.jpg)
-参考链接：[https://cn.reuters.com/article/wrapup-…](https://cn.reuters.com/article/wrapup-china-kaisa-liquidity-1104-idCNKBS2HP1BZ?il=0)
+**编译：lulumi**
 
-**（文章内容仅代表新西兰-财经G乐部节目观点）**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip157.png)2021年11月2日，纽约市当选市长埃里克·亚当斯（Eric Adams）在纽约市布鲁克林区布鲁克林大桥的纽约万豪酒店举行的选举之夜派对上发言。(Michael M. Santiago/Getty Images)
+
+亚当斯在推特上写道：“在纽约我们总是干大事，所以当我成为市长时，我将用比特币来支付我的前三份薪水”。“纽约市将成为加密货币行业和其他快速增长的创新行业的中心！大家拭目以待！”
+
+这位当选市长的推文是对迈阿密市长弗朗西斯·苏亚雷斯（Francis Suarez）的回应，他在自己的推特消息中写道，他将用世界上最大的加密货币——比特币来领取他的第一份薪水。周二赢得连任的苏亚雷斯一直是加密货币的拥护者，他的目标是将迈阿密建设成一个加密货币创新的中心。
+
+民主党人亚当斯在周二的选举中轻松击败了共和党人、守护天使平民安全巡逻队的创始人柯蒂斯·斯利瓦（Curtis Sliwa），将在1月成为美国人口最多的城市的第二个黑人市长。
+
+外汇经纪商奥丹姆（Oandam）的高级市场分析师爱德华·莫亚（Edward Moya）在谈到亚当斯的宣布时说：“这向你表明，比特币正在吸引广泛的兴趣，你现在可以把纽约市长包括在内。”
+
+“但最终，埃里克·亚当斯对于动摇那些持观望态度的人加入加密世界并不是一个非常有影响力的人，”他补充说。
+
+这并不是亚当斯第一次提出两个城市之间的加密货币竞争的前景。在6月赢得民主党的市长提名后，他发表了胜利演讲，其中他发誓该城市将成为“比特币的中心”和“所有技术的中心”。
+
+他说：“迈阿密，你已经有了你的竞选机会”。
+
+与非营利组织CityCoins合作，这个佛罗里达州的城市在8月发布了一个名为MiamiCoin的加密货币。CityCoins将消费者在电脑上创建或“挖出”的任何MiamiCoin的30%发送给该市。据《华盛顿邮报》报道，截至9月，该项目为迈阿密创造了710万美元。
+
+将纽约转变为加密货币中心的努力可能会引起纽约总检察长莱蒂西亚·詹姆斯（Letitia James）的审查，她最近对未注册的加密货币公司进行了打击。上周，詹姆斯宣布参选纽约州长。
+
+比特币的波动性很大，周四中午时分，比特币的交易价格在61,260美元左右，当天下跌了3%。
+
+**新闻来源**：[**theepochtimes.com**][New York Mayor-Elect Adams Says He Will Take His First 3 Paychecks in Bitcoin](https://www.theepochtimes.com/new-york-mayor-elect-adams-says-he-will-take-his-first-3-paychecks-in-bitcoin_4088243.html?utm_source=ai_recommender&amp;utm_medium=article_top)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
+
+
 
  
 
