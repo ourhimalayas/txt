@@ -2,27 +2,24 @@
 ---
 
 
-## 秘翻在线：威胁取消医疗待遇 新加坡迫使国民接种中共病毒疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1650216/)
+## 应对中共攻台，日本将在与那国岛部署电子战部队
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1650348/)
 
-#### 撰稿：彩虹
+#### 撰稿：东京樱花团/天路天道
+![](https://assets.gnews.org/wp-content/uploads/2021/11/45-43.png)[图片来源](https://www.voachinese.com/a/japan-to-deploy-electronic-warfare-unit-on-island-to-monitor-taiwan-strait-20211109/6304703.html)
+美国之音11月9日消息，日本防卫省决定向冲绳县与那国岛现有的陆上自卫队驻屯地增加部署编制约70人的“电子战部队”，以便在台湾海峡与尖阁诸岛（中国称钓鱼岛）出现紧迫情势时，加强情报收集能力。防卫省计划于2023年底完成部署。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-6.jpg)图片来源：CIO
-11月8日，《国会山报》（The Hill）报道新加坡周一宣布，从下个月开始，如果感染过中共病毒（COVID-19）的公民“自愿不接种疫苗”，那么政府将停止承担其医疗费用。
+台湾自由时报引述日本冲绳时报的报道说，防卫省在2022年度的预算概算要求中编列了约31亿日元（约合2739万美元），在与那国岛建造电子战部队的办公室和宿舍等设施。报道说，日本增加部署的电子战部队人数约为50至60人，加上陆上自卫队设施科员10人，全部编制大约为70人的规模。
 
-该国卫生部的一份声明说，在整个中共病毒大流行期间，政府一直为新加坡人、永久居民和长期通行证持有人支付医疗费用，但那些尚未接种中共病毒疫苗的人一直对该国试图控制中共病毒的努力产生负面影响。
+冲绳时报报道指出，日本电子战部队配备车载型网络电子战系统，可以进行电波收集、分析和敌方通信干扰等功能。报道说，与日本相邻的中国和俄罗斯都在提高电子战能力，防卫省希望通过加强电磁波新领域的应对能力，提高日本西南地区的防卫态势。
 
-对此，公告在没有实际真实数据的情况下说：“目前，未接种疫苗的人在需要集中住院治疗的人中占了相当大的比例，并过分加剧了医疗资源的压力。”
+信息来源：
 
-报道指，该项新政策将于12月8日生效，影响的范围是那些自愿不接种疫苗并且被送进医院或中共病毒治疗机构的人。对于那些没有达到条件接种中共病毒疫苗的人（包括12岁以下的儿童），如果感染了中共病毒，那他们的医疗费用仍将继续得到保障。
+[因应台海不测事件，日本拟在与那国岛部署电子战部队](https://www.voachinese.com/a/japan-to-deploy-electronic-warfare-unit-on-island-to-monitor-taiwan-strait-20211109/6304703.html)
 
-文章报道，到目前为止，新加坡全国85%的人口已经完全接种了中共病毒疫苗，18%的人已经接种了强化针。
-
-**新闻来源**
-
-[Singapore to no longer offer free COVID-19 treatment to the unvaccinated](https://thehill.com/homenews/news/580661-singapore-to-no-longer-offer-free-covid-19-treatment-to-the-unvaccinated)
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

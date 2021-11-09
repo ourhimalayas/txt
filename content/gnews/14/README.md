@@ -2,26 +2,26 @@
 ---
 
 
-## COVID-19 最新情报｜州长去哪儿了？“失踪”12日 传美国加州州长因接种疫苗致面瘫
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1650116/)
+## 秘翻在线：威胁取消医疗待遇 新加坡迫使国民接种中共病毒疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1650216/)
 
-**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜9/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+#### 撰稿：彩虹
 
-【美国】加州州长加文·纽瑟姆 (Gavin Newsom) 自从 10 月 27 日接种了莫德纳 COVID-19 疫苗后，就从公众视线中消失了，至今已有12日。期间，他相继取消了苏格兰的旅行，格拉斯哥的 COP26 联合国气候峰会，连视讯会议都通通取消。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-6.jpg)图片来源：CIO
+11月8日，《国会山报》（The Hill）报道新加坡周一宣布，从下个月开始，如果感染过中共病毒（COVID-19）的公民“自愿不接种疫苗”，那么政府将停止承担其医疗费用。
 
-今日，美媒《The defender》率先爆料指，一名接近州长的消息人士透露，州长纽瑟姆受到了疫苗不良反应，并患上吉兰·巴雷综合征（GBS），该综合征最常见的症状就是面瘫。
+该国卫生部的一份声明说，在整个中共病毒大流行期间，政府一直为新加坡人、永久居民和长期通行证持有人支付医疗费用，但那些尚未接种中共病毒疫苗的人一直对该国试图控制中共病毒的努力产生负面影响。
 
-该消息人士指出，事实上，纽瑟姆接种疫苗半小时后，当他召开新闻发布会时，脸就突然很红，然后他很快走下新闻台匆忙结束发布会。从那以后，他就再也没有出现在公众面前。
+对此，公告在没有实际真实数据的情况下说：“目前，未接种疫苗的人在需要集中住院治疗的人中占了相当大的比例，并过分加剧了医疗资源的压力。”
 
-[根据资料](https://www.cdc.gov/campylobacter/guillain-barre.html)，GBS 是是一种罕见的自身免疫性疾病，患者自身的免疫系统会损伤神经，导致肌肉无力，有时甚至瘫痪。GBS 可引起持续数周至数年的症状。大多数人会完全康复，但有些人会出现永久性神经损伤，甚至死亡，最常见症状之一就是面瘫，即面部的一侧开始下垂。
+报道指，该项新政策将于12月8日生效，影响的范围是那些自愿不接种疫苗并且被送进医院或中共病毒治疗机构的人。对于那些没有达到条件接种中共病毒疫苗的人（包括12岁以下的儿童），如果感染了中共病毒，那他们的医疗费用仍将继续得到保障。
 
-早几日，加州当地的媒体报导指，州长纽瑟姆缺席各种活动的原因是“一直忙于处理家庭事务”，不过截止上周末，州长办公室一直未公布州长本周的工作安排。
+文章报道，到目前为止，新加坡全国85%的人口已经完全接种了中共病毒疫苗，18%的人已经接种了强化针。
 
-截止截稿前，又多一位人士[公开证实](https://stevekirsch.substack.com/p/gavin-newsom-is-out-of-sight-likely)，加州州长纽瑟姆因接种疫苗患上吉兰·巴雷综合征。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-S222pace-Channel-Banner.jpg)
-来源｜[The defender](https://childrenshealthdefense.org/defender/gov-gavin-newsom-moderna-booster-vaccine/)
+**新闻来源**
+
+[Singapore to no longer offer free COVID-19 treatment to the unvaccinated](https://thehill.com/homenews/news/580661-singapore-to-no-longer-offer-free-covid-19-treatment-to-the-unvaccinated)
 
  
 

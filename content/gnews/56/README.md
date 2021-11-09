@@ -2,45 +2,26 @@
 ---
 
 
-## 纽约当选市长亚当斯称将用比特币领取前三份工资
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1647967/)
+## 中共欲饮鸩续命，再次推出城市更新
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1648014/)
 
-**编译：lulumi**
+#### 撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/11/wre.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fnimg.ws.126.net%2F%3Furl%3Dhttp%253A%252F%252Fdingyue.ws.126.net%252F2019%252F08%252F08%252F7455d45df2ab4716b51d9b81265f9760.jpeg%26thumbnail%3D650x2147483647%26quality%3D80%26type%3Djpg&amp;imgrefurl=https%3A%2F%2Fwww.163.com%2Fdy%2Farticle%2FEM24HRB605359TSB.html&amp;tbnid=lFOLpchoaxK9jM&amp;vet=12ahUKEwib7_iu54f0AhUBUvUHHXqcDDcQMygGegUIARClAQ..i&amp;docid=2nbCTE-LxVaT5M&amp;w=650&amp;h=399&amp;q=%E5%9F%8E%E5%B8%82%E6%9B%B4%E6%96%B0&amp;ved=2ahUKEwib7_iu54f0AhUBUvUHHXqcDDcQMygGegUIARClAQ)
+中共国住房和城乡建设部于11月4日发布《关于开展第一批城市更新试点工作的通知》（下称《通知》），决定在北京、南京、苏州、成都、重庆、沈阳、宁波、厦门、西安、长沙等21个重点城市（区）开展第一批城市更新试点工作。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip157.png)2021年11月2日，纽约市当选市长埃里克·亚当斯（Eric Adams）在纽约市布鲁克林区布鲁克林大桥的纽约万豪酒店举行的选举之夜派对上发言。(Michael M. Santiago/Getty Images)
+通知最核心的内容有三，1、**政策针对区域核心城市**；2、**加大各级财政资金投入，加强各类金融机构信贷支持，完善社会资本参与机制**；3、**创新土地**、**不动产、产业、财税、金融等相关配套政策**。
 
-亚当斯在推特上写道：“在纽约我们总是干大事，所以当我成为市长时，我将用比特币来支付我的前三份薪水”。“纽约市将成为加密货币行业和其他快速增长的创新行业的中心！大家拭目以待！”
+上次城市更新，早在2014年至2018年间就在三四线城市普遍施行，当时名为“货币化棚改”，保守估计总投入约10万亿元。实际是对三四线城市的定向货币宽松，效果是诱使三四线城市涨价去库存，消化了超10亿平方米商品房库存，竟将三四线城市处于崩溃边缘的房地产强行激活，硬性续命至今。
 
-这位当选市长的推文是对迈阿密市长弗朗西斯·苏亚雷斯（Francis Suarez）的回应，他在自己的推特消息中写道，他将用世界上最大的加密货币——比特币来领取他的第一份薪水。周二赢得连任的苏亚雷斯一直是加密货币的拥护者，他的目标是将迈阿密建设成一个加密货币创新的中心。
+故伎重演，中共再次祭出定向货币宽松，目的是保核心城市房地产，为自身续命。当年房地产总市值约200万亿，现近4至5倍市值，托市代价是中共不能承受之重。水漫金山，通货膨胀将直线飙升，民众将以购买力疯狂贬值为代价，成为中共续命的牺牲品。在与世界脱钩、供应链断裂、疫苗灾难、通货膨胀、房地产起爆的情况下，中共祭出定向水龙头就能续命？做梦。
 
-民主党人亚当斯在周二的选举中轻松击败了共和党人、守护天使平民安全巡逻队的创始人柯蒂斯·斯利瓦（Curtis Sliwa），将在1月成为美国人口最多的城市的第二个黑人市长。
+信息来源：
 
-外汇经纪商奥丹姆（Oandam）的高级市场分析师爱德华·莫亚（Edward Moya）在谈到亚当斯的宣布时说：“这向你表明，比特币正在吸引广泛的兴趣，你现在可以把纽约市长包括在内。”
+[住房和城乡建设部办公厅关于开展第一批城市更新试点工作的通知](http://www.gov.cn/zhengce/zhengceku/2021-11/06/content_5649443.htm)
 
-“但最终，埃里克·亚当斯对于动摇那些持观望态度的人加入加密世界并不是一个非常有影响力的人，”他补充说。
-
-这并不是亚当斯第一次提出两个城市之间的加密货币竞争的前景。在6月赢得民主党的市长提名后，他发表了胜利演讲，其中他发誓该城市将成为“比特币的中心”和“所有技术的中心”。
-
-他说：“迈阿密，你已经有了你的竞选机会”。
-
-与非营利组织CityCoins合作，这个佛罗里达州的城市在8月发布了一个名为MiamiCoin的加密货币。CityCoins将消费者在电脑上创建或“挖出”的任何MiamiCoin的30%发送给该市。据《华盛顿邮报》报道，截至9月，该项目为迈阿密创造了710万美元。
-
-将纽约转变为加密货币中心的努力可能会引起纽约总检察长莱蒂西亚·詹姆斯（Letitia James）的审查，她最近对未注册的加密货币公司进行了打击。上周，詹姆斯宣布参选纽约州长。
-
-比特币的波动性很大，周四中午时分，比特币的交易价格在61,260美元左右，当天下跌了3%。
-
-**新闻来源**：[**theepochtimes.com**][New York Mayor-Elect Adams Says He Will Take His First 3 Paychecks in Bitcoin](https://www.theepochtimes.com/new-york-mayor-elect-adams-says-he-will-take-his-first-3-paychecks-in-bitcoin_4088243.html?utm_source=ai_recommender&amp;utm_medium=article_top)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
