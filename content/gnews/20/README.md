@@ -2,20 +2,62 @@
 ---
 
 
-## 中共国十九届六中全会在京召开
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1649247/)
+## 喜币的三个标志事件：权威机构投资、国家级牌照、主权货币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1649401/)
 
-撰稿：西枫westca
+[https://gtv.org/video/id=61890935adfd99590c346270](https://gtv.org/video/id=61890935adfd99590c346270)
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-4.jpg)图片来源：新华社
-据新华社11月8日报道，中共十六届六中全会当日在北京召开，习近平做工作报告，并就《中共中央关于党的百年奋斗重大成就和历史经验的决议（讨论稿）》向全会作了说明。
+**郭文贵**
+**Miles Guo**
 
-中共全国代表大会每隔5年会举行一次，期间会有几届全会，即党的中央全会讨论当前问题。而各届的六中全会在历史上都占有重要地位。此次全会的主要议程是中共中央政治局向中央委员会报告工作，为明年秋季的中共二十大做准备。对此中国社会科学院马克思主义研究院党委书记辛向阳说，在迈向第二个百年征程的历史关头审议通过决议，必将为全党凝心聚力推动中国特色社会主义事业发展起到关键作用。”还有官媒称，总结好党的百年奋斗重大成就和历史经验，不仅有中国意义，还有世界意义，将为人类政治文明的发展和政党政治提供中国经验和中国方案。
+七哥说的话，你们要盯住3个标志事件
+What QiGe(Miles) said, you have to keep eye on 3 sign events
 
-在中共国经济迈向崩溃的边缘，外企纷纷撤离中共国、党内各派斗争日趋激化的形势下，此次全会却希望习近平能在党内巩固地位，为历史定调，为世界把脉。对习近平个人崇拜的鼓吹，是否会把他送上历史的审判台，让我们拭目以待。
+任何一个真正的有权威的投资机构投喜联储、喜支付的时候就是叫Exchange
+Every single truly authoritative investment institution invests in the Himalaya Exchange and HPay, it is called Exchange
 
-**新闻来源：**[新华网\_让新闻离你更近 (xinhuanet.com)](http://xinhuanet.com/)
+那是喜币的一个标志事件，
+That is a landmark event for Hcoin
+
+第二件事，当有一个国家或一个地方批给你虚拟货币银行牌照
+The second thing is when a country or a region grants it a virtual currency bank license
+
+或国家批给你整个所谓国家级的虚拟交易市场牌照的时候
+or when the country grants you the entire so-called national virtual trading li-cense
+
+这是第二，第三个大事件
+This is the second. The third major event
+
+到最后的时候，当某国家宣布我承认你是我国家的法币、主权货币的时候
+At the end, when a country that recognizes Hcoin as its country’s legal currency and sovereign currency
+
+喜币的价格才真正的出来，
+The price of Hcoin will really come out
+
+没这个之前你都当成虚幻,你都当成不存在
+Before that, you just have to think of Hcoin as an aircoin
+
+**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1456639104880295940?s=24](https://twitter.com/se1y7cblljselva/status/1456639104880295940?s=24)
+
+———————————————————
+
+Date:11/06/2021
+原视频标题: 喜币的三个标志事件：权威机构投资、国家级牌照、主权货币
+HCoin’s three landmark events: investment by authoritative institutions, national-level licenses, and sovereign currency
+原视频日期：2021/11/01
+任务编号：KC230(2787)
+视频时间段 : 0:00-1:03
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

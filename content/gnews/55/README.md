@@ -2,30 +2,44 @@
 ---
 
 
-## 疫苗灾情｜法国 34 岁世界纪录保持者接种疫苗后患上心脏病 职业生涯面临终结
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1647934/)
+## 纽约当选市长亚当斯称将用比特币领取前三份工资
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1647967/)
 
-**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 8/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2c82b8914a2be6279ef40e51a3db53e5.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+**编译：lulumi**
 
-【法国】今年 34 岁的 Florian Dagoury 是目前静态屏气自由潜水领域的世界纪录保持者，他在接种完第二剂辉瑞 COVID-19 疫苗的第 40 日，被诊断出患有心肌炎和心包炎。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip157.png)2021年11月2日，纽约市当选市长埃里克·亚当斯（Eric Adams）在纽约市布鲁克林区布鲁克林大桥的纽约万豪酒店举行的选举之夜派对上发言。(Michael M. Santiago/Getty Images)
 
-这位旅居在泰国的法国籍优秀运动员过去以保持屏气 10 分 30 秒而闻名世界，最近他因屏气能力显著下降而求诊心脏科权威，才发现自己的职业生涯恐怕会因疫苗副作用而终结。
+亚当斯在推特上写道：“在纽约我们总是干大事，所以当我成为市长时，我将用比特币来支付我的前三份薪水”。“纽约市将成为加密货币行业和其他快速增长的创新行业的中心！大家拭目以待！”
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_0056.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_0055.jpg)
+这位当选市长的推文是对迈阿密市长弗朗西斯·苏亚雷斯（Francis Suarez）的回应，他在自己的推特消息中写道，他将用世界上最大的加密货币——比特币来领取他的第一份薪水。周二赢得连任的苏亚雷斯一直是加密货币的拥护者，他的目标是将迈阿密建设成一个加密货币创新的中心。
 
+民主党人亚当斯在周二的选举中轻松击败了共和党人、守护天使平民安全巡逻队的创始人柯蒂斯·斯利瓦（Curtis Sliwa），将在1月成为美国人口最多的城市的第二个黑人市长。
 
-以下是他分享在个人 instagram 上的贴文：
+外汇经纪商奥丹姆（Oandam）的高级市场分析师爱德华·莫亚（Edward Moya）在谈到亚当斯的宣布时说：“这向你表明，比特币正在吸引广泛的兴趣，你现在可以把纽约市长包括在内。”
 
-*只是想分享下，我接种疫苗后的恼人经历，也许有其他的自由潜水者发生类似的故事，不知道你们有没有好转？ 接种第二剂疫苗后，我注意到我的心率远高于正常水平，并且我的屏气能力显著下降。睡眠期间，我的心率为 65-70bpm，而不是过去正常的 37-45bpm。白天，我现在总是超过 100bpm 而不是过去的 65bpm。即使我放松的坐着，有一次我只不过和朋友吃饭，心律达到了 177bpm !!!!  第二针之后第 10 天，我去看心脏病科专家，他告诉我这是辉瑞疫苗的常见副作用，不用担心，休息一下就会过去。 40 天后，我没有任何进展，我又去看了另一位心脏病科专家，被诊断出患有心肌炎、心包炎和微量二尖瓣反流！ 这是由免疫系统引起的心肌炎症和一些失去正常闭合功能的瓣膜血液回漏。 我的第一想法和建议是选择一种像 Sputnik（俄罗斯疫苗）、Sinovac（科兴）、Sinopharm（国药） 这样的采用原始方式研制的疫苗……而不是那些新的 mRNA 疫苗。*
+“但最终，埃里克·亚当斯对于动摇那些持观望态度的人加入加密世界并不是一个非常有影响力的人，”他补充说。
 
-**小编提醒：中国大陆和香港普遍采用科兴和国药疫苗，不少人因此患上癌症、急性白血病、性勃起障碍、月经紊乱甚至猝死，不过被官方刻意掩盖。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗_0-1.jpg)
+这并不是亚当斯第一次提出两个城市之间的加密货币竞争的前景。在6月赢得民主党的市长提名后，他发表了胜利演讲，其中他发誓该城市将成为“比特币的中心”和“所有技术的中心”。
+
+他说：“迈阿密，你已经有了你的竞选机会”。
+
+与非营利组织CityCoins合作，这个佛罗里达州的城市在8月发布了一个名为MiamiCoin的加密货币。CityCoins将消费者在电脑上创建或“挖出”的任何MiamiCoin的30%发送给该市。据《华盛顿邮报》报道，截至9月，该项目为迈阿密创造了710万美元。
+
+将纽约转变为加密货币中心的努力可能会引起纽约总检察长莱蒂西亚·詹姆斯（Letitia James）的审查，她最近对未注册的加密货币公司进行了打击。上周，詹姆斯宣布参选纽约州长。
+
+比特币的波动性很大，周四中午时分，比特币的交易价格在61,260美元左右，当天下跌了3%。
+
+**新闻来源**：[**theepochtimes.com**][New York Mayor-Elect Adams Says He Will Take His First 3 Paychecks in Bitcoin](https://www.theepochtimes.com/new-york-mayor-elect-adams-says-he-will-take-his-first-3-paychecks-in-bitcoin_4088243.html?utm_source=ai_recommender&amp;utm_medium=article_top)
+
 * * *
 
-来源｜[个案058](https://www.instagram.com/p/CUrJkJ-FuFd/?utm_medium=copy_link)
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
+
+
 
  
 
