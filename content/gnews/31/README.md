@@ -2,33 +2,26 @@
 ---
 
 
-## 新闻自由不断紧缩，香港《立场新闻》总编辞职
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1650978/)
+## 美联储副主席或因金融监管不力提前辞职
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1651005/)
 
-作者：英国喜庄园 – I770775
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月6日，《立场新闻》总编辑钟沛权通过脸书上一个非公开的群组表示，已于当地时间11月1日辞任《立场新闻》总编辑一职。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-35.jpg)
-据了解，《立场新闻》成立与2014年，由蔡东豪、钟沛权以及余家辉创立，一直以来对港共当局持批判态度，是一个偏向泛民主派的网络媒体。在香港“反送中”运动期间，该媒体持续报道抗争者动态，被港共当局视为眼中钉。 为此，早在今年6月底，《立场新闻》曾宣布，将5月之前刊出的文章全部下架，并暂停接受赞助。
+采編：UCool优酷 编译撰稿：文所未闻
 
-有知情人士透露，随着中共港区国安法的出台，香港的新闻自由度正在不断紧缩，像《立场新闻》这类媒体的“生存空间”也变得越来越小。而今，钟主编的辞职实乃意料之中，这也预示着《立场新闻》将走到尽头。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-5.jpeg)图片来源：CNBC
 
-参考链接：
 
-[《立场新闻》总编辞职 香港媒体人：报道难以为继](https://www.dw.com/zh/%E7%AB%8B%E5%9C%BA%E6%96%B0%E9%97%BB%E6%80%BB%E7%BC%96%E8%BE%9E%E8%81%8C-%E9%A6%99%E6%B8%AF%E5%AA%92%E4%BD%93%E4%BA%BA%E6%8A%A5%E9%81%93%E9%9A%BE%E4%BB%A5%E4%B8%BA%E7%BB%A7/a-59752567)
+据美国《CNBC新闻网》11月8日报道，现任【美国联邦储备委员会】副主席，负责该国银行监管事务的理事-夸尔斯当天宣布，他已向总统拜登正式提出将于12月底生效的辞职申请。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+夸尔斯于2017年10月被正式提名为美联储董事会成员，随后被重新任命为理事会副主席，其任期原本至2032年结束。但在最近几周内，连同美联储主席鲍威尔一道，夸尔斯的所作所为备受各界诟病，特别有国会议员领导人指责其放松了对金融危机后各项出台法规的必要监管。
 
-总编/编辑：AN
-校正/发稿：Fei797
+据悉，美央行行长布雷纳德有望成为夸尔斯的潜在继任者并负责该国金融市场的监管工作。同时，随着美联储主席鲍威尔的任期即将届满，这使得总统拜登有机会重整目前美联储内部的人事组织架构。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://www.cnbc.com/2021/11/08/randal-quarles-to-resign-at-year-end-paving-way-for-biden-to-further-remake-the-federal-reserve.html)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,27 @@
 ---
 
 
-## 中共十九届六中全会秘密召开
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651029/)
+## NewsMax公开反对拜登政府的疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651071/)
 
-作者：英国喜庄园 – I770775
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月8日，中共第十九界六中全会在京西宾馆秘密召开。消息称，此次六中全会会期共四天，议题除了总结所谓的百年“成就与经验”外，还要审议通过中共第三份“历史决议”。
+11月8日，NewsMax“唤醒美国”节目主持人罗布·芬纳蒂指出，拜登政府要求企业为员工接种新冠疫苗的规定是联邦权力的危险越权行为。为此，NewsMax坚决反对这项命令，并表示，没有人会被强制接种新冠疫苗，也不会有人遭遇被解雇的后果。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-5.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-6.jpeg)
 
-据了解，中共历史上的前两份历史决议分别于1945年和1981年审议通过，两次先后树立了毛泽东和邓小平在中共党内的绝对权威地位。
+NewsMax称，联邦政府此前从未有过为全国范围的公民强制接种疫苗的先例。显然，此次新冠疫苗强制接种命令是健康管理和职业安全部门利用权威，越过了传统的健康安全规定，是滥用权力的行为。
 
-评论人士指出，第三份历史决议或将为习近平在中共“二十大”前巩固权力提供有力保证。
+Newsmax还提到，上周五，美国第五巡回上诉法院下令暂停执行新冠疫苗强制令，该媒体正在监控此案和其他法律行动的发展。 Newsmax认为，虽然法官声明该强制命令存在严重的法定和宪法问题，但在此案随后的听证会上，需要越来越多的公众觉醒并响应这一判决。
 
-对此，郭先生此前在直播中提及，此次“六中全会”将决定中国的未来是“北朝鲜化”，还是“国际化”。而习本人则力主私人企业国有化，将民众的财产盘剥到底。
+评论人士提出，Newsmax是首家公开反对新冠疫苗强制令的媒体，而媒体明确的反对态度，对彻底取消新冠疫苗强制令将起到不容忽视的作用。
 
-参考链接：[中共六中全会登场 高层密会审议“历史决议”](https://www.epochtimes.com/gb/21/11/8/n13360344.htm/amp)
+参考链接：[Newsmax opposes Biden’s vaccine mandate, will not fire unvaccinated employees | Wake Up America](https://www.youtube.com/watch?v=sXnuQ3n8kRw)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：Irene木木
-编辑：Irene木木 
+总编：Irene木木 
+编辑：Kathy文艺 
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
