@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/9/2021 1:49 PM (UTC)`
+
+11月9号：尊敬的战友们好，你们健身了吗？你们在北京的六中全会发现什么了吗？你们传播C C P的病毒和疫苗的解药的真相了吗？一切都已经开始！
+![img](https://media.gettr.com/group11/getter/2021/11/09/13/49/2b6019e8-3808-cf28-d2ce-eefef8f56975/out.jpg)
+
+---
+
 `@miles 11/9/2021 11:49 AM (UTC)`
 
 The vaccination disaster has gradually become prominent: The patients in the ICU of Ghent University Hospital are all vaccinated recently.<br/><br/>疫苗灾难逐渐凸显：在根特大学医院的重症室中，最近全是接种过疫苗的病人。
@@ -290,13 +297,6 @@ Dr. David Wiseman: FDA打破了一个又一个规则，这绝对太离谱了。�
 
 11/3/2021 Miles Guo: Zhang Wenyuan is Zhang Gaoli’s illegitimate child rather than his nephew, and Zhang Gaoli’s so-called “adopted daughters” are in fact his mistresses;  Zhang Gaoli is the “king” of Guangdong and Shenzhen, and Xi Yuanping (Xi Jinping’s younger brother) would even avoid Zhang Gaoli whenever he ran into Zhang<br/><br/>11/3/2021 文贵直播: 张文远是张高丽私生子而不是侄子，张高丽的所谓“养女“竟是其情妇；张高丽是广东王、深圳王，习远平见张高丽都得躲着<br/>
 ![img](https://media.gettr.com/group49/getter/2021/11/05/01/6e9a35a2-38e1-56a0-3dd8-2749b048f4ba/out.jpg)
-
----
-
-`@miles 11/5/2021 1:04 AM (UTC)`
-
-11/3/2021 Miles Guo: The CCP’s entire real estate sector is doomed, and the day the real estate collapses is the day the CCP will be taken down, with both the Jiang family and Zeng family waiting for Xi Jinping to be finished; the purpose for the CCP to impose property taxes is to sustain its Ponzi scheme. Why will collecting property taxes devastate both the CCP and the Communist China?<br/><br/>11/3/2021 文贵直播: 中共的整个房地产领域都快完了，房地产崩溃之日就是灭共之时，江家、曾家都等着习完蛋；中共征收房产税是为了延续其庞氏骗局，为什么说征收房地产税将导致亡党亡国？<br/>
-![img](https://media.gettr.com/group14/getter/2021/11/05/01/04/d3ff8e3c-adeb-cb1b-2db5-47045d4c2780/out.jpg)
 
 ---
 
