@@ -15,104 +15,104 @@
 
 ---
 
-### [日本首相岸田文雄或提前至本月访美会晤拜登](/content/gnews/1/README.md)
- ` HimalayaRussia`
+### [【HCoin To the Moon 庆典】纳瓦罗《川普时代》证明郭文贵提供了中共病毒关键情报（粤语配音）](/content/gnews/1/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中国人永远不能依靠外国人](/content/gnews/2/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [喜马拉雅联储能耐受每秒16亿次骇客攻击（粤语配音）](/content/gnews/2/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [CDC最新疫苗伤害报告又爆三孩子死亡](/content/gnews/3/README.md)
- ` HimalayaRussia`
-
-### [有声|香草山翻译部周刊|2021年11月07日第21期](/content/gnews/4/README.md)
+### [有声|中共给军方打的不是疫苗而是增强免疫力的抗体](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [喜币的三个标志事件：权威机构投资、国家级牌照、主权货币](/content/gnews/5/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [有声|首位被引渡的中共间谍 法庭裁定罪成](/content/gnews/6/README.md)
+### [有声|彭佩奥盖特发文呼吁抵制北京冬奥会](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [每日快报：加密货币的总市值首次达到 3 万亿美元](/content/gnews/7/README.md)
+### [喜币已获得澳、美支付牌照](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [有声|1200万元存款不翼而飞，储户被判担责八成](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [“这条线已经被越过了” ：抗议者仍然坚定地反对疫苗通行证](/content/gnews/7/README.md)
+ ` MG FARM`
+
+### [日本首相岸田文雄或提前至本月访美会晤拜登](/content/gnews/8/README.md)
+ ` HimalayaRussia`
+
+### [中国人永远不能依靠外国人](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [CDC最新疫苗伤害报告又爆三孩子死亡](/content/gnews/10/README.md)
+ ` HimalayaRussia`
+
+### [有声|香草山翻译部周刊|2021年11月07日第21期](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [喜币的三个标志事件：权威机构投资、国家级牌照、主权货币](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [有声|首位被引渡的中共间谍 法庭裁定罪成](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [每日快报：加密货币的总市值首次达到 3 万亿美元](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [樱花灭共诗——蒋征（新韵）](/content/gnews/8/README.md)
+### [樱花灭共诗——蒋征（新韵）](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|GTV新闻访谈简报|2021年11月7日早](/content/gnews/9/README.md)
+### [有声|GTV新闻访谈简报|2021年11月7日早](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [伊隆·马斯克会给人类带来什么](/content/gnews/10/README.md)
+### [伊隆·马斯克会给人类带来什么](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [聚焦：美国施压欧佩克+增产原油背后的真相](/content/gnews/11/README.md)
+### [聚焦：美国施压欧佩克+增产原油背后的真相](/content/gnews/18/README.md)
  ` 军迷wilson`
 
-### [漫谈喜币与区块链](/content/gnews/12/README.md)
+### [漫谈喜币与区块链](/content/gnews/19/README.md)
  ` 温哥华扬帆农场 Himalaya Sailing Farm (CA)`
 
-### [中共国十九届六中全会在京召开](/content/gnews/13/README.md)
+### [中共国十九届六中全会在京召开](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本前防长将出任专职人权官 主要针对中共人权问题](/content/gnews/14/README.md)
+### [日本前防长将出任专职人权官 主要针对中共人权问题](/content/gnews/21/README.md)
  ` 日本东京方舟农场`
 
-### [观1107文贵大直播有感（一）](/content/gnews/15/README.md)
+### [观1107文贵大直播有感（一）](/content/gnews/22/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [喜币市值增长中可期待的里程碑](/content/gnews/16/README.md)
+### [喜币市值增长中可期待的里程碑](/content/gnews/23/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [日本首相岸田文雄选择一名中共国批评者担任人权顾问](/content/gnews/17/README.md)
+### [日本首相岸田文雄选择一名中共国批评者担任人权顾问](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年11月7日郭文贵先生直播全文字版](/content/gnews/18/README.md)
+### [2021年11月7日郭文贵先生直播全文字版](/content/gnews/25/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [2021/11/05文贵先生直播精要](/content/gnews/19/README.md)
+### [2021/11/05文贵先生直播精要](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [印度北方邦新冠病毒清零](/content/gnews/20/README.md)
+### [印度北方邦新冠病毒清零](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [埃隆-马斯克，决心结束世界饥饿的局面](/content/gnews/21/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [2021/11/08大卫作战室直播精要](/content/gnews/22/README.md)
+### [2021/11/08大卫作战室直播精要](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [欧访台后，中共“惩罚”台湾分裂分子](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [法治基金与班农战斗室推动-停止疫苗强制令](/content/gnews/24/README.md)
+### [法治基金与班农战斗室推动-停止疫苗强制令](/content/gnews/29/README.md)
  ` G-NEWS TAIWAN`
 
-### [中共国的两张牌](/content/gnews/25/README.md)
+### [中共国的两张牌](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国的二氧化碳排放量让全球气候目标面临风险](/content/gnews/26/README.md)
+### [中共国的二氧化碳排放量让全球气候目标面临风险](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [面对高通胀率加拿大央行开始发展数字货币](/content/gnews/27/README.md)
+### [面对高通胀率加拿大央行开始发展数字货币](/content/gnews/32/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [喜币上市48小时市值破万亿美元，标志着新中国联邦中央银行、铸币中心成立](/content/gnews/28/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [普京说现在的白左和当年的布尔什维克是同一群人 （二）](/content/gnews/29/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [GTV新闻访谈简报|2021年11月8日早](/content/gnews/30/README.md)
+### [GTV新闻访谈简报|2021年11月8日早](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
-
-### [德国发动机在中共国的军舰上](/content/gnews/31/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [格芯纳斯达克上市对喜币意义重大，中共国房地产将大暴雷](/content/gnews/32/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [普京说现在的白左和当年的布尔什维克是同一群人 （一）](/content/gnews/33/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [中共国富人寻求转移资金的新方法，避免习近平的财富再分配](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

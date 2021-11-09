@@ -2,48 +2,83 @@
 ---
 
 
-## 日本首相岸田文雄选择一名中共国批评者担任人权顾问
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1649118/)
+## 伊隆·马斯克会给人类带来什么
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1649333/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-131.png)图片来源：File photos by Uichiro Kasai and Reuters
-**翻译：**Sara9
-**编辑：**纱娜宝宝
-**校对：**Candy
+[https://gtv.org/video/id=618908b2adfd99590c346252](https://gtv.org/video/id=618908b2adfd99590c346252)
 
-东京 | 日本首相岸田文雄选择了一位对中共国对待维吾尔族持批评意见的人作为他的人权问题助手，此举可能会加剧亚洲两个最大经济体之间的摩擦。
+**郭文贵**
+**Miles Guo**
 
-政府发言人周一告诉记者：总理将提名前防卫大臣中谷元 (Gen Nakatani) 为他的人权问题特别顾问。 该项任命预计将在本周晚些时候召开国会特别会议时举行。
+伊隆·马斯克，我再说他
+Elon Musk, I’ll talk about him again
 
-中谷先生是一位跨党派的对华政策立法者小组的共同主席，他一直倡导日本要加入其他主要民主国家，对中国和其他涉嫌侵犯人权的国家实施制裁。 他曾起草法案以便使之落实到行动。
+伊隆·马斯克人家现在是啥概念，兄弟姐妹们
+What is Elon Musk doing now？Brothers and sisters
 
-周一，中谷先生在面会岸田先生后对记者说：“我希望：作为在人权问题方面进行了大量工作的政治家，我获得的经验和知识可以发挥应有的作用。”
+你想过吗？
+Have you ever thought about it?
 
-去年，中谷先生是包括美国在内的八个民主国家的高级立法者之一。他们发起了跨议会联盟，以应对他们所说的“中国日益增长的影响力对全球贸易、安全和人权构成的威胁。”
+这哥们儿不但玩儿火星，要冲出太阳系
+This dude is not only playing with Mars, he wants to lead the human race out of the solar system
 
-岸田先生带领他执政的自民党，在10月31日的选举中保持在议会中的多数席位。其外交政策承诺：呼吁日本就中国在香港、维吾尔族穆斯林居住的新疆等地，涉嫌侵犯人权的行为发表意见.
+他在整个太空发展，包括新能源电池上
+He has contributed greatly to the overall development of space, including new en-ergy batteries
 
-中国否认虐待作为少数民族的维吾尔族穆斯林，称其政策是为了防止极端主义、打击恐怖主义和减少贫困。 它对批评其涉嫌侵犯人权的行为感到愤怒，并认为这是出于政治动机。
+包括现在大家看到，所有的储备性电脑板，
+all the reserve computer boards as you can see now
 
-日本陷入了与其最大贸易伙伴——中国深缠在一起的尴尬境地，即使在国防上依赖作为它唯一军事盟友的美国.
+还有美国几个大的，包括几个大的公司，包括通用，在美国数以万计的正在做（充）电桩
+There are also tens of thousands of (charging) piles being made in the U.S. by sev-eral large companies including GM
 
-拜登总统政府要求重新关注人权问题的呼吁对东京是一个挑战。东京经常寻求与美国对手保持联系，并且传统上对其他国家的批评保持低调。
+还有充电移动充电设备和全球化的蓄电池去卖
+In addition, there are mobile charging devices and globalized batteries on the mar-ket
 
-但作为前外相、就任总理一个月的岸田先生，开始了他竞选日本执政党领导人的活动，其重心就是中国。
+咱们中共国干啥呢？
+What is Communist China doing?
 
-他在9月份接受《彭博新闻》采访时警告说：台湾海峡可能是中国打压香港民主、自由之后的下一个重大外交问题。 据《京都新闻》报道，中谷先生在自民党领导的竞选中支持岸田先生。
+卖煤呢，还生产煤呢
+Selling coal, still coal mining
 
-自上任以来，自民党承诺，要与美国和其他伙伴合作，向北京发出信号：将捍卫自由、民主和人权，并对其邻国保持警惕。
+你现在跟中共国对话，你一定要想到
+Now that if you are talking to the CCP, you will think of
 
-原文链接：[https://www.afr.com/world/asia/kishida-picks-china-critic-as-adviser-on-human-rights-20211108-p5972r](https://www.afr.com/world/asia/kishida-picks-china-critic-as-adviser-on-human-rights-20211108-p5972r)
+这帮王八蛋就是咱们看那个鬼片啊
+these bastards are like ghost films we watch
 
-***发布：Candy***
+从那个棺材板里冒出来带着蜘蛛网，戴着大清朝的帽子（留着）辫子的这帮人在跟你谈未来呢
+wearing the Qing Dynasty hat (with) braids, talking to you about the future
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+他在给你许诺你的梦
+He’s promising you a beautiful dream
+
+真的是，这是一个噩梦
+Really, it’s a nightmare
+
+看看这个吧，兄弟姐妹们
+Just think about it, brothers and sisters
+
+———————————————————
+
+**原视频链接: **[https://gettr.com/post/pfoewc5189](https://gettr.com/post/pfoewc5189)
+
+Date: 11/01/2021
+原视频标题:伊隆·马斯克会给人类带来什么
+What will Elon Musk bring to humanity?
+原视频日期：2021/10/29
+任务编号：KC229(2736)
+视频时间段 : 0:00-1:07
+
+英听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

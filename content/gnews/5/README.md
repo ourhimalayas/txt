@@ -2,57 +2,112 @@
 ---
 
 
-## 喜币的三个标志事件：权威机构投资、国家级牌照、主权货币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1649401/)
+## 喜币已获得澳、美支付牌照
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1649471/)
 
-[https://gtv.org/video/id=61890935adfd99590c346270](https://gtv.org/video/id=61890935adfd99590c346270)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/a-a53gl-0v88i.jpg)
+[https://gtv.org/video/id=61890c8cadfd99590c34638a](https://gtv.org/video/id=61890c8cadfd99590c34638a)
 
 **郭文贵**
 **Miles Guo**
 
-七哥说的话，你们要盯住3个标志事件
-What QiGe(Miles) said, you have to keep eye on 3 sign events
+我可以告诉大家，你们记住啊
+I can tell you, remember
 
-任何一个真正的有权威的投资机构投喜联储、喜支付的时候就是叫Exchange
-Every single truly authoritative investment institution invests in the Himalaya Exchange and HPay, it is called Exchange
+所有的你想象不到的事情
+All the things you can’t imagine
 
-那是喜币的一个标志事件，
-That is a landmark event for Hcoin
+你看星期一，大家一定要记住
+On Monday, everyone must remember that
 
-第二件事，当有一个国家或一个地方批给你虚拟货币银行牌照
-The second thing is when a country or a region grants it a virtual currency bank license
+星期一的H币上市
+H-coin listing on Monday
 
-或国家批给你整个所谓国家级的虚拟交易市场牌照的时候
-or when the country grants you the entire so-called national virtual trading li-cense
+你记得有几个不同吗？
+Do you remember a few things that were different?
 
-这是第二，第三个大事件
-This is the second. The third major event
+你别忘了，它是巴哈马的公司，它是澳大利亚的交易牌照
+Don’t you forget, Himalaya Exchange is a Bahamian company holding an Australi-an trading license
 
-到最后的时候，当某国家宣布我承认你是我国家的法币、主权货币的时候
-At the end, when a country that recognizes Hcoin as its country’s legal currency and sovereign currency
+它在一年前已经获得了美国的支付牌照
+It has already obtained a payment license in the United States a year ago
 
-喜币的价格才真正的出来，
-The price of Hcoin will really come out
+它现在在将近70个国家很快的可能获得支付牌照，还有交易牌照
+and now it has payment licenses from nearly 70 countries that may soon be availa-ble, as well as the trading licenses
 
-没这个之前你都当成虚幻,你都当成不存在
-Before that, you just have to think of Hcoin as an aircoin
+而且我告诉大家，有几个国家银行要发给它，叫做数字银行牌照
+And I’m telling you that several national banks are going to issue the digital bank-ing license (to the Himalaya Exchange)
 
-**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1456639104880295940?s=24](https://twitter.com/se1y7cblljselva/status/1456639104880295940?s=24)
+你知道任何一个主权国家发给它一个数字银行牌照，或者数字交易市场的独立牌照，我告诉大家
+You know that any sovereign state issues a digital banking license, or an independ-ent license for a digital trading market, I’ll tell you
+
+你看到的格芯，跟它比，连个零头都不如
+Compared to Himalaya Exchange, the value of the GFS is not even a fraction
+
+数字货币，所有的货币是领导人类文明的先锋军
+Digital currencies, all of which are vanguard of leading human civilization
+
+没有钱啥也搞不成
+Nothing can be done without money
+
+技术，技术，技术之前是钱在前，钱技术
+Technology, the money is in front of technology
+
+那么所有的这些人都说，他说Miles，这个数字货币在伦敦这个演讲，他们全在场，威廉姆上去以后，大家全傻眼了
+All these people said, Miles, the digital currency forum in London, they were all present, and everyone was stunned when William went up and gave a speech.
+
+讲完以后，这哥们晃晃荡荡下去了
+After the speech, the buddy walked down the podium arrogantly and proudly
+
+他说，他说的都是实实在在，没人敢说，但大家大概都明白
+They said that what William said was the real thing and no one dared to say it, but everyone probably agreed
+
+那么未来所有的科技上只要没有区块链技术结合，没有世界上自由金融结合的，绝对没有未来
+Then in all future technology, as long as there is no blockchain technology com-bined, no world free financial combination, it absolutely has no future
+
+同等的机会，没有任何勾兑，没有任何恐惧，没有任何阴暗，没有任何担心
+With Equal opportunity, clean, and full of hope and future, and within reach
+
+干干净净的，而且充满了希望和未来的，而且触手可及
+without collusion, fear, conspiracy and worry
+
+现在我可以告诉大家，真的是一币难求
+Now I can tell you that it is really hard to get one single coin
+
+咱们战友是10亿币里面占6亿个币
+Our comrades have 600 million out of the total number of 1 billion coins
+
+战友们，你们6亿个币是多少钱呢？6000万美元
+Comrades, how much money is your 600 million coins? 60 million dollars?
+
+人家的那个4000万个币是多少钱呢？40亿美元
+How much did that individual investor pay for his 40 million coins? 4 billion dol-lars
+
+它是按照股权给它分配的比例
+It is the percentage allocated to the investor according to the equity investment in Himalaya Exchange
+
+不是按币给它分配的比例，40亿美元
+Not the percentage allocated to it by the price of coin, it is $4 billion
+
+兄弟姐妹们，你想想战友们，你们得到了什么
+Brothers and sisters, think about that, what value have you gotten?
 
 ———————————————————
 
-Date:11/06/2021
-原视频标题: 喜币的三个标志事件：权威机构投资、国家级牌照、主权货币
-HCoin’s three landmark events: investment by authoritative institutions, national-level licenses, and sovereign currency
-原视频日期：2021/11/01
-任务编号：KC230(2787)
-视频时间段 : 0:00-1:03
+**原视频链接: **[https://gettr.com/post/pfj822be03](https://gettr.com/post/pfj822be03)
 
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片: 洛杉矶盘古农场 – 银龙
+Date: 11/01/2021
+原视频标题: 喜币已获得澳、美支付牌照
+H-Coin has obtained payment licenses in Australia and the US
+原视频日期：2021/10/29
+任务编号：KC233(2734)
+视频时间段 : 0:00-2:15
+
+英听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校: 洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 – 小战蚁
+审片： 洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
