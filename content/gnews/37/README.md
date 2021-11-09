@@ -2,12 +2,32 @@
 ---
 
 
-## 11/3郭文贵直播：除掉张高丽是出于习近平的个人恩怨（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1649627/)
+## GTV新闻访谈简报|2021年11月8日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1649813/)
 
-11/3/2021 郭文贵直播：除掉张高丽主要是出于习近平的个人恩怨，在江家人中习最想打击的是王岐山、孟建柱、曾庆红和一个目前不方便透漏的人；每个人都要意识到共产党有多么残忍！
+作者：香草山翻译部
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-1.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1108text-SC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[11.8  晚GTV新闻访谈](https://gtv.org/broadcast/watch/6189ce8511d1862968037043)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
 
  
 

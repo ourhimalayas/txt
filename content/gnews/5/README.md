@@ -2,27 +2,29 @@
 ---
 
 
-## COVID-19 最新情报｜州长去哪儿了？“失踪”12日 传美国加州州长因接种疫苗致面瘫
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1650116/)
+## 美国全国开始罢工反对拜登疫苗令
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1650213/)
 
-**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜9/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+来自(OAN) 11月8日的新闻报道
 
-【美国】加州州长加文·纽瑟姆 (Gavin Newsom) 自从 10 月 27 日接种了莫德纳 COVID-19 疫苗后，就从公众视线中消失了，至今已有12日。期间，他相继取消了苏格兰的旅行，格拉斯哥的 COP26 联合国气候峰会，连视讯会议都通通取消。
+译编： 真北007
 
-今日，美媒《The defender》率先爆料指，一名接近州长的消息人士透露，州长纽瑟姆受到了疫苗不良反应，并患上吉兰·巴雷综合征（GBS），该综合征最常见的症状就是面瘫。
+数十万美国人参与了针对总统乔·拜登（Joe Biden）的疫苗令的全国性罢工。
 
-该消息人士指出，事实上，纽瑟姆接种疫苗半小时后，当他召开新闻发布会时，脸就突然很红，然后他很快走下新闻台匆忙结束发布会。从那以后，他就再也没有出现在公众面前。
+由律师邓达斯（ Leigh Dundas） 组织的罢工于周一在洛杉矶开始，并由来自卡车运输和电信行业的工人带头。
 
-[根据资料](https://www.cdc.gov/campylobacter/guillain-barre.html)，GBS 是是一种罕见的自身免疫性疾病，患者自身的免疫系统会损伤神经，导致肌肉无力，有时甚至瘫痪。GBS 可引起持续数周至数年的症状。大多数人会完全康复，但有些人会出现永久性神经损伤，甚至死亡，最常见症状之一就是面瘫，即面部的一侧开始下垂。
+邓达斯称拜登的授权是明显的越权和滥用权力。她说，美国人民已准备好对抗总统拜登的非法行为。
 
-早几日，加州当地的媒体报导指，州长纽瑟姆缺席各种活动的原因是“一直忙于处理家庭事务”，不过截止上周末，州长办公室一直未公布州长本周的工作安排。
+上周，拜登的官员发布了一项OSHA（职业安全与管理局） 规定，该规定要求拥有 多于100 名工人的雇主对其雇员强制接种疫苗。反对者认为人们有权拒绝“实验性基因治疗”，他们不能因此失去生计。
 
-截止截稿前，又多一位人士[公开证实](https://stevekirsch.substack.com/p/gavin-newsom-is-out-of-sight-likely)，加州州长纽瑟姆因接种疫苗患上吉兰·巴雷综合征。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-S222pace-Channel-Banner.jpg)
-来源｜[The defender](https://childrenshealthdefense.org/defender/gov-gavin-newsom-moderna-booster-vaccine/)
+邓达斯强调说：“他们打电话给我和每一位律师，说想提起诉讼。但是，让我告诉你起诉的真正目的––我们对此感到厌烦。我们厌倦了拜登，我们厌倦了我们的雇主。我们知道这是违宪的，”
 
+罢工将在美国主要城市举行，并将持续到 11 月 11 日。
+
+原文链接: [https://www.oann.com/nationwide-strike-against-bidens-vaccine-mandate-begins/](https://www.oann.com/nationwide-strike-against-bidens-vaccine-mandate-begins/)
+
+校对/发布：木千
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

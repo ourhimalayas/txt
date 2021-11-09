@@ -2,18 +2,22 @@
 ---
 
 
-## 夏瀛洲等台湾舔共退将应接受法律制裁，中止退休俸
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1650150/)
+## 秘翻在线：静态屏气自由潜水世界记录保持者接种疫苗后患心肌心包炎
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1650233/)
 
-台湾宝岛农场 Amitofu
+撰稿：文字焼
+![](https://assets.gnews.org/wp-content/uploads/2021/11/16364435101.png)图片来源：thecovidworld.com
+因正式憋气10分30秒而闻名的世界顶级静态屏气自由潜水员弗洛里安·达古里（Florian Dagoury）在第二次注射辉瑞公司的疫苗后40天被诊断为心肌炎和心包炎。
 
-退役空军上将夏瀛洲5日在中国大陆官媒「环球时报」刊出的访谈中表示，共机现身台湾西南空域是在「自己国土」，完全有权巡逻，拿着台湾人税金的退休俸和福利，和中共一起恐吓台湾已经10多年了，**2011年夏瀛洲就曾发表解放军和国军都是中国军队的言论，2014年夏瀛洲、王文燮、罗文山、陈廷宠等退役将领公开参加中共统战部活动，已故陆军一级上将郝柏村，二级上将王文燮及许历农、吴斯怀等人卖台行径早已是公开的行为，**台湾从国民政府的威权走到今天的民主，是几代台湾人抗争、努力维护坚持的民主自由，是国军整体坚守国家的成果，当年一定要反共的退将，现在竟然去公开支持中共统一台湾。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/TWtraitor-400x225.png)
-国防部政战局7日向立法院报告指出，共军小粉红模式，对我国实施认知作战，而这些**台湾舔共退将的大外宣，公开支持中共统一台湾的言论，**在2019年立院对「两岸人民关系条例」相关条文修法中，明定「曾任国防、外交、大陆事务或与国家安全相关机关的政务副首长或少将以上人员，或情报机关首长，不得参与大陆地区党务、军事、行政或具政治性机关、团体所举办的庆典或活动，而有妨害国家尊严行为」，「妨害国家尊严行为包括向象征大陆地区政权的旗、徽、歌等行礼、唱颂或其他类似之行为」，对这种牺牲台湾国家主权的舔共将领，毫无顾及社会观感舆论、重伤国军防卫气势，必须用法律加以严逞制裁，才能对得起20多万坚守台湾的国军弟兄。**建请陆委会、国防部与退辅会等相关单位彻查，并考虑取消退休俸及其相关福利。**
+这位来自法国的自由潜水精英在泰国经历了他的屏气能力的显著下降，去看了一位心脏病专家，该专家告诉他这是辉瑞疫苗的常见副作用。
 
-本文仅代表个人立场
-祈祷万佛万神加持文贵先生与新中国联邦战友
-审核:Athena雅典娜 发布:Amitofu
+弗洛里安也在Instagram上分享了他的经历。祝他早日康复!
+
+信息来源：[https://thecovidworld.com/florian-dagoury-world-record-holder-in-static-breath-hold-freediving-diagnosed-with-myopericarditis-after-pfizer-vaccine-possible-end-of-career/](https://thecovidworld.com/florian-dagoury-world-record-holder-in-static-breath-hold-freediving-diagnosed-with-myopericarditis-after-pfizer-vaccine-possible-end-of-career/)
+
+（文章仅代表作者个人观点）
+
+责编：待命（文晓）
 
  
 

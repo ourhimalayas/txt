@@ -2,37 +2,29 @@
 ---
 
 
-## 英首相约翰逊继续推广疫苗加强剂
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1649897/)
+## 【有声读物】中共国多地出现粮食抢购现象
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1649994/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-140.png)图片来源：每日邮报
-**翻译：**小鱼儿
-**编辑：**Candy
+配音：香草山教育部 – 蒙古鸿雁
 
-目前约有十分之四符合条件的英国人未接种增强剂。英国首相鲍里斯·约翰逊说 ：有“太多”接种双剂疫苗的老人被送进医院，他敦促人们前去接受疫苗的增强针剂，因为增强剂能提供95%的保护。
+继商务部发布的《鼓励家庭根据需要粗存一定数量的生活必需品》的声明后，北京时间11月4日，重庆、郑州、江常州、温州，甚至北京都出现了粮食抢购的现象。
 
-传染病教授迈克·蒂尔德斯利（Mike Tildesley）博士说：Covid将会和流感一样，每年都持续循环。他警告说，这意味着人们的免疫力可能需要再次加强。
+据招商证券最新发布的10月宏观报告，10月份，28种重点监测蔬菜价格环比增幅达19%。此外，盐业集体涨价，平均涨幅30%-35%不等。
 
-英国前疫苗部长纳齐姆·扎哈维（Nadhim Zahawi）称：增强剂可能每年都会发放。
+郭文贵先生在直播中提到，中共从来没有制定应对突发事件、针对民用物资的补给政策。在遭受河南重大水灾，和外汇短缺的形势下，中共国恐将发生因粮食短缺，而导致的人道灾难。
 
-鲍里斯.约翰逊今天警告说，前两剂疫苗在提供六个月的保护后，性能会大大减弱。约翰逊称，迄今为止已经发放的1000万个增强剂“非常有效”，它给人们提供的保护比单独的两剂高出95%。
+文章原文链接：[中共国多地出现粮食抢购现象](https://discord.com/channels/@me/768852062531485737/907177696746958908)
 
-约翰逊还敦促所有符合条件的人：50岁以上的人、健康者、社会护理工作者，16岁以上存在潜在健康问题的人则应在第二次接种后六个月再次接种加强针疫苗。
+音频处理：喜山必胜Maverick
 
-一位著名的政府顾问暗示，每年冬天可能都需要进行强化接种。纳齐姆·扎哈维也提出，疫苗将成为每年对抗中共病毒的一个策略。但其他专家表示，很可能不需要永无止境的加强剂循环，因为病毒总有一天会“淡出”。
-
-英国迟缓的疫苗推广工作是由于人们对疫苗有效性的质疑，部长们也将原因归咎于人们不够积极主动。同时老年患者称他们无法通过电话预约，也不知道如何使用在线系统。
-
-**参考新闻：**[Boris Johnson warns ‘too many’ fully-vaccinated elderly Britons are ending up in hospital with Covid as PM urges nation to get their booster vaccine](https://www.dailymail.co.uk/news/article-10178297/Boris-Johnson-warns-fully-vaccinated-elderly-Britons-ending-hospital-Covid.html)
-
-***发布：Candy***
-
-**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/Nz26pG64XF)[Discord](https://discord.gg/Nz26pG64XF)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+发稿：Daxia
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
