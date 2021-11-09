@@ -2,40 +2,47 @@
 ---
 
 
-## 11/9/2021中日财经爆：腾讯音乐净利暴跌35%，背后老板到底是谁？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1650101/)
+## 医生告诉我们对抗CCP病毒有效药物小贴士
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1650140/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-8.png)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fqmpres.oss-cn-hangzhou.aliyuncs.com%2F1587955256477734.png&amp;imgrefurl=https%3A%2F%2Fwww.cnbeta.com%2Farticles%2Ftech%2F1200447.htm&amp;tbnid=q_QJ_fjSu5vgQM&amp;vet=12ahUKEwiT_Mbm0Yr0AhVJEKYKHUgyAWAQMygDegUIARC1AQ..i&amp;docid=A1ZGI9T8hxwXlM&amp;w=618&amp;h=345&amp;itg=1&amp;q=%E8%85%BE%E8%AE%AF%E9%9F%B3%E4%B9%90&amp;ved=2ahUKEwiT_Mbm0Yr0AhVJEKYKHUgyAWAQMygDegUIARC1AQ)
+翻译：Julie（文蕾）
+视频/字幕：外星人
+主持人：如果有人感染了中共病毒 你的建议是什么？
 
-美东11月8日盘后，腾讯音乐发布解除独家音乐版权后的首份财报。财报显示，三季度腾讯音乐营收78.05亿元，同比增长3%；净利润7.4亿元，较去年同期的11.3亿元，大幅下降35%。增收不增利。**受文娱领域综合治理影响，三季度腾讯音乐社交娱乐服务营收出现下滑，由去年同期的52.51亿元降至49.71亿元。**
+首先不要去医院 我刚才提到我们有全球的数据 只有低于1%受感染病毒的人死亡  95%的人没有美国这样的医疗系统 所以不要去医院。
 
-7月24日，中共国国家市场监管总局发布公告，责令腾讯方面在30日内解除网络音乐独家版权，并施以50万元罚款等处罚。8月31日，腾讯发布关于放弃音乐版权独家授权权利的声明。过去，独家音乐版权是腾讯音乐的”内容护城河”。失去独家版权对公司运营数据、财务造成的影响成为市场关注焦点。
+第二 如果您担心感染 Covid-19 并且无法自己活下来，如果您想要预防性的伊维菌素、羟氯喹或 Budesonide（一种平喘激素药）这三种药每个人都应该可以得到。
 
-从财报来看，失去独家版权对腾讯音乐用户流量的影响暂时没有显现。但在文娱领域综合治理的大环境下，腾讯音乐**在线音乐ARPPU值由去年同期的9.4元降至8.9元，社交娱乐ARPPU由去年同期的166.7元降至163.9元。双双下降。**考虑到监管因素，以直播为主的社交娱乐服务业务营收可能持续走低，对公司整体利润造成不利影响。
+主持人：“有办法吗 ”？
 
-公开资料显示，截至2020年3月25日，腾讯持有腾讯音乐55.6%的股权，及78.7%的投票权，为第一大股东。PAGCapitalLimited持股为8.2%，拥有10.4%的投票权；Spotify持有8.4%股权，为腾讯音乐第二大股东。腾讯音乐董事及集团联席总裁、CTO谢振宇持有4%股权，及4.1%的投票权。
+“是的， 我将告诉你怎么得到”。
 
-腾讯音乐向美国SEC公布Form20-F文件，文件显示，截至2021年4月2日，腾讯持有腾讯音乐13.5%的A类股，及95.6%的B类股，一共拥有55.1%的股权，有90.6%的投票权；流媒体上市企业Spotify持有16.9%的A类股，拥有8.4%的股权。
+主持人：等一下 每个人准备笔记下来 第一个问题 我们在哪里可以得到 怎么得到 请您继续。
 
-对比可发现，PAGCapital不再是腾讯音乐主要股东，谢振宇持股大幅下降。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-142-1.png)
-太盟投资集团官网显示，PAGCapitalLimited已退出腾讯音乐投资。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-143-1.png)
-不过郭文贵先生在2021年10月27日直播中最新爆料，实际上太平联盟（PAGCapitalLimited）拥有腾讯音乐的100%股权。
+第一，[synerghealthdpc.com](http://synerghealthdpc.com), Brian Wyseen拥有并创建了这个公司 他们到目前为止每月为一万人提供了这些药品 上述这些药都有 家里请备好这些药。
 
-消息来源:
-[反垄断下腾讯音乐Q3净利暴跌35%，牵手苹果急寻新故事](http://www.myzaker.com/article/6189e7938e9f094b433bfb8a)
-[腾讯音乐股权曝光：腾讯有91%投票权PAG不再是二股东](http://finance.sina.com.cn/tech/csj/2021-04-12/doc-ikmyaawa9282293.shtml)
-[太盟投资集团官网](https://www.pag.com/hans/private-equity/)
-[2021年10月27日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1624152/)
+这个集团的不同之处在于 我们现在给你开了处方，不是让你自己去药房买药 而是他们有自己的复方药房 直接把药寄到你家 你不需要自己去找断货的的伊维菌素 有些药房还不想给你 所以[synerghealthdpc.com](http://synerghealthdpc.com) 是个很好的预防药物重要资源。
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码.png)
+如果有人现在需要处方， 最好的办法是找[myfreedoctor.com](http://myfreedoctor.com).  这些医生给免费的药和电话处方 他们会给你电话处方 然后会让你量力而行的捐款 他们为此付出了时间和服务 但是他们会无条件的给你处方。
 
+你现在要在当地找一个可以复合药品的药房， 你给他们一个药单， 他们可以按照处方合成配药 这些药在他的零售店被告知不要备货 。
 
+主持人：这些药在加拿大可以得到吗？ 很多留言在问这个问题。
+
+他们可能只限于美国， 那就去[alldaychemist.com](http://alldaychemist.com) 我已经用了他们10年了。 当我需要伊维菌素，我直接找位于印度的[alldaychemist.com](http://alldaychemist.com) 不要担心供货链和空运 我们全国各地的医生用了仅仅3周时间就收到了， 这些是预防药品的来源。
+
+你必须知道， 你自己完全能够对付这个病毒， 不用担心 ，不是每个人在面对covid-19病毒或变异时都需要这些药的。 你知道羟氯喹，如果买不到羟氯喹， 就去营养品店找槲皮素。 它是从水果提炼出来的， 药厂是用槲皮素来生产羟氯喹的。所以你可以用槲皮素来替代羟氯喹， 还特别便宜每天服用1000毫克。
+
+如果你无法买到伊维菌素， 你就买青蒿素， 青蒿素是一种草本植物。 它是用于开发伊维菌素的实际结构， 很多制药公司 80% 的制药公司， 他们都是从自然界中找到化合物，然后包装成非自然的合成药品，但是他们又非常适合人体， 身体会认为它就是天然物质， 其实它又不是， 他们的分子非常相似。 以上这些都是有帮助的信息 。
+
+（本文纯属个人观点，与Gnews无关）
+
+视频分享：XO酱
+
+编辑发布：Jenny
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

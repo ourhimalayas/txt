@@ -2,45 +2,26 @@
 ---
 
 
-## 11/9/2021中日财经爆：佳兆业“爆雷”实锤，自己承认了
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1650083/)
+## COVID-19 最新情报｜州长去哪儿了？“失踪”12日 传美国加州州长因接种疫苗致面瘫
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1650116/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-34.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs.wsj.net%2Fpublic%2Fresources%2Fimages%2FBN-HL058_0317KA_J_20150317032417.jpg&amp;imgrefurl=https%3A%2F%2Fcn.wsj.com%2Farticles%2F%25E4%25BD%25B3%25E5%2585%2586%25E4%25B8%259A%25E5%25B0%2586%25E5%258A%25A0%25E5%25BF%25AB%25E5%25A4%2584%25E7%25BD%25AE%25E4%25BC%2598%25E8%25B4%25A8%25E8%25B5%2584%25E4%25BA%25A7-%25E5%259B%259E%25E7%25AC%25BC%25E8%25B5%2584%25E9%2587%2591%25E7%2594%25A8%25E4%25BA%258E%25E5%2585%2591%25E4%25BB%2598%25E8%25B4%25A2%25E5%25AF%258C%25E4%25BA%25A7%25E5%2593%2581-11636429265&amp;tbnid=yyj2NqUInZMEhM&amp;vet=12ahUKEwjGoM2lxor0AhVF0pQKHao7CFwQMygBegUIARCtAQ..i&amp;docid=FeLQu60wPOBViM&amp;w=959&amp;h=639&amp;itg=1&amp;q=%E4%BD%B3%E5%85%86%E4%B8%9A&amp;ved=2ahUKEwjGoM2lxor0AhVF0pQKHao7CFwQMygBegUIARCtAQ)
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜9/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-11 月 8 日深夜，佳兆业集团发布声明，在声明中表示，受佳兆业集团资金流动性困难影响，由深圳锦恒财富管理有限公司发行、佳兆业集团（深圳）有限公司担保的财富产品出现兑付逾期，给各位投资人带来困扰，深表歉意。佳兆业集团正采取多项措施，全力以赴解决问题。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-141.png)
-在声明中，佳兆业集团给出了 4 项措施：
+【美国】加州州长加文·纽瑟姆 (Gavin Newsom) 自从 10 月 27 日接种了莫德纳 COVID-19 疫苗后，就从公众视线中消失了，至今已有12日。期间，他相继取消了苏格兰的旅行，格拉斯哥的 COP26 联合国气候峰会，连视讯会议都通通取消。
 
-**1****、广泛征求投资人意见，拿出更为可行的兑付方案；**
+今日，美媒《The defender》率先爆料指，一名接近州长的消息人士透露，州长纽瑟姆受到了疫苗不良反应，并患上吉兰·巴雷综合征（GBS），该综合征最常见的症状就是面瘫。
 
-**2****、加快深圳、上海等地优质资产处置，回笼资金用于兑付财富产品；**
+该消息人士指出，事实上，纽瑟姆接种疫苗半小时后，当他召开新闻发布会时，脸就突然很红，然后他很快走下新闻台匆忙结束发布会。从那以后，他就再也没有出现在公众面前。
 
-**3****、梳理可抵押资产，为财富产品提供兑付保障；**
+[根据资料](https://www.cdc.gov/campylobacter/guillain-barre.html)，GBS 是是一种罕见的自身免疫性疾病，患者自身的免疫系统会损伤神经，导致肌肉无力，有时甚至瘫痪。GBS 可引起持续数周至数年的症状。大多数人会完全康复，但有些人会出现永久性神经损伤，甚至死亡，最常见症状之一就是面瘫，即面部的一侧开始下垂。
 
-**4****、加快在售地产项目销售，实现快速回款。**
+早几日，加州当地的媒体报导指，州长纽瑟姆缺席各种活动的原因是“一直忙于处理家庭事务”，不过截止上周末，州长办公室一直未公布州长本周的工作安排。
 
-其还表示，目前，佳兆业集团总体资产价值大于负债，有足够可供处理的优质资产，为投资人提供财富产品的后续兑付。为尽快制定出更为可行的兑付方案，恳请投资人给予佳兆业集团多一点时间和耐心。
-
-同时，基于中共病毒疫情带来的公共安全考虑，原定于本周三（11 月 10 日）召开的投资人代表见面会取消。请各位投资者不要前往佳兆业办公场所聚集，如有诉求可与客户经理沟通，由客户经理收集并反馈我司。佳兆业集团将坚决履行社会责任，妥善解决兑付问题，尽快完善兑付方案，及时向各位投资人公布。
-
-**此前，据佳兆业方面公布的数据，公司合作方锦恒财富目前到期未兑付逾3亿元，理财产品总金额约为127亿元。**
-
-佳兆业行政总裁麦帆表示，过去一年，佳兆业在经营上确实遇到困难，之前一直坚持完成对金融机构、合作方、财富产品的兑付，不过从 10 月 29 日开始，佳兆业遭遇了“阶段性的难以为继”，因此无法给投资者兑付应有的本息。
-
-11 月 5 日早间，佳兆业集团及其子公司佳兆业资本、佳兆业美好和佳兆业健康同时在港交所发布公告，宣布停牌。
-
-消息来源:
-
-[深夜致歉！佳兆业发出声明，正加快优质资产处置，回笼资金兑付财富产品](https://finance.sina.com.cn/stock/zqgd/2021-11-09/doc-iktzqtyu6209367.shtml)
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-4.jpg)
-# 
-
-
+截止截稿前，又多一位人士[公开证实](https://stevekirsch.substack.com/p/gavin-newsom-is-out-of-sight-likely)，加州州长纽瑟姆因接种疫苗患上吉兰·巴雷综合征。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-S222pace-Channel-Banner.jpg)
+来源｜[The defender](https://childrenshealthdefense.org/defender/gov-gavin-newsom-moderna-booster-vaccine/)
 
  
 

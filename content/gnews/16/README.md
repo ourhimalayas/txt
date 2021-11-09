@@ -2,30 +2,22 @@
 ---
 
 
-## 英国卫生官员称今年CCP病毒住院人数是去年的14倍
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1650212/)
+## 秘翻在线：静态屏气自由潜水世界记录保持者接种疫苗后患心肌心包炎
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1650233/)
 
-撰稿：澳洲天好蓝
+撰稿：文字焼
+![](https://assets.gnews.org/wp-content/uploads/2021/11/16364435101.png)图片来源：thecovidworld.com
+因正式憋气10分30秒而闻名的世界顶级静态屏气自由潜水员弗洛里安·达古里（Florian Dagoury）在第二次注射辉瑞公司的疫苗后40天被诊断为心肌炎和心包炎。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-09-153921.png)
+这位来自法国的自由潜水精英在泰国经历了他的屏气能力的显著下降，去看了一位心脏病专家，该专家告诉他这是辉瑞疫苗的常见副作用。
 
-图片来自网络
+弗洛里安也在Instagram上分享了他的经历。祝他早日康复!
 
-当地时间11月8日，”[英国国民保健制度（NHS）首席执行官阿曼达·普里查德（Amanda Pritchard）警告称](https://new.qq.com/omn/20211108/20211108A0AE6S00.html)，由于新冠肺炎感染率居高不下，目前英国的医疗系统面临巨大压力，未来几个月将非常艰难。”
+信息来源：[https://thecovidworld.com/florian-dagoury-world-record-holder-in-static-breath-hold-freediving-diagnosed-with-myopericarditis-after-pfizer-vaccine-possible-end-of-career/](https://thecovidworld.com/florian-dagoury-world-record-holder-in-static-breath-hold-freediving-diagnosed-with-myopericarditis-after-pfizer-vaccine-possible-end-of-career/)
 
-“她表示，目前英国因新冠肺炎住院的人数是去年同期的14倍，急症室就诊人数以及999急救服务的需求也创下纪录。”
+（文章仅代表作者个人观点）
 
-“普里查德和英国卫生大臣萨吉德·贾维德均呼吁民众尽快注射新冠疫苗加强针，这对保护人们安全度过这个冬季至关重要。目前，英国已有1000万人完成新冠疫苗加强针接种。但国民保健制度（NHS）的数据显示，仍有450万人还没有接种第一针疫苗。”
-
-评：阿曼达·普里查德所说，是对比的去年8月与今年8月的数据，英国在今年8月全国2针接种率已经超百分之50，对比前后，居然在全国接率超过百分之50的情况下，住院人数是去年同期的14倍，这明显是因为CCP病毒疫苗根本没有任何效果，根本不像那些“专家”所说能防御病毒，就算退而求次，也不像那些“专家”所说的能减少重症，如果能就不会那么多人进医院了。那么这么多入院的人里面肯定有很多是接种了疫苗的，倒底是不是因为疫苗引起的加强感染呢？
-
-前后数据的对比，完全可以对疫苗的有效性提出大大的疑问，英国的卫生官员却装作没看见一样，却在这里呼吁民众尽快接种加强针，当然阴谋集团在背后的推动肯定是主要原因，不清楚英国的卫生官员是否有参与其中，但随着第三针的推动，人类基因被污染的越来越多，而且接种次数越多，就算是有青蒿素也难以有效，可以预见, 未来会有多少人会出大问题。
-
-文章仅代表作者本人观点,与GNews无关
-
-[新闻来源](https://new.qq.com/omn/20211108/20211108A0AE6S00.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
+责编：待命（文晓）
 
  
 
