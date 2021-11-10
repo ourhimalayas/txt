@@ -2,24 +2,255 @@
 ---
 
 
-## 爆料革命——历史的今天11月3日
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1652606/)
+## 喜美元转款无限制即将开通账户互转喜币理财
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1652698/)
 
-**整理：Pride**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-10-165338.png)
-**2017年11月3日—**现在Youtube、facebook 、twitter,不敢说被蓝金黄，但肯定受到了威胁。所以我们必须有自己的舞台、工具，让海外华侨能听到真正中国的声音。如果在西方连话都说不出来，还配什么推动依法治国、民主自由，解放被蒙上眼睛、捂住嘴耳的中国人。中国人是乌托邦，造假是达到目的一切手段。这里造假，要付刑事责任。像卢比奥先生直接问脸书总裁，有没有受到中国盗国贼压力？
+[https://gtv.org/video/id=618b330eadfd99590c34ef42](https://gtv.org/video/id=618b330eadfd99590c34ef42)
 
-曲龙被放出来，参加记者招待会。马云控制的《南华早报》，报道郭文贵全是谣言。他们说的越多，就是以警治国，以黑治国的例子，让西方知道中国法律被控制。过去官方来和我沟通，只想把我推向习主席，中国人的对立面。我想维护国家的尊严，也没人理我。
+你进来以后KYC, 你开了帐号
+Luego de realizar el procedimiento de KYC, abres la cuenta
 
-**2019年11月3日—** 现在共产党已经成为挡在人类面前最大的一块臭石头，还要与世界人民为敌。中国人是最大的受迫害者，第一最苦的老百姓；第二党内的一些被绑架的人士。共产党在国内培养了一批欺民贼，还有大头症的大咖。以共产党的名义，给他们乌托邦思想，进行洗脑统治，利用他们再去压迫别人。
+你钱打多少是不受限制的
+No hay límite por la cantidad de dinero que transfieras
 
-这几天很多人都找我谈，中共的区块链意味着什么？美国国防部要把共产党的区块链列为美国的第一大威胁之一。说明爆料革命引起了美国和西方的高度重视。
+比如说
+Por ejemplo
 
-**2021年11月3日—**彭帅举报张高丽，证明了七哥过去爆料，中南坑、共产党当官的跟少女谈恋爱、玩处女是真的。吃“阴枣”对老杂毛是正常的事，都玩十一岁到十七岁的幼女、处女。他们老婆不但看门，还帮助老公玩女人。认不清共产党的残忍、邪恶，永远不会跟新中国联邦。
+海东兄弟开了喜美元帐号
+El hermano Haidong abrió una cuenta de HDO
 
-喜联储是中国人创造的，中国人的铸币单位和人民银行。战友拥有喜联储铸币权、钱和造钱的权力，是新中国联邦人千秋万代的财产。这是真正的共享财富、利益共同体。谁加入新中国联邦，都有资格分。
+KYC过了
+Luego que el KYC es aprobado
 
-战友有钱，别被币给打倒。别到处吆喝有多少币，会惹来杀身之祸。现在喜币价格离真正价值，还远着呢！盯住有权威的投资机构投喜联储、喜支付；有一个国家或地方，批给虚拟货币银行牌照或虚拟交易市场国家级的牌照；某个国家宣布，承认是我国家的法币、主权货币。眼前推广H-pay, 比喜币重要；把战友登记在册，不要落下一个人；喜币未清的账，代持都要捋清楚。 曾宝宝的房地产都出事，共产党的房地产完了。房地产崩塌之日，就是灭共之时。征房地产税必然，要延续庞氏骗局。但西方金融一旦下滑，共产党海外地产几乎是零。灭共、保台湾的事业，不亚于喜币。共产党在美国挖的坑，美国人的报复会席卷而来—绝对灭共
+刚才一个美国
+Hace rato, un amigo de EE. UU
+
+摩根家族的某个我们的朋友
+De la familia de Morgan
+
+人家的女儿
+Su hija
+
+女婿人家有双国籍
+Su yerno tiene doble nacionalidad
+
+人家就可以KYC
+Él pudo realizar el KYC
+
+KYC过了以后
+Luego que esto sea aprobado
+
+刚才他说了
+Él hace rato dijo
+
+我买了这个币
+Compré esta moneda
+人家就买了, 合法啊
+Él lo pudo comprar, de manera legal
+
+最重要的事情
+Y lo más importante
+
+他的一个好朋友
+Su amigo
+
+包括我们的一个朋友
+Incluyendo nuestro amigo
+
+大额钱汇到这个喜美元帐号
+Transfirieron de grandes cantidades de dinero a la cuenta de HDO
+
+喜美元帐号的未来是什么
+¿Cuál es el futuro de la cuenta de HDO?
+
+它连着喜支付呢
+Está vinculada con el H-pay
+
+你买啥都可以
+Puedes comprar cualquier cosa
+
+它是个比信用卡还方便的东西
+Es algo más conveniente que la tarjeta de crédito
+
+手机支付, 刷卡支付
+Pago móvil, pago con tarjeta de crédito
+
+还有一个隔空支付
+Y también está un pago al aire
+
+战友与战友之间也马上就开通
+Entre compañeros luchadores pronto se abrirá también
+
+你的帐号之间也可以互相转
+Al igual se puede transferir entre sus cuentas
+
+那么这个钱
+Entonces, este dinero
+
+你不用在这搁着怎办呢
+Si no lo utilizas aquí, que harás si lo dejas allí
+
+是不是啊
+¿Cierto?
+
+未来给你7%到10%的利息
+En un futuro te dará el 7% a 10% de intereses
+
+拿什么支付呢, 拿喜币支付
+¿Con qué se pagará? A través de HCN
+
+大家记住啊, 这个可牛了
+Todos recuerden, esto es algo muy poderoso
+
+喜币本身就有(升值)
+El HCN en sí puede (reevaluarse)
+
+它是浮动币就增长
+Crece cuando es una moneda flotante
+
+你现在告诉我
+Ahora tú me dices
+
+东弟, 钊颖, 飞飞
+Hermano Dong, Zhaoying, Feifei
+
+你看你们在账上的钱
+Vean el dinero que están en sus cuentas
+
+你想一想啊
+Piensa
+
+现在飞飞家房子
+Ahora la casa de Feifei
+
+可能是150万美元
+Podría ser 1.5 millones de dólares
+
+你把你的房子卖掉
+Vendes tu casa
+
+150万美元就放在了喜美元里边
+Estos 1.5 millones de dólares lo dejas en la cuenta de HDO
+
+7%的喜币给你
+Te dan el 7% de HCN
+
+你拿你在喜币
+Tomas el HCN
+
+拿到钱的50%去租房子去
+Y te llevas el 50% del dinero para alquilar una casa
+
+是你现在住的房子的五倍大
+Y es cinco veces más grande que la que estás viviendo ahora
+
+但你每年都会升值
+Pero se revalúa cada año
+
+美国人没有一个人不卖房的
+No hay ningún estadounidense que no venda su casa
+
+美国人是卖房子换房子
+Ellos la venden y cambian por otra
+
+才是有钱人
+Así es ser rico
+
+只有穷人一住(一辈子)
+Solamente los pobres viven de (por vida) con la misma casa
+
+像中国人说老房子
+Así como dicen los chinos, “casa vieja”
+
+老房子说明你很穷很笨好不好
+Si es una “casa vieja” significa que eres pobre y tonto
+
+所以说这叫理财
+Por eso esto se llama gestión financiera
+
+还有一个, 有喜币的
+Y hay otro, quien tenga el HCN
+
+本身我有喜币, 我就可以抵押贷款
+Yo particularmente tengo HCN, entonces puedo hipotecar
+
+马上就可以做抵押贷款
+De una vez se puede realizar hipotecas
+
+所以有3年期, 5年期, 7年期
+Por eso hay de 3 años, 5 años, 7 años
+
+大家记住, 喜美元一定要善用
+Todos recuerden, deben tomar el buen uso de HDO
+
+然后接下来
+Luego lo que viene
+
+咱们在全球各个地方
+Nosotros en cualquier lado del mundo
+
+任何人
+Cualquier persona
+
+都要去用喜支付
+Deben usar el H-pay
+
+H-pay找客户去
+Busquen clientes que utilicen H-pay
+H-pay找来的客户
+Los clientes que consiguen
+
+马上会公布政策
+Inmediatamente se anunciará la póliza
+
+终生你享有这里边的提成点
+Disfrutarás de la comisión por el resto de tu vida
+
+你搞个几个就赢了
+Serás el ganador si encuentras unos cuantos clientes
+
+第三个, 我告诉大家
+El tercero, debo decirles
+
+从现在开始起
+A partir de este momento
+
+我们农场
+Nuestra finca
+
+马上要把币的事搞明白以后
+Luego de conocer y arreglar bien
+
+调整完
+El asunto de la moneda
+
+我说过了
+Yo había dicho
+
+爆料革命, 灭共事业
+El movimiento de denunciantes y el trabajo de eliminar al Partido Comunista
+
+没有周末, 没有假期
+No hay fin de semana ni vacaciones
+
+* * *
+
+日期：11/08/2021
+原视频标题：喜美元转款无限制即将开通账户互转喜币理财
+El H-Dollar (HDO) y H-Coin (HCN) pronto se abrirá cuentas para realizar transferencias ilimitadas y gestionar operaciones financieras
+原视频日期：11/04/2021
+原视频网址：[https://twitter.com/se1y7cblljselva/status/1456572206360629252?s=24](https://twitter.com/se1y7cblljselva/status/1456572206360629252?s=24)
+任务编号：KC238(2783)
+视频时间段：0:00-2:20
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

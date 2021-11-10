@@ -2,42 +2,107 @@
 ---
 
 
-## 卡车司机的巨大胜利：豁免疫苗接种
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1652579/)
+## 上千家机构进入喜联储开户
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1652659/)
 
-**翻译：lulumi**
+[https://gtv.org/video/id=618b3156adfd99590c34eed7](https://gtv.org/video/id=618b3156adfd99590c34eed7)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip07.png)*(APPhoto/EraldoPeres)*
+**郭文贵
+Miles Guo**
 
-乔·拜登总统宣布的联邦疫苗强制令，将影响到私营部门几乎所有的工人，这就像一块瑞士奶酪一样坚实，但也有例外。最近的一次被卡车行业的代表誉为“巨大的胜利”，因为劳工部现在已经决定，大多数卡车司机将不属于这项强制令范围内。如果他们这样做，他们可以选择每周提交阴性的COVID测试，而不是按照他们的意愿进行疫苗注射。那么，是什么让卡车司机如此特别？请继续阅读并找出答案。(雅虎新闻)
+这现在多少钱
+How much is this now?
 
-据CNBC报道，劳工部长马蒂·沃尔什（Marty Walsh）在接受采访时说，大多数司机将被免除拜登总统的疫苗和测试任务，卡车司机周五欢呼胜利。
+人家各国政府说你胡扯
+Governments say the communists are bullshit
 
-沃尔什的评论是为了回应卡车行业对白宫周四宣布的一项政策的批评，该政策将要求数百万工人全面接种疫苗或定期接受测试。新规定将于1月4日生效。
+官方的栽赃陷害没成功
+The CCP‘s official planted evidence did not succeed
 
-白宫表示，该规则适用于联邦政府的工作人员和任何为100名以上员工的公司工作的人。如果我们生活在某种另类的现实中，理智、明智的辩论推动着政府的政策，你也许可以看到豁免长途卡车司机的任何疫苗强制令是多么的合理。他们中的绝大多数人都是自己开车，独自坐在卡车的驾驶室里。那里通常没有其他人可以感染或被感染。唯一比让他们接种疫苗更愚蠢的事情是让他们在开车时戴上口罩。
+第二个
+The No. 2
 
-根据劳工部的公告，这似乎是他们正在处理的现实。并非所有的卡车司机都能得到豁免。那些在驾驶室里与伙伴一起开车的人，或者在装卸货物时必须经常与其他人打交道的人，仍将属于这项任务的范围。没有关于他们经常光顾的卡车站的女服务员的消息，特别是如果该站的雇员少于100人。
+说购买量市场评估金融
+is the market financial assessment of the volume of transactions
 
-当然，这不是这项豁免的真正原因，我猜测大多数人都知道这一点。我们现在正处于非常严重的供应链危机之中，它几乎完全是由持有CDL的合格卡车司机的短缺导致的。就在假期即将到来的时候，货物在我们国家港口和地面分销点被滞留数周。这导致了更高的价格和空荡荡的货架。乔·拜登不想在这种时候自己被看作是哪怕是一个卡车司机离职的原因，所以卡车司机得到了一张免费通行证。
+说现在目前已经金融机构进去上千家
+Saying that over a thousand financial institutions have currently taken part of (the Himalaya Exchange)
 
-对拜登来说，这是另一个政治手段，突出了他的政府对这些疫苗强制令所采取的不平衡和无意义的方法。卡车司机没有任何特征使他们对中共病毒COVID-19有神奇的抵抗力。尽管如上文所述，他们中的大多数人都独自驾驶着他们的卡车，但他们完成他们的任务后大概也会回家与家人团聚。他们偶尔会停下来在汽车旅馆里睡觉或在公路旅馆里吃饭。他们与很多人接触，尽管在做他们的工作时没有那么多。
+已经过了KYC，开了账号
+They have opened accounts and passed the KYC
 
-另外，如前所述，即使是不被豁免的卡车司机也将自动获得每周提交阴性COVID测试的选择。但目前大多数警察、消防员或其他公务员没有这个选择。如果每周检测足以“减缓传播”，那么它应该对每个人都足够好，而不仅仅是政治上受青睐的人，对吗？
+未来这个价格是不可控的
+The future price is not controllable
 
-正如拜登自己所说，这一切都只是一堆废话。最后，让我们来谈谈关于该强制令是“临时紧急命令”的想法，正如劳工部职业安全卫生署（OSHA）所定义的。如果它实际上是“临时的”，这意味着它将有一个结束的时候，工人将不必提供疫苗接种证明。但是，一旦注射了疫苗，你就不能把它从你的身体里拿出来。所以对绝大多数人来说，这根本不是真正的暂时性命令。
+我们现在是1100多家
+We are now have more than 1100 financial institutions
 
-**新闻来源**：[**hotair.com**] [So now most truck drivers will be exempt from the vaccine mandates](https://hotair.com/jazz-shaw/2021/11/07/so-now-most-truck-drivers-will-be-exempt-from-the-vaccine-mandates-n427568)
+全球的金融机构进来开户了
+Global financial institutions have come in to open accounts
+
+所以这个市值已经达到了一币赢一国，
+So this market value has reached the level of one cryptocurrency to win a country
+
+赢了（中共）国
+It has won the (CCP) country
+
+共产党的海外美元3万亿，现在实际上只有1万亿
+The Communist Party has 3 trillion dollars overseas, but now it’s actually only 1 trillion
+
+我们的市值已经超过2万亿
+Our market capitalization has exceeded 2 trillion
+
+一币赢一国不是我说的
+The one single currency wins a country wasn’t come out from my mouth,
+
+是人民银行货币管理局和外汇管理局的潘功胜，还有蔡宇
+it was from Pan Gongsheng which is a member of the PBOC and the Foreign Exchange Bureau, and also Cai Yu
+
+对不起了蔡宇，我跟你无仇无怨
+Sorry Cai Yu, I have no grudge against you
+
+蔡宇和所有研究室的人报给潘功胜
+Cai Yu and all the researchers reported to Pan Gongsheng
+
+郭树清报给了习近平了
+and Guo Shuqing reported to Xi Jinping
+
+就是昨天
+It was yesterday
+
+我能知道你们这个文件，我就这么牛
+I have the ability to know your document, I’m just that good
+
+一币赢一国，一币战一国
+By using one currency to win a country, and to fight with a country
+
+这回实现了
+This has been achieved
+
+1000多个金融机构开户
+More than 1,000 financial institutions have opened accounts
+
+这不是我说的
+This was not stated by me
 
 * * *
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+Date: 11/08/2021
+原视频标题: 上千家机构进入喜联储开户
+Thousands of institutions have entered the Himalaya Reserve to create accounts
+原视频日期：2021/11/05
+原视频链接：[https://twitter.com/se1y7cblljselva/status/1457268885963509760?s=24](https://twitter.com/se1y7cblljselva/status/1457268885963509760?s=24)
+任务编号：KC236(2801)
+视频时间段 : 0:00-1:14
+英听校：洛杉矶盘古农场 – Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
