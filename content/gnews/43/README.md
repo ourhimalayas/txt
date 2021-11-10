@@ -2,44 +2,68 @@
 ---
 
 
-## 万事达卡推出与加密货币挂钩的卡，加密货币可转为法币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1652114/)
+## 参议员罗杰·马歇尔: 美国人民应该得到关于一个世纪以来最严重的大流行病的答案。 新冠从何而来？
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1652126/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/mastercard-crypto-linked-cards-1000x600-1.jpeg)
+参议员罗杰·马歇尔: 美国人民应该得到关于一个世纪以来最严重的大流行病的答案。 新冠 COVID 从何而来？ 我正在与参议员恩斯特 [@SenJoniErnst](https://twitter.com/SenJoniErnst)、范因斯坦 [@SenFeinstein](https://twitter.com/SenFeinstein) 和吉利布兰德 [@SenGillibrand](https://twitter.com/SenGillibrand) 领导一个两党委员会来寻找答案。 【附视频，关于病毒溯源】
 
 
 
-图片来源：www.pymnts.com
+> The American people deserve answers on the worst pandemic in a century. Where did COVID come from? I’m leading a bipartisan commission with [@SenJoniErnst](https://twitter.com/SenJoniErnst?ref_src=twsrc%5Etfw), [@SenFeinstein](https://twitter.com/SenFeinstein?ref_src=twsrc%5Etfw), & [@SenGillibrand](https://twitter.com/SenGillibrand?ref_src=twsrc%5Etfw) to find that answer. [pic.twitter.com/W32aatxRBl](https://t.co/W32aatxRBl)
+> — Dr. Roger Marshall (@RogerMarshallMD) [November 9, 2021](https://twitter.com/RogerMarshallMD/status/1458137631418732546?ref_src=twsrc%5Etfw)
 
 
-#### 编译：小红帽
 
-万事达卡周一宣布，在亚太地区推出与加密货币关联的支付卡。这将首次允许持卡人将其数字资产即时转换为法定货币。
+众议员马特·盖茨: 在向着 [#社会主义](https://twitter.com/hashtag/%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89?src=hashtag_click) 进军的道路上，乔·拜登在过去十个月里制造的每一个问题都变得更加糟糕。 我们必须反对正在压垮美国人的议程。我们必须在各个层面与这些人做斗争。
 
-该卡旨在消除不接受数字资产支付的商户与希望用加密货币支付的客户之间的任何障碍。
 
-与香港的Amber Group、泰国的Bitkub和澳大利亚的CoinJar的合作将允许该地区的消费者和企业申请与加密货币挂钩的信用卡、借记卡或预付卡，这些卡可以在接受万事达卡的任何地方消费。
 
-这三家公司还将加入万事达卡的全球加密卡计划，成为名册上第一个亚太地区的数字资产服务提供商。该计划旨在使加密货币交易尽可能无缝对接。
+> Every problem Joe Biden has created over the last ten months gets worse on this march to socialism.
+> 
+> We have to be the opposition to an agenda that is crushing Americans. We have to combat these people at every single level. [pic.twitter.com/bKfSHqFq0D](https://t.co/bKfSHqFq0D)
+> — Rep. Matt Gaetz (@RepMattGaetz) [November 9, 2021](https://twitter.com/RepMattGaetz/status/1458221133031952386?ref_src=twsrc%5Etfw)
 
-该计划推出之际，数字资产的总市值飙升到3万亿美元，这是有史以来第一次，大约相当于整个英国的经济规模。
 
-万事达卡一直是走在数字资产整合前列的公司之一。7月，该公司升级了其加密货币卡，允许客户使用稳定币进行购买。而在10月，它与数字资产平台Bakkt合作，使消费者能够通过托管钱包购买、出售和持有数字资产。
 
-万事达卡此前还承诺帮助各国央行塑造和发展自己的数字货币，这些数字货币是类似于加密货币的数字代币，但不是去中心化的。
+比尔·格茨（著名军情记者）： 五角大楼：中共国现在拥有世界上最大的海军，并计划在十年内拥有460艘军舰 【附比尔·格茨在华盛顿时报刊登的专栏文章】
 
-**参考链接：**[Mastercard launches crypto-linked payments cards in Asia that allow holders to convert their crypto to fiat instantly | Currency News | Financial and Business News | Markets Insider (businessinsider.com)](https://markets.businessinsider.com/news/currencies/mastercard-cryptocurrency-linked-payments-cards-asia-fiat-amber-coinjar-bitkub-2021-11)
 
-***发布：小红帽***
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+> Pentagon: China now has the world’s largest navy and is planning for 460 warships by end of decade [https://t.co/O6TYEixEk5](https://t.co/O6TYEixEk5)
+> — Bill Gertz (@BillGertz) [November 9, 2021](https://twitter.com/BillGertz/status/1458193019895644170?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 克林顿团队签署、密封并向联邦调查局提交了欺诈性文件，以栽赃陷害川普总统。
+
+
+
+> The Clinton team signed, sealed and delivered fraudulent documents to the FBI to falsely frame and target President Trump.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 9, 2021](https://twitter.com/MarshaBlackburn/status/1458174531873513477?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克·蓬佩奥：政府越界的缩影 【转CNBC : 尽管法院已下令暂停，但白宫仍告诉企业继续执行疫苗强制令】
+
+
+
+> ⬇️ The epitome of executive overreach [https://t.co/IzZlNhUzd8](https://t.co/IzZlNhUzd8)
+> — Mike Pompeo (@mikepompeo) [November 9, 2021](https://twitter.com/mikepompeo/status/1458167623146000386?ref_src=twsrc%5Etfw)
+
+
+
+前白宫经济顾问皮特·纳瓦罗： 福奇早在2020年1月就疏忽地撒谎了，百万人因此丧生。福奇知道新冠病毒可能来自于实验室，而且是生物武器。请在我的《川普时代》一书中看完整的故事（附亚马逊购买链接） 【转breitbart，号外，皮特纳瓦罗：百万人因反社会的福奇向川普政府隐瞒了武汉实验室的细节】
+
+
+
+> Fauci lied by omission as early as January 2020 and millions died. Fauci KNEW that virus likely came from lab and was a bioweapon.
+> 
+> Get full story In Trump Time. Buy at Amazon [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy)[https://t.co/u9pYrQKo6B](https://t.co/u9pYrQKo6B)
+> — Peter Navarro (@RealPNavarro) [November 9, 2021](https://twitter.com/RealPNavarro/status/1458080724490260490?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 

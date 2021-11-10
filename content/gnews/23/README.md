@@ -2,24 +2,49 @@
 ---
 
 
-## 美国国立卫生研究院资深科学家反对强制疫苗并将于下月直播现场道德辩论
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1652396/)
+## 涉“伪造”安全数据，澳洲药品监管机构要辉瑞提供信息
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1652462/)
 
-编译：沙子最怕你不理它
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-据零对冲11月9日报道，强制疫苗正在美国国立卫生研究院（下文简称**NIH**）内部引发辩论和争议，NIH的一些专家也反对福奇推动的大规模强制疫苗。**NIH**已计划于12月1日举行关于“强制疫苗的道德性”的直播圆桌会议。NIH的所有2万工作人员以及患者和公众都可以参加这些辩论。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-9.png)
-此道德辩论是在一名资深传染病研究人员反对快速扩张的疫苗强制令后发起的。马修•莫利（Matthew Memoli）博士掌管着被福奇控制的美国国家过敏和传染病研究所（NIAID）的临床研究部门，莫利在该机构工作了16年，最近获得了NIH主任奖，他认为“为严重疾病风险低的人接种疫苗可能会阻碍整个人群从感染中获得更强大的免疫力的发展”。他不是在编造这些东西。以色列进行的一项重大研究表明，自然感染产生的免疫力比疫苗诱导的免疫力更有效，更持久。莫利不但反对强制疫苗自己也拒绝注射中共病毒疫苗，辩称应该只为弱势群体、老年人和肥胖的人群保留注射疫苗。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/8c69b434-ba6c-4a1b-9574-c2c93b452e89.jpeg)
 
-负责规划12月1日会议的**NIH**高级生物伦理学家大卫•温德勒（David Wendler）说，**NIH**内部对强制疫苗是否合适有很多争论。这是一个重要的热门话题。目前的数据显示，NIH近90%的联邦雇员“在10月底已经完全接种了疫苗”。
 
-随着美国联邦第五巡回法院上诉法院发布临时暂停令，在权衡永久禁令时，总统的疫苗强制令已经面临来自保守州的足够多的抵制。周六，由三名法官组成的小组做出裁决，原因是德克萨斯州、犹他州、密西西比州和南卡罗来纳州以及反对拜登计划的企业寻求暂停。各州和企业都提交了审查机构行动的请愿书，该请愿书直接提交给联邦上诉法院，而不是一个法官的联邦地区法院。
 
-莫利博士的诋毁者们则断言，自然免疫力取代疫苗是一个“可怕的想法”。明尼苏达大学医学院负责研究的副院长兼传染病医生蒂莫西·沙克（Timothy Schackr)说：“如果我们有预防严重疾病的疫苗(而不用），那是一个可怕的主意。”
 
-在**“**科学**”**方面，没有共识——更像是少数相反的观点，所有这些都应该仔细考虑和讨论。就目前看，这些讨论还仅仅围绕着免疫力的有效性和持久性以及适用人群，并没有对疫苗的副作用进行讨论。
 
-来源：[Top NIH Scientist Opposes Vaccine Mandate, Will Host Live Ethics Debate Next Month](https://www.zerohedge.com/covid-19/top-nih-scientist-opposes-vaccine-mandate-will-host-live-nih-ethics-debate-next-month)
+
+图片来源：www.globaltimes.cn
+
+
+#### 编译：小红帽
+
+《英国医学杂志》的一项调查称，辉瑞公司的少数疫苗安全试验存在严重问题后，澳大利亚药品监管机构（TGA）已向辉瑞寻求更多信息，其中包括声称“数据造假”和不良反应跟进缓慢。
+
+《英国医学杂志》上周发表的报告集中在 Ventavi 研究集团的一名前雇员身上，该集团是一家总部位于德克萨斯州的承包商，去年参与了辉瑞中共病毒（Covid ）疫苗的三期试验。
+
+据《英国医学杂志》报道，Ventavia的前区域总监布鲁克·杰克逊（Brook Jackson）表示，该公司“伪造数据，对患者没有进行盲法治疗，雇用训练有素的疫苗接种人员，并且对不良事件的跟进速度缓慢”。
+
+向《英国医学杂志》提供了“数十份公司内部文件、照片、录音和电子邮件”的举报人回忆说，她多次通知公司这些问题，最后于2020年9月25日通过电子邮件向美国食品和药物管理局投诉。
+
+她在同一天被解雇，公司在她的离职信中说她“不合适”。
+
+辉瑞公司在2020年12月10日提交给美国食品和药物管理局（FDA）咨询委员会会议的简报文件中没有提及Ventavia公司的问题。
+
+美国食品和药物管理局在收到投诉后从未对Ventavia公司进行审计，第二天就发布了该疫苗的紧急使用授权。
+
+辉瑞澳大利亚公司的发言人拒绝对《英国医学杂志》报告发表评论。
+
+**参考链接：**[Pfizer vaccine trial BMJ report: Whistleblower raises data, safety concerns at contractor Ventavia | news.com.au — Australia’s leading news site](https://www.news.com.au/technology/science/human-body/tga-requests-information-from-pfizer-after-medical-journal-alleges-contractor-falsified-safety-data/news-story/342806323e802035bb1d810e561977f4)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

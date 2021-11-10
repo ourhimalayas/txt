@@ -2,47 +2,26 @@
 ---
 
 
-## 喜币诞生让父母们不再为钱受尽凌辱让中国人知道钱属于谁
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1652331/)
+## 令人失望的收入和用户增长使币安股价暴跌
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1652402/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-46-1536x864_副本.jpg)
-特别鸣谢：以下引用的文字来自七哥听写组发布的[2021年11月1日喜币上市大直播全文字版（一）](https://gnews.org/zh-hans/1635647/)，在此特别向七哥听写组的战友们致谢。
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-47.png)
+图片来源：网络截图
 
-据[**2021****年11****月01****日 “HCOIN TO THE MOON” ****喜马拉雅币上市庆典**** ****（上）**](https://www.gtv.org/video/id=618159b92051c747ccf8c38c)时间点3：32：40——
+据零对冲11月9日报道，因为其顶线数据令人失望，月度活跃交易用户数据下降，币安（Coinbase）的股价在盘后被打压。
 
-**郭文贵先生：**我今天是早上起来的时候，我打坐的时间就是到我母亲前面去打坐，往那一跪下，就是控制不住了，突然想起，这老娘穷一辈子，我小的时候，我最重要的我就发现让我爹娘过上有钱买酱油买盐的日子。
+据彭博社报道，币安收入为13.1亿美元，低于15.7亿美元的一致预期。其收益为每股1.62美元，预期每股1.56美元。虽然月度交易用户从8.8百万MTU（最大传输单元）下降到7.4百万MTU，但好于预期的7.09百万MTU，其验证用户增长到7300万。
 
-我今天对着我老娘那个照片，我就说我老娘儿子可以说让你不论在天堂，如果你在人间，永远不用再愁钱买酱油买盐什么的，控制不住的。我希望所有的战友们都记住，先让你父母过好，如果生你养你的父母，连酱油钱……吃不好喝不好，那真是你是最失败的。
+交易量从4620亿美元降至3270亿美元，但这比预期的3090亿美元要好。总零售交易量为930亿美元，与第二季度相比下降了36%。这种下降与整个加密货币现货市场交易量的下降基本一致。零售业对其总交易量贡献了28%。
 
-如果战友们有钱了，你们第一个就要对自己的父母好。我今年，哎呀，我今天说好不不激动了（郭先生擦眼泪），抱歉抱歉。
+零售交易量的连续下降主要是由较低的波动水平驱动的，零售MTU和交易量仍然与波动性高度相关。该公司认为，与第三季度相比，第四季度的零售MTU和总交易量将有所提高。
 
-唉，兄弟姐妹们一定记住，我最开心的就会有很多人的母亲过上好日子。
+币安正在推出Coinbase NFT，一个点对点的NFT（非可替换代币）市场，这是一个新的产品体验，用户可以在一个地方铸造、收集、发现和展示他们的NFT。NFT，即非可兑换代币，是现实世界物品（如艺术品或音乐）的代币化版本，可以在区块链上购买、出售和验证。NFTs是一个令人兴奋的新机会，创作者可以分享他们的作品，用户也可以直接与创作者接触。
 
-我们每个人看到在社交媒体上出现中国的老太太，老人家那种苍凉的感觉，心如刀绞。我父亲他现在他不需要钱了，但是我觉得，不要让自己的父亲因为钱受尽凌辱，很多人父亲在外面真的是为了一家人过日子太苦了。
+加密货币的加速采用正在推动对监管的关注，币安认为监管是加密货币增长的一个重要推动因素，为此其提出了一个拟议的监管框架，题为数字资产政策建议。为了保障美国的金融领导地位（“dApp”），他们希望这将鼓励就加密货币资产在我们共同的经济未来中的作用进行公开和建设性的讨论。
 
-这个我们当孩子如果有了钱了，想到是父母。另外一个就是我觉得中国人真的是活得太可怜了，我希望这个喜币的诞生，能让中国人真真正正能知道钱这个东西它到底是姓啥，它到底属于谁，他的权力在哪里。
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+新闻来源：Coinbase Shares Crash After Disappointing Revenues, User Growth
 
  
 

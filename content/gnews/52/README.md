@@ -2,27 +2,25 @@
 ---
 
 
-## 拜登政府无视限制令 美多地 “反疫苗强制令”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651577/)
+## 自由潜水员在接种新冠疫苗后被诊断为心肌炎
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651578/)
 
-作者：波士顿五月花 – 葛朗台太太/英国喜庄园-I770775
+作者：纽约香草山福音部 – lilian89
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月6日，美国联邦第五巡回上诉法院发布命令，冻结拜登政府发布的企业新冠疫苗强制令，并要求拜登政府必须在11月8日下午5点前回应法院对新冠疫苗强制令提出的质疑。但在本周一，拜登政府完全无视正在发生的疫苗灾难，仍为强制疫苗政策辩护，建议企业继续实施强制疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-4.jpg)
-与此同时，从11月8日到11日，在老兵节期间，全美多地将进行为期四天的“反强制疫苗”示威抗议活动。这次席卷全国多地的示威游行从洛杉矶开始，各行各业民众聚集响应，其中有消防、卡车运输、电信、航空和铁路运输等多行业的职工，从蓝领到白领，不分肤色，不分党派，无论信仰，所有人都有一个共同的诉求：拒绝强制疫苗。
+11月8日，据相关媒体报道，世界上最好的静态自由潜水员弗洛里安-达古里在接种完第二针辉瑞新冠疫苗后，被诊断为心肌炎和轻微的三尖瓣反流。
 
-参考链接：
-1. [拜登政府无视限制令 美多地 “反疫苗强制令”](https://www.whitehouse.gov/briefing-room/press-briefings/2021/11/08/press-briefing-by-principal-deputy-press-secretary-karine-jean-pierre-and-secretary-of-transportation-pete-buttigieg/)
-2. [拜登政府无视限制令 美多地 “反疫苗强制令”](https://www.youtube.com/watch?v=fJIe13R-MPQ)
-3. [拜登政府无视限制令 美多地 “反疫苗强制令”](https://www.reuters.com/world/us/us-says-covid-19-vaccine-mandate-lawsuits-belong-court-picked-randomly-2021-11-08/)
-4. [拜登政府无视限制令 美多地 “反疫苗强制令”](https://khn.org/morning-breakout/appeals-court-grants-stay-on-bidens-vaccine-mandate-for-private-businesses/)
-5. [拜登政府无视限制令 美多地 “反疫苗强制令”](https://www.khou.com/article/news/health/coronavirus/vaccine/biden-team-defends-worker-vaccine-mandate/507-71e6df94-c1b0-42e1-aab6-853d8eadccfa)
-6. [拜登政府无视限制令 美多地 “反疫苗强制令”](https://www.epochtimes.com/gb/21/11/9/n13363300.htm)
+据了解，弗洛里安-达古里是一名法国的自由潜水员，现居泰国，曾以憋气10分30秒而闻名，目前是世界上可以呼吸暂停的第一人。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-4.jpg)
+在接种完新冠疫苗后，达古里发现自己的心率比正常高很多，且憋气能力明显下降。经医生诊断，这种症状是辉瑞新冠疫苗的常见副作用。更为严重的是，40天后，达古里被诊断为心肌炎和三尖瓣反流。三尖瓣反流是由免疫系统引起的心脏肌肉炎症，其症状表现为，心脏瓣膜不再正常关闭因而造成一些微小的血液渗漏。
+
+这些副作用，让达古里的心肺功能大幅衰退，他的职业生涯很可能会因此戛然而止。
+
+参考链接：[自由潜水员在接种新冠疫苗后被诊断为心肌炎](https://www.thegatewaypundit.com/2021/11/florian-dagoury-worlds-top-static-freediver-diagnosed-myocarditis-taking-pfizer-vax-may-end-career/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 总编：Irene木木
-编辑：AN
+编辑：Irene木木
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

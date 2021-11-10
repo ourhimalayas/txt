@@ -2,50 +2,26 @@
 ---
 
 
-## 涉“伪造”安全数据，澳洲药品监管机构要辉瑞提供信息
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1652462/)
+## 美国参众议员再度访台，台湾如何真正安全？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1652515/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿：东京樱花团/皓月当空郭
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-64.jpg)（图片来源于本文链接）
+据台湾外交部证实和美国之音报道：美国联邦参众议员搭乘美国海军一架行政专机星期二从菲律宾首都马尼拉起飞，傍晚抵达台北松山空军基地，赴台进行访问。这次搭乘美国海军行政专机访台的代表团共有13人，其中包括4位联邦参议员和两位联邦众议员，议员助理以及美军上校和上尉各一人。此次访问事前没有对外宣布。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/8c69b434-ba6c-4a1b-9574-c2c93b452e89.jpeg)
+这是继今年三月美国三名国会议员搭乘军机访谈以来，时隔八个月的参众议员再度访台，而且人数更多。之前蔡英文总统在接受CNN采访时首度承认有美军以训练为目的驻扎在台湾，拜登总统也在10月27日东亚视频峰会上表示：美国对台湾的承诺“坚如磐石”。
 
+近来中共军机扰台愈加频繁，武力统一台湾的声音也越来越强烈，对台湾政治内部和媒体控制渗透更加严重。美国知道台湾的自由民主的可贵、台湾的特殊地位、认可台湾的价值观，加上《与台湾关系法》和“六项保证”这个美台关系的基石，所以中共碍于美国的存在只敢恐吓台湾，而不敢真正动手，那么今年美台的互动和表态，或许暂时会让台湾安全！但是未来台湾的安全取决于三个方面：一是中共会不会发疯似的不计后果的打台湾。二是，美国政治力量对政策和承诺的连续性、对中共犯台的军事防范和行动力！三是，防范被中共渗透和收买的政治力量卖台！所以台湾长治久安的安全，根本就是要消除这个随时有可能发疯的邪恶中共！
 
+中共窃取政权以来，靠假骗偷抢、靠军队警察维持极权，以达到统治中国人民，近年又加大对台湾的武力威胁、对世界各国的渗透控制影响、破坏世界经济秩序、破坏世界文明，只有消灭中共，台湾才能真正的安全，世界才能良好而不受威胁的发展！
 
+信息来源：
 
+[搭乘美国军机 美国联邦参众议员突然抵台访问 五角大楼称符合惯例](https://www.voachinese.com/a/jet-carrying-US-senators-congressmen-makes-surprise-visit-to-Taiwan-20211109/6306315.html)
 
-
-图片来源：www.globaltimes.cn
-
-
-#### 编译：小红帽
-
-《英国医学杂志》的一项调查称，辉瑞公司的少数疫苗安全试验存在严重问题后，澳大利亚药品监管机构（TGA）已向辉瑞寻求更多信息，其中包括声称“数据造假”和不良反应跟进缓慢。
-
-《英国医学杂志》上周发表的报告集中在 Ventavi 研究集团的一名前雇员身上，该集团是一家总部位于德克萨斯州的承包商，去年参与了辉瑞中共病毒（Covid ）疫苗的三期试验。
-
-据《英国医学杂志》报道，Ventavia的前区域总监布鲁克·杰克逊（Brook Jackson）表示，该公司“伪造数据，对患者没有进行盲法治疗，雇用训练有素的疫苗接种人员，并且对不良事件的跟进速度缓慢”。
-
-向《英国医学杂志》提供了“数十份公司内部文件、照片、录音和电子邮件”的举报人回忆说，她多次通知公司这些问题，最后于2020年9月25日通过电子邮件向美国食品和药物管理局投诉。
-
-她在同一天被解雇，公司在她的离职信中说她“不合适”。
-
-辉瑞公司在2020年12月10日提交给美国食品和药物管理局（FDA）咨询委员会会议的简报文件中没有提及Ventavia公司的问题。
-
-美国食品和药物管理局在收到投诉后从未对Ventavia公司进行审计，第二天就发布了该疫苗的紧急使用授权。
-
-辉瑞澳大利亚公司的发言人拒绝对《英国医学杂志》报告发表评论。
-
-**参考链接：**[Pfizer vaccine trial BMJ report: Whistleblower raises data, safety concerns at contractor Ventavia | news.com.au — Australia’s leading news site](https://www.news.com.au/technology/science/human-body/tga-requests-information-from-pfizer-after-medical-journal-alleges-contractor-falsified-safety-data/news-story/342806323e802035bb1d810e561977f4)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

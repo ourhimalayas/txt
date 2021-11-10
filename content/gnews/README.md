@@ -15,163 +15,163 @@
 
 ---
 
-### [拜登与习近平将举行虚拟峰会](/content/gnews/1/README.md)
+### [上千家机构进入喜联储开户](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [比特币以太币创新高 加密货币市场大涨](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [爆料革命——历史的今天11月3日](/content/gnews/3/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [2021年11月2-3日 郭先生视频重点内容整理](/content/gnews/4/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [20211110 澳喜要闻摘要](/content/gnews/5/README.md)
+ ` 澳喜农场`
+
+### [卡车司机的巨大胜利：豁免疫苗接种](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [爆料革命——历史的今天11月1日](/content/gnews/7/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [世卫组织警报：2022 年将缺少注射器](/content/gnews/8/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [国际要闻汇编 11月10日](/content/gnews/2/README.md)
+### [拜登与习近平将举行虚拟峰会](/content/gnews/9/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [国际要闻汇编 11月10日](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：加利福尼亚州每日新增中共病毒感染率是佛罗里达州的两倍](/content/gnews/3/README.md)
+### [秘翻在线：加利福尼亚州每日新增中共病毒感染率是佛罗里达州的两倍](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本学者引经据典讲述“经济脱中”的必要性（之一）](/content/gnews/4/README.md)
+### [日本学者引经据典讲述“经济脱中”的必要性（之一）](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [昆士兰州卫生工作人员的疫苗强制令扩展到私营医疗领域](/content/gnews/5/README.md)
+### [昆士兰州卫生工作人员的疫苗强制令扩展到私营医疗领域](/content/gnews/13/README.md)
  ` 走进澳洲`
 
-### [樱花灭共诗——莫失期（新韵）](/content/gnews/6/README.md)
+### [樱花灭共诗——莫失期（新韵）](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国参众议员再度访台，台湾如何真正安全？](/content/gnews/7/README.md)
+### [美国参众议员再度访台，台湾如何真正安全？](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [花样年股价年跌幅达35.71%](/content/gnews/8/README.md)
+### [花样年股价年跌幅达35.71%](/content/gnews/16/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [奥地利 计划对数字货币征收所得税](/content/gnews/9/README.md)
+### [奥地利 计划对数字货币征收所得税](/content/gnews/17/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [秘翻在线： 牛至油提炼的香芹酚或可抗中共病毒](/content/gnews/10/README.md)
+### [秘翻在线： 牛至油提炼的香芹酚或可抗中共病毒](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [台积电将在日本建子公司](/content/gnews/11/README.md)
+### [台积电将在日本建子公司](/content/gnews/19/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [反对拜登疫苗强制令的全国罢工运动已经开始](/content/gnews/12/README.md)
+### [反对拜登疫苗强制令的全国罢工运动已经开始](/content/gnews/20/README.md)
  ` 首尔天池农场`
 
-### [上海一近百岁老人过世，财产差点被中共收走](/content/gnews/13/README.md)
+### [上海一近百岁老人过世，财产差点被中共收走](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [秘翻在线:英国59岁律师在接种第一剂阿斯利康疫苗后因脑出血死亡](/content/gnews/14/README.md)
+### [秘翻在线:英国59岁律师在接种第一剂阿斯利康疫苗后因脑出血死亡](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [涉“伪造”安全数据，澳洲药品监管机构要辉瑞提供信息](/content/gnews/15/README.md)
+### [涉“伪造”安全数据，澳洲药品监管机构要辉瑞提供信息](/content/gnews/23/README.md)
  ` 走进澳洲`
 
-### [DC大中华时事：中国布局房地产税试点](/content/gnews/16/README.md)
+### [DC大中华时事：中国布局房地产税试点](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [每日快报：美国即将推出基建项目对抗中共&#8221;一带一路&#8221;](/content/gnews/17/README.md)
+### [每日快报：美国即将推出基建项目对抗中共&#8221;一带一路&#8221;](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [岸田文雄当选日本第101 任首相](/content/gnews/18/README.md)
+### [岸田文雄当选日本第101 任首相](/content/gnews/26/README.md)
  ` 首尔天池农场`
 
-### [币圈新闻动态：喜交所法币提现最高限额更新为10万美元](/content/gnews/19/README.md)
+### [币圈新闻动态：喜交所法币提现最高限额更新为10万美元](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [五角大楼证实美多名资深议员乘军机访台](/content/gnews/20/README.md)
+### [五角大楼证实美多名资深议员乘军机访台](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [令人失望的收入和用户增长使币安股价暴跌](/content/gnews/21/README.md)
+### [令人失望的收入和用户增长使币安股价暴跌](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [自然获得的免疫与疫苗产生的免疫孰优孰](/content/gnews/22/README.md)
+### [自然获得的免疫与疫苗产生的免疫孰优孰](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国国立卫生研究院资深科学家反对强制疫苗并将于下月直播现场道德辩论](/content/gnews/23/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中企使用朝鲜奴工制造产品 加国零售巨头下架相关产品](/content/gnews/24/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [蓝枫法律第三十二期 喜交所功能及喜币白皮书解读(四)](/content/gnews/25/README.md)
- ` 加拿大扬帆农场多伦多蓝枫法律`
-
-### [文雍漫谈：没有什么能够阻挡我们对自由的向往](/content/gnews/26/README.md)
+### [文雍漫谈：没有什么能够阻挡我们对自由的向往](/content/gnews/31/README.md)
  ` 文雍`
 
-### [11/10/2021中日财经爆：国际资本对中共国房地产失去信心](/content/gnews/27/README.md)
+### [11/10/2021中日财经爆：国际资本对中共国房地产失去信心](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [65岁以上的法国人需要打加强针以保持Covid通行证有效](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [喜币诞生让父母们不再为钱受尽凌辱让中国人知道钱属于谁](/content/gnews/29/README.md)
- ` NewFOC`
-
-### [世界对中共国好感骤减，皆因中共自作孽](/content/gnews/30/README.md)
+### [世界对中共国好感骤减，皆因中共自作孽](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [继多家房企评级下调后，美警告中共国房地产风险](/content/gnews/31/README.md)
+### [继多家房企评级下调后，美警告中共国房地产风险](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共大放水，支持房企银行间市场发债](/content/gnews/32/README.md)
+### [中共大放水，支持房企银行间市场发债](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [索尼投资5亿美元，参与台积电日本新工厂建设](/content/gnews/33/README.md)
+### [索尼投资5亿美元，参与台积电日本新工厂建设](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际工会组织批评中共和国际奥委会](/content/gnews/34/README.md)
+### [国际工会组织批评中共和国际奥委会](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [欧盟要求对白俄罗斯采取更多制裁措施](/content/gnews/35/README.md)
+### [欧盟要求对白俄罗斯采取更多制裁措施](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [纳瓦罗：福奇隐瞒了病毒来自武汉实验室导致数百万人死亡](/content/gnews/36/README.md)
+### [纳瓦罗：福奇隐瞒了病毒来自武汉实验室导致数百万人死亡](/content/gnews/39/README.md)
  ` 首尔天池农场`
 
-### [美支持日本增加国防开支的计划](/content/gnews/37/README.md)
+### [美支持日本增加国防开支的计划](/content/gnews/40/README.md)
  ` HimalayaRussia`
 
-### [【玫瑰看新闻】 【回魂时刻】 &#8211; 第176期 疫苗受害者专题新闻1#](/content/gnews/38/README.md)
+### [【玫瑰看新闻】 【回魂时刻】 &#8211; 第176期 疫苗受害者专题新闻1#](/content/gnews/41/README.md)
  ` 新西兰新联邦新闻摘要`
 
-### [2021年11月9日郭先生盖特 — 视频盖特1「7分27秒」](/content/gnews/39/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [HCoin 隐私区块链技术是解除CCP的邪恶计划威胁的关键](/content/gnews/40/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [喜联储每天提现最大金额为10万美金](/content/gnews/41/README.md)
+### [喜联储每天提现最大金额为10万美金](/content/gnews/42/README.md)
  ` 首尔天池农场`
 
-### [参议员罗杰·马歇尔: 美国人民应该得到关于一个世纪以来最严重的大流行病的答案。 新冠从何而来？](/content/gnews/42/README.md)
+### [参议员罗杰·马歇尔: 美国人民应该得到关于一个世纪以来最严重的大流行病的答案。 新冠从何而来？](/content/gnews/43/README.md)
  ` 美国政要直译推`
 
-### [万事达卡推出与加密货币挂钩的卡，加密货币可转为法币](/content/gnews/43/README.md)
+### [万事达卡推出与加密货币挂钩的卡，加密货币可转为法币](/content/gnews/44/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国联邦参众议员搭乘军机突访台湾](/content/gnews/44/README.md)
+### [美国联邦参众议员搭乘军机突访台湾](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵精品视频-精明运作，滚雪球般的挣钱](/content/gnews/45/README.md)
+### [郭文贵精品视频-精明运作，滚雪球般的挣钱](/content/gnews/46/README.md)
  ` 澳喜农场`
 
-### [709律师谢阳出行变红码，健康码成为防控道具](/content/gnews/46/README.md)
+### [709律师谢阳出行变红码，健康码成为防控道具](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生2021年11月09日盖特视频（7分27秒）全文字版](/content/gnews/47/README.md)
+### [郭文贵先生2021年11月09日盖特视频（7分27秒）全文字版](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/9/2021 文贵盖特: 中共六中全会内斗正酣；疫苗真相是爆料革命、新中国联邦带给世界最大的礼物](/content/gnews/48/README.md)
+### [11/9/2021 文贵盖特: 中共六中全会内斗正酣；疫苗真相是爆料革命、新中国联邦带给世界最大的礼物](/content/gnews/49/README.md)
  ` 秘密翻译组-北美组`
 
-### [超1.1万名员工拒绝疫苗，申请疫苗豁免，波音公司陷入两难](/content/gnews/49/README.md)
+### [超1.1万名员工拒绝疫苗，申请疫苗豁免，波音公司陷入两难](/content/gnews/50/README.md)
  ` GTV新闻访谈`
 
-### [法国医药机构研究证实，中共病毒疫苗可引发心肌炎和心包炎](/content/gnews/50/README.md)
+### [法国医药机构研究证实，中共病毒疫苗可引发心肌炎和心包炎](/content/gnews/51/README.md)
  ` GTV新闻访谈`
 
-### [自由潜水员在接种新冠疫苗后被诊断为心肌炎](/content/gnews/51/README.md)
+### [自由潜水员在接种新冠疫苗后被诊断为心肌炎](/content/gnews/52/README.md)
  ` GTV新闻访谈`
 
-### [拜登政府无视限制令 美多地 “反疫苗强制令”](/content/gnews/52/README.md)
- ` GTV新闻访谈`
-
-### [GFASHION新品即将震撼上市](/content/gnews/53/README.md)
+### [拜登政府无视限制令 美多地 “反疫苗强制令”](/content/gnews/53/README.md)
  ` GTV新闻访谈`
 
 ### [彭培奥：冬奥会后会是危险高峰](/content/gnews/54/README.md)
