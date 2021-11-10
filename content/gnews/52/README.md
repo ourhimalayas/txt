@@ -2,36 +2,22 @@
 ---
 
 
-## 新华社造神 引发海内外群嘲
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1650182/)
+## 日本前教育部长：中国人权问题很严重
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1650530/)
 
-作者：英国喜庄园 – I770775
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月6日，在中共十九届六中全会召开前夕，中共党媒新华社发表了《习近平带领百年大党奋进新征程》的万字特稿，为党魁习近平二十大连任造势。其对习近平的吹捧空前狂热，引来墙内网友和海外媒体的一片嘲讽。
+撰稿：东京樱花团/黑猫
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-60.jpg)[图片来源](https://www.thepaper.cn/newsDetail_forward_15186183)
+日本前教育部长林芳正先生11月8日晚在BS富士电视台节目中，就中国新疆维吾尔自治区和其他地区的人权问题时强调说：“无论你怎么看，这都是一个我们应该认真关注的问题。 基本人权在中国也必须得到保障”。 林芳正先生有望被任命为将于11月10日就职的第二届岸田内阁的外交部长。
 
-特稿将习近平描述为“像爱父母那样爱老百姓”“众望所归的领导核心”等。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4-3.jpg)
-有网友评论说，习近平父亲的陵园占地多达四万亩，而老百姓绝大多数连一块几平方米的墓地都买不起，这也叫爱老百姓如爱父母吗？
+林芳正先生是日中议会友好联盟的主席。 在回答关于自民党内有人担心林先生可能与中国走得太近的说法时，他说：“（自民党内）有一个‘面向中国’的派别是可以的，但我们决不能成为中国的奉承者”。 他还说：“在谈判时，充分了解对方总比完全不了解对方要好”。
 
-还有网友评论说，中国人民从来就没有投票权，更没有言论自由，明明是一个独裁者，“众望所归”谈何而来?
+信息来源：
 
-也有外媒对此评论：新华社小心造神。为取得国际社会认可，居然还自作主张借外媒和外国专家之口为习近平点赞，实在是令人啼笑皆非。
+[林元文科相、中国人権問題に懸念「どう考えても深刻」 – 産経ニュース (sankei.com)](https://www.sankei.com/article/20211109-PVLX7JLQMFLRXAQNCPF4GHVZ2Y/?utm_source=coins&amp;utm_medium=push&amp;utm_campaign=COINs)
 
-参考链接：[新华社造神 引发海内外群嘲](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211106-%E6%96%B0%E5%8D%8E%E7%A4%BE%E5%B0%8F%E5%BF%83%E9%80%A0%E7%A5%9E-%E4%B9%A0%E8%BF%91%E5%B9%B3%E9%9A%9C%E7%A2%8D%E6%9C%AA%E5%B9%B3)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-
-总编：飞虹
-编辑：文特
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

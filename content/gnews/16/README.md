@@ -2,29 +2,22 @@
 ---
 
 
-## 郭文贵精品视频-精明运作，滚雪球般的挣钱
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1651969/)
+## 雅典娜时报-第108期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1652127/)
 
-撰稿：澳喜cindy
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-金融才子郭文贵先生的杰作-Himalaya Coin 于1/11/2021成功上市了。在5天气势如虹的一波涨势之后，开始了强势盘整。积蓄能量，一旦调整到位将迎来更大的一波上涨行情。
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/11/108.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/1082.jpg)
+***发布：小红帽***
 
-郭先生时刻提醒持币的战友们要谨记：
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-1.不要因为你买的币一毛钱，成本很低，你就轻易被上涨的巨大获利而满足而过早的卖掉你的币，这将给你将来造成终生后悔。
-
-2.“当交易量它一直走的时候，你开始兑现一部分”我的理解是：交易量逐步增加时不要急于卖，当量能不再增加时，就兑现一部分。
-
-3.兑现的部分先解决报税的问题。
-
-4.等待我们自己的银行开始接受币的抵押，贷到款时就可以拿着这笔钱（不需交税）买你想买的豪宅、豪车等。
-
-5.当getrr、GTV要上市时，也是Hcoin涨到另一个高度再次需要漫长时间的调整的时候了，此时可用部分Hcoin认购新股，其获利空间可以参照Hcoin。也就是用getrr、GTV接力Hcoin。这就叫滚雪球效应。
-
-（本文观点纯属个人与gnews无关）
-
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,67 @@
 ---
 
 
-## 709律师谢阳出行变红码，健康码成为防控道具
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1651961/)
+## 参议员罗杰·马歇尔: 美国人民应该得到关于一个世纪以来最严重的大流行病的答案。 新冠从何而来？
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1652126/)
 
-#### 撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-45.jpg)[图片源](https://botanwang.com/articles/202111/%E4%BB%A3%E7%90%86%E5%BC%A0%E5%B1%95%E6%A1%88%7C%E8%B0%A2%E9%98%B3%E5%BE%8B%E5%B8%88%E9%95%BF%E6%B2%99%E6%9C%BA%E5%9C%BA%E5%81%A5%E5%BA%B7%E7%A0%81%E8%BD%AC%E7%BA%A2%E8%A2%AB%E6%8B%A6.html)
-【大纪元博谈网】709律师谢阳做为张展（公民记者因追踪报道武汉新冠肺炎疫情遭中共抓捕判重刑）的控告代理人从长沙到上海见张展的母亲与哥哥，了解健康情况并欲劝阻当事人的绝食行为。谢阳在出行前日遭遇当地管辖警察和国保的阻止去上海，并想用钱解决问题，遭到拒绝后离开。次日当谢阳到达飞机场时，健康码突然由绿色变为红色，成为重点防控对象，不许通行。现场还有急救中心车辆和防疫人员等待，想要将之接走。谢阳说怕有危险，自己强行离开了，并说出在低风险区的长沙最近没有一个感染病例，机场也没有要求出示核酸检测，这就是当地国安阻止他去上海的卑鄙手段。并要求大家多关注张展案。记者就健康码转红情况致电长沙疾控中心，工作人员称最近长沙没有出现确诊病例，起先说当事人离开长沙才会出现转成红码现象，后有说有不排除有外来人员来本市接触成为密接者，最后说不是疾控中心转的，是大数据控制的。
+参议员罗杰·马歇尔: 美国人民应该得到关于一个世纪以来最严重的大流行病的答案。 新冠 COVID 从何而来？ 我正在与参议员恩斯特 [@SenJoniErnst](https://twitter.com/SenJoniErnst)、范因斯坦 [@SenFeinstein](https://twitter.com/SenFeinstein) 和吉利布兰德 [@SenGillibrand](https://twitter.com/SenGillibrand) 领导一个两党委员会来寻找答案。 【附视频，关于病毒溯源】
 
-根据中共国国际发展知识中心的对健康码的解释是，可提高疫情防控效率，简化信息采集流程，及时掌握动态情况，更好的平衡疫情防控和恢复经济社会活动相关政策，并可掌握自身风险情况。但是从张展的经历，健康码已不是防疫而是防变的万能工具。比如可以防范上访人员的风险、低端人口的排除、防止聚集、可极权管理、监控每个人。让本就没有自由、人权的中共国成为一个更巨大的严密被监视的牢笼。请问，你还愿意在思想被统治、财产被剥削、没有发声的自由、没有人权的体制下苟延残喘吗？
 
-信息源：
 
-[代理张展案 谢阳律师长沙机场健康码转红被拦](https://botanwang.com/articles/202111/代理张展案%7C谢阳律师长沙机场健康码转红被拦.html)
+> The American people deserve answers on the worst pandemic in a century. Where did COVID come from? I’m leading a bipartisan commission with [@SenJoniErnst](https://twitter.com/SenJoniErnst?ref_src=twsrc%5Etfw), [@SenFeinstein](https://twitter.com/SenFeinstein?ref_src=twsrc%5Etfw), & [@SenGillibrand](https://twitter.com/SenGillibrand?ref_src=twsrc%5Etfw) to find that answer. [pic.twitter.com/W32aatxRBl](https://t.co/W32aatxRBl)
+> — Dr. Roger Marshall (@RogerMarshallMD) [November 9, 2021](https://twitter.com/RogerMarshallMD/status/1458137631418732546?ref_src=twsrc%5Etfw)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+
+众议员马特·盖茨: 在向着 [#社会主义](https://twitter.com/hashtag/%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89?src=hashtag_click) 进军的道路上，乔·拜登在过去十个月里制造的每一个问题都变得更加糟糕。 我们必须反对正在压垮美国人的议程。我们必须在各个层面与这些人做斗争。
+
+
+
+> Every problem Joe Biden has created over the last ten months gets worse on this march to socialism.
+> 
+> We have to be the opposition to an agenda that is crushing Americans. We have to combat these people at every single level. [pic.twitter.com/bKfSHqFq0D](https://t.co/bKfSHqFq0D)
+> — Rep. Matt Gaetz (@RepMattGaetz) [November 9, 2021](https://twitter.com/RepMattGaetz/status/1458221133031952386?ref_src=twsrc%5Etfw)
+
+
+
+比尔·格茨（著名军情记者）： 五角大楼：中共国现在拥有世界上最大的海军，并计划在十年内拥有460艘军舰 【附比尔·格茨在华盛顿时报刊登的专栏文章】
+
+
+
+> Pentagon: China now has the world’s largest navy and is planning for 460 warships by end of decade [https://t.co/O6TYEixEk5](https://t.co/O6TYEixEk5)
+> — Bill Gertz (@BillGertz) [November 9, 2021](https://twitter.com/BillGertz/status/1458193019895644170?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 克林顿团队签署、密封并向联邦调查局提交了欺诈性文件，以栽赃陷害川普总统。
+
+
+
+> The Clinton team signed, sealed and delivered fraudulent documents to the FBI to falsely frame and target President Trump.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 9, 2021](https://twitter.com/MarshaBlackburn/status/1458174531873513477?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克·蓬佩奥：政府越界的缩影 【转CNBC : 尽管法院已下令暂停，但白宫仍告诉企业继续执行疫苗强制令】
+
+
+
+> ⬇️ The epitome of executive overreach [https://t.co/IzZlNhUzd8](https://t.co/IzZlNhUzd8)
+> — Mike Pompeo (@mikepompeo) [November 9, 2021](https://twitter.com/mikepompeo/status/1458167623146000386?ref_src=twsrc%5Etfw)
+
+
+
+前白宫经济顾问皮特·纳瓦罗： 福奇早在2020年1月就疏忽地撒谎了，百万人因此丧生。福奇知道新冠病毒可能来自于实验室，而且是生物武器。请在我的《川普时代》一书中看完整的故事（附亚马逊购买链接） 【转breitbart，号外，皮特纳瓦罗：百万人因反社会的福奇向川普政府隐瞒了武汉实验室的细节】
+
+
+
+> Fauci lied by omission as early as January 2020 and millions died. Fauci KNEW that virus likely came from lab and was a bioweapon.
+> 
+> Get full story In Trump Time. Buy at Amazon [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy)[https://t.co/u9pYrQKo6B](https://t.co/u9pYrQKo6B)
+> — Peter Navarro (@RealPNavarro) [November 9, 2021](https://twitter.com/RealPNavarro/status/1458080724490260490?ref_src=twsrc%5Etfw)
+
+
+
 
 
  
