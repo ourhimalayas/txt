@@ -2,33 +2,28 @@
 ---
 
 
-## 新中国联邦当下急需着手的三件事
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1650894/)
+## NewsMax公开反对拜登政府的疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651071/)
 
-作者：英国喜庄园 – I770775
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月7日，郭先生在直播中提到，喜币自上市以来一路增值，吸引了成千上万的墙内战友注册喜马拉雅交易所账号。但是，由于短时间内激增了大量的注册用户，再加上中共黑客的疯狂攻击，很多用户反复尝试认证系统却都无功而返。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-62.jpg)
-针对这一现状，文贵先生谈到，新中国联邦目前应该尽快完成以下三个目标：
+11月8日，NewsMax“唤醒美国”节目主持人罗布·芬纳蒂指出，拜登政府要求企业为员工接种新冠疫苗的规定是联邦权力的危险越权行为。为此，NewsMax坚决反对这项命令，并表示，没有人会被强制接种新冠疫苗，也不会有人遭遇被解雇的后果。
 
-首先，帮助战友迅速地通过喜马拉雅交易所的KYC认证，换句话说，要帮助战友用较便宜的低价票登上喜联储这列最后的财富列车。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-6.jpeg)
 
-其次，把所有战友的喜币安全化、集中化。可以利用基金管理的方式，把分散在战友手里的喜币集中在一起，防止机构和中共通过恶意做空喜币将战友洗出市场。
+NewsMax称，联邦政府此前从未有过为全国范围的公民强制接种疫苗的先例。显然，此次新冠疫苗强制接种命令是健康管理和职业安全部门利用权威，越过了传统的健康安全规定，是滥用权力的行为。
 
-最后，在机构入驻以及喜联储全功能启动之前，让战友们在安全、合法、智慧地享受自己财富的同时，还不失去自己的币——让战友们既有币，又有钱。
+Newsmax还提到，上周五，美国第五巡回上诉法院下令暂停执行新冠疫苗强制令，该媒体正在监控此案和其他法律行动的发展。 Newsmax认为，虽然法官声明该强制命令存在严重的法定和宪法问题，但在此案随后的听证会上，需要越来越多的公众觉醒并响应这一判决。
 
-郭先生强调，这几件事要尽力在半年左右实现，最晚不能超过八个月。
+评论人士提出，Newsmax是首家公开反对新冠疫苗强制令的媒体，而媒体明确的反对态度，对彻底取消新冠疫苗强制令将起到不容忽视的作用。
 
-参考链接：
+参考链接：[Newsmax opposes Biden’s vaccine mandate, will not fire unvaccinated employees | Wake Up America](https://www.youtube.com/watch?v=sXnuQ3n8kRw)
 
-[2021年11月07日 文贵大直播：(2). 虚拟币交易所，银行，币价，市值，估值与提现之间的关系；(4). 喜交所的私链技术针对灭共而设计，打破中共对虚拟币的垄断与控制](https://gtv.org/video/id=6187c5e211d186296802ed33)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-
-
-
-总编/编辑：飞虹
-校正/发稿：Fei797
+总编：Irene木木 
+编辑：Kathy文艺 
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

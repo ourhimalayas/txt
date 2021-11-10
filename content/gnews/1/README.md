@@ -2,31 +2,47 @@
 ---
 
 
-## 世界对中共国好感骤减，皆因中共自作孽
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1652309/)
+## 喜币诞生让父母们不再为钱受尽凌辱让中国人知道钱属于谁
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1652331/)
 
-#### 撰稿:东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12121.jpg)[图片来源](https://zhuanlan.zhihu.com/p/163438999)
-哈佛大学国际关系专家斯蒂芬沃尔特教授强调，一个国家就算体量再大，只要不具有威胁性也无可厚非。 但是，事实是，中共国不仅体量庞大，而且对外界构成了威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-46-1536x864_副本.jpg)
+特别鸣谢：以下引用的文字来自七哥听写组发布的[2021年11月1日喜币上市大直播全文字版（一）](https://gnews.org/zh-hans/1635647/)，在此特别向七哥听写组的战友们致谢。
 
-长期研究中共国党史的韩国仁川大学教授安智英认为，中共国在崛起过程中采取的一系列行动引起了外界的担忧。 一个典型的例子是“战狼外交”。 此外，“中华民族伟大复兴”、“一带一路”、“命运共同体”等诸多言行都被认为存在问题。
+据[**2021****年11****月01****日 “HCOIN TO THE MOON” ****喜马拉雅币上市庆典**** ****（上）**](https://www.gtv.org/video/id=618159b92051c747ccf8c38c)时间点3：32：40——
 
-从传统上看，中国最怕东夷、西戎、南蛮、北狄等“蛮夷”联袂。 时常出炉的中共国防白皮书的主题是“外患”。 强调对外有强敌美国，对内则是社会绝对稳定。
+**郭文贵先生：**我今天是早上起来的时候，我打坐的时间就是到我母亲前面去打坐，往那一跪下，就是控制不住了，突然想起，这老娘穷一辈子，我小的时候，我最重要的我就发现让我爹娘过上有钱买酱油买盐的日子。
 
-现实情况如何？ 过去五年，美国、澳大利亚和加拿大对中共国的看法迅速恶化，欧洲主要国家也呈现出类似趋势。 英国、法国、德国、瑞典等也不例外。80%以上的受访者对中共国的认识都是负面的。尤其在日本，10 名受访者中有超过 9 人 (91%) 表示他们“不喜欢”中共国。 就韩国而言，对中共国的看法也在恶化，一项调查发现，四分之三 (75%) 的人表示不喜欢。
+我今天对着我老娘那个照片，我就说我老娘儿子可以说让你不论在天堂，如果你在人间，永远不用再愁钱买酱油买盐什么的，控制不住的。我希望所有的战友们都记住，先让你父母过好，如果生你养你的父母，连酱油钱……吃不好喝不好，那真是你是最失败的。
 
-近期，韩国学界和商界的“中国热”也似乎消声匿迹了，看起来仿佛进入了“冰河时代”。 明年8月24日将迎来中韩建交30周年，两国政府间正式层面的准备工作虽正在进行中，但韩国民众对中共国的消极印象并没有明显改变。
+如果战友们有钱了，你们第一个就要对自己的父母好。我今年，哎呀，我今天说好不不激动了（郭先生擦眼泪），抱歉抱歉。
 
-天作孽犹可恕，自作孽不可活。中国传统文化自古崇尚睦邻友好，合作共赢。但目前情势来看，怕是中共早已偏离传统文化的轨道，已与世界为敌。
+唉，兄弟姐妹们一定记住，我最开心的就会有很多人的母亲过上好日子。
 
-信息来源：
+我们每个人看到在社交媒体上出现中国的老太太，老人家那种苍凉的感觉，心如刀绞。我父亲他现在他不需要钱了，但是我觉得，不要让自己的父亲因为钱受尽凌辱，很多人父亲在外面真的是为了一家人过日子太苦了。
 
-[世界の主要国はなぜ中国を嫌うのか](https://news.yahoo.co.jp/articles/95ce4e7279b2e507dcbd4e7a096f66fb659332a8)
+这个我们当孩子如果有了钱了，想到是父母。另外一个就是我觉得中国人真的是活得太可怜了，我希望这个喜币的诞生，能让中国人真真正正能知道钱这个东西它到底是姓啥，它到底属于谁，他的权力在哪里。
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+撰稿：喜马拉雅的肉夹馍；
 
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

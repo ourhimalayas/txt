@@ -2,45 +2,37 @@
 ---
 
 
-## 中共又一挑衅行为：美国海军舰艇的模拟模型成为导弹发射训练靶
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1651655/)
+## DC每日热点1109
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1651792/)
 
-作者：香草山金融部 – 闲聊钱币
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/11/A0F627D1-68B2-4C74-8CBB-C45D3E0B5B70-scaled.jpeg)
+道琼斯指数 36342.08 ▼0.25%
+纳斯达克指数 16005.67 ▲0.15%
+WTI纽约原油CFD 82.842 ▲1.11%
+布伦特原油CFD 84.092 ▲0.79%
+标普中概股50指数 3,598.80CNY▼25.89%
+美元兑人民币 1USD=6.390RMB
+美元兑港币 1USD=7.789HKD
+国际黄金 1828.79 美元/盎司
+全球CCP病毒感染人数 251,252,276 例
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-1.png)
-
-
-
-北京，11月8日（路透社）-Maxar的卫星图像显示，在塔克拉玛干沙漠中的一个新靶场综合体上建成了一艘美军航母和至少两艘阿利-伯克级导弹驱逐舰的全尺寸模型。图片还显示了一个6米宽的轨道系统，上面安装了一个船舶大小的目标，专家说这可能是用来模拟船只的移动。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture77-1.jpg)
-这些模拟模型反映出中共正在努力建立反航母的能力，特别是针对美国海军的能力，因为在台湾和南海问题上与华盛顿的关系日趋紧张。
-
-五角大楼的最新年度报告表明，中共解放军火箭军在2020年7月曾向南海进行了首次确认的实弹发射。这次演习向南沙群岛以北的水域共发射了6枚DF-21反舰弹道导弹，中国在那里与台湾和四个东南亚国家存在领土争端。
-
-新加坡拉惹勒南国际研究学院(S. Rajaratnam School of International Studies)的研究员Collin Koh表示，无论是实弹演习还是沙漠练兵，中共离制造精确的反舰导弹还很远。但是他们不会停手，会持续进行下去。
-
-在沙漠中模拟海洋环境练兵无异于在陆地学习游泳。但中共迫于邻国反对实演的压力以及自身捉襟见肘的财力物力也只能如此。
-
-（本文仅代表作者观点）
-
-参考来源：[中共又一挑衅行为：美国海军舰艇的模拟模型成为导弹发射训练靶](https://www.reuters.com/world/china/china-builds-mockups-us-navy-ships-area-used-missile-target-practice-2021-11-08/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Daily%20Briefing%20-%20Huawei%20COP26%20-%208/11/2021&amp;utm_campaign=Daily%20Briefing%20-%20Huawei%20COP26%20-%208/11/2021)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
-
+1、美国防部：中共国“核三角”成型与美俄看齐 料两年内不会轻易对台动武
+2、抗衡中共国一带一路 美国拟明年初宣布首批B3W大型基建项目
+3、美报告揭露中共国黑客组织对美国敏感部门实施新一轮攻击
+4、布林肯呼吁缅甸回到“真正和包容的民主”
+5、美共和党参议员致函拜登：确保美国而不是中共国为21世纪的数字贸易制定规则
+6、美国技术公司卫星图像显示：中共军方疑在新疆若羌塔克拉玛干沙漠造模拟美国航空母舰和驱逐舰，或用于未来可能发生的海上冲突的演练
+7、多国致信中共海关署 促暂停实施食品进口法规 ，这些措施会带来进一步扰乱全球供应链的风险
+8、恒大债务危机难解，又一子公司8249万美元的美元债券票息逾期未付，并已进入30天的最后限期
+9、狱中中共国公民记者张展获无国界记者新闻自由奖提名
+10、法军在太平洋严密监视北韩违禁动向
+11、针对伊拉克总理袭击由伊朗支持的民兵组织所为
+12、欧盟谴责白俄罗斯”策动”移民潮 呼吁采取新的制裁
+13、法一项研究确认mRNA疫苗提高心肌炎和心包炎风险
+14、美联储：中共国房地产造成的风险或影响美国
+15、中企使用朝鲜奴工制造产品 遭加国服装厂下架
+16、沙利文：美要塑造国际环境 不寻求改变中共
 
  
 
