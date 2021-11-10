@@ -15,68 +15,68 @@
 
 ---
 
-### [[战友观点]马云选择哪一种死法？](/content/gnews/1/README.md)
- ` 温哥华扬帆农场`
-
-### [为儿童接种中共病毒疫苗缺乏数据支持](/content/gnews/2/README.md)
+### [习近平为什么要对钟南山及其家族动手](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭文贵精品视频-精明运作，滚雪球般的挣钱](/content/gnews/3/README.md)
+### [[战友观点]马云选择哪一种死法？](/content/gnews/2/README.md)
+ ` 温哥华扬帆农场`
+
+### [为儿童接种中共病毒疫苗缺乏数据支持](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [郭文贵精品视频-精明运作，滚雪球般的挣钱](/content/gnews/4/README.md)
  ` 澳喜农场`
 
-### [709律师谢阳出行变红码，健康码成为防控道具](/content/gnews/4/README.md)
+### [709律师谢阳出行变红码，健康码成为防控道具](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生2021年11月09日盖特视频（7分27秒）全文字版](/content/gnews/5/README.md)
+### [郭文贵先生2021年11月09日盖特视频（7分27秒）全文字版](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021/11/09 文贵先生盖特精要](/content/gnews/6/README.md)
+### [2021/11/09 文贵先生盖特精要](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美最高法院拒绝阻止缅因州疫苗强制令](/content/gnews/7/README.md)
+### [美最高法院拒绝阻止缅因州疫苗强制令](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [比尔盖茨承认新冠疫苗不能阻止病毒传播](/content/gnews/8/README.md)
+### [比尔盖茨承认新冠疫苗不能阻止病毒传播](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [专家说人工智能开始对现实世界产生巨大影响](/content/gnews/9/README.md)
+### [专家说人工智能开始对现实世界产生巨大影响](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [11/9/2021 文贵盖特: 中共六中全会内斗正酣；疫苗真相是爆料革命、新中国联邦带给世界最大的礼物](/content/gnews/10/README.md)
+### [11/9/2021 文贵盖特: 中共六中全会内斗正酣；疫苗真相是爆料革命、新中国联邦带给世界最大的礼物](/content/gnews/11/README.md)
  ` 秘密翻译组-北美组`
 
-### [网络安全公司报告揭露中共黑客攻击了美国370家机构](/content/gnews/11/README.md)
+### [网络安全公司报告揭露中共黑客攻击了美国370家机构](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [DC每日热点1109](/content/gnews/12/README.md)
+### [DC每日热点1109](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [洛杉矶数千人集会抗议强制疫苗令](/content/gnews/13/README.md)
+### [洛杉矶数千人集会抗议强制疫苗令](/content/gnews/14/README.md)
  ` 日本东京方舟农场`
 
-### [国际工会呼吁奥委会、赞助商追究中国责任](/content/gnews/14/README.md)
+### [国际工会呼吁奥委会、赞助商追究中国责任](/content/gnews/15/README.md)
  ` MG FARM`
 
-### [工龄29年员工因拒绝接种新冠疫苗而被解雇](/content/gnews/15/README.md)
+### [工龄29年员工因拒绝接种新冠疫苗而被解雇](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [郭先生：美国能让台湾加入联合国，就能让新中国联邦加入联合国](/content/gnews/16/README.md)
+### [郭先生：美国能让台湾加入联合国，就能让新中国联邦加入联合国](/content/gnews/17/README.md)
  ` MG 澳喜农场多语组`
 
-### [美国商务部长雷蒙多下周出访亚洲 行程中无访华安排](/content/gnews/17/README.md)
+### [美国商务部长雷蒙多下周出访亚洲 行程中无访华安排](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [2021/11/09大卫作战室直播精要](/content/gnews/18/README.md)
+### [2021/11/09大卫作战室直播精要](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [回应法院暂停令：拜登政府辩称应继续疫苗强制令](/content/gnews/19/README.md)
+### [回应法院暂停令：拜登政府辩称应继续疫苗强制令](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [国会议员质疑拜登政府的核武器政策](/content/gnews/20/README.md)
+### [国会议员质疑拜登政府的核武器政策](/content/gnews/21/README.md)
  ` HimalayaRussia`
-
-### [中共国恒大集团又一子公司债券利息逾期未付](/content/gnews/21/README.md)
- ` 日本东京方舟农场`
 
 ### [拜登将宣布与习近平达成一项重大协议](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
