@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/10/2021 7:12 PM (UTC)`
+
+《文贵大直播》宣传片之『历史直播追忆』：“既然已经开始，我们决不妥协；既然已经开始，我们一定要赢！该我们赢了，我们必须赢！”  —— 英国伦敦喜庄园『战鹰影视』出品
+![img](https://media.gettr.com/group13/origin/2021/11/10/19/12/01f3fee3-a9c8-eb2e-e1a4-11d4bb228b40/out.jpg)
+
+---
+
 `@miles 11/10/2021 1:16 PM (UTC)`
 
 ...
@@ -286,13 +293,6 @@ The vaccination disaster has gradually become prominent: The patients in the ICU
 
 11/5/2021 Miles Guo: The jabs that the CCP gave to its troops are not COVID vaccines but the antibodies to boost immunity, while the Chinese Lao Baixing are injected with the experimental COVID jabs, and this clearly shows the evil of the CCP<br/><br/>11/5/2021 文贵直播：中共给军方打的不是疫苗而是增强免疫的抗体，而中国老百姓却被打了实验性的冠状病毒疫苗，这体现了中共的邪恶<br/>
 ![img](https://media.gettr.com/group20/getter/2021/11/06/04/52/d4f55fce-bf7d-24e3-8dd0-fb2007b20a14/out.jpg)
-
----
-
-`@miles 11/6/2021 4:47 AM (UTC)`
-
-11/5/2021 Miles Guo: In the hospitals in Beijing, there are at least 20,000 people who died abruptly and 70,000 people diagnosed with cancer or terminal cancer in the past month; Beijing’s garbage dump ended up being the crematorium; facing the COVID vaccine disaster, the CCP is telling a big lie!<br/><br/>11/5/2021 文贵直播：近一个月在北京医院至少有2万人猝死，7万人患癌症或癌症晚期；北京的垃圾场沦为火葬场；在疫苗灾难面前，中共却撒下弥天大谎！<br/>
-![img](https://media.gettr.com/group6/getter/2021/11/06/04/47/d44e330b-4fa7-e4fc-b67c-24621c147848/out.jpg)
 
 ---
 
