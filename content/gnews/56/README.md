@@ -2,52 +2,44 @@
 ---
 
 
-## 新西兰爆发和平示威 抗议疫苗强制令
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1651832/)
+## 万事达卡推出与加密货币挂钩的卡，加密货币可转为法币
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1652114/)
 
-作者：纽约香草山农场 – 四季
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/mastercard-crypto-linked-cards-1000x600-1.jpeg)
 
 
 
-11月9日，数千人在新西兰举行和平示威游行，游行者在惠灵顿市中心议会外聚集，抗议政府的疫苗强制令和封锁措施，被称为蜂巢的议会大厦被迫关闭。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1380-1.jpg)‎2021年11月9日，在新西兰惠灵顿，抗议者集会反对冠状病毒病（COVID-19）的限制和强制疫苗授权。‎（REUTERS/Praveen Menon）
-
-许多人举着写有“自由”和“新西兰人不是实验室的老鼠”标语的牌子，高喊口号，抨击媒体在说谎，要求政府收回强制接种疫苗令并取消限制。
-
-目前，新西兰仍然是世界上COVID-19病例最少的国家之一，迄今为止已报告的病例不到8000例，死亡32人，其完全疫苗接种率已达到其合格人口的近80%。
-
-尽管如此，新西兰总理阿德恩上个月仍然表示，新西兰将要求教师、卫生及残疾部门的工作人员全面接种COVID-19疫苗，此举招致了广泛的批评。阿德恩面临着越来越大的政治压力和公众抗议。
-
-**参考阅读：**[Thousands protest in New Zealand against COVID-19 rules | Reuters](https://www.reuters.com/world/asia-pacific/thousands-protest-new-zealand-against-covid-19-vaccine-mandate-2021-11-09/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
+图片来源：www.pymnts.com
 
 
+#### 编译：小红帽
 
-**更多资讯，更多关注**
+万事达卡周一宣布，在亚太地区推出与加密货币关联的支付卡。这将首次允许持卡人将其数字资产即时转换为法定货币。
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+该卡旨在消除不接受数字资产支付的商户与希望用加密货币支付的客户之间的任何障碍。
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+与香港的Amber Group、泰国的Bitkub和澳大利亚的CoinJar的合作将允许该地区的消费者和企业申请与加密货币挂钩的信用卡、借记卡或预付卡，这些卡可以在接受万事达卡的任何地方消费。
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+这三家公司还将加入万事达卡的全球加密卡计划，成为名册上第一个亚太地区的数字资产服务提供商。该计划旨在使加密货币交易尽可能无缝对接。
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+该计划推出之际，数字资产的总市值飙升到3万亿美元，这是有史以来第一次，大约相当于整个英国的经济规模。
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+万事达卡一直是走在数字资产整合前列的公司之一。7月，该公司升级了其加密货币卡，允许客户使用稳定币进行购买。而在10月，它与数字资产平台Bakkt合作，使消费者能够通过托管钱包购买、出售和持有数字资产。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+万事达卡此前还承诺帮助各国央行塑造和发展自己的数字货币，这些数字货币是类似于加密货币的数字代币，但不是去中心化的。
 
+**参考链接：**[Mastercard launches crypto-linked payments cards in Asia that allow holders to convert their crypto to fiat instantly | Currency News | Financial and Business News | Markets Insider (businessinsider.com)](https://markets.businessinsider.com/news/currencies/mastercard-cryptocurrency-linked-payments-cards-asia-fiat-amber-coinjar-bitkub-2021-11)
 
+***发布：小红帽***
 
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

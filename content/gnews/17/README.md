@@ -2,40 +2,50 @@
 ---
 
 
-## 美议员访台 中共急忙派军机巡逻
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1654062/)
+## 韩国推广疫苗加强针
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1654125/)
 
-翻译：Lulumi
+作者：纽约香草山农场 – 四季
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/china_taiwan_40518.jpg)在台湾国防部发布的这张未注明日期的资料照片中，一架中国人民解放军歼-16战斗机在一个未公开的地点飞行。(照片来源:台湾国防部 via 美联社)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-北京/台北报道：中共军方周二（11月9日）表示，在中国国防部谴责美国国会代表团乘坐军机来台访问后，中共军方在台湾海峡方向进行了一次战备巡逻。
 
-中国军方发言人在一份声明中说，这次巡逻是针对“有关国家”在台湾问题上的“严重错误”言行以及亲台独力量的活动。
 
-近几个月来，海峡两岸的紧张局势一直在上升，一年多来，台湾一直抱怨中共国的空军在这个北京声称是自己的主权岛屿附近反复执行任务。
 
-台湾国防部说，周二有六架中共军机进入台湾西南防空区，包括四架歼-16战斗机和两架侦察机。
 
-几家台湾媒体周二报道说，来自美国众议院和参议院的不特定成员已乘坐美国军机抵达台北。
+[OANN](https://www.oann.com/south-korea-urges-covid-19-booster-shots-as-severe-cases-hit-record/)11月10日报道，伴随着越来越多的老人患病并报告疫苗突破性感染，使严重和危重病例创下纪录，韩国政府鼓励其公民接种COVID-19加强针。
 
-当被问及这次访问时，台湾行政院长苏贞昌周三告诉记者，台美关系“非常重要”，他尊重“朋友之间的互访”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1393-1-2021-11-10T065222Z_2_LYNXMPEHA90CS_RTROPTP_0_HEALTH-CORONAVIRUS-SOUTHKOREA_1.jpg)‎2021年11月10日，一名男子在韩国首尔的一个检测点接受冠状病毒（COVID-19）检测。（REUTERS/Kim Hong-Ji）
 
-他说，政府将根据彼此的需要作出“适当的安排”，但没有详细说明。
+官方数据显示，严重的冠状病毒病例从10月份的300多例跃升至周三的460例。在重症患者中，82%以上是60岁以上的人。
 
-美国在台协会（AIT）是在没有正式外交关系的情况下事实上的美国大使馆，它没有立即回应评论请求。
+自上个月开始实施该计划以来，该国已为640232人接种了加强针，主要使用辉瑞， BioNTech和Moderna的疫苗。
 
-中国国防部在一份声明中说，美国国会成员乘坐军用飞机抵达台湾。“我们坚决反对并强烈谴责。”
+韩国本月开始逐步放宽对COVID-19的限制，因为它已经为近90%的成年人口，即5200万人口中的77%进行了全面接种。
 
-**参考资料：**[channelnewsasia][China conducts combat readiness patrol as US lawmakers visit Taiwan](https://www.channelnewsasia.com/asia/china-taiwan-combat-readiness-patrol-us-lawkmakers-visit-2301606)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
 
-* * *
+编辑/校对/发稿：小鹿
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

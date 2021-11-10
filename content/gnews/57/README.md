@@ -2,36 +2,53 @@
 ---
 
 
-## 亲历者爆料：中共按需杀人、活摘器官的血腥交易
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1650181/)
+## 新西兰爆发和平示威 抗议疫苗强制令
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1651832/)
 
-作者：英国喜庄园 – I770775
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-美东时间11月6日，爆料革命战友、一线临床医生Eglise接受《GTV真人真事》节目访谈，爆出中共按需杀人、活摘器官的流水线医疗黑幕。
+作者：纽约香草山农场 – 四季
 
-毕业于湘雅医学院的Eglise，曾是中共某军队医院的一线医生，曾亲自参与见证中共活摘器官的犯罪现场，因不堪忍受那种非人道的血腥屠杀，于多年前设法逃出中共国，目前在美国某医院从事临床医学工作。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-3.jpg)
-在节目中，Eglise医生说，中共的器官移植是一个很恐怖的产业，为了掩盖血腥的非法移植，中共不仅会建立专业的器官移植医院，还将医院特意建在劳改农场附近，便于器官的随时摘取。
 
-Eglise在节目中提到，中共第二军医大学的吴孟超医生，因为一生做了4000多例肝脏移植而闻名，但这都是因为，中共为他提供了大量的活体肝脏来源；肾移植奠基人谢桐，主导肾移植手术，其肾脏来源名义上是被枪毙的死刑犯，其实基本都是活体摘取。
 
-Eglise医生以亲历者身份爆料，再次验证了爆料革命郭文贵先生早在2017年9月就爆料的中共“活摘器官、按需杀人”的邪恶事实。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-参考链接：[亲历者爆料：中共按需杀人、活摘器官的血腥交易](https://gtv.org/video/id=6186c7e611d1862968029cb1)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+11月9日，数千人在新西兰举行和平示威游行，游行者在惠灵顿市中心议会外聚集，抗议政府的疫苗强制令和封锁措施，被称为蜂巢的议会大厦被迫关闭。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1380-1.jpg)‎2021年11月9日，在新西兰惠灵顿，抗议者集会反对冠状病毒病（COVID-19）的限制和强制疫苗授权。‎（REUTERS/Praveen Menon）
+
+许多人举着写有“自由”和“新西兰人不是实验室的老鼠”标语的牌子，高喊口号，抨击媒体在说谎，要求政府收回强制接种疫苗令并取消限制。
+
+目前，新西兰仍然是世界上COVID-19病例最少的国家之一，迄今为止已报告的病例不到8000例，死亡32人，其完全疫苗接种率已达到其合格人口的近80%。
+
+尽管如此，新西兰总理阿德恩上个月仍然表示，新西兰将要求教师、卫生及残疾部门的工作人员全面接种COVID-19疫苗，此举招致了广泛的批评。阿德恩面临着越来越大的政治压力和公众抗议。
+
+**参考阅读：**[Thousands protest in New Zealand against COVID-19 rules | Reuters](https://www.reuters.com/world/asia-pacific/thousands-protest-new-zealand-against-covid-19-vaccine-mandate-2021-11-09/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+编辑/校对/发稿：小鹿
+
+
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

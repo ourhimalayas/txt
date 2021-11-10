@@ -15,178 +15,178 @@
 
 ---
 
-### [CCP数字人民币及它不为人知对西方数字货币计划](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [东北罕见暴雪，停水停电菜价飞涨下民众的凄惨生活](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [世界因疫苗灾难发生反华是共产党的邪恶在为华人挖坑](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [比尔·盖茨承认COVID-19疫苗不能阻止病毒传播](/content/gnews/4/README.md)
+### [【玫瑰看新闻】 【回魂时刻】- 第184期 疫苗受害者专题新闻6#](/content/gnews/1/README.md)
  ` 新西兰新联邦新闻摘要`
 
-### [Hcoin的上市对CCP就是抽筋剥皮](/content/gnews/5/README.md)
+### [【玫瑰看新闻】 【回魂时刻】- 第184期 疫苗受害者专题新闻5#](/content/gnews/2/README.md)
+ ` 新西兰新联邦新闻摘要`
+
+### [【玫瑰看新闻】 【回魂时刻】 &#8211; 第178期 疫苗受害者专题新闻2#](/content/gnews/3/README.md)
+ ` 新西兰新联邦新闻摘要`
+
+### [喜币与棉花糖，延迟满足走上人生巅峰](/content/gnews/4/README.md)
+ ` zuzu`
+
+### [【玫瑰看新闻】 【回魂时刻】- 第182期 疫苗受害者专题新闻4#](/content/gnews/5/README.md)
+ ` 新西兰新联邦新闻摘要`
+
+### [CCP数字人民币及它不为人知对西方数字货币计划](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [东北罕见暴雪，停水停电菜价飞涨下民众的凄惨生活](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [世界因疫苗灾难发生反华是共产党的邪恶在为华人挖坑](/content/gnews/8/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [比尔·盖茨承认COVID-19疫苗不能阻止病毒传播](/content/gnews/9/README.md)
+ ` 新西兰新联邦新闻摘要`
+
+### [Hcoin的上市对CCP就是抽筋剥皮](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国国立卫生研究院顶级科学家反对疫苗强制令](/content/gnews/6/README.md)
+### [美国国立卫生研究院顶级科学家反对疫苗强制令](/content/gnews/11/README.md)
  ` 纽约香草山MOS02`
 
-### [11/10/2021 文贵直播：面临排华、反华、厌华的不利局面，爆料革命、新中国联邦只灭共，不反华](/content/gnews/7/README.md)
+### [11/10/2021 文贵直播：面临排华、反华、厌华的不利局面，爆料革命、新中国联邦只灭共，不反华](/content/gnews/12/README.md)
  ` 秘密翻译组-北美组`
 
-### [继美团、拼多多之后，红杉中国沈南鹏抛售小米](/content/gnews/8/README.md)
+### [继美团、拼多多之后，红杉中国沈南鹏抛售小米](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国禁止投资与中共国相关的军工和监控企业](/content/gnews/9/README.md)
+### [美国禁止投资与中共国相关的军工和监控企业](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/11/09 墙内世界](/content/gnews/10/README.md)
+### [2021/11/09 墙内世界](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [COVID —19 种族灭绝：儿童医院现在充斥着婴儿心脏病患者](/content/gnews/11/README.md)
+### [COVID —19 种族灭绝：儿童医院现在充斥着婴儿心脏病患者](/content/gnews/16/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [韩国推广疫苗加强针](/content/gnews/12/README.md)
+### [韩国推广疫苗加强针](/content/gnews/17/README.md)
  ` 纽约香草山MOS02`
 
-### [美国中期选举的参议员候选人与中共关系](/content/gnews/13/README.md)
+### [美国中期选举的参议员候选人与中共关系](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国会代表团乘军机访问台湾](/content/gnews/14/README.md)
+### [美国会代表团乘军机访问台湾](/content/gnews/19/README.md)
  ` HimalayaRussia`
 
-### [11/10/2021 文贵直播：中共六中全会内部报告曝光中共国外汇储备急剧下降，中共面临逆差、顺差双并行的不利局面](/content/gnews/15/README.md)
+### [11/10/2021 文贵直播：中共六中全会内部报告曝光中共国外汇储备急剧下降，中共面临逆差、顺差双并行的不利局面](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [联邦航空安全局寻求无意识偏见培训](/content/gnews/16/README.md)
+### [联邦航空安全局寻求无意识偏见培训](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [美议员访台 中共急忙派军机巡逻](/content/gnews/17/README.md)
+### [美议员访台 中共急忙派军机巡逻](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [NIH顶级科学家梅莫利将在直播中反对疫苗授权](/content/gnews/18/README.md)
+### [NIH顶级科学家梅莫利将在直播中反对疫苗授权](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国消费价格正以 40 年来最快速度飙升](/content/gnews/19/README.md)
+### [美国消费价格正以 40 年来最快速度飙升](/content/gnews/24/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [消息人士：加州州长因加强针不良反应神隐数周](/content/gnews/20/README.md)
+### [消息人士：加州州长因加强针不良反应神隐数周](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英国COVID住院人数是去年14倍的报道是假消息](/content/gnews/21/README.md)
+### [英国COVID住院人数是去年14倍的报道是假消息](/content/gnews/26/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [因拒绝接受新冠疫苗而被移除肾脏移植等候名单](/content/gnews/22/README.md)
+### [因拒绝接受新冠疫苗而被移除肾脏移植等候名单](/content/gnews/27/README.md)
  ` MG FARM`
 
-### [还有8 天&#8230;&#8230;福奇最糟糕的噩梦开始](/content/gnews/23/README.md)
+### [还有8 天&#8230;&#8230;福奇最糟糕的噩梦开始](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [波音公司寻求疫苗豁免的员工超11,000人](/content/gnews/24/README.md)
+### [波音公司寻求疫苗豁免的员工超11,000人](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中国建造全尺寸美国舰艇复制品](/content/gnews/25/README.md)
+### [中国建造全尺寸美国舰艇复制品](/content/gnews/30/README.md)
  ` MG FARM`
 
-### [11/10/2021 文贵直播： 六中全会内部报告曝光中共国的11个“第一”](/content/gnews/26/README.md)
- ` 秘密翻译组-北美组`
-
-### [海豹突击队员因疫苗强制令起诉拜登政府](/content/gnews/27/README.md)
- ` HimalayaRussia`
-
-### [随着以太币和比特币的增值，加密货币市场的总市值突破3万亿美元](/content/gnews/28/README.md)
+### [随着以太币和比特币的增值，加密货币市场的总市值突破3万亿美元](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021/11/10大卫作战室直播精要](/content/gnews/29/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [文贵爆料 10/11: 每日可提现10万，喜币再展锋芒](/content/gnews/30/README.md)
+### [文贵爆料 10/11: 每日可提现10万，喜币再展锋芒](/content/gnews/32/README.md)
  ` 秘密翻译组-原创组`
 
-### [阿里巴巴股东软银集团巨额亏损](/content/gnews/31/README.md)
+### [阿里巴巴股东软银集团巨额亏损](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [文贵爆料11.10.2021 六中全会内部统计报告11个第一揭示中共正加速溃烂](/content/gnews/32/README.md)
+### [文贵爆料11.10.2021 六中全会内部统计报告11个第一揭示中共正加速溃烂](/content/gnews/34/README.md)
  ` 秘密翻译组-原创组`
 
-### [2021年11月10日郭先生直播小飞象大雨围城速记](/content/gnews/33/README.md)
+### [2021年11月10日郭先生直播小飞象大雨围城速记](/content/gnews/35/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [CNN播放《芝麻街》诱使美国儿童接种中共病毒疫苗](/content/gnews/34/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [满足三个条件，才能发挥喜联储真正价值](/content/gnews/35/README.md)
+### [满足三个条件，才能发挥喜联储真正价值](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [六中全会向领导报告中共国获得的11个第一](/content/gnews/36/README.md)
+### [六中全会向领导报告中共国获得的11个第一](/content/gnews/37/README.md)
  ` 首尔天池农场`
 
-### [DC每日热点1110](/content/gnews/37/README.md)
+### [DC每日热点1110](/content/gnews/38/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [11/10/2021 国际财经快讯：美国延长对中共国军工相关公司的证券投资禁令;恒大面临支付1.48 亿到期美元债最后期限](/content/gnews/38/README.md)
+### [11/10/2021 国际财经快讯：美国延长对中共国军工相关公司的证券投资禁令;恒大面临支付1.48 亿到期美元债最后期限](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
 
-### [美军在关岛测试“铁穹”系统防备中共巡航导弹](/content/gnews/39/README.md)
+### [美军在关岛测试“铁穹”系统防备中共巡航导弹](/content/gnews/40/README.md)
  ` 日本东京方舟农场`
 
-### [中南海的空气能特供吗？](/content/gnews/40/README.md)
+### [中南海的空气能特供吗？](/content/gnews/41/README.md)
  ` 纽约香草山MOS03`
 
-### [COVID-19 最新情报｜南韩证明 高接种率仍无法病毒共存](/content/gnews/41/README.md)
+### [COVID-19 最新情报｜南韩证明 高接种率仍无法病毒共存](/content/gnews/42/README.md)
  ` G&#124;News TAIWAN`
 
-### [中共国防部回应美议员访台，称“中国必须统一”](/content/gnews/42/README.md)
+### [中共国防部回应美议员访台，称“中国必须统一”](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾前线｜美国防部：军机访台是义务、惯例](/content/gnews/43/README.md)
+### [台湾前线｜美国防部：军机访台是义务、惯例](/content/gnews/44/README.md)
  ` G&#124;News TAIWAN`
 
-### [两党参议员联合提案成立911式委员会调查冠状病毒起源](/content/gnews/44/README.md)
+### [两党参议员联合提案成立911式委员会调查冠状病毒起源](/content/gnews/45/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [比特币以太币创新高 加密货币市场大涨](/content/gnews/45/README.md)
+### [比特币以太币创新高 加密货币市场大涨](/content/gnews/46/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [国际要闻汇编 11月10日](/content/gnews/46/README.md)
+### [国际要闻汇编 11月10日](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本学者引经据典讲述“经济脱中”的必要性（之一）](/content/gnews/47/README.md)
+### [日本学者引经据典讲述“经济脱中”的必要性（之一）](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国参众议员再度访台，台湾如何真正安全？](/content/gnews/48/README.md)
+### [美国参众议员再度访台，台湾如何真正安全？](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【玫瑰看新闻】 【回魂时刻】 &#8211; 第180期 疫苗受害者专题新闻3#](/content/gnews/49/README.md)
+### [【玫瑰看新闻】 【回魂时刻】 &#8211; 第180期 疫苗受害者专题新闻3#](/content/gnews/50/README.md)
  ` 新西兰新联邦新闻摘要`
 
-### [世界对中共国好感骤减，皆因中共自作孽](/content/gnews/50/README.md)
+### [世界对中共国好感骤减，皆因中共自作孽](/content/gnews/51/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [全网找“鱼尾”](/content/gnews/51/README.md)
+### [全网找“鱼尾”](/content/gnews/52/README.md)
  ` 纽约香草山MOS03`
 
-### [纳瓦罗：福奇隐瞒了病毒来自武汉实验室导致数百万人死亡](/content/gnews/52/README.md)
+### [纳瓦罗：福奇隐瞒了病毒来自武汉实验室导致数百万人死亡](/content/gnews/53/README.md)
  ` 首尔天池农场`
 
-### [美支持日本增加国防开支的计划](/content/gnews/53/README.md)
+### [美支持日本增加国防开支的计划](/content/gnews/54/README.md)
  ` HimalayaRussia`
 
-### [喜联储每天提现最大金额为10万美金](/content/gnews/54/README.md)
+### [喜联储每天提现最大金额为10万美金](/content/gnews/55/README.md)
  ` 首尔天池农场`
 
-### [万事达卡推出与加密货币挂钩的卡，加密货币可转为法币](/content/gnews/55/README.md)
+### [万事达卡推出与加密货币挂钩的卡，加密货币可转为法币](/content/gnews/56/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新西兰爆发和平示威 抗议疫苗强制令](/content/gnews/56/README.md)
+### [新西兰爆发和平示威 抗议疫苗强制令](/content/gnews/57/README.md)
  ` 纽约香草山MOS02`
 
-### [亲历者爆料：中共按需杀人、活摘器官的血腥交易](/content/gnews/57/README.md)
- ` GTV新闻访谈`
-
-### [喜联储、喜币的诞生天生就是灭共的](/content/gnews/58/README.md)
+### [亲历者爆料：中共按需杀人、活摘器官的血腥交易](/content/gnews/58/README.md)
  ` GTV新闻访谈`
 
 ### [彼得·纳瓦罗写道彭斯是最终背叛了凯撒川普的布鲁图斯](/content/gnews/59/README.md)
