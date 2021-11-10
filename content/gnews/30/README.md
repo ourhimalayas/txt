@@ -2,74 +2,68 @@
 ---
 
 
-## [战友观点]马云选择哪一种死法？
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1651986/)
+## 参议员罗杰·马歇尔: 美国人民应该得到关于一个世纪以来最严重的大流行病的答案。 新冠从何而来？
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1652126/)
 
-温哥华扬帆农场  Michael.Tonny
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MAYUN.png)
-图片来源：soundofhope.org
+参议员罗杰·马歇尔: 美国人民应该得到关于一个世纪以来最严重的大流行病的答案。 新冠 COVID 从何而来？ 我正在与参议员恩斯特 [@SenJoniErnst](https://twitter.com/SenJoniErnst)、范因斯坦 [@SenFeinstein](https://twitter.com/SenFeinstein) 和吉利布兰德 [@SenGillibrand](https://twitter.com/SenGillibrand) 领导一个两党委员会来寻找答案。 【附视频，关于病毒溯源】
 
-马云就要被CCP弄死了，剩下的是他的死法，是否有足够的创意！
 
-以《日人民报》为首的墙国主流媒体对马云的野心、湖畔大学的危害全网痛批，目前已经进入到公开羞辱阶段。
 
-甚至内容都不需要论述，仅仅看一下以下标题，恐怕对中共国政治稍有了解的人，都知道，对马云意味着什么。
+> The American people deserve answers on the worst pandemic in a century. Where did COVID come from? I’m leading a bipartisan commission with [@SenJoniErnst](https://twitter.com/SenJoniErnst?ref_src=twsrc%5Etfw), [@SenFeinstein](https://twitter.com/SenFeinstein?ref_src=twsrc%5Etfw), & [@SenGillibrand](https://twitter.com/SenGillibrand?ref_src=twsrc%5Etfw) to find that answer. [pic.twitter.com/W32aatxRBl](https://t.co/W32aatxRBl)
+> — Dr. Roger Marshall (@RogerMarshallMD) [November 9, 2021](https://twitter.com/RogerMarshallMD/status/1458137631418732546?ref_src=twsrc%5Etfw)
 
-6月24日，《[马云为何创建湖畔大学？目的终于浮出水面，教育只是冰山一角](https://www.ixigua.com/6977307936250921476?logTag=005379f92fb58fa26d61)》；9月7日，《[官媒3次点名揭开马云真面目，他究竟做错了什么？亡羊如何补牢？](https://www.ixigua.com/7005098124293341732?logTag=4d91245e38eafe584f28)》；10月27日，《[司马南：马云远赴西班牙，身前身后那些事儿](https://www.ixigua.com/7023609213117006368?logTag=108b79e2d0c80a931e3e)》；11月1日，《[资本野心彻底曝光！马云建校目的令人毛骨悚然，湖畔大学被除名](https://www.ixigua.com/7025481896494629390?logTag=67d79f63aa4290f20fdb)》；11月1日，《[资本野心成枷锁！湖畔大学被“铲”，马云建校目的让人毛骨悚然](https://www.ixigua.com/7025514107851768357?logTag=d28e0d57d5b0473f36f8)》；11月6日，《[危害中国经济？马云的湖畔大学被国家除名！办校目的令人毛骨悚然](https://www.ixigua.com/7027471582591189517?logTag=6e2952112389e961b100)》；11月8日，《[揭露马云“真面目” 海外资产意外曝光 “奢华”程度令人咋舌](https://www.ixigua.com/7028218495120867871?logTag=0080b619a875f50aaf94)》；11月9日，《[马云建校目的令人毛骨悚然，官媒重拳铲除湖畔大学，简直无法忍受](https://www.ixigua.com/7028494496526500360?logTag=f0e4d2d6f8291d14c0e4)》；11月9日是，《[马云“神秘身份”公开令人吃惊！和老美合作，影响巨大！](https://www.ixigua.com/7028427177590948388?logTag=90ef1dfe17599e505d08)》。
 
-都说中南坑老杂毛就是一群土包子，对于中共国的富豪们来说，被CCP弄死的步骤无非是三步，永远吃相这么难看：
 
-1、先给个要钱不要命的念想，掏空你的钱；
+众议员马特·盖茨: 在向着 [#社会主义](https://twitter.com/hashtag/%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89?src=hashtag_click) 进军的道路上，乔·拜登在过去十个月里制造的每一个问题都变得更加糟糕。 我们必须反对正在压垮美国人的议程。我们必须在各个层面与这些人做斗争。
 
-2、从生活作风、害群之蚂、政治野心轮翻羞辱，直到人人欲除之而后快；
 
-3、死法选择。这个应当分三种类型：
 
-第一种：资产已经全部交出，准备留活口的，正式宣布收监；
+> Every problem Joe Biden has created over the last ten months gets worse on this march to socialism.
+> 
+> We have to be the opposition to an agenda that is crushing Americans. We have to combat these people at every single level. [pic.twitter.com/bKfSHqFq0D](https://t.co/bKfSHqFq0D)
+> — Rep. Matt Gaetz (@RepMattGaetz) [November 9, 2021](https://twitter.com/RepMattGaetz/status/1458221133031952386?ref_src=twsrc%5Etfw)
 
-第二种：不准备留活口的，没有人知道的死。跳楼死、心欢死、自己碎尸万段后投井死…..都是可选项；
 
-第三种：有资产还没弄到，先收监、过一段时间交出资产后离奇暴死。
 
-CCP弄死马云的手法没有任何创意，完全套用上述公式，也侧面验证，中南坑一窝不如下一窝，小学博士水平有限，缺乏创意。
+比尔·格茨（著名军情记者）： 五角大楼：中共国现在拥有世界上最大的海军，并计划在十年内拥有460艘军舰 【附比尔·格茨在华盛顿时报刊登的专栏文章】
 
-11月1日前，算是第一阶段。CCP媒体都在警告马云，只要交出资产，活命是没有任何问题的。官媒虽然公开点名批评，可是一直都在给马云亡羊补牢的机会，所以才有马云的西班牙“罩反了”。
 
-11月1日起，算是正式进入第二阶段。看新闻标题都可以猜到，马云的钱已经差不多被CCP弄走，人应当已经被身边的20多位保镖押解回国，开足马力，人格羞辱、群情激愤阶段，对马云的批判，绝不是“十大恨”够了的。
 
-但总加速师也绝非浪得虚名，二百斤十里山路都不知道换肩，也不是随便找个二楞子就能干得出来的事儿。从马云的遭遇来看，蛤蟆帮在与习大神的黑帮火拼中，暂落下风，习大神再得一点，就看总加速师什么时候直捣黄龙，拿下江蛤蟆。马云很快会进入第三阶段。
+> Pentagon: China now has the world’s largest navy and is planning for 460 warships by end of decade [https://t.co/O6TYEixEk5](https://t.co/O6TYEixEk5)
+> — Bill Gertz (@BillGertz) [November 9, 2021](https://twitter.com/BillGertz/status/1458193019895644170?ref_src=twsrc%5Etfw)
 
-对于马云来说，死法应当是第一种或第三种， CCP目前如此高调宣传，马云应当是非常幸运的，似乎暂时有保命的机会。马云最好的结局可能是资产已经全部交出，留命，搬砖当然别想了，判刑、收监，过完余生，甚至有改换主子，效忠崇祯的可能，苟活到新中国联邦推翻CCP那一天。但对马云来说，改投崇祯帝风险也是太大，蛤蟆帮会答应吗，搞不好死得更难看。
 
-如果马云还藏了一些资产，也不见风使舵，那最终就死得太屈辱了。先判刑、收监，等哪一天折磨得自己都不想活了，交出资产后，再创造出一种新的死法。
 
-接下来的日子里，您如果不能从CCP的AV频道里频繁看到这些消息，那可以问我要喜币了。CCP的AV频道会把马云会拉下神坛，马云被宣传为被大多数人痛恨的资本家，被利益蒙蔽了双眼，薅百姓羊毛；生活奢华，为富不仁，向老百姓转嫁风险；目的不纯，充满野心，笼络上流社会，不顾国家利益，不明白自己该做什么，不该做什么，妄想挣税国家控制。
+参议员玛莎·布莱克本： 克林顿团队签署、密封并向联邦调查局提交了欺诈性文件，以栽赃陷害川普总统。
 
-马云必死，应该不是“只有云知道”！
 
-参考资料：
 
-[马云为何创建湖畔大学？目的终于浮出水面，教育只是冰山一角](https://www.ixigua.com/6977307936250921476?logTag=005379f92fb58fa26d61)
+> The Clinton team signed, sealed and delivered fraudulent documents to the FBI to falsely frame and target President Trump.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 9, 2021](https://twitter.com/MarshaBlackburn/status/1458174531873513477?ref_src=twsrc%5Etfw)
 
-[危害中国经济？马云的湖畔大学被国家除名！办校目的令人毛骨悚然](https://www.ixigua.com/7027471582591189517?logTag=6e2952112389e961b100)
 
-[资本野心彻底曝光！马云建校目的令人毛骨悚然，湖畔大学被除名](https://www.ixigua.com/7025481896494629390?logTag=67d79f63aa4290f20fdb)
 
-[资本野心成枷锁！湖畔大学被“铲”，马云建校目的让人毛骨悚然](https://www.ixigua.com/7025514107851768357?logTag=d28e0d57d5b0473f36f8)
+前国务卿迈克·蓬佩奥：政府越界的缩影 【转CNBC : 尽管法院已下令暂停，但白宫仍告诉企业继续执行疫苗强制令】
 
-[马云建校目的令人毛骨悚然，官媒重拳铲除湖畔大学，简直无法忍受](https://www.ixigua.com/7028494496526500360?logTag=f0e4d2d6f8291d14c0e4)
 
-[官媒3次点名揭开马云真面目，他究竟做错了什么？亡羊如何补牢？](https://www.ixigua.com/7005098124293341732?logTag=4d91245e38eafe584f28)
 
-[揭露马云“真面目” 海外资产意外曝光 “奢华”程度令人咋舌](https://www.ixigua.com/7028218495120867871?logTag=0080b619a875f50aaf94)
+> ⬇️ The epitome of executive overreach [https://t.co/IzZlNhUzd8](https://t.co/IzZlNhUzd8)
+> — Mike Pompeo (@mikepompeo) [November 9, 2021](https://twitter.com/mikepompeo/status/1458167623146000386?ref_src=twsrc%5Etfw)
 
-[马云“神秘身份”公开令人吃惊！和老美合作，影响巨大！](https://www.ixigua.com/7028427177590948388?logTag=90ef1dfe17599e505d08)
 
-[司马南：马云远赴西班牙，身前身后那些事儿](https://www.ixigua.com/7023609213117006368?logTag=108b79e2d0c80a931e3e)
 
-（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+前白宫经济顾问皮特·纳瓦罗： 福奇早在2020年1月就疏忽地撒谎了，百万人因此丧生。福奇知道新冠病毒可能来自于实验室，而且是生物武器。请在我的《川普时代》一书中看完整的故事（附亚马逊购买链接） 【转breitbart，号外，皮特纳瓦罗：百万人因反社会的福奇向川普政府隐瞒了武汉实验室的细节】
 
-编审：文敏   发布：文敏
+
+
+> Fauci lied by omission as early as January 2020 and millions died. Fauci KNEW that virus likely came from lab and was a bioweapon.
+> 
+> Get full story In Trump Time. Buy at Amazon [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy)[https://t.co/u9pYrQKo6B](https://t.co/u9pYrQKo6B)
+> — Peter Navarro (@RealPNavarro) [November 9, 2021](https://twitter.com/RealPNavarro/status/1458080724490260490?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 

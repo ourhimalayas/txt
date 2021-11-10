@@ -2,45 +2,51 @@
 ---
 
 
-## 中共又一挑衅行为：美国海军舰艇的模拟模型成为导弹发射训练靶
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1651655/)
+## 比尔盖茨承认新冠疫苗不能阻止病毒传播
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1651937/)
 
-作者：香草山金融部 – 闲聊钱币
+作者：Dakata Christensen
+翻译: Himasally
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Bill.png)
+微软创始人、亿万富翁比尔·盖茨上周在接受采访时谈到了新冠疫苗，他承认疫苗并不能阻止病毒的传播。
 
+盖茨在谈到对抗病毒的可用工具时说：“我们的疫苗没有阻止传播。” “我们获得了有助于健康的疫苗，但它们只能略微减少传播。我们需要一种新的疫苗接种方法。”
 
+尽管是目前可用新冠疫苗最大支持者之一，盖茨承认他孜孜不倦支持的疫苗行业的失败。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-1.png)
+盖茨在全球范围内资助和帮助推广疫苗护照。他提倡并捍卫专制封锁。 他积极推动将这些疫苗注射到每个男人、女人和儿童身上。
 
+但是现在，盖茨承认并公开声明目前的新冠疫苗无法有效阻止传播。
 
+更有趣的是，比尔盖茨被允许在没有追索权的情况下发表这样的声明，而任何其他人都会因为提出这样的声明而立即被互联网审查员攻击。
 
-北京，11月8日（路透社）-Maxar的卫星图像显示，在塔克拉玛干沙漠中的一个新靶场综合体上建成了一艘美军航母和至少两艘阿利-伯克级导弹驱逐舰的全尺寸模型。图片还显示了一个6米宽的轨道系统，上面安装了一个船舶大小的目标，专家说这可能是用来模拟船只的移动。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture77-1.jpg)
-这些模拟模型反映出中共正在努力建立反航母的能力，特别是针对美国海军的能力，因为在台湾和南海问题上与华盛顿的关系日趋紧张。
+例如，谷歌旗下的视频共享平台 YouTube 最近扩大了审查政策，根据一项新政策禁止所有医疗和疫苗“错误信息”其中特别包括禁止任何“声称疫苗不会减少传播或得病”。
 
-五角大楼的最新年度报告表明，中共解放军火箭军在2020年7月曾向南海进行了首次确认的实弹发射。这次演习向南沙群岛以北的水域共发射了6枚DF-21反舰弹道导弹，中国在那里与台湾和四个东南亚国家存在领土争端。
+该政策补充说：“我们正在扩大我们在 YouTube 上的医疗错误信息政策，对目前使用的疫苗制定新的指导方针，这些疫苗经当地卫生当局和世卫组织批准并确认是安全有效的。”
 
-新加坡拉惹勒南国际研究学院(S. Rajaratnam School of International Studies)的研究员Collin Koh表示，无论是实弹演习还是沙漠练兵，中共离制造精确的反舰导弹还很远。但是他们不会停手，会持续进行下去。
+关于世卫组织很有趣的是：比尔盖茨在过去十年成为世卫组织的第二大捐助者，仅次于美国政府。
 
-在沙漠中模拟海洋环境练兵无异于在陆地学习游泳。但中共迫于邻国反对实演的压力以及自身捉襟见肘的财力物力也只能如此。
+比尔·盖茨指出新冠疫苗无法有效减少病毒传播的采访在 YouTube 的平台上进行，但尚未因违反 YouTube 的新政策而被删除。
 
-（本文仅代表作者观点）
+來源：[https://www.rebelnews.com/bill\_gates\_admits\_covid\_19\_vaccines\_dont\_stop\_viral\_transmission](https://www.rebelnews.com/bill_gates_admits_covid_19_vaccines_dont_stop_viral_transmission)
 
-参考来源：[中共又一挑衅行为：美国海军舰艇的模拟模型成为导弹发射训练靶](https://www.reuters.com/world/china/china-builds-mockups-us-navy-ships-area-used-missile-target-practice-2021-11-08/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Daily%20Briefing%20-%20Huawei%20COP26%20-%208/11/2021&amp;utm_campaign=Daily%20Briefing%20-%20Huawei%20COP26%20-%208/11/2021)
+（文章仅代表作者个人观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-编辑/校对/发稿：Hetangyuese
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+**关注我们**
 
+Discord 账号
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
