@@ -2,30 +2,39 @@
 ---
 
 
-## 继多家房企评级下调后，美警告中共国房地产风险
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1652290/)
+## 65岁以上的法国人需要打加强针以保持Covid通行证有效
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1652350/)
 
-#### 撰稿：东京樱花团/皓月当空郭
-![](https://assets.gnews.org/wp-content/uploads/2021/11/121-3.jpg)[图片来源](https://zh.wikipedia.org/wiki/%E8%81%94%E9%82%A6%E5%82%A8%E5%A4%87%E5%A7%94%E5%91%98%E4%BC%9A#/media/File:Marriner_S._Eccles_Federal_Reserve_Board_Building.jpg)
-美国联邦储备委员会周一表示，中共国房地产业面临压力，部分原因是监管机构重点关注负债累累的公司，以及全球金融状况收紧，这可能给美国金融体系带来一些风险。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-“鉴于中共国经济和金融体系的规模… 中共国的金融压力可能引发风险情绪恶化从而令全球金融市场承压，给全球经济增长带来风险，并影响美国，”美联储在最新金融稳定报告中称。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/1200x675_cmsv2_7d112b3a-2c20-5bd5-a409-19e9469d5867-6021968.jpg)
 
-惠誉周二调降佳兆业评级至“CCC-”，称评级下调反映出其认为佳兆业的流动性已进一步恶化，并称鉴于流动性紧张以及来自理财产品的未披露债务，佳兆业的信贷风险很高。这凸显出流动性紧缩。
 
-近几个月以来，已有多家大型房企评级下调，包括恒大、绿地控股、阳光城、中国奥园、祥生控股集团、富力地产、中梁控股！
 
-而这次佳兆业的境外债务规模在中共国房地产企业中位居第二，仅次于恒大集团。同时，还有无数房地产企业都处在债务违约风险中！
+图片来源：www.euronews.com
 
-简评：当房地产企业大面积爆雷违约时，中共可以利用极权来宣传和掩盖真相，可以利用高压维稳投资人以传递给世人的表面平静！但是欠的美元债是掩盖不掉的，到期是必须偿还。世界金融机构和投资者看清中共房地产企业真实状况，中共房企必然崩塌，整个中共金融和这个极权体制也必将崩塌死亡！
 
-信息来源：
+#### 编译：小红帽
 
-[综述：佳兆业请求帮助 美联储警告中国房地产业风险](https://cn.reuters.com/article/kaisa-group-fed-warning-1109-tues-idCNKBS2HV02M)
+法国总统埃马纽埃尔·马克龙 (Emmanuel Macron) 以中共病毒（COVID-19）病例增加为由宣布，从12月15日开始，65岁及以上的法国居民将需要接种中共病毒疫苗加强针，以保持他们的“健康通行证”有效。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+马克龙周二援引世界卫生组织 (WHO) 的评估称，大流行的“第五波”已经在欧洲开始，并宣布了对老年人的新要求，并扩大了50岁及以上人群接种加强针的资格。
+
+据法国媒体报道，马克龙声称：“在法国这样的国家，自由意味着责任和团结，”他敦促大约1000万尚未接受疫苗接种的公民这样做。 “给自己接种疫苗以保护自己。自己接种疫苗才能正常生活。”
+
+法国政府表示，7 月推出的“健康通行证”将不再适用于截至12月15日尚未接种加强针的65岁及以上人士。 大约80%符合条件的法国人口接种了疫苗，但自9月运动开始以来，680万老年人中只有300万人接种了加强针。
+
+**参考链接：**[French aged 65+ now need BOOSTERS to keep Covid pass — RT World News](https://www.rt.com/news/539830-france-covid-booster-pass/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,20 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月9日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1652137/)
+## 【玫瑰看新闻】 【回魂时刻】 &#8211; 第176期 疫苗受害者专题新闻1#
+` 新西兰新联邦新闻摘要` [轉載自GNews](https://gnews.org/zh-hans/1652197/)
 
-作者：香草山翻译部
+1.【爱尔兰】沃特福德一名 28 岁的医科女学生Arooj Imtiaz Lughmani
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
+2.【法国】普罗旺斯一名 17 岁女学生 Sofia Benharira
+
+温馨提示：⚠️爱惜生命 远离疫苗 推出问题，敲出真相，爆料在路上！
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1109text-SC.png)
-校对：Stay文苑
 
-编辑：Stay文苑
+❤❤🌹🌹🙏🙏特此鸣谢：
 
-发稿：Stay文苑
-
-视频参看：[11.9  晚GTV新闻访谈](https://gtv.org/broadcast/watch/618b201811d186296803abf7)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
+天滅中共战友提供了本专题素材！
 
  
 
