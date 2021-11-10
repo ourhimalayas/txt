@@ -15,83 +15,83 @@
 
 ---
 
-### [塔利班坎大哈阅兵，与中共1949北京阅兵何其相似](/content/gnews/1/README.md)
- ` G-NEWS TAIWAN`
-
-### [媒体报道英国因新冠病毒住院人数是去年的14倍的假消息](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共已准备普及加密数字人民币](/content/gnews/3/README.md)
+### [东北、内蒙古多地突降特大暴雪，老百姓受灾唯有自救](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [本次台湾四大公投已然变质成多数决](/content/gnews/4/README.md)
- ` G-NEWS TAIWAN`
-
-### [美国议员访台：展现台美紧密关系制约中共威胁](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [为毒疫苗推波助澜的罪恶](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [联邦法院暂停了拜登政府的私人雇主新冠疫苗强制令](/content/gnews/7/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [“善”、“恶”之间见文明](/content/gnews/8/README.md)
- ` 首尔天池农场`
-
-### [灭共七剑客之仁者剑&#8211;斯蒂芬·班农](/content/gnews/9/README.md)
- ` 波士顿五月花农场`
-
-### [爆料方舟](/content/gnews/10/README.md)
- ` 首尔天池农场`
-
-### [拜习会前夕 美延长中国“涉军企业”投资禁令](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [CDC和NIH官员是武毒所功能增强研究合作伙伴](/content/gnews/12/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [11/10/2021 国际财经快讯：美国延长对中共国军工相关公司的证券投资禁令;恒大面临支付1.48 亿到期美元债最后期限](/content/gnews/13/README.md)
- ` 秘密翻译组金融团队`
-
-### [美军在关岛测试“铁穹”系统防备中共巡航导弹](/content/gnews/14/README.md)
- ` 日本东京方舟农场`
-
-### [墙内要闻汇编 11月10日](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [短视频打造的假面](/content/gnews/16/README.md)
- ` 骄子`
-
-### [喜币的起起伏伏证明其真实](/content/gnews/17/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [想靠中共领导人更替来改变西藏境遇，达赖喇嘛又要失望了](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [震惊：大多数疫苗死亡发生在共和党控制的州](/content/gnews/19/README.md)
- ` 澳喜农场`
-
-### [焦点新闻摘要 2021年11月7日](/content/gnews/20/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [美国参众议员代表团搭乘军机访问台湾](/content/gnews/21/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [法国：不再建议30岁以下人士接种莫德纳疫苗](/content/gnews/22/README.md)
+### [首个站出来反对给儿童注射中共病毒疫苗的好莱坞明星](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [欧盟法院证实对谷歌数十亿美元的罚款](/content/gnews/23/README.md)
- ` Shuizhuyu`
+### [塔利班坎大哈阅兵，与中共1949北京阅兵何其相似](/content/gnews/3/README.md)
+ ` G-NEWS TAIWAN`
 
-### [中南海的空气能特供吗？](/content/gnews/24/README.md)
- ` 纽约香草山MOS03`
+### [媒体报道英国因新冠病毒住院人数是去年的14倍的假消息](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [战友初心](/content/gnews/25/README.md)
+### [中共已准备普及加密数字人民币](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [本次台湾四大公投已然变质成多数决](/content/gnews/6/README.md)
+ ` G-NEWS TAIWAN`
+
+### [美国议员访台：展现台美紧密关系制约中共威胁](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [为毒疫苗推波助澜的罪恶](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [联邦法院暂停了拜登政府的私人雇主新冠疫苗强制令](/content/gnews/9/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [“善”、“恶”之间见文明](/content/gnews/10/README.md)
  ` 首尔天池农场`
 
-### [秘翻在线：拜登政府闻到了强制接种中共病毒疫苗即将失败的味道](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
+### [灭共七剑客之仁者剑&#8211;斯蒂芬·班农](/content/gnews/11/README.md)
+ ` 波士顿五月花农场`
+
+### [爆料方舟](/content/gnews/12/README.md)
+ ` 首尔天池农场`
+
+### [拜习会前夕 美延长中国“涉军企业”投资禁令](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [CDC和NIH官员是武毒所功能增强研究合作伙伴](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [11/10/2021 国际财经快讯：美国延长对中共国军工相关公司的证券投资禁令;恒大面临支付1.48 亿到期美元债最后期限](/content/gnews/15/README.md)
+ ` 秘密翻译组金融团队`
+
+### [美军在关岛测试“铁穹”系统防备中共巡航导弹](/content/gnews/16/README.md)
+ ` 日本东京方舟农场`
+
+### [墙内要闻汇编 11月10日](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [短视频打造的假面](/content/gnews/18/README.md)
+ ` 骄子`
+
+### [喜币的起起伏伏证明其真实](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [想靠中共领导人更替来改变西藏境遇，达赖喇嘛又要失望了](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [震惊：大多数疫苗死亡发生在共和党控制的州](/content/gnews/21/README.md)
+ ` 澳喜农场`
+
+### [焦点新闻摘要 2021年11月7日](/content/gnews/22/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [美国参众议员代表团搭乘军机访问台湾](/content/gnews/23/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [法国：不再建议30岁以下人士接种莫德纳疫苗](/content/gnews/24/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中南海的空气能特供吗？](/content/gnews/25/README.md)
+ ` 纽约香草山MOS03`
+
+### [战友初心](/content/gnews/26/README.md)
+ ` 首尔天池农场`
 
 ### [正道归心](/content/gnews/27/README.md)
  ` 首尔天池农场`

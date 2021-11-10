@@ -2,92 +2,41 @@
 ---
 
 
-## 喜币的起起伏伏证明其真实
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1652878/)
+## 墙内要闻汇编 11月10日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1652915/)
 
-[https://gtv.org/video/id=618ba409adfd99590c35060e](https://gtv.org/video/id=618ba409adfd99590c35060e)
+#### 素材：东京樱花团｜GNEWS组
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1110qiangnei.png)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1110/20211110101959572.jpg)
 
-再一个战友们，现在
-My comrades, there is another one, now
 
-就像昨天暴跌一样
-just like the (situation of) yesterday’s plummet
+1、[**成都疫情出现1传13案例 系中共病毒德尔塔变异株**](https://www.aboluowang.com/2021/1110/1670081.html)
 
-一句话
-Only by one sentence
+近期四川成都爆发的疫情被指是中共病毒德尔塔（Delta）变异病毒株。成都出现1传13的案例。四川省疾控中心副主任唐雪峰称，自11月2日成都本轮首个病例后，经过病学调查和实验室基因测序，发现该病例为中共病毒德尔塔变异株引起；该病例此前有西北多地旅居史，与当地确诊病例存在明确轨迹重叠；故而认定病例与西北疫情病毒株为同一来源。通报称，首例病例及早期续发病例多为年轻人，活动范围广、接触人员多，除了公务活动外，还涉及酒吧、餐馆、健身房等多个场所，截至目前成都市已报告23例病例。
 
-你都能把你的币给抛掉
-it could make you sell your coins
+2、[**朝鲜重犯仍旧在逃 吉林官方提高赏金通缉**](https://www.aboluowang.com/2021/1110/1670047.html)
 
-变成13美金
-and turned to $13
+朝鲜籍男子朱贤健，上月18日逃出吉林省吉林监狱，行踪至今未明。长春市公安局二道区分局周二（9日）公告，加码悬红20万元人民币通缉追捕。当局提醒，朱贤健逃走时身穿监狱劳动服，目前有机会以更换衣着、化妆等改变样貌特征，呼吁在长春地区范围内的居民，如发现棚户区、空置房屋等容易匿藏的位置，有他人遗留物品痕迹，或有衣服、食品被盗，要及时打电话举报。朱贤健在2013年7月21日凌晨非法越境，翌日进入农村行劫闯入一个老妇家中，抢走她身上的袋，老妇被刺穿肺部，出现气胸和失血性休克。
 
-未来这个喜币如果没有上上下下
-In the future, if this HCoin doesn’t go up and down
+3、[**燃气行业被要求整改不足一周 上海发生死伤惨案**](https://www.aboluowang.com/2021/1110/1670158.html)
 
-它就不叫喜币
-it will not be called HCoin
+中共六中全会期间，上海杨浦区一居民楼发生燃爆事故，导致1死3伤。而稍早前，中共官方才通报，因频繁发生燃爆事故，要求相关行业整改。截至10日，上海官方未对此事做进一步通报。据悉，6天前的11月4日，大陆因今年燃气爆炸事故频发，中共国务院安委办通报称，今年多起事故涉及中国燃气控股有限公司（简称中国燃气），要求对燃气安全进行专项整治，将燃气事故多发的企业纳入“黑名单”等。
 
-它就是假的了
-because it’s fake
+4、[**一货轮在深圳沉没 水上航线暂停**](https://www.aboluowang.com/2021/1110/1669830.html)
 
-那就是共产党的恒生股市指数了
-And that would be the CCP’s Hang Seng Index
+中国媒体报道，一艘货轮周一在广东深圳水域沉没，船上的数十个货柜箱漂在海面上，导致附近多个水上航线临时停航。报道说，由香港驶往广东佛山“穗富航628”货轮机舱8日凌晨在深圳矾石水道水域突然进水，导致沉没，七名船员全部获救，约有70个货柜箱漂浮在海面，但事发水域并未发生污染。受此影响，深圳蛇口至珠海、中山、澳门等地的航班临时停航。深圳海事局正在研究货柜箱的打捞方案，而事故原因仍在调查中。
 
-24700 24200
-which is 24700, then 24200
+5、[**佩戴头巾女生禁止入校 河南一学校行为引众怒**](https://www.aboluowang.com/2021/1110/1670028.html)
 
-大陆的50%的所谓的
-In the mainland, 50% of the so-called
+从2019年三亚三所中学不准戴头巾穆斯林女生进入学校开始，中国在两年的时间里“悄无声息”的将大部分各级学校，通过各种方式，摘掉了穆斯林女生的头巾。近日，河南省长葛市一所小学将戴头巾的女生锁在大门外，不准她们进入学校，而校方给出的理由是佩戴头巾和中国《教育法》冲突。
 
-经济支撑的房地产都已经崩塌个球的了
-economically supported real estate has collapsed badly
+6、[**中国房企债务违约潮扩大 中南海恐慌了**](https://www.aboluowang.com/2021/1110/1670167.html)
 
-你还24000 那都是假的
-Hang Seng Index still has 24000, that’s all fake
+路透社周一引述一位直接了解会议情况的人士消息说，中共国务院智库——国务院发展研究中心周一（8日）与多家房企和银行在深圳举行会议。参加会议的包括万科、佳兆业及部分金融机构等。到目前为止，至少有四家房地产开发商的美元债券发生违约。根据一项估计，仅仅未来两个月，中国房地产公司就有400亿美元的款项需要支付给外国投资者。但中共当局仍口头对外释放信号说，没看到出现什么问题。银行家和金融界人士认为，如果中共政府坚持不对房地产行业提供救助，三千多亿美元的未偿房地产债务将对中国经济产生影响。
 
-它一定是跌、涨、跌
-It (HCoin) must be down, up, and down
-
-经常这样子的
-often like this
-
-有震动才是真的嘛
-Cause true market has shocks
-
-所谓的横行线一定是假的被操作的嘛
-The so-called horizontal line must be faked and manipulated
-
-但是我希望的是什么
-However, what I’m hoping is that
-
-跌的时候还是涨的时候都不是咱们战友
-it’s not (happen on) our comrades when it falls or when it rises
-
-是那些有钱的投资机构
-Instead, those are wealthy investment institutions
-
-Date: 11/07/2021
-原视频标题: 喜币的起起伏伏证明其真实
-The ups and downs of HCoin are proof of its truth
-原视频日期：2021/11/05
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1457268294163992581?s=24](https://twitter.com/se1y7cblljselva/status/1457268294163992581?s=24)
-任务编号：KC235（2803）
-视频时间段 : 0:00-0:57
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：东京樱花团 / 東洋武士
+发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-4.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

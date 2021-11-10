@@ -2,48 +2,28 @@
 ---
 
 
-## 媒体报道英国因新冠病毒住院人数是去年的14倍的假消息
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1653092/)
+## 首个站出来反对给儿童注射中共病毒疫苗的好莱坞明星
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1653139/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1200x800-700x420-2.jpg)盖蒂图片社提供的 SOPA 图片
-英国媒体报道说，新冠病毒住院人数比去年同期“高14倍”，尽管这显然是错误的。
+整理报道：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/untitled-collage-1541564452.jpg)图片来源：Today
+11月9日，《国会山报》报道了好莱坞影星马修·麦康纳（Matthew McConaughey）反对强制要求他的孩子接种中共病毒疫苗。
 
-天空新闻和独立电视网ITV都报道了国民医疗服务体系NHS首席执行官阿曼达•普里查德（Amanda Pritchard）的评论，她在呼吁人们接种疫苗加强针时使用了这个数字。
+麦康纳是一位美国知名男演员，他说“我已经接种了疫苗，我的妻子也接种了疫苗。我这样做不是因为有人告诉我必须这样做，（而是我）选择了这样做，（但）我不能（同意）强制为年幼的孩子们接种疫苗，我仍然想透彻了解更多信息。”
 
-普里查德称NHS正焦灼万分，并警告说未来几个月会很困难。
+现年52岁的麦康纳表示：“现在，我还不想为我自己的孩子打（冠状病毒）疫苗，以后我会告诉你。”基于对他人的境遇同情，他说：“现在，我处于这样一个可以做到这一点的位置，但是我明白，不是每个人都能做到这一点。”
 
-然而，后来她遭揭发因其一直在使用旧数据，声称住院人数比去年同期高14倍。
+#### 新闻来源
 
-NHS后来声称，普里查德做出的声明“是参照8月份最新公布的统计数据”。
+[McConaughey comes out against vaccine mandates for kids](https://thehill.com/blogs/in-the-know/in-the-know/580826-mcconaughey-comes-out-against-vaccine-mandates-for-kids)
 
-然而，最新的住院人数在NHS的网站上可以查到，而且显示远远没有达到普里查德所说的“14倍”的水平。
+发布：七彩光
 
-也许新闻机构在将普里查德的错误说法变成一个响亮的标题之前，应该费心去检查一下这些数字。
-
-天空新闻随后删除了他们的错误推文。
-
-正如我们之前所强调的，新闻媒体在很大程度上忽略了一个事实，即在过去的两周里，英国的COVID病例一直在下降，而之前则是抓住短期的病例上升以游说将管制重新实施。
-
-简评：
-
-这一套官僚媒体联手的宣传组合拳，继毒疫苗铺开以来，我们已经在各国屡见不鲜。在疫苗已经造成诸多灾难的当下，这样的手腕会被越来越多的民众看穿，进而积蓄能量以促成更大的反弹。虽然我们很难直接对黑幕背后的力量进行抗衡，但一次又一次揭露他们曝露于台面上的狼子野心，用真相揭穿当权者与主流媒体的假面，亦能起到断其手足同时唤醒普罗大众的作用。即使这些幕后黑手有足够的财力继续包养当下这套陈旧的话语体系，当抛弃这套体系的民众达到足够的量级，这背后的阴谋也就自然会土崩瓦解。
-
-新闻链接：
-
-[Media Outlets Report Fake News That UK COVID Hospitalizations Are 14 Times Higher Than Last Year](https://summit.news/2021/11/08/media-outlets-report-fake-news-that-uk-covid-hospitalizations-are-14-times-higher-than-last-year/)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
