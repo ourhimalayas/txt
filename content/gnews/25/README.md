@@ -2,28 +2,35 @@
 ---
 
 
-## 欧盟议员首提“疫苗伤害赔偿基金”议案
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1653604/)
+## 阿里巴巴股东软银集团巨额亏损
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653630/)
 
-编译撰稿：文明(添草灭共)， 校对编辑：硫酸羟氯喹64
+作者：韩国首尔天池农场 – 追着曙光跑
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据日本《雅虎新闻》报道，软银集团于当地时间11月8日在其财报说明会上公布了该企业的“国际会计准则合并财报”。财报显示，2021年7-9月，软银集团亏损3979亿日元；值得注意的是，2019年同期盈余6274亿日元。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/股东软银.jpg)
+软银集团在说明会中指出，在主要投资国中国，随着中国政府加强对掌握大数据的IT企业的监管，软银所投资的企业股价大幅下降，对其收益产生影响。此次也是软银集团季度最终损益自 2020 年 1 ~3 月以来，时隔5个季度首次出现亏损。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-2-edited.png)图片来源：MZST
+软银集团在中国投资的公司股票出现大跌，包含今年 6 月在美国市场上市的网约车服务滴滴出行中国公司，以及中国IT巨头阿里巴巴集团。
 
+在8日的财报说明会上，软银集团会长兼社长孙正义表明了“正处于严冬的风景之中”的看法。
 
-据德国时政新闻《每周视图》11月5日报道，欧盟议会议员在参照研究了【欧盟药品管理局】信息库中的有关具体数据后，首次提出了一项为“新冠病毒疫苗”接种受害者设立赔偿基金的议案。
+参考链接：
+[软银自2020年1-3 月以来，时隔5个季度首次出现亏损](https://gnews.org/zh-hans/1650044/)
 
-报道称，对该数据库的最新查询结果显示，在接种“新冠病毒疫苗”后出现严重副作用的案例共有约111万起 (包括5781起死亡案例)。其中，涉及【辉瑞公司】疫苗伤害案约53万例、【阿斯利康】疫苗约40万例，【莫得纳公司】疫苗约15万例以及【强生公司】疫苗约4万例等。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-该项议案还指出，欧盟委员会此前在与以上各大制药公司的谈判中，疑未采取任何措施以明确疫苗制造商的责任。并且欧盟议会的成员甚至没有被授权允许查看这些合同的具体内容。
+总编：正义的小新
+编辑：Zion文恩
+校对/发稿：Fei797
 
-据悉，在个别被泄露的欧盟委员会“新冠病毒疫苗”采购合同中，均显示了该疫苗的所有生产商都被排除在任何责任之外，而将其所有潜在风险全部转嫁给了该疫苗接种者和欧盟纳税人。
-
-* * *
-
-发稿：硫酸羟氯喹64
-
-[原文链接：](https://www.wochenblick.at/stark-eu-abgeordnete-fordert-entschaedigungs-fonds-fuer-impfopfer/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

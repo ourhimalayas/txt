@@ -2,39 +2,27 @@
 ---
 
 
-## 恒大持续抛售大额股份
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653605/)
+## 【美国立卫生研究院】将就“强制接种”展开公开辩论
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1653643/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月8日，恒大再次减持恒腾网络2亿股，套现4.07亿港元。继4日减持1.5亿股，5日减1.8亿股之后，恒大共出售5.3亿股恒腾网络，回笼资金达11.25亿港元。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/恒大持续.jpg)
-值得注意的是，恒大自6月份以来，6次减持恒腾累计22.84亿股，套现总计88亿港元。
+采编：青青， 编译撰稿：文莱
 
-同时恒大近期一直也在抛售其他资产。资料显示，10月18日，恒大集团在盛京银行的持股比例，已经49.59%下降至19.85%，共计变现金额110亿元。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-26-edited.jpg)图片来源：LDC
 
-参考链接：
-[恒大连续3个交易日卖出恒腾网络，套现11亿港元！许家印：必须全力以赴复工复产保交楼](https://finance.sina.cn/chanjing/gsxw/2021-11-09/detail-iktzqtyu6213637.d.html?from=wap)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+据知名自媒体【零对冲】11月9日报道，【美国国立卫生研究院】的部分顶级科学专家强烈反对目前在该国大规模实施的“新冠病毒疫苗”强制接种政策。并为此将在下个月主办针对该政策的现场伦理辩论会。
 
-总编：Ivy001
-编辑：文特
-校对/发稿：Fei797
+报道指出，拜登总统近期扩大了该疫苗接种授权，并因此影响到美国近8千万名包括大量卫生保健工作者在内的劳动工人。尽管当前医疗邻域的劳动力严重短缺，但当局仍执意授权企业主可以解雇那些未能及时提供疫苗接种证明的雇员。
 
-**更多资讯，更多关注**
+为此,【美国国立卫生研究院】将于12月1日就“疫苗接种授权的伦理问题”举行现场直播辩论会议。届时，该辩论会将向全美所有2万名研究院工作人员以及公众开放。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+据悉，以上讨论会是该研究院一位高级传染病研究专家，针对拜登政府的强制接种政策而开设的。该专家作为由福奇控制的临床研究部门负责人，希望以此提醒公众，面对“疫苗接种”所导致的两极分化，所有对立观点都应被仔细考虑和科学讨论。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+* * *
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+校对编辑，发稿：硫酸羟氯喹64
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[原文链接：](https://www.zerohedge.com/covid-19/top-nih-scientist-opposes-vaccine-mandate-will-host-live-nih-ethics-debate-next-month)
 
  
 

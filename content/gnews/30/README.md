@@ -2,30 +2,27 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月10日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1653567/)
+## 欧盟议员首提“疫苗伤害赔偿基金”议案
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1653604/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
+编译撰稿：文明(添草灭共)， 校对编辑：硫酸羟氯喹64
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-8.png)
-文章仅代表作者本人观点，与Gnews无关
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-2-edited.png)图片来源：MZST
 
-视频参看：2021.11.10早GTV新闻访谈
 
-[https://gtv.org/broadcast/watch/618bc8e6e7e770379232594b](https://gtv.org/broadcast/watch/618bc8e6e7e770379232594b)
+据德国时政新闻《每周视图》11月5日报道，欧盟议会议员在参照研究了【欧盟药品管理局】信息库中的有关具体数据后，首次提出了一项为“新冠病毒疫苗”接种受害者设立赔偿基金的议案。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+报道称，对该数据库的最新查询结果显示，在接种“新冠病毒疫苗”后出现严重副作用的案例共有约111万起 (包括5781起死亡案例)。其中，涉及【辉瑞公司】疫苗伤害案约53万例、【阿斯利康】疫苗约40万例，【莫得纳公司】疫苗约15万例以及【强生公司】疫苗约4万例等。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-1.png)
+该项议案还指出，欧盟委员会此前在与以上各大制药公司的谈判中，疑未采取任何措施以明确疫苗制造商的责任。并且欧盟议会的成员甚至没有被授权允许查看这些合同的具体内容。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+据悉，在个别被泄露的欧盟委员会“新冠病毒疫苗”采购合同中，均显示了该疫苗的所有生产商都被排除在任何责任之外，而将其所有潜在风险全部转嫁给了该疫苗接种者和欧盟纳税人。
+
+* * *
+
+发稿：硫酸羟氯喹64
+
+[原文链接：](https://www.wochenblick.at/stark-eu-abgeordnete-fordert-entschaedigungs-fonds-fuer-impfopfer/)
 
  
 
