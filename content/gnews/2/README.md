@@ -2,10 +2,10 @@
 ---
 
 
-## 日本群马县10月份中共病毒感染者有30%接种过疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1652061/)
+## 美国联邦参众议员搭乘军机突访台湾
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1652068/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._10-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1110-scaled.jpg)
 *编辑：东京樱花团/简报小组*
 *发布：东京樱花团 / tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
