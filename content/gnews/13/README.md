@@ -2,28 +2,31 @@
 ---
 
 
-## COVID-19 最新情报｜南韩证明 高接种率仍无法病毒共存
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1652757/)
+## 乔尔·恩比德在COVID-19检测中呈阳性，他将缺席数场比赛
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1652830/)
 
-**台湾宝岛农场 疫情关注组 / 发布时间｜10/11/2021**
+据《https://espn.com/》作者：Tim Bontemps，2021年11月8日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-55.png)
+一个消息来源告诉ESPN的Adrian Wojnarowski，费城76人队的中锋恩比德在周一早上的COVID-19检测中呈阳性。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+恩比德将错过周一对纽约尼克斯的比赛，根据NBA的健康和安全协议，他将至少隔离10天。这意味着恩比德将缺席至少五场比赛，并有可能在下周晚些时候复出，而费城正处于六场客场之旅中，主要是在西海岸。
 
+恩比德是目前处于健康和安全协议中的第四位76人队员，另三位是前锋托比亚斯·哈里斯和后卫马蒂斯·蒂布尔和以赛亚·乔。
+本赛季，在东部领先的76人队的9场比赛中，恩比德平均得到21.4分、9.4个篮板和职业生涯最高的4.0次助攻，他将缺席原定在周一晚上对尼克斯队的比赛。
 
-南韩11月1日改变防疫模式，急重症病例数急增，截至10日达到460例，超过82%急重症患者为60岁以上长者。南韩在改变防疫模式前，两个月以来急重症数维持在300多例。南韩防疫部门认为是疫苗保护力降低，配合宽松防疫政策导致疫情扩散。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/截圖-2021-11-10-下午5.21.25.png)南韩疫苗接种相关统计数据
-截至11月9日，完整接种覆盖率高达76.5%，仍因为“放宽防疫政策”导致急重症数量激增。南韩政府10日举办的中央灾难安全对策本部会议表示，新冠重症病例、死亡病例、病毒基本再生数等各项防疫指标的恶化速度均高于预期。
+随着恩比德的缺席，今年夏天以自由球员身份与费城签约的老牌中锋安德烈·德拉蒙德将取代他在首发阵容中的位置。
 
-- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
-- 相关：[瑞典研究显示完全接种疫苗后，抗体将在三个月后急剧下降](https://gnews.org/zh-hant/1576453/)
-- 相关：[COVID-19 最新情报｜关于“新冠口服药” 你不可不知的泽连科方案](https://gnews.org/zh-hant/1643262/)
-- 相关：[COVID-19最新情报｜政府荒谬地将COVID-19扩散归咎于未接种疫苗族群](https://gnews.org/zh-hant/1607453/)
+哈里斯在一周前执行了NBA的健康和安全协议，在76人队对阵波特兰开拓者队的比赛开始前不久，他在赛前的球场上进行了锻炼。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-7.jpg)
-* * *
+原文连接：[https://www.espn.com/nba/story/\_/id/32584227/source-philadelphia-76ers-joel-embiid-tests-positive-covid-19-expected-miss-several-games](https://www.espn.com/nba/story/_/id/32584227/source-philadelphia-76ers-joel-embiid-tests-positive-covid-19-expected-miss-several-games)
 
-來源｜[udn](https://udn.com/news/story/121707/5880718?from=udn_mobile_indexrecommend)
+翻译：洛杉矶盘古农场 — TrueSky
+校对：洛杉矶盘古农场 — Mike Li
+编辑：洛杉矶盘古农场 — 心照
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

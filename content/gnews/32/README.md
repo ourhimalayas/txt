@@ -2,45 +2,34 @@
 ---
 
 
-## 昆士兰州卫生工作人员的疫苗强制令扩展到私营医疗领域
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1652529/)
+## 国际要闻汇编 11月10日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1652542/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 素材：东京樱花团｜GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-15.png)[*图片来源*](https://gdb.voanews.com/0C6D535B-CF3E-4578-ADBA-A8D0263B0474_w1597_n_r1_st.jpg)
+1、[**拜登宣布继续禁止美国人投资中国相关企业**](https://www.voachinese.com/a/US-China-investment-ban-/6306694.html)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/昆士兰州.jpg)
+美国总统拜登周二（9日）表示，将继续禁止美国对华盛顿认为由中国军方拥有或控制以及与监控技术有关的中国公司进行投资，因为这种投资对美国的国家安全、外交政策和经济构成威胁。拜登总统宣布把特朗普总统2020年11月12日发布的第13959号行政命令中宣布的国家紧急状态继续一年的时间，以对付为中国的某些公司提供资金的证券投资对美国的国家安全、外交政策和经济造成的“不一般和非同寻常”的威胁。
 
+2、[**法建议为30岁以下者接种莫德纳疫苗**](https://www.aboluowang.com/2021/1110/1669921.html)
 
+法国高等健康署(HAS)周一（8日）建议，不要为年龄30岁以下民众接种莫德纳（Moderna）疫苗。这是由法国联合健康保险和药品管理局的机构牵头进行一项大型研究的重点结论。该研究报告指出，第一大受到影响的是人体的心肌，第二大受影响的是心包，也就是包裹着心脏周围的那层膜。法国的研究结果证实，辉瑞BNT（Pfizer）疫苗，尤其是莫德纳疫苗会增加接种后7天内发生的这些疾病风险，并且在30岁以下的男性中更常见。
 
-图片来源：www.theguardian.com
+3、[**美联储警告称中国房地产债务危机或冲击美国及全球经济**](https://www.voachinese.com/a/US-FED-warns-China-s-property-problems-could-hurt-global-markets-and-US-economy-20211109/6305996.html)
 
+美联储在星期一（8日）发布的半年一次“金融稳定报告”中，对中国企业的债台高筑和中国政府应对债务危机的方式表达了双重的关切。中国房地产巨头恒大集团突然深陷3050亿美元的债务危机，不仅引起中国国内金融市场的震撼，也造成全球金融市场的恐慌。纽约时报报道，恒大的债务危机并不是特例；至少有6家中国的房地产企业最近几个星期未能按期支付境外债券。美联储警告说中国房地产行业的债务危机有可能威胁到全球市场和美国经济。
 
-#### 编译：小红帽
+4、[**美国联邦参众议员乘军机突访台**](https://www.voachinese.com/a/jet-carrying-US-senators-congressmen-makes-surprise-visit-to-Taiwan-20211109/6306315.html)
 
-随着昆士兰州准备重新开放边境，该州将把对医护人员的疫苗强制令扩大到私营医疗领域。
+据美国之音华盛顿消息，美国海军一架C-40A行政专机周二（9日）从菲律宾首都马尼拉起飞，于傍晚时分抵达台北松山空军基地，机上搭载的是赴台湾访问的美国联邦参众议员。据台湾媒体报道，这次搭乘美国海军行政专机访台的代表团共有13人，其中包括4位联邦参议院和两位联邦众议员、议员助理以及美军上校和上尉各一人。目前尚不清楚这些联邦议员是那些人。
 
-州政府周三宣布，疫苗强制令也将适用于私立医院、日间手术室、全科诊所、药房、验光师、私人护士办公室、联合健康诊所、牙科手术室和私人病理中心。
+5、[**贸易战三年之后 中国对美国出口又呈大幅增长之势**](https://www.voachinese.com/a/us-china-trade/6305978.html)
 
-卫生部长伊薇特·达斯（Yvette D’Ath）说：”今天我宣布，我们将把这一公共卫生指令扩大到昆士兰的所有卫生设施–所有私立医院、社区药房、全科医生、物理治疗师。所有这些服务，每个卫生设施，或进入其他设施的卫生工作者，都需要在12月15日之前全面接种疫苗。”
+中国官方7日公布的数据显示，10月份出口同比大幅增长，月度贸易顺差创下历史新高，其中近一半来自对美国的顺差。这是美中自2018年爆发贸易冲突、美国对中国进口产品加征关税以来，美国仍然严重依赖中国进口、甚至可能会越陷越深的最新迹象。根据中国海关的数字，中国上个月的贸易顺差为5459.5亿元，同比激增38.4%，其中美国是对中国出口拉动最大的国家，对美国的顺差高达407亿美元。美国4日公布的统计也显示，美国从中国的进口大幅增长，9月份到4百70多亿美元，同比大增了60多亿美元。
 
-疫苗强制令也已扩大到卫生专业人员、承包商、独立的第三方提供者和外部机构聘用的雇员或志愿者。
-
-在宣布这一消息的前一天，州政府透露了从12月17日起对医院、老年护理和残疾设施的探访规则的修改。
-
-达斯还概述了当昆士兰州达到70%的两剂疫苗接种目标时，一旦允许来自（中共病毒COVID-19）热点地区的旅行者进入昆士兰州，家庭隔离将如何进行。
-
-据悉，那些符合标准的人将能够在住所而不是在酒店进行隔离。其中标准之一就是，你必须完全接种疫苗。
-
-**参考新闻：**[Vaccine mandate for QLD Health staff extended to the private sector, from GP clinics to pharmacies and dental surgeries | Sky News Australia](https://www.skynews.com.au/australia-news/coronavirus/vaccine-mandate-for-qld-health-staff-extended-to-the-private-sector-from-gp-clinics-to-pharmacies-and-dental-surgeries/news-story/e736cc49607ac58842bd5592adff764c)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团 / 文小白
+发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

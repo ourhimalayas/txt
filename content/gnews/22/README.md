@@ -2,107 +2,32 @@
 ---
 
 
-## 上千家机构进入喜联储开户
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1652659/)
+## 谁的命更重要？
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1652720/)
 
-[https://gtv.org/video/id=618b3156adfd99590c34eed7](https://gtv.org/video/id=618b3156adfd99590c34eed7)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/雅典娜.jpg)
 
-**郭文贵
-Miles Guo**
+作者：Kelly    
+编辑：Kelly
 
-这现在多少钱
-How much is this now?
+今天郭先生的盖特视频讲了一位上海体制内的朋友去年打了疫苗，现在已经过世了。而且他的全家除了小孙子，都打了疫苗，有三个已经出现疫苗副反应。这位体制内的朋友，六十多岁，身体一直很好，和郭先生认识很多年，去年刚刚开始打疫苗的时候问过郭先生对疫苗的看法，郭先生建议他不要打疫苗。他当时对郭先生说：“你觉得我的命值钱还是人家总统的命值钱？郭先生说：“人的命都值钱。”他说：“还是总统的命比我值钱比我重要，人家总统都打疫苗，我为啥不打？是吧？”郭先生说：“你这样说，你也觉得有道理，那你就打去吧。”
 
-人家各国政府说你胡扯
-Governments say the communists are bullshit
+中共口口声声说的党政干部是人民的公仆，实际上恰恰相反，他们视百姓如草芥。他们不仅有强烈等级观念，上下尊卑，血统论更是深入骨髓，搞生殖器治国。所以，这位上海体制内的人，才会发自内心的认为总统的命更重要，觉得郭先生说的人命同样重要是忽悠他的。
 
-官方的栽赃陷害没成功
-The CCP‘s official planted evidence did not succeed
+当我们劝说亲友不打疫苗的时候，话里话外最常听到的就是：“某某名人打疫苗了，某某富豪打疫苗了，某某明星打疫苗了，人家成功人士不比你聪明？不比你更惜命？你不打疫苗，你是不是傻？”这种思维就是中共文化等级尊卑，上行下效的结果。人人生而平等这句话只存在于书本中，早就被遗忘了。
 
-第二个
-The No. 2
+再者说，人命值不值钱和新冠疫苗有没有危害，是完全不同的两个概念。在同一个思维过程中，思维对象必须统一，否则就是混淆概念和偷换概念或转移论题和偷换论题，这是基本的逻辑学。
 
-说购买量市场评估金融
-is the market financial assessment of the volume of transactions
+中共的洗脑教育、洗脑宣传最擅长的就是搅浑水，偷换概念，目的就是让老百姓没有常识，没有逻辑。这下倒好，党员干部自己把自己的脑子也洗了，把自己的命也搭进去，还几乎把全家也搭进去了。
 
-说现在目前已经金融机构进去上千家
-Saying that over a thousand financial institutions have currently taken part of (the Himalaya Exchange)
+发布：热锅小蚂蚁
 
-已经过了KYC，开了账号
-They have opened accounts and passed the KYC
-
-未来这个价格是不可控的
-The future price is not controllable
-
-我们现在是1100多家
-We are now have more than 1100 financial institutions
-
-全球的金融机构进来开户了
-Global financial institutions have come in to open accounts
-
-所以这个市值已经达到了一币赢一国，
-So this market value has reached the level of one cryptocurrency to win a country
-
-赢了（中共）国
-It has won the (CCP) country
-
-共产党的海外美元3万亿，现在实际上只有1万亿
-The Communist Party has 3 trillion dollars overseas, but now it’s actually only 1 trillion
-
-我们的市值已经超过2万亿
-Our market capitalization has exceeded 2 trillion
-
-一币赢一国不是我说的
-The one single currency wins a country wasn’t come out from my mouth,
-
-是人民银行货币管理局和外汇管理局的潘功胜，还有蔡宇
-it was from Pan Gongsheng which is a member of the PBOC and the Foreign Exchange Bureau, and also Cai Yu
-
-对不起了蔡宇，我跟你无仇无怨
-Sorry Cai Yu, I have no grudge against you
-
-蔡宇和所有研究室的人报给潘功胜
-Cai Yu and all the researchers reported to Pan Gongsheng
-
-郭树清报给了习近平了
-and Guo Shuqing reported to Xi Jinping
-
-就是昨天
-It was yesterday
-
-我能知道你们这个文件，我就这么牛
-I have the ability to know your document, I’m just that good
-
-一币赢一国，一币战一国
-By using one currency to win a country, and to fight with a country
-
-这回实现了
-This has been achieved
-
-1000多个金融机构开户
-More than 1,000 financial institutions have opened accounts
-
-这不是我说的
-This was not stated by me
-
-* * *
-
-Date: 11/08/2021
-原视频标题: 上千家机构进入喜联储开户
-Thousands of institutions have entered the Himalaya Reserve to create accounts
-原视频日期：2021/11/05
-原视频链接：[https://twitter.com/se1y7cblljselva/status/1457268885963509760?s=24](https://twitter.com/se1y7cblljselva/status/1457268885963509760?s=24)
-任务编号：KC236(2801)
-视频时间段 : 0:00-1:14
-英听校：洛杉矶盘古农场 – Mike Li
-翻译：洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

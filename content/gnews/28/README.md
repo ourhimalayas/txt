@@ -2,20 +2,24 @@
 ---
 
 
-## 拜登与习近平将举行虚拟峰会
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1652560/)
+## 两党参议员联合提案成立911式委员会调查冠状病毒起源
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1652655/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11101.jpg)图片来自open.online
-11月10日：彭博社援引知情人士的报道称，美国总统乔拜登和中共国主席习近平将举行虚拟峰会，但具体日期尚未确定。
+#### 撰稿：彩虹      
 
-此举是在世界上最大的两个经济体陷入多重争端之际，包括技术、贸易、台湾和人权的情况下同意继续对话的重要性举动. 两国于 10 月初同意在年底前举行一次虚拟领导人会议，具体日期仍在谈判中。
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-65.jpg)图片来源：Axios
+11月9日，《新闻极限》报道，一个由参议员组成的跨党派小组提出方案，呼吁成立911式委员会，以调查冠状病毒的起源、政府的反应以及防止此类灾难的方法。
 
-白宫副发言人卡琳·让-皮埃尔周一重申，与中共国原则上达成协议，将在年底前举行虚拟会议。
+共同提出该法案的成员包括：堪萨斯的共和党参议员罗杰·马歇尔（Roger Marshall），爱荷华州的共和党参议员乔尼·恩斯特（Joni Ernst），加利福尼亚州的民主党参议员黛安·费恩斯坦（Dianne Feinstein）和纽约州的民主党参议员克尔斯滕·吉利布兰德（Kirsten Gillibrand）。
 
-原文链接：[https://www.ansa.it/sito/notizie/mondo/2021/11/10/usa-cina-prossima-settimana-vertice-virtuale-biden-xi\_6cdab777-b8be-4d65-90f3-56516394231a.html](https://www.ansa.it/sito/notizie/mondo/2021/11/10/usa-cina-prossima-settimana-vertice-virtuale-biden-xi_6cdab777-b8be-4d65-90f3-56516394231a.html)
+领导该小组的马歇尔在一份声明中说，这样的调查委员会“早就该成立了”。
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+恩斯特参议员表示，调查该病毒是自然起源还是从武汉病毒研究所泄露出来的非常重要。他说：“将近两年前，在中国武汉爆发的新冠病毒（COVID-19）疫情使世界陷入了前所未有的封锁状态。时至今日，由于中国政府拒绝与国际事实调查工作的努力充分合作，从而该大流行病的起源仍然是个谜。美国人民和世界应该得到答案，这就是为什么我很自豪地与我的跨党派同事一起创建一个两党委员会，以一劳永逸地查清该大流行病的真相，并确保它不再发生。”
+
+**新闻来源**
+
+[Bipartisan Group Calls for 9/11-Style Panel to Probe COVID Origin](https://www.newsmax.com/newsfront/commission-covid-origin-roger-marshall/2021/11/09/id/1043944/)
 
  
 
