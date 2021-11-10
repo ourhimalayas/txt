@@ -2,57 +2,48 @@
 ---
 
 
-## 中共国房地产暴雷对美国及全球经济将构成威胁
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1652163/)
+## 消息人士称加州州长被新冠加强针所伤，数周未见踪影
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1652237/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/雅观.png)图片来自网路
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-163.png)
+摘要翻译：
+
+消息人士告诉儿童健康保护组织（Children’s Health Defense），加州州长加文·纽森（Gavin Newsom），因他在10月最后一周接受了新冠疫苗强化针而受伤。
+
+一位接近加州州长加文·纽森的消息人士今天告诉[The Defender](https://childrenshealthdefense.org/defender/)（属于儿童健康保护组织的新闻网站），州长在10月27日接受莫德纳（Moderna）新冠疫苗时出现了不良反应。
+
+这位不愿透露姓名的消息人士说，纽森的症状与格林-巴利综合症（Guillain-Barré syndrome，GBS）相关的症状类似，格林-巴利综合症是一种许多疫苗都有的已知副作用。
+
+GBS是一种神经系统疾病，会令身体的免疫系统错误地攻击其部分周围神经系统（位于大脑和脊髓之外的神经网络），症状包括较轻微的短暂的虚弱到瘫痪，再到无法独立呼吸。
+
+州长自从10月27日被拍到注射新冠疫苗加强针后，一直没有再公开露面。
+
+纽森使用强硬手段，向包括儿童在内的加州民众推广疫苗。
+
+儿童健康保护组织主席罗伯特·F·肯尼迪(Robert F.Kennedy)宣称:“然而，如果州长在接种疫苗后真的遭受了严重的神经损伤，这就引发了严重的道德问题，因为他似乎不诚实地努力隐瞒疫苗对自己的伤害，同时实施咄咄逼人的政策，迫使加州的儿童和工薪阶层承受类似的风险。”
+
+【对于更多疫苗受害者的采访，你可在CDMedia的“美国访谈”网站上看到】
+
+原文链接：[https://creativedestructionmedia.com/news/2021/11/08/breaking-source-tells-childrens-health-defense-ca-gov-gavin-newsome-is-injured-by-vaccine-booster-not-seen-in-weeks/](https://creativedestructionmedia.com/news/2021/11/08/breaking-source-tells-childrens-health-defense-ca-gov-gavin-newsome-is-injured-by-vaccine-booster-not-seen-in-weeks/)
+
+简评：
+
+全球政客对新冠疫苗的强硬推行是无知或是一种高高在上的强权思维。如果报道情况属实，纽森出现了疫苗注射后的并发症，我们对此表示遗憾，但是对于他在自身出现症状后的不作为，以及逃避、隐瞒公众的做法感到愤慨。作为一位民选州长，他本应以民众利益、健康与安全为优先考虑，而不是掩盖疫苗危害、欺骗大众，甚至为了某种政治正确或利益，将民众置身于可见的疫苗灾难中。
+
+翻译：Kone\_Neko
+
+PR：Julia Win
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-**翻译：Lish**
-**校对：**Candy
+编辑：【英国伦敦喜庄园编辑部】
 
-美联储周一（澳大利亚东部时间周二）警告称：中共国房地产行业的压力 “对美国金融体系构成了一定的风险”，并指出像恒大这样负债累累的房地产公司是全球危机蔓延的潜在来源。
-
-美联储在其《半年度的金融稳定报告》中警告说：“鉴于中共国经济和金融体系的规模，以及它与世界其他国家的广泛贸易联系，中共国的金融压力可能通过风险情绪的恶化而使全球金融市场紧张，对全球经济增长构成风险，并影响到美国。”
-
-在国内方面，美联储还警告说，利率的 “急剧上升 “可能导致风险资产的 “大幅 “修正。此外，住房需求的减少反过来可能导致房价下跌。由于企业的借贷成本上升，就业和投资也可能受到打击。
-
-美国央行表示对中共国感到担忧，因为中共国的 “企业和地方政府的债务仍然很大；金融部门的杠杆率很高，尤其是中小型银行；房地产的估值也很紧张”。
-
-《报告》指出：“在这种环境下，监管部门对杠杆机构的持续关注有可能给一些高负债企业带来压力，特别是在房地产行业，最近围绕中共国恒大集团的担忧就是一个例子。”
-
-美联储表示：如果出现 “对金融公司的溢出效应，房地产价格的突然调整，或投资者风险偏好的降低”，中共国的金融系统可能会受到压力。
-
-在美联储主席鲍威尔(Jay Powell)将恒大的情况描述为中共国 “非常特殊 “的案例之后，央行发出了大约两个月的警告。鲍威尔在一次新闻发布会上说，他没有看到很多 “直接对美国的风险”，但他担心动荡可能对全球金融状况和投资者信心产生深远的影响。
-
-央行在《报告》中警告说：高度负债的新兴市场经济体也可能对金融稳定构成风险，特别是在金融条件 “突然和急剧 “收紧的情况下。
-
-在中共病毒危机之后，由于全球中央银行和其他政策制定者采取的行动，这些措施已经松动到历史水平。
-
-美联储在其报告中写道：“金融条件的急剧收紧，可能是由发达经济体的债券收益率上升、或全球风险情绪恶化引发的。可能会推高**新兴市场经济（**EME）主权国家和企业的偿债成本，引发资本外流，并对EME的金融体系造成压力。”
-
-备注：EME:** Emerging Market Economy 新兴市场经济**
-
-美联储说：”广泛和持续的压力 “可能会对美国金融系统产生影响，并补充说，与最脆弱国家有 “紧密联系 “的企业尤其面临风险。
-
-“《报告》中有一种相关的概念，”跨国银行及金融服务公司（ING）美洲地区研究主管帕德瑞克•加维（Padhraic Garvey）说：“人们担心的是：如果一件事发生了，其余的也可能发生。”
-
-在《报告》的一个特别章节中，美联储还分析了 “最近所谓的备忘录股票的波动”。写到：到目前为止，随着交易波动的平息，”这些发展对金融稳定的广泛影响是有限的”，但值得 “继续监测”。
-
-美联储表示，担忧的原因包括年轻投资者相对较高的杠杆率，以及这些杠杆率可能会使他们 “更容易受到股票价格大幅波动的影响”，特别是当如此多的市场参与者在交易股票期权时。
-
-央行表示，它还担心社交媒体和零售投资者之间的互动 “可能难以预测”，而且 “相关金融机构的风险管理系统，可能没有针对增加的波动性进行校准”。
-
-新闻链接：[Fed warns of risk to US of ailing China real estate sector (afr.com)](https://www.afr.com/world/asia/fed-warns-of-risk-to-us-of-ailing-china-real-estate-sector-20211109-p597gi)
-
-***发布：Candy***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

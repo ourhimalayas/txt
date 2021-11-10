@@ -2,23 +2,27 @@
 ---
 
 
-## 709律师谢阳出行变红码，健康码成为防控道具
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1651961/)
+## 喜交所创史上最大数字货币提现上限
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1652004/)
 
-#### 撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-45.jpg)[图片源](https://botanwang.com/articles/202111/%E4%BB%A3%E7%90%86%E5%BC%A0%E5%B1%95%E6%A1%88%7C%E8%B0%A2%E9%98%B3%E5%BE%8B%E5%B8%88%E9%95%BF%E6%B2%99%E6%9C%BA%E5%9C%BA%E5%81%A5%E5%BA%B7%E7%A0%81%E8%BD%AC%E7%BA%A2%E8%A2%AB%E6%8B%A6.html)
-【大纪元博谈网】709律师谢阳做为张展（公民记者因追踪报道武汉新冠肺炎疫情遭中共抓捕判重刑）的控告代理人从长沙到上海见张展的母亲与哥哥，了解健康情况并欲劝阻当事人的绝食行为。谢阳在出行前日遭遇当地管辖警察和国保的阻止去上海，并想用钱解决问题，遭到拒绝后离开。次日当谢阳到达飞机场时，健康码突然由绿色变为红色，成为重点防控对象，不许通行。现场还有急救中心车辆和防疫人员等待，想要将之接走。谢阳说怕有危险，自己强行离开了，并说出在低风险区的长沙最近没有一个感染病例，机场也没有要求出示核酸检测，这就是当地国安阻止他去上海的卑鄙手段。并要求大家多关注张展案。记者就健康码转红情况致电长沙疾控中心，工作人员称最近长沙没有出现确诊病例，起先说当事人离开长沙才会出现转成红码现象，后有说有不排除有外来人员来本市接触成为密接者，最后说不是疾控中心转的，是大数据控制的。
+**【雅典娜快讯】，紧贴时事脉搏**
 
-根据中共国国际发展知识中心的对健康码的解释是，可提高疫情防控效率，简化信息采集流程，及时掌握动态情况，更好的平衡疫情防控和恢复经济社会活动相关政策，并可掌握自身风险情况。但是从张展的经历，健康码已不是防疫而是防变的万能工具。比如可以防范上访人员的风险、低端人口的排除、防止聚集、可极权管理、监控每个人。让本就没有自由、人权的中共国成为一个更巨大的严密被监视的牢笼。请问，你还愿意在思想被统治、财产被剥削、没有发声的自由、没有人权的体制下苟延残喘吗？
+作者编辑：翼族
 
-信息源：
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-10-at-11.58.29-AM.jpeg)雅典娜设计组（精灵蓝）
 
-[代理张展案 谢阳律师长沙机场健康码转红被拦](https://botanwang.com/articles/202111/代理张展案%7C谢阳律师长沙机场健康码转红被拦.html)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+2021年11月9日，喜马拉雅交易所（Himalaya Exchange）公布喜美元（Himalaya Dollar）的取款上限为十万美元，不但创下数字加密货币提现上限的历史，也是改变世界金融系统的又一个开始。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/556bf1652fd8988ca527ba839d4a03b5.jpg)
+目前数字加密货币最流行的交易平台Coinbase的每日取现上限为五万美元。Coinbase又名“比特币基地”，成立于2012年。截至2021年3月，Coinbase是美国交易量最大的加密货币交易所。2021年4月13日，Coinbase在那斯达克交易所上市，成为加密货币产业在美国首家上市的公司。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-1.jpg)图片来源：Coinbase官网
+*发布：翼族*
 
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

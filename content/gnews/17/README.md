@@ -2,68 +2,24 @@
 ---
 
 
-## 参议员罗杰·马歇尔: 美国人民应该得到关于一个世纪以来最严重的大流行病的答案。 新冠从何而来？
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1652126/)
+## HCoin 隐私区块链技术是解除CCP的邪恶计划威胁的关键
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1652140/)
 
-参议员罗杰·马歇尔: 美国人民应该得到关于一个世纪以来最严重的大流行病的答案。 新冠 COVID 从何而来？ 我正在与参议员恩斯特 [@SenJoniErnst](https://twitter.com/SenJoniErnst)、范因斯坦 [@SenFeinstein](https://twitter.com/SenFeinstein) 和吉利布兰德 [@SenGillibrand](https://twitter.com/SenGillibrand) 领导一个两党委员会来寻找答案。 【附视频，关于病毒溯源】
+共产党就是你把我黑掉, 我就让你多黑掉了，所有的币都拿走，公开区块链就拿不回来了，就没了。比特币给你拿走了就拿不回来了，只有咱们这个技术，你拿走没用，你还得把币还回来。因为我是有痕迹的，都能拿回来，绝对的安全，所以对付共产党的招是什么，我们不是怕你的强奸我穿一铜裤罩。
 
+**【郭先生直播摘要】2021.11.7 HCoin ****隐私区块链技术是解除CCP****的邪恶计划威胁的关键**
 
+**郭先生：**
 
-> The American people deserve answers on the worst pandemic in a century. Where did COVID come from? I’m leading a bipartisan commission with [@SenJoniErnst](https://twitter.com/SenJoniErnst?ref_src=twsrc%5Etfw), [@SenFeinstein](https://twitter.com/SenFeinstein?ref_src=twsrc%5Etfw), & [@SenGillibrand](https://twitter.com/SenGillibrand?ref_src=twsrc%5Etfw) to find that answer. [pic.twitter.com/W32aatxRBl](https://t.co/W32aatxRBl)
-> — Dr. Roger Marshall (@RogerMarshallMD) [November 9, 2021](https://twitter.com/RogerMarshallMD/status/1458137631418732546?ref_src=twsrc%5Etfw)
+说到这是说你知道我们在喜联储。 最古老最大的威胁是什么？还不真不是你想要它的钱能出来的，我给你控制就完了，相信自己控制的了，你出不去。对它最大的打击是我们在外边的权利就是你已不可能渗透到喜联储，成为你的代言人，帮助你收集西方的金融情报和跟你一起做恶。它勾织了这一个所谓西方的数字货币时代到来的话语权, 因为我们它做不到。这才是它最大的吧。
 
+第2个，你知道喜联储干了什么事吗？核心技术，告诉咱们的技术是为啥要这么做吗? 你知道咱有啥技术跟人家不一样吗？我告诉你喜联储用的区块链技术，两个技术就是，一个叫隐私的私人区块链和公开区块链。 为啥咱要用私人区块链？它有两种就是一个是公开的。你看到刚才什么Coinbase什么是交易所全是公开的，只有我们是私人区块链。我再问你们谁能回答我30秒为啥我用私人区块链？
 
+我今天的直播战友们只要你拥有币的人，你最少看两遍, 最少看五遍。 我告诉你， 你拥有币的价值的10%左右， 第1条从这个实际上，对现在的这个，就Morgan Stanley，Oracle系统它是一个每一秒钟，它能做到可以到100单到1000的，甚至到一万单。另外一个系统，它就是公开链，它可能一分钟才能做十单，一秒钟有时候连一单，半单都做不了。很慢，那你说啊都没法用了就。
 
-众议员马特·盖茨: 在向着 [#社会主义](https://twitter.com/hashtag/%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89?src=hashtag_click) 进军的道路上，乔·拜登在过去十个月里制造的每一个问题都变得更加糟糕。 我们必须反对正在压垮美国人的议程。我们必须在各个层面与这些人做斗争。
+它的技术决定了，这是个技术上还有很多方面啊就是这个我就不说了，你们未来自己看，我不能一天都讲完。最核心的是共产党有关的这个问题，刚才政清说的跟共产党一点关系都没有，私块链最大的跟共产党就是你把我黑掉，我就让你都黑掉了，所有的币都拿走。公开区块链就拿不回来了，就没了。比特币给你拿走了就拿不回来了。什么币拿走就没了。包你看了刚才看到那个，Kraken拿走都没了。只有咱们这个技术，你拿走没用，你还得把币还回来，因为我是有痕迹的，都能拿回来，绝对的安全。所以对付共产党的招是什么？我们不是怕你的强奸，我穿一铜裤罩，是不是。我从生下来只要你挨我，挨我身体啊，你自己就得艾滋病，咱是天生就是灭共的。共产党你把这个币，你拿走，你白拿。
 
-
-
-> Every problem Joe Biden has created over the last ten months gets worse on this march to socialism.
-> 
-> We have to be the opposition to an agenda that is crushing Americans. We have to combat these people at every single level. [pic.twitter.com/bKfSHqFq0D](https://t.co/bKfSHqFq0D)
-> — Rep. Matt Gaetz (@RepMattGaetz) [November 9, 2021](https://twitter.com/RepMattGaetz/status/1458221133031952386?ref_src=twsrc%5Etfw)
-
-
-
-比尔·格茨（著名军情记者）： 五角大楼：中共国现在拥有世界上最大的海军，并计划在十年内拥有460艘军舰 【附比尔·格茨在华盛顿时报刊登的专栏文章】
-
-
-
-> Pentagon: China now has the world’s largest navy and is planning for 460 warships by end of decade [https://t.co/O6TYEixEk5](https://t.co/O6TYEixEk5)
-> — Bill Gertz (@BillGertz) [November 9, 2021](https://twitter.com/BillGertz/status/1458193019895644170?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 克林顿团队签署、密封并向联邦调查局提交了欺诈性文件，以栽赃陷害川普总统。
-
-
-
-> The Clinton team signed, sealed and delivered fraudulent documents to the FBI to falsely frame and target President Trump.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 9, 2021](https://twitter.com/MarshaBlackburn/status/1458174531873513477?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克·蓬佩奥：政府越界的缩影 【转CNBC : 尽管法院已下令暂停，但白宫仍告诉企业继续执行疫苗强制令】
-
-
-
-> ⬇️ The epitome of executive overreach [https://t.co/IzZlNhUzd8](https://t.co/IzZlNhUzd8)
-> — Mike Pompeo (@mikepompeo) [November 9, 2021](https://twitter.com/mikepompeo/status/1458167623146000386?ref_src=twsrc%5Etfw)
-
-
-
-前白宫经济顾问皮特·纳瓦罗： 福奇早在2020年1月就疏忽地撒谎了，百万人因此丧生。福奇知道新冠病毒可能来自于实验室，而且是生物武器。请在我的《川普时代》一书中看完整的故事（附亚马逊购买链接） 【转breitbart，号外，皮特纳瓦罗：百万人因反社会的福奇向川普政府隐瞒了武汉实验室的细节】
-
-
-
-> Fauci lied by omission as early as January 2020 and millions died. Fauci KNEW that virus likely came from lab and was a bioweapon.
-> 
-> Get full story In Trump Time. Buy at Amazon [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy)[https://t.co/u9pYrQKo6B](https://t.co/u9pYrQKo6B)
-> — Peter Navarro (@RealPNavarro) [November 9, 2021](https://twitter.com/RealPNavarro/status/1458080724490260490?ref_src=twsrc%5Etfw)
-
-
-
-
+视频剪辑：北方信使 |听写：小蜜蜂 | 翻译: Arthur 文徐|校对：烟波浩淼|视频制作+字幕：小腾腾说| 编辑&发布：断播
 
  
 

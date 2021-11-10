@@ -2,50 +2,45 @@
 ---
 
 
-## 新泽西州长共和党竞选人考虑要求重新计票
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1651454/)
+## 中共又一挑衅行为：美国海军舰艇的模拟模型成为导弹发射训练靶
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1651655/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：香草山金融部 – 闲聊钱币
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/C-2.jpg)news.yahoo.com
-笔者一直在关注新泽西州长选举能否“翻红”的进展，先后发表、转载了“新泽西州长选举共和党竞选人尚未承认失败”【1】，“共和党参选人拒绝承认新泽西州长的选举结果”【2】两篇文章，这是上周五（11月5日）前的事情。几天来，随着剩余选票的清点，似乎差距越来越大，已经达到6万多张，民主党参选人阵营、主流媒体呼吁杰克·恰塔雷利（Jack Ciattarelli）承认败选。
 
-昨晚（11月8日）《福克斯新闻》发表文章，题目是，“恰塔雷利在新泽西州州长竞选中权衡重新计票要求”，副标题称，但这位共和党人不相信存在欺诈。【3】
 
-全文如下：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-1.png)
 
-新泽西州共和党州长候选人杰克·恰塔雷利不准备认输，他称选举结果仍很接近，但明确表示他们没有提出欺诈指控。
 
-该竞选团队在周一（11月8日）的一份声明中说：“团队中没有人指控欺诈或渎职，因为我们没有看到任何可信的证据。”
 
-竞选团队指出，虽然恰塔雷利和民主党州长菲尔·墨菲（Phil Murphy）之间的选票差距约为66,405张，但仍有大约70,000张临时选票有待统计。此外，到星期一（11月8日）截止的数目不详的邮寄选票还在接收中。
+北京，11月8日（路透社）-Maxar的卫星图像显示，在塔克拉玛干沙漠中的一个新靶场综合体上建成了一艘美军航母和至少两艘阿利-伯克级导弹驱逐舰的全尺寸模型。图片还显示了一个6米宽的轨道系统，上面安装了一个船舶大小的目标，专家说这可能是用来模拟船只的移动。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture77-1.jpg)
+这些模拟模型反映出中共正在努力建立反航母的能力，特别是针对美国海军的能力，因为在台湾和南海问题上与华盛顿的关系日趋紧张。
 
-恰塔雷利的法律顾问马克·谢里登（Mark Sheridan）周一（11月8日）表示：“多等一两天来清点所有选票不应该有争议。”
+五角大楼的最新年度报告表明，中共解放军火箭军在2020年7月曾向南海进行了首次确认的实弹发射。这次演习向南沙群岛以北的水域共发射了6枚DF-21反舰弹道导弹，中国在那里与台湾和四个东南亚国家存在领土争端。
 
-竞选团队已经讨论了要求重新计票的可能性，但要等到所有选票得到清点后他们再评估局势，以决定是否要这么做。
+新加坡拉惹勒南国际研究学院(S. Rajaratnam School of International Studies)的研究员Collin Koh表示，无论是实弹演习还是沙漠练兵，中共离制造精确的反舰导弹还很远。但是他们不会停手，会持续进行下去。
 
-谢里登在周一与记者的电话会议上谈到目前的选票统计时说：“他们都支持杰克，根据目前的时间表改变选举结果的可能性不大，但这并不意味着不可以要求重新计票，我们现在在这里真正想做的是评估重新计票是否有意义。”
+在沙漠中模拟海洋环境练兵无异于在陆地学习游泳。但中共迫于邻国反对实演的压力以及自身捉襟见肘的财力物力也只能如此。
 
-竞选团队表示要求重新计票的阈值“大约是1%”，但仍强调，迄今为止拒绝认输并非基于任何欺诈报告。
+（本文仅代表作者观点）
 
-谢里登说：“我们没有听到关于欺诈、渎职或类似行为的任何可信的描述，我不想成为鲁迪·朱利安尼（Rudy Giuliani）那样，我的目标是确保我们得到准确的计数，然后根据法律和事实做出合理的决定，以决定我们是否要重新计算。”
+参考来源：[中共又一挑衅行为：美国海军舰艇的模拟模型成为导弹发射训练靶](https://www.reuters.com/world/china/china-builds-mockups-us-navy-ships-area-used-missile-target-practice-2021-11-08/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Daily%20Briefing%20-%20Huawei%20COP26%20-%208/11/2021&amp;utm_campaign=Daily%20Briefing%20-%20Huawei%20COP26%20-%208/11/2021)
 
-（全文完）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 
-在选举诚信问题上，福克斯是倾向于自由派观点，在没有完成计票的情况下，第一个宣布了拜登在亚利桑那州胜选，之后一直否认存在选举舞弊的行为。这样的背景，能登出这样的文章，实属不易。
+编辑/校对/发稿：Hetangyuese
 
-笔者纳闷的是，恰塔雷利的竞选团队为什么没有像弗吉尼亚州共和党竞选团队那样派驻更多的志愿者，严格监督计票过程？选举日的投票已经出现了异常现象，为什么没有采取跟进措施？现在还在冠冕堂皇地高调宣称“没有欺诈舞弊”，这就是计票差距越来越大的缘由，后面7万选票清点后，没准差距会突破10万，你也没有必要再重新计票了，等着认输吧！
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-弗吉尼亚州共和党竞选团队有4000多名志愿者和律师严格监督了整个的选举过程，民主党候选人输得心服口服。共和党建制派为主流的新泽西州不认为选举存在诚信问题，包括对2020大选的态度。这不是掉以轻心，而是认知水平的问题，对邪恶没有清醒的认识，希望通过这次选举，能警醒一批对邪恶还抱有幻想的人。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
-有关链接：
 
-【1】[https://gnews.org/zh-hans/1639151/](https://gnews.org/zh-hans/1639151/)
-
-【2】[https://gnews.org/zh-hans/1642193/](https://gnews.org/zh-hans/1642193/)
-
-【3】[https://www.foxnews.com/politics/ciattarelli-not-ready-to-concede-while-weighing-recount-doesnt-believe-there-was-fraud](https://www.foxnews.com/politics/ciattarelli-not-ready-to-concede-while-weighing-recount-doesnt-believe-there-was-fraud)
 
  
 

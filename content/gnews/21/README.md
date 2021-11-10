@@ -2,41 +2,68 @@
 ---
 
 
-## 习近平为什么要对钟南山及其家族动手
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1652005/)
+## 参议员罗杰·马歇尔: 美国人民应该得到关于一个世纪以来最严重的大流行病的答案。 新冠从何而来？
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1652126/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/钟南山.jpg)
+参议员罗杰·马歇尔: 美国人民应该得到关于一个世纪以来最严重的大流行病的答案。 新冠 COVID 从何而来？ 我正在与参议员恩斯特 [@SenJoniErnst](https://twitter.com/SenJoniErnst)、范因斯坦 [@SenFeinstein](https://twitter.com/SenFeinstein) 和吉利布兰德 [@SenGillibrand](https://twitter.com/SenGillibrand) 领导一个两党委员会来寻找答案。 【附视频，关于病毒溯源】
 
-作者：顺其自然
-编辑：李易通
 
-说起钟南山来，那在我国可是鼎鼎大名。我们先看一下维基百科的介绍，他是中国工程院院士，专长是慢性阻塞性肺病及其他呼吸道疾病。从2003年起，他是中国历次呼吸道传染病如SARS、H1N1、H5N6 、H7N9、新冠病毒的防治领军人物，尤其是因为参与广东省防治2003年非典型肺炎——SARS传染病而享誉国内外。
 
-维基上说，在2003年初，广东省等地开始爆发不明原因的肺炎病例，钟南山领导的课题组提出了一套行之有效的救治方法，大大提高了广东地区“非典”危重病人的抢救成功率，降低了死亡率，且明显缩短了病人的治疗时间。凭着多年经验，钟南山采用面罩通气方式维持病人生命，再使用适当剂量的皮质激素遏止病人肺部囊性纤维化。事实证明他的判断和尝试是正确的，世界卫生组织派出的专家组认为：以钟南山为首的广东专家摸索出来的治疗经验，对世界抗击非典型性肺炎有一定的指导意义。
+> The American people deserve answers on the worst pandemic in a century. Where did COVID come from? I’m leading a bipartisan commission with [@SenJoniErnst](https://twitter.com/SenJoniErnst?ref_src=twsrc%5Etfw), [@SenFeinstein](https://twitter.com/SenFeinstein?ref_src=twsrc%5Etfw), & [@SenGillibrand](https://twitter.com/SenGillibrand?ref_src=twsrc%5Etfw) to find that answer. [pic.twitter.com/W32aatxRBl](https://t.co/W32aatxRBl)
+> — Dr. Roger Marshall (@RogerMarshallMD) [November 9, 2021](https://twitter.com/RogerMarshallMD/status/1458137631418732546?ref_src=twsrc%5Etfw)
 
-但自去年开始，我们逐渐了解到，2003年的SARS也是中共的一次病毒实验，世卫组织是中共的一条狗，中共利实验室研究的生物武器病毒制造疫情灾难，然后把钟南山捧红，让他成为全国乃至国际上的权威人物，以此获得中共在此类疾病领域的话语权，好推行他们险恶的目的。中共故伎重演，2020年1月，钟南山院士任中华人民共和国国家卫健委高级专家组组长。这次的covid-19也是中共将实验室研究的生化武器病毒释放出来，造成全球的疫情灾难。
 
-在此期间，钟南山做了什么呢？2020年四五月份，钟南山在央视上说：“现在直接抗病毒的药都还没有找到，包括瑞德西韦等药物。连花清瘟适用于80%以上的普通患者，进行实验后，我有底气、有证据表明连花清瘟真的有效。”由于从2003年SARS起，钟南山在新冠肺炎领域获得顶级专家的地位，导致了全国人民疯抢莲花清瘟。澎湃网2020年4月9日报道，石家庄以岭药业2020年营收达87.82亿元，比2019年增长了50.76%，其中仅连花清瘟系列产品销售收入就超过42亿，同比涨幅近150%。
 
-2020年4月，以岭药业公告称连花清瘟获批用于CCP病毒治疗，其后股价连续涨停。不仅国内各大药店的连花清瘟胶囊、颗粒纷纷售罄，ebay平台连花清瘟胶囊售价也被炒到88.2元/盒，暴涨近6倍。那这个莲花清瘟的生产厂家以岭药业与钟南山有什么关系呢？以岭药业是另一位中国工程院院士吴以岭成立的公司，现在已经是市值400多亿的上市公司。钟南山与吴以岭在广州成立了南山以岭肺络联合研究中心。也就是说钟南山与吴以岭合作成立了一个研究中心，那他俩关系肯定不一般，所以我们看到钟南山推荐了吴以岭的以岭药业生产的莲花清瘟。不知道钟南山从中拿了多少好处，这只是其中之一。另外一个是天津红日健达康医药科技有限公司生产的血必净，他作为该公司的初始股东也推荐了该药物，之后红日股价大涨。
+众议员马特·盖茨: 在向着 [#社会主义](https://twitter.com/hashtag/%E7%A4%BE%E4%BC%9A%E4%B8%BB%E4%B9%89?src=hashtag_click) 进军的道路上，乔·拜登在过去十个月里制造的每一个问题都变得更加糟糕。 我们必须反对正在压垮美国人的议程。我们必须在各个层面与这些人做斗争。
 
-大家记住，钟南山可是有自己的基金会的，叫广东省钟南山医学基金会。这家基金会对外投资了六家公司，这六家公司分别是广州益健信息科技有限公司、广州呼研所红外科技有限公司、天津红日健达康医药科技有限公司、广州蒙发利环境科技有限公司、广州呼研所医药科技有限公司、北京百康芯生物科技有限公司。他名下最重要的子公司就是天津红日健达康医药科技有限公司，红日健达康于2012年4月成立，三个创始股东分别是天津红日药业、南山基金和北京健达康。钟南山本人从公司创立之初就担任董事，下面是从国家企业信用公示系统截取的该公司股东的初始出资情况：第一，天津红日药业和南山基金作为公司的创始股东，各出资现金250万元，各占12.5%的股权；第二，北京健达康以知识产权形式出资1400万，另外以现金出资100万，共获得75%的公司股权。
 
-血必净注射液，是红日药业长期以来的主打中药产品。关于它的不良反应的专业论文，一直以来就没停过，争议极大。2014年，在《辽宁中医杂志》上发布了一篇总结性的文章，归纳了39例血必净注射液的不良反应的症状， 主要表现为“以呼吸系统、皮肤和全身性损害为主”。但是在2020年2月2日新京报报道，血必净治疗新型冠状病毒肺炎的临床研究已启动，该项目由钟南山院士担任研究负责人。2月2日，新京报记者从红日药业证实此事。目前，武汉、广东、安徽的七家医院已按照临床研究方案使用血必净救治中共病毒患者。
 
-由于钟南山的强大光环作用，经他信用背书的血必净注射液，在没有任何临床数据支撑的情况下，被纳入新冠的第六版国家诊疗标准，成为了正式推荐药物。也就是钟南山把自己控股公司生产的中药产品血必净——一个存在诸多争议，不良反应病例比较多的药物作为新冠治疗药物。
+> Every problem Joe Biden has created over the last ten months gets worse on this march to socialism.
+> 
+> We have to be the opposition to an agenda that is crushing Americans. We have to combat these people at every single level. [pic.twitter.com/bKfSHqFq0D](https://t.co/bKfSHqFq0D)
+> — Rep. Matt Gaetz (@RepMattGaetz) [November 9, 2021](https://twitter.com/RepMattGaetz/status/1458221133031952386?ref_src=twsrc%5Etfw)
 
-所以从这一系列的资料可以看出，钟南山作为中国的工程院院士，尽管名义上是中国最顶级的专家，但他的成名来自于2003年中共推出的SARS病毒实验，他实际上是中共推出的一个傀儡专家。而且这个专家在这期间没少为自己谋利，无论是他自己成立的公司，还是与别人成立的研究所，他推荐的药物都是他旗下公司的产品，或者是与他有利益关联厂家生产的产品。血必净和莲花清瘟在这个疫情中让他的家族赚的盆满钵满，但是这个药的效果根本没用，那就是一个荒唐的笑话。
 
-现在习近平治下的中国没有钱了，他也要为跟着他的小弟弄点儿钱花，所以就要开始打土豪了，那这中间肯定少不了钟南山及其家族。就像打别的土豪一样，养猪是为了吃肉的，难道是为了爱吗？猪养肥了，到时候就该杀了，这是其中的一个原因。另外一个原因就是，这个疫情持续了两年多，习近平总是要找一个替罪羊的，那这个替罪羊找谁呢？太大的现在好像还动不了，因为与江家联系太深，所以就先找小一点儿的终南山下手。钟南山及其家族毕竟作恶在先，惩治他也是师出有名，一来可以平民愤，二来可以弄出些钱来，何乐而不为呢？所以说跟着共产党，跑步进入火葬场。无论是这些个土豪，还是专家，最后都是个狡兔死走狗烹的下场。
 
-发布：热锅小蚂蚁
+比尔·格茨（著名军情记者）： 五角大楼：中共国现在拥有世界上最大的海军，并计划在十年内拥有460艘军舰 【附比尔·格茨在华盛顿时报刊登的专栏文章】
 
-**更多资讯，请关注：**
-[**澳大利亚墨尔本雅典娜农场**Twitter](https://twitter.com/HimalayaAthena1)**：**HimalayaAthena
-[**澳大利亚墨尔本雅典娜农场**Gettr](https://www.gettr.com/user/himalayaathena)**：**himalayaathena
-[**澳大利亚墨尔本雅典娜农场**YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[**澳大利亚墨尔本雅典娜农场**Discord](https://discord.gg/76QVRChsgU)
-[**澳大利亚墨尔本雅典娜农场**GTV**直播**1**台**](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+> Pentagon: China now has the world’s largest navy and is planning for 460 warships by end of decade [https://t.co/O6TYEixEk5](https://t.co/O6TYEixEk5)
+> — Bill Gertz (@BillGertz) [November 9, 2021](https://twitter.com/BillGertz/status/1458193019895644170?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 克林顿团队签署、密封并向联邦调查局提交了欺诈性文件，以栽赃陷害川普总统。
+
+
+
+> The Clinton team signed, sealed and delivered fraudulent documents to the FBI to falsely frame and target President Trump.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 9, 2021](https://twitter.com/MarshaBlackburn/status/1458174531873513477?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克·蓬佩奥：政府越界的缩影 【转CNBC : 尽管法院已下令暂停，但白宫仍告诉企业继续执行疫苗强制令】
+
+
+
+> ⬇️ The epitome of executive overreach [https://t.co/IzZlNhUzd8](https://t.co/IzZlNhUzd8)
+> — Mike Pompeo (@mikepompeo) [November 9, 2021](https://twitter.com/mikepompeo/status/1458167623146000386?ref_src=twsrc%5Etfw)
+
+
+
+前白宫经济顾问皮特·纳瓦罗： 福奇早在2020年1月就疏忽地撒谎了，百万人因此丧生。福奇知道新冠病毒可能来自于实验室，而且是生物武器。请在我的《川普时代》一书中看完整的故事（附亚马逊购买链接） 【转breitbart，号外，皮特纳瓦罗：百万人因反社会的福奇向川普政府隐瞒了武汉实验室的细节】
+
+
+
+> Fauci lied by omission as early as January 2020 and millions died. Fauci KNEW that virus likely came from lab and was a bioweapon.
+> 
+> Get full story In Trump Time. Buy at Amazon [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy)[https://t.co/u9pYrQKo6B](https://t.co/u9pYrQKo6B)
+> — Peter Navarro (@RealPNavarro) [November 9, 2021](https://twitter.com/RealPNavarro/status/1458080724490260490?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 
