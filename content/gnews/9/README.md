@@ -2,55 +2,44 @@
 ---
 
 
-## 为儿童接种中共病毒疫苗缺乏数据支持
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1651983/)
+## 万事达卡推出与加密货币挂钩的卡，加密货币可转为法币
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1652114/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/辉瑞疫苗注射.png)
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-编译：Lish
-校对：李易通
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/mastercard-crypto-linked-cards-1000x600-1.jpeg)
 
-49名儿童因严重感染中共病毒被送进维多利亚州的重症监护室接受治疗，因此人们对中共病毒对儿童的影响提出了质疑。一位墨尔本医生希望对关于中共病毒及其疫苗对儿童影响的问题得到解答。
 
-默多克儿童研究所的专家说，中共德尔塔病毒变体对大多数儿童的影响非常温和。但是，随着学校重新开放进行面对面的学习，孩子们在朋友中互相传播病毒，这让人们仍然有些担心，因为向家长报告的数据也并不完整。
 
-保拉-利奇（Paula Leach）医生周日在社交媒体上撰文，对全科医生和家长缺乏准确、最新的信息表示失望。
+图片来源：www.pymnts.com
 
-她写道：”难道我是唯一一个对’我们是否应该为孩子接种疫苗’的讨论感到沮丧的人吗？”两边都有人宣称应该给TGA（治疗用品管理局）和ATAGI（澳大利亚免疫技术咨询小组）空间来做决定，但同时又把自己的意见推到公共领域。”
 
-“我很乐意等待相关部门做出决定。如果一种疫苗被批准用于儿童，那么作为一名全科医生，我的工作就是向父母提供无偏见的信息，以便他们能够做出决定。” “我以前为成人接种过疫苗，当时疫苗刚上市，中共病毒也还没有在社区传播开来。(还记得阿斯利康吗？) 全科医生已经为人们接种了疫苗，并将继续接种，但我们需要信息。”
+#### 编译：小红帽
 
-随后，利奇博士列出了一些她希望得到回答的关于新冠对儿童影响的问题：
+万事达卡周一宣布，在亚太地区推出与加密货币关联的支付卡。这将首次允许持卡人将其数字资产即时转换为法定货币。
 
-“在正常的教室环境中，传播的风险是什么？（不要从学校部分开放的时期取得的数据评估）”
+该卡旨在消除不接受数字资产支付的商户与希望用加密货币支付的客户之间的任何障碍。
 
-“在我们目前和预期的社区传播水平下，儿童住院、进入ICU和死亡的风险是什么？”
+与香港的Amber Group、泰国的Bitkub和澳大利亚的CoinJar的合作将允许该地区的消费者和企业申请与加密货币挂钩的信用卡、借记卡或预付卡，这些卡可以在接受万事达卡的任何地方消费。
 
-“感染后持续残疾的风险是什么？哪些潜在的疾病会增加严重感染的风险？”
+这三家公司还将加入万事达卡的全球加密卡计划，成为名册上第一个亚太地区的数字资产服务提供商。该计划旨在使加密货币交易尽可能无缝对接。
 
-“这些情况会在多大程度上增加风险？不同年龄段的人出现严重疫苗副作用的风险是什么？”
+该计划推出之际，数字资产的总市值飙升到3万亿美元，这是有史以来第一次，大约相当于整个英国的经济规模。
 
-**中共病毒对儿童的风险是什么？**
+万事达卡一直是走在数字资产整合前列的公司之一。7月，该公司升级了其加密货币卡，允许客户使用稳定币进行购买。而在10月，它与数字资产平台Bakkt合作，使消费者能够通过托管钱包购买、出售和持有数字资产。
 
-默多克儿童研究所与皇家儿童医院和墨尔本大学合作在9月份进行的研究，准确评估了儿童在德尔塔毒株的压力下所面临的风险，以及公共卫生决策是如何影响年轻人的思想的。
+万事达卡此前还承诺帮助各国央行塑造和发展自己的数字货币，这些数字货币是类似于加密货币的数字代币，但不是去中心化的。
 
-研究发现，”大多数患有中共病毒的儿童和青少年没有或只有轻微的症状，而且只在非常少的情况下导致死亡。” 截至9月5日，澳大利亚所有感染中共病毒的病例中，22%是19岁以下的青少年，9岁以下儿童中有5374例，10至19岁的儿童中有7223例。
+**参考链接：**[Mastercard launches crypto-linked payments cards in Asia that allow holders to convert their crypto to fiat instantly | Currency News | Financial and Business News | Markets Insider (businessinsider.com)](https://markets.businessinsider.com/news/currencies/mastercard-cryptocurrency-linked-payments-cards-asia-fiat-amber-coinjar-bitkub-2021-11)
 
-在2020年，澳大利亚约有50名儿童因中共病毒住院治疗，一名青少年感染中共病毒，另有一名严重感染中共病毒的青少年死亡。
+***发布：小红帽***
 
-研究人员对最近新南威尔士州的疫情进行了统计。他们发现，在6月16日至8月19日期间，0-5岁的儿童中有810例中共病毒病例，6-12岁的儿童中有945例，13-18岁的儿童中有1109例。
-
-但研究人员也指出，需要更多的数据信息来最准确地确定中共病毒对儿童的影响，以及对儿童医疗服务的影响。“关于儿童和青少年的疫苗接种，包括那些有潜在特殊风险的儿童和青少年，需要更多证据”。
-
-原文链接:[Covid-19 in children: Victorian GP’s questions about Delta and children in ICU | news.com.au — Australia’s leading news site](https://www.news.com.au/lifestyle/parenting/kids/melbourne-gp-wants-answers-on-how-seriously-covid19-impacts-children/news-story/ba24839a29a9f4cddad2cfc909c6ad01)
-
-发布：热锅小蚂蚁
-
-**更多资讯，请关注：**
-[**澳大利亚墨尔本雅典娜农场**Twitter](https://twitter.com/HimalayaAthena1)**：**HimalayaAthena
-[**澳大利亚墨尔本雅典娜农场**Gettr](https://www.gettr.com/user/himalayaathena)**：**himalayaathena
-[**澳大利亚墨尔本雅典娜农场**YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[**澳大利亚墨尔本雅典娜农场**Discord](https://discord.gg/76QVRChsgU)
-[**澳大利亚墨尔本雅典娜农场**GTV**直播**1**台**](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
