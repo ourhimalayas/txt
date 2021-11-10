@@ -2,10 +2,10 @@
 ---
 
 
-## CNN播放《芝麻街》诱使美国儿童接种中共病毒疫苗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1653439/)
+## 孙立军因涉嫌受贿被最高人民检察院依法批准逮捕
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1653422/)
 
-11/06/2021 CNN播放的《芝麻街》诱使美国儿童去接种中共病毒疫苗。节目称接种疫苗后每个人都能健康。
+11月5日，公安部原党委委员副部长孙立军因涉嫌受贿被最高人民检察院依法批准逮捕。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
