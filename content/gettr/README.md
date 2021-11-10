@@ -52,15 +52,6 @@
 
 ---
 
-**:arrows_clockwise: miles 已轉發**
-
-`@realfayfay 11/10/2021 7:02 PM (UTC)`
-
-华盛顿DC农场隆重推出《大实话》节目，为郝海东，叶钊颖夫妇量身打造的访谈节目。以他们的阅历爆料CCP体育界与官场内幕， 用他们的影响力感召更多的人参与爆料革命，建立中国人的民主自由，实现喜马拉雅。<br/>第一期：从喜币上市聊郝海东夫妇的金钱观<br/>时间美东时间11.11.2021周四早上10点(墙内周四晚上11点） <br/>GTV 直播频道：喜马拉雅华盛顿DC站 <br/>Gettr 直播频道：叶钊颖 @yezhaoying
-![img](https://media.gettr.com/group36/origin/2021/11/10/19/02/0fb56b75-6710-fc2d-f86f-fb154148ae8d/out.jpg)
-
----
-
 `@miles 11/10/2021 7:12 PM (UTC)`
 
 《文贵大直播》宣传片之『历史直播追忆』：“既然已经开始，我们决不妥协；既然已经开始，我们一定要赢！该我们赢了，我们必须赢！”  —— 英国伦敦喜庄园『战鹰影视』出品
@@ -294,6 +285,14 @@ The vaccination disaster has gradually become prominent: The patients in the ICU
 
 11-6：一切都已经开始！【美国🇺🇸联邦第五上诉法院发布命令暂时停止败登的疫苗强制令。败登政府必须在11月8日下午5点前回应法院对疫苗强制令提出的质疑。】
 ![img](https://media.gettr.com/group34/getter/2021/11/06/20/56/779af051-ec21-88f7-1c85-6ba6c3ba09e6/c574f25cc617cbda260910ca6394a96a.jpg)
+
+---
+
+`@miles 11/6/2021 5:31 PM (UTC)`
+
+@gfashion @DDNYC 
+> `@gfashion 11/6/2021 12:43 PM (UTC)`<br/>Rock your sole…
+![img](https://media.gettr.com/group38/getter/2021/11/06/12/43/6f6105c1-d99e-62da-cc02-3fde06bd8bcb/cd2918c9da3db3007b252e8e329f96f6.jpg)
 
 ---
 
