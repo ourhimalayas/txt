@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/10/2021 8:39 PM (UTC)`
+
+11/10/2021 Miles Guo: Exposed from the internal report of the 6th Plenary Session: the CCP virus caused huge shortage of medical personnel, because：1）numerous frontline doctors resigned or passed away; 2）adverse effects of the vaccine; 3）the deceiving propaganda of CCP led to huge exit of the frontline doctors, some even fled out of the country<br/><br/>11/10/2021 文贵直播：中共六中全会内部报告爆料，中共病毒导致医疗人士和专家人员极为短缺，原因有三：1）前线医生大量离职或死亡，2）疫苗后遗症，3）因国内的虚假宣传，前线医生大量离职乃至逃亡他国<br/>
+![img](https://media.gettr.com/group41/getter/2021/11/10/20/39/f29c629f-5bee-4efe-17ea-5c0c3954868b/out.jpg)
+
+---
+
+`@miles 11/10/2021 8:35 PM (UTC)`
+
+11/10/2021 Miles Guo: The internal report from the 6th Plenary Session exposed eleven “No. 1”s of CCP China, including: over 11 million people were diagnosed of cancer last year; the CCP’s real estate is facing huge oversea debt default, up to 270 - 600 billion dollars of debt are overdue within the next 30 days; numerous high rank foreign nationals left Hong Kong in the past 3 months. What do all these facts mean?<br/><br/>11/10/2021 文贵直播：六中全会内部报告曝光中共国的11个“第一”，包括：去年癌症发病人数1100万、房地产海外债务违约、且30天内将面临2700亿到6000亿的融资和票据贷款；过去三个月香港大量外籍和外资高管撤离，这些意味着什么？<br/>
+![img](https://media.gettr.com/group9/getter/2021/11/10/20/35/7d35e183-5710-bf2d-bdc0-ce4a846df504/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@realfayfay 11/10/2021 7:02 PM (UTC)`
@@ -281,20 +295,6 @@ The vaccination disaster has gradually become prominent: The patients in the ICU
 
 11月6号：尊敬的战友们好．你们健身了吗？传播．C C P病毒．香港危机．疫苗解药的真相了吗？七哥今天一天都和DC来的朋友开会，就没有时间录长视频了……明天的大直播间！
 ![img](https://media.gettr.com/group5/getter/2021/11/06/13/54/e6bc26ae-3637-cc97-f7f8-9709cf927fe7/out.jpg)
-
----
-
-`@miles 11/6/2021 11:49 AM (UTC)`
-
-班农先生：喜币成功上市是丰碑式的，新中国联邦和新中国人现在有了新货币。新中国联邦的版图正各就各位，反共力量的制度化令人惊叹。对比中共造成的死亡和破坏，新中国联邦、爆料革命和文贵先生带来的是正面影响，用顶尖的科技、真实的资本、真实的领导力去支撑这样的体系发展壮大是非常了不起的。<br/><br/>Mr. Bannon: The initial success of H-Coin is monumental. The New Federal State of China and the New Chinese now have new currency. The territory of the NFSC is taking its place, and the institutionalization of anti-CCP forces is impressive. Compared with the death and destruction caused by the CCP, the NFSC, the Whistleblower Movement, and Mr. Miles have had a positive impact. Using top technology, real capital, and real leadership to support the development and growth of such a system is pretty remarkable.
-![img](https://media.gettr.com/group1/origin/2021/11/06/11/49/2bfed491-37af-33f4-f41b-25799665200f/out.jpg)
-
----
-
-`@miles 11/6/2021 11:21 AM (UTC)`
-
-11/5/2021 Miles Guo: The CCP’s tyranny has lasted for 70 years, but no one rose to resist it, to expose or to disprove its lies, leading to the unprecedented ignorance of the Chinese people. The babies with COVID-vaccine-induced birth defects and disabilities are wrapped with gauze and smothered to death before being thrown away upon arriving in this world. What’s pathetic is that few parents realize that the COVID vaccines are to blame, while they believe it’s their own faults<br/><br/>11/5/2021 文贵直播：中共横行霸道70年，就是没有人去反抗，去戳穿它，去证明它，让中国人无知到了什么程度；中共疫苗致畸、致残的胎儿一降生即被残忍地缠死抛尸，悲哀的是没有父母认为这是打疫苗的错，都是自己的错<br/>
-![img](https://media.gettr.com/group34/getter/2021/11/06/11/21/94da3e6b-2c2e-333b-baa6-08197202307a/out.jpg)
 
 ---
 
