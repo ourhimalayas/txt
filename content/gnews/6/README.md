@@ -2,47 +2,45 @@
 ---
 
 
-## 英国COVID住院人数是去年14倍的报道是假消息
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1653969/)
+## 美国消费价格正以 40 年来最快速度飙升
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1653993/)
 
-据《零对冲》作者：TYLER DURDEN，2021年11月9日报道：
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-10-140502-edited.png)图片来源：网络
+继昨天美国 PPI 创下历史新高之后，隔夜我们看到中国生产者价格以 26 年来最快的速度上涨，预计今天早上的美国消费者价格数据将再次出现非暂时性的通胀飙升……但实际飙升 比预期的要大得多。
 
-作者：保罗·约瑟夫·沃森通过峰会新闻
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-177-e1636570477551.png)图片来源：零对冲网站
-英国媒体报道说，COVID的住院人数比去年这个时候“高14倍”，尽管这显然是错误的。
+美国 10 月份消费者价格同比飙升 6.2%，远高于预期的同比增长 5.9%，并且高于 9 月份的同比 5.4%，这是自 1982 年 6 月以来的最高水平……
 
-天空新闻和ITV都报道了NHS首席执行官阿曼达·普里查德的评论，他在呼吁人们接种强化疫苗时使用了这个数字。
+核心 CPI 也飙升至 1991 年 8 月以来的最高水平……
 
-普里查德说，NHS正在“热火朝天”地运转，并警告说未来几个月会很困难。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-178-e1636570724420.png)图片截取于推特
-然而，后来发现她一直在使用旧数据，声称住院率比去年这个时候高14倍。
+能源和二手车成本继续加速……
 
-国家医疗服务系统后来声称，普里察德“是指8月份最新公布的统计数据”来提出这一说法。
+而且二手护理价格CPI还没有上涨……
 
-然而，最新的住院人数可在NHS网站上查到，并显示远远没有达到普里查德所声称的“14倍”的水平。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-179-e1636570832677.png)图片截取于推特
-也许新闻机构在将普里查德的错误说法变成一个响亮的标题之前，应该费心检查一下这些数字。
+住房指数环比上涨 0.5%，租金和业主等价租金指数均上涨 0.4%，离家住宿指数上涨 1.4%。
 
-天空新闻随后删除了他们的错误推文。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-180-e1636570932270.png)图片截取于推特
-正如我们之前强调的那样，新闻媒体在很大程度上忽视了过去两周英国的COVID病例一直在下降的事实，而之前我们曾指出政府利用短期的病例上升来游说重新实施限制。
+10 月住房通胀率 3.48%，高于 3.16%
 
-原文连接：[https://www.zerohedge.com/covid-19/media-outlets-report-fake-news-uk-covid-hospitalizations-are-14-times-higher-last-year](https://www.zerohedge.com/covid-19/media-outlets-report-fake-news-uk-covid-hospitalizations-are-14-times-higher-last-year)
+10 月租金通胀 2.70%，高于 2.43%
 
-翻译：洛杉矶盘古农场 — TrueSky
+而业主等价租金通胀的飙升绝不会结束……
 
-校对：洛杉矶盘古农场 — Mike Li
+商品和服务通胀都在飙升……
 
-编辑：洛杉矶盘古农场 — 心照
+以防万一你陷入工资上涨的说法……为了掩盖这一点……他们不是！ 实际每周收入同比下降 1.6%，换句话说，美联储的行动正在摧毁人们的生活成本……
 
+PPI 和 CPI 之间的差距继续在创纪录的高位运行，这意味着要么消费者即将被压垮，要么利润率将崩溃（这很奇怪，因为利润率实际上处于历史高位）……
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+所以我们再一次问美联储主席布雷纳德是否会采取任何措施来阻止这种完全非暂时性的通胀飙升？
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**评：**全世界正在遭受着病毒与疫苗的灾难所带来的影响，不仅仅只是美国，而是全球的经济都将受到巨大的伤害。
 
+来源链接：[https://t.co/kvuNqzLs9q](https://t.co/kvuNqzLs9q)
 
+编辑/发布：LILY
 
+20211110
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

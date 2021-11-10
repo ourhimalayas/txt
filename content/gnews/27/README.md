@@ -2,35 +2,26 @@
 ---
 
 
-## 阿里巴巴股东软银集团巨额亏损
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653630/)
+## 加拿大迫切希望与“值得信赖的”人工智能企业合作
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1653657/)
 
-作者：韩国首尔天池农场 – 追着曙光跑
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据日本《雅虎新闻》报道，软银集团于当地时间11月8日在其财报说明会上公布了该企业的“国际会计准则合并财报”。财报显示，2021年7-9月，软银集团亏损3979亿日元；值得注意的是，2019年同期盈余6274亿日元。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/股东软银.jpg)
-软银集团在说明会中指出，在主要投资国中国，随着中国政府加强对掌握大数据的IT企业的监管，软银所投资的企业股价大幅下降，对其收益产生影响。此次也是软银集团季度最终损益自 2020 年 1 ~3 月以来，时隔5个季度首次出现亏损。
+采编：青青，        编译撰稿：苦尽甜来（文来）
 
-软银集团在中国投资的公司股票出现大跌，包含今年 6 月在美国市场上市的网约车服务滴滴出行中国公司，以及中国IT巨头阿里巴巴集团。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-27-edited.jpg)图片来源：CTV
 
-在8日的财报说明会上，软银集团会长兼社长孙正义表明了“正处于严冬的风景之中”的看法。
 
-参考链接：
-[软银自2020年1-3 月以来，时隔5个季度首次出现亏损](https://gnews.org/zh-hans/1650044/)
+据加拿大【CTV新闻】11月8日渥太华站报道，工业部长香槟当天对媒体表示，加拿大将在未来的人工智能产业中只与“值得信赖的伙伴”合作。并暗示联邦政府近期或将拒绝中国电信巨头华为作为其5G互联网通讯供应商。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+此前，由于中共国对加拿大实行的恶性人质外交政策，导致联邦政府对是否选择【华为】成为其“由人工智能驱动的下一代 5G互联网主要供应商”犹豫不决。
 
-总编：正义的小新
-编辑：Zion文恩
-校对/发稿：Fei797
+该部长为此表示，预计特鲁多政府将在11月22日，该国议会正式重新开始后的几周内做出相关决定。并称，随着加拿大与值得信赖的企业伙伴在5G互联网通讯领域展开的各项合作计划，处于首要考虑地位的国家安全将在很大程度上依赖于该项有望改变日常生活的人工智能技术。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://www.ctvnews.ca/politics/champagne-says-canada-only-wants-trusted-ai-partners-as-huawei-decision-looms-1.5657145)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

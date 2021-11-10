@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/10/2021 8:50 PM (UTC)`
+
+11/10/2021 Miles Guo: The internal report from the 6th Plenary Session revealed the so-called “cultural survey” conducted by the CCP. The survey results show that the Chinese people have been rated as the most unpopular in the world for 17 consecutive months and are faced with grave situations such as exclusion of the Chinese, and anti-Chinese sentiment and hatred. The Whistleblowers’ Movement and the New Federal State of China only seeks to take down the CCP, and we’re not anti-China/Chinese<br/><br/>11/10/2021 文贵直播：中共六中全会内部报告惊爆中共所谓的“文化调查”，结果显示中国人连续17个月被列为全球最不受欢迎的人，面临排华、反华、厌华的不利局面。爆料革命、新中国联邦只灭共，不反华。<br/>
+![img](https://media.gettr.com/group37/getter/2021/11/10/20/50/6551fe38-31b7-d5e9-1f61-704fffce682b/out.jpg)
+
+---
+
+`@miles 11/10/2021 8:43 PM (UTC)`
+
+11/10/2021 Miles Guo: Internal report from the 6th Plenary Session of the 19th Central Committee exposed the CCP is experiencing sharp decrease in its foreign exchange reserve and facing an undesirable coexistence of both the trade deficit and trade surplus - a dilemma of low end products surplus and the inaccessibility to high-end products such as computer chips<br/><br/>11/10/2021 文贵直播：中共六中全会内部报告曝光中共国外汇储备急剧下降，中共面临逆差、顺差双并行的不利局面 - 低端产品贸易顺差和高端芯片等产品买不到的困局<br/>
+![img](https://media.gettr.com/group48/getter/2021/11/10/20/43/63f80be9-e524-3bff-5a9f-0aa834fa7974/out.jpg)
+
+---
+
 `@miles 11/10/2021 8:39 PM (UTC)`
 
 11/10/2021 Miles Guo: Exposed from the internal report of the 6th Plenary Session: the CCP virus caused huge shortage of medical personnel, because：1）numerous frontline doctors resigned or passed away; 2）adverse effects of the vaccine; 3）the deceiving propaganda of CCP led to huge exit of the frontline doctors, some even fled out of the country<br/><br/>11/10/2021 文贵直播：中共六中全会内部报告爆料，中共病毒导致医疗人士和专家人员极为短缺，原因有三：1）前线医生大量离职或死亡，2）疫苗后遗症，3）因国内的虚假宣传，前线医生大量离职乃至逃亡他国<br/>
@@ -281,20 +295,6 @@ The vaccination disaster has gradually become prominent: The patients in the ICU
 @gfashion @DDNYC 
 > `@gfashion 11/6/2021 12:43 PM (UTC)`<br/>Rock your sole…
 ![img](https://media.gettr.com/group38/getter/2021/11/06/12/43/6f6105c1-d99e-62da-cc02-3fde06bd8bcb/cd2918c9da3db3007b252e8e329f96f6.jpg)
-
----
-
-`@miles 11/6/2021 3:11 PM (UTC)`
-
-11月6号：尊敬的战友们好！正在努力加入喜联储开喜美元帐号，准备买喜币的战友们……一定准确快速正确的聪明的准备好KYC的有关材料，这是关键的关键！
-![img](https://media.gettr.com/group39/getter/2021/11/06/15/11/74f1aa90-ca15-5a97-8ea7-14948af453fa/out.jpg)
-
----
-
-`@miles 11/6/2021 1:54 PM (UTC)`
-
-11月6号：尊敬的战友们好．你们健身了吗？传播．C C P病毒．香港危机．疫苗解药的真相了吗？七哥今天一天都和DC来的朋友开会，就没有时间录长视频了……明天的大直播间！
-![img](https://media.gettr.com/group5/getter/2021/11/06/13/54/e6bc26ae-3637-cc97-f7f8-9709cf927fe7/out.jpg)
 
 ---
 
