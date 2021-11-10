@@ -2,21 +2,39 @@
 ---
 
 
-## 加拿大近期或将推出抗新冠病毒药物治疗计划
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1653599/)
+## 恒大持续抛售大额股份
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653605/)
 
-编译撰稿：硫酸羟氯喹64
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月8日，恒大再次减持恒腾网络2亿股，套现4.07亿港元。继4日减持1.5亿股，5日减1.8亿股之后，恒大共出售5.3亿股恒腾网络，回笼资金达11.25亿港元。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/恒大持续.jpg)
+值得注意的是，恒大自6月份以来，6次减持恒腾累计22.84亿股，套现总计88亿港元。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a.png)图片来源：JDQ
+同时恒大近期一直也在抛售其他资产。资料显示，10月18日，恒大集团在盛京银行的持股比例，已经49.59%下降至19.85%，共计变现金额110亿元。
 
+参考链接：
+[恒大连续3个交易日卖出恒腾网络，套现11亿港元！许家印：必须全力以赴复工复产保交楼](https://finance.sina.cn/chanjing/gsxw/2021-11-09/detail-iktzqtyu6213637.d.html?from=wap)
 
-据加拿大法语媒体《魁北克新闻》11月9日报道，联邦政府正在制定一项用于抑制“新冠病毒”感染的药物治疗计划，试图以此尽快结束疫情，早日恢复该国正常经济发展。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-对此，魁北克省议会主席布莱克本在接受媒体采访时称：首先，联邦政府应尽快推出关于能在近期内使用该类药品的国家政策。其次，加拿大应与【默克公司】及【辉瑞公司】等不同制药公司积极合作，在本国推广其用于对抗“新冠病毒”感染药物的各项治疗方案。第三，继续在全国执行该病毒疫苗的既定接种政策。
+总编：Ivy001
+编辑：文特
+校对/发稿：Fei797
 
-据悉，【默克公司】在10月初宣布了其首款治疗“新冠病毒”感染的有效药物–莫努匹拉韦。而【辉瑞公司】也在11月5日推出了该公司用于有效抑制该病毒的药物-Paxlovid。有消息称，加拿大有望于今年底或明年初，开始在全国推广应用以上药物的治疗计划。
+**更多资讯，更多关注**
 
-[原文链接：](https://www.journaldequebec.com/2021/11/08/a-quand-les-pilules-contre-la-covid-19-au-canada-1)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

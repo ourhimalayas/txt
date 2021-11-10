@@ -2,34 +2,22 @@
 ---
 
 
-## 佛罗里达州将通过州立法 抵制拜登政府的疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653570/)
+## 加拿大近期或将推出抗新冠病毒药物治疗计划
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1653599/)
 
-作者：纽约香草山农场 – 蓝天大海
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据公开消息，佛罗里达州政府继一周前起诉拜登政府疫苗强制令后，近日又与州立法机构合作，计划制定新的法律，保护民众不会受到疫苗强制令伤害。
+编译撰稿：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide10-5.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a.png)图片来源：JDQ
 
-11月8日，佛罗里达州州长德桑蒂斯，该州参议院议长威尔顿.辛普森，和州众议院议长克里斯.斯普罗斯一起，在佛罗里达州和风山举行新闻发布会。州长德桑蒂斯表示，该州立法机构近期将举行特别会议，尝试制定一项新的法律，最强有力的保护各类就职人员，避免因为拒绝接种疫苗而失业。
 
-州长指出，拜登政府发布的疫苗强制令是违宪和越权的，此时此刻，我们必须为大众挺身而出，保护他们的工作和生计。同时，州长还强烈谴责了拜登和他的首席医疗顾问安东尼·福奇博士，称他们背弃了自己先前承诺不强制接种疫苗的诺言。
+据加拿大法语媒体《魁北克新闻》11月9日报道，联邦政府正在制定一项用于抑制“新冠病毒”感染的药物治疗计划，试图以此尽快结束疫情，早日恢复该国正常经济发展。
 
-参考链接：[DeSantis Just Backed Workers in a Huge Way: ‘We’ve Got To Stand Up For People’](https://conservativebrief.com/desantis-3-54206/?utm_source=CB&amp;utm_medium=TW)
+对此，魁北克省议会主席布莱克本在接受媒体采访时称：首先，联邦政府应尽快推出关于能在近期内使用该类药品的国家政策。其次，加拿大应与【默克公司】及【辉瑞公司】等不同制药公司积极合作，在本国推广其用于对抗“新冠病毒”感染药物的各项治疗方案。第三，继续在全国执行该病毒疫苗的既定接种政策。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+据悉，【默克公司】在10月初宣布了其首款治疗“新冠病毒”感染的有效药物–莫努匹拉韦。而【辉瑞公司】也在11月5日推出了该公司用于有效抑制该病毒的药物-Paxlovid。有消息称，加拿大有望于今年底或明年初，开始在全国推广应用以上药物的治疗计划。
 
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：谐趣园
+[原文链接：](https://www.journaldequebec.com/2021/11/08/a-quand-les-pilules-contre-la-covid-19-au-canada-1)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

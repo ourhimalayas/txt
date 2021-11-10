@@ -15,95 +15,95 @@
 
 ---
 
-### [2021年11月10日郭文贵先生大直播重点及概要](/content/gnews/1/README.md)
+### [加拿大人应该有一个选择](/content/gnews/1/README.md)
+ ` MG FARM`
+
+### [随着以太币和比特币的增值，加密货币市场的总市值突破3万亿美元](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021年11月10日郭文贵先生大直播重点及概要](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [11/10/21 香港快讯 3人被指转载贴文呼吁投白票 遭廉署拘捕](/content/gnews/2/README.md)
+### [11/10/21 香港快讯 3人被指转载贴文呼吁投白票 遭廉署拘捕](/content/gnews/4/README.md)
  ` 英喜-粵語組`
 
-### [法国卫生当局警告 30 岁以下男性避免使用 Moderna 疫苗](/content/gnews/3/README.md)
+### [法国卫生当局警告 30 岁以下男性避免使用 Moderna 疫苗](/content/gnews/5/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [文贵爆料 10/11: 每日可提现10万，喜币再展锋芒](/content/gnews/4/README.md)
+### [文贵爆料 10/11: 每日可提现10万，喜币再展锋芒](/content/gnews/6/README.md)
  ` 秘密翻译组-原创组`
 
-### [七哥模仿秀](/content/gnews/5/README.md)
+### [七哥模仿秀](/content/gnews/7/README.md)
  ` HimalayaRussia`
 
-### [串珠446:比特币一定不止2100万个,一旦证明必将消失](/content/gnews/6/README.md)
+### [串珠446:比特币一定不止2100万个,一旦证明必将消失](/content/gnews/8/README.md)
  ` 郭爆料串珠`
 
-### [马斯克或因投资新型加密数字货币而出售特斯拉股份](/content/gnews/7/README.md)
+### [马斯克或因投资新型加密数字货币而出售特斯拉股份](/content/gnews/9/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [加拿大迫切希望与“值得信赖的”人工智能企业合作](/content/gnews/8/README.md)
+### [加拿大迫切希望与“值得信赖的”人工智能企业合作](/content/gnews/10/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [【美国立卫生研究院】将就“强制接种”展开公开辩论](/content/gnews/9/README.md)
+### [【美国立卫生研究院】将就“强制接种”展开公开辩论](/content/gnews/11/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [阿里巴巴股东软银集团巨额亏损](/content/gnews/10/README.md)
+### [阿里巴巴股东软银集团巨额亏损](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [文贵爆料11.10.2021 六中全会内部统计报告11个第一揭示中共正加速溃烂](/content/gnews/11/README.md)
+### [文贵爆料11.10.2021 六中全会内部统计报告11个第一揭示中共正加速溃烂](/content/gnews/13/README.md)
  ` 秘密翻译组-原创组`
 
-### [文贵视角11.10：癌症、违约、资金外逃 -六中全会内部信息](/content/gnews/12/README.md)
+### [文贵视角11.10：癌症、违约、资金外逃 -六中全会内部信息](/content/gnews/14/README.md)
  ` 秘密翻译组-原创组`
 
-### [“新冠病毒”疫情严重打击加拿大经济](/content/gnews/13/README.md)
+### [“新冠病毒”疫情严重打击加拿大经济](/content/gnews/15/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [恒大持续抛售大额股份](/content/gnews/14/README.md)
+### [恒大持续抛售大额股份](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [欧盟议员首提“疫苗伤害赔偿基金”议案](/content/gnews/15/README.md)
+### [欧盟议员首提“疫苗伤害赔偿基金”议案](/content/gnews/17/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [加拿大近期或将推出抗新冠病毒药物治疗计划](/content/gnews/16/README.md)
+### [加拿大近期或将推出抗新冠病毒药物治疗计划](/content/gnews/18/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [喜币拥有者每年有优先认购喜币的权力且享受30%的折扣](/content/gnews/17/README.md)
+### [喜币拥有者每年有优先认购喜币的权力且享受30%的折扣](/content/gnews/19/README.md)
  ` 首尔天池农场`
 
-### [佛罗里达州将通过州立法 抵制拜登政府的疫苗强制令](/content/gnews/18/README.md)
+### [佛罗里达州将通过州立法 抵制拜登政府的疫苗强制令](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [美联储担心中共地产危机影响美国](/content/gnews/19/README.md)
+### [美联储担心中共地产危机影响美国](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [GTV新闻访谈简报|2021年11月10日早](/content/gnews/20/README.md)
+### [GTV新闻访谈简报|2021年11月10日早](/content/gnews/22/README.md)
  ` 纽约香草山MOS01`
 
-### [文贵爆料 11.10.2021 六中全会主要目的是确定军政大权集于习家人、习家军](/content/gnews/21/README.md)
+### [文贵爆料 11.10.2021 六中全会主要目的是确定军政大权集于习家人、习家军](/content/gnews/23/README.md)
  ` 秘密翻译组-原创组`
 
-### [中共病毒疫苗诱发的心肌炎比自然感染严重10-100倍](/content/gnews/22/README.md)
+### [中共病毒疫苗诱发的心肌炎比自然感染严重10-100倍](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [新西兰数千人游行，抗议政府疫情封锁和疫苗强制令](/content/gnews/23/README.md)
+### [新西兰数千人游行，抗议政府疫情封锁和疫苗强制令](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [CNN播放《芝麻街》诱使美国儿童接种中共病毒疫苗](/content/gnews/24/README.md)
+### [CNN播放《芝麻街》诱使美国儿童接种中共病毒疫苗](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [为举办冬奥会，中共隐瞒病毒疫苗死亡真相](/content/gnews/25/README.md)
+### [为举办冬奥会，中共隐瞒病毒疫苗死亡真相](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [喜联储将以“零中介”改变现有交易规则](/content/gnews/26/README.md)
+### [喜联储将以“零中介”改变现有交易规则](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [孙立军因涉嫌受贿被最高人民检察院依法批准逮捕](/content/gnews/27/README.md)
+### [孙立军因涉嫌受贿被最高人民检察院依法批准逮捕](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国参众两院议员再搭军机访台](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [有声| 雾霾、寒潮加暴雪，墙内民众叫苦连天](/content/gnews/29/README.md)
+### [有声| 雾霾、寒潮加暴雪，墙内民众叫苦连天](/content/gnews/30/README.md)
  ` MOSREC`
-
-### [侵犯用户个人隐私，脸书面临韩国1800万人集体诉讼](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [有声| 为墙内房企吸金的财富企业开始出现兑付危机](/content/gnews/31/README.md)
  ` MOSREC`
