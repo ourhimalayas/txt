@@ -2,32 +2,56 @@
 ---
 
 
-## 继美团、拼多多之后，红杉中国沈南鹏抛售小米
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1654167/)
+## 美国国立卫生研究院顶级科学家反对疫苗强制令
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1654193/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/0C6D535B-CF3E-4578-ADBA-A8D0263B0474_w1023_r1_s-1.jpg)网络图片
-编辑摘要：
+作者：纽约香草山农场 – 四季
 
-据华尔街见闻11月9日报道，小米生态链企业九号公司9日公布，多名持有人转让存托凭证，红杉中国管理公司转让金额近3.6亿元。
-
-九号公司是专注于智能短交通和服务类机器人领域的企业，去年10月在上交所科创板上市。沈南鹏是董事之一。在九号公司披露前一天就有报道称，沈南鹏已出售价值高达2.15亿美元的股票，包括美团、拼多多和达达集团。今年沈南鹏和红杉累计十余次减持美团，套现超过165亿港元。
-
-沈南鹏2005年创立的红杉中国是中共国最知名的风险投资机构之一。如今红杉中国开启抛股模式，其他机构呢？资本是最敏感的，有利益就上，有风险就撤，这是强权挡不住，谎话也遮不住的。中共国的经济已经走到绝路。
-
-新闻参考链接：[红杉中国沈南鹏又抛了 美团、拼多多之后是小米生态链企业](https://wallstreetcn.com/articles/3644526)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+《华尔街日报》11月9日报道说，强制疫苗接种正在美国国立卫生研究院（NIH）内部引发更多辩论和争议。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1395-1-MEM.jpg)梅莫利博士(图片来源：零对冲)
+
+美国国立卫生研究院将在12月1日举行关于“疫苗强制的伦理道德”圆桌直播会议。该研讨会是今年举行的四场伦理学辩论会之一。这些辩论会将向该院的所有2万名工作人员以及病人和公众开放。
+
+12月1日的伦理学辩论会是高级传染病研究人员——马修·梅莫利（Matthew Memoli）博士为反击日益高涨的强制措施而开设的。他在该机构工作了16年，最近刚荣获美国国立卫生研究院院长奖。
+
+梅莫利博士既反对强制疫苗接种令，自己也拒绝疫苗。他认为现在使用疫苗的方式是错误的，他强调，对严重疾病感染风险低的人进行一揽子进行疫苗接种，可能会阻碍整个人群从感染中获得更强大的免疫力。
+
+这提醒人们：**当涉及到“科学”时，并没有一个共识**——更像是少数几个对立的观点，而所有这些观点都应该被仔细考虑和探讨。
+
+**参考阅读：**
+
+[Top NIH Scientist Opposes Vaccine Mandate, Will Host Live Ethics Debate Next Month | ZeroHedge](https://www.zerohedge.com/covid-19/top-nih-scientist-opposes-vaccine-mandate-will-host-live-nih-ethics-debate-next-month)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

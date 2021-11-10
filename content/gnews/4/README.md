@@ -2,56 +2,42 @@
 ---
 
 
-## 美国国立卫生研究院顶级科学家反对疫苗强制令
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1654193/)
+## 比尔·盖茨承认COVID-19疫苗不能阻止病毒传播
+` 新西兰新联邦新闻摘要` [轉載自GNews](https://gnews.org/zh-hans/1654217/)
 
-作者：纽约香草山农场 – 四季
+作者：达科塔·克里斯坦森（Dakota Christensen）
+发布日期：2021年11月9日
+新闻来源：REBEL NEWS
+翻译：文虓Bobby
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/111102.jpg)图片源自：网络
 
+盖茨虽然是目前新冠疫苗的最大支持者之一，但他也承认了自己一直以来支持的疫苗产业的失败。
 
+微软创始人、亿万富翁比尔·盖茨上周在接受采访时谈到了COVID-19疫苗，他承认疫苗不能阻止病毒的传播。
 
+“我们没有能够阻止传播的疫苗，”盖茨在谈到可用的抗击病毒的工具时表示。“我们有疫苗可以帮助你的健康，但它们只能略微减少传播。我们需要一种新的疫苗制造方法。”
 
+盖茨虽然是目前新冠疫苗的最大支持者之一，但他也承认了自己一直以来支持的疫苗产业的失败。
 
-《华尔街日报》11月9日报道说，强制疫苗接种正在美国国立卫生研究院（NIH）内部引发更多辩论和争议。
+盖茨帮助资助并在全球推广疫苗护照。他提升并维护了独裁封锁。他积极推动将这些疫苗注射到每个男人、女人和孩子身上。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1395-1-MEM.jpg)梅莫利博士(图片来源：零对冲)
+但现在，盖茨承认——并公开表示——目前的COVID疫苗接种在阻止传播方面并不有效。
 
-美国国立卫生研究院将在12月1日举行关于“疫苗强制的伦理道德”圆桌直播会议。该研讨会是今年举行的四场伦理学辩论会之一。这些辩论会将向该院的所有2万名工作人员以及病人和公众开放。
+更有趣的是，比尔•盖茨(Bill Gates)被允许在没有追索权的情况下发表这样的声明，而其他任何个人发表这样的声明都会立即被互联网审查机构推翻。
 
-12月1日的伦理学辩论会是高级传染病研究人员——马修·梅莫利（Matthew Memoli）博士为反击日益高涨的强制措施而开设的。他在该机构工作了16年，最近刚荣获美国国立卫生研究院院长奖。
+例如，谷歌旗下的视频分享平台YouTube最近扩大了审查政策，在一项新政策下禁止所有医疗和疫苗的“错误信息”，具体包括禁止任何“声称疫苗不能减少疾病传播或感染的说法”。
 
-梅莫利博士既反对强制疫苗接种令，自己也拒绝疫苗。他认为现在使用疫苗的方式是错误的，他强调，对严重疾病感染风险低的人进行一揽子进行疫苗接种，可能会阻碍整个人群从感染中获得更强大的免疫力。
+该政策还说:“我们正在YouTube上扩大我们的医疗错误信息政策，制定有关地方卫生当局和世卫组织批准并确认安全有效的当前接种疫苗的新指导方针。”
 
-这提醒人们：**当涉及到“科学”时，并没有一个共识**——更像是少数几个对立的观点，而所有这些观点都应该被仔细考虑和探讨。
+关于世界卫生组织，有趣的是，比尔·盖茨在过去十年中已经成为世界卫生组织的第二大捐助者，仅次于美国政府。
 
-**参考阅读：**
+比尔·盖茨在采访中表示，COVID-19疫苗在减少病毒传播方面没有效果，这一采访是在YouTube平台上进行的，但没有因违反YouTube而被删除。
 
-[Top NIH Scientist Opposes Vaccine Mandate, Will Host Live Ethics Debate Next Month | ZeroHedge](https://www.zerohedge.com/covid-19/top-nih-scientist-opposes-vaccine-mandate-will-host-live-nih-ethics-debate-next-month)
+[援引原文](https://www.rebelnews.com/bill_gates_admits_covid_19_vaccines_dont_stop_viral_transmission)：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+审核校对：玫瑰天空
+上传排版：糖果儿
 
  
 

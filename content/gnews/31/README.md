@@ -2,23 +2,35 @@
 ---
 
 
-## 文贵爆料 10/11: 每日可提现10万，喜币再展锋芒
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1653707/)
+## 阿里巴巴股东软银集团巨额亏损
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653630/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-10-at-11.07.14-AM.png)
-喜币正用自身不断完善的功能，击碎一切谎言。在11月10日的大直播中郭文贵先生说，喜交所二十四小时取款上限已经变成了十万美金，并让战友在线演示。
+作者：韩国首尔天池农场 – 追着曙光跑
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据日本《雅虎新闻》报道，软银集团于当地时间11月8日在其财报说明会上公布了该企业的“国际会计准则合并财报”。财报显示，2021年7-9月，软银集团亏损3979亿日元；值得注意的是，2019年同期盈余6274亿日元。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/股东软银.jpg)
+软银集团在说明会中指出，在主要投资国中国，随着中国政府加强对掌握大数据的IT企业的监管，软银所投资的企业股价大幅下降，对其收益产生影响。此次也是软银集团季度最终损益自 2020 年 1 ~3 月以来，时隔5个季度首次出现亏损。
 
-没有一个交易所一开始就以万为计数让你提现，也没有一个虚拟货币交易所可以每日提现10万，我们是第一个。如果你有耐心到明年5月份，你会看到更多想象不到的事。
+软银集团在中国投资的公司股票出现大跌，包含今年 6 月在美国市场上市的网约车服务滴滴出行中国公司，以及中国IT巨头阿里巴巴集团。
 
-战友们说，这就是给那些不信者的一个响亮的大耳光，这是真实的事。是爱，信不信？这个人生的机遇，真是老天爷安排好了。“七哥”在两天前说取款上限将变成了十万美金，四十八小时之内就达到这个限额是不可思议的，因为关键是你提现这个系统，不是一个机构说了算的，你要和银行做一个非常好的对接，银行也不能够找你麻烦，你才能够，对吧？每个用户每天都能提十万，那么多用户，那大家都在提的话，这是非常大的金流，银行就可能会做出更多的审核，就让这个时间变得很慢。所以我真的是特别感慨这一件事，它反映了我们整个喜联储强大的金融实力。
-
-郭先生说，不用等太长，三周之后就有关于喜币更好的消息。
+在8日的财报说明会上，软银集团会长兼社长孙正义表明了“正处于严冬的风景之中”的看法。
 
 参考链接：
+[软银自2020年1-3 月以来，时隔5个季度首次出现亏损](https://gnews.org/zh-hans/1650044/)
 
-[2021年11月10日 文贵大直播](https://gettr.com/streaming/pgku1i0993)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
+总编：正义的小新
+编辑：Zion文恩
+校对/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

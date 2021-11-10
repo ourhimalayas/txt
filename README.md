@@ -15,86 +15,86 @@
 
 ---
 
-### [世界因疫苗灾难发生反华是共产党的邪恶在为华人挖坑](/content/gnews/1/README.md)
+### [CCP数字人民币及它不为人知对西方数字货币计划](/content/gnews/1/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [比尔·盖茨承认COVID-19疫苗不能阻止病毒传播](/content/gnews/2/README.md)
+### [东北罕见暴雪，停水停电菜价飞涨下民众的凄惨生活](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [世界因疫苗灾难发生反华是共产党的邪恶在为华人挖坑](/content/gnews/3/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [比尔·盖茨承认COVID-19疫苗不能阻止病毒传播](/content/gnews/4/README.md)
  ` 新西兰新联邦新闻摘要`
 
-### [Hcoin的上市对CCP就是抽筋剥皮](/content/gnews/3/README.md)
+### [Hcoin的上市对CCP就是抽筋剥皮](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国国立卫生研究院顶级科学家反对疫苗强制令](/content/gnews/4/README.md)
+### [美国国立卫生研究院顶级科学家反对疫苗强制令](/content/gnews/6/README.md)
  ` 纽约香草山MOS02`
 
-### [11/10/2021 文贵直播：面临排华、反华、厌华的不利局面，爆料革命、新中国联邦只灭共，不反华](/content/gnews/5/README.md)
+### [11/10/2021 文贵直播：面临排华、反华、厌华的不利局面，爆料革命、新中国联邦只灭共，不反华](/content/gnews/7/README.md)
  ` 秘密翻译组-北美组`
 
-### [继美团、拼多多之后，红杉中国沈南鹏抛售小米](/content/gnews/6/README.md)
+### [继美团、拼多多之后，红杉中国沈南鹏抛售小米](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国禁止投资与中共国相关的军工和监控企业](/content/gnews/7/README.md)
+### [美国禁止投资与中共国相关的军工和监控企业](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/11/09 墙内世界](/content/gnews/8/README.md)
+### [2021/11/09 墙内世界](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [COVID —19 种族灭绝：儿童医院现在充斥着婴儿心脏病患者](/content/gnews/9/README.md)
+### [COVID —19 种族灭绝：儿童医院现在充斥着婴儿心脏病患者](/content/gnews/11/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [韩国推广疫苗加强针](/content/gnews/10/README.md)
+### [韩国推广疫苗加强针](/content/gnews/12/README.md)
  ` 纽约香草山MOS02`
 
-### [美国中期选举的参议员候选人与中共关系](/content/gnews/11/README.md)
+### [美国中期选举的参议员候选人与中共关系](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国会代表团乘军机访问台湾](/content/gnews/12/README.md)
+### [美国会代表团乘军机访问台湾](/content/gnews/14/README.md)
  ` HimalayaRussia`
 
-### [11/10/2021 文贵直播：中共六中全会内部报告曝光中共国外汇储备急剧下降，中共面临逆差、顺差双并行的不利局面](/content/gnews/13/README.md)
+### [11/10/2021 文贵直播：中共六中全会内部报告曝光中共国外汇储备急剧下降，中共面临逆差、顺差双并行的不利局面](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [联邦航空安全局寻求无意识偏见培训](/content/gnews/14/README.md)
+### [联邦航空安全局寻求无意识偏见培训](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [美议员访台 中共急忙派军机巡逻](/content/gnews/15/README.md)
+### [美议员访台 中共急忙派军机巡逻](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [NIH顶级科学家梅莫利将在直播中反对疫苗授权](/content/gnews/16/README.md)
+### [NIH顶级科学家梅莫利将在直播中反对疫苗授权](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国消费价格正以 40 年来最快速度飙升](/content/gnews/17/README.md)
+### [美国消费价格正以 40 年来最快速度飙升](/content/gnews/19/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [消息人士：加州州长因加强针不良反应神隐数周](/content/gnews/18/README.md)
+### [消息人士：加州州长因加强针不良反应神隐数周](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英国COVID住院人数是去年14倍的报道是假消息](/content/gnews/19/README.md)
+### [英国COVID住院人数是去年14倍的报道是假消息](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [因拒绝接受新冠疫苗而被移除肾脏移植等候名单](/content/gnews/20/README.md)
+### [因拒绝接受新冠疫苗而被移除肾脏移植等候名单](/content/gnews/22/README.md)
  ` MG FARM`
 
-### [还有8 天&#8230;&#8230;福奇最糟糕的噩梦开始](/content/gnews/21/README.md)
+### [还有8 天&#8230;&#8230;福奇最糟糕的噩梦开始](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [波音公司寻求疫苗豁免的员工超11,000人](/content/gnews/22/README.md)
+### [波音公司寻求疫苗豁免的员工超11,000人](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中国建造全尺寸美国舰艇复制品](/content/gnews/23/README.md)
+### [中国建造全尺寸美国舰艇复制品](/content/gnews/25/README.md)
  ` MG FARM`
 
-### [11/10/2021 文贵直播： 六中全会内部报告曝光中共国的11个“第一”](/content/gnews/24/README.md)
+### [11/10/2021 文贵直播： 六中全会内部报告曝光中共国的11个“第一”](/content/gnews/26/README.md)
  ` 秘密翻译组-北美组`
 
-### [瑞典首相勒文辞职](/content/gnews/25/README.md)
- ` Shuizhuyu`
-
-### [海豹突击队员因疫苗强制令起诉拜登政府](/content/gnews/26/README.md)
+### [海豹突击队员因疫苗强制令起诉拜登政府](/content/gnews/27/README.md)
  ` HimalayaRussia`
-
-### [盖茨承认新冠病毒疫苗不能有效阻止病毒传播](/content/gnews/27/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
 
 ### [随着以太币和比特币的增值，加密货币市场的总市值突破3万亿美元](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
@@ -102,17 +102,17 @@
 ### [2021/11/10大卫作战室直播精要](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年11月10日郭文贵先生大直播重点及概要](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
-
-### [文贵爆料 10/11: 每日可提现10万，喜币再展锋芒](/content/gnews/31/README.md)
+### [文贵爆料 10/11: 每日可提现10万，喜币再展锋芒](/content/gnews/30/README.md)
  ` 秘密翻译组-原创组`
 
-### [阿里巴巴股东软银集团巨额亏损](/content/gnews/32/README.md)
+### [阿里巴巴股东软银集团巨额亏损](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [文贵爆料11.10.2021 六中全会内部统计报告11个第一揭示中共正加速溃烂](/content/gnews/33/README.md)
+### [文贵爆料11.10.2021 六中全会内部统计报告11个第一揭示中共正加速溃烂](/content/gnews/32/README.md)
  ` 秘密翻译组-原创组`
+
+### [2021年11月10日郭先生直播小飞象大雨围城速记](/content/gnews/33/README.md)
+ ` Mr. Miles Guo's News Briefing`
 
 ### [CNN播放《芝麻街》诱使美国儿童接种中共病毒疫苗](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
