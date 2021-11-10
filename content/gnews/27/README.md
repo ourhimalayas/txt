@@ -2,49 +2,30 @@
 ---
 
 
-## 媒体报道英国因新冠病毒住院人数是去年的14倍的假消息
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1653092/)
+## 有声|喜联储私人区块链技术确保高效安全
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653271/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1200x800-700x420-2.jpg)盖蒂图片社提供的 SOPA 图片
-英国媒体报道说，新冠病毒住院人数比去年同期“高14倍”，尽管这显然是错误的。
+配音：香草山美食部 – 玫瑰园
 
-天空新闻和独立电视网ITV都报道了国民医疗服务体系NHS首席执行官阿曼达•普里查德（Amanda Pritchard）的评论，她在呼吁人们接种疫苗加强针时使用了这个数字。
+11月7日，郭文贵先生在GTV大直播中，分析了喜联储所采用的私人区块链的技术优势。
 
-普里查德称NHS正焦灼万分，并警告说未来几个月会很困难。
+第一，喜联储使用私人区块链技术，每秒钟的交易量可达一百，甚至一万单。而使用公开区块链技术，交易速度很慢，每秒交易只有十单，甚至更少。
+第二，当遭遇黑客攻击时，公开区块链技术支持的数字货币，一旦被盗窃，就无法追回。而喜联储的私人区块链技术，能够确保数字货币的绝对安全，即使被黑客盗取，因有迹可查，可以追回。
+最后，喜联储的私人区块链保证个人信息的绝对安全。通过喜联储KYC的账户信息，不会被任何政府或个人获取，这才叫真正的去中心化。
 
-然而，后来她遭揭发因其一直在使用旧数据，声称住院人数比去年同期高14倍。
+文字版原文：[喜联储私人区块链技术确保高效安全](https://gnews.org/zh-hans/1648538/)
 
-NHS后来声称，普里查德做出的声明“是参照8月份最新公布的统计数据”。
+音频处理：喜山必胜Maverick
 
-然而，最新的住院人数在NHS的网站上可以查到，而且显示远远没有达到普里查德所说的“14倍”的水平。
-
-也许新闻机构在将普里查德的错误说法变成一个响亮的标题之前，应该费心去检查一下这些数字。
-
-天空新闻随后删除了他们的错误推文。
-
-正如我们之前所强调的，新闻媒体在很大程度上忽略了一个事实，即在过去的两周里，英国的COVID病例一直在下降，而之前则是抓住短期的病例上升以游说将管制重新实施。
-
-简评：
-
-这一套官僚媒体联手的宣传组合拳，继毒疫苗铺开以来，我们已经在各国屡见不鲜。在疫苗已经造成诸多灾难的当下，这样的手腕会被越来越多的民众看穿，进而积蓄能量以促成更大的反弹。虽然我们很难直接对黑幕背后的力量进行抗衡，但一次又一次揭露他们曝露于台面上的狼子野心，用真相揭穿当权者与主流媒体的假面，亦能起到断其手足同时唤醒普罗大众的作用。即使这些幕后黑手有足够的财力继续包养当下这套陈旧的话语体系，当抛弃这套体系的民众达到足够的量级，这背后的阴谋也就自然会土崩瓦解。
-
-新闻链接：
-
-[Media Outlets Report Fake News That UK COVID Hospitalizations Are 14 Times Higher Than Last Year](https://summit.news/2021/11/08/media-outlets-report-fake-news-that-uk-covid-hospitalizations-are-14-times-higher-than-last-year/)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

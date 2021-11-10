@@ -2,44 +2,37 @@
 ---
 
 
-## 有声| 美国东亚事务新任助卿首次出访 只见盟友无意访华
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653282/)
+## 新西兰数千人游行，抗议政府疫情封锁和疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653458/)
 
-配音：香草山香港部 – 文凯琳
+作者：英国喜庄园 – I770775
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月9日，在新西兰惠灵顿国会大楼前，大批抗议者举行示威游行，要求新西兰政府结束疫情封锁，反对强制接种疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-1280x172-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-7.jpeg)
 
-11月8日，美国新上任的负责东亚和太平洋事务的助理国务卿康达抵达东京，开始他上任后对该地区的首次访问。
+据报道，当天有三千多人参加了游行示威活动，其中大多数人没有戴口罩。人们群情激愤，有示威者举着“川普2020”的旗帜，还有人高呼“支持自由活动，反对杰辛达”的口号，以抗议新西兰总理杰辛达强推疫情应对措施。
 
-美国驻东京大使馆的推文说，康达当天与日本政府负责北美事务的官员举行了会谈，这将对地区和平与繁荣有积极作用，对应对当今最紧迫的挑战富有成效。
+对于当天的抗议游行，总理杰辛达表示：她相信，抗议者并不能代表新西兰大多数人对抗疫政策的看法。因为新西兰已经有八成以上的人接种了疫苗，这一点就说明了民众是配合的……
 
-目前，中共在东中国海和南中国海的恶意扩张行为是美日同盟面临的最紧迫挑战。据了解，康达在东京访问三天后将在10日至12日访问韩国。
+有现场抗议者称，杰辛达的表态是独裁政府惯用的说辞，他们善于利用人们的羊群效应，用所谓“大多数”，“为你好”等言辞不断给大众洗脑，让知道真相的声音淹没在茫茫人群中。
 
-康达精通中文，曾任白宫国安会亚太事务资深主任，曾三度被派驻北京。但康达此次亚洲之行，并未安排访华行程。
+但是，真相是掩盖不住的。在爆料革命的推动下，世界正以迅雷不及掩耳之势，一股揭露疫苗背后阴谋的浪潮正荡漾开来。
 
-文字版原文：[美国东亚事务新任助卿首次出访 只见盟友无意访华](https://gnews.org/zh-hans/1649714/)
+参考链接：[新西兰数千人上街游行，抗议该国实行的新冠疫情限制措施](https://k.sina.cn/article_5044281310_12ca99fde02001p819.html?from=news&amp;subch=onews)
 
-音频处理：喜山必胜Maverick
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-
+总编：Ivy001
+编辑：Kathy文艺 
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

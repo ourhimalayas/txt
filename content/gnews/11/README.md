@@ -2,47 +2,40 @@
 ---
 
 
-## 有声| 雾霾、寒潮加暴雪，墙内民众叫苦连天
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653341/)
+## 美联储担心中共地产危机影响美国
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653568/)
 
-香草山香港部 – 文凯琳
+作者：波士顿五月花农场 – 葛朗台太太
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月8日，美联储发布《金融稳定报告》称：中国房地产行业的问题可能会给中国金融体系带来压力，并可能波及美国。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/地产危机.jpg)
+在此之前，9月22日美联储委员会主席杰罗姆·鲍威尔曾公开表示，恒大集团的债务困境似乎是中国特有的问题，不会对美国的企业造成影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+短短40天，美联储对中共地产风险得出完全相反的结论。
 
+11月9日，文贵先生通过盖特视频再次提醒全世界：碧桂园，恒大，融创，富力等等完全没有偿还债务的能力，变卖飞机等资产也不可能扭转局面。
 
+文贵先生还预告，将在本周进行多次秘密演讲，分析中共（包括香港在内的）地产危机将给世界金融经济带来的破坏。
 
-连日来，中共国中东部地区连续多日出现重度雾霾。随后，一股强冷空气席卷全国，大部分地区一夜间气温骤降，暴雪临门，很多民众生活面临困境。
+参考链接：
+1）[Financial Stability Report](https://www.federalreserve.gov/publications/files/financial-stability-report-20211108.pdf)
+2）[11月9号：尊敬的战友们好，你们健身了吗？你们在北京的六中全会发现什么了吗？你们传播C C P的病毒和疫苗的解药的真相了吗？一切都已经开始！](https://gettr.com/post/pghwvuec83)
+3）[Fed says China’s real estate troubles could spill over to the U.S.](https://www.cnbc.com/2021/11/09/fed-says-chinas-real-estate-troubles-could-spill-over-to-the-us.html)
+4）[美联储主席：恒大债务是中国特有问题，不会冲击美企](https://www.voachinese.com/a/us-fed-powell-says-evergrande-debt-troubles-seem-particular-to-china-20210922/6242153.html)
 
-从11月2日起，中共国中东部地区空气污染日渐严重，截至11月5日7时，京津冀及周边、汾渭平原、长三角等地区，共有85个城市的空气质量出现PM2.5超标污染，29个城市启动重污染天气预警。其间，从11月4日开始，一股寒潮对中共国自西北至东南展开全面侵袭，气温大幅下降，全国大部分地区气温下降8°~10°，局部地区降温达16°以上。6日下午，内蒙古通辽、吉林省长春等地连发多次暴雪红色预警。北方大部分地区从7日开始普降暴雪，多地降雪量突破历史极值，一夜之间进入寒冬。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-雾霾、寒潮、暴雪，使墙内百姓生活雪上加霜。
-
-有消息人士称，因为煤炭价格飙涨，还有很多农村居民没有采购足够的煤，如何温暖地度过今年冬天的严寒，将是他们不得不面对且发愁的头等大事。
-
-文字版原文：[雾霾、寒潮加暴雪，墙内民众叫苦连天](https://gnews.org/zh-hans/1649770/)
-
-音频处理：喜山必胜Maverick
-
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

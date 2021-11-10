@@ -2,36 +2,21 @@
 ---
 
 
-## 喜联储将以“零中介”改变现有交易规则
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653437/)
+## 加拿大近期或将推出抗新冠病毒药物治疗计划
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1653599/)
 
-作者：温哥华扬帆农场枫叶组-文银
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月8日，值此喜联储上线一周之际，温哥华扬帆农场枫叶组发表Gnews评论员文章，详细阐述喜联储及其金融服务的全新特色。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/零中介.jpg)
-文章指出，“喜联储”的一大特色是交易的“去中介化”。相比现有的金融系统，去中介化的喜币金融支付系统将具备不可比拟的成本优势。这个优势，对于专心做实体商业的企业非常有吸引力，但对传统的银行等金融企业却可能成为利润杀手。
+编译撰稿：硫酸羟氯喹64
 
-基于区块链的喜币推出后，电子钱包里面的余额不再依赖于银行系统；同时，基于区块链的喜币支付系统不需要银行账户即可完成支付或汇款。因此，随着喜币的金融生态逐步完善，喜币用户开设银行活期存款类账户的动机已经不存在。长期来看，传统银行的结算账户、活期账户、支票账户等类型都可能消失。储户与银行打交道的理由唯有获取利息。那么，传统银行凭借传统支付体系沉淀的巨量资金将不保，传统银行剥削储户利益的时代也将一去不复返。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a.png)图片来源：JDQ
 
-此外，即将上线的“喜支付”将建立商户与消费者基于喜币、喜美元等产品的结算方式，这意味着双方直接在区块链上对话，完全摆脱传统银行结算过程中的收单行、发卡行、结算行等中介佣金的瓜分。这对于商家和消费者都是非常有益的。鉴于此，文章指出，去中介化的喜联储生态，将在不久的将来，凭借其低廉佣金、多方互惠的特点，改写金融交易的游戏规则。
 
-参考链接：
-[漫谈喜币与区块链](https://gnews.org/zh-hans/1649255/)
+据加拿大法语媒体《魁北克新闻》11月9日报道，联邦政府正在制定一项用于抑制“新冠病毒”感染的药物治疗计划，试图以此尽快结束疫情，早日恢复该国正常经济发展。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+对此，魁北克省议会主席布莱克本在接受媒体采访时称：首先，联邦政府应尽快推出关于能在近期内使用该类药品的国家政策。其次，加拿大应与【默克公司】及【辉瑞公司】等不同制药公司积极合作，在本国推广其用于对抗“新冠病毒”感染药物的各项治疗方案。第三，继续在全国执行该病毒疫苗的既定接种政策。
 
-总编：正义的小新
-编辑：Zion文恩
-校对/发稿：Fei797
+据悉，【默克公司】在10月初宣布了其首款治疗“新冠病毒”感染的有效药物–莫努匹拉韦。而【辉瑞公司】也在11月5日推出了该公司用于有效抑制该病毒的药物-Paxlovid。有消息称，加拿大有望于今年底或明年初，开始在全国推广应用以上药物的治疗计划。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+[原文链接：](https://www.journaldequebec.com/2021/11/08/a-quand-les-pilules-contre-la-covid-19-au-canada-1)
 
  
 

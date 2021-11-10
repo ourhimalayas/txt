@@ -2,80 +2,91 @@
 ---
 
 
-## 中南海的空气能特供吗？
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1652809/)
+## 喜币的起起伏伏证明其真实
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1652878/)
 
-作者：香草山写作组-文斗
+[https://gtv.org/video/id=618ba409adfd99590c35060e](https://gtv.org/video/id=618ba409adfd99590c35060e)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-1280x172-1.jpg)
+**郭文贵
+Miles Guo**
 
+再一个战友们，现在
+My comrades, there is another one, now
 
+就像昨天暴跌一样
+just like the (situation of) yesterday’s plummet
 
-11月1日庆祝喜币上市大直播，郝董说中南坑啥都能特供，但质疑空气没法特供。
+一句话
+Only by one sentence
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/images_4.jpeg)
+你都能把你的币给抛掉
+it could make you sell your coins
 
-不是跟郝董抬杠，只能说我们大部分百姓包括我自己想象力都有限。中南坑的空气还真有特供。
+变成13美金
+and turned to $13
 
-一条十年前的旧闻。2011年，随着奥运结束之后，北京的空气质量打回原形，灰蒙蒙的天空让数以千万的北京人内心隐隐不安，但是官方的空气质量数据依旧粉饰太平。耿直的美国人却又不识相，天天公布美国驻北京大使馆检测到的空气污染指标，数据显示北京空气极其恶劣，用普通人能理解的话说就是“不适合人类生存”。比如现在众所周知的PM 2.5就是那时随着美国大使馆的公开数据，普通中国人开始知道的空气指标，而当时中共的环保数据压根就没这一条。一方面是空气质量恶劣被公开，一方面又暴露了政府无能和愚钝。中共政府恼羞成怒，开始强烈指责美国干涉中共内政，中共外交部的官员们要求美国人立即停止公布空气数据。2011年10月底，北京环保局副局长杜少中发出空气质量数据不能看美使馆”眼色”的言论。
+未来这个喜币如果没有上上下下
+In the future, if this HCoin doesn’t go up and down
 
-在这样的背景下，远大中央空调公司网站上的一则《成功案例-中南海篇》在网络上掀起一波不小的舆论浪花。
+它就不叫喜币
+it will not be called HCoin
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-15.png)
+它就是假的了
+because it’s fake
 
-这个网页很快被删除，官网已经找不到了，所幸网络还是有记忆的。
+那就是共产党的恒生股市指数了
+And that would be the CCP’s Hang Seng Index
 
-原文抄录如下：
+24700 24200
+which is 24700, then 24200
 
-*远大空气净化机成功案例－中南海篇*
+大陆的50%的所谓的
+In the mainland, 50% of the so-called
 
-*在北京的西单到天安门城楼之间，沿着长安街的路北，有堵数百米长、六米多高的红墙，在一排绿树和红灯笼的映衬下，红墙愈发显现历史的厚重感。这个位于首都中心位置的神秘处所——中南海，是中共中央委员会和国务院的办公地点，是名副其实的中国政治生活的心脏。*
+经济支撑的房地产都已经崩塌个球的了
+economically supported real estate has collapsed badly
 
-*除了偶尔飞跃枝头和墙头的鸟儿，门口神圣威武的卫兵，中南海与外界隔绝。对于远大净化机北京分公司的郭斌总经理来说，中南海透露出来的除了无尽的神秘感，还有强大的吸引力。怀着对远大净化机极大的热爱与自信，郭总毅然携远大净化机走进红墙内。*
+你还24000 那都是假的
+Hang Seng Index still has 24000, that’s all fake
 
-*中南海是国家重要领导人的办公地点，任何物品要绝对安全：无毒、无异味、无噪音等，检测要求甚是严格。但对于已经取得多项国家和国际标准认证的远大净化机来说，结果当然可以预见。*
+它一定是跌、涨、跌
+It (HCoin) must be down, up, and down
 
-*顺利地通过了安检人员重重的专业检测后，净化机开始在常委会议室试用。很快，远大净化机除异味的效果和优雅的外观就获得了领导的一致好评。****现场清洗净化机时，当看到像墨汁一样的脏水，远大净化机的功效在中南海领导人心中已经确信无疑了。远大净化机终于成为国家领导人指定用空气净化机！***
+经常这样子的
+often like this
 
-***如今，中南海常委会议室，书记处会议室，华仁堂，办公厅会议室都摆上了远大净化机。越来越多的国家机关、政府机构主动联系购买，《新闻联播》等报道中也经常能看到远大净化机的身影。当远大净化机摆放在胡主席的办公室，当远大净化机为国家领导人创造健康洁净的办公环境，当远大净化机伴随领导出访各国，每个远大人心中感受到了无比的自豪和鼓舞。***
+有震动才是真的嘛
+Cause true market has shocks
 
-*重大意义：*
+所谓的横行线一定是假的被操作的嘛
+The so-called horizontal line must be faked and manipulated
 
-*v****远大净化机为国家领导人创造了健康、清新的办公环境，是百姓之福***
+但是我希望的是什么
+However, what I’m hoping is that
 
-*v         远大净化机在中南海的使用、成为国家领导人指定用净化机是对产品的极大肯定与推广*
+跌的时候还是涨的时候都不是咱们战友
+it’s not (happen on) our comrades when it falls or when it rises
 
-*v         远大净化机在中央政府部门的使用是对呼吸健康、环保的新生活理念的极大支持与推广*
+是那些有钱的投资机构
+Instead, those are wealthy investment institutions
 
-(抄录结束)
+Date: 11/07/2021
+原视频标题: 喜币的起起伏伏证明其真实
+The ups and downs of HCoin are proof of its truth
+原视频日期：2021/11/05
+原视频链接: [https://twitter.com/se1y7cblljselva/status/1457268294163992581?s=24](https://twitter.com/se1y7cblljselva/status/1457268294163992581?s=24)
+任务编号：KC235（2803）
+视频时间段 : 0:00-0:57
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-这个案例除了对中南坑的跪舔，关键是透露了两个信息：一、中南坑对空气质量有多糟心里比谁都清楚。二、中南坑首先解决了自己的空气质量问题。
-
-郭先生透露，中南坑连避孕套都是去国外采购最好的，那么贪生怕死的老杂毛给自己搞空气特供也就不稀奇了。
-
-但是，中南坑一边偷偷摸摸解决自己的空气特供，一边谴责美国干涉空气内政，还发动宣传对美国口诛笔伐，操弄民意。那就相当无耻了！可怜中共国百姓，吸着毒雾霾，却还要颂党恩，歌唱“生活比蜜甜”。十年前如是，十年后依旧。
-
-中共之假丑恶，百年如是！
-
-信息来源：
-
-[https://chinadigitaltimes.net/chinese/193596.html](https://chinadigitaltimes.net/chinese/193596.html)
-
-校对/发稿：飞虹
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/十一月历.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

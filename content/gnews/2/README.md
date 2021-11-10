@@ -2,30 +2,27 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月10日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1653567/)
+## 【美国立卫生研究院】将就“强制接种”展开公开辩论
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1653643/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
+采编：青青， 编译撰稿：文莱
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-8.png)
-文章仅代表作者本人观点，与Gnews无关
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-26-edited.jpg)图片来源：LDC
 
-视频参看：2021.11.10早GTV新闻访谈
 
-[https://gtv.org/broadcast/watch/618bc8e6e7e770379232594b](https://gtv.org/broadcast/watch/618bc8e6e7e770379232594b)
+据知名自媒体【零对冲】11月9日报道，【美国国立卫生研究院】的部分顶级科学专家强烈反对目前在该国大规模实施的“新冠病毒疫苗”强制接种政策。并为此将在下个月主办针对该政策的现场伦理辩论会。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+报道指出，拜登总统近期扩大了该疫苗接种授权，并因此影响到美国近8千万名包括大量卫生保健工作者在内的劳动工人。尽管当前医疗邻域的劳动力严重短缺，但当局仍执意授权企业主可以解雇那些未能及时提供疫苗接种证明的雇员。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-1.png)
+为此,【美国国立卫生研究院】将于12月1日就“疫苗接种授权的伦理问题”举行现场直播辩论会议。届时，该辩论会将向全美所有2万名研究院工作人员以及公众开放。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+据悉，以上讨论会是该研究院一位高级传染病研究专家，针对拜登政府的强制接种政策而开设的。该专家作为由福奇控制的临床研究部门负责人，希望以此提醒公众，面对“疫苗接种”所导致的两极分化，所有对立观点都应被仔细考虑和科学讨论。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://www.zerohedge.com/covid-19/top-nih-scientist-opposes-vaccine-mandate-will-host-live-nih-ethics-debate-next-month)
 
  
 

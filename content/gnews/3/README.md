@@ -2,23 +2,35 @@
 ---
 
 
-## 文贵爆料 11.10.2021 六中全会主要目的是确定军政大权集于习家人、习家军
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1653554/)
+## 阿里巴巴股东软银集团巨额亏损
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653630/)
 
-撰稿：回响
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-10-at-9.23.22-AM.png)图片来源：GTV & GETTR
-中共六中全会，不仅影响所谓政局走向，甚至影响到人类的命运。爆料革命发起人郭文贵先生2021年11月10日大直播再次爆出令人瞠目结舌的幕后真相。
+作者：韩国首尔天池农场 – 追着曙光跑
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据日本《雅虎新闻》报道，软银集团于当地时间11月8日在其财报说明会上公布了该企业的“国际会计准则合并财报”。财报显示，2021年7-9月，软银集团亏损3979亿日元；值得注意的是，2019年同期盈余6274亿日元。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/股东软银.jpg)
+软银集团在说明会中指出，在主要投资国中国，随着中国政府加强对掌握大数据的IT企业的监管，软银所投资的企业股价大幅下降，对其收益产生影响。此次也是软银集团季度最终损益自 2020 年 1 ~3 月以来，时隔5个季度首次出现亏损。
 
-从六中全会内部报告的部分内容：包括全国癌症病患数字、香港关键人才外流、医护现状、外汇锐减状况等，特别是影响北方无数百姓民生的突降大雪竟然是中共太空军的人造雪；而且会议竟然在北京西郊多个地方召开，这是中共党史上罕见的现象，郭先生质问：中共在怕什么？！
+软银集团在中国投资的公司股票出现大跌，包含今年 6 月在美国市场上市的网约车服务滴滴出行中国公司，以及中国IT巨头阿里巴巴集团。
 
-郭先生最后明确告知：六中全会的主要目的就是确定军政大权要集于习家军、习家人。
+在8日的财报说明会上，软银集团会长兼社长孙正义表明了“正处于严冬的风景之中”的看法。
 
-郭先生借用美国某位国防领域要人的话，再次强调，CCP早就没有常委只有皇帝；是习一尊个人的性格、行为在影响、左右着人类的命运，不是中国亿万百姓。爆料革命、新中国联邦反共、灭共不反华。
+参考链接：
+[软银自2020年1-3 月以来，时隔5个季度首次出现亏损](https://gnews.org/zh-hans/1650044/)
 
-【原文链接】https://gtv.org/broadcast/watch/618bc611e7e7703792324e26
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-校对发布：Shifter
+总编：正义的小新
+编辑：Zion文恩
+校对/发稿：Fei797
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
