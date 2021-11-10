@@ -2,256 +2,30 @@
 ---
 
 
-## 喜美元转款无限制即将开通账户互转喜币理财
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1652698/)
+## 11/10/2021中日财经爆：中共国10月CPI与PPI涨幅创新高，老百姓生活多艰
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1652710/)
 
-[https://gtv.org/video/id=618b330eadfd99590c34ef42](https://gtv.org/video/id=618b330eadfd99590c34ef42)
+#### 整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/21-5.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwzimg.fx960.com%2Fzs_baike%2F2020%2F09%2FFXA_0c7331d197d44783a8a2890164aca2f8.jpg-hy_list_articlepic&amp;imgrefurl=https%3A%2F%2Fm.fxeye.us%2F202009294464749129.html&amp;tbnid=J4AJiK7IKbyofM&amp;vet=12ahUKEwjp8pbZto30AhVfQPUHHQZOB1UQMygTegUIARDBAQ..i&amp;docid=QY5_d3vSUEQUbM&amp;w=1080&amp;h=720&amp;q=CPI%E4%B8%8EPPI&amp;ved=2ahUKEwjp8pbZto30AhVfQPUHHQZOB1UQMygTegUIARDBAQ)
+中共国国家统计局周三（11月10日）公布数据显示，10月居民消费价格指数(CPI)同比上涨1.5%，为2020年9月以来最高水平；其中，食品价格同比下降2.4%，非食品价格上涨2.4%。10月工业生产者出厂价格指数(PPI)同比上涨13.5%，追平1995年7月水准。
 
-你进来以后KYC, 你开了帐号
-Luego de realizar el procedimiento de KYC, abres la cuenta
+分析人士认为，成本端的传导效应将持续扩散，通胀压力在增强。他们指出，缓解供需矛盾成为平抑通胀重要因素，目前的通胀形势对中共国政策调控的考验有所加大，宽松货币政策的可能性不大，料依旧维持中性稳定的态度，“点滴式”输送流动性，政策发力点仍在财政政策和保供稳价的继续加码。
 
-你钱打多少是不受限制的
-No hay límite por la cantidad de dinero que transfieras
+“随着PPI同比再创新高，CPI温和抬升，上下游价格的‘剪刀差’也再创新高，上游对于中下游企业的挤压愈演愈烈，经济运行不均衡的态势仍在加剧。”中原银行首席经济学家王军称。
 
-比如说
-Por ejemplo
+他并称，如果全球供应链紧张局面不能有效缓解、国内相关产业政策不能灵活调整，此轮由供给冲击导致的供需错配、供需缺口加大所造成的结构性通胀局面有向中期演进的趋势。稳增长、控风险、调结构所需要的适度宽松正常的财政和货币政策将面临更多掣肘因素，决策部门将面临一个新的“两难”甚至“多难”的局面。
 
-海东兄弟开了喜美元帐号
-El hermano Haidong abrió una cuenta de HDO
+三菱日联银行中共国首席金融市场分析师孙武指出，国内企业承担较高的成本型通胀压力，已传导至居民部门，“我们判断通胀情况限制中共国人民银行实施较刺激性货币政策。”
 
-KYC过了
-Luego que el KYC es aprobado
+10月CPI同比增幅扩走高虽有一定的基数回落原因，但新涨价因素的推动不容忽视，数据显示上游的价高正在向下游传导，分析师们预计，这种传导效应在未来数月会更加明显，并进一步推高CPI涨幅。
 
-刚才一个美国
-Hace rato, un amigo de EE. UU
+消息来源:
 
-摩根家族的某个我们的朋友
-De la familia de Morgan
+[焦点：中国通胀压力增强10月CPI与PPI涨幅超预期 决策者面临“多难”局面](https://cn.reuters.com/article/wrapup-china-oct-inflation-1110-wedn-idCNKBS2HV0KA?il=0)
 
-人家的女儿
-Su hija
-
-女婿人家有双国籍
-Su yerno tiene doble nacionalidad
-
-人家就可以KYC
-Él pudo realizar el KYC
-
-KYC过了以后
-Luego que esto sea aprobado
-
-刚才他说了
-Él hace rato dijo
-
-我买了这个币
-Compré esta moneda
-人家就买了, 合法啊
-Él lo pudo comprar, de manera legal
-
-最重要的事情
-Y lo más importante
-
-他的一个好朋友
-Su amigo
-
-包括我们的一个朋友
-Incluyendo nuestro amigo
-
-大额钱汇到这个喜美元帐号
-Transfirieron de grandes cantidades de dinero a la cuenta de HDO
-
-喜美元帐号的未来是什么
-¿Cuál es el futuro de la cuenta de HDO?
-
-它连着喜支付呢
-Está vinculada con el H-pay
-
-你买啥都可以
-Puedes comprar cualquier cosa
-
-它是个比信用卡还方便的东西
-Es algo más conveniente que la tarjeta de crédito
-
-手机支付, 刷卡支付
-Pago móvil, pago con tarjeta de crédito
-
-还有一个隔空支付
-Y también está un pago al aire
-
-战友与战友之间也马上就开通
-Entre compañeros luchadores pronto se abrirá también
-
-你的帐号之间也可以互相转
-Al igual se puede transferir entre sus cuentas
-
-那么这个钱
-Entonces, este dinero
-
-你不用在这搁着怎办呢
-Si no lo utilizas aquí, que harás si lo dejas allí
-
-是不是啊
-¿Cierto?
-
-未来给你7%到10%的利息
-En un futuro te dará el 7% a 10% de intereses
-
-拿什么支付呢, 拿喜币支付
-¿Con qué se pagará? A través de HCN
-
-大家记住啊, 这个可牛了
-Todos recuerden, esto es algo muy poderoso
-
-喜币本身就有(升值)
-El HCN en sí puede (reevaluarse)
-
-它是浮动币就增长
-Crece cuando es una moneda flotante
-
-你现在告诉我
-Ahora tú me dices
-
-东弟, 钊颖, 飞飞
-Hermano Dong, Zhaoying, Feifei
-
-你看你们在账上的钱
-Vean el dinero que están en sus cuentas
-
-你想一想啊
-Piensa
-
-现在飞飞家房子
-Ahora la casa de Feifei
-
-可能是150万美元
-Podría ser 1.5 millones de dólares
-
-你把你的房子卖掉
-Vendes tu casa
-
-150万美元就放在了喜美元里边
-Estos 1.5 millones de dólares lo dejas en la cuenta de HDO
-
-7%的喜币给你
-Te dan el 7% de HCN
-
-你拿你在喜币
-Tomas el HCN
-
-拿到钱的50%去租房子去
-Y te llevas el 50% del dinero para alquilar una casa
-
-是你现在住的房子的五倍大
-Y es cinco veces más grande que la que estás viviendo ahora
-
-但你每年都会升值
-Pero se revalúa cada año
-
-美国人没有一个人不卖房的
-No hay ningún estadounidense que no venda su casa
-
-美国人是卖房子换房子
-Ellos la venden y cambian por otra
-
-才是有钱人
-Así es ser rico
-
-只有穷人一住(一辈子)
-Solamente los pobres viven de (por vida) con la misma casa
-
-像中国人说老房子
-Así como dicen los chinos, “casa vieja”
-
-老房子说明你很穷很笨好不好
-Si es una “casa vieja” significa que eres pobre y tonto
-
-所以说这叫理财
-Por eso esto se llama gestión financiera
-
-还有一个, 有喜币的
-Y hay otro, quien tenga el HCN
-
-本身我有喜币, 我就可以抵押贷款
-Yo particularmente tengo HCN, entonces puedo hipotecar
-
-马上就可以做抵押贷款
-De una vez se puede realizar hipotecas
-
-所以有3年期, 5年期, 7年期
-Por eso hay de 3 años, 5 años, 7 años
-
-大家记住, 喜美元一定要善用
-Todos recuerden, deben tomar el buen uso de HDO
-
-然后接下来
-Luego lo que viene
-
-咱们在全球各个地方
-Nosotros en cualquier lado del mundo
-
-任何人
-Cualquier persona
-
-都要去用喜支付
-Deben usar el H-pay
-
-H-pay找客户去
-Busquen clientes que utilicen H-pay
-H-pay找来的客户
-Los clientes que consiguen
-
-马上会公布政策
-Inmediatamente se anunciará la póliza
-
-终生你享有这里边的提成点
-Disfrutarás de la comisión por el resto de tu vida
-
-你搞个几个就赢了
-Serás el ganador si encuentras unos cuantos clientes
-
-第三个, 我告诉大家
-El tercero, debo decirles
-
-从现在开始起
-A partir de este momento
-
-我们农场
-Nuestra finca
-
-马上要把币的事搞明白以后
-Luego de conocer y arreglar bien
-
-调整完
-El asunto de la moneda
-
-我说过了
-Yo había dicho
-
-爆料革命, 灭共事业
-El movimiento de denunciantes y el trabajo de eliminar al Partido Comunista
-
-没有周末, 没有假期
-No hay fin de semana ni vacaciones
-
-* * *
-
-日期：11/08/2021
-原视频标题：喜美元转款无限制即将开通账户互转喜币理财
-El H-Dollar (HDO) y H-Coin (HCN) pronto se abrirá cuentas para realizar transferencias ilimitadas y gestionar operaciones financieras
-原视频日期：11/04/2021
-原视频网址：[https://twitter.com/se1y7cblljselva/status/1456572206360629252?s=24](https://twitter.com/se1y7cblljselva/status/1456572206360629252?s=24)
-任务编号：KC238(2783)
-视频时间段：0:00-2:20
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

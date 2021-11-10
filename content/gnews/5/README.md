@@ -2,39 +2,28 @@
 ---
 
 
-## 有声| 中共禁止数字货币交易的根本原因
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653221/)
+## 侵犯用户个人隐私，脸书面临韩国1800万人集体诉讼
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1653333/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月7日，郭文贵先生在GTV大直播中，揭露了中共禁止数字货币交易的根本原因。
+撰稿：东京樱花团/风翼
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-5.png)
+[图片来源](https://www.foxbusiness.com/technology/illinois-facebook-photo-tagging-lawsuit-settlement)
 
-郭先生爆料，中共内部文件显示，中共研究数字货币是出于安全和政治的考虑。中共担心，一旦允许任何数字货币公司在中共国经营，中共金融的秘密和安全将荡然无存。因此，中共为保证数字货币时代的安全，不仅使用绝对“中心化”的区块链技术，和行政管理，垄断数字货币发行权，而且发行数字人民币，禁止中国人使用和购买其它数字货币。
+据【哇哦！韩国网报道】韩国律师事务所智翔勤得（音）网络中心透露，因到去年11月之前的6年中，脸书未经用户同意将330万个人信息传递给1万多个第三方应用开发商，受到美国个人信息委员会对脸书处以67亿韩元罚款。今年8月，又因未经同意而生成和使用用户面部识别信息的行为被罚款64亿4千万韩元。
 
-中共企图控制西方国家“去中心化”的数字货币主导权，进而掌握西方国家的经济和安全信息。利用美国华尔街和伊朗进入比特币市场，郭先生指出，比特币挖矿机大多已被中共解放军控制。
+今年4月，脸书会员通过其代理人智翔事务所向脸书申请个人信息纠纷调解，个人信息调解委员会收到申请后于7月开启程序，10月提出个人信息调解方案，其包括181名申请人每人获30万韩元的赔偿。但在获悉脸书不接受个人信息纠纷调解委员会的调解方案后，智翔律师所表示，在2018年6月美国联邦贸易委员会（FTC）对脸书调查之前，所有订阅的韩国用户都被认定为受害者，也就是1800万人，并呼吁这些用户加入索赔行列，并将代表这些人对脸书进行集体索赔诉讼。
 
-喜联储的诞生，一方面打破了中共控制数字货币的话语权，另一方面，对于中共向西方国家金融信息渗透的企图，是致命的打击。
+脸书作为处于全球顶尖的社交媒体，被个人信息委员会以透露个人信息和侵犯个人隐私权处以高额罚款，不难看出美国司法和经济监管机构，对有重大影响的网络媒体侵犯普通用户权益的保护。这对于将来脸书和大型垄断网络媒体的各种不法行为的法律诉讼有了案例可循，也代表着被诉讼的浪潮将要到来。例如对言论自由的诉讼、违法关闭个人平台的不法行为的损害赔偿等。当然，关于传播中共病毒疫苗等真相的新中国联邦的广大战友，也请保存好证据，这将成为维权的最好武器。
 
-文字版原文：[中共禁止数字货币交易的根本原因](https://gnews.org/zh-hans/1648630/)
+信息来源：
 
-音频处理：喜山必胜Maverick
+##### [｢フェイスブックは1800万人の被害者に賠償を｣、損害賠償請求訴訟を準備＝韓国](https://s.wowkorea.jp/news/read/322388/)
 
-发稿：呼吸的雾霾（文小呼吸）
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-4.jpg)
 
-![This image has an empty alt attribute; its file name is Nov.png](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,41 +2,47 @@
 ---
 
 
-## 有声| 恒大子公司债券利息逾期未付
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653229/)
+## 有声| 雾霾、寒潮加暴雪，墙内民众叫苦连天
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653341/)
 
-配音：香草山香港部 – 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+香草山香港部 – 文凯琳
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-截至11月8日上午，恒大集团子公司景程有限公司（Scenery Journey Ltd）部分美元债券的持有人，尚未收到上周六到期的债券利息。
 
-据了解，景程公司2022年11月到期、票面利率为13%，以及2023年11月到期、票息为13.75%的债券本该在上周六进行半年一次的付息，总金额为8249万美元，但是债券持有人并未如期收到票息。
+连日来，中共国中东部地区连续多日出现重度雾霾。随后，一股强冷空气席卷全国，大部分地区一夜间气温骤降，暴雪临门，很多民众生活面临困境。
 
-根据规定，景程公司在星期六之前未兑付债券利息，即启动为期30天的支付宽限期。如果在30天宽限期过后仍未兑付票息，即被视为违约。除此之外，据悉，恒大集团在11月至12月期间，自身也将有3.38亿美元的海外美元债券的票息到期需要支付。
+从11月2日起，中共国中东部地区空气污染日渐严重，截至11月5日7时，京津冀及周边、汾渭平原、长三角等地区，共有85个城市的空气质量出现PM2.5超标污染，29个城市启动重污染天气预警。其间，从11月4日开始，一股寒潮对中共国自西北至东南展开全面侵袭，气温大幅下降，全国大部分地区气温下降8°~10°，局部地区降温达16°以上。6日下午，内蒙古通辽、吉林省长春等地连发多次暴雪红色预警。北方大部分地区从7日开始普降暴雪，多地降雪量突破历史极值，一夜之间进入寒冬。
 
-恒大近几个月来，由于销售不畅，大量债务到期日接踵而至，公司现金流严重缺乏。市场担忧，在可见的未来，中共房地产的崩盘将对世界金融市场和经济造成巨大冲击。
+雾霾、寒潮、暴雪，使墙内百姓生活雪上加霜。
 
-文字版原文：[恒大子公司债券利息逾期未付](https://gnews.org/zh-hans/1649581/)
+有消息人士称，因为煤炭价格飙涨，还有很多农村居民没有采购足够的煤，如何温暖地度过今年冬天的严寒，将是他们不得不面对且发愁的头等大事。
+
+文字版原文：[雾霾、寒潮加暴雪，墙内民众叫苦连天](https://gnews.org/zh-hans/1649770/)
 
 音频处理：喜山必胜Maverick
 
 发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

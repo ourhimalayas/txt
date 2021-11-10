@@ -2,30 +2,49 @@
 ---
 
 
-## 有声|新一轮对美国的网络攻击疑与中共黑客高度相关
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653198/)
+## 排除中共国，美商务部长即将出访亚洲多国
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653275/)
 
-配音：香草山香港部 – 文凯琳
+作者：英国喜庄园 – I770775
 
-有消息称，外国黑客已经侵犯了美国国防部门和其它敏感部门的数据。网络安保公司帕罗阿尔托的高管瑞恩表示，这一轮网络攻击针对国防、能源、医疗保健、技术或教育等九个部门。身份不明的黑客不断试图从美国国防承包商和其他敏感目标窃取关键数据。至少有一个黑客组织位于美国本土。
 
-瑞恩说，黑客窃取了一些目标部门的密码，以保持对这些网络的长期访问。入侵者可以顺利拦截通过电子邮件发送或存储在计算机系统的敏感数据。任何与五角大楼做生意的公司都可以在电子邮件中包含外国间谍可能感兴趣的一系列国防合同数据。即使不是机密信息，也非常有价值。
 
-目前还不清楚谁对此负责，但攻击者的一些战术和工具与中国黑客组织的手段高度相关。CISA和FBI表示正在追踪和调查这一威胁，但拒绝就黑客身份发表评论。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-文字版原文：[新一轮对美国的网络攻击疑与中共黑客高度相关](https://gnews.org/zh-hans/1650000/)
 
-音频处理：喜山必胜Maverick
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+11月7日，美国商务部宣布，部长雷蒙多将在下星期对亚洲地区进行为期三天的访问，这也是她上任后对亚洲地区的首次出访。
+
+根据商务部行程安排显示，雷蒙多将在11月15日访问日本一天，在16日至18日对新加坡和马来西亚进行三天访问。主要议程是，和地区国家领导人以及私营部门的伙伴商谈强化供应链、数字经济和地区基础建设项目。从行程安排可以看出，雷蒙多这次的访问地区主要是东南亚地区，但并不包括亚洲大国中共国，因而引发外界猜想。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-26.jpg)
+有分析人士说，雷蒙多的这次出访，是为了推动拜登上个月底在东亚峰会上提出的建立印太地区经济框架的倡议。拜登政府的这项举动就是为了与中共在亚太地区的经济和投资活动竞争，同时提升美国供应链的安全性与稳定性。 美国商务部长首次出访的行程，与新任东亚事务助理国务卿首次出访只见日韩盟友的安排如出一辙。美国远离并对抗中共的意图越发明显。
+
+参考链接：
+[美商务部长下周访问亚洲强化供应链 行程不包括中国](https://www.voachinese.com/a/us-commerce-chief-to-visit-asia-20211108/6304152.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

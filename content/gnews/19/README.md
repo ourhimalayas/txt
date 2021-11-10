@@ -2,48 +2,50 @@
 ---
 
 
-## 联邦法院暂停了拜登政府的私人雇主新冠疫苗强制令
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1653008/)
+## 中共教育部要求3到11岁学童接种中共病毒疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653197/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/bdien-in-state-1200x800-700x420-1.jpg)网络图片
-联邦上诉法院周六阻止了拜登政府的私人雇主新冠疫苗强制任务，声称该要求可能存在宪法问题。
-美国第五巡回上诉法院的庭审小组在一个简短的命令中说：“各项请愿令人们有理由相信该强制令存在着严重的法律和宪法问题，因此在本法院采取进一步行动之前，该强制令将暂停。”
-由于案件仍在进展中，本周公布的停止强制令是暂时的。
-
-该案件由多家企业共同提出，包括美国家庭协会、多个个人、以及包括德克萨斯州、犹他州和密西西比州的多个州。
-请愿者表示，这项由劳工部职业安全与健康管理局 (OSHA) 作为一项紧急临时标准 (ETS) 所颁布的强制授权应被取消，因为它超出了OSHA在职业安全与健康法案
-（Occupational Safety and Health Act）的规定下所拥有的权限。
-
-请愿者说，OSHA的权限仅涵盖与工作场所相关的危险，而新冠病毒的风险是“覆盖全社会的危险”。他们还表示，这项强制措施毫无道理可言，因为确认新冠病毒是否是工作场所的危害取决于员工的年龄和健康状况，而不是他们有多少同事。
-“为了在未经国会批准的情况下在全国范围内强制执行疫苗接种，行政部门将新冠疫苗强制接种表述为一项紧急工作场所规则，有近一亿美国人受此影响。但ETS既不是工作场所规则，也不是针对紧急情况的回应”，请愿方的律师在一份要求法院暂停疫苗强制令的紧急动议中写道。
-
-“疫苗接种状况是一个影响全社会人民的公共卫生问题；这不是一个工作场所特有的危险。并且，没有必要使用紧急规则来应对已经持续了近两年的全球新冠大流行。国会从未在其授权的法规中授予OSHA如此广泛的权力”他们补充道。
-政府官员近几天表示，他们有信心OSHA的规则在被公开后将能够经受住已提交的大量法律挑战。
-
-劳工部律师西玛·南达（Seema Nanda）在在一封电子邮件声明中告诉大纪元时报，政府准备在法庭上捍卫这项强制令。
-她说：“美国劳工部对其发布的（新冠）疫苗接种和测试的紧急临时标准所具有的法律权力充满信心。《职业安全与健康法》明确授权OSHA在紧急情况下迅速采取行动，即该机构在发现工人处于极大的危险时，有必要制定新的标准来保护他们。”
-
-Brandon Trosclair是一位在路易斯安那州和密西西比州的杂货店中雇佣了近500名员工的请愿者，他在一份声明中说，该裁决是“所有美国人的令人难以置信的首场胜利”，并补充说，上诉法院“很快便意识到拜登的雇主疫苗强制授权将对像我这样的企业造成巨大伤害。”
-“法院的决议不仅阻止了拜登继续他的非法越权行为，并且还下令进行我们所寻求的审慎的审查。”共和党人、请愿者之一的路易斯安那州总检察长杰夫·兰德里（Jeff Landry）补充说，“总统不会在没有宪法的规定与制衡下将医疗程序强加给美国人民。”
-
-上诉法院庭审小组由川普提名的斯图尔特·凯尔·邓肯（Judge Stuart Kyle Duncan）法官、里根提名的伊迪丝·琼斯（Judge Edith Jones）法官和小布什提名的库尔特·恩格尔哈特（Judge Kurt Engelhardt）法官组成。
-拜登政府被命令在周一下午5点前提交对请愿人永久禁令动议的答复，并在周二下午5点前提交对其他请愿人法庭文件的答复。
-
-简评：
-这次的法律裁决是自2020年美国大选以来美国人民在经历了无数次打击，包括大选被盗、病毒攻击及疫苗灾难，在至暗时刻中的一道闪电，它预示着美国人民在重压之下已经集结到反抗的力量，匡扶正义。美国人民正在夺回美国。
-
-原文链接：[Federal Court Blocks Biden Administration’s Private Business COVID-19 Vaccine Mandate](https://www.theepochtimes.com/federal-court-blocks-biden-administrations-private-business-covid-19-vaccine-mandate_4089942.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山医疗部 – 云豹
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+近日，中共教育部要求对3至11岁学童积极推进疫苗接种工作。
+
+7月下旬开始，中共开始为12至17岁的青少年施打中共病毒疫苗。9月，中共疾病预防控制中心免疫专家王华庆，在中共国务院联防联控机制的记者会上表示，要考虑对12岁以下的族群施行疫苗注射。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-67.jpg)
+从10月24日开始，海南、湖北全省，以及浙江、湖南两省的部分地级市，陆续要求3至11岁儿童接种疫苗。
+
+近日，河北省郑州市、荥阳市、新密市、辛集市等地区的小学发生群聚感染，中共借此积极向全国推动3至11岁学童的疫苗接种工作。
+
+参考链接：
+[校園爆疫情 中國教育部促3至11歲學童打疫苗](https://www.cna.com.tw/news/acn/202111090210.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：木白
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
