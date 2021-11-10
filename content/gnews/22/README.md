@@ -2,30 +2,22 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月10日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1653567/)
+## 文贵视角11.10：癌症、违约、资金外逃 -六中全会内部信息
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1653624/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-168.png)
+图片来源：GTV
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-8.png)
-文章仅代表作者本人观点，与Gnews无关
+共产党六中全会都开了，而所有全世界的中文社交媒体上一致性都声称对六中全会所谓的爆料啊、泄露信息，但是都是共产党的喂料。郭文贵先生说新中国联邦要在唯真不破的方式下传播爆料、传播真相，我们要起最关键的作用。
 
-视频参看：2021.11.10早GTV新闻访谈
+国内战友给郭文贵先生发来中共六中大会的信息：有某人在会上提出了一个刚刚做出的统计报告，我们中国获得了11个第1。 中国去年癌症官方数字450万，实际人数1100万！一个14亿的中国，有1100万癌症，这些数字背后是多么鲜活的生命。哪个癌症的背后不是带着一个家庭、两个家庭。癌症会耗尽整个家庭的所有的积蓄，而且共产党的癌症药价是美国的70倍到100倍！
 
-[https://gtv.org/broadcast/watch/618bc8e6e7e770379232594b](https://gtv.org/broadcast/watch/618bc8e6e7e770379232594b)
+第二，中国房地产海外违约创历史新高，现在债务违约到280亿元已经过期的，中国要面对着马上在30天内 2700亿到6000亿美元的间接和融资和票据贷款 ，这是有历史意义的! 郭先生说，这三数字我告诉你，不管哪个是真哪个是假，只要一个是真的，大家都等着吧，你都会看到这个股市全球经济，你真可以是拿美元欧元去檫屁股去了。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+第三，据香港政府某局的数据统计，过去三个月香港外籍人士撤离，从过去的每月的7000人突然增加到11000人，特别是大多数的金融企业和高管，全部移到了英国、新加坡和日本，大量的外汇移出香港到日本、新加坡和英国，使得三地区的房地产指数涨了20%-22%，共产党救了日本的房地产。根据此现象继续下去，香港将在六个月以内，因为金融高管和外资的撤离，将导致香港真正的成为金融的空港。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-1.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+链接：https://gettr.com/streaming/pgku1i0993
 
  
 
