@@ -2,44 +2,29 @@
 ---
 
 
-## 塔利班坎大哈阅兵，与中共1949北京阅兵何其相似
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1653114/)
+## 有声|喜联储技术优于加密货币领域最大的独角兽
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653244/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-116.jpeg)
-撰文：台湾宝岛农场 快慢机
+配音：香草山美食部 – 玫瑰园
 
-刚刚利用美军撤离后的短暂稳定真空期，而卷土重来趁机攫取阿富汗政权的塔利班，于当地时间11月8日，在坎大哈举行了一场类似中共1949年北京阅兵的庆祝仪式。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-117.jpeg)
-当地时间2021年11月8日，在位于阿富汗坎大哈的主干道上，一列列此前由美军撤离后遗留在当地的，各型机械化轻重武器装备所组成的军车队，正浩浩荡荡的分批巡游式开进。途径道路两侧则由不少全副武装的塔利班士兵负责沿途警戒，同时也有部分当地民众在路旁驻足观望。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-118.jpeg)
-这是刚刚攫取阿富汗政权不久的塔利班，高调的在坎大哈举行的一场声势浩大的阅兵庆祝活动中的一幕。值得注意的是，不论是行进在主干道上的各型机械化轻重武器装备，还是途径道路两侧负责警戒的塔利班士兵，从头到脚都是一水儿的标准美军制式装备。其中不乏许多塔利班士兵身上的军装，还是全套崭新的美军现役制式战斗套服。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-119.jpeg)
-若不是看到随处可见的塔利班旗帜，以及现场穿着全套美军战斗套服士兵手中所持的，经典俄式AK系列突击步枪的话，乍一看还真以为美军又重回阿富汗展开反恐作战了呢。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-120.jpeg)
-如今的阿富汗从表面上来看，基本已经被塔利班控制了绝大多数的主要城镇，坎大哈更是完全在塔利班的全权掌控之中。而国际社会上真正承认塔利班政权的国家却寥寥无几，进而与塔利班相向而行的恐怕也只有中共一家。高下立判，显而易见。
+Kraken是一家位于美国加州的加密货币交易所和银行， 成立于2011年。它拥有国家银行执照， 是加密货币领域最大的独角兽之一。
 
-中共1949年的北京开国阅兵，也是刚刚非法窃取中国大陆政权后，采用绝大多数国军撤退后遗留下的美式装备，而组成的阅兵阵营，就连当时的党魁毛泽东所乘的检阅车辆，都是美军威利斯军用越野吉普车。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-121.jpeg)
-无独有偶，如今刚刚攫取阿富汗政权的塔利班，如此高调急切的在坎大哈，从美军撤离后遗留下的一众各型武器装备中，东拼西凑的组建出了一支机械化阅兵队伍，进行声势浩大的类似当年，中共窃取大陆政权后，在北京所举行的那场所谓的开国阅兵式竟然如出一辙。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-122.jpeg)
-中共1949年在北京所举行的那场所谓的开国阅兵式上。几乎九成的轻重武器装备，都是当年国军撤离时遗留下的美式装备，剩余其它的则是当时苏联所提供的部分武器装备。就连当时共军的军服样式及颜色，都是照搬国军制式套服的款式所复制的。从之前八路军和新四军的蓝灰色，统一换装成国军的卡其色与黄绿色。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-123.jpeg)
-七十几年前的中共，在非法窃取了中国大陆政权之后，捡起国军遗留下的美式装备，在北京弄了一场所谓的开国大典阅兵式。想不到七十余载之后的当下，与中共形影不离相向而行的塔利班，竟然也是在刚刚非法攫取阿富汗政权之后不久，同样是捡起遗留下的美式装备，在坎大哈弄了一场，与当年中共于北京弄的那场所谓的开国阅兵，如出一辙的闹剧。
+kraken公司产品包括加密货币交易所，场外交易柜台和期货交易平台。Kraken交易所提供加密货币和法定货币之间的交易， 并向彭博终端提供价格信息。在全球加密货币交易量排名第六。截止2021年，Kraken已经对美国48个州和176个国家的居民开放， 并提供72种可供交易的加密货币。
+2021年初，Kraken 已超过200亿美元的估值。其直接竞争对手Coinbase的估值预计为1000亿美元。郭先生在直播中提到，这两个公司使用的公共区块链技术，在技术层面远不及喜联储的私人区块链。虽然Kraken 在短时间内做到世界领先，但新中国联邦的金融系统将是世界级的金融航空母舰。
 
-历史的巨轮滚滚前行，遗憾的是悲剧却总在不断的重复上演！物以类聚人以群分，一丘之貉蛇鼠一窝。能与塔利班这类的国际恐怖主义组织相向而行的中共，其究竟是个怎样的货色，由此可见一斑。
+文字版原文:[喜联储技术优于加密货币领域最大的独角兽](https://gnews.org/zh-hans/1648587/)
 
-本文仅代表笔者个人观点！
+音频处理：喜山必胜Maverick
 
-资料链接： [https://war.163.com/photoview/00AO0001/2312511.html#p=GOCJE30V00AO0001NOS](https://war.163.com/photoview/00AO0001/2312511.html#p=GOCJE30V00AO0001NOS)
-
-* * *
-
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

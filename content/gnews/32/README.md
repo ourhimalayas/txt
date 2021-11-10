@@ -2,255 +2,57 @@
 ---
 
 
-## 喜美元转款无限制即将开通账户互转喜币理财
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1652698/)
+## 焦点新闻摘要 2021年11月7日
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1652868/)
 
-[https://gtv.org/video/id=618b330eadfd99590c34ef42](https://gtv.org/video/id=618b330eadfd99590c34ef42)
+整理：豆子
 
-你进来以后KYC, 你开了帐号
-Luego de realizar el procedimiento de KYC, abres la cuenta
+1. 西班牙马约卡岛约20外籍乘客跳机 警捉回11人
+2. 阿富汗发现4女遗体 疑为女权人士遭设局诱杀
+3. 涉对示威群众施暴  马克宏前护卫判刑3年免入监
+4. 外媒称将出售《南华早报》 阿里巴巴内部邮件曝光
 
-你钱打多少是不受限制的
-No hay límite por la cantidad de dinero que transfieras
 
-比如说
-Por ejemplo
+1，[西班牙马约卡岛约20外籍乘客跳机 警捉回11人](https://www.rfi.fr/cn/%E8%A5%BF%E7%8F%AD%E7%89%99%E9%A9%AC%E7%BA%A6%E5%8D%A1%E5%B2%9B%E7%BA%A620%E5%A4%96%E7%B1%8D%E4%B9%98%E5%AE%A2%E8%B7%B3%E6%9C%BA-%E8%AD%A6%E6%8D%89%E5%9B%9E11%E4%BA%BA)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-1-1.jpg)
+法广新闻11月6日，（法新社马德里6日电） 一架飞机昨天紧急降落在西班牙马约卡岛大城帕尔马的机场，约有20名机上乘客竟趁机跳机，导致马约卡岛当局必须紧急关闭机场。
 
-海东兄弟开了喜美元帐号
-El hermano Haidong abrió una cuenta de HDO
+一架从摩洛哥飞往土耳其的飞机昨天傍晚降落在西班牙最繁忙机场之一帕尔马机场。西班牙警方今天表示已捉回11人。 目前据信至少仍有9名乘客在逃。
 
-KYC过了
-Luego que el KYC es aprobado
+西班牙警方今天上午发布声明说，这架班机因一名乘客看似出现糖尿病昏迷症状而紧急降落，准备由他的一名伙伴陪同经救护车送往医院。
 
-刚才一个美国
-Hace rato, un amigo de EE. UU
+2，[阿富汗发现4女遗体 疑为女权人士遭设局诱杀](https://www.rfi.fr/cn/%E9%98%BF%E5%AF%8C%E6%B1%97%E5%8F%91%E7%8E%B04%E5%A5%B3%E9%81%97%E4%BD%93-%E7%96%91%E4%B8%BA%E5%A5%B3%E6%9D%83%E4%BA%BA%E5%A3%AB%E9%81%AD%E8%AE%BE%E5%B1%80%E8%AF%B1%E6%9D%80)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-2-1.jpg)阿富汗女性權利堪憂，6日證實有女權人士在內的4名女性遭誘殺遇害；圖為阿富汗婦女
+6日在喀布爾近郊領取聯合國世界糧食計劃署發放食物。法新社
+                                   圖片來源 : 蘋果新聞網
+法广新闻11月6日，（法新社喀布尔6日电） 阿富汗先前传出有女权运动人士遭到杀害。塔利班政府发言人今天证实，在北部城市马萨里沙利夫发现4名女性死者，并已逮捕2名嫌犯。
 
-摩根家族的某个我们的朋友
-De la familia de Morgan
+发言人柯斯蒂说，嫌犯在初步侦讯时承认，这些女性是受到他们的邀请来到这栋房屋。进一步调查仍在进行，案件也已提交法院审理。
 
-人家的女儿
-Su hija
+柯斯蒂没有说明被害人身分，但消息来源告诉法新社，当中至少有一人是女权运动人士。
 
-女婿人家有双国籍
-Su yerno tiene doble nacionalidad
+英国广播公司波斯语频道引述公民社会消息来源报导，这4名女子是朋友和同事，她们原本希望来到马萨里沙利夫的机场搭机离开阿富汗。
 
-人家就可以KYC
-Él pudo realizar el KYC
+一位要求匿名的人权组织消息人士告诉法新社，4女接到一通电话，以为是邀请她们一同搭乘撤离班机；她们随后被一辆汽车接走，被发现时已身亡。
 
-KYC过了以后
-Luego que esto sea aprobado
+3，[涉对示威群众施暴  马克宏前护卫判刑3年免入监](https://www.rfi.fr/cn/%E6%B6%89%E5%AF%B9%E7%A4%BA%E5%A8%81%E7%BE%A4%E4%BC%97%E6%96%BD%E6%9A%B4-%E9%A9%AC%E5%85%8B%E5%AE%8F%E5%89%8D%E6%8A%A4%E5%8D%AB%E5%88%A4%E5%88%913%E5%B9%B4%E5%85%8D%E5%85%A5%E7%9B%91)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-3-1.jpg)法國總統馬克宏(Emmanuel Macron)的前隨扈班納拉(Alexandre Benalla)。(資料照 / AFP)
+法广新闻11月6日，（法新社巴黎5日电） 法国媒体于2018年揭露，总统马克宏当时的贴身护卫班纳拉在一场反资本主义示威中殴打抗议民众，被视为重大丑闻。班纳拉今天被判处3年徒刑、缓刑2年，其余一年配戴电子手环。
 
-刚才他说了
-Él hace rato dijo
+4，[外媒称将出售《南华早报》 阿里巴巴内部邮件曝光](https://www.chinatimes.com/realtimenews/20211107001195-260409)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-4-1.jpg)
+中时新闻网11月7日，据路透报导，一封香港《南华早报》内部邮件称，大陆电子商务巨头阿里巴巴联合创始人蔡崇信澄清，阿里巴巴没有出售《南华早报》的计划。
 
-我买了这个币
-Compré esta moneda
-人家就买了, 合法啊
-Él lo pudo comprar, de manera legal
+有外媒此前报导，一家大陆国企正在考虑收购《南华早报》。据路透报导，《南华早报》CEO刘可瑞在信中说，从来没有关于《南华早报》所有权的任何讨论，阿里巴巴也没有做出任何改变的计划。
 
-最重要的事情
-Y lo más importante
+彭博近日报导指出，紫荆文化（香港）控股有限公司正在制定一项收购要约，可能会将这家有118年历史的英文报纸纳入其媒体资产。
 
-他的一个好朋友
-Su amigo
+彭博报导并指出，其他有政府背景的实体可能考虑向《南华早报》提出收购要约，报导并称，交易不一定会达成。
 
-包括我们的一个朋友
-Incluyendo nuestro amigo
 
-大额钱汇到这个喜美元帐号
-Transfirieron de grandes cantidades de dinero a la cuenta de HDO
 
-喜美元帐号的未来是什么
-¿Cuál es el futuro de la cuenta de HDO?
-
-它连着喜支付呢
-Está vinculada con el H-pay
-
-你买啥都可以
-Puedes comprar cualquier cosa
-
-它是个比信用卡还方便的东西
-Es algo más conveniente que la tarjeta de crédito
-
-手机支付, 刷卡支付
-Pago móvil, pago con tarjeta de crédito
-
-还有一个隔空支付
-Y también está un pago al aire
-
-战友与战友之间也马上就开通
-Entre compañeros luchadores pronto se abrirá también
-
-你的帐号之间也可以互相转
-Al igual se puede transferir entre sus cuentas
-
-那么这个钱
-Entonces, este dinero
-
-你不用在这搁着怎办呢
-Si no lo utilizas aquí, que harás si lo dejas allí
-
-是不是啊
-¿Cierto?
-
-未来给你7%到10%的利息
-En un futuro te dará el 7% a 10% de intereses
-
-拿什么支付呢, 拿喜币支付
-¿Con qué se pagará? A través de HCN
-
-大家记住啊, 这个可牛了
-Todos recuerden, esto es algo muy poderoso
-
-喜币本身就有(升值)
-El HCN en sí puede (reevaluarse)
-
-它是浮动币就增长
-Crece cuando es una moneda flotante
-
-你现在告诉我
-Ahora tú me dices
-
-东弟, 钊颖, 飞飞
-Hermano Dong, Zhaoying, Feifei
-
-你看你们在账上的钱
-Vean el dinero que están en sus cuentas
-
-你想一想啊
-Piensa
-
-现在飞飞家房子
-Ahora la casa de Feifei
-
-可能是150万美元
-Podría ser 1.5 millones de dólares
-
-你把你的房子卖掉
-Vendes tu casa
-
-150万美元就放在了喜美元里边
-Estos 1.5 millones de dólares lo dejas en la cuenta de HDO
-
-7%的喜币给你
-Te dan el 7% de HCN
-
-你拿你在喜币
-Tomas el HCN
-
-拿到钱的50%去租房子去
-Y te llevas el 50% del dinero para alquilar una casa
-
-是你现在住的房子的五倍大
-Y es cinco veces más grande que la que estás viviendo ahora
-
-但你每年都会升值
-Pero se revalúa cada año
-
-美国人没有一个人不卖房的
-No hay ningún estadounidense que no venda su casa
-
-美国人是卖房子换房子
-Ellos la venden y cambian por otra
-
-才是有钱人
-Así es ser rico
-
-只有穷人一住(一辈子)
-Solamente los pobres viven de (por vida) con la misma casa
-
-像中国人说老房子
-Así como dicen los chinos, “casa vieja”
-
-老房子说明你很穷很笨好不好
-Si es una “casa vieja” significa que eres pobre y tonto
-
-所以说这叫理财
-Por eso esto se llama gestión financiera
-
-还有一个, 有喜币的
-Y hay otro, quien tenga el HCN
-
-本身我有喜币, 我就可以抵押贷款
-Yo particularmente tengo HCN, entonces puedo hipotecar
-
-马上就可以做抵押贷款
-De una vez se puede realizar hipotecas
-
-所以有3年期, 5年期, 7年期
-Por eso hay de 3 años, 5 años, 7 años
-
-大家记住, 喜美元一定要善用
-Todos recuerden, deben tomar el buen uso de HDO
-
-然后接下来
-Luego lo que viene
-
-咱们在全球各个地方
-Nosotros en cualquier lado del mundo
-
-任何人
-Cualquier persona
-
-都要去用喜支付
-Deben usar el H-pay
-
-H-pay找客户去
-Busquen clientes que utilicen H-pay
-H-pay找来的客户
-Los clientes que consiguen
-
-马上会公布政策
-Inmediatamente se anunciará la póliza
-
-终生你享有这里边的提成点
-Disfrutarás de la comisión por el resto de tu vida
-
-你搞个几个就赢了
-Serás el ganador si encuentras unos cuantos clientes
-
-第三个, 我告诉大家
-El tercero, debo decirles
-
-从现在开始起
-A partir de este momento
-
-我们农场
-Nuestra finca
-
-马上要把币的事搞明白以后
-Luego de conocer y arreglar bien
-
-调整完
-El asunto de la moneda
-
-我说过了
-Yo había dicho
-
-爆料革命, 灭共事业
-El movimiento de denunciantes y el trabajo de eliminar al Partido Comunista
-
-没有周末, 没有假期
-No hay fin de semana ni vacaciones
-
-* * *
-
-日期：11/08/2021
-原视频标题：喜美元转款无限制即将开通账户互转喜币理财
-El H-Dollar (HDO) y H-Coin (HCN) pronto se abrirá cuentas para realizar transferencias ilimitadas y gestionar operaciones financieras
-原视频日期：11/04/2021
-原视频网址：[https://twitter.com/se1y7cblljselva/status/1456572206360629252?s=24](https://twitter.com/se1y7cblljselva/status/1456572206360629252?s=24)
-任务编号：KC238(2783)
-视频时间段：0:00-2:20
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+审核校对：Barry Jack
+上传排版：F
 
  
 

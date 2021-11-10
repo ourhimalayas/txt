@@ -2,25 +2,46 @@
 ---
 
 
-## 东北、内蒙古多地突降特大暴雪，老百姓受灾唯有自救
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1653147/)
+## 排除中共国，美商务部长即将出访亚洲多国
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653275/)
 
-撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-25.jpg)
-[图片来源](https://news.sina.com.cn/c/2021-11-10/doc-iktzqtyu6530458.shtml)
+作者：英国喜庄园 – I770775
 
-据“中国新闻周刊”消息，受寒潮影响，11月7日至8日，内蒙古东南部、辽宁中部、吉林西部等地部分地区出现大暴雪或特大暴雪。至8日夜间，内蒙古、东北地区新增积雪厚度达10厘米至20厘米，局地可达40厘米以上。 辽宁省气象台首席预报员周春晓介绍，东北及内蒙古地区，在本轮寒潮过程中，降雪量如此之大，积雪厚度如此之深系多个天气系统迅猛发展，冷暖空气激烈交汇导致的。
 
-去年以来，随着中共末日临近，异常天气和灾害不断。东北，内蒙古过早降雪，大量老百姓的生活甚至生存受到影响，加之当前东北中共病毒疫情加剧，广大老百姓要遭大罪了。
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-##### [东北、内蒙古多地发生特大暴雪，专家：有可能引发雪灾](https://www.toutiao.com/a7028886471050297893/?tt_from=copy_link&amp;utm_campaign=client_share&amp;app=news_article&amp;utm_source=copy_link&amp;iid=2560110237849416&amp;utm_medium=toutiao_android&amp;use_new_style=1&amp;share_token=7963dce3-aa21-4a1e-85aa-69eb1c67fde1)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-4.jpg)
-# 
+
+11月7日，美国商务部宣布，部长雷蒙多将在下星期对亚洲地区进行为期三天的访问，这也是她上任后对亚洲地区的首次出访。
+
+根据商务部行程安排显示，雷蒙多将在11月15日访问日本一天，在16日至18日对新加坡和马来西亚进行三天访问。主要议程是，和地区国家领导人以及私营部门的伙伴商谈强化供应链、数字经济和地区基础建设项目。从行程安排可以看出，雷蒙多这次的访问地区主要是东南亚地区，但并不包括亚洲大国中共国，因而引发外界猜想。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-26.jpg)
+有分析人士说，雷蒙多的这次出访，是为了推动拜登上个月底在东亚峰会上提出的建立印太地区经济框架的倡议。拜登政府的这项举动就是为了与中共在亚太地区的经济和投资活动竞争，同时提升美国供应链的安全性与稳定性。 美国商务部长首次出访的行程，与新任东亚事务助理国务卿首次出访只见日韩盟友的安排如出一辙。美国远离并对抗中共的意图越发明显。
+
+参考链接：
+[美商务部长下周访问亚洲强化供应链 行程不包括中国](https://www.voachinese.com/a/us-commerce-chief-to-visit-asia-20211108/6304152.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
 
 

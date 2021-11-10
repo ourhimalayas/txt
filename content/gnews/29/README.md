@@ -2,33 +2,91 @@
 ---
 
 
-## 中共国防部回应美议员访台，称“中国必须统一”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1652725/)
+## 喜币的起起伏伏证明其真实
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1652878/)
 
-#### 作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-16.png)[魏凤和（路透社照片）](https://tnimage.s3.hicloud.net.tw/photos/2021/11/10/1636511014-618b2d26d234e.JPG)
-**中共国防部就美国议员军机访台警告民进党当局不要误判形势，“中国必须统一”。台湾外交部发言人表示，美议员访台是由美国驻台湾协会接待，（美驻台湾大使馆）属于正常美台关系互动。**
+[https://gtv.org/video/id=618ba409adfd99590c35060e](https://gtv.org/video/id=618ba409adfd99590c35060e)
 
-据中共国[新华社北京](http://www.news.cn/mrdx/2021-11/10/c_1310301831.htm%0a%0a)11月9日消息称：中共国防部新闻发言人谭克非9日就美国国会议员访问台湾表示坚决反对和强烈谴责外，并没有说，“[美军舰抵高雄之日就是武统台湾之时](https://3g.china.com/act/news/945/20171213/31807476.html)”。而美国参众两院议员抵达台湾进行外交访问是中共明确设定的政治红线。
+**郭文贵
+Miles Guo**
 
-该消息表示，中共国防部警告民进党当局不要误判形势、铤而走险，[否则只会把台湾带入深重灾难](https://gnews.org/zh-hans/1484695/)。并强调“中国必须统一，也必然统一”。认为任何人都不要低估中共“虚张声势”的坚强决心和意志。共匪军将采取一切必要措施，坚决粉碎任何外部势力干涉和“台独”分裂图谋。
+再一个战友们，现在
+My comrades, there is another one, now
 
-- ***延展阅读：***[***中国国防部对美国国会议员访台大发雷霆***](https://www.taiwannews.com.tw/en/news/4340440)
-- ***延展阅读：***[***习近平的帝王梦：拿下台湾已迫在眉睫***](https://gnews.org/zh-hans/1475879/)
+就像昨天暴跌一样
+just like the (situation of) yesterday’s plummet
 
+一句话
+Only by one sentence
 
-美国和欧洲国家近期的一切访台外交举措也正是想要看到中共国共匪军的底线到底在哪里？
+你都能把你的币给抛掉
+it could make you sell your coins
 
-另据[新闻周刊](https://www.newsweek.com/senate-house-lawmakers-arrive-taiwan-diplomatic-visit-1647367)消息称，当地时间下午6点30分左右，一架美军C – 40A型飞机从马尼拉起飞，抵达台北松山机场，美参众两院议员于当地时间周二晚抵达台湾进行外交访问。据飞机观测爱好者透漏，“飞机起飞后不久，飞往日本冲绳嘉手纳空军基地。”
+变成13美金
+and turned to $13
 
-据此，台湾外交部发言人江安(Joanne Ou)表示，“此次访问由美国驻台协会(American Institute in Taiwan)台北分会负责协调。”该协会实际上是美国驻台湾的“大使馆”级别，属于正常美台关系互动。
+未来这个喜币如果没有上上下下
+In the future, if this HCoin doesn’t go up and down
 
-2021年11月10日
+它就不叫喜币
+it will not be called HCoin
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+它就是假的了
+because it’s fake
 
+那就是共产党的恒生股市指数了
+And that would be the CCP’s Hang Seng Index
+
+24700 24200
+which is 24700, then 24200
+
+大陆的50%的所谓的
+In the mainland, 50% of the so-called
+
+经济支撑的房地产都已经崩塌个球的了
+economically supported real estate has collapsed badly
+
+你还24000 那都是假的
+Hang Seng Index still has 24000, that’s all fake
+
+它一定是跌、涨、跌
+It (HCoin) must be down, up, and down
+
+经常这样子的
+often like this
+
+有震动才是真的嘛
+Cause true market has shocks
+
+所谓的横行线一定是假的被操作的嘛
+The so-called horizontal line must be faked and manipulated
+
+但是我希望的是什么
+However, what I’m hoping is that
+
+跌的时候还是涨的时候都不是咱们战友
+it’s not (happen on) our comrades when it falls or when it rises
+
+是那些有钱的投资机构
+Instead, those are wealthy investment institutions
+
+Date: 11/07/2021
+原视频标题: 喜币的起起伏伏证明其真实
+The ups and downs of HCoin are proof of its truth
+原视频日期：2021/11/05
+原视频链接: [https://twitter.com/se1y7cblljselva/status/1457268294163992581?s=24](https://twitter.com/se1y7cblljselva/status/1457268294163992581?s=24)
+任务编号：KC235（2803）
+视频时间段 : 0:00-0:57
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

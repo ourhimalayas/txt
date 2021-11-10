@@ -2,44 +2,31 @@
 ---
 
 
-## 万事达卡推出与加密货币挂钩的卡，加密货币可转为法币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1652114/)
+## 世界对中共国好感骤减，皆因中共自作孽
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1652309/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿:东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12121.jpg)[图片来源](https://zhuanlan.zhihu.com/p/163438999)
+哈佛大学国际关系专家斯蒂芬沃尔特教授强调，一个国家就算体量再大，只要不具有威胁性也无可厚非。 但是，事实是，中共国不仅体量庞大，而且对外界构成了威胁。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/mastercard-crypto-linked-cards-1000x600-1.jpeg)
+长期研究中共国党史的韩国仁川大学教授安智英认为，中共国在崛起过程中采取的一系列行动引起了外界的担忧。 一个典型的例子是“战狼外交”。 此外，“中华民族伟大复兴”、“一带一路”、“命运共同体”等诸多言行都被认为存在问题。
 
+从传统上看，中国最怕东夷、西戎、南蛮、北狄等“蛮夷”联袂。 时常出炉的中共国防白皮书的主题是“外患”。 强调对外有强敌美国，对内则是社会绝对稳定。
 
+现实情况如何？ 过去五年，美国、澳大利亚和加拿大对中共国的看法迅速恶化，欧洲主要国家也呈现出类似趋势。 英国、法国、德国、瑞典等也不例外。80%以上的受访者对中共国的认识都是负面的。尤其在日本，10 名受访者中有超过 9 人 (91%) 表示他们“不喜欢”中共国。 就韩国而言，对中共国的看法也在恶化，一项调查发现，四分之三 (75%) 的人表示不喜欢。
 
-图片来源：www.pymnts.com
+近期，韩国学界和商界的“中国热”也似乎消声匿迹了，看起来仿佛进入了“冰河时代”。 明年8月24日将迎来中韩建交30周年，两国政府间正式层面的准备工作虽正在进行中，但韩国民众对中共国的消极印象并没有明显改变。
 
+天作孽犹可恕，自作孽不可活。中国传统文化自古崇尚睦邻友好，合作共赢。但目前情势来看，怕是中共早已偏离传统文化的轨道，已与世界为敌。
 
-#### 编译：小红帽
+信息来源：
 
-万事达卡周一宣布，在亚太地区推出与加密货币关联的支付卡。这将首次允许持卡人将其数字资产即时转换为法定货币。
+[世界の主要国はなぜ中国を嫌うのか](https://news.yahoo.co.jp/articles/95ce4e7279b2e507dcbd4e7a096f66fb659332a8)
 
-该卡旨在消除不接受数字资产支付的商户与希望用加密货币支付的客户之间的任何障碍。
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
 
-与香港的Amber Group、泰国的Bitkub和澳大利亚的CoinJar的合作将允许该地区的消费者和企业申请与加密货币挂钩的信用卡、借记卡或预付卡，这些卡可以在接受万事达卡的任何地方消费。
-
-这三家公司还将加入万事达卡的全球加密卡计划，成为名册上第一个亚太地区的数字资产服务提供商。该计划旨在使加密货币交易尽可能无缝对接。
-
-该计划推出之际，数字资产的总市值飙升到3万亿美元，这是有史以来第一次，大约相当于整个英国的经济规模。
-
-万事达卡一直是走在数字资产整合前列的公司之一。7月，该公司升级了其加密货币卡，允许客户使用稳定币进行购买。而在10月，它与数字资产平台Bakkt合作，使消费者能够通过托管钱包购买、出售和持有数字资产。
-
-万事达卡此前还承诺帮助各国央行塑造和发展自己的数字货币，这些数字货币是类似于加密货币的数字代币，但不是去中心化的。
-
-**参考链接：**[Mastercard launches crypto-linked payments cards in Asia that allow holders to convert their crypto to fiat instantly | Currency News | Financial and Business News | Markets Insider (businessinsider.com)](https://markets.businessinsider.com/news/currencies/mastercard-cryptocurrency-linked-payments-cards-asia-fiat-amber-coinjar-bitkub-2021-11)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

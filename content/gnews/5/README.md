@@ -2,26 +2,39 @@
 ---
 
 
-## 中共已准备普及加密数字人民币
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1653091/)
+## 有声| 中共禁止数字货币交易的根本原因
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653221/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-39.jpg)
-[图片来源](https://xw.qq.com/cmsid/20201031A05NA600)
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月7日，郭文贵先生在GTV大直播中，揭露了中共禁止数字货币交易的根本原因。
 
-金融界网报道，11月9日中共央行行长易纲在芬兰央行新兴经济体研究院成立30周年纪念活动上的视频演讲中透露，截至今年10月8日，数字人民币试点场景已超过350万个，累计开立个人钱包1.23亿个，交易金额约560亿元。部分城市还推出了数字人民币绿色出行、低碳红包等使用场景。将在成都、长沙、北京等地接连启动数字人民币公交地铁试点活动。
+郭先生爆料，中共内部文件显示，中共研究数字货币是出于安全和政治的考虑。中共担心，一旦允许任何数字货币公司在中共国经营，中共金融的秘密和安全将荡然无存。因此，中共为保证数字货币时代的安全，不仅使用绝对“中心化”的区块链技术，和行政管理，垄断数字货币发行权，而且发行数字人民币，禁止中国人使用和购买其它数字货币。
 
-中共国在今年的5月19日互联网金融协会、中国银行业协会、中国支付清算协会联合声明中表示，包括银行和在线支付渠道在内的此类机构不得向客户提供任何涉及加密货币的服务，如注册、交易、清算和结算，并警告投资者不要进行加密货币投机交易。
+中共企图控制西方国家“去中心化”的数字货币主导权，进而掌握西方国家的经济和安全信息。利用美国华尔街和伊朗进入比特币市场，郭先生指出，比特币挖矿机大多已被中共解放军控制。
 
-今天中共央行行长公开发表讲话，已开立个人钱包1.23亿个，交易金额约560亿元，和在诸多城市试点推行数据得知，是已做好大面积普及数字人民币支付系统做准备，中共国从未放弃加密数字货币，诸多禁止是要排除非中共掌握的货币机构，中共是想要对其市场牢牢控制在手里，不得外人染指。
+喜联储的诞生，一方面打破了中共控制数字货币的话语权，另一方面，对于中共向西方国家金融信息渗透的企图，是致命的打击。
 
-信息来源：[央行行长易纲：数字人民币累计开立个人钱包1.23亿个，今年还推出了绿色出行等使用场景](https://me.mbd.baidu.com/r/wayJTXAB20?f=cp&amp;rs=2122937171&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=738058e0bcb5b461)
+文字版原文：[中共禁止数字货币交易的根本原因](https://gnews.org/zh-hans/1648630/)
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-4.jpg)
+音频处理：喜山必胜Maverick
 
+发稿：呼吸的雾霾（文小呼吸）
 
+![This image has an empty alt attribute; its file name is Nov.png](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

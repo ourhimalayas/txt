@@ -2,30 +2,53 @@
 ---
 
 
-## 11/10/2021中日财经爆：中共国10月CPI与PPI涨幅创新高，老百姓生活多艰
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1652710/)
+## 震惊：大多数疫苗死亡发生在共和党控制的州
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1652870/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/21-5.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwzimg.fx960.com%2Fzs_baike%2F2020%2F09%2FFXA_0c7331d197d44783a8a2890164aca2f8.jpg-hy_list_articlepic&amp;imgrefurl=https%3A%2F%2Fm.fxeye.us%2F202009294464749129.html&amp;tbnid=J4AJiK7IKbyofM&amp;vet=12ahUKEwjp8pbZto30AhVfQPUHHQZOB1UQMygTegUIARDBAQ..i&amp;docid=QY5_d3vSUEQUbM&amp;w=1080&amp;h=720&amp;q=CPI%E4%B8%8EPPI&amp;ved=2ahUKEwjp8pbZto30AhVfQPUHHQZOB1UQMygTegUIARDBAQ)
-中共国国家统计局周三（11月10日）公布数据显示，10月居民消费价格指数(CPI)同比上涨1.5%，为2020年9月以来最高水平；其中，食品价格同比下降2.4%，非食品价格上涨2.4%。10月工业生产者出厂价格指数(PPI)同比上涨13.5%，追平1995年7月水准。
+翻译撰稿：Runaway
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-63-1.png)TheExpose
+据TheExposé最新的调查报告指出，美国VAERS数据显示，100%的Covid-19疫苗死亡报告仅由5%的疫苗批次产品引起，并且大部分被送往了美国各地的共和党州。
 
-分析人士认为，成本端的传导效应将持续扩散，通胀压力在增强。他们指出，缓解供需矛盾成为平抑通胀重要因素，目前的通胀形势对中共国政策调控的考验有所加大，宽松货币政策的可能性不大，料依旧维持中性稳定的态度，“点滴式”输送流动性，政策发力点仍在财政政策和保供稳价的继续加码。
+疫苗不良事件报告系统（VAERS）是可公开访问的数据库，由美国疾病控制和预防中心（CDC）以及美国食品和药物管理局（FDA）共同管理。通过医生、护士和患者关于接种疫苗后发生的不良事件的报告来收集信息，以确定风险收益比是否足以证明继续使用任何特定疫苗是合理的。
 
-“随着PPI同比再创新高，CPI温和抬升，上下游价格的‘剪刀差’也再创新高，上游对于中下游企业的挤压愈演愈烈，经济运行不均衡的态势仍在加剧。”中原银行首席经济学家王军称。
+对10月31日发布的VAERS数据的分析表明，辉瑞疫苗导致的死亡报告仅与特定批次的疫苗有关。“批号”是一串特定的数字和字母，用于跟踪特定批次的疫苗从生产到进入人体的过程，通常可以在疫苗标签或随附的包装上找到。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-64-1.png)TheExpose
+上图显示，96%的辉瑞疫苗批次的死亡报告为零。这意味着报告的2,828例死亡仅与辉瑞疫苗批次的4%相关。有5个批号分别与61-80例死亡相关，另外5个批号与每个81-100例死亡相关，有2个批号每个都与超过100例死亡相关。
 
-他并称，如果全球供应链紧张局面不能有效缓解、国内相关产业政策不能灵活调整，此轮由供给冲击导致的供需错配、供需缺口加大所造成的结构性通胀局面有向中期演进的趋势。稳增长、控风险、调结构所需要的适度宽松正常的财政和货币政策将面临更多掣肘因素，决策部门将面临一个新的“两难”甚至“多难”的局面。
+问题是，致命的Covid-19疫苗被送往哪些州？
 
-三菱日联银行中共国首席金融市场分析师孙武指出，国内企业承担较高的成本型通胀压力，已传导至居民部门，“我们判断通胀情况限制中共国人民银行实施较刺激性货币政策。”
+之前的调查表明，辉瑞的Covid-19疫苗死亡的100%和Moderna Covid-19疫苗死亡的100%仅发生在辉瑞生产的疫苗批次中的4%和Moderna疫苗生产批次中的5%，我们能够对VAERS系统进行直接搜索，列出它们发生的州因两种疫苗造成的死亡人数。
 
-10月CPI同比增幅扩走高虽有一定的基数回落原因，但新涨价因素的推动不容忽视，数据显示上游的价高正在向下游传导，分析师们预计，这种传导效应在未来数月会更加明显，并进一步推高CPI涨幅。
+结果如下:
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-62-1.png)TheExpose
+考虑到每个州接种疫苗的人数并计算疫苗接种率/死亡率时会发现，疫苗接种死亡率最高的前8个州都是共和党控制的红色州，而疫苗接种死亡率最高的前24个州中有19个是共和党控制的红色州。肯塔基州、阿肯色州、西弗吉尼亚州、蒙大拿州、阿拉斯加州、北达科他州、怀俄明州和田纳西州均位居榜首，佛罗里达州在51个州中排名第20。
 
-消息来源:
+数字显示，共和党控制的肯塔基州的疫苗接种率/死亡率比民主党控制的加利福尼亚州糟糕1,900%，这表明共和党州收到的致命批次的Covid-19疫苗数量是民主党控制州收到的20倍。
 
-[焦点：中国通胀压力增强10月CPI与PPI涨幅超预期 决策者面临“多难”局面](https://cn.reuters.com/article/wrapup-china-oct-inflation-1110-wedn-idCNKBS2HV0KA?il=0)
+这些数字还表明，共和党控制的佛罗里达州收到的致命批次的Covid-19疫苗数量是民主党控制的加利福尼亚州收到的三倍，其疫苗接种率/死亡率比加利福尼亚州高 200%。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**结论**
+
+对VAERS数据的这项调查揭示了一些值得进一步关注的问题，即：
+
+- 为什么本应监控Covid-19疫苗安全性的美国当局没有自己发现这一点？
+- 为什么某些批次的疫苗被证明比其它批次的危害更大？
+- 为什么某些批次的Covid-19疫苗被证明比其他批次更致命？
+- 为什么最有害和最致命的Covid-19疫苗都分发给了美国共和党控制的州？
+
+
+这些极其严重的问题需要紧急解答！
+
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
+
+[EXCLUSIVE – VAERS data shows 100% of reported Covid-19 Vaccine Deaths were caused by just 5% of batches produced and the majority were sent to red Republican States across the USA](https://theexpose.uk/2021/11/03/majority-deadliest-batches-of-covid-19-vaccine-were-sent-to-red-republican-states/)
+
+发布：Runaway
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-1.jpg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
