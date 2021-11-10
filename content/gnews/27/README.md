@@ -2,30 +2,47 @@
 ---
 
 
-## 有声|喜联储私人区块链技术确保高效安全
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653271/)
+## 有声| 雾霾、寒潮加暴雪，墙内民众叫苦连天
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653341/)
 
-配音：香草山美食部 – 玫瑰园
+香草山香港部 – 文凯琳
 
-11月7日，郭文贵先生在GTV大直播中，分析了喜联储所采用的私人区块链的技术优势。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-第一，喜联储使用私人区块链技术，每秒钟的交易量可达一百，甚至一万单。而使用公开区块链技术，交易速度很慢，每秒交易只有十单，甚至更少。
-第二，当遭遇黑客攻击时，公开区块链技术支持的数字货币，一旦被盗窃，就无法追回。而喜联储的私人区块链技术，能够确保数字货币的绝对安全，即使被黑客盗取，因有迹可查，可以追回。
-最后，喜联储的私人区块链保证个人信息的绝对安全。通过喜联储KYC的账户信息，不会被任何政府或个人获取，这才叫真正的去中心化。
 
-文字版原文：[喜联储私人区块链技术确保高效安全](https://gnews.org/zh-hans/1648538/)
+
+连日来，中共国中东部地区连续多日出现重度雾霾。随后，一股强冷空气席卷全国，大部分地区一夜间气温骤降，暴雪临门，很多民众生活面临困境。
+
+从11月2日起，中共国中东部地区空气污染日渐严重，截至11月5日7时，京津冀及周边、汾渭平原、长三角等地区，共有85个城市的空气质量出现PM2.5超标污染，29个城市启动重污染天气预警。其间，从11月4日开始，一股寒潮对中共国自西北至东南展开全面侵袭，气温大幅下降，全国大部分地区气温下降8°~10°，局部地区降温达16°以上。6日下午，内蒙古通辽、吉林省长春等地连发多次暴雪红色预警。北方大部分地区从7日开始普降暴雪，多地降雪量突破历史极值，一夜之间进入寒冬。
+
+雾霾、寒潮、暴雪，使墙内百姓生活雪上加霜。
+
+有消息人士称，因为煤炭价格飙涨，还有很多农村居民没有采购足够的煤，如何温暖地度过今年冬天的严寒，将是他们不得不面对且发愁的头等大事。
+
+文字版原文：[雾霾、寒潮加暴雪，墙内民众叫苦连天](https://gnews.org/zh-hans/1649770/)
 
 音频处理：喜山必胜Maverick
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+
+
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

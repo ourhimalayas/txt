@@ -2,28 +2,48 @@
 ---
 
 
-## 首个站出来反对给儿童注射中共病毒疫苗的好莱坞明星
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1653139/)
+## 排除中共国，美商务部长即将出访亚洲多国
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653275/)
 
-整理报道：七彩光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/untitled-collage-1541564452.jpg)图片来源：Today
-11月9日，《国会山报》报道了好莱坞影星马修·麦康纳（Matthew McConaughey）反对强制要求他的孩子接种中共病毒疫苗。
+作者：英国喜庄园 – I770775
 
-麦康纳是一位美国知名男演员，他说“我已经接种了疫苗，我的妻子也接种了疫苗。我这样做不是因为有人告诉我必须这样做，（而是我）选择了这样做，（但）我不能（同意）强制为年幼的孩子们接种疫苗，我仍然想透彻了解更多信息。”
 
-现年52岁的麦康纳表示：“现在，我还不想为我自己的孩子打（冠状病毒）疫苗，以后我会告诉你。”基于对他人的境遇同情，他说：“现在，我处于这样一个可以做到这一点的位置，但是我明白，不是每个人都能做到这一点。”
 
-#### 新闻来源
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-[McConaughey comes out against vaccine mandates for kids](https://thehill.com/blogs/in-the-know/in-the-know/580826-mcconaughey-comes-out-against-vaccine-mandates-for-kids)
 
-发布：七彩光
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+11月7日，美国商务部宣布，部长雷蒙多将在下星期对亚洲地区进行为期三天的访问，这也是她上任后对亚洲地区的首次出访。
+
+根据商务部行程安排显示，雷蒙多将在11月15日访问日本一天，在16日至18日对新加坡和马来西亚进行三天访问。主要议程是，和地区国家领导人以及私营部门的伙伴商谈强化供应链、数字经济和地区基础建设项目。从行程安排可以看出，雷蒙多这次的访问地区主要是东南亚地区，但并不包括亚洲大国中共国，因而引发外界猜想。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-26.jpg)
+有分析人士说，雷蒙多的这次出访，是为了推动拜登上个月底在东亚峰会上提出的建立印太地区经济框架的倡议。拜登政府的这项举动就是为了与中共在亚太地区的经济和投资活动竞争，同时提升美国供应链的安全性与稳定性。 美国商务部长首次出访的行程，与新任东亚事务助理国务卿首次出访只见日韩盟友的安排如出一辙。美国远离并对抗中共的意图越发明显。
+
+参考链接：
+[美商务部长下周访问亚洲强化供应链 行程不包括中国](https://www.voachinese.com/a/us-commerce-chief-to-visit-asia-20211108/6304152.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

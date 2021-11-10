@@ -2,27 +2,44 @@
 ---
 
 
-## 东北、内蒙古多地突降特大暴雪，老百姓受灾唯有自救
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1653147/)
+## 有声| 美国东亚事务新任助卿首次出访 只见盟友无意访华
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653282/)
 
-撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-25.jpg)
-[图片来源](https://news.sina.com.cn/c/2021-11-10/doc-iktzqtyu6530458.shtml)
+配音：香草山香港部 – 文凯琳
 
-据“中国新闻周刊”消息，受寒潮影响，11月7日至8日，内蒙古东南部、辽宁中部、吉林西部等地部分地区出现大暴雪或特大暴雪。至8日夜间，内蒙古、东北地区新增积雪厚度达10厘米至20厘米，局地可达40厘米以上。 辽宁省气象台首席预报员周春晓介绍，东北及内蒙古地区，在本轮寒潮过程中，降雪量如此之大，积雪厚度如此之深系多个天气系统迅猛发展，冷暖空气激烈交汇导致的。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-1280x172-1.jpg)
 
-去年以来，随着中共末日临近，异常天气和灾害不断。东北，内蒙古过早降雪，大量老百姓的生活甚至生存受到影响，加之当前东北中共病毒疫情加剧，广大老百姓要遭大罪了。
+11月8日，美国新上任的负责东亚和太平洋事务的助理国务卿康达抵达东京，开始他上任后对该地区的首次访问。
 
-信息来源：
+美国驻东京大使馆的推文说，康达当天与日本政府负责北美事务的官员举行了会谈，这将对地区和平与繁荣有积极作用，对应对当今最紧迫的挑战富有成效。
 
-##### [东北、内蒙古多地发生特大暴雪，专家：有可能引发雪灾](https://www.toutiao.com/a7028886471050297893/?tt_from=copy_link&amp;utm_campaign=client_share&amp;app=news_article&amp;utm_source=copy_link&amp;iid=2560110237849416&amp;utm_medium=toutiao_android&amp;use_new_style=1&amp;share_token=7963dce3-aa21-4a1e-85aa-69eb1c67fde1)
+目前，中共在东中国海和南中国海的恶意扩张行为是美日同盟面临的最紧迫挑战。据了解，康达在东京访问三天后将在10日至12日访问韩国。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-4.jpg)
-# 
+康达精通中文，曾任白宫国安会亚太事务资深主任，曾三度被派驻北京。但康达此次亚洲之行，并未安排访华行程。
+
+文字版原文：[美国东亚事务新任助卿首次出访 只见盟友无意访华](https://gnews.org/zh-hans/1649714/)
+
+音频处理：喜山必胜Maverick
+
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
 
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 

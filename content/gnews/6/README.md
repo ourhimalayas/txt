@@ -2,39 +2,25 @@
 ---
 
 
-## 恒大持续抛售大额股份
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653605/)
+## 加拿大迫切希望与“值得信赖的”人工智能企业合作
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1653657/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月8日，恒大再次减持恒腾网络2亿股，套现4.07亿港元。继4日减持1.5亿股，5日减1.8亿股之后，恒大共出售5.3亿股恒腾网络，回笼资金达11.25亿港元。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/恒大持续.jpg)
-值得注意的是，恒大自6月份以来，6次减持恒腾累计22.84亿股，套现总计88亿港元。
+采编：青青，        编译撰稿：苦尽甜来（文来）
 
-同时恒大近期一直也在抛售其他资产。资料显示，10月18日，恒大集团在盛京银行的持股比例，已经49.59%下降至19.85%，共计变现金额110亿元。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-27-edited.jpg)图片来源：CTV
 
-参考链接：
-[恒大连续3个交易日卖出恒腾网络，套现11亿港元！许家印：必须全力以赴复工复产保交楼](https://finance.sina.cn/chanjing/gsxw/2021-11-09/detail-iktzqtyu6213637.d.html?from=wap)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+据加拿大【CTV新闻】11月8日渥太华站报道，工业部长香槟当天对媒体表示，加拿大将在未来的人工智能产业中只与“值得信赖的伙伴”合作。并暗示联邦政府近期或将拒绝中国电信巨头华为作为其5G互联网通讯供应商。
 
-总编：Ivy001
-编辑：文特
-校对/发稿：Fei797
+此前，由于中共国对加拿大实行的恶性人质外交政策，导致联邦政府对是否选择【华为】成为其“由人工智能驱动的下一代 5G互联网主要供应商”犹豫不决。
 
-**更多资讯，更多关注**
+该部长为此表示，预计特鲁多政府将在11月22日，该国议会正式重新开始后的几周内做出相关决定。并称，随着加拿大与值得信赖的企业伙伴在5G互联网通讯领域展开的各项合作计划，处于首要考虑地位的国家安全将在很大程度上依赖于该项有望改变日常生活的人工智能技术。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+* * *
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+校对编辑，发稿：硫酸羟氯喹64
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[原文链接：](https://www.ctvnews.ca/politics/champagne-says-canada-only-wants-trusted-ai-partners-as-huawei-decision-looms-1.5657145)
 
  
 

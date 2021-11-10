@@ -2,34 +2,23 @@
 ---
 
 
-## 佛罗里达州将通过州立法 抵制拜登政府的疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653570/)
+## 文贵视角11.10：癌症、违约、资金外逃 -六中全会内部信息
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1653624/)
 
-作者：纽约香草山农场 – 蓝天大海
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据公开消息，佛罗里达州政府继一周前起诉拜登政府疫苗强制令后，近日又与州立法机构合作，计划制定新的法律，保护民众不会受到疫苗强制令伤害。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-168.png)
+图片来源：GTV
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide10-5.jpeg)
+共产党六中全会都开了，而所有全世界的中文社交媒体上一致性都声称对六中全会所谓的爆料啊、泄露信息，但是都是共产党的喂料。郭文贵先生说新中国联邦要在唯真不破的方式下传播爆料、传播真相，我们要起最关键的作用。
 
-11月8日，佛罗里达州州长德桑蒂斯，该州参议院议长威尔顿.辛普森，和州众议院议长克里斯.斯普罗斯一起，在佛罗里达州和风山举行新闻发布会。州长德桑蒂斯表示，该州立法机构近期将举行特别会议，尝试制定一项新的法律，最强有力的保护各类就职人员，避免因为拒绝接种疫苗而失业。
+国内战友给郭文贵先生发来中共六中大会的信息：有某人在会上提出了一个刚刚做出的统计报告，我们中国获得了11个第1。 中国去年癌症官方数字450万，实际人数1100万！一个14亿的中国，有1100万癌症，这些数字背后是多么鲜活的生命。哪个癌症的背后不是带着一个家庭、两个家庭。癌症会耗尽整个家庭的所有的积蓄，而且共产党的癌症药价是美国的70倍到100倍！
 
-州长指出，拜登政府发布的疫苗强制令是违宪和越权的，此时此刻，我们必须为大众挺身而出，保护他们的工作和生计。同时，州长还强烈谴责了拜登和他的首席医疗顾问安东尼·福奇博士，称他们背弃了自己先前承诺不强制接种疫苗的诺言。
+第二，中国房地产海外违约创历史新高，现在债务违约到280亿元已经过期的，中国要面对着马上在30天内 2700亿到6000亿美元的间接和融资和票据贷款 ，这是有历史意义的! 郭先生说，这三数字我告诉你，不管哪个是真哪个是假，只要一个是真的，大家都等着吧，你都会看到这个股市全球经济，你真可以是拿美元欧元去檫屁股去了。
 
-参考链接：[DeSantis Just Backed Workers in a Huge Way: ‘We’ve Got To Stand Up For People’](https://conservativebrief.com/desantis-3-54206/?utm_source=CB&amp;utm_medium=TW)
+第三，据香港政府某局的数据统计，过去三个月香港外籍人士撤离，从过去的每月的7000人突然增加到11000人，特别是大多数的金融企业和高管，全部移到了英国、新加坡和日本，大量的外汇移出香港到日本、新加坡和英国，使得三地区的房地产指数涨了20%-22%，共产党救了日本的房地产。根据此现象继续下去，香港将在六个月以内，因为金融高管和外资的撤离，将导致香港真正的成为金融的空港。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+链接：https://gettr.com/streaming/pgku1i0993
 
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

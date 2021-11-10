@@ -2,40 +2,28 @@
 ---
 
 
-## 美联储担心中共地产危机影响美国
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653568/)
+## “新冠病毒”疫情严重打击加拿大经济
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1653619/)
 
-作者：波士顿五月花农场 – 葛朗台太太
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月8日，美联储发布《金融稳定报告》称：中国房地产行业的问题可能会给中国金融体系带来压力，并可能波及美国。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/地产危机.jpg)
-在此之前，9月22日美联储委员会主席杰罗姆·鲍威尔曾公开表示，恒大集团的债务困境似乎是中国特有的问题，不会对美国的企业造成影响。
+编译撰稿：文莱      编辑校对：硫酸羟氯喹64
 
-短短40天，美联储对中共地产风险得出完全相反的结论。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-3-edited.png)图片来源：PML
 
-11月9日，文贵先生通过盖特视频再次提醒全世界：碧桂园，恒大，融创，富力等等完全没有偿还债务的能力，变卖飞机等资产也不可能扭转局面。
 
-文贵先生还预告，将在本周进行多次秘密演讲，分析中共（包括香港在内的）地产危机将给世界金融经济带来的破坏。
+据加拿大自媒体【后千禧年】11月9日报道，目前，受“新冠病毒”疫情及劳动力严重短缺所产生的巨大负面影响，加拿大约有四分之一的企业主正在寻求出售或关闭其企业。
 
-参考链接：
-1）[Financial Stability Report](https://www.federalreserve.gov/publications/files/financial-stability-report-20211108.pdf)
-2）[11月9号：尊敬的战友们好，你们健身了吗？你们在北京的六中全会发现什么了吗？你们传播C C P的病毒和疫苗的解药的真相了吗？一切都已经开始！](https://gettr.com/post/pghwvuec83)
-3）[Fed says China’s real estate troubles could spill over to the U.S.](https://www.cnbc.com/2021/11/09/fed-says-chinas-real-estate-troubles-could-spill-over-to-the-us.html)
-4）[美联储主席：恒大债务是中国特有问题，不会冲击美企](https://www.voachinese.com/a/us-fed-powell-says-evergrande-debt-troubles-seem-particular-to-china-20210922/6242153.html)
+报道指出，许多雇主还计划与更多有规模的同类企业合并，以应对当前市场中存在的劳动力短缺等状况。此外，企业主还希望获得他们无法负担的产品关键生产技术，以打破因人力资源匮乏对其公司正常发展所带来的限制。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+据悉，加拿大经济因疫情导致的劳动力短缺而陷入困境。相关数据显示，约55%的企业表示在招聘生产工人或雇员方面有较大困难。其中，酒店业比其他行业更能感受到该影响的冲击，
 
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：Fei797
+对此，有专家表示，尽管该现象普遍存在，但劳动力的短缺将破坏人力资源市场的供需平衡，从而导致企业雇员工资的持续性提升。另一方面，7%的失业率则显示出：在疫情危机之下，部分加拿大人可能根本不想再去参加工作。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+* * *
+
+发稿：硫酸羟氯喹64
+
+[原文链接：](https://thepostmillennial.com/one-in-four-canadian-businesses/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

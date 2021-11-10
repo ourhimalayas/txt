@@ -2,41 +2,28 @@
 ---
 
 
-## 美军在关岛测试“铁穹”系统防备中共巡航导弹
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1652927/)
+## 首个站出来反对给儿童注射中共病毒疫苗的好莱坞明星
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1653139/)
 
-#### 作者：日本东京方舟农场 子辰
+整理报道：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/untitled-collage-1541564452.jpg)图片来源：Today
+11月9日，《国会山报》报道了好莱坞影星马修·麦康纳（Matthew McConaughey）反对强制要求他的孩子接种中共病毒疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7E6824F0-6BE1-467D-9B26-1D79BEC30F4B.jpeg)图片来自于网络
+麦康纳是一位美国知名男演员，他说“我已经接种了疫苗，我的妻子也接种了疫苗。我这样做不是因为有人告诉我必须这样做，（而是我）选择了这样做，（但）我不能（同意）强制为年幼的孩子们接种疫苗，我仍然想透彻了解更多信息。”
 
-据《美国之音》11月10日报道，美军正在关岛部署和测试一套从以色列进口的“铁穹”防空系统，以便在美中发生冲突时，拦截可能袭击关岛的中共军方巡航导弹。
+现年52岁的麦康纳表示：“现在，我还不想为我自己的孩子打（冠状病毒）疫苗，以后我会告诉你。”基于对他人的境遇同情，他说：“现在，我处于这样一个可以做到这一点的位置，但是我明白，不是每个人都能做到这一点。”
 
-此次“铁穹”系统的部署，将与美国军方2013年就在关岛部署的“萨德”末端高空区域防御系统进行整合测试。
+#### 新闻来源
 
-“铁穹”是以色列拉斐尔先进防御系统公司研发的防空系统。“铁穹”由发射、雷达、操控和检测等装置组成，可以对来袭火箭弹进行自动探测，并发射导弹在空中对来袭目标进行拦截。
+[McConaughey comes out against vaccine mandates for kids](https://thehill.com/blogs/in-the-know/in-the-know/580826-mcconaughey-comes-out-against-vaccine-mandates-for-kids)
 
-关岛属于美国领地，岛上目前有居民和驻军19万人，并拥有美国空军、海军和海军陆战队基地。关岛距离中共国1800英里，是距中共国最近的美国领土。
+发布：七彩光
 
-随着美中关系近年来持续恶化以及台海紧张情势逐渐升高，中共为了在台海爆发冲突时阻止美军干预，越来越把攻击关岛当作其整军备战的重要目标之一。
-
-此举引起美国的高度重视，美国陆军在美国国会授权下，去年耗资3.73亿美元，采购了两套“铁穹”系统，并于今年8月在新墨西哥州白沙导弹靶场对其中一套系统进行了首次实弹测试，结果成功击中8个巡航导弹的模拟标靶。
-
-华盛顿智库“战略暨国际研究中心”（CSIS）反导项目主任卡拉科表示，如果美国不能防卫关岛及岛上空军基地和其他设施，那么就很难向太平洋投送军力。
-
-注：本文仅代表作者观点
-
-***新闻链接：** [https://www.voachinese.com/a/US-tests-Israel-s-Iron-Dome-in-Guam-as-defense-against-Chinese-cruise-missiles-20211109/6306231.html](https://www.voachinese.com/a/US-tests-Israel-s-Iron-Dome-in-Guam-as-defense-against-Chinese-cruise-missiles-20211109/6306231.html)*
-
-* * *
-
-
-```
-素材采编：子辰
-编辑：青衣青青
-校对：青衣青青
-发布：miumiu
-```
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

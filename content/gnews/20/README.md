@@ -2,23 +2,23 @@
 ---
 
 
-## 美国参众两院议员再搭军机访台
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653402/)
+## 中共病毒疫苗诱发的心肌炎比自然感染严重10-100倍
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653548/)
 
-作者：日本方舟农场 – Andy5
+作者：日本东京方舟农场 – 北极
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月9日，美国参、众两院议员乘坐海军C-40A行政专机，降落松山空军基地。此次行程由台湾外交部提供访团行政协助，并就相关防疫措施，协调流行疫情指挥中心。此次经台是双方协调结果，并基于尊重美方意愿，相关信息将会适时对外公布。
+据“秘密翻译组”11月4日的GNEWS译制视频显示，来自德克萨斯州的彼得·麦卡洛（Peter McCullough）博士指出，感染中共病毒所导致的心肌炎，症状轻微，不会导致严重后果，仅会在血液化验中观察到肌钙蛋白升高。而接种中共病毒疫苗后，疫苗中的脂质纳米颗粒会直接进入心脏，引发剧烈的心电图变化、胸痛和早期心力衰竭，而血液中肌钙蛋白浓度超过病毒感染所导致心肌炎的10-100倍。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-6.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-7.jpeg)
 
-此前，美国已多次访台：6月6日，美国三名参议员曾乘美国空军C-17运输机访台、7月15日，一架C-146A美军行政专机降落在台北空军松山基地。
+麦卡洛博士说，当疫苗中的脂质纳米颗粒到达心脏时，心脏就会表现出因刺突蛋白而产生的反应，从而引起自身免疫系统对心脏展开攻击。他特别强调，因疫苗引发的心肌炎是一个大问题，比因感染中共病毒引发的心肌炎更严重、更突出，特别是发生在儿童身上，表现得尤其严重。
 
-参考链接：[美國參眾議員搭軍機訪台？ 外交部：行程由AIT安排](https://news.ltn.com.tw/news/politics/breakingnews/3731364)
+参考链接：[疫苗诱发的心肌炎比中共病毒引发的心肌炎要严重得多](https://gnews.org/zh-hans/1639362/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：Ivy001
-编辑：文特 
+总编：Irene木木
+编辑：AN
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
