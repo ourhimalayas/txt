@@ -2,44 +2,20 @@
 ---
 
 
-## 昆士兰州卫生工作人员的疫苗强制令扩展到私营医疗领域
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1652529/)
+## 世卫组织警报：2022 年将缺少注射器
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1652569/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11102.jpg)图片来自Health.online
+11 月 9 日-世界卫生组织对注射器发出警告：如果它们的生产跟不上针对新冠病毒的疫苗剂量，到 2022 年注射器可能缺少1 到 20 亿支。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/昆士兰州.jpg)
+世卫组织卫生保健顾问丽莎·赫德曼（Lisa Hedman）对记者说：“我们真正担心的是，我们可能会出现注射器短缺，这反过来又会导致严重问题，首先是疫苗接种工作放缓。“
 
+全球已接种超过 72.5 亿剂疫苗，几乎是每年常规疫苗接种数量的两倍，导致对注射器的需求增加。这位官员警告说，如果这个问题得不到解决，在未来几年内可能会对公共卫生产生影响，注射器和针头可能会被重复使用，而这些注射器和针头应该是一次性的。
 
+原文链接：[https://www.ansa.it/sito/notizie/mondo/2021/11/09/covid-allarme-oms-mancano-le-siringhe-per-il-2022\_5e6c20ca-ae9a-4d01-8785-2140e6910a70.html](https://www.ansa.it/sito/notizie/mondo/2021/11/09/covid-allarme-oms-mancano-le-siringhe-per-il-2022_5e6c20ca-ae9a-4d01-8785-2140e6910a70.html)
 
-图片来源：www.theguardian.com
-
-
-#### 编译：小红帽
-
-随着昆士兰州准备重新开放边境，该州将把对医护人员的疫苗强制令扩大到私营医疗领域。
-
-州政府周三宣布，疫苗强制令也将适用于私立医院、日间手术室、全科诊所、药房、验光师、私人护士办公室、联合健康诊所、牙科手术室和私人病理中心。
-
-卫生部长伊薇特·达斯（Yvette D’Ath）说：”今天我宣布，我们将把这一公共卫生指令扩大到昆士兰的所有卫生设施–所有私立医院、社区药房、全科医生、物理治疗师。所有这些服务，每个卫生设施，或进入其他设施的卫生工作者，都需要在12月15日之前全面接种疫苗。”
-
-疫苗强制令也已扩大到卫生专业人员、承包商、独立的第三方提供者和外部机构聘用的雇员或志愿者。
-
-在宣布这一消息的前一天，州政府透露了从12月17日起对医院、老年护理和残疾设施的探访规则的修改。
-
-达斯还概述了当昆士兰州达到70%的两剂疫苗接种目标时，一旦允许来自（中共病毒COVID-19）热点地区的旅行者进入昆士兰州，家庭隔离将如何进行。
-
-据悉，那些符合标准的人将能够在住所而不是在酒店进行隔离。其中标准之一就是，你必须完全接种疫苗。
-
-**参考新闻：**[Vaccine mandate for QLD Health staff extended to the private sector, from GP clinics to pharmacies and dental surgeries | Sky News Australia](https://www.skynews.com.au/australia-news/coronavirus/vaccine-mandate-for-qld-health-staff-extended-to-the-private-sector-from-gp-clinics-to-pharmacies-and-dental-surgeries/news-story/e736cc49607ac58842bd5592adff764c)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

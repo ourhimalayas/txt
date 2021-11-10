@@ -15,107 +15,107 @@
 
 ---
 
-### [CDC主任拒绝告诉参议员有多少员工接种了COVID-19疫苗](/content/gnews/1/README.md)
+### [中共就美国国会议员访台发表谈话](/content/gnews/1/README.md)
+ ` 儒为`
+
+### [台湾称16架中共国战机进入其防空识别区](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共国防部回应美议员访台，称“中国必须统一”](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [秘翻在线：拜登政府闻到了强制接种中共病毒疫苗即将失败的味道](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [谁的命更重要？](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
-
-### [11/10/2021中日财经爆：中共国10月CPI与PPI涨幅创新高，老百姓生活多艰](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [儿戏法律——中共国贪污受贿，多退赃款，可从轻处罚？](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [喜美元转款无限制即将开通账户互转喜币理财](/content/gnews/6/README.md)
+### [联邦法院阻止拜登政府的疫苗接种强制令](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [台湾前线｜美国防部：军机访台是义务、惯例](/content/gnews/7/README.md)
+### [COVID-19 最新情报｜南韩证明 高接种率仍无法病毒共存](/content/gnews/5/README.md)
  ` G&#124;News TAIWAN`
 
-### [日本要闻汇编 11月10日](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [上千家机构进入喜联储开户](/content/gnews/9/README.md)
+### [CDC主任拒绝告诉参议员有多少员工接种了COVID-19疫苗](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [两党参议员联合提案成立911式委员会调查冠状病毒起源](/content/gnews/10/README.md)
+### [中共国防部回应美议员访台，称“中国必须统一”](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [谁的命更重要？](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [11/10/2021中日财经爆：中共国10月CPI与PPI涨幅创新高，老百姓生活多艰](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [儿戏法律——中共国贪污受贿，多退赃款，可从轻处罚？](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [喜美元转款无限制即将开通账户互转喜币理财](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [台湾前线｜美国防部：军机访台是义务、惯例](/content/gnews/12/README.md)
+ ` G&#124;News TAIWAN`
+
+### [日本要闻汇编 11月10日](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [上千家机构进入喜联储开户](/content/gnews/14/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [两党参议员联合提案成立911式委员会调查冠状病毒起源](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美国会为台湾而战吗？](/content/gnews/11/README.md)
+### [美国会为台湾而战吗？](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“余炜门”，中共生殖器治国何时休？](/content/gnews/12/README.md)
+### [“余炜门”，中共生殖器治国何时休？](/content/gnews/17/README.md)
  ` 首尔天池农场`
 
-### [比特币以太币创新高 加密货币市场大涨](/content/gnews/13/README.md)
+### [比特币以太币创新高 加密货币市场大涨](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [爆料革命——历史的今天11月3日](/content/gnews/14/README.md)
+### [爆料革命——历史的今天11月3日](/content/gnews/19/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [2021年11月2-3日 郭先生视频重点内容整理](/content/gnews/15/README.md)
+### [2021年11月2-3日 郭先生视频重点内容整理](/content/gnews/20/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [20211110 澳喜要闻摘要](/content/gnews/16/README.md)
+### [20211110 澳喜要闻摘要](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [卡车司机的巨大胜利：豁免疫苗接种](/content/gnews/17/README.md)
+### [卡车司机的巨大胜利：豁免疫苗接种](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [爆料革命——历史的今天11月1日](/content/gnews/18/README.md)
+### [爆料革命——历史的今天11月1日](/content/gnews/23/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [世卫组织警报：2022 年将缺少注射器](/content/gnews/19/README.md)
+### [世卫组织警报：2022 年将缺少注射器](/content/gnews/24/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [拜登与习近平将举行虚拟峰会](/content/gnews/20/README.md)
+### [拜登与习近平将举行虚拟峰会](/content/gnews/25/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [国际要闻汇编 11月10日](/content/gnews/21/README.md)
+### [国际要闻汇编 11月10日](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：加利福尼亚州每日新增中共病毒感染率是佛罗里达州的两倍](/content/gnews/22/README.md)
+### [秘翻在线：加利福尼亚州每日新增中共病毒感染率是佛罗里达州的两倍](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本学者引经据典讲述“经济脱中”的必要性（之一）](/content/gnews/23/README.md)
+### [日本学者引经据典讲述“经济脱中”的必要性（之一）](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [昆士兰州卫生工作人员的疫苗强制令扩展到私营医疗领域](/content/gnews/24/README.md)
+### [昆士兰州卫生工作人员的疫苗强制令扩展到私营医疗领域](/content/gnews/29/README.md)
  ` 走进澳洲`
 
-### [樱花灭共诗——莫失期（新韵）](/content/gnews/25/README.md)
+### [美国参众议员再度访台，台湾如何真正安全？](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国参众议员再度访台，台湾如何真正安全？](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [银河快讯：软银股价因90亿美元回购大涨；索尼台积电合资在日本建厂](/content/gnews/27/README.md)
+### [银河快讯：软银股价因90亿美元回购大涨；索尼台积电合资在日本建厂](/content/gnews/31/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [花样年股价年跌幅达35.71%](/content/gnews/28/README.md)
+### [花样年股价年跌幅达35.71%](/content/gnews/32/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [奥地利 计划对数字货币征收所得税](/content/gnews/29/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [秘翻在线： 牛至油提炼的香芹酚或可抗中共病毒](/content/gnews/30/README.md)
+### [秘翻在线： 牛至油提炼的香芹酚或可抗中共病毒](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [台积电将在日本建子公司](/content/gnews/31/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [反对拜登疫苗强制令的全国罢工运动已经开始](/content/gnews/32/README.md)
- ` 首尔天池农场`
-
-### [上海一近百岁老人过世，财产差点被中共收走](/content/gnews/33/README.md)
+### [上海一近百岁老人过世，财产差点被中共收走](/content/gnews/34/README.md)
  ` 澳喜农场`
-
-### [涉“伪造”安全数据，澳洲药品监管机构要辉瑞提供信息](/content/gnews/34/README.md)
- ` 走进澳洲`
 
 ### [岸田文雄当选日本第101 任首相](/content/gnews/35/README.md)
  ` 首尔天池农场`

@@ -2,24 +2,107 @@
 ---
 
 
-## 爆料革命——历史的今天11月3日
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1652606/)
+## 上千家机构进入喜联储开户
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1652659/)
 
-**整理：Pride**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-10-165338.png)
-**2017年11月3日—**现在Youtube、facebook 、twitter,不敢说被蓝金黄，但肯定受到了威胁。所以我们必须有自己的舞台、工具，让海外华侨能听到真正中国的声音。如果在西方连话都说不出来，还配什么推动依法治国、民主自由，解放被蒙上眼睛、捂住嘴耳的中国人。中国人是乌托邦，造假是达到目的一切手段。这里造假，要付刑事责任。像卢比奥先生直接问脸书总裁，有没有受到中国盗国贼压力？
+[https://gtv.org/video/id=618b3156adfd99590c34eed7](https://gtv.org/video/id=618b3156adfd99590c34eed7)
 
-曲龙被放出来，参加记者招待会。马云控制的《南华早报》，报道郭文贵全是谣言。他们说的越多，就是以警治国，以黑治国的例子，让西方知道中国法律被控制。过去官方来和我沟通，只想把我推向习主席，中国人的对立面。我想维护国家的尊严，也没人理我。
+**郭文贵
+Miles Guo**
 
-**2019年11月3日—** 现在共产党已经成为挡在人类面前最大的一块臭石头，还要与世界人民为敌。中国人是最大的受迫害者，第一最苦的老百姓；第二党内的一些被绑架的人士。共产党在国内培养了一批欺民贼，还有大头症的大咖。以共产党的名义，给他们乌托邦思想，进行洗脑统治，利用他们再去压迫别人。
+这现在多少钱
+How much is this now?
 
-这几天很多人都找我谈，中共的区块链意味着什么？美国国防部要把共产党的区块链列为美国的第一大威胁之一。说明爆料革命引起了美国和西方的高度重视。
+人家各国政府说你胡扯
+Governments say the communists are bullshit
 
-**2021年11月3日—**彭帅举报张高丽，证明了七哥过去爆料，中南坑、共产党当官的跟少女谈恋爱、玩处女是真的。吃“阴枣”对老杂毛是正常的事，都玩十一岁到十七岁的幼女、处女。他们老婆不但看门，还帮助老公玩女人。认不清共产党的残忍、邪恶，永远不会跟新中国联邦。
+官方的栽赃陷害没成功
+The CCP‘s official planted evidence did not succeed
 
-喜联储是中国人创造的，中国人的铸币单位和人民银行。战友拥有喜联储铸币权、钱和造钱的权力，是新中国联邦人千秋万代的财产。这是真正的共享财富、利益共同体。谁加入新中国联邦，都有资格分。
+第二个
+The No. 2
 
-战友有钱，别被币给打倒。别到处吆喝有多少币，会惹来杀身之祸。现在喜币价格离真正价值，还远着呢！盯住有权威的投资机构投喜联储、喜支付；有一个国家或地方，批给虚拟货币银行牌照或虚拟交易市场国家级的牌照；某个国家宣布，承认是我国家的法币、主权货币。眼前推广H-pay, 比喜币重要；把战友登记在册，不要落下一个人；喜币未清的账，代持都要捋清楚。 曾宝宝的房地产都出事，共产党的房地产完了。房地产崩塌之日，就是灭共之时。征房地产税必然，要延续庞氏骗局。但西方金融一旦下滑，共产党海外地产几乎是零。灭共、保台湾的事业，不亚于喜币。共产党在美国挖的坑，美国人的报复会席卷而来—绝对灭共
+说购买量市场评估金融
+is the market financial assessment of the volume of transactions
+
+说现在目前已经金融机构进去上千家
+Saying that over a thousand financial institutions have currently taken part of (the Himalaya Exchange)
+
+已经过了KYC，开了账号
+They have opened accounts and passed the KYC
+
+未来这个价格是不可控的
+The future price is not controllable
+
+我们现在是1100多家
+We are now have more than 1100 financial institutions
+
+全球的金融机构进来开户了
+Global financial institutions have come in to open accounts
+
+所以这个市值已经达到了一币赢一国，
+So this market value has reached the level of one cryptocurrency to win a country
+
+赢了（中共）国
+It has won the (CCP) country
+
+共产党的海外美元3万亿，现在实际上只有1万亿
+The Communist Party has 3 trillion dollars overseas, but now it’s actually only 1 trillion
+
+我们的市值已经超过2万亿
+Our market capitalization has exceeded 2 trillion
+
+一币赢一国不是我说的
+The one single currency wins a country wasn’t come out from my mouth,
+
+是人民银行货币管理局和外汇管理局的潘功胜，还有蔡宇
+it was from Pan Gongsheng which is a member of the PBOC and the Foreign Exchange Bureau, and also Cai Yu
+
+对不起了蔡宇，我跟你无仇无怨
+Sorry Cai Yu, I have no grudge against you
+
+蔡宇和所有研究室的人报给潘功胜
+Cai Yu and all the researchers reported to Pan Gongsheng
+
+郭树清报给了习近平了
+and Guo Shuqing reported to Xi Jinping
+
+就是昨天
+It was yesterday
+
+我能知道你们这个文件，我就这么牛
+I have the ability to know your document, I’m just that good
+
+一币赢一国，一币战一国
+By using one currency to win a country, and to fight with a country
+
+这回实现了
+This has been achieved
+
+1000多个金融机构开户
+More than 1,000 financial institutions have opened accounts
+
+这不是我说的
+This was not stated by me
+
+* * *
+
+Date: 11/08/2021
+原视频标题: 上千家机构进入喜联储开户
+Thousands of institutions have entered the Himalaya Reserve to create accounts
+原视频日期：2021/11/05
+原视频链接：[https://twitter.com/se1y7cblljselva/status/1457268885963509760?s=24](https://twitter.com/se1y7cblljselva/status/1457268885963509760?s=24)
+任务编号：KC236(2801)
+视频时间段 : 0:00-1:14
+英听校：洛杉矶盘古农场 – Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

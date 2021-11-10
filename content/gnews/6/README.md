@@ -2,251 +2,55 @@
 ---
 
 
-## 喜美元转款无限制即将开通账户互转喜币理财
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1652698/)
+## CDC主任拒绝告诉参议员有多少员工接种了COVID-19疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1652739/)
 
-[https://gtv.org/video/id=618b330eadfd99590c34ef42](https://gtv.org/video/id=618b330eadfd99590c34ef42)
+据《大纪元时报》记者Zachary Stieber ，2021年11月5日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-51.png)2021年11月4日，美国疾病控制和预防中心主任瓦伦斯基（Rochelle Walensky）出席参议院健康、教育、劳工和养老金委员会听证会。本周早些时候，瓦伦斯基最终批准了辉瑞生物技术公司针对5岁至11岁儿童的冠状病毒疫苗。图片来源：Chip Somodevilla/Getty Images
+周四（11月4日），美国疾病控制与预防中心（CDC，Centers for Disease Control and Prevention）主任拒绝向参议院小组透露该机构有多少工作人员接种了COVID-19疫苗。
 
-你进来以后KYC, 你开了帐号
-Luego de realizar el procedimiento de KYC, abres la cuenta
+自去年年底第一支疫苗获得紧急授权以来，美国疾病控制与预防中心（CDC）一直处于推动 COVID-19 疫苗接种的最前沿。
 
-你钱打多少是不受限制的
-No hay límite por la cantidad de dinero que transfieras
+“CDC 员工接种疫苗的百分比是多少？”共和党参议员比尔·卡西迪（Bill Cassidy）在华盛顿举行的参议院卫生委员会听证会上，向CDC负责人罗谢尔·瓦伦斯基（Rochelle Walensky）博士提问。
+“我们正在积极鼓励所有员工接种疫苗，并进行推广宣传，以便让我们的机构成员获得疫苗，”瓦伦斯基回应道。
 
-比如说
-Por ejemplo
+在听证会结束前，该委员会的共和党领袖、北卡罗来纳州共和党参议员理查德·伯尔(Richard Burr)重新讨论了这个话题。
+“你真的不知道CDC接种疫苗的人数吗？还是你只是不想回答卡西迪参议员的问题？” 伯尔说。
+瓦伦斯基拒绝直接回答，并表示：“我们仍在积极收集这些数据，这些数据会实时更新。”
 
-海东兄弟开了喜美元帐号
-El hermano Haidong abrió una cuenta de HDO
+伯尔要求CDC在11月8日之前将这些数字发送给委员会。
+瓦伦斯基说：“我们正在努力更新这些数据，我必须和我的工作人员说明我们的情况，以确定这些数据能否在周一公布。”
 
-KYC过了
-Luego que el KYC es aprobado
+伯尔指出，乔·拜登总统的行政命令要求所有联邦雇员，包括CDC工作人员，必须在11月8日之前出示接种疫苗的证明，否则将面临纪律处分。
 
-刚才一个美国
-Hace rato, un amigo de EE. UU
+“如果收集仍在进行中，您将如何根据行政命令开始纪律处分？” 伯尔问道。
+瓦伦斯基回答: “我们正在积极更新这些数据, 我只是不知道他们什么时候能完全输入，但我们肯定会在适当的截止日期前获得这些数据。”
 
-摩根家族的某个我们的朋友
-De la familia de Morgan
+“如果CDC不需要遵守规则（疫苗强制令），为什么雇主们要遵守?”伯尔接着问道，他指的是拜登政府针对私营企业公布的疫苗令。
+“我会确保我们遵守规定，因为我们希望其他人也遵守。”瓦伦斯基说。
 
-人家的女儿
-Su hija
+卡西迪说，他被告知，在CDC位于亚特兰大总部工作的员工中，有75%仍在远程办公，瓦伦斯基拒绝证实这一点，但也没有否认。 她说该机构正在遵循联邦准则行事。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-165.png)2021年11月4日,美国国家过敏和传染病研究所所长安东尼·福奇博士（Anthony Fauci）出席了参议院委员会听证会。图片来源：Chip Somodevilla/Getty Images![](https://assets.gnews.org/wp-content/uploads/2021/11/image-166.png)参议员理查德·伯尔于 2021年5月11日在华盛顿发表讲话。 图片来源：Greg Nash/Pool/Getty Images
+在听证会上， CDC 主任和政府的另一位高级卫生官员安东尼·福奇博士也受到了质询，政府推动几乎每个美国人都要接种中共病毒COVID-19疫苗——即使是那些已经感染了COVID-19并康复的美国人，然而，这些人已经具有了一定程度的免疫力。
 
-女婿人家有双国籍
-Su yerno tiene doble nacionalidad
+伯尔指出，以色列的一项真实世界研究发现，自然免疫力提供的保护作用高于辉瑞疫苗，其他研究表明，在感染康复后，记忆B细胞提供的自然免疫力可持续一年。CDC最近的简报也指出，自然免疫力可至少持续六个月。
 
-人家就可以KYC
-Él pudo realizar el KYC
+瓦伦斯基淡化了这些数据的重要性，声称关于疫苗提供保护的研究，比支持自然免疫的研究更能说明问题。
+她说：“关于感染引起的免疫力的数据，你引用的其中一些，是比较模糊的。他们依赖于回顾性研究、观察性研究，以及我们无法进行的前瞻性研究。”
 
-KYC过了以后
-Luego que esto sea aprobado
+瓦伦斯基特别提到了CDC最近发表的一项研究，该研究称，未接种疫苗并具有自然免疫力者，感染COVID-19的可能性大约是接种者的五倍。 与以色列的研究相比，该研究也是回顾性的，并受到一些专家的批评。
 
-刚才他说了
-Él hace rato dijo
+参议员卡西迪也是一名医生，他后来说，所谓自然免疫力的数据缺乏可靠性，但这一点似乎可经过进一步研究修正。
+“我听说你有可靠的患者数据”，这将使CDC能够研究这个问题，他补充道。
+福奇说，自然免疫和疫苗接种都会导致记忆B细胞和T细胞反应。
+他说：“未来几个月的研究目标之一，是确定B细胞和T细胞反应的发展和成熟，与临床效果之间的关联性，我们的捐助对象正在进行相关工作。”
+“我们正在研究疫苗接种后，施打加强剂后，以及被感染的个体的情况”，福奇说，“希望在接下来的几个月里，我们能得到更确切的信息。”
 
-我买了这个币
-Compré esta moneda
-人家就买了, 合法啊
-Él lo pudo comprar, de manera legal
+原文连接：[https://www.theepochtimes.com/cdc-director-refuses-to-tell-senators-how-many-cdc-employees-have-gotten-covid-19-vaccines\_4087365.html?utm\_source=partner&utm\_campaign=ZeroHedge](https://www.theepochtimes.com/cdc-director-refuses-to-tell-senators-how-many-cdc-employees-have-gotten-covid-19-vaccines_4087365.html?utm_source=partner&amp;utm_campaign=ZeroHedge)
 
-最重要的事情
-Y lo más importante
-
-他的一个好朋友
-Su amigo
-
-包括我们的一个朋友
-Incluyendo nuestro amigo
-
-大额钱汇到这个喜美元帐号
-Transfirieron de grandes cantidades de dinero a la cuenta de HDO
-
-喜美元帐号的未来是什么
-¿Cuál es el futuro de la cuenta de HDO?
-
-它连着喜支付呢
-Está vinculada con el H-pay
-
-你买啥都可以
-Puedes comprar cualquier cosa
-
-它是个比信用卡还方便的东西
-Es algo más conveniente que la tarjeta de crédito
-
-手机支付, 刷卡支付
-Pago móvil, pago con tarjeta de crédito
-
-还有一个隔空支付
-Y también está un pago al aire
-
-战友与战友之间也马上就开通
-Entre compañeros luchadores pronto se abrirá también
-
-你的帐号之间也可以互相转
-Al igual se puede transferir entre sus cuentas
-
-那么这个钱
-Entonces, este dinero
-
-你不用在这搁着怎办呢
-Si no lo utilizas aquí, que harás si lo dejas allí
-
-是不是啊
-¿Cierto?
-
-未来给你7%到10%的利息
-En un futuro te dará el 7% a 10% de intereses
-
-拿什么支付呢, 拿喜币支付
-¿Con qué se pagará? A través de HCN
-
-大家记住啊, 这个可牛了
-Todos recuerden, esto es algo muy poderoso
-
-喜币本身就有(升值)
-El HCN en sí puede (reevaluarse)
-
-它是浮动币就增长
-Crece cuando es una moneda flotante
-
-你现在告诉我
-Ahora tú me dices
-
-东弟, 钊颖, 飞飞
-Hermano Dong, Zhaoying, Feifei
-
-你看你们在账上的钱
-Vean el dinero que están en sus cuentas
-
-你想一想啊
-Piensa
-
-现在飞飞家房子
-Ahora la casa de Feifei
-
-可能是150万美元
-Podría ser 1.5 millones de dólares
-
-你把你的房子卖掉
-Vendes tu casa
-
-150万美元就放在了喜美元里边
-Estos 1.5 millones de dólares lo dejas en la cuenta de HDO
-
-7%的喜币给你
-Te dan el 7% de HCN
-
-你拿你在喜币
-Tomas el HCN
-
-拿到钱的50%去租房子去
-Y te llevas el 50% del dinero para alquilar una casa
-
-是你现在住的房子的五倍大
-Y es cinco veces más grande que la que estás viviendo ahora
-
-但你每年都会升值
-Pero se revalúa cada año
-
-美国人没有一个人不卖房的
-No hay ningún estadounidense que no venda su casa
-
-美国人是卖房子换房子
-Ellos la venden y cambian por otra
-
-才是有钱人
-Así es ser rico
-
-只有穷人一住(一辈子)
-Solamente los pobres viven de (por vida) con la misma casa
-
-像中国人说老房子
-Así como dicen los chinos, “casa vieja”
-
-老房子说明你很穷很笨好不好
-Si es una “casa vieja” significa que eres pobre y tonto
-
-所以说这叫理财
-Por eso esto se llama gestión financiera
-
-还有一个, 有喜币的
-Y hay otro, quien tenga el HCN
-
-本身我有喜币, 我就可以抵押贷款
-Yo particularmente tengo HCN, entonces puedo hipotecar
-
-马上就可以做抵押贷款
-De una vez se puede realizar hipotecas
-
-所以有3年期, 5年期, 7年期
-Por eso hay de 3 años, 5 años, 7 años
-
-大家记住, 喜美元一定要善用
-Todos recuerden, deben tomar el buen uso de HDO
-
-然后接下来
-Luego lo que viene
-
-咱们在全球各个地方
-Nosotros en cualquier lado del mundo
-
-任何人
-Cualquier persona
-
-都要去用喜支付
-Deben usar el H-pay
-
-H-pay找客户去
-Busquen clientes que utilicen H-pay
-H-pay找来的客户
-Los clientes que consiguen
-
-马上会公布政策
-Inmediatamente se anunciará la póliza
-
-终生你享有这里边的提成点
-Disfrutarás de la comisión por el resto de tu vida
-
-你搞个几个就赢了
-Serás el ganador si encuentras unos cuantos clientes
-
-第三个, 我告诉大家
-El tercero, debo decirles
-
-从现在开始起
-A partir de este momento
-
-我们农场
-Nuestra finca
-
-马上要把币的事搞明白以后
-Luego de conocer y arreglar bien
-
-调整完
-El asunto de la moneda
-
-我说过了
-Yo había dicho
-
-爆料革命, 灭共事业
-El movimiento de denunciantes y el trabajo de eliminar al Partido Comunista
-
-没有周末, 没有假期
-No hay fin de semana ni vacaciones
-
-* * *
-
-日期：11/08/2021
-原视频标题：喜美元转款无限制即将开通账户互转喜币理财
-El H-Dollar (HDO) y H-Coin (HCN) pronto se abrirá cuentas para realizar transferencias ilimitadas y gestionar operaciones financieras
-原视频日期：11/04/2021
-原视频网址：[https://twitter.com/se1y7cblljselva/status/1456572206360629252?s=24](https://twitter.com/se1y7cblljselva/status/1456572206360629252?s=24)
-任务编号：KC238(2783)
-视频时间段：0:00-2:20
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
+翻译：洛杉矶盘古农场 – 钢蛋儿
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 心照
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
