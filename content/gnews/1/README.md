@@ -2,14 +2,20 @@
 ---
 
 
-## 台积电将在日本建子公司
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1652489/)
+## 拜登与习近平将举行虚拟峰会
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1652560/)
 
-台积电和索尼半导体联合宣布，台积电将在日本熊本县建立子公司，提供22/28纳米工艺的半导体生产服务，初期投入资金预计为70亿美元。索尼半导体将投入大约5亿美元的股本投资，并在新公司中占有20%的股份。
-![img](https://media.gettr.com/group18/getter/2021/11/10/06/04/3fe332a8-b443-1a28-70da-85fa85e0f60a/4c145a9efdf9e51f2bd08f91ff6a7227_500x0.jpg)
-参考链接 ：[https://cn.nikkei.com/industry/itelec…](https://cn.nikkei.com/industry/itelectric-appliance/46626-2021-11-10-09-52-24.html)
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11101.jpg)图片来自open.online
+11月10日：彭博社援引知情人士的报道称，美国总统乔拜登和中共国主席习近平将举行虚拟峰会，但具体日期尚未确定。
 
-**（文章内容仅代表新西兰-财经G乐部节目观点）**
+此举是在世界上最大的两个经济体陷入多重争端之际，包括技术、贸易、台湾和人权的情况下同意继续对话的重要性举动. 两国于 10 月初同意在年底前举行一次虚拟领导人会议，具体日期仍在谈判中。
+
+白宫副发言人卡琳·让-皮埃尔周一重申，与中共国原则上达成协议，将在年底前举行虚拟会议。
+
+原文链接：[https://www.ansa.it/sito/notizie/mondo/2021/11/10/usa-cina-prossima-settimana-vertice-virtuale-biden-xi\_6cdab777-b8be-4d65-90f3-56516394231a.html](https://www.ansa.it/sito/notizie/mondo/2021/11/10/usa-cina-prossima-settimana-vertice-virtuale-biden-xi_6cdab777-b8be-4d65-90f3-56516394231a.html)
+
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

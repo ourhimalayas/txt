@@ -2,23 +2,25 @@
 ---
 
 
-## GFASHION新品即将震撼上市
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651576/)
+## 自由潜水员在接种新冠疫苗后被诊断为心肌炎
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651578/)
 
-作者：纽约香草山农场 – 恩永存
+作者：纽约香草山福音部 – lilian89
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月8日郭先生来到GFASHION展示厅，与总裁一起直播挑选新品。为了让大家获得美好体验，郭先生亲自试穿，提出修改建议，介绍顶级布料和制作工艺，分享设计灵感。巧妙的色彩，创新的设计理念，让古老的中国文化与现代文明碰撞出这个时代的时尚元素。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-5.jpg)
-此次新品，覆盖很广：有衣服、裤子、帽子、鞋子等。试穿直播在GTV和GETTR同时播放，吸引了上百万爆料革命战友观看。战友们很喜欢展示的新品，纷纷留言询问上市时间。
+11月8日，据相关媒体报道，世界上最好的静态自由潜水员弗洛里安-达古里在接种完第二针辉瑞新冠疫苗后，被诊断为心肌炎和轻微的三尖瓣反流。
 
-新品帽子上印有“青蒿素”“伊维菌素““未接种疫苗”等有关中共病毒解药及反对接种疫苗的英文词汇。这些细节，无一不彰显着GFASHION价值和意义：郭先生打造的GFASHION，不仅是一场引领全球时尚的文化运动；更是新中国联邦人立足于时代，冲破黑暗，寻求自由，所激发的磅礴的内在力量。
+据了解，弗洛里安-达古里是一名法国的自由潜水员，现居泰国，曾以憋气10分30秒而闻名，目前是世界上可以呼吸暂停的第一人。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-4.jpg)
+在接种完新冠疫苗后，达古里发现自己的心率比正常高很多，且憋气能力明显下降。经医生诊断，这种症状是辉瑞新冠疫苗的常见副作用。更为严重的是，40天后，达古里被诊断为心肌炎和三尖瓣反流。三尖瓣反流是由免疫系统引起的心脏肌肉炎症，其症状表现为，心脏瓣膜不再正常关闭因而造成一些微小的血液渗漏。
 
-参考链接：[GFASHION新品即将震撼上市](https://gettr.com/post/pgdxur4b0e)
+这些副作用，让达古里的心肺功能大幅衰退，他的职业生涯很可能会因此戛然而止。
+
+参考链接：[自由潜水员在接种新冠疫苗后被诊断为心肌炎](https://www.thegatewaypundit.com/2021/11/florian-dagoury-worlds-top-static-freediver-diagnosed-myocarditis-taking-pfizer-vax-may-end-career/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：木白
-编辑：木白
+总编：Irene木木
+编辑：Irene木木
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

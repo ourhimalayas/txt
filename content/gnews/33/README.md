@@ -2,38 +2,24 @@
 ---
 
 
-## 辉瑞公司被指控篡改安全数据
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1652215/)
+## 索尼投资5亿美元，参与台积电日本新工厂建设
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1652281/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/PFIZER.jpg)图片来源：纽约时报
+#### 撰稿：东京樱花团/黑猫
+![](https://assets.gnews.org/wp-content/uploads/2021/10/图片1-104.png)[图片来源](http://wap.seccw.com/index.php/Index/detail/id/6124.html)
+世界上最大的半导体制造商台积电公司（TSMC）11月9日宣布，将在日本熊本县建立半导体制造厂。最初的投资约为70亿美元（约8000亿日元）。 预计索尼集团将投资约5亿美元，还将获得日本政府的补贴。
 
+新工厂将建在索尼公司位于熊本县菊阳的图像传感器工厂附近， 2022年开始施工，2024年底开始生产，创造约1500个就业机会。索尼在工厂运营商的股份将低于20%。
 
-翻译：小鱼儿
-编辑：MSGZ
+该公司将生产电路线宽度为22至28纳米（一纳米为十亿分之一米）的车用逻辑半导体。 新工厂的300毫米晶片的月产量将达到45,000片。索尼公司计划优先从新工厂采购用于图像传感器和其他产品的半导体。
 
-澳大利亚药品监管机构 “治疗用品管理局”（TGA）已要求辉瑞公司提供信息，因为一名举报人声称该公司伪造数据，并且没有迅速跟踪不良反应。
+信息来源：
 
-举报人布鲁克·杰克逊是参与2020年新冠病毒疫苗第三阶段试验的Ventavia研究集团的前雇员，他向《英国医学杂志》（BMJ）报告说，该公司伪造数据，没有对病人进行“随机双盲法治疗”，雇用训练不足的疫苗接种者，并且对不良事件的跟进速度缓慢。
+[台湾TSMC、熊本に半導体工場　8000億円、ソニーGと共同出資（時事通信） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/55a98b5a24ca3b34b279ae39be7041af33addeda)
 
-布鲁克·杰克逊一直试图将这些信息传播出去。在她于2020年9月25日通过电子邮件向美国食品和药物管理局投诉之前，她在内部尝试了多次。Ventavia公司在同一天解雇了杰克逊女士，因为她坦白了试验期间发生的令人不安的活动。
-
-杰克逊女士提供了许多辉瑞公司内部的电子邮件、文件、照片甚至是录音。
-
-当辉瑞公司在12月10日申请FDA批准时，他们没有在提交给FDA咨询委员会的简报文件中披露第三阶段试验的问题。美国食品和药物管理局没有对杰克逊女士的投诉进行调查，随后发布了该疫苗的紧急使用授权书。
-
-作为调查的一部分，《英国医学杂志》还采访了另外两名员工，发现杰克逊女士离职后，问题仍在继续。应该注意的是，辉瑞公司仍然雇用Ventavia公司从事更多的疫苗临床试验，包括对儿童、孕妇和正在进行的强化剂量的疫苗使用试验。
-
-参考新闻：[https://afipn.com.au/pfizer-accused-of-falsifying-safety-data/](https://afipn.com.au/pfizer-accused-of-falsifying-safety-data/)
-
-***发布：Candy***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

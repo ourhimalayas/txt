@@ -2,26 +2,28 @@
 ---
 
 
-## 秘翻在线:英国59岁律师在接种第一剂阿斯利康疫苗后因脑出血死亡
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1652470/)
+## 秘翻在线：加利福尼亚州每日新增中共病毒感染率是佛罗里达州的两倍
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1652537/)
 
-#### 翻译/撰稿：zzballack
+**撰稿：Grace**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/astle-2.jpg)图片来源：ITV
-据英国《每日邮报》（Daily Mail）11月9日报道，英国默西赛德郡 (Merseyside)的塞夫顿、诺斯利和圣海伦斯（Sefton, Knowsley & St Helens）验尸官法院（Coroner’s Court）11月9日就生前曾在沃灵顿市议会（Warrington Borough Council）工作的59岁律师尼尔·阿斯特尔斯（Neil Astles）在接种阿斯利康疫苗（AstraZeneca）后死亡一事进行调查审讯。
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-10-161616.jpg)图片来源：Foxnews
+据Thegatewaypundit11月9日报道，目前，加州每日的中共病毒感染率是佛罗里达的两倍。
 
-阿斯特尔斯3月17日接种了第一剂阿斯利康疫苗，9天后开始感到头痛。他的遗孀卡萝尔（Carole）告诉法院说：“他头痛的时候根本没有想到这可能是由疫苗导致，他在此之前一直都非常健康。”由于病情恶化，阿斯特尔斯4月2日前往沃灵顿医院就诊。经扫描检查发现脑部患有血栓后，4月3日凌晨，他被转入皇家利物浦大学医院（Royal Liverpool University Hospital）的重症监护室。该医院的重症监护顾问劳伦斯·麦克克罗斯安（Lawrence McCrossan）博士说：“当时尼尔还能保持意识，所以我们觉得有机会试图让他的情况稳定下来，防止进一步恶化。但不幸的是，尼尔的身体恶化速度非常快，我们无能为力。”尼尔·阿斯特尔斯在4月4日被正式宣布死亡。死因是脑出血（intracerebral haemorrhage）、脑静脉窦血栓形成（central venous sinus thrombosis）和阿斯利康的新冠疫苗。
+报道称，在加州的激进州长加文.纽森(Gavin Newsom)的领导下，加州从一开始就成为美国对中共病毒措施限制最严格的州之一。他们不仅是最早在室内实行强制性口罩的州之一，而且也是最先采用压制自由的强制疫苗规定的州之一。目前，该州甚至已经开始要求12岁及以上的学童全面接种中共病毒疫苗。
 
-法院在审讯中了解到，国家健康与护理卓越研究所（Nice）对阿斯特尔斯先生病情的治疗指南直到7月才出台，但医院已经遵守了随后的建议。麦克克罗斯安博士说：“我们从这件事中学到要及早发现早期迹象。”
+而另一方面，佛罗里达州在州长罗恩.德桑蒂斯 (Ron DeSantis)的领导下，在整个中共病毒疫情期间，没有强制佛罗里达州的居民带口罩，或是注射中共病毒疫苗。而且，该州实际上一直在反击拜登的联邦政府的过激政策，并采取措施保护其公民和他们的生计。德桑蒂斯明确表示，人们可以自由选择是否接受中共病毒疫苗。
 
-英国药品和医疗产品监管署（MHRA）的加里·皮特斯（Gary Peters）博士说：“截止到10月27日的数据显示，在接种第一剂阿斯利康疫苗后出现与尼尔·阿斯特尔斯类似情况的病例有424个，其中72人死亡。大约有2400万人已接种了第一剂疫苗。”
+这两个州对中共病毒的反应的差别是显而易见的，而且随着时间的推移，更多的数据表明，佛罗里达州的行政策略最终远远地超过了加州。
 
-尽管如此，加里·皮特斯博士、尼尔的兄弟皮特以及高级验尸官朱莉·古尔丁（Julie Goulding）却表示尼尔遭受的不良反应是罕见现象，仍然鼓励人们接种疫苗，但也要注意非常罕见的并发症和不良反应，以便在它们出现时采取快速和紧急的应对措施。
+报道称，根据美国疾病控制中心（CDC）的最新数据，虽然加州有更多符合条件的人口接种了中共病毒疫苗，并且已经实行了几个月的强制口罩规定，但目前加州每日的中共病毒病例率是佛罗里达的两倍。尽管加州的病例在夏季过后出现了下降，但是该州最近几周的病例出现了急剧上升。
 
-不知道疫苗灾难要到什么程度才能让人们明白毒疫苗不仅对预防中共病毒毫无帮助，还会对人造成致命伤害。无论政府部门、主流媒体、科学权威和医疗、科技寡头再怎么掩盖真相和混淆是非，当越来越多的人站出来讲述自身或身边的疫苗灾难时，疫苗大屠杀这场惊天阴谋一定会被戳穿，邪恶势力将被审判。
+而佛罗里达州的病情控制目前却是在全美国最好的，其每日新增病例的比率是所有州中最低的。与此同时，在佛罗里达州和其他几个南方州，病毒的传播继续放缓。共和党的几个州，现在的情况，比加利福尼亚和其他被封锁的地区好得多。
 
-新闻来源：[Lawyer, 59, died when he developed a blood clot on the brain and suffered a brain haemorrhage after having AstraZeneca Covid-19 vaccination, inquest rules](https://www.dailymail.co.uk/news/article-10182601/Lawyer-59-died-developed-blood-clot-brain-having-AstraZeneca-Covid-19-jab.html)
+报道指出，除了佛罗里达州和德克萨斯州，整个海湾地区的病例率都在下降。目前所有这些地区的中共病毒病例都比加利福尼亚和纽约的低得多。
+
+**新闻来源：**[**Daily Rate of New Covid Cases In California is Now DOUBLE Florida’s Rate – Despite Newsom’s Covid Mandates**](https://www.thegatewaypundit.com/2021/11/daily-rate-new-covid-cases-california-now-double-floridas-rate-despite-newsoms-covid-mandates/)
 
  
 
