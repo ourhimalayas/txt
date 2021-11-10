@@ -2,27 +2,32 @@
 ---
 
 
-## 喜交所创史上最大数字货币提现上限
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1652004/)
+## GTV新闻访谈简报|2021年11月9日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1652137/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
+作者：香草山翻译部
 
-作者编辑：翼族
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-10-at-11.58.29-AM.jpeg)雅典娜设计组（精灵蓝）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
 
 
-2021年11月9日，喜马拉雅交易所（Himalaya Exchange）公布喜美元（Himalaya Dollar）的取款上限为十万美元，不但创下数字加密货币提现上限的历史，也是改变世界金融系统的又一个开始。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/556bf1652fd8988ca527ba839d4a03b5.jpg)
-目前数字加密货币最流行的交易平台Coinbase的每日取现上限为五万美元。Coinbase又名“比特币基地”，成立于2012年。截至2021年3月，Coinbase是美国交易量最大的加密货币交易所。2021年4月13日，Coinbase在那斯达克交易所上市，成为加密货币产业在美国首家上市的公司。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-1.jpg)图片来源：Coinbase官网
-*发布：翼族*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1109text-SC.png)
+校对：Stay文苑
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[11.9  晚GTV新闻访谈](https://gtv.org/broadcast/watch/618b201811d186296803abf7)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
 
  
 

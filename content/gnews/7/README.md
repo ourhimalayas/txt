@@ -2,47 +2,32 @@
 ---
 
 
-## 喜币诞生让父母们不再为钱受尽凌辱让中国人知道钱属于谁
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1652331/)
+## 中企使用朝鲜奴工制造产品 加国零售巨头下架相关产品
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1652383/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-46-1536x864_副本.jpg)
-特别鸣谢：以下引用的文字来自七哥听写组发布的[2021年11月1日喜币上市大直播全文字版（一）](https://gnews.org/zh-hans/1635647/)，在此特别向七哥听写组的战友们致谢。
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片4-4.png)
+（图片来自网络）
 
-据[**2021****年11****月01****日 “HCOIN TO THE MOON” ****喜马拉雅币上市庆典**** ****（上）**](https://www.gtv.org/video/id=618159b92051c747ccf8c38c)时间点3：32：40——
+据《大纪元》2021年11月9日报道， CBC“市场栏目”（CBC Marketplace）经过长达数月的调查发现，加拿大服装零售巨头莱特曼公司（Reitmans）从一家涉嫌秘密使用朝鲜奴工的中共国服装厂进口了一百多批服装。莱特曼公司随后表示，将全部下架这些服装。
 
-**郭文贵先生：**我今天是早上起来的时候，我打坐的时间就是到我母亲前面去打坐，往那一跪下，就是控制不住了，突然想起，这老娘穷一辈子，我小的时候，我最重要的我就发现让我爹娘过上有钱买酱油买盐的日子。
+据报道，莱特曼公司称，该公司有反对使用奴工的政策，并称丹东工厂的订单只是他们在商店销售商品的一小部分。
 
-我今天对着我老娘那个照片，我就说我老娘儿子可以说让你不论在天堂，如果你在人间，永远不用再愁钱买酱油买盐什么的，控制不住的。我希望所有的战友们都记住，先让你父母过好，如果生你养你的父母，连酱油钱……吃不好喝不好，那真是你是最失败的。
+据CBC报道，除了莱特曼公司之外，拥有Sirens、Stitches、Bluenotes、UrbanKids等知名品牌的YM公司截止到2019年，还与丹东华洋纺织服装有限公司有业务往来。根据美国的运输记录，尽管规模较小，但该公司进口服装的次数至少有21次。
 
-如果战友们有钱了，你们第一个就要对自己的父母好。我今年，哎呀，我今天说好不不激动了（郭先生擦眼泪），抱歉抱歉。
+YM公司与莱特曼公司一样，同样表示不会与任何使用奴工的公司合作。
 
-唉，兄弟姐妹们一定记住，我最开心的就会有很多人的母亲过上好日子。
+专家表示，位于朝鲜和中共国边境的丹东市有在工厂雇用朝鲜工人的历史，丹东华洋服装公司也不例外。
 
-我们每个人看到在社交媒体上出现中国的老太太，老人家那种苍凉的感觉，心如刀绞。我父亲他现在他不需要钱了，但是我觉得，不要让自己的父亲因为钱受尽凌辱，很多人父亲在外面真的是为了一家人过日子太苦了。
+纽约和新泽西港口助理主管埃德‧福克斯（Ed Fox）对CBC表示，今年早些时候，美国当局就以涉嫌奴工为由，禁止丹东华洋服装公司的货物进入美国商店。
 
-这个我们当孩子如果有了钱了，想到是父母。另外一个就是我觉得中国人真的是活得太可怜了，我希望这个喜币的诞生，能让中国人真真正正能知道钱这个东西它到底是姓啥，它到底属于谁，他的权力在哪里。
+《福克斯》的报道也指出：“有指控称，朝鲜公民被带到中（共）国，关押在工厂里强迫劳动。”“他们负债累累，行动受到限制，旅行证件也被没收。”
 
-撰稿：喜马拉雅的肉夹馍；
+今年夏天，CBC“市场栏目”派出了两个不同的卧底小组，前往丹东华洋服装公司，拍摄到了极其罕见的工厂工人的照片。卧底小组还秘密录下了与附近一名当地人和一名穿着工厂制服女子的对话。这两名女子告诉他们，目前有很多朝鲜人在这家工厂工作。
 
-审核：喜马拉雅的馍夹肉；
+注：本文仅代表作者观点
 
-校对：Maarago；
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+新闻链接：[https://www.epochtimes.com/gb/21/11/8/n13363207.htm](https://www.epochtimes.com/gb/21/11/8/n13363207.htm)
 
  
 
