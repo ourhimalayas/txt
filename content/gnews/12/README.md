@@ -2,23 +2,43 @@
 ---
 
 
-## 秘翻在线 :SpaceX太空舱持续往返太空国际空间站
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1652835/)
+## 美国参众议员代表团搭乘军机访问台湾
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1652863/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/11/種族.jpeg)
-**SpaceX结束200天任务返回地球**
+**By:秘翻新闻**
 
-据《零对冲》的报导，11月8日， 自2020年春天在太空国际空间站 (ISS) 上执行200 天的任务之后，SpaceX载有四名宇航员的 Crew Dragon 太空舱安全返回地球。 太空舱降落在彭萨科拉附近的水域后，飞行指挥官金布鲁说：”回到地球真是太好了。”
+***2021-11-10***
+[![](https://assets.gnews.org/wp-content/uploads/2021/11/1110-2.jpg)](https://gtv.org/broadcast/watch/618b8de611d186296803bb87)点击图片观看视频
+**新闻摘要:**
 
-四名宇航员包括美国宇航局的谢恩·金布鲁( Shane Kimbrough) 、梅根．麦克阿瑟(Megan McArthur)、日本航天局的星出明彦( Akihiko Hoshide)和欧洲航天局的托马斯·佩斯奎特Thomas Pesquet 。”返回任务无懈可击，”美国宇航局太空运营主管凯西卢德斯在直播中说。
+1.甘肃天水疾控主任染疫？市民：非谣言
 
-**相隔两日，SpaceX又再度启航**
+2.经济放缓 中共发行更多债券
 
-11月10日晚间，SpaceX紧接着又载着另外四名宇航员，包括拉贾·查里(Raja Chari),托马斯·马什伯恩(Thomas Marshburn)、凯拉·巴伦(Kayla Barron)和德国宇航员马蒂亚斯·毛雷尔(Matthias Maurer)，从美国宇航局位于卡纳维拉尔角的肯尼迪航天中心发射升空，SpaceX在太空國際空間站的地位無人可及。
+3.服装品牌生产离开中共国和越南 转向欧美大陆
 
-消息来源:[SpaceX Capsule Returns Four Astronauts To Earth, Ending 200-Day ISS Mission](http://SpaceX%20Capsule%20Returns%20Four%20Astronauts%20To%20Earth,%20Ending%20200-Day%20ISS%20Mission)
+4.中共国东北暴雪多地断电引发民怨
 
+5.“国有化”再来：陕西“鼓励”民办学校捐给政府
+
+6. 拜登习近平下周举行在线会议 日期待定
+
+7.  美国参众议员代表团搭乘军机访问台湾
+
+8. 比尔盖茨承认中共病毒疫苗不能有效阻止病毒传播
+
+9. 全球最大工会宣布反对在北京举办冬奥会
+
+10. 纳瓦罗：反社会者福奇向川普隐瞒病毒来自武毒所 导致数百万人死亡
+
+**GTV链接：**[https://gtv.org/broadcast/watch/618b8de611d186296803bb87](https://gtv.org/broadcast/watch/618b8de611d186296803bb87)
+
+发布: 文橙
+
+* * *
+
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

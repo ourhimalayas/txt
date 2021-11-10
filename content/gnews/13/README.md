@@ -2,31 +2,29 @@
 ---
 
 
-## 乔尔·恩比德在COVID-19检测中呈阳性，他将缺席数场比赛
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1652830/)
+## 法国：不再建议30岁以下人士接种莫德纳疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1652852/)
 
-据《https://espn.com/》作者：Tim Bontemps，2021年11月8日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-55.png)
-一个消息来源告诉ESPN的Adrian Wojnarowski，费城76人队的中锋恩比德在周一早上的COVID-19检测中呈阳性。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-38.jpg)图片来源：CNET
+**翻译：**月映万川
+**编辑：**翼族
 
-恩比德将错过周一对纽约尼克斯的比赛，根据NBA的健康和安全协议，他将至少隔离10天。这意味着恩比德将缺席至少五场比赛，并有可能在下周晚些时候复出，而费城正处于六场客场之旅中，主要是在西海岸。
+近日法国医疗卫生部门建议30岁以下的人士只接种辉瑞疫苗，而不再接种莫德纳疫苗。由于近期的研究发现，莫德纳疫苗会引起较高的心脏方面的问题**。**
 
-恩比德是目前处于健康和安全协议中的第四位76人队员，另三位是前锋托比亚斯·哈里斯和后卫马蒂斯·蒂布尔和以赛亚·乔。
-本赛季，在东部领先的76人队的9场比赛中，恩比德平均得到21.4分、9.4个篮板和职业生涯最高的4.0次助攻，他将缺席原定在周一晚上对尼克斯队的比赛。
+周一，为法国卫生部门提供建议的机构（HAS）引述了一项研究。该研究发现，莫德纳疫苗接种后，在所谓的“罕见”情况下会引起心肌炎。但在30岁以下的接种者中，莫德纳疫苗的患心肌炎的风险是辉瑞疫苗组别的5倍。这一研究已被HAS采纳，并于周一发布。
 
-随着恩比德的缺席，今年夏天以自由球员身份与费城签约的老牌中锋安德烈·德拉蒙德将取代他在首发阵容中的位置。
+目前，HAS的这一建议会被应用于第一、第二和第三针（加强针）的疫苗接种计划，直到一份更详细的科学报告出炉为止。
 
-哈里斯在一周前执行了NBA的健康和安全协议，在76人队对阵波特兰开拓者队的比赛开始前不久，他在赛前的球场上进行了锻炼。
+周一的政府数据显示，法国每日感染人数比上周增加了23.4%，这引发了关于强制接种第三剂疫苗的质疑。预计总统埃马纽埃尔·马克龙（Emmanuel Macron）将在周二晚上向全国发表电视讲话，而他的大部分时间将用于讨论健康危机。
 
-原文连接：[https://www.espn.com/nba/story/\_/id/32584227/source-philadelphia-76ers-joel-embiid-tests-positive-covid-19-expected-miss-several-games](https://www.espn.com/nba/story/_/id/32584227/source-philadelphia-76ers-joel-embiid-tests-positive-covid-19-expected-miss-several-games)
+*发布：翼族*
 
-翻译：洛杉矶盘古农场 — TrueSky
-校对：洛杉矶盘古农场 — Mike Li
-编辑：洛杉矶盘古农场 — 心照
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

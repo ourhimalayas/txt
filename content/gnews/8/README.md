@@ -2,29 +2,91 @@
 ---
 
 
-## 法国：不再建议30岁以下人士接种莫德纳疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1652852/)
+## 喜币的起起伏伏证明其真实
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1652878/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-38.jpg)图片来源：CNET
-**翻译：**月映万川
-**编辑：**翼族
+[https://gtv.org/video/id=618ba409adfd99590c35060e](https://gtv.org/video/id=618ba409adfd99590c35060e)
 
-近日法国医疗卫生部门建议30岁以下的人士只接种辉瑞疫苗，而不再接种莫德纳疫苗。由于近期的研究发现，莫德纳疫苗会引起较高的心脏方面的问题**。**
+**郭文贵
+Miles Guo**
 
-周一，为法国卫生部门提供建议的机构（HAS）引述了一项研究。该研究发现，莫德纳疫苗接种后，在所谓的“罕见”情况下会引起心肌炎。但在30岁以下的接种者中，莫德纳疫苗的患心肌炎的风险是辉瑞疫苗组别的5倍。这一研究已被HAS采纳，并于周一发布。
+再一个战友们，现在
+My comrades, there is another one, now
 
-目前，HAS的这一建议会被应用于第一、第二和第三针（加强针）的疫苗接种计划，直到一份更详细的科学报告出炉为止。
+就像昨天暴跌一样
+just like the (situation of) yesterday’s plummet
 
-周一的政府数据显示，法国每日感染人数比上周增加了23.4%，这引发了关于强制接种第三剂疫苗的质疑。预计总统埃马纽埃尔·马克龙（Emmanuel Macron）将在周二晚上向全国发表电视讲话，而他的大部分时间将用于讨论健康危机。
+一句话
+Only by one sentence
 
-*发布：翼族*
+你都能把你的币给抛掉
+it could make you sell your coins
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+变成13美金
+and turned to $13
+
+未来这个喜币如果没有上上下下
+In the future, if this HCoin doesn’t go up and down
+
+它就不叫喜币
+it will not be called HCoin
+
+它就是假的了
+because it’s fake
+
+那就是共产党的恒生股市指数了
+And that would be the CCP’s Hang Seng Index
+
+24700 24200
+which is 24700, then 24200
+
+大陆的50%的所谓的
+In the mainland, 50% of the so-called
+
+经济支撑的房地产都已经崩塌个球的了
+economically supported real estate has collapsed badly
+
+你还24000 那都是假的
+Hang Seng Index still has 24000, that’s all fake
+
+它一定是跌、涨、跌
+It (HCoin) must be down, up, and down
+
+经常这样子的
+often like this
+
+有震动才是真的嘛
+Cause true market has shocks
+
+所谓的横行线一定是假的被操作的嘛
+The so-called horizontal line must be faked and manipulated
+
+但是我希望的是什么
+However, what I’m hoping is that
+
+跌的时候还是涨的时候都不是咱们战友
+it’s not (happen on) our comrades when it falls or when it rises
+
+是那些有钱的投资机构
+Instead, those are wealthy investment institutions
+
+Date: 11/07/2021
+原视频标题: 喜币的起起伏伏证明其真实
+The ups and downs of HCoin are proof of its truth
+原视频日期：2021/11/05
+原视频链接: [https://twitter.com/se1y7cblljselva/status/1457268294163992581?s=24](https://twitter.com/se1y7cblljselva/status/1457268294163992581?s=24)
+任务编号：KC235（2803）
+视频时间段 : 0:00-0:57
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
