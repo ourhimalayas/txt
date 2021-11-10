@@ -2,27 +2,23 @@
 ---
 
 
-## 拜登政府无视限制令 美多地 “反疫苗强制令”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651577/)
+## 法国医药机构研究证实，中共病毒疫苗可引发心肌炎和心包炎
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651579/)
 
-作者：波士顿五月花 – 葛朗台太太/英国喜庄园-I770775
+作者：英国喜庄园 – I770775
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月6日，美国联邦第五巡回上诉法院发布命令，冻结拜登政府发布的企业新冠疫苗强制令，并要求拜登政府必须在11月8日下午5点前回应法院对新冠疫苗强制令提出的质疑。但在本周一，拜登政府完全无视正在发生的疫苗灾难，仍为强制疫苗政策辩护，建议企业继续实施强制疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-4.jpg)
-与此同时，从11月8日到11日，在老兵节期间，全美多地将进行为期四天的“反强制疫苗”示威抗议活动。这次席卷全国多地的示威游行从洛杉矶开始，各行各业民众聚集响应，其中有消防、卡车运输、电信、航空和铁路运输等多行业的职工，从蓝领到白领，不分肤色，不分党派，无论信仰，所有人都有一个共同的诉求：拒绝强制疫苗。
+11月8日，法国社会健康保险总局和法国药品安全局，公布了一项最新有关中共病毒病例的研究报告，确认新冠疫苗确实会引发心肌炎和心包炎。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4-4.jpg)
+这项研究，涉及12至50岁年龄段住院患者病例。研究结果显示，在相同情况下，接种疫苗人群相比不接种疫苗人群，发生心肌炎和心包炎的风险高很多，并且在30岁以下男性中比较明显，尤其是在注射第二剂莫德纳疫苗之后。
 
-参考链接：
-1. [拜登政府无视限制令 美多地 “反疫苗强制令”](https://www.whitehouse.gov/briefing-room/press-briefings/2021/11/08/press-briefing-by-principal-deputy-press-secretary-karine-jean-pierre-and-secretary-of-transportation-pete-buttigieg/)
-2. [拜登政府无视限制令 美多地 “反疫苗强制令”](https://www.youtube.com/watch?v=fJIe13R-MPQ)
-3. [拜登政府无视限制令 美多地 “反疫苗强制令”](https://www.reuters.com/world/us/us-says-covid-19-vaccine-mandate-lawsuits-belong-court-picked-randomly-2021-11-08/)
-4. [拜登政府无视限制令 美多地 “反疫苗强制令”](https://khn.org/morning-breakout/appeals-court-grants-stay-on-bidens-vaccine-mandate-for-private-businesses/)
-5. [拜登政府无视限制令 美多地 “反疫苗强制令”](https://www.khou.com/article/news/health/coronavirus/vaccine/biden-team-defends-worker-vaccine-mandate/507-71e6df94-c1b0-42e1-aab6-853d8eadccfa)
-6. [拜登政府无视限制令 美多地 “反疫苗强制令”](https://www.epochtimes.com/gb/21/11/9/n13363300.htm)
+此前，各国都已经有相关药品监督机构的报告显示，辉瑞疫苗尤其是莫德纳疫苗在接种后有导致心肌炎或心包炎的可能性，法国的这项最新研究再次确认了这一结果。
+
+参考链接：[法国医药机构研究证实，中共病毒疫苗可引发心肌炎和心包炎](https://amp.rfi.fr/cn/%E6%B3%95%E5%9B%BD/20211108-%E6%B3%95%E4%B8%80%E9%A1%B9%E7%A0%94%E7%A9%B6%E7%A1%AE%E8%AE%A4mrna%E7%96%AB%E8%8B%97%E6%8F%90%E9%AB%98%E5%BF%83%E8%82%8C%E7%82%8E%E5%92%8C%E5%BF%83%E5%8C%85%E7%82%8E%E9%A3%8E%E9%99%A9)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：Irene木木
-编辑：AN
+总编：文徬
+编辑：文特
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

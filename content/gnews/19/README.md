@@ -2,14 +2,20 @@
 ---
 
 
-## 台积电将在日本建子公司
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1652489/)
+## 世卫组织警报：2022 年将缺少注射器
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1652569/)
 
-台积电和索尼半导体联合宣布，台积电将在日本熊本县建立子公司，提供22/28纳米工艺的半导体生产服务，初期投入资金预计为70亿美元。索尼半导体将投入大约5亿美元的股本投资，并在新公司中占有20%的股份。
-![img](https://media.gettr.com/group18/getter/2021/11/10/06/04/3fe332a8-b443-1a28-70da-85fa85e0f60a/4c145a9efdf9e51f2bd08f91ff6a7227_500x0.jpg)
-参考链接 ：[https://cn.nikkei.com/industry/itelec…](https://cn.nikkei.com/industry/itelectric-appliance/46626-2021-11-10-09-52-24.html)
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11102.jpg)图片来自Health.online
+11 月 9 日-世界卫生组织对注射器发出警告：如果它们的生产跟不上针对新冠病毒的疫苗剂量，到 2022 年注射器可能缺少1 到 20 亿支。
 
-**（文章内容仅代表新西兰-财经G乐部节目观点）**
+世卫组织卫生保健顾问丽莎·赫德曼（Lisa Hedman）对记者说：“我们真正担心的是，我们可能会出现注射器短缺，这反过来又会导致严重问题，首先是疫苗接种工作放缓。“
+
+全球已接种超过 72.5 亿剂疫苗，几乎是每年常规疫苗接种数量的两倍，导致对注射器的需求增加。这位官员警告说，如果这个问题得不到解决，在未来几年内可能会对公共卫生产生影响，注射器和针头可能会被重复使用，而这些注射器和针头应该是一次性的。
+
+原文链接：[https://www.ansa.it/sito/notizie/mondo/2021/11/09/covid-allarme-oms-mancano-le-siringhe-per-il-2022\_5e6c20ca-ae9a-4d01-8785-2140e6910a70.html](https://www.ansa.it/sito/notizie/mondo/2021/11/09/covid-allarme-oms-mancano-le-siringhe-per-il-2022_5e6c20ca-ae9a-4d01-8785-2140e6910a70.html)
+
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

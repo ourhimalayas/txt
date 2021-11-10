@@ -2,25 +2,23 @@
 ---
 
 
-## 自由潜水员在接种新冠疫苗后被诊断为心肌炎
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651578/)
+## 超1.1万名员工拒绝疫苗，申请疫苗豁免，波音公司陷入两难
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1651580/)
 
-作者：纽约香草山福音部 – lilian89
+作者：纽约香草山文艺部 – 宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月8日，据相关媒体报道，世界上最好的静态自由潜水员弗洛里安-达古里在接种完第二针辉瑞新冠疫苗后，被诊断为心肌炎和轻微的三尖瓣反流。
+近日，在波音公司，超过1.1万名员工以宗教或医疗为由申请疫苗豁免。
 
-据了解，弗洛里安-达古里是一名法国的自由潜水员，现居泰国，曾以憋气10分30秒而闻名，目前是世界上可以呼吸暂停的第一人。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-4.jpg)
-在接种完新冠疫苗后，达古里发现自己的心率比正常高很多，且憋气能力明显下降。经医生诊断，这种症状是辉瑞新冠疫苗的常见副作用。更为严重的是，40天后，达古里被诊断为心肌炎和三尖瓣反流。三尖瓣反流是由免疫系统引起的心脏肌肉炎症，其症状表现为，心脏瓣膜不再正常关闭因而造成一些微小的血液渗漏。
+作为联邦承包商，为了避免政府订单流失和工厂劳动力短缺，波音公司在上周五将宗教或医疗理由申请豁免的最后期限推迟至1月4日。内部电子邮件显示，获得豁免批准的员工需要戴口罩、保持身体距离和频繁的COVID-19检测，未获批准的员工在截止日前会受到最终警告。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture99.jpg)
+据内部人士透露，超过1.1万名员工试图合理拒绝接种疫苗。此人数大大超出公司管理层的预估，让波音公司陷入了两难境地。
 
-这些副作用，让达古里的心肺功能大幅衰退，他的职业生涯很可能会因此戛然而止。
-
-参考链接：[自由潜水员在接种新冠疫苗后被诊断为心肌炎](https://www.thegatewaypundit.com/2021/11/florian-dagoury-worlds-top-static-freediver-diagnosed-myocarditis-taking-pfizer-vax-may-end-career/)
+参考链接：[超1.1万名员工拒绝疫苗，申请疫苗豁免，波音公司陷入两难](https://www.reuters.com/business/aerospace-defense/exclusive-boeing-us-worker-vaccine-exemption-requests-top-11000-sources-2021-11-08/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：Irene木木
-编辑：Irene木木
+总编：木白
+编辑：木白
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

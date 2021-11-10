@@ -2,23 +2,44 @@
 ---
 
 
-## 709律师谢阳出行变红码，健康码成为防控道具
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1651961/)
+## 万事达卡推出与加密货币挂钩的卡，加密货币可转为法币
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1652114/)
 
-#### 撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-45.jpg)[图片源](https://botanwang.com/articles/202111/%E4%BB%A3%E7%90%86%E5%BC%A0%E5%B1%95%E6%A1%88%7C%E8%B0%A2%E9%98%B3%E5%BE%8B%E5%B8%88%E9%95%BF%E6%B2%99%E6%9C%BA%E5%9C%BA%E5%81%A5%E5%BA%B7%E7%A0%81%E8%BD%AC%E7%BA%A2%E8%A2%AB%E6%8B%A6.html)
-【大纪元博谈网】709律师谢阳做为张展（公民记者因追踪报道武汉新冠肺炎疫情遭中共抓捕判重刑）的控告代理人从长沙到上海见张展的母亲与哥哥，了解健康情况并欲劝阻当事人的绝食行为。谢阳在出行前日遭遇当地管辖警察和国保的阻止去上海，并想用钱解决问题，遭到拒绝后离开。次日当谢阳到达飞机场时，健康码突然由绿色变为红色，成为重点防控对象，不许通行。现场还有急救中心车辆和防疫人员等待，想要将之接走。谢阳说怕有危险，自己强行离开了，并说出在低风险区的长沙最近没有一个感染病例，机场也没有要求出示核酸检测，这就是当地国安阻止他去上海的卑鄙手段。并要求大家多关注张展案。记者就健康码转红情况致电长沙疾控中心，工作人员称最近长沙没有出现确诊病例，起先说当事人离开长沙才会出现转成红码现象，后有说有不排除有外来人员来本市接触成为密接者，最后说不是疾控中心转的，是大数据控制的。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-根据中共国国际发展知识中心的对健康码的解释是，可提高疫情防控效率，简化信息采集流程，及时掌握动态情况，更好的平衡疫情防控和恢复经济社会活动相关政策，并可掌握自身风险情况。但是从张展的经历，健康码已不是防疫而是防变的万能工具。比如可以防范上访人员的风险、低端人口的排除、防止聚集、可极权管理、监控每个人。让本就没有自由、人权的中共国成为一个更巨大的严密被监视的牢笼。请问，你还愿意在思想被统治、财产被剥削、没有发声的自由、没有人权的体制下苟延残喘吗？
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/mastercard-crypto-linked-cards-1000x600-1.jpeg)
 
-信息源：
 
-[代理张展案 谢阳律师长沙机场健康码转红被拦](https://botanwang.com/articles/202111/代理张展案%7C谢阳律师长沙机场健康码转红被拦.html)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+图片来源：www.pymnts.com
 
+
+#### 编译：小红帽
+
+万事达卡周一宣布，在亚太地区推出与加密货币关联的支付卡。这将首次允许持卡人将其数字资产即时转换为法定货币。
+
+该卡旨在消除不接受数字资产支付的商户与希望用加密货币支付的客户之间的任何障碍。
+
+与香港的Amber Group、泰国的Bitkub和澳大利亚的CoinJar的合作将允许该地区的消费者和企业申请与加密货币挂钩的信用卡、借记卡或预付卡，这些卡可以在接受万事达卡的任何地方消费。
+
+这三家公司还将加入万事达卡的全球加密卡计划，成为名册上第一个亚太地区的数字资产服务提供商。该计划旨在使加密货币交易尽可能无缝对接。
+
+该计划推出之际，数字资产的总市值飙升到3万亿美元，这是有史以来第一次，大约相当于整个英国的经济规模。
+
+万事达卡一直是走在数字资产整合前列的公司之一。7月，该公司升级了其加密货币卡，允许客户使用稳定币进行购买。而在10月，它与数字资产平台Bakkt合作，使消费者能够通过托管钱包购买、出售和持有数字资产。
+
+万事达卡此前还承诺帮助各国央行塑造和发展自己的数字货币，这些数字货币是类似于加密货币的数字代币，但不是去中心化的。
+
+**参考链接：**[Mastercard launches crypto-linked payments cards in Asia that allow holders to convert their crypto to fiat instantly | Currency News | Financial and Business News | Markets Insider (businessinsider.com)](https://markets.businessinsider.com/news/currencies/mastercard-cryptocurrency-linked-payments-cards-asia-fiat-amber-coinjar-bitkub-2021-11)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,42 +2,255 @@
 ---
 
 
-## 卡车司机的巨大胜利：豁免疫苗接种
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1652579/)
+## 喜美元转款无限制即将开通账户互转喜币理财
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1652698/)
 
-**翻译：lulumi**
+[https://gtv.org/video/id=618b330eadfd99590c34ef42](https://gtv.org/video/id=618b330eadfd99590c34ef42)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip07.png)*(APPhoto/EraldoPeres)*
+你进来以后KYC, 你开了帐号
+Luego de realizar el procedimiento de KYC, abres la cuenta
 
-乔·拜登总统宣布的联邦疫苗强制令，将影响到私营部门几乎所有的工人，这就像一块瑞士奶酪一样坚实，但也有例外。最近的一次被卡车行业的代表誉为“巨大的胜利”，因为劳工部现在已经决定，大多数卡车司机将不属于这项强制令范围内。如果他们这样做，他们可以选择每周提交阴性的COVID测试，而不是按照他们的意愿进行疫苗注射。那么，是什么让卡车司机如此特别？请继续阅读并找出答案。(雅虎新闻)
+你钱打多少是不受限制的
+No hay límite por la cantidad de dinero que transfieras
 
-据CNBC报道，劳工部长马蒂·沃尔什（Marty Walsh）在接受采访时说，大多数司机将被免除拜登总统的疫苗和测试任务，卡车司机周五欢呼胜利。
+比如说
+Por ejemplo
 
-沃尔什的评论是为了回应卡车行业对白宫周四宣布的一项政策的批评，该政策将要求数百万工人全面接种疫苗或定期接受测试。新规定将于1月4日生效。
+海东兄弟开了喜美元帐号
+El hermano Haidong abrió una cuenta de HDO
 
-白宫表示，该规则适用于联邦政府的工作人员和任何为100名以上员工的公司工作的人。如果我们生活在某种另类的现实中，理智、明智的辩论推动着政府的政策，你也许可以看到豁免长途卡车司机的任何疫苗强制令是多么的合理。他们中的绝大多数人都是自己开车，独自坐在卡车的驾驶室里。那里通常没有其他人可以感染或被感染。唯一比让他们接种疫苗更愚蠢的事情是让他们在开车时戴上口罩。
+KYC过了
+Luego que el KYC es aprobado
 
-根据劳工部的公告，这似乎是他们正在处理的现实。并非所有的卡车司机都能得到豁免。那些在驾驶室里与伙伴一起开车的人，或者在装卸货物时必须经常与其他人打交道的人，仍将属于这项任务的范围。没有关于他们经常光顾的卡车站的女服务员的消息，特别是如果该站的雇员少于100人。
+刚才一个美国
+Hace rato, un amigo de EE. UU
 
-当然，这不是这项豁免的真正原因，我猜测大多数人都知道这一点。我们现在正处于非常严重的供应链危机之中，它几乎完全是由持有CDL的合格卡车司机的短缺导致的。就在假期即将到来的时候，货物在我们国家港口和地面分销点被滞留数周。这导致了更高的价格和空荡荡的货架。乔·拜登不想在这种时候自己被看作是哪怕是一个卡车司机离职的原因，所以卡车司机得到了一张免费通行证。
+摩根家族的某个我们的朋友
+De la familia de Morgan
 
-对拜登来说，这是另一个政治手段，突出了他的政府对这些疫苗强制令所采取的不平衡和无意义的方法。卡车司机没有任何特征使他们对中共病毒COVID-19有神奇的抵抗力。尽管如上文所述，他们中的大多数人都独自驾驶着他们的卡车，但他们完成他们的任务后大概也会回家与家人团聚。他们偶尔会停下来在汽车旅馆里睡觉或在公路旅馆里吃饭。他们与很多人接触，尽管在做他们的工作时没有那么多。
+人家的女儿
+Su hija
 
-另外，如前所述，即使是不被豁免的卡车司机也将自动获得每周提交阴性COVID测试的选择。但目前大多数警察、消防员或其他公务员没有这个选择。如果每周检测足以“减缓传播”，那么它应该对每个人都足够好，而不仅仅是政治上受青睐的人，对吗？
+女婿人家有双国籍
+Su yerno tiene doble nacionalidad
 
-正如拜登自己所说，这一切都只是一堆废话。最后，让我们来谈谈关于该强制令是“临时紧急命令”的想法，正如劳工部职业安全卫生署（OSHA）所定义的。如果它实际上是“临时的”，这意味着它将有一个结束的时候，工人将不必提供疫苗接种证明。但是，一旦注射了疫苗，你就不能把它从你的身体里拿出来。所以对绝大多数人来说，这根本不是真正的暂时性命令。
+人家就可以KYC
+Él pudo realizar el KYC
 
-**新闻来源**：[**hotair.com**] [So now most truck drivers will be exempt from the vaccine mandates](https://hotair.com/jazz-shaw/2021/11/07/so-now-most-truck-drivers-will-be-exempt-from-the-vaccine-mandates-n427568)
+KYC过了以后
+Luego que esto sea aprobado
+
+刚才他说了
+Él hace rato dijo
+
+我买了这个币
+Compré esta moneda
+人家就买了, 合法啊
+Él lo pudo comprar, de manera legal
+
+最重要的事情
+Y lo más importante
+
+他的一个好朋友
+Su amigo
+
+包括我们的一个朋友
+Incluyendo nuestro amigo
+
+大额钱汇到这个喜美元帐号
+Transfirieron de grandes cantidades de dinero a la cuenta de HDO
+
+喜美元帐号的未来是什么
+¿Cuál es el futuro de la cuenta de HDO?
+
+它连着喜支付呢
+Está vinculada con el H-pay
+
+你买啥都可以
+Puedes comprar cualquier cosa
+
+它是个比信用卡还方便的东西
+Es algo más conveniente que la tarjeta de crédito
+
+手机支付, 刷卡支付
+Pago móvil, pago con tarjeta de crédito
+
+还有一个隔空支付
+Y también está un pago al aire
+
+战友与战友之间也马上就开通
+Entre compañeros luchadores pronto se abrirá también
+
+你的帐号之间也可以互相转
+Al igual se puede transferir entre sus cuentas
+
+那么这个钱
+Entonces, este dinero
+
+你不用在这搁着怎办呢
+Si no lo utilizas aquí, que harás si lo dejas allí
+
+是不是啊
+¿Cierto?
+
+未来给你7%到10%的利息
+En un futuro te dará el 7% a 10% de intereses
+
+拿什么支付呢, 拿喜币支付
+¿Con qué se pagará? A través de HCN
+
+大家记住啊, 这个可牛了
+Todos recuerden, esto es algo muy poderoso
+
+喜币本身就有(升值)
+El HCN en sí puede (reevaluarse)
+
+它是浮动币就增长
+Crece cuando es una moneda flotante
+
+你现在告诉我
+Ahora tú me dices
+
+东弟, 钊颖, 飞飞
+Hermano Dong, Zhaoying, Feifei
+
+你看你们在账上的钱
+Vean el dinero que están en sus cuentas
+
+你想一想啊
+Piensa
+
+现在飞飞家房子
+Ahora la casa de Feifei
+
+可能是150万美元
+Podría ser 1.5 millones de dólares
+
+你把你的房子卖掉
+Vendes tu casa
+
+150万美元就放在了喜美元里边
+Estos 1.5 millones de dólares lo dejas en la cuenta de HDO
+
+7%的喜币给你
+Te dan el 7% de HCN
+
+你拿你在喜币
+Tomas el HCN
+
+拿到钱的50%去租房子去
+Y te llevas el 50% del dinero para alquilar una casa
+
+是你现在住的房子的五倍大
+Y es cinco veces más grande que la que estás viviendo ahora
+
+但你每年都会升值
+Pero se revalúa cada año
+
+美国人没有一个人不卖房的
+No hay ningún estadounidense que no venda su casa
+
+美国人是卖房子换房子
+Ellos la venden y cambian por otra
+
+才是有钱人
+Así es ser rico
+
+只有穷人一住(一辈子)
+Solamente los pobres viven de (por vida) con la misma casa
+
+像中国人说老房子
+Así como dicen los chinos, “casa vieja”
+
+老房子说明你很穷很笨好不好
+Si es una “casa vieja” significa que eres pobre y tonto
+
+所以说这叫理财
+Por eso esto se llama gestión financiera
+
+还有一个, 有喜币的
+Y hay otro, quien tenga el HCN
+
+本身我有喜币, 我就可以抵押贷款
+Yo particularmente tengo HCN, entonces puedo hipotecar
+
+马上就可以做抵押贷款
+De una vez se puede realizar hipotecas
+
+所以有3年期, 5年期, 7年期
+Por eso hay de 3 años, 5 años, 7 años
+
+大家记住, 喜美元一定要善用
+Todos recuerden, deben tomar el buen uso de HDO
+
+然后接下来
+Luego lo que viene
+
+咱们在全球各个地方
+Nosotros en cualquier lado del mundo
+
+任何人
+Cualquier persona
+
+都要去用喜支付
+Deben usar el H-pay
+
+H-pay找客户去
+Busquen clientes que utilicen H-pay
+H-pay找来的客户
+Los clientes que consiguen
+
+马上会公布政策
+Inmediatamente se anunciará la póliza
+
+终生你享有这里边的提成点
+Disfrutarás de la comisión por el resto de tu vida
+
+你搞个几个就赢了
+Serás el ganador si encuentras unos cuantos clientes
+
+第三个, 我告诉大家
+El tercero, debo decirles
+
+从现在开始起
+A partir de este momento
+
+我们农场
+Nuestra finca
+
+马上要把币的事搞明白以后
+Luego de conocer y arreglar bien
+
+调整完
+El asunto de la moneda
+
+我说过了
+Yo había dicho
+
+爆料革命, 灭共事业
+El movimiento de denunciantes y el trabajo de eliminar al Partido Comunista
+
+没有周末, 没有假期
+No hay fin de semana ni vacaciones
 
 * * *
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+日期：11/08/2021
+原视频标题：喜美元转款无限制即将开通账户互转喜币理财
+El H-Dollar (HDO) y H-Coin (HCN) pronto se abrirá cuentas para realizar transferencias ilimitadas y gestionar operaciones financieras
+原视频日期：11/04/2021
+原视频网址：[https://twitter.com/se1y7cblljselva/status/1456572206360629252?s=24](https://twitter.com/se1y7cblljselva/status/1456572206360629252?s=24)
+任务编号：KC238(2783)
+视频时间段：0:00-2:20
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
