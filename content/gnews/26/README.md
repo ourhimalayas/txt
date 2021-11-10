@@ -2,27 +2,28 @@
 ---
 
 
-## 美国议员访台：展现台美紧密关系制约中共威胁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1653079/)
+## 首个站出来反对给儿童注射中共病毒疫苗的好莱坞明星
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1653139/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-50.jpg)
-（图片来源于本文链接）
+整理报道：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/untitled-collage-1541564452.jpg)图片来源：Today
+11月9日，《国会山报》报道了好莱坞影星马修·麦康纳（Matthew McConaughey）反对强制要求他的孩子接种中共病毒疫苗。
 
-美国参众议员周二（9日）搭军机赴台湾访问，这是拜登上任后，美国议员二度访问台湾，此行台湾官方十分低调，有学者解读为台美关系更加紧密，但也有学者直指，这是美国内政的延伸，并担忧华盛顿可能加大反共力道，使两岸紧张，中共国对台湾威胁加剧。美国国防部发言人柯比（John Kirby）被问到此事时向媒体表示，国会代表访问台湾十分正常，这类访团使用美方军机并不罕见，但并未说明访团有哪些成员。据台湾媒体报导，访台的议员包括美国共和党籍参议员柯宁（John Cornyn）及麦克·李（Mike Lee）等人等参众议员共6位，另外还有军官及助理等十多人，将会与台湾总统蔡英文见面，但台湾外交部不愿证实访问台湾的美国议员，是否都是共和党籍，仅称“行程是由美国在台协会台北办事处（AIT）协调安排”。
+麦康纳是一位美国知名男演员，他说“我已经接种了疫苗，我的妻子也接种了疫苗。我这样做不是因为有人告诉我必须这样做，（而是我）选择了这样做，（但）我不能（同意）强制为年幼的孩子们接种疫苗，我仍然想透彻了解更多信息。”
 
-台媒披露的访台议员之一柯宁，日前才与共和党籍副主席里契在美国联邦参议院与参议院外交委员会上，提出“台湾威慑法（Taiwan Deterrence Act）”草案，要授权国务院在2023至2032财政年度间，每年提供20亿美元的“外国军事融资”给台湾。
+现年52岁的麦康纳表示：“现在，我还不想为我自己的孩子打（冠状病毒）疫苗，以后我会告诉你。”基于对他人的境遇同情，他说：“现在，我处于这样一个可以做到这一点的位置，但是我明白，不是每个人都能做到这一点。”
 
-台媒也指出，美国参议员一行人周三（10日）到台湾国防部聆听有关中共解放军对台湾的威胁，以及台湾在印太战略位置的重要性，并称这是美国国会议员首度进入国防部听取相关简报。美国德州山姆休士顿州立大学（Sam Houston State University）政治系副教授翁履中向德国之声表示，柯宁所提出的“台湾威慑法（Taiwan Deterrence Act）”草案，内容包括台湾每年必须达到符合美国所制定的自我防卫标准，若确定这次访台的议员都是共和党籍，那目的明显与国防安全有关，是要了解台湾的国防实力。然而，他也认为这是美国变相对台湾施压，“也就是美国是老师，每年要来检查台湾军事国防实力是否进步了，才会拨款给台湾”，他认为这是变相对台湾施压，并说：“美国现在要反共，制约中共国，就希望台湾变成组一个战队里面的战士及角色，从平民变成战士。”
+#### 新闻来源
 
-信息来源：
+[McConaughey comes out against vaccine mandates for kids](https://thehill.com/blogs/in-the-know/in-the-know/580826-mcconaughey-comes-out-against-vaccine-mandates-for-kids)
 
-[美国议员访台：展现台美关系或加剧两岸紧张？](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD%E8%AE%AE%E5%91%98%E8%AE%BF%E5%8F%B0%E5%B1%95%E7%8E%B0%E5%8F%B0%E7%BE%8E%E5%85%B3%E7%B3%BB%E6%88%96%E5%8A%A0%E5%89%A7%E4%B8%A4%E5%B2%B8%E7%B4%A7%E5%BC%A0/a-59775156)
+发布：七彩光
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-4.jpg)
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

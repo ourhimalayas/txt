@@ -2,12 +2,30 @@
 ---
 
 
-## 孙立军因涉嫌受贿被最高人民检察院依法批准逮捕
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1653422/)
+## GTV新闻访谈简报|2021年11月10日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1653567/)
 
-11月5日，公安部原党委委员副部长孙立军因涉嫌受贿被最高人民检察院依法批准逮捕。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-8.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：2021.11.10早GTV新闻访谈
+
+[https://gtv.org/broadcast/watch/618bc8e6e7e770379232594b](https://gtv.org/broadcast/watch/618bc8e6e7e770379232594b)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-1.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

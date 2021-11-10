@@ -2,26 +2,30 @@
 ---
 
 
-## 有声| 中共禁止数字货币交易的根本原因
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653221/)
+## 有声| 台湾教育部下令驱逐“清华海峡研究院新竹办公室”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653308/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月7日，郭文贵先生在GTV大直播中，揭露了中共禁止数字货币交易的根本原因。
+配音：香草山香港部 – 文凯琳
 
-郭先生爆料，中共内部文件显示，中共研究数字货币是出于安全和政治的考虑。中共担心，一旦允许任何数字货币公司在中共国经营，中共金融的秘密和安全将荡然无存。因此，中共为保证数字货币时代的安全，不仅使用绝对“中心化”的区块链技术，和行政管理，垄断数字货币发行权，而且发行数字人民币，禁止中国人使用和购买其它数字货币。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-中共企图控制西方国家“去中心化”的数字货币主导权，进而掌握西方国家的经济和安全信息。利用美国华尔街和伊朗进入比特币市场，郭先生指出，比特币挖矿机大多已被中共解放军控制。
 
-喜联储的诞生，一方面打破了中共控制数字货币的话语权，另一方面，对于中共向西方国家金融信息渗透的企图，是致命的打击。
 
-文字版原文：[中共禁止数字货币交易的根本原因](https://gnews.org/zh-hans/1648630/)
+11月8日，台湾教育部下令“清华海峡研究院新竹办公室”从即日起停用撤离，并停止租约。
+
+清华海峡研究院，是由清华校友会与中共厦门市政府、北京清华大学共同设立的。 该院在未经台湾政府许可的情况下，违法在新竹清华大学校园内租用房屋，设立了“清华海峡研究院新竹办公室”。
+
+据了解，中共利用该办公室在台湾投资、揽才，并参与技术研发，以此渗透台湾教育领域。中共的渗透行为已违反了两岸的关系条例。检察单位目前正在进行调查中。
+
+文字版原文：[台湾教育部下令驱逐“清华海峡研究院新竹办公室”](https://gnews.org/zh-hans/1649761/)
 
 音频处理：喜山必胜Maverick
 
 发稿：呼吸的雾霾（文小呼吸）
 
-![This image has an empty alt attribute; its file name is Nov.png](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+
 
 **更多资讯，更多关注**
 
@@ -34,7 +38,9 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is MOS_LOGO_publish-14.png](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

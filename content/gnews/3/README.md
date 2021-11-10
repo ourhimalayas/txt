@@ -2,32 +2,23 @@
 ---
 
 
-## 美国参众两院议员再搭军机访台
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653402/)
+## 文贵爆料 11.10.2021 六中全会主要目的是确定军政大权集于习家人、习家军
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1653554/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月9日，美国参、众两院议员乘坐海军C-40A行政专机，降落松山空军基地。此次行程由台湾外交部提供访团行政协助，并就相关防疫措施，协调流行疫情指挥中心。此次经台是双方协调结果，并基于尊重美方意愿，相关信息将会适时对外公布。
+撰稿：回响
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-10-at-9.23.22-AM.png)图片来源：GTV & GETTR
+中共六中全会，不仅影响所谓政局走向，甚至影响到人类的命运。爆料革命发起人郭文贵先生2021年11月10日大直播再次爆出令人瞠目结舌的幕后真相。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-6.jpeg)
+从六中全会内部报告的部分内容：包括全国癌症病患数字、香港关键人才外流、医护现状、外汇锐减状况等，特别是影响北方无数百姓民生的突降大雪竟然是中共太空军的人造雪；而且会议竟然在北京西郊多个地方召开，这是中共党史上罕见的现象，郭先生质问：中共在怕什么？！
 
-此前，美国已多次访台：6月6日，美国三名参议员曾乘美国空军C-17运输机访台、7月15日，一架C-146A美军行政专机降落在台北空军松山基地。
+郭先生最后明确告知：六中全会的主要目的就是确定军政大权要集于习家军、习家人。
 
-参考链接：[美國參眾議員搭軍機訪台？ 外交部：行程由AIT安排](https://news.ltn.com.tw/news/politics/breakingnews/3731364)
+郭先生借用美国某位国防领域要人的话，再次强调，CCP早就没有常委只有皇帝；是习一尊个人的性格、行为在影响、左右着人类的命运，不是中国亿万百姓。爆料革命、新中国联邦反共、灭共不反华。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+【原文链接】https://gtv.org/broadcast/watch/618bc611e7e7703792324e26
 
-总编：Ivy001
-编辑：文特 
-校正/发稿：谐趣园
+校对发布：Shifter
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

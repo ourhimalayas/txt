@@ -2,51 +2,29 @@
 ---
 
 
-## 中共教育部要求3到11岁学童接种中共病毒疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653197/)
+## 有声|喜联储技术优于加密货币领域最大的独角兽
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653244/)
 
-作者：纽约香草山医疗部 – 云豹
+配音：香草山美食部 – 玫瑰园
 
+Kraken是一家位于美国加州的加密货币交易所和银行， 成立于2011年。它拥有国家银行执照， 是加密货币领域最大的独角兽之一。
 
+kraken公司产品包括加密货币交易所，场外交易柜台和期货交易平台。Kraken交易所提供加密货币和法定货币之间的交易， 并向彭博终端提供价格信息。在全球加密货币交易量排名第六。截止2021年，Kraken已经对美国48个州和176个国家的居民开放， 并提供72种可供交易的加密货币。
+2021年初，Kraken 已超过200亿美元的估值。其直接竞争对手Coinbase的估值预计为1000亿美元。郭先生在直播中提到，这两个公司使用的公共区块链技术，在技术层面远不及喜联储的私人区块链。虽然Kraken 在短时间内做到世界领先，但新中国联邦的金融系统将是世界级的金融航空母舰。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+文字版原文:[喜联储技术优于加密货币领域最大的独角兽](https://gnews.org/zh-hans/1648587/)
 
+音频处理：喜山必胜Maverick
 
-
-近日，中共教育部要求对3至11岁学童积极推进疫苗接种工作。
-
-7月下旬开始，中共开始为12至17岁的青少年施打中共病毒疫苗。9月，中共疾病预防控制中心免疫专家王华庆，在中共国务院联防联控机制的记者会上表示，要考虑对12岁以下的族群施行疫苗注射。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-67.jpg)
-从10月24日开始，海南、湖北全省，以及浙江、湖南两省的部分地级市，陆续要求3至11岁儿童接种疫苗。
-
-近日，河北省郑州市、荥阳市、新密市、辛集市等地区的小学发生群聚感染，中共借此积极向全国推动3至11岁学童的疫苗接种工作。
-
-参考链接：
-[校園爆疫情 中國教育部促3至11歲學童打疫苗](https://www.cna.com.tw/news/acn/202111090210.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：木白
-校对/发稿：为真不破20
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

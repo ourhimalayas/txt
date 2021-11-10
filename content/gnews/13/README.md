@@ -2,41 +2,43 @@
 ---
 
 
-## 有声| 恒大子公司债券利息逾期未付
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653229/)
+## 有声| 为墙内房企吸金的财富企业开始出现兑付危机
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653332/)
 
-配音：香草山香港部 – 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+香草山香港部 – 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在墙内房企美元债爆雷，以恒大为首的房企停工停产，以及A股上市房企4-6成资金流出现负数的背景下，墙内房企相关联的财富公司也遭遇兑付危机。这些财富公司，通过各种金融理财产品来帮助房企吸收资金，开发新的楼盘。然而这种明股实债的吸引资金模式，也正在遇上无法支付利益，甚至只能以房代利的窘境，也就是强制将投资者转化成购房者。
 
+尤其明显的是从去年以来，以泛海、宝能、恒大为代表的企业，特别是恒大财富的“基金销售牌照”的持有主体，并非恒大而是一家叫做深圳市金海九州基金的销售公司，而该公司的股东却跟很大没有任何直接联系。如此错综复杂的关系，恰恰反映出墙内房企爆雷也只是冰山一角，而水下面还没被发现的爆雷已经在暗流涌动，CCP支柱产业的房企持续爆雷，一定会将一大串看上去本身毫无关联的企业被牵扯出来，造成中共国内经济的崩溃。
 
-截至11月8日上午，恒大集团子公司景程有限公司（Scenery Journey Ltd）部分美元债券的持有人，尚未收到上周六到期的债券利息。
-
-据了解，景程公司2022年11月到期、票面利率为13%，以及2023年11月到期、票息为13.75%的债券本该在上周六进行半年一次的付息，总金额为8249万美元，但是债券持有人并未如期收到票息。
-
-根据规定，景程公司在星期六之前未兑付债券利息，即启动为期30天的支付宽限期。如果在30天宽限期过后仍未兑付票息，即被视为违约。除此之外，据悉，恒大集团在11月至12月期间，自身也将有3.38亿美元的海外美元债券的票息到期需要支付。
-
-恒大近几个月来，由于销售不畅，大量债务到期日接踵而至，公司现金流严重缺乏。市场担忧，在可见的未来，中共房地产的崩盘将对世界金融市场和经济造成巨大冲击。
-
-文字版原文：[恒大子公司债券利息逾期未付](https://gnews.org/zh-hans/1649581/)
+文字版原文：[为墙内房企吸金的财富企业开始出现兑付危机](https://gnews.org/zh-hans/1650004/)
 
 音频处理：喜山必胜Maverick
 
 发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+
+
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

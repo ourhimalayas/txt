@@ -2,42 +2,12 @@
 ---
 
 
-## 有声| 为墙内房企吸金的财富企业开始出现兑付危机
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653332/)
+## CNN播放《芝麻街》诱使美国儿童接种中共病毒疫苗
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1653439/)
 
-香草山香港部 – 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在墙内房企美元债爆雷，以恒大为首的房企停工停产，以及A股上市房企4-6成资金流出现负数的背景下，墙内房企相关联的财富公司也遭遇兑付危机。这些财富公司，通过各种金融理财产品来帮助房企吸收资金，开发新的楼盘。然而这种明股实债的吸引资金模式，也正在遇上无法支付利益，甚至只能以房代利的窘境，也就是强制将投资者转化成购房者。
+11/06/2021 CNN播放的《芝麻街》诱使美国儿童去接种中共病毒疫苗。节目称接种疫苗后每个人都能健康。
 
-尤其明显的是从去年以来，以泛海、宝能、恒大为代表的企业，特别是恒大财富的“基金销售牌照”的持有主体，并非恒大而是一家叫做深圳市金海九州基金的销售公司，而该公司的股东却跟很大没有任何直接联系。如此错综复杂的关系，恰恰反映出墙内房企爆雷也只是冰山一角，而水下面还没被发现的爆雷已经在暗流涌动，CCP支柱产业的房企持续爆雷，一定会将一大串看上去本身毫无关联的企业被牵扯出来，造成中共国内经济的崩溃。
-
-文字版原文：[为墙内房企吸金的财富企业开始出现兑付危机](https://gnews.org/zh-hans/1650004/)
-
-音频处理：喜山必胜Maverick
-
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

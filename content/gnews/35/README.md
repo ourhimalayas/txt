@@ -2,91 +2,41 @@
 ---
 
 
-## 喜币的起起伏伏证明其真实
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1652878/)
+## 美军在关岛测试“铁穹”系统防备中共巡航导弹
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1652927/)
 
-[https://gtv.org/video/id=618ba409adfd99590c35060e](https://gtv.org/video/id=618ba409adfd99590c35060e)
+#### 作者：日本东京方舟农场 子辰
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7E6824F0-6BE1-467D-9B26-1D79BEC30F4B.jpeg)图片来自于网络
 
-再一个战友们，现在
-My comrades, there is another one, now
+据《美国之音》11月10日报道，美军正在关岛部署和测试一套从以色列进口的“铁穹”防空系统，以便在美中发生冲突时，拦截可能袭击关岛的中共军方巡航导弹。
 
-就像昨天暴跌一样
-just like the (situation of) yesterday’s plummet
+此次“铁穹”系统的部署，将与美国军方2013年就在关岛部署的“萨德”末端高空区域防御系统进行整合测试。
 
-一句话
-Only by one sentence
+“铁穹”是以色列拉斐尔先进防御系统公司研发的防空系统。“铁穹”由发射、雷达、操控和检测等装置组成，可以对来袭火箭弹进行自动探测，并发射导弹在空中对来袭目标进行拦截。
 
-你都能把你的币给抛掉
-it could make you sell your coins
+关岛属于美国领地，岛上目前有居民和驻军19万人，并拥有美国空军、海军和海军陆战队基地。关岛距离中共国1800英里，是距中共国最近的美国领土。
 
-变成13美金
-and turned to $13
+随着美中关系近年来持续恶化以及台海紧张情势逐渐升高，中共为了在台海爆发冲突时阻止美军干预，越来越把攻击关岛当作其整军备战的重要目标之一。
 
-未来这个喜币如果没有上上下下
-In the future, if this HCoin doesn’t go up and down
+此举引起美国的高度重视，美国陆军在美国国会授权下，去年耗资3.73亿美元，采购了两套“铁穹”系统，并于今年8月在新墨西哥州白沙导弹靶场对其中一套系统进行了首次实弹测试，结果成功击中8个巡航导弹的模拟标靶。
 
-它就不叫喜币
-it will not be called HCoin
+华盛顿智库“战略暨国际研究中心”（CSIS）反导项目主任卡拉科表示，如果美国不能防卫关岛及岛上空军基地和其他设施，那么就很难向太平洋投送军力。
 
-它就是假的了
-because it’s fake
+注：本文仅代表作者观点
 
-那就是共产党的恒生股市指数了
-And that would be the CCP’s Hang Seng Index
+***新闻链接：** [https://www.voachinese.com/a/US-tests-Israel-s-Iron-Dome-in-Guam-as-defense-against-Chinese-cruise-missiles-20211109/6306231.html](https://www.voachinese.com/a/US-tests-Israel-s-Iron-Dome-in-Guam-as-defense-against-Chinese-cruise-missiles-20211109/6306231.html)*
 
-24700 24200
-which is 24700, then 24200
+* * *
 
-大陆的50%的所谓的
-In the mainland, 50% of the so-called
 
-经济支撑的房地产都已经崩塌个球的了
-economically supported real estate has collapsed badly
+```
+素材采编：子辰
+编辑：青衣青青
+校对：青衣青青
+发布：miumiu
+```
 
-你还24000 那都是假的
-Hang Seng Index still has 24000, that’s all fake
-
-它一定是跌、涨、跌
-It (HCoin) must be down, up, and down
-
-经常这样子的
-often like this
-
-有震动才是真的嘛
-Cause true market has shocks
-
-所谓的横行线一定是假的被操作的嘛
-The so-called horizontal line must be faked and manipulated
-
-但是我希望的是什么
-However, what I’m hoping is that
-
-跌的时候还是涨的时候都不是咱们战友
-it’s not (happen on) our comrades when it falls or when it rises
-
-是那些有钱的投资机构
-Instead, those are wealthy investment institutions
-
-Date: 11/07/2021
-原视频标题: 喜币的起起伏伏证明其真实
-The ups and downs of HCoin are proof of its truth
-原视频日期：2021/11/05
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1457268294163992581?s=24](https://twitter.com/se1y7cblljselva/status/1457268294163992581?s=24)
-任务编号：KC235（2803）
-视频时间段 : 0:00-0:57
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

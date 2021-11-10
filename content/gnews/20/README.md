@@ -2,28 +2,41 @@
 ---
 
 
-## 东北、内蒙古多地突降特大暴雪，老百姓受灾唯有自救
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1653147/)
+## 有声| 恒大子公司债券利息逾期未付
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653229/)
 
-撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-25.jpg)
-[图片来源](https://news.sina.com.cn/c/2021-11-10/doc-iktzqtyu6530458.shtml)
-
-据“中国新闻周刊”消息，受寒潮影响，11月7日至8日，内蒙古东南部、辽宁中部、吉林西部等地部分地区出现大暴雪或特大暴雪。至8日夜间，内蒙古、东北地区新增积雪厚度达10厘米至20厘米，局地可达40厘米以上。 辽宁省气象台首席预报员周春晓介绍，东北及内蒙古地区，在本轮寒潮过程中，降雪量如此之大，积雪厚度如此之深系多个天气系统迅猛发展，冷暖空气激烈交汇导致的。
-
-去年以来，随着中共末日临近，异常天气和灾害不断。东北，内蒙古过早降雪，大量老百姓的生活甚至生存受到影响，加之当前东北中共病毒疫情加剧，广大老百姓要遭大罪了。
-
-信息来源：
-
-##### [东北、内蒙古多地发生特大暴雪，专家：有可能引发雪灾](https://www.toutiao.com/a7028886471050297893/?tt_from=copy_link&amp;utm_campaign=client_share&amp;app=news_article&amp;utm_source=copy_link&amp;iid=2560110237849416&amp;utm_medium=toutiao_android&amp;use_new_style=1&amp;share_token=7963dce3-aa21-4a1e-85aa-69eb1c67fde1)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-4.jpg)
-# 
+配音：香草山香港部 – 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
+截至11月8日上午，恒大集团子公司景程有限公司（Scenery Journey Ltd）部分美元债券的持有人，尚未收到上周六到期的债券利息。
 
+据了解，景程公司2022年11月到期、票面利率为13%，以及2023年11月到期、票息为13.75%的债券本该在上周六进行半年一次的付息，总金额为8249万美元，但是债券持有人并未如期收到票息。
+
+根据规定，景程公司在星期六之前未兑付债券利息，即启动为期30天的支付宽限期。如果在30天宽限期过后仍未兑付票息，即被视为违约。除此之外，据悉，恒大集团在11月至12月期间，自身也将有3.38亿美元的海外美元债券的票息到期需要支付。
+
+恒大近几个月来，由于销售不畅，大量债务到期日接踵而至，公司现金流严重缺乏。市场担忧，在可见的未来，中共房地产的崩盘将对世界金融市场和经济造成巨大冲击。
+
+文字版原文：[恒大子公司债券利息逾期未付](https://gnews.org/zh-hans/1649581/)
+
+音频处理：喜山必胜Maverick
+
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
