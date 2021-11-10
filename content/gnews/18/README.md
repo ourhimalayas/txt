@@ -2,32 +2,28 @@
 ---
 
 
-## 乔尔·恩比德在COVID-19检测中呈阳性，他将缺席数场比赛
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1652830/)
+## 想靠中共领导人更替来改变西藏境遇，达赖喇嘛又要失望了
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1652877/)
 
-据《https://espn.com/》作者：Tim Bontemps，2021年11月8日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-55.png)
-一个消息来源告诉ESPN的Adrian Wojnarowski，费城76人队的中锋恩比德在周一早上的COVID-19检测中呈阳性。
+#### 撰稿: 东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/11/54028551_303.jpg)[图片来源](https://www.dw.com/zh/%E5%92%8C%E5%B9%B3%E5%92%8C%E8%B0%90%E9%9D%9E%E6%9A%B4%E5%8A%9B%E8%B1%A1%E5%BE%81%E8%BE%BE%E8%B5%96%E5%96%87%E5%98%9B85%E5%AF%BF%E8%BE%B0/a-54066281)
+藏传佛教最高领袖达赖喇嘛十四世10日接受日本媒体采访时表示，中共对香港和新疆维吾尔自治区采取高压政策，“在中共新一代领导人下，形势会发生变化。这是我的感觉”。
 
-恩比德将错过周一对纽约尼克斯的比赛，根据NBA的健康和安全协议，他将至少隔离10天。这意味着恩比德将缺席至少五场比赛，并有可能在下周晚些时候复出，而费城正处于六场客场之旅中，主要是在西海岸。
+这也表明，达赖喇嘛认为，在目前习近平政府的领导下，西藏问题不会取得进展，因为习近平着眼于一个长期的政权。
 
-恩比德是目前处于健康和安全协议中的第四位76人队员，另三位是前锋托比亚斯·哈里斯和后卫马蒂斯·蒂布尔和以赛亚·乔。
-本赛季，在东部领先的76人队的9场比赛中，恩比德平均得到21.4分、9.4个篮板和职业生涯最高的4.0次助攻，他将缺席原定在周一晚上对尼克斯队的比赛。
+达赖喇嘛在流亡的印度，通过网上回应了日本外国记者协会的新闻发布会。 “在西藏自治区和新疆，我们有独特的文化。中国共产党领导人不了解文化多样性，”达赖喇嘛批评道。 他还表示“形势在变”，并表达了政权向年轻一代领导人更替的期待。
 
-随着恩比德的缺席，今年夏天以自由球员身份与费城签约的老牌中锋安德烈·德拉蒙德将取代他在首发阵容中的位置。
+目前，中共正在举行十九届六中全会，旨在为2022年新一届中共领导人选举做准备。
 
-哈里斯在一周前执行了NBA的健康和安全协议，在76人队对阵波特兰开拓者队的比赛开始前不久，他在赛前的球场上进行了锻炼。
+达赖喇嘛的回答意味深长，但鉴于中共镇压西藏的历史，期望中共能主动给予西藏高度自治，达赖喇嘛恐将又一次失望。
 
-原文连接：[https://www.espn.com/nba/story/\_/id/32584227/source-philadelphia-76ers-joel-embiid-tests-positive-covid-19-expected-miss-several-games](https://www.espn.com/nba/story/_/id/32584227/source-philadelphia-76ers-joel-embiid-tests-positive-covid-19-expected-miss-several-games)
+信息源:
 
-翻译：洛杉矶盘古农场 — TrueSky
-校对：洛杉矶盘古农场 — Mike Li
-编辑：洛杉矶盘古农场 — 心照
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[新たな世代で「事態変わる」　ダライ・ラマ、中国指導部に苦言](https://search.yahoo.co.jp/amp/s/www.jiji.com/amp/article%3Fk%3D2021111000880%26g%3Dint%26usqp%3Dmq331AQIKAGwASCAAgM%253D)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

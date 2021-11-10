@@ -15,133 +15,133 @@
 
 ---
 
-### [灭共七剑客之仁者剑&#8211;斯蒂芬·班农](/content/gnews/1/README.md)
+### [塔利班坎大哈阅兵，与中共1949北京阅兵何其相似](/content/gnews/1/README.md)
+ ` G-NEWS TAIWAN`
+
+### [媒体报道英国因新冠病毒住院人数是去年的14倍的假消息](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共已准备普及加密数字人民币](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [本次台湾四大公投已然变质成多数决](/content/gnews/4/README.md)
+ ` G-NEWS TAIWAN`
+
+### [美国议员访台：展现台美紧密关系制约中共威胁](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [为毒疫苗推波助澜的罪恶](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [联邦法院暂停了拜登政府的私人雇主新冠疫苗强制令](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [“善”、“恶”之间见文明](/content/gnews/8/README.md)
+ ` 首尔天池农场`
+
+### [灭共七剑客之仁者剑&#8211;斯蒂芬·班农](/content/gnews/9/README.md)
  ` 波士顿五月花农场`
 
-### [爆料方舟](/content/gnews/2/README.md)
+### [爆料方舟](/content/gnews/10/README.md)
  ` 首尔天池农场`
 
-### [CDC和NIH官员是武毒所功能增强研究合作伙伴](/content/gnews/3/README.md)
+### [拜习会前夕 美延长中国“涉军企业”投资禁令](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [CDC和NIH官员是武毒所功能增强研究合作伙伴](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [11/10/2021 国际财经快讯：美国延长对中共国军工相关公司的证券投资禁令;恒大面临支付1.48 亿到期美元债最后期限](/content/gnews/4/README.md)
+### [11/10/2021 国际财经快讯：美国延长对中共国军工相关公司的证券投资禁令;恒大面临支付1.48 亿到期美元债最后期限](/content/gnews/13/README.md)
  ` 秘密翻译组金融团队`
 
-### [美军在关岛测试“铁穹”系统防备中共巡航导弹](/content/gnews/5/README.md)
+### [美军在关岛测试“铁穹”系统防备中共巡航导弹](/content/gnews/14/README.md)
  ` 日本东京方舟农场`
 
-### [墙内要闻汇编 11月10日](/content/gnews/6/README.md)
+### [墙内要闻汇编 11月10日](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [短视频打造的假面](/content/gnews/7/README.md)
+### [短视频打造的假面](/content/gnews/16/README.md)
  ` 骄子`
 
-### [喜币的起起伏伏证明其真实](/content/gnews/8/README.md)
+### [喜币的起起伏伏证明其真实](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [想靠中共领导人更替来改变西藏境遇，达赖喇嘛又要失望了](/content/gnews/9/README.md)
+### [想靠中共领导人更替来改变西藏境遇，达赖喇嘛又要失望了](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [震惊：大多数疫苗死亡发生在共和党控制的州](/content/gnews/10/README.md)
+### [震惊：大多数疫苗死亡发生在共和党控制的州](/content/gnews/19/README.md)
  ` 澳喜农场`
 
-### [焦点新闻摘要 2021年11月7日](/content/gnews/11/README.md)
+### [焦点新闻摘要 2021年11月7日](/content/gnews/20/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美国参众议员代表团搭乘军机访问台湾](/content/gnews/12/README.md)
+### [美国参众议员代表团搭乘军机访问台湾](/content/gnews/21/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [法国：不再建议30岁以下人士接种莫德纳疫苗](/content/gnews/13/README.md)
+### [法国：不再建议30岁以下人士接种莫德纳疫苗](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [维加诺大主教猛烈抨击教皇方济各推行的病毒“疫苗”](/content/gnews/14/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [欧盟法院证实对谷歌数十亿美元的罚款](/content/gnews/15/README.md)
+### [欧盟法院证实对谷歌数十亿美元的罚款](/content/gnews/23/README.md)
  ` Shuizhuyu`
 
-### [法国正在为第四次病毒流行做准备](/content/gnews/16/README.md)
- ` Shuizhuyu`
-
-### [秘翻在线 :SpaceX太空舱持续往返太空国际空间站](/content/gnews/17/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [乔尔·恩比德在COVID-19检测中呈阳性，他将缺席数场比赛](/content/gnews/18/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [美国各大医院正在发生非常奇怪的事](/content/gnews/19/README.md)
- ` 澳喜农场`
-
-### [中共就美国国会议员访台发表谈话](/content/gnews/20/README.md)
- ` 儒为`
-
-### [中南海的空气能特供吗？](/content/gnews/21/README.md)
+### [中南海的空气能特供吗？](/content/gnews/24/README.md)
  ` 纽约香草山MOS03`
 
-### [战友初心](/content/gnews/22/README.md)
+### [战友初心](/content/gnews/25/README.md)
  ` 首尔天池农场`
 
-### [秘翻在线：拜登政府闻到了强制接种中共病毒疫苗即将失败的味道](/content/gnews/23/README.md)
+### [秘翻在线：拜登政府闻到了强制接种中共病毒疫苗即将失败的味道](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [正道归心](/content/gnews/24/README.md)
+### [正道归心](/content/gnews/27/README.md)
  ` 首尔天池农场`
 
-### [COVID-19 最新情报｜南韩证明 高接种率仍无法病毒共存](/content/gnews/25/README.md)
+### [COVID-19 最新情报｜南韩证明 高接种率仍无法病毒共存](/content/gnews/28/README.md)
  ` G&#124;News TAIWAN`
 
-### [中共国防部回应美议员访台，称“中国必须统一”](/content/gnews/26/README.md)
+### [中共国防部回应美议员访台，称“中国必须统一”](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [谁的命更重要？](/content/gnews/27/README.md)
+### [谁的命更重要？](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [11/10/2021中日财经爆：中共国10月CPI与PPI涨幅创新高，老百姓生活多艰](/content/gnews/28/README.md)
+### [11/10/2021中日财经爆：中共国10月CPI与PPI涨幅创新高，老百姓生活多艰](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [喜美元转款无限制即将开通账户互转喜币理财](/content/gnews/29/README.md)
+### [喜美元转款无限制即将开通账户互转喜币理财](/content/gnews/32/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [台湾前线｜美国防部：军机访台是义务、惯例](/content/gnews/30/README.md)
+### [台湾前线｜美国防部：军机访台是义务、惯例](/content/gnews/33/README.md)
  ` G&#124;News TAIWAN`
 
-### [两党参议员联合提案成立911式委员会调查冠状病毒起源](/content/gnews/31/README.md)
+### [两党参议员联合提案成立911式委员会调查冠状病毒起源](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [“余炜门”，中共生殖器治国何时休？](/content/gnews/32/README.md)
- ` 首尔天池农场`
-
-### [比特币以太币创新高 加密货币市场大涨](/content/gnews/33/README.md)
+### [比特币以太币创新高 加密货币市场大涨](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [国际要闻汇编 11月10日](/content/gnews/34/README.md)
+### [国际要闻汇编 11月10日](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本学者引经据典讲述“经济脱中”的必要性（之一）](/content/gnews/35/README.md)
+### [日本学者引经据典讲述“经济脱中”的必要性（之一）](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国参众议员再度访台，台湾如何真正安全？](/content/gnews/36/README.md)
+### [美国参众议员再度访台，台湾如何真正安全？](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [银河快讯：软银股价因90亿美元回购大涨；索尼台积电合资在日本建厂](/content/gnews/37/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [上海一近百岁老人过世，财产差点被中共收走](/content/gnews/38/README.md)
+### [上海一近百岁老人过世，财产差点被中共收走](/content/gnews/39/README.md)
  ` 澳喜农场`
 
-### [岸田文雄当选日本第101 任首相](/content/gnews/39/README.md)
+### [岸田文雄当选日本第101 任首相](/content/gnews/40/README.md)
  ` 首尔天池农场`
 
-### [五角大楼证实美多名资深议员乘军机访台](/content/gnews/40/README.md)
+### [五角大楼证实美多名资深议员乘军机访台](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [世界对中共国好感骤减，皆因中共自作孽](/content/gnews/41/README.md)
+### [世界对中共国好感骤减，皆因中共自作孽](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [继多家房企评级下调后，美警告中共国房地产风险](/content/gnews/42/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [国际工会组织批评中共和国际奥委会](/content/gnews/43/README.md)
+### [继多家房企评级下调后，美警告中共国房地产风险](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [全网找“鱼尾”](/content/gnews/44/README.md)

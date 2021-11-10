@@ -2,255 +2,33 @@
 ---
 
 
-## 喜美元转款无限制即将开通账户互转喜币理财
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1652698/)
+## 中共国防部回应美议员访台，称“中国必须统一”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1652725/)
 
-[https://gtv.org/video/id=618b330eadfd99590c34ef42](https://gtv.org/video/id=618b330eadfd99590c34ef42)
+#### 作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-16.png)[魏凤和（路透社照片）](https://tnimage.s3.hicloud.net.tw/photos/2021/11/10/1636511014-618b2d26d234e.JPG)
+**中共国防部就美国议员军机访台警告民进党当局不要误判形势，“中国必须统一”。台湾外交部发言人表示，美议员访台是由美国驻台湾协会接待，（美驻台湾大使馆）属于正常美台关系互动。**
 
-你进来以后KYC, 你开了帐号
-Luego de realizar el procedimiento de KYC, abres la cuenta
+据中共国[新华社北京](http://www.news.cn/mrdx/2021-11/10/c_1310301831.htm%0a%0a)11月9日消息称：中共国防部新闻发言人谭克非9日就美国国会议员访问台湾表示坚决反对和强烈谴责外，并没有说，“[美军舰抵高雄之日就是武统台湾之时](https://3g.china.com/act/news/945/20171213/31807476.html)”。而美国参众两院议员抵达台湾进行外交访问是中共明确设定的政治红线。
 
-你钱打多少是不受限制的
-No hay límite por la cantidad de dinero que transfieras
+该消息表示，中共国防部警告民进党当局不要误判形势、铤而走险，[否则只会把台湾带入深重灾难](https://gnews.org/zh-hans/1484695/)。并强调“中国必须统一，也必然统一”。认为任何人都不要低估中共“虚张声势”的坚强决心和意志。共匪军将采取一切必要措施，坚决粉碎任何外部势力干涉和“台独”分裂图谋。
 
-比如说
-Por ejemplo
+- ***延展阅读：***[***中国国防部对美国国会议员访台大发雷霆***](https://www.taiwannews.com.tw/en/news/4340440)
+- ***延展阅读：***[***习近平的帝王梦：拿下台湾已迫在眉睫***](https://gnews.org/zh-hans/1475879/)
 
-海东兄弟开了喜美元帐号
-El hermano Haidong abrió una cuenta de HDO
 
-KYC过了
-Luego que el KYC es aprobado
+美国和欧洲国家近期的一切访台外交举措也正是想要看到中共国共匪军的底线到底在哪里？
 
-刚才一个美国
-Hace rato, un amigo de EE. UU
+另据[新闻周刊](https://www.newsweek.com/senate-house-lawmakers-arrive-taiwan-diplomatic-visit-1647367)消息称，当地时间下午6点30分左右，一架美军C – 40A型飞机从马尼拉起飞，抵达台北松山机场，美参众两院议员于当地时间周二晚抵达台湾进行外交访问。据飞机观测爱好者透漏，“飞机起飞后不久，飞往日本冲绳嘉手纳空军基地。”
 
-摩根家族的某个我们的朋友
-De la familia de Morgan
+据此，台湾外交部发言人江安(Joanne Ou)表示，“此次访问由美国驻台协会(American Institute in Taiwan)台北分会负责协调。”该协会实际上是美国驻台湾的“大使馆”级别，属于正常美台关系互动。
 
-人家的女儿
-Su hija
+2021年11月10日
 
-女婿人家有双国籍
-Su yerno tiene doble nacionalidad
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
 
-人家就可以KYC
-Él pudo realizar el KYC
-
-KYC过了以后
-Luego que esto sea aprobado
-
-刚才他说了
-Él hace rato dijo
-
-我买了这个币
-Compré esta moneda
-人家就买了, 合法啊
-Él lo pudo comprar, de manera legal
-
-最重要的事情
-Y lo más importante
-
-他的一个好朋友
-Su amigo
-
-包括我们的一个朋友
-Incluyendo nuestro amigo
-
-大额钱汇到这个喜美元帐号
-Transfirieron de grandes cantidades de dinero a la cuenta de HDO
-
-喜美元帐号的未来是什么
-¿Cuál es el futuro de la cuenta de HDO?
-
-它连着喜支付呢
-Está vinculada con el H-pay
-
-你买啥都可以
-Puedes comprar cualquier cosa
-
-它是个比信用卡还方便的东西
-Es algo más conveniente que la tarjeta de crédito
-
-手机支付, 刷卡支付
-Pago móvil, pago con tarjeta de crédito
-
-还有一个隔空支付
-Y también está un pago al aire
-
-战友与战友之间也马上就开通
-Entre compañeros luchadores pronto se abrirá también
-
-你的帐号之间也可以互相转
-Al igual se puede transferir entre sus cuentas
-
-那么这个钱
-Entonces, este dinero
-
-你不用在这搁着怎办呢
-Si no lo utilizas aquí, que harás si lo dejas allí
-
-是不是啊
-¿Cierto?
-
-未来给你7%到10%的利息
-En un futuro te dará el 7% a 10% de intereses
-
-拿什么支付呢, 拿喜币支付
-¿Con qué se pagará? A través de HCN
-
-大家记住啊, 这个可牛了
-Todos recuerden, esto es algo muy poderoso
-
-喜币本身就有(升值)
-El HCN en sí puede (reevaluarse)
-
-它是浮动币就增长
-Crece cuando es una moneda flotante
-
-你现在告诉我
-Ahora tú me dices
-
-东弟, 钊颖, 飞飞
-Hermano Dong, Zhaoying, Feifei
-
-你看你们在账上的钱
-Vean el dinero que están en sus cuentas
-
-你想一想啊
-Piensa
-
-现在飞飞家房子
-Ahora la casa de Feifei
-
-可能是150万美元
-Podría ser 1.5 millones de dólares
-
-你把你的房子卖掉
-Vendes tu casa
-
-150万美元就放在了喜美元里边
-Estos 1.5 millones de dólares lo dejas en la cuenta de HDO
-
-7%的喜币给你
-Te dan el 7% de HCN
-
-你拿你在喜币
-Tomas el HCN
-
-拿到钱的50%去租房子去
-Y te llevas el 50% del dinero para alquilar una casa
-
-是你现在住的房子的五倍大
-Y es cinco veces más grande que la que estás viviendo ahora
-
-但你每年都会升值
-Pero se revalúa cada año
-
-美国人没有一个人不卖房的
-No hay ningún estadounidense que no venda su casa
-
-美国人是卖房子换房子
-Ellos la venden y cambian por otra
-
-才是有钱人
-Así es ser rico
-
-只有穷人一住(一辈子)
-Solamente los pobres viven de (por vida) con la misma casa
-
-像中国人说老房子
-Así como dicen los chinos, “casa vieja”
-
-老房子说明你很穷很笨好不好
-Si es una “casa vieja” significa que eres pobre y tonto
-
-所以说这叫理财
-Por eso esto se llama gestión financiera
-
-还有一个, 有喜币的
-Y hay otro, quien tenga el HCN
-
-本身我有喜币, 我就可以抵押贷款
-Yo particularmente tengo HCN, entonces puedo hipotecar
-
-马上就可以做抵押贷款
-De una vez se puede realizar hipotecas
-
-所以有3年期, 5年期, 7年期
-Por eso hay de 3 años, 5 años, 7 años
-
-大家记住, 喜美元一定要善用
-Todos recuerden, deben tomar el buen uso de HDO
-
-然后接下来
-Luego lo que viene
-
-咱们在全球各个地方
-Nosotros en cualquier lado del mundo
-
-任何人
-Cualquier persona
-
-都要去用喜支付
-Deben usar el H-pay
-
-H-pay找客户去
-Busquen clientes que utilicen H-pay
-H-pay找来的客户
-Los clientes que consiguen
-
-马上会公布政策
-Inmediatamente se anunciará la póliza
-
-终生你享有这里边的提成点
-Disfrutarás de la comisión por el resto de tu vida
-
-你搞个几个就赢了
-Serás el ganador si encuentras unos cuantos clientes
-
-第三个, 我告诉大家
-El tercero, debo decirles
-
-从现在开始起
-A partir de este momento
-
-我们农场
-Nuestra finca
-
-马上要把币的事搞明白以后
-Luego de conocer y arreglar bien
-
-调整完
-El asunto de la moneda
-
-我说过了
-Yo había dicho
-
-爆料革命, 灭共事业
-El movimiento de denunciantes y el trabajo de eliminar al Partido Comunista
-
-没有周末, 没有假期
-No hay fin de semana ni vacaciones
-
-* * *
-
-日期：11/08/2021
-原视频标题：喜美元转款无限制即将开通账户互转喜币理财
-El H-Dollar (HDO) y H-Coin (HCN) pronto se abrirá cuentas para realizar transferencias ilimitadas y gestionar operaciones financieras
-原视频日期：11/04/2021
-原视频网址：[https://twitter.com/se1y7cblljselva/status/1456572206360629252?s=24](https://twitter.com/se1y7cblljselva/status/1456572206360629252?s=24)
-任务编号：KC238(2783)
-视频时间段：0:00-2:20
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
