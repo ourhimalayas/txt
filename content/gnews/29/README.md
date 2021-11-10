@@ -2,42 +2,46 @@
 ---
 
 
-## 有声| 为墙内房企吸金的财富企业开始出现兑付危机
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653332/)
+## 有声| 雾霾、寒潮加暴雪，墙内民众叫苦连天
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1653341/)
 
 香草山香港部 – 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在墙内房企美元债爆雷，以恒大为首的房企停工停产，以及A股上市房企4-6成资金流出现负数的背景下，墙内房企相关联的财富公司也遭遇兑付危机。这些财富公司，通过各种金融理财产品来帮助房企吸收资金，开发新的楼盘。然而这种明股实债的吸引资金模式，也正在遇上无法支付利益，甚至只能以房代利的窘境，也就是强制将投资者转化成购房者。
 
-尤其明显的是从去年以来，以泛海、宝能、恒大为代表的企业，特别是恒大财富的“基金销售牌照”的持有主体，并非恒大而是一家叫做深圳市金海九州基金的销售公司，而该公司的股东却跟很大没有任何直接联系。如此错综复杂的关系，恰恰反映出墙内房企爆雷也只是冰山一角，而水下面还没被发现的爆雷已经在暗流涌动，CCP支柱产业的房企持续爆雷，一定会将一大串看上去本身毫无关联的企业被牵扯出来，造成中共国内经济的崩溃。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-文字版原文：[为墙内房企吸金的财富企业开始出现兑付危机](https://gnews.org/zh-hans/1650004/)
+
+
+连日来，中共国中东部地区连续多日出现重度雾霾。随后，一股强冷空气席卷全国，大部分地区一夜间气温骤降，暴雪临门，很多民众生活面临困境。
+
+从11月2日起，中共国中东部地区空气污染日渐严重，截至11月5日7时，京津冀及周边、汾渭平原、长三角等地区，共有85个城市的空气质量出现PM2.5超标污染，29个城市启动重污染天气预警。其间，从11月4日开始，一股寒潮对中共国自西北至东南展开全面侵袭，气温大幅下降，全国大部分地区气温下降8°~10°，局部地区降温达16°以上。6日下午，内蒙古通辽、吉林省长春等地连发多次暴雪红色预警。北方大部分地区从7日开始普降暴雪，多地降雪量突破历史极值，一夜之间进入寒冬。
+
+雾霾、寒潮、暴雪，使墙内百姓生活雪上加霜。
+
+有消息人士称，因为煤炭价格飙涨，还有很多农村居民没有采购足够的煤，如何温暖地度过今年冬天的严寒，将是他们不得不面对且发愁的头等大事。
+
+文字版原文：[雾霾、寒潮加暴雪，墙内民众叫苦连天](https://gnews.org/zh-hans/1649770/)
 
 音频处理：喜山必胜Maverick
 
 发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
 
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场 GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-
-
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
 
  
 
