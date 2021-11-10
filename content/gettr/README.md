@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@realfayfay 11/10/2021 7:02 PM (UTC)`
+
+华盛顿DC农场隆重推出《大实话》节目，为郝海东，叶钊颖夫妇量身打造的访谈节目。以他们的阅历爆料CCP体育界与官场内幕， 用他们的影响力感召更多的人参与爆料革命，建立中国人的民主自由，实现喜马拉雅。<br/>第一期：从喜币上市聊郝海东夫妇的金钱观<br/>时间美东时间11.11.2021周四早上10点(墙内周四晚上11点） <br/>GTV 直播频道：喜马拉雅华盛顿DC站 <br/>Gettr 直播频道：叶钊颖 @yezhaoying
+![img](https://media.gettr.com/group36/origin/2021/11/10/19/02/0fb56b75-6710-fc2d-f86f-fb154148ae8d/out.jpg)
+
+---
+
 `@miles 11/10/2021 7:12 PM (UTC)`
 
 《文贵大直播》宣传片之『历史直播追忆』：“既然已经开始，我们决不妥协；既然已经开始，我们一定要赢！该我们赢了，我们必须赢！”  —— 英国伦敦喜庄园『战鹰影视』出品
@@ -286,13 +295,6 @@ The vaccination disaster has gradually become prominent: The patients in the ICU
 
 11/5/2021 Miles Guo: The CCP’s tyranny has lasted for 70 years, but no one rose to resist it, to expose or to disprove its lies, leading to the unprecedented ignorance of the Chinese people. The babies with COVID-vaccine-induced birth defects and disabilities are wrapped with gauze and smothered to death before being thrown away upon arriving in this world. What’s pathetic is that few parents realize that the COVID vaccines are to blame, while they believe it’s their own faults<br/><br/>11/5/2021 文贵直播：中共横行霸道70年，就是没有人去反抗，去戳穿它，去证明它，让中国人无知到了什么程度；中共疫苗致畸、致残的胎儿一降生即被残忍地缠死抛尸，悲哀的是没有父母认为这是打疫苗的错，都是自己的错<br/>
 ![img](https://media.gettr.com/group34/getter/2021/11/06/11/21/94da3e6b-2c2e-333b-baa6-08197202307a/out.jpg)
-
----
-
-`@miles 11/6/2021 4:52 AM (UTC)`
-
-11/5/2021 Miles Guo: The jabs that the CCP gave to its troops are not COVID vaccines but the antibodies to boost immunity, while the Chinese Lao Baixing are injected with the experimental COVID jabs, and this clearly shows the evil of the CCP<br/><br/>11/5/2021 文贵直播：中共给军方打的不是疫苗而是增强免疫的抗体，而中国老百姓却被打了实验性的冠状病毒疫苗，这体现了中共的邪恶<br/>
-![img](https://media.gettr.com/group20/getter/2021/11/06/04/52/d4f55fce-bf7d-24e3-8dd0-fb2007b20a14/out.jpg)
 
 ---
 
