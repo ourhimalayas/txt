@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/10/2021 9:26 PM (UTC)`
+
+11月10号尊敬的战友们好……你们健身了吗？战友们有钱了是不是就不应该健身了呢？
+![img](https://media.gettr.com/group47/getter/2021/11/10/21/26/64112f45-74e4-a0aa-2f47-e9cadbb8d21e/out.jpg)
+
+---
+
 `@miles 11/10/2021 8:50 PM (UTC)`
 
 11/10/2021 Miles Guo: The internal report from the 6th Plenary Session revealed the so-called “cultural survey” conducted by the CCP. The survey results show that the Chinese people have been rated as the most unpopular in the world for 17 consecutive months and are faced with grave situations such as exclusion of the Chinese, and anti-Chinese sentiment and hatred. The Whistleblowers’ Movement and the New Federal State of China only seeks to take down the CCP, and we’re not anti-China/Chinese<br/><br/>11/10/2021 文贵直播：中共六中全会内部报告惊爆中共所谓的“文化调查”，结果显示中国人连续17个月被列为全球最不受欢迎的人，面临排华、反华、厌华的不利局面。爆料革命、新中国联邦只灭共，不反华。<br/>
@@ -287,14 +294,6 @@ The vaccination disaster has gradually become prominent: The patients in the ICU
 
 11-6：一切都已经开始！【美国🇺🇸联邦第五上诉法院发布命令暂时停止败登的疫苗强制令。败登政府必须在11月8日下午5点前回应法院对疫苗强制令提出的质疑。】
 ![img](https://media.gettr.com/group34/getter/2021/11/06/20/56/779af051-ec21-88f7-1c85-6ba6c3ba09e6/c574f25cc617cbda260910ca6394a96a.jpg)
-
----
-
-`@miles 11/6/2021 5:31 PM (UTC)`
-
-@gfashion @DDNYC 
-> `@gfashion 11/6/2021 12:43 PM (UTC)`<br/>Rock your sole…
-![img](https://media.gettr.com/group38/getter/2021/11/06/12/43/6f6105c1-d99e-62da-cc02-3fde06bd8bcb/cd2918c9da3db3007b252e8e329f96f6.jpg)
 
 ---
 
