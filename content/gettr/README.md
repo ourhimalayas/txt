@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/10/2021 1:16 PM (UTC)`
+
+...
+![img](https://media.gettr.com/group14/origin/2021/11/10/11/f18a71e7-27e1-0c14-baa4-168a02c4757e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 11/10/2021 12:03 AM (UTC)`
 
 在中共给开始给孩子打疫苗后，许多家长反映，他们的孩子身上已开始出现疫苗不良反应，例如头疼、恶心、肚子疼、发烧、甚至昏睡不醒，间歇性失明等等。<br/><br/>After the CCP started to jab the kids, a few parents report the adverse effects are emerging among their children, such as headache, nausea, stomachache, fever, even couldn't be waked up, intermittent blind , and so on <br/>
@@ -286,13 +293,6 @@ The vaccination disaster has gradually become prominent: The patients in the ICU
 
 11/5/2021 Miles Guo: In the hospitals in Beijing, there are at least 20,000 people who died abruptly and 70,000 people diagnosed with cancer or terminal cancer in the past month; Beijing’s garbage dump ended up being the crematorium; facing the COVID vaccine disaster, the CCP is telling a big lie!<br/><br/>11/5/2021 文贵直播：近一个月在北京医院至少有2万人猝死，7万人患癌症或癌症晚期；北京的垃圾场沦为火葬场；在疫苗灾难面前，中共却撒下弥天大谎！<br/>
 ![img](https://media.gettr.com/group6/getter/2021/11/06/04/47/d44e330b-4fa7-e4fc-b67c-24621c147848/out.jpg)
-
----
-
-`@miles 11/6/2021 3:08 AM (UTC)`
-
-11/5/2021 Miles Guo: The biggest enemy of our New Federal State of China is the ignorance the CCP instilled in the minds of the Chinese people; Meng Jianzhu has slept with numerous people and their daughters, mothers and even grandmothers; Kang Jie is even more evil than her husband, Zhang Gaoli. This is the biggest wickedness of the CCP’s system!<br/><br/>11/5/2021 文贵直播： 中共给中国人灌输的无知是我们新中国联邦最大的敌人；孟建柱以延年益寿的名义睡了无数家庭的三代人；张高丽的夫人康洁比他更邪恶，这是中共体制的大恶！<br/>
-![img](https://media.gettr.com/group7/getter/2021/11/06/03/08/868707b4-5d31-e6d4-c7f1-ac0044d3551a/out.jpg)
 
 ---
 
