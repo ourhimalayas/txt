@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/10/2021 12:03 AM (UTC)`
+
+在中共给开始给孩子打疫苗后，许多家长反映，他们的孩子身上已开始出现疫苗不良反应，例如头疼、恶心、肚子疼、发烧、甚至昏睡不醒，间歇性失明等等。<br/><br/>After the CCP started to jab the kids, a few parents report the adverse effects are emerging among their children, such as headache, nausea, stomachache, fever, even couldn't be waked up, intermittent blind , and so on <br/>
+![img](https://media.gettr.com/group41/getter/2021/11/10/00/03/21e52fe1-cf25-f50e-8e36-5b77b1e2f30e/out.jpg)
+
+---
+
+`@miles 11/9/2021 11:55 PM (UTC)`
+
+英国殡仪馆总监：“现在年轻人已经接种了疫苗，我一口气就处理了12例年轻死者” 。“我还在停尸房的冰柜里看到了很多新生婴儿”。“数量非常大...一家医院就有大约30个”。<br/><br/>A British funeral director: “And with younger people, they're now vaccinated. And I had about 12 in one go”. “ And what I've seen is a lot of newborn babies in the fridges in the mortuaries.” “They're really high...about 30 in one hospital”<br/>
+![img](https://media.gettr.com/group6/getter/2021/11/09/23/55/0ba22971-fadf-394f-8d58-545723d04bba/out.jpg)
+
+---
+
 `@miles 11/9/2021 11:41 PM (UTC)`
 
 11月9号：我得乖乖嘞，这个提现十万美元意义之深远，就是改变世界的金融系统的又一个开始！这个世界很快就没有人再需要信用卡．支票．银行帐号，实现真正的财富的自由．和绝对的财富的隐私和保密．安全，有尊严的享受自己创造的财富，一切都已经开始！
@@ -279,20 +293,6 @@ The vaccination disaster has gradually become prominent: The patients in the ICU
 
 11/5/2021 Miles Guo: The biggest enemy of our New Federal State of China is the ignorance the CCP instilled in the minds of the Chinese people; Meng Jianzhu has slept with numerous people and their daughters, mothers and even grandmothers; Kang Jie is even more evil than her husband, Zhang Gaoli. This is the biggest wickedness of the CCP’s system!<br/><br/>11/5/2021 文贵直播： 中共给中国人灌输的无知是我们新中国联邦最大的敌人；孟建柱以延年益寿的名义睡了无数家庭的三代人；张高丽的夫人康洁比他更邪恶，这是中共体制的大恶！<br/>
 ![img](https://media.gettr.com/group7/getter/2021/11/06/03/08/868707b4-5d31-e6d4-c7f1-ac0044d3551a/out.jpg)
-
----
-
-`@miles 11/6/2021 2:07 AM (UTC)`
-
-11/5/2021 Miles Guo: The CCP failed to stop the launch of the Himalaya Coin in various countries, and more than 1,000 financial institutions have opened accounts at Himalaya Exchange. The CCP concludes that “the Himalaya Coin has triumphed over the Communist China”.<br/><br/>11/5/2021 文贵直播： 中共在各国阻止喜币上市的行动彻底失败，1000多家金融机构已入驻喜交易所；中共的结论是喜币已成功达到“一币赢一国“！<br/>
-![img](https://media.gettr.com/group27/getter/2021/11/06/02/07/d8097fd2-5726-f45d-9514-4e243093e9d4/out.jpg)
-
----
-
-`@miles 11/5/2021 11:51 PM (UTC)`
-
-在 GETTR 上加入我的直播。
-![img](https://media.gettr.com/group1/getter/2021/10/23/19/bef325e0-a7dd-eef4-f1c5-6977a36aeaf7/7f87f676c946650f527b3506087be38c.jpeg)
 
 ---
 
