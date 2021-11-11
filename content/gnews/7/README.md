@@ -2,39 +2,43 @@
 ---
 
 
-## 波音公司承认对埃塞俄比亚航空公司737 Max坠毁事件负责
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1654809/)
+## 澳大利亚将给12岁以下儿童接种莫德纳疫苗
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1654864/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Boeing-737-MAX.jpg)
-
-
-
-图片来源：www.fierceelectronics.com
+#### 翻译：Lish
+编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5823-8.jpg)图片来源：Healthline & Reuters
 
 
-#### 编译：小红帽
+11月10日，澳洲治疗用品管理局（TGA）已经宣布莫德纳疫苗已被授予临时认定，6-11岁的儿童将很快就会接种这款疫苗。
 
-波音公司承认对2019年3月埃塞俄比亚航空公司302号航班的坠毁事件负有责任。在该事件中，157名乘客和机组人员死亡。
+如果获得批准，SPIKEVAX可能成为澳大利亚首款可用于12岁以下儿童的疫苗。
 
-此举是在向美国芝加哥地方法院提交的一份文件中提出的，以回应受害者家属的诉讼。
+【备注：SPIKEVAX是莫德纳疫苗德另一个命名。】
 
-这架几乎全新的波音737 Max刚刚从亚的斯亚贝巴起飞，飞往肯尼亚的内罗毕，当时飞行员对飞机失去了控制。
+TGA说，这一决定是基于在儿童中使用该疫苗的最新临床数据(支持)，以及中共病毒对儿童学校教育的（不利）影响。
 
-五个月前，另一架737 Max在离开印度尼西亚首都雅加达后不久坠落在爪哇海。狮航610号航班上的189人全部遇难。
+卫生当局在一份声明中写道，“在作出给予莫德纳疫苗临时裁定决定时，TGA考虑了计划提交与儿童使用相关全面临床数据的证据”。
 
-这两起悲剧的原因是一个软件系统发生了致命的故障，使飞行员拯救飞机的努力落空。
+“TGA还考虑了儿童的感染情况以及新冠对儿童参与学校和体育活动的影响”，“莫德纳在澳大利亚已经提交了临时批准的数据，TGA正在评估SPIKEVAX疫苗在6至11岁儿童中的使用”。
 
-这归咎于被称为“机动特性增强系统”（MCAS）的软件，该软件的安装是因为737飞机的最新型号有不寻常的结构–大型发动机安装得更靠前。
+在TGA的公告之前，其他国家却发布了一些限制莫德纳疫苗在儿童中使用的公告。
 
-MCAS旨在 “提供稳定的操纵质量”。但是，主要的安全监管机构、美国联邦航空管理局（FAA）和购买飞机的航空公司都没有充分了解这个新系统。
+**法国和瑞典已经宣布进一步限制莫德纳疫苗在年轻人中的使用，并取消了对****30****岁以下人群的推荐。两国政府的决定是因为莫德纳疫苗对年轻人的心脏造成相关问题的风险相对较高。**
 
-在这两起坠机事件中，来自一个有故障的传感器的错误数据，导致软件在飞行员努力控制时反复向下推飞机的机头。
+**辉瑞疫苗也在上个月被****TGA****授予****12****岁以下儿童的临时认定**，并且看起来将在莫德纳疫苗之前获得全面批准。
 
-**参考新闻：** [Boeing admits liability for Ethiopian Airlines 737 Max crash (msn.com)](https://www.msn.com/en-au/lifestyle/travel/boeing-admits-liability-for-ethiopian-airlines-737-max-crash/ar-AAQyByy?ocid=msedgntp)
+首席医疗官保罗·凯利（Paul Kelly）说：“TGA已经收到了辉瑞公司的建议，对该年龄组疫苗接种的申请过程正在进行中。”
 
-***发布：小红帽***
+“这是一个真正重要的因素，将在未来几周和年底前推广开来。”
+
+澳大利亚儿童在最近一波中共病毒疫情中受到的打击尤其严重。该病毒的传播在小学里很常见，那里的大部分学生都在12岁以下，因此还没有资格接种任何中共病毒疫苗。
+
+如果（这次）莫德纳被TGA批准，1-6年级的儿童应该都有资格接种该疫苗。
+
+原文链接：[TGA grants provisional determination for Moderna jab for children under 12 | news.com.au — Australia’s leading news site](https://www.news.com.au/world/coronavirus/australia/tga-grants-provisional-determination-for-moderna-jab-for-children-under-12/news-story/a6d44efc230e6b86ceb1ef58a06779e4)
+
+发布：文泓
 
 **更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena

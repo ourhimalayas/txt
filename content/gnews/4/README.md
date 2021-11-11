@@ -2,47 +2,30 @@
 ---
 
 
-## 中国共产党放毒杀害全人类，全人类皆有权力得而诛之
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1654841/)
+## 中共六中全会强力维稳，异议人士被迫离京行动受限
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1654897/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/20210619173458449jpgwap_副本.jpg)
-据[2021年11月10日 文贵大直播：中共六中全会内部报告：中国癌症发病人数第一，与病毒相关性死亡1370万人；香港外籍人士撤离历史新高，大量外汇移出，香港在6个月内成为金融空港；对病毒真相的掩盖造成医疗行业医务人员流失短缺；六中全会就是中共内斗，抓人，习一神要做2件事；](https://gtv.org/video/id=618bc611e7e7703792324e25)时间点1：12：07——
+![上海举行的中国国际进出口展销会媒体中心的多面电视屏幕正在播放中国领导人习近平的讲话。（2021年11月4日）](https://gdb.voanews.com/14A20770-E17A-439D-96D5-CE16FE1C5FCF_cx0_cy4_cw0_w1023_r1_s.jpg)*上海举行的中国国际进出口展销会媒体中心的多面电视屏幕正在播放中国领导人习近平的讲话。（2021年11月4日）*
+据美国之音11月11日报道，中共19届六中全会即将于11日落幕，会中通过的“历史决议”可望让中共国国家主席习近平的权势再攀高峰。就在习近平炮制“新毛主义”的同时，北京当局依照惯例在会议期间升级维稳，多名异议人士遭拦截、被迫返乡，网路言论也受到打压。部分观察人士示警，中共国对民众的严密监控恐将成为常态。
 
-**郭文贵先生：**那个国防部的哥们说他说你建议我该怎么办，我说你该弄一导弹直接导到京西宾馆去，而且不能光把那个楼给它炸塌，我说都得把那个楼直接钻地千尺把它炸成了灰，你知道我为什么敢这么说吗？你知道为什么吗？他当时就傻了，他说这是不合法律的，不合法的。
+六中全会是中共自1949年建政以来第三次推出的特殊历史决议。会议期间北京部署特别维稳行动，全国各地也在加强警戒，因为中共明年将举办北京冬奥会并召开二十大。这种高压状态很可能会持续下去，成为一个常态。
 
-（郭先生拍案回应）我当时我问他，在没有病毒之前，你动任何一个中共官员你都是犯罪，你都要受到审判，冠状病毒之后全人类都有权力杀之，都是正义的！
+中共对内强权监管百姓，控制百姓的一举一动，甚至言谈思维。对外吹嘘大国自信。真的大国自信就打开国门，推倒防火墙，让百姓畅快淋漓地接触外面的世界。中共在灭亡之前，肯定会加强管控的强度和力度。中共的疯狂就是其灭亡的前奏。
 
-我说的有错吗？它杀了人类现在官方WHO是500万人，加上中国人1800万人！没有权力杀他吗？！中国7000万人患病难道没有权力杀他吗？！是吧？炸弹炸你那是便宜你了！
+新闻参考链接：[https://www.voachinese.com/a/China-tries-to-silence-activists-as-CCP-Central-Committee-holds-sixth-plenum-in-Beijing-20211111/6307785.html](https://www.voachinese.com/a/China-tries-to-silence-activists-as-CCP-Central-Committee-holds-sixth-plenum-in-Beijing-20211111/6307785.html)
 
-我说我没有这个权力，我从来我们爆料革命不搞恐怖，但是我认为为了全人类的正义，任何国家都有权力把这帮王八蛋从地平上铲下去，你杀了全人类500万人，你不给个说法，你不让调查，中国人死多少人大家不知道，我们都是中国人呐！这已经超过纳粹了！
+编辑：胖丁
 
-你还在让全世界推广疫苗，你还让中国人五到十一岁的孩子打疫苗，昨天我们一个战友给我发信息，七哥，光我这收到通知，我医院已经打了300多，马上有1500个已经是预约好的，那肯定要打，他受不了，就是我们战友，他肯定在这看直播呢。
+* * *
 
-另外一个战友是上海的，他说七哥经我医院已经打了2500人，马上有个7000人的安排，七哥心都在流血呀！
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-（以下暂略）
 
-撰稿：喜马拉雅的肉夹馍；
+编辑：【英国伦敦喜庄园编辑部】
 
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

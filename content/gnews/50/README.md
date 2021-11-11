@@ -2,24 +2,22 @@
 ---
 
 
-## 两党参议员联合提案成立911式委员会调查冠状病毒起源
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1652655/)
+## 台湾前线｜美国防部：军机访台是义务、惯例
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1652690/)
 
-#### 撰稿：彩虹      
+台灣寶島農場 港台前線關注組 / 發佈時間｜10/11/2021
+![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-07-14.32.38.jpeg)
+**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
 
-#### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-65.jpg)图片来源：Axios
-11月9日，《新闻极限》报道，一个由参议员组成的跨党派小组提出方案，呼吁成立911式委员会，以调查冠状病毒的起源、政府的反应以及防止此类灾难的方法。
+9日，美国国会议员、军方人士共13人搭乘军机访台。对此，中共要求美方停止挑衅，并派出解放军于台海战备巡逻。美方则认为，访台是台湾关系法的义务，访问团使用军机也不罕见，并且今年搭乘军机访台已经是第二次了。
 
-共同提出该法案的成员包括：堪萨斯的共和党参议员罗杰·马歇尔（Roger Marshall），爱荷华州的共和党参议员乔尼·恩斯特（Joni Ernst），加利福尼亚州的民主党参议员黛安·费恩斯坦（Dianne Feinstein）和纽约州的民主党参议员克尔斯滕·吉利布兰德（Kirsten Gillibrand）。
+台湾总统府、美国驻台协会（AIT）并未回应美官员访台一事。
 
-领导该小组的马歇尔在一份声明中说，这样的调查委员会“早就该成立了”。
+美方人员访台时，韩国产业通商资源部长官文胜煜于当地时间9日访问美国，与商务部长吉娜．雷蒙多针对“半导体供应短缺问题”进行了约40分钟的会晤。会晤主要目的要求三星提供晶片供应相关资料，台湾方面台积电已经按照美国商务部要求提供资料。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/港台前線-（TW）-2-1.jpg)
+* * *
 
-恩斯特参议员表示，调查该病毒是自然起源还是从武汉病毒研究所泄露出来的非常重要。他说：“将近两年前，在中国武汉爆发的新冠病毒（COVID-19）疫情使世界陷入了前所未有的封锁状态。时至今日，由于中国政府拒绝与国际事实调查工作的努力充分合作，从而该大流行病的起源仍然是个谜。美国人民和世界应该得到答案，这就是为什么我很自豪地与我的跨党派同事一起创建一个两党委员会，以一劳永逸地查清该大流行病的真相，并确保它不再发生。”
-
-**新闻来源**
-
-[Bipartisan Group Calls for 9/11-Style Panel to Probe COVID Origin](https://www.newsmax.com/newsfront/commission-covid-origin-roger-marshall/2021/11/09/id/1043944/)
+来源｜[联合新闻网](https://udn.com/news/story/6811/5880668?from=udn_mobile_indexrecommend)、[Newtalk新闻](https://newtalk.tw/news/view/2021-11-10/664131)
 
  
 

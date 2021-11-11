@@ -2,23 +2,36 @@
 ---
 
 
-## 文贵爆料 10/11: 每日可提现10万，喜币再展锋芒
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1653707/)
+## 拜登解除旅行禁令，或将带来全美疫情新变数
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653905/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-10-at-11.07.14-AM.png)
-喜币正用自身不断完善的功能，击碎一切谎言。在11月10日的大直播中郭文贵先生说，喜交所二十四小时取款上限已经变成了十万美金，并让战友在线演示。
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月8日起，拜登政府向三十多个国家的旅客重新开放边境，结束了将近20个月的国际旅行限制。大量涌入边境的人潮，将为美国疫情带来不确定性。
 
-没有一个交易所一开始就以万为计数让你提现，也没有一个虚拟货币交易所可以每日提现10万，我们是第一个。如果你有耐心到明年5月份，你会看到更多想象不到的事。
+根据规定，完全接种病毒疫苗的国际旅客将被允许进入美国，未接种疫苗的美国人和未成年人不受此限制，但必须提交旅行前一天的核算检测呈阴性的证明。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-5.jpg)
+根据相关报道，就在拜登政府旅行政策生效的当日，欧洲多地机场赴美航班爆满，纽约上州水牛城的和平桥边境检查站，有大批加拿大人驾车蜂拥进入美国。
 
-战友们说，这就是给那些不信者的一个响亮的大耳光，这是真实的事。是爱，信不信？这个人生的机遇，真是老天爷安排好了。“七哥”在两天前说取款上限将变成了十万美金，四十八小时之内就达到这个限额是不可思议的，因为关键是你提现这个系统，不是一个机构说了算的，你要和银行做一个非常好的对接，银行也不能够找你麻烦，你才能够，对吧？每个用户每天都能提十万，那么多用户，那大家都在提的话，这是非常大的金流，银行就可能会做出更多的审核，就让这个时间变得很慢。所以我真的是特别感慨这一件事，它反映了我们整个喜联储强大的金融实力。
-
-郭先生说，不用等太长，三周之后就有关于喜币更好的消息。
+有知情人士指出，在病毒和疫苗真相被掩盖的情况下，拜登政府放开边境旅游的举措，可能导致全美新一波病毒感染高峰。
 
 参考链接：
+1. [拜登解除旅行禁令，或将带来全美疫情新变数](http://i.carnoc.com/detail/572637)
+2. [拜登解除旅行禁令，或将带来全美疫情新变数](https://www.dw.com/zh/20%E4%B8%AA%E6%9C%88%E5%90%8E%E9%87%8D%E5%BC%80%E8%BE%B9%E5%A2%83-%E7%BE%8E%E9%A2%84%E8%AE%A1%E6%B6%8C%E7%8E%B0%E6%97%85%E5%AE%A2%E6%BD%AE/a-59750347)
 
-[2021年11月10日 文贵大直播](https://gettr.com/streaming/pgku1i0993)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
+总编：木白
+编辑：木白
+校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,45 +2,34 @@
 ---
 
 
-## 德国报纸强调最近有大量足球运动员不寻常倒下
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1654760/)
+## 国际要闻汇编11月11日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1654812/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+素材：东京樱花团丨GNEWS组
+![](https://lh3.googleusercontent.com/GVmKukW3FxrJL92gEMtWCgXfG5OfOAaZiLfqjGbMvc9iunzAfZ5o_9vO3SjtVEvuWIN5ZgVa2z20kEWMkhFZ_clEP2QoEpCLyxFwyuz_k-s7VFQvtEHkVTypCZ98vgd69O5SOpBo)[图片来源](https://www.voachinese.com/a/white-house-says-900k-us-children-get-first-covid-19-shot-20211110/6308113.html)
+1、[**90万美国儿童已接种第一剂新冠疫苗**](https://www.voachinese.com/a/white-house-says-900k-us-children-get-first-covid-19-shot-20211110/6308113.html)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/d66c39006dc935f6e751671f57ed2a08.jpg)
+白宫COVID-19对应团队周三(10日)报告说，在三天的行动之后，美国的儿童疫苗接种项目已经为5到11岁的儿童接种了90万剂第一剂疫苗，还有70万儿童已经在全美各地的药店进行了预约。美国各地有两万个儿童疫苗接种站点。对应团队协调员杰夫·齐恩茨对媒体说，自从7月以来，强制令把美国的总体疫苗接种率提高了40%。
 
+2、[**美国参众议员访问团会晤蔡英文总统**](https://www.voachinese.com/a/Republicans-meet-Taiwan-president-as-GOP-pushes-for-strengthening-defenses-20211110/6307736.html)
 
+正在台湾访问的美国共和党籍参众议员代表团周三（10日）上午前往台北的总统府，会晤蔡英文总统以及台湾的高层国安官员。台湾的中国时报报道说，双方就台湾国防部署和自我防卫状况交换了意见。台湾公共电视台报道说，美国参众议员代表团除了会晤蔡英文外，还会与国安会以及国防部的高层官员举行会谈。会谈的议题包括双边关系、贸易以及国家安全。这是美国国会议员今年第二次搭乘军机访问台湾。
 
-图片来源：AFP/Pau BARRENA
+3、[**两岸关系“脆弱” 达赖喇嘛现时不考虑访台**](https://www.voachinese.com/a/dalai-lama-taiwan-china-20211110/6307299.html)
 
+达赖喇嘛周三（10日）在印度达兰萨拉通过视讯接受日本外国记者俱乐部组织的集体采访时被问到他何时会访问台湾时说，鉴于现时两岸关系“相当脆弱”，他不便访问台湾，以免造成当地的政治困境。这位备受尊重的宗教领袖说，他可以利用现代通信技术，以视讯等方式与台湾的兄弟姐妹们联系，也希望与中国大陆的兄弟姐妹们沟通。
 
-#### 编译：小红帽
+4、[**美评估中国第一阶段贸易协议落实情况取得进展 **](https://www.voachinese.com/a/US-china-trade-20211110/6308271.html)
 
-德国报纸《柏林日报》发表了一份报告，试图回答为什么 “最近有异常多的职业和业余足球运动员倒下”。
+美国贸易代表戴琪周三（10日）表示，就中国对第一阶段贸易协议落实情况的会谈正在取得进展 。她说，拜登政府旨在让中国对2020年1月签署的为期两年的“第一阶段”贸易协议负责，并正在评估中国的表现。数据显示，中国远落后于它在协议中的承诺，即在2020年和2021年期间把对美国商品的采购量在2017年的水平上增加2000亿美元。中国到9月30日仅达到目标的60%。此外，戴琪还表态称，拜登政府至少在近期不会取消对中国商品加征的关税。
 
-报道的标题是 “足球中令人费解的心脏疾病”，首先强调了巴塞罗那俱乐部的塞尔吉奥·阿圭罗（Sergio Agüero）的案例，这位33岁的前锋最近在一场比赛中因头晕和呼吸困难而不得不在41分钟后退出比赛。
+5、[**遭欧盟指控垄断重罚24亿欧元 Google上诉败诉 **](https://www.aboluowang.com/2021/1111/1670375.html)
 
-文章列举了最近大量的足球运动员出现心脏问题或在球场上晕倒的案例，在某些情况下导致了死亡。
+欧盟执行委员会2017年指控Google滥用搜寻引擎优势地位，以反垄断法对Google祭出24亿欧元罚金。10日，欧盟普通法院指出，Google透过搜寻结果的排序顺位，偏袒旗下比价服务，“背离正当竞争”，驳回Google上诉，维持裁罚。谷歌仍可上诉至欧盟的最高法院欧洲法院寻求最终定夺。
 
-正如我们之前强调的，其他职业运动员最近也遭遇了类似的健康问题，包括24岁的斯洛伐克曲棍球运动员鲍里斯·萨德基（Boris Sádecký），他在上周五的一场比赛中在冰上摔倒后不幸身亡。
-
-28岁的健美运动员杰克·卡兹马雷克 （Jake Kazmarek）也在接种中共病毒（COVID-19）疫苗四天后 “意外”死亡。
-
-《柏林日报》的文章没有猜测中共病毒疫苗的反应是否与倒地和心脏问题的发生有任何关系。
-
-然而，文章确实指出，“心肌炎”可以 “在普通病毒感染的过程中发生”，并导致 “危及生命的心律失常”。
-
-**参考新闻：**[German Newspaper Highlights “Unusually Large” Number of Soccer Players Who Have Collapsed Recently – Summit News](https://summit.news/2021/11/09/german-newspaper-highlights-unusually-large-number-of-soccer-players-who-have-collapsed-recently/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团 / 文小白
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
