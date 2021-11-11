@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/11/2021 10:58 PM (UTC)`
+
+A young man is dying after taking the first dose of the Covid vaccine. He’s dying, unconscious and not breathing<br/><br/>一位年轻男子在接种第一针疫苗后濒临死亡，不省人世，没有呼吸。<br/>
+![img](https://media.gettr.com/group32/getter/2021/11/11/22/58/b29e49df-6d18-3875-6b6b-20a290b8d95a/out.jpg)
+
+---
+
 `@miles 11/11/2021 10:48 PM (UTC)`
 
 一位父亲22岁的儿子因严重的中共病毒疫苗不良反应不得不叫救护车：高烧，几乎不能行走，胸部灼烧，超级虚弱。因此他呼吁应立即停止打疫苗。<br/><br/>A dad’s 22-year-old son had to call an ambulance due to severe adverse effects of the Covid vaccine: high fever, could barely walk, chest feels on fire, super weak, so he calls on to stop the vaccine right now
@@ -285,13 +292,6 @@ The vaccination disaster has gradually become prominent: The patients in the ICU
 
 11/7/2021 Miles Guo: The charm of the people of the NFSC is our commitment to truth and that we are faithful and taking down the CCP; the fellow fighters with conscience are everywhere, and they will surely be on the frontline of destroying the CCP; We will make our slogan “everything is just beginning” echo loudly over the Tiananmen Square, eradicate the fake, ugly, and evil of the CCP, and let the fellow fighters be the only one to enjoy the sceneries at the peak of the humanity<br/><br/>11/7/2021 文贵直播：新中国联邦人的魅力在于唯真不破、有信仰和灭共；有良知的战友无处不在，他们必将冲在灭共第一线；我们要让“一切都是刚刚开始”响彻天安门广场，抹平中共的假丑恶，并让战友们独享世界上最高的风光！<br/>
 ![img](https://media.gettr.com/group25/getter/2021/11/08/08/13/97abb10d-2734-cf83-dc45-28c824c4273c/out.jpg)
-
----
-
-`@miles 11/8/2021 6:06 AM (UTC)`
-
-11/7/2021 Miles Guo: The CCP is now increasing its infiltration to us and has launched insane cyber attacks on the Himalaya Exchange. Fellow fighters should keep an eye on anything suspicious<br/><br/>11/7/2021 文贵直播：目前中共正加大渗透，并对喜联储进行了疯狂的黑客攻击，面对风吹草动，战友们要睁大眼睛<br/>
-![img](https://media.gettr.com/group44/getter/2021/11/08/06/06/9775dfdc-61f2-7d0b-63e7-70c41e8b6772/out.jpg)
 
 ---
 
