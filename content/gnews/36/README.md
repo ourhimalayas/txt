@@ -2,41 +2,48 @@
 ---
 
 
-## 远离比注射疫苗更毒的口服疫苗！
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1654808/)
+## 不仅仅是中共国的百姓要吃草，美国百姓也面临巨大的物价飞涨
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1654903/)
 
-作者：纽约香草山农场健身部 – 幸福鸟
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月10日七哥在大直播中披露了在欧洲的科学家透露的关于口服疫苗的内幕。口服药是当年用于对付艾滋病，性病，以及非洲的痢疾、霍乱的药方。它是激素，连续吃几天脖子就会跟脑袋一样粗。其危害对癌症患者或曾经做过手术的人尤其巨大。它可能会严重诱发心脏病，特别是对有糖尿病病史的患者来说，极其危险。
+作者：香草山金融部 – 闲聊钱币
 
-![全球首款新冠口服疫苗進臨床 以色列Oravax一期試驗8月啟動- 環球生技](https://d3gjxtgqyywct8.cloudfront.net/o2o/image/ae69f139-3cff-46b1-9815-f097b9bd3cc4.jpg)
 
-看来，最近被炒得沸沸扬扬的口服疫苗甚至比注射疫苗更加可怕！归纳起来主要有以下两点：
 
-1.它是口服疫苗，不像注射疫苗一样直接进入血液，造成血管堵塞，导致心肌炎、心包炎、脑梗等等。它是通过服用而进入胃部，分解以后直接影响神经系统，然后进入血液。它的副作用是慢慢产生的。它不仅将对人的神经和血液循环系统、消化系统造成毁灭性伤害，而且还在不知不觉中就让人患心梗、脑梗、癌症、以及其它慢性病。口服疫苗何其歹毒！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
 
-2.更容易通过药监局的审查和蒙蔽民众！阴险狡猾的无良疫苗制造商犹如白骨精一般千方百计地变换花样来谋财害命！可是他们难逃七哥的火眼精金，邪恶和丑恶的白骨精们在七哥以及跟随七哥的有良知的科学家持有的照妖镜里原形毕露，无处遁形！
 
-成千上万个跟随七哥的战友们将不遗余力地向家人，朋友以及世界传播真相，从而让大家远离口服疫苗。新中国联邦将成为邪恶的CCP以及黑暗势力的掘墓人，成为照亮世界的希望的灯塔！
 
-参照：[https://gtv.org/video/id=618bc611e7e7703792324e25](https://gtv.org/video/id=618bc611e7e7703792324e25)
+据 Kitco News Bites, 10月份美国消费者价格指数升至6.2%–这是近30年的最高值。美联储试图说服人们通胀只是暂时性的，但市场已经不再相信这些敷衍之词。
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/904371534930534400/Screen_Shot_2021-10-31_at_10.05.40_PM.png)
+作为对通胀数据的回应，周三，黄金跳涨近40美元。12月Comex期货最后交易价格为1,867.50美元，上涨2%。另一方面，随着风险厌恶情绪的蔓延，股票也出现下滑。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-7.jpg)
+能源、住房和食品，这些老百性日常必不可少的商品的上涨构成了10月份物价的主要驱动力。汽油价格飙升6.1%，食品比一年前上涨了5.3%，燃油的涨幅最大，比上个月增长了12.3%，电费上涨了1.8%。住房，这个不被记入通胀指数的商品比上年增长20%。
 
-**校对/发稿：童谣**
+美国财政部长珍妮特-耶伦(Janet Yellen)周二试图安抚市场，称通胀不会持续。耶伦还说，如果需要，美联储也随时准备采取行动，以防止1970年代式的通货膨胀。
+
+然而，经济学家们现在不排除通胀率在短期内上升到年度7%的可能性。
+
+如果无节制的印钞可以解决一切经济问题，那么一次又一次的债务上限危机又从何而来呢？老百姓的钱袋子最是市场的晴雨表。
+
+（本文仅代表作者观点）
+
+参考来源：[不仅仅是中共国的百姓要吃草，美国百姓也面临巨大的物价飞涨](https://www.kitco.com/news/2021-11-10/Gold-price-jumps-nearly-40-as-U-S-inflation-rate-highest-in-30-years-Yellen-says-Fed-would-prevent-the-1970s-scenario.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+编辑/校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
