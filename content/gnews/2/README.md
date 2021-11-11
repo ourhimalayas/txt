@@ -2,32 +2,28 @@
 ---
 
 
-## 口服“新冠特效药”的有毒副作用甚于疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656082/)
+## 国际工会联合会呼吁抵制北京冬奥会
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1656217/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在11月10日的大直播中，郭先生援引身在欧洲的新冠病毒爆料科学家的专业分析，向大众发出警告：目前默克公司和辉瑞公司所研制的试验性新冠病毒口服药，具有潜在的严重有毒副作用，其伤害甚至超过新冠疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-11-下午11.05.49.png)
-据科学家战友分析，辉瑞的所谓“口服特效药”其实是一种复方制剂，其中含有一款抗艾滋病的药物——利托那韦。据了解，利托那韦是一种蛋白酶抑制剂，其副作用明显，长期服用甚至可能造成血脂升高、心律不齐，甚至颅内出血等严重不良反应。至于默克的药物——莫努匹韦，这是一种核苷类抗病毒药物，研究表明，此类核苷类似物在动物试验阶段表现出致畸作用。
+采编：风云小哥   编译撰稿：文明(添草灭共)
 
-文贵先生指出，这两种药物仍在试验阶段，然而主流媒体和各国医药监管机构已经仓促地为它们站台，鼓吹其有效性，却规避其潜在的慢性毒性——这是对生命的蔑视和践踏，更是政府推卸责任、逃避追责的表现。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/b-2-edited.jpg)图片来源：GNEWS
 
-参考链接：[2021年11月10日 文贵大直播](https://gtv.org/video/id=618bc611e7e7703792324e25)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+据加拿大自媒体《反叛新闻》11月9日报道，【国际工会联合会】当天发布公告，呼吁【国际奥委会】及其主要赞助商，应该就即将在中共国举办的2022年北京冬奥会表明其反对立场。
 
-总编： Irene木木 
-编辑：Zion文恩 
-校正/发稿：呼吸的雾霾（文小呼吸）
+该报告指出，中共国不仅实施强迫劳动，监禁工会成员和民主活动家，还以“反分裂和反恐怖”的名义镇压新疆少数民族和宗教群体。并就【国际奥委会】漠视在该国所发生的侵犯人权和种族灭绝罪进行了谴责。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+对此，【工会联合会】秘书长敦促各国政府表明正确立场，捍卫本国运动员的安全。并希望各赞助商重新审视与北京冬奥会的利益关系，以及其应该履行的“保障基本人权”价值观。
+
+尽管各国体育界对中共政府的恶行表现得相对冷漠，但仍有一些知名运动员站出来反对即将在北京举行的冬奥会。例如，美国NBA波士顿凯尔特人队的中锋球员坎特，最近就公开发表了谴责中共党魁习近平的言论，并要求该政权结束对香港人、西藏人和维吾尔人的迫害。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://www.rebelnews.com/international_trade_union_calls_on_olympic_committee_sponsors_to_hold_china_accountable)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

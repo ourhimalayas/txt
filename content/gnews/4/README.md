@@ -2,25 +2,35 @@
 ---
 
 
-## 加拿大军方无视兵源短缺执意推行疫苗强制令
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1656062/)
+## 有声|文贵大直播的重大意义
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1656195/)
 
-采编：青青   编译撰稿：文明(添草灭共)
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+郭文贵先生在11月7日的大直播中提到，当天的直播内容包含重要的信息，希望战友尽可能地多次观看。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/b-1-edited.jpg)图片来源：TPM
+另外，郭先生还从三个方面阐述了大直播的意义所在：
+
+1. **传播真相**——美国被暂停的新冠疫苗强制令就是最好的例子，这是在郭先生的说服下由班农先生推动的，这也将改变美国和世界。
+2. **传授知识**——比如，郭先生在直播中通过与战友们的互动和答疑，让战友们理解喜币的意义和机制，以及喜币将给战友们带来的权利与财富。
+3. **传递情感**——郭先生在反复多次的长直播中和战友们以心交心，真心真爱。
 
 
-加拿大自媒体《后千禧年》11月10日报道，那些不愿意向当局提交其“新冠病毒”疫苗接种情况证明的加拿大军人将面临“退伍除名”的处置。
+除此之外，郭先生再次嘱咐战友，希望更多的同胞抓住机会，尽快通过喜马拉雅交易所的KYC认证，以便买到价格低廉的喜币。
 
-目前，【加拿大武装部队】成员接种该疫苗的比率为95%，其中已完成第二剂疫苗接种的比率为92%，明显高于加拿大普通民众84%的接种率。该国国防参谋长表示，对未接种该疫苗及未取得豁免接种证明的军队成员将采取包括辞退在内的强制措施，理由是为了保护其他成员的健康安全。
+文字版原文：[文贵大直播的重大意义](https://gnews.org/zh-hans/1650945/)
 
-据悉，军方内部最新审计数据显示，【加拿大武装部队】已出现至少7千人的兵源短缺，当局正在招收新兵以填补空缺。但如果继续执行强制接种政策，则无疑会进一步削弱该国武装部队的兵力。
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://thepostmillennial.com/canadian-military-to-threaten-unvaccinated-members-with-discharge)
 
  
 

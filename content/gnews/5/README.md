@@ -2,31 +2,27 @@
 ---
 
 
-## 樱花灭共诗——举国造神
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1656061/)
+## 有声|GTV新闻访谈简报|2021年11月9日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1656187/)
 
-撰稿：东京樱花团/藤田村野
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-12.jpg)
-歌功颂德造神频，
+配音：香草山教育部 – 蒙古鸿雁
 
-媒体文章吹捧勤。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1109text-SC.png)
+音频处理：喜山必胜Maverick
 
-力大无穷挑担子，
+发稿：呼吸的雾霾（文小呼吸）
 
-单肩到底乃奇人。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 
-十年雕塑光辉像，
+**更多资讯，更多关注**
 
-二载阴攻血泪坟。
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://xn--%20%7Cgtv%20%20gtv-%20%7Cmos%20talk%20%20%20%7C%20gettr%20%20%20%7Cyoutube%20%20%7C%20discord-kw44l1t1gm8doayup218v624hpazvr1825bzx4emafxdws06012bhtnpta2axu46wua3ayv7960lnaiygzw1416y8vh370k17zmoajzj0ay/)
 
-霹雳外交终自绝，
-
-关门吃草供瘟神。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-6.jpg)
-插图：东京樱花团/闪闪
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-76.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
