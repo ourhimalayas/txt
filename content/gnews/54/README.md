@@ -2,24 +2,28 @@
 ---
 
 
-## 两党参议员联合提案成立911式委员会调查冠状病毒起源
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1652655/)
+## COVID-19 最新情报｜南韩证明 高接种率仍无法病毒共存
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1652757/)
 
-#### 撰稿：彩虹      
+**台湾宝岛农场 疫情关注组 / 发布时间｜10/11/2021**
 
-#### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-65.jpg)图片来源：Axios
-11月9日，《新闻极限》报道，一个由参议员组成的跨党派小组提出方案，呼吁成立911式委员会，以调查冠状病毒的起源、政府的反应以及防止此类灾难的方法。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-共同提出该法案的成员包括：堪萨斯的共和党参议员罗杰·马歇尔（Roger Marshall），爱荷华州的共和党参议员乔尼·恩斯特（Joni Ernst），加利福尼亚州的民主党参议员黛安·费恩斯坦（Dianne Feinstein）和纽约州的民主党参议员克尔斯滕·吉利布兰德（Kirsten Gillibrand）。
 
-领导该小组的马歇尔在一份声明中说，这样的调查委员会“早就该成立了”。
+南韩11月1日改变防疫模式，急重症病例数急增，截至10日达到460例，超过82%急重症患者为60岁以上长者。南韩在改变防疫模式前，两个月以来急重症数维持在300多例。南韩防疫部门认为是疫苗保护力降低，配合宽松防疫政策导致疫情扩散。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/截圖-2021-11-10-下午5.21.25.png)南韩疫苗接种相关统计数据
+截至11月9日，完整接种覆盖率高达76.5%，仍因为“放宽防疫政策”导致急重症数量激增。南韩政府10日举办的中央灾难安全对策本部会议表示，新冠重症病例、死亡病例、病毒基本再生数等各项防疫指标的恶化速度均高于预期。
 
-恩斯特参议员表示，调查该病毒是自然起源还是从武汉病毒研究所泄露出来的非常重要。他说：“将近两年前，在中国武汉爆发的新冠病毒（COVID-19）疫情使世界陷入了前所未有的封锁状态。时至今日，由于中国政府拒绝与国际事实调查工作的努力充分合作，从而该大流行病的起源仍然是个谜。美国人民和世界应该得到答案，这就是为什么我很自豪地与我的跨党派同事一起创建一个两党委员会，以一劳永逸地查清该大流行病的真相，并确保它不再发生。”
+- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
+- 相关：[瑞典研究显示完全接种疫苗后，抗体将在三个月后急剧下降](https://gnews.org/zh-hant/1576453/)
+- 相关：[COVID-19 最新情报｜关于“新冠口服药” 你不可不知的泽连科方案](https://gnews.org/zh-hant/1643262/)
+- 相关：[COVID-19最新情报｜政府荒谬地将COVID-19扩散归咎于未接种疫苗族群](https://gnews.org/zh-hant/1607453/)
 
-**新闻来源**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-7.jpg)
+* * *
 
-[Bipartisan Group Calls for 9/11-Style Panel to Probe COVID Origin](https://www.newsmax.com/newsfront/commission-covid-origin-roger-marshall/2021/11/09/id/1043944/)
+來源｜[udn](https://udn.com/news/story/121707/5880718?from=udn_mobile_indexrecommend)
 
  
 

@@ -15,176 +15,176 @@
 
 ---
 
-### [全世界大量运动员突发心脏病](/content/gnews/1/README.md)
+### [美国10州起诉拜登政府强制医务人员接种疫苗](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共内部报告：国内癌症患者已超1100万](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [巡回法院中止令始于G-TV、G-News、盖特、班农战斗室](/content/gnews/3/README.md)
+ ` NewFOC`
+
+### [撒谎](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共楼市冰封！莞惠2地新房二手房交易“脚踝斩”](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文贵焦点 (11/10)：让郭先生搂不住的四件大事对喜币意味着什么？](/content/gnews/6/README.md)
+ ` 秘密翻译组-原创组`
+
+### [NIH的顶级医生反对疫苗强制令，并拒绝接种疫苗](/content/gnews/7/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [20211111澳喜要闻摘要](/content/gnews/8/README.md)
+ ` 澳喜农场`
+
+### [美国的力量是新中国联邦国防打造的三条战友保护线之一](/content/gnews/9/README.md)
+ ` NewFOC`
+
+### [垄断: 谁拥有这个世界 第一部分](/content/gnews/10/README.md)
  ` 加拿大扬帆农场多伦多视频组`
 
-### [秘翻在线：澳洲卫生部官员以擅自发放疫苗豁免为由突袭一家庭医生的诊所](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [每日快报：白宫记者因在COVID疫苗问题上发表“错误想法”而被Twitter禁止](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [币圈新闻动态：喜币突破24HDO](/content/gnews/4/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [一币赢一国一币战一国](/content/gnews/5/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [文·贵天成——文贵先生谈“京西宾馆”（二）](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [宽限期已过 恒大美元债正式违约，DMSA准备对其提起破产申请](/content/gnews/7/README.md)
+### [澳大利亚昆士兰州政府将创建“打疫苗”和“不打疫苗”的两级社会](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [日本新任外交部长林芳正将辞去日中议会友好协会主席职务](/content/gnews/8/README.md)
+### [全世界大量运动员突发心脏病](/content/gnews/12/README.md)
+ ` 加拿大扬帆农场多伦多视频组`
+
+### [秘翻在线：澳洲卫生部官员以擅自发放疫苗豁免为由突袭一家庭医生的诊所](/content/gnews/13/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [郭文贵精品视频-Hcoin要与全世界的各种币共存共生](/content/gnews/14/README.md)
+ ` 澳喜农场`
+
+### [每日快报：白宫记者因在COVID疫苗问题上发表“错误想法”而被Twitter禁止](/content/gnews/15/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [币圈新闻动态：喜币突破24HDO](/content/gnews/16/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [一币赢一国一币战一国](/content/gnews/17/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [文·贵天成——文贵先生谈“京西宾馆”（二）](/content/gnews/18/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [宽限期已过 恒大美元债正式违约，DMSA准备对其提起破产申请](/content/gnews/19/README.md)
+ ` 澳喜农场`
+
+### [日本新任外交部长林芳正将辞去日中议会友好协会主席职务](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线:从艾滋病危机到中共病毒大流行 福奇的撒谎邪恶本性从未改变](/content/gnews/9/README.md)
+### [秘翻在线:从艾滋病危机到中共病毒大流行 福奇的撒谎邪恶本性从未改变](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [墙内新闻速递](/content/gnews/10/README.md)
+### [墙内新闻速递](/content/gnews/22/README.md)
  ` 澳喜农场`
 
-### [第五巡回法庭的裁决打开美国开战前的动作之一——国会](/content/gnews/11/README.md)
+### [第五巡回法庭的裁决打开美国开战前的动作之一——国会](/content/gnews/23/README.md)
  ` NewFOC`
 
-### [文·贵天成——郭文贵先生谈“京西宾馆”（一）](/content/gnews/12/README.md)
+### [文·贵天成——郭文贵先生谈“京西宾馆”（一）](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国对中国共产党二十年前就在准备,今天已经全部在作战](/content/gnews/13/README.md)
+### [美国对中国共产党二十年前就在准备,今天已经全部在作战](/content/gnews/25/README.md)
  ` NewFOC`
 
-### [不仅仅是中共国的百姓要吃草，美国百姓也面临巨大的物价飞涨](/content/gnews/14/README.md)
+### [不仅仅是中共国的百姓要吃草，美国百姓也面临巨大的物价飞涨](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [中共六中全会强力维稳，异议人士被迫离京行动受限](/content/gnews/15/README.md)
+### [中共六中全会强力维稳，异议人士被迫离京行动受限](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年11月10日郭先生盖特 — 视频盖特「1分05秒」](/content/gnews/16/README.md)
+### [2021年11月10日郭先生盖特 — 视频盖特「1分05秒」](/content/gnews/28/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [中共外交部：达赖需要做的是停止分裂中国的活动](/content/gnews/17/README.md)
+### [中共外交部：达赖需要做的是停止分裂中国的活动](/content/gnews/29/README.md)
  ` 首尔天池农场`
 
-### [澳大利亚将给12岁以下儿童接种莫德纳疫苗](/content/gnews/18/README.md)
+### [澳大利亚将给12岁以下儿童接种莫德纳疫苗](/content/gnews/30/README.md)
  ` 走进澳洲`
 
-### [大直播画面的美,尽显新中国联邦人的安心和自信](/content/gnews/19/README.md)
+### [大直播画面的美,尽显新中国联邦人的安心和自信](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本学者引经据典讲述&#8221;经济脱中&#8221;的必要性（之二）](/content/gnews/20/README.md)
+### [日本学者引经据典讲述&#8221;经济脱中&#8221;的必要性（之二）](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共病毒直接导致日本12万人次失业，女性失业渐成常态化](/content/gnews/21/README.md)
+### [中共病毒直接导致日本12万人次失业，女性失业渐成常态化](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中国共产党放毒杀害全人类，全人类皆有权力得而诛之](/content/gnews/22/README.md)
+### [截止11.8中共病毒已造成全球3.2亿感染和1800万死亡](/content/gnews/34/README.md)
  ` NewFOC`
 
-### [截止11.8中共病毒已造成全球3.2亿感染和1800万死亡](/content/gnews/23/README.md)
- ` NewFOC`
-
-### [国际要闻汇编11月11日](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [波音公司承认对埃塞俄比亚航空公司737 Max坠毁事件负责](/content/gnews/25/README.md)
+### [波音公司承认对埃塞俄比亚航空公司737 Max坠毁事件负责](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [远离比注射疫苗更毒的口服疫苗！](/content/gnews/26/README.md)
+### [远离比注射疫苗更毒的口服疫苗！](/content/gnews/36/README.md)
  ` 纽约香草山MOS03`
 
-### [新加坡和印尼的比较显示伊维菌素对新冠病毒有效](/content/gnews/27/README.md)
- ` 澳喜农场`
-
-### [郭文贵直播摘要和音频 2021.11.10](/content/gnews/28/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [拜登下周将与习举行虚拟会晤](/content/gnews/29/README.md)
- ` HimalayaRussia`
-
-### [文·贵天成——文贵先生谈“吴征、杨澜”（二十六）](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
-
-### [GTV新闻访谈简报|2021年11月10日晚](/content/gnews/31/README.md)
- ` 纽约香草山MOS01`
-
-### [美元债务宽限期结束，恒大违约风险急速提升](/content/gnews/32/README.md)
+### [美元债务宽限期结束，恒大违约风险急速提升](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [德国承认中共病毒疫苗会造成心脏炎症](/content/gnews/33/README.md)
+### [德国承认中共病毒疫苗会造成心脏炎症](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英国首相鲍里斯·约翰逊鼓励民众打加强针](/content/gnews/34/README.md)
+### [英国首相鲍里斯·约翰逊鼓励民众打加强针](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [超过1000人聚集在洛杉矶市中心抗议疫苗强制令](/content/gnews/35/README.md)
+### [超过1000人聚集在洛杉矶市中心抗议疫苗强制令](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [耶鲁流行病学教授：在家上学比接种疫苗去学校的好处要多](/content/gnews/36/README.md)
+### [耶鲁流行病学教授：在家上学比接种疫苗去学校的好处要多](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [《国家脉动》一篇文章揭示福奇资助武毒所的海量证据](/content/gnews/37/README.md)
+### [《国家脉动》一篇文章揭示福奇资助武毒所的海量证据](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国法院冻结拜登对于美国公司的疫苗行政令](/content/gnews/38/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [继美团、拼多多之后，红杉中国沈南鹏抛售小米](/content/gnews/39/README.md)
+### [继美团、拼多多之后，红杉中国沈南鹏抛售小米](/content/gnews/43/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/11/09 墙内世界](/content/gnews/40/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共国病例破千，3-11岁儿童成最大受害者](/content/gnews/41/README.md)
+### [中共国病例破千，3-11岁儿童成最大受害者](/content/gnews/44/README.md)
  ` GTV新闻访谈`
 
-### [维也纳黔驴技穷 利用性服务引诱疫苗接种](/content/gnews/42/README.md)
+### [维也纳黔驴技穷 利用性服务引诱疫苗接种](/content/gnews/45/README.md)
  ` GTV新闻访谈`
 
-### [海豹突击队队员起诉美军方疫苗强制令](/content/gnews/43/README.md)
+### [海豹突击队队员起诉美军方疫苗强制令](/content/gnews/46/README.md)
  ` GTV新闻访谈`
 
-### [拜登解除旅行禁令，或将带来全美疫情新变数](/content/gnews/44/README.md)
+### [拜登解除旅行禁令，或将带来全美疫情新变数](/content/gnews/47/README.md)
  ` GTV新闻访谈`
 
-### [喜交所日提额上限10万，开创金融界神话](/content/gnews/45/README.md)
+### [喜交所日提额上限10万，开创金融界神话](/content/gnews/48/README.md)
  ` GTV新闻访谈`
 
-### [2021年11月10日郭先生直播小飞象大雨围城速记](/content/gnews/46/README.md)
+### [2021年11月10日郭先生直播小飞象大雨围城速记](/content/gnews/49/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [六中全会向领导报告中共国获得的11个第一](/content/gnews/47/README.md)
+### [六中全会向领导报告中共国获得的11个第一](/content/gnews/50/README.md)
  ` 首尔天池农场`
 
-### [李鑫的求救信](/content/gnews/48/README.md)
+### [李鑫的求救信](/content/gnews/51/README.md)
  ` 纽约香草山MOS03`
 
-### [11/10/2021 国际财经快讯：美国延长对中共国军工相关公司的证券投资禁令;恒大面临支付1.48 亿到期美元债最后期限](/content/gnews/49/README.md)
+### [11/10/2021 国际财经快讯：美国延长对中共国军工相关公司的证券投资禁令;恒大面临支付1.48 亿到期美元债最后期限](/content/gnews/52/README.md)
  ` 秘密翻译组金融团队`
 
-### [美军在关岛测试“铁穹”系统防备中共巡航导弹](/content/gnews/50/README.md)
+### [美军在关岛测试“铁穹”系统防备中共巡航导弹](/content/gnews/53/README.md)
  ` 日本东京方舟农场`
 
-### [中南海的空气能特供吗？](/content/gnews/51/README.md)
- ` 纽约香草山MOS03`
-
-### [COVID-19 最新情报｜南韩证明 高接种率仍无法病毒共存](/content/gnews/52/README.md)
+### [COVID-19 最新情报｜南韩证明 高接种率仍无法病毒共存](/content/gnews/54/README.md)
  ` G&#124;News TAIWAN`
 
-### [台湾前线｜美国防部：军机访台是义务、惯例](/content/gnews/53/README.md)
+### [台湾前线｜美国防部：军机访台是义务、惯例](/content/gnews/55/README.md)
  ` G&#124;News TAIWAN`
 
-### [两党参议员联合提案成立911式委员会调查冠状病毒起源](/content/gnews/54/README.md)
+### [两党参议员联合提案成立911式委员会调查冠状病毒起源](/content/gnews/56/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [国际要闻汇编 11月10日](/content/gnews/55/README.md)
+### [国际要闻汇编 11月10日](/content/gnews/57/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国参众议员再度访台，台湾如何真正安全？](/content/gnews/56/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [全网找“鱼尾”](/content/gnews/57/README.md)
- ` 纽约香草山MOS03`
 
 ### [纳瓦罗：福奇隐瞒了病毒来自武汉实验室导致数百万人死亡](/content/gnews/58/README.md)
  ` 首尔天池农场`

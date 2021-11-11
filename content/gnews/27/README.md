@@ -2,47 +2,31 @@
 ---
 
 
-## 新加坡和印尼的比较显示伊维菌素对新冠病毒有效
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1654799/)
+## 中共六中全会强力维稳，异议人士被迫离京行动受限
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1654897/)
 
-作者: XO酱
+![上海举行的中国国际进出口展销会媒体中心的多面电视屏幕正在播放中国领导人习近平的讲话。（2021年11月4日）](https://gdb.voanews.com/14A20770-E17A-439D-96D5-CE16FE1C5FCF_cx0_cy4_cw0_w1023_r1_s.jpg)*上海举行的中国国际进出口展销会媒体中心的多面电视屏幕正在播放中国领导人习近平的讲话。（2021年11月4日）*
+据美国之音11月11日报道，中共19届六中全会即将于11日落幕，会中通过的“历史决议”可望让中共国国家主席习近平的权势再攀高峰。就在习近平炮制“新毛主义”的同时，北京当局依照惯例在会议期间升级维稳，多名异议人士遭拦截、被迫返乡，网路言论也受到打压。部分观察人士示警，中共国对民众的严密监控恐将成为常态。
 
-翻译: Rosa
+六中全会是中共自1949年建政以来第三次推出的特殊历史决议。会议期间北京部署特别维稳行动，全国各地也在加强警戒，因为中共明年将举办北京冬奥会并召开二十大。这种高压状态很可能会持续下去，成为一个常态。
 
-[原文链接：](https://gnews.org/1652060/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-4.png)图片来自CNBC印度尼西亚
-在应对新冠病毒大流行病方面，新加坡和印度尼西亚采取了两种非常不同的方法。作为两个相邻的国家，比较它们的经验是有益的。
+中共对内强权监管百姓，控制百姓的一举一动，甚至言谈思维。对外吹嘘大国自信。真的大国自信就打开国门，推倒防火墙，让百姓畅快淋漓地接触外面的世界。中共在灭亡之前，肯定会加强管控的强度和力度。中共的疯狂就是其灭亡的前奏。
 
-印度尼西亚允许使用伊维菌素，而新加坡基本上禁止使用伊维菌素
+新闻参考链接：[https://www.voachinese.com/a/China-tries-to-silence-activists-as-CCP-Central-Committee-holds-sixth-plenum-in-Beijing-20211111/6307785.html](https://www.voachinese.com/a/China-tries-to-silence-activists-as-CCP-Central-Committee-holds-sixth-plenum-in-Beijing-20211111/6307785.html)
 
-早在7月15日，印度尼西亚食品和药品监督局就批准了伊维菌素作为治疗药物用于新冠病毒患者的紧急使用授权。自那时起，印度尼西亚的Covid-19新增病例开始急剧下降，并在11月4日达到628例的低点。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture2-2.png)截图来自：https://www.worldometers.info/coronavirus/country/indonesia/
-印度尼西亚每天的新冠病毒死亡人数也急剧下降到11月4日的新低，为19人。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture3-1.png)屏幕截图来自：https://www.worldometers.info/coronavirus/country/indonesia/
-与此同时，印度尼西亚的邻国新加坡已经基本上禁止使用伊维菌素进行新冠病毒治疗。新加坡卫生部在最近几天断言：”驱虫药伊维菌素不是可以治愈新冠病毒患者的神奇药物”。
+编辑：胖丁
 
-新加坡在最近几周的10月份截获了23,100片进口伊维菌素，继续与新冠病毒病例的激增作斗争。新加坡没有允许使用这种自20世纪80年代以来一直被人类安全使用的廉价仿制药，而是依靠高的新冠病毒疫苗接种率，希望实现群体免疫。
+* * *
 
-结果是什么？
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture4.png)截图来自：https://www.worldometers.info/coronavirus/country/singapore/![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture5.png)截图来自：https://www.worldometers.info/coronavirus/country/singapore/
-新加坡的疫苗接种率高得多，但其表现却比印度尼西亚更差
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-新加坡政府于2021年2月开始了大规模的新冠病毒疫苗接种计划。新加坡是世界上疫苗接种率最高的国家之一。截至11月7日，86%的新加坡人口至少已经接受了第一剂疫苗，85%的新加坡人口已经接受了两剂新冠病毒疫苗（”完全接种”）。
 
-新加坡的疫苗接种率
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture6.png)11月11日截图来自：《海峡时报》网站
-相比之下，印度尼西亚的新冠病毒疫苗接种率要低得多。雅加达环球报》报道，印尼公民中仅有7800万以上的人完全接种了疫苗。这相当于超过2.77亿总人口的约28%。
+编辑：【英国伦敦喜庄园编辑部】
 
-使用Our World In Data的冠状病毒比较工具，这两个国家在新冠病毒疫苗接种方面的巨大差距再清楚不过了。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture7.png)截图来自：https://ourworldindata.org/coronavirus/country/indonesia
-印度尼西亚只有不到30%的人口接受了全面的疫苗接种，但其表现却远远好于新加坡，后者有超过85%的人口接受了全面的疫苗接种。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-我们还需要什么证据来证明伊维菌素的作用？
-
-(本文纯属个人观点，与Gnews无关)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
