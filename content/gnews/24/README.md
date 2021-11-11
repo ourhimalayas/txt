@@ -2,41 +2,36 @@
 ---
 
 
-## 有声| 恒大持续抛售大额股份
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1656468/)
+## 比尔·盖茨最终承认中共病毒疫苗失败了
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1656641/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月8日，恒大再次减持恒腾网络2亿股，套现4.07亿港元。继4日减持1.5亿股，5日减1.8亿股之后，恒大共出售5.3亿股恒腾网络，回笼资金达11.25亿港元。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-值得注意的是，恒大自6月份以来，6次减持恒腾累计22.84亿股，套现总计88亿港元。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/B-2.jpg)
+《门道专家》11月11日发表文章，题目“比尔·盖茨最终承认，他为支持中共（新冠）病毒疫苗付出了巨大努力，但失败了。”
 
-同时恒大近期一直也在抛售其他资产。资料显示，10月18日，恒大集团在盛京银行的持股比例，已经49.59%下降至19.85%，共计变现金额110亿元。
+全文如下：
 
-文字版原文：[恒大持续抛售大额股份](https://gnews.org/zh-hans/1653605/)
+在上周接受《政策交流》（Policy Exchange）采访时，令人毛骨悚然的比尔·盖茨终于承认危险的中共病毒疫苗并没有像广告宣传的那样有效。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+盖茨是中共病毒疫苗的主要拥护成员之一，也是第一批呼吁进行多次连续接种中共病毒疫苗的全球主义者之一。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+尽管事实上疫苗并没有像广告宣传的那样有效，而且报道有成千上万的人因疫苗而生病和死亡，但全球化的精英们仍在继续推动多次接种。
 
+比尔·盖茨：经济损失，死亡，这太可怕，我希望这将导致研发项目将重点转移到我们今天没有的东西上。我们的疫苗没有阻止传播，我们得到的疫苗可以帮助你的健康，但只是稍微减少了传播。我们需要一种新的方式来做疫苗。”
 
+尽管盖茨是中共病毒疫苗的最大支持者之一，但他承认了疫苗产业的失败。
 
-**更多资讯，更多关注**
+（全文完）
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+中共病毒疫苗最大的推手都这样表态了，正在审理疫苗诉讼的法官们知道该怎样判了吧？正在执行疫苗强制令的政府各部门知道该怎样做了吧？打压质疑疫苗阴谋声音、助纣为虐的媒体还继续嚣张吗？拜登还不收回你那荒唐的行政令吗？
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+该到清算邪恶的时候了，战友们加油！
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+原文链接：
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[https://www.thegatewaypundit.com/2021/11/bill-gates-finally-admits-failure-covid-vaccines-fought-hard-prop-video/](https://www.thegatewaypundit.com/2021/11/bill-gates-finally-admits-failure-covid-vaccines-fought-hard-prop-video/)
 
  
 
