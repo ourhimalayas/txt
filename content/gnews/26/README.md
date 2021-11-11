@@ -2,13 +2,17 @@
 ---
 
 
-## 11/3郭文贵直播：为什么说征收房地产税将导致亡党亡国？（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1655203/)
+## 西媒头条 — 第107期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1655285/)
 
-11/3/2021 郭文贵直播：中共的整个房地产领域都快完了，房地产崩溃之日就是灭共之时，江家、曾家都等着习完蛋；中共征收房产税是为了延续其庞氏骗局，为什么说征收房地产税将导致亡党亡国？
+制作：蚂蚁兄弟
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-11.jpeg)
+
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

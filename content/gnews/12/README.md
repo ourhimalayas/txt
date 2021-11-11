@@ -2,38 +2,41 @@
 ---
 
 
-## 中共流氓“限跌令”让房产商扛不住了
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1655314/)
+## 前花旗集团CEO表示，所有大银行都将很快交易加密货币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1655342/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-29.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp2.itc.cn%2Fimages01%2F20210928%2F8813b5409a4042049ed343fbee49cd78.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F492680835_104543&amp;tbnid=LDMmxFLOShgTIM&amp;vet=12ahUKEwjks_PU-Y_0AhUIfZQKHUI3DrkQMygOegUIARC5AQ..i&amp;docid=iXB7jYe-PD1IfM&amp;w=2000&amp;h=1333&amp;q=%E9%99%90%E8%B7%8C%E4%BB%A4&amp;ved=2ahUKEwjks_PU-Y_0AhUIfZQKHUI3DrkQMygOegUIARC5AQ)
-“工抵房”、“内部房源”等关键词正频繁出现在中介的朋友圈中，尤其是在二三线城市，类似的房源不在少数。所谓工抵房，即开发商用来抵扣工程款项的房子；各种内部房源则多为开发商对内部员工释放的折扣房。
+简评：***加密货币的迅猛发展吸引了各国政府及金融机构的注意，如萨尔瓦多已将比特币作为其法定货币。虽然加密货币市场在 2021 年经历了波折，但这并没有阻挡其飙升至新高度。周一，根据CoinGecko提供的数据，加密货币的整体市值已经达到3.03万亿美元，而四大加密货币——比特币、以太坊、币安币和Solana居功至首。相信伴随三大主要事件的逐一发生，我们的喜马拉雅币（HCN）将一路阔步买进加密货币的巅峰。***
 
-来自特殊渠道的低价房源深深刺痛了业主们的心，他们无法接受自己高价买下的房子现在价格却跌了一大截。业主们认为，无论工抵房，还是员工折扣房，都是开发商变相降价的“幌子”。
+据《TheStreet.com》记者：VERONIKA BONDARENKO，2021年11月8日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-64.png)图片来源：彭博社
+花旗集团（Citigroup）前首席执行官潘伟迪（Vikram Pandit）在新加坡的一个科技会议上预测，全球所有主要银行将在“一到三年内”开始进行加密货币交易。
 
-其实，对于工抵房、员工折扣房的出现，业内并不感到意外。过去，这些特殊渠道的房源一直都存在。只是，在全国多城发布“限跌令”的背景下，中介们集体推销工抵房、员工折扣房的现象变得微妙。
+潘伟迪在新加坡金融科技节（Singapore Fintech Festival）接受彭博社（Bloomberg）记者哈斯琳达·阿明(Haslinda Amin)采访时表示，随着加密货币逐渐主宰银行业和交易世界，大型银行不愿接受加密货币的态度可能很快就会发生改变。
 
-有媒体粗略统计，近期广州推出工地房的楼盘数量达到十余个，项目既有位于增城、南沙、从化的郊区地段，也有像荔湾这样的城区。价格方面，轻则优惠数十万，多则上百万。
+潘伟迪在接受彭博社采访时表示：“每家大银行或证券公司都将积极考虑‘我是否也应该交易和出售加密货币资产’。”潘伟迪曾在2007年至2012年期间领导花旗集团，目前担任The Orogen Group的董事长（潘伟迪为联合创始人）。
 
-当然，开发商并非无偿“割肉”，低价所对应的往往是付款方式的高门槛。前述中介透露，大部分的工抵房可以进行贷款，但首付比例要求是7成以上，少数楼盘会将首付比例降低至5成，3成首付是极少数；员工折扣房的要求会更高，一次性付清全款是标准配置。
+这一举措已经在许多地方发生。
+上周，澳大利亚联邦银行（Commonwealth Bank of Australia）宣布将很快为其客户提供交易加密货币的机会。而据Markets Insider最先报道，高盛（Goldman Sachs）、富国银行（Wells Fargo）和富达（Fidelity）都在招聘大量加密货币专家。
+作为与银河数码合作的一部分，高盛集团（Goldman Sachs Group Inc.）最近也开始交易加密货币期货。
 
-几个月前，全国房地产市场在严格调控的风声里逐步降温，开发商焦虑万分。为了销售回款，开发商们不约而同选择采用降价来拉动去化。彼时，沈阳、昆明、惠州、株洲等地纷纷出现楼盘大幅降价的现象，其中沈阳有楼盘单价由13000元/平方米直线下降到8000元/平方米。
+潘伟迪此前曾投资过加密货币公司，如Alchemy Insights和Coinbase (COIN)。Coinbase已上市，目前股价上涨5.53%，至355,68美元。
 
-多个城市房价下滑的消息引发关注，敏感的业主们奔波于一线为自己的利益讨要说法，监管部门不得不出手稳住局面。
+他对彭博社表示，纸质银行系统“繁琐”且“负担沉重”。他认为，接受数字货币可以缓解其中一些挑战。
 
-“限跌令”就此诞生。8月，昆明、桂林、南昌等城市便率先公布房价“限跌令”，明确对楼盘促销行为作出限制，要求各楼盘促销售价不得超过备案价一定幅度，比例通常为5%—15%。
+潘伟迪表示：“我最大的希望是，世界各地的央行都能理解中央银行数字货币的好处，并逐步接受和采用它们。”
 
-有了样本之后，“限跌”风波持续发酵，至今，全国已有超15城出台限跌政策。正是在这样的处境之下，工抵房、员工折扣房密集流出。同策研究院指出，虽然限跌令能将房价稳在一定水平，但市场有价无市，反而使得房企无法通过打折促销方式快速回笼资金。
+原文连接：[https://www.thestreet.com/investing/all-big-banks-will-be-crypto-trading-soon-former-citigroup-ceo-vikram-pandit-says](https://www.thestreet.com/investing/all-big-banks-will-be-crypto-trading-soon-former-citigroup-ceo-vikram-pandit-says)
 
-“今年以来，国内对房地产行业的监管愈发严格，大量资金压在项目监管账户里，融资又非常艰难，这个时候，可能不会有任何一家房企可以保持淡定。”一位百强房企员工坦承，不论工抵房，还是员工折扣房，都是降价促销的一种体现形式，尽管降价对正价购买的业主有失公平，却是房企无奈的选择。
+翻译：洛杉矶盘古农场 — 钢蛋儿
+校对：洛杉矶盘古农场 — Mike Li
+评论：洛杉矶盘古农场 — 钢蛋儿
+编辑：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-消息来源:
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-[工抵房“打骨折”遭抢购，业主愤怒、地产商委屈：这不公平，但我们很无奈](https://www.163.com/dy/article/GOH5UFJ50530KP1K.html)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,113 +15,113 @@
 
 ---
 
-### [新西兰财经G乐部 2021年11月9日](/content/gnews/1/README.md)
- ` 喜马拉雅农场新西兰站`
+### [墙内要闻汇编 11月11日](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国延长对中共军方相关实体公司的证券投资禁令期限](/content/gnews/2/README.md)
+### [新冠病毒口服药比疫苗更毒,会毁灭神经、血液和消化系统](/content/gnews/2/README.md)
+ ` NewFOC`
+
+### [债权人准备对恒大启动破产程序](/content/gnews/3/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [大直播7·24——人工降雪的危害性](/content/gnews/3/README.md)
+### [文·贵天成——郭文贵先生谈“京西宾馆”（一）](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [前花旗集团CEO表示，所有大银行都将很快交易加密货币](/content/gnews/4/README.md)
+### [中美达成更多气候保护协议](/content/gnews/5/README.md)
+ ` Shuizhuyu`
+
+### [中美宣言对气候大会意味着什么](/content/gnews/6/README.md)
+ ` Shuizhuyu`
+
+### [中共北交所11月15日开市](/content/gnews/7/README.md)
+ ` 儒为`
+
+### [新西兰财经G乐部 2021年11月9日](/content/gnews/8/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [美国延长对中共军方相关实体公司的证券投资禁令期限](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [政府排挤黄金作为“替代”货币，未来比特币价格翻倍](/content/gnews/5/README.md)
+### [“不要接种疫苗”：毒理学家揭示辉瑞的 COVID 疫苗是如何获得 FDA 批准的](/content/gnews/10/README.md)
+ ` wenwu`
+
+### [大直播7·24——人工降雪的危害性](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [家庭反洗脑序列：第34篇 呼唤你天使的眼神](/content/gnews/6/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [焦点新闻摘要 2021年11月9日](/content/gnews/7/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [日本要闻汇编 11月11日](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：不要让一群有着医学博士头衔的官僚为我们每个人做决定](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [对郭文贵先生绝顶佩服的马云要么被做掉要么跑到美国](/content/gnews/10/README.md)
- ` NewFOC`
-
-### [通货膨胀比失业更可怕](/content/gnews/11/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [中共流氓“限跌令”让房产商扛不住了](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国文森号航母打击群与日军在南海进行演习](/content/gnews/13/README.md)
+### [前花旗集团CEO表示，所有大银行都将很快交易加密货币](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [欧盟主席在华盛顿](/content/gnews/14/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
+### [政府排挤黄金作为“替代”货币，未来比特币价格翻倍](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [台积电日本设厂，或为躲避台海战火](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共病毒和疫苗导致医疗人员极为短缺，患病、死亡和离职是主因](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [西媒头条 — 第107期](/content/gnews/17/README.md)
+### [家庭反洗脑序列：第34篇 呼唤你天使的眼神](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [香港人才、外资撤离潮加剧，6月之内恐成“金融空港”](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [焦点新闻摘要 2021年11月8日](/content/gnews/19/README.md)
+### [焦点新闻摘要 2021年11月9日](/content/gnews/15/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共房地产海外违约创历史新高，280亿美元债务已过期，随时引爆世界金融](/content/gnews/20/README.md)
+### [日本要闻汇编 11月11日](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新西兰总理无视大规模的反疫苗，反封城游行抗议](/content/gnews/21/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [秘翻在线：DMSA准备申请针对恒大违约的破产保护](/content/gnews/22/README.md)
+### [秘翻在线：不要让一群有着医学博士头衔的官僚为我们每个人做决定](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西媒头条 — 第106期](/content/gnews/23/README.md)
+### [北京假雪](/content/gnews/18/README.md)
+ ` 骄子`
+
+### [对郭文贵先生绝顶佩服的马云要么被做掉要么跑到美国](/content/gnews/19/README.md)
+ ` NewFOC`
+
+### [通货膨胀比失业更可怕](/content/gnews/20/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [中共流氓“限跌令”让房产商扛不住了](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国文森号航母打击群与日军在南海进行演习](/content/gnews/22/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [欧盟主席在华盛顿](/content/gnews/23/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [台积电日本设厂，或为躲避台海战火](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共病毒和疫苗导致医疗人员极为短缺，患病、死亡和离职是主因](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [西媒头条 — 第107期](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [思想破墙记](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [香港人才、外资撤离潮加剧，6月之内恐成“金融空港”](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [比尔·盖茨承认COVID-19疫苗不能阻止病毒传播](/content/gnews/25/README.md)
+### [焦点新闻摘要 2021年11月8日](/content/gnews/28/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [11/3郭文贵直播：为什么说征收房地产税将导致亡党亡国？（粤语配音）](/content/gnews/26/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [中共房地产海外违约创历史新高，280亿美元债务已过期，随时引爆世界金融](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/3郭文贵直播：中共征收房产税为时已晚，亡党亡国（粤语配音）](/content/gnews/27/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [新西兰总理无视大规模的反疫苗，反封城游行抗议](/content/gnews/30/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [11/3郭文贵直播：张高丽是想当皇帝的人（粤语配音）](/content/gnews/28/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [郝海东夫妇爆料：92年约十岁郭晶晶抽屉竟然放避孕套（粤语配音）](/content/gnews/29/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [11/3郭文贵直播：弗吉尼亚州长选举将改变世界命运（粤语配音）](/content/gnews/30/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [澳洲前总理称台湾的地位不是澳洲的重要利益](/content/gnews/31/README.md)
- ` 走进澳洲`
-
-### [美方洞悉路德蛇妖闫火鸡龚韩尚笑庄列宏James和鸡腿潘](/content/gnews/32/README.md)
- ` NewFOC`
-
-### [新西兰数千人抗议对新冠病毒的限制措施](/content/gnews/33/README.md)
+### [思想破墙记](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共内部报告：国内癌症患者已超1100万](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [11/3郭文贵直播：为什么说征收房地产税将导致亡党亡国？（粤语配音）](/content/gnews/32/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [巡回法院中止令始于G-TV、G-News、盖特、班农战斗室](/content/gnews/35/README.md)
- ` NewFOC`
+### [11/3郭文贵直播：中共征收房产税为时已晚，亡党亡国（粤语配音）](/content/gnews/33/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [撒谎](/content/gnews/36/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [11/3郭文贵直播：张高丽是想当皇帝的人（粤语配音）](/content/gnews/34/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [郝海东夫妇爆料：92年约十岁郭晶晶抽屉竟然放避孕套（粤语配音）](/content/gnews/35/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [11/3郭文贵直播：弗吉尼亚州长选举将改变世界命运（粤语配音）](/content/gnews/36/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [文贵焦点 (11/10)：让郭先生搂不住的四件大事对喜币意味着什么？](/content/gnews/37/README.md)
  ` 秘密翻译组-原创组`

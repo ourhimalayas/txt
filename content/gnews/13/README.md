@@ -2,33 +2,36 @@
 ---
 
 
-## 美国文森号航母打击群与日军在南海进行演习
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1655304/)
+## 政府排挤黄金作为“替代”货币，未来比特币价格翻倍
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1655337/)
 
-据《USNI News》记者：Dzirhan Mahadzir，2021年11月8日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-63.png)美国海军提康德罗加级导弹巡洋舰夏洛号（CG 67）、美国海军提康德罗加级导弹巡洋舰尚普兰湖号（CG 57）、美国海军尼米兹级航空母舰卡尔-文森号（CVN 70）、美国海军阿利-伯克级导弹驱逐舰米利厄斯号（DDG 69）、日本海上自卫队村砂级驱逐舰JS村砂号（DD）。2021年10月30日，美国海军阿利-伯克级导弹驱逐舰米利厄斯号（DDG 69）、日本海上自卫队村上级驱逐舰JS Murasame（DD 101）和日本海上自卫队出云级直升机驱逐舰JS Kaga（DDH 184）在南中国海共同过境。美国海军照片
-吉隆坡——虽然英国的第21航母打击群 (CSG21) 已经离开西太平洋，但部署的海军群仍然有大量海上活动。
+**翻译：**Sara9
+**编辑：**文泓
 
-日本海上自卫队印太部署2021（IPD21）任务组主体，包括日本海上自卫队直升机驱逐舰加贺号（DDH-184）和村雨号（DD101）， 与卡尔文森号航母打击群自10月29日至11月3日期间，在南海开展联合训练。美国航母打击群包括航母卡尔文森号（CVN-70）和舰载航空联队2（CVW 2）、巡洋舰尚普兰湖号（CG-57）和USS Shiloh（CG-67）及驱逐舰 USS Milius（DDG-69）。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/11.11-1.jpg)图片来源：Blockonmi
 
-据日本海上自卫队于10月30日发布的新闻稿称，第1航母打击群指挥官丹·马丁（Dan Martin）少将登上加贺号，与第3护航舰队指挥官池内出少（Ikeuchi Izuru）少将会面。两位指挥官讨论了日美海军在南海联合行动的意义。
 
-训练结束后，加贺号与村雨号11月5日至11月7日停靠越南金兰湾港，离开时与越南海军（VPN）护卫舰锻炼号Đinh Tiên Hoàng（HQ-011）进行了演习。
+今年比特币和其他加密货币横扫华尔街，很多大银行纷纷介入加密货币业务。而比特币价格从去年同期的15000美元飙升至现在的60000美元，这对金融界造成了不小的冲击。
 
-与此同时，IPD21任务组的剩余日本海军自卫队舰艇，驱逐舰JS Shiranui （DD-120）于10月28日至11月4日与美国驱逐舰USS Higgins (DDG-76) 和补给舰USNS Big Horn (T-AO-198) 在南海、东海和日本海进行了联合训练。
+摩根大通最新预计，比特币长期价格有可能翻一倍多到146000美元，而分析师警告，极端的价格波动性可能导致其价格快速滑落至35000美元。同时，在（上一轮）出现1500亿美元的加密货币价格暴跌时，大资金正在抛弃比特币而转向以太坊。
 
-在更接近家（日本）的地方，日本海上自卫队补给舰 JS Oumi（AOE-426）上周三在冲绳附近海域与美国驱逐舰杜威号（DDG-105）进行了训练。在同一天，USS美利坚号（LHA-6）在九州的海岸与日本海上自卫队直升机驱逐舰 JS伊势号（DDH-182），驱逐舰 JS Harusame（DD 102）和 JS Asahi（DD 119），导弹巡逻艇 JS Otaka（PG 826），和扫雷舰 JS Takashima（MSC 603）、JS Harishima（MSC 601）和 JS Yakushima（MSC 602）进行过综合训练。
+【备注：新中国联邦喜币正是采用的是由摩根大通开发的基于以太坊的Quorum区块链技术，Quorum是一种联盟链解决方案。】
 
-文章来源：[https://news.usni.org/2021/11/08/u-s-vinson-carrier-strike-group-drills-with-japanese-force-in-south-china-sea](https://news.usni.org/2021/11/08/u-s-vinson-carrier-strike-group-drills-with-japanese-force-in-south-china-sea)
+目前，市场上对于比特币上升到100000美元是很多加密货币市场观察家今明两年的共识。摩根大通的警告，对这种说法提出了挑战。
 
-翻译：洛杉矶盘古农场 — Raul
-校对：洛杉矶盘古农场 — Mike Li
-编辑：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 — 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+分析师也认为，由于前所未有的通胀压力，不仅是各种基金用它来对冲货币贬值，一般散户也在更多的跟进到这个财富安全天堂。目前美国通胀是13年来最高的，让比特币的价格在过去的12个月以来增加了300%，使整个加密货币市场总量增加到2万亿美元。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+市场将比特币作为黄金的通货膨胀对冲替代品有浓厚兴趣，任何这种（政府）对黄金作为“替代”货币的排挤都意味着比特币在长期内有很大的上升空间。
+
+原文链接：[JPMorgan Doubles Down On Its Massive Bitcoin Price Prediction—But Adds A Serious Warning (forbes.com)](https://www.forbes.com/sites/billybambrough/2021/11/04/jpmorgan-doubles-down-on-its-massive-bitcoin-price-prediction-but-adds-a-serious-warning/?sh=1ba9b9f14511)
+
+**发布：文武全才**
+
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
