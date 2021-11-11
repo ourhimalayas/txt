@@ -2,82 +2,36 @@
 ---
 
 
-## 中共病毒及其疫苗全球超限战中的典型案例（二十）
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1655624/)
+## 世界开始注意到有多少年轻运动员在接种新冠病毒疫苗后垂死
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1655694/)
 
-作者：香草山信息部 6zero4
+**作者：**Lance D Johnson
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-1.png)
+**翻译：**沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Effect-Abstract-Action-Active-Athlete-Attack-Background.jpg)图片来源：网络
+自然新闻：来自世界各地的年轻、健康的运动员突然开始患有心脏病、呼吸困难、神经系统疾病以及其他严重的慢性疾病。 一些运动员倒在赛场上，再也醒不过来。
+
+德国报纸《柏林日报》在一篇题为“足球中令人困惑的心脏病”的报告中注意到了这种令人不安的心脏骤停模式。 该报告试图了解为什么“最近出现了异常大量的职业和业余足球运动员”。 世界开始注意到有多少年轻运动员在接种新冠病毒疫苗后正在遭受痛苦和死亡。 杰克·卡兹马雷克 (Jake Kazmarek) 是一名 28 岁的健美运动员，在接种新冠病毒疫苗四天后意外死亡。 另一位最近接种疫苗的运动员在比赛中途昏倒； 曲棍球运动员鲍里斯·萨德基 (Boris Sadecky)（24 岁）在冰上突然倒塌后死亡。
+
+**一长串年轻的接种疫苗的运动员患有心脏问题和心脏骤停**
+
+这份德国报告记录了巴塞罗那足球俱乐部的塞尔吉奥·阿奎罗突然倒地，这位 33 岁的前锋在突然出现呼吸问题和头晕的情况下被带离了场上。 塞尔吉奥设法活了下来，但有大量运动员倒下导致住院和早逝。
+
+一位名叫迪伦·里奇 (Dylan Rich) 的 17 岁足球运动员在英格兰比赛中途死于心脏病。  24 岁的卢卡斯·苏雷克 (Lucas Surek) 患有心肌疾病，不得不被排除在 BFC Chemie Leipzig 俱乐部之外。 来自拜仁慕尼黑的 25 岁的金斯利科曼在接种疫苗后患有心律失常后接受了心脏手术。 比利时的 Rune Coghe（18 岁）在一场比赛中心脏病发作。 来自伊斯坦布尔的 31 岁的法布里斯·恩·萨卡拉 (Fabrice N’ Sakala) 倒在了球场上，不得不被送往医院。 比特菲尔德的队长迪特玛·格拉多 (Dietmar Gladow) 也在赛前心脏病发作。  Marvin Schumann 是 Gifhorn 的业余爱好者，心脏骤停，不得不被替代。  JSG Hoher Hagen 不得不在 Hannoversch Munden 中场重新使用一名 17 岁的球员。
+
+其他在运动场上心脏骤停的年轻人包括来自恩内佩塔尔 VFB Schwelm 的 Anil Usat、来自 FC Strasbourg 的 Dimitri Lienard 和 Diego Ferchaud。 这位 16 岁的年轻球员在圣洛的 U-18 联赛中晕倒。 这不应该发生在年轻运动员身上。 意大利 Saccolongo 的 Janus Nova 俱乐部的一名 13 岁足球运动员也在场上倒地。 比利时足球运动员 Jente Van Genechten（25 岁）在一场杯赛中心脏骤停。 另一名比利时足球运动员延斯·德·斯梅特 (Jens De Smet)（27 岁）在比赛中途因心脏病发作在医院死亡。
+
+成人猝死名单详尽无遗，包括教练员和裁判员。 一场比赛被放弃，因为裁判在多瑙沃斯区的劳伯 SV 心脏骤停。 在 Emersacker 的一场比赛中，一名助理裁判因心脏问题昏倒。 来自 SV Niederporing 的守门员教练在一次训练中心脏病发作。 在一次团队训练中，53 岁的主教练安东内罗在西西里的校园里倒地。 在开姆尼茨举行的女子世界杯预选赛中，一名英格兰裁判因心脏问题被罚下场。
+
+Covid 博客记录了其他几起年轻运动员在美国突然死亡的案例。 观看此视频以了解正在发生的事情。
+
+**刺突蛋白旨在引起心血管系统的炎症**
+
+没有自然感染风险的年轻运动员不断被迫接受实验性 mRNA 刺突蛋白疫苗，以保住自己的职业生涯。 人类细胞中编码的刺突蛋白旨在通过阻碍红细胞输送氧气的能力来杀死红细胞。 刺突蛋白也被证明会导致血液中的凝块，导致血凝块。 理查德·弗莱明 (Richard Fleming) 博士通过显微镜展示了红细胞与疫苗成分接触时如何被剥夺氧气，从而证明了辉瑞疫苗的这种邪恶特征。 正如 Judy Mikovits 博士指出的那样，这些刺突蛋白是在实验室中设计的，含有来自 HIV 的成分。 它们还含有合胞素，使疫苗能够表达癌症基因，造成生殖伤害和免疫缺陷。 甚至《华尔街日报》现在也在评论这些疫苗造成的损害，包括心脏炎症、心包炎和心肌炎。
+
+来源链接：[https://www.afinalwarning.com/570102.html](https://www.afinalwarning.com/570102.html)
 
 
-
-
-
-**西南航空公司无视驻地德州对疫苗强制令的禁令而执行联邦政府的疫苗强制令**
-
-2021年10月12日，总部位于德州达拉斯的西南航空公司CEO凯雷（Gary Kelly）表示，本公司将遵守拜登政府尚未正式发布的要求政府雇员和承包商都要接种疫苗的联邦强制令，而无视德州禁止任何实体单位对员工或客户实施COVID-19疫苗强制令的一项行政命令。联邦强制令只是拜登总统上个月宣布的一项针对疫苗接种的纲要，美国劳工部尚未公布该纲要具体执行的细节，但拜登总统就迫不及待地鼓励企业立即行动，而不必等到其生效日期。
-
-凯雷声称，公司在过去四天里广泛的航班取消与员工对疫苗强制令的抗议无关。如果这是真的，这面旗帜从何而来？
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-197.png)
-
-上周西南航空宣布，其56000名员工需在12月8日之前全面接种Covid-19疫苗，以保持员工的正常就业。几天前，美国航空、阿拉斯加航空和捷蓝航空等其他几家航空公司也宣布了类似的措施。
-
-**急救人员拒绝接种****COVID-19****疫苗，****911****系统处于危险之中**
-
-2021年10月12日零对冲报道，美国救护车协会（AAA）主席贝尔德（Shawn Baird）最近警告参众两院领导人：已经存在了十多年的911国家急救系统正面临着更加严重的劳动力短缺问题，应该得到国会的紧急关注。贝尔德还强调，当一个已经非常脆弱而艰难的系统，因为没有足够的人员补充进来的情况下，却还把突发公共卫生安全事件和额外的急救负担扔给这样的系统，将把这个系统置于非常危险的境地。
-
-在过去几个月里，让911急救系统劳动力短缺更加严重的是拜登政府的COVID-19疫苗强制接种令，全国各地的急救人员因为不想接种疫苗，且认为自己可以转到其他收入更高的工作岗位而大都在辞职。这严重威胁到911急救基础设施的安全，对911急救系统的破环量级明显扩大了。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-198.png)
-
-缅因州瓦尔多伯勒镇镇长凯泽（Julie Keizer）直言不讳：“疫苗强制令导致了急救人员的流失”。并表示联邦、州和地方政府官员都认为雇员因为怕失去工作而会选择顺从，但如果你看看急救人员的工资，他们运送急救包裹比运送病人赚得更多。
-
-**加拿大奥克维尔镇禁止未接种疫苗的夫妇结婚**
-
-2021年10月12日零对冲报道，在加拿大总理特鲁多（Justin Trudeau）政府实施了发达国家最严格的COVID-19疫苗强制接种规定后，安大略省一个拥有20多万居民的小城市奥克维尔镇最近将医疗暴政推向了一个新阶段：除非男女双方都能出示已经完全接种疫苗的证明，否则将拒绝向新婚夫妇颁发结婚证。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-199.png)
-
-奥克维尔镇未接种疫苗的人不仅仅是被禁止结婚，还包括将被禁止享受这些公共服务：娱乐和文化设施的室内使用，如竞技场、社区中心、游泳池、老年人中心、奥克维尔表演艺术中心和奥克维尔博物馆，市政厅的ServiceOakville柜台，以及与任何关于结婚证和婚礼的新预约。
-
-该镇政府官员在一份声明中承认这一要求超过了安大略省的要求，但坚称新要求是一种新尝试，并称新冠疫苗将为社区和城镇工作人员提供免受COVID-19疫情影响的额外保护。这显然不是关于真正的安全，而是关于控制。
-
-**联邦法官否决了纽约州州长新冠疫苗强制接种令的§****2.61****条款，裁决雇主必须给予医疗工作者宗教豁免权**
-
-2021年8月下旬，纽约州州长霍楚尔（Kathy M. Hochul）推翻了前州长库莫的疫苗强制令中包含的宗教豁免，促使17名医疗工作者在联邦法院起诉该州，他们声称该强制令与他们的宗教信仰相冲突，因为这些疫苗在开发、测试或生产中使用了导致堕胎的胎儿细胞素。
-
-2021年10月12日，纽约联邦法官赫德（David N. Hurd）针对该诉讼作出了一个初步裁决，在长达27页的裁决书中，否决了州政府COVID-19疫苗强制令中的§2.61条款，因该条款的粗暴执行与原告和其他个人从其雇主寻求宗教庇护的联邦保护权利相冲突，原告和其他人将在没有禁令救济的情况下遭受无法弥补的伤害。并裁定州卫生官员必须允许雇主对医疗工作者的新冠疫苗强制令给予宗教豁免，州卫生部不能以任何方式干预已经授予或正在授予的COVID-19疫苗接种的宗教豁免，且不能对任何给予宗教豁免的雇主采取惩罚行动。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-200.png)
-
-此举恢复了宗教豁免的有效性，捍卫了宪法赋予人们的广泛权利，让他们的宗教信仰得到考虑，并在可能的情况下得到包容。这为数千名未接种疫苗的医生、护士和其他医护人员从技术上提供了一个缓期执行疫苗强制令的机会，也就是说实际上医疗工作者在疫苗强制令生效后仍然可以继续工作，否则这些人将从今天开始将被禁止工作甚至被解雇。赫德还表示，医护人员对整个疫苗强制令的诉讼正在法院进行，原告很可能胜诉。
-
-纽约州州长霍楚尔（Kathy M. Hochul）表示坚决支持自己发布的这个加强版疫苗强制令，将在法庭上反对这一裁决并提起上诉，声称自己作为州长的责任是保护本州人民的安全，而要求医护人员接种COVID-19疫苗可以实现这一目标。
-
-图片和新闻源于:
-
-[https://www.zerohedge.com/markets/southwest-comply-biden-vaccine-order-ignore-texas-ban](https://www.zerohedge.com/markets/southwest-comply-biden-vaccine-order-ignore-texas-ban)
-
-[https://www.zerohedge.com/political/911-system-jeopardy-first-responders-are-not-down-mandated-jab](https://www.zerohedge.com/political/911-system-jeopardy-first-responders-are-not-down-mandated-jab)
-
-[https://www.zerohedge.com/political/large-canadian-town-bars-unvaccinated-couples-getting-marriedhttps://www.zerohedge.com/covid-19/judge-overrules-ny-governor-rules-employers-must-grant-religious-exemptions-healthcare](https://www.zerohedge.com/political/large-canadian-town-bars-unvaccinated-couples-getting-marriedhttps://www.zerohedge.com/covid-19/judge-overrules-ny-governor-rules-employers-must-grant-religious-exemptions-healthcare)
-
-审核/上传：浪迹天涯
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-1.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 
