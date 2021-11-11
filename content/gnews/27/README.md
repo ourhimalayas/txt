@@ -2,28 +2,29 @@
 ---
 
 
-## 国际工会联合会呼吁抵制北京冬奥会
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1656217/)
+## 有声|新闻自由不断紧缩，香港《立场新闻》总编辞职
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1656232/)
 
-采编：风云小哥   编译撰稿：文明(添草灭共)
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间11月6日，《立场新闻》总编辑钟沛权通过脸书上一个非公开的群组表示，已于当地时间11月1日辞任《立场新闻》总编辑一职。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/b-2-edited.jpg)图片来源：GNEWS
+据了解，《立场新闻》成立与2014年，由蔡东豪、钟沛权以及余家辉创立，一直以来对港共当局持批判态度，是一个偏向泛民主派的网络媒体。在香港“反送中”运动期间，该媒体持续报道抗争者动态，被港共当局视为眼中钉。 为此，早在今年6月底，《立场新闻》曾宣布，将5月之前刊出的文章全部下架，并暂停接受赞助。
 
+有知情人士透露，随着中共港区国安法的出台，香港的新闻自由度正在不断紧缩，像《立场新闻》这类媒体的“生存空间”也变得越来越小。而今，钟主编的辞职实乃意料之中，这也预示着《立场新闻》将走到尽头。
 
-据加拿大自媒体《反叛新闻》11月9日报道，【国际工会联合会】当天发布公告，呼吁【国际奥委会】及其主要赞助商，应该就即将在中共国举办的2022年北京冬奥会表明其反对立场。
+文字版原文：[新闻自由不断紧缩，香港《立场新闻》总编辞职](https://gnews.org/zh-hans/1650978/)
 
-该报告指出，中共国不仅实施强迫劳动，监禁工会成员和民主活动家，还以“反分裂和反恐怖”的名义镇压新疆少数民族和宗教群体。并就【国际奥委会】漠视在该国所发生的侵犯人权和种族灭绝罪进行了谴责。
-
-对此，【工会联合会】秘书长敦促各国政府表明正确立场，捍卫本国运动员的安全。并希望各赞助商重新审视与北京冬奥会的利益关系，以及其应该履行的“保障基本人权”价值观。
-
-尽管各国体育界对中共政府的恶行表现得相对冷漠，但仍有一些知名运动员站出来反对即将在北京举行的冬奥会。例如，美国NBA波士顿凯尔特人队的中锋球员坎特，最近就公开发表了谴责中共党魁习近平的言论，并要求该政权结束对香港人、西藏人和维吾尔人的迫害。
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://www.rebelnews.com/international_trade_union_calls_on_olympic_committee_sponsors_to_hold_china_accountable)
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

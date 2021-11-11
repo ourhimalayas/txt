@@ -2,17 +2,38 @@
 ---
 
 
-## 推特正式组建加密技术团队，聚焦加密货币相关领域
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1656373/)
+## 有声| 郭先生大直播解析喜联储的独特之处
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1656412/)
 
-推特近日已经正式组建一支全新的加密技术团队，Interchain基金会及Mina基金会委员TessRinearson已经加盟推特，领导这支新组建的团队。TessRinearson发推表示，这支新团队将「聚焦密码学、区块链和其他去中心化的技术，包括但不止于加密货币方面」。
+配音：香草山教育部 – 蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+2021年11月7日，郭先生在大直播中，对刚刚上市的喜联储，详细解说了它独有的特性。
 
-财经G评：郭先生在GETTR未上线时就反复强调了未来GETTRPay（HimalayaPay）的金融属性、优势和发展愿景。推特现在宣布正式组建加密技术团队，聚焦加密货币相关领域，凸显出GETTR的成立和未来愿景让推特真正感到了恐惧！如果GETTR没有潜力和实力，推特也不必如此。GETTR将会是未来社交媒体的引领者。
-![img](https://media.gettr.com/group24/getter/2021/11/11/08/29/2f8bbafc-d441-50ab-a35b-20779af49e2f/852094fa44b6d027d1c9e359c8ffa941_500x0.jpg)
-参考链接 [https://www.theverge.com/2021/11/10/2277…](https://www.theverge.com/2021/11/10/22774501/twitter-crypto-dedicated-team-dorsey-square-decentralization)
+首先，关于喜交所的提现限额。coinbase对普通客户目前每日提现限额是5万美元，而喜交所未来48小时上线的提现功能，最终确定为10万美元。
 
-**（文章内容仅代表新西兰-财经G乐部节目观点）**
+第二，Himalaya创建了全球第一个加密货币生态系统，发行了作为稳定币的HDO，可降低市场波动的风险，防止故意挤兑。
 
+第三，爆料革命战友会突破千万入驻喜联储，之后大机构投资者进场，加上喜联储的结构和设计，这三点决定了喜联储的王者地位。
+
+第四，喜联储使用的是私人区块链，保证每秒钟可以承载上万单的运行。并且，私人区块链最大的特点是，即使被黑客，客户的钱和币也会被找回来，绝对安全。
+
+最后，文贵先生表示：三年内，战友持有的喜币会占据总量的五分之一，只有爆料革命战友齐心协力，才会成为市场的主人，拥有控股权，这是跟共产党较量的核心，灭共是正业，是信仰！
+
+文字版原文：[郭先生大直播解析喜联储的独特之处](https://gnews.org/zh-hans/1650179/)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

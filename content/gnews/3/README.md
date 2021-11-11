@@ -2,39 +2,36 @@
 ---
 
 
-## 有声|排除中共国，美商务部长即将出访亚洲多国
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1656497/)
+## 密歇根州学校系统在大量教师因 疫苗加强针生病后关闭
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1656552/)
 
-配音：香草山美食部 – 玫瑰园
+**翻译：**真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/11/saginaw-covid-booster-3-edited.jpg)图片来源：网络
+来自THE GATEWAY PUNDIT星期三十一月十日的新闻报道：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+在许多工作人员因疫苗加强针不良反应而生病后，密歇根州一个乡镇的许多学校于周一关闭。
 
-11月7日，美国商务部宣布，部长雷蒙多将在下星期对亚洲地区进行为期三天的访问，这也是她上任后对亚洲地区的首次出访。
+由于员工因拒绝遵守疫苗规定而被解雇或辞职，萨吉诺（SAGINAW）学区和全国各地的学校都严重人手不足。
 
-根据商务部行程安排显示，雷蒙多将在11月15日访问日本一天，在16日至18日对新加坡和马来西亚进行三天访问。主要议程是，和地区国家领导人以及私营部门的伙伴商谈强化供应链、数字经济和地区基础建设项目。从行程安排可以看出，雷蒙多这次的访问地区主要是东南亚地区，但并不包括亚洲大国中共国，因而引发外界猜想。
+萨吉诺县社区学校的许多工作人员在周末接受了实验性的 COVID 加强针后，他们产生了负面反应，并且病得太重而无法重返工作岗位，迫使该镇的小学、中学和高中在周一关闭。
 
-有分析人士说，雷蒙多的这次出访，是为了推动拜登上个月底在东亚峰会上提出的建立印太地区经济框架的倡议。拜登政府的这项举动就是为了与中共在亚太地区的经济和投资活动竞争，同时提升美国供应链的安全性与稳定性。 美国商务部长首次出访的行程，与新任东亚事务助理国务卿首次出访只见日韩盟友的安排如出一辙。美国远离并对抗中共的意图越发明显。
+萨吉诺镇社区学校周一在其网站主页和 Facebook 页面上宣布：“我们的许多员工对周末在志愿诊所进行的 COVID 加强剂产生了负面反应。” “全州都存在代课教师/员工短缺的情况，这使得弥补这些缺勤进一步复杂化。”
 
-文字版原文：[排除中共国，美商务部长即将出访亚洲多国](https://gnews.org/zh-hans/1653275/)
+一位地区发言人告诉萨吉诺当地的 ABC 附属机构，造成负面反应的是疫苗加强针，而不是 Covid-19。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+学区领导没有提供有关教师正在应对的副作用的详细信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+**点评:  **密歇根州是蓝州，民主党或自由党的地盘。 “虽然说起来可能很可怕，但参与实验性疫苗的志愿者多数是自由主义者（民主党追随者），等到他们都将这种死亡和一生的痛苦放在一起时，发现他们被用作豚鼠（试验品）。 他们会成群结队地离开自由党，我已经听到很多人谈到这一点，特别是当拜登试图将其强制化，他们会惊醒是什么党强迫伤害他们并从此离开。“——–摘自评论区
 
-**更多资讯，更多关注**
+原文链接:[https://www.thegatewaypundit.com/2021/11/michigan-school-system-closes-large-number-teachers-become-covid-shot/](https://www.thegatewaypundit.com/2021/11/michigan-school-system-closes-large-number-teachers-become-covid-shot/)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+编辑/发布：LILY
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+20211111
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
 
  
 
