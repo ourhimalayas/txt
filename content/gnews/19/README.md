@@ -2,34 +2,38 @@
 ---
 
 
-## 前花旗集团CEO表示，所有大银行都将很快交易加密货币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1655342/)
+## 美国延长对中共军方相关实体公司的证券投资禁令期限
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1655399/)
 
-简评：***加密货币的迅猛发展吸引了各国政府及金融机构的注意，如萨尔瓦多已将比特币作为其法定货币。虽然加密货币市场在 2021 年经历了波折，但这并没有阻挡其飙升至新高度。周一，根据CoinGecko提供的数据，加密货币的整体市值已经达到3.03万亿美元，而四大加密货币——比特币、以太坊、币安币和Solana居功至首。相信伴随三大主要事件的逐一发生，我们的喜马拉雅币（HCN）将一路阔步买进加密货币的巅峰。***
+简评：***中共军方伪装成民营企业对美国的各方面威胁，不管是川普还是拜登都是不可回避的。***
 
-据《TheStreet.com》记者：VERONIKA BONDARENKO，2021年11月8日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-64.png)图片来源：彭博社
-花旗集团（Citigroup）前首席执行官潘伟迪（Vikram Pandit）在新加坡的一个科技会议上预测，全球所有主要银行将在“一到三年内”开始进行加密货币交易。
+据《路透社》作者：Doina Chiacu和Alexandra Alper，2021年11月8日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-65.png)图片来自原文
+华盛顿（路透社），美国总统乔·拜登在周二表示，美国将继续实施川普时期的禁令，禁止美国对中共军方拥有或控制的中国公司进行投资。
 
-潘伟迪在新加坡金融科技节（Singapore Fintech Festival）接受彭博社（Bloomberg）记者哈斯琳达·阿明(Haslinda Amin)采访时表示，随着加密货币逐渐主宰银行业和交易世界，大型银行不愿接受加密货币的态度可能很快就会发生改变。
+民主党人拜登延续了唐纳德·川普总统的一些对华（共）政策，他表示，他将延长这位共和党前任于2020年11月发布的行政命令的期限。
 
-潘伟迪在接受彭博社采访时表示：“每家大银行或证券公司都将积极考虑‘我是否也应该交易和出售加密货币资产’。”潘伟迪曾在2007年至2012年期间领导花旗集团，目前担任The Orogen Group的董事长（潘伟迪为联合创始人）。
+“中共越来越多地利用美国资本为其军事、情报和其他相关安全机构的发展和现代化提供资源，这会使中共能够长期直接威胁美国本土和美国海外军队。”拜登在给众议院议长南希·佩洛西的信中说。
 
-这一举措已经在许多地方发生。
-上周，澳大利亚联邦银行（Commonwealth Bank of Australia）宣布将很快为其客户提供交易加密货币的机会。而据Markets Insider最先报道，高盛（Goldman Sachs）、富国银行（Wells Fargo）和富达（Fidelity）都在招聘大量加密货币专家。
-作为与银河数码合作的一部分，高盛集团（Goldman Sachs Group Inc.）最近也开始交易加密货币期货。
+该行政命令最初旨在阻止美国投资公司、养老基金和其他机构购买被国防部指定为中共军方支持的中国公司的股票。
 
-潘伟迪此前曾投资过加密货币公司，如Alchemy Insights和Coinbase (COIN)。Coinbase已上市，目前股价上涨5.53%，至355,68美元。
+拜登在6月份对他的团队所说的“有法律缺陷”的川普时代命令进行了修改，责成财政部执行并“滚动”更新约59家公司的新名单，以取代五角大楼之前的名单。
 
-他对彭博社表示，纸质银行系统“繁琐”且“负担沉重”。他认为，接受数字货币可以缓解其中一些挑战。
+实体清单为禁止买卖目标公司的公开交易证券，其中包括中共最大的芯片制造商中芯国际和石油巨头中海油。
 
-潘伟迪表示：“我最大的希望是，世界各地的央行都能理解中央银行数字货币的好处，并逐步接受和采用它们。”
+拜登的新名单增加了大约10家上市公司，但删除了其他一些顶级公司，包括中共商用飞机公司（COMAC），该公司正在与波音公司和空中客车公司竞争，以及另外两家在法庭上挑战禁令的公司——高云半导体和罗工科技股份有限公司。
 
-原文连接：[https://www.thestreet.com/investing/all-big-banks-will-be-crypto-trading-soon-former-citigroup-ceo-vikram-pandit-says](https://www.thestreet.com/investing/all-big-banks-will-be-crypto-trading-soon-former-citigroup-ceo-vikram-pandit-says)
+华盛顿的对华（共）鹰派对拜登延长政策表示赞赏，但矛头直指政府自6月修订以来未能在名单中增加新的公司。
 
-翻译：洛杉矶盘古农场 — 钢蛋儿
+美中经济与安全审查委员会前主席，罗杰·罗宾逊说：“虽然我们应该为‘国家紧急状态’的延长而鼓掌……但很难理解为什么自6月3日该命令发布以来，没有在制裁名单中新增加一家中共公司？”
+
+拜登说，在情报和其他安全保障的支持下，证明中共的军工复合体会继续构成不寻常的、非同寻常的威胁。
+
+原文链接：[https://www.reuters.com/article/usa-china-securities/u-s-extends-ban-on-securities-investments-in-companies-linked-to-china-military-idUSKBN2HU23D](https://www.reuters.com/article/usa-china-securities/u-s-extends-ban-on-securities-investments-in-companies-linked-to-china-military-idUSKBN2HU23D)
+
+翻译：洛杉矶盘古农场 — 轰炸机
 校对：洛杉矶盘古农场 — Mike Li
-评论：洛杉矶盘古农场 — 钢蛋儿
+评论：洛杉矶盘古农场 — 轰炸机
 编辑：洛杉矶盘古农场 — 心照
 发布：洛杉矶盘古农场 — 恩典
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)

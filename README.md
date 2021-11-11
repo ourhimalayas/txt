@@ -15,103 +15,103 @@
 
 ---
 
-### [台湾海军陆战队员赴关岛联训](/content/gnews/1/README.md)
+### [拜登宣布继续禁止美国人投资中共军民融合企业](/content/gnews/1/README.md)
  ` 日本东京方舟农场`
 
-### [秘翻在线：喜币KO中共数字人民币](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美大屠杀博物馆发布报告 再次确认中共在新疆犯下反人类罪](/content/gnews/3/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [希拉里前财务总监成为中共国商会的说客](/content/gnews/4/README.md)
- ` wenwu`
-
-### [债权人准备对恒大提起破产诉讼](/content/gnews/5/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [不想“共富” ？ 红杉资本沈南鹏疯狂抛售资产套现](/content/gnews/6/README.md)
- ` 日本东京方舟农场`
-
-### [墙内要闻汇编 11月11日](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [11/11/2021 国际财经快讯：美国10月CPI同比急升6.2%，通胀触及30年高点；谷歌对欧盟28亿美元购物广告罚款的上诉失败](/content/gnews/8/README.md)
- ` 秘密翻译组金融团队`
-
-### [新冠病毒口服药比疫苗更毒,会毁灭神经、血液和消化系统](/content/gnews/9/README.md)
- ` NewFOC`
-
-### [债权人准备对恒大启动破产程序](/content/gnews/10/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [文·贵天成——郭文贵先生谈“京西宾馆”（一）](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中美达成更多气候保护协议](/content/gnews/12/README.md)
- ` Shuizhuyu`
-
-### [中美宣言对气候大会意味着什么](/content/gnews/13/README.md)
- ` Shuizhuyu`
-
-### [中共北交所11月15日开市](/content/gnews/14/README.md)
- ` 儒为`
-
-### [新西兰财经G乐部 2021年11月9日](/content/gnews/15/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [美国延长对中共军方相关实体公司的证券投资禁令期限](/content/gnews/16/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [“不要接种疫苗”：毒理学家揭示辉瑞的 COVID 疫苗是如何获得 FDA 批准的](/content/gnews/17/README.md)
- ` wenwu`
-
-### [大直播7·24——人工降雪的危害性](/content/gnews/18/README.md)
- ` 墨尔本雅典娜农场`
-
-### [前花旗集团CEO表示，所有大银行都将很快交易加密货币](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [秘翻在线：演员马修·麦康纳反对强制儿童疫苗的观点遭美卫生局长公开驳斥](/content/gnews/20/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [政府排挤黄金作为“替代”货币，未来比特币价格翻倍](/content/gnews/21/README.md)
- ` 墨尔本雅典娜农场`
-
-### [家庭反洗脑序列：第34篇 呼唤你天使的眼神](/content/gnews/22/README.md)
+### [康复的联邦员工对福奇提起集体诉讼](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [焦点新闻摘要 2021年11月9日](/content/gnews/23/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [日本要闻汇编 11月11日](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：不要让一群有着医学博士头衔的官僚为我们每个人做决定](/content/gnews/25/README.md)
+### [秘翻在线：习近平APEC放录制演讲，望巩固亚太“朋友圈”](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [北京假雪](/content/gnews/26/README.md)
- ` 骄子`
+### [台湾海军陆战队员赴关岛联训](/content/gnews/4/README.md)
+ ` 日本东京方舟农场`
 
-### [对郭文贵先生绝顶佩服的马云要么被做掉要么跑到美国](/content/gnews/27/README.md)
+### [秘翻在线：喜币KO中共数字人民币](/content/gnews/5/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美大屠杀博物馆发布报告 再次确认中共在新疆犯下反人类罪](/content/gnews/6/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [希拉里前财务总监成为中共国商会的说客](/content/gnews/7/README.md)
+ ` wenwu`
+
+### [债权人准备对恒大提起破产诉讼](/content/gnews/8/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [不想“共富” ？ 红杉资本沈南鹏疯狂抛售资产套现](/content/gnews/9/README.md)
+ ` 日本东京方舟农场`
+
+### [墙内要闻汇编 11月11日](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [11/11/2021 国际财经快讯：美国10月CPI同比急升6.2%，通胀触及30年高点；谷歌对欧盟28亿美元购物广告罚款的上诉失败](/content/gnews/11/README.md)
+ ` 秘密翻译组金融团队`
+
+### [新冠病毒口服药比疫苗更毒,会毁灭神经、血液和消化系统](/content/gnews/12/README.md)
  ` NewFOC`
 
-### [通货膨胀比失业更可怕](/content/gnews/28/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [中共流氓“限跌令”让房产商扛不住了](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国文森号航母打击群与日军在南海进行演习](/content/gnews/30/README.md)
+### [债权人准备对恒大启动破产程序](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [欧盟主席在华盛顿](/content/gnews/31/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
+### [文·贵天成——郭文贵先生谈“京西宾馆”（一）](/content/gnews/14/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [台积电日本设厂，或为躲避台海战火](/content/gnews/32/README.md)
+### [中美达成更多气候保护协议](/content/gnews/15/README.md)
+ ` Shuizhuyu`
+
+### [中美宣言对气候大会意味着什么](/content/gnews/16/README.md)
+ ` Shuizhuyu`
+
+### [中共北交所11月15日开市](/content/gnews/17/README.md)
+ ` 儒为`
+
+### [新西兰财经G乐部 2021年11月9日](/content/gnews/18/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [美国延长对中共军方相关实体公司的证券投资禁令期限](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [“不要接种疫苗”：毒理学家揭示辉瑞的 COVID 疫苗是如何获得 FDA 批准的](/content/gnews/20/README.md)
+ ` wenwu`
+
+### [大直播7·24——人工降雪的危害性](/content/gnews/21/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [前花旗集团CEO表示，所有大银行都将很快交易加密货币](/content/gnews/22/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [秘翻在线：演员马修·麦康纳反对强制儿童疫苗的观点遭美卫生局长公开驳斥](/content/gnews/23/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [政府排挤黄金作为“替代”货币，未来比特币价格翻倍](/content/gnews/24/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [家庭反洗脑序列：第34篇 呼唤你天使的眼神](/content/gnews/25/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [焦点新闻摘要 2021年11月9日](/content/gnews/26/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [日本要闻汇编 11月11日](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共病毒和疫苗导致医疗人员极为短缺，患病、死亡和离职是主因](/content/gnews/33/README.md)
+### [秘翻在线：不要让一群有着医学博士头衔的官僚为我们每个人做决定](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [北京假雪](/content/gnews/29/README.md)
+ ` 骄子`
+
+### [对郭文贵先生绝顶佩服的马云要么被做掉要么跑到美国](/content/gnews/30/README.md)
+ ` NewFOC`
+
+### [通货膨胀比失业更可怕](/content/gnews/31/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [中共流氓“限跌令”让房产商扛不住了](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [台积电日本设厂，或为躲避台海战火](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [中共房地产海外违约创历史新高，280亿美元债务已过期，随时引爆世界金融](/content/gnews/34/README.md)
