@@ -15,110 +15,110 @@
 
 ---
 
-### [美国10州起诉拜登政府强制医务人员接种疫苗](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共内部报告：国内癌症患者已超1100万](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [巡回法院中止令始于G-TV、G-News、盖特、班农战斗室](/content/gnews/3/README.md)
+### [美方洞悉路德蛇妖闫火鸡龚韩尚笑庄列宏James和鸡腿潘](/content/gnews/1/README.md)
  ` NewFOC`
 
-### [撒谎](/content/gnews/4/README.md)
+### [新西兰数千人抗议对新冠病毒的限制措施](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国10州起诉拜登政府强制医务人员接种疫苗](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共楼市冰封！莞惠2地新房二手房交易“脚踝斩”](/content/gnews/5/README.md)
+### [中共内部报告：国内癌症患者已超1100万](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵焦点 (11/10)：让郭先生搂不住的四件大事对喜币意味着什么？](/content/gnews/6/README.md)
+### [美国大屠杀纪念馆发布《中共国迫害维吾尔人报告》](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [巡回法院中止令始于G-TV、G-News、盖特、班农战斗室](/content/gnews/6/README.md)
+ ` NewFOC`
+
+### [撒谎](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共楼市冰封！莞惠2地新房二手房交易“脚踝斩”](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文贵焦点 (11/10)：让郭先生搂不住的四件大事对喜币意味着什么？](/content/gnews/9/README.md)
  ` 秘密翻译组-原创组`
 
-### [NIH的顶级医生反对疫苗强制令，并拒绝接种疫苗](/content/gnews/7/README.md)
+### [NIH的顶级医生反对疫苗强制令，并拒绝接种疫苗](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [20211111澳喜要闻摘要](/content/gnews/8/README.md)
+### [20211111澳喜要闻摘要](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [美国的力量是新中国联邦国防打造的三条战友保护线之一](/content/gnews/9/README.md)
+### [美国的力量是新中国联邦国防打造的三条战友保护线之一](/content/gnews/12/README.md)
  ` NewFOC`
 
-### [垄断: 谁拥有这个世界 第一部分](/content/gnews/10/README.md)
+### [垄断: 谁拥有这个世界 第一部分](/content/gnews/13/README.md)
  ` 加拿大扬帆农场多伦多视频组`
 
-### [澳大利亚昆士兰州政府将创建“打疫苗”和“不打疫苗”的两级社会](/content/gnews/11/README.md)
+### [澳大利亚昆士兰州政府将创建“打疫苗”和“不打疫苗”的两级社会](/content/gnews/14/README.md)
  ` 澳喜农场`
 
-### [全世界大量运动员突发心脏病](/content/gnews/12/README.md)
+### [全世界大量运动员突发心脏病](/content/gnews/15/README.md)
  ` 加拿大扬帆农场多伦多视频组`
 
-### [秘翻在线：澳洲卫生部官员以擅自发放疫苗豁免为由突袭一家庭医生的诊所](/content/gnews/13/README.md)
+### [秘翻在线：澳洲卫生部官员以擅自发放疫苗豁免为由突袭一家庭医生的诊所](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [郭文贵精品视频-Hcoin要与全世界的各种币共存共生](/content/gnews/14/README.md)
+### [郭文贵精品视频-Hcoin要与全世界的各种币共存共生](/content/gnews/17/README.md)
  ` 澳喜农场`
 
-### [每日快报：白宫记者因在COVID疫苗问题上发表“错误想法”而被Twitter禁止](/content/gnews/15/README.md)
+### [每日快报：白宫记者因在COVID疫苗问题上发表“错误想法”而被Twitter禁止](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [币圈新闻动态：喜币突破24HDO](/content/gnews/16/README.md)
+### [币圈新闻动态：喜币突破24HDO](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [一币赢一国一币战一国](/content/gnews/17/README.md)
+### [一币赢一国一币战一国](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [文·贵天成——文贵先生谈“京西宾馆”（二）](/content/gnews/18/README.md)
+### [文·贵天成——文贵先生谈“京西宾馆”（二）](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [宽限期已过 恒大美元债正式违约，DMSA准备对其提起破产申请](/content/gnews/19/README.md)
+### [宽限期已过 恒大美元债正式违约，DMSA准备对其提起破产申请](/content/gnews/22/README.md)
  ` 澳喜农场`
 
-### [日本新任外交部长林芳正将辞去日中议会友好协会主席职务](/content/gnews/20/README.md)
+### [日本新任外交部长林芳正将辞去日中议会友好协会主席职务](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线:从艾滋病危机到中共病毒大流行 福奇的撒谎邪恶本性从未改变](/content/gnews/21/README.md)
+### [秘翻在线:从艾滋病危机到中共病毒大流行 福奇的撒谎邪恶本性从未改变](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [墙内新闻速递](/content/gnews/22/README.md)
+### [墙内新闻速递](/content/gnews/25/README.md)
  ` 澳喜农场`
 
-### [第五巡回法庭的裁决打开美国开战前的动作之一——国会](/content/gnews/23/README.md)
+### [第五巡回法庭的裁决打开美国开战前的动作之一——国会](/content/gnews/26/README.md)
  ` NewFOC`
 
-### [文·贵天成——郭文贵先生谈“京西宾馆”（一）](/content/gnews/24/README.md)
+### [文·贵天成——郭文贵先生谈“京西宾馆”（一）](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国对中国共产党二十年前就在准备,今天已经全部在作战](/content/gnews/25/README.md)
+### [美国对中国共产党二十年前就在准备,今天已经全部在作战](/content/gnews/28/README.md)
  ` NewFOC`
 
-### [不仅仅是中共国的百姓要吃草，美国百姓也面临巨大的物价飞涨](/content/gnews/26/README.md)
+### [不仅仅是中共国的百姓要吃草，美国百姓也面临巨大的物价飞涨](/content/gnews/29/README.md)
  ` 纽约香草山MOS01`
 
-### [中共六中全会强力维稳，异议人士被迫离京行动受限](/content/gnews/27/README.md)
+### [中共六中全会强力维稳，异议人士被迫离京行动受限](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年11月10日郭先生盖特 — 视频盖特「1分05秒」](/content/gnews/28/README.md)
+### [2021年11月10日郭先生盖特 — 视频盖特「1分05秒」](/content/gnews/31/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [中共外交部：达赖需要做的是停止分裂中国的活动](/content/gnews/29/README.md)
+### [中共外交部：达赖需要做的是停止分裂中国的活动](/content/gnews/32/README.md)
  ` 首尔天池农场`
 
-### [澳大利亚将给12岁以下儿童接种莫德纳疫苗](/content/gnews/30/README.md)
+### [澳大利亚将给12岁以下儿童接种莫德纳疫苗](/content/gnews/33/README.md)
  ` 走进澳洲`
 
-### [大直播画面的美,尽显新中国联邦人的安心和自信](/content/gnews/31/README.md)
+### [日本学者引经据典讲述&#8221;经济脱中&#8221;的必要性（之二）](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本学者引经据典讲述&#8221;经济脱中&#8221;的必要性（之二）](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共病毒直接导致日本12万人次失业，女性失业渐成常态化](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [截止11.8中共病毒已造成全球3.2亿感染和1800万死亡](/content/gnews/34/README.md)
+### [截止11.8中共病毒已造成全球3.2亿感染和1800万死亡](/content/gnews/35/README.md)
  ` NewFOC`
-
-### [波音公司承认对埃塞俄比亚航空公司737 Max坠毁事件负责](/content/gnews/35/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [远离比注射疫苗更毒的口服疫苗！](/content/gnews/36/README.md)
  ` 纽约香草山MOS03`
