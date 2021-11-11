@@ -2,36 +2,36 @@
 ---
 
 
-## 新西兰总理无视大规模的反疫苗，反封城游行抗议
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1655261/)
+## 政府排挤黄金作为“替代”货币，未来比特币价格翻倍
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1655337/)
 
-**SherryOk水云间**
+**翻译：**Sara9
+**编辑：**文泓
 
-据新西兰事务网站11月10日报道， 面对11月9日惠灵顿议会大厦前的大规模游行抗议，总理杰辛达·阿德恩 (Jacinda Ardern) 选择无视，并称这些抗议者并不代表“大多数”新西兰人。这无疑给她披盖着的虚伪的民主面纱上又戳了一个大洞。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/11.11-1.jpg)图片来源：Blockonmi
 
-周二，[成千上万的抗议者](https://www-stuff-co-nz.translate.goog/national/126930785/noisy-anti-vaccine-mandate-protest-winds-down-at--parliament?rm=a&amp;_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)涌入议会大厦前院，抗议 Covid-19 疫苗接种运动，特别是许多员工如果希望保住工作，他们将被迫接种疫苗。
 
-许多人举着标语，指责媒体和阿德恩腐败或是共产主义者，并大声要求她和其他政客出来面对人群。
+今年比特币和其他加密货币横扫华尔街，很多大银行纷纷介入加密货币业务。而比特币价格从去年同期的15000美元飙升至现在的60000美元，这对金融界造成了不小的冲击。
 
-阿德恩说，大多数新西兰人不同意抗议者的观点，但他们有权抗议。她说她可以从她的办公室听到抗议声，因为议会通常会为抗议者提供麦克风。她没有考虑出去和他们说话。
+摩根大通最新预计，比特币长期价格有可能翻一倍多到146000美元，而分析师警告，极端的价格波动性可能导致其价格快速滑落至35000美元。同时，在（上一轮）出现1500亿美元的加密货币价格暴跌时，大资金正在抛弃比特币而转向以太坊。
 
-事实上，没有政客出去见抗议者或向抗议者发表讲话。
+【备注：新中国联邦喜币正是采用的是由摩根大通开发的基于以太坊的Quorum区块链技术，Quorum是一种联盟链解决方案。】
 
-成千上万的抗议者在惠灵顿游行。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-10-1.png)
-1984 年进入众议院的议长特雷弗·马拉德 (Trevor Mallard) 表示，他从未见过议会像周二一样被封锁——许多门都无法使用，大门紧闭。
+目前，市场上对于比特币上升到100000美元是很多加密货币市场观察家今明两年的共识。摩根大通的警告，对这种说法提出了挑战。
 
-在野党国家党党魁柯林斯说，抗议活动中传达了各种各样的信息。柯林斯说：“绝大多数抗议者都是出于非常和平的目的，并没有煽动任何仇恨或暴力。”
+分析师也认为，由于前所未有的通胀压力，不仅是各种基金用它来对冲货币贬值，一般散户也在更多的跟进到这个财富安全天堂。目前美国通胀是13年来最高的，让比特币的价格在过去的12个月以来增加了300%，使整个加密货币市场总量增加到2万亿美元。
 
-“我认为有相当多的反疫苗抗议活动，但也有相当多的反政府抗议活动。”
+市场将比特币作为黄金的通货膨胀对冲替代品有浓厚兴趣，任何这种（政府）对黄金作为“替代”货币的排挤都意味着比特币在长期内有很大的上升空间。
 
-抗议者之一的默里·阿特金斯告诉记者，他从吉斯本赶来参加抗议活动，因为他即将因强制疫苗规定而失去驾驶教练的工作。
+原文链接：[JPMorgan Doubles Down On Its Massive Bitcoin Price Prediction—But Adds A Serious Warning (forbes.com)](https://www.forbes.com/sites/billybambrough/2021/11/04/jpmorgan-doubles-down-on-its-massive-bitcoin-price-prediction-but-adds-a-serious-warning/?sh=1ba9b9f14511)
 
-他不相信疫苗是安全的，并表示是否接种应该是他的选择。
+**发布：文武全才**
 
-评论： 新西兰总理杰辛达一贯擅长媒体作秀，打造自己富有同情心，公正果断的领导人形象，但这次疫情操控，越来越暴露其独裁和狠毒的本性。从大言不惭公开对媒体表示要将新西兰人分成疫苗族和非疫苗族两类，到公开取消媒体采访，因为不想听到毛利妇女的当面质问， 到如今面对成千上万人民众在眼皮底下抗议，可以视若无睹，轻描淡写地否定民意，无一不将这个曾担任国际共产主义青年团团长的极左分子真面目暴露无疑。新西兰人民没有看走眼，独裁者就是人民的敌人，不将独裁者拉下马，人民就将永世不得翻身。
-
-[新闻链接](https://www.stuff.co.nz/national/politics/300450012/covid19-nz-jacinda-ardern-says-protest-outside-parliament-not-representative-of-vast-bulk-of-kiwis)
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,26 +2,49 @@
 ---
 
 
-## 秘翻在线：澳洲卫生部官员以擅自发放疫苗豁免为由突袭一家庭医生的诊所
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1655038/)
+## 美方洞悉路德蛇妖闫火鸡龚韩尚笑庄列宏James和鸡腿潘
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1655161/)
 
-#### 翻译/撰稿：zzballack
+![](https://assets.gnews.org/wp-content/uploads/2021/11/E7XrBJSUUAY8myE_副本.jpg)
+据[2021年11月10日 文贵大直播：中共六中全会内部报告：中国癌症发病人数第一，与病毒相关性死亡1370万人；香港外籍人士撤离历史新高，大量外汇移出，香港在6个月内成为金融空港；对病毒真相的掩盖造成医疗行业医务人员流失短缺；六中全会就是中共内斗，抓人，习一神要做2件事；](https://gtv.org/video/id=618bc611e7e7703792324e25)时间2：57：44——
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-4.png)图片来源：澳州《世纪报》（The Age）
-据《网关专家》（Gateway Pundit）11月10日报道，本周三（11月10日）下午，澳大利亚卫生部的七名授权官员突袭了马克·霍巴特（Mark Hobart）医生开设在维多利亚州阳光北区（North Sunshine）的外科诊所。在他拒绝交出病人的机密档案、一本预约簿和其他文件后，政府官员强制没收了这些文件。
+**郭文贵先生：**再一个就是这次我们大家要看到的，盖特赢得了西方的尊重。我问他们，我说你们别用盖特啊，你用Facebook去呀！你右派媒体也好，你美国自由媒体也好，75亿人为啥没有第二个Twitter，没有第二个YouTube、Facebook，我们做到了。吹牛呢？是吧？
 
-澳大利亚政府指控他涉嫌发放伪造的中共病毒疫苗豁免证明。卫生部表示，豁免证明只能发给符合标准的人。据负责的官员说，他们担心维多利亚州各地有少数医生给一些可能不符合条件的人发放豁免。
+就连现在我说要马上要SPAC的那个公司，原来是以川普、班农起来的，现在要把他们都踢出去，说我们不要太多政治化，是吧？都要把他踢出去，也不想让川普用了，也不想让班农战斗室用了。就这么牛啊！咱就盖特这个，而且看看今天的功能、昨天的功能，每天都进展中，每天都更新中。
 
-霍巴特医生是一位拥有三十多年经验的家庭医生，他一直是维州政府封锁做法的坚定批评者，指责政府是基于“不合理”的数据来实施封锁，而且封锁造成的死亡比病毒更多。霍巴特博士还是众所周知的反中共病毒疫苗人士，他直言不讳地支持使用伊维菌素治疗中共病毒，并敦促政府推广使用该药而不是还在临床试验阶段的中共病毒疫苗。
+然后再我们的喜联储，全球都在了解我们战友，战友们在全球越来越多，而且我们都是守法的，我们没有一次跨过红线——道德红线&法律红线。人家都盯着呢，不是我说，不是你说，不是共产党自喊自卖，是我们真正做到了守法、守规则，展示了新中国人的形象。
 
-霍巴特医生的一位支持者在目睹了此事后，将现场视频发到了脸书上。该视频被疯狂传播，目前已有1.9万次分享。霍巴特医生在诊所被突袭后说道：“七名来自卫生部的授权官员，没收了病人的秘密档案、我的预约本以及其他各种文件。他们说会给我一份他们拿走的东西的明细清单，这是个相当可怕的经历。”
+然后包含头两天我们这个G-Fashion，人家讲了句话，咱有些战友可能不爱听，他说你这个G-Fashion很漂亮，你们展示的新中国形象很好。但是我觉得你那些展示的新中国人还需要精气神儿再提升一些。哈哈，这话是当然了，我觉得咱们都需要提升，我也需要提升，我说我们虚心接受，因为都在共产党那么多年了我说，那个精气神儿一下子还缓不过来，还需要一个（提升），这是新中国联邦存在的价值，人家说的很直接，是吧？
 
-卫生部官员还在他的诊所大门上贴出告示说：“维多利亚州政府已经禁止病人进入这间外科诊所，因为霍巴特医生拒绝交出你的私人档案和病人的秘密档案。”
+兄弟姐妹们，当我们今天直播的时候，我们10天上市、2万亿的估值。现在2000亿的流通市值，人类上没有一个发生的，没有一件事不是创造奇迹的，而且都是真真实实的。
 
-澳州的医疗暴政愈演愈烈，人们的自由言论空间每况愈下。霍巴特医生的遭遇既让人震惊，又觉得在情理之中。澳州政府早已沦为大重启势力和制药寡头的傀儡，霍巴特医生反封锁反疫苗而且擅自颁发疫苗豁免证明的言行，自然被其视为眼中钉。不仅澳州，欧美等民主国家也在逐渐变为法外之地，医疗规定成了随意抓人、罚款和解雇等暴行的借口。世界到了需要改变的时候，全世界热爱和渴望自由的人们需要勇敢地站出来捍卫自己的个人权利。
+那我们说到这的时候说美国巡回法院这个东西，它跟咱这有关系，如果你没看到跟咱有关系，你就今天完全不懂巡回法院是啥东西，没有咱的一次次爆料，没有咱的一天天的G-TV、G-News还有盖特，不可能有巡回法院这件事！我可以告诉你，没有班农战斗室，绝不可能。你看巡回法院的意义是什么？绝不可逆转的美国最终要把疫苗强令执行一定会停止！而且它一定会改变美国所有的政治生态，改变哪个？国会、白宫、国防部、医疗。
 
-新闻来源：[Australia’s Tyrannical Department of Health Raids Anti-Lockdown Doctor’s Clinic and Seizes Patient’s Confidential Files](https://www.thegatewaypundit.com/2021/11/australias-tyrannical-department-health-raids-anti-lockdown-doctors-clinic-seizes-patients-confidential-records/)
+接下来所有被改变的力量都会成为新中国联邦的支持力量，巡回法院的整个中止令的意义所在，今天咱讲，救大家的命、救全世界的命、新中国联邦的价值、新的信用，而且这些东西来自于G-New、G-TV、盖特、所有战友的努力，你不这么看你就不会爱自己！你就不会尊重自己！你们服不服？
+
+（以下暂略）
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

@@ -2,41 +2,31 @@
 ---
 
 
-## 远离比注射疫苗更毒的口服疫苗！
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1654808/)
+## 中共六中全会强力维稳，异议人士被迫离京行动受限
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1654897/)
 
-作者：纽约香草山农场健身部 – 幸福鸟
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月10日七哥在大直播中披露了在欧洲的科学家透露的关于口服疫苗的内幕。口服药是当年用于对付艾滋病，性病，以及非洲的痢疾、霍乱的药方。它是激素，连续吃几天脖子就会跟脑袋一样粗。其危害对癌症患者或曾经做过手术的人尤其巨大。它可能会严重诱发心脏病，特别是对有糖尿病病史的患者来说，极其危险。
+![上海举行的中国国际进出口展销会媒体中心的多面电视屏幕正在播放中国领导人习近平的讲话。（2021年11月4日）](https://gdb.voanews.com/14A20770-E17A-439D-96D5-CE16FE1C5FCF_cx0_cy4_cw0_w1023_r1_s.jpg)*上海举行的中国国际进出口展销会媒体中心的多面电视屏幕正在播放中国领导人习近平的讲话。（2021年11月4日）*
+据美国之音11月11日报道，中共19届六中全会即将于11日落幕，会中通过的“历史决议”可望让中共国国家主席习近平的权势再攀高峰。就在习近平炮制“新毛主义”的同时，北京当局依照惯例在会议期间升级维稳，多名异议人士遭拦截、被迫返乡，网路言论也受到打压。部分观察人士示警，中共国对民众的严密监控恐将成为常态。
 
-![全球首款新冠口服疫苗進臨床 以色列Oravax一期試驗8月啟動- 環球生技](https://d3gjxtgqyywct8.cloudfront.net/o2o/image/ae69f139-3cff-46b1-9815-f097b9bd3cc4.jpg)
+六中全会是中共自1949年建政以来第三次推出的特殊历史决议。会议期间北京部署特别维稳行动，全国各地也在加强警戒，因为中共明年将举办北京冬奥会并召开二十大。这种高压状态很可能会持续下去，成为一个常态。
 
-看来，最近被炒得沸沸扬扬的口服疫苗甚至比注射疫苗更加可怕！归纳起来主要有以下两点：
+中共对内强权监管百姓，控制百姓的一举一动，甚至言谈思维。对外吹嘘大国自信。真的大国自信就打开国门，推倒防火墙，让百姓畅快淋漓地接触外面的世界。中共在灭亡之前，肯定会加强管控的强度和力度。中共的疯狂就是其灭亡的前奏。
 
-1.它是口服疫苗，不像注射疫苗一样直接进入血液，造成血管堵塞，导致心肌炎、心包炎、脑梗等等。它是通过服用而进入胃部，分解以后直接影响神经系统，然后进入血液。它的副作用是慢慢产生的。它不仅将对人的神经和血液循环系统、消化系统造成毁灭性伤害，而且还在不知不觉中就让人患心梗、脑梗、癌症、以及其它慢性病。口服疫苗何其歹毒！
+新闻参考链接：[https://www.voachinese.com/a/China-tries-to-silence-activists-as-CCP-Central-Committee-holds-sixth-plenum-in-Beijing-20211111/6307785.html](https://www.voachinese.com/a/China-tries-to-silence-activists-as-CCP-Central-Committee-holds-sixth-plenum-in-Beijing-20211111/6307785.html)
 
-2.更容易通过药监局的审查和蒙蔽民众！阴险狡猾的无良疫苗制造商犹如白骨精一般千方百计地变换花样来谋财害命！可是他们难逃七哥的火眼精金，邪恶和丑恶的白骨精们在七哥以及跟随七哥的有良知的科学家持有的照妖镜里原形毕露，无处遁形！
+编辑：胖丁
 
-成千上万个跟随七哥的战友们将不遗余力地向家人，朋友以及世界传播真相，从而让大家远离口服疫苗。新中国联邦将成为邪恶的CCP以及黑暗势力的掘墓人，成为照亮世界的希望的灯塔！
+* * *
 
-参照：[https://gtv.org/video/id=618bc611e7e7703792324e25](https://gtv.org/video/id=618bc611e7e7703792324e25)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/904371534930534400/Screen_Shot_2021-10-31_at_10.05.40_PM.png)
 
-**校对/发稿：童谣**
+编辑：【英国伦敦喜庄园编辑部】
 
-**更多资讯，更多关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
