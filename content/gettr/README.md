@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/11/2021 3:41 PM (UTC)`
+
+11月11号：尊敬的战友们好！共产党的光棍节骗局，彻底破产，共产党的房地产骗局将给世界的经济带来巨大的灾难……莘县阳谷县达县咱走着看！
+![img](https://media.gettr.com/group44/getter/2021/11/11/15/41/de387d35-2edc-5d0c-93be-348fc83dd05b/out.jpg)
+
+---
+
 `@miles 11/11/2021 7:50 AM (UTC)`
 
 11/10/2021 Miles Guo: Our scientist fellow fighters revealed that the oral drugs against the CCP virus pushed by the crooked pharmaceutical companies to evade regulation are more poisonous than the COVID vaccines, and these drugs can result in a range of problems in the blood, nervous and digestive system. Fellow fighters, stay away from these drugs!<br/><br/>11/10/2021 文贵直播：科学家战友爆料称，无良药企为逃避监管而强推的口服抗中共病毒药比疫苗更毒，会导致血液、神经、消化系统等一系列严重问题。战友们千万别碰！<br/>
@@ -285,13 +292,6 @@ The vaccination disaster has gradually become prominent: The patients in the ICU
 
 11/7/2021 Miles Guo: The biggest threat posed by the Himalaya Exchange to the CCP is to deprive the CCP’s control in the era of digital currency; The core technology of the Himalaya Exchange is the private blockchain, which ensures transactions to be processed in a secure and highly efficient manner, with all stolen Himalaya Coins being recoverable; no individual or government can access the personal information in the private blockchain<br/><br/>11/7/2021 文贵直播：喜联储对中共最大的威胁是让其在数字货币时代丧失控制权；喜联储的核心技术是私人区块链，它能高效和安全地处理交易，并保证被偷的喜币可全数追回；任何人或政府都无法获取私人区块链内的个人信息<br/>
 ![img](https://media.gettr.com/group11/getter/2021/11/08/00/11/3a3eae65-b8c9-33d5-a529-23c7373fe0da/out.jpg)
-
----
-
-`@miles 11/7/2021 12:26 PM (UTC)`
-
-2021年11月7日 文贵大直播：虚拟货币知多少     喜币未来有多牛
-![img](https://media.gettr.com/group16/origin/2021/11/07/12/717a6e8c-396a-fa23-382a-5a5787a88ddd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
