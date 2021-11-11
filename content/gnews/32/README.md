@@ -2,56 +2,50 @@
 ---
 
 
-## 还有8 天&#8230;&#8230;福奇最糟糕的噩梦开始
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1653954/)
+## 韩国推广疫苗加强针
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1654125/)
 
-编译：Jenny Ball
+作者：纽约香草山农场 – 四季
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-6-2.jpg)8 天后小罗伯特·肯尼迪 (Robert F. Kennedy, Jr.) 的书——《真正的安东尼·福奇：比尔·盖茨、大型制药公司以及全球民主和公共卫生战争》——将出版。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-11 月 16 日，小罗伯特·肯尼迪 (Robert F. Kennedy, Jr.) 的书——《真正的安东尼·福奇：比尔·盖茨、大型制药公司以及全球民主和公共卫生战争》——将出版。今天可以预订了。
 
-以下是电影制片人米基·威利斯 ([**Mikki Willis**](http://elevate.us/team/)) 对肯尼迪[备受期待的书](https://www.amazon.com/Real-Anthony-Fauci-Democracy-Childrens/dp/1510766804)的评价：
 
-在美国政治史上，没有哪个家族比肯尼迪家族更能为人民服务。
 
-约翰·F·肯尼迪和他的兄弟罗伯特·F·肯尼迪，因敢于揭露全世界才刚刚崛起的腐败而付出了最终的代价。
 
-几十年来，小罗伯特·肯尼迪 为纪念他勇敢的父亲和叔叔的遗产，一直警告世界大型制药公司不计后果的疫苗议程的危险性。
+[OANN](https://www.oann.com/south-korea-urges-covid-19-booster-shots-as-severe-cases-hit-record/)11月10日报道，伴随着越来越多的老人患病并报告疫苗突破性感染，使严重和危重病例创下纪录，韩国政府鼓励其公民接种COVID-19加强针。
 
-作为儿童健康防御的创始人，肯尼迪一直在冒着风险，同时不知疲倦地保护我们的孩子。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1393-1-2021-11-10T065222Z_2_LYNXMPEHA90CS_RTROPTP_0_HEALTH-CORONAVIRUS-SOUTHKOREA_1.jpg)‎2021年11月10日，一名男子在韩国首尔的一个检测点接受冠状病毒（COVID-19）检测。（REUTERS/Kim Hong-Ji）
 
-我很荣幸地宣布，我的朋友兼盟友肯尼迪，刚刚完成了我认为有史以来最重要、最及时的书之一！
+官方数据显示，严重的冠状病毒病例从10月份的300多例跃升至周三的460例。在重症患者中，82%以上是60岁以上的人。
 
-《真正的安东尼·福奇》([The Real Anthony Fauci](https://www.amazon.com/Real-Anthony-Fauci-Democracy-Childrens/dp/1510766804))详细而毁灭性地揭露了医疗-工业-媒体综合体的内部运作，以及它如何扭曲了美国和世界各地的健康和康复。
+自上个月开始实施该计划以来，该国已为640232人接种了加强针，主要使用辉瑞， BioNTech和Moderna的疫苗。
 
-关于本书，我向您提出三个要求：
+韩国本月开始逐步放宽对COVID-19的限制，因为它已经为近90%的成年人口，即5200万人口中的77%进行了全面接种。
 
-考虑为您当地的图书馆以及朋友和家人购买一本，甚至多本。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
 
-收到您的副本后，请转到您的社交媒体频道并发布一张您自己拿着它的照片。请记住包含订购链接，以便其他人可以轻松订购该书。
+编辑/校对/发稿：小鹿
 
-在亚马逊上写评论。无论好坏，亚马逊是当今图书销售的最大力量，那里的评论具有强大的影响力。
 
-（如果你更喜欢在当地书店买书，那也是一个很大的帮助。）
 
-随着#FIREFAUCI 在全球的趋势，现在是了解“真正的安东尼·福奇”的最佳时机。
+**更多资讯，更多关注**
 
-立即预订您的书 – 在他们烧毁它之前！
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**评论：我在翻译的时候收到信息：“我的物业销售代理的侄子**** 33****岁 死于癫痫发作，他的同事****50****岁， 死于心脏病发作，他们都打了疫苗！”**
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**现在我们已经在看到文贵先生警告说的：今年年底到 2022 年 5 月将是疫苗灾难爆发期。 可悲的是这竟然是最终唤醒人们的代价！相信小罗伯特·肯尼迪 的新书《真正的安东尼·福奇》，将让更多的人们看到疫苗的真相，以及用疫苗达到控制人类的邪恶目的！**
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**参考资料：**[childrenshealthdefense.org][8 Days and Counting … Fauci’s Worst Nightmare](https://childrenshealthdefense.org/defender/the-real-anthony-fauci-robert-f-kennedy-jr-8-days/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=bacfeb99-68bd-467f-b0e1-93d81e788906)
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-* * *
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
+
+
+
 
  
 
