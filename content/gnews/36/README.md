@@ -2,34 +2,43 @@
 ---
 
 
-## 日本要闻汇编 11月11日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1655331/)
+## 希拉里前财务总监成为中共国商会的说客
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1655495/)
 
-#### 素材：东京樱花团丨GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-17.png)
-1、[**日本与默克达成160万剂新冠口服药协议**](https://china.kyodonews.net/news/2021/11/c86002ad92df-160.html)
+**翻译：西班牙巴塞罗那喜悦农场-wenwu**
 
-日本厚生劳动相后藤茂之10日晚宣布，已与美国制药巨头默克就提供总计160万剂新冠患者口服药“莫纳皮拉韦”达成协议。提供的前提是在日本国内获得药事批准。后藤称，预计最快年内接受20万剂，明年2月和3月分别接受20万剂，之后接受剩下的100万剂。“莫纳皮拉韦”由默克等公司研发。临床试验结果显示，该药具有大幅降低有重症化风险的轻症至中等症状患者住院和死亡风险的效果，受到瞩目。英国4日在全球率先批准。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip13.png)图片来源：thenationalpulse.com
 
-2、[**自民党最大派系“安倍派”成立**](https://china.kyodonews.net/news/2021/11/4d3f4c44a13b.html)
+Jonathan Mantz–希拉里·克林顿的前财务总监，”在其职业生涯中为民主党竞选活动筹集了近5亿美元”–现在是华南美国商会的说客，该商会寻求制定对在中共国做生意的美国公司有利的政策，并经常与中共合作来实现这一目标。
 
-日本自民党最大派系“细田派”11日在党总部召开所属议员大会，正式决定前首相安倍晋三重返派系，并接替出任众院议长的细田博之的会长一职。“安倍派”由此成立。安倍还提及修改《宪法》，呼吁“修宪是立党以来的党基本方针。让我们站在讨论的最前线”。安倍2012年就任党总裁时退出“细田派”前身“町村派”。2020年9月辞去首相职务后也无派系，派内对安倍重返并出任会长的期待升温。
+根据BGR 集团（BGR Group）的负责人乔纳森·曼茨( Jonathan [Mantz)](https://projects.propublica.org/represent/lobbying/r/301034643)的职业简历，她曾“领导该公司的民主党外展工作”，并担任民主党州长协会财务委员会的成员。
 
-3、[**日特批辉瑞疫苗用于18岁以上接种第三剂**](https://china.kyodonews.net/news/2021/11/ae498ae04533-18.html)
+“在过去的三十年中，乔纳森（Jonathan）在选举民主党人进入白宫、参议院、众议院和州长职位方面，曾担任过高级职务。作为一名领先的政治战略家，他在其职业生涯中为民主党的竞选活动筹集了近5亿美元。”摘要中补充道，包括担任时任参议员希拉里·克林顿的2008年总统竞选活动的全国财务总监等职务。
 
-日本厚生劳动省11日特批美国辉瑞公司的新冠疫苗作为第三剂追加疫苗使用，对象为18岁以上人群。政府基于《预防接种法》决定免费接种等事宜。厚劳省建议在完成两剂接种8个月后接种第三剂，预计12月起将从医护人员开始陆续实施接种。
+曼茨还曾担任南希·佩洛西领导下的民主党国会竞选委员会（DCCC）的财务总监。
 
-4、[**日本10月企业物价指数升幅创40年新高**](https://china.kyodonews.net/news/2021/11/0091cc838a1c-1040.html)
+在长期从事民主政治工作之后，曼茨现在代表华南美国商会（American Chamber of Commerce in South China）进行游说。游说登记[文件](https://disclosurespreview.house.gov/ld/ldxmlrelease/2021/Q3/301314138.xml)显示，曼茨正在对国家安全委员会（NSC）进行游说，并提供“双边问题的战略咨询”。
 
-日本央行11日公布的10月国内企业物价指数（2015年平均为100）初值为107.8，较上年同期上升8.0%。受原油价格上涨和日元贬值的影响，材料依赖进口的产品推升了指数。10月升幅创下了自1981年1月（8.1%）起40年零9个月以来最大，指数则是1986年2月（107.8）以来的最高值。企业物价指数反映企业间交易商品的价格变化。指数上升带来的成本增加部分若企业能转嫁至对消费者的销售价格中，则将变为家庭消费负担，若因消极购买而无法转嫁则成为企业负担，恐将导致经济趋冷。
+该商会的主要[目标](http://www.amcham-southchina.org/amcham/static/about/introduction.jsp)是“促进中美贸易、商业和投资的发展”，并包括拥有超过 2000 多家公司作为其成员。“通过与我们的 2300 多名公司成员进行对话，我们制定了代表整个商会切身利益的政策目标，然后在美国和中华人民共和国的地方、地区和国家层面上追求这些目标，”该商会声称。
 
-5、[**岸田起用亲中背景林芳正惹争议**](https://www.aboluowang.com/2021/1111/1670576.html)
+然而，为了做到这一点，该商会经常与中国共产党合作举办活动和会议。
 
-日本首相岸田文雄昨天（10日）被新国会选为第101任首相，第2次岸田内阁启动。内阁中唯一移动的阁员是外务大臣由林芳正。由于林芳正从2017年12月开始担任国会中的亲中组织“日中友好议员联盟”会长，他的亲中背景引发各界关注。前首相安倍与麻生都担心林芳正担任外相，在对中国关系上，可能会对国际社会释放出错误讯息。
+即将举行的中共国（山西）-美国投资研讨会是由华南美国商会与山西省的中国共产党官员合作[主办](https://amcham-southchina.glueup.cn/event/34432/?pk_campaign=widget-event-list)。该商会还[组织](https://amcham-southchina.glueup.cn/event/33452/?pk_campaign=widget-event-list)了支持中共国“一带一路”倡议的活动，美国国务院警告说，北京“为中共国公司扩大海外市场，并作为吸引各国，特别是其政治和经济精英进入北京地缘政治轨道的一种手段。”
 
-*编辑：东京樱花团 / 文小白
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+“在广东省委、广东省人民政府的支持下，它是与’一带一路’倡议相呼应的重要的商贸交流与合作高端平台，”该商会的活动摘要指出。
+
+华南美国商会还赞助了一些[活动](https://amcham-southchina.glueup.cn/event/34290/?pk_campaign=widget-event-list)，并将商会的公司成员与中国共产党和军事相关的公司联系起来，如BGI[华大基因](https://thenationalpulse.com/exclusive/bgi-genomics-gates-foundation-collab/)，华为分拆的Honor公司，DJI[大疆无人机](https://thenationalpulse.com/politics/biden-staffers-dji-drones/)。
+
+“商会代表团将专注于医疗保健、制造和科技行业，并为我们的公司成员提供与深圳市商务局、深圳市卫生委员会，以及深圳市药品监督管理局的政府官员会面的独家机会，”最近访问上海的商会代表团的描述指出。
+
+**新闻来源**：[thenationalpulse.com] [Pelosi, Clinton Finance Director Becomes Lobbyist ForChinese Chamber Of Commerce.](https://thenationalpulse.com/news/clinton-finance-director-to-lobby-for-amcham-china/) | 发布时间：2021年11月10日｜
+
+* * *
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

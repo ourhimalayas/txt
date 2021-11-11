@@ -2,10 +2,12 @@
 ---
 
 
-## 11/10/2021 文贵直播：中共的六中全会变成了内斗
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1655790/)
+## 中共当局用运牛车转运被隔离人员
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1655896/)
 
-秘密翻译组-北美组
+11/09/2021 中共当局用运牛车转运被隔离人员。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,21 +2,21 @@
 ---
 
 
-## 喜交所日提额上限10万，开创金融界神话
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653904/)
+## 海豹突击队队员起诉美军方疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653906/)
 
 作者：纽约香草山文艺部 – 宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月9日喜交所已开通了日提额10万美元上限功能。这一举措将激起金融界的惊涛巨浪，也谱写了金融界的提额神话。如文贵先生所说，这是改变世界金融系统的又一个开始，世界很快就没有人再需要信用卡、支票、银行帐号，人类将实现真正的财富自由和绝对的财富隐私，保密安全，有尊严得享受自己创造的财富。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-6.jpg)
-喜联储的高额提现，表明自己有强大的经济实力，能满足投资者的提现需求，并且投资者可以随时进出。也表现了对投资者的诚意，保护投资者的利益，让投资者真正做到“我的钱我做主”，享有用钱的自由。同时，体现了新中国联邦，“以人为本”的人文关怀。
+11月9日，美国数十名海豹突击队队员发起联邦诉讼，反对军方的疫苗强制接种令。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-5.jpg)
+这一诉讼由美国法律组织“第一自由研究所”代表原告方发起，有大约 35 名海豹突击队现役队员和 3 名海军预备役人员共同提出诉讼。本次诉讼的起因是，美国海军要求现役人员必须在 11 月 28 日之前完成疫苗的完全接种，预备役人员需要在 12 月 28 日之前完成接种。原告方主张，美国军方强迫他们接种疫苗，侵犯了美国军人的宪法权利，包括第一修正案的自由权利和《恢复宗教自由法》的权利。
 
-参考链接：[喜交所日提额上限10万，开创金融界神话](https://gettr.com/post/pgjsjg12a2)
+参考链接：[海豹突击队队员起诉美军方疫苗强制令](https://mp.weixin.qq.com/s?__biz=MjM5MDk1NzQzMQ==&amp;mid=2653520011&amp;idx=5&amp;sn=6d1ade10341b89b4f58b94a402c71bd9&amp;chksm=bd61ca938a164385da6cb7aad765b3006ed2b03512d479ff4557e6c084547e09eff5fb1f2795&amp;mpshare=1&amp;scene=23&amp;srcid=1110gEEMrBYriKLp6XX77LPW&amp;sharer_sharetime=1636541600554&amp;sharer_shareid=cfbee3ebfb5cdbcbdd48c08797ee2f88#rd)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：木白
-编辑：木白
+总编：文特
+编辑：AN
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
