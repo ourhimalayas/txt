@@ -2,50 +2,57 @@
 ---
 
 
-## 韩国推广疫苗加强针
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1654125/)
+## 拜登财政部提名人希望让煤炭、石油和天然气公司破产
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1654176/)
 
-作者：纽约香草山农场 – 四季
+作者：Ian Miles Cheong
+翻译:   HimaCoby
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/A1.png)
 
+美国总统乔拜登提名的货币审计长办公室负责人绍尔奥马洛娃表示，她希望看到石油和天然气公司破产以应对气候变化。
 
+赌注很高，如果得到确认，奥马罗娃将填补该职位负责监管美国银行系统并确保美国最大的银行顺利运营。换句话说，主计长是美国政府监管银行的总会计师。
 
+在耆那教家族研究所 2021 年社会财富研讨会 (SWS) 系列举办的研讨会上，奥玛洛娃表示，煤炭、石油和天然气行业的参与者必须在短期内破产。
 
+“这里我想到的主要是煤炭工业和石油和天然气工业。该行业的许多较小的参与者可能会在短期内破产，至少如果我们想应对气候变化，我们希望他们破产，“奥马罗娃在美国问责基金会发掘的剪辑中说。
 
-[OANN](https://www.oann.com/south-korea-urges-covid-19-booster-shots-as-severe-cases-hit-record/)11月10日报道，伴随着越来越多的老人患病并报告疫苗突破性感染，使严重和危重病例创下纪录，韩国政府鼓励其公民接种COVID-19加强针。
+奥玛洛娃曾表示，气候变化带来的经济影响和失业对美国来说太严重了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1393-1-2021-11-10T065222Z_2_LYNXMPEHA90CS_RTROPTP_0_HEALTH-CORONAVIRUS-SOUTHKOREA_1.jpg)‎2021年11月10日，一名男子在韩国首尔的一个检测点接受冠状病毒（COVID-19）检测。（REUTERS/Kim Hong-Ji）
+正如气候线所详述的那样，自 2014 年以来一直担任康奈尔大学法学院教授的奥玛洛娃已经警告过化石燃料公司带来的财务风险。奥玛洛娃 呼吁建立一个新的联邦当局，以投资经济上可持续的项目以及支持“社会包容性和可持续经济增长”的项目。
 
-官方数据显示，严重的冠状病毒病例从10月份的300多例跃升至周三的460例。在重症患者中，82%以上是60岁以上的人。
+针对奥马洛娃在新出现镜头中的言论，参议员汤姆·科顿和众议员奇普·罗伊表达了他们对拜登提名人的担忧。
 
-自上个月开始实施该计划以来，该国已为640232人接种了加强针，主要使用辉瑞， BioNTech和Moderna的疫苗。
+“这个精神错乱的社会主义者希望数百万在能源行业工作的美国人破产。乔拜登选择她作为他的最佳银行业候选人，”参议员科顿在推特上写道。
 
-韩国本月开始逐步放宽对COVID-19的限制，因为它已经为近90%的成年人口，即5200万人口中的77%进行了全面接种。
+“我不需要飞到格拉斯哥来识别疯子，”众议员罗伊指出。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+“拜登提名人渴望将小型经营者赶出企业，并将他们雇用的工人踢到路边。如果我们不阻止他们，美国人将为他们僵化的意识形态付出高昂的代价，”参议院领导基金首席执行官史蒂文·劳说。
 
-编辑/校对/发稿：小鹿
+据报道，奥玛洛娃持有极左的观点，并在 2019 年指出苏联的做法是优于美国的典范。奥玛洛娃出生在苏联的一部分，现在是哈萨克斯坦，1989年毕业于莫斯科国立大学，她拒绝交上她作为苏联大学学生撰写的关于马克思主义的论文。
 
+据福克斯商业报道，美国参议院银行委员会排名成员帕特·图米要求奥马罗娃交出一份她用俄文原文撰写的论文的副本，并不迟于 10 月 13 日将其翻译成英文，以便委员会进行审查。她的论文是《资本论》中的卡尔·马克思的经济分析和革命理论。
 
+來源：[https://www.rebelnews.com/biden\_treasury\_nominee\_wants\_to\_bankrupt\_coal\_oil\_and\_gas\_companies](https://www.rebelnews.com/biden_treasury_nominee_wants_to_bankrupt_coal_oil_and_gas_companies)
 
-**更多资讯，更多关注**
+（文章仅代表作者个人观点）
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**关注我们**
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+Discord 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
