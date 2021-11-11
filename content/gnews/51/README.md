@@ -2,21 +2,17 @@
 ---
 
 
-## 继美团、拼多多之后，红杉中国沈南鹏抛售小米
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1654167/)
+## 美元债务宽限期结束，恒大违约风险急速提升
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1654721/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/0C6D535B-CF3E-4578-ADBA-A8D0263B0474_w1023_r1_s-1.jpg)网络图片
-编辑摘要：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-6.jpg)美元债务宽限期结束，恒大违约风险急速提升 网络图片
+据美国之音1月11日报道，中共国房地产巨头恒大集团约1.5亿美元债利息支付的30天宽限期于11月10日结束，而恒大所需资金到目前为止尚无着落。
 
-据华尔街见闻11月9日报道，小米生态链企业九号公司9日公布，多名持有人转让存托凭证，红杉中国管理公司转让金额近3.6亿元。
+恒大是全球负债最多的地产开发商，累计债务高达3050亿美元，其中190亿为国际市场债券。在此之前，恒大在支付海外债券票息方面没有出现违约行为。此次恒大如果无法支付，将导致恒大正式违约。中共国房地产业规模高达5万亿美元，是中共国经济的支柱产业。一旦房地产行业崩盘，不仅重创中共国经济，对全球经济也构成风险。近日，中共国房地产公司的债券暴跌。
 
-九号公司是专注于智能短交通和服务类机器人领域的企业，去年10月在上交所科创板上市。沈南鹏是董事之一。在九号公司披露前一天就有报道称，沈南鹏已出售价值高达2.15亿美元的股票，包括美团、拼多多和达达集团。今年沈南鹏和红杉累计十余次减持美团，套现超过165亿港元。
+中共国的豆腐渣经济支撑起了房地产市场表面的繁荣，但豆腐渣终究不是钢筋水泥，只能支撑一时，崩塌是必然的。恒大体量庞大，债务缠身，中共经济已经支撑不住。欠债还钱，还不起钱，中共拿命来还。
 
-沈南鹏2005年创立的红杉中国是中共国最知名的风险投资机构之一。如今红杉中国开启抛股模式，其他机构呢？资本是最敏感的，有利益就上，有风险就撤，这是强权挡不住，谎话也遮不住的。中共国的经济已经走到绝路。
-
-新闻参考链接：[红杉中国沈南鹏又抛了 美团、拼多多之后是小米生态链企业](https://wallstreetcn.com/articles/3644526)
-
-
+新闻参考链接：[https://www.voachinese.com/a/Evergrande-teeters-on-debt-default-as-another-major-payment-due-20211110/6307702.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/Evergrande-teeters-on-debt-default-as-another-major-payment-due-20211110/6307702.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
 
 * * *
 
@@ -28,6 +24,8 @@
 编辑：【英国伦敦喜庄园编辑部】
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

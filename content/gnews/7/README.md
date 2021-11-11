@@ -2,12 +2,30 @@
 ---
 
 
-## 中共提倡猪式生活抗击疫情
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1655907/)
+## 有声| GTV新闻访谈简报|2021年11月9日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1656050/)
 
-11/09/2021 中共提倡猪式生活抗击疫情。
+配音：香草山教育部 – 蒙古鸿雁
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
+
+
+
+**文字版原文：[GTV新闻访谈简报|2021年11月9日早](https://gnews.org/zh-hans/1651265/)**
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

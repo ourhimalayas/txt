@@ -2,28 +2,48 @@
 ---
 
 
-## 中共发布“假擀面杖”数据：10月社会融资和实体经济贷款均同比增长超1000亿元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1655942/)
+## 美中元首最快下周举行电视电话会谈
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656080/)
 
-撰稿：东京樱花团/天路天道
+作者：纽约香草山农场 – 飞虹
 
-.
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-14.jpg)
-[图片来源](http://finance.cnr.cn/txcj/20210409/t20210409_525457599.shtml)
 
-中共人民银行发布的最新数据称，今年10月份，中共国人民币贷款增加8262亿元，同比多增1364亿元。截至10月末，我国本外币贷款余额196.38万亿元，同比增长11.4%，月末人民币贷款余额190.29万亿元，同比增长11.9%。
 
-据初步统计，今年10月，中共国社会融资规模增量为1.59万亿元，比上年同期多1970亿元，比2019年同期多7219亿元。其中，对实体经济发放的人民币贷款增加7752亿元，同比多增1089亿元。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-当前，中共经济濒临崩溃，企业倒闭如潮，房地产、疫情和能源荒等问题叠加，如此情况，经济还能增长？
 
-信息来源：
 
-[10月人民币贷款增加8262亿元–经济·科技–人民网](http://finance.people.com.cn/n1/2021/1111/c1004-32279058.htmll)
+11月9日，据多家媒体消息，美国总统拜登最快下星期，将与中共党魁习近平举行电视电话会谈。双方已经开始安排，但尚未敲定具体日期。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-77.jpg)
+美国和中国官方还没有证实这一消息，但一名白宫发言人11月8日说，双方很早就已经同意，两国元首将在年底前举行一次电视电话会议。目前正在为确认会谈议程进行工作层面的磋商。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-33.jpg)
+参考链接：
+[美中元首据信最快下周举行视讯峰会](https://www.voachinese.com/a/biden-xi-virtual-summit-20211110/6307235.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：飞虹
+编辑：Kathy文艺
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

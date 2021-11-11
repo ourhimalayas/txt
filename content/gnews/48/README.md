@@ -2,31 +2,28 @@
 ---
 
 
-## 美元债务宽限期结束，恒大违约风险急速提升
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1654721/)
+## 台积电日本设厂，或为躲避台海战火
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1655299/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-6.jpg)美元债务宽限期结束，恒大违约风险急速提升 网络图片
-据美国之音1月11日报道，中共国房地产巨头恒大集团约1.5亿美元债利息支付的30天宽限期于11月10日结束，而恒大所需资金到目前为止尚无着落。
+#### 撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/20211109_30_1044765_L.jpg)[图片来源](https://www3.nhk.or.jp/nhkworld/zh/news/332068/)
+世界最大的半导体代工企业台湾积体电路制造股份有限公司（TSMC），即“台积电”，于11月9日正式宣布将与索尼集团在日本熊本县共同出资设立子公司，创建新的半导体工厂。
 
-恒大是全球负债最多的地产开发商，累计债务高达3050亿美元，其中190亿为国际市场债券。在此之前，恒大在支付海外债券票息方面没有出现违约行为。此次恒大如果无法支付，将导致恒大正式违约。中共国房地产业规模高达5万亿美元，是中共国经济的支柱产业。一旦房地产行业崩盘，不仅重创中共国经济，对全球经济也构成风险。近日，中共国房地产公司的债券暴跌。
+据公布，台积电将在熊本县设立一家子公司，从2022年起开始建半导体工厂，争取在2024年年底前投入生产。索尼集团将对这家新公司进行占比不足20%的投资。据悉，工厂最初的设备投资额约为70亿美元，约合8000亿日元，将为1500名尖端技术人才创造就业岗位。
 
-中共国的豆腐渣经济支撑起了房地产市场表面的繁荣，但豆腐渣终究不是钢筋水泥，只能支撑一时，崩塌是必然的。恒大体量庞大，债务缠身，中共经济已经支撑不住。欠债还钱，还不起钱，中共拿命来还。
+本次将是台积电首次在日本建厂，据称，“其前提是接受日本政府提供的强力支援”。台积电首席执行官（CEO）魏哲家表示，十分高兴能在日本建新厂，吸引更多的日本人才加入进来。据预测，电动汽车、机器人等各领域对半导体的需求将不断增大，但从全球范围来看，半导体短缺的情况一直没有改观，美国和欧洲等均在各自国家或区域内加大半导体的生产力度。
 
-新闻参考链接：[https://www.voachinese.com/a/Evergrande-teeters-on-debt-default-as-another-major-payment-due-20211110/6307702.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/Evergrande-teeters-on-debt-default-as-another-major-payment-due-20211110/6307702.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+在此背景下，拥有世界顶级技术的半导体生产巨头决定在日本建厂，或将提高日本国内的生产能力。
 
-* * *
+近期台海局势日益紧张，中共对台侵犯已箭在弦上，如果台湾收到军事攻击，台积电必然会遭受严重打击，对于其在全球的众多客户来说，台积电此时宣布在日本设厂也算是给全球芯片供应链加了一道保险装置。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+消息来源:
 
+[台积电决定在日本熊本县建半导体工厂](https://www3.nhk.or.jp/nhkworld/zh/news/332068/)
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
