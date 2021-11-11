@@ -2,44 +2,26 @@
 ---
 
 
-## 万事达卡推出与加密货币挂钩的卡，加密货币可转为法币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1652114/)
+## 美支持日本增加国防开支的计划
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1652202/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+俄罗斯莫斯科喀秋莎农场   银河
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/mastercard-crypto-linked-cards-1000x600-1.jpeg)
+编辑上传   水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/j.jpg)rightspeak.net
+日本共同社11月9日报道，美国高级外交官表示，华盛顿将“欢迎”日本增加国防预算。在中共在印度洋-太平洋地区日益强硬之际，日本首相岸田文雄(Fumio Kishida)发出了增加日本国防预算的信号。
 
+美国负责东亚和太平洋事务的助理国务卿丹尼尔·克里登布林克(Daniel Kritenbrink)在接受共同社采访时表示：“这是我们的主权盟友-日本的决定，但我将非常明确地表示，我们欢迎日本增加国防开支。” 同时表示，他相信日本增加国防开支将“使亚洲更加安全和繁荣”。
 
+执政的自民党上个月承诺将考虑增加一倍的国防开支，增至日本GDP的2%左右。日本长期以来一直将国防开支控制在GDP的1%以下。
 
-图片来源：www.pymnts.com
+岸田文雄誓言要加强日美关系。克里登布林克赞同岸田文雄关于加强双边联盟的观点，认为双方合作可解决“中共国一系列旨在破坏基于规则的国际秩序的行动”的担忧。
 
+克里登布林克曾任美国驻越南大使，国务院朝鲜政策高级顾问、国家安全委员会(NSC)亚洲事务高级主任，以及美国驻东京和北京大使馆的职务。这是克里登布林克自9月底出任美国负责东亚事务的最高外交官以来首次访问日本。
 
-#### 编译：小红帽
+参考链接：
 
-万事达卡周一宣布，在亚太地区推出与加密货币关联的支付卡。这将首次允许持卡人将其数字资产即时转换为法定货币。
-
-该卡旨在消除不接受数字资产支付的商户与希望用加密货币支付的客户之间的任何障碍。
-
-与香港的Amber Group、泰国的Bitkub和澳大利亚的CoinJar的合作将允许该地区的消费者和企业申请与加密货币挂钩的信用卡、借记卡或预付卡，这些卡可以在接受万事达卡的任何地方消费。
-
-这三家公司还将加入万事达卡的全球加密卡计划，成为名册上第一个亚太地区的数字资产服务提供商。该计划旨在使加密货币交易尽可能无缝对接。
-
-该计划推出之际，数字资产的总市值飙升到3万亿美元，这是有史以来第一次，大约相当于整个英国的经济规模。
-
-万事达卡一直是走在数字资产整合前列的公司之一。7月，该公司升级了其加密货币卡，允许客户使用稳定币进行购买。而在10月，它与数字资产平台Bakkt合作，使消费者能够通过托管钱包购买、出售和持有数字资产。
-
-万事达卡此前还承诺帮助各国央行塑造和发展自己的数字货币，这些数字货币是类似于加密货币的数字代币，但不是去中心化的。
-
-**参考链接：**[Mastercard launches crypto-linked payments cards in Asia that allow holders to convert their crypto to fiat instantly | Currency News | Financial and Business News | Markets Insider (businessinsider.com)](https://markets.businessinsider.com/news/currencies/mastercard-cryptocurrency-linked-payments-cards-asia-fiat-amber-coinjar-bitkub-2021-11)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://english.kyodonews.net/news/2021/11/1a753e2ae095-senior-us-diplomat-welcomes-rise-in-japans-defense-spending.html](https://english.kyodonews.net/news/2021/11/1a753e2ae095-senior-us-diplomat-welcomes-rise-in-japans-defense-spending.html)
 
  
 

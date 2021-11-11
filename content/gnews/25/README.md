@@ -2,42 +2,51 @@
 ---
 
 
-## 消息人士：加州州长因加强针不良反应神隐数周
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1653981/)
+## 联邦航空安全局寻求无意识偏见培训
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1654063/)
 
-翻译：Lulumi
+作者：Sheila Gunn Reid
+翻译:   HimaCoby
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/g-2.jpg)儿童健康防御
+![](https://assets.gnews.org/wp-content/uploads/2021/11/air.png)
 
-一位接近加州州长加文·纽森的消息人士今天告诉《保卫者》，州长在10月27日接种的莫德纳COVID-19疫苗中出现了不良反应。
+负责公开歧视未接种疫苗的航空旅客的联邦政府正在寻求补救措施，以弥补他们不那么直接的歧视形式。
 
-这位不愿透露姓名的消息人士说，纽森的症状与吉兰·巴雷综合症（GBS）的症状相似，吉兰·巴雷综合症是许多疫苗的一种已知副作用。
+根据MERX 网站，地方和联邦政府机构在那里发布招标和信息请求，加拿大航空运输安全局要求进行反偏见和无意识偏见培训。
 
-吉兰·巴雷综合征是一种神经系统疾病，身体的免疫系统会错误地攻击其周围神经系统的一部分——位于大脑和脊髓之外的神经网络——其范围可以从非常轻微的短暂虚弱到瘫痪，以至于让人无法独立呼吸。
+2021 年 10 月 30 日，对加拿大旅行者的最新限制生效。新规定要求任何年满 12 岁加 4 个月或以上的旅客必须接种两剂新冠疫苗才能登机：
 
-自从10月27日被拍到接种COVID加强针后，州长就没有在公开场合露面。
+- 从加拿大大部分机场起飞的国内或国际航班，包括包机和载运商业旅客的外国航空公司
+- VIA 铁路和落基山登山者火车
 
-纽森用强硬的手段将疫苗推给加州的民众，包括儿童。
 
-儿童健康保护组织主席罗伯特·肯尼迪宣称：“然而，如果州长在接种疫苗后真的遭受了衰弱的神经系统伤害，这就引起了严重的道德问题，他似乎不诚实地努力隐瞒自己的伤害，同时实施积极的政策，迫使加州的儿童和劳动人民忍受类似的风险。”
+但是，在 2021 年 11 月 29 日之前，联邦政府允许有一个小的宽限期，在此期间，对于那些被认为未接种疫苗或未接种疫苗的人，可以在旅行后 72 小时内进行有效的自付费用新冠分子检测。
 
-精选网友评论：
+也许新的偏见培训是有必要的。
 
-约翰：种瓜得瓜，种豆得豆。
+根据最近的安格斯里德民意调查，鉴于那些对疫苗犹豫不决的人口统计信息，未接种疫苗的旅行禁令对少数族裔的伤害不成比例：
 
-唐·特兰奈西：因果报应真特么灵！
+加拿大原住民拒绝接种疫苗的可能性是那些没有被认定为有形少数群体的人的两倍，所以政府仍有许多工作要做，以克服由于原住民一代又一代的虐待而造成的不信任。
 
-JR：发生在他身上再合适不过了！！虽然我一般不希望对人有恶意，但这个渣渣州长罪有应得！！！
+來源：https://www.rebelnews.com/federal\_airline\_security\_agency\_seeks\_unconscious\_bias\_training
 
-**参考资料：**[creativedestructionmedia][BREAKING: Source Tells Children’s Health Defense CA Gov Gavin Newsom Is Injured By Vaccine Booster, Not Seen In Weeks](https://creativedestructionmedia.com/news/2021/11/08/breaking-source-tells-childrens-health-defense-ca-gov-gavin-newsome-is-injured-by-vaccine-booster-not-seen-in-weeks/)
+（文章仅代表作者个人观点）
 
-* * *
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

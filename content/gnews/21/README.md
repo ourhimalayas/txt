@@ -2,51 +2,50 @@
 ---
 
 
-## 联邦航空安全局寻求无意识偏见培训
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1654063/)
+## 韩国推广疫苗加强针
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1654125/)
 
-作者：Sheila Gunn Reid
-翻译:   HimaCoby
+作者：纽约香草山农场 – 四季
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/air.png)
-
-负责公开歧视未接种疫苗的航空旅客的联邦政府正在寻求补救措施，以弥补他们不那么直接的歧视形式。
-
-根据MERX 网站，地方和联邦政府机构在那里发布招标和信息请求，加拿大航空运输安全局要求进行反偏见和无意识偏见培训。
-
-2021 年 10 月 30 日，对加拿大旅行者的最新限制生效。新规定要求任何年满 12 岁加 4 个月或以上的旅客必须接种两剂新冠疫苗才能登机：
-
-- 从加拿大大部分机场起飞的国内或国际航班，包括包机和载运商业旅客的外国航空公司
-- VIA 铁路和落基山登山者火车
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-但是，在 2021 年 11 月 29 日之前，联邦政府允许有一个小的宽限期，在此期间，对于那些被认为未接种疫苗或未接种疫苗的人，可以在旅行后 72 小时内进行有效的自付费用新冠分子检测。
 
-也许新的偏见培训是有必要的。
 
-根据最近的安格斯里德民意调查，鉴于那些对疫苗犹豫不决的人口统计信息，未接种疫苗的旅行禁令对少数族裔的伤害不成比例：
 
-加拿大原住民拒绝接种疫苗的可能性是那些没有被认定为有形少数群体的人的两倍，所以政府仍有许多工作要做，以克服由于原住民一代又一代的虐待而造成的不信任。
+[OANN](https://www.oann.com/south-korea-urges-covid-19-booster-shots-as-severe-cases-hit-record/)11月10日报道，伴随着越来越多的老人患病并报告疫苗突破性感染，使严重和危重病例创下纪录，韩国政府鼓励其公民接种COVID-19加强针。
 
-來源：https://www.rebelnews.com/federal\_airline\_security\_agency\_seeks\_unconscious\_bias\_training
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1393-1-2021-11-10T065222Z_2_LYNXMPEHA90CS_RTROPTP_0_HEALTH-CORONAVIRUS-SOUTHKOREA_1.jpg)‎2021年11月10日，一名男子在韩国首尔的一个检测点接受冠状病毒（COVID-19）检测。（REUTERS/Kim Hong-Ji）
 
-（文章仅代表作者个人观点）
+官方数据显示，严重的冠状病毒病例从10月份的300多例跃升至周三的460例。在重症患者中，82%以上是60岁以上的人。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+自上个月开始实施该计划以来，该国已为640232人接种了加强针，主要使用辉瑞， BioNTech和Moderna的疫苗。
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+韩国本月开始逐步放宽对COVID-19的限制，因为它已经为近90%的成年人口，即5200万人口中的77%进行了全面接种。
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
 
-**关注我们**
+编辑/校对/发稿：小鹿
 
-Discord 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
-Gettr 账号
+**更多资讯，更多关注**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

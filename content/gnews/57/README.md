@@ -2,52 +2,20 @@
 ---
 
 
-## 新西兰爆发和平示威 抗议疫苗强制令
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1651832/)
+## 喜联储每天提现最大金额为10万美金
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1652135/)
 
-作者：纽约香草山农场 – 四季
+韩国首尔天池农场—–追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-10-at-12.36.00.jpeg)
+喜联储于当地时间11月9日公布了每天提现最大金额为10万美金，喜联储也因此成为新上市交易所里提现金额最高的交易所。
 
+文贵先生在11月7日的大直播里透露，根据喜联储的法律，建议是每人每天提现最大金额不能超过1千美金。然后跟喜联储的律师开会，从1千谈到了1万、3万，最后到5万美金。
 
+但文贵先生还是没有同意，文贵先生说他作为一个结构师建议者，5万美金虽然很厉害，几乎是全世界上市交易所提现额度最高的，但文贵先生就要证明喜联储的厉害，在他本人也可以帮喜联储解决大量现金的情况下，最后与投资机构者达成每天提现最大金额为10万美金。决定在48小时后也就是今天，任何人每天提现最大金额为10万美金。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-11月9日，数千人在新西兰举行和平示威游行，游行者在惠灵顿市中心议会外聚集，抗议政府的疫苗强制令和封锁措施，被称为蜂巢的议会大厦被迫关闭。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1380-1.jpg)‎2021年11月9日，在新西兰惠灵顿，抗议者集会反对冠状病毒病（COVID-19）的限制和强制疫苗授权。‎（REUTERS/Praveen Menon）
-
-许多人举着写有“自由”和“新西兰人不是实验室的老鼠”标语的牌子，高喊口号，抨击媒体在说谎，要求政府收回强制接种疫苗令并取消限制。
-
-目前，新西兰仍然是世界上COVID-19病例最少的国家之一，迄今为止已报告的病例不到8000例，死亡32人，其完全疫苗接种率已达到其合格人口的近80%。
-
-尽管如此，新西兰总理阿德恩上个月仍然表示，新西兰将要求教师、卫生及残疾部门的工作人员全面接种COVID-19疫苗，此举招致了广泛的批评。阿德恩面临着越来越大的政治压力和公众抗议。
-
-**参考阅读：**[Thousands protest in New Zealand against COVID-19 rules | Reuters](https://www.reuters.com/world/asia-pacific/thousands-protest-new-zealand-against-covid-19-vaccine-mandate-2021-11-09/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+消息一公布，喜币的价格从这几天一直徘徊在18美金附近上升到21美金附近。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-10-at-12.34.09.jpeg)
+[文贵先生11月7日直播](https://gtv.org/video/id=6187c5e211d186296802ed33)
 
  
 

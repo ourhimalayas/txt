@@ -2,43 +2,56 @@
 ---
 
 
-## 随着以太币和比特币的增值，加密货币市场的总市值突破3万亿美元
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1653849/)
+## 还有8 天&#8230;&#8230;福奇最糟糕的噩梦开始
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1653954/)
 
-**[简评：]***全球加密货币市场一派繁荣景象，同时作为全球唯一和黄金挂钩的数字货币-HCOIN（喜币），于格林威治时间2021年11月01日，11点01分（北京时间：19点01分）正式上市。其流通市值一度突破200亿美元，总估值突破两万亿美元，稳居所有加密货币前列。伴随投资机构入场、某国家批准虚拟货币银行牌照及某国家承认喜币是其法定货币等三个标志性事件的发生，未来喜币的价格会直奔到月球，现在的横盘是为了等待新战友的加入，望战友赶紧KYC，抓住这来之不易的机会。*
+编译：Jenny Ball
 
-据《彭博社》记者 Joanna Ossinger，2021年11月8日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-172.png)观察：加密货币的总市值超过了3万亿美元。
-图片来源：彭博社
-**加密货币市场的总市值现在已经突破3万亿美元。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-6-2.jpg)8 天后小罗伯特·肯尼迪 (Robert F. Kennedy, Jr.) 的书——《真正的安东尼·福奇：比尔·盖茨、大型制药公司以及全球民主和公共卫生战争》——将出版。
 
-随着投资者对比特币等成熟代币，以及对以太坊和索拉纳（Solana）等区块链网络的不断升级和富有吸引力的新功能越来越满意，这个只有十多年历史的数字货币资产市场，其价值相对于2020年年底已经翻了两番。人们日益看好去中心化金融和不可替代代币的发展，像狗狗币（Dogecoin）和柴犬币（Shiba Inu） 这样的模因币（memecoin）继续引起关注。
+11 月 16 日，小罗伯特·肯尼迪 (Robert F. Kennedy, Jr.) 的书——《真正的安东尼·福奇：比尔·盖茨、大型制药公司以及全球民主和公共卫生战争》——将出版。今天可以预订了。
 
-Fairlead Strategies的创始人兼管理合伙人凯蒂·斯托克顿（Katie Stockton）在一份报告中表示：“比特币似乎正在进入看涨模式，而以太币可能会在本周五收盘高于阻力位时确认长期突破。”
+以下是电影制片人米基·威利斯 ([**Mikki Willis**](http://elevate.us/team/)) 对肯尼迪[备受期待的书](https://www.amazon.com/Real-Anthony-Fauci-Democracy-Childrens/dp/1510766804)的评价：
 
-根据 CoinGecko 的定价，截至纽约凌晨4点15分，加密货币的整体市值为3万亿美元。第三和第四大代币—币安币（Binance Coin）和索拉纳（Solana）在过去7天内上涨了20% 以上；上周，所有七个规模最大的数字货币的价格都在上涨。
+在美国政治史上，没有哪个家族比肯尼迪家族更能为人民服务。
 
-**比特币周一上涨5.8%，至66,539美元，接近此前约6.7万美元的纪录。以太坊上涨3.6%，至4,7958美元的新高。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-175.png)图片来源：彭博社
-周一，Marathon Digital Holdings Inc. 和 Riot Blockchain Inc. 等加密货币公司市值均上涨了10%以上。 美国最大的交易所Coinbase Global Inc. 在公布第三季度业绩前一天上涨了3.6%。
+约翰·F·肯尼迪和他的兄弟罗伯特·F·肯尼迪，因敢于揭露全世界才刚刚崛起的腐败而付出了最终的代价。
 
-当然，众所周知，加密货币是不稳定的。 上次比特币价格达到这个水平时，它下跌了几千美元，并且经历了多次修正，使其下跌了一半或更多。 其他加密货币的波动性更大—模因币有时会疯狂地来回反弹，有时也伴随骗局和黑客攻击。
+几十年来，小罗伯特·肯尼迪 为纪念他勇敢的父亲和叔叔的遗产，一直警告世界大型制药公司不计后果的疫苗议程的危险性。
 
-加密货币交易所AAX的研究和策略主管Ben Caselin说：“比特币目前的上涨是由一个与比特币相关的ETF在美国上市，以及埃隆·马斯克周末在Twitter上的投票推动的。随着柴犬币（Shiba）和其他模因币最近的激增，以及Facebook更名为Meta，人们对加密货币的兴趣继续上升。”
+作为儿童健康防御的创始人，肯尼迪一直在冒着风险，同时不知疲倦地保护我们的孩子。
 
-原文连接：[https://www.bloomberg.com/news/articles/2021-11-08/crypto-world-hits-3-trillion-market-cap-as-ether-bitcoin-gain?utm\_content=business&utm\_campaign=socialflow-organic&cmpid=socialflow-twitter-business&utm\_medium=social&utm\_source=twitter](https://www.bloomberg.com/news/articles/2021-11-08/crypto-world-hits-3-trillion-market-cap-as-ether-bitcoin-gain?utm_content=business&amp;utm_campaign=socialflow-organic&amp;cmpid=socialflow-twitter-business&amp;utm_medium=social&amp;utm_source=twitter)
+我很荣幸地宣布，我的朋友兼盟友肯尼迪，刚刚完成了我认为有史以来最重要、最及时的书之一！
 
-翻译：洛杉矶盘古农场–钢蛋儿
+《真正的安东尼·福奇》([The Real Anthony Fauci](https://www.amazon.com/Real-Anthony-Fauci-Democracy-Childrens/dp/1510766804))详细而毁灭性地揭露了医疗-工业-媒体综合体的内部运作，以及它如何扭曲了美国和世界各地的健康和康复。
 
-校对：洛杉矶盘古农场–Mike Li
+关于本书，我向您提出三个要求：
 
-评论：洛杉矶盘古农场–钢蛋儿
+考虑为您当地的图书馆以及朋友和家人购买一本，甚至多本。
 
-编辑：洛杉矶盘古农场–心照
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+收到您的副本后，请转到您的社交媒体频道并发布一张您自己拿着它的照片。请记住包含订购链接，以便其他人可以轻松订购该书。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+在亚马逊上写评论。无论好坏，亚马逊是当今图书销售的最大力量，那里的评论具有强大的影响力。
+
+（如果你更喜欢在当地书店买书，那也是一个很大的帮助。）
+
+随着#FIREFAUCI 在全球的趋势，现在是了解“真正的安东尼·福奇”的最佳时机。
+
+立即预订您的书 – 在他们烧毁它之前！
+
+**评论：我在翻译的时候收到信息：“我的物业销售代理的侄子**** 33****岁 死于癫痫发作，他的同事****50****岁， 死于心脏病发作，他们都打了疫苗！”**
+
+**现在我们已经在看到文贵先生警告说的：今年年底到 2022 年 5 月将是疫苗灾难爆发期。 可悲的是这竟然是最终唤醒人们的代价！相信小罗伯特·肯尼迪 的新书《真正的安东尼·福奇》，将让更多的人们看到疫苗的真相，以及用疫苗达到控制人类的邪恶目的！**
+
+**参考资料：**[childrenshealthdefense.org][8 Days and Counting … Fauci’s Worst Nightmare](https://childrenshealthdefense.org/defender/the-real-anthony-fauci-robert-f-kennedy-jr-8-days/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=bacfeb99-68bd-467f-b0e1-93d81e788906)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
 
  
 

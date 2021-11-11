@@ -2,119 +2,24 @@
 ---
 
 
-## Hcoin的上市对CCP就是抽筋剥皮
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1654195/)
+## CCP数字人民币及它不为人知对西方数字货币计划
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1654251/)
 
-[https://gtv.org/video/id=618ba476adfd99590c350620](https://gtv.org/video/id=618ba476adfd99590c350620)
+CCP得出了答案，只有两条，虚拟货币就像通讯界的5G一样，如果只要容忍任何一家在中国实施，中国的所有的金融的秘密和金融的安全荡然(无存)  零。所以这是CCP为啥只让数字化人民，CCP是不允许你用，也不允许你发展，更不要什么中心不中心化了。CCP还想要掌握西方的数字货币，整个市场的去中心化后的话语权。
 
-**郭文贵**
-**Miles Guo**
+**【郭先生直播摘要】****2021.11.7 CCP****数字人民币及它不为人知对西方数字货币计划**
 
-直接的说法，按老百姓说法，绝对是抽筋剥皮的感觉
-Directly speaking, according to Laobaixing, it is definitely a feeling of cramping and peeling
+**郭先生：**
 
-抽筋剥皮的感觉，共产党要没有钱了，
-it is definitely a feeling of cramping and peeling, the Communist Party is running out of money
+当共产党研究这个虚拟货币的时候和共产党它一定处在安全和政治考虑。最后是当时是王岐山作为常委的中纪委书记， 和当时的习近平所有研究完以后是真认真了共产党。 他们得出了答案，只有两条，虚拟货币就像通讯界的5G一样，如果只要容忍任何一家在中国实施，就中国的所有的金融的秘密和金融的安全荡然(无存)  零。就是金融界的5G，就你掌握了这个技术，只要让你进来，你的信息我就能拿走 ，而且你一点辙也没有，就任何一家，所以定义是必须垄断。
 
-就是老百姓的钱一旦有出口的时候，你就把它筋给它抽掉了
-It means that once the Laobaixing’s money has way out, feel like you pull out their tendon
+这是它(CCP)为啥只让数字化人民币，中央人民银行。而且， 记住啊，它(CCP)是不允许你用，也不允许你发展，更不要什么中心不中心化了，就是所有的东西都中心化，本来就去中心化，它(CCP)要绝对中心化。你看到没有，绝对中心化的和中央，和绝对中心化的行政管理体制的币和绝对中心化的区块链，决定了共产党所谓的数字货币时代的安全。
 
-这个巨人就倒下了，扒皮是啥感觉，扒皮就扒出来了
-The giant will fall down, what do it feel like peeling the skin, peeling it out
+你看，牛吧！意识到了这事。只要让你用，它就是死，只要让它(虚拟货币)用，一家跟一百家没啥两样，只要允许去中心化，去的就是共产党，技术也不能去中心，管理也不能去中心，那就是我就是所有的东西，谁也不能来，这是一个原因。第二个它更牛叉，千万别小看了共产党，说反过来我们要掌握了，控制了这个市场，掌握西方的数字货币的主导权，我们会让所有的西方经济和安全，掌握在我们手里。所以，我们要掌握西方的数字货币的，整个市场的去中心化后的话语权。哇塞  共产党牛着嘞。
 
-哇塞，没喊他们新中国联邦爹也没喊它娘
-Wow, I didn’t call them the New Federal State of China father or mother
+我这你都别碰，你的是我的  我的也是我，来了，又来了，所以才比特币。它和伊朗和华尔街嘎嘎地它就进去了，挖矿的人大多数最后都落到解放军手里，然后，你看到那个什么加拿大的，那个币安公司的情报(部门)。完了，没了吧！全部被他们拿走。什么？赵长鹏，对，完了吧！全完了，看到了吧，七哥跟你说了吧，这全都收——人、钱全拿。然后在西方的数字的5G权力在我手，我(CCP)说让你涨就涨  我(CCP)说让你降就降。
 
-也没把自己的老婆闺女给他玩儿这个宇宙和沙子的游戏
-and we don’t need give our wife or daughter to them play this universe and sand game fooling game
-
-那么也不用听他们的话，我们就可以行了
-Then we don’t have to listen to them, we can do it
-
-抽筋剥皮的感觉不是我说的，是你的老单位，海关的某副关长
-The feeling of cramping and peeling is not what I said, the place where you used to work for, it’s from a certain deputy commissioner of the customs
-
-他说，我是搞海关的，那么他跟我说了一句，他说七哥
-He said, I’m engaged in customs, so he told me a thing, he said Miles
-
-说这回这个喜币喜联储上市，几乎就是对中国人民银行绝对的打脸
-that this time, Hcoin and the Himalaya Reserve’s listing, are almost an absolute slap on the People’s Bank of China
-
-一国之人民银行，党爹党娘，数字人民币屡试屡不成功
-The People’s Bank of a country, the Party Father and Mother, the digital Renminbi has been tried repeatedly and unsuccessfully
-
-现在所谓的交易试点到了600多亿，竟然发现97%全是自己的国有银行玩的
-Now the so-called transaction pilot has reached more than 60 billion yuan, and it turns out that 97% of it is played by its own state-owned bank
-
-找出一些穿马甲的朝阳群众来去玩儿虚拟货币
-Find some Chaoyang people wearing vests come and play virtual currency
-
-结果是拿走就不会还，说不会用，拿走不给你了
-As a result if they take it away, never return, and say it won’t work, once it takes away won’t return
-
-他说，而你们这个喜币，是在全球法律、媒体无数个敌人
-He said, and your Hcoin, is countless enemies in the global law and media
-
-甚至共产党都在攻击你们的情况下上线运行成功
-It went online successfully even under the communist party attack
-
-真实交易，完全国际化，这才是真正的抽筋扒皮
-truly transactions, fully internationalized, this is the real cramping and peeling
-
-亦真假之别，善恶币之别，一个恶币，一个善币
-the difference between true and false, the difference between good and evil, one bad coin, one good coin
-
-老百姓知道我们到喜联储去，能涨十倍、百倍、二百倍
-Laobaixing know that when we go to the Himalaya Reserve, it can rise ten times, one hundred times, two hundred times
-
-而且立马兑现，我们的整个喜联储有没有兑现，能不能兑现
-And cash it right away, has our entire Himalaya Reserve cashed out or can it cash out
-
-你别说，你自己去试去，我们战友是喜联储现在最最要感激的恩人
-don’t believe me, try it yourself, our comrades-in-arms are the most grateful bene-factors of the Himalaya Reserve
-
-也是最不待见我们的人，就觉得我们买的太便宜，赚到便宜太大
-also most unfavorable people, they feel that what we buy is too cheap, and we make too much profits
-
-但是我们绝对不能因为某几个人给它惹麻烦
-but we must not cause trouble for it because of a few people
-
-把我们99.99%的战友的形象和利益给毁了
-to ruin the image and interests of 99.99% of our comrades-in-arms
-
-你懂我的意思了吗？老班长, 这是在铁血组的人，这很重要
-Do you understand what I mean? The old brother is in the Iron blood group, this is very important
-
-不是为了你哪一个人，什么原则、民主、法治
-It’s not for certain single person, what principles, democracy, and the rule of law
-
-你去一边儿呆着，你找民主法治去
-you stay out of there, you look for democracy and the rule of law
-
-我们绝大多数战友的利益和安全，在喜联储的地位是第一重要
-the interests and safety of the majority of our comrades in arms are the most im-portant position in the Himalaya Reserve
-
-———————————————————
-
-**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1457269509711036418?s=24](https://twitter.com/se1y7cblljselva/status/1457269509711036418?s=24)
-
-Date:11/09/2021
-原视频标题: Hcoin的上市对CCP就是 抽筋剥皮
-The listing of Hcoin is a cramp and peeling for the Chinese Communist Party
-原视频日期：2021/11/05
-任务编号：KC239(2810)
-视频时间段 : 0:00-2:19
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片: 洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+视频剪辑：小蜜蜂 |听写：小蜜蜂 | 翻译: Arthur 文徐|校对：烟波浩淼|视频制作+字幕：CG. | 编辑&发布：断播
 
  
 
