@@ -2,46 +2,40 @@
 ---
 
 
-## 英国COVID住院人数是去年14倍的报道是假消息
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1653969/)
+## 美议员访台 中共急忙派军机巡逻
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1654062/)
 
-据《零对冲》作者：TYLER DURDEN，2021年11月9日报道：
+翻译：Lulumi
 
-作者：保罗·约瑟夫·沃森通过峰会新闻
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-177-e1636570477551.png)图片来源：零对冲网站
-英国媒体报道说，COVID的住院人数比去年这个时候“高14倍”，尽管这显然是错误的。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/china_taiwan_40518.jpg)在台湾国防部发布的这张未注明日期的资料照片中，一架中国人民解放军歼-16战斗机在一个未公开的地点飞行。(照片来源:台湾国防部 via 美联社)
 
-天空新闻和ITV都报道了NHS首席执行官阿曼达·普里查德的评论，他在呼吁人们接种强化疫苗时使用了这个数字。
+北京/台北报道：中共军方周二（11月9日）表示，在中国国防部谴责美国国会代表团乘坐军机来台访问后，中共军方在台湾海峡方向进行了一次战备巡逻。
 
-普里查德说，NHS正在“热火朝天”地运转，并警告说未来几个月会很困难。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-178-e1636570724420.png)图片截取于推特
-然而，后来发现她一直在使用旧数据，声称住院率比去年这个时候高14倍。
+中国军方发言人在一份声明中说，这次巡逻是针对“有关国家”在台湾问题上的“严重错误”言行以及亲台独力量的活动。
 
-国家医疗服务系统后来声称，普里察德“是指8月份最新公布的统计数据”来提出这一说法。
+近几个月来，海峡两岸的紧张局势一直在上升，一年多来，台湾一直抱怨中共国的空军在这个北京声称是自己的主权岛屿附近反复执行任务。
 
-然而，最新的住院人数可在NHS网站上查到，并显示远远没有达到普里查德所声称的“14倍”的水平。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-179-e1636570832677.png)图片截取于推特
-也许新闻机构在将普里查德的错误说法变成一个响亮的标题之前，应该费心检查一下这些数字。
+台湾国防部说，周二有六架中共军机进入台湾西南防空区，包括四架歼-16战斗机和两架侦察机。
 
-天空新闻随后删除了他们的错误推文。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-180-e1636570932270.png)图片截取于推特
-正如我们之前强调的那样，新闻媒体在很大程度上忽视了过去两周英国的COVID病例一直在下降的事实，而之前我们曾指出政府利用短期的病例上升来游说重新实施限制。
+几家台湾媒体周二报道说，来自美国众议院和参议院的不特定成员已乘坐美国军机抵达台北。
 
-原文连接：[https://www.zerohedge.com/covid-19/media-outlets-report-fake-news-uk-covid-hospitalizations-are-14-times-higher-last-year](https://www.zerohedge.com/covid-19/media-outlets-report-fake-news-uk-covid-hospitalizations-are-14-times-higher-last-year)
+当被问及这次访问时，台湾行政院长苏贞昌周三告诉记者，台美关系“非常重要”，他尊重“朋友之间的互访”。
 
-翻译：洛杉矶盘古农场 — TrueSky
+他说，政府将根据彼此的需要作出“适当的安排”，但没有详细说明。
 
-校对：洛杉矶盘古农场 — Mike Li
+美国在台协会（AIT）是在没有正式外交关系的情况下事实上的美国大使馆，它没有立即回应评论请求。
 
-编辑：洛杉矶盘古农场 — 心照
+中国国防部在一份声明中说，美国国会成员乘坐军用飞机抵达台湾。“我们坚决反对并强烈谴责。”
 
+**参考资料：**[channelnewsasia][China conducts combat readiness patrol as US lawmakers visit Taiwan](https://www.channelnewsasia.com/asia/china-taiwan-combat-readiness-patrol-us-lawkmakers-visit-2301606)
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+* * *
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
 
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
 
  
 
