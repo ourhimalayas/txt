@@ -15,92 +15,92 @@
 
 ---
 
-### [11/11/2021 文贵盖特：曾经借助所谓“光棍节”蹿红的网商平台以及抖音如今风光不再](/content/gnews/1/README.md)
+### [11/11/2021 文贵盖特：红杉资本沈南鹏全家被抓，被迫变卖资产，体制内高官在海外的豪宅接连被中共贱卖套现](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [喜币喜支付能让人拥有终生可传承的财富,喜美元能带来无穷尽的方便](/content/gnews/2/README.md)
+### [日美达成协议 致力建立自由开放的印太地区](/content/gnews/2/README.md)
+ ` HimalayaRussia`
+
+### [11/11/2021 文贵盖特：曾经借助所谓“光棍节”蹿红的网商平台以及抖音如今风光不再](/content/gnews/3/README.md)
+ ` 秘密翻译组-北美组`
+
+### [喜币喜支付能让人拥有终生可传承的财富,喜美元能带来无穷尽的方便](/content/gnews/4/README.md)
  ` MG 澳喜农场多语组`
 
-### [TikTok引发青少年抽搐病](/content/gnews/3/README.md)
+### [TikTok引发青少年抽搐病](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加州官方否认州长遭受疫苗伤害传闻](/content/gnews/4/README.md)
+### [加州官方否认州长遭受疫苗伤害传闻](/content/gnews/6/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [比尔·盖茨最终承认中共病毒疫苗失败了](/content/gnews/5/README.md)
+### [比尔·盖茨最终承认中共病毒疫苗失败了](/content/gnews/7/README.md)
  ` HimalayaRussia`
 
-### [瑞典十九岁女孩注射了辉瑞疫苗两天后开始了她的苦难历程](/content/gnews/6/README.md)
+### [瑞典十九岁女孩注射了辉瑞疫苗两天后开始了她的苦难历程](/content/gnews/8/README.md)
  ` xiaobaige`
 
-### [佐治亚州2020选票图像记录大量被销毁](/content/gnews/7/README.md)
+### [佐治亚州2020选票图像记录大量被销毁](/content/gnews/9/README.md)
  ` HimalayaRussia`
 
-### [密歇根州学校系统在大量教师因 疫苗加强针生病后关闭](/content/gnews/8/README.md)
+### [密歇根州学校系统在大量教师因 疫苗加强针生病后关闭](/content/gnews/10/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美联储警告中共国房地产业可能出现的风险](/content/gnews/9/README.md)
+### [美联储警告中共国房地产业可能出现的风险](/content/gnews/11/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [有声|排除中共国，美商务部长即将出访亚洲多国](/content/gnews/10/README.md)
+### [有声|排除中共国，美商务部长即将出访亚洲多国](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [10月信贷社融增速企稳，个人房贷环比多增千亿](/content/gnews/11/README.md)
+### [10月信贷社融增速企稳，个人房贷环比多增千亿](/content/gnews/13/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [有声| 恒大持续抛售大额股份](/content/gnews/12/README.md)
+### [有声| 恒大持续抛售大额股份](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [布林肯说如果中国攻击台湾，盟国将采取行动](/content/gnews/13/README.md)
+### [布林肯说如果中国攻击台湾，盟国将采取行动](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [香港市民因鼓励“空白选票”遭当局逮捕](/content/gnews/14/README.md)
+### [香港市民因鼓励“空白选票”遭当局逮捕](/content/gnews/16/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [有声| 阿里巴巴股东软银集团巨额亏损](/content/gnews/15/README.md)
+### [有声| 阿里巴巴股东软银集团巨额亏损](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [【信仰之声】生命的意义&#8211;从一个石瓶说起](/content/gnews/16/README.md)
+### [【信仰之声】生命的意义&#8211;从一个石瓶说起](/content/gnews/18/README.md)
  ` 纽约香草山MOS03`
 
-### [2021/11/11 大卫作战室直播精要](/content/gnews/17/README.md)
+### [2021/11/11 大卫作战室直播精要](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声| NewsMax公开反对拜登政府的疫苗强制令](/content/gnews/18/README.md)
+### [有声| NewsMax公开反对拜登政府的疫苗强制令](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [北京证交所将在下周一正式开市](/content/gnews/19/README.md)
+### [北京证交所将在下周一正式开市](/content/gnews/21/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [新泽西州民主党参议院议长最终承认败选](/content/gnews/20/README.md)
+### [新泽西州民主党参议院议长最终承认败选](/content/gnews/22/README.md)
  ` HimalayaRussia`
 
-### [有声| 郭先生大直播解析喜联储的独特之处](/content/gnews/21/README.md)
+### [有声| 郭先生大直播解析喜联储的独特之处](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声|超1.1万名员工拒绝疫苗，申请疫苗豁免，波音公司陷入两难](/content/gnews/22/README.md)
+### [有声|超1.1万名员工拒绝疫苗，申请疫苗豁免，波音公司陷入两难](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [推特正式组建加密技术团队，聚焦加密货币相关领域](/content/gnews/23/README.md)
+### [推特正式组建加密技术团队，聚焦加密货币相关领域](/content/gnews/25/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [有声| 亲历者爆料：中共按需杀人、活摘器官的血腥交易](/content/gnews/24/README.md)
+### [有声| 亲历者爆料：中共按需杀人、活摘器官的血腥交易](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [戳穿中共“人民的江山”谎言](/content/gnews/25/README.md)
+### [戳穿中共“人民的江山”谎言](/content/gnews/27/README.md)
  ` 波士顿五月花农场`
 
-### [有声|拜登政府无视限制令 美多地 “反疫苗强制令”](/content/gnews/26/README.md)
+### [有声|拜登政府无视限制令 美多地 “反疫苗强制令”](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [东躲西藏的中共六中全会，习近平为家天下更进一步](/content/gnews/27/README.md)
- ` YALUN 亚伦`
-
-### [有声|GFASHION新品即将震撼上市](/content/gnews/28/README.md)
+### [有声|GFASHION新品即将震撼上市](/content/gnews/29/README.md)
  ` MOSREC`
-
-### [11/04/21 香港快讯 “美队 2.0”煽动分裂国家罪成 判囚 5 年 9 个月 官：情节严重 被告毫无悔意](/content/gnews/29/README.md)
- ` 英喜-粵語組`
 
 ### [GTV新闻访谈简报|2021年11月11日早](/content/gnews/30/README.md)
  ` 纽约香草山MOS01`

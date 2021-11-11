@@ -2,36 +2,20 @@
 ---
 
 
-## 密歇根州学校系统在大量教师因 疫苗加强针生病后关闭
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1656552/)
+## 瑞典十九岁女孩注射了辉瑞疫苗两天后开始了她的苦难历程
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1656586/)
 
-**翻译：**真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/11/saginaw-covid-booster-3-edited.jpg)图片来源：网络
-来自THE GATEWAY PUNDIT星期三十一月十日的新闻报道：
+#### 意大利罗马达芬奇农场                             小白鸽
 
-在许多工作人员因疫苗加强针不良反应而生病后，密歇根州一个乡镇的许多学校于周一关闭。
+图片来源：eventiavversinews.it
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Schermata-2021-11-11-alle-19.14.35.png)
+简尼菲•梅琳是一位19岁的瑞典姑娘。但在短短的几个星期之内， 从一位健康活波的姑娘沦为一个不得不以轮椅为生的姑娘。简尼菲于7月接种了第一剂辉瑞疫苗， 两天后她的双手失去了知觉，她出现了平衡问题，甚至双脚麻木。 几天后，这一症状扩展到一条腿上， 简尼菲需要别人帮助才能走路。不久，她的双腿都无法站立也无法走动了。她与卫生部门的关系令人失望，简尼菲去神经病学家那儿看了几次门诊，他都否认简尼菲的问题来自疫苗。医生还想出各种办法让她行走，但结果都是徒劳的。
 
-由于员工因拒绝遵守疫苗规定而被解雇或辞职，萨吉诺（SAGINAW）学区和全国各地的学校都严重人手不足。
+简尼菲将自己的遭遇发到了她的Instagram 上，当地报纸“ Sundsvall Tidning” 与她联系，希望对她的经历进行报道。但是她收到的报社的稿件与最终在网上发表的文章是不同的。所有有关疫苗方面的信息全部被移除。当地报社就此辩解，报社决定忽略所有有关疫苗的信息。不但如此， 简尼菲还注意到这家报纸的脸书有关新冠疫苗副作用的评论帖子也被删掉，现在相关评论也完全看不到了。简尼菲感到她的遭遇并没有得到重视，媒体根本不想提疫苗。她说：**“ 他们号召我们年轻人互助，让我们为了他人而去接种疫苗。 但是当人们因此而受到伤害时，就没有了互助，碰到的只是黑暗和失去的信心。”**
 
-萨吉诺县社区学校的许多工作人员在周末接受了实验性的 COVID 加强针后，他们产生了负面反应，并且病得太重而无法重返工作岗位，迫使该镇的小学、中学和高中在周一关闭。
+原文链接：https://www.eventiavversinews.it/svezia-il-dramma-della-19enne-jennifer-melin-finita-su-una-sedia-a-rotelle-il-calvario-inizia-due-giorni-dopo-il-vaccino-pfizer/
 
-萨吉诺镇社区学校周一在其网站主页和 Facebook 页面上宣布：“我们的许多员工对周末在志愿诊所进行的 COVID 加强剂产生了负面反应。” “全州都存在代课教师/员工短缺的情况，这使得弥补这些缺勤进一步复杂化。”
-
-一位地区发言人告诉萨吉诺当地的 ABC 附属机构，造成负面反应的是疫苗加强针，而不是 Covid-19。
-
-学区领导没有提供有关教师正在应对的副作用的详细信息。
-
-**点评:  **密歇根州是蓝州，民主党或自由党的地盘。 “虽然说起来可能很可怕，但参与实验性疫苗的志愿者多数是自由主义者（民主党追随者），等到他们都将这种死亡和一生的痛苦放在一起时，发现他们被用作豚鼠（试验品）。 他们会成群结队地离开自由党，我已经听到很多人谈到这一点，特别是当拜登试图将其强制化，他们会惊醒是什么党强迫伤害他们并从此离开。“——–摘自评论区
-
-原文链接:[https://www.thegatewaypundit.com/2021/11/michigan-school-system-closes-large-number-teachers-become-covid-shot/](https://www.thegatewaypundit.com/2021/11/michigan-school-system-closes-large-number-teachers-become-covid-shot/)
-
-编辑/发布：LILY
-
-20211111
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
-
-
-
+责任编辑、发布： Xiao baige
 
  
 
