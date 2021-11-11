@@ -2,47 +2,40 @@
 ---
 
 
-## 对郭文贵先生绝顶佩服的马云要么被做掉要么跑到美国
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1655320/)
+## 前花旗集团CEO表示，所有大银行都将很快交易加密货币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1655342/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/id13318222-000_9Q34RM-600x400-1_副本.jpg)
-据[2021年11月10日 文贵大直播：中共六中全会内部报告：中国癌症发病人数第一，与病毒相关性死亡1370万人；香港外籍人士撤离历史新高，大量外汇移出，香港在6个月内成为金融空港；对病毒真相的掩盖造成医疗行业医务人员流失短缺；六中全会就是中共内斗，抓人，习一神要做2件事；](https://gtv.org/video/id=618bc611e7e7703792324e25)时间59：08——
+简评：***加密货币的迅猛发展吸引了各国政府及金融机构的注意，如萨尔瓦多已将比特币作为其法定货币。虽然加密货币市场在 2021 年经历了波折，但这并没有阻挡其飙升至新高度。周一，根据CoinGecko提供的数据，加密货币的整体市值已经达到3.03万亿美元，而四大加密货币——比特币、以太坊、币安币和Solana居功至首。相信伴随三大主要事件的逐一发生，我们的喜马拉雅币（HCN）将一路阔步买进加密货币的巅峰。***
 
-**郭文贵先生：**马云回到香港，然后这两天要回大陆了，马云真的是身体也出问题了，出了大问题了。我觉得这种情况下不可能不出问题的，马云的每时每刻我们都知道，马云的事情会很大，马云最后只有两个——一个共产党把他做掉，一个马云跑到美国来，他没有第三条路，结局一定如此。
+据《TheStreet.com》记者：VERONIKA BONDARENKO，2021年11月8日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-64.png)图片来源：彭博社
+花旗集团（Citigroup）前首席执行官潘伟迪（Vikram Pandit）在新加坡的一个科技会议上预测，全球所有主要银行将在“一到三年内”开始进行加密货币交易。
 
-而且会引发上海帮和私营企业家之间最后的对决，这个对决战友们你们要看到，就像我说的，你现在说我们有些战友不坚定地说我们又不能贴现了，又是这个币不值钱了，又是假了，是虚拟币就是空气了。一个最好的办法从小你就知道，我觉得你只要是个人就懂的道理——远离骗子！远离小偷！是最好的方式嘛，你远离我们不就完了吗？你别搭理我不就完了吗？你别被我们骗不就完了吗？把钱拿走别理我们、别看我们，去看路大脑骗、蛇妖闫。
+潘伟迪在新加坡金融科技节（Singapore Fintech Festival）接受彭博社（Bloomberg）记者哈斯琳达·阿明(Haslinda Amin)采访时表示，随着加密货币逐渐主宰银行业和交易世界，大型银行不愿接受加密货币的态度可能很快就会发生改变。
 
-马云这个是一样的，头一段时间咱那个哥们其中一个人说，欸，老郭呀，马云真的对你是绝顶地佩服，他发自内心地尊敬你、佩服你，这是绝对是德高望重之士跟我说这话，说到这，这个这哥们眼泪都下来了。
+潘伟迪在接受彭博社采访时表示：“每家大银行或证券公司都将积极考虑‘我是否也应该交易和出售加密货币资产’。”潘伟迪曾在2007年至2012年期间领导花旗集团，目前担任The Orogen Group的董事长（潘伟迪为联合创始人）。
 
-他说你看我不会骗你的，他说马云太可怜。他说当别人说你是骗子的时候，马云说这帮傻掰，他说郭文贵拿啥骗你？骗你啥？他说，你知道我当时很感动，这一屋子的人，马云说这话。他说，欸，这帮傻货，他说共产党还这么诋毁郭文贵，他这样的人骗你啥？拿啥骗你？
+这一举措已经在许多地方发生。
+上周，澳大利亚联邦银行（Commonwealth Bank of Australia）宣布将很快为其客户提供交易加密货币的机会。而据Markets Insider最先报道，高盛（Goldman Sachs）、富国银行（Wells Fargo）和富达（Fidelity）都在招聘大量加密货币专家。
+作为与银河数码合作的一部分，高盛集团（Goldman Sachs Group Inc.）最近也开始交易加密货币期货。
 
-最后这个哥们说，你知道马云的代价是什么？结局是什么？我说马云被共产党做掉，或者他跑到美国来，没有任何第三条！这个哥们有多少钱呢？拿了马云30亿美元，他的基金里边帮马云投资，也被共产党和马云通知把钱拿回来。
+潘伟迪此前曾投资过加密货币公司，如Alchemy Insights和Coinbase (COIN)。Coinbase已上市，目前股价上涨5.53%，至355,68美元。
 
-不会超过一个月你会看到一个世界级的品牌，会卖掉很便宜，跟你们都有关系的。这个公司就是马云的，你们会很震惊，我现在不说，因为他跟我这朋友有关系，现在已经打了5折了，要现金。
+他对彭博社表示，纸质银行系统“繁琐”且“负担沉重”。他认为，接受数字货币可以缓解其中一些挑战。
 
-（以下暂略）
+潘伟迪表示：“我最大的希望是，世界各地的央行都能理解中央银行数字货币的好处，并逐步接受和采用它们。”
 
-撰稿：喜马拉雅的肉夹馍；
+原文连接：[https://www.thestreet.com/investing/all-big-banks-will-be-crypto-trading-soon-former-citigroup-ceo-vikram-pandit-says](https://www.thestreet.com/investing/all-big-banks-will-be-crypto-trading-soon-former-citigroup-ceo-vikram-pandit-says)
 
-审核：喜马拉雅的馍夹肉；
+翻译：洛杉矶盘古农场 — 钢蛋儿
+校对：洛杉矶盘古农场 — Mike Li
+评论：洛杉矶盘古农场 — 钢蛋儿
+编辑：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-校对：Maarago；
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,40 +2,35 @@
 ---
 
 
-## 前花旗集团CEO表示，所有大银行都将很快交易加密货币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1655342/)
+## 中美达成更多气候保护协议
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1655432/)
 
-简评：***加密货币的迅猛发展吸引了各国政府及金融机构的注意，如萨尔瓦多已将比特币作为其法定货币。虽然加密货币市场在 2021 年经历了波折，但这并没有阻挡其飙升至新高度。周一，根据CoinGecko提供的数据，加密货币的整体市值已经达到3.03万亿美元，而四大加密货币——比特币、以太坊、币安币和Solana居功至首。相信伴随三大主要事件的逐一发生，我们的喜马拉雅币（HCN）将一路阔步买进加密货币的巅峰。***
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-据《TheStreet.com》记者：VERONIKA BONDARENKO，2021年11月8日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-64.png)图片来源：彭博社
-花旗集团（Citigroup）前首席执行官潘伟迪（Vikram Pandit）在新加坡的一个科技会议上预测，全球所有主要银行将在“一到三年内”开始进行加密货币交易。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/der-chinesische-klimagesandte.jpg)
 
-潘伟迪在新加坡金融科技节（Singapore Fintech Festival）接受彭博社（Bloomberg）记者哈斯琳达·阿明(Haslinda Amin)采访时表示，随着加密货币逐渐主宰银行业和交易世界，大型银行不愿接受加密货币的态度可能很快就会发生改变。
 
-潘伟迪在接受彭博社采访时表示：“每家大银行或证券公司都将积极考虑‘我是否也应该交易和出售加密货币资产’。”潘伟迪曾在2007年至2012年期间领导花旗集团，目前担任The Orogen Group的董事长（潘伟迪为联合创始人）。
+资料来源：FAZ
 
-这一举措已经在许多地方发生。
-上周，澳大利亚联邦银行（Commonwealth Bank of Australia）宣布将很快为其客户提供交易加密货币的机会。而据Markets Insider最先报道，高盛（Goldman Sachs）、富国银行（Wells Fargo）和富达（Fidelity）都在招聘大量加密货币专家。
-作为与银河数码合作的一部分，高盛集团（Goldman Sachs Group Inc.）最近也开始交易加密货币期货。
+世界上最大的两个温室气体排放国中国和美国在联合国气候大会上签署了加强气候保护的协议。中国气候特使谢振华周三晚间在格拉斯哥宣布。 “双方都认识到当前的努力与巴黎气候协定的目标之间存在差距，”他指出的是全球变暖 2.7 度的威胁。
 
-潘伟迪此前曾投资过加密货币公司，如Alchemy Insights和Coinbase (COIN)。Coinbase已上市，目前股价上涨5.53%，至355,68美元。
+因此，两国将共同努力加强气候保护，协议包含“具体计划”。该协议是在过去十个月中两国代表举行的 30 次在线会议上起草的。
 
-他对彭博社表示，纸质银行系统“繁琐”且“负担沉重”。他认为，接受数字货币可以缓解其中一些挑战。
+“作为世界上的两个大国，我们必须承担起与其他方面合作应对气候变化的责任，”中方代表谢振华说。他还保证，在格拉斯哥，两国还将努力完成具体实施《巴黎气候协定》的规则手册。
 
-潘伟迪表示：“我最大的希望是，世界各地的央行都能理解中央银行数字货币的好处，并逐步接受和采用它们。”
+美国气候特使约翰克里证实了该协议。他在格拉斯哥说，气候保护合作是应对气候危机的“唯一途径”。联合国秘书长安东尼奥·古特雷斯称赞两国之间的协议是“朝着正确方向迈出的重要一步”。
 
-原文连接：[https://www.thestreet.com/investing/all-big-banks-will-be-crypto-trading-soon-former-citigroup-ceo-vikram-pandit-says](https://www.thestreet.com/investing/all-big-banks-will-be-crypto-trading-soon-former-citigroup-ceo-vikram-pandit-says)
+《巴黎协定》规定将全球变暖限制在远低于 2 度的范围内，甚至在 1.5 度以内。根据联合国的说法，即使所有国家的气候保护承诺都得到履行，到本世纪末，地球目前正朝着 2.7 度的灾难性变暖迈进。中国和美国加起来造成了全球近 40% 的破坏气候的二氧化碳排放量。
 
-翻译：洛杉矶盘古农场 — 钢蛋儿
-校对：洛杉矶盘古农场 — Mike Li
-评论：洛杉矶盘古农场 — 钢蛋儿
-编辑：洛杉矶盘古农场 — 心照
-发布：洛杉矶盘古农场 — 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+自10月31日以来，近200个国家在格拉斯哥就2015年巴黎协定的具体实施进行了谈判。COP26正式定于周五结束。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+在世界气候大会召开前不久，中国对其修订后的气候目标感到失望。其中，世界上人口最多的国家只确认要到 2060 年实现二氧化碳中和。该国的温室气体排放量预计将在 2030 年之前达到峰值，因此届时它们可能会大幅上升。
+
+与许多其他国家元首和政府首脑不同，中国国家主席习近平在联合国气候大会开始时没有前往格拉斯哥，这一事实也受到广泛批评。美国和世界各国都呼吁北京加强气候保护。
+
+原文链接：[新闻来源：德国法兰克福报 网页版](https://www.faz.net/aktuell/politik/ausland/un-klimakonferenz-china-und-usa-fuer-mehr-klimaschutz-17628510.html)
+
+责任编辑、发布： Shuizhuyu
 
  
 

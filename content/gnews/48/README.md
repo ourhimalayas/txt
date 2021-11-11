@@ -2,16 +2,16 @@
 ---
 
 
-## 维也纳黔驴技穷 利用性服务引诱疫苗接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653907/)
+## 中共国病例破千，3-11岁儿童成最大受害者
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653908/)
 
 作者：纽约香草山文艺部 – 宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月9日，奥地利维也纳为了引诱更多人接种疫苗，通过一所名叫欢乐宫的妓院，向接种过的客人提供30分钟的性体验服务，并且客人可以挑选他们喜欢的小姐一同桑拿。一名打了疫苗到该妓院的男子承认，“此规定无疑加快了疫苗接种率”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4-5.jpg)
-据有关媒体报道，奥地利的疫苗接种率约为64%，而未接种疫苗者的生活已然受到了影响，他们被禁止光顾咖啡馆、餐馆和美发店。奥地利政府规定，凡是住店、观影或参加超过25人以上活动的人，都必须提供疫苗接种证明。
+九月下旬中共开始展开大规模的第三针疫苗接种工作，以及在二十余个省市中加速推行3-11岁儿童新冠疫苗接种，自10月17日至今短短半个多月内，中共国内感染新冠病毒者已逾千例，同时多地出现校内儿童聚集性感染。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture77-2.jpg)
+据爆料称，在本轮疫情中，仅北京地区，确诊病例中接种过疫苗的患者就高达82%。儿童阳性病例数同样达到新高。从11月2日至7日，仅河南郑州市就出现29例儿童感染病例。
 
-参考链接：[维也纳黔驴技穷 利用性服务引诱疫苗接种](https://www.redvoicemedia.com/2021/11/video-brothel-in-vienna-now-offering-30-minutes-with-lady-of-choice-in-exchange-for-vaccine/)
+参考链接：[中共国病例破千，3-11岁儿童成最大受害者](http://www.jksb.com.cn/html/xinwen/2021/1108/173875.html%20http://www.dg.gov.cn/ztzllm/yqfk/dgzxd/content/post_3653267.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
