@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/11/2021 7:50 AM (UTC)`
+
+11/10/2021 Miles Guo: Our scientist fellow fighters revealed that the oral drugs against the CCP virus pushed by the crooked pharmaceutical companies to evade regulation are more poisonous than the COVID vaccines, and these drugs can result in a range of problems in the blood, nervous and digestive system. Fellow fighters, stay away from these drugs!<br/><br/>11/10/2021 文贵直播：科学家战友爆料称，无良药企为逃避监管而强推的口服抗中共病毒药比疫苗更毒，会导致血液、神经、消化系统等一系列严重问题。战友们千万别碰！<br/>
+![img](https://media.gettr.com/group16/getter/2021/11/11/07/50/03475c77-8b2d-6dfb-6a89-2aed7ed5d40d/out.jpg)
+
+---
+
+`@miles 11/11/2021 7:42 AM (UTC)`
+
+11/10/2021 Miles Guo: The CCP’s data show that there are 70 million people infected with the CCP virus and 13.7 million “coronavirus-related deaths” in China. These data, however, are not included in the 250 million CCP virus confirmed cases and the 5 million deaths worldwide; the CCP’s atrocities have gone far beyond those of the Nazi, whereas the Whistleblowers’ Movement and the NFSC are doing a magnificent work by saving the people with the truth<br/><br/>11/10/2021 文贵直播：中共的数据显示，中国有7000万人确诊中共病毒和1370万“冠状病毒相关性死亡”案例，但该数据都不包括在全球2.5亿感染中共病毒的病例数和500万死亡人数之中；中共暴行远超纳粹，而爆料革命和新中国联邦用真相救人胜造七级浮屠<br/>
+![img](https://media.gettr.com/group4/getter/2021/11/11/07/42/54af9cbe-4d61-a83d-0724-878b0474097e/out.jpg)
+
+---
+
 `@miles 11/11/2021 5:46 AM (UTC)`
 
 11/10/2021 Miles Guo: The CCP’s Sixth Plenary Session has turned into political infights packaged with falsehood - the CCP is spreading the lies that its economy is doing good, with over 100 countries wanting to establish “strategic all-weather brotherhood partnerships”<br/><br/>11/10/2021 文贵直播：中共的六中全会变成了内斗，并以假象包装 - 中共谎称其经济形势大好，且有100多个国家要求建立“战略性、全天候兄弟伙伴关系”<br/>
@@ -278,20 +292,6 @@ The vaccination disaster has gradually become prominent: The patients in the ICU
 
 2021年11月7日 文贵大直播：虚拟货币知多少     喜币未来有多牛
 ![img](https://media.gettr.com/group16/origin/2021/11/07/12/717a6e8c-396a-fa23-382a-5a5787a88ddd/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 11/7/2021 3:17 AM (UTC)`
-
-11/05/2021 Miles Guo: The triumphs of the US Republican Party is a miracle. The U.S. will destroy the CCP within 3 minutes if it dares to launch a war in Taiwan.  The UN will be provided with the funds by the Himalaya Reserve for 3-5 years, in exchange for Taiwan’s joining the UN. Taiwan will be protected by all the countries in the world.<br/><br/>11/05/2021 文贵直播: 美国共和党大赢，若中共胆敢对台湾动武，美国三分钟就可以摧毁它。喜联储可为联合国提供3-5年的资金，作为台湾加入联合国的交换条件，这样台湾就会受到全世界各国的保护。<br/>
-![img](https://media.gettr.com/group21/getter/2021/11/07/03/6e97222a-7849-b735-a61f-139a8a42b349/out.jpg)
-
----
-
-`@miles 11/6/2021 11:40 PM (UTC)`
-
-11/05/2021 Miles Guo: Both the decoupling with the Communist China and the anti-Chinese movement are ongoing in the entire world. The worse the disasters caused by the COVID vaccines, the worse the the anti-Chinese movement will be; Only when the truth about the COVID vaccine disaster and the coronavirus is confirmed will we realize the importance of having our NFSC, Himalaya Dollar, and Himalaya Coin<br/><br/>11/05/2021 文贵直播: 全世界脱华和排华正在进行中，疫苗灾难有多坏，排华就有多糟；当疫苗灾难和冠状病毒的真相被确认时，我们才能知道拥有新中国联邦、喜美元和喜币有多重要<br/>
-![img](https://media.gettr.com/group44/getter/2021/11/06/23/40/98beb596-f007-dd72-5610-e0be478498f0/out.jpg)
 
 ---
 
