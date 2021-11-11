@@ -2,10 +2,10 @@
 ---
 
 
-## 11/10/2021 文贵直播：中共的数据显示，中国有7000万人确诊中共病毒和1370万“冠状病毒相关性死亡”案例
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1655833/)
+## 11月9日新西兰反强制疫苗大游行
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1656054/)
 
-秘密翻译组-北美组
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

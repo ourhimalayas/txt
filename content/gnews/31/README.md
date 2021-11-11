@@ -2,14 +2,16 @@
 ---
 
 
-## 推特正式组建加密技术团队，聚焦加密货币相关领域
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1656373/)
+## 北京证交所将在下周一正式开市
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1656424/)
 
-推特近日已经正式组建一支全新的加密技术团队，Interchain基金会及Mina基金会委员TessRinearson已经加盟推特，领导这支新组建的团队。TessRinearson发推表示，这支新团队将「聚焦密码学、区块链和其他去中心化的技术，包括但不止于加密货币方面」。
+全国股转公司官网显示，汉鑫科技、中设咨询、中寰股份、晶赛科技、科达自控、同心传动、大地电气、志晟信息、广道高新、恒合股份10家公司均发布公告称，经北京证券交易所同意，将于11月15日在北交所上市。截至本周三，精选层企业已有71家，它们将全部平移北交所，加上这10只新股，届时北交所上市企业将超过80家。
 
-财经G评：郭先生在GETTR未上线时就反复强调了未来GETTRPay（HimalayaPay）的金融属性、优势和发展愿景。推特现在宣布正式组建加密技术团队，聚焦加密货币相关领域，凸显出GETTR的成立和未来愿景让推特真正感到了恐惧！如果GETTR没有潜力和实力，推特也不必如此。GETTR将会是未来社交媒体的引领者。
-![img](https://media.gettr.com/group24/getter/2021/11/11/08/29/2f8bbafc-d441-50ab-a35b-20779af49e2f/852094fa44b6d027d1c9e359c8ffa941_500x0.jpg)
-参考链接 [https://www.theverge.com/2021/11/10/2277…](https://www.theverge.com/2021/11/10/22774501/twitter-crypto-dedicated-team-dorsey-square-decentralization)
+**财经G评：
+问：北交所开市意义是什么？
+答：换块牌子，继续割韭菜。**
+![img](https://media.gettr.com/group1/getter/2021/11/11/08/19/fef39274-b460-b350-67f5-89f19b6be7a7/e478fad57eb143ef3b671f334f443fba_500x0.jpg)
+参考链接：[https://finance.sina.com.cn/stock/s/2021-11…](https://finance.sina.com.cn/stock/s/2021-11-11/doc-iktzscyy4841221.shtml)
 
 **（文章内容仅代表新西兰-财经G乐部节目观点）**
 
