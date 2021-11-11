@@ -2,13 +2,13 @@
 ---
 
 
-## 超过1000人聚集在洛杉矶市中心抗议疫苗强制令
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1654498/)
+## 德国承认中共病毒疫苗会造成心脏炎症
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1654614/)
 
-11/08/2021 超过千人聚集在洛杉矶市中心抗议疫苗强制令，因为如果城市雇员到12月18日还未接种疫苗的话他们将被解雇。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1111-1-scaled.jpg)
+*编辑：东京樱花团/简报小组*
+*发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

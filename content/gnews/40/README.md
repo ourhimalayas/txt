@@ -2,30 +2,35 @@
 ---
 
 
-## 海豹突击队队员起诉美军方疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1653906/)
+## 2021/11/09 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1654145/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月9日，美国数十名海豹突击队队员发起联邦诉讼，反对军方的疫苗强制接种令。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-5.jpg)
-这一诉讼由美国法律组织“第一自由研究所”代表原告方发起，有大约 35 名海豹突击队现役队员和 3 名海军预备役人员共同提出诉讼。本次诉讼的起因是，美国海军要求现役人员必须在 11 月 28 日之前完成疫苗的完全接种，预备役人员需要在 12 月 28 日之前完成接种。原告方主张，美国军方强迫他们接种疫苗，侵犯了美国军人的宪法权利，包括第一修正案的自由权利和《恢复宗教自由法》的权利。
+- 001   11月8日，四川成都环球中心只因疑似病例经过进行临时封控，多人试图逃离封控区。
+- 002   市民得知临时封控后，百米冲刺速度赶去做核酸。
+- 003   人山人海的核酸检测，从白天到黑夜。
+- 004   11月8日晚间，江西上饶市信州区已经封城。
+- 005   11月8日24时，云南瑞丽市执行封城7天。
+- 006   疫苗仍在各地强制。学校变相强制，威胁家长，孩子必须打疫苗！
+- 007   加强针任务在社区分配，社区工作人员完不成任务回不了家，凑不上数只能自己再多打一针！
+- 008   疑似6岁孩童打疫苗后脑梗。
+- 009   山西太原市妇幼医院，孩子在外面受冻，保安拦住不让进。
+- 010   河南信阳，母亲带孩子到医院看病，无论大病小病上来就拍片。吐槽医院医生没有临床诊断，只会唯利是图。
+- 011   中共遍地豆腐渣工程。大连北站高架桥桥墩出现开裂，桥墩底层竟然没有浇筑水泥。
+- 012   11月5日，浙江杭州。驾驶员在物流批发市场的一条未通行的路上停车休息， 被交警贴罚单 。
+- 013   11月5日，广州一小区新装电梯按次收费 ，收费按楼层增加，最高40元一个月。
 
-参考链接：[海豹突击队队员起诉美军方疫苗强制令](https://mp.weixin.qq.com/s?__biz=MjM5MDk1NzQzMQ==&amp;mid=2653520011&amp;idx=5&amp;sn=6d1ade10341b89b4f58b94a402c71bd9&amp;chksm=bd61ca938a164385da6cb7aad765b3006ed2b03512d479ff4557e6c084547e09eff5fb1f2795&amp;mpshare=1&amp;scene=23&amp;srcid=1110gEEMrBYriKLp6XX77LPW&amp;sharer_sharetime=1636541600554&amp;sharer_shareid=cfbee3ebfb5cdbcbdd48c08797ee2f88#rd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+* * *
 
-总编：文特
-编辑：AN
-校对/发稿：Hetangyuese
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

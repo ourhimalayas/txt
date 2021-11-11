@@ -2,38 +2,46 @@
 ---
 
 
-## 拜登下周将与习举行虚拟会晤
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1654791/)
+## 波音公司承认对埃塞俄比亚航空公司737 Max坠毁事件负责
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1654809/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/X.jpg)al-khaleehjtoday.net
-最早发出此消息的是《彭博社》，王岐山的喉舌，懒得花钱看全文了。CNN倒是免费，作个摘译吧。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Boeing-737-MAX.jpg)
 
-CNN的文章题目：“消息人士称，习近平表示中共国已准备好与美国合作，拜登计划于下周举行会议”。
 
-文章说，中共领导人习近平周二（11月9日）表示，中共国已准备好处理与美国的分歧，这是在与美国总统乔·拜登进行虚拟会晤之前，（习说了此番话）。
 
-熟悉会议计划的消息人士告诉《美国有线电视新闻网》，这次是拜登今年早些时候成为总统以来的第一次会议，最早将于下周举行，但是，尚未列出具体细节和确定日期。
+图片来源：www.fierceelectronics.com
 
-文章还说，根据周二（11月9日）中共驻美国大使馆网站上发表的一份声明，习近平暗示与美国的关系略有升温。
 
-习近平在信中表示，中方愿同美方“全方位加强交流合作”，推动两国关系重回正轨。
+#### 编译：小红帽
 
-中共驻美国大使秦刚周二在华盛顿举行的美中关系全国委员会晚宴上宣读了这封信。
+波音公司承认对2019年3月埃塞俄比亚航空公司302号航班的坠毁事件负有责任。在该事件中，157名乘客和机组人员死亡。
 
-……
+此举是在向美国芝加哥地方法院提交的一份文件中提出的，以回应受害者家属的诉讼。
 
-（摘译完）
+这架几乎全新的波音737 Max刚刚从亚的斯亚贝巴起飞，飞往肯尼亚的内罗毕，当时飞行员对飞机失去了控制。
 
-看来习神搞定了国内的事情？学当年的蛤蟆江，在完成了“垂帘听政”的预谋后，也是在美国高调宣布“Every thing is O.K.”。
+五个月前，另一架737 Max在离开印度尼西亚首都雅加达后不久坠落在爪哇海。狮航610号航班上的189人全部遇难。
 
-希望别把台湾给勾兑出去，其它事情慢慢来吧，在拜登的袒护下，病毒疫苗的事，短期内惩治不了中共。盼望2022、2024保守人士上台，这样才能对中共出手更狠。
+这两起悲剧的原因是一个软件系统发生了致命的故障，使飞行员拯救飞机的努力落空。
 
-原文链接：
+这归咎于被称为“机动特性增强系统”（MCAS）的软件，该软件的安装是因为737飞机的最新型号有不寻常的结构–大型发动机安装得更靠前。
 
-[https://www.cnn.com/2021/11/10/china/xi-biden-china-us-virtual-meeting-intl-hnk/index.html](https://www.cnn.com/2021/11/10/china/xi-biden-china-us-virtual-meeting-intl-hnk/index.html)
+MCAS旨在 “提供稳定的操纵质量”。但是，主要的安全监管机构、美国联邦航空管理局（FAA）和购买飞机的航空公司都没有充分了解这个新系统。
+
+在这两起坠机事件中，来自一个有故障的传感器的错误数据，导致软件在飞行员努力控制时反复向下推飞机的机头。
+
+**参考新闻：** [Boeing admits liability for Ethiopian Airlines 737 Max crash (msn.com)](https://www.msn.com/en-au/lifestyle/travel/boeing-admits-liability-for-ethiopian-airlines-737-max-crash/ar-AAQyByy?ocid=msedgntp)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,50 +2,30 @@
 ---
 
 
-## 澳大利亚将给12岁以下儿童接种莫德纳疫苗
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1654864/)
+## 中共六中全会强力维稳，异议人士被迫离京行动受限
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1654897/)
 
-#### 翻译：Lish
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5823-8.jpg)图片来源：Healthline & Reuters
+![上海举行的中国国际进出口展销会媒体中心的多面电视屏幕正在播放中国领导人习近平的讲话。（2021年11月4日）](https://gdb.voanews.com/14A20770-E17A-439D-96D5-CE16FE1C5FCF_cx0_cy4_cw0_w1023_r1_s.jpg)*上海举行的中国国际进出口展销会媒体中心的多面电视屏幕正在播放中国领导人习近平的讲话。（2021年11月4日）*
+据美国之音11月11日报道，中共19届六中全会即将于11日落幕，会中通过的“历史决议”可望让中共国国家主席习近平的权势再攀高峰。就在习近平炮制“新毛主义”的同时，北京当局依照惯例在会议期间升级维稳，多名异议人士遭拦截、被迫返乡，网路言论也受到打压。部分观察人士示警，中共国对民众的严密监控恐将成为常态。
+
+六中全会是中共自1949年建政以来第三次推出的特殊历史决议。会议期间北京部署特别维稳行动，全国各地也在加强警戒，因为中共明年将举办北京冬奥会并召开二十大。这种高压状态很可能会持续下去，成为一个常态。
+
+中共对内强权监管百姓，控制百姓的一举一动，甚至言谈思维。对外吹嘘大国自信。真的大国自信就打开国门，推倒防火墙，让百姓畅快淋漓地接触外面的世界。中共在灭亡之前，肯定会加强管控的强度和力度。中共的疯狂就是其灭亡的前奏。
+
+新闻参考链接：[https://www.voachinese.com/a/China-tries-to-silence-activists-as-CCP-Central-Committee-holds-sixth-plenum-in-Beijing-20211111/6307785.html](https://www.voachinese.com/a/China-tries-to-silence-activists-as-CCP-Central-Committee-holds-sixth-plenum-in-Beijing-20211111/6307785.html)
+
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-11月10日，澳洲治疗用品管理局（TGA）已经宣布莫德纳疫苗已被授予临时认定，6-11岁的儿童将很快就会接种这款疫苗。
+编辑：【英国伦敦喜庄园编辑部】
 
-如果获得批准，SPIKEVAX可能成为澳大利亚首款可用于12岁以下儿童的疫苗。
-
-【备注：SPIKEVAX是莫德纳疫苗德另一个命名。】
-
-TGA说，这一决定是基于在儿童中使用该疫苗的最新临床数据(支持)，以及中共病毒对儿童学校教育的（不利）影响。
-
-卫生当局在一份声明中写道，“在作出给予莫德纳疫苗临时裁定决定时，TGA考虑了计划提交与儿童使用相关全面临床数据的证据”。
-
-“TGA还考虑了儿童的感染情况以及新冠对儿童参与学校和体育活动的影响”，“莫德纳在澳大利亚已经提交了临时批准的数据，TGA正在评估SPIKEVAX疫苗在6至11岁儿童中的使用”。
-
-在TGA的公告之前，其他国家却发布了一些限制莫德纳疫苗在儿童中使用的公告。
-
-**法国和瑞典已经宣布进一步限制莫德纳疫苗在年轻人中的使用，并取消了对****30****岁以下人群的推荐。两国政府的决定是因为莫德纳疫苗对年轻人的心脏造成相关问题的风险相对较高。**
-
-**辉瑞疫苗也在上个月被****TGA****授予****12****岁以下儿童的临时认定**，并且看起来将在莫德纳疫苗之前获得全面批准。
-
-首席医疗官保罗·凯利（Paul Kelly）说：“TGA已经收到了辉瑞公司的建议，对该年龄组疫苗接种的申请过程正在进行中。”
-
-“这是一个真正重要的因素，将在未来几周和年底前推广开来。”
-
-澳大利亚儿童在最近一波中共病毒疫情中受到的打击尤其严重。该病毒的传播在小学里很常见，那里的大部分学生都在12岁以下，因此还没有资格接种任何中共病毒疫苗。
-
-如果（这次）莫德纳被TGA批准，1-6年级的儿童应该都有资格接种该疫苗。
-
-原文链接：[TGA grants provisional determination for Moderna jab for children under 12 | news.com.au — Australia’s leading news site](https://www.news.com.au/world/coronavirus/australia/tga-grants-provisional-determination-for-moderna-jab-for-children-under-12/news-story/a6d44efc230e6b86ceb1ef58a06779e4)
-
-发布：文泓
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
