@@ -2,22 +2,28 @@
 ---
 
 
-## 台湾前线｜美国防部：军机访台是义务、惯例
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1652690/)
+## COVID-19 最新情报｜南韩证明 高接种率仍无法病毒共存
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1652757/)
 
-台灣寶島農場 港台前線關注組 / 發佈時間｜10/11/2021
-![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-07-14.32.38.jpeg)
-**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
+**台湾宝岛农场 疫情关注组 / 发布时间｜10/11/2021**
 
-9日，美国国会议员、军方人士共13人搭乘军机访台。对此，中共要求美方停止挑衅，并派出解放军于台海战备巡逻。美方则认为，访台是台湾关系法的义务，访问团使用军机也不罕见，并且今年搭乘军机访台已经是第二次了。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-台湾总统府、美国驻台协会（AIT）并未回应美官员访台一事。
 
-美方人员访台时，韩国产业通商资源部长官文胜煜于当地时间9日访问美国，与商务部长吉娜．雷蒙多针对“半导体供应短缺问题”进行了约40分钟的会晤。会晤主要目的要求三星提供晶片供应相关资料，台湾方面台积电已经按照美国商务部要求提供资料。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/港台前線-（TW）-2-1.jpg)
+南韩11月1日改变防疫模式，急重症病例数急增，截至10日达到460例，超过82%急重症患者为60岁以上长者。南韩在改变防疫模式前，两个月以来急重症数维持在300多例。南韩防疫部门认为是疫苗保护力降低，配合宽松防疫政策导致疫情扩散。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/截圖-2021-11-10-下午5.21.25.png)南韩疫苗接种相关统计数据
+截至11月9日，完整接种覆盖率高达76.5%，仍因为“放宽防疫政策”导致急重症数量激增。南韩政府10日举办的中央灾难安全对策本部会议表示，新冠重症病例、死亡病例、病毒基本再生数等各项防疫指标的恶化速度均高于预期。
+
+- 相关：[美国卫生研究院(NIH)批准“伊维菌素”作为新冠治疗药物](https://gnews.org/zh-hant/1570778/)
+- 相关：[瑞典研究显示完全接种疫苗后，抗体将在三个月后急剧下降](https://gnews.org/zh-hant/1576453/)
+- 相关：[COVID-19 最新情报｜关于“新冠口服药” 你不可不知的泽连科方案](https://gnews.org/zh-hant/1643262/)
+- 相关：[COVID-19最新情报｜政府荒谬地将COVID-19扩散归咎于未接种疫苗族群](https://gnews.org/zh-hant/1607453/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-7.jpg)
 * * *
 
-来源｜[联合新闻网](https://udn.com/news/story/6811/5880668?from=udn_mobile_indexrecommend)、[Newtalk新闻](https://newtalk.tw/news/view/2021-11-10/664131)
+來源｜[udn](https://udn.com/news/story/121707/5880718?from=udn_mobile_indexrecommend)
 
  
 

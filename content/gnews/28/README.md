@@ -2,23 +2,17 @@
 ---
 
 
-## 美大屠杀博物馆发布报告 再次确认新疆发生着反人类罪行
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1654645/)
+## 美元债务宽限期结束，恒大违约风险急速提升
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1654721/)
 
-![资料照：新疆西部阿图什的一处拘留营 （2018年12月3日）](https://gdb.voanews.com/A77336CF-B99E-4145-986F-4A9C5C1BACF4_cx0_cy2_cw0_w1023_r1_s.jpg)*资料照：新疆西部阿图什的一处拘留营 （2018年12月3日）*
-据美国之音11月11日报道，以纪念二战期间600多万犹太人被纳粹德国屠杀为使命的美国大屠杀纪念博物馆9日发布一份名为《”让我们缓慢消失”：中共国政府对维吾尔人的打压》的调查报告。纪念馆对中共国政府继续针对新疆维族人实施的种族灭绝行为感到非常担忧。博物馆以前已经认定，此次再次确认，新疆正在发生反人类罪行。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-6.jpg)美元债务宽限期结束，恒大违约风险急速提升 网络图片
+据美国之音1月11日报道，中共国房地产巨头恒大集团约1.5亿美元债利息支付的30天宽限期于11月10日结束，而恒大所需资金到目前为止尚无着落。
 
-这份长达56页的报告依据大量的新闻报道和研究报告，列举了自2017年以来中共国政府针对新疆维吾尔族人的人权压制行为，包括大规模监控、限制维吾尔人的宗教和文化活动、摧毁维吾尔人的宗教和文化财产、大规模监禁、酷刑和虐待、强迫绝育和其他生育限制措施、性暴力、强迫劳役和强制劳工转移以及强制维吾尔儿童转移等等。这份报告充分表明中共未能履行保护其公民免受种族灭绝及反人类罪行的责任。
+恒大是全球负债最多的地产开发商，累计债务高达3050亿美元，其中190亿为国际市场债券。在此之前，恒大在支付海外债券票息方面没有出现违约行为。此次恒大如果无法支付，将导致恒大正式违约。中共国房地产业规模高达5万亿美元，是中共国经济的支柱产业。一旦房地产行业崩盘，不仅重创中共国经济，对全球经济也构成风险。近日，中共国房地产公司的债券暴跌。
 
-博物馆良心委员会主席汤姆·伯恩斯坦表示，中共国政府竭尽努力避免有关针对维吾尔人罪行的信息曝光。而目前所知的信息，包括来自勇敢的维吾尔人活动人士的证明文件，足以定罪。中共国政府必须停止对维吾尔人的迫害，允许独立国际监察员调查，以确保停止相关犯罪行为。
+中共国的豆腐渣经济支撑起了房地产市场表面的繁荣，但豆腐渣终究不是钢筋水泥，只能支撑一时，崩塌是必然的。恒大体量庞大，债务缠身，中共经济已经支撑不住。欠债还钱，还不起钱，中共拿命来还。
 
-大屠杀纪念馆“西蒙-斯克约特防止种族灭绝中心”主任娜奥米·基科勒（Naomi Kikoler）说，“中共国政府对维吾尔人社区的攻击—体现于监禁100至300万人，以及强迫绝育、酷刑、性暴力和强迫劳动等虐待—在规模和严重程度上令人震惊。对维吾族个人、家庭和社区造成了损害，给他们的身心留下了深深的伤痕。这些暴行造成的创伤会伤害几代维吾尔人。”
-
-此前，美国国务院已经认定中共国政府在新疆迫害维吾尔人和其他少数民族穆斯林的行为构成“种族灭绝”。报告呼吁，在维族人面临灭族的危险处境下，国际社会必须行动起来，制止新疆反人类罪行的继续发展。
-
-新闻参考链接： [https://www.voachinese.com/a/China-may-be-committing-genocide-against-Uyghurs-20211110/6307886.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/China-may-be-committing-genocide-against-Uyghurs-20211110/6307886.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
-
-编辑：穆清
+新闻参考链接：[https://www.voachinese.com/a/Evergrande-teeters-on-debt-default-as-another-major-payment-due-20211110/6307702.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/Evergrande-teeters-on-debt-default-as-another-major-payment-due-20211110/6307702.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
 
 * * *
 
@@ -30,6 +24,8 @@
 编辑：【英国伦敦喜庄园编辑部】
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

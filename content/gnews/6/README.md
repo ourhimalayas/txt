@@ -2,37 +2,45 @@
 ---
 
 
-## 德國報紙強調最近有大量足球運動員不尋常倒下
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1654898/)
+## 第五巡回法庭的裁决打开美国开战前的动作之一——国会
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1654938/)
 
-【雅典娜快訊】，緊貼時事脈搏
-![](https://assets.gnews.org/wp-content/uploads/2021/11/d66c39006dc935f6e751671f57ed2a08.jpg)[http://圖片來源：AFP/Pau BARRENA](http://圖片來源：AFP/Pau%20BARRENA)
-編譯：小紅帽
+![](https://assets.gnews.org/wp-content/uploads/2021/11/media_e8cvwb1xmag2xt3_副本.jpg)
+据[2021年11月10日 文贵大直播：中共六中全会内部报告：中国癌症发病人数第一，与病毒相关性死亡1370万人；香港外籍人士撤离历史新高，大量外汇移出，香港在6个月内成为金融空港；对病毒真相的掩盖造成医疗行业医务人员流失短缺；六中全会就是中共内斗，抓人，习一神要做2件事；](https://gtv.org/video/id=618bc611e7e7703792324e25)时间点2：56：25——
 
-德國報紙《柏林日報》發表了一份報告，試圖回答為什麼 “最近有異常多的職業和業餘足球運動員倒下”
+**郭文贵先生：**大家看到这个第五巡视法庭，第一，它停止了，我们所有战友在所在国都会停，它跟我们息息相关，否则就会走上一个强制你打疫苗的过程，它太重要了！而且我们的老人、孩子、家人包括我们的无苗族都将面临着生存的危机；
 
-報導的標題是 “足球中令人費解的心臟疾病”，首先強調了巴塞羅那俱樂部的塞爾吉奧·阿圭羅（Sergio Agüero）的案例，這位33歲的前鋒最近在一場比賽中因頭暈和呼吸困難而不得不在41分鐘後退出比賽。
+第二个，在巡视法庭出完以后，现在美国一系列的国会议员要求禁止孩子打疫苗和停止拜登总统的所谓的强制打疫苗，一系列的法律都要出台。
 
-文章列舉了最近大量的足球運動員出現心臟問題或在球場上暈倒的案例，在某些情況下導致了死亡。
+那么同时现在已经要求必须查清楚冠状病毒是自然还到是实验室，是故意还是泄露，那不都是对着咱来的吗？这是核心的，你没把这个，你要了解美国的法律，就像川普总统大选，你说到底你没有证据、你没有刑事、你没有开始、你没有法律行动，你不可以有行为的。
 
-正如我們之前強調的，其他職業運動員最近也遭遇了類似的健康問題，包括24歲的斯洛伐克曲棍球運動員鮑里斯·薩德基（Boris Sádecký），他在上週五的一場比賽中在冰上摔倒後不幸身亡。
+这就是打开美国法律大门的开始，最后法官一个命令必须查清楚冠状病毒，必须开放所有信息，福奇必须提供所有的全面Email，然后就开始让共产党你必须给我提供。
 
-28歲的健美運動員傑克·卡茲馬雷克 （Jake Kazmarek）也在接種中共病毒（COVID-19）疫苗四天后 “意外”死亡。
+所有美国开战之前有两个动作永远不会忘了——民心就是媒体，还有国会。
 
-《柏林日報》的文章沒有猜測中共病毒疫苗的反應是否與倒地和心臟問題的發生有任何關係
+（以下暂略）
 
-然而，文章確實指出，“心肌炎”可以 “在普通病毒感染的過程中發生”，並導致 “危及生命的心律失常”
+撰稿：喜马拉雅的肉夹馍；
 
-**参考新闻：**[German Newspaper Highlights “Unusually Large” Number of Soccer Players Who Have Collapsed Recently – Summit News](https://summit.news/2021/11/09/german-newspaper-highlights-unusually-large-number-of-soccer-players-who-have-collapsed-recently/)
+审核：喜马拉雅的馍夹肉；
 
-發布：陶子
+校对：Maarago；
 
-更多資訊，請關注：
-[澳大利亞墨爾本雅典娜農場Twitter：HimalayaAthena](http://澳大利亞墨爾本雅典娜農場Twitter：HimalayaAthena)
-[澳大利亞墨爾本雅典娜農場Gettr：himalayaathena](http://澳大利亞墨爾本雅典娜農場Gettr：himalayaathena)
-[澳大利亞墨爾本雅典娜農場YouTube](http://澳大利亞墨爾本雅典娜農場YouTube)
-[澳大利亞墨爾本雅典娜農場Discord](http://澳大利亞墨爾本雅典娜農場Discord)
-[澳大利亞墨爾本雅典娜農場GTV直播1台](http://澳大利亞墨爾本雅典娜農場GTV直播1台)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
