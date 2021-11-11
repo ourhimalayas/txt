@@ -2,38 +2,53 @@
 ---
 
 
-## 有声| 亲历者爆料：中共按需杀人、活摘器官的血腥交易
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1656368/)
+## 2021/11/11 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1656432/)
 
-配音：香草山教育部 – 蒙古鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-美东时间11月6日，爆料革命战友、一线临床医生Eglise接受《GTV真人真事》节目访谈，爆出中共按需杀人、活摘器官的流水线医疗黑幕。
+**主播：大卫｜嘉宾：Castle、政清**
 
-毕业于湘雅医学院的Eglise，曾是中共某军队医院的一线医生，曾亲自参与见证中共活摘器官的犯罪现场，因不堪忍受那种非人道的血腥屠杀，于多年前设法逃出中共国，目前在美国某医院从事临床医学工作。
-
-在节目中，Eglise医生说，中共的器官移植是一个很恐怖的产业，为了掩盖血腥的非法移植，中共不仅会建立专业的器官移植医院，还将医院特意建在劳改农场附近，便于器官的随时摘取。
-
-Eglise在节目中提到，中共第二军医大学的吴孟超医生，因为一生做了4000多例肝脏移植而闻名，但这都是因为，中共为他提供了大量的活体肝脏来源；肾移植奠基人谢桐，主导肾移植手术，其肾脏来源名义上是被枪毙的死刑犯，其实基本都是活体摘取。
-
-Eglise医生以亲历者身份爆料，再次验证了爆料革命郭文贵先生早在2017年9月就爆料的中共“活摘器官、按需杀人”的邪恶事实。
-
-文字版原文：[亲历者爆料：中共按需杀人、活摘器官的血腥交易](https://gnews.org/zh-hans/1650181/)
-
-音频处理：喜山必胜Maverick
-
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+GTV视频链接：[2021-11-11 中共国房产危机又出什么新花样？ 双十一为何开始数字货币交易 美众议院发起国会阻止中共大外宣](https://gtv.org/video/id=618d06cee7e77037923353d5)
 
 
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+**板块1–房产危机**
+
+1.深圳召开房地产座谈会，整体房地产市场遇冷、销售下降、资金流动困难、融资困难。在“改革开放前沿阵地”召开会议，中共想摸底房地产真实情况，表明曾经鼓吹的“房地产调控”政策完全失败。
+
+2.恒大推出收益达620%的债券，真实价值可能不足债卷价值的1/7，并且无人“理睬”。恒大出售私人飞机和质押董事长豪宅再一次最后一天支付利息，其债务规模在3000亿美金以上，根本没有偿还能力，恒大的爆雷最终将影响全球经济。
+
+3.华尔街日报报道–中共国考虑缓解房地产限制，帮助困境中的开放商。东北沈阳被证实放宽限购限售政策。中共利用公权力强行压住房地产的爆雷，违背经济的规律，期望在二十大前保持稳定。
+
+4.人民银行对按揭限额不再管控、并购贷不纳入三条红线指示、开发贷和个贷要上量、存量项目银行可展期不降级。中共用放宽政策“暗示”可以炒房、利用各大媒体造势、诱导“接盘侠”买房，再配合“房产税”开启持续割韭菜模式。
+
+**板块2–国内经济**
+
+1.今年中共国“双十一”过分低调，表明经济形势不好。京东首次在双十一接受中共国数字国币，中共一直在“强推”数字国币。中共国数字货币相比喜币毫无优势（控制权所有权掌控在用户手里、发行规则公开透明、流通自由可跨境、货币非国家化拒绝垄断）。
+
+2.喜币价格创新高接近25美元,大量新用户涌进、呈现卖盘稀少现象。大机构还未入场，预计年底会有惊喜。
+
+**板块3–国际政治**
+
+1.众议员吉姆班克斯要求国会采取行动阻止中共国宣传渗透国会–中共大外宣向国会办公室免费发放《中国日报》。中共长期系统性渗透美国各界。拜习关于“气候问题”达成合作协议，拜登对中共的“绥靖政策”将激发两党内更多反对声。
+
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*听写：call me uncle|Pr: 乐禧禧| Page：小六月*
+
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古20点.**
+
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+
+[![](https://spark.adobe.com/page/ttirr7Ny2IV7J/images/a90e0d9b-08ae-41c0-a8a2-82b053736a4e.jpg?asset_id=03cf270f-9326-428a-a462-968d7fe14dee&amp;img_etag=%221daeca2c04053e77ca1ac242e9218160%22&amp;size=2560)](https://spark.adobe.com/page/ttirr7Ny2IV7J/images/a90e0d9b-08ae-41c0-a8a2-82b053736a4e.jpg?asset_id=03cf270f-9326-428a-a462-968d7fe14dee&amp;img_etag=%221daeca2c04053e77ca1ac242e9218160%22&amp;size=1024)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+[![](https://spark.adobe.com/page/ttirr7Ny2IV7J/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/ttirr7Ny2IV7J/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

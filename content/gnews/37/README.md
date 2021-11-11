@@ -2,10 +2,8 @@
 ---
 
 
-## 加强针下去，工厂变废墟
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1656025/)
-
-11/09/2021 塞尔维亚一中资企业员工讲述过半企业人员注射加强针后仍感染新冠病毒，员工所剩无几，企业停产。
+## 11月9日新西兰反强制疫苗大游行
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1656054/)
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

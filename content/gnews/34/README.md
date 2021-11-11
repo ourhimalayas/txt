@@ -2,27 +2,25 @@
 ---
 
 
-## 全球最大工会明确反对中共举办2022冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656146/)
+## 中共对维吾尔人的跨国镇压急剧扩大
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656201/)
 
 作者：澳喜农场 – 在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月9日，全球最大的跨国工会组织——国际工会联合会声明，将明确反对中共主办2022年冬季奥林匹克运动会。
+11月11日，设立在华盛顿的维吾尔人项目和奥克苏斯中亚事务协会发布了最新的维吾尔联合报告，当中指出，自2002年以来，中共对国外的维吾尔人展开了前所未有的跨国镇压运动，而2017年后，这种迫害急剧扩大。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-9.jpeg)
 
-同时，该组织批评国际奥委会——奥委会对中共在新疆和香港等地区进行的种族灭绝和反人类罪行视而不见。
+据悉，该报告来自一个广泛的数据集，该数据集包含了 5530 份中共针对居住在自由民主国家的维吾尔侨民成员的跨国镇压实例。报告称，中共还通过黑客组织创建虚假的维吾尔语新闻网站和应用程序，并在其中嵌入恶意软件，随后用脸书、微软和其他科技平台，将这些恶意软件传播至维吾尔侨民的电子设备中。
 
-相关报道指出，国际工会联合会已将一份报告递交给国际奥委会主席巴赫，当中列举了中共对人权的一系列侵害行为，包括强迫劳动、监禁香港的工会成员和民主捍卫者、恐吓同性恋群体，还有以所谓的“反分裂”和“反恐”为由，镇压少数民族和宗教群体。
+维吾尔人项目执行董事奥马尔-卡纳特说，中共对维吾尔人的跨国镇压规模惊人，从个人的引渡到日常的在线威胁，生活在海外的维吾尔人根本没有平安可言。
 
-国际工会联合会秘书长莎兰表示，生活在民主国家的国际奥委会官员和其他人员应当明白，不能简单地将中共看成是一个国家，这是不可接受的。
-
-参考链接：[北京获“镇压金牌”，全球最大工会批IOC对中共践踏人权无动于衷](https://www.voachinese.com/a/Beijing-olympics-get-gold-for-repression-in-labor-report-20211109/6305997.html)
+参考链接：[报告：北京对维吾尔人的跨国镇压自 2017 年以来急剧扩大](https://www.voachinese.com/a/report-beijing-s-transnational-repression-of-uyghurs-expanded-dramatically-since-2017/6308142.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
 总编：Irene木木
-编辑：文特
+编辑：Irene木木
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

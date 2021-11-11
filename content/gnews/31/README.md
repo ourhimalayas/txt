@@ -2,39 +2,17 @@
 ---
 
 
-## 足球运动员心脏病例增多
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656231/)
+## 推特正式组建加密技术团队，聚焦加密货币相关领域
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1656373/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月9日，德国媒体在一份调查报告表示，最近“倒地”的足球运动员人数“超乎寻常的多”。
+推特近日已经正式组建一支全新的加密技术团队，Interchain基金会及Mina基金会委员TessRinearson已经加盟推特，领导这支新组建的团队。TessRinearson发推表示，这支新团队将「聚焦密码学、区块链和其他去中心化的技术，包括但不止于加密货币方面」。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-9.jpeg)
+财经G评：郭先生在GETTR未上线时就反复强调了未来GETTRPay（HimalayaPay）的金融属性、优势和发展愿景。推特现在宣布正式组建加密技术团队，聚焦加密货币相关领域，凸显出GETTR的成立和未来愿景让推特真正感到了恐惧！如果GETTR没有潜力和实力，推特也不必如此。GETTR将会是未来社交媒体的引领者。
+![img](https://media.gettr.com/group24/getter/2021/11/11/08/29/2f8bbafc-d441-50ab-a35b-20779af49e2f/852094fa44b6d027d1c9e359c8ffa941_500x0.jpg)
+参考链接 [https://www.theverge.com/2021/11/10/2277…](https://www.theverge.com/2021/11/10/22774501/twitter-crypto-dedicated-team-dorsey-square-decentralization)
 
-媒体称，在这份名为 “足球运动中令人困惑的心脏病”报告里，研究人员列举了大量的足球运动员近期因心脏问题在球场上倒地，甚至死亡的案例。其中，报告特别提及，巴塞罗那足球俱乐部33岁的前锋——塞尔吉奥·阿圭罗在上场41分钟后，因头晕和呼吸困难而不得不退出比赛。
+**（文章内容仅代表新西兰-财经G乐部节目观点）**
 
-同时，报道中还强调，其他职业的运动员也遭遇了类似的健康问题，比如24岁的斯洛伐克曲棍球运动员在上周五的比赛中于冰上摔倒后不幸身亡；28岁的健美运动员在注射新冠疫苗四天后死亡。
-
-对于这些案例，有媒体报道表示，一些人或因接种新冠疫苗而患上了心脏病。
-
-参考链接：
-1）[German Newspaper Highlights “Unusually Large” Number Of Soccer Players Who Have Collapsed Recently](https://www.zerohedge.com/medical/german-newspaper-highlights-unusually-large-number-soccer-players-who-have-collapsed)
-2）[Rätselhafte Herzerkrankungen im Fußball](https://www.berliner-zeitung.de/news/raetselhafte-herzerkrankungen-im-fussball-li.193554)
-3）[24-Year-Old Hockey Player Dies After Suffering Cardiac Arrest During Game](https://summit.news/2021/11/04/24-year-old-hockey-player-dies-after-suffering-cardiac-arrest-during-game/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
-
-总编：Irene木木
-编辑：小鹿妞妞
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

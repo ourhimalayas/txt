@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/11/2021 10:02 PM (UTC)`
+
+11/11/2021 Miles Guo’s GETTR: The entire family of Sequoia Capital's Neil Shen was arrested and forced to sell off their assets. Overseas mansions of the CCP senior officials were successively cashed out at cheap prices by the CCP. Only by taking down the CCP can your assets be safe!<br/><br/>11/11/2021 文贵盖特：红杉资本沈南鹏全家被抓，被迫变卖资产，体制内高官在海外的豪宅接连被中共贱卖套现，只有灭掉中共，你的资产才能安全！<br/>
+![img](https://media.gettr.com/group15/getter/2021/11/11/22/02/b89e2f51-53de-2506-42e7-e41cfc1ebd69/out.jpg)
+
+---
+
+`@miles 11/11/2021 9:59 PM (UTC)`
+
+11/11/2021 Miles Guo’s GETTR: The online business platforms, which became popular with the help of “Singles’ Day”, and Douyin are no longer in glory. There is no bottom line for fraud from the CCP. Funds colluding with Communist China face bankruptcies and liquidations.<br/><br/>11/11/2021 文贵盖特：曾经借助所谓“光棍节”蹿红的网商平台以及抖音如今风光不再，中共造假无底线；与中共勾兑的基金面临破产清盘<br/>
+![img](https://media.gettr.com/group42/getter/2021/11/11/21/59/3d509178-5548-ccb0-ab18-73637cac0559/out.jpg)
+
+---
+
 `@miles 11/11/2021 3:41 PM (UTC)`
 
 11月11号：尊敬的战友们好！共产党的光棍节骗局，彻底破产，共产党的房地产骗局将给世界的经济带来巨大的灾难……莘县阳谷县达县咱走着看！
@@ -278,20 +292,6 @@ The vaccination disaster has gradually become prominent: The patients in the ICU
 
 11/7/2021 Miles Guo: The smog floating over Beijing certainly contains the corpses of the dead people and babies with birth defects cremated on a daily basis. The disaster caused by the COVID vaccines is bound to happen in the entire humanity; the New Federal State of China is like the only hand leading us from the darkness to the light<br/><br/>11/7/2021 文贵直播：北京上空飘的雾霾其中一定有焚烧每天死的人和畸形婴儿的尸体；全人类必将爆发疫苗大灾难；新中国联邦好比是唯一的一只小手在牵着我们从黑暗走向光明<br/>
 ![img](https://media.gettr.com/group15/getter/2021/11/08/03/14/17951574-9f5a-ed3d-2354-09a6d655cf3e/out.jpg)
-
----
-
-`@miles 11/8/2021 12:48 AM (UTC)`
-
-11月7号：尊敬的战友们好……工作了一整天，吃了好几顿饭非常的兴奋，一切都已经开始！
-![img](https://media.gettr.com/group43/getter/2021/11/08/00/48/9404b946-4b5b-4f92-4324-90d2c03ffe0c/out.jpg)
-
----
-
-`@miles 11/8/2021 12:11 AM (UTC)`
-
-11/7/2021 Miles Guo: The biggest threat posed by the Himalaya Exchange to the CCP is to deprive the CCP’s control in the era of digital currency; The core technology of the Himalaya Exchange is the private blockchain, which ensures transactions to be processed in a secure and highly efficient manner, with all stolen Himalaya Coins being recoverable; no individual or government can access the personal information in the private blockchain<br/><br/>11/7/2021 文贵直播：喜联储对中共最大的威胁是让其在数字货币时代丧失控制权；喜联储的核心技术是私人区块链，它能高效和安全地处理交易，并保证被偷的喜币可全数追回；任何人或政府都无法获取私人区块链内的个人信息<br/>
-![img](https://media.gettr.com/group11/getter/2021/11/08/00/11/3a3eae65-b8c9-33d5-a529-23c7373fe0da/out.jpg)
 
 ---
 

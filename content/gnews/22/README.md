@@ -2,46 +2,39 @@
 ---
 
 
-## 新泽西州民主党参议院议长最终承认败选
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1656413/)
+## 布林肯说如果中国攻击台湾，盟国将采取行动
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1656458/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**翻译：Sara9
+编辑：Janek**
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/D.jpg)Edward Durr（political-viewer.com)
-《门道专家》11月10日发表文章，题目是“新泽西州参议院议长斯威尼（Sweeney）最终向共和党卡车司机爱德华·杜尔（Edward Durr）认输”。【1】
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image1-2.jpeg)图片来源：courtesy of the United States Department of State
 
-全文如下：
 
-新泽西州参议院议长史蒂夫·斯威尼（Steve Sweeney）是新泽西州最有权势的民选官员之一，他最终向爱德华·杜尔（Edward Durr）让步，这位基督教卡车司机在竞选中只花了几千美元。
+美国国务卿安东尼-布林肯说，如果中国对台湾使用武力，盟国将准备 “采取行动”，尽管他再次拒绝表明拜登政府是否准备在这冲突中动用美国军队。布林肯在回答有关美国对台湾的承诺程度的提问时谈到的，台湾是自治的，但被中国声称是其领土的一部分。
 
-斯威尼在上周二（11月2日）的选举中被击败，但他声称在一个郡“发现”了12,000张选票，此后一个多星期他拒绝认输。
+布林肯在《纽约时报》“Dealbook”会议上说：在该地区及其周边地域的许多国家会把任何使用武力破坏现状的单边行动视为对和平与安全的重大威胁。 “而且他们也会在发生这种情况时采取行动。”
 
-周三（11月10日），民主党人斯威尼最终向共和党人杜尔认输，承认出现了“红潮”。
+最近几周，美国总统乔-拜登在这个问题上的发言令人困惑，他说美国准备在台湾受到攻击的情况下保卫台湾，而这些言论似乎超出了美国以往确保台湾能够自我保护的承诺。
 
-《哥伦比亚广播公司费城报》（CBS Philadelphia）道：新泽西州参议院议长史蒂夫·斯威尼（Steve Sweeney）是该州最有权势的民选官员之一，他在周三（11月10日）承认失去了州参议院的连任。
+在美中关系紧张的情况下，这个问题变得更加紧迫。中国已经加强了在台湾附近的军事飞行，10月份有200多架飞机飞入该岛的防空识别区，一些分析家警告说，习近平主席可能正在为未来几年的入侵做准备。
 
-民主党人斯威尼在新泽西州南部第三区输给了共和党政治新人、商业卡车司机爱德华·杜尔。
+白宫官员表示，拜登的言论并不反映对台政策的改变，记者一再催促布林肯澄清拜登看似更强硬的姿态与美国过去声明之间的差异。每一次，布林肯都小心翼翼地紧跟官方定调，他在周三再次这样做了。
 
-“我当然接受结果，我要祝贺杜尔先生，并祝他好运。”斯威尼周三（11月10日）在州议会大厦发表演讲时说。
+布林肯说：“我们坚决反对任何一方采取单边行动，以武力破坏现状，我们有承诺，根据《台湾关系法》的长期承诺，确保台湾有能力保护自己。”
 
-斯威尼输给了杜尔，杜尔在竞选中至少花了2300美元，震惊了州官员，让控制着立法机构的民主党人更换新的领导人。斯威尼说，他失去了大约2000张选票，这是共和党在政治分裂的费城郊区压倒性投票的结果。
+“我们的作用是确保它有自卫的手段，因为如果它这样做了，这就是对任何计划中的非常、非常、非常不幸的行动的最好威慑。”
 
-“这是一个红潮。”他说。
+原文链接：[https://www.afr.com/world/asia/blinken-says-allies-would-take-action-if-china-attacks-taiwan-20211111-p597wb](https://www.afr.com/world/asia/blinken-says-allies-would-take-action-if-china-attacks-taiwan-20211111-p597wb)
 
-（全文完）
+**发布：**Janek
 
-“红潮”，“翻红”，文贵先生近来总是提及的词儿。是的，保守人士对邪恶中共的认知比较超前和彻底，希望他们赢得选举，这将是灭共事业的极大利好。
-
-此则消息反映了美国正常的政治生态，出现异议，我不认输。通过各方介入，进行公正的、经得住验证的审核，消除异议，让我输得心服口服，我就认输，我祝贺你。没有作假的，心里坦荡，不怕你审核，不像2020大选，那种掩盖，那种阻拦，那种不择手段的龌蹉，根本不是消除质疑的方式，越发让人感到，既然没有作假，为何这样害怕审计？
-
-截止发稿时，共和党新泽西州长候选人恰塔雷利阵营没有进一步的消息更新，即，没有表示要求“重新计票”，也没有承认败选。对恰塔雷利的感受，参见笔者11月9日的文章。【2】
-
-参考链接：
-
-【1】[https://www.thegatewaypundit.com/2021/11/new-jersey-senate-president-sweeney-finally-concedes-republican-truck-driver-edward-durr/](https://www.thegatewaypundit.com/2021/11/new-jersey-senate-president-sweeney-finally-concedes-republican-truck-driver-edward-durr/)
-
-【2】[https://gnews.org/zh-hans/1651454/](https://gnews.org/zh-hans/1651454/)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

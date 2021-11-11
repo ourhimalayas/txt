@@ -15,115 +15,115 @@
 
 ---
 
-### [11/11/2021 文贵盖特：红杉资本沈南鹏全家被抓，被迫变卖资产，体制内高官在海外的豪宅接连被中共贱卖套现](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
+### [美国务卿布林肯重申要保卫台湾](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [日美达成协议 致力建立自由开放的印太地区](/content/gnews/2/README.md)
- ` HimalayaRussia`
+### [[重点推荐]得CCP真传的塔利班恐怖组织，正式宣布“毕业了”](/content/gnews/2/README.md)
+ ` 温哥华扬帆农场`
 
-### [11/11/2021 文贵盖特：曾经借助所谓“光棍节”蹿红的网商平台以及抖音如今风光不再](/content/gnews/3/README.md)
- ` 秘密翻译组-北美组`
+### [高疫苗接种率的欧洲各国中共病毒病例激增](/content/gnews/3/README.md)
+ ` 纽约香草山MOS02`
 
-### [喜币喜支付能让人拥有终生可传承的财富,喜美元能带来无穷尽的方便](/content/gnews/4/README.md)
- ` MG 澳喜农场多语组`
-
-### [TikTok引发青少年抽搐病](/content/gnews/5/README.md)
+### [改写历史的政治常委会：习近平敲定终身统治中共国的计划（二）](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加州官方否认州长遭受疫苗伤害传闻](/content/gnews/6/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
+### [健康的饮食习惯](/content/gnews/5/README.md)
+ ` 澳喜农场`
 
-### [比尔·盖茨最终承认中共病毒疫苗失败了](/content/gnews/7/README.md)
+### [关于黑暗势力对人类清除计划的猜想](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [改写历史的政治常委会：习近平敲定终身统治中共国的计划（一）](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [11/11/2021 文贵盖特：红杉资本沈南鹏全家被抓，被迫变卖资产，体制内高官在海外的豪宅接连被中共贱卖套现](/content/gnews/8/README.md)
+ ` 秘密翻译组-北美组`
+
+### [日美达成协议 致力建立自由开放的印太地区](/content/gnews/9/README.md)
  ` HimalayaRussia`
 
-### [瑞典十九岁女孩注射了辉瑞疫苗两天后开始了她的苦难历程](/content/gnews/8/README.md)
+### [11/11/2021 文贵盖特：曾经借助所谓“光棍节”蹿红的网商平台以及抖音如今风光不再](/content/gnews/10/README.md)
+ ` 秘密翻译组-北美组`
+
+### [喜币喜支付能让人拥有终生可传承的财富,喜美元能带来无穷尽的方便](/content/gnews/11/README.md)
+ ` MG 澳喜农场多语组`
+
+### [TikTok引发青少年抽搐病](/content/gnews/12/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [加州官方否认州长遭受疫苗伤害传闻](/content/gnews/13/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [比尔·盖茨最终承认中共病毒疫苗失败了](/content/gnews/14/README.md)
+ ` HimalayaRussia`
+
+### [瑞典十九岁女孩注射了辉瑞疫苗两天后开始了她的苦难历程](/content/gnews/15/README.md)
  ` xiaobaige`
 
-### [佐治亚州2020选票图像记录大量被销毁](/content/gnews/9/README.md)
+### [佐治亚州2020选票图像记录大量被销毁](/content/gnews/16/README.md)
  ` HimalayaRussia`
 
-### [密歇根州学校系统在大量教师因 疫苗加强针生病后关闭](/content/gnews/10/README.md)
+### [密歇根州学校系统在大量教师因 疫苗加强针生病后关闭](/content/gnews/17/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美联储警告中共国房地产业可能出现的风险](/content/gnews/11/README.md)
+### [美联储警告中共国房地产业可能出现的风险](/content/gnews/18/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [有声|排除中共国，美商务部长即将出访亚洲多国](/content/gnews/12/README.md)
+### [有声|排除中共国，美商务部长即将出访亚洲多国](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [10月信贷社融增速企稳，个人房贷环比多增千亿](/content/gnews/13/README.md)
+### [10月信贷社融增速企稳，个人房贷环比多增千亿](/content/gnews/20/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [有声| 恒大持续抛售大额股份](/content/gnews/14/README.md)
+### [有声| 恒大持续抛售大额股份](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [布林肯说如果中国攻击台湾，盟国将采取行动](/content/gnews/15/README.md)
+### [布林肯说如果中国攻击台湾，盟国将采取行动](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [香港市民因鼓励“空白选票”遭当局逮捕](/content/gnews/16/README.md)
+### [香港市民因鼓励“空白选票”遭当局逮捕](/content/gnews/23/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [有声| 阿里巴巴股东软银集团巨额亏损](/content/gnews/17/README.md)
+### [有声| 阿里巴巴股东软银集团巨额亏损](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [【信仰之声】生命的意义&#8211;从一个石瓶说起](/content/gnews/18/README.md)
+### [【信仰之声】生命的意义&#8211;从一个石瓶说起](/content/gnews/25/README.md)
  ` 纽约香草山MOS03`
 
-### [2021/11/11 大卫作战室直播精要](/content/gnews/19/README.md)
+### [2021/11/11 大卫作战室直播精要](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声| NewsMax公开反对拜登政府的疫苗强制令](/content/gnews/20/README.md)
+### [有声| NewsMax公开反对拜登政府的疫苗强制令](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [北京证交所将在下周一正式开市](/content/gnews/21/README.md)
+### [北京证交所将在下周一正式开市](/content/gnews/28/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [新泽西州民主党参议院议长最终承认败选](/content/gnews/22/README.md)
+### [新泽西州民主党参议院议长最终承认败选](/content/gnews/29/README.md)
  ` HimalayaRussia`
 
-### [有声| 郭先生大直播解析喜联储的独特之处](/content/gnews/23/README.md)
+### [有声| 郭先生大直播解析喜联储的独特之处](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [有声|超1.1万名员工拒绝疫苗，申请疫苗豁免，波音公司陷入两难](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [推特正式组建加密技术团队，聚焦加密货币相关领域](/content/gnews/25/README.md)
+### [推特正式组建加密技术团队，聚焦加密货币相关领域](/content/gnews/31/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [有声| 亲历者爆料：中共按需杀人、活摘器官的血腥交易](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [戳穿中共“人民的江山”谎言](/content/gnews/27/README.md)
- ` 波士顿五月花农场`
-
-### [有声|拜登政府无视限制令 美多地 “反疫苗强制令”](/content/gnews/28/README.md)
- ` MOSREC`
-
-### [有声|GFASHION新品即将震撼上市](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [GTV新闻访谈简报|2021年11月11日早](/content/gnews/30/README.md)
+### [GTV新闻访谈简报|2021年11月11日早](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [足球运动员心脏病例增多](/content/gnews/31/README.md)
+### [足球运动员心脏病例增多](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [中共对维吾尔人的跨国镇压急剧扩大](/content/gnews/32/README.md)
+### [中共对维吾尔人的跨国镇压急剧扩大](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [DMSA将对恒大提起破产程序](/content/gnews/33/README.md)
+### [DMSA将对恒大提起破产程序](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [全球最大工会明确反对中共举办2022冬奥会](/content/gnews/34/README.md)
- ` GTV新闻访谈`
-
-### [加拿大军方无视兵源短缺执意推行疫苗强制令](/content/gnews/35/README.md)
+### [加拿大军方无视兵源短缺执意推行疫苗强制令](/content/gnews/36/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [11月9日新西兰反强制疫苗大游行](/content/gnews/36/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [加强针下去，工厂变废墟](/content/gnews/37/README.md)
+### [11月9日新西兰反强制疫苗大游行](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [11/10/2021 文贵直播：无良药企为逃避监管而强推的口服抗中共病毒药比疫苗更毒，会导致血液、神经、消化系统等一系列严重问题。战友们千万别碰！](/content/gnews/38/README.md)

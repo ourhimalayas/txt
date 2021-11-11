@@ -2,26 +2,29 @@
 ---
 
 
-## DMSA将对恒大提起破产程序
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656178/)
+## 足球运动员心脏病例增多
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656231/)
 
-作者：纽约香草山教育部 – Irene木木
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月10日，德国柏林消息称，中共恒大集团今天再次拖欠国际投资者的利息支付，对此，持有恒大集团债券的德国市场筛选机构DMSA正准备对恒大集团提起破产程序，并呼吁所有债券投资者加入。
+11月9日，德国媒体在一份调查报告表示，最近“倒地”的足球运动员人数“超乎寻常的多”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-8.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-9.jpeg)
 
-数据显示，中共恒大集团早在今年9月就拖欠了两笔债券的利息，其30天的宽限期已于10月结束。作为债权人，DMSA表示，至今仍未收到任何来自恒大集团的利息付款。据了解，恒大最晚要在11月10日前支付三笔债券的利息，共计约1.4亿美元。DMSA解释，恒大的债务均包含交叉违约条款，即当其所涉的任一债券出现违约时，恒大的其余所有未偿还债券都会被一同视为“违约”状态。
+媒体称，在这份名为 “足球运动中令人困惑的心脏病”报告里，研究人员列举了大量的足球运动员近期因心脏问题在球场上倒地，甚至死亡的案例。其中，报告特别提及，巴塞罗那足球俱乐部33岁的前锋——塞尔吉奥·阿圭罗在上场41分钟后，因头晕和呼吸困难而不得不退出比赛。
 
-此前，DMSA曾在一份报告中指出，世界上负债最多的企业——中共恒大集团必将面临债务违约的境况，而恒大的破产可能会导致“大重置”，即全球金融体系的最终崩溃。美联储也于两天前证实了这一点。
+同时，报道中还强调，其他职业的运动员也遭遇了类似的健康问题，比如24岁的斯洛伐克曲棍球运动员在上周五的比赛中于冰上摔倒后不幸身亡；28岁的健美运动员在注射新冠疫苗四天后死亡。
+
+对于这些案例，有媒体报道表示，一些人或因接种新冠疫苗而患上了心脏病。
 
 参考链接：
-1）[https://gettr.com/post/pgmdtn9c19](https://gettr.com/post/pgmdtn9c19)
-2）[Evergrande officially defaulted – DMSA is preparing bankruptcy proceedings against Evergrande Group](https://apnews.com/press-release/pr-newswire/business-china-evergrande-group-china-36dc3f16fe95c154a768d071345cdb77)
+1）[German Newspaper Highlights “Unusually Large” Number Of Soccer Players Who Have Collapsed Recently](https://www.zerohedge.com/medical/german-newspaper-highlights-unusually-large-number-soccer-players-who-have-collapsed)
+2）[Rätselhafte Herzerkrankungen im Fußball](https://www.berliner-zeitung.de/news/raetselhafte-herzerkrankungen-im-fussball-li.193554)
+3）[24-Year-Old Hockey Player Dies After Suffering Cardiac Arrest During Game](https://summit.news/2021/11/04/24-year-old-hockey-player-dies-after-suffering-cardiac-arrest-during-game/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：小鹿妞妞
+总编：Irene木木
 编辑：小鹿妞妞
 校正/发稿：谐趣园
 
