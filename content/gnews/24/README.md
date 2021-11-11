@@ -2,36 +2,44 @@
 ---
 
 
-## 政府排挤黄金作为“替代”货币，未来比特币价格翻倍
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1655337/)
+## 债权人准备对恒大启动破产程序
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1655436/)
 
-**翻译：**Sara9
-**编辑：**文泓
+简评：***恒大违约的真实原因不仅仅是流动性枯竭，而是美元流动性枯竭。而这一枯竭并不仅仅在恒大或中国房企，而是整个中国庞氏经济。***
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/11.11-1.jpg)图片来源：Blockonmi
+据《www.disclose.tv》作者：Daniel K，2021年11月10日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-66.png)图片源自disclose.tv
+恒大集团今天再次拖欠国际投资者的利息支付。
+德国市场筛选机构DMSA本身也投资于这些债券，直到今天宽限期结束也没有收到任何利息支付。现在DMSA正准备对恒大提起破产申请程序，并呼吁所有债券投资者加入。
 
+中国第二大房地产开发商中国恒大集团早在9月就拖欠了两笔债券的利息，30天的宽限期应在10月结束。然而，在宽限期结束前不久，公众被所谓的利息支付的谣言所误导。
 
-今年比特币和其他加密货币横扫华尔街，很多大银行纷纷介入加密货币业务。而比特币价格从去年同期的15000美元飙升至现在的60000美元，这对金融界造成了不小的冲击。
+国际媒体也认为这些传言是理所当然的。只有DMSA当时已经认识到违约，并在一份研究报告中证明，恒大这个世界上负债最多的公司的破产，最终可能导致“大重置”，即全球金融体系的最终崩溃。
 
-摩根大通最新预计，比特币长期价格有可能翻一倍多到146000美元，而分析师警告，极端的价格波动性可能导致其价格快速滑落至35000美元。同时，在（上一轮）出现1500亿美元的加密货币价格暴跌时，大资金正在抛弃比特币而转向以太坊。
+“但是，尽管到目前为止，国际金融市场以非凡的基本信心—也可以说：以非凡的天真来迎接摇摇欲坠的巨人恒大导致的金融动荡。美国央行美联储昨天证实了我们的观点。在其最新的稳定报告中，它明确指出了恒大的崩溃可能对全球金融体系造成的危险。”
 
-【备注：新中国联邦喜币正是采用的是由摩根大通开发的基于以太坊的Quorum区块链技术，Quorum是一种联盟链解决方案。】
+DMSA高级分析师马可·梅茨勒（Marco Metzler）博士
 
-目前，市场上对于比特币上升到100000美元是很多加密货币市场观察家今明两年的共识。摩根大通的警告，对这种说法提出了挑战。
+作为债权人为了能够对该公司提出破产申请，DMSA自己投资了恒大的债券，其宽限期于今天（2021年11月10日）到期。总的来说，恒大最迟在今天必须支付三笔债券的1.4813亿美元利息。梅茨勒解释说，“但到目前为止，我们还没有收到任何债券的利息”，他补充说：“随着香港的银行今天关门，可以肯定的是，这些债券已经违约了。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-189.png)
+对恒大来说，问题尤其严重：所有23支未偿还债券都有交叉违约条款。
 
-分析师也认为，由于前所未有的通胀压力，不仅是各种基金用它来对冲货币贬值，一般散户也在更多的跟进到这个财富安全天堂。目前美国通胀是13年来最高的，让比特币的价格在过去的12个月以来增加了300%，使整个加密货币市场总量增加到2万亿美元。
+DMSA高级分析师梅茨勒说，“这意味着，如果这些债券中的一个出现违约，所有23个未偿还债券都会自动拥有‘违约’状态”。然而，这并不自动导致恒大集团破产。要确定破产，必须向法院提交破产申请。这可以由公司本身或公司的一个或多个债权人来完成。
+而这正是现在的计划。梅茨勒说：“DMSA正在准备针对恒大的破产程序。我们已经在与其他投资者进行这方面的谈判。如果其他投资者加入我们的行动小组，我们会很高兴。”
 
-市场将比特币作为黄金的通货膨胀对冲替代品有浓厚兴趣，任何这种（政府）对黄金作为“替代”货币的排挤都意味着比特币在长期内有很大的上升空间。
+对于DMSA的专家来说，很清楚：“一旦法院启动破产程序，恒大也将正式破产—而这只是几天的事。”
 
-原文链接：[JPMorgan Doubles Down On Its Massive Bitcoin Price Prediction—But Adds A Serious Warning (forbes.com)](https://www.forbes.com/sites/billybambrough/2021/11/04/jpmorgan-doubles-down-on-its-massive-bitcoin-price-prediction-but-adds-a-serious-warning/?sh=1ba9b9f14511)
+原文连接：[https://www.disclose.tv/creditor-prepares-bankruptcy-petition-against-evergrande/](https://www.disclose.tv/creditor-prepares-bankruptcy-petition-against-evergrande/)
 
-**发布：文武全才**
+翻译：洛杉矶盘古农场 — TrueSky
+校对：洛杉矶盘古农场 — Mike Li
+评论：洛杉矶盘古农场 — Mike Li
+编辑：洛杉矶盘古农场 — 心照
+发布：洛杉矶盘古农场 — 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
