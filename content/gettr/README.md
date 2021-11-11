@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/11/2021 10:48 PM (UTC)`
+
+一位父亲22岁的儿子因严重的中共病毒疫苗不良反应不得不叫救护车：高烧，几乎不能行走，胸部灼烧，超级虚弱。因此他呼吁应立即停止打疫苗。<br/><br/>A dad’s 22-year-old son had to call an ambulance due to severe adverse effects of the Covid vaccine: high fever, could barely walk, chest feels on fire, super weak, so he calls on to stop the vaccine right now
+![img](https://media.gettr.com/group20/getter/2021/11/11/22/48/97daa32d-1aeb-7f18-77d7-6c83b1e9862d/out.jpg)
+
+---
+
 `@miles 11/11/2021 10:02 PM (UTC)`
 
 11/11/2021 Miles Guo’s GETTR: The entire family of Sequoia Capital's Neil Shen was arrested and forced to sell off their assets. Overseas mansions of the CCP senior officials were successively cashed out at cheap prices by the CCP. Only by taking down the CCP can your assets be safe!<br/><br/>11/11/2021 文贵盖特：红杉资本沈南鹏全家被抓，被迫变卖资产，体制内高官在海外的豪宅接连被中共贱卖套现，只有灭掉中共，你的资产才能安全！<br/>
@@ -285,13 +292,6 @@ The vaccination disaster has gradually become prominent: The patients in the ICU
 
 11/7/2021 Miles Guo: The CCP is now increasing its infiltration to us and has launched insane cyber attacks on the Himalaya Exchange. Fellow fighters should keep an eye on anything suspicious<br/><br/>11/7/2021 文贵直播：目前中共正加大渗透，并对喜联储进行了疯狂的黑客攻击，面对风吹草动，战友们要睁大眼睛<br/>
 ![img](https://media.gettr.com/group44/getter/2021/11/08/06/06/9775dfdc-61f2-7d0b-63e7-70c41e8b6772/out.jpg)
-
----
-
-`@miles 11/8/2021 3:14 AM (UTC)`
-
-11/7/2021 Miles Guo: The smog floating over Beijing certainly contains the corpses of the dead people and babies with birth defects cremated on a daily basis. The disaster caused by the COVID vaccines is bound to happen in the entire humanity; the New Federal State of China is like the only hand leading us from the darkness to the light<br/><br/>11/7/2021 文贵直播：北京上空飘的雾霾其中一定有焚烧每天死的人和畸形婴儿的尸体；全人类必将爆发疫苗大灾难；新中国联邦好比是唯一的一只小手在牵着我们从黑暗走向光明<br/>
-![img](https://media.gettr.com/group15/getter/2021/11/08/03/14/17951574-9f5a-ed3d-2354-09a6d655cf3e/out.jpg)
 
 ---
 
