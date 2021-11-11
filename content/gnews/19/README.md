@@ -2,29 +2,19 @@
 ---
 
 
-## 有声|超1.1万名员工拒绝疫苗，申请疫苗豁免，波音公司陷入两难
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1656380/)
+## 北京证交所将在下周一正式开市
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1656424/)
 
-配音：香草山香港部 – 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-近日，在波音公司，超过1.1万名员工以宗教或医疗为由申请疫苗豁免。
+全国股转公司官网显示，汉鑫科技、中设咨询、中寰股份、晶赛科技、科达自控、同心传动、大地电气、志晟信息、广道高新、恒合股份10家公司均发布公告称，经北京证券交易所同意，将于11月15日在北交所上市。截至本周三，精选层企业已有71家，它们将全部平移北交所，加上这10只新股，届时北交所上市企业将超过80家。
 
-作为联邦承包商，为了避免政府订单流失和工厂劳动力短缺，波音公司在上周五将宗教或医疗理由申请豁免的最后期限推迟至1月4日。内部电子邮件显示，获得豁免批准的员工需要戴口罩、保持身体距离和频繁的COVID-19检测，未获批准的员工在截止日前会受到最终警告。
+**财经G评：
+问：北交所开市意义是什么？
+答：换块牌子，继续割韭菜。**
+![img](https://media.gettr.com/group1/getter/2021/11/11/08/19/fef39274-b460-b350-67f5-89f19b6be7a7/e478fad57eb143ef3b671f334f443fba_500x0.jpg)
+参考链接：[https://finance.sina.com.cn/stock/s/2021-11…](https://finance.sina.com.cn/stock/s/2021-11-11/doc-iktzscyy4841221.shtml)
 
-据内部人士透露，超过1.1万名员工试图合理拒绝接种疫苗。此人数大大超出公司管理层的预估，让波音公司陷入了两难境地。
+**（文章内容仅代表新西兰-财经G乐部节目观点）**
 
-文字版原文：[超1.1万名员工拒绝疫苗，申请疫苗豁免，波音公司陷入两难](https://gnews.org/zh-hans/1651580/)
-
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,16 +2,20 @@
 ---
 
 
-## 美联储警告中共国房地产业可能出现的风险
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1656505/)
+## 瑞典十九岁女孩注射了辉瑞疫苗两天后开始了她的苦难历程
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1656586/)
 
-美国联邦储备委员会(美联储/FED)周一表示，中共国房地产业面临压力，部分原因是监管机构重点关注负债累累的公司，以及全球金融状况收紧，这可能给美国金融体系带来风险。
+#### 意大利罗马达芬奇农场                             小白鸽
 
-美联储在最新金融稳定报告中称：“鉴于中共国经济和金融体系的规模…中共国的金融压力可能引发风险情绪恶化从而令全球金融市场承压，给全球经济增长带来风险，并最终影响美国经济。”
-![img](https://media.gettr.com/group32/getter/2021/11/10/12/49/1067833b-e4dc-d3d5-2aa2-182f91ef6594/69e82d662f2dc239119fa3a293cd2190_500x0.jpg)
-参考链接：[https://cn.reuters.com/article/kaisa-g…](https://cn.reuters.com/article/kaisa-group-fed-warning-1109-tues-idCNKBS2HV02M)
+图片来源：eventiavversinews.it
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Schermata-2021-11-11-alle-19.14.35.png)
+简尼菲•梅琳是一位19岁的瑞典姑娘。但在短短的几个星期之内， 从一位健康活波的姑娘沦为一个不得不以轮椅为生的姑娘。简尼菲于7月接种了第一剂辉瑞疫苗， 两天后她的双手失去了知觉，她出现了平衡问题，甚至双脚麻木。 几天后，这一症状扩展到一条腿上， 简尼菲需要别人帮助才能走路。不久，她的双腿都无法站立也无法走动了。她与卫生部门的关系令人失望，简尼菲去神经病学家那儿看了几次门诊，他都否认简尼菲的问题来自疫苗。医生还想出各种办法让她行走，但结果都是徒劳的。
 
-**（文章内容仅代表新西兰-财经G乐部节目观点）**
+简尼菲将自己的遭遇发到了她的Instagram 上，当地报纸“ Sundsvall Tidning” 与她联系，希望对她的经历进行报道。但是她收到的报社的稿件与最终在网上发表的文章是不同的。所有有关疫苗方面的信息全部被移除。当地报社就此辩解，报社决定忽略所有有关疫苗的信息。不但如此， 简尼菲还注意到这家报纸的脸书有关新冠疫苗副作用的评论帖子也被删掉，现在相关评论也完全看不到了。简尼菲感到她的遭遇并没有得到重视，媒体根本不想提疫苗。她说：**“ 他们号召我们年轻人互助，让我们为了他人而去接种疫苗。 但是当人们因此而受到伤害时，就没有了互助，碰到的只是黑暗和失去的信心。”**
+
+原文链接：https://www.eventiavversinews.it/svezia-il-dramma-della-19enne-jennifer-melin-finita-su-una-sedia-a-rotelle-il-calvario-inizia-due-giorni-dopo-il-vaccino-pfizer/
+
+责任编辑、发布： Xiao baige
 
  
 

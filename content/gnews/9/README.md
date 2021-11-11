@@ -2,41 +2,16 @@
 ---
 
 
-## 有声| 恒大持续抛售大额股份
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1656468/)
+## 美联储警告中共国房地产业可能出现的风险
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1656505/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月8日，恒大再次减持恒腾网络2亿股，套现4.07亿港元。继4日减持1.5亿股，5日减1.8亿股之后，恒大共出售5.3亿股恒腾网络，回笼资金达11.25亿港元。
+美国联邦储备委员会(美联储/FED)周一表示，中共国房地产业面临压力，部分原因是监管机构重点关注负债累累的公司，以及全球金融状况收紧，这可能给美国金融体系带来风险。
 
-值得注意的是，恒大自6月份以来，6次减持恒腾累计22.84亿股，套现总计88亿港元。
+美联储在最新金融稳定报告中称：“鉴于中共国经济和金融体系的规模…中共国的金融压力可能引发风险情绪恶化从而令全球金融市场承压，给全球经济增长带来风险，并最终影响美国经济。”
+![img](https://media.gettr.com/group32/getter/2021/11/10/12/49/1067833b-e4dc-d3d5-2aa2-182f91ef6594/69e82d662f2dc239119fa3a293cd2190_500x0.jpg)
+参考链接：[https://cn.reuters.com/article/kaisa-g…](https://cn.reuters.com/article/kaisa-group-fed-warning-1109-tues-idCNKBS2HV02M)
 
-同时恒大近期一直也在抛售其他资产。资料显示，10月18日，恒大集团在盛京银行的持股比例，已经49.59%下降至19.85%，共计变现金额110亿元。
-
-文字版原文：[恒大持续抛售大额股份](https://gnews.org/zh-hans/1653605/)
-
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**（文章内容仅代表新西兰-财经G乐部节目观点）**
 
  
 

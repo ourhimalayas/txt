@@ -2,46 +2,52 @@
 ---
 
 
-## 新泽西州民主党参议院议长最终承认败选
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1656413/)
+## 2021/11/11 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1656432/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**主播：大卫｜嘉宾：Castle、政清**
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/D.jpg)Edward Durr（political-viewer.com)
-《门道专家》11月10日发表文章，题目是“新泽西州参议院议长斯威尼（Sweeney）最终向共和党卡车司机爱德华·杜尔（Edward Durr）认输”。【1】
+GTV视频链接：[2021-11-11 中共国房产危机又出什么新花样？ 双十一为何开始数字货币交易 美众议院发起国会阻止中共大外宣](https://gtv.org/video/id=618d06cee7e77037923353d5)
 
-全文如下：
 
-新泽西州参议院议长史蒂夫·斯威尼（Steve Sweeney）是新泽西州最有权势的民选官员之一，他最终向爱德华·杜尔（Edward Durr）让步，这位基督教卡车司机在竞选中只花了几千美元。
 
-斯威尼在上周二（11月2日）的选举中被击败，但他声称在一个郡“发现”了12,000张选票，此后一个多星期他拒绝认输。
+**板块1–房产危机**
 
-周三（11月10日），民主党人斯威尼最终向共和党人杜尔认输，承认出现了“红潮”。
+1.深圳召开房地产座谈会，整体房地产市场遇冷、销售下降、资金流动困难、融资困难。在“改革开放前沿阵地”召开会议，中共想摸底房地产真实情况，表明曾经鼓吹的“房地产调控”政策完全失败。
 
-《哥伦比亚广播公司费城报》（CBS Philadelphia）道：新泽西州参议院议长史蒂夫·斯威尼（Steve Sweeney）是该州最有权势的民选官员之一，他在周三（11月10日）承认失去了州参议院的连任。
+2.恒大推出收益达620%的债券，真实价值可能不足债卷价值的1/7，并且无人“理睬”。恒大出售私人飞机和质押董事长豪宅再一次最后一天支付利息，其债务规模在3000亿美金以上，根本没有偿还能力，恒大的爆雷最终将影响全球经济。
 
-民主党人斯威尼在新泽西州南部第三区输给了共和党政治新人、商业卡车司机爱德华·杜尔。
+3.华尔街日报报道–中共国考虑缓解房地产限制，帮助困境中的开放商。东北沈阳被证实放宽限购限售政策。中共利用公权力强行压住房地产的爆雷，违背经济的规律，期望在二十大前保持稳定。
 
-“我当然接受结果，我要祝贺杜尔先生，并祝他好运。”斯威尼周三（11月10日）在州议会大厦发表演讲时说。
+4.人民银行对按揭限额不再管控、并购贷不纳入三条红线指示、开发贷和个贷要上量、存量项目银行可展期不降级。中共用放宽政策“暗示”可以炒房、利用各大媒体造势、诱导“接盘侠”买房，再配合“房产税”开启持续割韭菜模式。
 
-斯威尼输给了杜尔，杜尔在竞选中至少花了2300美元，震惊了州官员，让控制着立法机构的民主党人更换新的领导人。斯威尼说，他失去了大约2000张选票，这是共和党在政治分裂的费城郊区压倒性投票的结果。
+**板块2–国内经济**
 
-“这是一个红潮。”他说。
+1.今年中共国“双十一”过分低调，表明经济形势不好。京东首次在双十一接受中共国数字国币，中共一直在“强推”数字国币。中共国数字货币相比喜币毫无优势（控制权所有权掌控在用户手里、发行规则公开透明、流通自由可跨境、货币非国家化拒绝垄断）。
 
-（全文完）
+2.喜币价格创新高接近25美元,大量新用户涌进、呈现卖盘稀少现象。大机构还未入场，预计年底会有惊喜。
 
-“红潮”，“翻红”，文贵先生近来总是提及的词儿。是的，保守人士对邪恶中共的认知比较超前和彻底，希望他们赢得选举，这将是灭共事业的极大利好。
+**板块3–国际政治**
 
-此则消息反映了美国正常的政治生态，出现异议，我不认输。通过各方介入，进行公正的、经得住验证的审核，消除异议，让我输得心服口服，我就认输，我祝贺你。没有作假的，心里坦荡，不怕你审核，不像2020大选，那种掩盖，那种阻拦，那种不择手段的龌蹉，根本不是消除质疑的方式，越发让人感到，既然没有作假，为何这样害怕审计？
+1.众议员吉姆班克斯要求国会采取行动阻止中共国宣传渗透国会–中共大外宣向国会办公室免费发放《中国日报》。中共长期系统性渗透美国各界。拜习关于“气候问题”达成合作协议，拜登对中共的“绥靖政策”将激发两党内更多反对声。
 
-截止发稿时，共和党新泽西州长候选人恰塔雷利阵营没有进一步的消息更新，即，没有表示要求“重新计票”，也没有承认败选。对恰塔雷利的感受，参见笔者11月9日的文章。【2】
+*编辑：【英国伦敦喜庄园编辑部】*
 
-参考链接：
+*听写：call me uncle|Pr: 乐禧禧| Page：小六月*
 
-【1】[https://www.thegatewaypundit.com/2021/11/new-jersey-senate-president-sweeney-finally-concedes-republican-truck-driver-edward-durr/](https://www.thegatewaypundit.com/2021/11/new-jersey-senate-president-sweeney-finally-concedes-republican-truck-driver-edward-durr/)
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古20点.**
 
-【2】[https://gnews.org/zh-hans/1651454/](https://gnews.org/zh-hans/1651454/)
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+
+[![](https://spark.adobe.com/page/ttirr7Ny2IV7J/images/a90e0d9b-08ae-41c0-a8a2-82b053736a4e.jpg?asset_id=03cf270f-9326-428a-a462-968d7fe14dee&amp;img_etag=%221daeca2c04053e77ca1ac242e9218160%22&amp;size=2560)](https://spark.adobe.com/page/ttirr7Ny2IV7J/images/a90e0d9b-08ae-41c0-a8a2-82b053736a4e.jpg?asset_id=03cf270f-9326-428a-a462-968d7fe14dee&amp;img_etag=%221daeca2c04053e77ca1ac242e9218160%22&amp;size=1024)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+[![](https://spark.adobe.com/page/ttirr7Ny2IV7J/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/ttirr7Ny2IV7J/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+
 
  
 
