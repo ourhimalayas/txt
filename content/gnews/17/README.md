@@ -2,21 +2,22 @@
 ---
 
 
-## 前辉瑞分析师爆料称加强针的毒性是普通新冠疫苗的10倍
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1654563/)
+## 雅典娜时报-第109期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1654665/)
 
-翻译：喜国公民
-视频来自网络
-英国 “揭露”杂志爆出辉瑞公司产品的130个不同批号的加强针疫苗对人的伤害平均是其他批号的630倍，它们导致住院治疗的人数是其他批次的109倍，而死亡人数是其他批次的22倍。
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-前辉瑞公司分析师凯伦-金斯顿爆料称，现在出来的加强针毒性是普通新冠疫苗的10倍。
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-1.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/7-3.png)
+***发布：小红帽***
 
-有传闻说，很多人打了加强针后出现了问题。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-(本文纯属个人观点，与Gnews无关)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

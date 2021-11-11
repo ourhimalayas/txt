@@ -2,44 +2,41 @@
 ---
 
 
-## 德国报纸强调最近有大量足球运动员不寻常倒下
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1654760/)
+## 截止11.8中共病毒已造成全球3.2亿感染和1800万死亡
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1654827/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/snapshot_副本.jpg)
+据[2021年11月10日 文贵大直播：中共六中全会内部报告：中国癌症发病人数第一，与病毒相关性死亡1370万人；香港外籍人士撤离历史新高，大量外汇移出，香港在6个月内成为金融空港；对病毒真相的掩盖造成医疗行业医务人员流失短缺；六中全会就是中共内斗，抓人，习一神要做2件事；](https://gtv.org/video/id=618bc611e7e7703792324e25)时间点1：10：06——
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/d66c39006dc935f6e751671f57ed2a08.jpg)
+**郭文贵先生：**刚才安平妹妹已经说了，刚才讲的数的时候我就跟你说，我要跟大家分享一个很重要的数据，国内在六中全会前第一次官方的报告——中国患冠状病毒7000万人，这是官方数字7000万人，这个7000万人是不包含在这2.5亿的全球的。
 
+大家想知道死多少人吗？共产党是叫相关性死亡，我第一次听说，就冠状病毒相关性死亡，我不确定你死在这个冠状病毒上——1370万，相关性死亡。但是它不说冠状病毒死亡，战友们，这个太重要了，也就是从武汉到黑龙江到中国就是死了1370万人——相关性死亡，就像那个癌症1100万的癌症，他不说是打疫苗，他说这个癌症是全球第一，但是他不说跟疫苗、冠状病毒有关，叫相关性死亡。
 
+刚才的2.5亿和死亡的500万里不包含这个，500万加上1300万是多少？是1800万人死亡全球，跟二战差不多了。然后再加上一个咱们中国，2.5亿加上7000万是多少？兄弟姐妹们，太可怕了！就你能想象，瑞安平你就刚才那一张纸，就这一张纸就是一个历史上的大事！咱就不用说别的，你见过这种流氓，这个人类曾有过这样的经历，它还在西山开开全会呢！
 
-图片来源：AFP/Pau BARRENA
+（以下暂略）
 
+撰稿：喜马拉雅的肉夹馍；
 
-#### 编译：小红帽
+审核：喜马拉雅的馍夹肉；
 
-德国报纸《柏林日报》发表了一份报告，试图回答为什么 “最近有异常多的职业和业余足球运动员倒下”。
+校对：Maarago；
 
-报道的标题是 “足球中令人费解的心脏疾病”，首先强调了巴塞罗那俱乐部的塞尔吉奥·阿圭罗（Sergio Agüero）的案例，这位33岁的前锋最近在一场比赛中因头晕和呼吸困难而不得不在41分钟后退出比赛。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-文章列举了最近大量的足球运动员出现心脏问题或在球场上晕倒的案例，在某些情况下导致了死亡。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-正如我们之前强调的，其他职业运动员最近也遭遇了类似的健康问题，包括24岁的斯洛伐克曲棍球运动员鲍里斯·萨德基（Boris Sádecký），他在上周五的一场比赛中在冰上摔倒后不幸身亡。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-28岁的健美运动员杰克·卡兹马雷克 （Jake Kazmarek）也在接种中共病毒（COVID-19）疫苗四天后 “意外”死亡。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-《柏林日报》的文章没有猜测中共病毒疫苗的反应是否与倒地和心脏问题的发生有任何关系。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-然而，文章确实指出，“心肌炎”可以 “在普通病毒感染的过程中发生”，并导致 “危及生命的心律失常”。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-**参考新闻：**[German Newspaper Highlights “Unusually Large” Number of Soccer Players Who Have Collapsed Recently – Summit News](https://summit.news/2021/11/09/german-newspaper-highlights-unusually-large-number-of-soccer-players-who-have-collapsed-recently/)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

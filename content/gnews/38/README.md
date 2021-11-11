@@ -2,43 +2,34 @@
 ---
 
 
-## 随着以太币和比特币的增值，加密货币市场的总市值突破3万亿美元
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1653849/)
+## 2021/11/09 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1654145/)
 
-**[简评：]***全球加密货币市场一派繁荣景象，同时作为全球唯一和黄金挂钩的数字货币-HCOIN（喜币），于格林威治时间2021年11月01日，11点01分（北京时间：19点01分）正式上市。其流通市值一度突破200亿美元，总估值突破两万亿美元，稳居所有加密货币前列。伴随投资机构入场、某国家批准虚拟货币银行牌照及某国家承认喜币是其法定货币等三个标志性事件的发生，未来喜币的价格会直奔到月球，现在的横盘是为了等待新战友的加入，望战友赶紧KYC，抓住这来之不易的机会。*
+- 001   11月8日，四川成都环球中心只因疑似病例经过进行临时封控，多人试图逃离封控区。
+- 002   市民得知临时封控后，百米冲刺速度赶去做核酸。
+- 003   人山人海的核酸检测，从白天到黑夜。
+- 004   11月8日晚间，江西上饶市信州区已经封城。
+- 005   11月8日24时，云南瑞丽市执行封城7天。
+- 006   疫苗仍在各地强制。学校变相强制，威胁家长，孩子必须打疫苗！
+- 007   加强针任务在社区分配，社区工作人员完不成任务回不了家，凑不上数只能自己再多打一针！
+- 008   疑似6岁孩童打疫苗后脑梗。
+- 009   山西太原市妇幼医院，孩子在外面受冻，保安拦住不让进。
+- 010   河南信阳，母亲带孩子到医院看病，无论大病小病上来就拍片。吐槽医院医生没有临床诊断，只会唯利是图。
+- 011   中共遍地豆腐渣工程。大连北站高架桥桥墩出现开裂，桥墩底层竟然没有浇筑水泥。
+- 012   11月5日，浙江杭州。驾驶员在物流批发市场的一条未通行的路上停车休息， 被交警贴罚单 。
+- 013   11月5日，广州一小区新装电梯按次收费 ，收费按楼层增加，最高40元一个月。
 
-据《彭博社》记者 Joanna Ossinger，2021年11月8日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-172.png)观察：加密货币的总市值超过了3万亿美元。
-图片来源：彭博社
-**加密货币市场的总市值现在已经突破3万亿美元。**
 
-随着投资者对比特币等成熟代币，以及对以太坊和索拉纳（Solana）等区块链网络的不断升级和富有吸引力的新功能越来越满意，这个只有十多年历史的数字货币资产市场，其价值相对于2020年年底已经翻了两番。人们日益看好去中心化金融和不可替代代币的发展，像狗狗币（Dogecoin）和柴犬币（Shiba Inu） 这样的模因币（memecoin）继续引起关注。
+* * *
 
-Fairlead Strategies的创始人兼管理合伙人凯蒂·斯托克顿（Katie Stockton）在一份报告中表示：“比特币似乎正在进入看涨模式，而以太币可能会在本周五收盘高于阻力位时确认长期突破。”
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-根据 CoinGecko 的定价，截至纽约凌晨4点15分，加密货币的整体市值为3万亿美元。第三和第四大代币—币安币（Binance Coin）和索拉纳（Solana）在过去7天内上涨了20% 以上；上周，所有七个规模最大的数字货币的价格都在上涨。
 
-**比特币周一上涨5.8%，至66,539美元，接近此前约6.7万美元的纪录。以太坊上涨3.6%，至4,7958美元的新高。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-175.png)图片来源：彭博社
-周一，Marathon Digital Holdings Inc. 和 Riot Blockchain Inc. 等加密货币公司市值均上涨了10%以上。 美国最大的交易所Coinbase Global Inc. 在公布第三季度业绩前一天上涨了3.6%。
+编辑：【英国伦敦喜庄园编辑部】
 
-当然，众所周知，加密货币是不稳定的。 上次比特币价格达到这个水平时，它下跌了几千美元，并且经历了多次修正，使其下跌了一半或更多。 其他加密货币的波动性更大—模因币有时会疯狂地来回反弹，有时也伴随骗局和黑客攻击。
-
-加密货币交易所AAX的研究和策略主管Ben Caselin说：“比特币目前的上涨是由一个与比特币相关的ETF在美国上市，以及埃隆·马斯克周末在Twitter上的投票推动的。随着柴犬币（Shiba）和其他模因币最近的激增，以及Facebook更名为Meta，人们对加密货币的兴趣继续上升。”
-
-原文连接：[https://www.bloomberg.com/news/articles/2021-11-08/crypto-world-hits-3-trillion-market-cap-as-ether-bitcoin-gain?utm\_content=business&utm\_campaign=socialflow-organic&cmpid=socialflow-twitter-business&utm\_medium=social&utm\_source=twitter](https://www.bloomberg.com/news/articles/2021-11-08/crypto-world-hits-3-trillion-market-cap-as-ether-bitcoin-gain?utm_content=business&amp;utm_campaign=socialflow-organic&amp;cmpid=socialflow-twitter-business&amp;utm_medium=social&amp;utm_source=twitter)
-
-翻译：洛杉矶盘古农场–钢蛋儿
-
-校对：洛杉矶盘古农场–Mike Li
-
-评论：洛杉矶盘古农场–钢蛋儿
-
-编辑：洛杉矶盘古农场–心照
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
