@@ -2,47 +2,32 @@
 ---
 
 
-## 不仅仅是中共国的百姓要吃草，美国百姓也面临巨大的物价飞涨
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1654903/)
+## 秘翻在线:从艾滋病危机到中共病毒大流行 福奇的撒谎邪恶本性从未改变
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1654953/)
 
-作者：香草山金融部 – 闲聊钱币
+#### 翻译/撰稿：zzballack
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-7.jpg)图片来源：国会山报
+《网关专家》（Gateway Pundit）11月10日刊登了一篇文章，简述了福奇在上世纪80年代艾滋病流行期间的言行，对照他在中共病毒大流行期间的表现，其撒谎邪恶本性从未改变。
 
+20世纪80年代艾滋病流行的高峰期，福奇告诉美国人，儿童可以通过随意接触感染艾滋病，这立即引发了了美国人对同性恋者和艾滋病患者的巨大反应。当数千人死于艾滋病的时候，他却扣留了能有效阻止艾滋患者死于肺孢子菌肺炎的药物复方新诺明（Bactrim）和其它磺胺类药物（sulfa drugs），肺炎当时是艾滋病患者的头号杀手。“他希望有一种疫苗，但却从未出现。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
+福奇对艾滋病的预测也十分离谱。他曾宣称“常规的亲密接触”可能会传播艾滋病毒。1987年2月15日，当时的保守派专栏作家乔治·威尔（George Will）对福奇说，受艾滋病影响的主要是同性恋人群，它并没有爆发。但福奇很快回应说：“不对，现在通过异性传播感染艾滋病的人约为4%，预计这一数字在1991年将上升到10%左右。”但事实上，异性恋群体中的艾滋患者比例从未超过4%。
 
+而在持续了近两年的中共病毒大流行期间，福奇前后不一的言行和谎言则更多。
 
+2020年1月，福奇在接受Newsmax采访时说美国不用担心病毒和限制旅行。但在3个月后，福奇却改口说为了遏制病毒传播，需要封锁每一个州。
 
-据 Kitco News Bites, 10月份美国消费者价格指数升至6.2%–这是近30年的最高值。美联储试图说服人们通胀只是暂时性的，但市场已经不再相信这些敷衍之词。
+福奇曾警告说中共病毒大流行可能会演变成末日大流行，但随后却只把它比作是一场严重的流感。
 
-作为对通胀数据的回应，周三，黄金跳涨近40美元。12月Comex期货最后交易价格为1,867.50美元，上涨2%。另一方面，随着风险厌恶情绪的蔓延，股票也出现下滑。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-7.jpg)
-能源、住房和食品，这些老百性日常必不可少的商品的上涨构成了10月份物价的主要驱动力。汽油价格飙升6.1%，食品比一年前上涨了5.3%，燃油的涨幅最大，比上个月增长了12.3%，电费上涨了1.8%。住房，这个不被记入通胀指数的商品比上年增长20%。
+福奇之前根据模型预测大流行进展，随后却说由于变量太多，模型不可靠。但是他和德博拉·比克斯 (Deborah Birx)博士却用模型得出的数据催促川普政府停止美国的经济活动。
 
-美国财政部长珍妮特-耶伦(Janet Yellen)周二试图安抚市场，称通胀不会持续。耶伦还说，如果需要，美联储也随时准备采取行动，以防止1970年代式的通货膨胀。
+2020年3月20日，当川普总统在一个关于硫酸羟氯喹的新闻发布会上讲话时，福奇突然上前打断川普，说：“当你说（羟氯喹）相当有效时必须谨慎，因为它从未进行过临床试验。”但是两周之后公布的一份对全球6000多位医生的调查报告说，在所有治疗中共病毒的方法中，羟氯喹是评价最高的。至今，福奇仍然阻止饱受新冠痛苦的患者使用硫酸羟氯喹和伊维菌素等有效药物进行治疗，一心只想推广毒疫苗害人。
 
-然而，经济学家们现在不排除通胀率在短期内上升到年度7%的可能性。
+纳瓦罗说，福奇的手上沾满了血。数十年来，福奇的撒谎本性一直未改，而且越来越邪恶。
 
-如果无节制的印钞可以解决一切经济问题，那么一次又一次的债务上限危机又从何而来呢？老百姓的钱袋子最是市场的晴雨表。
-
-（本文仅代表作者观点）
-
-参考来源：[不仅仅是中共国的百姓要吃草，美国百姓也面临巨大的物价飞涨](https://www.kitco.com/news/2021-11-10/Gold-price-jumps-nearly-40-as-U-S-inflation-rate-highest-in-30-years-Yellen-says-Fed-would-prevent-the-1970s-scenario.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
-
+新闻来源：[It’s Like Déjà Vu… FLASHBACK VIDEO: Fauci Says Kids can Get AIDS From Casual Contact – Withheld Life-Saving Drugs from Gays with AIDS](https://www.thegatewaypundit.com/2021/11/like-deja-vu-flashback-video-fauci-says-kids-can-get-aids-casual-contact-withheld-life-saving-drugs-gays-aids/)
 
  
 

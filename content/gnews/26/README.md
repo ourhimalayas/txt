@@ -2,45 +2,41 @@
 ---
 
 
-## 德国报纸强调最近有大量足球运动员不寻常倒下
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1654760/)
+## 远离比注射疫苗更毒的口服疫苗！
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1654808/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：纽约香草山农场健身部 – 幸福鸟
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月10日七哥在大直播中披露了在欧洲的科学家透露的关于口服疫苗的内幕。口服药是当年用于对付艾滋病，性病，以及非洲的痢疾、霍乱的药方。它是激素，连续吃几天脖子就会跟脑袋一样粗。其危害对癌症患者或曾经做过手术的人尤其巨大。它可能会严重诱发心脏病，特别是对有糖尿病病史的患者来说，极其危险。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/d66c39006dc935f6e751671f57ed2a08.jpg)
+![全球首款新冠口服疫苗進臨床 以色列Oravax一期試驗8月啟動- 環球生技](https://d3gjxtgqyywct8.cloudfront.net/o2o/image/ae69f139-3cff-46b1-9815-f097b9bd3cc4.jpg)
 
+看来，最近被炒得沸沸扬扬的口服疫苗甚至比注射疫苗更加可怕！归纳起来主要有以下两点：
 
+1.它是口服疫苗，不像注射疫苗一样直接进入血液，造成血管堵塞，导致心肌炎、心包炎、脑梗等等。它是通过服用而进入胃部，分解以后直接影响神经系统，然后进入血液。它的副作用是慢慢产生的。它不仅将对人的神经和血液循环系统、消化系统造成毁灭性伤害，而且还在不知不觉中就让人患心梗、脑梗、癌症、以及其它慢性病。口服疫苗何其歹毒！
 
-图片来源：AFP/Pau BARRENA
+2.更容易通过药监局的审查和蒙蔽民众！阴险狡猾的无良疫苗制造商犹如白骨精一般千方百计地变换花样来谋财害命！可是他们难逃七哥的火眼精金，邪恶和丑恶的白骨精们在七哥以及跟随七哥的有良知的科学家持有的照妖镜里原形毕露，无处遁形！
 
+成千上万个跟随七哥的战友们将不遗余力地向家人，朋友以及世界传播真相，从而让大家远离口服疫苗。新中国联邦将成为邪恶的CCP以及黑暗势力的掘墓人，成为照亮世界的希望的灯塔！
 
-#### 编译：小红帽
+参照：[https://gtv.org/video/id=618bc611e7e7703792324e25](https://gtv.org/video/id=618bc611e7e7703792324e25)
 
-德国报纸《柏林日报》发表了一份报告，试图回答为什么 “最近有异常多的职业和业余足球运动员倒下”。
+![](https://cdn.discordapp.com/attachments/873743101305430037/904371534930534400/Screen_Shot_2021-10-31_at_10.05.40_PM.png)
 
-报道的标题是 “足球中令人费解的心脏疾病”，首先强调了巴塞罗那俱乐部的塞尔吉奥·阿圭罗（Sergio Agüero）的案例，这位33岁的前锋最近在一场比赛中因头晕和呼吸困难而不得不在41分钟后退出比赛。
+**校对/发稿：童谣**
 
-文章列举了最近大量的足球运动员出现心脏问题或在球场上晕倒的案例，在某些情况下导致了死亡。
+**更多资讯，更多关注**
 
-正如我们之前强调的，其他职业运动员最近也遭遇了类似的健康问题，包括24岁的斯洛伐克曲棍球运动员鲍里斯·萨德基（Boris Sádecký），他在上周五的一场比赛中在冰上摔倒后不幸身亡。
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-28岁的健美运动员杰克·卡兹马雷克 （Jake Kazmarek）也在接种中共病毒（COVID-19）疫苗四天后 “意外”死亡。
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-《柏林日报》的文章没有猜测中共病毒疫苗的反应是否与倒地和心脏问题的发生有任何关系。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-然而，文章确实指出，“心肌炎”可以 “在普通病毒感染的过程中发生”，并导致 “危及生命的心律失常”。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-**参考新闻：**[German Newspaper Highlights “Unusually Large” Number of Soccer Players Who Have Collapsed Recently – Summit News](https://summit.news/2021/11/09/german-newspaper-highlights-unusually-large-number-of-soccer-players-who-have-collapsed-recently/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

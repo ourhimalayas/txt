@@ -2,47 +2,28 @@
 ---
 
 
-## 新加坡和印尼的比较显示伊维菌素对新冠病毒有效
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1654799/)
+## 中共病毒直接导致日本12万人次失业，女性失业渐成常态化
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1654842/)
 
-作者: XO酱
+#### 撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-70.jpg)[图片来源](https://www.sankei.com/article/20210809-AK2TNCQDPVMPJJD6UHUUZ2LD3E/)
+厚生劳动省10日透露，自去年2月份以来，因中共病毒蔓延而被解雇或停职的工人总数已达到120,099人（截至9日，包括预测值）。虽然增长速度较去年有所放缓，但女性失业期也有延长的趋势。
 
-翻译: Rosa
+截至本月5日的最新分析，其中制造业的工人数量最多，为27900人，其次是零售业，为16434人，餐饮业为13774人，住宿业为13653人。按就业类型划分（去年5月25日至今年5月5日），有54,671人是非正式工人，几乎占总数的一半。
 
-[原文链接：](https://gnews.org/1652060/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-4.png)图片来自CNBC印度尼西亚
-在应对新冠病毒大流行病方面，新加坡和印度尼西亚采取了两种非常不同的方法。作为两个相邻的国家，比较它们的经验是有益的。
+据该部称，去年6月~7月一个月内，因中共病毒的影响而造成的裁员和雇佣人数达到14,000人。今年4月以来，每个月一直保持在1,000-3,000人的范围内。
 
-印度尼西亚允许使用伊维菌素，而新加坡基本上禁止使用伊维菌素
+不过，根据总务省调查，在病毒蔓延前三个月，一个季度，失业半年以上的女性人数在20万左右徘徊。而今年1月至3月则为36万，4-6月为34万人次，7-9月为33万人次，居高不下。 据厚生劳动省称，“最近工作机会稍有增多，希望逐渐消除招聘与求职的不匹配。”
 
-早在7月15日，印度尼西亚食品和药品监督局就批准了伊维菌素作为治疗药物用于新冠病毒患者的紧急使用授权。自那时起，印度尼西亚的Covid-19新增病例开始急剧下降，并在11月4日达到628例的低点。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture2-2.png)截图来自：https://www.worldometers.info/coronavirus/country/indonesia/
-印度尼西亚每天的新冠病毒死亡人数也急剧下降到11月4日的新低，为19人。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture3-1.png)屏幕截图来自：https://www.worldometers.info/coronavirus/country/indonesia/
-与此同时，印度尼西亚的邻国新加坡已经基本上禁止使用伊维菌素进行新冠病毒治疗。新加坡卫生部在最近几天断言：”驱虫药伊维菌素不是可以治愈新冠病毒患者的神奇药物”。
+中共病毒影响最严重的当属普通民众的生活。每个失业员工的背后都是一个家庭。疫苗的二次灾害还正在发酵中。中共病毒和疫苗灾难的影响还远没有结束。
 
-新加坡在最近几周的10月份截获了23,100片进口伊维菌素，继续与新冠病毒病例的激增作斗争。新加坡没有允许使用这种自20世纪80年代以来一直被人类安全使用的廉价仿制药，而是依靠高的新冠病毒疫苗接种率，希望实现群体免疫。
+信息源:
 
-结果是什么？
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture4.png)截图来自：https://www.worldometers.info/coronavirus/country/singapore/![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture5.png)截图来自：https://www.worldometers.info/coronavirus/country/singapore/
-新加坡的疫苗接种率高得多，但其表现却比印度尼西亚更差
+[コロナで解雇や雇い止め、累計で１２万人超に…女性の失業期間が長期化](https://news.yahoo.co.jp/articles/c76942f3db504f5474fb640cfa3d6432f1e7a99c)
 
-新加坡政府于2021年2月开始了大规模的新冠病毒疫苗接种计划。新加坡是世界上疫苗接种率最高的国家之一。截至11月7日，86%的新加坡人口至少已经接受了第一剂疫苗，85%的新加坡人口已经接受了两剂新冠病毒疫苗（”完全接种”）。
-
-新加坡的疫苗接种率
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture6.png)11月11日截图来自：《海峡时报》网站
-相比之下，印度尼西亚的新冠病毒疫苗接种率要低得多。雅加达环球报》报道，印尼公民中仅有7800万以上的人完全接种了疫苗。这相当于超过2.77亿总人口的约28%。
-
-使用Our World In Data的冠状病毒比较工具，这两个国家在新冠病毒疫苗接种方面的巨大差距再清楚不过了。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture7.png)截图来自：https://ourworldindata.org/coronavirus/country/indonesia
-印度尼西亚只有不到30%的人口接受了全面的疫苗接种，但其表现却远远好于新加坡，后者有超过85%的人口接受了全面的疫苗接种。
-
-我们还需要什么证据来证明伊维菌素的作用？
-
-(本文纯属个人观点，与Gnews无关)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
