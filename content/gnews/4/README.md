@@ -2,16 +2,36 @@
 ---
 
 
-## 美联储警告中共国房地产业可能出现的风险
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1656505/)
+## 密歇根州学校系统在大量教师因 疫苗加强针生病后关闭
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1656552/)
 
-美国联邦储备委员会(美联储/FED)周一表示，中共国房地产业面临压力，部分原因是监管机构重点关注负债累累的公司，以及全球金融状况收紧，这可能给美国金融体系带来风险。
+**翻译：**真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/11/saginaw-covid-booster-3-edited.jpg)图片来源：网络
+来自THE GATEWAY PUNDIT星期三十一月十日的新闻报道：
 
-美联储在最新金融稳定报告中称：“鉴于中共国经济和金融体系的规模…中共国的金融压力可能引发风险情绪恶化从而令全球金融市场承压，给全球经济增长带来风险，并最终影响美国经济。”
-![img](https://media.gettr.com/group32/getter/2021/11/10/12/49/1067833b-e4dc-d3d5-2aa2-182f91ef6594/69e82d662f2dc239119fa3a293cd2190_500x0.jpg)
-参考链接：[https://cn.reuters.com/article/kaisa-g…](https://cn.reuters.com/article/kaisa-group-fed-warning-1109-tues-idCNKBS2HV02M)
+在许多工作人员因疫苗加强针不良反应而生病后，密歇根州一个乡镇的许多学校于周一关闭。
 
-**（文章内容仅代表新西兰-财经G乐部节目观点）**
+由于员工因拒绝遵守疫苗规定而被解雇或辞职，萨吉诺（SAGINAW）学区和全国各地的学校都严重人手不足。
+
+萨吉诺县社区学校的许多工作人员在周末接受了实验性的 COVID 加强针后，他们产生了负面反应，并且病得太重而无法重返工作岗位，迫使该镇的小学、中学和高中在周一关闭。
+
+萨吉诺镇社区学校周一在其网站主页和 Facebook 页面上宣布：“我们的许多员工对周末在志愿诊所进行的 COVID 加强剂产生了负面反应。” “全州都存在代课教师/员工短缺的情况，这使得弥补这些缺勤进一步复杂化。”
+
+一位地区发言人告诉萨吉诺当地的 ABC 附属机构，造成负面反应的是疫苗加强针，而不是 Covid-19。
+
+学区领导没有提供有关教师正在应对的副作用的详细信息。
+
+**点评:  **密歇根州是蓝州，民主党或自由党的地盘。 “虽然说起来可能很可怕，但参与实验性疫苗的志愿者多数是自由主义者（民主党追随者），等到他们都将这种死亡和一生的痛苦放在一起时，发现他们被用作豚鼠（试验品）。 他们会成群结队地离开自由党，我已经听到很多人谈到这一点，特别是当拜登试图将其强制化，他们会惊醒是什么党强迫伤害他们并从此离开。“——–摘自评论区
+
+原文链接:[https://www.thegatewaypundit.com/2021/11/michigan-school-system-closes-large-number-teachers-become-covid-shot/](https://www.thegatewaypundit.com/2021/11/michigan-school-system-closes-large-number-teachers-become-covid-shot/)
+
+编辑/发布：LILY
+
+20211111
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+
+
+
 
  
 
