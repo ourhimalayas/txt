@@ -2,32 +2,22 @@
 ---
 
 
-## 足球运动员心脏病例增多
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656231/)
+## 有声|新闻自由不断紧缩，香港《立场新闻》总编辞职
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1656232/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月9日，德国媒体在一份调查报告表示，最近“倒地”的足球运动员人数“超乎寻常的多”。
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间11月6日，《立场新闻》总编辑钟沛权通过脸书上一个非公开的群组表示，已于当地时间11月1日辞任《立场新闻》总编辑一职。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-9.jpeg)
+据了解，《立场新闻》成立与2014年，由蔡东豪、钟沛权以及余家辉创立，一直以来对港共当局持批判态度，是一个偏向泛民主派的网络媒体。在香港“反送中”运动期间，该媒体持续报道抗争者动态，被港共当局视为眼中钉。 为此，早在今年6月底，《立场新闻》曾宣布，将5月之前刊出的文章全部下架，并暂停接受赞助。
 
-媒体称，在这份名为 “足球运动中令人困惑的心脏病”报告里，研究人员列举了大量的足球运动员近期因心脏问题在球场上倒地，甚至死亡的案例。其中，报告特别提及，巴塞罗那足球俱乐部33岁的前锋——塞尔吉奥·阿圭罗在上场41分钟后，因头晕和呼吸困难而不得不退出比赛。
+有知情人士透露，随着中共港区国安法的出台，香港的新闻自由度正在不断紧缩，像《立场新闻》这类媒体的“生存空间”也变得越来越小。而今，钟主编的辞职实乃意料之中，这也预示着《立场新闻》将走到尽头。
 
-同时，报道中还强调，其他职业的运动员也遭遇了类似的健康问题，比如24岁的斯洛伐克曲棍球运动员在上周五的比赛中于冰上摔倒后不幸身亡；28岁的健美运动员在注射新冠疫苗四天后死亡。
+文字版原文：[新闻自由不断紧缩，香港《立场新闻》总编辞职](https://gnews.org/zh-hans/1650978/)
 
-对于这些案例，有媒体报道表示，一些人或因接种新冠疫苗而患上了心脏病。
-
-参考链接：
-1）[German Newspaper Highlights “Unusually Large” Number Of Soccer Players Who Have Collapsed Recently](https://www.zerohedge.com/medical/german-newspaper-highlights-unusually-large-number-soccer-players-who-have-collapsed)
-2）[Rätselhafte Herzerkrankungen im Fußball](https://www.berliner-zeitung.de/news/raetselhafte-herzerkrankungen-im-fussball-li.193554)
-3）[24-Year-Old Hockey Player Dies After Suffering Cardiac Arrest During Game](https://summit.news/2021/11/04/24-year-old-hockey-player-dies-after-suffering-cardiac-arrest-during-game/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
-
-总编：Irene木木
-编辑：小鹿妞妞
-校正/发稿：谐趣园
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
