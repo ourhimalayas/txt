@@ -2,39 +2,39 @@
 ---
 
 
-## 中资钢厂散发粉尘致塞尔维亚小镇患癌率十年翻两番
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1656115/)
+## 足球运动员心脏病例增多
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656231/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-18.png)
-（图片来自网络）
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月9日，德国媒体在一份调查报告表示，最近“倒地”的足球运动员人数“超乎寻常的多”。
 
-据《大纪元》2021年11月9日报道，中资公司在塞尔维亚一个小镇收购的一家钢厂向空气中散发红色粉尘，导致当地人癌症发病率十年里翻了两番。塞尔维亚当局因此施压中资钢厂解决污染问题，否则将勒令其关门。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-9.jpeg)
 
-拉迪纳茨村（Radinac）位于塞尔维亚中部，距离斯梅代雷沃钢厂（Smederevo）仅几百米远。这家五年前被中资收购的钢厂，巨大的熔炉每天源源不断地向空中释放出红色的烟尘，给当地的一切都披上一层厚厚的红色灰尘。当地的癌症发病率在十年内翻了两番，批评人士因此呼吁该厂降低污染或者关门。
+媒体称，在这份名为 “足球运动中令人困惑的心脏病”报告里，研究人员列举了大量的足球运动员近期因心脏问题在球场上倒地，甚至死亡的案例。其中，报告特别提及，巴塞罗那足球俱乐部33岁的前锋——塞尔吉奥·阿圭罗在上场41分钟后，因头晕和呼吸困难而不得不退出比赛。
 
-《路透社》在当地调查采访时发现，由于粉尘污染严重，居民只能在室内晾晒衣物，而汽车上的油腻粉尘必须用醋来清洗。
+同时，报道中还强调，其他职业的运动员也遭遇了类似的健康问题，比如24岁的斯洛伐克曲棍球运动员在上周五的比赛中于冰上摔倒后不幸身亡；28岁的健美运动员在注射新冠疫苗四天后死亡。
 
-根据监督机构Tvrdjava获得的公共卫生机构数据，这个约有10万人的城市在2019年报告了6866例癌症病例，远高于2011年的1738例，癌症发病率上升了四倍之多。
+对于这些案例，有媒体报道表示，一些人或因接种新冠疫苗而患上了心脏病。
 
-斯梅代雷沃钢厂位于巴尔干半岛中部的多瑙河畔。2016年被中共国河钢集团以4600万欧元（5300万美元）的价格从塞尔维亚政府手中收购，从此更名为河钢塞钢公司（HeSteel Serbia）。批评人士指出，该工厂是中资企业无视污染标准的一个典型例子。
+参考链接：
+1）[German Newspaper Highlights “Unusually Large” Number Of Soccer Players Who Have Collapsed Recently](https://www.zerohedge.com/medical/german-newspaper-highlights-unusually-large-number-soccer-players-who-have-collapsed)
+2）[Rätselhafte Herzerkrankungen im Fußball](https://www.berliner-zeitung.de/news/raetselhafte-herzerkrankungen-im-fussball-li.193554)
+3）[24-Year-Old Hockey Player Dies After Suffering Cardiac Arrest During Game](https://summit.news/2021/11/04/24-year-old-hockey-player-dies-after-suffering-cardiac-arrest-during-game/)
 
-环保组织“堡垒”（Tvrdjava）负责人尼古拉‧克里斯蒂奇（Nikola Krstic）对《路透社》表示，9月份的分析结果显示，该厂释放出的红色灰尘重金属浓度很高。红色灰尘十分油腻，粘在肺部，使人呼吸困难。此外，他还指出，该镇每年有120天的空气质量远低于欧洲标准。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-拉迪纳茨村的一切都笼罩着红褐色的粉尘，屋顶、花园、汽车、田地、教堂和面包店无一例外。43岁的当地主妇纳迪卡‧马尔科维奇（Nadica Markovic）表示，她有多个邻居死于癌症，而她自己多年来也一直有呼吸问题，经常失声，且没有医生能够解决这个问题。
+总编：Irene木木
+编辑：小鹿妞妞
+校正/发稿：谐趣园
 
-塞尔维亚是第一个同中共建立战略伙伴关系的中东欧国家，也是中共一带一路”倡议的积极响应者。中共在塞尔维亚投资了数十亿欧元，为的是在欧盟边缘地区扩大影响力奠定基础。
-
-然而中资企业一向不守规矩的做法显然让塞尔维亚当局头疼。塞尔维亚政府表示，他们准备就污染问题向中共国公司提出挑战。
-
-今年4月，塞尔维亚当局命令中共国紫金矿业集团（Zijin Mining Group）暂时停止该国唯一一处铜矿的部分经营活动，原因是其未遵守环境保护标准。
-
-塞尔维亚矿业和能源部长佐拉娜‧米哈伊洛维奇（Zorana Mihajlovic）上周对《路透社》表示，不仅要对环境污染者进行罚款，并且如果他们不能减少污染，将停止他们运营。
-
-注：本文仅代表作者观点
-
-新闻链接：[https://twitter.com/dajiyuan/status/1458107116263297027](https://twitter.com/dajiyuan/status/1458107116263297027)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

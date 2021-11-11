@@ -15,140 +15,140 @@
 
 ---
 
-### [有声|新闻自由不断紧缩，香港《立场新闻》总编辞职](/content/gnews/1/README.md)
+### [戳穿中共“人民的江山”谎言](/content/gnews/1/README.md)
+ ` 波士顿五月花农场`
+
+### [有声|拜登政府无视限制令 美多地 “反疫苗强制令”](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [国际工会联合会呼吁抵制北京冬奥会](/content/gnews/2/README.md)
+### [东躲西藏的中共六中全会，习近平为家天下更进一步](/content/gnews/3/README.md)
+ ` YALUN 亚伦`
+
+### [有声|GFASHION新品即将震撼上市](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [11/04/21 香港快讯 “美队 2.0”煽动分裂国家罪成 判囚 5 年 9 个月 官：情节严重 被告毫无悔意](/content/gnews/5/README.md)
+ ` 英喜-粵語組`
+
+### [有声|新西兰爆发和平示威 抗议疫苗强制令](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [GTV新闻访谈简报|2021年11月11日早](/content/gnews/7/README.md)
+ ` 纽约香草山MOS01`
+
+### [有声|新闻自由不断紧缩，香港《立场新闻》总编辞职](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [足球运动员心脏病例增多](/content/gnews/9/README.md)
+ ` GTV新闻访谈`
+
+### [国际工会联合会呼吁抵制北京冬奥会](/content/gnews/10/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [中共对维吾尔人的跨国镇压急剧扩大](/content/gnews/3/README.md)
+### [中共对维吾尔人的跨国镇压急剧扩大](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [有声|文贵大直播的重大意义](/content/gnews/4/README.md)
+### [有声|文贵大直播的重大意义](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [有声|GTV新闻访谈简报|2021年11月9日晚](/content/gnews/5/README.md)
+### [有声|GTV新闻访谈简报|2021年11月9日晚](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [DMSA将对恒大提起破产程序](/content/gnews/6/README.md)
+### [DMSA将对恒大提起破产程序](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [全球最大工会明确反对中共举办2022冬奥会](/content/gnews/7/README.md)
+### [全球最大工会明确反对中共举办2022冬奥会](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [法国副议长要求停止对中共的资金援助](/content/gnews/8/README.md)
+### [法国副议长要求停止对中共的资金援助](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [中资钢厂散发粉尘致塞尔维亚小镇患癌率十年翻两番](/content/gnews/9/README.md)
+### [中资钢厂散发粉尘致塞尔维亚小镇患癌率十年翻两番](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [口服“新冠特效药”的有毒副作用甚于疫苗](/content/gnews/10/README.md)
+### [口服“新冠特效药”的有毒副作用甚于疫苗](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [墙内青年用“躺平”不成家做无声抗争](/content/gnews/11/README.md)
+### [墙内青年用“躺平”不成家做无声抗争](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [美中元首最快下周举行电视电话会谈](/content/gnews/12/README.md)
+### [美中元首最快下周举行电视电话会谈](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [加拿大军方无视兵源短缺执意推行疫苗强制令](/content/gnews/13/README.md)
+### [加拿大军方无视兵源短缺执意推行疫苗强制令](/content/gnews/21/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [樱花灭共诗——举国造神](/content/gnews/14/README.md)
+### [樱花灭共诗——举国造神](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11月9日新西兰反强制疫苗大游行](/content/gnews/15/README.md)
+### [11月9日新西兰反强制疫苗大游行](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声| GTV新闻访谈简报|2021年11月9日早](/content/gnews/16/README.md)
+### [有声| GTV新闻访谈简报|2021年11月9日早](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [加强针下去，工厂变废墟](/content/gnews/17/README.md)
+### [加强针下去，工厂变废墟](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [DC每日热点1111](/content/gnews/18/README.md)
+### [DC每日热点1111](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [金融高管和外资正大规模撤离香港](/content/gnews/19/README.md)
+### [金融高管和外资正大规模撤离香港](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [美国务院要求中共无条件释放公民记者张展](/content/gnews/20/README.md)
+### [美国务院要求中共无条件释放公民记者张展](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [蓬佩奥：要避免与中共的冲突 就要建立真正的威慑力](/content/gnews/21/README.md)
+### [蓬佩奥：要避免与中共的冲突 就要建立真正的威慑力](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [美拜登政府续禁投资中共军方关联企业](/content/gnews/22/README.md)
+### [美拜登政府续禁投资中共军方关联企业](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [19岁女孩诉说其接种中共病毒疫苗后出现诸多不良反应](/content/gnews/23/README.md)
+### [19岁女孩诉说其接种中共病毒疫苗后出现诸多不良反应](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [澳大利亚护士揭示医院满是注射疫苗产生不良反应的患者](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共发布“假擀面杖”数据：10月社会融资和实体经济贷款均同比增长超1000亿元](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [道理和行动](/content/gnews/26/README.md)
+### [道理和行动](/content/gnews/32/README.md)
  ` 银河勇气之星`
 
-### [研究显示病毒刺突等蛋白可以进入细胞核并削弱细胞增殖](/content/gnews/27/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国务卿布林肯重申对台保护承诺](/content/gnews/28/README.md)
+### [美国务卿布林肯重申对台保护承诺](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共提倡猪式生活抗击疫情](/content/gnews/29/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [欧洲议会拟参照澳洲制定法律反制中共干预](/content/gnews/30/README.md)
+### [欧洲议会拟参照澳洲制定法律反制中共干预](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [推广新冠疫苗后，越来越多运动员患上心脏疾病、甚至失去生命](/content/gnews/31/README.md)
+### [11/10/2021 文贵直播：无良药企为逃避监管而强推的口服抗中共病毒药比疫苗更毒，会导致血液、神经、消化系统等一系列严重问题。战友们千万别碰！](/content/gnews/35/README.md)
+ ` 秘密翻译组-北美组`
+
+### [一些孩子打中共病毒疫苗后开始出现疫苗不良反应](/content/gnews/36/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/10/2021 文贵直播：无良药企为逃避监管而强推的口服抗中共病毒药比疫苗更毒，会导致血液、神经、消化系统等一系列严重问题。战友们千万别碰！](/content/gnews/32/README.md)
+### [拜习会前暗潮汹涌 台上合作台下竞争](/content/gnews/37/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [11/10/2021 文贵直播：中共的数据显示，中国有7000万人确诊中共病毒和1370万“冠状病毒相关性死亡”案例](/content/gnews/38/README.md)
  ` 秘密翻译组-北美组`
 
-### [一些孩子打中共病毒疫苗后开始出现疫苗不良反应](/content/gnews/33/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [拜习会前暗潮汹涌 台上合作台下竞争](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [90万名5-11岁的儿童已经接种了第一针中共病毒疫苗](/content/gnews/35/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [11/10/2021 文贵直播：中共的数据显示，中国有7000万人确诊中共病毒和1370万“冠状病毒相关性死亡”案例](/content/gnews/36/README.md)
+### [11/10/2021 文贵直播：强制疫苗接种被叫停的根源在于美国人开始相信文贵关于疫苗灾难的爆料](/content/gnews/39/README.md)
  ` 秘密翻译组-北美组`
 
-### [中国疫情：引发民怨的“时空伴随者”手段能否奏效？](/content/gnews/37/README.md)
+### [中共十九届六中全会内部透露6000亿美元债务违约不可避免](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/10/2021 文贵直播：强制疫苗接种被叫停的根源在于美国人开始相信文贵关于疫苗灾难的爆料](/content/gnews/38/README.md)
- ` 秘密翻译组-北美组`
+### [全球最大工会组织谴责中共践踏人权 反对北京主办冬奥会](/content/gnews/41/README.md)
+ ` 日本东京方舟农场`
 
-### [中共十九届六中全会内部透露6000亿美元债务违约不可避免](/content/gnews/39/README.md)
+### [中共渗透台湾大学遭台湾教育部驱离](/content/gnews/42/README.md)
+ ` 日本东京方舟农场`
+
+### [台湾海军陆战队员赴关岛联训](/content/gnews/43/README.md)
+ ` 日本东京方舟农场`
+
+### [墙内要闻汇编 11月11日](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [全球最大工会组织谴责中共践踏人权 反对北京主办冬奥会](/content/gnews/40/README.md)
- ` 日本东京方舟农场`
-
-### [中共渗透台湾大学遭台湾教育部驱离](/content/gnews/41/README.md)
- ` 日本东京方舟农场`
-
-### [台湾海军陆战队员赴关岛联训](/content/gnews/42/README.md)
- ` 日本东京方舟农场`
-
-### [墙内要闻汇编 11月11日](/content/gnews/43/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [11/11/2021 国际财经快讯：美国10月CPI同比急升6.2%，通胀触及30年高点；谷歌对欧盟28亿美元购物广告罚款的上诉失败](/content/gnews/44/README.md)
+### [11/11/2021 国际财经快讯：美国10月CPI同比急升6.2%，通胀触及30年高点；谷歌对欧盟28亿美元购物广告罚款的上诉失败](/content/gnews/45/README.md)
  ` 秘密翻译组金融团队`
-
-### [Ned Ryun:参议院候选人Jim Lamon是假灭共](/content/gnews/45/README.md)
- ` wenwu`
 
 ### [日本要闻汇编 11月11日](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

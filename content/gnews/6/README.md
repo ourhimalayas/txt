@@ -2,29 +2,24 @@
 ---
 
 
-## DMSA将对恒大提起破产程序
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656178/)
+## 有声|新西兰爆发和平示威 抗议疫苗强制令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1656260/)
 
-作者：纽约香草山教育部 – Irene木木
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月10日，德国柏林消息称，中共恒大集团今天再次拖欠国际投资者的利息支付，对此，持有恒大集团债券的德国市场筛选机构DMSA正准备对恒大集团提起破产程序，并呼吁所有债券投资者加入。
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+11月9日，数千人在新西兰举行和平示威游行，游行者在惠灵顿市中心议会外聚集，抗议政府的疫苗强制令和封锁措施，被称为蜂巢的议会大厦被迫关闭。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-8.jpeg)
+许多人举着写有“自由”和“新西兰人不是实验室的老鼠”标语的牌子，高喊口号，抨击媒体在说谎，要求政府收回强制接种疫苗令并取消限制。
 
-数据显示，中共恒大集团早在今年9月就拖欠了两笔债券的利息，其30天的宽限期已于10月结束。作为债权人，DMSA表示，至今仍未收到任何来自恒大集团的利息付款。据了解，恒大最晚要在11月10日前支付三笔债券的利息，共计约1.4亿美元。DMSA解释，恒大的债务均包含交叉违约条款，即当其所涉的任一债券出现违约时，恒大的其余所有未偿还债券都会被一同视为“违约”状态。
+目前，新西兰仍然是世界上COVID-19病例最少的国家之一，迄今为止已报告的病例不到8000例，死亡32人，其完全疫苗接种率已达到其合格人口的近80%。
 
-此前，DMSA曾在一份报告中指出，世界上负债最多的企业——中共恒大集团必将面临债务违约的境况，而恒大的破产可能会导致“大重置”，即全球金融体系的最终崩溃。美联储也于两天前证实了这一点。
+尽管如此，新西兰总理阿德恩上个月仍然表示，新西兰将要求教师、卫生及残疾部门的工作人员全面接种COVID-19疫苗，此举招致了广泛的批评。阿德恩面临着越来越大的政治压力和公众抗议。
 
-参考链接：
-1）[https://gettr.com/post/pgmdtn9c19](https://gettr.com/post/pgmdtn9c19)
-2）[Evergrande officially defaulted – DMSA is preparing bankruptcy proceedings against Evergrande Group](https://apnews.com/press-release/pr-newswire/business-china-evergrande-group-china-36dc3f16fe95c154a768d071345cdb77)
+文字版原文：[新西兰爆发和平示威 抗议疫苗强制令](https://gnews.org/zh-hans/1651832/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
-
-总编：小鹿妞妞
-编辑：小鹿妞妞
-校正/发稿：谐趣园
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

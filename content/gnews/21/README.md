@@ -2,51 +2,25 @@
 ---
 
 
-## 蓬佩奥：要避免与中共的冲突 就要建立真正的威慑力
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1655983/)
+## 加拿大军方无视兵源短缺执意推行疫苗强制令
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1656062/)
 
-信息采集：星星
-作者：纽约香草山农场 – 飞虹
+采编：青青   编译撰稿：文明(添草灭共)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/b-1-edited.jpg)图片来源：TPM
 
 
+加拿大自媒体《后千禧年》11月10日报道，那些不愿意向当局提交其“新冠病毒”疫苗接种情况证明的加拿大军人将面临“退伍除名”的处置。
 
-11月8日，美国前国务卿蓬佩奥再次接受福克斯新闻采访。蓬佩奥表示，只有建立真正的威慑力，美国才能避免与中共发生冲突。
+目前，【加拿大武装部队】成员接种该疫苗的比率为95%，其中已完成第二剂疫苗接种的比率为92%，明显高于加拿大普通民众84%的接种率。该国国防参谋长表示，对未接种该疫苗及未取得豁免接种证明的军队成员将采取包括辞退在内的强制措施，理由是为了保护其他成员的健康安全。
 
-谈到中共在演习中将美国军舰模型作为目标进行训练，但五角大楼却表示美国军队“专注于提高作战能力和作战概念，以确保美国有足够的资源和战略应对中共”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-78.jpg)
-蓬佩奥评论道：其他国家也曾经这样做过，但中共威胁的规模、级别、方式是完全不同的。中共蓄意对全球开展网络攻击，威胁各国，我认为他们看到了美国的软弱。但五角大楼在这些问题上没有丝毫对抗中共的意思。
+据悉，军方内部最新审计数据显示，【加拿大武装部队】已出现至少7千人的兵源短缺，当局正在招收新兵以填补空缺。但如果继续执行强制接种政策，则无疑会进一步削弱该国武装部队的兵力。
 
-蓬佩奥补充道，中共是不折不扣的敌人。而要对抗他们，我们需要表现出强大的决心和能力，不仅我们自己，还要联合各国盟友。只有当我们建立起真正的威慑力的时候，冲突才能避免。
+* * *
 
-参考链接：
-[Pompeo: Xi and the CCP will certainly attack Taiwan if US shows weakness. 蓬佩奥发出警告：若美国不够强硬，中共将在冬奥会后进攻台湾！中美将发生真正的军事冲突！](https://gettr.com/post/pgjqv8cb00)
+校对编辑，发稿：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：文特
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[原文链接：](https://thepostmillennial.com/canadian-military-to-threaten-unvaccinated-members-with-discharge)
 
  
 

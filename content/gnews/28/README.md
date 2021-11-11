@@ -2,24 +2,48 @@
 ---
 
 
-## 美国务卿布林肯重申对台保护承诺
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1655920/)
+## 美国务院要求中共无条件释放公民记者张展
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1655998/)
 
-撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-24.jpg)
-美国国务卿布林肯近日表示美国有确保台湾有能力自卫的承诺，并称有很多国家将单方面动用武力破坏现状视为对和平与安全的重大威胁。
+作者：英国喜庄园 – I770775
 
-对此，中共外交部发言人汪文斌11月11日在例行记者会上继续口炮称，任何挑战一个中国原则、抗拒中国统一大势的行径都将被坚决挫败。任何支持“台独”分裂、违背历史潮流的企图都将以失败告终。
 
-美国国务卿布林肯重申对台湾的承诺，对台湾的安全上了一个保险，中共国的口炮，最终停留在嘴上。
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-[汪文斌：抗拒中国统一大势的行径将被坚决挫败](http://world.people.com.cn/n1/2021/1111/c1002-32280044.html)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-76.jpg)
+
+当地时间11月8日，美国国务院发言人普莱斯在例行记者会上说，美方对张展健康状况不断恶化表达深切担忧，呼吁中共立即无条件释放她。
+
+张展是去年在武汉揭露当地疫情真相的中共国公民记者，被中共当局以“寻衅滋事”罪判处 4 年徒刑，限制人身自由。入狱后的张展一直绝食抗议，其健康情况备受外界关注。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-45.jpg)
+普莱斯说：美国政府深切关注中国公民记者张展日渐恶化的健康，据她的家人指，张展已接近死亡边缘。美国正连同其他外交盟友，不断地对这起肆意拘禁事件表达严重关切。我们重申，要求中共立即无条件释放张展，北京当局应尊重新闻自由，尊重人民自由表达的权利。
+
+参考链接：
+[张展健康状况堪忧 美国国务院要求无条件放人](https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/jm-11092021061403.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：童谣
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
 
 
  

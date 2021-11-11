@@ -2,48 +2,50 @@
 ---
 
 
-## Ned Ryun:参议院候选人Jim Lamon是假灭共
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1655452/)
+## 11/11/2021 国际财经快讯：美国10月CPI同比急升6.2%，通胀触及30年高点；谷歌对欧盟28亿美元购物广告罚款的上诉失败
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1655473/)
 
-**翻译：西班牙巴塞罗那喜悦农场-wenwu**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip11.png)图片来源：thenationalpulse.com
-唐纳德·川普的成就之一是，他在中共国问题上（从不公平贸易行为到公然盗窃知识产权）给许多美国人“灌输”了思想。如果你问川普”美国优先”阵营中的大多数人，对他们来说，仅次于选举诚信和移民的头四个问题是什么，中共国问题肯定是入围了。参议院候选人吉姆·拉蒙（Jim Lamon）一边与中共国做生意，一边反对中共国…
+![](https://assets.gnews.org/wp-content/uploads/2021/11/20211111-1.jpg)[图片来源](https://cn.nikkei.com/industry/itelectric-appliance/46638-2021-11-11-05-01-01.html)
+**1.马斯克已卖出约50亿美元特斯拉股票**
 
-这使得在进入2022年选举时，尤其是在初选中，一个在所有问题上全面一致的“美国优先”候选人赢得共和党的提名更为重要，这就把我们带到了亚利桑那州和共和党的美国参议院初选。
+[根据周三晚间公布的监管公告，马斯克(Elon Musk)本周行使了作为部分薪酬获得的股票期权，并卖出了价值约50亿美元的特斯拉(Tesla Inc., TSLA)股票。马斯克周一首先行使了略多于200万股的股票期权，支付了大约1,340万美元的期权行使费用，这些股票以当日收盘价计算价值约为25亿美元，以支付预扣税款。在接下来的两天，马斯克抛售了自身持股的约2%，在这三天时间里共卖出了约450万股股票，即在行使股票期权后，也缩减了在特斯拉的持股规模。](https://cn.wsj.com/articles/%E9%A9%AC%E6%96%AF%E5%85%8B%E5%8D%96%E5%87%BA%E7%BA%A611%E4%BA%BF%E7%BE%8E%E5%85%83%E7%89%B9%E6%96%AF%E6%8B%89%E8%82%A1%E7%A5%A8-11636591508)
 
-这本来就是共和党人在2022年的首要机会之一，在弗吉尼亚州选举之后，拉里·萨巴托（Larry Sabato）将目前由民主党人马克·凯利（Mark Kelly）占据的亚利桑那州席位从“民主党人立场”转为“一半一半”。
+**2.SpaceX将四名宇航员送往国际空间站**
 
-作为亚利桑那州美国参议院席位的公开候选人，拉蒙声称他将支持“美国优先”，并站出来反对中国共产党。但在谈到他的商业行为时，他显然忘记了自己的初心。
+[在当地周三晚间马斯克(Elon Musk)创建的SpaceX将又一组宇航员送入太空轨道，这是该公司第四次为美国国家航空及太空总署(NASA)将宇航员送入太空。根据NASA的现场直播，SpaceX的猎鹰9号(Falcon 9)火箭在美东时间晚上9点04分左右从佛罗里达州的肯尼迪航天中心(Kennedy Space Center)发射升空，搭载“龙飞船”(Crew Dragon)太空舱前往国际空间站。该飞船上有四名宇航员：NASA的宇航员Raja Chari、Tom Marshburn和Kayla Barron，以及欧洲航天局(European Space Agency)的宇航员Matthias Maurer。NASA表示，这艘太空船预计在升空约22小时后，即将在周四晚上与国际空间站对接，然后进行为期约六个月的工作任务，在此期间，这个宇航员小组将进行植物科学、材料和其他课题的研究。](https://cn.wsj.com/articles/%E9%A9%AC%E6%96%AF%E5%85%8B%E7%9A%84spacex%E5%B0%86%E5%9B%9B%E5%90%8D%E5%AE%87%E8%88%AA%E5%91%98%E9%80%81%E5%BE%80%E5%9B%BD%E9%99%85%E7%A9%BA%E9%97%B4%E7%AB%99-11636601409)
 
-拉蒙说，他将“打败中国共产党”，作为参议员，他将确保“进入美国的商品不是由廉价的奴隶劳工、不受约束的环境污染和不安全的工作条件制造的。” 他甚至声称，他自己的公司 Depcom Power 专注于消费“美国优先”。
+**3.谷歌对欧盟28亿美元购物广告罚款的上诉失败**
 
-“我们不买中共国产品，”拉蒙在2021年5月说。但记录告诉我们一个不同的故事。 2020 年 10 月，Depcom Power 还从一家名为 HT Solar 的中共国公司[进口了数百万公斤](https://www.importgenius.com/importers/depcom-power-inc-alta-luna-solar)的太阳能产品；占与 Depcom 的所有交易的四分之三多一点。HT Solar 无疑是 Depcom 最大的贸易伙伴。它是 HT-SAAE 的子公司，HT-SAAE[完全由中共国政府拥有和运营](https://www.ht-saae.com.au/)，隶属于中共国航天科技集团公司（CASC），这是一家成立于 1956 年的国有企业。
+[一家欧盟法院基本维持了对谷歌(Google Inc.) 28亿美元的反垄断裁决，为欧盟对大型科技公司的打击增添了新的动力。该法庭指出了谷歌背离竞争的实质，并认为谷歌对其搜索引擎做出的有利于自己广告的改变并没有带来可抵消其竞争负面影响的效率。周三位于卢森堡的欧盟普通法院(General Court)认可了欧盟竞争监管机构2017年的一项反垄断裁决，即Alphabet Inc. (GOOG)的搜索引擎以牺牲竞争对手的购物服务为代价，将用户引向自己的比较购物广告，这一行为违反了反垄断法。该案在一年半前进行了庭审辩论，其关键在于一个法律先例，该先例是全球范围内密切审查的焦点，即互联网最大的平台是否有特殊的责任，避免偏袒自己的内部产品和服务而打击竞争对手提供的产品和服务。](https://cn.wsj.com/articles/%E8%B0%B7%E6%AD%8C%E5%AF%B9%E6%AC%A7%E7%9B%9F28%E4%BA%BF%E7%BE%8E%E5%85%83%E8%B4%AD%E7%89%A9%E5%B9%BF%E5%91%8A%E7%BD%9A%E6%AC%BE%E7%9A%84%E4%B8%8A%E8%AF%89%E5%A4%B1%E8%B4%A5-11636588808)
 
-除了向 Depcom 等国际买家出口太阳能电源外，CASC 还专门制造弹道导弹、精确制导炸弹和其他大型武器。CASC 的导弹技术营销部门是中共国精密机械进出口公司 (CPMIEC)。
+**4.Twitter将组建加密货币团队探索比特币和区块链的用途**
 
-在发现 CPMIEC 向伊朗和巴基斯坦出口弹道导弹技术后，CPMIEC 目前正受到美国政府的[制裁](https://freebeacon.com/national-security/china-asks-u-s-to-lift-sanctions-on-arms-proliferators-iran-traders/)，并禁止所有美国公民与他们做生意。在川普政府确定其与中共国军方有深厚联系之后，CASC 这个更广泛的保护伞也成为川普政府制裁的对象。
+[Twitter Inc. (TWTR)将成立一个专门的加密货币团队。这家社交媒体公司周三表示，正在组建一个名为“Twitter Crypto”的团队，以研究如何帮助该应用上的创造者赚钱或接受比特币等加密货币付款，以及使用区块链技术的其他方法。该团队由新聘请的软件工程师Tess Rinearson领导，她将向Twitter的首席技术官汇报工作。该团队正在招募成员，但没有具体说明将招多少人。Twitter表示，新团队将为Twitter上的加密货币未来制定战略。Twitter已经允许人们用比特币给用户小费，比特币是世界上最大的加密货币。](https://cn.wsj.com/articles/twitter%E5%B0%86%E7%BB%84%E5%BB%BA%E5%8A%A0%E5%AF%86%E8%B4%A7%E5%B8%81%E5%9B%A2%E9%98%9F%E6%8E%A2%E7%B4%A2%E6%AF%94%E7%89%B9%E5%B8%81%E5%92%8C%E5%8C%BA%E5%9D%97%E9%93%BE%E7%9A%84%E7%94%A8%E9%80%94-11636592409)
 
-在拉蒙的眼皮底下，Depcom 甚至由于没有得到这几家中共国公司的货物供应，而对其采取了法律行动。Depcom 于 2019 年对总部位于南京的 China Sunergy Co 的加利福尼亚州的子公司 Sunergy California LLC [提起诉讼](https://www.law360.com/articles/1155576/solar-co-can-t-touch-factory-during-arbitration-award-fight)。Depcom 最终达成了 370 万美元的法庭判决，随后遭到了争议；在该裁决处于上诉阶段时，Sunergy 于 2021 年[申请破产](https://www.bizjournals.com/sacramento/news/2021/01/21/sunergy-bankruptcy.html)。
+**5.美国10月CPI同比急升6.2%，通胀触及30年高点**
 
-但拉蒙与中共国的商业往来并不止于此。Depcom 还与多家中共国公司有业务往来，这些公司从中共国新疆地区的维吾尔族穆斯林（再教育营）的奴役中受益。
+[受持续的供应短缺和强劲的消费需求影响，美国10月份通胀率创下三十年来高位，从食品杂货到汽车，家庭所需的各种商品价格普遍出现大幅上涨。美国劳工部公布，10月消费者价格指数(CPI)同比上升6.2%。这创下了1990年以来最大同比升幅，并且也是同比通胀率连续第五个月超过5%。CPI反映消费类商品和服务的价格变动情况。不包括波动较大的食品和能源价格，10月核心CPI同比攀升4.6%，升幅超过9月份的4%，创1991年以来最大涨幅。经季节性因素调整，10月份CPI环比上升0.9%，升幅远超过9月份的0.4%，与6月份的0.9%相同。](https://cn.wsj.com/articles/%E7%BE%8E%E5%9B%BD10%E6%9C%88%E5%90%8C%E6%AF%94%E9%80%9A%E8%83%80%E7%8E%87%E8%A7%A6%E5%8F%8A30%E5%B9%B4%E9%AB%98%E7%82%B9-11636588508)
 
-一个例子是[隆基绿色能源科技](https://www.importgenius.com/importers/depcom-power-inc-alta-luna-solar)公司（Longi Green Energy Technology），这是众所周知的几家从大桥新能源集团（Daqo New Energy Group）获得供应的公司之一，该集团被记录为从新疆维吾尔人[的奴隶劳动中获利](https://documentcloud.adobe.com/link/track?uri=urn%3Aaaid%3Ascds%3AUS%3Ad360ffab-40cc-4d83-8b8b-a8bd503286a3#pageNum=1)。除了侵犯人权外，隆基还与新疆共产党的准军事组织兵团有直接联系。
+**6.Rivian上市交易创2014年以来美国IPO规模之最**
 
-2015 年，Depcom 还直接参与了佐治亚州 [Pawpaw 太阳能发电厂](https://www.nsenergybusiness.com/news/newssouthern-power-acquires-pawpaw-solar-plant-in-georgia-020615-4591009/)的建设，该工厂使用了从天合光能（Trina Solar）获得的13.7万多个太阳能组件。天合是另一家与新疆兵团[和奴工](https://www.cnbc.com/2021/05/24/bidens-solar-ambitions-collide-with-china-labor-complaints.html)有联系的中共国公司。在另一项类似的交易中，Depcom 于 2016 年在爱达荷州建造[了 40 兆瓦的博伊西（Boise Solar Farm）太阳能发电场](https://pv-magazine-usa.com/2016/09/23/idaho-puts-online-its-first-utility-scale-solar-project-at-40-mw-ac/)。博伊西的设施有超过17.5个来自晶科能源（Jinko Solar）的太阳能组件，晶科能源是一家与天合和隆基一样的中共国公司，与新疆兵团（XPCC）和维吾尔奴工[相连](https://www.nytimes.com/2021/01/08/business/economy/china-solar-companies-forced-labor-xinjiang.html)。
+[Rivian Automotive Inc. (RIVN)周三首日公开上市，就获得了可与传统汽车制造商相媲美的估值，成为资本市场青睐绿色汽车技术之下又一个受益者。周三其股票收于每股100.73美元，远高于周二晚间设定的78美元的发行价。基于预期的流通股数量，按这一收盘价计算，Rivian估值达到860亿美元左右。完全稀释后估值超过1,000亿美元。这宗备受期待的首次公开募股(IPO)交易融资规模创下2014年以来美国市场IPO的最高纪录。进一步显示出华尔街对电动汽车制造商的热情还在不断升温，尤其是像Rivian这样的公司。Rivian Automotive由一名麻省理工学院(Massachusetts Institute of Technology)毕业生于2009年创立的，总部位于加州。这些公司还很年轻，相对不知名，但有希望挑战更老牌的汽车公司。](https://cn.wsj.com/articles/rivian%E4%B8%8A%E5%B8%82%E8%82%A1%E4%BB%B7%E8%B7%B3%E6%B6%A8-%E5%B8%82%E5%80%BC%E7%AA%81%E7%A0%B41-000%E4%BA%BF%E7%BE%8E%E5%85%83-11636589709)
 
-考虑到拉蒙多年来与中共国的所有交易，拉蒙公开批评川普总统对中共国征收的关税，以及他对“绿色能源”替代品的替代方案持怀疑态度，也就不足为奇了。拉蒙在[2018年《TIME》的一篇文章](https://time.com/5084108/solar-energy-tariff/)中占据突出地位，他在文章中感叹川普总统对中共国贸易的打压，并承认曾游说川普政府重新考虑其对太阳能发电和对华贸易的做法。
+**7.英国经济增长放缓**
 
-拉蒙在这个问题上的记录确实是一致的，因为他始终与“美国优先”议程完全相反。经过多年与众多中共国公司的业务往来，他关于中共国问题和“美国优先”的言论显得空洞，坦率地说，他经常为此类交易积极辩护。希望亚利桑那州的共和党选民在 2022 年初选投票之前，更加了解拉蒙的行为。
+[国家统计局（ONS）的数据显示，随着GDP接近大流行前的水平，英国第三季度的经济增长放缓。国内生产总值（GDP）增长略低于预期的1.3%，低于第二季度的5.5%。数据的月度细分表明，9月份GDP仅比2020年2月大流行前的水平低0.6%。整个季度，占产出五分之四的主导服务业的增长受到消费支出疲弱的阻碍，零售额连续下降。放宽限制和经济重新开放帮助酒店和餐馆等子行业增长30%，艺术和娱乐业增长19.6%。但制造业——汽车工厂受到全球半导体芯片短缺的打击——和建筑业——在此期间都出现了萎缩，因为输入价格上升，一些产品的供应出现延误。](https://news.sky.com/story/uk-growth-slows-to-1-3-in-third-quarter-12465704)
 
-**新闻来源**：[thenationalpulse.com] [RYUN: Senate Candidate Jim Lamon Talks Tough onChina… While Doing Business With Them.](https://thenationalpulse.com/analysis/ryun-senate-candidate-jim-lamon-talks-tough-on-china-while-doing-business-with-them/) | 发布时间：2021年11月10日｜
+**8.日本要用半导体“纳米压印”技术逆袭**
 
-* * *
+[关于绘制尖端半导体的电路不可或缺的“光刻技术”，日本企业出现了实现逆袭的希望。铠侠 (KIOXIA）、佳能和大日本印刷最早将在2025年使如同盖章一样形成电路的“纳米压印”实现实用化。通过省去一部分工序，预计使设备投资最多减少数百亿日元，相关工序的制造成本最多减少4成。在光刻领域不断被夺走份额的日本企业有望重新提升存在感。一方面，纳米压印则是将形成三维结构的掩膜压在晶圆上被称为液体树脂的感光材料上，同时照射光线，一次性完成结构的转印。这种方式还容易应对使存储元件立体堆叠的复杂结构、用于数据存储的NAND闪存等。现阶段支持的线宽为15纳米（纳米为10亿分之1米），但3家企业力争今后进一步推进微细化。](https://cn.nikkei.com/industry/itelectric-appliance/46398-2021-11-11-05-03-00.html)
 
-***发稿：信心满满***
+**9.喜币价格又上升到新台阶，截止17：00价格横盘在24.564美元**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
+密翻金融组11月11日17：00报道，喜币（HCN）价格24小时变化达18.66%，最后横盘在24.564美元，24小时最低值为20.500美元，24小时交易量达到 596,834.985美元。截止今天，喜币流通市值达到了新高，245.64亿美元。喜交所公布可以每天提现十万美元。
 
+评论：今天是上市后的第10天，HCN价格以及增加了511.75倍，这是世界金融史上的奇迹，同样，喜联储公布可以每天提现十万美元，这不仅是创举，而且代表了绝对的实力。新中国联邦人鉴证了奇迹的发生，财富的快速攀升，都是史无前例的，展望中共灭亡后，新中国联邦人将会拥有多么富裕健康安全的生活，这一切完全基于爆料革命为真不破，灭共致富，不打疫苗，传播病毒疫苗真相，公布解药拯救生命。
 
+By 【秘密翻译组-金融组】
+作者：和理非
 
  
 

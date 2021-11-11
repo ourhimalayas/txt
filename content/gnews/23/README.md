@@ -2,10 +2,8 @@
 ---
 
 
-## 19岁女孩诉说其接种中共病毒疫苗后出现诸多不良反应
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1655961/)
-
-10/21/2021 一名19岁女孩介绍了自己在接种中共病毒疫苗后出现的诸多不良反应，揭示了一个完全健康的女孩的生活仅仅因为接种疫苗就发生了巨变。
+## 11月9日新西兰反强制疫苗大游行
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1656054/)
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
