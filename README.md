@@ -15,128 +15,128 @@
 
 ---
 
-### [德国报纸强调最近有大量足球运动员不寻常倒下](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
-
-### [共产党灭亡前要毁掉这个世界、毁掉中国人](/content/gnews/2/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美元债务宽限期结束，恒大违约风险急速提升](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [文贵视角:喜交所的投机、投资与投票](/content/gnews/4/README.md)
- ` 秘密翻译组-原创组`
-
-### [雅典娜时报-第109期](/content/gnews/5/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美大屠杀博物馆发布报告 再次确认新疆发生着反人类罪行](/content/gnews/6/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [Covid“阴性”患者让医院不堪重负，正是预测的抗体依赖性增强的危害后果](/content/gnews/7/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [澳最大超市：不会对员工执行强制疫苗接种](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
-
-### [德国承认中共病毒疫苗会造成心脏炎症](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本国内汽油涨至169日元，已连续10周上涨](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [大直播7·24——中共六中全会就要干两件事](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
-
-### [秘翻在线 :美国悄悄涨价的牛奶暗示通膨海啸到来](/content/gnews/12/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [前辉瑞分析师爆料称加强针的毒性是普通新冠疫苗的10倍](/content/gnews/13/README.md)
+### [新加坡和印尼的比较显示伊维菌素对新冠病毒有效](/content/gnews/1/README.md)
  ` 澳喜农场`
 
-### [医生：比利时GZA医院的所有重症患者都接种了疫苗](/content/gnews/14/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [拜登下周将与习举行虚拟会晤](/content/gnews/2/README.md)
+ ` HimalayaRussia`
 
-### [美国近百万幼儿已接种新冠病毒疫苗](/content/gnews/15/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [美国国会议员希望在台湾设立疾病监测中心](/content/gnews/16/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [加拿大部分地区医疗系统因骇客攻击而瘫痪](/content/gnews/17/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [安大略省因疫情恶化暂停重新开放计划](/content/gnews/18/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [英国首相鲍里斯·约翰逊鼓励民众打加强针](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [北美领导人峰会：拜登将在白宫接待加拿大总理特鲁多](/content/gnews/20/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [超过1000人聚集在洛杉矶市中心抗议疫苗强制令](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [疑因病毒感染数百名儿童在学校被强制隔离](/content/gnews/22/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [耶鲁流行病学教授：在家上学比接种疫苗去学校的好处要多](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [拜登无视联邦禁令继续强推接种政策](/content/gnews/24/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [大直播7·24——中共灭亡前要毁掉世界、毁掉中国人](/content/gnews/25/README.md)
+### [文·贵天成——文贵先生谈“吴征、杨澜”（二十六）](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [《国家脉动》一篇文章揭示福奇资助武毒所的海量证据](/content/gnews/26/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [GTV新闻访谈简报|2021年11月10日晚](/content/gnews/4/README.md)
+ ` 纽约香草山MOS01`
 
-### [美国法院冻结拜登对于美国公司的疫苗行政令](/content/gnews/27/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [大直播7·24——六中全会的核心消息](/content/gnews/28/README.md)
+### [德国报纸强调最近有大量足球运动员不寻常倒下](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [加拿大生活美谈 2021-11-04第二十八期](/content/gnews/29/README.md)
- ` canadalifetalk`
+### [共产党灭亡前要毁掉这个世界、毁掉中国人](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [疫苗产生的距离](/content/gnews/30/README.md)
+### [美元债务宽限期结束，恒大违约风险急速提升](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【玫瑰看新闻】 【回魂时刻】- 194期 疫苗受害者专题新闻10#](/content/gnews/31/README.md)
- ` 新西兰新联邦新闻摘要`
+### [文贵视角:喜交所的投机、投资与投票](/content/gnews/8/README.md)
+ ` 秘密翻译组-原创组`
 
-### [中共国没有医疗，只有医杀](/content/gnews/32/README.md)
+### [雅典娜时报-第109期](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美大屠杀博物馆发布报告 再次确认新疆发生着反人类罪行](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [拜登财政部提名人希望让煤炭、石油和天然气公司破产](/content/gnews/33/README.md)
- ` MG FARM`
+### [Covid“阴性”患者让医院不堪重负，正是预测的抗体依赖性增强的危害后果](/content/gnews/11/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [继美团、拼多多之后，红杉中国沈南鹏抛售小米](/content/gnews/34/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [澳最大超市：不会对员工执行强制疫苗接种](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [2021/11/09 墙内世界](/content/gnews/35/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [德国承认中共病毒疫苗会造成心脏炎症](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国中期选举的参议员候选人与中共关系](/content/gnews/36/README.md)
+### [日本国内汽油涨至169日元，已连续10周上涨](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [大直播7·24——中共六中全会就要干两件事](/content/gnews/15/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [秘翻在线 :美国悄悄涨价的牛奶暗示通膨海啸到来](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [随着以太币和比特币的增值，加密货币市场的总市值突破3万亿美元](/content/gnews/37/README.md)
+### [前辉瑞分析师爆料称加强针的毒性是普通新冠疫苗的10倍](/content/gnews/17/README.md)
+ ` 澳喜农场`
+
+### [医生：比利时GZA医院的所有重症患者都接种了疫苗](/content/gnews/18/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国近百万幼儿已接种新冠病毒疫苗](/content/gnews/19/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [美国国会议员希望在台湾设立疾病监测中心](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [加拿大部分地区医疗系统因骇客攻击而瘫痪](/content/gnews/21/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [安大略省因疫情恶化暂停重新开放计划](/content/gnews/22/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [英国首相鲍里斯·约翰逊鼓励民众打加强针](/content/gnews/23/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [北美领导人峰会：拜登将在白宫接待加拿大总理特鲁多](/content/gnews/24/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [超过1000人聚集在洛杉矶市中心抗议疫苗强制令](/content/gnews/25/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [疑因病毒感染数百名儿童在学校被强制隔离](/content/gnews/26/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [耶鲁流行病学教授：在家上学比接种疫苗去学校的好处要多](/content/gnews/27/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [拜登无视联邦禁令继续强推接种政策](/content/gnews/28/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [大直播7·24——中共灭亡前要毁掉世界、毁掉中国人](/content/gnews/29/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [《国家脉动》一篇文章揭示福奇资助武毒所的海量证据](/content/gnews/30/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国法院冻结拜登对于美国公司的疫苗行政令](/content/gnews/31/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [大直播7·24——六中全会的核心消息](/content/gnews/32/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [加拿大生活美谈 2021-11-04第二十八期](/content/gnews/33/README.md)
+ ` canadalifetalk`
+
+### [【玫瑰看新闻】 【回魂时刻】- 194期 疫苗受害者专题新闻10#](/content/gnews/34/README.md)
+ ` 新西兰新联邦新闻摘要`
+
+### [继美团、拼多多之后，红杉中国沈南鹏抛售小米](/content/gnews/35/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2021/11/09 墙内世界](/content/gnews/36/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国中期选举的参议员候选人与中共关系](/content/gnews/37/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [随着以太币和比特币的增值，加密货币市场的总市值突破3万亿美元](/content/gnews/38/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文贵爆料 10/11: 每日可提现10万，喜币再展锋芒](/content/gnews/38/README.md)
+### [文贵爆料 10/11: 每日可提现10万，喜币再展锋芒](/content/gnews/39/README.md)
  ` 秘密翻译组-原创组`
 
-### [文贵爆料11.10.2021 六中全会内部统计报告11个第一揭示中共正加速溃烂](/content/gnews/39/README.md)
+### [文贵爆料11.10.2021 六中全会内部统计报告11个第一揭示中共正加速溃烂](/content/gnews/40/README.md)
  ` 秘密翻译组-原创组`
 
-### [2021年11月10日郭先生直播小飞象大雨围城速记](/content/gnews/40/README.md)
+### [2021年11月10日郭先生直播小飞象大雨围城速记](/content/gnews/41/README.md)
  ` Mr. Miles Guo's News Briefing`
-
-### [满足三个条件，才能发挥喜联储真正价值](/content/gnews/41/README.md)
- ` GTV新闻访谈`
 
 ### [六中全会向领导报告中共国获得的11个第一](/content/gnews/42/README.md)
  ` 首尔天池农场`

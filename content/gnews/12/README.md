@@ -2,26 +2,36 @@
 ---
 
 
-## 秘翻在线 :美国悄悄涨价的牛奶暗示通膨海啸到来
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1654571/)
+## 澳最大超市：不会对员工执行强制疫苗接种
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1654637/)
 
-撰稿：William
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Coles-restrict-online-shopping.jpg)图片来源：So Perth
+**翻译：**小鱼儿
+**编辑：**翼族
 
-校对：牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/11/圖片1.jpg.png)
-图片来源：newsnationusa
+科尔斯（Coles）公司是澳大利亚最大的连锁超市之一。近日科尔斯公司称，不会强制要求所有的工人接种中共病毒（COVID-19）疫苗，而是会依据一些州的卫生指令。
 
-根据《零对冲》(Zero Hedge) 的报导,自 2018 年 7 月以来,一加仑牛奶的零售价上涨了 26%，来到 3.59 美元。对于没有资产且陷入租房困境的工作穷人来说，食品的涨价意味着他们的薪水变薄了。
+科尔斯公司领导周三表示，他们鼓励员工接种疫苗，但不会强制执行一项全面的规定。
 
-几个因素在推动牛奶价格上涨。首先，奶牛数量已降至十年来的最低水平，直接影响牛奶的产量。外国乳制品生产商，包括欧盟、纽西兰和澳大利亚的主要乳制品生产商，产量也在下降。最重要的原因是，由于商品价格飙升，饲养奶牛和经营奶牛场的成本变得越来越昂贵，牛奶价格将持续飙涨到 2022 年。
+目前北领地、维多利亚州和西澳大利亚州已经要求一些“重要岗位”的工人强制接种疫苗。新南威尔士州在一些地区也有这样的要求。
 
-不仅仅是牛奶和乳制品在上涨，几乎所有杂货店的物品都在上涨。例如，无骨肉片在去年上涨了 28%，食物价格上涨主要是因为食物成本上涨、劳动力短缺、航运拥堵和运输成本增加的连锁反应。
+科尔斯首席执行官史蒂芬·凯恩说：“在新南威尔士州和澳大利亚首都地区，科尔斯公司和其它主要零售商都将疫苗接种作为在商店、配送中心或支持中心工作的一项要求，除非该员工拥有有效的医疗豁免。”
 
-通货膨胀使得数以千万计的美国人必须将更多的薪水用于食品、能源和住房，引起美国人强烈的不满。最近共和党在美国中期选举拿下弗吉尼亚州，就是表达民意的愤怒及不满。虽然美联储说通胀是“暂时的”，然而从牛奶及一长串通膨的物品清单中，人们逐渐明白，这是科技巨头、共产党及暗黑势力利用中共病毒及疫苗经济，导致大量失业、物价上涨。
+目前在新南威尔士州和维多利亚州，科尔斯已有超过70%的员工完全接种了疫苗，约94%的员工至少接受了第一针。
 
-生活的恐惧如影随形，”美好又便宜的旧时代”一去不复返，罪魁祸首就是这群邪恶肮脏的魔鬼，必须对它们绳之以法，世界才能重回光明。
+凯恩说：“我们与卫生部门携手合作，采用了他们建议的安全措施，使我们能够保证我们12万多名团队成员和数百万客户的安全。”
 
-新闻来源：[Got Milk? Cow-Juice Prices Are Soaring Amid Higher Feed Costs, Smaller Herds](http://Got%20Milk?%20Cow-Juice%20Prices%20Are%20Soaring%20Amid%20Higher%20Feed%20Costs,%20Smaller%20Herds)
+**原文链接：**[Coles won’t enforce vaccine mandate for all staff, will instead follow state-by-state orders](https://7news.com.au/lifestyle/coles/coles-wont-enforce-vaccine-mandate-for-all-staff-will-instead-follow-state-by-state-orders-c-4500860)
+
+*发布：翼族*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/Nz26pG64XF)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
