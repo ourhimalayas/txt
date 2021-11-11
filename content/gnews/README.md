@@ -15,113 +15,113 @@
 
 ---
 
-### [中共提倡猪式生活抗击疫情](/content/gnews/1/README.md)
+### [19岁女孩诉说其接种中共病毒疫苗后出现诸多不良反应](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共当局用运牛车转运被隔离人员](/content/gnews/2/README.md)
+### [澳大利亚护士揭示医院满是注射疫苗产生不良反应的患者](/content/gnews/2/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [欧洲议会拟参照澳洲制定法律反制中共干预](/content/gnews/3/README.md)
+### [中共发布“假擀面杖”数据：10月社会融资和实体经济贷款均同比增长超1000亿元](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [道理和行动](/content/gnews/4/README.md)
+ ` 银河勇气之星`
+
+### [研究显示病毒刺突等蛋白可以进入细胞核并削弱细胞增殖](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美国务卿布林肯重申对台保护承诺](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共提倡猪式生活抗击疫情](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共当局用运牛车转运被隔离人员](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [欧洲议会拟参照澳洲制定法律反制中共干预](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登政府疫苗强制令迫使8400多万私营部门雇员接种疫苗](/content/gnews/4/README.md)
+### [推广新冠疫苗后，越来越多运动员患上心脏疾病、甚至失去生命](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/10/2021 文贵直播：无良药企为逃避监管而强推的口服抗中共病毒药比疫苗更毒，会导致血液、神经、消化系统等一系列严重问题。战友们千万别碰！](/content/gnews/5/README.md)
+### [拜登政府疫苗强制令迫使8400多万私营部门雇员接种疫苗](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [11/10/2021 文贵直播：无良药企为逃避监管而强推的口服抗中共病毒药比疫苗更毒，会导致血液、神经、消化系统等一系列严重问题。战友们千万别碰！](/content/gnews/12/README.md)
  ` 秘密翻译组-北美组`
 
-### [一些孩子打中共病毒疫苗后开始出现疫苗不良反应](/content/gnews/6/README.md)
+### [一些孩子打中共病毒疫苗后开始出现疫苗不良反应](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [拜习会前暗潮汹涌 台上合作台下竞争](/content/gnews/7/README.md)
+### [拜习会前暗潮汹涌 台上合作台下竞争](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [90万名5-11岁的儿童已经接种了第一针中共病毒疫苗](/content/gnews/8/README.md)
+### [90万名5-11岁的儿童已经接种了第一针中共病毒疫苗](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [11/10/2021 文贵直播：中共的数据显示，中国有7000万人确诊中共病毒和1370万“冠状病毒相关性死亡”案例](/content/gnews/9/README.md)
+### [11/10/2021 文贵直播：中共的数据显示，中国有7000万人确诊中共病毒和1370万“冠状病毒相关性死亡”案例](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [中国疫情：引发民怨的“时空伴随者”手段能否奏效？](/content/gnews/10/README.md)
+### [中国疫情：引发民怨的“时空伴随者”手段能否奏效？](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/10/2021 文贵直播：强制疫苗接种被叫停的根源在于美国人开始相信文贵关于疫苗灾难的爆料](/content/gnews/11/README.md)
+### [11/10/2021 文贵直播：强制疫苗接种被叫停的根源在于美国人开始相信文贵关于疫苗灾难的爆料](/content/gnews/18/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共十九届六中全会内部透露6000亿美元债务违约不可避免](/content/gnews/12/README.md)
+### [中共十九届六中全会内部透露6000亿美元债务违约不可避免](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/10/2021 文贵直播：中共的六中全会变成了内斗](/content/gnews/13/README.md)
+### [11/10/2021 文贵直播：中共的六中全会变成了内斗](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共为粉饰六中会消减雾霾从内蒙、西北一路欺天造雪](/content/gnews/14/README.md)
+### [中共为粉饰六中会消减雾霾从内蒙、西北一路欺天造雪](/content/gnews/21/README.md)
  ` NewFOC`
 
-### [DC大中华时事：若中共武力攻击台湾，美国及盟国将采取行动](/content/gnews/15/README.md)
+### [DC大中华时事：若中共武力攻击台湾，美国及盟国将采取行动](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [11/10/2021 文贵直播：文贵最早揭露出中共病毒及其疫苗的真相](/content/gnews/16/README.md)
+### [11/10/2021 文贵直播：文贵最早揭露出中共病毒及其疫苗的真相](/content/gnews/23/README.md)
  ` 秘密翻译组-北美组`
 
-### [世界开始注意到有多少年轻运动员在接种新冠病毒疫苗后垂死](/content/gnews/17/README.md)
+### [世界开始注意到有多少年轻运动员在接种新冠病毒疫苗后垂死](/content/gnews/24/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [嗟来之食的公屋](/content/gnews/18/README.md)
+### [嗟来之食的公屋](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大国殇日，对国民实行暴政的政府在纪念那些为自由而牺牲的老兵](/content/gnews/19/README.md)
+### [加拿大国殇日，对国民实行暴政的政府在纪念那些为自由而牺牲的老兵](/content/gnews/26/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [沈阳房产局放风，解除限购限售](/content/gnews/20/README.md)
+### [沈阳房产局放风，解除限购限售](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共外交部吹嘘全球100多个国家要和中共结为战略伙伴](/content/gnews/21/README.md)
+### [中共外交部吹嘘全球100多个国家要和中共结为战略伙伴](/content/gnews/28/README.md)
  ` NewFOC`
 
-### [秘翻在线：克鲁兹提出法案 对强制注射中共病毒疫苗的学校削减资助](/content/gnews/22/README.md)
+### [秘翻在线：克鲁兹提出法案 对强制注射中共病毒疫苗的学校削减资助](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [全球最大工会组织谴责中共践踏人权 反对北京主办冬奥会](/content/gnews/23/README.md)
+### [全球最大工会组织谴责中共践踏人权 反对北京主办冬奥会](/content/gnews/30/README.md)
  ` 日本东京方舟农场`
 
-### [中共病毒及其疫苗全球超限战中的典型案例（二十）](/content/gnews/24/README.md)
+### [中共病毒及其疫苗全球超限战中的典型案例（二十）](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
 
-### [中共渗透台湾大学遭台湾教育部驱离](/content/gnews/25/README.md)
+### [中共渗透台湾大学遭台湾教育部驱离](/content/gnews/32/README.md)
  ` 日本东京方舟农场`
 
-### [英国殡仪馆总监揭露疫苗导致年轻人和新生儿大面积死亡](/content/gnews/26/README.md)
+### [英国殡仪馆总监揭露疫苗导致年轻人和新生儿大面积死亡](/content/gnews/33/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [雾霾与中共，孰毒？](/content/gnews/27/README.md)
+### [雾霾与中共，孰毒？](/content/gnews/34/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共病毒及其疫苗全球超限战中的典型案例（十九）](/content/gnews/28/README.md)
- ` 纽约香草山MOS01`
-
-### [拜登宣布继续禁止美国人投资中共军民融合企业](/content/gnews/29/README.md)
- ` 日本东京方舟农场`
-
-### [中共病毒疫苗接种率越高越危险](/content/gnews/30/README.md)
+### [中共病毒疫苗接种率越高越危险](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [康复的联邦员工对福奇提起集体诉讼](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [秘翻在线：习近平APEC放录制演讲，望巩固亚太“朋友圈”](/content/gnews/32/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [台湾海军陆战队员赴关岛联训](/content/gnews/33/README.md)
+### [台湾海军陆战队员赴关岛联训](/content/gnews/36/README.md)
  ` 日本东京方舟农场`
-
-### [秘翻在线：喜币KO中共数字人民币](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [美大屠杀博物馆发布报告 再次确认中共在新疆犯下反人类罪](/content/gnews/35/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [希拉里前财务总监成为中共国商会的说客](/content/gnews/36/README.md)
- ` wenwu`
 
 ### [墙内要闻汇编 11月11日](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

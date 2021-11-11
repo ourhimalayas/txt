@@ -2,10 +2,10 @@
 ---
 
 
-## 中共当局用运牛车转运被隔离人员
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1655896/)
+## 澳大利亚护士揭示医院满是注射疫苗产生不良反应的患者
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1655952/)
 
-11/09/2021 中共当局用运牛车转运被隔离人员。
+11/08/2021 澳大利亚护士揭示医院里满是因注射疫苗产生不良反应的患者。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
