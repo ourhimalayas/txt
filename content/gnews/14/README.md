@@ -2,29 +2,22 @@
 ---
 
 
-## DMSA将对恒大提起破产程序
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656178/)
+## 有声|超1.1万名员工拒绝疫苗，申请疫苗豁免，波音公司陷入两难
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1656380/)
 
-作者：纽约香草山教育部 – Irene木木
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月10日，德国柏林消息称，中共恒大集团今天再次拖欠国际投资者的利息支付，对此，持有恒大集团债券的德国市场筛选机构DMSA正准备对恒大集团提起破产程序，并呼吁所有债券投资者加入。
+配音：香草山香港部 – 文凯琳
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+近日，在波音公司，超过1.1万名员工以宗教或医疗为由申请疫苗豁免。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-8.jpeg)
+作为联邦承包商，为了避免政府订单流失和工厂劳动力短缺，波音公司在上周五将宗教或医疗理由申请豁免的最后期限推迟至1月4日。内部电子邮件显示，获得豁免批准的员工需要戴口罩、保持身体距离和频繁的COVID-19检测，未获批准的员工在截止日前会受到最终警告。
 
-数据显示，中共恒大集团早在今年9月就拖欠了两笔债券的利息，其30天的宽限期已于10月结束。作为债权人，DMSA表示，至今仍未收到任何来自恒大集团的利息付款。据了解，恒大最晚要在11月10日前支付三笔债券的利息，共计约1.4亿美元。DMSA解释，恒大的债务均包含交叉违约条款，即当其所涉的任一债券出现违约时，恒大的其余所有未偿还债券都会被一同视为“违约”状态。
+据内部人士透露，超过1.1万名员工试图合理拒绝接种疫苗。此人数大大超出公司管理层的预估，让波音公司陷入了两难境地。
 
-此前，DMSA曾在一份报告中指出，世界上负债最多的企业——中共恒大集团必将面临债务违约的境况，而恒大的破产可能会导致“大重置”，即全球金融体系的最终崩溃。美联储也于两天前证实了这一点。
+文字版原文：[超1.1万名员工拒绝疫苗，申请疫苗豁免，波音公司陷入两难](https://gnews.org/zh-hans/1651580/)
 
-参考链接：
-1）[https://gettr.com/post/pgmdtn9c19](https://gettr.com/post/pgmdtn9c19)
-2）[Evergrande officially defaulted – DMSA is preparing bankruptcy proceedings against Evergrande Group](https://apnews.com/press-release/pr-newswire/business-china-evergrande-group-china-36dc3f16fe95c154a768d071345cdb77)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
-
-总编：小鹿妞妞
-编辑：小鹿妞妞
-校正/发稿：谐趣园
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

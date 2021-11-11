@@ -2,36 +2,17 @@
 ---
 
 
-## 全球最大工会明确反对中共举办2022冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656146/)
+## 推特正式组建加密技术团队，聚焦加密货币相关领域
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1656373/)
 
-作者：澳喜农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月9日，全球最大的跨国工会组织——国际工会联合会声明，将明确反对中共主办2022年冬季奥林匹克运动会。
+推特近日已经正式组建一支全新的加密技术团队，Interchain基金会及Mina基金会委员TessRinearson已经加盟推特，领导这支新组建的团队。TessRinearson发推表示，这支新团队将「聚焦密码学、区块链和其他去中心化的技术，包括但不止于加密货币方面」。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-4.jpeg)
+财经G评：郭先生在GETTR未上线时就反复强调了未来GETTRPay（HimalayaPay）的金融属性、优势和发展愿景。推特现在宣布正式组建加密技术团队，聚焦加密货币相关领域，凸显出GETTR的成立和未来愿景让推特真正感到了恐惧！如果GETTR没有潜力和实力，推特也不必如此。GETTR将会是未来社交媒体的引领者。
+![img](https://media.gettr.com/group24/getter/2021/11/11/08/29/2f8bbafc-d441-50ab-a35b-20779af49e2f/852094fa44b6d027d1c9e359c8ffa941_500x0.jpg)
+参考链接 [https://www.theverge.com/2021/11/10/2277…](https://www.theverge.com/2021/11/10/22774501/twitter-crypto-dedicated-team-dorsey-square-decentralization)
 
-同时，该组织批评国际奥委会——奥委会对中共在新疆和香港等地区进行的种族灭绝和反人类罪行视而不见。
+**（文章内容仅代表新西兰-财经G乐部节目观点）**
 
-相关报道指出，国际工会联合会已将一份报告递交给国际奥委会主席巴赫，当中列举了中共对人权的一系列侵害行为，包括强迫劳动、监禁香港的工会成员和民主捍卫者、恐吓同性恋群体，还有以所谓的“反分裂”和“反恐”为由，镇压少数民族和宗教群体。
-
-国际工会联合会秘书长莎兰表示，生活在民主国家的国际奥委会官员和其他人员应当明白，不能简单地将中共看成是一个国家，这是不可接受的。
-
-参考链接：[北京获“镇压金牌”，全球最大工会批IOC对中共践踏人权无动于衷](https://www.voachinese.com/a/Beijing-olympics-get-gold-for-repression-in-labor-report-20211109/6305997.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
-
-总编：Irene木木
-编辑：文特
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

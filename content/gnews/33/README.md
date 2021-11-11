@@ -2,24 +2,45 @@
 ---
 
 
-## 美国务卿布林肯重申对台保护承诺
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1655920/)
+## 墙内青年用“躺平”不成家做无声抗争
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656081/)
 
-撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-24.jpg)
-美国国务卿布林肯近日表示美国有确保台湾有能力自卫的承诺，并称有很多国家将单方面动用武力破坏现状视为对和平与安全的重大威胁。
+作者：澳喜农场 – 在远方
 
-对此，中共外交部发言人汪文斌11月11日在例行记者会上继续口炮称，任何挑战一个中国原则、抗拒中国统一大势的行径都将被坚决挫败。任何支持“台独”分裂、违背历史潮流的企图都将以失败告终。
 
-美国国务卿布林肯重申对台湾的承诺，对台湾的安全上了一个保险，中共国的口炮，最终停留在嘴上。
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-[汪文斌：抗拒中国统一大势的行径将被坚决挫败](http://world.people.com.cn/n1/2021/1111/c1002-32280044.html)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-76.jpg)
+
+据一些中文媒体报道，自2013年起，全国结婚率逐年下降，今年第三季度中共国结婚人数首创历史新低，只有172万对。而经济越发达的地区，结婚人数越少。多位中共国学者称，该数字反应了年轻一代，对近来中共国家政策的不买账与不信任，为免承受沉重的组建家庭成本，宁愿选择继续“躺平”。
+
+有人权观察成员指出，不少年轻人对中共国体制深感失望，民怨累积，所以“躺平”主义迅速成为年轻人的首要抗争手段，即“不买房、不买车、不结婚、不生娃、不消费”。因为中共的任何政策，都不是为了老百姓的利益，而是为了维护共产党的统治来指定的。如计划生育政策，百姓能生时不让生。现在感觉人口不够又催生，无奈很多希望生育的人生育期已过。当老百姓已经认清自己作为韭菜的事实后，很多都会选择躺平来抗争。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-25.jpg)
+参考链接：
+[大陆青年选择躺平不成家 第三季度结婚人数创历史新低](https://www.rfa.org/mandarin/yataibaodao/huanjing/gl-11102021064235.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
 
 
  

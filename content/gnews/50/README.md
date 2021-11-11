@@ -2,48 +2,28 @@
 ---
 
 
-## 不仅仅是中共国的百姓要吃草，美国百姓也面临巨大的物价飞涨
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1654903/)
+## 台积电日本设厂，或为躲避台海战火
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1655299/)
 
-作者：香草山金融部 – 闲聊钱币
+#### 撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/20211109_30_1044765_L.jpg)[图片来源](https://www3.nhk.or.jp/nhkworld/zh/news/332068/)
+世界最大的半导体代工企业台湾积体电路制造股份有限公司（TSMC），即“台积电”，于11月9日正式宣布将与索尼集团在日本熊本县共同出资设立子公司，创建新的半导体工厂。
 
+据公布，台积电将在熊本县设立一家子公司，从2022年起开始建半导体工厂，争取在2024年年底前投入生产。索尼集团将对这家新公司进行占比不足20%的投资。据悉，工厂最初的设备投资额约为70亿美元，约合8000亿日元，将为1500名尖端技术人才创造就业岗位。
 
+本次将是台积电首次在日本建厂，据称，“其前提是接受日本政府提供的强力支援”。台积电首席执行官（CEO）魏哲家表示，十分高兴能在日本建新厂，吸引更多的日本人才加入进来。据预测，电动汽车、机器人等各领域对半导体的需求将不断增大，但从全球范围来看，半导体短缺的情况一直没有改观，美国和欧洲等均在各自国家或区域内加大半导体的生产力度。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
+在此背景下，拥有世界顶级技术的半导体生产巨头决定在日本建厂，或将提高日本国内的生产能力。
 
+近期台海局势日益紧张，中共对台侵犯已箭在弦上，如果台湾收到军事攻击，台积电必然会遭受严重打击，对于其在全球的众多客户来说，台积电此时宣布在日本设厂也算是给全球芯片供应链加了一道保险装置。
 
+消息来源:
 
-据 Kitco News Bites, 10月份美国消费者价格指数升至6.2%–这是近30年的最高值。美联储试图说服人们通胀只是暂时性的，但市场已经不再相信这些敷衍之词。
+[台积电决定在日本熊本县建半导体工厂](https://www3.nhk.or.jp/nhkworld/zh/news/332068/)
 
-作为对通胀数据的回应，周三，黄金跳涨近40美元。12月Comex期货最后交易价格为1,867.50美元，上涨2%。另一方面，随着风险厌恶情绪的蔓延，股票也出现下滑。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-7.jpg)
-能源、住房和食品，这些老百性日常必不可少的商品的上涨构成了10月份物价的主要驱动力。汽油价格飙升6.1%，食品比一年前上涨了5.3%，燃油的涨幅最大，比上个月增长了12.3%，电费上涨了1.8%。住房，这个不被记入通胀指数的商品比上年增长20%。
-
-美国财政部长珍妮特-耶伦(Janet Yellen)周二试图安抚市场，称通胀不会持续。耶伦还说，如果需要，美联储也随时准备采取行动，以防止1970年代式的通货膨胀。
-
-然而，经济学家们现在不排除通胀率在短期内上升到年度7%的可能性。
-
-如果无节制的印钞可以解决一切经济问题，那么一次又一次的债务上限危机又从何而来呢？老百姓的钱袋子最是市场的晴雨表。
-
-（本文仅代表作者观点）
-
-参考来源：[不仅仅是中共国的百姓要吃草，美国百姓也面临巨大的物价飞涨](https://www.kitco.com/news/2021-11-10/Gold-price-jumps-nearly-40-as-U-S-inflation-rate-highest-in-30-years-Yellen-says-Fed-would-prevent-the-1970s-scenario.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

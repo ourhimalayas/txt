@@ -2,31 +2,28 @@
 ---
 
 
-## 有声|新西兰爆发和平示威 抗议疫苗强制令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1656260/)
+## 香港市民因鼓励“空白选票”遭当局逮捕
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1656450/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-11月9日，数千人在新西兰举行和平示威游行，游行者在惠灵顿市中心议会外聚集，抗议政府的疫苗强制令和封锁措施，被称为蜂巢的议会大厦被迫关闭。
+采编：风云小哥   编译撰稿：文明(添草灭共)
 
-许多人举着写有“自由”和“新西兰人不是实验室的老鼠”标语的牌子，高喊口号，抨击媒体在说谎，要求政府收回强制接种疫苗令并取消限制。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/b-3-edited.jpg)图片来源：FHK
 
-目前，新西兰仍然是世界上COVID-19病例最少的国家之一，迄今为止已报告的病例不到8000例，死亡32人，其完全疫苗接种率已达到其合格人口的近80%。
 
-尽管如此，新西兰总理阿德恩上个月仍然表示，新西兰将要求教师、卫生及残疾部门的工作人员全面接种COVID-19疫苗，此举招致了广泛的批评。阿德恩面临着越来越大的政治压力和公众抗议。
+据【香港自由新闻】11月10日报道，三名香港人日前因在其网络社交媒体上鼓励选民投“空白票”而遭【廉政公署】首次以“涉嫌煽动他人不投票或投无效票”的罪名被捕。 
 
-文字版原文：[新西兰爆发和平示威 抗议疫苗强制令](https://gnews.org/zh-hans/1651832/)
+报道称，尽管所有涉事者现均已获准保释，但根据香港政府最新法规，该项“罪行”将面临最高三年监禁和最高20万港元罚款的惩罚。 
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+此前，受中共控制的香港当局已对该地区的选举制度实施了全面变更，只有那些被认为是 “坚定的爱党者”才被允许参与政治，而且任何竞选政府公职的人员都必须接受“国家安全风险”制度的审查。 
+
+目前，香港大部分曾经参政的团体都已解散，甚至其领导层已被当局逮捕或起诉。其中，最大的民主党在上月就宣布该党派将无人参加12月份的立法会选举。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://hongkongfp.com/2021/11/10/hong-kong-arrests-three-for-urging-voters-to-cast-blank-ballots/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

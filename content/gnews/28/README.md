@@ -2,48 +2,34 @@
 ---
 
 
-## 美国务院要求中共无条件释放公民记者张展
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1655998/)
+## 有声|文贵大直播的重大意义
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1656195/)
 
-作者：英国喜庄园 – I770775
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+郭文贵先生在11月7日的大直播中提到，当天的直播内容包含重要的信息，希望战友尽可能地多次观看。
+
+另外，郭先生还从三个方面阐述了大直播的意义所在：
+
+1. **传播真相**——美国被暂停的新冠疫苗强制令就是最好的例子，这是在郭先生的说服下由班农先生推动的，这也将改变美国和世界。
+2. **传授知识**——比如，郭先生在直播中通过与战友们的互动和答疑，让战友们理解喜币的意义和机制，以及喜币将给战友们带来的权利与财富。
+3. **传递情感**——郭先生在反复多次的长直播中和战友们以心交心，真心真爱。
 
 
+除此之外，郭先生再次嘱咐战友，希望更多的同胞抓住机会，尽快通过喜马拉雅交易所的KYC认证，以便买到价格低廉的喜币。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+文字版原文：[文贵大直播的重大意义](https://gnews.org/zh-hans/1650945/)
 
-
-
-当地时间11月8日，美国国务院发言人普莱斯在例行记者会上说，美方对张展健康状况不断恶化表达深切担忧，呼吁中共立即无条件释放她。
-
-张展是去年在武汉揭露当地疫情真相的中共国公民记者，被中共当局以“寻衅滋事”罪判处 4 年徒刑，限制人身自由。入狱后的张展一直绝食抗议，其健康情况备受外界关注。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-45.jpg)
-普莱斯说：美国政府深切关注中国公民记者张展日渐恶化的健康，据她的家人指，张展已接近死亡边缘。美国正连同其他外交盟友，不断地对这起肆意拘禁事件表达严重关切。我们重申，要求中共立即无条件释放张展，北京当局应尊重新闻自由，尊重人民自由表达的权利。
-
-参考链接：
-[张展健康状况堪忧 美国国务院要求无条件放人](https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/jm-11092021061403.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：童谣
-编辑：飞虹
-校对/发稿：为真不破20
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

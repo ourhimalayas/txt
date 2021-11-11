@@ -2,28 +2,33 @@
 ---
 
 
-## 国际工会联合会呼吁抵制北京冬奥会
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1656217/)
+## 有声| NewsMax公开反对拜登政府的疫苗强制令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1656431/)
 
-采编：风云小哥   编译撰稿：文明(添草灭共)
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月8日，NewsMax“唤醒美国”节目主持人罗布·芬纳蒂指出，拜登政府要求企业为员工接种新冠疫苗的规定是联邦权力的危险越权行为。为此，NewsMax坚决反对这项命令，并表示，没有人会被强制接种新冠疫苗，也不会有人遭遇被解雇的后果。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/b-2-edited.jpg)图片来源：GNEWS
+NewsMax称，联邦政府此前从未有过为全国范围的公民强制接种疫苗的先例。显然，此次新冠疫苗强制接种命令是健康管理和职业安全部门利用权威，越过了传统的健康安全规定，是滥用权力的行为。
 
+Newsmax还提到，上周五，美国第五巡回上诉法院下令暂停执行新冠疫苗强制令，该媒体正在监控此案和其他法律行动的发展。 Newsmax认为，虽然法官声明该强制命令存在严重的法定和宪法问题，但在此案随后的听证会上，需要越来越多的公众觉醒并响应这一判决。
 
-据加拿大自媒体《反叛新闻》11月9日报道，【国际工会联合会】当天发布公告，呼吁【国际奥委会】及其主要赞助商，应该就即将在中共国举办的2022年北京冬奥会表明其反对立场。
+评论人士提出，Newsmax是首家公开反对新冠疫苗强制令的媒体，而媒体明确的反对态度，对彻底取消新冠疫苗强制令将起到不容忽视的作用。
 
-该报告指出，中共国不仅实施强迫劳动，监禁工会成员和民主活动家，还以“反分裂和反恐怖”的名义镇压新疆少数民族和宗教群体。并就【国际奥委会】漠视在该国所发生的侵犯人权和种族灭绝罪进行了谴责。
+文字版原文：[NewsMax公开反对拜登政府的疫苗强制令](https://gnews.org/zh-hans/1651071/)
 
-对此，【工会联合会】秘书长敦促各国政府表明正确立场，捍卫本国运动员的安全。并希望各赞助商重新审视与北京冬奥会的利益关系，以及其应该履行的“保障基本人权”价值观。
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-尽管各国体育界对中共政府的恶行表现得相对冷漠，但仍有一些知名运动员站出来反对即将在北京举行的冬奥会。例如，美国NBA波士顿凯尔特人队的中锋球员坎特，最近就公开发表了谴责中共党魁习近平的言论，并要求该政权结束对香港人、西藏人和维吾尔人的迫害。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://www.rebelnews.com/international_trade_union_calls_on_olympic_committee_sponsors_to_hold_china_accountable)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
