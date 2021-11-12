@@ -2,23 +2,36 @@
 ---
 
 
-## 文贵大直播11.12.2021：不要等不到馒头熟就掀锅
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1658853/)
+## 欧洲议会拟制定法律反制中共政治干预
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1659023/)
 
-撰稿：回响
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-12-at-9.55.35-AM.png)图片来源：GTV & GETTR
-近日喜币一路攀升，但作为现在投资喜币的主人们，究竟应该如何看待和对待手中的财富？新中国联邦创始人郭文贵先生在11月12日大直播中，简约但语重心长的分享了他所亲身经历的真实人物和事例。
+作者：英国喜庄园 – I770775
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月11日，据盖特消息称，欧洲议会正考虑参照澳大利亚的《反渗透法》制定类似的法律，用以反制中共的一系列不透明政治游说手段。
 
-特斯拉是郭先生非常喜欢的美国企业；战友是郭先生最看重、胜过家人的群体；推特是几乎具有全球垄断地位的公司。郭先生一一例举其中的重要人物身上发生，正反两面的经验参照和惨痛教训。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2-5.jpeg)
 
-无论是引领人类走向太空生活的马斯克，还是曾经非常优秀的战友，在面对财富，面对投资的时候，一念之差，会超过天壤之别的巨大差距，从而完全是无法相提并论的人生。
+据了解，为了打击中共的政治干预和商业机密盗窃行为，澳大利亚与2018年订立了《外国影响力透明法》。该法也在打击外国干预方面领先全球。
 
-人生许多机会，无法从头再来，世间更无后悔药。郭先生用一句民间谚语送给喜币的主人们：不要等不到馒头熟就掀锅。
+至于欧洲，早在2017年爆料革命伊始，郭先生就曾尖锐地指出，多年来，欧洲一直是中共海外“蓝金黄”的重灾区，中共统战部等国家机构多次对欧盟各成员国的政治进行游说干预。
 
-【原文链接】https://gtv.org/broadcast/watch/618e6c5fe7e770379233c263
+近日，澳大利亚参议员示警欧盟称，中共对外实行政治干预的手段已变得更为精密，其造成的影响将更复杂，伤害也会更大。目前，欧盟和欧洲议会正高度重视这类事件，并将为此做出了一系列对抗中共且态度强硬的举措。
 
-校对发布：Shifter
+参考链接：[欧洲议会拟参照澳洲制定法律反制中共干预](https://gettr.com/post/pgnj7m1d51)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：文特
+编辑：Irene木木
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
