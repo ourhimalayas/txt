@@ -2,35 +2,33 @@
 ---
 
 
-## 有声|美国国立卫生研究院顶级科学家反对疫苗强制令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1657067/)
+## 澳总理反对取消未接种疫苗者的公费医疗
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1657154/)
 
-配音：香草山美食部 – 玫瑰园
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/180823134351-01-scott-morrison.jpg)图片来源：CNN
+**翻译：**月映万川
+**编辑：**翼族
 
-《华尔街日报》11月9日报道说，强制疫苗接种正在美国国立卫生研究院（NIH）内部引发更多辩论和争议。
+澳大利亚总理斯考特·莫里森近日表示，当未接种疫苗者感染新冠病毒后，联邦政府不会剥夺他们享有公费医疗的权利。
 
-美国国立卫生研究院将在12月1日举行关于“疫苗强制的伦理道德”圆桌直播会议。该研讨会是今年举行的四场伦理学辩论会之一。这些辩论会将向该院的所有2万名工作人员以及病人和公众开放。
+在周二的新闻发布会上，莫里森说：“我们的国家不会因为某些人的选择，而妖魔化这一特定人群。当然，我们希望所有人都接种疫苗，但我们不会使用这样极端的方法。”
 
-12月1日的伦理学辩论会是高级传染病研究人员——马修·梅莫利（Matthew Memoli）博士为反击日益高涨的强制措施而开设的。他在该机构工作了16年，最近刚荣获美国国立卫生研究院院长奖。
+澳总理的上述评论，针对的是新南威尔士州前州长鲍勃·卡尔推特的相关言论。鲍勃·卡尔在其推特里写到：“我们（澳大利亚）应该跟随新加坡的脚步，停止为未接种疫苗人士提供免费的新冠治疗和住院费用。你们忽视了病毒的严重性，那你们就要为你们的愚蠢付出代价。”
 
-梅莫利博士既反对强制疫苗接种令，自己也拒绝疫苗。他认为现在使用疫苗的方式是错误的，他强调，对严重疾病感染风险低的人进行一揽子进行疫苗接种，可能会阻碍整个人群从感染中获得更强大的免疫力。
+莫里森表示政府尊重个人在疫苗问题上的选择权利，莫里森说：“作为联邦政府，我们没有强制疫苗政策，我们也尊重个人选择。”
 
-这提醒人们：**当涉及到“科学”时，并没有一个共识**——更像是少数几个对立的观点，而所有这些观点都应该被仔细考虑和探讨。
+目前，澳大利亚在其16岁以上人口中，第一剂疫苗接种率在90%，而完全接种人口已经达到了82%。
 
-文字版原文：[美国国立卫生研究院顶级科学家反对疫苗强制令](https://gnews.org/zh-hans/1654193/)
+**原文链接：**[Scott Morrison rejects stripping Medicare benefits from unvaccinated COVID-19 patients](https://amp.sbs.com.au/eds/news/article/scott-morrison-rejects-stripping-medicare-benefits-from-unvaccinated-covid-19-patients/b49195b9-cf00-4509-a7fc-bc7f7633a207?amp=1)
 
-音频处理：喜山必胜Maverick
+*发布：翼族*
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

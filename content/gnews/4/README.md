@@ -2,33 +2,24 @@
 ---
 
 
-## 澳总理反对取消未接种疫苗者的公费医疗
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1657154/)
+## 佛罗里达州可能因疫苗接种任务退出OSHA的监督
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1657284/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/180823134351-01-scott-morrison.jpg)图片来源：CNN
-**翻译：**月映万川
-**编辑：**翼族
+翻译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-50.png)
+图片来源：网络截图
 
-澳大利亚总理斯考特·莫里森近日表示，当未接种疫苗者感染新冠病毒后，联邦政府不会剥夺他们享有公费医疗的权利。
+据零对冲11月11日，佛罗里达州正在酝酿几个选项，以抵制拜登政府和雇主的中共病毒疫苗的授权，包括可能退出联邦职业安全与健康管理局（OSHA）的监督。该机构执行总统的授权，强迫至少有100名雇员的企业接种疫苗或每周接受COVID-19测试。
 
-在周二的新闻发布会上，莫里森说：“我们的国家不会因为某些人的选择，而妖魔化这一特定人群。当然，我们希望所有人都接种疫苗，但我们不会使用这样极端的方法。”
+据Fox13 Tampa Bay报道，州众议院议长克里斯·斯普罗尔斯（Chris Sprowls）在讨论定于下周至11月19日举行的州议会特别会议的新闻发布会上说，如果劳工部和OSHA想要武器化，作为挟持整个佛罗里达州企业的的一种方式，那他们就会退出OSHA。他们将提交自己的监管当局，并与联邦政府说再见。
 
-澳总理的上述评论，针对的是新南威尔士州前州长鲍勃·卡尔推特的相关言论。鲍勃·卡尔在其推特里写到：“我们（澳大利亚）应该跟随新加坡的脚步，停止为未接种疫苗人士提供免费的新冠治疗和住院费用。你们忽视了病毒的严重性，那你们就要为你们的愚蠢付出代价。”
+在一份准备好的声明中，参议院主席威尔顿·辛普森（Wilton Simpson）在谈到拜登的规定时表示说他对看到这样一个违反宪法的对OSHA重要作用的嘲弄感到震惊。
 
-莫里森表示政府尊重个人在疫苗问题上的选择权利，莫里森说：“作为联邦政府，我们没有强制疫苗政策，我们也尊重个人选择。”
+根据援引共和党人特拉维斯·赫森（Travis Hutson）和阿尔迪安·兹卡（ Ardian Zika）议员的提案的报告称，即使佛罗里达州的立法者能够同意抛弃OSHA，这一过程可能需要几年时间。这当然不会让佛罗里达州的企业有足够的时间来避免OSHA的罚款，罚款的最后期限是1月4日，在这之后，故意违规者将被收取高达136,532美元的罚款。
 
-目前，澳大利亚在其16岁以上人口中，第一剂疫苗接种率在90%，而完全接种人口已经达到了82%。
+州立法者还将讨论防止政府雇员被迫接种疫苗的提案，要求企业允许疫苗豁免，并禁止佛罗里达州外科医生强迫公民接种疫苗。
 
-**原文链接：**[Scott Morrison rejects stripping Medicare benefits from unvaccinated COVID-19 patients](https://amp.sbs.com.au/eds/news/article/scott-morrison-rejects-stripping-medicare-benefits-from-unvaccinated-covid-19-patients/b49195b9-cf00-4509-a7fc-bc7f7633a207?amp=1)
-
-*发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Florida May Withdraw From OSHA Oversight Over Vax Mandate](https://www.zerohedge.com/covid-19/florida-may-withdraw-osha-oversight-over-vax-mandate)
 
  
 

@@ -2,27 +2,25 @@
 ---
 
 
-## DMSA将对恒大提起破产程序
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656178/)
+## 中共对维吾尔人的跨国镇压急剧扩大
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656201/)
 
-作者：纽约香草山教育部 – Irene木木
+作者：澳喜农场 – 在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月10日，德国柏林消息称，中共恒大集团今天再次拖欠国际投资者的利息支付，对此，持有恒大集团债券的德国市场筛选机构DMSA正准备对恒大集团提起破产程序，并呼吁所有债券投资者加入。
+11月11日，设立在华盛顿的维吾尔人项目和奥克苏斯中亚事务协会发布了最新的维吾尔联合报告，当中指出，自2002年以来，中共对国外的维吾尔人展开了前所未有的跨国镇压运动，而2017年后，这种迫害急剧扩大。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-8.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-9.jpeg)
 
-数据显示，中共恒大集团早在今年9月就拖欠了两笔债券的利息，其30天的宽限期已于10月结束。作为债权人，DMSA表示，至今仍未收到任何来自恒大集团的利息付款。据了解，恒大最晚要在11月10日前支付三笔债券的利息，共计约1.4亿美元。DMSA解释，恒大的债务均包含交叉违约条款，即当其所涉的任一债券出现违约时，恒大的其余所有未偿还债券都会被一同视为“违约”状态。
+据悉，该报告来自一个广泛的数据集，该数据集包含了 5530 份中共针对居住在自由民主国家的维吾尔侨民成员的跨国镇压实例。报告称，中共还通过黑客组织创建虚假的维吾尔语新闻网站和应用程序，并在其中嵌入恶意软件，随后用脸书、微软和其他科技平台，将这些恶意软件传播至维吾尔侨民的电子设备中。
 
-此前，DMSA曾在一份报告中指出，世界上负债最多的企业——中共恒大集团必将面临债务违约的境况，而恒大的破产可能会导致“大重置”，即全球金融体系的最终崩溃。美联储也于两天前证实了这一点。
+维吾尔人项目执行董事奥马尔-卡纳特说，中共对维吾尔人的跨国镇压规模惊人，从个人的引渡到日常的在线威胁，生活在海外的维吾尔人根本没有平安可言。
 
-参考链接：
-1）[https://gettr.com/post/pgmdtn9c19](https://gettr.com/post/pgmdtn9c19)
-2）[Evergrande officially defaulted – DMSA is preparing bankruptcy proceedings against Evergrande Group](https://apnews.com/press-release/pr-newswire/business-china-evergrande-group-china-36dc3f16fe95c154a768d071345cdb77)
+参考链接：[报告：北京对维吾尔人的跨国镇压自 2017 年以来急剧扩大](https://www.voachinese.com/a/report-beijing-s-transnational-repression-of-uyghurs-expanded-dramatically-since-2017/6308142.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：小鹿妞妞
-编辑：小鹿妞妞
+总编：Irene木木
+编辑：Irene木木
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

@@ -2,51 +2,24 @@
 ---
 
 
-## 高疫苗接种率的欧洲各国中共病毒病例激增
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1656750/)
+## 第三针：日本批准辉瑞疫苗，加快莫德纳疫苗审查
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1656964/)
 
-作者：纽约香草山农场 – 四季
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-70.png)[图片来源](https://news.yahoo.co.jp/articles/d0d8e349d71ec6b6fc4dfa0e11761f275b4beb88/images/000)
+日本ANN新闻11月11日报道，美国制药巨头Moderna已于11月10日向厚生劳动省申请批准第三针中共病毒疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+厚生劳动省计划在12月开始注射中共病毒疫苗，并在12月11日批准辉瑞公司的疫苗用于第三针接种，计划从明年3月在工作场所进行莫德纳疫苗接种，并将加快其审查程序。
 
+郭文贵先生提到，美国德州巡回法庭对强制疫苗发出禁令，意味着中共病毒疫苗在美国将彻底结束，而目前，日本的政府、媒体依旧为第三针做宣传。
 
+信息来源：
 
+[モデルナも新型コロナワクチン“3回目接種”の承認を申請](https://news.yahoo.co.jp/articles/d0d8e349d71ec6b6fc4dfa0e11761f275b4beb88)
 
-
-据[零对冲](https://www.zerohedge.com/covid-19/despite-vaccine-passport-schemes-covid-cases-surging-across-europe)11月11日报道，尽管许多欧洲国家都实现了高疫苗接种率并施行了疫苗护照计划，但是欧洲各地在没有出现新的病毒变种的情况下，中共病毒病例再次激增。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1400-1.jpeg)图片来源：[Twitter](https://twitter.com/DrEliDavid/status/1457087947988213761?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1457087947988213761%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fcovid-19%2Fdespite-vaccine-passport-schemes-covid-cases-surging-across-europe)
-
-尽管德国、荷兰、奥地利、瑞士、意大利和法国等大多数国家大量使用疫苗护照，且疫苗覆盖率很高，但是这个秋季，中共病毒的感染仍然急速增长，其病例在德国首次突破5万大关，在奥地利、荷兰、丹麦、德国、瑞士和挪威也都出现了高峰，同时，在法国、葡萄牙和意大利也初现端倪。
-
-然而，与其他欧洲国家相比，瑞典的中共病毒病例和死亡人数却很低。在瑞典，从未实行过硬性封锁，也没有疫苗护照计划或强制戴口罩，并宣布大流行病已经结束。
-
-威尔·琼斯认为，现在，“群体免疫”的存在本身是一种“危险的阴谋论”。也许上面的图表可以说明一些问题。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,50 +2,41 @@
 ---
 
 
-## 被美国大型代表团突访台湾激怒，中共国启动台海附近战备警巡
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1656849/)
+## 劳斯莱斯敦促澳大利亚与AUKUS发展民用小型核能
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1657063/)
 
-翻译: 波士顿五月花  jiasen
+#### 编译报道：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture2-scaled.jpg)China Initiates ‘Combat Readiness Patrol’ Near Taiwan, Outraged Over “Surprise” Large US Delegation Visit
-https://www.zerohedge.com/
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-216.png)图片来源：ENR
 
-中共官媒周二宣布，人民解放军（PLA）东部战区司令部**已启动在台湾海峡附近的战备警巡，以回应其所谓的美国分裂势力活动。**
 
-美国国会代表团最近令中共出人意料的访问台北，中共国防部谴责此举粗暴干涉中共国内政。显然，近年来访台人数最多的一次美方代表团降落台北国际机场激怒了中共国领导人。
+劳斯莱斯表示，AUKUS安全协议为澳大利亚采用（民用）小型模块化核反应堆铺平了道路。
 
-《南华早报》报道了周二由美国事实上的驻台大使馆（美国在台协会AIT）安排的对民主台湾的访问，报道称“据台湾新闻报道，美方代表团登上了美国海军 C-40A 飞机从马尼拉出发，于下午 6 时许抵达台北松山机场。”
+本周，劳斯莱斯宣布已筹集了近5亿英镑（折合9.15亿美元）政府和私募股权资金，用于建造其设计的小型模块化反应堆。目前，世界各国都不没有这样的反应堆。
 
-虽然美国国会代表团成员的名字没有被立即披露，但台湾媒体报道称，该代表团包括四名参议员、两名众议员以及七名助手。
+劳斯莱斯公司相信，如果获得监管部门的批准，它可以在2030年开始建造第一座反应堆。它于周三向监管机构提交了文件。
 
-台湾中央社援引台湾总统府发言人张惇涵所说，此次访问涉及美国参议员和众议员，是基于台美互信及协调的结果。”
+一个小型模块化反应堆大约有两个足球场那么大，大约是英国现有核电站大小的十分之一。劳斯莱斯公司声称，它将产生与150台陆上风力涡轮机产生的相同数量的电力，足以供应100万个家庭。
 
-路透社详细介绍了中共国的迅速反应：
+该公司小型模块化反应堆部门的首席执行官托德·萨姆森在接受澳洲媒体采访时表示，该技术与用于为英国核潜艇舰队提供动力的技术相同——澳大利亚可以根据AUKUS协议获得该技术。
 
-*在中国国防部谴责美国国会代表团乘军机抵达台湾后，中共军方于周二表示，**解放军在台湾海峡方向进行了战备警巡。***
+“有了AUKUS，澳大利亚现在有了一个新的机会”，萨姆森说：“所以你现在可以选择，我不知道公众和澳洲政府是否会接受核能作为他们实现零净（排放）目标的一部分。”
 
-*中共军方发言人在一份声明中说，这次警巡是针对**“有关国家”在台湾问题上的“**严重错误”言行**和在台湾的台独势力活动。*
+澳大利亚矿产委员会支持发展民用核能。在9月份该委员会表示，澳洲发展核潜艇舰队将为发展（民用）核电能力提供机会。
 
-中共国防部进一步回应：“我们对此坚决反对并强烈谴责。我们正告美方立即停止挑衅行径和一切导致台海局势紧张升级的破坏性行动，不要向台独势力发出错误信号。**我们警告民进党当局，不要误判形势、铤而走险； 否则，只会把台湾带入深重的灾难。”**
+矿产委员会首席执行官塔尼亚·康斯特布尔说：“我们不仅将发展支持这种基于海军技术的技能和基础设施，而且还将我们与不断增长的全球核电行业及其供应链联系起来。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture3.jpg)China Initiates ‘Combat Readiness Patrol’ Near Taiwan, Outraged Over “Surprise” Large US Delegation Visit
-https://www.zerohedge.com/
+但总理斯科特·莫里森表示，澳大利亚不会建造新的核电站，并将继续履行所有核不扩散义务。在2019年，一个由执政党政府组成的议会委员会建议在未来考虑为澳大利亚建造小型模块化反应堆，而工党拒绝了任何形式的核电。
 
-此外，据中共官媒《环球时报》报道，解放军在台湾海峡附近的警巡已处于**“高度戒备”**状态：
+原文链接：[Nuclear energy: Rolls-Royce urges Australia to go with small modular reactors to meet net zero target (theage.com.au)](https://www.theage.com.au/world/europe/go-mini-nuclear-with-aukus-rolls-royce-urges-australia-20211109-p597jl.html?utm_medium=Social&amp;utm_source=Twitter#Echobox=1636658664-1)
 
-*石说，指挥部将保持**高度戒备，采取必要措施，对危害中国核心利益的举动、威胁台海和平稳定的挑衅行为予以反击，**坚决维护国家主权和领土完整。*
+编辑/发布：文泓
 
-中共国防部对美国部分议员访问台湾岛提出坚决反对和强烈谴责，敦促美国停止加剧台湾海峡两岸的紧张局势的挑衅行为。
-
-鉴于美国代表团中包含大量的国会领导人和参议员，以及尚未披露的行程细节，此代表团有望成为近期访问台湾的规模最大的美国政府高层代表团。我们很可能会再次目睹中共国的空中编队加强行动，突破台湾的防空识别区。最近飞机数量的大大增加，正是向支持台独的势力及其外部支持者发出的进一步信号。
-
-新闻来源: [China Initiates ‘Combat Readiness Patrol’ Near Taiwan, Outraged Over “Surprise” Large US Delegation Visit](https://www.zerohedge.com/geopolitical/chinas-pla-initiates-combat-readiness-patrol-near-taiwan-angered-over-surprise-us)
-
-* * *
-
-*素材来源：**jiasen*
-
-*编辑**& 发布：jamie(文胤)*
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

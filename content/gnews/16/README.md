@@ -2,27 +2,21 @@
 ---
 
 
-## 有声|法国医药机构研究证实，中共病毒疫苗可引发心肌炎和心包炎
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1657010/)
+## 加拿大魁北克律师因疫苗护照控告政府败诉
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1657089/)
 
-配音：香草山香港部 – 文凯琳
+编译撰稿：硫酸羟氯喹64
 
-这项研究，涉及12至50岁年龄段住院患者病例。研究结果显示，在相同情况下，接种疫苗人群相比不接种疫苗人群，发生心肌炎和心包炎的风险高很多，并且在30岁以下男性中比较明显，尤其是在注射第二剂莫德纳疫苗之后。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-21-edited-1.jpg)图片来源：TH
 
-此前，各国都已经有相关药品监督机构的报告显示，辉瑞疫苗尤其是莫德纳疫苗在接种后有导致心肌炎或心包炎的可能性，法国的这项最新研究再次确认了这一结果。
 
-原文链接：[法国医药机构研究证实，中共病毒疫苗可引发心肌炎和心包炎](https://discord.com/channels/@me/768852062531485737/908367082645778452)
+据加拿大法语媒体《魁北克新闻》11月10日报道，来自魁北克省博斯地区的一名餐馆业主和其代理律师，在因“反对政府强推的疫苗护照”而与当局对簿公堂之后最终败诉。
 
-音频处理：喜山必胜Maverick
+该报道称，最近几个月来，餐馆主梅尔西女士勇敢地选择了在法庭上与魁北克政府的该项强制接种政策作抗争。梅尔西的代理律师称当局此政策是一项侵犯公民基本自由权利的非法措施。并特别援引了《加拿大宪章》中对其代理人平等权、宗教自由、隐私权、行动自由和结社及和平集会自由的尊重和保护。
 
-发稿：Daxia
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+魁省高等法院法官在当天发布的裁决书中，最终以原告“因无疫苗护照而不能进入法令所规定有争议的场所，并非严重的或不可弥补的损害”为由，驳回了梅尔西及其律师的诉讼请求。同时，否定了原告认为“政府的该政策”将导致社会结构撕裂的观点。
+
+[原文链接：](https://www.journaldequebec.com/2021/11/10/passeport-vaccinal-un-avocat-et-restaurateur-de-la-beauce-echoue-devant-les-tribunaux)
 
  
 
