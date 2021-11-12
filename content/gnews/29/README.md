@@ -2,24 +2,34 @@
 ---
 
 
-## 封堵华为、中兴设备 拜登签署《安全设备法案》
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1658607/)
+## 格陵兰岛禁止中共开采铀矿
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1658732/)
 
-撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9-3.png)
-（图片来源于本文链接）
+作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月11日，据媒体消息称，格陵兰岛国会近日通过新法，禁止铀矿开采，并停止开发该岛南部的稀土矿藏。消息提及，这一法案对中共北极战略造成重大打击。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-41.jpg)
+据报道，中共为推广“一带一路”北极战略，长期支持由中资企业控股的公司在格陵兰岛开采稀土。为此，中共公司准备了高达1亿美元的投资继续运营格陵兰岛的矿业开采项目。
 
-美国总统拜周四（11月11日）签署了一项法案，进一步阻止华为和中兴通讯等被美国政府视为安全威胁的中共国公司获得美国监管机构颁发的新设备许可证。《安全设备法案》(Secure Equipment Act)是美国政府为打击中国电信和科技公司所做出的最新动作。该法案将正式要求联邦通信委员会(FCC)不可再审查或批准任何对国家安全构成风险的设备所提出的授权申请。
+目前，该项目在格陵兰岛引起了激烈争议。格陵兰人担心，继续开采该矿区会对自然环境和耕种土地造成辐射污染，同时会影响捕鱼、养羊及旅游业，更为重要的是，项目会使格陵兰岛的碳排量增加45%。
 
-美国参议院10月28日时一致表决通过了该法案。本月稍早时，众议院也已经以420比4的投票结果通过该法案。此举表明了美国国会的整个政治光谱，都对中共政府和中共国的科技巨头公司抱有强烈的不信任感。《安全设备法案》在参议院是由佛罗里达州共和党参议员卢比奥（Marco Rubio）和马萨诸塞州民主党参议员马基（Ed Markey）主导修法；在众议院则是由路易斯安那州共和党众议员史卡利斯（Steve Scalise）和加州民主党众议员艾许（Anna Eshoo）领导。史卡利斯上周曾表示，美国国内仍有很多华为和中兴的设备，“许多美国人的数据都还在这些网络上面运行”。对于该法案通过一事，FCC主席卡尔(Brendan Carr)则说，自2018年以来，FCC已经批准了3000多份华为的申请。卡尔说，这项法律“将有助于确保华为和中兴等公司的不安全设备不会再被安装进入美国的通信网络”。今年3月，FCC根据一条旨在保护美国通信网络的2019年法律，认定5家中共国公司对国家安全构成威胁。这5间公司分别为华为、中兴、海能达、海康威视和大华股份。6月时，FCC经投票表决后，一致认同要禁止这些中共国公司向美国电信网络提供设备。此外，FCC也在去年12月通过规定，要求拥有中兴或华为设备的运营商“拆掉并更换”这些设备。他们在7月时一致表决通过了一项19亿美元的计划，要补偿美国乡村电信运营商更换华为和中兴设备的费用。FCC去年9月时估计，将华为和中兴的设备从网络中移除和替换，将耗费18.37亿美元。
+因此，组成格陵兰岛联合政府的因纽特人共同体党和纳雷拉克党都反对中共继续开发矿业项目，并表示，格陵兰人不是不想采矿，而是不想进行“肮脏的采矿”，即拒绝中共染指当地的稀土与铀矿项目。
 
-信息来源：
+参考链接：[格陵兰岛通过禁采铀矿新法 中企垄断稀土梦断](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-11112021092431.html)
 
-[封堵华为、中兴设备 拜登签署《安全设备法案》](https://www.dw.com/zh/%E5%B0%81%E5%A0%B5%E5%8D%8E%E4%B8%BA%E4%B8%AD%E5%85%B4%E8%AE%BE%E5%A4%87-%E6%8B%9C%E7%99%BB%E7%AD%BE%E7%BD%B2%E5%AE%89%E5%85%A8%E8%AE%BE%E5%A4%87%E6%B3%95%E6%A1%88/a-59799795)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-77.jpg)
+总编：文徬
+编辑：Irene木木
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
