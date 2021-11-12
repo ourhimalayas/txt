@@ -2,22 +2,30 @@
 ---
 
 
-## 文贵大直播11.12.2021：不要等不到馒头熟就掀锅
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1658853/)
+## GTV新闻访谈简报|2021年11月12日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1659073/)
 
-撰稿：回响
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-12-at-9.55.35-AM.png)图片来源：GTV & GETTR
-近日喜币一路攀升，但作为现在投资喜币的主人们，究竟应该如何看待和对待手中的财富？新中国联邦创始人郭文贵先生在11月12日大直播中，简约但语重心长的分享了他所亲身经历的真实人物和事例。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
 
-特斯拉是郭先生非常喜欢的美国企业；战友是郭先生最看重、胜过家人的群体；推特是几乎具有全球垄断地位的公司。郭先生一一例举其中的重要人物身上发生，正反两面的经验参照和惨痛教训。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-10.png)
+文章仅代表作者本人观点，与Gnews无关
 
-无论是引领人类走向太空生活的马斯克，还是曾经非常优秀的战友，在面对财富，面对投资的时候，一念之差，会超过天壤之别的巨大差距，从而完全是无法相提并论的人生。
+视频参看：2021.11.12早GTV新闻访谈
 
-人生许多机会，无法从头再来，世间更无后悔药。郭先生用一句民间谚语送给喜币的主人们：不要等不到馒头熟就掀锅。
+[https://gtv.org/video/id=618e6bd1e7e770379233c18b](https://gtv.org/video/id=618e6bd1e7e770379233c18b)
 
-【原文链接】https://gtv.org/broadcast/watch/618e6c5fe7e770379233c263
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-校对发布：Shifter
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

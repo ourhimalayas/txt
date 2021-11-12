@@ -2,51 +2,30 @@
 ---
 
 
-## 澳洲卫生部长称未接种疫苗终生“孤独”和“悲惨”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1659168/)
+## 有声|GTV新闻访谈简报|2021年11月10日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659191/)
 
-作者：Ian Miles Cheong
-翻译：HimaFAFA
+配音：香草山教育部 – 蒙古鸿雁
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/a11.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
 
-澳大利亚卫生部长克里斯佩里博士似乎更像是威胁而不是警告，他声称拒绝接种疫苗的人将在他们的余生中“悲惨”和“孤独”。
 
-佩里是澳大利亚医学协会昆士兰州主席，他在电视节目中针对对疫苗犹豫不决的澳大利亚人发表了讲话。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1110text-SC.png)
+文字版原文：[GTV新闻访谈简报|2021年11月10日晚](https://gnews.org/zh-hans/1654768/)
 
-佩里警告说：“哦，他们不接种疫苗真是太疯狂了，不接种疫苗的生活会很悲惨。” “你将无法隐藏，你将面临无法让医生签署并将你被排除在外的情况。因为对此有非常明确的规定，医生会被审计，他们的每一个排除都会被非常小心审查。”
+音频处理：喜山必胜Maverick
 
-佩里威胁规避政府规定的医生处以罚款和解雇，还威胁虚假获得疫苗豁免的人，警告说如果他们“试图绕过系统”，他们将受到欺诈指控的打击。
+发稿：呼吸的雾霾（文小呼吸）
 
-峰会新闻报道称，昆士兰州卫生官员警告说，拒绝接种疫苗的人将很难保住工作，他们将无法前往公共场所娱乐。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 
-“如果你没有接种疫苗，你将很难维持工作，而且你将无法去任何地方娱乐，”他说。
+**更多资讯，更多关注**
 
-佩里承诺，任何拒绝接种两次疫苗的人都将过上“非常、非常孤独的生活”，而且他们将无法继续工作。
-
-在随后的评论中，医生们指责“阴谋论者”加剧了对疫苗的犹豫。
-
-“在社交媒体时代，任何潜在的轻微头痛或疫苗的小而严重的问题都会被放大，”他说。
-
-来源：https://www.rebelnews.com/australian\_health\_chief\_says\_unvaccinated\_will\_be\_lonely\_and\_miserable\_for\_life
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://xn--%20%7Cgtv%20%20gtv-%20%7Cmos%20talk%20%20%20%7C%20gettr%20%20%20%7Cyoutube%20%20%7C%20discord-kw44l1t1gm8doayup218v624hpazvr1825bzx4emafxdws06012bhtnpta2axu46wua3ayv7960lnaiygzw1416y8vh370k17zmoajzj0ay/)
 
  
 

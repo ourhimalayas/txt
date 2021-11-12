@@ -2,32 +2,52 @@
 ---
 
 
-## 中共自编教材洗脑国家干预经济
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1659133/)
+## 澳洲卫生部长称未接种疫苗终生“孤独”和“悲惨”
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1659168/)
 
-作者：澳喜农场 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月11日，中共教育部网站公布了一组自编的中共经济学类大学教材，用以取代中共此前一直使用的《马克思主义政治经济学》教材。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-13-上午1.07.38.png)
-相关人员透露，中共根本无法平衡墙内各阶层民众的生活现状，且一直在极力压榨墙内民众的剩余价值。为此，中共试图通过新教材洗脑学生，将中共现有的所谓“市场经济”模式，转变至彻彻底底的国家干预经济模式。
+作者：Ian Miles Cheong
+翻译：HimaFAFA
 
-另有相关学者认为，中共在建党之初，鉴于共产国际的势力，不得不假装高举马恩的旗帜。但在此次六中全会上，习近平早已认定了要走全面管控的独裁路线。然而，经济发展的规律显示，虽然自由竞争未必能繁荣，国家干预下的经济必定会衰落。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/a11.png)
 
-参考链接：[扬弃马克思经济学说 十三所大学自编经济学系列教材](https://www.rfa.org/mandarin/yataibaodao/kejiaowen/ql2-11112021034555.html)
+澳大利亚卫生部长克里斯佩里博士似乎更像是威胁而不是警告，他声称拒绝接种疫苗的人将在他们的余生中“悲惨”和“孤独”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+佩里是澳大利亚医学协会昆士兰州主席，他在电视节目中针对对疫苗犹豫不决的澳大利亚人发表了讲话。
 
-总编：文特
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+佩里警告说：“哦，他们不接种疫苗真是太疯狂了，不接种疫苗的生活会很悲惨。” “你将无法隐藏，你将面临无法让医生签署并将你被排除在外的情况。因为对此有非常明确的规定，医生会被审计，他们的每一个排除都会被非常小心审查。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+佩里威胁规避政府规定的医生处以罚款和解雇，还威胁虚假获得疫苗豁免的人，警告说如果他们“试图绕过系统”，他们将受到欺诈指控的打击。
+
+峰会新闻报道称，昆士兰州卫生官员警告说，拒绝接种疫苗的人将很难保住工作，他们将无法前往公共场所娱乐。
+
+“如果你没有接种疫苗，你将很难维持工作，而且你将无法去任何地方娱乐，”他说。
+
+佩里承诺，任何拒绝接种两次疫苗的人都将过上“非常、非常孤独的生活”，而且他们将无法继续工作。
+
+在随后的评论中，医生们指责“阴谋论者”加剧了对疫苗的犹豫。
+
+“在社交媒体时代，任何潜在的轻微头痛或疫苗的小而严重的问题都会被放大，”他说。
+
+来源：https://www.rebelnews.com/australian\_health\_chief\_says\_unvaccinated\_will\_be\_lonely\_and\_miserable\_for\_life
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
