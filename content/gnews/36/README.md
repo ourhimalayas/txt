@@ -2,38 +2,38 @@
 ---
 
 
-## 墙内累计7000万人感染中共病毒，死亡1370万人
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1657096/)
+## 国际要闻汇编11月12日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1657489/)
 
-作者：纽约香草山 – 木白
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在11月10日的文贵大直播中，郭先生爆料：中共国内累计有约7000万人感染中共病毒，累计死亡1370万人。
+素材：东京樱花团丨GNEWS组
+![](https://lh6.googleusercontent.com/EjozXHmbDMxFvTOhJuiBBlyxmoRyat6UccvxyrxCoiIXlaD5MIyIk07wRL-Gwp-GoRJmAPYFppEnhEtM23NO9aMwDqIxGz0W6-okKTXk72jYA7UTWMKcU5hWD40BIj4hgonaIp6M)[图片来源](https://www.voachinese.com/a/Xi-Expected-To-Invite-Biden-To-Beijing-Winter-Games-20211111/6309322.html)
+1、[**周一拜习视频会  习将邀拜登参加冬奥会**](https://www.voachinese.com/a/Xi-Expected-To-Invite-Biden-To-Beijing-Winter-Games-20211111/6309322.html)
 
-郭先生说，这些数据来源于中共国六中全会前的一份报道，这是中共高层内部第一次“官方报道”墙内疫情的真实数据，但感染中共病毒死亡1370万人的事实，却在报道中被中共“巧妙”地用“冠状病毒相关性死亡”来描述。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4-6.jpg)
-按照中共国真实的疫情数据统计，目前，全球累计感染中共病毒人数超过3.2亿人，死亡人数超过1800万人。在这两项指标上，中共国都是全球第一。但中共公开的国内疫情数据却远低于实际，分别是累计确诊12.6万多例，累计死亡5697例。
+美国商业电视频道CNBC周四（11日）报道说，拜登与习近平的视频会晤初步安排在11月15日。据消息人士透露，中共领导人习近平可能会在下周举行的两国首脑视频会晤上向拜登发出私人邀请，请他在明年2月参加在北京举行的冬季奥运会。对于拜登来说，这是一个两难的选择。拒绝，可能加剧两国之间的紧张关系；接受，则会使人们对拜登向外界宣示的民主和人权立场产生质疑。
 
-2020年以来，中共对全世界发动生化战，中共病毒肆虐全球，威胁人类生存。中国人民是这场生化战中最悲惨的受害者。
+2、[**视频会在即 拜登签署法令追打华为中兴**](https://www.aboluowang.com/2021/1112/1670784.html)** **
 
-面对比纳粹更邪恶的中共，郭先生在直播中愤慨地说：“在中共释放新冠病毒之前，你动任何中共官员都是犯罪；在中共释放冠状病毒之后，全人类都有权利杀之。因为，这是正义的。”
+美国总统拜登今天（11日）签署“安全设备法”，以避免华为或中兴通讯等被认为构成安全威胁的企业，取得美国监管机关核发的新设备许可，要求美国联邦传播委员会不得再审核或同意授权会对国安构成不可接受风险的设备申请案。安全设备法是美国政府打击中国电信与科技公司的最新行动。
 
-郭先生指出，爆料革命不会搞恐怖主义，但会给蒙蔽的中国人真相。为了因中共病毒死去的千百万人，为了全人类的正义和生存，任何国家都有权消灭中共。
+3、[**塔利班外长会晤美俄中巴代表 **](https://www.voachinese.com/a/taliban-met-with-troika-20211111/6309773.html)
 
-参考链接：[墙内累计7000万人感染中共病毒，死亡1370万人](https://gnews.org/zh-hans/1653603)
+周四（11日）在伊斯兰堡召开了中国、俄罗斯、美国和巴基斯坦就阿富汗局势举行的会谈，塔利班外长穆塔奇率领代表团也在周三（10）夜间抵达伊斯兰堡。巴基斯坦外长库雷希在开幕致词中说，“我们相信三加一国与阿富汗新政府的接触将有助于巩固和平稳定，促进可持续性经济发展。”三加一国会后发表联合声明，要求塔利班向所有年龄的妇女和女童提供教育机会。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+4、[**阿联酋、巴林破天荒与美以联合海上军演**](https://www.aboluowang.com/2021/1112/1670840.html)
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+美国海军11日宣布，与以色列、阿拉伯联合酋长国和巴林10日起在红海展开5天联合军演。这是两阿拉伯国家与以色列首度公开的军事合作，也是4国首度对外承认的联手海军演习。法新社报导，美国海军在声明中表示，演习目的是为了“加强参与的军队之间协同操作能力”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+5、[**台湾友邦洪都拉斯总统宣布访台**](https://www.voachinese.com/a/Honduran-president-to-visit-Taiwan-in-surprise-trip-20211111/6309340.html)** **
+
+洪都拉斯总统府周四（11日）在推特上宣布了洪都拉斯总统叶南德兹的台湾之行，但是没有公布访台的具体日期和行程。根据路透社的报道，台湾外交部证实叶南德兹即将赴台访问，并对他的访问表示欢迎。今年是中华民国与洪都拉斯建交80周年，双方都推动一系列的庆祝活动。洪都拉斯是台湾目前仅剩的15个邦交国之一。
+
+6、[**中企垄断稀土梦碎 格陵兰岛新法禁采铀矿 **](https://www.aboluowang.com/2021/1112/1670761.html)
+
+中共为推广“一带一路”在北极的战略，长期支持由中资企业“盛和资源”控股的澳大利亚格陵兰矿业公司，在格陵兰投资开采稀土的计划。不过，格陵兰岛国会日前通过新法，禁止开采铀矿，并停止开发格陵兰南端宽纳斯特的稀土矿藏。此举直接重击中共在格陵兰岛开采稀土的计划。
+
+*编辑：东京樱花团 / 文小白
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

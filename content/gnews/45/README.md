@@ -2,25 +2,50 @@
 ---
 
 
-## 加拿大军方无视兵源短缺执意推行疫苗强制令
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1656062/)
+## 高疫苗接种率的欧洲各国中共病毒病例激增
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1656750/)
 
-采编：青青   编译撰稿：文明(添草灭共)
+作者：纽约香草山农场 – 四季
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/b-1-edited.jpg)图片来源：TPM
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-加拿大自媒体《后千禧年》11月10日报道，那些不愿意向当局提交其“新冠病毒”疫苗接种情况证明的加拿大军人将面临“退伍除名”的处置。
 
-目前，【加拿大武装部队】成员接种该疫苗的比率为95%，其中已完成第二剂疫苗接种的比率为92%，明显高于加拿大普通民众84%的接种率。该国国防参谋长表示，对未接种该疫苗及未取得豁免接种证明的军队成员将采取包括辞退在内的强制措施，理由是为了保护其他成员的健康安全。
 
-据悉，军方内部最新审计数据显示，【加拿大武装部队】已出现至少7千人的兵源短缺，当局正在招收新兵以填补空缺。但如果继续执行强制接种政策，则无疑会进一步削弱该国武装部队的兵力。
 
-* * *
+据[零对冲](https://www.zerohedge.com/covid-19/despite-vaccine-passport-schemes-covid-cases-surging-across-europe)11月11日报道，尽管许多欧洲国家都实现了高疫苗接种率并施行了疫苗护照计划，但是欧洲各地在没有出现新的病毒变种的情况下，中共病毒病例再次激增。
 
-校对编辑，发稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1400-1.jpeg)图片来源：[Twitter](https://twitter.com/DrEliDavid/status/1457087947988213761?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1457087947988213761%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fcovid-19%2Fdespite-vaccine-passport-schemes-covid-cases-surging-across-europe)
 
-[原文链接：](https://thepostmillennial.com/canadian-military-to-threaten-unvaccinated-members-with-discharge)
+尽管德国、荷兰、奥地利、瑞士、意大利和法国等大多数国家大量使用疫苗护照，且疫苗覆盖率很高，但是这个秋季，中共病毒的感染仍然急速增长，其病例在德国首次突破5万大关，在奥地利、荷兰、丹麦、德国、瑞士和挪威也都出现了高峰，同时，在法国、葡萄牙和意大利也初现端倪。
+
+然而，与其他欧洲国家相比，瑞典的中共病毒病例和死亡人数却很低。在瑞典，从未实行过硬性封锁，也没有疫苗护照计划或强制戴口罩，并宣布大流行病已经结束。
+
+威尔·琼斯认为，现在，“群体免疫”的存在本身是一种“危险的阴谋论”。也许上面的图表可以说明一些问题。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
