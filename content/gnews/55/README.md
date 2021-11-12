@@ -2,36 +2,39 @@
 ---
 
 
-## DMSA将对恒大提起破产程序
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656178/)
+## 全球最大工会组织谴责中共践踏人权 反对北京主办冬奥会
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1655660/)
 
-作者：纽约香草山教育部 – Irene木木
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月10日，德国柏林消息称，中共恒大集团今天再次拖欠国际投资者的利息支付，对此，持有恒大集团债券的德国市场筛选机构DMSA正准备对恒大集团提起破产程序，并呼吁所有债券投资者加入。
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-8.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1774127F-6C32-496A-B90B-303C02A142B9.jpeg)流亡藏人在印度达兰萨拉街头抗议北京举行2022冬奥会。（2021年2月3日）
 
-数据显示，中共恒大集团早在今年9月就拖欠了两笔债券的利息，其30天的宽限期已于10月结束。作为债权人，DMSA表示，至今仍未收到任何来自恒大集团的利息付款。据了解，恒大最晚要在11月10日前支付三笔债券的利息，共计约1.4亿美元。DMSA解释，恒大的债务均包含交叉违约条款，即当其所涉的任一债券出现违约时，恒大的其余所有未偿还债券都会被一同视为“违约”状态。
+近日，全球最大的跨国工会组织——国际工会联合会发布公告，谴责中共践踏人权，反对北京主办2022年冬季奥运会。
 
-此前，DMSA曾在一份报告中指出，世界上负债最多的企业——中共恒大集团必将面临债务违约的境况，而恒大的破产可能会导致“大重置”，即全球金融体系的最终崩溃。美联储也于两天前证实了这一点。
+《美国之音》11月9日援引《美联社》的消息报道称，代表160多个国家、2亿多工人的国际工会联合会，11月9日发布题为《中（共）国：镇压的金牌》的报告，对中共践踏人权的行为予以谴责，反对北京主办2022年冬季奥运会。该组织已将报告送达国际奥委会主席巴赫。
 
-参考链接：
-1）[https://gettr.com/post/pgmdtn9c19](https://gettr.com/post/pgmdtn9c19)
-2）[Evergrande officially defaulted – DMSA is preparing bankruptcy proceedings against Evergrande Group](https://apnews.com/press-release/pr-newswire/business-china-evergrande-group-china-36dc3f16fe95c154a768d071345cdb77)
+报告中列举中共侵害人权的行为包括：强迫劳动；监禁香港工会成员和民主捍卫者；以“反分裂”和“反恐”为由镇压少数民族和宗教群体等。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+国际工会联合会秘书长莎兰·布罗（Sharan Burrow）在接受《美联社》采访时表示，国际工会联合会正在力争促使国际奥委会在围绕人权的一些基本原则上采取行动。
 
-总编：小鹿妞妞
-编辑：小鹿妞妞
-校正/发稿：谐趣园
+莎兰说：“我们希望各国政府在保护自己运动员方面采取立场；我们也希望赞助商真正审视与北京冬奥会的关系。”她强调，那些支持北京冬奥会的公司应当秉承他们所说的尊重价值观，即基本的人权。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+莎兰还表示，生活在民主国家的国际奥委会官员和其他许多人应当明白，中共国不能只在全球经济中运作，却不对其犯下的侵害人权罪行予以回应。她强调，人民是有权利的。
+
+在此之前，国际上一直有反对北京冬奥会的声音。既有要求抵制的；也有批评赞助商和转播商的；还有要求国际奥委会将此届冬奥会移到其他国家举办。此外，上个月在希腊举行的奥运圣火点火仪式期间，也有抗议者在现场抗议。
+
+注：本文仅代表作者观点
+
+*参考链接：[https://www.voachinese.com/a/Beijing-olympics-get-gold-for-repression-in-labor-report-20211109/6305997.html](https://www.voachinese.com/a/Beijing-olympics-get-gold-for-repression-in-labor-report-20211109/6305997.html)*
+
+* * *
+
+*素材采编：幽蘭自得*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
