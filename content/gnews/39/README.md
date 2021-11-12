@@ -2,20 +2,48 @@
 ---
 
 
-## 韩国首尔重症患者床位使用率超过75%
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1657825/)
+## 布林肯：若中共攻台，美国和盟友将“采取行动”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1657988/)
 
-韩国首尔天池农场—–追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-12-at-16.38.31.jpeg)图片来自韩国YTN新闻
-韩国YTN新闻11月12日的报道，据韩国保健福祉部中央应急处置本部12日消息，截至前一天17点，首尔市345张新冠重症病例专用病床中，已有260张投入使用，仅剩余85张，使用率超过75.4%。
+作者：英国喜庄园 – I770775
 
-韩国从11月1日进入“与疫共存”生活模式，1日至11日的平均每天感染人数超过2000人，其中11月2日感染人数达到2667人，创历史第四新高。
 
-截至到10日，全国已有4175.77万人接种首剂新冠疫苗，占总人口的80.6%，完成疫苗全程接种的人员共计3973.559万人，占总人口的76.7%。
 
-政府曾将重症病床位使用率超75%列为启动熔断机制（暂停“与疫共存”模式）的标准之一，而首尔目前已经超标。全国的准重症病床使用率为63.1%，首都圈为76.1%，其中仁川市高达95.7%，23张准重症病床中仅有1张剩余。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-[参考新闻](https://m.ytn.co.kr/news_view.php?key=202111121623239241&amp;s_mcd=0103)
+
+
+11月10日，美国国务卿布林肯在一个论坛上被问及台湾问题时表示，如果中共使用武力改变台湾现状，美国及其盟友将采取“行动”。
+
+布林肯重申了美国政府的一贯声明，即华盛顿既要确保台湾有能力进行自卫，同时也决心确保维护该地区的和平与稳定。
+
+布林肯还说，不只是美国，无论台湾还是其他国家或地区，对于任何使用武力破坏现状的单方面行动，都会采取行动，以保证地区的和平与安全。但布林肯并未透露具体会采取什么行动。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-47.jpg)
+参考链接：
+[美国务卿布林肯称若中国使用武力改变台湾现状 美国和盟友将“采取行动”](https://cn.reuters.com/article/usa-beijing-taiwan-1110-wedn-idCNKBS2HW02Z)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

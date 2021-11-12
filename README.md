@@ -15,143 +15,143 @@
 
 ---
 
-### [网传招商银行全面退出对公房地产贷款，中共金融系统试图断臂求生](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [中共“普惠制”待遇12月起将被取消](/content/gnews/1/README.md)
+ ` 澳喜农场`
 
-### [【玫瑰看新闻】第197期 国际热点新闻](/content/gnews/2/README.md)
+### [携程创始人、红杉资本大佬、互联网真正的教父—沈南鹏全家也被抓了](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【玫瑰看新闻】第197期 币圈新闻](/content/gnews/3/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共炮制“散毒者”短视频矛头直指美国](/content/gnews/3/README.md)
+### [苏格兰89%的中共病毒死亡来自完全接种疫苗人群](/content/gnews/4/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [【玫瑰看新闻】第197期 疫情新闻](/content/gnews/5/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [文·贵天成——文贵先生谈“沈南鹏”（二）](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [网传招商银行全面退出对公房地产贷款，中共金融系统试图断臂求生](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【玫瑰看新闻】第197期 国际热点新闻](/content/gnews/8/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [中共炮制“散毒者”短视频矛头直指美国](/content/gnews/9/README.md)
  ` 儒为`
 
-### [一神教与多神教的本质区别](/content/gnews/4/README.md)
+### [一神教与多神教的本质区别](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【玫瑰看新闻】第197期 新中国联邦新闻](/content/gnews/5/README.md)
+### [【玫瑰看新闻】第197期 新中国联邦新闻](/content/gnews/11/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [2021年11月12日 澳喜要闻摘要](/content/gnews/6/README.md)
+### [2021年11月12日 澳喜要闻摘要](/content/gnews/12/README.md)
  ` 澳喜农场`
 
-### [班农专访3: 强制疫苗令会被收回](/content/gnews/7/README.md)
+### [班农专访3: 强制疫苗令会被收回](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新西兰财经G乐部 2021年11月11日](/content/gnews/8/README.md)
+### [美国各红色共和党州被分发到了最致命的中共疫苗](/content/gnews/14/README.md)
+ ` wenwu`
+
+### [新西兰财经G乐部 2021年11月11日](/content/gnews/15/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [班农专访1: 拜登的总统任期已经结束](/content/gnews/9/README.md)
+### [班农专访1: 拜登的总统任期已经结束](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [根特大学医院的重症室都是接种过疫苗的病人](/content/gnews/10/README.md)
+### [根特大学医院的重症室都是接种过疫苗的病人](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国“双十一”受居民囤积紧急物资影响掩盖了急剧下滑真相](/content/gnews/11/README.md)
+### [中共国“双十一”受居民囤积紧急物资影响掩盖了急剧下滑真相](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [福奇在国会撒谎](/content/gnews/12/README.md)
+### [福奇在国会撒谎](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [朱利安阿桑奇被允许举行婚礼](/content/gnews/13/README.md)
+### [朱利安阿桑奇被允许举行婚礼](/content/gnews/20/README.md)
  ` Shuizhuyu`
 
-### [新西兰财经G乐部 2021年11月12日](/content/gnews/14/README.md)
+### [新西兰财经G乐部 2021年11月12日](/content/gnews/21/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [秘翻在线：新研究报告揭示22个国家的维吾尔人被中共监控骚扰](/content/gnews/15/README.md)
+### [秘翻在线：新研究报告揭示22个国家的维吾尔人被中共监控骚扰](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [医生亲身经历：深受疫苗伤害，却被多方欺骗推诿卸责](/content/gnews/16/README.md)
+### [医生亲身经历：深受疫苗伤害，却被多方欺骗推诿卸责](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [UFC主席怀特反对疫苗授权：这是自由的国家](/content/gnews/17/README.md)
+### [UFC主席怀特反对疫苗授权：这是自由的国家](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拜登签署《安全设备法案》, 华为中兴被彻底踢出美国](/content/gnews/18/README.md)
+### [拜登签署《安全设备法案》, 华为中兴被彻底踢出美国](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [为儿童接种中共病毒疫苗是蓄意谋杀](/content/gnews/19/README.md)
+### [为儿童接种中共病毒疫苗是蓄意谋杀](/content/gnews/26/README.md)
  ` 澳喜农场`
 
-### [中共国政府习近平成为“舵手”](/content/gnews/20/README.md)
+### [中共国政府习近平成为“舵手”](/content/gnews/27/README.md)
  ` Shuizhuyu`
 
-### [外资人民币债券增量暴跌九成，再不跑就来不及了](/content/gnews/21/README.md)
+### [外资人民币债券增量暴跌九成，再不跑就来不及了](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [焦点新闻摘要 2021年11月11日](/content/gnews/22/README.md)
+### [焦点新闻摘要 2021年11月11日](/content/gnews/29/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [秘翻在线：拜登签署《安全设备法》 开始法律封杀华为和中兴](/content/gnews/23/README.md)
+### [秘翻在线：拜登签署《安全设备法》 开始法律封杀华为和中兴](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本岸田内阁将颁布新的经济政策](/content/gnews/24/README.md)
+### [日本岸田内阁将颁布新的经济政策](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新西兰支持台湾加入CPTPP](/content/gnews/25/README.md)
+### [新西兰支持台湾加入CPTPP](/content/gnews/32/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [沈南鹏被抓，到处变卖资产已套现百亿](/content/gnews/26/README.md)
+### [沈南鹏被抓，到处变卖资产已套现百亿](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [应放慢儿童新冠疫苗：等待美国数据](/content/gnews/27/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [新西兰财经G乐部 2021年11月10日](/content/gnews/28/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [美国媒体：习近平将邀请拜登参加中共国奥运会](/content/gnews/29/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [自身经历谈中共经济崩塌下的百姓现状](/content/gnews/30/README.md)
+### [自身经历谈中共经济崩塌下的百姓现状](/content/gnews/34/README.md)
  ` 澳喜农场`
 
-### [COVID疫苗种族灭绝 儿童医院满是婴儿患者](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [蓬佩奥国务卿再次强调习会因冬奥会膨胀，拜登政府需要下决心、建立威慑力](/content/gnews/32/README.md)
+### [蓬佩奥国务卿再次强调习会因冬奥会膨胀，拜登政府需要下决心、建立威慑力](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [币圈新闻动态：喜币（HCN）稳步突破27HDO](/content/gnews/33/README.md)
+### [币圈新闻动态：喜币（HCN）稳步突破27HDO](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [针对美中首脑线上会晤 日本关注病毒溯源议题](/content/gnews/34/README.md)
+### [针对美中首脑线上会晤 日本关注病毒溯源议题](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [樱花灭共诗——喜币无限好](/content/gnews/35/README.md)
+### [樱花灭共诗——喜币无限好](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [布林肯：若中共攻台，美国和盟友将“采取行动”](/content/gnews/36/README.md)
+### [布林肯：若中共攻台，美国和盟友将“采取行动”](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
-### [中共历史上三个重要决议的比较](/content/gnews/37/README.md)
+### [中共历史上三个重要决议的比较](/content/gnews/40/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [拜登赢得反疫苗强制诉讼的几率很低](/content/gnews/38/README.md)
+### [拜登赢得反疫苗强制诉讼的几率很低](/content/gnews/41/README.md)
  ` 墨尔本雅典娜农场`
 
-### [韩国首尔重症患者床位使用率超过75%](/content/gnews/39/README.md)
+### [韩国首尔重症患者床位使用率超过75%](/content/gnews/42/README.md)
  ` 首尔天池农场`
 
-### [疫苗强制令将导致联邦公务员大规模短缺](/content/gnews/40/README.md)
+### [路易斯安那州第五巡回法院历史性裁决叫停疫苗强制令](/content/gnews/43/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [路易斯安那州第五巡回法院历史性裁决叫停疫苗强制令](/content/gnews/41/README.md)
+### [面对具体而非笼统的疫苗强制问题时，人们会强烈反对](/content/gnews/44/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [面对具体而非笼统的疫苗强制问题时，人们会强烈反对](/content/gnews/42/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新的金融体系正在向我们走来](/content/gnews/43/README.md)
+### [新的金融体系正在向我们走来](/content/gnews/45/README.md)
  ` 纽约香草山MOS01`
 
-### [秘翻在线：辉瑞首席执行官希望将散布“错误信息”的人送进监狱](/content/gnews/44/README.md)
+### [秘翻在线：辉瑞首席执行官希望将散布“错误信息”的人送进监狱](/content/gnews/46/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [2021年11月11日郭先生盖特 — 视频盖特「9分45秒」](/content/gnews/45/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [文·贵天成——文贵先生谈“沈南鹏”（一）](/content/gnews/46/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [维迦诺大主教给反对健康暴政的抗议者的信](/content/gnews/47/README.md)
  ` 首尔天池农场`

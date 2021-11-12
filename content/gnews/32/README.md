@@ -2,50 +2,31 @@
 ---
 
 
-## 蓬佩奥国务卿再次强调习会因冬奥会膨胀，拜登政府需要下决心、建立威慑力
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1658066/)
+## 新西兰支持台湾加入CPTPP
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1658128/)
 
-作者：日本方舟农场 – Andy5
+据《台湾英文新闻》记者：Kelvin Chen，2021年11月9日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-74.png)图片来源：Getty图片
+台北（台湾新闻）——新西兰政府表示，它一直欢迎愿意遵守《跨太平洋伙伴关系全面进步协定》（CPTPP）规则的国家。
 
+新西兰外交和贸易部（MFAT）的一位发言人通过给CNA的书面声明表示，新西兰一直支持包括愿意满足CPTPP高标准的经济体。台湾提交申请后，下一步是由成员国决定是否正式邀请其加入贸易伙伴关系。
 
+在台湾于9月22日提交CPTPP申请后，新加坡驻台北贸易办事处也发表声明称，新加坡“欢迎所有愿意并有能力满足CPTPP高标准的各方”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+新加坡贸易办公室表示，一旦CPTPP成员国达成共识，申请人就可以最终加入。
 
+此外，任何打算加入的国家都必须与所有现有成员进行双边磋商，以解决任何疑虑，并说服成员国其符合加入贸易协定的所有标准。
 
+文章来源：[https://www.taiwannews.com.tw/en/news/4339651](https://www.taiwannews.com.tw/en/news/4339651)
 
-11月10日，美国前国务卿蓬佩奥在媒体接受采访时，再次警告如果明年北京冬奥会成功举办，会让习的国际地位达到巅峰。
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 柯镇恶
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-特别是当习看到美国在阿富汗抛弃本国公民时，他看到的是美国政府和领导人的不认真和无能，认为美国正在衰落，正在丢掉领导地位，变得没有威慑力。
-
-借此，在即将举行的拜习视频会晤前，蓬佩奥国务卿再次敲打拜登政府，督促其下决心，并重建川普政府四年所建立起来的威慑力。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-37.jpg)
-参考链接：
-1.[20211110蓬佩奧國務卿接受Sean Hannity採訪](https://www.gettr.com/post/pgn4u99d59)
-2.[Pompeo: Xi and the CCP will certainly attack Taiwan if US shows weakness.](https://gettr.com/post/pgjqv8cb00)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：飞虹
-编辑：文特
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
