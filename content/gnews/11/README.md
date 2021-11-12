@@ -2,36 +2,34 @@
 ---
 
 
-## 澳医协主席威胁不接种疫苗将逃无可逃、孤苦终生
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1659357/)
+## 2021/11/11 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1659438/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
+1. 11月8日，是低温导致还是疫苗接种后的副作用？北京一舞蹈老师前一秒在教舞，后一秒突然嘴歪腿瘸，心梗当天就去世了。
+2. 拍照强迫新疆百姓喝防疫药物？防疫政策借口下对新疆人口人权的进一步践踏。
+3. 可以生产，可以售卖，就是不允许百姓行驶上路的中共国电动车。2个孩子看着警察发蒙了，他们俩不明白警察为什么要收缴他们家的车。
+4. 混乱城市规划下的深圳非机动车道断头路。
+5. 11月5日，山东烟台，非机动车道如“穿桩”，市民骑行自行车都懵了。
+6. 疑似被丢弃在广东茂名市化州福利院门口的弃婴。
+7. 11月9日，远处的“领导”在拍照作秀，镜头外的环卫工人在危险的马路上勤勤恳恳的干活。
+8. 环卫工将铁锹借给车辆被困的市民铲雪后，被管理者质疑偷懒而开除。
+9. 11月10日，湖北黄石，初三学生向在外地出差父亲哭诉学习的辛苦。应试教育高压下的青少年从未感受到知识带来的快乐。
+10. 北京，被没收掉外卖车的外卖小哥坐在路边惆怅。
+11. 11月3日，河南郑州，外卖小哥车被锁，与商场保安理论遭到殴打。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/马上使用.jpg)图片来源：clydeco.com
 
-**翻译：Lish
-校对 /编辑：守望黎明 **
+* * *
 
-澳大利亚医学协会的昆士兰主席在一次电视节目中说，迄今仍然坚持拒绝接种疫苗的人将在他们的余生中活在 “痛苦 “和 “孤独”中。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-这位克里斯˖佩里主席说：”哦，说实在的。不接种疫苗的人简直是疯了，不接种疫苗生活会很痛苦。”他补充说：”你将无处藏身，没有医生会签字让你得到疫苗豁免，因为有严格的规则，医生是要被审计的。他们签属的每一份疫苗豁免都将被非常仔细地审查。”除了用罚款和解雇威胁医生之外，佩里还威胁那些企图通过造假获得疫苗豁免的人，称如果有人 “试图绕过系统”，他们也将被指控欺诈。
 
-他还说：”如果你不接种疫苗，将很难保住你的工作，你将不能去任何地方进行任何娱乐活动。” 佩里最后说，那些没有完全接种的人将有 “非常、非常孤独的生活”，并且无法维持工作。
+编辑：【英国伦敦喜庄园编辑部】
 
-听了上述这番话，现在谁能再说疫苗接种不是强制性的？
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-在随后的谈话中，佩里还指责是 “阴谋论者 “使人们对接种疫苗犹豫不决。他说“在社交媒体时代，疫苗引起的轻微头痛或小的严重问题都被无限放大了。”
 
-原文链接：[Aussie Health Chief Says People Who Don’t Get Vaccinated Will Be “Miserable” And “Lonely” For Life | ZeroHedge](https://www.zerohedge.com/political/aussie-health-chief-says-people-who-dont-get-vaccinated-will-be-miserable-and-lonely-life)
-
-*发布：热锅小蚂蚁*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

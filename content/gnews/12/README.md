@@ -2,44 +2,58 @@
 ---
 
 
-## Hörbücher|Deutsche Bildungsministerin Fordert die Schließung aller Konfuzius-Institute
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659244/)
+## 英国疫苗强制可能迫使 12.3万人退出卫生保健行业
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1659431/)
 
-Aufgenommen von:Aufgenommen von: MOS Buddhism Group –Nancy
+![](https://assets.gnews.org/wp-content/uploads/2021/11/ICU-CCP-virus-England-UK-700x420-1.jpg)网络图片
+摘要翻译：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+据政府估计，英国对英格兰地区的一线卫生和社会保健工作人员的中共病毒疫苗强制接种政策可能迫使超过12万人离开该行业。
+
+卫生大臣赛义德·贾维德(Sajid Javid)周二宣布，从2022年4月1日起，所有在国民医疗服务体系(NHS)和社会关怀部门工作的人都必须完全接种疫苗才能继续工作。
+
+卫生和社会关怀部(DHSC)表示，疫苗强制令将适用于与患者有“直接、面对面接触”的卫生和社会保健工作者，例如医生、护士、牙医和家庭保健人员，除非他们是被豁免的。
+
+该规则也适用于可能与患者有社交接触的搬运工或接待员。
+
+贾维德周二对下议院表示，该政策旨在“避免可预防的伤害，保护NHS的患者、保护NHS的同事，当然还要保护NHS本身”。
+
+在周二发布的一项影响评估中，政府估计，由于疫苗强制令，约有5.4万名医疗和社会保健人员将接种疫苗。
+
+但它承认该政策可能对卫生和社会保健人员产生“重大影响”，并可能导致多达12.3万名员工离职。
+
+政府的影响声明估计，到宽限期结束时，约有8.8万名卫生工作者，包括7.3万名NHS工作人员和3.5万名社会保健工作者将仍未接种疫苗。
+
+声明警告称，在英国卫生系统“有572万的选择性等候名单和大量空缺职位”之际，“卫生和社会保健人员数量的任何减少都可能导致服务减少或延迟”。
+
+影响报告还估计，“更换未接种疫苗的工人的成本为2.7亿英镑（合3.65亿美元）。”
+
+主要反对党工党表示，希望看到NHS工作人员接种疫苗，但鉴于可能出现人员短缺，建议政府“谨慎行事”。
+
+影子卫生部长乔恩·阿什沃斯(Jon Ashworth)周二表示，NHS信托机构担心该政策“可能会加剧其中一些长期人手不足的问题”，并补充说“我们根本无法承受在一夜之间失去数千名NHS员工的后果。”
+
+同样在周二，北爱尔兰官员宣布，计划就该省卫生和社会保健工作人员的中共病毒和流感疫苗强制接种进行公众咨询。
+
+但是威尔士和苏格兰政府不打算为卫生和社会保健人员推行疫苗强制接种。
+
+简评：
+
+自中共病毒疫苗正式推出以来，英、美、澳等国家的疫苗强制接种政策一直在民众的反对声中被强力推行，政府对该政策的推行力度丝毫不亚于独裁的中共政权。这一普遍存在的现象让我们不得不深思，在病毒源头还没有搞清楚的情况下，究竟是什么原因促使这些民主国家的民选政府如此盲信中共病毒疫苗？是因为利益勾兑，是因为对科学的盲从，还是因为这些国家的政府也在深度参与以中共政权为首的世界黑暗力量利用病毒和毒疫苗毁灭人类的计划？
+
+如今，美国联邦法院第五巡回法庭已经颁布对拜登政府疫苗强制接种令的禁令，希望以这一法律行动为起点，美国社会能够最终废止疫苗强制接种政策，从而带动世界各国一起行动制止这场继中共病毒之后世界黑暗力量又一次毁灭人类的计划。
+
+新闻链接: [UK Vaccine Mandate May Force 123,000 Out Of Health Care Sector](https://www.nationandstate.com/2021/11/11/uk-vaccine-mandate-may-force-123000-out-of-health-care-sector/)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-**Interviews mit der GTV Presse       02.11.2021**
-
-Kurz nach dem offiziellen Rücktritt von Angela Merkel am 26. Oktober schrieb die amtierende Bildungsministerin Karliszczak einen Brief an die Konferenz der deutschen Hochschulpräsidenten und die Kultusministerkonferenz.  In dem Brief forderte sie die Hochschulen auf, “die Rolle der Konfuzius-Institute innerhalb der deutschen Hochschullandschaft neu zu bewerten”.
-
-Sie sagte, dass sie seit langem voller Sorge über die Auswirkungen der 19 Konfuzius-Institute an deutschen Universitäten sei. Die Auswirkungen der Konfuzius-Institute auf die akademische Freiheit in Deutschland sind langfristig und nicht hinnehmbar.
-
-Dies geschah, nachdem zwei Universitäten auf Druck des kommunistischen Generalkonsuls Chinas in Deutschland, Feng Haiyang, eine Präsentation des deutschen Buches “Xi Jinpings Biografie” abgesagt hatten. Oster, einer der Autoren des Buches, kritisierte das Konfuzius-Institut als “den langen Arm Pekings in Deutschland”.  Ein anderer Autor behauptete, dass es in China üblich ist,  nicht über nationale Führer sprechen zu dürfen, aber in Deutschland  wird nicht geduldet.  Der Vorfall veranlasste die Bildungsministerin unmittelbar, die Schließung aller Konfuzius-Institute in Deutschland zu fordern.
-
-Nach Schweden und Norwegen ist dies ein weiteres Land, das sich nicht von der KPCh durch Kulturexport einschränken und manipulieren lassen will.
-
-Originallinks:[Deutsche Bildungsministerin Fordert die Schließung aller Konfuzius-Institute](https://gnews.org/1644549/)
-
-Gepostet von: 呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-**Für weitere Informationen, folgen Sie uns:**
-
-[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**New York MOS Himalaya ****｜****MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**New York MOS Himalaya ****｜****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**New York MOS Himalaya ****｜****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**Free to Join New York MOS Himalaya｜Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

@@ -2,34 +2,37 @@
 ---
 
 
-## 有声|喜联储将以“零中介”改变现有交易规则
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659203/)
+## 澳医协主席威胁不接种疫苗将逃无可逃、孤苦终生
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1659357/)
 
-配音：香草山教育部 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月8日，值此喜联储上线一周之际，温哥华扬帆农场枫叶组发表Gnews评论员文章，详细阐述喜联储及其金融服务的全新特色。
+**【雅典娜快讯】，紧贴时事脉搏**
 
-文章指出，“喜联储”的一大特色是交易的“去中介化”。相比现有的金融系统，去中介化的喜币金融支付系统将具备不可比拟的成本优势。这个优势，对于专心做实体商业的企业非常有吸引力，但对传统的银行等金融企业却可能成为利润杀手。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/马上使用.jpg)图片来源：clydeco.com
 
-基于区块链的喜币推出后，电子钱包里面的余额不再依赖于银行系统；同时，基于区块链的喜币支付系统不需要银行账户即可完成支付或汇款。因此，随着喜币的金融生态逐步完善，喜币用户开设银行活期存款类账户的动机已经不存在。长期来看，传统银行的结算账户、活期账户、支票账户等类型都可能消失。储户与银行打交道的理由唯有获取利息。那么，传统银行凭借传统支付体系沉淀的巨量资金将不保，传统银行剥削储户利益的时代也将一去不复返。
+**翻译：Lish
+校对 /编辑：守望黎明 **
 
-此外，即将上线的“喜支付”将建立商户与消费者基于喜币、喜美元等产品的结算方式，这意味着双方直接在区块链上对话，完全摆脱传统银行结算过程中的收单行、发卡行、结算行等中介佣金的瓜分。这对于商家和消费者都是非常有益的。鉴于此，文章指出，去中介化的喜联储生态，将在不久的将来，凭借其低廉佣金、多方互惠的特点，改写金融交易的游戏规则。
+澳大利亚医学协会的昆士兰主席在一次电视节目中说，迄今仍然坚持拒绝接种疫苗的人将在他们的余生中活在 “痛苦 “和 “孤独”中。
 
-文字版原文：[喜联储将以“零中介”改变现有交易规则](https://gnews.org/zh-hans/1653437/)
+这位克里斯˖佩里主席说：”哦，说实在的。不接种疫苗的人简直是疯了，不接种疫苗生活会很痛苦。”他补充说：”你将无处藏身，没有医生会签字让你得到疫苗豁免，因为有严格的规则，医生是要被审计的。他们签属的每一份疫苗豁免都将被非常仔细地审查。”除了用罚款和解雇威胁医生之外，佩里还威胁那些企图通过造假获得疫苗豁免的人，称如果有人 “试图绕过系统”，他们也将被指控欺诈。
 
-音频处理：喜山必胜Maverick
+他还说：”如果你不接种疫苗，将很难保住你的工作，你将不能去任何地方进行任何娱乐活动。” 佩里最后说，那些没有完全接种的人将有 “非常、非常孤独的生活”，并且无法维持工作。
 
-发稿：呼吸的雾霾（文小呼吸）
+听了上述这番话，现在谁能再说疫苗接种不是强制性的？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+在随后的谈话中，佩里还指责是 “阴谋论者 “使人们对接种疫苗犹豫不决。他说“在社交媒体时代，疫苗引起的轻微头痛或小的严重问题都被无限放大了。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+原文链接：[Aussie Health Chief Says People Who Don’t Get Vaccinated Will Be “Miserable” And “Lonely” For Life | ZeroHedge](https://www.zerohedge.com/political/aussie-health-chief-says-people-who-dont-get-vaccinated-will-be-miserable-and-lonely-life)
+
+*发布：热锅小蚂蚁*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

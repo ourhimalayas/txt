@@ -2,30 +2,44 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2021年11月10日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659191/)
+## Hörbücher|Deutsche Bildungsministerin Fordert die Schließung aller Konfuzius-Institute
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659244/)
 
-配音：香草山教育部 – 蒙古鸿雁
+Aufgenommen von:Aufgenommen von: MOS Buddhism Group –Nancy
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1110text-SC.png)
-文字版原文：[GTV新闻访谈简报|2021年11月10日晚](https://gnews.org/zh-hans/1654768/)
 
-音频处理：喜山必胜Maverick
+**Interviews mit der GTV Presse       02.11.2021**
 
-发稿：呼吸的雾霾（文小呼吸）
+Kurz nach dem offiziellen Rücktritt von Angela Merkel am 26. Oktober schrieb die amtierende Bildungsministerin Karliszczak einen Brief an die Konferenz der deutschen Hochschulpräsidenten und die Kultusministerkonferenz.  In dem Brief forderte sie die Hochschulen auf, “die Rolle der Konfuzius-Institute innerhalb der deutschen Hochschullandschaft neu zu bewerten”.
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+Sie sagte, dass sie seit langem voller Sorge über die Auswirkungen der 19 Konfuzius-Institute an deutschen Universitäten sei. Die Auswirkungen der Konfuzius-Institute auf die akademische Freiheit in Deutschland sind langfristig und nicht hinnehmbar.
 
-**更多资讯，更多关注**
+Dies geschah, nachdem zwei Universitäten auf Druck des kommunistischen Generalkonsuls Chinas in Deutschland, Feng Haiyang, eine Präsentation des deutschen Buches “Xi Jinpings Biografie” abgesagt hatten. Oster, einer der Autoren des Buches, kritisierte das Konfuzius-Institut als “den langen Arm Pekings in Deutschland”.  Ein anderer Autor behauptete, dass es in China üblich ist,  nicht über nationale Führer sprechen zu dürfen, aber in Deutschland  wird nicht geduldet.  Der Vorfall veranlasste die Bildungsministerin unmittelbar, die Schließung aller Konfuzius-Institute in Deutschland zu fordern.
 
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://xn--%20%7Cgtv%20%20gtv-%20%7Cmos%20talk%20%20%20%7C%20gettr%20%20%20%7Cyoutube%20%20%7C%20discord-kw44l1t1gm8doayup218v624hpazvr1825bzx4emafxdws06012bhtnpta2axu46wua3ayv7960lnaiygzw1416y8vh370k17zmoajzj0ay/)
+Nach Schweden und Norwegen ist dies ein weiteres Land, das sich nicht von der KPCh durch Kulturexport einschränken und manipulieren lassen will.
+
+Originallinks:[Deutsche Bildungsministerin Fordert die Schließung aller Konfuzius-Institute](https://gnews.org/1644549/)
+
+Gepostet von: 呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+**Für weitere Informationen, folgen Sie uns:**
+
+[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**New York MOS Himalaya ****｜****MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**New York MOS Himalaya ****｜****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**New York MOS Himalaya ****｜****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**Free to Join New York MOS Himalaya｜Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
  
 
