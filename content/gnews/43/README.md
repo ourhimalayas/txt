@@ -2,47 +2,24 @@
 ---
 
 
-## 布林肯：若中共攻台，美国和盟友将“采取行动”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1657988/)
+## 恒大集团创始人许家印开始变卖个人房产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1658017/)
 
-作者：英国喜庄园 – I770775
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-2.png)
+（图片源自本文链接）
 
+日本早间电视新闻11月11日消息：据当地媒体报道，陷入困境的中共国房地产巨头恒大集团的创始人已将其家屋抵押给日本金融服务巨头奥瑞克斯（Orix）。
 
+香港媒体也报道称，恒大集团创始人许家印被曝将其第二套豪宅抵押给金融公司奥瑞克斯（Orix）。香港的房子价值约8亿港元，大约合116亿日元。据了解，恒大集团正为一系列的利息支付和偿还债务的资金不足而困扰着。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+还有报道称许家印的另一处房屋也已经被抵押，疑似想以此证明他个人资产的出售可使恒大集团摆脱债务危机。
 
+[信息源](https://news.yahoo.co.jp/articles/0e48d15b863f4d5760cf65790555bb4f69d548a1)
 
-
-11月10日，美国国务卿布林肯在一个论坛上被问及台湾问题时表示，如果中共使用武力改变台湾现状，美国及其盟友将采取“行动”。
-
-布林肯重申了美国政府的一贯声明，即华盛顿既要确保台湾有能力进行自卫，同时也决心确保维护该地区的和平与稳定。
-
-布林肯还说，不只是美国，无论台湾还是其他国家或地区，对于任何使用武力破坏现状的单方面行动，都会采取行动，以保证地区的和平与安全。但布林肯并未透露具体会采取什么行动。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-47.jpg)
-参考链接：
-[美国务卿布林肯称若中国使用武力改变台湾现状 美国和盟友将“采取行动”](https://cn.reuters.com/article/usa-beijing-taiwan-1110-wedn-idCNKBS2HW02Z)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-77.jpg)
 
 
  

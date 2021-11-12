@@ -2,54 +2,32 @@
 ---
 
 
-## 10个州医护人员就强制接种CCP病毒疫苗起诉拜登政府
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1658563/)
+## 中共高调官宣054AP护卫舰交付巴基斯坦，意在政治软维稳
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1658595/)
 
-作者：香草山教育部- Naughty（文行）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_1754.jpg)图片来源：NPR
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/8-2.png)
+[图片来源](https://www.sohu.com/a/441505396_100154227)
 
-由10个州组成的代表医护人员的团体对拜登政府要求美国医护人员接种新冠病毒疫苗提起诉讼，称该强制令是“违宪和非法的”。
+据“中国船舶”官方微信号消息，由中国船舶集团有限公司为巴基斯坦海军设计建造的新型054A/P护卫舰首舰交付仪式日前（11月8日）在上海举行。
 
-在密苏里州司法部长埃里克·施密特和内布拉斯加州总检察长道格·彼得森的领导下，这10个州表示，强制性接种疫苗将导致医护人员短缺，并可能威胁在疫情初期冒着生命危险的“数百万医护人员”的工作。
+据悉，巴基斯坦海军订购的054A/P护卫舰，开建已经近3年，以解放军054A型为底板，升级船电、武器等多项系统而来，是中共迄今为止出口的吨位最大、技术最先进的水面战斗舰艇。
 
-除密苏里州和内布拉斯加州外，来自阿肯色州、堪萨斯州、爱荷华州、怀俄明州、阿拉斯加州、南达科他州、北达科他州和新罕布什尔州的总检察长也加入了诉讼。
+中共官方称，该艘主桅杆顶端雷达升级为SR2410C型S波段全天候多功能相控阵三坐标雷达，以取代海鹰S/C型（Sea Eagle S/C）雷达（改进型国产化“顶板”3D对空搜索雷达）。
 
-“不幸的是，在拜登政府的最新强制令下，去年的医疗保健英雄正在变成今年的失业者。”施密特在一份新闻稿中说：“要求医护人员接种疫苗否则面临解雇是违宪和非法的，可能会加剧医疗保健人员短缺，甚至崩溃。”
+十九届六中全会前后，中共密集官宣所谓各种科技成就，包括航天器、军用飞机上天，各种新型舰船下水，“大国重器”研制成功，等等。10月下旬，中共召开全军装备工作会议，举行了“十三五”装备建设成就展。
 
-他说，他的办公室一直在挑战拜登政府的“非法法令”。
+当前，中共无视国内经济濒临崩溃、社会和民生凋敝的现实，仍旧“一切向权看”，全面围绕“二十大”开展内斗。在十九届六中全会前后，中共一反常态的密集官宣各种科技和装备信息，目的就是稳住思变的人心。
 
-总检察长在诉讼中辩称，这个案件说明了为什么警方对强制接种疫苗的权力一直是各州的管辖范围，现在仍然应当属于各州。
+信息来源：
 
-这一长达58页的诉讼辩称，医疗保险和医疗补助服务中心的疫苗强制侵犯了各州的警察权力，称这违反了几项法案和权利，包括《行政程序法》《社会保障法》《第十修正案》和联邦制度。
+[中船首艘054AP护卫舰交付巴基斯坦雷达比自用型还强|巴基斯坦|护卫舰](https://mil.news.sina.com.cn/china/2021-11-10/doc-iktzqtyu6519384.shtml?cre=tianyi&amp;mod=pcpager_mil&amp;loc=5&amp;r=0&amp;rfunc=4&amp;tj=cxvertical_pc_pager_spt&amp;tr=174&amp;wm=#!/index/1#!/index/1#!/index/1)
 
-诉讼称，CMS疫苗强制无视当地事实，不合理地驳回对劳动力短缺的担忧，危及美国农村的医疗保健利益。
+编辑：东京樱花团/知了知了
 
-9月，拜登总统公布了一系列措施，以应对该国CCP病毒病例激增，宣布医院和其他地方接受医疗保险或医疗补助资金的1亿医护人员必须接种疫苗。
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-76.jpg)
 
-上周，CMS发布了一项临时最终规则，要求在参与医疗保险和医疗补助计划的大多数环境中如医院和卫生系统的医护人员接种CCP病毒疫苗。
-
-新要求于11月5日生效，将适用于大约76,000家供应商。
-
-原文链接：
-
-[https://www.npr.org/sections/coronavirus-live-updates/2021/11/11/1054959986/states-lawsuit-biden-administration-covid-vaccine-mandate-health-workers](https://www.npr.org/sections/coronavirus-live-updates/2021/11/11/1054959986/states-lawsuit-biden-administration-covid-vaccine-mandate-health-workers)
-
-校对/发稿：飞虹
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-3.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 
