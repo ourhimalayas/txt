@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/12/2021 11:52 PM (UTC)`
+
+11/12/2021 Miles Guo: Part of the funding for the building of the defense of the New Federal State of China (NFSC) must come from our fellow fighters; we will ask mercenaries from the US, UK, and Japan to train the future generations of the NFSC, and we will build our own naval, air and space forces; we will release the standards for our military recruitment and training in 3 months<br/><br/>11/12/2021 文贵直播：新中国联邦国防建设的部分资金必须来自战友们；我们将请美英日等国的雇佣军来训练新中国联邦的后代，并建立我们自己的海军、空军和空间部队；我们将在3个月内公布招兵和军训的标准<br/>
+![img](https://media.gettr.com/group42/getter/2021/11/12/23/52/74b0d70c-97d1-ffb8-e128-d1e34bae805e/out.jpg)
+
+---
+
+`@miles 11/12/2021 11:47 PM (UTC)`
+
+11/12/2021 Miles Guo: The key issue of today’s live broadcast is to call on everyone to build the New Federal State of China and safeguard the Chinese people. Although the CCP’s Six Plenary Session has accelerated the demise of the CCP, it increased the level of threat to the Chinese. However, nothing is comparable to the disasters caused by the CCP virus vaccines. The CCP does not represent the Chinese, and the Chinese people deserve to be saved. We shall save more fellow fighters in China<br/><br/>11/12/2021 文贵直播：今天直播最重要的核心是号召大家建设新中国联邦、保护华人。六中全会虽然加速了灭共，但也加大了对华人的威胁，而这一切却都没法跟疫苗灾难相提并论。中共不代表中国人，中国人值得救，我们要拯救更多国内战友！<br/><br/>
+![img](https://media.gettr.com/group5/getter/2021/11/12/23/47/318d2d1a-9d95-bd45-9818-2b511826b06a/out.jpg)
+
+---
+
+`@miles 11/12/2021 11:41 PM (UTC)`
+
+11/12/2021 Miles Guo: The revelation of the truth about the CCP virus and its vaccines by the Whistleblowers’ Movement is the result of the joint efforts from countless fellow fighters and me under the CCP’s threats; Xi Jinping will be held accountable for giving the order to release the CCP virus and pushing the CCP virus vaccines! The New Federal State of China will soon establish its defense and global security system to protect the overseas Chinese around the world!<br/><br/>11/12/2021 文贵直播：爆料革命对中共病毒和疫苗灾难真相的揭露是无数受到中共威胁的战友和文贵的共同努力所换来的；习近平将因其下令放毒和推动疫苗而被追责！新中国联邦将马上建立国防和全球安保系统来保护全世界的华人！<br/>
+![img](https://media.gettr.com/group31/getter/2021/11/12/23/41/e3af84b3-48e7-02f5-9fc4-c87ef050ef35/out.jpg)
+
+---
+
 `@miles 11/12/2021 1:30 PM (UTC)`
 
 ...
@@ -273,27 +294,6 @@ The vaccination disaster has gradually become prominent: The patients in the ICU
 
 泽连科医生：中共病毒人为制造用来维持全球恐慌的生物武器。任何能够治疗COVID-19和威胁到恐惧机制的东西都被边缘化、压制和诋毁，任何反对政府说法的人都会被封杀。它们的全部意义在于利用恐惧促使70亿人去接受注射毒疫苗。<br/><br/>Dr. Zelenko: COVID-19 was artificially made bioweapon to maintain global fear. Anything that could treat COVID-19 and threaten the mechanism of fear was marginalized, suppressed and vilified,  and all people against the government's narrative were deplatformed. The whole point of them was to scare 7 billion people into taking a poison death shot.<br/>
 ![img](https://media.gettr.com/group40/getter/2021/11/08/13/11/425b19c7-2ba9-4815-3a71-d5271d735976/out.jpg)
-
----
-
-`@miles 11/8/2021 1:04 PM (UTC)`
-
-泽连科医生：疾控中心的中共肺炎治疗方案告诉医生，在病人发展成肺部并发症之前不要对其进行治疗。这与数十项研究的观察结果所表明的早期治疗能降低85%的住院和死亡率不符。所以是政府想让人们去死。<br/><br/>Dr. Zelenko: CDC COVID-19 protocols tells doctors not to treat patients until they develop lung complications which is inconsistent with the observations of dozens of studies that show an 85% reduction in hospitalization and death if you treat people early. So the government wants people to die.
-![img](https://media.gettr.com/group14/getter/2021/11/08/13/04/448d13f9-5bb3-a174-c758-292df06d7359/out.jpg)
-
----
-
-`@miles 11/8/2021 12:59 PM (UTC)`
-
-泽连科医生：中共病毒疫苗的推出预示着一场精心策划的大规模种族灭绝<br/><br/>Dr. Zelenko: The Rollout of COVID-19 Vaccines Prefaces a Plotted Mass Genocide<br/>
-![img](https://media.gettr.com/group4/getter/2021/11/08/12/59/55ffb6e7-0a79-ec08-da03-9dc2a273a91d/out.jpg)
-
----
-
-`@miles 11/8/2021 12:48 PM (UTC)`
-
-泽连科医生：中共病毒疫苗会导致死亡和不育，而它所包含的追踪技术将对幸存者实施全球性奴役<br/><br/>Dr. Zelenko: CCP Virus Vaccine Causes Death and Infertility, and the Tracking Technology It Contains Will Impose Global Slavery on Survivors 
-![img](https://media.gettr.com/group14/getter/2021/11/08/12/48/6abccd4e-ec01-d9a9-bbf4-c603c8b9fdef/out.jpg)
 
 ---
 

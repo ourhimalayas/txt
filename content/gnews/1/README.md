@@ -2,32 +2,35 @@
 ---
 
 
-## 加强针疫苗让教师减员，密歇根州镇政府关闭社区学校
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1659673/)
+## 有声|满足三个条件，才能发挥喜联储真正价值
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659711/)
 
-### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5825-9.jpg)**图片来源：The Gazette**
-#### 整理报道：月映万川
-编辑：文泓
+配音：香草山美食部 – 玫瑰园
 
-周一，密歇根州的一个镇政府宣布关闭学校。而这是因为学校的一些员工在接种新冠疫苗加强针后出现“不良反应。”
+文贵先生在11月7日直播中提到，只有以下三个时刻到来之时，喜联储的价值才能真正得以实现。
 
-萨吉诺镇社区学校在其官网上发布的信息显示，由于缺少员工，这一地区的学校自周一起关闭，其中也会影响到课后教育和育儿服务。
+第一，喜马拉雅支付系统全面上线
 
-“我们大量的员工在周末自愿接种了疫苗加强针，但是很多人都出现了不良反应，”学校的公告写到。
+第二，主权机构加入喜马拉雅交易所
 
-目前联邦政府批准给已经接种了辉瑞、莫德纳和强生疫苗的成年人接种疫苗加强针。
+第三，喜联储得到各种执照
 
-原文链接：[Michigan township closes schools due to staff having ‘negative reaction’ to COVID-19 booster shot | News | gazette.com](https://gazette.com/news/michigan-township-closes-schools-due-to-staff-having-negative-reaction-to-covid-19-booster-shot/article_3a8da6b9-1781-54e7-a947-e6904451acec.html)
+文贵先生鼓励所有战友，八仙过海各显神通，推广喜支付。所有G Clubs会员将自动拥有喜支付的代理权。具体的代理章程和合同将会在两个月内确定，并且在全球范围内实施。文贵先生在11月9日盖特直播中，再次强调这三个条件的重要性，希望战友们能够坐稳。
 
-发布：文泓
+文字版原文：[满足三个条件，才能发挥喜联储真正价值](https://gnews.org/zh-hans/1653303/)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+音频处理：喜山必胜Maverick
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

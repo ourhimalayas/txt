@@ -2,40 +2,36 @@
 ---
 
 
-## オーディオブック| ヒマラヤコイン:世界で最もクリーンで最も安全な暗号通貨
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659220/)
+## 澳医协主席威胁不接种疫苗将逃无可逃、孤苦终生
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1659357/)
 
-```
-吹替：ハーブヒル・レコーディング・グループ -蒙古鸿雁
-```
+**【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-1.png)
-2021年11月1日は，全人類の史冊に載せることに値する日である。今日，世界金融の未来を代表するヒマラヤコインが正式に上場した。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/马上使用.jpg)图片来源：clydeco.com
 
-文貴氏は”ブロックチェーン技術を用い，同時に20%の金を固定して，ブレトンウッズ体制に戻るヒマラヤコインが世界で最も安全な通貨になり，ヒマラヤコインが全人類の未来になることができる。同時に，ヒマラヤコインが分散的(非中央主権的)なブロックチェーン技術上，また責任中心化の管理制度を加えたと語った。
+**翻译：Lish
+校对 /编辑：守望黎明 **
 
-上場する前に，最も厳格なKYC審査システムを用い，ヒマラヤコインは世界で最もクリーンの暗号通貨になり，永遠にビットコインやフォビのようなマネーロンダリングツールになることができない。
+澳大利亚医学协会的昆士兰主席在一次电视节目中说，迄今仍然坚持拒绝接种疫苗的人将在他们的余生中活在 “痛苦 “和 “孤独”中。
 
-ヒマラヤコインが上場した一面の歓喜の祝いの中で，文貴氏は新中国連邦人とヒマラヤコインの持ち主達に，中国共産党体制下の汚職官僚、白手袋達(資産の持ち代理人)のように，不浄なお金や出所不明のお金を貪らないように警告した。さもなければ，海南航空会社の陳峰、王健のように，いずれ財産は最後ゼロになり，更に身を殺す禍を招くことになる。冨を尊重し，大切に扱うことによってのみ，自分に冨がもたらすすべてのものを享受させることができる。
+这位克里斯˖佩里主席说：”哦，说实在的。不接种疫苗的人简直是疯了，不接种疫苗生活会很痛苦。”他补充说：”你将无处藏身，没有医生会签字让你得到疫苗豁免，因为有严格的规则，医生是要被审计的。他们签属的每一份疫苗豁免都将被非常仔细地审查。”除了用罚款和解雇威胁医生之外，佩里还威胁那些企图通过造假获得疫苗豁免的人，称如果有人 “试图绕过系统”，他们也将被指控欺诈。
 
-オリジナルテキスト版：[ヒマラヤコイン:世界で最もクリーンで最も安全な暗号通貨](https://gnews.org/1636791/)
+他还说：”如果你不接种疫苗，将很难保住你的工作，你将不能去任何地方进行任何娱乐活动。” 佩里最后说，那些没有完全接种的人将有 “非常、非常孤独的生活”，并且无法维持工作。
 
-オーディオプロセッシング：喜山必胜Maverick
-ポスティングです：呼吸的雾霾（文小呼吸）
+听了上述这番话，现在谁能再说疫苗接种不是强制性的？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+在随后的谈话中，佩里还指责是 “阴谋论者 “使人们对接种疫苗犹豫不决。他说“在社交媒体时代，疫苗引起的轻微头痛或小的严重问题都被无限放大了。”
 
-もっと情報を知りたいなら、私達に注目して下さい
+原文链接：[Aussie Health Chief Says People Who Don’t Get Vaccinated Will Be “Miserable” And “Lonely” For Life | ZeroHedge](https://www.zerohedge.com/political/aussie-health-chief-says-people-who-dont-get-vaccinated-will-be-miserable-and-lonely-life)
 
-[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+*发布：热锅小蚂蚁*
 
-[**New York MOS Himalaya ****｜MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**New York MOS Himalaya ****｜Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**New York MOS Himalaya ****｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**Free to Join New York MOS Himalaya｜Discord**](https://discord.gg/ChqXAHd)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

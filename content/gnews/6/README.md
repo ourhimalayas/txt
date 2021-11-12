@@ -2,52 +2,26 @@
 ---
 
 
-## 中共疫苗灾难致大陆一线医护人员短缺
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1659651/)
+## 东芝公司宣布将拆分成为3家独立企业
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1659662/)
 
-作者：纽约香草山农场 –  四季
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-18.png)[图片来源](https://www.independent.co.uk/life-style/gadgets-and-tech/news/toshiba-laptop-last-quit-computer-business-a9663526.html)
+东芝公司11月12日宣布将拆分为3家独立企业。计划把业务分给基础设施和设备（Device）这2家企业，在2023年度后半期上市；东芝则作为半导体存储器巨头铠侠控股等的股份管理公司继续存在。通过拆分，东芝将完全退出综合电机企业之列。2家新企业将分别专注于各自业务，通过灵活经营谋求生存。日本大企业拆分成3家是罕见的做法，也可能波及其他复合型企业。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+拆分后形成的“基础设施服务公司”将从事核能与火力发电、可再生能源、公共基础设施、面向政府部门和民间企业的IT等业务。“设备公司”将把用于电力控制等的半导体、面向数据中心的大容量硬盘驱动器、半导体生产设备等作为业务范畴。东芝在2家企业拆分出去后，将持有铠侠和东芝TEC的股份。
 
+东芝现有股东能够得到基础设施公司和设备公司的股份，成为包括东芝在内的3家的股东。
 
+拆分复合型企业有成为全球潮流的迹象。美国通用电气公司（GE）也在本月公布了拆分为飞机发动机、医疗设备、电力共3家企业的计划。
 
+信息来源：
 
+[东芝宣布拟于2023年度拆分为3家独立企业](https://china.kyodonews.net/news/2021/11/c0ed46be946f-20233.html)
 
-郭文贵先生在11月10日的大直播中爆料，中共掩盖真实数据，大陆实际死于中共病毒的人数高达 1370万人，罹患中共病毒的人数达到7000万人。目前世界卫生组织公布的全球患中共病毒的2.5亿人和500万人的死亡数据并不包含中共国数据。中共犯下的罪行已经远超纳粹。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1406.jpg)
-
-郭先生透露，中共国一线医护人员因为接种疫苗而患病、住院或死亡。由于医护人员了解病毒及疫苗真相，以致大量医护人员离职，或逃离到附近的日本、越南、新加坡等周边国家，造成医疗行业人员大量短缺，给大陆整个医疗行业带来巨大冲击。
-
-中共病毒给全世界带来深重灾难，每一个数字背后都是一个鲜活的生命，多少家庭因为中共病毒而支离破碎！中共不灭亡，世界永无宁日。
-
-**参考链接：**
-
-[2021年11月10日 文贵大直播：中共六中全会内部报告：中国癌症发病人数第一，与病毒相关性死亡1370万人；香港外籍人士撤离历史新高，大量外汇移出，香港在6个月内成为金融空港；对病毒真相的掩盖造成医疗行业医务人员流失短缺；六中全会就是中共内斗，抓人，习一神要做2件事； – G|TV (gtv.org)](https://www.gtv.org/video/id=618bc611e7e7703792324e25)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-**编辑：AN**
-**校对/发稿：小鹿**
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
 
 
  
