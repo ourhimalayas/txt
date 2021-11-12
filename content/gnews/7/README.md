@@ -2,46 +2,31 @@
 ---
 
 
-## 官方数据显示：过去一个月，89%Covid-19死亡病例都已接种疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1658028/)
+## 中共国政府习近平成为“舵手”
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1658155/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/COVID19Deaths-1200x666-1.jpg)
-
-
-
-图片来源：Credit: David Dee Delgado/Getty Images
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/xi-jinping-inmitten-des.jpg)
 
 
-#### 编译：小红帽
+资料来源：FAZ
 
-最新的英国官方公共卫生数据显示，在过去四周内，完全接种中共病毒（Covid-19）疫苗的人占中共病毒死亡人数的89%，同时也占10月9日至11月5日中共病毒住院人数的77%，占中共病毒疑似病例的65%。
+习近平有了一个新的头衔，这个头衔以前只留给共和国的缔造者毛泽东：舵手。周五在中共中央新闻发布会上，它被授予现任国家元首和党的领导人。 “如果我们牢牢坚持习近平总书记的党的核心地位，中华民族复兴的伟大车轮就会有舵手”。新闻发布会是为习近平作为未来几年无可争议的统治者即位而精心编排的一部分。
 
-[中共病毒统计报告](https://publichealthscotland.scot/media/10091/21-11-10-covid19-publication_report.pdf)( [Covid-19 Statistical Report](https://publichealthscotland.scot/media/10091/21-11-10-covid19-publication_report.pdf))是苏格兰公共卫生局发布的关中共病毒数据的每周报告，[11月10日发布的最新报告](https://publichealthscotland.scot/media/10091/21-11-10-covid19-publication_report.pdf)证实，完全接种疫苗的人群的情况逐月恶化，而未接种疫苗的人群的情况有所改善。
+星期四，经过四天的审议，中央委员会通过了“关于党的伟大成就和历史经验的决议”。它的重要性源于自该党成立以来只有两个这样的决议，上一次是在 40 年前。当前的决议不仅将习近平提升为自己历史时代的缔造者，也将习近平提升为自己“创新哲学”的主谋，这“代表着马克思主义适应中国国情的新突破”。
 
-报告中的表18证实，在2021年10月30日开始的一周内，大多数中共病毒病例是在完全接种疫苗的人群中出现的。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/18.png)
-然而，就住院而言，接种疫苗和未接种疫苗之间的差异变得更大了，至少从2021年7月起，完全接种疫苗的人现在占了中共病毒住院人数的大部分。
+与往常一样，当全会有重要的事情要宣布时，它会分几个步骤进行。周四，该决议获得通过，但并未公布。相反，只有公报形式的预览。周五举行的新闻发布会作为对尚未公布的决议的一种阅读辅助。
 
-报告的表19证实，在2021年10月29日开始的一周里，大多数中共病毒的住院病人属于完全接种疫苗的人群。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/19.png)
-但是，当涉及到据称与中共病毒有关的死亡时，接种疫苗和未接种疫苗之间的差异变得更加严重。
+中共国在世界上的自我隔离，这只是关于历史。中央代表阐述了习近平执政思想的最重要基石。与西方的制度竞争在其中发挥了重要作用。其中一位发言人说，西方民主国家是“资本和富人的统治”。美国人对他们的制度的不满在增加，而中国人对他们的政府的满意度达到了98%。
 
-报告中的表20证实，在2021年10月23日开始的一周内，大多数中共病毒的死亡病例是在完全接种疫苗的人群中发生的。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/20.png)
-由于在完全接种疫苗的人群中，中共病毒的住院人数和死亡人数逐月上升，而未接种疫苗的人群中住院人数和死亡人数持续下降，因此需要对疫苗的有效性和安全性提出进一步质疑。
+另一方面，习近平被描绘成一个凭借“非凡的政治智慧”成功改革中国政治体制的人。中国人对国际认可的需要，是通过让中国“更可信、更可爱、更受人尊敬”来满足。这个提法来自习近平，但他呼吁中国外交官不要避免战斗。
 
-**参考新闻：**[Public Health Data: 89% of Covid-19 Deaths in the Past MONTH Were Among the Fully Vaccinated (humansarefree.com)](https://humansarefree.com/2021/11/public-health-data-89-of-covid-19-deaths-in-the-past-month-were-among-the-fully-vaccinated.html)
+在与美国的斗争中，用中央的话来说，也是“加强中共国在全球话语中的影响力”。这包括虚假宣传活动以及将习近平的“哲学”纳入联合国文件的努力。意识形态的强硬不仅体现在新决议中，还可能加速中共国在世界上的自我孤立。
 
-***发布：小红帽***
+原文链接：[新闻来源：德国法兰克福报 网页版](https://www.faz.net/aktuell/politik/ausland/chinas-regierung-xi-jinping-wird-zum-steuermann-ernannt-17630718.html)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+责任编辑、发布： Shuizhuyu
 
  
 

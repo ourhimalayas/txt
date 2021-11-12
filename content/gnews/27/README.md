@@ -2,12 +2,46 @@
 ---
 
 
-## 面对具体而非笼统的疫苗强制问题时，人们会强烈反对
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1657691/)
+## 针对美中首脑线上会晤 日本关注病毒溯源议题
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1658010/)
 
-11/08/2021 美国大数据专家理查德·巴里斯：当你像媒体民意调查那样询问他们关于疫苗强制令的笼统问题时，他们通常会被误导并选择支持该政策，而当你实际上向美国人提出具体的问题时，他们似乎对很多这些政策都反对；你必须现实具体的提问，告诉他们，他们从这些政策中真正得到了什么，一旦你说清楚，他们就会持否定的态度。
+作者：日本方舟农场 – Andy5
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+关于受世界瞩目的美中首脑下周的线上会晤，美国国务卿布林肯在11月10日正式确认，美国总统拜登与中共领导人习近平将有线上交流。一些消息灵通的媒体则爆料称，双方正在调整会晤时间，有可能定于15日举行。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-5.jpg)
+日本一家媒体公布了布林肯发布相关消息时的视频，视频中，布林肯国务卿透露，本次的议题包含气候变化、病毒溯源等双方存在争论的内容。日本该媒体则着重报道了布林肯在病毒溯源问题上，要求中共国提供帮助并公开必要的情报。分析人士称，这表明近期日本确诊病例数的下降，并没有使它放弃对病毒起源调查的关注，相反这一话题可能成为接下来最被关注的话题之一。
+
+参考链接：
+[20211111日本FNN報導美中即將舉行線上會晤](https://www.gettr.com/post/pgnpl87b55)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

@@ -2,34 +2,31 @@
 ---
 
 
-## 澳洲北领地未接种工作人员面对5000元罚款
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1658001/)
+## 新西兰支持台湾加入CPTPP
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1658128/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
+据《台湾英文新闻》记者：Kelvin Chen，2021年11月9日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-74.png)图片来源：Getty图片
+台北（台湾新闻）——新西兰政府表示，它一直欢迎愿意遵守《跨太平洋伙伴关系全面进步协定》（CPTPP）规则的国家。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/北领地.jpg)图片来源： 盖蒂图像
+新西兰外交和贸易部（MFAT）的一位发言人通过给CNA的书面声明表示，新西兰一直支持包括愿意满足CPTPP高标准的经济体。台湾提交申请后，下一步是由成员国决定是否正式邀请其加入贸易伙伴关系。
 
-**翻译：Sara9 
-编辑：MSGZ**
+在台湾于9月22日提交CPTPP申请后，新加坡驻台北贸易办事处也发表声明称，新加坡“欢迎所有愿意并有能力满足CPTPP高标准的各方”。
 
-澳洲北领地工作人员只剩下一天来打第一针毒疫苗，否则将面临失去工作。
+新加坡贸易办公室表示，一旦CPTPP成员国达成共识，申请人就可以最终加入。
 
-新的卫生条例规定所有和与公众有接触性的工作人员必须在本周五午夜之前打第一针，如果不打，他们将不会被允许去上班，除非有不同的工作安排。 如果他们仍旧坚持上班，他们将会因没有遵守强制卫生条例而面临5000元的罚款，有的人将失去工作。
+此外，任何打算加入的国家都必须与所有现有成员进行双边磋商，以解决任何疑虑，并说服成员国其符合加入贸易协定的所有标准。
 
-第二针需要在12月24日前打完。需要遵守这项北领地强制疫苗条例的包括那些有可能接触到新冠的高危人群， 比如说身体免疫力不强的土著人。
+文章来源：[https://www.taiwannews.com.tw/en/news/4339651](https://www.taiwannews.com.tw/en/news/4339651)
 
-北领地首席部长迈克尔·冈纳 (Michael Gunner) 之前说这项强制力对几乎所有工作者有效。包括零售， 旅游，餐饮， 理发美容， 接待员和银行职员。 它也包括基本工程项目， 安保， 交通， 和运输业员工。 新规定允许雇主要求员工提供疫苗接种证明，并保留存档已经接种疫苗的人的信息。 该条例还提出在2022年，将需要进行第三针加强针疫苗接种。 有些人将被允许豁免打疫苗。
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 柯镇恶
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-原文链接：[www.msn.com](https://www.msn.com/en-au/news/australia/unvaccinated-nt-workers-face-5000-fines/ar-AAQAT8t?ocid=winp1taskbar#comments)
-
-*发布：热锅小蚂蚁*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
