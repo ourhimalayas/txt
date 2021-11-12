@@ -15,134 +15,134 @@
 
 ---
 
-### [文贵大直播11.12.2021：不要等不到馒头熟就掀锅](/content/gnews/1/README.md)
+### [11/12/21 香港快讯 高志活：需亲身来港移走国殇之柱 要求保证不被检控 促港大全力协助](/content/gnews/1/README.md)
+ ` 英喜-粵語組`
+
+### [美国巡回法庭对拜登总统强制疫苗行政令司法审查](/content/gnews/2/README.md)
+ ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
+
+### [文贵大直播11.12.2021：不要等不到馒头熟就掀锅](/content/gnews/3/README.md)
  ` 秘密翻译组-原创组`
 
-### [习近平六中全会树立个人绝对权威](/content/gnews/2/README.md)
+### [习近平六中全会树立个人绝对权威](/content/gnews/4/README.md)
  ` GTV新闻访谈`
 
-### [心理患病学生将被中共重点监控](/content/gnews/3/README.md)
+### [心理患病学生将被中共重点监控](/content/gnews/5/README.md)
  ` GTV新闻访谈`
 
-### [中共整肃民营企业致民企创始人纷纷卸任高管职位](/content/gnews/4/README.md)
+### [中共整肃民营企业致民企创始人纷纷卸任高管职位](/content/gnews/6/README.md)
  ` 日本东京方舟农场`
 
-### [DC每日热点1112](/content/gnews/5/README.md)
+### [DC每日热点1112](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [清华海峡研究院新竹办公室叫停前后各方表态](/content/gnews/6/README.md)
+### [清华海峡研究院新竹办公室叫停前后各方表态](/content/gnews/8/README.md)
  ` G-NEWS TAIWAN`
 
-### [台湾一日内出现六例完整接种疫苗后仍感染中共病毒案例](/content/gnews/7/README.md)
+### [台湾一日内出现六例完整接种疫苗后仍感染中共病毒案例](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [有声| GTV新闻访谈简报-2021年11月10日早](/content/gnews/8/README.md)
+### [有声| GTV新闻访谈简报-2021年11月10日早](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [格陵兰岛禁止中共开采铀矿](/content/gnews/9/README.md)
+### [格陵兰岛禁止中共开采铀矿](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [奥地利将对数百万未接种新冠病毒疫苗的人采取封锁措施](/content/gnews/10/README.md)
+### [奥地利将对数百万未接种新冠病毒疫苗的人采取封锁措施](/content/gnews/12/README.md)
  ` 纽约香草山MOS02`
 
-### [11/12/2021国际财经快讯：喜币价格最高突破27美元；东芝将宣布拆分为三家公司](/content/gnews/11/README.md)
+### [11/12/2021国际财经快讯：喜币价格最高突破27美元；东芝将宣布拆分为三家公司](/content/gnews/13/README.md)
  ` 秘密翻译组金融团队`
 
-### [岸田文雄为何邀请日中友好议员联盟会长入阁？](/content/gnews/12/README.md)
+### [岸田文雄为何邀请日中友好议员联盟会长入阁？](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [税务调查：中共国投资者资金通过加密货币流入日本](/content/gnews/13/README.md)
+### [税务调查：中共国投资者资金通过加密货币流入日本](/content/gnews/15/README.md)
  ` 日本东京方舟农场`
 
-### [封堵华为、中兴设备 拜登签署《安全设备法案》](/content/gnews/14/README.md)
+### [封堵华为、中兴设备 拜登签署《安全设备法案》](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [万事达卡火速进军加密货币](/content/gnews/15/README.md)
+### [万事达卡火速进军加密货币](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭先生：中共病毒口服药比疫苗更可怕](/content/gnews/16/README.md)
+### [郭先生：中共病毒口服药比疫苗更可怕](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [中共高调官宣054AP护卫舰交付巴基斯坦，意在政治软维稳](/content/gnews/17/README.md)
+### [中共高调官宣054AP护卫舰交付巴基斯坦，意在政治软维稳](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共病毒之全球危害远超二战](/content/gnews/18/README.md)
+### [中共病毒之全球危害远超二战](/content/gnews/20/README.md)
  ` 日本东京方舟农场`
 
-### [日本要闻汇编 11月12日](/content/gnews/19/README.md)
+### [日本要闻汇编 11月12日](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [10个州医护人员就强制接种CCP病毒疫苗起诉拜登政府](/content/gnews/20/README.md)
+### [10个州医护人员就强制接种CCP病毒疫苗起诉拜登政府](/content/gnews/22/README.md)
  ` 纽约香草山MOS02`
 
-### [墙内要闻汇编 11月12日](/content/gnews/21/README.md)
+### [墙内要闻汇编 11月12日](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [为人权倾覆中共弱鸡政权](/content/gnews/22/README.md)
+### [为人权倾覆中共弱鸡政权](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：中共国的假“鸡血节”——双十一](/content/gnews/23/README.md)
+### [秘翻在线：中共国的假“鸡血节”——双十一](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [私人企业家还能活吗](/content/gnews/24/README.md)
+### [私人企业家还能活吗](/content/gnews/26/README.md)
  ` 骄子`
 
-### [中共国人口出生率再创历史新低](/content/gnews/25/README.md)
+### [中共国人口出生率再创历史新低](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [谁的命更重要？](/content/gnews/26/README.md)
+### [谁的命更重要？](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：英国的疫苗强制令可能迫使12.3万人离开卫生保健行业](/content/gnews/27/README.md)
+### [秘翻在线：英国的疫苗强制令可能迫使12.3万人离开卫生保健行业](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [20211112 澳喜要闻摘要](/content/gnews/28/README.md)
+### [20211112 澳喜要闻摘要](/content/gnews/30/README.md)
  ` 澳喜农场`
 
-### [家喻户晓的海底捞年内将关闭300个店铺](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [苏格兰89%的中共病毒死亡来自完全接种疫苗人群](/content/gnews/30/README.md)
+### [苏格兰89%的中共病毒死亡来自完全接种疫苗人群](/content/gnews/31/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [文·贵天成——文贵先生谈“沈南鹏”（二）](/content/gnews/31/README.md)
+### [文·贵天成——文贵先生谈“沈南鹏”（二）](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [网传招商银行全面退出对公房地产贷款，中共金融系统试图断臂求生](/content/gnews/32/README.md)
+### [网传招商银行全面退出对公房地产贷款，中共金融系统试图断臂求生](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [班农专访3: 强制疫苗令会被收回](/content/gnews/33/README.md)
+### [班农专访3: 强制疫苗令会被收回](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农专访1: 拜登的总统任期已经结束](/content/gnews/34/README.md)
+### [班农专访1: 拜登的总统任期已经结束](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [根特大学医院的重症室都是接种过疫苗的病人](/content/gnews/35/README.md)
+### [根特大学医院的重症室都是接种过疫苗的病人](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [福奇在国会撒谎](/content/gnews/36/README.md)
+### [福奇在国会撒谎](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [医生亲身经历：深受疫苗伤害，却被多方欺骗推诿卸责](/content/gnews/37/README.md)
+### [医生亲身经历：深受疫苗伤害，却被多方欺骗推诿卸责](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
-### [外资人民币债券增量暴跌九成，再不跑就来不及了](/content/gnews/38/README.md)
+### [外资人民币债券增量暴跌九成，再不跑就来不及了](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本岸田内阁将颁布新的经济政策](/content/gnews/39/README.md)
+### [日本岸田内阁将颁布新的经济政策](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [沈南鹏被抓，到处变卖资产已套现百亿](/content/gnews/40/README.md)
+### [沈南鹏被抓，到处变卖资产已套现百亿](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [蓬佩奥国务卿再次强调习会因冬奥会膨胀，拜登政府需要下决心、建立威慑力](/content/gnews/41/README.md)
+### [蓬佩奥国务卿再次强调习会因冬奥会膨胀，拜登政府需要下决心、建立威慑力](/content/gnews/42/README.md)
  ` GTV新闻访谈`
 
-### [币圈新闻动态：喜币（HCN）稳步突破27HDO](/content/gnews/42/README.md)
+### [币圈新闻动态：喜币（HCN）稳步突破27HDO](/content/gnews/43/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [恒大集团创始人许家印开始变卖个人房产](/content/gnews/43/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [中共历史上三个重要决议的比较](/content/gnews/44/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
