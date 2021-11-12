@@ -16,6 +16,8 @@
 ---
 ## 頁面 8/37 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [37](/content/README-37.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年11月14日郭文贵先生直播视频](/content/2020/11/20201123-6996095476462078865.md)
+
 [文字版：2020年11月11日郭先生GTV直播](/content/2020/11/20201123-7347289394080256961.md)
 
 [文字版：2020年11月9日郭文贵先生直播视频](/content/2020/11/20201123-4992453587105006549.md)
@@ -63,8 +65,6 @@
 [文字版：2020年8月29日郭先生GTV直播连线慕尼黑游行战友](/content/2020/09/20200909-338859917891209839.md)
 
 [文字版:2020年8月29日郭先生GTV直播连线洛杉矶游行战友](/content/2020/09/20200909-7173794072330822470.md)
-
-[文字版:2020年8月28日郭先生GTV直播连线澳喜农场  ](/content/2020/09/20200909-625122146730580835.md)
 
 
 ## 頁面 8/37 [**<**](/content/README-7.md) [1](/content/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [37](/content/README-37.md) [**>**](/content/README-9.md) [查看全部](/content/README-all.md)
