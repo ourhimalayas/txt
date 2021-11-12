@@ -2,35 +2,34 @@
 ---
 
 
-## 税务调查：中共国投资者资金通过加密货币流入日本
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1658612/)
+## 格陵兰岛禁止中共开采铀矿
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1658732/)
 
-#### 撰稿：日本东京方舟农场  海星
+作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月11日，据媒体消息称，格陵兰岛国会近日通过新法，禁止铀矿开采，并停止开发该岛南部的稀土矿藏。消息提及，这一法案对中共北极战略造成重大打击。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-41.jpg)
+据报道，中共为推广“一带一路”北极战略，长期支持由中资企业控股的公司在格陵兰岛开采稀土。为此，中共公司准备了高达1亿美元的投资继续运营格陵兰岛的矿业开采项目。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5972FFD8-D2C7-4819-837A-192B4CBE8402.jpeg)（图片来源：https://assets-coincheck.s3.amazonaws.com/uploads/article/image/file/5eadbb64-0676-4f1d-bd24-8268bbbd0692.jpeg）
+目前，该项目在格陵兰岛引起了激烈争议。格陵兰人担心，继续开采该矿区会对自然环境和耕种土地造成辐射污染，同时会影响捕鱼、养羊及旅游业，更为重要的是，项目会使格陵兰岛的碳排量增加45%。
 
-据《朝日新闻》11月11日报道，日本东京税务局近日在调查中发现，高达270亿日元的中共国投资者资金通过加密货币流入了该国。
+因此，组成格陵兰岛联合政府的因纽特人共同体党和纳雷拉克党都反对中共继续开发矿业项目，并表示，格陵兰人不是不想采矿，而是不想进行“肮脏的采矿”，即拒绝中共染指当地的稀土与铀矿项目。
 
-该报道称，日本东京税务局在对东京台东区一家摄影工作室进行税务欺诈调查时发现，这家公司还在一家加密资产交易所开设了账户，从事将中共国发送出来的加密资产兑换成日元的业务。截止到2019年3月，三年内，该公司将中共国内发送出来的价值270亿日元的加密货币（比特币）兑换成了日元，并收取部分转换金额作为佣金。
+参考链接：[格陵兰岛通过禁采铀矿新法 中企垄断稀土梦断](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-11112021092431.html)
 
-该报道还披露，这家公司通过微信与中共国内的3位中介人对接，接收加密货币兑换指令，而这些交易并没有记录在账本上。据悉，这3位中介人从意欲在日本投资的中共投资者处收取人民币，然后将其转换成比特币后发送给运营商。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-东京税务局表示，加密货币可能会被用来逃税，目前正在对此加强审查。
+总编：文徬
+编辑：Irene木木
+校正/发稿：Fei797
 
-注：本文仅代表作者观点
-
-*参考链接：[https://news.yahoo.co.jp/articles/4848dad03f58c434f0b86b8be6ec546f08152883](https://news.yahoo.co.jp/articles/4848dad03f58c434f0b86b8be6ec546f08152883)*
-
-* * *
-
-
-```
-素材采编：海星
-编辑：青衣青青
-发布：miumiu
-```
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

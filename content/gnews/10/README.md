@@ -2,32 +2,40 @@
 ---
 
 
-## 有声| GTV新闻访谈简报-2021年11月10日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1658789/)
+## 中共整肃民营企业致民企创始人纷纷卸任高管职位
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1658832/)
 
-配音：香草山教育部 – 蒙古鸿雁
+#### 作者：日本东京方舟农场 子辰
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-109-1280x172-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9D40341E-CE2A-40CC-AE5E-AEC9B6797860.jpeg)图片来自网络
+
+近期以来，随着中共监管机构对民企展开整肃运动，一些知名民营公司创始人纷纷离开了公司高管职位。
+
+据《大纪元》11月12日报道，中共当局近期多次公开提及所谓“共同富裕”，计划实行调整过高收入及“鼓励高收入群体和企业更多地回馈社会”计划。对此，中共国的民营企业家和科技领域的高管们非常“识趣”，包括刚刚卸任的比亚迪创始人王传福、腾讯创始人马化腾、美团创始人王兴、字节跳动创始人张一鸣等在内的企业大佬，纷纷“主动”献上巨额捐款。
+
+然而，在中共的整肃之风下，这些民营企业家即便捐了巨款，仍不能换得平安。大批知名民企高管先后主动或被动地卸任高管职位，交出了手里的管理权。
+
+据“天眼查”App显示，近日武汉比亚迪汽车有限公司发生多项工商变更，王传福卸任法定代表人及董事长，由何龙接任。
+
+另据《路透社》近期援引知情人士消息披露，字节跳动创始人张一鸣也已卸任该公司董事长，由梁汝波接任。而张一鸣此前已于今年5月宣布辞去首席执行官（CEO）一职。
+
+短视频平台“快手”也发布公告称，现年39岁的公司联合创始人宿华辞去CEO一职，由联合创始人程一笑接任该职。
+
+此外，三大电商——京东、拼多多和阿里巴巴的创始人也都已先后卸任董事会职位，并将管理权全部移交。
+
+注：本文仅代表作者观点
+
+*新闻链接： [https://www.epochtimes.com/gb/21/11/11/n13370438.htm](https://www.epochtimes.com/gb/21/11/11/n13370438.htm)*
+
+* * *
 
 
+```
+素材采编：子辰
+编辑：青衣青青
+发布：miumiu
+```
 
-
-
-**文字版原文：[GTV新闻访谈简报|2021年11月10日早](https://gnews.org/zh-hans/1653567/)**
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

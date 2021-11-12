@@ -2,51 +2,34 @@
 ---
 
 
-## 蓬佩奥国务卿再次强调习会因冬奥会膨胀，拜登政府需要下决心、建立威慑力
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1658066/)
+## 日本岸田内阁将颁布新的经济政策
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1658131/)
 
-作者：日本方舟农场 – Andy5
+#### 撰稿: 东京京樱花团/麗子(译)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-60.jpg)[图片源](https://www.nippon.com/ja/japan-data/h01165/)
+［东京，11月12日（路透社）］——政府公布了将于19日由内阁批准的经济刺激主要方案。一些政府消息人士透露，这些措施包括加强卫生保健系统和确保治疗中共病毒的药物（政府已将其确定为首要任务），以及如何应对全球高油价。
 
+经济措施将基于以下：1）防止中共病毒的继续扩散；2）在与中共病毒共存中，恢复社会经济活动，并彻底落实危机管理工作；3）启动新资本主义，开辟未来社会；4）确保人民的安全和安心生活。日后会发布有关财政支出，企事业规模要求等的具体方案。
 
+在防治中共病毒的措施方面，除了扩充提供医疗服务的系统外，还包括支持企业的措施，如为被要求休业的餐馆提供补助金，继续为企业提供资金支持等。此外，还包含应对石油价格飙升的措施。对于普通家庭，采取对低收入家庭的补助和对学生的紧急特殊补助金等措施。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+另一方面，在与病毒共存下恢复社会经济活动一项，将包括恢复名为“GoTo Travel”的旅游需求刺激计划，并将为开展相关活动的团体提供支持。
 
+首相岸田文雄推出的“新资本主义”计划，包括一个10万亿日元的大学基金，作为使日本成为一个科技强国的战略的一部分。并促进清洁能源汽车的引进，以及确保一个国内蓄电池的生产基地。
 
+继续推动数字化新型都市的国家理念和再次推进“个人编号”的申请工作。在经济安全领域，除了确保国内先进半导体生产基地外，还计划引入一项重要的经济安全技术开发计划。
 
-11月10日，美国前国务卿蓬佩奥在媒体接受采访时，再次警告如果明年北京冬奥会成功举办，会让习的国际地位达到巅峰。
+分配战略的核心是，对提高劳动者所得比例的企业，在税收政策方面予以支持。还包括对看护，护理，育儿人员的收入改善措施以及对有18岁以下孩子的家庭予以补助等。
 
-特别是当习看到美国在阿富汗抛弃本国公民时，他看到的是美国政府和领导人的不认真和无能，认为美国正在衰落，正在丢掉领导地位，变得没有威慑力。
+为了确保国民的安全和安心生活，除了强调提高防灾•减灾等国家抗灾能力之外，还提出了“根据不断变化的国际形势确保国家安全”一项。
 
-借此，在即将举行的拜习视频会晤前，蓬佩奥国务卿再次敲打拜登政府，督促其下决心，并重建川普政府四年所建立起来的威慑力。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-37.jpg)
-参考链接：
-1.[20211110蓬佩奧國務卿接受Sean Hannity採訪](https://www.gettr.com/post/pgn4u99d59)
-2.[Pompeo: Xi and the CCP will certainly attack Taiwan if US shows weakness.](https://gettr.com/post/pgjqv8cb00)
+信息源：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+[新型コロナ感染抑止へ経済対策、原油高対応も明記＝政府筋](https://news.yahoo.co.jp/articles/12d919c413ab5443580c2617a97762666e7aad8f)
 
-总编：飞虹
-编辑：文特
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
