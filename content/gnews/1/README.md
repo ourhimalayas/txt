@@ -2,34 +2,28 @@
 ---
 
 
-## 有声|新华社造神 引发海内外群嘲
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1657104/)
+## 拜登政府的疫苗强制接种规定正面临法律诉讼
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1657130/)
 
-配音：香草山美食部 – 玫瑰园
+采编：风云小哥      编译撰稿：文莱
 
-11月6日，在中共十九届六中全会召开前夕，中共党媒新华社发表了《习近平带领百年大党奋进新征程》的万字特稿，为党魁习近平二十大连任造势。其对习近平的吹捧空前狂热，引来墙内网友和海外媒体的一片嘲讽。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-34-edited.jpg)图片来源：THM
 
-特稿将习近平描述为“像爱父母那样爱老百姓”“众望所归的领导核心”等。
 
-有网友评论说，习近平父亲的陵园占地多达四万亩，而老百姓绝大多数连一块几平方米的墓地都买不起，这也叫爱老百姓如爱父母吗？
+据《大纪元时报》11月9日纽约报道，已从“新冠病毒”感染中康复的美国联邦政府工作人员，因疫苗强制接种政策而正在对福奇及其他政府官员提起集体诉讼。
 
-还有网友评论说，中国人民从来就没有投票权，更没有言论自由，明明是一个独裁者，“众望所归”谈何而来?
+据悉，该诉讼控告联邦政府对因感染该病毒而产生自然免疫力的已康复人员未提供任何接种豁免例外，而且总统的行政命令与其解释条例并未向公众解释为何自然免疫力不能成为疫苗接种的替代方案。
 
-也有外媒对此评论：新华社小心造神。为取得国际社会认可，居然还自作主张借外媒和外国专家之口为习近平点赞，实在是令人啼笑皆非。
+原告方认为，“新冠病毒”疫苗强制接种政策违反了《行政程序法》，该法允许法院推翻被其视为“任意滥用自由裁量权”的政府法规。因为根据近期研究表明：“新冠病毒”感染幸存者具有足以抵御再次感染该病毒的免疫能力。
 
-文字版原文：[新华社造神 引发海内外群嘲](https://gnews.org/zh-hans/1650182/)
+该诉讼提名包括：担任国家【过敏和传染病研究所】所长福奇，【疾病控制和预防中心】主任瓦伦斯基，以及协调白宫“新冠病毒”疫情应对小组的负责人等。截至目前，被告的拜登政府和相关机构都没有对以上评论作出回应。
 
-音频处理：喜山必胜Maverick
+* * *
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://www.theepochtimes.com/mkt_morningbrief/naturally-immune-federal-workers-lodge-class-action-suit-against-fauci-walensky-over-covid-19-vaccine-mandate_4094551.html?utm_source=morningbriefnoe&amp;utm_medium=email&amp;utm_campaign=mb-2021-11-10&amp;mktids=ba99a164b2af98ef82003b63f78eac7e&amp;est=hoPSSKpM8o4OU9mpEMzfbnFQaIFfVz1SmtubNTSGleR1NcxZrw9RGgOSoIPi2TKe02UZEFXmlg%3D%3D)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
