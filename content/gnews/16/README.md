@@ -2,36 +2,39 @@
 ---
 
 
-## 澳医协主席威胁不接种疫苗将逃无可逃、孤苦终生
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1659357/)
+## 万事达卡在亚太地区推出比特币支付卡
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1659426/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
+**据《Zero》记者Tyler Durden 2021 年 11 月9日报道：**
+**由“Namcios”通过 BitcoinMagazine.com 撰写。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/ae4ct-whooo.jpg)
+这家卡巨头与该地区的三个比特币服务提供商合作，使消费者能够在任何接受万事达卡服务的地方使用比特币：
+• 亚太地区的消费者和企业现在可以申请与比特币挂钩的万事达信用卡、借记卡和预付卡。
+• 这家卡巨头与加密货币服务提供商Amber、Bitkub和CoinJar 合作，使客户能够使用BTC支付常规购买费用。
+• 在后端，用户帐户中的加密货币会立即转换为法定货币以允许付款。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/马上使用.jpg)图片来源：clydeco.com
+该公司在11月8日的一份声明中表示，卡巨头万事达卡已与加密货币服务提供商Amber Group、Bitkub和CoinJar合作，在整个亚太地区提供与比特币相关的支付卡 。这些公司是首批加入的亚太地区卡发行商的全球加密卡计划平台，旨在让比特币和加密货币公司更容易向其客户提供支付卡。
 
-**翻译：Lish
-校对 /编辑：守望黎明 **
+公告称，“亚太地区的消费者和企业将首次能够申请与加密相关的万事达信用卡、借记卡或预付卡，这将使他们能够立即将加密货币转换为传统的法定货币，可以在万事达卡的任何地方使用。被全世界所接受。”
 
-澳大利亚医学协会的昆士兰主席在一次电视节目中说，迄今仍然坚持拒绝接种疫苗的人将在他们的余生中活在 “痛苦 “和 “孤独”中。
+持卡人将能够通过发卡机构和比特币服务提供商之间建立的安排，使用他们的万事达卡，这需要从用户的账户中扣除相应数量的BTC或其他加密货币，并立即转换为法定货币。
 
-这位克里斯˖佩里主席说：”哦，说实在的。不接种疫苗的人简直是疯了，不接种疫苗生活会很痛苦。”他补充说：”你将无处藏身，没有医生会签字让你得到疫苗豁免，因为有严格的规则，医生是要被审计的。他们签属的每一份疫苗豁免都将被非常仔细地审查。”除了用罚款和解雇威胁医生之外，佩里还威胁那些企图通过造假获得疫苗豁免的人，称如果有人 “试图绕过系统”，他们也将被指控欺诈。
+“加密货币对人们来说是新东西——投资、颠覆性技术或独特的金融工具。万事达卡亚太区数字和新兴合作伙伴关系执行副总裁Rama Sridhar表示：随着各方的兴趣和关注度激增，它们的实际应用程序现在已经超出了投机范围。
 
-他还说：”如果你不接种疫苗，将很难保住你的工作，你将不能去任何地方进行任何娱乐活动。” 佩里最后说，那些没有完全接种的人将有 “非常、非常孤独的生活”，并且无法维持工作。
+7月，万事达卡宣布为比特币和加密货币公司创建一种简化的支付卡产品。该产品旨在通过帮助促进BTC和法定货币之间的转换来减少交易体验中的摩擦，为消费者提供更多选择。
 
-听了上述这番话，现在谁能再说疫苗接种不是强制性的？
+“与这些遵守万事达卡相同核心原则的合作伙伴合作—万事达卡正在扩大加密货币的可能性，为人们提供更多的选择和支付方式的灵活性。”
 
-在随后的谈话中，佩里还指责是 “阴谋论者 “使人们对接种疫苗犹豫不决。他说“在社交媒体时代，疫苗引起的轻微头痛或小的严重问题都被无限放大了。”
+**文章来源：**[https://www.zerohedge.com/crypto/mastercard-launches-bitcoin-payment-cards-asia-pacific](https://www.zerohedge.com/crypto/mastercard-launches-bitcoin-payment-cards-asia-pacific)
 
-原文链接：[Aussie Health Chief Says People Who Don’t Get Vaccinated Will Be “Miserable” And “Lonely” For Life | ZeroHedge](https://www.zerohedge.com/political/aussie-health-chief-says-people-who-dont-get-vaccinated-will-be-miserable-and-lonely-life)
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+编辑：洛杉矶盘古农场 – 心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-*发布：热锅小蚂蚁*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

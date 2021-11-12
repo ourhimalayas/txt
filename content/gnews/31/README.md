@@ -2,38 +2,35 @@
 ---
 
 
-## 银河快讯：日本强烈要求中共国保持克制；中小企业250万日元新支援方案
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1659138/)
+## 俄亥俄州三名法官接种疫苗后相继死亡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1659161/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-53.png)[图片来源](https://www.voachinese.com/)
-**1.****日本外务省强烈要求中共国保持克制**
+作者：纽约香草山教育部 – 正义的小新
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，美国媒体消息称，俄亥俄州凯霍加郡的三名法官在接种新冠疫苗后相继死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-13-上午1.26.02.png)
+此前，俄亥俄州曾使用各种手段试图强行推进该州的新冠疫苗接种率。报道称，该州汉密尔顿县的法官曾要求当地罪犯，作为“社区控制”或缓刑释放的一部分，罪犯必须在60天内接受新冠疫苗接种。
 
-[据NHK 11月11日报道，日本和中共国外交部官员就海事问题举行了会谈，日方对中共海警局的船只和海军舰艇在日本周边水域的活动增加一再表示关切，并强烈要求保持克制。船越亚洲和大洋洲事务局局长对中共海警局的船只每天都在冲绳县尖阁诸岛附近的水域航行，以及中共国和俄罗斯海军舰艇上个月首次同时通过津轻海峡和大隅海峡表示关切并且强烈要求中共方的克制。同时，双方同意努力尽早建立一条高级国防官员之间直接沟通的热线，以防止自卫队和中共军队之间发生意外冲突。](https://www3.nhk.or.jp/news/html/20211111/k10013343251000.html)
+另一方面，在俄亥俄州大面积推广新冠疫苗接种后，疫苗灾难也在逐渐显现。消息显示，三名俄亥俄州的法官分别于9月28日、10月2日，以及10月7日死亡。医疗记录表明，为了维持他们的工作，这三名法官均在数日前接种了新冠疫苗。
+评论人士称，将新冠疫苗与就业，甚至量刑挂钩是不恰当的，就医疗程序而言，这是一种强制行为。
 
-**2.****中小企业将获得最大250万日元的新支援方案**
+参考链接：
+1）[Three Ohio judges “die unexpectedly” in nine-day span after vaxx mandate in Cuyahoga County](https://thecovidblog.com/2021/10/24/three-ohio-judges-die-unexpectedly-in-nine-day-span-after-vaxx-mandates-in-cuyahoga-county/)
+2）[Get a Covid-19 Vaccine or Face Prison, Judges Order in Probation Cases](https://www.nytimes.com/2021/08/09/us/ohio-judge-covid-vaccine.html)
 
-[据NHK 11月10日报道，作为其经济措施的支柱之一，日本政府正在讨论给予中小企业新的支援方案。受中共病毒影响的中小企业将有资格获得该支援，无论企业类型如何，根据企业规模，最多可获得250万日元的补贴。它不仅将支付给月销售额与前一年或两年前的同期相比下降了50%以上的企业，还将支付给那些销售额下降了30%以上的企业。](https://www3.nhk.or.jp/news/html/20211110/k10013343151000.html?utm_int=all_side_ranking-social_001)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-**3.****岸田表示全力以赴推进第三针以及提高工资**
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-[据NHK 11月10日报道，第二届岸田内阁就职后，于10日晚间召开新闻发布会，强调他打算让所有18岁以上愿意接种的人都能接种第三针疫苗，并制定价值数十万亿日元的新经济措施，尽最大努力提工资。他表示，应对疫情仍然是首要任务。他将在本月底前建立一个医疗系统，允许35000人住院，比今年夏天多30%。](https://www3.nhk.or.jp/news/html/20211110/k10013343011000.html)
-
-**4.****日本将在11月底前将提高30%医院接收能力**
-
-[据共同社 11月10日报道，日本政府周三表示，计划在11月底前增加医院对中共病毒患者的接待能力，以容纳超过35,000人，与今年夏天病毒复发时的水平相比增长30%。如果出现另一波感染，将对无症状病例进行免费检测。在可能出现新的感染浪潮之前，首相将美国制药公司默克公司开发的口服治疗药物描述为阻止这一流行病的“王牌”，并说：“我们的目标是在年内投入使用口服药物。”](https://english.kyodonews.net/news/2021/11/7c4dbdbe066b-japan-to-raise-covid-19-hospital-capacity-30-by-end-of-november.html)
-
-**5.****前首相安倍晋三将成为自民党最大派别会长**
-
-[据NHK 11月10日报道，前自民党首相安倍晋三表示，他将接受细田派领导人提出的重返该派别并成为其会长的请求。预计细田派在11月11日安倍的正式就任后将成为 “安倍派”。自民党最大的派别细田派9日确认，由于担任该派别会长的前秘书长细田在成为众议院议长后将卸任，该派别将要求前首相安倍重返该派别并接任会长职务。](https://www3.nhk.or.jp/news/html/20211110/k10013341981000.html?utm_int=all_side_ranking-social_002)
-
-**6.****岸田内阁解散并组建第二届内阁**
-
-[据NHK 11月10日报道，岸田首相将在下午举行的众议院全体会议上当选为第101任首相，预计岸田第二次内阁将在10日内正式启动。继前外相茂木被任命为自民党干事长之后，岸田首相又任命岸田派的前外相林义正为新任外相，鉴于内阁成立仅一个多月，其他部长将维持原职。在此之后，预计岸田首相将在下周19日编制一份新的经济刺激方案，其中包括为18岁以下的人提供价值10万日元的福利，然后在下个月召开一次特别国会会议，目的是迅速通过包括经济措施在内的本财政年度补充预算法案。](https://www3.nhk.or.jp/news/html/20211110/k10013341361000.html?utm_int=news-politics_contents_list-items_016)
-
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Tagomi
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
