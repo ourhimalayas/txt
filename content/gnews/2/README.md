@@ -2,27 +2,33 @@
 ---
 
 
-## 政府数据：英格兰有数万人因接种疫苗而病亡
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1657116/)
+## 澳总理反对取消未接种疫苗者的公费医疗
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1657154/)
 
-采编：UCool优酷       编译撰稿：苦尽甜来 (文来）
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/180823134351-01-scott-morrison.jpg)图片来源：CNN
+**翻译：**月映万川
+**编辑：**翼族
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-7-edited.jpeg)图片来源：TNE
+澳大利亚总理斯考特·莫里森近日表示，当未接种疫苗者感染新冠病毒后，联邦政府不会剥夺他们享有公费医疗的权利。
 
+在周二的新闻发布会上，莫里森说：“我们的国家不会因为某些人的选择，而妖魔化这一特定人群。当然，我们希望所有人都接种疫苗，但我们不会使用这样极端的方法。”
 
-据英格兰自媒体《The Expose》11月10 日报道，【英国国家统计局】最新官方数据显示，在2021年的前 8 个月内，该国约有36000人在接种 “新冠病毒”疫苗后的21天内死亡。
+澳总理的上述评论，针对的是新南威尔士州前州长鲍勃·卡尔推特的相关言论。鲍勃·卡尔在其推特里写到：“我们（澳大利亚）应该跟随新加坡的脚步，停止为未接种疫苗人士提供免费的新冠治疗和住院费用。你们忽视了病毒的严重性，那你们就要为你们的愚蠢付出代价。”
 
-此前，该统计局曾发布虚假报告试图让公众相信，大多数因“新冠病毒”感染而死亡的病例都发生在未接种疫苗的人群中。但该报告中使用的日期参数却是今年初，英国尚未开始大规模接种该疫苗期间，所发生的大量病毒感染死亡案件。
+莫里森表示政府尊重个人在疫苗问题上的选择权利，莫里森说：“作为联邦政府，我们没有强制疫苗政策，我们也尊重个人选择。”
 
-尽管如此，从当局最新的统计数据中却不难发现，在 2021 年 10 月 4 日至10月31日期间死于该病毒感染的患者中，有 83%的人实际上已接种了“新冠病毒”疫苗。此外，最新数据还显示出，约有25000人在接种该疫苗后 21 天或更长时间内病亡。
+目前，澳大利亚在其16岁以上人口中，第一剂疫苗接种率在90%，而完全接种人口已经达到了82%。
 
-所有以上结果都无疑揭露了政府试图通过数据欺骗手段，以使公众相信该疫苗可以预防死亡。
+**原文链接：**[Scott Morrison rejects stripping Medicare benefits from unvaccinated COVID-19 patients](https://amp.sbs.com.au/eds/news/article/scott-morrison-rejects-stripping-medicare-benefits-from-unvaccinated-covid-19-patients/b49195b9-cf00-4509-a7fc-bc7f7633a207?amp=1)
 
-* * *
+*发布：翼族*
 
-校对编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://theexpose.uk/2021/11/10/breaking-35924-people-died-within-21-days-of-having-a-covid-19-vaccine-in-england-during-the-first-8-months-of-2021-according-to-ons-data/)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

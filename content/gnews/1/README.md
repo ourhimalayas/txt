@@ -2,28 +2,41 @@
 ---
 
 
-## 拜登政府的疫苗强制接种规定正面临法律诉讼
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1657130/)
+## 强迫美国人接种疫苗不久将会是非法
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1657165/)
 
-采编：风云小哥      编译撰稿：文莱
+**—-俄克拉荷马州代表提交法案禁止在该州强制接种疫苗**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-34-edited.jpg)图片来源：THM
+翻译：真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gann-Tom.jpg)图片来源：网络
+来自福克斯(FOX NEWS) 星期四十一月十一日的新闻报道：俄克拉荷马州一名立法者提交了一项法案，旨在禁止该州的任何 COVID-19 强制疫苗令。
 
+州众议员汤姆·江恩 (R-Inola) 本周提交了众议院法案 1003X，绰号“自由法案”，以结束他称谓的“令人震惊的滥用权力”，此前他收到了无数因疫苗强制令而面临失业的选民的电话 .
 
-据《大纪元时报》11月9日纽约报道，已从“新冠病毒”感染中康复的美国联邦政府工作人员，因疫苗强制接种政策而正在对福奇及其他政府官员提起集体诉讼。
+“在俄克拉荷马州成功地与制药商达成具有里程碑意义的阿片类药物和解协议之后，难以想象任何雇主会要求员工接受来自同一行业的 EUA 注射，”江恩说。
 
-据悉，该诉讼控告联邦政府对因感染该病毒而产生自然免疫力的已康复人员未提供任何接种豁免例外，而且总统的行政命令与其解释条例并未向公众解释为何自然免疫力不能成为疫苗接种的替代方案。
+江恩回应了一个熟悉的论点，即该疫苗尚未获得完全批准，仍作为紧急使用授权的一部分。 辉瑞疫苗已获得联邦药物管理局 (FDA) 的批准，但目前可能尚未广泛使用。
 
-原告方认为，“新冠病毒”疫苗强制接种政策违反了《行政程序法》，该法允许法院推翻被其视为“任意滥用自由裁量权”的政府法规。因为根据近期研究表明：“新冠病毒”感染幸存者具有足以抵御再次感染该病毒的免疫能力。
+据 KTUL 报道，“自由法案”复制了伊利诺伊州的一项法律，该法律将保护抵制强制药物注射的员工。
 
-该诉讼提名包括：担任国家【过敏和传染病研究所】所长福奇，【疾病控制和预防中心】主任瓦伦斯基，以及协调白宫“新冠病毒”疫情应对小组的负责人等。截至目前，被告的拜登政府和相关机构都没有对以上评论作出回应。
+“当这种滥权发生在俄克拉荷马州时，我们必须站出来保护个人自由，”江恩在一份声明中说。
 
-* * *
+据KFOR报道，江恩今年 7 月和众多共和党州议员一道，签署致俄克拉荷马州州长凯文·斯蒂特 (Kevin Stitt) 一封信，要求采取行政行动禁止向州医疗工作者强制接种疫苗。
 
-校对编辑，发稿：硫酸羟氯喹64
+“这些员工是站在大流行前线的英雄，他们照顾那些因 COVID-19 而生病的人。保护这些员工的最快和最有效的方法是颁布行政命令禁止疫苗强制令，”这封信由 20 名代表签署。
 
-[原文链接：](https://www.theepochtimes.com/mkt_morningbrief/naturally-immune-federal-workers-lodge-class-action-suit-against-fauci-walensky-over-covid-19-vaccine-mandate_4094551.html?utm_source=morningbriefnoe&amp;utm_medium=email&amp;utm_campaign=mb-2021-11-10&amp;mktids=ba99a164b2af98ef82003b63f78eac7e&amp;est=hoPSSKpM8o4OU9mpEMzfbnFQaIFfVz1SmtubNTSGleR1NcxZrw9RGgOSoIPi2TKe02UZEFXmlg%3D%3D)
+拜登总统发布了一项疫苗令，要求任何由 100 名或更多员工组成的公司的员工必须在 2022 年 1 月 4 日之前至少接种第一剂 COVID-19 疫苗，或者每周进行测试并戴上口罩。
 
+一名联邦法官周六阻止了此疫苗令。
+
+**点评: **由于众多州向联邦法院的诉讼与挑战， 加上联邦巡回法院的暂缓执行判决，拜登的强制疫苗令一定会被取消。美国人民为自由而战绝不是空话， 毋庸置疑。
+
+原文链接: [https://www.foxnews.com/us/oklahoma-representative-bill-ban-vaccine-mandates](https://www.foxnews.com/us/oklahoma-representative-bill-ban-vaccine-mandates)
+
+编辑/发布：LILY
+
+20211111
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
