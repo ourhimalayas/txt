@@ -2,38 +2,96 @@
 ---
 
 
-## 为开六中全会，中共人工降雪祸害百姓
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1657094/)
+## 诡异的新冠药物“莫努匹韦”（Molnupiravir）
+` 疫苗病毒专栏` [轉載自GNews](https://gnews.org/zh-hans/1657208/)
 
-作者：英国喜庄园 – I770775
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月10日，郭文贵先生在大直播中爆料：自11月3日以来，中共国大部分地区都出现了大风降温和雨雪天气，尤其是东北三省和内蒙古局部地区连日来暴雪严重。这是中共命令西北太空军砸下6万发太空弹所形成的人工暴雪，目的是消除北京上空的重度雾霾，为六中全会召开营造“蓝天白云”“天降瑞雪”等喜庆气氛。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-6.jpg)
-因为人工降雪造成的非自然天气，从7日到9日，通辽地区连续多日出现特大暴雪，同时伴有7到8级大风，通辽库伦旗本站出现最大积雪，深度达68厘米，打破了1951年以来的相关纪录。
+加拿大温哥华杨帆农场 Myway
 
-这场中共制造的暴风雪，给百姓带来了重大经济损失，甚至有人员死亡。截至直播时，这场暴风雪还在继续，因风雪带来的不便仍然在继续上演：积雪堵门，牲畜棚被压坏，学校因风雪停课，赶路人被困途中……
 
-郭先生说，中共不顾普通百姓的死活，为了一个党的会议，竟然违反国际公约，采用人工造雪，将6万发太空弹打到天空中，给太空环境造成了无法想象的污染，世界各国一定会找中共清算这笔账。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-1-5.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片sd.jpg)
+
+
+**一、Molnupiravir 基本信息**
+
+莫努匹韦（Molnupiravir），商品名Lagevrio，抗病毒药物，可抑制某些RNA病毒的复制，用于治疗SARS-CoV-2感染者。
+
+作用原理：是合成核苷衍生物N4-羟基胞嘧啶（又称EIDD-1931）的原药，通过在病毒RNA复制过程中引入复制错误而发挥其抗病毒作用 。
+
+开发历史：最初是由埃默里大学的药物创新公司–埃默里药物创新投资公司开发的，用于治疗流感。然后被位于迈阿密的Ridgeback Biotherapeutics公司收购，该公司后来与默克公司合作，进一步开发该药物 。
+
+2021年11月4日在英国被批准用于医疗用途，采购价值达到$340 Million 。法国政府在药物被批准前抢购了5万剂。
+
+每个疗程价格为$700。
+
+参考文献：
+
+- [https://en.wikipedia.org/wiki/Molnupiravir](https://en.wikipedia.org/wiki/Molnupiravir)
+- [https://www.reuters.com/business/healthcare-pharmaceuticals/france-says-it-has-ordered-50000-doses-mercks-covid-19-antiviral-pill-2021-10-26/](https://www.reuters.com/business/healthcare-pharmaceuticals/france-says-it-has-ordered-50000-doses-mercks-covid-19-antiviral-pill-2021-10-26/)
+- [https://nationalfile.com/uk-buys-340-million-worth-of-new-covid-pills-from-merck-becomes-first-country-to-approve-costly-drug/](https://nationalfile.com/uk-buys-340-million-worth-of-new-covid-pills-from-merck-becomes-first-country-to-approve-costly-drug/)
+
+
+**二、临床试验情况**
+
+目前临床实验尚未结束，正在进行的临床实验有：莫努匹韦安全性及其对SARS-CoV-2的病毒脱落的影响（临床二期）。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-71.png)
+莫努匹韦对COVID-19非住院成人患者的疗效和安全性（临床二、三期）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-25.png)
+莫努匹韦用于预防成人冠状病毒疾病（COVID-19）的研究（临床三期）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-17.png)
+**三、药物的潜在危险因素**
+
+***1）致癌、致突变和生殖毒性：***
+
+莫努匹韦（Molnupiravir）通过诱使病毒使用该药物进行复制，然后在复制开始后将错误插入病毒的遗传密码中。当发生足够多的复制错误时，病毒将无法再进行复制。但该药物可能整合到哺乳动物遗传物质中，导致致癌。从理论上讲，致突变药物都可以导致出生缺陷或癌症。
+
+《科学》杂志总结：这类类似的实验性药物已被证明会导致动物的生殖毒性，接受治疗的动物的后代出生后没有牙齿，也没有部分头骨。
+
+参考链接
+
+- [https://www.drugdiscoverytrends.com/early-safety-concerns-accompanied-mercks-molnupiravir-the-first-potential-oral-covid-19-therapy/](https://www.drugdiscoverytrends.com/early-safety-concerns-accompanied-mercks-molnupiravir-the-first-potential-oral-covid-19-therapy/)
+- [https://archive.md/tnP59](https://archive.md/tnP59)
+- [https://www.foxnews.com/health/merck-pill-oral-covid-treatment](https://www.foxnews.com/health/merck-pill-oral-covid-treatment)
+
+
+***2）药物治疗中的不安全性***
+
+虽然有可能在最佳浓度下，莫努匹韦很可能导致足够的病毒基因突变以阻止病毒的复制和继续传播，但次优剂量是否有效未知。
+
+目前使用莫努匹拉韦的方案是800毫克的剂量，以片剂口服形式给药，每天两次，持续五天。在这一浓度下，理论上能杀灭病毒，但现实中，很多人不会服用整个疗程的药物。研究表明，多达40%患者未能完成整个疗程，在次优浓度下，莫努匹拉韦可能会导致病毒突变，产生更加难以控制的病毒变种。
 
 参考链接：
-1. [为开六中全会，中共人工降雪祸害百姓](https://finance.sina.com.cn/jjxw/2021-11-09/doc-iktzqtyu6364428.shtml)
-2. [为开六中全会，中共人工降雪祸害百姓](https://www.360kuai.com/pc/953d647ef31845509?cota=3&amp;kuai_so=1&amp;tj_url=so_vip&amp;sign=360_57c3bbd1&amp;refer_scene=so_1)
-3. [为开六中全会，中共人工降雪祸害百姓](https://finance.sina.com.cn/wm/2021-11-10/doc-iktzqtyu6406340.shtml)
-4. [为开六中全会，中共人工降雪祸害百姓](http://news.youth.cn/jsxw/202111/t20211108_13301119.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+- [https://www.forbes.com/sites/williamhaseltine/2021/11/01/supercharging-new-viral-variants-the-dangers-of-molnupiravir-part-1/?sh=4e0123a96b15](https://www.forbes.com/sites/williamhaseltine/2021/11/01/supercharging-new-viral-variants-the-dangers-of-molnupiravir-part-1/?sh=4e0123a96b15)
 
-总编：Irene木木
-编辑：Ivy001
-校对/发稿：Hetangyuese
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+**四、伊维菌素和莫努匹韦对比**
+
+
+|  | **伊维菌素（****Ivermectin****）** | **莫努匹韦（****Molnupiravir****）** |
+| --- | --- | --- |
+| 历史 | 安全使用超过30年（40亿剂），用于治疗各种寄生虫感染，被列入世界卫生组织基本药物清单。 发现者于2015年获得诺贝尔医学奖。 | 最初的研究是在20多年前，但由于潜在的诱变特性而被弃用，现转化为抗SARS-Cov-2治疗药物。 |
+| 作用机理 | 具有RNA病毒抗病毒性，干扰SARS-CoV-2进入人体细胞并进行复制，与刺突蛋白的宿主受体结合区竞争性结合，并可干扰病毒的复制。 | 广谱抗病毒。 通过在病毒基因组中引入错误信息，导致病毒诱变抑制病毒的繁殖 |
+| 临床数据 | 全球已经开展多项临床实验，结果显示，伊维菌素可以较少90%住院人数，没有死亡和，没有因副作用而退出的情况。所有受试者在治疗方案后都有正常的血氧饱和度 | 基于单一临床试验的临床疗效，在中期分析中，莫努匹韦将住院或死亡的风险降低了约50%。根据独立的数据监测委员会的建议，并与FDA协商，由于“有效的”的实验结果，该临床研究的招募提前停止。 |
+| 安全性 | 伊维菌素是一种安全系数很高，比许多非处方药（如扑尔敏）更安全。严重的不良反应似乎非常罕见。美国国家卫生研究院（NIH）认为伊维菌素 “普遍具有良好的耐受性”。 | 长期安全性和潜在的诱变性（致癌性）不明 |
+| 价格 | $3-20 | $700 |
+| 现状 | 在印度、日本、墨西哥、秘鲁和阿根廷等国家的COVID-19治疗项目中广泛而成功地使用。 | 默克公司正在寻求在在各国的临时批准h或紧急使用授权，英国11月4日刚刚批准莫努匹韦使用，正在等待美国FDA授权。 |
+
+
+校对编辑，发稿：大废墙（文非）
+
+* * *
+
+更多加拿大杨帆农场的频道，请关注：
+
+- [GTV: 加拿大扬帆农场多伦多频道](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
+- [GTV: 加拿大扬帆农场多伦多蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
+- [GTV: 加拿大扬帆农场多伦多枫叶财经](https://gtv.org/user/5f359954313eaf1e3716cfc1)
+- [喜马拉雅加拿大杨帆农场discord](https://discord.com/invite/BUDfsdPjJA)
+- [GETTR: 加拿大扬帆农场多伦多频道](https://gettr.com/user/torontofarmcn)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Canada_MPL_banner.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

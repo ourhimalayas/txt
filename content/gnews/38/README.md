@@ -2,34 +2,38 @@
 ---
 
 
-## 有声|中共又一挑衅行为：美国海军舰艇的模拟模型成为导弹发射训练靶
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1657027/)
+## 为开六中全会，中共人工降雪祸害百姓
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1657094/)
 
-配音：香草山香港部 – 文凯琳
+作者：英国喜庄园 – I770775
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月10日，郭文贵先生在大直播中爆料：自11月3日以来，中共国大部分地区都出现了大风降温和雨雪天气，尤其是东北三省和内蒙古局部地区连日来暴雪严重。这是中共命令西北太空军砸下6万发太空弹所形成的人工暴雪，目的是消除北京上空的重度雾霾，为六中全会召开营造“蓝天白云”“天降瑞雪”等喜庆气氛。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-6.jpg)
+因为人工降雪造成的非自然天气，从7日到9日，通辽地区连续多日出现特大暴雪，同时伴有7到8级大风，通辽库伦旗本站出现最大积雪，深度达68厘米，打破了1951年以来的相关纪录。
 
-北京，11月8日（路透社）-Maxar的卫星图像显示，在塔克拉玛干沙漠中的一个新靶场综合体上建成了一艘美军航母和至少两艘阿利-伯克级导弹驱逐舰的全尺寸模型。图片还显示了一个6米宽的轨道系统，上面安装了一个船舶大小的目标，专家说这可能是用来模拟船只的移动。
+这场中共制造的暴风雪，给百姓带来了重大经济损失，甚至有人员死亡。截至直播时，这场暴风雪还在继续，因风雪带来的不便仍然在继续上演：积雪堵门，牲畜棚被压坏，学校因风雪停课，赶路人被困途中……
 
-这些模拟模型反映出中共正在努力建立反航母的能力，特别是针对美国海军的能力，因为在台湾和南海问题上与华盛顿的关系日趋紧张。
+郭先生说，中共不顾普通百姓的死活，为了一个党的会议，竟然违反国际公约，采用人工造雪，将6万发太空弹打到天空中，给太空环境造成了无法想象的污染，世界各国一定会找中共清算这笔账。
 
-五角大楼的最新年度报告表明，中共解放军火箭军在2020年7月曾向南海进行了首次确认的实弹发射。这次演习向南沙群岛以北的水域共发射了6枚DF-21反舰弹道导弹，中国在那里与台湾和四个东南亚国家存在领土争端。
+参考链接：
+1. [为开六中全会，中共人工降雪祸害百姓](https://finance.sina.com.cn/jjxw/2021-11-09/doc-iktzqtyu6364428.shtml)
+2. [为开六中全会，中共人工降雪祸害百姓](https://www.360kuai.com/pc/953d647ef31845509?cota=3&amp;kuai_so=1&amp;tj_url=so_vip&amp;sign=360_57c3bbd1&amp;refer_scene=so_1)
+3. [为开六中全会，中共人工降雪祸害百姓](https://finance.sina.com.cn/wm/2021-11-10/doc-iktzqtyu6406340.shtml)
+4. [为开六中全会，中共人工降雪祸害百姓](http://news.youth.cn/jsxw/202111/t20211108_13301119.htm)
 
-新加坡拉惹勒南国际研究学院(S. Rajaratnam School of International Studies)的研究员Collin Koh表示，无论是实弹演习还是沙漠练兵，中共离制造精确的反舰导弹还很远。但是他们不会停手，会持续进行下去。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-在沙漠中模拟海洋环境练兵无异于在陆地学习游泳。但中共迫于邻国反对实演的压力以及自身捉襟见肘的财力物力也只能如此。
+总编：Irene木木
+编辑：Ivy001
+校对/发稿：Hetangyuese
 
-文字版原文：[中共又一挑衅行为：美国海军舰艇的模拟模型成为导弹发射训练靶](https://gnews.org/zh-hans/1651655/)
-
-音频处理：喜山必胜Maverick
-
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

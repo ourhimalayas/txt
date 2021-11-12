@@ -2,96 +2,58 @@
 ---
 
 
-## 诡异的新冠药物“莫努匹韦”（Molnupiravir）
-` 疫苗病毒专栏` [轉載自GNews](https://gnews.org/zh-hans/1657208/)
+## 众议员吉姆班克斯要求国会采取行动,阻止中共国的宣传渗透国会
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1657350/)
 
-加拿大温哥华杨帆农场 Myway
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-1-5.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片sd.jpg)
+众议员吉姆·班克斯： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的宣传垃圾《中国日报》不属于国会大厅——但有人付钱让它每天早上到达我和我同事们的门口。 这必需立即结束。 布赖特巴特新闻[@BreitbartNews](https://twitter.com/BreitbartNews) 【布赖特巴特新闻网报道：独家：众议员吉姆班克斯要求国会采取行动，阻止 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的宣传渗透国会 .根据布赖特巴特新闻独家获得的一封信，众议员吉姆班克斯周三指责民主党人对中共国的虚伪态度，并要求国会对每天送到国会门口的 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 宣传 (中国日报) 采取行动。】
 
 
-**一、Molnupiravir 基本信息**
 
-莫努匹韦（Molnupiravir），商品名Lagevrio，抗病毒药物，可抑制某些RNA病毒的复制，用于治疗SARS-CoV-2感染者。
-
-作用原理：是合成核苷衍生物N4-羟基胞嘧啶（又称EIDD-1931）的原药，通过在病毒RNA复制过程中引入复制错误而发挥其抗病毒作用 。
-
-开发历史：最初是由埃默里大学的药物创新公司–埃默里药物创新投资公司开发的，用于治疗流感。然后被位于迈阿密的Ridgeback Biotherapeutics公司收购，该公司后来与默克公司合作，进一步开发该药物 。
-
-2021年11月4日在英国被批准用于医疗用途，采购价值达到$340 Million 。法国政府在药物被批准前抢购了5万剂。
-
-每个疗程价格为$700。
-
-参考文献：
-
-- [https://en.wikipedia.org/wiki/Molnupiravir](https://en.wikipedia.org/wiki/Molnupiravir)
-- [https://www.reuters.com/business/healthcare-pharmaceuticals/france-says-it-has-ordered-50000-doses-mercks-covid-19-antiviral-pill-2021-10-26/](https://www.reuters.com/business/healthcare-pharmaceuticals/france-says-it-has-ordered-50000-doses-mercks-covid-19-antiviral-pill-2021-10-26/)
-- [https://nationalfile.com/uk-buys-340-million-worth-of-new-covid-pills-from-merck-becomes-first-country-to-approve-costly-drug/](https://nationalfile.com/uk-buys-340-million-worth-of-new-covid-pills-from-merck-becomes-first-country-to-approve-costly-drug/)
+> The Chinese communist propaganda rag China Daily doesn’t belong in the halls of Congress—but someone is paying for it to arrive on my and my colleagues’ doorstep each morning. This needs to end NOW. [@BreitbartNews](https://twitter.com/BreitbartNews?ref_src=twsrc%5Etfw) [https://t.co/NCxoZpBjf0](https://t.co/NCxoZpBjf0)
+> — Jim Banks (@RepJimBanks) [November 11, 2021](https://twitter.com/RepJimBanks/status/1458833134259216384?ref_src=twsrc%5Etfw)
 
 
-**二、临床试验情况**
 
-目前临床实验尚未结束，正在进行的临床实验有：莫努匹韦安全性及其对SARS-CoV-2的病毒脱落的影响（临床二期）。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-71.png)
-莫努匹韦对COVID-19非住院成人患者的疗效和安全性（临床二、三期）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-25.png)
-莫努匹韦用于预防成人冠状病毒疾病（COVID-19）的研究（临床三期）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-17.png)
-**三、药物的潜在危险因素**
-
-***1）致癌、致突变和生殖毒性：***
-
-莫努匹韦（Molnupiravir）通过诱使病毒使用该药物进行复制，然后在复制开始后将错误插入病毒的遗传密码中。当发生足够多的复制错误时，病毒将无法再进行复制。但该药物可能整合到哺乳动物遗传物质中，导致致癌。从理论上讲，致突变药物都可以导致出生缺陷或癌症。
-
-《科学》杂志总结：这类类似的实验性药物已被证明会导致动物的生殖毒性，接受治疗的动物的后代出生后没有牙齿，也没有部分头骨。
-
-参考链接
-
-- [https://www.drugdiscoverytrends.com/early-safety-concerns-accompanied-mercks-molnupiravir-the-first-potential-oral-covid-19-therapy/](https://www.drugdiscoverytrends.com/early-safety-concerns-accompanied-mercks-molnupiravir-the-first-potential-oral-covid-19-therapy/)
-- [https://archive.md/tnP59](https://archive.md/tnP59)
-- [https://www.foxnews.com/health/merck-pill-oral-covid-treatment](https://www.foxnews.com/health/merck-pill-oral-covid-treatment)
+参议员泰德·克鲁兹： 乔.拜登又一次灾难性的国家安全失败。 拜登政府迫不及待地想解除对伊朗支持的胡塞武装及其领导人的恐怖主义制裁。 现在那些恐怖分子正在夺取我们的设施并扣押大使馆工作人员。（参议员泰德·克鲁兹：转《自由灯塔》资深记者推文：突发事件：伊朗支持的武装分子冲进美国驻也门大使馆，扣押人质和设备——国务院告诉我它“担心大院被破坏”，要求释放人质和设备）
 
 
-***2）药物治疗中的不安全性***
 
-虽然有可能在最佳浓度下，莫努匹韦很可能导致足够的病毒基因突变以阻止病毒的复制和继续传播，但次优剂量是否有效未知。
-
-目前使用莫努匹拉韦的方案是800毫克的剂量，以片剂口服形式给药，每天两次，持续五天。在这一浓度下，理论上能杀灭病毒，但现实中，很多人不会服用整个疗程的药物。研究表明，多达40%患者未能完成整个疗程，在次优浓度下，莫努匹拉韦可能会导致病毒突变，产生更加难以控制的病毒变种。
-
-参考链接：
-
-- [https://www.forbes.com/sites/williamhaseltine/2021/11/01/supercharging-new-viral-variants-the-dangers-of-molnupiravir-part-1/?sh=4e0123a96b15](https://www.forbes.com/sites/williamhaseltine/2021/11/01/supercharging-new-viral-variants-the-dangers-of-molnupiravir-part-1/?sh=4e0123a96b15)
+> Yet another catastrophic national security failure for Joe Biden. The Biden admin couldn't wait to dismantle terrorism sanctions on the Iran-backed Houthis and their leaders. Now those terrorists are seizing our facilities & embassy workers. [https://t.co/64L9hw2dw3](https://t.co/64L9hw2dw3)
+> — Ted Cruz (@tedcruz) [November 11, 2021](https://twitter.com/tedcruz/status/1458866856975118344?ref_src=twsrc%5Etfw)
 
 
-**四、伊维菌素和莫努匹韦对比**
+
+前国务卿迈克·蓬佩奥： 我们的敌手们看到，拜登政府在专注于军队中的多样性和包容性，以及使用绿色能源的喷气式飞机，而他们则专注于建立一支可以摧毁我们的共和国的军队。【附视频，蓬佩奥接受福克斯新闻主持人肖恩·汉尼提采访：由软弱和低效率定义的拜登外交政策教义；蓬佩奥谈到拜登向塔利班投降，淡化 #中共国 的威胁，加倍注重“将美国放在最后”的外交政策】
 
 
-|  | **伊维菌素（****Ivermectin****）** | **莫努匹韦（****Molnupiravir****）** |
-| --- | --- | --- |
-| 历史 | 安全使用超过30年（40亿剂），用于治疗各种寄生虫感染，被列入世界卫生组织基本药物清单。 发现者于2015年获得诺贝尔医学奖。 | 最初的研究是在20多年前，但由于潜在的诱变特性而被弃用，现转化为抗SARS-Cov-2治疗药物。 |
-| 作用机理 | 具有RNA病毒抗病毒性，干扰SARS-CoV-2进入人体细胞并进行复制，与刺突蛋白的宿主受体结合区竞争性结合，并可干扰病毒的复制。 | 广谱抗病毒。 通过在病毒基因组中引入错误信息，导致病毒诱变抑制病毒的繁殖 |
-| 临床数据 | 全球已经开展多项临床实验，结果显示，伊维菌素可以较少90%住院人数，没有死亡和，没有因副作用而退出的情况。所有受试者在治疗方案后都有正常的血氧饱和度 | 基于单一临床试验的临床疗效，在中期分析中，莫努匹韦将住院或死亡的风险降低了约50%。根据独立的数据监测委员会的建议，并与FDA协商，由于“有效的”的实验结果，该临床研究的招募提前停止。 |
-| 安全性 | 伊维菌素是一种安全系数很高，比许多非处方药（如扑尔敏）更安全。严重的不良反应似乎非常罕见。美国国家卫生研究院（NIH）认为伊维菌素 “普遍具有良好的耐受性”。 | 长期安全性和潜在的诱变性（致癌性）不明 |
-| 价格 | $3-20 | $700 |
-| 现状 | 在印度、日本、墨西哥、秘鲁和阿根廷等国家的COVID-19治疗项目中广泛而成功地使用。 | 默克公司正在寻求在在各国的临时批准h或紧急使用授权，英国11月4日刚刚批准莫努匹韦使用，正在等待美国FDA授权。 |
+
+> Our adversaries see that the Biden Admin is focused on diversity and inclusion in the military and flying jets with green energy, while they are focused on building out a military that can undo our republic. [https://t.co/VnpgkSv2T8](https://t.co/VnpgkSv2T8)
+> — Mike Pompeo (@mikepompeo) [November 11, 2021](https://twitter.com/mikepompeo/status/1458852961631842309?ref_src=twsrc%5Etfw)
 
 
-校对编辑，发稿：大废墙（文非）
 
-* * *
+前副国务卿基思·克拉奇： 习近平对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 经济的不当处理造成了食品和电力短缺。 街道一片漆黑。 许多商店关闭。 工厂的产出受到影响，加剧了供应链中断。 习近平在国内和在国外一样不受欢迎。 很高兴在[@cheddar](https://twitter.com/cheddar)节目上接受主持人[@NievesReporting](https://twitter.com/NievesReporting) 采访。 【附克拉奇接收采访的视频】
 
-更多加拿大杨帆农场的频道，请关注：
 
-- [GTV: 加拿大扬帆农场多伦多频道](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
-- [GTV: 加拿大扬帆农场多伦多蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
-- [GTV: 加拿大扬帆农场多伦多枫叶财经](https://gtv.org/user/5f359954313eaf1e3716cfc1)
-- [喜马拉雅加拿大杨帆农场discord](https://discord.com/invite/BUDfsdPjJA)
-- [GETTR: 加拿大扬帆农场多伦多频道](https://gettr.com/user/torontofarmcn)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Canada_MPL_banner.png)
+> Xi Jinping's mishandling of China’s economy has produced food and electric shortages. Streets are dark. Shops are closed. Factory output is impacted, exacerbating supply chain disruptions. Xi is as unpopular at home as he is abroad.
+> 
+> Great to be on [@cheddar](https://twitter.com/cheddar?ref_src=twsrc%5Etfw) with [@NievesReporting](https://twitter.com/NievesReporting?ref_src=twsrc%5Etfw). [pic.twitter.com/FLpu4TBK4T](https://t.co/FLpu4TBK4T)
+> — Keith J. Krach (@KeithJKrach) [November 11, 2021](https://twitter.com/KeithJKrach/status/1458835500198998020?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特： 拜登的觉醒议程不仅荒谬,而且危险.气候变化是否等同于来自 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 日益增长的威胁? 当 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 在其统治世界的战争道路上投下一颗核弹时,气候会是什么样?这种疯狂证明拜登不适合做领导者. 【转纽约邮报推文：五角大楼称：气候和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是对美国“同等重要”的威胁】Q
+
+
+
+> Biden’s woke agenda isn’t just absurd, it’s dangerous. Climate change is the same as a growing threat from Communist China?
+> 
+> How’s the climate going to look when Communist China drops a nuclear bomb on its warpath for world domination? This lunacy proves Biden is unfit to lead. [https://t.co/4dKrXSQDkQ](https://t.co/4dKrXSQDkQ)
+> — Rick Scott (@SenRickScott) [November 11, 2021](https://twitter.com/SenRickScott/status/1458593995295281163?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
