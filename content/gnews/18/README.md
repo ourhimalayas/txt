@@ -2,34 +2,44 @@
 ---
 
 
-## 中共国“双十一”受居民囤积紧急物资影响掩盖了急剧下滑真相
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1658240/)
+## 班农专访3: 强制疫苗令会被收回
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1658260/)
 
-作者：东京樱花团丨捆绑CCP一千年
-![](https://lh6.googleusercontent.com/PjLSkeufj09QF6taK8jEC2x3YQ-QEORX4EA0SWU1Dfq7kYrifhyoVGjNrgT8VmpI8lixs0eJafyAKmsz8uwIteJ4fqlryM55D9-6ZOSCe5j084lCUjKMYKsjbXQRXmSVzVy48DcT)[图片来源（CNN截图）](https://www.cnn.com/2021/11/10/business/china-singles-day-intl-hnk/index.html)
-**中共国经济告别十几年前的“双十节”的疯狂“剁手”后，淘宝、腾讯、京东虚假经济数据凸显。抖音经历火爆短暂疯狂后也已濒临破产。据郭先生透露，国际上有20几家（P2P）基金公司跟共产党勾兑后都在宣布破产。**
+**简评：**
 
-郭文贵先生在美国当地时间11月11日发消息再次向世人警告，“[共产党的光棍节骗局，彻底破产，共产党的房地产骗局将给世界的经济带来巨大的灾难](https://gettr.com/post/pgn0eqfd05)。” 这一天是中共国狂欢购物节，也称光棍节。
+白宫强制企业推行疫苗授权，并要求法院停止“暂停令”。各州在抗争，也在联邦法庭上斗争。这不仅是疫苗的问题，也是关于政府控制企业和企业控制公民的能力，在美国是大事。佛州和德州的保守党力量和川普的支持者在行动，疫苗强制将来会被收回，因为这是违宪的，也是非法的，而且也是危险的。新中国联邦的郭文贵先生在疫苗方面做出了巨大的贡献，羟氯喹和伊维菌素，还有其他药物可以解决病毒问题，不需要疫苗。
 
-郭先生认为：“想想这十几年，[阿里巴巴马云的淘宝啊，腾讯、京东啊（经济数据）都是假的](https://gettr.com/post/pgn0eqfd05)。抖音过去的几个月的数据完了吧，下去了吧”。据郭先生透漏，国际上有20几家（P2P）基金在破产。这些基金公司跟共产党勾兑完了就要破产。并且疫苗灾难愈加严重，[连运动员都有因疫苗死去的](https://app.gettr.com/post/pgny8ve24e)。事实上，注射疫苗后的人不能进行剧烈运动。
-
-随着疫苗灾难的深入，当下能够保住人们财富的只有非法定货币外的数字货币才是正确的选择。就连“[伊隆·马斯克（Elon Musk）都在卖自己的股票](https://www.bbc.com/zhongwen/simp/world-59251093)。”正如郭先生所言，“目前还有什么值钱？”郭先生坚持认为，“[世界上只有两个东西最值钱，黄金、虚拟货币。我相信好的虚拟稳定货币（喜币）](https://gettr.com/post/pgn0eqfd05)。”因为喜币是去中心化技术，又有中心化可追溯的责任，因此，郭先生说：“[我不相信比特币有未来，他（虽然）还会涨，但最后一定会完。](https://www.forexlive.com/cryptocurrency/!/bitcoin-gives-up-its-gains-after-reaching-a-new-all-time-record-high-20211110)”
-
-- *延展阅读：*[*阿里巴巴的双十一购物热潮在中国大型科技公司的镇压和直播的竞争中失去光彩*](https://www.scmp.com/tech/big-tech/article/3155403/alibabas-singles-day-shopping-bonanza-loses-lustre-amid-chinas-big)*。*
-- *延展阅读：*[*阿里巴巴双十一销售额创历史新高，但增长放缓*](https://www.cnn.com/2021/11/10/business/china-singles-day-intl-hnk/index.html)*。*
+[GTV视频链接](https://gtv.org/video/id=618d1e9a1827025081042f2d)
 
 
-中共国一直坚持零COVID19病毒政策，目前疫情又在全国扩散，“[投资者可能被他们认为在 COVID19急剧恶化的情况吓坏了](https://www.cnn.com/2021/11/10/business/china-singles-day-intl-hnk/index.html)。商务部周一晚间发布通知，指示省级有关部门确保食品供应充足，并鼓励人们储备冬季或紧急情况下的[生活必需品](https://www.guancha.cn/politics/2021_11_02_613281_s.shtml)。”
 
-受到此信息的激励，加上“各种可能的负面消息的扩散如雨后春笋般涌现，包括与台湾开战的可能性。”阿里巴巴集团（BABA）、京东（JD）和拼多多（PDD）等电子商务股票不是应该会受益，而是大盘大幅下跌。而今年的双十一虽然仍旧看似火爆的主要因素受到上述商务部消息影响，因“[居民囤积生活必需品，线下和线上销售火爆](https://seekingalpha.com/article/4466813-alibaba-double-11-booster-tencent-into-metaverse)。”
+**视频字幕：**
 
-由于中共对互联网行业的监管打击不可逆的趋势使然，医疗保健行业也引发更多大盘避险交易。“[自2月中旬见顶以来，平安医疗科技股份有限公司( OTCPK:PANHF )( OTCPK:PIAHY )、阿里健康信息技术有限公司( OTCPK:ALBHF )( OTCPK:ALBBY )、 JD Health International Inc. ( OTCPK:JDHIF )( OTCPK:JDHIY ) 分别下跌了 78%、71% 和 55%。](https://seekingalpha.com/article/4466813-alibaba-double-11-booster-tencent-into-metaverse)”
+**主持人Nina**：周一，白宫告诉企业要推进疫苗授权，并要求法院停止“暂停令”。这符合宪法吗？考虑到目前为止，法院挑战强制疫苗还没有成功。最近，疫苗强制会取消还是会更加严格？
 
-2021年11月12日
+**班农先生**：不，“疫苗强制”已经被提交到了联邦法院，我认为我们会获胜。我认为这些规定，看看州一级的情况。我们有Ken Paxton…不，这是一场巨大的战斗。这就是宪法权威的意义所在。共产主义中国与美国不同，企业应该是独立的。
 
-*校对：东京樱花团 / 文小白*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+这是很重要的一方面，郭文贵先生在疫苗上做出了巨大贡献。而现在有政府试图强制要求接种疫苗。我认为这是不符合宪法的。现在正在联邦法庭上进行斗争。
+
+你看到很多公司试图退缩，特别是在州一级，佛罗里达州和德克萨斯州，两个最大且繁荣的州，他们在增长，因为他们是保守的共和党。而且那里到处有川普的支持者，还在不断增长。
+
+这对我们来说是一场巨大的斗争，不仅仅是在疫苗的这个时间点上，更是关于政府控制企业的能力和企业控制公民的能力。这在美国是个大问题。
+
+我认为你会看到“强制疫苗”将被收回，因为我认为他们是违宪的，是非法的。坦率地说，我认为是危险的，因为有些人有复合症，可能适合接种。但其他人，特别是有自然免疫的，（不适合接种）。
+
+如果你听郭先生提到自然免疫或治疗方法，羟氯喹或伊维菌素，还有药物都可以解决问题。我认为你会看到更多这样的情况。
+
+*字幕: free2020060 | 听写：云岭 | 翻译：致良知*|*PR：Roberts | 简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://spark.adobe.com/page/4XquyyNW3OD4Z/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/4XquyyNW3OD4Z/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
