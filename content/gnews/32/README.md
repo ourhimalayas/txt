@@ -2,34 +2,38 @@
 ---
 
 
-## 有声|新华社造神 引发海内外群嘲
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1657104/)
+## 墙内累计7000万人感染中共病毒，死亡1370万人
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1657096/)
 
-配音：香草山美食部 – 玫瑰园
+作者：纽约香草山 – 木白
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在11月10日的文贵大直播中，郭先生爆料：中共国内累计有约7000万人感染中共病毒，累计死亡1370万人。
 
-11月6日，在中共十九届六中全会召开前夕，中共党媒新华社发表了《习近平带领百年大党奋进新征程》的万字特稿，为党魁习近平二十大连任造势。其对习近平的吹捧空前狂热，引来墙内网友和海外媒体的一片嘲讽。
+郭先生说，这些数据来源于中共国六中全会前的一份报道，这是中共高层内部第一次“官方报道”墙内疫情的真实数据，但感染中共病毒死亡1370万人的事实，却在报道中被中共“巧妙”地用“冠状病毒相关性死亡”来描述。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4-6.jpg)
+按照中共国真实的疫情数据统计，目前，全球累计感染中共病毒人数超过3.2亿人，死亡人数超过1800万人。在这两项指标上，中共国都是全球第一。但中共公开的国内疫情数据却远低于实际，分别是累计确诊12.6万多例，累计死亡5697例。
 
-特稿将习近平描述为“像爱父母那样爱老百姓”“众望所归的领导核心”等。
+2020年以来，中共对全世界发动生化战，中共病毒肆虐全球，威胁人类生存。中国人民是这场生化战中最悲惨的受害者。
 
-有网友评论说，习近平父亲的陵园占地多达四万亩，而老百姓绝大多数连一块几平方米的墓地都买不起，这也叫爱老百姓如爱父母吗？
+面对比纳粹更邪恶的中共，郭先生在直播中愤慨地说：“在中共释放新冠病毒之前，你动任何中共官员都是犯罪；在中共释放冠状病毒之后，全人类都有权利杀之。因为，这是正义的。”
 
-还有网友评论说，中国人民从来就没有投票权，更没有言论自由，明明是一个独裁者，“众望所归”谈何而来?
+郭先生指出，爆料革命不会搞恐怖主义，但会给蒙蔽的中国人真相。为了因中共病毒死去的千百万人，为了全人类的正义和生存，任何国家都有权消灭中共。
 
-也有外媒对此评论：新华社小心造神。为取得国际社会认可，居然还自作主张借外媒和外国专家之口为习近平点赞，实在是令人啼笑皆非。
+参考链接：[墙内累计7000万人感染中共病毒，死亡1370万人](https://gnews.org/zh-hans/1653603)
 
-文字版原文：[新华社造神 引发海内外群嘲](https://gnews.org/zh-hans/1650182/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-音频处理：喜山必胜Maverick
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

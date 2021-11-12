@@ -15,101 +15,101 @@
 
 ---
 
-### [【文炬拾字】那些有钱没钱的日子](/content/gnews/1/README.md)
- ` 温哥华扬帆农场`
-
-### [中共病毒疫苗专利背后的秘密](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2021年11月11日郭先生盖特 — 视频盖特「9分45秒」](/content/gnews/3/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
-
-### [文·贵天成——文贵先生谈“沈南鹏”（一）](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [德展健康踩雷渤海信托！2.4亿信托本金逾期未收回](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [维迦诺大主教给反对健康暴政的抗议者的信](/content/gnews/6/README.md)
- ` 首尔天池农场`
-
-### [中共国石油告别万亿！近期市值蒸发3000亿](/content/gnews/7/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [日本学者引经据典讲述“经济脱中”的必要性（之三）](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [巴西总统透露许多二剂疫苗接种者仍染疫而亡](/content/gnews/9/README.md)
+### [秘翻在线：中共六中全会决议令华人绝望透顶！](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [国际要闻汇编11月12日](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共召开十九大六中全会新闻发布会报道之一](/content/gnews/11/README.md)
+### [秘翻在线：辉瑞首席执行官希望将散布“错误信息”的人送进监狱](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共把香港作为强推疫苗护照的试点](/content/gnews/12/README.md)
- ` 澳喜农场`
-
-### [“双11”未公布销额快报，中共国“假擀面杖”经济已崩盘](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭文贵先生2021年11月11日盖特视频（9分45秒）全文字版](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日美空军在钓鱼岛周边联合演习，对中共发出强烈信号](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [GTV新闻访谈简报|2021年11月11日晚](/content/gnews/16/README.md)
- ` 纽约香草山MOS01`
-
-### [众议员吉姆班克斯要求国会采取行动,阻止中共国的宣传渗透国会](/content/gnews/17/README.md)
- ` 美国政要直译推`
-
-### [完全接种疫苗的合唱团音乐会以新冠病毒大量爆发而告终](/content/gnews/18/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共病毒及其疫苗全球超限战中的典型案例（二十一）](/content/gnews/19/README.md)
- ` 纽约香草山MOS01`
-
-### [雅典娜时报-第110期](/content/gnews/20/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共国恒大集团正式违约，DMSA准备对其申请破产](/content/gnews/21/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：韩国准备明年1月开始对虚拟币征税](/content/gnews/22/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [佛罗里达州可能因疫苗接种任务退出OSHA的监督](/content/gnews/23/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共国恒大地产正式违约DMSA准备申请恒大破产](/content/gnews/24/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [美国延长与中共国军事有关的投资禁令](/content/gnews/25/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [欧洲药品管理局建议添加脊髓炎症为中共病毒疫苗的副作用](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [诡异的新冠药物“莫努匹韦”（Molnupiravir）](/content/gnews/27/README.md)
- ` 疫苗病毒专栏`
-
-### [日本丰洲市场恢复了因中共病毒暂停的金枪鱼拍卖参观活动](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [强迫美国人接种疫苗不久将会是非法](/content/gnews/29/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [澳总理反对取消未接种疫苗者的公费医疗](/content/gnews/30/README.md)
+### [新建写字楼交付无人问津，墨尔本中央商务区依旧“鬼城”](/content/gnews/3/README.md)
  ` 走进澳洲`
 
-### [社保难养老 喜币定盘心](/content/gnews/31/README.md)
+### [共和党人预测他们将赢回参众两院多数席位](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [一个农民战友跟随爆料革命的觉醒感悟](/content/gnews/5/README.md)
+ ` 首尔天池农场`
+
+### [【文炬拾字】那些有钱没钱的日子](/content/gnews/6/README.md)
+ ` 温哥华扬帆农场`
+
+### [中共病毒疫苗专利背后的秘密](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2021年11月11日郭先生盖特 — 视频盖特「9分45秒」](/content/gnews/8/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
+
+### [文·贵天成——文贵先生谈“沈南鹏”（一）](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|新华社造神 引发海内外群嘲](/content/gnews/32/README.md)
+### [秘翻在线：瑞士对中共病毒相关法律的公投是对民主制度的考验](/content/gnews/10/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [德展健康踩雷渤海信托！2.4亿信托本金逾期未收回](/content/gnews/11/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [维迦诺大主教给反对健康暴政的抗议者的信](/content/gnews/12/README.md)
+ ` 首尔天池农场`
+
+### [中共六中全会：看似开倒车，实为报私仇](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共国石油告别万亿！近期市值蒸发3000亿](/content/gnews/14/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [日本学者引经据典讲述“经济脱中”的必要性（之三）](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [巴西总统透露许多二剂疫苗接种者仍染疫而亡](/content/gnews/16/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [国际要闻汇编11月12日](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共召开十九大六中全会新闻发布会报道之一](/content/gnews/18/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共把香港作为强推疫苗护照的试点](/content/gnews/19/README.md)
+ ` 澳喜农场`
+
+### [“双11”未公布销额快报，中共国“假擀面杖”经济已崩盘](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [郭文贵先生2021年11月11日盖特视频（9分45秒）全文字版](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日美空军在钓鱼岛周边联合演习，对中共发出强烈信号](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [GTV新闻访谈简报|2021年11月11日晚](/content/gnews/23/README.md)
+ ` 纽约香草山MOS01`
+
+### [众议员吉姆班克斯要求国会采取行动,阻止中共国的宣传渗透国会](/content/gnews/24/README.md)
+ ` 美国政要直译推`
+
+### [完全接种疫苗的合唱团音乐会以新冠病毒大量爆发而告终](/content/gnews/25/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共病毒及其疫苗全球超限战中的典型案例（二十一）](/content/gnews/26/README.md)
+ ` 纽约香草山MOS01`
+
+### [雅典娜时报-第110期](/content/gnews/27/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共国恒大集团正式违约，DMSA准备对其申请破产](/content/gnews/28/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [欧洲药品管理局建议添加脊髓炎症为中共病毒疫苗的副作用](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [诡异的新冠药物“莫努匹韦”（Molnupiravir）](/content/gnews/30/README.md)
+ ` 疫苗病毒专栏`
+
+### [有声|新华社造神 引发海内外群嘲](/content/gnews/31/README.md)
  ` MOSREC`
+
+### [墙内累计7000万人感染中共病毒，死亡1370万人](/content/gnews/32/README.md)
+ ` GTV新闻访谈`
 
 ### [郭先生爆料中共六中全会中共国获得11个“第一”](/content/gnews/33/README.md)
  ` GTV新闻访谈`

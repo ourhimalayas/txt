@@ -2,58 +2,38 @@
 ---
 
 
-## 众议员吉姆班克斯要求国会采取行动,阻止中共国的宣传渗透国会
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1657350/)
+## 国际要闻汇编11月12日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1657489/)
 
-众议员吉姆·班克斯： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的宣传垃圾《中国日报》不属于国会大厅——但有人付钱让它每天早上到达我和我同事们的门口。 这必需立即结束。 布赖特巴特新闻[@BreitbartNews](https://twitter.com/BreitbartNews) 【布赖特巴特新闻网报道：独家：众议员吉姆班克斯要求国会采取行动，阻止 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的宣传渗透国会 .根据布赖特巴特新闻独家获得的一封信，众议员吉姆班克斯周三指责民主党人对中共国的虚伪态度，并要求国会对每天送到国会门口的 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 宣传 (中国日报) 采取行动。】
+素材：东京樱花团丨GNEWS组
+![](https://lh6.googleusercontent.com/EjozXHmbDMxFvTOhJuiBBlyxmoRyat6UccvxyrxCoiIXlaD5MIyIk07wRL-Gwp-GoRJmAPYFppEnhEtM23NO9aMwDqIxGz0W6-okKTXk72jYA7UTWMKcU5hWD40BIj4hgonaIp6M)[图片来源](https://www.voachinese.com/a/Xi-Expected-To-Invite-Biden-To-Beijing-Winter-Games-20211111/6309322.html)
+1、[**周一拜习视频会  习将邀拜登参加冬奥会**](https://www.voachinese.com/a/Xi-Expected-To-Invite-Biden-To-Beijing-Winter-Games-20211111/6309322.html)
 
+美国商业电视频道CNBC周四（11日）报道说，拜登与习近平的视频会晤初步安排在11月15日。据消息人士透露，中共领导人习近平可能会在下周举行的两国首脑视频会晤上向拜登发出私人邀请，请他在明年2月参加在北京举行的冬季奥运会。对于拜登来说，这是一个两难的选择。拒绝，可能加剧两国之间的紧张关系；接受，则会使人们对拜登向外界宣示的民主和人权立场产生质疑。
 
+2、[**视频会在即 拜登签署法令追打华为中兴**](https://www.aboluowang.com/2021/1112/1670784.html)** **
 
-> The Chinese communist propaganda rag China Daily doesn’t belong in the halls of Congress—but someone is paying for it to arrive on my and my colleagues’ doorstep each morning. This needs to end NOW. [@BreitbartNews](https://twitter.com/BreitbartNews?ref_src=twsrc%5Etfw) [https://t.co/NCxoZpBjf0](https://t.co/NCxoZpBjf0)
-> — Jim Banks (@RepJimBanks) [November 11, 2021](https://twitter.com/RepJimBanks/status/1458833134259216384?ref_src=twsrc%5Etfw)
+美国总统拜登今天（11日）签署“安全设备法”，以避免华为或中兴通讯等被认为构成安全威胁的企业，取得美国监管机关核发的新设备许可，要求美国联邦传播委员会不得再审核或同意授权会对国安构成不可接受风险的设备申请案。安全设备法是美国政府打击中国电信与科技公司的最新行动。
 
+3、[**塔利班外长会晤美俄中巴代表 **](https://www.voachinese.com/a/taliban-met-with-troika-20211111/6309773.html)
 
+周四（11日）在伊斯兰堡召开了中国、俄罗斯、美国和巴基斯坦就阿富汗局势举行的会谈，塔利班外长穆塔奇率领代表团也在周三（10）夜间抵达伊斯兰堡。巴基斯坦外长库雷希在开幕致词中说，“我们相信三加一国与阿富汗新政府的接触将有助于巩固和平稳定，促进可持续性经济发展。”三加一国会后发表联合声明，要求塔利班向所有年龄的妇女和女童提供教育机会。
 
-参议员泰德·克鲁兹： 乔.拜登又一次灾难性的国家安全失败。 拜登政府迫不及待地想解除对伊朗支持的胡塞武装及其领导人的恐怖主义制裁。 现在那些恐怖分子正在夺取我们的设施并扣押大使馆工作人员。（参议员泰德·克鲁兹：转《自由灯塔》资深记者推文：突发事件：伊朗支持的武装分子冲进美国驻也门大使馆，扣押人质和设备——国务院告诉我它“担心大院被破坏”，要求释放人质和设备）
+4、[**阿联酋、巴林破天荒与美以联合海上军演**](https://www.aboluowang.com/2021/1112/1670840.html)
 
+美国海军11日宣布，与以色列、阿拉伯联合酋长国和巴林10日起在红海展开5天联合军演。这是两阿拉伯国家与以色列首度公开的军事合作，也是4国首度对外承认的联手海军演习。法新社报导，美国海军在声明中表示，演习目的是为了“加强参与的军队之间协同操作能力”。
 
+5、[**台湾友邦洪都拉斯总统宣布访台**](https://www.voachinese.com/a/Honduran-president-to-visit-Taiwan-in-surprise-trip-20211111/6309340.html)** **
 
-> Yet another catastrophic national security failure for Joe Biden. The Biden admin couldn't wait to dismantle terrorism sanctions on the Iran-backed Houthis and their leaders. Now those terrorists are seizing our facilities & embassy workers. [https://t.co/64L9hw2dw3](https://t.co/64L9hw2dw3)
-> — Ted Cruz (@tedcruz) [November 11, 2021](https://twitter.com/tedcruz/status/1458866856975118344?ref_src=twsrc%5Etfw)
+洪都拉斯总统府周四（11日）在推特上宣布了洪都拉斯总统叶南德兹的台湾之行，但是没有公布访台的具体日期和行程。根据路透社的报道，台湾外交部证实叶南德兹即将赴台访问，并对他的访问表示欢迎。今年是中华民国与洪都拉斯建交80周年，双方都推动一系列的庆祝活动。洪都拉斯是台湾目前仅剩的15个邦交国之一。
 
+6、[**中企垄断稀土梦碎 格陵兰岛新法禁采铀矿 **](https://www.aboluowang.com/2021/1112/1670761.html)
 
+中共为推广“一带一路”在北极的战略，长期支持由中资企业“盛和资源”控股的澳大利亚格陵兰矿业公司，在格陵兰投资开采稀土的计划。不过，格陵兰岛国会日前通过新法，禁止开采铀矿，并停止开发格陵兰南端宽纳斯特的稀土矿藏。此举直接重击中共在格陵兰岛开采稀土的计划。
 
-前国务卿迈克·蓬佩奥： 我们的敌手们看到，拜登政府在专注于军队中的多样性和包容性，以及使用绿色能源的喷气式飞机，而他们则专注于建立一支可以摧毁我们的共和国的军队。【附视频，蓬佩奥接受福克斯新闻主持人肖恩·汉尼提采访：由软弱和低效率定义的拜登外交政策教义；蓬佩奥谈到拜登向塔利班投降，淡化 #中共国 的威胁，加倍注重“将美国放在最后”的外交政策】
-
-
-
-> Our adversaries see that the Biden Admin is focused on diversity and inclusion in the military and flying jets with green energy, while they are focused on building out a military that can undo our republic. [https://t.co/VnpgkSv2T8](https://t.co/VnpgkSv2T8)
-> — Mike Pompeo (@mikepompeo) [November 11, 2021](https://twitter.com/mikepompeo/status/1458852961631842309?ref_src=twsrc%5Etfw)
-
-
-
-前副国务卿基思·克拉奇： 习近平对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 经济的不当处理造成了食品和电力短缺。 街道一片漆黑。 许多商店关闭。 工厂的产出受到影响，加剧了供应链中断。 习近平在国内和在国外一样不受欢迎。 很高兴在[@cheddar](https://twitter.com/cheddar)节目上接受主持人[@NievesReporting](https://twitter.com/NievesReporting) 采访。 【附克拉奇接收采访的视频】
-
-
-
-> Xi Jinping's mishandling of China’s economy has produced food and electric shortages. Streets are dark. Shops are closed. Factory output is impacted, exacerbating supply chain disruptions. Xi is as unpopular at home as he is abroad.
-> 
-> Great to be on [@cheddar](https://twitter.com/cheddar?ref_src=twsrc%5Etfw) with [@NievesReporting](https://twitter.com/NievesReporting?ref_src=twsrc%5Etfw). [pic.twitter.com/FLpu4TBK4T](https://t.co/FLpu4TBK4T)
-> — Keith J. Krach (@KeithJKrach) [November 11, 2021](https://twitter.com/KeithJKrach/status/1458835500198998020?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特： 拜登的觉醒议程不仅荒谬,而且危险.气候变化是否等同于来自 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 日益增长的威胁? 当 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 在其统治世界的战争道路上投下一颗核弹时,气候会是什么样?这种疯狂证明拜登不适合做领导者. 【转纽约邮报推文：五角大楼称：气候和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是对美国“同等重要”的威胁】Q
-
-
-
-> Biden’s woke agenda isn’t just absurd, it’s dangerous. Climate change is the same as a growing threat from Communist China?
-> 
-> How’s the climate going to look when Communist China drops a nuclear bomb on its warpath for world domination? This lunacy proves Biden is unfit to lead. [https://t.co/4dKrXSQDkQ](https://t.co/4dKrXSQDkQ)
-> — Rick Scott (@SenRickScott) [November 11, 2021](https://twitter.com/SenRickScott/status/1458593995295281163?ref_src=twsrc%5Etfw)
-
-
-
+*编辑：东京樱花团 / 文小白
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

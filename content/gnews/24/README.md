@@ -2,30 +2,57 @@
 ---
 
 
-## 中共国恒大地产正式违约DMSA准备申请恒大破产
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1657243/)
+## 众议员吉姆班克斯要求国会采取行动,阻止中共国的宣传渗透国会
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1657350/)
 
-据《内幕消息报》布伦丹·泰勒（ Brendan Taylor ）2021 年 11 月 10 日 报道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/恒大.jpg)图片来自网络
-新闻稿：中共国恒大集团再次拖欠国际投资者的利息。DMSA投资了这些债券，并且在今天宽限期到期之前没有收到任何利息。现在DMSA正准备申请恒大破产，并在寻求所有债券持有人的支持。
+众议员吉姆·班克斯： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的宣传垃圾《中国日报》不属于国会大厅——但有人付钱让它每天早上到达我和我同事们的门口。 这必需立即结束。 布赖特巴特新闻[@BreitbartNews](https://twitter.com/BreitbartNews) 【布赖特巴特新闻网报道：独家：众议员吉姆班克斯要求国会采取行动，阻止 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的宣传渗透国会 .根据布赖特巴特新闻独家获得的一封信，众议员吉姆班克斯周三指责民主党人对中共国的虚伪态度，并要求国会对每天送到国会门口的 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 宣传 (中国日报) 采取行动。】
 
-中共国第二大房地产开发商恒大集团早在 9 月份就拖欠了两张债券的利息，30 天的宽限期在 10 月份结束。然而，就在宽限期结束前不久，公众被所谓利息支付的谣言误导了。国际媒体也认为谣言理所当然是真的。只有 DMSA 是德国市场审查机构 （Deutsche Marktscreening Agentur）当时已经承认违约，并在一项研究中表明，世界上负债最多的公司恒大的破产最终可能导致“大重置”，即全球金融体系的最终崩溃。
 
-（记者们请注意：参阅 2021 年 10 月 25 日和 10 月 29 日的 DMSA 新闻稿，以及 DMSA 研究报告“大重置 – 恒大和全球金融体系的最终崩溃”；均可通过 DMSA 主页www.dmsa-agentur.de.查看)
 
-DMSA 高级分析师马可·梅茨勒博士（ Dr. Marco Metzler ）表示：“尽管国际金融市场迄今为止，以非凡的基本信心面对围绕摇摇欲坠的巨头，恒大的金融风暴，也可以说极其天真，美联储昨天证实了我们的观点。“在其最新的稳定性报告中，它明确指出了恒大的倒闭可能对全球金融体系造成的危险。”
+> The Chinese communist propaganda rag China Daily doesn’t belong in the halls of Congress—but someone is paying for it to arrive on my and my colleagues’ doorstep each morning. This needs to end NOW. [@BreitbartNews](https://twitter.com/BreitbartNews?ref_src=twsrc%5Etfw) [https://t.co/NCxoZpBjf0](https://t.co/NCxoZpBjf0)
+> — Jim Banks (@RepJimBanks) [November 11, 2021](https://twitter.com/RepJimBanks/status/1458833134259216384?ref_src=twsrc%5Etfw)
 
-为了能够作为债权人针对恒大申请破产保护，DMSA 自己投资了恒大债券，这些债券的宽限期于今天（2021 年 11 月 10 日）到期。恒大必须最迟在今天为三张债券支付总额 1.4813 亿美元的利息。“但到目前为止，我们还没有收到任何债券利息，” 梅茨勒解释说。他补充道：“香港的银行现在都关门了，这些债券肯定违约了。”
 
-（请编辑注意：迄今为止已违约债券的确切详细信息可在本新闻稿的附录中找到。）
 
-对于恒大来说尤其可怕的问题是：所有 23 张未偿债券都有交叉违约条款。“这意味着，这些债券只要有一只违约，所有 23 只未偿债券将自动处于‘违约’状态，” DMSA 高级分析师梅茨勒清楚这一点。然而，这并不会自动导致恒大集团的破产。要确定破产，必须向法院提交破产申请。这可以由公司本身或由公司的一名或多名债权人提出。而这正是现在的计划。梅茨勒：“ DMSA 正在准备针对恒大的破产程序。我们已经在这方面与其他投资者进行了谈判。如果其他投资者加入我们的行动小组，我们会很高兴。”
+参议员泰德·克鲁兹： 乔.拜登又一次灾难性的国家安全失败。 拜登政府迫不及待地想解除对伊朗支持的胡塞武装及其领导人的恐怖主义制裁。 现在那些恐怖分子正在夺取我们的设施并扣押大使馆工作人员。（参议员泰德·克鲁兹：转《自由灯塔》资深记者推文：突发事件：伊朗支持的武装分子冲进美国驻也门大使馆，扣押人质和设备——国务院告诉我它“担心大院被破坏”，要求释放人质和设备）
 
-对于 DMSA 专家来说，很明显：“一旦法院启动破产程序，恒大也将正式破产——这只是几天的事情。”
-![](https://assets.gnews.org/wp-content/uploads/2021/11/恒大table.jpg)
-原文链接：[https://insiderpaper.com/chinas-evergrande-officially-defaulted/](https://insiderpaper.com/chinas-evergrande-officially-defaulted/)
 
-翻译：Nick｜校对：JS709｜编辑&发布：断播
+
+> Yet another catastrophic national security failure for Joe Biden. The Biden admin couldn't wait to dismantle terrorism sanctions on the Iran-backed Houthis and their leaders. Now those terrorists are seizing our facilities & embassy workers. [https://t.co/64L9hw2dw3](https://t.co/64L9hw2dw3)
+> — Ted Cruz (@tedcruz) [November 11, 2021](https://twitter.com/tedcruz/status/1458866856975118344?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿迈克·蓬佩奥： 我们的敌手们看到，拜登政府在专注于军队中的多样性和包容性，以及使用绿色能源的喷气式飞机，而他们则专注于建立一支可以摧毁我们的共和国的军队。【附视频，蓬佩奥接受福克斯新闻主持人肖恩·汉尼提采访：由软弱和低效率定义的拜登外交政策教义；蓬佩奥谈到拜登向塔利班投降，淡化 #中共国 的威胁，加倍注重“将美国放在最后”的外交政策】
+
+
+
+> Our adversaries see that the Biden Admin is focused on diversity and inclusion in the military and flying jets with green energy, while they are focused on building out a military that can undo our republic. [https://t.co/VnpgkSv2T8](https://t.co/VnpgkSv2T8)
+> — Mike Pompeo (@mikepompeo) [November 11, 2021](https://twitter.com/mikepompeo/status/1458852961631842309?ref_src=twsrc%5Etfw)
+
+
+
+前副国务卿基思·克拉奇： 习近平对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 经济的不当处理造成了食品和电力短缺。 街道一片漆黑。 许多商店关闭。 工厂的产出受到影响，加剧了供应链中断。 习近平在国内和在国外一样不受欢迎。 很高兴在[@cheddar](https://twitter.com/cheddar)节目上接受主持人[@NievesReporting](https://twitter.com/NievesReporting) 采访。 【附克拉奇接收采访的视频】
+
+
+
+> Xi Jinping's mishandling of China’s economy has produced food and electric shortages. Streets are dark. Shops are closed. Factory output is impacted, exacerbating supply chain disruptions. Xi is as unpopular at home as he is abroad.
+> 
+> Great to be on [@cheddar](https://twitter.com/cheddar?ref_src=twsrc%5Etfw) with [@NievesReporting](https://twitter.com/NievesReporting?ref_src=twsrc%5Etfw). [pic.twitter.com/FLpu4TBK4T](https://t.co/FLpu4TBK4T)
+> — Keith J. Krach (@KeithJKrach) [November 11, 2021](https://twitter.com/KeithJKrach/status/1458835500198998020?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特： 拜登的觉醒议程不仅荒谬,而且危险.气候变化是否等同于来自 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 日益增长的威胁? 当 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 在其统治世界的战争道路上投下一颗核弹时,气候会是什么样?这种疯狂证明拜登不适合做领导者. 【转纽约邮报推文：五角大楼称：气候和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是对美国“同等重要”的威胁】Q
+
+
+
+> Biden’s woke agenda isn’t just absurd, it’s dangerous. Climate change is the same as a growing threat from Communist China?
+> 
+> How’s the climate going to look when Communist China drops a nuclear bomb on its warpath for world domination? This lunacy proves Biden is unfit to lead. [https://t.co/4dKrXSQDkQ](https://t.co/4dKrXSQDkQ)
+> — Rick Scott (@SenRickScott) [November 11, 2021](https://twitter.com/SenRickScott/status/1458593995295281163?ref_src=twsrc%5Etfw)
+
+
 
  
 
