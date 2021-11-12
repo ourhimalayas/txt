@@ -2,18 +2,30 @@
 ---
 
 
-## 【文贵先生大直播PPT】全球最新病毒感染疫苗和疫苗政策信息汇总
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1659033/)
+## GTV新闻访谈简报|2021年11月12日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1659073/)
 
-撰稿：MyWay，莲心不染，舒平风，坐看云起时
-审核：三票先生，顽童2017
-PPT制作：青山
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
 
-**【2021年11月10日文贵先生大直播PPT：全球最新病毒感染疫苗和疫苗政策信息汇总】**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/41.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/42-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/43.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/44.jpg)
-* * *
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-10.png)
+文章仅代表作者本人观点，与Gnews无关
 
-发稿：云起时
+视频参看：2021.11.12早GTV新闻访谈
+
+[https://gtv.org/video/id=618e6bd1e7e770379233c18b](https://gtv.org/video/id=618e6bd1e7e770379233c18b)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

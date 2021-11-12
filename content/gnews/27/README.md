@@ -2,36 +2,33 @@
 ---
 
 
-## 欧洲议会拟制定法律反制中共政治干预
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1659023/)
+## 文贵大直播11.19.2021 郭先生谈投资中的“老鼠”与“狮子”角色的不同
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1659072/)
 
-作者：英国喜庄园 – I770775
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月11日，据盖特消息称，欧洲议会正考虑参照澳大利亚的《反渗透法》制定类似的法律，用以反制中共的一系列不透明政治游说手段。
+撰稿：Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-12-at-11.40.40-AM.png)图片来源：GTV & GETTR
+**郭文贵先生2021年11月12日在大直播中谈到投资的两种不同角色，是当所谓见好就收的“老鼠”还是懂得确立地盘和控制权的“狮子”。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2-5.jpeg)
+战友们作为GTV投资者，到现在都没有意识到当时投资GTV带来的是什么。
 
-据了解，为了打击中共的政治干预和商业机密盗窃行为，澳大利亚与2018年订立了《外国影响力透明法》。该法也在打击外国干预方面领先全球。
+第一，GTV是拿到喜币的基础。你没有投资GTV就没有资格投资喜币。
 
-至于欧洲，早在2017年爆料革命伊始，郭先生就曾尖锐地指出，多年来，欧洲一直是中共海外“蓝金黄”的重灾区，中共统战部等国家机构多次对欧盟各成员国的政治进行游说干预。
+GTV未来会给投资者带来意想不到的惊喜，特别的六中全会以后，最大受益者是G系列。新GTV是打开金库的第一道大门，你不能只看股价，不要忘了这个门的钥匙的作用。
 
-近日，澳大利亚参议员示警欧盟称，中共对外实行政治干预的手段已变得更为精密，其造成的影响将更复杂，伤害也会更大。目前，欧盟和欧洲议会正高度重视这类事件，并将为此做出了一系列对抗中共且态度强硬的举措。
+第二，投资GTV让你拥有这个金库的权力，可以享受G系列产生的一系列财富，战友们不要着急变现离场。
 
-参考链接：[欧洲议会拟参照澳洲制定法律反制中共干预](https://gettr.com/post/pgnj7m1d51)
+郭先生比喻投资G系列，就像老鼠和狮子捕食，老鼠永远躲在洞里边看见食物拽着就跑回洞去，看起来能占很多便宜。而狮子是将猎物拿下直接圈养起来，到时间就来取新鲜的肉，而且这是狮子的地盘，谁挡路，就吃掉谁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+郭先生特别指出GTV和喜币、喜联储，和Gnews、Glub、Gashion，和Gttr，它之间是完全独立的投资人，只有一个群体不独立，就是我们爆料革命战友。目前世界上只有摩根斯坦利、先锋集团才能做到这一点，因此战友们不管怎样都是赢家。
 
-总编：文特
-编辑：Irene木木
-校正/发稿：谐趣园
+郭先生郑重建议不懂得这个意义的战友尽早远离爆料革命新中国联邦，因为不懂这个意义的人无法走到最后，早晚一天会出问题。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+那么问题来了，在G系列这个金库面前，战友们你想做老鼠还是狮子？
+
+来源来源：https://gtv.org/broadcast/watch/618e6c5fe7e770379233c263
+
+校对发布：Shifter
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
