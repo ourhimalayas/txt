@@ -2,76 +2,50 @@
 ---
 
 
-## [重点推荐]得CCP真传的塔利班恐怖组织，正式宣布“毕业了”
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1656773/)
+## 被美国大型代表团突访台湾激怒，中共国启动台海附近战备警巡
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1656849/)
 
-加拿大温哥华扬帆农场  Michael.Tonny
-![](https://assets.gnews.org/wp-content/uploads/2021/11/668a8c2d-d99a-4a65-a839-22d2779ed7aa-w650-r1-s-800x533-1.jpg)图片来源：m.soundofhope.org
-2021年11月9日，中共扶持的恐怖组织塔利班在阿富汗第二大城市、塔利班的精神中心坎大哈举行阅兵式，使用前阿富汗和前美国为首的西方国际部队车辆和直升机为它们新的“伊斯兰酋长国军队”揭幕。
+翻译: 波士顿五月花  jiasen
 
-本次阅兵式出现了大量美制装备，包括AR系列突击步枪、M1117防地雷反伏装甲车、悍马越野车、“黑鹰”直升机等等……美国为首的西方国际部队蒙羞！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture2-scaled.jpg)China Initiates ‘Combat Readiness Patrol’ Near Taiwan, Outraged Over “Surprise” Large US Delegation Visit
+https://www.zerohedge.com/
 
-2021年11月10日，塔利班发言人扎比乌拉·穆贾希德在喀布尔召开新闻发布会上表示，塔利班已逮捕约600名“极端组织”成员，并逮捕了其他一些危害社会治安的劫匪和帮派成员。
+中共官媒周二宣布，人民解放军（PLA）东部战区司令部**已启动在台湾海峡附近的战备警巡，以回应其所谓的美国分裂势力活动。**
 
-塔利班严然成为世界最强的反恐组织！塔利班反恐能力非常强悍！
+美国国会代表团最近令中共出人意料的访问台北，中共国防部谴责此举粗暴干涉中共国内政。显然，近年来访台人数最多的一次美方代表团降落台北国际机场激怒了中共国领导人。
 
-简评：
+《南华早报》报道了周二由美国事实上的驻台大使馆（美国在台协会AIT）安排的对民主台湾的访问，报道称“据台湾新闻报道，美方代表团登上了美国海军 C-40A 飞机从马尼拉出发，于下午 6 时许抵达台北松山机场。”
 
-塔利班正式宣布从良！塔利班深得CCP真传，正式宣布“毕业了”！
+虽然美国国会代表团成员的名字没有被立即披露，但台湾媒体报道称，该代表团包括四名参议员、两名众议员以及七名助手。
 
-CCP对塔利班恐怖组织的栽培，无论是夺取政权、经济援助、党政建设、宣传手法、愚弄百姓、武力炫耀、武器支援都显示了世界头号种族灭绝、反人类恐怖组织该有的“风范”！
+台湾中央社援引台湾总统府发言人张惇涵所说，此次访问涉及美国参议员和众议员，是基于台美互信及协调的结果。”
 
-以下内容均来自于CCP公开资料：
+路透社详细介绍了中共国的迅速反应：
 
-2021年9月9日，中共国务委员兼外长王毅在北京出席阿富汗周边国家外长首次会议时通过视频连线宣布，中共向阿富汗运送价值3100万美元的物资。
+*在中国国防部谴责美国国会代表团乘军机抵达台湾后，中共军方于周二表示，**解放军在台湾海峡方向进行了战备警巡。***
 
-2021年10月25日，中共外长王毅与塔利班副总理巴拉达尔（Abdul Ghani Baradar）和外长穆塔奇（Amir Khan Muttaqi）等领导人在卡塔尔首都多哈举行了两天闭门会谈，面授机宜。塔利班发言人在一份声明中说，CCP不愧为世界恐怖组织的头把交椅，在墙国百姓疯抢食品的关键时刻，绝不亏待自家弟兄！中共保证提供额外600万美元的人道援助。
+*中共军方发言人在一份声明中说，这次警巡是针对**“有关国家”在台湾问题上的“**严重错误”言行**和在台湾的台独势力活动。*
 
-塔利班能如此迅速的窃取阿富汗民主政权，甚至能在不到两个月的时间，就逮捕约600名“极端组织”成员，并逮捕了其他一些“危害社会治安的劫匪和帮派成员”，必须感谢的是近10年来CCP对塔利班的大力栽培，言传身教！
+中共国防部进一步回应：“我们对此坚决反对并强烈谴责。我们正告美方立即停止挑衅行径和一切导致台海局势紧张升级的破坏性行动，不要向台独势力发出错误信号。**我们警告民进党当局，不要误判形势、铤而走险； 否则，只会把台湾带入深重的灾难。”**
 
-CCP作为反人类罪、种族灭绝和世界头号恐怖组织，能够招摇欺骗世界几十年，对恐怖分子，绝对够哥们儿！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture3.jpg)China Initiates ‘Combat Readiness Patrol’ Near Taiwan, Outraged Over “Surprise” Large US Delegation Visit
+https://www.zerohedge.com/
 
-2014年11月，CCP邀请塔利班代表访问北京，这是塔利班正式公开访问中共国，CCP对塔利班恐怖组织的支持由隐蔽到正式。
+此外，据中共官媒《环球时报》报道，解放军在台湾海峡附近的警巡已处于**“高度戒备”**状态：
 
-2015年5月，CCP与塔利班再次在北京会面。2015年11月，CCP表示愿意推动塔利班和阿政府之间的谈判，算是中共正式向外界宣布，帮助塔利班窃取阿富汗政权。
+*石说，指挥部将保持**高度戒备，采取必要措施，对危害中国核心利益的举动、威胁台海和平稳定的挑衅行为予以反击，**坚决维护国家主权和领土完整。*
 
-2016年5月21日，塔利班最高领导人阿赫塔尔·曼苏尔被美军斩首，塔利班面临灭顶之灾。CCP为帮助塔利班稳住阵脚，邀请由塔利班政治办公室负责人阿巴斯·斯坦尼克扎伊率领代表团2016年7月18日至22日访问北京。CCP和塔利班一起总结失败教训，面授CCP过去的经验！
+中共国防部对美国部分议员访问台湾岛提出坚决反对和强烈谴责，敦促美国停止加剧台湾海峡两岸的紧张局势的挑衅行为。
 
-2019年6月20日，CCP外交部发言人陆（腚）慷在例行记者会上表示，在美国和塔利班的和平谈判破裂之前，塔利班首席谈判代表毛拉·阿卜杜勒·加尼·巴拉达尔及其他人员秘密在北京与中方官员进行了会见。
+鉴于美国代表团中包含大量的国会领导人和参议员，以及尚未披露的行程细节，此代表团有望成为近期访问台湾的规模最大的美国政府高层代表团。我们很可能会再次目睹中共国的空中编队加强行动，突破台湾的防空识别区。最近飞机数量的大大增加，正是向支持台独的势力及其外部支持者发出的进一步信号。
 
-2019年9月22日，塔利班发言人沙欣周一在推特上发文说，塔利班恐怖组织一个9人代表团在北京与中共外交部阿富汗事务特使邓锡军举行了会晤。在访问中共国之前，塔利班曾派政治代表前往俄罗斯和伊朗。
+新闻来源: [China Initiates ‘Combat Readiness Patrol’ Near Taiwan, Outraged Over “Surprise” Large US Delegation Visit](https://www.zerohedge.com/geopolitical/chinas-pla-initiates-combat-readiness-patrol-near-taiwan-angered-over-surprise-us)
 
-2021年7月28日，中共国务委员兼外长王毅在天津“拜会”阿富汗塔利班政治委员会负责人、第二号人物巴拉达尔一行。在中共国官方媒体的报道中，此次会面规格颇高，气氛相当融洽。塔利班正式宣布，[中共是塔利班的老朋友](https://www.bbc.com/zhongwen/trad/world-58052388)，中共不好干的活，以后交由塔利班帮忙办了。
+* * *
 
-2021年9月3日晚，中共国务委员兼外长王毅在北京出席二十国集团外长视频会议，敦促美国领导的西方国家与塔利班接触并解除对塔利班恐怖组织的制裁。
+*素材来源：**jiasen*
 
-2021年11月10日，塔利班发言人扎比乌拉·穆贾希德在喀布尔召开新闻发布会上表示，塔利班已逮捕约600名“极端组织”成员，并逮捕了其他一些危害社会治安的劫匪和帮派成员。
-
-自此，塔利班得CCP真传，正式宣布“毕业了”！
-
-参考资料：
-
-[The Taliban hold a military parade in Kandahar](https://twitter.com/AFP/status/1458046713265070081?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1458046713265070081%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2021%2F11%2Ftaliban-holds-parade-islamic-emirate-army-us-military-gear-vehicles-choppers-provided-biden%2F)
-
-[Taliban Holds a Parade for ‘Islamic Emirate Army’ with US Military Gear, Vehicles, and Choppers Provided by Biden](https://www.thegatewaypundit.com/2021/11/taliban-holds-parade-islamic-emirate-army-us-military-gear-vehicles-choppers-provided-biden/)
-
-[Taliban stage military parade in Kandahar to inaugurate new army](https://www.euronews.com/2021/11/08/taliban-stage-military-parade-in-kandahar-to-inaugurate-new-army)
-
-[Taliban hold parade in Kandahar to inaugurate new army](https://sg.news.yahoo.com/taliban-hold-parade-kandahar-inaugurate-042907737.html)
-
-[\[国防军事早报\]阿富汗塔利班举行阅兵式 展示大量美式装备](https://tv.cctv.com/2021/11/11/VIDE20wk5jMR8XzzNSFhmeRK211111.shtml)
-
-[阿富汗塔利班在坎大哈举行阅兵式 展示大量美式装备](https://www.sohu.com/a/500272816_115239)
-
-[阿富汗塔利班举行阅兵 “黑鹰”等大量美制装备现身](http://news.enorth.com.cn/system/2021/11/10/052028709.shtml)
-
-[阿富汗塔利班在坎大哈举行军事阅兵](https://news.163.com/photoview/00AO0001/2312511.html#p=GOCJE30V00AO0001NOS)
-
-[阿富汗塔利班在坎大哈举行阅兵式 展示大量美式装备](http://greads.net/post/1739231.html)
-
-（免责声明：本文只代表作者观点，跟GNEWS平台无关）
-
-编审：文敏   发布：文敏
+*编辑**& 发布：jamie(文胤)*
 
  
 

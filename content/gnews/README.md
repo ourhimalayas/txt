@@ -15,113 +15,113 @@
 
 ---
 
-### [2021/11/11文贵先生盖特精要](/content/gnews/1/README.md)
+### [有声|新华社造神 引发海内外群嘲](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [有声|喜联储、喜币的诞生天生就是灭共的](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [有声|美国国立卫生研究院顶级科学家反对疫苗强制令](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [劳斯莱斯敦促澳大利亚与AUKUS发展民用小型核能](/content/gnews/4/README.md)
+ ` 走进澳洲`
+
+### [2021/11/11文贵先生盖特精要](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|自由潜水员在接种新冠疫苗后被诊断为心肌炎](/content/gnews/2/README.md)
+### [有声|自由潜水员在接种新冠疫苗后被诊断为心肌炎](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [有声|中共又一挑衅行为：美国海军舰艇的模拟模型成为导弹发射训练靶](/content/gnews/3/README.md)
+### [有声|中共又一挑衅行为：美国海军舰艇的模拟模型成为导弹发射训练靶](/content/gnews/7/README.md)
  ` MOSREC`
-
-### [有声|法国医药机构研究证实，中共病毒疫苗可引发心肌炎和心包炎](/content/gnews/4/README.md)
- ` MOSREC`
-
-### [中共病毒致贫，日本再补贴每户30万](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [第三针：日本批准辉瑞疫苗，加快莫德纳疫苗审查](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [七哥说—第27期](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [有声|法国医药机构研究证实，中共病毒疫苗可引发心肌炎和心包炎](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [从疫苗看科学成为一种迷信的宗教](/content/gnews/9/README.md)
+### [中共病毒致贫，日本再补贴每户30万](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [第三针：日本批准辉瑞疫苗，加快莫德纳疫苗审查](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [被美国大型代表团突访台湾激怒，中共国启动台海附近战备警巡](/content/gnews/11/README.md)
+ ` 波士顿五月花农场`
+
+### [七哥说—第27期](/content/gnews/12/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|法国医药机构研究证实，中共病毒疫苗可引发心肌炎和心包炎](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [从疫苗看科学成为一种迷信的宗教](/content/gnews/14/README.md)
  ` 秘密翻译组-原创组`
 
-### [美国务卿布林肯重申要保卫台湾](/content/gnews/10/README.md)
+### [美国务卿布林肯重申要保卫台湾](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [[重点推荐]得CCP真传的塔利班恐怖组织，正式宣布“毕业了”](/content/gnews/11/README.md)
+### [[重点推荐]得CCP真传的塔利班恐怖组织，正式宣布“毕业了”](/content/gnews/16/README.md)
  ` 温哥华扬帆农场`
 
-### [高疫苗接种率的欧洲各国中共病毒病例激增](/content/gnews/12/README.md)
+### [高疫苗接种率的欧洲各国中共病毒病例激增](/content/gnews/17/README.md)
  ` 纽约香草山MOS02`
 
-### [改写历史的政治常委会：习近平敲定终身统治中共国的计划（二）](/content/gnews/13/README.md)
+### [改写历史的政治常委会：习近平敲定终身统治中共国的计划（二）](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [健康的饮食习惯](/content/gnews/14/README.md)
+### [健康的饮食习惯](/content/gnews/19/README.md)
  ` 澳喜农场`
 
-### [关于黑暗势力对人类清除计划的猜想](/content/gnews/15/README.md)
+### [关于黑暗势力对人类清除计划的猜想](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [改写历史的政治常委会：习近平敲定终身统治中共国的计划（一）](/content/gnews/16/README.md)
+### [改写历史的政治常委会：习近平敲定终身统治中共国的计划（一）](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [11/11/2021 文贵盖特：红杉资本沈南鹏全家被抓，被迫变卖资产，体制内高官在海外的豪宅接连被中共贱卖套现](/content/gnews/17/README.md)
+### [11/11/2021 文贵盖特：红杉资本沈南鹏全家被抓，被迫变卖资产，体制内高官在海外的豪宅接连被中共贱卖套现](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [日美达成协议 致力建立自由开放的印太地区](/content/gnews/18/README.md)
+### [日美达成协议 致力建立自由开放的印太地区](/content/gnews/23/README.md)
  ` HimalayaRussia`
 
-### [2021年11月10日郭文贵先生直播全文字版](/content/gnews/19/README.md)
+### [2021年11月10日郭文贵先生直播全文字版](/content/gnews/24/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [11/11/2021 文贵盖特：曾经借助所谓“光棍节”蹿红的网商平台以及抖音如今风光不再](/content/gnews/20/README.md)
+### [11/11/2021 文贵盖特：曾经借助所谓“光棍节”蹿红的网商平台以及抖音如今风光不再](/content/gnews/25/README.md)
  ` 秘密翻译组-北美组`
 
-### [喜币喜支付能让人拥有终生可传承的财富,喜美元能带来无穷尽的方便](/content/gnews/21/README.md)
+### [喜币喜支付能让人拥有终生可传承的财富,喜美元能带来无穷尽的方便](/content/gnews/26/README.md)
  ` MG 澳喜农场多语组`
 
-### [TikTok引发青少年抽搐病](/content/gnews/22/README.md)
+### [TikTok引发青少年抽搐病](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加州官方否认州长遭受疫苗伤害传闻](/content/gnews/23/README.md)
+### [加州官方否认州长遭受疫苗伤害传闻](/content/gnews/28/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [比尔·盖茨最终承认中共病毒疫苗失败了](/content/gnews/24/README.md)
+### [比尔·盖茨最终承认中共病毒疫苗失败了](/content/gnews/29/README.md)
  ` HimalayaRussia`
 
-### [瑞典十九岁女孩注射了辉瑞疫苗两天后开始了她的苦难历程](/content/gnews/25/README.md)
+### [瑞典十九岁女孩注射了辉瑞疫苗两天后开始了她的苦难历程](/content/gnews/30/README.md)
  ` xiaobaige`
 
-### [佐治亚州2020选票图像记录大量被销毁](/content/gnews/26/README.md)
+### [佐治亚州2020选票图像记录大量被销毁](/content/gnews/31/README.md)
  ` HimalayaRussia`
 
-### [密歇根州学校系统在大量教师因 疫苗加强针生病后关闭](/content/gnews/27/README.md)
+### [密歇根州学校系统在大量教师因 疫苗加强针生病后关闭](/content/gnews/32/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美联储警告中共国房地产业可能出现的风险](/content/gnews/28/README.md)
+### [美联储警告中共国房地产业可能出现的风险](/content/gnews/33/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [有声|排除中共国，美商务部长即将出访亚洲多国](/content/gnews/29/README.md)
+### [有声|排除中共国，美商务部长即将出访亚洲多国](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [10月信贷社融增速企稳，个人房贷环比多增千亿](/content/gnews/30/README.md)
+### [10月信贷社融增速企稳，个人房贷环比多增千亿](/content/gnews/35/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [有声| 恒大持续抛售大额股份](/content/gnews/31/README.md)
- ` MOSREC`
-
-### [布林肯说如果中国攻击台湾，盟国将采取行动](/content/gnews/32/README.md)
+### [布林肯说如果中国攻击台湾，盟国将采取行动](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
-
-### [香港市民因鼓励“空白选票”遭当局逮捕](/content/gnews/33/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [有声| 阿里巴巴股东软银集团巨额亏损](/content/gnews/34/README.md)
- ` MOSREC`
-
-### [【信仰之声】生命的意义&#8211;从一个石瓶说起](/content/gnews/35/README.md)
- ` 纽约香草山MOS03`
-
-### [北京证交所将在下周一正式开市](/content/gnews/36/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
 
 ### [GTV新闻访谈简报|2021年11月11日早](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`

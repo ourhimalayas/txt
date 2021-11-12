@@ -2,39 +2,36 @@
 ---
 
 
-## 有声|排除中共国，美商务部长即将出访亚洲多国
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1656497/)
+## 比尔·盖茨最终承认中共病毒疫苗失败了
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1656641/)
 
-配音：香草山美食部 – 玫瑰园
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/B-2.jpg)
+《门道专家》11月11日发表文章，题目“比尔·盖茨最终承认，他为支持中共（新冠）病毒疫苗付出了巨大努力，但失败了。”
 
-11月7日，美国商务部宣布，部长雷蒙多将在下星期对亚洲地区进行为期三天的访问，这也是她上任后对亚洲地区的首次出访。
+全文如下：
 
-根据商务部行程安排显示，雷蒙多将在11月15日访问日本一天，在16日至18日对新加坡和马来西亚进行三天访问。主要议程是，和地区国家领导人以及私营部门的伙伴商谈强化供应链、数字经济和地区基础建设项目。从行程安排可以看出，雷蒙多这次的访问地区主要是东南亚地区，但并不包括亚洲大国中共国，因而引发外界猜想。
+在上周接受《政策交流》（Policy Exchange）采访时，令人毛骨悚然的比尔·盖茨终于承认危险的中共病毒疫苗并没有像广告宣传的那样有效。
 
-有分析人士说，雷蒙多的这次出访，是为了推动拜登上个月底在东亚峰会上提出的建立印太地区经济框架的倡议。拜登政府的这项举动就是为了与中共在亚太地区的经济和投资活动竞争，同时提升美国供应链的安全性与稳定性。 美国商务部长首次出访的行程，与新任东亚事务助理国务卿首次出访只见日韩盟友的安排如出一辙。美国远离并对抗中共的意图越发明显。
+盖茨是中共病毒疫苗的主要拥护成员之一，也是第一批呼吁进行多次连续接种中共病毒疫苗的全球主义者之一。
 
-文字版原文：[排除中共国，美商务部长即将出访亚洲多国](https://gnews.org/zh-hans/1653275/)
+尽管事实上疫苗并没有像广告宣传的那样有效，而且报道有成千上万的人因疫苗而生病和死亡，但全球化的精英们仍在继续推动多次接种。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+比尔·盖茨：经济损失，死亡，这太可怕，我希望这将导致研发项目将重点转移到我们今天没有的东西上。我们的疫苗没有阻止传播，我们得到的疫苗可以帮助你的健康，但只是稍微减少了传播。我们需要一种新的方式来做疫苗。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+尽管盖茨是中共病毒疫苗的最大支持者之一，但他承认了疫苗产业的失败。
 
-**更多资讯，更多关注**
+（全文完）
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+中共病毒疫苗最大的推手都这样表态了，正在审理疫苗诉讼的法官们知道该怎样判了吧？正在执行疫苗强制令的政府各部门知道该怎样做了吧？打压质疑疫苗阴谋声音、助纣为虐的媒体还继续嚣张吗？拜登还不收回你那荒唐的行政令吗？
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+该到清算邪恶的时候了，战友们加油！
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+原文链接：
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+[https://www.thegatewaypundit.com/2021/11/bill-gates-finally-admits-failure-covid-vaccines-fought-hard-prop-video/](https://www.thegatewaypundit.com/2021/11/bill-gates-finally-admits-failure-covid-vaccines-fought-hard-prop-video/)
 
  
 
