@@ -2,32 +2,30 @@
 ---
 
 
-## 文贵大直播11.19.2021 郭先生谈投资中的“老鼠”与“狮子”角色的不同
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1659072/)
+## GTV新闻访谈简报|2021年11月12日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1659073/)
 
-撰稿：Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-12-at-11.40.40-AM.png)图片来源：GTV & GETTR
-**郭文贵先生2021年11月12日在大直播中谈到投资的两种不同角色，是当所谓见好就收的“老鼠”还是懂得确立地盘和控制权的“狮子”。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
 
-战友们作为GTV投资者，到现在都没有意识到当时投资GTV带来的是什么。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-10.png)
+文章仅代表作者本人观点，与Gnews无关
 
-第一，GTV是拿到喜币的基础。你没有投资GTV就没有资格投资喜币。
+视频参看：2021.11.12早GTV新闻访谈
 
-GTV未来会给投资者带来意想不到的惊喜，特别的六中全会以后，最大受益者是G系列。新GTV是打开金库的第一道大门，你不能只看股价，不要忘了这个门的钥匙的作用。
+[https://gtv.org/video/id=618e6bd1e7e770379233c18b](https://gtv.org/video/id=618e6bd1e7e770379233c18b)
 
-第二，投资GTV让你拥有这个金库的权力，可以享受G系列产生的一系列财富，战友们不要着急变现离场。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-郭先生比喻投资G系列，就像老鼠和狮子捕食，老鼠永远躲在洞里边看见食物拽着就跑回洞去，看起来能占很多便宜。而狮子是将猎物拿下直接圈养起来，到时间就来取新鲜的肉，而且这是狮子的地盘，谁挡路，就吃掉谁。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
 
-郭先生特别指出GTV和喜币、喜联储，和Gnews、Glub、Gashion，和Gttr，它之间是完全独立的投资人，只有一个群体不独立，就是我们爆料革命战友。目前世界上只有摩根斯坦利、先锋集团才能做到这一点，因此战友们不管怎样都是赢家。
-
-郭先生郑重建议不懂得这个意义的战友尽早远离爆料革命新中国联邦，因为不懂这个意义的人无法走到最后，早晚一天会出问题。
-
-那么问题来了，在G系列这个金库面前，战友们你想做老鼠还是狮子？
-
-来源来源：https://gtv.org/broadcast/watch/618e6c5fe7e770379233c263
-
-校对发布：Shifter
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

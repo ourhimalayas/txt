@@ -2,34 +2,41 @@
 ---
 
 
-## 有声|喜联储将以“零中介”改变现有交易规则
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659203/)
+## オーディオブック| ヒマラヤコイン:世界で最もクリーンで最も安全な暗号通貨
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659220/)
 
-配音：香草山教育部 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月8日，值此喜联储上线一周之际，温哥华扬帆农场枫叶组发表Gnews评论员文章，详细阐述喜联储及其金融服务的全新特色。
+```
+吹替：ハーブヒル・レコーディング・グループ -蒙古鸿雁
+```
 
-文章指出，“喜联储”的一大特色是交易的“去中介化”。相比现有的金融系统，去中介化的喜币金融支付系统将具备不可比拟的成本优势。这个优势，对于专心做实体商业的企业非常有吸引力，但对传统的银行等金融企业却可能成为利润杀手。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-1.png)
+2021年11月1日は，全人類の史冊に載せることに値する日である。今日，世界金融の未来を代表するヒマラヤコインが正式に上場した。
 
-基于区块链的喜币推出后，电子钱包里面的余额不再依赖于银行系统；同时，基于区块链的喜币支付系统不需要银行账户即可完成支付或汇款。因此，随着喜币的金融生态逐步完善，喜币用户开设银行活期存款类账户的动机已经不存在。长期来看，传统银行的结算账户、活期账户、支票账户等类型都可能消失。储户与银行打交道的理由唯有获取利息。那么，传统银行凭借传统支付体系沉淀的巨量资金将不保，传统银行剥削储户利益的时代也将一去不复返。
+文貴氏は”ブロックチェーン技術を用い，同時に20%の金を固定して，ブレトンウッズ体制に戻るヒマラヤコインが世界で最も安全な通貨になり，ヒマラヤコインが全人類の未来になることができる。同時に，ヒマラヤコインが分散的(非中央主権的)なブロックチェーン技術上，また責任中心化の管理制度を加えたと語った。
 
-此外，即将上线的“喜支付”将建立商户与消费者基于喜币、喜美元等产品的结算方式，这意味着双方直接在区块链上对话，完全摆脱传统银行结算过程中的收单行、发卡行、结算行等中介佣金的瓜分。这对于商家和消费者都是非常有益的。鉴于此，文章指出，去中介化的喜联储生态，将在不久的将来，凭借其低廉佣金、多方互惠的特点，改写金融交易的游戏规则。
+上場する前に，最も厳格なKYC審査システムを用い，ヒマラヤコインは世界で最もクリーンの暗号通貨になり，永遠にビットコインやフォビのようなマネーロンダリングツールになることができない。
 
-文字版原文：[喜联储将以“零中介”改变现有交易规则](https://gnews.org/zh-hans/1653437/)
+ヒマラヤコインが上場した一面の歓喜の祝いの中で，文貴氏は新中国連邦人とヒマラヤコインの持ち主達に，中国共産党体制下の汚職官僚、白手袋達(資産の持ち代理人)のように，不浄なお金や出所不明のお金を貪らないように警告した。さもなければ，海南航空会社の陳峰、王健のように，いずれ財産は最後ゼロになり，更に身を殺す禍を招くことになる。冨を尊重し，大切に扱うことによってのみ，自分に冨がもたらすすべてのものを享受させることができる。
 
-音频处理：喜山必胜Maverick
+オリジナルテキスト版：[ヒマラヤコイン:世界で最もクリーンで最も安全な暗号通貨](https://gnews.org/1636791/)
 
-发稿：呼吸的雾霾（文小呼吸）
+オーディオプロセッシング：喜山必胜Maverick
+ポスティングです：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+もっと情報を知りたいなら、私達に注目して下さい
+
+[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**New York MOS Himalaya ****｜MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**New York MOS Himalaya ****｜Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**New York MOS Himalaya ****｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**Free to Join New York MOS Himalaya｜Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
