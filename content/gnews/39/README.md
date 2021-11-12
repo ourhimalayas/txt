@@ -2,38 +2,24 @@
 ---
 
 
-## 墙内累计7000万人感染中共病毒，死亡1370万人
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1657096/)
+## “双11”未公布销额快报，中共国“假擀面杖”经济已崩盘
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1657411/)
 
-作者：纽约香草山 – 木白
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在11月10日的文贵大直播中，郭先生爆料：中共国内累计有约7000万人感染中共病毒，累计死亡1370万人。
+#### 撰稿：东京樱花团/天路天道
+![](https://assets.gnews.org/wp-content/uploads/2021/11/123-1.jpg)[图片来源](https://news.mydrivers.com/1/795/795763.htm)
+据日经中文网消息，和往年一样，今年“双11”的资金流动依然很大，但也出现了一些变化。阿里巴巴并未按照每年的惯例发布11日凌晨的销售额快报。2020年该公司发布数据显示，从大促启动到11日凌晨0点半（中国时间），销售额超过了3723亿元人民币。
 
-郭先生说，这些数据来源于中共国六中全会前的一份报道，这是中共高层内部第一次“官方报道”墙内疫情的真实数据，但感染中共病毒死亡1370万人的事实，却在报道中被中共“巧妙”地用“冠状病毒相关性死亡”来描述。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4-6.jpg)
-按照中共国真实的疫情数据统计，目前，全球累计感染中共病毒人数超过3.2亿人，死亡人数超过1800万人。在这两项指标上，中共国都是全球第一。但中共公开的国内疫情数据却远低于实际，分别是累计确诊12.6万多例，累计死亡5697例。
+阿里巴巴在今年双十一的主题中，重点强调了中国领导层提出的“共同富裕”和“脱碳”等方针，呼吁消费者进行捐助和购买环保家电等。
 
-2020年以来，中共对全世界发动生化战，中共病毒肆虐全球，威胁人类生存。中国人民是这场生化战中最悲惨的受害者。
+当前，中共经济几近崩溃，服务业关店潮、零售大规模亏损、供应链企业的资金困境、地产金融的违约等系列问题此起彼伏，传导到社会末端就是消费的极度萎靡。
 
-面对比纳粹更邪恶的中共，郭先生在直播中愤慨地说：“在中共释放新冠病毒之前，你动任何中共官员都是犯罪；在中共释放冠状病毒之后，全人类都有权利杀之。因为，这是正义的。”
+信息来源：
 
-郭先生指出，爆料革命不会搞恐怖主义，但会给蒙蔽的中国人真相。为了因中共病毒死去的千百万人，为了全人类的正义和生存，任何国家都有权消灭中共。
+[中国“双11”国产品牌显示存在感](https://cn.nikkei.com/china/ccompany/46657-2021-11-12-05-00-36.html)
 
-参考链接：[墙内累计7000万人感染中共病毒，死亡1370万人](https://gnews.org/zh-hans/1653603)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

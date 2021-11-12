@@ -2,39 +2,29 @@
 ---
 
 
-## 新建写字楼交付无人问津，墨尔本中央商务区依旧“鬼城”
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1657634/)
+## 秘翻在线：辉瑞首席执行官希望将散布“错误信息”的人送进监狱
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1657650/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**翻译：小韭菜a**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/5823-10.jpg)图片来源：Sydney Morning Herald
+**校对：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-12-133632.jpg)
+辉瑞 (Pfizer) 首席执行官阿尔伯特·伯拉 (Albert Bourla) 承认，中央情报局和联邦调查局正在帮助这家大型制药巨头找寻并清除散布有关该公司错误信息的“犯罪分子”。
+
+在与总部位于华盛顿特区的智囊团——大西洋理事会交谈时，伯拉表示，有一小群人故意散布关于疫苗的错误信息，误导那些对接种疫苗犹豫不决的人。“那些人是罪犯”。他告诉大西洋理事会首席执行官他们不是坏人。他们是罪犯，因为他们在夺去数百万人的生命。”
+
+辉瑞公司非但不停止疫苗接种，反而把理性质疑者打成“罪犯”，而且还威胁说CIA和FBI都在帮助他们找出这些“罪犯”。那下一步会怎么样呢？“罪犯们”会不会抓捕然后被投入CDC在美国多地建立的再教育营接受“再教育”呢？曾几何时，自由的美国已经沦为专制之地，何等的悲哀啊！
+
+引用：
 
 
-编译报道：文泓
 
-11月12日，维多利亚州房地产委员会警告，由于办公楼建设速度持续加快，而办公人士却不愿意返回中央商务区，墨尔本CBD将继续成为一个“鬼城”。
+> NEW – Pfizer CEO: We're targeted by "a lot of dark organizations" and "we're getting briefings from the CIA and FBI."[pic.twitter.com/Q1wabSwuh1](https://t.co/Q1wabSwuh1)
+> — Disclose.tv (@disclosetv) [November 9, 2021](https://twitter.com/disclosetv/status/1458148973051617280?ref_src=twsrc%5Etfw)
 
-当前，墨尔本写字楼入住率只有疫情爆发前的4%。数据显示，在这场大流行中，CBD人流量比往年下降了80%。上个月，主城区每五个店铺中就有一家空置。
 
-同期却有许多办公楼正在建设中。今年墨尔本将交付超过222,000平方米的办公楼宇，占澳大利亚所有新增办公面积的一半。
 
-在周四晚间发布的一项计划中，房地产委员会呼吁维州公务员每周（至少）有三天回到CBD办公室；一旦达到90%的疫苗接种率，公共交通工具将免费使用三个月。
-
-房产委员会执行董事丹妮·亨特说，墨尔本CBD在过去的两年里一直是一个“鬼城”，办公室利用率只在封锁期间（短暂）恢复到45%，并不足以支持中央商务区的企业。
-
-开发商寄希望于商务人士的回流，亨特女士认为，对许多商务办公人士而言，这将是一个逐步返回办公室的过程。
-
-一位办公楼业主马金先生说：“目前最大的分歧是公共部门返回办公室的速度有多慢”，他说：“当政府继续告诉员工他们有能力在家工作时，他们会继续这样做。”
-
-原文链接：[Melbourne CBD offices: Ghost town’ warning as offices built without workers to fill them (theage.com.au)](https://www.theage.com.au/national/victoria/ghost-town-warning-as-offices-built-without-workers-to-fill-them-20211111-p5981g.html?utm_medium=Social&amp;utm_source=Twitter#Echobox=1636630098-1)
-
-编辑/发布：文泓
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+https://vaccines.news/2021-11-11-pfizer-ceo-people-spreading-misinformation-should-be-jailed.html
 
  
 

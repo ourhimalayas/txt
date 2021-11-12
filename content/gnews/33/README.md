@@ -2,28 +2,26 @@
 ---
 
 
-## 中共国石油告别万亿！近期市值蒸发3000亿
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1657503/)
+## 维迦诺大主教给反对健康暴政的抗议者的信
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1657510/)
 
-![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F1109%2F2b37befdj00r2aj280033c000hs00jsg.jpg&amp;thumbnail=690x10000&amp;quality=75&amp;type=jpg)
-据AI财经社11月9日报道，中共国石油继续下跌，总市值跌破8900亿元。在9月28日创造52周新高后开启下跌模式。在近25个交易日中，市值蒸发超过3020亿元。
+韩国首尔天池农场
+翻译：zzballack
+上传：追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-12-at-13.45.36.jpeg)图片来自原新闻链接
+《网关专家》11月11日收到了卡洛·玛利亚·维加诺（Carlo MariaViganò）大主教的一封信，呼吁人们反抗以疫苗为幌子的暴政，夺回自由。
 
-中共国经济接近崩溃，各行各业纷纷跌盘。靠吹牛、撒谎、欺骗、恶意竞争等手段炒作起来的虚假经济，早晚有崩盘的时候。经济的崩盘必然会导致政权的瓦解，中共的灭亡就在眼前。
+《网关专家》摘录了一部分节选，维加诺大主教说：
 
-新闻参考链接：[https://c.m.163.com/news/a/GOC8I1H60519D3BI.html?spss=newsapp](https://c.m.163.com/news/a/GOC8I1H60519D3BI.html?spss=newsapp)
+你们抗议是因为你们的宪法自由受到限制，还是因为你们意识到这些最初的控制措施只是逐步取消你们个人自由的第一步，医疗自由被一个替你们决定如何治疗的国家和医生所剥夺，出行自由被一个决定你们是否和何时可以离开家、工作、去餐馆和旅行的国家和监管者所剥夺？
 
-编辑：胖丁
+你们是否在示威反对绿色通行证的同时，却接受关于大流行病和中共病毒疫苗的官方说辞，或者你已经意识到这场巨大的闹剧源自在实验室制造的病毒，而释放和传播这种病毒的目的是为了创造一个紧急大流行病，然后借此控制全人类？
 
-* * *
+你是否因为必须扫描二维码才能进入你的办公室或工厂而恼怒地走上街头抗议，却接种了实验性的基因血清，或者你意识到所谓的疫苗是无效的，甚至有严重的长期和短期不良副作用的风险。而那些把你当作小白鼠的制药厂不用承担任何责任，如果你生病或死亡，他们不必为其造成的伤害支付任何赔偿，也不必向任何法院作出刑事回应？
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+维迦诺大主教引用了《圣经》里的一句话：真正的自由是在善的范围内行动的能力，这是你应该向往的自由，这是你应该以勇气和自豪要求的自由，这是“会让你自由”的自由。（约翰福音 8:32）
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[新闻来源](https://www.thegatewaypundit.com/2021/11/exclusive-archbishop-vigano-shares-letter-tgp-directed-towards-tomorrows-protesters-health-tyranny-switzerland/)
 
  
 

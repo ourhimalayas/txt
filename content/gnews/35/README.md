@@ -2,20 +2,28 @@
 ---
 
 
-## 巴西总统透露许多二剂疫苗接种者仍染疫而亡
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1657498/)
+## 中共国石油告别万亿！近期市值蒸发3000亿
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1657503/)
 
-编译：致敬香港！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-11.png)
-图片来源： 推特视频截图
+![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F1109%2F2b37befdj00r2aj280033c000hs00jsg.jpg&amp;thumbnail=690x10000&amp;quality=75&amp;type=jpg)
+据AI财经社11月9日报道，中共国石油继续下跌，总市值跌破8900亿元。在9月28日创造52周新高后开启下跌模式。在近25个交易日中，市值蒸发超过3020亿元。
 
-SummitNews网11月11日报道，网上近日流出一段[10月底G20罗马峰会期间巴西总统与世卫总干事对话的视频](https://twitter.com/MLauraAssis/status/1457029799927418883?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1457029799927418883%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fcovid-19%2Fbolsonaro-confronts-who-chief-people-are-dying-after-second-dose)，提及到巴西很多接种了二剂疫苗的人仍然染疫而亡。
+中共国经济接近崩溃，各行各业纷纷跌盘。靠吹牛、撒谎、欺骗、恶意竞争等手段炒作起来的虚假经济，早晚有崩盘的时候。经济的崩盘必然会导致政权的瓦解，中共的灭亡就在眼前。
 
-视频中，巴西总统博索纳罗向谭德塞表示，“在巴西，许多接种第二剂疫苗的人仍旧感染了新冠病毒” ，谭德塞回应，“疫苗不阻止病毒的传播，只会降低患重病和死亡的风险。” ；博索纳罗谴责世卫没有阻止对儿童的强制疫苗，谭德塞则称，“世卫不支持儿童接种疫苗。”；博索纳罗表示，每次自己对疫苗提出质疑时都会被指责发布假新闻，“我的手被束缚，我们孩子的生命危在旦夕。”；视频最后，巴西总统向谭德塞询问病毒起源，谭德塞满脸堆笑，“我们仍在调查。”
+新闻参考链接：[https://c.m.163.com/news/a/GOC8I1H60519D3BI.html?spss=newsapp](https://c.m.163.com/news/a/GOC8I1H60519D3BI.html?spss=newsapp)
 
-博索纳罗于20年7月感染新冠病毒，使用羟氯喹等药物治疗后迅速康复，之后他长期支持早期治疗，称“如果羟氯喹没有被政治化，本可以挽救更多的生命。”巴西总统对强制推广疫苗一直明确地持怀疑态度。
+编辑：胖丁
 
-**新闻来源：**[Bolsonaro Confronts WHO Chief: “People Are Dying After The Second Dose”](https://summit.news/2021/11/11/bolsonaro-confronts-who-chief-people-are-dying-after-the-second-dose/)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
