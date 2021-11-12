@@ -2,27 +2,15 @@
 ---
 
 
-## 美国巡回法庭对拜登总统强制疫苗行政令司法审查
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1658862/)
+## 【文贵先生大直播PPT】抗中共病毒新药分析
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1658972/)
 
-撰稿：铲共骑侠
+撰稿：MyWay，Zion (文恩），舒平风
 审核：三票先生，顽童2017
-PPT制作：健身健心（文阳）
+PPT制作：小黑兔2020，健身健心（文阳）
 
-**【2021年11月10日文贵先生大直播PPT：美国巡回法庭对拜登总统强制疫苗行政令司法审查】**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/21-6.jpg)
-**原告之一：德州政府**
-
-**被告：劳工部**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/22-2.jpg)
-**法庭11月8日下令：被告劳工部必须在11月10日中午前对德州的动议作出回应，德州在11月11日下午5点前作出回应。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/23.jpg)
-**全美至少21个州参加对强制疫苗令的诉讼**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/24.jpg)
-**强制令的最终命运：在联邦最高法院。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/25-1.jpg)
-**根据判例，拜登政府在联邦最高法院胜诉的机会渺茫。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/26.jpg)
+**【2021年11月10日文贵先生大直播PPT：抗中共病毒新药分析】**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/31.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/32.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/33-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/34.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/35.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/36.jpg)
 * * *
 
 发稿：云起时

@@ -2,44 +2,134 @@
 ---
 
 
-## Hörbücher|Deutsche Bildungsministerin Fordert die Schließung aller Konfuzius-Institute
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659244/)
+## 疫苗护照将社会变成反乌托邦的噩梦
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1659363/)
 
-Aufgenommen von:Aufgenommen von: MOS Buddhism Group –Nancy
+编译：Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/zombie-passport.jpg)图片来源：naturalnews.com
+
+疫苗护照将每个社会都变成了反乌托邦的噩梦，迫使未接种疫苗的人像逃犯一样生活，由于几乎每个零售店都被禁止，他们无法购买杂货、燃料、药品甚至衣服。他们还被禁止进入银行、图书馆和大学，无法获得金融服务和高等教育。
+
+正是因为有一位勇敢的人在报道，根据新冠肺炎护照规定，令人震惊的目击者对立陶宛生活的描述现已浮出水面。 完整流程可在此链接中找到：[threadreaderapp.com](https://threadreaderapp.com/thread/1456627584586944514.html)
+
+以下是该流程的一些摘录：
+
+**流放**
+
+加重处罚：越来越难获得食物、药品、汽车燃料
+
+**隔离**
+
+卧底警察突袭
+
+相互憎恨
+
+媒体审查、恐吓
+
+这是所有强制疫苗通行证制度的国家肯定将面临的威权未来：
+
+流放：
+
+立陶宛是欧洲最严格的强制疫苗通行证制度。现在是第 8 周。还没有计划结束， 而且还越来越严格。
+
+没有通行证，我和妻子只能进入买食品、药品、光学器件或农场/宠物用品的小商店。
+
+我们在其他任何地方都被禁止。
+
+**如果没有通行证，我们将被法律禁止进入任何服装店。**
+
+**时尚、运动、童装、朋克、婚纱：所有服装店都禁止我们。**
+
+即使是二手店也必须强制执行驱逐令。 没有通行证，任何人不得买卖。
+
+**加重处罚：**
+
+直到 10 月中旬，法律才允许我们在小商店购买食品和药品。
+
+官僚们认为这太松了。 两周前，他们对小商店施加了新的限制：
+
+将容量限制为每 30 平方米 1 名购物者
+
+或者禁止没有通行证的人。
+
+**结果：在许多地区，没有通行证就无处可买食物。**
+
+超市从九月开始就禁止我们了，现在小商店也禁止我们了。
+
+那么如何购买食物呢？
+
+在线的， 户外市场， 或者前往数量不断减少但\*尚未\*禁止我们的商店之一。
+
+大多数药店选择不禁止没有通行证的人。鉴于它们的体积很小，这一决定意味着：一次只能有一个客户在里面。
+
+**结果：客户在寒冷的室外等待，**** ****或者买不到药而离开**。
+
+在需要通行证的药店，客户照常进入。
+
+对于加油站而言，日益增加的强制措施导致了混合系统。
+
+2/5的车站决定完全禁止没有通行证的人。
+
+大约1/5的人仍然允许完全访问。
+
+其余的禁止我们进入内部，但允许我们在外面加油和支付。
+
+**隔离：**
+
+在少数情况下，法律并没有完全驱逐我们， 相反，它允许我们限制服务。
+
+在银行，持有通行证的人可以获得所有服务。
+
+但对于那些没有通行证的人，法律只允许我们进行最多 15 分钟的“基本金融服务”。
+
+**警察国家：**
+
+便衣警察现在突袭超市和购物中心，阻止人们，并检查他们的疫苗通行证和身份证，以确认这是属于该人的有效通行证。
+
+警方就突击检查召开新闻发布会：
+
+**警方突袭的规模令人震惊。**
+
+上周的一天，200 名便衣警察突袭了商店和商场， 这占全国所有军官的 2.5%。
+
+一天内，他们对 11,700 人进行了突击调查，这占总人口的 0.4%。
+
+**想象一下：**
+
+你在一家超市里，推着你的购物车穿过过道，一个穿着普通衣服的人突然拦住你，并要求查看你的疫苗身份证和身份证。
+
+如果有任何不妥之处，您将被赶出去，并面临最高 5000 欧元的罚款和最高 6 年的监禁。
+
+**政府变成了恐怖分子，医生变成了杀人犯，疫苗倡导者变成了死神崇拜者**
+
+人造冠状病毒大流行(Covid plandemic )是一项针对全人类的全球灭绝计划。这就是为什么没有政府关心人权或人类生存的原因，因为他们的最终目标就是大规模削减人口。
+
+**他们抛弃了法治，抛弃了公民权利、人权和人的尊严**。那些不同意实验性刺突蛋白注射的人，现在被辉瑞公司的首席执行官称为“罪犯”。**他坚持认为，任何不同意他的产品的人都应该被逮捕和监禁。**
+
+**接受注射的人正在变成“疫苗僵尸“**，或者会表现出植根于侵略和愤怒的怪异行为。他们正在失去更高的认知功能，并退化为“爬虫类”脑干生物，无法进行理性思考。
+
+**当政府官僚自己开枪时**，他们也被变成了没有同情心的“疫苗僵尸“。他们现在从爬行动物的角度看世界——捕食者和猎物——**而我们是他们眼中的猎物。**
+
+而且他们绝对不会自愿停止，直到最后一个人都死了或垂死为止。**拯救人类的唯一方法是：结束政府和大型制药公司的恐怖种族灭绝。结束**** CDC****、****FDA ****和致命的贩毒集团。拆除大型媒体宣传机构并关闭大型科技审查计划。起诉所有推动大流行、疫苗、欺诈性科学和无情封锁的人。**
+
+为了解放人类，我们现在必须为生存而战，对抗不再具有人类资格的全球死亡邪教。
+
+**评论：令人震惊的立陶宛生活就是世界各国将面临的未来**！**拯救人类的唯一方法是：结束政府的恐怖和大型制药公司的种族灭绝。行动起来！行动！行动！行动！**
+
+**参考资料：**
+
+- [Brighteon][Situation Update, Nov 11, 2021 – Vaccine passports transform society into a dystopian NIGHTMARE, forcing unvaxxed to live like FUGITIVES](https://www.brighteon.com/1d1e694c-4fd3-4181-95db-a6be989025a2)
+- [naturalnews][Vaccine passports transform society into a dystopian NIGHTMARE, forcing unvaxxed to live like FUGITIVES](https://www.naturalnews.com/2021-11-11-vaccine-passports-transform-society-into-a-dystopian-nightmare-forcing-unvaxxed-to-live-like-fugitives.html#)
 
 
+* * *
 
-**Interviews mit der GTV Presse       02.11.2021**
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
 
-Kurz nach dem offiziellen Rücktritt von Angela Merkel am 26. Oktober schrieb die amtierende Bildungsministerin Karliszczak einen Brief an die Konferenz der deutschen Hochschulpräsidenten und die Kultusministerkonferenz.  In dem Brief forderte sie die Hochschulen auf, “die Rolle der Konfuzius-Institute innerhalb der deutschen Hochschullandschaft neu zu bewerten”.
-
-Sie sagte, dass sie seit langem voller Sorge über die Auswirkungen der 19 Konfuzius-Institute an deutschen Universitäten sei. Die Auswirkungen der Konfuzius-Institute auf die akademische Freiheit in Deutschland sind langfristig und nicht hinnehmbar.
-
-Dies geschah, nachdem zwei Universitäten auf Druck des kommunistischen Generalkonsuls Chinas in Deutschland, Feng Haiyang, eine Präsentation des deutschen Buches “Xi Jinpings Biografie” abgesagt hatten. Oster, einer der Autoren des Buches, kritisierte das Konfuzius-Institut als “den langen Arm Pekings in Deutschland”.  Ein anderer Autor behauptete, dass es in China üblich ist,  nicht über nationale Führer sprechen zu dürfen, aber in Deutschland  wird nicht geduldet.  Der Vorfall veranlasste die Bildungsministerin unmittelbar, die Schließung aller Konfuzius-Institute in Deutschland zu fordern.
-
-Nach Schweden und Norwegen ist dies ein weiteres Land, das sich nicht von der KPCh durch Kulturexport einschränken und manipulieren lassen will.
-
-Originallinks:[Deutsche Bildungsministerin Fordert die Schließung aller Konfuzius-Institute](https://gnews.org/1644549/)
-
-Gepostet von: 呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-**Für weitere Informationen, folgen Sie uns:**
-
-[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**New York MOS Himalaya ****｜****MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**New York MOS Himalaya ****｜****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**New York MOS Himalaya ****｜****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**Free to Join New York MOS Himalaya｜Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
 
  
 

@@ -2,61 +2,44 @@
 ---
 
 
-## 乔丹彼得森说由于新冠限制“极权主义”困扰着加拿大和西方
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1659222/)
+## Hörbücher|Deutsche Bildungsministerin Fordert die Schließung aller Konfuzius-Institute
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659244/)
 
-作者：Ian Miles Cheong
-翻译：HimaFAFA
+Aufgenommen von:Aufgenommen von: MOS Buddhism Group –Nancy
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/a0.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-加拿大心理学家兼作家乔丹·彼得森公开反对医疗暴政和强制执行疫苗规定，将其描述为大流行期间“侵犯个人权利”。
 
-在接受政治评论员戴夫·鲁宾的采访时，以《*人生的**12**条规则*》一书而闻名的彼得森说，他接种了疫苗，但他只想让政府一个人待着。他的言论呼应了西半球和澳大利亚许多反对疫苗和口罩规定的接种者。
 
-在采访中，彼得森谈到了在新冠大流行爆发后，西方是如何变成一个专制和极权国家的。
+**Interviews mit der GTV Presse       02.11.2021**
 
-他说：
+Kurz nach dem offiziellen Rücktritt von Angela Merkel am 26. Oktober schrieb die amtierende Bildungsministerin Karliszczak einen Brief an die Konferenz der deutschen Hochschulpräsidenten und die Kultusministerkonferenz.  In dem Brief forderte sie die Hochschulen auf, “die Rolle der Konfuzius-Institute innerhalb der deutschen Hochschullandschaft neu zu bewerten”.
 
-最让我惊讶的可能是，我们在新冠发布后立即模仿极权主义国家的速度有多快。你知道，如果你仔细考虑一下，没有人真正知道病毒会有多严重，所以这是一种未知的威胁。所以你可以想象一群动物或一群鱼，就此而言，因为这种现象在整个动物王国中都是普遍的。
+Sie sagte, dass sie seit langem voller Sorge über die Auswirkungen der 19 Konfuzius-Institute an deutschen Universitäten sei. Die Auswirkungen der Konfuzius-Institute auf die akademische Freiheit in Deutschland sind langfristig und nicht hinnehmbar.
 
-与对真正的威胁反应不足相比，对威胁反应过度的代价通常很小。与对实际威胁反应不足相比，对假设性威胁反应过度的成本更低，因为如果反应不足，您可能会死，而如果反应过度，您通常只会感到疲倦一分钟。
+Dies geschah, nachdem zwei Universitäten auf Druck des kommunistischen Generalkonsuls Chinas in Deutschland, Feng Haiyang, eine Präsentation des deutschen Buches “Xi Jinpings Biografie” abgesagt hatten. Oster, einer der Autoren des Buches, kritisierte das Konfuzius-Institut als “den langen Arm Pekings in Deutschland”.  Ein anderer Autor behauptete, dass es in China üblich ist,  nicht über nationale Führer sprechen zu dürfen, aber in Deutschland  wird nicht geduldet.  Der Vorfall veranlasste die Bildungsministerin unmittelbar, die Schließung aller Konfuzius-Institute in Deutschland zu fordern.
 
-“所以一群人会踩踏，因为这群人中最神经质的成员会先跳起来，然后他们会立即跟上他们，”彼得森说。 “这就是我们在大流行初期所做的事情。中国人首先采取了行动，不幸的是，现在他们是一个极权主义国家，我们都紧随其后。这在某种意义上是可以原谅的，因为我们不知道我们面临什么样的威胁。”
+Nach Schweden und Norwegen ist dies ein weiteres Land, das sich nicht von der KPCh durch Kulturexport einschränken und manipulieren lassen will.
 
-“但是，这种崩溃在加拿大真的令人震惊。我们的权利崩溃，比如说，对于流动性、言论自由等，在加拿大的背景下，这对我来说尤其令人恼火，因为早在 80 年代，黄金时代皮埃尔特鲁多部长，我们现任总理的父亲，他是一个知识分子，他非常迷恋法国民法，他在加拿大联邦普通法结构的基础上嫁接了一项权利法案，我不喜欢那样；我认为这是对伟大的英国普通法传统的混蛋化，”彼得森继续说道。 “我不喜欢权利法案，因为它们基于这样一种观点，即你拥有一组有限的权利，并且社会契约将它们授予你或政府。而且我认为这是倒退……”
+Originallinks:[Deutsche Bildungsministerin Fordert die Schließung aller Konfuzius-Institute](https://gnews.org/1644549/)
 
-“现在我们有了他的儿子。” 彼得森问道。“我父亲没有接种疫苗；他决定不这样做，部分原因是他们告诉他必须这样做。……无论如何，看到这种情况发生，然后发现这背后没有任何支持，除了最有用和最懦弱的随机民意调查之外，别无他物，这非常令人沮丧，令人抓狂，也令人愤怒；所有这些事情一下子就完成了。”
+Gepostet von: 呼吸的雾霾（文小呼吸）
 
-戴夫·鲁宾询问彼得森，民意调查显示公众对这些任务的大量支持是否“不正常”，彼得森给出了肯定的回答。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
 
-“当然，这是不正常的，”他回答道。
+**Für weitere Informationen, folgen Sie uns:**
 
-“天哪，你是如何获得准确的民意调查数据的？好吧，在什么时间范围内？你要每天投票吗？每小时怎么样？每一分钟呢？每周？每两周？当你进行民意调查时，谁接听电话？你是如何构建问题的？你是不是因为对问题的提出方式没有给予足够的关注而引出某种特定的答案？”
+[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-“尽管我们大肆宣传我们的权利受到保护，但看到这种情况发生，你知道，现在没有接种疫苗的加拿大人不能离开这个国家，”彼得森补充道。“比如，什么鬼？这是为什么？我接种了疫苗，人们带我去执行了这个任务，我想，好吧，我会接种该死的疫苗。这是交易，伙计们。我会接种疫苗；你他妈的别管我。”
-![](https://assets.gnews.org/wp-content/uploads/2021/11/A01.png)
-“那行得通吗？不。所以，愚蠢的我，你知道吗？” 他哀叹道。“这就是我的感受。就像，好吧，现在我回到加拿大时必须接受新冠检测。我必须在离开加拿大之前接受测试。现在，这可能是之后的问题，这可能是美国人的问题，因此不在加拿大的权限范围内，但返回加拿大的限制更加严格。就像，如果你不让我一个人呆着，我为什么要接种疫苗？”
+[**New York MOS Himalaya ****｜****MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-来源：https://www.rebelnews.com/jordan\_peterson\_says\_totalitarian\_covid\_restrictions\_plaguing\_canada\_the\_west
+[**New York MOS Himalaya ****｜****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-（文章仅代表作者个人观点）
+[**New York MOS Himalaya ****｜****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+[**Free to Join New York MOS Himalaya｜Discord**](https://discord.gg/ChqXAHd)
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
  
 
