@@ -2,23 +2,36 @@
 ---
 
 
-## 文贵大直播11.12.2021：不要等不到馒头熟就掀锅
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1658853/)
+## 大屠杀博物馆确认新疆正在发生反人类罪行
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1659034/)
 
-撰稿：回响
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-12-at-9.55.35-AM.png)图片来源：GTV & GETTR
-近日喜币一路攀升，但作为现在投资喜币的主人们，究竟应该如何看待和对待手中的财富？新中国联邦创始人郭文贵先生在11月12日大直播中，简约但语重心长的分享了他所亲身经历的真实人物和事例。
+作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月9日，美国大屠杀纪念博物馆发布了一份长达56页的报告，当中指出，中共仍在持续打压新疆维吾尔人，维族人可能面临着种族灭绝的危险。
 
-特斯拉是郭先生非常喜欢的美国企业；战友是郭先生最看重、胜过家人的群体；推特是几乎具有全球垄断地位的公司。郭先生一一例举其中的重要人物身上发生，正反两面的经验参照和惨痛教训。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide3-6.jpeg)
 
-无论是引领人类走向太空生活的马斯克，还是曾经非常优秀的战友，在面对财富，面对投资的时候，一念之差，会超过天壤之别的巨大差距，从而完全是无法相提并论的人生。
+该报告显示，对于中共针对新疆维吾尔人实施的种族灭绝行为，博物馆感到非常担忧。同时，博物馆再次确认，新疆正在发生反人类罪行。
 
-人生许多机会，无法从头再来，世间更无后悔药。郭先生用一句民间谚语送给喜币的主人们：不要等不到馒头熟就掀锅。
+博物馆防止种族灭绝中心主任娜奥米-基科勒表示，中共政府监禁了100万至300万维吾尔人，他们被强制进行绝育、酷刑、性暴力和强迫劳动，其规模和严重程度令人震惊。基科勒强调，中共这种行为对维吾尔族个人、家庭和社区造成了严重的损害，且这些创伤将波及几代维族人。
 
-【原文链接】https://gtv.org/broadcast/watch/618e6c5fe7e770379233c263
+为此，基科勒呼吁，维吾尔人正面临着紧迫的处境，世界各国应当一道行动，保护维族人。基科勒补充，目前，中共正在使用新技术迫害维吾尔人，单一的正义力量或将很难与之对抗，因此，这需要全球协调和统一的回应与抗衡。她表示，中共的罪行不应该被允许发生。
 
-校对发布：Shifter
+参考链接：[美大屠杀博物馆发布报告 再次确认新疆发生着反人类罪行](https://www.voachinese.com/a/China-may-be-committing-genocide-against-Uyghurs-20211110/6307886.html)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：文特
+编辑：Kathy文艺
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
