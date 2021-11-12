@@ -2,30 +2,41 @@
 ---
 
 
-## 有声|中共国病例破千
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659178/)
+## オーディオブック| ヒマラヤコイン:世界で最もクリーンで最も安全な暗号通貨
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659220/)
 
-配音：香草山香港部 – 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-九月下旬中共开始展开大规模的第三针疫苗接种工作，以及在二十余个省市中加速推行3-11岁儿童新冠疫苗接种，自10月17日至今短短半个多月内，中共国内感染新冠病毒者已逾千例，同时多地出现校内儿童聚集性感染。
+```
+吹替：ハーブヒル・レコーディング・グループ -蒙古鸿雁
+```
 
-据爆料称，在本轮疫情中，仅北京地区，确诊病例中接种过疫苗的患者就高达82%。儿童阳性病例数同样达到新高。从11月2日至7日，仅河南郑州市就出现29例儿童感染病例。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-1.png)
+2021年11月1日は，全人類の史冊に載せることに値する日である。今日，世界金融の未来を代表するヒマラヤコインが正式に上場した。
 
-文字版原文：[中共国病例破千](https://gnews.org/zh-hans/1653908/)
+文貴氏は”ブロックチェーン技術を用い，同時に20%の金を固定して，ブレトンウッズ体制に戻るヒマラヤコインが世界で最も安全な通貨になり，ヒマラヤコインが全人類の未来になることができる。同時に，ヒマラヤコインが分散的(非中央主権的)なブロックチェーン技術上，また責任中心化の管理制度を加えたと語った。
 
-音频处理：喜山必胜Maverick
+上場する前に，最も厳格なKYC審査システムを用い，ヒマラヤコインは世界で最もクリーンの暗号通貨になり，永遠にビットコインやフォビのようなマネーロンダリングツールになることができない。
 
-发稿：呼吸的雾霾（文小呼吸）
+ヒマラヤコインが上場した一面の歓喜の祝いの中で，文貴氏は新中国連邦人とヒマラヤコインの持ち主達に，中国共産党体制下の汚職官僚、白手袋達(資産の持ち代理人)のように，不浄なお金や出所不明のお金を貪らないように警告した。さもなければ，海南航空会社の陳峰、王健のように，いずれ財産は最後ゼロになり，更に身を殺す禍を招くことになる。冨を尊重し，大切に扱うことによってのみ，自分に冨がもたらすすべてのものを享受させることができる。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+オリジナルテキスト版：[ヒマラヤコイン:世界で最もクリーンで最も安全な暗号通貨](https://gnews.org/1636791/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+オーディオプロセッシング：喜山必胜Maverick
+ポスティングです：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+もっと情報を知りたいなら、私達に注目して下さい
+
+[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**New York MOS Himalaya ****｜MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**New York MOS Himalaya ****｜Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**New York MOS Himalaya ****｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**Free to Join New York MOS Himalaya｜Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
