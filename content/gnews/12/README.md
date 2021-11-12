@@ -2,96 +2,27 @@
 ---
 
 
-## 诡异的新冠药物“莫努匹韦”（Molnupiravir）
-` 疫苗病毒专栏` [轉載自GNews](https://gnews.org/zh-hans/1657208/)
+## 秘翻在线：韩国准备明年1月开始对虚拟币征税
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1657295/)
 
-加拿大温哥华杨帆农场 Myway
+撰稿：潛水的鲸
+![](https://assets.gnews.org/wp-content/uploads/2021/11/画像1-15.jpg)图片来源：[https://discord.com](https://discord.com/)
+经济副总理兼企划财政部长洪楠基最近在国会重申：“将按计划对虚拟币征税”。这是对政治圈要求推迟征税提议的划线表态。根据去年国会通过的税法修改案，从明年1月份起，比特币等虚拟货币的投资者年收益超过250万韩元就要缴纳收益20%的税金。
 
+虽然洪副总理信誓旦旦，但投资者认为延期的可能性更大。因为明年3月大选在即, ‘政治季节’已经来临。政府原计划在今年10月开始征收虚拟货币税，但是为了迎合业界的‘需要更多时间来准备税收的基础架构’的意见，征税推迟了3个月。面临大选，政治圈要求延期的呼声越来越高。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-1-5.png)
+共同民主党总统候选人李在明8日在选举对策委员会会议上表示，将推进推迟一年征收虚拟货币税。此前，民主党也把推迟一年税收定为党论。李候选人表示: “从2023年开始征收股票转让差价税，有必要配合实施时间”。‘国民力量’总统候选人尹锡悅也在9月的竞选讨论会上表示: “反对在目前状态下征税”。他们主张为了防止投资者遭受虚拟币诈骗等损失，首先应该制定相关制度。面对政界的波浪式攻势，洪副总理表示: “因为这种情况，去年朝野议员一致同意征税，已经……”话未落音就被打断了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片sd.jpg)
+有分析认为，朝野选候选人之所以少有的意见一致，与虚拟货币的主要投资者年龄是20~30一代不无关系。截至今年9月，在四大交易所有过至少一次交易的投资者超过570万人。这比2019年的51万名剧增了10倍以上。 在韩国国内最大的交易所，60%的投资者年龄是20~30岁。对于在年轻人中不受欢迎的两位总统候选人来说, 恐怕不得不考虑虚拟币投资者的意愿。
 
+信息来源：   [https://www.donga.com/news/article/all/20211110/110185575/1](https://www.donga.com/news/article/all/20211110/110185575/1)
 
-**一、Molnupiravir 基本信息**
+看来韩国政府对于马上要实施的法案，还没有统一的意见，而且关于实际实施后的细则还没完全准备到位。明年1月开始征税，针对的是还没开始的明年虚拟币收益，他们认为投资者可以在2023年5月申报，所以收税准备没问题。可是真正实施的时候，因为可能出现各种未知的状况和不同的问题，肯定会出现各种现实性的阻碍。况且虚拟币是个新兴的领域，有无限的发展空间，同时无法预测的可能性有很多。政府急于税收，政策实行不利的话可能有损公信力。
 
-莫努匹韦（Molnupiravir），商品名Lagevrio，抗病毒药物，可抑制某些RNA病毒的复制，用于治疗SARS-CoV-2感染者。
+（文章仅代表作者个人观点）
 
-作用原理：是合成核苷衍生物N4-羟基胞嘧啶（又称EIDD-1931）的原药，通过在病毒RNA复制过程中引入复制错误而发挥其抗病毒作用 。
+责编：待命（文晓）
 
-开发历史：最初是由埃默里大学的药物创新公司–埃默里药物创新投资公司开发的，用于治疗流感。然后被位于迈阿密的Ridgeback Biotherapeutics公司收购，该公司后来与默克公司合作，进一步开发该药物 。
-
-2021年11月4日在英国被批准用于医疗用途，采购价值达到$340 Million 。法国政府在药物被批准前抢购了5万剂。
-
-每个疗程价格为$700。
-
-参考文献：
-
-- [https://en.wikipedia.org/wiki/Molnupiravir](https://en.wikipedia.org/wiki/Molnupiravir)
-- [https://www.reuters.com/business/healthcare-pharmaceuticals/france-says-it-has-ordered-50000-doses-mercks-covid-19-antiviral-pill-2021-10-26/](https://www.reuters.com/business/healthcare-pharmaceuticals/france-says-it-has-ordered-50000-doses-mercks-covid-19-antiviral-pill-2021-10-26/)
-- [https://nationalfile.com/uk-buys-340-million-worth-of-new-covid-pills-from-merck-becomes-first-country-to-approve-costly-drug/](https://nationalfile.com/uk-buys-340-million-worth-of-new-covid-pills-from-merck-becomes-first-country-to-approve-costly-drug/)
-
-
-**二、临床试验情况**
-
-目前临床实验尚未结束，正在进行的临床实验有：莫努匹韦安全性及其对SARS-CoV-2的病毒脱落的影响（临床二期）。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-71.png)
-莫努匹韦对COVID-19非住院成人患者的疗效和安全性（临床二、三期）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-25.png)
-莫努匹韦用于预防成人冠状病毒疾病（COVID-19）的研究（临床三期）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-17.png)
-**三、药物的潜在危险因素**
-
-***1）致癌、致突变和生殖毒性：***
-
-莫努匹韦（Molnupiravir）通过诱使病毒使用该药物进行复制，然后在复制开始后将错误插入病毒的遗传密码中。当发生足够多的复制错误时，病毒将无法再进行复制。但该药物可能整合到哺乳动物遗传物质中，导致致癌。从理论上讲，致突变药物都可以导致出生缺陷或癌症。
-
-《科学》杂志总结：这类类似的实验性药物已被证明会导致动物的生殖毒性，接受治疗的动物的后代出生后没有牙齿，也没有部分头骨。
-
-参考链接
-
-- [https://www.drugdiscoverytrends.com/early-safety-concerns-accompanied-mercks-molnupiravir-the-first-potential-oral-covid-19-therapy/](https://www.drugdiscoverytrends.com/early-safety-concerns-accompanied-mercks-molnupiravir-the-first-potential-oral-covid-19-therapy/)
-- [https://archive.md/tnP59](https://archive.md/tnP59)
-- [https://www.foxnews.com/health/merck-pill-oral-covid-treatment](https://www.foxnews.com/health/merck-pill-oral-covid-treatment)
-
-
-***2）药物治疗中的不安全性***
-
-虽然有可能在最佳浓度下，莫努匹韦很可能导致足够的病毒基因突变以阻止病毒的复制和继续传播，但次优剂量是否有效未知。
-
-目前使用莫努匹拉韦的方案是800毫克的剂量，以片剂口服形式给药，每天两次，持续五天。在这一浓度下，理论上能杀灭病毒，但现实中，很多人不会服用整个疗程的药物。研究表明，多达40%患者未能完成整个疗程，在次优浓度下，莫努匹拉韦可能会导致病毒突变，产生更加难以控制的病毒变种。
-
-参考链接：
-
-- [https://www.forbes.com/sites/williamhaseltine/2021/11/01/supercharging-new-viral-variants-the-dangers-of-molnupiravir-part-1/?sh=4e0123a96b15](https://www.forbes.com/sites/williamhaseltine/2021/11/01/supercharging-new-viral-variants-the-dangers-of-molnupiravir-part-1/?sh=4e0123a96b15)
-
-
-**四、伊维菌素和莫努匹韦对比**
-
-
-|  | **伊维菌素（****Ivermectin****）** | **莫努匹韦（****Molnupiravir****）** |
-| --- | --- | --- |
-| 历史 | 安全使用超过30年（40亿剂），用于治疗各种寄生虫感染，被列入世界卫生组织基本药物清单。 发现者于2015年获得诺贝尔医学奖。 | 最初的研究是在20多年前，但由于潜在的诱变特性而被弃用，现转化为抗SARS-Cov-2治疗药物。 |
-| 作用机理 | 具有RNA病毒抗病毒性，干扰SARS-CoV-2进入人体细胞并进行复制，与刺突蛋白的宿主受体结合区竞争性结合，并可干扰病毒的复制。 | 广谱抗病毒。 通过在病毒基因组中引入错误信息，导致病毒诱变抑制病毒的繁殖 |
-| 临床数据 | 全球已经开展多项临床实验，结果显示，伊维菌素可以较少90%住院人数，没有死亡和，没有因副作用而退出的情况。所有受试者在治疗方案后都有正常的血氧饱和度 | 基于单一临床试验的临床疗效，在中期分析中，莫努匹韦将住院或死亡的风险降低了约50%。根据独立的数据监测委员会的建议，并与FDA协商，由于“有效的”的实验结果，该临床研究的招募提前停止。 |
-| 安全性 | 伊维菌素是一种安全系数很高，比许多非处方药（如扑尔敏）更安全。严重的不良反应似乎非常罕见。美国国家卫生研究院（NIH）认为伊维菌素 “普遍具有良好的耐受性”。 | 长期安全性和潜在的诱变性（致癌性）不明 |
-| 价格 | $3-20 | $700 |
-| 现状 | 在印度、日本、墨西哥、秘鲁和阿根廷等国家的COVID-19治疗项目中广泛而成功地使用。 | 默克公司正在寻求在在各国的临时批准h或紧急使用授权，英国11月4日刚刚批准莫努匹韦使用，正在等待美国FDA授权。 |
-
-
-校对编辑，发稿：大废墙（文非）
-
-* * *
-
-更多加拿大杨帆农场的频道，请关注：
-
-- [GTV: 加拿大扬帆农场多伦多频道](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
-- [GTV: 加拿大扬帆农场多伦多蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
-- [GTV: 加拿大扬帆农场多伦多枫叶财经](https://gtv.org/user/5f359954313eaf1e3716cfc1)
-- [喜马拉雅加拿大杨帆农场discord](https://discord.com/invite/BUDfsdPjJA)
-- [GETTR: 加拿大扬帆农场多伦多频道](https://gettr.com/user/torontofarmcn)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Canada_MPL_banner.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

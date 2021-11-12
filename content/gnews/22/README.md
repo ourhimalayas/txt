@@ -2,35 +2,27 @@
 ---
 
 
-## 有声|美国国立卫生研究院顶级科学家反对疫苗强制令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1657067/)
+## 政府数据：英格兰有数万人因接种疫苗而病亡
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1657116/)
 
-配音：香草山美食部 – 玫瑰园
+采编：UCool优酷       编译撰稿：苦尽甜来 (文来）
 
-《华尔街日报》11月9日报道说，强制疫苗接种正在美国国立卫生研究院（NIH）内部引发更多辩论和争议。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-7-edited.jpeg)图片来源：TNE
 
-美国国立卫生研究院将在12月1日举行关于“疫苗强制的伦理道德”圆桌直播会议。该研讨会是今年举行的四场伦理学辩论会之一。这些辩论会将向该院的所有2万名工作人员以及病人和公众开放。
 
-12月1日的伦理学辩论会是高级传染病研究人员——马修·梅莫利（Matthew Memoli）博士为反击日益高涨的强制措施而开设的。他在该机构工作了16年，最近刚荣获美国国立卫生研究院院长奖。
+据英格兰自媒体《The Expose》11月10 日报道，【英国国家统计局】最新官方数据显示，在2021年的前 8 个月内，该国约有36000人在接种 “新冠病毒”疫苗后的21天内死亡。
 
-梅莫利博士既反对强制疫苗接种令，自己也拒绝疫苗。他认为现在使用疫苗的方式是错误的，他强调，对严重疾病感染风险低的人进行一揽子进行疫苗接种，可能会阻碍整个人群从感染中获得更强大的免疫力。
+此前，该统计局曾发布虚假报告试图让公众相信，大多数因“新冠病毒”感染而死亡的病例都发生在未接种疫苗的人群中。但该报告中使用的日期参数却是今年初，英国尚未开始大规模接种该疫苗期间，所发生的大量病毒感染死亡案件。
 
-这提醒人们：**当涉及到“科学”时，并没有一个共识**——更像是少数几个对立的观点，而所有这些观点都应该被仔细考虑和探讨。
+尽管如此，从当局最新的统计数据中却不难发现，在 2021 年 10 月 4 日至10月31日期间死于该病毒感染的患者中，有 83%的人实际上已接种了“新冠病毒”疫苗。此外，最新数据还显示出，约有25000人在接种该疫苗后 21 天或更长时间内病亡。
 
-文字版原文：[美国国立卫生研究院顶级科学家反对疫苗强制令](https://gnews.org/zh-hans/1654193/)
+所有以上结果都无疑揭露了政府试图通过数据欺骗手段，以使公众相信该疫苗可以预防死亡。
 
-音频处理：喜山必胜Maverick
+* * *
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对编辑，发稿：硫酸羟氯喹64
 
+[原文链接：](https://theexpose.uk/2021/11/10/breaking-35924-people-died-within-21-days-of-having-a-covid-19-vaccine-in-england-during-the-first-8-months-of-2021-according-to-ons-data/)
 
  
 

@@ -2,21 +2,33 @@
 ---
 
 
-## 加拿大魁北克律师因疫苗护照控告政府败诉
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1657089/)
+## 澳总理反对取消未接种疫苗者的公费医疗
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1657154/)
 
-编译撰稿：硫酸羟氯喹64
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/180823134351-01-scott-morrison.jpg)图片来源：CNN
+**翻译：**月映万川
+**编辑：**翼族
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-21-edited-1.jpg)图片来源：TH
+澳大利亚总理斯考特·莫里森近日表示，当未接种疫苗者感染新冠病毒后，联邦政府不会剥夺他们享有公费医疗的权利。
 
+在周二的新闻发布会上，莫里森说：“我们的国家不会因为某些人的选择，而妖魔化这一特定人群。当然，我们希望所有人都接种疫苗，但我们不会使用这样极端的方法。”
 
-据加拿大法语媒体《魁北克新闻》11月10日报道，来自魁北克省博斯地区的一名餐馆业主和其代理律师，在因“反对政府强推的疫苗护照”而与当局对簿公堂之后最终败诉。
+澳总理的上述评论，针对的是新南威尔士州前州长鲍勃·卡尔推特的相关言论。鲍勃·卡尔在其推特里写到：“我们（澳大利亚）应该跟随新加坡的脚步，停止为未接种疫苗人士提供免费的新冠治疗和住院费用。你们忽视了病毒的严重性，那你们就要为你们的愚蠢付出代价。”
 
-该报道称，最近几个月来，餐馆主梅尔西女士勇敢地选择了在法庭上与魁北克政府的该项强制接种政策作抗争。梅尔西的代理律师称当局此政策是一项侵犯公民基本自由权利的非法措施。并特别援引了《加拿大宪章》中对其代理人平等权、宗教自由、隐私权、行动自由和结社及和平集会自由的尊重和保护。
+莫里森表示政府尊重个人在疫苗问题上的选择权利，莫里森说：“作为联邦政府，我们没有强制疫苗政策，我们也尊重个人选择。”
 
-魁省高等法院法官在当天发布的裁决书中，最终以原告“因无疫苗护照而不能进入法令所规定有争议的场所，并非严重的或不可弥补的损害”为由，驳回了梅尔西及其律师的诉讼请求。同时，否定了原告认为“政府的该政策”将导致社会结构撕裂的观点。
+目前，澳大利亚在其16岁以上人口中，第一剂疫苗接种率在90%，而完全接种人口已经达到了82%。
 
-[原文链接：](https://www.journaldequebec.com/2021/11/10/passeport-vaccinal-un-avocat-et-restaurateur-de-la-beauce-echoue-devant-les-tribunaux)
+**原文链接：**[Scott Morrison rejects stripping Medicare benefits from unvaccinated COVID-19 patients](https://amp.sbs.com.au/eds/news/article/scott-morrison-rejects-stripping-medicare-benefits-from-unvaccinated-covid-19-patients/b49195b9-cf00-4509-a7fc-bc7f7633a207?amp=1)
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,32 +2,28 @@
 ---
 
 
-## 有声|喜联储、喜币的诞生天生就是灭共的
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1657081/)
+## 拜登政府的疫苗强制接种规定正面临法律诉讼
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1657130/)
 
-配音：香草山美食部 – 玫瑰园
- 
-11月7日，郭文贵先生在大直播中说到，喜联储对共产党的威胁，主要有两个方面：
+采编：风云小哥      编译撰稿：文莱
 
-一是喜联储的海外实力。中共想要控制市场，掌握西方数字货币的主导权，把所有西方的经济安全掌握在自己手里，掌握西方整个数字货币去中心化后的话语权。而喜联储的横空出世恰恰在这方面给予来中共最大的打击，中共没有可能让喜联储成为他的代言人，他要控制西方数字时代话语权的阴谋就破灭了。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-34-edited.jpg)图片来源：THM
 
-二是核心技术方面。喜联储采用私人区块链，能高效、安全地处理交易。私人区块链技术是有痕迹的，任何被偷走的喜币都可被全数追回；任何人或政府都无法获取私人区块链内的个人信息。
 
-喜联储、喜币的诞生天生就是灭共的。
+据《大纪元时报》11月9日纽约报道，已从“新冠病毒”感染中康复的美国联邦政府工作人员，因疫苗强制接种政策而正在对福奇及其他政府官员提起集体诉讼。
 
-文字版原文：[喜联储、喜币的诞生天生就是灭共的](https://gnews.org/zh-hans/1650180/)
+据悉，该诉讼控告联邦政府对因感染该病毒而产生自然免疫力的已康复人员未提供任何接种豁免例外，而且总统的行政命令与其解释条例并未向公众解释为何自然免疫力不能成为疫苗接种的替代方案。
 
-音频处理：喜山必胜Maverick
+原告方认为，“新冠病毒”疫苗强制接种政策违反了《行政程序法》，该法允许法院推翻被其视为“任意滥用自由裁量权”的政府法规。因为根据近期研究表明：“新冠病毒”感染幸存者具有足以抵御再次感染该病毒的免疫能力。
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+该诉讼提名包括：担任国家【过敏和传染病研究所】所长福奇，【疾病控制和预防中心】主任瓦伦斯基，以及协调白宫“新冠病毒”疫情应对小组的负责人等。截至目前，被告的拜登政府和相关机构都没有对以上评论作出回应。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://www.theepochtimes.com/mkt_morningbrief/naturally-immune-federal-workers-lodge-class-action-suit-against-fauci-walensky-over-covid-19-vaccine-mandate_4094551.html?utm_source=morningbriefnoe&amp;utm_medium=email&amp;utm_campaign=mb-2021-11-10&amp;mktids=ba99a164b2af98ef82003b63f78eac7e&amp;est=hoPSSKpM8o4OU9mpEMzfbnFQaIFfVz1SmtubNTSGleR1NcxZrw9RGgOSoIPi2TKe02UZEFXmlg%3D%3D)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,50 +2,19 @@
 ---
 
 
-## 高疫苗接种率的欧洲各国中共病毒病例激增
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1656750/)
+## 七哥说—第27期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1656842/)
 
-作者：纽约香草山农场 – 四季
+制作：Inzaghi
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2021-11-11_8.24.32.png)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2021-11-07_4.07.29.png)
 
-
-
-据[零对冲](https://www.zerohedge.com/covid-19/despite-vaccine-passport-schemes-covid-cases-surging-across-europe)11月11日报道，尽管许多欧洲国家都实现了高疫苗接种率并施行了疫苗护照计划，但是欧洲各地在没有出现新的病毒变种的情况下，中共病毒病例再次激增。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1400-1.jpeg)图片来源：[Twitter](https://twitter.com/DrEliDavid/status/1457087947988213761?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1457087947988213761%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fcovid-19%2Fdespite-vaccine-passport-schemes-covid-cases-surging-across-europe)
-
-尽管德国、荷兰、奥地利、瑞士、意大利和法国等大多数国家大量使用疫苗护照，且疫苗覆盖率很高，但是这个秋季，中共病毒的感染仍然急速增长，其病例在德国首次突破5万大关，在奥地利、荷兰、丹麦、德国、瑞士和挪威也都出现了高峰，同时，在法国、葡萄牙和意大利也初现端倪。
-
-然而，与其他欧洲国家相比，瑞典的中共病毒病例和死亡人数却很低。在瑞典，从未实行过硬性封锁，也没有疫苗护照计划或强制戴口罩，并宣布大流行病已经结束。
-
-威尔·琼斯认为，现在，“群体免疫”的存在本身是一种“危险的阴谋论”。也许上面的图表可以说明一些问题。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
 
  
 

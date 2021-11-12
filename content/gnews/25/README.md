@@ -2,33 +2,21 @@
 ---
 
 
-## 有声|自由潜水员在接种新冠疫苗后被诊断为心肌炎
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1657047/)
+## 加拿大魁北克律师因疫苗护照控告政府败诉
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1657089/)
 
-配音：香草山香港部 – 文凯琳
+编译撰稿：硫酸羟氯喹64
 
-11月8日，据相关媒体报道，世界上最好的静态自由潜水员弗洛里安-达古里在接种完第二针辉瑞新冠疫苗后，被诊断为心肌炎和轻微的三尖瓣反流。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-21-edited-1.jpg)图片来源：TH
 
-据了解，弗洛里安-达古里是一名法国的自由潜水员，现居泰国，曾以憋气10分30秒而闻名，目前是世界上可以呼吸暂停的第一人。
 
-在接种完新冠疫苗后，达古里发现自己的心率比正常高很多，且憋气能力明显下降。经医生诊断，这种症状是辉瑞新冠疫苗的常见副作用。更为严重的是，40天后，达古里被诊断为心肌炎和三尖瓣反流。三尖瓣反流是由免疫系统引起的心脏肌肉炎症，其症状表现为，心脏瓣膜不再正常关闭因而造成一些微小的血液渗漏。
+据加拿大法语媒体《魁北克新闻》11月10日报道，来自魁北克省博斯地区的一名餐馆业主和其代理律师，在因“反对政府强推的疫苗护照”而与当局对簿公堂之后最终败诉。
 
-这些副作用，让达古里的心肺功能大幅衰退，他的职业生涯很可能会因此戛然而止。
+该报道称，最近几个月来，餐馆主梅尔西女士勇敢地选择了在法庭上与魁北克政府的该项强制接种政策作抗争。梅尔西的代理律师称当局此政策是一项侵犯公民基本自由权利的非法措施。并特别援引了《加拿大宪章》中对其代理人平等权、宗教自由、隐私权、行动自由和结社及和平集会自由的尊重和保护。
 
-文字版原文：[自由潜水员在接种新冠疫苗后被诊断为心肌炎](https://gnews.org/zh-hans/1651578/)
+魁省高等法院法官在当天发布的裁决书中，最终以原告“因无疫苗护照而不能进入法令所规定有争议的场所，并非严重的或不可弥补的损害”为由，驳回了梅尔西及其律师的诉讼请求。同时，否定了原告认为“政府的该政策”将导致社会结构撕裂的观点。
 
-音频处理：喜山必胜Maverick
-
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+[原文链接：](https://www.journaldequebec.com/2021/11/10/passeport-vaccinal-un-avocat-et-restaurateur-de-la-beauce-echoue-devant-les-tribunaux)
 
  
 

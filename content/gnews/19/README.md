@@ -2,34 +2,41 @@
 ---
 
 
-## 有声|新华社造神 引发海内外群嘲
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1657104/)
+## 强迫美国人接种疫苗不久将会是非法
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1657165/)
 
-配音：香草山美食部 – 玫瑰园
+**—-俄克拉荷马州代表提交法案禁止在该州强制接种疫苗**
 
-11月6日，在中共十九届六中全会召开前夕，中共党媒新华社发表了《习近平带领百年大党奋进新征程》的万字特稿，为党魁习近平二十大连任造势。其对习近平的吹捧空前狂热，引来墙内网友和海外媒体的一片嘲讽。
+翻译：真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gann-Tom.jpg)图片来源：网络
+来自福克斯(FOX NEWS) 星期四十一月十一日的新闻报道：俄克拉荷马州一名立法者提交了一项法案，旨在禁止该州的任何 COVID-19 强制疫苗令。
 
-特稿将习近平描述为“像爱父母那样爱老百姓”“众望所归的领导核心”等。
+州众议员汤姆·江恩 (R-Inola) 本周提交了众议院法案 1003X，绰号“自由法案”，以结束他称谓的“令人震惊的滥用权力”，此前他收到了无数因疫苗强制令而面临失业的选民的电话 .
 
-有网友评论说，习近平父亲的陵园占地多达四万亩，而老百姓绝大多数连一块几平方米的墓地都买不起，这也叫爱老百姓如爱父母吗？
+“在俄克拉荷马州成功地与制药商达成具有里程碑意义的阿片类药物和解协议之后，难以想象任何雇主会要求员工接受来自同一行业的 EUA 注射，”江恩说。
 
-还有网友评论说，中国人民从来就没有投票权，更没有言论自由，明明是一个独裁者，“众望所归”谈何而来?
+江恩回应了一个熟悉的论点，即该疫苗尚未获得完全批准，仍作为紧急使用授权的一部分。 辉瑞疫苗已获得联邦药物管理局 (FDA) 的批准，但目前可能尚未广泛使用。
 
-也有外媒对此评论：新华社小心造神。为取得国际社会认可，居然还自作主张借外媒和外国专家之口为习近平点赞，实在是令人啼笑皆非。
+据 KTUL 报道，“自由法案”复制了伊利诺伊州的一项法律，该法律将保护抵制强制药物注射的员工。
 
-文字版原文：[新华社造神 引发海内外群嘲](https://gnews.org/zh-hans/1650182/)
+“当这种滥权发生在俄克拉荷马州时，我们必须站出来保护个人自由，”江恩在一份声明中说。
 
-音频处理：喜山必胜Maverick
+据KFOR报道，江恩今年 7 月和众多共和党州议员一道，签署致俄克拉荷马州州长凯文·斯蒂特 (Kevin Stitt) 一封信，要求采取行政行动禁止向州医疗工作者强制接种疫苗。
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“这些员工是站在大流行前线的英雄，他们照顾那些因 COVID-19 而生病的人。保护这些员工的最快和最有效的方法是颁布行政命令禁止疫苗强制令，”这封信由 20 名代表签署。
+
+拜登总统发布了一项疫苗令，要求任何由 100 名或更多员工组成的公司的员工必须在 2022 年 1 月 4 日之前至少接种第一剂 COVID-19 疫苗，或者每周进行测试并戴上口罩。
+
+一名联邦法官周六阻止了此疫苗令。
+
+**点评: **由于众多州向联邦法院的诉讼与挑战， 加上联邦巡回法院的暂缓执行判决，拜登的强制疫苗令一定会被取消。美国人民为自由而战绝不是空话， 毋庸置疑。
+
+原文链接: [https://www.foxnews.com/us/oklahoma-representative-bill-ban-vaccine-mandates](https://www.foxnews.com/us/oklahoma-representative-bill-ban-vaccine-mandates)
+
+编辑/发布：LILY
+
+20211111
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
