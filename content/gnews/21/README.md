@@ -2,36 +2,33 @@
 ---
 
 
-## 大屠杀博物馆确认新疆正在发生反人类罪行
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1659034/)
+## 文贵大直播11.19.2021 郭先生谈投资中的“老鼠”与“狮子”角色的不同
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1659072/)
 
-作者：澳喜农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月9日，美国大屠杀纪念博物馆发布了一份长达56页的报告，当中指出，中共仍在持续打压新疆维吾尔人，维族人可能面临着种族灭绝的危险。
+撰稿：Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-12-at-11.40.40-AM.png)图片来源：GTV & GETTR
+**郭文贵先生2021年11月12日在大直播中谈到投资的两种不同角色，是当所谓见好就收的“老鼠”还是懂得确立地盘和控制权的“狮子”。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide3-6.jpeg)
+战友们作为GTV投资者，到现在都没有意识到当时投资GTV带来的是什么。
 
-该报告显示，对于中共针对新疆维吾尔人实施的种族灭绝行为，博物馆感到非常担忧。同时，博物馆再次确认，新疆正在发生反人类罪行。
+第一，GTV是拿到喜币的基础。你没有投资GTV就没有资格投资喜币。
 
-博物馆防止种族灭绝中心主任娜奥米-基科勒表示，中共政府监禁了100万至300万维吾尔人，他们被强制进行绝育、酷刑、性暴力和强迫劳动，其规模和严重程度令人震惊。基科勒强调，中共这种行为对维吾尔族个人、家庭和社区造成了严重的损害，且这些创伤将波及几代维族人。
+GTV未来会给投资者带来意想不到的惊喜，特别的六中全会以后，最大受益者是G系列。新GTV是打开金库的第一道大门，你不能只看股价，不要忘了这个门的钥匙的作用。
 
-为此，基科勒呼吁，维吾尔人正面临着紧迫的处境，世界各国应当一道行动，保护维族人。基科勒补充，目前，中共正在使用新技术迫害维吾尔人，单一的正义力量或将很难与之对抗，因此，这需要全球协调和统一的回应与抗衡。她表示，中共的罪行不应该被允许发生。
+第二，投资GTV让你拥有这个金库的权力，可以享受G系列产生的一系列财富，战友们不要着急变现离场。
 
-参考链接：[美大屠杀博物馆发布报告 再次确认新疆发生着反人类罪行](https://www.voachinese.com/a/China-may-be-committing-genocide-against-Uyghurs-20211110/6307886.html)
+郭先生比喻投资G系列，就像老鼠和狮子捕食，老鼠永远躲在洞里边看见食物拽着就跑回洞去，看起来能占很多便宜。而狮子是将猎物拿下直接圈养起来，到时间就来取新鲜的肉，而且这是狮子的地盘，谁挡路，就吃掉谁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+郭先生特别指出GTV和喜币、喜联储，和Gnews、Glub、Gashion，和Gttr，它之间是完全独立的投资人，只有一个群体不独立，就是我们爆料革命战友。目前世界上只有摩根斯坦利、先锋集团才能做到这一点，因此战友们不管怎样都是赢家。
 
-总编：文特
-编辑：Kathy文艺
-校正/发稿：谐趣园
+郭先生郑重建议不懂得这个意义的战友尽早远离爆料革命新中国联邦，因为不懂这个意义的人无法走到最后，早晚一天会出问题。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+那么问题来了，在G系列这个金库面前，战友们你想做老鼠还是狮子？
+
+来源来源：https://gtv.org/broadcast/watch/618e6c5fe7e770379233c263
+
+校对发布：Shifter
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
