@@ -2,27 +2,27 @@
 ---
 
 
-## 全球最大工会明确反对中共举办2022冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656146/)
+## DMSA将对恒大提起破产程序
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656178/)
 
-作者：澳喜农场 – 在远方
+作者：纽约香草山教育部 – Irene木木
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月9日，全球最大的跨国工会组织——国际工会联合会声明，将明确反对中共主办2022年冬季奥林匹克运动会。
+当地时间11月10日，德国柏林消息称，中共恒大集团今天再次拖欠国际投资者的利息支付，对此，持有恒大集团债券的德国市场筛选机构DMSA正准备对恒大集团提起破产程序，并呼吁所有债券投资者加入。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-4.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-8.jpeg)
 
-同时，该组织批评国际奥委会——奥委会对中共在新疆和香港等地区进行的种族灭绝和反人类罪行视而不见。
+数据显示，中共恒大集团早在今年9月就拖欠了两笔债券的利息，其30天的宽限期已于10月结束。作为债权人，DMSA表示，至今仍未收到任何来自恒大集团的利息付款。据了解，恒大最晚要在11月10日前支付三笔债券的利息，共计约1.4亿美元。DMSA解释，恒大的债务均包含交叉违约条款，即当其所涉的任一债券出现违约时，恒大的其余所有未偿还债券都会被一同视为“违约”状态。
 
-相关报道指出，国际工会联合会已将一份报告递交给国际奥委会主席巴赫，当中列举了中共对人权的一系列侵害行为，包括强迫劳动、监禁香港的工会成员和民主捍卫者、恐吓同性恋群体，还有以所谓的“反分裂”和“反恐”为由，镇压少数民族和宗教群体。
+此前，DMSA曾在一份报告中指出，世界上负债最多的企业——中共恒大集团必将面临债务违约的境况，而恒大的破产可能会导致“大重置”，即全球金融体系的最终崩溃。美联储也于两天前证实了这一点。
 
-国际工会联合会秘书长莎兰表示，生活在民主国家的国际奥委会官员和其他人员应当明白，不能简单地将中共看成是一个国家，这是不可接受的。
-
-参考链接：[北京获“镇压金牌”，全球最大工会批IOC对中共践踏人权无动于衷](https://www.voachinese.com/a/Beijing-olympics-get-gold-for-repression-in-labor-report-20211109/6305997.html)
+参考链接：
+1）[https://gettr.com/post/pgmdtn9c19](https://gettr.com/post/pgmdtn9c19)
+2）[Evergrande officially defaulted – DMSA is preparing bankruptcy proceedings against Evergrande Group](https://apnews.com/press-release/pr-newswire/business-china-evergrande-group-china-36dc3f16fe95c154a768d071345cdb77)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：Irene木木
-编辑：文特
+总编：小鹿妞妞
+编辑：小鹿妞妞
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

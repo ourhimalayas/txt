@@ -2,26 +2,36 @@
 ---
 
 
-## 加拿大军方无视兵源短缺执意推行疫苗强制令
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1656062/)
+## 全球最大工会明确反对中共举办2022冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656146/)
 
-采编：青青   编译撰稿：文明(添草灭共)
+作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月9日，全球最大的跨国工会组织——国际工会联合会声明，将明确反对中共主办2022年冬季奥林匹克运动会。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/b-1-edited.jpg)图片来源：TPM
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-4.jpeg)
 
+同时，该组织批评国际奥委会——奥委会对中共在新疆和香港等地区进行的种族灭绝和反人类罪行视而不见。
 
-加拿大自媒体《后千禧年》11月10日报道，那些不愿意向当局提交其“新冠病毒”疫苗接种情况证明的加拿大军人将面临“退伍除名”的处置。
+相关报道指出，国际工会联合会已将一份报告递交给国际奥委会主席巴赫，当中列举了中共对人权的一系列侵害行为，包括强迫劳动、监禁香港的工会成员和民主捍卫者、恐吓同性恋群体，还有以所谓的“反分裂”和“反恐”为由，镇压少数民族和宗教群体。
 
-目前，【加拿大武装部队】成员接种该疫苗的比率为95%，其中已完成第二剂疫苗接种的比率为92%，明显高于加拿大普通民众84%的接种率。该国国防参谋长表示，对未接种该疫苗及未取得豁免接种证明的军队成员将采取包括辞退在内的强制措施，理由是为了保护其他成员的健康安全。
+国际工会联合会秘书长莎兰表示，生活在民主国家的国际奥委会官员和其他人员应当明白，不能简单地将中共看成是一个国家，这是不可接受的。
 
-据悉，军方内部最新审计数据显示，【加拿大武装部队】已出现至少7千人的兵源短缺，当局正在招收新兵以填补空缺。但如果继续执行强制接种政策，则无疑会进一步削弱该国武装部队的兵力。
+参考链接：[北京获“镇压金牌”，全球最大工会批IOC对中共践踏人权无动于衷](https://www.voachinese.com/a/Beijing-olympics-get-gold-for-repression-in-labor-report-20211109/6305997.html)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-校对编辑，发稿：硫酸羟氯喹64
+总编：Irene木木
+编辑：文特
+校正/发稿：谐趣园
 
-[原文链接：](https://thepostmillennial.com/canadian-military-to-threaten-unvaccinated-members-with-discharge)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

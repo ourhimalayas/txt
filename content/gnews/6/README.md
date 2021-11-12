@@ -2,34 +2,28 @@
 ---
 
 
-## 有声|新华社造神 引发海内外群嘲
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1657104/)
+## 政府数据：英格兰有数万人因接种疫苗而病亡
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1657116/)
 
-配音：香草山美食部 – 玫瑰园
+采编：UCool优酷       编译撰稿：苦尽甜来 (文来）
 
-11月6日，在中共十九届六中全会召开前夕，中共党媒新华社发表了《习近平带领百年大党奋进新征程》的万字特稿，为党魁习近平二十大连任造势。其对习近平的吹捧空前狂热，引来墙内网友和海外媒体的一片嘲讽。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-7-edited.jpeg)图片来源：TNE
 
-特稿将习近平描述为“像爱父母那样爱老百姓”“众望所归的领导核心”等。
 
-有网友评论说，习近平父亲的陵园占地多达四万亩，而老百姓绝大多数连一块几平方米的墓地都买不起，这也叫爱老百姓如爱父母吗？
+据英格兰自媒体《The Expose》11月10 日报道，【英国国家统计局】最新官方数据显示，在2021年的前 8 个月内，该国约有36000人在接种 “新冠病毒”疫苗后的21天内死亡。
 
-还有网友评论说，中国人民从来就没有投票权，更没有言论自由，明明是一个独裁者，“众望所归”谈何而来?
+此前，该统计局曾发布虚假报告试图让公众相信，大多数因“新冠病毒”感染而死亡的病例都发生在未接种疫苗的人群中。但该报告中使用的日期参数却是今年初，英国尚未开始大规模接种该疫苗期间，所发生的大量病毒感染死亡案件。
 
-也有外媒对此评论：新华社小心造神。为取得国际社会认可，居然还自作主张借外媒和外国专家之口为习近平点赞，实在是令人啼笑皆非。
+尽管如此，从当局最新的统计数据中却不难发现，在 2021 年 10 月 4 日至10月31日期间死于该病毒感染的患者中，有 83%的人实际上已接种了“新冠病毒”疫苗。此外，最新数据还显示出，约有25000人在接种该疫苗后 21 天或更长时间内病亡。
 
-文字版原文：[新华社造神 引发海内外群嘲](https://gnews.org/zh-hans/1650182/)
+所有以上结果都无疑揭露了政府试图通过数据欺骗手段，以使公众相信该疫苗可以预防死亡。
 
-音频处理：喜山必胜Maverick
+* * *
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://theexpose.uk/2021/11/10/breaking-35924-people-died-within-21-days-of-having-a-covid-19-vaccine-in-england-during-the-first-8-months-of-2021-according-to-ons-data/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
