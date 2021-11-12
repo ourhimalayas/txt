@@ -2,114 +2,44 @@
 ---
 
 
-## 2021年11月12日郭文贵先生大直播重点及概要
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1659230/)
+## Hörbücher|Deutsche Bildungsministerin Fordert die Schließung aller Konfuzius-Institute
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659244/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-240.png)2021.11.12.郭先生GTV大直播
-**速记：大直播工作组
-整理/编辑：MSGZ**
+Aufgenommen von:Aufgenommen von: MOS Buddhism Group –Nancy
 
-**喜币所用的私人区块链技术****Blacktrain,****是世界最高级别的水平。**
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-有个日本战友，他一开始投自了70万美元和新增借款项目30万美元， 后来又买了2张G卡。后来路大脑骗谣言出来，他家里人觉得七哥是骗子，他也不反驳。老妈还有老婆，女儿集体都要退款退卡，就是折腾。他一直坚持到了喜币上市的前一天，却做了一个愚蠢的决定。他提出来要退投资的钱，而且直接找到我。我答应了一定给你，马上我在日本找了朋友立马把钱送给他。可是在喜币上市后第2天，他家人就崩溃了。涨到10块钱，他说还没有崩溃，现在却受不了了。他的妈妈和老婆居然有了中风迹象。
 
-一个香港的战友，当年为我们上前线，联络大货车送钱的其中一个女士。 她3块钱卖了20万喜币，在7块钱又卖了10万。现在她受不了了。昨天她又哭着闹着，说我错了，能不能再弄点喜币回来？我说老天爷也弄不着。
 
-有一个在党内的战友，喜币上市后第3天，抛出近20万个喜币。 然后现在和妻子一起求七哥，说他曾经为爆料革命做过大贡献，怎么也得给他弄回20-30万个喜币，他将永远不卖。
+**Interviews mit der GTV Presse       02.11.2021**
 
-但凡受任何人影响，7哥都走不到今天，不可能坚持灭共的意志，更不可能坚持到现在。**受别人影响，人云亦云、首鼠两端，急功近利、自私自利、各扫门前雪的人和民族将没有任何希望。一个自私懦弱，没有信仰的民族，不会有半点希望。**
+Kurz nach dem offiziellen Rücktritt von Angela Merkel am 26. Oktober schrieb die amtierende Bildungsministerin Karliszczak einen Brief an die Konferenz der deutschen Hochschulpräsidenten und die Kultusministerkonferenz.  In dem Brief forderte sie die Hochschulen auf, “die Rolle der Konfuzius-Institute innerhalb der deutschen Hochschullandschaft neu zu bewerten”.
 
-中国人的问题：1.熟悉了，就看轻对方；2.互相怀疑，不自信，大脑症；3.被中共洗脑几十年，没有信仰，自私懦弱，没有希望的民族。
+Sie sagte, dass sie seit langem voller Sorge über die Auswirkungen der 19 Konfuzius-Institute an deutschen Universitäten sei. Die Auswirkungen der Konfuzius-Institute auf die akademische Freiheit in Deutschland sind langfristig und nicht hinnehmbar.
 
-**G****系列 把巨大的财富给了“贫穷”的爆料革命战友； 爆料革命重塑中国人的信仰和信心； 新中国联邦给中国人带回希望。让所有人通过爆料革命系列、大直播去对比，唯真不破，看清真相！**
+Dies geschah, nachdem zwei Universitäten auf Druck des kommunistischen Generalkonsuls Chinas in Deutschland, Feng Haiyang, eine Präsentation des deutschen Buches “Xi Jinpings Biografie” abgesagt hatten. Oster, einer der Autoren des Buches, kritisierte das Konfuzius-Institut als “den langen Arm Pekings in Deutschland”.  Ein anderer Autor behauptete, dass es in China üblich ist,  nicht über nationale Führer sprechen zu dürfen, aber in Deutschland  wird nicht geduldet.  Der Vorfall veranlasste die Bildungsministerin unmittelbar, die Schließung aller Konfuzius-Institute in Deutschland zu fordern.
 
-为什么共产党如今还在讲台上？就是因为这个民族没有信仰。
+Nach Schweden und Norwegen ist dies ein weiteres Land, das sich nicht von der KPCh durch Kulturexport einschränken und manipulieren lassen will.
 
-SEC的考验，证明了GTV投资的安全，1分钱没有少，人类投资历史上从未发生过。GTV 当前的价值：1.喜币的基础；2.新GTV是打开财富第一道大门的金钥匙；3.GTV和喜币，GETTR，Gclub，G系列都是独立公司，只有战友横跨G系列。明年5月份再重新定义G系列的价值。 喜联储会开发资产数字化功能！ 战友拥有护照，将拥有新中国联邦的国防保护！
+Originallinks:[Deutsche Bildungsministerin Fordert die Schließung aller Konfuzius-Institute](https://gnews.org/1644549/)
 
-推特80%的小股东，前期让你投资，让你冒风险，最后1分钟把你吓跑，然后大股东把肉拿走，这就是狮子和老鼠之间的游戏。他们说为什么Miles Guo你为什么上市前不把战友的6亿喜币让我们给拿走。
+Gepostet von: 呼吸的雾霾（文小呼吸）
 
-**资产艺术****NFC****，也就是的资产艺术的数字化、区块链化，我们会有这个功能。一幅画经数字化以后就卖几千万几亿美元的时代已经到来了。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
 
-**六中全会为爆料革命带来了什么？**
+**Für weitere Informationen, folgen Sie uns:**
 
-**新中国联邦战友面临着世界上前所未有的大机会。由于时间和时机，人类社会千年历史以来，新金融时代即将诞生——虚拟货币时代。喜币走在虚拟货币核心技术的最前沿，它是目前全世界最完美最好的新金融系统，拥有喜币的战友们将占据绝对优势。**
+[**New York MOS Himalaya ****｜****GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-共产党制造了生化病毒疫苗灾难，人类死了好多人。一个新的国际秩序将诞生，就是人类面临信仰，政治，国际秩序的重构（大重启）。我们走在了全世界的最前面。冠状病毒、疫苗灾难、解药都是爆料革命首提的。我们战友又没有被打疫苗，这简直是神话中的神话。
+[**New York MOS Himalaya ****｜****MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-习近平总加速师确立绝对核心地位再继续干10年。他要不搞这几个事情，特别是3个核心和毛泽东并列，把江胡踢出。总加速师的存在是上天给新中国联邦的礼物，共产党内部将开启相互绞杀。
+[**New York MOS Himalaya ****｜****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-看看我们的直播，再看着共产党又短又严肃的直播。如果有人相信了共产党开会中的一个字，你就不配活在这个世界上当人。中共的六中全会是对人类历史的巨大侮辱。
+[**New York MOS Himalaya ****｜****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-中共在社交媒体上放屁，说美国90%、78%的公民认为美国不民主，20%几的人才认为美国是好的。95%、97%的中国人认为中国是最好的民族。我们R他八辈子都不拉倒，北朝鲜也没这么讲的。一本正经的就是扯犊子。
+[**Free to Join New York MOS Himalaya｜Discord**](https://discord.gg/ChqXAHd)
 
-六中全会习大神做出了一个让世界震惊的决定。没有一个西方领导人不知道习将给全世界经济，政治带来绝对不确定因素，台湾、南海、亚洲，特别是病毒上不可能跟西方合作，疫苗上不会跟西方合作。经济上，恒大开始第一个诺米骨牌，绝对破产。一系列房地产的破产就会带来香港的经济大危机，香港的股市一定暴跌。
-
-中共国政治的个人独裁化对西方是噩梦。房地产的倒下，保险企业的倒下，信托的倒下，金融机构的倒下，将形成几万亿的外债和间接金融票据，西方金融将受累？美国这次房地产危机可绝对没人救了，也没有任何机会活下去。
-
-拜登总统，还有亨特，拜登和中共的这种个人关系，大家就不用多说了，这里边一定是有因素的。最大的核心问题，恒大暴雷为什么选择在六中全会后？
-
-中美两个元首要视频见面。这背后的交易，七哥很清楚。
-
-**恒大完了就融创、合生创展，富力，然后王健林。中国现在是****47****家大银行，近****40****家银行的股票跌破了净资产。中国将近****70****家国家级金融机构，现在几乎****100%****赔钱。**
-
-中共国76.3%的年轻人是有信用卡和负债房贷的。 中共国35岁到18岁的男孩和女孩当中，将近48%的人没有任何性生活。为什么没有性生活。
-
-中美之间发生什么问题？第一，美国的供应链面临彻底崩塌。在这种情况下美国就希望中共一定要保证美国的供应链。已经允许对中国开启签证。第二，保障美国老百姓的生活。有便宜的内裤，便宜的旅游鞋。第三，美国请求中共国保证房地产别一下子倒塌，要慢慢倒。第四，中美要合作，要忽悠两国老百姓，让他们感觉到明天无限美好，继续画大饼。
-
-**拜登的诉求的终极目的都是为了明年的中期选举，就是民主党绝对不能输。**
-
-**拜登的“羞辱外交”给美国共和党抓住了机会**。
-
-**美最大军工集团之一要进入喜币喜美元，美承受不了供应链断裂和不确定的台湾战事**。
-
-中美将爆发史无前例的领导人互相攻击事件，中美领导人之间将出现划历史的攻击。
-
-习给全世界带来不确定因素，恒大是中国经济倒下的第一块多米诺骨牌。
-
-摩根和美大佬都选择投资喜币，它的价值在灭共后无法想象，战友不要炒作要持有。
-
-**共产党历届领导人的学历。习的家庭影响他今天的行为，不是文化水平**。
-
-**习近平这个人在生活中是不说话，装傻充愣的。结果，让江曾朱看中了，以为习近平这个人可控、可管、听话，让他干四年滚蛋。**
-
-**结果看错了。习骨子里边儿的恨，最后的爆发就是：老子上来，让我当丫鬟是吗，我要收拾你们。**
-
-新中国联邦人，一旦你忘掉了财富，他只是你的工具，它不能成为你的信仰。一旦你忘掉我们，是因为灭共走在一起，我们跟任何人不同，我们有灭共超出人类所有人的伟大的信仰和理想的时候，你一定会失去你所拥有的。我们要的是一人一票的政治、平等的人权。
-
-**沈南鹏是三部的专业情报人员，美国耶鲁大学出来的最高材生。耶鲁帮和骷髅会在美国政治上的影响力你们都懂的。他是中国清华、复旦，北大加在一起的这种力量。不但如此，沈南鹏在美国不光九大家族，沈南普投资美国互联网企业，是中国人的代表。中国互联网的代表。**
-
-2003年的SARS 绝对是中共的病毒武器意外泄露才造成的灾难。
-
-美国在中国投资6万多亿美元，全世界在中国投资12万亿美元，美国损失一万亿美元就会被砸到十年起不来，欧盟若损失一万亿美元或烂账欧联盟20年内经济都无法恢复。
-
-2019年CCP释放新冠病毒针对美国军人参加武汉军运会和香港，是习和常委们下的命令放毒。
-
-新中国联邦的国防建设的钱必须来自战友。组建国防部队，国防部队建设的每一笔钱都要干干净净。
-
-不会超过3个月，中国联邦将全球公开招募组建军队。
-
-欢迎有能力的战友可以成立基金来投资G系列。
-
-中共国到处充满爆炸为什么？一定不自然都是跟疫苗和政治有关。
-
-**像马化腾，这个腾讯一直在垄断市场下的所谓的巨头。也是一个腐败肮脏的交易的结果是，以牺牲绝大多数人利益和牺牲了真正的精英的共同平等发展机会的情况下，让你得到了发展。在这种情况下，我们要看到。不是不报，是时候没到，老天是长眼的。某种程度上他们很可怜，某种程度上他也很伟大。当看到这个的时候，新中国联邦人，一旦你忘掉了财富，他只是你的工具，它不能成为你的信仰。一旦你忘掉我们，是因为灭共走在一起，我们跟任何人不同，我们有灭共超出人类所有人的伟大的信仰和理想的时候，你一定会失去你所拥有的。我们要的是一人一票的政治、平等的人权。**
-
-**我们的信仰本质不同，中国和西方之间最大的差距，中国人脑子里全都是家，天下理所当然认为啊，这些曹操就该领导天下司马炎也，谁赢了赢天下都是家天下，我们要的是明天下。**
-
-**要看共产党的演义。沈南鹏、马云这叫共产主义经济演绎，共产三国志**。
-
-**共产党分你的财富，可不是习近平今天蒙出来的，六中全会蒙出来的。共产党从改革开放的那一天叫什么？记住这句话，邓小平说放水养鱼，摸着石头过河，黑猫白猫论，什么叫放水养鱼，养完鱼是在我池子里面儿呢。周小川说我们建个池子啊，资金池子养完鱼他吃不？不抓你鱼他叫你鱼吃鱼，他要把鱼都差给弄死，这叫分财富。放水养鱼，谁放的水，养的什么鱼？在哪养的鱼？这帮孙子就是愚蠢到如此之程度。**
-
-建设新中国联邦的国防系统涉及到全球的华人，包括可以想办法拯救国内的很多的精英，包括我们这些草根战友，这些可能逃出来，或者需要被救的人。它极为重要。
-
-***发布：Candy***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
  
 
