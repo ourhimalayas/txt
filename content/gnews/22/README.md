@@ -2,24 +2,25 @@
 ---
 
 
-## 秘翻在线：英国的疫苗强制令可能迫使12.3万人离开卫生保健行业
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1658509/)
+## 中共国人口出生率再创历史新低
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1658518/)
 
-#### 翻译撰稿：zzballack
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-28.jpg)
+[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Ftk.ismcdn.jp%2Fmwimgs%2F3%2Fc%2F1140%2Fimg_3c22d6e73d25820c3cae067953bd0ff0448887.jpg&amp;imgrefurl=https%3A%2F%2Ftoyokeizai.net%2Farticles%2F-%2F218313&amp;tbnid=xnMXKApcWjSAMM&amp;vet=12ahUKEwiO4IXz4pL0AhXSz2EKHWaSAmQQMygAegUIARCpAQ..i&amp;docid=CKx0tOaKO6mgOM&amp;w=1140&amp;h=641&amp;q=%E4%BA%BA%E5%8F%A3%E5%87%8F%E5%B0%91&amp;ved=2ahUKEwiO4IXz4pL0AhXSz2EKHWaSAmQQMygAegUIARCpAQ)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1f56sad4g56r1h23ty1j56yu45k6jh13d1s.jpg)图片来源：每日邮报
+11月12日澎湃新闻报道，《中国统计年鉴2021》首次透露了人口出生数据。根据年鉴，2020年中共国人口出生率为8.52‰，首次跌破10‰，创下了数十年来的新低。此前，官方已经公布2020年出生人口为1200万人，相比2016年的1786万人，少了1/3左右。同期全国人口自然增长率（出生率-死亡率）仅为1.45‰，同样创下1978年以来的历史新低。全面放开二孩之后的2016年，人口出生率一度达到13.57‰的小高峰，随后逐年下滑，2020年相比2016年出生率减少了近4成。
 
-据《零对冲》（Zerohedge）11月11日报道，英国卫生大臣赛义德·贾维德（Sajid Javid）11月9日宣布，从2022年4月1日起，所有在国民医疗服务体系 (NHS)和社会护理部门工作的员工必须完全接种中共病毒疫苗才能继续工作。贾维德对下议院说，这项政策旨在避免可预防的伤害，保护NHS的病人、同事以及NHS本身。据政府估计，这项针对英格兰一线卫生和社会护理人员的疫苗强制令可能迫使12万多人离开这行业。
+中共政府各种宣传鼓励生育政策，地方上出台了育儿假、三孩“发钱”等刺激性政策，但人口下行趋势短期恐怕仍旧难以逆转，从限制到鼓励再到没有界限的放开，中共国已经错失了最后挽救人口危机的窗口期。80后可能是最后一批有愿意生育的，但是大部分家庭也仅仅只愿意生育一胎。高消费，高房价，零福利，教育医疗高支出，食物环境的污染，已经使年轻人失去了生养孩子的能力。
 
-英国卫生及社会关怀部（DHSC）说，这项规定将适用于与病人有直接、面对面接触的卫生和社会护理人员，比如医生、护士、牙医和家庭护理人员，除非他们得到疫苗豁免。该规定也将适用于可能与病人有社会接触的搬运工或接待员。
+信息来源：
 
-同样在11月9日，DHSC公布了一份关于该疫苗新规的影响评估报告。报告估计约有54000名医疗和社会护理人员将因该规定而接种疫苗。但它承认，该政策可能对卫生和护理人员产生重大影响，并可能导致多达12.3万名工作人员离职。到宽限期结束时，约有8.8万名卫生工作者，包括7.3万名NHS工作人员，以及3.5万名社会护理人员将仍未接种疫苗。报告警告说，医疗和社会护理人员数量的任何减少都可能导致服务的减少或延迟。而此时英国的卫生系统已经捉襟见肘，人手严重短缺，择期等待名单上的人数多达572万。另外为了填补离职员工留下的空缺，还将花费2.7亿英镑（3.65亿美元）。
+[官宣！全国人口出生率再创历史新低，影响有多大？](https://m.thepaper.cn/baijiahao_15348187?sdkver=2c9d920d)
 
-这项疫苗政策的主要反对者工党（Labour party）表示，它希望看到NHS的员工接种疫苗，但鉴于可能出现的人员短缺，建议政府谨慎行事。影子卫生部长乔纳森·阿什沃斯 (Jonathan Ashworth)11月9日说：“NHS信托（NHS trusts）担心该政策可能会加剧一些长期的人员不足问题，我们根本无法承受一夜之间失去成千上万的NHS工作人员”。
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-77.jpg)
 
-同样在11月9日，北爱尔兰的官员宣布，计划就给该省新入职的卫生和社会护理人员强制接种中共病毒疫苗和流感疫苗进行公开咨询。但威尔士和苏格兰政府不打算强制卫生和社会护理人员接种疫苗。
-
-新闻来源：[**UK Vaccine Mandate May Force 123,000 Out Of Health Care Sector**](https://www.zerohedge.com/political/uk-vaccine-mandate-may-force-123000-out-health-care-sector)
 
  
 
