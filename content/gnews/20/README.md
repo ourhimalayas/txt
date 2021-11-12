@@ -2,22 +2,20 @@
 ---
 
 
-## 家喻户晓的海底捞年内将关闭300个店铺
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1658492/)
+## 中共国人口出生率再创历史新低
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1658518/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-4.png)
-[图片来源](https://tabelog.com/tokyo/A1304/A130401/13213528/)
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-28.jpg)
+[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Ftk.ismcdn.jp%2Fmwimgs%2F3%2Fc%2F1140%2Fimg_3c22d6e73d25820c3cae067953bd0ff0448887.jpg&amp;imgrefurl=https%3A%2F%2Ftoyokeizai.net%2Farticles%2F-%2F218313&amp;tbnid=xnMXKApcWjSAMM&amp;vet=12ahUKEwiO4IXz4pL0AhXSz2EKHWaSAmQQMygAegUIARCpAQ..i&amp;docid=CKx0tOaKO6mgOM&amp;w=1140&amp;h=641&amp;q=%E4%BA%BA%E5%8F%A3%E5%87%8F%E5%B0%91&amp;ved=2ahUKEwiO4IXz4pL0AhXSz2EKHWaSAmQQMygAegUIARCpAQ)
 
-日本雅虎网站11月12日消息：大型中共国火锅连锁店“海底捞火锅”最近通过香港证券交易所宣布，今年年底前将关闭约300家业绩不佳的店铺。其中部分店铺将关闭长达两年时间，以进行内部调整。
+11月12日澎湃新闻报道，《中国统计年鉴2021》首次透露了人口出生数据。根据年鉴，2020年中共国人口出生率为8.52‰，首次跌破10‰，创下了数十年来的新低。此前，官方已经公布2020年出生人口为1200万人，相比2016年的1786万人，少了1/3左右。同期全国人口自然增长率（出生率-死亡率）仅为1.45‰，同样创下1978年以来的历史新低。全面放开二孩之后的2016年，人口出生率一度达到13.57‰的小高峰，随后逐年下滑，2020年相比2016年出生率减少了近4成。
 
-公告说，该集团的扩张计划将被缩减，直到公司的业务状况完全改善。一般来说，除餐桌翻台率超过4次/日，否则公司在未来不会开设任何新的大型店铺。此外，公司不会裁员，但将在集团内部重新分配店长和员工。
+中共政府各种宣传鼓励生育政策，地方上出台了育儿假、三孩“发钱”等刺激性政策，但人口下行趋势短期恐怕仍旧难以逆转，从限制到鼓励再到没有界限的放开，中共国已经错失了最后挽救人口危机的窗口期。80后可能是最后一批有愿意生育的，但是大部分家庭也仅仅只愿意生育一胎。高消费，高房价，零福利，教育医疗高支出，食物环境的污染，已经使年轻人失去了生养孩子的能力。
 
-根据公开披露的信息，海底捞在2020年开设544家新店，2021年上半年开设299家，截至2021年6月30日，全球共有1,597家店。
+信息来源：
 
-自今年年初以来，海底捞的股价已经下跌了77%，其市值蒸发了超过3600亿港元（约5.21万亿日元）。 因此，该公司创始人张勇的资产也大幅减少。
-
-[信息源](https://news.yahoo.co.jp/articles/1a376fa37612c947f7610bd7ba875e288d24a37b)
+[官宣！全国人口出生率再创历史新低，影响有多大？](https://m.thepaper.cn/baijiahao_15348187?sdkver=2c9d920d)
 
 校对：东京樱花团/知了知了
 发布：东京樱花团/yuxingcao01

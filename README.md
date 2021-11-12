@@ -15,92 +15,92 @@
 
 ---
 
-### [有声| GTV新闻访谈简报-2021年11月10日早](/content/gnews/1/README.md)
+### [DC每日热点1112](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [清华海峡研究院新竹办公室叫停前后各方表态](/content/gnews/2/README.md)
+ ` G-NEWS TAIWAN`
+
+### [台湾一日内出现六例完整接种疫苗后仍感染中共病毒案例](/content/gnews/3/README.md)
+ ` 日本东京方舟农场`
+
+### [有声| GTV新闻访谈简报-2021年11月10日早](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [11/12/2021国际财经快讯：喜币价格最高突破27美元；东芝将宣布拆分为三家公司](/content/gnews/2/README.md)
- ` 秘密翻译组金融团队`
-
-### [岸田文雄为何邀请日中友好议员联盟会长入阁？](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [税务调查：中共国投资者资金通过加密货币流入日本](/content/gnews/4/README.md)
- ` 日本东京方舟农场`
-
-### [封堵华为、中兴设备 拜登签署《安全设备法案》](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [万事达卡火速进军加密货币](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭先生：中共病毒口服药比疫苗更可怕](/content/gnews/7/README.md)
- ` 日本东京方舟农场`
-
-### [中共高调官宣054AP护卫舰交付巴基斯坦，意在政治软维稳](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共病毒之全球危害远超二战](/content/gnews/9/README.md)
- ` 日本东京方舟农场`
-
-### [日本要闻汇编 11月12日](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [10个州医护人员就强制接种CCP病毒疫苗起诉拜登政府](/content/gnews/11/README.md)
+### [奥地利将对数百万未接种新冠病毒疫苗的人采取封锁措施](/content/gnews/5/README.md)
  ` 纽约香草山MOS02`
 
-### [墙内要闻汇编 11月12日](/content/gnews/12/README.md)
+### [11/12/2021国际财经快讯：喜币价格最高突破27美元；东芝将宣布拆分为三家公司](/content/gnews/6/README.md)
+ ` 秘密翻译组金融团队`
+
+### [岸田文雄为何邀请日中友好议员联盟会长入阁？](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [为人权倾覆中共弱鸡政权](/content/gnews/13/README.md)
+### [税务调查：中共国投资者资金通过加密货币流入日本](/content/gnews/8/README.md)
+ ` 日本东京方舟农场`
+
+### [封堵华为、中兴设备 拜登签署《安全设备法案》](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：中共国的假“鸡血节”——双十一](/content/gnews/14/README.md)
+### [万事达卡火速进军加密货币](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [郭先生：中共病毒口服药比疫苗更可怕](/content/gnews/11/README.md)
+ ` 日本东京方舟农场`
+
+### [中共高调官宣054AP护卫舰交付巴基斯坦，意在政治软维稳](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共病毒之全球危害远超二战](/content/gnews/13/README.md)
+ ` 日本东京方舟农场`
+
+### [日本要闻汇编 11月12日](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [10个州医护人员就强制接种CCP病毒疫苗起诉拜登政府](/content/gnews/15/README.md)
+ ` 纽约香草山MOS02`
+
+### [墙内要闻汇编 11月12日](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [为人权倾覆中共弱鸡政权](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：中共国的假“鸡血节”——双十一](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [私人企业家还能活吗](/content/gnews/15/README.md)
+### [私人企业家还能活吗](/content/gnews/19/README.md)
  ` 骄子`
 
-### [中共国人口出生率再创历史新低](/content/gnews/16/README.md)
+### [中共国人口出生率再创历史新低](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [谁的命更重要？](/content/gnews/17/README.md)
+### [谁的命更重要？](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：英国的疫苗强制令可能迫使12.3万人离开卫生保健行业](/content/gnews/18/README.md)
+### [秘翻在线：英国的疫苗强制令可能迫使12.3万人离开卫生保健行业](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [20211112 澳喜要闻摘要](/content/gnews/19/README.md)
+### [20211112 澳喜要闻摘要](/content/gnews/23/README.md)
  ` 澳喜农场`
 
-### [家喻户晓的海底捞年内将关闭300个店铺](/content/gnews/20/README.md)
+### [家喻户晓的海底捞年内将关闭300个店铺](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共“普惠制”待遇12月起将被取消](/content/gnews/21/README.md)
- ` 澳喜农场`
-
-### [【玫瑰看新闻】第197期 新西兰本地疫情新闻](/content/gnews/22/README.md)
+### [【玫瑰看新闻】第197期 新西兰本地疫情新闻](/content/gnews/25/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [携程创始人、红杉资本大佬、互联网真正的教父—沈南鹏全家也被抓了](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [【玫瑰看新闻】第197期 币圈新闻](/content/gnews/24/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [苏格兰89%的中共病毒死亡来自完全接种疫苗人群](/content/gnews/25/README.md)
+### [苏格兰89%的中共病毒死亡来自完全接种疫苗人群](/content/gnews/26/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [文·贵天成——文贵先生谈“沈南鹏”（二）](/content/gnews/26/README.md)
+### [文·贵天成——文贵先生谈“沈南鹏”（二）](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [网传招商银行全面退出对公房地产贷款，中共金融系统试图断臂求生](/content/gnews/27/README.md)
+### [网传招商银行全面退出对公房地产贷款，中共金融系统试图断臂求生](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [班农专访3: 强制疫苗令会被收回](/content/gnews/28/README.md)
+### [班农专访3: 强制疫苗令会被收回](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美国各红色共和党州被分发到了最致命的中共疫苗](/content/gnews/29/README.md)
- ` wenwu`
 
 ### [班农专访1: 拜登的总统任期已经结束](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
