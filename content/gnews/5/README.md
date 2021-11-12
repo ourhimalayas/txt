@@ -2,34 +2,50 @@
 ---
 
 
-## 澳洲北领地未接种工作人员面对5000元罚款
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1658001/)
+## 蓬佩奥国务卿再次强调习会因冬奥会膨胀，拜登政府需要下决心、建立威慑力
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1658066/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
+作者：日本方舟农场 – Andy5
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/北领地.jpg)图片来源： 盖蒂图像
 
-**翻译：Sara9 
-编辑：MSGZ**
 
-澳洲北领地工作人员只剩下一天来打第一针毒疫苗，否则将面临失去工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-新的卫生条例规定所有和与公众有接触性的工作人员必须在本周五午夜之前打第一针，如果不打，他们将不会被允许去上班，除非有不同的工作安排。 如果他们仍旧坚持上班，他们将会因没有遵守强制卫生条例而面临5000元的罚款，有的人将失去工作。
 
-第二针需要在12月24日前打完。需要遵守这项北领地强制疫苗条例的包括那些有可能接触到新冠的高危人群， 比如说身体免疫力不强的土著人。
 
-北领地首席部长迈克尔·冈纳 (Michael Gunner) 之前说这项强制力对几乎所有工作者有效。包括零售， 旅游，餐饮， 理发美容， 接待员和银行职员。 它也包括基本工程项目， 安保， 交通， 和运输业员工。 新规定允许雇主要求员工提供疫苗接种证明，并保留存档已经接种疫苗的人的信息。 该条例还提出在2022年，将需要进行第三针加强针疫苗接种。 有些人将被允许豁免打疫苗。
+11月10日，美国前国务卿蓬佩奥在媒体接受采访时，再次警告如果明年北京冬奥会成功举办，会让习的国际地位达到巅峰。
 
-原文链接：[www.msn.com](https://www.msn.com/en-au/news/australia/unvaccinated-nt-workers-face-5000-fines/ar-AAQAT8t?ocid=winp1taskbar#comments)
+特别是当习看到美国在阿富汗抛弃本国公民时，他看到的是美国政府和领导人的不认真和无能，认为美国正在衰落，正在丢掉领导地位，变得没有威慑力。
 
-*发布：热锅小蚂蚁*
+借此，在即将举行的拜习视频会晤前，蓬佩奥国务卿再次敲打拜登政府，督促其下决心，并重建川普政府四年所建立起来的威慑力。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-37.jpg)
+参考链接：
+1.[20211110蓬佩奧國務卿接受Sean Hannity採訪](https://www.gettr.com/post/pgn4u99d59)
+2.[Pompeo: Xi and the CCP will certainly attack Taiwan if US shows weakness.](https://gettr.com/post/pgjqv8cb00)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：飞虹
+编辑：文特
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

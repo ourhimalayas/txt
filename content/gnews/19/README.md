@@ -2,12 +2,24 @@
 ---
 
 
-## 路易斯安那州第五巡回法院历史性裁决叫停疫苗强制令
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1657694/)
+## 中共历史上三个重要决议的比较
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1657861/)
 
-11/08/2021 娜奥米·沃尔夫博士：路易斯安那州第五巡回法院做出历史性的裁决叫停了职业安全与健康管理局的强制疫苗规定；他们强迫员工接种疫苗的原因是无稽之谈；疫苗强制令对宪法造成严重危害。
+撰稿：待命（文晓）
+审核：顽童2017，三票先生
+PPT制作：小黑兔2020
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+【**2021年11月10日，文贵先生大直播PPT**：**中共历史上三个重要决议的比较**】
+
+**1945年4月20日，六届七中全会确立了毛在中共黑帮中的山大王地位。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/P1.jpg)
+**1981年6月27日，十一届六中全会确立了邓小平在中共的领导地位。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/P2.jpg)
+**2021年11月8日，十九届六中全会将出台《中共中央关于党的百年奋斗重大成就和历史经验的决议》**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/P3.jpg)
+* * *
+
+发稿：云起时
 
  
 

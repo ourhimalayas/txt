@@ -2,28 +2,39 @@
 ---
 
 
-## 德展健康踩雷渤海信托！2.4亿信托本金逾期未收回
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1657519/)
+## 新建写字楼交付无人问津，墨尔本中央商务区依旧“鬼城”
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1657634/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/d1c9-9ecb88e8811b39cd5edcf83e1b3a3dab.png)
-据券商中国11月11日报道，德展健康10日发布公告，公司购买的渤海信托•现金宝现金管理型集合资金信托计划的理财产品发生部分逾期兑付情况，涉及本金2.36亿元。2019年9月18日德展健康购买了该现金宝信托产品4.2亿元，期限为12个月。2020年9月1日，德展健康再次购买上述信托产品，投资期限延长至今年9月。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-从到期日9月24日到发布公告日，时间已经过去了47天。德展健康共计收到18370万元本金及2564.56万元投资收益，剩余23630万元本金和投资收益尚未收回。德展健康就算再等470年，等到花儿都谢了，欠的钱也不可能收回，因为中共国的信托经济就是骗单圈钱的交易。骗人的和被骗的都是受害者，中共以假治国、以骗治国的体制才是这一切骗局的根源。消灭中共，经济市场才能够真正地走上良性发展的道路，否则就是互相欺骗，直到最后集体破产，整个经济彻底垮掉。
-
-新闻参考链接：[https://finance.sina.com.cn/stock/zqgd/2021-11-11/doc-iktzscyy4950283.shtml](https://finance.sina.com.cn/stock/zqgd/2021-11-11/doc-iktzscyy4950283.shtml)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/5823-10.jpg)图片来源：Sydney Morning Herald
 
 
-编辑：【英国伦敦喜庄园编辑部】
+编译报道：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+11月12日，维多利亚州房地产委员会警告，由于办公楼建设速度持续加快，而办公人士却不愿意返回中央商务区，墨尔本CBD将继续成为一个“鬼城”。
+
+当前，墨尔本写字楼入住率只有疫情爆发前的4%。数据显示，在这场大流行中，CBD人流量比往年下降了80%。上个月，主城区每五个店铺中就有一家空置。
+
+同期却有许多办公楼正在建设中。今年墨尔本将交付超过222,000平方米的办公楼宇，占澳大利亚所有新增办公面积的一半。
+
+在周四晚间发布的一项计划中，房地产委员会呼吁维州公务员每周（至少）有三天回到CBD办公室；一旦达到90%的疫苗接种率，公共交通工具将免费使用三个月。
+
+房产委员会执行董事丹妮·亨特说，墨尔本CBD在过去的两年里一直是一个“鬼城”，办公室利用率只在封锁期间（短暂）恢复到45%，并不足以支持中央商务区的企业。
+
+开发商寄希望于商务人士的回流，亨特女士认为，对许多商务办公人士而言，这将是一个逐步返回办公室的过程。
+
+一位办公楼业主马金先生说：“目前最大的分歧是公共部门返回办公室的速度有多慢”，他说：“当政府继续告诉员工他们有能力在家工作时，他们会继续这样做。”
+
+原文链接：[Melbourne CBD offices: Ghost town’ warning as offices built without workers to fill them (theage.com.au)](https://www.theage.com.au/national/victoria/ghost-town-warning-as-offices-built-without-workers-to-fill-them-20211111-p5981g.html?utm_medium=Social&amp;utm_source=Twitter#Echobox=1636630098-1)
+
+编辑/发布：文泓
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

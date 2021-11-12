@@ -2,12 +2,48 @@
 ---
 
 
-## 疫苗强制令将导致联邦公务员大规模短缺
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1657805/)
+## 布林肯：若中共攻台，美国和盟友将“采取行动”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1657988/)
 
-11/10/2021 威廉·拉·耶内斯在接受福克斯采访时表示由于拜登政府的疫苗强制令，几千名拒绝接种疫苗的联邦公务员可能会被停职或解雇，这将导致联邦公务员大规模短缺。
+作者：英国喜庄园 – I770775
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+11月10日，美国国务卿布林肯在一个论坛上被问及台湾问题时表示，如果中共使用武力改变台湾现状，美国及其盟友将采取“行动”。
+
+布林肯重申了美国政府的一贯声明，即华盛顿既要确保台湾有能力进行自卫，同时也决心确保维护该地区的和平与稳定。
+
+布林肯还说，不只是美国，无论台湾还是其他国家或地区，对于任何使用武力破坏现状的单方面行动，都会采取行动，以保证地区的和平与安全。但布林肯并未透露具体会采取什么行动。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-47.jpg)
+参考链接：
+[美国务卿布林肯称若中国使用武力改变台湾现状 美国和盟友将“采取行动”](https://cn.reuters.com/article/usa-beijing-taiwan-1110-wedn-idCNKBS2HW02Z)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

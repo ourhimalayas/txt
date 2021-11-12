@@ -2,42 +2,46 @@
 ---
 
 
-## COVID-19疫苗强制令使西澳的学校面临教师短缺
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1657975/)
+## 针对美中首脑线上会晤 日本关注病毒溯源议题
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1658010/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/5ec26eedf34d054e2e7725b5-1.jpg)
+作者：日本方舟农场 – Andy5
 
 
 
-图片来源：businessinsider
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-#### 编译：小红帽
 
-教育部长苏·埃勒里（Sue Ellery）表示，明年，当教师必须接种中共病毒（COVID-19）疫苗时，西澳大利亚州的替代性学校和宗教学校可能很难找到足够的教师。
+关于受世界瞩目的美中首脑下周的线上会晤，美国国务卿布林肯在11月10日正式确认，美国总统拜登与中共领导人习近平将有线上交流。一些消息灵通的媒体则爆料称，双方正在调整会晤时间，有可能定于15日举行。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-5.jpg)
+日本一家媒体公布了布林肯发布相关消息时的视频，视频中，布林肯国务卿透露，本次的议题包含气候变化、病毒溯源等双方存在争论的内容。日本该媒体则着重报道了布林肯在病毒溯源问题上，要求中共国提供帮助并公开必要的情报。分析人士称，这表明近期日本确诊病例数的下降，并没有使它放弃对病毒起源调查的关注，相反这一话题可能成为接下来最被关注的话题之一。
 
-埃勒里女士说，获得足够教师的最大障碍是大学在中共病毒大流行之前决定将教师学位延长一年，导致入学率下降，这个问题现在才开始改善。
+参考链接：
+[20211111日本FNN報導美中即將舉行線上會晤](https://www.gettr.com/post/pgnpl87b55)
 
-目前，新南威尔士州正在招聘教师到西澳工作，埃勒里女士预计边境限制将在1月下旬放松，使教师能够在新学年开始前及时进入西澳大利亚州。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-她说，尽管她相信政府学校和大多数独立部门的学校会有足够的工作人员，但有些学校可能会出现人员短缺。
+总编/编辑：飞虹
+校对/发稿：为真不破20
 
-州长马克·麦高恩（Mark McGowan）上个月宣布，西澳大约75%的劳动力需要接种疫苗，教师也将包含其中。
+**更多资讯，更多关注**
 
-西澳学校的教职员工被要求在明年第一学期开始前接种中共病毒疫苗。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-** ****参考新闻：**[COVID vaccine mandate leaves WA schools facing teacher shortage, compounding border pressure (msn.com)](https://www.msn.com/en-au/news/australia/covid-vaccine-mandate-leaves-wa-schools-facing-teacher-shortage-compounding-border-pressure/ar-AAQBLz1?ocid=msedgntp)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-***发布：小红帽***
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

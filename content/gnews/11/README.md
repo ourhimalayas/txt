@@ -2,22 +2,48 @@
 ---
 
 
-## 秘翻在线：默克尔大放厥词谴责反疫苗者
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1657942/)
+## 德国将定期向印太派遣军舰 应对中共宣示南海主权
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1658005/)
 
-#### 翻译/撰稿：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/maxresdefault-1.jpg)图片来源：RNZ
-根据路透社（Reuters）11月12日的报道，德国总理安格拉·默克尔 （Angela Merkel）应新西兰总理杰辛达·阿德恩 （Jacinda Ardern）之邀，在亚太商业峰会上发表讲话，鼓动人们接种疫苗，并谴责那些还未打疫苗的人群，称他们要为社会上的其他人负责任。
+作者：澳喜农场 – 在远方
 
-在这场会议上，默克尔还大言不惭的表示，政治家的任务是通过对公众诚实的方式，从而严肃干预现在的情况。默克尔甚至把接种疫苗的权力比作是一笔巨大的财富、是一项巨大的科技成就。
 
-对于那些受到中共病毒危害较轻的年龄群体，默克尔仍然建议去接种疫苗，因为她担心病毒依然会传染给免疫系统较弱的老年人。
 
-最后默克尔把中共病毒大流行、气候变暖和接种毒疫苗的概念混为一体，称中共病毒与气候变暖一样，都是呈指数增长，一旦发现增涨就应该立即采取行动，呼吁人们立即接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-评论：面对这么多疫苗致残致死的案例，默克尔竟还在吹捧疫苗。而且对于那些自然免疫力强的人群也不放过，大部分自然免疫力强的人群都集中在婴幼儿群体。结合中共最近开始给三岁以上的儿童接种疫苗来看，默克尔也是想跟中共一样“一脚油门干到底”。最后默克尔还混淆概念，发现病情增长确实是应该立即行动，但可不是去接种毒疫苗送死，各种解药例如羟氯喹，伊维菌素，青蒿素等价格低且效果好的解药早已摆在面前，却遭到各种“封杀”，只能强迫去打疫苗。默克尔开篇还谴责那些不打疫苗的人，称他们不对社会负责，政治家们要对公众诚实，我看你说出这种话真的是脸都不要了！
 
-新闻来源：[Unvaccinated should reflect on their duty to society, Merkel says](https://www.reuters.com/world/europe/unvaccinated-should-reflect-their-duty-society-merkel-says-2021-11-11/)
+
+11月9日，德国海军中将薛恩巴赫表示，德国派遣军舰到印太地区，是因为对区域自由航行和以规则为基础的国际秩序受到威胁表示关切。在中共国持续强调南海主权之际，德国政府打算未来定期向印太派遣军舰，以维护南海的自由航行。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-59.jpg)
+薛恩巴赫称，德国巴伐利亚号军舰预计12月穿越南海，向世界展现其拥有自由航行的权利。对于通过南海时有可能会遇到中共国军舰的局面，他认为，通行没有什么问题，如果受到阻碍，他们也会有所准备。该护卫舰日前已经抵达东京，是近20年来第一艘访问日本的德国舰艇。
+
+薛恩巴赫说，南中国海是全球共同所有的公海，这片海域属于所有人。所以，如果说到遵守国际世界秩序的话，南中国海不能被任何人占有或宣示主权。
+
+参考链接：
+[德国将定期向印太派遣军舰 巴伐利亚号12月穿越南海](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-11102021135001.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

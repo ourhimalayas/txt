@@ -2,40 +2,22 @@
 ---
 
 
-## 印尼一个最高宗教委员会或禁止加密货币交易
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1657706/)
+## 秘翻在线：默克尔大放厥词谴责反疫苗者
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1657942/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 翻译/撰稿：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/maxresdefault-1.jpg)图片来源：RNZ
+根据路透社（Reuters）11月12日的报道，德国总理安格拉·默克尔 （Angela Merkel）应新西兰总理杰辛达·阿德恩 （Jacinda Ardern）之邀，在亚太商业峰会上发表讲话，鼓动人们接种疫苗，并谴责那些还未打疫苗的人群，称他们要为社会上的其他人负责任。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/IronX-Crypto-exchange-Blog.jpg)
+在这场会议上，默克尔还大言不惭的表示，政治家的任务是通过对公众诚实的方式，从而严肃干预现在的情况。默克尔甚至把接种疫苗的权力比作是一笔巨大的财富、是一项巨大的科技成就。
 
+对于那些受到中共病毒危害较轻的年龄群体，默克尔仍然建议去接种疫苗，因为她担心病毒依然会传染给免疫系统较弱的老年人。
 
+最后默克尔把中共病毒大流行、气候变暖和接种毒疫苗的概念混为一体，称中共病毒与气候变暖一样，都是呈指数增长，一旦发现增涨就应该立即采取行动，呼吁人们立即接种疫苗。
 
-图片来源：ironx
+评论：面对这么多疫苗致残致死的案例，默克尔竟还在吹捧疫苗。而且对于那些自然免疫力强的人群也不放过，大部分自然免疫力强的人群都集中在婴幼儿群体。结合中共最近开始给三岁以上的儿童接种疫苗来看，默克尔也是想跟中共一样“一脚油门干到底”。最后默克尔还混淆概念，发现病情增长确实是应该立即行动，但可不是去接种毒疫苗送死，各种解药例如羟氯喹，伊维菌素，青蒿素等价格低且效果好的解药早已摆在面前，却遭到各种“封杀”，只能强迫去打疫苗。默克尔开篇还谴责那些不打疫苗的人，称他们不对社会负责，政治家们要对公众诚实，我看你说出这种话真的是脸都不要了！
 
-
-#### 编译：小红帽
-
-加密货币交易已被印度尼西亚的一个最高宗教委员会视为 “禁区”–或被禁止，敦促这个世界上最大的伊斯兰国家的约2.3亿穆斯林放弃违反伊斯兰教法的货币。
-
-据路透社和彭博社报道，印度尼西亚乌里玛委员会（当地称为MUI）周四发布了反加密货币法特瓦，该组织的宗教法令负责人Asrorun Niam Sholeh表示，加密货币表现出“不确定性、赌注和伤害的元素”，将它们比作赌博。
-
-虽然MUI的法令没有法律约束力，但其最新裁决可能会对印度尼西亚超过2.3亿的穆斯林产生影响。这个国家去年加密货币交易在呈爆炸式增长。据报道，仅在2020年和2021年之间，参与该市场的印尼人就从400万跃升至650万，而贸易部表示，截至5月，加密货币交易所的价值总额已达370万亿卢比（259.6亿美元）。
-
-虽然印尼政府已经禁止将加密货币作为货币使用，印尼盾才是该国唯一的法定货币，但该政府允许在期货和商品市场上投资和交易数字代币，其中央银行甚至考虑推出自己的加密货币。
-
-Sholeh说，MUI的决定也禁止了电子资产的商品交易，但是该机构留有一些机会，即**特定的加密货币可能符合伊斯兰教法，该法要求商品和金融工具具有 “物理形式、明确的价值和已知的确切数量 ”等属性。**他补充说，如果加密货币能够 “符合伊斯兰教规则，有基础资产，并具有明显的优点”，就会被允许。
-
-**参考新闻：**[Crypto trade is HARAM, largest Muslim nation’s religious council rules — RT World News](https://www.rt.com/news/540048-indonesia-muslims-crypto-forbidden/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Unvaccinated should reflect on their duty to society, Merkel says](https://www.reuters.com/world/europe/unvaccinated-should-reflect-their-duty-society-merkel-says-2021-11-11/)
 
  
 
