@@ -15,98 +15,98 @@
 
 ---
 
-### [墙内要闻汇编 11月12日](/content/gnews/1/README.md)
+### [岸田文雄为何邀请日中友好议员联盟会长入阁？](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [为人权倾覆中共弱鸡政权](/content/gnews/2/README.md)
+### [封堵华为、中兴设备 拜登签署《安全设备法案》](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：中共国的假“鸡血节”——双十一](/content/gnews/3/README.md)
+### [万事达卡火速进军加密货币](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [郭先生：中共病毒口服药比疫苗更可怕](/content/gnews/4/README.md)
+ ` 日本东京方舟农场`
+
+### [中共高调官宣054AP护卫舰交付巴基斯坦，意在政治软维稳](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共病毒之全球危害远超二战](/content/gnews/6/README.md)
+ ` 日本东京方舟农场`
+
+### [日本要闻汇编 11月12日](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [墙内要闻汇编 11月12日](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [为人权倾覆中共弱鸡政权](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：中共国的假“鸡血节”——双十一](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [私人企业家还能活吗](/content/gnews/4/README.md)
+### [私人企业家还能活吗](/content/gnews/11/README.md)
  ` 骄子`
 
-### [中共国人口出生率再创历史新低](/content/gnews/5/README.md)
+### [中共国人口出生率再创历史新低](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [谁的命更重要？](/content/gnews/6/README.md)
+### [谁的命更重要？](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：英国的疫苗强制令可能迫使12.3万人离开卫生保健行业](/content/gnews/7/README.md)
+### [秘翻在线：英国的疫苗强制令可能迫使12.3万人离开卫生保健行业](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [20211112 澳喜要闻摘要](/content/gnews/8/README.md)
+### [20211112 澳喜要闻摘要](/content/gnews/15/README.md)
  ` 澳喜农场`
 
-### [家喻户晓的海底捞年内将关闭300个店铺](/content/gnews/9/README.md)
+### [家喻户晓的海底捞年内将关闭300个店铺](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共“普惠制”待遇12月起将被取消](/content/gnews/10/README.md)
+### [中共“普惠制”待遇12月起将被取消](/content/gnews/17/README.md)
  ` 澳喜农场`
 
-### [【玫瑰看新闻】第197期 新西兰本地疫情新闻](/content/gnews/11/README.md)
+### [【玫瑰看新闻】第197期 新西兰本地疫情新闻](/content/gnews/18/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [携程创始人、红杉资本大佬、互联网真正的教父—沈南鹏全家也被抓了](/content/gnews/12/README.md)
+### [携程创始人、红杉资本大佬、互联网真正的教父—沈南鹏全家也被抓了](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【玫瑰看新闻】第197期 币圈新闻](/content/gnews/13/README.md)
+### [【玫瑰看新闻】第197期 币圈新闻](/content/gnews/20/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [苏格兰89%的中共病毒死亡来自完全接种疫苗人群](/content/gnews/14/README.md)
+### [苏格兰89%的中共病毒死亡来自完全接种疫苗人群](/content/gnews/21/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [【玫瑰看新闻】第197期 疫情新闻](/content/gnews/15/README.md)
+### [【玫瑰看新闻】第197期 疫情新闻](/content/gnews/22/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [文·贵天成——文贵先生谈“沈南鹏”（二）](/content/gnews/16/README.md)
+### [文·贵天成——文贵先生谈“沈南鹏”（二）](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [网传招商银行全面退出对公房地产贷款，中共金融系统试图断臂求生](/content/gnews/17/README.md)
+### [网传招商银行全面退出对公房地产贷款，中共金融系统试图断臂求生](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【玫瑰看新闻】第197期 国际热点新闻](/content/gnews/18/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [中共炮制“散毒者”短视频矛头直指美国](/content/gnews/19/README.md)
- ` 儒为`
-
-### [一神教与多神教的本质区别](/content/gnews/20/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【玫瑰看新闻】第197期 新中国联邦新闻](/content/gnews/21/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [2021年11月12日 澳喜要闻摘要](/content/gnews/22/README.md)
+### [2021年11月12日 澳喜要闻摘要](/content/gnews/25/README.md)
  ` 澳喜农场`
 
-### [班农专访3: 强制疫苗令会被收回](/content/gnews/23/README.md)
+### [班农专访3: 强制疫苗令会被收回](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国各红色共和党州被分发到了最致命的中共疫苗](/content/gnews/24/README.md)
+### [美国各红色共和党州被分发到了最致命的中共疫苗](/content/gnews/27/README.md)
  ` wenwu`
 
-### [新西兰财经G乐部 2021年11月11日](/content/gnews/25/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [班农专访1: 拜登的总统任期已经结束](/content/gnews/26/README.md)
+### [班农专访1: 拜登的总统任期已经结束](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [根特大学医院的重症室都是接种过疫苗的病人](/content/gnews/27/README.md)
+### [根特大学医院的重症室都是接种过疫苗的病人](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国“双十一”受居民囤积紧急物资影响掩盖了急剧下滑真相](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [福奇在国会撒谎](/content/gnews/29/README.md)
+### [福奇在国会撒谎](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [医生亲身经历：深受疫苗伤害，却被多方欺骗推诿卸责](/content/gnews/30/README.md)
+### [医生亲身经历：深受疫苗伤害，却被多方欺骗推诿卸责](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
-
-### [UFC主席怀特反对疫苗授权：这是自由的国家](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [外资人民币债券增量暴跌九成，再不跑就来不及了](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

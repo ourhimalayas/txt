@@ -2,24 +2,31 @@
 ---
 
 
-## 中共国人口出生率再创历史新低
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1658518/)
+## 中共高调官宣054AP护卫舰交付巴基斯坦，意在政治软维稳
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1658595/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-28.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Ftk.ismcdn.jp%2Fmwimgs%2F3%2Fc%2F1140%2Fimg_3c22d6e73d25820c3cae067953bd0ff0448887.jpg&amp;imgrefurl=https%3A%2F%2Ftoyokeizai.net%2Farticles%2F-%2F218313&amp;tbnid=xnMXKApcWjSAMM&amp;vet=12ahUKEwiO4IXz4pL0AhXSz2EKHWaSAmQQMygAegUIARCpAQ..i&amp;docid=CKx0tOaKO6mgOM&amp;w=1140&amp;h=641&amp;q=%E4%BA%BA%E5%8F%A3%E5%87%8F%E5%B0%91&amp;ved=2ahUKEwiO4IXz4pL0AhXSz2EKHWaSAmQQMygAegUIARCpAQ)
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/8-2.png)
+[图片来源](https://www.sohu.com/a/441505396_100154227)
 
-11月12日澎湃新闻报道，《中国统计年鉴2021》首次透露了人口出生数据。根据年鉴，2020年中共国人口出生率为8.52‰，首次跌破10‰，创下了数十年来的新低。此前，官方已经公布2020年出生人口为1200万人，相比2016年的1786万人，少了1/3左右。同期全国人口自然增长率（出生率-死亡率）仅为1.45‰，同样创下1978年以来的历史新低。全面放开二孩之后的2016年，人口出生率一度达到13.57‰的小高峰，随后逐年下滑，2020年相比2016年出生率减少了近4成。
+据“中国船舶”官方微信号消息，由中国船舶集团有限公司为巴基斯坦海军设计建造的新型054A/P护卫舰首舰交付仪式日前（11月8日）在上海举行。
 
-中共政府各种宣传鼓励生育政策，地方上出台了育儿假、三孩“发钱”等刺激性政策，但人口下行趋势短期恐怕仍旧难以逆转，从限制到鼓励再到没有界限的放开，中共国已经错失了最后挽救人口危机的窗口期。80后可能是最后一批有愿意生育的，但是大部分家庭也仅仅只愿意生育一胎。高消费，高房价，零福利，教育医疗高支出，食物环境的污染，已经使年轻人失去了生养孩子的能力。
+据悉，巴基斯坦海军订购的054A/P护卫舰，开建已经近3年，以解放军054A型为底板，升级船电、武器等多项系统而来，是中共迄今为止出口的吨位最大、技术最先进的水面战斗舰艇。
+
+中共官方称，该艘主桅杆顶端雷达升级为SR2410C型S波段全天候多功能相控阵三坐标雷达，以取代海鹰S/C型（Sea Eagle S/C）雷达（改进型国产化“顶板”3D对空搜索雷达）。
+
+十九届六中全会前后，中共密集官宣所谓各种科技成就，包括航天器、军用飞机上天，各种新型舰船下水，“大国重器”研制成功，等等。10月下旬，中共召开全军装备工作会议，举行了“十三五”装备建设成就展。
+
+当前，中共无视国内经济濒临崩溃、社会和民生凋敝的现实，仍旧“一切向权看”，全面围绕“二十大”开展内斗。在十九届六中全会前后，中共一反常态的密集官宣各种科技和装备信息，目的就是稳住思变的人心。
 
 信息来源：
 
-[官宣！全国人口出生率再创历史新低，影响有多大？](https://m.thepaper.cn/baijiahao_15348187?sdkver=2c9d920d)
+[中船首艘054AP护卫舰交付巴基斯坦雷达比自用型还强|巴基斯坦|护卫舰](https://mil.news.sina.com.cn/china/2021-11-10/doc-iktzqtyu6519384.shtml?cre=tianyi&amp;mod=pcpager_mil&amp;loc=5&amp;r=0&amp;rfunc=4&amp;tj=cxvertical_pc_pager_spt&amp;tr=174&amp;wm=#!/index/1#!/index/1#!/index/1)
 
-校对：东京樱花团/知了知了
+编辑：东京樱花团/知了知了
+
 发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-77.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-76.jpg)
 
 
  
