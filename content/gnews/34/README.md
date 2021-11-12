@@ -2,51 +2,34 @@
 ---
 
 
-## 被美国大型代表团突访台湾激怒，中共国启动台海附近战备警巡
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1656849/)
+## 有声|中共又一挑衅行为：美国海军舰艇的模拟模型成为导弹发射训练靶
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1657027/)
 
-翻译: 波士顿五月花  jiasen
+配音：香草山香港部 – 文凯琳
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture2-scaled.jpg)China Initiates ‘Combat Readiness Patrol’ Near Taiwan, Outraged Over “Surprise” Large US Delegation Visit
-https://www.zerohedge.com/
+北京，11月8日（路透社）-Maxar的卫星图像显示，在塔克拉玛干沙漠中的一个新靶场综合体上建成了一艘美军航母和至少两艘阿利-伯克级导弹驱逐舰的全尺寸模型。图片还显示了一个6米宽的轨道系统，上面安装了一个船舶大小的目标，专家说这可能是用来模拟船只的移动。
 
-中共官媒周二宣布，人民解放军（PLA）东部战区司令部**已启动在台湾海峡附近的战备警巡，以回应其所谓的美国分裂势力活动。**
+这些模拟模型反映出中共正在努力建立反航母的能力，特别是针对美国海军的能力，因为在台湾和南海问题上与华盛顿的关系日趋紧张。
 
-美国国会代表团最近令中共出人意料的访问台北，中共国防部谴责此举粗暴干涉中共国内政。显然，近年来访台人数最多的一次美方代表团降落台北国际机场激怒了中共国领导人。
+五角大楼的最新年度报告表明，中共解放军火箭军在2020年7月曾向南海进行了首次确认的实弹发射。这次演习向南沙群岛以北的水域共发射了6枚DF-21反舰弹道导弹，中国在那里与台湾和四个东南亚国家存在领土争端。
 
-《南华早报》报道了周二由美国事实上的驻台大使馆（美国在台协会AIT）安排的对民主台湾的访问，报道称“据台湾新闻报道，美方代表团登上了美国海军 C-40A 飞机从马尼拉出发，于下午 6 时许抵达台北松山机场。”
+新加坡拉惹勒南国际研究学院(S. Rajaratnam School of International Studies)的研究员Collin Koh表示，无论是实弹演习还是沙漠练兵，中共离制造精确的反舰导弹还很远。但是他们不会停手，会持续进行下去。
 
-虽然美国国会代表团成员的名字没有被立即披露，但台湾媒体报道称，该代表团包括四名参议员、两名众议员以及七名助手。
+在沙漠中模拟海洋环境练兵无异于在陆地学习游泳。但中共迫于邻国反对实演的压力以及自身捉襟见肘的财力物力也只能如此。
 
-台湾中央社援引台湾总统府发言人张惇涵所说，此次访问涉及美国参议员和众议员，是基于台美互信及协调的结果。”
+文字版原文：[中共又一挑衅行为：美国海军舰艇的模拟模型成为导弹发射训练靶](https://gnews.org/zh-hans/1651655/)
 
-路透社详细介绍了中共国的迅速反应：
+音频处理：喜山必胜Maverick
 
-*在中国国防部谴责美国国会代表团乘军机抵达台湾后，中共军方于周二表示，**解放军在台湾海峡方向进行了战备警巡。***
-
-*中共军方发言人在一份声明中说，这次警巡是针对**“有关国家”在台湾问题上的“**严重错误”言行**和在台湾的台独势力活动。*
-
-中共国防部进一步回应：“我们对此坚决反对并强烈谴责。我们正告美方立即停止挑衅行径和一切导致台海局势紧张升级的破坏性行动，不要向台独势力发出错误信号。**我们警告民进党当局，不要误判形势、铤而走险； 否则，只会把台湾带入深重的灾难。”**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture3.jpg)China Initiates ‘Combat Readiness Patrol’ Near Taiwan, Outraged Over “Surprise” Large US Delegation Visit
-https://www.zerohedge.com/
-
-此外，据中共官媒《环球时报》报道，解放军在台湾海峡附近的警巡已处于**“高度戒备”**状态：
-
-*石说，指挥部将保持**高度戒备，采取必要措施，对危害中国核心利益的举动、威胁台海和平稳定的挑衅行为予以反击，**坚决维护国家主权和领土完整。*
-
-中共国防部对美国部分议员访问台湾岛提出坚决反对和强烈谴责，敦促美国停止加剧台湾海峡两岸的紧张局势的挑衅行为。
-
-鉴于美国代表团中包含大量的国会领导人和参议员，以及尚未披露的行程细节，此代表团有望成为近期访问台湾的规模最大的美国政府高层代表团。我们很可能会再次目睹中共国的空中编队加强行动，突破台湾的防空识别区。最近飞机数量的大大增加，正是向支持台独的势力及其外部支持者发出的进一步信号。
-
-新闻来源: [China Initiates ‘Combat Readiness Patrol’ Near Taiwan, Outraged Over “Surprise” Large US Delegation Visit](https://www.zerohedge.com/geopolitical/chinas-pla-initiates-combat-readiness-patrol-near-taiwan-angered-over-surprise-us)
-
-* * *
-
-*素材来源：**jiasen*
-
-*编辑**& 发布：jamie(文胤)*
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

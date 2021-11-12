@@ -2,26 +2,36 @@
 ---
 
 
-## 加拿大军方无视兵源短缺执意推行疫苗强制令
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1656062/)
+## DMSA将对恒大提起破产程序
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656178/)
 
-采编：青青   编译撰稿：文明(添草灭共)
+作者：纽约香草山教育部 – Irene木木
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月10日，德国柏林消息称，中共恒大集团今天再次拖欠国际投资者的利息支付，对此，持有恒大集团债券的德国市场筛选机构DMSA正准备对恒大集团提起破产程序，并呼吁所有债券投资者加入。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/b-1-edited.jpg)图片来源：TPM
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-8.jpeg)
 
+数据显示，中共恒大集团早在今年9月就拖欠了两笔债券的利息，其30天的宽限期已于10月结束。作为债权人，DMSA表示，至今仍未收到任何来自恒大集团的利息付款。据了解，恒大最晚要在11月10日前支付三笔债券的利息，共计约1.4亿美元。DMSA解释，恒大的债务均包含交叉违约条款，即当其所涉的任一债券出现违约时，恒大的其余所有未偿还债券都会被一同视为“违约”状态。
 
-加拿大自媒体《后千禧年》11月10日报道，那些不愿意向当局提交其“新冠病毒”疫苗接种情况证明的加拿大军人将面临“退伍除名”的处置。
+此前，DMSA曾在一份报告中指出，世界上负债最多的企业——中共恒大集团必将面临债务违约的境况，而恒大的破产可能会导致“大重置”，即全球金融体系的最终崩溃。美联储也于两天前证实了这一点。
 
-目前，【加拿大武装部队】成员接种该疫苗的比率为95%，其中已完成第二剂疫苗接种的比率为92%，明显高于加拿大普通民众84%的接种率。该国国防参谋长表示，对未接种该疫苗及未取得豁免接种证明的军队成员将采取包括辞退在内的强制措施，理由是为了保护其他成员的健康安全。
+参考链接：
+1）[https://gettr.com/post/pgmdtn9c19](https://gettr.com/post/pgmdtn9c19)
+2）[Evergrande officially defaulted – DMSA is preparing bankruptcy proceedings against Evergrande Group](https://apnews.com/press-release/pr-newswire/business-china-evergrande-group-china-36dc3f16fe95c154a768d071345cdb77)
 
-据悉，军方内部最新审计数据显示，【加拿大武装部队】已出现至少7千人的兵源短缺，当局正在招收新兵以填补空缺。但如果继续执行强制接种政策，则无疑会进一步削弱该国武装部队的兵力。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-* * *
+总编：小鹿妞妞
+编辑：小鹿妞妞
+校正/发稿：谐趣园
 
-校对编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://thepostmillennial.com/canadian-military-to-threaten-unvaccinated-members-with-discharge)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
