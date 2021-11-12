@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gtranslators_1 11/12/2021 2:16 AM (UTC)`
+
+...
+![img](https://media.gettr.com/group43/origin/2021/11/12/02/0f36ad13-6ac4-aa80-5412-d4a1830c42c9/9548d67018b19975dcafea4c4484666a.png)
+
+---
+
 `@miles 11/11/2021 10:58 PM (UTC)`
 
 A young man is dying after taking the first dose of the Covid vaccine. He’s dying, unconscious and not breathing<br/><br/>一位年轻男子在接种第一针疫苗后濒临死亡，不省人世，没有呼吸。<br/>
@@ -285,13 +294,6 @@ The vaccination disaster has gradually become prominent: The patients in the ICU
 
 11/8/2021 Miles Guo: New Federal State of China needs to guarantee the personal safety and wealth safety of our fellow fighters, as well as our ability to take actions. We want to create and enjoy wealth wealth with the elite and people with faith around the world! Pay attention to the two sessions of the CPC! Those who disbelieve, dare not believe, those who failed to follow the Whistleblowers’ Movement will regret it!<br/><br/>11/8/2021 文贵直播: 新中国联邦要保证战友的人身、财产安全和在全世界的行动力。我们要和全世界的精英和有信仰的人一起创造和享受财富！关注两会！那些不信、不敢信和未跟随爆料革命的人会后悔！
 ![img](https://media.gettr.com/group17/getter/2021/11/08/08/22/aae3cea4-43be-c56b-9328-c53c168dfdaf/out.jpg)
-
----
-
-`@miles 11/8/2021 8:13 AM (UTC)`
-
-11/7/2021 Miles Guo: The charm of the people of the NFSC is our commitment to truth and that we are faithful and taking down the CCP; the fellow fighters with conscience are everywhere, and they will surely be on the frontline of destroying the CCP; We will make our slogan “everything is just beginning” echo loudly over the Tiananmen Square, eradicate the fake, ugly, and evil of the CCP, and let the fellow fighters be the only one to enjoy the sceneries at the peak of the humanity<br/><br/>11/7/2021 文贵直播：新中国联邦人的魅力在于唯真不破、有信仰和灭共；有良知的战友无处不在，他们必将冲在灭共第一线；我们要让“一切都是刚刚开始”响彻天安门广场，抹平中共的假丑恶，并让战友们独享世界上最高的风光！<br/>
-![img](https://media.gettr.com/group25/getter/2021/11/08/08/13/97abb10d-2734-cf83-dc45-28c824c4273c/out.jpg)
 
 ---
 
