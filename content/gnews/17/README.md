@@ -2,30 +2,31 @@
 ---
 
 
-## 有声|中共国病例破千
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659178/)
+## 有声|GTV新闻访谈简报|2021年11月10日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659191/)
 
-配音：香草山香港部 – 文凯琳
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-九月下旬中共开始展开大规模的第三针疫苗接种工作，以及在二十余个省市中加速推行3-11岁儿童新冠疫苗接种，自10月17日至今短短半个多月内，中共国内感染新冠病毒者已逾千例，同时多地出现校内儿童聚集性感染。
+配音：香草山教育部 – 蒙古鸿雁
 
-据爆料称，在本轮疫情中，仅北京地区，确诊病例中接种过疫苗的患者就高达82%。儿童阳性病例数同样达到新高。从11月2日至7日，仅河南郑州市就出现29例儿童感染病例。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
 
-文字版原文：[中共国病例破千](https://gnews.org/zh-hans/1653908/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1110text-SC.png)
+文字版原文：[GTV新闻访谈简报|2021年11月10日晚](https://gnews.org/zh-hans/1654768/)
 
 音频处理：喜山必胜Maverick
 
 发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://xn--%20%7Cgtv%20%20gtv-%20%7Cmos%20talk%20%20%20%7C%20gettr%20%20%20%7Cyoutube%20%20%7C%20discord-kw44l1t1gm8doayup218v624hpazvr1825bzx4emafxdws06012bhtnpta2axu46wua3ayv7960lnaiygzw1416y8vh370k17zmoajzj0ay/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
