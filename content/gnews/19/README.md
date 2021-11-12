@@ -2,42 +2,34 @@
 ---
 
 
-## 劳斯莱斯敦促澳大利亚与AUKUS发展民用小型核能
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1657063/)
+## 有声|新华社造神 引发海内外群嘲
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1657104/)
 
-#### 编译报道：文泓
+配音：香草山美食部 – 玫瑰园
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-216.png)图片来源：ENR
+11月6日，在中共十九届六中全会召开前夕，中共党媒新华社发表了《习近平带领百年大党奋进新征程》的万字特稿，为党魁习近平二十大连任造势。其对习近平的吹捧空前狂热，引来墙内网友和海外媒体的一片嘲讽。
 
+特稿将习近平描述为“像爱父母那样爱老百姓”“众望所归的领导核心”等。
 
-劳斯莱斯表示，AUKUS安全协议为澳大利亚采用（民用）小型模块化核反应堆铺平了道路。
+有网友评论说，习近平父亲的陵园占地多达四万亩，而老百姓绝大多数连一块几平方米的墓地都买不起，这也叫爱老百姓如爱父母吗？
 
-本周，劳斯莱斯宣布已筹集了近5亿英镑（折合9.15亿美元）政府和私募股权资金，用于建造其设计的小型模块化反应堆。目前，世界各国都不没有这样的反应堆。
+还有网友评论说，中国人民从来就没有投票权，更没有言论自由，明明是一个独裁者，“众望所归”谈何而来?
 
-劳斯莱斯公司相信，如果获得监管部门的批准，它可以在2030年开始建造第一座反应堆。它于周三向监管机构提交了文件。
+也有外媒对此评论：新华社小心造神。为取得国际社会认可，居然还自作主张借外媒和外国专家之口为习近平点赞，实在是令人啼笑皆非。
 
-一个小型模块化反应堆大约有两个足球场那么大，大约是英国现有核电站大小的十分之一。劳斯莱斯公司声称，它将产生与150台陆上风力涡轮机产生的相同数量的电力，足以供应100万个家庭。
+文字版原文：[新华社造神 引发海内外群嘲](https://gnews.org/zh-hans/1650182/)
 
-该公司小型模块化反应堆部门的首席执行官托德·萨姆森在接受澳洲媒体采访时表示，该技术与用于为英国核潜艇舰队提供动力的技术相同——澳大利亚可以根据AUKUS协议获得该技术。
+音频处理：喜山必胜Maverick
 
-“有了AUKUS，澳大利亚现在有了一个新的机会”，萨姆森说：“所以你现在可以选择，我不知道公众和澳洲政府是否会接受核能作为他们实现零净（排放）目标的一部分。”
-
-澳大利亚矿产委员会支持发展民用核能。在9月份该委员会表示，澳洲发展核潜艇舰队将为发展（民用）核电能力提供机会。
-
-矿产委员会首席执行官塔尼亚·康斯特布尔说：“我们不仅将发展支持这种基于海军技术的技能和基础设施，而且还将我们与不断增长的全球核电行业及其供应链联系起来。”
-
-但总理斯科特·莫里森表示，澳大利亚不会建造新的核电站，并将继续履行所有核不扩散义务。在2019年，一个由执政党政府组成的议会委员会建议在未来考虑为澳大利亚建造小型模块化反应堆，而工党拒绝了任何形式的核电。
-
-原文链接：[Nuclear energy: Rolls-Royce urges Australia to go with small modular reactors to meet net zero target (theage.com.au)](https://www.theage.com.au/world/europe/go-mini-nuclear-with-aukus-rolls-royce-urges-australia-20211109-p597jl.html?utm_medium=Social&amp;utm_source=Twitter#Echobox=1636658664-1)
-
-编辑/发布：文泓
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,21 +2,27 @@
 ---
 
 
-## 加拿大魁北克律师因疫苗护照控告政府败诉
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1657089/)
+## 拜登政府的疫苗强制接种规定正面临法律诉讼
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1657130/)
 
-编译撰稿：硫酸羟氯喹64
+采编：风云小哥      编译撰稿：文莱
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-21-edited-1.jpg)图片来源：TH
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-34-edited.jpg)图片来源：THM
 
 
-据加拿大法语媒体《魁北克新闻》11月10日报道，来自魁北克省博斯地区的一名餐馆业主和其代理律师，在因“反对政府强推的疫苗护照”而与当局对簿公堂之后最终败诉。
+据《大纪元时报》11月9日纽约报道，已从“新冠病毒”感染中康复的美国联邦政府工作人员，因疫苗强制接种政策而正在对福奇及其他政府官员提起集体诉讼。
 
-该报道称，最近几个月来，餐馆主梅尔西女士勇敢地选择了在法庭上与魁北克政府的该项强制接种政策作抗争。梅尔西的代理律师称当局此政策是一项侵犯公民基本自由权利的非法措施。并特别援引了《加拿大宪章》中对其代理人平等权、宗教自由、隐私权、行动自由和结社及和平集会自由的尊重和保护。
+据悉，该诉讼控告联邦政府对因感染该病毒而产生自然免疫力的已康复人员未提供任何接种豁免例外，而且总统的行政命令与其解释条例并未向公众解释为何自然免疫力不能成为疫苗接种的替代方案。
 
-魁省高等法院法官在当天发布的裁决书中，最终以原告“因无疫苗护照而不能进入法令所规定有争议的场所，并非严重的或不可弥补的损害”为由，驳回了梅尔西及其律师的诉讼请求。同时，否定了原告认为“政府的该政策”将导致社会结构撕裂的观点。
+原告方认为，“新冠病毒”疫苗强制接种政策违反了《行政程序法》，该法允许法院推翻被其视为“任意滥用自由裁量权”的政府法规。因为根据近期研究表明：“新冠病毒”感染幸存者具有足以抵御再次感染该病毒的免疫能力。
 
-[原文链接：](https://www.journaldequebec.com/2021/11/10/passeport-vaccinal-un-avocat-et-restaurateur-de-la-beauce-echoue-devant-les-tribunaux)
+该诉讼提名包括：担任国家【过敏和传染病研究所】所长福奇，【疾病控制和预防中心】主任瓦伦斯基，以及协调白宫“新冠病毒”疫情应对小组的负责人等。截至目前，被告的拜登政府和相关机构都没有对以上评论作出回应。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://www.theepochtimes.com/mkt_morningbrief/naturally-immune-federal-workers-lodge-class-action-suit-against-fauci-walensky-over-covid-19-vaccine-mandate_4094551.html?utm_source=morningbriefnoe&amp;utm_medium=email&amp;utm_campaign=mb-2021-11-10&amp;mktids=ba99a164b2af98ef82003b63f78eac7e&amp;est=hoPSSKpM8o4OU9mpEMzfbnFQaIFfVz1SmtubNTSGleR1NcxZrw9RGgOSoIPi2TKe02UZEFXmlg%3D%3D)
 
  
 
