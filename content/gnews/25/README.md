@@ -2,27 +2,42 @@
 ---
 
 
-## 拜登政府的疫苗强制接种规定正面临法律诉讼
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1657130/)
+## 美国延长与中共国军事有关的投资禁令
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1657241/)
 
-采编：风云小哥      编译撰稿：文莱
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-217.png)
+美国总统乔拜登周二宣布，美国将继续执行一项行政命令，禁止美国投资者为与中国军方有关联的公司融资。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-34-edited.jpg)图片来源：THM
+拜登在给众议院议长南希佩洛西的一封信中写道，“中共国越来越多地利用美国资本来获取资源，并推动其军事、情报和其他安全机构的发展和现代化，这继续使中共国能够直接威胁美国国土和美国海外军队”。
 
+该禁令源于时任总统唐纳德川普去年12月发布的一项行政命令，该命令禁止包括美国投资公司和养老基金在内的投资者购买被国防部视为“由中共国军方拥有或控制”的中共国实体的股份。
 
-据《大纪元时报》11月9日纽约报道，已从“新冠病毒”感染中康复的美国联邦政府工作人员，因疫苗强制接种政策而正在对福奇及其他政府官员提起集体诉讼。
+拜登政府在6月份扩大了限制范围，财政部的任务是选择目标实体并滚动更新黑名单。黑名单目前涵盖59家中共国公司，包括电信网络供应商华为和中兴通讯、国有视频监控制造商海康威视、半导体制造商中芯国际（SMIC）和国家石油公司中海油。
 
-据悉，该诉讼控告联邦政府对因感染该病毒而产生自然免疫力的已康复人员未提供任何接种豁免例外，而且总统的行政命令与其解释条例并未向公众解释为何自然免疫力不能成为疫苗接种的替代方案。
+华为、中兴通讯和海康威视助长了北京对新疆少数民族的镇压的间谍活动。
 
-原告方认为，“新冠病毒”疫苗强制接种政策违反了《行政程序法》，该法允许法院推翻被其视为“任意滥用自由裁量权”的政府法规。因为根据近期研究表明：“新冠病毒”感染幸存者具有足以抵御再次感染该病毒的免疫能力。
+《大纪元时报》补充说，北京利用私营部门的技术创新来提高其在被称为“军民融合”的国家战略下的防御能力，据报道，在中共国测试了高超音速武器后，17名共和党议员写信给商务部长吉娜·雷蒙多。担心中共国可能会在其武器系统的创建中采用美国技术。
 
-该诉讼提名包括：担任国家【过敏和传染病研究所】所长福奇，【疾病控制和预防中心】主任瓦伦斯基，以及协调白宫“新冠病毒”疫情应对小组的负责人等。截至目前，被告的拜登政府和相关机构都没有对以上评论作出回应。
+拜登写道，中共国的军工综合体及其使用监视技术进行的镇压“持续对美国经济、外交政策和国家安全构成不寻常的威胁”。
+
+简评：继2020年12月17日基于“中共国的军民融合原则，与中共国军工联合体相关实体之间活动的证据”，美国商务部将中芯国际和其他数十家公司列入制裁实体名单，纽交所将中国移动、中国电信、中国联通强制退市，退市对这些披着羊皮的狼，打着民营公司名号的中共国军方企业是一个重拳打击。美国总统乔拜登周二宣布，美国将继续执行一项命令，禁止美国投资者为与中共国军方有关联的公司融资。
+
+原文链接:[https://www.newsmax.com/politics/ccp-military-investments-executive-order/2021/11/09/id/1044016/](https://www.newsmax.com/politics/ccp-military-investments-executive-order/2021/11/09/id/1044016/)
+
+编辑: 希望
+
+PR: clau
 
 * * *
 
-校对编辑，发稿：硫酸羟氯喹64
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[原文链接：](https://www.theepochtimes.com/mkt_morningbrief/naturally-immune-federal-workers-lodge-class-action-suit-against-fauci-walensky-over-covid-19-vaccine-mandate_4094551.html?utm_source=morningbriefnoe&amp;utm_medium=email&amp;utm_campaign=mb-2021-11-10&amp;mktids=ba99a164b2af98ef82003b63f78eac7e&amp;est=hoPSSKpM8o4OU9mpEMzfbnFQaIFfVz1SmtubNTSGleR1NcxZrw9RGgOSoIPi2TKe02UZEFXmlg%3D%3D)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

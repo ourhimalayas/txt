@@ -2,33 +2,30 @@
 ---
 
 
-## 澳总理反对取消未接种疫苗者的公费医疗
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1657154/)
+## 中共国恒大地产正式违约DMSA准备申请恒大破产
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1657243/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/180823134351-01-scott-morrison.jpg)图片来源：CNN
-**翻译：**月映万川
-**编辑：**翼族
+据《内幕消息报》布伦丹·泰勒（ Brendan Taylor ）2021 年 11 月 10 日 报道
+![](https://assets.gnews.org/wp-content/uploads/2021/11/恒大.jpg)图片来自网络
+新闻稿：中共国恒大集团再次拖欠国际投资者的利息。DMSA投资了这些债券，并且在今天宽限期到期之前没有收到任何利息。现在DMSA正准备申请恒大破产，并在寻求所有债券持有人的支持。
 
-澳大利亚总理斯考特·莫里森近日表示，当未接种疫苗者感染新冠病毒后，联邦政府不会剥夺他们享有公费医疗的权利。
+中共国第二大房地产开发商恒大集团早在 9 月份就拖欠了两张债券的利息，30 天的宽限期在 10 月份结束。然而，就在宽限期结束前不久，公众被所谓利息支付的谣言误导了。国际媒体也认为谣言理所当然是真的。只有 DMSA 是德国市场审查机构 （Deutsche Marktscreening Agentur）当时已经承认违约，并在一项研究中表明，世界上负债最多的公司恒大的破产最终可能导致“大重置”，即全球金融体系的最终崩溃。
 
-在周二的新闻发布会上，莫里森说：“我们的国家不会因为某些人的选择，而妖魔化这一特定人群。当然，我们希望所有人都接种疫苗，但我们不会使用这样极端的方法。”
+（记者们请注意：参阅 2021 年 10 月 25 日和 10 月 29 日的 DMSA 新闻稿，以及 DMSA 研究报告“大重置 – 恒大和全球金融体系的最终崩溃”；均可通过 DMSA 主页www.dmsa-agentur.de.查看)
 
-澳总理的上述评论，针对的是新南威尔士州前州长鲍勃·卡尔推特的相关言论。鲍勃·卡尔在其推特里写到：“我们（澳大利亚）应该跟随新加坡的脚步，停止为未接种疫苗人士提供免费的新冠治疗和住院费用。你们忽视了病毒的严重性，那你们就要为你们的愚蠢付出代价。”
+DMSA 高级分析师马可·梅茨勒博士（ Dr. Marco Metzler ）表示：“尽管国际金融市场迄今为止，以非凡的基本信心面对围绕摇摇欲坠的巨头，恒大的金融风暴，也可以说极其天真，美联储昨天证实了我们的观点。“在其最新的稳定性报告中，它明确指出了恒大的倒闭可能对全球金融体系造成的危险。”
 
-莫里森表示政府尊重个人在疫苗问题上的选择权利，莫里森说：“作为联邦政府，我们没有强制疫苗政策，我们也尊重个人选择。”
+为了能够作为债权人针对恒大申请破产保护，DMSA 自己投资了恒大债券，这些债券的宽限期于今天（2021 年 11 月 10 日）到期。恒大必须最迟在今天为三张债券支付总额 1.4813 亿美元的利息。“但到目前为止，我们还没有收到任何债券利息，” 梅茨勒解释说。他补充道：“香港的银行现在都关门了，这些债券肯定违约了。”
 
-目前，澳大利亚在其16岁以上人口中，第一剂疫苗接种率在90%，而完全接种人口已经达到了82%。
+（请编辑注意：迄今为止已违约债券的确切详细信息可在本新闻稿的附录中找到。）
 
-**原文链接：**[Scott Morrison rejects stripping Medicare benefits from unvaccinated COVID-19 patients](https://amp.sbs.com.au/eds/news/article/scott-morrison-rejects-stripping-medicare-benefits-from-unvaccinated-covid-19-patients/b49195b9-cf00-4509-a7fc-bc7f7633a207?amp=1)
+对于恒大来说尤其可怕的问题是：所有 23 张未偿债券都有交叉违约条款。“这意味着，这些债券只要有一只违约，所有 23 只未偿债券将自动处于‘违约’状态，” DMSA 高级分析师梅茨勒清楚这一点。然而，这并不会自动导致恒大集团的破产。要确定破产，必须向法院提交破产申请。这可以由公司本身或由公司的一名或多名债权人提出。而这正是现在的计划。梅茨勒：“ DMSA 正在准备针对恒大的破产程序。我们已经在这方面与其他投资者进行了谈判。如果其他投资者加入我们的行动小组，我们会很高兴。”
 
-*发布：翼族*
+对于 DMSA 专家来说，很明显：“一旦法院启动破产程序，恒大也将正式破产——这只是几天的事情。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/恒大table.jpg)
+原文链接：[https://insiderpaper.com/chinas-evergrande-officially-defaulted/](https://insiderpaper.com/chinas-evergrande-officially-defaulted/)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+翻译：Nick｜校对：JS709｜编辑&发布：断播
 
  
 
