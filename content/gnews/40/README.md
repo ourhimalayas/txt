@@ -2,24 +2,48 @@
 ---
 
 
-## 中共历史上三个重要决议的比较
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1657861/)
+## 布林肯：若中共攻台，美国和盟友将“采取行动”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1657988/)
 
-撰稿：待命（文晓）
-审核：顽童2017，三票先生
-PPT制作：小黑兔2020
+作者：英国喜庄园 – I770775
 
-【**2021年11月10日，文贵先生大直播PPT**：**中共历史上三个重要决议的比较**】
 
-**1945年4月20日，六届七中全会确立了毛在中共黑帮中的山大王地位。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/P1.jpg)
-**1981年6月27日，十一届六中全会确立了邓小平在中共的领导地位。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/P2.jpg)
-**2021年11月8日，十九届六中全会将出台《中共中央关于党的百年奋斗重大成就和历史经验的决议》**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/P3.jpg)
-* * *
 
-发稿：云起时
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+11月10日，美国国务卿布林肯在一个论坛上被问及台湾问题时表示，如果中共使用武力改变台湾现状，美国及其盟友将采取“行动”。
+
+布林肯重申了美国政府的一贯声明，即华盛顿既要确保台湾有能力进行自卫，同时也决心确保维护该地区的和平与稳定。
+
+布林肯还说，不只是美国，无论台湾还是其他国家或地区，对于任何使用武力破坏现状的单方面行动，都会采取行动，以保证地区的和平与安全。但布林肯并未透露具体会采取什么行动。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-47.jpg)
+参考链接：
+[美国务卿布林肯称若中国使用武力改变台湾现状 美国和盟友将“采取行动”](https://cn.reuters.com/article/usa-beijing-taiwan-1110-wedn-idCNKBS2HW02Z)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

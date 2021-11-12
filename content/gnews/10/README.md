@@ -2,51 +2,30 @@
 ---
 
 
-## 【玫瑰看新闻】第197期 疫情新闻
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1658362/)
+## 中共“普惠制”待遇12月起将被取消
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1658461/)
 
-2021年11月11日（新西兰时间）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/PHOTO-2021-11-12-08-04-23.jpg)
-1.[纯粹的邪恶：辉瑞广告告诉孩子们可以从 COVID疫苗 中获得超能力令人不安](https://www.thegatewaypundit.com/2021/11/pure-evil-disturbing-pfizer-ad-tells-kids-get-superpowers-covid-jab-video/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-88.jpg)
-据《门户网》2021年11月3日报道，这真的是纯粹的邪恶。辉瑞（Pfizer）本周获得了 CDC 的批准，可以向儿童提供实验性 COVID 疫苗。与冠状病毒相比，儿童溺水、死于车祸或死于流感的可能性更大。儿童不会被迫接种流感疫苗。
+撰稿：澳洲天好蓝
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1.jpg)图片来自网络
+前几天中共海关总署发布了2021年第84号公，称自2021年12月1日起，欧盟成员国、英国、加拿大、土耳其、乌克兰和列支敦士登等32个国家已不再给予中国普惠制关税优惠待遇，海关不再签发普惠制原产地证书。
 
-辉瑞公司本周获得CDC的批准，向儿童提供实验性的中共病毒（covid19）疫苗；今年芝加哥接种疫苗的儿童比在美国所有死于中共病毒的儿童多。辉瑞发布了这则令人不安的广告，告诉孩子们，如果接受 COVID 刺戳，他们将获得超能力。天哪，这是一群多么病态、邪恶的人啊！
+消息一出，网上为之轰动，中共媒体一时间也没反应过来，过了两天才反应过来，全网各种经济媒体开始洗地，说普惠制待遇不是最惠国待遇，影响并不是那么大，又洗地说，这是中共国经济发展强大的表现，不再需要别人给优惠了。但是这两个逻辑怎么看怎么别扭，即然影响不大，那有必要全网洗地吗? 应该根本不屑去解释才对，而中共有个特点就是你把它打痛了，他就叫骂得越厉害，而且还要装着一副我一点都没事的样子。
 
-2. [拜登为疫苗授权设定了严格的最后期限](https://www.axios.com/covid-vaccine-mandate-private-sector-biden-osha-eea6e85d-fefe-4e4b-8cc0-0564c764bdf4.html)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-63.jpg)
-据《AXIOS》2021年11月4日消息，拜登总统将于周四，11月4日宣布，某些雇主必须确保其员工在 2022 年 1 月 4 日之前，每周都接种完疫苗、或接受检测，否则，将面临每次违规近1.4万美元的联邦罚款。
+那么什么是普惠制待遇呢？根据百度词条所解翻：“普惠制（普遍优惠制，Generalized System of Preferences）是1960年代发展中国家争取建立国际经济新秩序斗争的成果，经过发展中国家持续多年的集体抗争，1968年联合国贸易与发展会议通过《建立普惠制决议》，发达国家在这项决议中承诺对从发展中国家和地区输入的商品（特别是制成品和半制成品）给予普遍的、非歧视的、非互惠的优惠关税待遇，以便促进发展中国家的出口贸易，进而带动其经济增长。
 
-美国劳工部职业安全与健康管理局 (OSHA) 将代表白宫执行COVID-19疫苗接种和检测紧急临时标准，该标准影响了大约三分之二的美国工人。
+根据[中共媒体澎湃](https://m.thepaper.cn/baijiahao_15263024)给出的数据：2005年欧盟实施新普惠制前夕，欧盟纺织品和服装平均关税税率为9%，中国受惠纺织品能够享受比最惠国关税低20%的优惠，进入欧盟市场的中国受惠商品减税总额达90多亿美元。对于当时的中国出口而言，这项减税总额绝非小数，因2002—2004年中国对欧盟出口总额依次为482亿美元、722亿美元、1072亿美元。
 
-从数字上看：美国有超过 2.22 亿人至少接种了一剂疫苗。根据[疾病预防控制中心的数据](https://covid.cdc.gov/covid-data-tracker/#vaccinations_vacc-people-onedose-pop-12yr)，大约 70% 的成年人已完全接种疫苗。
+也就是说对于中共国来说，有了“普惠制待遇”，每年可以减免约上百亿的关税，这也是相当可观的，特别是现在中共国美元储备枯竭，大概中共可支配的美元可能连一万亿都不到，这一万亿美元要进口粮食，芯片，高科技设备等等各种商品，还要留着相当一部份作为人民币与美元挂钩的基础不能动，中共已经捉襟见肘，如果每年能省下百来亿美元，绝对对中共的庞氏骗局经济有延长其生命的作用。
 
-值得注意的是：商务部长吉娜·雷蒙多 (Gina Raimondo)周末对哥伦比亚广播公司的“[面向国家](https://www.cbsnews.com/news/transcript-commerce-secretary-gina-raimondo-on-face-the-nation-october-31-2021/)”节目表示，将疫苗授权期限的确定推迟到假期之后将是一个“大错误”。
+更重要的是，中共对于发达国家商品出口价格上有很大的优势，因为中共压榨百姓的血汗，中共人工成本只有欧美的十分之一，商品成本非常低，能够很容易打入发达国家市场。然而现在中共国通货膨胀，原材料上涨严重，如果再加上缺少了这部分优惠，一定会让中共出品商品的成本上升不少，这样就不能对发达国家形成价格优势，也会打击外贸出口，一方面没了百亿的优惠，一方面出口萎靡，这是双重打击，损失绝对是数百亿来算，这对中共的外汇储备是非常不好的消息，可以预见中共摇摇欲坠的庞氏骗局经济会在今年年底更血上加霜，中共倒台越来越快了。
 
-3.[据称：辉瑞 COVID 疫苗 2021 年销售额有望达到 360 亿美元](https://childrenshealthdefense.org/defender/pfizer-covid-vaccine-sales-billions/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-51.jpg)
-据《捍卫者》2021年11月3日消息，辉瑞与 BioNTech 合作开发的新冠疫苗的[收入](https://thehill.com/policy/healthcare/579615-pfizer-expects-36-billion-in-sales-from-covid-vaccine)将[达到 360 亿美元，](https://thehill.com/policy/healthcare/579615-pfizer-expects-36-billion-in-sales-from-covid-vaccine)高于此前估计的 335 亿美元；根据承诺采购合同的[17 亿剂](https://www.axios.com/pfizer-covid-19-vaccine-sales-third-quarter-2021-9dd18e78-ae17-4e4e-9e4d-cfacefeababa.html)，该[公司预测](https://thehill.com/policy/healthcare/579615-pfizer-expects-36-billion-in-sales-from-covid-vaccine)2022 年的销售额为 290 亿美元。[据 Axios 报道](https://www.axios.com/pfizer-covid-19-vaccine-sales-third-quarter-2021-9dd18e78-ae17-4e4e-9e4d-cfacefeababa.html)，辉瑞公司表示明年将生产多达 40 亿剂，这意味着它仍有 23 亿剂可以销售。
+所以现在中共网上媒体疯狂洗地，只能说中共被这招打痛了，可能动摇了内部人心，所以中共非要扯到什么“最惠国待遇”上去解释，你说东，他说西，完全不是一回事。中共一向以来标榜中共国有钱了，到处买买，财大气粗，这回也算是求仁得仁了，你不是有钱吗？好，给你加税！
 
-随着美国食品和药物管理局 (FDA) 最近批准该疫苗用于 5 至 11 岁的儿童，辉瑞公司的优势可能会增加；CDC 主任 Rochelle Walensky 博士在周二（2日）晚间[签署了该决定](https://www.reuters.com/world/us/us-cdc-advisers-vote-covid-19-vaccine-young-children-2021-11-02/)，5 至 11 岁的儿童最早可以在今天开始接种 COVID 疫苗。
+（本文只代表作者个人观点）
 
-此外，值得注意的是，根据辉瑞公司最近的季度报告，在2021年第二季度，与2020年同期相比，2021年上半年的”SI&A成本费用”增加了10%，其中包括营销和广告，当时还没有新冠疫苗上市；辉瑞正在全力以赴通过”赞助”影响电视新闻节目和信息节目导向和话语权来积极报道辉瑞毒疫苗，辉瑞公司的意图可能不仅仅是、单单涉及提高疫苗接种率，比如：目前值得注意的是，当下常见于主流媒体的广告语：
+审核：云彩
 
-“美国早安，由辉瑞公司为您带来”。”CBS健康观察，由辉瑞赞助”。”Anderson Cooper 360°，由辉瑞公司提供”。“ABC新闻夜线，由辉瑞公司为您带来”。”CNN今晚，由辉瑞公司为您带来。”
-
-诸如此类，一系列主流媒体都开始拥有辉瑞的赞助，那么，其背后是否说明辉瑞会撼动主流媒体的宣传导向以及信息发布话语权呢？这个问题有待大家一起思考和验证！
-
-4. [伊维菌素成功治疗了早期推出的 Vax 面瘫副作用](https://creativedestructionmedia.com/news/2021/11/03/breaking-early-rollout-vax-injured-claim-ivermectin-successfully-treated-their-paralysis/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-40.jpg)
-据《CD Media》2021年11月3日报道，美国对话主持人 Christine Dolan 与新冠疫苗副作用患者 Angelia Desselle 和 Shawn Vidiella [交谈](https://rumble.com/voop41-early-rollout-vax-injured-claim-ivermectin-successfully-treated-their-paral.html)。两人描述了服用伊维菌素如何帮助缓解疫苗引起的面部麻痹，以及其他严重症状。尽管如此，伊维菌素的使用仍然受到广泛限制。两位女性都要求与安东尼·福奇博士进行面对面的对质。
-
-5. [中共国中共病毒疫情延扩涉及14个省市](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211104-%E4%B8%AD%E5%9B%BD%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E5%BB%B6%E6%89%A9%E6%B6%89%E5%8F%8A14%E4%B8%AA%E7%9C%81%E5%B8%82)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-27.jpg)
-据《法广网》援引《中央社》2021年11月4日电，中共国德尔塔变异株引起的中共病毒疫情持续升温；中共下周将召开19届六中全会。中共国3日新增87宗本土确诊病例，另外本土无症状感染者则有15例，合计破百，疫情涉及14个省市（分别是黑龙江45例、河北23例、宁夏4例、江苏3例、河南3例、内蒙古2例、四川2例、甘肃2例、山东、重庆和青海各1例）。
-
-
-
-审核校对：Barry Jack
-上传排版：F
+编辑：云彩
 
  
 
