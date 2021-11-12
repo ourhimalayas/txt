@@ -2,24 +2,30 @@
 ---
 
 
-## 秘翻在线：拜登签署《安全设备法》 开始法律封杀华为和中兴
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1658136/)
+## 根特大学医院的重症室都是接种过疫苗的病人
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1658253/)
 
-#### 撰稿：彩虹
+[![](https://spark.adobe.com/page/1laWybF3zXqgO/images/20122aa2-5f61-4ae2-a348-c6b1e2b3bbc9.png?asset_id=7d0430dd-8722-4644-845b-f63eae66f555&amp;img_etag=%22b3e69a369489718b19e98add260822ec%22&amp;size=2560)](https://spark.adobe.com/page/1laWybF3zXqgO/images/20122aa2-5f61-4ae2-a348-c6b1e2b3bbc9.png?asset_id=7d0430dd-8722-4644-845b-f63eae66f555&amp;img_etag=%22b3e69a369489718b19e98add260822ec%22&amp;size=1024)
+**简评：**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-40.jpg)图片来源：雅虎
-11月11日，《国会山报》报道，周四，拜登总统签署了两党高票通过的《安全设备法》（The Secure Equipment Act），以确保电信系统免受潜在的外国威胁，特别是来自于中共国有关的威胁。
+任何人认为重症室的病人都是没有接种过疫苗的，那就大错特错了。根特大学医院的重症室全是接种过疫苗的病人，而且大多数患者都有突破性感染。
 
-《安全设备法》将禁止FCC（联邦通信委员会）考虑或批准来自FCC“特定名单”上的公司的产品，其中包括中共国华为和中兴。
+[GTV视频链接](https://gtv.org/video/id=61892902adfd99590c346cf8)
 
-去年，FCC一致投票，正式将华为和中兴列为国家安全威胁，并例举出这些公司与中国共产党的关系和间谍问题。国家安全威胁的认定阻止了美国电信公司使用FCC资金购买这些公司的产品。
+**视频字幕：**
 
-该法案在国会山几乎得到了一致的支持，上个月参议院以唱票方式无反对通过了该法案，而在此之前的一周，众议院以420：4的投票结果通过了该法案。
+现在，他们认为根特大学医院的情况严重得多。任何人认为重症室的病人都是没有接种疫苗的，已经不对了。现在，这里大多数患者都有突破性感染，与几周前已经大不相同。那时候重症室主要是没有接种疫苗的，但是现在不是了。根特大学医院的重症室，我昨天看了，全是接种过疫苗的病人。
 
-**新闻来源**
+*字幕:* *雨中漫步* | *翻译：Roberts* *｜PR：致良知 | 简评/文字整理/编辑：胖丁 | Page：我是球大哥*
 
-[Biden signs into law bill to secure telecommunications systems against foreign threats](https://thehill.com/policy/cybersecurity/581184-biden-signs-into-law-bill-to-secure-telecommunications-systems-against)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://spark.adobe.com/page/1laWybF3zXqgO/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/1laWybF3zXqgO/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+
 
  
 

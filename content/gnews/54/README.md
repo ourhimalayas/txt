@@ -2,35 +2,36 @@
 ---
 
 
-## 中共渗透台湾大学遭台湾教育部驱离
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1655620/)
+## DMSA将对恒大提起破产程序
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1656178/)
 
-#### **撰稿：**日本东京方舟农场 Kevin wang
+作者：纽约香草山教育部 – Irene木木
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月10日，德国柏林消息称，中共恒大集团今天再次拖欠国际投资者的利息支付，对此，持有恒大集团债券的德国市场筛选机构DMSA正准备对恒大集团提起破产程序，并呼吁所有债券投资者加入。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/AA8255D4-F15B-4054-A8E5-17F743F939C4.jpeg)（图片来自网络）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-8.jpeg)
 
-11月8日，台湾教育部要求“清华海峡研究院”新竹办公室立即从国立清华大学撤离。“清华海峡研究院”是由中共厦门市政府和北京清华大学共同成立，其中共官方背景备受关注。
+数据显示，中共恒大集团早在今年9月就拖欠了两笔债券的利息，其30天的宽限期已于10月结束。作为债权人，DMSA表示，至今仍未收到任何来自恒大集团的利息付款。据了解，恒大最晚要在11月10日前支付三笔债券的利息，共计约1.4亿美元。DMSA解释，恒大的债务均包含交叉违约条款，即当其所涉的任一债券出现违约时，恒大的其余所有未偿还债券都会被一同视为“违约”状态。
 
-据《大纪元》11月10日报道，在未经台湾政府批准的情况下，“清华海峡研究院”在新竹清华大学校园内设立“新竹办公室”。因其特有的中共官方背景，台湾教育部要求其立刻撤离。
+此前，DMSA曾在一份报告中指出，世界上负债最多的企业——中共恒大集团必将面临债务违约的境况，而恒大的破产可能会导致“大重置”，即全球金融体系的最终崩溃。美联储也于两天前证实了这一点。
 
-据报道，台湾教育部调查后发现，该办公室设在清大育成大楼五楼，由“自强工业基金会”向清大租赁，再转租给“清华海峡研究院”。初步判定“自强工业基金会”违反了《两岸人民关系条例》。
+参考链接：
+1）[https://gettr.com/post/pgmdtn9c19](https://gettr.com/post/pgmdtn9c19)
+2）[Evergrande officially defaulted – DMSA is preparing bankruptcy proceedings against Evergrande Group](https://apnews.com/press-release/pr-newswire/business-china-evergrande-group-china-36dc3f16fe95c154a768d071345cdb77)
 
-台湾国安局副局长陈进广表示，台湾国安单位及情治单位对于此次事件已有掌握，并将所掌握的情况送交相关单位。台湾教育部长潘文忠则表示，将全面盘查其它大专院校，审查有无类似违法情形。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-台湾“公民阵线组织”主任许冠泽指出，“清华海峡研究院”事件之所以重大，主要是因中共可能会利用设置办公室的方式，渗透各大学院正在推行的产学合作成果。一旦有中共背景的力量渗入，中共就可能窃取与台湾企业经营利益相关的技术；并且中共还可能借此挖脚台湾人才，以达到它的政治目的。
+总编：小鹿妞妞
+编辑：小鹿妞妞
+校正/发稿：谐趣园
 
-注：本文仅代表作者观点
-
-*参考链接：[https://www.epochtimes.com/b5/21/11/9/n13365439.htm](https://www.epochtimes.com/b5/21/11/9/n13365439.htm)*
-
-* * *
-
-*素材采编：Kevin wang*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,37 @@
 ---
 
 
-## 新西兰支持台湾加入CPTPP
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1658128/)
+## 福奇在国会撒谎
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1658229/)
 
-据《台湾英文新闻》记者：Kelvin Chen，2021年11月9日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-74.png)图片来源：Getty图片
-台北（台湾新闻）——新西兰政府表示，它一直欢迎愿意遵守《跨太平洋伙伴关系全面进步协定》（CPTPP）规则的国家。
+**简评：**
 
-新西兰外交和贸易部（MFAT）的一位发言人通过给CNA的书面声明表示，新西兰一直支持包括愿意满足CPTPP高标准的经济体。台湾提交申请后，下一步是由成员国决定是否正式邀请其加入贸易伙伴关系。
+美国国立卫生研究院（NIH）提交给国会的文件承认美国纳税人的750万美元资金通过《生态健康联盟》资助了中共国武汉病毒实验室的功能增强实验。福奇在宣誓时撒了谎。 这就可以理解福奇在宣誓时经常暴躁和不耐烦。
 
-在台湾于9月22日提交CPTPP申请后，新加坡驻台北贸易办事处也发表声明称，新加坡“欢迎所有愿意并有能力满足CPTPP高标准的各方”。
+[GTV视频链接](https://gtv.org/video/id=61892902adfd99590c346cf8)
 
-新加坡贸易办公室表示，一旦CPTPP成员国达成共识，申请人就可以最终加入。
 
-此外，任何打算加入的国家都必须与所有现有成员进行双边磋商，以解决任何疑虑，并说服成员国其符合加入贸易协定的所有标准。
 
-文章来源：[https://www.taiwannews.com.tw/en/news/4339651](https://www.taiwannews.com.tw/en/news/4339651)
+**视频字幕：**
 
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 柯镇恶
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+美国国立卫生研究院 （NIH）周三提交给国会的一份文件对福奇博士是否在宣誓时撒谎提出了严重质疑。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+事实上NIH的文件承认资助了武汉病毒研究所的功能增强实验，NIH在5年内资助《生态健康联盟》750万美金。
+
+周三的文件证实了资金通过《生态健康联盟》资助了中共国武汉病毒实验室的功能增强性实验。
+
+这一事实似乎与福奇博士在宣誓时经常暴躁和不耐烦的证词相矛盾。
+
+*字幕:* *free2020060*|*听写：云岭* *| 翻译：Roberts* *|* *简评/文字整理/编辑：胖丁 | Page：我是球大哥*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+*编辑：【英国伦敦喜庄园编辑部】*
+[![](https://spark.adobe.com/page/zn0Gg0d0DjuzK/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/zn0Gg0d0DjuzK/images/84f8408b-3ff8-423f-a0fa-3f1ac33f11e8.jpg?asset_id=10b6b13c-f2f6-4e1f-b367-b304ac02b186&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+
 
  
 

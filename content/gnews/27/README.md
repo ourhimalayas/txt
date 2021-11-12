@@ -2,46 +2,24 @@
 ---
 
 
-## 针对美中首脑线上会晤 日本关注病毒溯源议题
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1658010/)
+## 应放慢儿童新冠疫苗：等待美国数据
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1658108/)
 
-作者：日本方舟农场 – Andy5
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11123.jpg)图片来自USNews.com
+意大利药物机构总裁乔治·帕卢 (Giorgio Palù) 说：”如果欧洲药品管理局EMA通过针对儿童抗新冠疫苗接种，那是一种风险。会有严重的多发炎表现，因此必须非常谨慎地做出选择”。
 
+根据最新预测，意大利的辉瑞疫苗也应在圣诞节前批准用于 5 至 11 岁的儿童。预计德拉吉政府内部将发生全面政治冲突。
 
+专家表示在等待 EMA 的宣布，还有来自美国的数据，并且建议谨慎，因为即使年轻人的心肌炎是轻微的，也应该敲响警钟。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+米兰欧洲肿瘤研究所 (Ieo) 流行病学和生物统计学系主任 Sara Gandini 表示：”对于 5-11 岁年龄组的抗新冠疫苗必须能覆盖最危险的脆弱儿童、患有病理学或免疫抑制的儿童，我对儿童的大规模疫苗接种感到困惑。众多的分析和研究都表明年轻人的感染率明显低于成年人。”
 
+但是意大利卫生部副部长皮埃保罗·西莱里 (Pierpaolo Sileri) 坚持称， 为了获得群体免疫，至少有一半的儿童，约 150 万必须接种疫苗。
 
+原文链接：[https://www.today.it/attualita/covid-vaccino-5-11-anni-crisanti.html](https://www.today.it/attualita/covid-vaccino-5-11-anni-crisanti.html)
 
-关于受世界瞩目的美中首脑下周的线上会晤，美国国务卿布林肯在11月10日正式确认，美国总统拜登与中共领导人习近平将有线上交流。一些消息灵通的媒体则爆料称，双方正在调整会晤时间，有可能定于15日举行。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture-5.jpg)
-日本一家媒体公布了布林肯发布相关消息时的视频，视频中，布林肯国务卿透露，本次的议题包含气候变化、病毒溯源等双方存在争论的内容。日本该媒体则着重报道了布林肯在病毒溯源问题上，要求中共国提供帮助并公开必要的情报。分析人士称，这表明近期日本确诊病例数的下降，并没有使它放弃对病毒起源调查的关注，相反这一话题可能成为接下来最被关注的话题之一。
-
-参考链接：
-[20211111日本FNN報導美中即將舉行線上會晤](https://www.gettr.com/post/pgnpl87b55)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

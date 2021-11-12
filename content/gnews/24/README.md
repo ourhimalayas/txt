@@ -2,47 +2,34 @@
 ---
 
 
-## 官方数据显示：过去一个月，89%Covid-19死亡病例都已接种疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1658028/)
+## 日本岸田内阁将颁布新的经济政策
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1658131/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿: 东京京樱花团/麗子(译)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-60.jpg)[图片源](https://www.nippon.com/ja/japan-data/h01165/)
+［东京，11月12日（路透社）］——政府公布了将于19日由内阁批准的经济刺激主要方案。一些政府消息人士透露，这些措施包括加强卫生保健系统和确保治疗中共病毒的药物（政府已将其确定为首要任务），以及如何应对全球高油价。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/COVID19Deaths-1200x666-1.jpg)
+经济措施将基于以下：1）防止中共病毒的继续扩散；2）在与中共病毒共存中，恢复社会经济活动，并彻底落实危机管理工作；3）启动新资本主义，开辟未来社会；4）确保人民的安全和安心生活。日后会发布有关财政支出，企事业规模要求等的具体方案。
 
+在防治中共病毒的措施方面，除了扩充提供医疗服务的系统外，还包括支持企业的措施，如为被要求休业的餐馆提供补助金，继续为企业提供资金支持等。此外，还包含应对石油价格飙升的措施。对于普通家庭，采取对低收入家庭的补助和对学生的紧急特殊补助金等措施。
 
+另一方面，在与病毒共存下恢复社会经济活动一项，将包括恢复名为“GoTo Travel”的旅游需求刺激计划，并将为开展相关活动的团体提供支持。
 
-图片来源：Credit: David Dee Delgado/Getty Images
+首相岸田文雄推出的“新资本主义”计划，包括一个10万亿日元的大学基金，作为使日本成为一个科技强国的战略的一部分。并促进清洁能源汽车的引进，以及确保一个国内蓄电池的生产基地。
 
+继续推动数字化新型都市的国家理念和再次推进“个人编号”的申请工作。在经济安全领域，除了确保国内先进半导体生产基地外，还计划引入一项重要的经济安全技术开发计划。
 
-#### 编译：小红帽
+分配战略的核心是，对提高劳动者所得比例的企业，在税收政策方面予以支持。还包括对看护，护理，育儿人员的收入改善措施以及对有18岁以下孩子的家庭予以补助等。
 
-最新的英国官方公共卫生数据显示，在过去四周内，完全接种中共病毒（Covid-19）疫苗的人占中共病毒死亡人数的89%，同时也占10月9日至11月5日中共病毒住院人数的77%，占中共病毒疑似病例的65%。
+为了确保国民的安全和安心生活，除了强调提高防灾•减灾等国家抗灾能力之外，还提出了“根据不断变化的国际形势确保国家安全”一项。
 
-[中共病毒统计报告](https://publichealthscotland.scot/media/10091/21-11-10-covid19-publication_report.pdf)( [Covid-19 Statistical Report](https://publichealthscotland.scot/media/10091/21-11-10-covid19-publication_report.pdf))是苏格兰公共卫生局发布的关中共病毒数据的每周报告，[11月10日发布的最新报告](https://publichealthscotland.scot/media/10091/21-11-10-covid19-publication_report.pdf)证实，完全接种疫苗的人群的情况逐月恶化，而未接种疫苗的人群的情况有所改善。
+信息源：
 
-报告中的表18证实，在2021年10月30日开始的一周内，大多数中共病毒病例是在完全接种疫苗的人群中出现的。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/18.png)
-然而，就住院而言，接种疫苗和未接种疫苗之间的差异变得更大了，至少从2021年7月起，完全接种疫苗的人现在占了中共病毒住院人数的大部分。
+[新型コロナ感染抑止へ経済対策、原油高対応も明記＝政府筋](https://news.yahoo.co.jp/articles/12d919c413ab5443580c2617a97762666e7aad8f)
 
-报告的表19证实，在2021年10月29日开始的一周里，大多数中共病毒的住院病人属于完全接种疫苗的人群。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/19.png)
-但是，当涉及到据称与中共病毒有关的死亡时，接种疫苗和未接种疫苗之间的差异变得更加严重。
-
-报告中的表20证实，在2021年10月23日开始的一周内，大多数中共病毒的死亡病例是在完全接种疫苗的人群中发生的。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/20.png)
-由于在完全接种疫苗的人群中，中共病毒的住院人数和死亡人数逐月上升，而未接种疫苗的人群中住院人数和死亡人数持续下降，因此需要对疫苗的有效性和安全性提出进一步质疑。
-
-**参考新闻：**[Public Health Data: 89% of Covid-19 Deaths in the Past MONTH Were Among the Fully Vaccinated (humansarefree.com)](https://humansarefree.com/2021/11/public-health-data-89-of-covid-19-deaths-in-the-past-month-were-among-the-fully-vaccinated.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
