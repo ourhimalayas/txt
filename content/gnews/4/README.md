@@ -2,15 +2,15 @@
 ---
 
 
-## 【文贵先生大直播PPT】抗中共病毒新药分析
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1658972/)
+## 【文贵先生大直播PPT】全球最新病毒感染疫苗和疫苗政策信息汇总
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1659033/)
 
-撰稿：MyWay，Zion (文恩），舒平风
+撰稿：MyWay，莲心不染，舒平风，坐看云起时
 审核：三票先生，顽童2017
-PPT制作：小黑兔2020，健身健心（文阳）
+PPT制作：青山
 
-**【2021年11月10日文贵先生大直播PPT：抗中共病毒新药分析】**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/31.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/32.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/33-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/34.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/35.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/36.jpg)
+**【2021年11月10日文贵先生大直播PPT：全球最新病毒感染疫苗和疫苗政策信息汇总】**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/41.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/42-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/43.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/44.jpg)
 * * *
 
 发稿：云起时
