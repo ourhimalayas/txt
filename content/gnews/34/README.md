@@ -2,96 +2,89 @@
 ---
 
 
-## 诡异的新冠药物“莫努匹韦”（Molnupiravir）
-` 疫苗病毒专栏` [轉載自GNews](https://gnews.org/zh-hans/1657208/)
+## 中共病毒及其疫苗全球超限战中的典型案例（二十一）
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1657330/)
 
-加拿大温哥华杨帆农场 Myway
+作者：香草山信息部 6zero4
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-1-5.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片sd.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish.png)
 
 
-**一、Molnupiravir 基本信息**
-
-莫努匹韦（Molnupiravir），商品名Lagevrio，抗病毒药物，可抑制某些RNA病毒的复制，用于治疗SARS-CoV-2感染者。
-
-作用原理：是合成核苷衍生物N4-羟基胞嘧啶（又称EIDD-1931）的原药，通过在病毒RNA复制过程中引入复制错误而发挥其抗病毒作用 。
-
-开发历史：最初是由埃默里大学的药物创新公司–埃默里药物创新投资公司开发的，用于治疗流感。然后被位于迈阿密的Ridgeback Biotherapeutics公司收购，该公司后来与默克公司合作，进一步开发该药物 。
-
-2021年11月4日在英国被批准用于医疗用途，采购价值达到$340 Million 。法国政府在药物被批准前抢购了5万剂。
-
-每个疗程价格为$700。
-
-参考文献：
-
-- [https://en.wikipedia.org/wiki/Molnupiravir](https://en.wikipedia.org/wiki/Molnupiravir)
-- [https://www.reuters.com/business/healthcare-pharmaceuticals/france-says-it-has-ordered-50000-doses-mercks-covid-19-antiviral-pill-2021-10-26/](https://www.reuters.com/business/healthcare-pharmaceuticals/france-says-it-has-ordered-50000-doses-mercks-covid-19-antiviral-pill-2021-10-26/)
-- [https://nationalfile.com/uk-buys-340-million-worth-of-new-covid-pills-from-merck-becomes-first-country-to-approve-costly-drug/](https://nationalfile.com/uk-buys-340-million-worth-of-new-covid-pills-from-merck-becomes-first-country-to-approve-costly-drug/)
 
 
-**二、临床试验情况**
 
-目前临床实验尚未结束，正在进行的临床实验有：莫努匹韦安全性及其对SARS-CoV-2的病毒脱落的影响（临床二期）。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-71.png)
-莫努匹韦对COVID-19非住院成人患者的疗效和安全性（临床二、三期）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-25.png)
-莫努匹韦用于预防成人冠状病毒疾病（COVID-19）的研究（临床三期）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-17.png)
-**三、药物的潜在危险因素**
+**俄勒冈州参议员呼吁调查COVID-19病例统计数据造假**
 
-***1）致癌、致突变和生殖毒性：***
+2021年10月12日零对冲报道，早在今年8月16日，俄勒冈州共和党参议员撒切尔（Kim Thatcher）和林西克姆（Dennis Linthicum）在收集了1718名俄勒冈人和53032名其他美国人的签名后，以信件的形式提交了一份请愿书，请求美国代理检察官阿萨福格（Scott E. Asphaug）启动大陪审团，以调查CDC和FDA对COVID-19病例数据统计造假的问题。
 
-莫努匹韦（Molnupiravir）通过诱使病毒使用该药物进行复制，然后在复制开始后将错误插入病毒的遗传密码中。当发生足够多的复制错误时，病毒将无法再进行复制。但该药物可能整合到哺乳动物遗传物质中，导致致癌。从理论上讲，致突变药物都可以导致出生缺陷或癌症。
+为这个请愿提供帮助的非营利组织“健康自由（SHF）”在一份声明中表示，请愿书是在正式提交一个月后才公开发布的，目的是保护相关当事人。SHF还引用了2020年3月的一项研究，称CDC在编制统计数据时夸大了COVID-19病毒感染是致死的原因，同时规避了多项联邦法律。
 
-《科学》杂志总结：这类类似的实验性药物已被证明会导致动物的生殖毒性，接受治疗的动物的后代出生后没有牙齿，也没有部分头骨。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-220.png)
 
-参考链接
+撒切尔和林西克姆就CDC与FDA的COVID-19统计报告问题咨询了大量医生、流行病学家和病毒学家后，还在请愿书中对COVID-19疫苗死亡和受伤等不良反应的统计和报告表示担忧，并表示CDC和FDA对在诊断COVID-19的PCR检测过程中的“周期阈值”这个特定测试参数的设置问题，导致假阳性COVID-19病例、住院和死亡人数虚增。一名爆料者也在宣誓证词中表示，CDC的疫苗不良事件记录系统报告的COVID-19病例数据可能被高估了五倍。
 
-- [https://www.drugdiscoverytrends.com/early-safety-concerns-accompanied-mercks-molnupiravir-the-first-potential-oral-covid-19-therapy/](https://www.drugdiscoverytrends.com/early-safety-concerns-accompanied-mercks-molnupiravir-the-first-potential-oral-covid-19-therapy/)
-- [https://archive.md/tnP59](https://archive.md/tnP59)
-- [https://www.foxnews.com/health/merck-pill-oral-covid-treatment](https://www.foxnews.com/health/merck-pill-oral-covid-treatment)
+哈佛大学流行病学家米娜（Michael Mina）博士在2020年8月就表示，阈值过高的PCR测试不仅会检测到活病毒，还会检测到死病毒的基因片段，也就是会导致“假阳性”病例的产生，因此她建议将周期阈值设定在30或更少。
 
+请愿书还提道，科学文献持续提供的经验证据表明，安全有效的COVID-19病毒感染后的治疗方案和管理策略是存在且有效的，但却没有提供给最需要的美国人。
 
-***2）药物治疗中的不安全性***
+**FDA****称****Moderna****和****J&J****的新冠疫苗都不需要加强针**
 
-虽然有可能在最佳浓度下，莫努匹韦很可能导致足够的病毒基因突变以阻止病毒的复制和继续传播，但次优剂量是否有效未知。
+2021年10月12日，FDA的科学家们在对Moderna和J&J的疫苗加强针剂进行详细审查后公布了一份文件，决定推迟批准这两家疫苗公司的COVID-19疫苗加强针剂，但理由却是因为这些疫苗对中共病毒及其德尔塔变种可以产生足够的免疫力，因此其加强针剂是“不必要的”。该文件显示，FDA虽然暂时推迟了对他们的疫苗加强针剂的推荐，但其咨询委员会将在2021年10月14日继续开会讨论这一提议。
 
-目前使用莫努匹拉韦的方案是800毫克的剂量，以片剂口服形式给药，每天两次，持续五天。在这一浓度下，理论上能杀灭病毒，但现实中，很多人不会服用整个疗程的药物。研究表明，多达40%患者未能完成整个疗程，在次优浓度下，莫努匹拉韦可能会导致病毒突变，产生更加难以控制的病毒变种。
+FDA还称目前美国许可或授权的COVID-19疫苗仍可预防中共病毒感染导致的严重疾病和死亡，但仍有许多潜在研究没有结束，且尚未对实际数据及其结论进行独立审查或验证。FDA甚至在详细听取了Moderna疫苗加强针会增加男性心脏炎症这种罕见而危险的副作用的介绍后，仍认为该疫苗加强针剂是安全的。并称在18至64岁的成年人中，除了因淋巴结病变导致的腋窝肿胀或接种臂压痛外，没有证据表明该疫苗加强针剂接种后局部或全身不良反应的频率或严重程度的增加。
 
-参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-221.png)
 
-- [https://www.forbes.com/sites/williamhaseltine/2021/11/01/supercharging-new-viral-variants-the-dangers-of-molnupiravir-part-1/?sh=4e0123a96b15](https://www.forbes.com/sites/williamhaseltine/2021/11/01/supercharging-new-viral-variants-the-dangers-of-molnupiravir-part-1/?sh=4e0123a96b15)
+Modern认为新冠疫苗提供的免疫力会随着时间的推移而减弱，在大约6个月时开始明显减弱，因此向FDA的疫苗和相关生物产品咨询委员会提交了疫苗加强针的数据，请求批准为大多数成年人提供其疫苗加强针剂。但更多研究表明，自然免疫比疫苗接种更有效。J&J也要求FDA批准其针对18岁及以上成年人的新冠疫苗加强针。Moderna和J&J都坚称：已经收集了足够的疫苗接种数据，且数据表明他们的疫苗加强针适用于普通人群。
 
+**纽约市未接种疫苗的教师如果想保持医疗福利，就必须放弃起诉市政府的权利**
 
-**四、伊维菌素和莫努匹韦对比**
+2021年10月13日零对冲报道，纽约市教育部赶在COVID-19疫苗强制接种令生效之前，即一周前才明确告知未接种疫苗的教师和学校工作人员，他们除了将被停薪留职，还将不能享受下一年的医疗福利，除非他们放弃就疫苗强指接种令起诉市政府的权利。截止上周，该市数千名教师和学校工作人员仍未接种疫苗，他们认为不接种疫苗是合乎情理的，因为这些疫苗会导致心肌炎和血栓等严重的副作用，并抱怨市政府把他们抛在一边，工会也没能保护他们。
 
+该市教育部一名官员表示，这一仲裁结果是由第三方仲裁机构发布的，本部门不会强制让教师放弃起诉，更不可能做出这样的决定，不过工会和本部门都同意这样做。
 
-|  | **伊维菌素（****Ivermectin****）** | **莫努匹韦（****Molnupiravir****）** |
-| --- | --- | --- |
-| 历史 | 安全使用超过30年（40亿剂），用于治疗各种寄生虫感染，被列入世界卫生组织基本药物清单。 发现者于2015年获得诺贝尔医学奖。 | 最初的研究是在20多年前，但由于潜在的诱变特性而被弃用，现转化为抗SARS-Cov-2治疗药物。 |
-| 作用机理 | 具有RNA病毒抗病毒性，干扰SARS-CoV-2进入人体细胞并进行复制，与刺突蛋白的宿主受体结合区竞争性结合，并可干扰病毒的复制。 | 广谱抗病毒。 通过在病毒基因组中引入错误信息，导致病毒诱变抑制病毒的繁殖 |
-| 临床数据 | 全球已经开展多项临床实验，结果显示，伊维菌素可以较少90%住院人数，没有死亡和，没有因副作用而退出的情况。所有受试者在治疗方案后都有正常的血氧饱和度 | 基于单一临床试验的临床疗效，在中期分析中，莫努匹韦将住院或死亡的风险降低了约50%。根据独立的数据监测委员会的建议，并与FDA协商，由于“有效的”的实验结果，该临床研究的招募提前停止。 |
-| 安全性 | 伊维菌素是一种安全系数很高，比许多非处方药（如扑尔敏）更安全。严重的不良反应似乎非常罕见。美国国家卫生研究院（NIH）认为伊维菌素 “普遍具有良好的耐受性”。 | 长期安全性和潜在的诱变性（致癌性）不明 |
-| 价格 | $3-20 | $700 |
-| 现状 | 在印度、日本、墨西哥、秘鲁和阿根廷等国家的COVID-19治疗项目中广泛而成功地使用。 | 默克公司正在寻求在在各国的临时批准h或紧急使用授权，英国11月4日刚刚批准莫努匹韦使用，正在等待美国FDA授权。 |
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-222.png)
 
+此举是由该市最大的教师工会，即教师联合会发起的仲裁结果。该工会宣称这个仲裁结果是一场胜利，迫使市政府承认了在疫苗接种方面的医疗和宗教豁免，并允许教师休一年带医疗保险的无薪假，或者自愿辞职，并对尚未休的病假支付薪金，且继续享受一年的医疗保险。那些签署了起诉该市的弃权书的人，医疗福利将在2021年11月30日之后继续发放。
 
-校对编辑，发稿：大废墙（文非）
+仲裁员表示裁决“反映”了双方在调解之前和调解期间达成的协议，以及双方在回应仲裁员的裁决时同意的“语言”，教职员工还必须提交一份由教育部创建的表格，声明放弃包括但不限于通过合同或法定程序质疑员工自愿辞职的权利。仲裁员还表明，无薪休假的条件按照之前的协议管理，双方可进一步协商解决。
 
-* * *
+**澳大利亚为“正在进行的行动”建造隔离营**
 
-更多加拿大杨帆农场的频道，请关注：
+2021年10月13日零对冲报道，尽管澳大利亚一些州已经开始解除COVID-19疫情的封锁限制，但澳大利亚当局却正在建造隔离营地，并计划明年完工，以便为“正在进行的行动”做好准备，如为那些“没有接种疫苗的人”提供住所。就新冠疫情暴政而言，澳大利亚可能是世界上除了中共国以外最专制的国家。
 
-- [GTV: 加拿大扬帆农场多伦多频道](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12)
-- [GTV: 加拿大扬帆农场多伦多蓝枫法律](https://gtv.org/user/605e97e8a54f827240b8048a)
-- [GTV: 加拿大扬帆农场多伦多枫叶财经](https://gtv.org/user/5f359954313eaf1e3716cfc1)
-- [喜马拉雅加拿大杨帆农场discord](https://discord.com/invite/BUDfsdPjJA)
-- [GETTR: 加拿大扬帆农场多伦多频道](https://gettr.com/user/torontofarmcn)
+位于图乌旺巴郊外的韦尔坎普机场将于2022年3月底前建成一座有1000个床位的隔离营地，分成不同的隔离单元，包括单人房、双人房和家庭房，以供从COVID – 19疫区返回的国内旅客等“正在进行的行动”使用，同时由警察和保安7天24小时全天候巡逻，并成为当地就业场所。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Canada_MPL_banner.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-223.png)
+
+昆士兰州副州长迈尔斯（Steven Miles）表示，由于出现了COVID-19病毒变种和没有接种疫苗的人，对隔离设施的需求将持续存在。当局正从瓦格纳公司租赁为期12个月的土地以建造隔离营地，并可续租12个月。另外，在布里斯班机场附近平肯巴工业区30公顷的陆军营房用地上，也正在建设1000个床位的隔离营地。
+
+全球范围内效仿中共国建造隔离营地的疫情暴政举动，除了澳大利亚，美国各州当局也在为“无法在家中进行隔离”的公民建造隔离设施；加拿大魁北克市当局也宣布将把在疫情管理中“不合作”的公民隔离在秘密的隔离设施中；新西兰也宣布将把新冠病毒感染者及其家人安置在“隔离设施”中；德国当局今年1月也宣布将在德累斯顿的“拘留营”关押屡次不遵守COVID – 19疫情管控规则的异见人士。
+
+图片和新闻源于:
+
+[https://www.zerohedge.com/political/oregon-senators-call-investigation-alleged-covid-19-statistical-manipulation](https://www.zerohedge.com/political/oregon-senators-call-investigation-alleged-covid-19-statistical-manipulation)
+
+[https://www.zerohedge.com/covid-19/fda-says-no-need-moderna-booster-jabs-ahead-key-meeting](https://www.zerohedge.com/covid-19/fda-says-no-need-moderna-booster-jabs-ahead-key-meeting)
+
+[https://www.zerohedge.com/covid-19/nycs-unvaccinated-teachers-must-waive-right-sue-if-they-want-keep-health-benefitshttps://www.zerohedge.com/covid-19/australia-building-quarantine-camps-ongoing-operations](https://www.zerohedge.com/covid-19/nycs-unvaccinated-teachers-must-waive-right-sue-if-they-want-keep-health-benefitshttps://www.zerohedge.com/covid-19/australia-building-quarantine-camps-ongoing-operations)
+
+审核/上传：浪迹天涯
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,58 +2,42 @@
 ---
 
 
-## 众议员吉姆班克斯要求国会采取行动,阻止中共国的宣传渗透国会
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1657350/)
+## 郭文贵先生2021年11月11日盖特视频（9分45秒）全文字版
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1657404/)
 
-众议员吉姆·班克斯： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的宣传垃圾《中国日报》不属于国会大厅——但有人付钱让它每天早上到达我和我同事们的门口。 这必需立即结束。 布赖特巴特新闻[@BreitbartNews](https://twitter.com/BreitbartNews) 【布赖特巴特新闻网报道：独家：众议员吉姆班克斯要求国会采取行动，阻止 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的宣传渗透国会 .根据布赖特巴特新闻独家获得的一封信，众议员吉姆班克斯周三指责民主党人对中共国的虚伪态度，并要求国会对每天送到国会门口的 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 宣传 (中国日报) 采取行动。】
+#### 听写整理编辑：东京樱花团/Peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12212.png)
+尊敬的战友们，好啊，这个今天是11月11号啊，“光棍节”。哇塞，这共产党的这个光棍节的过成啥了啊？想想这过去十几年“光棍节”，“阿里巴巴”马云，什么淘宝啊，什么腾讯啊，包括那个牛叉的什么，呃什么，什么什么京东啊，玩的都是假的!现在怎么样,现在怎么样怎么样啊?抖音火吧,过去这几个月的抖音数据完了吧，下去了吧。
 
+现在就从这两三天，最起码我知道的啊，有二十多家国际上基金正在准备破产,在往外倒腾钱呢，啥叫基金呢？你把钱交给他管理，他投资，他说了算，挣不挣钱，收你百分之二点五，挣了我挣的钱，我分百分之二十，再加二点五。不挣钱赔了，活球该，你还得给二点五。现在那些人跟共产党勾兑完了，快破产了啊，到处是豪宅，是吧？要清盘了，都在这骗这些投资的傻货，投基金的，很多人不知道，世界上你看到成功的基金的背后，无数个被骗的基金就是国际P2P
 
+我不相信这个世界上有任何一个所谓的投资能比喜联储再好。我这家伙啊，两点睡的时候好像23，24二十四啊，啊，我不到五点醒来就快25了，我的天哪！比昨天涨了六块多，六块钱什么概念？六亿战友的股就三百六十亿，三百六十亿呀！涨六块钱就涨了六十倍呀！兄弟姐妹们啥概念呢？伊朗马斯克啊，什么比尔格茨（此处因是口误，比尔盖茨）是吧？战友们你们太牛了，你们是慧眼识七哥呀，这不要脸，七哥够不要脸的（自嘲）。是吧，还早着呢，别着急，还早，你说啥都没上了，支付功能，大机构投资是吧？还早着呢，这是压不住的感觉。我看到他们机构投资还在压盘呢，是吧是吧，还在大额的压盘，要不压的话，我觉得不知道是多少去了。
 
-> The Chinese communist propaganda rag China Daily doesn’t belong in the halls of Congress—but someone is paying for it to arrive on my and my colleagues’ doorstep each morning. This needs to end NOW. [@BreitbartNews](https://twitter.com/BreitbartNews?ref_src=twsrc%5Etfw) [https://t.co/NCxoZpBjf0](https://t.co/NCxoZpBjf0)
-> — Jim Banks (@RepJimBanks) [November 11, 2021](https://twitter.com/RepJimBanks/status/1458833134259216384?ref_src=twsrc%5Etfw)
+三周已经过去一天了。刚才我运动完了，浑身是水，我这换了第二个T恤，第三个T恤呢，浑身是水啊，练完以后外面有点凉，我就穿了个棉袄，浑身是水，待会儿赶快得把这个战友的视频，我得发出去。因为太多战友说，七哥，今天你要发视频，我说我发吧啊，但是我在洗澡前发。最重要的感触就是11月11号，已经共产党没有“光棍节”，没有”11.11″了,要脸不,要脸不?共产党造假造这样，这个国家被毁到什么样子啊？国内有很多人不知死活啊，爹亲娘亲不如党亲，那你就跟他亲去吧。
 
+还有很多战友问怎么投资KYC，我再说的是战友们，KYC就找农场，没有，没有任何问题，会很快我已经把联系人也发给了这个农场了啊。第二，所谓国内不让投，那扯淡的，国内百分之百都能投啊，你没有任何问题。还有一个国内，很多我们农场未来会成立各种投资的平台，比如说基金啊，理财产品呐，我们农场都可以做啊，比如说现在澳大利亚，木兰那儿有一个基金啊，很快就，人家已经有牌照的基金，那他就可以接受国内投资基金呢，是吧？那投资基金，基金就帮你去投那个币。就像我今天说的这样的，你只要这个基金限定，只要是战友的基金，只限你投资喜联储系列，G系列啊，赔了七哥负责，挣了是你的，只要你投农场的基金，比如说我们现在有战友，在日本这个基金啊，是吧？已经是拿到大钱了啊，都是国内的这个大人物投的。很简单，我说你放心，赔了七哥负责，挣了是你的，是吧？关键的时候甚至给你的原始股倾斜，只对战友，不对任何人。
 
+我们要选出来个二、三十个战友啊，三四十个地域城市，而让战友们成立基金。然后呢，国内的有些不方便直接买喜币机投……直接投基金，那没有任何限制是吧？共产党的鸟招，你还说不让中国人买啊，七哥分分钟就把它化解掉了，是吧？但是你就（像）我说一开始的美国的基金，就现在跟许家印跟房地产投资的基金，那样玩法，所谓的多样性投资，那对不起了，你赔跟我没毛关系。
 
-参议员泰德·克鲁兹： 乔.拜登又一次灾难性的国家安全失败。 拜登政府迫不及待地想解除对伊朗支持的胡塞武装及其领导人的恐怖主义制裁。 现在那些恐怖分子正在夺取我们的设施并扣押大使馆工作人员。（参议员泰德·克鲁兹：转《自由灯塔》资深记者推文：突发事件：伊朗支持的武装分子冲进美国驻也门大使馆，扣押人质和设备——国务院告诉我它“担心大院被破坏”，要求释放人质和设备）
+所以我希望战友们各农场的抓紧行动，抓住Hpay的机会，支付的机会，抓住自己成立基金的机会。这个基金怎么成立,跟联盟委员会商量，然后遵守原则，你就会赚大，你的钱也拿着基金的可以运作，那你就做天大的，等着吧啊，看这些天发生啥，是吧？
 
+我天哪，这共产党现在到海外，所有的清钱的啊，说那个红杉资本，沈南鹏啊，卖资本，哎呀，沈南鹏全家也被抓了，也是因为江志成、孙力军、孟建柱、王岐山，一样把东西卖掉。我们在某国，词儿差点说出来，咱就说了吧，日本啊，我们某战友帮助咱农场买了个秘密的会议地点，在京都。买完以后说这个就是某大佬的国内，卖的很便宜。当年买的时候两千多万美元，这回卖才一千一百多万美元。日本房价也涨了，买了，就是要赶快贴现，买完以后验完房了啊，住了一星期给我拍照片，（说）：“七哥房子里发现七十多万美元现金。”说明啥呀？兄弟姐妹们，原来这个大佬在这搁着钱，他就没有权力，根本也不想让共产党知道，他也没有权力来动这个钱，是共产党帮他卖的。这个人说明在失去自由状态中。
 
+全世界多少事啊？中央公园现在又推出了四五十套，全是共产党背景的房子，就是富豪的房子。你觉得国际上现在的这种大家都知道，这个经济还有股市要跌、物价通胀、大量失业、疫苗、灾难运动员都死了。你觉得你往哪投资去，投地产？你买一个你根本不能居住，或者对你没有什么意义的，还有贬值的，永远不升值的，每月要交费用的房地产，有好处吗？买根本你不开的，不需要一堆车，搁在那，你觉得对你是安全的吗？伊隆马斯卡都在卖自己的股票，你买的股票，你觉得未来会涨多少呢？
 
-> Yet another catastrophic national security failure for Joe Biden. The Biden admin couldn't wait to dismantle terrorism sanctions on the Iran-backed Houthis and their leaders. Now those terrorists are seizing our facilities & embassy workers. [https://t.co/64L9hw2dw3](https://t.co/64L9hw2dw3)
-> — Ted Cruz (@tedcruz) [November 11, 2021](https://twitter.com/tedcruz/status/1458866856975118344?ref_src=twsrc%5Etfw)
+世界上只有两样东西赚钱。我深信，黄金还有虚拟货币，好的虚拟货币，而且一定有稳定币的虚拟货币，没有其他。我不相信比特币未来，比特币还会涨，但是一定会死翘翘。所以兄弟姐妹们，是你们创造了，这种人间的前所未有的奇迹，你们要拥有它，你们要呵护它，你们要珍惜它。
 
+永远永远要当司马懿，不要当曹操啊。最后，天下尽归司马懿，也不要当刘备哈，是吧？最后你有刘婵那样的儿子，你有曹操那样的这几个儿孙，啥都不是你的。你要有司马懿Hold住身体啊。能Hold得住，能十几年磨一剑，最后，天下尽归司马懿。让他们折腾，让他们笑，让他们哭，让他们跳，让他们骂，让他们妒忌。你比昨天少了什么？你明天比别人多了什么？自己问问自己，兄弟姐妹们。
 
+头两天买了十几块钱（喜币价格）的战友问我：“七哥，我是不是贵了买的？”我（说）：“这样吧，你把你的贵的现在咱俩赌，未来三十天，你赔了是我的，你要挣了咱俩对半分，我给你保证，干不干？”结果这战友，昨天晚上发信息：“七哥，我赚了!”你未来能花的钱，也就这钱，不会再有其他钱去了。又到时间了，俺不说了，太多话了，明天大直播。
 
-前国务卿迈克·蓬佩奥： 我们的敌手们看到，拜登政府在专注于军队中的多样性和包容性，以及使用绿色能源的喷气式飞机，而他们则专注于建立一支可以摧毁我们的共和国的军队。【附视频，蓬佩奥接受福克斯新闻主持人肖恩·汉尼提采访：由软弱和低效率定义的拜登外交政策教义；蓬佩奥谈到拜登向塔利班投降，淡化 #中共国 的威胁，加倍注重“将美国放在最后”的外交政策】
+稿件仅作参考，最终以郭文贵先生盖特直播视频内容为准。
 
+[郭文贵先生11月11日盖特视频](https://gettr.com/post/pgn0eqfd05)
 
-
-> Our adversaries see that the Biden Admin is focused on diversity and inclusion in the military and flying jets with green energy, while they are focused on building out a military that can undo our republic. [https://t.co/VnpgkSv2T8](https://t.co/VnpgkSv2T8)
-> — Mike Pompeo (@mikepompeo) [November 11, 2021](https://twitter.com/mikepompeo/status/1458852961631842309?ref_src=twsrc%5Etfw)
-
-
-
-前副国务卿基思·克拉奇： 习近平对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 经济的不当处理造成了食品和电力短缺。 街道一片漆黑。 许多商店关闭。 工厂的产出受到影响，加剧了供应链中断。 习近平在国内和在国外一样不受欢迎。 很高兴在[@cheddar](https://twitter.com/cheddar)节目上接受主持人[@NievesReporting](https://twitter.com/NievesReporting) 采访。 【附克拉奇接收采访的视频】
-
-
-
-> Xi Jinping's mishandling of China’s economy has produced food and electric shortages. Streets are dark. Shops are closed. Factory output is impacted, exacerbating supply chain disruptions. Xi is as unpopular at home as he is abroad.
-> 
-> Great to be on [@cheddar](https://twitter.com/cheddar?ref_src=twsrc%5Etfw) with [@NievesReporting](https://twitter.com/NievesReporting?ref_src=twsrc%5Etfw). [pic.twitter.com/FLpu4TBK4T](https://t.co/FLpu4TBK4T)
-> — Keith J. Krach (@KeithJKrach) [November 11, 2021](https://twitter.com/KeithJKrach/status/1458835500198998020?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特： 拜登的觉醒议程不仅荒谬,而且危险.气候变化是否等同于来自 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 日益增长的威胁? 当 [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 在其统治世界的战争道路上投下一颗核弹时,气候会是什么样?这种疯狂证明拜登不适合做领导者. 【转纽约邮报推文：五角大楼称：气候和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 是对美国“同等重要”的威胁】Q
-
-
-
-> Biden’s woke agenda isn’t just absurd, it’s dangerous. Climate change is the same as a growing threat from Communist China?
-> 
-> How’s the climate going to look when Communist China drops a nuclear bomb on its warpath for world domination? This lunacy proves Biden is unfit to lead. [https://t.co/4dKrXSQDkQ](https://t.co/4dKrXSQDkQ)
-> — Rick Scott (@SenRickScott) [November 11, 2021](https://twitter.com/SenRickScott/status/1458593995295281163?ref_src=twsrc%5Etfw)
-
-
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

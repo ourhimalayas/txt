@@ -2,39 +2,47 @@
 ---
 
 
-## 新建写字楼交付无人问津，墨尔本中央商务区依旧“鬼城”
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1657634/)
+## 新的金融体系正在向我们走来
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1657653/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/5823-10.jpg)图片来源：Sydney Morning Herald
+作者：香草山金融部 – 闲聊钱币
 
 
-编译报道：文泓
 
-11月12日，维多利亚州房地产委员会警告，由于办公楼建设速度持续加快，而办公人士却不愿意返回中央商务区，墨尔本CBD将继续成为一个“鬼城”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
 
-当前，墨尔本写字楼入住率只有疫情爆发前的4%。数据显示，在这场大流行中，CBD人流量比往年下降了80%。上个月，主城区每五个店铺中就有一家空置。
 
-同期却有许多办公楼正在建设中。今年墨尔本将交付超过222,000平方米的办公楼宇，占澳大利亚所有新增办公面积的一半。
 
-在周四晚间发布的一项计划中，房地产委员会呼吁维州公务员每周（至少）有三天回到CBD办公室；一旦达到90%的疫苗接种率，公共交通工具将免费使用三个月。
+文贵先生11月11日在他的gettr 视频里说他相信世界上两样东西会赚钱：黄金和好的稳定的虚拟币。
 
-房产委员会执行董事丹妮·亨特说，墨尔本CBD在过去的两年里一直是一个“鬼城”，办公室利用率只在封锁期间（短暂）恢复到45%，并不足以支持中央商务区的企业。
+先来说说黄金。毋庸置疑，几千年的人类发展史已经证明了黄金的独一无二的价值储备功能。这种黄灿灿的来自大自然的金属在历次社会动荡，战乱，饥荒，瘟疫等灾害过后，都可以施展重新分配财富的能力。
 
-开发商寄希望于商务人士的回流，亨特女士认为，对许多商务办公人士而言，这将是一个逐步返回办公室的过程。
+目前，全世界都笼罩在中共病毒和毒疫苗的阴霾之下。由此导致的次生灾害充斥着每个普通百姓的日常生活中。就业，股市，供应链，难民，食品，能源，住房等等，危机四伏。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-9.jpg)
+据Kitco News Bites报道，美国的消费者价格指数已经升至6.2%，创30的最高值。更有专家认为会达到7%。在这种通胀预期下，黄金10日开盘大涨$40美元。截止撰稿时，黄金为每盎司$1862美元。
 
-一位办公楼业主马金先生说：“目前最大的分歧是公共部门返回办公室的速度有多慢”，他说：“当政府继续告诉员工他们有能力在家工作时，他们会继续这样做。”
+再来说说虚拟币。新中国联邦的喜币于本月初隆重上线。它顺应历史发展的需要，运用最高端的科技力量，以黄金为锚定。喜币刚刚降生，文贵先生多次提到它的路还很长很远。随着喜币支付系统的广泛普及，世界各国的普遍参与和认可，喜币前途无量。
 
-原文链接：[Melbourne CBD offices: Ghost town’ warning as offices built without workers to fill them (theage.com.au)](https://www.theage.com.au/national/victoria/ghost-town-warning-as-offices-built-without-workers-to-fill-them-20211111-p5981g.html?utm_medium=Social&amp;utm_source=Twitter#Echobox=1636630098-1)
+麦克.莫龙尼(Mike Maloney)，最佳畅销书 （如何投资贵金属）的作者，在他的系列教育视频（钱里隐藏的秘密）中阐述，每隔40年左右，都会有一种新的金融体系诞生。
 
-编辑/发布：文泓
+自1971年布林顿森林体系瓦解至今已经50年，全世界的法币都是无锚印钞，这样的金融体系是时候终结了。黄金和喜币在即将到来的新经济秩序里一定举足轻重。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+（本文仅代表作者观点）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
+
 
  
 
