@@ -2,21 +2,38 @@
 ---
 
 
-## 农业成本飞涨，消费者面临收成和价格上涨的风险
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1661328/)
+## 以色列科学家怒斥疫苗不良事件数据造假
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661339/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11133.jpg)图片来自Leica Geosystems
-保护和代表意大利农业企业的组织在一份特定的新闻稿中说：“价格上涨和收成面临风险。由于农业食品部门的成本较高，以及能源产品的价格再次开始上涨，农业企业的生产成本从饲料到肥料有完全失控的危险。 我们已经记录了前所未有的 100% 的增长百分比“。
+作者：纽约香草山翻译部 – defiance
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月9日，以色列计算神经科学家马坦-霍尔茨在推特上驳斥了以色列卫生部的新冠疫苗不良事件报告系统及其对应数据。
 
-目前的情况也可能对下一次收获的规模产生影响。在意大利和欧洲，农民正在评估推迟播种和调整综合作物轮作，为此，关键的市场情况会导致成本的增加。例如，养猪业就是这种情况，这也是欧洲对中共国市场出口萎缩的原因，水果和蔬菜部门是另一个可能特别受到成本增加影响的一个领域。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide11-2.jpeg)
 
-农民和牧场主面临的危机有可能蔓延到农业食品链的所有组成部分。消费者可能很快就会见证水果和蔬菜价格的上涨。欧盟农业理事会定于11月15日召开，欧洲农业市场形势和前景将提上议事日程，这是了解欧洲将如何抑制未来几个月价格可能会暴涨的决定性一步。
+霍尔茨认为，以色列政府的新冠疫苗不良事件数据收集工作完全是在粉饰太平，该系统的不良事件报告缺漏数据惊人。霍尔茨补充，由于原始数据缺失带来的不准确性，该系统所做的数据分析更是毫无科学性。
 
-原文链接：[https://www.agrifoodtoday.it/attualita/confagricoltura-allarme-prezzi.html#\_ga=2.236280386.2132876092.1636792777-145009575.1615972944](https://www.agrifoodtoday.it/attualita/confagricoltura-allarme-prezzi.html#_ga=2.236280386.2132876092.1636792777-145009575.1615972944)
+霍尔茨解释道，以色列的疫苗不良反应报告系统远远落后于美国和欧洲。在报告不良事件的过程中，申报者只能填写一个网页表格，且填写完毕后无法进行追踪和验证，报告往往石沉大海。
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+对此，霍尔茨表示，严重的漏报导致新冠疫苗与一些疾病之间的相关性被降低到荒谬的程度。但是，以色列的不良反应数据是美国FDA的主要参考对象之一。鉴于美国政府正试图推行5至11岁儿童用新冠疫苗，霍尔茨进一步强调，以色列这些虚假的数据会直接影响到美国孩子们的安全，进而波及全球。
 
+参考链接：
+1）[Analysis: Israeli COVID vaccine safety data ‘worth nothing’](Israeli%20COVID%20vaccine%20safety%20data%20‘worth%20nothing’)
+2）[https://twitter.com/MatanHolzer/status/1457427294591590406?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1457427300165771267%7Ctwgr%5E%7Ctwcon%5Es2\_&ref\_url=https%3A%2F%2Famericasfrontlinedoctors.org%2F2%2Ffrontlinenews%2Fanalysis-israeli-covid-vaccine-safety-data-worth-nothing%2F](https://twitter.com/MatanHolzer/status/1457427294591590406?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1457427300165771267%7Ctwgr%5E%7Ctwcon%5Es2_&amp;ref_url=https%3A%2F%2Famericasfrontlinedoctors.org%2F2%2Ffrontlinenews%2Fanalysis-israeli-covid-vaccine-safety-data-worth-nothing%2F)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：文特
+编辑：Irene木木
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

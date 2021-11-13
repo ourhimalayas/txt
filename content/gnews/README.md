@@ -15,53 +15,53 @@
 
 ---
 
-### [第五巡回法院维持“中止拜登疫苗强制令”的裁决](/content/gnews/1/README.md)
- ` HimalayaRussia`
-
-### [郭先生联合正义力量 西班牙秘密营救马云](/content/gnews/2/README.md)
+### [喜币发行前后一错酿成千古恨](/content/gnews/1/README.md)
  ` 纽约香草山MOS03`
 
-### [11/13/21 香港快讯 《经济学人》驻港记者工作签证续签被拒 总编辑：呼吁港府保持对外媒开放](/content/gnews/3/README.md)
+### [由于电力短缺，中国工厂通胀达到26年来最高水平](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [第五巡回法院维持“中止拜登疫苗强制令”的裁决](/content/gnews/3/README.md)
+ ` HimalayaRussia`
+
+### [郭先生联合正义力量 西班牙秘密营救马云](/content/gnews/4/README.md)
+ ` 纽约香草山MOS03`
+
+### [11/13/21 香港快讯 《经济学人》驻港记者工作签证续签被拒 总编辑：呼吁港府保持对外媒开放](/content/gnews/5/README.md)
  ` 英喜-粵語組`
 
-### [挪威海事以及红海演习](/content/gnews/4/README.md)
+### [挪威海事以及红海演习](/content/gnews/6/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [美国间谍在中共国不再得势](/content/gnews/5/README.md)
+### [美国间谍在中共国不再得势](/content/gnews/7/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [梵蒂冈将自己出卖给中共](/content/gnews/6/README.md)
+### [梵蒂冈将自己出卖给中共](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加州一联合学区宣布 抵制中共病毒疫苗强制令](/content/gnews/7/README.md)
+### [加州一联合学区宣布 抵制中共病毒疫苗强制令](/content/gnews/9/README.md)
  ` GTV新闻访谈`
 
-### [以色列科学家怒斥疫苗不良事件数据造假](/content/gnews/8/README.md)
+### [以色列科学家怒斥疫苗不良事件数据造假](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [宾州卫生局拒绝提供完整的中共病毒死亡数据](/content/gnews/9/README.md)
+### [宾州卫生局拒绝提供完整的中共病毒死亡数据](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [农业成本飞涨，消费者面临收成和价格上涨的风险](/content/gnews/10/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [中共国近九成银行股跌至白菜价](/content/gnews/11/README.md)
+### [中共国近九成银行股跌至白菜价](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [中共国昔日“光棍节”网络购物狂欢，在政府打压下变得悄无声息](/content/gnews/12/README.md)
+### [中共国昔日“光棍节”网络购物狂欢，在政府打压下变得悄无声息](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [台湾叫停对12-17岁年龄组施打第二针辉瑞疫苗](/content/gnews/13/README.md)
+### [台湾叫停对12-17岁年龄组施打第二针辉瑞疫苗](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [美十州医护人员起诉新冠疫苗强制令](/content/gnews/14/README.md)
+### [美十州医护人员起诉新冠疫苗强制令](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [接种莫德纳疫苗后、4人因心肌炎死亡](/content/gnews/15/README.md)
+### [接种莫德纳疫苗后、4人因心肌炎死亡](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [荷兰启动为期三周的部分封锁](/content/gnews/16/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
 
 ### [GTV新闻访谈简报|2021年11月13日早](/content/gnews/17/README.md)
  ` 纽约香草山MOS01`
