@@ -2,74 +2,26 @@
 ---
 
 
-## 喜联储对中共最大的威胁是什么
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660673/)
+## 参议员罗恩·约翰逊再次遭受YouTube言论打压
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1660690/)
 
-**郭文贵
-Miles Guo**
+#### 撰稿：彩虹       
 
-我说让你涨就涨
-You would jump if I said to let you (stock) jump
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-252.png)图片来源：News8000
+11月12日，《国会山报》发文，指参议员罗恩·约翰逊（Ron Johnson）由于发布中共病毒疫苗有害的言论而遭受YouTube（油管）暂停使用账户惩罚措施打压。
 
-我说让你降就降
-and you would drop if I said to drop
+在上传到YouTube的视频中，约翰逊说：“今天的最新（死亡）数字是17619，这短短10个月内的死亡人数是之前死亡总数的225倍，与流感疫苗（造成的死亡）相比，这些（中共病毒）疫苗的伤害是真实的。”
 
-说到这儿的时候
-When talking about this,
+约翰逊引用的是疫苗不良反应报告系统（VAERS）的数字，但有文章狡辩称美国疾病控制和预防中心（CDC）警告说这些数字不一定准确。
 
-你知道我们喜联储对共产党最大的威胁是什么
-Do you know what is the biggest threat from our Himalaya Federal Reserve to the Chinese Communist Party (CCP)?
+对此，约翰逊在一份声明中说：“大科技公司再次对披露真相进行惩罚，为什么他们不让疫苗受害者讲述他们的故事？不让医学专家给出第二种意见？为什么我们不能讨论强制疫苗接种的有害影响？显然，拜登政府和联邦卫生机构绝不允许受到质疑，这将会导致多少生命被如此的摧毁？”
 
-还真不是你想象的
-It’s really not what you imagined
+根据报道，在今年6月份，约翰逊发布了一则视频，介绍中共病毒（COVID-19）的替代疗法，并抨击YouTube的审查制度，对此，YouTube平台当时取消了约翰逊的上传权限。
 
-它的钱能出来 它害怕
-They (the CCP) should be feared because they could lose money
+**新闻来源**
 
-我给你控制就完了嘛
-All they (the CCP) need to do is control Himalaya Federal Reserve. That’s it
-
-它相信自己能控制得了
-They (the CCP) believes they can control it (Himalaya Federal Reserve)
-
-你出不去
-The money can’t go anywhere
-
-对它最大的打击是我们在外边的权力
-The biggest threat to them is our authority and power overseas
-
-就是你不可能渗透到喜联储（让他）成为你代言人
-and the CCP cannot influence the Himalaya Federal Reserve making it become their spokesperson
-
-帮助你收集西方的金融技术和跟你一起作恶
-helping them collect western financial technology, and to cause trouble with them
-
-是构造了这一个所谓西方的数字货币时代到来的话语权
-It constitutes the right to speak in this so-called Western digital currency era
-
-因为我们，它做不到
-They cannot do it because of us
-
-这才是它最大的担心
-This is their biggest worry
-
-Date: 11/09/2021
-原视频标题: 喜联储对中共最大的威胁是什么
-What is the biggest threat to the CCP from the Himalaya Federal Reserve?
-原视频日期：2021/11/07
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1458020644696649728?s=24](https://twitter.com/se1y7cblljselva/status/1458020644696649728?s=24)
-任务编号：KC245（2823）
-视频时间段 : 0:00-0:54
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 小战蚁
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[YouTube temporarily suspends Ron Johnson’s channel over COVID-19 misinformation](https://thehill.com/policy/technology/581360-youtube-temporarily-suspends-johnsons-channel-over-covid-19-misinformation)
 
  
 

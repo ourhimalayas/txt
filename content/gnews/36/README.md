@@ -2,27 +2,36 @@
 ---
 
 
-## 马云错失解救机会 已返回中共国
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1660631/)
+## 迈阿密向居民发放虚拟币收益
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1660633/)
 
-作者： 波士顿五月花农场 葛朗台太太
+作者： 英国喜庄园 I770775
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-郭文贵先生在11月12日的直播中透露，马云在逗留西班牙期间一直居住于郭先生朋友的家中。据相关人员反馈，马云当时被全天监控，毫无自由可言。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2021.11.13AM-PICTURES-1-12图片备用.002.jpeg)
-郭先生解释，为了在船上营救马云，新中国联邦卧底了两名船员，可协助马云乘坐军舰逃离西班牙，再转乘美军潜艇直奔美国。但郭先生提到，由于马云的28个家人已全部被中共绑架、威胁，导致马云无法下定决心、接受营救。
+11月11日，美国迈阿密市市长苏亚雷斯宣布，该市将直接向居民发放比特币收益作为股息红利，其收益来自迈阿密城市加密货币 MiamiCoin 的抵押。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2021.11.13AM-PICTURES-1-12图片备用.004.jpeg)
+资料显示，迈阿密城市加密货币 MiamiCoin 于今年年初推出。在过去三个月中，该加密货币为迈阿密赚取了超过 两千一百万美元的收益，相当于迈阿密每年税收总额的五分之一。
 
-目前，马云已被送至香港，随后回到中共国。
+苏亚雷斯补充，从长远来看，加密货币的使用将是革命性的。该市将与各种加密货币交易所合作，允许当地居民注册并验证加密货币交易系统，使得居民可以通过数字钱包进行交易。
 
-参考链接：[2021年11月12日 文贵大直播](https://gtv.org/video/id=618e6c5fe7e770379233c262)
+对此，郭先生在直播中强调，虚拟货币是未来经济发展的趋势，新的经济秩序、社会秩序以及国际秩序也将因此重建。
+
+参考链接：
+
+1. [美国迈阿密市长宣布将向市民发放比特币收益](https://www.chainnews.com/articles/058903220202.htm)
+2. [Miami Mayor: Residents Will Get Digital Wallets For ‘Bitcoin Dividend’](https://www.forbes.com/sites/lisakim/2021/11/11/miami-mayor-residents-will-get-digital-wallets-for-bitcoin-dividend/?sh=757a7f5350c8)
+3. [Crypto tax: ‘MiamiCoin’ has made the city $7 million so far, a potential game-changer for revenue collection](https://www.washingtonpost.com/technology/2021/09/30/crypto-miamicoin/)
+4. [MiamiCoin – CityCoins](https://www.citycoins.co/miamicoin)
+5. [MiamiCoin to USD Chart](https://coinmarketcap.com/currencies/miamicoin/)
+
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-总编：Ivy001
-编辑：Irene木木
+总编：Irene木木
+编辑：Kathy文艺
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**

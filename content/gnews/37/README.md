@@ -2,31 +2,34 @@
 ---
 
 
-## 爆料革命面临着历史上最大的机遇
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1660630/)
+## 班农先生被控藐视国会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1660632/)
 
-作者： 英国喜庄园 I770775
+作者： 纽约香草山教育部 Irene木木
 
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
 
-在11月12日的大直播中，郭文贵先生向战友们解释，爆料革命正面临着人类历史上最大的机遇：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2021.11.13AM-PICTURES-1-12图片备用.001.jpeg)
-首先，是千年不遇的金融机遇。由于虚拟货币时代的到来，世界产生了新的金融系统，喜币在这样的时机下，让战友走在人类金融历史的最前沿；
+11月12日，史蒂夫-班农先生，被联邦大陪审团以两项蔑视国会的罪名起诉。消息称，众议院特别委员会曾为1月6日美国国会大厦的群体性事件向班农先生发出传票，要求他出庭作证并提供相关文件，但班农先生的律师团队以 “作证和文件内容涉及川普总统行政特权保护范围” 为由，拒绝作证并提供文件，并质疑该特别委员会的合法性。
 
-其次，因为共产党制造的生化病毒及疫苗灾难，将导致人类政治形态和信仰的重建，而爆料革命战友会成为世界上唯一的“无苗族” 。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2021.11.13AM-PICTURES-1-12图片备用.003.jpeg)
 
-最重要的是，爆料革命战友是全人类唯一敢于与世界上最邪恶的组织对抗的群体 ，是世界上最受尊重的人类群体。
+据悉，该诉讼系司法部检察长办公室响应众议院特别委员会的诉求所发起。10月下旬，民主党掌控的众议院，以229赞成、202票反对通过这一藐视国会指控的决议，议员基本上是按照所属党派立场进行投票。
 
-郭先生提醒，爆料革命正在引领世界的走向，战友们要珍惜机会，抓住机遇。
+据司法部12日的新闻显示，这项起诉书只是一项指控，并不代表罪名成立。
 
-参考链接：[2021年11月12日 文贵大直播：2）新国际大秩序，全世界消灭共产主义的时机中，如何智慧理财投资](https://gtv.org/video/id=618e6c5fe7e770379233c262)
+参考链接：
+
+1. [Stephen K. Bannon Indicted for Contempt of Congress](https://www.justice.gov/opa/pr/stephen-k-bannon-indicted-contempt-congress)
+2. [Bannon ‘not required to respond’ to subpoena in Jan. 6 probe, lawyer says](https://nypost.com/2021/10/14/bannon-not-required-to-respond-to-subpoena-in-jan-6-probe-lawyer/)
+3. [Steve Bannon charged with contempt of Congress](https://www.bbc.com/news/world-us-canada-59270291)
+4. [U.S. House Votes to Hold Steve Bannon in Contempt of Congress, 229-202](https://www.c-span.org/video/?c4983054/us-house-votes-hold-steve-bannon-contempt-congress-229-202)
+
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-总编：Irene木木
-编辑：Kathy文艺
+编辑/总编：Zion文恩
 校正/发稿：我不在这里
 
 **更多资讯，更多关注**

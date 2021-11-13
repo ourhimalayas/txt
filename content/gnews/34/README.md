@@ -2,46 +2,34 @@
 ---
 
 
-## 迈阿密向居民发放虚拟币收益
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1660633/)
+## 电影院连锁ACM正式接受比特币等虚拟货币支付
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1660675/)
 
-作者： 英国喜庄园 I770775
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/44444444444.png)图片来源：BTC Manager
+**翻译：Sara9
+编辑：MSGZ**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据市场观察12日报道， 经过一段时间的大肆宣传，世界最大电影院连锁ACM的CEO在推特上正式发布，将接受比特币等虚拟货币支付。
 
+AMC的CEO 埃德蒙·艾荣（Adam Aron）周四晚些时候在推特上说：“现在有许多新的方法可以在AMC在线支付。 我们现在自豪地接受比特币、以太坊、比特币现金、莱特币，还有苹果支付、谷歌支付和贝宝（Paypal）。令人难以置信的是，它们已经占到我们在线交易总额的14%，下一个是狗狗币（Dogecoin）”。
 
+AMC是一支受散户追捧的股票。去年8月，AMC在其第二季度财报中宣布，今年年底前将接受比特币的在线购票和优惠券。
 
-11月11日，美国迈阿密市市长苏亚雷斯宣布，该市将直接向居民发放比特币收益作为股息红利，其收益来自迈阿密城市加密货币 MiamiCoin 的抵押。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2021.11.13AM-PICTURES-1-12图片备用.004.jpeg)
-资料显示，迈阿密城市加密货币 MiamiCoin 于今年年初推出。在过去三个月中，该加密货币为迈阿密赚取了超过 两千一百万美元的收益，相当于迈阿密每年税收总额的五分之一。
+在周三的一条推文中，他宣布扩大这些加密货币的范围。埃德蒙·艾荣曾在8月表示，将接受苹果支付、谷歌支付，和PayPal。
 
-苏亚雷斯补充，从长远来看，加密货币的使用将是革命性的。该市将与各种加密货币交易所合作，允许当地居民注册并验证加密货币交易系统，使得居民可以通过数字钱包进行交易。
+AMC股价在盘前交易中下滑0.7%，而比特币则下跌约2%，因为加密货币全面走弱，此前由于一些分析师和投资者提出通胀上升支持加密货币价格上涨的观点，AMC股价本周飙升。
 
-对此，郭先生在直播中强调，虚拟货币是未来经济发展的趋势，新的经济秩序、社会秩序以及国际秩序也将因此重建。
+原文链接：[marketwatch.com](https://www.marketwatch.com/story/amc-officially-begins-accepting-bitcoin-and-other-cryptocurrencies-says-ceo-on-twitter-11636715493)
 
-参考链接：
+*发布：热锅小蚂蚁*
 
-1. [美国迈阿密市长宣布将向市民发放比特币收益](https://www.chainnews.com/articles/058903220202.htm)
-2. [Miami Mayor: Residents Will Get Digital Wallets For ‘Bitcoin Dividend’](https://www.forbes.com/sites/lisakim/2021/11/11/miami-mayor-residents-will-get-digital-wallets-for-bitcoin-dividend/?sh=757a7f5350c8)
-3. [Crypto tax: ‘MiamiCoin’ has made the city $7 million so far, a potential game-changer for revenue collection](https://www.washingtonpost.com/technology/2021/09/30/crypto-miamicoin/)
-4. [MiamiCoin – CityCoins](https://www.citycoins.co/miamicoin)
-5. [MiamiCoin to USD Chart](https://coinmarketcap.com/currencies/miamicoin/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
-
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

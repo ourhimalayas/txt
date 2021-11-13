@@ -2,134 +2,43 @@
 ---
 
 
-## 喜联储的所有权是新中国联邦人的财产
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660694/)
+## 抗议大流行法案与强制疫苗，周六墨尔本市民大规模游行
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1660730/)
 
-**郭文贵
-Miles Guo**
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-喜币和喜联储所有的未来
-The future of HCoin and Himalaya Reserve
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/5823-12.jpg)图片来源：Herald Sun
 
-它的拥有权是新中国联邦人千秋万代的财产
-and its ownership will be the property of the New Federal State of China for thousands of generations
 
-谁加入新中国联邦现在，谁都有资格分
-Whoever joins the New Federal State of China is now eligible for a share
+#### 翻译：Sara9
+编辑：文泓
 
-一定会有的，我承诺
-You will have the shares, I promise
+周六，数千名示威者聚集在墨尔本中心城区，抗议强制疫苗和维多利亚州拟通过的新大流行病法律。自从上月首席卫生官对集会取消限制后，周末定期集会抗议的人群正在稳步增长。
 
-只是多少咱要根据法律，根据未来的比例来分
-Its just when comes to how many, we have to distribute it according to the law and based on the future ratio
+前自由党议员、澳大利亚联合党领袖克雷格·凯利预计是本次抗议活动中的演说者之一。凯利先生曾因其（在社交媒体上）围绕新冠病毒和疫苗的观点而受到主流媒体告诫。
 
-然后喜币真正的价格，就是刚才说的这几个条件成熟后
-它是真正的价格
-Then, HCoin reflecting its real price will be after those couple of conditions mentioned earlier mature
+当演讲者高呼：“解雇丹·安德鲁斯（州长）”时，抗议人群保持了和平。有记者也听到人群中有人喊出了对安德鲁斯威胁的口号，一名男子游行时扛着一个临时的绞架，上面挂着三个绞索。
 
-到那个时候交易量就会放开了
-By that time, its trading volume will expand
+周六早上在开始游行之前，一位发言者对人群说：“我们在这为自己站起来，这可能是我们最后的机会。所以让我们清晰、大声地发出我们的声音。”
 
-现在交易量还没有那么大，没人卖关键是
-The current trading volume is not so large, but the key point is that no one is selling it right now
+各行各业都有人参加游行。还有带孩子的家庭，也有老人和小孩，他们从州立图书馆穿过城市，涌向斯旺斯顿街，并在前往议会大厦的路上堵住了有轨电车。
 
-到那时候，交易量什么时候会放开呢
-When that point is reached, the trading volume will be active
+在今天的抗议活动之前，上周六已有超过3000人在中央商务区的大街上游行，要求州长安德鲁斯辞职。
 
-战友们，那时候就是你的期望值达到的时候
-Comrades, that will be the time that your expectations are met
+安德鲁斯力推新的大流行病法律将取代12月15日到期的紧急状态权力，赋予州长和卫生部长宣布大流行病和发布公共卫生命令的权力并削减首席卫生官的作用。
 
-是这个0000的时候
-which is when you see the 0 0 0 0
+2021年公共卫生和福利修正案（大流行病管理）法案上个月在下议院获得通过，政府现在希望它能在下周的上议院获得三名交叉议员的支持通过。
 
-你觉得我卖了，我不会太后悔
-and you won’t regret after selling
+原文链接：[Melbourne protests: Thousands rally in the CBD to denounce new pandemic laws, vaccine mandate (theage.com.au)](https://www.theage.com.au/national/victoria/thousands-take-to-melbourne-s-cbd-to-protest-new-pandemic-laws-vaccine-mandate-20211113-p598lu.html)
 
-你像三天前谁卖的，1块钱2块钱那个（卖单）
-Like that individual who sold his HCoin for $1 or $2 a share three days ago
+**发布：文泓**
 
-那个唐平（提醒的）是很对的，我很感激
-The reminder from Tang Ping is very right, I am grateful
-
-他上来赶快套了28万美元跑了那个
-That individual who came in quickly cashed out $280,000
-
-是吧？战友们
-right? Comrades,
-
-他会后悔一辈子
-He will regret it for the rest of his life
-
-终生不可能再买回来，永远不会了
-He cannot buy them back (with that price) again, never
-
-我希望战友，你等着自己别后悔的时候
-I hope that comrades can wait until the time that you will not regret it after selling it
-
-就是最起码你卖出去，再涨几倍，我不后悔
-At the very least, the price of HCoin jumps a couple of times after I sold them, I don’t regret it.
-
-因为我觉得涨了这么多倍了，是吧？
-After all, it’s gone up so many folds, hasn’t it?
-
-这几个事（发生）之后
-After these few things (happen)
-
-战友们会有一些人让出个千分之一，万分之一
-there are some people among our comrades who would sell a thousandth or a ten-thousandth of their coins in the future
-
-然后就获得今天让出你100%（喜币）的财富的时候
-which they could get in return 100% of the coins they own now
-
-交易量会咔咔就起来
-The trading volume will skyrocket
-
-这时候就到了明年了，明年有新的十亿币出来
-That moment would be next year when another one billion new HCoins come out
-
-大概二十亿币的时候，这个交易量才能活跃起来
-It takes about two billion coins for this trading volume to skyrocket
-
-没有人卖，谁也不卖现在
-No one is selling it now
-
-谁一说卖就跟你急，嗷嗷叫唤
-You ask him to sell (the HCoins)? he will be angry with you, screaming
-
-你看国内的战友，我说你上市场上卖
-There was a domestic comrade, I said they could sell it on the market
-
-他要捐十万（喜币），我说你卖去吧
-Because they wanted to donate 100,000 Hcoins, I told them they could sell it
-
-七哥你不能说，我捐可以，我不要卖，你别这么说我
-“Miles, you cannot say that, I can donate but I do not want to sell”
-
-嗷嗷叫，我说不卖不卖不卖
-(He was not happy about that) screaming. I said, “alright, you are not selling it”
-
-是吧，你可以捐也可以不卖
-Right, you can do whatever you want
-
-* * *
-
-Date: 11/07/2021
-原视频标题: 喜联储的所有权是新中国联邦人的财产
-The ownership of the Himalaya Reserve is the property of the New Federal State of China
-原视频日期：2021/11/03
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1456639452349014017?s=24](https://twitter.com/se1y7cblljselva/status/1456639452349014017?s=24)
-任务编号：2788
-视频时间段 : 0:00-1:54
-英听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校: 洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,12 +2,14 @@
 ---
 
 
-## 中共病毒蛋白伤害（III）：病毒刺突减少DNA修复酶的mRNA转录
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1660921/)
+## 歌曲：H coin to the moon (MV)
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1660949/)
 
-11/04/2021 不论来自病毒还是疫苗的中共病毒蛋白都可能减少DNA修复酶的mRNA基因转录；没有DNA修复，正在分裂或修复的细胞可能变成癌细胞。
+制作：蚂蚁兄弟
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
 
  
 

@@ -2,44 +2,24 @@
 ---
 
 
-## 新西兰要求学校发现未接种疫苗的员工上班时报警
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1660448/)
+## 美国公司和投资者持续投资中共国半导体行业
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1660611/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿：彩虹
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/2021-05-25-maori-police.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-3-3.jpg)图片来源：Techstartup
+11月12日，《新闻极限》（Newsmax）引述《华尔街日报》报道，虽然拜登政府对国家安全有担忧，但众多美国公司及其在中共国的附属公司仍然继续投资于中共国的半导体行业。
 
+今年7月份，现任白宫国家安全顾问杰克·苏利文（Jake Sullivan）表示，拜登政府正在“研究美国对外投资流动的影响，这些投资可能规避了出口管制的精神，或以其他方式提高我们竞争对手的技术能力，从而损害我们的国家安全”。
 
+但是，尽管如此，美国营利性智库荣鼎咨询(Rhodium Group)研究公司发现，在2017年到2020年的三年时间里，超过50笔涉及到中共国半导体行业的投资交易，其中包括英特尔公司（Intel），它投资了中共国公司概伦电子（Primarius Technologies Co），其他投资者包括硅谷风险投资公司光速创投（Lightspeed Venture Partners）、红杉资本（Sequoia Capital）、经纬创投（Matrix Partners）和红点投资（Redpoint Ventures），从去年年初以来，这些公司对中共国的芯片产业又进行了60多项投资。
 
-图片来源：theworld.org
+《华尔街日报》指出，尽管这些公司在大多数情况下没有披露投资金额，但研究表明，中共国的半导体初创企业可能已经筹集了几十亿美元。
 
+**新闻来源**
 
-#### 编译：小红帽
-
-新西兰当局告诉学校，如果未接种中共病毒（COVID-19）疫苗的员工上班，请致电警察。
-
-《澳大利亚邮报》报道说：“周四在（新西兰）教育部公报上公布的建议告诉学校领导，如果他们或任何教育工作者在周一上班时没有接种中共病毒疫苗，他们将触犯法律”。
-
-任何在11月15日之前没有接种中共病毒疫苗的工作人员，如果试图进入校园，将被处以罚款，这是该国“不打针，不工作 ”政策的一部分。
-
-新西兰教育部建议：“如果工作人员在这一日期之后出现在工作场所，我们鼓励学校领导以处理不适当的人出现在现场的方式来处理”。
-
-“如果你觉得你的安全、学生或其他工作人员的安全受到威胁，你可以考虑联系警方”。
-
-正如我们之前强调的那样，新西兰已经实施了发达国家中最残酷的封锁之一。在某种情况下，仅仅在发生一起中共病毒病例后，就封锁了该国的整个地区。
-
-与此同时，在新西兰，因被枪杀而死亡的人却被算作官方的中共病毒死亡人数。
-
-**参考新闻：**[New Zealand Tells Schools to Phone the Police if Unvaccinated Staff Show Up – Summit News](https://summit.news/2021/11/12/new-zealand-tells-schools-to-phone-the-police-if-unvaccinated-staff-show-up/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[US Firms Investing in Chinese Chip Makers Despite Security Concerns](https://www.newsmax.com/newsfront/us-firms-investment-china-semiconductors/2021/11/12/id/1044445/)
 
  
 
