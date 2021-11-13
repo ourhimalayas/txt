@@ -2,52 +2,20 @@
 ---
 
 
-## 中共国昔日“光棍节”网络购物狂欢，在政府打压下变得悄无声息
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661326/)
+## 农业成本飞涨，消费者面临收成和价格上涨的风险
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1661328/)
 
-作者：纽约香草山佛教部 – 文一
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11133.jpg)图片来自Leica Geosystems
+保护和代表意大利农业企业的组织在一份特定的新闻稿中说：“价格上涨和收成面临风险。由于农业食品部门的成本较高，以及能源产品的价格再次开始上涨，农业企业的生产成本从饲料到肥料有完全失控的危险。 我们已经记录了前所未有的 100% 的增长百分比“。
 
+目前的情况也可能对下一次收获的规模产生影响。在意大利和欧洲，农民正在评估推迟播种和调整综合作物轮作，为此，关键的市场情况会导致成本的增加。例如，养猪业就是这种情况，这也是欧洲对中共国市场出口萎缩的原因，水果和蔬菜部门是另一个可能特别受到成本增加影响的一个领域。
 
+农民和牧场主面临的危机有可能蔓延到农业食品链的所有组成部分。消费者可能很快就会见证水果和蔬菜价格的上涨。欧盟农业理事会定于11月15日召开，欧洲农业市场形势和前景将提上议事日程，这是了解欧洲将如何抑制未来几个月价格可能会暴涨的决定性一步。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+原文链接：[https://www.agrifoodtoday.it/attualita/confagricoltura-allarme-prezzi.html#\_ga=2.236280386.2132876092.1636792777-145009575.1615972944](https://www.agrifoodtoday.it/attualita/confagricoltura-allarme-prezzi.html#_ga=2.236280386.2132876092.1636792777-145009575.1615972944)
 
-
-
-NBC援引美联社报道，11月11日，中共国昔日全球瞩目的“双11”光棍节，网络购物盛况不再，“低碳低调”收场。
-
-各大电商平台今年“双11”变得异常低调。电商巨头阿里巴巴一改过去各路明星悉数捧场，销售狂欢夜等做法，今年只做在线直播。并表示响应政府号召，专注于可持续发展和支持慈善机构。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-43.jpg)
-往日其引以为傲和重点关注的最终销售数额，阿里巴巴发言人拒绝透露该公司是否会公布该数据。据悉，阿里巴巴的股价近一年来下跌已过半。
-
-中共政府加强对科技行业的监管和打压，加上部分地区疫情爆发，材料能源短缺以及物流的阻塞，各零售业供需均呈疲软之态。
-
-参考链接：
-[China’s Singles’ Day online shopping fest muted amid tech crackdown](https://www.nbcnews.com/news/world/china-s-singles-day-online-shopping-fest-muted-amid-tech-n1283706)
-[监管重压下，阿里低调迎接“双11”](https://cn.nytimes.com/technology/20211110/china-alibaba-singles-day/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：Irene木木
-编辑：Kathy文艺
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

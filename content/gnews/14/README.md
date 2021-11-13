@@ -2,30 +2,18 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月13日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1661268/)
+## 荷兰启动为期三周的部分封锁
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1661315/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11132.jpg)图片来自Times Higher Education 
+11 月 12 日 – 荷兰首相马克·吕特宣布从周六开始实施为期三周的部分封锁。实施的措施包括晚上 8 点关闭酒吧和餐馆，以及在下午 6 点关闭非必需品商店。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-11.png)
-文章仅代表作者本人观点，与Gnews无关
+同时也要求球迷远离体育场，并且扩大了需要显示绿色通行证的范围。吕特强调说：“病毒无处不在，感染人数的上升将使我们再一次受到沉重打击“  。
 
-视频参看：2021.11.13早GTV新闻访谈
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/12/covid-olanda-vara-lockdown-parziale-di-tre-settimane\_61824ee4-f625-4e9d-97ad-77bc49df4ce9.html](https://www.ansa.it/sito/notizie/topnews/2021/11/12/covid-olanda-vara-lockdown-parziale-di-tre-settimane_61824ee4-f625-4e9d-97ad-77bc49df4ce9.html)
 
-[https://gtv.org/broadcast/watch/618fbd76e7e7703792346272](https://gtv.org/broadcast/watch/618fbd76e7e7703792346272)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

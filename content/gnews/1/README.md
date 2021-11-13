@@ -2,19 +2,43 @@
 ---
 
 
-## 挪威海事以及红海演习
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1661376/)
+## 郭先生联合正义力量 西班牙秘密营救马云
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1661465/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11135.png)图片来自RFI
-位于挪威北部海岸的一段传感器和电缆消失不见了，它们是被用来监视渔船的交通，以及潜艇的可能通过。几个月来的猜疑现在得到确认，这引起人们对俄罗斯的关注，不排除是俄罗斯潜水部队先破坏了网络，然后又拿走了部分组件。从进行的检查的情况来看，偷盗者需要使用相当多的手段来进行这个操作。
+作者：纽约香草山健身部 – 文鹰
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据GTV文贵大直播11.12消息，有战友提到马云西班牙之行时，文贵先生曝光已发生的一项绝密事件。根据情报掌握马云一切行踪活动后，在西班牙当地实施营救“中国企业家马云”行动。
 
-以色列首次与阿联酋和巴林海军一起进行演习。和他们在一起的还有美国人。这个演习发生在红海，这说明耶路撒冷与海湾君主国的关系日益密切。同时相关国家都担心正在发生危机的水道（苏丹、非洲之角、也门）的安全，以及常规战争和破坏活动的危险。并且值得一提的是这几个国家都是伊朗的竞争对手，伊朗通过支持也门什叶派胡蒂游击队而出现在该地区。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/0-3.jpeg)
 
-原文链接：[https://www.corriere.it/america-cina/2021/11/12/clima-covid-potere-nove-storie-moderne-511f5bf6-4398-11ec-a435-e4aaec2a817d.shtml](https://www.corriere.it/america-cina/2021/11/12/clima-covid-potere-nove-storie-moderne-511f5bf6-4398-11ec-a435-e4aaec2a817d.shtml)
+文贵先生基于获得情报研判，相应制定了周密方案。先安排两名人员提前两周上船卧底，想尽办法接触其人，传递逃生纸条。且动用了西方军舰和潜水艇，配合秘密行动随时支援。
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+让人遗憾的是，马云一念定生死！不知是28个家人被控原因，还是迫于中共淫威的严密监视，或许是中共发现马云有跑路的苗头，临时更换贴身监控人员，让他错失了绝佳逃生机会。
 
+马云是参与中共迫害文贵先生的帮凶，也是体制内最佩服文贵先生的商人。文贵先生抛下个人恩怨，不计前嫌，爱憎分明，营救中国企业家。帮助处于险境中的曾经敌人，此大爱情怀及行动的实力，不亚于一枚核弹的冲击波。会震憾体制内还在观望不前，犹豫不决的高官富贾们。
+
+文贵先生给你们指出了路，要么逃出魔窑，要么被中共灭绝。
+
+新中国联邦建立的国防安保体系，会在不同的地域国家，海域岛屿帮助同胞，参与营救你们。来吧，到正义的一边！加入新中国联邦一起行动灭掉CCP！
+
+参考链接：https://gtv.org/video/id=618e6c5fe7e770379233c262
+
+![](https://cdn.discordapp.com/attachments/873743101305430037/904371534930534400/Screen_Shot_2021-10-31_at_10.05.40_PM.png)
+
+**校对/发稿：童谣**
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
