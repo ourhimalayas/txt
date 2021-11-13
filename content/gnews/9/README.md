@@ -2,27 +2,36 @@
 ---
 
 
-## 参议员罗恩·约翰逊再次遭受YouTube言论打压
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1660690/)
+## 日本要闻汇编 11月13日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1660721/)
 
-#### 撰稿：彩虹       
+素材：东京樱花团｜GNEWS组
+![](https://lh4.googleusercontent.com/4XG7ISxmAE_9oBwHlhuvz0_37C9lSbfhvbw3D1SK83gEw7CmL7NLmt1of5CiMGFNSQ2rhgMPhpU6gE03nf91kf_3isbMG2CDWFZLWRiTuJ8TpxGdsQkJvHcQdc9x4O0UyXq_CgoK)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1113/20211113031311804.jpg)
+1、[**日美外长电话会谈确认尖阁适用安保条约**](https://china.kyodonews.net/news/2021/11/35beaf1ea06d.html)
 
-#### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-252.png)图片来源：News8000
-11月12日，《国会山报》发文，指参议员罗恩·约翰逊（Ron Johnson）由于发布中共病毒疫苗有害的言论而遭受YouTube（油管）暂停使用账户惩罚措施打压。
+日本外相林芳正13日与美国国务卿布林肯举行首次电话会谈，就强化日美同盟以及合作实现“自由开放的印度太平洋”达成一致。双方确认了尖阁诸岛（中国称钓鱼岛）是规定美国防卫义务的《日美安全保障条约》第五条的适用对象，就台湾海峡和平与稳定的重要性达成共识。
 
-在上传到YouTube的视频中，约翰逊说：“今天的最新（死亡）数字是17619，这短短10个月内的死亡人数是之前死亡总数的225倍，与流感疫苗（造成的死亡）相比，这些（中共病毒）疫苗的伤害是真实的。”
+2、[**岸田称CPTPP牵制中共霸权 与恐吓不相容**](https://www.aboluowang.com/2021/1113/1671361.html)
 
-约翰逊引用的是疫苗不良反应报告系统（VAERS）的数字，但有文章狡辩称美国疾病控制和预防中心（CDC）警告说这些数字不一定准确。
+日本内阁总理大臣岸田文雄12日出席席亚太经济合作会议（APEC）高峰会时指出，“跨太平洋伙伴全面进步协定”（CPTPP）对企图在经济与贸易方面建立霸权的中国加以牵制，而中国的恐吓作风与这个组织是不相容的。
 
-对此，约翰逊在一份声明中说：“大科技公司再次对披露真相进行惩罚，为什么他们不让疫苗受害者讲述他们的故事？不让医学专家给出第二种意见？为什么我们不能讨论强制疫苗接种的有害影响？显然，拜登政府和联邦卫生机构绝不允许受到质疑，这将会导致多少生命被如此的摧毁？”
+3、[**防卫省就修改国家安保战略召开首次会议**](https://china.kyodonews.net/news/2021/11/ca54e0fcf550.html)
 
-根据报道，在今年6月份，约翰逊发布了一则视频，介绍中共病毒（COVID-19）的替代疗法，并抨击YouTube的审查制度，对此，YouTube平台当时取消了约翰逊的上传权限。
+日本防卫省12日召开了“加速强化防卫力会议”的首次会议，讨论包括拥有在对方疆域内阻止弹道导弹的“对敌基地攻击能力”在内的威慑力应有状态等。防卫省有意将会上的讨论反映到安保战略、《防卫计划大纲》和《中期防卫力整备计划》（中期防）的修改中。
 
-**新闻来源**
+4、[**防卫省称首次对澳军实施“武器等防护”**](https://china.kyodonews.net/news/japan_politics)
 
-[YouTube temporarily suspends Ron Johnson’s channel over COVID-19 misinformation](https://thehill.com/policy/technology/581360-youtube-temporarily-suspends-johnsons-channel-over-covid-19-misinformation)
+日本防卫省12日发布消息称，海上自卫队护卫舰“稻妻”号对澳大利亚海军护卫舰“瓦拉蒙加”号实施了基于安全保障相关法的“武器等防护”。防卫省表示，这是首次对美军以外实施。
 
+日澳两国政府在去年10月的防长会谈中，同意开始就武器等防护展开协调。
+
+5、[**无印良品海外首家超市复合店落户上海**](https://china.kyodonews.net/news/2021/11/5fa647b0cd8a.html)
+
+共同社上海13日消息，经营生活杂货店“无印良品”的日本良品计划公司11日在上海开设了同时设有超市的店铺。这是超市复合店首次落户海外。超市的内部陈设和装潢也由无印良品设计，意在使前来购买生鲜食品和熟食等的顾客可以顺便购入无印良品的商品。
+
+*编辑：东京樱花团 / 文小白
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
