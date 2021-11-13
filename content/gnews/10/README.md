@@ -2,21 +2,36 @@
 ---
 
 
-## 德国医院报警，重症监护人手不足
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1661311/)
+## 美十州医护人员起诉新冠疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661321/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11131.jpg)图片来自telefriuli.it
-在德国， 医院的治疗能力正在下降，重症监护室存在严重的人员配备问题。根据 Rki 最新的每日报告，重症监护病床占用的床位数为 19,562 张，而空闲床位仅为 2,478 张。
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月11日，相关媒体报道，由于拜登政府强制要求所有医护人员接种新冠疫苗，由美国10个州的医护人员组成的团体正在对政府提起诉讼。
 
-巴伐利亚的情况特别严重：根据一项调查显示：巴伐利亚 66 个卫生区中有 36 个可用的工作人员减少了，从事感染追踪工作的人数减少了五分之一。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide10-6.jpeg)
 
-而据法新社记者报道，在荷兰，警方使用水炮驱散海牙的示威者，因为他们投掷石块和烟花来抗议政府宣布的新的部分封锁措施。大约 200 名抗议者在司法部外与防暴警察和骑警发生冲突。
+资料显示，该诉讼中提及，这项新冠疫苗的授权是“违宪且非法的”，政府无视各地区的事实情况，不合理地驳回对劳动力短缺的诉求，严重危及美国乡村的医疗保健利益。
 
-原文链接：[https://www.ansa.it/sito/notizie/mondo/2021/11/12/covid-germania-manca-il-personale-nei-reparti-di-terapia-intensiva\_8f892fc4-9e37-4551-acfc-2fed2e7ec591.html](https://www.ansa.it/sito/notizie/mondo/2021/11/12/covid-germania-manca-il-personale-nei-reparti-di-terapia-intensiva_8f892fc4-9e37-4551-acfc-2fed2e7ec591.html)
+此前，拜登政府的疫苗强制令要求，医院和其他接受医疗保险或医疗补助资金的1亿医护人员，必须全员接种新冠疫苗。但这一要求导致各地区医护人员短缺，甚至威胁到在疫情初期冒着生命危险坚守岗位的数百万医护人员的工作。
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+为此，由密苏里州司法部长和内布拉斯加州总检察长发起，来自阿肯色州、堪萨斯州、爱荷华州、怀俄明州、阿拉斯加州、南达科他州、北达科他州和新罕布什尔州等10个州的总检察长加入了对疫苗强制令的诉讼。
 
+参考链接：[10 states sue Biden administration over COVID vaccine mandate for health care workers](https://www.npr.org/sections/coronavirus-live-updates/2021/11/11/1054959986/states-lawsuit-biden-administration-covid-vaccine-mandate-health-workers)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：文特
+编辑：Kathy文艺
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

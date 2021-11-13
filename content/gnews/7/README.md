@@ -2,36 +2,48 @@
 ---
 
 
-## 美十州医护人员起诉新冠疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661321/)
+## 中共国近九成银行股跌至白菜价
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661327/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月11日，相关媒体报道，由于拜登政府强制要求所有医护人员接种新冠疫苗，由美国10个州的医护人员组成的团体正在对政府提起诉讼。
+作者：英国喜庄园 – I770775
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide10-6.jpeg)
 
-资料显示，该诉讼中提及，这项新冠疫苗的授权是“违宪且非法的”，政府无视各地区的事实情况，不合理地驳回对劳动力短缺的诉求，严重危及美国乡村的医疗保健利益。
 
-此前，拜登政府的疫苗强制令要求，医院和其他接受医疗保险或医疗补助资金的1亿医护人员，必须全员接种新冠疫苗。但这一要求导致各地区医护人员短缺，甚至威胁到在疫情初期冒着生命危险坚守岗位的数百万医护人员的工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-为此，由密苏里州司法部长和内布拉斯加州总检察长发起，来自阿肯色州、堪萨斯州、爱荷华州、怀俄明州、阿拉斯加州、南达科他州、北达科他州和新罕布什尔州等10个州的总检察长加入了对疫苗强制令的诉讼。
 
-参考链接：[10 states sue Biden administration over COVID vaccine mandate for health care workers](https://www.npr.org/sections/coronavirus-live-updates/2021/11/11/1054959986/states-lawsuit-biden-administration-covid-vaccine-mandate-health-workers)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+进入三季度以来，中共国41家A股上市银行中有36家银行的股价跌破净资产值，“破净”比例近九成，高达87.8%。从11月10日的收盘价格来看，中共41家上市银行股票市净率均已降至0.35倍至1.9倍之间。市净率排在倒数前五位的是：民生银行、华夏银行、渝农商行、北京银行、交通银行，市净率分别仅有0.35、0.37、0.43、0.44、0.44。
 
-总编：文特
-编辑：Kathy文艺
-校正/发稿：谐趣园
+有业内人士分析，银行股价的表现与社会信用环境密切相关，在中共房地产相关领域信用风险持续暴露、信用环境大幅度收缩的情况下，银行股价受到抑制是必然的。今后，随着房地产及采矿等行业巨大风险的持续暴露，中共银行业全面崩溃的日子恐将越来越近了。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-59.jpg)
+参考链接：
+[中国银行股估值跌至白菜价 九成银行“破净”](https://www.epochtimes.com/gb/21/11/11/n13370511.htm)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：文徬
+编辑：飞虹
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
