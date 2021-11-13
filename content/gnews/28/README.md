@@ -2,43 +2,48 @@
 ---
 
 
-## 郭先生联合正义力量 西班牙秘密营救马云
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1661465/)
+## 布林肯表示，如果台湾受到攻击，美国及盟友将采取行动
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1661644/)
 
-作者：纽约香草山健身部 – 文鹰
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据GTV文贵大直播11.12消息，有战友提到马云西班牙之行时，文贵先生曝光已发生的一项绝密事件。根据情报掌握马云一切行踪活动后，在西班牙当地实施营救“中国企业家马云”行动。
+**【简评：】***前不久，台湾总统蔡英文接受CNN采访时候表示：“在台湾有少量的美军帮助训练台军，我们与美国广泛的合作，旨在提高我们的国防能力。”并表示“我有信心，如果有必要，美国会帮助保卫台湾，对抗中共国。” 此番讲话是1979年以来台湾领导人首次公开承认美国的驻军。继台湾总统的此番重磅后，中共国指责美国试图 “挑起事端”。然而，在中共擅长的指责之后，国务卿安东尼·布林肯明确表示，如果中国使用武力改变台湾现状，美国及其盟友将“采取行动”。我想，留给中共可以指责的时间真的不多了。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/0-3.jpeg)
+据《路透社》，2021年11月11日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-256-e1636831849620.png)美国国务卿安东尼·布林肯(Antony Blinken)周三表示，如果台湾受到攻击，美国和其他国家将采取具体行动。
+图片来源：法新社
+美国国务卿安东尼·布林肯表示，如果中国使用武力改变台湾现状，美国及其盟友将“采取行动”。
 
-文贵先生基于获得情报研判，相应制定了周密方案。先安排两名人员提前两周上船卧底，想尽办法接触其人，传递逃生纸条。且动用了西方军舰和潜水艇，配合秘密行动随时支援。
+周三，布林肯在《纽约时报》主办的一个论坛上被问及这个有关台湾的问题，但他没有说明具体是哪种武力行动。
 
-让人遗憾的是，马云一念定生死！不知是28个家人被控原因，还是迫于中共淫威的严密监视，或许是中共发现马云有跑路的苗头，临时更换贴身监控人员，让他错失了绝佳逃生机会。
+**当被问及如果中国大陆发动攻击，美国是否会介入保卫这个自治的岛屿时，布林肯重申了政府的一贯申明，即华盛顿的作用是确保台湾有能力进行自卫，正如美国法律所要求的那样。**
 
-马云是参与中共迫害文贵先生的帮凶，也是体制内最佩服文贵先生的商人。文贵先生抛下个人恩怨，不计前嫌，爱憎分明，营救中国企业家。帮助处于险境中的曾经敌人，此大爱情怀及行动的实力，不亚于一枚核弹的冲击波。会震憾体制内还在观望不前，犹豫不决的高官富贾们。
+他说：“与此同时，我认为，公平地说，我们并不是唯一一个决心维护该地区和平与稳定的国家。”
 
-文贵先生给你们指出了路，要么逃出魔窑，要么被中共灭绝。
+“该地区和其他地区的许多国家都认为，任何使用武力破坏现状的单边行动都是对和平与安全的重大威胁，一旦发生这种情况，他们也会采取行动。”
 
-新中国联邦建立的国防安保体系，会在不同的地域国家，海域岛屿帮助同胞，参与营救你们。来吧，到正义的一边！加入新中国联邦一起行动灭掉CCP！
+**上个月，美国总统乔·拜登（Joe Biden）曾表示，如果中国攻击台湾，美国将保护台湾。这一言论引起了轰动。**
 
-参考链接：https://gtv.org/video/id=618e6c5fe7e770379233c262
+这些言论似乎背离了美国长期坚持的“战略模糊”政策，但白宫很快表示，拜登并没有发出改变政策的信号，一些分析人士认为他的言论是失言。
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/904371534930534400/Screen_Shot_2021-10-31_at_10.05.40_PM.png)
+颇具影响力的美国众议院情报委员会（House Intelligence Committee）主席，民主党人亚当·希夫（Adam Schiff）上周敦促拜登政府在他所称的美国保护台湾免受中共国攻击的问题上不要含糊其辞。
 
-**校对/发稿：童谣**
+布林肯的言论是在拜登和中共国领导人习近平计划举行的线上会晤之前发表的。一位了解此事的消息人士称，该会晤最早可能在下周举行。当被问及会晤的时间安排时，布林肯说它“很快就会到来”， 但没有透露更多细节。
 
-**更多资讯，更多关注**
+原文连接：[https://www.scmp.com/news/china/diplomacy/article/3155637/blinken-says-us-and-allies-would-take-action-if-taiwan](https://www.scmp.com/news/china/diplomacy/article/3155637/blinken-says-us-and-allies-would-take-action-if-taiwan)
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+翻译：洛杉矶盘古农场–钢蛋儿
 
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+校对：洛杉矶盘古农场–Mike Li
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+评论：洛杉矶盘古农场–钢蛋儿
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑：洛杉矶盘古农场–心照
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

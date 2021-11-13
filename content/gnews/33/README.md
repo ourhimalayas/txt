@@ -2,29 +2,49 @@
 ---
 
 
-## 有声|布林肯：若中共攻台，美国和盟友将“采取行动”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1661206/)
+## 第五巡回法院维持“中止拜登疫苗强制令”的裁决
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1661547/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-11月10日，美国国务卿布林肯在一个论坛上被问及台湾问题时表示，如果中共使用武力改变台湾现状，美国及其盟友将采取“行动”。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-布林肯重申了美国政府的一贯声明，即华盛顿既要确保台湾有能力进行自卫，同时也决心确保维护该地区的和平与稳定。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/V-3.png)俄罗斯莫斯科喀秋莎农场  女农
+《abc10》11月12日发表文章，题目是“上诉法院支持雇主中止疫苗或测试强制，称之为‘过火（的政策）’”，文章副标题说，周五（11月12日），第五巡回上诉法院做出裁决，暂停执行拜登为大型企业雇主下达的疫苗或测试强制令。【1】
 
-布林肯还说，不只是美国，无论台湾还是其他国家或地区，对于任何使用武力破坏现状的单方面行动，都会采取行动，以保证地区的和平与安全。但布林肯并未透露具体会采取什么行动。
+全文如下：
 
-文字版原文：[布林肯：若中共攻台，美国和盟友将“采取行动”](https://gnews.org/zh-hans/1657988/)
+一家美国上诉法院维持其裁决，暂停乔·拜登对美国大企业雇主的疫苗或测试强制令，第五巡回上诉法院称之为“令人震惊的过火”。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+总部位于新奥尔良的法院上周末发布了暂缓执行这项强制令的法庭令，（拜登政府）要求拥有100名及以上员工的公司确保其员工接种疫苗或每周接受检测，从1月4日开始，违反这项规定的每一次都可能被处以高额罚款。
+
+超过24名共和党州的总检察长、企业、宗教团体和保守派协会发起诉讼，理由是联邦政府无权制定这项规定，部分的原因是因为，中共病毒不是工作场所特有的危险。
+
+拜登政府周一（11月8日）作出回应，用生死攸关的措辞阐述了其对这项任务的主张，司法部和劳工部的律师说，阻止这项强制令生效只会延长中共病毒疫情的时间，并将“每天夺去数十人甚至数百人的生命”。
+
+美国政府还辩称，没有理由停止实施该规定，因为最后一剂疫苗将不需要在12月底之前接种，以满足最后期限。
+
+上周发布的“职业安全与健康管理局”（OSHA，Occupational Safety and Health Administration）规定，以宗教为理由反对接种的工作人员、不与同事或客户进行亲自交流的人以及仅在户外工作的人可以获得豁免。
+
+巡回法院法官库尔特·恩格尔哈特（Kurt Engelhardt）周五（11月12日）写道，这项强制令用“一刀切”的方式涵盖了所有的工作条件，并称其运作程序“几乎没有试图解释所面临的风险之间的明显差异，比如说，没有对一个孤零零上夜班的保安和一个在拥挤的仓库里肩并肩工作的肉类包装工之间的差异做出解释。”
+
+法院还询问，如果该行政令的目的是为了防止“严重危险”，为什么该规则不适用于一家刚好低于门槛的公司，比如有99名工人的公司？
+
+法院表示，这项规定不考虑已经感染了中共病毒的人，他们现在可能具有自然免疫力但没有接种疫苗。
+
+法院裁定，除非另一项法庭令推翻这个中止令，否则“职业安全与健康管理局”不得推进实施或强制执行他们的行政令。
+
+（全文完）
+
+保守人士对此则消息表示了极大的欢呼，新泽西州的共和党议员特里西娅·弗拉纳根（Tricia Flanagan）称，“这是自由的巨大胜利”【2】。目前众多的巡回法院收到来自州总检察长、受害企业的诉讼，很多已经在审理中，第五巡回法院的再次判决结果应该能产生更深远的影响。希望这是推倒疫苗阴谋多米诺骨牌的第一张。
+
+革命尚未成功，战友仍需努力！
+
+有关链接：
+
+【1】[https://www.abc10.com/article/news/health/coronavirus/vaccine/biden-covid-vaccine-mandate-stay-upheld-appeals-court/507-994486fb-05aa-4ce1-b869-2a4b6eafeb5e](https://www.abc10.com/article/news/health/coronavirus/vaccine/biden-covid-vaccine-mandate-stay-upheld-appeals-court/507-994486fb-05aa-4ce1-b869-2a4b6eafeb5e)
+
+【2】[https://twitter.com/NewDayForNJ/status/1459480471327449090](https://twitter.com/NewDayForNJ/status/1459480471327449090)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

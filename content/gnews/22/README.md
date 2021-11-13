@@ -2,47 +2,42 @@
 ---
 
 
-## 布林肯表示，如果台湾受到攻击，美国及盟友将采取行动
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1661644/)
+## 上诉法院再次确认停止拜登疫苗强制令
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1661878/)
 
-**【简评：】***前不久，台湾总统蔡英文接受CNN采访时候表示：“在台湾有少量的美军帮助训练台军，我们与美国广泛的合作，旨在提高我们的国防能力。”并表示“我有信心，如果有必要，美国会帮助保卫台湾，对抗中共国。” 此番讲话是1979年以来台湾领导人首次公开承认美国的驻军。继台湾总统的此番重磅后，中共国指责美国试图 “挑起事端”。然而，在中共擅长的指责之后，国务卿安东尼·布林肯明确表示，如果中国使用武力改变台湾现状，美国及其盟友将“采取行动”。我想，留给中共可以指责的时间真的不多了。*
+翻译：Lulumi
 
-据《路透社》，2021年11月11日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-256-e1636831849620.png)美国国务卿安东尼·布林肯(Antony Blinken)周三表示，如果台湾受到攻击，美国和其他国家将采取具体行动。
-图片来源：法新社
-美国国务卿安东尼·布林肯表示，如果中国使用武力改变台湾现状，美国及其盟友将“采取行动”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/APP-012121-Biden-COVID-CORONA-222-1.png)图片来源：thegatewaypundit.com
 
-周三，布林肯在《纽约时报》主办的一个论坛上被问及这个有关台湾的问题，但他没有说明具体是哪种武力行动。
+9月拜登政府向私营部门挥舞铁拳，规定所有雇员要接受中共病毒疫苗注射或每周测试，否则就会被解雇。
 
-**当被问及如果中国大陆发动攻击，美国是否会介入保卫这个自治的岛屿时，布林肯重申了政府的一贯申明，即华盛顿的作用是确保台湾有能力进行自卫，正如美国法律所要求的那样。**
+除了告诉所有210万联邦雇员接受疫苗注射或面临解雇之外，拜登政权还要求所有拥有100名以上雇员的公司对工人进行测试或证明他们已经接种疫苗。
 
-他说：“与此同时，我认为，公平地说，我们并不是唯一一个决心维护该地区和平与稳定的国家。”
+不遵守拜登政权的中共病毒疫苗强制令的小企业将面临巨额罚款。
 
-“该地区和其他地区的许多国家都认为，任何使用武力破坏现状的单边行动都是对和平与安全的重大威胁，一旦发生这种情况，他们也会采取行动。”
+该强制令本应于2022年1月4日生效。
 
-**上个月，美国总统乔·拜登（Joe Biden）曾表示，如果中国攻击台湾，美国将保护台湾。这一言论引起了轰动。**
+然而，上周一家上诉法院发布了暂停令，暂时停止了乔·拜登对拥有100名或以上雇员的企业的疫苗强制令。
 
-这些言论似乎背离了美国长期坚持的“战略模糊”政策，但白宫很快表示，拜登并没有发出改变政策的信号，一些分析人士认为他的言论是失言。
+美国第五巡回上诉法院的裁决是在几个共和党州检察长对政府提起诉讼后作出的。
 
-颇具影响力的美国众议院情报委员会（House Intelligence Committee）主席，民主党人亚当·希夫（Adam Schiff）上周敦促拜登政府在他所称的美国保护台湾免受中共国攻击的问题上不要含糊其辞。
+拜登政权被指示在周一晚上之前对永久禁令的请求作出回应，以反对该裁决。
 
-布林肯的言论是在拜登和中共国领导人习近平计划举行的线上会晤之前发表的。一位了解此事的消息人士称，该会晤最早可能在下周举行。当被问及会晤的时间安排时，布林肯说它“很快就会到来”， 但没有透露更多细节。
+上周五，美国第五巡回上诉法院维持其决定，停止拜登对拥有100名以上员工的企业的疫苗接种强制令。
 
-原文连接：[https://www.scmp.com/news/china/diplomacy/article/3155637/blinken-says-us-and-allies-would-take-action-if-taiwan](https://www.scmp.com/news/china/diplomacy/article/3155637/blinken-says-us-and-allies-would-take-action-if-taiwan)
+法院说，这项任务“使请愿者面临严重的财务风险，有可能使他们的劳动力（和商业前景）减少”。
 
-翻译：洛杉矶盘古农场–钢蛋儿
+德克萨斯州总检察长肯·帕克斯顿周五庆祝了这一胜利。
 
-校对：洛杉矶盘古农场–Mike Li
+**参考资料：**[thegatewaypundit][JUST IN: Appeals Court Re-Affirms Halt on Biden’s Covid Vaccine Mandate for Private Businesses – Cites ‘Severe’ Risks](https://www.thegatewaypundit.com/2021/11/just-appeals-court-re-affirms-halt-bidens-covid-vaccine-mandate-private-businesses-cites-severe-risks/)
 
-评论：洛杉矶盘古农场–钢蛋儿
+* * *
 
-编辑：洛杉矶盘古农场–心照
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
 
-
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
 
  
 

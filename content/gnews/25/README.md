@@ -2,54 +2,77 @@
 ---
 
 
-## 喜币发行前后一错酿成千古恨
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1661600/)
+## 【诗歌】临冬
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1661770/)
 
-作者：纽约香草山农场健身部-幸福鸟
+**作者：修罗闻道**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-1.jpg)
+[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/ca0f4fe5-0885-4586-a377-08864b5f5b6f.jpg?asset_id=4748bedd-be58-46f1-8d0c-0484c7427b48&amp;img_etag=%2246b44a3c574e50b7e9e9cf279d6d787a%22&amp;size=2560)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/ca0f4fe5-0885-4586-a377-08864b5f5b6f.jpg?asset_id=4748bedd-be58-46f1-8d0c-0484c7427b48&amp;img_etag=%2246b44a3c574e50b7e9e9cf279d6d787a%22&amp;size=1024)
 
+这一年仿佛是残缺的
 
+秋天还没来得及挣扎
 
-在我们的现实生活中，一错酿成千古恨的事例数不胜数。七哥在11月12日的大直播中给我们列举了几个这类的事例，其中三个发生在喜币发行前后的活生生的故事令我们在为那些由于一错而悔恨终生的战友感到惋惜的同时，又需要引以为戒，告诫自己绝不能重蹈覆辙。诚然，真正有信仰，相信上天，相信爆料革命，相信七哥，相信新中国联邦的战友绝不会急功近利，轻易放弃自己手中的投票权！
+就被迅速抹杀
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-84.png)
+从夏热到冬寒
 
-以下就是根据七哥的大直播写的三个故事。
+一瞬间
 
-故事1
+这一世仿佛是梦幻的
 
-一位在日本的战友在11月12日大直播的前一天晚上哭得如丧考妣似的跟七哥说：他投了70万美元，是G-TV投资的老椅子，新增G-TV投资30万美元。后来又买了两张G-club卡。家人都没阻拦他。后来路大脑袋，蛇妖闫反水后，他家人开始出来反对七哥，说七哥不灭共了。老妈，老婆，女儿抱团开始折腾，要求他去退款，退卡。但是，他一直扛着，直到喜币上市的头一天10月31日还硬顶着。可是就在上市的10几个小时以前，他坚持不住了。老婆在楼上上蹿下跳地骂，跟孩子说：“你爸被骗了。彻底地被骗了，全家被骗了，完了，完了！”这个时候，他做了一个愚蠢的决定。他直接找到七哥提出来要把买币的钱全部退回给他。七哥找了一位在日本的朋友立马把钱退还给了他。喜币涨到10美元一个时他家人都还挺得住，现在已超过27美元一个，他家人都崩溃了！这也难怪，至少上千万美元的损失啊！而且这还只是刚刚开始呢！他老妈和老婆都有要中风的迹象。七哥对这位战友说：你怎么哭也不可能再给你了。
+繁荣鼎盛锣鼓喧天
 
-故事2
+转瞬间愁容惨淡
 
-一位在香港的战友，是曾经在香港反送中运动中做过贡献的一位女士。她在3美元时卖出20万个喜币，然后又在7美元时又卖出10万个，将手持的喜币全都卖掉了。在11月12日大直播的前一天晚上闹着哭着跟七哥说：我就这些钱，我把这些币都卖了。我错了，能不能再弄点币回来？七哥说：老天爷也弄不了币，真弄不了。她哭声一片。
+盛世到炼狱
 
-故事3
+一路骗
 
-一位曾经在党内检察院系列，就是审查大连西区法院张鹏民（同音）案的一位重要战友，曾经冒着生命危险说会拿下张鹏民。他有20万喜币，在第三天抛出大部分。在11月12日大直播的前一天晚上也找到七哥，哭得一塌糊涂，说：我干那么大的事，怎么也得再给我弄个20-30万币，我永远不会再卖的。
+他们先将自己欺骗
 
-这几个故事，让我们引以为戒。为了自己、后代以及人类美好的未来，我们一定要不忘初衷，守住我们手中的喜币，捍卫我们手中的投票权，跟随七哥消灭邪恶的CCP！
+再去欺骗
 
-参照链接：
+相信他们的人
 
-[https://gtv.org/video/id=618e6c5fe7e770379233c262](https://gtv.org/video/id=618e6c5fe7e770379233c262)
+周而复始
 
-校对/发稿：飞虹
+他们要欺骗全世界
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-3.jpg)
+可临冬的寒冷
 
-**更多资讯，更多关注**
+不会被欺骗
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+也不会去欺骗
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+整个世界
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+只有冷
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+冷的真实
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+不虚伪
+
+无论你想共产
+
+还是想特色
+
+在寒冬里
+
+只有瑟瑟发抖
+
+等待审判
+[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/c767eaed-2e9d-4cd8-9ef2-5a41e5e4f85a.png?asset_id=e1ac15f4-cf69-4de3-8393-583fbf4c1608&amp;img_etag=%22a1a3e4a1050ad02b89de5004bf3a9559%22&amp;size=2560)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/c767eaed-2e9d-4cd8-9ef2-5a41e5e4f85a.png?asset_id=e1ac15f4-cf69-4de3-8393-583fbf4c1608&amp;img_etag=%22a1a3e4a1050ad02b89de5004bf3a9559%22&amp;size=1024)
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*校对：穆清|审核：文明明| Page：小六月*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+
 
  
 
