@@ -2,29 +2,30 @@
 ---
 
 
-## 有声|德国将定期向印太派遣军舰 应对中共宣示南海主权
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1661241/)
+## 洪都拉斯总统访台，背后中美地缘角力
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1661223/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-11月9日，德国海军中将薛恩巴赫表示，德国派遣军舰到印太地区，是因为对区域自由航行和以规则为基础的国际秩序受到威胁表示关切。在中共国持续强调南海主权之际，德国政府打算未来定期向印太派遣军舰，以维护南海的自由航行。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-14.jpg)
+[图片来源](https://www.dw.com/zh/%E6%B4%AA%E9%83%BD%E6%8B%89%E6%96%AF%E6%80%BB%E7%BB%9F%E8%AE%BF%E5%8F%B0-%E7%9C%9F%E6%9C%8B%E5%8F%8B%E6%82%A3%E9%9A%BE%E8%A7%81%E7%9C%9F%E6%83%85/a-59810741)
 
-薛恩巴赫称，德国巴伐利亚号军舰预计12月穿越南海，向世界展现其拥有自由航行的权利。对于通过南海时有可能会遇到中共国军舰的局面，他认为，通行没有什么问题，如果受到阻碍，他们也会有所准备。该护卫舰日前已经抵达东京，是近20年来第一艘访问日本的德国舰艇。
+11月12日，台湾总统蔡英文在总统府会见洪都拉斯总统叶南德兹（Juan Orlando Hernandez）伉俪访团。
 
-薛恩巴赫说，南中国海是全球共同所有的公海，这片海域属于所有人。所以，如果说到遵守国际世界秩序的话，南中国海不能被任何人占有或宣示主权。
+蔡英文在致辞时表示，这是疫情爆发以来第一个来自拉丁美洲友邦的总统访团，也适逢中华民国与洪都拉斯建交80周年，叶南德兹此时率团来访，意义非凡。
 
-文字版原文：[德国将定期向印太派遣军舰 应对中共宣示南海主权](https://gnews.org/zh-hans/1658005/)
+叶南德兹在台湾总统府表示，在地区的紧张局势中，洪都拉斯要表明与台湾是真正的朋友，朋友在患难中才能见真情。”我们希望无论在我的总统任期内或卸任之后，都能深化这样的友谊和外交关系。”叶南德兹周五率领访问团抵达台北。这是叶南德兹第四度访问台湾。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+洪都拉斯是台湾的15个邦交国之一。该国即将在11月28日举行总统大选。访团成员还包括该国外交部长罗萨雷斯（Lisandro Rosales Banegas）夫妇、总统府秘书长卡多纳（Ricardo Cardona）夫妇、财政部长马塔（Luis mata）夫妇等重要官员共11人。
+
+长期以来，中共依靠”金钱外交”，不断蚕食台湾的邦交国，同时将不断渗透和延伸其影响力。而中共不断争取台湾剩余盟友的做法已使华盛顿心生警惕，美国尤其关注北京在中美洲和加勒比海地区影响力与日俱增的情况。
+
+信息来源：
+
+[洪都拉斯总统访台: “真朋友患难见真情”](https://www.dw.com/zh/%E6%B4%AA%E9%83%BD%E6%8B%89%E6%96%AF%E6%80%BB%E7%BB%9F%E8%AE%BF%E5%8F%B0-%E7%9C%9F%E6%9C%8B%E5%8F%8B%E6%82%A3%E9%9A%BE%E8%A7%81%E7%9C%9F%E6%83%85/a-59810741)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-77.jpg)
 
 
  

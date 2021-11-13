@@ -57,109 +57,109 @@
 ### [荷兰启动为期三周的部分封锁](/content/gnews/14/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [德国医院报警，重症监护人手不足](/content/gnews/15/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [GTV新闻访谈简报|2021年11月13日早](/content/gnews/16/README.md)
+### [GTV新闻访谈简报|2021年11月13日早](/content/gnews/15/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|德国将定期向印太派遣军舰 应对中共宣示南海主权](/content/gnews/17/README.md)
+### [有声|德国将定期向印太派遣军舰 应对中共宣示南海主权](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [洪都拉斯总统访台，背后中美地缘角力](/content/gnews/18/README.md)
+### [洪都拉斯总统访台，背后中美地缘角力](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|大屠杀博物馆确认新疆正在发生反人类罪行](/content/gnews/19/README.md)
+### [有声|大屠杀博物馆确认新疆正在发生反人类罪行](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [有声|布林肯：若中共攻台，美国和盟友将“采取行动”](/content/gnews/20/README.md)
+### [有声|布林肯：若中共攻台，美国和盟友将“采取行动”](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [日本学者引经据典讲述&#8221;经济脱中&#8221;的必要性（之四）](/content/gnews/21/README.md)
+### [有声|习近平六中全会树立个人绝对权威](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [有声|足球运动员心脏病例增多](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [香港新闻自由已死，外籍记者签证遭拒](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|习近平六中全会树立个人绝对权威](/content/gnews/22/README.md)
+### [有声|蓬佩奥国务卿再次强调习会因冬奥会膨胀，拜登政府需要下决心、建立威慑力](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声|足球运动员心脏病例增多](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [香港新闻自由已死，外籍记者签证遭拒](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|蓬佩奥国务卿再次强调习会因冬奥会膨胀，拜登政府需要下决心、建立威慑力](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [2021/11/12 墙内世界](/content/gnews/26/README.md)
+### [2021/11/12 墙内世界](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC每日热点1113](/content/gnews/27/README.md)
+### [DC每日热点1113](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|中共对维吾尔人的跨国镇压急剧扩大](/content/gnews/28/README.md)
- ` MOSREC`
-
-### [G-TV打开金库的第一道大门,别光看股价忘了钥匙的作用](/content/gnews/29/README.md)
+### [G-TV打开金库的第一道大门,别光看股价忘了钥匙的作用](/content/gnews/26/README.md)
  ` NewFOC`
 
-### [视频| 新中国联邦带来金融界虚拟货币的新时代](/content/gnews/30/README.md)
+### [视频| 新中国联邦带来金融界虚拟货币的新时代](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [视频| 新中国联邦招募军队人员](/content/gnews/31/README.md)
+### [视频| 新中国联邦招募军队人员](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [中国多地出生人口下降超一成](/content/gnews/32/README.md)
+### [中国多地出生人口下降超一成](/content/gnews/29/README.md)
  ` 首尔天池农场`
 
-### [美日会商钢铁关税协议 中共经济命脉又断一臂](/content/gnews/33/README.md)
+### [美日会商钢铁关税协议 中共经济命脉又断一臂](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/13/2021国际财经快讯：马斯克抛售特斯拉股票；货币市场因欧央行加息而缓和](/content/gnews/34/README.md)
+### [11/13/2021国际财经快讯：马斯克抛售特斯拉股票；货币市场因欧央行加息而缓和](/content/gnews/31/README.md)
  ` 秘密翻译组金融团队`
 
-### [生命不能承受之重](/content/gnews/35/README.md)
+### [生命不能承受之重](/content/gnews/32/README.md)
  ` 骄子`
 
-### [秘翻在线:中共及暗黑势力下一步要推更毒的口服疫苗?](/content/gnews/36/README.md)
+### [秘翻在线:中共及暗黑势力下一步要推更毒的口服疫苗?](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [接种和未接种中共病毒疫苗的人会携带相似水平的病毒](/content/gnews/37/README.md)
+### [接种和未接种中共病毒疫苗的人会携带相似水平的病毒](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [北京天空被中共病毒疫苗受害者尸体燃烧后的灰尘所覆盖](/content/gnews/38/README.md)
+### [北京天空被中共病毒疫苗受害者尸体燃烧后的灰尘所覆盖](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [习命太硬](/content/gnews/39/README.md)
+### [习命太硬](/content/gnews/36/README.md)
  ` 银河勇气之星`
 
-### [中共国蓝光发展“爆雷”，240多亿到期未还](/content/gnews/40/README.md)
+### [中共国蓝光发展“爆雷”，240多亿到期未还](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共“阳光城”理财爆雷，以房抵债](/content/gnews/41/README.md)
+### [中共“阳光城”理财爆雷，以房抵债](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [法国发现中共病毒新变种，已有24人被感染](/content/gnews/42/README.md)
+### [法国发现中共病毒新变种，已有24人被感染](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中美生死对立以及疫苗灾难将迎来世界金融新秩序的诞生](/content/gnews/43/README.md)
+### [中美生死对立以及疫苗灾难将迎来世界金融新秩序的诞生](/content/gnews/40/README.md)
  ` NewFOC`
 
-### [2021/11/12大卫作战室直播精要](/content/gnews/44/README.md)
+### [2021/11/12大卫作战室直播精要](/content/gnews/41/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共治下高等院校的虚假乱象](/content/gnews/45/README.md)
+### [中共治下高等院校的虚假乱象](/content/gnews/42/README.md)
  ` 墨尔本雅典娜农场`
 
-### [班农先生将会成为全人类的英雄！](/content/gnews/46/README.md)
+### [班农先生将会成为全人类的英雄！](/content/gnews/43/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [应对中共，军事合作再升级！日本首次对澳军实施武装防卫](/content/gnews/47/README.md)
+### [应对中共，军事合作再升级！日本首次对澳军实施武装防卫](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年11月12日文贵先生直播小飞象大雨围城速记](/content/gnews/48/README.md)
+### [2021年11月12日文贵先生直播小飞象大雨围城速记](/content/gnews/45/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [参议院跨党派重启新冠病毒溯源调查](/content/gnews/49/README.md)
+### [参议院跨党派重启新冠病毒溯源调查](/content/gnews/46/README.md)
+ ` GTV新闻访谈`
+
+### [佛州或将因疫苗令退出联邦职业安全与健康管理局](/content/gnews/47/README.md)
+ ` GTV新闻访谈`
+
+### [辉瑞公司在儿童疫苗中添加心脏病药物](/content/gnews/48/README.md)
+ ` GTV新闻访谈`
+
+### [日本防卫省公布 近日与美军两次密切合作](/content/gnews/49/README.md)
  ` GTV新闻访谈`
 
 ### [美拜登总统签署「安全设备法」禁止接受华为中兴等通讯设备的审核申请](/content/gnews/50/README.md)

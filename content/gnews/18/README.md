@@ -2,32 +2,31 @@
 ---
 
 
-## 洪都拉斯总统访台，背后中美地缘角力
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1661223/)
+## 有声|大屠杀博物馆确认新疆正在发生反人类罪行
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1661221/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-14.jpg)
-[图片来源](https://www.dw.com/zh/%E6%B4%AA%E9%83%BD%E6%8B%89%E6%96%AF%E6%80%BB%E7%BB%9F%E8%AE%BF%E5%8F%B0-%E7%9C%9F%E6%9C%8B%E5%8F%8B%E6%82%A3%E9%9A%BE%E8%A7%81%E7%9C%9F%E6%83%85/a-59810741)
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+11月9日，美国大屠杀纪念博物馆发布了一份长达56页的报告，当中指出，中共仍在持续打压新疆维吾尔人，维族人可能面临着种族灭绝的危险。
 
-11月12日，台湾总统蔡英文在总统府会见洪都拉斯总统叶南德兹（Juan Orlando Hernandez）伉俪访团。
+该报告显示，对于中共针对新疆维吾尔人实施的种族灭绝行为，博物馆感到非常担忧。同时，博物馆再次确认，新疆正在发生反人类罪行。
 
-蔡英文在致辞时表示，这是疫情爆发以来第一个来自拉丁美洲友邦的总统访团，也适逢中华民国与洪都拉斯建交80周年，叶南德兹此时率团来访，意义非凡。
+博物馆防止种族灭绝中心主任娜奥米-基科勒表示，中共政府监禁了100万至300万维吾尔人，他们被强制进行绝育、酷刑、性暴力和强迫劳动，其规模和严重程度令人震惊。基科勒强调，中共这种行为对维吾尔族个人、家庭和社区造成了严重的损害，且这些创伤将波及几代维族人。
 
-叶南德兹在台湾总统府表示，在地区的紧张局势中，洪都拉斯要表明与台湾是真正的朋友，朋友在患难中才能见真情。”我们希望无论在我的总统任期内或卸任之后，都能深化这样的友谊和外交关系。”叶南德兹周五率领访问团抵达台北。这是叶南德兹第四度访问台湾。
+为此，基科勒呼吁，维吾尔人正面临着紧迫的处境，世界各国应当一道行动，保护维族人。基科勒补充，目前，中共正在使用新技术迫害维吾尔人，单一的正义力量或将很难与之对抗，因此，这需要全球协调和统一的回应与抗衡。她表示，中共的罪行不应该被允许发生。
 
-洪都拉斯是台湾的15个邦交国之一。该国即将在11月28日举行总统大选。访团成员还包括该国外交部长罗萨雷斯（Lisandro Rosales Banegas）夫妇、总统府秘书长卡多纳（Ricardo Cardona）夫妇、财政部长马塔（Luis mata）夫妇等重要官员共11人。
+文字版原文：[大屠杀博物馆确认新疆正在发生反人类罪行](https://gnews.org/zh-hans/1659034/)
 
-长期以来，中共依靠”金钱外交”，不断蚕食台湾的邦交国，同时将不断渗透和延伸其影响力。而中共不断争取台湾剩余盟友的做法已使华盛顿心生警惕，美国尤其关注北京在中美洲和加勒比海地区影响力与日俱增的情况。
-
-信息来源：
-
-[洪都拉斯总统访台: “真朋友患难见真情”](https://www.dw.com/zh/%E6%B4%AA%E9%83%BD%E6%8B%89%E6%96%AF%E6%80%BB%E7%BB%9F%E8%AE%BF%E5%8F%B0-%E7%9C%9F%E6%9C%8B%E5%8F%8B%E6%82%A3%E9%9A%BE%E8%A7%81%E7%9C%9F%E6%83%85/a-59810741)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-77.jpg)
-
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

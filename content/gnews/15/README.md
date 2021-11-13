@@ -2,20 +2,30 @@
 ---
 
 
-## 德国医院报警，重症监护人手不足
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1661311/)
+## GTV新闻访谈简报|2021年11月13日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1661268/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11131.jpg)图片来自telefriuli.it
-在德国， 医院的治疗能力正在下降，重症监护室存在严重的人员配备问题。根据 Rki 最新的每日报告，重症监护病床占用的床位数为 19,562 张，而空闲床位仅为 2,478 张。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
 
-巴伐利亚的情况特别严重：根据一项调查显示：巴伐利亚 66 个卫生区中有 36 个可用的工作人员减少了，从事感染追踪工作的人数减少了五分之一。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-11.png)
+文章仅代表作者本人观点，与Gnews无关
 
-而据法新社记者报道，在荷兰，警方使用水炮驱散海牙的示威者，因为他们投掷石块和烟花来抗议政府宣布的新的部分封锁措施。大约 200 名抗议者在司法部外与防暴警察和骑警发生冲突。
+视频参看：2021.11.13早GTV新闻访谈
 
-原文链接：[https://www.ansa.it/sito/notizie/mondo/2021/11/12/covid-germania-manca-il-personale-nei-reparti-di-terapia-intensiva\_8f892fc4-9e37-4551-acfc-2fed2e7ec591.html](https://www.ansa.it/sito/notizie/mondo/2021/11/12/covid-germania-manca-il-personale-nei-reparti-di-terapia-intensiva_8f892fc4-9e37-4551-acfc-2fed2e7ec591.html)
+[https://gtv.org/broadcast/watch/618fbd76e7e7703792346272](https://gtv.org/broadcast/watch/618fbd76e7e7703792346272)
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
