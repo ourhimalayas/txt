@@ -2,52 +2,18 @@
 ---
 
 
-## 中共国昔日“光棍节”网络购物狂欢，在政府打压下变得悄无声息
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661326/)
+## 挪威海事以及红海演习
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1661376/)
 
-作者：纽约香草山佛教部 – 文一
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11135.png)图片来自RFI
+位于挪威北部海岸的一段传感器和电缆消失不见了，它们是被用来监视渔船的交通，以及潜艇的可能通过。几个月来的猜疑现在得到确认，这引起人们对俄罗斯的关注，不排除是俄罗斯潜水部队先破坏了网络，然后又拿走了部分组件。从进行的检查的情况来看，偷盗者需要使用相当多的手段来进行这个操作。
 
+以色列首次与阿联酋和巴林海军一起进行演习。和他们在一起的还有美国人。这个演习发生在红海，这说明耶路撒冷与海湾君主国的关系日益密切。同时相关国家都担心正在发生危机的水道（苏丹、非洲之角、也门）的安全，以及常规战争和破坏活动的危险。并且值得一提的是这几个国家都是伊朗的竞争对手，伊朗通过支持也门什叶派胡蒂游击队而出现在该地区。
 
+原文链接：[https://www.corriere.it/america-cina/2021/11/12/clima-covid-potere-nove-storie-moderne-511f5bf6-4398-11ec-a435-e4aaec2a817d.shtml](https://www.corriere.it/america-cina/2021/11/12/clima-covid-potere-nove-storie-moderne-511f5bf6-4398-11ec-a435-e4aaec2a817d.shtml)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-NBC援引美联社报道，11月11日，中共国昔日全球瞩目的“双11”光棍节，网络购物盛况不再，“低碳低调”收场。
-
-各大电商平台今年“双11”变得异常低调。电商巨头阿里巴巴一改过去各路明星悉数捧场，销售狂欢夜等做法，今年只做在线直播。并表示响应政府号召，专注于可持续发展和支持慈善机构。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-43.jpg)
-往日其引以为傲和重点关注的最终销售数额，阿里巴巴发言人拒绝透露该公司是否会公布该数据。据悉，阿里巴巴的股价近一年来下跌已过半。
-
-中共政府加强对科技行业的监管和打压，加上部分地区疫情爆发，材料能源短缺以及物流的阻塞，各零售业供需均呈疲软之态。
-
-参考链接：
-[China’s Singles’ Day online shopping fest muted amid tech crackdown](https://www.nbcnews.com/news/world/china-s-singles-day-online-shopping-fest-muted-amid-tech-n1283706)
-[监管重压下，阿里低调迎接“双11”](https://cn.nytimes.com/technology/20211110/china-alibaba-singles-day/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：Irene木木
-编辑：Kathy文艺
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

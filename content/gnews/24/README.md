@@ -2,30 +2,51 @@
 ---
 
 
-## 洪都拉斯总统访台，背后中美地缘角力
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1661223/)
+## 中共国昔日“光棍节”网络购物狂欢，在政府打压下变得悄无声息
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661326/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-14.jpg)
-[图片来源](https://www.dw.com/zh/%E6%B4%AA%E9%83%BD%E6%8B%89%E6%96%AF%E6%80%BB%E7%BB%9F%E8%AE%BF%E5%8F%B0-%E7%9C%9F%E6%9C%8B%E5%8F%8B%E6%82%A3%E9%9A%BE%E8%A7%81%E7%9C%9F%E6%83%85/a-59810741)
+作者：纽约香草山佛教部 – 文一
 
-11月12日，台湾总统蔡英文在总统府会见洪都拉斯总统叶南德兹（Juan Orlando Hernandez）伉俪访团。
 
-蔡英文在致辞时表示，这是疫情爆发以来第一个来自拉丁美洲友邦的总统访团，也适逢中华民国与洪都拉斯建交80周年，叶南德兹此时率团来访，意义非凡。
 
-叶南德兹在台湾总统府表示，在地区的紧张局势中，洪都拉斯要表明与台湾是真正的朋友，朋友在患难中才能见真情。”我们希望无论在我的总统任期内或卸任之后，都能深化这样的友谊和外交关系。”叶南德兹周五率领访问团抵达台北。这是叶南德兹第四度访问台湾。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-洪都拉斯是台湾的15个邦交国之一。该国即将在11月28日举行总统大选。访团成员还包括该国外交部长罗萨雷斯（Lisandro Rosales Banegas）夫妇、总统府秘书长卡多纳（Ricardo Cardona）夫妇、财政部长马塔（Luis mata）夫妇等重要官员共11人。
 
-长期以来，中共依靠”金钱外交”，不断蚕食台湾的邦交国，同时将不断渗透和延伸其影响力。而中共不断争取台湾剩余盟友的做法已使华盛顿心生警惕，美国尤其关注北京在中美洲和加勒比海地区影响力与日俱增的情况。
 
-信息来源：
+NBC援引美联社报道，11月11日，中共国昔日全球瞩目的“双11”光棍节，网络购物盛况不再，“低碳低调”收场。
 
-[洪都拉斯总统访台: “真朋友患难见真情”](https://www.dw.com/zh/%E6%B4%AA%E9%83%BD%E6%8B%89%E6%96%AF%E6%80%BB%E7%BB%9F%E8%AE%BF%E5%8F%B0-%E7%9C%9F%E6%9C%8B%E5%8F%8B%E6%82%A3%E9%9A%BE%E8%A7%81%E7%9C%9F%E6%83%85/a-59810741)
+各大电商平台今年“双11”变得异常低调。电商巨头阿里巴巴一改过去各路明星悉数捧场，销售狂欢夜等做法，今年只做在线直播。并表示响应政府号召，专注于可持续发展和支持慈善机构。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-43.jpg)
+往日其引以为傲和重点关注的最终销售数额，阿里巴巴发言人拒绝透露该公司是否会公布该数据。据悉，阿里巴巴的股价近一年来下跌已过半。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-77.jpg)
+中共政府加强对科技行业的监管和打压，加上部分地区疫情爆发，材料能源短缺以及物流的阻塞，各零售业供需均呈疲软之态。
+
+参考链接：
+[China’s Singles’ Day online shopping fest muted amid tech crackdown](https://www.nbcnews.com/news/world/china-s-singles-day-online-shopping-fest-muted-amid-tech-n1283706)
+[监管重压下，阿里低调迎接“双11”](https://cn.nytimes.com/technology/20211110/china-alibaba-singles-day/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：Irene木木
+编辑：Kathy文艺
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
 
 
  

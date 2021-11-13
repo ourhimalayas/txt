@@ -2,37 +2,42 @@
 ---
 
 
-## 以色列科学家怒斥疫苗不良事件数据造假
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661339/)
+## 郭先生联合正义力量 西班牙秘密营救马云
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1661465/)
 
-作者：纽约香草山翻译部 – defiance
+作者：纽约香草山健身部 – 文鹰
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月9日，以色列计算神经科学家马坦-霍尔茨在推特上驳斥了以色列卫生部的新冠疫苗不良事件报告系统及其对应数据。
+据GTV文贵大直播11.12消息，有战友提到马云西班牙之行时，文贵先生曝光已发生的一项绝密事件。根据情报掌握马云一切行踪活动后，在西班牙当地实施营救“中国企业家马云”行动。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide11-2.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/0-3.jpeg)
 
-霍尔茨认为，以色列政府的新冠疫苗不良事件数据收集工作完全是在粉饰太平，该系统的不良事件报告缺漏数据惊人。霍尔茨补充，由于原始数据缺失带来的不准确性，该系统所做的数据分析更是毫无科学性。
+文贵先生基于获得情报研判，相应制定了周密方案。先安排两名人员提前两周上船卧底，想尽办法接触其人，传递逃生纸条。且动用了西方军舰和潜水艇，配合秘密行动随时支援。
 
-霍尔茨解释道，以色列的疫苗不良反应报告系统远远落后于美国和欧洲。在报告不良事件的过程中，申报者只能填写一个网页表格，且填写完毕后无法进行追踪和验证，报告往往石沉大海。
+让人遗憾的是，马云一念定生死！不知是28个家人被控原因，还是迫于中共淫威的严密监视，或许是中共发现马云有跑路的苗头，临时更换贴身监控人员，让他错失了绝佳逃生机会。
 
-对此，霍尔茨表示，严重的漏报导致新冠疫苗与一些疾病之间的相关性被降低到荒谬的程度。但是，以色列的不良反应数据是美国FDA的主要参考对象之一。鉴于美国政府正试图推行5至11岁儿童用新冠疫苗，霍尔茨进一步强调，以色列这些虚假的数据会直接影响到美国孩子们的安全，进而波及全球。
+马云是参与中共迫害文贵先生的帮凶，也是体制内最佩服文贵先生的商人。文贵先生抛下个人恩怨，不计前嫌，爱憎分明，营救中国企业家。帮助处于险境中的曾经敌人，此大爱情怀及行动的实力，不亚于一枚核弹的冲击波。会震憾体制内还在观望不前，犹豫不决的高官富贾们。
 
-参考链接：
-1）[Analysis: Israeli COVID vaccine safety data ‘worth nothing’](Israeli%20COVID%20vaccine%20safety%20data%20‘worth%20nothing’)
-2）[https://twitter.com/MatanHolzer/status/1457427294591590406?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1457427300165771267%7Ctwgr%5E%7Ctwcon%5Es2\_&ref\_url=https%3A%2F%2Famericasfrontlinedoctors.org%2F2%2Ffrontlinenews%2Fanalysis-israeli-covid-vaccine-safety-data-worth-nothing%2F](https://twitter.com/MatanHolzer/status/1457427294591590406?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1457427300165771267%7Ctwgr%5E%7Ctwcon%5Es2_&amp;ref_url=https%3A%2F%2Famericasfrontlinedoctors.org%2F2%2Ffrontlinenews%2Fanalysis-israeli-covid-vaccine-safety-data-worth-nothing%2F)
+文贵先生给你们指出了路，要么逃出魔窑，要么被中共灭绝。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+新中国联邦建立的国防安保体系，会在不同的地域国家，海域岛屿帮助同胞，参与营救你们。来吧，到正义的一边！加入新中国联邦一起行动灭掉CCP！
 
-总编：文特
-编辑：Irene木木
-校正/发稿：谐趣园
+参考链接：https://gtv.org/video/id=618e6c5fe7e770379233c262
+
+![](https://cdn.discordapp.com/attachments/873743101305430037/904371534930534400/Screen_Shot_2021-10-31_at_10.05.40_PM.png)
+
+**校对/发稿：童谣**
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
