@@ -2,42 +2,20 @@
 ---
 
 
-## 美国法院维持暂停拜登政府对企业的疫苗强制令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1660313/)
+## 巡回上诉法院确认暂停拜登政府针对私营企业的疫苗强制令
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1660321/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 翻译/撰稿：zzballack
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/MGN_1280x960_10809C00-XDXMK.jpg)图片来源：spokesman-recorder.com
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-9.jpg)图片来源：Star Tribune
+据《纽约邮报》（New York Post）11月12日报道，位于新奥尔良的美国联邦第五巡回上诉法院维持了11月6日做出的暂停拜登政府针对私营企业的疫苗强制令的决定。这项由职业安全与健康管理局（OSHA）颁布的强制令要求拥有百名以上雇员的企业须强制其所有全职和兼职员工在2022年1月4日之前接种新冠疫苗，或每周接受核酸测试并佩戴口罩。雇主每违规一次，将被罚款14000美元。将影响8400万工人的这项规定引发了几个州以及宗教和商业团体的法律挑战，他们认为这是违宪的。
 
+上诉法院的三人法官小组表示，这项疫苗规定太过宽泛，令人震惊，而且存在严重的法律和宪法问题。巡回法官库尔特·恩格尔哈特（Kurt Engelhardt）在为小组撰写的意见书中写道：“这项强制令一刀切，几乎没有试图考虑到工作场所（和工人）的差异。维护我们的宪法结构，维护个人根据自己的信念做出个人决定的自由，也符合公共利益，甚至、或许是因为这些决定让政府官员感到挫败。”
 
-#### 编译：小红帽
+德克萨斯州总检察长肯·帕克斯顿 (Ken Paxton)11月12日在推特上欢呼说，法院的这项决定是一场胜利。德州与其它几个州之前对该强制令提出了法律挑战。他在推特上写道：“以德州令人信服的论点为由，第五巡回法院暂停了OSHA违宪和非法的针对私营企业的疫苗规定。我们赢了! 诉讼将继续进行。无论对于德州，还是对于摆脱拜登的暴政和无法无天，这都是一场巨大的胜利。”
 
-美国联邦法院周五维持暂停拜登政府的中共病毒（Covid-19）疫苗强制令。该强制令要求大型企业必须为员工接种中共病毒疫苗。
-
-位于新奥尔良的第五巡回上诉法院的三位法官小组确认了其上周的最初命令，该命令阻止了疫苗强制令的生效。法院周五说，疫苗强制令 “严重超越 “了政府的权力。
-
-如果维持原判，被暂停的疫苗强制令将代表着拜登政府最具影响力的努力之一遇到了重大挫折。该努力旨在确保中共病毒在冬季卷土重来之前，为人民进行广泛的中共病毒疫苗接种。
-
-拜登为这些公司设定了一个1月4日的最后期限，以确保其员工全面接种中共病毒疫苗。 政府称，这一规则将影响全国三分之二以上的劳动力。法院的裁决批评说这一规则“过于宽泛”。
-
-法院没有决定，这个适用于100人以上公司的疫苗强制令最终是否有效。
-
-但在其裁决中，法院表示批准暂停执行的部分原因是，该命令不可能通过宪法审查。
-
-库尔特·D·恩格尔哈特（Kurt D. Engelhardt）法官表示，如果不批准暂停疫苗强制令，可能会对雇员和本案的请愿者造成“无法弥补的伤害”。从经济的不确定性到工作场所的冲突，仅仅是疫苗强制令就在最近几个月导致了难以言喻的经济动荡。
-
-该裁决要求在审查挑战者提出的永久禁令请求之前，继续保持暂停状态。
-
-**参考新闻：**[US court maintains block on Biden vaccine mandate for businesses (msn.com)](https://www.msn.com/en-au/news/world/us-court-maintains-block-on-biden-vaccine-mandate-for-businesses/ar-AAQEluv?ocid=msedgdhp&amp;pc=U531)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[‘Staggeringly overbroad’: Court affirms pause on Biden vax mandate for private biz](https://nypost.com/2021/11/12/court-affirms-pause-on-biden-vaccine-mandate-for-private-companies/)
 
  
 

@@ -2,46 +2,148 @@
 ---
 
 
-## 不打疫苗的新加坡人可能面临18000美金的医疗费用
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1660586/)
+## 战友被威胁后是否能找回自己的喜币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660620/)
 
-拟稿：金生水
-![](https://assets.gnews.org/wp-content/uploads/2021/11/新加坡.png)
-图片来自网络
-据彭博社近日报道，在新加坡选择不接种疫苗的中共病毒患者可能面临高昂的医疗费用，这个作为世界上接种率最高的国家再一次加大了对疫苗接种的压力。
+[https://gtv.org/video/id=618f40e3182702508104b1dc](https://gtv.org/video/id=618f40e3182702508104b1dc)
 
-迄今为止，新加坡政府向其所有公民及居民支付整个大流行期间的中共病毒患者的医疗费用。但随着中共病毒在该国再次爆发，政府选择从 12 月 8 日开始向选择未接种疫苗的中共病毒患者收费。
+**郭文贵
+Miles Guo**
 
-根据卫生部周四在回应彭博新闻查询时发布的估计中位数，接受治疗并留在重症监护室的患者可能需要支付约 25,000 新元（约合18,460 美元）的费用。
+谢谢七哥
+Thank you, Brother Miles
 
-卫生部长王乙康在周一宣布的媒体简报中说：“我们的医院其实并不愿意向这些患者收费，但我们必须发出这个重要信号，敦促每个符合条件的人去接种疫苗。”
+有战友问，墙内战友如果被威胁的情况下把喜币转走的话，是否可以追回
+A comrade asked if it is possible to recover the HCoins if they were transferred under threat in China mainland
 
-政府表示，在一个 85% 的人口已经完全接种疫苗的国家，未接种疫苗的中共病毒患者占需要重症监护的人的很大一部分，并且“不成比例地”使医疗资源紧张。
+这个问题
+This question
 
-卫生部表示，政府对穷人的补贴和国家健康保险计划可以将符合条件的新加坡人的费用降至 2,000 至 4,000 新元。患者也可以选择利用国家医疗储蓄政策来进一步降低这一数字。
+100%可以追回
+It can be 100% recovered
 
-该部表示：“根据患者病情的严重程度和提供护理的中共病毒设施的类型，账单金额会有所不同。”
+我再重申一遍
+Let me reiterate
 
-最近几个月，新加坡加大了对疫苗接种的压力，包括禁止未接种疫苗的人进入商场、餐馆和景点。从明年年初开始，只允许接种疫苗的人进入办公室，而未接种疫苗的人则必须自己支付检测费用才能进入办公室。
+你们要看，一定要看白皮书，一定要看这些
+You have to read, you have to read the white paper
 
-但担心这一新措施可能会给社会弱势成员带来经济负担。
+我们所有说的话不代表喜联储，我们所有说的话不代表喜币
+Everything we say does not represent the Himalaya Exchange and everything we say does not represent the Hcoin
 
-新加坡国立大学苏瑞福公共卫生学院副教授杰里米·林表示：“坦率地说，这一宣布更多的是发出信号，而不是任何实质性的财务影响。” “然而，可以理解的是，人们非常关心未知的部分，而且未接种疫苗的人且并不是相对富裕的人总是存在风险。”
+而且大家也知道，喜币和GTV没有半毛钱关系
+And as you all know, Hcoin has nothing to do with GTV
 
-该国卫生部周四公布的数据显示，未得到充分保护的60岁以上老年人在上周最终进入重症监护室的可能性是接种疫苗的同龄人的25倍以上。
+战友们只是喜币的拥有者
+Comrades are only the owners of Hcoins
 
-该国保险公司试图向客户保证，他们将帮助承担此类费用的负担。 新加坡最大的两家保险公司 Great Eastern和 AIA在单独的声明中表示，无论疫苗接种情况如何，他们都将继续为客户提供理赔补贴。
+大部分投资者到目前为止
+Most of the investors so far
 
-不过，AVA保险公司的首席执行官迈克尔·周表示，公司未来可能面临取消保险的压力。 “我们无法为违反公共政策的事情投保，”他说。
+是吧?我们不代表喜联储
+Right? we can’t speak for the Himalaya Exchange
 
-新加坡政府的逻辑有很大问题，中共病毒是从新加坡外面传过来，该国政府没有做好把病毒拒之国境之外的任务。所谓的打疫苗也不过是政府工作没有做好的补救措施，明明是政府的工作没有到位，为什么需要使用强权让纳税人为之买单？
+但是你们一定要记住，我们是（喜联储的）结构设计师，我们是创意的发起人
+But you must remember that we are the ( Himalaya Exchange’s) structure designers, the originators of the idea
 
-参考链接：
+我告诉大家，喜币最牛的就是
+Let me tell you, the most extraordinary about Hcoin is that
 
-[https://www.bloomberg.com/news/articles/2021-11-12/singapore-s-unvaccinated-may-face-18-460-of-medical-bills](https://www.bloomberg.com/news/articles/2021-11-12/singapore-s-unvaccinated-may-face-18-460-of-medical-bills)
+你即使被黑客掉，都被拿走了，拿枪顶着拿走了，都会给你拿回来
+even though if your Hcoins were scammed and taken away, taken away at gunpoint, you will get them back
 
-（本文只代表作者个人观点，与GNEWS 无关）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
+它就是区块链，它就是中心化的好处
+It is the blockchain, and it is the benefit of centralization
+
+就是你Sarah被人家给骗了，这个男朋友，是吧？
+Let’s say Sarah was cheated by someone i.e. boyfriend, right?
+
+Sarah这一激动，是吧？喝点酒男朋友把她手机拿走了，把币给拿走了
+Sarah is happy, right? After drink, the boyfriend took her phone and took the coins
+
+这Sarah绝对干的出来，所以说她币多了绝对不行
+Sarah definitely would have done this, so it’s absolutely not good for her to have so many coins
+
+被骗走了，报案了，是不是？现在我的币被某人骗走了，手机怎么回事
+She was scammed and reported it to the police, right? Now her coins were taken by someone, her phone was stollen
+
+不但是现在，永远都可能给你拿得回来
+Not only now, I can always get it back for you
+
+因为这个区垮链牛（的地方）就是，你不可藏匿你的行踪
+Because the most extraordinary thing about this blockchain is that you can’t hide your whereabouts
+
+你根本没交易，咋跑你手里去了
+You didn’t make the trade at all, how would it get into your hands?
+
+那到你手里去了，你俩啥关系啊？
+It went to your account, what’s the relationship between you two?
+
+既没交易，你俩也互不认识
+No transaction, nor know each other
+
+你转给老班长,说你看老班长，我们都是战友嘛，人家知道
+Let say you transfer coins to the old squad leader, he is our comrade, and we know each other
+
+你找给一个什么国内的李班长、王班长，那对不起了，这根本不认识他
+But if you transfer them (Hcoins) to a squad leader Li or Wang who is located in China, then sorry, you don’t know him at all
+
+肯定经过法律程序一定会拿回来，不用担心
+No worries, you surely will get them back after the legal process
+
+所以那个战友我就发信息，要啥给啥，别跟警察斗
+That’s why I send a message to our comrades, do what they told you to, and don’t resist the police
+
+因为你的币永远还是你的币
+Because those are your coins and will always be your coins
+
+但是有另外的战友就很聪明，人家就是设置好的，直接就报警
+Another thing is that there are very smart comrades who have set up a direct alert
+
+报警大家知道直接给你归零了，给你保管起来了
+Everyone knows they should bring your account to Zero after alert sounds. They (the system) will keep it for you
+
+回头再给你，是吧？
+and give it back to you later, right?
+
+这个是绝对安全，这是最无价的
+This is absolutely safe, and this is the most priceless
+
+就像付政华在我们那收走几个亿港币，几亿人民币
+Just like the hundreds of millions of Hong Kong dollars and hundreds of millions of RMB that Fu Zhenghua took from us
+
+是不是？几百斤金子他不还了，多愚蠢，是吧？
+Right? Hundreds of cities of gold, you can’t get them back, how stupid, right?
+
+你要有这币，你收走就收走，是吧？
+But if you have the coins, they can take them if they want, right?
+
+你收走最后一定拿回来
+You’ll get them back in the end
+
+好，谢谢
+Okay, thank you
+
+* * *
+
+Date: 11/09/2021
+原视频标题: 战友被威胁后是否能找回自己的喜币
+Whether Comrades Get Their Hcoins Back After Being Threatened
+原视频日期：2021/11/05
+原视频链接：[https://twitter.com/se1y7cblljselva/status/1457602765950050305?s=24](https://twitter.com/se1y7cblljselva/status/1457602765950050305?s=24)
+任务编号：KC242(2808)
+视频时间段 : 0:00-2:14
+英听校：洛杉矶盘古农场 – Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,29 +2,45 @@
 ---
 
 
-## 澳大利亚第一剂疫苗注射率突破90%
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1660420/)
+## 新西兰要求学校发现未接种疫苗的员工上班时报警
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1660448/)
 
-撰稿：Gradient Boost
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-视频：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2021/11/003-scaled.jpg)图片来源于Pexels免费照片素材库；摄影：Maksim
-根据澳大利亚9 News 最新消息，澳大利亚全国范围内16岁以上人群的第一针疫苗接种率在11月12日（周五）下午已经突破90%，总计大约1860万人。而全国范围内的两针疫苗接种率早在上周就突破了80%这一门槛，目前则已经达到82.4%，总计约为1700万人。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/2021-05-25-maori-police.jpg)
 
-目前新南威尔士州和首都领地一剂疫苗接种率以及两剂疫苗接种率均已突破90%，其中首都领地两项指标更是已经超过95%以上。西澳大利亚疫苗的完全接种率最低，但也已经达到68.9%，即将突破七成。相比三周以前的10月23日，该地区的两剂疫苗接种上升了13.9%。西澳总理在上周曾撂下狠话，宣称对于今后的国内旅行，两针疫苗接种将成为最为基本的前提条件和原则。
 
-南澳大利亚的两剂疫苗接种情况相较于三周前的周末也同样取得了10%以上的增长。同时在北领地，新的疫苗强制令将从今日起正式生效：任何涉及线下与他人接触的一线工作员工必须接种至少一剂疫苗才能继续就职。拒绝接种疫苗不能够成为豁免的充分理由，而违反者将面临5000澳元的罚款（下方视频为北领地长官有关疫苗强制令的讲话）。
 
-即便如此，澳洲人民的抗争依然在持续进行。就在今天，维州民众再次于墨尔本市中心组织游行活动。这一抗议主要针对十月于下议院通过的《公共卫生和福祉修正案（流行病管理）法案》，抗议人士认为该法案可能正在以疫情为借口给予总理更多的控制权利。
+图片来源：theworld.org
 
-（本文纯属个人观点，与Gnews无关）
 
-新闻参考链接：
+#### 编译：小红帽
 
-[澳洲第九新闻（一）](https://www.9news.com.au/national/coronavirus-vaccine-rollout-australia-state-by-state-guide-covid19-vaccination-rates-single-dose-double-doses-explainer/abacde8f-d35e-45ee-83bc-069ede212ecf)
+新西兰当局告诉学校，如果未接种中共病毒（COVID-19）疫苗的员工上班，请致电警察。
 
-[澳洲第九新闻（二）](https://www.9news.com.au/national/melbourne-protests-large-crowds-pack-melbourne-cbd-in-pandemic-bill-lockdown-protest/4634ad29-d7db-44eb-9944-35c7f96ac746)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
+《澳大利亚邮报》报道说：“周四在（新西兰）教育部公报上公布的建议告诉学校领导，如果他们或任何教育工作者在周一上班时没有接种中共病毒疫苗，他们将触犯法律”。
+
+任何在11月15日之前没有接种中共病毒疫苗的工作人员，如果试图进入校园，将被处以罚款，这是该国“不打针，不工作 ”政策的一部分。
+
+新西兰教育部建议：“如果工作人员在这一日期之后出现在工作场所，我们鼓励学校领导以处理不适当的人出现在现场的方式来处理”。
+
+“如果你觉得你的安全、学生或其他工作人员的安全受到威胁，你可以考虑联系警方”。
+
+正如我们之前强调的那样，新西兰已经实施了发达国家中最残酷的封锁之一。在某种情况下，仅仅在发生一起中共病毒病例后，就封锁了该国的整个地区。
+
+与此同时，在新西兰，因被枪杀而死亡的人却被算作官方的中共病毒死亡人数。
+
+**参考新闻：**[New Zealand Tells Schools to Phone the Police if Unvaccinated Staff Show Up – Summit News](https://summit.news/2021/11/12/new-zealand-tells-schools-to-phone-the-police-if-unvaccinated-staff-show-up/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
