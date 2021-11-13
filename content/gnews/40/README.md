@@ -2,10 +2,17 @@
 ---
 
 
-## 11/12/2021 文贵直播：作为总参三部的专业情报人员，沈南鹏在美国的政治、经济影响力非同一般
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1659825/)
+## 【文贵先生大直播PPT】中共六中全会公报瞎说了啥？
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1659999/)
 
-秘密翻译组-北美组
+撰稿：三票先生 选票地票言票，顽童2017，待命（文晓），hans(文玄）
+PPT制作：健身健心（文阳），青山
+
+**【2021年11月12日文贵先生大直播PPT：中共六中全会公报瞎说了啥？】**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/31-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/32-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/33-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/34-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/35-1.jpg)
+* * *
+
+发稿：云起时
 
  
 
