@@ -2,29 +2,51 @@
 ---
 
 
-## 有声|德国将定期向印太派遣军舰 应对中共宣示南海主权
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1661241/)
+## 中共国昔日“光棍节”网络购物狂欢，在政府打压下变得悄无声息
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661326/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-11月9日，德国海军中将薛恩巴赫表示，德国派遣军舰到印太地区，是因为对区域自由航行和以规则为基础的国际秩序受到威胁表示关切。在中共国持续强调南海主权之际，德国政府打算未来定期向印太派遣军舰，以维护南海的自由航行。
+作者：纽约香草山佛教部 – 文一
 
-薛恩巴赫称，德国巴伐利亚号军舰预计12月穿越南海，向世界展现其拥有自由航行的权利。对于通过南海时有可能会遇到中共国军舰的局面，他认为，通行没有什么问题，如果受到阻碍，他们也会有所准备。该护卫舰日前已经抵达东京，是近20年来第一艘访问日本的德国舰艇。
 
-薛恩巴赫说，南中国海是全球共同所有的公海，这片海域属于所有人。所以，如果说到遵守国际世界秩序的话，南中国海不能被任何人占有或宣示主权。
 
-文字版原文：[德国将定期向印太派遣军舰 应对中共宣示南海主权](https://gnews.org/zh-hans/1658005/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+
+NBC援引美联社报道，11月11日，中共国昔日全球瞩目的“双11”光棍节，网络购物盛况不再，“低碳低调”收场。
+
+各大电商平台今年“双11”变得异常低调。电商巨头阿里巴巴一改过去各路明星悉数捧场，销售狂欢夜等做法，今年只做在线直播。并表示响应政府号召，专注于可持续发展和支持慈善机构。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-43.jpg)
+往日其引以为傲和重点关注的最终销售数额，阿里巴巴发言人拒绝透露该公司是否会公布该数据。据悉，阿里巴巴的股价近一年来下跌已过半。
+
+中共政府加强对科技行业的监管和打压，加上部分地区疫情爆发，材料能源短缺以及物流的阻塞，各零售业供需均呈疲软之态。
+
+参考链接：
+[China’s Singles’ Day online shopping fest muted amid tech crackdown](https://www.nbcnews.com/news/world/china-s-singles-day-online-shopping-fest-muted-amid-tech-n1283706)
+[监管重压下，阿里低调迎接“双11”](https://cn.nytimes.com/technology/20211110/china-alibaba-singles-day/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：Irene木木
+编辑：Kathy文艺
+校对/发稿：为真不破20
+
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
 
 
  

@@ -81,101 +81,101 @@
 ### [挪威海事以及红海演习](/content/gnews/22/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [梵蒂冈将自己出卖给中共](/content/gnews/23/README.md)
+### [美国间谍在中共国不再得势](/content/gnews/23/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [梵蒂冈将自己出卖给中共](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共国近九成银行股跌至白菜价](/content/gnews/24/README.md)
+### [中共国近九成银行股跌至白菜价](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [中共国昔日“光棍节”网络购物狂欢，在政府打压下变得悄无声息](/content/gnews/25/README.md)
+### [中共国昔日“光棍节”网络购物狂欢，在政府打压下变得悄无声息](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [有声|德国将定期向印太派遣军舰 应对中共宣示南海主权](/content/gnews/26/README.md)
+### [有声|德国将定期向印太派遣军舰 应对中共宣示南海主权](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [有声|大屠杀博物馆确认新疆正在发生反人类罪行](/content/gnews/27/README.md)
+### [有声|大屠杀博物馆确认新疆正在发生反人类罪行](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [有声|布林肯：若中共攻台，美国和盟友将“采取行动”](/content/gnews/28/README.md)
+### [有声|布林肯：若中共攻台，美国和盟友将“采取行动”](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [有声|足球运动员心脏病例增多](/content/gnews/29/README.md)
+### [有声|足球运动员心脏病例增多](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [2021/11/12 墙内世界](/content/gnews/30/README.md)
+### [2021/11/12 墙内世界](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [G-TV打开金库的第一道大门,别光看股价忘了钥匙的作用](/content/gnews/31/README.md)
+### [G-TV打开金库的第一道大门,别光看股价忘了钥匙的作用](/content/gnews/32/README.md)
  ` NewFOC`
 
-### [视频| 新中国联邦带来金融界虚拟货币的新时代](/content/gnews/32/README.md)
+### [视频| 新中国联邦带来金融界虚拟货币的新时代](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [视频| 新中国联邦招募军队人员](/content/gnews/33/README.md)
+### [视频| 新中国联邦招募军队人员](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [11/13/2021国际财经快讯：马斯克抛售特斯拉股票；货币市场因欧央行加息而缓和](/content/gnews/34/README.md)
+### [11/13/2021国际财经快讯：马斯克抛售特斯拉股票；货币市场因欧央行加息而缓和](/content/gnews/35/README.md)
  ` 秘密翻译组金融团队`
 
-### [生命不能承受之重](/content/gnews/35/README.md)
+### [生命不能承受之重](/content/gnews/36/README.md)
  ` 骄子`
 
-### [北京天空被中共病毒疫苗受害者尸体燃烧后的灰尘所覆盖](/content/gnews/36/README.md)
+### [北京天空被中共病毒疫苗受害者尸体燃烧后的灰尘所覆盖](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共国蓝光发展“爆雷”，240多亿到期未还](/content/gnews/37/README.md)
+### [中共国蓝光发展“爆雷”，240多亿到期未还](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共“阳光城”理财爆雷，以房抵债](/content/gnews/38/README.md)
+### [中共“阳光城”理财爆雷，以房抵债](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [法国发现中共病毒新变种，已有24人被感染](/content/gnews/39/README.md)
+### [法国发现中共病毒新变种，已有24人被感染](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中美生死对立以及疫苗灾难将迎来世界金融新秩序的诞生](/content/gnews/40/README.md)
+### [中美生死对立以及疫苗灾难将迎来世界金融新秩序的诞生](/content/gnews/41/README.md)
  ` NewFOC`
 
-### [2021/11/12大卫作战室直播精要](/content/gnews/41/README.md)
+### [2021/11/12大卫作战室直播精要](/content/gnews/42/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共治下高等院校的虚假乱象](/content/gnews/42/README.md)
+### [中共治下高等院校的虚假乱象](/content/gnews/43/README.md)
  ` 墨尔本雅典娜农场`
 
-### [班农先生将会成为全人类的英雄！](/content/gnews/43/README.md)
+### [班农先生将会成为全人类的英雄！](/content/gnews/44/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [应对中共，军事合作再升级！日本首次对澳军实施武装防卫](/content/gnews/44/README.md)
+### [应对中共，军事合作再升级！日本首次对澳军实施武装防卫](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年11月12日文贵先生直播小飞象大雨围城速记](/content/gnews/45/README.md)
+### [2021年11月12日文贵先生直播小飞象大雨围城速记](/content/gnews/46/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [参议院跨党派重启新冠病毒溯源调查](/content/gnews/46/README.md)
+### [参议院跨党派重启新冠病毒溯源调查](/content/gnews/47/README.md)
  ` GTV新闻访谈`
 
-### [佛州或将因疫苗令退出联邦职业安全与健康管理局](/content/gnews/47/README.md)
+### [佛州或将因疫苗令退出联邦职业安全与健康管理局](/content/gnews/48/README.md)
  ` GTV新闻访谈`
 
-### [辉瑞公司在儿童疫苗中添加心脏病药物](/content/gnews/48/README.md)
+### [辉瑞公司在儿童疫苗中添加心脏病药物](/content/gnews/49/README.md)
  ` GTV新闻访谈`
 
-### [日本防卫省公布 近日与美军两次密切合作](/content/gnews/49/README.md)
+### [日本防卫省公布 近日与美军两次密切合作](/content/gnews/50/README.md)
  ` GTV新闻访谈`
 
-### [美拜登总统签署「安全设备法」禁止接受华为中兴等通讯设备的审核申请](/content/gnews/50/README.md)
+### [美拜登总统签署「安全设备法」禁止接受华为中兴等通讯设备的审核申请](/content/gnews/51/README.md)
  ` GTV新闻访谈`
 
-### [供应链危机恶化 或比雷曼兄弟倒闭更糟糕](/content/gnews/51/README.md)
+### [供应链危机恶化 或比雷曼兄弟倒闭更糟糕](/content/gnews/52/README.md)
  ` GTV新闻访谈`
 
-### [新中国联邦国防系统轮廓初现](/content/gnews/52/README.md)
+### [新中国联邦国防系统轮廓初现](/content/gnews/53/README.md)
  ` GTV新闻访谈`
 
-### [台湾一日内出现六例完整接种疫苗后仍感染中共病毒案例](/content/gnews/53/README.md)
+### [台湾一日内出现六例完整接种疫苗后仍感染中共病毒案例](/content/gnews/54/README.md)
  ` 日本东京方舟农场`
-
-### [币圈新闻动态：喜币（HCN）稳步突破27HDO](/content/gnews/54/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [路易斯安那州第五巡回法院历史性裁决叫停疫苗强制令](/content/gnews/55/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

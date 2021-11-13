@@ -2,16 +2,20 @@
 ---
 
 
-## 日本防卫省公布 近日与美军两次密切合作
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1659128/)
+## 辉瑞公司在儿童疫苗中添加心脏病药物
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1659129/)
 
-作者：日本方舟农场 – Andy5
+作者：纽约香草山翻译部 – defiance
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间11月12日，日本防卫省罕见公布，本月9日，日本空中自卫队与美国两架特殊战机在尖阁诸岛附近海域进行了搜救方面的联合演习。本月8-9日，日本自卫队统合幕僚长山崎幸二将军与美国印度太平洋司令官，前往日本领土上离台湾最近的岛屿——与那国岛，视察了那里的驻屯军及设施。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4-7.jpg)
-日本防卫省突然公布美日两项军事行动，与中共在尖阁诸岛和台湾地区附近的军事行动有关，消息人士指出，此举是为了牵制中共在这些地区的挑衅。
+据Pandemic News报道，一份最新发布的文件显示，辉瑞公司在儿童CCP病毒疫苗中添加了一种的心脏病药物。氨丁三醇, 别名缓血酸胺，是一种能够降低血液酸度，并稳定心脏病发作的化学物质。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture66-3.jpg)
+在文件中， 解释疫苗成分的部分，提到儿童疫苗包含10微克的经核苷修饰过的信使RNA，用来编码刺突糖蛋白。这些刺突蛋白被脂质纳米颗粒包裹，最终以冷冻悬浮液的形式分装至疫苗瓶。并且，为了优化疫苗的稳定性曲线，辉瑞在5-11岁疫苗中采用了氨丁三醇缓冲剂，而未使用磷酸盐缓冲液、氯化钠或者氯化钾。
 
-参考链接：[日本防卫省公布 近日与美军两次密切合作](https://www.gettr.com/post/pgr6qoe948)
+目前已有大量的证据显示疫苗是不安全的，而且，美国食品药物管理局FDA无视这一成分的改变，就为这种新药授予了紧急使用授权，给5岁以上的儿童使用，黑暗力量的儿童献祭试验才刚刚开始。
+
+参考链接：
+1. [辉瑞公司在儿童疫苗中添加心脏病药物](https://pandemic.news/2021-11-10-pfizer-heart-attack-drug-children-covid-vaccines.html)
+2. [辉瑞公司在儿童疫苗中添加心脏病药物](https://theexpose.uk/2021/11/01/pfizer-adds-ingredient-to-vaccine-for-kids-that-treats-heart-attacks/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 

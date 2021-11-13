@@ -2,24 +2,24 @@
 ---
 
 
-## 辉瑞公司在儿童疫苗中添加心脏病药物
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1659129/)
+## 佛州或将因疫苗令退出联邦职业安全与健康管理局
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1659130/)
 
-作者：纽约香草山翻译部 – defiance
+作者：英国喜庄园 – I770775
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据Pandemic News报道，一份最新发布的文件显示，辉瑞公司在儿童CCP病毒疫苗中添加了一种的心脏病药物。氨丁三醇, 别名缓血酸胺，是一种能够降低血液酸度，并稳定心脏病发作的化学物质。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture66-3.jpg)
-在文件中， 解释疫苗成分的部分，提到儿童疫苗包含10微克的经核苷修饰过的信使RNA，用来编码刺突糖蛋白。这些刺突蛋白被脂质纳米颗粒包裹，最终以冷冻悬浮液的形式分装至疫苗瓶。并且，为了优化疫苗的稳定性曲线，辉瑞在5-11岁疫苗中采用了氨丁三醇缓冲剂，而未使用磷酸盐缓冲液、氯化钠或者氯化钾。
+在拜登政府中共病毒疫苗强制政策下，联邦职业安全与健康管理局执行授权，强迫超过100名雇员的企业接种疫苗或每周做核酸检测。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture77-3.jpg)
+11月11日，州众议院议长克里斯在新闻发布会上说，如果劳工部和联邦职业安全与健康管理局想要将疫苗武器化，作为挟持整个佛罗里达州企业的一种方式，那他们就会退出该机构，从而选择提交自己的监管当局，与联邦政府说再见。
 
-目前已有大量的证据显示疫苗是不安全的，而且，美国食品药物管理局FDA无视这一成分的改变，就为这种新药授予了紧急使用授权，给5岁以上的儿童使用，黑暗力量的儿童献祭试验才刚刚开始。
+州立法者还将讨论，防止政府雇员被迫接种疫苗的提案，要求企业允许疫苗豁免，并禁止佛罗里达州外科医生强迫公民接种疫苗。
 
 参考链接：
-1. [辉瑞公司在儿童疫苗中添加心脏病药物](https://pandemic.news/2021-11-10-pfizer-heart-attack-drug-children-covid-vaccines.html)
-2. [辉瑞公司在儿童疫苗中添加心脏病药物](https://theexpose.uk/2021/11/01/pfizer-adds-ingredient-to-vaccine-for-kids-that-treats-heart-attacks/)
+1. [佛州或将因疫苗令退出联邦职业安全与健康管理局](https://gettr.com/post/pgpbkk97c2)
+2. [佛州或将因疫苗令退出联邦职业安全与健康管理局](https://www.zerohedge.com/covid-19/florida-may-withdraw-osha-oversight-over-vax-mandate)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：童谣
+总编：飞虹
 编辑：童谣
 校对/发稿：Hetangyuese
 
