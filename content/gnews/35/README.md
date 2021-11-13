@@ -2,22 +2,20 @@
 ---
 
 
-## 我与班农站在一起
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1660284/)
+## 印度人口最多的北方邦因使用伊维菌素，疫情得到彻底控制
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1660289/)
 
-#### 翻译/撰稿：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/下载-2-1.jpg)图片来源：Politico
-根据美国前线（Frontline America）11月12日的报道，在梅里克·加兰（Merrik Garland）夺权，立即向史蒂夫·班农（Steve Bannon）发起起诉后。 这引起班农支持者们的巨大反响。
+#### 撰稿：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-92.jpg)
+《权威门户》10月30日报道，由于向印度大量人口推广维菌素和羟氯喹，印度北方邦的中共病例大幅下降。
 
-即便是在被科技巨头控制下的推特上，也无法掩盖人们反对的声音。汤姆·菲顿 (Tom Fitton)保守派司法观察主席发推表示：“加兰司法部对班农的快速起诉是一种非同寻常且令人恐惧的权力滥用。”美国前线的创始人，班农战斗室的常客转发了莫琳·班农（Maureen Bannon）的推，莫琳在推特上发布了一张班农家族三代人的合影。
+到2021年，该邦人口估计为2.41亿，是印度人口最多的邦，这几乎是美国人口的三分之二，但现在却连一个患中共病毒的都没有。相比之下，美国哪里做错了呢？这得问福奇博士。
 
-美国众议员马特·盖茨（Matt Gaetz）表示，班农没有做错任何事。埃瑞克·格雷滕斯 (Eric Greitens)第56届密苏里州州长称赞班农是美国第一勇士和爱国者。鲍里斯·埃普什坦 (Boris Epshteyn) 前美国总统川普的特别助理、2020战略顾问，也支持班农是爱国者。迈克尔·T·弗林 (Michael Flynn)将军在塔克·卡尔森（Tucker Carlson）的节目上说：“这表明民主党正在采取行动，确认他们完全接管这个国家的速度。”
+北方邦是印度率先在所有家庭接触中及早预防性使用伊维菌素的邦，只有20%的成年人完全接种了疫苗，尽管疫苗接种率很低，但该邦是印度所有邦中中共病毒最低的五个邦之一。2.41亿人口中只有3200万人接种了第二剂疫苗。
 
-仅在这条新闻公布后的一小时，班农就出现在他的战斗室并表示：“战斗室里没有哭声，有的只是与对手之间的搏击。”其间，班农没有对起诉书发表评论。
+印度政府上个月宣布，印度已经摆脱了中共病毒，治愈率上升至98.7%，充分证明伊维菌素对中共疫情的有效性。当然，媒体不会提及。
 
-无数的支持者都表示“我与班农站在一起”。
-
-新闻来源：[“I Stand With Steve Bannon” Shows Up On Twitter after Political Persecution](https://frontlineamerica.com/i-stand-with-steve-bannon-shows-up-on-twitter-after-political-persecution/)
+[文章来源](https://www.thegatewaypundit.com/2021/10/update-71-75-districts-uttar-pradesh-india-reported-no-covid-19-cases-24-hours-implementing-ivermectin-protocol/)
 
  
 

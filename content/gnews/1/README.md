@@ -2,135 +2,76 @@
 ---
 
 
-## 中国人可以合法购买喜币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660642/)
+## 中共国11个第一的其中三个第一
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660654/)
 
 **郭文贵
 Miles Guo**
 
-在全世界，中国政府说，不允许任何中国人去买喜币
-The Chinese government has announced the world that any Chinese people would not allowed to buy Hcoin
+刚刚做出的统计报告，我们中国获得了11个第一
+The Communist Party has just made a statistical report that China have won 11 firsts
 
-包括Coinbase，所有人都停止了
-All platforms including Coinbase have stopped Chinese users
+11个第一的第一个第一是什么呢？中国癌症人数官方数字450万，去年
+What is the first one of the 11 firsts? last year the official numbers of cancer in China are 4.5 million
 
-甚至未来中国政府会发出,所有的华人面孔
-Even in the future, the Chinese government will issue that all Chinese faces,
+实际官方人数1100万，一个所谓14亿人的中国
+The country with a so-called 1.4 billion Chinese people, the actual official cancer number of China is 11 million
 
-不管哪国护照都不能买（的禁令）
-regardless of what country their passport is
+大家记住我说的话，说到这我背上都发凉，我不知道你们啥感觉，
+Everyone remember what I said, I feel cold all over my back when I say this, I don’t know how you feel
 
-我可以告诉大家，今天没有人说出来
-I can tell you that there is no one has said this today
+一个国家1100万癌症，你想想这数字是多鲜活的生命，
+there are 11 million people suffer from cancer in a country, think about what a vivid lives these numbers are
 
-喜联储最大的价值，它就是接受中国人买
-The greatest value of the Himalaya Exchange is that it accepts Chinese people to buy
+哪个癌症的背后不是带着一个家庭两个家庭, 还要耗尽他所有的积蓄
+Behind every cancer patient is a family, two families, and all their savings.
 
-而且是合法的买
-It is legal to buy
+而且共产党的癌症药是美国的70倍到100倍啊
+And the Communist Party’s cancer drugs are 70 to 100 times more expensive than that of the United States
 
-而且能让世界所有金融机构承认，中国人买是合法的
-and it can be recognized by all financial institutions in the world that it is legal for Chinese people to buy
+说中国房地产，海外违约创历史新高，现在债务违约到280亿元已经过期的，
+Speaking of Chinese real estate, overseas defaults have reached a record high, with $28 billion of debt now in default
 
-因为我们会让你知道，共产党的政权是不合法的
-Because we will show you that the communist regime is not legitimate
+我们要面对着一个马上在30天内，一个2700亿到6000亿美元的间接和融资和票据贷款
+We have to face an indirect financing and bill loan of US$270 billion to US$600 billion within 30 days
 
-你们知道这意味着什么吗？
-Do you know what this means?
+历史第一，另外一个，据香港所谓的政府的某局
+It’s the first in history, the other one, according to a so-called certain government bureau in Hong Kong
 
-我们会拯救多少无辜的人
-How many innocent people we will save
+我不要说哪个人了，据统计，过去3个月，香港外籍人士撤离
+I don’t want to name anyone, according to statistics in the past 3 months, foreigners in Hong Kong have evacuated
 
-这不是钱的事情啊
-This is not about money
+从过去的每月的7000人，突然增加到11000人
+from the past 7,000 people per month, it suddenly increased to 11,000 people
 
-就像刚才我们跟海东兄弟我们俩共同的那个军队的哥们儿亲自打电话来
-Just like that Army buddy, a close friend of Haidong and I, called in person earlier
+特别是，这些大数的金融企业和高管企业这个全部移到了英国、新加坡和日本
+In particular, these large numbers of financial companies and executives have all moved to the UK, Singapore and Japan
 
-哇塞，这几年了，都让司机传话
-Wow, it’s been years, he always have his driver deliver message to me
+大量的外汇移出香港到日本，新加坡、英国
+A large amount of foreign exchange was moved out of Hong Kong to Japan, Singapore, and the United Kingdom
 
-今天（一反常态），他知道时日不多
-but today (contrary to the norm), he knows that his time is running out
+三地区的房地产指数涨了22%到27%
+The real estate index in these three regions rose 22% to 27%
 
-打台湾，不打台湾共产党都没球戏了
-Whether to have a war with Taiwan, the CCP has already out of game
+根据此现象结局下去，香港将在6个月以内
+Based on this trend going forward, Hong Kong will be within 6 months
 
-他就给海外的孩子留个出路
-He just wants to leave a way out for his children overseas
-
-我一说东弟都知道是谁，他还真没多少钱
-When I said that, Brother Dong knows who it is, he really does not have much money
-
-他真没多少钱，他都已经(放下架子)
-He really doesn’t have much money, he has already (pocketed his dignity)
-
-你看我跟海东都弄个什么什么币
-He said that look, Haidong has gotten coins
-
-我就不能弄个十万、八万的吗？是吧？
-Why wouldn’t I get an eighty or a hundred thousand? Right?
-
-我也不怕，就给孩子（弄点）什么的
-I’m not afraid of, just let the children get some
-
-你看兄弟我这也是给你做了不少事儿，是吧？
-Look, brother, I’ve done a lot for you, haven’t I?
-
-你看这种无奈，透露着他唯一的希望、信任
-Look at this helplessness, revealing his only hope and trust,
-
-他有喜币
-which are Hcoins
-
-咱过了一会儿以后咱再说
-Let’s talk about that later after the Hcoins being listed
-
-有种的，全世界，谁敢说你觉得喜币不行
-Who in the world dares to say Hcoin is not good
-
-喜币三大法宝
-The three major values of Hcoin
-
-在西方世界金融机构认可
-(First), (Hcoin) is recognized by financial institutions in the Western world
-
-第二，它所有的虚拟货币，所有的技术是世界上最好的
-Second, within all virtual currencies and its technology, Hcoin is the best in the world
-
-第三，它所有的区块链技术，还有有中心化的负责
-Third, its blockchain technology and its centralized
-
-是保值，最安全的
-are the most valuable and the safest
-
-这个不是我说的，是吧？
-I didn’t say this one, did I?
-
-这不是我说的，它是个必然的现象
-It’s not me for saying that, it’s a definite phenomenon
-
-所以说七哥能几十个小时处在兴奋状态中
-That’s why I could stay in excitement for a dozen of hours for talking about that
-
-这也是七哥几十年磨的剑
-This is the sword that I have sharpened for decades
+金融高管和外资的撤离，将导致香港真正的成为金融空港
+The withdrawal of financial executives and foreign capital will cause Hong Kong to truly become a financial empty port
 
 * * *
 
-Date: 11/05/2021
-原视频标题: 中国人可以合法购买喜币
-Chinese People Can Legally Buy Hcoins
-原视频日期：2021/11/03
-原视频链接：
-[https://twitter.com/se1y7cblljselva/status/1456194255790039042?s=24](https://twitter.com/se1y7cblljselva/status/1456194255790039042?s=24)
-任务编号：KC243（2772）
+Date:11/11/2021
+原视频标题: 中共国11个第一的其中三个第一
+Three of the 11 firsts of the Communist China
+原视频日期：2021/11/10
+原视频链接 [https://twitter.com/se1y7cblljselva/status/1458774264736550914?s=24](https://twitter.com/se1y7cblljselva/status/1458774264736550914?s=24)
+任务编号：KC244（2844）
 视频时间段 : 0:00-2:14
-英听校：洛杉矶盘古农场 – Mike Li
-翻译：洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – 天涯行
+字幕+视频制作：洛杉矶盘古农场 – 银龙
 发布：洛杉矶盘古农场 – 恩典
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
