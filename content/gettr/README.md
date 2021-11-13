@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/13/2021 1:22 AM (UTC)`
+
+11月12日：这是当年北京政泉公司和北京保利公司的总裁刘平签合约的照片，刘平是个好人，另外在我这两张牵着手的照片的另一个人……她曾改变了我的命运。另外一张的照片是我人生中关键的时刻在郑州的办公室……这个图中的工程会议是刘志华被抓以后的。最关键的工程会议之一…… <br/><br/>
+![img](https://media.gettr.com/group17/getter/2021/11/13/01/21/3fed47dc-41cd-2260-0d13-e356b9278f83/0d53748f25b9119cd06a57dca2e0521c.jpg)
+
+---
+
 `@miles 11/13/2021 12:53 AM (UTC)`
 
 11月12号：<br/>曾经那些牛叉的运动员……和商人们现在都成了共产党的牺牲品……这里面的人你认识几个？我喜欢，我在韩国工地时的感觉，我喜欢曾经和那些一起和我战斗的那些单纯的工程师们……美好的回忆不是吹出来的．也不是意淫出来的，过去可以证明了一个有信仰的人…和没有信仰的人，最终的人生结果会是什么样的不同！
@@ -287,13 +294,6 @@ The vaccination disaster has gradually become prominent: The patients in the ICU
 
 ...
 ![img](https://media.gettr.com/group23/origin/2021/11/08/16/6b89117c-d645-24ee-f0a1-8cfcde385805/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 11/8/2021 3:41 PM (UTC)`
-
-11月8号：七哥扎真真了……
-![img](https://media.gettr.com/group30/getter/2021/11/08/15/41/3db685f9-2104-dc98-dbe7-5dd538d15bce/out.jpg)
 
 ---
 
