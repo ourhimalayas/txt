@@ -15,112 +15,112 @@
 
 ---
 
-### [有声|满足三个条件，才能发挥喜联储真正价值](/content/gnews/1/README.md)
+### [有声|维也纳黔驴技穷 利用性服务引诱疫苗接种](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [11/12/2021 文贵直播：新中国联邦国防建设的部分资金必须来自战友们](/content/gnews/2/README.md)
+### [有声|蓬佩奥再次强调中共是敌人](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [有声|美联储担心中共地产危机影响美国](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [有声|满足三个条件，才能发挥喜联储真正价值](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [11/12/2021 文贵直播：新中国联邦国防建设的部分资金必须来自战友们](/content/gnews/5/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|李鑫的求救信](/content/gnews/3/README.md)
+### [有声|李鑫的求救信](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [加强针疫苗让教师减员，密歇根州镇政府关闭社区学校](/content/gnews/4/README.md)
+### [美国CDC承认：没有未接种疫苗者于康复后传播Covid的记录](/content/gnews/7/README.md)
+ ` 纽约香草山MOS02`
+
+### [加强针疫苗让教师减员，密歇根州镇政府关闭社区学校](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [遏制中共，推进经济安全合作 ！“四边机制”领导人第二次线下峰会将在日本召开](/content/gnews/5/README.md)
+### [遏制中共，推进经济安全合作 ！“四边机制”领导人第二次线下峰会将在日本召开](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [东芝公司宣布将拆分成为3家独立企业](/content/gnews/6/README.md)
+### [东芝公司宣布将拆分成为3家独立企业](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [应对中共，军事合作再升级！日本首次对澳军实施武装防卫](/content/gnews/7/README.md)
+### [应对中共，军事合作再升级！日本首次对澳军实施武装防卫](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [房地产压力接近临界！中共银保监会强调稳地价稳房价稳预期](/content/gnews/8/README.md)
+### [房地产压力接近临界！中共银保监会强调稳地价稳房价稳预期](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共疫苗灾难致大陆一线医护人员短缺](/content/gnews/9/README.md)
+### [中共疫苗灾难致大陆一线医护人员短缺](/content/gnews/13/README.md)
  ` 纽约香草山MOS01`
 
-### [特斯拉汽车公司创始人马丁·埃伯哈德在法庭协议中因拒绝选择特斯拉股票而错失亿万资本](/content/gnews/10/README.md)
+### [特斯拉汽车公司创始人马丁·埃伯哈德在法庭协议中因拒绝选择特斯拉股票而错失亿万资本](/content/gnews/14/README.md)
  ` 滴水穿石`
 
-### [11/12/2021 文贵直播：六中全会虽然加速了灭共，但也加大了对华人的威胁](/content/gnews/11/README.md)
+### [11/12/2021 文贵直播：六中全会虽然加速了灭共，但也加大了对华人的威胁](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [世界堕胎谋杀之都纽约市开设了 1000 个新冠病毒疫苗站点，在大屠杀仪式中为幼儿注射生物武器](/content/gnews/12/README.md)
+### [世界堕胎谋杀之都纽约市开设了 1000 个新冠病毒疫苗站点，在大屠杀仪式中为幼儿注射生物武器](/content/gnews/16/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [澳洲金融监管部门酝酿调控房市过热](/content/gnews/13/README.md)
+### [澳洲金融监管部门酝酿调控房市过热](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [与大流行前的平均水平相比，COVID-19疫苗导致的额外死亡人数增加了30%](/content/gnews/14/README.md)
+### [与大流行前的平均水平相比，COVID-19疫苗导致的额外死亡人数增加了30%](/content/gnews/18/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [有声|自由潜水员在接种新冠疫苗后被诊断为心肌炎](/content/gnews/15/README.md)
+### [有声|自由潜水员在接种新冠疫苗后被诊断为心肌炎](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [“不要接种”：毒理学家揭辉瑞疫苗如何获批(5/5)](/content/gnews/16/README.md)
+### [“不要接种”：毒理学家揭辉瑞疫苗如何获批(5/5)](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [难道国内又要弄涨价去库存，让房价大涨一波?](/content/gnews/17/README.md)
+### [难道国内又要弄涨价去库存，让房价大涨一波?](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“不要接种”：毒理学家揭辉瑞疫苗如何获批(3/5)](/content/gnews/18/README.md)
+### [“不要接种”：毒理学家揭辉瑞疫苗如何获批(3/5)](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [令人不安的心脏急症增加,这是怎么回事？](/content/gnews/19/README.md)
+### [令人不安的心脏急症增加,这是怎么回事？](/content/gnews/23/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [11/12/2021 文贵直播：习近平将因其下令放毒和推动疫苗而被追责](/content/gnews/20/README.md)
+### [11/12/2021 文贵直播：习近平将因其下令放毒和推动疫苗而被追责](/content/gnews/24/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共国对伊朗石油的采购量因价格下降和新的配额而回升](/content/gnews/21/README.md)
+### [中共国对伊朗石油的采购量因价格下降和新的配额而回升](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [“不要接种”：毒理学家揭辉瑞疫苗如何获批(4/5)](/content/gnews/22/README.md)
+### [“不要接种”：毒理学家揭辉瑞疫苗如何获批(4/5)](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [推特成立加密货币团队，探索去中心化的应用程序](/content/gnews/23/README.md)
+### [推特成立加密货币团队，探索去中心化的应用程序](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [“不要接种”：毒理学家揭辉瑞疫苗如何获批(1/5)](/content/gnews/24/README.md)
+### [“不要接种”：毒理学家揭辉瑞疫苗如何获批(1/5)](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|海豹突击队队员起诉美军方疫苗强制令](/content/gnews/25/README.md)
+### [有声|海豹突击队队员起诉美军方疫苗强制令](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [2021/11/11 墙内世界](/content/gnews/26/README.md)
+### [2021/11/11 墙内世界](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国疫苗强制可能迫使 12.3万人退出卫生保健行业](/content/gnews/27/README.md)
+### [英国疫苗强制可能迫使 12.3万人退出卫生保健行业](/content/gnews/31/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [万事达卡在亚太地区推出比特币支付卡](/content/gnews/28/README.md)
+### [万事达卡在亚太地区推出比特币支付卡](/content/gnews/32/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [“不要接种”：毒理学家揭辉瑞疫苗如何获批(2/5)](/content/gnews/29/README.md)
+### [“不要接种”：毒理学家揭辉瑞疫苗如何获批(2/5)](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [疫苗护照将社会变成反乌托邦的噩梦](/content/gnews/30/README.md)
+### [疫苗护照将社会变成反乌托邦的噩梦](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳医协主席威胁不接种疫苗将逃无可逃、孤苦终生](/content/gnews/31/README.md)
+### [澳医协主席威胁不接种疫苗将逃无可逃、孤苦终生](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [Hörbücher|Deutsche Bildungsministerin Fordert die Schließung aller Konfuzius-Institute](/content/gnews/32/README.md)
- ` MOSREC`
-
-### [2021年11月12日郭文贵先生大直播重点及概要](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
-
-### [乔丹彼得森说由于新冠限制“极权主义”困扰着加拿大和西方](/content/gnews/34/README.md)
- ` MG FARM`
-
-### [オーディオブック| ヒマラヤコイン:世界で最もクリーンで最も安全な暗号通貨](/content/gnews/35/README.md)
- ` MOSREC`
-
-### [有声|喜联储将以“零中介”改变现有交易规则](/content/gnews/36/README.md)
+### [Hörbücher|Deutsche Bildungsministerin Fordert die Schließung aller Konfuzius-Institute](/content/gnews/36/README.md)
  ` MOSREC`
 
 ### [2021年11月12日文贵先生直播小飞象大雨围城速记](/content/gnews/37/README.md)
