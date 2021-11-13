@@ -2,32 +2,34 @@
 ---
 
 
-## 美日会商钢铁关税协议 中共经济命脉又断一臂
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1660987/)
+## 白宫记者转战盖特继续爆料
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1660989/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-58.jpg)
-[图片来源](https://news.rthk.hk/rthk/ch/component/k2/1613471-20211004.htm)
+作者：纽约香草山佛教部-文一
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+今日，白宫记者埃默尔德-罗宾逊因爆料新冠疫苗的可疑成分，而被推特永久封号。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-13-下午9.49.16.png)
+消息称，上周，推特上流传了一条分析莫德纳新冠疫苗成分的推文，当中提及，莫德纳疫苗中含有一种可被追踪的酶。罗宾逊对该条推文表示肯定，并予以佐证分析。随后，推特封禁了罗宾逊的账号。
 
-据【哇哦！韩国网报道】11月13日，美国商务部长吉娜.雷蒙多和美国贸易代表（USTR）戴琪发布共同声明，宣布将与日本商谈解决两国的钢铁税和全球钢铁生产过剩的问题。
+遭推特封号后，罗宾逊转战盖特继续爆料，她的支持者也纷纷到其盖特账号下表示支持。有评论称，作为一个说真话的人，罗宾逊值得被人关注和支持，而盖特为罗宾逊提供了继续揭示真相的平台，支持者也愿意在盖特中继续关注罗宾逊。
 
-雷蒙多部长将于15日到18日访问日本、马来西亚、新加坡。届时与日本会谈的主题包括美国贸易扩展法第232条的应用，即通过232条（美国贸易扩张法）解决日本钢铁和铝分别征收25%和10%的问题，处理钢铁和铝的过剩生产的措施，以及其他两国关心的问题。上个月，美国已与欧盟以解决了钢铁关税争端问题。
+参考链接：
+1）[Newsmax under fire for COVID policy, silencing reporter who warned about ‘satanic’ jab ingredients](https://www.lifesitenews.com/news/748051/)
+2）[https://gettr.com/post/pg6822fa26](https://gettr.com/post/pg6822fa26)
 
-这次和日本的谈判结果，也将对韩国有所影响。为规避关税，韩国实施季度关税配额制，导致出口量只达到了平均出口量的70%，现美国希望通过协商，实施弹性政策以提高从美国进口钢铁和铝的数量。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-雷蒙多和戴琪还专门对中共钢铁业做出反应。两位官员强调，大部份钢铁产能过剩是由中共引起的，这种扭曲现象严重影响了美国的工业，甚至产生严重威胁。而这次日美会谈协议也是一个准则的象征，也是对像中共那样扭曲贸易规则的国家一个警醒和问责机制标准。对于美欧钢铁关税争端，两位官员指出，欧盟必须对炼钢实行严格的碳排放标准，美国只容许达到标准的制品进口。而这些发言被认为是试图阻止来自中共的不符合这些条件的钢铁采取的限制措施。
+总编：文真
+编辑：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-当前，美国国内钢铁和铝产量不足，导致价格高企，也进一步导致相关制造业成本升高，甚至大量裁员。美国虽然急需购买，但是却唯独不去向钢铁和铝的出口的中共国采购，而是转向中共国的周边市场，不难看出这是对中共的经济牵制与脱钩。对于长期依赖投资、消费和出口的中共经济而言，作为全球最大钢铁生产地，中共国占全球钢铁总产值56.07%，失掉美国这个市场，中共经济无疑将遭受严重打击。同时，与钢铁产业相关行业的破产和下岗潮也会如期而至。不久后，中共的坍塌已可预见。
-
-信息来源：
-
-**[米国「日本と鉄鋼関税を協議」…中国鉄鋼産業の「けん制」を示唆](https://gunosy.com/articles/e64pi?s=s)**
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-77.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

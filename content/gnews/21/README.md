@@ -2,171 +2,31 @@
 ---
 
 
-## 视频| 新中国联邦带来金融界虚拟货币的新时代
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1661058/)
+## 有声|高疫苗接种率的欧洲各国中共病毒病例激增
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1661088/)
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据[零对冲](https://www.zerohedge.com/covid-19/despite-vaccine-passport-schemes-covid-cases-surging-across-europe)11月11日报道，尽管许多欧洲国家都实现了高疫苗接种率并施行了疫苗护照计划，但是欧洲各地在没有出现新的病毒变种的情况下，中共病毒病例再次激增。
 
-制作：香草山视频部
+尽管德国、荷兰、奥地利、瑞士、意大利和法国等大多数国家大量使用疫苗护照，且疫苗覆盖率很高，但是这个秋季，中共病毒的感染仍然急速增长，其病例在德国首次突破5万大关，在奥地利、荷兰、丹麦、德国、瑞士和挪威也都出现了高峰，同时，在法国、葡萄牙和意大利也初现端倪。
 
+然而，与其他欧洲国家相比，瑞典的中共病毒病例和死亡人数却很低。在瑞典，从未实行过硬性封锁，也没有疫苗护照计划或强制戴口罩，并宣布大流行病已经结束。
 
+威尔·琼斯认为，现在，“群体免疫”的存在本身是一种“危险的阴谋论”。也许上面的图表可以说明一些问题。
 
-我们新中国联邦也好
+文字版原文：[高疫苗接种率的欧洲各国中共病毒病例激增](https://gnews.org/zh-hans/1656750/)
 
-我们所有的战友们要记住
-
-我们面临着世界上前所未有的
-
-几个大的机会
-
-这个机会是跟时间和时机
-
-我们几乎是人类上千年不遇的
-
-叫做新世界金融时代的诞生
-
-就叫做虚拟货币
-
-这个大家一定要记住这个词
-
-而且我们是走在最前面、最核心的
-
-技术是全世界最好的
-
-系统是全世界最完美的
-
-而且我们现在战友们拥有了6亿个币
-
-这6亿个币到下一个
-
-你有机会拿到的币
-
-还有11个月的时间
-
-这个时间你要记住
-
-你第一次拥有的币
-
-和第二次拥有币的时间
-
-也就是整个新世界金融系统的诞生
-
-整个人类
-
-没有任何人怀疑说
-
-还有机会说这个虚拟货币没有了
-
-是不可能的
-
-虚拟货币的数字货币世界的诞生
-
-永远别忘了，第一个
-
-由于时间，还有给我们的时机
-
-人类上千年不遇的
-
-金融的新系统的诞生
-
-你们是最前面的
-
-而且手里是已经有币的
-
-包括有G-Club、G-Fashion
-
-你们一定要记住
-
-这都和你的命运连在一起的
-
-包括GTV、GETTR
-
-这都是跟你们连在一起的
-
-你是前所未有的
-
-你可不要想
-
-这个币连着太多了
-
-第二个大家要记住的
-
-我们战友们拥有了
-
-前所未有的另外一个大时机
-
-就是共产党制造了生化病毒、疫苗灾难
-
-人类要死好多人
-
-才创造了一个新的国际
-
-叫做“人类大秩序”
-
-信仰重建、政治重建、国际社会重建
-
-你觉得联合国现在还有用吗？
-
-联合国还有用吗？
-
-还有谁在乎联合国，是不是？
-
-整个一切都将重组的时候
-
-我们走在了全世界最前面
-
-冠状病毒，我们走对了
-
-疫苗灾难，我们提前说了
-
-解药，我们提前讲了
-
-我们又没打疫苗
-
-这简直是神话中的神话
-
-你珍惜吧
-
-第三个机会，没有任何人相信
-
-共产主义会受到彻底消灭和打击
-
-你看到六中全会
-
-你看到现在整个世界
-
-共产党唯一受打击的是我们
-
-我们是人类上唯一一个
-
-敢与邪恶的势力斗争的群体
-
-它未来受到的尊重和影响
-
-不是钱能明白的
-
-我们是全世界被尊重和保养的
-
-比大熊猫还珍惜的人类
-
-你不要错失了这个机会
-
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

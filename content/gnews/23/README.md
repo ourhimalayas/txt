@@ -2,34 +2,171 @@
 ---
 
 
-## 中共持续迫害藏人
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661037/)
+## 视频| 新中国联邦带来金融界虚拟货币的新时代
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1661058/)
 
-作者：澳喜农场 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月12日，相关媒体报道显示，中共当局正在压制藏族儿童使用藏语的权利。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-13-下午10.09.05.png)
-报道称，藏族儿童通常在校外上课时使用母语，但中共目前禁止藏族儿童进行课外学习。为此，中共当局要求全藏区的教师遵守这一规定，否则他们将面临严重的法律后果和惩罚。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-此外，中共青海政府还强迫年轻的西藏僧侣离开寺院，将他们强行送回家。报道提及，青海达扎寺11至15岁的僧人被陆续驱逐出寺。
+制作：香草山视频部
 
-消息人士称，长期以来，中共一直试图限制藏传佛教寺院的规模和影响，同时企图消灭西藏地区的语言和文化，其目的在于，让藏民脱离自己的信仰，更容易被中共洗脑控制。
 
-参考链接：[专栏 | 西藏纵览：中国当局禁止藏族儿童学习藏语并驱离寺院年轻喇嘛](https://www.rfa.org/mandarin/zhuanlan/xizangzonglan/tibet-11122021104816.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+我们新中国联邦也好
 
-总编：Irene木木
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+我们所有的战友们要记住
+
+我们面临着世界上前所未有的
+
+几个大的机会
+
+这个机会是跟时间和时机
+
+我们几乎是人类上千年不遇的
+
+叫做新世界金融时代的诞生
+
+就叫做虚拟货币
+
+这个大家一定要记住这个词
+
+而且我们是走在最前面、最核心的
+
+技术是全世界最好的
+
+系统是全世界最完美的
+
+而且我们现在战友们拥有了6亿个币
+
+这6亿个币到下一个
+
+你有机会拿到的币
+
+还有11个月的时间
+
+这个时间你要记住
+
+你第一次拥有的币
+
+和第二次拥有币的时间
+
+也就是整个新世界金融系统的诞生
+
+整个人类
+
+没有任何人怀疑说
+
+还有机会说这个虚拟货币没有了
+
+是不可能的
+
+虚拟货币的数字货币世界的诞生
+
+永远别忘了，第一个
+
+由于时间，还有给我们的时机
+
+人类上千年不遇的
+
+金融的新系统的诞生
+
+你们是最前面的
+
+而且手里是已经有币的
+
+包括有G-Club、G-Fashion
+
+你们一定要记住
+
+这都和你的命运连在一起的
+
+包括GTV、GETTR
+
+这都是跟你们连在一起的
+
+你是前所未有的
+
+你可不要想
+
+这个币连着太多了
+
+第二个大家要记住的
+
+我们战友们拥有了
+
+前所未有的另外一个大时机
+
+就是共产党制造了生化病毒、疫苗灾难
+
+人类要死好多人
+
+才创造了一个新的国际
+
+叫做“人类大秩序”
+
+信仰重建、政治重建、国际社会重建
+
+你觉得联合国现在还有用吗？
+
+联合国还有用吗？
+
+还有谁在乎联合国，是不是？
+
+整个一切都将重组的时候
+
+我们走在了全世界最前面
+
+冠状病毒，我们走对了
+
+疫苗灾难，我们提前说了
+
+解药，我们提前讲了
+
+我们又没打疫苗
+
+这简直是神话中的神话
+
+你珍惜吧
+
+第三个机会，没有任何人相信
+
+共产主义会受到彻底消灭和打击
+
+你看到六中全会
+
+你看到现在整个世界
+
+共产党唯一受打击的是我们
+
+我们是人类上唯一一个
+
+敢与邪恶的势力斗争的群体
+
+它未来受到的尊重和影响
+
+不是钱能明白的
+
+我们是全世界被尊重和保养的
+
+比大熊猫还珍惜的人类
+
+你不要错失了这个机会
+
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
