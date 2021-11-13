@@ -2,54 +2,29 @@
 ---
 
 
-## 2021/11/12 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1661171/)
+## 有声|布林肯：若中共攻台，美国和盟友将“采取行动”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1661206/)
 
-一、11月11日，湖北武汉，一外卖女骑手跳长江自杀引发网络关注。
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+11月10日，美国国务卿布林肯在一个论坛上被问及台湾问题时表示，如果中共使用武力改变台湾现状，美国及其盟友将采取“行动”。
 
-二、 11月12日，河南郑州，一外卖骑手被拍到凌晨在地下通道的电动车上睡觉。中共所谓的经济发达是来自对一部分人的极度剥削，谁敢保证你不会是下一个？
+布林肯重申了美国政府的一贯声明，即华盛顿既要确保台湾有能力进行自卫，同时也决心确保维护该地区的和平与稳定。
 
-三、11月9日，一男子办事因未打疫苗被保安禁止通行，被要求出示不能接种疫苗证明。
+布林肯还说，不只是美国，无论台湾还是其他国家或地区，对于任何使用武力破坏现状的单方面行动，都会采取行动，以保证地区的和平与安全。但布林肯并未透露具体会采取什么行动。
 
-四、男子加油站加油，120升油箱加了161升还没加满！
+文字版原文：[布林肯：若中共攻台，美国和盟友将“采取行动”](https://gnews.org/zh-hans/1657988/)
 
-五、11月4日，河南郑州，鸡蛋里面吃出一根“绳”，视频拍摄者怀疑是网络流传的人造化学合成鸡蛋。
-
-六、食品安全落实上政府永远缺位，地沟油（回收油）在市场上肆虐。
-
-七、高速公路货车司机怕偷油、怕偷货不敢下车。保障道路安全政府份内职能未做到位，竟还有脸推出指导意见？
-
-八、11月10日，江西南昌，小车失控冲向非机动车道 致一死一伤。
-
-九、一女子街头被拍到捡拾剩菜落魄一幕，在被中共号称已全面摆脱贫困的共产主义社会。
-
-十、以打击诈骗的名义，一夜之间数十万公民的银行卡会被莫名销户。
-
-十一、 “门磁系统”——让中共监控居民更便利高效。
-
-十二、11月9日，浙江杭州，男子就餐时突然昏迷！
-
-十三、贵州遵义，老人路上突然晕倒。
-
-十四、11月5日，宁波北仑，女子医院门口突然晕厥倒地。
-
-十五、11月5日，金华武义，一名女婴被遗弃在凉亭，脐带还未剪断。
-
-***搜集**： Mr. Burns , Filon; **翻译**：瞌睡猫; **校对: **yyshere*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,43 +2,77 @@
 ---
 
 
-## 教皇方济各表示全球重置是真实的，没有“回归正常”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1661734/)
+## 【诗歌】临冬
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1661770/)
 
-**【简评：】***维加诺（Carlo Maria Viganò）大主教：“这么多红衣主教和主教的沉默，以及教廷对疫苗接种运动的不可思议的推动，代表了一种前所未有的共谋，不能再继续下去了。有必要谴责这一丑闻，这一反人类的罪行，这一反对上帝的邪恶行动。”*
+**作者：修罗闻道**
 
-《breitbart.com》 作者：Thomas D. Williams，2021年11月11日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-258-e1636834078470.png)图片来源： (Photo by YARA NARDI/POOL/AFP via Getty Images)
-2021年11月4日，教皇弗朗西斯在梵蒂冈的圣彼得大教堂举行弥撒，向今年去世的主教和红衣主教致敬。
+[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/ca0f4fe5-0885-4586-a377-08864b5f5b6f.jpg?asset_id=4748bedd-be58-46f1-8d0c-0484c7427b48&amp;img_etag=%2246b44a3c574e50b7e9e9cf279d6d787a%22&amp;size=2560)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/ca0f4fe5-0885-4586-a377-08864b5f5b6f.jpg?asset_id=4748bedd-be58-46f1-8d0c-0484c7427b48&amp;img_etag=%2246b44a3c574e50b7e9e9cf279d6d787a%22&amp;size=1024)
 
-**罗马教皇方济各周一断言，人类需要一次全球重启，因为不值得回到过去不公正的、大流行前的世界。**
+这一年仿佛是残缺的
 
-在给巴黎和平论坛的致辞中，教皇描绘了一个由腐败、战争和资本主义压迫主导的新冠病毒前世界的可怕景象。
+秋天还没来得及挣扎
 
-**方济各说：“在大流行病之前，我们知道的现实情况是，财富和经济增长只属于少数人，而数百万人无法满足最基本的需求，无法过上有尊严的生活，在这个世界上，我们的地球被短视的资源开发、污染、‘一次性’消费主义所掠夺，被战争和大规模毁灭性武器的实验所伤害。”**
+就被迅速抹杀
 
-“恢复正常也意味着回到由自给自足、民族主义、保护主义、个人主义和孤立所激发的旧的社会结构，”他补充说，“这种社会排斥我们最贫穷的兄弟姐妹。这是我们可以选择的未来吗？”
+从夏热到冬寒
 
-**“在这个全球化但又撕裂的世界里，我们今天为摆脱危机所做的决定决定了未来几代人的‘路线’，”他宣称，因此“我们需要一条新的出路，比以前走得更好”。**
+一瞬间
 
-“希望邀请我们做个伟大的梦想，给新的可能性提供想象空间，”他说：“希望是大胆的，并激励我们在认识到现实可以改变的基础上采取行动。”
+这一世仿佛是梦幻的
 
-教皇对新世界的愿景始于“有利于整体裁军的具体集体承诺”，他指出。“世界军事开支现在已经超过了‘冷战’结束时的程度，而且每年都在有计划地增加”。
+繁荣鼎盛锣鼓喧天
 
-文章来源：
+转瞬间愁容惨淡
 
-[https://www.breitbart.com/economy/2021/11/11/pope-francis-says-global-reset-is-real-no-return-to-normality-after-the-pandemic/](https://www.breitbart.com/economy/2021/11/11/pope-francis-says-global-reset-is-real-no-return-to-normality-after-the-pandemic/)
+盛世到炼狱
 
-翻译：洛杉矶盘古农场–Mike Li
-校对：洛杉矶盘古农场–轰炸机
-评论：洛杉矶盘古农场–Mike Li
-编辑：洛杉矶盘古农场–心照
+一路骗
 
+他们先将自己欺骗
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+再去欺骗
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+相信他们的人
+
+周而复始
+
+他们要欺骗全世界
+
+可临冬的寒冷
+
+不会被欺骗
+
+也不会去欺骗
+
+整个世界
+
+只有冷
+
+冷的真实
+
+不虚伪
+
+无论你想共产
+
+还是想特色
+
+在寒冬里
+
+只有瑟瑟发抖
+
+等待审判
+[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/c767eaed-2e9d-4cd8-9ef2-5a41e5e4f85a.png?asset_id=e1ac15f4-cf69-4de3-8393-583fbf4c1608&amp;img_etag=%22a1a3e4a1050ad02b89de5004bf3a9559%22&amp;size=2560)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/c767eaed-2e9d-4cd8-9ef2-5a41e5e4f85a.png?asset_id=e1ac15f4-cf69-4de3-8393-583fbf4c1608&amp;img_etag=%22a1a3e4a1050ad02b89de5004bf3a9559%22&amp;size=1024)
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*校对：穆清|审核：文明明| Page：小六月*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+
 
  
 
