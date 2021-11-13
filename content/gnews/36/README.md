@@ -2,46 +2,28 @@
 ---
 
 
-## 迈阿密向居民发放虚拟币收益
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1660633/)
+## 秘翻在线：六中全会后习拜视频会晤将释放什么信号？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1660647/)
 
-作者： 英国喜庄园 I770775
+**撰稿：Ping**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/20211113fbc05a.jpg)
+2021年11月13日，国务委员兼外长王毅应约同美国国务卿布林肯通电话，并强调习近平主席同拜登总统将于11月16日举行视频会晤。这次举世瞩目的会晤不仅是中美关系的一件大事，也是国际关系的一件大事。布林肯表示，美方期待在会晤中本着相互尊重的精神与中方分享对双边关系的看法，共同向世界发出强有力的信号。
 
+早在11月10日时，美中关系全国委员会年会上，习拜分别寄贺信，习近平就表明“当前，中美关系正处于重要历史关口，两国合则两利、斗则俱伤，合作是唯一正确选择。” 就当前中美国国际关系，中共方的发言都充满了强硬的口气，无不突显出中共的在此次谈判中的绝对优势。中共也摆出了绝对的国际霸主地位，但是事实是如此么？
 
+11月12日郭先生直播中着重解读了此次习拜通话的目的和原因。郭先生说，拜登政府放低姿态的原因，是为了明年的中期选举。中共病毒已经使得美国的供应链断裂，美国需要中共国便宜的产品，衣服，鞋子等。中共恒大的暴雷，债务无法偿还，其结果就是引发美国的经济危机，从而影响拜登政府的中期选举。美国给中共跪下来完全是拜登政府的政治需要。而作为民主国家的美国人民会答应吗？郭先生多次提到美国的伟大，在于美国的法律和民主制度，这不是拜登政府可以决定美国人民的根本利益的。拜登想借助中共的经济支撑美国虚假繁荣到明年中期选举，而以这种卑躬屈膝的行为必定引起民怨，更会激起美国人民的反共浪潮！
 
-11月11日，美国迈阿密市市长苏亚雷斯宣布，该市将直接向居民发放比特币收益作为股息红利，其收益来自迈阿密城市加密货币 MiamiCoin 的抵押。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2021.11.13AM-PICTURES-1-12图片备用.004.jpeg)
-资料显示，迈阿密城市加密货币 MiamiCoin 于今年年初推出。在过去三个月中，该加密货币为迈阿密赚取了超过 两千一百万美元的收益，相当于迈阿密每年税收总额的五分之一。
+反共是爆料革命的使命，虽然拜登与中共勾兑，会引起所以西方发达国家右派政党的反共情绪，但是也会给海外华人带来灾难。这是郭先生最为忧心的事情，也为此专门召开新中国联邦国防会议，以保护爆料革命的每一位战友和海外华人。
 
-苏亚雷斯补充，从长远来看，加密货币的使用将是革命性的。该市将与各种加密货币交易所合作，允许当地居民注册并验证加密货币交易系统，使得居民可以通过数字钱包进行交易。
+在双方通话中王毅就台海问题强调，“台独”是台海和平稳定的最大威胁，如果美方真想维护台海和平，就应当明确、坚定地反对任何“台独”行径，就应当信守在中美三个联合公报中作出的郑重承诺，就应当把一个中国政策落实到行动上，不再向“台独”势力发出错误信号。
 
-对此，郭先生在直播中强调，虚拟货币是未来经济发展的趋势，新的经济秩序、社会秩序以及国际秩序也将因此重建。
+美国作为世界超级大国，引领着整个世界的民主国家。但是拜登政府却与独裁国家中共勾兑，以牺牲台湾这个民主国家来换取美国短暂的虚假经济繁荣。台湾是华人的民主国家，他传承了真正的中华传统文化，是中华文明的唯一一块净土。中共已经荼毒残害中共老百姓70年，如今又企图把台湾当成与美国勾兑的筹码。甚为台湾同胞担忧，作为爆料革命的一份子，我们必须不遗余力的传播爆料革命真相，团结世界一切正义力量尽早铲除邪恶共产党，还世界晴朗乾坤！
 
-参考链接：
-
-1. [美国迈阿密市长宣布将向市民发放比特币收益](https://www.chainnews.com/articles/058903220202.htm)
-2. [Miami Mayor: Residents Will Get Digital Wallets For ‘Bitcoin Dividend’](https://www.forbes.com/sites/lisakim/2021/11/11/miami-mayor-residents-will-get-digital-wallets-for-bitcoin-dividend/?sh=757a7f5350c8)
-3. [Crypto tax: ‘MiamiCoin’ has made the city $7 million so far, a potential game-changer for revenue collection](https://www.washingtonpost.com/technology/2021/09/30/crypto-miamicoin/)
-4. [MiamiCoin – CityCoins](https://www.citycoins.co/miamicoin)
-5. [MiamiCoin to USD Chart](https://coinmarketcap.com/currencies/miamicoin/)
+**[新闻来源](https://news.sina.cn/gn/2021-11-13/detail-iktzqtyu7069563.d.html?sinawapsharesource=newsapp&amp;wm=320)**
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
-
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

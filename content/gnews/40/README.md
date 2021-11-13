@@ -2,24 +2,41 @@
 ---
 
 
-## 美国公司和投资者持续投资中共国半导体行业
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1660611/)
+## 爆料革命面临着历史上最大的机遇
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1660630/)
 
-#### 撰稿：彩虹
+作者： 英国喜庄园 I770775
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-3-3.jpg)图片来源：Techstartup
-11月12日，《新闻极限》（Newsmax）引述《华尔街日报》报道，虽然拜登政府对国家安全有担忧，但众多美国公司及其在中共国的附属公司仍然继续投资于中共国的半导体行业。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-今年7月份，现任白宫国家安全顾问杰克·苏利文（Jake Sullivan）表示，拜登政府正在“研究美国对外投资流动的影响，这些投资可能规避了出口管制的精神，或以其他方式提高我们竞争对手的技术能力，从而损害我们的国家安全”。
 
-但是，尽管如此，美国营利性智库荣鼎咨询(Rhodium Group)研究公司发现，在2017年到2020年的三年时间里，超过50笔涉及到中共国半导体行业的投资交易，其中包括英特尔公司（Intel），它投资了中共国公司概伦电子（Primarius Technologies Co），其他投资者包括硅谷风险投资公司光速创投（Lightspeed Venture Partners）、红杉资本（Sequoia Capital）、经纬创投（Matrix Partners）和红点投资（Redpoint Ventures），从去年年初以来，这些公司对中共国的芯片产业又进行了60多项投资。
 
-《华尔街日报》指出，尽管这些公司在大多数情况下没有披露投资金额，但研究表明，中共国的半导体初创企业可能已经筹集了几十亿美元。
+在11月12日的大直播中，郭文贵先生向战友们解释，爆料革命正面临着人类历史上最大的机遇：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2021.11.13AM-PICTURES-1-12图片备用.001.jpeg)
+首先，是千年不遇的金融机遇。由于虚拟货币时代的到来，世界产生了新的金融系统，喜币在这样的时机下，让战友走在人类金融历史的最前沿；
 
-**新闻来源**
+其次，因为共产党制造的生化病毒及疫苗灾难，将导致人类政治形态和信仰的重建，而爆料革命战友会成为世界上唯一的“无苗族” 。
 
-[US Firms Investing in Chinese Chip Makers Despite Security Concerns](https://www.newsmax.com/newsfront/us-firms-investment-china-semiconductors/2021/11/12/id/1044445/)
+最重要的是，爆料革命战友是全人类唯一敢于与世界上最邪恶的组织对抗的群体 ，是世界上最受尊重的人类群体。
+
+郭先生提醒，爆料革命正在引领世界的走向，战友们要珍惜机会，抓住机遇。
+
+参考链接：[2021年11月12日 文贵大直播：2）新国际大秩序，全世界消灭共产主义的时机中，如何智慧理财投资](https://gtv.org/video/id=618e6c5fe7e770379233c262)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

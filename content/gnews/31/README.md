@@ -2,135 +2,35 @@
 ---
 
 
-## 喜联储的所有权是新中国联邦人的财产
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660694/)
+## 习命太硬
+` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1660784/)
 
-**郭文贵
-Miles Guo**
+By：银行勇气星｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-57.jpg)图：骄子
+习近平在文化大革命中，三次被抓进少管所。在少管所里因为半个馍馍让人打个半死，还被拿鞋底抽脸。后来又有那么几次，几乎都被打得差点就能当场去世。在梁家河被拖拉机撞到脖子，差点撞死，没死捡到一条命但是生命时时刻刻处在危险中。习的肉体几乎被折磨殆尽，精神上的伤害却远远比肉体折磨更加痛苦，父亲当着他的面食屎，姐姐在他面前上吊自杀，就单单这两件事拿一件出来，都不是普通心理承受能力可以应对的。这些也仅仅是他68岁生涯中的一小部分，更多的苦痛折磨也许只有他自己知道。
 
-喜币和喜联储所有的未来
-The future of HCoin and Himalaya Reserve
+![](https://assets.gnews.org/wp-content/uploads/2021/11/srchttp-_img.bimg_.126.net_photo_XGewpX0-kAqRRSU3W7HfuQ_333547847419079759.jpgreferhttp-_img.bimg_.126.netapp2002sizef999910000qa80n0g0nfmtjpeg.jpg)图源：网路
 
-它的拥有权是新中国联邦人千秋万代的财产
-and its ownership will be the property of the New Federal State of China for thousands of generations
+习的这些经历，在独裁国家比惨烈比悲壮这一项来看，他当之无愧这个皇帝。文化大革命到底有多少人被这么残酷地折磨过，有多少人的家人亲人，忍受不了这样的痛苦而死去。这种仇恨，真得不是那么简单就会化解掉的。以前看那种武侠小说，里面常见的桥段就是主角为了报杀父之仇，几十年磨一剑，最后终于把仇人给杀了。仅仅是一个杀父之仇，就可以让一个人那样坚持，成为武林盟主，成为帮派邪教头目，这些别人看来一人之下万人之上的头衔只不过是一个他行走江湖的方便，主要目的还是要杀掉那个仇人。习有点像这个路子，就算他不当皇帝，只要他没死，他心里的仇恨不会凭空消亡的。江曾朱当初看上他“可控”，让他来做这个皇帝，这就是给他搭台子了，复仇计划随即开始。
 
-谁加入新中国联邦现在，谁都有资格分
-Whoever joins the New Federal State of China is now eligible for a share
+习当上皇帝没多久，发现不过瘾，把千秋万代写进了宪法里。凭什么呢？就凭他死那么多次都没死掉，还活着，活得好着呢。一个人的生命只有一次，但是在习这里，无数次验证了生命之神对他的垂怜。人吧，总是会有那种自信，尤其像习这种岁数的人，就最喜欢回忆往事，不回忆还没什么，一回忆吓一跳，原来曾经有那么多次和死神擦肩。后背一发抖，再摸摸龙椅扶手，啊，我是天选之人，我有老天护佑，我就是神，绝对的神。以前真得不太懂为什么习会如此执着于去成为那个一统台湾的人，执着于复仇，看不上川普，看不上中国老百姓，随随便便就可以杀掉老百姓，从他的家庭背景和人生经历来看，他要不这样，就真奇了怪了。七哥总是开玩笑让大家读弗洛伊德，还没有读完，但是觉得这个书可能给到了一些解释，心理上的那种磨难障碍，除非你有强大的意志力，否则几乎是不可能战胜的。
 
-一定会有的，我承诺
-You will have the shares, I promise
+![](https://assets.gnews.org/wp-content/uploads/2021/11/srchttp-_s8.sinaimg.cn_mw690_5d5f9c30tdc6b51d397a7690referhttp-_s8.sinaimg.cnapp2002sizef999910000qa80n0g0nfmtjpeg.jpg)弗洛伊德 / 图源：网路
 
-只是多少咱要根据法律，根据未来的比例来分
-Its just when comes to how many, we have to distribute it according to the law and based on the future ratio
+这厢习做了皇帝几年后，风生水起开始报仇了。那厢文贵先生也开始了爆料革命。所以老天到底是什么？哈哈。习在东边铲除他的仇人共产党，文贵先生在西边也要消灭全人类的仇人共产党。人和人还是有差距的，习，他知道是共产党害得他家破人亡，父亲食屎，姐姐上吊，自己被打半死，当年那些害过他的人他都要全部杀光，包括那些有牵连的人，当年他们就是这样对付他的。从受害者成为施暴者，不要觉得他有多么不高尚，不智慧，他这事儿放在普通人身上来这么一件，都是无法承受的，早死了，哪里还能像他这样活着，还要亲自手刃仇人。他永远都是要杀掉那些具体的某个人，那些人都是因为共产党的体制一个一个变成了恶魔，只要这个体制存在，所有人都会变成杀人者，所有人也都会变成受害者，所有人都没有活路。习也许知道，但是于他的复仇大业来说，目前这个体制是最好的体制。文贵先生本人和家人也受到了共产党的极大折磨，很多很多战友的家人也是如此，有的时候真的感觉上天真得有在帮我们。在共产党统治的中共国这里，被如此惨烈的折磨过还想着要去灭掉共产党，而不是说仅仅去灭掉那个亲自动手施暴的人，这搁古代，有这个觉悟，祖坟是要冒青烟的。怎么让这么多战友祖坟上集体冒青烟？那难道不是上天在帮我们吗？
 
-然后喜币真正的价格，就是刚才说的这几个条件成熟后
-它是真正的价格
-Then, HCoin reflecting its real price will be after those couple of conditions mentioned earlier mature
+未来几个月内将会掀起全世界的反对共产党的浪潮，这些浪潮中一定有分不清共产党和中国人的，排华浪潮也会接踵而至。世界上的人都是普通人，武侠小说里可以为了杀父之仇贯穿整本书，那那些被共产党的生物武器病毒和毒疫苗害死家人的国外老百姓，他要去杀一个附近的华人面孔复仇，又有什么不对呢？所以新中国联邦一定要建立自己的国防力量，保护战友，保护华人。毕竟国外老百姓家里祖坟上又没有冒青烟，哪能分得清共产党和中国人？如果冒了青烟，按理说早都是战友了，起码也能分得清共产党不等于中国人。打疫苗一定有他自己的原因，有社交媒体的原因，但始作俑者是共产党。有的人找社交媒体报仇，有的人找共产党报仇，有的人找和共产党长得差不多的华人报仇，每个人的认知都有限。就连习，他知道是共产党害死他家人，他都没说要推翻共产党这个邪魔制度，他选择屠杀那些共产党的魔爪，那些魔爪砍掉还会长出新的，不杀掉本体，没有用的。这个也许就是是人伦和自然之间的逻辑，因为抓不住重点，一定会有无辜的人丧命。
 
-到那个时候交易量就会放开了
-By that time, its trading volume will expand
-
-现在交易量还没有那么大，没人卖关键是
-The current trading volume is not so large, but the key point is that no one is selling it right now
-
-到那时候，交易量什么时候会放开呢
-When that point is reached, the trading volume will be active
-
-战友们，那时候就是你的期望值达到的时候
-Comrades, that will be the time that your expectations are met
-
-是这个0000的时候
-which is when you see the 0 0 0 0
-
-你觉得我卖了，我不会太后悔
-and you won’t regret after selling
-
-你像三天前谁卖的，1块钱2块钱那个（卖单）
-Like that individual who sold his HCoin for $1 or $2 a share three days ago
-
-那个唐平（提醒的）是很对的，我很感激
-The reminder from Tang Ping is very right, I am grateful
-
-他上来赶快套了28万美元跑了那个
-That individual who came in quickly cashed out $280,000
-
-是吧？战友们
-right? Comrades,
-
-他会后悔一辈子
-He will regret it for the rest of his life
-
-终生不可能再买回来，永远不会了
-He cannot buy them back (with that price) again, never
-
-我希望战友，你等着自己别后悔的时候
-I hope that comrades can wait until the time that you will not regret it after selling it
-
-就是最起码你卖出去，再涨几倍，我不后悔
-At the very least, the price of HCoin jumps a couple of times after I sold them, I don’t regret it.
-
-因为我觉得涨了这么多倍了，是吧？
-After all, it’s gone up so many folds, hasn’t it?
-
-这几个事（发生）之后
-After these few things (happen)
-
-战友们会有一些人让出个千分之一，万分之一
-there are some people among our comrades who would sell a thousandth or a ten-thousandth of their coins in the future
-
-然后就获得今天让出你100%（喜币）的财富的时候
-which they could get in return 100% of the coins they own now
-
-交易量会咔咔就起来
-The trading volume will skyrocket
-
-这时候就到了明年了，明年有新的十亿币出来
-That moment would be next year when another one billion new HCoins come out
-
-大概二十亿币的时候，这个交易量才能活跃起来
-It takes about two billion coins for this trading volume to skyrocket
-
-没有人卖，谁也不卖现在
-No one is selling it now
-
-谁一说卖就跟你急，嗷嗷叫唤
-You ask him to sell (the HCoins)? he will be angry with you, screaming
-
-你看国内的战友，我说你上市场上卖
-There was a domestic comrade, I said they could sell it on the market
-
-他要捐十万（喜币），我说你卖去吧
-Because they wanted to donate 100,000 Hcoins, I told them they could sell it
-
-七哥你不能说，我捐可以，我不要卖，你别这么说我
-“Miles, you cannot say that, I can donate but I do not want to sell”
-
-嗷嗷叫，我说不卖不卖不卖
-(He was not happy about that) screaming. I said, “alright, you are not selling it”
-
-是吧，你可以捐也可以不卖
-Right, you can do whatever you want
+文贵先生说习神不懂人伦之间和自然之间的逻辑，可能也在说习确定了自己就是神，自己永远不会死，但是生命只有一次，躲得过那么多次，只要有一次没躲过，一切结束。对战友来说也是这样，如果有排华事件，国防保护是一方面，另一方面是自救，是建立真正的信仰。马云就是个例子。
 
 * * *
 
-Date: 11/07/2021
-原视频标题: 喜联储的所有权是新中国联邦人的财产
-The ownership of the Himalaya Reserve is the property of the New Federal State of China
-原视频日期：2021/11/03
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1456639452349014017?s=24](https://twitter.com/se1y7cblljselva/status/1456639452349014017?s=24)
-任务编号：2788
-视频时间段 : 0:00-1:54
-英听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校: 洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+作者：骄子
+审核：兵嫂
+发布：骄子
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

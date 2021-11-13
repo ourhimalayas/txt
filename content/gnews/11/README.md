@@ -2,42 +2,34 @@
 ---
 
 
-## 中共病毒疫苗导致严重心脑血管疾病！日本专家研究也已证实
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1660907/)
+## 白宫记者转战盖特继续爆料
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1660989/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-70.jpg)
-[图片来源](https://mainichi.jp/articles/20210707/k00/00m/040/134000c)
+作者：纽约香草山佛教部-文一
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+今日，白宫记者埃默尔德-罗宾逊因爆料新冠疫苗的可疑成分，而被推特永久封号。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-13-下午9.49.16.png)
+消息称，上周，推特上流传了一条分析莫德纳新冠疫苗成分的推文，当中提及，莫德纳疫苗中含有一种可被追踪的酶。罗宾逊对该条推文表示肯定，并予以佐证分析。随后，推特封禁了罗宾逊的账号。
 
-接种新冠疫苗后会出现各种副作用，而“血压升高”不容忽视，因为这将导致各种心血管疾病，以及引发其他危及生命的疾病。
+遭推特封号后，罗宾逊转战盖特继续爆料，她的支持者也纷纷到其盖特账号下表示支持。有评论称，作为一个说真话的人，罗宾逊值得被人关注和支持，而盖特为罗宾逊提供了继续揭示真相的平台，支持者也愿意在盖特中继续关注罗宾逊。
 
-在医院测量时，血压的正常范围是“上（收缩压）小于120 mmHg/下（舒张压）小于80 mmHg”。 当收缩压高于140 或舒张压高于 90 时，则诊断为“高血压”，剩余区间值被定义为“正常但血压偏高”。
+参考链接：
+1）[Newsmax under fire for COVID policy, silencing reporter who warned about ‘satanic’ jab ingredients](https://www.lifesitenews.com/news/748051/)
+2）[https://gettr.com/post/pg6822fa26](https://gettr.com/post/pg6822fa26)
 
-当血压升高时，心脏需要很大的力量将血液泵入血管，因而对心脏和血管造成压力。血管内壁受损，容易出现动脉硬化和动脉瘤。 这会导致心绞痛、心肌梗塞、主动脉瘤和主动脉夹层等心血管疾病，以及中风等危及生命的疾病。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-据报道，稍偏高血压的人群，在接种新冠疫苗后，血压显著升高。 在一家内科诊所，几位能够正常控制血压的患者在接种疫苗后，出现了收缩压升高至180左右，或舒张压升高至130左右的案例。
+总编：文真
+编辑：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-“收缩压180以上或舒张压110以上”的数值，对应“Ⅲ度高血压”，数据显示如果不及时治疗，死于心脑血管疾病的风险比正常范围内的人高10倍左右。不能掉以轻心。
-
-为什么接种疫苗会出现血压明显升高？ 东邦大学名誉教授、心脏病专家东丸贵信解释道， “确切机制尚不清楚，但怀疑与mRNA疫苗在体内产生的刺突蛋白有关。产生的刺突蛋白与细胞表面的‘ACE2受体’发生强烈反应。降低ACE2在细胞膜上的表达。ACE2具有降解“血管紧张素II”的作用，这是一种提高血压的生物活性肽。因此ACE2的表达减少，会导致血管紧张素II增加，进而可能导致血压升高。
-
-对于接种中共病毒疫苗导致“血压升高”，海外媒体也多有报道。
-
-著名的医学杂志《Hypertension（高血压）》（2021 年 7 月）也报道了在瑞士发生的血压升高的病例。多人被诊断为“Ⅲ度高血压”。
-
-接种疫苗后有头痛、不适的病例已不胜枚举。这可能都与血压升高有关，此外，在接种疫苗后报告的死亡病例中，缺血性心脏病、心力衰竭、主动脉疾病和中风等脑和心血管疾病居多。血压升高也是诱因。”
-
-关于疫苗真相，各国都讳莫如深的情况下，在日本能出现这样客观分析疫苗副作用的报道，笔者着实也略感欣喜。希望更多人加入爆料革命，了解疫苗真相，拿到解药一青蒿素。
-
-信息源：
-
-[新型コロナワクチン副反応を徹底検証【血圧上昇】命に関わる脳・心臓疾患につながる危険あり](https://news.yahoo.co.jp/articles/322e332dad547247b91dd4f9b70d9eb44ecab328)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-77.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

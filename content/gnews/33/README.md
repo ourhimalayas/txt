@@ -2,50 +2,43 @@
 ---
 
 
-## 监管机构审查与莫德纳疫苗相关的“罕见”和重疾报告
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1660685/)
+## 抗议大流行法案与强制疫苗，周六墨尔本市民大规模游行
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1660730/)
 
-编译：Jenny Ball
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-251.png)图片来源： theepochtimes.com 文件照片中可以在康涅狄格州布里奇波特看到几瓶莫德纳 COVID-19 疫苗。（约瑟夫·普雷齐奥索/法新社通过盖蒂图片社）
-
-欧洲药物监管机构周四证实，它正在调查莫德纳（ Moderna） 的 mRNA COVID-19 疫苗接受者血液状况的报告。
-
-根据欧洲药品管理局 (EMA) 发布的公告，它正在审查 EMA 的 EudraVigilance 数据库中报告的 6 例毛细血管渗漏综合征，被认为是“非常罕见的疾病”。
-
-“在现阶段，尚不清楚疫苗接种与毛细血管渗漏综合征的报告之间是否存在因果关系，”EMA 周四写道，并补充说，“这些报告指向一个安全信号……关于新的或变化的信息在，可能与药物或疫苗相关并需要进一步调查的不良事件。”
-
-该审查还将解决有毛细血管渗漏综合征病史的人群发生毛细血管渗漏综合征的风险。
-
-因此，EMA 研究人员将“评估所有可用数据，以确定是否可能存在因果关系，”公告中写道。
-
-它还指出，“目前没有足够的证据”表明莫德纳的疫苗与多系统炎症综合征病例之间存在联系。
-
-根据梅奥诊所的说法，毛细血管渗漏综合征是一种罕见的疾病，涉及大量血浆从血管中反复渗漏到附近的体腔和肌肉中。这种被称为克拉克森病的疾病，会导致血压急剧下降，从而导致器官衰竭甚至死亡。
-
-“可能由上呼吸道感染或剧烈的体力消耗引发，发作频率从一年几次到一生一次不等，”诊所说。
-
-该诊所的网站称，症状包括恶心、疲劳、易怒、肌肉酸痛、口渴或体重突然增加。
-
-今年早些时候，EMA 的安全委员会得出结论，应将毛细血管渗漏综合征作为**阿斯利康疫苗的副作用添加到产品信息中**，阿斯利康疫苗使用的技术与莫德纳的不同。
-
-在欧盟之外，加拿大卫生机构今年早些时候更新了牛津-阿斯利康 (Oxford-AstraZeneca) 和病毒防护罩（Covishield COVID-19 ）疫苗的标签，以增加毛细血管渗漏综合征作为可能的副作用。**加拿大机构警告有疾病史的人：不要接种这些疫苗**。
-
-**评论：**“**加拿大机构警告有疾病史的人：不要接种这些疫苗**。”**而世界各国真正应该做的是，就不应该让他们的人民充当大药企的试验老鼠！**
-
-**新闻来源**：[theepochtimes.com][Regulator Reviewing Reports of ‘Rare’ and Serious Condition Linked to Moderna Vaccine](https://www.theepochtimes.com/mkt_morningbrief/regulator-investigating-moderna-vaccine-over-rare-but-serious-blood-condition_4099180.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-11-12&amp;mktids=24ab40685045db9190eb15406814df98&amp;est=QYINLdi2buGZ6bWU9g85DW2Q5AbkXZnMUw9Wnl%2F0E%2BVUjvu7EKHoJL4ru42bJbsFMF%2FhyQ%3D%3D)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/5823-12.jpg)图片来源：Herald Sun
 
 
+#### 翻译：Sara9
+编辑：文泓
 
+周六，数千名示威者聚集在墨尔本中心城区，抗议强制疫苗和维多利亚州拟通过的新大流行病法律。自从上月首席卫生官对集会取消限制后，周末定期集会抗议的人群正在稳步增长。
 
+前自由党议员、澳大利亚联合党领袖克雷格·凯利预计是本次抗议活动中的演说者之一。凯利先生曾因其（在社交媒体上）围绕新冠病毒和疫苗的观点而受到主流媒体告诫。
 
+当演讲者高呼：“解雇丹·安德鲁斯（州长）”时，抗议人群保持了和平。有记者也听到人群中有人喊出了对安德鲁斯威胁的口号，一名男子游行时扛着一个临时的绞架，上面挂着三个绞索。
+
+周六早上在开始游行之前，一位发言者对人群说：“我们在这为自己站起来，这可能是我们最后的机会。所以让我们清晰、大声地发出我们的声音。”
+
+各行各业都有人参加游行。还有带孩子的家庭，也有老人和小孩，他们从州立图书馆穿过城市，涌向斯旺斯顿街，并在前往议会大厦的路上堵住了有轨电车。
+
+在今天的抗议活动之前，上周六已有超过3000人在中央商务区的大街上游行，要求州长安德鲁斯辞职。
+
+安德鲁斯力推新的大流行病法律将取代12月15日到期的紧急状态权力，赋予州长和卫生部长宣布大流行病和发布公共卫生命令的权力并削减首席卫生官的作用。
+
+2021年公共卫生和福利修正案（大流行病管理）法案上个月在下议院获得通过，政府现在希望它能在下周的上议院获得三名交叉议员的支持通过。
+
+原文链接：[Melbourne protests: Thousands rally in the CBD to denounce new pandemic laws, vaccine mandate (theage.com.au)](https://www.theage.com.au/national/victoria/thousands-take-to-melbourne-s-cbd-to-protest-new-pandemic-laws-vaccine-mandate-20211113-p598lu.html)
+
+**发布：文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

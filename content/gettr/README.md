@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/13/2021 2:28 PM (UTC)`
+
+美联邦第五巡回上诉法院裁定：维持对拜登疫苗强制令的临时禁令。发起诉讼的企业要求终止疫苗强制令，表示该强制令会让他们蒙受无法挽回的损失，联邦政府不应介入个人的医疗决定，例如疫苗接种<br/><br/>The Fifth Circuit Court of Appeals just ruled to uphold the temporary stay on President Biden's vaccine mandate on businesses. The businesses suing to stop the mandate are claiming it causes irreparable hard, and the federal government should not get involved in personal medical decisions such as vaccination.
+![img](https://media.gettr.com/group22/getter/2021/11/13/14/28/b62520c4-9330-f12f-acad-d514e98915e7/out.jpg)
+
+---
+
 `@miles 11/13/2021 7:44 AM (UTC)`
 
 11/12/2021 Miles Guo: The upcoming high-stakes virtual meeting between Biden and Xi Jinping is the result of the Biden Administration's collusion with the CCP for its political and financial interests. The CCP delayed Evergrande's collapse after the Sixth Plenary Session in order to have a smooth meeting. No one can bail Evergrande out, it will certainly go bankrupt and trigger a domino effect of collapse in Communist China’s real estate market and its financial sector!<br/><br/>11/12/2021 文贵直播：即将举行的拜习视频会议的是拜登政府为其政治和经济利益而与中共勾兑的结果；中共安排恒大在六中全会后暴雷是为了顺利开会；没人能拯救恒大，它必定破产，且将在中共国房地产和金融界引发多米诺骨牌的崩溃效应！
@@ -287,13 +294,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 `@miles 11/9/2021 8:05 PM (UTC)`
 
 11月9号：尊敬的战友们好……任何拥有喜币……和准备拥有喜币的人，一定要看这篇文章拜托了🙏……感谢这位战友中的高人．写的这篇独特的文章。【可以预见，借助带有KYC的区块链技术的喜支付系统，凭借其实时结算-即秒到账的能力，以及比现有系统低得多的支付成本，将获得很强的市场竞争力。】<br/><br/><br/><br/><br/>https://gnews.org/zh-hans/1649255/
-
----
-
-`@miles 11/9/2021 4:54 PM (UTC)`
-
-11月9号：这是真的假的呀，看他那副长相．这算是很好的答案了……我相信他的未来一定会被共产党毁掉。<br/><br/>【黄河便真可怜🥺 一个曾经的哥们儿了解其私生活 说他被后老婆（年轻二十多）整得不允许上床睡觉 前妻女儿和后老婆打得一塌糊涂 后老婆不允许他老娘进家门 他只好安排老母（已丧父）打道回中共国。说他2012年（？记不准）就完全被中共控制。】
-![img](https://media.gettr.com/group40/getter/2021/11/09/16/54/9c7133df-151b-fb98-d347-2f3d566a8389/a392919f42be57638aa54a3489300ce9.jpg)
 
 ---
 
