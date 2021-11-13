@@ -2,44 +2,40 @@
 ---
 
 
-## 澳洲金融监管部门酝酿调控房市过热
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1659752/)
+## 美国上诉法院确认暂停拜登 COVID-19 疫苗授权
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1659800/)
 
-**【雅典娜快讯】紧贴时事脉搏**
+**翻译：**沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/11/AP21307751978494-2-edited.jpg)图片来源：网络
+路透社 11 月 12 日：美国上诉法院周五维持其决定，暂停总统乔·拜登 (Joe Biden) 对拥有 100 名或更多工人的公司要求接种 COVID-19 疫苗的命令，驳回了他的政府提出的挑战。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/快讯-1.png)图片来源：[mpamag.com](https://www.mpamag.com/au/news/general/apra-restrictions-will-cool-market-boq/313101)
+尽管拜登政府的立场是停止执行疫苗授权可能导致数十人甚至数百人死亡，但位于新奥尔良的美国第五巡回上诉法院的一个三人小组确认了其裁决。
 
+意见说：“授权范围过于广泛，令人震惊。”
 
-**翻译整理：月映万川
-编辑：守望黎明**
+巡回法院法官库尔特·恩格尔哈特 (Kurt Engelhardt) 为专家组写道：“这项任务是一把万能的大锤，几乎没有试图解释工作场所（和工人）之间的差异。”
 
-澳大利亚的金融监管部门审慎监管局（APRA）已经发出预警，提醒银行准备面对更严格的住房贷款规则。同时，APRA也暗示，他们可能会限制高风险贷款，因为这种贷款给金融系统稳定性带来的风险不断增高。
+疫苗授权在美国引起很大争议。 支持者表示，他们必须结束近两年的冠状病毒大流行，而反对者则认为他们违反了美国宪法并限制了个人自由。
 
-在监管机构酝酿出台限制措施给房市降温时，审慎监管局（APRA）在11月11日对可能使用的限制手段做出了更多的说明。所有这些手段都围绕着限制银行借贷以使房市进一步降温。
+第五巡回法院的法官似乎同意反对者的意见。
 
-随着2021年澳大利亚房产市场的持续升温，很多机构预测APRA会对市场进行干预来控制过高的房价。
+恩格尔哈特写道：“维护我们的宪法结构和维护个人根据自己的信念做出强烈个人决定的自由，也符合公共利益。甚至，或者也许特别是，当这些决定使政府官员感到沮丧时。”
 
-上个月，APRA提高了预审还款利息率来降低房贷中高风险贷款的比例。面对目前过快的房价上涨趋势，市场对APRA进一步加强干预的预期进一步提升。
+该规则由职业安全与健康管理局 (OSHA) 发布，并要求拥有至少 100 名员工的企业要求员工接种疫苗或每周接受测试和口罩要求。
 
-根据文件显示，APRA已经列出了一系列可以作为控制高风险贷款的备选方案。
+白宫官员没有立即对裁决发表评论，德州总检察长肯·帕克斯顿 (Ken Paxton) 称赞这是一项胜利。 德克萨斯州与美国其他州以及私人雇主和宗教组织一道，对该命令提出了法律挑战。
 
-文件预测，APRA可能会调整贷款利率变动区间。 这一利率在上个月已经从2.5%调整到了3%，但是APRA 已经暗示，这一数字会在2%-5%之间浮动。
+帕克斯顿在推特上说：“引用德克萨斯州的令人信服的论点，第五巡回法庭保留了 OSHA 违宪和非法的私营企业疫苗授权”。
 
-在给银行的公开信中，APRA主席维恩“““““`·巴瑞思（Wayne Byres）说，在上述文件中提到的措施可以抵御系统性风险。他同时指出，银行应该随时准备开始实施这些措施，这样监管者才能随时应对潜在的风险。
+拜登在 9 月份实施了这一要求，他告诉美国人，对于那些拒绝接种疫苗的人，“我们的耐心正在消退”。
 
-巴瑞思先生在11月11日的计划里强调，审慎监管局（APRA）一直都是以“宏观调控”的政策来对市场进行调整的。也就是说，所有的措施都是为了控制整个金融的系统风险，而不是针对具体的银行。
+来源链接：[https://t.co/xMTjuvJfDq](https://t.co/xMTjuvJfDq)
 
-原文链接：[Banking and APRA mulls tougher curbs to rein in housing boom](https://www.theage.com.au/business/banking-and-finance/apra-mulls-tougher-curbs-to-rein-in-housing-boom-20211111-p5985r.html)
+编辑/发布:LILY
 
-***发布：Candy***
+20211112
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 
-**更多资讯，请关注：**
-
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
