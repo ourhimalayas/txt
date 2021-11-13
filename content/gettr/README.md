@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/13/2021 7:44 AM (UTC)`
+
+11/12/2021 Miles Guo: The upcoming high-stakes virtual meeting between Biden and Xi Jinping is the result of the Biden Administration's collusion with the CCP for its political and financial interests. The CCP delayed Evergrande's collapse after the Sixth Plenary Session in order to have a smooth meeting. No one can bail Evergrande out, it will certainly go bankrupt and trigger a domino effect of collapse in Communist China’s real estate market and its financial sector!<br/><br/>11/12/2021 文贵直播：即将举行的拜习视频会议的是拜登政府为其政治和经济利益而与中共勾兑的结果；中共安排恒大在六中全会后暴雷是为了顺利开会；没人能拯救恒大，它必定破产，且将在中共国房地产和金融界引发多米诺骨牌的崩溃效应！
+![img](https://media.gettr.com/group18/getter/2021/11/13/07/44/ae27aa8b-5f56-5f13-0352-c5e12e60ff28/out.jpg)
+
+---
+
 `@miles 11/13/2021 6:23 AM (UTC)`
 
 彭博社电视台记者斯蒂芬·英格：恒大债务危机引发的中共国的金融压力最终可能会通过风险情绪的恶化使全球金融市场为之紧张<br/><br/>Bloomberg TV correspondent Stephen Engle: The financial stress triggered by Evergrande debt crisis may eventually strain global financial markets through a deterioration of risk sentiment<br/>
@@ -287,13 +294,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 11月9号：这是真的假的呀，看他那副长相．这算是很好的答案了……我相信他的未来一定会被共产党毁掉。<br/><br/>【黄河便真可怜🥺 一个曾经的哥们儿了解其私生活 说他被后老婆（年轻二十多）整得不允许上床睡觉 前妻女儿和后老婆打得一塌糊涂 后老婆不允许他老娘进家门 他只好安排老母（已丧父）打道回中共国。说他2012年（？记不准）就完全被中共控制。】
 ![img](https://media.gettr.com/group40/getter/2021/11/09/16/54/9c7133df-151b-fb98-d347-2f3d566a8389/a392919f42be57638aa54a3489300ce9.jpg)
-
----
-
-`@miles 11/9/2021 2:03 PM (UTC)`
-
-11/7/2021 Miles Guo: The fundamental reason for the CCP to bar the Chinese people from buying digital currencies is because the CCP believes that decentralization will bring about its downfall. Thus, the CCP is imposing absolute centralization; the CCP can control the Western economy and security by dominating the digital currencies in the West<br/><br/>11/7/2021 文贵直播：中共不让中国人买数字货币的根本原因是中共认为去中心化将导致其灭亡，所以要进行绝对的中心化；中共通过获得西方数字货币的主导权，进而能控制西方的经济和安全<br/>
-![img](https://media.gettr.com/group24/getter/2021/11/09/14/03/35cdad10-2e1f-c10d-25ea-8904ee76a8d2/out.jpg)
 
 ---
 

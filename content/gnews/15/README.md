@@ -2,50 +2,34 @@
 ---
 
 
-## 只要马云愿意,郭文贵先生随时可救马云乘潜水艇到美国
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1660261/)
+## 房地产要崩盘，中共银保监会和央行慌了
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1660336/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/59574348_303_副本.jpg)
-据[2021年11月12日 文贵大直播：六中全会最新信息；沈南鹏抛小米资产；恒大地产爆违约；喜交所最重要进展；新中国联邦国防建设](https://gtv.org/video/id=618e6c5fe7e770379233c262)时间点2：37：59——
+#### 整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-93.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Ffinance%2Fcrawl%2F116%2Fw550h366%2F20190718%2F7e4e-hzxsvnp2391124.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.sina.com.cn%2Fmoney%2Fbank%2Fbank_hydt%2F2019-07-18%2Fdoc-ihytcerm4453820.shtml&amp;tbnid=s7sFThOyCACsRM&amp;vet=12ahUKEwj_nNWOx5T0AhXsg2MGHe1_Ai4QMygAegUIARCXAQ..i&amp;docid=lrSpb6mpoRg2aM&amp;w=550&amp;h=366&amp;itg=1&amp;q=%E9%93%B6%E4%BF%9D%E7%9B%91%E4%BC%9A%E7%BD%91%E7%AB%99&amp;ved=2ahUKEwj_nNWOx5T0AhXsg2MGHe1_Ai4QMygAegUIARCXAQ)
+**银保监会：稳地价、稳房价、稳预期，遏制房地产金融化泡沫化倾向**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-66.jpg)
+11月12日，中共国银保监会召开党委（扩大）会议，传达学习贯彻中国共产党十九届六中全会精神，会议要求，要毫不松懈地防范化解金融风险，平衡好稳增长和防风险的关系，坚决守住不发生系统性金融风险底线。
 
-**郭文贵先生：**我们意大利的那个马油卡岛Mallorca（注：全名为Palma de Mallorca），我那朋友在那块拥有一个山脉，我那天我要找马云，我今天我可以告诉大家，马云就住在我朋友家，在船上下去就住在我朋友家，所以我知道他住哪儿，就住在我朋友家。
+**稳地价、稳房价、稳预期，遏制房地产金融化泡沫化倾向，健全房地产调控长效机制，促进房地产业稳定健康发展。**
 
-今天我可以你说了，马云已经回去了，共产党你要是觉得我郭文贵说的是不是谎言，你可以自己证明，你就住在我朋友家，如果马云当时只要，因为他24小时上厕所都有人跟着他，我们当时的人——救他的人就在他外面，说马云你愿不愿意到美国去，但是马云上厕所都两人跟着。没办法，马云就这个自由都没有。
+加大不良资产处置力度，持续整治影子银行业务，加快推动高风险金融机构风险化解，严厉打击违法违规金融活动。
 
-所以在船上跟你们说实话，他那个禅Zen船员我们都卧底进去两个船员，他都不知道马云，今天我会告诉大家，马云，你可以确认去，在你去的两周内我们派人进去了，船员写条想写给马云，有人要救你，你愿不愿意走？没有一秒钟是独立的。睡觉——俩人睡在他床下面，就没救他，马云就回去了。
+要持续深化金融业改革开放，完善多层次、广覆盖、差异化金融机构体系，不断提升金融体系的适应性、竞争力和普惠性。
 
-今天七哥可以告诉大家真相，所以那时每天随时都可以马云只要他同意，从他船上立马旁边一个军舰，军舰是都带直升机的，直接上直升机，咵嚓到另外一个岛上，到美军潜水艇直接回美国来了，今天七哥可以直接告诉大家。
+持续完善权责一致、全面覆盖、统筹协调、有力有效的现代金融监管体系。加强监管能力建设，提高监管透明度和法治化水平。
 
-我救他啥也不为了，你说他还把我要遣返呢是吧？我救他就是要救中国企业家，我今天公开地说。七哥当时就安排随时救马云就上咱们潜水艇就回来了是吧？但是他的28个家人被绑架，他自己也没决定。第二个就是他本人必须确认他愿意被救，否则咱成了绑架了的，马云说这哥们把我绑架了那麻烦了吗？美国人把我绑架了这是不可以的。
+**央行：维护房地产市场平稳健康发展**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-54.jpg)
+2021年11月12日上午，中共国人民银行党委召开会议，传达学习习近平在中共共产党十九届六中全会上的讲话和全会精神，研究部署人民银行系统贯彻落实措施。人民银行党委书记、副行长郭树清主持会议，党委副书记、行长易纲及各位党委委员参加会议。会议强调，坚决遏制金融服务业领域的垄断和资本无序扩张，维护房地产市场平稳健康发展。
 
-这就是美国有法律，不是你想怎么着就怎么着，可以救他，他本人必须确认我需要你救我，那这些过程当中你知道当年马云对我形成了压力——2000万美元给我那个THM的保安公司，吴征给他说，找他主席——就是亲我脸那个主席，记得吗？两个亲我脸的照片就其中一个。
+消息来源:
 
-他那个THM的合伙人就是FBI就是跟那个吴征叫Patrick合伙人，他就是THM的合伙人，PAG公司调查竟然有他，就把我出卖了嘛！2000万美元不要跟郭文贵做保镖，那想干啥呀？郭文贵没保镖就把郭文贵做掉，你知道多少次人家警告我，郭文贵你随时会被干掉，多少次吗？
+[重磅突发！关于房地产，银保监会重磅发声：稳！稳！稳！刚刚，央妈也发话了！信息量巨大！](https://finance.sina.com.cn/stock/stockptd/2021-11-13/doc-iktzscyy5246703.shtml)
 
-（以下暂略）
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

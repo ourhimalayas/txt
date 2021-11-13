@@ -2,30 +2,50 @@
 ---
 
 
-## 秘翻在线：芝加哥中国留学生被杀事件引发行动呼吁
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1660053/)
+## 本周六是澳洲建筑工人完全接种的最后期限
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1660108/)
 
-**编译：花岗岩**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/悉尼.png)图片来源：今日悉尼网
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-13-113957.jpg)
-据美联社芝加哥11月13日报道，周二下午，一名24岁的中共国留学生郑少雄（音译）（Dennis）在校园附近的武装抢劫中被枪杀后，芝加哥大学校长保罗·阿利维萨托斯（Paul Alivisatos）敦促市政府官员和警方将芝加哥不断上升的暴力事件视为 “公共卫生危机”，需要做出相应的反应。学校已经与市长办公室、芝加哥警方、当地市议员和其他方面进行了接触。
 
-据《芝加哥太阳时报》报道，整个芝加哥的暴力事件已经连续两年上升，今年，芝加哥至少有698起凶杀案，而去年同期为680起，这远远高于该市在2019年此时经历的442起杀人案。
+**翻译：Lish**
+**编辑：Candy**
 
-市长罗瑞·莱特福（Lori Lightfoot）周三承诺与警方和社区领导人会面，“以确定可以采取的具体、切实的措施，防止今后发生类似的悲剧”，但尚未宣布具体细节。
+由于周六是建筑工人全面接种中共病毒疫苗的最后期限，数千人正计划走上墨尔本街头，抗议强制疫苗接种。
 
-据WBBM-TV报道，2019年毕业于香港大学并于去年夏天获得芝加哥大学统计学硕士学位的郑某，是今年第三名遇害的芝加哥大学学生。
+维多利亚州的建筑工人如果想从11月13日星期六起继续在工地工作，就必须全面接种COVID-19疫苗。
 
-今年1月，来自北京的30岁的博士生范一然（音译）坐在停车场的一辆汽车里时被随机杀害。警方说，他是被抢手射杀的7个人中的第一个，范和其他四个人都死了。
+维多利亚州老年护理机构的工作人员的最后期限也即将到来，他们必须在11月15日（星期一）之前完全接种疫苗。
 
-而在7月，20岁的三年级学生马克斯·刘易斯（Max Lewis），在芝加哥交通局绿线上被一颗流弹射杀，当时他正从芝加哥市区的暑期实习中骑车回家。
+这项有争议的强制任务引发了暴力抗议，数以千计的商人和工会成员走上墨尔本中央商务区，集会反对强制接种和国家对流行病颁布的新法律。
 
-在郑被枪杀的地方，哀悼者为他的纪念碑增添了鲜花。大芝加哥地区华裔协会已经开始了网上追悼筹款活动，以帮助支付郑的家人的旅行和法律费用。
+维多利亚州警方表示知道周六有计划好的抗议活动，并警告他们将继续在该抗议地点执勤一整天。
 
-评：郭文贵先生预言随着病毒和疫苗真相的逐渐浮出水面，世界反华，排华现象会越演越烈，衷心祝福全球的华人安全度过这场由中共制造的全球灾难，不要扮演粉红的角色，只有彻底消灭共产党，中国和世界人民才会有真正的安全。
+一位发言人告诉澳大利亚《天空新闻》：“警方知道今天（11月13日）在墨尔本中央商务区有抗议活动。 每个人都有权合法地进行抗议，但是我们要求人们在不影响社区其他成员的情况下，以和平和尊重的方式进行抗议。维多利亚州警方将全天在该地区驻扎，以确保抗议者和整个社区的安全。”
 
-新闻来源：[Slaying of Chinese student in Chicago spurs call for action](https://apnews.com/article/chicago-violence-shootings-ed79e3e58fc0f944b2d4ba4a982f4df5)
+成千上万的人曾在9月份向CFMEU总部游行，要求工会为劳工们站出来，放出信号弹并封锁了高速公路。
+
+【备注：CFMEU 的全称Construction, Forestry, Maritime, Mining and Energy Union建筑、林业、海事、采矿和能源工会】
+
+据称，在瓶子和投射物被扔来扔去的过程中，一名《7News》记者被浇上了尿液。
+
+还有人对安德鲁斯政府的新大流行病法表示担忧。该法将赋予总理宣布大流行病的权力，并以三个月为单位延长；同时允许卫生部长前在前所未有的范围来执行有争议的公共卫生命令。
+
+本月早些时候，抗议者走上墨尔本街头，举着 “解雇丹尼尔 “和 “扼杀法案 “的牌子，呼吁总理辞职。
+
+周五，该州报告了1115个新增病例，和另外9个死亡病例，使其自去年病毒袭击澳大利亚以来的死亡总人数达到1218人。
+
+在整个维多利亚州，16岁及以上人口中，93.3%的已经接种了至少一剂中共病毒疫苗，86.9%的人接种了两剂。在12岁及以上人口中，91.9%的人至少接种了一剂疫苗，85.9%的人接种了两剂。
+
+原文链接：[Victoria Police aware of planned protests as Saturday marks vaccine deadline for construction workers | Sky News Australia](https://www.skynews.com.au/australia-news/coronavirus/victoria-police-aware-of-planned-protests-as-saturday-marks-doubledose-vaccination-deadline-for-construction-workers/news-story/9dffdac4e3ab4d34e7e872c18d8f662c)
+
+**发布：*****Candy***
+
+更多资讯，请关注：[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

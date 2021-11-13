@@ -2,43 +2,30 @@
 ---
 
 
-## 辽宁庄河市40万人门上贴封条居家隔离
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1660156/)
+## 中共驻美大使馆游说美企反对与中共国相关议案
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1660265/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片5.jpg)
-**整理报道：**朝花夕拾
-**编辑：**翼族
+![](https://assets.gnews.org/wp-content/uploads/2021/11/16324445831-e1636782783198.png)
+据路透社11月12日报道，中共国最近一直致函商界人士和与商界人士举行会议，施压美国企业高管和商业团体，要求他们敦促国会议员修改或撤销旨在增强美国竞争力、反对中共国的具体议案。
 
-**【编者按：**庄河市是辽宁省大连市下辖的一个县级市。位于辽宁省东南部，黄海北岸，辽东半岛的东侧。**】**
+中共国官员警告企业，如果这项议案成为法律，他们将面临在中共国失去市场份额或收入的风险。中共国的要求让收到信件的个人担心，如果他们在未来就类似问题游说议员，可能会被视为违反了《外国代理人登记法》(FARA)。
 
-今天上午在微信群里看到的聊天记录，以下文字的原文引自聊天记录：
+中共威逼利诱的策略从前在美国畅通无阻，但是随着中共日落西山的景象，不知道还有多少人愿意冒着风险继续与中共同流合污呢？痛打中共落水狗才是明智之举，也能撇清与中共的关系。
 
-我们城市，每家，是每家！门上都贴封条。
-40W户，今天贴完，14天全市人民不可以出门。
-封条破损者，自费拉走隔离。
-史无前例，能进入抗议史册。
-是每家每户上封条，绝不绝？
-门封上之后，最好反锁，告知家里所有成员，否则家里有小孩的或者自己忘了，再把门打开。以前开门是生活，现在开门是犯法……封条破坏会被集中自费隔离。
-14天内，只要封条打开了，全家拉走自费继续再隔离14天。
-40万户不是危言耸听。
-我们是真真真正正地被按了暂停键的城市。
-因为没有源头……
-疯狂裂变。
-病毒在变异，传播能力极强。
-至今没有找到源头。
-过去的8天，每个市民做7次核酸检测，家禽都做。
-每家每户，高风险是封户加封单元门。
-只要饿不死的情况下，就忍着。
-**我们出门就是犯罪现在。**
+新闻参考链接：[https://cn.reuters.com/article/china-us-embassy-lobby-1113-idCNKBS2HY046](https://cn.reuters.com/article/china-us-embassy-lobby-1113-idCNKBS2HY046)
 
-*发布：翼族*
+编辑：胖丁
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
