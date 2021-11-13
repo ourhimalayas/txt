@@ -2,22 +2,25 @@
 ---
 
 
-## 中共自编教材洗脑国家干预经济
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1659133/)
+## 俄亥俄州三名法官接种疫苗后相继死亡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1659161/)
 
-作者：澳喜农场 在远方
+作者：纽约香草山教育部 – 正义的小新
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月11日，中共教育部网站公布了一组自编的中共经济学类大学教材，用以取代中共此前一直使用的《马克思主义政治经济学》教材。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-13-上午1.07.38.png)
-相关人员透露，中共根本无法平衡墙内各阶层民众的生活现状，且一直在极力压榨墙内民众的剩余价值。为此，中共试图通过新教材洗脑学生，将中共现有的所谓“市场经济”模式，转变至彻彻底底的国家干预经济模式。
+近日，美国媒体消息称，俄亥俄州凯霍加郡的三名法官在接种新冠疫苗后相继死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-13-上午1.26.02.png)
+此前，俄亥俄州曾使用各种手段试图强行推进该州的新冠疫苗接种率。报道称，该州汉密尔顿县的法官曾要求当地罪犯，作为“社区控制”或缓刑释放的一部分，罪犯必须在60天内接受新冠疫苗接种。
 
-另有相关学者认为，中共在建党之初，鉴于共产国际的势力，不得不假装高举马恩的旗帜。但在此次六中全会上，习近平早已认定了要走全面管控的独裁路线。然而，经济发展的规律显示，虽然自由竞争未必能繁荣，国家干预下的经济必定会衰落。
+另一方面，在俄亥俄州大面积推广新冠疫苗接种后，疫苗灾难也在逐渐显现。消息显示，三名俄亥俄州的法官分别于9月28日、10月2日，以及10月7日死亡。医疗记录表明，为了维持他们的工作，这三名法官均在数日前接种了新冠疫苗。
+评论人士称，将新冠疫苗与就业，甚至量刑挂钩是不恰当的，就医疗程序而言，这是一种强制行为。
 
-参考链接：[扬弃马克思经济学说 十三所大学自编经济学系列教材](https://www.rfa.org/mandarin/yataibaodao/kejiaowen/ql2-11112021034555.html)
+参考链接：
+1）[Three Ohio judges “die unexpectedly” in nine-day span after vaxx mandate in Cuyahoga County](https://thecovidblog.com/2021/10/24/three-ohio-judges-die-unexpectedly-in-nine-day-span-after-vaxx-mandates-in-cuyahoga-county/)
+2）[Get a Covid-19 Vaccine or Face Prison, Judges Order in Probation Cases](https://www.nytimes.com/2021/08/09/us/ohio-judge-covid-vaccine.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-总编：文特
+总编：Ivy001
 编辑：Kathy文艺
 校正/发稿：呼吸的雾霾（文小呼吸）
 
