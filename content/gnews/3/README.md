@@ -2,35 +2,31 @@
 ---
 
 
-## 新泽西州长共和党竞选人承认败选
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1659882/)
+## 奥地利官员称可能对未接种疫苗者实施封锁
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1659958/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1311.jpg)图片来源于Pexels免费照片素材库；摄影：cottonbro
+根据澳洲第9新闻周五晚间的最新报道，面对国内严峻的疫情形势，奥地利政府官员于周四警告未接种疫苗人群，声称可能考虑对未接种疫苗人群采取封锁措施。而该国受到疫情影响最为严重的省份表示，这一计划的初步实施很可能将从下一周开始。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/N-3.jpg)breitbart.com
-正像笔者预测的那样，如果竞选团队没有意识到共产主义思潮对美国的渗透和影响，没有组建、派出足够的志愿者和律师对选举过程进行严格监督，最终会失去选举【1】，这也就是新泽西州共和党州长候选人杰克·恰塔雷利（Jack Ciattarelli）今天的结果。
+在最近数周，奥地利政府一直在寻找有效措施遏制疫情扩散同时鼓励人们进行疫苗接种。然而笔者认为，当前的公告和举动与其说是鼓励，不如说是胁迫、强制、以及赶尽杀绝。就在这周一，未接种疫苗者已经被禁止出入餐馆、旅店、美发沙龙等设施，也禁止参加大型活动。
 
-《福克斯新闻》这样报道，“新泽西州的恰塔雷利承认选举失利，这位共和党州长候选人发誓在四年内再次参选。”文章说，新泽西州州长选举经过势均力敌的10天后，共和党提名人恰塔雷利向民主党州长菲尔·墨菲（Phil Murphy）认输。但片刻之后，恰塔雷利宣布他计划在四年后会再次竞选“花园州”（Garden State，指新泽西州）州长，并说“这正是我的计划，我将竞选州长。”【2】
+以本周四为节点的过去七天时间内，奥地利每十万人中就增加了760.6个病例，这是邻国德国的三倍左右。疫情最严重的地区增长则已突破每十万人中新增1200个病例。显然，奥地利的部分官员将这一问题嫁祸于未接种疫苗者的头上。奥地利新闻社也开始散布恐慌，称未接种疫苗者将会体验一次“极为不舒服”的圣诞节。
 
-《门道专家》指责了民主党州长墨菲（Murphy）以及恰塔雷利的律师。文章称墨菲是腐败的，是一个可怕的候选人，他将中共病毒患者送进了疗养院，导致该州数千人的死亡。
+于此同时，政府部门也在考虑将某些职业列为必须接种疫苗职业。即便当前的疫苗接种率已经达到了65%，奥地利大臣Schallenberg依然认为这一数据低得“令人感到可耻”。这些舆论风向似乎都是讲矛头对准未接种疫苗的民众，在制造仇恨引起恐慌的同时，也是在对未接种疫苗者的心理进行施压。
 
-文章说，恰塔雷利没有机会挽救他被盗的选举，我们知道这一点是因为他聘请了一位永远不会为他而战的律师，他的律师反对的是鲁迪·朱利安尼，而不是新泽西州令人厌恶的腐败民主党人。
+在疫情爆发接近两年左右的今天，我们逐渐发觉中共国打击异议人士的常用套路和手法正在向全世界输出和扩散。如果不让CCP从地球消失，未来全世界人民将永无宁日。
 
-在该州最大的郡完成了100%的计票后，墨菲又跳跃增加了40,000 张选票，这个律师却不想检查投票机的问题。【3】
+（本文纯属个人观点，与Gnews无关）
 
-新泽西州长选举没有“翻红”，的确应该作为警钟，按说墨菲的执政业绩如此之差，疫情死人多、税收高，共和党人拿下该州州长应该是顺理成章的事，共和党卡车司机杜尔（Durr）能对长期执政的民主党人参议院议长胜选【4】，说明了新泽西州的民意，怎么到了州长的计票就不成了？因此，竞选过程的监督，竞选团队人员的忠诚，是不可忽视的因素，要认清中共流毒能侵蚀每一个环节，保守人士不可掉以轻心。
+*发稿：mgjxs*
 
-有关链接：
+参考链接：[第九新闻](https://www.9news.com.au/world/covid-19-europe-austria-leader-says-lockdown-for-the-unvaccinated-is-likely/ea541fec-05a1-4f72-b9ff-4af83a494935)
 
-【1】[https://gnews.org/zh-hans/1651454/](https://gnews.org/zh-hans/1651454/)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-【2】[https://www.foxnews.com/politics/new-jersey-ciattarelli-concedes-vows-to-run-again-in-four-years](https://www.foxnews.com/politics/new-jersey-ciattarelli-concedes-vows-to-run-again-in-four-years)
-
-【3】[https://www.thegatewaypundit.com/2021/11/candidate-jack-ciattarelli-concedes-corrupt-new-jersey-governor-murphy-republican-elites-will-label-loss-not-steal-helping-dems/](https://www.thegatewaypundit.com/2021/11/candidate-jack-ciattarelli-concedes-corrupt-new-jersey-governor-murphy-republican-elites-will-label-loss-not-steal-helping-dems/)
-
-【4】[https://gnews.org/zh-hans/1656413/](https://gnews.org/zh-hans/1656413/)
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,116 +15,116 @@
 
 ---
 
-### [【文贵先生大直播PPT】民生与经济](/content/gnews/1/README.md)
+### [【文贵先生大直播PPT】中共六中全会公报瞎说了啥？](/content/gnews/1/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [抗议强制疫苗，联邦参议员承诺不支持政府任何立法](/content/gnews/2/README.md)
- ` 走进澳洲`
+### [【文贵先生大直播PPT】民生与经济](/content/gnews/2/README.md)
+ ` Mr. Miles Guo's News Briefing`
 
-### [新泽西州长共和党竞选人承认败选](/content/gnews/3/README.md)
- ` HimalayaRussia`
-
-### [巴西总统博尔索纳罗直面世卫组织负责人：“注射第二剂新冠疫苗后人们仍染疫而死亡”](/content/gnews/4/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021/11/12大卫作战室直播精要](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美国决心落实澳英美联盟](/content/gnews/6/README.md)
+### [奥地利官员称可能对未接种疫苗者实施封锁](/content/gnews/3/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中共是罪行累累的刽子手，人人应该诛之](/content/gnews/7/README.md)
- ` 波士顿五月花农场`
-
-### [巴黎、布鲁塞尔点亮蓝光 声援维吾尔人权](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [如何成功申请疫苗宗教豁免？](/content/gnews/9/README.md)
- ` 波士顿五月花农场`
-
-### [中共治下高等院校的虚假乱象](/content/gnews/10/README.md)
+### [雅典娜时报-第111期](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [11/12/2021 文贵直播：作为总参三部的专业情报人员，沈南鹏在美国的政治、经济影响力非同一般](/content/gnews/11/README.md)
- ` 秘密翻译组-北美组`
+### [【文贵先生大直播PPT】喜币最新进展](/content/gnews/5/README.md)
+ ` Mr. Miles Guo's News Briefing`
 
-### [美国上诉法院确认暂停拜登 COVID-19 疫苗授权](/content/gnews/12/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [文贵爆料 12/11: 习近平已成为千夫所指的公敌](/content/gnews/13/README.md)
- ` 秘密翻译组-原创组`
-
-### [美接种疫苗最多州的中共病毒病例激增](/content/gnews/14/README.md)
- ` HimalayaRussia`
-
-### [班农先生将会成为全人类的英雄！](/content/gnews/15/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [7·24专题——SARS（非典）也是中共病毒](/content/gnews/16/README.md)
- ` 墨尔本雅典娜农场`
-
-### [澳洲金融监管部门酝酿调控房市过热](/content/gnews/17/README.md)
+### [抗议强制疫苗，联邦参议员承诺不支持政府任何立法](/content/gnews/6/README.md)
  ` 走进澳洲`
 
-### [有声|维也纳黔驴技穷 利用性服务引诱疫苗接种](/content/gnews/18/README.md)
- ` MOSREC`
+### [新泽西州长共和党竞选人承认败选](/content/gnews/7/README.md)
+ ` HimalayaRussia`
 
-### [有声|蓬佩奥再次强调中共是敌人](/content/gnews/19/README.md)
- ` MOSREC`
+### [巴西总统博尔索纳罗直面世卫组织负责人：“注射第二剂新冠疫苗后人们仍染疫而死亡”](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|美联储担心中共地产危机影响美国](/content/gnews/20/README.md)
- ` MOSREC`
+### [2021/11/12大卫作战室直播精要](/content/gnews/9/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|满足三个条件，才能发挥喜联储真正价值](/content/gnews/21/README.md)
- ` MOSREC`
+### [美国决心落实澳英美联盟](/content/gnews/10/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [11/12/2021 文贵直播：新中国联邦国防建设的部分资金必须来自战友们](/content/gnews/22/README.md)
- ` 秘密翻译组-北美组`
+### [中共是罪行累累的刽子手，人人应该诛之](/content/gnews/11/README.md)
+ ` 波士顿五月花农场`
 
-### [有声|李鑫的求救信](/content/gnews/23/README.md)
- ` MOSREC`
+### [巴黎、布鲁塞尔点亮蓝光 声援维吾尔人权](/content/gnews/12/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国CDC承认：没有未接种疫苗者于康复后传播Covid的记录](/content/gnews/24/README.md)
- ` 纽约香草山MOS02`
+### [如何成功申请疫苗宗教豁免？](/content/gnews/13/README.md)
+ ` 波士顿五月花农场`
 
-### [加强针疫苗让教师减员，密歇根州镇政府关闭社区学校](/content/gnews/25/README.md)
+### [中共治下高等院校的虚假乱象](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [遏制中共，推进经济安全合作 ！“四边机制”领导人第二次线下峰会将在日本召开](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [东芝公司宣布将拆分成为3家独立企业](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [应对中共，军事合作再升级！日本首次对澳军实施武装防卫](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [房地产压力接近临界！中共银保监会强调稳地价稳房价稳预期](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共疫苗灾难致大陆一线医护人员短缺](/content/gnews/30/README.md)
- ` 纽约香草山MOS01`
-
-### [特斯拉汽车公司创始人马丁·埃伯哈德在法庭协议中因拒绝选择特斯拉股票而错失亿万资本](/content/gnews/31/README.md)
- ` 滴水穿石`
-
-### [11/12/2021 文贵直播：六中全会虽然加速了灭共，但也加大了对华人的威胁](/content/gnews/32/README.md)
+### [11/12/2021 文贵直播：作为总参三部的专业情报人员，沈南鹏在美国的政治、经济影响力非同一般](/content/gnews/15/README.md)
  ` 秘密翻译组-北美组`
 
-### [世界堕胎谋杀之都纽约市开设了 1000 个新冠病毒疫苗站点，在大屠杀仪式中为幼儿注射生物武器](/content/gnews/33/README.md)
+### [美国上诉法院确认暂停拜登 COVID-19 疫苗授权](/content/gnews/16/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [与大流行前的平均水平相比，COVID-19疫苗导致的额外死亡人数增加了30%](/content/gnews/34/README.md)
- ` 喜马拉雅农场新西兰站`
+### [文贵爆料 12/11: 习近平已成为千夫所指的公敌](/content/gnews/17/README.md)
+ ` 秘密翻译组-原创组`
 
-### [“不要接种”：毒理学家揭辉瑞疫苗如何获批(5/5)](/content/gnews/35/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [美接种疫苗最多州的中共病毒病例激增](/content/gnews/18/README.md)
+ ` HimalayaRussia`
 
-### [难道国内又要弄涨价去库存，让房价大涨一波?](/content/gnews/36/README.md)
+### [班农先生将会成为全人类的英雄！](/content/gnews/19/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [7·24专题——SARS（非典）也是中共病毒](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国对伊朗石油的采购量因价格下降和新的配额而回升](/content/gnews/37/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [澳洲金融监管部门酝酿调控房市过热](/content/gnews/21/README.md)
+ ` 走进澳洲`
+
+### [有声|维也纳黔驴技穷 利用性服务引诱疫苗接种](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [有声|蓬佩奥再次强调中共是敌人](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [有声|美联储担心中共地产危机影响美国](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [有声|满足三个条件，才能发挥喜联储真正价值](/content/gnews/25/README.md)
+ ` MOSREC`
+
+### [11/12/2021 文贵直播：新中国联邦国防建设的部分资金必须来自战友们](/content/gnews/26/README.md)
+ ` 秘密翻译组-北美组`
+
+### [有声|李鑫的求救信](/content/gnews/27/README.md)
+ ` MOSREC`
+
+### [美国CDC承认：没有未接种疫苗者于康复后传播Covid的记录](/content/gnews/28/README.md)
+ ` 纽约香草山MOS02`
+
+### [加强针疫苗让教师减员，密歇根州镇政府关闭社区学校](/content/gnews/29/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [遏制中共，推进经济安全合作 ！“四边机制”领导人第二次线下峰会将在日本召开](/content/gnews/30/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [东芝公司宣布将拆分成为3家独立企业](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [应对中共，军事合作再升级！日本首次对澳军实施武装防卫](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [房地产压力接近临界！中共银保监会强调稳地价稳房价稳预期](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共疫苗灾难致大陆一线医护人员短缺](/content/gnews/34/README.md)
+ ` 纽约香草山MOS01`
+
+### [特斯拉汽车公司创始人马丁·埃伯哈德在法庭协议中因拒绝选择特斯拉股票而错失亿万资本](/content/gnews/35/README.md)
+ ` 滴水穿石`
+
+### [世界堕胎谋杀之都纽约市开设了 1000 个新冠病毒疫苗站点，在大屠杀仪式中为幼儿注射生物武器](/content/gnews/36/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [难道国内又要弄涨价去库存，让房价大涨一波?](/content/gnews/37/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [2021/11/11 墙内世界](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
