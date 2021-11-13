@@ -2,35 +2,35 @@
 ---
 
 
-## 俄亥俄州三名法官接种疫苗后相继死亡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1659161/)
+## 2021/11/11 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1659438/)
 
-作者：纽约香草山教育部 – 正义的小新
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，美国媒体消息称，俄亥俄州凯霍加郡的三名法官在接种新冠疫苗后相继死亡。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-13-上午1.26.02.png)
-此前，俄亥俄州曾使用各种手段试图强行推进该州的新冠疫苗接种率。报道称，该州汉密尔顿县的法官曾要求当地罪犯，作为“社区控制”或缓刑释放的一部分，罪犯必须在60天内接受新冠疫苗接种。
+1. 11月8日，是低温导致还是疫苗接种后的副作用？北京一舞蹈老师前一秒在教舞，后一秒突然嘴歪腿瘸，心梗当天就去世了。
+2. 拍照强迫新疆百姓喝防疫药物？防疫政策借口下对新疆人口人权的进一步践踏。
+3. 可以生产，可以售卖，就是不允许百姓行驶上路的中共国电动车。2个孩子看着警察发蒙了，他们俩不明白警察为什么要收缴他们家的车。
+4. 混乱城市规划下的深圳非机动车道断头路。
+5. 11月5日，山东烟台，非机动车道如“穿桩”，市民骑行自行车都懵了。
+6. 疑似被丢弃在广东茂名市化州福利院门口的弃婴。
+7. 11月9日，远处的“领导”在拍照作秀，镜头外的环卫工人在危险的马路上勤勤恳恳的干活。
+8. 环卫工将铁锹借给车辆被困的市民铲雪后，被管理者质疑偷懒而开除。
+9. 11月10日，湖北黄石，初三学生向在外地出差父亲哭诉学习的辛苦。应试教育高压下的青少年从未感受到知识带来的快乐。
+10. 北京，被没收掉外卖车的外卖小哥坐在路边惆怅。
+11. 11月3日，河南郑州，外卖小哥车被锁，与商场保安理论遭到殴打。
 
-另一方面，在俄亥俄州大面积推广新冠疫苗接种后，疫苗灾难也在逐渐显现。消息显示，三名俄亥俄州的法官分别于9月28日、10月2日，以及10月7日死亡。医疗记录表明，为了维持他们的工作，这三名法官均在数日前接种了新冠疫苗。
-评论人士称，将新冠疫苗与就业，甚至量刑挂钩是不恰当的，就医疗程序而言，这是一种强制行为。
 
-参考链接：
-1）[Three Ohio judges “die unexpectedly” in nine-day span after vaxx mandate in Cuyahoga County](https://thecovidblog.com/2021/10/24/three-ohio-judges-die-unexpectedly-in-nine-day-span-after-vaxx-mandates-in-cuyahoga-county/)
-2）[Get a Covid-19 Vaccine or Face Prison, Judges Order in Probation Cases](https://www.nytimes.com/2021/08/09/us/ohio-judge-covid-vaccine.html)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-总编：Ivy001
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
