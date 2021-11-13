@@ -2,30 +2,20 @@
 ---
 
 
-## 中共驻美大使馆游说美企反对与中共国相关议案
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1660265/)
+## 印度人口最多的北方邦因使用伊维菌素，疫情得到彻底控制
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1660289/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16324445831-e1636782783198.png)
-据路透社11月12日报道，中共国最近一直致函商界人士和与商界人士举行会议，施压美国企业高管和商业团体，要求他们敦促国会议员修改或撤销旨在增强美国竞争力、反对中共国的具体议案。
+#### 撰稿：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-92.jpg)
+《权威门户》10月30日报道，由于向印度大量人口推广维菌素和羟氯喹，印度北方邦的中共病例大幅下降。
 
-中共国官员警告企业，如果这项议案成为法律，他们将面临在中共国失去市场份额或收入的风险。中共国的要求让收到信件的个人担心，如果他们在未来就类似问题游说议员，可能会被视为违反了《外国代理人登记法》(FARA)。
+到2021年，该邦人口估计为2.41亿，是印度人口最多的邦，这几乎是美国人口的三分之二，但现在却连一个患中共病毒的都没有。相比之下，美国哪里做错了呢？这得问福奇博士。
 
-中共威逼利诱的策略从前在美国畅通无阻，但是随着中共日落西山的景象，不知道还有多少人愿意冒着风险继续与中共同流合污呢？痛打中共落水狗才是明智之举，也能撇清与中共的关系。
+北方邦是印度率先在所有家庭接触中及早预防性使用伊维菌素的邦，只有20%的成年人完全接种了疫苗，尽管疫苗接种率很低，但该邦是印度所有邦中中共病毒最低的五个邦之一。2.41亿人口中只有3200万人接种了第二剂疫苗。
 
-新闻参考链接：[https://cn.reuters.com/article/china-us-embassy-lobby-1113-idCNKBS2HY046](https://cn.reuters.com/article/china-us-embassy-lobby-1113-idCNKBS2HY046)
+印度政府上个月宣布，印度已经摆脱了中共病毒，治愈率上升至98.7%，充分证明伊维菌素对中共疫情的有效性。当然，媒体不会提及。
 
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[文章来源](https://www.thegatewaypundit.com/2021/10/update-71-75-districts-uttar-pradesh-india-reported-no-covid-19-cases-24-hours-implementing-ivermectin-protocol/)
 
  
 
