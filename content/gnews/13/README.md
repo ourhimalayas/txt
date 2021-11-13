@@ -2,42 +2,25 @@
 ---
 
 
-## 上诉法院再次确认停止拜登疫苗强制令
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1661878/)
+## “莫德纳加强剂疫苗”获加拿大卫生部批准
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1661897/)
 
-翻译：Lulumi
+采编：青青     编译撰稿：文明(添草灭共)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/APP-012121-Biden-COVID-CORONA-222-1.png)图片来源：thegatewaypundit.com
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/mdn-edited.jpg)图片来源：CTV
 
-9月拜登政府向私营部门挥舞铁拳，规定所有雇员要接受中共病毒疫苗注射或每周测试，否则就会被解雇。
 
-除了告诉所有210万联邦雇员接受疫苗注射或面临解雇之外，拜登政权还要求所有拥有100名以上雇员的公司对工人进行测试或证明他们已经接种疫苗。
+据加拿大媒体《CTV新闻》11月12日报道，【加拿大卫生部】当天宣布：批准【莫德纳公司】生产的“新冠病毒”疫苗将用于该国成年人的加强剂接种计划。
 
-不遵守拜登政权的中共病毒疫苗强制令的小企业将面临巨额罚款。
+据悉，此前“辉瑞加强剂”在11月9日已获得联邦政府批准，且二者都属于“mRNA”类型疫苗。按照目前【加拿大卫生部】的规定，“辉瑞加强针”是全剂量，而“莫德纳加强针”则为50微克，仅为常规疫苗剂量的一半。 
 
-该强制令本应于2022年1月4日生效。
-
-然而，上周一家上诉法院发布了暂停令，暂时停止了乔·拜登对拥有100名或以上雇员的企业的疫苗强制令。
-
-美国第五巡回上诉法院的裁决是在几个共和党州检察长对政府提起诉讼后作出的。
-
-拜登政权被指示在周一晚上之前对永久禁令的请求作出回应，以反对该裁决。
-
-上周五，美国第五巡回上诉法院维持其决定，停止拜登对拥有100名以上员工的企业的疫苗接种强制令。
-
-法院说，这项任务“使请愿者面临严重的财务风险，有可能使他们的劳动力（和商业前景）减少”。
-
-德克萨斯州总检察长肯·帕克斯顿周五庆祝了这一胜利。
-
-**参考资料：**[thegatewaypundit][JUST IN: Appeals Court Re-Affirms Halt on Biden’s Covid Vaccine Mandate for Private Businesses – Cites ‘Severe’ Risks](https://www.thegatewaypundit.com/2021/11/just-appeals-court-re-affirms-halt-bidens-covid-vaccine-mandate-private-businesses-cites-severe-risks/)
+报道指出，尽管当局此次批准的“莫德纳加强剂疫苗”适用于年龄在18岁以上，并且前两剂接种完成于六个月以前的人群。但【加拿大免疫咨询委员会】却只建议“高风险群体”包括：养老院住户，70岁以上人群，免疫力弱的个体和两剂接种之间相隔较短的一线医护人员等，接种该加强剂疫苗。
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
+校对编辑，发稿：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
+[原文链接：](https://www.ctvnews.ca/health/coronavirus/moderna-covid-19-vaccine-approved-for-booster-shot-health-canada-1.5663702)
 
  
 

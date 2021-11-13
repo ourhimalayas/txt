@@ -2,54 +2,60 @@
 ---
 
 
-## 喜币发行前后一错酿成千古恨
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1661600/)
+## 美国CDC表示将重新定义”完全接种疫苗”的标准
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1661622/)
 
-作者：纽约香草山农场健身部-幸福鸟
+作者：纽约香草山农场教育部 –  Naughty(文行)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
 
-在我们的现实生活中，一错酿成千古恨的事例数不胜数。七哥在11月12日的大直播中给我们列举了几个这类的事例，其中三个发生在喜币发行前后的活生生的故事令我们在为那些由于一错而悔恨终生的战友感到惋惜的同时，又需要引以为戒，告诫自己绝不能重蹈覆辙。诚然，真正有信仰，相信上天，相信爆料革命，相信七哥，相信新中国联邦的战友绝不会急功近利，轻易放弃自己手中的投票权！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-84.png)
 
-以下就是根据七哥的大直播写的三个故事。
+美国疾病控制和预防中心（CDC）主任Rochelle Walensky在10月22日表示，随着新冠疫苗加强针的日益普及，美国可能会改变未来重新定义“全面接种疫苗”的含义。
 
-故事1
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1416-ca_rachelwalenskycdc_getty.jpg)图片来源：Getty Image
 
-一位在日本的战友在11月12日大直播的前一天晚上哭得如丧考妣似的跟七哥说：他投了70万美元，是G-TV投资的老椅子，新增G-TV投资30万美元。后来又买了两张G-club卡。家人都没阻拦他。后来路大脑袋，蛇妖闫反水后，他家人开始出来反对七哥，说七哥不灭共了。老妈，老婆，女儿抱团开始折腾，要求他去退款，退卡。但是，他一直扛着，直到喜币上市的头一天10月31日还硬顶着。可是就在上市的10几个小时以前，他坚持不住了。老婆在楼上上蹿下跳地骂，跟孩子说：“你爸被骗了。彻底地被骗了，全家被骗了，完了，完了！”这个时候，他做了一个愚蠢的决定。他直接找到七哥提出来要把买币的钱全部退回给他。七哥找了一位在日本的朋友立马把钱退还给了他。喜币涨到10美元一个时他家人都还挺得住，现在已超过27美元一个，他家人都崩溃了！这也难怪，至少上千万美元的损失啊！而且这还只是刚刚开始呢！他老妈和老婆都有要中风的迹象。七哥对这位战友说：你怎么哭也不可能再给你了。
+她告诉记者，“我们尚未更改‘完全接种疫苗’的定义。我们将继续关注这一点。我们未来可能需要更新我们对“完全接种疫苗”的定义。‘’她说，如果您有资格获得加强针，请继续接种，我们将继续跟进。
 
-故事2
+那些已接种两剂辉瑞-BioNTech或Moderna疫苗，和已接种一剂强生疫苗的人将获得“完全疫苗接种”状态。
 
-一位在香港的战友，是曾经在香港反送中运动中做过贡献的一位女士。她在3美元时卖出20万个喜币，然后又在7美元时又卖出10万个，将手持的喜币全都卖掉了。在11月12日大直播的前一天晚上闹着哭着跟七哥说：我就这些钱，我把这些币都卖了。我错了，能不能再弄点币回来？七哥说：老天爷也弄不了币，真弄不了。她哭声一片。
+白宫冠状病毒应对协调员杰夫·齐根特斯指出，目前有超过70万人有资格接受加强针注射，并补充说：“在未来几个月内，超过1亿的美国人将有资格获得接种加强针资格。”
 
-故事3
+疾病预防控制中心数据显示，66.2%的美国人口接种了一剂COVID-19疫苗，而57.2%的人接种了两剂疫。大约6%的人接种了加强针。
 
-一位曾经在党内检察院系列，就是审查大连西区法院张鹏民（同音）案的一位重要战友，曾经冒着生命危险说会拿下张鹏民。他有20万喜币，在第三天抛出大部分。在11月12日大直播的前一天晚上也找到七哥，哭得一塌糊涂，说：我干那么大的事，怎么也得再给我弄个20-30万币，我永远不会再卖的。
+随着世界各地的疫苗危机在社交媒体尤其是盖特平台被广泛揭露传播，越来越多的人加入到了反对疫苗接种的队伍，在全球掀起了抵抗疫苗接种浪潮。
 
-这几个故事，让我们引以为戒。为了自己、后代以及人类美好的未来，我们一定要不忘初衷，守住我们手中的喜币，捍卫我们手中的投票权，跟随七哥消灭邪恶的CCP！
+这次美国重新定义“完全接种疫苗”标准显然又是想通过行政手段迫使人们接种更多疫苗，作为正道主义的笃信者和践行者，爆料革命的战友们应该更加积极行动起来，利用盖特等一系列社交媒体平台努力传播疫苗真相，唤醒更多的人们认清邪恶势力疫苗杀人的真相，团结一切追求正义的力量让邪恶势力的阴谋破产。
 
-参照链接：
+**参考阅读：**
 
-[https://gtv.org/video/id=618e6c5fe7e770379233c262](https://gtv.org/video/id=618e6c5fe7e770379233c262)
+[‘Fully vaccinated’ definition could change in future, CDC director says | TheHill](https://thehill.com/changing-america/well-being/prevention-cures/578056-fully-vaccinated-definition-could-change-in?utm_source=ground.news&amp;utm_medium=referral)
 
-校对/发稿：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-3.jpg)
+编辑/校对/发稿：小鹿
+
+
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

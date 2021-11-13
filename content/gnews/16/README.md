@@ -2,76 +2,51 @@
 ---
 
 
-## 【诗歌】临冬
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1661770/)
+## 蓬佩奥在世界知识论坛上的重要演讲
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1661876/)
 
-**作者：修罗闻道**
+作者：香草山农场 – 遍地开花
 
-[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/ca0f4fe5-0885-4586-a377-08864b5f5b6f.jpg?asset_id=4748bedd-be58-46f1-8d0c-0484c7427b48&amp;img_etag=%2246b44a3c574e50b7e9e9cf279d6d787a%22&amp;size=2560)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/ca0f4fe5-0885-4586-a377-08864b5f5b6f.jpg?asset_id=4748bedd-be58-46f1-8d0c-0484c7427b48&amp;img_etag=%2246b44a3c574e50b7e9e9cf279d6d787a%22&amp;size=1024)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-这一年仿佛是残缺的
 
-秋天还没来得及挣扎
 
-就被迅速抹杀
 
-从夏热到冬寒
 
-一瞬间
 
-这一世仿佛是梦幻的
 
-繁荣鼎盛锣鼓喧天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1417.jpg)
 
-转瞬间愁容惨淡
+10月25日，美国前国务卿蓬佩奥先生在世界知识论坛上发表了重要演讲。在演讲中，他提到了当前我们所面临的世界秩序的三次断裂：第一，中共病毒的传播和中国共产党的伪装。这其中包括美国的反叛和与中国共产党的勾兑。中共长期掩盖真相和破坏世界秩序——中共收买控制世卫组织，掩盖疫情真相，武毒至今仍在运转，继续给人类带来灾难；第二次断裂是中共的“一带一路”倡议，它是一种新形式的帝国主义。通过该倡议，中共收买了60个国家，大肆复制腐败贷款，通过这些贷款中隐藏的抵押和条约，将对方变成债务国，直至占有其全部资产；第三次断裂表现在中共公开表示要取代美国成为世界上最重要的力量。
 
-盛世到炼狱
+蓬佩奥还提到，中共并没有应对疫情，反而加速断裂，撕毁《中英联合声明》，把香港归为己有。中（共）国违反了所有贸易协议，并一直从以美国为代表的世界各国偷窃知识产权，是盗国贼控制的国家，
 
-一路骗
+蓬佩奥正在为了让世界了解中共的邪恶本质而不懈努力。
 
-他们先将自己欺骗
+新闻链接：[https://gettr.com/post/pf4ga170b0](https://gettr.com/post/pf4ga170b0)
 
-再去欺骗
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
 
-相信他们的人
+编辑/校对/发稿：小鹿
 
-周而复始
 
-他们要欺骗全世界
 
-可临冬的寒冷
+**更多资讯，更多关注**
 
-不会被欺骗
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-也不会去欺骗
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-整个世界
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-只有冷
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-冷的真实
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
-不虚伪
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-无论你想共产
 
-还是想特色
 
-在寒冬里
-
-只有瑟瑟发抖
-
-等待审判
-[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/c767eaed-2e9d-4cd8-9ef2-5a41e5e4f85a.png?asset_id=e1ac15f4-cf69-4de3-8393-583fbf4c1608&amp;img_etag=%22a1a3e4a1050ad02b89de5004bf3a9559%22&amp;size=2560)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/c767eaed-2e9d-4cd8-9ef2-5a41e5e4f85a.png?asset_id=e1ac15f4-cf69-4de3-8393-583fbf4c1608&amp;img_etag=%22a1a3e4a1050ad02b89de5004bf3a9559%22&amp;size=1024)
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*校对：穆清|审核：文明明| Page：小六月*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
-
-[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
 
 
  

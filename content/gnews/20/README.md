@@ -2,60 +2,40 @@
 ---
 
 
-## 美国CDC表示将重新定义”完全接种疫苗”的标准
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1661622/)
+## 出于心肌炎的担忧，台湾暂停12-17岁儿童接种第二剂疫苗
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1661693/)
 
-作者：纽约香草山农场教育部 –  Naughty(文行)
+**【简评：】***美国食品药物监督管理局FDA已经授权辉瑞疫苗用于5-11岁儿童，而中共国多地已经发出通知，宣布3至11岁的儿童将被要求接种疫苗。澳大利亚联邦政府在批准针对5至11岁儿童的辉瑞疫苗时持谨慎态度，卫生官员考虑等美国有更多的数据时再批准，台湾暂停12-17岁儿童接种第二剂COVID-19疫苗。希望更多国家和地区，不要跟风美国和中共国，在作出决定之前，谨慎研究毒疫苗对儿童的危害。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+据《台湾英文新闻》记者George Liao，2021年11月10日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-257-e1636832933441.png)图片来源：台湾英文新闻
+**台北（台湾新闻）—中央流行病指挥中心（CECC）负责人陈时中周三（11月10日）表示，专家小组已决定暂停为12-17岁儿童接种第二剂辉瑞生物技术（Pfizer-BioNTech，BNT）的COVID-19疫苗，因为担心它可能会增加患心肌炎的风险。**
 
+已有12–17岁儿童接种BNT疫苗后出现心肌炎（心肌炎症）和心包炎（心脏外膜炎症）病例的报告。 据CNA报道，根据美国的统计数据，在接种第二剂BNT的COVID-19疫苗，青少年患心肌炎的风险是接种一剂后10倍。
 
+一些国家已经调整了针对青少年接种COVID-19疫苗的政策。例如，香港将12-17岁儿童的BNT剂量从两剂改为一剂。英国也做了类似的事情，根据CNA的报道，英国建议12-18岁的孩子只接种一次。
 
+陈时中说，卫生和福利部的免疫实践咨询委员会（ACIP）已经决定，暂停向该年龄组接种第二剂BNT疫苗两周时间，在此期间，专家和疾病控制中心（CDC）的医生将研究16例青少年在接种BNT疫苗后患心肌炎的病例，然后决定是否继续进行第二剂注射。
 
+**CECC负责人说，在做出最终决定之前，还将参考国际数据。陈时中补充说，目前，除香港和英国外，全球范围内12-17岁的儿童正在接种两剂疫苗。**
 
-美国疾病控制和预防中心（CDC）主任Rochelle Walensky在10月22日表示，随着新冠疫苗加强针的日益普及，美国可能会改变未来重新定义“全面接种疫苗”的含义。
+至于是否会批准5-11岁儿童接种新冠疫苗，陈部长表示，在12-17岁儿童的第二次接种问题解决后，才会考虑此事。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1416-ca_rachelwalenskycdc_getty.jpg)图片来源：Getty Image
+原文连接：[https://www.taiwannews.com.tw/en/news/4340862](https://www.taiwannews.com.tw/en/news/4340862)
 
-她告诉记者，“我们尚未更改‘完全接种疫苗’的定义。我们将继续关注这一点。我们未来可能需要更新我们对“完全接种疫苗”的定义。‘’她说，如果您有资格获得加强针，请继续接种，我们将继续跟进。
+翻译：洛杉矶盘古农场–钢蛋儿
 
-那些已接种两剂辉瑞-BioNTech或Moderna疫苗，和已接种一剂强生疫苗的人将获得“完全疫苗接种”状态。
+校对：洛杉矶盘古农场–Mike Li
 
-白宫冠状病毒应对协调员杰夫·齐根特斯指出，目前有超过70万人有资格接受加强针注射，并补充说：“在未来几个月内，超过1亿的美国人将有资格获得接种加强针资格。”
+评论：洛杉矶盘古农场–钢蛋儿
 
-疾病预防控制中心数据显示，66.2%的美国人口接种了一剂COVID-19疫苗，而57.2%的人接种了两剂疫。大约6%的人接种了加强针。
-
-随着世界各地的疫苗危机在社交媒体尤其是盖特平台被广泛揭露传播，越来越多的人加入到了反对疫苗接种的队伍，在全球掀起了抵抗疫苗接种浪潮。
-
-这次美国重新定义“完全接种疫苗”标准显然又是想通过行政手段迫使人们接种更多疫苗，作为正道主义的笃信者和践行者，爆料革命的战友们应该更加积极行动起来，利用盖特等一系列社交媒体平台努力传播疫苗真相，唤醒更多的人们认清邪恶势力疫苗杀人的真相，团结一切追求正义的力量让邪恶势力的阴谋破产。
-
-**参考阅读：**
-
-[‘Fully vaccinated’ definition could change in future, CDC director says | TheHill](https://thehill.com/changing-america/well-being/prevention-cures/578056-fully-vaccinated-definition-could-change-in?utm_source=ground.news&amp;utm_medium=referral)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
+编辑：洛杉矶盘古农场–心照
 
 
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
