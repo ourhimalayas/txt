@@ -15,131 +15,131 @@
 
 ---
 
-### [习近平和常委军委下令施放病毒和疫苗的后果是全球伐共](/content/gnews/1/README.md)
+### [巡回上诉法院确认暂停拜登政府针对私营企业的疫苗强制令](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声| 生命的意义–从一个石瓶说起](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [美国法院维持暂停拜登政府对企业的疫苗强制令](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [习近平和常委军委下令施放病毒和疫苗的后果是全球伐共](/content/gnews/4/README.md)
  ` NewFOC`
 
-### [印度人口最多的北方邦因使用伊维菌素，疫情得到彻底控制](/content/gnews/2/README.md)
+### [印度人口最多的北方邦因使用伊维菌素，疫情得到彻底控制](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [我与班农站在一起](/content/gnews/3/README.md)
+### [我与班农站在一起](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共驻美大使馆游说美企反对与中共国相关议案](/content/gnews/4/README.md)
+### [中共驻美大使馆游说美企反对与中共国相关议案](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [只要马云愿意,郭文贵先生随时可救马云乘潜水艇到美国](/content/gnews/5/README.md)
+### [只要马云愿意,郭文贵先生随时可救马云乘潜水艇到美国](/content/gnews/8/README.md)
  ` NewFOC`
 
-### [【玫瑰看新闻】 【回魂时刻】- 188期 疫苗受害者专题新闻7#](/content/gnews/6/README.md)
+### [【玫瑰看新闻】 【回魂时刻】- 188期 疫苗受害者专题新闻7#](/content/gnews/9/README.md)
  ` 新西兰新联邦新闻摘要`
 
-### [向世界讲述病毒和疫苗真相意味着九死一生的极限威胁](/content/gnews/7/README.md)
+### [向世界讲述病毒和疫苗真相意味着九死一生的极限威胁](/content/gnews/10/README.md)
  ` NewFOC`
 
-### [11/12/2021 文贵直播：六中全会是上天给新中国联邦的大礼](/content/gnews/8/README.md)
+### [11/12/2021 文贵直播：六中全会是上天给新中国联邦的大礼](/content/gnews/11/README.md)
  ` 秘密翻译组-北美组`
 
-### [在荷兰宣布新的Covid限制措施后，警察对抗议者使用水炮](/content/gnews/9/README.md)
+### [在荷兰宣布新的Covid限制措施后，警察对抗议者使用水炮](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [随着用工荒加剧，咖啡和午餐将多花费20%](/content/gnews/10/README.md)
+### [随着用工荒加剧，咖啡和午餐将多花费20%](/content/gnews/13/README.md)
  ` 走进澳洲`
 
-### [11/12/2021 文贵直播：每位战友都是新中国联邦历史的参与者](/content/gnews/11/README.md)
+### [11/12/2021 文贵直播：每位战友都是新中国联邦历史的参与者](/content/gnews/14/README.md)
  ` 秘密翻译组-北美组`
 
-### [辽宁庄河市40万人门上贴封条居家隔离](/content/gnews/12/README.md)
+### [辽宁庄河市40万人门上贴封条居家隔离](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新冠病毒是中共生产的生化武器，而释放病毒是习近平主席和军委下的命令](/content/gnews/13/README.md)
+### [新冠病毒是中共生产的生化武器，而释放病毒是习近平主席和军委下的命令](/content/gnews/16/README.md)
  ` YALUN 亚伦`
 
-### [爆料革命迎来新金融时代、新国际人类大秩序和世界尊重](/content/gnews/14/README.md)
+### [爆料革命迎来新金融时代、新国际人类大秩序和世界尊重](/content/gnews/17/README.md)
  ` NewFOC`
 
-### [本周六是澳洲建筑工人完全接种的最后期限](/content/gnews/15/README.md)
+### [本周六是澳洲建筑工人完全接种的最后期限](/content/gnews/18/README.md)
  ` 走进澳洲`
 
-### [选择大于努力： G系列方舟和海外华人的夹缝求存与复盘](/content/gnews/16/README.md)
+### [选择大于努力： G系列方舟和海外华人的夹缝求存与复盘](/content/gnews/19/README.md)
  ` 秘密翻译组-原创组`
 
-### [中美两国元首将于11月16日举行视频会晤](/content/gnews/17/README.md)
+### [中美两国元首将于11月16日举行视频会晤](/content/gnews/20/README.md)
  ` 首尔天池农场`
 
-### [金融风暴之恶梦，正在向我们靠近](/content/gnews/18/README.md)
+### [金融风暴之恶梦，正在向我们靠近](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [每日快报：美国上诉法院确认搁置拜登的COVID-19疫苗强制令](/content/gnews/19/README.md)
+### [每日快报：美国上诉法院确认搁置拜登的COVID-19疫苗强制令](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：彭博社为喜马拉雅币“造势”，两周已达市值270亿美元](/content/gnews/20/README.md)
+### [秘翻在线：彭博社为喜马拉雅币“造势”，两周已达市值270亿美元](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [法国发现中共病毒新变种，已有24人被感染](/content/gnews/21/README.md)
+### [法国发现中共病毒新变种，已有24人被感染](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [岸田文雄与美军印太司令举行会谈，为加强美日军事同盟](/content/gnews/22/README.md)
+### [岸田文雄与美军印太司令举行会谈，为加强美日军事同盟](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：芝加哥中国留学生被杀事件引发行动呼吁](/content/gnews/23/README.md)
+### [秘翻在线：芝加哥中国留学生被杀事件引发行动呼吁](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中美生死对立以及疫苗灾难将迎来世界金融新秩序的诞生](/content/gnews/24/README.md)
+### [中美生死对立以及疫苗灾难将迎来世界金融新秩序的诞生](/content/gnews/27/README.md)
  ` NewFOC`
 
-### [郭文贵直播摘要和音频 2021.11.12](/content/gnews/25/README.md)
+### [郭文贵直播摘要和音频 2021.11.12](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [十九届六中全会公报提“十个坚持”的本质](/content/gnews/26/README.md)
+### [十九届六中全会公报提“十个坚持”的本质](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [为保美国供应链求见习主席，拜登总统答应羞辱性“卖国条约”](/content/gnews/27/README.md)
+### [为保美国供应链求见习主席，拜登总统答应羞辱性“卖国条约”](/content/gnews/30/README.md)
  ` YALUN 亚伦`
 
-### [新中国联邦正在建立国防部队以应对排华浪潮](/content/gnews/28/README.md)
+### [新中国联邦正在建立国防部队以应对排华浪潮](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [11/12/2021 文贵直播：美国某军工集团希望新中国联邦加入](/content/gnews/29/README.md)
+### [11/12/2021 文贵直播：美国某军工集团希望新中国联邦加入](/content/gnews/32/README.md)
  ` 秘密翻译组-北美组`
 
-### [【文贵先生大直播PPT】中共六中全会公报瞎说了啥？](/content/gnews/30/README.md)
+### [【文贵先生大直播PPT】中共六中全会公报瞎说了啥？](/content/gnews/33/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [GTV新闻访谈简报|2021年11月12日晚](/content/gnews/31/README.md)
+### [GTV新闻访谈简报|2021年11月12日晚](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
 
-### [【文贵先生大直播PPT】民生与经济](/content/gnews/32/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [奥地利官员称可能对未接种疫苗者实施封锁](/content/gnews/33/README.md)
+### [奥地利官员称可能对未接种疫苗者实施封锁](/content/gnews/35/README.md)
  ` 澳喜特战旅Gnews`
 
-### [雅典娜时报-第111期](/content/gnews/34/README.md)
+### [雅典娜时报-第111期](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【文贵先生大直播PPT】喜币最新进展](/content/gnews/35/README.md)
+### [【文贵先生大直播PPT】喜币最新进展](/content/gnews/37/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [巴西总统博尔索纳罗直面世卫组织负责人：“注射第二剂新冠疫苗后人们仍染疫而死亡”](/content/gnews/36/README.md)
+### [2021/11/12大卫作战室直播精要](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/11/12大卫作战室直播精要](/content/gnews/37/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共治下高等院校的虚假乱象](/content/gnews/38/README.md)
+### [中共治下高等院校的虚假乱象](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
 
-### [11/12/2021 文贵直播：作为总参三部的专业情报人员，沈南鹏在美国的政治、经济影响力非同一般](/content/gnews/39/README.md)
+### [11/12/2021 文贵直播：作为总参三部的专业情报人员，沈南鹏在美国的政治、经济影响力非同一般](/content/gnews/40/README.md)
  ` 秘密翻译组-北美组`
 
-### [文贵爆料 12/11: 习近平已成为千夫所指的公敌](/content/gnews/40/README.md)
+### [文贵爆料 12/11: 习近平已成为千夫所指的公敌](/content/gnews/41/README.md)
  ` 秘密翻译组-原创组`
 
-### [班农先生将会成为全人类的英雄！](/content/gnews/41/README.md)
+### [班农先生将会成为全人类的英雄！](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [有声|维也纳黔驴技穷 利用性服务引诱疫苗接种](/content/gnews/42/README.md)
- ` MOSREC`
 
 ### [东芝公司宣布将拆分成为3家独立企业](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
