@@ -2,49 +2,42 @@
 ---
 
 
-## 习近平和常委军委下令施放病毒和疫苗的后果是全球伐共
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1660300/)
+## 美国法院维持暂停拜登政府对企业的疫苗强制令
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1660313/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/35_Cover_副本.jpg)
-据[2021年11月12日 文贵大直播：六中全会最新信息；沈南鹏抛小米资产；恒大地产爆违约；喜交所最重要进展；新中国联邦国防建设](https://gtv.org/video/id=618e6c5fe7e770379233c262)时间点2：40：38——
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-**郭文贵先生：**兄弟姐妹们，你们看今天爆料革命走到疫苗灾难的时候，你们一定要听七哥的话，七哥是用生命和无数个国内战友用生命，防化学院、装甲兵原学院移到了防化学院的我们的爆料革命的战友，到日本的中纪委这样的办案组人员和武汉到现在参与的所有调查人员和研发人员和安保人员、在欧洲的科学家。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/MGN_1280x960_10809C00-XDXMK.jpg)图片来源：spokesman-recorder.com
 
-这么多人的生命和证据出来的——疫苗是真正的杀人的目标和工具，冠状病毒是共产党的生化武器，谁下的命令？是习近平和他的常委下的命令和军委。
 
-所以今天习一尊他就没想过，你要为疫苗付出代价的！我再重申一遍，2019年12月以前你任何共产党的官员，你动了他、你打他一巴掌你都可以被抓监狱，你甭说杀他了。
+#### 编译：小红帽
 
-但是现在我可以告诉大家，共产党的官在海外谁猎杀他都会成为人类的英雄。你记住我今天说的话，从你看到这些运动员死亡到明年5月份以后，全球声讨共产党的热浪会吓到你半死。我们唯一一个防范的你们现在在海外的你们这些人，不要被种族歧视和形成了排华式的灾难把你们给杀了，把你们给奸了，像印尼一样，从肛门里、从阴道里给你弄个棍子给你穿出来，给你当烤鸡给你烤了，这是新中国联盟最大的事。
+美国联邦法院周五维持暂停拜登政府的中共病毒（Covid-19）疫苗强制令。该强制令要求大型企业必须为员工接种中共病毒疫苗。
 
-你别以为打台湾，你什么，打台湾是一回事，在全世界华人的安全是最大的事儿， 我唯一，我对什么都有信心，就这一件事我没信心，这是为什么七哥要建我们的国防系统，马上建！全球的安保系统，在这种情况下你没钱救谁呀？你说新中国联邦七哥那些钱说救你这让你安全那是不可能的，那是个联合国做不到的事儿。
+位于新奥尔良的第五巡回上诉法院的三位法官小组确认了其上周的最初命令，该命令阻止了疫苗强制令的生效。法院周五说，疫苗强制令 “严重超越 “了政府的权力。
 
-但是今天大家知道喜币你们都有几百亿了，咱大家你说你带着币来被救和你带着个要饭的筐来你救我是什么结果呀，你带了个要饭的东西来，最多帮你一个月、一星期、俩月，能谁养活你？养活不了！他做不到！
+如果维持原判，被暂停的疫苗强制令将代表着拜登政府最具影响力的努力之一遇到了重大挫折。该努力旨在确保中共病毒在冬季卷土重来之前，为人民进行广泛的中共病毒疫苗接种。
 
-现在说我带着一筐币来了，谁不愿意救你？咋当然救你，还救你还高兴呢！你必须面对这个现实，疫苗灾难倒下之后就是新中国联邦面临最大的考验——排华的威胁。
+拜登为这些公司设定了一个1月4日的最后期限，以确保其员工全面接种中共病毒疫苗。 政府称，这一规则将影响全国三分之二以上的劳动力。法院的裁决批评说这一规则“过于宽泛”。
 
-（以下暂略）
+法院没有决定，这个适用于100人以上公司的疫苗强制令最终是否有效。
 
-撰稿：喜马拉雅的肉夹馍；
+但在其裁决中，法院表示批准暂停执行的部分原因是，该命令不可能通过宪法审查。
 
-审核：喜马拉雅的馍夹肉；
+库尔特·D·恩格尔哈特（Kurt D. Engelhardt）法官表示，如果不批准暂停疫苗强制令，可能会对雇员和本案的请愿者造成“无法弥补的伤害”。从经济的不确定性到工作场所的冲突，仅仅是疫苗强制令就在最近几个月导致了难以言喻的经济动荡。
 
-校对：Maarago；
+该裁决要求在审查挑战者提出的永久禁令请求之前，继续保持暂停状态。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+**参考新闻：**[US court maintains block on Biden vaccine mandate for businesses (msn.com)](https://www.msn.com/en-au/news/world/us-court-maintains-block-on-biden-vaccine-mandate-for-businesses/ar-AAQEluv?ocid=msedgdhp&amp;pc=U531)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+***发布：小红帽***
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

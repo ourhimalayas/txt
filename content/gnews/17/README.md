@@ -2,36 +2,20 @@
 ---
 
 
-## 有声| 生命的意义–从一个石瓶说起
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1660320/)
+## 巡回上诉法院确认暂停拜登政府针对私营企业的疫苗强制令
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1660321/)
 
-配音：香草山香港部 – 文凯琳
+#### 翻译/撰稿：zzballack
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-109-1280x172-1.jpg)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-9.jpg)图片来源：Star Tribune
+据《纽约邮报》（New York Post）11月12日报道，位于新奥尔良的美国联邦第五巡回上诉法院维持了11月6日做出的暂停拜登政府针对私营企业的疫苗强制令的决定。这项由职业安全与健康管理局（OSHA）颁布的强制令要求拥有百名以上雇员的企业须强制其所有全职和兼职员工在2022年1月4日之前接种新冠疫苗，或每周接受核酸测试并佩戴口罩。雇主每违规一次，将被罚款14000美元。将影响8400万工人的这项规定引发了几个州以及宗教和商业团体的法律挑战，他们认为这是违宪的。
 
+上诉法院的三人法官小组表示，这项疫苗规定太过宽泛，令人震惊，而且存在严重的法律和宪法问题。巡回法官库尔特·恩格尔哈特（Kurt Engelhardt）在为小组撰写的意见书中写道：“这项强制令一刀切，几乎没有试图考虑到工作场所（和工人）的差异。维护我们的宪法结构，维护个人根据自己的信念做出个人决定的自由，也符合公共利益，甚至、或许是因为这些决定让政府官员感到挫败。”
 
+德克萨斯州总检察长肯·帕克斯顿 (Ken Paxton)11月12日在推特上欢呼说，法院的这项决定是一场胜利。德州与其它几个州之前对该强制令提出了法律挑战。他在推特上写道：“以德州令人信服的论点为由，第五巡回法院暂停了OSHA违宪和非法的针对私营企业的疫苗规定。我们赢了! 诉讼将继续进行。无论对于德州，还是对于摆脱拜登的暴政和无法无天，这都是一场巨大的胜利。”
 
-在伊拉克博物馆，有一个看起来十分普通的石膏瓶，但就是这样一个石膏瓶，却是该馆的镇馆之宝。为什么一个石瓶能够成为镇馆之宝呢？这就要从人类文明的起初说起。
-
-《圣经·创世纪》中记载，亚当夏娃因罪离开伊甸园之后，来到了伊甸园东边之地居住，也就是现在两河流域的伊拉克这块地。后来亚当的儿子该隐做了农夫，该隐的弟弟亚伯做了牧人，到了收成的时候，他们都把自己的劳动成果当做祭物献给神。
-
-
-
-**文字版原文：[【信仰之声】生命的意义–从一个石瓶说起](https://gnews.org/zh-hans/1657094/)**
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+新闻来源：[‘Staggeringly overbroad’: Court affirms pause on Biden vax mandate for private biz](https://nypost.com/2021/11/12/court-affirms-pause-on-biden-vaccine-mandate-for-private-companies/)
 
  
 
