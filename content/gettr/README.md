@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/13/2021 6:23 AM (UTC)`
+
+彭博社电视台记者斯蒂芬·英格：恒大债务危机引发的中共国的金融压力最终可能会通过风险情绪的恶化使全球金融市场为之紧张<br/><br/>Bloomberg TV correspondent Stephen Engle: The financial stress triggered by Evergrande debt crisis may eventually strain global financial markets through a deterioration of risk sentiment<br/>
+![img](https://media.gettr.com/group5/getter/2021/11/13/06/23/210b2b94-f272-0a5c-ddcf-f553b11f1e56/out.jpg)
+
+---
+
 `@miles 11/13/2021 4:36 AM (UTC)`
 
 11/11/2021 Miles Guo: The CCP’s 6th Plenary Session is a gift from God - Xi Jinping will stay in power after the 20th Party Congress, rendering him the common enemy of the entire Party, and this will help the New Federal State of China destroy the CCP by taking advantage of its internal struggles; Xi will launch massive arrests and plunder the entrepreneurs in the Communist China prior to the 20th Party Congress<br/><br/>11/11/2021 文贵直播：六中全会是上天给新中国联邦的大礼 - 习近平要在20大后继续当老大，这将导致其成为全党众矢之的，这有助于新中国联邦以共灭共；20大前习将展开大抓捕并大肆洗劫国内企业家<br/><br/>
@@ -287,13 +294,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 11/7/2021 Miles Guo: The fundamental reason for the CCP to bar the Chinese people from buying digital currencies is because the CCP believes that decentralization will bring about its downfall. Thus, the CCP is imposing absolute centralization; the CCP can control the Western economy and security by dominating the digital currencies in the West<br/><br/>11/7/2021 文贵直播：中共不让中国人买数字货币的根本原因是中共认为去中心化将导致其灭亡，所以要进行绝对的中心化；中共通过获得西方数字货币的主导权，进而能控制西方的经济和安全<br/>
 ![img](https://media.gettr.com/group24/getter/2021/11/09/14/03/35cdad10-2e1f-c10d-25ea-8904ee76a8d2/out.jpg)
-
----
-
-`@miles 11/9/2021 1:49 PM (UTC)`
-
-11月9号：尊敬的战友们好，你们健身了吗？你们在北京的六中全会发现什么了吗？你们传播C C P的病毒和疫苗的解药的真相了吗？一切都已经开始！
-![img](https://media.gettr.com/group11/getter/2021/11/09/13/49/2b6019e8-3808-cf28-d2ce-eefef8f56975/out.jpg)
 
 ---
 
