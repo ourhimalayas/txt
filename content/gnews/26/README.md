@@ -2,74 +2,35 @@
 ---
 
 
-## 喜联储对中共最大的威胁是什么
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660673/)
+## 六中全会就是上天在帮我们新中国联邦
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1660725/)
 
-**郭文贵
-Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月12日直播图-2.png)图片来源：GTV
+**整理：澳雅速记小组
+编辑：Kelly**
 
-我说让你涨就涨
-You would jump if I said to let you (stock) jump
+郭先生**2021**年**11**月**12**日大直播摘要：
 
-我说让你降就降
-and you would drop if I said to drop
+六中全会就是上天在帮我们新中国联邦。
 
-说到这儿的时候
-When talking about this,
+六中全会，我最怕的就是习近平这个总加速师没了，上哪找一个这么好的、逆增上缘的战友啊？习近平习大神，他要不继续干十年，他要不搞所谓的第三个核心和毛泽东并列和邓小平并列，把江泽民胡锦涛踢出去， 咱上哪找这么一个加速师？天助我们新中国联邦。
 
-你知道我们喜联储对共产党最大的威胁是什么
-Do you know what is the biggest threat from our Himalaya Federal Reserve to the Chinese Communist Party (CCP)?
+习近平的决定让习成为了全党的公敌，共产党内部的绞杀，就像文化大革命的后期，毛泽东和刘少奇、林彪的绞杀。 如果习近平立了接班人，自己下台，那习马上就面临赤膊战斗，中国真可能失控。这回大家有个共同目标，干掉习。 习要永远护着自己的龙椅，国家和共产党的龙椅，就会很复杂。但这些人要干掉习，他们在暗处，只需一枪、一炮或者一粒药就能把习解决掉。
 
-还真不是你想象的
-It’s really not what you imagined
+全党的所有人就干两件事儿：
 
-它的钱能出来 它害怕
-They (the CCP) should be feared because they could lose money
+第一，保住自己的私生子女和财产，然后继续玩儿“宇宙是无限大，地球是一粒沙”。逮住机会把习干掉。 习加速师是我们的礼物，他这么一折腾，咱就省心了，咱这个两三年使劲赚钱，建立我们强大的新中国联邦的国防、建立强大的金融系统、多交朋友。 让新中国联邦得到认可，从外边准备好。让共产党内部绞杀，最后剩下一个人。剩下任何一个人，我们就给它干掉，我们就实现中国人的一人一票的选举。现在就闷声发大财，赶快赚钱，等着回去治理新中国。
 
-我给你控制就完了嘛
-All they (the CCP) need to do is control Himalaya Federal Reserve. That’s it
+另外一个：从昨天六中全会新闻发布会看，习近平把自己列为“毛邓习”或者是“毛习”。 而且从昨天的发布会已经很清楚，接班人一定是习的家人，一定是习认定的。接下来，二十大的事项肯定在党内已经都确定了，公告一下就行。明年二十大之前，会有大量的捕杀：王岐山、孟建柱、周亮、郭树清。要把习的李希、李雷全都弄上去，要把江家人逐渐铲除，想尽一切办法，要把整个企业所谓的再分配，一分配二分配三分配，现在还没开始。
 
-它相信自己能控制得了
-They (the CCP) believes they can control it (Himalaya Federal Reserve)
+*发布：热锅小蚂蚁*
 
-你出不去
-The money can’t go anywhere
-
-对它最大的打击是我们在外边的权力
-The biggest threat to them is our authority and power overseas
-
-就是你不可能渗透到喜联储（让他）成为你代言人
-and the CCP cannot influence the Himalaya Federal Reserve making it become their spokesperson
-
-帮助你收集西方的金融技术和跟你一起作恶
-helping them collect western financial technology, and to cause trouble with them
-
-是构造了这一个所谓西方的数字货币时代到来的话语权
-It constitutes the right to speak in this so-called Western digital currency era
-
-因为我们，它做不到
-They cannot do it because of us
-
-这才是它最大的担心
-This is their biggest worry
-
-Date: 11/09/2021
-原视频标题: 喜联储对中共最大的威胁是什么
-What is the biggest threat to the CCP from the Himalaya Federal Reserve?
-原视频日期：2021/11/07
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1458020644696649728?s=24](https://twitter.com/se1y7cblljselva/status/1458020644696649728?s=24)
-任务编号：KC245（2823）
-视频时间段 : 0:00-0:54
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 小战蚁
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)**
 
  
 

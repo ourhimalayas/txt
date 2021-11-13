@@ -2,44 +2,46 @@
 ---
 
 
-## 新西兰要求学校发现未接种疫苗的员工上班时报警
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1660448/)
+## 迈阿密向居民发放虚拟币收益
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1660633/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者： 英国喜庄园 I770775
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/2021-05-25-maori-police.jpg)
-
-
-
-图片来源：theworld.org
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-#### 编译：小红帽
 
-新西兰当局告诉学校，如果未接种中共病毒（COVID-19）疫苗的员工上班，请致电警察。
+11月11日，美国迈阿密市市长苏亚雷斯宣布，该市将直接向居民发放比特币收益作为股息红利，其收益来自迈阿密城市加密货币 MiamiCoin 的抵押。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2021.11.13AM-PICTURES-1-12图片备用.004.jpeg)
+资料显示，迈阿密城市加密货币 MiamiCoin 于今年年初推出。在过去三个月中，该加密货币为迈阿密赚取了超过 两千一百万美元的收益，相当于迈阿密每年税收总额的五分之一。
 
-《澳大利亚邮报》报道说：“周四在（新西兰）教育部公报上公布的建议告诉学校领导，如果他们或任何教育工作者在周一上班时没有接种中共病毒疫苗，他们将触犯法律”。
+苏亚雷斯补充，从长远来看，加密货币的使用将是革命性的。该市将与各种加密货币交易所合作，允许当地居民注册并验证加密货币交易系统，使得居民可以通过数字钱包进行交易。
 
-任何在11月15日之前没有接种中共病毒疫苗的工作人员，如果试图进入校园，将被处以罚款，这是该国“不打针，不工作 ”政策的一部分。
+对此，郭先生在直播中强调，虚拟货币是未来经济发展的趋势，新的经济秩序、社会秩序以及国际秩序也将因此重建。
 
-新西兰教育部建议：“如果工作人员在这一日期之后出现在工作场所，我们鼓励学校领导以处理不适当的人出现在现场的方式来处理”。
+参考链接：
 
-“如果你觉得你的安全、学生或其他工作人员的安全受到威胁，你可以考虑联系警方”。
+1. [美国迈阿密市长宣布将向市民发放比特币收益](https://www.chainnews.com/articles/058903220202.htm)
+2. [Miami Mayor: Residents Will Get Digital Wallets For ‘Bitcoin Dividend’](https://www.forbes.com/sites/lisakim/2021/11/11/miami-mayor-residents-will-get-digital-wallets-for-bitcoin-dividend/?sh=757a7f5350c8)
+3. [Crypto tax: ‘MiamiCoin’ has made the city $7 million so far, a potential game-changer for revenue collection](https://www.washingtonpost.com/technology/2021/09/30/crypto-miamicoin/)
+4. [MiamiCoin – CityCoins](https://www.citycoins.co/miamicoin)
+5. [MiamiCoin to USD Chart](https://coinmarketcap.com/currencies/miamicoin/)
 
-正如我们之前强调的那样，新西兰已经实施了发达国家中最残酷的封锁之一。在某种情况下，仅仅在发生一起中共病毒病例后，就封锁了该国的整个地区。
 
-与此同时，在新西兰，因被枪杀而死亡的人却被算作官方的中共病毒死亡人数。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-**参考新闻：**[New Zealand Tells Schools to Phone the Police if Unvaccinated Staff Show Up – Summit News](https://summit.news/2021/11/12/new-zealand-tells-schools-to-phone-the-police-if-unvaccinated-staff-show-up/)
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：我不在这里
 
-***发布：小红帽***
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

@@ -2,24 +2,50 @@
 ---
 
 
-## 美国公司和投资者持续投资中共国半导体行业
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1660611/)
+## 监管机构审查与莫德纳疫苗相关的“罕见”和重疾报告
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1660685/)
 
-#### 撰稿：彩虹
+编译：Jenny Ball
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-3-3.jpg)图片来源：Techstartup
-11月12日，《新闻极限》（Newsmax）引述《华尔街日报》报道，虽然拜登政府对国家安全有担忧，但众多美国公司及其在中共国的附属公司仍然继续投资于中共国的半导体行业。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-251.png)图片来源： theepochtimes.com 文件照片中可以在康涅狄格州布里奇波特看到几瓶莫德纳 COVID-19 疫苗。（约瑟夫·普雷齐奥索/法新社通过盖蒂图片社）
 
-今年7月份，现任白宫国家安全顾问杰克·苏利文（Jake Sullivan）表示，拜登政府正在“研究美国对外投资流动的影响，这些投资可能规避了出口管制的精神，或以其他方式提高我们竞争对手的技术能力，从而损害我们的国家安全”。
+欧洲药物监管机构周四证实，它正在调查莫德纳（ Moderna） 的 mRNA COVID-19 疫苗接受者血液状况的报告。
 
-但是，尽管如此，美国营利性智库荣鼎咨询(Rhodium Group)研究公司发现，在2017年到2020年的三年时间里，超过50笔涉及到中共国半导体行业的投资交易，其中包括英特尔公司（Intel），它投资了中共国公司概伦电子（Primarius Technologies Co），其他投资者包括硅谷风险投资公司光速创投（Lightspeed Venture Partners）、红杉资本（Sequoia Capital）、经纬创投（Matrix Partners）和红点投资（Redpoint Ventures），从去年年初以来，这些公司对中共国的芯片产业又进行了60多项投资。
+根据欧洲药品管理局 (EMA) 发布的公告，它正在审查 EMA 的 EudraVigilance 数据库中报告的 6 例毛细血管渗漏综合征，被认为是“非常罕见的疾病”。
 
-《华尔街日报》指出，尽管这些公司在大多数情况下没有披露投资金额，但研究表明，中共国的半导体初创企业可能已经筹集了几十亿美元。
+“在现阶段，尚不清楚疫苗接种与毛细血管渗漏综合征的报告之间是否存在因果关系，”EMA 周四写道，并补充说，“这些报告指向一个安全信号……关于新的或变化的信息在，可能与药物或疫苗相关并需要进一步调查的不良事件。”
 
-**新闻来源**
+该审查还将解决有毛细血管渗漏综合征病史的人群发生毛细血管渗漏综合征的风险。
 
-[US Firms Investing in Chinese Chip Makers Despite Security Concerns](https://www.newsmax.com/newsfront/us-firms-investment-china-semiconductors/2021/11/12/id/1044445/)
+因此，EMA 研究人员将“评估所有可用数据，以确定是否可能存在因果关系，”公告中写道。
+
+它还指出，“目前没有足够的证据”表明莫德纳的疫苗与多系统炎症综合征病例之间存在联系。
+
+根据梅奥诊所的说法，毛细血管渗漏综合征是一种罕见的疾病，涉及大量血浆从血管中反复渗漏到附近的体腔和肌肉中。这种被称为克拉克森病的疾病，会导致血压急剧下降，从而导致器官衰竭甚至死亡。
+
+“可能由上呼吸道感染或剧烈的体力消耗引发，发作频率从一年几次到一生一次不等，”诊所说。
+
+该诊所的网站称，症状包括恶心、疲劳、易怒、肌肉酸痛、口渴或体重突然增加。
+
+今年早些时候，EMA 的安全委员会得出结论，应将毛细血管渗漏综合征作为**阿斯利康疫苗的副作用添加到产品信息中**，阿斯利康疫苗使用的技术与莫德纳的不同。
+
+在欧盟之外，加拿大卫生机构今年早些时候更新了牛津-阿斯利康 (Oxford-AstraZeneca) 和病毒防护罩（Covishield COVID-19 ）疫苗的标签，以增加毛细血管渗漏综合征作为可能的副作用。**加拿大机构警告有疾病史的人：不要接种这些疫苗**。
+
+**评论：**“**加拿大机构警告有疾病史的人：不要接种这些疫苗**。”**而世界各国真正应该做的是，就不应该让他们的人民充当大药企的试验老鼠！**
+
+**新闻来源**：[theepochtimes.com][Regulator Reviewing Reports of ‘Rare’ and Serious Condition Linked to Moderna Vaccine](https://www.theepochtimes.com/mkt_morningbrief/regulator-investigating-moderna-vaccine-over-rare-but-serious-blood-condition_4099180.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-11-12&amp;mktids=24ab40685045db9190eb15406814df98&amp;est=QYINLdi2buGZ6bWU9g85DW2Q5AbkXZnMUw9Wnl%2F0E%2BVUjvu7EKHoJL4ru42bJbsFMF%2FhyQ%3D%3D)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
+
+
+
+
+
 
  
 
