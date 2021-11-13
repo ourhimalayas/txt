@@ -2,42 +2,21 @@
 ---
 
 
-## 上诉法院再次确认停止拜登疫苗强制令
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1661878/)
+## 加拿大魁北克反疫苗接种运动领导人再次被捕
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1661907/)
 
-翻译：Lulumi
+采编，编译撰稿：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/APP-012121-Biden-COVID-CORONA-222-1.png)图片来源：thegatewaypundit.com
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-4.png)图片来源：JDQ
 
-9月拜登政府向私营部门挥舞铁拳，规定所有雇员要接受中共病毒疫苗注射或每周测试，否则就会被解雇。
 
-除了告诉所有210万联邦雇员接受疫苗注射或面临解雇之外，拜登政权还要求所有拥有100名以上雇员的公司对工人进行测试或证明他们已经接种疫苗。
+据加拿大法语媒体《魁北克新闻》11月12日报道，当地知名反“新冠病毒”疫苗活动家比通多，当天在沙维尼根市举办的魁省省长演讲活动现场再次被当局逮捕。
 
-不遵守拜登政权的中共病毒疫苗强制令的小企业将面临巨额罚款。
+据悉，魁北克省警察局当天中午证实，该名43岁的前数学教师因被指控“妨碍治安官员、扰乱治安和违反缓刑规定”而遭省长演讲活动现场执勤的警员逮捕。目前，该“反疫苗运动”领导人在承诺出庭的情况下被释放，但其具体受审时间不明。
 
-该强制令本应于2022年1月4日生效。
+报道还称，这位“反疫苗接种”政策活动家此次被捕的视频在网络社交媒体上广泛传播，反响巨大。同时指出，这并非其首次被当局以相同原因而拘捕。到目前为止，比通多已收到了来自当地政府超过37,000加元“违反疫情卫生措施”的罚款通知。
 
-然而，上周一家上诉法院发布了暂停令，暂时停止了乔·拜登对拥有100名或以上雇员的企业的疫苗强制令。
-
-美国第五巡回上诉法院的裁决是在几个共和党州检察长对政府提起诉讼后作出的。
-
-拜登政权被指示在周一晚上之前对永久禁令的请求作出回应，以反对该裁决。
-
-上周五，美国第五巡回上诉法院维持其决定，停止拜登对拥有100名以上员工的企业的疫苗接种强制令。
-
-法院说，这项任务“使请愿者面临严重的财务风险，有可能使他们的劳动力（和商业前景）减少”。
-
-德克萨斯州总检察长肯·帕克斯顿周五庆祝了这一胜利。
-
-**参考资料：**[thegatewaypundit][JUST IN: Appeals Court Re-Affirms Halt on Biden’s Covid Vaccine Mandate for Private Businesses – Cites ‘Severe’ Risks](https://www.thegatewaypundit.com/2021/11/just-appeals-court-re-affirms-halt-bidens-covid-vaccine-mandate-private-businesses-cites-severe-risks/)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
+[原文链接：](https://www.journaldequebec.com/2021/11/12/un-leader-antivaccin-arrete-a-nouveau)
 
  
 

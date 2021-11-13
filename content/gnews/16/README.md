@@ -2,59 +2,76 @@
 ---
 
 
-## 美国CDC表示将重新定义”完全接种疫苗”的标准
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1661622/)
+## 【诗歌】临冬
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1661770/)
 
-作者：纽约香草山农场教育部 –  Naughty(文行)
+**作者：修罗闻道**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/ca0f4fe5-0885-4586-a377-08864b5f5b6f.jpg?asset_id=4748bedd-be58-46f1-8d0c-0484c7427b48&amp;img_etag=%2246b44a3c574e50b7e9e9cf279d6d787a%22&amp;size=2560)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/ca0f4fe5-0885-4586-a377-08864b5f5b6f.jpg?asset_id=4748bedd-be58-46f1-8d0c-0484c7427b48&amp;img_etag=%2246b44a3c574e50b7e9e9cf279d6d787a%22&amp;size=1024)
 
+这一年仿佛是残缺的
 
+秋天还没来得及挣扎
 
+就被迅速抹杀
 
+从夏热到冬寒
 
-美国疾病控制和预防中心（CDC）主任Rochelle Walensky在10月22日表示，随着新冠疫苗加强针的日益普及，美国可能会改变未来重新定义“全面接种疫苗”的含义。
+一瞬间
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1416-ca_rachelwalenskycdc_getty.jpg)图片来源：Getty Image
+这一世仿佛是梦幻的
 
-她告诉记者，“我们尚未更改‘完全接种疫苗’的定义。我们将继续关注这一点。我们未来可能需要更新我们对“完全接种疫苗”的定义。‘’她说，如果您有资格获得加强针，请继续接种，我们将继续跟进。
+繁荣鼎盛锣鼓喧天
 
-那些已接种两剂辉瑞-BioNTech或Moderna疫苗，和已接种一剂强生疫苗的人将获得“完全疫苗接种”状态。
+转瞬间愁容惨淡
 
-白宫冠状病毒应对协调员杰夫·齐根特斯指出，目前有超过70万人有资格接受加强针注射，并补充说：“在未来几个月内，超过1亿的美国人将有资格获得接种加强针资格。”
+盛世到炼狱
 
-疾病预防控制中心数据显示，66.2%的美国人口接种了一剂COVID-19疫苗，而57.2%的人接种了两剂疫。大约6%的人接种了加强针。
+一路骗
 
-随着世界各地的疫苗危机在社交媒体尤其是盖特平台被广泛揭露传播，越来越多的人加入到了反对疫苗接种的队伍，在全球掀起了抵抗疫苗接种浪潮。
+他们先将自己欺骗
 
-这次美国重新定义“完全接种疫苗”标准显然又是想通过行政手段迫使人们接种更多疫苗，作为正道主义的笃信者和践行者，爆料革命的战友们应该更加积极行动起来，利用盖特等一系列社交媒体平台努力传播疫苗真相，唤醒更多的人们认清邪恶势力疫苗杀人的真相，团结一切追求正义的力量让邪恶势力的阴谋破产。
+再去欺骗
 
-**参考阅读：**
+相信他们的人
 
-[‘Fully vaccinated’ definition could change in future, CDC director says | TheHill](https://thehill.com/changing-america/well-being/prevention-cures/578056-fully-vaccinated-definition-could-change-in?utm_source=ground.news&amp;utm_medium=referral)
+周而复始
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+他们要欺骗全世界
 
-编辑/校对/发稿：小鹿
+可临冬的寒冷
 
+不会被欺骗
 
+也不会去欺骗
 
-**更多资讯，更多关注**
+整个世界
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+只有冷
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+冷的真实
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+不虚伪
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+无论你想共产
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+还是想特色
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+在寒冬里
 
+只有瑟瑟发抖
 
+等待审判
+[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/c767eaed-2e9d-4cd8-9ef2-5a41e5e4f85a.png?asset_id=e1ac15f4-cf69-4de3-8393-583fbf4c1608&amp;img_etag=%22a1a3e4a1050ad02b89de5004bf3a9559%22&amp;size=2560)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/c767eaed-2e9d-4cd8-9ef2-5a41e5e4f85a.png?asset_id=e1ac15f4-cf69-4de3-8393-583fbf4c1608&amp;img_etag=%22a1a3e4a1050ad02b89de5004bf3a9559%22&amp;size=1024)
+*编辑：【英国伦敦喜庄园编辑部】*
 
+*校对：穆清|审核：文明明| Page：小六月*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
 
 
  

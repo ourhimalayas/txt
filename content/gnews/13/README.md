@@ -2,43 +2,42 @@
 ---
 
 
-## 教皇方济各表示全球重置是真实的，没有“回归正常”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1661734/)
+## 上诉法院再次确认停止拜登疫苗强制令
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1661878/)
 
-**【简评：】***维加诺（Carlo Maria Viganò）大主教：“这么多红衣主教和主教的沉默，以及教廷对疫苗接种运动的不可思议的推动，代表了一种前所未有的共谋，不能再继续下去了。有必要谴责这一丑闻，这一反人类的罪行，这一反对上帝的邪恶行动。”*
+翻译：Lulumi
 
-《breitbart.com》 作者：Thomas D. Williams，2021年11月11日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-258-e1636834078470.png)图片来源： (Photo by YARA NARDI/POOL/AFP via Getty Images)
-2021年11月4日，教皇弗朗西斯在梵蒂冈的圣彼得大教堂举行弥撒，向今年去世的主教和红衣主教致敬。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/APP-012121-Biden-COVID-CORONA-222-1.png)图片来源：thegatewaypundit.com
 
-**罗马教皇方济各周一断言，人类需要一次全球重启，因为不值得回到过去不公正的、大流行前的世界。**
+9月拜登政府向私营部门挥舞铁拳，规定所有雇员要接受中共病毒疫苗注射或每周测试，否则就会被解雇。
 
-在给巴黎和平论坛的致辞中，教皇描绘了一个由腐败、战争和资本主义压迫主导的新冠病毒前世界的可怕景象。
+除了告诉所有210万联邦雇员接受疫苗注射或面临解雇之外，拜登政权还要求所有拥有100名以上雇员的公司对工人进行测试或证明他们已经接种疫苗。
 
-**方济各说：“在大流行病之前，我们知道的现实情况是，财富和经济增长只属于少数人，而数百万人无法满足最基本的需求，无法过上有尊严的生活，在这个世界上，我们的地球被短视的资源开发、污染、‘一次性’消费主义所掠夺，被战争和大规模毁灭性武器的实验所伤害。”**
+不遵守拜登政权的中共病毒疫苗强制令的小企业将面临巨额罚款。
 
-“恢复正常也意味着回到由自给自足、民族主义、保护主义、个人主义和孤立所激发的旧的社会结构，”他补充说，“这种社会排斥我们最贫穷的兄弟姐妹。这是我们可以选择的未来吗？”
+该强制令本应于2022年1月4日生效。
 
-**“在这个全球化但又撕裂的世界里，我们今天为摆脱危机所做的决定决定了未来几代人的‘路线’，”他宣称，因此“我们需要一条新的出路，比以前走得更好”。**
+然而，上周一家上诉法院发布了暂停令，暂时停止了乔·拜登对拥有100名或以上雇员的企业的疫苗强制令。
 
-“希望邀请我们做个伟大的梦想，给新的可能性提供想象空间，”他说：“希望是大胆的，并激励我们在认识到现实可以改变的基础上采取行动。”
+美国第五巡回上诉法院的裁决是在几个共和党州检察长对政府提起诉讼后作出的。
 
-教皇对新世界的愿景始于“有利于整体裁军的具体集体承诺”，他指出。“世界军事开支现在已经超过了‘冷战’结束时的程度，而且每年都在有计划地增加”。
+拜登政权被指示在周一晚上之前对永久禁令的请求作出回应，以反对该裁决。
 
-文章来源：
+上周五，美国第五巡回上诉法院维持其决定，停止拜登对拥有100名以上员工的企业的疫苗接种强制令。
 
-[https://www.breitbart.com/economy/2021/11/11/pope-francis-says-global-reset-is-real-no-return-to-normality-after-the-pandemic/](https://www.breitbart.com/economy/2021/11/11/pope-francis-says-global-reset-is-real-no-return-to-normality-after-the-pandemic/)
+法院说，这项任务“使请愿者面临严重的财务风险，有可能使他们的劳动力（和商业前景）减少”。
 
-翻译：洛杉矶盘古农场–Mike Li
-校对：洛杉矶盘古农场–轰炸机
-评论：洛杉矶盘古农场–Mike Li
-编辑：洛杉矶盘古农场–心照
+德克萨斯州总检察长肯·帕克斯顿周五庆祝了这一胜利。
 
+**参考资料：**[thegatewaypundit][JUST IN: Appeals Court Re-Affirms Halt on Biden’s Covid Vaccine Mandate for Private Businesses – Cites ‘Severe’ Risks](https://www.thegatewaypundit.com/2021/11/just-appeals-court-re-affirms-halt-bidens-covid-vaccine-mandate-private-businesses-cites-severe-risks/)
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+* * *
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
 
  
 

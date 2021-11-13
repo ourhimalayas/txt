@@ -2,48 +2,60 @@
 ---
 
 
-## 第五巡回法院维持“中止拜登疫苗强制令”的裁决
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1661547/)
+## 美国CDC表示将重新定义”完全接种疫苗”的标准
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1661622/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：纽约香草山农场教育部 –  Naughty(文行)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/V-3.png)俄罗斯莫斯科喀秋莎农场  女农
-《abc10》11月12日发表文章，题目是“上诉法院支持雇主中止疫苗或测试强制，称之为‘过火（的政策）’”，文章副标题说，周五（11月12日），第五巡回上诉法院做出裁决，暂停执行拜登为大型企业雇主下达的疫苗或测试强制令。【1】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-全文如下：
 
-一家美国上诉法院维持其裁决，暂停乔·拜登对美国大企业雇主的疫苗或测试强制令，第五巡回上诉法院称之为“令人震惊的过火”。
 
-总部位于新奥尔良的法院上周末发布了暂缓执行这项强制令的法庭令，（拜登政府）要求拥有100名及以上员工的公司确保其员工接种疫苗或每周接受检测，从1月4日开始，违反这项规定的每一次都可能被处以高额罚款。
 
-超过24名共和党州的总检察长、企业、宗教团体和保守派协会发起诉讼，理由是联邦政府无权制定这项规定，部分的原因是因为，中共病毒不是工作场所特有的危险。
 
-拜登政府周一（11月8日）作出回应，用生死攸关的措辞阐述了其对这项任务的主张，司法部和劳工部的律师说，阻止这项强制令生效只会延长中共病毒疫情的时间，并将“每天夺去数十人甚至数百人的生命”。
+美国疾病控制和预防中心（CDC）主任Rochelle Walensky在10月22日表示，随着新冠疫苗加强针的日益普及，美国可能会改变未来重新定义“全面接种疫苗”的含义。
 
-美国政府还辩称，没有理由停止实施该规定，因为最后一剂疫苗将不需要在12月底之前接种，以满足最后期限。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1416-ca_rachelwalenskycdc_getty.jpg)图片来源：Getty Image
 
-上周发布的“职业安全与健康管理局”（OSHA，Occupational Safety and Health Administration）规定，以宗教为理由反对接种的工作人员、不与同事或客户进行亲自交流的人以及仅在户外工作的人可以获得豁免。
+她告诉记者，“我们尚未更改‘完全接种疫苗’的定义。我们将继续关注这一点。我们未来可能需要更新我们对“完全接种疫苗”的定义。‘’她说，如果您有资格获得加强针，请继续接种，我们将继续跟进。
 
-巡回法院法官库尔特·恩格尔哈特（Kurt Engelhardt）周五（11月12日）写道，这项强制令用“一刀切”的方式涵盖了所有的工作条件，并称其运作程序“几乎没有试图解释所面临的风险之间的明显差异，比如说，没有对一个孤零零上夜班的保安和一个在拥挤的仓库里肩并肩工作的肉类包装工之间的差异做出解释。”
+那些已接种两剂辉瑞-BioNTech或Moderna疫苗，和已接种一剂强生疫苗的人将获得“完全疫苗接种”状态。
 
-法院还询问，如果该行政令的目的是为了防止“严重危险”，为什么该规则不适用于一家刚好低于门槛的公司，比如有99名工人的公司？
+白宫冠状病毒应对协调员杰夫·齐根特斯指出，目前有超过70万人有资格接受加强针注射，并补充说：“在未来几个月内，超过1亿的美国人将有资格获得接种加强针资格。”
 
-法院表示，这项规定不考虑已经感染了中共病毒的人，他们现在可能具有自然免疫力但没有接种疫苗。
+疾病预防控制中心数据显示，66.2%的美国人口接种了一剂COVID-19疫苗，而57.2%的人接种了两剂疫。大约6%的人接种了加强针。
 
-法院裁定，除非另一项法庭令推翻这个中止令，否则“职业安全与健康管理局”不得推进实施或强制执行他们的行政令。
+随着世界各地的疫苗危机在社交媒体尤其是盖特平台被广泛揭露传播，越来越多的人加入到了反对疫苗接种的队伍，在全球掀起了抵抗疫苗接种浪潮。
 
-（全文完）
+这次美国重新定义“完全接种疫苗”标准显然又是想通过行政手段迫使人们接种更多疫苗，作为正道主义的笃信者和践行者，爆料革命的战友们应该更加积极行动起来，利用盖特等一系列社交媒体平台努力传播疫苗真相，唤醒更多的人们认清邪恶势力疫苗杀人的真相，团结一切追求正义的力量让邪恶势力的阴谋破产。
 
-保守人士对此则消息表示了极大的欢呼，新泽西州的共和党议员特里西娅·弗拉纳根（Tricia Flanagan）称，“这是自由的巨大胜利”【2】。目前众多的巡回法院收到来自州总检察长、受害企业的诉讼，很多已经在审理中，第五巡回法院的再次判决结果应该能产生更深远的影响。希望这是推倒疫苗阴谋多米诺骨牌的第一张。
+**参考阅读：**
 
-革命尚未成功，战友仍需努力！
+[‘Fully vaccinated’ definition could change in future, CDC director says | TheHill](https://thehill.com/changing-america/well-being/prevention-cures/578056-fully-vaccinated-definition-could-change-in?utm_source=ground.news&amp;utm_medium=referral)
 
-有关链接：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
 
-【1】[https://www.abc10.com/article/news/health/coronavirus/vaccine/biden-covid-vaccine-mandate-stay-upheld-appeals-court/507-994486fb-05aa-4ce1-b869-2a4b6eafeb5e](https://www.abc10.com/article/news/health/coronavirus/vaccine/biden-covid-vaccine-mandate-stay-upheld-appeals-court/507-994486fb-05aa-4ce1-b869-2a4b6eafeb5e)
+编辑/校对/发稿：小鹿
 
-【2】[https://twitter.com/NewDayForNJ/status/1459480471327449090](https://twitter.com/NewDayForNJ/status/1459480471327449090)
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

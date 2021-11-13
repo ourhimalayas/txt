@@ -2,77 +2,25 @@
 ---
 
 
-## 【诗歌】临冬
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1661770/)
+## 美联邦法院驳回拜登欲解除【强制接种暂停令】的申诉
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1661880/)
 
-**作者：修罗闻道**
+采编：文莱   编译撰稿：文明(添草灭共)
 
-[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/ca0f4fe5-0885-4586-a377-08864b5f5b6f.jpg?asset_id=4748bedd-be58-46f1-8d0c-0484c7427b48&amp;img_etag=%2246b44a3c574e50b7e9e9cf279d6d787a%22&amp;size=2560)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/ca0f4fe5-0885-4586-a377-08864b5f5b6f.jpg?asset_id=4748bedd-be58-46f1-8d0c-0484c7427b48&amp;img_etag=%2246b44a3c574e50b7e9e9cf279d6d787a%22&amp;size=1024)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-29-edited.jpg)图片来源：CTV
 
-这一年仿佛是残缺的
 
-秋天还没来得及挣扎
+据【路透社】11月12日报道，针对美国总统“新冠病毒疫苗”强制接种政策被德克萨斯等11个州政府反对并联合发起的诉讼，联邦【第五巡回上诉法院】经审理后于本月6日对该政策发布了暂停令。拜登政府于8日晚对此做出回应，要求联邦法院解除该禁止令，但原告此项申诉最终被驳回。
 
-就被迅速抹杀
+拜登政府在其诉求中辩称，由于【联邦职业安全健康管理局】要求的接种疫苗及病毒检测的截止日期是明年1月份，因此，目前衡量该政策所造成的伤害为时过早。同时，暂停疫苗接种令可能会导致病毒的更广泛传播，并造成大量民众因此染病或丧生。
 
-从夏热到冬寒
+为此，联邦【第五巡回上诉法院】进行审议并提出，该强制接种政策未考虑各种工作环境及个人状况的差异而采取“一刀切”的做法不切实际。同时，该规定也违反了《美国宪法》并剥夺了个人自由权利。因此，法院最终作出本轮裁决：维持暂停令并驳回拜登政府的以上诉求。
 
-一瞬间
+* * *
 
-这一世仿佛是梦幻的
+校对编辑，发稿：硫酸羟氯喹64
 
-繁荣鼎盛锣鼓喧天
-
-转瞬间愁容惨淡
-
-盛世到炼狱
-
-一路骗
-
-他们先将自己欺骗
-
-再去欺骗
-
-相信他们的人
-
-周而复始
-
-他们要欺骗全世界
-
-可临冬的寒冷
-
-不会被欺骗
-
-也不会去欺骗
-
-整个世界
-
-只有冷
-
-冷的真实
-
-不虚伪
-
-无论你想共产
-
-还是想特色
-
-在寒冬里
-
-只有瑟瑟发抖
-
-等待审判
-[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/c767eaed-2e9d-4cd8-9ef2-5a41e5e4f85a.png?asset_id=e1ac15f4-cf69-4de3-8393-583fbf4c1608&amp;img_etag=%22a1a3e4a1050ad02b89de5004bf3a9559%22&amp;size=2560)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/c767eaed-2e9d-4cd8-9ef2-5a41e5e4f85a.png?asset_id=e1ac15f4-cf69-4de3-8393-583fbf4c1608&amp;img_etag=%22a1a3e4a1050ad02b89de5004bf3a9559%22&amp;size=1024)
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*校对：穆清|审核：文明明| Page：小六月*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
-
-[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
-
+[原文链接：](https://www.reuters.com/world/us/federal-appeals-court-affirms-stay-biden-vaccine-mandate-2021-11-12/)
 
  
 
