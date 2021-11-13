@@ -2,49 +2,18 @@
 ---
 
 
-## 加州一联合学区宣布 抵制中共病毒疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661355/)
+## 挪威海事以及红海演习
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1661376/)
 
-作者：纽约香草山 – AlexZ
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11135.png)图片来自RFI
+位于挪威北部海岸的一段传感器和电缆消失不见了，它们是被用来监视渔船的交通，以及潜艇的可能通过。几个月来的猜疑现在得到确认，这引起人们对俄罗斯的关注，不排除是俄罗斯潜水部队先破坏了网络，然后又拿走了部分组件。从进行的检查的情况来看，偷盗者需要使用相当多的手段来进行这个操作。
 
+以色列首次与阿联酋和巴林海军一起进行演习。和他们在一起的还有美国人。这个演习发生在红海，这说明耶路撒冷与海湾君主国的关系日益密切。同时相关国家都担心正在发生危机的水道（苏丹、非洲之角、也门）的安全，以及常规战争和破坏活动的危险。并且值得一提的是这几个国家都是伊朗的竞争对手，伊朗通过支持也门什叶派胡蒂游击队而出现在该地区。
 
+原文链接：[https://www.corriere.it/america-cina/2021/11/12/clima-covid-potere-nove-storie-moderne-511f5bf6-4398-11ec-a435-e4aaec2a817d.shtml](https://www.corriere.it/america-cina/2021/11/12/clima-covid-potere-nove-storie-moderne-511f5bf6-4398-11ec-a435-e4aaec2a817d.shtml)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-11月10日，加利福尼亚州卡拉维拉斯联合学区宣布，他们将拒绝遵守州长纽森的强制接种中共病毒疫苗的政策。
-
-在美国CDC批准为5-11岁的儿童接种疫苗大约一周后，周三晚上，该学区董事会以 5 比 0 的投票结果决定“不支持、执行或遵守”强制接种疫苗令。这项决定将适用于学生和教职工人员。
-
-本月早些时候，学区表示，他们知道可能的结果，包括责任风险、联邦资助金损失，和其他可能对该学区采取的“正式行动“。然而，他们仍然坚定执行这一决定。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-99.jpg)
-参考链接：
-[Calif. School District Will Not Comply With Vaccine Mandate](https://www.oann.com/calif-school-district-will-not-comply-with-vaccine-mandate/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：文徬
-编辑：童谣
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

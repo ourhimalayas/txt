@@ -2,40 +2,77 @@
 ---
 
 
-## 出于心肌炎的担忧，台湾暂停12-17岁儿童接种第二剂疫苗
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1661693/)
+## 【诗歌】临冬
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1661770/)
 
-**【简评：】***美国食品药物监督管理局FDA已经授权辉瑞疫苗用于5-11岁儿童，而中共国多地已经发出通知，宣布3至11岁的儿童将被要求接种疫苗。澳大利亚联邦政府在批准针对5至11岁儿童的辉瑞疫苗时持谨慎态度，卫生官员考虑等美国有更多的数据时再批准，台湾暂停12-17岁儿童接种第二剂COVID-19疫苗。希望更多国家和地区，不要跟风美国和中共国，在作出决定之前，谨慎研究毒疫苗对儿童的危害。*
+**作者：修罗闻道**
 
-据《台湾英文新闻》记者George Liao，2021年11月10日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-257-e1636832933441.png)图片来源：台湾英文新闻
-**台北（台湾新闻）—中央流行病指挥中心（CECC）负责人陈时中周三（11月10日）表示，专家小组已决定暂停为12-17岁儿童接种第二剂辉瑞生物技术（Pfizer-BioNTech，BNT）的COVID-19疫苗，因为担心它可能会增加患心肌炎的风险。**
+[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/ca0f4fe5-0885-4586-a377-08864b5f5b6f.jpg?asset_id=4748bedd-be58-46f1-8d0c-0484c7427b48&amp;img_etag=%2246b44a3c574e50b7e9e9cf279d6d787a%22&amp;size=2560)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/ca0f4fe5-0885-4586-a377-08864b5f5b6f.jpg?asset_id=4748bedd-be58-46f1-8d0c-0484c7427b48&amp;img_etag=%2246b44a3c574e50b7e9e9cf279d6d787a%22&amp;size=1024)
 
-已有12–17岁儿童接种BNT疫苗后出现心肌炎（心肌炎症）和心包炎（心脏外膜炎症）病例的报告。 据CNA报道，根据美国的统计数据，在接种第二剂BNT的COVID-19疫苗，青少年患心肌炎的风险是接种一剂后10倍。
+这一年仿佛是残缺的
 
-一些国家已经调整了针对青少年接种COVID-19疫苗的政策。例如，香港将12-17岁儿童的BNT剂量从两剂改为一剂。英国也做了类似的事情，根据CNA的报道，英国建议12-18岁的孩子只接种一次。
+秋天还没来得及挣扎
 
-陈时中说，卫生和福利部的免疫实践咨询委员会（ACIP）已经决定，暂停向该年龄组接种第二剂BNT疫苗两周时间，在此期间，专家和疾病控制中心（CDC）的医生将研究16例青少年在接种BNT疫苗后患心肌炎的病例，然后决定是否继续进行第二剂注射。
+就被迅速抹杀
 
-**CECC负责人说，在做出最终决定之前，还将参考国际数据。陈时中补充说，目前，除香港和英国外，全球范围内12-17岁的儿童正在接种两剂疫苗。**
+从夏热到冬寒
 
-至于是否会批准5-11岁儿童接种新冠疫苗，陈部长表示，在12-17岁儿童的第二次接种问题解决后，才会考虑此事。
+一瞬间
 
-原文连接：[https://www.taiwannews.com.tw/en/news/4340862](https://www.taiwannews.com.tw/en/news/4340862)
+这一世仿佛是梦幻的
 
-翻译：洛杉矶盘古农场–钢蛋儿
+繁荣鼎盛锣鼓喧天
 
-校对：洛杉矶盘古农场–Mike Li
+转瞬间愁容惨淡
 
-评论：洛杉矶盘古农场–钢蛋儿
+盛世到炼狱
 
-编辑：洛杉矶盘古农场–心照
+一路骗
 
+他们先将自己欺骗
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+再去欺骗
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+相信他们的人
+
+周而复始
+
+他们要欺骗全世界
+
+可临冬的寒冷
+
+不会被欺骗
+
+也不会去欺骗
+
+整个世界
+
+只有冷
+
+冷的真实
+
+不虚伪
+
+无论你想共产
+
+还是想特色
+
+在寒冬里
+
+只有瑟瑟发抖
+
+等待审判
+[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/c767eaed-2e9d-4cd8-9ef2-5a41e5e4f85a.png?asset_id=e1ac15f4-cf69-4de3-8393-583fbf4c1608&amp;img_etag=%22a1a3e4a1050ad02b89de5004bf3a9559%22&amp;size=2560)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/c767eaed-2e9d-4cd8-9ef2-5a41e5e4f85a.png?asset_id=e1ac15f4-cf69-4de3-8393-583fbf4c1608&amp;img_etag=%22a1a3e4a1050ad02b89de5004bf3a9559%22&amp;size=1024)
+*编辑：【英国伦敦喜庄园编辑部】*
+
+*校对：穆清|审核：文明明| Page：小六月*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
+
+[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
+
 
  
 
