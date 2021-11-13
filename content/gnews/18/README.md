@@ -2,15 +2,14 @@
 ---
 
 
-## 【文贵先生大直播PPT】民生与经济
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1659961/)
+## 【文贵先生大直播PPT】中共六中全会公报瞎说了啥？
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1659999/)
 
-撰稿：巍峨泰山，Nine Lee
-审核：三票先生，顽童2017
-PPT制作：Sotres，小黑兔2020
+撰稿：三票先生 选票地票言票，顽童2017，待命（文晓），hans(文玄）
+PPT制作：健身健心（文阳），青山
 
-【2021年11月12日文贵先生大直播PPT：民生与经济】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/111-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/12-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/13-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/15.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/16.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/17.jpg)
+**【2021年11月12日文贵先生大直播PPT：中共六中全会公报瞎说了啥？】**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/31-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/32-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/33-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/34-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/35-1.jpg)
 * * *
 
 发稿：云起时

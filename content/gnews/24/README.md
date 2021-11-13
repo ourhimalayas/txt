@@ -2,60 +2,38 @@
 ---
 
 
-## 巴西总统博尔索纳罗直面世卫组织负责人：“注射第二剂新冠疫苗后人们仍染疫而死亡”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1659874/)
+## 抗议强制疫苗，联邦参议员承诺不支持政府任何立法
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1659889/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/111121bolsonaro1-1.jpg)巴西总统贾尔·博尔索纳罗. 图片：源自Andressa Anholete /盖蒂图片社
-来自《峰会新闻》2021年11月11日报道
+### **【雅典娜快讯】，紧贴时事脉搏**
 
-**摘要翻译：**
-
-巴西总统贾尔·博尔索纳罗就新冠病毒限制问题与世卫组织负责人谭德塞对质，并询问为什么人们在接种第二剂疫苗后仍然会死于新冠病毒。讨论是在最近在罗马举行的 G20 全球领导人峰会期间进行的。
-
-博尔索纳罗在疫苗护照上挑战谭德塞，他断言：“世界各地都有人需要工作来养活自己。”他补充说，封锁措施已经破坏了全球经济的稳定，并警告说，如果这种情况继续下去“经济将崩溃”。
-
-谭德塞回应说他不希望更多的封锁，并同意疫苗护照计划是“歧视”，但只是在一些国家的疫苗接种率仍然很低的情况下。
-
-博尔索纳罗说：“在巴西，许多接种第二剂疫苗的人都感染了新冠病毒，”世卫组织负责人回应说，疫苗不会阻止新冠病毒的传播，但会降低患重病和死亡的风险。
-
-“在巴西，许多接种第二剂的人正在死亡，”博尔索纳罗澄清说，对此谭德塞回应说，应归咎于潜在的疾病。
-
-博尔索纳罗随后谴责他无法停止为儿童强制接种疫苗，对此谭德塞回应称，世卫组织不支持让儿童接种疫苗。
-
-巴西总统随后感叹，每当他询问有关疫苗的问题时，他都会被指责发布“假新闻”。博尔索纳罗说：“我们的手被绑住了，我们孩子的生命危在旦夕。”
-
-当他向谭德塞询问新冠病毒的起源时，谭德塞笑着说：“我们还在研究它。”
-
-博尔索纳罗长期以来一直对疫苗和新冠病毒封锁措施持怀疑态度。9月抵达联合国大会后，他被迫在人行道上吃披萨，因为他没有接种疫苗，因此被禁止在纽约室内用餐。
-
-博尔索纳罗一再支持药物硫酸羟氯喹，声称：“如果羟氯喹没有被政治化，本可以挽救更多的生命。”
-
-这位巴西总统本人于2020年7月感染了冠状病毒，但他表示由于过去曾是军队的“运动员”，身体素质好，他才得以迅速康复。他还指出是羟氯喹帮助他迅速康复的。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/5823-11.jpg)图片来源：SBS News
 
 
+#### **整理报道：月映万川****
+****编辑：文泓**
 
-**简评：**
+上周，自由党联邦参议员阿里克斯·安提克（Alex Antic）公开承诺，在选择未接种新冠疫苗的民众未得到“不受歧视的保护前”，他不会支持联邦政府的任何立法法案。
 
-巴西总统博尔索纳罗就新冠病毒相关问题与世卫组织负责人谭德塞对质的视频流露在网上，引起全世界人们的注意，CCP病毒的起源都没有调查清楚，就强推疫苗，世界就是如此滑稽与疯狂。现在开始给儿童打疫苗，一些儿童身上已开始出现疫苗不良反应，巴西总统都不能得到有价值的回复信息，当说到打第二剂疫苗后死亡的情况，谭德塞拿一句“应归咎于自身潜在的疾病”搪塞过去，当你像媒体民意调查那样询问他们关于疫苗强制令的笼统问题时，他们通常会被误导并选择支持该政策言论。
+这是继昆士兰自由国家党参议员杰拉德·伦尼克之后，第二位公开表示因疫苗歧视问题不支持任何联邦政府立法的第二位参议员。
 
-新闻链接：[Bolsonaro Confronts WHO Chief: ‘People Are Dying After the Second Dose’](https://summit.news/2021/11/11/bolsonaro-confronts-who-chief-people-are-dying-after-the-second-dose/)
+在阿里克斯的脸书上，参议员宣称，澳大利亚人被强迫去接种疫苗。
 
-***编辑:** 希望*
+同时，他进一步阐明，“澳大利亚人仅仅因为自己对于医疗方案的选择，而受到歧视是不合理的。我们必须对强制疫苗说不”。
 
-***校对**: clau*
+在此之前，一国党已在国会开始行动：在强制疫苗取消前，他们会反对任何联邦政府的立法。宝琳·汉森（Pauline Hanson）参议员承诺将在参议院为政府“制造混乱”。
 
-* * *
+由于上述参议员的公开态度，这也意味着联邦政府需要寻求至少3位跨党派参议员的支持，才能确保在今年的国会中可以通过他们的立法。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+原文链接：[Liberal senator pledges not to back government legislation in protest against vaccine mandates (sbs.com.au)](https://www.sbs.com.au/news/liberal-senator-pledges-not-to-back-government-legislation-in-protest-against-vaccine-mandates/1aae2faa-e1ec-4baf-ab23-998cf334c054)
 
+发布：文泓
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
