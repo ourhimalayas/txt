@@ -2,10 +2,10 @@
 ---
 
 
-## 北京天空被中共病毒疫苗受害者尸体燃烧后的灰尘所覆盖
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1660885/)
+## 中共病毒蛋白伤害（III）：病毒刺突减少DNA修复酶的mRNA转录
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1660921/)
 
-11/09/2021 这不是恐怖电影特写镜头，比恐怖电影恐怖多了，漫天喵人和疫苗后出生不正常见光死婴儿的灰末。这是今日的北京！中共帝都！
+11/04/2021 不论来自病毒还是疫苗的中共病毒蛋白都可能减少DNA修复酶的mRNA基因转录；没有DNA修复，正在分裂或修复的细胞可能变成癌细胞。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
