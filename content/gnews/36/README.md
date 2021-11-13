@@ -2,22 +2,42 @@
 ---
 
 
-## 我与班农站在一起
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1660284/)
+## 美国法院维持暂停拜登政府对企业的疫苗强制令
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1660313/)
 
-#### 翻译/撰稿：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/下载-2-1.jpg)图片来源：Politico
-根据美国前线（Frontline America）11月12日的报道，在梅里克·加兰（Merrik Garland）夺权，立即向史蒂夫·班农（Steve Bannon）发起起诉后。 这引起班农支持者们的巨大反响。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-即便是在被科技巨头控制下的推特上，也无法掩盖人们反对的声音。汤姆·菲顿 (Tom Fitton)保守派司法观察主席发推表示：“加兰司法部对班农的快速起诉是一种非同寻常且令人恐惧的权力滥用。”美国前线的创始人，班农战斗室的常客转发了莫琳·班农（Maureen Bannon）的推，莫琳在推特上发布了一张班农家族三代人的合影。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/MGN_1280x960_10809C00-XDXMK.jpg)图片来源：spokesman-recorder.com
 
-美国众议员马特·盖茨（Matt Gaetz）表示，班农没有做错任何事。埃瑞克·格雷滕斯 (Eric Greitens)第56届密苏里州州长称赞班农是美国第一勇士和爱国者。鲍里斯·埃普什坦 (Boris Epshteyn) 前美国总统川普的特别助理、2020战略顾问，也支持班农是爱国者。迈克尔·T·弗林 (Michael Flynn)将军在塔克·卡尔森（Tucker Carlson）的节目上说：“这表明民主党正在采取行动，确认他们完全接管这个国家的速度。”
 
-仅在这条新闻公布后的一小时，班农就出现在他的战斗室并表示：“战斗室里没有哭声，有的只是与对手之间的搏击。”其间，班农没有对起诉书发表评论。
+#### 编译：小红帽
 
-无数的支持者都表示“我与班农站在一起”。
+美国联邦法院周五维持暂停拜登政府的中共病毒（Covid-19）疫苗强制令。该强制令要求大型企业必须为员工接种中共病毒疫苗。
 
-新闻来源：[“I Stand With Steve Bannon” Shows Up On Twitter after Political Persecution](https://frontlineamerica.com/i-stand-with-steve-bannon-shows-up-on-twitter-after-political-persecution/)
+位于新奥尔良的第五巡回上诉法院的三位法官小组确认了其上周的最初命令，该命令阻止了疫苗强制令的生效。法院周五说，疫苗强制令 “严重超越 “了政府的权力。
+
+如果维持原判，被暂停的疫苗强制令将代表着拜登政府最具影响力的努力之一遇到了重大挫折。该努力旨在确保中共病毒在冬季卷土重来之前，为人民进行广泛的中共病毒疫苗接种。
+
+拜登为这些公司设定了一个1月4日的最后期限，以确保其员工全面接种中共病毒疫苗。 政府称，这一规则将影响全国三分之二以上的劳动力。法院的裁决批评说这一规则“过于宽泛”。
+
+法院没有决定，这个适用于100人以上公司的疫苗强制令最终是否有效。
+
+但在其裁决中，法院表示批准暂停执行的部分原因是，该命令不可能通过宪法审查。
+
+库尔特·D·恩格尔哈特（Kurt D. Engelhardt）法官表示，如果不批准暂停疫苗强制令，可能会对雇员和本案的请愿者造成“无法弥补的伤害”。从经济的不确定性到工作场所的冲突，仅仅是疫苗强制令就在最近几个月导致了难以言喻的经济动荡。
+
+该裁决要求在审查挑战者提出的永久禁令请求之前，继续保持暂停状态。
+
+**参考新闻：**[US court maintains block on Biden vaccine mandate for businesses (msn.com)](https://www.msn.com/en-au/news/world/us-court-maintains-block-on-biden-vaccine-mandate-for-businesses/ar-AAQEluv?ocid=msedgdhp&amp;pc=U531)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

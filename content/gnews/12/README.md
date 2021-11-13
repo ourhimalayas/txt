@@ -2,57 +2,24 @@
 ---
 
 
-## 喜联储两千万美元的黄金即将送达
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660572/)
+## 美国公司和投资者持续投资中共国半导体行业
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1660611/)
 
-[https://gtv.org/video/id=618f3318182702508104ad59](https://gtv.org/video/id=618f3318182702508104ad59)
+#### 撰稿：彩虹
 
-**郭文贵
-Miles Guo**
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-3-3.jpg)图片来源：Techstartup
+11月12日，《新闻极限》（Newsmax）引述《华尔街日报》报道，虽然拜登政府对国家安全有担忧，但众多美国公司及其在中共国的附属公司仍然继续投资于中共国的半导体行业。
 
-你比特币不是2100万，你也没有跟黄金挂钩
-Bitcoin is not 21 million pieces, and it is not pegged to gold
+今年7月份，现任白宫国家安全顾问杰克·苏利文（Jake Sullivan）表示，拜登政府正在“研究美国对外投资流动的影响，这些投资可能规避了出口管制的精神，或以其他方式提高我们竞争对手的技术能力，从而损害我们的国家安全”。
 
-你也不能实际支付，你也没有稳定
-It can’t actually make a pay, and it’s not stable
+但是，尽管如此，美国营利性智库荣鼎咨询(Rhodium Group)研究公司发现，在2017年到2020年的三年时间里，超过50笔涉及到中共国半导体行业的投资交易，其中包括英特尔公司（Intel），它投资了中共国公司概伦电子（Primarius Technologies Co），其他投资者包括硅谷风险投资公司光速创投（Lightspeed Venture Partners）、红杉资本（Sequoia Capital）、经纬创投（Matrix Partners）和红点投资（Redpoint Ventures），从去年年初以来，这些公司对中共国的芯片产业又进行了60多项投资。
 
-你也没有这个中心化的负责任，就像比特币从6万跌到3万
-It also does not have centralized responsibility, just like Bitcoin fell from 60,000 dollars to 30,000 dollars
+《华尔街日报》指出，尽管这些公司在大多数情况下没有披露投资金额，但研究表明，中共国的半导体初创企业可能已经筹集了几十亿美元。
 
-你找谁去，从6万变成6分钱，你找谁去? 一个人你都找不着
-Who’s responsibility for that? or from 60,000 to 6 cents, who are you going to argue with? nobody
+**新闻来源**
 
-今天黄金是多少钱呢？今年总共在那储备2000万美元的黄金
-How much money gold today? A total of 20 million U.S. dollars of gold has been reserved there this year
-
-它已经在购买了，马上就要送到了，而且会拍录像给你们看
-It is already being purchased and will be delivered soon, and it will be videotaped for you to see
-
-稳定币，稳定谁呀，它稳定了大概100多项
-Stable coin, stable who? It has been stable for more than 100 items
-
-我今天只跟你说了两项
-I only told you two things today
-
-* * *
-
-Date:11/10/2021
-原视频标题: 喜联储两千万美元的黄金即将送达
-Himalaya Reserve’s 20 million US dollars of gold will be delivered soon
-原视频日期：2021/11/07
-原视频链接 [https://twitter.com/se1y7cblljselva/status/1458019642312589322?s=24](https://twitter.com/se1y7cblljselva/status/1458019642312589322?s=24)
-任务编号：KC241（2825）
-视频时间段 : 0:00-0:48
-英听校： 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片: 洛杉矶盘古农场 – 银龙
-发布:洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[US Firms Investing in Chinese Chip Makers Despite Security Concerns](https://www.newsmax.com/newsfront/us-firms-investment-china-semiconductors/2021/11/12/id/1044445/)
 
  
 
