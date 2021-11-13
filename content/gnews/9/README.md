@@ -2,31 +2,18 @@
 ---
 
 
-## 洪都拉斯总统访台，背后中美地缘角力
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1661223/)
+## 荷兰启动为期三周的部分封锁
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1661315/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-14.jpg)
-[图片来源](https://www.dw.com/zh/%E6%B4%AA%E9%83%BD%E6%8B%89%E6%96%AF%E6%80%BB%E7%BB%9F%E8%AE%BF%E5%8F%B0-%E7%9C%9F%E6%9C%8B%E5%8F%8B%E6%82%A3%E9%9A%BE%E8%A7%81%E7%9C%9F%E6%83%85/a-59810741)
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11132.jpg)图片来自Times Higher Education 
+11 月 12 日 – 荷兰首相马克·吕特宣布从周六开始实施为期三周的部分封锁。实施的措施包括晚上 8 点关闭酒吧和餐馆，以及在下午 6 点关闭非必需品商店。
 
-11月12日，台湾总统蔡英文在总统府会见洪都拉斯总统叶南德兹（Juan Orlando Hernandez）伉俪访团。
+同时也要求球迷远离体育场，并且扩大了需要显示绿色通行证的范围。吕特强调说：“病毒无处不在，感染人数的上升将使我们再一次受到沉重打击“  。
 
-蔡英文在致辞时表示，这是疫情爆发以来第一个来自拉丁美洲友邦的总统访团，也适逢中华民国与洪都拉斯建交80周年，叶南德兹此时率团来访，意义非凡。
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/12/covid-olanda-vara-lockdown-parziale-di-tre-settimane\_61824ee4-f625-4e9d-97ad-77bc49df4ce9.html](https://www.ansa.it/sito/notizie/topnews/2021/11/12/covid-olanda-vara-lockdown-parziale-di-tre-settimane_61824ee4-f625-4e9d-97ad-77bc49df4ce9.html)
 
-叶南德兹在台湾总统府表示，在地区的紧张局势中，洪都拉斯要表明与台湾是真正的朋友，朋友在患难中才能见真情。”我们希望无论在我的总统任期内或卸任之后，都能深化这样的友谊和外交关系。”叶南德兹周五率领访问团抵达台北。这是叶南德兹第四度访问台湾。
-
-洪都拉斯是台湾的15个邦交国之一。该国即将在11月28日举行总统大选。访团成员还包括该国外交部长罗萨雷斯（Lisandro Rosales Banegas）夫妇、总统府秘书长卡多纳（Ricardo Cardona）夫妇、财政部长马塔（Luis mata）夫妇等重要官员共11人。
-
-长期以来，中共依靠”金钱外交”，不断蚕食台湾的邦交国，同时将不断渗透和延伸其影响力。而中共不断争取台湾剩余盟友的做法已使华盛顿心生警惕，美国尤其关注北京在中美洲和加勒比海地区影响力与日俱增的情况。
-
-信息来源：
-
-[洪都拉斯总统访台: “真朋友患难见真情”](https://www.dw.com/zh/%E6%B4%AA%E9%83%BD%E6%8B%89%E6%96%AF%E6%80%BB%E7%BB%9F%E8%AE%BF%E5%8F%B0-%E7%9C%9F%E6%9C%8B%E5%8F%8B%E6%82%A3%E9%9A%BE%E8%A7%81%E7%9C%9F%E6%83%85/a-59810741)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-77.jpg)
-
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

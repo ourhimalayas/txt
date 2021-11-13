@@ -2,27 +2,29 @@
 ---
 
 
-## 美十州医护人员起诉新冠疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661321/)
+## 以色列科学家怒斥疫苗不良事件数据造假
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661339/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：纽约香草山翻译部 – defiance
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月11日，相关媒体报道，由于拜登政府强制要求所有医护人员接种新冠疫苗，由美国10个州的医护人员组成的团体正在对政府提起诉讼。
+当地时间11月9日，以色列计算神经科学家马坦-霍尔茨在推特上驳斥了以色列卫生部的新冠疫苗不良事件报告系统及其对应数据。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide10-6.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide11-2.jpeg)
 
-资料显示，该诉讼中提及，这项新冠疫苗的授权是“违宪且非法的”，政府无视各地区的事实情况，不合理地驳回对劳动力短缺的诉求，严重危及美国乡村的医疗保健利益。
+霍尔茨认为，以色列政府的新冠疫苗不良事件数据收集工作完全是在粉饰太平，该系统的不良事件报告缺漏数据惊人。霍尔茨补充，由于原始数据缺失带来的不准确性，该系统所做的数据分析更是毫无科学性。
 
-此前，拜登政府的疫苗强制令要求，医院和其他接受医疗保险或医疗补助资金的1亿医护人员，必须全员接种新冠疫苗。但这一要求导致各地区医护人员短缺，甚至威胁到在疫情初期冒着生命危险坚守岗位的数百万医护人员的工作。
+霍尔茨解释道，以色列的疫苗不良反应报告系统远远落后于美国和欧洲。在报告不良事件的过程中，申报者只能填写一个网页表格，且填写完毕后无法进行追踪和验证，报告往往石沉大海。
 
-为此，由密苏里州司法部长和内布拉斯加州总检察长发起，来自阿肯色州、堪萨斯州、爱荷华州、怀俄明州、阿拉斯加州、南达科他州、北达科他州和新罕布什尔州等10个州的总检察长加入了对疫苗强制令的诉讼。
+对此，霍尔茨表示，严重的漏报导致新冠疫苗与一些疾病之间的相关性被降低到荒谬的程度。但是，以色列的不良反应数据是美国FDA的主要参考对象之一。鉴于美国政府正试图推行5至11岁儿童用新冠疫苗，霍尔茨进一步强调，以色列这些虚假的数据会直接影响到美国孩子们的安全，进而波及全球。
 
-参考链接：[10 states sue Biden administration over COVID vaccine mandate for health care workers](https://www.npr.org/sections/coronavirus-live-updates/2021/11/11/1054959986/states-lawsuit-biden-administration-covid-vaccine-mandate-health-workers)
+参考链接：
+1）[Analysis: Israeli COVID vaccine safety data ‘worth nothing’](Israeli%20COVID%20vaccine%20safety%20data%20‘worth%20nothing’)
+2）[https://twitter.com/MatanHolzer/status/1457427294591590406?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1457427300165771267%7Ctwgr%5E%7Ctwcon%5Es2\_&ref\_url=https%3A%2F%2Famericasfrontlinedoctors.org%2F2%2Ffrontlinenews%2Fanalysis-israeli-covid-vaccine-safety-data-worth-nothing%2F](https://twitter.com/MatanHolzer/status/1457427294591590406?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1457427300165771267%7Ctwgr%5E%7Ctwcon%5Es2_&amp;ref_url=https%3A%2F%2Famericasfrontlinedoctors.org%2F2%2Ffrontlinenews%2Fanalysis-israeli-covid-vaccine-safety-data-worth-nothing%2F)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
 总编：文特
-编辑：Kathy文艺
+编辑：Irene木木
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

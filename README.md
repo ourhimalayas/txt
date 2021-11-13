@@ -15,101 +15,101 @@
 
 ---
 
-### [宾州卫生局拒绝提供完整的中共病毒死亡数据](/content/gnews/1/README.md)
+### [美国间谍在中共国不再得势](/content/gnews/1/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [加州一联合学区宣布 抵制中共病毒疫苗强制令](/content/gnews/2/README.md)
+ ` GTV新闻访谈`
+
+### [以色列科学家怒斥疫苗不良事件数据造假](/content/gnews/3/README.md)
+ ` GTV新闻访谈`
+
+### [宾州卫生局拒绝提供完整的中共病毒死亡数据](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [农业成本飞涨，消费者面临收成和价格上涨的风险](/content/gnews/2/README.md)
+### [农业成本飞涨，消费者面临收成和价格上涨的风险](/content/gnews/5/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [美十州医护人员起诉新冠疫苗强制令](/content/gnews/3/README.md)
+### [台湾叫停对12-17岁年龄组施打第二针辉瑞疫苗](/content/gnews/6/README.md)
  ` GTV新闻访谈`
 
-### [接种莫德纳疫苗后、4人因心肌炎死亡](/content/gnews/4/README.md)
+### [美十州医护人员起诉新冠疫苗强制令](/content/gnews/7/README.md)
+ ` GTV新闻访谈`
+
+### [接种莫德纳疫苗后、4人因心肌炎死亡](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [荷兰启动为期三周的部分封锁](/content/gnews/5/README.md)
+### [荷兰启动为期三周的部分封锁](/content/gnews/9/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [德国医院报警，重症监护人手不足](/content/gnews/6/README.md)
+### [德国医院报警，重症监护人手不足](/content/gnews/10/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [GTV新闻访谈简报|2021年11月13日早](/content/gnews/7/README.md)
+### [GTV新闻访谈简报|2021年11月13日早](/content/gnews/11/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|德国将定期向印太派遣军舰 应对中共宣示南海主权](/content/gnews/8/README.md)
+### [有声|德国将定期向印太派遣军舰 应对中共宣示南海主权](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [洪都拉斯总统访台，背后中美地缘角力](/content/gnews/9/README.md)
+### [洪都拉斯总统访台，背后中美地缘角力](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|大屠杀博物馆确认新疆正在发生反人类罪行](/content/gnews/10/README.md)
+### [有声|大屠杀博物馆确认新疆正在发生反人类罪行](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [有声|布林肯：若中共攻台，美国和盟友将“采取行动”](/content/gnews/11/README.md)
+### [有声|布林肯：若中共攻台，美国和盟友将“采取行动”](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [日本学者引经据典讲述&#8221;经济脱中&#8221;的必要性（之四）](/content/gnews/12/README.md)
+### [日本学者引经据典讲述&#8221;经济脱中&#8221;的必要性（之四）](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|习近平六中全会树立个人绝对权威](/content/gnews/13/README.md)
+### [有声|习近平六中全会树立个人绝对权威](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [有声|足球运动员心脏病例增多](/content/gnews/14/README.md)
+### [有声|足球运动员心脏病例增多](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [香港新闻自由已死，外籍记者签证遭拒](/content/gnews/15/README.md)
+### [香港新闻自由已死，外籍记者签证遭拒](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|蓬佩奥国务卿再次强调习会因冬奥会膨胀，拜登政府需要下决心、建立威慑力](/content/gnews/16/README.md)
+### [有声|蓬佩奥国务卿再次强调习会因冬奥会膨胀，拜登政府需要下决心、建立威慑力](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [2021/11/12 墙内世界](/content/gnews/17/README.md)
+### [2021/11/12 墙内世界](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|欧洲议会拟制定法律反制中共政治干预](/content/gnews/18/README.md)
+### [有声|欧洲议会拟制定法律反制中共政治干预](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [DC每日热点1113](/content/gnews/19/README.md)
+### [DC每日热点1113](/content/gnews/23/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|中共对维吾尔人的跨国镇压急剧扩大](/content/gnews/20/README.md)
+### [有声|中共对维吾尔人的跨国镇压急剧扩大](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声|美拜登政府续禁投资中共军方关联企业](/content/gnews/21/README.md)
+### [有声|美拜登政府续禁投资中共军方关联企业](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [有声|新中国联邦正以崭新面貌与多方洽谈合作](/content/gnews/22/README.md)
+### [有声|新中国联邦正以崭新面貌与多方洽谈合作](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [有声|为开六中全会，中共人工降雪祸害百姓](/content/gnews/23/README.md)
+### [有声|为开六中全会，中共人工降雪祸害百姓](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [有声|墙内青年用“躺平”不成家做无声抗争](/content/gnews/24/README.md)
+### [有声|墙内青年用“躺平”不成家做无声抗争](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [G-TV打开金库的第一道大门,别光看股价忘了钥匙的作用](/content/gnews/25/README.md)
+### [G-TV打开金库的第一道大门,别光看股价忘了钥匙的作用](/content/gnews/29/README.md)
  ` NewFOC`
 
-### [有声|墙内累计7000万人感染中共病毒，死亡1370万人](/content/gnews/26/README.md)
+### [视频| 新中国联邦带来金融界虚拟货币的新时代](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [视频| 新中国联邦带来金融界虚拟货币的新时代](/content/gnews/27/README.md)
+### [视频| 新中国联邦招募军队人员](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [中共持续迫害藏人](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [视频| 新中国联邦招募军队人员](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [中共多家企业管理层换血](/content/gnews/30/README.md)
- ` GTV新闻访谈`
-
-### [中国多地出生人口下降超一成](/content/gnews/31/README.md)
+### [中国多地出生人口下降超一成](/content/gnews/32/README.md)
  ` 首尔天池农场`
-
-### [白宫记者转战盖特继续爆料](/content/gnews/32/README.md)
- ` GTV新闻访谈`
 
 ### [美日会商钢铁关税协议 中共经济命脉又断一臂](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

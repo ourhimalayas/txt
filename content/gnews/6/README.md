@@ -2,20 +2,47 @@
 ---
 
 
-## 德国医院报警，重症监护人手不足
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1661311/)
+## 台湾叫停对12-17岁年龄组施打第二针辉瑞疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661325/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11131.jpg)图片来自telefriuli.it
-在德国， 医院的治疗能力正在下降，重症监护室存在严重的人员配备问题。根据 Rki 最新的每日报告，重症监护病床占用的床位数为 19,562 张，而空闲床位仅为 2,478 张。
+作者：纽约香草山文艺部 – 宁文静
 
-巴伐利亚的情况特别严重：根据一项调查显示：巴伐利亚 66 个卫生区中有 36 个可用的工作人员减少了，从事感染追踪工作的人数减少了五分之一。
 
-而据法新社记者报道，在荷兰，警方使用水炮驱散海牙的示威者，因为他们投掷石块和烟花来抗议政府宣布的新的部分封锁措施。大约 200 名抗议者在司法部外与防暴警察和骑警发生冲突。
 
-原文链接：[https://www.ansa.it/sito/notizie/mondo/2021/11/12/covid-germania-manca-il-personale-nei-reparti-di-terapia-intensiva\_8f892fc4-9e37-4551-acfc-2fed2e7ec591.html](https://www.ansa.it/sito/notizie/mondo/2021/11/12/covid-germania-manca-il-personale-nei-reparti-di-terapia-intensiva_8f892fc4-9e37-4551-acfc-2fed2e7ec591.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+
+
+11月10日，台湾中央传染病指挥中心 (CECC) 负责人陈时中表示，因为担心引发心脏炎症，专家组决定暂停对12-17岁的孩子施打辉瑞第二针疫苗。
+
+在两周内，专家组将调查接种后的16例心肌炎病例，然后就是否继续接种第二针做出最终表决。至于何时批准5-11岁儿童的接种，陈时中表示，以上问题未解决之前，不会考虑。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-71.jpg)
+参考链接：
+[Taiwan halts 2nd-dose BioNTech vaccinations for ages 12-17 amid concerns of myocarditis](https://www.taiwannews.com.tw/en/news/4340862)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：飞虹
+编辑：童谣
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

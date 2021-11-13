@@ -2,20 +2,49 @@
 ---
 
 
-## 农业成本飞涨，消费者面临收成和价格上涨的风险
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1661328/)
+## 加州一联合学区宣布 抵制中共病毒疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661355/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11133.jpg)图片来自Leica Geosystems
-保护和代表意大利农业企业的组织在一份特定的新闻稿中说：“价格上涨和收成面临风险。由于农业食品部门的成本较高，以及能源产品的价格再次开始上涨，农业企业的生产成本从饲料到肥料有完全失控的危险。 我们已经记录了前所未有的 100% 的增长百分比“。
+作者：纽约香草山 – AlexZ
 
-目前的情况也可能对下一次收获的规模产生影响。在意大利和欧洲，农民正在评估推迟播种和调整综合作物轮作，为此，关键的市场情况会导致成本的增加。例如，养猪业就是这种情况，这也是欧洲对中共国市场出口萎缩的原因，水果和蔬菜部门是另一个可能特别受到成本增加影响的一个领域。
 
-农民和牧场主面临的危机有可能蔓延到农业食品链的所有组成部分。消费者可能很快就会见证水果和蔬菜价格的上涨。欧盟农业理事会定于11月15日召开，欧洲农业市场形势和前景将提上议事日程，这是了解欧洲将如何抑制未来几个月价格可能会暴涨的决定性一步。
 
-原文链接：[https://www.agrifoodtoday.it/attualita/confagricoltura-allarme-prezzi.html#\_ga=2.236280386.2132876092.1636792777-145009575.1615972944](https://www.agrifoodtoday.it/attualita/confagricoltura-allarme-prezzi.html#_ga=2.236280386.2132876092.1636792777-145009575.1615972944)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+
+
+11月10日，加利福尼亚州卡拉维拉斯联合学区宣布，他们将拒绝遵守州长纽森的强制接种中共病毒疫苗的政策。
+
+在美国CDC批准为5-11岁的儿童接种疫苗大约一周后，周三晚上，该学区董事会以 5 比 0 的投票结果决定“不支持、执行或遵守”强制接种疫苗令。这项决定将适用于学生和教职工人员。
+
+本月早些时候，学区表示，他们知道可能的结果，包括责任风险、联邦资助金损失，和其他可能对该学区采取的“正式行动“。然而，他们仍然坚定执行这一决定。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-99.jpg)
+参考链接：
+[Calif. School District Will Not Comply With Vaccine Mandate](https://www.oann.com/calif-school-district-will-not-comply-with-vaccine-mandate/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：文徬
+编辑：童谣
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
