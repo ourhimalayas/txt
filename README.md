@@ -15,113 +15,113 @@
 
 ---
 
-### [【诗歌】临冬](/content/gnews/1/README.md)
+### [秘翻在线:华东理工大学学生因实验引起核酸检测阳性](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [【诗歌】临冬](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [教皇方济各表示全球重置是真实的，没有“回归正常”](/content/gnews/2/README.md)
+### [教皇方济各表示全球重置是真实的，没有“回归正常”](/content/gnews/3/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [出于心肌炎的担忧，台湾暂停12-17岁儿童接种第二剂疫苗](/content/gnews/3/README.md)
+### [出于心肌炎的担忧，台湾暂停12-17岁儿童接种第二剂疫苗](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [布林肯表示，如果台湾受到攻击，美国及盟友将采取行动](/content/gnews/4/README.md)
+### [布林肯表示，如果台湾受到攻击，美国及盟友将采取行动](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国CDC表示将重新定义”完全接种疫苗”的标准](/content/gnews/5/README.md)
+### [美国CDC表示将重新定义”完全接种疫苗”的标准](/content/gnews/6/README.md)
  ` 纽约香草山MOS01`
 
-### [喜币发行前后一错酿成千古恨](/content/gnews/6/README.md)
+### [2021年11月12日郭文贵先生直播全文字版](/content/gnews/7/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [喜币发行前后一错酿成千古恨](/content/gnews/8/README.md)
  ` 纽约香草山MOS03`
 
-### [由于电力短缺，中国工厂通胀达到26年来最高水平](/content/gnews/7/README.md)
+### [由于电力短缺，中国工厂通胀达到26年来最高水平](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [第五巡回法院维持“中止拜登疫苗强制令”的裁决](/content/gnews/8/README.md)
+### [第五巡回法院维持“中止拜登疫苗强制令”的裁决](/content/gnews/10/README.md)
  ` HimalayaRussia`
 
-### [郭先生联合正义力量 西班牙秘密营救马云](/content/gnews/9/README.md)
+### [郭先生联合正义力量 西班牙秘密营救马云](/content/gnews/11/README.md)
  ` 纽约香草山MOS03`
 
-### [11/13/21 香港快讯 《经济学人》驻港记者工作签证续签被拒 总编辑：呼吁港府保持对外媒开放](/content/gnews/10/README.md)
+### [11/13/21 香港快讯 《经济学人》驻港记者工作签证续签被拒 总编辑：呼吁港府保持对外媒开放](/content/gnews/12/README.md)
  ` 英喜-粵語組`
 
-### [挪威海事以及红海演习](/content/gnews/11/README.md)
+### [挪威海事以及红海演习](/content/gnews/13/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [美国间谍在中共国不再得势](/content/gnews/12/README.md)
+### [美国间谍在中共国不再得势](/content/gnews/14/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [梵蒂冈将自己出卖给中共](/content/gnews/13/README.md)
+### [梵蒂冈将自己出卖给中共](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加州一联合学区宣布 抵制中共病毒疫苗强制令](/content/gnews/14/README.md)
+### [加州一联合学区宣布 抵制中共病毒疫苗强制令](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [以色列科学家怒斥疫苗不良事件数据造假](/content/gnews/15/README.md)
+### [以色列科学家怒斥疫苗不良事件数据造假](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [中共国近九成银行股跌至白菜价](/content/gnews/16/README.md)
+### [中共国近九成银行股跌至白菜价](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [中共国昔日“光棍节”网络购物狂欢，在政府打压下变得悄无声息](/content/gnews/17/README.md)
+### [中共国昔日“光棍节”网络购物狂欢，在政府打压下变得悄无声息](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [台湾叫停对12-17岁年龄组施打第二针辉瑞疫苗](/content/gnews/18/README.md)
+### [台湾叫停对12-17岁年龄组施打第二针辉瑞疫苗](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [接种莫德纳疫苗后、4人因心肌炎死亡](/content/gnews/19/README.md)
+### [接种莫德纳疫苗后、4人因心肌炎死亡](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [GTV新闻访谈简报|2021年11月13日早](/content/gnews/20/README.md)
+### [GTV新闻访谈简报|2021年11月13日早](/content/gnews/22/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|德国将定期向印太派遣军舰 应对中共宣示南海主权](/content/gnews/21/README.md)
+### [有声|德国将定期向印太派遣军舰 应对中共宣示南海主权](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [洪都拉斯总统访台，背后中美地缘角力](/content/gnews/22/README.md)
+### [洪都拉斯总统访台，背后中美地缘角力](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|大屠杀博物馆确认新疆正在发生反人类罪行](/content/gnews/23/README.md)
+### [有声|大屠杀博物馆确认新疆正在发生反人类罪行](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [有声|布林肯：若中共攻台，美国和盟友将“采取行动”](/content/gnews/24/README.md)
+### [有声|布林肯：若中共攻台，美国和盟友将“采取行动”](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [有声|习近平六中全会树立个人绝对权威](/content/gnews/25/README.md)
+### [有声|足球运动员心脏病例增多](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [有声|足球运动员心脏病例增多](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [香港新闻自由已死，外籍记者签证遭拒](/content/gnews/27/README.md)
+### [香港新闻自由已死，外籍记者签证遭拒](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021/11/12 墙内世界](/content/gnews/28/README.md)
+### [2021/11/12 墙内世界](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC每日热点1113](/content/gnews/29/README.md)
+### [DC每日热点1113](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [G-TV打开金库的第一道大门,别光看股价忘了钥匙的作用](/content/gnews/30/README.md)
+### [G-TV打开金库的第一道大门,别光看股价忘了钥匙的作用](/content/gnews/31/README.md)
  ` NewFOC`
 
-### [视频| 新中国联邦带来金融界虚拟货币的新时代](/content/gnews/31/README.md)
+### [视频| 新中国联邦带来金融界虚拟货币的新时代](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [视频| 新中国联邦招募军队人员](/content/gnews/32/README.md)
+### [视频| 新中国联邦招募军队人员](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [11/13/2021国际财经快讯：马斯克抛售特斯拉股票；货币市场因欧央行加息而缓和](/content/gnews/33/README.md)
+### [11/13/2021国际财经快讯：马斯克抛售特斯拉股票；货币市场因欧央行加息而缓和](/content/gnews/34/README.md)
  ` 秘密翻译组金融团队`
 
-### [生命不能承受之重](/content/gnews/34/README.md)
+### [生命不能承受之重](/content/gnews/35/README.md)
  ` 骄子`
 
-### [北京天空被中共病毒疫苗受害者尸体燃烧后的灰尘所覆盖](/content/gnews/35/README.md)
+### [北京天空被中共病毒疫苗受害者尸体燃烧后的灰尘所覆盖](/content/gnews/36/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [习命太硬](/content/gnews/36/README.md)
- ` 银河勇气之星`
 
 ### [中共国蓝光发展“爆雷”，240多亿到期未还](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
