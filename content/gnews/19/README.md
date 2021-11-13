@@ -2,39 +2,31 @@
 ---
 
 
-## 抗议强制疫苗，联邦参议员承诺不支持政府任何立法
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1659889/)
+## 奥地利官员称可能对未接种疫苗者实施封锁
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1659958/)
 
-### **【雅典娜快讯】，紧贴时事脉搏**
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1311.jpg)图片来源于Pexels免费照片素材库；摄影：cottonbro
+根据澳洲第9新闻周五晚间的最新报道，面对国内严峻的疫情形势，奥地利政府官员于周四警告未接种疫苗人群，声称可能考虑对未接种疫苗人群采取封锁措施。而该国受到疫情影响最为严重的省份表示，这一计划的初步实施很可能将从下一周开始。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/5823-11.jpg)图片来源：SBS News
+在最近数周，奥地利政府一直在寻找有效措施遏制疫情扩散同时鼓励人们进行疫苗接种。然而笔者认为，当前的公告和举动与其说是鼓励，不如说是胁迫、强制、以及赶尽杀绝。就在这周一，未接种疫苗者已经被禁止出入餐馆、旅店、美发沙龙等设施，也禁止参加大型活动。
 
+以本周四为节点的过去七天时间内，奥地利每十万人中就增加了760.6个病例，这是邻国德国的三倍左右。疫情最严重的地区增长则已突破每十万人中新增1200个病例。显然，奥地利的部分官员将这一问题嫁祸于未接种疫苗者的头上。奥地利新闻社也开始散布恐慌，称未接种疫苗者将会体验一次“极为不舒服”的圣诞节。
 
-#### **整理报道：月映万川****
-****编辑：文泓**
+于此同时，政府部门也在考虑将某些职业列为必须接种疫苗职业。即便当前的疫苗接种率已经达到了65%，奥地利大臣Schallenberg依然认为这一数据低得“令人感到可耻”。这些舆论风向似乎都是讲矛头对准未接种疫苗的民众，在制造仇恨引起恐慌的同时，也是在对未接种疫苗者的心理进行施压。
 
-上周，自由党联邦参议员阿里克斯·安提克（Alex Antic）公开承诺，在选择未接种新冠疫苗的民众未得到“不受歧视的保护前”，他不会支持联邦政府的任何立法法案。
+在疫情爆发接近两年左右的今天，我们逐渐发觉中共国打击异议人士的常用套路和手法正在向全世界输出和扩散。如果不让CCP从地球消失，未来全世界人民将永无宁日。
 
-这是继昆士兰自由国家党参议员杰拉德·伦尼克之后，第二位公开表示因疫苗歧视问题不支持任何联邦政府立法的第二位参议员。
+（本文纯属个人观点，与Gnews无关）
 
-在阿里克斯的脸书上，参议员宣称，澳大利亚人被强迫去接种疫苗。
+*发稿：mgjxs*
 
-同时，他进一步阐明，“澳大利亚人仅仅因为自己对于医疗方案的选择，而受到歧视是不合理的。我们必须对强制疫苗说不”。
+参考链接：[第九新闻](https://www.9news.com.au/world/covid-19-europe-austria-leader-says-lockdown-for-the-unvaccinated-is-likely/ea541fec-05a1-4f72-b9ff-4af83a494935)
 
-在此之前，一国党已在国会开始行动：在强制疫苗取消前，他们会反对任何联邦政府的立法。宝琳·汉森（Pauline Hanson）参议员承诺将在参议院为政府“制造混乱”。
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-由于上述参议员的公开态度，这也意味着联邦政府需要寻求至少3位跨党派参议员的支持，才能确保在今年的国会中可以通过他们的立法。
-
-原文链接：[Liberal senator pledges not to back government legislation in protest against vaccine mandates (sbs.com.au)](https://www.sbs.com.au/news/liberal-senator-pledges-not-to-back-government-legislation-in-protest-against-vaccine-mandates/1aae2faa-e1ec-4baf-ab23-998cf334c054)
-
-发布：文泓
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

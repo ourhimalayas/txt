@@ -2,29 +2,35 @@
 ---
 
 
-## 美国决心落实澳英美联盟
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1659859/)
+## 新泽西州长共和党竞选人承认败选
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1659882/)
 
-撰稿：文西Eric
-![](https://assets.gnews.org/wp-content/uploads/2021/11/001.jpg)
-图片来源于网络
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-据澳大利亚天空新闻报道：白宫国家安全顾问杰克·苏利文表示，美国决心落实澳英美联盟（AUKUS）安全伙伴关系。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/N-3.jpg)breitbart.com
+正像笔者预测的那样，如果竞选团队没有意识到共产主义思潮对美国的渗透和影响，没有组建、派出足够的志愿者和律师对选举过程进行严格监督，最终会失去选举【1】，这也就是新泽西州共和党州长候选人杰克·恰塔雷利（Jack Ciattarelli）今天的结果。
 
-苏利文先生还宣布：美国对澳大利亚投入巨大“赌注”，承诺对其分享核潜艇技术。他的讲话是在洛伊研究所的演讲中发表，并誓言美国将捍卫其价值观与中共对抗。他的评论发表之际，习近平批评三边协议并警告亚太地区可能陷入冷战式的对抗。
+《福克斯新闻》这样报道，“新泽西州的恰塔雷利承认选举失利，这位共和党州长候选人发誓在四年内再次参选。”文章说，新泽西州州长选举经过势均力敌的10天后，共和党提名人恰塔雷利向民主党州长菲尔·墨菲（Phil Murphy）认输。但片刻之后，恰塔雷利宣布他计划在四年后会再次竞选“花园州”（Garden State，指新泽西州）州长，并说“这正是我的计划，我将竞选州长。”【2】
 
-AUKUS三边关系在核潜艇方面达成的协议也意味着澳大利亚将放弃此前与法国政府达成的协议——在阿德莱德进行价值900亿澳元的常规潜艇项目。
+《门道专家》指责了民主党州长墨菲（Murphy）以及恰塔雷利的律师。文章称墨菲是腐败的，是一个可怕的候选人，他将中共病毒患者送进了疗养院，导致该州数千人的死亡。
 
-撰稿人点评：自今年九月爆出成立澳英美联盟起，中共海外大外宣就鼓吹目前该安全伙伴关系尚处于“口炮”阶段，不会很快落实。而这一消息的爆出，意味着美国已下定决心落实该联盟安全伙伴关系，而且送出的第一杀手锏是分享核潜艇技术。中共海军最引以为自豪的就是核潜艇，而澳大利亚具备核潜艇技术后，对中共在南海有着巨大的战略威慑意义。需要澄清的是澳大利亚当前的潜艇系列推进系统一直是传统的柴电式，而该协议将实现核动力推进系统，但并不涉及核武器。
+文章说，恰塔雷利没有机会挽救他被盗的选举，我们知道这一点是因为他聘请了一位永远不会为他而战的律师，他的律师反对的是鲁迪·朱利安尼，而不是新泽西州令人厌恶的腐败民主党人。
 
-（本文纯属个人观点，与Gnews无关）
+在该州最大的郡完成了100%的计票后，墨菲又跳跃增加了40,000 张选票，这个律师却不想检查投票机的问题。【3】
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+新泽西州长选举没有“翻红”，的确应该作为警钟，按说墨菲的执政业绩如此之差，疫情死人多、税收高，共和党人拿下该州州长应该是顺理成章的事，共和党卡车司机杜尔（Durr）能对长期执政的民主党人参议院议长胜选【4】，说明了新泽西州的民意，怎么到了州长的计票就不成了？因此，竞选过程的监督，竞选团队人员的忠诚，是不可忽视的因素，要认清中共流毒能侵蚀每一个环节，保守人士不可掉以轻心。
 
-参考资料：
+有关链接：
 
-[《US determined to implement AUKUS alliance》](https://www.skynews.com.au/australia-news/defence-and-foreign-affairs/us-determined-to-implement-aukus-alliance/video/9cd1e6e4540d0c20c3112c05a61962f0)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
+【1】[https://gnews.org/zh-hans/1651454/](https://gnews.org/zh-hans/1651454/)
+
+【2】[https://www.foxnews.com/politics/new-jersey-ciattarelli-concedes-vows-to-run-again-in-four-years](https://www.foxnews.com/politics/new-jersey-ciattarelli-concedes-vows-to-run-again-in-four-years)
+
+【3】[https://www.thegatewaypundit.com/2021/11/candidate-jack-ciattarelli-concedes-corrupt-new-jersey-governor-murphy-republican-elites-will-label-loss-not-steal-helping-dems/](https://www.thegatewaypundit.com/2021/11/candidate-jack-ciattarelli-concedes-corrupt-new-jersey-governor-murphy-republican-elites-will-label-loss-not-steal-helping-dems/)
+
+【4】[https://gnews.org/zh-hans/1656413/](https://gnews.org/zh-hans/1656413/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

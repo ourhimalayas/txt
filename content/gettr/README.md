@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/13/2021 4:36 AM (UTC)`
+
+11/11/2021 Miles Guo: The CCP’s 6th Plenary Session is a gift from God - Xi Jinping will stay in power after the 20th Party Congress, rendering him the common enemy of the entire Party, and this will help the New Federal State of China destroy the CCP by taking advantage of its internal struggles; Xi will launch massive arrests and plunder the entrepreneurs in the Communist China prior to the 20th Party Congress<br/><br/>11/11/2021 文贵直播：六中全会是上天给新中国联邦的大礼 - 习近平要在20大后继续当老大，这将导致其成为全党众矢之的，这有助于新中国联邦以共灭共；20大前习将展开大抓捕并大肆洗劫国内企业家<br/><br/>
+![img](https://media.gettr.com/group44/getter/2021/11/13/04/35/f8b88d96-4979-224a-c13e-fc329ba9e5ab/out.jpg)
+
+---
+
+`@miles 11/13/2021 4:25 AM (UTC)`
+
+11/11/2021 Miles Guo: Every fellow fighter is a participant in the history of the New Federal State of China(NFSC), the wealth of the NFSC citizens is manifested in the fact that they are unvaccinated against the CCP virus and the wisdom they have; In contrast, people like Neil Shen and Jack Ma who lack visions and faiths are like the fish farmed by the CCP, which will eventually rip them off; but our NFSC citizens will never be ripped off, and we are saving the world!<br/><br/>11/11/2021 文贵直播：每位战友都是新中国联邦历史的参与者；新中国联邦人的财富在于没打新冠疫苗且开了智；相反，沈南鹏和马云等境界低、无信仰的人好比是中共放水养的鱼，必将任中共宰割；但新中国联邦人永远不会被宰割，而且我们正在拯救全人类！<br/>
+![img](https://media.gettr.com/group41/getter/2021/11/13/04/25/d5c33f5b-c7ba-cbdf-7a81-f5bda551f6a0/out.jpg)
+
+---
+
 `@miles 11/13/2021 2:48 AM (UTC)`
 
 11/11/2021 Miles Guo: One of U.S. Military Industry Groups would like the New Federal State of China to join it;  It is because we strategically and accurately grasped the current situation on politics, economy, military, culture and finance; It is also the result relying on our strength and action<br/><br/><br/>11/11/2021 文贵直播：美国某军工集团希望新中国联邦加入，这是新中国联邦战略性、准确性地把握政治、经济、军事和金融时局的结果，也是我们靠实力、靠行动说话的结果<br/>
@@ -280,20 +294,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 11月9号：尊敬的战友们好，你们健身了吗？你们在北京的六中全会发现什么了吗？你们传播C C P的病毒和疫苗的解药的真相了吗？一切都已经开始！
 ![img](https://media.gettr.com/group11/getter/2021/11/09/13/49/2b6019e8-3808-cf28-d2ce-eefef8f56975/out.jpg)
-
----
-
-`@miles 11/9/2021 11:49 AM (UTC)`
-
-The vaccination disaster has gradually become prominent: The patients in the ICU of Ghent University Hospital are all vaccinated recently.<br/><br/>疫苗灾难逐渐凸显：在根特大学医院的重症室中，最近全是接种过疫苗的病人。
-![img](https://media.gettr.com/group33/origin/2021/11/09/11/49/b3f24d50-35f5-3dcc-ddcb-356d4ac41083/out.jpg)
-
----
-
-`@miles 11/9/2021 6:21 AM (UTC)`
-
-11/07/2021 Miles Guo: The Communist China is focused on how to deceive the Lao Baixing, diverting the public’s attention, and internal struggles. In contrast, what makes America great is that it keeps running normally regardless of its internal fights. It’s said the US military came back for another exercise after they were done with the previous one and that joint operations between the space and ground forces were conducted during the exercise in the South China Sea, with the BeiDou Navigation Satellite System being rendered useless instantly<br/><br/>11/07/2021文贵直播：中共国研究的重点是如何坑骗老百姓、转移舆论和内斗，而美国的伟大之处在于无论如何内斗都不会影响其正常运作，据说美军在南海演习杀了个回马枪，进行了空、地联动，北斗导航系统瞬间被废掉<br/>
-![img](https://media.gettr.com/group25/getter/2021/11/09/06/21/0055774e-2591-52d6-a46f-cdd1af120517/out.jpg)
 
 ---
 
