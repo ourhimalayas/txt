@@ -2,37 +2,43 @@
 ---
 
 
-## 马云错失解救机会 已返回中共国
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1660631/)
+## 抗议大流行法案与强制疫苗，周六墨尔本市民大规模游行
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1660730/)
 
-作者： 波士顿五月花农场 葛朗台太太
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/5823-12.jpg)图片来源：Herald Sun
 
 
+#### 翻译：Sara9
+编辑：文泓
 
-郭文贵先生在11月12日的直播中透露，马云在逗留西班牙期间一直居住于郭先生朋友的家中。据相关人员反馈，马云当时被全天监控，毫无自由可言。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2021.11.13AM-PICTURES-1-12图片备用.002.jpeg)
-郭先生解释，为了在船上营救马云，新中国联邦卧底了两名船员，可协助马云乘坐军舰逃离西班牙，再转乘美军潜艇直奔美国。但郭先生提到，由于马云的28个家人已全部被中共绑架、威胁，导致马云无法下定决心、接受营救。
+周六，数千名示威者聚集在墨尔本中心城区，抗议强制疫苗和维多利亚州拟通过的新大流行病法律。自从上月首席卫生官对集会取消限制后，周末定期集会抗议的人群正在稳步增长。
 
-目前，马云已被送至香港，随后回到中共国。
+前自由党议员、澳大利亚联合党领袖克雷格·凯利预计是本次抗议活动中的演说者之一。凯利先生曾因其（在社交媒体上）围绕新冠病毒和疫苗的观点而受到主流媒体告诫。
 
-参考链接：[2021年11月12日 文贵大直播](https://gtv.org/video/id=618e6c5fe7e770379233c262)
+当演讲者高呼：“解雇丹·安德鲁斯（州长）”时，抗议人群保持了和平。有记者也听到人群中有人喊出了对安德鲁斯威胁的口号，一名男子游行时扛着一个临时的绞架，上面挂着三个绞索。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+周六早上在开始游行之前，一位发言者对人群说：“我们在这为自己站起来，这可能是我们最后的机会。所以让我们清晰、大声地发出我们的声音。”
 
-总编：Ivy001
-编辑：Irene木木
-校正/发稿：我不在这里
+各行各业都有人参加游行。还有带孩子的家庭，也有老人和小孩，他们从州立图书馆穿过城市，涌向斯旺斯顿街，并在前往议会大厦的路上堵住了有轨电车。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+在今天的抗议活动之前，上周六已有超过3000人在中央商务区的大街上游行，要求州长安德鲁斯辞职。
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+安德鲁斯力推新的大流行病法律将取代12月15日到期的紧急状态权力，赋予州长和卫生部长宣布大流行病和发布公共卫生命令的权力并削减首席卫生官的作用。
+
+2021年公共卫生和福利修正案（大流行病管理）法案上个月在下议院获得通过，政府现在希望它能在下周的上议院获得三名交叉议员的支持通过。
+
+原文链接：[Melbourne protests: Thousands rally in the CBD to denounce new pandemic laws, vaccine mandate (theage.com.au)](https://www.theage.com.au/national/victoria/thousands-take-to-melbourne-s-cbd-to-protest-new-pandemic-laws-vaccine-mandate-20211113-p598lu.html)
+
+**发布：文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

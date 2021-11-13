@@ -2,27 +2,22 @@
 ---
 
 
-## 白宫记者转战盖特继续爆料
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1660989/)
+## 有声|DMSA将对恒大提起破产程序
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1661045/)
 
-作者：纽约香草山佛教部-文一
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-今日，白宫记者埃默尔德-罗宾逊因爆料新冠疫苗的可疑成分，而被推特永久封号。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-13-下午9.49.16.png)
-消息称，上周，推特上流传了一条分析莫德纳新冠疫苗成分的推文，当中提及，莫德纳疫苗中含有一种可被追踪的酶。罗宾逊对该条推文表示肯定，并予以佐证分析。随后，推特封禁了罗宾逊的账号。
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+当地时间11月10日，德国柏林消息称，中共恒大集团今天再次拖欠国际投资者的利息支付，对此，持有恒大集团债券的德国市场筛选机构DMSA正准备对恒大集团提起破产程序，并呼吁所有债券投资者加入。
 
-遭推特封号后，罗宾逊转战盖特继续爆料，她的支持者也纷纷到其盖特账号下表示支持。有评论称，作为一个说真话的人，罗宾逊值得被人关注和支持，而盖特为罗宾逊提供了继续揭示真相的平台，支持者也愿意在盖特中继续关注罗宾逊。
+数据显示，中共恒大集团早在今年9月就拖欠了两笔债券的利息，其30天的宽限期已于10月结束。作为债权人，DMSA表示，至今仍未收到任何来自恒大集团的利息付款。据了解，恒大最晚要在11月10日前支付三笔债券的利息，共计约1.4亿美元。DMSA解释，恒大的债务均包含交叉违约条款，即当其所涉的任一债券出现违约时，恒大的其余所有未偿还债券都会被一同视为“违约”状态。
 
-参考链接：
-1）[Newsmax under fire for COVID policy, silencing reporter who warned about ‘satanic’ jab ingredients](https://www.lifesitenews.com/news/748051/)
-2）[https://gettr.com/post/pg6822fa26](https://gettr.com/post/pg6822fa26)
+此前，DMSA曾在一份报告中指出，世界上负债最多的企业——中共恒大集团必将面临债务违约的境况，而恒大的破产可能会导致“大重置”，即全球金融体系的最终崩溃。美联储也于两天前证实了这一点。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+文字版原文：[DMSA将对恒大提起破产程序](https://gnews.org/zh-hans/1656178/)
 
-总编：文真
-编辑：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

@@ -2,41 +2,26 @@
 ---
 
 
-## 爆料革命面临着历史上最大的机遇
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1660630/)
+## 参议员罗恩·约翰逊再次遭受YouTube言论打压
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1660690/)
 
-作者： 英国喜庄园 I770775
+#### 撰稿：彩虹       
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-252.png)图片来源：News8000
+11月12日，《国会山报》发文，指参议员罗恩·约翰逊（Ron Johnson）由于发布中共病毒疫苗有害的言论而遭受YouTube（油管）暂停使用账户惩罚措施打压。
 
+在上传到YouTube的视频中，约翰逊说：“今天的最新（死亡）数字是17619，这短短10个月内的死亡人数是之前死亡总数的225倍，与流感疫苗（造成的死亡）相比，这些（中共病毒）疫苗的伤害是真实的。”
 
+约翰逊引用的是疫苗不良反应报告系统（VAERS）的数字，但有文章狡辩称美国疾病控制和预防中心（CDC）警告说这些数字不一定准确。
 
-在11月12日的大直播中，郭文贵先生向战友们解释，爆料革命正面临着人类历史上最大的机遇：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2021.11.13AM-PICTURES-1-12图片备用.001.jpeg)
-首先，是千年不遇的金融机遇。由于虚拟货币时代的到来，世界产生了新的金融系统，喜币在这样的时机下，让战友走在人类金融历史的最前沿；
+对此，约翰逊在一份声明中说：“大科技公司再次对披露真相进行惩罚，为什么他们不让疫苗受害者讲述他们的故事？不让医学专家给出第二种意见？为什么我们不能讨论强制疫苗接种的有害影响？显然，拜登政府和联邦卫生机构绝不允许受到质疑，这将会导致多少生命被如此的摧毁？”
 
-其次，因为共产党制造的生化病毒及疫苗灾难，将导致人类政治形态和信仰的重建，而爆料革命战友会成为世界上唯一的“无苗族” 。
+根据报道，在今年6月份，约翰逊发布了一则视频，介绍中共病毒（COVID-19）的替代疗法，并抨击YouTube的审查制度，对此，YouTube平台当时取消了约翰逊的上传权限。
 
-最重要的是，爆料革命战友是全人类唯一敢于与世界上最邪恶的组织对抗的群体 ，是世界上最受尊重的人类群体。
+**新闻来源**
 
-郭先生提醒，爆料革命正在引领世界的走向，战友们要珍惜机会，抓住机遇。
-
-参考链接：[2021年11月12日 文贵大直播：2）新国际大秩序，全世界消灭共产主义的时机中，如何智慧理财投资](https://gtv.org/video/id=618e6c5fe7e770379233c262)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
-
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[YouTube temporarily suspends Ron Johnson’s channel over COVID-19 misinformation](https://thehill.com/policy/technology/581360-youtube-temporarily-suspends-johnsons-channel-over-covid-19-misinformation)
 
  
 

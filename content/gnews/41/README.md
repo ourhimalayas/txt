@@ -2,24 +2,34 @@
 ---
 
 
-## 美国公司和投资者持续投资中共国半导体行业
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1660611/)
+## 电影院连锁ACM正式接受比特币等虚拟货币支付
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1660675/)
 
-#### 撰稿：彩虹
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/44444444444.png)图片来源：BTC Manager
+**翻译：Sara9
+编辑：MSGZ**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-3-3.jpg)图片来源：Techstartup
-11月12日，《新闻极限》（Newsmax）引述《华尔街日报》报道，虽然拜登政府对国家安全有担忧，但众多美国公司及其在中共国的附属公司仍然继续投资于中共国的半导体行业。
+据市场观察12日报道， 经过一段时间的大肆宣传，世界最大电影院连锁ACM的CEO在推特上正式发布，将接受比特币等虚拟货币支付。
 
-今年7月份，现任白宫国家安全顾问杰克·苏利文（Jake Sullivan）表示，拜登政府正在“研究美国对外投资流动的影响，这些投资可能规避了出口管制的精神，或以其他方式提高我们竞争对手的技术能力，从而损害我们的国家安全”。
+AMC的CEO 埃德蒙·艾荣（Adam Aron）周四晚些时候在推特上说：“现在有许多新的方法可以在AMC在线支付。 我们现在自豪地接受比特币、以太坊、比特币现金、莱特币，还有苹果支付、谷歌支付和贝宝（Paypal）。令人难以置信的是，它们已经占到我们在线交易总额的14%，下一个是狗狗币（Dogecoin）”。
 
-但是，尽管如此，美国营利性智库荣鼎咨询(Rhodium Group)研究公司发现，在2017年到2020年的三年时间里，超过50笔涉及到中共国半导体行业的投资交易，其中包括英特尔公司（Intel），它投资了中共国公司概伦电子（Primarius Technologies Co），其他投资者包括硅谷风险投资公司光速创投（Lightspeed Venture Partners）、红杉资本（Sequoia Capital）、经纬创投（Matrix Partners）和红点投资（Redpoint Ventures），从去年年初以来，这些公司对中共国的芯片产业又进行了60多项投资。
+AMC是一支受散户追捧的股票。去年8月，AMC在其第二季度财报中宣布，今年年底前将接受比特币的在线购票和优惠券。
 
-《华尔街日报》指出，尽管这些公司在大多数情况下没有披露投资金额，但研究表明，中共国的半导体初创企业可能已经筹集了几十亿美元。
+在周三的一条推文中，他宣布扩大这些加密货币的范围。埃德蒙·艾荣曾在8月表示，将接受苹果支付、谷歌支付，和PayPal。
 
-**新闻来源**
+AMC股价在盘前交易中下滑0.7%，而比特币则下跌约2%，因为加密货币全面走弱，此前由于一些分析师和投资者提出通胀上升支持加密货币价格上涨的观点，AMC股价本周飙升。
 
-[US Firms Investing in Chinese Chip Makers Despite Security Concerns](https://www.newsmax.com/newsfront/us-firms-investment-china-semiconductors/2021/11/12/id/1044445/)
+原文链接：[marketwatch.com](https://www.marketwatch.com/story/amc-officially-begins-accepting-bitcoin-and-other-cryptocurrencies-says-ceo-on-twitter-11636715493)
+
+*发布：热锅小蚂蚁*
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

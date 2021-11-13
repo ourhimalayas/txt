@@ -2,33 +2,34 @@
 ---
 
 
-## 秘翻在线:中共及暗黑势力下一步要推更毒的口服疫苗?
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1660972/)
+## 中共多家企业管理层换血
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661009/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/11/AZ-1.jpg)
-图片:网路
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月11日，中共媒体消息称，中共企业中芯国际的副董事长蒋尚义即日起离职，其执行董事梁孟松也将一并辞任，同时，中芯国际的董事层大幅变动。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-13-下午9.56.31.png)
+同一日消息显示，武汉比亚迪汽车有限公司发生多项工商变动，其董事长王传福业已卸任。此前一天，大型地产企业中南系发布公告称，其创始人陈小平已卸任多家中南系子公司职务。稍早的媒体报道提及，字节跳动创始人张一鸣辞去公司首席执行官职务，并卸任该公司董事长职位。
 
-**来自中共国上海研究团队的呼吁?**
+自11月初起，中共多家大型企业的管理层震荡不息，且这类公司多涉及芯片、技术和房地产项目。有评论指出，除了国际社会加深对中共技术盗窃的防范，以及中共房地产经济的濒临崩塌外，正值六中全会前后，中共党内斗争的起伏也反映在了这些中共白手套企业中。
 
-2021年10月，一篇由上海干细胞研究与临床转化研究所、上海同济大学医学院及东方医院”自费”发表在《细胞发现》(Cell Discovery)医学期刊的研究文章建议，患有糖尿病、电解质失衡、肾功能障碍和凝血障碍等临床疾病的人群接种疫苗时要格外小心。
+参考链接：
+1）[中芯国际人事震荡：蒋尚义离职，梁孟松辞任执行董事](https://www.yicai.com/news/101227088.html)
+2）[王传福卸任武汉比亚迪公司董事长及法定代表人，何龙接任](https://finance.sina.com.cn/chanjing/gsnews/2021-11-11/doc-iktzqtyu6708778.shtml)
+3）[中南系陈锦石之弟陈小平卸任多职 曾寻求与四川国企合作进行融资](https://www.sohu.com/a/500306730_114988) 
+4）[字节跳动创始人张一鸣已卸任董事长 退出董事会–消息人士（更新版）](https://cn.reuters.com/article/bytedance-reshuffling-1103-wedn-idCNKBS2HO06L)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+总编：童谣
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-《细胞发现》(Cell Discovery)是施普林格·自然(Springer Nature)与中国科学院上海生物科学研究所（SIBS，CAS）合作发行，而施普林格·自然公司是一家被认为是舔共的科学刊物出版社，曾强力要求台湾学者署名要加上”中国”二字。
-
-**中共国释放”接种疫苗不妥”的消息与”口服疫苗”有关?**
-
-上海的研究团队在研究中发现，健康志愿者接种灭活的中共病毒疫苗之后，.会持续影响醣化血色素、血中钠和钾的浓度、凝血功能和肾功能。另外也发现疫苗接种后的人体不但没有减少感染，反而会减少人体自然免疫能力，引发感染, 因此呼吁接种中共病毒疫苗的人要小心谨慎。
-
-这样的结论与不断呼吁拒绝疫苗的泽连科医师(Dr.Zelenko)不谋而合，然而由制造生化病毒的中共国允许发布，背后的动机令人好奇。
-
-在中共国当局已为数亿中国人接种疫苗之后，上海研究团队明目张胆的指出接种疫苗的害处，甘冒中共之大不韪，难道不怕中共当局”李文亮”式的对这些研究者灭口?而且文章虽然是自费刊登，总还需要同侪审查或者编辑审查或者言论审查，能够正式刊登并且保留不被灭口，可见背后势力雄厚。
-
-如果数亿中国人傻呼呼地被接种灭活疫苗之后，中共当局才假惺惺的发现”原来灭活疫苗对人体有害”，接下来还会想出甚么招数继续毒害可怜的中国老百姓?
-
-答案会是口服疫苗?”口服疫苗比中共病毒疫苗还要毒,会直接从脾胃彻底毁灭人体的神经、血液及消化系统。”郭文贵先生在直播中痛恨的说。
-
-消息来源: [Liu et al. Cell Discovery (2021)7:99](http://Liu%20et%20al.%20Cell%20Discovery%20%282021%297:99)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
