@@ -2,60 +2,43 @@
 ---
 
 
-## 美国CDC表示将重新定义”完全接种疫苗”的标准
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1661622/)
+## 教皇方济各表示全球重置是真实的，没有“回归正常”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1661734/)
 
-作者：纽约香草山农场教育部 –  Naughty(文行)
+**【简评：】***维加诺（Carlo Maria Viganò）大主教：“这么多红衣主教和主教的沉默，以及教廷对疫苗接种运动的不可思议的推动，代表了一种前所未有的共谋，不能再继续下去了。有必要谴责这一丑闻，这一反人类的罪行，这一反对上帝的邪恶行动。”*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+《breitbart.com》 作者：Thomas D. Williams，2021年11月11日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-258-e1636834078470.png)图片来源： (Photo by YARA NARDI/POOL/AFP via Getty Images)
+2021年11月4日，教皇弗朗西斯在梵蒂冈的圣彼得大教堂举行弥撒，向今年去世的主教和红衣主教致敬。
 
+**罗马教皇方济各周一断言，人类需要一次全球重启，因为不值得回到过去不公正的、大流行前的世界。**
 
+在给巴黎和平论坛的致辞中，教皇描绘了一个由腐败、战争和资本主义压迫主导的新冠病毒前世界的可怕景象。
 
+**方济各说：“在大流行病之前，我们知道的现实情况是，财富和经济增长只属于少数人，而数百万人无法满足最基本的需求，无法过上有尊严的生活，在这个世界上，我们的地球被短视的资源开发、污染、‘一次性’消费主义所掠夺，被战争和大规模毁灭性武器的实验所伤害。”**
 
+“恢复正常也意味着回到由自给自足、民族主义、保护主义、个人主义和孤立所激发的旧的社会结构，”他补充说，“这种社会排斥我们最贫穷的兄弟姐妹。这是我们可以选择的未来吗？”
 
-美国疾病控制和预防中心（CDC）主任Rochelle Walensky在10月22日表示，随着新冠疫苗加强针的日益普及，美国可能会改变未来重新定义“全面接种疫苗”的含义。
+**“在这个全球化但又撕裂的世界里，我们今天为摆脱危机所做的决定决定了未来几代人的‘路线’，”他宣称，因此“我们需要一条新的出路，比以前走得更好”。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1416-ca_rachelwalenskycdc_getty.jpg)图片来源：Getty Image
+“希望邀请我们做个伟大的梦想，给新的可能性提供想象空间，”他说：“希望是大胆的，并激励我们在认识到现实可以改变的基础上采取行动。”
 
-她告诉记者，“我们尚未更改‘完全接种疫苗’的定义。我们将继续关注这一点。我们未来可能需要更新我们对“完全接种疫苗”的定义。‘’她说，如果您有资格获得加强针，请继续接种，我们将继续跟进。
+教皇对新世界的愿景始于“有利于整体裁军的具体集体承诺”，他指出。“世界军事开支现在已经超过了‘冷战’结束时的程度，而且每年都在有计划地增加”。
 
-那些已接种两剂辉瑞-BioNTech或Moderna疫苗，和已接种一剂强生疫苗的人将获得“完全疫苗接种”状态。
+文章来源：
 
-白宫冠状病毒应对协调员杰夫·齐根特斯指出，目前有超过70万人有资格接受加强针注射，并补充说：“在未来几个月内，超过1亿的美国人将有资格获得接种加强针资格。”
+[https://www.breitbart.com/economy/2021/11/11/pope-francis-says-global-reset-is-real-no-return-to-normality-after-the-pandemic/](https://www.breitbart.com/economy/2021/11/11/pope-francis-says-global-reset-is-real-no-return-to-normality-after-the-pandemic/)
 
-疾病预防控制中心数据显示，66.2%的美国人口接种了一剂COVID-19疫苗，而57.2%的人接种了两剂疫。大约6%的人接种了加强针。
-
-随着世界各地的疫苗危机在社交媒体尤其是盖特平台被广泛揭露传播，越来越多的人加入到了反对疫苗接种的队伍，在全球掀起了抵抗疫苗接种浪潮。
-
-这次美国重新定义“完全接种疫苗”标准显然又是想通过行政手段迫使人们接种更多疫苗，作为正道主义的笃信者和践行者，爆料革命的战友们应该更加积极行动起来，利用盖特等一系列社交媒体平台努力传播疫苗真相，唤醒更多的人们认清邪恶势力疫苗杀人的真相，团结一切追求正义的力量让邪恶势力的阴谋破产。
-
-**参考阅读：**
-
-[‘Fully vaccinated’ definition could change in future, CDC director says | TheHill](https://thehill.com/changing-america/well-being/prevention-cures/578056-fully-vaccinated-definition-could-change-in?utm_source=ground.news&amp;utm_medium=referral)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
+翻译：洛杉矶盘古农场–Mike Li
+校对：洛杉矶盘古农场–轰炸机
+评论：洛杉矶盘古农场–Mike Li
+编辑：洛杉矶盘古农场–心照
 
 
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

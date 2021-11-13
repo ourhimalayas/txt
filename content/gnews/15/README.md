@@ -2,63 +2,60 @@
 ---
 
 
-## 由于电力短缺，中国工厂通胀达到26年来最高水平
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1661577/)
+## 美国CDC表示将重新定义”完全接种疫苗”的标准
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1661622/)
 
-**【简评：】***中共国10月CPI和PPI同比升幅双双超过预期，这增加了中共国经济的通胀压力。除了煤炭对整个PPI的影响较大之外，国际油价包括相关高耗能商品的价格上涨都带动了PPI的上行。即便未来煤炭的压力减小，但是像国际油价，包括由于双控限制导致的高耗能产品涨价的趋势可能还会延续；所以PPI依然会维持在高位，那未来的CPI则会加速的上行，所以整个通胀压力依然在增强。*
+作者：纽约香草山农场教育部 –  Naughty(文行)
 
-据《路透社》记者：高良平(Liangping Gao) 和 加布里埃尔·克罗斯利(Gabriel Crossley)，2021年11月10日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-255.png)2016年2月27日，中国河北省唐山市，鸟儿在关闭的钢铁厂上空飞过，背景中可以看到另一家工厂的烟囱。
-图片来源：路透社/Kim Kyung-Hoon/File Ph
-（路透）北京11月10日电—因中共国工业腹地电力紧张，煤炭价格飙升，进一步挤压生产商利润率，中共国10月工业品出厂价格创26年新高，并加剧了对滞胀的担忧。
-
-**中共国国家统计局（NBS）在一份声明中表示，生产者物价指数（PPI）同比上涨13.5%，高于9月份10.7%的涨幅。**
-
-这一增幅达到了自1995年7月以来的最高点，高于路透社调查分析师预测的12.4%。
-
-**消费者价格也在加速上涨，尽管增速低于出厂价格。与9月份的0.7%相比，10月份消费者价格指数（CPI）同比上涨1.5%。**
-
-不断加剧的价格压力使中共国央行的考虑变得复杂。在全球第二大经济体增长放缓之际，由于担心通胀加剧，中共国央行现在可能对过快采取货币刺激措施持谨慎态度。
-
-“我们对生产者物价指数（PPI）向消费者价格指数(CPI)的传导感到担忧”，精确资产管理（Pinpoint Asset Management）首席经济学家张志伟在一份报告中表示。
-
-他补充说，由于企业面临库存枯竭并被迫将更高的成本转嫁给客户，未来几个月消费者价格可能会加速上涨。
-
-**“滞胀风险继续上升”。**
-
-经济增长放缓和工厂通胀飙升加剧了对滞胀的担忧，这可能意味着中共国在放松货币政策方面必须谨慎行事。
-
-野村证券（Nomura）首席中国经济学家陆挺表示：“CPI上涨和PPI上涨降低了中共国人民银行降息的可能性。”
-
-**上游行业带动出厂价格上涨. 煤炭开采和洗选价格较上年同期飙升103.7%，石油和天然气开采行业价格上涨59.7%。**
-
-近几个月来，碳排放限制和煤炭（发电的主要燃料）价格飙升导致限电和减产，尽管此后煤炭价格在政府干预后有所下降。
-
-凯投宏观（Capital Economics）资深中国经济学家朱利安·埃文斯-普里查德（Julian Evans-Pritchard）在一份报告中提到煤炭价格下跌时表示：“工业品价格上涨可能已接近峰值。”
-
-**由于生产成本上升侵蚀利润率，几家中国食品巨头最近几周宣布提高零售价格。 佛山海天调味食品（603288.SS）、食醋巨头江苏恒顺（600305.SS）和冷冻食品企业福建安悦食品（603345.SS）均上调了价格。**
-
-PPI环比小幅上涨2.5%，而9月份的涨幅为 1.2%。
-
-剔除波动较大的食品和能源价格后，10月份核心通胀率较上年同期上升1.3%，高于9月份1.2%的增幅。
-
-原文连接：
-
-[https://www.reuters.com/world/china/chinas-factory-gate-inflation-hits-26-year-high-2021-11-10/](https://www.reuters.com/world/china/chinas-factory-gate-inflation-hits-26-year-high-2021-11-10/)
-
-翻译：洛杉矶盘古农场–钢蛋儿
-
-校对：洛杉矶盘古农场–Freeearth
-
-评论：洛杉矶盘古农场–钢蛋儿
-
-编辑：洛杉矶盘古农场–心照
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+美国疾病控制和预防中心（CDC）主任Rochelle Walensky在10月22日表示，随着新冠疫苗加强针的日益普及，美国可能会改变未来重新定义“全面接种疫苗”的含义。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1416-ca_rachelwalenskycdc_getty.jpg)图片来源：Getty Image
+
+她告诉记者，“我们尚未更改‘完全接种疫苗’的定义。我们将继续关注这一点。我们未来可能需要更新我们对“完全接种疫苗”的定义。‘’她说，如果您有资格获得加强针，请继续接种，我们将继续跟进。
+
+那些已接种两剂辉瑞-BioNTech或Moderna疫苗，和已接种一剂强生疫苗的人将获得“完全疫苗接种”状态。
+
+白宫冠状病毒应对协调员杰夫·齐根特斯指出，目前有超过70万人有资格接受加强针注射，并补充说：“在未来几个月内，超过1亿的美国人将有资格获得接种加强针资格。”
+
+疾病预防控制中心数据显示，66.2%的美国人口接种了一剂COVID-19疫苗，而57.2%的人接种了两剂疫。大约6%的人接种了加强针。
+
+随着世界各地的疫苗危机在社交媒体尤其是盖特平台被广泛揭露传播，越来越多的人加入到了反对疫苗接种的队伍，在全球掀起了抵抗疫苗接种浪潮。
+
+这次美国重新定义“完全接种疫苗”标准显然又是想通过行政手段迫使人们接种更多疫苗，作为正道主义的笃信者和践行者，爆料革命的战友们应该更加积极行动起来，利用盖特等一系列社交媒体平台努力传播疫苗真相，唤醒更多的人们认清邪恶势力疫苗杀人的真相，团结一切追求正义的力量让邪恶势力的阴谋破产。
+
+**参考阅读：**
+
+[‘Fully vaccinated’ definition could change in future, CDC director says | TheHill](https://thehill.com/changing-america/well-being/prevention-cures/578056-fully-vaccinated-definition-could-change-in?utm_source=ground.news&amp;utm_medium=referral)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
