@@ -2,74 +2,50 @@
 ---
 
 
-## 喜联储对中共最大的威胁是什么
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660673/)
+## 监管机构审查与莫德纳疫苗相关的“罕见”和重疾报告
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1660685/)
 
-**郭文贵
-Miles Guo**
+编译：Jenny Ball
 
-我说让你涨就涨
-You would jump if I said to let you (stock) jump
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-251.png)图片来源： theepochtimes.com 文件照片中可以在康涅狄格州布里奇波特看到几瓶莫德纳 COVID-19 疫苗。（约瑟夫·普雷齐奥索/法新社通过盖蒂图片社）
 
-我说让你降就降
-and you would drop if I said to drop
+欧洲药物监管机构周四证实，它正在调查莫德纳（ Moderna） 的 mRNA COVID-19 疫苗接受者血液状况的报告。
 
-说到这儿的时候
-When talking about this,
+根据欧洲药品管理局 (EMA) 发布的公告，它正在审查 EMA 的 EudraVigilance 数据库中报告的 6 例毛细血管渗漏综合征，被认为是“非常罕见的疾病”。
 
-你知道我们喜联储对共产党最大的威胁是什么
-Do you know what is the biggest threat from our Himalaya Federal Reserve to the Chinese Communist Party (CCP)?
+“在现阶段，尚不清楚疫苗接种与毛细血管渗漏综合征的报告之间是否存在因果关系，”EMA 周四写道，并补充说，“这些报告指向一个安全信号……关于新的或变化的信息在，可能与药物或疫苗相关并需要进一步调查的不良事件。”
 
-还真不是你想象的
-It’s really not what you imagined
+该审查还将解决有毛细血管渗漏综合征病史的人群发生毛细血管渗漏综合征的风险。
 
-它的钱能出来 它害怕
-They (the CCP) should be feared because they could lose money
+因此，EMA 研究人员将“评估所有可用数据，以确定是否可能存在因果关系，”公告中写道。
 
-我给你控制就完了嘛
-All they (the CCP) need to do is control Himalaya Federal Reserve. That’s it
+它还指出，“目前没有足够的证据”表明莫德纳的疫苗与多系统炎症综合征病例之间存在联系。
 
-它相信自己能控制得了
-They (the CCP) believes they can control it (Himalaya Federal Reserve)
+根据梅奥诊所的说法，毛细血管渗漏综合征是一种罕见的疾病，涉及大量血浆从血管中反复渗漏到附近的体腔和肌肉中。这种被称为克拉克森病的疾病，会导致血压急剧下降，从而导致器官衰竭甚至死亡。
 
-你出不去
-The money can’t go anywhere
+“可能由上呼吸道感染或剧烈的体力消耗引发，发作频率从一年几次到一生一次不等，”诊所说。
 
-对它最大的打击是我们在外边的权力
-The biggest threat to them is our authority and power overseas
+该诊所的网站称，症状包括恶心、疲劳、易怒、肌肉酸痛、口渴或体重突然增加。
 
-就是你不可能渗透到喜联储（让他）成为你代言人
-and the CCP cannot influence the Himalaya Federal Reserve making it become their spokesperson
+今年早些时候，EMA 的安全委员会得出结论，应将毛细血管渗漏综合征作为**阿斯利康疫苗的副作用添加到产品信息中**，阿斯利康疫苗使用的技术与莫德纳的不同。
 
-帮助你收集西方的金融技术和跟你一起作恶
-helping them collect western financial technology, and to cause trouble with them
+在欧盟之外，加拿大卫生机构今年早些时候更新了牛津-阿斯利康 (Oxford-AstraZeneca) 和病毒防护罩（Covishield COVID-19 ）疫苗的标签，以增加毛细血管渗漏综合征作为可能的副作用。**加拿大机构警告有疾病史的人：不要接种这些疫苗**。
 
-是构造了这一个所谓西方的数字货币时代到来的话语权
-It constitutes the right to speak in this so-called Western digital currency era
+**评论：**“**加拿大机构警告有疾病史的人：不要接种这些疫苗**。”**而世界各国真正应该做的是，就不应该让他们的人民充当大药企的试验老鼠！**
 
-因为我们，它做不到
-They cannot do it because of us
+**新闻来源**：[theepochtimes.com][Regulator Reviewing Reports of ‘Rare’ and Serious Condition Linked to Moderna Vaccine](https://www.theepochtimes.com/mkt_morningbrief/regulator-investigating-moderna-vaccine-over-rare-but-serious-blood-condition_4099180.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-11-12&amp;mktids=24ab40685045db9190eb15406814df98&amp;est=QYINLdi2buGZ6bWU9g85DW2Q5AbkXZnMUw9Wnl%2F0E%2BVUjvu7EKHoJL4ru42bJbsFMF%2FhyQ%3D%3D)
 
-这才是它最大的担心
-This is their biggest worry
+* * *
 
-Date: 11/09/2021
-原视频标题: 喜联储对中共最大的威胁是什么
-What is the biggest threat to the CCP from the Himalaya Federal Reserve?
-原视频日期：2021/11/07
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1458020644696649728?s=24](https://twitter.com/se1y7cblljselva/status/1458020644696649728?s=24)
-任务编号：KC245（2823）
-视频时间段 : 0:00-0:54
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 小战蚁
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+
+
 
  
 

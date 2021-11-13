@@ -2,40 +2,74 @@
 ---
 
 
-## 墙内战友分享48小时成功买喜币
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1660653/)
+## 喜联储对中共最大的威胁是什么
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660673/)
 
-撰稿：文飞天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/14-2.jpg)（图片截自喜交所网站）
-11月11日，墙内战友小陈（化名）加入了澳喜农场特战旅某队，第一句问他小队长：墙内怎样买喜币？
+**郭文贵
+Miles Guo**
 
-小队长懵了，实在不知道有什么方法，只是记得郭先生说过，有很多方法！ 遂鼓励小陈去喜币交流群查询。
+我说让你涨就涨
+You would jump if I said to let you (stock) jump
 
-12日深夜，小陈再次出现，欢天喜地的告诉小队长找到了方法。 13日上午，小陈将人民币打在某位战友的内地帐户上，由该战友换成美元代小陈购买，以即时交易价27元计算，小陈终于买到700多个珍贵的喜币，应验了文贵先生在喜币上市前的经典名句：一币难求！
+我说让你降就降
+and you would drop if I said to drop
 
-原来2017年文贵先生爆料时，偶尔翻墙的小陈，已经是一名忠实的郭粉，虽然多次被喝茶，也无阻他收听文贵先生爆料。
+说到这儿的时候
+When talking about this,
 
-「我是断断续续听七哥爆料，因为有一段时间买不到好的VPN，我知道有GTV投资，我想投但找不到方法，当时也不知道有农场。」小陈表示因为注册GTV帐号，又被公安找到，警告他不许再用该帐号，然而小陈并不甘心，仍在苦苦找寻墙内投资方法。
+你知道我们喜联储对共产党最大的威胁是什么
+Do you know what is the biggest threat from our Himalaya Federal Reserve to the Chinese Communist Party (CCP)?
 
-「今年8月份，我知道有喜交所，立即申请并通过了KYC，可是，帐户一分钱没有，不知道如何把人民币换成美元。」小陈坦言，自己一个海外的朋友也不认识，于是，心急如焚的他，开始在推特及盖特找方法，每一个谈论喜币的贴子也不错过，GTV上所有关于喜币的节目，他全部盯着看。
+还真不是你想象的
+It’s really not what you imagined
 
-终于，在他的诚意打动下，某大V战友给他指路，皇天不负有心人，小陈成功买到了喜币。
+它的钱能出来 它害怕
+They (the CCP) should be feared because they could lose money
 
-「要等HPAY 开通了，我才能看到我的喜币。」从电话中，可以感受到小陈的喜悦，真心替他感到高兴。
+我给你控制就完了嘛
+All they (the CCP) need to do is control Himalaya Federal Reserve. That’s it
 
-「我相信郭先生，从2017年开始，从未动摇过。」小陈的心路历程，正是成千上万追随爆料革命的小蚂蚁写照，他们来自草根，受到爆料革命的启智，坚定追随文贵先生。
+它相信自己能控制得了
+They (the CCP) believes they can control it (Himalaya Federal Reserve)
 
-文贵先生多次在直播中表示：「现在，还有很多战友正在等待通过KYC，我们要等这批战友全部上车，不能落下一个战友！」
+你出不去
+The money can’t go anywhere
 
-的确，对于草根阶层来说，27元一枚喜币，已经买不了几个，真心希望所有战友高兴搭上这趟黄金快车。
+对它最大的打击是我们在外边的权力
+The biggest threat to them is our authority and power overseas
 
-（本文是战友的真人真事，仅限个人观点，与GNEWS无关）
+就是你不可能渗透到喜联储（让他）成为你代言人
+and the CCP cannot influence the Himalaya Federal Reserve making it become their spokesperson
 
-发稿：MG5
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
+帮助你收集西方的金融技术和跟你一起作恶
+helping them collect western financial technology, and to cause trouble with them
 
+是构造了这一个所谓西方的数字货币时代到来的话语权
+It constitutes the right to speak in this so-called Western digital currency era
 
+因为我们，它做不到
+They cannot do it because of us
 
+这才是它最大的担心
+This is their biggest worry
+
+Date: 11/09/2021
+原视频标题: 喜联储对中共最大的威胁是什么
+What is the biggest threat to the CCP from the Himalaya Federal Reserve?
+原视频日期：2021/11/07
+原视频链接: [https://twitter.com/se1y7cblljselva/status/1458020644696649728?s=24](https://twitter.com/se1y7cblljselva/status/1458020644696649728?s=24)
+任务编号：KC245（2823）
+视频时间段 : 0:00-0:54
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 小战蚁
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
