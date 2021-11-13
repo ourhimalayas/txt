@@ -30,62 +30,62 @@
 ### [美国间谍在中共国不再得势](/content/gnews/5/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [加州一联合学区宣布 抵制中共病毒疫苗强制令](/content/gnews/6/README.md)
- ` GTV新闻访谈`
-
-### [以色列科学家怒斥疫苗不良事件数据造假](/content/gnews/7/README.md)
- ` GTV新闻访谈`
-
-### [宾州卫生局拒绝提供完整的中共病毒死亡数据](/content/gnews/8/README.md)
+### [梵蒂冈将自己出卖给中共](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [农业成本飞涨，消费者面临收成和价格上涨的风险](/content/gnews/9/README.md)
+### [加州一联合学区宣布 抵制中共病毒疫苗强制令](/content/gnews/7/README.md)
+ ` GTV新闻访谈`
+
+### [以色列科学家怒斥疫苗不良事件数据造假](/content/gnews/8/README.md)
+ ` GTV新闻访谈`
+
+### [宾州卫生局拒绝提供完整的中共病毒死亡数据](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [农业成本飞涨，消费者面临收成和价格上涨的风险](/content/gnews/10/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [中共国近九成银行股跌至白菜价](/content/gnews/10/README.md)
+### [中共国近九成银行股跌至白菜价](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [中共国昔日“光棍节”网络购物狂欢，在政府打压下变得悄无声息](/content/gnews/11/README.md)
+### [中共国昔日“光棍节”网络购物狂欢，在政府打压下变得悄无声息](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [台湾叫停对12-17岁年龄组施打第二针辉瑞疫苗](/content/gnews/12/README.md)
+### [台湾叫停对12-17岁年龄组施打第二针辉瑞疫苗](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [美十州医护人员起诉新冠疫苗强制令](/content/gnews/13/README.md)
+### [美十州医护人员起诉新冠疫苗强制令](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [接种莫德纳疫苗后、4人因心肌炎死亡](/content/gnews/14/README.md)
+### [接种莫德纳疫苗后、4人因心肌炎死亡](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [荷兰启动为期三周的部分封锁](/content/gnews/15/README.md)
+### [荷兰启动为期三周的部分封锁](/content/gnews/16/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [GTV新闻访谈简报|2021年11月13日早](/content/gnews/16/README.md)
+### [GTV新闻访谈简报|2021年11月13日早](/content/gnews/17/README.md)
  ` 纽约香草山MOS01`
 
-### [有声|德国将定期向印太派遣军舰 应对中共宣示南海主权](/content/gnews/17/README.md)
+### [有声|德国将定期向印太派遣军舰 应对中共宣示南海主权](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [洪都拉斯总统访台，背后中美地缘角力](/content/gnews/18/README.md)
+### [洪都拉斯总统访台，背后中美地缘角力](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|大屠杀博物馆确认新疆正在发生反人类罪行](/content/gnews/19/README.md)
+### [有声|大屠杀博物馆确认新疆正在发生反人类罪行](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声|布林肯：若中共攻台，美国和盟友将“采取行动”](/content/gnews/20/README.md)
+### [有声|布林肯：若中共攻台，美国和盟友将“采取行动”](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|习近平六中全会树立个人绝对权威](/content/gnews/21/README.md)
+### [有声|习近平六中全会树立个人绝对权威](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声|足球运动员心脏病例增多](/content/gnews/22/README.md)
+### [有声|足球运动员心脏病例增多](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [香港新闻自由已死，外籍记者签证遭拒](/content/gnews/23/README.md)
+### [香港新闻自由已死，外籍记者签证遭拒](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|蓬佩奥国务卿再次强调习会因冬奥会膨胀，拜登政府需要下决心、建立威慑力](/content/gnews/24/README.md)
- ` MOSREC`
 
 ### [2021/11/12 墙内世界](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
