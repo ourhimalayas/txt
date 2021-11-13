@@ -2,28 +2,81 @@
 ---
 
 
-## 秘翻在线：六中全会后习拜视频会晤将释放什么信号？
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1660647/)
+## 中共国11个第一的其中三个第一
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660654/)
 
-**撰稿：Ping**
+**郭文贵
+Miles Guo**
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/20211113fbc05a.jpg)
-2021年11月13日，国务委员兼外长王毅应约同美国国务卿布林肯通电话，并强调习近平主席同拜登总统将于11月16日举行视频会晤。这次举世瞩目的会晤不仅是中美关系的一件大事，也是国际关系的一件大事。布林肯表示，美方期待在会晤中本着相互尊重的精神与中方分享对双边关系的看法，共同向世界发出强有力的信号。
+刚刚做出的统计报告，我们中国获得了11个第一
+The Communist Party has just made a statistical report that China have won 11 firsts
 
-早在11月10日时，美中关系全国委员会年会上，习拜分别寄贺信，习近平就表明“当前，中美关系正处于重要历史关口，两国合则两利、斗则俱伤，合作是唯一正确选择。” 就当前中美国国际关系，中共方的发言都充满了强硬的口气，无不突显出中共的在此次谈判中的绝对优势。中共也摆出了绝对的国际霸主地位，但是事实是如此么？
+11个第一的第一个第一是什么呢？中国癌症人数官方数字450万，去年
+What is the first one of the 11 firsts? last year the official numbers of cancer in China are 4.5 million
 
-11月12日郭先生直播中着重解读了此次习拜通话的目的和原因。郭先生说，拜登政府放低姿态的原因，是为了明年的中期选举。中共病毒已经使得美国的供应链断裂，美国需要中共国便宜的产品，衣服，鞋子等。中共恒大的暴雷，债务无法偿还，其结果就是引发美国的经济危机，从而影响拜登政府的中期选举。美国给中共跪下来完全是拜登政府的政治需要。而作为民主国家的美国人民会答应吗？郭先生多次提到美国的伟大，在于美国的法律和民主制度，这不是拜登政府可以决定美国人民的根本利益的。拜登想借助中共的经济支撑美国虚假繁荣到明年中期选举，而以这种卑躬屈膝的行为必定引起民怨，更会激起美国人民的反共浪潮！
+实际官方人数1100万，一个所谓14亿人的中国
+The country with a so-called 1.4 billion Chinese people, the actual official cancer number of China is 11 million
 
-反共是爆料革命的使命，虽然拜登与中共勾兑，会引起所以西方发达国家右派政党的反共情绪，但是也会给海外华人带来灾难。这是郭先生最为忧心的事情，也为此专门召开新中国联邦国防会议，以保护爆料革命的每一位战友和海外华人。
+大家记住我说的话，说到这我背上都发凉，我不知道你们啥感觉，
+Everyone remember what I said, I feel cold all over my back when I say this, I don’t know how you feel
 
-在双方通话中王毅就台海问题强调，“台独”是台海和平稳定的最大威胁，如果美方真想维护台海和平，就应当明确、坚定地反对任何“台独”行径，就应当信守在中美三个联合公报中作出的郑重承诺，就应当把一个中国政策落实到行动上，不再向“台独”势力发出错误信号。
+一个国家1100万癌症，你想想这数字是多鲜活的生命，
+there are 11 million people suffer from cancer in a country, think about what a vivid lives these numbers are
 
-美国作为世界超级大国，引领着整个世界的民主国家。但是拜登政府却与独裁国家中共勾兑，以牺牲台湾这个民主国家来换取美国短暂的虚假经济繁荣。台湾是华人的民主国家，他传承了真正的中华传统文化，是中华文明的唯一一块净土。中共已经荼毒残害中共老百姓70年，如今又企图把台湾当成与美国勾兑的筹码。甚为台湾同胞担忧，作为爆料革命的一份子，我们必须不遗余力的传播爆料革命真相，团结世界一切正义力量尽早铲除邪恶共产党，还世界晴朗乾坤！
+哪个癌症的背后不是带着一个家庭两个家庭, 还要耗尽他所有的积蓄
+Behind every cancer patient is a family, two families, and all their savings.
 
-**[新闻来源](https://news.sina.cn/gn/2021-11-13/detail-iktzqtyu7069563.d.html?sinawapsharesource=newsapp&amp;wm=320)**
+而且共产党的癌症药是美国的70倍到100倍啊
+And the Communist Party’s cancer drugs are 70 to 100 times more expensive than that of the United States
 
+说中国房地产，海外违约创历史新高，现在债务违约到280亿元已经过期的，
+Speaking of Chinese real estate, overseas defaults have reached a record high, with $28 billion of debt now in default
 
+我们要面对着一个马上在30天内，一个2700亿到6000亿美元的间接和融资和票据贷款
+We have to face an indirect financing and bill loan of US$270 billion to US$600 billion within 30 days
+
+历史第一，另外一个，据香港所谓的政府的某局
+It’s the first in history, the other one, according to a so-called certain government bureau in Hong Kong
+
+我不要说哪个人了，据统计，过去3个月，香港外籍人士撤离
+I don’t want to name anyone, according to statistics in the past 3 months, foreigners in Hong Kong have evacuated
+
+从过去的每月的7000人，突然增加到11000人
+from the past 7,000 people per month, it suddenly increased to 11,000 people
+
+特别是，这些大数的金融企业和高管企业这个全部移到了英国、新加坡和日本
+In particular, these large numbers of financial companies and executives have all moved to the UK, Singapore and Japan
+
+大量的外汇移出香港到日本，新加坡、英国
+A large amount of foreign exchange was moved out of Hong Kong to Japan, Singapore, and the United Kingdom
+
+三地区的房地产指数涨了22%到27%
+The real estate index in these three regions rose 22% to 27%
+
+根据此现象结局下去，香港将在6个月以内
+Based on this trend going forward, Hong Kong will be within 6 months
+
+金融高管和外资的撤离，将导致香港真正的成为金融空港
+The withdrawal of financial executives and foreign capital will cause Hong Kong to truly become a financial empty port
+
+* * *
+
+Date:11/11/2021
+原视频标题: 中共国11个第一的其中三个第一
+Three of the 11 firsts of the Communist China
+原视频日期：2021/11/10
+原视频链接 [https://twitter.com/se1y7cblljselva/status/1458774264736550914?s=24](https://twitter.com/se1y7cblljselva/status/1458774264736550914?s=24)
+任务编号：KC244（2844）
+视频时间段 : 0:00-2:14
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – 天涯行
+字幕+视频制作：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
