@@ -2,33 +2,29 @@
 ---
 
 
-## 巴黎、布鲁塞尔点亮蓝光 声援维吾尔人权
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1659852/)
+## 美国决心落实澳英美联盟
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1659859/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-7.jpg)巴黎、布鲁塞尔点亮蓝光 声援维吾尔人权 网络图片
-据自由亚洲电台11月12 日报道，法国首都巴黎和比利时首都布鲁塞尔达成象征性倡议，于11月12日在巴黎市政厅和布鲁塞尔的原子塔点亮象征维吾尔人的蓝色灯光—维吾尔自由(Free Uyghurs)，以声援在中共国新疆面临种族灭绝危机的维吾尔人。
+撰稿：文西Eric
+![](https://assets.gnews.org/wp-content/uploads/2021/11/001.jpg)
+图片来源于网络
 
-这个日子是特意选定的，因为11月12日是维吾尔族人民于1944年宣布独立，并以星月蓝旗成立突厥斯坦共和国的日子。从那时起，世界各地的维吾尔人在这一天纪念东突厥斯坦独立建国日，也成为新疆再教育营里的维吾尔族人向往自由的纪念日。
+据澳大利亚天空新闻报道：白宫国家安全顾问杰克·苏利文表示，美国决心落实澳英美联盟（AUKUS）安全伙伴关系。
 
-原子塔原是为1958年布鲁塞尔世界博览会而建的铁原子结构模型，通过庞大的建筑来展示原子结构的微观世界，以及刚走出第二次世界大战的阴影，象征人类进入科学、 和平 、发展和进步的新时代。原子塔是布鲁塞尔的象征。
+苏利文先生还宣布：美国对澳大利亚投入巨大“赌注”，承诺对其分享核潜艇技术。他的讲话是在洛伊研究所的演讲中发表，并誓言美国将捍卫其价值观与中共对抗。他的评论发表之际，习近平批评三边协议并警告亚太地区可能陷入冷战式的对抗。
 
-中共对维吾尔的种族灭绝触碰了人类的底线，全世界都在声讨中共的暴行。仅仅口头支持远远不够，Take Down The CCP才能解决新疆的问题。
+AUKUS三边关系在核潜艇方面达成的协议也意味着澳大利亚将放弃此前与法国政府达成的协议——在阿德莱德进行价值900亿澳元的常规潜艇项目。
 
-新闻参考链接：[https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-11122021085403.html](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-11122021085403.html)
+撰稿人点评：自今年九月爆出成立澳英美联盟起，中共海外大外宣就鼓吹目前该安全伙伴关系尚处于“口炮”阶段，不会很快落实。而这一消息的爆出，意味着美国已下定决心落实该联盟安全伙伴关系，而且送出的第一杀手锏是分享核潜艇技术。中共海军最引以为自豪的就是核潜艇，而澳大利亚具备核潜艇技术后，对中共在南海有着巨大的战略威慑意义。需要澄清的是澳大利亚当前的潜艇系列推进系统一直是传统的柴电式，而该协议将实现核动力推进系统，但并不涉及核武器。
 
-* * *
+（本文纯属个人观点，与Gnews无关）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
 
+参考资料：
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+[《US determined to implement AUKUS alliance》](https://www.skynews.com.au/australia-news/defence-and-foreign-affairs/us-determined-to-implement-aukus-alliance/video/9cd1e6e4540d0c20c3112c05a61962f0)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
