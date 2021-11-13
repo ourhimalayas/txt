@@ -2,141 +2,134 @@
 ---
 
 
-## 战友被威胁后是否能找回自己的喜币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660620/)
-
-[https://gtv.org/video/id=618f40e3182702508104b1dc](https://gtv.org/video/id=618f40e3182702508104b1dc)
+## 中国人可以合法购买喜币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660642/)
 
 **郭文贵
 Miles Guo**
 
-谢谢七哥
-Thank you, Brother Miles
+在全世界，中国政府说，不允许任何中国人去买喜币
+The Chinese government has announced the world that any Chinese people would not allowed to buy Hcoin
 
-有战友问，墙内战友如果被威胁的情况下把喜币转走的话，是否可以追回
-A comrade asked if it is possible to recover the HCoins if they were transferred under threat in China mainland
+包括Coinbase，所有人都停止了
+All platforms including Coinbase have stopped Chinese users
 
-这个问题
-This question
+甚至未来中国政府会发出,所有的华人面孔
+Even in the future, the Chinese government will issue that all Chinese faces,
 
-100%可以追回
-It can be 100% recovered
+不管哪国护照都不能买（的禁令）
+regardless of what country their passport is
 
-我再重申一遍
-Let me reiterate
+我可以告诉大家，今天没有人说出来
+I can tell you that there is no one has said this today
 
-你们要看，一定要看白皮书，一定要看这些
-You have to read, you have to read the white paper
+喜联储最大的价值，它就是接受中国人买
+The greatest value of the Himalaya Exchange is that it accepts Chinese people to buy
 
-我们所有说的话不代表喜联储，我们所有说的话不代表喜币
-Everything we say does not represent the Himalaya Exchange and everything we say does not represent the Hcoin
+而且是合法的买
+It is legal to buy
 
-而且大家也知道，喜币和GTV没有半毛钱关系
-And as you all know, Hcoin has nothing to do with GTV
+而且能让世界所有金融机构承认，中国人买是合法的
+and it can be recognized by all financial institutions in the world that it is legal for Chinese people to buy
 
-战友们只是喜币的拥有者
-Comrades are only the owners of Hcoins
+因为我们会让你知道，共产党的政权是不合法的
+Because we will show you that the communist regime is not legitimate
 
-大部分投资者到目前为止
-Most of the investors so far
+你们知道这意味着什么吗？
+Do you know what this means?
 
-是吧?我们不代表喜联储
-Right? we can’t speak for the Himalaya Exchange
+我们会拯救多少无辜的人
+How many innocent people we will save
 
-但是你们一定要记住，我们是（喜联储的）结构设计师，我们是创意的发起人
-But you must remember that we are the ( Himalaya Exchange’s) structure designers, the originators of the idea
+这不是钱的事情啊
+This is not about money
 
-我告诉大家，喜币最牛的就是
-Let me tell you, the most extraordinary about Hcoin is that
+就像刚才我们跟海东兄弟我们俩共同的那个军队的哥们儿亲自打电话来
+Just like that Army buddy, a close friend of Haidong and I, called in person earlier
 
-你即使被黑客掉，都被拿走了，拿枪顶着拿走了，都会给你拿回来
-even though if your Hcoins were scammed and taken away, taken away at gunpoint, you will get them back
+哇塞，这几年了，都让司机传话
+Wow, it’s been years, he always have his driver deliver message to me
 
-它就是区块链，它就是中心化的好处
-It is the blockchain, and it is the benefit of centralization
+今天（一反常态），他知道时日不多
+but today (contrary to the norm), he knows that his time is running out
 
-就是你Sarah被人家给骗了，这个男朋友，是吧？
-Let’s say Sarah was cheated by someone i.e. boyfriend, right?
+打台湾，不打台湾共产党都没球戏了
+Whether to have a war with Taiwan, the CCP has already out of game
 
-Sarah这一激动，是吧？喝点酒男朋友把她手机拿走了，把币给拿走了
-Sarah is happy, right? After drink, the boyfriend took her phone and took the coins
+他就给海外的孩子留个出路
+He just wants to leave a way out for his children overseas
 
-这Sarah绝对干的出来，所以说她币多了绝对不行
-Sarah definitely would have done this, so it’s absolutely not good for her to have so many coins
+我一说东弟都知道是谁，他还真没多少钱
+When I said that, Brother Dong knows who it is, he really does not have much money
 
-被骗走了，报案了，是不是？现在我的币被某人骗走了，手机怎么回事
-She was scammed and reported it to the police, right? Now her coins were taken by someone, her phone was stollen
+他真没多少钱，他都已经(放下架子)
+He really doesn’t have much money, he has already (pocketed his dignity)
 
-不但是现在，永远都可能给你拿得回来
-Not only now, I can always get it back for you
+你看我跟海东都弄个什么什么币
+He said that look, Haidong has gotten coins
 
-因为这个区垮链牛（的地方）就是，你不可藏匿你的行踪
-Because the most extraordinary thing about this blockchain is that you can’t hide your whereabouts
+我就不能弄个十万、八万的吗？是吧？
+Why wouldn’t I get an eighty or a hundred thousand? Right?
 
-你根本没交易，咋跑你手里去了
-You didn’t make the trade at all, how would it get into your hands?
+我也不怕，就给孩子（弄点）什么的
+I’m not afraid of, just let the children get some
 
-那到你手里去了，你俩啥关系啊？
-It went to your account, what’s the relationship between you two?
+你看兄弟我这也是给你做了不少事儿，是吧？
+Look, brother, I’ve done a lot for you, haven’t I?
 
-既没交易，你俩也互不认识
-No transaction, nor know each other
+你看这种无奈，透露着他唯一的希望、信任
+Look at this helplessness, revealing his only hope and trust,
 
-你转给老班长,说你看老班长，我们都是战友嘛，人家知道
-Let say you transfer coins to the old squad leader, he is our comrade, and we know each other
+他有喜币
+which are Hcoins
 
-你找给一个什么国内的李班长、王班长，那对不起了，这根本不认识他
-But if you transfer them (Hcoins) to a squad leader Li or Wang who is located in China, then sorry, you don’t know him at all
+咱过了一会儿以后咱再说
+Let’s talk about that later after the Hcoins being listed
 
-肯定经过法律程序一定会拿回来，不用担心
-No worries, you surely will get them back after the legal process
+有种的，全世界，谁敢说你觉得喜币不行
+Who in the world dares to say Hcoin is not good
 
-所以那个战友我就发信息，要啥给啥，别跟警察斗
-That’s why I send a message to our comrades, do what they told you to, and don’t resist the police
+喜币三大法宝
+The three major values of Hcoin
 
-因为你的币永远还是你的币
-Because those are your coins and will always be your coins
+在西方世界金融机构认可
+(First), (Hcoin) is recognized by financial institutions in the Western world
 
-但是有另外的战友就很聪明，人家就是设置好的，直接就报警
-Another thing is that there are very smart comrades who have set up a direct alert
+第二，它所有的虚拟货币，所有的技术是世界上最好的
+Second, within all virtual currencies and its technology, Hcoin is the best in the world
 
-报警大家知道直接给你归零了，给你保管起来了
-Everyone knows they should bring your account to Zero after alert sounds. They (the system) will keep it for you
+第三，它所有的区块链技术，还有有中心化的负责
+Third, its blockchain technology and its centralized
 
-回头再给你，是吧？
-and give it back to you later, right?
+是保值，最安全的
+are the most valuable and the safest
 
-这个是绝对安全，这是最无价的
-This is absolutely safe, and this is the most priceless
+这个不是我说的，是吧？
+I didn’t say this one, did I?
 
-就像付政华在我们那收走几个亿港币，几亿人民币
-Just like the hundreds of millions of Hong Kong dollars and hundreds of millions of RMB that Fu Zhenghua took from us
+这不是我说的，它是个必然的现象
+It’s not me for saying that, it’s a definite phenomenon
 
-是不是？几百斤金子他不还了，多愚蠢，是吧？
-Right? Hundreds of cities of gold, you can’t get them back, how stupid, right?
+所以说七哥能几十个小时处在兴奋状态中
+That’s why I could stay in excitement for a dozen of hours for talking about that
 
-你要有这币，你收走就收走，是吧？
-But if you have the coins, they can take them if they want, right?
-
-你收走最后一定拿回来
-You’ll get them back in the end
-
-好，谢谢
-Okay, thank you
+这也是七哥几十年磨的剑
+This is the sword that I have sharpened for decades
 
 * * *
 
-Date: 11/09/2021
-原视频标题: 战友被威胁后是否能找回自己的喜币
-Whether Comrades Get Their Hcoins Back After Being Threatened
-原视频日期：2021/11/05
-原视频链接：[https://twitter.com/se1y7cblljselva/status/1457602765950050305?s=24](https://twitter.com/se1y7cblljselva/status/1457602765950050305?s=24)
-任务编号：KC242(2808)
+Date: 11/05/2021
+原视频标题: 中国人可以合法购买喜币
+Chinese People Can Legally Buy Hcoins
+原视频日期：2021/11/03
+原视频链接：
+[https://twitter.com/se1y7cblljselva/status/1456194255790039042?s=24](https://twitter.com/se1y7cblljselva/status/1456194255790039042?s=24)
+任务编号：KC243（2772）
 视频时间段 : 0:00-2:14
 英听校：洛杉矶盘古农场 – Mike Li
 翻译：洛杉矶盘古农场 – Mike Li
 翻译终校：洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
 审片：洛杉矶盘古农场 – 银龙
 发布：洛杉矶盘古农场 – 恩典
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)

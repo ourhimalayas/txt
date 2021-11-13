@@ -2,34 +2,57 @@
 ---
 
 
-## 把握好世界上前所未有的三大的机会
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1660492/)
+## 喜联储两千万美元的黄金即将送达
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660572/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月12日直播图-2.png)图片来源：GTV
+[https://gtv.org/video/id=618f3318182702508104ad59](https://gtv.org/video/id=618f3318182702508104ad59)
 
-**整理：澳雅速记小组
-编辑：Kelly**
+**郭文贵
+Miles Guo**
 
-郭先生**2021**年**11**月**12**日大直播摘要：
+你比特币不是2100万，你也没有跟黄金挂钩
+Bitcoin is not 21 million pieces, and it is not pegged to gold
 
-新中国联邦的战友，要记住，我们面临着世界上前所未有的三大的机会。
+你也不能实际支付，你也没有稳定
+It can’t actually make a pay, and it’s not stable
 
-第一：是时间和时机。 人类千年不遇的新金融时代的诞生，虚拟货币、数字货币，我们新中国联邦走在最前面，掌握全世界最核心的技术、最完美的系统。 我们的战友们拥有6亿喜币，再过11个月，战友们还有下一次认购喜币的机会。 这十一个月的时间和时机要记住，这就是全世界全人类新金融系统的诞生期！ 喜币与GTV、Gettr联系在一起，和战友的命运连在一起，前所未有。
+你也没有这个中心化的负责任，就像比特币从6万跌到3万
+It also does not have centralized responsibility, just like Bitcoin fell from 60,000 dollars to 30,000 dollars
 
-第二：共产党制造了的生化病毒、疫苗灾难，人类要面临很多死亡，它创造了一个新的国序，人类大秩序。 信仰重建、政治重建、国际社会重建，世界一切都将重组。这时候我们走在全世界最前面：冠状病毒，我们预警； 疫苗灾难，解药，我们提前讲了；我们没有打疫苗，这简直是神话中的神话！珍惜吧！
+你找谁去，从6万变成6分钱，你找谁去? 一个人你都找不着
+Who’s responsibility for that? or from 60,000 to 6 cents, who are you going to argue with? nobody
 
-第三：没有任何人相信共产主义会受到打击和彻底消灭。看六中全会和现在整个世界，唯一打痛共产党是我们，我们新中国联邦爆料革命的战友是全人类中唯一一个敢于和邪恶势力斗争的群体，未来将受到全世界的尊重和珍惜，是比大熊猫还珍贵的人类。
+今天黄金是多少钱呢？今年总共在那储备2000万美元的黄金
+How much money gold today? A total of 20 million U.S. dollars of gold has been reserved there this year
 
-千万不要错失这些机会！
+它已经在购买了，马上就要送到了，而且会拍录像给你们看
+It is already being purchased and will be delivered soon, and it will be videotaped for you to see
 
-*发布：热锅小蚂蚁*
+稳定币，稳定谁呀，它稳定了大概100多项
+Stable coin, stable who? It has been stable for more than 100 items
 
-**更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)**
+我今天只跟你说了两项
+I only told you two things today
+
+* * *
+
+Date:11/10/2021
+原视频标题: 喜联储两千万美元的黄金即将送达
+Himalaya Reserve’s 20 million US dollars of gold will be delivered soon
+原视频日期：2021/11/07
+原视频链接 [https://twitter.com/se1y7cblljselva/status/1458019642312589322?s=24](https://twitter.com/se1y7cblljselva/status/1458019642312589322?s=24)
+任务编号：KC241（2825）
+视频时间段 : 0:00-0:48
+英听校： 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片: 洛杉矶盘古农场 – 银龙
+发布:洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
