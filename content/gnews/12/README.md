@@ -2,24 +2,74 @@
 ---
 
 
-## 美国公司和投资者持续投资中共国半导体行业
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1660611/)
+## 喜联储对中共最大的威胁是什么
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660673/)
 
-#### 撰稿：彩虹
+**郭文贵
+Miles Guo**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-3-3.jpg)图片来源：Techstartup
-11月12日，《新闻极限》（Newsmax）引述《华尔街日报》报道，虽然拜登政府对国家安全有担忧，但众多美国公司及其在中共国的附属公司仍然继续投资于中共国的半导体行业。
+我说让你涨就涨
+You would jump if I said to let you (stock) jump
 
-今年7月份，现任白宫国家安全顾问杰克·苏利文（Jake Sullivan）表示，拜登政府正在“研究美国对外投资流动的影响，这些投资可能规避了出口管制的精神，或以其他方式提高我们竞争对手的技术能力，从而损害我们的国家安全”。
+我说让你降就降
+and you would drop if I said to drop
 
-但是，尽管如此，美国营利性智库荣鼎咨询(Rhodium Group)研究公司发现，在2017年到2020年的三年时间里，超过50笔涉及到中共国半导体行业的投资交易，其中包括英特尔公司（Intel），它投资了中共国公司概伦电子（Primarius Technologies Co），其他投资者包括硅谷风险投资公司光速创投（Lightspeed Venture Partners）、红杉资本（Sequoia Capital）、经纬创投（Matrix Partners）和红点投资（Redpoint Ventures），从去年年初以来，这些公司对中共国的芯片产业又进行了60多项投资。
+说到这儿的时候
+When talking about this,
 
-《华尔街日报》指出，尽管这些公司在大多数情况下没有披露投资金额，但研究表明，中共国的半导体初创企业可能已经筹集了几十亿美元。
+你知道我们喜联储对共产党最大的威胁是什么
+Do you know what is the biggest threat from our Himalaya Federal Reserve to the Chinese Communist Party (CCP)?
 
-**新闻来源**
+还真不是你想象的
+It’s really not what you imagined
 
-[US Firms Investing in Chinese Chip Makers Despite Security Concerns](https://www.newsmax.com/newsfront/us-firms-investment-china-semiconductors/2021/11/12/id/1044445/)
+它的钱能出来 它害怕
+They (the CCP) should be feared because they could lose money
+
+我给你控制就完了嘛
+All they (the CCP) need to do is control Himalaya Federal Reserve. That’s it
+
+它相信自己能控制得了
+They (the CCP) believes they can control it (Himalaya Federal Reserve)
+
+你出不去
+The money can’t go anywhere
+
+对它最大的打击是我们在外边的权力
+The biggest threat to them is our authority and power overseas
+
+就是你不可能渗透到喜联储（让他）成为你代言人
+and the CCP cannot influence the Himalaya Federal Reserve making it become their spokesperson
+
+帮助你收集西方的金融技术和跟你一起作恶
+helping them collect western financial technology, and to cause trouble with them
+
+是构造了这一个所谓西方的数字货币时代到来的话语权
+It constitutes the right to speak in this so-called Western digital currency era
+
+因为我们，它做不到
+They cannot do it because of us
+
+这才是它最大的担心
+This is their biggest worry
+
+Date: 11/09/2021
+原视频标题: 喜联储对中共最大的威胁是什么
+What is the biggest threat to the CCP from the Himalaya Federal Reserve?
+原视频日期：2021/11/07
+原视频链接: [https://twitter.com/se1y7cblljselva/status/1458020644696649728?s=24](https://twitter.com/se1y7cblljselva/status/1458020644696649728?s=24)
+任务编号：KC245（2823）
+视频时间段 : 0:00-0:54
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 小战蚁
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,134 +2,128 @@
 ---
 
 
-## 中国人可以合法购买喜币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660642/)
+## 喜联储的所有权是新中国联邦人的财产
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660694/)
 
 **郭文贵
 Miles Guo**
 
-在全世界，中国政府说，不允许任何中国人去买喜币
-The Chinese government has announced the world that any Chinese people would not allowed to buy Hcoin
+喜币和喜联储所有的未来
+The future of HCoin and Himalaya Reserve
 
-包括Coinbase，所有人都停止了
-All platforms including Coinbase have stopped Chinese users
+它的拥有权是新中国联邦人千秋万代的财产
+and its ownership will be the property of the New Federal State of China for thousands of generations
 
-甚至未来中国政府会发出,所有的华人面孔
-Even in the future, the Chinese government will issue that all Chinese faces,
+谁加入新中国联邦现在，谁都有资格分
+Whoever joins the New Federal State of China is now eligible for a share
 
-不管哪国护照都不能买（的禁令）
-regardless of what country their passport is
+一定会有的，我承诺
+You will have the shares, I promise
 
-我可以告诉大家，今天没有人说出来
-I can tell you that there is no one has said this today
+只是多少咱要根据法律，根据未来的比例来分
+Its just when comes to how many, we have to distribute it according to the law and based on the future ratio
 
-喜联储最大的价值，它就是接受中国人买
-The greatest value of the Himalaya Exchange is that it accepts Chinese people to buy
+然后喜币真正的价格，就是刚才说的这几个条件成熟后
+它是真正的价格
+Then, HCoin reflecting its real price will be after those couple of conditions mentioned earlier mature
 
-而且是合法的买
-It is legal to buy
+到那个时候交易量就会放开了
+By that time, its trading volume will expand
 
-而且能让世界所有金融机构承认，中国人买是合法的
-and it can be recognized by all financial institutions in the world that it is legal for Chinese people to buy
+现在交易量还没有那么大，没人卖关键是
+The current trading volume is not so large, but the key point is that no one is selling it right now
 
-因为我们会让你知道，共产党的政权是不合法的
-Because we will show you that the communist regime is not legitimate
+到那时候，交易量什么时候会放开呢
+When that point is reached, the trading volume will be active
 
-你们知道这意味着什么吗？
-Do you know what this means?
+战友们，那时候就是你的期望值达到的时候
+Comrades, that will be the time that your expectations are met
 
-我们会拯救多少无辜的人
-How many innocent people we will save
+是这个0000的时候
+which is when you see the 0 0 0 0
 
-这不是钱的事情啊
-This is not about money
+你觉得我卖了，我不会太后悔
+and you won’t regret after selling
 
-就像刚才我们跟海东兄弟我们俩共同的那个军队的哥们儿亲自打电话来
-Just like that Army buddy, a close friend of Haidong and I, called in person earlier
+你像三天前谁卖的，1块钱2块钱那个（卖单）
+Like that individual who sold his HCoin for $1 or $2 a share three days ago
 
-哇塞，这几年了，都让司机传话
-Wow, it’s been years, he always have his driver deliver message to me
+那个唐平（提醒的）是很对的，我很感激
+The reminder from Tang Ping is very right, I am grateful
 
-今天（一反常态），他知道时日不多
-but today (contrary to the norm), he knows that his time is running out
+他上来赶快套了28万美元跑了那个
+That individual who came in quickly cashed out $280,000
 
-打台湾，不打台湾共产党都没球戏了
-Whether to have a war with Taiwan, the CCP has already out of game
+是吧？战友们
+right? Comrades,
 
-他就给海外的孩子留个出路
-He just wants to leave a way out for his children overseas
+他会后悔一辈子
+He will regret it for the rest of his life
 
-我一说东弟都知道是谁，他还真没多少钱
-When I said that, Brother Dong knows who it is, he really does not have much money
+终生不可能再买回来，永远不会了
+He cannot buy them back (with that price) again, never
 
-他真没多少钱，他都已经(放下架子)
-He really doesn’t have much money, he has already (pocketed his dignity)
+我希望战友，你等着自己别后悔的时候
+I hope that comrades can wait until the time that you will not regret it after selling it
 
-你看我跟海东都弄个什么什么币
-He said that look, Haidong has gotten coins
+就是最起码你卖出去，再涨几倍，我不后悔
+At the very least, the price of HCoin jumps a couple of times after I sold them, I don’t regret it.
 
-我就不能弄个十万、八万的吗？是吧？
-Why wouldn’t I get an eighty or a hundred thousand? Right?
+因为我觉得涨了这么多倍了，是吧？
+After all, it’s gone up so many folds, hasn’t it?
 
-我也不怕，就给孩子（弄点）什么的
-I’m not afraid of, just let the children get some
+这几个事（发生）之后
+After these few things (happen)
 
-你看兄弟我这也是给你做了不少事儿，是吧？
-Look, brother, I’ve done a lot for you, haven’t I?
+战友们会有一些人让出个千分之一，万分之一
+there are some people among our comrades who would sell a thousandth or a ten-thousandth of their coins in the future
 
-你看这种无奈，透露着他唯一的希望、信任
-Look at this helplessness, revealing his only hope and trust,
+然后就获得今天让出你100%（喜币）的财富的时候
+which they could get in return 100% of the coins they own now
 
-他有喜币
-which are Hcoins
+交易量会咔咔就起来
+The trading volume will skyrocket
 
-咱过了一会儿以后咱再说
-Let’s talk about that later after the Hcoins being listed
+这时候就到了明年了，明年有新的十亿币出来
+That moment would be next year when another one billion new HCoins come out
 
-有种的，全世界，谁敢说你觉得喜币不行
-Who in the world dares to say Hcoin is not good
+大概二十亿币的时候，这个交易量才能活跃起来
+It takes about two billion coins for this trading volume to skyrocket
 
-喜币三大法宝
-The three major values of Hcoin
+没有人卖，谁也不卖现在
+No one is selling it now
 
-在西方世界金融机构认可
-(First), (Hcoin) is recognized by financial institutions in the Western world
+谁一说卖就跟你急，嗷嗷叫唤
+You ask him to sell (the HCoins)? he will be angry with you, screaming
 
-第二，它所有的虚拟货币，所有的技术是世界上最好的
-Second, within all virtual currencies and its technology, Hcoin is the best in the world
+你看国内的战友，我说你上市场上卖
+There was a domestic comrade, I said they could sell it on the market
 
-第三，它所有的区块链技术，还有有中心化的负责
-Third, its blockchain technology and its centralized
+他要捐十万（喜币），我说你卖去吧
+Because they wanted to donate 100,000 Hcoins, I told them they could sell it
 
-是保值，最安全的
-are the most valuable and the safest
+七哥你不能说，我捐可以，我不要卖，你别这么说我
+“Miles, you cannot say that, I can donate but I do not want to sell”
 
-这个不是我说的，是吧？
-I didn’t say this one, did I?
+嗷嗷叫，我说不卖不卖不卖
+(He was not happy about that) screaming. I said, “alright, you are not selling it”
 
-这不是我说的，它是个必然的现象
-It’s not me for saying that, it’s a definite phenomenon
-
-所以说七哥能几十个小时处在兴奋状态中
-That’s why I could stay in excitement for a dozen of hours for talking about that
-
-这也是七哥几十年磨的剑
-This is the sword that I have sharpened for decades
+是吧，你可以捐也可以不卖
+Right, you can do whatever you want
 
 * * *
 
-Date: 11/05/2021
-原视频标题: 中国人可以合法购买喜币
-Chinese People Can Legally Buy Hcoins
+Date: 11/07/2021
+原视频标题: 喜联储的所有权是新中国联邦人的财产
+The ownership of the Himalaya Reserve is the property of the New Federal State of China
 原视频日期：2021/11/03
-原视频链接：
-[https://twitter.com/se1y7cblljselva/status/1456194255790039042?s=24](https://twitter.com/se1y7cblljselva/status/1456194255790039042?s=24)
-任务编号：KC243（2772）
-视频时间段 : 0:00-2:14
-英听校：洛杉矶盘古农场 – Mike Li
-翻译：洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
+原视频链接: [https://twitter.com/se1y7cblljselva/status/1456639452349014017?s=24](https://twitter.com/se1y7cblljselva/status/1456639452349014017?s=24)
+任务编号：2788
+视频时间段 : 0:00-1:54
+英听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校: 洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
 审片：洛杉矶盘古农场 – 银龙
 发布：洛杉矶盘古农场 – 恩典
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)

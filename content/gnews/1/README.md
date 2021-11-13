@@ -2,135 +2,38 @@
 ---
 
 
-## 喜联储的所有权是新中国联邦人的财产
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660694/)
+## 墙内要闻汇编 11月13日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1660738/)
 
-**郭文贵
-Miles Guo**
+素材：东京樱花团｜GNEWS组
+![](https://lh4.googleusercontent.com/dMFUNgrEovMIzOC3L0E4v9XAqHRqXb8L9pNLQwUeAubaxm_kjxK7Vu-PYi3-WXZPGNxvjLJrQbheo8MSLjzSBYgT1PiC0Sb3z6w66wUd2wSCBMeNH_b5fqaQ17T37lO6cOy-dCIh)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1113/20211113062414454.jpg)
+1、[**北京冬奥会发现两名外籍选手感染病毒**](https://www.aboluowang.com/2021/1113/1671179.html)
 
-喜币和喜联储所有的未来
-The future of HCoin and Himalaya Reserve
+据路透社和美联社消息，北京冬奥组委疫情防控办公室副主任黄春在周五的简报会上报告了这个消息。他说，这两名参加测试赛的外籍选手被确诊后送到酒店实施隔离。其中一人被确诊后，又发现与他有密切接触的一名运动员也感染了病毒。这两人都属无症状病例，因此获准参加训练，但他们必须留在隔离酒店，也必须单独用餐。但黄春没有提供这两人的国籍，只是说他们是同一国籍的雪橇运动员。这次运动会的测试赛从10月初开始，目前已经有1500名运动员和其它人员抵达奥运村。
 
-它的拥有权是新中国联邦人千秋万代的财产
-and its ownership will be the property of the New Federal State of China for thousands of generations
+2、[**质疑“时空伴随”极端防疫 成都三教授建议全网被删**](https://www.aboluowang.com/2021/1113/1671346.html)
 
-谁加入新中国联邦现在，谁都有资格分
-Whoever joins the New Federal State of China is now eligible for a share
+近日，四川大学华西第四医院主任医师陈芙君、四川大学华西公共卫生学院教授李佳圆和汪川联名发文，从专业的角度提出“紧急建议”，希望成都当局对“黄码+核酸必检”等疫情防控措施的科学性和必要性进行评估。文章建议成都当局，关注极端防控措施造成的，对医疗卫生资源、公众正常生活带来的负面影响。更提到应避免大数据的不当应用，使疫情防控背离精准的原则。不过目前，这份大胆而诚恳的建议书，已遭到全网删查。
 
-一定会有的，我承诺
-You will have the shares, I promise
+3、[**以国家安全的名义 “密室剧本杀”都要受监管**](https://www.aboluowang.com/2021/1113/1671138.html)
 
-只是多少咱要根据法律，根据未来的比例来分
-Its just when comes to how many, we have to distribute it according to the law and based on the future ratio
+上海文化和旅游局本周二（9日）发布了关于《上海市密室剧本杀内容备案管理规定（征求意见稿）》。公告表示，为了引导上海市剧本杀行业规范经营，保障意识形态安全，做好场所安全生产工作，市文化旅游局牵头起草了该《规定》并向社会公开征求意见。该规定强调，“密室剧本杀”的故事情节不得危害国家统一、主权或完整或煽动民族仇恨等。“剧本杀”是“谋杀之谜”的中文译名，是欧美年轻人喜欢的一种多人角色扮演的推理游戏，有一位玩家在其他人不知情下，秘密扮演凶手，而其他玩家需要通过调查和推理寻找凶手。
 
-然后喜币真正的价格，就是刚才说的这几个条件成熟后
-它是真正的价格
-Then, HCoin reflecting its real price will be after those couple of conditions mentioned earlier mature
+4、[**安徽毫州一女子欲轻生跳楼 消防员施救不慎一起坠楼**](https://www.aboluowang.com/2021/1113/1671164.html)
 
-到那个时候交易量就会放开了
-By that time, its trading volume will expand
+阿波罗网记者李雨菡报道，11月12日，安徽毫州蒙城县一女子欲跳楼轻生，消防员施救过程中，女子突然奔跑，结果消防员一把没有抱住，二人一起从四楼坠落。当日，蒙城县警方发布警情通报，该跳楼女子经抢救无效死亡，受伤的消防员正在抢救中。
 
-现在交易量还没有那么大，没人卖关键是
-The current trading volume is not so large, but the key point is that no one is selling it right now
+5、[**四川城管强抢小贩鸭子 被小贩抡铁锹暴打三十多铲**](https://www.aboluowang.com/2021/1112/1670979.html)
 
-到那时候，交易量什么时候会放开呢
-When that point is reached, the trading volume will be active
+阿波罗网报道，11月12日，四川南充城管抢夺小贩货物，被小贩抡铁锹追赶暴打三十多铲，时长1分多钟，打得城管晕头转向。推友“峨嵋刺”评论：“倘若我们对罪恶报以沉默，它们就会把罪恶变为常态。倘若我们对谎言不予揭露，它们就会把谎言变为真理。倘若我们对苦难加以歌颂，它们就会把苦难变为天意。倘若我们对腐败放纵容忍，它们就会把腐败变为道义。坚决反击！坚决抵抗！”
 
-战友们，那时候就是你的期望值达到的时候
-Comrades, that will be the time that your expectations are met
+6、[**投资450万做黄金生意 却收到180万黄铜**](https://www.aboluowang.com/2021/1112/1670987.html)
 
-是这个0000的时候
-which is when you see the 0 0 0 0
+河南郑州张先生和朋友筹了450万做黄金投资，近日手头紧张想要取回本金，结果投资公司却说没有现金，并从保险柜先拿出180万黄金进行抵账。张先生拿着这些“黄金”去检测，却被告知是黄铜，含金量极低，仅有0.09%。张先生的朋友表示，当时签合同的时候，原本说好每天以合同款的0.5%返利，也就是100万每天能分5000块钱，然后他们确实也拿到了3天的钱。
 
-你觉得我卖了，我不会太后悔
-and you won’t regret after selling
-
-你像三天前谁卖的，1块钱2块钱那个（卖单）
-Like that individual who sold his HCoin for $1 or $2 a share three days ago
-
-那个唐平（提醒的）是很对的，我很感激
-The reminder from Tang Ping is very right, I am grateful
-
-他上来赶快套了28万美元跑了那个
-That individual who came in quickly cashed out $280,000
-
-是吧？战友们
-right? Comrades,
-
-他会后悔一辈子
-He will regret it for the rest of his life
-
-终生不可能再买回来，永远不会了
-He cannot buy them back (with that price) again, never
-
-我希望战友，你等着自己别后悔的时候
-I hope that comrades can wait until the time that you will not regret it after selling it
-
-就是最起码你卖出去，再涨几倍，我不后悔
-At the very least, the price of HCoin jumps a couple of times after I sold them, I don’t regret it.
-
-因为我觉得涨了这么多倍了，是吧？
-After all, it’s gone up so many folds, hasn’t it?
-
-这几个事（发生）之后
-After these few things (happen)
-
-战友们会有一些人让出个千分之一，万分之一
-there are some people among our comrades who would sell a thousandth or a ten-thousandth of their coins in the future
-
-然后就获得今天让出你100%（喜币）的财富的时候
-which they could get in return 100% of the coins they own now
-
-交易量会咔咔就起来
-The trading volume will skyrocket
-
-这时候就到了明年了，明年有新的十亿币出来
-That moment would be next year when another one billion new HCoins come out
-
-大概二十亿币的时候，这个交易量才能活跃起来
-It takes about two billion coins for this trading volume to skyrocket
-
-没有人卖，谁也不卖现在
-No one is selling it now
-
-谁一说卖就跟你急，嗷嗷叫唤
-You ask him to sell (the HCoins)? he will be angry with you, screaming
-
-你看国内的战友，我说你上市场上卖
-There was a domestic comrade, I said they could sell it on the market
-
-他要捐十万（喜币），我说你卖去吧
-Because they wanted to donate 100,000 Hcoins, I told them they could sell it
-
-七哥你不能说，我捐可以，我不要卖，你别这么说我
-“Miles, you cannot say that, I can donate but I do not want to sell”
-
-嗷嗷叫，我说不卖不卖不卖
-(He was not happy about that) screaming. I said, “alright, you are not selling it”
-
-是吧，你可以捐也可以不卖
-Right, you can do whatever you want
-
-* * *
-
-Date: 11/07/2021
-原视频标题: 喜联储的所有权是新中国联邦人的财产
-The ownership of the Himalaya Reserve is the property of the New Federal State of China
-原视频日期：2021/11/03
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1456639452349014017?s=24](https://twitter.com/se1y7cblljselva/status/1456639452349014017?s=24)
-任务编号：2788
-视频时间段 : 0:00-1:54
-英听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校: 洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,62 +2,147 @@
 ---
 
 
-## 中共国破旧模式重温日本危机和西班牙房地产泡沫的老路
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1660543/)
+## 战友被威胁后是否能找回自己的喜币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660620/)
 
-**编译：文羽**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip29.png)中国山西省太原市。 一个女人和一个孩子走过在建的建筑物。 阿拉米的照片
-中共国经济放缓速度快于预期。一个破碎的经济模式导致北京寻求改变，这对房地产和能源市场产生了显着影响，再加上其他更多的结构性因素，如人口、生产力……使经济处于相对较低的脆弱的位置。2021 年和 2022 年中共国经济预测，一连串下调现已成为现实。
+[https://gtv.org/video/id=618f40e3182702508104b1dc](https://gtv.org/video/id=618f40e3182702508104b1dc)
 
-从长远来看，寻求更可持续和更平衡的经济将具有重大的短期增长成本。迄今为止，最明显的影响发生在中共国房地产市场，该市场正陷入一场让国家和世界经济悬而未决​​的危机。很难确切地知道中共国的经济的真正弱点以及未来会发生什么。中共国的危机非常特殊，它是可控性的爆炸，但同时它与西班牙或美国在2008年遭受的危机或与日本在80年代后期遭受的危机有相似之处。
+**郭文贵
+Miles Guo**
 
-房地产经济，包括建筑、房地产服务相关行业，一直是近年来中共国经济增长的引擎，也是家庭的主要投资。北京最近推出了更严格的金融规则，以开始改变经济模式，该行业的公司必须遵守这些规则。正如几位分析师所描述的那样，这些规则已经开始引发中共国房地产的受控爆炸。这场危机的范围是什么？
+谢谢七哥
+Thank you, Brother Miles
 
-中共国正面临经济放缓，可能演变成危机，这与 2007 年的西班牙或美国在住房和开发商部门的债务方面，以及日本在 2007 年末的放缓有一定相似之处。 80 年代如人口因素、各种泡沫等因素，看看这些经济体中发生的事情，人们可以尝试预测未来几年中共国会发生什么。
+有战友问，墙内战友如果被威胁的情况下把喜币转走的话，是否可以追回
+A comrade asked if it is possible to recover the HCoins if they were transferred under threat in China mainland
 
-房地产的两种场景
+这个问题
+This question
 
-牛津经济研究院的分析师通过两种场景来计算房地产危机可能对中共国 GDP 和世界经济产生的影响。首先，房地产市场的衰退就像六年前发生的那样令人恐慌。第二，泡沫破灭，就像2008年西班牙和美国发生的那样，对中共国和全球经济产生重大影响。
+100%可以追回
+It can be 100% recovered
 
-牛津经济研究院的分析师 路易斯·库吉斯(Louis Kujis) 和 汤姆·唯(Tommy We) 认为，如果房地产危机遵循 2014-2015 年中共国房地产衰退期间的模式，中共国的 GDP 增长将在 2022 年底至 2023 年初放缓至 3%，与基准情景中的 5.3% 相比。另一方面，全球 GDP 增长将下降 0.7 个百分点，全球金属价格将大幅下跌。对中共国有特别影响的国家和原材料出口商将受到特别影响。
+我再重申一遍
+Let me reiterate
 
-然而，这些专家处理另一种更危险的情况，但也不太可能。 “如果中共国的住宅投资像 2000 年代西班牙和美国那样崩溃，那么 2023 年第一季度 GDP 增长将放缓至微不足道的 1%，全球 GDP 增长将比我们的基线低 1.6 个百分点。随着中共国原材料进口下降，工业金属价格将暴跌。与第一种情况一样，受影响最大的国家将是对中共国出口尤为重要的国家，例如德国和其他原材料出口国” .
+你们要看，一定要看白皮书，一定要看这些
+You have to read, you have to read the white paper
 
-然而，还有另一种更严重的情况。如果房地产危机最终看起来像 2007 年和 2008 年在西班牙的危机怎么办？ “2023 年第一季度中共国 GDP 增长将放缓至 1%，比基线情况低 4.3 个百分点。对全球增长的影响也将大得多：2022 年底和 2023 年初降低 1.6 个百分点”。
+我们所有说的话不代表喜联储，我们所有说的话不代表喜币
+Everything we say does not represent the Himalaya Exchange and everything we say does not represent the Hcoin
 
-中共国将大幅减少与建筑业相关的所有金属，如铁、铝、钢等原材料的进口和生产，而对家庭财富的影响也将影响消费和进口，从而动摇全球经济增长和降低原材料价格。此外，中共国股市将开始出现新情景，通过金融渠道加剧跌幅。
+而且大家也知道，喜币和GTV没有半毛钱关系
+And as you all know, Hcoin has nothing to do with GTV
 
-牛津经济研究院指出，“所有这些都将导致从中共国进口的原材料停滞不前，与基线情况相比，2022 年下半年世界金属价格将下降 55%，而铁价将上涨 73%。与第一种情况一样，受影响最严重的国家将是那些对中共国的出口在经济上具有重要意义的国家和原材料出口国”。
+战友们只是喜币的拥有者
+Comrades are only the owners of Hcoins
 
-类似于日本…
+大部分投资者到目前为止
+Most of the investors so far
 
-另一方面，花旗或汇丰银行前基金经理理查德库克森在彭博专栏中指出，中共国的危机与几十年前在日本孵化的危机有几个相似之处。人口统计数据也遵循类似的趋势，如大规模老龄化。另一方面，最初形成良性循环的房地产行业和战略公司的信贷最终导致恶性循环，就像日本一样：需要更多信贷才能生存的非生产性公司。
+是吧?我们不代表喜联储
+Right? we can’t speak for the Himalaya Exchange
 
-“中共国目前的问题与日本非常相似，甚至在某些方面比日本更糟。人口问题就是一个例子。有很多关于人口老龄化对日本潜在增长的破坏性影响的讨论。日本的就业在中期开始下降。 1990年代，2008年整体人口开始萎缩。中共国的劳动年龄人口在10年前就已经达到顶峰，整体人口可能已经在萎缩。日本的潜在的人口问题是泡沫经济破灭之后的重大问题；而在中共国，比日本国更加严重”库克森说。
+但是你们一定要记住，我们是（喜联储的）结构设计师，我们是创意的发起人
+But you must remember that we are the ( Himalaya Exchange’s) structure designers, the originators of the idea
 
-… 差异
+我告诉大家，喜币最牛的就是
+Let me tell you, the most extraordinary about Hcoin is that
 
-然而，中共国总有其特殊性，这也与日本几十年前经历的房地产热潮产生了一些差异。彭博经济研究的分析师增岛由纪表示，1980 年代日本的房地产价格增长远远超过 GDP 增长，而过去 10 年中共国的情况正好相反。这位专家指出，在 1980 年至 1990 年期间，日本的房地产价格相对于 GDP 增加了一倍多，当时价格达到顶峰。在中共国，由于房价放缓，这种关系在过去十年中并不存在。
+你即使被黑客掉，都被拿走了，拿枪顶着拿走了，都会给你拿回来
+even though if your Hcoins were scammed and taken away, taken away at gunpoint, you will get them back
 
-这表明，中共国对房地产的需求不断增长，得到了其他经济领域生产率提高的支撑。但现在是关键时刻：中共国经济增长正在放缓，并且在未来十年内似乎将继续放缓，因此增岛提出重要的是控制房价以避免价格与 GDP 的比率上升。
+它就是区块链，它就是中心化的好处
+It is the blockchain, and it is the benefit of centralization
 
-还有一些加重的因素。现在，以债务为基础的模式已经变得不可持续，当局试图强行改变，相信通过这种方式，他们可以控制经济中不同泡沫，如住房、股票、信贷等金融产品的爆炸。彭博专栏作家表示，中共国现在正处于那个时刻，企业已经开始去杠杆化。
+就是你Sarah被人家给骗了，这个男朋友，是吧？
+Let’s say Sarah was cheated by someone i.e. boyfriend, right?
 
-“由于企业被迫储蓄，他们的经济将陷入困境，可能比日本的经济更困难，而不仅仅是因为人口原因。一方面，房地产对中共国的增长（与日本相比）更为重要。地方政府依靠出售土地来支付他们的开支，并且大量贷款已投入建设，”库克森说。该部门的崩溃可能会影响银行的资产负债表和向其他经济部门提供信贷。
+Sarah这一激动，是吧？喝点酒男朋友把她手机拿走了，把币给拿走了
+Sarah is happy, right? After drink, the boyfriend took her phone and took the coins
 
-尽管中共国的危机与日本或西班牙的危机相似，但在这个独裁国家，当局政府拥有控制爆炸的工具，但是导火线已经点燃，中共经济支撑不了太长时间。
+这Sarah绝对干的出来，所以说她币多了绝对不行
+Sarah definitely would have done this, so it’s absolutely not good for her to have so many coins
 
-**新闻来源**：[eleconomista.es] [El *modelo roto* de China revive los fantasmas de la crisis de Japón y de la burbuja inmobiliaria de España](https://www.eleconomista.es/economia/noticias/11471422/11/21/El-modelo-roto-de-China-revive-los-fantasmas-de-la-crisis-de-Japon-y-de-la-burbuja-inmobiliaria-de-Espana.html)
+被骗走了，报案了，是不是？现在我的币被某人骗走了，手机怎么回事
+She was scammed and reported it to the police, right? Now her coins were taken by someone, her phone was stollen
+
+不但是现在，永远都可能给你拿得回来
+Not only now, I can always get it back for you
+
+因为这个区垮链牛（的地方）就是，你不可藏匿你的行踪
+Because the most extraordinary thing about this blockchain is that you can’t hide your whereabouts
+
+你根本没交易，咋跑你手里去了
+You didn’t make the trade at all, how would it get into your hands?
+
+那到你手里去了，你俩啥关系啊？
+It went to your account, what’s the relationship between you two?
+
+既没交易，你俩也互不认识
+No transaction, nor know each other
+
+你转给老班长,说你看老班长，我们都是战友嘛，人家知道
+Let say you transfer coins to the old squad leader, he is our comrade, and we know each other
+
+你找给一个什么国内的李班长、王班长，那对不起了，这根本不认识他
+But if you transfer them (Hcoins) to a squad leader Li or Wang who is located in China, then sorry, you don’t know him at all
+
+肯定经过法律程序一定会拿回来，不用担心
+No worries, you surely will get them back after the legal process
+
+所以那个战友我就发信息，要啥给啥，别跟警察斗
+That’s why I send a message to our comrades, do what they told you to, and don’t resist the police
+
+因为你的币永远还是你的币
+Because those are your coins and will always be your coins
+
+但是有另外的战友就很聪明，人家就是设置好的，直接就报警
+Another thing is that there are very smart comrades who have set up a direct alert
+
+报警大家知道直接给你归零了，给你保管起来了
+Everyone knows they should bring your account to Zero after alert sounds. They (the system) will keep it for you
+
+回头再给你，是吧？
+and give it back to you later, right?
+
+这个是绝对安全，这是最无价的
+This is absolutely safe, and this is the most priceless
+
+就像付政华在我们那收走几个亿港币，几亿人民币
+Just like the hundreds of millions of Hong Kong dollars and hundreds of millions of RMB that Fu Zhenghua took from us
+
+是不是？几百斤金子他不还了，多愚蠢，是吧？
+Right? Hundreds of cities of gold, you can’t get them back, how stupid, right?
+
+你要有这币，你收走就收走，是吧？
+But if you have the coins, they can take them if they want, right?
+
+你收走最后一定拿回来
+You’ll get them back in the end
+
+好，谢谢
+Okay, thank you
 
 * * *
 
-***审核：蚂蚁兄弟
-校对：阿伯塔
-发布：信心满满***
+Date: 11/09/2021
+原视频标题: 战友被威胁后是否能找回自己的喜币
+Whether Comrades Get Their Hcoins Back After Being Threatened
+原视频日期：2021/11/05
+原视频链接：[https://twitter.com/se1y7cblljselva/status/1457602765950050305?s=24](https://twitter.com/se1y7cblljselva/status/1457602765950050305?s=24)
+任务编号：KC242(2808)
+视频时间段 : 0:00-2:14
+英听校：洛杉矶盘古农场 – Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

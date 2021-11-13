@@ -2,81 +2,43 @@
 ---
 
 
-## 中共国11个第一的其中三个第一
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660654/)
+## 抗议大流行法案与强制疫苗，周六墨尔本市民大规模游行
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1660730/)
 
-**郭文贵
-Miles Guo**
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-刚刚做出的统计报告，我们中国获得了11个第一
-The Communist Party has just made a statistical report that China have won 11 firsts
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/5823-12.jpg)图片来源：Herald Sun
 
-11个第一的第一个第一是什么呢？中国癌症人数官方数字450万，去年
-What is the first one of the 11 firsts? last year the official numbers of cancer in China are 4.5 million
 
-实际官方人数1100万，一个所谓14亿人的中国
-The country with a so-called 1.4 billion Chinese people, the actual official cancer number of China is 11 million
+#### 翻译：Sara9
+编辑：文泓
 
-大家记住我说的话，说到这我背上都发凉，我不知道你们啥感觉，
-Everyone remember what I said, I feel cold all over my back when I say this, I don’t know how you feel
+周六，数千名示威者聚集在墨尔本中心城区，抗议强制疫苗和维多利亚州拟通过的新大流行病法律。自从上月首席卫生官对集会取消限制后，周末定期集会抗议的人群正在稳步增长。
 
-一个国家1100万癌症，你想想这数字是多鲜活的生命，
-there are 11 million people suffer from cancer in a country, think about what a vivid lives these numbers are
+前自由党议员、澳大利亚联合党领袖克雷格·凯利预计是本次抗议活动中的演说者之一。凯利先生曾因其（在社交媒体上）围绕新冠病毒和疫苗的观点而受到主流媒体告诫。
 
-哪个癌症的背后不是带着一个家庭两个家庭, 还要耗尽他所有的积蓄
-Behind every cancer patient is a family, two families, and all their savings.
+当演讲者高呼：“解雇丹·安德鲁斯（州长）”时，抗议人群保持了和平。有记者也听到人群中有人喊出了对安德鲁斯威胁的口号，一名男子游行时扛着一个临时的绞架，上面挂着三个绞索。
 
-而且共产党的癌症药是美国的70倍到100倍啊
-And the Communist Party’s cancer drugs are 70 to 100 times more expensive than that of the United States
+周六早上在开始游行之前，一位发言者对人群说：“我们在这为自己站起来，这可能是我们最后的机会。所以让我们清晰、大声地发出我们的声音。”
 
-说中国房地产，海外违约创历史新高，现在债务违约到280亿元已经过期的，
-Speaking of Chinese real estate, overseas defaults have reached a record high, with $28 billion of debt now in default
+各行各业都有人参加游行。还有带孩子的家庭，也有老人和小孩，他们从州立图书馆穿过城市，涌向斯旺斯顿街，并在前往议会大厦的路上堵住了有轨电车。
 
-我们要面对着一个马上在30天内，一个2700亿到6000亿美元的间接和融资和票据贷款
-We have to face an indirect financing and bill loan of US$270 billion to US$600 billion within 30 days
+在今天的抗议活动之前，上周六已有超过3000人在中央商务区的大街上游行，要求州长安德鲁斯辞职。
 
-历史第一，另外一个，据香港所谓的政府的某局
-It’s the first in history, the other one, according to a so-called certain government bureau in Hong Kong
+安德鲁斯力推新的大流行病法律将取代12月15日到期的紧急状态权力，赋予州长和卫生部长宣布大流行病和发布公共卫生命令的权力并削减首席卫生官的作用。
 
-我不要说哪个人了，据统计，过去3个月，香港外籍人士撤离
-I don’t want to name anyone, according to statistics in the past 3 months, foreigners in Hong Kong have evacuated
+2021年公共卫生和福利修正案（大流行病管理）法案上个月在下议院获得通过，政府现在希望它能在下周的上议院获得三名交叉议员的支持通过。
 
-从过去的每月的7000人，突然增加到11000人
-from the past 7,000 people per month, it suddenly increased to 11,000 people
+原文链接：[Melbourne protests: Thousands rally in the CBD to denounce new pandemic laws, vaccine mandate (theage.com.au)](https://www.theage.com.au/national/victoria/thousands-take-to-melbourne-s-cbd-to-protest-new-pandemic-laws-vaccine-mandate-20211113-p598lu.html)
 
-特别是，这些大数的金融企业和高管企业这个全部移到了英国、新加坡和日本
-In particular, these large numbers of financial companies and executives have all moved to the UK, Singapore and Japan
+**发布：文泓**
 
-大量的外汇移出香港到日本，新加坡、英国
-A large amount of foreign exchange was moved out of Hong Kong to Japan, Singapore, and the United Kingdom
-
-三地区的房地产指数涨了22%到27%
-The real estate index in these three regions rose 22% to 27%
-
-根据此现象结局下去，香港将在6个月以内
-Based on this trend going forward, Hong Kong will be within 6 months
-
-金融高管和外资的撤离，将导致香港真正的成为金融空港
-The withdrawal of financial executives and foreign capital will cause Hong Kong to truly become a financial empty port
-
-* * *
-
-Date:11/11/2021
-原视频标题: 中共国11个第一的其中三个第一
-Three of the 11 firsts of the Communist China
-原视频日期：2021/11/10
-原视频链接 [https://twitter.com/se1y7cblljselva/status/1458774264736550914?s=24](https://twitter.com/se1y7cblljselva/status/1458774264736550914?s=24)
-任务编号：KC244（2844）
-视频时间段 : 0:00-2:14
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – 天涯行
-字幕+视频制作：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

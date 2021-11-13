@@ -2,84 +2,81 @@
 ---
 
 
-## 视频| 青蒿素有潜力用于各类癌症的治疗和辅助治疗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1660597/)
+## 中共国11个第一的其中三个第一
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660654/)
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+**郭文贵
+Miles Guo**
 
-制作：香草山视频部
+刚刚做出的统计报告，我们中国获得了11个第一
+The Communist Party has just made a statistical report that China have won 11 firsts
 
+11个第一的第一个第一是什么呢？中国癌症人数官方数字450万，去年
+What is the first one of the 11 firsts? last year the official numbers of cancer in China are 4.5 million
 
+实际官方人数1100万，一个所谓14亿人的中国
+The country with a so-called 1.4 billion Chinese people, the actual official cancer number of China is 11 million
 
-有战友问，青蒿素是所有的癌症都治呢，还是针对某一类某一种癌症呢， Eglise医生
+大家记住我说的话，说到这我背上都发凉，我不知道你们啥感觉，
+Everyone remember what I said, I feel cold all over my back when I say this, I don’t know how you feel
 
-谢谢卡丽熙问这个问题，这个问题问的很好
+一个国家1100万癌症，你想想这数字是多鲜活的生命，
+there are 11 million people suffer from cancer in a country, think about what a vivid lives these numbers are
 
-但愿我能给予正确的答案，但是很遗憾，我没有答案
+哪个癌症的背后不是带着一个家庭两个家庭, 还要耗尽他所有的积蓄
+Behind every cancer patient is a family, two families, and all their savings.
 
-因为尽管青蒿素用于癌症辅助治疗的研究，已经有超过十年了
+而且共产党的癌症药是美国的70倍到100倍啊
+And the Communist Party’s cancer drugs are 70 to 100 times more expensive than that of the United States
 
-也有很多文献发表，但是这些研究从来都是停留在体外，细胞、最多动物
+说中国房地产，海外违约创历史新高，现在债务违约到280亿元已经过期的，
+Speaking of Chinese real estate, overseas defaults have reached a record high, with $28 billion of debt now in default
 
-很少有大规模人体实验，从来没有大规模人体实验，
+我们要面对着一个马上在30天内，一个2700亿到6000亿美元的间接和融资和票据贷款
+We have to face an indirect financing and bill loan of US$270 billion to US$600 billion within 30 days
 
-少量的很非常微量的临床案例报道，根本称不上临床实验
+历史第一，另外一个，据香港所谓的政府的某局
+It’s the first in history, the other one, according to a so-called certain government bureau in Hong Kong
 
-也就是说有意无意当中，这个青蒿素用于癌症治疗的研究，从某种意义上就一直不被重视
+我不要说哪个人了，据统计，过去3个月，香港外籍人士撤离
+I don’t want to name anyone, according to statistics in the past 3 months, foreigners in Hong Kong have evacuated
 
-故意还是……总之这个药一直不在主流研究范围内
+从过去的每月的7000人，突然增加到11000人
+from the past 7,000 people per month, it suddenly increased to 11,000 people
 
-所以得不到资金也得不到物质方面的支持，所以零零星星的报道
+特别是，这些大数的金融企业和高管企业这个全部移到了英国、新加坡和日本
+In particular, these large numbers of financial companies and executives have all moved to the UK, Singapore and Japan
 
-你能找到的资料，就是偶尔有一个细胞株是来自大肠癌
+大量的外汇移出香港到日本，新加坡、英国
+A large amount of foreign exchange was moved out of Hong Kong to Japan, Singapore, and the United Kingdom
 
-那么你可以想到，它可以治疗大肠癌
+三地区的房地产指数涨了22%到27%
+The real estate index in these three regions rose 22% to 27%
 
-这就是为什么我敢于用青蒿琥酯，来替我们的战友来做，因为他是大肠癌的转移来做
+根据此现象结局下去，香港将在6个月以内
+Based on this trend going forward, Hong Kong will be within 6 months
 
-因为他做的报道，他做的细胞株是来自于大肠癌
+金融高管和外资的撤离，将导致香港真正的成为金融空港
+The withdrawal of financial executives and foreign capital will cause Hong Kong to truly become a financial empty port
 
-至于说其它癌症，比如说今天有战友问我，他的亲属得了淋巴癌，那就完全是另外一回事
+* * *
 
-这些肿瘤来自于腺体、上皮、淋巴组织、血液系统，完全不一样，因为他们的生物行为不一样
+Date:11/11/2021
+原视频标题: 中共国11个第一的其中三个第一
+Three of the 11 firsts of the Communist China
+原视频日期：2021/11/10
+原视频链接 [https://twitter.com/se1y7cblljselva/status/1458774264736550914?s=24](https://twitter.com/se1y7cblljselva/status/1458774264736550914?s=24)
+任务编号：KC244（2844）
+视频时间段 : 0:00-2:14
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – 天涯行
+字幕+视频制作：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-肿瘤的生长特性也不一样，也就是肿瘤的特异性
-
-这个特异性决定了你的预后不一样，治疗手段必须不一样
-
-所以我还不知道世界上有任何一款治疗手段或治疗药物能将所有的癌症都可以打垮
-
-好像至今为止我还从来没有听说过，也从来不敢想像
-
-我们都知道青蒿素，寄于青蒿素极大的期望，但是这个药物物研究真的需要时间
-
-恶性肿瘤已经发展到无可救药，就是全身转移，没有其它任何治疗手段可以干预的话
-
-你完全想把自己奉献为一个实验体，一个实验动物，那是另外一回事
-
-但是每个国家，有各自的法律，你必须在法律框架下行事，但是如果有人愿意做实验
-
-你也要有人胆敢实施这样的实验，所以这里面牵涉到很多法律问题
-
-所以我知道大家心情都很沉重，很急迫 。但是事实就是这样
-
-
-
-*发稿：雪梨*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
