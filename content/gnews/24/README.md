@@ -2,32 +2,54 @@
 ---
 
 
-## 加强针疫苗让教师减员，密歇根州镇政府关闭社区学校
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1659673/)
+## 美国CDC承认：没有未接种疫苗者于康复后传播Covid的记录
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1659685/)
 
-### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5825-9.jpg)**图片来源：The Gazette**
-#### 整理报道：月映万川
-编辑：文泓
+作者：纽约香草山农场 – 四季
 
-周一，密歇根州的一个镇政府宣布关闭学校。而这是因为学校的一些员工在接种新冠疫苗加强针后出现“不良反应。”
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-萨吉诺镇社区学校在其官网上发布的信息显示，由于缺少员工，这一地区的学校自周一起关闭，其中也会影响到课后教育和育儿服务。
 
-“我们大量的员工在周末自愿接种了疫苗加强针，但是很多人都出现了不良反应，”学校的公告写到。
 
-目前联邦政府批准给已经接种了辉瑞、莫德纳和强生疫苗的成年人接种疫苗加强针。
 
-原文链接：[Michigan township closes schools due to staff having ‘negative reaction’ to COVID-19 booster shot | News | gazette.com](https://gazette.com/news/michigan-township-closes-schools-due-to-staff-having-negative-reaction-to-covid-19-booster-shot/article_3a8da6b9-1781-54e7-a947-e6904451acec.html)
 
-发布：文泓
+据网关专家11月11日消息，美国疾病预防控制中心（CDC）在回应律师的“信息自由法案披露请求（FOIA）”时承认,CDC没有任何未接种疫苗者在从中共病毒感染中康复后，复又感染，然后继续传播病毒的记录。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1407.jpeg)图片来源：[thegatewaypundit.com](https://www.thegatewaypundit.com/2021/11/cdc-admits-no-record-unvaccinated-person-spreading-covid-recovering-covid/)
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+纽约的一位律师在9月提出了一份信息自由法案请求，要求CDC提供任何记录在案的、所涉被记录者满足以下三点的个人病例文件，被记录者要满足（1）从未接种过中共病毒疫苗；（2）曾经感染过中共病毒，康复后又再次感染；（3）再次感染时将SARS CoV-2传染给另一人。
+
+疾病预防控制中心回应说，在对他们的记录进行搜索后，没有发现任何与律师的请求相关的文件。疾控中心紧急行动中心（EOC）表示，这一信息未被收集。
+
+今年早些时候发表的一项、针对中共病毒康复者T细胞反应的研究显示，自然免疫比接种疫苗能更好地提供保护，使人们免受冠状病毒的侵袭。
+
+**参考阅读：**
+
+[CDC Admits It Has No Record of an Unvaccinated Person Spreading Covid After Recovering From Covid (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/11/cdc-admits-no-record-unvaccinated-person-spreading-covid-recovering-covid/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+**编辑/校对/发稿：小鹿**
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

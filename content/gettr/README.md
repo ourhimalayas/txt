@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/13/2021 2:48 AM (UTC)`
+
+11/11/2021 Miles Guo: One of U.S. Military Industry Groups would like the New Federal State of China to join it;  It is because we strategically and accurately grasped the current situation on politics, economy, military, culture and finance; It is also the result relying on our strength and action<br/><br/><br/>11/11/2021 文贵直播：美国某军工集团希望新中国联邦加入，这是新中国联邦战略性、准确性地把握政治、经济、军事和金融时局的结果，也是我们靠实力、靠行动说话的结果<br/>
+![img](https://media.gettr.com/group26/getter/2021/11/13/02/48/4a4f04f5-bddc-346b-9208-c76f267860a2/out.jpg)
+
+---
+
+`@miles 11/13/2021 2:44 AM (UTC)`
+
+11/12/2021 Miles Guo: As a professional spy in the Third Bureau of the PLA’s General Staff Department, Neil Shen's political and economic influence in the United States was extraordinary; we, the New Federal State of China, should not forget that we were brought together by the common goal of taking down the CCP, and you will lose everything if you forget about this.<br/><br/>11/12/2021 文贵直播：作为总参三部的专业情报人员，沈南鹏在美国的政治、经济影响力非同一般；新中国联邦人不要忘记我们是因灭共的共同目标走到一起，忘记这个就会失去你拥有的一切<br/>
+![img](https://media.gettr.com/group29/getter/2021/11/13/02/44/602ba90c-483e-b5ab-31c9-044c6726a356/out.jpg)
+
+---
+
 `@miles 11/13/2021 1:22 AM (UTC)`
 
 11月12日：这是当年北京政泉公司和北京保利公司的总裁刘平签合约的照片，刘平是个好人，另外在我这两张牵着手的照片的另一个人……她曾改变了我的命运。另外一张的照片是我人生中关键的时刻在郑州的办公室……这个图中的工程会议是刘志华被抓以后的。最关键的工程会议之一…… <br/><br/>
@@ -280,20 +294,6 @@ The vaccination disaster has gradually become prominent: The patients in the ICU
 
 11/07/2021 Miles Guo: The Communist China is focused on how to deceive the Lao Baixing, diverting the public’s attention, and internal struggles. In contrast, what makes America great is that it keeps running normally regardless of its internal fights. It’s said the US military came back for another exercise after they were done with the previous one and that joint operations between the space and ground forces were conducted during the exercise in the South China Sea, with the BeiDou Navigation Satellite System being rendered useless instantly<br/><br/>11/07/2021文贵直播：中共国研究的重点是如何坑骗老百姓、转移舆论和内斗，而美国的伟大之处在于无论如何内斗都不会影响其正常运作，据说美军在南海演习杀了个回马枪，进行了空、地联动，北斗导航系统瞬间被废掉<br/>
 ![img](https://media.gettr.com/group25/getter/2021/11/09/06/21/0055774e-2591-52d6-a46f-cdd1af120517/out.jpg)
-
----
-
-`@miles 11/9/2021 1:58 AM (UTC)`
-
-11/7/2021 Miles Guo: The world has been changed by Mr. Bannon and us for three times; nothing is more important than the block of the vaccine mandate by the U.S. Fifth Circuit Court of Appeals, which was made possible by the War Room show, the people like Mr. Bannon who hasn’t and won’t get the COVID jabs, and spreading the truth about the COVID vaccines, and we have saved countless people’s lives; the Real People Real Stories interview with our fellow fighter Eglise has shocked the Americans<br/><br/><br/>11/7/2021 文贵直播：班农先生和我们三次改变了世界；战斗室促成美国联邦第五巡回法院叫停强制疫苗接种令，班农先生等人不打疫苗和传播疫苗真相无比重要，而且我们救了无数人的命；真人真事采访战友Eglise震撼了美国人<br/><br/><br/>
-![img](https://media.gettr.com/group10/getter/2021/11/09/01/58/9cb7bbf4-d645-b06d-a30d-7012cf2c3145/out.jpg)
-
----
-
-`@miles 11/8/2021 4:08 PM (UTC)`
-
-...
-![img](https://media.gettr.com/group23/origin/2021/11/08/16/6b89117c-d645-24ee-f0a1-8cfcde385805/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 
