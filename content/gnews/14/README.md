@@ -2,32 +2,20 @@
 ---
 
 
-## 有声|蓬佩奥再次强调中共是敌人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659734/)
+## 班农先生将会成为全人类的英雄！
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1659767/)
 
-配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-91.jpg)[图片来源](https://newsin.us/wp-content/uploads/2020/08/1-32.png)
+#### 撰稿：胡天
 
-11月8日，前国务卿蓬佩奥参加Martha节目时，再次强调中国共产党以及习近平不是美国的战略竞争对手，而是敌人。
+纽约时间2021年11月12日，下午7时左右，一群人正在屋外等待抓捕川普的坚定支持者、川普前首席战略顾问、新中国联邦的创始人、真正的美国之声war room主播、美国爱国者班农先生。
 
-蓬佩奥指出，近日，中共以美军航母作为演习打击的目标，是“认真的信号”。
+众所周知，班农先生一直美国极左势力的围剿下努力传播真相，对抗邪恶。他对目前最主要的反共灭共团体——爆料革命的支持更是毫无保留！郭先生说过，现在的世界，已经不是集权与民主的较量、不是左与右的博弈，而是邪恶与正义的终极之战！此一役，将决定人类的生死存亡。
 
-蓬佩奥担忧冬奥会。他指出，万国来朝将会让习内心膨胀至极点，会让台湾更加危险。
+魔鬼在垂死之前必定会疯狂反扑。战争远远还未结束，但历史会记住这个时刻，记住这位拯救人类的英雄！
 
-面对中共的威胁，蓬佩奥强调，五角大楼应该抛弃之前的陈词滥调；美国应该和盟友一起真正解决中共问题，来威慑中共；美国只有勇于保护自己利益，才会让中共收手。
+我们爱您，班农先生！新中国联邦、爆料革命的所有战友永远跟您站在一起！！
 
-文字版原文：[蓬佩奥再次强调中共是敌人](https://gnews.org/zh-hans/1653208/)
-
-音频处理：喜山必胜Maverick
-
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,22 +2,33 @@
 ---
 
 
-## 房地产压力接近临界！中共银保监会强调稳地价稳房价稳预期
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1659654/)
+## 加强针疫苗让教师减员，密歇根州镇政府关闭社区学校
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1659673/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-75.png)[图片来源](https://www.or123.net/?p=386776)
-11月12日下午，中共银保监会召开党委（扩大）会议，传达学习贯彻中共十九届六中全会精神。会议要求，要毫不松懈地防范化解金融风险，平衡好稳增长和防风险的关系，坚决守住不发生系统性金融风险底线。稳地价、稳房价、稳预期，遏制房地产金融化泡沫化倾向，健全房地产调控长效机制，促进房地产业稳定健康发展。加大不良资产处置力度，持续整治影子银行业务，加快推动高风险金融机构风险化解，严厉打击违法违规金融活动。
+### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5825-9.jpg)**图片来源：The Gazette**
+#### 整理报道：月映万川
+编辑：文泓
 
-中共房地产早已严重金融化泡沫化。当前，随着头部房企的陆续暴雷，中共自己制造的房地产金融核弹引信已经打开，爆炸已成必然。
+周一，密歇根州的一个镇政府宣布关闭学校。而这是因为学校的一些员工在接种新冠疫苗加强针后出现“不良反应。”
 
-信息来源：
+萨吉诺镇社区学校在其官网上发布的信息显示，由于缺少员工，这一地区的学校自周一起关闭，其中也会影响到课后教育和育儿服务。
 
-[银保监会：稳地价、稳房价、稳预期，遏制房地产金融化泡沫化倾向](https://news.cnstock.com/news,bwkx-202111-4781763.htm)
+“我们大量的员工在周末自愿接种了疫苗加强针，但是很多人都出现了不良反应，”学校的公告写到。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+目前联邦政府批准给已经接种了辉瑞、莫德纳和强生疫苗的成年人接种疫苗加强针。
+
+原文链接：[Michigan township closes schools due to staff having ‘negative reaction’ to COVID-19 booster shot | News | gazette.com](https://gazette.com/news/michigan-township-closes-schools-due-to-staff-having-negative-reaction-to-covid-19-booster-shot/article_3a8da6b9-1781-54e7-a947-e6904451acec.html)
+
+发布：文泓
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
