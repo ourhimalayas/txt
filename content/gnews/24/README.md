@@ -2,27 +2,141 @@
 ---
 
 
-## 墙内房地产税会对老百姓生活带来何种冲击
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1660619/)
+## 中国人可以合法购买喜币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1660642/)
 
-撰稿：两万五，爆大料
-![](https://assets.gnews.org/wp-content/uploads/2021/11/房产税.png)
-（图片来自网络）
+**郭文贵
+Miles Guo**
 
-2021年十月二十三号，第十三届全国人民代表大会常务员会第三十一次会议通过了关于授权国务院在部分地区开展房地展税改革试点工作的决定，有关负责的人表示。财政部税务总局将依照全国人大常安会的授权起草房地产税试点办法，草安按程序做好试点各项准备工作，房地产税试点真的来了。那么对于这一次房地产税试点会对老百姓的生活带来何种冲击，本文试图探讨一下。
+在全世界，中国政府说，不允许任何中国人去买喜币
+The Chinese government has announced the world that any Chinese people would not allowed to buy Hcoin
 
-首先，这一次房地产税试点办法是授权给财政部和税务总局去起草的。一般来说，我们都知道西方他讲究司法，行政，立法三权分立，分别由法院政府和议会或者国会来法持，立法权通常属于。议会而在我们国家立法属于全国人大，确切的说是全国人民代表大会及其全国人民代表大会常务委员会依法行使立法权，这一次是全国人大授权财政部和税务总局起草相关条例。
+包括Coinbase，所有人都停止了
+All platforms including Coinbase have stopped Chinese users
 
-从这两个主导的部门我们就能看出来很多信息，财政部是国务院专门负责管钱花钱的正部级的部门，税务总局是国务院负责征税的正部级部门，这两个部门可以说是。最有动力对开征房产税基金最高的部门，你让他们去起早？房地产税相关的东西那显然是动真格干了，而且这两个部门在国内没有任何其他部门有对其采取平衡的力量。
+甚至未来中国政府会发出,所有的华人面孔
+Even in the future, the Chinese government will issue that all Chinese faces,
 
-其次，推进房产税的一个重要原因就是共同富裕，那么第一批试点的城市一定是相对富裕的地方，也就是经济比较发达，人均收入比较高并且房价压力大，炒房又比较严重的地方，否则的话如果在穷地方搞试点。要是试点失败了那以后还怎么推行呢？数据显示，截至今年9月，全国平均房价前十名那是北京，深圳，上海，厦门，广州，杭州，三亚，南京，天津，珠海，那么这些城市肯定是最先征收的城市。
+不管哪国护照都不能买（的禁令）
+regardless of what country their passport is
 
-如果说房东想通过涨房租的办法转移成本，那就是房东太天真了。房租转嫁到房客身上，提高房租收入比那肯定是不现实的，因为现在能承受房租上涨的人也比以前少了，像之前有关部门整治互联网行业，还有教育培训行业。很多以前收入挺高的人也受到了一定影响，即使是现在房租不变，他们的承受能力其实也已经降低了，根本不要说房租在上涨了，其次涨房租你能涨多少呢。那上述原因就会造成这些最发达的城市地区里拥有财富最多的人抛出手中房产，因为房子越多缴的房产税就越多，几年下来一套房子就没了。最后房地产的不景气，会加速房地产产业链相关外资撤离的速度，而且很多人将面临着失业以及工资下降的问题。
+我可以告诉大家，今天没有人说出来
+I can tell you that there is no one has said this today
 
-因此，可以看出在房地产税推出后，会造成房价下跌，外资撤离的现象，各个城市土地流拍会成为常态，通过卖地来为此政府财政收入的道路会彻底封死，而最后政府肯定是通过收割私人企业家来补血，对中产阶级来说，就是税负的上涨，而底层劳动者面对不断上涨的物价会生活越来越艰苦！
+喜联储最大的价值，它就是接受中国人买
+The greatest value of the Himalaya Exchange is that it accepts Chinese people to buy
 
-(本文纯属个人观点，与Gnews无关)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
+而且是合法的买
+It is legal to buy
+
+而且能让世界所有金融机构承认，中国人买是合法的
+and it can be recognized by all financial institutions in the world that it is legal for Chinese people to buy
+
+因为我们会让你知道，共产党的政权是不合法的
+Because we will show you that the communist regime is not legitimate
+
+你们知道这意味着什么吗？
+Do you know what this means?
+
+我们会拯救多少无辜的人
+How many innocent people we will save
+
+这不是钱的事情啊
+This is not about money
+
+就像刚才我们跟海东兄弟我们俩共同的那个军队的哥们儿亲自打电话来
+Just like that Army buddy, a close friend of Haidong and I, called in person earlier
+
+哇塞，这几年了，都让司机传话
+Wow, it’s been years, he always have his driver deliver message to me
+
+今天（一反常态），他知道时日不多
+but today (contrary to the norm), he knows that his time is running out
+
+打台湾，不打台湾共产党都没球戏了
+Whether to have a war with Taiwan, the CCP has already out of game
+
+他就给海外的孩子留个出路
+He just wants to leave a way out for his children overseas
+
+我一说东弟都知道是谁，他还真没多少钱
+When I said that, Brother Dong knows who it is, he really does not have much money
+
+他真没多少钱，他都已经(放下架子)
+He really doesn’t have much money, he has already (pocketed his dignity)
+
+你看我跟海东都弄个什么什么币
+He said that look, Haidong has gotten coins
+
+我就不能弄个十万、八万的吗？是吧？
+Why wouldn’t I get an eighty or a hundred thousand? Right?
+
+我也不怕，就给孩子（弄点）什么的
+I’m not afraid of, just let the children get some
+
+你看兄弟我这也是给你做了不少事儿，是吧？
+Look, brother, I’ve done a lot for you, haven’t I?
+
+你看这种无奈，透露着他唯一的希望、信任
+Look at this helplessness, revealing his only hope and trust,
+
+他有喜币
+which are Hcoins
+
+咱过了一会儿以后咱再说
+Let’s talk about that later after the Hcoins being listed
+
+有种的，全世界，谁敢说你觉得喜币不行
+Who in the world dares to say Hcoin is not good
+
+喜币三大法宝
+The three major values of Hcoin
+
+在西方世界金融机构认可
+(First), (Hcoin) is recognized by financial institutions in the Western world
+
+第二，它所有的虚拟货币，所有的技术是世界上最好的
+Second, within all virtual currencies and its technology, Hcoin is the best in the world
+
+第三，它所有的区块链技术，还有有中心化的负责
+Third, its blockchain technology and its centralized
+
+是保值，最安全的
+are the most valuable and the safest
+
+这个不是我说的，是吧？
+I didn’t say this one, did I?
+
+这不是我说的，它是个必然的现象
+It’s not me for saying that, it’s a definite phenomenon
+
+所以说七哥能几十个小时处在兴奋状态中
+That’s why I could stay in excitement for a dozen of hours for talking about that
+
+这也是七哥几十年磨的剑
+This is the sword that I have sharpened for decades
+
+* * *
+
+Date: 11/05/2021
+原视频标题: 中国人可以合法购买喜币
+Chinese People Can Legally Buy Hcoins
+原视频日期：2021/11/03
+原视频链接：
+[https://twitter.com/se1y7cblljselva/status/1456194255790039042?s=24](https://twitter.com/se1y7cblljselva/status/1456194255790039042?s=24)
+任务编号：KC243（2772）
+视频时间段 : 0:00-2:14
+英听校：洛杉矶盘古农场 – Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
