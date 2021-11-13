@@ -2,50 +2,47 @@
 ---
 
 
-## 本周六是澳洲建筑工人完全接种的最后期限
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1660108/)
+## 爆料革命迎来新金融时代、新国际人类大秩序和世界尊重
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1660111/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/悉尼.png)图片来源：今日悉尼网
+![](https://assets.gnews.org/wp-content/uploads/2021/11/maxresdefault_副本.jpg)
+据[2021年11月12日 文贵大直播：六中全会最新信息；沈南鹏抛小米资产；恒大地产爆违约；喜交所最重要进展；新中国联邦国防建设](https://gtv.org/video/id=618e6c5fe7e770379233c262)时间点1：16：02——
 
+**郭文贵先生：**我希望战友们要记住几个大的问题，我们处在中国联邦也好，就我们所有战友要记住一个我们面临着世界上前所未有的几个大的机会，这个机会是跟时间和时机，我们几乎是人类上千年不遇的叫做金融——新金融时代的诞生就叫做虚拟货币，大家一定要记住这个词儿！而且我们是走在最前面、最核心的、技术全世界最好的、系统是全世界最完美的，而且我们现在战友们拥有了6亿个币，这6亿个币到下一个你有机会拿到币还有11个月的时间。
 
-**翻译：Lish**
-**编辑：Candy**
+这个时间你要记住，你第一次拥有的币和第二次币面世的时间，也就是整个新世界的金融系统诞生，整个人类没有，就昨天见面的摩根先生包括所有的大老板，没有任何人怀疑说还有任何机会说虚拟货币没有是不可能了。
 
-由于周六是建筑工人全面接种中共病毒疫苗的最后期限，数千人正计划走上墨尔本街头，抗议强制疫苗接种。
+虚拟货币的数字货币世界的诞生永远别忘第一个，由于时间还有给我们的这个时机，人类上千年不遇的金融的新系统的诞生，你们是最前边的，而且手里已经有币了，包括有G-Clubs、G-Fashion，你一定记住，这都和你的命运连在一起的，包括G-TV 包括盖特都跟你联在一起的——你前所未有。你可不要想，这个币连着太多了。
 
-维多利亚州的建筑工人如果想从11月13日星期六起继续在工地工作，就必须全面接种COVID-19疫苗。
+第二个，大家要记住的，我们战友拥有了前所未有的另外一个大时机，就是共产党制造了生化病毒、疫苗灾难，人类要死好多人！它创造了一个新的国际叫人类大秩序，信仰重建、政治重建、国际社会重建，你觉得联合国现在还有用吗？联合国还有用吗？还有谁在乎联合国呀？是不是啊？
 
-维多利亚州老年护理机构的工作人员的最后期限也即将到来，他们必须在11月15日（星期一）之前完全接种疫苗。
+整个一切都将重组的时候，我们走在了全世界最前面，冠状病毒我们走对了，疫苗灾难我们提前说了，解药我们提前讲了。我们又没打疫苗！这简直是神话中的神话，你珍惜吧！
 
-这项有争议的强制任务引发了暴力抗议，数以千计的商人和工会成员走上墨尔本中央商务区，集会反对强制接种和国家对流行病颁布的新法律。
+第三个机会，没有任何人相信共产主义会受到了彻底消灭和打击。你看到六中全会，你看到现在整个世界，我们看共产党是唯一一个打倒共产党的是我们，我们是人类上唯一一个敢与邪恶的势力来斗争的唯一一个群体，他未来之受尊重和影响不是钱能明白的，我们是全世界最尊重和要保养的比大熊猫还珍稀的人类，你不要说错失这个机会。
 
-维多利亚州警方表示知道周六有计划好的抗议活动，并警告他们将继续在该抗议地点执勤一整天。
+（以下暂略）
 
-一位发言人告诉澳大利亚《天空新闻》：“警方知道今天（11月13日）在墨尔本中央商务区有抗议活动。 每个人都有权合法地进行抗议，但是我们要求人们在不影响社区其他成员的情况下，以和平和尊重的方式进行抗议。维多利亚州警方将全天在该地区驻扎，以确保抗议者和整个社区的安全。”
+撰稿：喜马拉雅的肉夹馍；
 
-成千上万的人曾在9月份向CFMEU总部游行，要求工会为劳工们站出来，放出信号弹并封锁了高速公路。
+审核：喜马拉雅的馍夹肉；
 
-【备注：CFMEU 的全称Construction, Forestry, Maritime, Mining and Energy Union建筑、林业、海事、采矿和能源工会】
+校对：Maarago；
 
-据称，在瓶子和投射物被扔来扔去的过程中，一名《7News》记者被浇上了尿液。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-还有人对安德鲁斯政府的新大流行病法表示担忧。该法将赋予总理宣布大流行病的权力，并以三个月为单位延长；同时允许卫生部长前在前所未有的范围来执行有争议的公共卫生命令。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-本月早些时候，抗议者走上墨尔本街头，举着 “解雇丹尼尔 “和 “扼杀法案 “的牌子，呼吁总理辞职。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-周五，该州报告了1115个新增病例，和另外9个死亡病例，使其自去年病毒袭击澳大利亚以来的死亡总人数达到1218人。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-在整个维多利亚州，16岁及以上人口中，93.3%的已经接种了至少一剂中共病毒疫苗，86.9%的人接种了两剂。在12岁及以上人口中，91.9%的人至少接种了一剂疫苗，85.9%的人接种了两剂。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-原文链接：[Victoria Police aware of planned protests as Saturday marks vaccine deadline for construction workers | Sky News Australia](https://www.skynews.com.au/australia-news/coronavirus/victoria-police-aware-of-planned-protests-as-saturday-marks-doubledose-vaccination-deadline-for-construction-workers/news-story/9dffdac4e3ab4d34e7e872c18d8f662c)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-**发布：*****Candy***
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-更多资讯，请关注：[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

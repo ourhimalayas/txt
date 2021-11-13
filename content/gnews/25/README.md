@@ -2,32 +2,17 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月12日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1659992/)
+## 【文贵先生大直播PPT】中共六中全会公报瞎说了啥？
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1659999/)
 
-作者：香草山翻译部
+撰稿：三票先生 选票地票言票，顽童2017，待命（文晓），hans(文玄）
+PPT制作：健身健心（文阳），青山
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
+**【2021年11月12日文贵先生大直播PPT：中共六中全会公报瞎说了啥？】**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/31-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/32-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/33-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/34-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/35-1.jpg)
+* * *
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1112text-SC.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[11.12  晚GTV新闻访谈](https://gtv.org/broadcast/watch/618f14a8e7e7703792342849)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
+发稿：云起时
 
  
 
