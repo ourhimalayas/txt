@@ -2,44 +2,42 @@
 ---
 
 
-## 澳洲金融监管部门酝酿调控房市过热
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1659752/)
+## 美接种疫苗最多州的中共病毒病例激增
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1659768/)
 
-**【雅典娜快讯】紧贴时事脉搏**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/快讯-1.png)图片来源：[mpamag.com](https://www.mpamag.com/au/news/general/apra-restrictions-will-cool-market-boq/313101)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/V-6.jpg)thepulse.one
+《门道专家》发表文章，题目是，“佛蒙特州是美国接种疫苗最多的州，中共（新冠）病毒病例激增——医生指责‘得尔塔变种’，以及未接种疫苗的人。”
 
+全文如下：
 
-**翻译整理：月映万川
-编辑：守望黎明**
+佛蒙特州是美国疫苗接种最多的州，但它正在经历迄今为止最严重的中共病毒（病例的）激增。
 
-澳大利亚的金融监管部门审慎监管局（APRA）已经发出预警，提醒银行准备面对更严格的住房贷款规则。同时，APRA也暗示，他们可能会限制高风险贷款，因为这种贷款给金融系统稳定性带来的风险不断增高。
+佛蒙特州约72%的居民已接种了抗中共病毒疫苗。
 
-在监管机构酝酿出台限制措施给房市降温时，审慎监管局（APRA）在11月11日对可能使用的限制手段做出了更多的说明。所有这些手段都围绕着限制银行借贷以使房市进一步降温。
+所谓的专家将佛蒙特州中共病毒的激增归咎“得尔塔变种”和未接种疫苗的人群。
 
-随着2021年澳大利亚房产市场的持续升温，很多机构预测APRA会对市场进行干预来控制过高的房价。
+美国佛蒙特大学“拉纳医学院”（Larner College of Medicine）公共卫生与健康政策副院长简·卡尼（Jan Carney）博士对《美国广播公司》（ABC）说：“横跨美国和佛蒙特州，我们看到了高传染性‘得尔塔变种’的影响，它真的很具有传染性，几乎每个未接种疫苗的人都会感染它。”
 
-上个月，APRA提高了预审还款利息率来降低房贷中高风险贷款的比例。面对目前过快的房价上涨趋势，市场对APRA进一步加强干预的预期进一步提升。
+《美国广播公司》报道：
 
-根据文件显示，APRA已经列出了一系列可以作为控制高风险贷款的备选方案。
+根据“美国疾病控制和预防中心”（U.S. Centers for Disease Control and Prevention）的数据，在佛蒙特州，近72%的居民接受了针对中共病毒的全面疫苗接种——比任何其他州都多。同时，周二（11月9日）该州公布的数据显示，在过去的一周里，该州的中共病毒病例达到了第12高。
 
-文件预测，APRA可能会调整贷款利率变动区间。 这一利率在上个月已经从2.5%调整到了3%，但是APRA 已经暗示，这一数字会在2%-5%之间浮动。
+佛蒙特州“金融监管部”（Department of Financial Regulation）专员迈克·皮耶克（Mike Pieciak）周二（11月9日）在新闻发布会上表示，过去一周，佛蒙特州的中共病毒病例“显著”增加。
 
-在给银行的公开信中，APRA主席维恩“““““`·巴瑞思（Wayne Byres）说，在上述文件中提到的措施可以抵御系统性风险。他同时指出，银行应该随时准备开始实施这些措施，这样监管者才能随时应对潜在的风险。
+根据州的数据，截至周二（11月9日），中共病毒病例的七天平均发病率上升了42%，佛蒙特州进行的测试几乎比任何其他州都多，尽管测试在同一时期只增加了9%，全州的阳性率也增加了30%，七天平均阳性率略低于4%。州官员周二表示，过去一周新病例增加了近700例。
 
-巴瑞思先生在11月11日的计划里强调，审慎监管局（APRA）一直都是以“宏观调控”的政策来对市场进行调整的。也就是说，所有的措施都是为了控制整个金融的系统风险，而不是针对具体的银行。
+（原文完）
 
-原文链接：[Banking and APRA mulls tougher curbs to rein in housing boom](https://www.theage.com.au/business/banking-and-finance/apra-mulls-tougher-curbs-to-rein-in-housing-boom-20211111-p5985r.html)
+疫苗接种率最高，中共病毒感染数却在剧增，不去质疑疫苗的有效性，却在归咎病毒变种和未接种疫苗的人群，这类所谓的专家不是“脑注水”型，就是亲阴谋集团分子。还有，公布的数据为何不见全接种后呈阳性的病例。高调要求加强剂的加州州长，注射了加强剂疫苗后失踪了3周，没脸见人，还是在隐藏什么？白宫首席发言人全接种还测试阳性后，仍不忘阴谋集团的嘱托，要这般表示：“若是没有疫苗，我的情况会更糟。”福克斯左派主持人某某某，全接种测试阳性后，作了同样的表述。可见阴谋集团的布局是何等普遍，渗透程度何等之深。
 
-***发布：Candy***
+不过，正义的力量该收网了，这则消息能发出来本身就意味着更多的人在清醒，加上幕后大鳄之一比尔·盖茨已经公开承认疫苗没有防止传染的作用，说明疫苗阴谋即将曝光于世，爆料革命正向更高的目标挺进。
 
-**更多资讯，请关注：**
+原文链接：
 
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://www.thegatewaypundit.com/2021/11/covid-cases-surge-vermont-vaccinated-state-union-doctor-blames-delta-variant-unvaccinated-people/](https://www.thegatewaypundit.com/2021/11/covid-cases-surge-vermont-vaccinated-state-union-doctor-blames-delta-variant-unvaccinated-people/)
 
  
 

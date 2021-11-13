@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/13/2021 12:53 AM (UTC)`
+
+11月12号：<br/>曾经那些牛叉的运动员……和商人们现在都成了共产党的牺牲品……这里面的人你认识几个？我喜欢，我在韩国工地时的感觉，我喜欢曾经和那些一起和我战斗的那些单纯的工程师们……美好的回忆不是吹出来的．也不是意淫出来的，过去可以证明了一个有信仰的人…和没有信仰的人，最终的人生结果会是什么样的不同！
+![img](https://media.gettr.com/group32/getter/2021/11/13/00/53/0a48afc2-6895-eb59-adaa-86f22cb7319e/fbf8e567a9567395b13d14e41485b6a9.jpg)
+
+---
+
+`@miles 11/13/2021 12:43 AM (UTC)`
+
+10月12号：2002年的文贵98公斤，体重．比猪头还猪头……你们知道照片里的我．在干什么吗？
+![img](https://media.gettr.com/group5/getter/2021/11/13/00/43/3813716e-817d-8acb-c620-ae4b0717bc7c/6bfa2f8c304c02ff3763276401a2d13f.jpg)
+
+---
+
 `@miles 11/12/2021 11:52 PM (UTC)`
 
 11/12/2021 Miles Guo: Part of the funding for the building of the defense of the New Federal State of China (NFSC) must come from our fellow fighters; we will ask mercenaries from the US, UK, and Japan to train the future generations of the NFSC, and we will build our own naval, air and space forces; we will release the standards for our military recruitment and training in 3 months<br/><br/>11/12/2021 文贵直播：新中国联邦国防建设的部分资金必须来自战友们；我们将请美英日等国的雇佣军来训练新中国联邦的后代，并建立我们自己的海军、空军和空间部队；我们将在3个月内公布招兵和军训的标准<br/>
@@ -280,20 +294,6 @@ The vaccination disaster has gradually become prominent: The patients in the ICU
 
 11月8号：七哥扎真真了……
 ![img](https://media.gettr.com/group30/getter/2021/11/08/15/41/3db685f9-2104-dc98-dbe7-5dd538d15bce/out.jpg)
-
----
-
-`@miles 11/8/2021 1:32 PM (UTC)`
-
-11月吧：尊敬的战友们好，你们健身了吗？你们传播CCP病毒！香港危机和疫苗解药的真相了吗？一切都已经开始！
-![img](https://media.gettr.com/group46/getter/2021/11/08/13/32/4c6c9b48-7bc8-b6d8-1bbe-b5f43e27ef83/out.jpg)
-
----
-
-`@miles 11/8/2021 1:11 PM (UTC)`
-
-泽连科医生：中共病毒人为制造用来维持全球恐慌的生物武器。任何能够治疗COVID-19和威胁到恐惧机制的东西都被边缘化、压制和诋毁，任何反对政府说法的人都会被封杀。它们的全部意义在于利用恐惧促使70亿人去接受注射毒疫苗。<br/><br/>Dr. Zelenko: COVID-19 was artificially made bioweapon to maintain global fear. Anything that could treat COVID-19 and threaten the mechanism of fear was marginalized, suppressed and vilified,  and all people against the government's narrative were deplatformed. The whole point of them was to scare 7 billion people into taking a poison death shot.<br/>
-![img](https://media.gettr.com/group40/getter/2021/11/08/13/11/425b19c7-2ba9-4815-3a71-d5271d735976/out.jpg)
 
 ---
 

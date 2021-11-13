@@ -2,53 +2,34 @@
 ---
 
 
-## 美国CDC承认：没有未接种疫苗者于康复后传播Covid的记录
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1659685/)
+## 有声|满足三个条件，才能发挥喜联储真正价值
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659711/)
 
-作者：纽约香草山农场 – 四季
+配音：香草山美食部 – 玫瑰园
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+文贵先生在11月7日直播中提到，只有以下三个时刻到来之时，喜联储的价值才能真正得以实现。
 
+第一，喜马拉雅支付系统全面上线
 
+第二，主权机构加入喜马拉雅交易所
 
+第三，喜联储得到各种执照
 
+文贵先生鼓励所有战友，八仙过海各显神通，推广喜支付。所有G Clubs会员将自动拥有喜支付的代理权。具体的代理章程和合同将会在两个月内确定，并且在全球范围内实施。文贵先生在11月9日盖特直播中，再次强调这三个条件的重要性，希望战友们能够坐稳。
 
-据网关专家11月11日消息，美国疾病预防控制中心（CDC）在回应律师的“信息自由法案披露请求（FOIA）”时承认,CDC没有任何未接种疫苗者在从中共病毒感染中康复后，复又感染，然后继续传播病毒的记录。
+文字版原文：[满足三个条件，才能发挥喜联储真正价值](https://gnews.org/zh-hans/1653303/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1407.jpeg)图片来源：[thegatewaypundit.com](https://www.thegatewaypundit.com/2021/11/cdc-admits-no-record-unvaccinated-person-spreading-covid-recovering-covid/)
+音频处理：喜山必胜Maverick
 
-纽约的一位律师在9月提出了一份信息自由法案请求，要求CDC提供任何记录在案的、所涉被记录者满足以下三点的个人病例文件，被记录者要满足（1）从未接种过中共病毒疫苗；（2）曾经感染过中共病毒，康复后又再次感染；（3）再次感染时将SARS CoV-2传染给另一人。
-
-疾病预防控制中心回应说，在对他们的记录进行搜索后，没有发现任何与律师的请求相关的文件。疾控中心紧急行动中心（EOC）表示，这一信息未被收集。
-
-今年早些时候发表的一项、针对中共病毒康复者T细胞反应的研究显示，自然免疫比接种疫苗能更好地提供保护，使人们免受冠状病毒的侵袭。
-
-**参考阅读：**
-
-[CDC Admits It Has No Record of an Unvaccinated Person Spreading Covid After Recovering From Covid (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/11/cdc-admits-no-record-unvaccinated-person-spreading-covid-recovering-covid/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-**编辑/校对/发稿：小鹿**
-
-
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 **更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  
