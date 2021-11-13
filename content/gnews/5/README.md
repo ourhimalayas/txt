@@ -2,29 +2,19 @@
 ---
 
 
-## 有声|布林肯：若中共攻台，美国和盟友将“采取行动”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1661206/)
+## 荷兰启动为期三周的部分封锁
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1661315/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-11月10日，美国国务卿布林肯在一个论坛上被问及台湾问题时表示，如果中共使用武力改变台湾现状，美国及其盟友将采取“行动”。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11132.jpg)图片来自Times Higher Education 
+11 月 12 日 – 荷兰首相马克·吕特宣布从周六开始实施为期三周的部分封锁。实施的措施包括晚上 8 点关闭酒吧和餐馆，以及在下午 6 点关闭非必需品商店。
 
-布林肯重申了美国政府的一贯声明，即华盛顿既要确保台湾有能力进行自卫，同时也决心确保维护该地区的和平与稳定。
+同时也要求球迷远离体育场，并且扩大了需要显示绿色通行证的范围。吕特强调说：“病毒无处不在，感染人数的上升将使我们再一次受到沉重打击“  。
 
-布林肯还说，不只是美国，无论台湾还是其他国家或地区，对于任何使用武力破坏现状的单方面行动，都会采取行动，以保证地区的和平与安全。但布林肯并未透露具体会采取什么行动。
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/12/covid-olanda-vara-lockdown-parziale-di-tre-settimane\_61824ee4-f625-4e9d-97ad-77bc49df4ce9.html](https://www.ansa.it/sito/notizie/topnews/2021/11/12/covid-olanda-vara-lockdown-parziale-di-tre-settimane_61824ee4-f625-4e9d-97ad-77bc49df4ce9.html)
 
-文字版原文：[布林肯：若中共攻台，美国和盟友将“采取行动”](https://gnews.org/zh-hans/1657988/)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

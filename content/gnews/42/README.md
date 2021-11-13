@@ -2,26 +2,43 @@
 ---
 
 
-## 参议员罗恩·约翰逊再次遭受YouTube言论打压
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1660690/)
+## 抗议大流行法案与强制疫苗，周六墨尔本市民大规模游行
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1660730/)
 
-#### 撰稿：彩虹       
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-#### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-252.png)图片来源：News8000
-11月12日，《国会山报》发文，指参议员罗恩·约翰逊（Ron Johnson）由于发布中共病毒疫苗有害的言论而遭受YouTube（油管）暂停使用账户惩罚措施打压。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/5823-12.jpg)图片来源：Herald Sun
 
-在上传到YouTube的视频中，约翰逊说：“今天的最新（死亡）数字是17619，这短短10个月内的死亡人数是之前死亡总数的225倍，与流感疫苗（造成的死亡）相比，这些（中共病毒）疫苗的伤害是真实的。”
 
-约翰逊引用的是疫苗不良反应报告系统（VAERS）的数字，但有文章狡辩称美国疾病控制和预防中心（CDC）警告说这些数字不一定准确。
+#### 翻译：Sara9
+编辑：文泓
 
-对此，约翰逊在一份声明中说：“大科技公司再次对披露真相进行惩罚，为什么他们不让疫苗受害者讲述他们的故事？不让医学专家给出第二种意见？为什么我们不能讨论强制疫苗接种的有害影响？显然，拜登政府和联邦卫生机构绝不允许受到质疑，这将会导致多少生命被如此的摧毁？”
+周六，数千名示威者聚集在墨尔本中心城区，抗议强制疫苗和维多利亚州拟通过的新大流行病法律。自从上月首席卫生官对集会取消限制后，周末定期集会抗议的人群正在稳步增长。
 
-根据报道，在今年6月份，约翰逊发布了一则视频，介绍中共病毒（COVID-19）的替代疗法，并抨击YouTube的审查制度，对此，YouTube平台当时取消了约翰逊的上传权限。
+前自由党议员、澳大利亚联合党领袖克雷格·凯利预计是本次抗议活动中的演说者之一。凯利先生曾因其（在社交媒体上）围绕新冠病毒和疫苗的观点而受到主流媒体告诫。
 
-**新闻来源**
+当演讲者高呼：“解雇丹·安德鲁斯（州长）”时，抗议人群保持了和平。有记者也听到人群中有人喊出了对安德鲁斯威胁的口号，一名男子游行时扛着一个临时的绞架，上面挂着三个绞索。
 
-[YouTube temporarily suspends Ron Johnson’s channel over COVID-19 misinformation](https://thehill.com/policy/technology/581360-youtube-temporarily-suspends-johnsons-channel-over-covid-19-misinformation)
+周六早上在开始游行之前，一位发言者对人群说：“我们在这为自己站起来，这可能是我们最后的机会。所以让我们清晰、大声地发出我们的声音。”
+
+各行各业都有人参加游行。还有带孩子的家庭，也有老人和小孩，他们从州立图书馆穿过城市，涌向斯旺斯顿街，并在前往议会大厦的路上堵住了有轨电车。
+
+在今天的抗议活动之前，上周六已有超过3000人在中央商务区的大街上游行，要求州长安德鲁斯辞职。
+
+安德鲁斯力推新的大流行病法律将取代12月15日到期的紧急状态权力，赋予州长和卫生部长宣布大流行病和发布公共卫生命令的权力并削减首席卫生官的作用。
+
+2021年公共卫生和福利修正案（大流行病管理）法案上个月在下议院获得通过，政府现在希望它能在下周的上议院获得三名交叉议员的支持通过。
+
+原文链接：[Melbourne protests: Thousands rally in the CBD to denounce new pandemic laws, vaccine mandate (theage.com.au)](https://www.theage.com.au/national/victoria/thousands-take-to-melbourne-s-cbd-to-protest-new-pandemic-laws-vaccine-mandate-20211113-p598lu.html)
+
+**发布：文泓**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,30 +2,20 @@
 ---
 
 
-## 有声|德国将定期向印太派遣军舰 应对中共宣示南海主权
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1661241/)
+## 农业成本飞涨，消费者面临收成和价格上涨的风险
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1661328/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-11月9日，德国海军中将薛恩巴赫表示，德国派遣军舰到印太地区，是因为对区域自由航行和以规则为基础的国际秩序受到威胁表示关切。在中共国持续强调南海主权之际，德国政府打算未来定期向印太派遣军舰，以维护南海的自由航行。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11133.jpg)图片来自Leica Geosystems
+保护和代表意大利农业企业的组织在一份特定的新闻稿中说：“价格上涨和收成面临风险。由于农业食品部门的成本较高，以及能源产品的价格再次开始上涨，农业企业的生产成本从饲料到肥料有完全失控的危险。 我们已经记录了前所未有的 100% 的增长百分比“。
 
-薛恩巴赫称，德国巴伐利亚号军舰预计12月穿越南海，向世界展现其拥有自由航行的权利。对于通过南海时有可能会遇到中共国军舰的局面，他认为，通行没有什么问题，如果受到阻碍，他们也会有所准备。该护卫舰日前已经抵达东京，是近20年来第一艘访问日本的德国舰艇。
+目前的情况也可能对下一次收获的规模产生影响。在意大利和欧洲，农民正在评估推迟播种和调整综合作物轮作，为此，关键的市场情况会导致成本的增加。例如，养猪业就是这种情况，这也是欧洲对中共国市场出口萎缩的原因，水果和蔬菜部门是另一个可能特别受到成本增加影响的一个领域。
 
-薛恩巴赫说，南中国海是全球共同所有的公海，这片海域属于所有人。所以，如果说到遵守国际世界秩序的话，南中国海不能被任何人占有或宣示主权。
+农民和牧场主面临的危机有可能蔓延到农业食品链的所有组成部分。消费者可能很快就会见证水果和蔬菜价格的上涨。欧盟农业理事会定于11月15日召开，欧洲农业市场形势和前景将提上议事日程，这是了解欧洲将如何抑制未来几个月价格可能会暴涨的决定性一步。
 
-文字版原文：[德国将定期向印太派遣军舰 应对中共宣示南海主权](https://gnews.org/zh-hans/1658005/)
+原文链接：[https://www.agrifoodtoday.it/attualita/confagricoltura-allarme-prezzi.html#\_ga=2.236280386.2132876092.1636792777-145009575.1615972944](https://www.agrifoodtoday.it/attualita/confagricoltura-allarme-prezzi.html#_ga=2.236280386.2132876092.1636792777-145009575.1615972944)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 
