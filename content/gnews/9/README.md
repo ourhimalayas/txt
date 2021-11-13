@@ -2,52 +2,42 @@
 ---
 
 
-## 蓬佩奥在世界知识论坛上的重要演讲
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1661876/)
+## 上诉法院再次确认停止拜登疫苗强制令
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1661878/)
 
-作者：香草山农场 – 遍地开花
+翻译：Lulumi
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/APP-012121-Biden-COVID-CORONA-222-1.png)图片来源：thegatewaypundit.com
 
+9月拜登政府向私营部门挥舞铁拳，规定所有雇员要接受中共病毒疫苗注射或每周测试，否则就会被解雇。
 
+除了告诉所有210万联邦雇员接受疫苗注射或面临解雇之外，拜登政权还要求所有拥有100名以上雇员的公司对工人进行测试或证明他们已经接种疫苗。
 
+不遵守拜登政权的中共病毒疫苗强制令的小企业将面临巨额罚款。
 
+该强制令本应于2022年1月4日生效。
 
+然而，上周一家上诉法院发布了暂停令，暂时停止了乔·拜登对拥有100名或以上雇员的企业的疫苗强制令。
 
+美国第五巡回上诉法院的裁决是在几个共和党州检察长对政府提起诉讼后作出的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1417.jpg)
+拜登政权被指示在周一晚上之前对永久禁令的请求作出回应，以反对该裁决。
 
-10月25日，美国前国务卿蓬佩奥先生在世界知识论坛上发表了重要演讲。在演讲中，他提到了当前我们所面临的世界秩序的三次断裂：第一，中共病毒的传播和中国共产党的伪装。这其中包括美国的反叛和与中国共产党的勾兑。中共长期掩盖真相和破坏世界秩序——中共收买控制世卫组织，掩盖疫情真相，武毒至今仍在运转，继续给人类带来灾难；第二次断裂是中共的“一带一路”倡议，它是一种新形式的帝国主义。通过该倡议，中共收买了60个国家，大肆复制腐败贷款，通过这些贷款中隐藏的抵押和条约，将对方变成债务国，直至占有其全部资产；第三次断裂表现在中共公开表示要取代美国成为世界上最重要的力量。
+上周五，美国第五巡回上诉法院维持其决定，停止拜登对拥有100名以上员工的企业的疫苗接种强制令。
 
-蓬佩奥还提到，中共并没有应对疫情，反而加速断裂，撕毁《中英联合声明》，把香港归为己有。中（共）国违反了所有贸易协议，并一直从以美国为代表的世界各国偷窃知识产权，是盗国贼控制的国家，
+法院说，这项任务“使请愿者面临严重的财务风险，有可能使他们的劳动力（和商业前景）减少”。
 
-蓬佩奥正在为了让世界了解中共的邪恶本质而不懈努力。
+德克萨斯州总检察长肯·帕克斯顿周五庆祝了这一胜利。
 
-新闻链接：[https://gettr.com/post/pf4ga170b0](https://gettr.com/post/pf4ga170b0)
+**参考资料：**[thegatewaypundit][JUST IN: Appeals Court Re-Affirms Halt on Biden’s Covid Vaccine Mandate for Private Businesses – Cites ‘Severe’ Risks](https://www.thegatewaypundit.com/2021/11/just-appeals-court-re-affirms-halt-bidens-covid-vaccine-mandate-private-businesses-cites-severe-risks/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+* * *
 
-编辑/校对/发稿：小鹿
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
 
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
 
  
 

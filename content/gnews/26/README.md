@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国昔日“光棍节”网络购物狂欢，在政府打压下变得悄无声息
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661326/)
+## 加州一联合学区宣布 抵制中共病毒疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661355/)
 
-作者：纽约香草山佛教部 – 文一
+作者：纽约香草山 – AlexZ
 
 
 
@@ -13,22 +13,19 @@
 
 
 
-NBC援引美联社报道，11月11日，中共国昔日全球瞩目的“双11”光棍节，网络购物盛况不再，“低碳低调”收场。
+11月10日，加利福尼亚州卡拉维拉斯联合学区宣布，他们将拒绝遵守州长纽森的强制接种中共病毒疫苗的政策。
 
-各大电商平台今年“双11”变得异常低调。电商巨头阿里巴巴一改过去各路明星悉数捧场，销售狂欢夜等做法，今年只做在线直播。并表示响应政府号召，专注于可持续发展和支持慈善机构。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-43.jpg)
-往日其引以为傲和重点关注的最终销售数额，阿里巴巴发言人拒绝透露该公司是否会公布该数据。据悉，阿里巴巴的股价近一年来下跌已过半。
+在美国CDC批准为5-11岁的儿童接种疫苗大约一周后，周三晚上，该学区董事会以 5 比 0 的投票结果决定“不支持、执行或遵守”强制接种疫苗令。这项决定将适用于学生和教职工人员。
 
-中共政府加强对科技行业的监管和打压，加上部分地区疫情爆发，材料能源短缺以及物流的阻塞，各零售业供需均呈疲软之态。
-
+本月早些时候，学区表示，他们知道可能的结果，包括责任风险、联邦资助金损失，和其他可能对该学区采取的“正式行动“。然而，他们仍然坚定执行这一决定。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-99.jpg)
 参考链接：
-[China’s Singles’ Day online shopping fest muted amid tech crackdown](https://www.nbcnews.com/news/world/china-s-singles-day-online-shopping-fest-muted-amid-tech-n1283706)
-[监管重压下，阿里低调迎接“双11”](https://cn.nytimes.com/technology/20211110/china-alibaba-singles-day/)
+[Calif. School District Will Not Comply With Vaccine Mandate](https://www.oann.com/calif-school-district-will-not-comply-with-vaccine-mandate/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-总编：Irene木木
-编辑：Kathy文艺
+总编：文徬
+编辑：童谣
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

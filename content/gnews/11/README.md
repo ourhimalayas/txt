@@ -2,77 +2,20 @@
 ---
 
 
-## 【诗歌】临冬
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1661770/)
+## 秘翻在线:华东理工大学学生因实验引起核酸检测阳性
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1661871/)
 
-**作者：修罗闻道**
+撰稿：西枫westca
 
-[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/ca0f4fe5-0885-4586-a377-08864b5f5b6f.jpg?asset_id=4748bedd-be58-46f1-8d0c-0484c7427b48&amp;img_etag=%2246b44a3c574e50b7e9e9cf279d6d787a%22&amp;size=2560)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/ca0f4fe5-0885-4586-a377-08864b5f5b6f.jpg?asset_id=4748bedd-be58-46f1-8d0c-0484c7427b48&amp;img_etag=%2246b44a3c574e50b7e9e9cf279d6d787a%22&amp;size=1024)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/411fd8f23880b4a4c9a9eaa5b73229e5.jpg)图片来源：www.mbachina.com
+11月12日网易报道，日前有华南理工大学学生在网络发帖称，因该校学生做实验研究，导致一学生核酸检测阳性，导致全校关闭，全员做核酸检测。
 
-这一年仿佛是残缺的
+据官方的通知是，生物工程系的一个课题组，在利用大肠杆菌表达系统制备核衣壳蛋白，N段截断体的研究时，有学生核酸检测片段阳性。华东理工大学的紧急通知则要求全体师生不许离沪，取消全部校内聚集性活动。13日上海官方发布的疫情通报中，该市并无新增新冠肺炎本土确诊病例。
 
-秋天还没来得及挣扎
+而理工大学学生则在网上发帖称，是学生不小心复制出了一段和新冠病毒特征表达一致的蛋白片段，整个实验室环境是阳性。这就提出了问题，如果是实验造的片段为何要封闭管理？ 如果大学生的实验就能造片段，那高级的P4实验室能不会造出完整的吗？
 
-就被迅速抹杀
-
-从夏热到冬寒
-
-一瞬间
-
-这一世仿佛是梦幻的
-
-繁荣鼎盛锣鼓喧天
-
-转瞬间愁容惨淡
-
-盛世到炼狱
-
-一路骗
-
-他们先将自己欺骗
-
-再去欺骗
-
-相信他们的人
-
-周而复始
-
-他们要欺骗全世界
-
-可临冬的寒冷
-
-不会被欺骗
-
-也不会去欺骗
-
-整个世界
-
-只有冷
-
-冷的真实
-
-不虚伪
-
-无论你想共产
-
-还是想特色
-
-在寒冬里
-
-只有瑟瑟发抖
-
-等待审判
-[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/c767eaed-2e9d-4cd8-9ef2-5a41e5e4f85a.png?asset_id=e1ac15f4-cf69-4de3-8393-583fbf4c1608&amp;img_etag=%22a1a3e4a1050ad02b89de5004bf3a9559%22&amp;size=2560)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/c767eaed-2e9d-4cd8-9ef2-5a41e5e4f85a.png?asset_id=e1ac15f4-cf69-4de3-8393-583fbf4c1608&amp;img_etag=%22a1a3e4a1050ad02b89de5004bf3a9559%22&amp;size=1024)
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*校对：穆清|审核：文明明| Page：小六月*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
-
-[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
-
+新闻来源： https://www.163.com/dy/article/GOM7757S053469LG.html
 
  
 

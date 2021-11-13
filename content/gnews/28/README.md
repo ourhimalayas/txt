@@ -2,31 +2,53 @@
 ---
 
 
-## 有声|大屠杀博物馆确认新疆正在发生反人类罪行
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1661221/)
+## 中共国昔日“光棍节”网络购物狂欢，在政府打压下变得悄无声息
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661326/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-11月9日，美国大屠杀纪念博物馆发布了一份长达56页的报告，当中指出，中共仍在持续打压新疆维吾尔人，维族人可能面临着种族灭绝的危险。
+作者：纽约香草山佛教部 – 文一
 
-该报告显示，对于中共针对新疆维吾尔人实施的种族灭绝行为，博物馆感到非常担忧。同时，博物馆再次确认，新疆正在发生反人类罪行。
 
-博物馆防止种族灭绝中心主任娜奥米-基科勒表示，中共政府监禁了100万至300万维吾尔人，他们被强制进行绝育、酷刑、性暴力和强迫劳动，其规模和严重程度令人震惊。基科勒强调，中共这种行为对维吾尔族个人、家庭和社区造成了严重的损害，且这些创伤将波及几代维族人。
 
-为此，基科勒呼吁，维吾尔人正面临着紧迫的处境，世界各国应当一道行动，保护维族人。基科勒补充，目前，中共正在使用新技术迫害维吾尔人，单一的正义力量或将很难与之对抗，因此，这需要全球协调和统一的回应与抗衡。她表示，中共的罪行不应该被允许发生。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-文字版原文：[大屠杀博物馆确认新疆正在发生反人类罪行](https://gnews.org/zh-hans/1659034/)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+NBC援引美联社报道，11月11日，中共国昔日全球瞩目的“双11”光棍节，网络购物盛况不再，“低碳低调”收场。
+
+各大电商平台今年“双11”变得异常低调。电商巨头阿里巴巴一改过去各路明星悉数捧场，销售狂欢夜等做法，今年只做在线直播。并表示响应政府号召，专注于可持续发展和支持慈善机构。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-43.jpg)
+往日其引以为傲和重点关注的最终销售数额，阿里巴巴发言人拒绝透露该公司是否会公布该数据。据悉，阿里巴巴的股价近一年来下跌已过半。
+
+中共政府加强对科技行业的监管和打压，加上部分地区疫情爆发，材料能源短缺以及物流的阻塞，各零售业供需均呈疲软之态。
+
+参考链接：
+[China’s Singles’ Day online shopping fest muted amid tech crackdown](https://www.nbcnews.com/news/world/china-s-singles-day-online-shopping-fest-muted-amid-tech-n1283706)
+[监管重压下，阿里低调迎接“双11”](https://cn.nytimes.com/technology/20211110/china-alibaba-singles-day/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：Irene木木
+编辑：Kathy文艺
+校对/发稿：为真不破20
+
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

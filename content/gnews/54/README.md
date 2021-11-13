@@ -2,33 +2,36 @@
 ---
 
 
-## 台湾一日内出现六例完整接种疫苗后仍感染中共病毒案例
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1658791/)
+## 新中国联邦国防系统轮廓初现
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1659125/)
 
-#### **撰稿：**日本东京方舟农场  Kevin wang
+作者：纽约香草山文艺部 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在11月12日的“文贵大直播”中，郭先生透露了新中国联邦未来国防体系的架构，部分已在洽谈中。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/FD0C95DE-FD89-4556-8A47-110204157796.jpeg)图片来源：苹果新闻网
+郭先生提醒华人同胞，中共向世界释放病毒，迄今超过500万人因此失去生命，随之而来的疫苗灾难带来的损失还无法估量。各国经济遭受重创，生活秩序彻底被破坏。这一切，都可能导致排华思潮的抬头。新中国联邦必须为此做好准备，国防体系将应运而生。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-10.jpg)
+郭先生强调，新中国联邦国防系统，将由所有的战友捐款并参与搭建。购买最先进的武器，在全世界范围内征召雇佣兵，尤其是那些因不打疫苗而被迫离开军队的美国官兵，将被聘请进行培训和管理。我们将拥有自己的机场，码头，以及海军，空军，甚至太空部队，由爆二代们操纵战斗机，潜水艇。
 
-据《苹果新闻网》11月11日报道，台湾在11日这一天共出现了六例在完整接种疫苗的情况下仍感染中共病毒的案例。
+该国防系统将惠及全球华人，包括国内有机会出逃的精英和草根，可谓意义重大。
 
-报道称，中央流行疫情指挥中心医疗应变组副组长罗一钧在11日下午的记者会上表示，在今日新增的九例感染者中，有六例均已完整接种过疫苗。其中，案例16568接种过两针阿斯利康疫苗；案例16570接种过两针辉瑞疫苗；案例16576接种过两剂国药疫苗；案例16575则接种过一针康希诺疫苗，这种疫苗接种一针就属于完整接种。
+11月7日，郭先生参加了该项目的秘密会议，并与某顶级军工企业开始接洽。新中国联邦的国防和安保系统，正在从计划走向现实。
 
-罗一钧特别指出，当日有2例突破性感染的疫苗组合首次出现，分别是案例16571和案例16572。其中，案例16571接种过一针阿斯利康和一针强生。
+参考链接：[新中国联邦国防系统轮廓初现](https://gtv.org/video/id=618e6c5fe7e770379233c262)
 
-另一案例16572为一名30多岁的女性，她分别在9月9日和10月13日接种过两针高端疫苗。这是首例接种过两剂高端疫苗后发生突破性感染的案例。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-注：本文仅代表作者观点
+总编：童谣
+编辑：Kathy文艺
+校对/发稿：Hetangyuese
 
-*参考链接：[https://tw.appledaily.com/life/20211111/3AMHHRV7GBH4RFTEFAGOBXM5VU/](https://tw.appledaily.com/life/20211111/3AMHHRV7GBH4RFTEFAGOBXM5VU/)*
-
-* * *
-
-
-```
-素材采编：Kevin wang
-编辑：青衣青青
-发布：miumiu
-```
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
 
  
