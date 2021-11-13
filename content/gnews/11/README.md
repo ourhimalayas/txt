@@ -2,55 +2,35 @@
 ---
 
 
-## 美国CDC承认：没有未接种疫苗者于康复后传播Covid的记录
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1659685/)
+## 有声|李鑫的求救信
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659696/)
 
-作者：纽约香草山农场 – 四季
+配音：香草山香港部 – 文凯琳
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+1月8日开始，网上盛传的李鑫求救贴，像石沉大海一样，已刺激不起网络对他的谅解和理解，他像一道苍白无力的声音，消失在雾霾之中。
 
+事情的起因是，11月4日晚间，重庆的最新疫情发布会宣布，根据对所谓的成都1号病例进行基因检测，证实李鑫为德尔塔变异株患者，与西北地区的病毒同源，也让李鑫正式成为成都1号病例，成为川渝疫情加重的直接原因。
 
+由此引起的恐慌，使当事者遭受了网络暴力的狂轰滥炸，甚至通过电话短信进行的不断的人身攻击。这些让李鑫无法承受，于是在第二天发出求救贴，表达了自己在出差期间每一步都合法合规，直指新闻误导公众说他不配合公安机关调查，也申诉了自己没有进出国家公布的中高风险区的事实，指出新闻报道的路程跟他的实际情况不一致。他在网上出示了所有铁一样的各种书面证明，为的就是自己能早日回归正常的生活。
 
+今天的李鑫跟7月21日南京出现疫情，新闻发布称毛老太偷换绿码乘坐大巴离开南京至扬州姐姐家，致使扬州出现高达百例确诊毫无二致，其污蔑手法、过程和当事人遭受的网络暴力也一模一样，同样是容不得当事人发声，同样令人揪心的是无知网友的一片指责、谩骂，那些“快判刑、快抓捕”的怒骂声铺天盖地，甚至直接攻击当事人。毛老太最终被中共选为替罪羊，被依恶法追究为恶意传播病毒罪。当下不知这位李先生能不能被格外开恩，放过一马。如今他的求救贴一出，如一石激起千层浪，但却事与愿违，引起了更多人的责难。
 
+在中共国最怕的就是一个莫须有的罪名成立，无辜者就可以被任意抓捕和判刑。中共统治下的中国是个悲哀的国度，中国人永远没有公平公正，又很容易被中共牵着鼻子走，连最正常的思维能力都没有。假如他们知道自己是病毒携带者，还会走近身边最亲近的人吗？既然不知道自己是病毒携带者，又何来有罪论。至于李鑫，他只知道自己受到了新闻媒体的错误报道，报道的内容跟他的实际行程不一致，他因此受到了不公平的网力暴力的折磨。但他依然看不清，中共才是所有这些暴力的故意制作者，假如不是它刻意传播，哪家媒体敢睁眼说瞎话，无中生有。假如它想阻止暴力，阻止公众舆论，哪个网贴、哪些谩骂不可以瞬间秒杀？中共的网管那可是威力巨大的。出现如此排山到海般的骚扰和中伤，正是共产党自己一手炮制病毒王，掩盖其不可告人的罪恶勾当，为投毒制毒的罪行转移目标，转嫁他人。
+国人何时醒？
 
-据网关专家11月11日消息，美国疾病预防控制中心（CDC）在回应律师的“信息自由法案披露请求（FOIA）”时承认,CDC没有任何未接种疫苗者在从中共病毒感染中康复后，复又感染，然后继续传播病毒的记录。
+文字版原文：[李鑫的求救信](https://gnews.org/zh-hans/1653113/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1407.jpeg)图片来源：[thegatewaypundit.com](https://www.thegatewaypundit.com/2021/11/cdc-admits-no-record-unvaccinated-person-spreading-covid-recovering-covid/)
+音频处理：喜山必胜Maverick
 
-纽约的一位律师在9月提出了一份信息自由法案请求，要求CDC提供任何记录在案的、所涉被记录者满足以下三点的个人病例文件，被记录者要满足（1）从未接种过中共病毒疫苗；（2）曾经感染过中共病毒，康复后又再次感染；（3）再次感染时将SARS CoV-2传染给另一人。
-
-疾病预防控制中心回应说，在对他们的记录进行搜索后，没有发现任何与律师的请求相关的文件。疾控中心紧急行动中心（EOC）表示，这一信息未被收集。
-
-今年早些时候发表的一项、针对中共病毒康复者T细胞反应的研究显示，自然免疫比接种疫苗能更好地提供保护，使人们免受冠状病毒的侵袭。
-
-**参考阅读：**
-
-[CDC Admits It Has No Record of an Unvaccinated Person Spreading Covid After Recovering From Covid (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/11/cdc-admits-no-record-unvaccinated-person-spreading-covid-recovering-covid/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-**编辑/校对/发稿：小鹿**
-
-
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 **更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
