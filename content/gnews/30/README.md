@@ -2,29 +2,32 @@
 ---
 
 
-## 有声|拜登解除旅行禁令，或将带来全美疫情新变数
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659540/)
+## 有声|自由潜水员在接种新冠疫苗后被诊断为心肌炎
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1659559/)
 
 配音：香草山香港部 – 文凯琳
 
-根据相关报道，就在拜登政府旅行政策生效的当日，欧洲多地机场赴美航班爆满，纽约上州水牛城的和平桥边境检查站，有大批加拿大人驾车蜂拥进入美国。
+11月8日，据相关媒体报道，世界上最好的静态自由潜水员弗洛里安-达古里在接种完第二针辉瑞新冠疫苗后，被诊断为心肌炎和轻微的三尖瓣反流。
 
-有知情人士指出，在病毒和疫苗真相被掩盖的情况下，拜登政府放开边境旅游的举措，可能导致全美新一波病毒感染高峰。
+据了解，弗洛里安-达古里是一名法国的自由潜水员，现居泰国，曾以憋气10分30秒而闻名，目前是世界上可以呼吸暂停的第一人。
 
-原文链接：[拜登解除旅行禁令，或将带来全美疫情新变数](https://gnews.org/zh-hans/1653905/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+在接种完新冠疫苗后，达古里发现自己的心率比正常高很多，且憋气能力明显下降。经医生诊断，这种症状是辉瑞新冠疫苗的常见副作用。更为严重的是，40天后，达古里被诊断为心肌炎和三尖瓣反流。三尖瓣反流是由免疫系统引起的心脏肌肉炎症，其症状表现为，心脏瓣膜不再正常关闭因而造成一些微小的血液渗漏。
+
+这些副作用，让达古里的心肺功能大幅衰退，他的职业生涯很可能会因此戛然而止。
+
+文字版原文：[自由潜水员在接种新冠疫苗后被诊断为心肌炎](https://gnews.org/zh-hans/1651578/)
+
 音频处理：喜山必胜Maverick
-发稿：Daxia
 
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-0
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

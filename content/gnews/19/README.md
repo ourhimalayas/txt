@@ -2,26 +2,53 @@
 ---
 
 
-## 东芝公司宣布将拆分成为3家独立企业
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1659662/)
+## 美国CDC承认：没有未接种疫苗者于康复后传播Covid的记录
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1659685/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-18.png)[图片来源](https://www.independent.co.uk/life-style/gadgets-and-tech/news/toshiba-laptop-last-quit-computer-business-a9663526.html)
-东芝公司11月12日宣布将拆分为3家独立企业。计划把业务分给基础设施和设备（Device）这2家企业，在2023年度后半期上市；东芝则作为半导体存储器巨头铠侠控股等的股份管理公司继续存在。通过拆分，东芝将完全退出综合电机企业之列。2家新企业将分别专注于各自业务，通过灵活经营谋求生存。日本大企业拆分成3家是罕见的做法，也可能波及其他复合型企业。
+作者：纽约香草山农场 – 四季
 
-拆分后形成的“基础设施服务公司”将从事核能与火力发电、可再生能源、公共基础设施、面向政府部门和民间企业的IT等业务。“设备公司”将把用于电力控制等的半导体、面向数据中心的大容量硬盘驱动器、半导体生产设备等作为业务范畴。东芝在2家企业拆分出去后，将持有铠侠和东芝TEC的股份。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-东芝现有股东能够得到基础设施公司和设备公司的股份，成为包括东芝在内的3家的股东。
 
-拆分复合型企业有成为全球潮流的迹象。美国通用电气公司（GE）也在本月公布了拆分为飞机发动机、医疗设备、电力共3家企业的计划。
 
-信息来源：
 
-[东芝宣布拟于2023年度拆分为3家独立企业](https://china.kyodonews.net/news/2021/11/c0ed46be946f-20233.html)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+据网关专家11月11日消息，美国疾病预防控制中心（CDC）在回应律师的“信息自由法案披露请求（FOIA）”时承认,CDC没有任何未接种疫苗者在从中共病毒感染中康复后，复又感染，然后继续传播病毒的记录。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1407.jpeg)图片来源：[thegatewaypundit.com](https://www.thegatewaypundit.com/2021/11/cdc-admits-no-record-unvaccinated-person-spreading-covid-recovering-covid/)
+
+纽约的一位律师在9月提出了一份信息自由法案请求，要求CDC提供任何记录在案的、所涉被记录者满足以下三点的个人病例文件，被记录者要满足（1）从未接种过中共病毒疫苗；（2）曾经感染过中共病毒，康复后又再次感染；（3）再次感染时将SARS CoV-2传染给另一人。
+
+疾病预防控制中心回应说，在对他们的记录进行搜索后，没有发现任何与律师的请求相关的文件。疾控中心紧急行动中心（EOC）表示，这一信息未被收集。
+
+今年早些时候发表的一项、针对中共病毒康复者T细胞反应的研究显示，自然免疫比接种疫苗能更好地提供保护，使人们免受冠状病毒的侵袭。
+
+**参考阅读：**
+
+[CDC Admits It Has No Record of an Unvaccinated Person Spreading Covid After Recovering From Covid (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/11/cdc-admits-no-record-unvaccinated-person-spreading-covid-recovering-covid/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+**编辑/校对/发稿：小鹿**
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
 
 
  

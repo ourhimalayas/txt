@@ -2,28 +2,33 @@
 ---
 
 
-## 应对中共，军事合作再升级！日本首次对澳军实施武装防卫
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1659658/)
+## 加强针疫苗让教师减员，密歇根州镇政府关闭社区学校
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1659673/)
 
-#### 撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-27.png)[图片来源](https://cn.dangcongsan.vn/preview/newid/414520.html)
-日本防卫省12日发布消息称，在四国地区以南开展联合训练之际，海上自卫队护卫舰“稻妻”号对澳大利亚海军护卫舰“瓦拉蒙加”号实施了基于安全保障相关法的武装防卫（日本称“武器等防护”）。防卫省表示，这是首次对美军以外实施。
+### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5825-9.jpg)**图片来源：The Gazette**
+#### 整理报道：月映万川
+编辑：文泓
 
-防卫省说明称“澳大利亚是特别的战略伙伴。实施警护提升了相互运用性，展示可以紧密合作。发布消息是经综合判断后决定的”。防卫省未透露警护之际的具体行动内容。
+周一，密歇根州的一个镇政府宣布关闭学校。而这是因为学校的一些员工在接种新冠疫苗加强针后出现“不良反应。”
 
-日本媒体分析，此前没有公开过个别的实施事例，此次属于罕见应对。日方有意展示在美军以外也拓宽和升级了与澳大利亚的防务合作，目的是制约中共。
+萨吉诺镇社区学校在其官网上发布的信息显示，由于缺少员工，这一地区的学校自周一起关闭，其中也会影响到课后教育和育儿服务。
 
-武器等防护是指在非战时守护他国舰艇和飞机的活动，因2016年安保法施行被加入自卫队的任务。日澳两国政府在去年10月的防长会谈中，同意开始就武器等防护展开协调。在今年6月的外长防长磋商（2+2）中，商定将其付诸实施。
+“我们大量的员工在周末自愿接种了疫苗加强针，但是很多人都出现了不良反应，”学校的公告写到。
 
-对美军的武器等防护于2017年5月首次实施。2017年的实施数量为2起，2018年为16起，2019年为14起，2020年为25起。虽然日本政府承诺出示信息，但公布的内容仅为年实施数量。
+目前联邦政府批准给已经接种了辉瑞、莫德纳和强生疫苗的成年人接种疫苗加强针。
 
-信息来源：
+原文链接：[Michigan township closes schools due to staff having ‘negative reaction’ to COVID-19 booster shot | News | gazette.com](https://gazette.com/news/michigan-township-closes-schools-due-to-staff-having-negative-reaction-to-covid-19-booster-shot/article_3a8da6b9-1781-54e7-a947-e6904451acec.html)
 
-[防卫省称首次对澳军实施“武器等防护”](https://china.kyodonews.net/news/2021/11/228a09173f61.html)
+发布：文泓
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
