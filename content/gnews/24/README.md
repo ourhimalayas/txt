@@ -2,28 +2,32 @@
 ---
 
 
-## 大厦之将覆，21城发布房价限跌令
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1660874/)
+## 日本东京国税局追查虚拟货币逃税资产
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1660970/)
 
-撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-97.jpg)
-[图片来源](https://www.9kd.com/house/2989869)
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月11日，日本消息显示，东京国税局正在调查总金额高达270亿日元的逃税资产。资料显示，在截至2019年3月的三年时间里，中共投资者通过比特币将大笔资金汇入东京某摄影公司，并通过该公司将这些资产转化为日本不动产。日本律师认为，这些人可能利用虚拟币来逃脱中共对个人资产的监管，目前，日本方正在追查这270亿日元资产的逃税嫌疑。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-13-下午9.40.15.png)
+此前，郭先生在直播中提到，缺乏监督机制的虚拟币，尤其是比特币正在成为洗钱和犯罪的工具。相较之下，喜币作为真正去中心化的稳定虚拟货币，其自身特性决定了喜币交易的透明度与安全性。但是，郭先生也提醒战友，在拥有了喜币带来的财富之后，战友们一定要了解各国的纳税政策，做到合法赚钱、合法富有。
 
-据第一财经不完全统计，10月以来中共国至少有21城发布了房价“限跌令”，覆盖面很广，二至四线城市均有涉及，包括沈阳、昆明、岳阳、唐山、江阴、鄂州、张家口、株洲、永州等。其中，有的城市是直接发布行政命令，有的则是通过约谈房企，限制降价。
+参考链接：
+1)[中国から270億円流入　暗号資産で監視逃れ　国税が調査](https://news.yahoo.co.jp/articles/4848dad03f58c434f0b86b8be6ec546f08152883)
+2)[日媒：以虚拟货币方式逃过监管，东京调查从中国非法流入的270亿日元资金](https://finance.sina.com.cn/jjxw/2021-11-12/doc-iktzqtyu6807971.shtml)
 
-另外，包括广州、厦门、成都、南京等一二线城市出现了很多“工抵房”。这本质上是房企重复抵押融资，意图清掉无效库存，并局部缓解房企资金压力。但对于上游供应商来说，“工抵房”则是剧毒之药，不仅要持有一批难以处置的负资产，更为核心的榨干了现金流。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-日前，中共国银保监会和央行频繁表态，稳地价、稳房价、稳预期，这只针对房价普遍下跌，房企面临严峻债务危机，产业链上所有企业生死一线间，所拟定的以毒攻毒的措施。“三稳”也好、“限跌”也罢，结局早已写就。
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-信息来源：
-
-[21城发布房价限跌令，工抵房为何“井喷”？](https://www.yicai.com/news/101228762.html)
-
-编辑：东京樱花团/ 喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-76.jpg)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,101 +15,101 @@
 
 ---
 
-### [G-TV打开金库的第一道大门,别光看股价忘了钥匙的作用](/content/gnews/1/README.md)
+### [有声|蓬佩奥国务卿再次强调习会因冬奥会膨胀，拜登政府需要下决心、建立威慑力](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [有声|欧洲议会拟制定法律反制中共政治干预](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [有声|中共对维吾尔人的跨国镇压急剧扩大](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [有声|美拜登政府续禁投资中共军方关联企业](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [有声|新中国联邦正以崭新面貌与多方洽谈合作](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [有声|为开六中全会，中共人工降雪祸害百姓](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [有声|墙内青年用“躺平”不成家做无声抗争](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [G-TV打开金库的第一道大门,别光看股价忘了钥匙的作用](/content/gnews/8/README.md)
  ` NewFOC`
 
-### [有声|墙内累计7000万人感染中共病毒，死亡1370万人](/content/gnews/2/README.md)
+### [有声|墙内累计7000万人感染中共病毒，死亡1370万人](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [有声|高疫苗接种率的欧洲各国中共病毒病例激增](/content/gnews/3/README.md)
+### [有声|高疫苗接种率的欧洲各国中共病毒病例激增](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [有声|郭先生爆料中共六中全会中共国获得11个“第一”](/content/gnews/4/README.md)
+### [有声|郭先生爆料中共六中全会中共国获得11个“第一”](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [视频| 新中国联邦带来金融界虚拟货币的新时代](/content/gnews/5/README.md)
+### [视频| 新中国联邦带来金融界虚拟货币的新时代](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [有声|DMSA将对恒大提起破产程序](/content/gnews/6/README.md)
+### [有声|DMSA将对恒大提起破产程序](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [中共持续迫害藏人](/content/gnews/7/README.md)
+### [中共持续迫害藏人](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [视频| 新中国联邦招募军队人员](/content/gnews/8/README.md)
+### [视频| 新中国联邦招募军队人员](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [11/12/2021 文贵直播：即将举行的拜习视频会议的是拜登政府为其政治和经济利益而与中共勾兑的结果](/content/gnews/9/README.md)
+### [11/12/2021 文贵直播：即将举行的拜习视频会议的是拜登政府为其政治和经济利益而与中共勾兑的结果](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共多家企业管理层换血](/content/gnews/10/README.md)
+### [中共多家企业管理层换血](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [白宫记者转战盖特继续爆料](/content/gnews/11/README.md)
+### [中国多地出生人口下降超一成](/content/gnews/18/README.md)
+ ` 首尔天池农场`
+
+### [白宫记者转战盖特继续爆料](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [美日会商钢铁关税协议 中共经济命脉又断一臂](/content/gnews/12/README.md)
+### [美日会商钢铁关税协议 中共经济命脉又断一臂](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/13/2021国际财经快讯：马斯克抛售特斯拉股票；货币市场因欧央行加息而缓和](/content/gnews/13/README.md)
+### [11/13/2021国际财经快讯：马斯克抛售特斯拉股票；货币市场因欧央行加息而缓和](/content/gnews/21/README.md)
  ` 秘密翻译组金融团队`
 
-### [生命不能承受之重](/content/gnews/14/README.md)
+### [生命不能承受之重](/content/gnews/22/README.md)
  ` 骄子`
 
-### [秘翻在线:中共及暗黑势力下一步要推更毒的口服疫苗?](/content/gnews/15/README.md)
+### [秘翻在线:中共及暗黑势力下一步要推更毒的口服疫苗?](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本东京国税局追查虚拟货币逃税资产](/content/gnews/16/README.md)
+### [日本东京国税局追查虚拟货币逃税资产](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [串珠448:共产党的2025，极度嚣张灭掉美国称霸世界](/content/gnews/17/README.md)
+### [串珠448:共产党的2025，极度嚣张灭掉美国称霸世界](/content/gnews/25/README.md)
  ` 郭爆料串珠`
 
-### [歌曲：H coin to the moon (MV)](/content/gnews/18/README.md)
+### [歌曲：H coin to the moon (MV)](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [接种和未接种中共病毒疫苗的人会携带相似水平的病毒](/content/gnews/19/README.md)
+### [接种和未接种中共病毒疫苗的人会携带相似水平的病毒](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [封锁和不科学的疫苗强制令造成的损失超过可统计的范围](/content/gnews/20/README.md)
+### [封锁和不科学的疫苗强制令造成的损失超过可统计的范围](/content/gnews/28/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共病毒蛋白伤害（III）：病毒刺突减少DNA修复酶的mRNA转录](/content/gnews/21/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共病毒疫苗导致严重心脑血管疾病！日本专家研究也已证实](/content/gnews/22/README.md)
+### [中共病毒疫苗导致严重心脑血管疾病！日本专家研究也已证实](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北京天空被中共病毒疫苗受害者尸体燃烧后的灰尘所覆盖](/content/gnews/23/README.md)
+### [北京天空被中共病毒疫苗受害者尸体燃烧后的灰尘所覆盖](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [大厦之将覆，21城发布房价限跌令](/content/gnews/24/README.md)
+### [大厦之将覆，21城发布房价限跌令](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：中共大使馆游说美国商界反对国会通过不利中共的法案](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [国际要闻汇编 11月13日](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [同济大学研究：中共国国产疫苗改变基因表达 降低免疫力](/content/gnews/27/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [真流氓、假绅士和满怀希望的难民——欧洲篇](/content/gnews/28/README.md)
- ` 澳喜特战旅Gnews`
-
-### [大连庄河四十万户全城封禁，网友称史无前例](/content/gnews/29/README.md)
- ` 澳喜特战旅Gnews`
-
-### [从几则墙内新闻看共产党的擀面杖经济还能撑多久](/content/gnews/30/README.md)
- ` 澳喜农场`
-
-### [习命太硬](/content/gnews/31/README.md)
+### [习命太硬](/content/gnews/32/README.md)
  ` 银河勇气之星`
-
-### [彭博社报道：喜币飙升270倍](/content/gnews/32/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [抗议大流行法案与强制疫苗，周六墨尔本市民大规模游行](/content/gnews/33/README.md)
  ` 走进澳洲`
