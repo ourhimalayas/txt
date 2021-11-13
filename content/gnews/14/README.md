@@ -2,43 +2,83 @@
 ---
 
 
-## 突发：美国价值观捍卫者史蒂夫·班农被联大陪审团起诉
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1660368/)
+## 币圈新闻动态：Niftify宣布推出其NFT平台的测试版
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1660395/)
 
-作者：东京樱花团丨捆绑CCP一千年
-![](https://pbs.twimg.com/card_img/1459331356039983104/SO11-9l8?format=jpg&amp;name=600x314)
-**班农被抓！民主党这是恶人先告状。尽管全世界都知道拜登窃取选票的事，也丝毫无法阻挡拜登在疫苗违宪的道路上继续使美国的民主法治再度蒙上阴影。史蒂夫·班农的“战斗室”使他的敌人闻风丧胆，郭文贵先生对这次班农再度被抓捕的事件评价说，“班农将会因此成为美国英雄。”**
+*喜马拉雅华盛顿DC 编辑：aQ*
 
-据[美国国会山12日下午消息](https://thehill.com/policy/national-security/581352-steve-bannon-indicted-by-federal-grand-jury)称，联邦大陪审团已起诉史蒂夫·班农—前任总统—特朗普白宫顾问。史蒂夫·班农是前总统唐纳德·特朗普的盟友，周五被联邦大陪审团以两项藐视国会的罪名起诉，[指控他的罪名是无视民主党领导的众议院特别委员会 1 月 6 日发出国会骚乱调查的传票](https://nypost.com/2021/11/12/steve-bannon-indicted-on-contempt-of-congress-charges/)。
-
-总检察长梅里克·加兰在宣布起诉的声明中说：“[从我上任第一天起，我就向司法部员工承诺，我们将共同通过言行向美国人民展示司法部坚持法治，遵循事实和法律，追求法律下的平等正义](https://thehill.com/policy/national-security/581352-steve-bannon-indicted-by-federal-grand-jury)， ”
-
-- *延展阅读：*[*华尔街日报（中文）：众议院投票支持以藐视国会罪起诉特朗普前顾问班农*](blank)*。*
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/07/ScreenShot-2021-07-31-at-16.20.22@2x.png)
 
 
-在起诉书中指出，班农拒绝“遵守以任何方式”与传票。称，由于委员会面临越来越多的拒绝合作的证人，司法部愿意提起刑事诉讼。如果罪名成立，班农将面临最少 30 天和最多一年的监禁，以及 100 至 1,000 美元的罚款。联邦地区法院法官将最终确定他的判决。
 
-该报告引用了班农在袭击前几天与特朗普的沟通以及“他在 1 月 6 日之前，指出他在威拉德酒店组织的“战争室” 中策划的政治活动的努力” 。
-
-事实上，司法部的指控完全是违宪的。因为[特朗普离任前一天特赦前高级顾问班农](https://www.bbc.com/zhongwen/simp/world-55729017)，这意味着任何司法机构不得对其追究。2020年大选，作为明显的胜选者前总统特朗普在总统卸任前有权作出任何有利于他们的行动，更有权力不惜一切代价捍卫美国国家利益——民主价值观。
-
-- *延展阅读：*[*中共国参考消息：特朗普前顾问班农遭起诉*](http://www.cankaoxiaoxi.com/kuaixun/20211113/2459738.shtml)*。*
-- *延展阅读：[调查国会骚乱的委员会建议以藐视罪拘捕特朗普前顾问班农](https://cn.wsj.com/articles/%E8%B0%83%E6%9F%A5%E5%9B%BD%E4%BC%9A%E9%AA%9A%E4%B9%B1%E7%9A%84%E5%A7%94%E5%91%98%E4%BC%9A%E5%BB%BA%E8%AE%AE%E4%BB%A5%E8%97%90%E8%A7%86%E7%BD%AA%E6%8B%98%E6%8D%95%E7%89%B9%E6%9C%97%E6%99%AE%E5%89%8D%E9%A1%BE%E9%97%AE%E7%8F%AD%E5%86%9C-11634713510?cx_testId=4&amp;cx_testVariant=cx_1&amp;cx_artPos=0)。*
+## 每日一问
 
 
-用中国人的话说，民主党这是恶人先告状，1月6日在国会袭击案调查未果前提下，仍要对前总统特朗普的助手班农斩尽杀绝，为了避免流血事件发生，特朗普总统放弃了政治斗争，为了一个和平的过度渡。尽管全世界都知道拜登窃取选票的事。也无法阻挡拜登发动国家机器，对政治对手进行打压。这会迫使拜登在疫苗违宪的基础上继续陷入政治斗争的两党厮杀中。使美国的民主法治再度蒙上阴影。
 
-鉴于拜登政府越来越离谱的领导力，美国人已经将越来越共产主义化的拜登政府总统——[拜登视为纳粹](https://odysee.com/@SaltyCracker:a/joehitler:5)。
 
-史蒂夫·班农不仅是川普总统的得力助手，他的“战斗室”还是致力于与美国黑暗势力斗争的核武器，他被很多跟随者视为政治战略师，班农曾经说过，“不要抱怨，不要像个小孩子。你们要做的事，在你们的朋友圈和家庭里变成令人讨厌的人，一直去谈这个话题，将他们没有看到的信息给他们看。我们是分辨真相的专家。我们的节目是为了传递信号，而不是噪音。”
 
-正因为班农的那种大义凛然的精神和民主价值观捍卫者的使命感，使执政党民主党闻风丧胆。今天，执法人员j在班农先生家门口等着抓捕他。郭文贵先生对这次班农可能再度被抓捕的事评价说，“班农将会因此成为美国英雄。”
+如何保障币圈的财富和自由？
 
-2021年11月13日
 
-*校对：东京樱花团 / 文小白*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+
+
+
+## 喜马拉雅交易所要闻
+
+
+
+
+
+- 喜交所网站行情显示，喜币（HCN）价格12日在27HDO附近徘徊。截稿时，24H涨幅1.06%。
+
+
+
+
+
+
+## 新闻动态
+
+
+
+
+
+1. Ambcrypto报道，根据Protos最新报告，稳定币Tether在过去七年里已经成为加密货币行业的主要桥梁。报告称，2014年至2021年10月期间，Alameda Research和Cumberland预计获得603亿美元的USDT。其中Alameda Research购买了367亿美元，在从Tether的财政部转移到Alameda Research的367亿美元USDT中，超过301亿美元被转移到FTX。
+2. U.today报道，CeDeFi区块链平台Evrynet加入斯坦福数字货币未来倡议（FDCI）。据悉，FDCI是一项全球倡议，专注于在全球范围内扩大区块链采用、数字资产研究和分布式技术实验。截至目前其成员包括Algand基金会、Celo Network、Polkadot、RippleInc、IBM和Stellar发展基金会（SDF）。
+3. CoinDesk报道，由预测平台Gnosis（GNO）推出的去中心化自治组织Gnosis DAO发起GIP16社区提案，建议Gnosis和xDai社区合并代币，并在Gnosis Chain的名义下开发xDai区块链。其中Gnosis DAO准备以各种激励的形式提供40万枚GNO（约1.9亿美元），以帮助开发Gnosis Chain，吸引新的协议，并扩大用户基础。
+4. 11月12日消息，主要的加密货币公司Andreessen Horowitz（a16z）、Cosmos、Polygon Studios和Solana Ventures等已额外投资7.25亿美元，以完成区块链游戏平台Forte的B轮融资。本轮融资由Sea Capital和Kora Management领投。游戏发行商可使用Forte的平台将区块链技术整合到他们的游戏中，该平台还允许NFT的铸造和出售。
+5. 11月13日消息，Web3.0创作者经济平台Darkblock宣布完成170万美元种子轮融资，本轮融资由Greenfield One和A & T Capital领投，Smape Capital、Unpopular Ventures、Arweave、Arweave开放式网络孵化器Open Web Foundry参投。此外Darkblock还推出了一个网络和电视应用程序，艺术家和创作者可以使用该应用程序免费升级他们的NFT，以包含为NFT所有者所保留的独家内容。
+6. 11月13日消息，体育娱乐区块链服务提供商Socios.com宣布与新英格兰爱国者队和新英格兰革命队达成合作，这也是该公司与美国国家橄榄球联盟（NFL）和美国职业足球大联盟（MLS）首次达成合作。Socios将成为爱国者队室内训练场的官方赞助商及革命队训练中心的官方赞助商。
+7. Prnewswire报道，Niftify宣布推出其NFT平台的测试版，允许人们铸造、购买、出售和交换NFT，使创作者、收藏家、交易者、游戏玩家、企业和NFT爱好者可以测试和探索新市场。此外，Niftify与传奇说唱歌手Ice-T合作的第一批独家NFT系列已售罄。
+8. Decrypt报道，音乐制作人Timbaland宣布成立娱乐公司Ape-In Productions，将为元宇宙应用创作音乐和动画。该公司将与一些Bored Ape Yacht Club NFT所有者等合作，并计划下周（11月17日）发布虚拟嘻哈乐队TheZoo的首支单曲《Ape Sh!t》以及首个NFT藏品。
+9. IBSintelligence报道，金融科技控股公司Xalles Holdings最近宣布，其全资子公司Xalles Capital与Aktary Enterprises合资成立GioBot。GioBot总部位于美国得克萨斯州奥斯汀，其软件即服务（SaaS）解决方案将使加密交易员能够轻松实施自己独特的交易策略，并自动执行加密货币交易。
+10. 11月12日消息，区块链体育娱乐平台Chiliz宣布与意大利足球协会（FIGC）达成合作关系，FIGC将在Chiliz旗下粉丝参与激励应用Socios.com上推出官方粉丝代币ITA，ITA粉丝代币的销售收入将被重新投入到意大利足协的建设，尤其是在青年训练层面，所获得的资金将被分配用于改善训练设施、教练和球员资源，以促进国家队的长期发展和持续成功。
+11. 11月12日消息，Cotton Australia已与区块链创造者Paper Tale和瑞典时尚品牌Gina Tricot达成合作，通过基于区块链的应用程序讲述种植者种植用于制造时尚品牌女装的棉花的故事。通过扫描缝在衣服上的纽扣，时尚标签Gina Tricot用来制作精女装品的棉花可以追溯到澳大利亚新南威尔士州麦格理谷种植棉花的农民。
+12. 11月12日消息，NFT战斗游戏Kingdom X完成种子轮融资，DAO Maker、LD Capital参投。
+13. 官方消息，智能金融衍生产品平台Hyperion现已正式上线。Hyperion为用户提供比现货和传统衍生产品等更简单的金融产品选择，以满足用户的资产增长需求和风险对冲需求。
+14. 11月12日消息，区块链手游平台Realis Network推出多人游戏Legends of Listeria公开Beta版本。Realis Network将改进游戏中的UI和选项，计划为可用角色添加语音表演，并添加一个新的可玩角色，预计11月22日完成。
+15. Globenewswire报道，NFT平台The Party Grandpa Retirement Club即将推出其NFT，美东时间11月17日21点（北京时间11月18日10点）开启铸造。据悉，Grandpa NFT基于ERC-721代币标准并存储在以太坊区块链上，同时托管在IFPS上。
+16. 11月12日消息，去中心化借贷平台Channels.finance发推称，Channels将于北京时间11月15日20点在SushiSwap（Arbitrum）开启流动性挖矿。此外，Channels的加速挖矿活动将继续在Arbitrum上进行，包括单一代币和LP。
+17. 11月13日消息，去中心化多资产协议Mobius Finance宣布正式上线Polygon主网，流动性挖矿已同步开启，用户也可参与MOT或DAI的质押活动并赚取奖励。
+18. 11月13日消息，Meta Mask新版本V10.5.1现已恢复与硬件钱包Ledger之间的集成，Ledger用户在下载Ledger固件新版本之后可通过Web HID连接到Chrome中的Meta Mask。同时，Ledger和Meta Mask宣布建立合作伙伴关系，将持续维护双方客户的易用性和安全性。
+19. 11月12日消息，链上交易聚合器1inch基金会宣布向6个项目及2名开发人员发放58.5万美元赠款，其中包括去中心化交易所E-Vitutal、Polygon链上加密期权交易的自动做市商协议Moret、加密税务平台3Line、Web3社交元宇宙Atlantis World、交易数据解析工具Tokenflow、加密增长营销机构Crypto Marketing以及来自Crypto Gboors团队的开发人员Alan Nabiev和Sarmat Khachirov。
+20. Globenewswire报道，北美比特币挖矿公司Digihost宣布，该公司已获准在纳斯达克上市，预计将于11月15日在纳斯达克上市，交易代码为“DGHI”。Digihost还将保留其在TSX Venture Exchange的上市，交易代码仍为“DGHI”。
+21. Blockcrypto报道，巴西数字银行Nubank母公司Nu Holdings计划于12月9日和10日是在在纽约证券交易所（NYSE）和巴西的圣保罗B3证券交易所上市。该公司在10月底宣布，它已经为拟议的IPO提交了申请。
+22. CoinDesk报道，印度加密货币交易所WazirX表示，年初至今交易量超过380亿美元，环比增长44%。2021年其用户数量增长10倍以上，达到1,000万，来自二线和三线城市的用户注册量增长2,648%。
+23. 11月12日消息，美国证券交易委员会驳回Vaneck的现货比特币ETF申请。SEC表示，该比特币ETF未能证明自己符合规则。
+24. 证券时报报道，周五晚间，也就是北交所开市的前一个交易日，首批8只北交所基金正式拿到批文。据了解，首批北交所基金是偏股混合型基金，从产品名称上看，北交所基金将以不低于80%的非现金基金资产投资于北交所上市股票，在产品的运作上采取两年定开的形式。此外，据业内人士透露，首批北交所基金或每只限额5亿元，最快有望在下周二启动发行。
+25. 11月13日消息，Kava在推特上表示，Kava9的高质量升级之一将包括针对更高交易费用的优先级内存池。在高网络拥塞期间，交易内存池的构建速度比验证器处理交易的速度要快。为了解决这个问题，优先级的内存池将按照支付费用对要处理的交易进行排序。
+26. 11月13日消息，Grayscale首席执行官Michael Sonnenshein在本周活动上表示，该公司已经将其Grayscale Decentraland Trust视为投资者接触元宇宙的一种被动方式。
+27. 11月13日消息，埃隆马斯克认为，与比特币和SHIB比，狗狗币是一种更为优越的支付方式。据悉，马斯克点赞了狗狗币联合创始人Billy Markus发布的一条推文，该推文比较了上述三种加密货币的交易费用。Markus称，狗狗币的低费用使其成为各种交易的理想选择。
+
+
+
+
+
+*编辑：aQ
+发布：文顾*
+
+
+ 
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

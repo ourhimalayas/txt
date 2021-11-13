@@ -2,30 +2,42 @@
 ---
 
 
-## 中共驻美大使馆游说美企反对与中共国相关议案
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1660265/)
+## 美国法院维持暂停拜登政府对企业的疫苗强制令
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1660313/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16324445831-e1636782783198.png)
-据路透社11月12日报道，中共国最近一直致函商界人士和与商界人士举行会议，施压美国企业高管和商业团体，要求他们敦促国会议员修改或撤销旨在增强美国竞争力、反对中共国的具体议案。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-中共国官员警告企业，如果这项议案成为法律，他们将面临在中共国失去市场份额或收入的风险。中共国的要求让收到信件的个人担心，如果他们在未来就类似问题游说议员，可能会被视为违反了《外国代理人登记法》(FARA)。
-
-中共威逼利诱的策略从前在美国畅通无阻，但是随着中共日落西山的景象，不知道还有多少人愿意冒着风险继续与中共同流合污呢？痛打中共落水狗才是明智之举，也能撇清与中共的关系。
-
-新闻参考链接：[https://cn.reuters.com/article/china-us-embassy-lobby-1113-idCNKBS2HY046](https://cn.reuters.com/article/china-us-embassy-lobby-1113-idCNKBS2HY046)
-
-编辑：胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/MGN_1280x960_10809C00-XDXMK.jpg)图片来源：spokesman-recorder.com
 
 
-编辑：【英国伦敦喜庄园编辑部】
+#### 编译：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+美国联邦法院周五维持暂停拜登政府的中共病毒（Covid-19）疫苗强制令。该强制令要求大型企业必须为员工接种中共病毒疫苗。
+
+位于新奥尔良的第五巡回上诉法院的三位法官小组确认了其上周的最初命令，该命令阻止了疫苗强制令的生效。法院周五说，疫苗强制令 “严重超越 “了政府的权力。
+
+如果维持原判，被暂停的疫苗强制令将代表着拜登政府最具影响力的努力之一遇到了重大挫折。该努力旨在确保中共病毒在冬季卷土重来之前，为人民进行广泛的中共病毒疫苗接种。
+
+拜登为这些公司设定了一个1月4日的最后期限，以确保其员工全面接种中共病毒疫苗。 政府称，这一规则将影响全国三分之二以上的劳动力。法院的裁决批评说这一规则“过于宽泛”。
+
+法院没有决定，这个适用于100人以上公司的疫苗强制令最终是否有效。
+
+但在其裁决中，法院表示批准暂停执行的部分原因是，该命令不可能通过宪法审查。
+
+库尔特·D·恩格尔哈特（Kurt D. Engelhardt）法官表示，如果不批准暂停疫苗强制令，可能会对雇员和本案的请愿者造成“无法弥补的伤害”。从经济的不确定性到工作场所的冲突，仅仅是疫苗强制令就在最近几个月导致了难以言喻的经济动荡。
+
+该裁决要求在审查挑战者提出的永久禁令请求之前，继续保持暂停状态。
+
+**参考新闻：**[US court maintains block on Biden vaccine mandate for businesses (msn.com)](https://www.msn.com/en-au/news/world/us-court-maintains-block-on-biden-vaccine-mandate-for-businesses/ar-AAQEluv?ocid=msedgdhp&amp;pc=U531)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
