@@ -2,48 +2,36 @@
 ---
 
 
-## 联邦上诉法院维持对拜登疫苗强制令的临时禁令
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1662446/)
+## 全球粮价一飞冲天！而这一切才刚刚开始
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1662501/)
 
-**作者**：香草山美食部-蓝天大海
+![](https://assets.gnews.org/wp-content/uploads/2021/11/16368662891.png)
+据华尔街见闻11月13日新闻，野村发布研报警告，伴随着全球能源价格飙涨，能源价格对于粮食价格的溢出效应正越来越明显。新兴市场经济体，尤其是低收入的经济体也将面临食品价格进一步飙升的风险。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-1.jpg)
+野村分析师表示，早在新冠疫情爆发前，全球粮食供需就处于紧张状态。在需求方面，随着新兴市场经济体的增长，消费者需求更高质量的蛋白食品，从而对全球粮食产量提出了更高的要求；在供应方面，全球变暖增加了严重干旱和洪水的发生的频率，降低全球粮食产量。
 
+疫情爆发则加剧了供需的不平衡，因疫情限制劳动力流动，病毒导致的人员感染，强制疫苗政策和次生灾难等造成了生产领域的劳动力严重短缺。而疫情对于供应链的干扰使得农产品进入市场更加复杂。与此同时，油价的上涨也在背后推波助澜，能源价格的上涨则持续推高全球粮食生产成本（化肥生产、生产机械）。
 
+如果明年全球粮食飙涨15%，可能引发整体通胀上升，可能推高工资水平。其次，不断上涨的食品价格可能会减少家庭购买其他商品和服务的实际可支配收入。
 
+在央行方面，食品价格上涨可能导致明年通胀大幅上扬，可能会让欧洲央行陷入困境。至于英国央行和美联储，可能不是一个大问题。目前包括美联储在内的央行官员依然坚持“通胀只是暂时”的观点，认为能源和食品价格上涨是暂时的，不会对央行的政策决策产生影响。对于消费者而言，杂货店的食品价格和加油站的汽油价格上涨的压力是真实可见的。
 
+食品价格上涨可能导致明年通胀大幅上扬，各国央行不得不再次上调预期。本来已经物资缺乏，而能买到的东西一直在涨涨涨，这就是如今的全球现状。谁制造了这些灾难呢？怎么解决这些问题呢？全世界都理应知道：共产党才是一切问题的祸源，唯有铲除中共才是人类的出路。
 
-1月12日，美国联邦第五巡回法院维持上周六的裁决，继续暂停执行拜登政府的疫苗强制令。该强制令要求拥有一百人以上的企业必须接种疫苗，或每周接受检测。法院表示，该强制令超越了行政当局的权限，有严重的宪法问题。自拜登政府发布强制令至今，已经引发了至少27个州以及商业和宗教团体的一系列法律挑战，他们认为拜登政府的强制令违宪。与此同时，美国第五、第六、第八和第十一巡回上诉法院也都在审理职业安全与健康管理局强制推进疫苗接种是否合法。
+新闻参考链接：[https://c.m.163.com/news/a/GOMUO1CP05198NMR.html?spss=newsapp](https://c.m.163.com/news/a/GOMUO1CP05198NMR.html?spss=newsapp)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Biden-Build-Back-better.jpg)
+编辑：MQ
 
-郭文贵先生在11月7日的大直播中曾经说过，美国第五巡回法院的临时禁止令最终一定会使拜登政府的疫苗强制令停止下来，在11月10日的大直播中郭先生进一步指出：联邦法院的禁止令意义很大，说明美国已经认识到疫苗灾难是人类面临的真正的灾难。禁止令不仅会影响美国，最终也会影响世界；禁止令也是打开美国法律大门的开始，随着禁止令的发出，可以预期法庭会进一步发出命令，要求彻查病毒来源和疫苗真相；当真相揭露之时，最终将聚集民意、媒体转向、国会立法，并向中共和邪恶势力追责。
+* * *
 
-参阅链接：
-
-[https://www.zerohedge.com/political/it-raises-serious-constitutional-concerns-appeals-court-re-affirms-stay-biden-vaccine](https://www.zerohedge.com/political/it-raises-serious-constitutional-concerns-appeals-court-re-affirms-stay-biden-vaccine)
-
-***编辑/校对/发稿：遍地开花***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/十一月历-1.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-1.jpg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

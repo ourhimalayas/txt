@@ -2,32 +2,43 @@
 ---
 
 
-## 气候特使约翰·克里从中共奴隶劳动中获益再受参议员质询
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1662993/)
+## CDC承认无记录表明未接种疫苗的人从Covid康复后传播了Covid
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1663054/)
 
-#### 撰稿：彩虹
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-41.jpg)图片来源：时代杂志
-根据政府披露的信息，拜登的气候特使约翰·克里（John Kerry）和他的妻子在高瓴中国价值基金（Hillhouse China Value Fund L.P.）持有超过100万美元的投资，而高瓴中国价值基金是隆基绿能科技（Longi Green Energy Technology）公司的大股东之一。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/106856785-16161779612021-03-19t181310z_885711556_rc2iem9sbh4l_rtrmadp_0_usa-biden-georgia.jpeg)
 
-11月13日，《新闻极限》报道来自內布拉斯加州的参议员本·萨斯（Ben Sasse）写信给克里，表达对此问题的关切，要求克里回答与中共交易中获益形成的“潜在利益冲突”问题。
 
-根据福克斯新闻的报道，由于隆基绿能科技公司的产品被指控与“已知使用强迫劳动”的公司有关联，从而来自这家中共国太阳能电池板制造商的进口商品被海关和边境保护局（CBP）扣押。
 
-萨斯在信中写道，如果克里投资的报告是准确的，那么“不撤资会引起严重的道德和伦理问题，并可能在….个人经济利益和…解决中共严重侵犯人权的努力之间产生冲突。
+图片来源：Carlos Barria | Reuters
 
-萨斯指出：“关于你积极游说国会议员，反对禁止进口由强迫维吾尔族人制造的中共国商品的未表决立法的报道，非常令人震惊，这更加强化了对利益冲突进行更为仔细审查的必要性”。
 
-萨斯信中表示，克里对“行政部门的能源和气候政策有很大的影响力”，而他在高瓴的投资“表明你个人可能从与中共达成的任何气候协议中获益，（因为）这些协议增加了对强迫维吾尔族人劳动生产的太阳能电池板的需求”。
+#### 编译：小红帽
 
-信中更为鲜明的是，萨斯说：“你和我都明白，中共知道美国官员的个人经济利益是谈判中（可以利用）的把柄，可以用来削弱美国在其他重要问题上主张的影响力。当中共继续对新疆维吾尔人和其他穆斯林实施种族灭绝的时候，我们不无理由地问，（你的）这种潜在的利益冲突是否会无意中向中共发出信号，即你可能愿意用气候协议的进展换取对关键人权问题的沉默”。
+疾病预防控制中心(CDC)承认，没有未接种疫苗的人在从中共病毒(Covid-19)康复后传播中共病毒的记录，以回应一名律师的信息自由法案（FOIA）请求。
 
-在信的最后，为解决信中这些关切，萨斯向克里提出了一系列的问题。
+美国纽约的一位律师在9月提出了一份信息自由法案请求，要求疾病预防控制中心提供文件，以 “反映符合以下情况的任何记录在案的个人：（1）从未接种过中共病毒疫苗；（2）曾经感染过中共病毒，康复后又再次感染；（3）再次感染时将中共病毒传播给另一人”。
 
-**新闻来源**
+疾控中心回应说：“对我们的记录进行搜索后，没有发现任何与你的要求有关的文件。[疾病预防控制中心紧急行动中心（EOC）表示不会收集这些信息](https://twitter.com/MichaelPSenger/status/1458953737397948418?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1458953737397948418%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fhumansarefree.com%2F2021%2F11%2Fcdc-admits-it-has-no-record-of-an-unvaccinated-person-spreading-covid-after-recovering-from-covid.html)。”
 
-[Sasse Sounds Alarm on Kerry’s Investment Ties to Chinese Slave Labor](https://www.newsmax.com/us/john-kerry-climate-czar-slave-labor-investment/2021/11/13/id/1044518/)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/FD8-lm9VQAIoy1F.jpg)图片来源：[@MichaelPSenger](https://twitter.com/MichaelPSenger) 推特
+
+
+今年初发表的一项检查[中共病毒康复者T细胞反应的研究](https://pubmed.ncbi.nlm.nih.gov/33594378/)显示，自然免疫力比接种疫苗能对中共病毒提供更好地保护。
+
+自然免疫并不会让大药厂赚钱，这就是为什么拜登政权和疾控中心从不谈论它的原因。
+
+**参考新闻：** [CDC Admits It Has No Record of an Unvaccinated Person Spreading Covid After Recovering From Covid (humansarefree.com)](https://humansarefree.com/2021/11/cdc-admits-it-has-no-record-of-an-unvaccinated-person-spreading-covid-after-recovering-from-covid.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
