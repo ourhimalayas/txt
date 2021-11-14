@@ -2,22 +2,37 @@
 ---
 
 
-## 疫苗暴政：拉脱维亚禁止未接种疫苗的议员参加议会投票并暂停其薪水
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1662963/)
+## 新中国联邦战友真正拥有G系列
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1662979/)
 
-#### 翻译/撰稿：zzballack
+作者： 纽约香草山农场 – 四季
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-10.jpg)图片来源：Sawah Press
-据《布雷特巴特新闻网》（Breitbart News）11月13日报道，拉脱维亚议会11月12日投票决定，拒绝接种新冠疫苗的议员将被禁止参加议会投票和讨论。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-拉脱维亚议会发表声明说：“从11月15日起，议员只有在提交了疫苗接种证明或新冠康复证明后，才有权参与议会工作。否则将被暂停支付月薪和补偿金，并被禁止参与议会投票。”这项法律获得了100名议员中的62人支持，将至少持续到明年7月1日，该法案同样适用于地方议会官员。
 
-该法案的发起人、议员贾尼斯·兰坎斯（Juris Rancāns）说，有必要增强公众对疫苗接种计划的信心。
 
-据欧洲新闻台 (Euronews)报道，拉脱维亚是欧盟国家中新冠疫苗接种率最低的国家之一。该国只有53.6%的人接种了两剂疫苗，而欧盟的平均接种率为64.9%。拉脱维亚媒体Leta报道说，未接种疫苗的人在参加公共和私人活动、进入商店和接受面授教育方面将受到限制。
+11月12日，郭文贵先生在大直播中说，新中国联邦人的投资涵盖了整个G系列，成为真正的主人。而不会像某社交媒体，把最初80%的小股东排挤出去。那些小股东承担了高风险，但被资本运作后，却失去了获得巨额回报的机会。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1114AM（1-5、7-9，無新聞6）視頻備用.001-4.jpeg)
+郭先生说，战友在G系列的占比，分别是，喜联储占60%，盖特占90%，GTV占 99%，GCLUB 占90%，G-Fashion 占50% 并掌管客服的维护运行。此外，战友掌握10亿个喜币中的6亿个，所有战友还拥有喜联储 5% 以及盖特5% 的份额。
 
-新闻来源：[Covid Tyranny: Unvaxed Politicians Banned from Voting in EU’s Latvia, Pay Suspended](https://www.breitbart.com/europe/2021/11/13/latvia-bans-unvaccinated-mps-from-voting-in-parliament/)
+郭先生表示，在人类面临新秩序重建的时刻，新中国联邦走在最前沿，G系列已经把新中国联邦人集结在一起。
+
+参考链接：[2021年11月12日 文贵大直播](https://gtv.org/video/id=618e6c5fe7e770379233c262)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

@@ -2,39 +2,32 @@
 ---
 
 
-## 沈南鹏全家已被抓，被迫变卖资产将资金撤回中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1662981/)
+## 气候特使约翰·克里从中共奴隶劳动中获益再受参议员质询
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1662993/)
 
-作者： 波士顿五月花 — 葛朗台太太
+#### 撰稿：彩虹
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-41.jpg)图片来源：时代杂志
+根据政府披露的信息，拜登的气候特使约翰·克里（John Kerry）和他的妻子在高瓴中国价值基金（Hillhouse China Value Fund L.P.）持有超过100万美元的投资，而高瓴中国价值基金是隆基绿能科技（Longi Green Energy Technology）公司的大股东之一。
 
+11月13日，《新闻极限》报道来自內布拉斯加州的参议员本·萨斯（Ben Sasse）写信给克里，表达对此问题的关切，要求克里回答与中共交易中获益形成的“潜在利益冲突”问题。
 
+根据福克斯新闻的报道，由于隆基绿能科技公司的产品被指控与“已知使用强迫劳动”的公司有关联，从而来自这家中共国太阳能电池板制造商的进口商品被海关和边境保护局（CBP）扣押。
 
-近日，中文媒体纷纷报道红杉资本沈南鹏抛售资产套现的新闻。在11月12日文贵大直播中，郭先生提到沈南鹏及其家人和同事均已经被抓被威胁，沈南鹏被迫变卖资产，转移回中共。
+萨斯在信中写道，如果克里投资的报告是准确的，那么“不撤资会引起严重的道德和伦理问题，并可能在….个人经济利益和…解决中共严重侵犯人权的努力之间产生冲突。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-14-at-8.02.22-PM.png)
+萨斯指出：“关于你积极游说国会议员，反对禁止进口由强迫维吾尔族人制造的中共国商品的未表决立法的报道，非常令人震惊，这更加强化了对利益冲突进行更为仔细审查的必要性”。
 
-郭先生透露，作为风投之王红杉资本的创始人，买下半个中国互联网的沈南鹏，是总参三部专业情报人员，也是美籍華裔物理学家、美国国家科学院院士张首晟先生被杀事件的关键人物。沈南鹏是耶鲁毕业的高材生，而耶鲁是中国清华，北大，复旦等加起来的力量。沈还投资美国互联网企业，大数据，AI等，其战略绝非一般人可比，在美的影响力极大。
+萨斯信中表示，克里对“行政部门的能源和气候政策有很大的影响力”，而他在高瓴的投资“表明你个人可能从与中共达成的任何气候协议中获益，（因为）这些协议增加了对强迫维吾尔族人劳动生产的太阳能电池板的需求”。
 
-郭先生强调说，海航王健，阿里巴巴马云，红杉资本沈南鹏等，没有信仰，没有政治韬略，充其量只是个赚钱人。对于沈南鹏，中共不是六中全会才开始注意到的，而是盯了五年之久。郭先生警告：中共体制想分你的财富，绝不会放过任何人。
+信中更为鲜明的是，萨斯说：“你和我都明白，中共知道美国官员的个人经济利益是谈判中（可以利用）的把柄，可以用来削弱美国在其他重要问题上主张的影响力。当中共继续对新疆维吾尔人和其他穆斯林实施种族灭绝的时候，我们不无理由地问，（你的）这种潜在的利益冲突是否会无意中向中共发出信号，即你可能愿意用气候协议的进展换取对关键人权问题的沉默”。
 
-参考链接：[2021年11月12日 文贵大直播](https://gtv.org/video/id=618e6c5fe7e770379233c262)
+在信的最后，为解决信中这些关切，萨斯向克里提出了一系列的问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+**新闻来源**
 
-总编：Ivy001
-编辑：波士顿五月花 — 葛朗台太太
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[Sasse Sounds Alarm on Kerry’s Investment Ties to Chinese Slave Labor](https://www.newsmax.com/us/john-kerry-climate-czar-slave-labor-investment/2021/11/13/id/1044518/)
 
  
 
