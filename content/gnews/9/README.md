@@ -2,31 +2,52 @@
 ---
 
 
-## 有声|以色列科学家怒斥疫苗不良事件数据造假
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1663770/)
+## 第五上诉法院确认暂停拜登中共病毒疫苗授权
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1663877/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间11月9日，以色列计算神经科学家马坦·霍尔茨在推特上驳斥了以色列卫生部的新冠疫苗不良事件报告系统及其对应数据。
+作者：纽约香草山文艺部 – 宁文静
 
-霍尔茨认为，以色列政府的新冠疫苗不良事件数据收集工作完全是在粉饰太平，该系统的不良事件报告缺漏数据惊人。霍尔茨补充，由于原始数据缺失带来的不准确性，该系统所做的数据分析更是毫无科学性。
 
-霍尔茨解释道，以色列的疫苗不良反应报告系统远远落后于美国和欧洲。在报告不良事件的过程中，申报者只能填写一个网页表格，且填写完毕后无法进行追踪和验证，报告往往石沉大海。
 
-对此，霍尔茨表示，严重的漏报导致新冠疫苗与一些疾病之间的相关性被降低到荒谬的程度。但是，以色列的不良反应数据是美国FDA的主要参考对象之一。鉴于美国政府正试图推行5至11岁儿童用新冠疫苗，霍尔茨进一步强调，以色列这些虚假的数据会直接影响到美国孩子们的安全，进而波及全球。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-文字版原文：[以色列科学家怒斥疫苗不良事件数据造假](https://gnews.org/zh-hans/1661339/)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+11月11日，新奥尔良巡回上诉法院维持了，暂停拜登政府，对于拥有100名员工以上的公司，要求接种疫苗的强制令，驳回了拜登所谓的停止执行疫苗任务可能会导致数百人死亡的依据。
+
+巡回法院的法官库特·恩格尔哈特在意见书上写到，“这项任务过于宽泛，几乎没有试图考虑企业与人员的差异”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.2-3.jpg)
+疫苗接种强制令极具争议。拜登于11月4日宣布这条行政令，5日，德州、路易斯安那州等五个州的总检察长，和几家反对疫苗令的公司就在巡回法院提起了诉讼。他们认为，拜登政府的做法明显违反人权、违背宪法。此后该项诉讼有27个州共同参与；6日，美国第五巡回法院对拜登政府发出禁制令，暂停了该强制令，认为此举“严重越权、违宪”；要求8日下午5点之前，拜登政府对法院裁决进行答辩。
+
+目前白宫对此还未发表相关评论。德克萨斯州司法部长肯·帕克斯顿称这项历史性的裁决“是一个胜利”。
+
+参考链接：
+[U.S. appeals court affirms hold on Biden COVID-19 vaccine mandate](https://www.reuters.com/world/us/federal-appeals-court-affirms-stay-biden-vaccine-mandate-2021-11-12/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：飞虹
+编辑：文特
+校对/发稿：为真不破20
+
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

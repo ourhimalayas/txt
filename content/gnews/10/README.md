@@ -2,33 +2,50 @@
 ---
 
 
-## 有声|新中国联邦国防系统轮廓初现
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1663757/)
+## 日本或将主办美日澳印四国集团第二次面对面峰会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1663875/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-在11月12日的“文贵大直播”中，郭先生透露了新中国联邦未来国防体系的架构，部分已在洽谈中。
+作者：英国喜庄园 – I770775
 
-郭先生提醒华人同胞，中共向世界释放病毒，迄今超过500万人因此失去生命，随之而来的疫苗灾难带来的损失还无法估量。各国经济遭受重创，生活秩序彻底被破坏。这一切，都可能导致排华思潮的抬头。新中国联邦必须为此做好准备，国防体系将应运而生。
 
-郭先生强调，新中国联邦国防系统，将由所有的战友捐款并参与搭建。购买最先进的武器，在全世界范围内征召雇佣兵，尤其是那些因不打疫苗而被迫离开军队的美国官兵，将被聘请进行培训和管理。我们将拥有自己的机场，码头，以及海军，空军，甚至太空部队，由爆二代们操纵战斗机，潜水艇。
 
-该国防系统将惠及全球华人，包括国内有机会出逃的精英和草根，可谓意义重大。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-11月7日，郭先生参加了该项目的秘密会议，并与某顶级军工企业开始接洽。新中国联邦的国防和安保系统，正在从计划走向现实。
 
-文字版原文：[新中国联邦国防系统轮廓初现](https://gnews.org/zh-hans/1659125/)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+11月13日最新消息，由美、日、印、澳组成的四国集团领导人第二次面对面峰会，有可能将于明年春天在日本举行，四国将再次就如何应对中共，拟定共同的策略与政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-5.jpg)
+四国集团的首次峰会因疫情原因，在去年3月以视频方式举行。“四方安全对话”主要讨论了中共带来的挑战。今年9月，拜登于华盛顿主持召开四国集团领导人的首次面对面峰会，会议发表联合声明“再次承诺促进自由、开放、基于规则的秩序，使其根植于国际法，不畏惧胁迫，以巩固印太及其他地区的安全与繁荣”。
+
+据披露，日本政府已经将，成为下一次峰会东道主的意愿，传递给了其他三国政府。如果提议被采纳，新任首相岸田文雄将首次出席四国集团峰会。
+
+参考链接：
+[日本明春可能主办美日澳印四国集团第二次面对面峰会](https://www.gettr.com/post/pgue3p1a74)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：飞虹
+编辑：文特
+校对/发稿：为真不破20
+
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

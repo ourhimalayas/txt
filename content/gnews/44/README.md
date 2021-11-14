@@ -2,37 +2,20 @@
 ---
 
 
-## 新中国联邦战友真正拥有G系列
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1662979/)
+## 台湾前线｜新冠疫苗问题多 政府正视心肌炎问题
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1663025/)
 
-作者： 纽约香草山农场 – 四季
+**台灣寶島農場 港台前線關注組 / 發佈時間｜14/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-07-14.32.38.jpeg)
+**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中央流行疫情指挥中心14日公布，发生四例突破性感染，其中包含一例马来西亚籍人士完整接种科兴疫苗，另一印尼籍人士完整接种BNT疫苗。台湾突破性感染情形逐渐发生。
 
+针对青少年接种新冠疫苗致心肌炎、心包膜炎，主管机关决议暂缓12-17岁青少年接种第二剂BNT疫苗两周。美国统计显示，青少年接种第二剂BNT疫苗心肌炎发生机率高出仅接种一剂的10倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/港台前線-（TW）-4.jpg)
+* * *
 
-
-11月12日，郭文贵先生在大直播中说，新中国联邦人的投资涵盖了整个G系列，成为真正的主人。而不会像某社交媒体，把最初80%的小股东排挤出去。那些小股东承担了高风险，但被资本运作后，却失去了获得巨额回报的机会。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1114AM（1-5、7-9，無新聞6）視頻備用.001-4.jpeg)
-郭先生说，战友在G系列的占比，分别是，喜联储占60%，盖特占90%，GTV占 99%，GCLUB 占90%，G-Fashion 占50% 并掌管客服的维护运行。此外，战友掌握10亿个喜币中的6亿个，所有战友还拥有喜联储 5% 以及盖特5% 的份额。
-
-郭先生表示，在人类面临新秩序重建的时刻，新中国联邦走在最前沿，G系列已经把新中国联邦人集结在一起。
-
-参考链接：[2021年11月12日 文贵大直播](https://gtv.org/video/id=618e6c5fe7e770379233c262)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
-
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+來源｜[商周](https://www.businessweekly.com.tw/style/blog/3008286)
 
  
 

@@ -2,37 +2,36 @@
 ---
 
 
-## 盖特将成为最好的社交媒体平台
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1662980/)
+## 台湾前线｜台湾欲加入CPTPP 必须先战胜反莱猪公投
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1663055/)
 
-作者： 纽约香草山教育部 – Noemi
+**台灣寶島農場 港台前線關注組 / 發佈時間｜14/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-07-14.32.38.jpeg)
+**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+台湾12/18日将举行全国性公投，副总统赖清德表示本次公投影响台湾前途。11月13日举办了公投的辩论会，距离公投仅一个月时间，并未提供人民足够的时间了解议题。
+
+其中，“反莱猪公投”似乎事关台湾加入CPTPP。据沈荣钦于个人脸书粉丝专页的意见发表：“很多人注意到习近平最近在G20峰会和进博会分别高调宣布中国加入DEPA以及CPTPP的决心，却没有注意到习近平在其中暗含了WTO的发言目的。”
+
+沈荣钦进一步指出，是指习近平在进博会所说的“今年是中国加入世界贸易组织20周年。 20年来，中国全面履行入世承诺，中国关税总水平由15.3%降至7.4%，低于9.8%的入世承诺；中国中央政府清理法律法规2300多件，地方政府清理19万多件，激发了市场和社会活力。”
+
+他解释到习近平之所以大篇幅强调中国全面履行承诺是因为CPTPP已经表态，入会审核应该包含检视过去履行国际承诺的历史纪录。
+
+台湾有意加入CPTPP的前提下，如果通过反莱猪公投，正好给反对台湾加入的国家一个绝佳的借口，说明台湾不仅不遵守与美国的承诺多年，即使政府遵守承诺后，也可以在一年内轻易的被公投否决，这样一来，台湾加入CPTPP的承诺还有任何可信度可言？
+
+#### 外交部称：反莱猪不影响加入CPTPP是错误报导
+
+台湾外交部11月3日发[公告](https://www.mofa.gov.tw/News_Content.aspx?n=95&amp;sms=73&amp;s=96725)澄清，有关媒体错误报导“反莱猪不影响台美关系及我国加入CPTPP”事。是否接受国际标准并履行承诺，是进入包括“跨太平洋伙伴全面进步协定” （CPTPP） 等国际经贸机制及国际组织时，各国观察台湾的重要指标。
+
+#### 莱猪 是否成为健康问题
+
+外交部表示，全世界100多个国家都接受含微量莱剂、符合安全标准的猪肉，台湾也早于马政府时代即开放含微量莱剂、符合安全标准的美国牛肉进口，国人食用九年来，事实证明安全无虞。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/港台前線-（TW）-2-2.jpg)
 
 
+* * *
 
-11月12日，文贵先生在大直播中说，在未来，盖特一定是最好的视频直播社交平台。对于推特、Facebook 和 Instagram 来说，它们作为老一代的社交平台，都没有内部支付系统，需要依靠出卖用户个人数据来获取利益，这就是这些社交媒体巨头所犯下的原罪。同时，也被中共充分地利用，从而渗透并控制了这些社交媒体巨头。而我们的盖特拥有独立的支付系统，不需要销售用户的个人数据来获利。并且，人人都可以自由的发声，这使得盖特终将会取代老一代的社交平台，成为全世界民众真正的零偏见社交平台。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-14-at-7.56.12-PM.png)
-
-目前，最新版本的盖特已推出手机直播、通声字幕和5K推流等多个新功能。不久之后，instagram 和 Facebook 用户还可以运用一键平移功能，将其社交账号和小视频直接平移到盖特中来。这些功能的快速研发都将极大地扩增盖特的用户数量，盖特一定会成为未来最具商业价值的社交媒体平台。
-
-参考链接：[2021年11月12日 文贵大直播](https://gtv.org/video/id=618e6c5fe7e770379233c262)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
-
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+來源｜[沈榮欽專頁](https://www.facebook.com/JC.Shen.Canada/)
 
  
 

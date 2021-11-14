@@ -2,23 +2,34 @@
 ---
 
 
-## 11月12日文贵大直播精剪汇编——上集
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1663864/)
+## 美国制止英特尔在中共国的芯片增产计划
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1663907/)
 
-撰稿：Gradient Boost
+作者：MOS – 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月12日的消息称，拜登政府否决了英特尔在中共国内增资扩张产能的计划。据了解，英特尔原计划向白宫寻求520亿美元的政府补贴，用以增加其在成都工厂的低制程产能，但白宫官员强烈反对这一举措。
 
-视频：Angelsky
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-9.jpeg)
 
-在11月12日的大直播中，文贵先生透露了有关中国共产党六中全会的最新情报和资讯。在提到中美关系时文贵先生表示，中美领导之间即将开始跨历史性的互相攻击。在处理超级大国之间的关系时，美国在过去一直严守不直接攻击领导个人这一条底线，主要都是由媒体方面展开唇枪舌战。而这一次中共与美国双方的领导人物很可能都将相互露出真实嘴脸。
+消息显示，美国政府正在考虑建立一个对外投资的筛选机制，其中或将限制对中共的某些战略投资。另外，一项名为“CHIPS法案”的提案正在众议院等待通过。根据白宫的声明，“CHIPS法案”的目的在于，确保美国能够减少对脆弱供应链的依赖，包括在半导体方面。同时，政府希望使包含芯片在内的重要部件的生产回到美国，并以联邦资金援助的方式加强本土企业的研究和开发。
 
-在这样的背景环境之下，习神将成为影响全球政治经济的绝对不确定因素。例如在经济方面，恒大一旦破产倒闭，那么香港将首先成为经济灾难的起点，那里的股市将会大跌。我们不难想见，由此为原点向外扩散的负面经济冲击绝对是难以想象的。
+消息人士指出，美国政府非常注重防止中共利用美国的技术、知识和投资来发展侵犯人权和伤害美国国家安全的科技。为此，一些共和党立法者表示，他们正在推动“CHIPS法案”的一些附加条款，用来确保相关企业在得到资助后不会增加他们在中共国内的业务。
 
-而这也是延续了中共不把百姓当人看，自损一万杀敌一百的邪恶做法。而西方面对这样自毁式的袭击是非常脆弱的，当然这里说是自毁也并不准确，中共领导及决策者面对冲击大概早就准备好了韭菜作为挡箭牌，最终受害的，将是墙内、香港、西方乃至世界的民众。
+参考链接：[White House Spurns Intel Plan to Boost Chip Production in China](https://news.bloomberglaw.com/tech-and-telecom-law/white-house-spurns-intel-plan-to-boost-chip-production-in-china)
 
-中共国这种所谓“干大事”的独裁体制，对于西方将是一场噩梦。房地产的崩塌会如多米诺骨牌一样导致保险、信托、金融机构逐一倒下，在这样的情况下，西方金融产业不可能安然无事，而对于下一次美国的房地产危机，得救的可能微乎其微，因为已经没有人能够出手相救了。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-（文章内容仅代表作者观点，与Gnews平台无关）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
+总编：正义的小新
+编辑：Irene木木
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
