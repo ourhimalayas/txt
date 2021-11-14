@@ -2,22 +2,23 @@
 ---
 
 
-## 有声|中共疫苗灾难致大陆一线医护人员短缺
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1663785/)
+## 花旗集团前首席执行官表示：所有大银行很快就会进行加密交易
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1663842/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-郭文贵先生在11月10日的大直播中爆料，中共掩盖真实数据，大陆实际死于中共病毒的人数高达 1370万人，罹患中共病毒的人数达到7000万人。目前世界卫生组织公布的全球患中共病毒的2.5亿人和500万人的死亡数据并不包含中共国数据。中共犯下的罪行已经远超纳粹。
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-10.jpeg)
 
-郭先生透露，中共国一线医护人员因为接种疫苗而患病、住院或死亡。由于医护人员了解病毒及疫苗真相，以致大量医护人员离职，或逃离到附近的日本、越南、新加坡等周边国家，造成医疗行业人员大量短缺，给大陆整个医疗行业带来巨大冲击。
+今日，前花旗集团首席执行官维克拉姆·潘迪特，在新加坡举行的技术会议上预测，世界所有主要银行都将在“一到三年内”开始加密交易。 他在接受彭博社记者采访时表示，为了能继续主导银行和金融交易领域，大型银行业不愿意接受加密货币的情况可能很快就会被扭转。 潘迪特在2007年至2012年期间领导花旗集团，现在出任他共同创立的The Orogen Group的董事长，他对彭博社表示，每家大型银行或证券公司，都会积极思考‘我是否也应该交易和出售加密货币资产’。这种情况已经在许多地方发生。 据Markets Insider首次报道，上周，澳大利亚最大的银行联邦银行宣布，它将很快为其650万客户提供交易加密货币的机会，而高盛、富国银行和富达一直在聘请大量加密货币专家。
 
-中共病毒给全世界带来深重灾难，每一个数字背后都是一个鲜活的生命，多少家庭因为中共病毒而支离破碎！中共不灭亡，世界永无宁日。
+参考链接：[All big banks will be crypto trading soon: Former Citigroup CEO](https://www.thestreet.com/investing/all-big-banks-will-be-crypto-trading-soon-former-citigroup-ceo-vikram-pandit-says)
 
-文字版原文：[中共疫苗灾难致大陆一线医护人员短缺](https://gnews.org/zh-hans/1659651/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编：飞虹
+编辑：Lakeman（文仁）
+校正/发稿：谐趣园
+
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
