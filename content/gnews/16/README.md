@@ -2,10 +2,10 @@
 ---
 
 
-## 纳瓦罗：美国与中共正处于战争状态而非竞争关系
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664274/)
+## 盖特将凭借言论自由的主旨和免费新功能成为“推特杀手”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664286/)
 
-11/11/2021 中共病毒是故意释放，我们与中共国是战争中而非竞争。中共国是持续的威胁。
+11/13/2021 杰森·米勒介绍盖特（GETTR）的迅猛发展，其言论自由的主旨以及即将推出的免费新功能，必将成为“推特杀手”
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

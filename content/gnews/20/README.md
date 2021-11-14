@@ -2,10 +2,10 @@
 ---
 
 
-## NBA球星坎特：我们必须与台湾站在一起，支持台湾
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664237/)
+## 年轻漂亮女孩接种辉瑞疫苗后患上面瘫
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664257/)
 
-11/12/2021 NBA球星坎特：我们必须与台湾站在一起，支持台湾，捍卫民主。台湾的未来必须由台湾人民决定。
+11/13/2021 一位漂亮的年轻女孩儿在接种辉瑞疫苗后患了面瘫
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

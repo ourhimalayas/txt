@@ -15,80 +15,80 @@
 
 ---
 
-### [2021/11/10 班农专访7: 六中全会是中共独裁和权力的斗争](/content/gnews/1/README.md)
+### [2021/11/10 班农专访5: 多米诺效应的关键是影子银行和房地产](/content/gnews/1/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [焦点：中共防化人员潜入美国西部伺机放毒！](/content/gnews/2/README.md)
+### [田纳西州州长签署法律禁止COVID-19疫苗护照](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021/11/10 班农专访7: 六中全会是中共独裁和权力的斗争](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [焦点：中共防化人员潜入美国西部伺机放毒！](/content/gnews/4/README.md)
  ` 丁过`
 
-### [2021/11/10 班农专访8: 欧盟代表团首次正式访问台湾](/content/gnews/3/README.md)
+### [2021/11/10 班农专访8: 欧盟代表团首次正式访问台湾](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [由于病毒病例激增，挪威将恢复COVID-19证书](/content/gnews/4/README.md)
+### [由于病毒病例激增，挪威将恢复COVID-19证书](/content/gnews/6/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [纳瓦罗重申中共是现存威胁，驳斥“竞争方”、“步调挑战”论调](/content/gnews/5/README.md)
+### [纳瓦罗重申中共是现存威胁，驳斥“竞争方”、“步调挑战”论调](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [医生：疾控中心重新恢复口罩令就是因为疫苗无效](/content/gnews/6/README.md)
+### [医生：疾控中心重新恢复口罩令就是因为疫苗无效](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [由于冠状病毒，2.5万吨塑料污染了海洋](/content/gnews/7/README.md)
+### [由于冠状病毒，2.5万吨塑料污染了海洋](/content/gnews/9/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [美国一些主要城市发生针对亚洲人的疯狂袭击和可怕罪行](/content/gnews/8/README.md)
+### [美国一些主要城市发生针对亚洲人的疯狂袭击和可怕罪行](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [拜登陷入困境，一半美国人归咎于他的通货膨胀](/content/gnews/9/README.md)
+### [拜登陷入困境，一半美国人归咎于他的通货膨胀](/content/gnews/11/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [习近平的第三任期及俄罗斯军事活动令人担忧](/content/gnews/10/README.md)
+### [习近平的第三任期及俄罗斯军事活动令人担忧](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共火星计划给其他国家带来压力，或形成激烈太空竞赛](/content/gnews/11/README.md)
+### [中共火星计划给其他国家带来压力，或形成激烈太空竞赛](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [mRNA疫苗发明者暗示CNN与辉瑞勾结](/content/gnews/12/README.md)
+### [mRNA疫苗发明者暗示CNN与辉瑞勾结](/content/gnews/14/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [墨尔本民众大规模抗议疫苗强制令和拟定中的流行病法案](/content/gnews/13/README.md)
+### [墨尔本民众大规模抗议疫苗强制令和拟定中的流行病法案](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [盖特将凭借言论自由的主旨和免费新功能成为“推特杀手”](/content/gnews/14/README.md)
+### [盖特将凭借言论自由的主旨和免费新功能成为“推特杀手”](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中国教师下岗潮即将到来](/content/gnews/15/README.md)
+### [中国教师下岗潮即将到来](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [纳瓦罗：美国与中共正处于战争状态而非竞争关系](/content/gnews/16/README.md)
+### [纳瓦罗：美国与中共正处于战争状态而非竞争关系](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [上百名美国幼童被接种了错误剂量的中共病毒疫苗](/content/gnews/17/README.md)
+### [上百名美国幼童被接种了错误剂量的中共病毒疫苗](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [年轻漂亮女孩接种辉瑞疫苗后患上面瘫](/content/gnews/18/README.md)
+### [年轻漂亮女孩接种辉瑞疫苗后患上面瘫](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文贵爆料 11.14：战友们只有联合才能安全](/content/gnews/19/README.md)
+### [文贵爆料 11.14：战友们只有联合才能安全](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [NBA球星坎特：我们必须与台湾站在一起，支持台湾](/content/gnews/20/README.md)
+### [NBA球星坎特：我们必须与台湾站在一起，支持台湾](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [福奇坚持否认武毒所功能增强型研究定义，否认对疫情的责任](/content/gnews/21/README.md)
+### [福奇坚持否认武毒所功能增强型研究定义，否认对疫情的责任](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文贵爆料 11.14：疫苗危机在明年五月爆发的缘由、情况以及如何防范](/content/gnews/22/README.md)
+### [文贵爆料 11.14：疫苗危机在明年五月爆发的缘由、情况以及如何防范](/content/gnews/24/README.md)
  ` 秘密翻译组-原创组`
 
-### [格雷格·凯利：司法部用荒唐的起诉来骚扰班农先生](/content/gnews/23/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [2021/11/10 班农专访9: 中共国内备粮备荒，准备应付灾难](/content/gnews/24/README.md)
+### [2021/11/10 班农专访9: 中共国内备粮备荒，准备应付灾难](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [第五巡回上诉法院裁定：维持对拜登疫苗强制令的临时禁令](/content/gnews/25/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [澳大利亚表示将协助美国保卫台湾](/content/gnews/26/README.md)
  ` HimalayaRussia`

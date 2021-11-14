@@ -2,10 +2,10 @@
 ---
 
 
-## 年轻漂亮女孩接种辉瑞疫苗后患上面瘫
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664257/)
+## 纳瓦罗：美国与中共正处于战争状态而非竞争关系
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664274/)
 
-11/13/2021 一位漂亮的年轻女孩儿在接种辉瑞疫苗后患了面瘫
+11/11/2021 中共病毒是故意释放，我们与中共国是战争中而非竞争。中共国是持续的威胁。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
