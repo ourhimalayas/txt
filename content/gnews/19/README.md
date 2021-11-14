@@ -2,10 +2,10 @@
 ---
 
 
-## 黑色森林
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1663303/)
+## 史蒂夫·班农被以藐视众议院传票起诉
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1663311/)
 
-原创：铁蛋儿
+11/12/2021 政治战略师史蒂夫·班农因为拒绝作证或提供关于1月6日国会山事件的文件而被起诉。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

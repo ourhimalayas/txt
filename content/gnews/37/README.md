@@ -2,30 +2,43 @@
 ---
 
 
-## 马云的结局
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1663000/)
+## CDC承认无记录表明未接种疫苗的人从Covid康复后传播了Covid
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1663054/)
 
-**【郭先生直播摘要】马云的结局**
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-**郭先生：**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/106856785-16161779612021-03-19t181310z_885711556_rc2iem9sbh4l_rtrmadp_0_usa-biden-georgia.jpeg)
 
-马云回到香港，然后这两天要回大陆了。这个马云真的是身体也出问题了，出了大问题了，我觉得这种情况下不可能不出问题的。马云的每时每刻我们都知道，马云的事情会很大，马云最后只有两个：一个共产党把他做掉；一个马云跑到美国来；他没有第三条路，结局一定如此。而且会引发上海帮和私营企业家之间最后的对决，这个对决战友们你们要看到。
 
-就像我说的，你现在说我们，有些战友不坚定地说我们又不能贴现了，又是这个币不值钱了，又是假了，是虚拟币就是空气了。一个最好的办法：从小你就知道，我觉得你只要是个人就懂的道理，远离骗子！远离小偷！不是最好的方式嘛？你远离我们不就完了吗？你别搭理我不就完了吗？你别被我们骗不就完了吗？把钱拿走别理我们，别看我们，去看路大脑骗、蛇妖闫。
 
-马云这个是一样的，头一段时间，咱那个哥们其中一个人说：“欸！老郭呀，马云真的对你是绝顶地佩服，他(马云)发自内心地尊敬你、佩服你”，这是绝对是德高望重之士跟我说这话。说到这，这个这哥们眼泪都下来了。他说你看我不会骗你的，他说马云太可怜。他说当别人说你是骗子的时候，马云说：“这帮傻掰，他说郭文贵拿啥骗你？骗你啥？”他说，你知道我当时很感动，一屋子的人，马云说这话。他说，“欸 那帮傻货，他说共产党还这么诋毁郭文贵，他这样的人骗你啥？ 拿啥骗你？”最后这个哥们说：“你知道马云的代价是什么？结局是什么？”我说马云被共产党做掉，或者他跑到美国来，没有任何第三条！
+图片来源：Carlos Barria | Reuters
 
-这个哥们有多少钱呢？拿了马云30亿美元。他的基金里边帮马云投资，也被共产党和马云通知把钱拿回来。不会超过一个月，你会看到一个世界级的品牌，会卖掉很便宜，跟你们都有关系的，这个公司就是马云的。你们会很震惊，我现在不说，因为他跟我这朋友有关系，现在已经打了5折了，要现金。
 
-* * *
+#### 编译：小红帽
 
-视频剪辑：小蜜蜂
-听写：小蜜蜂
-翻译：阿基米德
-校对：烟波浩淼
-字幕+视频制作：CG
-编辑：烟波浩淼
-发布：文鸣
+疾病预防控制中心(CDC)承认，没有未接种疫苗的人在从中共病毒(Covid-19)康复后传播中共病毒的记录，以回应一名律师的信息自由法案（FOIA）请求。
+
+美国纽约的一位律师在9月提出了一份信息自由法案请求，要求疾病预防控制中心提供文件，以 “反映符合以下情况的任何记录在案的个人：（1）从未接种过中共病毒疫苗；（2）曾经感染过中共病毒，康复后又再次感染；（3）再次感染时将中共病毒传播给另一人”。
+
+疾控中心回应说：“对我们的记录进行搜索后，没有发现任何与你的要求有关的文件。[疾病预防控制中心紧急行动中心（EOC）表示不会收集这些信息](https://twitter.com/MichaelPSenger/status/1458953737397948418?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1458953737397948418%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fhumansarefree.com%2F2021%2F11%2Fcdc-admits-it-has-no-record-of-an-unvaccinated-person-spreading-covid-after-recovering-from-covid.html)。”
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/FD8-lm9VQAIoy1F.jpg)图片来源：[@MichaelPSenger](https://twitter.com/MichaelPSenger) 推特
+
+
+今年初发表的一项检查[中共病毒康复者T细胞反应的研究](https://pubmed.ncbi.nlm.nih.gov/33594378/)显示，自然免疫力比接种疫苗能对中共病毒提供更好地保护。
+
+自然免疫并不会让大药厂赚钱，这就是为什么拜登政权和疾控中心从不谈论它的原因。
+
+**参考新闻：** [CDC Admits It Has No Record of an Unvaccinated Person Spreading Covid After Recovering From Covid (humansarefree.com)](https://humansarefree.com/2021/11/cdc-admits-it-has-no-record-of-an-unvaccinated-person-spreading-covid-after-recovering-from-covid.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

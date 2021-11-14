@@ -2,30 +2,40 @@
 ---
 
 
-## 日本正在推进机器人服务及非接触性支付
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1662923/)
+## 沈南鹏全家已被抓，被迫变卖资产将资金撤回中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1662981/)
 
-#### 撰稿：东京樱花团/闻雨
-![](https://assets.gnews.org/wp-content/uploads/2021/11/23-1.png)（图片来源与本文链接）
-日本餐饮业正在积极迅速地引进机器人及其他“非接触式”的服务。这样既可以防止中共病毒的传播，又可以提高餐厅的运营效率。
+作者： 波士顿五月花 — 葛朗台太太
 
-人们熟悉的在餐馆里服务员亲自上前为客人服务的场景，在中共病毒灾难发生后，即将发生巨大变化。到2022年底，Skylark 控股集团计划在大约2000家餐厅安装机器人，其中包括家庭餐厅Gusto。该公司表示，引入机器人不仅有助于预防传染，还能让员工腾出时间从事其他工作，如处理账单。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-餐饮连锁店 Watami也在自己的烤肉店开始使用机器人。该公司减少了客人和员工之间的接触。这并不是唯一的“非接触”方法。寿司的连锁店，诸如Sushiro和Kura-zushi等使用智能手机来预订和自助结账系统来确认顾客的到来。
 
-很多个体商户也在忙着引进无现金结账，以尽可能减少现金交易。根据Recruit Holdings的数据，截至6月底，拥有接受包括二维码在内的多种支付方式的“Air Pay”终端的商店数量比去年同月末增加了41.6%。这个数字还在继续攀升。
 
-日本民间为了减少中共病毒的传播，尝试着各种办法，例如：全民戴口罩，每家店铺入口处都准备着消毒液等等，现在又尝试着提供机器人服务和“非接触性”支付。
+近日，中文媒体纷纷报道红杉资本沈南鹏抛售资产套现的新闻。在11月12日文贵大直播中，郭先生提到沈南鹏及其家人和同事均已经被抓被威胁，沈南鹏被迫变卖资产，转移回中共。
 
-特别值得关注的是，日本是一个非常保守的国家，在中共病毒肆虐之前，很多日本人是不愿意接受现金以外的支付方式的，为了减少接触，降低被传染的机率，人们不得不接受新的支付方式，因此用数字货币支付是大趋势，将势不可挡，对推广我们的Hpay来说，绝对是一个大好消息。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-14-at-8.02.22-PM.png)
 
-信息来源：
+郭先生透露，作为风投之王红杉资本的创始人，买下半个中国互联网的沈南鹏，是总参三部专业情报人员，也是美籍華裔物理学家、美国国家科学院院士张首晟先生被杀事件的关键人物。沈南鹏是耶鲁毕业的高材生，而耶鲁是中国清华，北大，复旦等加起来的力量。沈还投资美国互联网企业，大数据，AI等，其战略绝非一般人可比，在美的影响力极大。
 
-[「非接触」の接客、急拡大　感染防止と運営効率化―外食業界](https://www.jiji.com/jc/article?k=2021111300462&amp;g=eco)
+郭先生强调说，海航王健，阿里巴巴马云，红杉资本沈南鹏等，没有信仰，没有政治韬略，充其量只是个赚钱人。对于沈南鹏，中共不是六中全会才开始注意到的，而是盯了五年之久。郭先生警告：中共体制想分你的财富，绝不会放过任何人。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+参考链接：[2021年11月12日 文贵大直播](https://gtv.org/video/id=618e6c5fe7e770379233c262)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+
+总编：Ivy001
+编辑：波士顿五月花 — 葛朗台太太
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

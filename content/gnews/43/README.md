@@ -2,25 +2,37 @@
 ---
 
 
-## 成为喜币的主人
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1662866/)
+## 新中国联邦战友真正拥有G系列
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1662979/)
 
-作者：道行天下
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-27.jpg)
-相信跟随爆料革命的七万多战友这段时间每天生活在兴奋之中，能体会躺着赚钱的快乐，能每天起床拿着计算器算着自己财富增长的快乐，我们除了感恩七哥，更为自己相信与跟随而自豪。 四年多的跟随，四年多的验证，四年多的增智，今天巨额财富的拥有以及成为世界上最有希望的无苗族，我们必须知道跟随伟大的意义。我们应清楚认识七哥的良苦用心，喜币是检测真战友最好试真石。 七哥再次说到能走到最后喜马拉雅山顶的人会不到百分之五，这是七哥能预见灭共的艰难性以及人性的弱点。相信跟随爆料革命的战友们都是因为内心的正义、良知和觉醒，今天拥有的这一切是对正义的回报，但是这一切仅仅只是开始。喜币是筛选未来新中国脊梁和筛选新中国真正贵族的过程，守得住喜币，才能成为其中的一员。 要想守得住喜币必须有以下的特质：
+作者： 纽约香草山农场 – 四季
 
-1、相信爆料革命，有坚定的信仰。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-2、在财富面前心如止水，知道财富的价值与意义。
 
-3、非投机主义者，知道喜币的意义和责任。
 
-4、厚德载物，有承受与驾驭巨额财富的能力。 而投机主义者，心邪不坚定者会纷纷落马。
+11月12日，郭文贵先生在大直播中说，新中国联邦人的投资涵盖了整个G系列，成为真正的主人。而不会像某社交媒体，把最初80%的小股东排挤出去。那些小股东承担了高风险，但被资本运作后，却失去了获得巨额回报的机会。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1114AM（1-5、7-9，無新聞6）視頻備用.001-4.jpeg)
+郭先生说，战友在G系列的占比，分别是，喜联储占60%，盖特占90%，GTV占 99%，GCLUB 占90%，G-Fashion 占50% 并掌管客服的维护运行。此外，战友掌握10亿个喜币中的6亿个，所有战友还拥有喜联储 5% 以及盖特5% 的份额。
 
-要永久拥有喜币必须拥有以下考验，在喜币升到十万，能平静面对，在喜币降到一块，能心平气和，只有这样，我们才能真正成为喜币的拥有者，成为他的主人，而不是成为他的奴隶！
+郭先生表示，在人类面临新秩序重建的时刻，新中国联邦走在最前沿，G系列已经把新中国联邦人集结在一起。
 
-审核校对：Barry Jack
-上传排版：F
+参考链接：[2021年11月12日 文贵大直播](https://gtv.org/video/id=618e6c5fe7e770379233c262)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 
