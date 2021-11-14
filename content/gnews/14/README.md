@@ -2,29 +2,40 @@
 ---
 
 
-## 曾说不会在未接种疫苗人的葬礼上哭泣的心脏病专家在接种第三针中共病毒疫苗后梦中离世
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1662381/)
+## 中共国江西一集中隔离住户，留家柯基犬被入室打死
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662394/)
 
-翻译: 波士顿五月花  jiasen
+**【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-12-scaled.jpg)**Cardiologist Who Said He ‘Won’t Cry at Funeral’ For “Selfish” Unvaccinated People Suddenly Dies in His Sleep 2 Weeks After 3rd Covid Jab**
-www.thegatewaypundit.com
+![](https://assets.gnews.org/wp-content/uploads/2021/11/柯基犬.jpg)图片来源：动物资讯百科网
 
-加拿大新不伦瑞克省一名 52 岁的著名心脏病专家在接受第三次中共病毒疫苗仅两周后，突然在睡梦中离世。
+编辑：**Kelly**
 
-整个夏天，索拉博·卢奇梅迪尔（ Sohrab Lutchmedial ）医生都在不停地攻击那些选择不接种中共病毒疫苗的自私者。他曾在 2021 年 7 月的一条推文中说：“对于那些因为自私而不接种疫苗的人，无论如何，我不会在他们的葬礼上哭泣。”
+据中共国澎湃新闻报道：
 
-这位医生意外地于 11 月 8 日去世，仅在接受第三次疫苗注射两周后。根据脸书发布的一个帖子，他于 10 月 24 日接种了第三针中共病毒疫苗。
+11月13日，江西上饶信阳区通报主人隔离留家柯基犬被扑杀一事：工作人员未充分沟通将狗进行无害化处置，已调离相应岗位，责令向当事人诚恳道歉。
 
-据加拿大媒体报道，卢奇梅迪尔医生的朋友、家人和同事对他的突然死亡感到震惊。加拿大广播公司新闻报道如下：同事们表示——著名心脏病专家的去世，为医院系统内和社区留下了巨大的缺口。卢奇梅迪尔医生为新不伦瑞克心脏病中心和心脏病患者的治疗奉献了 20 多年。我们怀着悲痛的心情报告卢奇梅迪尔，这位同事、朋友、父亲、伙伴和鼓舞人心的灵魂突然意外死亡。新不伦瑞克心脏病中心心脏外科主任让-弗朗索瓦·莱加雷证实，卢奇梅迪尔于周一在圣约翰的家中梦中离世，享年 52岁 。
+前情回顾，来自中共国新闻晨报报道：
 
-新闻来源: [Cardiologist Who Said He ‘Won’t Cry at Funeral’ For “Selfish” Unvaccinated People Suddenly Dies in His Sleep 2 Weeks After 3rd Covid Jab](https://www.thegatewaypundit.com/2021/11/cardiologist-said-wont-cry-funeral-selfish-unvaccinated-people-suddenly-dies-sleep-2-weeks-3rd-covid-jab/)
+11月12日，有微博网友发文称，江西省上饶市信州区金凤花园小区一住户在酒店隔离期间，其所养的小狗在家中遭身穿防护服的人员持铁棍敲打头部，疑似被扑杀。
 
-* * *
+11月13日，上饶市12345市政府服务热线一名工作人员告诉记者，11月12日晚上，他们已陆续接到此事的相关投诉。对于宠物情况如何，其表示暂不清楚。目前，信州区相关部门正在调查。
 
-*素材来源：**jiasen*
+前述微博网友发文称，11月12日零时许，金凤花园一名住户接通知要求去酒店隔离，但不允许携带宠物。隔离前，该住户经反复确认，其所养的小狗只要拴好，工作人员则只负责消杀工作，不会将小狗带走或处理。但在12日16时40分许，两个身穿防护服的人撬门进入家中想把小狗带走，小狗挣脱绳子，两人便拿着铁棍敲打小狗头部。目前，小狗情况不明。
 
-*编辑**& 发布：jamie(文胤)*
+对于“撬门入室”这一说法，前述上饶市12345市政府服务热线工作人员表示该说法不准确。她解释，金凤花园因出现新冠确诊病例，实施封控工作，全小区需要实施消杀工作。“每家每户都需要进去消毒。”
+
+早前报道，11月13日早间，信州区疫情防控指挥部办公室工作人员表示，金凤花园小区有新冠肺炎确诊病例，要求对全小区人员进行隔离，全小区进行消杀。居民室内消杀工作和宠物如何处理由小区所在的居委会和居民沟通，然后街道办会安排防疫工作人员上门消杀。
+
+这名工作人员还称，网友反映的防疫工作人员击打宠物头部等情况暂时未接收到相关信息，相关情况会试图去了解。
+
+*发布：热锅小蚂蚁*
+
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
