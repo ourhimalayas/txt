@@ -2,77 +2,25 @@
 ---
 
 
-## 【诗歌】临冬
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1661770/)
+## “莫德纳加强剂疫苗”获加拿大卫生部批准
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1661897/)
 
-**作者：修罗闻道**
+采编：青青     编译撰稿：文明(添草灭共)
 
-[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/ca0f4fe5-0885-4586-a377-08864b5f5b6f.jpg?asset_id=4748bedd-be58-46f1-8d0c-0484c7427b48&amp;img_etag=%2246b44a3c574e50b7e9e9cf279d6d787a%22&amp;size=2560)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/ca0f4fe5-0885-4586-a377-08864b5f5b6f.jpg?asset_id=4748bedd-be58-46f1-8d0c-0484c7427b48&amp;img_etag=%2246b44a3c574e50b7e9e9cf279d6d787a%22&amp;size=1024)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/10/mdn-edited.jpg)图片来源：CTV
 
-这一年仿佛是残缺的
 
-秋天还没来得及挣扎
+据加拿大媒体《CTV新闻》11月12日报道，【加拿大卫生部】当天宣布：批准【莫德纳公司】生产的“新冠病毒”疫苗将用于该国成年人的加强剂接种计划。
 
-就被迅速抹杀
+据悉，此前“辉瑞加强剂”在11月9日已获得联邦政府批准，且二者都属于“mRNA”类型疫苗。按照目前【加拿大卫生部】的规定，“辉瑞加强针”是全剂量，而“莫德纳加强针”则为50微克，仅为常规疫苗剂量的一半。 
 
-从夏热到冬寒
+报道指出，尽管当局此次批准的“莫德纳加强剂疫苗”适用于年龄在18岁以上，并且前两剂接种完成于六个月以前的人群。但【加拿大免疫咨询委员会】却只建议“高风险群体”包括：养老院住户，70岁以上人群，免疫力弱的个体和两剂接种之间相隔较短的一线医护人员等，接种该加强剂疫苗。
 
-一瞬间
+* * *
 
-这一世仿佛是梦幻的
+校对编辑，发稿：硫酸羟氯喹64
 
-繁荣鼎盛锣鼓喧天
-
-转瞬间愁容惨淡
-
-盛世到炼狱
-
-一路骗
-
-他们先将自己欺骗
-
-再去欺骗
-
-相信他们的人
-
-周而复始
-
-他们要欺骗全世界
-
-可临冬的寒冷
-
-不会被欺骗
-
-也不会去欺骗
-
-整个世界
-
-只有冷
-
-冷的真实
-
-不虚伪
-
-无论你想共产
-
-还是想特色
-
-在寒冬里
-
-只有瑟瑟发抖
-
-等待审判
-[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/c767eaed-2e9d-4cd8-9ef2-5a41e5e4f85a.png?asset_id=e1ac15f4-cf69-4de3-8393-583fbf4c1608&amp;img_etag=%22a1a3e4a1050ad02b89de5004bf3a9559%22&amp;size=2560)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/c767eaed-2e9d-4cd8-9ef2-5a41e5e4f85a.png?asset_id=e1ac15f4-cf69-4de3-8393-583fbf4c1608&amp;img_etag=%22a1a3e4a1050ad02b89de5004bf3a9559%22&amp;size=1024)
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*校对：穆清|审核：文明明| Page：小六月*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
-
-[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
-
+[原文链接：](https://www.ctvnews.ca/health/coronavirus/moderna-covid-19-vaccine-approved-for-booster-shot-health-canada-1.5663702)
 
  
 
