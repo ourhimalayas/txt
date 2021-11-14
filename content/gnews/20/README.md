@@ -2,30 +2,40 @@
 ---
 
 
-## 宏都拉斯总统访台 中共军机日夜扰台
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1662249/)
+## 世上最大3D打印社区将于明年在德克萨斯州奥斯汀动工
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662286/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-9.jpg)宏都拉斯总统访台 中共军机日夜扰台 网络图片
-据台湾中央广播电台11月14日报道，宏都拉斯总统叶南德兹12日率团访台。这是疫情爆发以来，第一个来自拉丁美洲友邦的总统访团。13日就有6架次中共军机侵扰台湾。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-台湾国防部自去年9月17日起，在官网“即时军事动态”专区发布中共军机动态。据统计，10月1日共38架次共机扰台；10月2日39架次；10月3日16架次；10月4日56架次。这也是自国防部公布“即时军事动态”以来，架次最多的一次。
-
-中共自己在国际社会不受欢迎，还见不得台湾与其他国家的友好关系。频频出动军机扰台，武力攻台的意图十分明显。台湾需加强防范。
-
-新闻参考链接：[https://cn.rti.org.tw/news/view/id/2116745](https://cn.rti.org.tw/news/view/id/2116745)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ICON_Lennar_BIG_100-hm_Community_In-progressConstruction_ConceptRender.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+图片来源：www.archdaily.com
 
 
+#### 编译：小红帽
+
+美国第二大房屋建筑商Lennar公司与专门从事大型3D打印的技术先驱ICON公司合作，使用一台巨型3D打印机在现场”打印”100栋单层房屋，以铺设混凝土建筑材料。
+
+Lennar联合首席执行官乔恩·贾菲(Jon Jaffe)最近强调，整个建筑行业面临着材料短缺和成本飞涨的问题。为了解决这个问题，该公司正在转向3D打印业务。
+
+ICON的3D打印技术可以打印出高达3000平方英尺的房屋，而且与传统方法相比，时间更短，浪费更少。
+
+“建筑规模的3D打印不仅可以更快、更经济地提供更高质量的房屋，而且打印机车队可以改变整个社区的建设方式，使其变得更好。ICON联合创始人兼首席执行官杰森·巴拉德（Jason Ballard）说：”美国面临着大约500万套新房的赤字，因此，在不影响质量、美观或可持续性的情况下，迅速增加供应量是一个迫切的需要，这正是我们技术的优势所在。
+
+随着供应链的中断和商品成本的飙升，我们已经开始注意到越来越多的房屋被3D打印出来。因为木材价格处于历史高位，建造房屋不经济。今年早期，佛罗里达州和弗吉尼亚州的房屋被打印出来。现在，奥斯汀的整个社区也即将被打印出来。
+
+**参考新闻：**[World’s Largest 3D-Printed Neighborhood Coming To Austin, Texas  | ZeroHedge](https://www.zerohedge.com/technology/worlds-largest-3d-printed-neighborhood-coming-austin-texas)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

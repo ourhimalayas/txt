@@ -15,74 +15,74 @@
 
 ---
 
-### [盖特、帕勒、盖博新兴社交媒体平台在巴西找到知音](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
-
-### [日本4名男子在接种莫德纳疫苗后因心肌炎死亡](/content/gnews/2/README.md)
- ` 日本东京方舟农场`
-
-### [中共国江西一集中隔离住户，留家柯基犬被入室打死](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
-
-### [共和党议员戴维森说美国人面临着政府致命性过度干预](/content/gnews/4/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [曾说不会在未接种疫苗人的葬礼上哭泣的心脏病专家在接种第三针中共病毒疫苗后梦中离世](/content/gnews/5/README.md)
- ` 波士顿五月花农场`
-
-### [“杀死法案”-数千名澳大利亚人游行反对维多利亚州的中共病毒专权](/content/gnews/6/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [教皇弗朗西斯“无法”妥善处理教会性丑闻感到“羞耻”](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [拜登正式签署安全设备法阻断华为中兴进入美国通信网络](/content/gnews/8/README.md)
- ` 日本东京方舟农场`
-
-### [意大利城市不畏中共反对，坚办异议创作人巴丢草个展](/content/gnews/9/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [东南亚一周新闻回顾（2021年11月5日-12日）](/content/gnews/10/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [同济大学研究报告揭示灭活疫苗会带来严重副作用](/content/gnews/11/README.md)
- ` 日本东京方舟农场`
-
-### [被流亡的亿万富翁和史蒂夫班农喜爱的价值270亿美元的数字货币](/content/gnews/12/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【Michael.Tonny专栏】用时是白白净净的手套 不用时就是夜壶](/content/gnews/13/README.md)
- ` 温哥华扬帆农场`
-
-### [一旦发生疫情，全员核酸检测](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [学而思宣布停止！股价暴跌，3000亿灰飞烟灭！](/content/gnews/15/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [郭文贵先生2021年11月13日盖特视频（9分34秒）全文字版](/content/gnews/16/README.md)
+### [可悲！媒体自豪的宣布日本政府疫苗接种的政绩](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭先生揭露多个《彭博社》想要掩盖的事](/content/gnews/17/README.md)
+### [佛州司法部长支持该州州长指控拜登政府非法强制免疫](/content/gnews/2/README.md)
+ ` 日本东京方舟农场`
+
+### [盖特、帕勒、盖博新兴社交媒体平台在巴西找到知音](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [日本4名男子在接种莫德纳疫苗后因心肌炎死亡](/content/gnews/4/README.md)
+ ` 日本东京方舟农场`
+
+### [中共国江西一集中隔离住户，留家柯基犬被入室打死](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [共和党议员戴维森说美国人面临着政府致命性过度干预](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [世上最大3D打印社区将于明年在德克萨斯州奥斯汀动工](/content/gnews/18/README.md)
+### [曾说不会在未接种疫苗人的葬礼上哭泣的心脏病专家在接种第三针中共病毒疫苗后梦中离世](/content/gnews/7/README.md)
+ ` 波士顿五月花农场`
+
+### [“杀死法案”-数千名澳大利亚人游行反对维多利亚州的中共病毒专权](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [教皇弗朗西斯“无法”妥善处理教会性丑闻感到“羞耻”](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [变态防疫加房产暴雷，中共经济危机四伏](/content/gnews/19/README.md)
- ` 纽约香草山MOS01`
+### [拜登正式签署安全设备法阻断华为中兴进入美国通信网络](/content/gnews/10/README.md)
+ ` 日本东京方舟农场`
 
-### [宏都拉斯总统访台 中共军机日夜扰台](/content/gnews/20/README.md)
+### [意大利城市不畏中共反对，坚办异议创作人巴丢草个展](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [盖特吹响打破社交媒体垄断的号角](/content/gnews/21/README.md)
- ` 纽约香草山MOS01`
+### [东南亚一周新闻回顾（2021年11月5日-12日）](/content/gnews/12/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
 
-### [雅典娜时报-第112期](/content/gnews/22/README.md)
+### [同济大学研究报告揭示灭活疫苗会带来严重副作用](/content/gnews/13/README.md)
+ ` 日本东京方舟农场`
+
+### [被流亡的亿万富翁和史蒂夫班农喜爱的价值270亿美元的数字货币](/content/gnews/14/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【Michael.Tonny专栏】用时是白白净净的手套 不用时就是夜壶](/content/gnews/15/README.md)
+ ` 温哥华扬帆农场`
+
+### [一旦发生疫情，全员核酸检测](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [疫情反弹大连庄河封城，居民突遭隔离处境堪忧](/content/gnews/23/README.md)
+### [学而思宣布停止！股价暴跌，3000亿灰飞烟灭！](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [郭文贵先生2021年11月13日盖特视频（9分34秒）全文字版](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [郭先生揭露多个《彭博社》想要掩盖的事](/content/gnews/19/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [世上最大3D打印社区将于明年在德克萨斯州奥斯汀动工](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [变态防疫加房产暴雷，中共经济危机四伏](/content/gnews/21/README.md)
+ ` 纽约香草山MOS01`
+
+### [宏都拉斯总统访台 中共军机日夜扰台](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [雅典娜时报-第112期](/content/gnews/23/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [GTV新闻访谈简报|2021年11月13日晚](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
