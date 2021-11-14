@@ -2,53 +2,28 @@
 ---
 
 
-## 2021/11/10 班农专访1: 战斗室的使命是面向中美两国老百姓
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1664577/)
+## Diffusion journalière de Miles Guo (11.14) : Le temps retiendra H-coin dans les nuages
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1664633/)
 
-**简评：**
+Traductrice : Charline
 
-班农先生年初被中共制裁，班农战斗室最近又被主流媒体CNN攻击。因为GNews和GTV的影响力逐渐扩大，引起了主流媒体的强烈不满。班农战斗室的使命之一，就是把美国和中共国的老百姓联合起来，传播中国和中国人不等于中共的概念，告诉西方世界，中国人民是中共邪恶政权最大的受害者，不管是病毒和疫苗灾难，还是金融危机。老百姓有权利知道真相。
+Relecteur : Jean Michel
+![](https://assets.gnews.org/wp-content/uploads/2021/11/222-2.jpg)
+Les fleurs ont besoin de pluie pour s’épanouir et H-coin a besoin de temps pour s’épanouir. Miles Guo a déclaré lors de sa grande émission en direct le 14 novembre que d’ici 5 à 10 ans, la valeur ajoutée de l’humanité au cours des dernières décennies sera reflétée dans la monnaie virtuelle. Les 3 premières années seront une période d’essor. Chaque pièce est rattachée à l’or, il y a des systèmes de paiement et de prêt, il y a des pièces stables. Le monde est invincible, il a juste besoin de temps pour être arrosé, et les camarades peuvent attendre que les fleurs s’épanouissent.
 
-[GTV视频链接](https://gtv.org/video/id=618f3330182702508104ad60)
+Les États-Unis ont imprimé trois trillions de dollars et je pense qu’ils ne seront pas moins de cinq trillions. Le parti communiste chinois a également imprimé dix mille milliards. Le fait est que la plupart de ces dix mille milliards aux États-Unis sont allés à l’armée, aux entreprises et à la population. Une grande partie des dix mille milliards imprimés par le parti communiste chinois a été prise par les membres officiels de la famille. Un ou deux trillions ont servi à acheter des bitcoins.  2,8 trillions a été transféré à Singapour. C’est essentiellement différent. Pourquoi le monde entier imprime-t-il de l’argent ?
 
+Depuis une vingtaine de mois, depuis le coronavirus, l’internet a complètement changé la façon de vivre. C’est diffusion en direct, de la vidéoconférence, permet à tout le monde reste à la maison. En finance, la blockchain était née. Pour le bitcoin, n’oubliez jamais que 4 % de la population représentaient ensemble 96 % des biens. N’oubliez jamais que ce sont nos camarades qui représentent 60% des 600 millions de H-coin. Quiconque pourra conserver cette pièce pendant trois ans sans la vendre ,  elle vaudra plus que le bitcoin.
 
+Il y a deux noyaux. Premièrement :  la technologie Internet, Le gouvernement ne peut  pas dire ce qu’il veut , mais  il est possible de faire taire les autres. Deuxièmement, la technologie blockchain, les gens ont le choix, je ne vous utilise pas, j’utilise blockchain. Quel est le concept de la technologie blockchain ? Toute l’humanité représente mille trois cents milliards de dollars, et une grande partie de cette somme est diluée. Si vous multipliez ce qui a été édulcoré par un coefficient de 3,7 à 3,9 de la valeur de l’argent et de la production de richesse, cela signifie que toute l’humanité produit de la plus-value. Quelle sera la croissance de ce côté de l’argent virtuel ? La plus-value de l’humanité au cours des dernières décennies sera reflétée dans la monnaie virtuelle. Cela prendra environ cinq à dix ans, trois ans étant la période centrale de la poussée.
 
-**视频字幕：**
+Vous ne parlez pas d’absence de gouvernement, la monnaie décentralisée. Vous ne comprenez pas la monnaie, et plus important encore, vous ne savez pas qu’elle a un échange. Vous ne savez pas qu’il y a un système de paiement, et qu’il y a une possibilité de prêt, et la stabilité, est lié à l’or, et c’est imbattable.
 
-**主持人Nina：**周日《CNN 政治》上发表了一篇题为《史蒂夫·班农非常火的播客是选举谎言的危险幻想之地》。我想这是继今年1月20号中共对你的制裁之后，你和《战斗室》的又一荣誉徽章。主流媒体完全脱离人民，CNN还有多少观众呢？
+Miles Guo a dit qu’il espérait que ses camarades attendraient l’arrivée de la vraie valeur. Attendre le moment glorieux, si vous partez tôt, vous n’aurez pas d’autre chance.
 
-**班农先生：**这是个好问题。他们害怕《战斗室》的其中一个原因是，实话说，由于我们与GNews和GTV的合作，被翻译成汉语和日语，扩大了我们的听众。不仅仅是在生活在西方的和全世界的海外华人，而且还通过防火墙最终到达中国老百姓。
+—–14-11-2021
 
-主流媒体现在完全气坏了，因为他们很乏味、很有限。他们只看到华盛顿、纽约和伦敦。他们没有全球眼光。
-
-这是我对《战斗室》最为骄傲的原因，而且我真的为我们听众的反应感到自豪，所以我们一定会受到更多这样的攻击。请记住，我的使命之一就是将美国和中国的老百姓联合在一起。
-
-媒体恨之入骨，因为他们的观众和影响在减小，这只不过是他们溃败前的顽抗罢了。所以每一次他们这样做的时候，我们都非常骄傲，并大力宣传，让我们的听众明白他们正在发挥影响。
-
-现在我们的听众完全了解选举的胜利，但是，我想确保中国观众也能够了解，他们也发挥了巨大的影响。
-
-第一，就是中国和中国人不等于中国共产党的概念。中国，尤其是中国人民是受害者，还有老百姓、工薪阶层、中产阶级、传统的中国家庭、中国公民，他们是最大的牺牲品。无论是武汉实验室，或者是影子银行。我听说恒大即将破产。所以，我认为这是我们中国听众和美国华人听众的力量，所以我要感谢每一位的支持。
-
-但是要明白，当他们发出这种文章的时候，重点不是我，我是可以被替代的，重点是我们中国和美国的听众。
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/%E7%8F%AD%E5%86%9C%E4%B8%93%E8%AE%BF.jpg)
-*字幕/听写：云岭 | 翻译：Roberts｜校对：Wade| 简评/文字整理/编辑：胖丁*
-
-
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+Gnews🔗: [https://gnews.org/zh-hans/1664140/](https://gnews.org/zh-hans/1664140/)
 
  
 

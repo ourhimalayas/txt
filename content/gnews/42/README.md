@@ -2,22 +2,30 @@
 ---
 
 
-## 挪威著名越野滑雪天才因接种中共病毒疫苗被 “淘汰’’
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1663600/)
+## GTV新闻访谈简报|2021年11月14日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1663948/)
 
-**撰稿：****nstar**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
 
-**校对：胡天**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-14.png)
-据《新冠世界》报道11月12日报道，挪威最伟大的越野滑雪天才之一因接种中共病毒疫苗被 “淘汰”。17 岁的丹尼尔·阿克维克（Daniel Aakervik）在对中共病毒疫苗的严重反应后不得不暂停他的赛季。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-13.png)
+文章仅代表作者本人观点，与Gnews无关
 
-这位 17 岁的年轻人在 15 岁和 16 岁的时候两次赢得了 Hovedlandsrennet（越野滑雪比赛）。他还在冬季两项比赛中取得了胜利。
+视频参看：2021.11.14早GTV新闻访谈
 
-几个月前，Daniel在接种第一剂中共病毒疫苗后首次出现了健康问题：
+[https://gtv.org/broadcast/watch/61910f2ae7e770379234d809](https://gtv.org/broadcast/watch/61910f2ae7e770379234d809)
 
-“在第一次接种后，我立即感到有些不对劲。在那之后我立即采集了血液样本，最初没有显示任何异常。但我还是注意到我的身体有问题，并决定重新采集血液样本…确实有问题。医生现在告诉我，这可能是疫苗的副作用..丹尼尔已经暂停了他的赛季，不确定他什么时候能够再次参加最高水平的比赛：“我最初的计划是从 12 月开始，但现在由于我身体的问题，计划搁浅了。由于我不能集中训练，只能做低强度的事情，所以我至少要等到圣诞节之后才能开始比赛…我现在的主要目标是康复，只有当我完全康复时，我才能开始逐渐恢复到原来的水平。”
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-[信息来源](https://thecovidworld.com/daniel-aakervik-one-of-the-greatest-talents-in-cross-country-skiing-suffers-severe-reaction-to-covid-vaccine-i-immediately-felt-something-was-wrong/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
