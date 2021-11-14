@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/14/2021 1:22 PM (UTC)`
+
+2021年11月14日 文贵大直播：香港大陆及世界股市；喜币迎接金融大转变；疫苗灾难台湾房地产；新中国联邦机会何在
+![img](https://media.gettr.com/group49/origin/2021/11/14/13/72f94c61-4c93-d2e3-e84c-8f15c3071ba9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 11/14/2021 1:42 AM (UTC)`
 
 11/13/2021 Miles Guo’s GETTR: The female Bloomberg journalist who reported on the Himalaya Coin avoided covering the key issues, and she is very likely controlled by Bruno Wu; instead of smearing the Himalaya Coin, the CCP ended up helping us advertise it; the CCP has started to rip off the entrepreneurs in the Communist China; Mr. Bannon is becoming a real hero in the darkness and in the test of life and death<br/><br/>11/13/2021 文贵盖特: 报道喜币的彭博社女记者对关键问题避而不谈，她十有八九被吴征控制；中共非但没能抹黑喜币，反而帮咱打了广告；中共在国内已开始宰割企业家；班农先生将在黑暗和生死的考验中成为真正的英雄<br/>
@@ -289,13 +296,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 11/9/2021 Miles Guo’s GETTR: The US reopened land and air borders on November 8. Why are so many people in the world, including the Europeans, flocking to the US? We should beware of the CCP taking this opportunity to release the CCP virus again. The CCP’s real estate crisis has led the Federal Reserve and the US Department of Treasury to raise the red flags, because the CCP simply has no money to repay its debts!<br/><br/>11/9/2021 文贵盖特: 11月8日美国开放陆空边境，为何全世界包括欧洲人都蜂拥而至？此时更要谨防中共借机再次放毒；中共房地产危机促使美联储、财政部敲响警钟，中共根本无钱可还！<br/>
 ![img](https://media.gettr.com/group43/getter/2021/11/09/22/21/fd4c3237-8007-6b14-f937-9a5290315a38/out.jpg)
-
----
-
-`@miles 11/9/2021 10:12 PM (UTC)`
-
-11/9/2021 Miles Guo’s GETTR: A Senior CCP Cadre died because he did not take my advice and proceeded to get the COVID jab instead; the internal fights in the CCP are getting fierce during the Sixth Plenary Session of the 19th Central Committee; the truth about the COVID vaccines is the biggest gift brought to the world by the Whistleblowers’ Movement and the New Federal State of China<br/><br/>11/9/2021 文贵盖特: 中共体制内高官因不听文贵劝告，打了疫苗而殒命；中共六中全会内斗正酣；疫苗真相是爆料革命、新中国联邦带给世界最大的礼物<br/>
-![img](https://media.gettr.com/group30/getter/2021/11/09/22/12/e1ef9150-d9b6-500b-95ea-5f1b5675a7c7/out.jpg)
 
 ---
 

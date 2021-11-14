@@ -21,131 +21,131 @@
 ### [DC大中华时事：中共称美欧“民主”注定会走入歧途](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [黑色森林](/content/gnews/3/README.md)
+### [史蒂夫·班农被以藐视众议院传票起诉](/content/gnews/3/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [HPay与澳洲金融体系整合的构想](/content/gnews/4/README.md)
+### [中共对教育、保险、游戏等产业的监管压力产生涓滴效应](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [求救！ 澳大利亚已变成分裂、勒索、胁迫、歧视的土地](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [犯罪阴谋集团正在对我们的孩子进行种族大屠杀](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [黑色森林](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [HPay与澳洲金融体系整合的构想](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [中共大肆宣传世界疫情灾难的背后原因](/content/gnews/5/README.md)
+### [中共大肆宣传世界疫情灾难的背后原因](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [历史已证川普和1月6日集会者清白 并在暴露福奇等人](/content/gnews/6/README.md)
+### [历史已证川普和1月6日集会者清白 并在暴露福奇等人](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [七哥的一张照片引发的思考](/content/gnews/7/README.md)
+### [七哥的一张照片引发的思考](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [谁能拯救中共国8439.5万3～11岁的孩子？](/content/gnews/8/README.md)
+### [谁能拯救中共国8439.5万3～11岁的孩子？](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共为什么要炒“低碳经济”概念](/content/gnews/9/README.md)
+### [中共为什么要炒“低碳经济”概念](/content/gnews/13/README.md)
  ` 澳喜农场`
 
-### [受中共病毒影响日本又一老店铺的1号店宣布关店](/content/gnews/10/README.md)
+### [受中共病毒影响日本又一老店铺的1号店宣布关店](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国互联网企业审查升级，加速网络闭关锁国](/content/gnews/11/README.md)
+### [中共国互联网企业审查升级，加速网络闭关锁国](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [7·24系列——文贵先生盖特照片人物解读（三）](/content/gnews/12/README.md)
+### [7·24系列——文贵先生盖特照片人物解读（三）](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花灭共诗——历史决议三（新韵）](/content/gnews/13/README.md)
+### [樱花灭共诗——历史决议三（新韵）](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳媒指出中共国人民存在“创纪录不满”](/content/gnews/14/README.md)
+### [澳媒指出中共国人民存在“创纪录不满”](/content/gnews/18/README.md)
  ` 澳喜农场`
 
-### [保命保财？](/content/gnews/15/README.md)
+### [保命保财？](/content/gnews/19/README.md)
  ` 银河勇气之星`
 
-### [“日中韩峰会”因三国关系生变预料将连续两年停办](/content/gnews/16/README.md)
+### [“日中韩峰会”因三国关系生变预料将连续两年停办](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国疫情四起 大连庄河紧急封城80万居民禁锢家中](/content/gnews/17/README.md)
+### [中共国疫情四起 大连庄河紧急封城80万居民禁锢家中](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [西澳地区城镇附近发生5.3级地震 地震: 西澳 Marble Bar](/content/gnews/18/README.md)
+### [西澳地区城镇附近发生5.3级地震 地震: 西澳 Marble Bar](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳媒报道：中共为什么惧怕巴丢草和他的涂鸦艺术](/content/gnews/19/README.md)
+### [澳媒报道：中共为什么惧怕巴丢草和他的涂鸦艺术](/content/gnews/23/README.md)
  ` 澳喜农场`
 
-### [中共11月17日起进返京须持48小时核酸阴性证明](/content/gnews/20/README.md)
+### [中共11月17日起进返京须持48小时核酸阴性证明](/content/gnews/24/README.md)
  ` 儒为`
 
-### [国际要闻汇编 11月14日](/content/gnews/21/README.md)
+### [国际要闻汇编 11月14日](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内要闻汇编 11月14日](/content/gnews/22/README.md)
+### [墙内要闻汇编 11月14日](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新闻述评：彭博社报道歪曲班农却无法忽略喜马拉雅币的价值](/content/gnews/23/README.md)
+### [新闻述评：彭博社报道歪曲班农却无法忽略喜马拉雅币的价值](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾前线｜台湾欲加入CPTPP 必须先战胜反莱猪公投](/content/gnews/24/README.md)
+### [台湾前线｜台湾欲加入CPTPP 必须先战胜反莱猪公投](/content/gnews/28/README.md)
  ` G&#124;News TAIWAN`
 
-### [CDC承认无记录表明未接种疫苗的人从Covid康复后传播了Covid](/content/gnews/25/README.md)
+### [CDC承认无记录表明未接种疫苗的人从Covid康复后传播了Covid](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [嘲笑政治领袖是自由社会的健康标志](/content/gnews/26/README.md)
+### [嘲笑政治领袖是自由社会的健康标志](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [台湾前线｜新冠疫苗问题多 政府正视心肌炎问题](/content/gnews/27/README.md)
+### [台湾前线｜新冠疫苗问题多 政府正视心肌炎问题](/content/gnews/31/README.md)
  ` G&#124;News TAIWAN`
 
-### [马云的结局](/content/gnews/28/README.md)
+### [马云的结局](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [气候特使约翰·克里从中共奴隶劳动中获益再受参议员质询](/content/gnews/29/README.md)
+### [气候特使约翰·克里从中共奴隶劳动中获益再受参议员质询](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [疫苗暴政：拉脱维亚禁止未接种疫苗的议员参加议会投票并暂停其薪水](/content/gnews/30/README.md)
+### [疫苗暴政：拉脱维亚禁止未接种疫苗的议员参加议会投票并暂停其薪水](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [恒大暴雷对澳大利亚的影响](/content/gnews/31/README.md)
+### [恒大暴雷对澳大利亚的影响](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本正在推进机器人服务及非接触性支付](/content/gnews/32/README.md)
+### [日本正在推进机器人服务及非接触性支付](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [学生全程接种率超过百分95，大连大学城仍爆疫情](/content/gnews/33/README.md)
- ` 澳喜农场`
-
-### [每日快报：FDA召回数以百万计的居家 COVID-19 假阳性检测试剂](/content/gnews/34/README.md)
+### [每日快报：FDA召回数以百万计的居家 COVID-19 假阳性检测试剂](/content/gnews/37/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [成为喜币的主人](/content/gnews/35/README.md)
+### [成为喜币的主人](/content/gnews/38/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [立陶宛外交部长敦促日本和其他民主国家联合起来对付中共](/content/gnews/36/README.md)
+### [立陶宛外交部长敦促日本和其他民主国家联合起来对付中共](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共无耻号称中国经济发展秘诀就是公有制和党领导一切](/content/gnews/37/README.md)
+### [中共无耻号称中国经济发展秘诀就是公有制和党领导一切](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共共同富裕是百姓艰苦奋斗、企业家多纳税捐款、财富由国家分配](/content/gnews/38/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共厚颜无耻地声称自己的支持率有95%以上](/content/gnews/39/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [俄州国民警卫队拒绝国防部的疫苗强制令](/content/gnews/40/README.md)
+### [俄州国民警卫队拒绝国防部的疫苗强制令](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [焦点新闻摘要 2021年11月13日](/content/gnews/41/README.md)
+### [焦点新闻摘要 2021年11月13日](/content/gnews/42/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [彭丽媛从幕后走向政治舞台](/content/gnews/42/README.md)
+### [彭丽媛从幕后走向政治舞台](/content/gnews/43/README.md)
  ` 墨尔本雅典娜农场`
 
-### [港共政府拒绝延期英媒记者签证](/content/gnews/43/README.md)
+### [港共政府拒绝延期英媒记者签证](/content/gnews/44/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [中共的宣传以文化自信为名，对内对外大肆洗脑](/content/gnews/44/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [全球粮价一飞冲天！而这一切才刚刚开始](/content/gnews/45/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
