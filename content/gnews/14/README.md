@@ -2,27 +2,24 @@
 ---
 
 
-## 郭文贵精品视频-专为作恶者设计的具有“私人区块链”之Hcoin
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1662034/)
+## 有声|GTV新闻访谈简报|2021年11月11日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1662045/)
 
-撰稿：澳喜cindy
+配音：香草山教育部 – 蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1111text-SC-2.png)
+文字版原文：[GTV新闻访谈简报|2021年11月11日晚](https://gnews.org/zh-hans/1657374/)
 
-郭先生几十年与狼共舞，深知中共的流氓邪恶至极，在设计这个Hcoin系统时就充分考虑到了系统的最高等级的安全性。目前市面上上市的所有币的设计都是用的公块链技术。而我们的Hcoin使用的既有公块链技术，它被用在KYC之前系统。更有独特的摩根斯坦利（Quorum）系统的私人区块链技术，它被用在币的交易中的所有信息。也就是说，每个人KYC 进入系统后，就永远查不到“我是谁了”，也就真正体现出了名副其实的“去中心化”。
+音频处理：喜山必胜Maverick
 
-郭先生所采用的摩根斯坦利（Quorum）系统的私人区块链技术，它不但可以对隐私的私人信息高度保密，它更有快速处理交易单量的极大优势。它每秒钟可以处理100-10000单，而其他公开区块链的处理量只有每分钟10单。相比较可谓天壤之别。
-
-另外就是追踪和冻结被盗币的绝对强大的功能。这项功能的设计就是郭先生对付新中国联邦人的死敌-中国共产党的绝招！
-
-郭先生是世界上少有的为平民百姓争取公正、平等和自由的百亿富豪，同时他还是世界上创造出一个崭新的使平民百姓财务自主、任何政府都不可以随意得到私人财务信息的金融系统第一人。
-
-我的钱我做主！这一点对每个人都是很期待的。在这次整个GTV投资的过程中大约2年间很多战友经历了太多的周折。深深体会到：银行的过度监管，再加上中共对有些银行的威胁利诱、百般刁难我们投资到合法的我们自己愿意承担一切可能产生的后果的GTV系列。因此也有很多战友基于曾经发生过的事情的顾虑而错失了更多的投资获利的机会。
-
-郭先生一人抵一国挑战邪恶的中共，前无古人 后无来者，必将载入中华民族发展史册。相信他创造的这一无懈可击的区块链金融系统也会使世界无数人受益，并将在币圈有它不可撼动的地位。
-
-我们作为受益者，非常感恩郭先生的为此付出。义无反顾的继续跟随，紧紧地跟随！直到取得灭共的最后胜利。
-
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

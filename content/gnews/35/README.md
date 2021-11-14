@@ -2,60 +2,20 @@
 ---
 
 
-## 美国CDC表示将重新定义”完全接种疫苗”的标准
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1661622/)
+## 秘翻在线:华东理工大学学生因实验引起核酸检测阳性
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1661871/)
 
-作者：纽约香草山农场教育部 –  Naughty(文行)
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/411fd8f23880b4a4c9a9eaa5b73229e5.jpg)图片来源：www.mbachina.com
+11月12日网易报道，日前有华南理工大学学生在网络发帖称，因该校学生做实验研究，导致一学生核酸检测阳性，导致全校关闭，全员做核酸检测。
 
+据官方的通知是，生物工程系的一个课题组，在利用大肠杆菌表达系统制备核衣壳蛋白，N段截断体的研究时，有学生核酸检测片段阳性。华东理工大学的紧急通知则要求全体师生不许离沪，取消全部校内聚集性活动。13日上海官方发布的疫情通报中，该市并无新增新冠肺炎本土确诊病例。
 
+而理工大学学生则在网上发帖称，是学生不小心复制出了一段和新冠病毒特征表达一致的蛋白片段，整个实验室环境是阳性。这就提出了问题，如果是实验造的片段为何要封闭管理？ 如果大学生的实验就能造片段，那高级的P4实验室能不会造出完整的吗？
 
-
-
-美国疾病控制和预防中心（CDC）主任Rochelle Walensky在10月22日表示，随着新冠疫苗加强针的日益普及，美国可能会改变未来重新定义“全面接种疫苗”的含义。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1416-ca_rachelwalenskycdc_getty.jpg)图片来源：Getty Image
-
-她告诉记者，“我们尚未更改‘完全接种疫苗’的定义。我们将继续关注这一点。我们未来可能需要更新我们对“完全接种疫苗”的定义。‘’她说，如果您有资格获得加强针，请继续接种，我们将继续跟进。
-
-那些已接种两剂辉瑞-BioNTech或Moderna疫苗，和已接种一剂强生疫苗的人将获得“完全疫苗接种”状态。
-
-白宫冠状病毒应对协调员杰夫·齐根特斯指出，目前有超过70万人有资格接受加强针注射，并补充说：“在未来几个月内，超过1亿的美国人将有资格获得接种加强针资格。”
-
-疾病预防控制中心数据显示，66.2%的美国人口接种了一剂COVID-19疫苗，而57.2%的人接种了两剂疫。大约6%的人接种了加强针。
-
-随着世界各地的疫苗危机在社交媒体尤其是盖特平台被广泛揭露传播，越来越多的人加入到了反对疫苗接种的队伍，在全球掀起了抵抗疫苗接种浪潮。
-
-这次美国重新定义“完全接种疫苗”标准显然又是想通过行政手段迫使人们接种更多疫苗，作为正道主义的笃信者和践行者，爆料革命的战友们应该更加积极行动起来，利用盖特等一系列社交媒体平台努力传播疫苗真相，唤醒更多的人们认清邪恶势力疫苗杀人的真相，团结一切追求正义的力量让邪恶势力的阴谋破产。
-
-**参考阅读：**
-
-[‘Fully vaccinated’ definition could change in future, CDC director says | TheHill](https://thehill.com/changing-america/well-being/prevention-cures/578056-fully-vaccinated-definition-could-change-in?utm_source=ground.news&amp;utm_medium=referral)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+新闻来源： https://www.163.com/dy/article/GOM7757S053469LG.html
 
  
 
