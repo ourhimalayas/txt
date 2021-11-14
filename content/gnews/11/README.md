@@ -2,29 +2,34 @@
 ---
 
 
-## 11月12日文贵大直播精剪汇编——下集
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1663902/)
+## 美国制止英特尔在中共国的芯片增产计划
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1663907/)
 
-撰稿：Gradient Boost
+作者：MOS – 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月12日的消息称，拜登政府否决了英特尔在中共国内增资扩张产能的计划。据了解，英特尔原计划向白宫寻求520亿美元的政府补贴，用以增加其在成都工厂的低制程产能，但白宫官员强烈反对这一举措。
 
-视频：Angelsky、亭湖来客
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-9.jpeg)
 
-在11月12日的大直播中，文贵先生透露了有关中国共产党六中全会的最新情报和资讯，同时也提到美国某军工集团找到文贵先生，询问他是否愿意加入其军工集团股份当中。
+消息显示，美国政府正在考虑建立一个对外投资的筛选机制，其中或将限制对中共的某些战略投资。另外，一项名为“CHIPS法案”的提案正在众议院等待通过。根据白宫的声明，“CHIPS法案”的目的在于，确保美国能够减少对脆弱供应链的依赖，包括在半导体方面。同时，政府希望使包含芯片在内的重要部件的生产回到美国，并以联邦资金援助的方式加强本土企业的研究和开发。
 
-该集团提到，虽然中共一旦对台发起战争，虽然其股价会发生上涨，但是芯片将出现巨大问题，同时也会影响到现金及运营。这又一次说明南海台海的不确定性严重影响着世界经济的走势和世界军事政治的格局。
+消息人士指出，美国政府非常注重防止中共利用美国的技术、知识和投资来发展侵犯人权和伤害美国国家安全的科技。为此，一些共和党立法者表示，他们正在推动“CHIPS法案”的一些附加条款，用来确保相关企业在得到资助后不会增加他们在中共国内的业务。
 
-在军事方面文贵先生也提到了新中国联邦的国防系统建设，这是保护华人的必要措施。排华的事件一定会发生，只是事件大小或者严重性的问题，我们要做好这种准备。
+参考链接：[White House Spurns Intel Plan to Boost Chip Production in China](https://news.bloomberglaw.com/tech-and-telecom-law/white-house-spurns-intel-plan-to-boost-chip-production-in-china)
 
-文贵先生提醒说，如果我们相信新中国联邦很快就能消灭共产党，我们从现在就要研究：谁能参加国防军事建设的管理？谁想开战斗机？谁想开潜水艇？谁想加入军训？
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-所有一开始的军训将以美国为准，美国不打疫苗的军人会参与到管理当中。班农的女儿、美国的几位将军、英国退休的航空母舰舰队官员以及部分日本人也会加入，培训我们新中国联邦的子女。
+总编：正义的小新
+编辑：Irene木木
+校正/发稿：谐趣园
 
-新中国联邦国防是属于我们战友自己的国防，90%七哥家族基金出资，10%来自战友，100%透明化管理。雇佣主体势美国军队，日本也会加入。在三个月内，签署雇佣军，培养战友。
-
-我们将拥有前所未有的武器，也会培养出属于我们自己的空间部队、飞行员和海军。新中国联邦人海外的资产和安全将受到保护，中国人从来没有的武器我们也都将拥有。招兵标注和培训标准也将在三个月的时间内发布公告。
-
-（文章内容仅代表作者观点，与Gnews平台无关）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

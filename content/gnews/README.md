@@ -24,70 +24,70 @@
 ### [批准的辉瑞儿童新冠疫苗外加研究实验室常用的化学物](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共六中全会加剧内部绞杀](/content/gnews/4/README.md)
+### [2021/11/10班农专访11: 中共在沙漠建航母和战舰模型用于训练](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共六中全会加剧内部绞杀](/content/gnews/5/README.md)
  ` 波士顿五月花农场`
 
-### [香草山翻译部周刊|2021年11月14日第22期](/content/gnews/5/README.md)
+### [香草山翻译部周刊|2021年11月14日第22期](/content/gnews/6/README.md)
  ` 纽约香草山MOS01`
 
-### [文贵爆料11.14：郭文贵先生警告全球华人全球黄种人，黑暗已经到来](/content/gnews/6/README.md)
+### [文贵爆料11.14：郭文贵先生警告全球华人全球黄种人，黑暗已经到来](/content/gnews/7/README.md)
  ` 秘密翻译组-原创组`
 
-### [第45届美国总统唐纳德·j·川普(Donald J. Trump)发表声明](/content/gnews/7/README.md)
+### [第45届美国总统唐纳德·j·川普(Donald J. Trump)发表声明](/content/gnews/8/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [GTV新闻访谈简报|2021年11月14日早](/content/gnews/8/README.md)
+### [GTV新闻访谈简报|2021年11月14日早](/content/gnews/9/README.md)
  ` 纽约香草山MOS01`
 
-### [文贵爆料11.14： 盛开国际体育李红和2008年北京奥运会](/content/gnews/9/README.md)
+### [文贵爆料11.14： 盛开国际体育李红和2008年北京奥运会](/content/gnews/10/README.md)
  ` 秘密翻译组-原创组`
 
-### [美国制止英特尔在中共国的芯片增产计划](/content/gnews/10/README.md)
+### [美国制止英特尔在中共国的芯片增产计划](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [11月12日文贵大直播精剪汇编——下集](/content/gnews/11/README.md)
+### [11月12日文贵大直播精剪汇编——下集](/content/gnews/12/README.md)
  ` 澳喜特战旅Gnews`
 
-### [11月12日文贵大直播精剪汇编——中集](/content/gnews/12/README.md)
+### [11月12日文贵大直播精剪汇编——中集](/content/gnews/13/README.md)
  ` 澳喜特战旅Gnews`
 
-### [全球最大财经新闻社——彭博社为喜币“造势”](/content/gnews/13/README.md)
+### [全球最大财经新闻社——彭博社为喜币“造势”](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [日本防疫措施放宽拟取消活动人数上限](/content/gnews/14/README.md)
+### [日本防疫措施放宽拟取消活动人数上限](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [第五上诉法院确认暂停拜登中共病毒疫苗授权](/content/gnews/15/README.md)
+### [第五上诉法院确认暂停拜登中共病毒疫苗授权](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [日本或将主办美日澳印四国集团第二次面对面峰会](/content/gnews/16/README.md)
+### [日本或将主办美日澳印四国集团第二次面对面峰会](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [11月12日文贵大直播精剪汇编——上集](/content/gnews/17/README.md)
+### [11月12日文贵大直播精剪汇编——上集](/content/gnews/18/README.md)
  ` 澳喜特战旅Gnews`
 
-### [有声|美十州医护人员起诉新冠疫苗强制令](/content/gnews/18/README.md)
+### [有声|美十州医护人员起诉新冠疫苗强制令](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [花旗集团前首席执行官表示：所有大银行很快就会进行加密交易](/content/gnews/19/README.md)
+### [花旗集团前首席执行官表示：所有大银行很快就会进行加密交易](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [有声| 美国CDC承认：没有未接种疫苗者于康复后传播Covid的记录](/content/gnews/20/README.md)
+### [有声| 美国CDC承认：没有未接种疫苗者于康复后传播Covid的记录](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声|迈阿密向居民发放虚拟币收益](/content/gnews/21/README.md)
+### [有声|迈阿密向居民发放虚拟币收益](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [2021年11月14日文贵先生直播大雨围城速记](/content/gnews/22/README.md)
+### [2021年11月14日文贵先生直播大雨围城速记](/content/gnews/23/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [有声|郭先生联合正义力量 西班牙秘密营救马云](/content/gnews/23/README.md)
+### [有声|郭先生联合正义力量 西班牙秘密营救马云](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [有声| 班农先生被控藐视国会](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [有声|中共疫苗灾难致大陆一线医护人员短缺](/content/gnews/25/README.md)
+### [有声| 班农先生被控藐视国会](/content/gnews/25/README.md)
  ` MOSREC`
 
 ### [2021年11月14日文贵先生直播小飞象大雨围城速记](/content/gnews/26/README.md)

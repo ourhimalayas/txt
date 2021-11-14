@@ -2,30 +2,14 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月14日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1663948/)
+## 第45届美国总统唐纳德·j·川普(Donald J. Trump)发表声明
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1663960/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
+#### 翻译：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/16369058371.png)
+或许，史蒂夫·班农(Steve Bannon)在这个国家遭受了前所未有的待遇，他们正打算这样对待其他人。如果他们对不再尊重我们的中国、俄罗斯和世界如此强硬，也许我们国家就不会一败涂地到如此前所未有的水平。我们从不谈论让我们国家如何伟大，而现在，随着阿富汗撤军、开放边境、通货膨胀等一切颓势被唤醒，我们国家正朝着一个不可想象的方向发展。美国的混乱正在加剧!
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-13.png)
-文章仅代表作者本人观点，与Gnews无关
-
-视频参看：2021.11.14早GTV新闻访谈
-
-[https://gtv.org/broadcast/watch/61910f2ae7e770379234d809](https://gtv.org/broadcast/watch/61910f2ae7e770379234d809)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[来源](https://mobile.twitter.com/reallizusa/status/1459895026134179840)
 
  
 

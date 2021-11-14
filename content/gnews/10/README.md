@@ -2,34 +2,41 @@
 ---
 
 
-## 美国制止英特尔在中共国的芯片增产计划
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1663907/)
+## 文贵爆料11.14： 盛开国际体育李红和2008年北京奥运会
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1663913/)
 
-作者：MOS – 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月12日的消息称，拜登政府否决了英特尔在中共国内增资扩张产能的计划。据了解，英特尔原计划向白宫寻求520亿美元的政府补贴，用以增加其在成都工厂的低制程产能，但白宫官员强烈反对这一举措。
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图像-2.jpg)
+图片来源：Miles Gettr
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-9.jpeg)
+李红，1991 年毕业于清华土木工程系以后，李红来到美国，先在亚利桑那州立大学取得硕士文凭，当了4 年工程师之后，又来到哈佛商学院攻读MBA。除了清华和哈佛的教育之外，她在世界无线通讯领域的顶尖公司高通公司当工程师和市场推广。
 
-消息显示，美国政府正在考虑建立一个对外投资的筛选机制，其中或将限制对中共的某些战略投资。另外，一项名为“CHIPS法案”的提案正在众议院等待通过。根据白宫的声明，“CHIPS法案”的目的在于，确保美国能够减少对脆弱供应链的依赖，包括在半导体方面。同时，政府希望使包含芯片在内的重要部件的生产回到美国，并以联邦资金援助的方式加强本土企业的研究和开发。
+2003年36岁的李红就担任2008国际奥委会（IOC）北京代表处首席代表，负责IOC在中国的市场运营、品牌维护、理念传播及与北京奥组委的事务协调，同政府高官、IOC高层、顶级赞助商、知名运动员均有广泛接触，是北京奥运会最重要的见证人之一。
 
-消息人士指出，美国政府非常注重防止中共利用美国的技术、知识和投资来发展侵犯人权和伤害美国国家安全的科技。为此，一些共和党立法者表示，他们正在推动“CHIPS法案”的一些附加条款，用来确保相关企业在得到资助后不会增加他们在中共国内的业务。
+结束2008年奥运使命后，李红创办**盛开国际体育**，代理奥运会、世界杯、欧洲杯在中国地区的贵宾接待业务。今天，盛开国际体育的办公室分别设在在北京和奥委会所在地瑞士。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-63.png)
+图片来源：盛开体育网站
 
-参考链接：[White House Spurns Intel Plan to Boost Chip Production in China](https://news.bloomberglaw.com/tech-and-telecom-law/white-house-spurns-intel-plan-to-boost-chip-production-in-china)
+2012年《人物周刊》采访李红：你现在商业上的很多合作伙伴都是奥运期间结下的友谊？这种友谊有什么特殊之处？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+李红回答：我们之间有非常深的信任，类似于一起插队、一起当兵的感情。那是一种和平时期罕见的生死考验。
 
-总编：正义的小新
-编辑：Irene木木
-校正/发稿：谐趣园
+打开盛开体育的网站，映入眼帘的是盛大成功运作中共国企业对奥委会的赞助，其中包括：**阿里巴巴、海信**。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2017年，阿里巴巴成为国际奥委会顶级赞助商，合作期限至2028年。盛开体育从2016年1月开始就为本项目而努力，最终收获了成果。
+
+2016年，在盛开体育的支持和协助下，海信成为2016年欧洲杯的顶级赞助商，这是欧洲杯设立56年以来首个中国顶级赞助商。
+
+2013年，盛开体育促成了迪拜对中国乒乓球队的里程碑式赞助协议，这是中国乒乓球队历史上第一个国际赞助商，同时也是史上第一次有城市作为赞助商赞助中国运动队。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-24.png)
+参考来源：
+
+1. [盛开体育](http://www.shankaisports.com/?page_id=156)
+
+[2. 搜狐](http://2008.sohu.com/20070324/n248948576.shtml)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
