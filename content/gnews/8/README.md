@@ -2,44 +2,35 @@
 ---
 
 
-## CDC承认无记录表明未接种疫苗的人从Covid康复后传播了Covid
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1663054/)
+## 澳媒报道：中共为什么惧怕巴丢草和他的涂鸦艺术
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1663094/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+撰稿：喜妈
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1114喜妈.jpg)（图片来自网络）
+澳媒最新报道，旅居澳洲的中共国持不同政见者艺术家巴丢草日前在意大利北部城市布雷西亚进行首次国际个展，可是中共政府要求意方，将展览撤销。中共认为巴丢草的作品“充满反华谎言”，“危及中意友好关系”。可是，意大利布雷西亚却站稳立场，回应中共政府的代表机构“我们布雷西亚的任何人，无论是市议会还是市民，都对这场展览的进行没有丝毫怀疑”。这个意大利城市的相关发言人称，“布雷西亚以其罗马遗址而闻名，长期以来一直欢迎持不同政见者、画家和作家，以‘捍卫艺术自由’”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/106856785-16161779612021-03-19t181310z_885711556_rc2iem9sbh4l_rtrmadp_0_usa-biden-georgia.jpeg)
+文章指出，被称为“中国班克西”的巴丢草表示，他“非常高兴和自豪”这座意大利城市“有勇气向中共国说‘不’”；他们能够以此“捍卫基本权利”。同时，报道援引巴丢草本人的话，“我想用我的艺术揭露谎言”，揭露中共国政府的问题，批评中共国政府，但另一方面也是在庆祝中国人民，中国人民多么勇敢……即使他们受到了威权政府这种非常恶劣的环境的影响”。
 
+据报道消息，巴丢草2018年在香港的展览被取消，中共国安对他本人及其家人进行威胁。巴丢草在意大利的展览据说其中有一张描绘的是中共国国家主席习近平与香港行政长官林郑月娥的脸融合的肖像画，“以说明这个前英国殖民地自治受到侵蚀”；同时，还有一张“描绘了习先生和小熊维尼”。
 
+文章中，巴丢草认为中国共产党“认为所有自由艺术家都是它的敌人，这就是它如此讨厌我的原因”。巴丢草补充说，他在社交媒体上“每天都会收到死亡威胁”。在本次展览中，他的创作还向“坦克人”致敬，他在画中描绘“那位身穿白衬衫、提着两个塑料购物袋的无名男子挺身而出”。此外该画作和当下的现实动态相结合，巴丢草描绘了“改造的坦克在显微镜下被类似 Covid-19 病毒的球覆盖”。
 
-图片来源：Carlos Barria | Reuters
+综上所述，笔者认为，中共就是也“纸老虎”，它就是外强中干的典型。对任何它利诱或者欺骗不了的，对一些有损于有害于它的虚假形象维护的，就只能靠威吓打压，强力迫害来实现其目的。可是这个世界上，收买也好，压迫也好，都是不能长久维持。这个报道首先从意方的政府机构到民间都能看到，正义立场仍然还是存在并逐渐在扩大影响。
 
+同时，我们也看到，任何一个西方国家对于民主、自由和人权这些基本价值都仍然有着牢固的基础。虽然，之前中共用市场、利益和资本等形成了对世界广泛的收买和欺骗，可是一旦人们知道更多的真相，而且只要真相还在民间持续传播和分享，人们就最终都会觉醒。觉醒的人们所迸发的力量，正义的集结必将形成更大的反抗威力。
 
-#### 编译：小红帽
+在这个报道中，我们还可以看到，中共是极其无力和狭隘的，一个艺术性的创作展览，几张讽刺的画就危及到你的政权了，这个本身就说明其政权的基础和民间的基础是不扎实和虚空的。一个在沙堆上建立的政权，一个浪过来就掀翻了。这就是为什么他们会害怕一个艺术家的一次展览，这就是为什么他们会对其中的个性表达和民间正义非常恐惧。当然，对于爆料革命的人们来说，这是一个信息，说明中共的国际影响力正在迅速衰退和减弱。人民的正义声音正在强大，国家的正义立场更加鲜明。
 
-疾病预防控制中心(CDC)承认，没有未接种疫苗的人在从中共病毒(Covid-19)康复后传播中共病毒的记录，以回应一名律师的信息自由法案（FOIA）请求。
+（本文纯属个人观点，与Gnews无关）
 
-美国纽约的一位律师在9月提出了一份信息自由法案请求，要求疾病预防控制中心提供文件，以 “反映符合以下情况的任何记录在案的个人：（1）从未接种过中共病毒疫苗；（2）曾经感染过中共病毒，康复后又再次感染；（3）再次感染时将中共病毒传播给另一人”。
+发稿：MG5
 
-疾控中心回应说：“对我们的记录进行搜索后，没有发现任何与你的要求有关的文件。[疾病预防控制中心紧急行动中心（EOC）表示不会收集这些信息](https://twitter.com/MichaelPSenger/status/1458953737397948418?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1458953737397948418%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fhumansarefree.com%2F2021%2F11%2Fcdc-admits-it-has-no-record-of-an-unvaccinated-person-spreading-covid-after-recovering-from-covid.html)。”
+参考消息：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/FD8-lm9VQAIoy1F.jpg)图片来源：[@MichaelPSenger](https://twitter.com/MichaelPSenger) 推特
+Why this Winnie The Pooh artwork has angered China
 
-
-今年初发表的一项检查[中共病毒康复者T细胞反应的研究](https://pubmed.ncbi.nlm.nih.gov/33594378/)显示，自然免疫力比接种疫苗能对中共病毒提供更好地保护。
-
-自然免疫并不会让大药厂赚钱，这就是为什么拜登政权和疾控中心从不谈论它的原因。
-
-**参考新闻：** [CDC Admits It Has No Record of an Unvaccinated Person Spreading Covid After Recovering From Covid (humansarefree.com)](https://humansarefree.com/2021/11/cdc-admits-it-has-no-record-of-an-unvaccinated-person-spreading-covid-after-recovering-from-covid.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+[https://au.news.yahoo.com/why-this-winnie-pooh-artwork-has-angered-china-075100031.html](https://au.news.yahoo.com/why-this-winnie-pooh-artwork-has-angered-china-075100031.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
