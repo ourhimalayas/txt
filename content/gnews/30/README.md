@@ -2,48 +2,42 @@
 ---
 
 
-## 联邦上诉法院维持对拜登疫苗强制令的临时禁令
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1662446/)
+## 黑客侵入FBI网络安全系统发邮件“警告”将有网络攻击
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662487/)
 
-**作者**：香草山美食部-蓝天大海
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-1.jpg)
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/fbi-email-970.jpg)
 
 
 
-1月12日，美国联邦第五巡回法院维持上周六的裁决，继续暂停执行拜登政府的疫苗强制令。该强制令要求拥有一百人以上的企业必须接种疫苗，或每周接受检测。法院表示，该强制令超越了行政当局的权限，有严重的宪法问题。自拜登政府发布强制令至今，已经引发了至少27个州以及商业和宗教团体的一系列法律挑战，他们认为拜登政府的强制令违宪。与此同时，美国第五、第六、第八和第十一巡回上诉法院也都在审理职业安全与健康管理局强制推进疫苗接种是否合法。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Biden-Build-Back-better.jpg)
-
-郭文贵先生在11月7日的大直播中曾经说过，美国第五巡回法院的临时禁止令最终一定会使拜登政府的疫苗强制令停止下来，在11月10日的大直播中郭先生进一步指出：联邦法院的禁止令意义很大，说明美国已经认识到疫苗灾难是人类面临的真正的灾难。禁止令不仅会影响美国，最终也会影响世界；禁止令也是打开美国法律大门的开始，随着禁止令的发出，可以预期法庭会进一步发出命令，要求彻查病毒来源和疫苗真相；当真相揭露之时，最终将聚集民意、媒体转向、国会立法，并向中共和邪恶势力追责。
-
-参阅链接：
-
-[https://www.zerohedge.com/political/it-raises-serious-constitutional-concerns-appeals-court-re-affirms-stay-biden-vaccine](https://www.zerohedge.com/political/it-raises-serious-constitutional-concerns-appeals-court-re-affirms-stay-biden-vaccine)
-
-***编辑/校对/发稿：遍地开花***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/十一月历-1.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-1.jpg)
+图片来源：www.komando.com
 
 
+#### 编译：小红帽
 
+据美国联邦调查局和安全专家称，黑客入侵了美国联邦调查局（FBI）的电子邮件系统，并发送了数以万计的信息，警告可能发生的网络攻击。
 
+联邦调查局周六在一份声明中说，假的电子邮件似乎来自一个以@ic.fbi.gov结尾的合法联邦调查局电子邮件地址。
+
+联邦调查局表示，尽管受该事件影响的硬件“在发现问题后迅速下线，”并补充道 “这是一个持续的情况”。
+
+威胁追踪组织Spamhaus Project在其推特账户上表示，黑客发送了数万封电子邮件，警告可能发生网络攻击。
+
+Spamhaus在推特上发布的一封电子邮件的副本显示，主题栏为 “紧急。系统中的威胁行为者 ”，后面似乎有国土安全部的签字。联邦调查局是司法部的一部分。
+
+联邦调查局的声明说，联邦调查局和网络安全与基础设施安全局都知道这一事件。
+
+**参考新闻：** [Email hackers penetrate FBI cyber security system (thenewdaily.com.au)](https://thenewdaily.com.au/life/tech/2021/11/14/hackers-penetrate-fbi-emails/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
