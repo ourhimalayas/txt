@@ -2,10 +2,10 @@
 ---
 
 
-## 辉瑞CEO称传播有关中共病毒疫苗“虚假信息”的人是罪犯
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1662539/)
+## “我的弟弟接种第一针疫苗后濒临死亡”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1662550/)
 
-11/10/2021 辉瑞公司首席执行官完全无视无数疫苗造成危害的实例，声称那些传播关于中共病毒疫苗的“虚假信息”的人应被视作罪犯
+11/10/2021 视频拍摄者的弟弟在接种第一针疫苗后濒临死亡，不省人世，没有呼吸。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

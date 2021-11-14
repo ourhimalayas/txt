@@ -2,29 +2,28 @@
 ---
 
 
-## 曾说不会在未接种疫苗人的葬礼上哭泣的心脏病专家在接种第三针中共病毒疫苗后梦中离世
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1662381/)
+## 共和党议员戴维森说美国人面临着政府致命性过度干预
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1662382/)
 
-翻译: 波士顿五月花  jiasen
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-21.png)
+图片来源：www.bbc.com
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-12-scaled.jpg)**Cardiologist Who Said He ‘Won’t Cry at Funeral’ For “Selfish” Unvaccinated People Suddenly Dies in His Sleep 2 Weeks After 3rd Covid Jab**
-www.thegatewaypundit.com
+零对冲网11月13日报道，众议院民主党人继续试图投票通过拜登总统的“重建美好方案”，一位众议院金融服务委员会成员俄亥俄州共和党议员沃伦·戴维森说这是一张巨大的社会化费账单，加上民主党主导的其他政策，代表了“政府潜在的致命性过度干预”，这将窒息自由企业并导致通货膨胀过高。
 
-加拿大新不伦瑞克省一名 52 岁的著名心脏病专家在接受第三次中共病毒疫苗仅两周后，突然在睡梦中离世。
+戴维森是国会健全货币核心小组的共同主席，他在一次面谈中告诉新唐人电视台新闻部记者说拜登政府的大单化费议案加重了通货膨胀，这是31年来最大的通胀，他说：“一在国会的辩论仅仅是在这个火浇多少汽油的问题，按照民主党的议程，他们想要加入更多的钱做重建美好方案”，他说民主党们想要扔很多额外的钱在经济上，这将对通胀造成巨大的影响。
 
-整个夏天，索拉博·卢奇梅迪尔（ Sohrab Lutchmedial ）医生都在不停地攻击那些选择不接种中共病毒疫苗的自私者。他曾在 2021 年 7 月的一条推文中说：“对于那些因为自私而不接种疫苗的人，无论如何，我不会在他们的葬礼上哭泣。”
+无论是美国救助计划还是重建美好方案都伯尼·桑徳斯的进程，桑德斯参议员还提出在15中削减亿万富翁的财富的一半并认为最初的6万亿预算还太少。
 
-这位医生意外地于 11 月 8 日去世，仅在接受第三次疫苗注射两周后。根据脸书发布的一个帖子，他于 10 月 24 日接种了第三针中共病毒疫苗。
+戴维森说：“这对美国人的生活方式和自由企业是很敌意的，我们正在面临着政府致命性过度干预，我们需要更多的自由和更少的政府干预，我们提倡合理用钱。
 
-据加拿大媒体报道，卢奇梅迪尔医生的朋友、家人和同事对他的突然死亡感到震惊。加拿大广播公司新闻报道如下：同事们表示——著名心脏病专家的去世，为医院系统内和社区留下了巨大的缺口。卢奇梅迪尔医生为新不伦瑞克心脏病中心和心脏病患者的治疗奉献了 20 多年。我们怀着悲痛的心情报告卢奇梅迪尔，这位同事、朋友、父亲、伙伴和鼓舞人心的灵魂突然意外死亡。新不伦瑞克心脏病中心心脏外科主任让-弗朗索瓦·莱加雷证实，卢奇梅迪尔于周一在圣约翰的家中梦中离世，享年 52岁 。
+拜登辩称他的“重建美好方案”将减轻通胀压力，包括通过减少看护儿童和老人的化费以使劳动力回到工作岗位，而且他说他的计划可以提供家庭更便宜的医疗保险以减轻家庭负担，同样，财政部部长珍妮特·耶伦10月份对美国全国广播公司也说这个计划可以减轻通胀的影响。
 
-新闻来源: [Cardiologist Who Said He ‘Won’t Cry at Funeral’ For “Selfish” Unvaccinated People Suddenly Dies in His Sleep 2 Weeks After 3rd Covid Jab](https://www.thegatewaypundit.com/2021/11/cardiologist-said-wont-cry-funeral-selfish-unvaccinated-people-suddenly-dies-sleep-2-weeks-3rd-covid-jab/)
+耶伦认为目前的通胀是由于提货方紧张造成的暂时性现象，明年将会正常。
 
-* * *
+但戴维森认为不是暂时的，他认为应该要看到联邦平衡账气球已经从原来的4万亿增加到疫情以来的8万亿，投入了大量的钱进入市场，当然会引起通胀，人们会很高兴看到金融财产增加，但你也发现零售价格在上涨，这就人们今天看到的，他说：“这不是暂时的。”
 
-*素材来源：**jiasen*
-
-*编辑**& 发布：jamie(文胤)*
+##### **新闻来源： **** **[America Facing “Potentially Fatal Overdose Of Government”: Rep. Davidson](https://www.zerohedge.com/political/america-facing-potentially-fatal-overdose-government-rep-davidson)
 
  
 

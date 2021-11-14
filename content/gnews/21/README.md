@@ -2,32 +2,26 @@
 ---
 
 
-## 教皇弗朗西斯“无法”妥善处理教会性丑闻感到“羞耻”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662362/)
+## “杀死法案”-数千名澳大利亚人游行反对维多利亚州的中共病毒专权
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1662364/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+翻译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-57.png)
+图片来源：网络截图
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/AP21279302075542.jpg)图片来源：AP Photo/Alessandra Tarantino
+据零对冲11月13日报道，成千上万的澳大利亚示威者周六在墨尔本中央商务区（CBD）的街道上排起了长队，和平地抗议维多利亚州政府新提出的大流行权力和疫苗措施。
 
+为了防止病毒大流行，澳大利亚政府对其公民实施了严厉的封锁和疫苗强制措施。严厉的措施正在成为政治家们治理国家的一种不可持续的方式。据《大纪元时报》报道，拟议的中共病毒法将赋予维州州长丹尼尔·安德鲁斯 “前所未有的权力”来宣布大流行病并实施封锁。并且他将能够允许自己支配长达三个月的紧急权力。对于紧急权力可以延长多长时间，并没有规定上限。
 
-#### 编译：小红帽
+在一个自由的民主国家，澳大利亚人从未见过这种类型的控制，他们感到非常愤怒。澳大利亚人对这种利用大流行来剥夺人民自由的专权的不满情绪日益高涨，越来越多的人走上墨尔本街头和平的表达自己的不满。人群高呼 “杀死法案 ”和 “炒掉安德鲁斯 ”的口号，他们封锁了道路和公共交通，使中央商务区的部分地区急剧停顿。示威者的长队从维多利亚州立图书馆一直延伸到春天大街的议会大厦。
 
-教皇弗朗西斯（Pope Francis）在周末赞扬了记者的 “使命”，并感谢他们揭露了教会的性丑闻并帮助避免被 “扫到出门”。
+新南威尔士州休斯区的澳大利亚联合党议员克雷格·凯利为自由挺身而出，与同胞们一起参加示威。他在推特上号召大家团结一致，反对暴政，反对独裁者，反对侵犯人权者，反对那些压迫我们的人。他还说：“是时候干掉这个法案了。”
 
-在周六为表彰两位长期报道梵蒂冈的记者举行的颁奖典礼上，教皇直接谈到了天主教会与教士性虐待丑闻的历史。他感谢记者，因为 “你们告诉我们教会中出了什么问题”，并感谢他们帮助性虐待受害者发声。
+另一位政治家，自由党上议院领袖戴维斯（David Davis）称维州州长的中共病毒法案是对权力的 “掠夺”并鼓励维多利亚州人在各个层面上以和平的方式反对该法案。
 
-2002年，《波士顿环球报》的一系列报道首次大范围曝光了教会内部的性虐待丑闻，并详细描述了教会涉嫌性虐待的行为以及如何努力向公众隐瞒这些行为。
+令人感到可悲和可恨的是，澳大利亚大多数媒体要么无视这次重要的游行，要么将其视为反疫苗集会。
 
-教皇弗朗西斯过去曾谈到教会内部的性虐待犯罪和指控。他在上个月表示，他对教会长期以来 “无法”妥善处理这种情况感到“羞耻”。他的评论是在一份独立报告发布后发表的，报告称自1950年以来，教会内部有超过20万起恋童癖和虐待案件。
-
-**参考新闻：** [Pope Francis addresses church sex scandals — RT World News](https://www.rt.com/news/540220-pope-francis-sex-scandals-journalists/)
-
-***发布：小红帽*****更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻链接：[“Kill The Bill” – Thousands Of Australians March Against Victoria’s COVID Powers](https://www.zerohedge.com/political/kill-bill-thousands-australians-march-against-victorias-covid-powers)
 
  
 

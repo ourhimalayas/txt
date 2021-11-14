@@ -2,38 +2,32 @@
 ---
 
 
-## 拜登正式签署安全设备法阻断华为中兴进入美国通信网络
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1662361/)
+## 教皇弗朗西斯“无法”妥善处理教会性丑闻感到“羞耻”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662362/)
 
-#### 作者：日本东京方舟农场 子辰
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9869A60C-220B-43CC-8EBE-B2FD9455E5AC.jpeg)（图片来自VOA）
-
-据《大纪元》11月13日报道，美国总统拜登正式签署了《安全设备法》，这是美国政府针对中共国通信和科技公司所采取的最新限制措施。
-
-美国国会众议院上个月以420比4的压倒性优势通过了这一立法议案。随后，参议院也在10月28日一致通过了这项法案。
-
-这项法律要求联邦通讯委员会（FCC）不得继续审批那些对美国国家安全构成威胁的设备采购申请。
-
-根据联邦通讯委员会2020年制定的新规则，美国电信公司需拆除并替换“对国家安全构成威胁的通信设备和服务清单”所涵盖的公司提供的设备。
-
-今年3月，华为和中兴以及深圳海能达通信、杭州海康威视和浙江大华这五家公司都被列入了黑名单。
-
-联邦通讯委员会委员布伦丹·卡尔表示，这项法律的通过，将有助于确保来自华为或中兴这类公司的不安全设备进入美国通信网络。
-
-注：本文仅代表作者观点
-
-*新闻链接： [https://www.voachinese.com/a/biden-signs-legislation-to-tighten-us-restrictions-on-huawei-zte-20211113/6310873.html](https://www.voachinese.com/a/biden-signs-legislation-to-tighten-us-restrictions-on-huawei-zte-20211113/6310873.html)*
-
-* * *
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/AP21279302075542.jpg)图片来源：AP Photo/Alessandra Tarantino
 
 
-```
-素材采编：子辰
-编辑：青衣青青
-发布：miumiu
-```
+#### 编译：小红帽
 
+教皇弗朗西斯（Pope Francis）在周末赞扬了记者的 “使命”，并感谢他们揭露了教会的性丑闻并帮助避免被 “扫到出门”。
+
+在周六为表彰两位长期报道梵蒂冈的记者举行的颁奖典礼上，教皇直接谈到了天主教会与教士性虐待丑闻的历史。他感谢记者，因为 “你们告诉我们教会中出了什么问题”，并感谢他们帮助性虐待受害者发声。
+
+2002年，《波士顿环球报》的一系列报道首次大范围曝光了教会内部的性虐待丑闻，并详细描述了教会涉嫌性虐待的行为以及如何努力向公众隐瞒这些行为。
+
+教皇弗朗西斯过去曾谈到教会内部的性虐待犯罪和指控。他在上个月表示，他对教会长期以来 “无法”妥善处理这种情况感到“羞耻”。他的评论是在一份独立报告发布后发表的，报告称自1950年以来，教会内部有超过20万起恋童癖和虐待案件。
+
+**参考新闻：** [Pope Francis addresses church sex scandals — RT World News](https://www.rt.com/news/540220-pope-francis-sex-scandals-journalists/)
+
+***发布：小红帽*****更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
