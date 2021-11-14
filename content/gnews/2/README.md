@@ -2,34 +2,40 @@
 ---
 
 
-## 一旦发生疫情，全员核酸检测
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662322/)
+## 同济大学研究报告揭示灭活疫苗会带来严重副作用
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1662349/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/卫健委-1.png)图片来源：YouTube
+#### 撰稿：日本东京方舟农场  海星
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/E6B17B0C-EA9E-4344-8465-1C8FF590EA29.jpeg)（图片来源：https://gdb.voanews.com/F53D15A8-FA9A-4E6F-9396-EF4ACFEF6886\_w1023\_r1\_s.jpg）
+
+11月10日，网友PandaRolling在盖特（gettr）上发布信息披露，中共国同济大学医学团队近期在英文学术期刊《细胞发现》上发表了一篇研究报告，揭示灭活疫苗不仅保护期极为短暂，且会给人体带来严重副作用。
+
+该报告的研究人员发现，志愿者在接种中共国产的灭活疫苗后所产生的抗体，在90天后就会基本消失，保护期极其短暂。
+
+不仅如此，灭活疫苗还影响志愿者的各项健康指标，包括与糖尿病、肾功能障碍、胆固醇代谢、凝血问题、电解质失衡等相关指标。这些病理和生理上的不良反应与感染中共病毒的患者如出一辙。
+
+该报告进一步揭示，接种疫苗后志愿者的免疫细胞基因表达发生了巨大变化，这会导致人体的免疫系统——包括淋巴细胞和单核细胞免疫系统，免疫能力下降，对外来病毒的反应能力降低。
+
+疫苗的保护期如此短暂，并且还会导致各种严重副作用，然而中共仍在大力推进疫苗接种。据《新唐人》报道，截止11月9日，中共公布的全国疫苗接种数量已经超过23亿剂，并且，对3~11岁儿童的接种也已经开始。
+
+注：本文仅代表作者观点
+
+*参考链接：*
+
+1. [*https://gettr.com/post/pgjzye3109*](https://gettr.com/post/pgjzye3109)
+2. [*https://gettr.com/post/pgod8r8bc3*](https://gettr.com/post/pgod8r8bc3)
 
 
-编辑：**Kelly**
-**编辑：Candy**
+* * *
 
-中共国国家卫健委发出通知：一旦发生疫情，500万人口以下城市要在两天内完成全员核酸检测。
 
-据中共《新华社》报道：
+```
+素材采编：海星
+编辑：青衣青青
+发布：miumiu
+```
 
-11月13日，国务院联防联控机制召开新闻发布会，教育部、国家卫生健康委、海关总署相关司局负责同志及中国疾控中心专家出席，重点介绍进一步做好冬春季疫情防控工作有关情况，并回答媒体提问。
-
-国家卫生健康委医政医管局监察专员郭燕红在发布会上介绍：10月22日，国务院联防联控机制医疗救治组，专门对全国有关加强核酸检测服务工作进行了再部署、再要求。文件发布以后，各地做了大量工作，在有关能力建设、合理布局、提高效率、优化服务等方面多措并举。
-
-一旦发生疫情，各地要在第一时间启动全员核酸检测，力争在最短时间内锁定感染范围，同时加快有关疫情防控的各项措施。500万以下人口的城市，要在两天以内完成全员核酸检测；500万以上人口的城市，要在三天以内完成全员核酸检测。各地要按照上述要求对核酸检测能力储备、采样人员安排、实验室检测安排、样品转运安排等做出预案。
-
-***发布：Candy***
-
-**更多资讯，请关注：**
-
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

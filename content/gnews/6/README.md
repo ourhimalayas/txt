@@ -2,40 +2,32 @@
 ---
 
 
-## 世上最大3D打印社区将于明年在德克萨斯州奥斯汀动工
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662286/)
+## 学而思宣布停止！股价暴跌，3000亿灰飞烟灭！
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1662310/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://nimg.ws.126.net/?url=http%3A%2F%2Fcms-bucket.ws.126.net%2F2021%2F1113%2F63584561j00r2hy03003hc000u000xac.jpg&amp;thumbnail=690x10000&amp;quality=75&amp;type=jpg)
+据中国基金报11月13日报道，继新东方之后，学而思也宣布在中共国内地义务教育阶段的学科类校外培训服务将于2021年12月31日截止。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ICON_Lennar_BIG_100-hm_Community_In-progressConstruction_ConceptRender.jpg)
+随即，学而思的母公司好未来，盘后暴跌超过5%。
+
+学而思在北京、上海等一线城市的认可度较高。学而思网校学员覆盖了全国331个地级行政区，海外用户覆盖了欧洲、北美等20余个国家和地区。2020年疫情使得学而思股价涨了一倍。2021年2月17日之后一路下挫。截至目前，股价暴跌近96%，总市值蒸发3110亿元。
+
+中共没钱了。于是，不管韭菜咸菜，还是大鱼小鱼，哪怕虾米鱼籽，中共镰刀和笊篱所到之处，清理得干干净净。搜刮民财是中共唯一的生财之道。至于国家发展、子孙后代，完全不在中共的考虑之内，因为中共盗国贼集团的财富和私生子女都在海外。国内教育机构壮大了，中共就开始抢钱了。
+
+新闻参考链接：[https://c.m.163.com/news/a/GOMIHTTO00259DLP.html?spss=newsapp](https://c.m.163.com/news/a/GOMIHTTO00259DLP.html?spss=newsapp%EF%BC%88%E6%A0%B9%E6%8D%AE%E6%96%B0%E9%97%BB%E5%86%85%E5%AE%B9%E6%A0%87%E9%A2%98%E7%AE%80%E5%8C%96%E4%B8%80%E4%B8%8B%EF%BC%89)
+
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-图片来源：www.archdaily.com
-
-
-#### 编译：小红帽
-
-美国第二大房屋建筑商Lennar公司与专门从事大型3D打印的技术先驱ICON公司合作，使用一台巨型3D打印机在现场”打印”100栋单层房屋，以铺设混凝土建筑材料。
-
-Lennar联合首席执行官乔恩·贾菲(Jon Jaffe)最近强调，整个建筑行业面临着材料短缺和成本飞涨的问题。为了解决这个问题，该公司正在转向3D打印业务。
-
-ICON的3D打印技术可以打印出高达3000平方英尺的房屋，而且与传统方法相比，时间更短，浪费更少。
-
-“建筑规模的3D打印不仅可以更快、更经济地提供更高质量的房屋，而且打印机车队可以改变整个社区的建设方式，使其变得更好。ICON联合创始人兼首席执行官杰森·巴拉德（Jason Ballard）说：”美国面临着大约500万套新房的赤字，因此，在不影响质量、美观或可持续性的情况下，迅速增加供应量是一个迫切的需要，这正是我们技术的优势所在。
-
-随着供应链的中断和商品成本的飙升，我们已经开始注意到越来越多的房屋被3D打印出来。因为木材价格处于历史高位，建造房屋不经济。今年早期，佛罗里达州和弗吉尼亚州的房屋被打印出来。现在，奥斯汀的整个社区也即将被打印出来。
-
-**参考新闻：**[World’s Largest 3D-Printed Neighborhood Coming To Austin, Texas  | ZeroHedge](https://www.zerohedge.com/technology/worlds-largest-3d-printed-neighborhood-coming-austin-texas)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

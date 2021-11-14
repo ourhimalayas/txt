@@ -2,28 +2,45 @@
 ---
 
 
-## 有声|针对美中首脑线上会晤 日本关注病毒溯源议题
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1662146/)
+## 英格兰银行考虑放宽抵押贷款规定
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662155/)
 
-配音：香草山美食部 – 玫瑰园
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-关于受世界瞩目的美中首脑下周的线上会晤，美国国务卿布林肯在11月10日正式确认，美国总统拜登与中共领导人习近平将有线上交流。一些消息灵通的媒体则爆料称，双方正在调整会晤时间，有可能定于15日举行。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Bank-of-England.jpg)
 
-日本一家媒体公布了布林肯发布相关消息时的视频，视频中，布林肯国务卿透露，本次的议题包含气候变化、病毒溯源等双方存在争论的内容。日本该媒体则着重报道了布林肯在病毒溯源问题上，要求中共国提供帮助并公开必要的情报。分析人士称，这表明近期日本确诊病例数的下降，并没有使它放弃对病毒起源调查的关注，相反这一话题可能成为接下来最被关注的话题之一。
 
-文字版原文：[针对美中首脑线上会晤 日本关注病毒溯源议题](https://gnews.org/zh-hans/1658010/)
+ 
+图片来源： www.bnreport.com
 
-音频处理：喜山必胜Maverick
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+#### 编译：小红帽
+
+英格兰银行正在考虑放宽抵押贷款规定，此举可能会促进房价上涨。
+
+由行长安德鲁·贝利(Andrew Bailey)领导的英国中央银行将在下个月宣布，贷款人是否可以增加他们发放的大额抵押贷款的数量。
+
+银行在向需要超过其工资4.5倍的借款人提供住房贷款是有限制的。这些客户在银行发放的新贷款中的比例不得超过15%。
+
+英格兰银行在上个月的更新中提到了这些规定，称 “没有证据表明贷款标准恶化或高负债家庭的数量大幅增加”。
+
+这些规定–被称为“压力测试”–是在金融危机后制定的，旨在确保银行有足够的弹性，能够承受借款人在利率飙升后陷入财务困境。
+
+这将意味着，那些买不起第一套房产或无法借到足够资金的人将有机会买房。理论上，这将推高房价。
+
+一些银行和建筑协会已经开始提供更大的贷款额度。Nationwide在4月表示，正在将首次购房者的贷款额度提高到其年收入的5.5倍，尽管借款人需要锁定至少5年。（注：Nationwide是世界上最大的建筑协会，也是最大的储蓄供应商之一，是英国前三大抵押贷款供应商。）
+
+**参考新闻：**[Bank of England considering easing mortgage rules (msn.com)](https://www.msn.com/en-au/money/other/bank-of-england-considering-easing-mortgage-rules/ar-AAQFQ91?ocid=msedgntp)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
