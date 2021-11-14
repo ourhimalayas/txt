@@ -2,38 +2,29 @@
 ---
 
 
-## 拜登正式签署安全设备法阻断华为中兴进入美国通信网络
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1662361/)
+## 曾说不会在未接种疫苗人的葬礼上哭泣的心脏病专家在接种第三针中共病毒疫苗后梦中离世
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1662381/)
 
-#### 作者：日本东京方舟农场 子辰
+翻译: 波士顿五月花  jiasen
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9869A60C-220B-43CC-8EBE-B2FD9455E5AC.jpeg)（图片来自VOA）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-12-scaled.jpg)**Cardiologist Who Said He ‘Won’t Cry at Funeral’ For “Selfish” Unvaccinated People Suddenly Dies in His Sleep 2 Weeks After 3rd Covid Jab**
+www.thegatewaypundit.com
 
-据《大纪元》11月13日报道，美国总统拜登正式签署了《安全设备法》，这是美国政府针对中共国通信和科技公司所采取的最新限制措施。
+加拿大新不伦瑞克省一名 52 岁的著名心脏病专家在接受第三次中共病毒疫苗仅两周后，突然在睡梦中离世。
 
-美国国会众议院上个月以420比4的压倒性优势通过了这一立法议案。随后，参议院也在10月28日一致通过了这项法案。
+整个夏天，索拉博·卢奇梅迪尔（ Sohrab Lutchmedial ）医生都在不停地攻击那些选择不接种中共病毒疫苗的自私者。他曾在 2021 年 7 月的一条推文中说：“对于那些因为自私而不接种疫苗的人，无论如何，我不会在他们的葬礼上哭泣。”
 
-这项法律要求联邦通讯委员会（FCC）不得继续审批那些对美国国家安全构成威胁的设备采购申请。
+这位医生意外地于 11 月 8 日去世，仅在接受第三次疫苗注射两周后。根据脸书发布的一个帖子，他于 10 月 24 日接种了第三针中共病毒疫苗。
 
-根据联邦通讯委员会2020年制定的新规则，美国电信公司需拆除并替换“对国家安全构成威胁的通信设备和服务清单”所涵盖的公司提供的设备。
+据加拿大媒体报道，卢奇梅迪尔医生的朋友、家人和同事对他的突然死亡感到震惊。加拿大广播公司新闻报道如下：同事们表示——著名心脏病专家的去世，为医院系统内和社区留下了巨大的缺口。卢奇梅迪尔医生为新不伦瑞克心脏病中心和心脏病患者的治疗奉献了 20 多年。我们怀着悲痛的心情报告卢奇梅迪尔，这位同事、朋友、父亲、伙伴和鼓舞人心的灵魂突然意外死亡。新不伦瑞克心脏病中心心脏外科主任让-弗朗索瓦·莱加雷证实，卢奇梅迪尔于周一在圣约翰的家中梦中离世，享年 52岁 。
 
-今年3月，华为和中兴以及深圳海能达通信、杭州海康威视和浙江大华这五家公司都被列入了黑名单。
-
-联邦通讯委员会委员布伦丹·卡尔表示，这项法律的通过，将有助于确保来自华为或中兴这类公司的不安全设备进入美国通信网络。
-
-注：本文仅代表作者观点
-
-*新闻链接： [https://www.voachinese.com/a/biden-signs-legislation-to-tighten-us-restrictions-on-huawei-zte-20211113/6310873.html](https://www.voachinese.com/a/biden-signs-legislation-to-tighten-us-restrictions-on-huawei-zte-20211113/6310873.html)*
+新闻来源: [Cardiologist Who Said He ‘Won’t Cry at Funeral’ For “Selfish” Unvaccinated People Suddenly Dies in His Sleep 2 Weeks After 3rd Covid Jab](https://www.thegatewaypundit.com/2021/11/cardiologist-said-wont-cry-funeral-selfish-unvaccinated-people-suddenly-dies-sleep-2-weeks-3rd-covid-jab/)
 
 * * *
 
+*素材来源：**jiasen*
 
-```
-素材采编：子辰
-编辑：青衣青青
-发布：miumiu
-```
-
+*编辑**& 发布：jamie(文胤)*
 
  
 
