@@ -2,22 +2,24 @@
 ---
 
 
-## 港共政府拒绝延期英媒记者签证
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1662708/)
+## 立陶宛外交部长敦促日本和其他民主国家联合起来对付中共
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1662823/)
 
 #### 翻译/撰稿：zzballack
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-58.png)图片来源：英国独立报
-据《布雷特巴特新闻网》（Breitbart News）11月13日报道，英国《经济学人》（The Economist）杂志11月13日表示，香港当局在没有提供任何解释的情况下，拒绝为其记者黄淑琳（Sue-Lin Wong）续发工作签证。黄淑琳是澳大利亚人，目前在香港工作，报导过2019年的香港反送中抗议运动。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-2-1.jpg)图片来源：立陶宛国家广播电视台
+日媒《共同通讯社》（Kyodo News）11月13日报道称，现年39岁的立陶宛外交部长加布里埃乌斯·兰茨贝尔吉斯（Gabrielius Landsbergis）在最近的一次采访中呼吁日本、美国和其他民主国家应互相协助应对中共。立陶宛因为正在深化其与台湾的关系正面临来自北京的报复。
 
-《经济学人》主编赞尼·明顿·贝多斯（Zanny Minton Beddoes）11月12日发表声明说：“香港移民当局拒绝为我们的记者黄淑琳的工作签证延期，我们对此决定表示遗憾。我们敦促香港政府保持对外国媒体的开放，这对香港作为国际城市的地位至关重要。”
+关于中共对许多在中共国经营的立陶宛公司实施制裁，兰茨贝尔吉斯评论说：“北京的行为不是基于国际法，而是强权。它们利用权力和经济杠杆在国际舞台上对其它国家施加压力。这是独裁国家普遍存在的问题，我们不认为这是国家之间正常的互动方式。北京因台湾问题向立陶宛施加的经济压力对我们来说是个考验，同时对于民主国家是否能够互相协助，令中共意识到其胁迫措施不会奏效也是一种考验。中共的施压政策可以用于任何人。”
 
-黄淑琳11月13日发推确认签证被拒，她说：“很遗憾我将无法继续在香港报导。我喜欢了解这座城市及其人民，我会想念你们所有人。”黄淑琳是港共政府实施国安法后，至少第3名工作签被拒绝延期的外媒记者。此前，《香港自由新闻 》（HKFP）编辑亚伦·麦克·尼古拉斯（Aaron Mc Nicholas）及《纽约时报》（New York Times）记者储百亮（Chris Buckley）的工作签证也被拒，港府同样没有给出原因。这令外界担忧香港的新闻自由进一步受到侵蚀。
+兰茨贝尔吉斯回顾了今年9月他在华盛顿与美国国务卿安东尼·布林肯（Antony Blinken）的会晤，强调说，“美国直接支持我们的外交政策，这对我们非常重要。我真的鼓励与台湾建立更紧密的经济联系。如果立陶宛议会代表团在不久的将来访问台湾，我也不会感到惊讶。”
 
-香港外国记者会（FCC）今年11月5日公布的一项最新调查显示，自2020年6月港府实施国安法以来，56%的记者承认至少在某种程度上自我审查或避免报导敏感话题，84%的人感到香港新闻行业的工作环境正在逐渐恶化，46%的受访者正考虑或已计划离开香港。
+兰茨贝尔吉斯计划在今年12月访问日本，届时他将有机会与日本高层官员讨论中共政策和其他印太地区事务。
 
-新闻来源：[Communist Puppet Govt in Hong Kong Refuses to Renew Western Journalist’s Visa](https://www.breitbart.com/europe/2021/11/13/communist-puppet-govt-hong-kong-refuses-renew-western-journalists-visa/)
+立陶宛在今年7月决定允许台湾在其首都维尔纽斯（Vilnius）正式设立“驻立陶宛台湾代表处”，这也是欧洲国家第一个以台湾为名的代表处。作为回应，北京宣布召回其驻立陶宛大使。
+
+新闻来源：[Lithuania urges Japan, other democratic states to unite over China](https://english.kyodonews.net/news/2021/11/96827b059180-lithuania-urges-japan-other-democratic-states-to-unite-over-china.html)
 
  
 
