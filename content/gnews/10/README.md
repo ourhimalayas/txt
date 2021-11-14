@@ -2,38 +2,28 @@
 ---
 
 
-## 澳洲将12岁以下儿童接种COVID-19疫苗的时间推迟到2022年
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1662149/)
+## 数百穆斯林伦敦中共国大使馆外集会 为维吾尔人发声
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1662230/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-8.jpg)数百穆斯林伦敦中共国大使馆外集会 为维吾尔人发声 网络图片
+据自由亚洲电台11月13日报道，数百名穆斯林13日在英国伦敦中共国大使馆外集会，抗议中共对国内维吾尔人的迫害，呼吁全球穆斯林、人权捍卫者、世界强国和正义之士，团结一致，抗议中共的暴行。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Untitled.jpg)圖片來源：resources0.news.com.au
+曼彻斯特中共国使馆外也在同一时间举行声援维吾尔人的集会。数十年前纳粹屠杀犹太人的暴行被揭发后，国际社会一直呼吁不要让历史重演。中共对维吾尔人实施的种族灭绝比当年的纳粹，有过之而无不及。只要全世界联合起来，哪怕只是种族灭绝这一项，就足以让中共彻底灭亡。全球行动起来！
+
+新闻参考链接：[https://www.rfa.org/mandarin/Xinwen/6-11132021161559.html](https://www.rfa.org/mandarin/Xinwen/6-11132021161559.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-#### 编译：小红帽
+编辑：【英国伦敦喜庄园编辑部】
 
-尽管澳大利亚联邦政府从海外获得了500万剂中共病毒（COVID-19）疫苗，但12岁以下儿童将等到2022年才能接种。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-澳大利亚卫生当局正在等待来自美国的更多数据，然后才能批准12岁以下儿童接种中共病毒疫苗 。
 
-预计儿童疫苗推广工作将于明年1月开始，并在该月底返校前逐步推进。
-
-有消息称，本周仅新南威尔士州就有17所学校因中共病毒问题而被迫关闭。
-
-在获得的500万剂儿童疫苗中，其中460万剂将用于5至11岁的儿童。
-
-其余的疫苗将用于0至4岁的儿童，他们可能只会接种一剂疫苗。
-
-**参考新闻：**[Coronavirus vaccine updates: Children under 12 to wait until 2022 for COVID-19 vaccination (9news.com.au)](https://www.9news.com.au/national/coronavirus-vaccine-updates-children-under-12-to-wait-until-2022-for-covid-19-vaccination/29765bad-bfe9-47d5-8cf8-6a927a50e35a)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

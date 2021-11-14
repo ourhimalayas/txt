@@ -2,57 +2,24 @@
 ---
 
 
-## 联邦上诉法院确认暂缓拜登有争议的强制疫苗接种令
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1662035/)
+## 有声|GTV新闻访谈简报|2021年11月11日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1662059/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/111303-1.jpg)图片：来自Dreamstime
-来自美国《新闻中心》2021年11月12日报道
+配音：香草山教育部 – 蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-1-3-1.png)
+文字版原文：[GTV新闻访谈简报|2021年11月11日早](https://gnews.org/zh-hans/1656250/)
 
-**摘要翻译：**
+音频处理：喜山必胜Maverick
 
-周五，美国上诉法院维持其裁决，暂停总统乔·拜登对拥有100名或更多员工的公司，强制接种新冠病毒疫苗的命令，驳回了其政府提出的质疑。
-
-位于新奥尔良的美国第五巡回上诉法院的一个三人小组确认了其裁决。尽管拜登政府的立场是“停止执行疫苗授权，可能会导致数十人甚至数百人死亡”。
-
-意见书上说：“疫苗授权过于宽泛，令人震惊。” 巡回法院法官库尔特·恩格尔哈特为专家组写道：“这项强制令是一把万能的大锤，几乎没有试图考虑到工作场所（和员工）之间的差异。”
-
-疫苗强制令在美国引起很大争议。支持者表示，它是结束近两年的冠状病毒大流行的必要条件，而反对者则认为它违反了美国宪法，并遏制了个人自由。他们还表示，这项强制令，可能会使已在努力解决的劳动力短缺和供应链中的重大问题上雪上加霜。
-
-第五巡回法院的法官似乎同意反对者的观点。恩格尔哈特写道：“维护我们的宪法结构和维护个人根据自己的信念做出强烈个人决定的自由，也符合公共利益，甚至，或者也许特别是，当这些决定使政府官员感到受挫时，也是如此。”
-
-该规则由职业安全与健康管理局 (OSHA) 发布，并规定拥有至少100名员工的企业，要求其员工接种疫苗，或要求每周接受测试并戴口罩。
-
-白宫官员没有立即对这一裁决发表评论，德州总检察长肯·帕克斯顿称赞这是一项胜利。德克萨斯州与美国其他州以及私人雇主和宗教组织一道，对该命令提出了法律挑战。
-
-帕克斯顿在推特上说：“引用德克萨斯州的‘令人信服的论点’，第五巡回法庭已经暂停了职业安全与健康管理局其违宪和非法的私营企业疫苗强制接种令。”
-
-拜登在9月份实施了这一疫苗强制接种令，他告诉美国人，对于那些拒绝接种疫苗的人，“我们的耐心正在耗尽”。
-
-**简评：**
-
-上诉法院周五维持其裁决，确认了搁置总统乔·拜登要求拥有100名或以上员工的公司，注射新冠病毒疫苗命令的决定，驳回了其政府的挑战。第五巡回法院暂停了OSHA违宪和非法的针对私营企业的疫苗规定。我们赢了! 诉讼将继续进行。无论对于德州，还是对于摆脱拜登的暴政和无法无天，这都是一场巨大的胜利。
-
-郭文贵先生顶着巨大的压力及危险，告诉世界：疫苗是灾难！全球诸多因疫苗致死致残，受着折麽的例证也告诉我们，疫苗是中共以及邪恶势力释放病毒的最终目的，是真正杀人的工具。在走向疫苗灾难的今天，更应努力传播疫苗真相，唤醒更多的人们，远离疫苗，拒绝疫苗！
-
-新闻链接：[Federal Appeals Court Affirms Hold on Biden’s Divisive Vax Mandate](https://www.newsmax.com/politics/vaccine/2021/11/12/id/1044491/)
-
-***翻译/简评**：希望*
-
-***校对**：Julia Win*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

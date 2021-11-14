@@ -2,43 +2,24 @@
 ---
 
 
-## 2021/11/13 文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1662018/)
+## 有声|GTV新闻访谈简报|2021年11月11日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1662045/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/111309.png)[盖特直播链接](https://gettr.com/post/pgvo9o2771)
-今天的《真人真事》采访了瑞秋、长岛哥和Qmay，战友们变得越来越健康、漂亮、成熟，这就是新中国联邦的魅力！
+配音：香草山教育部 – 蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1111text-SC-2.png)
+文字版原文：[GTV新闻访谈简报|2021年11月11日晚](https://gnews.org/zh-hans/1657374/)
 
-布隆伯格一个女实习记者报道喜币现在流通估值270亿美元，然而绝口不提一共有1000亿个币的总额数，不提所具备的区块链技术和系统是目前全世界最好的，不提爆料革命爆出了海航的王健、陈峰、贯军、刘呈杰、孙瑶；也不提马云、孟建柱、 王岐山、 孙立军、 孟宏伟被软禁被抓的事，不提吴征……这个女孩十有八九是江浙人，归吴征所控制。想黑咱们又做不到，既羡慕又嫉妒，好话一句不说，但至少也算是广告。
+音频处理：喜山必胜Maverick
 
-中共六中全会结束，所有的企业家们逐渐地开始第一次分享财富，拿到海外的股份，安排董事职位，第二次开始分享不动产，第三次没准就分老婆闺女了……
-
-昨天那些发出的照片，穿绿色衣服的人2002年在办公室给我看刘志华的犯罪视频，王岐山和刘志华的录音（我从未放出来过）。穿西装后面牵手那张照片是和某中央常委大领导的妻子出来与我会面时拍的，她告诉我“他们将你定性为美国在中国安插的间谍和共济会成员，准备对你下手，但是你涛哥已经帮你解决了……” 那一次如果没有她的出手相助，我已经消失在人间了。这件事情我们回头找机会细说。
-
-以后我还会给战友看一些过去的照片，让大家可以了解一个真实的文贵。七哥不是天生就会搞G系列，也不是生下来就想灭共。虽然那时候小，但还是能看到我的唯真不破、坚持勇气、相信上天有信仰，这也是我从小到大成长的一条主线。孝敬老人、忠于朋友、后来一心灭共、想改变家人的生活，从未妥协过。
-
-去过盘古酒店的运动员很多，都公开玩“宇宙无穷大，地球是一粒沙”的游戏；然而郝海东、叶钊颖并没有去过，说明他们很干净，不属于那个高级黑社会里的人。
-
-我们接下来会对盘古和裕达所有过去受到牵连的同事们以及家人有一个重大的金融安排，正在和投资者们商量委托一个第三方基金或金融机构，给同事们和子孙后代终身都享受喜联储的股份和喜币。从我离开看守所到今天，所有跟随过我的同事们，包括海通和方正曾经的同事们，和现在的战友们都享有一样的权利。
-
-班农先生又要被抓了，只有在这种激烈的、黑暗的斗争和生死考验中才能历炼出真正的英雄！
-
-***听写**：阿甘*
-
-***校对**：小雨*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

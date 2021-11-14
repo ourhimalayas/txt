@@ -2,18 +2,18 @@
 ---
 
 
-## 日台交流高峰会：神户宣言挺台加入国际组织
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661508/)
+## 澳防长揭秘：潜艇交易弃法，投英美 捍卫台湾对抗中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661507/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：澳喜农场 – 在远方
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-由日台议员组成的第七届日台交流高峰会于11月12日在日本神户市盛大举办。 会中双方发表神户宣言，内容包括：加强日台在经济、文化、教育、医疗、防灾等领域的交流；尽速制订“日台关系基本法”；加强推动力量，帮助台湾参与世界卫生组织、国际民用航空组织、国际刑警组织等。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture77-4.jpg)
-10月，中共驻大阪总领事馆打电话向神户市施压，要求停办峰会。消息曝光后，引起日本各地议员的反感，反而促使了他们积极参与此次峰会。
+近日，澳洲防长彼得·达顿揭秘了澳大利亚放弃采购法国常规潜艇，转为与美英合作建造核潜艇的内幕。他说，如果战争爆发，我们的盟友将被迫采取行动，澳大利亚将帮助保护台湾来对抗中共。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture66-4.jpg)
+目前西方社会越来越担心，中共在印太地区日益强硬的态度，以及中共对东海和南海所提出的领土主张。澳洲总理莫里森希望澳大利亚拥有强大的防御能力，以阻止中共入侵太平洋。其中，远程核潜艇是必备武器。
 
-台湾驻日代表—谢长廷亲自与会，感谢日本各地议员对台湾的支持。
+因此在9月15日，美、英、澳宣布建立新的三边安全伙伴关系，美英支持澳大利亚海军建立核潜艇部队，澳洲决定与美英合作建造核潜艇。随后澳洲政府立即宣布，决定终止此前原定采购12艘法国常规动力潜艇的交易。
 
-参考链接：[日台交流高峰会：神户宣言挺台加入国际组织](https://www.cna.com.tw/news/firstnews/202111130002.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+参考链接：[澳防长揭秘：潜艇交易弃法，投英美 捍卫台湾对抗中共](https://www.dailymail.co.uk/news/article-10195075/Australia-help-defend-Taiwan-against-China-says-Defence-Minister-Peter-Dutton.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
@@ -28,8 +28,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
