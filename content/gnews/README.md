@@ -15,101 +15,101 @@
 
 ---
 
-### [秦刚邀纽约华侨座谈，厚颜拉拢实为绑架](/content/gnews/1/README.md)
+### [主流媒体隐瞒体坛明星接种疫苗猝死的真相](/content/gnews/1/README.md)
+ ` 澳喜农场`
+
+### [11/14/21 香港快讯 【47人案】原定月尾再讯 消息﹕律政司申请延至明年2月](/content/gnews/2/README.md)
+ ` 英喜-粵語組`
+
+### [中共泯灭天良，继续给儿童注射毒疫苗](/content/gnews/3/README.md)
  ` 波士顿五月花农场`
 
-### [俄罗斯开始向印度交付S-400防空导弹系统](/content/gnews/2/README.md)
+### [COP26在最后一刻达成妥协](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [银河快讯：日本将向数字产业投资4000亿日元；食用油价格今年第四次上调](/content/gnews/3/README.md)
+### [有声|心理患病学生将被中共重点监控](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [秦刚邀纽约华侨座谈，厚颜拉拢实为绑架](/content/gnews/6/README.md)
+ ` 波士顿五月花农场`
+
+### [俄罗斯开始向印度交付S-400防空导弹系统](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [银河快讯：日本将向数字产业投资4000亿日元；食用油价格今年第四次上调](/content/gnews/8/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [2021年11月6-7日 郭先生视频重点内容整理](/content/gnews/4/README.md)
+### [2021年11月6-7日 郭先生视频重点内容整理](/content/gnews/9/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [串珠449:中共领导不是人人喊打，而是人人喊杀！](/content/gnews/5/README.md)
+### [串珠449:中共领导不是人人喊打，而是人人喊杀！](/content/gnews/10/README.md)
  ` 郭爆料串珠`
 
-### [DC每日热点1114](/content/gnews/6/README.md)
+### [DC每日热点1114](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [爆料革命——历史的今天11月7日](/content/gnews/7/README.md)
+### [爆料革命——历史的今天11月7日](/content/gnews/12/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [卡车司机短缺已成为全球性问题](/content/gnews/8/README.md)
+### [卡车司机短缺已成为全球性问题](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021年11月4-5日 郭先生视频重点内容整理](/content/gnews/9/README.md)
+### [2021年11月4-5日 郭先生视频重点内容整理](/content/gnews/14/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [共同富裕是习总加速师愚民新手法](/content/gnews/10/README.md)
+### [共同富裕是习总加速师愚民新手法](/content/gnews/15/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [银河快讯:丰田日本工厂下月全部恢复；日美将就审查附加钢铝关税举行会谈](/content/gnews/11/README.md)
+### [银河快讯:丰田日本工厂下月全部恢复；日美将就审查附加钢铝关税举行会谈](/content/gnews/16/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [丰田加速推动氢燃料•生物燃料汽车的研发](/content/gnews/12/README.md)
+### [丰田加速推动氢燃料•生物燃料汽车的研发](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年10月30-11月1日 郭先生视频重点内容整理](/content/gnews/13/README.md)
+### [2021年10月30-11月1日 郭先生视频重点内容整理](/content/gnews/18/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [秘翻在线：中共国的全员核酸检测，是为防疫还是为赚钱？](/content/gnews/14/README.md)
+### [秘翻在线：中共国的全员核酸检测，是为防疫还是为赚钱？](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美27州司法发起诉讼挑战拜登政府的疫苗强制令](/content/gnews/15/README.md)
+### [美27州司法发起诉讼挑战拜登政府的疫苗强制令](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [拜登无视科学结论和法院命令，签署违宪且非法的疫苗强制令](/content/gnews/16/README.md)
+### [拜登无视科学结论和法院命令，签署违宪且非法的疫苗强制令](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [具有天然免疫力的人为什么不能取得疫苗强制令豁免？](/content/gnews/17/README.md)
+### [具有天然免疫力的人为什么不能取得疫苗强制令豁免？](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [12-15岁儿童因疫苗诱发心肌炎的概率是平常的19倍](/content/gnews/18/README.md)
+### [12-15岁儿童因疫苗诱发心肌炎的概率是平常的19倍](/content/gnews/23/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [杰克·基恩将军谈中共建造美国军舰全尺寸模型](/content/gnews/19/README.md)
+### [杰克·基恩将军谈中共建造美国军舰全尺寸模型](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [因接种中共病毒疫苗而死亡的人会像苍蝇一样多吗？](/content/gnews/20/README.md)
+### [因接种中共病毒疫苗而死亡的人会像苍蝇一样多吗？](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [犹太人的疫苗灾难](/content/gnews/21/README.md)
+### [犹太人的疫苗灾难](/content/gnews/26/README.md)
  ` 骄子`
 
-### [11/14/2021国内经济财经周报：喜币暴涨引各方侧目；沈南鹏抛售美团拼多多股份](/content/gnews/22/README.md)
+### [11/14/2021国内经济财经周报：喜币暴涨引各方侧目；沈南鹏抛售美团拼多多股份](/content/gnews/27/README.md)
  ` 秘密翻译组金融团队`
 
-### [蝼蚁农民](/content/gnews/23/README.md)
+### [蝼蚁农民](/content/gnews/28/README.md)
  ` 首尔天池农场`
 
-### [中共外汇危机](/content/gnews/24/README.md)
+### [中共外汇危机](/content/gnews/29/README.md)
  ` 澳喜农场`
 
-### [日本政府将立法重创中共国制造业](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [DC大中华时事：中共称美欧“民主”注定会走入歧途](/content/gnews/26/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [史蒂夫·班农被以藐视众议院传票起诉](/content/gnews/27/README.md)
+### [史蒂夫·班农被以藐视众议院传票起诉](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共对教育、保险、游戏等产业的监管压力产生涓滴效应](/content/gnews/28/README.md)
+### [中共对教育、保险、游戏等产业的监管压力产生涓滴效应](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [求救！ 澳大利亚已变成分裂、勒索、胁迫、歧视的土地](/content/gnews/29/README.md)
+### [求救！ 澳大利亚已变成分裂、勒索、胁迫、歧视的土地](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [犯罪阴谋集团正在对我们的孩子进行种族大屠杀](/content/gnews/30/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [黑色森林](/content/gnews/31/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [HPay与澳洲金融体系整合的构想](/content/gnews/32/README.md)
- ` 澳喜农场`
 
 ### [谁能拯救中共国8439.5万3～11岁的孩子？](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
