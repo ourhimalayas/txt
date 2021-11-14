@@ -2,10 +2,10 @@
 ---
 
 
-## 中共厚颜无耻地声称自己的支持率有95%以上
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1662780/)
+## 中共共同富裕是百姓艰苦奋斗、企业家多纳税捐款、财富由国家分配
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1662782/)
 
-11/12/2021 中共厚颜无耻地声称自己的支持率有95%以上，是真正的人民民主！
+11/12/2021 中共的共同富裕就是百姓艰苦奋斗、企业家多纳税捐款、财富由国家分配。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
