@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/14/2021 10:04 PM (UTC)`
+
+11/14/2021 Miles Guo: The New Federal State of China will have our own defense forces around the world to safeguard not only the fellow fighters and their families, but also other Asians; fellow fighters who are fluent in your local languages, please follow the instructions of the Himalaya Farms at any time to participate in the coordination at the front line<br/><br/>11/14/2021 文贵直播：新中国联邦在全球会有我们自己的国防军，不但保护战友和家人，也保护其他亚裔；请熟练掌握当地语言的战友们随时听候农场调遣，参与前线协调工作<br/>
+![img](https://media.gettr.com/group17/getter/2021/11/14/22/04/71b89a6e-3a3b-ad39-e7dc-e647b81d2142/out.jpg)
+
+---
+
 `@miles 11/14/2021 1:22 PM (UTC)`
 
 2021年11月14日 文贵大直播：香港大陆及世界股市；喜币迎接金融大转变；疫苗灾难台湾房地产；新中国联邦机会何在
@@ -289,13 +296,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 11月9号：我得乖乖嘞，这个提现十万美元意义之深远，就是改变世界的金融系统的又一个开始！这个世界很快就没有人再需要信用卡．支票．银行帐号，实现真正的财富的自由．和绝对的财富的隐私和保密．安全，有尊严的享受自己创造的财富，一切都已经开始！
 ![img](https://media.gettr.com/group3/getter/2021/11/09/23/5ccf4008-0076-0925-f1c8-7f2aeb44040a/2492f39458c24938e8dbca54196d4b61.jpg)
-
----
-
-`@miles 11/9/2021 10:21 PM (UTC)`
-
-11/9/2021 Miles Guo’s GETTR: The US reopened land and air borders on November 8. Why are so many people in the world, including the Europeans, flocking to the US? We should beware of the CCP taking this opportunity to release the CCP virus again. The CCP’s real estate crisis has led the Federal Reserve and the US Department of Treasury to raise the red flags, because the CCP simply has no money to repay its debts!<br/><br/>11/9/2021 文贵盖特: 11月8日美国开放陆空边境，为何全世界包括欧洲人都蜂拥而至？此时更要谨防中共借机再次放毒；中共房地产危机促使美联储、财政部敲响警钟，中共根本无钱可还！<br/>
-![img](https://media.gettr.com/group43/getter/2021/11/09/22/21/fd4c3237-8007-6b14-f937-9a5290315a38/out.jpg)
 
 ---
 
