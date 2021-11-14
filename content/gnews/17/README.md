@@ -2,30 +2,23 @@
 ---
 
 
-## 花旗集团前首席执行官表示：所有大银行很快就会进行加密交易
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1663842/)
+## 11月12日文贵大直播精剪汇编——上集
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1663864/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-10.jpeg)
+撰稿：Gradient Boost
 
-今日，前花旗集团首席执行官维克拉姆·潘迪特，在新加坡举行的技术会议上预测，世界所有主要银行都将在“一到三年内”开始加密交易。 他在接受彭博社记者采访时表示，为了能继续主导银行和金融交易领域，大型银行业不愿意接受加密货币的情况可能很快就会被扭转。 潘迪特在2007年至2012年期间领导花旗集团，现在出任他共同创立的The Orogen Group的董事长，他对彭博社表示，每家大型银行或证券公司，都会积极思考‘我是否也应该交易和出售加密货币资产’。这种情况已经在许多地方发生。 据Markets Insider首次报道，上周，澳大利亚最大的银行联邦银行宣布，它将很快为其650万客户提供交易加密货币的机会，而高盛、富国银行和富达一直在聘请大量加密货币专家。
+视频：Angelsky
 
-参考链接：[All big banks will be crypto trading soon: Former Citigroup CEO](https://www.thestreet.com/investing/all-big-banks-will-be-crypto-trading-soon-former-citigroup-ceo-vikram-pandit-says)
+在11月12日的大直播中，文贵先生透露了有关中国共产党六中全会的最新情报和资讯。在提到中美关系时文贵先生表示，中美领导之间即将开始跨历史性的互相攻击。在处理超级大国之间的关系时，美国在过去一直严守不直接攻击领导个人这一条底线，主要都是由媒体方面展开唇枪舌战。而这一次中共与美国双方的领导人物很可能都将相互露出真实嘴脸。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+在这样的背景环境之下，习神将成为影响全球政治经济的绝对不确定因素。例如在经济方面，恒大一旦破产倒闭，那么香港将首先成为经济灾难的起点，那里的股市将会大跌。我们不难想见，由此为原点向外扩散的负面经济冲击绝对是难以想象的。
 
-总编：飞虹
-编辑：Lakeman（文仁）
-校正/发稿：谐趣园
+而这也是延续了中共不把百姓当人看，自损一万杀敌一百的邪恶做法。而西方面对这样自毁式的袭击是非常脆弱的，当然这里说是自毁也并不准确，中共领导及决策者面对冲击大概早就准备好了韭菜作为挡箭牌，最终受害的，将是墙内、香港、西方乃至世界的民众。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共国这种所谓“干大事”的独裁体制，对于西方将是一场噩梦。房地产的崩塌会如多米诺骨牌一样导致保险、信托、金融机构逐一倒下，在这样的情况下，西方金融产业不可能安然无事，而对于下一次美国的房地产危机，得救的可能微乎其微，因为已经没有人能够出手相救了。
+
+（文章内容仅代表作者观点，与Gnews平台无关）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

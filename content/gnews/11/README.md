@@ -2,32 +2,29 @@
 ---
 
 
-## 全球最大财经新闻社——彭博社为喜币“造势”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1663879/)
+## 11月12日文贵大直播精剪汇编——下集
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1663902/)
 
-作者：英国喜庄园 – I770775
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-10.jpeg)
+撰稿：Gradient Boost
 
-秘翻组消息：全球最大的财经新闻社《彭博社》在11月12日，为上市11天的喜币做了全方面、大篇幅的报道，为扩大喜币在世界范围的影响力“造势”助攻。 报道称，喜币在不到两周的时间里，已经获得了270亿美元的估值，其价格从发行以来已经增长了270倍。 报道将“HCoin to the Moon”这首歌描述成一个集结号，称其是加密货币交易者的指导性希望，持有喜币即意味着价格的巨大飙升。 报道还援引喜交所首席执行官杰西·布朗先生的话，称喜交所已经注册了2万多个账户，郭文贵先生“正在利用他的平台，让人们参与加密货币和财务自由”。 尽管彭博社的报道语气怪异，想暗示喜币可能是骗局，但它并不能抹杀喜币的成功上市和巨大的升值空间，反而会让更多清醒的人因此备受鼓舞而加入喜币的购买队伍。
+视频：Angelsky、亭湖来客
 
-参考链接：
-1）[秘翻在线：彭博社为喜马拉雅币“造势”，两周已达市值270亿美元](https://gnews.org/zh-hans/1660072/)
-2）[https://www.bloomberg.com/news/articles/2021-11-12/a-27-billion-token-loved-by-exiled-billionaire-and-steve-bannon](https://www.bloomberg.com/news/articles/2021-11-12/a-27-billion-token-loved-by-exiled-billionaire-and-steve-bannon)
+在11月12日的大直播中，文贵先生透露了有关中国共产党六中全会的最新情报和资讯，同时也提到美国某军工集团找到文贵先生，询问他是否愿意加入其军工集团股份当中。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+该集团提到，虽然中共一旦对台发起战争，虽然其股价会发生上涨，但是芯片将出现巨大问题，同时也会影响到现金及运营。这又一次说明南海台海的不确定性严重影响着世界经济的走势和世界军事政治的格局。
 
-总编：飞虹
-编辑：Lakeman 文仁
-校正/发稿：谐趣园
+在军事方面文贵先生也提到了新中国联邦的国防系统建设，这是保护华人的必要措施。排华的事件一定会发生，只是事件大小或者严重性的问题，我们要做好这种准备。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+文贵先生提醒说，如果我们相信新中国联邦很快就能消灭共产党，我们从现在就要研究：谁能参加国防军事建设的管理？谁想开战斗机？谁想开潜水艇？谁想加入军训？
+
+所有一开始的军训将以美国为准，美国不打疫苗的军人会参与到管理当中。班农的女儿、美国的几位将军、英国退休的航空母舰舰队官员以及部分日本人也会加入，培训我们新中国联邦的子女。
+
+新中国联邦国防是属于我们战友自己的国防，90%七哥家族基金出资，10%来自战友，100%透明化管理。雇佣主体势美国军队，日本也会加入。在三个月内，签署雇佣军，培养战友。
+
+我们将拥有前所未有的武器，也会培养出属于我们自己的空间部队、飞行员和海军。新中国联邦人海外的资产和安全将受到保护，中国人从来没有的武器我们也都将拥有。招兵标注和培训标准也将在三个月的时间内发布公告。
+
+（文章内容仅代表作者观点，与Gnews平台无关）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
