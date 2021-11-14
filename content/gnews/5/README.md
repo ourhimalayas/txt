@@ -2,24 +2,23 @@
 ---
 
 
-## 有声|以色列科学家怒斥疫苗不良事件数据造假
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1663770/)
+## 花旗集团前首席执行官表示：所有大银行很快就会进行加密交易
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1663842/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间11月9日，以色列计算神经科学家马坦·霍尔茨在推特上驳斥了以色列卫生部的新冠疫苗不良事件报告系统及其对应数据。
+作者：纽约香草山教育部 – Naughty(文行)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-10.jpeg)
 
-霍尔茨认为，以色列政府的新冠疫苗不良事件数据收集工作完全是在粉饰太平，该系统的不良事件报告缺漏数据惊人。霍尔茨补充，由于原始数据缺失带来的不准确性，该系统所做的数据分析更是毫无科学性。
+今日，前花旗集团首席执行官维克拉姆·潘迪特，在新加坡举行的技术会议上预测，世界所有主要银行都将在“一到三年内”开始加密交易。 他在接受彭博社记者采访时表示，为了能继续主导银行和金融交易领域，大型银行业不愿意接受加密货币的情况可能很快就会被扭转。 潘迪特在2007年至2012年期间领导花旗集团，现在出任他共同创立的The Orogen Group的董事长，他对彭博社表示，每家大型银行或证券公司，都会积极思考‘我是否也应该交易和出售加密货币资产’。这种情况已经在许多地方发生。 据Markets Insider首次报道，上周，澳大利亚最大的银行联邦银行宣布，它将很快为其650万客户提供交易加密货币的机会，而高盛、富国银行和富达一直在聘请大量加密货币专家。
 
-霍尔茨解释道，以色列的疫苗不良反应报告系统远远落后于美国和欧洲。在报告不良事件的过程中，申报者只能填写一个网页表格，且填写完毕后无法进行追踪和验证，报告往往石沉大海。
+参考链接：[All big banks will be crypto trading soon: Former Citigroup CEO](https://www.thestreet.com/investing/all-big-banks-will-be-crypto-trading-soon-former-citigroup-ceo-vikram-pandit-says)
 
-对此，霍尔茨表示，严重的漏报导致新冠疫苗与一些疾病之间的相关性被降低到荒谬的程度。但是，以色列的不良反应数据是美国FDA的主要参考对象之一。鉴于美国政府正试图推行5至11岁儿童用新冠疫苗，霍尔茨进一步强调，以色列这些虚假的数据会直接影响到美国孩子们的安全，进而波及全球。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-文字版原文：[以色列科学家怒斥疫苗不良事件数据造假](https://gnews.org/zh-hans/1661339/)
+总编：飞虹
+编辑：Lakeman（文仁）
+校正/发稿：谐趣园
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
