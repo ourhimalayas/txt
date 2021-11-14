@@ -63,59 +63,59 @@
 ### [有声|迈阿密向居民发放虚拟币收益](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声|郭先生联合正义力量 西班牙秘密营救马云](/content/gnews/17/README.md)
+### [2021年11月14日文贵先生直播大雨围城速记](/content/gnews/17/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [有声|郭先生联合正义力量 西班牙秘密营救马云](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [有声| 班农先生被控藐视国会](/content/gnews/18/README.md)
+### [有声| 班农先生被控藐视国会](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声|中共疫苗灾难致大陆一线医护人员短缺](/content/gnews/19/README.md)
+### [有声|中共疫苗灾难致大陆一线医护人员短缺](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [习近平暗示想加入TPP 被岸田文雄泼冷水](/content/gnews/20/README.md)
+### [习近平暗示想加入TPP 被岸田文雄泼冷水](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [奥布莱恩敦促拜登与习会晤不要越线](/content/gnews/21/README.md)
+### [奥布莱恩敦促拜登与习会晤不要越线](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [有声|以色列科学家怒斥疫苗不良事件数据造假](/content/gnews/22/README.md)
+### [有声|以色列科学家怒斥疫苗不良事件数据造假](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [有声|新中国联邦国防系统轮廓初现](/content/gnews/23/README.md)
+### [有声|新中国联邦国防系统轮廓初现](/content/gnews/24/README.md)
  ` MOSREC`
 
-### [主流媒体隐瞒体坛明星接种疫苗猝死的真相](/content/gnews/24/README.md)
+### [主流媒体隐瞒体坛明星接种疫苗猝死的真相](/content/gnews/25/README.md)
  ` 澳喜农场`
 
-### [11/14/21 香港快讯 【47人案】原定月尾再讯 消息﹕律政司申请延至明年2月](/content/gnews/25/README.md)
+### [11/14/21 香港快讯 【47人案】原定月尾再讯 消息﹕律政司申请延至明年2月](/content/gnews/26/README.md)
  ` 英喜-粵語組`
 
-### [中共泯灭天良，继续给儿童注射毒疫苗](/content/gnews/26/README.md)
+### [中共泯灭天良，继续给儿童注射毒疫苗](/content/gnews/27/README.md)
  ` 波士顿五月花农场`
 
-### [COP26在最后一刻达成妥协](/content/gnews/27/README.md)
+### [COP26在最后一刻达成妥协](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|心理患病学生将被中共重点监控](/content/gnews/28/README.md)
+### [有声|心理患病学生将被中共重点监控](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [俄罗斯开始向印度交付S-400防空导弹系统](/content/gnews/29/README.md)
+### [俄罗斯开始向印度交付S-400防空导弹系统](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [银河快讯：日本将向数字产业投资4000亿日元；食用油价格今年第四次上调](/content/gnews/30/README.md)
+### [银河快讯：日本将向数字产业投资4000亿日元；食用油价格今年第四次上调](/content/gnews/31/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [2021年11月6-7日 郭先生视频重点内容整理](/content/gnews/31/README.md)
+### [2021年11月6-7日 郭先生视频重点内容整理](/content/gnews/32/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [串珠449:中共领导不是人人喊打，而是人人喊杀！](/content/gnews/32/README.md)
+### [串珠449:中共领导不是人人喊打，而是人人喊杀！](/content/gnews/33/README.md)
  ` 郭爆料串珠`
 
-### [DC每日热点1114](/content/gnews/33/README.md)
+### [DC每日热点1114](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [爆料革命——历史的今天11月7日](/content/gnews/34/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
 
 ### [挪威著名越野滑雪天才因接种中共病毒疫苗被 “淘汰’’](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
