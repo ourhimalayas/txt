@@ -2,35 +2,42 @@
 ---
 
 
-## 日本计划明年主办美日印澳四国集团第二次面对面峰会
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1662456/)
+## 黑客侵入FBI网络安全系统发邮件“警告”将有网络攻击
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662487/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/63DEFC69-2003-47F9-9FCC-7DE9CD29F264.jpeg)日本前首相菅义伟（右二）在日本东京出席美日澳印四国集团领导人视频峰会
-（2021年3月12日，图片来自VOA）
-
-据《美国之音》11月13日报道，日本将有可能于明年春天举办由美国、日本、澳大利亚和印度组成的四国集团（Quad）第二次面对面峰会。这4个国家将再次就如何应对一个强势的中共国拟定共同的策略与政策。
-
-据报道，日本政府已经将希望成为下一次四国集团峰会东道主的意愿传达给了其他三国政府。如果日本政府的提议被接受，那么刚刚出任日本首相的岸田文雄将会首次出席四国集团峰会。
-
-岸田文雄虽然还没有出席过四国集团峰会，但他强力主张通过建立关键技术坚韧的供应链来加强经济安全。若下一次四国集团峰会确定在日本举行，预计岸田文雄将会把强化四国在建立关键技术供应链方面的合作，作为会议的焦点之一。
-
-今年9月，拜登总统在华盛顿主持四国集团首次面对面峰会。会议发布了一份联合声明，强调“再次承诺促进自由、开放、基于规则的秩序，使其根植于国际法，不畏惧（中共）胁迫，以巩固印太及其他地区的安全与繁荣”。
-
-注：本文仅代表作者观点
-
-*参考链接：[https://www.voachinese.com/a/japan-may-host-next-in-person-quad-summit-next-spring-20211113/6310907.html](https://www.voachinese.com/a/japan-may-host-next-in-person-quad-summit-next-spring-20211113/6310907.html)*
-
-* * *
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/fbi-email-970.jpg)
 
 
-```
-素材采编：幽蘭自得
-编辑：青衣青青
-发布：miumiu
-```
 
+图片来源：www.komando.com
+
+
+#### 编译：小红帽
+
+据美国联邦调查局和安全专家称，黑客入侵了美国联邦调查局（FBI）的电子邮件系统，并发送了数以万计的信息，警告可能发生的网络攻击。
+
+联邦调查局周六在一份声明中说，假的电子邮件似乎来自一个以@ic.fbi.gov结尾的合法联邦调查局电子邮件地址。
+
+联邦调查局表示，尽管受该事件影响的硬件“在发现问题后迅速下线，”并补充道 “这是一个持续的情况”。
+
+威胁追踪组织Spamhaus Project在其推特账户上表示，黑客发送了数万封电子邮件，警告可能发生网络攻击。
+
+Spamhaus在推特上发布的一封电子邮件的副本显示，主题栏为 “紧急。系统中的威胁行为者 ”，后面似乎有国土安全部的签字。联邦调查局是司法部的一部分。
+
+联邦调查局的声明说，联邦调查局和网络安全与基础设施安全局都知道这一事件。
+
+**参考新闻：** [Email hackers penetrate FBI cyber security system (thenewdaily.com.au)](https://thenewdaily.com.au/life/tech/2021/11/14/hackers-penetrate-fbi-emails/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
