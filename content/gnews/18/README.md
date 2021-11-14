@@ -2,10 +2,10 @@
 ---
 
 
-## 凯尔·华纳说出中共病毒疫苗副作用后遭受巨大社会压力
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664195/)
+## 福奇坚持否认武毒所功能增强型研究定义，否认对疫情的责任
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664220/)
 
-11/11/2021 凯尔·华纳说出中共病毒疫苗的副作用后遭受了巨大的社会压力
+11/05/2021 福奇一直都否认武毒所功能增强型研究的定义，并同时否认他对疫情大流行的责任
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

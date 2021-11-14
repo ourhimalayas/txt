@@ -2,10 +2,10 @@
 ---
 
 
-## 纳瓦罗：美国与中共正处于战争状态而非竞争关系
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664274/)
+## 习近平的第三任期及俄罗斯军事活动令人担忧
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664326/)
 
-11/11/2021 中共病毒是故意释放，我们与中共国是战争中而非竞争。中共国是持续的威胁。
+11/12/2021 杰克·基恩将军：习近平前所未有第三任期和俄罗斯在乌克兰附近的异常军事活动令人担忧
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
