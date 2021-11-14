@@ -2,47 +2,44 @@
 ---
 
 
-## 嘲笑政治领袖是自由社会的健康标志
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1663039/)
+## CDC承认无记录表明未接种疫苗的人从Covid康复后传播了Covid
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1663054/)
 
-**编译：Jenny Ball**
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-14-105930.jpg)图片来源**：** google.es
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/106856785-16161779612021-03-19t181310z_885711556_rc2iem9sbh4l_rtrmadp_0_usa-biden-georgia.jpeg)
 
-在中共国长大，我学会了对任何带有毛泽东形象或文字的东西表现出最大的敬畏。我家附近的一个男孩被学校开除，他全家不得不忍受严厉的公开批判，因为他不小心坐在一张有毛照片的报纸上。他的遭遇让我做了很多噩梦， 我一直担心自己会不经意间犯下类似的错误，被学校开除，甚至永远与家人分离。
 
-毛泽东去世后，中共在政治和经济上放松了对中国人民的控制，以挽救其统治地位。 不小心坐在毛泽东的画像上不再是犯罪。然而，随着中国现任领导人习近平推翻数十年的经济改革，并试图将毛的社会主义理想重新强加于中国，贬低中共领导人和历史人物的行为再次被定为犯罪。几位出售有关中共领导人私生活和腐败书籍的香港书商被绑架，并在中共国服刑。最近，北京修改了刑法，将任何诽谤中国革命先烈和英雄的行为，定为应受惩罚的罪行。
 
-中共并不是唯一一个保护公众人物免受嘲弄的极权政权。2016年，朝鲜行刑队处决了一名副总理，因为他在金正恩主持的会议上睡着了，对“尊敬的领导人”金正恩表示“不尊重”而被判处死刑。
+图片来源：Carlos Barria | Reuters
 
-为什么极权主义政权如此拼命地保护他们的领导人免受真实的，或被认为是公开的嘲弄？ 因为他们担心任何不受惩罚的诽谤，都会消除统治阶级“最了解”的神秘感，并削弱对其权力的要求。 他们的统治合法性将受到质疑，甚至挑战。
 
-当我移民到美国时，最初我震惊地看到美国人，特别是那些主持深夜电视节目的人，公开取笑他们的政治领导人而没有受到任何后果。这些节目的主持人不是服刑，而是广受欢迎并且在经济上取得了成功。我学会了将这种嘲弄视为自由社会的健康标志。
+#### 编译：小红帽
 
-自由社会中的政治领导人无权决定人们应该说什么以及私人公民应该如何思考和行动。 他们是人民选出的代表。自由社会中的公民理所当然地平等对待他们的政治领导人，他们碰巧具有不同的社会角色，并且像我们其他人一样容易犯错。让政治领导人受到公众的嘲笑是公民表达不满的众多方式之一，几乎就像对当权者的即时工作绩效评估一样。公众的嘲笑也提醒政治领导人，他们并不凌驾于他们所统治的人民之上，他们对权力的掌握是有限度的。
+疾病预防控制中心(CDC)承认，没有未接种疫苗的人在从中共病毒(Covid-19)康复后传播中共病毒的记录，以回应一名律师的信息自由法案（FOIA）请求。
 
-这就是为什么左派对“加油，布兰登”口号崩溃的原因。在接受 NASCAR 车手布兰登·布朗的采访后，这句话在 10 月初开始流行。NBC 的凯莉·斯塔瓦斯特（Kelli Stavast）采访时，将球迷的“F–k Joe Biden”喊声说成是为布兰登欢呼的“加油，布兰登！”。从那时起，这句话成为了流行口号，因为根据《旁观者》的特蕾莎·穆尔的说法，它“包含了几件事：**嘲笑自称媒体不诚实，是宣传机器； 对取消文化的蔑视和觉醒警察的欺凌心态。**在我们超级严肃的社会面前，还有一点老式的美国乐趣。”
+美国纽约的一位律师在9月提出了一份信息自由法案请求，要求疾病预防控制中心提供文件，以 “反映符合以下情况的任何记录在案的个人：（1）从未接种过中共病毒疫苗；（2）曾经感染过中共病毒，康复后又再次感染；（3）再次感染时将中共病毒传播给另一人”。
 
-据报道，在西南航空公司的一名飞行员用“Let’s go, Brandon”结束起飞后广播系统后，左派对这句话的歇斯底里达到了一个新的高度。
+疾控中心回应说：“对我们的记录进行搜索后，没有发现任何与你的要求有关的文件。[疾病预防控制中心紧急行动中心（EOC）表示不会收集这些信息](https://twitter.com/MichaelPSenger/status/1458953737397948418?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1458953737397948418%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fhumansarefree.com%2F2021%2F11%2Fcdc-admits-it-has-no-record-of-an-unvaccinated-person-spreading-covid-after-recovering-from-covid.html)。”
 
-自由派 Twitter 用户要求西南航空解雇这位飞行员，并将该短语的用户比做如同 ISIS 一样的恐怖分子和纳粹分子。穆尔警告说，**如果我们的大型科技巨头在他们的所有平台上禁止“****Let’s go, Brandon”****这句话，我们不应该感到惊讶**。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/FD8-lm9VQAIoy1F.jpg)图片来源：[@MichaelPSenger](https://twitter.com/MichaelPSenger) 推特
 
-从取消不同政治观点的人的生计，到在我们的教育系统中强加批判种族理论，美国左派**将美国变成一个非自由社会的运动的速度和规模是惊人的**。对于像我这样曾经生活在极权主义政权下的移民来说，今天觉醒的左翼占领的美国，开始看起来像我们离开的那个到处是压迫的中共社会。
 
-**评论：我有着和文章中一屁股坐在毛腊肉像上那个孩子相似的遭遇，我是无意间在自己练习本上打了个叉“X”，而那一页全篇都写着“毛主席万岁”。多亏我的语文老师，她把告我状的学生交给她的本子又递给我，并说：“正面都用完了，不用反面了， 拿回去当手纸吧。” 那个年代，我们练习本正反面都要用来写字，用完后就是当手纸用的。不过那个恐惧，至今还会在梦中惊醒。**
+今年初发表的一项检查[中共病毒康复者T细胞反应的研究](https://pubmed.ncbi.nlm.nih.gov/33594378/)显示，自然免疫力比接种疫苗能对中共病毒提供更好地保护。
 
-**悲哀的是，自由社会现在也让中共腐蚀得和中共一个德行了，媒体上也开始有“敏感词”了。在****2020****年美国大选后， 主流媒体和社交媒体不允许有大选舞弊的词汇，中共疫苗肆虐全世界，主流媒体和社交媒体不允许有中共病毒实验室泄露信息，不允许有羟氯喹和伊维菌素信息，不允许有疫苗死亡、疫苗伤害家人和受害人发声……因为西方所谓的民主自由正在走向中共的集权模式。不过还是有空间发出****“Let’s go Brandon”****这样的幽默口号，比中共国不让人们画维尼熊还是有一点儿自由。**
+自然免疫并不会让大药厂赚钱，这就是为什么拜登政权和疾控中心从不谈论它的原因。
 
-**所以，我们现在与疫苗的战斗，就是人类正义与邪恶的终极之战！**
+**参考新闻：** [CDC Admits It Has No Record of an Unvaccinated Person Spreading Covid After Recovering From Covid (humansarefree.com)](https://humansarefree.com/2021/11/cdc-admits-it-has-no-record-of-an-unvaccinated-person-spreading-covid-after-recovering-from-covid.html)
 
-**新闻来源**：[newsweek.com][Mocking Political Leaders is a Healthy Sign of a Free Society | Opinion](https://www.newsweek.com/mocking-political-leaders-healthy-sign-free-society-opinion-1647000?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1636462825197&amp;subscriberId=6180566715c6fcdd524c7c95)
+***发布：小红帽***
 
-* * *
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
