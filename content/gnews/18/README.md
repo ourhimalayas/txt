@@ -2,10 +2,10 @@
 ---
 
 
-## 福奇坚持否认武毒所功能增强型研究定义，否认对疫情的责任
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664220/)
+## 年轻漂亮女孩接种辉瑞疫苗后患上面瘫
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664257/)
 
-11/05/2021 福奇一直都否认武毒所功能增强型研究的定义，并同时否认他对疫情大流行的责任
+11/13/2021 一位漂亮的年轻女孩儿在接种辉瑞疫苗后患了面瘫
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
