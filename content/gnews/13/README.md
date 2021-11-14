@@ -2,44 +2,30 @@
 ---
 
 
-## 英格兰银行考虑放宽抵押贷款规定
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662155/)
+## 拜登与习近平将于11月15日举行虚拟峰会
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1662159/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+俄罗斯莫斯科喀秋莎农场  银河
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Bank-of-England.jpg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/B-3.jpg)focuswashington.com
+日本共同社11月13日报道称，白宫表示美国总统拜登（Joe Biden）和中共国家主席习近平将于周一晚间进行实质性会晤。在两国关系紧张之际，白宫降低了对他们首次双边峰会产生任何“重大成果”的期望。
 
+白宫新闻秘书珍·普萨基（Jen Psaki）在11月13日声明中说，两国领导人将讨论如何“负责任地管理”美中之间的竞争，以及如何在两国利益一致的地方进行合作。自拜登担任总统以来，两国领导人已经通过两次电话。
 
- 
-图片来源： www.bnreport.com
+普萨基在新闻发布会上表示，即将到来的谈判”在我们看来，将更多地是为有效的竞争设定条件，使我们能够捍卫自己的价值观。”普萨基拒绝透露将在会议期间讨论的具体议题。
 
+美国商业新闻CNBC11月12日报道，中共预计将利用双边会邀请拜登出席北京2月冬季奥运会。这一邀请将对拜登构成挑战。
 
-#### 编译：小红帽
+今年5月，美国众议院议长佩洛西（Nancy Pelosi）呼吁华盛顿针对中共对维吾尔族的“种族灭绝”进行“外交抵制”，这意味着运动员仍在比赛的情况下，世界领导人和其他政府代表将拒绝出席冬奥会。
 
-英格兰银行正在考虑放宽抵押贷款规定，此举可能会促进房价上涨。
+拜登政府一直对中共施压，对中共在新疆地区的维吾尔族穆斯林少数民族的“种族灭绝”，对香港民主自由的迫害，对中国南海和东海的侵犯，以及武力威胁台湾的行为表示关切。
 
-由行长安德鲁·贝利(Andrew Bailey)领导的英国中央银行将在下个月宣布，贷款人是否可以增加他们发放的大额抵押贷款的数量。
+CNBC表示，习近平对拜登参加冬奥会的邀请将让拜登陷入两难，拒绝会搁置两国关系，接受邀请将违背美国宣称的保护民主、人权的政治立场。
 
-银行在向需要超过其工资4.5倍的借款人提供住房贷款是有限制的。这些客户在银行发放的新贷款中的比例不得超过15%。
+参考链接：
 
-英格兰银行在上个月的更新中提到了这些规定，称 “没有证据表明贷款标准恶化或高负债家庭的数量大幅增加”。
-
-这些规定–被称为“压力测试”–是在金融危机后制定的，旨在确保银行有足够的弹性，能够承受借款人在利率飙升后陷入财务困境。
-
-这将意味着，那些买不起第一套房产或无法借到足够资金的人将有机会买房。理论上，这将推高房价。
-
-一些银行和建筑协会已经开始提供更大的贷款额度。Nationwide在4月表示，正在将首次购房者的贷款额度提高到其年收入的5.5倍，尽管借款人需要锁定至少5年。（注：Nationwide是世界上最大的建筑协会，也是最大的储蓄供应商之一，是英国前三大抵押贷款供应商。）
-
-**参考新闻：**[Bank of England considering easing mortgage rules (msn.com)](https://www.msn.com/en-au/money/other/bank-of-england-considering-easing-mortgage-rules/ar-AAQFQ91?ocid=msedgntp)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://english.kyodonews.net/news/2021/11/e13d2956807c-biden-xi-to-hold-first-summit-meeting-in-virtual-format-on-monday.html](https://english.kyodonews.net/news/2021/11/e13d2956807c-biden-xi-to-hold-first-summit-meeting-in-virtual-format-on-monday.html)
 
  
 

@@ -2,34 +2,32 @@
 ---
 
 
-## 一旦发生疫情，全员核酸检测
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1662307/)
+## 学而思宣布停止！股价暴跌，3000亿灰飞烟灭！
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1662310/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/卫健委.png)图片来源：YouTube
+![](https://nimg.ws.126.net/?url=http%3A%2F%2Fcms-bucket.ws.126.net%2F2021%2F1113%2F63584561j00r2hy03003hc000u000xac.jpg&amp;thumbnail=690x10000&amp;quality=75&amp;type=jpg)
+据中国基金报11月13日报道，继新东方之后，学而思也宣布在中共国内地义务教育阶段的学科类校外培训服务将于2021年12月31日截止。
+
+随即，学而思的母公司好未来，盘后暴跌超过5%。
+
+学而思在北京、上海等一线城市的认可度较高。学而思网校学员覆盖了全国331个地级行政区，海外用户覆盖了欧洲、北美等20余个国家和地区。2020年疫情使得学而思股价涨了一倍。2021年2月17日之后一路下挫。截至目前，股价暴跌近96%，总市值蒸发3110亿元。
+
+中共没钱了。于是，不管韭菜咸菜，还是大鱼小鱼，哪怕虾米鱼籽，中共镰刀和笊篱所到之处，清理得干干净净。搜刮民财是中共唯一的生财之道。至于国家发展、子孙后代，完全不在中共的考虑之内，因为中共盗国贼集团的财富和私生子女都在海外。国内教育机构壮大了，中共就开始抢钱了。
+
+新闻参考链接：[https://c.m.163.com/news/a/GOMIHTTO00259DLP.html?spss=newsapp](https://c.m.163.com/news/a/GOMIHTTO00259DLP.html?spss=newsapp%EF%BC%88%E6%A0%B9%E6%8D%AE%E6%96%B0%E9%97%BB%E5%86%85%E5%AE%B9%E6%A0%87%E9%A2%98%E7%AE%80%E5%8C%96%E4%B8%80%E4%B8%8B%EF%BC%89)
+
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-编辑：**Kelly**
-**编辑：Candy**
+编辑：【英国伦敦喜庄园编辑部】
 
-中共国国家卫健委发出通知：一旦发生疫情，500万人口以下城市要在两天内完成全员核酸检测
-
-据中共《新华社》报道：
-
-11月13日，国务院联防联控机制召开新闻发布会，教育部、国家卫生健康委、海关总署相关司局负责同志及中国疾控中心专家出席，重点介绍进一步做好冬春季疫情防控工作有关情况，并回答媒体提问。
-
-国家卫生健康委医政医管局监察专员郭燕红在发布会上介绍：10月22日，国务院联防联控机制医疗救治组，专门对全国有关加强核酸检测服务工作进行了再部署、再要求。文件发布以后，各地做了大量工作，在有关能力建设、合理布局、提高效率、优化服务等方面多措并举。
-
-一旦发生疫情，各地要在第一时间启动全员核酸检测，力争在最短时间内锁定感染范围，同时加快有关疫情防控的各项措施。500万以下人口的城市，要在两天以内完成全员核酸检测；500万以上人口的城市，要在三天以内完成全员核酸检测。各地要按照上述要求对核酸检测能力储备、采样人员安排、实验室检测安排、样品转运安排等做出预案。
-
-***发布：Candy***
-
-**更多资讯，请关注：**
-
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
