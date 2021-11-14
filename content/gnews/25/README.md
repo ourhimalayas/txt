@@ -2,10 +2,10 @@
 ---
 
 
-## 中共十九届六中全会实现、确立两件事
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1662622/)
+## 中共的宣传以文化自信为名，对内对外大肆洗脑
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1662626/)
 
-11/12/2021中共十九届六中全会实现、确立两件事：习近平同志党中央的核心、全党的核心地位，以及习近平新时代中国特色社会主义思想的指导地位。
+11/12/2021 中共的宣传以文化自信为名，对内对外大肆洗脑。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
