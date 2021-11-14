@@ -15,91 +15,91 @@
 
 ---
 
-### [中共十九届六中全会传递了什么信息？](/content/gnews/1/README.md)
+### [台湾前线｜新冠疫苗问题多 政府正视心肌炎问题](/content/gnews/1/README.md)
+ ` G&#124;News TAIWAN`
+
+### [中共十九届六中全会传递了什么信息？](/content/gnews/2/README.md)
  ` mary202064`
 
-### [马云的结局](/content/gnews/2/README.md)
+### [马云的结局](/content/gnews/3/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [气候特使约翰·克里从中共奴隶劳动中获益再受参议员质询](/content/gnews/3/README.md)
+### [气候特使约翰·克里从中共奴隶劳动中获益再受参议员质询](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [一个民族的涅槃重生](/content/gnews/4/README.md)
+### [一个民族的涅槃重生](/content/gnews/5/README.md)
  ` 银河勇气之星`
 
-### [小罗伯特·肯尼迪:“这是我们将死守的山峰”](/content/gnews/5/README.md)
+### [小罗伯特·肯尼迪:“这是我们将死守的山峰”](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [疫苗暴政：拉脱维亚禁止未接种疫苗的议员参加议会投票并暂停其薪水](/content/gnews/6/README.md)
+### [疫苗暴政：拉脱维亚禁止未接种疫苗的议员参加议会投票并暂停其薪水](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [数字货币时代为什么势不可挡？](/content/gnews/7/README.md)
+### [数字货币时代为什么势不可挡？](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [中共国“随地倒”现象逐渐增多](/content/gnews/8/README.md)
+### [中共国“随地倒”现象逐渐增多](/content/gnews/9/README.md)
  ` 澳喜特战旅Gnews`
 
-### [恒大暴雷对澳大利亚的影响](/content/gnews/9/README.md)
+### [恒大暴雷对澳大利亚的影响](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本正在推进机器人服务及非接触性支付](/content/gnews/10/README.md)
+### [日本正在推进机器人服务及非接触性支付](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [作秀！孙春兰视察大连　疫情失控？](/content/gnews/11/README.md)
+### [作秀！孙春兰视察大连　疫情失控？](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [学生全程接种率超过百分95，大连大学城仍爆疫情](/content/gnews/12/README.md)
+### [学生全程接种率超过百分95，大连大学城仍爆疫情](/content/gnews/13/README.md)
  ` 澳喜农场`
 
-### [中共病毒疫苗神话 再次被打脸](/content/gnews/13/README.md)
+### [中共病毒疫苗神话 再次被打脸](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [论文解读：灭活疫苗对人生理病理的持续影响](/content/gnews/14/README.md)
+### [论文解读：灭活疫苗对人生理病理的持续影响](/content/gnews/15/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [喜币、喜支付是虚拟货币的一次革命性的突破](/content/gnews/15/README.md)
+### [喜币、喜支付是虚拟货币的一次革命性的突破](/content/gnews/16/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [共产幽灵之家庭荼毒-母亲2](/content/gnews/16/README.md)
+### [共产幽灵之家庭荼毒-母亲2](/content/gnews/17/README.md)
  ` 纽约香草山MOS03`
 
-### [每日快报：FDA召回数以百万计的居家 COVID-19 假阳性检测试剂](/content/gnews/17/README.md)
+### [每日快报：FDA召回数以百万计的居家 COVID-19 假阳性检测试剂](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [成为喜币的主人](/content/gnews/18/README.md)
+### [成为喜币的主人](/content/gnews/19/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美国参众议员代表团搭乘军机访问台湾](/content/gnews/19/README.md)
+### [美国参众议员代表团搭乘军机访问台湾](/content/gnews/20/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [台湾公布最新国防报告书：中共有能力封锁台湾](/content/gnews/20/README.md)
+### [台湾公布最新国防报告书：中共有能力封锁台湾](/content/gnews/21/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共在台海方向高调战备警巡，回应美议员乘军机访台](/content/gnews/21/README.md)
+### [中共在台海方向高调战备警巡，回应美议员乘军机访台](/content/gnews/22/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [立陶宛外交部长敦促日本和其他民主国家联合起来对付中共](/content/gnews/22/README.md)
+### [立陶宛外交部长敦促日本和其他民主国家联合起来对付中共](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共无耻号称中国经济发展秘诀就是公有制和党领导一切](/content/gnews/23/README.md)
+### [中共无耻号称中国经济发展秘诀就是公有制和党领导一切](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共共同富裕是百姓艰苦奋斗、企业家多纳税捐款、财富由国家分配](/content/gnews/24/README.md)
+### [中共共同富裕是百姓艰苦奋斗、企业家多纳税捐款、财富由国家分配](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共厚颜无耻地声称自己的支持率有95%以上](/content/gnews/25/README.md)
+### [中共厚颜无耻地声称自己的支持率有95%以上](/content/gnews/26/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [俄州国民警卫队拒绝国防部的疫苗强制令](/content/gnews/26/README.md)
+### [俄州国民警卫队拒绝国防部的疫苗强制令](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [焦点新闻摘要 2021年11月13日](/content/gnews/27/README.md)
+### [焦点新闻摘要 2021年11月13日](/content/gnews/28/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [彭丽媛从幕后走向政治舞台](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [中共当下混乱的房地产政策](/content/gnews/29/README.md)
+### [彭丽媛从幕后走向政治舞台](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
 ### [港共政府拒绝延期英媒记者签证](/content/gnews/30/README.md)
