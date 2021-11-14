@@ -2,57 +2,30 @@
 ---
 
 
-## 前副国务卿基思·克拉奇： 如果 中共国游说反对,那一定对美国和自由世界有利
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1662121/)
+## 拜登与习近平将于11月15日举行虚拟峰会
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1662159/)
 
-前副国务卿基思·克拉奇： 如果 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 游说反对，那一定对美国和自由世界有利。这就是为什么国会应该尽快通过两党的《美国创新与竞争法案》 [#USICA](https://twitter.com/hashtag/USICA?src=hashtag_click) ，以尽快为高科技研发和在岸半导体行业提供资金。保障科技是保障自由的关键。 【附路透社报道：中国大使馆游说美国企业反对与中国有关的法案,路透社看到的消息来源和大使馆经济和商务办公室发送的信件文本显示，中国驻华盛顿大使馆的信件已敦促美国企业高管们游说敦促国会议员修改或放弃旨在提高美国竞争力的具体法案
+俄罗斯莫斯科喀秋莎农场  银河
 
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/B-3.jpg)focuswashington.com
+日本共同社11月13日报道称，白宫表示美国总统拜登（Joe Biden）和中共国家主席习近平将于周一晚间进行实质性会晤。在两国关系紧张之际，白宫降低了对他们首次双边峰会产生任何“重大成果”的期望。
 
+白宫新闻秘书珍·普萨基（Jen Psaki）在11月13日声明中说，两国领导人将讨论如何“负责任地管理”美中之间的竞争，以及如何在两国利益一致的地方进行合作。自拜登担任总统以来，两国领导人已经通过两次电话。
 
-> If China is lobbying against it, it must be good for the US and the free world. That’s why Congress should pass the bipartisan [#USICA](https://twitter.com/hashtag/USICA?src=hash&amp;ref_src=twsrc%5Etfw) bill to fund high-tech R&D and onshore the semiconductor industry ASAP. Securing tech is the key to securing freedom. ➡️ [https://t.co/XbZpTNfeH3](https://t.co/XbZpTNfeH3) [pic.twitter.com/2nmuj9k6Yj](https://t.co/2nmuj9k6Yj)
-> — Keith J. Krach (@KeithJKrach) [November 13, 2021](https://twitter.com/KeithJKrach/status/1459532104417566727?ref_src=twsrc%5Etfw)
+普萨基在新闻发布会上表示，即将到来的谈判”在我们看来，将更多地是为有效的竞争设定条件，使我们能够捍卫自己的价值观。”普萨基拒绝透露将在会议期间讨论的具体议题。
 
+美国商业新闻CNBC11月12日报道，中共预计将利用双边会邀请拜登出席北京2月冬季奥运会。这一邀请将对拜登构成挑战。
 
+今年5月，美国众议院议长佩洛西（Nancy Pelosi）呼吁华盛顿针对中共对维吾尔族的“种族灭绝”进行“外交抵制”，这意味着运动员仍在比赛的情况下，世界领导人和其他政府代表将拒绝出席冬奥会。
 
-众议员迈克·沃尔茨： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 主席习近平向成为中国永久独裁者又迈进了一步…… 【转华尔街日报：习近平作为中共指定的历史人物掌握权力 决定称赞习近平的“巨大政治勇气”，并在他试图扩大其统治范围时，为他提供了抵御批评的护身甲】
+拜登政府一直对中共施压，对中共在新疆地区的维吾尔族穆斯林少数民族的“种族灭绝”，对香港民主自由的迫害，对中国南海和东海的侵犯，以及武力威胁台湾的行为表示关切。
 
+CNBC表示，习近平对拜登参加冬奥会的邀请将让拜登陷入两难，拒绝会搁置两国关系，接受邀请将违背美国宣称的保护民主、人权的政治立场。
 
+参考链接：
 
-> [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) Chairman Xi takes one more step towards becoming China’s permanent dictator….[https://t.co/9Y5IKnYHFi](https://t.co/9Y5IKnYHFi)
-> — Rep. Mike Waltz (@michaelgwaltz) [November 12, 2021](https://twitter.com/michaelgwaltz/status/1459245612776534017?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·沃尔茨： 赞助北京奥运会的那些美国公司，在国内宣扬“社会正义”，但当要求其对 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 的现代奴隶制采取行动时……沉默！ 他们知道正确的做法。 [#抵制北京2022](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC2022?src=hashtag_click) [#BoycottBeijing2022](https://twitter.com/hashtag/BoycottBeijing2022?src=hashtag_click) 【转[http://upi.com](https://t.co/DmNsRlp3n2?amp=1)报道：人权观察敦促奥运赞助商追究 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的侵权责任】
-
-
-
-> American corporations sponsoring the Beijing Olympics preach about ‘social justice’ at home but when asked to take action against the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)’s modern day slavery…SILENCE.
-> 
-> They know the right thing to do. [#BoycottBeijing2022](https://twitter.com/hashtag/BoycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/COs4NrPscC](https://t.co/COs4NrPscC)
-> — Rep. Mike Waltz (@michaelgwaltz) [November 12, 2021](https://twitter.com/michaelgwaltz/status/1459243285885636615?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·加拉格尔新闻办公室： 众议员加拉格尔：“就没有 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的良性影响……阳光是最好的消毒剂，如果拜登政府不再谈论中共的恶性影响，我们应该预料到这种软弱会招致更多中共的恶意侵略。”【转记者Jimmy Quinn推文：最新：美国官员们正在减少使用“恶性影响力”一词来指称 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在国外的恶劣行为，与此同时，在努力倡导敦促拜登政府寻求与北京的共同点】
-
-
-
-> If Biden keeps this up, China’s going to eat our lunch! [https://t.co/w9i3w67bRx](https://t.co/w9i3w67bRx)
-> — Jim Banks (@RepJimBanks) [November 12, 2021](https://twitter.com/RepJimBanks/status/1459210729219895314?ref_src=twsrc%5Etfw)
-
-
-
-参议员卢比奥媒体办公室： 参议员卢比奥和参议员马基欢迎总统签署了他们提出的2021安全设备法案成为法律，这一法案填补了漏洞，确保联邦通讯委员会[@FCC](https://twitter.com/FCC)再也不会审核或批准新的设备执照给那些对国家安全造成威胁的公司。 【转卢比奥的声明】
-
-
-
-> Sen Rubio & [@SenMarkey](https://twitter.com/SenMarkey?ref_src=twsrc%5Etfw) applauded [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) for signing their Secure Equipment Act of 2021 into law, closing a loophole to ensure that the [@FCC](https://twitter.com/FCC?ref_src=twsrc%5Etfw) will no longer review or issue new equipment licenses to companies that pose a national security threat.
-> 
-> Read 👇[https://t.co/ILJv4KnbIN](https://t.co/ILJv4KnbIN)
-> — Senator Rubio Press (@SenRubioPress) [November 12, 2021](https://twitter.com/SenRubioPress/status/1459154159119347714?ref_src=twsrc%5Etfw)
-
-
+[https://english.kyodonews.net/news/2021/11/e13d2956807c-biden-xi-to-hold-first-summit-meeting-in-virtual-format-on-monday.html](https://english.kyodonews.net/news/2021/11/e13d2956807c-biden-xi-to-hold-first-summit-meeting-in-virtual-format-on-monday.html)
 
  
 

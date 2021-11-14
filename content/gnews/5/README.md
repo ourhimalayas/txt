@@ -2,28 +2,29 @@
 ---
 
 
-## 有声|针对美中首脑线上会晤 日本关注病毒溯源议题
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1662146/)
+## 数百穆斯林伦敦中共国大使馆外集会 为维吾尔人发声
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1662230/)
 
-配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-8.jpg)数百穆斯林伦敦中共国大使馆外集会 为维吾尔人发声 网络图片
+据自由亚洲电台11月13日报道，数百名穆斯林13日在英国伦敦中共国大使馆外集会，抗议中共对国内维吾尔人的迫害，呼吁全球穆斯林、人权捍卫者、世界强国和正义之士，团结一致，抗议中共的暴行。
 
-关于受世界瞩目的美中首脑下周的线上会晤，美国国务卿布林肯在11月10日正式确认，美国总统拜登与中共领导人习近平将有线上交流。一些消息灵通的媒体则爆料称，双方正在调整会晤时间，有可能定于15日举行。
+曼彻斯特中共国使馆外也在同一时间举行声援维吾尔人的集会。数十年前纳粹屠杀犹太人的暴行被揭发后，国际社会一直呼吁不要让历史重演。中共对维吾尔人实施的种族灭绝比当年的纳粹，有过之而无不及。只要全世界联合起来，哪怕只是种族灭绝这一项，就足以让中共彻底灭亡。全球行动起来！
 
-日本一家媒体公布了布林肯发布相关消息时的视频，视频中，布林肯国务卿透露，本次的议题包含气候变化、病毒溯源等双方存在争论的内容。日本该媒体则着重报道了布林肯在病毒溯源问题上，要求中共国提供帮助并公开必要的情报。分析人士称，这表明近期日本确诊病例数的下降，并没有使它放弃对病毒起源调查的关注，相反这一话题可能成为接下来最被关注的话题之一。
+新闻参考链接：[https://www.rfa.org/mandarin/Xinwen/6-11132021161559.html](https://www.rfa.org/mandarin/Xinwen/6-11132021161559.html)
 
-文字版原文：[针对美中首脑线上会晤 日本关注病毒溯源议题](https://gnews.org/zh-hans/1658010/)
+* * *
 
-音频处理：喜山必胜Maverick
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

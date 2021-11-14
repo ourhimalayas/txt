@@ -2,22 +2,28 @@
 ---
 
 
-## 融创危也，套现求生
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1662079/)
+## 有声|针对美中首脑线上会晤 日本关注病毒溯源议题
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1662146/)
 
-#### 撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-101.jpg)[图片来源](http://www.ftchinese.com/story/001094086?full=y&amp;archive)
-11月13日，据彭博社消息，融创中国（01918. HK）计划配售新股，及出售持有的融创服务（01516. HK）老股。最终，融创中国以15.18港元/股配售3.35亿股股份，筹资6.5亿美元；以14.75港元/股出售持有的融创服务1.58亿股股份，筹资3亿美元。据悉，融创的配股与出售订单获得多家机构的超额认购。
+配音：香草山美食部 – 玫瑰园
 
-冰封的房地产市场，接连不断的房企债务危机，美元债与人民币收益的不匹配，中共国外汇储备的严重短缺，让地产巨鳄融创不得不在港股套现求生。本次套现的9.5亿美元理应兑付其随后一月的到期美元债利息，进而延迟其债务爆雷，但与其万亿负债相比，杯水车薪，垂死挣扎而已。
+关于受世界瞩目的美中首脑下周的线上会晤，美国国务卿布林肯在11月10日正式确认，美国总统拜登与中共领导人习近平将有线上交流。一些消息灵通的媒体则爆料称，双方正在调整会晤时间，有可能定于15日举行。
 
-信息来源：
+日本一家媒体公布了布林肯发布相关消息时的视频，视频中，布林肯国务卿透露，本次的议题包含气候变化、病毒溯源等双方存在争论的内容。日本该媒体则着重报道了布林肯在病毒溯源问题上，要求中共国提供帮助并公开必要的情报。分析人士称，这表明近期日本确诊病例数的下降，并没有使它放弃对病毒起源调查的关注，相反这一话题可能成为接下来最被关注的话题之一。
 
-[融创中国配股筹资，获得多家机构高倍数超额认购](https://www.yicai.com/news/101228836.html)
+文字版原文：[针对美中首脑线上会晤 日本关注病毒溯源议题](https://gnews.org/zh-hans/1658010/)
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
