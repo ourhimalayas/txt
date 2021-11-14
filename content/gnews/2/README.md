@@ -2,10 +2,10 @@
 ---
 
 
-## 年轻漂亮女孩接种辉瑞疫苗后患上面瘫
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664257/)
+## 中共火星计划给其他国家带来压力，或形成激烈太空竞赛
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664310/)
 
-11/13/2021 一位漂亮的年轻女孩儿在接种辉瑞疫苗后患了面瘫
+11/13/2021 中共国野心勃勃的火星计划给其他国家带来压力，或将形成一场激烈的太空竞赛
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

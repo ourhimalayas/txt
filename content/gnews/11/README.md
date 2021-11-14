@@ -2,10 +2,10 @@
 ---
 
 
-## 凯尔·华纳说出中共病毒疫苗副作用后遭受巨大社会压力
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664195/)
+## NBA球星坎特：我们必须与台湾站在一起，支持台湾
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664237/)
 
-11/11/2021 凯尔·华纳说出中共病毒疫苗的副作用后遭受了巨大的社会压力
+11/12/2021 NBA球星坎特：我们必须与台湾站在一起，支持台湾，捍卫民主。台湾的未来必须由台湾人民决定。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 福奇坚持否认武毒所功能增强型研究定义，否认对疫情的责任
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664220/)
+## 盖特将凭借言论自由的主旨和免费新功能成为“推特杀手”
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664286/)
 
-11/05/2021 福奇一直都否认武毒所功能增强型研究的定义，并同时否认他对疫情大流行的责任
+11/13/2021 杰森·米勒介绍盖特（GETTR）的迅猛发展，其言论自由的主旨以及即将推出的免费新功能，必将成为“推特杀手”
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

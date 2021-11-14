@@ -2,34 +2,27 @@
 ---
 
 
-## 美国制止英特尔在中共国的芯片增产计划
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1663907/)
+## 文贵爆料11.14：郭文贵先生警告全球华人全球黄种人，黑暗已经到来
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1663967/)
 
-作者：MOS – 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月12日的消息称，拜登政府否决了英特尔在中共国内增资扩张产能的计划。据了解，英特尔原计划向白宫寻求520亿美元的政府补贴，用以增加其在成都工厂的低制程产能，但白宫官员强烈反对这一举措。
+作者：文行
+![](https://assets.gnews.org/wp-content/uploads/2021/11/222-2.jpg)
+郭文贵先生在2021年11月14日大直播中重申，关于排华危机到来的问题爆料革命已经说了近一年的时间–从二零二零年的二月份就提出病毒疫苗危机会引起排华问题。郭先生早在二零一七年一八年就说过，共产党作的孽，最后华人要埋单。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-9.jpeg)
+爆料革命五年来，尤其到去年一年前郭先生多次重点提示，危机已经到来。他列举了近期在世界各地发生的一些排华的情况：
 
-消息显示，美国政府正在考虑建立一个对外投资的筛选机制，其中或将限制对中共的某些战略投资。另外，一项名为“CHIPS法案”的提案正在众议院等待通过。根据白宫的声明，“CHIPS法案”的目的在于，确保美国能够减少对脆弱供应链的依赖，包括在半导体方面。同时，政府希望使包含芯片在内的重要部件的生产回到美国，并以联邦资金援助的方式加强本土企业的研究和开发。
+在旧金山，华人开的店，从过去的木门到现在已经开始加锁，晚上开门不敢超过7点钟。
 
-消息人士指出，美国政府非常注重防止中共利用美国的技术、知识和投资来发展侵犯人权和伤害美国国家安全的科技。为此，一些共和党立法者表示，他们正在推动“CHIPS法案”的一些附加条款，用来确保相关企业在得到资助后不会增加他们在中共国内的业务。
+在伦敦中国城现在已经多次出现，外国人吃完饭就骂华人，威胁华人包括香港人。外国人分不清谁是香港人、台湾人和中国人。凡是黄皮肤人就会被威胁的情况已经发生了。
 
-参考链接：[White House Spurns Intel Plan to Boost Chip Production in China](https://news.bloomberglaw.com/tech-and-telecom-law/white-house-spurns-intel-plan-to-boost-chip-production-in-china)
+洛杉矶更夸张，很多战友反应，出门在超市受到侮辱，被骂滚回中国去。甚至有在开车过程中，有突然被枪指着的情况发生。即使报警，只要听到是华人立刻挂掉电话。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+在很多地方，孩子在学校里面被骂被侮辱的情况也屡有发生。
 
-总编：正义的小新
-编辑：Irene木木
-校正/发稿：谐趣园
+郭先生强调，现在的情况比大家想象的坏的多得多得多，战友们还没有意识到这场危机的严重性。他向全球华人和黄种人发出郑重警告：今天我告诉所有同胞，尤其西方的所有的华人，包括亚洲人，包括日本人，韩国人。黑暗真的已经到来，我们要做好准备。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+来源链接：[2021.11.14 文贵大直播](https://gtv.org/broadcast/watch/61910d9be7e770379234d271)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
