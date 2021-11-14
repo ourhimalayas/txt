@@ -2,28 +2,71 @@
 ---
 
 
-## Diffusion journalière de Miles Guo (11.14) : Le temps retiendra H-coin dans les nuages
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1664633/)
+## 消息:中共驻美大使馆游说美企反对与中共国相关的议案
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1664645/)
 
-Traductrice : Charline
+**摘要翻译：     **
 
-Relecteur : Jean Michel
-![](https://assets.gnews.org/wp-content/uploads/2021/11/222-2.jpg)
-Les fleurs ont besoin de pluie pour s’épanouir et H-coin a besoin de temps pour s’épanouir. Miles Guo a déclaré lors de sa grande émission en direct le 14 novembre que d’ici 5 à 10 ans, la valeur ajoutée de l’humanité au cours des dernières décennies sera reflétée dans la monnaie virtuelle. Les 3 premières années seront une période d’essor. Chaque pièce est rattachée à l’or, il y a des systèmes de paiement et de prêt, il y a des pièces stables. Le monde est invincible, il a juste besoin de temps pour être arrosé, et les camarades peuvent attendre que les fleurs s’épanouissent.
+《台湾英文新闻》转自《路透社》11月12日的报道称，
 
-Les États-Unis ont imprimé trois trillions de dollars et je pense qu’ils ne seront pas moins de cinq trillions. Le parti communiste chinois a également imprimé dix mille milliards. Le fait est que la plupart de ces dix mille milliards aux États-Unis sont allés à l’armée, aux entreprises et à la population. Une grande partie des dix mille milliards imprimés par le parti communiste chinois a été prise par les membres officiels de la famille. Un ou deux trillions ont servi à acheter des bitcoins.  2,8 trillions a été transféré à Singapour. C’est essentiellement différent. Pourquoi le monde entier imprime-t-il de l’argent ?
+四名熟悉该议案的消息人士对路透社表示，最近几周，中共国一直在通过致函商界人士和在商界人士广泛参与的会议上施压美国的高管、企业和商业团体，要求他们在美国国会反对与中共国相关的议案。
 
-Depuis une vingtaine de mois, depuis le coronavirus, l’internet a complètement changé la façon de vivre. C’est diffusion en direct, de la vidéoconférence, permet à tout le monde reste à la maison. En finance, la blockchain était née. Pour le bitcoin, n’oubliez jamais que 4 % de la population représentaient ensemble 96 % des biens. N’oubliez jamais que ce sont nos camarades qui représentent 60% des 600 millions de H-coin. Quiconque pourra conserver cette pièce pendant trois ans sans la vendre ,  elle vaudra plus que le bitcoin.
+据消息人士和路透社看到的中共国驻美大使馆经商处发出的一封信的文本，大使馆已向企业高管施压，要求他们敦促国会议员修改或撤销旨在增强美国竞争力的具体议案。
 
-Il y a deux noyaux. Premièrement :  la technologie Internet, Le gouvernement ne peut  pas dire ce qu’il veut , mais  il est possible de faire taire les autres. Deuxièmement, la technologie blockchain, les gens ont le choix, je ne vous utilise pas, j’utilise blockchain. Quel est le concept de la technologie blockchain ? Toute l’humanité représente mille trois cents milliards de dollars, et une grande partie de cette somme est diluée. Si vous multipliez ce qui a été édulcoré par un coefficient de 3,7 à 3,9 de la valeur de l’argent et de la production de richesse, cela signifie que toute l’humanité produit de la plus-value. Quelle sera la croissance de ce côté de l’argent virtuel ? La plus-value de l’humanité au cours des dernières décennies sera reflétée dans la monnaie virtuelle. Cela prendra environ cinq à dix ans, trois ans étant la période centrale de la poussée.
+根据信件正文，中共官员警告企业，如果这项议案成为法律，他们将面临在中共国失去市场份额或收入的风险。
 
-Vous ne parlez pas d’absence de gouvernement, la monnaie décentralisée. Vous ne comprenez pas la monnaie, et plus important encore, vous ne savez pas qu’elle a un échange. Vous ne savez pas qu’il y a un système de paiement, et qu’il y a une possibilité de prêt, et la stabilité, est lié à l’or, et c’est imbattable.
+中共国大使馆及其经商处负责人均未回复各自的置评请求。
 
-Miles Guo a dit qu’il espérait que ses camarades attendraient l’arrivée de la vraie valeur. Attendre le moment glorieux, si vous partez tôt, vous n’aurez pas d’autre chance.
+消息人士称，中共国的要求让一些收到信件的人担心，如果他们将来就类似问题游说议员，可能会被视为违反了《外国代理人登记法》(FARA)。
 
-—–14-11-2021
+因此，没有一个消息来源愿意被确认为收到或看到过这封信的人。
 
-Gnews🔗: [https://gnews.org/zh-hans/1664140/](https://gnews.org/zh-hans/1664140/)
+旨在促进美国与中共国的竞争并为急需的半导体生产提供资金的全面立法，即《美国创新与竞争法案》(USICA)，于今年6月在参议院的两党支持下获得通过。众议院的一项名为《鹰法案》的相关法案更严格地关注政策，但由于国会一直专注于其他国内举措，因此陷入停滞。
+
+路透社确定这些信件中的措辞是分别发送给许多人的，明确要求各公司反对《美国创业和竞争法案》和《鹰法案》。
+
+中共政府认为这些在人权和贸易问题上对中共国采取强硬立场的措施，是美国应对中共国日益增长的经济和地缘政治实力的努力的一部分。
+
+“我们诚挚地希望你们……在敦促国会议员放弃零和思维和意识形态偏见方面发挥积极作用，停止兜售负面涉华法案，删除负面条款，以便在为时已晚之前，为双边经贸合作创造有利条件。”中共大使馆在11月初发出的一封信函中说。
+
+路透社与四位消息人士确认了这封信的一致措辞。
+
+信函指出，“那些有负面影响的涉华法案，其结果不会是美国企业利益得到保护，而中国企业的利益受到损害，这只会伤害到所有人。”
+
+信函说，“推动排除中国的供应链将不可避免地导致中国对美国产品的需求下降，美国公司将失去在中国的市场份额和收入。”
+
+两名消息人士称，在与中共国大使馆工作人员的会谈中也传达了类似信息。
+
+一名消息人士称，“这是外国政府的直接要求”，并强调《外国代理人登记法》的影响，称该法案要求代表外国势力或政党行事的人向司法部披露这些关系。
+
+另一位消息人士称，这种做法似乎是为了让各公司推迟立法程序，而不是完全阻止这些法案。
+
+**简评：**
+
+众所周知，中共国的国企和私企，从本质上来说所都是党企和党官的家企，哪怕偶尔出来几个所谓的私有企业，也都与中共的腐败家族有着千丝万缕的关系，或者如果需要，中共政权更会直接将这些私企充公，马云的阿里巴巴，刘强东的京东商城等等，无不如此。
+
+为了维护这些为中共政权输血的中共企业的利益，维持中共国岌岌可危的经济困境，如今的中共政府已经开始直接要求美国相关企业高管敦促国会议员修改或撤销旨在增强美国竞争力的具体议案。而此举可能会被视为违反了《外国代理人登记法》。中共政权如此冒进，一方面说明了美国拜登政府的软弱可欺，另一方面也说明，在美国爱国者不断推行排除中共影响力法案的局面下，中共企业的创汇空间已经越来越小，这将直接影响中共政权的执政根基。我们期待随着美国爱国者不断觉醒，中共政权会进一步受到美国在政治、经济和军事层面的多重打击，伴随着政治内斗加剧，经济危机四伏的困局，中共政权的倒塌指日可待。
+
+新闻链接: [Chinese embassy lobbies US business to oppose China bills -sources](https://www.taiwannews.com.tw/en/news/4343851)
+
+***翻译/简评：**Harvey (叶知秋)*
+
+***校对**：感恩*
+
+
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

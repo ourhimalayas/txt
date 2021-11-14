@@ -2,53 +2,34 @@
 ---
 
 
-## 2021/11/10 班农专访1: 战斗室的使命是面向中美两国老百姓
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1664577/)
+## 从夏日的海湾到反新冠疫苗游行
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1664585/)
 
-**简评：**
-
-班农先生年初被中共制裁，班农战斗室最近又被主流媒体CNN攻击。因为GNews和GTV的影响力逐渐扩大，引起了主流媒体的强烈不满。班农战斗室的使命之一，就是把美国和中共国的老百姓联合起来，传播中国和中国人不等于中共的概念，告诉西方世界，中国人民是中共邪恶政权最大的受害者，不管是病毒和疫苗灾难，还是金融危机。老百姓有权利知道真相。
-
-[GTV视频链接](https://gtv.org/video/id=618f3330182702508104ad60)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/夏日湾.png)图片来源：妈妈咪网
 
 
+**翻译：月映万川**
+**编辑：Candy**
 
-**视频字幕：**
+伊莎贝尔·卢卡斯一直都是拜伦湾（澳洲）反疫苗运动的非官方代表人物，然而，正直、敢言的她实际上已经完全接种了各种疫苗。
 
-**主持人Nina：**周日《CNN 政治》上发表了一篇题为《史蒂夫·班农非常火的播客是选举谎言的危险幻想之地》。我想这是继今年1月20号中共对你的制裁之后，你和《战斗室》的又一荣誉徽章。主流媒体完全脱离人民，CNN还有多少观众呢？
+周日秘密透露：这位前澳大利亚日间剧明星已经接种了所有的标准疫苗，但是，却拒绝接种新冠疫苗。
 
-**班农先生：**这是个好问题。他们害怕《战斗室》的其中一个原因是，实话说，由于我们与GNews和GTV的合作，被翻译成汉语和日语，扩大了我们的听众。不仅仅是在生活在西方的和全世界的海外华人，而且还通过防火墙最终到达中国老百姓。
+在她的社交媒体上回应批评者时她写道：“为了信息透明，我在人生中接种过很多疫苗，但是我只是要为大众争取选择权。”
 
-主流媒体现在完全气坏了，因为他们很乏味、很有限。他们只看到华盛顿、纽约和伦敦。他们没有全球眼光。
+这位36岁的前变形金刚女演员一直站在各种反新冠疫苗集会的焦点位置。这些集会的诉求就是结束边境控制与疫苗强制。
 
-这是我对《战斗室》最为骄傲的原因，而且我真的为我们听众的反应感到自豪，所以我们一定会受到更多这样的攻击。请记住，我的使命之一就是将美国和中国的老百姓联合在一起。
+其中，在她留言到电视主播皮特·埃文斯的社交媒体帖子时说，“自由选择是每一个人的基本人权。我不相信靠新冠疫苗接种达到群体免疫这条路。”。
 
-媒体恨之入骨，因为他们的观众和影响在减小，这只不过是他们溃败前的顽抗罢了。所以每一次他们这样做的时候，我们都非常骄傲，并大力宣传，让我们的听众明白他们正在发挥影响。
+原文链接：[From Summer Bay to Anti-vax protest](https://www.dailytelegraph.com.au/subscribe/news/1/?sourceCode=DTWEB_WRE170_a&amp;dest=https%3A%2F%2Fwww.dailytelegraph.com.au%2Fentertainment%2Fsydney-confidential%2Factress-isabel-lucas-has-been-vaccinated-just-not-for-covid19%2Fnews-story%2F6ac012a44e7f4140b63d796a895cd5b1&amp;memtype=anonymous&amp;mode=premium&amp;v21=dynamic-warm-control-score&amp;V21spcbehaviour=append)
 
-现在我们的听众完全了解选举的胜利，但是，我想确保中国观众也能够了解，他们也发挥了巨大的影响。
+***发布：Candy***
 
-第一，就是中国和中国人不等于中国共产党的概念。中国，尤其是中国人民是受害者，还有老百姓、工薪阶层、中产阶级、传统的中国家庭、中国公民，他们是最大的牺牲品。无论是武汉实验室，或者是影子银行。我听说恒大即将破产。所以，我认为这是我们中国听众和美国华人听众的力量，所以我要感谢每一位的支持。
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 
-但是要明白，当他们发出这种文章的时候，重点不是我，我是可以被替代的，重点是我们中国和美国的听众。
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/%E7%8F%AD%E5%86%9C%E4%B8%93%E8%AE%BF.jpg)
-*字幕/听写：云岭 | 翻译：Roberts｜校对：Wade| 简评/文字整理/编辑：胖丁*
-
-
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
