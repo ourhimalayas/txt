@@ -2,10 +2,10 @@
 ---
 
 
-## 中共厚颜无耻地声称自己的支持率有95%以上
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1662780/)
+## 中共无耻号称中国经济发展秘诀就是公有制和党领导一切
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1662784/)
 
-11/12/2021 中共厚颜无耻地声称自己的支持率有95%以上，是真正的人民民主！
+11/12/2021 中共无耻号称中国经济发展秘诀就是公有制和党领导一切。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
