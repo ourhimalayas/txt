@@ -2,26 +2,40 @@
 ---
 
 
-## 文贵爆料11.14：郭文贵先生警告全球华人全球黄种人，黑暗已经到来
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1663967/)
+## 批准的辉瑞儿童新冠疫苗外加研究实验室常用的化学物
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1664022/)
 
-作者：文行
-![](https://assets.gnews.org/wp-content/uploads/2021/11/222-2.jpg)
-郭文贵先生在2021年11月14日大直播中重申，关于排华危机到来的问题爆料革命已经说了近一年的时间–从二零二零年的二月份就提出病毒疫苗危机会引起排华问题。郭先生早在二零一七年一八年就说过，共产党作的孽，最后华人要埋单。
+作者: TCC
+![](https://assets.gnews.org/wp-content/uploads/2021/11/new-covid19-feature-graphic-1600x900-final-1.jpg)网络图片
+10 月 29 日，美国食品和药物管理局 (FDA) 经由紧急使用授权用于5 至 11 岁儿童的辉瑞新冠疫苗。辉瑞公司在10 月 26 日发布一份关于新的儿童用新冠疫苗的官方文件（参考文献 1. 第 14 页疫苗配方）显示，这种“新”版本的新冠疫苗含有一种新成分-氨丁三醇 (Tris)。这种 Tris 缓冲液用于替代以前使用的磷酸盐缓冲盐水 (PBS) 缓冲液。
 
-爆料革命五年来，尤其到去年一年前郭先生多次重点提示，危机已经到来。他列举了近期在世界各地发生的一些排华的情况：
+Tris 缓冲液通常用于研究实验室，以稳定许多实验室试剂和溶液的酸碱值。其医学适应症是维持血液酸碱值并治疗代谢性酸中毒（由于感染或其他代谢状况导致血液酸碱值降至正常范围以下）。
 
-在旧金山，华人开的店，从过去的木门到现在已经开始加锁，晚上开门不敢超过7点钟。
+任何化学品或药物都有其副作用。 Tris 有许多已知的副作用，包括血管炎症、血糖水平降低、抑郁、肝细胞损伤、皮肤过敏等（参见参考文献 2）。
 
-在伦敦中国城现在已经多次出现，外国人吃完饭就骂华人，威胁华人包括香港人。外国人分不清谁是香港人、台湾人和中国人。凡是黄皮肤人就会被威胁的情况已经发生了。
+辉瑞在5-11岁儿童的临床试验中，存在许多的问题，包括样本人数少（750名儿童）和追踪时间短（第2针剂后17天就截止追踪，请参见参考文献3）。
 
-洛杉矶更夸张，很多战友反应，出门在超市受到侮辱，被骂滚回中国去。甚至有在开车过程中，有突然被枪指着的情况发生。即使报警，只要听到是华人立刻挂掉电话。
+知道这些，你还会考虑让你的孩子接种这个实验性基因物质吗？
 
-在很多地方，孩子在学校里面被骂被侮辱的情况也屡有发生。
+相关资料网页:
 
-郭先生强调，现在的情况比大家想象的坏的多得多得多，战友们还没有意识到这场危机的严重性。他向全球华人和黄种人发出郑重警告：今天我告诉所有同胞，尤其西方的所有的华人，包括亚洲人，包括日本人，韩国人。黑暗真的已经到来，我们要做好准备。
+1. [https://www.fda.gov/media/153447/download](https://www.fda.gov/media/153447/download)
+2. [https://www.drugs.com/cdi/tromethamine.html](https://www.drugs.com/cdi/tromethamine.html)
+3. [https://theexpose.uk/2021/11/01/pfizer-adds-ingredient-to-vaccine-for-kids-that-treats-heart-attacks/](https://theexpose.uk/2021/11/01/pfizer-adds-ingredient-to-vaccine-for-kids-that-treats-heart-attacks/)
 
-来源链接：[2021.11.14 文贵大直播](https://gtv.org/broadcast/watch/61910d9be7e770379234d271)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

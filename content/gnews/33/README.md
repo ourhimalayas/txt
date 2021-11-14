@@ -2,30 +2,26 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月14日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1663948/)
+## 文贵爆料11.14：郭文贵先生警告全球华人全球黄种人，黑暗已经到来
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1663967/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
+作者：文行
+![](https://assets.gnews.org/wp-content/uploads/2021/11/222-2.jpg)
+郭文贵先生在2021年11月14日大直播中重申，关于排华危机到来的问题爆料革命已经说了近一年的时间–从二零二零年的二月份就提出病毒疫苗危机会引起排华问题。郭先生早在二零一七年一八年就说过，共产党作的孽，最后华人要埋单。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-13.png)
-文章仅代表作者本人观点，与Gnews无关
+爆料革命五年来，尤其到去年一年前郭先生多次重点提示，危机已经到来。他列举了近期在世界各地发生的一些排华的情况：
 
-视频参看：2021.11.14早GTV新闻访谈
+在旧金山，华人开的店，从过去的木门到现在已经开始加锁，晚上开门不敢超过7点钟。
 
-[https://gtv.org/broadcast/watch/61910f2ae7e770379234d809](https://gtv.org/broadcast/watch/61910f2ae7e770379234d809)
+在伦敦中国城现在已经多次出现，外国人吃完饭就骂华人，威胁华人包括香港人。外国人分不清谁是香港人、台湾人和中国人。凡是黄皮肤人就会被威胁的情况已经发生了。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+洛杉矶更夸张，很多战友反应，出门在超市受到侮辱，被骂滚回中国去。甚至有在开车过程中，有突然被枪指着的情况发生。即使报警，只要听到是华人立刻挂掉电话。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
+在很多地方，孩子在学校里面被骂被侮辱的情况也屡有发生。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+郭先生强调，现在的情况比大家想象的坏的多得多得多，战友们还没有意识到这场危机的严重性。他向全球华人和黄种人发出郑重警告：今天我告诉所有同胞，尤其西方的所有的华人，包括亚洲人，包括日本人，韩国人。黑暗真的已经到来，我们要做好准备。
+
+来源链接：[2021.11.14 文贵大直播](https://gtv.org/broadcast/watch/61910d9be7e770379234d271)
 
  
 
