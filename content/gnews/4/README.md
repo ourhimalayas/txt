@@ -2,10 +2,10 @@
 ---
 
 
-## 山地自行车冠军凯尔·华纳接种中共病毒疫苗后患心包炎
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664170/)
+## NBA球星坎特：我们必须与台湾站在一起，支持台湾
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664237/)
 
-10/28/2021 29岁职业山地自行车冠军凯尔·华纳在参议员罗恩·约翰逊听证会上作证，讲述他如何在接种中共病毒疫苗后患上心包炎
+11/12/2021 NBA球星坎特：我们必须与台湾站在一起，支持台湾，捍卫民主。台湾的未来必须由台湾人民决定。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,34 +2,41 @@
 ---
 
 
-## 美国制止英特尔在中共国的芯片增产计划
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1663907/)
+## 批准的辉瑞儿童新冠疫苗外加研究实验室常用的化学物
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1664022/)
 
-作者：MOS – 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月12日的消息称，拜登政府否决了英特尔在中共国内增资扩张产能的计划。据了解，英特尔原计划向白宫寻求520亿美元的政府补贴，用以增加其在成都工厂的低制程产能，但白宫官员强烈反对这一举措。
+作者: TCC
+![](https://assets.gnews.org/wp-content/uploads/2021/11/new-covid19-feature-graphic-1600x900-final-1.jpg)网络图片
+10 月 29 日，美国食品和药物管理局 (FDA) 经由紧急使用授权用于5 至 11 岁儿童的辉瑞新冠疫苗。辉瑞公司在10 月 26 日发布一份关于新的儿童用新冠疫苗的官方文件（参考文献 1. 第 14 页疫苗配方）显示，这种“新”版本的新冠疫苗含有一种新成分-氨丁三醇 (Tris)。这种 Tris 缓冲液用于替代以前使用的磷酸盐缓冲盐水 (PBS) 缓冲液。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-9.jpeg)
+Tris 缓冲液通常用于研究实验室，以稳定许多实验室试剂和溶液的酸碱值。其医学适应症是维持血液酸碱值并治疗代谢性酸中毒（由于感染或其他代谢状况导致血液酸碱值降至正常范围以下）。
 
-消息显示，美国政府正在考虑建立一个对外投资的筛选机制，其中或将限制对中共的某些战略投资。另外，一项名为“CHIPS法案”的提案正在众议院等待通过。根据白宫的声明，“CHIPS法案”的目的在于，确保美国能够减少对脆弱供应链的依赖，包括在半导体方面。同时，政府希望使包含芯片在内的重要部件的生产回到美国，并以联邦资金援助的方式加强本土企业的研究和开发。
+任何化学品或药物都有其副作用。 Tris 有许多已知的副作用，包括血管炎症、血糖水平降低、抑郁、肝细胞损伤、皮肤过敏等（参见参考文献 2）。
 
-消息人士指出，美国政府非常注重防止中共利用美国的技术、知识和投资来发展侵犯人权和伤害美国国家安全的科技。为此，一些共和党立法者表示，他们正在推动“CHIPS法案”的一些附加条款，用来确保相关企业在得到资助后不会增加他们在中共国内的业务。
+辉瑞在5-11岁儿童的临床试验中，存在许多的问题，包括样本人数少（750名儿童）和追踪时间短（第2针剂后17天就截止追踪，请参见参考文献3）。
 
-参考链接：[White House Spurns Intel Plan to Boost Chip Production in China](https://news.bloomberglaw.com/tech-and-telecom-law/white-house-spurns-intel-plan-to-boost-chip-production-in-china)
+知道这些，你还会考虑让你的孩子接种这个实验性基因物质吗？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+相关资料网页:
 
-总编：正义的小新
-编辑：Irene木木
-校正/发稿：谐趣园
+1. [https://www.fda.gov/media/153447/download](https://www.fda.gov/media/153447/download)
+2. [https://www.drugs.com/cdi/tromethamine.html](https://www.drugs.com/cdi/tromethamine.html)
+3. [https://theexpose.uk/2021/11/01/pfizer-adds-ingredient-to-vaccine-for-kids-that-treats-heart-attacks/](https://theexpose.uk/2021/11/01/pfizer-adds-ingredient-to-vaccine-for-kids-that-treats-heart-attacks/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

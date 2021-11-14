@@ -15,110 +15,110 @@
 
 ---
 
-### [第五巡回上诉法院裁定：维持对拜登疫苗强制令的临时禁令](/content/gnews/1/README.md)
+### [上百名美国幼童被接种了错误剂量的中共病毒疫苗](/content/gnews/1/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [澳大利亚表示将协助美国保卫台湾](/content/gnews/2/README.md)
- ` HimalayaRussia`
-
-### [凯尔·华纳说出中共病毒疫苗副作用后遭受巨大社会压力](/content/gnews/3/README.md)
+### [年轻漂亮女孩接种辉瑞疫苗后患上面瘫](/content/gnews/2/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [山地自行车冠军凯尔·华纳接种中共病毒疫苗后患心包炎](/content/gnews/4/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [路透社：班农因无视有关国会袭击事件的传票而受到刑事指控](/content/gnews/5/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [文贵爆料 11.14 : 时间会将喜币捧入云端](/content/gnews/6/README.md)
+### [文贵爆料 11.14：战友们只有联合才能安全](/content/gnews/3/README.md)
  ` 秘密翻译组-原创组`
 
-### [2021/11/10 班农专访10: 中共反腐是习近平巩固权利的内斗](/content/gnews/7/README.md)
+### [NBA球星坎特：我们必须与台湾站在一起，支持台湾](/content/gnews/4/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [福奇坚持否认武毒所功能增强型研究定义，否认对疫情的责任](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [文贵爆料 11.14：疫苗危机在明年五月爆发的缘由、情况以及如何防范](/content/gnews/6/README.md)
+ ` 秘密翻译组-原创组`
+
+### [格雷格·凯利：司法部用荒唐的起诉来骚扰班农先生](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [2021/11/10 班农专访9: 中共国内备粮备荒，准备应付灾难](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [使用呼吸机的71岁男子注射一针伊维菌素后开始好转](/content/gnews/8/README.md)
+### [第五巡回上诉法院裁定：维持对拜登疫苗强制令的临时禁令](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [恒大债务危机使风险情绪恶化，全球金融市场为之紧张](/content/gnews/9/README.md)
+### [澳大利亚表示将协助美国保卫台湾](/content/gnews/10/README.md)
+ ` HimalayaRussia`
+
+### [凯尔·华纳说出中共病毒疫苗副作用后遭受巨大社会压力](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [2021年11月14日郭文贵先生大直播重点及概要](/content/gnews/10/README.md)
+### [山地自行车冠军凯尔·华纳接种中共病毒疫苗后患心包炎](/content/gnews/12/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [路透社：班农因无视有关国会袭击事件的传票而受到刑事指控](/content/gnews/13/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [文贵爆料 11.14 : 时间会将喜币捧入云端](/content/gnews/14/README.md)
+ ` 秘密翻译组-原创组`
+
+### [2021/11/10 班农专访10: 中共反腐是习近平巩固权利的内斗](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [使用呼吸机的71岁男子注射一针伊维菌素后开始好转](/content/gnews/16/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [恒大债务危机使风险情绪恶化，全球金融市场为之紧张](/content/gnews/17/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [2021年11月14日郭文贵先生大直播重点及概要](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [洪都拉斯总统力挺台湾](/content/gnews/11/README.md)
+### [洪都拉斯总统力挺台湾](/content/gnews/19/README.md)
  ` HimalayaRussia`
 
-### [批准的辉瑞儿童新冠疫苗外加研究实验室常用的化学物](/content/gnews/12/README.md)
+### [批准的辉瑞儿童新冠疫苗外加研究实验室常用的化学物](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/11/10班农专访11: 中共在沙漠建航母和战舰模型用于训练](/content/gnews/13/README.md)
+### [2021/11/10班农专访11: 中共在沙漠建航母和战舰模型用于训练](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共六中全会加剧内部绞杀](/content/gnews/14/README.md)
+### [中共六中全会加剧内部绞杀](/content/gnews/22/README.md)
  ` 波士顿五月花农场`
 
-### [香草山翻译部周刊|2021年11月14日第22期](/content/gnews/15/README.md)
+### [香草山翻译部周刊|2021年11月14日第22期](/content/gnews/23/README.md)
  ` 纽约香草山MOS01`
 
-### [文贵爆料11.14：郭文贵先生警告全球华人全球黄种人，黑暗已经到来](/content/gnews/16/README.md)
+### [文贵爆料11.14：郭文贵先生警告全球华人全球黄种人，黑暗已经到来](/content/gnews/24/README.md)
  ` 秘密翻译组-原创组`
 
-### [第45届美国总统唐纳德·j·川普(Donald J. Trump)发表声明](/content/gnews/17/README.md)
+### [第45届美国总统唐纳德·j·川普(Donald J. Trump)发表声明](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [GTV新闻访谈简报|2021年11月14日早](/content/gnews/18/README.md)
+### [GTV新闻访谈简报|2021年11月14日早](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [文贵爆料11.14： 盛开国际体育李红和2008年北京奥运会](/content/gnews/19/README.md)
+### [文贵爆料11.14： 盛开国际体育李红和2008年北京奥运会](/content/gnews/27/README.md)
  ` 秘密翻译组-原创组`
 
-### [美国制止英特尔在中共国的芯片增产计划](/content/gnews/20/README.md)
+### [美国制止英特尔在中共国的芯片增产计划](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [11月12日文贵大直播精剪汇编——下集](/content/gnews/21/README.md)
+### [11月12日文贵大直播精剪汇编——下集](/content/gnews/29/README.md)
  ` 澳喜特战旅Gnews`
 
-### [11月12日文贵大直播精剪汇编——中集](/content/gnews/22/README.md)
- ` 澳喜特战旅Gnews`
-
-### [全球最大财经新闻社——彭博社为喜币“造势”](/content/gnews/23/README.md)
+### [日本防疫措施放宽拟取消活动人数上限](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [日本防疫措施放宽拟取消活动人数上限](/content/gnews/24/README.md)
- ` GTV新闻访谈`
-
-### [第五上诉法院确认暂停拜登中共病毒疫苗授权](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [日本或将主办美日澳印四国集团第二次面对面峰会](/content/gnews/26/README.md)
- ` GTV新闻访谈`
-
-### [11月12日文贵大直播精剪汇编——上集](/content/gnews/27/README.md)
- ` 澳喜特战旅Gnews`
-
-### [2021年11月14日文贵先生直播大雨围城速记](/content/gnews/28/README.md)
+### [2021年11月14日文贵先生直播大雨围城速记](/content/gnews/31/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [2021年11月14日文贵先生直播小飞象大雨围城速记](/content/gnews/29/README.md)
+### [2021年11月14日文贵先生直播小飞象大雨围城速记](/content/gnews/32/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [主流媒体隐瞒体坛明星接种疫苗猝死的真相](/content/gnews/30/README.md)
- ` 澳喜农场`
-
-### [11/14/21 香港快讯 【47人案】原定月尾再讯 消息﹕律政司申请延至明年2月](/content/gnews/31/README.md)
+### [11/14/21 香港快讯 【47人案】原定月尾再讯 消息﹕律政司申请延至明年2月](/content/gnews/33/README.md)
  ` 英喜-粵語組`
 
-### [中共泯灭天良，继续给儿童注射毒疫苗](/content/gnews/32/README.md)
- ` 波士顿五月花农场`
-
-### [COP26在最后一刻达成妥协](/content/gnews/33/README.md)
+### [COP26在最后一刻达成妥协](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯开始向印度交付S-400防空导弹系统](/content/gnews/34/README.md)
+### [俄罗斯开始向印度交付S-400防空导弹系统](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [银河快讯：日本将向数字产业投资4000亿日元；食用油价格今年第四次上调](/content/gnews/35/README.md)
- ` 日本银河系农场-阿尔法星球`
 
 ### [串珠449:中共领导不是人人喊打，而是人人喊杀！](/content/gnews/36/README.md)
  ` 郭爆料串珠`
