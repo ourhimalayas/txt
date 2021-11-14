@@ -2,35 +2,14 @@
 ---
 
 
-## “日中韩峰会”因三国关系生变预料将连续两年停办
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1663114/)
+## 七哥的一张照片引发的思考
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1663161/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-23.png)
-（图片来自网络）
-
-近日，据媒体披露，由日本、中共国及韩国领导人参与的“日中韩峰会”预料将连续两年停办。据悉，该峰会今年主席国韩国已向日本政府非正式告知取消意向。
-
-据《雅虎新闻网》11月13日报道，受到日中关系紧张升温、日韩关系恶化等因素影响，由日本、中共国和韩国领导人参与的“日中韩峰会”，预料将连续两年停办。
-
-日本《读卖新闻》的报道称，身为峰会今年主席国的韩国，已向日本政府非正式地告知取消意向。 日、中、韩过去同意每年轮流主办3国峰会，但从2019年12月以来就没再办过。
-
-报道称，日韩关系受到“慰安妇”及“前征用工”（遭日本企业强征的南韩劳工）诉讼问题等影响，持续恶化。日本外务省官员将其形容为“二战以来最糟状况”。
-
-报道指出，韩国总统文在寅原本考虑通过举行“日中韩峰会”，在场边另外举行日韩首脑会谈以改善双边关系。不过，日本政府因为看不到韩国方面提出解决“慰安妇”等问题对策的可能，对举行双边首脑会谈慎重以对，导致至今未能实现。
-
-除了日韩关系持续恶化之外，日中关系也因中共国海警船持续在钓鱼岛列屿周边海域航行等事件，紧张情势日益升高，这同样也成为“日中韩峰会”无法举行的原因之一。
-
-“日中韩峰会”从2008年起由3国轮流举办。峰会曾就应对朝鲜研发核武器及弹道导弹、在经济与防灾方面合作和人际交流等议题进行商议。
-
-最近的一次“日中韩峰会”是于2019年12月24日在中共国四川省成都市举行。时任日本首相安倍晋三访问中共国，并在峰会开幕前先赴北京与中共领导人习近平举行会谈。
-
-“日中韩峰会”过去也曾因日本政府在2012年将钓鱼岛列屿国有化，引起中共强烈反弹，逾3年未举办。
-
-注：本文仅代表作者观点
-
-新闻链接：[https://tw.news.yahoo.com/%E6%97%A5%E4%B8%AD%E9%9F%93%E9%97%9C%E4%BF%82%E7%94%9F%E8%AE%8A-3%E5%9C%8B%E5%B3%B0%E6%9C%83%E6%96%99%E9%80%A3%E5%85%A9%E5%B9%B4%E5%81%9C%E8%BE%A6-074153028.html](https://tw.news.yahoo.com/%E6%97%A5%E4%B8%AD%E9%9F%93%E9%97%9C%E4%BF%82%E7%94%9F%E8%AE%8A-3%E5%9C%8B%E5%B3%B0%E6%9C%83%E6%96%99%E9%80%A3%E5%85%A9%E5%B9%B4%E5%81%9C%E8%BE%A6-074153028.html)
-
+#### 撰稿：东京樱花团/华夏小哥
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-106.jpg)[图片来源](https://gettr.com/post/pgv04zabbb)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-79.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-65.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-47.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-35.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-22.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/7-16.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/8-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/9-6.jpg)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

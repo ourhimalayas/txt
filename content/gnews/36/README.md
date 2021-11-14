@@ -2,22 +2,20 @@
 ---
 
 
-## 疫苗暴政：拉脱维亚禁止未接种疫苗的议员参加议会投票并暂停其薪水
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1662963/)
+## 台湾前线｜新冠疫苗问题多 政府正视心肌炎问题
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1663025/)
 
-#### 翻译/撰稿：zzballack
+**台灣寶島農場 港台前線關注組 / 發佈時間｜14/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-07-14.32.38.jpeg)
+**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-10.jpg)图片来源：Sawah Press
-据《布雷特巴特新闻网》（Breitbart News）11月13日报道，拉脱维亚议会11月12日投票决定，拒绝接种新冠疫苗的议员将被禁止参加议会投票和讨论。
+中央流行疫情指挥中心14日公布，发生四例突破性感染，其中包含一例马来西亚籍人士完整接种科兴疫苗，另一印尼籍人士完整接种BNT疫苗。台湾突破性感染情形逐渐发生。
 
-拉脱维亚议会发表声明说：“从11月15日起，议员只有在提交了疫苗接种证明或新冠康复证明后，才有权参与议会工作。否则将被暂停支付月薪和补偿金，并被禁止参与议会投票。”这项法律获得了100名议员中的62人支持，将至少持续到明年7月1日，该法案同样适用于地方议会官员。
+针对青少年接种新冠疫苗致心肌炎、心包膜炎，主管机关决议暂缓12-17岁青少年接种第二剂BNT疫苗两周。美国统计显示，青少年接种第二剂BNT疫苗心肌炎发生机率高出仅接种一剂的10倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/港台前線-（TW）-4.jpg)
+* * *
 
-该法案的发起人、议员贾尼斯·兰坎斯（Juris Rancāns）说，有必要增强公众对疫苗接种计划的信心。
-
-据欧洲新闻台 (Euronews)报道，拉脱维亚是欧盟国家中新冠疫苗接种率最低的国家之一。该国只有53.6%的人接种了两剂疫苗，而欧盟的平均接种率为64.9%。拉脱维亚媒体Leta报道说，未接种疫苗的人在参加公共和私人活动、进入商店和接受面授教育方面将受到限制。
-
-新闻来源：[Covid Tyranny: Unvaxed Politicians Banned from Voting in EU’s Latvia, Pay Suspended](https://www.breitbart.com/europe/2021/11/13/latvia-bans-unvaccinated-mps-from-voting-in-parliament/)
+來源｜[商周](https://www.businessweekly.com.tw/style/blog/3008286)
 
  
 
