@@ -2,32 +2,20 @@
 ---
 
 
-## 美拜登总统签署「安全设备法」禁止接受华为中兴等通讯设备的审核申请
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1659127/)
+## 班农先生将会成为全人类的英雄！
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1659767/)
 
-作者：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月11日，美国拜登总统签署《安全设备法》。此法案于10月份分别在参众两院以绝对多数通过。该法案的主要内容，是要求美国联邦通讯委员会，不得再审核或同意，会造成美国国家安全风险的设备申请案。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-7.jpg)
-今年3月，美国联邦传播委员会依据2019年颁布的一项电信网络法律，认定华为技术有限公司、中兴通讯、海能达通信股份有限公司、杭州海康威视数字技术股份有限公司、浙江大华技术股份有限公司，等五家中共企业会对美国国家安全造成威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-91.jpg)[图片来源](https://newsin.us/wp-content/uploads/2020/08/1-32.png)
+#### 撰稿：胡天
 
-此次拜登总统新签署的法案，将“有助于确保来自华为与中兴通讯等中共企业的不安全装置，不会再被嵌入美国的通讯网路之中”。
+纽约时间2021年11月12日，下午7时左右，一群人正在屋外等待抓捕川普的坚定支持者、川普前首席战略顾问、新中国联邦的创始人、真正的美国之声war room主播、美国爱国者班农先生。
 
-参考链接：[美拜登总统签署「安全设备法」禁止接受华为中兴等通讯设备的审核申请](https://www.cna.com.tw/news/firstnews/202111120014.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+众所周知，班农先生一直美国极左势力的围剿下努力传播真相，对抗邪恶。他对目前最主要的反共灭共团体——爆料革命的支持更是毫无保留！郭先生说过，现在的世界，已经不是集权与民主的较量、不是左与右的博弈，而是邪恶与正义的终极之战！此一役，将决定人类的生死存亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+魔鬼在垂死之前必定会疯狂反扑。战争远远还未结束，但历史会记住这个时刻，记住这位拯救人类的英雄！
 
-总编：文徬
-编辑：飞虹
-校对/发稿：Hetangyuese
+我们爱您，班农先生！新中国联邦、爆料革命的所有战友永远跟您站在一起！！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/14/2021 1:42 AM (UTC)`
+
+11/13/2021 Miles Guo’s GETTR: The female Bloomberg journalist who reported on the Himalaya Coin avoided covering the key issues, and she is very likely controlled by Bruno Wu; instead of smearing the Himalaya Coin, the CCP ended up helping us advertise it; the CCP has started to rip off the entrepreneurs in the Communist China; Mr. Bannon is becoming a real hero in the darkness and in the test of life and death<br/><br/>11/13/2021 文贵盖特: 报道喜币的彭博社女记者对关键问题避而不谈，她十有八九被吴征控制；中共非但没能抹黑喜币，反而帮咱打了广告；中共在国内已开始宰割企业家；班农先生将在黑暗和生死的考验中成为真正的英雄<br/>
+![img](https://media.gettr.com/group19/getter/2021/11/14/01/42/c6b22351-93b9-dbeb-937c-c8f9712406b2/out.jpg)
+
+---
+
 `@miles 11/13/2021 5:39 PM (UTC)`
 
  11月13号：你们能认出照片中的每一个人吗？每一个人都是有故事的…… <br/><br/>
@@ -289,13 +296,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 11/9/2021 Miles Guo’s GETTR: A Senior CCP Cadre died because he did not take my advice and proceeded to get the COVID jab instead; the internal fights in the CCP are getting fierce during the Sixth Plenary Session of the 19th Central Committee; the truth about the COVID vaccines is the biggest gift brought to the world by the Whistleblowers’ Movement and the New Federal State of China<br/><br/>11/9/2021 文贵盖特: 中共体制内高官因不听文贵劝告，打了疫苗而殒命；中共六中全会内斗正酣；疫苗真相是爆料革命、新中国联邦带给世界最大的礼物<br/>
 ![img](https://media.gettr.com/group30/getter/2021/11/09/22/12/e1ef9150-d9b6-500b-95ea-5f1b5675a7c7/out.jpg)
-
----
-
-`@miles 11/9/2021 10:05 PM (UTC)`
-
-11/9/2021 Miles Guo: Only when the US stops the COVID vaccines, will the rest of the world call a halt to it. Our strategy hit the point! Today’s broadcast will witness another great moment since the cutoff of my live interview by VOA on April 19, 2017!<br/><br/><br/>11/9/2021 文贵直播: 只有美国叫停疫苗，全世界才会叫停疫苗。我们的策略直击要害！今天的直播会见证继四一九VOA断播事件后又一个伟大的时刻！<br/>
-![img](https://media.gettr.com/group19/getter/2021/11/09/22/05/eec8e95d-f838-feea-3858-d3c8bfdd3064/out.jpg)
 
 ---
 

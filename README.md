@@ -114,73 +114,73 @@
 ### [大陪审团以藐视国会的罪名起诉班农](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [《我是音雄》第二季第十二期第三场|复赛节目预告](/content/gnews/34/README.md)
- ` 我是音雄`
-
-### [美联邦法院驳回拜登欲解除【强制接种暂停令】的申诉](/content/gnews/35/README.md)
+### [美联邦法院驳回拜登欲解除【强制接种暂停令】的申诉](/content/gnews/34/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [秘翻在线:华东理工大学学生因实验引起核酸检测阳性](/content/gnews/36/README.md)
+### [秘翻在线:华东理工大学学生因实验引起核酸检测阳性](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [布林肯表示，如果台湾受到攻击，美国及盟友将采取行动](/content/gnews/37/README.md)
+### [布林肯表示，如果台湾受到攻击，美国及盟友将采取行动](/content/gnews/36/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021/11/12 墙内世界](/content/gnews/38/README.md)
+### [新中国联邦正在建立世界一流的国防力量](/content/gnews/37/README.md)
+ ` GTV新闻访谈`
+
+### [日台交流高峰会：神户宣言挺台加入国际组织](/content/gnews/38/README.md)
+ ` GTV新闻访谈`
+
+### [澳防长揭秘：潜艇交易弃法，投英美 捍卫台湾对抗中共](/content/gnews/39/README.md)
+ ` GTV新闻访谈`
+
+### [新中国联邦的G系列将开创人类新时代](/content/gnews/40/README.md)
+ ` GTV新闻访谈`
+
+### [新中国联邦人将面临前所未有的三大时机](/content/gnews/41/README.md)
+ ` GTV新闻访谈`
+
+### [六中全会助力新中国联邦](/content/gnews/42/README.md)
+ ` GTV新闻访谈`
+
+### [2021/11/12 墙内世界](/content/gnews/43/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [11/13/2021国际财经快讯：马斯克抛售特斯拉股票；货币市场因欧央行加息而缓和](/content/gnews/39/README.md)
+### [11/13/2021国际财经快讯：马斯克抛售特斯拉股票；货币市场因欧央行加息而缓和](/content/gnews/44/README.md)
  ` 秘密翻译组金融团队`
 
-### [生命不能承受之重](/content/gnews/40/README.md)
+### [生命不能承受之重](/content/gnews/45/README.md)
  ` 骄子`
 
-### [北京天空被中共病毒疫苗受害者尸体燃烧后的灰尘所覆盖](/content/gnews/41/README.md)
+### [北京天空被中共病毒疫苗受害者尸体燃烧后的灰尘所覆盖](/content/gnews/46/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [把握好世界上前所未有的三大的机会](/content/gnews/42/README.md)
+### [把握好世界上前所未有的三大的机会](/content/gnews/47/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国蓝光发展“爆雷”，240多亿到期未还](/content/gnews/43/README.md)
+### [中共国蓝光发展“爆雷”，240多亿到期未还](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共“阳光城”理财爆雷，以房抵债](/content/gnews/44/README.md)
+### [中共“阳光城”理财爆雷，以房抵债](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [法国发现中共病毒新变种，已有24人被感染](/content/gnews/45/README.md)
+### [法国发现中共病毒新变种，已有24人被感染](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中美生死对立以及疫苗灾难将迎来世界金融新秩序的诞生](/content/gnews/46/README.md)
+### [中美生死对立以及疫苗灾难将迎来世界金融新秩序的诞生](/content/gnews/51/README.md)
  ` NewFOC`
 
-### [2021/11/12大卫作战室直播精要](/content/gnews/47/README.md)
+### [2021/11/12大卫作战室直播精要](/content/gnews/52/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共治下高等院校的虚假乱象](/content/gnews/48/README.md)
+### [中共治下高等院校的虚假乱象](/content/gnews/53/README.md)
  ` 墨尔本雅典娜农场`
 
-### [班农先生将会成为全人类的英雄！](/content/gnews/49/README.md)
+### [班农先生将会成为全人类的英雄！](/content/gnews/54/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [应对中共，军事合作再升级！日本首次对澳军实施武装防卫](/content/gnews/50/README.md)
+### [应对中共，军事合作再升级！日本首次对澳军实施武装防卫](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [佛州或将因疫苗令退出联邦职业安全与健康管理局](/content/gnews/51/README.md)
- ` GTV新闻访谈`
-
-### [辉瑞公司在儿童疫苗中添加心脏病药物](/content/gnews/52/README.md)
- ` GTV新闻访谈`
-
-### [日本防卫省公布 近日与美军两次密切合作](/content/gnews/53/README.md)
- ` GTV新闻访谈`
-
-### [美拜登总统签署「安全设备法」禁止接受华为中兴等通讯设备的审核申请](/content/gnews/54/README.md)
- ` GTV新闻访谈`
-
-### [供应链危机恶化 或比雷曼兄弟倒闭更糟糕](/content/gnews/55/README.md)
- ` GTV新闻访谈`
-
-### [新中国联邦国防系统轮廓初现](/content/gnews/56/README.md)
+### [供应链危机恶化 或比雷曼兄弟倒闭更糟糕](/content/gnews/56/README.md)
  ` GTV新闻访谈`
 
 ### [路易斯安那州第五巡回法院历史性裁决叫停疫苗强制令](/content/gnews/57/README.md)
