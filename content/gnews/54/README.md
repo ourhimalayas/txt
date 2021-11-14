@@ -2,23 +2,23 @@
 ---
 
 
-## 供应链危机恶化 或比雷曼兄弟倒闭更糟糕
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1659126/)
+## 美拜登总统签署「安全设备法」禁止接受华为中兴等通讯设备的审核申请
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1659127/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山医疗部 – 云豹
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据《零对冲》11月11消息，目前有111艘集装箱船停泊在洛杉矶和长滩港口之外，创下了历史新高。此前，拜登政府下达每周7天、每天24小时的全天候工作指令，甚至考虑召入国民警卫队，目前看来，这些措施并没有达到预期目标。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-8.jpg)
-《美国托运人》杂志最近发布的数据显示，这两个港口的吞吐量占全美所有海运集装箱的40%，码头上的集装箱已升至60,000个，平均停靠九天多。仓储空间、货运卡车和劳动力短缺的问题，已经拧成了一个死结。
+11月11日，美国拜登总统签署《安全设备法》。此法案于10月份分别在参众两院以绝对多数通过。该法案的主要内容，是要求美国联邦通讯委员会，不得再审核或同意，会造成美国国家安全风险的设备申请案。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-7.jpg)
+今年3月，美国联邦传播委员会依据2019年颁布的一项电信网络法律，认定华为技术有限公司、中兴通讯、海能达通信股份有限公司、杭州海康威视数字技术股份有限公司、浙江大华技术股份有限公司，等五家中共企业会对美国国家安全造成威胁。
 
-一个物流公司的CEO瑞安·彼得森表示，“如果这两个港口拥堵持续恶化，可能会比雷曼兄弟的倒闭更糟糕”。
+此次拜登总统新签署的法案，将“有助于确保来自华为与中兴通讯等中共企业的不安全装置，不会再被嵌入美国的通讯网路之中”。
 
-参考链接：[供应链危机恶化 或比雷曼兄弟倒闭更糟糕](https://www.zerohedge.com/markets/record-111-container-ships-anchored-southern-california-congestion-crisis-worsens)
+参考链接：[美拜登总统签署「安全设备法」禁止接受华为中兴等通讯设备的审核申请](https://www.cna.com.tw/news/firstnews/202111120014.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：AN
-编辑：AN
+总编：文徬
+编辑：飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

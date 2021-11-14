@@ -2,34 +2,28 @@
 ---
 
 
-## 佛州或将因疫苗令退出联邦职业安全与健康管理局
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1659130/)
+## 应对中共，军事合作再升级！日本首次对澳军实施武装防卫
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1659658/)
 
-作者：英国喜庄园 – I770775
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在拜登政府中共病毒疫苗强制政策下，联邦职业安全与健康管理局执行授权，强迫超过100名雇员的企业接种疫苗或每周做核酸检测。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture77-3.jpg)
-11月11日，州众议院议长克里斯在新闻发布会上说，如果劳工部和联邦职业安全与健康管理局想要将疫苗武器化，作为挟持整个佛罗里达州企业的一种方式，那他们就会退出该机构，从而选择提交自己的监管当局，与联邦政府说再见。
+#### 撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-27.png)[图片来源](https://cn.dangcongsan.vn/preview/newid/414520.html)
+日本防卫省12日发布消息称，在四国地区以南开展联合训练之际，海上自卫队护卫舰“稻妻”号对澳大利亚海军护卫舰“瓦拉蒙加”号实施了基于安全保障相关法的武装防卫（日本称“武器等防护”）。防卫省表示，这是首次对美军以外实施。
 
-州立法者还将讨论，防止政府雇员被迫接种疫苗的提案，要求企业允许疫苗豁免，并禁止佛罗里达州外科医生强迫公民接种疫苗。
+防卫省说明称“澳大利亚是特别的战略伙伴。实施警护提升了相互运用性，展示可以紧密合作。发布消息是经综合判断后决定的”。防卫省未透露警护之际的具体行动内容。
 
-参考链接：
-1. [佛州或将因疫苗令退出联邦职业安全与健康管理局](https://gettr.com/post/pgpbkk97c2)
-2. [佛州或将因疫苗令退出联邦职业安全与健康管理局](https://www.zerohedge.com/covid-19/florida-may-withdraw-osha-oversight-over-vax-mandate)
+日本媒体分析，此前没有公开过个别的实施事例，此次属于罕见应对。日方有意展示在美军以外也拓宽和升级了与澳大利亚的防务合作，目的是制约中共。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+武器等防护是指在非战时守护他国舰艇和飞机的活动，因2016年安保法施行被加入自卫队的任务。日澳两国政府在去年10月的防长会谈中，同意开始就武器等防护展开协调。在今年6月的外长防长磋商（2+2）中，商定将其付诸实施。
 
-总编：飞虹
-编辑：童谣
-校对/发稿：Hetangyuese
+对美军的武器等防护于2017年5月首次实施。2017年的实施数量为2起，2018年为16起，2019年为14起，2020年为25起。虽然日本政府承诺出示信息，但公布的内容仅为年实施数量。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+信息来源：
+
+[防卫省称首次对澳军实施“武器等防护”](https://china.kyodonews.net/news/2021/11/228a09173f61.html)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
