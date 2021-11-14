@@ -2,60 +2,47 @@
 ---
 
 
-## 美国CDC表示将重新定义”完全接种疫苗”的标准
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1661622/)
+## 布林肯表示，如果台湾受到攻击，美国及盟友将采取行动
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1661644/)
 
-作者：纽约香草山农场教育部 –  Naughty(文行)
+**【简评：】***前不久，台湾总统蔡英文接受CNN采访时候表示：“在台湾有少量的美军帮助训练台军，我们与美国广泛的合作，旨在提高我们的国防能力。”并表示“我有信心，如果有必要，美国会帮助保卫台湾，对抗中共国。” 此番讲话是1979年以来台湾领导人首次公开承认美国的驻军。继台湾总统的此番重磅后，中共国指责美国试图 “挑起事端”。然而，在中共擅长的指责之后，国务卿安东尼·布林肯明确表示，如果中国使用武力改变台湾现状，美国及其盟友将“采取行动”。我想，留给中共可以指责的时间真的不多了。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+据《路透社》，2021年11月11日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-256-e1636831849620.png)美国国务卿安东尼·布林肯(Antony Blinken)周三表示，如果台湾受到攻击，美国和其他国家将采取具体行动。
+图片来源：法新社
+美国国务卿安东尼·布林肯表示，如果中国使用武力改变台湾现状，美国及其盟友将“采取行动”。
 
+周三，布林肯在《纽约时报》主办的一个论坛上被问及这个有关台湾的问题，但他没有说明具体是哪种武力行动。
 
+**当被问及如果中国大陆发动攻击，美国是否会介入保卫这个自治的岛屿时，布林肯重申了政府的一贯申明，即华盛顿的作用是确保台湾有能力进行自卫，正如美国法律所要求的那样。**
 
+他说：“与此同时，我认为，公平地说，我们并不是唯一一个决心维护该地区和平与稳定的国家。”
 
+“该地区和其他地区的许多国家都认为，任何使用武力破坏现状的单边行动都是对和平与安全的重大威胁，一旦发生这种情况，他们也会采取行动。”
 
-美国疾病控制和预防中心（CDC）主任Rochelle Walensky在10月22日表示，随着新冠疫苗加强针的日益普及，美国可能会改变未来重新定义“全面接种疫苗”的含义。
+**上个月，美国总统乔·拜登（Joe Biden）曾表示，如果中国攻击台湾，美国将保护台湾。这一言论引起了轰动。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1416-ca_rachelwalenskycdc_getty.jpg)图片来源：Getty Image
+这些言论似乎背离了美国长期坚持的“战略模糊”政策，但白宫很快表示，拜登并没有发出改变政策的信号，一些分析人士认为他的言论是失言。
 
-她告诉记者，“我们尚未更改‘完全接种疫苗’的定义。我们将继续关注这一点。我们未来可能需要更新我们对“完全接种疫苗”的定义。‘’她说，如果您有资格获得加强针，请继续接种，我们将继续跟进。
+颇具影响力的美国众议院情报委员会（House Intelligence Committee）主席，民主党人亚当·希夫（Adam Schiff）上周敦促拜登政府在他所称的美国保护台湾免受中共国攻击的问题上不要含糊其辞。
 
-那些已接种两剂辉瑞-BioNTech或Moderna疫苗，和已接种一剂强生疫苗的人将获得“完全疫苗接种”状态。
+布林肯的言论是在拜登和中共国领导人习近平计划举行的线上会晤之前发表的。一位了解此事的消息人士称，该会晤最早可能在下周举行。当被问及会晤的时间安排时，布林肯说它“很快就会到来”， 但没有透露更多细节。
 
-白宫冠状病毒应对协调员杰夫·齐根特斯指出，目前有超过70万人有资格接受加强针注射，并补充说：“在未来几个月内，超过1亿的美国人将有资格获得接种加强针资格。”
+原文连接：[https://www.scmp.com/news/china/diplomacy/article/3155637/blinken-says-us-and-allies-would-take-action-if-taiwan](https://www.scmp.com/news/china/diplomacy/article/3155637/blinken-says-us-and-allies-would-take-action-if-taiwan)
 
-疾病预防控制中心数据显示，66.2%的美国人口接种了一剂COVID-19疫苗，而57.2%的人接种了两剂疫。大约6%的人接种了加强针。
+翻译：洛杉矶盘古农场–钢蛋儿
 
-随着世界各地的疫苗危机在社交媒体尤其是盖特平台被广泛揭露传播，越来越多的人加入到了反对疫苗接种的队伍，在全球掀起了抵抗疫苗接种浪潮。
+校对：洛杉矶盘古农场–Mike Li
 
-这次美国重新定义“完全接种疫苗”标准显然又是想通过行政手段迫使人们接种更多疫苗，作为正道主义的笃信者和践行者，爆料革命的战友们应该更加积极行动起来，利用盖特等一系列社交媒体平台努力传播疫苗真相，唤醒更多的人们认清邪恶势力疫苗杀人的真相，团结一切追求正义的力量让邪恶势力的阴谋破产。
+评论：洛杉矶盘古农场–钢蛋儿
 
-**参考阅读：**
-
-[‘Fully vaccinated’ definition could change in future, CDC director says | TheHill](https://thehill.com/changing-america/well-being/prevention-cures/578056-fully-vaccinated-definition-could-change-in?utm_source=ground.news&amp;utm_medium=referral)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+编辑：洛杉矶盘古农场–心照
 
 
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

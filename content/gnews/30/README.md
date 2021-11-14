@@ -2,77 +2,42 @@
 ---
 
 
-## 【诗歌】临冬
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1661770/)
+## 上诉法院再次确认停止拜登疫苗强制令
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1661878/)
 
-**作者：修罗闻道**
+翻译：Lulumi
 
-[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/ca0f4fe5-0885-4586-a377-08864b5f5b6f.jpg?asset_id=4748bedd-be58-46f1-8d0c-0484c7427b48&amp;img_etag=%2246b44a3c574e50b7e9e9cf279d6d787a%22&amp;size=2560)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/ca0f4fe5-0885-4586-a377-08864b5f5b6f.jpg?asset_id=4748bedd-be58-46f1-8d0c-0484c7427b48&amp;img_etag=%2246b44a3c574e50b7e9e9cf279d6d787a%22&amp;size=1024)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/APP-012121-Biden-COVID-CORONA-222-1.png)图片来源：thegatewaypundit.com
 
-这一年仿佛是残缺的
+9月拜登政府向私营部门挥舞铁拳，规定所有雇员要接受中共病毒疫苗注射或每周测试，否则就会被解雇。
 
-秋天还没来得及挣扎
+除了告诉所有210万联邦雇员接受疫苗注射或面临解雇之外，拜登政权还要求所有拥有100名以上雇员的公司对工人进行测试或证明他们已经接种疫苗。
 
-就被迅速抹杀
+不遵守拜登政权的中共病毒疫苗强制令的小企业将面临巨额罚款。
 
-从夏热到冬寒
+该强制令本应于2022年1月4日生效。
 
-一瞬间
+然而，上周一家上诉法院发布了暂停令，暂时停止了乔·拜登对拥有100名或以上雇员的企业的疫苗强制令。
 
-这一世仿佛是梦幻的
+美国第五巡回上诉法院的裁决是在几个共和党州检察长对政府提起诉讼后作出的。
 
-繁荣鼎盛锣鼓喧天
+拜登政权被指示在周一晚上之前对永久禁令的请求作出回应，以反对该裁决。
 
-转瞬间愁容惨淡
+上周五，美国第五巡回上诉法院维持其决定，停止拜登对拥有100名以上员工的企业的疫苗接种强制令。
 
-盛世到炼狱
+法院说，这项任务“使请愿者面临严重的财务风险，有可能使他们的劳动力（和商业前景）减少”。
 
-一路骗
+德克萨斯州总检察长肯·帕克斯顿周五庆祝了这一胜利。
 
-他们先将自己欺骗
+**参考资料：**[thegatewaypundit][JUST IN: Appeals Court Re-Affirms Halt on Biden’s Covid Vaccine Mandate for Private Businesses – Cites ‘Severe’ Risks](https://www.thegatewaypundit.com/2021/11/just-appeals-court-re-affirms-halt-bidens-covid-vaccine-mandate-private-businesses-cites-severe-risks/)
 
-再去欺骗
+* * *
 
-相信他们的人
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
 
-周而复始
-
-他们要欺骗全世界
-
-可临冬的寒冷
-
-不会被欺骗
-
-也不会去欺骗
-
-整个世界
-
-只有冷
-
-冷的真实
-
-不虚伪
-
-无论你想共产
-
-还是想特色
-
-在寒冬里
-
-只有瑟瑟发抖
-
-等待审判
-[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/c767eaed-2e9d-4cd8-9ef2-5a41e5e4f85a.png?asset_id=e1ac15f4-cf69-4de3-8393-583fbf4c1608&amp;img_etag=%22a1a3e4a1050ad02b89de5004bf3a9559%22&amp;size=2560)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/c767eaed-2e9d-4cd8-9ef2-5a41e5e4f85a.png?asset_id=e1ac15f4-cf69-4de3-8393-583fbf4c1608&amp;img_etag=%22a1a3e4a1050ad02b89de5004bf3a9559%22&amp;size=1024)
-*编辑：【英国伦敦喜庄园编辑部】*
-
-*校对：穆清|审核：文明明| Page：小六月*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/VsNaHaMUsy)
-
-[![](https://spark.adobe.com/page/fNFk6XEdKngLM/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/fNFk6XEdKngLM/images/743201f9-58fc-4293-a06f-95392264cc21.jpg?asset_id=02cb6ee0-4cc9-44e1-8183-c5d8c5bf112e&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
 
  
 

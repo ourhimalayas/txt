@@ -2,43 +2,52 @@
 ---
 
 
-## 教皇方济各表示全球重置是真实的，没有“回归正常”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1661734/)
+## 蓬佩奥在世界知识论坛上的重要演讲
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1661876/)
 
-**【简评：】***维加诺（Carlo Maria Viganò）大主教：“这么多红衣主教和主教的沉默，以及教廷对疫苗接种运动的不可思议的推动，代表了一种前所未有的共谋，不能再继续下去了。有必要谴责这一丑闻，这一反人类的罪行，这一反对上帝的邪恶行动。”*
+作者：香草山农场 – 遍地开花
 
-《breitbart.com》 作者：Thomas D. Williams，2021年11月11日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-258-e1636834078470.png)图片来源： (Photo by YARA NARDI/POOL/AFP via Getty Images)
-2021年11月4日，教皇弗朗西斯在梵蒂冈的圣彼得大教堂举行弥撒，向今年去世的主教和红衣主教致敬。
-
-**罗马教皇方济各周一断言，人类需要一次全球重启，因为不值得回到过去不公正的、大流行前的世界。**
-
-在给巴黎和平论坛的致辞中，教皇描绘了一个由腐败、战争和资本主义压迫主导的新冠病毒前世界的可怕景象。
-
-**方济各说：“在大流行病之前，我们知道的现实情况是，财富和经济增长只属于少数人，而数百万人无法满足最基本的需求，无法过上有尊严的生活，在这个世界上，我们的地球被短视的资源开发、污染、‘一次性’消费主义所掠夺，被战争和大规模毁灭性武器的实验所伤害。”**
-
-“恢复正常也意味着回到由自给自足、民族主义、保护主义、个人主义和孤立所激发的旧的社会结构，”他补充说，“这种社会排斥我们最贫穷的兄弟姐妹。这是我们可以选择的未来吗？”
-
-**“在这个全球化但又撕裂的世界里，我们今天为摆脱危机所做的决定决定了未来几代人的‘路线’，”他宣称，因此“我们需要一条新的出路，比以前走得更好”。**
-
-“希望邀请我们做个伟大的梦想，给新的可能性提供想象空间，”他说：“希望是大胆的，并激励我们在认识到现实可以改变的基础上采取行动。”
-
-教皇对新世界的愿景始于“有利于整体裁军的具体集体承诺”，他指出。“世界军事开支现在已经超过了‘冷战’结束时的程度，而且每年都在有计划地增加”。
-
-文章来源：
-
-[https://www.breitbart.com/economy/2021/11/11/pope-francis-says-global-reset-is-real-no-return-to-normality-after-the-pandemic/](https://www.breitbart.com/economy/2021/11/11/pope-francis-says-global-reset-is-real-no-return-to-normality-after-the-pandemic/)
-
-翻译：洛杉矶盘古农场–Mike Li
-校对：洛杉矶盘古农场–轰炸机
-评论：洛杉矶盘古农场–Mike Li
-编辑：洛杉矶盘古农场–心照
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1417.jpg)
+
+10月25日，美国前国务卿蓬佩奥先生在世界知识论坛上发表了重要演讲。在演讲中，他提到了当前我们所面临的世界秩序的三次断裂：第一，中共病毒的传播和中国共产党的伪装。这其中包括美国的反叛和与中国共产党的勾兑。中共长期掩盖真相和破坏世界秩序——中共收买控制世卫组织，掩盖疫情真相，武毒至今仍在运转，继续给人类带来灾难；第二次断裂是中共的“一带一路”倡议，它是一种新形式的帝国主义。通过该倡议，中共收买了60个国家，大肆复制腐败贷款，通过这些贷款中隐藏的抵押和条约，将对方变成债务国，直至占有其全部资产；第三次断裂表现在中共公开表示要取代美国成为世界上最重要的力量。
+
+蓬佩奥还提到，中共并没有应对疫情，反而加速断裂，撕毁《中英联合声明》，把香港归为己有。中（共）国违反了所有贸易协议，并一直从以美国为代表的世界各国偷窃知识产权，是盗国贼控制的国家，
+
+蓬佩奥正在为了让世界了解中共的邪恶本质而不懈努力。
+
+新闻链接：[https://gettr.com/post/pf4ga170b0](https://gettr.com/post/pf4ga170b0)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
