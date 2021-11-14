@@ -2,40 +2,32 @@
 ---
 
 
-## 世上最大3D打印社区将于明年在德克萨斯州奥斯汀动工
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662286/)
+## 意大利城市不畏中共反对，坚办异议创作人巴丢草个展
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1662359/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+![巴丢草意大利个展中国使馆施压未果| 文化经纬| DW | 22.10.2021](https://static.dw.com/image/49055120_303.jpg)*异议艺术家巴丢草。图片来自网络。*
+据台湾Yahoo新闻11月13日报道，在中共国官方反对声中，异议艺术家巴丢草顺利在意大利北部的布雷西亚（Brescia）市举行首次个展，展品包括被中共警方用作刑具的摇椅，习近平持枪骑着维尼熊的图画，改造坦克顶着球体的放大版新冠病毒，武汉市民日记以及巴丢草用血描绘的64支表等，批判了中共残暴的政治镇压以及对新冠肺炎起源的审查和隐瞒。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ICON_Lennar_BIG_100-hm_Community_In-progressConstruction_ConceptRender.jpg)
+35岁的巴丢草现居澳洲。中共国驻意大利使馆上月致信布雷西亚市政府，称巴丢草的作品“充斥反中谎言”、“破坏中意友好关系”，但布雷西亚不为所动，力挺巴丢草个展。副市长卡斯特莱蒂说，布雷西亚以古罗马遗迹闻名，基于“捍卫艺术自由”，向来有接纳异议分子、画家、作家的传统。
+
+布雷西亚博物馆基金会会长巴佐利（Francesca Bazoli）表示，这场展览无意冒犯中国人或中国文化及文明，而是我们支持表达自由。巴丢草说：“我想用我的艺术去揭发谎言、把中共国政府的问题暴露出来、批判中共，但另一方面也是赞颂中国人民有多勇敢…即使他们处于专制政府这种艰困环境之下。”
+
+巴丢草也表示，中国共产党认为所有自由艺术家都是敌人，所以才这么恨我，他每天都在社群媒体上收到死亡威胁。
+
+新闻参考链接： [https://tw.news.yahoo.com/義大利城市不畏中國反對-堅辦異議創作人巴丟草個展-090915606.html](https://tw.news.yahoo.com/義大利城市不畏中國反對-堅辦異議創作人巴丟草個展-090915606.html)
+
+编辑：MQ
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-图片来源：www.archdaily.com
-
-
-#### 编译：小红帽
-
-美国第二大房屋建筑商Lennar公司与专门从事大型3D打印的技术先驱ICON公司合作，使用一台巨型3D打印机在现场”打印”100栋单层房屋，以铺设混凝土建筑材料。
-
-Lennar联合首席执行官乔恩·贾菲(Jon Jaffe)最近强调，整个建筑行业面临着材料短缺和成本飞涨的问题。为了解决这个问题，该公司正在转向3D打印业务。
-
-ICON的3D打印技术可以打印出高达3000平方英尺的房屋，而且与传统方法相比，时间更短，浪费更少。
-
-“建筑规模的3D打印不仅可以更快、更经济地提供更高质量的房屋，而且打印机车队可以改变整个社区的建设方式，使其变得更好。ICON联合创始人兼首席执行官杰森·巴拉德（Jason Ballard）说：”美国面临着大约500万套新房的赤字，因此，在不影响质量、美观或可持续性的情况下，迅速增加供应量是一个迫切的需要，这正是我们技术的优势所在。
-
-随着供应链的中断和商品成本的飙升，我们已经开始注意到越来越多的房屋被3D打印出来。因为木材价格处于历史高位，建造房屋不经济。今年早期，佛罗里达州和弗吉尼亚州的房屋被打印出来。现在，奥斯汀的整个社区也即将被打印出来。
-
-**参考新闻：**[World’s Largest 3D-Printed Neighborhood Coming To Austin, Texas  | ZeroHedge](https://www.zerohedge.com/technology/worlds-largest-3d-printed-neighborhood-coming-austin-texas)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

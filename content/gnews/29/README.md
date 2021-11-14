@@ -2,34 +2,29 @@
 ---
 
 
-## 一旦发生疫情，全员核酸检测
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662322/)
+## 曾说不会在未接种疫苗人的葬礼上哭泣的心脏病专家在接种第三针中共病毒疫苗后梦中离世
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1662381/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/卫健委-1.png)图片来源：YouTube
+翻译: 波士顿五月花  jiasen
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-12-scaled.jpg)**Cardiologist Who Said He ‘Won’t Cry at Funeral’ For “Selfish” Unvaccinated People Suddenly Dies in His Sleep 2 Weeks After 3rd Covid Jab**
+www.thegatewaypundit.com
 
-编辑：**Kelly**
-**编辑：Candy**
+加拿大新不伦瑞克省一名 52 岁的著名心脏病专家在接受第三次中共病毒疫苗仅两周后，突然在睡梦中离世。
 
-中共国国家卫健委发出通知：一旦发生疫情，500万人口以下城市要在两天内完成全员核酸检测。
+整个夏天，索拉博·卢奇梅迪尔（ Sohrab Lutchmedial ）医生都在不停地攻击那些选择不接种中共病毒疫苗的自私者。他曾在 2021 年 7 月的一条推文中说：“对于那些因为自私而不接种疫苗的人，无论如何，我不会在他们的葬礼上哭泣。”
 
-据中共《新华社》报道：
+这位医生意外地于 11 月 8 日去世，仅在接受第三次疫苗注射两周后。根据脸书发布的一个帖子，他于 10 月 24 日接种了第三针中共病毒疫苗。
 
-11月13日，国务院联防联控机制召开新闻发布会，教育部、国家卫生健康委、海关总署相关司局负责同志及中国疾控中心专家出席，重点介绍进一步做好冬春季疫情防控工作有关情况，并回答媒体提问。
+据加拿大媒体报道，卢奇梅迪尔医生的朋友、家人和同事对他的突然死亡感到震惊。加拿大广播公司新闻报道如下：同事们表示——著名心脏病专家的去世，为医院系统内和社区留下了巨大的缺口。卢奇梅迪尔医生为新不伦瑞克心脏病中心和心脏病患者的治疗奉献了 20 多年。我们怀着悲痛的心情报告卢奇梅迪尔，这位同事、朋友、父亲、伙伴和鼓舞人心的灵魂突然意外死亡。新不伦瑞克心脏病中心心脏外科主任让-弗朗索瓦·莱加雷证实，卢奇梅迪尔于周一在圣约翰的家中梦中离世，享年 52岁 。
 
-国家卫生健康委医政医管局监察专员郭燕红在发布会上介绍：10月22日，国务院联防联控机制医疗救治组，专门对全国有关加强核酸检测服务工作进行了再部署、再要求。文件发布以后，各地做了大量工作，在有关能力建设、合理布局、提高效率、优化服务等方面多措并举。
+新闻来源: [Cardiologist Who Said He ‘Won’t Cry at Funeral’ For “Selfish” Unvaccinated People Suddenly Dies in His Sleep 2 Weeks After 3rd Covid Jab](https://www.thegatewaypundit.com/2021/11/cardiologist-said-wont-cry-funeral-selfish-unvaccinated-people-suddenly-dies-sleep-2-weeks-3rd-covid-jab/)
 
-一旦发生疫情，各地要在第一时间启动全员核酸检测，力争在最短时间内锁定感染范围，同时加快有关疫情防控的各项措施。500万以下人口的城市，要在两天以内完成全员核酸检测；500万以上人口的城市，要在三天以内完成全员核酸检测。各地要按照上述要求对核酸检测能力储备、采样人员安排、实验室检测安排、样品转运安排等做出预案。
+* * *
 
-***发布：Candy***
+*素材来源：**jiasen*
 
-**更多资讯，请关注：**
-
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*编辑**& 发布：jamie(文胤)*
 
  
 

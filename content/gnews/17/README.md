@@ -2,30 +2,42 @@
 ---
 
 
-## 日本4名男子在接种莫德纳疫苗后因心肌炎死亡
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1662396/)
+## 黑客侵入FBI网络安全系统发邮件“警告”将有网络攻击
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662487/)
 
-#### 撰稿：日本东京方舟农场  海星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/68C4657D-6BAA-4C4C-9AF1-A691C9B6878C.jpeg)图片来自网络
-日本厚生劳动省报称，有四名男子在接种莫德纳疫苗后死于心肌炎。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-据《产经新闻》11月12日报道，日本厚生劳动省在当日举办的中共病毒疫苗不良反应会议上报告称，有两名20多岁的男性和两名40多岁的男性在接种莫德纳疫苗后死亡，死因是心肌炎。
-
-其中，一位27岁的男性在6月28日接种了第一剂莫德纳疫苗。7月6日出现心脏骤停，8月3日死亡；另一位24岁的男性在8月14日接种了第二剂莫德纳疫苗，接种后曾出现发烧、腹痛等症状，于8月17日死亡。
-
-厚生劳动省在这次会议上表示，接种莫德纳疫苗的年轻男子患心肌炎的比例相对较高。
-
-*参考链接：[https://www.sankei.com/article/20211113-YFP27IBHJZKGNCI2WGRDL32XHM/](https://www.sankei.com/article/20211113-YFP27IBHJZKGNCI2WGRDL32XHM/)*
-
-* * *
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/fbi-email-970.jpg)
 
 
-```
-素材采编：海星
-编辑：青衣青青
-发布：miumiu
-```
 
+图片来源：www.komando.com
+
+
+#### 编译：小红帽
+
+据美国联邦调查局和安全专家称，黑客入侵了美国联邦调查局（FBI）的电子邮件系统，并发送了数以万计的信息，警告可能发生的网络攻击。
+
+联邦调查局周六在一份声明中说，假的电子邮件似乎来自一个以@ic.fbi.gov结尾的合法联邦调查局电子邮件地址。
+
+联邦调查局表示，尽管受该事件影响的硬件“在发现问题后迅速下线，”并补充道 “这是一个持续的情况”。
+
+威胁追踪组织Spamhaus Project在其推特账户上表示，黑客发送了数万封电子邮件，警告可能发生网络攻击。
+
+Spamhaus在推特上发布的一封电子邮件的副本显示，主题栏为 “紧急。系统中的威胁行为者 ”，后面似乎有国土安全部的签字。联邦调查局是司法部的一部分。
+
+联邦调查局的声明说，联邦调查局和网络安全与基础设施安全局都知道这一事件。
+
+**参考新闻：** [Email hackers penetrate FBI cyber security system (thenewdaily.com.au)](https://thenewdaily.com.au/life/tech/2021/11/14/hackers-penetrate-fbi-emails/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

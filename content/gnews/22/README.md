@@ -2,33 +2,24 @@
 ---
 
 
-## 教皇弗朗西斯“无法”妥善处理教会性丑闻感到“羞耻”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662362/)
+## 可悲！媒体自豪的宣布日本政府疫苗接种的政绩
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1662441/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-85.png)（图片源自本文链接）
+共同通信社11月13日发表了题为【ワクチン月末に「完了」91％　12月3回目実施、新局面に】的文章。题目大意为：本月底前日本会完成91%的疫苗接种，12月将进入第三轮接种的新阶段。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/AP21279302075542.jpg)图片来源：AP Photo/Alessandra Tarantino
+关于中共病毒疫苗项目，共同社在11月13日的调查中了解到，日本县级政府所在地的47个市中有43个（达91.5%）将在11月底前”完成”两剂疫苗的接种。
 
+预计第三针追加疫苗接种的全部细节将于11月15日得到明确结果，定于12月开始实施的该项目将进入新的阶段。根据政府数字（12月12日发布），9909万人（占总人口的78.2%）至少完成了第一次接种，已接近1亿人。9458万人（74.7%）完成了第二次接种。
 
-#### 编译：小红帽
+信息来源:[ワクチン月末に「完了」91％　12月3回目実施、新局面に](https://news.yahoo.co.jp/articles/f028cebe4f71a307635976625e65534c263eefb9)
 
-教皇弗朗西斯（Pope Francis）在周末赞扬了记者的 “使命”，并感谢他们揭露了教会的性丑闻并帮助避免被 “扫到出门”。
+这种被当作政府的政绩，极具自豪感报道出来的，越来越大的数字，意味着什么？细思极恐！
 
-在周六为表彰两位长期报道梵蒂冈的记者举行的颁奖典礼上，教皇直接谈到了天主教会与教士性虐待丑闻的历史。他感谢记者，因为 “你们告诉我们教会中出了什么问题”，并感谢他们帮助性虐待受害者发声。
-
-2002年，《波士顿环球报》的一系列报道首次大范围曝光了教会内部的性虐待丑闻，并详细描述了教会涉嫌性虐待的行为以及如何努力向公众隐瞒这些行为。
-
-教皇弗朗西斯过去曾谈到教会内部的性虐待犯罪和指控。他在上个月表示，他对教会长期以来 “无法”妥善处理这种情况感到“羞耻”。他的评论是在一份独立报告发布后发表的，报告称自1950年以来，教会内部有超过20万起恋童癖和虐待案件。
-
-**参考新闻：** [Pope Francis addresses church sex scandals — RT World News](https://www.rt.com/news/540220-pope-francis-sex-scandals-journalists/)
-
-***发布：小红帽*****更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

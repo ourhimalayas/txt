@@ -2,29 +2,35 @@
 ---
 
 
-## 曾说不会在未接种疫苗人的葬礼上哭泣的心脏病专家在接种第三针中共病毒疫苗后梦中离世
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1662381/)
+## 日本计划明年主办美日印澳四国集团第二次面对面峰会
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1662456/)
 
-翻译: 波士顿五月花  jiasen
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-12-scaled.jpg)**Cardiologist Who Said He ‘Won’t Cry at Funeral’ For “Selfish” Unvaccinated People Suddenly Dies in His Sleep 2 Weeks After 3rd Covid Jab**
-www.thegatewaypundit.com
+![](https://assets.gnews.org/wp-content/uploads/2021/11/63DEFC69-2003-47F9-9FCC-7DE9CD29F264.jpeg)日本前首相菅义伟（右二）在日本东京出席美日澳印四国集团领导人视频峰会
+（2021年3月12日，图片来自VOA）
 
-加拿大新不伦瑞克省一名 52 岁的著名心脏病专家在接受第三次中共病毒疫苗仅两周后，突然在睡梦中离世。
+据《美国之音》11月13日报道，日本将有可能于明年春天举办由美国、日本、澳大利亚和印度组成的四国集团（Quad）第二次面对面峰会。这4个国家将再次就如何应对一个强势的中共国拟定共同的策略与政策。
 
-整个夏天，索拉博·卢奇梅迪尔（ Sohrab Lutchmedial ）医生都在不停地攻击那些选择不接种中共病毒疫苗的自私者。他曾在 2021 年 7 月的一条推文中说：“对于那些因为自私而不接种疫苗的人，无论如何，我不会在他们的葬礼上哭泣。”
+据报道，日本政府已经将希望成为下一次四国集团峰会东道主的意愿传达给了其他三国政府。如果日本政府的提议被接受，那么刚刚出任日本首相的岸田文雄将会首次出席四国集团峰会。
 
-这位医生意外地于 11 月 8 日去世，仅在接受第三次疫苗注射两周后。根据脸书发布的一个帖子，他于 10 月 24 日接种了第三针中共病毒疫苗。
+岸田文雄虽然还没有出席过四国集团峰会，但他强力主张通过建立关键技术坚韧的供应链来加强经济安全。若下一次四国集团峰会确定在日本举行，预计岸田文雄将会把强化四国在建立关键技术供应链方面的合作，作为会议的焦点之一。
 
-据加拿大媒体报道，卢奇梅迪尔医生的朋友、家人和同事对他的突然死亡感到震惊。加拿大广播公司新闻报道如下：同事们表示——著名心脏病专家的去世，为医院系统内和社区留下了巨大的缺口。卢奇梅迪尔医生为新不伦瑞克心脏病中心和心脏病患者的治疗奉献了 20 多年。我们怀着悲痛的心情报告卢奇梅迪尔，这位同事、朋友、父亲、伙伴和鼓舞人心的灵魂突然意外死亡。新不伦瑞克心脏病中心心脏外科主任让-弗朗索瓦·莱加雷证实，卢奇梅迪尔于周一在圣约翰的家中梦中离世，享年 52岁 。
+今年9月，拜登总统在华盛顿主持四国集团首次面对面峰会。会议发布了一份联合声明，强调“再次承诺促进自由、开放、基于规则的秩序，使其根植于国际法，不畏惧（中共）胁迫，以巩固印太及其他地区的安全与繁荣”。
 
-新闻来源: [Cardiologist Who Said He ‘Won’t Cry at Funeral’ For “Selfish” Unvaccinated People Suddenly Dies in His Sleep 2 Weeks After 3rd Covid Jab](https://www.thegatewaypundit.com/2021/11/cardiologist-said-wont-cry-funeral-selfish-unvaccinated-people-suddenly-dies-sleep-2-weeks-3rd-covid-jab/)
+注：本文仅代表作者观点
+
+*参考链接：[https://www.voachinese.com/a/japan-may-host-next-in-person-quad-summit-next-spring-20211113/6310907.html](https://www.voachinese.com/a/japan-may-host-next-in-person-quad-summit-next-spring-20211113/6310907.html)*
 
 * * *
 
-*素材来源：**jiasen*
 
-*编辑**& 发布：jamie(文胤)*
+```
+素材采编：幽蘭自得
+编辑：青衣青青
+发布：miumiu
+```
+
 
  
 
