@@ -2,10 +2,10 @@
 ---
 
 
-## 黑色森林
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1663303/)
+## 中共对教育、保险、游戏等产业的监管压力产生涓滴效应
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1663309/)
 
-原创：铁蛋儿
+11/10/2021 腾讯、阿里巴巴和其他国家科技巨头正在面临中共给教育、保险、游戏等产业施加的监管压力，这对它们的利润造成了重击。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

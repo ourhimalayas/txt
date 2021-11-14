@@ -2,24 +2,14 @@
 ---
 
 
-## 受中共病毒影响日本又一老店铺的1号店宣布关店
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1663148/)
+## 七哥的一张照片引发的思考
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1663161/)
 
-#### 撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-13.png)（图片源自本文链接）
-朝日新闻11月4日消息：日高屋是日本著名的廉价餐厅，390日元的拉面和230日元的饺子根植民心。该集团的1号店，来来軒大宮南銀座店（埼玉市大宫区），在JR大宫站东口附近已经火了46年多，将于11月14日下午5点关闭。许多老顾客都很难过，因为他们要和这家让日高屋站稳了脚跟的商店说再见了!
-
-根据餐厅老板的说法，该餐厅于1975年3月开业。之前的来来軒在两年前开业，离这里只有几百米。那是一家只有一个柜台的小店，但深夜的生意非常好，所以他们开了这家有大约40个座位的店，取名日高屋。1号店一天24小时营业，并在深夜继续吸引那些醉酒的顾客。从那时起，作为日高屋集团的一部分，分店数量已经扩大，现在在东京地区有近450家。
-
-然而，中共病毒灾难导致外出就餐的顾客数量急剧下降。 拥有许多深夜顾客的来来軒大宮南銀座店，由于缩短营业时间和因宣布紧急状态而禁止饮酒等原因，销售额下降。虽然10月下旬，供应酒精的禁令被完全解除，营业时间延长至凌晨4点，但销售情况没有恢复，而且很难招聘到员工，因此他们决定在11月初关闭。
-
-12日晚，有一位来自埼玉市的老顾客，50岁的安藤久之在得知餐厅要关门后来到这里，他作为这家餐厅的常客已经有大约15年了。他说：我经常在酒后或与朋友运动后来这里落脚算是一天的完美结束，总是点啤酒和饺子。我很难过看到它关店，尽管它还有很多连锁店铺，我还是要在它关闭之前来看看。
-
+#### 撰稿：东京樱花团/华夏小哥
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-106.jpg)[图片来源](https://gettr.com/post/pgv04zabbb)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-79.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-65.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-47.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-35.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-22.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/7-16.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/8-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/9-6.jpg)
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

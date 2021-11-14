@@ -2,44 +2,38 @@
 ---
 
 
-## CDC承认无记录表明未接种疫苗的人从Covid康复后传播了Covid
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1663054/)
+## 墙内要闻汇编 11月14日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1663069/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 素材：东京樱花团｜GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-262.png)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1114/20211114101613720.jpg)
+1、[**北京疫情升温 海淀区学校停课**](https://www.aboluowang.com/2021/1114/1671603.html)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/106856785-16161779612021-03-19t181310z_885711556_rc2iem9sbh4l_rtrmadp_0_usa-biden-georgia.jpeg)
+在冬奥会临近之际，北京疫情突然升温。当地时间11月13日下午，北京当局在疫情发布会上称，从11月17日零时起，将实施新的进出北京管理措施。包括：往返北京须持48小时内核酸阴性证明；14日内有陆路边境口岸地区旅居史者，非必须不得进返京；严控在京全国性会议等。
 
+2、[**广东城管抢小贩摊子和货物 小贩奋起反抗 刀捅城管**](https://www.aboluowang.com/2021/1114/1671604.html)
 
+11月13日，网友“峨嵋刺”发布一段视频，一位身着粉色衬衣，黑色裤子的大叔，操着广东话正与几位城管对峙。一名城管欲向前抓人，大叔挥刀就扎，扎到了这位城管的肩部。这时画面进来一位大妈，对着镜头告知众人事发起因：“不让人摆摊，还取走人家的东西，这是什么法律？”另一位城管对小贩大叔穷追不舍，意图抓捕大叔。大叔终于被城管发现，正躲在一个长凳下面，突然站出来奋起反击，对城管连捅数刀，刀刀见血。其间另外1名城管全程跟拍却未出手相救。
 
-图片来源：Carlos Barria | Reuters
+3、[**大陆招聘广告现株连政策 孩子上学倒查三代**](https://www.aboluowang.com/2021/1114/1671561.html)
 
+近期，大陆多省市的招聘公告明文规定，直系亲属、主要家庭成员修炼法轮功者，不予聘用；中共四川省迫害法轮功的“610”办公室还声称，三代中有炼法轮功的，子女不准上大学。中国维权律师吴绍平告诉《大纪元时报》，中共这种连坐、株连式的政治迫害，不仅严重违法，而且泯灭人性，导致中国整个社会道德溃烂。
 
-#### 编译：小红帽
+4、[**重庆数千司机罢工 要求降承包费**](https://www.aboluowang.com/2021/1114/1671523.html)
 
-疾病预防控制中心(CDC)承认，没有未接种疫苗的人在从中共病毒(Covid-19)康复后传播中共病毒的记录，以回应一名律师的信息自由法案（FOIA）请求。
+11月12日，网上一则视频显示，在重庆市区数千辆出租车司机集体罢工。受疫情冲击，当地出租车司机收入也受到很大影响。据重庆最大的出租车公司“重庆公路运输（集团）有限公司”分公司的一名出租车司机刘军（化名）13日向大纪元表示，这几天出车每天跑100到200块钱，板板钱就是120块，加上汽油几十块，再除去饭钱，不挣钱还倒贴，为此，重庆出租车司机从11日到12日在观音桥已罢工两天。
 
-美国纽约的一位律师在9月提出了一份信息自由法案请求，要求疾病预防控制中心提供文件，以 “反映符合以下情况的任何记录在案的个人：（1）从未接种过中共病毒疫苗；（2）曾经感染过中共病毒，康复后又再次感染；（3）再次感染时将中共病毒传播给另一人”。
+5、[**大连疫情升温 大学城封闭 学生连夜拉走隔离**](https://www.aboluowang.com/2021/1114/1671521.html)
 
-疾控中心回应说：“对我们的记录进行搜索后，没有发现任何与你的要求有关的文件。[疾病预防控制中心紧急行动中心（EOC）表示不会收集这些信息](https://twitter.com/MichaelPSenger/status/1458953737397948418?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1458953737397948418%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fhumansarefree.com%2F2021%2F11%2Fcdc-admits-it-has-no-record-of-an-unvaccinated-person-spreading-covid-after-recovering-from-covid.html)。”
+辽宁省大连疫情持续升温，13日，当地一地升为一高风险区，三地升为中风险区。同时，当地持续新增病例，涉及大学城学生、食堂厨师以及当地小学生等。大连市则从11月4日起，要求市民非必要不离开大连；大连庄河市所有中小学从4日起停课停学，公共场所全部停业。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/FD8-lm9VQAIoy1F.jpg)图片来源：[@MichaelPSenger](https://twitter.com/MichaelPSenger) 推特
+6、[**中国多省份出生人口降幅超过一成**](https://www.aboluowang.com/2021/1114/1671513.html)
 
+陆媒报道，中国多地今年出生人口较去年下降超过一成，部分地区超过两成。中共计划生育实施多年，导致人口比例严重失调，社会开始走向老龄化。另外，中国年轻人结婚生育意愿不断下降，也被认为是导致出生人口下降的原因之一。根据中共民政局数据，自2013年起，中国全年结婚登记数字连续7年下跌。2019年首次跌破1000万对大关，2020年为813.1万对，又跌破900万对大关。全国今年前三个季度结婚登记数字为588.6万对，比去年同期减少8000对。而去年因疫情影响，当年结婚登记数字原已刷下新低点。
 
-今年初发表的一项检查[中共病毒康复者T细胞反应的研究](https://pubmed.ncbi.nlm.nih.gov/33594378/)显示，自然免疫力比接种疫苗能对中共病毒提供更好地保护。
-
-自然免疫并不会让大药厂赚钱，这就是为什么拜登政权和疾控中心从不谈论它的原因。
-
-**参考新闻：** [CDC Admits It Has No Record of an Unvaccinated Person Spreading Covid After Recovering From Covid (humansarefree.com)](https://humansarefree.com/2021/11/cdc-admits-it-has-no-record-of-an-unvaccinated-person-spreading-covid-after-recovering-from-covid.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团 / 東洋武士
+发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
