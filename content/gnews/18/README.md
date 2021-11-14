@@ -2,29 +2,33 @@
 ---
 
 
-## 有声|中共疫苗灾难致大陆一线医护人员短缺
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1663785/)
+## 有声| 班农先生被控藐视国会
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1663810/)
 
 配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-郭文贵先生在11月10日的大直播中爆料，中共掩盖真实数据，大陆实际死于中共病毒的人数高达 1370万人，罹患中共病毒的人数达到7000万人。目前世界卫生组织公布的全球患中共病毒的2.5亿人和500万人的死亡数据并不包含中共国数据。中共犯下的罪行已经远超纳粹。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
 
-郭先生透露，中共国一线医护人员因为接种疫苗而患病、住院或死亡。由于医护人员了解病毒及疫苗真相，以致大量医护人员离职，或逃离到附近的日本、越南、新加坡等周边国家，造成医疗行业人员大量短缺，给大陆整个医疗行业带来巨大冲击。
 
-中共病毒给全世界带来深重灾难，每一个数字背后都是一个鲜活的生命，多少家庭因为中共病毒而支离破碎！中共不灭亡，世界永无宁日。
+11月12日，史蒂夫-班农先生，被联邦大陪审团以两项蔑视国会的罪名起诉。消息称，众议院特别委员会曾为1月6日美国国会大厦的群体性事件向班农先生发出传票，要求他出庭作证并提供相关文件，但班农先生的律师团队以 “作证和文件内容涉及川普总统行政特权保护范围” 为由，拒绝作证并提供文件，并质疑该特别委员会的合法性。
 
-文字版原文：[中共疫苗灾难致大陆一线医护人员短缺](https://gnews.org/zh-hans/1659651/)
+据悉，该诉讼系司法部检察长办公室响应众议院特别委员会的诉求所发起。10月下旬，民主党掌控的众议院，以229赞成、202票反对通过这一藐视国会指控的决议，议员基本上是按照所属党派立场进行投票。
+
+据司法部12日的新闻显示，这项起诉书只是一项指控，并不代表罪名成立。
+
+文字版原文：[班农先生被控藐视国会](https://gnews.org/zh-hans/1660632/)
 
 音频处理：喜山必胜Maverick
-发稿：Fei797
+发稿：呼吸的雾霾（文小呼吸）
+
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
