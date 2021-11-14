@@ -2,34 +2,38 @@
 ---
 
 
-## 一旦发生疫情，全员核酸检测
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662322/)
+## 拜登正式签署安全设备法阻断华为中兴进入美国通信网络
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1662361/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/卫健委-1.png)图片来源：YouTube
+#### 作者：日本东京方舟农场 子辰
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9869A60C-220B-43CC-8EBE-B2FD9455E5AC.jpeg)（图片来自VOA）
+
+据《大纪元》11月13日报道，美国总统拜登正式签署了《安全设备法》，这是美国政府针对中共国通信和科技公司所采取的最新限制措施。
+
+美国国会众议院上个月以420比4的压倒性优势通过了这一立法议案。随后，参议院也在10月28日一致通过了这项法案。
+
+这项法律要求联邦通讯委员会（FCC）不得继续审批那些对美国国家安全构成威胁的设备采购申请。
+
+根据联邦通讯委员会2020年制定的新规则，美国电信公司需拆除并替换“对国家安全构成威胁的通信设备和服务清单”所涵盖的公司提供的设备。
+
+今年3月，华为和中兴以及深圳海能达通信、杭州海康威视和浙江大华这五家公司都被列入了黑名单。
+
+联邦通讯委员会委员布伦丹·卡尔表示，这项法律的通过，将有助于确保来自华为或中兴这类公司的不安全设备进入美国通信网络。
+
+注：本文仅代表作者观点
+
+*新闻链接： [https://www.voachinese.com/a/biden-signs-legislation-to-tighten-us-restrictions-on-huawei-zte-20211113/6310873.html](https://www.voachinese.com/a/biden-signs-legislation-to-tighten-us-restrictions-on-huawei-zte-20211113/6310873.html)*
+
+* * *
 
 
-编辑：**Kelly**
-**编辑：Candy**
+```
+素材采编：子辰
+编辑：青衣青青
+发布：miumiu
+```
 
-中共国国家卫健委发出通知：一旦发生疫情，500万人口以下城市要在两天内完成全员核酸检测。
-
-据中共《新华社》报道：
-
-11月13日，国务院联防联控机制召开新闻发布会，教育部、国家卫生健康委、海关总署相关司局负责同志及中国疾控中心专家出席，重点介绍进一步做好冬春季疫情防控工作有关情况，并回答媒体提问。
-
-国家卫生健康委医政医管局监察专员郭燕红在发布会上介绍：10月22日，国务院联防联控机制医疗救治组，专门对全国有关加强核酸检测服务工作进行了再部署、再要求。文件发布以后，各地做了大量工作，在有关能力建设、合理布局、提高效率、优化服务等方面多措并举。
-
-一旦发生疫情，各地要在第一时间启动全员核酸检测，力争在最短时间内锁定感染范围，同时加快有关疫情防控的各项措施。500万以下人口的城市，要在两天以内完成全员核酸检测；500万以上人口的城市，要在三天以内完成全员核酸检测。各地要按照上述要求对核酸检测能力储备、采样人员安排、实验室检测安排、样品转运安排等做出预案。
-
-***发布：Candy***
-
-**更多资讯，请关注：**
-
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

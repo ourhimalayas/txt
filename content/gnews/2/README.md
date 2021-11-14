@@ -2,40 +2,29 @@
 ---
 
 
-## 同济大学研究报告揭示灭活疫苗会带来严重副作用
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1662349/)
+## 曾说不会在未接种疫苗人的葬礼上哭泣的心脏病专家在接种第三针中共病毒疫苗后梦中离世
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1662381/)
 
-#### 撰稿：日本东京方舟农场  海星
+翻译: 波士顿五月花  jiasen
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/E6B17B0C-EA9E-4344-8465-1C8FF590EA29.jpeg)（图片来源：https://gdb.voanews.com/F53D15A8-FA9A-4E6F-9396-EF4ACFEF6886\_w1023\_r1\_s.jpg）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-12-scaled.jpg)**Cardiologist Who Said He ‘Won’t Cry at Funeral’ For “Selfish” Unvaccinated People Suddenly Dies in His Sleep 2 Weeks After 3rd Covid Jab**
+www.thegatewaypundit.com
 
-11月10日，网友PandaRolling在盖特（gettr）上发布信息披露，中共国同济大学医学团队近期在英文学术期刊《细胞发现》上发表了一篇研究报告，揭示灭活疫苗不仅保护期极为短暂，且会给人体带来严重副作用。
+加拿大新不伦瑞克省一名 52 岁的著名心脏病专家在接受第三次中共病毒疫苗仅两周后，突然在睡梦中离世。
 
-该报告的研究人员发现，志愿者在接种中共国产的灭活疫苗后所产生的抗体，在90天后就会基本消失，保护期极其短暂。
+整个夏天，索拉博·卢奇梅迪尔（ Sohrab Lutchmedial ）医生都在不停地攻击那些选择不接种中共病毒疫苗的自私者。他曾在 2021 年 7 月的一条推文中说：“对于那些因为自私而不接种疫苗的人，无论如何，我不会在他们的葬礼上哭泣。”
 
-不仅如此，灭活疫苗还影响志愿者的各项健康指标，包括与糖尿病、肾功能障碍、胆固醇代谢、凝血问题、电解质失衡等相关指标。这些病理和生理上的不良反应与感染中共病毒的患者如出一辙。
+这位医生意外地于 11 月 8 日去世，仅在接受第三次疫苗注射两周后。根据脸书发布的一个帖子，他于 10 月 24 日接种了第三针中共病毒疫苗。
 
-该报告进一步揭示，接种疫苗后志愿者的免疫细胞基因表达发生了巨大变化，这会导致人体的免疫系统——包括淋巴细胞和单核细胞免疫系统，免疫能力下降，对外来病毒的反应能力降低。
+据加拿大媒体报道，卢奇梅迪尔医生的朋友、家人和同事对他的突然死亡感到震惊。加拿大广播公司新闻报道如下：同事们表示——著名心脏病专家的去世，为医院系统内和社区留下了巨大的缺口。卢奇梅迪尔医生为新不伦瑞克心脏病中心和心脏病患者的治疗奉献了 20 多年。我们怀着悲痛的心情报告卢奇梅迪尔，这位同事、朋友、父亲、伙伴和鼓舞人心的灵魂突然意外死亡。新不伦瑞克心脏病中心心脏外科主任让-弗朗索瓦·莱加雷证实，卢奇梅迪尔于周一在圣约翰的家中梦中离世，享年 52岁 。
 
-疫苗的保护期如此短暂，并且还会导致各种严重副作用，然而中共仍在大力推进疫苗接种。据《新唐人》报道，截止11月9日，中共公布的全国疫苗接种数量已经超过23亿剂，并且，对3~11岁儿童的接种也已经开始。
-
-注：本文仅代表作者观点
-
-*参考链接：*
-
-1. [*https://gettr.com/post/pgjzye3109*](https://gettr.com/post/pgjzye3109)
-2. [*https://gettr.com/post/pgod8r8bc3*](https://gettr.com/post/pgod8r8bc3)
-
+新闻来源: [Cardiologist Who Said He ‘Won’t Cry at Funeral’ For “Selfish” Unvaccinated People Suddenly Dies in His Sleep 2 Weeks After 3rd Covid Jab](https://www.thegatewaypundit.com/2021/11/cardiologist-said-wont-cry-funeral-selfish-unvaccinated-people-suddenly-dies-sleep-2-weeks-3rd-covid-jab/)
 
 * * *
 
+*素材来源：**jiasen*
 
-```
-素材采编：海星
-编辑：青衣青青
-发布：miumiu
-```
-
+*编辑**& 发布：jamie(文胤)*
 
  
 

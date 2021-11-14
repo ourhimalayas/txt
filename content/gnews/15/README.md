@@ -2,28 +2,40 @@
 ---
 
 
-## 数百穆斯林伦敦中共国大使馆外集会 为维吾尔人发声
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1662230/)
+## 世上最大3D打印社区将于明年在德克萨斯州奥斯汀动工
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662286/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-8.jpg)数百穆斯林伦敦中共国大使馆外集会 为维吾尔人发声 网络图片
-据自由亚洲电台11月13日报道，数百名穆斯林13日在英国伦敦中共国大使馆外集会，抗议中共对国内维吾尔人的迫害，呼吁全球穆斯林、人权捍卫者、世界强国和正义之士，团结一致，抗议中共的暴行。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-曼彻斯特中共国使馆外也在同一时间举行声援维吾尔人的集会。数十年前纳粹屠杀犹太人的暴行被揭发后，国际社会一直呼吁不要让历史重演。中共对维吾尔人实施的种族灭绝比当年的纳粹，有过之而无不及。只要全世界联合起来，哪怕只是种族灭绝这一项，就足以让中共彻底灭亡。全球行动起来！
-
-新闻参考链接：[https://www.rfa.org/mandarin/Xinwen/6-11132021161559.html](https://www.rfa.org/mandarin/Xinwen/6-11132021161559.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ICON_Lennar_BIG_100-hm_Community_In-progressConstruction_ConceptRender.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+图片来源：www.archdaily.com
 
 
+#### 编译：小红帽
+
+美国第二大房屋建筑商Lennar公司与专门从事大型3D打印的技术先驱ICON公司合作，使用一台巨型3D打印机在现场”打印”100栋单层房屋，以铺设混凝土建筑材料。
+
+Lennar联合首席执行官乔恩·贾菲(Jon Jaffe)最近强调，整个建筑行业面临着材料短缺和成本飞涨的问题。为了解决这个问题，该公司正在转向3D打印业务。
+
+ICON的3D打印技术可以打印出高达3000平方英尺的房屋，而且与传统方法相比，时间更短，浪费更少。
+
+“建筑规模的3D打印不仅可以更快、更经济地提供更高质量的房屋，而且打印机车队可以改变整个社区的建设方式，使其变得更好。ICON联合创始人兼首席执行官杰森·巴拉德（Jason Ballard）说：”美国面临着大约500万套新房的赤字，因此，在不影响质量、美观或可持续性的情况下，迅速增加供应量是一个迫切的需要，这正是我们技术的优势所在。
+
+随着供应链的中断和商品成本的飙升，我们已经开始注意到越来越多的房屋被3D打印出来。因为木材价格处于历史高位，建造房屋不经济。今年早期，佛罗里达州和弗吉尼亚州的房屋被打印出来。现在，奥斯汀的整个社区也即将被打印出来。
+
+**参考新闻：**[World’s Largest 3D-Printed Neighborhood Coming To Austin, Texas  | ZeroHedge](https://www.zerohedge.com/technology/worlds-largest-3d-printed-neighborhood-coming-austin-texas)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,30 +2,33 @@
 ---
 
 
-## 有声|新中国联邦人将成为新一批儒商贵族
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1662125/)
+## GTV新闻访谈简报|2021年11月13日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1662173/)
 
-配音：香草山美食部 – 玫瑰园
+作者：香草山翻译部
 
-截止播报日期，喜马拉雅交易所已经上市12天，喜币的成交价超过25美元。对于爆料革命的战友来说，因为郭先生的极力运作，战友以单价0.1美元获得的喜币在不到半个月的时间里涨幅超过200倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
 
-郭先生提到，爆料革命数万战友总持币额达6个多亿。文贵先生还重点提醒道，2022年5月之前持有喜币的战友，在未来100年内，每人每年都享有30%的喜币购买折扣。因此，倘若这个期间出售了受众的喜币，就是卖掉了未来100年的权力。
 
-另外，文贵先生也在直播里分析表示，世界上86%的货币都在美国人手里，而未来最牛的交易所将是 Kraken，且美国目前有近2000家这样的交易所。与此同时，喜马拉雅交易所一定不会缺席。至于拥有喜联储5%股权的新中国联邦人，我们要把握好未来，将成为新一批儒商贵族。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1113text-SC.png)
+校对：Stay文苑
 
-文字版原文：[新中国联邦人将成为新一批儒商贵族](https://gnews.org/zh-hans/1659003/)
+编辑：Stay文苑
 
-音频处理：喜山必胜Maverick
+发稿：Stay文苑
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+视频参看：[11.13  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61906662e7e7703792349b58)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
+
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
