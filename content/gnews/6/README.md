@@ -2,80 +2,28 @@
 ---
 
 
-## 过去一个月英格兰83%的Covid-19死亡病例和67%的住院病例是完全接种疫苗的人中发生的
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1664618/)
+## Diffusion journalière de Miles Guo (11.14) : Le temps retiendra H-coin dans les nuages
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1664633/)
 
-编译：七叶之芒
+Traductrice : Charline
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/58603696_303.png)图片来源：dw.com
+Relecteur : Jean Michel
+![](https://assets.gnews.org/wp-content/uploads/2021/11/222-2.jpg)
+Les fleurs ont besoin de pluie pour s’épanouir et H-coin a besoin de temps pour s’épanouir. Miles Guo a déclaré lors de sa grande émission en direct le 14 novembre que d’ici 5 à 10 ans, la valeur ajoutée de l’humanité au cours des dernières décennies sera reflétée dans la monnaie virtuelle. Les 3 premières années seront une période d’essor. Chaque pièce est rattachée à l’or, il y a des systèmes de paiement et de prêt, il y a des pièces stables. Le monde est invincible, il a juste besoin de temps pour être arrosé, et les camarades peuvent attendre que les fleurs s’épanouissent.
 
-**新的英国卫生安全局公布的关于Covid-19病例、住院和死亡的最新数据显示，Covid-19注射液似乎仍然没有效果。**
+Les États-Unis ont imprimé trois trillions de dollars et je pense qu’ils ne seront pas moins de cinq trillions. Le parti communiste chinois a également imprimé dix mille milliards. Le fait est que la plupart de ces dix mille milliards aux États-Unis sont allés à l’armée, aux entreprises et à la population. Une grande partie des dix mille milliards imprimés par le parti communiste chinois a été prise par les membres officiels de la famille. Un ou deux trillions ont servi à acheter des bitcoins.  2,8 trillions a été transféré à Singapour. C’est essentiellement différent. Pourquoi le monde entier imprime-t-il de l’argent ?
 
-英国卫生安全局（原英格兰公共卫生局）于2021年11月11日星期四公布了“第45周–Covid-19疫苗监测报告”，报告显示，在10月11日至11月7日期间，绝大多数Covid-19病例是在完全接种疫苗的人群中发生的。
+Depuis une vingtaine de mois, depuis le coronavirus, l’internet a complètement changé la façon de vivre. C’est diffusion en direct, de la vidéoconférence, permet à tout le monde reste à la maison. En finance, la blockchain était née. Pour le bitcoin, n’oubliez jamais que 4 % de la population représentaient ensemble 96 % des biens. N’oubliez jamais que ce sont nos camarades qui représentent 60% des 600 millions de H-coin. Quiconque pourra conserver cette pièce pendant trois ans sans la vendre ,  elle vaudra plus que le bitcoin.
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-5-4.png)
+Il y a deux noyaux. Premièrement :  la technologie Internet, Le gouvernement ne peut  pas dire ce qu’il veut , mais  il est possible de faire taire les autres. Deuxièmement, la technologie blockchain, les gens ont le choix, je ne vous utilise pas, j’utilise blockchain. Quel est le concept de la technologie blockchain ? Toute l’humanité représente mille trois cents milliards de dollars, et une grande partie de cette somme est diluée. Si vous multipliez ce qui a été édulcoré par un coefficient de 3,7 à 3,9 de la valeur de l’argent et de la production de richesse, cela signifie que toute l’humanité produit de la plus-value. Quelle sera la croissance de ce côté de l’argent virtuel ? La plus-value de l’humanité au cours des dernières décennies sera reflétée dans la monnaie virtuelle. Cela prendra environ cinq à dix ans, trois ans étant la période centrale de la poussée.
 
-2021年10月11日至11月7日期间，英国卫生署第45周疫苗监测报告表3确认的按疫苗接种状态划分的病例总数如下：
+Vous ne parlez pas d’absence de gouvernement, la monnaie décentralisée. Vous ne comprenez pas la monnaie, et plus important encore, vous ne savez pas qu’elle a un échange. Vous ne savez pas qu’il y a un système de paiement, et qu’il y a une possibilité de prêt, et la stabilité, est lié à l’or, et c’est imbattable.
 
-- 未接种疫苗的人群=378,122例
-- 部分接种疫苗的人口=62,154例
-- 完全接种的人口=450,938例
+Miles Guo a dit qu’il espérait que ses camarades attendraient l’arrivée de la vraie valeur. Attendre le moment glorieux, si vous partez tôt, vous n’aurez pas d’autre chance.
 
+—–14-11-2021
 
-这意味着在2021年10月11日至11月7日期间，接种疫苗的人口占Covid-19病例的58%，而未接种疫苗的人口占42%。然而，如果我们把18岁以下的人从等式中剔除，其中许多人没有资格接种疫苗，那么接种疫苗的人口的数字就会差很多。
-
-2021年10月11日至11月7日期间，英国卫生协会第45周疫苗监测报告的表3确认了18岁以上人群中按疫苗接种状态分列的病例总数如下：
-
-- 未接种疫苗的人群=79,516例
-- 部分接种疫苗的人口=25,554例
-- 完全接种的人口=250,132例
-
-
-这意味着在2021年10月11日至11月7日期间，18岁以上接种疫苗的人群占Covid-19病例的86%，而未接种疫苗的人群仅占14%。
-
-不幸的是，英国卫生局的最新报告还显示，在2021年10月11日至11月7日期间，绝大多数Covid-19的住院病人也是完全接种疫苗的人群。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-172-1.png)
-
-经英国卫生局报告表4证实，2021年10月11日至11月7日期间，所有年龄组按疫苗接种情况分列的住院人数总数如下：
-
-- 未接种疫苗的人口=3,313人
-- 部分接种疫苗的人口=325人
-- 完全接种疫苗的人口=6,461人
-
-
-这意味着在2021年10月11日至11月7日期间，接种疫苗的人群占Covid-19住院人数的67%，而未接种疫苗的人群仅占33%。
-
-但是，当涉及到据称与Covid-19有关的死亡时，接种疫苗和未接种疫苗之间的差异再次变得更加严重。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-173-1.png)
-
-经UKHSA报告表5确认，2021年10月11日至11月7日期间，按疫苗接种状态划分的据称Covid-19死亡总数如下：
-
-- 未接种疫苗的人口=587人死亡
-- 部分接种疫苗的人口=100人死亡
-- 完全接种疫苗的人口=2732人死亡
-
-
-这意味着在2021年10月11日至11月7日期间，接种疫苗的人群占Covid-19死亡人数的83%，而未接种疫苗的人群仅占17%。
-
-由于完全接种疫苗的人群中Covid-19的住院和死亡人数每周都在上升，而未接种疫苗的人群的住院和死亡人数继续下降，因此需要回答关于接种疫苗有效性的严重问题。
-
-**简评：**
-
-**真实的数据是不会骗人的，而号称着“代表科学”的那些伪科学家却在用谎言诓骗着这个世界。根据英国卫生局的相关数据，疫苗不但不能有效的阻止中共病毒的传播，并且在完全接种疫苗后的Covid-19死亡率相对于未接种疫苗者的死亡率竟然超过四倍之多。**
-
-**疫苗的灾难已经开始了，各国政府乃至全世界还在等待着什么？请离开那些利益和政治权力的纷争，救救你们的人民，停止接种“毒疫苗”。**
-
-参考资料：[theexpose.uk][83% of Covid-19 Deaths and 67% of Hospitalisations were among the Fully Vaccinated during the past month in England](https://theexpose.uk/2021/11/12/england-83-percent-covid-deaths-fully-vaccinated/)
-
-* * *
-
-*审核：蚂蚁兄弟*
-*校对：阿伯塔*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
+Gnews🔗: [https://gnews.org/zh-hans/1664140/](https://gnews.org/zh-hans/1664140/)
 
  
 

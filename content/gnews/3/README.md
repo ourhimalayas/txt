@@ -2,22 +2,50 @@
 ---
 
 
-## 继中共国后奥地利将把未接种疫苗者“封锁”在家里
-` 军迷wilson` [轉載自GNews](https://gnews.org/zh-hans/1664672/)
+## 世界女子网球协会呼吁调查张高丽性侵事件
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1664701/)
 
-#### 扬帆农场 向真
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2021-10-10T121328Z_297569291_RC207Q9XA3ZK_RTRMADP_3_AUSTRIA-POLITICS-1.jpeg)来源：RFI
-据路透社11月14日报道，奥地利总理亚历山大・沙伦贝格周日宣布，将从下周一开始对数百万未接种疫苗者实施居家封锁，未接种疫苗者将被命令呆在家里，每天只允许因“必要”原因短暂外出，如购买食物。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-奥地利政府将近日感染率急激增加到创纪录水平的情况归罪于拒绝接种疫苗的人，并称封锁是为了缓解医院和重症监护室（ICU）的紧张压力。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Z.jpg)worldnews.easybranches.com
+《一美新闻网》（OANN）转载《路透社》的报道，“世界女子网球协会（WTA，Women’s Tennis Association）呼吁调查彭帅的性侵指控”。【1】
 
-该国目前疫苗完全接种率达到64%以上，但沙伦伯格仍咆哮“我们必须提高疫苗接种率，目前的接种水平低的可耻。”
+全文如下：
 
-这是继中共国之后，第二个非法、野蛮地将国民封锁在家里的国家，奥地利政府的做法，或将对那些强推疫苗但打压任何其他治疗方法的国家起到极坏的示范作用，比如现任加拿大和美国政府，但必将激起这些国家的人民奋起反抗。
+世界女子网球协会巡回赛周日（11月14日）呼吁中共国政府调查彭帅对前中共副总理的性侵指控，同时要求结束对这位前双打顶级选手的审查。
 
-参考来源：
+彭帅，中共国最大的体育明星之一，在她11月2日的社交媒体微博账户上声称：
 
-[This European nation is imposing lockdown for people not fully vaccinated against Covid](https://www.hindustantimes.com/world-news/this-european-nation-is-imposing-lockdown-for-people-not-fully-vaccinated-against-covid-101636900337798.html)
+张高丽，在他成为中共最高决策机构——政治局常委的委员后，强迫与她发生性关系，后来双方达成了保持断断续续关系的共识。
+
+彭在这篇文章中说，她无法提供任何证据支持她的指控，这篇文章在发表大约半小时后被删除。【2】
+
+中共国网球协会没有回应《路透社》的置评请求。
+
+中共国的互联网会受到严格的审查，高层领导人的私生活是一个特别敏感的话题。
+
+由于彭帅发帖以来一直未露面，全球网球界的担忧日益增加。
+
+女子网球协会在一份声明中表示，将寻求“对前中共领导人性侵指控进行全面、公正和透明的调查”。
+
+女子网球协会巡回赛主席兼首席执行官史蒂夫·西蒙（Steve Simon）在一份声明中表示：“最近在中共国发生的有关女子网球协会球员彭帅的事件令人深感关切。”
+
+“彭帅，以及所有女性（的声音）都应该被倾听，而不是被审查。她对一位前中共领导人的性侵行为的指控必须得到极其严肃的对待。”
+
+在2013年温布尔登双打冠军和2014年法网双打冠军后，彭帅在2014年成为世界第一双打选手，也是第一位获得网球比赛顶级排名的中共国选手。
+
+（全文完）
+
+看来中共外交部、体育总局该挨板子了，十几天了，这点事儿还没有搞定，竟然还要求“进行全面、公正和透明的调查”，这不是抹黑我党吗？Me Too是你们西方的产物，成年人的运动。我们的共产党要从小培养，幼女开始。估计外交部回答记者的提问时会说，我们强烈反对世界女子网球协会干涉我国内政、侵犯我国领导人隐私的行为，我们会一如既往地我行我素，倡导“宇宙无限大，地球一粒沙”的共同“快活”精神，为摒弃道德、突破底限、弘扬罪恶义无反顾地走下去，直到灭亡……
+
+女子网球协会的举动应该是对邪恶中共认知的反应，在经济利益的诱惑下，体育界反对中共的声音是微弱的，希望在女子网球协会的带动下，尽快改观这种局面。
+
+原文链接：
+
+【1】[https://www.oann.com/tennis-wta-calls-for-investigation-into-peng-sexual-assault-allegations/](https://www.oann.com/tennis-wta-calls-for-investigation-into-peng-sexual-assault-allegations/)
+
+【2】[https://www.reuters.com/world/china/china-tennis-star-peng-says-ex-vice-premier-forced-her-into-sex-2021-11-03](https://www.reuters.com/world/china/china-tennis-star-peng-says-ex-vice-premier-forced-her-into-sex-2021-11-03)，
 
  
 
