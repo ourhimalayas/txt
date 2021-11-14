@@ -2,44 +2,38 @@
 ---
 
 
-## CDC承认无记录表明未接种疫苗的人从Covid康复后传播了Covid
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1663054/)
+## 国际要闻汇编 11月14日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1663073/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 素材：东京樱花团丨GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-263.png)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1114/20211114094005665.jpg)
+1、[**联合国气候变化大会达成协议，减煤承诺缩水**](https://www.aboluowang.com/2021/1114/1671581.html)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/106856785-16161779612021-03-19t181310z_885711556_rc2iem9sbh4l_rtrmadp_0_usa-biden-georgia.jpeg)
+大约200个国家代表星期六（11月13日）在格拉斯哥举行的《联合国气候变化框架公约》缔约方大会第26次会议（COP26）上一致同意一项治理气候变化的全球协议，维持《巴黎协定》要求把全球气温升高幅度控制在1.5摄氏度以内的目标，让全球有可能避免气候变化的灾难。路透社说，这项协议事实上是承认各国迄今做出的减排承诺还远远不够，并要求缔约国明年设置更加严格的气候控制承诺，而不是目前要求的五年以后。
 
+2、[**谭德塞点名2国没打新冠疫苗 曾拒收300万科兴**](https://www.aboluowang.com/2021/1113/1671422.html)
 
+世卫组织（WHO）秘书长谭德塞于当地时间12日在日内瓦举行例行媒体线上记者会时表示，全球各国开始让民众施打新冠疫苗后，COVAX平台已协助分配5亿剂疫苗给144国，然而至今却仅剩下2国还尚未开始替民众施打疫苗，分别是朝鲜与非洲的厄立特里亚。另外，COVAX平台还曾指定分配297万剂的中国科兴疫苗，不过却惨遭宣称境内“零确诊”的朝鲜狠狠拒绝。
 
-图片来源：Carlos Barria | Reuters
+3、[**男生玩游戏说漏嘴祖母死亡真相 被判终身监禁**](https://www.aboluowang.com/2021/1114/1671450.html)
 
+英国兰开夏郡一栋民宅2018年发生火灾，一名94岁老妇葬身火海，起初被认为是单纯意外。未料死者就读大学的孙子一年后坦承，是自己放火杀害祖母，且早在祖母刚死不久，便曾在玩真心话大冒险时亲口承认。这名21岁男子12日被判终身监禁，至少须服刑15年才能假释。
 
-#### 编译：小红帽
+4、[**驳回拜登政府要求 上诉法院再暂停私企强制疫苗令**](https://www.aboluowang.com/2021/1114/1671449.html)
 
-疾病预防控制中心(CDC)承认，没有未接种疫苗的人在从中共病毒(Covid-19)康复后传播中共病毒的记录，以回应一名律师的信息自由法案（FOIA）请求。
+美国第五巡回上诉法院驳回了拜登政府的要求，决定维持先前的裁决。周五（11月12日），保守派占优势的美国第五巡回上诉法院一个由三名法官组成的司法小组重申了该法院的决定，要求拜登政府暂时中止执行劳工部职业安全与健康管理局（OSHA）颁布的针对私人企业的疫苗令，即要求拥有100名以上员工的企业雇主必须确保他们的雇员完全接种了COVID-19疫苗或每周进行病毒检测，不遵守规定的可能面临高额罚款。
 
-美国纽约的一位律师在9月提出了一份信息自由法案请求，要求疾病预防控制中心提供文件，以 “反映符合以下情况的任何记录在案的个人：（1）从未接种过中共病毒疫苗；（2）曾经感染过中共病毒，康复后又再次感染；（3）再次感染时将中共病毒传播给另一人”。
+5、[**白宫提名美国之音前台长出任美国全球媒体总署首席执行官**](https://www.aboluowang.com/2021/1114/1671458.html)
 
-疾控中心回应说：“对我们的记录进行搜索后，没有发现任何与你的要求有关的文件。[疾病预防控制中心紧急行动中心（EOC）表示不会收集这些信息](https://twitter.com/MichaelPSenger/status/1458953737397948418?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1458953737397948418%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fhumansarefree.com%2F2021%2F11%2Fcdc-admits-it-has-no-record-of-an-unvaccinated-person-spreading-covid-after-recovering-from-covid.html)。”
+白宫宣布打算提名获曾得过普利策奖的记者、前美国之音(VOA)台长阿曼达·贝内特(Amanda Bennett)担任美国全球媒体总署(USAGM)的首席执行官。现年69岁的贝内特曾于2016年3月至2020年6月担任美国之音台长。但她在担任美国之音台长期间的一些决定也受到过批评，包括在2017年缩短了原计划的对流亡海外的中国亿万富翁郭文贵的三个小时现场采访。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/FD8-lm9VQAIoy1F.jpg)图片来源：[@MichaelPSenger](https://twitter.com/MichaelPSenger) 推特
+6、[**FBI电邮地址遭骇 至少10万人收到垃圾邮件**](https://www.aboluowang.com/2021/1114/1671652.html)
 
+欧洲一个专门监控Email垃圾邮件的非营利组织“Spamhaus”指出，美东时间12日晚间有一名身份尚在查核的骇客入侵联邦调查局(FBI)网域，并以FBI服务器向至少10万人发送垃圾邮件，目前尚不清楚FBI的服务器遭到多大程度的入侵。Spamhaus指出，这封垃圾邮件提到一名资讯安全作家托伊亚，及一个网络犯罪组织“暗黑君王”，但前后语句不连贯，无法得知此封邮件的真正意义。
 
-今年初发表的一项检查[中共病毒康复者T细胞反应的研究](https://pubmed.ncbi.nlm.nih.gov/33594378/)显示，自然免疫力比接种疫苗能对中共病毒提供更好地保护。
-
-自然免疫并不会让大药厂赚钱，这就是为什么拜登政权和疾控中心从不谈论它的原因。
-
-**参考新闻：** [CDC Admits It Has No Record of an Unvaccinated Person Spreading Covid After Recovering From Covid (humansarefree.com)](https://humansarefree.com/2021/11/cdc-admits-it-has-no-record-of-an-unvaccinated-person-spreading-covid-after-recovering-from-covid.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团 / 東洋武士
+发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
