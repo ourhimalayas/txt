@@ -2,34 +2,32 @@
 ---
 
 
-## 一旦发生疫情，全员核酸检测
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662322/)
+## 教皇弗朗西斯“无法”妥善处理教会性丑闻感到“羞耻”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662362/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/卫健委-1.png)图片来源：YouTube
+#### **【雅典娜快讯】，紧贴时事脉搏**
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/AP21279302075542.jpg)图片来源：AP Photo/Alessandra Tarantino
 
 
-编辑：**Kelly**
-**编辑：Candy**
+#### 编译：小红帽
 
-中共国国家卫健委发出通知：一旦发生疫情，500万人口以下城市要在两天内完成全员核酸检测。
+教皇弗朗西斯（Pope Francis）在周末赞扬了记者的 “使命”，并感谢他们揭露了教会的性丑闻并帮助避免被 “扫到出门”。
 
-据中共《新华社》报道：
+在周六为表彰两位长期报道梵蒂冈的记者举行的颁奖典礼上，教皇直接谈到了天主教会与教士性虐待丑闻的历史。他感谢记者，因为 “你们告诉我们教会中出了什么问题”，并感谢他们帮助性虐待受害者发声。
 
-11月13日，国务院联防联控机制召开新闻发布会，教育部、国家卫生健康委、海关总署相关司局负责同志及中国疾控中心专家出席，重点介绍进一步做好冬春季疫情防控工作有关情况，并回答媒体提问。
+2002年，《波士顿环球报》的一系列报道首次大范围曝光了教会内部的性虐待丑闻，并详细描述了教会涉嫌性虐待的行为以及如何努力向公众隐瞒这些行为。
 
-国家卫生健康委医政医管局监察专员郭燕红在发布会上介绍：10月22日，国务院联防联控机制医疗救治组，专门对全国有关加强核酸检测服务工作进行了再部署、再要求。文件发布以后，各地做了大量工作，在有关能力建设、合理布局、提高效率、优化服务等方面多措并举。
+教皇弗朗西斯过去曾谈到教会内部的性虐待犯罪和指控。他在上个月表示，他对教会长期以来 “无法”妥善处理这种情况感到“羞耻”。他的评论是在一份独立报告发布后发表的，报告称自1950年以来，教会内部有超过20万起恋童癖和虐待案件。
 
-一旦发生疫情，各地要在第一时间启动全员核酸检测，力争在最短时间内锁定感染范围，同时加快有关疫情防控的各项措施。500万以下人口的城市，要在两天以内完成全员核酸检测；500万以上人口的城市，要在三天以内完成全员核酸检测。各地要按照上述要求对核酸检测能力储备、采样人员安排、实验室检测安排、样品转运安排等做出预案。
+**参考新闻：** [Pope Francis addresses church sex scandals — RT World News](https://www.rt.com/news/540220-pope-francis-sex-scandals-journalists/)
 
-***发布：Candy***
-
-**更多资讯，请关注：**
-
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+***发布：小红帽*****更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

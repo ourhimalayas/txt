@@ -2,54 +2,34 @@
 ---
 
 
-## 2021/11/12 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1661171/)
+## 新中国联邦人将面临前所未有的三大时机
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661505/)
 
-一、11月11日，湖北武汉，一外卖女骑手跳长江自杀引发网络关注。
+作者：纽约香草山教育部 – Noemi
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月12日，文贵先生在大直播中提及，新中国联邦人将拥有世界上前所未有的三大时机。
 
-二、 11月12日，河南郑州，一外卖骑手被拍到凌晨在地下通道的电动车上睡觉。中共所谓的经济发达是来自对一部分人的极度剥削，谁敢保证你不会是下一个？
+第一，当今世界正孕育着千年未有的新金融时代——虚拟货币的时代。而我们已经拥有了世界上最先进、技术最好、系统最完善的喜币和喜美元。同时，喜币还关联着的G-fashion、G-club等所有的G系列投资，这些都将改变世界未来的格局。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-8.jpg)
+第二，中共制造的病毒和疫苗灾难为我们创造了有利时机。灾难过后，所有人都将面临秩序、信仰、政治等重建工作。作为提前告知世界ccp病毒、疫苗灾难和病毒解药真相的新中国联邦人，必将在世界上拥有举足轻重的历史地位。
 
-三、11月9日，一男子办事因未打疫苗被保安禁止通行，被要求出示不能接种疫苗证明。
+第三，当今世界，除了我们新中国联邦人，没有人相信共产主义将彻底消失。我们是人类中唯一敢于与黑暗势力斗争的一极。在未来，新中国联邦人必将得到全世界的尊敬。
 
-四、男子加油站加油，120升油箱加了161升还没加满！
+参考链接：[新中国联邦人将面临前所未有的三大时机](https://gtv.org/video/id=618e6c5fe7e770379233c262)
 
-五、11月4日，河南郑州，鸡蛋里面吃出一根“绳”，视频拍摄者怀疑是网络流传的人造化学合成鸡蛋。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-六、食品安全落实上政府永远缺位，地沟油（回收油）在市场上肆虐。
+总编：飞虹
+编辑：文特
+校对/发稿：Hetangyuese
 
-七、高速公路货车司机怕偷油、怕偷货不敢下车。保障道路安全政府份内职能未做到位，竟还有脸推出指导意见？
-
-八、11月10日，江西南昌，小车失控冲向非机动车道 致一死一伤。
-
-九、一女子街头被拍到捡拾剩菜落魄一幕，在被中共号称已全面摆脱贫困的共产主义社会。
-
-十、以打击诈骗的名义，一夜之间数十万公民的银行卡会被莫名销户。
-
-十一、 “门磁系统”——让中共监控居民更便利高效。
-
-十二、11月9日，浙江杭州，男子就餐时突然昏迷！
-
-十三、贵州遵义，老人路上突然晕倒。
-
-十四、11月5日，宁波北仑，女子医院门口突然晕厥倒地。
-
-十五、11月5日，金华武义，一名女婴被遗弃在凉亭，脐带还未剪断。
-
-***搜集**： Mr. Burns , Filon; **翻译**：瞌睡猫; **校对: **yyshere*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

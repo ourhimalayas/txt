@@ -2,38 +2,26 @@
 ---
 
 
-## 新中国联邦正在建立世界一流的国防力量
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661509/)
+## 美联邦法院驳回拜登欲解除【强制接种暂停令】的申诉
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1661880/)
 
-作者：纽约香草山农场福音部 – 恩永存
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月12日，郭文贵先生在大直播中谈到，海外华人将面临中共病毒以及毒疫苗所导致的全球性反华危机。新中国联邦的当务之急是打造一流的国防体系，尽力保护中国同胞的安全。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-12.jpg)
-郭先生着重谈到以下三点：
+采编：文莱   编译撰稿：文明(添草灭共)
 
-第一，军费筹备。初期建设军费90%来自郭先生的家族基金及合作基金，10%甚至更多比例必须来自战友捐款。做到经费透明化管理。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-29-edited.jpg)图片来源：CTV
 
-第二，军人招募。前期招募运营经理由班农先生的女儿担任，有美、英、日三国军官加入。三个月内，新中国联邦将公布招兵标准和培训标准，向全球招募军人。
 
-第三，军事规划。新中国联邦正与世界一流军工集团合作，购买先进的军事装备，组建最顶尖的陆、海、空军及太空军。
+据【路透社】11月12日报道，针对美国总统“新冠病毒疫苗”强制接种政策被德克萨斯等11个州政府反对并联合发起的诉讼，联邦【第五巡回上诉法院】经审理后于本月6日对该政策发布了暂停令。拜登政府于8日晚对此做出回应，要求联邦法院解除该禁止令，但原告此项申诉最终被驳回。
 
-新中国联邦的军队靠实力和行动，保护中国人的安全和利益。
+拜登政府在其诉求中辩称，由于【联邦职业安全健康管理局】要求的接种疫苗及病毒检测的截止日期是明年1月份，因此，目前衡量该政策所造成的伤害为时过早。同时，暂停疫苗接种令可能会导致病毒的更广泛传播，并造成大量民众因此染病或丧生。
 
-参考链接：[新中国联邦正在建立世界一流的国防力量](https://gettr.com/post/pgqxw72d05)
+为此，联邦【第五巡回上诉法院】进行审议并提出，该强制接种政策未考虑各种工作环境及个人状况的差异而采取“一刀切”的做法不切实际。同时，该规定也违反了《美国宪法》并剥夺了个人自由权利。因此，法院最终作出本轮裁决：维持暂停令并驳回拜登政府的以上诉求。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+* * *
 
-总编：文真
-编辑：文真
-校对/发稿：Hetangyuese
+校对编辑，发稿：硫酸羟氯喹64
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+[原文链接：](https://www.reuters.com/world/us/federal-appeals-court-affirms-stay-biden-vaccine-mandate-2021-11-12/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

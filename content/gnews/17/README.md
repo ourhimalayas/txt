@@ -2,32 +2,38 @@
 ---
 
 
-## 学而思宣布停止！股价暴跌，3000亿灰飞烟灭！
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1662310/)
+## 拜登正式签署安全设备法阻断华为中兴进入美国通信网络
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1662361/)
 
-![](https://nimg.ws.126.net/?url=http%3A%2F%2Fcms-bucket.ws.126.net%2F2021%2F1113%2F63584561j00r2hy03003hc000u000xac.jpg&amp;thumbnail=690x10000&amp;quality=75&amp;type=jpg)
-据中国基金报11月13日报道，继新东方之后，学而思也宣布在中共国内地义务教育阶段的学科类校外培训服务将于2021年12月31日截止。
+#### 作者：日本东京方舟农场 子辰
 
-随即，学而思的母公司好未来，盘后暴跌超过5%。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9869A60C-220B-43CC-8EBE-B2FD9455E5AC.jpeg)（图片来自VOA）
 
-学而思在北京、上海等一线城市的认可度较高。学而思网校学员覆盖了全国331个地级行政区，海外用户覆盖了欧洲、北美等20余个国家和地区。2020年疫情使得学而思股价涨了一倍。2021年2月17日之后一路下挫。截至目前，股价暴跌近96%，总市值蒸发3110亿元。
+据《大纪元》11月13日报道，美国总统拜登正式签署了《安全设备法》，这是美国政府针对中共国通信和科技公司所采取的最新限制措施。
 
-中共没钱了。于是，不管韭菜咸菜，还是大鱼小鱼，哪怕虾米鱼籽，中共镰刀和笊篱所到之处，清理得干干净净。搜刮民财是中共唯一的生财之道。至于国家发展、子孙后代，完全不在中共的考虑之内，因为中共盗国贼集团的财富和私生子女都在海外。国内教育机构壮大了，中共就开始抢钱了。
+美国国会众议院上个月以420比4的压倒性优势通过了这一立法议案。随后，参议院也在10月28日一致通过了这项法案。
 
-新闻参考链接：[https://c.m.163.com/news/a/GOMIHTTO00259DLP.html?spss=newsapp](https://c.m.163.com/news/a/GOMIHTTO00259DLP.html?spss=newsapp%EF%BC%88%E6%A0%B9%E6%8D%AE%E6%96%B0%E9%97%BB%E5%86%85%E5%AE%B9%E6%A0%87%E9%A2%98%E7%AE%80%E5%8C%96%E4%B8%80%E4%B8%8B%EF%BC%89)
+这项法律要求联邦通讯委员会（FCC）不得继续审批那些对美国国家安全构成威胁的设备采购申请。
 
-编辑：胖丁
+根据联邦通讯委员会2020年制定的新规则，美国电信公司需拆除并替换“对国家安全构成威胁的通信设备和服务清单”所涵盖的公司提供的设备。
+
+今年3月，华为和中兴以及深圳海能达通信、杭州海康威视和浙江大华这五家公司都被列入了黑名单。
+
+联邦通讯委员会委员布伦丹·卡尔表示，这项法律的通过，将有助于确保来自华为或中兴这类公司的不安全设备进入美国通信网络。
+
+注：本文仅代表作者观点
+
+*新闻链接： [https://www.voachinese.com/a/biden-signs-legislation-to-tighten-us-restrictions-on-huawei-zte-20211113/6310873.html](https://www.voachinese.com/a/biden-signs-legislation-to-tighten-us-restrictions-on-huawei-zte-20211113/6310873.html)*
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
+```
+素材采编：子辰
+编辑：青衣青青
+发布：miumiu
+```
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

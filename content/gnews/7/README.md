@@ -2,30 +2,24 @@
 ---
 
 
-## 曾说不会在未接种疫苗人的葬礼上哭泣的心脏病专家在接种第三针中共病毒疫苗后梦中离世
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1662381/)
+## 可悲！媒体自豪的宣布日本政府疫苗接种的政绩
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1662441/)
 
-翻译: 波士顿五月花  jiasen
+#### 撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-85.png)（图片源自本文链接）
+共同通信社11月13日发表了题为【ワクチン月末に「完了」91％　12月3回目実施、新局面に】的文章。题目大意为：本月底前日本会完成91%的疫苗接种，12月将进入第三轮接种的新阶段。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-12-scaled.jpg)**Cardiologist Who Said He ‘Won’t Cry at Funeral’ For “Selfish” Unvaccinated People Suddenly Dies in His Sleep 2 Weeks After 3rd Covid Jab**
-www.thegatewaypundit.com
+关于中共病毒疫苗项目，共同社在11月13日的调查中了解到，日本县级政府所在地的47个市中有43个（达91.5%）将在11月底前”完成”两剂疫苗的接种。
 
-加拿大新不伦瑞克省一名 52 岁的著名心脏病专家在接受第三次中共病毒疫苗仅两周后，突然在睡梦中离世。
+预计第三针追加疫苗接种的全部细节将于11月15日得到明确结果，定于12月开始实施的该项目将进入新的阶段。根据政府数字（12月12日发布），9909万人（占总人口的78.2%）至少完成了第一次接种，已接近1亿人。9458万人（74.7%）完成了第二次接种。
 
-整个夏天，索拉博·卢奇梅迪尔（ Sohrab Lutchmedial ）医生都在不停地攻击那些选择不接种中共病毒疫苗的自私者。他曾在 2021 年 7 月的一条推文中说：“对于那些因为自私而不接种疫苗的人，无论如何，我不会在他们的葬礼上哭泣。”
+信息来源:[ワクチン月末に「完了」91％　12月3回目実施、新局面に](https://news.yahoo.co.jp/articles/f028cebe4f71a307635976625e65534c263eefb9)
 
-这位医生意外地于 11 月 8 日去世，仅在接受第三次疫苗注射两周后。根据脸书发布的一个帖子，他于 10 月 24 日接种了第三针中共病毒疫苗。
+这种被当作政府的政绩，极具自豪感报道出来的，越来越大的数字，意味着什么？细思极恐！
 
-据加拿大媒体报道，卢奇梅迪尔医生的朋友、家人和同事对他的突然死亡感到震惊。加拿大广播公司新闻报道如下：同事们表示——著名心脏病专家的去世，为医院系统内和社区留下了巨大的缺口。卢奇梅迪尔医生为新不伦瑞克心脏病中心和心脏病患者的治疗奉献了 20 多年。我们怀着悲痛的心情报告卢奇梅迪尔，这位同事、朋友、父亲、伙伴和鼓舞人心的灵魂突然意外死亡。新不伦瑞克心脏病中心心脏外科主任让-弗朗索瓦·莱加雷证实，卢奇梅迪尔于周一在圣约翰的家中梦中离世，享年 52岁 。
-
-新闻来源: [Cardiologist Who Said He ‘Won’t Cry at Funeral’ For “Selfish” Unvaccinated People Suddenly Dies in His Sleep 2 Weeks After 3rd Covid Jab](https://www.thegatewaypundit.com/2021/11/cardiologist-said-wont-cry-funeral-selfish-unvaccinated-people-suddenly-dies-sleep-2-weeks-3rd-covid-jab/)
-
-* * *
-
-*素材来源：**jiasen*
-
-*编辑**& 发布：jamie(文胤)*
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

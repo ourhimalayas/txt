@@ -2,32 +2,41 @@
 ---
 
 
-## 有声|远离比注射疫苗更毒的口服疫苗！
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1662116/)
+## 世上最大3D打印社区将于明年在德克萨斯州奥斯汀动工
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662286/)
 
-配音：香草山教育部 – 蒙古鸿雁
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-11月10日七哥在大直播中披露了在欧洲的科学家透露的关于口服疫苗的内幕。口服药是当年用于对付艾滋病，性病，以及非洲的痢疾、霍乱的药方。它是激素，连续吃几天脖子就会跟脑袋一样粗。其危害对癌症患者或曾经做过手术的人尤其巨大。它可能会严重诱发心脏病，特别是对有糖尿病病史的患者来说，极其危险。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ICON_Lennar_BIG_100-hm_Community_In-progressConstruction_ConceptRender.jpg)
 
-看来，最近被炒得沸沸扬扬的口服疫苗甚至比注射疫苗更加可怕！归纳起来主要有以下两点：
 
-1.它是口服疫苗，不像注射疫苗一样直接进入血液，造成血管堵塞，导致心肌炎、心包炎、脑梗等等。它是通过服用而进入胃部，分解以后直接影响神经系统，然后进入血液。它的副作用是慢慢产生的。它不仅将对人的神经和血液循环系统、消化系统造成毁灭性伤害，而且还在不知不觉中就让人患心梗、脑梗、癌症、以及其它慢性病。口服疫苗何其歹毒！
 
-2.更容易通过药监局的审查和蒙蔽民众！阴险狡猾的无良疫苗制造商犹如白骨精一般千方百计地变换花样来谋财害命！可是他们难逃七哥的火眼精金，邪恶和丑恶的白骨精们在七哥以及跟随七哥的有良知的科学家持有的照妖镜里原形毕露，无处遁形！
+图片来源：www.archdaily.com
 
-成千上万个跟随七哥的战友们将不遗余力地向家人，朋友以及世界传播真相，从而让大家远离口服疫苗。新中国联邦将成为邪恶的CCP以及黑暗势力的掘墓人，成为照亮世界的希望的灯塔！
 
-文字版原文：[远离比注射疫苗更毒的口服疫苗](https://gnews.org/zh-hans/1654808/)
+#### 编译：小红帽
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国第二大房屋建筑商Lennar公司与专门从事大型3D打印的技术先驱ICON公司合作，使用一台巨型3D打印机在现场”打印”100栋单层房屋，以铺设混凝土建筑材料。
+
+Lennar联合首席执行官乔恩·贾菲(Jon Jaffe)最近强调，整个建筑行业面临着材料短缺和成本飞涨的问题。为了解决这个问题，该公司正在转向3D打印业务。
+
+ICON的3D打印技术可以打印出高达3000平方英尺的房屋，而且与传统方法相比，时间更短，浪费更少。
+
+“建筑规模的3D打印不仅可以更快、更经济地提供更高质量的房屋，而且打印机车队可以改变整个社区的建设方式，使其变得更好。ICON联合创始人兼首席执行官杰森·巴拉德（Jason Ballard）说：”美国面临着大约500万套新房的赤字，因此，在不影响质量、美观或可持续性的情况下，迅速增加供应量是一个迫切的需要，这正是我们技术的优势所在。
+
+随着供应链的中断和商品成本的飙升，我们已经开始注意到越来越多的房屋被3D打印出来。因为木材价格处于历史高位，建造房屋不经济。今年早期，佛罗里达州和弗吉尼亚州的房屋被打印出来。现在，奥斯汀的整个社区也即将被打印出来。
+
+**参考新闻：**[World’s Largest 3D-Printed Neighborhood Coming To Austin, Texas  | ZeroHedge](https://www.zerohedge.com/technology/worlds-largest-3d-printed-neighborhood-coming-austin-texas)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
