@@ -2,35 +2,48 @@
 ---
 
 
-## 有声|迈阿密向居民发放虚拟币收益
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1663829/)
+## 日本防疫措施放宽拟取消活动人数上限
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1663878/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+作者：澳喜农场 – 在远方
 
 
-11月11日，美国迈阿密市市长苏亚雷斯宣布，该市将直接向居民发放比特币收益作为股息红利，其收益来自迈阿密城市加密货币 MiamiCoin 的抵押。
 
-资料显示，迈阿密城市加密货币 MiamiCoin 于今年年初推出。在过去三个月中，该加密货币为迈阿密赚取了超过 两千一百万美元的收益，相当于迈阿密每年税收总额的五分之一。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-苏亚雷斯补充，从长远来看，加密货币的使用将是革命性的。该市将与各种加密货币交易所合作，允许当地居民注册并验证加密货币交易系统，使得居民可以通过数字钱包进行交易。
 
-对此，郭先生在直播中强调，虚拟货币是未来经济发展的趋势，新的经济秩序、社会秩序以及国际秩序也将因此重建。
 
-文字版原文：[迈阿密向居民发放虚拟币收益](https://gnews.org/zh-hans/1660633/)
+11月12日，在日本政府即将出台的中共病毒疫情对策中，对民众放宽了行动限制，提出都、道、府、县安全计划，取消大型活动的人数限制。即使今后再度发布紧急状态，如果能利用“提交疫苗接种证明，或者检测阴性证明均可”的机制，就允许该活动放宽至可容纳人数的100%，同时餐饮店的人数限制也将取消。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+据悉，日本政府最快将在本月19日咨询专家，修改目前作为防疫对策指针的“基本应对方针”，争取在下一步，有关民众跨都、道、府、县的旅行或者出差，即便在紧急事态下，当事人只要提供疫苗接种证明或者检测阴性证明，都会被政府同意放行。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.3.jpg)
+参考链接：
+[日本防疫措施放宽方案拟取消活动人数上限](https://china.kyodonews.net/news/2021/11/5d2acbe193d5.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：飞虹
+编辑：文特
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

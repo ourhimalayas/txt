@@ -2,26 +2,12 @@
 ---
 
 
-## 香草山翻译部周刊|2021年11月14日第22期
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1663999/)
+## 使用呼吸机的71岁男子注射一针伊维菌素后开始好转
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664122/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
+11/12/2021 伊利诺伊州内珀维尔——郊区正在展开另一场伊维菌素大战。周一，当地一个家庭赢得了一场法律诉讼，以获得批准向一名自 10 月 19 日以来一直使用呼吸机的感染中共病毒的71 岁男子服用伊维菌素。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/text-CN-2.png)
-文章仅代表作者本人观点，与Gnews无关
-
-总编： GBWater
-编辑： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

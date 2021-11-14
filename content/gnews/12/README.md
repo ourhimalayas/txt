@@ -2,38 +2,38 @@
 ---
 
 
-## 文贵爆料11.14： 盛开国际体育李红和2008年北京奥运会
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1663913/)
+## 批准的辉瑞儿童新冠疫苗外加研究实验室常用的化学物
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1664022/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图像-2.jpg)
-图片来源：Miles Gettr
+作者: TCC
+![](https://assets.gnews.org/wp-content/uploads/2021/11/new-covid19-feature-graphic-1600x900-final-1.jpg)网络图片
+10 月 29 日，美国食品和药物管理局 (FDA) 经由紧急使用授权用于5 至 11 岁儿童的辉瑞新冠疫苗。辉瑞公司在10 月 26 日发布一份关于新的儿童用新冠疫苗的官方文件（参考文献 1. 第 14 页疫苗配方）显示，这种“新”版本的新冠疫苗含有一种新成分-氨丁三醇 (Tris)。这种 Tris 缓冲液用于替代以前使用的磷酸盐缓冲盐水 (PBS) 缓冲液。
 
-李红，1991 年毕业于清华土木工程系以后，李红来到美国，先在亚利桑那州立大学取得硕士文凭，当了4 年工程师之后，又来到哈佛商学院攻读MBA。除了清华和哈佛的教育之外，她在世界无线通讯领域的顶尖公司高通公司当工程师和市场推广。
+Tris 缓冲液通常用于研究实验室，以稳定许多实验室试剂和溶液的酸碱值。其医学适应症是维持血液酸碱值并治疗代谢性酸中毒（由于感染或其他代谢状况导致血液酸碱值降至正常范围以下）。
 
-2003年36岁的李红就担任2008国际奥委会（IOC）北京代表处首席代表，负责IOC在中国的市场运营、品牌维护、理念传播及与北京奥组委的事务协调，同政府高官、IOC高层、顶级赞助商、知名运动员均有广泛接触，是北京奥运会最重要的见证人之一。
+任何化学品或药物都有其副作用。 Tris 有许多已知的副作用，包括血管炎症、血糖水平降低、抑郁、肝细胞损伤、皮肤过敏等（参见参考文献 2）。
 
-结束2008年奥运使命后，李红创办**盛开国际体育**，代理奥运会、世界杯、欧洲杯在中国地区的贵宾接待业务。今天，盛开国际体育的办公室分别设在在北京和奥委会所在地瑞士。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-63.png)
-图片来源：盛开体育网站
+辉瑞在5-11岁儿童的临床试验中，存在许多的问题，包括样本人数少（750名儿童）和追踪时间短（第2针剂后17天就截止追踪，请参见参考文献3）。
 
-2012年《人物周刊》采访李红：你现在商业上的很多合作伙伴都是奥运期间结下的友谊？这种友谊有什么特殊之处？
+知道这些，你还会考虑让你的孩子接种这个实验性基因物质吗？
 
-李红回答：我们之间有非常深的信任，类似于一起插队、一起当兵的感情。那是一种和平时期罕见的生死考验。
+相关资料网页:
 
-打开盛开体育的网站，映入眼帘的是盛大成功运作中共国企业对奥委会的赞助，其中包括：**阿里巴巴、海信**。
+1. [https://www.fda.gov/media/153447/download](https://www.fda.gov/media/153447/download)
+2. [https://www.drugs.com/cdi/tromethamine.html](https://www.drugs.com/cdi/tromethamine.html)
+3. [https://theexpose.uk/2021/11/01/pfizer-adds-ingredient-to-vaccine-for-kids-that-treats-heart-attacks/](https://theexpose.uk/2021/11/01/pfizer-adds-ingredient-to-vaccine-for-kids-that-treats-heart-attacks/)
 
-2017年，阿里巴巴成为国际奥委会顶级赞助商，合作期限至2028年。盛开体育从2016年1月开始就为本项目而努力，最终收获了成果。
 
-2016年，在盛开体育的支持和协助下，海信成为2016年欧洲杯的顶级赞助商，这是欧洲杯设立56年以来首个中国顶级赞助商。
+* * *
 
-2013年，盛开体育促成了迪拜对中国乒乓球队的里程碑式赞助协议，这是中国乒乓球队历史上第一个国际赞助商，同时也是史上第一次有城市作为赞助商赞助中国运动队。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-24.png)
-参考来源：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-1. [盛开体育](http://www.shankaisports.com/?page_id=156)
 
-[2. 搜狐](http://2008.sohu.com/20070324/n248948576.shtml)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 

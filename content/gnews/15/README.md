@@ -2,23 +2,27 @@
 ---
 
 
-## 11月12日文贵大直播精剪汇编——中集
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1663885/)
+## 香草山翻译部周刊|2021年11月14日第22期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1663999/)
 
-撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
 
-视频：Angelsky
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/text-CN-2.png)
+文章仅代表作者本人观点，与Gnews无关
 
-在11月12日的大直播中，文贵先生透露了有关中国共产党六中全会的最新情报和资讯，同时也提到了恒大爆雷选择在六中全会之后的理由。首先一个原因，就是要保证六中全会能够开好。而恒大过后紧接着就是融创、富力、万达等的房企。
+总编： GBWater
+编辑： Lakers
+发稿： Lakers
 
-中共国近四十家银行的股票跌破其净资产，这在历史上是从来没有出现过的局面。至于中共国的金融机构，目前也是基本上100%处于赔钱的状态。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
 
-因此在目前供应链崩塌的背景下，本届美国政府仍然打算与中共国一同继续画大饼来忽悠百姓，同时希望中共国在金融领域能避免快速的全部垮台。这一切都是为了确保中期选举民主党不会面临失败的境地。
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-面对习神近乎羞辱式的外交方略，美国、欧洲以及西方已经感受到了相当大的威胁。回到台湾问题方面，拜登总统和他的美国政府对与中共对于台湾的军事行动是非常忌惮的。文贵先生表示台积电一旦没了，全世界的供应链就不是崩塌那么简单，而是直接断裂。
-
-（文章内容仅代表作者观点，与Gnews平台无关）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
