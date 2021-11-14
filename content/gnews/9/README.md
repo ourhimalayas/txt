@@ -2,29 +2,35 @@
 ---
 
 
-## 澳洲将12岁以下儿童接种COVID-19疫苗的时间推迟到2022年
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1662149/)
+## 英格兰银行考虑放宽抵押贷款规定
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662155/)
 
 #### **【雅典娜快讯】，紧贴时事脉搏**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/Untitled.jpg)圖片來源：resources0.news.com.au
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Bank-of-England.jpg)
+
+
+ 
+图片来源： www.bnreport.com
 
 
 #### 编译：小红帽
 
-尽管澳大利亚联邦政府从海外获得了500万剂中共病毒（COVID-19）疫苗，但12岁以下儿童将等到2022年才能接种。
+英格兰银行正在考虑放宽抵押贷款规定，此举可能会促进房价上涨。
 
-澳大利亚卫生当局正在等待来自美国的更多数据，然后才能批准12岁以下儿童接种中共病毒疫苗 。
+由行长安德鲁·贝利(Andrew Bailey)领导的英国中央银行将在下个月宣布，贷款人是否可以增加他们发放的大额抵押贷款的数量。
 
-预计儿童疫苗推广工作将于明年1月开始，并在该月底返校前逐步推进。
+银行在向需要超过其工资4.5倍的借款人提供住房贷款是有限制的。这些客户在银行发放的新贷款中的比例不得超过15%。
 
-有消息称，本周仅新南威尔士州就有17所学校因中共病毒问题而被迫关闭。
+英格兰银行在上个月的更新中提到了这些规定，称 “没有证据表明贷款标准恶化或高负债家庭的数量大幅增加”。
 
-在获得的500万剂儿童疫苗中，其中460万剂将用于5至11岁的儿童。
+这些规定–被称为“压力测试”–是在金融危机后制定的，旨在确保银行有足够的弹性，能够承受借款人在利率飙升后陷入财务困境。
 
-其余的疫苗将用于0至4岁的儿童，他们可能只会接种一剂疫苗。
+这将意味着，那些买不起第一套房产或无法借到足够资金的人将有机会买房。理论上，这将推高房价。
 
-**参考新闻：**[Coronavirus vaccine updates: Children under 12 to wait until 2022 for COVID-19 vaccination (9news.com.au)](https://www.9news.com.au/national/coronavirus-vaccine-updates-children-under-12-to-wait-until-2022-for-covid-19-vaccination/29765bad-bfe9-47d5-8cf8-6a927a50e35a)
+一些银行和建筑协会已经开始提供更大的贷款额度。Nationwide在4月表示，正在将首次购房者的贷款额度提高到其年收入的5.5倍，尽管借款人需要锁定至少5年。（注：Nationwide是世界上最大的建筑协会，也是最大的储蓄供应商之一，是英国前三大抵押贷款供应商。）
+
+**参考新闻：**[Bank of England considering easing mortgage rules (msn.com)](https://www.msn.com/en-au/money/other/bank-of-england-considering-easing-mortgage-rules/ar-AAQFQ91?ocid=msedgntp)
 
 ***发布：小红帽***
 
