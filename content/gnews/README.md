@@ -15,116 +15,116 @@
 
 ---
 
-### [中共六中全会加剧内部绞杀](/content/gnews/1/README.md)
+### [批准的辉瑞儿童新冠疫苗外加研究实验室常用的化学物](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共六中全会加剧内部绞杀](/content/gnews/2/README.md)
  ` 波士顿五月花农场`
 
-### [香草山翻译部周刊|2021年11月14日第22期](/content/gnews/2/README.md)
+### [香草山翻译部周刊|2021年11月14日第22期](/content/gnews/3/README.md)
  ` 纽约香草山MOS01`
 
-### [文贵爆料11.14：郭文贵先生警告全球华人全球黄种人，黑暗已经到来](/content/gnews/3/README.md)
+### [文贵爆料11.14：郭文贵先生警告全球华人全球黄种人，黑暗已经到来](/content/gnews/4/README.md)
  ` 秘密翻译组-原创组`
 
-### [第45届美国总统唐纳德·j·川普(Donald J. Trump)发表声明](/content/gnews/4/README.md)
+### [第45届美国总统唐纳德·j·川普(Donald J. Trump)发表声明](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [GTV新闻访谈简报|2021年11月14日早](/content/gnews/5/README.md)
+### [GTV新闻访谈简报|2021年11月14日早](/content/gnews/6/README.md)
  ` 纽约香草山MOS01`
 
-### [文贵爆料11.14： 盛开国际体育李红和2008年北京奥运会](/content/gnews/6/README.md)
+### [文贵爆料11.14： 盛开国际体育李红和2008年北京奥运会](/content/gnews/7/README.md)
  ` 秘密翻译组-原创组`
 
-### [美国制止英特尔在中共国的芯片增产计划](/content/gnews/7/README.md)
+### [美国制止英特尔在中共国的芯片增产计划](/content/gnews/8/README.md)
  ` GTV新闻访谈`
 
-### [11月12日文贵大直播精剪汇编——下集](/content/gnews/8/README.md)
+### [11月12日文贵大直播精剪汇编——下集](/content/gnews/9/README.md)
  ` 澳喜特战旅Gnews`
 
-### [11月12日文贵大直播精剪汇编——中集](/content/gnews/9/README.md)
+### [11月12日文贵大直播精剪汇编——中集](/content/gnews/10/README.md)
  ` 澳喜特战旅Gnews`
 
-### [全球最大财经新闻社——彭博社为喜币“造势”](/content/gnews/10/README.md)
+### [全球最大财经新闻社——彭博社为喜币“造势”](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [日本防疫措施放宽拟取消活动人数上限](/content/gnews/11/README.md)
+### [日本防疫措施放宽拟取消活动人数上限](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [第五上诉法院确认暂停拜登中共病毒疫苗授权](/content/gnews/12/README.md)
+### [第五上诉法院确认暂停拜登中共病毒疫苗授权](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [日本或将主办美日澳印四国集团第二次面对面峰会](/content/gnews/13/README.md)
+### [日本或将主办美日澳印四国集团第二次面对面峰会](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [11月12日文贵大直播精剪汇编——上集](/content/gnews/14/README.md)
+### [11月12日文贵大直播精剪汇编——上集](/content/gnews/15/README.md)
  ` 澳喜特战旅Gnews`
 
-### [有声|美十州医护人员起诉新冠疫苗强制令](/content/gnews/15/README.md)
+### [有声|美十州医护人员起诉新冠疫苗强制令](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [花旗集团前首席执行官表示：所有大银行很快就会进行加密交易](/content/gnews/16/README.md)
+### [花旗集团前首席执行官表示：所有大银行很快就会进行加密交易](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [有声| 美国CDC承认：没有未接种疫苗者于康复后传播Covid的记录](/content/gnews/17/README.md)
+### [有声| 美国CDC承认：没有未接种疫苗者于康复后传播Covid的记录](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [有声|迈阿密向居民发放虚拟币收益](/content/gnews/18/README.md)
+### [有声|迈阿密向居民发放虚拟币收益](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [2021年11月14日文贵先生直播大雨围城速记](/content/gnews/19/README.md)
+### [2021年11月14日文贵先生直播大雨围城速记](/content/gnews/20/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [有声|郭先生联合正义力量 西班牙秘密营救马云](/content/gnews/20/README.md)
+### [有声|郭先生联合正义力量 西班牙秘密营救马云](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [有声| 班农先生被控藐视国会](/content/gnews/21/README.md)
+### [有声| 班农先生被控藐视国会](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [有声|中共疫苗灾难致大陆一线医护人员短缺](/content/gnews/22/README.md)
+### [有声|中共疫苗灾难致大陆一线医护人员短缺](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [2021年11月14日文贵先生直播小飞象大雨围城速记](/content/gnews/23/README.md)
+### [2021年11月14日文贵先生直播小飞象大雨围城速记](/content/gnews/24/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [习近平暗示想加入TPP 被岸田文雄泼冷水](/content/gnews/24/README.md)
+### [习近平暗示想加入TPP 被岸田文雄泼冷水](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [奥布莱恩敦促拜登与习会晤不要越线](/content/gnews/25/README.md)
+### [奥布莱恩敦促拜登与习会晤不要越线](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [有声|以色列科学家怒斥疫苗不良事件数据造假](/content/gnews/26/README.md)
+### [有声|以色列科学家怒斥疫苗不良事件数据造假](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [主流媒体隐瞒体坛明星接种疫苗猝死的真相](/content/gnews/27/README.md)
+### [主流媒体隐瞒体坛明星接种疫苗猝死的真相](/content/gnews/28/README.md)
  ` 澳喜农场`
 
-### [11/14/21 香港快讯 【47人案】原定月尾再讯 消息﹕律政司申请延至明年2月](/content/gnews/28/README.md)
+### [11/14/21 香港快讯 【47人案】原定月尾再讯 消息﹕律政司申请延至明年2月](/content/gnews/29/README.md)
  ` 英喜-粵語組`
 
-### [中共泯灭天良，继续给儿童注射毒疫苗](/content/gnews/29/README.md)
+### [中共泯灭天良，继续给儿童注射毒疫苗](/content/gnews/30/README.md)
  ` 波士顿五月花农场`
 
-### [COP26在最后一刻达成妥协](/content/gnews/30/README.md)
+### [COP26在最后一刻达成妥协](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄罗斯开始向印度交付S-400防空导弹系统](/content/gnews/31/README.md)
+### [俄罗斯开始向印度交付S-400防空导弹系统](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [银河快讯：日本将向数字产业投资4000亿日元；食用油价格今年第四次上调](/content/gnews/32/README.md)
+### [银河快讯：日本将向数字产业投资4000亿日元；食用油价格今年第四次上调](/content/gnews/33/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [串珠449:中共领导不是人人喊打，而是人人喊杀！](/content/gnews/33/README.md)
+### [串珠449:中共领导不是人人喊打，而是人人喊杀！](/content/gnews/34/README.md)
  ` 郭爆料串珠`
 
-### [DC每日热点1114](/content/gnews/34/README.md)
+### [DC每日热点1114](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [挪威著名越野滑雪天才因接种中共病毒疫苗被 “淘汰’’](/content/gnews/35/README.md)
+### [挪威著名越野滑雪天才因接种中共病毒疫苗被 “淘汰’’](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [银河快讯:丰田日本工厂下月全部恢复；日美将就审查附加钢铝关税举行会谈](/content/gnews/36/README.md)
+### [银河快讯:丰田日本工厂下月全部恢复；日美将就审查附加钢铝关税举行会谈](/content/gnews/37/README.md)
  ` 日本银河系农场-阿尔法星球`
-
-### [丰田加速推动氢燃料•生物燃料汽车的研发](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [11/14/2021国内经济财经周报：喜币暴涨引各方侧目；沈南鹏抛售美团拼多多股份](/content/gnews/38/README.md)
  ` 秘密翻译组金融团队`
