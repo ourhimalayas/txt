@@ -16,6 +16,8 @@
 ---
 ## 頁面 6/37 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [37](/content/README-37.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
 
+[全文字版2021年5月27日郭文贵先生G-TV直播:新中国联邦拯救了世界](/content/2021/05/20210527-1277441.md)
+
 [全文字版2021年5月23日郭文贵先生G-TV直播](/content/2021/05/20210523-1268679.md)
 
 [全文字版2021年5月19日郭文贵先生G-TV直播](/content/2021/05/20210519-1259336.md)
@@ -63,8 +65,6 @@
 [文字版2021年1月4日郭先生GTV直播](/content/2021/01/20210104-729873.md)
 
 [文字版2021年1月1日郭先生GTV直播](/content/2021/01/20210101-728304.md)
-
-[2020年12月27日郭先生大使馆群聊内容整理-附听写文字版](/content/2020/12/20201227-698031.md)
 
 
 ## 頁面 6/37 [**<**](/content/README-5.md) [1](/content/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [37](/content/README-37.md) [**>**](/content/README-7.md) [查看全部](/content/README-all.md)
