@@ -2,33 +2,25 @@
 ---
 
 
-## 日台交流高峰会：神户宣言挺台加入国际组织
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1661508/)
+## 美联邦法院驳回拜登欲解除【强制接种暂停令】的申诉
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1661880/)
 
-作者：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-由日台议员组成的第七届日台交流高峰会于11月12日在日本神户市盛大举办。 会中双方发表神户宣言，内容包括：加强日台在经济、文化、教育、医疗、防灾等领域的交流；尽速制订“日台关系基本法”；加强推动力量，帮助台湾参与世界卫生组织、国际民用航空组织、国际刑警组织等。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture77-4.jpg)
-10月，中共驻大阪总领事馆打电话向神户市施压，要求停办峰会。消息曝光后，引起日本各地议员的反感，反而促使了他们积极参与此次峰会。
+采编：文莱   编译撰稿：文明(添草灭共)
 
-台湾驻日代表—谢长廷亲自与会，感谢日本各地议员对台湾的支持。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-29-edited.jpg)图片来源：CTV
 
-参考链接：[日台交流高峰会：神户宣言挺台加入国际组织](https://www.cna.com.tw/news/firstnews/202111130002.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+据【路透社】11月12日报道，针对美国总统“新冠病毒疫苗”强制接种政策被德克萨斯等11个州政府反对并联合发起的诉讼，联邦【第五巡回上诉法院】经审理后于本月6日对该政策发布了暂停令。拜登政府于8日晚对此做出回应，要求联邦法院解除该禁止令，但原告此项申诉最终被驳回。
 
-总编：飞虹
-编辑：木白
-校对/发稿：Hetangyuese
+拜登政府在其诉求中辩称，由于【联邦职业安全健康管理局】要求的接种疫苗及病毒检测的截止日期是明年1月份，因此，目前衡量该政策所造成的伤害为时过早。同时，暂停疫苗接种令可能会导致病毒的更广泛传播，并造成大量民众因此染病或丧生。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+为此，联邦【第五巡回上诉法院】进行审议并提出，该强制接种政策未考虑各种工作环境及个人状况的差异而采取“一刀切”的做法不切实际。同时，该规定也违反了《美国宪法》并剥夺了个人自由权利。因此，法院最终作出本轮裁决：维持暂停令并驳回拜登政府的以上诉求。
 
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://www.reuters.com/world/us/federal-appeals-court-affirms-stay-biden-vaccine-mandate-2021-11-12/)
 
  
 

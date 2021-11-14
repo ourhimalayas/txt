@@ -2,25 +2,32 @@
 ---
 
 
-## 美联邦法院驳回拜登欲解除【强制接种暂停令】的申诉
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1661880/)
+## GTV新闻访谈简报|2021年11月13日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1662173/)
 
-采编：文莱   编译撰稿：文明(添草灭共)
+作者：香草山翻译部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-29-edited.jpg)图片来源：CTV
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
 
 
-据【路透社】11月12日报道，针对美国总统“新冠病毒疫苗”强制接种政策被德克萨斯等11个州政府反对并联合发起的诉讼，联邦【第五巡回上诉法院】经审理后于本月6日对该政策发布了暂停令。拜登政府于8日晚对此做出回应，要求联邦法院解除该禁止令，但原告此项申诉最终被驳回。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1113text-SC.png)
+校对：Stay文苑
 
-拜登政府在其诉求中辩称，由于【联邦职业安全健康管理局】要求的接种疫苗及病毒检测的截止日期是明年1月份，因此，目前衡量该政策所造成的伤害为时过早。同时，暂停疫苗接种令可能会导致病毒的更广泛传播，并造成大量民众因此染病或丧生。
+编辑：Stay文苑
 
-为此，联邦【第五巡回上诉法院】进行审议并提出，该强制接种政策未考虑各种工作环境及个人状况的差异而采取“一刀切”的做法不切实际。同时，该规定也违反了《美国宪法》并剥夺了个人自由权利。因此，法院最终作出本轮裁决：维持暂停令并驳回拜登政府的以上诉求。
+发稿：Stay文苑
 
-* * *
+视频参看：[11.13  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61906662e7e7703792349b58)
 
-校对编辑，发稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
 
-[原文链接：](https://www.reuters.com/world/us/federal-appeals-court-affirms-stay-biden-vaccine-mandate-2021-11-12/)
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
 
  
 

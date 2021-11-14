@@ -2,24 +2,43 @@
 ---
 
 
-## 可悲！媒体自豪的宣布日本政府疫苗接种的政绩
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1662441/)
+## 黑客侵入FBI网络安全系统发邮件“警告”将有网络攻击
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1662487/)
 
-#### 撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-85.png)（图片源自本文链接）
-共同通信社11月13日发表了题为【ワクチン月末に「完了」91％　12月3回目実施、新局面に】的文章。题目大意为：本月底前日本会完成91%的疫苗接种，12月将进入第三轮接种的新阶段。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-关于中共病毒疫苗项目，共同社在11月13日的调查中了解到，日本县级政府所在地的47个市中有43个（达91.5%）将在11月底前”完成”两剂疫苗的接种。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/fbi-email-970.jpg)
 
-预计第三针追加疫苗接种的全部细节将于11月15日得到明确结果，定于12月开始实施的该项目将进入新的阶段。根据政府数字（12月12日发布），9909万人（占总人口的78.2%）至少完成了第一次接种，已接近1亿人。9458万人（74.7%）完成了第二次接种。
 
-信息来源:[ワクチン月末に「完了」91％　12月3回目実施、新局面に](https://news.yahoo.co.jp/articles/f028cebe4f71a307635976625e65534c263eefb9)
 
-这种被当作政府的政绩，极具自豪感报道出来的，越来越大的数字，意味着什么？细思极恐！
+图片来源：www.komando.com
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+
+#### 编译：小红帽
+
+据美国联邦调查局和安全专家称，黑客入侵了美国联邦调查局（FBI）的电子邮件系统，并发送了数以万计的信息，警告可能发生的网络攻击。
+
+联邦调查局周六在一份声明中说，假的电子邮件似乎来自一个以@ic.fbi.gov结尾的合法联邦调查局电子邮件地址。
+
+联邦调查局表示，尽管受该事件影响的硬件“在发现问题后迅速下线，”并补充道 “这是一个持续的情况”。
+
+威胁追踪组织Spamhaus Project在其推特账户上表示，黑客发送了数万封电子邮件，警告可能发生网络攻击。
+
+Spamhaus在推特上发布的一封电子邮件的副本显示，主题栏为 “紧急。系统中的威胁行为者 ”，后面似乎有国土安全部的签字。联邦调查局是司法部的一部分。
+
+联邦调查局的声明说，联邦调查局和网络安全与基础设施安全局都知道这一事件。
+
+**参考新闻：** [Email hackers penetrate FBI cyber security system (thenewdaily.com.au)](https://thenewdaily.com.au/life/tech/2021/11/14/hackers-penetrate-fbi-emails/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
