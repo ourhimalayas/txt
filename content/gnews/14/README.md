@@ -2,54 +2,132 @@
 ---
 
 
-## 崩溃：CDC 无法提供先前感染冠状病毒后具有自然免疫力病例数据
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1667522/)
+## 喜美元未来绝对是和法币挂钩的数字货币之王
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1667528/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-11_14_2021-7_37_59-PM-scaled-3.jpg)网络图片
-摘要翻译：
+[https://gtv.org/video/id=6191cfb218270250810564a9](https://gtv.org/video/id=6191cfb218270250810564a9)
 
-疾病控制与预防中心已多次被发现操纵统计数据，以在美国人中制造一种永久的恐惧状态——所有这些都是为了欺骗人们接种冠状病毒“疫苗”。
+我相信喜美元未来他是绝对的和法币挂钩的数字货币当中之王
+Yo confío que el HDO es definitivamente el rey de la moneda digital vinculada a la moneda legal en el futuro
 
-但CDC似乎完全不愿意做的一件事，那就是记录下那些以前被感染过产生自然免疫的，疫苗往好了说是多余的，往坏了说就是有害的。
+为什么, 它有3个谁都无法代替的因素
+¿ Por qué? Esto tiene tres razones irreemplazables
 
-一个确凿的证据表明CDC要么没有研究这个问题，要么以其它方式掩盖了这项研究。当被要求出示CCP冠状病毒在先前感染者中传播的文件时，该国首屈一指的公共卫生机构措手不及。
+它毕竟有十几亿中国人的这种市场的潜力
+Después de todo, tiene el potencial de este tipo de mercado de mil millones de chinos
 
-在通过卫生与公共服务部给CDC的一封信中，律师伊丽莎白·布雷姆发出了“最终通知”，要求提供此类信息。这是布雷姆收到的令人困惑的回应：
+可能性就是灭了共和不灭共
+La posibilidad es eliminar o no al Partido Comunista
 
-令人震惊的是，如果疾病预防控制中心，想证明接种疫苗的人的传播率低于之前感染的人，人们会认为疾病预防控制中心会大力宣传这些证据。然而，正如这封信所表明的那样，它显然对这个问题不感兴趣，或者以其它方式阻止数据公之于众。
+这是大的使用者
+Este es el usuario más grande
 
-彭博新闻10月指出，医学杂志《柳叶刀》发表的一项研究进一步证实，接种疫苗的人传播德尔塔病毒的几率几乎与未接种疫苗的人一样高。
+我们战友这个规模在这摆着呢
+Es la escala de nuestros compañeros luchadores
 
-彭博社报道称：“根据新的研究，接种了冠状病毒疫苗的人将病毒的德尔塔变体传播给家庭中的接触者的可能性，与没有接种过疫苗的人一样。”
+我相信战友未来会突破千万的, 突破一千万
+Yo confío que en un futuro los compañeros luchadores sobrepasarán los diez millones
 
-所有未接种疫苗的人中进行的，显然还没有关于“先前感染者”的此类医学研究发表。从 CDC为推动普及疫苗接种所做的不懈努力来看，这很能说明为什么他们对披露此类信息不感兴趣.
+很快
+Pronto
 
-正如《贝克尔新闻》(Becker News)早些时候报道的那样，疾病预防控制中心已经悄悄承认，至少有1.466亿美国人“以前被感染过”。这可能还是低估了。
+你看到盖特人的增长
+Verás el crecimiento de usuarios en GETTR
 
-尽管1.466亿是一个庞大的数字，至少占美国人口的44%，但根据CDC的计算，这个数字应该更高。因为CDC估计，每个报告的病例至少有四个人感染新冠病毒，既然我们有 4690万报告病例，那么将有1.876亿美国人在“以前被感染过”。
+未来两到三个月
+En los próximos dos a tres meses
 
-但是，如果每个人都有突破性病例和重复病例，这将导致一些不确定性。一个安全的估计是，有1.6亿人通过先前的感染感染了新冠病毒。这将导致大量美国人以“自然免疫”的方式从新冠病毒感染中幸存下来。
+你会看到咱们这个喜连储的增长
+Podrás ver el crecimiento de nuestra Reserva Federal de Himalaya
 
-关于“自然免疫”的研究一直是强大而一致的：它提供比“疫苗”更好的保护。路透社报道了一项研究，直言不讳地说“感染后的二次免疫反应比接种疫苗更强。” 以色列早些时候进行的一项研究得出了类似的结论。
+那这个市场在这摆着
+Y dejar este mercado aquí
 
-约翰·霍普金斯大学的一位教授也在进行一项研究，以迫使CDC和FDA承认存在自然免疫力，这是对新冠病毒的有效防御。对于一个本应关注“健康”而不是推进政治议程的政府机构来说，这不应该是必要的。
+没有人可以替代
+Nadie lo reemplazará
 
-简评：
+第二个就是这个喜美元跟这个整个喜连储的这个结构
+La segunda razón es el HDO con la estructura de toda la Reserva Federal de Himalaya
 
-美国疾病控制与预防中心本应关注健康，而不是推进政治议程的政府机构，它更应该去推广、倡导自然免疫，反而热衷于推广人们接种疫苗。安全有效的COVID-19病毒感染后的治疗方案和管理策略，是存在且有效的，但却没有提供给最需要的美国人。理由却是因为这些疫苗对中共病毒及其德尔塔变种可以产生足够的免疫力，但仍有许多潜在的研究没有结束，且尚未对实际数据及其结论进行独立审查或验证。这篇报道让人深深感受到，美国的政府机构的官僚，被CCP渗透到无孔不入的地步了。
+交易所的整个挂钩
+Toda la vinculación del intercambio
 
-新闻链接：[BUSTED: CDC Unable to Document a Single Case of Covid Transmitted from a Previously Infected Person to Another](https://beckernews.com/busted-cdc-unable-to-document-a-single-case-of-covid-transmitted-from-a-previously-infected-person-to-another-42990/)
+我觉得天下没有几个
+Yo digo que no hay casi nadie en este mundo
 
-* * *
+没有几个
+Casi ninguno
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+到目前还没看见
+Hasta ahora no he visto
 
+即使有它也跟不上我们的
+Y si hay, tampoco seguirá nuestro ritmo
 
-编辑：【英国伦敦喜庄园编辑部】
+我们是原创者
+Somos el creador original
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+第三个, 我们相信, 我们进来的大的机构投资者
+Y la tercera razón, nosotros confiamos en las grandes instituciones de inversores que entrarán
+
+每个人都是影响着世界命运的经济体
+Cada persona es la influencia del cuerpo económico del destino de este mundo
+
+也不会有几个, 你看到刚才所有的那些所谓这coinbase
+Tampoco habrá algunos, ves todo el llamado coinbase en este momento
+
+Kraken这些大多数
+Y Kraken, la mayorá de estos
+
+几乎没有一个像我们这个级别的投资
+Casi ninguno es del nivel de inversión como el de nosotros
+
+就没有, 这三条
+No lo hay, estas tres razones
+
+它决定了喜美元它在全球
+Determina al HDO en el mundo
+
+它一定是最大的流通的
+La circulación más grande
+
+所有货币, 买金融产品
+Todas las monedas, compra de productos financieros
+
+你买啥都能买
+Puedes comprar cualquier cosa
+
+只要是能买的东西你都能买
+Puedes comprar cualquier cosa que pueda ser comprado
+
+我相信未来一定会做到
+Confío que en un futuro puede llegar a ser así
+
+但是时间和方式
+Pero en cuánto tiempo o de qué manera
+
+这个我没法确定, 最终一定会达到的
+Esto no lo puedo asegurar, sin embargo, se logrará finalmente
+
+**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1457921740592406532?s=24](https://twitter.com/se1y7cblljselva/status/1457921740592406532?s=24)
+
+日期：11/12/2021
+原视频标题：喜美元未来绝对是和法币挂钩的数字货币之王
+El HDO es definitivamente el rey de la moneda digital vinculada a la moneda legal en el futuro
+原视频日期：11/09/2021
+任务编号：KC252（2826）
+视频时间段：0:00-1:37
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
