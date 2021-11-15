@@ -15,104 +15,104 @@
 
 ---
 
-### [有声| 喜币发行前后一错酿成千古恨](/content/gnews/1/README.md)
+### [《堡垒之夜》游戏即将关闭其在中共国游戏服务器说明什么？](/content/gnews/1/README.md)
+ ` 澳喜农场`
+
+### [声称奥地利最好的PCR检测系统被揭存在明显安全漏洞](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声| 喜币发行前后一错酿成千古恨](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [喜马拉雅币一周分析](/content/gnews/2/README.md)
+### [喜马拉雅币一周分析](/content/gnews/4/README.md)
  ` GTV新闻访谈`
 
-### [坎特推出反共鞋后，凯尔特人队令其长时间坐冷板凳](/content/gnews/3/README.md)
+### [坎特推出反共鞋后，凯尔特人队令其长时间坐冷板凳](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声| 习近平暗示想加入TPP 被岸田文雄泼冷水](/content/gnews/4/README.md)
+### [有声| 习近平暗示想加入TPP 被岸田文雄泼冷水](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [针下亡魂｜美国 45 岁知名漫画家接种疫苗后死亡](/content/gnews/5/README.md)
+### [针下亡魂｜美国 45 岁知名漫画家接种疫苗后死亡](/content/gnews/7/README.md)
  ` G&#124;News TAIWAN`
 
-### [喜币上市有感，作《水调歌头》贺之](/content/gnews/6/README.md)
+### [喜币上市有感，作《水调歌头》贺之](/content/gnews/8/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [美议员代表团结束对台访问，行程包含总统府和国防部](/content/gnews/7/README.md)
+### [美议员代表团结束对台访问，行程包含总统府和国防部](/content/gnews/9/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [疫苗无效 欧洲将面临第四波疫情的冲击](/content/gnews/8/README.md)
+### [疫苗无效 欧洲将面临第四波疫情的冲击](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [币圈新闻动态：喜币（HCN）价格14日突破30 HDO整数关口](/content/gnews/9/README.md)
+### [币圈新闻动态：喜币（HCN）价格14日突破30 HDO整数关口](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [国际要闻汇编11月15日](/content/gnews/10/README.md)
+### [国际要闻汇编11月15日](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11月14日文贵大直播精剪汇编](/content/gnews/11/README.md)
+### [11月14日文贵大直播精剪汇编](/content/gnews/13/README.md)
  ` 澳喜特战旅Gnews`
 
-### [美媒报道：美国将支持台湾对抗中共国的侵略](/content/gnews/12/README.md)
+### [美媒报道：美国将支持台湾对抗中共国的侵略](/content/gnews/14/README.md)
  ` 澳喜农场`
 
-### [有声|日台交流高峰会：神户宣言挺台加入国际组织](/content/gnews/13/README.md)
+### [有声|日台交流高峰会：神户宣言挺台加入国际组织](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [新南威尔士州发出东海岸重大洪水警告](/content/gnews/14/README.md)
+### [新南威尔士州发出东海岸重大洪水警告](/content/gnews/16/README.md)
  ` 走进澳洲`
 
-### [俄克拉荷马州挑战五角大楼，叫停国民警卫队的疫苗强制接种](/content/gnews/15/README.md)
+### [俄克拉荷马州挑战五角大楼，叫停国民警卫队的疫苗强制接种](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [DC大中华时事：中共称 “人民至上”](/content/gnews/16/README.md)
+### [DC大中华时事：中共称 “人民至上”](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [新西兰财经G乐部 2021年11月15日](/content/gnews/17/README.md)
+### [新西兰财经G乐部 2021年11月15日](/content/gnews/19/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [有声|日本或将主办美日澳印四国集团第二次面对面峰会](/content/gnews/18/README.md)
+### [有声|日本或将主办美日澳印四国集团第二次面对面峰会](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [澳洲上万民众抗议强制接种毒疫苗](/content/gnews/19/README.md)
+### [澳洲上万民众抗议强制接种毒疫苗](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [有声|日本防疫措施放宽拟取消活动人数上限](/content/gnews/20/README.md)
+### [有声|日本防疫措施放宽拟取消活动人数上限](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [19岁女孩被迫接种疫苗后出现严重健康问题](/content/gnews/21/README.md)
+### [19岁女孩被迫接种疫苗后出现严重健康问题](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [纳瓦罗做客班农战斗室谈疫情与经济问题](/content/gnews/22/README.md)
+### [纳瓦罗做客班农战斗室谈疫情与经济问题](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [中西方富豪对比](/content/gnews/23/README.md)
+### [中西方富豪对比](/content/gnews/25/README.md)
  ` 澳喜农场`
 
-### [中共为防楼市崩盘在21座城市发布“限跌令”](/content/gnews/24/README.md)
+### [中共为防楼市崩盘在21座城市发布“限跌令”](/content/gnews/26/README.md)
  ` 日本东京方舟农场`
 
-### [【小雨专栏】在路上042——风篇](/content/gnews/25/README.md)
+### [【小雨专栏】在路上042——风篇](/content/gnews/27/README.md)
  ` 温哥华扬帆农场`
 
-### [中共病毒及其疫苗全球超限战中的典型案例（二十二）](/content/gnews/26/README.md)
+### [中共病毒及其疫苗全球超限战中的典型案例（二十二）](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [韩国老龄化增速是日本的2倍，养老金是日本的一半](/content/gnews/27/README.md)
+### [韩国老龄化增速是日本的2倍，养老金是日本的一半](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [布林肯敦促北京和平解决台海两岸分歧](/content/gnews/28/README.md)
+### [布林肯敦促北京和平解决台海两岸分歧](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [中共病毒灾难带给人类的诸多影响才刚刚开始](/content/gnews/29/README.md)
+### [中共病毒灾难带给人类的诸多影响才刚刚开始](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德国接种中共病毒疫苗者发展成重症患者的比例猛增](/content/gnews/30/README.md)
+### [德国接种中共病毒疫苗者发展成重症患者的比例猛增](/content/gnews/32/README.md)
  ` 日本东京方舟农场`
 
-### [日本GDP大幅恶化，官房长官警示下行风险](/content/gnews/31/README.md)
+### [日本GDP大幅恶化，官房长官警示下行风险](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄克拉荷马州国民警卫队新任指挥官拒绝接受疫苗任务](/content/gnews/32/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [起底中共新冠特效药背后的“腾盛博药”，又见红衫、博裕、云峰](/content/gnews/33/README.md)
- ` 澳喜农场`
 
 ### [要创建人类新的信仰而且是找到生命真相的新的人类群体](/content/gnews/34/README.md)
  ` NewFOC`

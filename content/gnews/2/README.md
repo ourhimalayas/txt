@@ -2,46 +2,40 @@
 ---
 
 
-## 喜马拉雅币一周分析
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1665499/)
+## 声称奥地利最好的PCR检测系统被揭存在明显安全漏洞
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1665534/)
 
-作者：纽约香草山农场金融部 – ILOVE战神
+**【雅典娜快讯】，紧贴时事脉搏**
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Alles-gurgelt_NJ_cOEBBKurtPrinz01_750x422.jpg)
 
 
 
-过去一周喜马拉雅币价格从约$19上涨至$30.120，一周内涨幅突破58%。喜马拉雅币上市以来交易量突破1500万枚 ，占今年总发行量仅约1.5%。目前大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。本周喜马拉雅交易所的提现功能已经上线，每日提现上限10万美元，最低提现1000美元，手续费千分之一，最低100美元。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3.1-4.jpg)
-据郭文贵先生直播中透露，未来喜美元很快会开通有息存款，以HCN支付，利率会超过美国国债。战友们还可以用喜币进行抵押贷款，并将部分贷款金额存入喜美元获得利息收入。未来喜币的价值将会由三个标志性事件决定：权威投资机构对喜交所与喜支付的投资、国家级批准的虚拟货币银行牌照以及最终被主权国家承认为国家的法定货币。目前已经有1000多家金融机构在喜交所开户。喜币已获得美国和澳大利亚支付牌照，未来可能会获得近70个国家的支付和交易牌照。另外喜支付的业务与生态系统也在全球推进，拓展喜支付全球业务的战友将终身享受提成奖励。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-71.jpg)
-另外，本周11月9日 – 中共央行易纲周二在芬兰央行新兴经济体研究院成立30周年纪念活动上发表视频演讲，介绍了数字人民币研发的进展情况。根据易纲的讲话，数字人民币不计付利息，并被中共政府和央行实行严格的中心化管控，各方面的设计和用户体验都远远落后于喜币。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：文特
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+图片来源：news.wko.at
 
 
+#### 编译：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+一个由国家支持的中共病毒（Covid-19） PCR测试系统被吹捧为奥地利最好的系统之一，在一名记者欺骗该系统向一个卡通人物发出阴性测试证书后，该系统被揭露存在明显的安全问题。
 
+记者迈克尔·波默（Michael Pommer）用自己的真名在Alles Gurgelt！注册，但他没有拍摄自己漱口的过程，而是拍摄了一个蓝精灵爸爸，并在样品瓶里装满了自来水。显然，根本没有人看到这段视频，因为波默成功获得了证书。《克朗日报》周日报道，指出该系统存在“明显的安全漏洞”，维也纳卫生部长彼得·哈克（Peter Hacker）称其为 “世界上独一无二的”，称赞其为 “维也纳抗击大流行病的核心组成部分”。
 
+最近在收到阴性PCR测试结果后，该系统向这个虚构的卡通人物颁发了中共病毒（Covid-19）证书。这是根据奥地利首都维也纳使用的 “Alles Gurgelt！”快速检测系统得出的结果。该项目得到了维也纳政府的支持，并提供免费的家庭测试剂盒。
+
+中共病毒（Covid-19）PCR测试系统由奥地利LEAD Horizon公司和意大利Lifebrain实验室网络运营，允许人们在商店领取检测试剂盒，并在使用一个特殊的应用程序注册后在家中进行测试。
+
+测试结果可以通过另一个零售连锁店提交给实验室。验证过程包括拍摄自己漱口的测试液，并将样品瓶送到实验室。
+
+**参考新闻：**[Lockdown-ready Austria has its PCR system tricked — RT World News](https://www.rt.com/news/540251-austria-covid-test-trick-journalist/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

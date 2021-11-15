@@ -2,33 +2,64 @@
 ---
 
 
-## 针下亡魂｜美国 45 岁知名漫画家接种疫苗后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1665474/)
+## 坎特推出反共鞋后，凯尔特人队令其长时间坐冷板凳
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1665483/)
 
-**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 15/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+![Enes Kanter #13 of the Boston Celtics poses for a photo during Media Day at High Output Studios on September 27, 2021 in Canton, Massachusetts. NOTE TO USER: User expressly acknowledges and agrees that, by downloading and or using this photograph, User is consenting to the terms and conditions of …](https://media.breitbart.com/media/2021/10/Enes-640x480.jpg)
+几条抨击中共国奴工的推特在一年的时间内带来了多大的变化？波士顿凯尔特人队中锋埃内斯·坎特 (Enes Kanter) ，在社交媒体上发布一系列信息抨击NBA合作伙伴中共国压迫其人民的信息后，他的上场时间被严重削减，这让人不得不怀疑坎特是否因提倡自由而受到惩罚。
 
-【美国】俄勒冈州一名 45 岁的漫画家Jesse Hamm 在接种莫德纳 COVID-19 疫苗后死亡。这一消息令整个漫划界大为震惊。
+在2020-21赛季，2011年的NBA首轮选秀中，坎特是波特兰开拓者队的一名主力球员。他打了72场比赛，平均每场上场时间为24.4分钟。根据NBA的统计数据，他在波特兰也获得了11.2分。
 
-Jesse Hamm 的妻子 Anna 于 5 月 13日在 Twitter 上简单宣布了丈夫的死讯。她在该贴中特别指出，丈夫死于“肺部血凝块”，有网友在帖子下留言，询问 Jesse Hamm 是否已经接种过 COVID-19 疫苗，Anna 迅速回覆指“他接种过一剂莫德纳。”
+但今年，坎特的上场时间明显减少。自从他转会波士顿凯尔特人队后，他目前只参加了11场比赛中的两场，平均每次上场时间只有5分钟。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Anna-Sahrling-Hamm.png)
+这意味着，在公开表示他针对中共国的支持自由的行为之后，坎特今年只参加了16场比赛，只打了80分钟。而去年坎特在72场比赛中打了超过1,700分钟。
 
-根据资料，Jesse Hamm 早在十几岁的时候就出版了他人生的第一部漫画，自 1990 年代以来，他一直活跃在漫划界，同时与许多大牌公司都有合作，包括漫威、DC 漫画和俄勒冈州的黑马漫画。
+坎特与凯尔特人签订了一份价值270万美元的为期一年的合同，看来他们确实没有按照支付给坎特的工资水平，来让他打球。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-05-13-at-4.32.25-AM-min.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-05-13-at-4.32.10-AM-min.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-05-13-at-4.31.45-AM-min.png)
+问题是，为什么坎特像一个三线菜鸟一样坐在冷板凳上而不是上场？
 
+本周，坎特承认NBA官员联系过他，他们用手指着他的脸，指责他批评联盟的红色中共国这个数十亿美元的合作伙伴。在最近的一次采访中，坎特承认NBA 威胁要禁止他进入联盟，因为他穿着带有批评中共国信息的鞋子。根据联合国观察组织（UNWatch）的数据，中共国是世界上最严重的人权侵犯者之一。
 
-他的最新作品“植物大战殭尸第 18 卷：建筑故事”原定在两个月后发售，可惜，他等不到那一天了。许多粉丝、朋友和同业都纷纷在网上留下了对他哀悼及不舍。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗_0-2.jpg)
-来源｜[个案061](https://twitter.com/ASahrlingHamm/status/1392509511525568517)
+坎特坐冷板凳，是在他发布一系列关于中共国的视频和信息到社交媒体之后发生的。
+
+这位29岁的球员发布了几段视频，他在视频中痛斥中共是“残暴的独裁者”，并呼吁他们停止压迫中共国少数民族维吾尔族和自由的西藏人民。
+
+坎特在10月20日的视频中，直接批评了中共国对西藏人民的可怕待遇，他在视频中指责红色中共国，并指责中共国对西藏人实施“文化灭绝”。他的视频迅速遭到中共国政府的报复，波士顿凯尔特人队的比赛，被立即从中共国的NBA转播合作伙伴腾讯上删除。
+
+随后，这位球员又拍摄了一段视频，呼吁中共国结束其奴工制度和对少数民族维吾尔人的监禁。
+
+除了关注中共国的侵犯人权问题，他还发布了几款旨在提高人们对中共国罪行认识的鞋子设计。
+
+在强调中共国侵权行为的另一项行为中，这位篮网队球员直接与耐克及其高层菲尔·奈特进行了交谈。坎特猛烈抨击耐克的某些产品依赖奴工劳动的做法。
+
+此外，在10月坎特提议让耐克首席执行官菲尔·奈特飞往中共国，并写道：“我为大家预订机票，让我们一起飞往中共国。我们可以尝试去参观这些“奴隶”集中营，你可以亲眼看看。”
+
+他还邀请了勒布朗·詹姆斯和迈克尔·乔丹一同前往。
+
+这位土生土长的土耳其人是唯一一位反对共产主义中共政府的实际压迫（而不是想象中的）的NBA球员，他反对中共在工厂中普遍使用强迫劳动。
+
+坎特还通过反对土耳其独裁者总统雷杰普·塔伊普·埃尔多安来支持他的祖国的自由。然而，他的批评引发埃尔多安发出至少九份逮捕令，指控坎特“侮辱总统”。
+
+简评：
+
+埃内斯·坎特是一个真正值得尊重的人，他一直用他的明星地位来反对中共国政府侵犯人权的行为。他愿意无视自己的利益，为受迫害的人发声，不像那些虚伪的人或机构，整天谈慈善，但在金钱面前仍然选择在受苦的人面前保持沉默。我们新中国联邦的战友们需要团结这样有勇气和良知的人，当我们有更多的坎特这样的人勇敢地站出来，对中共的恶行及黑暗势力说不时，我们的世界将会变得更美好。
+
+新闻链接：[https://www.breitbart.com/sports/2021/11/12/shadow-benched-celtics-dramatically-slash-enes-kanters-playing-time-after-unveiling-anti-china-shoes/](https://www.breitbart.com/sports/2021/11/12/shadow-benched-celtics-dramatically-slash-enes-kanters-playing-time-after-unveiling-anti-china-shoes/)
+
+翻译/简评：Brianchow
+
+PR：Julia Win
 
 * * *
 
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//｜//[美国 39 岁女医护接种疫苗4日后死亡](https://gnews.org/zh-hans/1625214/)//｜//[美国 56 岁男医生接种疫苗两周后死亡](https://gnews.org/zh-hans/1629915/)//｜//[德国 32 岁心理学专家接种疫苗12日后死亡](https://gnews.org/zh-hans/1636096/)//
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
