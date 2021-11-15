@@ -2,28 +2,19 @@
 ---
 
 
-## 全世界的疫苗失败
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1666624/)
+## 七哥说—第28期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1666625/)
 
-加拿大蒙特利尔战友团 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_3258.jpg)图片来源：StatNews
-根据《零对冲》(Zero Hedge)11月14 日报道，从新加坡到荷兰到冰岛到以色列到佛蒙特州，以及整个美国的北半部等都纷纷表现出疫苗的失败。
+**制作：Inzaghi**
 
-新加坡的死亡人数创下新高，85%的人口完全接种了疫苗，不仅是成年人，而是全部人口。
+天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/ab12.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/ab13.png)
 
-佛蒙特州是美国接种疫苗最多的州，71%的人完全接种疫苗，其病例数也创下新高。
+***发稿：信心满满***
 
-看起来，越是疫苗接种率高的地方，疫情就越严重。这是与政府，大药厂，医疗监管机构的许诺的相反的方向发展的。
-
-政府也许会继续掩盖事实，欺骗人民说“别担心，加强针会解决问题”，问题是民众是否愿意继续被欺骗而无动于衷呢？
-
-原文链接：
-
-[https://www.zerohedge.com/covid-19/worldwide-vaccine-failure?utm\_source=&utm\_medium=email&utm\_campaign=275](https://www.zerohedge.com/covid-19/worldwide-vaccine-failure?utm_source=&amp;utm_medium=email&amp;utm_campaign=275)
-
-* * *
-
-发稿 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
 
  
 

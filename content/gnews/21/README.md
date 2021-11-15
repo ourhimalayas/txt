@@ -2,21 +2,23 @@
 ---
 
 
-## 维基百科停止更新因疫苗死亡的运动员人数
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666644/)
+## 中共病毒导致2.5万吨塑料垃圾流入海洋
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666645/)
 
-作者：美英国喜庄园-I770775
+作者：美东香草山农场 文真
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-根据秘密翻译组11月14日报道，随着中共病毒疫苗的大面积接种，世界范围内的职业和业余田径运动员的死亡人数史无前例地激增。 由于死亡人数的激增，维基百科停止了报告截至 2021 年 10 月在比赛中死亡的足球运动员人数。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-15-下午10.37.25.png)
-有研究表明，越来越多的运动员死于心脏病和其他与 mRNA 损伤相关的疾病，并且接种疫苗导致的住院人数是感染中共病毒的6 倍。毒疫苗的危害远大于中共病毒。由于死亡名单的激增，主流媒体掩盖和压制疫苗灾害的阴谋绝不会得逞。爆料革命最早传播疫苗真相，在全世界得到越来越多的认可。
+一项最新科研报告发现，超过2.5万吨与中共病毒大流行有关的塑料垃圾被释放到海洋中，加剧了已经失控的全球塑料垃圾问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-15-下午10.44.11.png)
+该研究指出，大部分的塑料垃圾是来自于医院，源于大量个人防护与医疗废物的管理与处置不善。释放的塑料垃圾可以在海洋中长距离漂移，可能导致海洋野生动物受伤害甚至死亡。
 
-参考链接：[https://gettr.com/post/pgwmrtc997](https://gettr.com/post/pgwmrtc997)
+有研究指出，到2030年，塑料的生产在温室气体排放方面将超过煤炭。中共病毒造成的全球环境危机时刻威胁着人类的未来。
+
+参考链接：[Research Study: Pandemic Put 25K Tons of Plastic in Ocean](https://www.newsmax.com/us/plastic-environmental-covid-19-ocean/2021/11/08/id/1043836/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-总编：文特
-编辑：Lakeman(文仁)
+总编：Ivy001
+编辑：Jack Li文阳
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
