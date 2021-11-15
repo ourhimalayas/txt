@@ -2,36 +2,43 @@
 ---
 
 
-## 班农先生被司法部起诉的意义
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666751/)
+## 人权观察批北京冬奥赞助商对中共践踏人权行为无动于衷
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1666816/)
 
-作者：美东香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在11月14日的大直播中透露，早在一个多月以前，他就告知班农先生，中共勾兑美国内部势力，借“1月6日国会大厦暴动事件”调查，通过司法程序起诉他。
+#### 作者：日本东京方舟农场 子辰
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2-6.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6B69B577-C7E0-41E6-8FFF-A25207BE96A5.jpeg)图片来源：https://gdb.voanews.com/EF6E3B62-ED29-4DD1-91AE-83E0826EEAF7\_w408\_r0\_s.jpg
 
-中共盲目自大地认为，通过对美国两党和司法的渗透，可以控制美国的政治。班农先生被起诉，使美国人，特别是保守派，看到中共对美国共和党的威胁，对美国选举自由的威胁。从而使美国官方更严肃地重视新中国联邦，加紧保护和承认新中国联邦。
+总部设在纽约的“人权观察”近日批评为2022北京冬奥会提供赞助的大企业对中共国新疆发生的反人类罪行保持沉默。
 
-班农先生被起诉，还意味着，美国媒体的大重启。美国严肃媒体，诸如福克斯、华尔街日报等，回避疫苗灾难问题，原因是百分之五十至七十的广告费来自大药厂。这些媒体同样一致地封杀班农事件，是因为大药厂和传统媒体背后有共同的老板。
+据《美国之音》11月15日报道，“人权观察”近日在视频新闻发布会上指出，这次冬奥会的主要赞助商应向中共政府和国际奥委会施加压力，要求中共停止践踏人权的行为。
 
-班农先生将新中国联邦创始人、宣言人的身份，视作他一生最大的荣耀。中共的疯狂，让美国两党都感受到威胁。班农先生是美国建国以来，自华盛顿后，因国会调查被起诉的人。班农先生无疑会成为美国政治的教父。班农先生作为新中国联邦成立的宣言人，成为世界焦点，成了美国政治风向标，受益者一定是新中国联邦。
+据了解，奥林匹克的顶级赞助商共有13家，包括中共国的电商阿里巴巴、德国保险公司安联、法国信息技术公司阿托斯（Atos）、日本轮胎制造商普利司通（Bridgestone）、松下电器、丰田、美国的可口可乐公司、半导体公司英特尔、陶氏化工（Dow Chemical）、通用电气、宝洁、民宿出租平台爱彼迎（AirBnB）等。
 
-参考链接：[2021年11月14日文贵大直播](https://gtv.org/video/id=61910d9be7e770379234d270)
+这些跨国企业多年来一直为奥运会提供巨额资金赞助。在2013年至2016年的奥运周期中，这些赞助商给国际奥委会提供了10亿美元的现金和物资。预计在2017年至2020年的奥运周期中，资金赞助将会翻一番。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+“人权观察”表示，他们在今年5月致函上述13家顶级赞助商，请它们说明如何处理参与2022年北京冬奥会所导致的人权风险。然而至今为止，只有安联做出了“长期支持奥林匹克运动不会动摇”的答复。
 
-总编：文真
-编辑：Ivy001
-校正/发稿：谐趣园
+“人权观察”还曾为此致函美国全国广播公司NBC。据了解，NBC支付的转播费占国际奥委会全部收入的40%。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“人权观察”全球倡议主任明基·沃登（Minky Worden）表示，“沉默外交的时代已经结束”。
+
+“人权观察”随后在一份声明中批评称，距离北京冬奥会开幕只剩三个月，各大赞助商仍未说明它们将如何施加影响力，去改善中共国的恶劣人权记录。声明同时还谴责这些赞助商，称它们甚至可能沦为这次充满言论审查和压迫的奥运会的帮凶。
+
+注：本文仅代表作者观点
+
+*新闻链接： [https://www.voachinese.com/a/sponsors-asked-to-defend-support-for-beijing-winter-olympics-20211112/6310689.html](https://www.voachinese.com/a/sponsors-asked-to-defend-support-for-beijing-winter-olympics-20211112/6310689.html)*
+
+* * *
+
+
+```
+素材采编：子辰
+编辑：青衣青青
+发布：miumiu
+```
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

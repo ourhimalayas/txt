@@ -2,24 +2,132 @@
 ---
 
 
-## 中共统战部是否在影响美国政治
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1667328/)
+## 喜美元未来绝对是和法币挂钩的数字货币之王
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1667528/)
 
-撰稿：西枫westca
+[https://gtv.org/video/id=6191cfb218270250810564a9](https://gtv.org/video/id=6191cfb218270250810564a9)
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/page-header.jpg)图片来源：www.kcrw.com
-国家脉动专栏作者娜塔莉温特斯11月15号署文披露：众议员亚当·希夫 (Adam Schiff) 在中美交流基金会赞助的一次活动中，会见了一名中共负责对外影响事务的前中共官员。
+我相信喜美元未来他是绝对的和法币挂钩的数字货币当中之王
+Yo confío que el HDO es definitivamente el rey de la moneda digital vinculada a la moneda legal en el futuro
 
-加州民主党的众议员希夫在2009年10月在华盛顿会见了由中美交流基金会（CUSEF）安排的与中共负责对外事务的官员徐匡迪的会面。在此之后，他成为了川普通俄门、弹劾丑闻的主要支持者。 近来作为1月6日违宪活动委员会的主要成员，他的注意力转向了前总统川普的竞选团队负责人史蒂夫班农——著名的“反中鹰派”人士。这带来一个疑问，作为加利福尼亚州第28届国会选区的国会议员是否正在努力平息批评中国共产党的人士。
+为什么, 它有3个谁都无法代替的因素
+¿ Por qué? Esto tiene tres razones irreemplazables
 
-中美交流基金会（CUSEF）的网站显示，它 “赞助 “了中共官员徐匡迪对美国的访问，包括在华盛顿特区停留。该基金会简称 “CUSEF”，因寻求 “影响外国政府采取支持北京首选政策的行动或立场 “而被美国政府标记。它是中共用来对付美国精英的几个统一战线团体中的一个。中国政府利用它来 “收编和化解可能反对其执政的中国共产党的政策和权威的来源”。
+它毕竟有十几亿中国人的这种市场的潜力
+Después de todo, tiene el potencial de este tipo de mercado de mil millones de chinos
 
-徐匡迪原为前上海市市长，还担任过中国人民政治协商会议副主席，这是监督中国有争议的“统战部 ”的“最高级别实体”。他在美期间，还会见众议员亚当·希夫（D-CA）、众议员大卫·吴（D-OR）和智库代表。
+可能性就是灭了共和不灭共
+La posibilidad es eliminar o no al Partido Comunista
 
-《国家脉搏》此前曾透露，根据外国代理人登记法 (FARA) 文件，CUSEF如何通过提供免费前往中国的旅行获得美国记者和前国会议员的“有利报道”。 这些旅行是 CUSEF 更广泛努力的一部分，旨在“向媒体、关键影响者和意见领袖以及公众有效传播关于中国共产党的积极信息”。
+这是大的使用者
+Este es el usuario más grande
 
-**新闻来源：**[REVEALED: Rep. Adam Schiff Met With Former Chairman Of Chinese Communist Party’s Foreign Influence Operations. (thenationalpulse.com)](https://thenationalpulse.com/news/schiff-met-with-ccp-influence-group/)
+我们战友这个规模在这摆着呢
+Es la escala de nuestros compañeros luchadores
+
+我相信战友未来会突破千万的, 突破一千万
+Yo confío que en un futuro los compañeros luchadores sobrepasarán los diez millones
+
+很快
+Pronto
+
+你看到盖特人的增长
+Verás el crecimiento de usuarios en GETTR
+
+未来两到三个月
+En los próximos dos a tres meses
+
+你会看到咱们这个喜连储的增长
+Podrás ver el crecimiento de nuestra Reserva Federal de Himalaya
+
+那这个市场在这摆着
+Y dejar este mercado aquí
+
+没有人可以替代
+Nadie lo reemplazará
+
+第二个就是这个喜美元跟这个整个喜连储的这个结构
+La segunda razón es el HDO con la estructura de toda la Reserva Federal de Himalaya
+
+交易所的整个挂钩
+Toda la vinculación del intercambio
+
+我觉得天下没有几个
+Yo digo que no hay casi nadie en este mundo
+
+没有几个
+Casi ninguno
+
+到目前还没看见
+Hasta ahora no he visto
+
+即使有它也跟不上我们的
+Y si hay, tampoco seguirá nuestro ritmo
+
+我们是原创者
+Somos el creador original
+
+第三个, 我们相信, 我们进来的大的机构投资者
+Y la tercera razón, nosotros confiamos en las grandes instituciones de inversores que entrarán
+
+每个人都是影响着世界命运的经济体
+Cada persona es la influencia del cuerpo económico del destino de este mundo
+
+也不会有几个, 你看到刚才所有的那些所谓这coinbase
+Tampoco habrá algunos, ves todo el llamado coinbase en este momento
+
+Kraken这些大多数
+Y Kraken, la mayorá de estos
+
+几乎没有一个像我们这个级别的投资
+Casi ninguno es del nivel de inversión como el de nosotros
+
+就没有, 这三条
+No lo hay, estas tres razones
+
+它决定了喜美元它在全球
+Determina al HDO en el mundo
+
+它一定是最大的流通的
+La circulación más grande
+
+所有货币, 买金融产品
+Todas las monedas, compra de productos financieros
+
+你买啥都能买
+Puedes comprar cualquier cosa
+
+只要是能买的东西你都能买
+Puedes comprar cualquier cosa que pueda ser comprado
+
+我相信未来一定会做到
+Confío que en un futuro puede llegar a ser así
+
+但是时间和方式
+Pero en cuánto tiempo o de qué manera
+
+这个我没法确定, 最终一定会达到的
+Esto no lo puedo asegurar, sin embargo, se logrará finalmente
+
+**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1457921740592406532?s=24](https://twitter.com/se1y7cblljselva/status/1457921740592406532?s=24)
+
+日期：11/12/2021
+原视频标题：喜美元未来绝对是和法币挂钩的数字货币之王
+El HDO es definitivamente el rey de la moneda digital vinculada a la moneda legal en el futuro
+原视频日期：11/09/2021
+任务编号：KC252（2826）
+视频时间段：0:00-1:37
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
