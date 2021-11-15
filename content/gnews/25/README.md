@@ -2,24 +2,28 @@
 ---
 
 
-## 中共国10月份鲜菜价格同比上涨15.9%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666353/)
+## 波兰白俄罗斯边境 难民突破封锁线
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666368/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-83.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.corporatefinanceinstitute.com%2Fassets%2Fconsumer-price-index.jpeg&amp;imgrefurl=https%3A%2F%2Fcorporatefinanceinstitute.com%2Fresources%2Fknowledge%2Feconomics%2Fconsumer-price-index-cpi%2F&amp;tbnid=8C4ldc6aQ0ZZhM&amp;vet=12ahUKEwjg3fues5r0AhUNnEsFHRcLDq8QMygIegUIARCwAQ..i&amp;docid=9qB4aIwIUMlTCM&amp;w=1180&amp;h=980&amp;q=CPI&amp;ved=2ahUKEwjg3fues5r0AhUNnEsFHRcLDq8QMygIegUIARCwAQ)
-11月15日北京日报报道，中共国家统计局发布10月国民经济数据。10月份，全国居民消费价格（CPI）同比上涨1.5%，涨幅比上月扩大0.8个百分点；环比上涨0.7%。分类别看，食品烟酒价格同比下降0.9%，衣着价格上涨0.5%，居住价格上涨1.7%，生活用品及服务价格上涨0.9%，交通通信价格上涨7.0%，教育文化娱乐价格上涨2.9%，医疗保健价格上涨0.6%，其他用品及服务价格下降0.5%。
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/11/454.jpg)（图片来源于本文链接）
+波兰警方称，周六夜间(11月13日)、周日凌晨，至少有一个大约50人的群体突破了Dubicze Cerkiewne村附近的封锁线，闯入了波兰境内。警方目前捕获了其中的22人。而在Kolonia Klukowicze附近，一个更大的群体也试图突破封锁线，但是没有成功；波兰边防警察则遭到试图闯关的难民投掷石块，一名警员因此受到轻伤。
 
-10月CPI涨幅扩大主要受到近期鲜菜价格上涨影响。在食品烟酒价格中，猪肉价格同比下降44.0%，鲜菜价格上涨15.9%，粮食价格上涨0.9%。
+波兰边防部门通报指出，11月13日全天，总共发生了223起试图非法越境的事件。在边境地区，警方捕获了4名“蛇头”嫌疑人，他们当时正在带领难民前行。据悉，其中两名嫌疑人为格鲁吉亚公民，还有两名则分别来自波兰和叙利亚。目前，波兰和白俄罗斯当局都对援助组织以及新闻媒体封锁了边境地区，因此两国当局发布的消息都无法获得第三方独立消息源的核实。最近几个月来，数以千计的中东、非洲难民飞往白俄罗斯，试图从该国跨越边境进入立陶宛、波兰等欧盟国家。在白俄罗斯与欧盟的政治拉锯背景下，这些难民被困在了边境区域，迄今至少已有9人丧生。目前，边境地区的气温已经降至0度左右。欧盟方面指责白俄罗斯主动在中东、非洲等地招徕难民，并利用难民作为施压筹码。而白俄罗斯总统卢卡申科则驳斥了上述指责。
 
-中共国滥印钞票就像是从老百姓口袋里抢钱，老百姓手中的积蓄被稀释贬值，致商品流通领域通胀加剧，毛币加速贬值致使民生的蔬菜粮食也暴涨。
+欧盟与白俄罗斯之间的政治纠纷始于去年的白俄罗斯大选。当时，该国反对派指控卢卡申科涉嫌严重的大选舞弊，欧盟方面也宣布不承认卢卡申科的胜选连任，并出台了一系列针对性制裁措施。今年早些时候，白俄罗斯当局强迫一架从欧盟成员国希腊飞往欧盟成员国立陶宛的民航客机在明斯克降落，旋即逮捕了搭乘该航班的一名反对派人士，进一步加剧了双方之间的政治危机，欧盟随后加强了制裁。
+
+现在，边境难民危机正在促使欧盟考虑进一步的制裁措施。东欧地区的多个国家担心，这场危机甚至有可能引发军事冲突。
 
 信息来源：
 
-[10月全国CPI同比上涨1.5%，鲜菜价格同比上涨15.9%](https://mq.mbd.baidu.com/r/wrjXgauzqU?f=cp&amp;rs=3889805779&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=682eb6ff4fb14d9b)
+[波兰白俄罗斯边境:难民突破封锁线](https://www.dw.com/zh/%E6%B3%A2%E5%85%B0%E7%99%BD%E4%BF%84%E7%BD%97%E6%96%AF%E8%BE%B9%E5%A2%83%E9%9A%BE%E6%B0%91%E7%AA%81%E7%A0%B4%E5%B0%81%E9%94%81%E7%BA%BF/a-59814954)
 
 *编辑：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,20 +2,29 @@
 ---
 
 
-## 疫苗病毒是习和常委军委下的命令
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666536/)
+## 全世界的疫苗失败
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1666624/)
 
-文编：东京樱花团/樱花传媒
+加拿大蒙特利尔战友团 Spirit
+![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_3258.jpg)图片来源：StatNews
+根据《零对冲》(Zero Hedge)11月14 日报道，从新加坡到荷兰到冰岛到以色列到佛蒙特州，以及整个美国的北半部等都纷纷表现出疫苗的失败。
 
-视频:东京樱花团/中文小视频组
+新加坡的死亡人数创下新高，85%的人口完全接种了疫苗，不仅是成年人，而是全部人口。
 
-11月12日，郭文贵先生在GTV大直播强调：
+佛蒙特州是美国接种疫苗最多的州，71%的人完全接种疫苗，其病例数也创下新高。
 
-疫苗灾难是文贵先生和无数战友冒着生命危险换来的真相！防化学院、装甲兵原学院、中纪委办案组人员、在武汉参与调查的研究人员、安保人员、欧洲的科学家，是那么多生命和证据证明，疫苗是真正的杀人目标和工具、冠状病毒是共产党的生化武器、是习近平和常委、军委下的命令！
+看起来，越是疫苗接种率高的地方，疫情就越严重。这是与政府，大药厂，医疗监管机构的许诺的相反的方向发展的。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码新.png)
+政府也许会继续掩盖事实，欺骗人民说“别担心，加强针会解决问题”，问题是民众是否愿意继续被欺骗而无动于衷呢？
+
+原文链接：
+
+[https://www.zerohedge.com/covid-19/worldwide-vaccine-failure?utm\_source=&utm\_medium=email&utm\_campaign=275](https://www.zerohedge.com/covid-19/worldwide-vaccine-failure?utm_source=&amp;utm_medium=email&amp;utm_campaign=275)
+
+* * *
+
+发稿 Spirit
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

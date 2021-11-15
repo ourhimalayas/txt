@@ -2,10 +2,10 @@
 ---
 
 
-## 中共禁止台湾民进党领袖及其亲属去往大陆
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1666194/)
+## 中共国很可能是美国有史以来最难对付的对手
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1666198/)
 
-11/13/2021 中共禁止包括台湾行政院长苏贞昌、立法院院长游錫堃和外交部长吴钊燮在内台湾民进党领袖及其亲属进入中国大陆。
+11/13/2021 鲍里斯·艾普斯汀：中共国很可能是美国有史以来最难对付的对手，甚至超过纳粹和苏联。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

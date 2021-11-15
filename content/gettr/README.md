@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/15/2021 3:22 PM (UTC)`
+
+11月15号：尊敬的战友们好，你们健身了吗？传播C C P病毒和疫苗解药的真相了吗？一切都已经开始！
+![img](https://media.gettr.com/group40/getter/2021/11/15/15/22/0de14503-0bca-b551-4972-1194c3e6bd7f/out.jpg)
+
+---
+
 `@miles 11/15/2021 2:39 PM (UTC)`
 
 【辉瑞公司首席执行官阿尔伯特.波拉11月9日声称，传播疫苗错误信息的人（反对疫苗）是罪犯，他们正在造成生命的损失。第二天（11月10日）早上他的太太被送入纽约长老会劳伦斯医院的急诊室后死亡。保守派比弗网站报道， 根据辉瑞公司总裁太太的医师的消息，死因是辉瑞公司疫苗的并发症。<br/><br/>在阿尔伯特的妻子去世后，他们要求保护隐私。法官已经批准了临时的媒体封锁。所有美国大媒体都没有报道这件事情。在网上通过搜索得到几个自媒体的报道，包括非右派的自媒体。保守派比弗的总部在加拿大，不受法官裁决的约束】
@@ -289,13 +296,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 11月10号尊敬的战友们好……你们健身了吗？战友们有钱了是不是就不应该健身了呢？
 ![img](https://media.gettr.com/group47/getter/2021/11/10/21/26/64112f45-74e4-a0aa-2f47-e9cadbb8d21e/out.jpg)
-
----
-
-`@miles 11/10/2021 8:43 PM (UTC)`
-
-11/10/2021 Miles Guo: Internal report from the 6th Plenary Session of the 19th Central Committee exposed the CCP is experiencing sharp decrease in its foreign exchange reserve and facing an undesirable coexistence of both the trade deficit and trade surplus - a dilemma of low end products surplus and the inaccessibility to high-end products such as computer chips<br/><br/>11/10/2021 文贵直播：中共六中全会内部报告曝光中共国外汇储备急剧下降，中共面临逆差、顺差双并行的不利局面 - 低端产品贸易顺差和高端芯片等产品买不到的困局<br/>
-![img](https://media.gettr.com/group48/getter/2021/11/10/20/43/63f80be9-e524-3bff-5a9f-0aa834fa7974/out.jpg)
 
 ---
 

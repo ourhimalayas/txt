@@ -2,137 +2,24 @@
 ---
 
 
-## 视频| 中共即将释放新的病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1666337/)
+## 中共国10月份鲜菜价格同比上涨15.9%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666353/)
 
-制作：香草山视频部
+#### 撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-83.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.corporatefinanceinstitute.com%2Fassets%2Fconsumer-price-index.jpeg&amp;imgrefurl=https%3A%2F%2Fcorporatefinanceinstitute.com%2Fresources%2Fknowledge%2Feconomics%2Fconsumer-price-index-cpi%2F&amp;tbnid=8C4ldc6aQ0ZZhM&amp;vet=12ahUKEwjg3fues5r0AhUNnEsFHRcLDq8QMygIegUIARCwAQ..i&amp;docid=9qB4aIwIUMlTCM&amp;w=1180&amp;h=980&amp;q=CPI&amp;ved=2ahUKEwjg3fues5r0AhUNnEsFHRcLDq8QMygIegUIARCwAQ)
+11月15日北京日报报道，中共国家统计局发布10月国民经济数据。10月份，全国居民消费价格（CPI）同比上涨1.5%，涨幅比上月扩大0.8个百分点；环比上涨0.7%。分类别看，食品烟酒价格同比下降0.9%，衣着价格上涨0.5%，居住价格上涨1.7%，生活用品及服务价格上涨0.9%，交通通信价格上涨7.0%，教育文化娱乐价格上涨2.9%，医疗保健价格上涨0.6%，其他用品及服务价格下降0.5%。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://assets.gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+10月CPI涨幅扩大主要受到近期鲜菜价格上涨影响。在食品烟酒价格中，猪肉价格同比下降44.0%，鲜菜价格上涨15.9%，粮食价格上涨0.9%。
 
+中共国滥印钞票就像是从老百姓口袋里抢钱，老百姓手中的积蓄被稀释贬值，致商品流通领域通胀加剧，毛币加速贬值致使民生的蔬菜粮食也暴涨。
 
+信息来源：
 
-防生化学院的一位资深的生化武器专家
+[10月全国CPI同比上涨1.5%，鲜菜价格同比上涨15.9%](https://mq.mbd.baidu.com/r/wrjXgauzqU?f=cp&amp;rs=3889805779&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=682eb6ff4fb14d9b)
 
-他说所有的疫苗产生的灾难
-
-开始是在五月份
-
-他说：因为疫苗的普及率
-
-他说：打得越来越多
-
-他说：这个病毒会变种
-
-同时在每个人不同的身体状况
-
-还有不同的人的身体的反应
-
-综合的就是人群反映的结果
-
-他说在明年五月份
-
-开始，不是说到灾难
-
-他说你会看到飞机、游轮、运动员
-
-这种身体越好的、越是这些驾驶员
-
-他说死的会越突然
-
-他说因为所有打到身上的疫苗
-
-造成的所有的RNA
-
-它不管怎么变，都会是这样
-
-他说会造成身体最严重的心肌炎、心包炎
-
-突然就会脑梗、心梗，这个..那个..
-
-他说就是这么简单的结局
-
-而且说死多少人
-
-他说如果全球普及一半人打了疫苗的话
-
-他说一半的一半会死
-
-你按照这样算就是了
-
-而且是五月份开始
-
-我问他怎么防范？
-
-他说：防范就是不打
-
-还有一个就是不要跟打疫苗的人密切接触
-
-他说：有新病毒即将开始
-
-而且一定是从美国的西部到中部
-
-我说：根据是什么？
-
-他说：放毒就是在西部
-
-一定会往东部开始
-
-六中全会后美国等西方国家
-
-又一波新的病毒变种会出来
-
-我说：那你说这个变种出来以后
-
-对疫苗会有什么影响？
-
-加速疫苗的所有的身体反应
-
-而且会加速政府推广疫苗
-
-他说：这就是真正的灾难的开始了
-
-到现在运动员、飞机..
-
-你看多少飞机出事现在
-
-名人，死的死，瘫的瘫
-
-灾难，没法预测
-
-只有我们爆料革命
-
-新中国联邦联合在一起
-
-咱们大家才真正的
-
-能够互相之间可能的安全
-
-谁也不敢保证
-
-没有任何招儿
-
-千万别指望政府
-
-只有新中国联邦能让咱们战友安全
-
-
-
-发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
