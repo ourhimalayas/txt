@@ -2,10 +2,32 @@
 ---
 
 
-## 11/14/2021 文贵直播：科学家预测全球接种疫苗者或将有一半死亡；科学家的情报表明，中共将释放新病毒并让疫情从美西蔓延到美东
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1664810/)
+## GTV新闻访谈简报|2021年11月14日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1664891/)
 
-秘密翻译组-北美组
+作者：香草山翻译部
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1114text-SC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[11.14  晚GTV新闻访谈](https://gtv.org/broadcast/watch/6191b7a9e7e7703792352fd5)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
 
  
 

@@ -2,34 +2,50 @@
 ---
 
 
-## 从夏日的海湾到反新冠疫苗游行
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1664585/)
+## 世界女子网球协会呼吁调查张高丽性侵事件
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1664701/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/夏日湾.png)图片来源：妈妈咪网
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Z.jpg)worldnews.easybranches.com
+《一美新闻网》（OANN）转载《路透社》的报道，“世界女子网球协会（WTA，Women’s Tennis Association）呼吁调查彭帅的性侵指控”。【1】
 
-**翻译：月映万川**
-**编辑：Candy**
+全文如下：
 
-伊莎贝尔·卢卡斯一直都是拜伦湾（澳洲）反疫苗运动的非官方代表人物，然而，正直、敢言的她实际上已经完全接种了各种疫苗。
+世界女子网球协会巡回赛周日（11月14日）呼吁中共国政府调查彭帅对前中共副总理的性侵指控，同时要求结束对这位前双打顶级选手的审查。
 
-周日秘密透露：这位前澳大利亚日间剧明星已经接种了所有的标准疫苗，但是，却拒绝接种新冠疫苗。
+彭帅，中共国最大的体育明星之一，在她11月2日的社交媒体微博账户上声称：
 
-在她的社交媒体上回应批评者时她写道：“为了信息透明，我在人生中接种过很多疫苗，但是我只是要为大众争取选择权。”
+张高丽，在他成为中共最高决策机构——政治局常委的委员后，强迫与她发生性关系，后来双方达成了保持断断续续关系的共识。
 
-这位36岁的前变形金刚女演员一直站在各种反新冠疫苗集会的焦点位置。这些集会的诉求就是结束边境控制与疫苗强制。
+彭在这篇文章中说，她无法提供任何证据支持她的指控，这篇文章在发表大约半小时后被删除。【2】
 
-其中，在她留言到电视主播皮特·埃文斯的社交媒体帖子时说，“自由选择是每一个人的基本人权。我不相信靠新冠疫苗接种达到群体免疫这条路。”。
+中共国网球协会没有回应《路透社》的置评请求。
 
-原文链接：[From Summer Bay to Anti-vax protest](https://www.dailytelegraph.com.au/subscribe/news/1/?sourceCode=DTWEB_WRE170_a&amp;dest=https%3A%2F%2Fwww.dailytelegraph.com.au%2Fentertainment%2Fsydney-confidential%2Factress-isabel-lucas-has-been-vaccinated-just-not-for-covid19%2Fnews-story%2F6ac012a44e7f4140b63d796a895cd5b1&amp;memtype=anonymous&amp;mode=premium&amp;v21=dynamic-warm-control-score&amp;V21spcbehaviour=append)
+中共国的互联网会受到严格的审查，高层领导人的私生活是一个特别敏感的话题。
 
-***发布：Candy***
+由于彭帅发帖以来一直未露面，全球网球界的担忧日益增加。
 
-**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+女子网球协会在一份声明中表示，将寻求“对前中共领导人性侵指控进行全面、公正和透明的调查”。
 
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+女子网球协会巡回赛主席兼首席执行官史蒂夫·西蒙（Steve Simon）在一份声明中表示：“最近在中共国发生的有关女子网球协会球员彭帅的事件令人深感关切。”
+
+“彭帅，以及所有女性（的声音）都应该被倾听，而不是被审查。她对一位前中共领导人的性侵行为的指控必须得到极其严肃的对待。”
+
+在2013年温布尔登双打冠军和2014年法网双打冠军后，彭帅在2014年成为世界第一双打选手，也是第一位获得网球比赛顶级排名的中共国选手。
+
+（全文完）
+
+看来中共外交部、体育总局该挨板子了，十几天了，这点事儿还没有搞定，竟然还要求“进行全面、公正和透明的调查”，这不是抹黑我党吗？Me Too是你们西方的产物，成年人的运动。我们的共产党要从小培养，幼女开始。估计外交部回答记者的提问时会说，我们强烈反对世界女子网球协会干涉我国内政、侵犯我国领导人隐私的行为，我们会一如既往地我行我素，倡导“宇宙无限大，地球一粒沙”的共同“快活”精神，为摒弃道德、突破底限、弘扬罪恶义无反顾地走下去，直到灭亡……
+
+女子网球协会的举动应该是对邪恶中共认知的反应，在经济利益的诱惑下，体育界反对中共的声音是微弱的，希望在女子网球协会的带动下，尽快改观这种局面。
+
+原文链接：
+
+【1】[https://www.oann.com/tennis-wta-calls-for-investigation-into-peng-sexual-assault-allegations/](https://www.oann.com/tennis-wta-calls-for-investigation-into-peng-sexual-assault-allegations/)
+
+【2】[https://www.reuters.com/world/china/china-tennis-star-peng-says-ex-vice-premier-forced-her-into-sex-2021-11-03](https://www.reuters.com/world/china/china-tennis-star-peng-says-ex-vice-premier-forced-her-into-sex-2021-11-03)，
 
  
 
