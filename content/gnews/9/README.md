@@ -2,48 +2,38 @@
 ---
 
 
-## 香港当局拒绝向《经济学人》记者发放签证
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1664982/)
+## 澳洲球员亚姆·琼斯被迫结束职业生涯
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1665044/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-276.png)
-来自《美国广播公司新闻》2021年11月13日报道
-
-香港——《经济学人》(The Economist)杂志周五在一份声明中表示，香港当局   在没有任何解释的情况下，拒绝为一名在《经济学人》工作的外国记者续签签证。
-
-黄淑琳是澳大利亚人，为该杂志驻香港，负责报道中共国和香港。
-
-《经济学人》主编詹尼·明顿·贝多斯（Zanny Minton Beddoes）说：“我们对他们的决定感到遗憾……。我们敦促香港政府保持外国媒体的准入，这对香港作为国际城市的地位至关重要。”
-
-移民局没有立即回复电子邮件的置评请求。在工作时间以外拨打该办公室的电话无人接听。
-
-黄淑琳在推特上发布的一条消息中说：“很遗憾我将无法继续在香港报道。我喜欢了解这座城市及其人民。我会想念你们所有人”。
-
-简评：
-
-诸多记者的工作签证被拒，香港政府同样没有给出原因。这令香港的新闻自由进一步受到侵蚀。
-
-自2020年6月，港府实施《国安法》以来，56%的记者承认至少在某种程度上自我审查或避免报导敏感话题，84%的人感到香港新闻行业的工作环境正在逐渐恶化，46%的受访者正考虑或已计划离开香港。
-
-自《港版国安法》实施以来，香港政府加大镇压公民社会，引起了香港和国际社会的广泛谴责。
-
-原文链接:
-
-[https://abcnews.go.com/Travel/wireStory/hong-kong-authorities-deny-visa-economist-journalist-81146725](https://abcnews.go.com/Travel/wireStory/hong-kong-authorities-deny-visa-economist-journalist-81146725)
-
-翻译/简评：希望
-
-PR：Julia Win
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/足球.png)图片来源 carltonfc
 
 
-编辑：【英国伦敦喜庄园编辑部】
+**翻译：Lish
+编辑：MSGZ**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+（澳洲）卡尔顿足球队后卫利亚姆·琼斯（Liam Jones）在被发现未接种中共病毒疫苗的几天后，选择了结束他在（AFL）的职业生涯。这位30岁的球员与AFL签订的合同到2022才截止，他决定退出的理由是出于 “个人原因”。
+
+琼斯在卡尔顿周日发布的一份声明中说：“我希望我从澳大利亚足球联盟退休的决定能立即生效，我想借此机会感谢所有在我的旅程中支持我的人，无论是个人还是职业。我热爱这赛场，我会想念我的队友们。”
+
+根据AFL的疫苗接种时间表和维多利亚州政府的疫苗强制任务，男子球员必须在11月26日之前打完第二针，才能继续参加他们俱乐部的项目。琼斯在12个赛季中为卡尔顿和西部斗牛犬队打了161场比赛。他本应在12月6日回到蓝军的训练中。卡尔顿队足球主管布拉德·洛伊德（Brad Lloyd）表示，琼斯为此决定已经权衡了一段时间。
+
+洛伊德说：“最近几个月，我们一直在与利亚姆进行沟通，并给他足够的时间来对他的球员生涯做出明智的决定。利亚姆今天（周日）向我们确认，他已经做出了退役的决定，而且他希望这个决定的具体原因能够被保密。作为一个俱乐部，我们将尊重这一点”。
+
+在经历了职业生涯起初的不稳定后，琼斯近年来在蓝军的后防线上获得了强劲的表现。在新教练迈克尔·沃斯（Michael Voss）的带领下，他被塑造成了下个赛季打破不能进入总决赛的重要球员。
+
+在琼斯发出退役呼吁之前，阿德莱德足球俱乐部的首要球员丹尼·瓦恩哈根（Deni Varnhagen）因为反疫苗的立场而在本月早些时候被移至该俱乐部的非活动名单。与从事注册护士工作并直言不讳的瓦恩哈根不同，琼斯没有公开谈论过自己的观点。
+
+利亚姆·琼斯说：“我希望人们尊重我的决定和隐私，我本人或我的管理团队都不会对此事发表任何进一步评论”。
+
+原文链接：[AFLW Crow ruled out of season after refusing vaccine | The New Daily](https://thenewdaily.com.au/football-2/2021/11/05/deni-varnhagen-aflw-covid-vaccine-unlisted/)
+
+***发布：Candy***
+
+更多资讯，请关注：[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

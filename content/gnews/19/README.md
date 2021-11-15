@@ -2,32 +2,30 @@
 ---
 
 
-## 中共疫情封锁 严酷政策不顾民生
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1664896/)
+## 战狼秦刚叫嚣用武力解决台湾问题
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1664967/)
 
-作者：澳喜农场 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月12日，中共大连市疫情防控总指挥部发出通告，宣布对下辖的县级市庄河市实施封城，全市40万户居民，总数达80万人全部被隔离在家14天，家家户户的门上都被贴上了封条。 据中共媒体报道，过去八天中，大连地区累计报告感染人数215例。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-14-下午10.56.29-1.png)
-当地居民反应，政府通知封门以后，还要求在室内将门反锁。如果不小心开门，破坏封条，就会被中共政府强制迁移到集中隔离点，进行自费隔离。
+#### 撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-82.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2Fyataibaodao%2Fjunshiwaijiao%2Frc-08122021114051.html%2Frc0812-1.jpg&amp;imgrefurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2Fyataibaodao%2Fjunshiwaijiao%2Frc-08122021114051.html&amp;tbnid=fB5kwwALd6ZucM&amp;vet=12ahUKEwjsoeK3uJn0AhXisWMGHQfbBEYQMygJegUIARCmAQ..i&amp;docid=FazjohoedgObEM&amp;w=620&amp;h=349&amp;itg=1&amp;q=%E7%A7%A6%E5%88%9A%20%E5%8F%B0%E6%B9%BE&amp;ved=2ahUKEwjsoeK3uJn0AhXisWMGHQfbBEYQMygJegUIARCmAQ)
+中共国驻美大使秦刚周六（11月13日）表示，中共国加倍努力推动两岸统一，但绝不承诺放弃使用武力，保留采取一切必要措施的选项；敦促美国恪守一个中共国原则和对中方所作的承诺，谨慎妥善处理台湾问题，警防台湾问题导致中美冲突和对抗。
 
-中共一直严酷地实施“清零”抗疫政策，即使只有几例确诊病人，也会对所在小区、街道、城区，甚至整个城市进行封锁。不仅给民众日常生活造成阻碍和痛苦，而且抑制了社会经济。
+中共国驻美使馆官网，当日晚间新闻稿，引述其在全美中共国和平统一促进会联合会2021年年会上的视频致辞指出，当前，台湾民进党当局煽动两岸对立，勾连外部势力，不断进行谋“独”挑衅，正一步步把台湾民众裹挟上“台独”战车。
 
-参考链接：[疫情反弹大连庄河紧急封城，80万居民突遭隔离处境堪忧](https://www.voachinese.com/a/china-s-dalian-city-locks-down-thousands-of-students-20211113/6311912.html)
+“这些行径严重损害中华民族根本利益和台湾同胞切身利益，严重危害台海和平稳定。”他称，“美方不断操弄台湾问题，企图‘以台制华’，这必将搬起石头砸自己的脚。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+布林肯周三曾表示，如果中共国使用武力改变台湾现状，美国及其盟友将采取“行动”。但他并未说明具体是什么行动。
 
-总编：文真
-编辑：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+针对美国国会议员乘坐军机访台，中共国外交部周三称此举严重违反一个中共国原则和中美三个联合公报规定，中方对此坚决反对，已向美方提出严正交涉。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生曾经爆料秦刚是习近平的女婿，将他派驻到美国是作为习近平的代言人，他的这番强硬表态，说明中美政府在台湾问题上已有所勾兑，并且中共方面信心十足有把握拿下台湾，但是最终美国搬起的“石头”砸到的不会是自己的脚，而是将把中共砸的头破血流，我们拭目以待。
+
+消息来源:
+
+[中共国驻美大使：中共国绝不承诺放弃使用武力 敦促美国谨慎妥善处理台湾问题](https://cn.reuters.com/article/china-usa-taiwan-ambassador-1114-sun-idCNKBS2I002T?il=0)
+
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

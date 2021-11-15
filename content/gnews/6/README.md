@@ -2,42 +2,56 @@
 ---
 
 
-## “沉重的打击”：《环球时报》对澳大利亚发出了不详的警告
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1665000/)
+## 联合国气候变化协议达成 煤炭减排承诺缩水
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1665072/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：纽约香草山农场 – 四季
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/gm-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-图片来源：Defence Connect
-#### 翻译：月映万川
-编辑：朝花夕拾
 
-澳大利亚国防部长彼得·达顿在接受《澳大利亚人》采访时，达顿部长承认，澳大利亚单独与中共国直接冲突的想法是“不切实际”的，但却没有排除与美国一起应对中共国的可能性。
 
-他说，“如果美国采取行动，那么，不参加在美国的主导行动中的想法是不切实际的。”
 
-一家中共党媒的编辑在国防部长彼得·达顿说，澳大利亚不与美国联手保卫台湾是“不可想象的”之后，却向澳大利亚发出了一个险恶的警告。
 
-达顿先生的这番话是在中国和台湾之间的关系日益紧张的情况下发表的，而这番言论并没有被《环球时报》的主编所忽视。
+11月13日，大约200个国家代表在格拉斯哥举行的《联合国气候变化框架公约》缔约方大会第26次会议（COP26）上一致同意一项治理气候变化的全球协议，维持《巴黎协定》要求把全球气温升高幅度控制在1.5摄氏度以内的目标。协议要求缔约方明年制定更加严格的气候控制承诺，让全球有可能避免气候变化的灾难。
 
-“如果澳大利亚军队来台湾海峡作战，难以想象中国不会对他们和为他们提供支援的澳大利亚军事设施进行猛烈攻击，”胡锡进在推特上写道，并附上了一篇详细介绍达顿先生言论的文章链接。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1422-1.jpg)图片来源：路透社
 
-“所以澳大利亚最好准备好为台湾和美国做出牺牲。”
+该协议允许各国通过购买代表其他国家减排的抵消额度来部分实现其气候目标，未来可能为保护森林、扩大可再生能源和其他应对气候变化的项目释放数万亿美元的资金。但该协议让许多脆弱的国家感到失望，因为这些国家没有能力为与气候有关的损失和损害提供资金。
 
-《环球时报》是北京政府的著名喉舌，这不是胡主编第一次针对澳大利亚。
+印度在中共国和其他依赖煤炭的发展中国家的支持下，最后一刻拒绝了一项要求“逐步淘汰”燃煤发电的条款。该条款被匆匆修正为要求各国“逐步减少”其煤炭使用。但是协议还是首次将化石燃料作为全球变暖的主要驱动力，煤炭的时代正在结束。
 
-去年他在会见澳大利亚驻华大使格雷厄姆·弗莱彻时，曾将澳大利亚称为“除美国外对中国最不友好的国家”。
+欧洲的富国和小岛屿国家以及其他发展中国家都对这一用词变化感到失望。对此，联合国秘书长安东尼奥-古特雷斯表示，批准的文本是一种妥协，它们反映了当今世界的利益、条件、矛盾和政治意愿状况。
 
-原文链接：[‘HEAVY ATTACK’: China-run newspaper’s ominous warning to Australia](https://au.news.yahoo.com/heavy-attack-china-run-newspaper-unleashes-australia-041128148.html?guccounter=1)
+**参考阅读：**
 
-发布：文泓
+1. [U.N. climate agreement clinched after late drama over coal | One America News Network (oann.com)](https://www.oann.com/u-n-climate-agreement-clinched-after-late-drama-over-coal/)
+2. [联合国气候变化大会达成协议，减煤承诺缩水 (voachinese.com)](https://www.voachinese.com/a/cop26-reach-deal-20211113/6312438.html)
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+**编辑/校对/发稿：小鹿**
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
