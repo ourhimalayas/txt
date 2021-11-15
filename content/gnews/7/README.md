@@ -2,30 +2,30 @@
 ---
 
 
-## 方正证券4位高管集体辞职
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1664795/)
+## 数十名维州青少年注射辉瑞疫苗后患心肌炎
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1664802/)
 
-![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F1114%2Fd052552bj00r2ka5l0021c000fe00jkg.jpg&amp;thumbnail=690x10000&amp;quality=75&amp;type=jpg)
-据北青网-北京青年报11月14日报道，方正证券12日发布公告，包括该公司总裁、副总裁、监事会主席在内的4位高管集体辞职。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/北领地-2.jpg)图片来源：Getty
+维多利亚州有数十名青少年在接种辉瑞疫苗后出现了心脏问题，其中男孩更有可能出现这种罕见的情况。
 
-方正证券今年经历股东重整，股权结构逐渐落定。方正今年前三季度实现净利润19.3亿元，同比增长30.08%。方正董事辞职不会导致公司现有董事会成员人数低于法定最低人数，因监事会主席辞职导致的监事会成员人数低于法定人数，将在公司股东大会选举产生新的监事后生效。
+自9月6日以来，已有55名年龄在12至19岁之间的青少年被维多利亚州专家免疫服务（VicSIS）评估为心肌炎疾病。该炎症会降低心脏泵血的能力，导致快速或异常的心律。这55名青少年都接种了辉瑞公司的疫苗。
 
-4位高管同时辞职，这种反常的现象预示着证券市场的危机，还是高管们同时找到了新的机会，不得而知。不过一个良性发展的公司，或者正常交易的金融市场，应该不会出现这种情况。静观变幻莫测的中共国金融市场吧。
+自该日起，因辉瑞疫苗的不良反应而向VicSIS寻求咨询的所有人中，该青少年群体占6%，这一数字出现在澳大利亚政府药物管理局（TGA）周四发布的中共病毒（COVID-19）疫苗的每周安全报告中。该报告称全国可能有288例心肌炎的新病例，而且上周的数字显示比前一周增加了35例。
 
-新闻参考链接：[https://c.m.163.com/news/a/GOPQG0AB0514R9KQ.html?spss=newsapp](https://c.m.163.com/news/a/GOPQG0AB0514R9KQ.html?spss=newsapp%EF%BC%88%E6%A0%B9%E6%8D%AE%E6%96%B0%E9%97%BB%E5%86%85%E5%AE%B9%E4%BF%AE%E6%94%B9%E4%B8%80%E4%B8%8B%E6%A0%87%E9%A2%98%EF%BC%89)
+TGA称：“与其他国家一样，我们观察到，与未接种辉瑞疫苗的人相比，接种疫苗的（人）患心肌炎高于预期。”
 
-编辑：胖丁
+自疫苗开始推广以来，澳大利亚已经注射了大约2270万剂辉瑞疫苗。医学监督机构说，在接种辉瑞疫苗后，每10万人中就有近1人被报告患有心肌炎。
 
-* * *
+虽然心肌炎是一种非常罕见但已知的疫苗副作用，但年轻男子和十几岁的男孩在第二次接种辉瑞疫苗后更有可能出现这种情况。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+发布：翼族
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

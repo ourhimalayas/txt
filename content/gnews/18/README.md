@@ -2,34 +2,80 @@
 ---
 
 
-## 从夏日的海湾到反新冠疫苗游行
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1664585/)
+## 过去一个月英格兰83%的Covid-19死亡病例和67%的住院病例是完全接种疫苗的人中发生的
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1664618/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/夏日湾.png)图片来源：妈妈咪网
+编译：七叶之芒
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/58603696_303.png)图片来源：dw.com
+
+**新的英国卫生安全局公布的关于Covid-19病例、住院和死亡的最新数据显示，Covid-19注射液似乎仍然没有效果。**
+
+英国卫生安全局（原英格兰公共卫生局）于2021年11月11日星期四公布了“第45周–Covid-19疫苗监测报告”，报告显示，在10月11日至11月7日期间，绝大多数Covid-19病例是在完全接种疫苗的人群中发生的。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-5-4.png)
+
+2021年10月11日至11月7日期间，英国卫生署第45周疫苗监测报告表3确认的按疫苗接种状态划分的病例总数如下：
+
+- 未接种疫苗的人群=378,122例
+- 部分接种疫苗的人口=62,154例
+- 完全接种的人口=450,938例
 
 
-**翻译：月映万川**
-**编辑：Candy**
+这意味着在2021年10月11日至11月7日期间，接种疫苗的人口占Covid-19病例的58%，而未接种疫苗的人口占42%。然而，如果我们把18岁以下的人从等式中剔除，其中许多人没有资格接种疫苗，那么接种疫苗的人口的数字就会差很多。
 
-伊莎贝尔·卢卡斯一直都是拜伦湾（澳洲）反疫苗运动的非官方代表人物，然而，正直、敢言的她实际上已经完全接种了各种疫苗。
+2021年10月11日至11月7日期间，英国卫生协会第45周疫苗监测报告的表3确认了18岁以上人群中按疫苗接种状态分列的病例总数如下：
 
-周日秘密透露：这位前澳大利亚日间剧明星已经接种了所有的标准疫苗，但是，却拒绝接种新冠疫苗。
+- 未接种疫苗的人群=79,516例
+- 部分接种疫苗的人口=25,554例
+- 完全接种的人口=250,132例
 
-在她的社交媒体上回应批评者时她写道：“为了信息透明，我在人生中接种过很多疫苗，但是我只是要为大众争取选择权。”
 
-这位36岁的前变形金刚女演员一直站在各种反新冠疫苗集会的焦点位置。这些集会的诉求就是结束边境控制与疫苗强制。
+这意味着在2021年10月11日至11月7日期间，18岁以上接种疫苗的人群占Covid-19病例的86%，而未接种疫苗的人群仅占14%。
 
-其中，在她留言到电视主播皮特·埃文斯的社交媒体帖子时说，“自由选择是每一个人的基本人权。我不相信靠新冠疫苗接种达到群体免疫这条路。”。
+不幸的是，英国卫生局的最新报告还显示，在2021年10月11日至11月7日期间，绝大多数Covid-19的住院病人也是完全接种疫苗的人群。
 
-原文链接：[From Summer Bay to Anti-vax protest](https://www.dailytelegraph.com.au/subscribe/news/1/?sourceCode=DTWEB_WRE170_a&amp;dest=https%3A%2F%2Fwww.dailytelegraph.com.au%2Fentertainment%2Fsydney-confidential%2Factress-isabel-lucas-has-been-vaccinated-just-not-for-covid19%2Fnews-story%2F6ac012a44e7f4140b63d796a895cd5b1&amp;memtype=anonymous&amp;mode=premium&amp;v21=dynamic-warm-control-score&amp;V21spcbehaviour=append)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-172-1.png)
 
-***发布：Candy***
+经英国卫生局报告表4证实，2021年10月11日至11月7日期间，所有年龄组按疫苗接种情况分列的住院人数总数如下：
 
-**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+- 未接种疫苗的人口=3,313人
+- 部分接种疫苗的人口=325人
+- 完全接种疫苗的人口=6,461人
 
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+这意味着在2021年10月11日至11月7日期间，接种疫苗的人群占Covid-19住院人数的67%，而未接种疫苗的人群仅占33%。
+
+但是，当涉及到据称与Covid-19有关的死亡时，接种疫苗和未接种疫苗之间的差异再次变得更加严重。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-173-1.png)
+
+经UKHSA报告表5确认，2021年10月11日至11月7日期间，按疫苗接种状态划分的据称Covid-19死亡总数如下：
+
+- 未接种疫苗的人口=587人死亡
+- 部分接种疫苗的人口=100人死亡
+- 完全接种疫苗的人口=2732人死亡
+
+
+这意味着在2021年10月11日至11月7日期间，接种疫苗的人群占Covid-19死亡人数的83%，而未接种疫苗的人群仅占17%。
+
+由于完全接种疫苗的人群中Covid-19的住院和死亡人数每周都在上升，而未接种疫苗的人群的住院和死亡人数继续下降，因此需要回答关于接种疫苗有效性的严重问题。
+
+**简评：**
+
+**真实的数据是不会骗人的，而号称着“代表科学”的那些伪科学家却在用谎言诓骗着这个世界。根据英国卫生局的相关数据，疫苗不但不能有效的阻止中共病毒的传播，并且在完全接种疫苗后的Covid-19死亡率相对于未接种疫苗者的死亡率竟然超过四倍之多。**
+
+**疫苗的灾难已经开始了，各国政府乃至全世界还在等待着什么？请离开那些利益和政治权力的纷争，救救你们的人民，停止接种“毒疫苗”。**
+
+参考资料：[theexpose.uk][83% of Covid-19 Deaths and 67% of Hospitalisations were among the Fully Vaccinated during the past month in England](https://theexpose.uk/2021/11/12/england-83-percent-covid-deaths-fully-vaccinated/)
+
+* * *
+
+*审核：蚂蚁兄弟*
+*校对：阿伯塔*
+*发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
 
  
 

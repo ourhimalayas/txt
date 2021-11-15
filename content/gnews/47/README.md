@@ -2,22 +2,31 @@
 ---
 
 
-## 谁能拯救中共国8439.5万3～11岁的孩子？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1663156/)
+## GTV新闻访谈简报|2021年11月14日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1663948/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/232-1.jpg)[图片来源](https://www.sohu.com/a/317755479_100024181)
-11月14日中共国政府网报道，在13日中共国务院联防联控机制举行的发布会上，国家卫健委疾控局副局长吴良有指出，将继续推进重点人群的CCP病毒疫苗加强免疫和3～11岁儿童的疫苗接种工作。目前，3～11岁儿童已接种8439.5万人，预计将在12月底完成3～11岁儿童的全程接种工作。教育部防控办主任、体育卫生与艺术教育司司长王登峰介绍，3～11岁儿童数量约为1.6亿，其中有一半开始接种。目前，18岁以上的学生疫苗接种已达到95%以上。中国教育部防控办主任、体育卫生与艺术教育司司长王登峰在发布会上介绍说，大、中、小学正按照国家统一部署，稳步推进疫苗接种工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
 
-截至11月12日，全国累计报告接种CCP病毒疫苗23亿7271.3万剂次，完成全程接种的人数为10亿7384.5万人，所谓的按照国家统一部署，就是中共强制打毒疫苗的措辞，国人在不明真相各种胁迫和宣传下已经被签下“自愿承诺书”，谁能拯救8439.5万3～11岁的孩子？没有任何人任何政府机构或单位来为此负责，愿国人都能醒来看清中共掩盖病毒和所谓的疫苗接种的流氓杀人本质。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-13.png)
+文章仅代表作者本人观点，与Gnews无关
 
-信息来源：
+视频参看：2021.11.14早GTV新闻访谈
 
-[国家卫生健康委：3～11岁人群接种新冠疫苗达8439.5万人滚动新闻中国政府网](http://www.gov.cn/xinwen/2021-11/14/content_5650790.htm)
+[https://gtv.org/broadcast/watch/61910f2ae7e770379234d809](https://gtv.org/broadcast/watch/61910f2ae7e770379234d809)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/08/image0-1-36.jpg)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

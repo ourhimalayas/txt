@@ -2,32 +2,20 @@
 ---
 
 
-## 供应链危机恶化 或比雷曼兄弟倒闭更糟糕
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1659126/)
+## 班农先生将会成为全人类的英雄！
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1659767/)
 
-作者：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据《零对冲》11月11消息，目前有111艘集装箱船停泊在洛杉矶和长滩港口之外，创下了历史新高。此前，拜登政府下达每周7天、每天24小时的全天候工作指令，甚至考虑召入国民警卫队，目前看来，这些措施并没有达到预期目标。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-8.jpg)
-《美国托运人》杂志最近发布的数据显示，这两个港口的吞吐量占全美所有海运集装箱的40%，码头上的集装箱已升至60,000个，平均停靠九天多。仓储空间、货运卡车和劳动力短缺的问题，已经拧成了一个死结。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-91.jpg)[图片来源](https://newsin.us/wp-content/uploads/2020/08/1-32.png)
+#### 撰稿：胡天
 
-一个物流公司的CEO瑞安·彼得森表示，“如果这两个港口拥堵持续恶化，可能会比雷曼兄弟的倒闭更糟糕”。
+纽约时间2021年11月12日，下午7时左右，一群人正在屋外等待抓捕川普的坚定支持者、川普前首席战略顾问、新中国联邦的创始人、真正的美国之声war room主播、美国爱国者班农先生。
 
-参考链接：[供应链危机恶化 或比雷曼兄弟倒闭更糟糕](https://www.zerohedge.com/markets/record-111-container-ships-anchored-southern-california-congestion-crisis-worsens)
+众所周知，班农先生一直美国极左势力的围剿下努力传播真相，对抗邪恶。他对目前最主要的反共灭共团体——爆料革命的支持更是毫无保留！郭先生说过，现在的世界，已经不是集权与民主的较量、不是左与右的博弈，而是邪恶与正义的终极之战！此一役，将决定人类的生死存亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+魔鬼在垂死之前必定会疯狂反扑。战争远远还未结束，但历史会记住这个时刻，记住这位拯救人类的英雄！
 
-总编：AN
-编辑：AN
-校对/发稿：Hetangyuese
+我们爱您，班农先生！新中国联邦、爆料革命的所有战友永远跟您站在一起！！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
