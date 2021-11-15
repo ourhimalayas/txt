@@ -2,25 +2,34 @@
 ---
 
 
-## 扬言打脸未接种疫苗者的心脏科医师在注射加强针后离世
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1666402/)
+## 跌跌不休，中共国新房二手房都在跌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666406/)
 
-翻译：Gradient Boost
+#### 整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11111111111-1.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fimg-other.jiwu.com%2Fnews%2F2021%2F05%2F17%2F181315316538.jpg%2Fnewsx&amp;imgrefurl=http%3A%2F%2Fcd.jiwu.com%2Fnews%2F4776067.html&amp;tbnid=MZ0Q0OVoP936-M&amp;vet=12ahUKEwj9_6y1v5r0AhUFzaACHZ7kDAsQMygBegUIARCdAQ..i&amp;docid=XQPBcYpDnm-JXM&amp;w=646&amp;h=415&amp;itg=1&amp;q=%E6%88%BF%E4%BB%B7%E4%B8%8B%E8%B7%8C&amp;ved=2ahUKEwj9_6y1v5r0AhUFzaACHZ7kDAsQMygBegUIARCdAQ)
+11 月 15 日，中共国国家统计局公布 10 月 70 个大中城市商品住宅销售价格变动情况。70 个大中城市商品住宅销售价格环比总体延续下降态势，同比涨幅继续回落。
 
-评论：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2021/11/009-scaled.jpg)图片来源：Pexels免费照片素材库；摄影：RF.\_.studio
-一位52岁的心脏病学医师在接种疫苗加强针后死亡，这位医师曾在今年多次贬低拒绝接种疫苗的人士。这位名为Lutchmedial的医师在今年的1月16日注射了第一针疫苗，随后多次在社交媒体上对未接种疫苗人群展现出蔑视的态度。就在上个月初，他发推提倡对未接种疫苗者采取暴力手段，并称自己“想要一拳打在未接种疫苗者的脸上。”
+**70 ****城中 52 城新房价格环比下跌**
 
-这位Lutchmedial医生曾积极在社交媒体平台倡议对未成年人施打疫苗，例如12岁青少年群体群体——他在推文中称疫苗注射“毫无疑问是安全的”。然而当他在10月24日进行第三次加强针注射过后，经过大约两周的时间，他便于11月8日在睡眠中突然离世。而这一结果，笔者认为毫无疑问与他所大力鼓吹的中共病毒疫苗有绝对性的关联。
+根据中共国国家统计局公布的 10 月数据，一线城市新建商品住宅销售价格环比持平，北京和上海环比分别上涨 0.6% 和 0.1%，广州和深圳分别下降 0.3% 和 0.2%。二线城市新房价格环比由上月持平转为下降 0.2%；三线城市则环比下降 0.3%，降幅比上月扩大 0.1 个百分点。
 
-我们不清楚Lutchmedial医生是否真的曾像他在推特里所说的那样，用他的拳头揍过拒绝注射疫苗的意见不同者。不幸的是，我们现在可以肯定，他最终自己扇了自己一巴掌。今年上半年，他曾在推特上表示：“我们在生前所做的99.999999%的决策与行为，在我们离世之后对我们来说都毫无意义和价值。”你可以把这当成一种讽刺，也可以将之当成一种预言，然而不论如何，很遗憾这位医生以这等方式警醒人们：疫苗有危险，而且能致命，即便你支持疫苗，毒针也不会对你有半点心慈手软。
+房价的走势从下跌城市的数量变化中体现得更为明显。**全国 70 个大中城市中，新房价格出现环比下跌的城市数量为 52 个**，相比 9 月的 36 个明显增多。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2222222.jpg)
+**70 ****城中 64 城二手房价环比下跌**
 
-（文章内容仅代表作者观点，与Gnews平台无关）
+相比于更受关注的新房，目前二手房市场的降温现象其实更为明显。中共国国家统计局数据显示，10 月一线城市二手住宅销售价格环比下降 0.4%，与上月相同，北京、上海、广州和深圳环比分别下降 0.5%、0.4%、0.6% 和 0.2%。二线城市二手住宅销售价格环比下降 0.3%，降幅比上月扩大 0.2 个百分点；三线城市二手住宅销售价格环比下降 0.3%，降幅比上月扩大 0.1 个百分点。
 
-新闻参考链接：
+从降价城市数量看，10 月二手房房价环比下跌的城市数量达到了 64 个，即有九成左右的城市出现了明显的降价现象。这也说明，**这一波二手房的降温是全国范围性质的。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3333333333333.jpg)
+消息来源:
 
-[Health Impact News](https://healthimpactnews.com/2021/cardiologist-medical-doctor-who-wanted-to-punch-anti-vaxxers-in-the-face-dead-after-covid-booster-shot/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
+[房价，在继续跌！](https://finance.sina.com.cn/chanjing/cyxw/2021-11-15/doc-iktzscyy5663515.shtml)
+
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
