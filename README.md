@@ -15,125 +15,125 @@
 
 ---
 
-### [加拿大自由党将推出大量竞选承诺法案](/content/gnews/1/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [疫情迫使中共政府再次封锁大学校园](/content/gnews/2/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [2021/11/15 文贵先生盖特精要](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|花旗集团前首席执行官表示：所有大银行很快就会进行加密交易](/content/gnews/4/README.md)
+### [有声|联邦上诉法院维持对拜登疫苗强制令的临时禁令](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [11/15/2021 文贵盖特：六中全会刚结束，中共国经济即显颓势](/content/gnews/5/README.md)
+### [“病毒猛于二手烟”加拿大首席卫生官再次语惊四座](/content/gnews/2/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [总统拜登急于讨好中共党魁习进平](/content/gnews/3/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [(更新)独家摘要:关注Covid-19疫苗](/content/gnews/4/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [闯入川普马拉戈庄园的中共肇事者被驱逐出境](/content/gnews/5/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [加拿大自由党将推出大量竞选承诺法案](/content/gnews/6/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [疫情迫使中共政府再次封锁大学校园](/content/gnews/7/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [2021/11/15 文贵先生盖特精要](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声|花旗集团前首席执行官表示：所有大银行很快就会进行加密交易](/content/gnews/9/README.md)
+ ` MOSREC`
+
+### [11/15/2021 文贵盖特：六中全会刚结束，中共国经济即显颓势](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [有声|变态防疫加房产暴雷，中共经济危机四伏](/content/gnews/6/README.md)
+### [有声|变态防疫加房产暴雷，中共经济危机四伏](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [2021/11/12 文贵先生直播精要](/content/gnews/7/README.md)
+### [2021/11/12 文贵先生直播精要](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [喜美元未来绝对是和法币挂钩的数字货币之王](/content/gnews/8/README.md)
+### [喜美元未来绝对是和法币挂钩的数字货币之王](/content/gnews/13/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [崩溃：CDC 无法提供先前感染冠状病毒后具有自然免疫力病例数据](/content/gnews/9/README.md)
+### [崩溃：CDC 无法提供先前感染冠状病毒后具有自然免疫力病例数据](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国研究显示，儿童及青少年感染中共病毒后无实际死亡风险](/content/gnews/10/README.md)
+### [英国研究显示，儿童及青少年感染中共病毒后无实际死亡风险](/content/gnews/15/README.md)
  ` 纽约香草山MOS02`
 
-### [雇主若执行疫苗强制令，将为每起疫苗造成的伤害赔偿100万](/content/gnews/11/README.md)
+### [雇主若执行疫苗强制令，将为每起疫苗造成的伤害赔偿100万](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【信仰之声】明年黑色五月后的世界](/content/gnews/12/README.md)
+### [【信仰之声】明年黑色五月后的世界](/content/gnews/17/README.md)
  ` 纽约香草山MOS03`
 
-### [上百万人在你的身后，班农先生](/content/gnews/13/README.md)
+### [上百万人在你的身后，班农先生](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共统战部是否在影响美国政治](/content/gnews/14/README.md)
+### [中共统战部是否在影响美国政治](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021年11月14日郭文贵先生直播全文字版](/content/gnews/15/README.md)
+### [2021年11月14日郭文贵先生直播全文字版](/content/gnews/20/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [中共寻求以公开定价的方法使黑市器官交易正常化](/content/gnews/16/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共国的光棍节失去光泽，今年增长下滑至个位数](/content/gnews/17/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [为什么习近平想要更多的权力？](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [劳动力市场持续动荡，美国9月份440万人辞职，创新纪录](/content/gnews/19/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [从加拿大逃到美国的急诊室医生](/content/gnews/20/README.md)
+### [福奇警告接种疫苗的人免疫力下降，并宣布加强注射](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [小鲍勃•肯尼迪在11月13日米兰集会上说:“我并不反对疫苗，但是新冠疫苗杀人”](/content/gnews/21/README.md)
+### [中共寻求以公开定价的方法使黑市器官交易正常化](/content/gnews/22/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共国的光棍节失去光泽，今年增长下滑至个位数](/content/gnews/23/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [为什么习近平想要更多的权力？](/content/gnews/24/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [劳动力市场持续动荡，美国9月份440万人辞职，创新纪录](/content/gnews/25/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [从加拿大逃到美国的急诊室医生](/content/gnews/26/README.md)
+ ` MG FARM`
+
+### [小鲍勃•肯尼迪在11月13日米兰集会上说:“我并不反对疫苗，但是新冠疫苗杀人”](/content/gnews/27/README.md)
  ` xiaobaige`
 
-### [在香港高呼自由口号的“美国队长”被判刑五年](/content/gnews/22/README.md)
+### [在香港高呼自由口号的“美国队长”被判刑五年](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [《堡垒之夜》电子游戏今日撤离中共国市场](/content/gnews/23/README.md)
+### [《堡垒之夜》电子游戏今日撤离中共国市场](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [埃隆马斯克嘲笑伯尼桑德斯要求增加税收](/content/gnews/24/README.md)
+### [埃隆马斯克嘲笑伯尼桑德斯要求增加税收](/content/gnews/30/README.md)
  ` MG FARM`
 
-### [川普宣布推出Truth Social后，GETTR的注册人数飙升了135%](/content/gnews/25/README.md)
+### [川普宣布推出Truth Social后，GETTR的注册人数飙升了135%](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [俄州用伊维菌素治疗中共病毒患者取得巨大成功](/content/gnews/26/README.md)
+### [俄州用伊维菌素治疗中共病毒患者取得巨大成功](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [小罗伯特肯尼迪抗议意大利的“极权主义”绿色通行证](/content/gnews/27/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [共产幽灵之家庭荼毒-母亲3](/content/gnews/28/README.md)
+### [共产幽灵之家庭荼毒-母亲3](/content/gnews/33/README.md)
  ` 纽约香草山MOS03`
 
-### [台湾官员称中国领事馆向温哥华发出警告“不可接受”](/content/gnews/29/README.md)
- ` MG FARM`
-
-### [货币的未来 ：经济学家称现金的末日即将到来](/content/gnews/30/README.md)
+### [货币的未来 ：经济学家称现金的末日即将到来](/content/gnews/34/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [如果强制用药造成伤害，雇主可能面临100万美元的赔偿金](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [左媒称加拿大别无选择只能禁止华为5G设备](/content/gnews/32/README.md)
- ` HimalayaRussia`
-
-### [新冠病毒疫苗在全球彻底溃败](/content/gnews/33/README.md)
+### [新冠病毒疫苗在全球彻底溃败](/content/gnews/35/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [2021/11/14文贵先生直播精要](/content/gnews/34/README.md)
+### [2021/11/14文贵先生直播精要](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [福奇首次承认新冠病毒疫苗无效](/content/gnews/35/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [初探新冠后遗症的诊治](/content/gnews/36/README.md)
+### [初探新冠后遗症的诊治](/content/gnews/37/README.md)
  ` 纽约香草山MOS03`
 
-### [2021/11/15 大卫作战室直播精要](/content/gnews/37/README.md)
+### [2021/11/15 大卫作战室直播精要](/content/gnews/38/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [GTV新闻访谈简报|2021年11月15日早](/content/gnews/38/README.md)
+### [GTV新闻访谈简报|2021年11月15日早](/content/gnews/39/README.md)
  ` 纽约香草山MOS01`
 
-### [人权观察批北京冬奥赞助商对中共践踏人权行为无动于衷](/content/gnews/39/README.md)
+### [人权观察批北京冬奥赞助商对中共践踏人权行为无动于衷](/content/gnews/40/README.md)
  ` 日本东京方舟农场`
-
-### [排华危机和新变种病毒将至 郭先生警告黑暗即将来临](/content/gnews/40/README.md)
- ` 秘密翻译组-即时新闻播报组`
 
 ### [班农战斗室：中共是跨国犯罪集团](/content/gnews/41/README.md)
  ` GTV新闻访谈`

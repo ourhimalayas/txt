@@ -2,132 +2,45 @@
 ---
 
 
-## 喜美元未来绝对是和法币挂钩的数字货币之王
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1667528/)
+## 2021/11/15 文贵先生盖特精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1667606/)
 
-[https://gtv.org/video/id=6191cfb218270250810564a9](https://gtv.org/video/id=6191cfb218270250810564a9)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/111519.png)[盖特直播链接](https://gettr.com/post/pgznqk78f7)
+昨天下午绝大多数事情都是关于国内新股上市破发，前所未有。今天星期一，都在场外做大批交易，卖掉手中大量在美国的中概股和香港的“中国红股”。很多国家都在想尽办法把当时认购的人民币的换汇，取消所有的国家与国家之间的互换货币额度。六中全会才刚过，这些事情太吓人呀。
 
-我相信喜美元未来他是绝对的和法币挂钩的数字货币当中之王
-Yo confío que el HDO es definitivamente el rey de la moneda digital vinculada a la moneda legal en el futuro
+这周世界经济应该会感受到冷度，今天是习拜会上场，同一时间班农先生进了FBI大楼，这都是刻意安排。
 
-为什么, 它有3个谁都无法代替的因素
-¿ Por qué? Esto tiene tres razones irreemplazables
+共产党在国内告诉老百姓：“习一神的力量多大，无处不在，大地在颤抖。美国在寒冷中没有油烧，没有饭吃，股票要崩塌。”但在美国没有感受到一点共党所说的。
 
-它毕竟有十几亿中国人的这种市场的潜力
-Después de todo, tiene el potencial de este tipo de mercado de mil millones de chinos
+喜交所的喜币蹭蹭上涨，但共产党的经济完了。当国与国做大量贸易, 做本币互换的业务，主要是减少对美元的依赖，中间的货币交易的成本和两国之间的税收的问题；如果本币互换减少就是贸易减少了，也就是对你的信心减少了。
 
-可能性就是灭了共和不灭共
-La posibilidad es eliminar o no al Partido Comunista
+现在国内特别是黑龙江，辽宁，吉林，河北，河南，湖北，山西，陕西这些中北区的企业，现在都面临着发不出工资。就像八几年、九十年代初国有企业搞改革开放，那时到了冬天各企业都发不出工资，就发棉袄，发产品。现在发什么？
 
-这是大的使用者
-Este es el usuario más grande
+现在官方所谓每年造1千200万套房子，事实是2千万套，还要征收房地产说，老百姓怎样活得下去？像当年的大秦朝把人都赶去修长城，这都是皇家的借口，就是弱民、贫民、苦民的一个统治手段。现在这些房屋没有房地权和永久产权，不值得去交税，中共就是要老百姓欠债、累死。这是明显的骗局，就是弱民、贫民政策。
 
-我们战友这个规模在这摆着呢
-Es la escala de nuestros compañeros luchadores
+在全世界八百多种数字货币里面真正能运行的只有二、三十个，这些币的总额占整个数字货币里的80%。官方说三万多亿美元，事实会达到6万亿美元。什么叫数字货币？就是一个去中心化的公开账本化的一个数字货币中心，完全打破了政府的垄断、统治和掠夺的形式。它必然成为国际上的未来的货币金融方式。
 
-我相信战友未来会突破千万的, 突破一千万
-Yo confío que en un futuro los compañeros luchadores sobrepasarán los diez millones
+上海数字货币研究中心给中共中央人民银行各种警告，说共产党的人民数字货币是不可能的流通：数字人民币的流通对各大行发行的纸币、还有所有人民币的标准化和降准后的人民币和数字化人民币之间的矛盾，那是巨大的；最后老百姓和政府之间就形成了数字和货币的对抗，所以数字化的人民币必将是灾难。这严格来讲是上天给我们灭共的帮助。
 
-很快
-Pronto
+这个时候新中国联邦的金融系统诞生了。到明年五月至年底，特别是那三个条件诞生后，当共产党失去了对人民的货币控制时，它剩下的只有墙。不相信中共会将14亿人都杀了；不相信它将台湾TCMC台积电的人都弄到大陆去再开个TCMC；不相信在未来两年TCMC的芯片还能当主角，最终还会是美国。
 
-你看到盖特人的增长
-Verás el crecimiento de usuarios en GETTR
+好日子刚刚开始，周三直播再聊！
 
-未来两到三个月
-En los próximos dos a tres meses
+***听写**：乐禧禧*
+***校对**: 小雨*
 
-你会看到咱们这个喜连储的增长
-Podrás ver el crecimiento de nuestra Reserva Federal de Himalaya
+* * *
 
-那这个市场在这摆着
-Y dejar este mercado aquí
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-没有人可以替代
-Nadie lo reemplazará
 
-第二个就是这个喜美元跟这个整个喜连储的这个结构
-La segunda razón es el HDO con la estructura de toda la Reserva Federal de Himalaya
+编辑：【英国伦敦喜庄园编辑部】
 
-交易所的整个挂钩
-Toda la vinculación del intercambio
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-我觉得天下没有几个
-Yo digo que no hay casi nadie en este mundo
 
-没有几个
-Casi ninguno
-
-到目前还没看见
-Hasta ahora no he visto
-
-即使有它也跟不上我们的
-Y si hay, tampoco seguirá nuestro ritmo
-
-我们是原创者
-Somos el creador original
-
-第三个, 我们相信, 我们进来的大的机构投资者
-Y la tercera razón, nosotros confiamos en las grandes instituciones de inversores que entrarán
-
-每个人都是影响着世界命运的经济体
-Cada persona es la influencia del cuerpo económico del destino de este mundo
-
-也不会有几个, 你看到刚才所有的那些所谓这coinbase
-Tampoco habrá algunos, ves todo el llamado coinbase en este momento
-
-Kraken这些大多数
-Y Kraken, la mayorá de estos
-
-几乎没有一个像我们这个级别的投资
-Casi ninguno es del nivel de inversión como el de nosotros
-
-就没有, 这三条
-No lo hay, estas tres razones
-
-它决定了喜美元它在全球
-Determina al HDO en el mundo
-
-它一定是最大的流通的
-La circulación más grande
-
-所有货币, 买金融产品
-Todas las monedas, compra de productos financieros
-
-你买啥都能买
-Puedes comprar cualquier cosa
-
-只要是能买的东西你都能买
-Puedes comprar cualquier cosa que pueda ser comprado
-
-我相信未来一定会做到
-Confío que en un futuro puede llegar a ser así
-
-但是时间和方式
-Pero en cuánto tiempo o de qué manera
-
-这个我没法确定, 最终一定会达到的
-Esto no lo puedo asegurar, sin embargo, se logrará finalmente
-
-**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1457921740592406532?s=24](https://twitter.com/se1y7cblljselva/status/1457921740592406532?s=24)
-
-日期：11/12/2021
-原视频标题：喜美元未来绝对是和法币挂钩的数字货币之王
-El HDO es definitivamente el rey de la moneda digital vinculada a la moneda legal en el futuro
-原视频日期：11/09/2021
-任务编号：KC252（2826）
-视频时间段：0:00-1:37
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

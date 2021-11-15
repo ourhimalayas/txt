@@ -2,35 +2,19 @@
 ---
 
 
-## 小罗伯特肯尼迪抗议意大利的“极权主义”绿色通行证
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1667028/)
+## 小鲍勃•肯尼迪在11月13日米兰集会上说:“我并不反对疫苗，但是新冠疫苗杀人”
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1667088/)
 
-翻译：真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/11/kenn-649x437-1-edited.jpg)图片来源：网络
-来自OAN  十一月十四日星期天新闻报道：当数千人聚集在米兰抗议意大利的绿色通行证时，小罗伯特·肯尼迪并肩游行。
+#### 翻译整理：意大利罗马达芬奇农场                       小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Schermata-2021-11-15-alle-19.05.21-1.png)图片来源：安莎社
+小鲍勃•肯尼迪，他声称自己并不是反疫苗者，但是他反对疫苗，尤其是新冠疫苗。小鲍勃•肯尼迪是老鲍勃•肯尼迪的第三个孩子，他是美国前总统肯尼迪的侄子。他所领导的“保护孩子健康”协会领导了11月13日在米兰的示威集会，在米兰的和平拱门下“为民主、人权和公民权利而战斗”。我的家人并不同意我的看法，“ 但是如果他们知道我所知道的十分之一，他们会站在我身旁。”他认为疫苗应该像其他药品那样受到药物检查。在美国疫苗是唯一免受安全检查的药物”“ 孩子们是健康的，他们感染冠状病毒的风险为零。尽管如此，我们看到可能造成致命的伤害。”
 
-Kennedy Jr. 断言：“绿色通行证是为了巩固他们的权力而不顾您的生活。”
+这次米兰的集会是由极右势力发起的，但这并不让他产生任何疑问，“ 这是医药企业的战略。也就是给批评者贴上极端分子的标签。” 他说 “我是左派，但是我们都要为自由和权利而斗争，而精英想将我们彼此分开……”他还说 “**强制接种疫苗是没有必要的，并不能让我们摆脱紧急状态。如果政府诚实，药品管用，人们会争先恐后地服用，根本不用强制。” 简而言之“ 以捍卫公众健康为名义强制接种疫苗，真正的目的是全方位的监控，导致自由的终结。”**
 
-周六，关于政府对抗 COVID 的措施， 示威者交流了他们的焦虑与失望。 他们高兴地向美国前参议员罗伯特·肯尼迪的儿子致意，因为反疫苗倡导者认为绿色通行证不是一项公共卫生措施，而是政府控制的一种手段。
+原文链接：  https://www.open.online/2021/11/13/covid-19-kennedy-milano-vaccini/
 
-“这显然是一种控制货币供应、控制个人行动、控制我们这种新型数字化经济的工具，这使他的极权主义分子有能力控制我们生活的方方面面、每一个特征，而绿色通行证就是这一切的象征”，小肯尼迪说。
+编辑、发布： Xiao baige
 
-在意大利政府上个月批准绿色通行证后，该国的抗议活动已持续数周，该通行证要求该国所有工人出示疫苗接种证明、检测结果呈阴性或最近从病毒中康复。 Kennedy Jr. 说，通行证被用作剥夺他们权利的工具，他说除非劳工努力争取，否则当局永远不会归还他们的权利。
-
-Kennedy Jr. 已经表达了他对此事的看法，并计划将他的言论付诸行动。
-
-“我可以告诉你，我会和你并肩站在一起，如果我必须为此而死，我会穿着靴子死去”，他说。
-
-**点评：小罗伯特·弗朗西斯·肯尼迪**（**Robert Francis Kennedy Jr.**，1954 年 1 月 17 日出生）是美国环境律师、作家和[反疫苗](https://en-m-wikipedia-org.translate.goog/wiki/Anti-vaccine?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc)倡导者。是美国参议员[罗伯特·肯尼迪](https://en-m-wikipedia-org.translate.goog/wiki/Robert_F._Kennedy?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc)的儿子，也是[约翰·肯尼迪](https://en-m-wikipedia-org.translate.goog/wiki/John_F._Kennedy?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc)总统的侄子。他于周六从佛罗里达飞到意大利米兰，参与群众的抗议集会，去捍卫民主，健康的自由选择权和科学领域的透明度。
-
-我们每个爆料革命的战友都应该向小肯尼迪学习，做到有信仰并为此付出行动。
-
-原文链接：[https://www.oann.com/robert-kennedy-jr-protests-italys-totalitarian-green-pass/](https://www.oann.com/robert-kennedy-jr-protests-italys-totalitarian-green-pass/)
-
-编辑/发布：LILY
-
-20211115
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
