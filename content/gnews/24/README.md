@@ -2,35 +2,62 @@
 ---
 
 
-## 小罗伯特肯尼迪抗议意大利的“极权主义”绿色通行证
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1667028/)
+## 埃隆马斯克嘲笑伯尼桑德斯要求增加税收
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1667061/)
 
-翻译：真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/11/kenn-649x437-1-edited.jpg)图片来源：网络
-来自OAN  十一月十四日星期天新闻报道：当数千人聚集在米兰抗议意大利的绿色通行证时，小罗伯特·肯尼迪并肩游行。
+作者：Ian Miles Cheong
+翻译：HimaCoby
 
-Kennedy Jr. 断言：“绿色通行证是为了巩固他们的权力而不顾您的生活。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/mask.png)
 
-周六，关于政府对抗 COVID 的措施， 示威者交流了他们的焦虑与失望。 他们高兴地向美国前参议员罗伯特·肯尼迪的儿子致意，因为反疫苗倡导者认为绿色通行证不是一项公共卫生措施，而是政府控制的一种手段。
+特斯拉和SpaceX创始人埃隆马斯克对社会主义参议员伯尼桑德斯从没有正面评价因为桑德斯一再要求对富人增税。
 
-“这显然是一种控制货币供应、控制个人行动、控制我们这种新型数字化经济的工具，这使他的极权主义分子有能力控制我们生活的方方面面、每一个特征，而绿色通行证就是这一切的象征”，小肯尼迪说。
+桑德斯在推特上写道：“我们必须要求极其富有的人支付他们应该支付的份额。期间，”促使世界首富马斯克回答说，“我一直忘记你还活着。”
 
-在意大利政府上个月批准绿色通行证后，该国的抗议活动已持续数周，该通行证要求该国所有工人出示疫苗接种证明、检测结果呈阴性或最近从病毒中康复。 Kennedy Jr. 说，通行证被用作剥夺他们权利的工具，他说除非劳工努力争取，否则当局永远不会归还他们的权利。
+“要我卖更多的股票吗，伯尼？只要说出来，”马斯克补充道。
 
-Kennedy Jr. 已经表达了他对此事的看法，并计划将他的言论付诸行动。
+马斯克的后一句话是指他出售了总计价值 69 亿美元的股票。
 
-“我可以告诉你，我会和你并肩站在一起，如果我必须为此而死，我会穿着靴子死去”，他说。
+11 月 6 日，马斯克在推特上发起了一项民意调查，询问他的听众是否应该出售 10% 的特斯拉股票，他在推特上写道：“最近很多未实现收益是避税手段，所以我建议出售我持有的 10% 的特斯拉股票。你支持这个吗？”
 
-**点评：小罗伯特·弗朗西斯·肯尼迪**（**Robert Francis Kennedy Jr.**，1954 年 1 月 17 日出生）是美国环境律师、作家和[反疫苗](https://en-m-wikipedia-org.translate.goog/wiki/Anti-vaccine?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc)倡导者。是美国参议员[罗伯特·肯尼迪](https://en-m-wikipedia-org.translate.goog/wiki/Robert_F._Kennedy?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc)的儿子，也是[约翰·肯尼迪](https://en-m-wikipedia-org.translate.goog/wiki/John_F._Kennedy?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc)总统的侄子。他于周六从佛罗里达飞到意大利米兰，参与群众的抗议集会，去捍卫民主，健康的自由选择权和科学领域的透明度。
+在 350 万张总选票中，有 58% 的人表示同意。
 
-我们每个爆料革命的战友都应该向小肯尼迪学习，做到有信仰并为此付出行动。
+“无论结果如何，我都会遵守这次民意调查的结果，”马斯克说。“请注意，我不会从任何地方领取现金工资或奖金。我只有股票，所以我个人纳税的唯一方式就是卖股票。”
 
-原文链接：[https://www.oann.com/robert-kennedy-jr-protests-italys-totalitarian-green-pass/](https://www.oann.com/robert-kennedy-jr-protests-italys-totalitarian-green-pass/)
+马斯克于 2002 年创立了 SpaceX，并于 2008 年成为特斯拉的 CEO。
 
-编辑/发布：LILY
+他还是开发友好人工智能的非营利研究公司 Open AI 的创始人，并于 2016 年创立了 Neurolink，开发计算机大脑接口。
 
-20211115
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+马斯克在全球拥有超过 110,000 名员工。
+
+相比之下，桑德斯以政治家为生，拥有三套价值数百万美元的房屋并没有为任何人创造就业机会。相反，他几十年来一直依靠纳税人的钱来支付薪水。
+
+特斯拉首席执行官对伯尼桑德斯的评论对他来说并不是什么新鲜事。马斯克一再将矛头指向极左，经常嘲笑他们对世界的简单化看法。去年，马斯克在推特上发布了一个关于卡尔马克思的表情包，“免费给我福利”，称马克思为“饥饿的圣诞老人”。马斯克将这个模因称为“简而言之的资本论”。
+
+在他关于伯尼桑德斯的一系列推文中，马斯克在推特上写道“伯尼是接受者，而不是制造者”，并积极回应了其他用户，他们认为马斯克的税款可以被正确利用，而不是浪费。
+
+在另一篇文章中，马斯克指出，过去两年他一直住在德克萨斯州南部一栋价值 50,000 美元的房子里，“住在小房子里感觉更像家一样”。马斯克发表上述言论是为了回应有关他和其他亿万富翁一样，过着远远超出任何其他人的能力的奢侈生活方式的说法。
+
+来源：https://www.rebelnews.com/elon\_musk\_mocks\_bernie\_sanders\_demands\_for\_increased\_taxes
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
