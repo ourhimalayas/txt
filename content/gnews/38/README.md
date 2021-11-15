@@ -2,24 +2,31 @@
 ---
 
 
-## 中共国10月份鲜菜价格同比上涨15.9%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666353/)
+## 中共将在美国西部释放新变种病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666365/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-83.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.corporatefinanceinstitute.com%2Fassets%2Fconsumer-price-index.jpeg&amp;imgrefurl=https%3A%2F%2Fcorporatefinanceinstitute.com%2Fresources%2Fknowledge%2Feconomics%2Fconsumer-price-index-cpi%2F&amp;tbnid=8C4ldc6aQ0ZZhM&amp;vet=12ahUKEwjg3fues5r0AhUNnEsFHRcLDq8QMygIegUIARCwAQ..i&amp;docid=9qB4aIwIUMlTCM&amp;w=1180&amp;h=980&amp;q=CPI&amp;ved=2ahUKEwjg3fues5r0AhUNnEsFHRcLDq8QMygIegUIARCwAQ)
-11月15日北京日报报道，中共国家统计局发布10月国民经济数据。10月份，全国居民消费价格（CPI）同比上涨1.5%，涨幅比上月扩大0.8个百分点；环比上涨0.7%。分类别看，食品烟酒价格同比下降0.9%，衣着价格上涨0.5%，居住价格上涨1.7%，生活用品及服务价格上涨0.9%，交通通信价格上涨7.0%，教育文化娱乐价格上涨2.9%，医疗保健价格上涨0.6%，其他用品及服务价格下降0.5%。
+作者：纽约香草山教育部 – Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2021年11月14日，郭文贵先生在大直播中爆料称，近期，中共将会在美国西部释放新变种病毒，并将自西向东蔓延，覆盖到整个美国以及其他西方国家。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-49.jpg)
+据前中共资深生化专家分析，新变种病毒将会加速疫苗灾难的发展进程，同时会加速各国政府疫苗强制政策的推进。目前，全球已有将近一半的人都接种过毒疫苗。新病毒变种将会使这些接种过疫苗的人更易被感染、患上重症甚至死亡。同时，接种过疫苗的患者也将会把新变种病毒更快地传播给未接种的健康人。对于各国政府而言，这也将成为各国加速疫苗强制令的最好借口，包括儿童也不能幸免。
+郭先生说，这是中共生化超限战真正灾难的开始，我们将面临人类最黑暗的时刻。灾难无法预测，新中国联邦人只有紧紧地联合在一起，才能保证自己的生命和财产安全。
 
-10月CPI涨幅扩大主要受到近期鲜菜价格上涨影响。在食品烟酒价格中，猪肉价格同比下降44.0%，鲜菜价格上涨15.9%，粮食价格上涨0.9%。
+参考链接：[2021年11月14日文贵大直播：香港大陆及世界股市；喜币迎接金融大转变；疫苗灾难台湾房地产；新中国联邦机会何在；班农被司法部起诉的意义；全球金融危机及G系列生态圈](https://gtv.org/video/id=61910d9be7e770379234d270)
 
-中共国滥印钞票就像是从老百姓口袋里抢钱，老百姓手中的积蓄被稀释贬值，致商品流通领域通胀加剧，毛币加速贬值致使民生的蔬菜粮食也暴涨。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-信息来源：
+总编：文特
+编辑：Lakeman（文仁）
+校正/发稿：Fei797
 
-[10月全国CPI同比上涨1.5%，鲜菜价格同比上涨15.9%](https://mq.mbd.baidu.com/r/wrjXgauzqU?f=cp&amp;rs=3889805779&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=682eb6ff4fb14d9b)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

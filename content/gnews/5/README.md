@@ -2,43 +2,31 @@
 ---
 
 
-## 排华危机和新变种病毒将至 郭先生警告黑暗即将来临
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1666773/)
+## GTV新闻访谈简报|2021年11月15日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1666828/)
 
-**By:秘翻新闻**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
 
-***2021-11-15***
-[![](https://assets.gnews.org/wp-content/uploads/2021/11/1115-2.jpg)](https://gtv.org/broadcast/watch/619222f0e7e7703792355835)点击图片观看视频
-**新闻摘要:**
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-14.png)
+文章仅代表作者本人观点，与Gnews无关
 
-1. 涨价蔓延到主食 大陆“面业第一股”宣布涨价
+视频参看：2021.11.15早GTV新闻访谈
 
-2. 上有政策下有对策 “限跌令”对上“工抵房”
+[https://gtv.org/broadcast/watch/61926065e7e7703792356bb6](https://gtv.org/broadcast/watch/61926065e7e7703792356bb6)
 
-3. 重庆数千出租车司机罢工 要求降承包费
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-4. 华东理工大细菌实验引风波 学生抱怨全校封锁
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
 
-5. 排华危机和新变种病毒将至 郭先生警告黑暗即将来临
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-6. 郭文贵先生：加密货币一定会取代法币
-
-7. 多国取消关税优惠 对中共打击巨大
-
-8. 美国将军通知士兵可无视中共病毒疫苗强制令
-
-9. 澳法奥多地周末爆发反抗疫苗暴政游行
-
-10. 日本新外相：布林肯承诺美国协防保卫钓鱼岛决心不变
-
-**GTV链接：**[https://gtv.org/broadcast/watch/619222f0e7e7703792355835](https://gtv.org/broadcast/watch/619222f0e7e7703792355835)
-
-发布: 文橙
-
-* * *
-
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

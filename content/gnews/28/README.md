@@ -2,23 +2,20 @@
 ---
 
 
-## 樱花灭共诗——观修盘古旧照有感（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666471/)
+## 疫苗病毒是习和常委军委下的命令
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666536/)
 
-#### 作者：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-剪影当年构画痕，知行共勉益修身。
+文编：东京樱花团/樱花传媒
 
-探虚虎穴升盘古，游刃龙宫触逆鳞。
+视频:东京樱花团/中文小视频组
 
-赖有襄赞多智勇，幸得避祸谢佳人。
+11月12日，郭文贵先生在GTV大直播强调：
 
-常思不忘同袍义，筹币待时慰众心。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3BFF98B8-E45D-416B-870F-A04E067C45DD.jpeg)
-*插图：东京樱花团/闪闪*
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/07/image0-1-51.jpg)
+疫苗灾难是文贵先生和无数战友冒着生命危险换来的真相！防化学院、装甲兵原学院、中纪委办案组人员、在武汉参与调查的研究人员、安保人员、欧洲的科学家，是那么多生命和证据证明，疫苗是真正的杀人目标和工具、冠状病毒是共产党的生化武器、是习近平和常委、军委下的命令！
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

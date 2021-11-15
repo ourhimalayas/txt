@@ -15,131 +15,131 @@
 
 ---
 
-### [辉瑞公司首席执行官的妻子死于辉瑞疫苗并发症](/content/gnews/1/README.md)
+### [福奇首次承认新冠病毒疫苗无效](/content/gnews/1/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [初探新冠后遗症的诊治](/content/gnews/2/README.md)
+ ` 纽约香草山MOS03`
+
+### [2021/11/15 大卫作战室直播精要](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [辉瑞公司首席执行官的妻子死于辉瑞疫苗并发症](/content/gnews/4/README.md)
  ` 日本东京方舟农场`
 
-### [GTV新闻访谈简报|2021年11月15日早](/content/gnews/2/README.md)
+### [GTV新闻访谈简报|2021年11月15日早](/content/gnews/5/README.md)
  ` 纽约香草山MOS01`
 
-### [人权观察批北京冬奥赞助商对中共践踏人权行为无动于衷](/content/gnews/3/README.md)
+### [人权观察批北京冬奥赞助商对中共践踏人权行为无动于衷](/content/gnews/6/README.md)
  ` 日本东京方舟农场`
 
-### [国际女网协会主席发声明要求中共全面调查彭帅性侵指控](/content/gnews/4/README.md)
+### [国际女网协会主席发声明要求中共全面调查彭帅性侵指控](/content/gnews/7/README.md)
  ` 日本东京方舟农场`
 
-### [排华危机和新变种病毒将至 郭先生警告黑暗即将来临](/content/gnews/5/README.md)
+### [排华危机和新变种病毒将至 郭先生警告黑暗即将来临](/content/gnews/8/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [疫苗强制令导致美国9月份辞职人数创历史新高](/content/gnews/6/README.md)
+### [疫苗强制令导致美国9月份辞职人数创历史新高](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [班农战斗室：中共是跨国犯罪集团](/content/gnews/7/README.md)
+### [班农战斗室：中共是跨国犯罪集团](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [班农先生被司法部起诉的意义](/content/gnews/8/README.md)
+### [班农先生被司法部起诉的意义](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [台湾3日内出现10例完整接种疫苗后仍感染中共病毒案例](/content/gnews/9/README.md)
+### [台湾3日内出现10例完整接种疫苗后仍感染中共病毒案例](/content/gnews/12/README.md)
  ` 日本东京方舟农场`
 
-### [新中国联邦国防军即将履行使命](/content/gnews/10/README.md)
+### [新中国联邦国防军即将履行使命](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [加密数字货币市场投资已势不可挡](/content/gnews/11/README.md)
+### [加密数字货币市场投资已势不可挡](/content/gnews/14/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [私生子女受害者](/content/gnews/12/README.md)
+### [私生子女受害者](/content/gnews/15/README.md)
  ` 骄子`
 
-### [DC每日热点1115](/content/gnews/13/README.md)
+### [DC每日热点1115](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [辉瑞公司首席执行官的妻子因接种疫苗引发的并发症而去世](/content/gnews/14/README.md)
+### [辉瑞公司首席执行官的妻子因接种疫苗引发的并发症而去世](/content/gnews/17/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [中共病毒导致2.5万吨塑料垃圾流入海洋](/content/gnews/15/README.md)
+### [中共病毒导致2.5万吨塑料垃圾流入海洋](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [维基百科停止更新因疫苗死亡的运动员人数](/content/gnews/16/README.md)
+### [维基百科停止更新因疫苗死亡的运动员人数](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [秘翻在线:经济大萧条将持续到2045年](/content/gnews/17/README.md)
+### [秘翻在线:经济大萧条将持续到2045年](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共政府企图控制大型互联网平台自由度](/content/gnews/18/README.md)
+### [中共政府企图控制大型互联网平台自由度](/content/gnews/21/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [七哥说—第28期](/content/gnews/19/README.md)
+### [七哥说—第28期](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [全世界的疫苗失败](/content/gnews/20/README.md)
+### [全世界的疫苗失败](/content/gnews/23/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [殡葬行业的红火才刚开始](/content/gnews/21/README.md)
+### [殡葬行业的红火才刚开始](/content/gnews/24/README.md)
  ` 银河勇气之星`
 
-### [美医疗集团与其雇员达成临时协议](/content/gnews/22/README.md)
+### [美医疗集团与其雇员达成临时协议](/content/gnews/25/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [11/15/21 香港快讯 忧国安法下财产被没收 台陆委会：确有风险，全力保护](/content/gnews/23/README.md)
+### [11/15/21 香港快讯 忧国安法下财产被没收 台陆委会：确有风险，全力保护](/content/gnews/26/README.md)
  ` 英喜-粵語組`
 
-### [恒大将引爆中共房地产业雪崩](/content/gnews/24/README.md)
+### [恒大将引爆中共房地产业雪崩](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [疫苗病毒是习和常委军委下的命令](/content/gnews/25/README.md)
+### [疫苗病毒是习和常委军委下的命令](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：俄克拉荷马州的医生用伊维菌素治疗养老院中共病毒患者取得巨大成功](/content/gnews/26/README.md)
+### [秘翻在线：俄克拉荷马州的医生用伊维菌素治疗养老院中共病毒患者取得巨大成功](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [班农事件折射美国的法治并反衬不灭共产党天下没法生存](/content/gnews/27/README.md)
+### [班农事件折射美国的法治并反衬不灭共产党天下没法生存](/content/gnews/30/README.md)
  ` NewFOC`
 
-### [樱花灭共诗——观修盘古旧照有感（新韵）](/content/gnews/28/README.md)
+### [樱花灭共诗——观修盘古旧照有感（新韵）](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国会利用班农事件转移拜登外交政策的失败](/content/gnews/29/README.md)
+### [国会利用班农事件转移拜登外交政策的失败](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [跌跌不休，中共国新房二手房都在跌](/content/gnews/30/README.md)
+### [跌跌不休，中共国新房二手房都在跌](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [扬言打脸未接种疫苗者的心脏科医师在注射加强针后离世](/content/gnews/31/README.md)
+### [扬言打脸未接种疫苗者的心脏科医师在注射加强针后离世](/content/gnews/34/README.md)
  ` 澳喜特战旅Gnews`
 
-### [抓捕班农使他成为美国政治教父和新中国联邦的绝对资产](/content/gnews/32/README.md)
+### [抓捕班农使他成为美国政治教父和新中国联邦的绝对资产](/content/gnews/35/README.md)
  ` NewFOC`
 
-### [美国FDA因“假阳性”召回数百万份家用中共病毒测试盒](/content/gnews/33/README.md)
+### [美国FDA因“假阳性”召回数百万份家用中共病毒测试盒](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [沈南鹏的“区块链帝国”将最终化为泡影](/content/gnews/34/README.md)
+### [沈南鹏的“区块链帝国”将最终化为泡影](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际女网协会关注彭帅 要求北京全面调查性侵指控](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共将在美国西部释放新变种病毒](/content/gnews/36/README.md)
+### [中共将在美国西部释放新变种病毒](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [日美加强合作，重新审核关税](/content/gnews/37/README.md)
+### [日美加强合作，重新审核关税](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国10月份鲜菜价格同比上涨15.9%](/content/gnews/38/README.md)
+### [中共国10月份鲜菜价格同比上涨15.9%](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共匪人人得而诛之](/content/gnews/39/README.md)
+### [共匪人人得而诛之](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥列举三个对待喜币的反面事例来警示战友](/content/gnews/40/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [视频| 中共即将释放新的病毒](/content/gnews/41/README.md)
+### [视频| 中共即将释放新的病毒](/content/gnews/42/README.md)
  ` MOSREC`
-
-### [一年来GTV投资从未亏损是中国前所未有的](/content/gnews/42/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [一位有良知的医生证明伊维菌素对治疗新冠的有效性](/content/gnews/43/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
