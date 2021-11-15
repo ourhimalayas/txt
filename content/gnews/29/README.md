@@ -2,36 +2,51 @@
 ---
 
 
-## 突发：中共欲再利用彭斯挑战特朗普，1/6调查或将背水一战
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1665970/)
+## 11/15/2021国际财经快讯：美辞职大潮继续升温；通货膨胀已经一发不可收
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1666102/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh4.googleusercontent.com/bsCgNVj4RUM03EoCW3YNflaOHZKVya94YzIWUL7hjj21Ikfvzsg_H5ScvwhKx0uSbDIEJM1ECDWFuP1QpSVXGJbXXzEh4yoOjkswQtdYahDvb2MNSV9y5pXEquvGcz5guQTq7Q_Q)[图片来源](https://www.newsweek.com/trump-rails-against-1-6-investigation-subpoenas-gain-force-rioters-sentenced-1649063?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1636931480959&amp;subscriberId=618632587623c90ce1da6a7e)
-据[新闻周刊14日消息](https://www.newsweek.com/trump-rails-against-1-6-investigation-subpoenas-gain-force-rioters-sentenced-1649063?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1636931480959&amp;subscriberId=618632587623c90ce1da6a7e)称， 前总统唐纳德·特朗普抨击对 1 月 6 日国会骚乱的调查，两天前他的前顾问史蒂夫·班农因无视众议院特别委员会对叛乱调查的传票而被起诉藐视国会。特朗普质问为什么没有对“在选举中作弊的人和州”进行调查，并反复重申了2020总统选举被盗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-66.png)[图片来源](https://news.utexas.edu)
+**1****．辞职大潮：仅****9****月份就有超过****400****万美国人辞职**
 
-相反，他们没有对选举舞弊进行调查，而正在恶毒地调查那些抗议 11 月 3 日总统选举的人，这是世纪罪行。正如中共国一句民间谚语所言，不解决提出的问题，而只解决提出问题的人。
+[“辞职大潮 “在美国继续升温，超过400万美国人（约占劳动力的3%）连续第二个月不断提出辞职。越来越多的职位空缺现在正迫使公司将目光投向其他地方，因为他们正拿出有吸引力的报价来迅速填补创纪录的职位空缺。美国劳工部周五表示，9月份有440万人辞职，比8月份的430万人有所增加，远远高于疫情前的360万人的水平。数据显示，有1,040万个职位空缺，低于8月份的1,060万个，8月份的职位空缺被修正得更高。此外，数据指出，与疫情前的趋势相比，找工作的人少了约500万，这使得雇主更难雇用。劳动力的减少在那些由亲身服务工作组成的行业中非常明显，如餐馆、酒店和零售业，以及人们在附近工作的工厂。经济学家认为，这一趋势反映出一些人完全是因为害怕感染中共病毒而辞职的。](https://www.wionews.com/world/the-great-resignation-over-4-million-americans-quit-their-jobs-in-september-alone-428946)
 
-特朗普补充说：“美国爱国者不会允许这种颠覆正义的行为继续下去，包括使用地方州和联邦检察官来折磨和摧毁无辜的人。所有这一切任由发生，我们的国家将要下地狱！”
+**2****.** **通货膨胀已经一发不可收**
 
-周日，特朗普对于起诉班农并采取法律行动的行为谴责说：“**这个国家可能从未对任何人做过他们对史蒂夫·班农做的事情，他们也希望对其他人做**。”并且说，“如果他们尊重我们对中国、俄罗斯的强硬立场，也许国家就不会失败到前所未有过的水平。”
+[本周，美国近31年来的最高年通胀率在金融市场和美国人的脑海中回荡，损害了消费者的情绪，让许多交易员感到困惑。一家金融公司警告说，传说中的 “精灵已经出瓶”。周五，通胀担忧加剧的迹象似乎无处不在，首先是密歇根大学的消费者情绪指数，该指数降至十年来的最低水平。在金融市场上，利率交易商推动美联储做出更快的反应，投资者涌向黄金，这是一个传统的价格上涨的避风港。与此同时，普通美国人对从音乐会门票到普通卷饼等所有东西的成本上升感到遗憾。](https://www.marketwatch.com/story/the-inflation-genie-is-out-of-the-bottle-as-consumer-sentiment-takes-a-hit-and-californians-pay-12-for-a-regular-burrito-11636747851?siteid=yhoof2)
 
-有意思的是，司法部检察官声称，亚利桑那州本地人[雅各布·钱斯利](https://www.newsweek.com/harshest-capitol-riot-sentence-yet-recommended-flagbearer-qanon-shaman-1647936)因其在 1 月 6 日起义中的作用而入狱 51 个月。 “钱斯利是最早进入参议院的30名骚乱者之一，他在当时的副总统迈克彭斯主持认证的讲台上留下了一张纸条。据称，纸条上写着：“这只是时间问题，正义即将到来。”言外之意，有人希望彭斯支持特朗普并作出正确的决定。而这不确定的纸条似乎被利用来抨击前总统特朗普。
+[几个月来，对通货膨胀的担忧一直挥之不去，有时还被经济放缓的担忧所掩盖。华盛顿货币政策分析公司(Monetary Policy Analytics)的经济学家Derek Tang说，现在的担忧是实际通胀和预期之间的 “恶性反馈循环 “的风险，一旦释放出来，可能难以阻止。他把这种动态比作 “一个难以关闭的开关”，在这种情况下，价格不断上涨的前景在人们的头脑中保持不变，而 “美联储能做的很少或没有。”](https://www.marketwatch.com/story/the-inflation-genie-is-out-of-the-bottle-as-consumer-sentiment-takes-a-hit-and-californians-pay-12-for-a-regular-burrito-11636747851?siteid=yhoof2)
 
-- ***延展阅读：***[***亚当希夫：起诉书强制传唤证人史蒂夫班农到国会出庭做证***](https://www.newsweek.com/steve-bannon-indictment-already-compelling-witnesses-answer-subpoenas-adam-schiff-1649109)
-- ***延展阅读：***[***1 月 6 日骚乱期间，迈克·彭斯躲在地下停车场的“装卸码头”中***](https://www.newsweek.com/mike-pence-january-6-riot-loading-dock-underground-parking-garage-1647353)
+**3****.** **英国央行可能在****12****月加息，成为首家加息的主要银行**
 
+[路透社伦敦报道 — 英国央行将成为第一个加息的主要央行，但首次加息是尽快在下个月还是等到明年初，接受路透社调查的经济学家们意见分歧。英国央行上周将银行利率维持在0.10%的历史最低水平，令市场感到惊讶。在11月8日至12日的调查中，预测中值为12月16日加息15个基点，但47名受访者中仅有不到一半的人（21人）表示，英国央行将保持不变。如果它在下个月采取行动，这将是它自1994年以来第一次在12月加息。市场也在很大程度上对12月的增长进行了定价。虽然经济学家对12月加息的预测是不确定，但2022年第一季度的加息似乎已经被烘托出来，最有可能的是在2月银行公布季度货币政策报告时。44位经济学家中，除一位外，都预测3月底前会有加息。](https://www.reuters.com/world/uk/bank-england-be-first-major-bank-hike-rates-probably-december-economists-2021-11-12/)
 
-无独有偶，继蓬佩奥宣布参选总统后，迈克·彭斯前顾问发拉称，彭斯将在 2024 年与特朗普“展开一场激烈的战斗”如果这是真的，至少特朗普的领导班子中有他的左右手与他同台竞争，亦敌亦友，孰是孰非？
+**4.****天然气供应恢复平衡，但价格仍在波动中**
 
-法拉警告说：“唐纳德·特朗普的加冕对党和国家来说都是最糟糕的事情，但对国家来说更重要。”她说，[特朗普的共和党挑战者需要反驳他关于2020大选被“窃取”的虚假说法](https://www.newsweek.com/mike-pence-will-put-formidable-fight-against-trump-2024-former-adviser-predicts-1649069?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1636931480959&amp;subscriberId=618632587623c90ce1da6a7e)。
+[温和的秋季天气使美国内天然气库存在火炉点火取暖前得到增加，缓解了人们对冬季短缺的担忧，并使价格每天都有大的波动。12月交货的天然气期货周五下跌7%，至每百万英国热量单位4.791美元。这是过去35个交易日中第14次出现价格上下波动超过5%的情况。周四，该价格攀升了5.5%。周二，它下跌了8.3%。因为供应恢复平衡，但价格仍在波动。每年的这个时候，天然气价格经常反弹，这并不罕见，因为交易商必须将冬季天气预测与生产报告和库存数据联系起来。但现在5%的波动比过去几年意味着更多，因为价格正以十多年前压裂气充斥市场之前的最高水平进入供暖季。](https://www.wsj.com/articles/natural-gas-supply-is-back-in-balance-but-prices-are-still-swinging-11636718581)
 
-这一故事似乎很熟悉，幕后总导演一定是中国共产党。对此，新中国联邦创建者郭文贵先生评价说，“关于班农先生的事，42天前，我就告诉班农先生，共产党和美国一定会把你战斗室干掉，而且通过法院，以1月6日事件为由。”不幸，又被郭先生言中了。更可怕的是，下一个就是川普。郭先生解释说，“不是我蒙的，根据国内情报。这是中美之间邪恶力量的较量。”（见[23:46 时段](https://gettr.com/post/pgwfu22cfa)）
+[包括美国能源信息署的分析师说，预计今年冬天会出现鞭打。最新的预测显示，温和的天气将持续到感恩节，这表明价格会下降。但对俄罗斯向欧洲出口不足的担忧正在渗入美国市场，美国向欧洲大陆供应液化天然气，并将价格拉高。](https://www.wsj.com/articles/natural-gas-supply-is-back-in-balance-but-prices-are-still-swinging-11636718581)
 
-2021年11月15日
+**5.** **日本考虑在****1****月中旬恢复国内旅游补贴政策**
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
+[据《日经新闻》周日报道，日本政府正在考虑最早于1月中旬恢复旨在促进国内旅游业的补贴。此举将缓解航空公司和酒店因中共病毒疫情导致的旅游萎缩所带来的压力，并强调决策者希望通过提振需求使经济重新走出低谷。补贴将是首相岸田文雄新的大流行病缓解方案的一部分，该方案预计将于周五编制完成。 随着中共病毒感染率开始上升，日本在12月停止了一项用纳税人的钱为国内游客提供酒店和国内旅行费用折扣的计划。应旅游业的要求，政府将考虑从1月中旬或2月恢复该计划，直到4月下旬左右。与周末相比，政府将为工作日的旅行提供更大的折扣，以避免旅行集中在周末进行， 与以前的计划相比，它还将降低每次旅行的最高折扣额度。](https://www.reuters.com/world/asia-pacific/japan-considering-resuming-domestic-travel-subsidies-mid-jan-nikkei-2021-11-14/)
+
+[根据路透社的调查，日本经济在第三季度可能收缩了0.8%，因为供应限制和对抗大流行病的紧急状态抑制了出口和消费。分析师预计，在9月30日限制措施结束后，消费将回升，尽管中国经济增长放缓，供应瓶颈挥之不去，给这个依赖出口的经济体的前景蒙上阴影。](https://www.reuters.com/world/asia-pacific/japan-considering-resuming-domestic-travel-subsidies-mid-jan-nikkei-2021-11-14/)
+
+**6.** **日本****SMFG****和瑞穗银行上半年利润激增，信贷成本有所缓解**
+
+[日本两家大型银行–三井住友金融集团（SMFG）和瑞穗金融集团（Mizuho Financial Group Inc）周五报告称，由于受到中共病毒疫情破坏的经济复苏和信贷成本降低，上半年的利润激增。日本第二大资产银行SMFG称，4-9月期间净利润跃升69%，达到4560亿日元（40亿美元）。排名第三的瑞穗银行  (Mizuho)表示，盈利增长79%，至3,857亿日元。两家银行都提高了全年的利润预测。标普全球评级公司高级主管吉泽良治说，随着疫情危机对经济的冲击，贷款人一直在积极预留不良贷款储备，但政府的干预已经限制了这些损失。由于政府为企业部门提供了巨大的支持，大多数银行都没有记录到大量的信贷成本。展望未来，随着美联储开始缩减其金融宽松政策，海外贷款的利润可能会受到挤压，而东南亚的复苏迟缓可能会增加这些市场的信贷成本。](https://www.oann.com/japans-mizuho-financial-group-posts-79-jump-in-h1-profit/)
+
+**7****.**** ****意大利时尚集团****OTB****的目标是在****2024****年上市**
+
+[路透社米兰报道 — 意大利时尚集团OTB的主席和创始人Renzo Rosso周五表示，该集团的目标是在2024年上市。Rosso和OTB的首席执行官Ubaldo Minelli告诉记者，他们预计公司将继续增长，届时将达到更适合上市的规模。Rosso表示，这家家族企业在今年早些时候收购了德国品牌Jil Sander，旨在进行进一步收购， 希望进行新的并购交易，但美丽的东西目前还没有出售，一些业主正在等待疫情后的结果，以便在出售他们的集团时获得更好的估价。OTB是Only The Brave的缩写，拥有Diesel、Maison Margiela、Marni和Viktor&Rolf等品牌，今年的目标是营业额超过15亿欧元（17.2亿美元），比受疫情影响的2020年增长超过五分之一。核心利润率预计为18.5%，净财务状况为正3亿欧元以上。](https://www.reuters.com/world/europe/italian-fashion-group-otb-aims-list-2024-chairman-2021-11-12/)
+
+**8.** **拜登的银行业提名人呼吁取消所有**** “****私人银行账户****“**
+
+[乔-拜登总统提名的货币监理署（OCC）候选人绍尔-奥马洛娃在2021年3月的一次法律和政治经济学（LPE）项目的 “新自由主义之外的民主 “虚拟会议上，呼吁消除所有私人银行账户和存款。奥马洛娃讨论了她的一篇论文《人民的账本如何使货币和经济融资民主化》，这将有助于 “重新设计 ” 金融体系，使经济 “对每个人都更公平”。她说，这将改变 “私人-公共权力的平衡”，使金融民主化到一个更系统的水平。在解释她的论文时，她说，美联储，国家的中央银行，只能使用 “间接杠杆 “来 “诱导私人银行增加贷款”。她的论文呼吁取消所有银行，并将所有银行存款转移到美联储的 “联邦账户”。将不再有私人银行账户，所有的存款账户都将直接在美联储持有”。奥马洛娃的激进观点导致21个州的财政官员呼吁拜登撤回对奥马洛娃的美国审计长提名。](https://www.breitbart.com/politics/2021/11/13/bidens-banking-nominee-calls-eliminate-all-private-bank-accounts/)
+
+By【秘密翻译组-金融组】
+作者：Opal
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
