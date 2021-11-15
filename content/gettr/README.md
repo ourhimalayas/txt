@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/15/2021 11:37 PM (UTC)`
+
+11/15/2021 Miles Guo’s GETTR: The CCP's digital RMB (DCEP) will surely be disastrous, while the great financial system of the New Federal State of China has emerged right in time; when the CCP cannot control the currency, it won’t be able to slaughter the 1.4 billion Chinese people or take over TSMC<br/><br/>11/15/2021 文贵盖特：中共的数字人民币必将是一场灾难，而新中国联邦的伟大的金融系统却在此时应运而生；当中共无法控制货币时，它将无法屠戮14亿中国人或接管台积电<br/>
+![img](https://media.gettr.com/group1/getter/2021/11/15/23/37/e5c50f3b-78cc-3a40-09af-1e9d10b2b54a/out.jpg)
+
+---
+
 `@miles 11/15/2021 10:10 PM (UTC)`
 
 11/14/2021 Miles Guo’s GETTR: Communist China’s economy is not looking good after the end of the Sixth Plenary Session: The stocks are falling on debut, China Concept Stocks are being sold off massively, various countries are cancelling the currency swap with RMB, and the enterprises in numerous provinces are having difficulty paying wages<br/><br/>11/15/2021 文贵盖特：六中全会刚结束，中共国经济即显颓势：新股破发，中概股遭大量抛售，各国竞相取消与人民币之间的货币互换，多省企业发不出工资
@@ -289,13 +296,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 11/10/2021 Miles Guo: Our scientist fellow fighters revealed that the oral drugs against the CCP virus pushed by the crooked pharmaceutical companies to evade regulation are more poisonous than the COVID vaccines, and these drugs can result in a range of problems in the blood, nervous and digestive system. Fellow fighters, stay away from these drugs!<br/><br/>11/10/2021 文贵直播：科学家战友爆料称，无良药企为逃避监管而强推的口服抗中共病毒药比疫苗更毒，会导致血液、神经、消化系统等一系列严重问题。战友们千万别碰！<br/>
 ![img](https://media.gettr.com/group16/getter/2021/11/11/07/50/03475c77-8b2d-6dfb-6a89-2aed7ed5d40d/out.jpg)
-
----
-
-`@miles 11/11/2021 7:42 AM (UTC)`
-
-11/10/2021 Miles Guo: The CCP’s data show that there are 70 million people infected with the CCP virus and 13.7 million “coronavirus-related deaths” in China. These data, however, are not included in the 250 million CCP virus confirmed cases and the 5 million deaths worldwide; the CCP’s atrocities have gone far beyond those of the Nazi, whereas the Whistleblowers’ Movement and the NFSC are doing a magnificent work by saving the people with the truth<br/><br/>11/10/2021 文贵直播：中共的数据显示，中国有7000万人确诊中共病毒和1370万“冠状病毒相关性死亡”案例，但该数据都不包括在全球2.5亿感染中共病毒的病例数和500万死亡人数之中；中共暴行远超纳粹，而爆料革命和新中国联邦用真相救人胜造七级浮屠<br/>
-![img](https://media.gettr.com/group4/getter/2021/11/11/07/42/54af9cbe-4d61-a83d-0724-878b0474097e/out.jpg)
 
 ---
 

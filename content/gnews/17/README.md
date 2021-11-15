@@ -2,54 +2,54 @@
 ---
 
 
-## 英国研究显示，儿童及青少年感染中共病毒后无实际死亡风险
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1667507/)
+## 崩溃：CDC 无法提供先前感染冠状病毒后具有自然免疫力病例数据
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1667522/)
 
-作者：纽约香草山农场 – 四季
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-11_14_2021-7_37_59-PM-scaled-3.jpg)网络图片
+摘要翻译：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+疾病控制与预防中心已多次被发现操纵统计数据，以在美国人中制造一种永久的恐惧状态——所有这些都是为了欺骗人们接种冠状病毒“疫苗”。
 
+但CDC似乎完全不愿意做的一件事，那就是记录下那些以前被感染过产生自然免疫的，疫苗往好了说是多余的，往坏了说就是有害的。
 
+一个确凿的证据表明CDC要么没有研究这个问题，要么以其它方式掩盖了这项研究。当被要求出示CCP冠状病毒在先前感染者中传播的文件时，该国首屈一指的公共卫生机构措手不及。
 
+在通过卫生与公共服务部给CDC的一封信中，律师伊丽莎白·布雷姆发出了“最终通知”，要求提供此类信息。这是布雷姆收到的令人困惑的回应：
 
+令人震惊的是，如果疾病预防控制中心，想证明接种疫苗的人的传播率低于之前感染的人，人们会认为疾病预防控制中心会大力宣传这些证据。然而，正如这封信所表明的那样，它显然对这个问题不感兴趣，或者以其它方式阻止数据公之于众。
 
-Gateway Pundit网站11月15日报道，英国最新的一项大规模研究再次证实，儿童和青少年在感染中共病毒后实际上没有任何死亡风险。
+彭博新闻10月指出，医学杂志《柳叶刀》发表的一项研究进一步证实，接种疫苗的人传播德尔塔病毒的几率几乎与未接种疫苗的人一样高。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1428-1-School-Children-COVID.jpg)图片来源：[thegatewaypundit.com](https://www.thegatewaypundit.com/2021/11/uk-study-reveals-99-995-children-young-people-survive-covid-19-two-million-chance-fatal-much-lower-risks-vaccine/)
+彭博社报道称：“根据新的研究，接种了冠状病毒疫苗的人将病毒的德尔塔变体传播给家庭中的接触者的可能性，与没有接种过疫苗的人一样。”
 
-这项分析由包括英格兰国家医疗服务系统、伦敦帝国学院、英格兰公共卫生局和布里斯托尔皇家儿童医院在内的几个英国著名医疗机构合作完成。当研究小组查看英国国家儿童死亡率数据库的数据时发现，中共病毒大流行的第一年，在死于各种原因的3105名儿童和年轻人中，只有61人的中共病毒检测呈阳性。
+所有未接种疫苗的人中进行的，显然还没有关于“先前感染者”的此类医学研究发表。从 CDC为推动普及疫苗接种所做的不懈努力来看，这很能说明为什么他们对披露此类信息不感兴趣.
 
-该研究确定，在英格兰，中共病毒大流行的第一年，99.995%的儿童和青少年能在感染中共病毒后幸存，致命率只有百万分之二。
+正如《贝克尔新闻》(Becker News)早些时候报道的那样，疾病预防控制中心已经悄悄承认，至少有1.466亿美国人“以前被感染过”。这可能还是低估了。
 
-在英格兰的1200多万儿童和年轻人中，只有25人由于中共病毒直接相关的并发症而去世。
+尽管1.466亿是一个庞大的数字，至少占美国人口的44%，但根据CDC的计算，这个数字应该更高。因为CDC估计，每个报告的病例至少有四个人感染新冠病毒，既然我们有 4690万报告病例，那么将有1.876亿美国人在“以前被感染过”。
 
-**参考阅读：**
+但是，如果每个人都有突破性病例和重复病例，这将导致一些不确定性。一个安全的估计是，有1.6亿人通过先前的感染感染了新冠病毒。这将导致大量美国人以“自然免疫”的方式从新冠病毒感染中幸存下来。
 
-[Latest UK Study Reveals 99.995% of Children And Young People SURVIVE Covid-19; Only Two-in-A-Million Chance to Be Fatal (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/11/uk-study-reveals-99-995-children-young-people-survive-covid-19-two-million-chance-fatal-much-lower-risks-vaccine/)
+关于“自然免疫”的研究一直是强大而一致的：它提供比“疫苗”更好的保护。路透社报道了一项研究，直言不讳地说“感染后的二次免疫反应比接种疫苗更强。” 以色列早些时候进行的一项研究得出了类似的结论。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+约翰·霍普金斯大学的一位教授也在进行一项研究，以迫使CDC和FDA承认存在自然免疫力，这是对新冠病毒的有效防御。对于一个本应关注“健康”而不是推进政治议程的政府机构来说，这不应该是必要的。
 
-**编辑/校对/发稿：小鹿**
+简评：
 
+美国疾病控制与预防中心本应关注健康，而不是推进政治议程的政府机构，它更应该去推广、倡导自然免疫，反而热衷于推广人们接种疫苗。安全有效的COVID-19病毒感染后的治疗方案和管理策略，是存在且有效的，但却没有提供给最需要的美国人。理由却是因为这些疫苗对中共病毒及其德尔塔变种可以产生足够的免疫力，但仍有许多潜在的研究没有结束，且尚未对实际数据及其结论进行独立审查或验证。这篇报道让人深深感受到，美国的政府机构的官僚，被CCP渗透到无孔不入的地步了。
 
+新闻链接：[BUSTED: CDC Unable to Document a Single Case of Covid Transmitted from a Previously Infected Person to Another](https://beckernews.com/busted-cdc-unable-to-document-a-single-case-of-covid-transmitted-from-a-previously-infected-person-to-another-42990/)
 
-**更多资讯，更多关注**
+* * *
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

@@ -2,29 +2,25 @@
 ---
 
 
-## 有声|联邦上诉法院维持对拜登疫苗强制令的临时禁令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1667678/)
+## 加拿大【联邦公共部门工会】将保障未接种疫苗雇员权利
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1667693/)
 
-配音：香草山美食部 – 玫瑰园
+采编：青青     编译撰稿：文莱
 
-1月12日，美国联邦第五巡回法院维持上周六的裁决，继续暂停执行拜登政府的疫苗强制令。该强制令要求拥有一百人以上的企业必须接种疫苗，或每周接受检测。法院表示，该强制令超越了行政当局的权限，有严重的宪法问题。自拜登政府发布强制令至今，已经引发了至少27个州以及商业和宗教团体的一系列法律挑战，他们认为拜登政府的强制令违宪。与此同时，美国第五、第六、第八和第十一巡回上诉法院也都在审理职业安全与健康管理局强制推进疫苗接种是否合法。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-42-edited.jpg)图片来源：TN
 
-郭文贵先生在11月7日的大直播中曾经说过，美国第五巡回法院的临时禁止令最终一定会使拜登政府的疫苗强制令停止下来，在11月10日的大直播中郭先生进一步指出：联邦法院的禁止令意义很大，说明美国已经认识到疫苗灾难是人类面临的真正的灾难。禁止令不仅会影响美国，最终也会影响世界；禁止令也是打开美国法律大门的开始，随着禁止令的发出，可以预期法庭会进一步发出命令，要求彻查病毒来源和疫苗真相；当真相揭露之时，最终将聚集民意、媒体转向、国会立法，并向中共和邪恶势力追责。
 
-文字版原文：[联邦上诉法院维持对拜登疫苗强制令的临时禁令](https://gnews.org/zh-hans/1662446/)
+据加拿大媒体【CTV新闻】11月15日报道，联邦政府目前执行的“新冠病毒疫苗强制接种”政策将使1000多名在联邦公共部门工作的核心雇员被迫无薪休假，并且无法因此获得失业保险和其他就业福利。
 
-音频处理：喜山必胜Maverick
+据悉，联邦政府此前曾公开宣称，将积极安置因健康、宗教或其他原因而无法接种该疫苗的雇员。但总理特鲁多在开始执行该政策之初就出尔反尔，并改口强调：对那些希望获得接种豁免的联邦雇员将不予任何便利考虑。
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+为此，【联邦公共部门工会】负责人表示，如果其会员认定他们个人的健康自由权利被非法侵犯，那么该工会将计划对当局提出申诉。尽管【加拿大公共服务联盟】曾鼓励其雇员尽可能接种该疫苗，但同时也特别强调了将支持并保护所有那些因人权或工作场所权利遭到侵犯的员工。
 
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://www.ctvnews.ca/politics/unvaccinated-federal-employees-not-granted-exemptions-to-be-put-on-unpaid-leave-today-1.5666451)
 
  
 
