@@ -15,128 +15,128 @@
 
 ---
 
-### [新南威尔士州发出东海岸重大洪水警告](/content/gnews/1/README.md)
- ` 走进澳洲`
-
-### [俄克拉荷马州挑战五角大楼，叫停国民警卫队的疫苗强制接种](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [DC大中华时事：中共称 “人民至上”](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [新西兰财经G乐部 2021年11月15日](/content/gnews/4/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [有声|日本或将主办美日澳印四国集团第二次面对面峰会](/content/gnews/5/README.md)
+### [有声| 喜币发行前后一错酿成千古恨](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [有声|日本防疫措施放宽拟取消活动人数上限](/content/gnews/6/README.md)
- ` MOSREC`
-
-### [19岁女孩被迫接种疫苗后出现严重健康问题](/content/gnews/7/README.md)
- ` GTV新闻访谈`
-
-### [纳瓦罗做客班农战斗室谈疫情与经济问题](/content/gnews/8/README.md)
- ` GTV新闻访谈`
-
-### [中共为防楼市崩盘在21座城市发布“限跌令”](/content/gnews/9/README.md)
- ` 日本东京方舟农场`
-
-### [【小雨专栏】在路上042——风篇](/content/gnews/10/README.md)
- ` 温哥华扬帆农场`
-
-### [中共病毒及其疫苗全球超限战中的典型案例（二十二）](/content/gnews/11/README.md)
- ` 纽约香草山MOS01`
-
-### [韩国老龄化增速是日本的2倍，养老金是日本的一半](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [布林肯敦促北京和平解决台海两岸分歧](/content/gnews/13/README.md)
- ` GTV新闻访谈`
-
-### [中共病毒灾难带给人类的诸多影响才刚刚开始](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [德国接种中共病毒疫苗者发展成重症患者的比例猛增](/content/gnews/15/README.md)
- ` 日本东京方舟农场`
-
-### [日本GDP大幅恶化，官房长官警示下行风险](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [俄克拉荷马州国民警卫队新任指挥官拒绝接受疫苗任务](/content/gnews/17/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [起底中共新冠特效药背后的“腾盛博药”，又见红衫、博裕、云峰](/content/gnews/18/README.md)
- ` 澳喜农场`
-
-### [FBI被黑客并发出10多万封垃圾电子邮件流出](/content/gnews/19/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [要创建人类新的信仰而且是找到生命真相的新的人类群体](/content/gnews/20/README.md)
- ` NewFOC`
-
-### [联合国气候变化协议达成 煤炭减排承诺缩水](/content/gnews/21/README.md)
- ` 纽约香草山MOS02`
-
-### [微软高管称中共在应对新冠疫情方面领先世界](/content/gnews/22/README.md)
+### [坎特推出反共鞋后，凯尔特人队令其长时间坐冷板凳](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [COVID-19 最新情报｜加拿大著名评论家兼心理学教授公开粗口谴责当局的“疫苗暴政”（内附影片）](/content/gnews/23/README.md)
+### [有声| 习近平暗示想加入TPP 被岸田文雄泼冷水](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [针下亡魂｜美国 45 岁知名漫画家接种疫苗后死亡](/content/gnews/4/README.md)
  ` G&#124;News TAIWAN`
 
-### [澳洲球员亚姆·琼斯被迫结束职业生涯](/content/gnews/24/README.md)
- ` 走进澳洲`
+### [美议员代表团结束对台访问，行程包含总统府和国防部](/content/gnews/5/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [郭先生认为加密货币一定会取代法币](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
+### [疫苗无效 欧洲将面临第四波疫情的冲击](/content/gnews/6/README.md)
+ ` GTV新闻访谈`
 
-### [奥地利对未接种疫苗者进行封锁](/content/gnews/26/README.md)
- ` 澳喜农场`
-
-### [郭文贵直播摘要和音频 2021.11.14](/content/gnews/27/README.md)
+### [币圈新闻动态：喜币（HCN）价格14日突破30 HDO整数关口](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [“沉重的打击”：《环球时报》对澳大利亚发出了不详的警告](/content/gnews/28/README.md)
+### [国际要闻汇编11月15日](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [11月14日文贵大直播精剪汇编](/content/gnews/9/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [美媒报道：美国将支持台湾对抗中共国的侵略](/content/gnews/10/README.md)
+ ` 澳喜农场`
+
+### [有声|日台交流高峰会：神户宣言挺台加入国际组织](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [新南威尔士州发出东海岸重大洪水警告](/content/gnews/12/README.md)
  ` 走进澳洲`
 
-### [秘翻在线：彭帅指控原国家副主席张高丽性侵上日文版雅虎头条](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [各国开闸放水超发货币，造就加密货币市场通向暴涨期](/content/gnews/30/README.md)
- ` YALUN 亚伦`
-
-### [香港当局拒绝向《经济学人》记者发放签证](/content/gnews/31/README.md)
+### [俄克拉荷马州挑战五角大楼，叫停国民警卫队的疫苗强制接种](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新中国联邦的安全保护对欺民贼、伪类与砸郭者一视同仁](/content/gnews/32/README.md)
+### [DC大中华时事：中共称 “人民至上”](/content/gnews/14/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [新西兰财经G乐部 2021年11月15日](/content/gnews/15/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [有声|日本或将主办美日澳印四国集团第二次面对面峰会](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [澳洲上万民众抗议强制接种毒疫苗](/content/gnews/17/README.md)
+ ` GTV新闻访谈`
+
+### [有声|日本防疫措施放宽拟取消活动人数上限](/content/gnews/18/README.md)
+ ` MOSREC`
+
+### [19岁女孩被迫接种疫苗后出现严重健康问题](/content/gnews/19/README.md)
+ ` GTV新闻访谈`
+
+### [纳瓦罗做客班农战斗室谈疫情与经济问题](/content/gnews/20/README.md)
+ ` GTV新闻访谈`
+
+### [中西方富豪对比](/content/gnews/21/README.md)
+ ` 澳喜农场`
+
+### [中共为防楼市崩盘在21座城市发布“限跌令”](/content/gnews/22/README.md)
+ ` 日本东京方舟农场`
+
+### [【小雨专栏】在路上042——风篇](/content/gnews/23/README.md)
+ ` 温哥华扬帆农场`
+
+### [中共病毒及其疫苗全球超限战中的典型案例（二十二）](/content/gnews/24/README.md)
+ ` 纽约香草山MOS01`
+
+### [韩国老龄化增速是日本的2倍，养老金是日本的一半](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [布林肯敦促北京和平解决台海两岸分歧](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [中共病毒灾难带给人类的诸多影响才刚刚开始](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [德国接种中共病毒疫苗者发展成重症患者的比例猛增](/content/gnews/28/README.md)
+ ` 日本东京方舟农场`
+
+### [日本GDP大幅恶化，官房长官警示下行风险](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [俄克拉荷马州国民警卫队新任指挥官拒绝接受疫苗任务](/content/gnews/30/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [起底中共新冠特效药背后的“腾盛博药”，又见红衫、博裕、云峰](/content/gnews/31/README.md)
+ ` 澳喜农场`
+
+### [FBI被黑客并发出10多万封垃圾电子邮件流出](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [要创建人类新的信仰而且是找到生命真相的新的人类群体](/content/gnews/33/README.md)
  ` NewFOC`
 
-### [被踢出美国的中海油准备回国割韭菜](/content/gnews/33/README.md)
+### [联合国气候变化协议达成 煤炭减排承诺缩水](/content/gnews/34/README.md)
+ ` 纽约香草山MOS02`
+
+### [微软高管称中共在应对新冠疫情方面领先世界](/content/gnews/35/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [澳洲球员亚姆·琼斯被迫结束职业生涯](/content/gnews/36/README.md)
+ ` 走进澳洲`
+
+### [郭文贵直播摘要和音频 2021.11.14](/content/gnews/37/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [各国开闸放水超发货币，造就加密货币市场通向暴涨期](/content/gnews/38/README.md)
+ ` YALUN 亚伦`
+
+### [新中国联邦的安全保护对欺民贼、伪类与砸郭者一视同仁](/content/gnews/39/README.md)
+ ` NewFOC`
+
+### [被踢出美国的中海油准备回国割韭菜](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [战狼秦刚叫嚣用武力解决台湾问题](/content/gnews/34/README.md)
+### [日本GDP两季度以来首次负3%，中共国增长9.8%](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本GDP两季度以来首次负3%，中共国增长9.8%](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文贵焦点 (11/14)：中共操纵美国司法打击班农川普震惊全美](/content/gnews/36/README.md)
- ` 秘密翻译组-原创组`
-
-### [11/14/2021 文贵直播：疫苗给人类带来的灾难还没有开始](/content/gnews/37/README.md)
- ` 秘密翻译组-北美组`
-
-### [11/14/2021 文贵直播：习妄图利用中共房地产崩溃搞垮世界经济，以趁乱打台湾，而这将加速世界承认新中国联邦](/content/gnews/38/README.md)
- ` 秘密翻译组-北美组`
-
-### [11/14/2021 文贵直播：中共在马云新加坡的秘密办公室查抄的东西足以让他把牢底坐穿](/content/gnews/39/README.md)
- ` 秘密翻译组-北美组`
-
-### [雅典娜时报-第113期](/content/gnews/40/README.md)
- ` 墨尔本雅典娜农场`
-
-### [11/14/2021 文贵直播：恒大一定破产，随后将对中共国和世界金融、经济造成雪崩效应](/content/gnews/41/README.md)
- ` 秘密翻译组-北美组`
 
 ### [截至10月24日，日本有1325人接种中共病毒疫苗后死亡](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

@@ -2,22 +2,49 @@
 ---
 
 
-## FBI被黑客并发出10多万封垃圾电子邮件流出
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1665075/)
+## 19岁女孩被迫接种疫苗后出现严重健康问题
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1665188/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-25.png)
-图片来源： [http://news.sina.com.cn/](https://news.sina.com.cn/)
+作者：东京方舟农场 – 冰糖葫芦喵
 
-零对冲网11月14日报道，黑客周六侵入美国联邦调查局（FBI)电子邮件系统，并利用该系统发送10多万封拉圾电子邮件警告可能的网络攻击，据路透社消息，这是该社引用的FBI和安全专家的原话。
 
-这些假电子邮件是从FBI的正式地址@ic.fbi.gov发出的，还不清楚黑客多少次或多少个黑客进入FBI系统，但是这些拉圾电子邮件显示很奇怪的样式标示有文尼·特洛伊（夜狮安全总裁）的名字，这个夜狮安全今年1月份发布了黑暗不死之王黑客组的研究。
 
-据全国广播电台公司新闻，该黑客以美国国土安全部网络危险检测和分析组签入，该组至少有二年不工作了。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-据欧洲的反拉圾邮件专门机构的研究者亚沥克斯·格罗斯让说这些垃圾邮件事实上从FBI的服务器出来的，接收者是公共的网站管理员，FBI和网络安全部及基础建设安全部门(CISA)证实了此次泄露。
 
-##### **新闻来源： **[FBI Hacked, Over 100K Emails Sent From Official Address](https://www.zerohedge.com/technology/fbi-hacked-over-100k-emails-sent-official-address)
+
+11月13日，美国一家媒体发布了一位19岁女孩被迫接种疫苗后躺在医院的视频。
+
+从视频中我们得知，这个女孩原本身体健康、充满活力。但在疫苗强制令发布以后，到处都有一种“不接种疫苗，就没有工作”的气氛，不接种疫苗的人被很多公共场合拒绝进入，并被很多人指责为“自私”。为了保住工作，不被视为异类，这个女孩决定碰碰运气，于是在10月份接种了辉瑞疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-6.jpg)
+但是接种疫苗后，女孩感觉自己像跑完马拉松一样非常疲惫，医生则在她的腿部和肺部发现了大量的血块。目前，她不得不仍然在医院里接受治疗，正常生活完全被毁。
+
+参考链接：
+[Pfizer Jab EXPOSED: Healthy 19 Teen Coerced Into Submission, Now Fighting Tyranny From Hospital Bed \[VIDEO\]](https://www.redvoicemedia.com/2021/11/pfizer-jab-exposed-healthy-19-teen-coerced-into-submission-now-fighting-tyranny-from-hospital-bed-video/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：飞虹
+编辑：文特
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

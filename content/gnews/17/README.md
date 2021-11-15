@@ -2,26 +2,50 @@
 ---
 
 
-## 俄克拉荷马州国民警卫队新任指挥官拒绝接受疫苗任务
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1665092/)
+## 澳洲上万民众抗议强制接种毒疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1665221/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-64.png)
-图片来源：网络截图
+作者：英国喜庄园 – I770775
 
-据零对冲11月14日报道，陆军准将托马斯·曼奇诺于2021年11月11日发布命令，停止俄克拉荷马州陆军和空军国民警卫队强制注射中共病毒疫苗。该命令是在他被突然任命为该州的最高将军不到24小时的时间里发出的，也是在上诉法院维持对拜登的私营企业的强制疫苗要求暂缓执行的前一天，这对拜登政府无疑又是一个打击。
 
-曼奇诺上任的第一件事就是签署一份备忘录正式取消了对国民卫队的中共病毒疫苗要求。备忘录写道：俄克拉荷马州的国民卫队不会被要求注射中共病毒疫苗，在不被联邦政府动员的情况下，州长斯蒂特是部队的“合法总司令”，并且不会对拒绝接种中共病毒疫苗的卫兵采取负面的行政或法律行动。
 
-当要求到评论时，五角大楼说他们将对该备忘录做出 “适当 ”的回应，并强调了奥斯丁部长愚蠢的认为一支接种过疫苗的部队是一支更有准备的部队。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-斯蒂特此前曾要求国防部不要对该州的陆军和空军国民警卫队成员强制执行这一任务。据《陆军时报》报道，在曼奇诺引用的11月2日的一封信中，斯蒂特说，该州10%的部队拒绝接种疫苗，而且这项任务是 “不负责任的”。
 
-尽管国民警卫队在没有被五角大楼动员时确实属于他们的州长，但是联邦的要求往往取代了州政府对警卫队的任何使用。这是因为国民警卫队的绝大部分资金、训练和装备都来自联邦政府。目前还不清楚该命令是否会危及这些资金。
 
-斯蒂特政府相信他们有权力藐视拜登政府，正如最高发言人查理·汉尼玛告诉《陆军时报》的那样，“俄克拉荷马州因未遵守第32条规定而丧失任何联邦资金的唯一途径是无视双方选举产生的文职当局，即俄克拉荷马州州长的合法命令。”
+11月13日，大批澳大利亚人聚集墨尔本游行示威，反对维多利亚州的CCP毒疫苗强制接种。
 
-新闻来源：[Oklahoma National Guard ‘Goes Rogue’ After New Commander Rejects Vaccine Mandate; Pentagon To Respond ‘Appropriately’](https://www.zerohedge.com/covid-19/oklahoma-national-guard-goes-rogue-after-new-commander-rejects-vaccine-mandate-pentagon)
+秘密翻译组报道称，当天，有成千上万的澳大利亚示威者聚集在墨尔本中央商务区，和平抗议维州政府新提出的大流行封锁权力和疫苗强制接种。示威者的长队从维多利亚州立图书馆一直延伸到春天大街的议会大厦。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.2-5.jpg)
+本次游行的起因是，澳大利亚政府借CCP病毒大流行，对其公民实施了严厉的封锁和疫苗强制措施。维州州长丹尼尔听命于该法案，以前所未有的权力在全州实施严格的封锁。
+
+这种无端剥夺人民自由的疫苗专权，让越来越多的澳洲人走上墨尔本街头，他们高喊“推翻法案”的口号，和平表达自己的不满。
+
+参考链接：
+[“杀死法案”-数千名澳大利亚人游行反对维多利亚州的中共病毒专权](https://gettr.com/post/pgwz8te353)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：文特
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

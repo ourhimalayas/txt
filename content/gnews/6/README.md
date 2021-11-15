@@ -2,31 +2,51 @@
 ---
 
 
-## 有声|日本防疫措施放宽拟取消活动人数上限
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1665198/)
+## 疫苗无效 欧洲将面临第四波疫情的冲击
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1665423/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+作者：纽约香草山医疗部 – 云豹
 
 
-11月12日，在日本政府即将出台的中共病毒疫情对策中，对民众放宽了行动限制，提出都、道、府、县安全计划，取消大型活动的人数限制。即使今后再度发布紧急状态，如果能利用“提交疫苗接种证明，或者检测阴性证明均可”的机制，就允许该活动放宽至可容纳人数的100%，同时餐饮店的人数限制也将取消。
 
-据悉，日本政府最快将在本月19日咨询专家，修改目前作为防疫对策指针的“基本应对方针”，争取在下一步，有关民众跨都、道、府、县的旅行或者出差，即便在紧急事态下，当事人只要提供疫苗接种证明或者检测阴性证明，都会被政府同意放行。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-文字版原文：[日本防疫措施放宽拟取消活动人数上限](https://gnews.org/zh-hans/1663878/)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+11月13日，欧洲疾病预防管制中心发布的中共病毒评估数据显示，欧洲正面临第四波飙升的中共病毒疫情。
+
+截至11月11日为止的过去2周，欧盟成员国及冰岛、挪威等欧洲经济区通报了约209万确诊案例，整体疫情呈现确诊病例迅速增加、死亡率缓慢增加的态势。
+
+欧洲疾病预防管制中心认为，在未来的两周，欧洲地区的新增确诊、死亡以及住院人数都将继续增加。并且警示，比利时、荷兰、捷克及希腊等10个国家需要极度关注疫情的蔓延。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.3-2.jpg)
+参考链接：
+[歐洲疫情飆升 比利時荷蘭等10國列非常高度關注](https://www.cna.com.tw/news/aopl/202111130209.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+[印度北方邦暴发寨卡疫情病毒感染者增至89人](https://www.google.com.tw/search?q=%E5%8D%B0%E5%BA%A6%E5%8C%97%E6%96%B9%E9%82%A6%E7%96%AB%E6%83%85&amp;hl=zh_hant_hk&amp;dcr=0&amp;source=hp&amp;ei=f5GQYdv4N4bc0gSPgKaoDA&amp;iflsig=ALs-wAMAAAAAYZ-Cfj6bUFUg0lEURwhUoQED3jsm_KFYe&amp;oq=%E5%8D%B0%E5%BA%A6%E5%8C%97%E6%96%B9&amp;gs_lcp=Cgdnd3Mtd2l6EAEYAjIFCAAQgAQyBQguEIAEMgUIABCABDIFCAAQgAQyBA-gAEB4yBAgAEB46FAgAEOoCELQCEIoDELcDENQDEOUCOggILhCxAxCDAToICC4QgAQQsQM6CwguEIAEELEDEIMBOgsIABCABBCxAxCDAToICAAQgAQQsQM6BQgAEM0COgQIABBDU-PlLWJ7FAWC0xgFoBXAAeACAAf4BiAHXB5IBBjEyLjAuMZgBAKABAbABCg&amp;sclient=gws-wiz)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：文特
+编辑：飞虹
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
