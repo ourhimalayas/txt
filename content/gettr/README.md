@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/15/2021 3:01 AM (UTC)`
+
+11/14/2021 Miles Guo: The CCP ransacked Jack Ma's secret office in Singapore and seized enough materials to put him behind bars. The citizens of the New Federal State of China must learn the lesson from Jack Ma. We shall never be enslaved by wealth due to ignorance, and we must accumulate clean, legitimate and sustainable wealth<br/><br/>11/14/2021 文贵直播：中共在马云新加坡的秘密办公室查抄的东西足以让他把牢底坐穿；而新中国联邦人要以马云为鉴，不要因无知而成为财富的奴隶，我们要拥有干净、合法和永续的财富<br/>
+![img](https://media.gettr.com/group33/getter/2021/11/15/03/01/b6b2a059-e0ee-52b4-8945-58047a53915d/out.jpg)
+
+---
+
 `@miles 11/15/2021 2:08 AM (UTC)`
 
 11/14/2021 Miles Guo: A Chinese bioweapons scientist currently living in Europe explains why the COVID vaccine disaster is beginning next May; the scientist predicts that half of the world's vaccinated people may die; according to the scientists' intelligence, the CCP will release a new virus and the upcoming outbreak will spread from the West Coast to the East Coast in the U.S.<br/><br/>11/14/2021 文贵直播：现居欧洲的中国生化武器科学家解读疫苗灾难为何会在明年五月开始；科学家预测全球接种疫苗者或将有一半死亡；科学家的情报表明，中共将释放新病毒并让疫情从美西蔓延到美东<br/>
@@ -289,13 +296,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 ...
 ![img](https://media.gettr.com/group14/origin/2021/11/10/11/f18a71e7-27e1-0c14-baa4-168a02c4757e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 11/10/2021 12:03 AM (UTC)`
-
-在中共给开始给孩子打疫苗后，许多家长反映，他们的孩子身上已开始出现疫苗不良反应，例如头疼、恶心、肚子疼、发烧、甚至昏睡不醒，间歇性失明等等。<br/><br/>After the CCP started to jab the kids, a few parents report the adverse effects are emerging among their children, such as headache, nausea, stomachache, fever, even couldn't be waked up, intermittent blind , and so on <br/>
-![img](https://media.gettr.com/group41/getter/2021/11/10/00/03/21e52fe1-cf25-f50e-8e36-5b77b1e2f30e/out.jpg)
 
 ---
 

@@ -2,71 +2,105 @@
 ---
 
 
-## 消息:中共驻美大使馆游说美企反对与中共国相关的议案
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1664645/)
+## 关于喜马拉雅币提现问题
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1664677/)
 
-**摘要翻译：     **
+[https://gtv.org/video/id=61912821182702508105366e](https://gtv.org/video/id=61912821182702508105366e)
 
-《台湾英文新闻》转自《路透社》11月12日的报道称，
+**郭文贵**
+**Miles Guo**
 
-四名熟悉该议案的消息人士对路透社表示，最近几周，中共国一直在通过致函商界人士和在商界人士广泛参与的会议上施压美国的高管、企业和商业团体，要求他们在美国国会反对与中共国相关的议案。
+没有一个刚刚上市的交易所让你开始提现的, 从来没有过
+There is no exchange that has just been listed to allow you to start cash withdraw-ing, never
 
-据消息人士和路透社看到的中共国驻美大使馆经商处发出的一封信的文本，大使馆已向企业高管施压，要求他们敦促国会议员修改或撤销旨在增强美国竞争力的具体议案。
+也没有一个交易所是一上来论万让你提走的
+There is also no single exchange that will let you cash over ten thousand dollars at the beginning
 
-根据信件正文，中共官员警告企业，如果这项议案成为法律，他们将面临在中共国失去市场份额或收入的风险。
+过来几年来上万的也没有，第三个，这个钱不是你的钱
+After a few years of operation, there hasn’t been reached tens thousand dollars, the third one, this money is not yours
 
-中共国大使馆及其经商处负责人均未回复各自的置评请求。
+你战友现在已经六亿币，按20块钱（算）已经120亿美元了
+You comrade-in-arms now has 600 million coins, and at 20 dollars calculated, it is already 12 billion US dollars
 
-消息人士称，中共国的要求让一些收到信件的人担心，如果他们将来就类似问题游说议员，可能会被视为违反了《外国代理人登记法》(FARA)。
+你总共出了6000万美元，那就是你要给114亿美元，这个要填空
+You paid a total of 60 million U.S. dollars, that is, you have to give 11.4 billion U.S. dollars, and you have to fill in the blanks
 
-因此，没有一个消息来源愿意被确认为收到或看到过这封信的人。
+你要都提，那就是给它砸下来，砸到1毛钱，你就在恢复到6000万美元
+If you want cash them all, it is to smash it down, if you smash it to 10 cents, the market cap return to 60 million US dollars
 
-旨在促进美国与中共国的竞争并为急需的半导体生产提供资金的全面立法，即《美国创新与竞争法案》(USICA)，于今年6月在参议院的两党支持下获得通过。众议院的一项名为《鹰法案》的相关法案更严格地关注政策，但由于国会一直专注于其他国内举措，因此陷入停滞。
+就这么简单，人家不会给你120亿美元，没有人可以给你120亿美元
+It’s as simple as that, people won’t give you 12 billion U.S. dollars, no one can give you 12 billion U.S. dollars
 
-路透社确定这些信件中的措辞是分别发送给许多人的，明确要求各公司反对《美国创业和竞争法案》和《鹰法案》。
+你千万别做梦，我就是想拿120亿进去，它也不会让我拿
+Don’t dream it, I just want to take 12 billion in, it won’t let that happen
 
-中共政府认为这些在人权和贸易问题上对中共国采取强硬立场的措施，是美国应对中共国日益增长的经济和地缘政治实力的努力的一部分。
+交易所凭啥让你拿呀，我给你什么钱，
+Why did the exchange let you take it? What money will I give you
 
-“我们诚挚地希望你们……在敦促国会议员放弃零和思维和意识形态偏见方面发挥积极作用，停止兜售负面涉华法案，删除负面条款，以便在为时已晚之前，为双边经贸合作创造有利条件。”中共大使馆在11月初发出的一封信函中说。
+你把它砸回（之前的价格），但是你砸完以后，前提你是把你的币抛出去了
+You smash it back to the previous price, but after you smash it, but the result is that you sell out your coins
 
-路透社与四位消息人士确认了这封信的一致措辞。
+你币抛出去，你再回来是不可能的，就包括你提了现
+If your coins are sold out, it is impossible for you to come back, including you cash it
 
-信函指出，“那些有负面影响的涉华法案，其结果不会是美国企业利益得到保护，而中国企业的利益受到损害，这只会伤害到所有人。”
+你提了现，现在很简单，你把现提完以后，
+You have withdrawn the cash, it is very simple now, after you have withdrawn the cash
 
-信函说，“推动排除中国的供应链将不可避免地导致中国对美国产品的需求下降，美国公司将失去在中国的市场份额和收入。”
+你想拥有以后的权利那是永远不可能
+it’s never possible that you want to have the same rights in the future
 
-两名消息人士称，在与中共国大使馆工作人员的会谈中也传达了类似信息。
+你没币怎么可能拥有权利呢，这不很简单吗，是吧？
+How can you have the same rights without H coins? Isn’t that simple? right?
 
-一名消息人士称，“这是外国政府的直接要求”，并强调《外国代理人登记法》的影响，称该法案要求代表外国势力或政党行事的人向司法部披露这些关系。
+铸币权啦，什么生长权啦，然后明年的认购权都是没有的
+Minting rights, growth rights, and no subscription rights for next year
 
-另一位消息人士称，这种做法似乎是为了让各公司推迟立法程序，而不是完全阻止这些法案。
+但是，给你的选择是，
+However, the choice given to you is,
 
-**简评：**
+一，我卖掉我的未来，我拿走我每天提现权，10万
+One, I sell out my future, I take away my daily withdrawal rights, 100,000 dollars
 
-众所周知，中共国的国企和私企，从本质上来说所都是党企和党官的家企，哪怕偶尔出来几个所谓的私有企业，也都与中共的腐败家族有着千丝万缕的关系，或者如果需要，中共政权更会直接将这些私企充公，马云的阿里巴巴，刘强东的京东商城等等，无不如此。
+二，我想要未来，我合理的使用我的币, 你可以兑现一些，但不是抛售
+Second, I want the future, I use my coins reasonably, you can cash out some, but not sell them all
 
-为了维护这些为中共政权输血的中共企业的利益，维持中共国岌岌可危的经济困境，如今的中共政府已经开始直接要求美国相关企业高管敦促国会议员修改或撤销旨在增强美国竞争力的具体议案。而此举可能会被视为违反了《外国代理人登记法》。中共政权如此冒进，一方面说明了美国拜登政府的软弱可欺，另一方面也说明，在美国爱国者不断推行排除中共影响力法案的局面下，中共企业的创汇空间已经越来越小，这将直接影响中共政权的执政根基。我们期待随着美国爱国者不断觉醒，中共政权会进一步受到美国在政治、经济和军事层面的多重打击，伴随着政治内斗加剧，经济危机四伏的困局，中共政权的倒塌指日可待。
+你只要不抛售，是交易，那你所有的都能保住，就这么简单，是吧
+As long as you don’t dumping, just trading, then you can keep everything, it’s that simple, right?
 
-新闻链接: [Chinese embassy lobbies US business to oppose China bills -sources](https://www.taiwannews.com.tw/en/news/4343851)
+然后呢，如果你的耐心足够到明年5月份的话
+Then, if you have enough patience until May next year
 
-***翻译/简评：**Harvey (叶知秋)*
+你会验证很多事情，这个币是真花钱，能买啥，能有交易
+You will witness many things, this coin is really circulating, what can be bought, and there can be transactions
 
-***校对**：感恩*
+我说三周，三周，你可以的话咱们再说
+I said three weeks, three weeks, let’s talk again later
 
+今天坐在这儿，咱们这个大直播的时候
+Sitting here today, during our grand live broadcast
 
+想想十天前，你们谁相信过喜币能到今天
+Think about ten days ago, who of you believed that H-coin could be the result to-day
 
-* * *
+**原视频链接** :[https://twitter.com/se1y7cblljselva/status/1459086321100726284?s=24](https://twitter.com/se1y7cblljselva/status/1459086321100726284?s=24)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Date:11/13/2021
+原视频标题: 关于喜马拉雅币提现问题
+Regarding the withdrawal cash from Himalayan coins
+原视频日期：2021/11/10
+任务编号：KC250（2856）
+视频时间段 : 0:00-2:10
 
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
