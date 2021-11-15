@@ -2,24 +2,36 @@
 ---
 
 
-## 加密数字货币市场投资已势不可挡
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1666714/)
+## 新中国联邦国防军即将履行使命
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666719/)
 
-采编：青青， 编译撰稿：硫酸羟氯喹64
+作者：纽约香草山农场 – 四季
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在11月14日的大直播中透露，拥有世界一流装备的新中国联邦国防军，将在明年5月份开始在全世界各地履行使命。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a.jpg)图片来源：GNEWS
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-12.jpeg)
 
+郭先生在半年前就已经安排了，新中国联邦的国防军，也叫雇佣军，由西方国家当地警察，特种兵及退伍军人组成。他们持有当地国家军人牌照，合法拥有及操作武器，并有能力调动本地人脉和资源，将全副武装在世界范围内保护华人。 
 
-据加拿大媒体《CTV新闻》11月12日刊文报道，由于比特币价格在近期的巨大反弹中创下了新高，这预示着整个加密数字货币市场正朝着超过3万亿美元的总市值持续迈进。
+针对未来全世界华人即将面临的排华危机，郭先生诠释了新中国联邦的使命，即只要是黄皮肤人，不分敌我。新中国联邦不仅保护爆料革命战友，即便是伪类受到欺辱，也会受到保护。在一些国家的中国城，例如旧金山，洛杉矶，温哥华，日本、伦敦等地，以及战友聚集的西班牙等欧洲其他国家将派驻合法拥有武装的国防军，保护新中国联邦战友和华人。他们使用的车辆上将显示新中国联邦的标识和旗帜，向世人宣誓新中国联邦的武装力量。 
 
-报道指出，目前投资加密数字货币正变得越来越趋势化，并渐已成为未来金融市场的关键性产品和决定性方向。因此，加拿大各主要金融机构，包括万事达卡、PayPal、Square、Visa及其他众多投资公司都充分认识到，新兴加密数字货币将很快成为其基础服务和支付系统的最重要因素。
+郭先生对所有西方国家的华人发出了“排华”即将到来的警告。新中国联邦人只有紧紧的团结在一起，才能度过未来的灾难。
 
-为此，知名数字资产集团[Ninepoint Partners]的总经理[塔普斯科特]认为：“数字资产市场”的增长潜力是无限巨大的。而加密数字货币是正在深刻改变现有经济结构和金融服务的，包括协议代币、治理代币、不可伪造代币和稳定币等，众多新型数字资产中最核心的一种。
+参考链接：[2021年11月14日文贵大直播](https://gtv.org/video/id=61910d9be7e770379234d270)
 
-同时，越来越多的金融投资机构都将新兴加密数字货币作为其对冲当前高速通货膨胀的有效工具。尽管目前其规模和黄金这种更传统对冲方式相比暂时只占一小部分，但根据金融市场在不确定时期往往会迅速反弹的基本特点，”优质加密数字货币“所特有的波动增长性则被投资业界视为一个绝佳的对冲和避险良机。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-[原文链接：](https://www.ctvnews.ca/business/pattie-lovett-reid-key-questions-to-ask-before-investing-in-cryptocurrency-1.5659992)
+总编：文真
+编辑：Ivy001
+校正/发稿：谐趣园
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
