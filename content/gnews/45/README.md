@@ -2,20 +2,34 @@
 ---
 
 
-## 秘翻在线: 北交所15日开市，81家公司首批上市
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1664481/)
+## 从夏日的海湾到反新冠疫苗游行
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1664585/)
 
-撰稿：西枫westca
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/夏日湾.png)图片来源：妈妈咪网
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-6.jpg)图片来源：今日头条
-据新浪网11月14日报道，北交所15日正式上市。共有81家公司经过公开发行程序或从新三板平移，成为首批上市公司。并有超过210万户投资者预约开通北交所合格投资者权限，开市后可参与北交所交易的投资者超400万户。
 
-首批上市的81家公司平均每家申请专利82件。主要集中与新一代信息技术产业、高端装备制造产业、生物产业和新材料产业。大陆广发证券认为，北交所与沪深交易所制度最大的差异性体现在采用公司制（沪深交易所为会员制），与国际接轨。参考国际经验，北交所实行公司制将具有以下两点优势：第一，公司制交易所具备上市融资功能，达到一定规模后可以上市；第二，公司制交易所符合全球交易所的发展趋势，有利于北交所逐步与全球资本市场接轨。
+**翻译：月映万川**
+**编辑：Candy**
 
-继习近平在9月2日宣布设立北交所二月有余，北交所就在中共十九大六中全会闭幕数日后挂牌。在当前中概股不断从美股市场退市、众多大型企业面临违约、倒闭破产前景、金融业潜在风险随时爆发的情况下，新一轮割韭菜的行动大张旗鼓的展开。真心希望中国民众认清中共本质，不要再当待宰的羔羊了！
+伊莎贝尔·卢卡斯一直都是拜伦湾（澳洲）反疫苗运动的非官方代表人物，然而，正直、敢言的她实际上已经完全接种了各种疫苗。
 
-**新闻来源：**[蹄疾步稳 北交所今日开市！|北交所\_新浪财经\_新浪网 (sina.com.cn)](https://finance.sina.com.cn/chanjing/gsnews/2021-11-15/doc-iktzscyy5528038.shtml?cre=tianyi&amp;mod=pcpager_fintoutiao&amp;loc=4&amp;r=0&amp;rfunc=43&amp;tj=cxvertical_pc_pager_spt&amp;tr=174)
+周日秘密透露：这位前澳大利亚日间剧明星已经接种了所有的标准疫苗，但是，却拒绝接种新冠疫苗。
+
+在她的社交媒体上回应批评者时她写道：“为了信息透明，我在人生中接种过很多疫苗，但是我只是要为大众争取选择权。”
+
+这位36岁的前变形金刚女演员一直站在各种反新冠疫苗集会的焦点位置。这些集会的诉求就是结束边境控制与疫苗强制。
+
+其中，在她留言到电视主播皮特·埃文斯的社交媒体帖子时说，“自由选择是每一个人的基本人权。我不相信靠新冠疫苗接种达到群体免疫这条路。”。
+
+原文链接：[From Summer Bay to Anti-vax protest](https://www.dailytelegraph.com.au/subscribe/news/1/?sourceCode=DTWEB_WRE170_a&amp;dest=https%3A%2F%2Fwww.dailytelegraph.com.au%2Fentertainment%2Fsydney-confidential%2Factress-isabel-lucas-has-been-vaccinated-just-not-for-covid19%2Fnews-story%2F6ac012a44e7f4140b63d796a895cd5b1&amp;memtype=anonymous&amp;mode=premium&amp;v21=dynamic-warm-control-score&amp;V21spcbehaviour=append)
+
+***发布：Candy***
+
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
