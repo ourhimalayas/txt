@@ -2,18 +2,12 @@
 ---
 
 
-## 西媒头条 — 第108期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1666101/)
+## 一位有良知的医生证明伊维菌素对治疗新冠的有效性
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1666200/)
 
-**制作：蚂蚁兄弟**
+11/02/2021 艾珀·洛佩兹医生分享了她自己治疗2400多名患者的经验，并证明了伊维菌素对治疗新冠是非常有效的。
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/xm1115.001.jpeg)
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
