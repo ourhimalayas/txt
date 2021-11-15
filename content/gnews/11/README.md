@@ -2,53 +2,105 @@
 ---
 
 
-## 2021/11/10 班农专访1: 战斗室的使命是面向中美两国老百姓
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1664577/)
+## 关于喜马拉雅币提现问题
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1664677/)
 
-**简评：**
+[https://gtv.org/video/id=61912821182702508105366e](https://gtv.org/video/id=61912821182702508105366e)
 
-班农先生年初被中共制裁，班农战斗室最近又被主流媒体CNN攻击。因为GNews和GTV的影响力逐渐扩大，引起了主流媒体的强烈不满。班农战斗室的使命之一，就是把美国和中共国的老百姓联合起来，传播中国和中国人不等于中共的概念，告诉西方世界，中国人民是中共邪恶政权最大的受害者，不管是病毒和疫苗灾难，还是金融危机。老百姓有权利知道真相。
+**郭文贵**
+**Miles Guo**
 
-[GTV视频链接](https://gtv.org/video/id=618f3330182702508104ad60)
+没有一个刚刚上市的交易所让你开始提现的, 从来没有过
+There is no exchange that has just been listed to allow you to start cash withdraw-ing, never
 
+也没有一个交易所是一上来论万让你提走的
+There is also no single exchange that will let you cash over ten thousand dollars at the beginning
 
+过来几年来上万的也没有，第三个，这个钱不是你的钱
+After a few years of operation, there hasn’t been reached tens thousand dollars, the third one, this money is not yours
 
-**视频字幕：**
+你战友现在已经六亿币，按20块钱（算）已经120亿美元了
+You comrade-in-arms now has 600 million coins, and at 20 dollars calculated, it is already 12 billion US dollars
 
-**主持人Nina：**周日《CNN 政治》上发表了一篇题为《史蒂夫·班农非常火的播客是选举谎言的危险幻想之地》。我想这是继今年1月20号中共对你的制裁之后，你和《战斗室》的又一荣誉徽章。主流媒体完全脱离人民，CNN还有多少观众呢？
+你总共出了6000万美元，那就是你要给114亿美元，这个要填空
+You paid a total of 60 million U.S. dollars, that is, you have to give 11.4 billion U.S. dollars, and you have to fill in the blanks
 
-**班农先生：**这是个好问题。他们害怕《战斗室》的其中一个原因是，实话说，由于我们与GNews和GTV的合作，被翻译成汉语和日语，扩大了我们的听众。不仅仅是在生活在西方的和全世界的海外华人，而且还通过防火墙最终到达中国老百姓。
+你要都提，那就是给它砸下来，砸到1毛钱，你就在恢复到6000万美元
+If you want cash them all, it is to smash it down, if you smash it to 10 cents, the market cap return to 60 million US dollars
 
-主流媒体现在完全气坏了，因为他们很乏味、很有限。他们只看到华盛顿、纽约和伦敦。他们没有全球眼光。
+就这么简单，人家不会给你120亿美元，没有人可以给你120亿美元
+It’s as simple as that, people won’t give you 12 billion U.S. dollars, no one can give you 12 billion U.S. dollars
 
-这是我对《战斗室》最为骄傲的原因，而且我真的为我们听众的反应感到自豪，所以我们一定会受到更多这样的攻击。请记住，我的使命之一就是将美国和中国的老百姓联合在一起。
+你千万别做梦，我就是想拿120亿进去，它也不会让我拿
+Don’t dream it, I just want to take 12 billion in, it won’t let that happen
 
-媒体恨之入骨，因为他们的观众和影响在减小，这只不过是他们溃败前的顽抗罢了。所以每一次他们这样做的时候，我们都非常骄傲，并大力宣传，让我们的听众明白他们正在发挥影响。
+交易所凭啥让你拿呀，我给你什么钱，
+Why did the exchange let you take it? What money will I give you
 
-现在我们的听众完全了解选举的胜利，但是，我想确保中国观众也能够了解，他们也发挥了巨大的影响。
+你把它砸回（之前的价格），但是你砸完以后，前提你是把你的币抛出去了
+You smash it back to the previous price, but after you smash it, but the result is that you sell out your coins
 
-第一，就是中国和中国人不等于中国共产党的概念。中国，尤其是中国人民是受害者，还有老百姓、工薪阶层、中产阶级、传统的中国家庭、中国公民，他们是最大的牺牲品。无论是武汉实验室，或者是影子银行。我听说恒大即将破产。所以，我认为这是我们中国听众和美国华人听众的力量，所以我要感谢每一位的支持。
+你币抛出去，你再回来是不可能的，就包括你提了现
+If your coins are sold out, it is impossible for you to come back, including you cash it
 
-但是要明白，当他们发出这种文章的时候，重点不是我，我是可以被替代的，重点是我们中国和美国的听众。
+你提了现，现在很简单，你把现提完以后，
+You have withdrawn the cash, it is very simple now, after you have withdrawn the cash
 
+你想拥有以后的权利那是永远不可能
+it’s never possible that you want to have the same rights in the future
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/%E7%8F%AD%E5%86%9C%E4%B8%93%E8%AE%BF.jpg)
-*字幕/听写：云岭 | 翻译：Roberts｜校对：Wade| 简评/文字整理/编辑：胖丁*
+你没币怎么可能拥有权利呢，这不很简单吗，是吧？
+How can you have the same rights without H coins? Isn’t that simple? right?
 
+铸币权啦，什么生长权啦，然后明年的认购权都是没有的
+Minting rights, growth rights, and no subscription rights for next year
 
+但是，给你的选择是，
+However, the choice given to you is,
 
-* * *
+一，我卖掉我的未来，我拿走我每天提现权，10万
+One, I sell out my future, I take away my daily withdrawal rights, 100,000 dollars
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+二，我想要未来，我合理的使用我的币, 你可以兑现一些，但不是抛售
+Second, I want the future, I use my coins reasonably, you can cash out some, but not sell them all
 
+你只要不抛售，是交易，那你所有的都能保住，就这么简单，是吧
+As long as you don’t dumping, just trading, then you can keep everything, it’s that simple, right?
 
-编辑：【英国伦敦喜庄园编辑部】
+然后呢，如果你的耐心足够到明年5月份的话
+Then, if you have enough patience until May next year
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+你会验证很多事情，这个币是真花钱，能买啥，能有交易
+You will witness many things, this coin is really circulating, what can be bought, and there can be transactions
 
+我说三周，三周，你可以的话咱们再说
+I said three weeks, three weeks, let’s talk again later
 
+今天坐在这儿，咱们这个大直播的时候
+Sitting here today, during our grand live broadcast
+
+想想十天前，你们谁相信过喜币能到今天
+Think about ten days ago, who of you believed that H-coin could be the result to-day
+
+**原视频链接** :[https://twitter.com/se1y7cblljselva/status/1459086321100726284?s=24](https://twitter.com/se1y7cblljselva/status/1459086321100726284?s=24)
+
+Date:11/13/2021
+原视频标题: 关于喜马拉雅币提现问题
+Regarding the withdrawal cash from Himalayan coins
+原视频日期：2021/11/10
+任务编号：KC250（2856）
+视频时间段 : 0:00-2:10
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

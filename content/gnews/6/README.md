@@ -2,106 +2,33 @@
 ---
 
 
-## 关于喜马拉雅币提现问题
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1664677/)
+## 墨尔本连续第三周集会抗议强制疫苗政策，规模已达数万人
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1664784/)
 
-[https://gtv.org/video/id=61912821182702508105366e](https://gtv.org/video/id=61912821182702508105366e)
+撰稿：Runaway
+9NEWS
+墨尔本发生自COVID-19大流行以来最大规模的游行抗议，数万民众聚集在议会大厦门前，抗议安德鲁政府提交的大流行管理法案，该法案将授予州长以维护公共健康为名义的无限独裁权力。
 
-**郭文贵**
-**Miles Guo**
+“今天人们来到这里是要保护澳大利亚，”一名抗议者在谈到维多利亚州的人权遭到破坏时说。
 
-没有一个刚刚上市的交易所让你开始提现的, 从来没有过
-There is no exchange that has just been listed to allow you to start cash withdraw-ing, never
+澳大利亚国旗倒挂，以表示“在对生命或财产造成极端危险的情况下的可怕痛苦”。
 
-也没有一个交易所是一上来论万让你提走的
-There is also no single exchange that will let you cash over ten thousand dollars at the beginning
+前警察克雷格·巴克曼说：“勇敢的人们正在增加，谎言正在摧毁世界。他们已经骗了我们两年了。病毒就是恐惧，瘟疫是贪婪，总有人想统治世界。”
 
-过来几年来上万的也没有，第三个，这个钱不是你的钱
-After a few years of operation, there hasn’t been reached tens thousand dollars, the third one, this money is not yours
+发言人尤其反对丹尼尔·安德鲁斯（Daniel Andrews）根据疫苗接种情况歧视人们，包括要在2022年之前“将他们（从经济体）拒之门外”。
 
-你战友现在已经六亿币，按20块钱（算）已经120亿美元了
-You comrade-in-arms now has 600 million coins, and at 20 dollars calculated, it is already 12 billion US dollars
+“媒体需要认真审视自己，因为他们参与了背叛人民，”鲁克山在谈到主流媒体将抗议者描述为‘极右翼’时说。
 
-你总共出了6000万美元，那就是你要给114亿美元，这个要填空
-You paid a total of 60 million U.S. dollars, that is, you have to give 11.4 billion U.S. dollars, and you have to fill in the blanks
+参加者包括各行各业的普通民众，年龄上至退休老人，下至青少年，他/她们担心的是自己的生计和未来的自由，他们要为自己的命运抗争。抗议规模是上周末的十倍，抗议者承诺下周末将以两倍的人数再次聚集。
 
-你要都提，那就是给它砸下来，砸到1毛钱，你就在恢复到6000万美元
-If you want cash them all, it is to smash it down, if you smash it to 10 cents, the market cap return to 60 million US dollars
+澳大利亚疫苗一针接种率已达90.3%，两针接种率82.8%，最后的5%未接种人口一定是最坚定的反抗者，他们的坚守一定会改变世界。
 
-就这么简单，人家不会给你120亿美元，没有人可以给你120亿美元
-It’s as simple as that, people won’t give you 12 billion U.S. dollars, no one can give you 12 billion U.S. dollars
+免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
-你千万别做梦，我就是想拿120亿进去，它也不会让我拿
-Don’t dream it, I just want to take 12 billion in, it won’t let that happen
+发布：Runaway
 
-交易所凭啥让你拿呀，我给你什么钱，
-Why did the exchange let you take it? What money will I give you
-
-你把它砸回（之前的价格），但是你砸完以后，前提你是把你的币抛出去了
-You smash it back to the previous price, but after you smash it, but the result is that you sell out your coins
-
-你币抛出去，你再回来是不可能的，就包括你提了现
-If your coins are sold out, it is impossible for you to come back, including you cash it
-
-你提了现，现在很简单，你把现提完以后，
-You have withdrawn the cash, it is very simple now, after you have withdrawn the cash
-
-你想拥有以后的权利那是永远不可能
-it’s never possible that you want to have the same rights in the future
-
-你没币怎么可能拥有权利呢，这不很简单吗，是吧？
-How can you have the same rights without H coins? Isn’t that simple? right?
-
-铸币权啦，什么生长权啦，然后明年的认购权都是没有的
-Minting rights, growth rights, and no subscription rights for next year
-
-但是，给你的选择是，
-However, the choice given to you is,
-
-一，我卖掉我的未来，我拿走我每天提现权，10万
-One, I sell out my future, I take away my daily withdrawal rights, 100,000 dollars
-
-二，我想要未来，我合理的使用我的币, 你可以兑现一些，但不是抛售
-Second, I want the future, I use my coins reasonably, you can cash out some, but not sell them all
-
-你只要不抛售，是交易，那你所有的都能保住，就这么简单，是吧
-As long as you don’t dumping, just trading, then you can keep everything, it’s that simple, right?
-
-然后呢，如果你的耐心足够到明年5月份的话
-Then, if you have enough patience until May next year
-
-你会验证很多事情，这个币是真花钱，能买啥，能有交易
-You will witness many things, this coin is really circulating, what can be bought, and there can be transactions
-
-我说三周，三周，你可以的话咱们再说
-I said three weeks, three weeks, let’s talk again later
-
-今天坐在这儿，咱们这个大直播的时候
-Sitting here today, during our grand live broadcast
-
-想想十天前，你们谁相信过喜币能到今天
-Think about ten days ago, who of you believed that H-coin could be the result to-day
-
-**原视频链接** :[https://twitter.com/se1y7cblljselva/status/1459086321100726284?s=24](https://twitter.com/se1y7cblljselva/status/1459086321100726284?s=24)
-
-Date:11/13/2021
-原视频标题: 关于喜马拉雅币提现问题
-Regarding the withdrawal cash from Himalayan coins
-原视频日期：2021/11/10
-任务编号：KC250（2856）
-视频时间段 : 0:00-2:10
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片: 洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+参考链接：[‘KILL THE BILL’: Largest protest in Melbourne so far](https://www.rebelnews.com/_kill_the_bill_largest_protest_in_melbourne_so_far)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

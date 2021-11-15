@@ -2,10 +2,10 @@
 ---
 
 
-## 纳瓦罗：美国与中共正处于战争状态而非竞争关系
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664274/)
+## 医生：疾控中心重新恢复口罩令就是因为疫苗无效
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1664361/)
 
-11/11/2021 中共病毒是故意释放，我们与中共国是战争中而非竞争。中共国是持续的威胁。
+11/05/2021 一名医生：如果我谈论疫苗，我的执照和医学委员会认证就会受到威胁。疫苗并不能有效预防中共病毒。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
