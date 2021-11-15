@@ -2,24 +2,34 @@
 ---
 
 
-## 中共国10月份鲜菜价格同比上涨15.9%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666353/)
+## 美国FDA因“假阳性”召回数百万份家用中共病毒测试盒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666383/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-83.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.corporatefinanceinstitute.com%2Fassets%2Fconsumer-price-index.jpeg&amp;imgrefurl=https%3A%2F%2Fcorporatefinanceinstitute.com%2Fresources%2Fknowledge%2Feconomics%2Fconsumer-price-index-cpi%2F&amp;tbnid=8C4ldc6aQ0ZZhM&amp;vet=12ahUKEwjg3fues5r0AhUNnEsFHRcLDq8QMygIegUIARCwAQ..i&amp;docid=9qB4aIwIUMlTCM&amp;w=1180&amp;h=980&amp;q=CPI&amp;ved=2ahUKEwjg3fues5r0AhUNnEsFHRcLDq8QMygIegUIARCwAQ)
-11月15日北京日报报道，中共国家统计局发布10月国民经济数据。10月份，全国居民消费价格（CPI）同比上涨1.5%，涨幅比上月扩大0.8个百分点；环比上涨0.7%。分类别看，食品烟酒价格同比下降0.9%，衣着价格上涨0.5%，居住价格上涨1.7%，生活用品及服务价格上涨0.9%，交通通信价格上涨7.0%，教育文化娱乐价格上涨2.9%，医疗保健价格上涨0.6%，其他用品及服务价格下降0.5%。
+作者：美东香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国食品和药物管理局（FDA）11月11日证实，约两百万个Ellume家用中共病毒测试盒，因制造缺陷导致“假阳性”，而被召回。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-15-下午10.32.05.png)
+该公司在10月份因有些批次的测试盒存在缺陷，首次向联邦监管机构作出通报。美国FDA随即跟进调查，并发现了更多的批次存在制造缺陷问题。
 
-10月CPI涨幅扩大主要受到近期鲜菜价格上涨影响。在食品烟酒价格中，猪肉价格同比下降44.0%，鲜菜价格上涨15.9%，粮食价格上涨0.9%。
+该测试盒的抗原测试是从鼻腔提取样本，来检测是否存在中共病毒蛋白质，无需处方就可以提供给2岁以上的人士使用。
 
-中共国滥印钞票就像是从老百姓口袋里抢钱，老百姓手中的积蓄被稀释贬值，致商品流通领域通胀加剧，毛币加速贬值致使民生的蔬菜粮食也暴涨。
+这些测试盒生产于2021年2月24日和2021年8月11日之间，美国FDA指出，假阳性可能会导致实际病因的延迟诊断，或因此遭受不必要的新冠治疗和隔离。此次召回被美国食品和药物管理局认定为“一级召回”——是最严重的召回类型。
 
-信息来源：
+参考链接：[FDA Recalls Millions Of At-Home COVID-19 Tests Over False Positives](https://www.zerohedge.com/covid-19/fda-recalls-millions-home-covid-19-tests-over-false-positives)
 
-[10月全国CPI同比上涨1.5%，鲜菜价格同比上涨15.9%](https://mq.mbd.baidu.com/r/wrjXgauzqU?f=cp&amp;rs=3889805779&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=682eb6ff4fb14d9b)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

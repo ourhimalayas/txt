@@ -17,6 +17,12 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/15/2021 3:32 PM (UTC)`
+
+11月15号：这是真的吗？<br/><br/>【辉瑞公司首席执行官阿尔伯特.波拉11月9日声称，传播疫苗错误信息的人（反对疫苗）是罪犯，他们正在造成生命的损失。第二天（<br/>11月10日）早上他的太太被送入纽约长老会劳伦斯医院的急诊室后死亡。保守派比弗网站报道， 根据辉瑞公司总裁太太的医师的消息，死因是辉瑞公司疫苗的并发症。<br/><br/><br/>在阿尔伯特的妻子去世后，他们要求保护隐私。法官已经批准了临时的媒体封锁。所有美国大媒体都没有报道这件事情。在网上通过搜索得到几个自媒体的报道，包括非右派的自媒体。保守派比弗的总部在加拿大，不受法官裁决的约束】<br/><br/>https://www.conservativebeaver.com/2021/11/10/the-wife-of-pfizers-ceo-dies-from-complications-from-the-vaccine/
+
+---
+
 `@miles 11/15/2021 3:22 PM (UTC)`
 
 11月15号：尊敬的战友们好，你们健身了吗？传播C C P病毒和疫苗解药的真相了吗？一切都已经开始！
@@ -289,13 +295,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 11/10/2021 Miles Guo: The internal report from the 6th Plenary Session revealed the so-called “cultural survey” conducted by the CCP. The survey results show that the Chinese people have been rated as the most unpopular in the world for 17 consecutive months and are faced with grave situations such as exclusion of the Chinese, and anti-Chinese sentiment and hatred. The Whistleblowers’ Movement and the New Federal State of China only seeks to take down the CCP, and we’re not anti-China/Chinese<br/><br/>11/10/2021 文贵直播：中共六中全会内部报告惊爆中共所谓的“文化调查”，结果显示中国人连续17个月被列为全球最不受欢迎的人，面临排华、反华、厌华的不利局面。爆料革命、新中国联邦只灭共，不反华。<br/>
 ![img](https://media.gettr.com/group41/getter/2021/11/11/01/27/76a83e63-ddcf-b924-f7c6-7e837c987b3b/out.jpg)
-
----
-
-`@miles 11/10/2021 9:26 PM (UTC)`
-
-11月10号尊敬的战友们好……你们健身了吗？战友们有钱了是不是就不应该健身了呢？
-![img](https://media.gettr.com/group47/getter/2021/11/10/21/26/64112f45-74e4-a0aa-2f47-e9cadbb8d21e/out.jpg)
 
 ---
 

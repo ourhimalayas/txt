@@ -2,44 +2,33 @@
 ---
 
 
-## 微软高管称中共在应对新冠疫情方面领先世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1665061/)
+## 针下亡魂｜美国 45 岁知名漫画家接种疫苗后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1665474/)
 
-![](https://s2.freebeacon.com/up/2021/03/rsz_gettyimages-869597360-736x514.jpg)
-一位微软高管上周宣布，该公司正在扩大在中共国的业务。他说，中共国在应对新冠疫情方面处于世界领先地位。
+**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 15/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-微软经常按中共的要求行事，以保持其进入中共国这个丰厚市场的许可。上个月，微软对其旗下的领英（LinkedIn）产品进行了全面修改以满足中共政府的要求。9月，微软总裁布拉德·史密斯（Brad Smith）亲自跟中共高级官员会面，讨论深化公司与中共的关系。
+【美国】俄勒冈州一名 45 岁的漫画家Jesse Hamm 在接种莫德纳 COVID-19 疫苗后死亡。这一消息令整个漫划界大为震惊。
 
-微软将领英在中共国进行了彻底修改，以符合监管机构的要求，它推出了一个取消了用户发表意见功能的类似平台。领英经常对讨论中共敏感话题（像台湾或者天安门广场）的用户（包括记者）进行审查。领英还在一个英国人批评了中共政府之后，审查了他的普通账户。
+Jesse Hamm 的妻子 Anna 于 5 月 13日在 Twitter 上简单宣布了丈夫的死讯。她在该贴中特别指出，丈夫死于“肺部血凝块”，有网友在帖子下留言，询问 Jesse Hamm 是否已经接种过 COVID-19 疫苗，Anna 迅速回覆指“他接种过一剂莫德纳。”
 
-微软与中共政权的紧密关系，并没有阻止中共黑客一而再地侵入该公司的系统，偷取数百万美国公民的敏感数据。周一，微软表示一个中共黑客组织正在攻击它的系统。同样是该组织发动了对SolarWinds(一家美国软件开发公司)的黑客攻击，这次攻击从多个政府部门获取了敏感的联邦信息。今年早些时候，微软首席科学家向美国国会报告说，“中共在国内对人工智能（AI）的使用，对于世界上任何一个珍视个人自由的人来说，都是一个让人不寒而栗的先例。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Anna-Sahrling-Hamm.png)
 
-今年3月份，在中共黑客对微软系统进行了严重破坏的两天后，微软宣布将扩大其在中共国的云计算服务。
+根据资料，Jesse Hamm 早在十几岁的时候就出版了他人生的第一部漫画，自 1990 年代以来，他一直活跃在漫划界，同时与许多大牌公司都有合作，包括漫威、DC 漫画和俄勒冈州的黑马漫画。
 
-简评：
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-05-13-at-4.32.25-AM-min.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-05-13-at-4.32.10-AM-min.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-05-13-at-4.31.45-AM-min.png)
 
-为了能扩大在中共国的业务，捞取丰厚利润，微软竟然把新冠病毒的始作俑者中共，吹捧成应对新冠疫情的全球领导者，实在是毫无罪恶感和羞耻感。
 
-中共应对新冠疫情都干过什么——隐瞒新冠病毒来源。武汉疫情期间，对于新冠感染者，或者拉你去方舱医院隔离，或者用木板、焊条把你封死在自家屋内。数据方面，新冠病毒的感染人数、死亡人数向公众隐瞒；新冠疫苗对人的副作用继续向大家隐瞒。这种粗暴的、懦弱的、根本不负责任的应对疫情方式，也可以拿来吹嘘：领导世界？
-
-中共国的人力资源由中共任意支配，贪婪的高科技公司又为虎作伥，老百姓苦不堪言。呼唤同胞独立思考，为自己及子孙后代争自由。
-
-原文链接: [https://freebeacon.com/national-security/microsoft-exec-says-china-leads-the-world-in-pandemic-response/](https://freebeacon.com/national-security/microsoft-exec-says-china-leads-the-world-in-pandemic-response/)
-
-翻译/简评：乡间小路
-
-PR：Julia Win
+他的最新作品“植物大战殭尸第 18 卷：建筑故事”原定在两个月后发售，可惜，他等不到那一天了。许多粉丝、朋友和同业都纷纷在网上留下了对他哀悼及不舍。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗_0-2.jpg)
+来源｜[个案061](https://twitter.com/ASahrlingHamm/status/1392509511525568517)
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//｜//[美国 39 岁女医护接种疫苗4日后死亡](https://gnews.org/zh-hans/1625214/)//｜//[美国 56 岁男医生接种疫苗两周后死亡](https://gnews.org/zh-hans/1629915/)//｜//[德国 32 岁心理学专家接种疫苗12日后死亡](https://gnews.org/zh-hans/1636096/)//
 
  
 

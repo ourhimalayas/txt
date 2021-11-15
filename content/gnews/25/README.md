@@ -2,28 +2,31 @@
 ---
 
 
-## 波兰白俄罗斯边境 难民突破封锁线
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666368/)
+## 国会利用班农事件转移拜登外交政策的失败
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666469/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/11/454.jpg)（图片来源于本文链接）
-波兰警方称，周六夜间(11月13日)、周日凌晨，至少有一个大约50人的群体突破了Dubicze Cerkiewne村附近的封锁线，闯入了波兰境内。警方目前捕获了其中的22人。而在Kolonia Klukowicze附近，一个更大的群体也试图突破封锁线，但是没有成功；波兰边防警察则遭到试图闯关的难民投掷石块，一名警员因此受到轻伤。
+作者：英国喜庄园 – I770775
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月14日，针对班农先生被指控藐视国会事件，前海军上将福林将军在接受福克斯塔克采访时指出，这是一出政治闹剧，旨在转移人们的关注焦点。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-37.jpg)
+福林将军说，目前有关调查 1 月 6 日国会暴动的新闻，已取代了有关拜登政府外交政策失败的消息，例如阿富汗撤军和南部边境非法外国人激增等。
 
-波兰边防部门通报指出，11月13日全天，总共发生了223起试图非法越境的事件。在边境地区，警方捕获了4名“蛇头”嫌疑人，他们当时正在带领难民前行。据悉，其中两名嫌疑人为格鲁吉亚公民，还有两名则分别来自波兰和叙利亚。目前，波兰和白俄罗斯当局都对援助组织以及新闻媒体封锁了边境地区，因此两国当局发布的消息都无法获得第三方独立消息源的核实。最近几个月来，数以千计的中东、非洲难民飞往白俄罗斯，试图从该国跨越边境进入立陶宛、波兰等欧盟国家。在白俄罗斯与欧盟的政治拉锯背景下，这些难民被困在了边境区域，迄今至少已有9人丧生。目前，边境地区的气温已经降至0度左右。欧盟方面指责白俄罗斯主动在中东、非洲等地招徕难民，并利用难民作为施压筹码。而白俄罗斯总统卢卡申科则驳斥了上述指责。
+弗林将军强调，尽管有非常确凿的中共病毒证据，以及其背后的阴谋等一系列与之相关的事实，但是中共勾兑美国内部势力，通过操纵大媒体传播传票之类的事情，以确保他们每天都能转移美国人的视线，使美国民众无暇顾及对中共病毒和疫苗真相的追寻。
 
-欧盟与白俄罗斯之间的政治纠纷始于去年的白俄罗斯大选。当时，该国反对派指控卢卡申科涉嫌严重的大选舞弊，欧盟方面也宣布不承认卢卡申科的胜选连任，并出台了一系列针对性制裁措施。今年早些时候，白俄罗斯当局强迫一架从欧盟成员国希腊飞往欧盟成员国立陶宛的民航客机在明斯克降落，旋即逮捕了搭乘该航班的一名反对派人士，进一步加剧了双方之间的政治危机，欧盟随后加强了制裁。
+参考链接：[#福林将军 #观点](https://gettr.com/post/pgxa7cce64)
 
-现在，边境难民危机正在促使欧盟考虑进一步的制裁措施。东欧地区的多个国家担心，这场危机甚至有可能引发军事冲突。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-信息来源：
+总编/编辑：文特
+校正/发稿：Fei797
 
-[波兰白俄罗斯边境:难民突破封锁线](https://www.dw.com/zh/%E6%B3%A2%E5%85%B0%E7%99%BD%E4%BF%84%E7%BD%97%E6%96%AF%E8%BE%B9%E5%A2%83%E9%9A%BE%E6%B0%91%E7%AA%81%E7%A0%B4%E5%B0%81%E9%94%81%E7%BA%BF/a-59814954)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

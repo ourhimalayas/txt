@@ -2,32 +2,41 @@
 ---
 
 
-## 中共病毒导致2.5万吨塑料垃圾流入海洋
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666645/)
+## 台湾3日内出现10例完整接种疫苗后仍感染中共病毒案例
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1666730/)
 
-作者：美东香草山农场 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-一项最新科研报告发现，超过2.5万吨与中共病毒大流行有关的塑料垃圾被释放到海洋中，加剧了已经失控的全球塑料垃圾问题。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-15-下午10.44.11.png)
-该研究指出，大部分的塑料垃圾是来自于医院，源于大量个人防护与医疗废物的管理与处置不善。释放的塑料垃圾可以在海洋中长距离漂移，可能导致海洋野生动物受伤害甚至死亡。
+#### **撰稿：**日本东京方舟农场 Kevin wang
 
-有研究指出，到2030年，塑料的生产在温室气体排放方面将超过煤炭。中共病毒造成的全球环境危机时刻威胁着人类的未来。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/AE37AA58-1947-4542-8554-05036F1BC6EC.jpeg)（图片来自半岛新闻）
 
-参考链接：[Research Study: Pandemic Put 25K Tons of Plastic in Ocean](https://www.newsmax.com/us/plastic-environmental-covid-19-ocean/2021/11/08/id/1043836/)
+台湾继11月11日一日内增加6例完整接种疫苗后仍感染中共病毒的案例后，11月14日又新增4例相同案例。截至目前，短短三日内，此类案例已达10例。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+据《苹果新闻网》11月14日报道，台湾中央流行疫情指挥中心14日公布，国内新增8例中共病毒确诊病例，均为境外输入，其中有4例属完整接种疫苗后仍感染病毒案例。
 
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：呼吸的雾霾（文小呼吸）
+报道称，案例16591曾于10月中旬在印度尼西亚打完2剂中共国科兴疫苗；案例16594于10月在印度尼西亚打完2剂辉瑞疫苗；案例16595于8月中旬在马来西亚打完2剂科兴疫苗；案例16597于9月初在印度尼西亚打完2剂科兴疫苗。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+几日前，《苹果新闻网》还曾报道过， 台湾中央流行疫情指挥中心医疗应变组副组长罗一钧在11日下午的记者会上表示，在当日新增的九例感染者中有六例均已完整接种过疫苗。
+
+截至目前为止，台湾在三日内已出现了10例完整接种疫苗后仍感染中共病毒案例。
+
+注：本文仅代表作者观点
+
+*参考链接：*
+
+1. [*https://tw.appledaily.com/life/20211114/DSY3LAO7CFGH7PMRM2SPRPF4OI/*](https://tw.appledaily.com/life/20211114/DSY3LAO7CFGH7PMRM2SPRPF4OI/)
+2. [*https://tw.appledaily.com/life/20211111/3AMHHRV7GBH4RFTEFAGOBXM5VU/*](https://tw.appledaily.com/life/20211111/3AMHHRV7GBH4RFTEFAGOBXM5VU/)
+
+
+* * *
+
+
+```
+素材采编：Kevin wang
+编辑：青衣青青
+发布：miumiu
+```
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

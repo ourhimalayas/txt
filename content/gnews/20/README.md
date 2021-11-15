@@ -2,25 +2,32 @@
 ---
 
 
-## 扬言打脸未接种疫苗者的心脏科医师在注射加强针后离世
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1666402/)
+## 恒大将引爆中共房地产业雪崩
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666537/)
 
-翻译：Gradient Boost
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月14日，郭文贵先生在大直播中透露，两周之内，恒大就会宣布破产。恒大已经成立了清算委员会，或者债务处理委员会，低调启动企业破产程序。随着恒大的破产，融创、富力、合生创展、碧桂园等中共房地产企业也会纷纷倒闭。中共房地业一定会雪崩式的崩塌。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-25.jpg)
+郭先生着重指出，中共房地产行业的崩溃式破产，是由习近平一手操纵的，目的是让美国的7万亿美元投资，欧洲的十几万亿，通通血本无归，搞垮美国经济和世界经济，为下一步攻打台湾创造机会。
 
-评论：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2021/11/009-scaled.jpg)图片来源：Pexels免费照片素材库；摄影：RF.\_.studio
-一位52岁的心脏病学医师在接种疫苗加强针后死亡，这位医师曾在今年多次贬低拒绝接种疫苗的人士。这位名为Lutchmedial的医师在今年的1月16日注射了第一针疫苗，随后多次在社交媒体上对未接种疫苗人群展现出蔑视的态度。就在上个月初，他发推提倡对未接种疫苗者采取暴力手段，并称自己“想要一拳打在未接种疫苗者的脸上。”
+最后，郭先生充满信心的表示，中共的这些手段，只会促使各国更快承认新中国联邦，加速中共的灭亡，加速喜币和G系列的升值。对新中国联邦是绝对利好的消息。
 
-这位Lutchmedial医生曾积极在社交媒体平台倡议对未成年人施打疫苗，例如12岁青少年群体群体——他在推文中称疫苗注射“毫无疑问是安全的”。然而当他在10月24日进行第三次加强针注射过后，经过大约两周的时间，他便于11月8日在睡眠中突然离世。而这一结果，笔者认为毫无疑问与他所大力鼓吹的中共病毒疫苗有绝对性的关联。
+参考链接：[2021年11月14日文贵大直播：香港大陆及世界股市；喜币迎接金融大转变；疫苗灾难台湾房地产；新中国联邦机会何在；班农被司法部起诉的意义；全球金融危机及G系列生态圈](https://gtv.org/video/id=61910d9be7e770379234d270)
 
-我们不清楚Lutchmedial医生是否真的曾像他在推特里所说的那样，用他的拳头揍过拒绝注射疫苗的意见不同者。不幸的是，我们现在可以肯定，他最终自己扇了自己一巴掌。今年上半年，他曾在推特上表示：“我们在生前所做的99.999999%的决策与行为，在我们离世之后对我们来说都毫无意义和价值。”你可以把这当成一种讽刺，也可以将之当成一种预言，然而不论如何，很遗憾这位医生以这等方式警醒人们：疫苗有危险，而且能致命，即便你支持疫苗，毒针也不会对你有半点心慈手软。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-（文章内容仅代表作者观点，与Gnews平台无关）
+总编：文真
+编辑：Ivy001
+校正/发稿：Fei797
 
-新闻参考链接：
-
-[Health Impact News](https://healthimpactnews.com/2021/cardiologist-medical-doctor-who-wanted-to-punch-anti-vaxxers-in-the-face-dead-after-covid-booster-shot/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

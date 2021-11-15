@@ -2,29 +2,36 @@
 ---
 
 
-## 辉瑞公司首席执行官的妻子因接种疫苗引发的并发症而去世
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1666673/)
+## 班农先生被司法部起诉的意义
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666751/)
 
-By 意大利罗马达芬奇农场 – 袅袅小队长
+作者：美东香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在11月14日的大直播中透露，早在一个多月以前，他就告知班农先生，中共勾兑美国内部势力，借“1月6日国会大厦暴动事件”调查，通过司法程序起诉他。
 
-马瑞安.布尔拉（Myriam Bourla），现年48岁，是辉瑞首席执行官阿尔伯特·布尔拉（Albert Bourla）的妻子，据马瑞安.布尔拉的医生称，她于周三（11月10日）早些时候死于注射 COVID-19 疫苗的并发症。马瑞安.布尔拉（Myriam Bourla）被护理人员送入在纽约长老会劳伦斯医院，并在医院的急诊室去世，死因被列为由辉瑞疫苗引发的并发症。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2-6.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/截屏2021-11-12-23.13.30-2-1.jpeg)图片左：马瑞安.布尔拉
+中共盲目自大地认为，通过对美国两党和司法的渗透，可以控制美国的政治。班农先生被起诉，使美国人，特别是保守派，看到中共对美国共和党的威胁，对美国选举自由的威胁。从而使美国官方更严肃地重视新中国联邦，加紧保护和承认新中国联邦。
 
-马瑞安.布尔拉（Myriam Bourla）和她的丈夫住在纽约市郊的斯卡斯代尔区。布尔拉与很多一样对她丈夫的注射实验性疫苗表示怀疑，最初拒绝接种。在接受 Scarsdale 10583（当地的社区新闻网站） 采访布尔拉时，她表示虽然她为丈夫所做的工作 “感到自豪”，但她最初拒绝接种疫苗，称 “还没有轮到她”。
+班农先生被起诉，还意味着，美国媒体的大重启。美国严肃媒体，诸如福克斯、华尔街日报等，回避疫苗灾难问题，原因是百分之五十至七十的广告费来自大药厂。这些媒体同样一致地封杀班农事件，是因为大药厂和传统媒体背后有共同的老板。
 
-她曾说：“我只是想传达我为我的丈夫和他所做的工作感到非常自豪。我也为人类和疫苗带给世界的希望感到高兴。我还没有接种疫苗，因为还没有轮到我。”
+班农先生将新中国联邦创始人、宣言人的身份，视作他一生最大的荣耀。中共的疯狂，让美国两党都感受到威胁。班农先生是美国建国以来，自华盛顿后，因国会调查被起诉的人。班农先生无疑会成为美国政治的教父。班农先生作为新中国联邦成立的宣言人，成为世界焦点，成了美国政治风向标，受益者一定是新中国联邦。
 
-许多人据此认为，这一声明表明马瑞安.布尔拉和许多人一样，对未经充分测试的疫苗持怀疑态度。
+参考链接：[2021年11月14日文贵大直播](https://gtv.org/video/id=61910d9be7e770379234d270)
 
-新闻来源：
-[Wife of Pfizer’s CEO dies after complications from the vaccine](https://www.conservativebeaver.com/2021/11/10/the-wife-of-pfizers-ceo-dies-from-complications-from-the-vaccine/)
-[Wife of Pfizer CEO Has Not Had the Vaccine Yet Because She Says, “It’s Not My Turn”](https://scarsdale10583.com/section-table/30-neighborhood-news/8766-wife-of-pfizer-ceo-has-not-had-the-vaccine-yet-because-it-s-not-her-turn)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-* * *
+总编：文真
+编辑：Ivy001
+校正/发稿：谐趣园
 
-校对/上传：阿娜意大利
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,32 @@
 ---
 
 
-## 美医疗集团与其雇员达成临时协议
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1666607/)
+## 中共病毒导致2.5万吨塑料垃圾流入海洋
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666645/)
 
-采编：青青， 编译撰稿：文明(添草灭共)
+作者：美东香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+一项最新科研报告发现，超过2.5万吨与中共病毒大流行有关的塑料垃圾被释放到海洋中，加剧了已经失控的全球塑料垃圾问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-15-下午10.44.11.png)
+该研究指出，大部分的塑料垃圾是来自于医院，源于大量个人防护与医疗废物的管理与处置不善。释放的塑料垃圾可以在海洋中长距离漂移，可能导致海洋野生动物受伤害甚至死亡。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-35-edited.jpg)图片来源：reuters
+有研究指出，到2030年，塑料的生产在温室气体排放方面将超过煤炭。中共病毒造成的全球环境危机时刻威胁着人类的未来。
 
+参考链接：[Research Study: Pandemic Put 25K Tons of Plastic in Ocean](https://www.newsmax.com/us/plastic-environmental-covid-19-ocean/2021/11/08/id/1043836/)
 
-据【路透社】11月13日报道，美国【凯撒医疗集团】与代表该集团5万名医务人员的[工会联盟]在当天达成了一项《临时劳工协议》，从而取消了该工会联盟原定于15日的全国罢工计划。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-[凯撒医疗集团]是美国最大的卫生网络和管理性医疗机构。此前，由于计划对其新员工实行两级工资标准，而遭到俄勒冈州、加州等七个州的该集团数千名包括：注册护士、药剂师、助产士等员工的反对。因此，[工会联盟]决定将在本月15日举行罢工，以表达对人力资源不足及削减新员工薪水计划的不满。
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-为此，[工会联盟]指出，当局实行的“两级工资制度”会进一步加深目前“新冠病毒”疫情下的人员配置危机。并提出了一份新的为期四年，包括每年工资增长额度以及保持员工健康福利等措施的工资协议。同时强调，该协议不仅会为病人提供安全的人员配置及医疗服务，也将保障每位工会成员拥有公平的工资和福利。
-
-简评：
-
-在美国及其他民主体制的国家，“工会组织”一般是民间自主组建和自愿参与。 其职责是代表普通工人的意愿并为之争取权益，往往是和资本方及政府“唱对台戏”的。在社会上已经形成一股强大的政治力量，对工会提出的诉求包括某个工人个案的劳资纠纷，任何资本大佬乃至政府部门都不敢怠慢。
-
-而中共国的所谓“工会”组织都被政府牢牢掌控，例如区(县)级工会、市级工会、省级工会、全国总工会这些都是官办性质，是政府派出的行政部门，它的“工会主席”由同级政府任命，纳入公务员干部编制管理，他们的工作除了维稳就是粉饰太平；国企及行政事业单位的工会组织结构与之类似；至于民企的工会组织，必须在辖区政府工会的指导下设立才予以认可。
-
-在墙内，关于工会活动的新闻报道通常是组织了某某文体活动，比如书画文艺展览比赛、“红色”旅游等方面，维护工人权益的内容罕见。可见中共统治下从来就没有真正代表工人阶级立场的工会组织，只有花瓶的“伪工会”！
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://www.reuters.com/business/healthcare-pharmaceuticals/kaiser-permanente-averts-strike-reaches-deal-with-us-healthcare-workers-2021-11-13/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
