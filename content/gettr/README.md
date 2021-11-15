@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/15/2021 4:23 PM (UTC)`
+
+11月15号：尊敬的战友们好，全世界都在准备着……共产党擀面杖子的虚假经济．即将崩塌，而准备各自的经济大逃亡……
+![img](https://media.gettr.com/group49/getter/2021/11/15/16/23/8c27ef50-aa7e-fc69-e1af-4efebcef4492/out.jpg)
+
+---
+
 `@miles 11/15/2021 3:32 PM (UTC)`
 
 11月15号：这是真的吗？<br/><br/>【辉瑞公司首席执行官阿尔伯特.波拉11月9日声称，传播疫苗错误信息的人（反对疫苗）是罪犯，他们正在造成生命的损失。第二天（<br/>11月10日）早上他的太太被送入纽约长老会劳伦斯医院的急诊室后死亡。保守派比弗网站报道， 根据辉瑞公司总裁太太的医师的消息，死因是辉瑞公司疫苗的并发症。<br/><br/><br/>在阿尔伯特的妻子去世后，他们要求保护隐私。法官已经批准了临时的媒体封锁。所有美国大媒体都没有报道这件事情。在网上通过搜索得到几个自媒体的报道，包括非右派的自媒体。保守派比弗的总部在加拿大，不受法官裁决的约束】<br/><br/>https://www.conservativebeaver.com/2021/11/10/the-wife-of-pfizers-ceo-dies-from-complications-from-the-vaccine/
@@ -288,13 +295,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 11月10号：这是真的吗？这太龌龊了吧！【据了解黄喝便的哥们介绍：约2005、2006年他移民到加拿大，没什么工作，烂房子，出租房子每月收入几百加币，卖点陶瓷之类。后来买了房子，从中共国带了一些钱，开了个“中国艺术品商店“。他原来的老婆漂亮、细腰，很招惹男人，被一个东南亚的男人给包了。黄绿帽子戴得受不了，离婚了。女儿判归他。在往返中共国的飞机上，他忽悠了一个年轻女人，小他二十多，在日本念的博士。他女儿跟小太太天天打架，家里鸡犬不宁。小太太又生了个女儿，和他大女儿水火不容。小太太逼他去法庭起诉，把大女儿改判给了前妻。黄是独子，父亲去世后，他帮母亲移民到加拿大，小太太和小太太的妈不容黄母，母女俩和黄母打架，闹得鸡犬不宁。黄只能另租房子让母亲住。小太太不许黄去看他母亲，他就不敢去。他非常惧内，小太太甚至不让他上床睡觉。后来黄只好把母亲送回了中共国。他非常依赖共产党，在2012年之前就完全听命于中共。】
 ![img](https://media.gettr.com/group4/getter/2021/11/11/01/28/daada306-bc17-bdad-5617-00c88053da51/a111de72af60407f22d8d5d9818f940c.jpg)
-
----
-
-`@miles 11/11/2021 1:27 AM (UTC)`
-
-11/10/2021 Miles Guo: The internal report from the 6th Plenary Session revealed the so-called “cultural survey” conducted by the CCP. The survey results show that the Chinese people have been rated as the most unpopular in the world for 17 consecutive months and are faced with grave situations such as exclusion of the Chinese, and anti-Chinese sentiment and hatred. The Whistleblowers’ Movement and the New Federal State of China only seeks to take down the CCP, and we’re not anti-China/Chinese<br/><br/>11/10/2021 文贵直播：中共六中全会内部报告惊爆中共所谓的“文化调查”，结果显示中国人连续17个月被列为全球最不受欢迎的人，面临排华、反华、厌华的不利局面。爆料革命、新中国联邦只灭共，不反华。<br/>
-![img](https://media.gettr.com/group41/getter/2021/11/11/01/27/76a83e63-ddcf-b924-f7c6-7e837c987b3b/out.jpg)
 
 ---
 
