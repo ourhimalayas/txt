@@ -2,24 +2,50 @@
 ---
 
 
-## 中共病毒灾难带给人类的诸多影响才刚刚开始
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1665131/)
+## 19岁女孩被迫接种疫苗后出现严重健康问题
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1665188/)
 
-#### 撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-31.png)（图片源自本文链接）
-11月15日共同社报道：明治安田人寿保险公司11月15日宣布的一项调查结果显示，2019年10月以后结婚的新婚夫妇中，有58.8%没有举行婚礼。这几乎占了非新婚夫妇（20.4%）的三倍，这个结果反应了中共病毒灾难带给热恋夫妇的影响。
+作者：东京方舟农场 – 冰糖葫芦喵
 
-这项调查是为了配合11月22日的“好夫妻日”，于10月12日至15日期间在网上进行的，有1620名20多岁至70多岁的人参加了回答。因中共病毒蔓延而指定的各种的限制也影响了蜜月旅行，68.8%的新婚夫妇表示他们没有新婚旅行。
 
-由于三浦友和和山口百惠已入选名人堂，本期理想的名人夫妇首次由Hiromi（ヒロミ）和松本伊代登顶。
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-[新婚夫婦の6割が式挙げず　コロナ影響、明治安田生命調査](https://news.yahoo.co.jp/articles/103858ef068ecdab28f3fc35dc3c21d7dab43b05)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+
+11月13日，美国一家媒体发布了一位19岁女孩被迫接种疫苗后躺在医院的视频。
+
+从视频中我们得知，这个女孩原本身体健康、充满活力。但在疫苗强制令发布以后，到处都有一种“不接种疫苗，就没有工作”的气氛，不接种疫苗的人被很多公共场合拒绝进入，并被很多人指责为“自私”。为了保住工作，不被视为异类，这个女孩决定碰碰运气，于是在10月份接种了辉瑞疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-6.jpg)
+但是接种疫苗后，女孩感觉自己像跑完马拉松一样非常疲惫，医生则在她的腿部和肺部发现了大量的血块。目前，她不得不仍然在医院里接受治疗，正常生活完全被毁。
+
+参考链接：
+[Pfizer Jab EXPOSED: Healthy 19 Teen Coerced Into Submission, Now Fighting Tyranny From Hospital Bed \[VIDEO\]](https://www.redvoicemedia.com/2021/11/pfizer-jab-exposed-healthy-19-teen-coerced-into-submission-now-fighting-tyranny-from-hospital-bed-video/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：飞虹
+编辑：文特
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

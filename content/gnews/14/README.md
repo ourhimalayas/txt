@@ -2,38 +2,26 @@
 ---
 
 
-## 澳洲球员亚姆·琼斯被迫结束职业生涯
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1665044/)
+## 俄克拉荷马州国民警卫队新任指挥官拒绝接受疫苗任务
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1665092/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/足球.png)图片来源 carltonfc
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-64.png)
+图片来源：网络截图
 
+据零对冲11月14日报道，陆军准将托马斯·曼奇诺于2021年11月11日发布命令，停止俄克拉荷马州陆军和空军国民警卫队强制注射中共病毒疫苗。该命令是在他被突然任命为该州的最高将军不到24小时的时间里发出的，也是在上诉法院维持对拜登的私营企业的强制疫苗要求暂缓执行的前一天，这对拜登政府无疑又是一个打击。
 
-**翻译：Lish
-编辑：MSGZ**
+曼奇诺上任的第一件事就是签署一份备忘录正式取消了对国民卫队的中共病毒疫苗要求。备忘录写道：俄克拉荷马州的国民卫队不会被要求注射中共病毒疫苗，在不被联邦政府动员的情况下，州长斯蒂特是部队的“合法总司令”，并且不会对拒绝接种中共病毒疫苗的卫兵采取负面的行政或法律行动。
 
-（澳洲）卡尔顿足球队后卫利亚姆·琼斯（Liam Jones）在被发现未接种中共病毒疫苗的几天后，选择了结束他在（AFL）的职业生涯。这位30岁的球员与AFL签订的合同到2022才截止，他决定退出的理由是出于 “个人原因”。
+当要求到评论时，五角大楼说他们将对该备忘录做出 “适当 ”的回应，并强调了奥斯丁部长愚蠢的认为一支接种过疫苗的部队是一支更有准备的部队。
 
-琼斯在卡尔顿周日发布的一份声明中说：“我希望我从澳大利亚足球联盟退休的决定能立即生效，我想借此机会感谢所有在我的旅程中支持我的人，无论是个人还是职业。我热爱这赛场，我会想念我的队友们。”
+斯蒂特此前曾要求国防部不要对该州的陆军和空军国民警卫队成员强制执行这一任务。据《陆军时报》报道，在曼奇诺引用的11月2日的一封信中，斯蒂特说，该州10%的部队拒绝接种疫苗，而且这项任务是 “不负责任的”。
 
-根据AFL的疫苗接种时间表和维多利亚州政府的疫苗强制任务，男子球员必须在11月26日之前打完第二针，才能继续参加他们俱乐部的项目。琼斯在12个赛季中为卡尔顿和西部斗牛犬队打了161场比赛。他本应在12月6日回到蓝军的训练中。卡尔顿队足球主管布拉德·洛伊德（Brad Lloyd）表示，琼斯为此决定已经权衡了一段时间。
+尽管国民警卫队在没有被五角大楼动员时确实属于他们的州长，但是联邦的要求往往取代了州政府对警卫队的任何使用。这是因为国民警卫队的绝大部分资金、训练和装备都来自联邦政府。目前还不清楚该命令是否会危及这些资金。
 
-洛伊德说：“最近几个月，我们一直在与利亚姆进行沟通，并给他足够的时间来对他的球员生涯做出明智的决定。利亚姆今天（周日）向我们确认，他已经做出了退役的决定，而且他希望这个决定的具体原因能够被保密。作为一个俱乐部，我们将尊重这一点”。
+斯蒂特政府相信他们有权力藐视拜登政府，正如最高发言人查理·汉尼玛告诉《陆军时报》的那样，“俄克拉荷马州因未遵守第32条规定而丧失任何联邦资金的唯一途径是无视双方选举产生的文职当局，即俄克拉荷马州州长的合法命令。”
 
-在经历了职业生涯起初的不稳定后，琼斯近年来在蓝军的后防线上获得了强劲的表现。在新教练迈克尔·沃斯（Michael Voss）的带领下，他被塑造成了下个赛季打破不能进入总决赛的重要球员。
-
-在琼斯发出退役呼吁之前，阿德莱德足球俱乐部的首要球员丹尼·瓦恩哈根（Deni Varnhagen）因为反疫苗的立场而在本月早些时候被移至该俱乐部的非活动名单。与从事注册护士工作并直言不讳的瓦恩哈根不同，琼斯没有公开谈论过自己的观点。
-
-利亚姆·琼斯说：“我希望人们尊重我的决定和隐私，我本人或我的管理团队都不会对此事发表任何进一步评论”。
-
-原文链接：[AFLW Crow ruled out of season after refusing vaccine | The New Daily](https://thenewdaily.com.au/football-2/2021/11/05/deni-varnhagen-aflw-covid-vaccine-unlisted/)
-
-***发布：Candy***
-
-更多资讯，请关注：[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Oklahoma National Guard ‘Goes Rogue’ After New Commander Rejects Vaccine Mandate; Pentagon To Respond ‘Appropriately’](https://www.zerohedge.com/covid-19/oklahoma-national-guard-goes-rogue-after-new-commander-rejects-vaccine-mandate-pentagon)
 
  
 

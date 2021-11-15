@@ -2,23 +2,22 @@
 ---
 
 
-## FBI被黑客并发出10多万封垃圾电子邮件流出
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1665075/)
+## 韩国老龄化增速是日本的2倍，养老金是日本的一半
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1665155/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-25.png)
-图片来源： [http://news.sina.com.cn/](https://news.sina.com.cn/)
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-70.jpg)[图片来源](https://www.cignacmb.com/d/file/20210109/091e267edcf316cf67988b13666601b4.jpg)
+据中央日报11月15日报道，韩国65岁及以上的老年人口在过去10年中，平均每年增长4.2%，是日本老龄化速度（2.1%）的两倍。以单个家庭为单位，韩国每月领取的养老金数额为82.2万韩元（约8万日元），这只是日本的50.4%。
 
-零对冲网11月14日报道，黑客周六侵入美国联邦调查局（FBI)电子邮件系统，并利用该系统发送10多万封拉圾电子邮件警告可能的网络攻击，据路透社消息，这是该社引用的FBI和安全专家的原话。
+韩国的老年人口比例在2020年为15.7%，预计在2024年将上升到19.2%，并在2045年达到37.0%，超过日本（36.8%），成为经合组织中老年人口比例最高的国家。政府称老年人的贫困问题令人担忧，必须提高就业市场的灵活性，强化年金的保障机能。
 
-这些假电子邮件是从FBI的正式地址@ic.fbi.gov发出的，还不清楚黑客多少次或多少个黑客进入FBI系统，但是这些拉圾电子邮件显示很奇怪的样式标示有文尼·特洛伊（夜狮安全总裁）的名字，这个夜狮安全今年1月份发布了黑暗不死之王黑客组的研究。
+信息来源：
 
-据全国广播电台公司新闻，该黑客以美国国土安全部网络危险检测和分析组签入，该组至少有二年不工作了。
+[韓国、高齢化ペースは日本の２倍、年金受領額は半分](https://news.yahoo.co.jp/articles/cb9e710571fc87095f39cbd3c5614da79786faf9)
 
-据欧洲的反拉圾邮件专门机构的研究者亚沥克斯·格罗斯让说这些垃圾邮件事实上从FBI的服务器出来的，接收者是公共的网站管理员，FBI和网络安全部及基础建设安全部门(CISA)证实了此次泄露。
-
-##### **新闻来源： **[FBI Hacked, Over 100K Emails Sent From Official Address](https://www.zerohedge.com/technology/fbi-hacked-over-100k-emails-sent-official-address)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

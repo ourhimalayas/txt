@@ -2,22 +2,31 @@
 ---
 
 
-## 韩国老龄化增速是日本的2倍，养老金是日本的一半
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1665155/)
+## 有声|日本防疫措施放宽拟取消活动人数上限
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1665198/)
 
-#### 撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-70.jpg)[图片来源](https://www.cignacmb.com/d/file/20210109/091e267edcf316cf67988b13666601b4.jpg)
-据中央日报11月15日报道，韩国65岁及以上的老年人口在过去10年中，平均每年增长4.2%，是日本老龄化速度（2.1%）的两倍。以单个家庭为单位，韩国每月领取的养老金数额为82.2万韩元（约8万日元），这只是日本的50.4%。
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
 
-韩国的老年人口比例在2020年为15.7%，预计在2024年将上升到19.2%，并在2045年达到37.0%，超过日本（36.8%），成为经合组织中老年人口比例最高的国家。政府称老年人的贫困问题令人担忧，必须提高就业市场的灵活性，强化年金的保障机能。
 
-信息来源：
+11月12日，在日本政府即将出台的中共病毒疫情对策中，对民众放宽了行动限制，提出都、道、府、县安全计划，取消大型活动的人数限制。即使今后再度发布紧急状态，如果能利用“提交疫苗接种证明，或者检测阴性证明均可”的机制，就允许该活动放宽至可容纳人数的100%，同时餐饮店的人数限制也将取消。
 
-[韓国、高齢化ペースは日本の２倍、年金受領額は半分](https://news.yahoo.co.jp/articles/cb9e710571fc87095f39cbd3c5614da79786faf9)
+据悉，日本政府最快将在本月19日咨询专家，修改目前作为防疫对策指针的“基本应对方针”，争取在下一步，有关民众跨都、道、府、县的旅行或者出差，即便在紧急事态下，当事人只要提供疫苗接种证明或者检测阴性证明，都会被政府同意放行。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+文字版原文：[日本防疫措施放宽拟取消活动人数上限](https://gnews.org/zh-hans/1663878/)
+
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
