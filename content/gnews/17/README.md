@@ -2,34 +2,34 @@
 ---
 
 
-## 国际要闻汇编11月15日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1665323/)
+## 针下亡魂｜美国 45 岁知名漫画家接种疫苗后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1665474/)
 
-素材：东京樱花团丨GNEWS组
-![](https://lh3.googleusercontent.com/l6LxdcuhYOenuoldPFSJxRhijIvLbBMabfobNURrRu_MdTWAhum9oFa6N78IFWOdBR6zDnCYqerDrqQCgcxi9hCHnkalw2PjEh-rpeRfMgKORmruD7lDKlmPOdcW9P3u8RIbgucj)[图片来源](https://www.aboluowang.com/2021/1115/1671864.html)
-1、[**民调显示拜登的支持率再创新低**](https://www.aboluowang.com/2021/1115/1671864.html)
+**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 15/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-根据华盛顿邮报和ABC电视台进行的民调显示，超过一半美国人不赞同拜登担任美国总统的施政。民调显示，41%的受访者支持拜登的工作，39%的人积极评价他在经济领域的工作，55%的受访者对他表示不满，47%的人支持拜登为抗击新冠疫情采取的措施，49%的人表示反对。35%的受访者表示，拜登担任总统10个月以来获得“很多”或者“足够”的成就，63%的人认为他的成就很少或者几乎没有。大约31%的受访者认为，拜登落实选前诺言，51%的人持反对意见。
+【美国】俄勒冈州一名 45 岁的漫画家Jesse Hamm 在接种莫德纳 COVID-19 疫苗后死亡。这一消息令整个漫划界大为震惊。
 
-2、[**美企业与资本助力中国芯片发展 美官员考虑封堵策略 **](https://www.voachinese.com/a/wsj-us-china-semiconductor-20211113/6311753.html)
+Jesse Hamm 的妻子 Anna 于 5 月 13日在 Twitter 上简单宣布了丈夫的死讯。她在该贴中特别指出，丈夫死于“肺部血凝块”，有网友在帖子下留言，询问 Jesse Hamm 是否已经接种过 COVID-19 疫苗，Anna 迅速回覆指“他接种过一剂莫德纳。”
 
-据华尔街日援引荣鼎集团的分析数据说，尽管美国政府对中国实施半导体技术出口管制，从2017年到2020年，美国风险投资公司、芯片技术公司和其他私人投资者参与了58起中国半导体行业的投资交易，比前四年增加了一倍多。美国官员正在考虑如何限制这一资金流动。美两党议员正在推动立法，审查美国的对外投资以及关键供应链和技术产业资源向中国和俄罗斯的流动。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Anna-Sahrling-Hamm.png)
 
-3、[**波兰总理拟就边界危机要求北约举行会谈**](https://www.voachinese.com/a/polish-pm-mulls-asking-nato-to-hold-talks-amid-border-crisis/6312881.html)** **
+根据资料，Jesse Hamm 早在十几岁的时候就出版了他人生的第一部漫画，自 1990 年代以来，他一直活跃在漫划界，同时与许多大牌公司都有合作，包括漫威、DC 漫画和俄勒冈州的黑马漫画。
 
-几个月来，白俄罗斯独裁政权一直在策划移民越过边界流入波兰、立陶宛和拉脱维亚正等欧盟三国，三个国家正努力处理与白俄罗斯在边境上的移民紧张对峙。周日（14日）波兰总理表示，波兰与立陶宛和拉脱维亚正在讨论是否根据《北约条约》考虑要求北约举行紧急会谈，该条约允许任何盟国在感到其领土完整、政治独立或安全受到威胁时请求进行磋商。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-05-13-at-4.32.25-AM-min.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-05-13-at-4.32.10-AM-min.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-05-13-at-4.31.45-AM-min.png)
 
-4、[**全球生产线由亚洲移往欧美 **](https://www.aboluowang.com/2021/1115/1671823.html)
 
-全球主要服装和鞋类公司不再“眷顾”亚洲制造业，目前正将生产线转移到更接近其美国和欧洲零售点的国家，原因正是为了避免早前越南和中国量大“世界工厂”受疫情反复而减产或停产的影响。西班牙时装零售商Mango表示，已加速在土耳其、摩洛哥和葡萄牙等国增加生产，并称计划明年显著扩大在欧洲本地制造的产品数量，美国鞋业零售商Steve Madden则表示，将50%的鞋类生产由中国转移到巴西和墨西哥，而橡胶洞洞鞋制造商Crox则从中国转移到印尼和波斯尼亚等国生产。位处欧洲南部巴尔干半岛的波斯尼亚，其今年上半年纺织品、皮革和鞋类的出口额为7.39亿马克(约34亿港元)，已高于2020年全年。
+他的最新作品“植物大战殭尸第 18 卷：建筑故事”原定在两个月后发售，可惜，他等不到那一天了。许多粉丝、朋友和同业都纷纷在网上留下了对他哀悼及不舍。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗_0-2.jpg)
+来源｜[个案061](https://twitter.com/ASahrlingHamm/status/1392509511525568517)
 
-5、[**美动物园3只雪豹罕见感染中共病毒死亡**](https://www.aboluowang.com/2021/1115/1671840.html)** **
+* * *
 
-美国内布拉斯加州林肯儿童动物园上周六（13日）表示，园内3只雪豹感染中共病毒后，出现并发症死亡。动物园表示会继续开放，并采取预防措施，防止民众或动物感染新冠病毒。美国其他动物园，包括在密苏里州圣路易斯动物园和科罗拉多州的丹佛动物园同样有动物染疫。
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//｜//[美国 39 岁女医护接种疫苗4日后死亡](https://gnews.org/zh-hans/1625214/)//｜//[美国 56 岁男医生接种疫苗两周后死亡](https://gnews.org/zh-hans/1629915/)//｜//[德国 32 岁心理学专家接种疫苗12日后死亡](https://gnews.org/zh-hans/1636096/)//
 
-*编辑：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

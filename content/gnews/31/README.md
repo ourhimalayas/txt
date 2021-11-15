@@ -2,22 +2,51 @@
 ---
 
 
-## 韩国老龄化增速是日本的2倍，养老金是日本的一半
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1665155/)
+## 澳洲上万民众抗议强制接种毒疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1665221/)
 
-#### 撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-70.jpg)[图片来源](https://www.cignacmb.com/d/file/20210109/091e267edcf316cf67988b13666601b4.jpg)
-据中央日报11月15日报道，韩国65岁及以上的老年人口在过去10年中，平均每年增长4.2%，是日本老龄化速度（2.1%）的两倍。以单个家庭为单位，韩国每月领取的养老金数额为82.2万韩元（约8万日元），这只是日本的50.4%。
+作者：英国喜庄园 – I770775
 
-韩国的老年人口比例在2020年为15.7%，预计在2024年将上升到19.2%，并在2045年达到37.0%，超过日本（36.8%），成为经合组织中老年人口比例最高的国家。政府称老年人的贫困问题令人担忧，必须提高就业市场的灵活性，强化年金的保障机能。
 
-信息来源：
 
-[韓国、高齢化ペースは日本の２倍、年金受領額は半分](https://news.yahoo.co.jp/articles/cb9e710571fc87095f39cbd3c5614da79786faf9)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+
+
+11月13日，大批澳大利亚人聚集墨尔本游行示威，反对维多利亚州的CCP毒疫苗强制接种。
+
+秘密翻译组报道称，当天，有成千上万的澳大利亚示威者聚集在墨尔本中央商务区，和平抗议维州政府新提出的大流行封锁权力和疫苗强制接种。示威者的长队从维多利亚州立图书馆一直延伸到春天大街的议会大厦。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.2-5.jpg)
+本次游行的起因是，澳大利亚政府借CCP病毒大流行，对其公民实施了严厉的封锁和疫苗强制措施。维州州长丹尼尔听命于该法案，以前所未有的权力在全州实施严格的封锁。
+
+这种无端剥夺人民自由的疫苗专权，让越来越多的澳洲人走上墨尔本街头，他们高喊“推翻法案”的口号，和平表达自己的不满。
+
+参考链接：
+[“杀死法案”-数千名澳大利亚人游行反对维多利亚州的中共病毒专权](https://gettr.com/post/pgwz8te353)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：文特
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

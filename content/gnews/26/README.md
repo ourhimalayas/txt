@@ -2,50 +2,46 @@
 ---
 
 
-## 澳洲上万民众抗议强制接种毒疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1665221/)
+## 新南威尔士州发出东海岸重大洪水警告
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1665281/)
 
-作者：英国喜庄园 – I770775
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/gm-2.jpg)
 
+**图片来源：ABCNews**
+编译报道：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+这几天持续的暴雨和狂风天气已袭击了维多利亚州的部分地区。周日，在重大洪水警告下，新南威尔士州一些地区的人们正准备逃离他们的家园。
 
+新州紧急服务局已敦促福布斯小镇——悉尼以西350公里——的8000多人准备在未来30小时内离开他们的家园，拉克兰河（水位）可能在周二达到10.55米，周三早上达到10.65米的大洪水（标准）。
 
+过去的五天里，考拉附近的拉克兰河上游集水区的雨量在100毫米到150毫米之间，怀安加拉大坝于周日溢水。
 
-11月13日，大批澳大利亚人聚集墨尔本游行示威，反对维多利亚州的CCP毒疫苗强制接种。
+新州水务局说，大坝接缝处正在破裂，水库容量达104%，但预计集水区没有进一步的降雨。
 
-秘密翻译组报道称，当天，有成千上万的澳大利亚示威者聚集在墨尔本中央商务区，和平抗议维州政府新提出的大流行封锁权力和疫苗强制接种。示威者的长队从维多利亚州立图书馆一直延伸到春天大街的议会大厦。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.2-5.jpg)
-本次游行的起因是，澳大利亚政府借CCP病毒大流行，对其公民实施了严厉的封锁和疫苗强制措施。维州州长丹尼尔听命于该法案，以前所未有的权力在全州实施严格的封锁。
+水务局警告说：“情况随时可能会发生变化，而且会迅速升级。”
 
-这种无端剥夺人民自由的疫苗专权，让越来越多的澳洲人走上墨尔本街头，他们高喊“推翻法案”的口号，和平表达自己的不满。
+周末，纳纳米镇发生了严重的洪水，从周一早上开始，拉克兰河沿岸的福布斯、科顿威尔和杰马隆可能会发生更多的洪水。
 
-参考链接：
-[“杀死法案”-数千名澳大利亚人游行反对维多利亚州的中共病毒专权](https://gettr.com/post/pgwz8te353)
+福布斯小镇当地人居民周日在他们低洼地区的房子周围堆放了沙袋。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+新州水务局公共信息官说，到目前为止，大约有6000个沙袋被用来加固福布斯镇的财产，今天有很自发的志愿者来帮助装沙袋。
 
-总编/编辑：文特
-校对/发稿：为真不破20
+从周五开始，到周日，新州水务局已经收到了96个求助电话。这些电话中的大多数都是关于求助沙袋的。
 
-**更多资讯，更多关注**
+目前纳纳米镇和福布斯镇的洪水规模预计与2016年9月的洪水相似。（当时）在拉克兰河水上涨到10.7米后，导致一人死亡，洪水使农作物绝收。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+新闻链接：[Major flood warnings NSW as east coast cops deluge (theaustralian.com.au)](https://www.theaustralian.com.au/news/major-flood-warnings-nsw-as-east-coast-cops-deluge/news-story/ced62639110322611808faa0cb18a1b3)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+发布：文泓
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
