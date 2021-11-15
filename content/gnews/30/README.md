@@ -2,50 +2,39 @@
 ---
 
 
-## 世界女子网球协会呼吁调查张高丽性侵事件
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1664701/)
+## 郭先生揭露《彭博社》报道的伪善性
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1664743/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：英国喜庄园 – I770775
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月13日，郭先生在盖特视频中，揭露了《彭博社》对郭先生和喜币的报道中，存在诸多“不写”和“不说”，充分展现了其伪善的嘴脸。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Z.jpg)worldnews.easybranches.com
-《一美新闻网》（OANN）转载《路透社》的报道，“世界女子网球协会（WTA，Women’s Tennis Association）呼吁调查彭帅的性侵指控”。【1】
+首先， 郭先生透露，写该报道的是位女性实习记者。虽然她在报道中有提到喜币已经有270亿美元的估值，但她 “就是不写” 喜币“有1千亿个币的额度”，也绝口不提喜币上市的技术是“所有的区块链技术最好的，包括它的系统”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-14.jpg)
+接着，郭先生指出，这位女记者“就是不写” 班农先生不仅与郭先生之间没有任何利益关系， 更是与喜币没有任何利益关系。
 
-全文如下：
+郭先生还指出了该记者一系列的“不写”和“不说”：
 
-世界女子网球协会巡回赛周日（11月14日）呼吁中共国政府调查彭帅对前中共副总理的性侵指控，同时要求结束对这位前双打顶级选手的审查。
+“她就是不写我们爆料革命揭露的关于中共腐败盗国的真相。比如海航，王健，陈峰；不说贯君，刘呈杰，孙姚； 不说王健之死；也不说马云这些事；更不说当初给郭文贵发所谓红通的孟宏伟和孙力军都被抓了，孟建柱和王岐山都被软禁了……
 
-彭帅，中共国最大的体育明星之一，在她11月2日的社交媒体微博账户上声称：
+所有的真相都“不说”“不写”，原因是什么呢？郭先生认为这位女记者“十有八九是江浙人，是受吴征控制的”。
 
-张高丽，在他成为中共最高决策机构——政治局常委的委员后，强迫与她发生性关系，后来双方达成了保持断断续续关系的共识。
+参考链接：[郭先生揭露《彭博社》报道的伪善性](https://gettr.com/post/pgvo9o2771)
 
-彭在这篇文章中说，她无法提供任何证据支持她的指控，这篇文章在发表大约半小时后被删除。【2】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-中共国网球协会没有回应《路透社》的置评请求。
+总编：木白
+编辑：微调/木白
+校对/发稿：Hetangyuese
 
-中共国的互联网会受到严格的审查，高层领导人的私生活是一个特别敏感的话题。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-由于彭帅发帖以来一直未露面，全球网球界的担忧日益增加。
-
-女子网球协会在一份声明中表示，将寻求“对前中共领导人性侵指控进行全面、公正和透明的调查”。
-
-女子网球协会巡回赛主席兼首席执行官史蒂夫·西蒙（Steve Simon）在一份声明中表示：“最近在中共国发生的有关女子网球协会球员彭帅的事件令人深感关切。”
-
-“彭帅，以及所有女性（的声音）都应该被倾听，而不是被审查。她对一位前中共领导人的性侵行为的指控必须得到极其严肃的对待。”
-
-在2013年温布尔登双打冠军和2014年法网双打冠军后，彭帅在2014年成为世界第一双打选手，也是第一位获得网球比赛顶级排名的中共国选手。
-
-（全文完）
-
-看来中共外交部、体育总局该挨板子了，十几天了，这点事儿还没有搞定，竟然还要求“进行全面、公正和透明的调查”，这不是抹黑我党吗？Me Too是你们西方的产物，成年人的运动。我们的共产党要从小培养，幼女开始。估计外交部回答记者的提问时会说，我们强烈反对世界女子网球协会干涉我国内政、侵犯我国领导人隐私的行为，我们会一如既往地我行我素，倡导“宇宙无限大，地球一粒沙”的共同“快活”精神，为摒弃道德、突破底限、弘扬罪恶义无反顾地走下去，直到灭亡……
-
-女子网球协会的举动应该是对邪恶中共认知的反应，在经济利益的诱惑下，体育界反对中共的声音是微弱的，希望在女子网球协会的带动下，尽快改观这种局面。
-
-原文链接：
-
-【1】[https://www.oann.com/tennis-wta-calls-for-investigation-into-peng-sexual-assault-allegations/](https://www.oann.com/tennis-wta-calls-for-investigation-into-peng-sexual-assault-allegations/)
-
-【2】[https://www.reuters.com/world/china/china-tennis-star-peng-says-ex-vice-premier-forced-her-into-sex-2021-11-03](https://www.reuters.com/world/china/china-tennis-star-peng-says-ex-vice-premier-forced-her-into-sex-2021-11-03)，
 
  
 
