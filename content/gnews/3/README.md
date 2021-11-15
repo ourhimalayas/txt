@@ -2,47 +2,36 @@
 ---
 
 
-## 为应对来自中(共)国的威胁，美国军方在关岛测试“铁穹”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1665862/)
+## 突发：中共欲再利用彭斯挑战特朗普，1/6调查或将背水一战
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1665970/)
 
-【简评】***最近美中关于台海局势的关系日趋紧张，上个月，美国总统乔·拜登曾表示，如果中共国攻击台湾，美国将保护台湾。虽然白宫很快表示，拜登并没有发出改变政策的信号，但这一言论确实引起了轰动。随后，台湾总统蔡英文接受CNN采访时候首次公开承认美国在台湾有驻军。在中共的一番指责之后，国务卿安东尼·布林肯明确表示，如果中国使用武力改变台湾现状，美国及其盟友将“采取行动”。结合本文美国军方正在关岛测试以色列的铁穹导弹防御系统，我们可以体会到美军对中国日益增长的军事威胁的重视，并时刻准备着与中共国开战。留给中共国叫嚣和指责的时间不多了。***
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh4.googleusercontent.com/bsCgNVj4RUM03EoCW3YNflaOHZKVya94YzIWUL7hjj21Ikfvzsg_H5ScvwhKx0uSbDIEJM1ECDWFuP1QpSVXGJbXXzEh4yoOjkswQtdYahDvb2MNSV9y5pXEquvGcz5guQTq7Q_Q)[图片来源](https://www.newsweek.com/trump-rails-against-1-6-investigation-subpoenas-gain-force-rioters-sentenced-1649063?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1636931480959&amp;subscriberId=618632587623c90ce1da6a7e)
+据[新闻周刊14日消息](https://www.newsweek.com/trump-rails-against-1-6-investigation-subpoenas-gain-force-rioters-sentenced-1649063?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1636931480959&amp;subscriberId=618632587623c90ce1da6a7e)称， 前总统唐纳德·特朗普抨击对 1 月 6 日国会骚乱的调查，两天前他的前顾问史蒂夫·班农因无视众议院特别委员会对叛乱调查的传票而被起诉藐视国会。特朗普质问为什么没有对“在选举中作弊的人和州”进行调查，并反复重申了2020总统选举被盗。
 
-据《以色列时报》，2021年11月09日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-97.png)铁穹导弹防御系统在 2021 年初的一次演习中向目标发射拦截器。（国防部）
-美国军方正在关岛测试以色列的铁穹导弹防御系统，以防范可能来自中（共）国的导弹袭击。
+相反，他们没有对选举舞弊进行调查，而正在恶毒地调查那些抗议 11 月 3 日总统选举的人，这是世纪罪行。正如中共国一句民间谚语所言，不解决提出的问题，而只解决提出问题的人。
 
-据《华尔街日报》周二报道，这些测试是美国在亚太地区加强军事力量的一部分，旨在对抗北京政权。
+特朗普补充说：“美国爱国者不会允许这种颠覆正义的行为继续下去，包括使用地方州和联邦检察官来折磨和摧毁无辜的人。所有这一切任由发生，我们的国家将要下地狱！”
 
-关岛是美国领土，距中国约 1,800 英里。岛上约有190,000名美国居民和军事人员，拥有美国空军、海军和海军陆战队基地，这些基地是距离中国最近的美国军事基地。
+周日，特朗普对于起诉班农并采取法律行动的行为谴责说：“**这个国家可能从未对任何人做过他们对史蒂夫·班农做的事情，他们也希望对其他人做**。”并且说，“如果他们尊重我们对中国、俄罗斯的强硬立场，也许国家就不会失败到前所未有过的水平。”
 
-中（共）国最近测试了一种带有高超音速弹头的导弹，并部署了载有掠海巡航导弹的轰炸机，这两种导弹都对关岛构成了威胁。报告称，“铁穹”防御巡航导弹的效果不如它的常规目标，该系统将成为美军基地的临时解决方案。
+有意思的是，司法部检察官声称，亚利桑那州本地人[雅各布·钱斯利](https://www.newsweek.com/harshest-capitol-riot-sentence-yet-recommended-flagbearer-qanon-shaman-1647936)因其在 1 月 6 日起义中的作用而入狱 51 个月。 “钱斯利是最早进入参议院的30名骚乱者之一，他在当时的副总统迈克彭斯主持认证的讲台上留下了一张纸条。据称，纸条上写着：“这只是时间问题，正义即将到来。”言外之意，有人希望彭斯支持特朗普并作出正确的决定。而这不确定的纸条似乎被利用来抨击前总统特朗普。
 
-美国于2019年以3.73亿美元从以色列购买了两套铁穹系统。第一套于2020年底交付，第二套于2021年1月交付。自交付以来，美军一直致力于将该系统集成到其防空阵列中，并且于2021年夏季对该系统进行了首次测试。
+- ***延展阅读：***[***亚当希夫：起诉书强制传唤证人史蒂夫班农到国会出庭做证***](https://www.newsweek.com/steve-bannon-indictment-already-compelling-witnesses-answer-subpoenas-adam-schiff-1649109)
+- ***延展阅读：***[***1 月 6 日骚乱期间，迈克·彭斯躲在地下停车场的“装卸码头”中***](https://www.newsweek.com/mike-pence-january-6-riot-loading-dock-underground-parking-garage-1647353)
 
-美国国会在2019年通过的立法要求该系统在2021年底前部署到作战区域；第二套系统则仍在美国本土。据《华尔街日报》报道，关岛测试将持续到12月。
 
-美国军事规划人员正在准备其他导弹防御措施，例如抵御来自太空的弹道导弹。此外，美国的盟友日本和韩国也在准备新的导弹防御系统。
+无独有偶，继蓬佩奥宣布参选总统后，迈克·彭斯前顾问发拉称，彭斯将在 2024 年与特朗普“展开一场激烈的战斗”如果这是真的，至少特朗普的领导班子中有他的左右手与他同台竞争，亦敌亦友，孰是孰非？
 
-美国陆军第94空军和导弹防御司令部上个月首次宣布在关岛部署“铁穹”导弹，称其为“临时性试验部署”。声明说，军方没有计划对该系统进行实弹演习。
+法拉警告说：“唐纳德·特朗普的加冕对党和国家来说都是最糟糕的事情，但对国家来说更重要。”她说，[特朗普的共和党挑战者需要反驳他关于2020大选被“窃取”的虚假说法](https://www.newsweek.com/mike-pence-will-put-formidable-fight-against-trump-2024-former-adviser-predicts-1649069?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1636931480959&amp;subscriberId=618632587623c90ce1da6a7e)。
 
-“铁穹”(Iron Dome)导弹系统最初是在以色列开发的，但在美国的资助下得到了大幅扩展。近10年来，该系统一直在以色列投入使用，主要是针对从加沙地带发射的（也有沿着叙利亚边境发射的）短程火箭。它代表了该国多级防空阵列的最低层次，与中程“David’s Sling”、远程“Arrow-2”和“Arrow-3”导弹系统并列。
+这一故事似乎很熟悉，幕后总导演一定是中国共产党。对此，新中国联邦创建者郭文贵先生评价说，“关于班农先生的事，42天前，我就告诉班农先生，共产党和美国一定会把你战斗室干掉，而且通过法院，以1月6日事件为由。”不幸，又被郭先生言中了。更可怕的是，下一个就是川普。郭先生解释说，“不是我蒙的，根据国内情报。这是中美之间邪恶力量的较量。”（见[23:46 时段](https://gettr.com/post/pgwfu22cfa)）
 
-在服役的10年里，“铁穹”拦截了数千枚炮弹，自2011年首次部署以来，已经拯救了数百人的生命。
+2021年11月15日
 
-美国众议院以压倒多数投票通过一项法案，该法案原计划将在9月向以色列提供10亿美元的系统建设资金。此前，由于一小群进步立法者的压力，这笔资金从一项政府支出法案中被取消，引发了争议。
-
-原文连接[https://www.timesofisrael.com/us-military-tests-iron-dome-in-guam-with-eyes-on-threats-from-china-report/](https://www.timesofisrael.com/us-military-tests-iron-dome-in-guam-with-eyes-on-threats-from-china-report/)
-
-翻译：洛杉矶盘古农场 – 钢蛋儿
-校对：洛杉矶盘古农场 – 心照
-评论：洛杉矶盘古农场 – 钢蛋儿
-编辑：洛杉矶盘古农场 – 柯镇恶
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,25 @@
 ---
 
 
-## 所谓“限跌令”就是中共楼市崩盘的必然流程
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1665774/)
+## 航班机长呼吁航空行业团结起来，反对暴政
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1665791/)
 
-撰稿：永遠の小学生文筝
-![](https://assets.gnews.org/wp-content/uploads/2021/11/157-2.jpg)图片来自网络
-目前为止中共国已有20多个城市发布了“限跌令”，想必大家都知道“此地无银三百两”这个故事，中共都说了“此地楼市不会跌”，此时要怎么做有房的都应该明白。
+#### 听写/翻译：奮鬥
+校对：Lish
+剪辑/字幕：蛮吉
+编辑：枳实
 
-中共的这些城市想通过禁令的方式控制楼价是不可能的，上层想要在六中全会之后再让房市崩盘，这些“限跌令”也只是起到延缓崩盘发生的作用，然而却实实在在地说明了中共已没有任何办法阻止崩盘的发生了，因为中共也只有搞出“限跌令”这一个方式了。
+视频链接：[Hundreds protest Los Angeles COVID-19 vaccine mandates: ‘We shouldn’t be forced](https://www.foxnews.com/us/los-angeles-covid-19-vaccine-mandate-protest)’
 
-湖南永州市零陵区住房和城乡建设局，11月1日发布了《关于严禁低价倾销的通知》。
+发布：枳实
 
-山东聊城住建局，11月发布了一则通报提到某品牌楼盘的降价促销，因为引发老业主投诉而被要求整顿，同时还不忘警告其它企业。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-另外还有沈阳、昆明、岳阳、唐山、桂林、江阴、鄂州、惠州、张家口、株洲、永州、菏泽等也都发布了“限跌令”及相关政策以及做出了抑制房价的行动。
-
-自从房地产税消息出来之后，多地房价有所回落，而当地房价影响着政府卖地的收入，现在政府的财政收入主要就是靠卖地。2020年地方的财政收入中，有84%是来自卖地的收入。最不想让房价跌的就是各个地方政府，但是出台“限跌令”及实行各种限制措施，这个效果就相当于那个喊“狼来了”的小孩。
-
-非自由市场国家的房价崩盘跟货币贬值有个共同点，都是政府喜欢出手干预，虽然最后不会有好结果，津巴布韦跟委内瑞拉的货币就能说明市场行为政府是无法控制的。“限跌令”就像是房价要大跌的发令枪一样，再加上将来的房产税，有房的人都会考虑一下要不要卖房了。
-
-(本文纯属个人观点，与Gnews无关)
-
-*发稿：**mgjxs*
-
-参考来源：
-
-[中国财政依赖卖地无法自拔 去年土地收入占总财政收入44%](https://www.rfa.org/mandarin/yataibaodao/jingmao/ac-06152021073438.html%20“”)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

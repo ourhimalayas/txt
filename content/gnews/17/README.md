@@ -2,19 +2,21 @@
 ---
 
 
-## 美国联邦第五巡回法庭停止强制疫苗令对世界的重大影响
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1665712/)
+## 秘翻在线：完全接种疫苗的NFL明星本·罗斯利斯伯格新冠检测呈阳性
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1665751/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+#### 翻译/撰稿：zzballack
 
-11月10日，郭文贵先生在GTV大直播强调：
+#### 校对：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-285.png)  图片来源：CNN
+据《布雷特巴特新闻网》（Breitbart News）11月14日报道，尽管已完全接种了新冠疫苗，但是NFL球队匹兹堡钢人队的四分卫本·罗斯利斯伯格 (Ben Roethlisberger)最近的一次新冠检测呈阳性，不得不被球队放进新冠保留区名单（COVID-19 reserve list）。根据NFL的要求，他将被隔离十天。
 
-第5巡回法背后是世界级人类的较量，疫苗问题上，美国强硬、较真，世界就有希望，美国的动作与全球战友息息相关，美国的态度会影响带动全世界，影响全人类命运的就是美、中、俄三国，这次的第5巡回法就是在法律上打开了美国对待疫苗态度的大门，美国在历次开战之前都是民心（媒体）、国会先行。
+现年39岁的罗斯利斯伯格上周做客《丹·柏德烈秀》 (The Dan Patrick Show) 时当谈到了球员在更衣室里应遵循的协议，他说他已完全接种了疫苗，“我认为如果你没有接种疫苗，那么应该戴上口罩。我不知道我们队里有哪些人接种了，哪些人没接种。但我知道我接种了疫苗，所以我不需要戴口罩。”
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+新闻来源：[Vaccinated Steelers QB Ben Roethlisberger Placed on COVID-19 List](https://www.breitbart.com/sports/2021/11/14/vaccinated-steelers-qb-ben-roethlisberger-placed-on-covid-19-list/)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

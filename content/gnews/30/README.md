@@ -2,40 +2,40 @@
 ---
 
 
-## 声称奥地利最好的PCR检测系统被揭存在明显安全漏洞
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1665534/)
+## 福奇承认接种疫苗者现处于极大危险中
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1665650/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
+**编译：JennyBall**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Alles-gurgelt_NJ_cOEBBKurtPrinz01_750x422.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip03-2.png)
 
+现在应该很清楚，在福奇博士被撤职和更换之前，大流行不会结束。
 
+一年多来，福奇博士一直阻止成功的治疗方法，并过度承诺无效的疫苗。 但至少大型制药公司获得了创纪录的利润。
 
-图片来源：news.wko.at
+周五，福奇博士告诉《纽约时报》播客，这些疫苗并没有像宣传的那样发挥作用，而且美国人由于免疫力下降而处于危险之中。作为这个问题的解决方案，福奇博士当然是在推广更多的疫苗。
 
+这什么时候结束？
 
-#### 编译：小红帽
+11 月 12 日，白宫 COVID 医学顾问福奇博士在《纽约时报》的播客 The Daily 上讨论了美国当前的冠状病毒状况， 据福奇称，官员们现在开始看到对这两种病毒的免疫力有所减弱 ，初次接种疫苗数月后就感染和住院。这位传染病专家指出了来自以色列的数据，他指出，就疫情爆发而言，这些数据往往比我们提前一个月到一个半月。
 
-一个由国家支持的中共病毒（Covid-19） PCR测试系统被吹捧为奥地利最好的系统之一，在一名记者欺骗该系统向一个卡通人物发出阴性测试证书后，该系统被揭露存在明显的安全问题。
+“他们看到，不仅对感染的免疫力下降，而且，对住院和某种程度上的死亡的免疫力也在下降，这现在开始涉及所有年龄组。不仅仅是老年人，”福奇说。“它正在减弱，你会看到越来越多的人感染突破性感染，越来越多的感染突破性感染的人在医院结束。”
 
-记者迈克尔·波默（Michael Pommer）用自己的真名在Alles Gurgelt！注册，但他没有拍摄自己漱口的过程，而是拍摄了一个蓝精灵爸爸，并在样品瓶里装满了自来水。显然，根本没有人看到这段视频，因为波默成功获得了证书。《克朗日报》周日报道，指出该系统存在“明显的安全漏洞”，维也纳卫生部长彼得·哈克（Peter Hacker）称其为 “世界上独一无二的”，称赞其为 “维也纳抗击大流行病的核心组成部分”。
+**由于这些发现，福奇警告说，接种疫苗的人应该接种加强针**，因为这实际上可能比卫生官员最初意识到的更重要。“如果回顾这一点，人们会说，你知道吗，这并不是说强化剂是一种奖励，但强化剂实际上可能是人们应该拥有的主要治疗方案的重要组成部分，”他说。
 
-最近在收到阴性PCR测试结果后，该系统向这个虚构的卡通人物颁发了中共病毒（Covid-19）证书。这是根据奥地利首都维也纳使用的 “Alles Gurgelt！”快速检测系统得出的结果。该项目得到了维也纳政府的支持，并提供免费的家庭测试剂盒。
+福奇接着说：“我认为……强化剂将成为我们应对措施中绝对必不可少的组成部分，不是奖金，也不是奢侈品，而是该计划的绝对必要组成部分。”
 
-中共病毒（Covid-19）PCR测试系统由奥地利LEAD Horizon公司和意大利Lifebrain实验室网络运营，允许人们在商店领取检测试剂盒，并在使用一个特殊的应用程序注册后在家中进行测试。
+**评论： CDC已经将疫苗的定义改为用于减弱感染后的严重症状，现在白宫医学教皇福奇在全国85%强制疫苗后却说：“对住院和某种程度上的死亡的免疫力也在下降，”是不是CDC应该再次改写疫苗的定义为：大药企赚钱CDC分红的快速印钞机？政府让全体人民充当试验老鼠的强制品！**
 
-测试结果可以通过另一个零售连锁店提交给实验室。验证过程包括拍摄自己漱口的测试液，并将样品瓶送到实验室。
+**新闻来源**：[thegatewaypundit.com] [Dr. Fauci Admits Vaccines Did Not Work as Advertised and that Vaccinated Are in Great Danger Today (VIDEO)](https://www.thegatewaypundit.com/2021/11/dr-fauci-admits-vaccines-not-work-advertised-vaccinated-great-danger-today/)
 
-**参考新闻：**[Lockdown-ready Austria has its PCR system tricked — RT World News](https://www.rt.com/news/540251-austria-covid-test-trick-journalist/)
+* * *
 
-***发布：小红帽***
+***审核：文乐
+校对: 阿伯塔
+发布：信心满满***
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
 
  
 
