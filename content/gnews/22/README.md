@@ -2,33 +2,40 @@
 ---
 
 
-## 针下亡魂｜美国 45 岁知名漫画家接种疫苗后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1665474/)
+## 声称奥地利最好的PCR检测系统被揭存在明显安全漏洞
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1665534/)
 
-**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 15/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+**【雅典娜快讯】，紧贴时事脉搏**
 
-【美国】俄勒冈州一名 45 岁的漫画家Jesse Hamm 在接种莫德纳 COVID-19 疫苗后死亡。这一消息令整个漫划界大为震惊。
-
-Jesse Hamm 的妻子 Anna 于 5 月 13日在 Twitter 上简单宣布了丈夫的死讯。她在该贴中特别指出，丈夫死于“肺部血凝块”，有网友在帖子下留言，询问 Jesse Hamm 是否已经接种过 COVID-19 疫苗，Anna 迅速回覆指“他接种过一剂莫德纳。”
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Anna-Sahrling-Hamm.png)
-
-根据资料，Jesse Hamm 早在十几岁的时候就出版了他人生的第一部漫画，自 1990 年代以来，他一直活跃在漫划界，同时与许多大牌公司都有合作，包括漫威、DC 漫画和俄勒冈州的黑马漫画。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-05-13-at-4.32.25-AM-min.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-05-13-at-4.32.10-AM-min.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-05-13-at-4.31.45-AM-min.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Alles-gurgelt_NJ_cOEBBKurtPrinz01_750x422.jpg)
 
 
-他的最新作品“植物大战殭尸第 18 卷：建筑故事”原定在两个月后发售，可惜，他等不到那一天了。许多粉丝、朋友和同业都纷纷在网上留下了对他哀悼及不舍。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗_0-2.jpg)
-来源｜[个案061](https://twitter.com/ASahrlingHamm/status/1392509511525568517)
 
-* * *
+图片来源：news.wko.at
 
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//｜//[美国 39 岁女医护接种疫苗4日后死亡](https://gnews.org/zh-hans/1625214/)//｜//[美国 56 岁男医生接种疫苗两周后死亡](https://gnews.org/zh-hans/1629915/)//｜//[德国 32 岁心理学专家接种疫苗12日后死亡](https://gnews.org/zh-hans/1636096/)//
+
+#### 编译：小红帽
+
+一个由国家支持的中共病毒（Covid-19） PCR测试系统被吹捧为奥地利最好的系统之一，在一名记者欺骗该系统向一个卡通人物发出阴性测试证书后，该系统被揭露存在明显的安全问题。
+
+记者迈克尔·波默（Michael Pommer）用自己的真名在Alles Gurgelt！注册，但他没有拍摄自己漱口的过程，而是拍摄了一个蓝精灵爸爸，并在样品瓶里装满了自来水。显然，根本没有人看到这段视频，因为波默成功获得了证书。《克朗日报》周日报道，指出该系统存在“明显的安全漏洞”，维也纳卫生部长彼得·哈克（Peter Hacker）称其为 “世界上独一无二的”，称赞其为 “维也纳抗击大流行病的核心组成部分”。
+
+最近在收到阴性PCR测试结果后，该系统向这个虚构的卡通人物颁发了中共病毒（Covid-19）证书。这是根据奥地利首都维也纳使用的 “Alles Gurgelt！”快速检测系统得出的结果。该项目得到了维也纳政府的支持，并提供免费的家庭测试剂盒。
+
+中共病毒（Covid-19）PCR测试系统由奥地利LEAD Horizon公司和意大利Lifebrain实验室网络运营，允许人们在商店领取检测试剂盒，并在使用一个特殊的应用程序注册后在家中进行测试。
+
+测试结果可以通过另一个零售连锁店提交给实验室。验证过程包括拍摄自己漱口的测试液，并将样品瓶送到实验室。
+
+**参考新闻：**[Lockdown-ready Austria has its PCR system tricked — RT World News](https://www.rt.com/news/540251-austria-covid-test-trick-journalist/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

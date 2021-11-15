@@ -15,113 +15,113 @@
 
 ---
 
-### [美国联邦第五巡回法庭停止强制疫苗令对世界的重大影响](/content/gnews/1/README.md)
+### [反腐党在保加利亚大选中领先](/content/gnews/1/README.md)
+ ` Shuizhuyu`
+
+### [秘翻在线：完全接种疫苗的NFL明星本·罗斯利斯伯格新冠检测呈阳性](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [墙内要闻汇编 11月15日](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共病毒口服药比疫苗还毒](/content/gnews/2/README.md)
+### [福奇承认疫苗没达到宣传效果，已接种疫苗的人现在很危险](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美国21个州财政官员要求撤销奥马洛娃的货币监理专员提名](/content/gnews/5/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [美国联邦第五巡回法庭停止强制疫苗令对世界的重大影响](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [北交所税收优惠，是“重大利好”还是“血本无归”](/content/gnews/3/README.md)
+### [中共病毒口服药比疫苗还毒](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [串珠450:习近平躲过了13次暗杀，他还能躲几次？](/content/gnews/4/README.md)
+### [北交所税收优惠，是“重大利好”还是“血本无归”](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [串珠450:习近平躲过了13次暗杀，他还能躲几次？](/content/gnews/9/README.md)
  ` 郭爆料串珠`
 
-### [西班牙知名作家撰文反对强制接种“实验性基因疗法”](/content/gnews/5/README.md)
+### [西班牙知名作家撰文反对强制接种“实验性基因疗法”](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [港闻前线｜律政司再申请押后审讯 33名民主派义士未审先囚近一年](/content/gnews/6/README.md)
+### [港闻前线｜律政司再申请押后审讯 33名民主派义士未审先囚近一年](/content/gnews/11/README.md)
  ` G&#124;News TAIWAN`
 
-### [中共国将建数据分类分级保护制度 严格网络审查](/content/gnews/7/README.md)
+### [中共国将建数据分类分级保护制度 严格网络审查](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [遭中共国施压，“世界同志游行”称台湾为地区](/content/gnews/8/README.md)
+### [遭中共国施压，“世界同志游行”称台湾为地区](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [福奇承认接种疫苗者现处于极大危险中](/content/gnews/9/README.md)
+### [福奇承认接种疫苗者现处于极大危险中](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新一轮病毒即将从美国西部蔓延，人类疫苗灾难很快到来](/content/gnews/10/README.md)
+### [新一轮病毒即将从美国西部蔓延，人类疫苗灾难很快到来](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [浅谈关于中国人是否值得被拯救](/content/gnews/11/README.md)
+### [浅谈关于中国人是否值得被拯救](/content/gnews/16/README.md)
  ` 澳喜农场`
 
-### [纳瓦罗：福奇该去蹲监狱，中共必须为20万亿损失负责](/content/gnews/12/README.md)
+### [纳瓦罗：福奇该去蹲监狱，中共必须为20万亿损失负责](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共正采用军事入侵、网络战和国际孤立等策略削弱台湾](/content/gnews/13/README.md)
+### [中共正采用军事入侵、网络战和国际孤立等策略削弱台湾](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [约翰·坎贝尔博士详解伊维菌素能在多层面抵御中共病毒](/content/gnews/14/README.md)
+### [约翰·坎贝尔博士详解伊维菌素能在多层面抵御中共病毒](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [从墙内两则新闻看中共官员的荒淫无耻](/content/gnews/15/README.md)
+### [从墙内两则新闻看中共官员的荒淫无耻](/content/gnews/20/README.md)
  ` 澳喜农场`
 
-### [《堡垒之夜》游戏即将关闭其在中共国游戏服务器说明什么？](/content/gnews/16/README.md)
+### [《堡垒之夜》游戏即将关闭其在中共国游戏服务器说明什么？](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [声称奥地利最好的PCR检测系统被揭存在明显安全漏洞](/content/gnews/17/README.md)
+### [声称奥地利最好的PCR检测系统被揭存在明显安全漏洞](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声| 喜币发行前后一错酿成千古恨](/content/gnews/18/README.md)
+### [有声| 喜币发行前后一错酿成千古恨](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [喜马拉雅币一周分析](/content/gnews/19/README.md)
+### [喜马拉雅币一周分析](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [坎特推出反共鞋后，凯尔特人队令其长时间坐冷板凳](/content/gnews/20/README.md)
+### [坎特推出反共鞋后，凯尔特人队令其长时间坐冷板凳](/content/gnews/25/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声| 习近平暗示想加入TPP 被岸田文雄泼冷水](/content/gnews/21/README.md)
+### [有声| 习近平暗示想加入TPP 被岸田文雄泼冷水](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [针下亡魂｜美国 45 岁知名漫画家接种疫苗后死亡](/content/gnews/22/README.md)
+### [针下亡魂｜美国 45 岁知名漫画家接种疫苗后死亡](/content/gnews/27/README.md)
  ` G&#124;News TAIWAN`
 
-### [喜币上市有感，作《水调歌头》贺之](/content/gnews/23/README.md)
+### [喜币上市有感，作《水调歌头》贺之](/content/gnews/28/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [美议员代表团结束对台访问，行程包含总统府和国防部](/content/gnews/24/README.md)
+### [美议员代表团结束对台访问，行程包含总统府和国防部](/content/gnews/29/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [疫苗无效 欧洲将面临第四波疫情的冲击](/content/gnews/25/README.md)
+### [疫苗无效 欧洲将面临第四波疫情的冲击](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [币圈新闻动态：喜币（HCN）价格14日突破30 HDO整数关口](/content/gnews/26/README.md)
+### [币圈新闻动态：喜币（HCN）价格14日突破30 HDO整数关口](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [11月14日文贵大直播精剪汇编](/content/gnews/27/README.md)
- ` 澳喜特战旅Gnews`
-
-### [美媒报道：美国将支持台湾对抗中共国的侵略](/content/gnews/28/README.md)
- ` 澳喜农场`
-
-### [有声|日台交流高峰会：神户宣言挺台加入国际组织](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [新南威尔士州发出东海岸重大洪水警告](/content/gnews/30/README.md)
+### [新南威尔士州发出东海岸重大洪水警告](/content/gnews/32/README.md)
  ` 走进澳洲`
 
-### [俄克拉荷马州挑战五角大楼，叫停国民警卫队的疫苗强制接种](/content/gnews/31/README.md)
+### [俄克拉荷马州挑战五角大楼，叫停国民警卫队的疫苗强制接种](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新西兰财经G乐部 2021年11月15日](/content/gnews/32/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [澳洲上万民众抗议强制接种毒疫苗](/content/gnews/33/README.md)
+### [澳洲上万民众抗议强制接种毒疫苗](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [19岁女孩被迫接种疫苗后出现严重健康问题](/content/gnews/34/README.md)
+### [19岁女孩被迫接种疫苗后出现严重健康问题](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [纳瓦罗做客班农战斗室谈疫情与经济问题](/content/gnews/35/README.md)
+### [纳瓦罗做客班农战斗室谈疫情与经济问题](/content/gnews/36/README.md)
  ` GTV新闻访谈`
-
-### [中西方富豪对比](/content/gnews/36/README.md)
- ` 澳喜农场`
 
 ### [布林肯敦促北京和平解决台海两岸分歧](/content/gnews/37/README.md)
  ` GTV新闻访谈`

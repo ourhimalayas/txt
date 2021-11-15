@@ -2,46 +2,50 @@
 ---
 
 
-## 新南威尔士州发出东海岸重大洪水警告
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1665281/)
+## 疫苗无效 欧洲将面临第四波疫情的冲击
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1665423/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：纽约香草山医疗部 – 云豹
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/gm-2.jpg)
 
-**图片来源：ABCNews**
-编译报道：文泓
 
-这几天持续的暴雨和狂风天气已袭击了维多利亚州的部分地区。周日，在重大洪水警告下，新南威尔士州一些地区的人们正准备逃离他们的家园。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-新州紧急服务局已敦促福布斯小镇——悉尼以西350公里——的8000多人准备在未来30小时内离开他们的家园，拉克兰河（水位）可能在周二达到10.55米，周三早上达到10.65米的大洪水（标准）。
 
-过去的五天里，考拉附近的拉克兰河上游集水区的雨量在100毫米到150毫米之间，怀安加拉大坝于周日溢水。
 
-新州水务局说，大坝接缝处正在破裂，水库容量达104%，但预计集水区没有进一步的降雨。
+11月13日，欧洲疾病预防管制中心发布的中共病毒评估数据显示，欧洲正面临第四波飙升的中共病毒疫情。
 
-水务局警告说：“情况随时可能会发生变化，而且会迅速升级。”
+截至11月11日为止的过去2周，欧盟成员国及冰岛、挪威等欧洲经济区通报了约209万确诊案例，整体疫情呈现确诊病例迅速增加、死亡率缓慢增加的态势。
 
-周末，纳纳米镇发生了严重的洪水，从周一早上开始，拉克兰河沿岸的福布斯、科顿威尔和杰马隆可能会发生更多的洪水。
+欧洲疾病预防管制中心认为，在未来的两周，欧洲地区的新增确诊、死亡以及住院人数都将继续增加。并且警示，比利时、荷兰、捷克及希腊等10个国家需要极度关注疫情的蔓延。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.3-2.jpg)
+参考链接：
+[歐洲疫情飆升 比利時荷蘭等10國列非常高度關注](https://www.cna.com.tw/news/aopl/202111130209.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+[印度北方邦暴发寨卡疫情病毒感染者增至89人](https://www.google.com.tw/search?q=%E5%8D%B0%E5%BA%A6%E5%8C%97%E6%96%B9%E9%82%A6%E7%96%AB%E6%83%85&amp;hl=zh_hant_hk&amp;dcr=0&amp;source=hp&amp;ei=f5GQYdv4N4bc0gSPgKaoDA&amp;iflsig=ALs-wAMAAAAAYZ-Cfj6bUFUg0lEURwhUoQED3jsm_KFYe&amp;oq=%E5%8D%B0%E5%BA%A6%E5%8C%97%E6%96%B9&amp;gs_lcp=Cgdnd3Mtd2l6EAEYAjIFCAAQgAQyBQguEIAEMgUIABCABDIFCAAQgAQyBA-gAEB4yBAgAEB46FAgAEOoCELQCEIoDELcDENQDEOUCOggILhCxAxCDAToICC4QgAQQsQM6CwguEIAEELEDEIMBOgsIABCABBCxAxCDAToICAAQgAQQsQM6BQgAEM0COgQIABBDU-PlLWJ7FAWC0xgFoBXAAeACAAf4BiAHXB5IBBjEyLjAuMZgBAKABAbABCg&amp;sclient=gws-wiz)
 
-福布斯小镇当地人居民周日在他们低洼地区的房子周围堆放了沙袋。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-新州水务局公共信息官说，到目前为止，大约有6000个沙袋被用来加固福布斯镇的财产，今天有很自发的志愿者来帮助装沙袋。
+总编：文特
+编辑：飞虹
+校对/发稿：为真不破20
 
-从周五开始，到周日，新州水务局已经收到了96个求助电话。这些电话中的大多数都是关于求助沙袋的。
+**更多资讯，更多关注**
 
-目前纳纳米镇和福布斯镇的洪水规模预计与2016年9月的洪水相似。（当时）在拉克兰河水上涨到10.7米后，导致一人死亡，洪水使农作物绝收。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-新闻链接：[Major flood warnings NSW as east coast cops deluge (theaustralian.com.au)](https://www.theaustralian.com.au/news/major-flood-warnings-nsw-as-east-coast-cops-deluge/news-story/ced62639110322611808faa0cb18a1b3)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-发布：文泓
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
