@@ -2,20 +2,20 @@
 ---
 
 
-## 疫苗病毒是习和常委军委下的命令
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666536/)
+## 七哥说—第28期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1666625/)
 
-文编：东京樱花团/樱花传媒
+**制作：Inzaghi**
 
-视频:东京樱花团/中文小视频组
+天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/ab12.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/ab13.png)
 
-11月12日，郭文贵先生在GTV大直播强调：
+***发稿：信心满满***
 
-疫苗灾难是文贵先生和无数战友冒着生命危险换来的真相！防化学院、装甲兵原学院、中纪委办案组人员、在武汉参与调查的研究人员、安保人员、欧洲的科学家，是那么多生命和证据证明，疫苗是真正的杀人目标和工具、冠状病毒是共产党的生化武器、是习近平和常委、军委下的命令！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/二维码新.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

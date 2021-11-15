@@ -2,39 +2,30 @@
 ---
 
 
-## 疫苗强制令导致美国9月份辞职人数创历史新高
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1666771/)
+## GTV新闻访谈简报|2021年11月15日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1666828/)
 
-#### 撰稿：日本东京方舟农场  海星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/0EECA4DE-2DD2-4C0C-B359-2AE171F3F885.jpeg)（图片来源：欧新社）
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-14.png)
+文章仅代表作者本人观点，与Gnews无关
 
-11月12日，美国劳工部发布的职位空缺和劳动力流动调查（JOLTS）数据显示，今年9月有440万人辞职，创下历史新高。
+视频参看：2021.11.15早GTV新闻访谈
 
-据《自由时报》报道, 美国劳工统计局于周五发布的数据显示，今年9月美国有440万人辞职，约占全美劳动力的3%，创下历史新高。根据该调查数据，当月美国有1040万个空缺职位，虽与8月份的1060万个职位相比略有下降，但是医疗保健以及州和地方政府部门的职位空缺有所增加。
+[https://gtv.org/broadcast/watch/61926065e7e7703792356bb6](https://gtv.org/broadcast/watch/61926065e7e7703792356bb6)
 
-据悉，多数工作人员辞职是因拜登政府实施的强制疫苗令使他们被迫选择离开岗位。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-9月9日，拜登签署强制疫苗令，规定联邦工作人员必须接种疫苗。当月，纽约州北部的一家医院就有大量产科医护人员因强制疫苗令被迫辞职，导致医院暂停接生服务。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
 
-美国9月份的一项民意调查显示，近70%未接种疫苗者表示，如果被要求强制接种疫苗，他们会选择辞职。
-
-*参考链接：*
-
-1. [*https://ec.ltn.com.tw/article/breakingnews/3736010*](https://ec.ltn.com.tw/article/breakingnews/3736010)
-2. [*https://gnews.org/zh-hans/1530712/*](https://gnews.org/zh-hans/1530712/)
-3. [*https://gnews.org/zh-hans/1518154/*](https://gnews.org/zh-hans/1518154/)
-
-
-* * *
-
-
-```
-素材采编：海星
-编辑：青衣青青
-发布：miumiu
-```
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
