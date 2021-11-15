@@ -2,34 +2,40 @@
 ---
 
 
-## 日本要闻汇编 11月14日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1664702/)
+## 郭先生揭露《彭博社》报道的伪善性
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1664743/)
 
-#### 素材：东京樱花团丨GNEWS组
-![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-19.png)[*图片来源*](https://media.dwnews.net/dw/rP9_DFOOnVBw27-PJ6BfPIc9-zo%3D/320*0/media/images/dw/e8fb4c62679a6c6f81f3f0fcceefa698.jpg?v=w1920r16_9)
-1、[**岸田外交重视对美中保持平衡**](https://china.kyodonews.net/news/2021/11/a159eb0c3c09.html)
+作者：英国喜庄园 – I770775
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月13日，郭先生在盖特视频中，揭露了《彭博社》对郭先生和喜币的报道中，存在诸多“不写”和“不说”，充分展现了其伪善的嘴脸。
 
-共同社14日消息，日本首相岸田文雄起用被称为中国通的前文部科学相林芳正担任外相，透露出在美中对立下欲稳定日中关系的意图。另一方面留任了亲台派防卫相岸信夫。岸田任用对华态度不同的这两人，给人以重视对美中保持平衡的印象。
+首先， 郭先生透露，写该报道的是位女性实习记者。虽然她在报道中有提到喜币已经有270亿美元的估值，但她 “就是不写” 喜币“有1千亿个币的额度”，也绝口不提喜币上市的技术是“所有的区块链技术最好的，包括它的系统”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-14.jpg)
+接着，郭先生指出，这位女记者“就是不写” 班农先生不仅与郭先生之间没有任何利益关系， 更是与喜币没有任何利益关系。
 
-2、[**日本都道府县首府九成完成两剂疫苗接种**](https://china.kyodonews.net/news/2021/11/62f97c338c62.html)
+郭先生还指出了该记者一系列的“不写”和“不说”：
 
-共同社13日调查结果显示，日本47个都道府县首府，有43个（占总体的91.5%）在11月底前将完成两剂接种。预计15日敲定第三剂追加接种计划，12月开始实施。根据日本政府的统计，至少已结束第一剂接种的有9909万人（占总人口的78.2%），接近一亿人。结束第二剂接种的有9458万人（同74.7%）。
+“她就是不写我们爆料革命揭露的关于中共腐败盗国的真相。比如海航，王健，陈峰；不说贯君，刘呈杰，孙姚； 不说王健之死；也不说马云这些事；更不说当初给郭文贵发所谓红通的孟宏伟和孙力军都被抓了，孟建柱和王岐山都被软禁了……
 
-3、[**日本将在山口县新设“第2宇宙作战队”**](https://china.kyodonews.net/news/2021/11/7989f3849a6a-2.html)
+所有的真相都“不说”“不写”，原因是什么呢？郭先生认为这位女记者“十有八九是江浙人，是受吴征控制的”。
 
-日本防卫相岸信夫14日表示，2022年度将在航空自卫队防府北基地（山口县防府市）新设“第2宇宙作战队”，负责监视用电磁波干扰日本人造卫星的行为。中国和俄罗斯在提高被称作安全保障“新领域”的太空和电磁波领域的能力，日本拟加强应对。
+参考链接：[郭先生揭露《彭博社》报道的伪善性](https://gettr.com/post/pgvo9o2771)
 
-4、[**四大企业将合作开发摩托车氢燃料发动机**](https://china.kyodonews.net/news/2021/11/42ecbfceec51.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-日本川崎重工业公司和雅马哈发动机公司13日发布消息称，已开始探讨共同研发用于两轮摩托车的氢燃料发动机。本田和铃木今后也将加入，国内四大摩托车厂家为实现去碳化社会将携手合作。
+总编：木白
+编辑：微调/木白
+校对/发稿：Hetangyuese
 
-5、[**疫情下2020年度日本婚礼平均费用创新低**](https://china.kyodonews.net/news/2021/11/6971152277ed-2020.html)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-共同社14日消息，日本出版结婚信息杂志《皆喜》（ZEXY）的瑞可利公司日前发布的结婚趋势调查等显示，2020年度全国每对新人婚礼及婚宴总费用平均较上年度减少70万日元，为292.3万日元（约合人民币16万元）。创2005年度开始全国调查以来新低。
 
-*编辑：东京樱花团 / 文小白
-发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

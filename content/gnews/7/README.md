@@ -2,20 +2,26 @@
 ---
 
 
-## 日本GDP两季度以来首次负3%，中共国增长9.8%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1664963/)
+## 战狼秦刚叫嚣用武力解决台湾问题
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1664967/)
 
-#### 撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-94.png)图片来源：原文
-日本NHK11月15日报道，今年7月至9月期间的GDP（国内生产总值）与前三个月相比，实际增长率为负3.0%，两个季度以来首次出现负值。此期间发布了“紧急事态宣言”，占国内生产总值的一半以上的消费支出下降。
+#### 撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-82.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2Fyataibaodao%2Fjunshiwaijiao%2Frc-08122021114051.html%2Frc0812-1.jpg&amp;imgrefurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2Fyataibaodao%2Fjunshiwaijiao%2Frc-08122021114051.html&amp;tbnid=fB5kwwALd6ZucM&amp;vet=12ahUKEwjsoeK3uJn0AhXisWMGHQfbBEYQMygJegUIARCmAQ..i&amp;docid=FazjohoedgObEM&amp;w=620&amp;h=349&amp;itg=1&amp;q=%E7%A7%A6%E5%88%9A%20%E5%8F%B0%E6%B9%BE&amp;ved=2ahUKEwjsoeK3uJn0AhXisWMGHQfbBEYQMygJegUIARCmAQ)
+中共国驻美大使秦刚周六（11月13日）表示，中共国加倍努力推动两岸统一，但绝不承诺放弃使用武力，保留采取一切必要措施的选项；敦促美国恪守一个中共国原则和对中方所作的承诺，谨慎妥善处理台湾问题，警防台湾问题导致中美冲突和对抗。
 
-紧急事态宣言导致旅游和外出就餐的需求低迷，家电等销售下降，个人消费支出比前三个月下降1.1%。汽车行业被迫削减生产，认为是经济驱动力的“出口”也下降了2.1%。由于购买商业用的车辆和建筑机械的下降，企业的设备投资下降了3.8%。政府预计GDP将在“年内”恢复到中共病毒流行之前的水平，但疫情的再次出现将迫使日本经济复苏陷入停滞。
+中共国驻美使馆官网，当日晚间新闻稿，引述其在全美中共国和平统一促进会联合会2021年年会上的视频致辞指出，当前，台湾民进党当局煽动两岸对立，勾连外部势力，不断进行谋“独”挑衅，正一步步把台湾民众裹挟上“台独”战车。
 
-与此相反，中共国的擀面杖子经济“依旧坚挺”，2021年10月18日，中共国统计局发布数据，2021年前三季度GDP同比增长9.8%，两年平均增长5.2%。
+“这些行径严重损害中华民族根本利益和台湾同胞切身利益，严重危害台海和平稳定。”他称，“美方不断操弄台湾问题，企图‘以台制华’，这必将搬起石头砸自己的脚。”
 
-信息来源：
+布林肯周三曾表示，如果中共国使用武力改变台湾现状，美国及其盟友将采取“行动”。但他并未说明具体是什么行动。
 
-[7～9月実質GDP年率-3.0％ 2期ぶりマイナス 個人消費落ち込み](https://www3.nhk.or.jp/news/html/20211115/k10013348051000.html)
+针对美国国会议员乘坐军机访台，中共国外交部周三称此举严重违反一个中共国原则和中美三个联合公报规定，中方对此坚决反对，已向美方提出严正交涉。
+
+郭文贵先生曾经爆料秦刚是习近平的女婿，将他派驻到美国是作为习近平的代言人，他的这番强硬表态，说明中美政府在台湾问题上已有所勾兑，并且中共方面信心十足有把握拿下台湾，但是最终美国搬起的“石头”砸到的不会是自己的脚，而是将把中共砸的头破血流，我们拭目以待。
+
+消息来源:
+
+[中共国驻美大使：中共国绝不承诺放弃使用武力 敦促美国谨慎妥善处理台湾问题](https://cn.reuters.com/article/china-usa-taiwan-ambassador-1114-sun-idCNKBS2I002T?il=0)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*

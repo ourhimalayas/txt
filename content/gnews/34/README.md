@@ -2,106 +2,34 @@
 ---
 
 
-## 关于喜马拉雅币提现问题
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1664677/)
+## 日本要闻汇编 11月14日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1664702/)
 
-[https://gtv.org/video/id=61912821182702508105366e](https://gtv.org/video/id=61912821182702508105366e)
+#### 素材：东京樱花团丨GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-19.png)[*图片来源*](https://media.dwnews.net/dw/rP9_DFOOnVBw27-PJ6BfPIc9-zo%3D/320*0/media/images/dw/e8fb4c62679a6c6f81f3f0fcceefa698.jpg?v=w1920r16_9)
+1、[**岸田外交重视对美中保持平衡**](https://china.kyodonews.net/news/2021/11/a159eb0c3c09.html)
 
-**郭文贵**
-**Miles Guo**
+共同社14日消息，日本首相岸田文雄起用被称为中国通的前文部科学相林芳正担任外相，透露出在美中对立下欲稳定日中关系的意图。另一方面留任了亲台派防卫相岸信夫。岸田任用对华态度不同的这两人，给人以重视对美中保持平衡的印象。
 
-没有一个刚刚上市的交易所让你开始提现的, 从来没有过
-There is no exchange that has just been listed to allow you to start cash withdraw-ing, never
+2、[**日本都道府县首府九成完成两剂疫苗接种**](https://china.kyodonews.net/news/2021/11/62f97c338c62.html)
 
-也没有一个交易所是一上来论万让你提走的
-There is also no single exchange that will let you cash over ten thousand dollars at the beginning
+共同社13日调查结果显示，日本47个都道府县首府，有43个（占总体的91.5%）在11月底前将完成两剂接种。预计15日敲定第三剂追加接种计划，12月开始实施。根据日本政府的统计，至少已结束第一剂接种的有9909万人（占总人口的78.2%），接近一亿人。结束第二剂接种的有9458万人（同74.7%）。
 
-过来几年来上万的也没有，第三个，这个钱不是你的钱
-After a few years of operation, there hasn’t been reached tens thousand dollars, the third one, this money is not yours
+3、[**日本将在山口县新设“第2宇宙作战队”**](https://china.kyodonews.net/news/2021/11/7989f3849a6a-2.html)
 
-你战友现在已经六亿币，按20块钱（算）已经120亿美元了
-You comrade-in-arms now has 600 million coins, and at 20 dollars calculated, it is already 12 billion US dollars
+日本防卫相岸信夫14日表示，2022年度将在航空自卫队防府北基地（山口县防府市）新设“第2宇宙作战队”，负责监视用电磁波干扰日本人造卫星的行为。中国和俄罗斯在提高被称作安全保障“新领域”的太空和电磁波领域的能力，日本拟加强应对。
 
-你总共出了6000万美元，那就是你要给114亿美元，这个要填空
-You paid a total of 60 million U.S. dollars, that is, you have to give 11.4 billion U.S. dollars, and you have to fill in the blanks
+4、[**四大企业将合作开发摩托车氢燃料发动机**](https://china.kyodonews.net/news/2021/11/42ecbfceec51.html)
 
-你要都提，那就是给它砸下来，砸到1毛钱，你就在恢复到6000万美元
-If you want cash them all, it is to smash it down, if you smash it to 10 cents, the market cap return to 60 million US dollars
+日本川崎重工业公司和雅马哈发动机公司13日发布消息称，已开始探讨共同研发用于两轮摩托车的氢燃料发动机。本田和铃木今后也将加入，国内四大摩托车厂家为实现去碳化社会将携手合作。
 
-就这么简单，人家不会给你120亿美元，没有人可以给你120亿美元
-It’s as simple as that, people won’t give you 12 billion U.S. dollars, no one can give you 12 billion U.S. dollars
+5、[**疫情下2020年度日本婚礼平均费用创新低**](https://china.kyodonews.net/news/2021/11/6971152277ed-2020.html)
 
-你千万别做梦，我就是想拿120亿进去，它也不会让我拿
-Don’t dream it, I just want to take 12 billion in, it won’t let that happen
+共同社14日消息，日本出版结婚信息杂志《皆喜》（ZEXY）的瑞可利公司日前发布的结婚趋势调查等显示，2020年度全国每对新人婚礼及婚宴总费用平均较上年度减少70万日元，为292.3万日元（约合人民币16万元）。创2005年度开始全国调查以来新低。
 
-交易所凭啥让你拿呀，我给你什么钱，
-Why did the exchange let you take it? What money will I give you
-
-你把它砸回（之前的价格），但是你砸完以后，前提你是把你的币抛出去了
-You smash it back to the previous price, but after you smash it, but the result is that you sell out your coins
-
-你币抛出去，你再回来是不可能的，就包括你提了现
-If your coins are sold out, it is impossible for you to come back, including you cash it
-
-你提了现，现在很简单，你把现提完以后，
-You have withdrawn the cash, it is very simple now, after you have withdrawn the cash
-
-你想拥有以后的权利那是永远不可能
-it’s never possible that you want to have the same rights in the future
-
-你没币怎么可能拥有权利呢，这不很简单吗，是吧？
-How can you have the same rights without H coins? Isn’t that simple? right?
-
-铸币权啦，什么生长权啦，然后明年的认购权都是没有的
-Minting rights, growth rights, and no subscription rights for next year
-
-但是，给你的选择是，
-However, the choice given to you is,
-
-一，我卖掉我的未来，我拿走我每天提现权，10万
-One, I sell out my future, I take away my daily withdrawal rights, 100,000 dollars
-
-二，我想要未来，我合理的使用我的币, 你可以兑现一些，但不是抛售
-Second, I want the future, I use my coins reasonably, you can cash out some, but not sell them all
-
-你只要不抛售，是交易，那你所有的都能保住，就这么简单，是吧
-As long as you don’t dumping, just trading, then you can keep everything, it’s that simple, right?
-
-然后呢，如果你的耐心足够到明年5月份的话
-Then, if you have enough patience until May next year
-
-你会验证很多事情，这个币是真花钱，能买啥，能有交易
-You will witness many things, this coin is really circulating, what can be bought, and there can be transactions
-
-我说三周，三周，你可以的话咱们再说
-I said three weeks, three weeks, let’s talk again later
-
-今天坐在这儿，咱们这个大直播的时候
-Sitting here today, during our grand live broadcast
-
-想想十天前，你们谁相信过喜币能到今天
-Think about ten days ago, who of you believed that H-coin could be the result to-day
-
-**原视频链接** :[https://twitter.com/se1y7cblljselva/status/1459086321100726284?s=24](https://twitter.com/se1y7cblljselva/status/1459086321100726284?s=24)
-
-Date:11/13/2021
-原视频标题: 关于喜马拉雅币提现问题
-Regarding the withdrawal cash from Himalayan coins
-原视频日期：2021/11/10
-任务编号：KC250（2856）
-视频时间段 : 0:00-2:10
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片: 洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：东京樱花团 / 文小白
+发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
