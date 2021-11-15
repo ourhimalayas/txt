@@ -2,29 +2,36 @@
 ---
 
 
-## 辉瑞公司首席执行官的妻子因接种疫苗引发的并发症而去世
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1666673/)
+## 新中国联邦国防军即将履行使命
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666719/)
 
-By 意大利罗马达芬奇农场 – 袅袅小队长
+作者：纽约香草山农场 – 四季
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在11月14日的大直播中透露，拥有世界一流装备的新中国联邦国防军，将在明年5月份开始在全世界各地履行使命。
 
-马瑞安.布尔拉（Myriam Bourla），现年48岁，是辉瑞首席执行官阿尔伯特·布尔拉（Albert Bourla）的妻子，据马瑞安.布尔拉的医生称，她于周三（11月10日）早些时候死于注射 COVID-19 疫苗的并发症。马瑞安.布尔拉（Myriam Bourla）被护理人员送入在纽约长老会劳伦斯医院，并在医院的急诊室去世，死因被列为由辉瑞疫苗引发的并发症。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-12.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/截屏2021-11-12-23.13.30-2-1.jpeg)图片左：马瑞安.布尔拉
+郭先生在半年前就已经安排了，新中国联邦的国防军，也叫雇佣军，由西方国家当地警察，特种兵及退伍军人组成。他们持有当地国家军人牌照，合法拥有及操作武器，并有能力调动本地人脉和资源，将全副武装在世界范围内保护华人。 
 
-马瑞安.布尔拉（Myriam Bourla）和她的丈夫住在纽约市郊的斯卡斯代尔区。布尔拉与很多一样对她丈夫的注射实验性疫苗表示怀疑，最初拒绝接种。在接受 Scarsdale 10583（当地的社区新闻网站） 采访布尔拉时，她表示虽然她为丈夫所做的工作 “感到自豪”，但她最初拒绝接种疫苗，称 “还没有轮到她”。
+针对未来全世界华人即将面临的排华危机，郭先生诠释了新中国联邦的使命，即只要是黄皮肤人，不分敌我。新中国联邦不仅保护爆料革命战友，即便是伪类受到欺辱，也会受到保护。在一些国家的中国城，例如旧金山，洛杉矶，温哥华，日本、伦敦等地，以及战友聚集的西班牙等欧洲其他国家将派驻合法拥有武装的国防军，保护新中国联邦战友和华人。他们使用的车辆上将显示新中国联邦的标识和旗帜，向世人宣誓新中国联邦的武装力量。 
 
-她曾说：“我只是想传达我为我的丈夫和他所做的工作感到非常自豪。我也为人类和疫苗带给世界的希望感到高兴。我还没有接种疫苗，因为还没有轮到我。”
+郭先生对所有西方国家的华人发出了“排华”即将到来的警告。新中国联邦人只有紧紧的团结在一起，才能度过未来的灾难。
 
-许多人据此认为，这一声明表明马瑞安.布尔拉和许多人一样，对未经充分测试的疫苗持怀疑态度。
+参考链接：[2021年11月14日文贵大直播](https://gtv.org/video/id=61910d9be7e770379234d270)
 
-新闻来源：
-[Wife of Pfizer’s CEO dies after complications from the vaccine](https://www.conservativebeaver.com/2021/11/10/the-wife-of-pfizers-ceo-dies-from-complications-from-the-vaccine/)
-[Wife of Pfizer CEO Has Not Had the Vaccine Yet Because She Says, “It’s Not My Turn”](https://scarsdale10583.com/section-table/30-neighborhood-news/8766-wife-of-pfizer-ceo-has-not-had-the-vaccine-yet-because-it-s-not-her-turn)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-* * *
+总编：文真
+编辑：Ivy001
+校正/发稿：谐趣园
 
-校对/上传：阿娜意大利
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

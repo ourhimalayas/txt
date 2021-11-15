@@ -2,36 +2,39 @@
 ---
 
 
-## 班农先生被司法部起诉的意义
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666751/)
+## 国际女网协会主席发声明要求中共全面调查彭帅性侵指控
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1666791/)
 
-作者：美东香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在11月14日的大直播中透露，早在一个多月以前，他就告知班农先生，中共勾兑美国内部势力，借“1月6日国会大厦暴动事件”调查，通过司法程序起诉他。
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2-6.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/26B217D6-7958-4F6A-9775-06D79C8E906F.jpeg)（图片来源：德国之声）
 
-中共盲目自大地认为，通过对美国两党和司法的渗透，可以控制美国的政治。班农先生被起诉，使美国人，特别是保守派，看到中共对美国共和党的威胁，对美国选举自由的威胁。从而使美国官方更严肃地重视新中国联邦，加紧保护和承认新中国联邦。
+11月14日，国际女子网球协会主席西蒙 （Steve Simon)）发表公开声明，呼吁中共政府对彭帅做出的性侵指控进行全面性调查。
 
-班农先生被起诉，还意味着，美国媒体的大重启。美国严肃媒体，诸如福克斯、华尔街日报等，回避疫苗灾难问题，原因是百分之五十至七十的广告费来自大药厂。这些媒体同样一致地封杀班农事件，是因为大药厂和传统媒体背后有共同的老板。
+据《德国之声》报道，西蒙在声明中写道：“彭帅，以及所有女性，都应该被倾听，而不是被审查。她对一位前中（共）国领导人涉及性侵犯的指控必须得到最严肃的对待。在所有社会中，她指称发生的行为都需要被调查，而不是被纵容或忽视。我们赞扬彭帅站出来的非凡勇气。”
 
-班农先生将新中国联邦创始人、宣言人的身份，视作他一生最大的荣耀。中共的疯狂，让美国两党都感受到威胁。班农先生是美国建国以来，自华盛顿后，因国会调查被起诉的人。班农先生无疑会成为美国政治的教父。班农先生作为新中国联邦成立的宣言人，成为世界焦点，成了美国政治风向标，受益者一定是新中国联邦。
+西蒙表示，国际女子网球协会希望此事能得到适当处理，中共政府必须针对彭帅做出的指控进行全面、公平、透明的调查，且过程中不应有审查的情况。
 
-参考链接：[2021年11月14日文贵大直播](https://gtv.org/video/id=61910d9be7e770379234d270)
+此外，多名网球选手也同时在推特上以“彭帅哪儿去了”（Where is PengShuai）这一关键字询问彭帅的下落。其中包括：曾赢得18项大满贯单打冠军的美国名将艾芙特 （Chris Evert）、今年赢得法国网球公开赛男双冠军的法国男网选手马胡特 （Nicolas Mahut）、英国男子网球选手布罗迪 （Liam Broady）以及法国女子网球选手柯内特 （Alize Cornet）等。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+彭帅自11月2日在微博上发帖公开指控中共前任副总理张高丽性胁迫后，便再也没有出现在公众视野中。目前，有关她的安危及人在何处，仍没有进一步的消息。
 
-总编：文真
-编辑：Ivy001
-校正/发稿：谐趣园
+注：本文仅代表作者观点
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*参考链接：*
+
+[*https://www.dw.com/zh/%E5%9B%BD%E9%99%85%E5%A5%B3%E7%BD%91%E5%8D%8F%E4%BC%9A%E5%85%B3%E6%B3%A8%E5%BD%AD%E5%B8%85-%E8%A6%81%E6%B1%82%E5%8C%97%E4%BA%AC%E5%85%A8%E9%9D%A2%E8%B0%83%E6%9F%A5%E6%80%A7%E4%BE%B5%E6%8C%87%E6%8E%A7/a-59818229*](https://www.dw.com/zh/%E5%9B%BD%E9%99%85%E5%A5%B3%E7%BD%91%E5%8D%8F%E4%BC%9A%E5%85%B3%E6%B3%A8%E5%BD%AD%E5%B8%85-%E8%A6%81%E6%B1%82%E5%8C%97%E4%BA%AC%E5%85%A8%E9%9D%A2%E8%B0%83%E6%9F%A5%E6%80%A7%E4%BE%B5%E6%8C%87%E6%8E%A7/a-59818229)
+
+* * *
+
+
+```
+素材采编：幽蘭自得
+编辑：青衣青青
+发布：miumiu
+```
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
