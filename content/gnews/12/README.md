@@ -2,50 +2,36 @@
 ---
 
 
-## Edward：马尔堡新病毒可能即将来临
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1665879/)
+## 突发：中共欲再利用彭斯挑战特朗普，1/6调查或将背水一战
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1665970/)
 
-**简评：**
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh4.googleusercontent.com/bsCgNVj4RUM03EoCW3YNflaOHZKVya94YzIWUL7hjj21Ikfvzsg_H5ScvwhKx0uSbDIEJM1ECDWFuP1QpSVXGJbXXzEh4yoOjkswQtdYahDvb2MNSV9y5pXEquvGcz5guQTq7Q_Q)[图片来源](https://www.newsweek.com/trump-rails-against-1-6-investigation-subpoenas-gain-force-rioters-sentenced-1649063?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1636931480959&amp;subscriberId=618632587623c90ce1da6a7e)
+据[新闻周刊14日消息](https://www.newsweek.com/trump-rails-against-1-6-investigation-subpoenas-gain-force-rioters-sentenced-1649063?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1636931480959&amp;subscriberId=618632587623c90ce1da6a7e)称， 前总统唐纳德·特朗普抨击对 1 月 6 日国会骚乱的调查，两天前他的前顾问史蒂夫·班农因无视众议院特别委员会对叛乱调查的传票而被起诉藐视国会。特朗普质问为什么没有对“在选举中作弊的人和州”进行调查，并反复重申了2020总统选举被盗。
 
-五角大楼正在谈论马尔堡病毒。这是一种致死率高达88%的疾病，与埃博拉相近，有两到三周的无症状潜伏期，然后两三天内迅速爆发，致人于死地。巧合的是，发现马尔堡的德国小镇正是mRNA疫苗的生产基地，马尔堡也是通过蝙蝠传播。更巧的是，马尔堡病毒就像新冠病毒一样，有恰好准备好的疫苗。强生公司正在快速推进一种治疗马尔堡埃博拉的疫苗，现在正进行临床和活体实验。
+相反，他们没有对选举舞弊进行调查，而正在恶毒地调查那些抗议 11 月 3 日总统选举的人，这是世纪罪行。正如中共国一句民间谚语所言，不解决提出的问题，而只解决提出问题的人。
 
-[GTV视频链接](https://gtv.org/video/id=618e75d61827025081047ba7)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/111510.jpg)
-**视频字幕：**
+特朗普补充说：“美国爱国者不会允许这种颠覆正义的行为继续下去，包括使用地方州和联邦检察官来折磨和摧毁无辜的人。所有这一切任由发生，我们的国家将要下地狱！”
 
-**记者：**五角大楼表示：一种新的大流行病可能即将到来。与我谈过的官员说，在五角大楼里正在讨论马尔堡的大流行。
+周日，特朗普对于起诉班农并采取法律行动的行为谴责说：“**这个国家可能从未对任何人做过他们对史蒂夫·班农做的事情，他们也希望对其他人做**。”并且说，“如果他们尊重我们对中国、俄罗斯的强硬立场，也许国家就不会失败到前所未有过的水平。”
 
-马尔堡非常怪异，是致命性很高的疾病。它与埃博拉非常相近，但有更长的潜伏期，大约两到三周的无症状期，然后在两到三天内迅速爆发，非常致命。据Gavin所说，“疫苗联盟”认为它的致死率约为88%。
+有意思的是，司法部检察官声称，亚利桑那州本地人[雅各布·钱斯利](https://www.newsweek.com/harshest-capitol-riot-sentence-yet-recommended-flagbearer-qanon-shaman-1647936)因其在 1 月 6 日起义中的作用而入狱 51 个月。 “钱斯利是最早进入参议院的30名骚乱者之一，他在当时的副总统迈克彭斯主持认证的讲台上留下了一张纸条。据称，纸条上写着：“这只是时间问题，正义即将到来。”言外之意，有人希望彭斯支持特朗普并作出正确的决定。而这不确定的纸条似乎被利用来抨击前总统特朗普。
 
-有趣的是，马尔堡是在1967年以一个德国小镇命名，在那里首个病例被隔离。辉瑞生物科技正是在这个小镇生产mRNA疫苗。真是个奇怪的巧合。
-
-但根据Gaffe和我能够从CDC和其他rumble在线资源上找到的信息来看，这是由埃及复位果蝙蝠传播的，另一个涉及蝙蝠的病毒。
-
-Gavin今年4月22日透露，他们认为下一个大流行病将是马尔堡。现在我也从一些军官那里听到了这个消息。
-
-问题是马尔堡就像冠状病毒一样，恰好有准备好的疫苗。强生公司称，他们正在生产一种治疗马尔堡埃博拉病毒的疫苗，称为“MVA-BN Filo”，现在正被迅速推进开发中。据强生说是由Janssen公司生产。该疫苗正在进行多期，包括一期、二期和三期的儿童和老人的临床试验以及活体试验。强生正在为欧洲、美国和非洲的免疫力低下的人做这个实验。
+- ***延展阅读：***[***亚当希夫：起诉书强制传唤证人史蒂夫班农到国会出庭做证***](https://www.newsweek.com/steve-bannon-indictment-already-compelling-witnesses-answer-subpoenas-adam-schiff-1649109)
+- ***延展阅读：***[***1 月 6 日骚乱期间，迈克·彭斯躲在地下停车场的“装卸码头”中***](https://www.newsweek.com/mike-pence-january-6-riot-loading-dock-underground-parking-garage-1647353)
 
 
+无独有偶，继蓬佩奥宣布参选总统后，迈克·彭斯前顾问发拉称，彭斯将在 2024 年与特朗普“展开一场激烈的战斗”如果这是真的，至少特朗普的领导班子中有他的左右手与他同台竞争，亦敌亦友，孰是孰非？
 
-*字幕: 雨中漫步 | 听写：云岭 | 翻译：致良知 |校对：Roberts | 简评/文字整理/编辑：胖丁*
+法拉警告说：“唐纳德·特朗普的加冕对党和国家来说都是最糟糕的事情，但对国家来说更重要。”她说，[特朗普的共和党挑战者需要反驳他关于2020大选被“窃取”的虚假说法](https://www.newsweek.com/mike-pence-will-put-formidable-fight-against-trump-2024-former-adviser-predicts-1649069?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1636931480959&amp;subscriberId=618632587623c90ce1da6a7e)。
 
-* * *
+这一故事似乎很熟悉，幕后总导演一定是中国共产党。对此，新中国联邦创建者郭文贵先生评价说，“关于班农先生的事，42天前，我就告诉班农先生，共产党和美国一定会把你战斗室干掉，而且通过法院，以1月6日事件为由。”不幸，又被郭先生言中了。更可怕的是，下一个就是川普。郭先生解释说，“不是我蒙的，根据国内情报。这是中美之间邪恶力量的较量。”（见[23:46 时段](https://gettr.com/post/pgwfu22cfa)）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+2021年11月15日
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
-
-
-
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,37 +2,57 @@
 ---
 
 
-## 新中国联邦安防对砸郭者欺民贼和伪民运一视同仁意味着啥
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1666044/)
+## 新冠疫苗比以前想象的可能更加危险
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1666106/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2196ba0f3abf40578bedc2e930fd1e96_副本.jpg)
-郭文贵先生在[2021年10月22日 文贵大直播：马云为什么在西班牙而不敢回香港；吴征成功拿下川普，共产党已经控制了川普；习的行为都是个人恩怨造成的；中共六中全会会发生什么，会有什么结果；G系列是让共产党最害怕的](https://gtv.org/video/id=6172b02683e948708d05c1b9)直播中提出的对海外华人及亚裔的保护计划，尤其是郭先生提到的［在这个问题上全球化的新中国联邦不分敌我，不分所谓民主、老民主还是砸锅挺锅的，一概全都保护。这个将是一个大的工程，今天可以告诉，今天是直播中的重点。］
+**简评：**
 
-四年来各式伪民运、欺民贼以及曾经的战友的背叛和出卖一直与爆料革命如影相随，作为人类迄今为止一场最大规模的非暴力运动，消灭共产党一直是爆料革命重要使命，在四年后的今天，在爆料革命、新中国联邦在保护海外华人安全时对欺民贼、伪民运和背叛爆料革命的原战友们的一视同仁却意义深远，这种一视同仁愈加彰显法治基金和法治社会的愿景——让中国人民生活在一个法治独立、信仰自由、言论自由且私有财产受到永久法律保护的新中国联邦政治体制。
+美国全国范围内正在抗议拜登政府违反宪法的强制疫苗令，已经有数十万人为了捍卫他们的权利和个人自由而失去了工作。越来越多的证据表明新冠疫苗不仅未经证实，而且非常危险。VAERS疫苗不良事件官方数据库显示，超过30万人死于疫苗事故。最可怕的是对儿童造成的伤害，导致儿童心肌炎的发病率极高，许多孩子会在诊断后的5年内死亡。儿童本身对新冠病毒有免疫能力，本来不需要接种新冠疫苗。
 
-因为爆料革命和新中国联邦并不仅仅是战友们的，她也是中国人民的，她更是全人类的。爆料革命和新中国联邦对砸郭者、砸爆料革命者、欺民贼、伪民运以及背叛爆料革命的前战友们一视同仁的安全保护，是对人的生命权和财产权的最大尊重，因为即使他们是我们的敌人，即使我们反对他们说出的每一句话，但我们依然誓死捍卫他们说话的权利。
+[GTV视频链接](https://gtv.org/video/id=618cc4891827025081041994)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/111512.jpg)
+**视频字幕：**
 
-撰稿：喜马拉雅的肉夹馍；
+**主持人：**随着越来越多的美国人站出来反对拜登的强制疫苗，越来越多的证据表明，COVID疫苗可能比以前想像的更加危险。
 
-审核：喜马拉雅的馍夹肉；
+**画外音：**以下来自One America’s Pearson Sharp。全国范围内，美国人正在反击拜登政府违反宪法的强制疫苗。已经有数十万人因为要求他们的权利和个人自由被尊重，而失去工作或被解雇。
 
-校对：Maarago
+考虑到越来越多的证据表明冠状病毒疫苗不仅未经证实，而且现在来看是危险的。One American news采访了疫苗安全研究基金会的主席和创始人Steve Kirsch，该组织致力于提高人们对注射冠状病毒疫苗风险的认识。
 
-（文章内容仅代表作者个人观点）
+**Steve Kirsch****：**我们疫苗安全研究基金会的目标是让人们了解这些疫苗的安全性。人们接种疫苗后发生的疫苗伤害和死亡事件的数量，是促使我们创建这个机构的原因。我接种疫苗后，我开始听到有人因疫苗受伤或因疫苗死亡的故事。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+最极端的是来自瑞典的一个朋友，她的三个亲属在接种疫苗后一周内死亡，而他们之前都很健康。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**画外音：**Kirsch最近在FDA作证，并提出他对这些疫苗规定的担忧。虽然目前的疫苗是由CDC等政府机构推广的，但Kirsch说，正是从这些机构（的资料），他的研究发现了惊人的证据，揭示了疫苗是造成惊人数量死亡的原因。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+**Steve Kirsch****：**看一下VAERS系统中的数据，也就是疫苗不良事件报告系统。这是疫苗不良事件的官方存储库，当你看VAERS系统中报告的死亡人数时，报告的死亡人数超过7500人。但根据CDC的方法，各种系统少报了41倍。因此，你必须将7500人乘以41，然后再减去正常死亡人数，你会发现有超过30万人被疫苗杀死。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+**画外音：**Kirsch解释说，最可怕的是这些疫苗对美国儿童造成的伤害，因为他们基本对冠状病毒有免疫力。包括儿科医生和心脏病专家Kirk Melhon在内的医生说，每年因流感病毒进入ICU的儿童比因COVID而进入ICU的多四倍。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+仅管风险如此低。Steve Kirsch说，使用CDC自己的方法，数据显示，每百万剂量的疫苗约有30名儿童死亡。政府说打算为2800万名5至11岁孩子接种疫苗，他们的统计数据显示，可能挽救14名儿童的生命。然而，这些注射也将直接导致800多名儿童死亡。这不划算。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+**Steve Kirsch****：**可悲的是，我们正在伤害我们的孩子，心肌炎的发病率比FDA和CDC承认的要高得多，而且对这些孩子造成的伤害是永久的。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+这不是轻微的心肌炎病例。就住院不到一周的时间，可以说是轻微的。但是这些孩子中的许多最终可能在诊断后的5年内死亡。
+
+*字幕: 雨中漫步 | 听写：云岭 | 翻译：致良知 |校对：Roberts | 简评/文字整理/编辑：胖丁*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
+
+
+
 
  
 
