@@ -2,20 +2,24 @@
 ---
 
 
-## 秘翻在线：完全接种疫苗的NFL明星本·罗斯利斯伯格新冠检测呈阳性
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1665751/)
+## 航班机长呼吁航空行业团结起来，反对暴政
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1665791/)
 
-#### 翻译/撰稿：zzballack
+#### 听写/翻译：奮鬥
+校对：Lish
+剪辑/字幕：蛮吉
+编辑：枳实
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-285.png)  图片来源：CNN
-据《布雷特巴特新闻网》（Breitbart News）11月14日报道，尽管已完全接种了新冠疫苗，但是NFL球队匹兹堡钢人队的四分卫本·罗斯利斯伯格 (Ben Roethlisberger)最近的一次新冠检测呈阳性，不得不被球队放进新冠保留区名单（COVID-19 reserve list）。根据NFL的要求，他将被隔离十天。
+视频链接：[Hundreds protest Los Angeles COVID-19 vaccine mandates: ‘We shouldn’t be forced](https://www.foxnews.com/us/los-angeles-covid-19-vaccine-mandate-protest)’
 
-现年39岁的罗斯利斯伯格上周做客《丹·柏德烈秀》 (The Dan Patrick Show) 时当谈到了球员在更衣室里应遵循的协议，他说他已完全接种了疫苗，“我认为如果你没有接种疫苗，那么应该戴上口罩。我不知道我们队里有哪些人接种了，哪些人没接种。但我知道我接种了疫苗，所以我不需要戴口罩。”
+发布：枳实
 
-新闻来源：[Vaccinated Steelers QB Ben Roethlisberger Placed on COVID-19 List](https://www.breitbart.com/sports/2021/11/14/vaccinated-steelers-qb-ben-roethlisberger-placed-on-covid-19-list/)
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

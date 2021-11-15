@@ -2,19 +2,24 @@
 ---
 
 
-## 中共病毒口服药比疫苗还毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1665687/)
+## 反腐党在保加利亚大选中领先
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1665767/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-11月10日，郭文贵先生在GTV大直播强调：
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/kiril-petkow-l-und-assen.jpg)
 
-中共病毒口服药是当年对付艾滋病、淋病，对付非洲的痢疾、霍乱的药方，这个药激素的副作用很大，更夸张的是会诱发严重心脏病，欧洲科学家告诉郭先生这个口服药比疫苗还毒，这个口服药吃进以后分解完，直接影响神经系统，然后才是循环系统，触发各种更加隐蔽的慢性疾病。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+资料来源：FAZ
+
+根据初步预测，一个新的反腐败政党将在保加利亚议会选举中领先。它与资产阶级GERB党并驾齐驱。 三个投票机构在周日晚上看到反腐党获得了 26% 的选票。
+
+保加利亚走上“新道路”，反腐败党党联合主席基里尔佩特科夫在选举之夜说。美国名牌大学哈佛的毕业生提出了围绕新党组建联合政府的前景。与其他政党代表的联盟谈判应于周一开始。佩特科夫排除了与 GERB 党和 DPS 党的合作。 他将反腐败和司法改革列为主要目标。 5 月至 9 月，佩特科夫担任过渡内阁的经济事务部长。
+
+原文链接：[新闻来源：德国法兰克福报网页版](https://www.faz.net/aktuell/politik/ausland/anti-korruptions-partei-liegt-bei-wahl-in-bulgarien-vorn-17634777.html)
+
+责任编辑、发布： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
