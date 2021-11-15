@@ -15,107 +15,107 @@
 
 ---
 
-### [疫苗病毒是习和常委军委下的命令](/content/gnews/1/README.md)
+### [国内实际病毒感染人数与已经面临的疫苗危机](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [串珠451:轰炸京西宾馆，中共高官人人得而杀之！](/content/gnews/2/README.md)
+### [六中全会后，习成为全党公敌，对新中国联邦是天大好消息！](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [沈南鹏抛小米资产，恒大地产爆违约](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [串珠452:中共将在美国从西到东释放新型病毒](/content/gnews/4/README.md)
  ` 郭爆料串珠`
 
-### [习不代表中国人民素质 恰恰更应该救更多的中国人](/content/gnews/3/README.md)
+### [疫苗病毒是习和常委军委下的命令](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国经济一塌糊涂，必将引起经济崩溃！](/content/gnews/4/README.md)
+### [串珠451:轰炸京西宾馆，中共高官人人得而杀之！](/content/gnews/6/README.md)
+ ` 郭爆料串珠`
+
+### [习不代表中国人民素质 恰恰更应该救更多的中国人](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [把中共推上世界舞台的人，还在试图向中共妥协](/content/gnews/5/README.md)
+### [中共国经济一塌糊涂，必将引起经济崩溃！](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共禁止台湾民进党领袖及其亲属去往大陆](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [五万人抗议中共病毒疫苗，澳大利亚墨尔本史上最大游行](/content/gnews/6/README.md)
+### [把中共推上世界舞台的人，还在试图向中共妥协](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [讨共热潮 担心排华 建立国防系统](/content/gnews/7/README.md)
+### [五万人抗议中共病毒疫苗，澳大利亚墨尔本史上最大游行](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [讨共热潮 担心排华 建立国防系统](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [靠什么治愈中共在中国教育和文化及思想里植入的病毒](/content/gnews/8/README.md)
+### [靠什么治愈中共在中国教育和文化及思想里植入的病毒](/content/gnews/13/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [喜联储喜币喜美元在法律范围内改变规则，不允许洗钱犯罪](/content/gnews/9/README.md)
+### [喜联储喜币喜美元在法律范围内改变规则，不允许洗钱犯罪](/content/gnews/14/README.md)
  ` MG 澳喜农场多语组`
 
-### [庄河疫情是中共国现状的缩影](/content/gnews/10/README.md)
+### [庄河疫情是中共国现状的缩影](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线： 拼命贱卖资产的恒大最终肯定会破产](/content/gnews/11/README.md)
+### [秘翻在线： 拼命贱卖资产的恒大最终肯定会破产](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [共产党要干掉班农和川普,邪恶势力与共产党是同一个老板](/content/gnews/12/README.md)
+### [共产党要干掉班农和川普,邪恶势力与共产党是同一个老板](/content/gnews/17/README.md)
  ` NewFOC`
 
-### [重置与澳大利亚华人的关系](/content/gnews/13/README.md)
+### [重置与澳大利亚华人的关系](/content/gnews/18/README.md)
  ` 走进澳洲`
 
-### [自然免疫力比疫苗更有效，且能持续终生](/content/gnews/14/README.md)
+### [自然免疫力比疫苗更有效，且能持续终生](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [谁给出的这招](/content/gnews/15/README.md)
+### [谁给出的这招](/content/gnews/20/README.md)
  ` 银河勇气之星`
 
-### [2021年11月15日 要闻摘要](/content/gnews/16/README.md)
+### [2021年11月15日 要闻摘要](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [新冠疫苗比以前想象的可能更加危险](/content/gnews/17/README.md)
+### [新冠疫苗比以前想象的可能更加危险](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [11/15/2021国际财经快讯：美辞职大潮继续升温；通货膨胀已经一发不可收](/content/gnews/18/README.md)
+### [11/15/2021国际财经快讯：美辞职大潮继续升温；通货膨胀已经一发不可收](/content/gnews/23/README.md)
  ` 秘密翻译组金融团队`
 
-### [西媒头条 — 第108期](/content/gnews/19/README.md)
+### [西媒头条 — 第108期](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新中国联邦安防对砸郭者欺民贼和伪民运一视同仁意味着啥](/content/gnews/20/README.md)
- ` NewFOC`
-
-### [中共国对澳大利亚构成 &#8220;威胁&#8221;](/content/gnews/21/README.md)
+### [中共国对澳大利亚构成 &#8220;威胁&#8221;](/content/gnews/25/README.md)
  ` 走进澳洲`
 
-### [2021/11/10 班农专访6: 美联储紧张中共国房地产市场坍塌](/content/gnews/22/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [日本要闻汇编 11月15日](/content/gnews/23/README.md)
+### [日本要闻汇编 11月15日](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [银河快讯: 日本考虑恢复国内旅游补贴；400万剂第三针疫苗明天起交付使用](/content/gnews/24/README.md)
+### [银河快讯: 日本考虑恢复国内旅游补贴；400万剂第三针疫苗明天起交付使用](/content/gnews/27/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [7·24系列——保利公司刘平](/content/gnews/25/README.md)
+### [7·24系列——保利公司刘平](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [突发：中共欲再利用彭斯挑战特朗普，1/6调查或将背水一战](/content/gnews/26/README.md)
+### [突发：中共欲再利用彭斯挑战特朗普，1/6调查或将背水一战](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [欧洲在芯片行业的现状](/content/gnews/27/README.md)
+### [马斯克出售价值近 70 亿美元的特斯拉股票](/content/gnews/30/README.md)
  ` Shuizhuyu`
 
-### [马斯克出售价值近 70 亿美元的特斯拉股票](/content/gnews/28/README.md)
- ` Shuizhuyu`
-
-### [女子职业网球巡回赛主席呼吁调查彭帅被张高丽性侵事件](/content/gnews/29/README.md)
+### [女子职业网球巡回赛主席呼吁调查彭帅被张高丽性侵事件](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [肠道生物群落与冠状病毒、疫苗和抗体依赖性增强的关系](/content/gnews/30/README.md)
+### [肠道生物群落与冠状病毒、疫苗和抗体依赖性增强的关系](/content/gnews/32/README.md)
  ` 澳喜农场`
 
-### [值得典藏之郭文贵先生推荐的那些书](/content/gnews/31/README.md)
+### [秘翻在线：完全接种疫苗的NFL明星本·罗斯利斯伯格新冠检测呈阳性](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：完全接种疫苗的NFL明星本·罗斯利斯伯格新冠检测呈阳性](/content/gnews/32/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [北交所税收优惠，是“重大利好”还是“血本无归”](/content/gnews/33/README.md)
+### [北交所税收优惠，是“重大利好”还是“血本无归”](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [福奇承认接种疫苗者现处于极大危险中](/content/gnews/34/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [纳瓦罗：福奇该去蹲监狱，中共必须为20万亿损失负责](/content/gnews/35/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
