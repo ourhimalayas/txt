@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/15/2021 2:39 PM (UTC)`
+
+【辉瑞公司首席执行官阿尔伯特.波拉11月9日声称，传播疫苗错误信息的人（反对疫苗）是罪犯，他们正在造成生命的损失。第二天（11月10日）早上他的太太被送入纽约长老会劳伦斯医院的急诊室后死亡。保守派比弗网站报道， 根据辉瑞公司总裁太太的医师的消息，死因是辉瑞公司疫苗的并发症。<br/><br/>在阿尔伯特的妻子去世后，他们要求保护隐私。法官已经批准了临时的媒体封锁。所有美国大媒体都没有报道这件事情。在网上通过搜索得到几个自媒体的报道，包括非右派的自媒体。保守派比弗的总部在加拿大，不受法官裁决的约束】
+![img](https://media.gettr.com/group19/getter/2021/11/15/14/36/1648f9ab-7b67-6a90-4637-0c115a87397a/out.jpg)
+
+---
+
 `@miles 11/15/2021 11:37 AM (UTC)`
 
 Dr. Shankara Chetty (a general practitioner with a natural science background in genetics, advanced biology, microbiology and biochemistry): <br/>Spike protein is one of the most contrived toxins or poisons that man has ever made, and the aim of this toxin is to kill billions without anyone noticing it.<br/><br/>Shankara Chetty 博士（在遗传学、高等生物学、微生物学和生物化学领域具有自然科学背景的全科医生）：<br/>刺突蛋白是人类有史以来最精心策划的毒素或毒药之一,这种毒素的目的是在没有人注意的情况下杀死数十亿人。 #vaccinedeath #covid19 #covidtruth
@@ -289,13 +296,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 11/10/2021 Miles Guo: Internal report from the 6th Plenary Session of the 19th Central Committee exposed the CCP is experiencing sharp decrease in its foreign exchange reserve and facing an undesirable coexistence of both the trade deficit and trade surplus - a dilemma of low end products surplus and the inaccessibility to high-end products such as computer chips<br/><br/>11/10/2021 文贵直播：中共六中全会内部报告曝光中共国外汇储备急剧下降，中共面临逆差、顺差双并行的不利局面 - 低端产品贸易顺差和高端芯片等产品买不到的困局<br/>
 ![img](https://media.gettr.com/group48/getter/2021/11/10/20/43/63f80be9-e524-3bff-5a9f-0aa834fa7974/out.jpg)
-
----
-
-`@miles 11/10/2021 8:39 PM (UTC)`
-
-11/10/2021 Miles Guo: Exposed from the internal report of the 6th Plenary Session: the CCP virus caused huge shortage of medical personnel, because：1）numerous frontline doctors resigned or passed away; 2）adverse effects of the vaccine; 3）the deceiving propaganda of CCP led to huge exit of the frontline doctors, some even fled out of the country<br/><br/>11/10/2021 文贵直播：中共六中全会内部报告爆料，中共病毒导致医疗人士和专家人员极为短缺，原因有三：1）前线医生大量离职或死亡，2）疫苗后遗症，3）因国内的虚假宣传，前线医生大量离职乃至逃亡他国<br/>
-![img](https://media.gettr.com/group41/getter/2021/11/10/20/39/f29c629f-5bee-4efe-17ea-5c0c3954868b/out.jpg)
 
 ---
 
