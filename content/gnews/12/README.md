@@ -2,35 +2,33 @@
 ---
 
 
-## 突发：中共欲再利用彭斯挑战特朗普，1/6调查或将背水一战
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1665970/)
+## 日本要闻汇编 11月15日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666032/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh4.googleusercontent.com/bsCgNVj4RUM03EoCW3YNflaOHZKVya94YzIWUL7hjj21Ikfvzsg_H5ScvwhKx0uSbDIEJM1ECDWFuP1QpSVXGJbXXzEh4yoOjkswQtdYahDvb2MNSV9y5pXEquvGcz5guQTq7Q_Q)[图片来源](https://www.newsweek.com/trump-rails-against-1-6-investigation-subpoenas-gain-force-rioters-sentenced-1649063?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1636931480959&amp;subscriberId=618632587623c90ce1da6a7e)
-据[新闻周刊14日消息](https://www.newsweek.com/trump-rails-against-1-6-investigation-subpoenas-gain-force-rioters-sentenced-1649063?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1636931480959&amp;subscriberId=618632587623c90ce1da6a7e)称， 前总统唐纳德·特朗普抨击对 1 月 6 日国会骚乱的调查，两天前他的前顾问史蒂夫·班农因无视众议院特别委员会对叛乱调查的传票而被起诉藐视国会。特朗普质问为什么没有对“在选举中作弊的人和州”进行调查，并反复重申了2020总统选举被盗。
+素材：东京樱花团｜GNEWS组
+![](https://lh4.googleusercontent.com/BgNNbMfMIXhA8VIWTp2Pvn7PK1PbzPzH1Fcer_mEKhWCUgWP044Fz8XnVRJn03Gyf9vk3jeuzMQMJo7pYL3Op7sOR3Iv5O53ycihBm1ZfpJsgsvn9lhqDfVXhC5VFT53f0MHJicq)[*图片来源*](https://static.rti.org.tw/assets/thumbnails/2021/11/15/e01b6da7d96ecce83a76f327368b9f27.jpg)
+1、[**日经产相与美商务部长磋商钢铝关税问题**](https://china.kyodonews.net/news/2021/11/6c9f34d2a22f.html)
 
-相反，他们没有对选举舞弊进行调查，而正在恶毒地调查那些抗议 11 月 3 日总统选举的人，这是世纪罪行。正如中共国一句民间谚语所言，不解决提出的问题，而只解决提出问题的人。
+日本经济产业相萩生田光一15日在东京与美国商务部长雷蒙多举行会谈，磋商美国对从日本进口的钢铁和铝征收追加关税的问题。美国已与欧盟（EU）就部分免除追加关税达成协议。为在经济领域与中国抗衡，美国希望早日谈妥该问题，从而深化与日本的合作关系。
 
-特朗普补充说：“美国爱国者不会允许这种颠覆正义的行为继续下去，包括使用地方州和联邦检察官来折磨和摧毁无辜的人。所有这一切任由发生，我们的国家将要下地狱！”
+2、[**日本准航母＋菲导弹巡防舰  第一岛链防御阵线成形**](https://www.aboluowang.com/2021/1115/1672055.html)
 
-周日，特朗普对于起诉班农并采取法律行动的行为谴责说：“**这个国家可能从未对任何人做过他们对史蒂夫·班农做的事情，他们也希望对其他人做**。”并且说，“如果他们尊重我们对中国、俄罗斯的强硬立场，也许国家就不会失败到前所未有过的水平。”
+日本海上自卫队准航母、“出云级”直升机护卫舰“加贺号(DDH-184)”与菲国“荷塞·黎刹号(FF-150)”巡防舰在菲律宾海域进行海上友好训练。此行动宣示两国合作加强“开放自由印太”，事实串接第一岛链防御阵线。军事专家解读，日菲联合军演是“抗中升级”的一环，是为了可能爆发的区域冲突，像是台海战争预做准备。
 
-有意思的是，司法部检察官声称，亚利桑那州本地人[雅各布·钱斯利](https://www.newsweek.com/harshest-capitol-riot-sentence-yet-recommended-flagbearer-qanon-shaman-1647936)因其在 1 月 6 日起义中的作用而入狱 51 个月。 “钱斯利是最早进入参议院的30名骚乱者之一，他在当时的副总统迈克彭斯主持认证的讲台上留下了一张纸条。据称，纸条上写着：“这只是时间问题，正义即将到来。”言外之意，有人希望彭斯支持特朗普并作出正确的决定。而这不确定的纸条似乎被利用来抨击前总统特朗普。
+3、[**日经指数收高0.56% 高科技板块领涨**](https://china.kyodonews.net/news/2021/11/3a45b98e4603-056-.html)
 
-- ***延展阅读：***[***亚当希夫：起诉书强制传唤证人史蒂夫班农到国会出庭做证***](https://www.newsweek.com/steve-bannon-indictment-already-compelling-witnesses-answer-subpoenas-adam-schiff-1649109)
-- ***延展阅读：***[***1 月 6 日骚乱期间，迈克·彭斯躲在地下停车场的“装卸码头”中***](https://www.newsweek.com/mike-pence-january-6-riot-loading-dock-underground-parking-garage-1647353)
+东京股市15日迎来新的一周，日经指数连续3个交易日收涨。终盘比上周五上涨166.83点，收报29776.80点，涨幅为0.56%。东证指数（TOPIX）上涨7.92点至2048.52点，涨幅为0.39%。全天成交量约为11.63亿股。
 
+4、[**岸田与联合国副秘书长磋商“无核武世界”**](https://china.kyodonews.net/news/2021/11/0a3af96f81ff.html)
 
-无独有偶，继蓬佩奥宣布参选总统后，迈克·彭斯前顾问发拉称，彭斯将在 2024 年与特朗普“展开一场激烈的战斗”如果这是真的，至少特朗普的领导班子中有他的左右手与他同台竞争，亦敌亦友，孰是孰非？
+日本首相岸田文雄15日上午在官邸与联合国副秘书长、裁军事务高级代表中满泉举行会谈。两人围绕岸田作为来自核爆地广岛的首相力争实现的“无核武世界”交换了意见。据分析，会谈可能还提及了明年1月在美国纽约的联合国总部召开的《不扩散核武器条约》审议大会。
 
-法拉警告说：“唐纳德·特朗普的加冕对党和国家来说都是最糟糕的事情，但对国家来说更重要。”她说，[特朗普的共和党挑战者需要反驳他关于2020大选被“窃取”的虚假说法](https://www.newsweek.com/mike-pence-will-put-formidable-fight-against-trump-2024-former-adviser-predicts-1649069?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1636931480959&amp;subscriberId=618632587623c90ce1da6a7e)。
+5、[**真子公主与夫婿小室圭抵达纽约**](https://www.aboluowang.com/2021/1115/1671886.html)
 
-这一故事似乎很熟悉，幕后总导演一定是中国共产党。对此，新中国联邦创建者郭文贵先生评价说，“关于班农先生的事，42天前，我就告诉班农先生，共产党和美国一定会把你战斗室干掉，而且通过法院，以1月6日事件为由。”不幸，又被郭先生言中了。更可怕的是，下一个就是川普。郭先生解释说，“不是我蒙的，根据国内情报。这是中美之间邪恶力量的较量。”（见[23:46 时段](https://gettr.com/post/pgwfu22cfa)）
+日本放送协会（NHK）报导指，日本王储文仁亲王的长女真子公主，周日（11/14）和新婚夫婿小室圭搭机赴美。两人经过13小时的长途飞行，于美东时间周日早上抵达纽约肯尼迪机场，展开在美国的新生活。
 
-2021年11月15日
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
+*编辑：东京樱花团 / 文小白
+发布：东京樱花团 / 平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
  
 
