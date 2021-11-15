@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/15/2021 11:37 AM (UTC)`
+
+Dr. Shankara Chetty (a general practitioner with a natural science background in genetics, advanced biology, microbiology and biochemistry): <br/>Spike protein is one of the most contrived toxins or poisons that man has ever made, and the aim of this toxin is to kill billions without anyone noticing it.<br/><br/>Shankara Chetty 博士（在遗传学、高等生物学、微生物学和生物化学领域具有自然科学背景的全科医生）：<br/>刺突蛋白是人类有史以来最精心策划的毒素或毒药之一,这种毒素的目的是在没有人注意的情况下杀死数十亿人。 #vaccinedeath #covid19 #covidtruth
+![img](https://media.gettr.com/group25/origin/2021/11/15/11/37/da29db16-3ed1-6243-c921-b24ff40a42f7/out.jpg)
+
+---
+
 `@miles 11/15/2021 10:41 AM (UTC)`
 
 11/14/2021 Miles Guo: Xi’s evil plan is to bring down the world’s economy by using the CCP’s real estate crisis so that he can invade Taiwan during the chaos, but this will speed up the world’s recognition of the legitimacy of the New Federal State of China; Jack Ma will either run away or get killed; Alvin Jiang mistakenly believed Singapore was a safe place to hide his money, indicating there is no real smart guy in the CCP<br/><br/>11/14/2021 文贵直播：习妄图利用中共房地产崩溃搞垮世界经济，以趁乱打台湾，而这将加速世界承认新中国联邦；马云要么逃走，要么被弄死；江志成误以为新加坡可安全藏钱，这说明中共内部没有聪明人<br/>
@@ -289,13 +296,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 11/10/2021 Miles Guo: Exposed from the internal report of the 6th Plenary Session: the CCP virus caused huge shortage of medical personnel, because：1）numerous frontline doctors resigned or passed away; 2）adverse effects of the vaccine; 3）the deceiving propaganda of CCP led to huge exit of the frontline doctors, some even fled out of the country<br/><br/>11/10/2021 文贵直播：中共六中全会内部报告爆料，中共病毒导致医疗人士和专家人员极为短缺，原因有三：1）前线医生大量离职或死亡，2）疫苗后遗症，3）因国内的虚假宣传，前线医生大量离职乃至逃亡他国<br/>
 ![img](https://media.gettr.com/group41/getter/2021/11/10/20/39/f29c629f-5bee-4efe-17ea-5c0c3954868b/out.jpg)
-
----
-
-`@miles 11/10/2021 8:35 PM (UTC)`
-
-11/10/2021 Miles Guo: The internal report from the 6th Plenary Session exposed eleven “No. 1”s of CCP China, including: over 11 million people were diagnosed of cancer last year; the CCP’s real estate is facing huge oversea debt default, up to 270 - 600 billion dollars of debt are overdue within the next 30 days; numerous high rank foreign nationals left Hong Kong in the past 3 months. What do all these facts mean?<br/><br/>11/10/2021 文贵直播：六中全会内部报告曝光中共国的11个“第一”，包括：去年癌症发病人数1100万、房地产海外债务违约、且30天内将面临2700亿到6000亿的融资和票据贷款；过去三个月香港大量外籍和外资高管撤离，这些意味着什么？<br/>
-![img](https://media.gettr.com/group9/getter/2021/11/10/20/35/7d35e183-5710-bf2d-bdc0-ce4a846df504/out.jpg)
 
 ---
 

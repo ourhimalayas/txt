@@ -2,25 +2,35 @@
 ---
 
 
-## 伪善
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1665861/)
+## 突发：中共欲再利用彭斯挑战特朗普，1/6调查或将背水一战
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1665970/)
 
-作者：东京樱花团｜阿恩
-![](https://lh3.googleusercontent.com/041G3lg0Fb2Z7ZOcKH2I-1mmPAChg5stb5SW4TQgE0Mf4TfnzzUG42zks-0eOKe8YPR6aSh4I4-BEatnlxPNJOa2bZeDgamIPanxVoJIA6v76pLegvgJApZVa3z_NHKKbdzc4yGb)[*图片来源*](https://assets.thestandnews.com/media/resized/1650x0/photos/2-01_EBujDEe.png)
-中共暴政裹挟着香港，用国安恶法大发淫威，抓捕和囚禁大批不满中共暴政的人士，司法系统毫无公义可言，每日都有港人被判入狱，中共也沉浸在节节得胜的骄傲中，其走狗们经常用“社会回复稳定”来粉饰中共的罪行。中共独裁专政下的香港警察早已成为它的杀人机器，港警的所作所为没有丝毫兑现他们就职时“服务港人”的宣言。反逃犯条例运动中港警的凶残已深入人心，在抗争激烈的日子，港警成为人人喊打的过街老鼠，一些与警察武力抢犯的视频在社交平台上热播，留言饱含激励和振奋。
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh4.googleusercontent.com/bsCgNVj4RUM03EoCW3YNflaOHZKVya94YzIWUL7hjj21Ikfvzsg_H5ScvwhKx0uSbDIEJM1ECDWFuP1QpSVXGJbXXzEh4yoOjkswQtdYahDvb2MNSV9y5pXEquvGcz5guQTq7Q_Q)[图片来源](https://www.newsweek.com/trump-rails-against-1-6-investigation-subpoenas-gain-force-rioters-sentenced-1649063?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1636931480959&amp;subscriberId=618632587623c90ce1da6a7e)
+据[新闻周刊14日消息](https://www.newsweek.com/trump-rails-against-1-6-investigation-subpoenas-gain-force-rioters-sentenced-1649063?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1636931480959&amp;subscriberId=618632587623c90ce1da6a7e)称， 前总统唐纳德·特朗普抨击对 1 月 6 日国会骚乱的调查，两天前他的前顾问史蒂夫·班农因无视众议院特别委员会对叛乱调查的传票而被起诉藐视国会。特朗普质问为什么没有对“在选举中作弊的人和州”进行调查，并反复重申了2020总统选举被盗。
 
-运动的后期，中共加大了暗杀和暗中抓捕的力度，在香港形成白色恐怖。港人对警察的执法更多地体现在不合作上，截查的气氛很多时候变得火爆，路人经常自发拍下被截查的实况上传社交平台。面对港人的厌恶，很多有良心的人选择离开警队与邪恶割席，而港府为吸引港人加入，不断提高警员薪酬和福利，甚至放宽入职年龄限制和退休年纪，还通过媒体美化警队，一段时间你会在报纸上看到中共特色的警民融合被记者精准地拍到，有警员在烈日下帮非法占道的捡纸皮婆婆推车，有警员扶老人家过马路…… 社交平台上的评论毫不留情地撕下中共媒体的伪善，这些弄巧成拙的把戏总是成为港人在白色恐怖下宣泄的渠道。
+相反，他们没有对选举舞弊进行调查，而正在恶毒地调查那些抗议 11 月 3 日总统选举的人，这是世纪罪行。正如中共国一句民间谚语所言，不解决提出的问题，而只解决提出问题的人。
 
-中共十分不满被港人打脸，于是督促港府修改私隐条例，严令保护警务人员个人及家人的信息，并通过国安恶法严惩对警务人员不敬的行为，有港人因涉嫌用镭射笔扫警员而被判袭警罪，有港人因辱骂警员被判入狱，更有港人与警员武力抗争而被重判。中共对警察的保护可谓由牙齿武装到脚趾，不仅外出的行头与国际防爆接轨，法律保护也日趋完善，今日的港警如同瓷娃娃般备受中共呵护，为的就是报效中共冲锋陷阵杀同胞的那份兽性。
+特朗普补充说：“美国爱国者不会允许这种颠覆正义的行为继续下去，包括使用地方州和联邦检察官来折磨和摧毁无辜的人。所有这一切任由发生，我们的国家将要下地狱！”
 
-月初有辅警在处理野猪发现案时暴力驱赶野猪反被噬，港府大为紧张，渔农处一反常态，无视野生动物关注组的反对，计划不惜动用枪支，要对全港野猪进行毁灭性的猎杀，誓要从野猪身上夺回警察的尊严。此前一女水警缉私时堕海殉职，引发港府高度关注，在媒体的推波助澜下走私犯成为人民的千古罪人，反走私行动瞬间火焰万丈，歼灭走私活动上升到维护国际声誉的高度。殉职女警不仅被安葬浩源世代受政府香火，还被追封高级督察，荣誉勋章…… 连番告慰秀不但没有博得港人的同情和认可，反而引发港人的厌恶，中共恼羞成怒抓捕数名港人，控告他们在社交平台用言语映射羞辱殉职警务人员。
+周日，特朗普对于起诉班农并采取法律行动的行为谴责说：“**这个国家可能从未对任何人做过他们对史蒂夫·班农做的事情，他们也希望对其他人做**。”并且说，“如果他们尊重我们对中国、俄罗斯的强硬立场，也许国家就不会失败到前所未有过的水平。”
 
-良善永远不能接受邪恶，中共这个邪恶的代表，企图通过各种伪善的行径遮掩它邪恶的本质，无论它的表演如何卖力，也无法获得人民的认同和支持，它的丑恶越发显露，越能激起良善的人民对其的厌恶，越来越多的人将联合起来，一致摧毁中共这个邪恶的政权。
+有意思的是，司法部检察官声称，亚利桑那州本地人[雅各布·钱斯利](https://www.newsweek.com/harshest-capitol-riot-sentence-yet-recommended-flagbearer-qanon-shaman-1647936)因其在 1 月 6 日起义中的作用而入狱 51 个月。 “钱斯利是最早进入参议院的30名骚乱者之一，他在当时的副总统迈克彭斯主持认证的讲台上留下了一张纸条。据称，纸条上写着：“这只是时间问题，正义即将到来。”言外之意，有人希望彭斯支持特朗普并作出正确的决定。而这不确定的纸条似乎被利用来抨击前总统特朗普。
 
-资料来源：[**【野猪捕杀令】渔护署计划每月出动五次 目标地点达80个、每区数只至数十野猪 不排除重启狩猎队**](https://www.thestandnews.com/society/%E9%87%8E%E8%B1%AC%E6%8D%95%E6%AE%BA%E4%BB%A4-%E6%BC%81%E8%AD%B7%E7%BD%B2%E8%A8%88%E5%8A%83%E6%AF%8F%E6%9C%88%E5%87%BA%E5%8B%95%E4%BA%94%E6%AC%A1-%E7%9B%AE%E6%A8%99%E5%9C%B0%E9%BB%9E%E9%81%9480%E5%80%8B-%E6%AF%8F%E5%8D%80%E6%95%B8%E9%9A%BB%E8%87%B3%E6%95%B8%E5%8D%81%E9%87%8E%E8%B1%AC-%E4%B8%8D%E6%8E%92%E9%99%A4%E9%87%8D%E5%95%9F%E7%8B%A9%E7%8D%B5%E9%9A%8A)
+- ***延展阅读：***[***亚当希夫：起诉书强制传唤证人史蒂夫班农到国会出庭做证***](https://www.newsweek.com/steve-bannon-indictment-already-compelling-witnesses-answer-subpoenas-adam-schiff-1649109)
+- ***延展阅读：***[***1 月 6 日骚乱期间，迈克·彭斯躲在地下停车场的“装卸码头”中***](https://www.newsweek.com/mike-pence-january-6-riot-loading-dock-underground-parking-garage-1647353)
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
+
+无独有偶，继蓬佩奥宣布参选总统后，迈克·彭斯前顾问发拉称，彭斯将在 2024 年与特朗普“展开一场激烈的战斗”如果这是真的，至少特朗普的领导班子中有他的左右手与他同台竞争，亦敌亦友，孰是孰非？
+
+法拉警告说：“唐纳德·特朗普的加冕对党和国家来说都是最糟糕的事情，但对国家来说更重要。”她说，[特朗普的共和党挑战者需要反驳他关于2020大选被“窃取”的虚假说法](https://www.newsweek.com/mike-pence-will-put-formidable-fight-against-trump-2024-former-adviser-predicts-1649069?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1636931480959&amp;subscriberId=618632587623c90ce1da6a7e)。
+
+这一故事似乎很熟悉，幕后总导演一定是中国共产党。对此，新中国联邦创建者郭文贵先生评价说，“关于班农先生的事，42天前，我就告诉班农先生，共产党和美国一定会把你战斗室干掉，而且通过法院，以1月6日事件为由。”不幸，又被郭先生言中了。更可怕的是，下一个就是川普。郭先生解释说，“不是我蒙的，根据国内情报。这是中美之间邪恶力量的较量。”（见[23:46 时段](https://gettr.com/post/pgwfu22cfa)）
+
+2021年11月15日
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/09/image0-1-18.jpg)
  
 
