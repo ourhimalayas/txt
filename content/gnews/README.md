@@ -15,95 +15,95 @@
 
 ---
 
-### [11/14/2021 文贵直播：新中国联邦在全球会有我们自己的国防军，不但保护战友和家人，也保护其他亚裔](/content/gnews/1/README.md)
+### [Michael.Tonny专栏】喜币随想—尊严和信仰都将在喜币中实现](/content/gnews/1/README.md)
+ ` 温哥华扬帆农场`
+
+### [11/14/2021 文贵直播：新中国联邦在全球会有我们自己的国防军，不但保护战友和家人，也保护其他亚裔](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [日本要闻汇编 11月14日](/content/gnews/2/README.md)
+### [日本要闻汇编 11月14日](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [世界女子网球协会呼吁调查张高丽性侵事件](/content/gnews/3/README.md)
+### [世界女子网球协会呼吁调查张高丽性侵事件](/content/gnews/4/README.md)
  ` HimalayaRussia`
 
-### [继中共国后奥地利将把未接种疫苗者“封锁”在家里](/content/gnews/4/README.md)
+### [关于喜马拉雅币提现问题](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [继中共国后奥地利将把未接种疫苗者“封锁”在家里](/content/gnews/6/README.md)
  ` 军迷wilson`
 
-### [消息:中共驻美大使馆游说美企反对与中共国相关的议案](/content/gnews/5/README.md)
+### [消息:中共驻美大使馆游说美企反对与中共国相关的议案](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [Diffusion journalière de Miles Guo (11.14) : Le temps retiendra H-coin dans les nuages](/content/gnews/6/README.md)
- ` 秘密翻译组-原创组`
-
-### [过去一个月英格兰83%的Covid-19死亡病例和67%的住院病例是完全接种疫苗的人中发生的](/content/gnews/7/README.md)
+### [过去一个月英格兰83%的Covid-19死亡病例和67%的住院病例是完全接种疫苗的人中发生的](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [从夏日的海湾到反新冠疫苗游行](/content/gnews/8/README.md)
+### [从夏日的海湾到反新冠疫苗游行](/content/gnews/9/README.md)
  ` 走进澳洲`
 
-### [2021/11/10 班农专访1: 战斗室的使命是面向中美两国老百姓](/content/gnews/9/README.md)
+### [2021/11/10 班农专访1: 战斗室的使命是面向中美两国老百姓](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [CDC改口：大流行结束不通过群体免疫](/content/gnews/10/README.md)
+### [CDC改口：大流行结束不通过群体免疫](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [新中国联邦人将是一个找到生命和信仰真相的人类新群体](/content/gnews/11/README.md)
+### [新中国联邦人将是一个找到生命和信仰真相的人类新群体](/content/gnews/12/README.md)
  ` 秘密翻译组-原创组`
 
-### [2021/11/10 班农专访2: 美国平民击败民主党老牌政客](/content/gnews/12/README.md)
+### [2021/11/10 班农专访2: 美国平民击败民主党老牌政客](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线: 北交所15日开市，81家公司首批上市](/content/gnews/13/README.md)
+### [秘翻在线: 北交所15日开市，81家公司首批上市](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [托尼-沙佩尔中校对比川普和拜登在阿富汗的政策](/content/gnews/14/README.md)
+### [托尼-沙佩尔中校对比川普和拜登在阿富汗的政策](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021/11/10 班农专访4: 美国政府忽视疫苗对军队的副作用](/content/gnews/15/README.md)
+### [2021/11/10 班农专访4: 美国政府忽视疫苗对军队的副作用](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中国对澳洲的警告： 准备好末日来临](/content/gnews/16/README.md)
+### [中国对澳洲的警告： 准备好末日来临](/content/gnews/17/README.md)
  ` 走进澳洲`
 
-### [2021/11/10 班农专访5: 多米诺效应的关键是影子银行和房地产](/content/gnews/17/README.md)
+### [2021/11/10 班农专访5: 多米诺效应的关键是影子银行和房地产](/content/gnews/18/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [田纳西州州长签署法律禁止COVID-19疫苗护照](/content/gnews/18/README.md)
+### [田纳西州州长签署法律禁止COVID-19疫苗护照](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021/11/10 班农专访7: 六中全会是中共独裁和权力的斗争](/content/gnews/19/README.md)
+### [2021/11/10 班农专访7: 六中全会是中共独裁和权力的斗争](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [焦点：中共防化人员潜入美国西部伺机放毒！](/content/gnews/20/README.md)
+### [焦点：中共防化人员潜入美国西部伺机放毒！](/content/gnews/21/README.md)
  ` 丁过`
 
-### [2021/11/10 班农专访8: 欧盟代表团首次正式访问台湾](/content/gnews/21/README.md)
+### [2021/11/10 班农专访8: 欧盟代表团首次正式访问台湾](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [由于病毒病例激增，挪威将恢复COVID-19证书](/content/gnews/22/README.md)
+### [由于病毒病例激增，挪威将恢复COVID-19证书](/content/gnews/23/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [纳瓦罗重申中共是现存威胁，驳斥“竞争方”、“步调挑战”论调](/content/gnews/23/README.md)
+### [纳瓦罗重申中共是现存威胁，驳斥“竞争方”、“步调挑战”论调](/content/gnews/24/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [医生：疾控中心重新恢复口罩令就是因为疫苗无效](/content/gnews/24/README.md)
+### [医生：疾控中心重新恢复口罩令就是因为疫苗无效](/content/gnews/25/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [由于冠状病毒，2.5万吨塑料污染了海洋](/content/gnews/25/README.md)
+### [由于冠状病毒，2.5万吨塑料污染了海洋](/content/gnews/26/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [美国一些主要城市发生针对亚洲人的疯狂袭击和可怕罪行](/content/gnews/26/README.md)
+### [美国一些主要城市发生针对亚洲人的疯狂袭击和可怕罪行](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [拜登陷入困境，一半美国人归咎于他的通货膨胀](/content/gnews/27/README.md)
+### [拜登陷入困境，一半美国人归咎于他的通货膨胀](/content/gnews/28/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [习近平的第三任期及俄罗斯军事活动令人担忧](/content/gnews/28/README.md)
+### [习近平的第三任期及俄罗斯军事活动令人担忧](/content/gnews/29/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共火星计划给其他国家带来压力，或形成激烈太空竞赛](/content/gnews/29/README.md)
+### [中共火星计划给其他国家带来压力，或形成激烈太空竞赛](/content/gnews/30/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [mRNA疫苗发明者暗示CNN与辉瑞勾结](/content/gnews/30/README.md)
- ` 温哥华圆成农场🇨🇦`
 
 ### [纳瓦罗：美国与中共正处于战争状态而非竞争关系](/content/gnews/31/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
