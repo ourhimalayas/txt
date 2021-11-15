@@ -2,31 +2,50 @@
 ---
 
 
-## 德国接种中共病毒疫苗者发展成重症患者的比例猛增
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1665129/)
+## 布林肯敦促北京和平解决台海两岸分歧
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1665136/)
 
-#### 撰稿：日本东京方舟农场 北极
-![](https://assets.gnews.org/wp-content/uploads/2021/11/D0E2CAFB-4567-4C95-B986-96984C172089.jpeg)图片来自德国之声
-据《德国之声》中文网11月13日报道，德国单日新增中共病毒确诊病例一再创下新纪录。本周四单日新增病例人数首次超过5万人。其中，疫苗接种者发展成重症的比例猛增。
-
-据报道，随着新一波中共病毒疫情凶猛而至，德国单日新增病例一再创下新纪录，重症病人也随之增加。目前部分地区的医院已不堪重负，重症病床吃紧，非紧急手术纷纷被推迟。
-
-此外，中共病毒疫苗接种者发展成重症的比例也猛增。根据德国疾控机构“罗伯特科赫研究所”（RKI）11月第一周的数据，截至11月10日，在18岁至59岁年龄组的重症患者中，约有23%接种过疫苗；在60岁以上的重症患者中，45%接种过疫苗。而在今年8月，这两个比例分别是6%和18%。
-
-对于疫苗接种意愿，德国民众的态度虽存在明显差异，但已有不少民众由于对疫苗的安全性缺乏信心，因而表示不愿接种疫苗。
-
-注：本文仅代表作者观点
-
-*参考链接：[德国重症病床吃紧 年轻疫苗接种者亦中招](https://www.dw.com/zh/%E5%BE%B7%E5%9B%BD%E9%87%8D%E7%97%87%E7%97%85%E5%BA%8A%E5%90%83%E7%B4%A7-%E5%B9%B4%E8%BD%BB%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D%E8%80%85%E4%BA%A6%E4%B8%AD%E6%8B%9B/a-59810863)*
-
-* * *
+作者：澳喜农场 – 在远方
 
 
-```
-素材采编：北极
-编辑：青衣青青
-发布：miumiu
-```
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+美东时间11月12日晚，美国国务卿布林肯，在与中共国外交部长王毅的通话中，敦促北京当局，要依据台湾人民的意愿和利益，通过有意义的对话，和平解决台海两岸分歧。
+
+此番对话是在拜登与习近平的视频会议之前发生的。通话中，布林肯强调了美国在台海和平稳定方面的长期利益，并对中共国持续对台湾的军事、外交及经济压力表示关切。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-5.jpg)
+台湾驻美代表萧美琴说，日本和欧洲几个国家都表示，愿意在台湾最困难的时刻协助与支持台湾。因为台湾的表现，已经被认为是世界上一股良善的力量。
+
+过去一年中，美国国会针对台湾的提案有将近40个，创历史新高。说明美国各界对台湾的安全、经济、健康和卫生十分关心，而且非常支持台湾。
+
+参考链接：
+[拜习会前布林肯与王毅通话，敦促北京与台湾有意义对话](https://www.voachinese.com/a/taiwan-top-diplomat-in-us-said-biden-xi-summit-intended-to-manage-competition-and-avoid-conflict-in-taiwan-strait-20211113/6312449.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：Kathy文艺
+编辑：文特
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
 
 
  

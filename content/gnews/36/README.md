@@ -2,38 +2,44 @@
 ---
 
 
-## 澳洲球员亚姆·琼斯被迫结束职业生涯
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1665044/)
+## 微软高管称中共在应对新冠疫情方面领先世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1665061/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/足球.png)图片来源 carltonfc
+![](https://s2.freebeacon.com/up/2021/03/rsz_gettyimages-869597360-736x514.jpg)
+一位微软高管上周宣布，该公司正在扩大在中共国的业务。他说，中共国在应对新冠疫情方面处于世界领先地位。
+
+微软经常按中共的要求行事，以保持其进入中共国这个丰厚市场的许可。上个月，微软对其旗下的领英（LinkedIn）产品进行了全面修改以满足中共政府的要求。9月，微软总裁布拉德·史密斯（Brad Smith）亲自跟中共高级官员会面，讨论深化公司与中共的关系。
+
+微软将领英在中共国进行了彻底修改，以符合监管机构的要求，它推出了一个取消了用户发表意见功能的类似平台。领英经常对讨论中共敏感话题（像台湾或者天安门广场）的用户（包括记者）进行审查。领英还在一个英国人批评了中共政府之后，审查了他的普通账户。
+
+微软与中共政权的紧密关系，并没有阻止中共黑客一而再地侵入该公司的系统，偷取数百万美国公民的敏感数据。周一，微软表示一个中共黑客组织正在攻击它的系统。同样是该组织发动了对SolarWinds(一家美国软件开发公司)的黑客攻击，这次攻击从多个政府部门获取了敏感的联邦信息。今年早些时候，微软首席科学家向美国国会报告说，“中共在国内对人工智能（AI）的使用，对于世界上任何一个珍视个人自由的人来说，都是一个让人不寒而栗的先例。”
+
+今年3月份，在中共黑客对微软系统进行了严重破坏的两天后，微软宣布将扩大其在中共国的云计算服务。
+
+简评：
+
+为了能扩大在中共国的业务，捞取丰厚利润，微软竟然把新冠病毒的始作俑者中共，吹捧成应对新冠疫情的全球领导者，实在是毫无罪恶感和羞耻感。
+
+中共应对新冠疫情都干过什么——隐瞒新冠病毒来源。武汉疫情期间，对于新冠感染者，或者拉你去方舱医院隔离，或者用木板、焊条把你封死在自家屋内。数据方面，新冠病毒的感染人数、死亡人数向公众隐瞒；新冠疫苗对人的副作用继续向大家隐瞒。这种粗暴的、懦弱的、根本不负责任的应对疫情方式，也可以拿来吹嘘：领导世界？
+
+中共国的人力资源由中共任意支配，贪婪的高科技公司又为虎作伥，老百姓苦不堪言。呼唤同胞独立思考，为自己及子孙后代争自由。
+
+原文链接: [https://freebeacon.com/national-security/microsoft-exec-says-china-leads-the-world-in-pandemic-response/](https://freebeacon.com/national-security/microsoft-exec-says-china-leads-the-world-in-pandemic-response/)
+
+翻译/简评：乡间小路
+
+PR：Julia Win
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-**翻译：Lish
-编辑：MSGZ**
+编辑：【英国伦敦喜庄园编辑部】
 
-（澳洲）卡尔顿足球队后卫利亚姆·琼斯（Liam Jones）在被发现未接种中共病毒疫苗的几天后，选择了结束他在（AFL）的职业生涯。这位30岁的球员与AFL签订的合同到2022才截止，他决定退出的理由是出于 “个人原因”。
-
-琼斯在卡尔顿周日发布的一份声明中说：“我希望我从澳大利亚足球联盟退休的决定能立即生效，我想借此机会感谢所有在我的旅程中支持我的人，无论是个人还是职业。我热爱这赛场，我会想念我的队友们。”
-
-根据AFL的疫苗接种时间表和维多利亚州政府的疫苗强制任务，男子球员必须在11月26日之前打完第二针，才能继续参加他们俱乐部的项目。琼斯在12个赛季中为卡尔顿和西部斗牛犬队打了161场比赛。他本应在12月6日回到蓝军的训练中。卡尔顿队足球主管布拉德·洛伊德（Brad Lloyd）表示，琼斯为此决定已经权衡了一段时间。
-
-洛伊德说：“最近几个月，我们一直在与利亚姆进行沟通，并给他足够的时间来对他的球员生涯做出明智的决定。利亚姆今天（周日）向我们确认，他已经做出了退役的决定，而且他希望这个决定的具体原因能够被保密。作为一个俱乐部，我们将尊重这一点”。
-
-在经历了职业生涯起初的不稳定后，琼斯近年来在蓝军的后防线上获得了强劲的表现。在新教练迈克尔·沃斯（Michael Voss）的带领下，他被塑造成了下个赛季打破不能进入总决赛的重要球员。
-
-在琼斯发出退役呼吁之前，阿德莱德足球俱乐部的首要球员丹尼·瓦恩哈根（Deni Varnhagen）因为反疫苗的立场而在本月早些时候被移至该俱乐部的非活动名单。与从事注册护士工作并直言不讳的瓦恩哈根不同，琼斯没有公开谈论过自己的观点。
-
-利亚姆·琼斯说：“我希望人们尊重我的决定和隐私，我本人或我的管理团队都不会对此事发表任何进一步评论”。
-
-原文链接：[AFLW Crow ruled out of season after refusing vaccine | The New Daily](https://thenewdaily.com.au/football-2/2021/11/05/deni-varnhagen-aflw-covid-vaccine-unlisted/)
-
-***发布：Candy***
-
-更多资讯，请关注：[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
