@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/15/2021 10:10 PM (UTC)`
+
+11/14/2021 Miles Guo’s GETTR: Communist China’s economy is not looking good after the end of the Sixth Plenary Session: The stocks are falling on debut, China Concept Stocks are being sold off massively, various countries are cancelling the currency swap with RMB, and the enterprises in numerous provinces are having difficulty paying wages<br/><br/>11/15/2021 文贵盖特：六中全会刚结束，中共国经济即显颓势：新股破发，中概股遭大量抛售，各国竞相取消与人民币之间的货币互换，多省企业发不出工资
+![img](https://media.gettr.com/group33/getter/2021/11/15/22/10/f14973d6-40b2-6a5b-aa6e-0e9fc92af464/out.jpg)
+
+---
+
 `@miles 11/15/2021 6:53 PM (UTC)`
 
 11月15号乖乖嘞……【UAE迪拜可以用喜币喜美元购买房产了（第一篇）。我们迪拜当地公司已经正式和Danube Properties地产开发公司签订好了房地产代理销售协议，通过我们作为您在UAE的房地产经纪人，来和开发商对接，任何战友都可以用喜币喜美元来购买Danube开发的任何房产。Danube是UAE排名前十的的房地产开发商。】
@@ -289,13 +296,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 11/10/2021 Miles Guo: The CCP’s data show that there are 70 million people infected with the CCP virus and 13.7 million “coronavirus-related deaths” in China. These data, however, are not included in the 250 million CCP virus confirmed cases and the 5 million deaths worldwide; the CCP’s atrocities have gone far beyond those of the Nazi, whereas the Whistleblowers’ Movement and the NFSC are doing a magnificent work by saving the people with the truth<br/><br/>11/10/2021 文贵直播：中共的数据显示，中国有7000万人确诊中共病毒和1370万“冠状病毒相关性死亡”案例，但该数据都不包括在全球2.5亿感染中共病毒的病例数和500万死亡人数之中；中共暴行远超纳粹，而爆料革命和新中国联邦用真相救人胜造七级浮屠<br/>
 ![img](https://media.gettr.com/group4/getter/2021/11/11/07/42/54af9cbe-4d61-a83d-0724-878b0474097e/out.jpg)
-
----
-
-`@miles 11/11/2021 5:46 AM (UTC)`
-
-11/10/2021 Miles Guo: The CCP’s Sixth Plenary Session has turned into political infights packaged with falsehood - the CCP is spreading the lies that its economy is doing good, with over 100 countries wanting to establish “strategic all-weather brotherhood partnerships”<br/><br/>11/10/2021 文贵直播：中共的六中全会变成了内斗，并以假象包装 - 中共谎称其经济形势大好，且有100多个国家要求建立“战略性、全天候兄弟伙伴关系”<br/>
-![img](https://media.gettr.com/group20/getter/2021/11/11/05/46/eb20f46c-0075-cebf-f67b-e1cae871baa6/out.jpg)
 
 ---
 

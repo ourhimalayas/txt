@@ -2,34 +2,36 @@
 ---
 
 
-## 跌跌不休，中共国新房二手房都在跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666406/)
+## 新中国联邦国防军即将履行使命
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666719/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11111111111-1.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fimg-other.jiwu.com%2Fnews%2F2021%2F05%2F17%2F181315316538.jpg%2Fnewsx&amp;imgrefurl=http%3A%2F%2Fcd.jiwu.com%2Fnews%2F4776067.html&amp;tbnid=MZ0Q0OVoP936-M&amp;vet=12ahUKEwj9_6y1v5r0AhUFzaACHZ7kDAsQMygBegUIARCdAQ..i&amp;docid=XQPBcYpDnm-JXM&amp;w=646&amp;h=415&amp;itg=1&amp;q=%E6%88%BF%E4%BB%B7%E4%B8%8B%E8%B7%8C&amp;ved=2ahUKEwj9_6y1v5r0AhUFzaACHZ7kDAsQMygBegUIARCdAQ)
-11 月 15 日，中共国国家统计局公布 10 月 70 个大中城市商品住宅销售价格变动情况。70 个大中城市商品住宅销售价格环比总体延续下降态势，同比涨幅继续回落。
+作者：纽约香草山农场 – 四季
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在11月14日的大直播中透露，拥有世界一流装备的新中国联邦国防军，将在明年5月份开始在全世界各地履行使命。
 
-**70 ****城中 52 城新房价格环比下跌**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-12.jpeg)
 
-根据中共国国家统计局公布的 10 月数据，一线城市新建商品住宅销售价格环比持平，北京和上海环比分别上涨 0.6% 和 0.1%，广州和深圳分别下降 0.3% 和 0.2%。二线城市新房价格环比由上月持平转为下降 0.2%；三线城市则环比下降 0.3%，降幅比上月扩大 0.1 个百分点。
+郭先生在半年前就已经安排了，新中国联邦的国防军，也叫雇佣军，由西方国家当地警察，特种兵及退伍军人组成。他们持有当地国家军人牌照，合法拥有及操作武器，并有能力调动本地人脉和资源，将全副武装在世界范围内保护华人。 
 
-房价的走势从下跌城市的数量变化中体现得更为明显。**全国 70 个大中城市中，新房价格出现环比下跌的城市数量为 52 个**，相比 9 月的 36 个明显增多。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2222222.jpg)
-**70 ****城中 64 城二手房价环比下跌**
+针对未来全世界华人即将面临的排华危机，郭先生诠释了新中国联邦的使命，即只要是黄皮肤人，不分敌我。新中国联邦不仅保护爆料革命战友，即便是伪类受到欺辱，也会受到保护。在一些国家的中国城，例如旧金山，洛杉矶，温哥华，日本、伦敦等地，以及战友聚集的西班牙等欧洲其他国家将派驻合法拥有武装的国防军，保护新中国联邦战友和华人。他们使用的车辆上将显示新中国联邦的标识和旗帜，向世人宣誓新中国联邦的武装力量。 
 
-相比于更受关注的新房，目前二手房市场的降温现象其实更为明显。中共国国家统计局数据显示，10 月一线城市二手住宅销售价格环比下降 0.4%，与上月相同，北京、上海、广州和深圳环比分别下降 0.5%、0.4%、0.6% 和 0.2%。二线城市二手住宅销售价格环比下降 0.3%，降幅比上月扩大 0.2 个百分点；三线城市二手住宅销售价格环比下降 0.3%，降幅比上月扩大 0.1 个百分点。
+郭先生对所有西方国家的华人发出了“排华”即将到来的警告。新中国联邦人只有紧紧的团结在一起，才能度过未来的灾难。
 
-从降价城市数量看，10 月二手房房价环比下跌的城市数量达到了 64 个，即有九成左右的城市出现了明显的降价现象。这也说明，**这一波二手房的降温是全国范围性质的。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3333333333333.jpg)
-消息来源:
+参考链接：[2021年11月14日文贵大直播](https://gtv.org/video/id=61910d9be7e770379234d270)
 
-[房价，在继续跌！](https://finance.sina.com.cn/chanjing/cyxw/2021-11-15/doc-iktzscyy5663515.shtml)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+总编：文真
+编辑：Ivy001
+校正/发稿：谐趣园
 
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
