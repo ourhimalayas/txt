@@ -2,80 +2,105 @@
 ---
 
 
-## 过去一个月英格兰83%的Covid-19死亡病例和67%的住院病例是完全接种疫苗的人中发生的
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1664618/)
+## 关于喜马拉雅币提现问题
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1664677/)
 
-编译：七叶之芒
+[https://gtv.org/video/id=61912821182702508105366e](https://gtv.org/video/id=61912821182702508105366e)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/58603696_303.png)图片来源：dw.com
+**郭文贵**
+**Miles Guo**
 
-**新的英国卫生安全局公布的关于Covid-19病例、住院和死亡的最新数据显示，Covid-19注射液似乎仍然没有效果。**
+没有一个刚刚上市的交易所让你开始提现的, 从来没有过
+There is no exchange that has just been listed to allow you to start cash withdraw-ing, never
 
-英国卫生安全局（原英格兰公共卫生局）于2021年11月11日星期四公布了“第45周–Covid-19疫苗监测报告”，报告显示，在10月11日至11月7日期间，绝大多数Covid-19病例是在完全接种疫苗的人群中发生的。
+也没有一个交易所是一上来论万让你提走的
+There is also no single exchange that will let you cash over ten thousand dollars at the beginning
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-5-4.png)
+过来几年来上万的也没有，第三个，这个钱不是你的钱
+After a few years of operation, there hasn’t been reached tens thousand dollars, the third one, this money is not yours
 
-2021年10月11日至11月7日期间，英国卫生署第45周疫苗监测报告表3确认的按疫苗接种状态划分的病例总数如下：
+你战友现在已经六亿币，按20块钱（算）已经120亿美元了
+You comrade-in-arms now has 600 million coins, and at 20 dollars calculated, it is already 12 billion US dollars
 
-- 未接种疫苗的人群=378,122例
-- 部分接种疫苗的人口=62,154例
-- 完全接种的人口=450,938例
+你总共出了6000万美元，那就是你要给114亿美元，这个要填空
+You paid a total of 60 million U.S. dollars, that is, you have to give 11.4 billion U.S. dollars, and you have to fill in the blanks
 
+你要都提，那就是给它砸下来，砸到1毛钱，你就在恢复到6000万美元
+If you want cash them all, it is to smash it down, if you smash it to 10 cents, the market cap return to 60 million US dollars
 
-这意味着在2021年10月11日至11月7日期间，接种疫苗的人口占Covid-19病例的58%，而未接种疫苗的人口占42%。然而，如果我们把18岁以下的人从等式中剔除，其中许多人没有资格接种疫苗，那么接种疫苗的人口的数字就会差很多。
+就这么简单，人家不会给你120亿美元，没有人可以给你120亿美元
+It’s as simple as that, people won’t give you 12 billion U.S. dollars, no one can give you 12 billion U.S. dollars
 
-2021年10月11日至11月7日期间，英国卫生协会第45周疫苗监测报告的表3确认了18岁以上人群中按疫苗接种状态分列的病例总数如下：
+你千万别做梦，我就是想拿120亿进去，它也不会让我拿
+Don’t dream it, I just want to take 12 billion in, it won’t let that happen
 
-- 未接种疫苗的人群=79,516例
-- 部分接种疫苗的人口=25,554例
-- 完全接种的人口=250,132例
+交易所凭啥让你拿呀，我给你什么钱，
+Why did the exchange let you take it? What money will I give you
 
+你把它砸回（之前的价格），但是你砸完以后，前提你是把你的币抛出去了
+You smash it back to the previous price, but after you smash it, but the result is that you sell out your coins
 
-这意味着在2021年10月11日至11月7日期间，18岁以上接种疫苗的人群占Covid-19病例的86%，而未接种疫苗的人群仅占14%。
+你币抛出去，你再回来是不可能的，就包括你提了现
+If your coins are sold out, it is impossible for you to come back, including you cash it
 
-不幸的是，英国卫生局的最新报告还显示，在2021年10月11日至11月7日期间，绝大多数Covid-19的住院病人也是完全接种疫苗的人群。
+你提了现，现在很简单，你把现提完以后，
+You have withdrawn the cash, it is very simple now, after you have withdrawn the cash
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-172-1.png)
+你想拥有以后的权利那是永远不可能
+it’s never possible that you want to have the same rights in the future
 
-经英国卫生局报告表4证实，2021年10月11日至11月7日期间，所有年龄组按疫苗接种情况分列的住院人数总数如下：
+你没币怎么可能拥有权利呢，这不很简单吗，是吧？
+How can you have the same rights without H coins? Isn’t that simple? right?
 
-- 未接种疫苗的人口=3,313人
-- 部分接种疫苗的人口=325人
-- 完全接种疫苗的人口=6,461人
+铸币权啦，什么生长权啦，然后明年的认购权都是没有的
+Minting rights, growth rights, and no subscription rights for next year
 
+但是，给你的选择是，
+However, the choice given to you is,
 
-这意味着在2021年10月11日至11月7日期间，接种疫苗的人群占Covid-19住院人数的67%，而未接种疫苗的人群仅占33%。
+一，我卖掉我的未来，我拿走我每天提现权，10万
+One, I sell out my future, I take away my daily withdrawal rights, 100,000 dollars
 
-但是，当涉及到据称与Covid-19有关的死亡时，接种疫苗和未接种疫苗之间的差异再次变得更加严重。
+二，我想要未来，我合理的使用我的币, 你可以兑现一些，但不是抛售
+Second, I want the future, I use my coins reasonably, you can cash out some, but not sell them all
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-173-1.png)
+你只要不抛售，是交易，那你所有的都能保住，就这么简单，是吧
+As long as you don’t dumping, just trading, then you can keep everything, it’s that simple, right?
 
-经UKHSA报告表5确认，2021年10月11日至11月7日期间，按疫苗接种状态划分的据称Covid-19死亡总数如下：
+然后呢，如果你的耐心足够到明年5月份的话
+Then, if you have enough patience until May next year
 
-- 未接种疫苗的人口=587人死亡
-- 部分接种疫苗的人口=100人死亡
-- 完全接种疫苗的人口=2732人死亡
+你会验证很多事情，这个币是真花钱，能买啥，能有交易
+You will witness many things, this coin is really circulating, what can be bought, and there can be transactions
 
+我说三周，三周，你可以的话咱们再说
+I said three weeks, three weeks, let’s talk again later
 
-这意味着在2021年10月11日至11月7日期间，接种疫苗的人群占Covid-19死亡人数的83%，而未接种疫苗的人群仅占17%。
+今天坐在这儿，咱们这个大直播的时候
+Sitting here today, during our grand live broadcast
 
-由于完全接种疫苗的人群中Covid-19的住院和死亡人数每周都在上升，而未接种疫苗的人群的住院和死亡人数继续下降，因此需要回答关于接种疫苗有效性的严重问题。
+想想十天前，你们谁相信过喜币能到今天
+Think about ten days ago, who of you believed that H-coin could be the result to-day
 
-**简评：**
+**原视频链接** :[https://twitter.com/se1y7cblljselva/status/1459086321100726284?s=24](https://twitter.com/se1y7cblljselva/status/1459086321100726284?s=24)
 
-**真实的数据是不会骗人的，而号称着“代表科学”的那些伪科学家却在用谎言诓骗着这个世界。根据英国卫生局的相关数据，疫苗不但不能有效的阻止中共病毒的传播，并且在完全接种疫苗后的Covid-19死亡率相对于未接种疫苗者的死亡率竟然超过四倍之多。**
+Date:11/13/2021
+原视频标题: 关于喜马拉雅币提现问题
+Regarding the withdrawal cash from Himalayan coins
+原视频日期：2021/11/10
+任务编号：KC250（2856）
+视频时间段 : 0:00-2:10
 
-**疫苗的灾难已经开始了，各国政府乃至全世界还在等待着什么？请离开那些利益和政治权力的纷争，救救你们的人民，停止接种“毒疫苗”。**
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-参考资料：[theexpose.uk][83% of Covid-19 Deaths and 67% of Hospitalisations were among the Fully Vaccinated during the past month in England](https://theexpose.uk/2021/11/12/england-83-percent-covid-deaths-fully-vaccinated/)
-
-* * *
-
-*审核：蚂蚁兄弟*
-*校对：阿伯塔*
-*发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

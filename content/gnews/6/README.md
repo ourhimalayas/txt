@@ -2,10 +2,10 @@
 ---
 
 
-## 日本计划组建太空部队，监控中共对日本卫星的破坏
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1664816/)
+## 截至10月24日，日本有1325人接种中共病毒疫苗后死亡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1664824/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._15-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1115-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)

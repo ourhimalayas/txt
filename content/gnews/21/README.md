@@ -2,34 +2,22 @@
 ---
 
 
-## 从夏日的海湾到反新冠疫苗游行
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1664585/)
+## 继中共国后奥地利将把未接种疫苗者“封锁”在家里
+` 军迷wilson` [轉載自GNews](https://gnews.org/zh-hans/1664672/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/夏日湾.png)图片来源：妈妈咪网
+#### 扬帆农场 向真
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2021-10-10T121328Z_297569291_RC207Q9XA3ZK_RTRMADP_3_AUSTRIA-POLITICS-1.jpeg)来源：RFI
+据路透社11月14日报道，奥地利总理亚历山大・沙伦贝格周日宣布，将从下周一开始对数百万未接种疫苗者实施居家封锁，未接种疫苗者将被命令呆在家里，每天只允许因“必要”原因短暂外出，如购买食物。
 
+奥地利政府将近日感染率急激增加到创纪录水平的情况归罪于拒绝接种疫苗的人，并称封锁是为了缓解医院和重症监护室（ICU）的紧张压力。
 
-**翻译：月映万川**
-**编辑：Candy**
+该国目前疫苗完全接种率达到64%以上，但沙伦伯格仍咆哮“我们必须提高疫苗接种率，目前的接种水平低的可耻。”
 
-伊莎贝尔·卢卡斯一直都是拜伦湾（澳洲）反疫苗运动的非官方代表人物，然而，正直、敢言的她实际上已经完全接种了各种疫苗。
+这是继中共国之后，第二个非法、野蛮地将国民封锁在家里的国家，奥地利政府的做法，或将对那些强推疫苗但打压任何其他治疗方法的国家起到极坏的示范作用，比如现任加拿大和美国政府，但必将激起这些国家的人民奋起反抗。
 
-周日秘密透露：这位前澳大利亚日间剧明星已经接种了所有的标准疫苗，但是，却拒绝接种新冠疫苗。
+参考来源：
 
-在她的社交媒体上回应批评者时她写道：“为了信息透明，我在人生中接种过很多疫苗，但是我只是要为大众争取选择权。”
-
-这位36岁的前变形金刚女演员一直站在各种反新冠疫苗集会的焦点位置。这些集会的诉求就是结束边境控制与疫苗强制。
-
-其中，在她留言到电视主播皮特·埃文斯的社交媒体帖子时说，“自由选择是每一个人的基本人权。我不相信靠新冠疫苗接种达到群体免疫这条路。”。
-
-原文链接：[From Summer Bay to Anti-vax protest](https://www.dailytelegraph.com.au/subscribe/news/1/?sourceCode=DTWEB_WRE170_a&amp;dest=https%3A%2F%2Fwww.dailytelegraph.com.au%2Fentertainment%2Fsydney-confidential%2Factress-isabel-lucas-has-been-vaccinated-just-not-for-covid19%2Fnews-story%2F6ac012a44e7f4140b63d796a895cd5b1&amp;memtype=anonymous&amp;mode=premium&amp;v21=dynamic-warm-control-score&amp;V21spcbehaviour=append)
-
-***发布：Candy***
-
-**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[This European nation is imposing lockdown for people not fully vaccinated against Covid](https://www.hindustantimes.com/world-news/this-european-nation-is-imposing-lockdown-for-people-not-fully-vaccinated-against-covid-101636900337798.html)
 
  
 
