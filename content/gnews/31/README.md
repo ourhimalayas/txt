@@ -2,24 +2,34 @@
 ---
 
 
-## 国际女网协会关注彭帅 要求北京全面调查性侵指控
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666375/)
+## 美国FDA因“假阳性”召回数百万份家用中共病毒测试盒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666383/)
 
-#### 撰稿：东京樱花团/上善若水
-![](https://assets.gnews.org/wp-content/uploads/2021/11/454435.jpg)（图片来源于本文链接）
-在中国网球女将彭帅发文指控中国前副总理张高丽性侵近两周后，国际女子网球协会主席西蒙 (Steve Simon) 14日终于打破沉默发出公开声明，呼吁中国政府对彭帅做出的指控进行全面性的调查。西蒙在声明中写道：“彭帅，以及所有女性，都应该被倾听，而不是被审查。她对一位前中国领导人涉及性侵犯的指控必须得到最严肃的对待。在所有社会中，她指称发生的行为都需要被调查，而不是被纵容或忽视。我们赞扬彭帅站出来的非凡勇气。世界各地的妇女正在寻找她们的声音，以便纠正不公正的现象。”
+作者：美东香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+美国食品和药物管理局（FDA）11月11日证实，约两百万个Ellume家用中共病毒测试盒，因制造缺陷导致“假阳性”，而被召回。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-15-下午10.32.05.png)
+该公司在10月份因有些批次的测试盒存在缺陷，首次向联邦监管机构作出通报。美国FDA随即跟进调查，并发现了更多的批次存在制造缺陷问题。
 
-西蒙表示，国际女子网球协会希望此事能被适当的处理，也就是中国政府必须针对彭帅做出的指控进行全面、公平且透明的调查，且过程中不该有审查的情况。彭帅是在11月2日晚间透过官方微博帐号指控遭张高丽性侵，该文在她发布后没多久便被删除，彭帅的微博帐号也无法继续使用。在百度与微博上，输入“彭帅”与“张高丽”等关键字时，与性侵事件相关的内容都不会出现，不过依然有些中国网民试图透过其他方式继续讨论彭帅的事件。
+该测试盒的抗原测试是从鼻腔提取样本，来检测是否存在中共病毒蛋白质，无需处方就可以提供给2岁以上的人士使用。
 
-自从她11月2日在微博上发布帖子后，彭帅便再也没有出现在公众视野中，目前外界对于她的安危与人在何处也没有进一步的消息。彭帅职业生涯曾赢过23座女网巡回赛的双打冠军，包含2013年的温布顿网球公开赛与2014年法国网球公开赛的女双冠军。彭帅虽然从未表示要退休，但根据国际女子网球协会网站显示，彭帅最后一次公开比赛是与韩馨蕴参加2020WTA卡达公开赛。而她对张高丽做出的指控，也是中国的Metoo运动自2018年发展至今，首位被女性指控性侵的前中国政府高官。
+这些测试盒生产于2021年2月24日和2021年8月11日之间，美国FDA指出，假阳性可能会导致实际病因的延迟诊断，或因此遭受不必要的新冠治疗和隔离。此次召回被美国食品和药物管理局认定为“一级召回”——是最严重的召回类型。
 
-信息来源：
+参考链接：[FDA Recalls Millions Of At-Home COVID-19 Tests Over False Positives](https://www.zerohedge.com/covid-19/fda-recalls-millions-home-covid-19-tests-over-false-positives)
 
-[国际女网协会关注彭帅 要求北京全面调查性侵指控](https://www.dw.com/zh/%E5%9B%BD%E9%99%85%E5%A5%B3%E7%BD%91%E5%8D%8F%E4%BC%9A%E5%85%B3%E6%B3%A8%E5%BD%AD%E5%B8%85-%E8%A6%81%E6%B1%82%E5%8C%97%E4%BA%AC%E5%85%A8%E9%9D%A2%E8%B0%83%E6%9F%A5%E6%80%A7%E4%BE%B5%E6%8C%87%E6%8E%A7/a-59818229)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

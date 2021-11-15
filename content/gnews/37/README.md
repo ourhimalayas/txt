@@ -2,24 +2,22 @@
 ---
 
 
-## 中共食品安全监管形同虚设：“三只松鼠”发霉变质、吃出虫卵
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666349/)
+## 中共国10月份鲜菜价格同比上涨15.9%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666353/)
 
-#### 撰稿：东京樱花团/墨然
+#### 撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-83.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.corporatefinanceinstitute.com%2Fassets%2Fconsumer-price-index.jpeg&amp;imgrefurl=https%3A%2F%2Fcorporatefinanceinstitute.com%2Fresources%2Fknowledge%2Feconomics%2Fconsumer-price-index-cpi%2F&amp;tbnid=8C4ldc6aQ0ZZhM&amp;vet=12ahUKEwjg3fues5r0AhUNnEsFHRcLDq8QMygIegUIARCwAQ..i&amp;docid=9qB4aIwIUMlTCM&amp;w=1180&amp;h=980&amp;q=CPI&amp;ved=2ahUKEwjg3fues5r0AhUNnEsFHRcLDq8QMygIegUIARCwAQ)
+11月15日北京日报报道，中共国家统计局发布10月国民经济数据。10月份，全国居民消费价格（CPI）同比上涨1.5%，涨幅比上月扩大0.8个百分点；环比上涨0.7%。分类别看，食品烟酒价格同比下降0.9%，衣着价格上涨0.5%，居住价格上涨1.7%，生活用品及服务价格上涨0.9%，交通通信价格上涨7.0%，教育文化娱乐价格上涨2.9%，医疗保健价格上涨0.6%，其他用品及服务价格下降0.5%。
 
-今年10月以来，三只松鼠在微博、黑猫投诉等多个网络平台的食品问题投诉就有数十起，几乎涉及烘焙食品（面包、吐司）、坚果（巴旦木、夏威夷果等）、肉干、水果罐头等全系列产品，被投诉问题主要是：发霉变质、长毛、吃出虫卵等。
+10月CPI涨幅扩大主要受到近期鲜菜价格上涨影响。在食品烟酒价格中，猪肉价格同比下降44.0%，鲜菜价格上涨15.9%，粮食价格上涨0.9%。
 
-11月6日，微博网友“咪嘞个咻”投诉“三只松鼠”牛肉粒发霉，其配发的图片显示，牛肉粒大面积发霉长毛。11月12日，网友“三千天真”也投诉，“薇娅直播间买的三只松鼠每日坚果变质发霉”，且“商家死不承认” ，他还@了薇娅直播间和三只松鼠的官方微博。客服说他已开袋的变质坚果无法作为证据，不能按照食品安全法进行赔偿”。11月13日，网友“菲比喵呜悦”投诉“三只松鼠”手撕面包发霉 ，并配上了两张面包图片，霉点和大块霉斑清晰可见。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Snipaste_2021-11-15_21-17-47.png)
-早在2017年，三只松鼠就曾因食品安全问题登上国家食品药品监督管理总局（现已合并到市场监管总局）的“黑名单”。2017年8月15日，国家食品药品监督管理总局发布3批次食品不合格情况，其中就包括三只松鼠开心果，而不合格的原因为霉菌超过标准值上限180%。此外，天眼查数据显示：三只松鼠2020年5月23日生产的“开口松子”，在重庆某超市被抽查出不合格。具体指标是“过氧化值”每100克2.2克，超标340%。
-
-“三只松鼠”食品安全问题再次被提及，这看似是一个小事件，并不值得过多关注。但这一小事件却反映出了中共在食品安全监管上存在重大问题。民以食为天，食品安全问题得不到保障，损害的是老百姓的切身利益，而黑心商家之所以存在，甚至愈发猖獗，恰恰是因为中共在食品安全监管上的放纵。肥沃的土壤，孕育了越来越多的黑心商家，可怜的从来都是无辜的百姓！
+中共国滥印钞票就像是从老百姓口袋里抢钱，老百姓手中的积蓄被稀释贬值，致商品流通领域通胀加剧，毛币加速贬值致使民生的蔬菜粮食也暴涨。
 
 信息来源：
 
-[发霉变质、吃出虫卵……“三只松鼠”频遭投诉！](https://baijiahao.baidu.com/s?id=1716460739183492223&amp;wfr=spider&amp;for=pc)
+[10月全国CPI同比上涨1.5%，鲜菜价格同比上涨15.9%](https://mq.mbd.baidu.com/r/wrjXgauzqU?f=cp&amp;rs=3889805779&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=682eb6ff4fb14d9b)
 
-*编辑：东京樱花团/喜马拉雅的微尘
+*编辑：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  

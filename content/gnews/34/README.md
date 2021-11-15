@@ -2,21 +2,31 @@
 ---
 
 
-## 三星电子美国研究中心启动6G试验
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1666363/)
+## 中共将在美国西部释放新变种病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666365/)
 
-韩国首尔天池农场—–追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-15-at-22.32.43.jpeg)图片来源韩国《每日经济新闻》
-据韩国《每日经济日报》11月15日的报道，三星电子美国研究中心近日在美国进行了第六代移动通信（即6G）试验，也是为配合三星电子副会长李在镕访问美国期间进行本地测试做准备。
+作者：纽约香草山教育部 – Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2021年11月14日，郭文贵先生在大直播中爆料称，近期，中共将会在美国西部释放新变种病毒，并将自西向东蔓延，覆盖到整个美国以及其他西方国家。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-49.jpg)
+据前中共资深生化专家分析，新变种病毒将会加速疫苗灾难的发展进程，同时会加速各国政府疫苗强制政策的推进。目前，全球已有将近一半的人都接种过毒疫苗。新病毒变种将会使这些接种过疫苗的人更易被感染、患上重症甚至死亡。同时，接种过疫苗的患者也将会把新变种病毒更快地传播给未接种的健康人。对于各国政府而言，这也将成为各国加速疫苗强制令的最好借口，包括儿童也不能幸免。
+郭先生说，这是中共生化超限战真正灾难的开始，我们将面临人类最黑暗的时刻。灾难无法预测，新中国联邦人只有紧紧地联合在一起，才能保证自己的生命和财产安全。
 
-根据业界15日的消息，三星电子美国研究中心（SRA）近日向美国联邦通信委员会（FCC）申请试验频率使用许可，并获得通过。三星电子计划通过试验，确认是否可以用6G智能手机与基站进行中远程通信。
+参考链接：[2021年11月14日文贵大直播：香港大陆及世界股市；喜币迎接金融大转变；疫苗灾难台湾房地产；新中国联邦机会何在；班农被司法部起诉的意义；全球金融危机及G系列生态圈](https://gtv.org/video/id=61910d9be7e770379234d270)
 
-据悉，三星电子将在位于美国德克萨斯州的美国实验室一带使用133～148千兆赫（㎓）带宽的电波，该区域也是三星半导体工厂所在地。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-三星电子去年7月发布了6G白皮书，为抢占先机而进行大规模投资研发新一代移动通信技术的6G技术。因此，三星研究中心设立了新一代通信研究中心，进行探索6G技术。三星电子预计 6G 服务的商用时间是 2030 年左右。
+总编：文特
+编辑：Lakeman（文仁）
+校正/发稿：Fei797
 
-[新闻来源](https://n.news.naver.com/mnews/article/009/0004879483?sid=101)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
