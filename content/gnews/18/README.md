@@ -2,34 +2,43 @@
 ---
 
 
-## 被踢出美国的中海油准备回国割韭菜
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1664971/)
+## “沉重的打击”：《环球时报》对澳大利亚发出了不详的警告
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1665000/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-69.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp2.itc.cn%2Fq_70%2Fimages03%2F20210823%2F6103ddaadbab474f906e7e456f9883c6.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F485070743_418320&amp;tbnid=Qf6tDY-fb7oN1M&amp;vet=12ahUKEwiM34zhuZn0AhU2zaACHYunDXsQMygDegUIARCeAQ..i&amp;docid=wIEuBGwPpkUlzM&amp;w=800&amp;h=439&amp;itg=1&amp;q=%E4%B8%AD%E6%B5%B7%E6%B2%B9&amp;ved=2ahUKEwiM34zhuZn0AhU2zaACHYunDXsQMygDegUIARCeAQ)
-中共国最大离岸石油及天然气生产商-中国海洋石油有限公司（简称：中海油）11月14日晚间在港交所发布公告称，已向中共国证监会提交包括首次公开发行A股招股说明书在内的申请材料，并于近日收到证监会对其提交的A股发行申请出具的受理单。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-中国证监会于9月17日为红筹企业“回A”开绿灯，中海油董事会其后于9月26日批准建议公司发行人民币股份在上海交易所主板上市，以弥补今年稍早美国存托股份被退市后的融资渠道空白。该公司拟发行不超过26亿股A股，集资所得款项将投入合计350亿元的开发项目（包括圭亚那油田、流花油田二次开发等等）及补充流动资金。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/gm-1.jpg)
 
-2021年2月26日，美国纽约证券交易所决定，正式启动中海油美国存托凭证（NYSE：CEO）的正式摘牌程序。纽交所表示，将于3月9日凌晨4点暂停CEO的交易。
+图片来源：Defence Connect
+#### 翻译：月映万川
+编辑：朝花夕拾
 
-中海油2021年3月10日，公司向纽约证交所提出书面要求，要求该委员会覆议决定。于2021年10月8日，该委员会维持该决定。鉴于，公司美国存托股份同时在加拿大多伦多证券交易所交易，公司将与多伦多证券交易所保持沟通处理相关事宜。
+澳大利亚国防部长彼得·达顿在接受《澳大利亚人》采访时，达顿部长承认，澳大利亚单独与中共国直接冲突的想法是“不切实际”的，但却没有排除与美国一起应对中共国的可能性。
 
-美国前总统川普去年11月签署了一项禁止美国人投资“有军方背景的中国企业”的行政令。在中海油被列入投资“黑名单”60天后，针对该公司的投资禁令于3月9日生效。
+他说，“如果美国采取行动，那么，不参加在美国的主导行动中的想法是不切实际的。”
 
-中海油2001年在纽交所上市。美国官员没有公开解释中海油被列入黑名单的具体细节，但中海油及其未上市母公司一直是北京与其邻国在南海和东海就钻井权主权控制权发生领土争端时的当事方。
+一家中共党媒的编辑在国防部长彼得·达顿说，澳大利亚不与美国联手保卫台湾是“不可想象的”之后，却向澳大利亚发出了一个险恶的警告。
 
-消息来源:
+达顿先生的这番话是在中国和台湾之间的关系日益紧张的情况下发表的，而这番言论并没有被《环球时报》的主编所忽视。
 
-[中海油称已向中国证监会提交A股IPO申请材料并收到受理单–港交所公告](https://cn.reuters.com/article/cnooc-ashare-ipo-1115-idCNKBS2I0032?il=0)
+“如果澳大利亚军队来台湾海峡作战，难以想象中国不会对他们和为他们提供支援的澳大利亚军事设施进行猛烈攻击，”胡锡进在推特上写道，并附上了一篇详细介绍达顿先生言论的文章链接。
 
-[中海油纽约退市 预计更多中企面临摘牌命运](https://www.epochtimes.com/gb/21/3/8/n12797883.htm)
+“所以澳大利亚最好准备好为台湾和美国做出牺牲。”
 
-[纽交所维持中海油(00883.HK)美国存托股份退市决定](https://www.163.com/dy/article/GM0NT7BG0519B04T.html)
+《环球时报》是北京政府的著名喉舌，这不是胡主编第一次针对澳大利亚。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+去年他在会见澳大利亚驻华大使格雷厄姆·弗莱彻时，曾将澳大利亚称为“除美国外对中国最不友好的国家”。
+
+原文链接：[‘HEAVY ATTACK’: China-run newspaper’s ominous warning to Australia](https://au.news.yahoo.com/heavy-attack-china-run-newspaper-unleashes-australia-041128148.html?guccounter=1)
+
+发布：文泓
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

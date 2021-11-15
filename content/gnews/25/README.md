@@ -2,34 +2,24 @@
 ---
 
 
-## 北京二手房成交量跌破万套 已连续7个月下滑
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1664903/)
+## 日本GDP两季度以来首次负3%，中共国增长9.8%
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1664963/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据墙内新闻报道的最新数据显示，10月份北京二手房网签量为9340套，环比下降26%，同比下降35%，不但成交量年内首次跌破万套，整体价格与9月份相比，也首次出现下滑。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-14-下午11.04.10-2.png)
-业内人士分析，近期北京二手房量价双双回调，与银行信贷政策和学区房政策的调整有关。但银行收紧贷款年年有，学区房也属于特例，这两个原因不能解释全貌。
+#### 撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-94.png)图片来源：原文
+日本NHK11月15日报道，今年7月至9月期间的GDP（国内生产总值）与前三个月相比，实际增长率为负3.0%，两个季度以来首次出现负值。此期间发布了“紧急事态宣言”，占国内生产总值的一半以上的消费支出下降。
 
-据分析，下半年以来，接连有主力房企出现资金链断裂、经营困难的状况，甚至爆出外债违约的新闻。这些负面信息又让房地产股暴跌，银行更加惜贷，使得房企资金周转进一步恶化。市场变化太快，谁也无法准确判断房市走向，再加上就业不足，内需疲软，持款观望就成了最佳选择。
+紧急事态宣言导致旅游和外出就餐的需求低迷，家电等销售下降，个人消费支出比前三个月下降1.1%。汽车行业被迫削减生产，认为是经济驱动力的“出口”也下降了2.1%。由于购买商业用的车辆和建筑机械的下降，企业的设备投资下降了3.8%。政府预计GDP将在“年内”恢复到中共病毒流行之前的水平，但疫情的再次出现将迫使日本经济复苏陷入停滞。
 
-尽管传出松动限购限售，下调土地竞拍门槛等消息，实际上，房地产业已经走进了“至暗时刻”。
+与此相反，中共国的擀面杖子经济“依旧坚挺”，2021年10月18日，中共国统计局发布数据，2021年前三季度GDP同比增长9.8%，两年平均增长5.2%。
 
-参考链接：[“银十”失约，北京二手房网签量年内首次跌破万套，已连续7个月下滑](https://3g.163.com/dy/article/GOMM3BA40512D03F.html?clickfrom=channel2018_money_index_newslist&amp;ver=c#child=index&amp;offset=6)
+信息来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+[7～9月実質GDP年率-3.0％ 2期ぶりマイナス 個人消費落ち込み](https://www3.nhk.or.jp/news/html/20211115/k10013348051000.html)
 
-总编：正义的小新
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
