@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/15/2021 3:27 AM (UTC)`
+
+11/14/2021 Miles Guo: What’s the key issue of this global supply chain disaster? The CCP virus and the vaccine side effects causing massive labor shortage of blue-collar and office workers and sailors in manufacturing sectors, ocean transportation and ports; vaccine disasters have not come yet<br/><br/>11/14/2021文贵直播：全球供应链问题的核心是什么？病毒疫苗造成生产、海运、港口中高低端劳动力的大量短缺；疫苗给人类带来的灾难还没有开始
+![img](https://media.gettr.com/group43/getter/2021/11/15/03/27/9b5660c1-be96-2891-f260-54e81aec1c3c/out.jpg)
+
+---
+
 `@miles 11/15/2021 3:01 AM (UTC)`
 
 11/14/2021 Miles Guo: The CCP ransacked Jack Ma's secret office in Singapore and seized enough materials to put him behind bars. The citizens of the New Federal State of China must learn the lesson from Jack Ma. We shall never be enslaved by wealth due to ignorance, and we must accumulate clean, legitimate and sustainable wealth<br/><br/>11/14/2021 文贵直播：中共在马云新加坡的秘密办公室查抄的东西足以让他把牢底坐穿；而新中国联邦人要以马云为鉴，不要因无知而成为财富的奴隶，我们要拥有干净、合法和永续的财富<br/>
@@ -289,13 +296,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 《文贵大直播》宣传片之『历史直播追忆』：“既然已经开始，我们决不妥协；既然已经开始，我们一定要赢！该我们赢了，我们必须赢！”  —— 英国伦敦喜庄园『战鹰影视』出品
 ![img](https://media.gettr.com/group13/origin/2021/11/10/19/12/01f3fee3-a9c8-eb2e-e1a4-11d4bb228b40/out.jpg)
-
----
-
-`@miles 11/10/2021 1:16 PM (UTC)`
-
-...
-![img](https://media.gettr.com/group14/origin/2021/11/10/11/f18a71e7-27e1-0c14-baa4-168a02c4757e/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

@@ -2,90 +2,105 @@
 ---
 
 
-## CDC改口：大流行结束不通过群体免疫
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1664576/)
+## 关于喜马拉雅币提现问题
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1664677/)
 
-编译： Jenny Ball
+[https://gtv.org/video/id=61912821182702508105366e](https://gtv.org/video/id=61912821182702508105366e)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-12-2.jpg)一名护士在鹰岩（Eagle Rock）高中的一家流动诊所提供 COVID-19 疫苗。在努力提高疫苗接种率的过程中，疾病控制与预防中心（CDC）已不再将群体免疫作为结束大流行的国家目标。 (Allen J. Schaben / 洛杉矶时报)
+**郭文贵**
+**Miles Guo**
 
-从大流行的早期开始，就有一个共同目标来结束它：[实现群体免疫](https://www.latimes.com/science/story/2020-04-22/what-is-herd-immunity-and-why-it-matters-against-coronavirus)。也就是说，到那时，所有人都对病毒免疫，以至于病毒没有了潜在的感染宿主，从而导致这个爆发的病毒消失。
+没有一个刚刚上市的交易所让你开始提现的, 从来没有过
+There is no exchange that has just been listed to allow you to start cash withdraw-ing, never
 
-许多美国人接受了这个新颖的农家短语，并据此预测，一旦70%-80%或85%的人口接种了COVID-19疫苗，病毒就会消失，大流行就会结束。
+也没有一个交易所是一上来论万让你提走的
+There is also no single exchange that will let you cash over ten thousand dollars at the beginning
 
-现在羊群不安了。**CDC**的专家已经不再将群体免疫作为国家大流行结束的目标了。
+过来几年来上万的也没有，第三个，这个钱不是你的钱
+After a few years of operation, there hasn’t been reached tens thousand dollars, the third one, this money is not yours
 
-CDC COVID-19流行病学工作组的医疗官员杰斐逊·琼斯博士（[Dr. Jefferson Jones](https://www.cdc.gov/vaccines/acip/meetings/downloads/slides-2021-11-2-3/03-COVID-Jefferson-508.pdf)）说，实现明确的群体免疫目标的前景“非常复杂”。
+你战友现在已经六亿币，按20块钱（算）已经120亿美元了
+You comrade-in-arms now has 600 million coins, and at 20 dollars calculated, it is already 12 billion US dollars
 
-琼斯上周向为 CDC 提供疫苗建议的小组成员承认：“认为我们将能够达到某种阈值，使感染不再传播，这可能是不可能的。”即使疫苗接种普及，冠状病毒也可能会继续传播。
+你总共出了6000万美元，那就是你要给114亿美元，这个要填空
+You paid a total of 60 million U.S. dollars, that is, you have to give 11.4 billion U.S. dollars, and you have to fill in the blanks
 
-他说：“我们不鼓励”作为一个“严格目标”的角度思考（结束大流行）。
+你要都提，那就是给它砸下来，砸到1毛钱，你就在恢复到6000万美元
+If you want cash them all, it is to smash it down, if you smash it to 10 cents, the market cap return to 60 million US dollars
 
-对于 CDC 免疫实践咨询委员会成员奥利弗·布鲁克斯（[Dr. Oliver Brooks](https://www.wattshealth.org/executive-team/)）博士来说，这是一个发人深省的新信息，具有潜在的令人担忧的影响。
+就这么简单，人家不会给你120亿美元，没有人可以给你120亿美元
+It’s as simple as that, people won’t give you 12 billion U.S. dollars, no one can give you 12 billion U.S. dollars
 
-洛杉矶沃茨医疗保健( Watts Healthcare) 首席医疗官布鲁克斯(Brooks)说，由于只有 58.5% 的美国人完全接种了疫苗，“我们确实需要增加”COVID-19 疫苗的接种率。不幸的是，他说，琼斯的意外承认“几乎使你没有动力让更多人再接种疫苗”。
+你千万别做梦，我就是想拿120亿进去，它也不会让我拿
+Don’t dream it, I just want to take 12 billion in, it won’t let that happen
 
-布鲁克斯说，他担心，随着 CDC 放弃特定的群体免疫目标，这将使提高疫苗接种水平的努力失去意义。
+交易所凭啥让你拿呀，我给你什么钱，
+Why did the exchange let you take it? What money will I give you
 
-如果公共卫生官员不再谈论“群体”，人们可能会忽视这样一个事实，即疫苗接种不仅是一种个人保护行为，而且是一种保护社区的方式。
+你把它砸回（之前的价格），但是你砸完以后，前提你是把你的币抛出去了
+You smash it back to the previous price, but after you smash it, but the result is that you sell out your coins
 
-对公众群体免疫的承诺言而无信，也可能会进一步[削弱 CDC 在抗击冠状病毒方面的可信度](https://www.annenbergpublicpolicycenter.org/public-trust-in-cdc-fda-and-fauci-holds-steady-survey-shows/)。
+你币抛出去，你再回来是不可能的，就包括你提了现
+If your coins are sold out, it is impossible for you to come back, including you cash it
 
-在从口罩的使用到病毒如何传播的问题上，该机构在大流行过程中做出了一些戏剧性的转变。这些逆转是由有关新型病毒行为方式的新科学发现引发的，但它们也为 COVID-19 怀疑论者，尤其是保守媒体中的怀疑论者提供了充足的支持。
+你提了现，现在很简单，你把现提完以后，
+You have withdrawn the cash, it is very simple now, after you have withdrawn the cash
 
-“这是一个科学传播问题，”CDC COVID-19 响应首席医疗官约翰·布鲁克斯博士说。
+你想拥有以后的权利那是永远不可能
+it’s never possible that you want to have the same rights in the future
 
-“我们说，根据我们对其他疾病的经验，当您达到 70%-80% 时，您通常会获得群体免疫，”他说。
+你没币怎么可能拥有权利呢，这不很简单吗，是吧？
+How can you have the same rights without H coins? Isn’t that simple? right?
 
-但是** SARS-CoV-2 **病毒遵循这个原理。
+铸币权啦，什么生长权啦，然后明年的认购权都是没有的
+Minting rights, growth rights, and no subscription rights for next year
 
-**CDC **的新方法将反映这种不确定性。公共卫生官员没有指定承诺结束大流行的疫苗接种目标，而是希望重新定义新感染和死亡方面的成功——他们会推测，当两者在持续一段时间内保持低水平时，已经实现了群体免疫。
+但是，给你的选择是，
+However, the choice given to you is,
 
-“我们想要清晰、简单的答案，有时它们确实存在，”约翰·布鲁克斯说，“但在这个问题上，我们仍在学习。”
+一，我卖掉我的未来，我拿走我每天提现权，10万
+One, I sell out my future, I take away my daily withdrawal rights, 100,000 dollars
 
-宾夕法尼亚大学安嫩伯格公共政策中心主任凯瑟琳·霍尔·贾米森 ([Kathleen Hall Jamieson](https://www.asc.upenn.edu/people/faculty/kathleen-hall-jamieson-phd)) 说，群体免疫从来没有像许多美国人想象的那么简单，这位专家，负责将科学传播给越来越多疑的——而且往往是有阴谋头脑的——公民。
+二，我想要未来，我合理的使用我的币, 你可以兑现一些，但不是抛售
+Second, I want the future, I use my coins reasonably, you can cash out some, but not sell them all
 
-这是一个大约一个世纪前从牲畜医学领域出现的想法。流行病学家现在用这样的标准方程计算它。但就像许多用数学模拟复杂过程的工具一样，它做出了一些简化的假设。
+你只要不抛售，是交易，那你所有的都能保住，就这么简单，是吧
+As long as you don’t dumping, just trading, then you can keep everything, it’s that simple, right?
 
-例如，假设个人和群体的行为不切实际，以及病毒在人与人之间传播的能力。
+然后呢，如果你的耐心足够到明年5月份的话
+Then, if you have enough patience until May next year
 
-所以它不能反映人口密度的多样性，例如，洛杉矶县与爱达荷州博伊西县如此不同的生活方式、交通方式和社会交往。它也不能解释这样一个事实，即博伊西县只有不到 35% 的成年人完全接种了疫苗，而洛杉矶县 73% 的成年人疫苗接种率却没有得到保护。
+你会验证很多事情，这个币是真花钱，能买啥，能有交易
+You will witness many things, this coin is really circulating, what can be bought, and there can be transactions
 
-“人类不是羊群，”杰米森说。
+我说三周，三周，你可以的话咱们再说
+I said three weeks, three weeks, let’s talk again later
 
-她补充说，通过围绕“社区免疫”的需要来制定疫苗接种活动，公共卫生领导者会得到更好的服务。这会让人们从更本地化的角度进行思考——当涉及到一个人的风险时，感染这些术语才是真正重要的。
+今天坐在这儿，咱们这个大直播的时候
+Sitting here today, during our grand live broadcast
 
-冠状病毒本身的变化也使群体免疫成为一个移动目标。
+想想十天前，你们谁相信过喜币能到今天
+Think about ten days ago, who of you believed that H-coin could be the result to-day
 
-（点评：为什么在强制疫苗之前信誓旦旦地说：**50%**，**70%**，**80%**是实现结束病毒流行的目标呢？）
+**原视频链接** :[https://twitter.com/se1y7cblljselva/status/1459086321100726284?s=24](https://twitter.com/se1y7cblljselva/status/1459086321100726284?s=24)
 
-产生 70% 至 85% 的群体免疫估计值的计算，在很大程度上取决于 SARS-CoV-2 的先天传染性。但是，随着 Alpha 和 Delta 变种等新病毒株的出现，该病毒在人与人之间传播的能力在去年急剧上升。
+Date:11/13/2021
+原视频标题: 关于喜马拉雅币提现问题
+Regarding the withdrawal cash from Himalayan coins
+原视频日期：2021/11/10
+任务编号：KC250（2856）
+视频时间段 : 0:00-2:10
 
-此外，群体免疫计算，假定当人们获得免疫力时，他们会在一段已知的时间内保持免疫力。但很明显，疫苗接种和自然感染都不能提供持久的保护。加强针或“突破”性病例是否有可能，但持续多久仍是未知数。
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**评论：“但是 SARS-CoV-2 病毒遵循这个原理。”这些个“科学家”可以忽悠百姓， 却无法违背常识！这 “也可能会进一步削弱 CDC 在抗击冠状病毒方面的可信度”，你们还敢提可信度？我们已经听腻了福奇，CDC专家的各种忽悠，从强制口罩到强制封锁，再到强迫人们充当试验疫苗白老鼠，用群体免疫忽悠百姓，一会儿说达到50%接种就达到了控制中共病毒的群体免疫效果。由于谎言一再证明无效，福奇就把目标提高到70%，又提到80%，现在几乎85%的人们都成了白老鼠。但接种疫苗的人们却仍然感染和传染病毒，而且疫苗mRNA的DNA改写和刺突蛋白引起的各种心梗死脑梗死和严重伤害，就连CDC自由的VAERS系统仅仅1%实际情况的反应，也达到180,000死亡和超过800,000例伤害。为推卸责任和惩罚，CDC先是改写疫苗定义，从防止某种病毒的感染，改为防止感染了该病毒后症状减轻，现在又改口，即使人人都打了试验疫苗也无法达到群体免疫……CDC以为有个“科学界”的招牌就把老百姓当无知耍吗？**
-
-**常识告诉我们，针对病毒的疫苗，首相要对病毒有了解，到现在“科学界”掌握话语权的无良之辈，还不敢承认人人可知的中共制造的病毒来自中共军方武汉实验室，CDC怎么就通过了不知病毒是什么东西的疫苗？**
-
-**这一系列的操作，背后都有中共的黑手，都有中共蓝金黄收买的福奇，主流媒体，社交媒体的统一行动：用生化武器的病毒恐吓世界，恐惧让人们失去理智，才乖乖地变成羊群（Herd英文原意就是动物群的意思），任由以福奇为首的科学级杀手，翻来覆去忽悠着去打疫苗。而疫苗正是中共和邪恶势力要实施的最终阴谋：人类命运共同体或大重置，由中共皇帝和一小群邪恶精英控制整个世界，而被称为“疫苗”的生化武器一石多鸟，是实现阴谋的最佳武器：**
-
-- **将有常识有正义的人们，他们称之为“阴谋头脑”的人，用疫苗杀死；**
-- **疫苗有针对性的人种灭绝，实现中共的“灭白计划”；**
-- **将老弱病残杀死，中共通过华尔街的操作，华尔街大鳄和社会“精英”将绝大多数社会的养老基金投入了中共的庞氏公司，随着中共房地产旗舰恒大即将到来的暴雷，西方社会的养老基金将全部打了水漂，所以用疫苗杀害领取福利的人们；**
-- **因为各国政府的疯狂印钞，通胀和滞涨已经让各国经济趋于崩溃，疫苗的mRNA改变人类基因，或将通过疫苗中的载体，用AI操控人们的大脑，制造灭绝人类疫苗的人，以期逃脱人们的愤怒和审判！**
-
-
-**我们还耐着性子听CDC这些披着科学外衣的刽子手编出新的借口杀害我们吗？**
-
-参考资料：[news.yahoo][CDC shifts pandemic goals away from reaching herd immunity](https://news.yahoo.com/cdc-shifts-pandemic-goals-away-130028307.html)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

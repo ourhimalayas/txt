@@ -2,35 +2,34 @@
 ---
 
 
-## 从夏日的海湾到反新冠疫苗游行
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1664585/)
+## 日本要闻汇编 11月14日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1664702/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/夏日湾.png)图片来源：妈妈咪网
+#### 素材：东京樱花团丨GNEWS组
+![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-19.png)[*图片来源*](https://media.dwnews.net/dw/rP9_DFOOnVBw27-PJ6BfPIc9-zo%3D/320*0/media/images/dw/e8fb4c62679a6c6f81f3f0fcceefa698.jpg?v=w1920r16_9)
+1、[**岸田外交重视对美中保持平衡**](https://china.kyodonews.net/news/2021/11/a159eb0c3c09.html)
 
+共同社14日消息，日本首相岸田文雄起用被称为中国通的前文部科学相林芳正担任外相，透露出在美中对立下欲稳定日中关系的意图。另一方面留任了亲台派防卫相岸信夫。岸田任用对华态度不同的这两人，给人以重视对美中保持平衡的印象。
 
-**翻译：月映万川**
-**编辑：Candy**
+2、[**日本都道府县首府九成完成两剂疫苗接种**](https://china.kyodonews.net/news/2021/11/62f97c338c62.html)
 
-伊莎贝尔·卢卡斯一直都是拜伦湾（澳洲）反疫苗运动的非官方代表人物，然而，正直、敢言的她实际上已经完全接种了各种疫苗。
+共同社13日调查结果显示，日本47个都道府县首府，有43个（占总体的91.5%）在11月底前将完成两剂接种。预计15日敲定第三剂追加接种计划，12月开始实施。根据日本政府的统计，至少已结束第一剂接种的有9909万人（占总人口的78.2%），接近一亿人。结束第二剂接种的有9458万人（同74.7%）。
 
-周日秘密透露：这位前澳大利亚日间剧明星已经接种了所有的标准疫苗，但是，却拒绝接种新冠疫苗。
+3、[**日本将在山口县新设“第2宇宙作战队”**](https://china.kyodonews.net/news/2021/11/7989f3849a6a-2.html)
 
-在她的社交媒体上回应批评者时她写道：“为了信息透明，我在人生中接种过很多疫苗，但是我只是要为大众争取选择权。”
+日本防卫相岸信夫14日表示，2022年度将在航空自卫队防府北基地（山口县防府市）新设“第2宇宙作战队”，负责监视用电磁波干扰日本人造卫星的行为。中国和俄罗斯在提高被称作安全保障“新领域”的太空和电磁波领域的能力，日本拟加强应对。
 
-这位36岁的前变形金刚女演员一直站在各种反新冠疫苗集会的焦点位置。这些集会的诉求就是结束边境控制与疫苗强制。
+4、[**四大企业将合作开发摩托车氢燃料发动机**](https://china.kyodonews.net/news/2021/11/42ecbfceec51.html)
 
-其中，在她留言到电视主播皮特·埃文斯的社交媒体帖子时说，“自由选择是每一个人的基本人权。我不相信靠新冠疫苗接种达到群体免疫这条路。”。
+日本川崎重工业公司和雅马哈发动机公司13日发布消息称，已开始探讨共同研发用于两轮摩托车的氢燃料发动机。本田和铃木今后也将加入，国内四大摩托车厂家为实现去碳化社会将携手合作。
 
-原文链接：[From Summer Bay to Anti-vax protest](https://www.dailytelegraph.com.au/subscribe/news/1/?sourceCode=DTWEB_WRE170_a&amp;dest=https%3A%2F%2Fwww.dailytelegraph.com.au%2Fentertainment%2Fsydney-confidential%2Factress-isabel-lucas-has-been-vaccinated-just-not-for-covid19%2Fnews-story%2F6ac012a44e7f4140b63d796a895cd5b1&amp;memtype=anonymous&amp;mode=premium&amp;v21=dynamic-warm-control-score&amp;V21spcbehaviour=append)
+5、[**疫情下2020年度日本婚礼平均费用创新低**](https://china.kyodonews.net/news/2021/11/6971152277ed-2020.html)
 
-***发布：Candy***
+共同社14日消息，日本出版结婚信息杂志《皆喜》（ZEXY）的瑞可利公司日前发布的结婚趋势调查等显示，2020年度全国每对新人婚礼及婚宴总费用平均较上年度减少70万日元，为292.3万日元（约合人民币16万元）。创2005年度开始全国调查以来新低。
 
-**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团 / 文小白
+发布：东京樱花团 / tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
