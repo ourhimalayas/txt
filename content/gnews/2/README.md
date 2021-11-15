@@ -2,36 +2,35 @@
 ---
 
 
-## 如果强制用药造成伤害，雇主可能面临100万美元的赔偿金
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1666986/)
+## 小罗伯特肯尼迪抗议意大利的“极权主义”绿色通行证
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1667028/)
 
-翻译：七叶之芒
+翻译：真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/11/kenn-649x437-1-edited.jpg)图片来源：网络
+来自OAN  十一月十四日星期天新闻报道：当数千人聚集在米兰抗议意大利的绿色通行证时，小罗伯特·肯尼迪并肩游行。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9f8f474c-1d6e-4c34-a409-3348da662bed-medium16x9_GettyImages491686095.jpg)根据 SB 1106，雇员可以在法庭上向雇主提出索赔，要求对因接种疫苗或医疗造成的伤害或疾病造成的实际和惩罚性损害赔偿。 (mj0007/ iStock / Getty Images Plus)
+Kennedy Jr. 断言：“绿色通行证是为了巩固他们的权力而不顾您的生活。”
 
-俄克拉荷马城（KOKH）–参议员Rob Standridge提交了参议院法案1106，即“公民健康任务保护法”，该法案针对那些要求将疫苗或其他医疗作为就业条件的公共和私人实体和个人。
+周六，关于政府对抗 COVID 的措施， 示威者交流了他们的焦虑与失望。 他们高兴地向美国前参议员罗伯特·肯尼迪的儿子致意，因为反疫苗倡导者认为绿色通行证不是一项公共卫生措施，而是政府控制的一种手段。
 
-如果该药物或治疗出现问题，这些雇主可能要承担100万美元的惩罚性赔偿。
+“这显然是一种控制货币供应、控制个人行动、控制我们这种新型数字化经济的工具，这使他的极权主义分子有能力控制我们生活的方方面面、每一个特征，而绿色通行证就是这一切的象征”，小肯尼迪说。
 
-“许多俄克拉荷马人可能不知道，COVID-19疫苗已经得到了联邦政府的责任保护”，Standridge说。“如果一个雇员被要求接受疫苗或其他一些医疗治疗作为就业条件，并导致该人受到伤害，我们的公民需要知道他们将有一些追索权，为他们提供有意义的救济。这就是我的立法所要做的。”
+在意大利政府上个月批准绿色通行证后，该国的抗议活动已持续数周，该通行证要求该国所有工人出示疫苗接种证明、检测结果呈阴性或最近从病毒中康复。 Kennedy Jr. 说，通行证被用作剥夺他们权利的工具，他说除非劳工努力争取，否则当局永远不会归还他们的权利。
 
-根据SB 1106法案，雇员可以向法院提出索赔，要求雇主对作为就业条件要求的疫苗接种或医疗项目造成的伤害或疾病作出实际和惩罚性赔偿。如果雇主在没有确认其安全性的情况下故意要求进行疫苗接种或治疗，雇主将自动受到100万美元的惩罚性赔偿。
+Kennedy Jr. 已经表达了他对此事的看法，并计划将他的言论付诸行动。
 
-该法案将适用于所有私营和公共部门的雇主。
+“我可以告诉你，我会和你并肩站在一起，如果我必须为此而死，我会穿着靴子死去”，他说。
 
-Standridge的立法将在2月份进行审议。
+**点评：小罗伯特·弗朗西斯·肯尼迪**（**Robert Francis Kennedy Jr.**，1954 年 1 月 17 日出生）是美国环境律师、作家和[反疫苗](https://en-m-wikipedia-org.translate.goog/wiki/Anti-vaccine?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc)倡导者。是美国参议员[罗伯特·肯尼迪](https://en-m-wikipedia-org.translate.goog/wiki/Robert_F._Kennedy?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc)的儿子，也是[约翰·肯尼迪](https://en-m-wikipedia-org.translate.goog/wiki/John_F._Kennedy?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc)总统的侄子。他于周六从佛罗里达飞到意大利米兰，参与群众的抗议集会，去捍卫民主，健康的自由选择权和科学领域的透明度。
 
-参考资料：[okcfox.com][Employers could face $1 million in damages if mandated medications cause harm](https://okcfox.com/news/local/employers-could-face-1-million-in-damages-if-mandated-medications-cause-harm)
+我们每个爆料革命的战友都应该向小肯尼迪学习，做到有信仰并为此付出行动。
 
-* * *
+原文链接：[https://www.oann.com/robert-kennedy-jr-protests-italys-totalitarian-green-pass/](https://www.oann.com/robert-kennedy-jr-protests-italys-totalitarian-green-pass/)
 
-*审核：蚂蚁兄弟*
-*发布：信心的选择*
+编辑/发布：LILY
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
-
-
-
+20211115
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

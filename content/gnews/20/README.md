@@ -2,28 +2,23 @@
 ---
 
 
-## 辉瑞公司首席执行官的妻子因接种疫苗引发的并发症而去世
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1666673/)
+## 加密数字货币市场投资已势不可挡
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1666714/)
 
-By 意大利罗马达芬奇农场 – 袅袅小队长
+采编：青青， 编译撰稿：硫酸羟氯喹64
 
-马瑞安.布尔拉（Myriam Bourla），现年48岁，是辉瑞首席执行官阿尔伯特·布尔拉（Albert Bourla）的妻子，据马瑞安.布尔拉的医生称，她于周三（11月10日）早些时候死于注射 COVID-19 疫苗的并发症。马瑞安.布尔拉（Myriam Bourla）被护理人员送入在纽约长老会劳伦斯医院，并在医院的急诊室去世，死因被列为由辉瑞疫苗引发的并发症。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a.jpg)图片来源：GNEWS
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/截屏2021-11-12-23.13.30-2-1.jpeg)图片左：马瑞安.布尔拉
 
-马瑞安.布尔拉（Myriam Bourla）和她的丈夫住在纽约市郊的斯卡斯代尔区。布尔拉与很多一样对她丈夫的注射实验性疫苗表示怀疑，最初拒绝接种。在接受 Scarsdale 10583（当地的社区新闻网站） 采访布尔拉时，她表示虽然她为丈夫所做的工作 “感到自豪”，但她最初拒绝接种疫苗，称 “还没有轮到她”。
+据加拿大媒体《CTV新闻》11月12日刊文报道，由于比特币价格在近期的巨大反弹中创下了新高，这预示着整个加密数字货币市场正朝着超过3万亿美元的总市值持续迈进。
 
-她曾说：“我只是想传达我为我的丈夫和他所做的工作感到非常自豪。我也为人类和疫苗带给世界的希望感到高兴。我还没有接种疫苗，因为还没有轮到我。”
+报道指出，目前投资加密数字货币正变得越来越趋势化，并渐已成为未来金融市场的关键性产品和决定性方向。因此，加拿大各主要金融机构，包括万事达卡、PayPal、Square、Visa及其他众多投资公司都充分认识到，新兴加密数字货币将很快成为其基础服务和支付系统的最重要因素。
 
-许多人据此认为，这一声明表明马瑞安.布尔拉和许多人一样，对未经充分测试的疫苗持怀疑态度。
+为此，知名数字资产集团[Ninepoint Partners]的总经理[塔普斯科特]认为：“数字资产市场”的增长潜力是无限巨大的。而加密数字货币是正在深刻改变现有经济结构和金融服务的，包括协议代币、治理代币、不可伪造代币和稳定币等，众多新型数字资产中最核心的一种。
 
-新闻来源：
-[Wife of Pfizer’s CEO dies after complications from the vaccine](https://www.conservativebeaver.com/2021/11/10/the-wife-of-pfizers-ceo-dies-from-complications-from-the-vaccine/)
-[Wife of Pfizer CEO Has Not Had the Vaccine Yet Because She Says, “It’s Not My Turn”](https://scarsdale10583.com/section-table/30-neighborhood-news/8766-wife-of-pfizer-ceo-has-not-had-the-vaccine-yet-because-it-s-not-her-turn)
+同时，越来越多的金融投资机构都将新兴加密数字货币作为其对冲当前高速通货膨胀的有效工具。尽管目前其规模和黄金这种更传统对冲方式相比暂时只占一小部分，但根据金融市场在不确定时期往往会迅速反弹的基本特点，”优质加密数字货币“所特有的波动增长性则被投资业界视为一个绝佳的对冲和避险良机。
 
-* * *
-
-校对/上传：阿娜意大利
+[原文链接：](https://www.ctvnews.ca/business/pattie-lovett-reid-key-questions-to-ask-before-investing-in-cryptocurrency-1.5659992)
 
  
 
