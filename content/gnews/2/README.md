@@ -2,13 +2,11 @@
 ---
 
 
-## 日本计划组建太空部队，监控中共对日本卫星的破坏
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1664816/)
+## 11/14/2021 文贵直播：恒大一定破产，随后将对中共国和世界金融、经济造成雪崩效应
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1664847/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._15-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

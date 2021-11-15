@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/15/2021 2:08 AM (UTC)`
+
+11/14/2021 Miles Guo: A Chinese bioweapons scientist currently living in Europe explains why the COVID vaccine disaster is beginning next May; the scientist predicts that half of the world's vaccinated people may die; according to the scientists' intelligence, the CCP will release a new virus and the upcoming outbreak will spread from the West Coast to the East Coast in the U.S.<br/><br/>11/14/2021 文贵直播：现居欧洲的中国生化武器科学家解读疫苗灾难为何会在明年五月开始；科学家预测全球接种疫苗者或将有一半死亡；科学家的情报表明，中共将释放新病毒并让疫情从美西蔓延到美东<br/>
+![img](https://media.gettr.com/group37/getter/2021/11/15/02/08/1c2554ed-a1b5-7f3b-17d8-340a15e323d2/out.jpg)
+
+---
+
+`@miles 11/15/2021 2:04 AM (UTC)`
+
+11/14/2021 Miles Guo: Evergrande will definitely declare bankruptcy, which will lead to the financial and economic avalanche in the Communist China and in the rest of the world. The terrible mainstream media in the West not only avoids reporting on the problems caused by the COVID vaccines, but also covers the Evergrande crisis in a uniform manner by dodging the key issues while focusing on the minor stuff. Because all the mainstream media outlets are backed by the same group of evil people<br/><br/>11/14/2021 文贵直播：恒大一定破产，随后将对中共国和世界金融、经济造成雪崩效应，可恶的是西方主流媒体非但不提疫苗问题，对恒大爆雷也是统一口径、避重就轻，因为背后都是同一拨邪恶的人<br/>
+![img](https://media.gettr.com/group9/getter/2021/11/15/02/04/a2ac0663-a3cb-b129-739c-1ab5e06ab165/out.jpg)
+
+---
+
 `@miles 11/14/2021 10:04 PM (UTC)`
 
 11/14/2021 Miles Guo: The New Federal State of China will have our own defense forces around the world to safeguard not only the fellow fighters and their families, but also other Asians; fellow fighters who are fluent in your local languages, please follow the instructions of the Himalaya Farms at any time to participate in the coordination at the front line<br/><br/>11/14/2021 文贵直播：新中国联邦在全球会有我们自己的国防军，不但保护战友和家人，也保护其他亚裔；请熟练掌握当地语言的战友们随时听候农场调遣，参与前线协调工作<br/>
@@ -282,20 +296,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 在中共给开始给孩子打疫苗后，许多家长反映，他们的孩子身上已开始出现疫苗不良反应，例如头疼、恶心、肚子疼、发烧、甚至昏睡不醒，间歇性失明等等。<br/><br/>After the CCP started to jab the kids, a few parents report the adverse effects are emerging among their children, such as headache, nausea, stomachache, fever, even couldn't be waked up, intermittent blind , and so on <br/>
 ![img](https://media.gettr.com/group41/getter/2021/11/10/00/03/21e52fe1-cf25-f50e-8e36-5b77b1e2f30e/out.jpg)
-
----
-
-`@miles 11/9/2021 11:55 PM (UTC)`
-
-英国殡仪馆总监：“现在年轻人已经接种了疫苗，我一口气就处理了12例年轻死者” 。“我还在停尸房的冰柜里看到了很多新生婴儿”。“数量非常大...一家医院就有大约30个”。<br/><br/>A British funeral director: “And with younger people, they're now vaccinated. And I had about 12 in one go”. “ And what I've seen is a lot of newborn babies in the fridges in the mortuaries.” “They're really high...about 30 in one hospital”<br/>
-![img](https://media.gettr.com/group6/getter/2021/11/09/23/55/0ba22971-fadf-394f-8d58-545723d04bba/out.jpg)
-
----
-
-`@miles 11/9/2021 11:41 PM (UTC)`
-
-11月9号：我得乖乖嘞，这个提现十万美元意义之深远，就是改变世界的金融系统的又一个开始！这个世界很快就没有人再需要信用卡．支票．银行帐号，实现真正的财富的自由．和绝对的财富的隐私和保密．安全，有尊严的享受自己创造的财富，一切都已经开始！
-![img](https://media.gettr.com/group3/getter/2021/11/09/23/5ccf4008-0076-0925-f1c8-7f2aeb44040a/2492f39458c24938e8dbca54196d4b61.jpg)
 
 ---
 
