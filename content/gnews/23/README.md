@@ -2,29 +2,51 @@
 ---
 
 
-## 11月14日文贵大直播精剪汇编
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1665319/)
+## 疫苗无效 欧洲将面临第四波疫情的冲击
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1665423/)
 
-撰稿&视频：亭湖来客
+作者：纽约香草山医疗部 – 云豹
 
-在11月14日的大直播中，郭先生披露了“所有的疫苗产生灾难将从2022年五月份开始”。这一论断的情报来源是一年前，北京防生化学院资深生化武器专家（现在在欧洲）告诉郭先生的，随着疫苗普及率的提高，病毒会变种，同时依据每个人不同身体状况及反应，综合人均结果得出来的。
 
-届时我们会看到飞机、邮轮……相继出事，身体越好的，像运动员、飞机驾驶员就越是死的突然。因为所打的疫苗中MRNA成分，最终会造成身体心肌炎、心包炎。至于致死率，按全球一半人打疫苗的话，那一半的一半就会死掉。而且这位科学家说唯一的防范措施就是不打疫苗，尽量不要跟打疫苗的人密切接触。
 
-更重磅的是，科学家三天前便向郭先生提到新病毒即将被投放，而且一定是从美国西部到东部。科学家的依据是，他的一位学生，在失联一段时间后出现在了美国的西部。经科学家这么一提点，郭先生根据丰富的情报经验，敏锐的察觉出不妙。同时一位曾策划干掉班农的战友向郭先生透露，六中全会后，美国等西方国家，又一波新的变种病毒会出来。这也更进一步验证的中共将在美国自西向东放毒的计划。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-科学家指出变种病毒出来以后，不仅会加速疫苗对身体的反应，而且会加速政府推广疫苗，这就是真正灾难开始。
 
-届时人类将面临最黑暗的时刻，只有依靠爆料革命，新中国联邦的战友们紧紧团结在一起，才可能安全。
 
-（文章仅代表作者观点，与Gnews平台无关）
+11月13日，欧洲疾病预防管制中心发布的中共病毒评估数据显示，欧洲正面临第四波飙升的中共病毒疫情。
 
-*发稿：mgjxs*
+截至11月11日为止的过去2周，欧盟成员国及冰岛、挪威等欧洲经济区通报了约209万确诊案例，整体疫情呈现确诊病例迅速增加、死亡率缓慢增加的态势。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+欧洲疾病预防管制中心认为，在未来的两周，欧洲地区的新增确诊、死亡以及住院人数都将继续增加。并且警示，比利时、荷兰、捷克及希腊等10个国家需要极度关注疫情的蔓延。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.3-2.jpg)
+参考链接：
+[歐洲疫情飆升 比利時荷蘭等10國列非常高度關注](https://www.cna.com.tw/news/aopl/202111130209.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+[印度北方邦暴发寨卡疫情病毒感染者增至89人](https://www.google.com.tw/search?q=%E5%8D%B0%E5%BA%A6%E5%8C%97%E6%96%B9%E9%82%A6%E7%96%AB%E6%83%85&amp;hl=zh_hant_hk&amp;dcr=0&amp;source=hp&amp;ei=f5GQYdv4N4bc0gSPgKaoDA&amp;iflsig=ALs-wAMAAAAAYZ-Cfj6bUFUg0lEURwhUoQED3jsm_KFYe&amp;oq=%E5%8D%B0%E5%BA%A6%E5%8C%97%E6%96%B9&amp;gs_lcp=Cgdnd3Mtd2l6EAEYAjIFCAAQgAQyBQguEIAEMgUIABCABDIFCAAQgAQyBA-gAEB4yBAgAEB46FAgAEOoCELQCEIoDELcDENQDEOUCOggILhCxAxCDAToICC4QgAQQsQM6CwguEIAEELEDEIMBOgsIABCABBCxAxCDAToICAAQgAQQsQM6BQgAEM0COgQIABBDU-PlLWJ7FAWC0xgFoBXAAeACAAf4BiAHXB5IBBjEyLjAuMZgBAKABAbABCg&amp;sclient=gws-wiz)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：文特
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,46 @@
 ---
 
 
-## 针下亡魂｜美国 45 岁知名漫画家接种疫苗后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1665474/)
+## 喜马拉雅币一周分析
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1665499/)
 
-**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 15/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
-
-【美国】俄勒冈州一名 45 岁的漫画家Jesse Hamm 在接种莫德纳 COVID-19 疫苗后死亡。这一消息令整个漫划界大为震惊。
-
-Jesse Hamm 的妻子 Anna 于 5 月 13日在 Twitter 上简单宣布了丈夫的死讯。她在该贴中特别指出，丈夫死于“肺部血凝块”，有网友在帖子下留言，询问 Jesse Hamm 是否已经接种过 COVID-19 疫苗，Anna 迅速回覆指“他接种过一剂莫德纳。”
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Anna-Sahrling-Hamm.png)
-
-根据资料，Jesse Hamm 早在十几岁的时候就出版了他人生的第一部漫画，自 1990 年代以来，他一直活跃在漫划界，同时与许多大牌公司都有合作，包括漫威、DC 漫画和俄勒冈州的黑马漫画。
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-05-13-at-4.32.25-AM-min.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-05-13-at-4.32.10-AM-min.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-05-13-at-4.31.45-AM-min.png)
+作者：纽约香草山农场金融部 – ILOVE战神
 
 
-他的最新作品“植物大战殭尸第 18 卷：建筑故事”原定在两个月后发售，可惜，他等不到那一天了。许多粉丝、朋友和同业都纷纷在网上留下了对他哀悼及不舍。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗_0-2.jpg)
-来源｜[个案061](https://twitter.com/ASahrlingHamm/status/1392509511525568517)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//｜//[美国 39 岁女医护接种疫苗4日后死亡](https://gnews.org/zh-hans/1625214/)//｜//[美国 56 岁男医生接种疫苗两周后死亡](https://gnews.org/zh-hans/1629915/)//｜//[德国 32 岁心理学专家接种疫苗12日后死亡](https://gnews.org/zh-hans/1636096/)//
+
+
+过去一周喜马拉雅币价格从约$19上涨至$30.120，一周内涨幅突破58%。喜马拉雅币上市以来交易量突破1500万枚 ，占今年总发行量仅约1.5%。目前大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。本周喜马拉雅交易所的提现功能已经上线，每日提现上限10万美元，最低提现1000美元，手续费千分之一，最低100美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3.1-4.jpg)
+据郭文贵先生直播中透露，未来喜美元很快会开通有息存款，以HCN支付，利率会超过美国国债。战友们还可以用喜币进行抵押贷款，并将部分贷款金额存入喜美元获得利息收入。未来喜币的价值将会由三个标志性事件决定：权威投资机构对喜交所与喜支付的投资、国家级批准的虚拟货币银行牌照以及最终被主权国家承认为国家的法定货币。目前已经有1000多家金融机构在喜交所开户。喜币已获得美国和澳大利亚支付牌照，未来可能会获得近70个国家的支付和交易牌照。另外喜支付的业务与生态系统也在全球推进，拓展喜支付全球业务的战友将终身享受提成奖励。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-71.jpg)
+另外，本周11月9日 – 中共央行易纲周二在芬兰央行新兴经济体研究院成立30周年纪念活动上发表视频演讲，介绍了数字人民币研发的进展情况。根据易纲的讲话，数字人民币不计付利息，并被中共政府和央行实行严格的中心化管控，各方面的设计和用户体验都远远落后于喜币。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：文特
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
