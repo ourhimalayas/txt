@@ -2,10 +2,10 @@
 ---
 
 
-## 布林肯敦促北京和平解决台海两岸分歧
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1665136/)
+## 19岁女孩被迫接种疫苗后出现严重健康问题
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1665188/)
 
-作者：澳喜农场 – 在远方
+作者：东京方舟农场 – 冰糖葫芦喵
 
 
 
@@ -13,20 +13,18 @@
 
 
 
-美东时间11月12日晚，美国国务卿布林肯，在与中共国外交部长王毅的通话中，敦促北京当局，要依据台湾人民的意愿和利益，通过有意义的对话，和平解决台海两岸分歧。
+11月13日，美国一家媒体发布了一位19岁女孩被迫接种疫苗后躺在医院的视频。
 
-此番对话是在拜登与习近平的视频会议之前发生的。通话中，布林肯强调了美国在台海和平稳定方面的长期利益，并对中共国持续对台湾的军事、外交及经济压力表示关切。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-5.jpg)
-台湾驻美代表萧美琴说，日本和欧洲几个国家都表示，愿意在台湾最困难的时刻协助与支持台湾。因为台湾的表现，已经被认为是世界上一股良善的力量。
-
-过去一年中，美国国会针对台湾的提案有将近40个，创历史新高。说明美国各界对台湾的安全、经济、健康和卫生十分关心，而且非常支持台湾。
+从视频中我们得知，这个女孩原本身体健康、充满活力。但在疫苗强制令发布以后，到处都有一种“不接种疫苗，就没有工作”的气氛，不接种疫苗的人被很多公共场合拒绝进入，并被很多人指责为“自私”。为了保住工作，不被视为异类，这个女孩决定碰碰运气，于是在10月份接种了辉瑞疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-6.jpg)
+但是接种疫苗后，女孩感觉自己像跑完马拉松一样非常疲惫，医生则在她的腿部和肺部发现了大量的血块。目前，她不得不仍然在医院里接受治疗，正常生活完全被毁。
 
 参考链接：
-[拜习会前布林肯与王毅通话，敦促北京与台湾有意义对话](https://www.voachinese.com/a/taiwan-top-diplomat-in-us-said-biden-xi-summit-intended-to-manage-competition-and-avoid-conflict-in-taiwan-strait-20211113/6312449.html)
+[Pfizer Jab EXPOSED: Healthy 19 Teen Coerced Into Submission, Now Fighting Tyranny From Hospital Bed \[VIDEO\]](https://www.redvoicemedia.com/2021/11/pfizer-jab-exposed-healthy-19-teen-coerced-into-submission-now-fighting-tyranny-from-hospital-bed-video/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-总编：Kathy文艺
+总编：飞虹
 编辑：文特
 校对/发稿：为真不破20
 

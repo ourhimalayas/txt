@@ -2,40 +2,32 @@
 ---
 
 
-## 中共国对澳大利亚构成 &#8220;威胁&#8221;
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1666042/)
+## 秘翻在线： 拼命贱卖资产的恒大最终肯定会破产
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1666158/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**撰稿：葛大饼**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/CCP-1.jpg)
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-15-203344.jpg)
+根据2021年11月15日 mydrivers快科技报道，英国电机制造商Saietta集团**将**从恒大集团旗下汽车子公司手中收购电动传动系统公司e-Traction，交易金额为200万欧元（合231万美元）。
+
+讽刺的是，2019年恒大公告斥资5亿元收购e-Traction，获得该公司世界最先进的轮毂电机技术，而如今的出售的价格只有当初的几十分之一，如此贱卖资产实属罕见。
+
+目前恒大集团正在应对逾3,000亿美元的违约债务。恒大不仅没有按时支付其三轮国际债券的利息，还一直在匆忙出售部分资产来筹措现金。
+
+有消息称，恒大集团的瑞典电动汽车子公司国能电动汽车目前也正在与美国和欧洲的风险投资公司和行业合作伙伴进行谈判，寻找新东家。
+
+而在几天前，英国的电动汽车制造商Bedeo也发消息称，已从恒大汽车手中收购了轮毂电机制造商Protean Electric。
+
+恒大没钱了，开始“卖儿卖女了”，卖光也救不了，因为它本身就是**个庞氏骗局。**
+
+其他人去救也救不了，如郭先生说的–恒大是“经济冠状病毒”，谁救它谁就会得上病毒。恒大终究也逃不出破产的宿命。
+
+**[新闻来源](https://m.mydrivers.com/newsview/796341.html?ref=https%3A//www.google.com)**
 
 
 
-图片来源：7NEWS
-
-
-#### 编译：小红帽
-
-《中共国的崛起》主持人彼得·斯特凡诺维奇（Peter Stefanovic ）表示，中共国对澳大利亚 “是一个威胁”。
-
-斯特凡诺维奇先生对《天空新闻》主持人安德鲁·博尔特（Andrew Bolt）说：”你只需看看过去几年习近平的语言。自从习近平升任主席后，这个政权就变得更加专制”。
-
-“现在习近平已经有了世界上最大的海军–中共国军队中有超过200万的地面部队。中共国拥有比任何地方都多的战机和军舰……还在南中共国海作出军事化的扩张”。
-
-“还有一个事实，习近平公开宣布他要收回台湾……尽管台湾的大多数人不希望这样”。
-
-《天空新闻》主播和调查记者彼得·斯特凡诺维奇于11月16日星期二和11月17日星期三晚上8点东澳时间推出具有里程碑意义的两部分纪录片《中共国的崛起》。
-
-**参考新闻：**[China is a ‘threat’ to Australia (msn.com)](https://www.msn.com/en-au/news/other/china-is-a-threat-to-australia/ar-AAQIpyl?ocid=msedgntp)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+#  
 
  
 
