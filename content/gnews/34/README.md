@@ -2,52 +2,50 @@
 ---
 
 
-## 俄克拉荷马州挑战五角大楼，叫停国民警卫队的疫苗强制接种
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1665277/)
+## 疫苗无效 欧洲将面临第四波疫情的冲击
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1665423/)
 
-![National Guard stand ready in Tulsa, Okla., where President Donald Trump holds a reelection campaign rally at the BOK Center on June 20, 2020. (Brendan Smialowski/AFP via Getty Images)](https://img.theepochtimes.com/assets/uploads/2021/11/14/Oklahoma-NG-national-guard-GettyImages-1221533286-1200x720-700x420.jpg)*2020 年 6 月 20 日，俄克拉荷马州塔尔萨举行竞选集会*。
-# 根据《大纪元时报》11月13日的报道，
-
-俄克拉荷马州国民警卫队新任指挥官，拒绝执行国防部(DoD)下达的中共病毒疫苗强制接种命令。
-
-陆军准将托马斯·曼奇诺(Thomas Mancino)在2021年11月11日发布的政策备忘录中写道：“我特此下令，无论联邦政府有何其它要求，我们都不要求俄克拉荷马州的警卫队士兵，接种中共病毒疫苗。俄克拉荷马州司令部将继续根据国防部政策，审核联邦疫苗豁免。此外，不会对拒绝接种中共病毒疫苗的卫兵采取任何负面的行政或法律行动。”
-
-曼奇诺在备忘录中说，俄克拉荷马州州长约翰·凯文·斯蒂特(J. Kevin Stitt)已要求美国国防部长劳埃德·奥斯汀(Lloyd Austin)放弃疫苗强制接种，目前正在等待决定。
-
-曼奇诺在被斯蒂特任命为俄克拉荷马州的副将，和俄克拉荷马州陆军和空军国民警卫队指挥官，以接替迈克尔·汤普森(Michael Thompson)将军的一天后发布了这份政策备忘录。
-
-汤普森是一个疫苗接种的坚定支持者，他曾表示，拒绝接种疫苗的成员和联邦文职雇员将被劝诫，并要承担不明后果。
-
-曼奇诺在国民警卫队服役35年，自2019年9月起一直担任俄克拉荷马州陆军国民警卫队助理副将。
-
-斯蒂特的一位发言人表示，领导层变动与疫苗接种政策无关。
-
-斯蒂特发言人卡莉·艾奇森(Carly Atchison)说：“州长几个月来一直在考虑做出改变，汤普森将军已经提交了辞呈。”
-
-在备忘录中，曼奇诺表示，斯蒂特是所有俄克拉荷马州国民警卫队的“合法总司令”，除非他们根据（美国法典）第10章进行联邦动员。
-
-俄克拉荷马州国民警卫队发言人中校杰夫·莱格勒(Geoff Legler)对《俄克拉荷马人报》说，曼奇诺的备忘录反映了“州长有能力在俄克拉荷马州国民警卫队人员在该州境内时，对他们行使指挥权”，而不是在他们参加美国国防部开展的活动时。
-
-简评：
-
-本篇报道中说，“斯蒂特的一位发言人表示，领导层变动与疫苗接种政策无关”，但是，根据通篇描述的俄克拉荷马州对美国国防部疫苗强制接种令的应对情况判断，它是有关系的。郭文贵先生在GTV直播中针对疫苗强制接种一事曾做出判断：接下来会有人辞职，疫苗强制接种政策在各国都会陆续停止。现在看来，这些分析判断，正在不断被验证。我们也希望以美国为首的西方国家，早日从中共病毒和中共病毒疫苗的阴谋中觉醒，从而带动全世界的正义力量消灭中共这个邪恶的共产主义政权。
-
-新闻链接: [https://m.theepochtimes.com/oklahoma-defies-pentagon-halts-vaccine-mandate-for-national-guardsmen\_4102754.html](https://m.theepochtimes.com/oklahoma-defies-pentagon-halts-vaccine-mandate-for-national-guardsmen_4102754.html)
-
-翻译/简评：Harvey (叶知秋)
-
-PR：Julia Win
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山医疗部 – 云豹
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+11月13日，欧洲疾病预防管制中心发布的中共病毒评估数据显示，欧洲正面临第四波飙升的中共病毒疫情。
+
+截至11月11日为止的过去2周，欧盟成员国及冰岛、挪威等欧洲经济区通报了约209万确诊案例，整体疫情呈现确诊病例迅速增加、死亡率缓慢增加的态势。
+
+欧洲疾病预防管制中心认为，在未来的两周，欧洲地区的新增确诊、死亡以及住院人数都将继续增加。并且警示，比利时、荷兰、捷克及希腊等10个国家需要极度关注疫情的蔓延。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.3-2.jpg)
+参考链接：
+[歐洲疫情飆升 比利時荷蘭等10國列非常高度關注](https://www.cna.com.tw/news/aopl/202111130209.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+[印度北方邦暴发寨卡疫情病毒感染者增至89人](https://www.google.com.tw/search?q=%E5%8D%B0%E5%BA%A6%E5%8C%97%E6%96%B9%E9%82%A6%E7%96%AB%E6%83%85&amp;hl=zh_hant_hk&amp;dcr=0&amp;source=hp&amp;ei=f5GQYdv4N4bc0gSPgKaoDA&amp;iflsig=ALs-wAMAAAAAYZ-Cfj6bUFUg0lEURwhUoQED3jsm_KFYe&amp;oq=%E5%8D%B0%E5%BA%A6%E5%8C%97%E6%96%B9&amp;gs_lcp=Cgdnd3Mtd2l6EAEYAjIFCAAQgAQyBQguEIAEMgUIABCABDIFCAAQgAQyBA-gAEB4yBAgAEB46FAgAEOoCELQCEIoDELcDENQDEOUCOggILhCxAxCDAToICC4QgAQQsQM6CwguEIAEELEDEIMBOgsIABCABBCxAxCDAToICAAQgAQQsQM6BQgAEM0COgQIABBDU-PlLWJ7FAWC0xgFoBXAAeACAAf4BiAHXB5IBBjEyLjAuMZgBAKABAbABCg&amp;sclient=gws-wiz)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：文特
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

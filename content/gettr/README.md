@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/15/2021 10:41 AM (UTC)`
+
+11/14/2021 Miles Guo: Xi’s evil plan is to bring down the world’s economy by using the CCP’s real estate crisis so that he can invade Taiwan during the chaos, but this will speed up the world’s recognition of the legitimacy of the New Federal State of China; Jack Ma will either run away or get killed; Alvin Jiang mistakenly believed Singapore was a safe place to hide his money, indicating there is no real smart guy in the CCP<br/><br/>11/14/2021 文贵直播：习妄图利用中共房地产崩溃搞垮世界经济，以趁乱打台湾，而这将加速世界承认新中国联邦；马云要么逃走，要么被弄死；江志成误以为新加坡可安全藏钱，这说明中共内部没有聪明人<br/>
+![img](https://media.gettr.com/group40/getter/2021/11/15/10/41/3e7fb3f2-d630-8d40-ab2d-2a509f7313e7/out.jpg)
+
+---
+
 `@miles 11/15/2021 3:27 AM (UTC)`
 
 11/14/2021 Miles Guo: What’s the key issue of this global supply chain disaster? The CCP virus and the vaccine side effects causing massive labor shortage of blue-collar and office workers and sailors in manufacturing sectors, ocean transportation and ports; vaccine disasters have not come yet<br/><br/>11/14/2021文贵直播：全球供应链问题的核心是什么？病毒疫苗造成生产、海运、港口中高低端劳动力的大量短缺；疫苗给人类带来的灾难还没有开始
@@ -289,13 +296,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 11/10/2021 Miles Guo: The internal report from the 6th Plenary Session exposed eleven “No. 1”s of CCP China, including: over 11 million people were diagnosed of cancer last year; the CCP’s real estate is facing huge oversea debt default, up to 270 - 600 billion dollars of debt are overdue within the next 30 days; numerous high rank foreign nationals left Hong Kong in the past 3 months. What do all these facts mean?<br/><br/>11/10/2021 文贵直播：六中全会内部报告曝光中共国的11个“第一”，包括：去年癌症发病人数1100万、房地产海外债务违约、且30天内将面临2700亿到6000亿的融资和票据贷款；过去三个月香港大量外籍和外资高管撤离，这些意味着什么？<br/>
 ![img](https://media.gettr.com/group9/getter/2021/11/10/20/35/7d35e183-5710-bf2d-bdc0-ce4a846df504/out.jpg)
-
----
-
-`@miles 11/10/2021 7:12 PM (UTC)`
-
-《文贵大直播》宣传片之『历史直播追忆』：“既然已经开始，我们决不妥协；既然已经开始，我们一定要赢！该我们赢了，我们必须赢！”  —— 英国伦敦喜庄园『战鹰影视』出品
-![img](https://media.gettr.com/group13/origin/2021/11/10/19/12/01f3fee3-a9c8-eb2e-e1a4-11d4bb228b40/out.jpg)
 
 ---
 
