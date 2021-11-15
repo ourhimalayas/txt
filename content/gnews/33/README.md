@@ -2,10 +2,10 @@
 ---
 
 
-## 19岁女孩被迫接种疫苗后出现严重健康问题
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1665188/)
+## 澳洲上万民众抗议强制接种毒疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1665221/)
 
-作者：东京方舟农场 – 冰糖葫芦喵
+作者：英国喜庄园 – I770775
 
 
 
@@ -13,19 +13,20 @@
 
 
 
-11月13日，美国一家媒体发布了一位19岁女孩被迫接种疫苗后躺在医院的视频。
+11月13日，大批澳大利亚人聚集墨尔本游行示威，反对维多利亚州的CCP毒疫苗强制接种。
 
-从视频中我们得知，这个女孩原本身体健康、充满活力。但在疫苗强制令发布以后，到处都有一种“不接种疫苗，就没有工作”的气氛，不接种疫苗的人被很多公共场合拒绝进入，并被很多人指责为“自私”。为了保住工作，不被视为异类，这个女孩决定碰碰运气，于是在10月份接种了辉瑞疫苗。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-6.jpg)
-但是接种疫苗后，女孩感觉自己像跑完马拉松一样非常疲惫，医生则在她的腿部和肺部发现了大量的血块。目前，她不得不仍然在医院里接受治疗，正常生活完全被毁。
+秘密翻译组报道称，当天，有成千上万的澳大利亚示威者聚集在墨尔本中央商务区，和平抗议维州政府新提出的大流行封锁权力和疫苗强制接种。示威者的长队从维多利亚州立图书馆一直延伸到春天大街的议会大厦。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.2-5.jpg)
+本次游行的起因是，澳大利亚政府借CCP病毒大流行，对其公民实施了严厉的封锁和疫苗强制措施。维州州长丹尼尔听命于该法案，以前所未有的权力在全州实施严格的封锁。
+
+这种无端剥夺人民自由的疫苗专权，让越来越多的澳洲人走上墨尔本街头，他们高喊“推翻法案”的口号，和平表达自己的不满。
 
 参考链接：
-[Pfizer Jab EXPOSED: Healthy 19 Teen Coerced Into Submission, Now Fighting Tyranny From Hospital Bed \[VIDEO\]](https://www.redvoicemedia.com/2021/11/pfizer-jab-exposed-healthy-19-teen-coerced-into-submission-now-fighting-tyranny-from-hospital-bed-video/)
+[“杀死法案”-数千名澳大利亚人游行反对维多利亚州的中共病毒专权](https://gettr.com/post/pgwz8te353)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-总编：飞虹
-编辑：文特
+总编/编辑：文特
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

@@ -2,50 +2,47 @@
 ---
 
 
-## 疫苗无效 欧洲将面临第四波疫情的冲击
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1665423/)
+## 喜币上市有感，作《水调歌头》贺之
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1665469/)
 
-作者：纽约香草山医疗部 – 云豹
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+作者：霍金
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-6.jpg)图片来自MTV《Hcoin to the Moon》截图，链接：[https://www.youtube.com/watch?v=vgof8s0ahxE](https://www.youtube.com/watch?v=vgof8s0ahxE)
+时间过得很快，距离喜币上市已有两周，价格也由$0.1升至$30.26（最新数字），涨了三百倍，整体估值达到三万亿美元！这是前所未有的事，充分体现了设计者对当前经济与科技的把握，也足以奠定未来中国的经济基础，尤其令人惊讶的是，这份新鲜出炉的大蛋糕大半分给了无权无势（但拥有信仰）的普通人，一举缔造了一个拥有巨大财富的阶层，大为强化了世界正义力量。
 
 
-
-11月13日，欧洲疾病预防管制中心发布的中共病毒评估数据显示，欧洲正面临第四波飙升的中共病毒疫情。
-
-截至11月11日为止的过去2周，欧盟成员国及冰岛、挪威等欧洲经济区通报了约209万确诊案例，整体疫情呈现确诊病例迅速增加、死亡率缓慢增加的态势。
-
-欧洲疾病预防管制中心认为，在未来的两周，欧洲地区的新增确诊、死亡以及住院人数都将继续增加。并且警示，比利时、荷兰、捷克及希腊等10个国家需要极度关注疫情的蔓延。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.3-2.jpg)
-参考链接：
-[歐洲疫情飆升 比利時荷蘭等10國列非常高度關注](https://www.cna.com.tw/news/aopl/202111130209.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-[印度北方邦暴发寨卡疫情病毒感染者增至89人](https://www.google.com.tw/search?q=%E5%8D%B0%E5%BA%A6%E5%8C%97%E6%96%B9%E9%82%A6%E7%96%AB%E6%83%85&amp;hl=zh_hant_hk&amp;dcr=0&amp;source=hp&amp;ei=f5GQYdv4N4bc0gSPgKaoDA&amp;iflsig=ALs-wAMAAAAAYZ-Cfj6bUFUg0lEURwhUoQED3jsm_KFYe&amp;oq=%E5%8D%B0%E5%BA%A6%E5%8C%97%E6%96%B9&amp;gs_lcp=Cgdnd3Mtd2l6EAEYAjIFCAAQgAQyBQguEIAEMgUIABCABDIFCAAQgAQyBA-gAEB4yBAgAEB46FAgAEOoCELQCEIoDELcDENQDEOUCOggILhCxAxCDAToICC4QgAQQsQM6CwguEIAEELEDEIMBOgsIABCABBCxAxCDAToICAAQgAQQsQM6BQgAEM0COgQIABBDU-PlLWJ7FAWC0xgFoBXAAeACAAf4BiAHXB5IBBjEyLjAuMZgBAKABAbABCg&amp;sclient=gws-wiz)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：文特
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/22-4.jpg)图片来自MTV《Hcoin to the Moon》截图，链接：[https://www.youtube.com/watch?v=vgof8s0ahxE](https://www.youtube.com/watch?v=vgof8s0ahxE)
+喜币上市之日曾有作词的打算，奈何文思苦涩，拖到了现在。词牌的选择是因为陈亮的那句“不见南师久，漫說北群空”，一直在心头萦绕盘旋。中国沦陷已有七十多年，情势远非南宋时可比，中国人的绝望，也远非尚有志同道合者的陈亮可比。中国人已经坐稳了奴隶吗？幸好有了郭文贵先生和爆料革命，唤醒了东西方正义之士起来抗争，一切都已经开始……
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/33-4.jpg)图片来自MTV《Hcoin to the Moon》截图，链接：[https://www.youtube.com/watch?v=vgof8s0ahxE](https://www.youtube.com/watch?v=vgof8s0ahxE)
+附词如下：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+水调歌头
 
+贺喜币成功上市，用陈亮《送章德茂大卿使虏》韵。
 
+华夏沉沦久，虐焰[1]正当空。
+高墙[2]紧锁，蜗角蝇头竞英雄。
+更有外宣民运[3]，四处蓝金黄黑，万国[4]跪朝东。
+侥幸逃新冠，会与毒苗逢。
+
+破重局，铸方舟，解印封[5]。
+紫微震曜，谈笑只手看平戎。
+盘古开天创世，大道功成归隐，此意先贤[6]通。
+鸡血尽须打，一币月宫中。
+
+【注解】
+
+[1] 虐焰：残暴的气焰。指中共统治。
+[2] 高墙：指中共国防火长城（Great Firewall, GFW）。
+[3] 民运：指海外伪民运、伪类。
+[4] 万国：指西方各国政要和经济大鳄（被中共收买、控制，不得不下跪朝拜）。
+[5] 解印封：指郭文贵先生的爆料及GTV、GETTR、班农作战室等解开了东西方统治者贴在人民思想上的封印。
+[6] 先贤：这里包括西方的贤圣，如华盛顿等。
+
+* * *
+
+编辑/发稿： 云起时
 
  
 
