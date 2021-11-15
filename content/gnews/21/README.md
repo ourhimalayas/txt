@@ -2,38 +2,56 @@
 ---
 
 
-## 澳洲球员亚姆·琼斯被迫结束职业生涯
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1665044/)
+## 联合国气候变化协议达成 煤炭减排承诺缩水
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1665072/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/足球.png)图片来源 carltonfc
+作者：纽约香草山农场 – 四季
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-**翻译：Lish
-编辑：MSGZ**
 
-（澳洲）卡尔顿足球队后卫利亚姆·琼斯（Liam Jones）在被发现未接种中共病毒疫苗的几天后，选择了结束他在（AFL）的职业生涯。这位30岁的球员与AFL签订的合同到2022才截止，他决定退出的理由是出于 “个人原因”。
 
-琼斯在卡尔顿周日发布的一份声明中说：“我希望我从澳大利亚足球联盟退休的决定能立即生效，我想借此机会感谢所有在我的旅程中支持我的人，无论是个人还是职业。我热爱这赛场，我会想念我的队友们。”
 
-根据AFL的疫苗接种时间表和维多利亚州政府的疫苗强制任务，男子球员必须在11月26日之前打完第二针，才能继续参加他们俱乐部的项目。琼斯在12个赛季中为卡尔顿和西部斗牛犬队打了161场比赛。他本应在12月6日回到蓝军的训练中。卡尔顿队足球主管布拉德·洛伊德（Brad Lloyd）表示，琼斯为此决定已经权衡了一段时间。
+11月13日，大约200个国家代表在格拉斯哥举行的《联合国气候变化框架公约》缔约方大会第26次会议（COP26）上一致同意一项治理气候变化的全球协议，维持《巴黎协定》要求把全球气温升高幅度控制在1.5摄氏度以内的目标。协议要求缔约方明年制定更加严格的气候控制承诺，让全球有可能避免气候变化的灾难。
 
-洛伊德说：“最近几个月，我们一直在与利亚姆进行沟通，并给他足够的时间来对他的球员生涯做出明智的决定。利亚姆今天（周日）向我们确认，他已经做出了退役的决定，而且他希望这个决定的具体原因能够被保密。作为一个俱乐部，我们将尊重这一点”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1422-1.jpg)图片来源：路透社
 
-在经历了职业生涯起初的不稳定后，琼斯近年来在蓝军的后防线上获得了强劲的表现。在新教练迈克尔·沃斯（Michael Voss）的带领下，他被塑造成了下个赛季打破不能进入总决赛的重要球员。
+该协议允许各国通过购买代表其他国家减排的抵消额度来部分实现其气候目标，未来可能为保护森林、扩大可再生能源和其他应对气候变化的项目释放数万亿美元的资金。但该协议让许多脆弱的国家感到失望，因为这些国家没有能力为与气候有关的损失和损害提供资金。
 
-在琼斯发出退役呼吁之前，阿德莱德足球俱乐部的首要球员丹尼·瓦恩哈根（Deni Varnhagen）因为反疫苗的立场而在本月早些时候被移至该俱乐部的非活动名单。与从事注册护士工作并直言不讳的瓦恩哈根不同，琼斯没有公开谈论过自己的观点。
+印度在中共国和其他依赖煤炭的发展中国家的支持下，最后一刻拒绝了一项要求“逐步淘汰”燃煤发电的条款。该条款被匆匆修正为要求各国“逐步减少”其煤炭使用。但是协议还是首次将化石燃料作为全球变暖的主要驱动力，煤炭的时代正在结束。
 
-利亚姆·琼斯说：“我希望人们尊重我的决定和隐私，我本人或我的管理团队都不会对此事发表任何进一步评论”。
+欧洲的富国和小岛屿国家以及其他发展中国家都对这一用词变化感到失望。对此，联合国秘书长安东尼奥-古特雷斯表示，批准的文本是一种妥协，它们反映了当今世界的利益、条件、矛盾和政治意愿状况。
 
-原文链接：[AFLW Crow ruled out of season after refusing vaccine | The New Daily](https://thenewdaily.com.au/football-2/2021/11/05/deni-varnhagen-aflw-covid-vaccine-unlisted/)
+**参考阅读：**
 
-***发布：Candy***
+1. [U.N. climate agreement clinched after late drama over coal | One America News Network (oann.com)](https://www.oann.com/u-n-climate-agreement-clinched-after-late-drama-over-coal/)
+2. [联合国气候变化大会达成协议，减煤承诺缩水 (voachinese.com)](https://www.voachinese.com/a/cop26-reach-deal-20211113/6312438.html)
 
-更多资讯，请关注：[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+**编辑/校对/发稿：小鹿**
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

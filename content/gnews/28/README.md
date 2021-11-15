@@ -2,48 +2,42 @@
 ---
 
 
-## 香港当局拒绝向《经济学人》记者发放签证
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1664982/)
+## “沉重的打击”：《环球时报》对澳大利亚发出了不详的警告
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1665000/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-276.png)
-来自《美国广播公司新闻》2021年11月13日报道
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-香港——《经济学人》(The Economist)杂志周五在一份声明中表示，香港当局   在没有任何解释的情况下，拒绝为一名在《经济学人》工作的外国记者续签签证。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/gm-1.jpg)
 
-黄淑琳是澳大利亚人，为该杂志驻香港，负责报道中共国和香港。
+图片来源：Defence Connect
+#### 翻译：月映万川
+编辑：朝花夕拾
 
-《经济学人》主编詹尼·明顿·贝多斯（Zanny Minton Beddoes）说：“我们对他们的决定感到遗憾……。我们敦促香港政府保持外国媒体的准入，这对香港作为国际城市的地位至关重要。”
+澳大利亚国防部长彼得·达顿在接受《澳大利亚人》采访时，达顿部长承认，澳大利亚单独与中共国直接冲突的想法是“不切实际”的，但却没有排除与美国一起应对中共国的可能性。
 
-移民局没有立即回复电子邮件的置评请求。在工作时间以外拨打该办公室的电话无人接听。
+他说，“如果美国采取行动，那么，不参加在美国的主导行动中的想法是不切实际的。”
 
-黄淑琳在推特上发布的一条消息中说：“很遗憾我将无法继续在香港报道。我喜欢了解这座城市及其人民。我会想念你们所有人”。
+一家中共党媒的编辑在国防部长彼得·达顿说，澳大利亚不与美国联手保卫台湾是“不可想象的”之后，却向澳大利亚发出了一个险恶的警告。
 
-简评：
+达顿先生的这番话是在中国和台湾之间的关系日益紧张的情况下发表的，而这番言论并没有被《环球时报》的主编所忽视。
 
-诸多记者的工作签证被拒，香港政府同样没有给出原因。这令香港的新闻自由进一步受到侵蚀。
+“如果澳大利亚军队来台湾海峡作战，难以想象中国不会对他们和为他们提供支援的澳大利亚军事设施进行猛烈攻击，”胡锡进在推特上写道，并附上了一篇详细介绍达顿先生言论的文章链接。
 
-自2020年6月，港府实施《国安法》以来，56%的记者承认至少在某种程度上自我审查或避免报导敏感话题，84%的人感到香港新闻行业的工作环境正在逐渐恶化，46%的受访者正考虑或已计划离开香港。
+“所以澳大利亚最好准备好为台湾和美国做出牺牲。”
 
-自《港版国安法》实施以来，香港政府加大镇压公民社会，引起了香港和国际社会的广泛谴责。
+《环球时报》是北京政府的著名喉舌，这不是胡主编第一次针对澳大利亚。
 
-原文链接:
+去年他在会见澳大利亚驻华大使格雷厄姆·弗莱彻时，曾将澳大利亚称为“除美国外对中国最不友好的国家”。
 
-[https://abcnews.go.com/Travel/wireStory/hong-kong-authorities-deny-visa-economist-journalist-81146725](https://abcnews.go.com/Travel/wireStory/hong-kong-authorities-deny-visa-economist-journalist-81146725)
+原文链接：[‘HEAVY ATTACK’: China-run newspaper’s ominous warning to Australia](https://au.news.yahoo.com/heavy-attack-china-run-newspaper-unleashes-australia-041128148.html?guccounter=1)
 
-翻译/简评：希望
+发布：文泓
 
-PR：Julia Win
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

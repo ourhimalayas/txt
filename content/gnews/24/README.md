@@ -2,44 +2,38 @@
 ---
 
 
-## 郭文贵直播摘要和音频 2021.11.14
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1665014/)
+## 澳洲球员亚姆·琼斯被迫结束职业生涯
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1665044/)
 
-摘要撰稿人：文俊
-
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2021/11/ffff.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/足球.png)图片来源 carltonfc
 
 
-**视频：**https://gtv.org/video/id=61910d9be7e770379234d270
+**翻译：Lish
+编辑：MSGZ**
 
+（澳洲）卡尔顿足球队后卫利亚姆·琼斯（Liam Jones）在被发现未接种中共病毒疫苗的几天后，选择了结束他在（AFL）的职业生涯。这位30岁的球员与AFL签订的合同到2022才截止，他决定退出的理由是出于 “个人原因”。
 
+琼斯在卡尔顿周日发布的一份声明中说：“我希望我从澳大利亚足球联盟退休的决定能立即生效，我想借此机会感谢所有在我的旅程中支持我的人，无论是个人还是职业。我热爱这赛场，我会想念我的队友们。”
 
-**音频：**
+根据AFL的疫苗接种时间表和维多利亚州政府的疫苗强制任务，男子球员必须在11月26日之前打完第二针，才能继续参加他们俱乐部的项目。琼斯在12个赛季中为卡尔顿和西部斗牛犬队打了161场比赛。他本应在12月6日回到蓝军的训练中。卡尔顿队足球主管布拉德·洛伊德（Brad Lloyd）表示，琼斯为此决定已经权衡了一段时间。
 
-**摘要：**
+洛伊德说：“最近几个月，我们一直在与利亚姆进行沟通，并给他足够的时间来对他的球员生涯做出明智的决定。利亚姆今天（周日）向我们确认，他已经做出了退役的决定，而且他希望这个决定的具体原因能够被保密。作为一个俱乐部，我们将尊重这一点”。
 
-- 北京防生化学院一位资深的战友他说所有的月份的地方灾难会在明年 5 月 5 日发生变种变化反应的结果越梗他说打了疫苗的最坏的结果的人会死的更不要跟打了疫苗的人接触
-- 新病毒即将开始：从美国西部到东部，共产党放毒从美国西部开始
-- 数字化资产：屁股底下坐的这部分链化变成了一个密码把链就是去中心的账本没有参与进来的你我之间的标准交易化的
-- 新中国军人国防军叫雇佣魏找当地人民的欧洲军队呼唤军友们知道本国的合法武器地线下面中国城等需要当地保护战友们我们不保护战京生这些人也在保护之列许是黄皮肤的人亚洲人受到合法的持枪保护
-- 虚拟货币的出现后：没有人在相信纸币票酒票政府都在无限制印钞票
-- 喜币三年一定比特币
-- 未来数据中心小型化，太空化！太阳能，0成本
-- 班农被辨认让他们清楚明白了，中共对美国窃听阴谋的威胁
-- 班农愿意在你的注册事件中成为美国的政治教父
-- 恒大不过去会沸腾
-- 恒大一个像往中国经济仍下巨石一样将给中国经济带来巨大的美国创业企业崩溃下欧洲的十年经济投资崩溃导致经济大崩溃就趁机打台湾
-- 供应链的核心运输医疗问题
-- 七哥推荐书“喜马拉雅”
-- 喜币、喜联储一定会改变世界金融
+在经历了职业生涯起初的不稳定后，琼斯近年来在蓝军的后防线上获得了强劲的表现。在新教练迈克尔·沃斯（Michael Voss）的带领下，他被塑造成了下个赛季打破不能进入总决赛的重要球员。
 
+在琼斯发出退役呼吁之前，阿德莱德足球俱乐部的首要球员丹尼·瓦恩哈根（Deni Varnhagen）因为反疫苗的立场而在本月早些时候被移至该俱乐部的非活动名单。与从事注册护士工作并直言不讳的瓦恩哈根不同，琼斯没有公开谈论过自己的观点。
 
+利亚姆·琼斯说：“我希望人们尊重我的决定和隐私，我本人或我的管理团队都不会对此事发表任何进一步评论”。
 
+原文链接：[AFLW Crow ruled out of season after refusing vaccine | The New Daily](https://thenewdaily.com.au/football-2/2021/11/05/deni-varnhagen-aflw-covid-vaccine-unlisted/)
 
+***发布：Candy***
 
-
-编辑发布：闪电训练
+更多资讯，请关注：[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)[Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
