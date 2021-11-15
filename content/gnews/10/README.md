@@ -2,47 +2,64 @@
 ---
 
 
-## 喜币上市有感，作《水调歌头》贺之
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1665469/)
+## 坎特推出反共鞋后，凯尔特人队令其长时间坐冷板凳
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1665483/)
 
-作者：霍金
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-6.jpg)图片来自MTV《Hcoin to the Moon》截图，链接：[https://www.youtube.com/watch?v=vgof8s0ahxE](https://www.youtube.com/watch?v=vgof8s0ahxE)
-时间过得很快，距离喜币上市已有两周，价格也由$0.1升至$30.26（最新数字），涨了三百倍，整体估值达到三万亿美元！这是前所未有的事，充分体现了设计者对当前经济与科技的把握，也足以奠定未来中国的经济基础，尤其令人惊讶的是，这份新鲜出炉的大蛋糕大半分给了无权无势（但拥有信仰）的普通人，一举缔造了一个拥有巨大财富的阶层，大为强化了世界正义力量。
+![Enes Kanter #13 of the Boston Celtics poses for a photo during Media Day at High Output Studios on September 27, 2021 in Canton, Massachusetts. NOTE TO USER: User expressly acknowledges and agrees that, by downloading and or using this photograph, User is consenting to the terms and conditions of …](https://media.breitbart.com/media/2021/10/Enes-640x480.jpg)
+几条抨击中共国奴工的推特在一年的时间内带来了多大的变化？波士顿凯尔特人队中锋埃内斯·坎特 (Enes Kanter) ，在社交媒体上发布一系列信息抨击NBA合作伙伴中共国压迫其人民的信息后，他的上场时间被严重削减，这让人不得不怀疑坎特是否因提倡自由而受到惩罚。
 
+在2020-21赛季，2011年的NBA首轮选秀中，坎特是波特兰开拓者队的一名主力球员。他打了72场比赛，平均每场上场时间为24.4分钟。根据NBA的统计数据，他在波特兰也获得了11.2分。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/22-4.jpg)图片来自MTV《Hcoin to the Moon》截图，链接：[https://www.youtube.com/watch?v=vgof8s0ahxE](https://www.youtube.com/watch?v=vgof8s0ahxE)
-喜币上市之日曾有作词的打算，奈何文思苦涩，拖到了现在。词牌的选择是因为陈亮的那句“不见南师久，漫說北群空”，一直在心头萦绕盘旋。中国沦陷已有七十多年，情势远非南宋时可比，中国人的绝望，也远非尚有志同道合者的陈亮可比。中国人已经坐稳了奴隶吗？幸好有了郭文贵先生和爆料革命，唤醒了东西方正义之士起来抗争，一切都已经开始……
+但今年，坎特的上场时间明显减少。自从他转会波士顿凯尔特人队后，他目前只参加了11场比赛中的两场，平均每次上场时间只有5分钟。
 
+这意味着，在公开表示他针对中共国的支持自由的行为之后，坎特今年只参加了16场比赛，只打了80分钟。而去年坎特在72场比赛中打了超过1,700分钟。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/33-4.jpg)图片来自MTV《Hcoin to the Moon》截图，链接：[https://www.youtube.com/watch?v=vgof8s0ahxE](https://www.youtube.com/watch?v=vgof8s0ahxE)
-附词如下：
+坎特与凯尔特人签订了一份价值270万美元的为期一年的合同，看来他们确实没有按照支付给坎特的工资水平，来让他打球。
 
-水调歌头
+问题是，为什么坎特像一个三线菜鸟一样坐在冷板凳上而不是上场？
 
-贺喜币成功上市，用陈亮《送章德茂大卿使虏》韵。
+本周，坎特承认NBA官员联系过他，他们用手指着他的脸，指责他批评联盟的红色中共国这个数十亿美元的合作伙伴。在最近的一次采访中，坎特承认NBA 威胁要禁止他进入联盟，因为他穿着带有批评中共国信息的鞋子。根据联合国观察组织（UNWatch）的数据，中共国是世界上最严重的人权侵犯者之一。
 
-华夏沉沦久，虐焰[1]正当空。
-高墙[2]紧锁，蜗角蝇头竞英雄。
-更有外宣民运[3]，四处蓝金黄黑，万国[4]跪朝东。
-侥幸逃新冠，会与毒苗逢。
+坎特坐冷板凳，是在他发布一系列关于中共国的视频和信息到社交媒体之后发生的。
 
-破重局，铸方舟，解印封[5]。
-紫微震曜，谈笑只手看平戎。
-盘古开天创世，大道功成归隐，此意先贤[6]通。
-鸡血尽须打，一币月宫中。
+这位29岁的球员发布了几段视频，他在视频中痛斥中共是“残暴的独裁者”，并呼吁他们停止压迫中共国少数民族维吾尔族和自由的西藏人民。
 
-【注解】
+坎特在10月20日的视频中，直接批评了中共国对西藏人民的可怕待遇，他在视频中指责红色中共国，并指责中共国对西藏人实施“文化灭绝”。他的视频迅速遭到中共国政府的报复，波士顿凯尔特人队的比赛，被立即从中共国的NBA转播合作伙伴腾讯上删除。
 
-[1] 虐焰：残暴的气焰。指中共统治。
-[2] 高墙：指中共国防火长城（Great Firewall, GFW）。
-[3] 民运：指海外伪民运、伪类。
-[4] 万国：指西方各国政要和经济大鳄（被中共收买、控制，不得不下跪朝拜）。
-[5] 解印封：指郭文贵先生的爆料及GTV、GETTR、班农作战室等解开了东西方统治者贴在人民思想上的封印。
-[6] 先贤：这里包括西方的贤圣，如华盛顿等。
+随后，这位球员又拍摄了一段视频，呼吁中共国结束其奴工制度和对少数民族维吾尔人的监禁。
+
+除了关注中共国的侵犯人权问题，他还发布了几款旨在提高人们对中共国罪行认识的鞋子设计。
+
+在强调中共国侵权行为的另一项行为中，这位篮网队球员直接与耐克及其高层菲尔·奈特进行了交谈。坎特猛烈抨击耐克的某些产品依赖奴工劳动的做法。
+
+此外，在10月坎特提议让耐克首席执行官菲尔·奈特飞往中共国，并写道：“我为大家预订机票，让我们一起飞往中共国。我们可以尝试去参观这些“奴隶”集中营，你可以亲眼看看。”
+
+他还邀请了勒布朗·詹姆斯和迈克尔·乔丹一同前往。
+
+这位土生土长的土耳其人是唯一一位反对共产主义中共政府的实际压迫（而不是想象中的）的NBA球员，他反对中共在工厂中普遍使用强迫劳动。
+
+坎特还通过反对土耳其独裁者总统雷杰普·塔伊普·埃尔多安来支持他的祖国的自由。然而，他的批评引发埃尔多安发出至少九份逮捕令，指控坎特“侮辱总统”。
+
+简评：
+
+埃内斯·坎特是一个真正值得尊重的人，他一直用他的明星地位来反对中共国政府侵犯人权的行为。他愿意无视自己的利益，为受迫害的人发声，不像那些虚伪的人或机构，整天谈慈善，但在金钱面前仍然选择在受苦的人面前保持沉默。我们新中国联邦的战友们需要团结这样有勇气和良知的人，当我们有更多的坎特这样的人勇敢地站出来，对中共的恶行及黑暗势力说不时，我们的世界将会变得更美好。
+
+新闻链接：[https://www.breitbart.com/sports/2021/11/12/shadow-benched-celtics-dramatically-slash-enes-kanters-playing-time-after-unveiling-anti-china-shoes/](https://www.breitbart.com/sports/2021/11/12/shadow-benched-celtics-dramatically-slash-enes-kanters-playing-time-after-unveiling-anti-china-shoes/)
+
+翻译/简评：Brianchow
+
+PR：Julia Win
 
 * * *
 
-编辑/发稿： 云起时
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

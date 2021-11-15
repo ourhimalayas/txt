@@ -2,37 +2,48 @@
 ---
 
 
-## 中共为防楼市崩盘在21座城市发布“限跌令”
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1665181/)
+## 19岁女孩被迫接种疫苗后出现严重健康问题
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1665188/)
 
-#### 作者：日本东京方舟农场 子辰
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/A46A4FB3-D897-4F97-9F7C-2B2369F2C8A2.jpeg)图片来自《大纪元》
-
-据《大纪元》11月14日报道，根据不完全统计，截至目前，中共国已经有21座城市发布了“限跌令”。
-
-11月1日，湖南永州市成为第一个下达“限跌令”的城市。该市住房和城乡建设局发布《关于严禁低价倾销的通知》，要求各房地产开发企业不得以任何理由私自低价（如低于成本价、变相降价）倾销，扰乱该区房地产正常秩序，违者将受到惩处。
-
-除永州市外，下达“限跌令”的城市还包括沈阳、岳阳、昆明、唐山、江阴、鄂州、张家口、株洲、永州等。其中，除了沈阳和昆明等个别城市外，其余绝大多数都是三、四、五线城市。
-
-在这些城市当中，有的是直接发布行政命令；有的则是通过约谈房企，限制其恶意降价，否则将不批准其网签方式。
-
-美国南卡大学艾肯商学院的谢田教授对此表示，中共出台“限跌令”是为了防止楼价持续下跌，导致楼市崩盘。中共国房地产市场目前的真实情况是供大于求，房源过剩。大量房企面临财务危机，为了偿还银行贷款，急于抛售手中滞销的房源，因此房价必然会大幅降价，最终导致房地产泡沫破裂，楼市崩盘。
-
-谢田教授还指出，中共事实上面临两难选择：阻止房企降价，房企就卖不出房，最终会因无力偿还贷款和债务而破产。而这又会进一步引爆银行坏帐，引发信贷危机。
-
-注：本文仅代表作者观点
-
-*新闻链接： [https://www.epochtimes.com/gb/21/11/13/n13374328.htm](https://www.epochtimes.com/gb/21/11/13/n13374328.htm)*
-
-* * *
+作者：东京方舟农场 – 冰糖葫芦喵
 
 
-```
-素材采编：子辰
-编辑：青衣青青
-发布：miumiu
-```
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+11月13日，美国一家媒体发布了一位19岁女孩被迫接种疫苗后躺在医院的视频。
+
+从视频中我们得知，这个女孩原本身体健康、充满活力。但在疫苗强制令发布以后，到处都有一种“不接种疫苗，就没有工作”的气氛，不接种疫苗的人被很多公共场合拒绝进入，并被很多人指责为“自私”。为了保住工作，不被视为异类，这个女孩决定碰碰运气，于是在10月份接种了辉瑞疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-6.jpg)
+但是接种疫苗后，女孩感觉自己像跑完马拉松一样非常疲惫，医生则在她的腿部和肺部发现了大量的血块。目前，她不得不仍然在医院里接受治疗，正常生活完全被毁。
+
+参考链接：
+[Pfizer Jab EXPOSED: Healthy 19 Teen Coerced Into Submission, Now Fighting Tyranny From Hospital Bed \[VIDEO\]](https://www.redvoicemedia.com/2021/11/pfizer-jab-exposed-healthy-19-teen-coerced-into-submission-now-fighting-tyranny-from-hospital-bed-video/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：飞虹
+编辑：文特
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
 
 
  

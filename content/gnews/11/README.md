@@ -2,28 +2,33 @@
 ---
 
 
-## 美议员代表团结束对台访问，行程包含总统府和国防部
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1665455/)
+## 有声| 习近平暗示想加入TPP 被岸田文雄泼冷水
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1665482/)
 
-编译报道：Leigh寶寶
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-111.jpg)
-据美国之音11月12日报道，由美国联邦共和党籍资深参议员科宁（John Cornyn）率领的一个参众议员代表团在结束对台湾为期两天的访问后，星期四（11月11日）傍晚搭乘一架阿联酋航空公司班机离开台湾，转赴迪拜。
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
 
-根据台湾媒体报道，美国参众议员代表团一行10多人身着便服抵达台湾桃园国际机场时，维持此行一直保持的低调作风，没有人向记者发表谈话或评论。
 
-由4位美国参议员和2位众议员以及7位助理组成的这个代表团未经官方宣布或公告，星期二傍晚搭乘美国海军一架C-40A行政专机，从菲律宾克拉克空军基地起飞后，突然飞抵台北松山空军基地。台美双方都拒绝透露访台美国国会议员的真实身份
+11月12日，APEC领导人在线上举行非正式会议。刚刚在六中全会上统一中共思想的习总加速师，携港府特首林郑月娥出席，并发表讲话称“应尽快建立，亚洲与太平洋，高规格自由贸易圈”，再次暗示想要挤掉台湾、以香港为跳板加入TPP的决心。
 
-台湾的中国时报报道说，代表团星期三一早前往台湾总统府拜会蔡英文总统和国安会官员，双方就台湾国防部署和自我防卫状况交换了意见。
+日本新任首相岸田文雄回应道：“TPP协议不会让贸易上不公平，以及用经济来对他国施压的国家加入。”委婉地表示TPP对中共并不欢迎，并暗指了中共统治下的中共国在贸易上的恶劣行径。
 
-星期三下午，有媒体拍到代表团进入台湾国防部的照片。台湾媒体报道说，代表团在国防部主要听取台湾军方就中共解放军最近对台军事恫吓行动所作的报告。
+日本媒体报道称，岸田文雄首相的表态，是对习总加速师发言的有力牵制。
 
-代表团在星期四离开台湾的当天上午，被拍到前往全球芯片代工龙头台积电新竹科学园区总部拜访，在公司办公大楼前与公司高管握手后进入办公大楼。有媒体报道说，代表团参访的是台积电创新馆。
+文字版原文：[习近平暗示想加入TPP 被岸田文雄泼冷水](https://gnews.org/zh-hans/1663780/)
 
-[参考链接](https://www.voachinese.com/a/us-lawmakers-mysterious-visit-to-taiwan-ends-20211112/6310586.html)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-审核校对：Barry Jack
-上传排版：F
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
