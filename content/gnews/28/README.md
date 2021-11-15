@@ -2,10 +2,10 @@
 ---
 
 
-## 五万人抗议中共病毒疫苗，澳大利亚墨尔本史上最大游行
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1666190/)
+## 鲍里斯·艾普斯汀：中共国更加集权和军事化准备攻击美国
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1666196/)
 
-11/13/2021 爆料人称澳大利亚墨尔本爆发史上最大抗议新冠病毒疫苗活动，大量民众上街游行示威。
+11/13/2021 鲍里斯·艾普斯汀：中共国更加军事化和集权准备攻击美国，而我们没有准备好。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,20 +2,20 @@
 ---
 
 
-## 中共国10月份鲜菜价格同比上涨15.9%
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666353/)
+## 国际女网协会关注彭帅 要求北京全面调查性侵指控
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666375/)
 
-#### 撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-83.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.corporatefinanceinstitute.com%2Fassets%2Fconsumer-price-index.jpeg&amp;imgrefurl=https%3A%2F%2Fcorporatefinanceinstitute.com%2Fresources%2Fknowledge%2Feconomics%2Fconsumer-price-index-cpi%2F&amp;tbnid=8C4ldc6aQ0ZZhM&amp;vet=12ahUKEwjg3fues5r0AhUNnEsFHRcLDq8QMygIegUIARCwAQ..i&amp;docid=9qB4aIwIUMlTCM&amp;w=1180&amp;h=980&amp;q=CPI&amp;ved=2ahUKEwjg3fues5r0AhUNnEsFHRcLDq8QMygIegUIARCwAQ)
-11月15日北京日报报道，中共国家统计局发布10月国民经济数据。10月份，全国居民消费价格（CPI）同比上涨1.5%，涨幅比上月扩大0.8个百分点；环比上涨0.7%。分类别看，食品烟酒价格同比下降0.9%，衣着价格上涨0.5%，居住价格上涨1.7%，生活用品及服务价格上涨0.9%，交通通信价格上涨7.0%，教育文化娱乐价格上涨2.9%，医疗保健价格上涨0.6%，其他用品及服务价格下降0.5%。
+#### 撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/11/454435.jpg)（图片来源于本文链接）
+在中国网球女将彭帅发文指控中国前副总理张高丽性侵近两周后，国际女子网球协会主席西蒙 (Steve Simon) 14日终于打破沉默发出公开声明，呼吁中国政府对彭帅做出的指控进行全面性的调查。西蒙在声明中写道：“彭帅，以及所有女性，都应该被倾听，而不是被审查。她对一位前中国领导人涉及性侵犯的指控必须得到最严肃的对待。在所有社会中，她指称发生的行为都需要被调查，而不是被纵容或忽视。我们赞扬彭帅站出来的非凡勇气。世界各地的妇女正在寻找她们的声音，以便纠正不公正的现象。”
 
-10月CPI涨幅扩大主要受到近期鲜菜价格上涨影响。在食品烟酒价格中，猪肉价格同比下降44.0%，鲜菜价格上涨15.9%，粮食价格上涨0.9%。
+西蒙表示，国际女子网球协会希望此事能被适当的处理，也就是中国政府必须针对彭帅做出的指控进行全面、公平且透明的调查，且过程中不该有审查的情况。彭帅是在11月2日晚间透过官方微博帐号指控遭张高丽性侵，该文在她发布后没多久便被删除，彭帅的微博帐号也无法继续使用。在百度与微博上，输入“彭帅”与“张高丽”等关键字时，与性侵事件相关的内容都不会出现，不过依然有些中国网民试图透过其他方式继续讨论彭帅的事件。
 
-中共国滥印钞票就像是从老百姓口袋里抢钱，老百姓手中的积蓄被稀释贬值，致商品流通领域通胀加剧，毛币加速贬值致使民生的蔬菜粮食也暴涨。
+自从她11月2日在微博上发布帖子后，彭帅便再也没有出现在公众视野中，目前外界对于她的安危与人在何处也没有进一步的消息。彭帅职业生涯曾赢过23座女网巡回赛的双打冠军，包含2013年的温布顿网球公开赛与2014年法国网球公开赛的女双冠军。彭帅虽然从未表示要退休，但根据国际女子网球协会网站显示，彭帅最后一次公开比赛是与韩馨蕴参加2020WTA卡达公开赛。而她对张高丽做出的指控，也是中国的Metoo运动自2018年发展至今，首位被女性指控性侵的前中国政府高官。
 
 信息来源：
 
-[10月全国CPI同比上涨1.5%，鲜菜价格同比上涨15.9%](https://mq.mbd.baidu.com/r/wrjXgauzqU?f=cp&amp;rs=3889805779&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=682eb6ff4fb14d9b)
+[国际女网协会关注彭帅 要求北京全面调查性侵指控](https://www.dw.com/zh/%E5%9B%BD%E9%99%85%E5%A5%B3%E7%BD%91%E5%8D%8F%E4%BC%9A%E5%85%B3%E6%B3%A8%E5%BD%AD%E5%B8%85-%E8%A6%81%E6%B1%82%E5%8C%97%E4%BA%AC%E5%85%A8%E9%9D%A2%E8%B0%83%E6%9F%A5%E6%80%A7%E4%BE%B5%E6%8C%87%E6%8E%A7/a-59818229)
 
 *编辑：东京樱花团/知了知了
 发布：东京樱花团/tdownc2p*
