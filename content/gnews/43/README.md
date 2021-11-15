@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国很可能是美国有史以来最难对付的对手
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1666198/)
+## 一位有良知的医生证明伊维菌素对治疗新冠的有效性
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1666200/)
 
-11/13/2021 鲍里斯·艾普斯汀：中共国很可能是美国有史以来最难对付的对手，甚至超过纳粹和苏联。
+11/02/2021 艾珀·洛佩兹医生分享了她自己治疗2400多名患者的经验，并证明了伊维菌素对治疗新冠是非常有效的。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

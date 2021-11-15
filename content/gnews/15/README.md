@@ -2,35 +2,32 @@
 ---
 
 
-## 秘翻在线:经济大萧条将持续到2045年
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1666639/)
+## 中共病毒导致2.5万吨塑料垃圾流入海洋
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666645/)
 
-撰稿:牛小妹
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Image-1-2-1.jpg)
-图片:网路
+作者：美东香草山农场 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+一项最新科研报告发现，超过2.5万吨与中共病毒大流行有关的塑料垃圾被释放到海洋中，加剧了已经失控的全球塑料垃圾问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-15-下午10.44.11.png)
+该研究指出，大部分的塑料垃圾是来自于医院，源于大量个人防护与医疗废物的管理与处置不善。释放的塑料垃圾可以在海洋中长距离漂移，可能导致海洋野生动物受伤害甚至死亡。
 
-**包藏祸心的基础设施法案**
+有研究指出，到2030年，塑料的生产在温室气体排放方面将超过煤炭。中共病毒造成的全球环境危机时刻威胁着人类的未来。
 
-根据《零对冲》的报导，11月12日，美国共和党国会议员经由两党协商合作，通过一项 1.2 万亿美元的基础设施法案。此法案除了三分之一的资金用于基础设施，其馀都是模糊不清的计划与内容。
+参考链接：[Research Study: Pandemic Put 25K Tons of Plastic in Ocean](https://www.newsmax.com/us/plastic-environmental-covid-19-ocean/2021/11/08/id/1043836/)
 
-最初的提案是 2.3 万亿美元，因此一些共和党议员甚至认为这是一场胜利。但它制定的计划可能会在该法案在五年到期的授权后仍继续存在。美国共和党籍政治家罗纳德·里根 (Ronald Reagan) 称，”没有什么比政府的临时法案可以持续得更久。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-**10 年内摧毁 103,000 个工作机会的福利法案**
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-另外一项是 1.75 万亿美元的福利法案，南希·佩洛西和众议院民主党将基础设施所需的工人额度作为筹码，使得参议院同意此福利法案上成为讨论案的第一顺位。
-
-税收基金会估计，福利法案将在10 年内摧毁 103,000 个工作机会。其中许多的失业来自于政策导致税收增加、监管负担增加和能源效率低下，另外则是因为疫苗强制执行以及拒绝接受名为”疫苗”，实际上是”强制基因改造”而被解雇的人们，譬如纽约警察局、急救医疗人员、护士、教师、环卫工人和其他执行维持社会运转所需的关键任务的人员。
-
-**疫苗灾难造成的巨大的经济成本**
-
-与第二季度相比，2021 年第三季度的抵押止赎增加了 32%，与 2020 年第三季度相比增加了 67%。止赎的激增与政府暂停止赎的终止之间有极大的关联性。止赎浪潮将愈演愈烈。
-
-与此同时，通货膨胀率到达30 年来的最高水平，批发价格自去年 10 月以来上涨 8.6%，是近 11 年来的最高年增长率。 10 月份的消费者物价指数也达到近 40 年来的最高水平。不幸的是，事情还可能更糟!
-
-从储蓄、消费、通货紧缩、低利率和低增长方面来看，中共病毒及疫苗灾难所造成的社会动盪及经济大萧条，可能要到30 年后才消退。因此，人们可能要到 2045 年或更晚才能完全从这场疫苗灾难中恢复过来。
-
-消息来源:[Rickards: Towards A New Great Depression](Towards%20A%20New%20Great%20Depression)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

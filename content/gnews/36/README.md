@@ -2,26 +2,31 @@
 ---
 
 
-## 日美加强合作，重新审核关税
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666358/)
+## 中共将在美国西部释放新变种病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666365/)
 
-#### 撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Snipaste_2021-11-15_21-26-13.png)[图片源](https://www.mofa.go.jp/mofaj/press/release/press4_009175.html)
-经济产业大臣萩生田光一15日在东京会见了美国商务部长勒蒙。美日两国政府同意启动谈判，对从日本进口的钢铁和铝产品征收的额外关税进行重新审核。双方还同意建立“日美工商合作伙伴关系”，讨论构建半导体和5G移动通信系统供应链，并加强先进技术开发方面的合作。
+作者：纽约香草山教育部 – Noemi
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+2021年11月14日，郭文贵先生在大直播中爆料称，近期，中共将会在美国西部释放新变种病毒，并将自西向东蔓延，覆盖到整个美国以及其他西方国家。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-49.jpg)
+据前中共资深生化专家分析，新变种病毒将会加速疫苗灾难的发展进程，同时会加速各国政府疫苗强制政策的推进。目前，全球已有将近一半的人都接种过毒疫苗。新病毒变种将会使这些接种过疫苗的人更易被感染、患上重症甚至死亡。同时，接种过疫苗的患者也将会把新变种病毒更快地传播给未接种的健康人。对于各国政府而言，这也将成为各国加速疫苗强制令的最好借口，包括儿童也不能幸免。
+郭先生说，这是中共生化超限战真正灾难的开始，我们将面临人类最黑暗的时刻。灾难无法预测，新中国联邦人只有紧紧地联合在一起，才能保证自己的生命和财产安全。
 
-此前美国特朗普政府在2018年对钢铁和铝征收额外关税，并采取措施限制进口。这种情况在拜登政府时期虽一直在持续，但如果两国积极推进解决这一问题，将推动加强合作以对抗中共国日益增长的影响力。
+参考链接：[2021年11月14日文贵大直播：香港大陆及世界股市；喜币迎接金融大转变；疫苗灾难台湾房地产；新中国联邦机会何在；班农被司法部起诉的意义；全球金融危机及G系列生态圈](https://gtv.org/video/id=61910d9be7e770379234d270)
 
-评论：美国商务部长此次访问亚洲各国，有新加坡，马来西亚，首站选择日本，足见对同盟国日本的重视。强强联合，靠的是实力。而中共国自翊“大国”，却在美国高级官员的访问列表中意外“落榜”，令人费解啊。随着此次两国代表会谈，额外关税问题的积极解决，接下来两国工商业全方位的合作无疑会对中共经济造成致命打击。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-信息源:
+总编：文特
+编辑：Lakeman（文仁）
+校正/发稿：Fei797
 
-[日米、鉄鋼関税見直しへ協議合意　半導体と5Gで協力、中国対抗](https://news.yahoo.co.jp/articles/3f5b4061a59ddb360510e2fd49a3155a6e027d4d)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

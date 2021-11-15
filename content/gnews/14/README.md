@@ -2,30 +2,29 @@
 ---
 
 
-## 维基百科停止更新因疫苗死亡的运动员人数
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666644/)
+## 辉瑞公司首席执行官的妻子因接种疫苗引发的并发症而去世
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1666673/)
 
-作者：美英国喜庄园-I770775
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-根据秘密翻译组11月14日报道，随着中共病毒疫苗的大面积接种，世界范围内的职业和业余田径运动员的死亡人数史无前例地激增。 由于死亡人数的激增，维基百科停止了报告截至 2021 年 10 月在比赛中死亡的足球运动员人数。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-15-下午10.37.25.png)
-有研究表明，越来越多的运动员死于心脏病和其他与 mRNA 损伤相关的疾病，并且接种疫苗导致的住院人数是感染中共病毒的6 倍。毒疫苗的危害远大于中共病毒。由于死亡名单的激增，主流媒体掩盖和压制疫苗灾害的阴谋绝不会得逞。爆料革命最早传播疫苗真相，在全世界得到越来越多的认可。
+By 意大利罗马达芬奇农场 – 袅袅小队长
 
-参考链接：[https://gettr.com/post/pgwmrtc997](https://gettr.com/post/pgwmrtc997)
+马瑞安.布尔拉（Myriam Bourla），现年48岁，是辉瑞首席执行官阿尔伯特·布尔拉（Albert Bourla）的妻子，据马瑞安.布尔拉的医生称，她于周三（11月10日）早些时候死于注射 COVID-19 疫苗的并发症。马瑞安.布尔拉（Myriam Bourla）被护理人员送入在纽约长老会劳伦斯医院，并在医院的急诊室去世，死因被列为由辉瑞疫苗引发的并发症。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/截屏2021-11-12-23.13.30-2-1.jpeg)图片左：马瑞安.布尔拉
 
-总编：文特
-编辑：Lakeman(文仁)
-校正/发稿：呼吸的雾霾（文小呼吸）
+马瑞安.布尔拉（Myriam Bourla）和她的丈夫住在纽约市郊的斯卡斯代尔区。布尔拉与很多一样对她丈夫的注射实验性疫苗表示怀疑，最初拒绝接种。在接受 Scarsdale 10583（当地的社区新闻网站） 采访布尔拉时，她表示虽然她为丈夫所做的工作 “感到自豪”，但她最初拒绝接种疫苗，称 “还没有轮到她”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+她曾说：“我只是想传达我为我的丈夫和他所做的工作感到非常自豪。我也为人类和疫苗带给世界的希望感到高兴。我还没有接种疫苗，因为还没有轮到我。”
+
+许多人据此认为，这一声明表明马瑞安.布尔拉和许多人一样，对未经充分测试的疫苗持怀疑态度。
+
+新闻来源：
+[Wife of Pfizer’s CEO dies after complications from the vaccine](https://www.conservativebeaver.com/2021/11/10/the-wife-of-pfizers-ceo-dies-from-complications-from-the-vaccine/)
+[Wife of Pfizer CEO Has Not Had the Vaccine Yet Because She Says, “It’s Not My Turn”](https://scarsdale10583.com/section-table/30-neighborhood-news/8766-wife-of-pfizer-ceo-has-not-had-the-vaccine-yet-because-it-s-not-her-turn)
+
+* * *
+
+校对/上传：阿娜意大利
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
