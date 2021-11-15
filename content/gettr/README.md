@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/15/2021 6:53 PM (UTC)`
+
+11月15号乖乖嘞……【UAE迪拜可以用喜币喜美元购买房产了（第一篇）。我们迪拜当地公司已经正式和Danube Properties地产开发公司签订好了房地产代理销售协议，通过我们作为您在UAE的房地产经纪人，来和开发商对接，任何战友都可以用喜币喜美元来购买Danube开发的任何房产。Danube是UAE排名前十的的房地产开发商。】
+![img](https://media.gettr.com/group47/getter/2021/11/15/18/4b79720c-71ba-740f-5abf-432499cf9703/4aaccefcb8a6ef11b9d37abef8825025.jpg)
+
+---
+
 `@miles 11/15/2021 4:59 PM (UTC)`
 
 11月15号：尊敬的战友们好，我们开始吃馍馍．吃饭饭喽……
@@ -289,13 +296,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 11/10/2021 Miles Guo: The CCP’s Sixth Plenary Session has turned into political infights packaged with falsehood - the CCP is spreading the lies that its economy is doing good, with over 100 countries wanting to establish “strategic all-weather brotherhood partnerships”<br/><br/>11/10/2021 文贵直播：中共的六中全会变成了内斗，并以假象包装 - 中共谎称其经济形势大好，且有100多个国家要求建立“战略性、全天候兄弟伙伴关系”<br/>
 ![img](https://media.gettr.com/group20/getter/2021/11/11/05/46/eb20f46c-0075-cebf-f67b-e1cae871baa6/out.jpg)
-
----
-
-`@miles 11/11/2021 1:28 AM (UTC)`
-
-11月10号：这是真的吗？这太龌龊了吧！【据了解黄喝便的哥们介绍：约2005、2006年他移民到加拿大，没什么工作，烂房子，出租房子每月收入几百加币，卖点陶瓷之类。后来买了房子，从中共国带了一些钱，开了个“中国艺术品商店“。他原来的老婆漂亮、细腰，很招惹男人，被一个东南亚的男人给包了。黄绿帽子戴得受不了，离婚了。女儿判归他。在往返中共国的飞机上，他忽悠了一个年轻女人，小他二十多，在日本念的博士。他女儿跟小太太天天打架，家里鸡犬不宁。小太太又生了个女儿，和他大女儿水火不容。小太太逼他去法庭起诉，把大女儿改判给了前妻。黄是独子，父亲去世后，他帮母亲移民到加拿大，小太太和小太太的妈不容黄母，母女俩和黄母打架，闹得鸡犬不宁。黄只能另租房子让母亲住。小太太不许黄去看他母亲，他就不敢去。他非常惧内，小太太甚至不让他上床睡觉。后来黄只好把母亲送回了中共国。他非常依赖共产党，在2012年之前就完全听命于中共。】
-![img](https://media.gettr.com/group4/getter/2021/11/11/01/28/daada306-bc17-bdad-5617-00c88053da51/a111de72af60407f22d8d5d9818f940c.jpg)
 
 ---
 

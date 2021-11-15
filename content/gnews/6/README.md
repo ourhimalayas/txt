@@ -2,35 +2,49 @@
 ---
 
 
-## 小罗伯特肯尼迪抗议意大利的“极权主义”绿色通行证
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1667028/)
+## 川普宣布推出Truth Social后，GETTR的注册人数飙升了135%
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1667050/)
 
-翻译：真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/11/kenn-649x437-1-edited.jpg)图片来源：网络
-来自OAN  十一月十四日星期天新闻报道：当数千人聚集在米兰抗议意大利的绿色通行证时，小罗伯特·肯尼迪并肩游行。
+**【简评：】***更新的新版本GETTR增加了直播功能。可以同时在手机和电脑上直播。这项功能高清且免费，它的市值因此增加了起码50%。另外，伴随私密视频直播、图片发布及打赏等强大功能的引入，GETTR会吸引功能多的人士加入。*
 
-Kennedy Jr. 断言：“绿色通行证是为了巩固他们的权力而不顾您的生活。”
+据《华盛顿观察家时报》记者：Paul Bedard ，2021年11月10日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-307-e1636999845422.png)图片来源：华盛顿观察家时报
+众所周知，GETTR的CEO杰森·米勒 (Jason Miller) 曾希望川普使用GETTR — 一个言论自由、反对大型科技公司垄断、未来能替代Twitter的平台，而不希望川普自己来创建一个平台。
 
-周六，关于政府对抗 COVID 的措施， 示威者交流了他们的焦虑与失望。 他们高兴地向美国前参议员罗伯特·肯尼迪的儿子致意，因为反疫苗倡导者认为绿色通行证不是一项公共卫生措施，而是政府控制的一种手段。
+但到目前为止，**尽管前总统川普计划推出“真相社会”平台，GETTR并没有错失任何一步。在川普10月份宣布推出后，GETTR的免费注册人数飙升了135%。**
 
-“这显然是一种控制货币供应、控制个人行动、控制我们这种新型数字化经济的工具，这使他的极权主义分子有能力控制我们生活的方方面面、每一个特征，而绿色通行证就是这一切的象征”，小肯尼迪说。
+米勒曾在2016年担任川普竞选团队成员和白宫助理，他在接受采访时表示，当川普因指责选举舞弊和其他指控而被禁止使用Twitter和Facebook时，许多支持者选择放弃了社交媒体。
 
-在意大利政府上个月批准绿色通行证后，该国的抗议活动已持续数周，该通行证要求该国所有工人出示疫苗接种证明、检测结果呈阴性或最近从病毒中康复。 Kennedy Jr. 说，通行证被用作剥夺他们权利的工具，他说除非劳工努力争取，否则当局永远不会归还他们的权利。
+但自从川普宣布这一消息，以及令人惊讶的弗吉尼亚州和新泽西州长选举表明共和党回归以来，这些选民再次对政治感兴趣了。“他们想在社交媒体上再次活跃起来，而我们是唯一的选择。” 米勒说。
 
-Kennedy Jr. 已经表达了他对此事的看法，并计划将他的言论付诸行动。
+米勒说GETTR拥有300万用户、日均活跃人数为40万，所以它要赶上推特还需要一段时间。 与此同时，GETTR在外国市场也呈现爆炸式增长，包括政治动荡的巴西、法国，以及选民前往投票站的其他国家。
 
-“我可以告诉你，我会和你并肩站在一起，如果我必须为此而死，我会穿着靴子死去”，他说。
+米勒说：“这是政治动荡的时代，这对社交媒体来说是件好事。”
 
-**点评：小罗伯特·弗朗西斯·肯尼迪**（**Robert Francis Kennedy Jr.**，1954 年 1 月 17 日出生）是美国环境律师、作家和[反疫苗](https://en-m-wikipedia-org.translate.goog/wiki/Anti-vaccine?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc)倡导者。是美国参议员[罗伯特·肯尼迪](https://en-m-wikipedia-org.translate.goog/wiki/Robert_F._Kennedy?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc)的儿子，也是[约翰·肯尼迪](https://en-m-wikipedia-org.translate.goog/wiki/John_F._Kennedy?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc)总统的侄子。他于周六从佛罗里达飞到意大利米兰，参与群众的抗议集会，去捍卫民主，健康的自由选择权和科学领域的透明度。
+例如，**Twitter最近宣布计划提供更多服务，例如视频流媒体，但要收费。 米勒说他也有同样的计划 — 但统统免费。**
 
-我们每个爆料革命的战友都应该向小肯尼迪学习，做到有信仰并为此付出行动。
+**至于川普入驻GETTR，仍然是米勒的目标。** 米勒说，“几天前我和川普总统谈过，我告诉他我希望他做得很好，但不要太好，他（川普）听了咯咯地笑了” 。
 
-原文链接：[https://www.oann.com/robert-kennedy-jr-protests-italys-totalitarian-green-pass/](https://www.oann.com/robert-kennedy-jr-protests-italys-totalitarian-green-pass/)
+但是随着GETTR的快速成长，米勒告诉总统，“每个人在GETTR都有空间” 。
 
-编辑/发布：LILY
+原文连接[：https://www.washingtonexaminer.com/opinion/washington-secrets/true-trumps-truth-has-bolstered-gettr](https://www.washingtonexaminer.com/opinion/washington-secrets/true-trumps-truth-has-bolstered-gettr)
 
-20211115
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+翻译：洛杉矶盘古农场–钢蛋儿
+
+校对：洛杉矶盘古农场–Mike Li
+
+评论：洛杉矶盘古农场–钢蛋儿
+
+编辑：洛杉矶盘古农场–心照
+
+
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

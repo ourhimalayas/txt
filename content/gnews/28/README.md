@@ -2,32 +2,39 @@
 ---
 
 
-## 中共病毒导致2.5万吨塑料垃圾流入海洋
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666645/)
+## DC每日热点1115
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1666676/)
 
-作者：美东香草山农场 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-一项最新科研报告发现，超过2.5万吨与中共病毒大流行有关的塑料垃圾被释放到海洋中，加剧了已经失控的全球塑料垃圾问题。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-15-下午10.44.11.png)
-该研究指出，大部分的塑料垃圾是来自于医院，源于大量个人防护与医疗废物的管理与处置不善。释放的塑料垃圾可以在海洋中长距离漂移，可能导致海洋野生动物受伤害甚至死亡。
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/11/CE9EB41A-74E5-46FA-BDD9-F4F5179D06B7-scaled.jpeg)
+道琼斯指数 36100.31 ▲0.50%
+纳斯达克指数 15860.96 ▲1.00%
+WTI纽约原油CFD 80.059 ▼0.90%
+布伦特原油CFD 80.059 ▼0.99%
+标普中概股50指数 3,810.22CNY▼22.01%
+美元兑人民币 1USD=6.381RMB
+美元兑港币 1USD=7.790HKD
+国际黄金 1864.78 美元/盎司
+全球CCP病毒感染人数 254,189,143 例
 
-有研究指出，到2030年，塑料的生产在温室气体排放方面将超过煤炭。中共病毒造成的全球环境危机时刻威胁着人类的未来。
+1、古巴反对派活动人士呼吁星期一在古巴举行“公民变革游行”
+2、去年美国大学国际新生人数大幅下跌 中共国学生降14.8%
+3、中共国指责欧盟设置不公平贸易壁垒
+4、不惧商业风险 国际网协促北京对彭帅指称前中共高官性侵展开调查
+5、波兰总理考虑在边界危机中要求北约举行会谈
+6、欧盟将扩大对白俄罗斯制裁 瞄准运送移民的航空公司及旅行社
+7、中共加强对网络业者管控 赴港上市须先经网络安审批准
+8、北京证交所开张 81家企业首批交易
+9、奥地利下达全球第一道针对未打新冠疫苗者的限制封锁，法国暂未定是否效仿
+10、对华竞争法案立法停滞 舒默：或纳入国防授权法案一并表决
+11、耶伦：密切关注中共国对房地产业风险的管控
+12、俄罗斯开始向印度交付S400-导弹 普京或下月初访印
+13、佛州将召开特别立法会议 禁私企强制接种令
+14、CDC：没有自然免疫者传播COVID-19的记录
+15、立陶宛促美日等民主国家加强协作对抗中共
+16、闯川普庄园的中共国女子被遣送回国
+17、 白宫：拜习会是为更有效与中共国竞争设置规范，并非寻求达成重大成果
 
-参考链接：[Research Study: Pandemic Put 25K Tons of Plastic in Ocean](https://www.newsmax.com/us/plastic-environmental-covid-19-ocean/2021/11/08/id/1043836/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
-
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
