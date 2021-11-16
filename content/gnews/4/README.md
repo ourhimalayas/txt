@@ -2,13 +2,13 @@
 ---
 
 
-## 辉瑞CEO之妻死于中共病毒疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1667911/)
+## 班农：我希望大家不要从我们每天关注的事情上移开注意力
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1667934/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1116-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+11/15/2021 班农在FBI办公室外：我希望大家都不要从我们每天关注的事情上移开注意力。记住，关注关键信号，而不是噪声。这里都是噪声。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
