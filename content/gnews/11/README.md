@@ -2,12 +2,18 @@
 ---
 
 
-## 11/10郭文贵直播：中共暴行远超纳粹（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1667856/)
+## [文贵先生大直播PPT]班农先生被美国司法部起诉
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1668002/)
 
-11/10/2021 郭文贵直播：中共的数据显示，中国有7000万人确诊中共病毒和1370万“冠状病毒相关性死”案例，但该数据都不包括在全球2.5亿感染中共病毒的病例数和500万死亡人数之中；中共暴行远超纳粹，而爆料革命和新中国联邦用真相救人胜造七级浮屠。
+撰稿：铲共骑侠，伞兵
+审核：三票先生 选票地票言票，顽童2017
+PPT制作：Bobby（文俊） 健身建心（文阳）
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+【2021年11月14日文贵先生大直播PPT：班农先生被美国司法部起诉】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-113.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-85.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-73.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-51.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-39.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-27.jpg)
+* * *
+
+发稿：云起时
 
  
 

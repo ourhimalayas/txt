@@ -2,46 +2,40 @@
 ---
 
 
-## 迫于民众压力，安德鲁斯政府对大流行法案做出关键修改
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1668008/)
+## 近5万名医保患者在接种新冠疫苗后不久死亡
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1668181/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+![Whistleblower: Nearly 50,000 Medicare patients died soon after getting Vaccine](https://thinkcivics.com/wp-content/uploads/2021/09/MicrosoftTeams-image-1-810x500-1-750x375.png)*举报人托马斯·伦茨（Thomas Renz）*
+举报人称：近5万名医保患者在接种新冠疫苗后不久死亡
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/gm-4.jpg)图片来源：ABCNews
+据托马斯·伦茨（Thomas Renz）律师称，一位举报人提供的政府数据显示，仅在医保患者中，就有48465人在接种新冠疫苗后14天内死亡。
+
+（伦茨在演讲中播放的）一张幻灯片显示，在“接种新冠疫苗后14天内死亡的人数”中，81岁以下的人群为19400人，81岁及以上的人群为28065人，共计48465人。
+
+“这是原始数据。没有分析，并且这些死亡数字仅来自不到20%的美国人口。”
+
+“你想知道为什么14天这么重要吗？因为如果你在14天内死亡，你就不算是接种了疫苗。”根据疾病控制与预防中心（CDC）的说法，注射第一针不算接种了疫苗，只有在打完第二针的14天后才算“接种了疫苗”。
+
+原文链接：[https://thinkcivics.com/whistleblower-nearly-50000-medicare-patients-died-soon-after-getting-vaccine/](https://thinkcivics.com/whistleblower-nearly-50000-medicare-patients-died-soon-after-getting-vaccine/)
+
+简评：
+
+CDC将接种新冠疫苗后14天内的死亡，都计算为非疫苗引起的死亡，这样混淆概念的做法即荒谬又无耻。这篇短文所揭露的数据，也是现在全球性疫苗灾难的冰山一角。而在这样艰难的情况下，我们更是要感谢那些不畏艰险阻力，为公众们提供真相的吹哨人们。
+
+翻译：Kone\_Neko
+
+PR：Julia Win
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-**整理报道：月映万川**
+编辑：【英国伦敦喜庄园编辑部】
 
-**编辑：文泓**
-
-11月16日，维多利亚州政府对即将要表决的大流行法案进行了让步性修改。与此同时，数百名抗议者也在州议会门前的台阶上安营扎寨，对维州政府不断施加压力。
-
-从昨晚8点开始，数千名抗议人士集聚在州议会大厦门前广场高喊口号。
-
-据时代报报道，州议会的三名重要的跨党派议员，菲奥娜·帕滕、安迪·梅迪克和萨曼莎·拉特南，都表示支持对该法案作关键性修改。
-
-根据维多利亚州工党政府的修改意见，违反公共卫生令的罚款将会减半，另外，公布做出相关大流行决定的门槛提高。
-
-3位跨党派议员在联合声明中表示，上述的对新法案的调整反应了社区群众的关心问题。
-
-但是，这些调整并没有得到抗议人士的积极响应。在今早的抗议中，他们高喊“扼杀法案”并且誓言要抗议到底。
-
-一位示威者告诉新闻记者，“人民不想要这个法案通过。如果这个法案在墨尔本实行，那么它就会被全国所引用。并且，其他州的民众也支持墨尔本人的抗争”。
-
-在上周末的游行中，上万人走上市中心来反对这一大流行法案，并且还有一些政治家参与其中。
-
-在10月，维多利亚州下议院已经通过了《2021公共卫生福祉调整法案（大流行管理）》，而预计这周会在上议院对该法案进行最终表决。
-
-原文链接：[Protesters remain defiant despite changes to controversial pandemic bill](https://www.9news.com.au/national/coronavirus-victoria-update-protests-continue-despite-changes-to-pandemic-legislation/b39f2151-bf96-4d0d-bdcc-e12451a2080b)
-
-发布：文泓
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

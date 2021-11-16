@@ -2,13 +2,15 @@
 ---
 
 
-## 班农：我希望大家不要从我们每天关注的事情上移开注意力
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1667934/)
+## 【文贵先生大直播PPT】共同富裕？全球危机！喜币独好！
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1668135/)
 
-11/15/2021 班农在FBI办公室外：我希望大家都不要从我们每天关注的事情上移开注意力。记住，关注关键信号，而不是噪声。这里都是噪声。
+撰稿：泰山，Nine Lee
+PPT制作： sotres ，青山
+文案终审： 三票先生 选票地票言票，顽童2017
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+【2021年11月14日文贵先生大直播PPT：共同富裕？全球危机！喜币独好！】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/31-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/32.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/33.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/34-1.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/35-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/36.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/37.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/38.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/39.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/40.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/41.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/42.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
