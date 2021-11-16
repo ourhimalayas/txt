@@ -2,30 +2,40 @@
 ---
 
 
-## 何其荒诞！中共国天津市政府学习彭丽媛“贺信精神”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1668550/)
+## 谷歌威胁退出澳大利亚后又承诺投入7.36亿美元
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1668561/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片4-5.png)
-（图片来自网络）
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-近年来，中共国全国上下每天都在学习习近平数不清的各种“精神”，已经快把国人学成“精神”病了。然而这股“造神”风却愈演愈烈。近日有媒体披露，天津市政府外事办公室上周围绕“学习彭丽媛教授贺信精神”，分别举行了研讨会和座谈会。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Australia-Facebook-Google.jpg)图片来源：www.foxbusiness.com
 
-据香港《星岛日报》报道，天津市政府外事办公室上周围绕“学习彭丽媛教授贺信精神”分别举行了研讨会和座谈会。外办微信公众号引述与会人员的话称，习近平夫人彭丽媛的贺信为“新形势下”开展对美国的人文交流“指明了方向”。学习彭丽媛贺信精神有助于增进两国的相互了解和信任，也有助于推动美中关系重回“正确轨道”。
 
-据悉，天津市政府此次研讨会中所提到的“贺信精神”，指的是这位中共国第一夫人为天津茱莉亚学院（Tianjin Juilliard School）落成而写的贺信。笔者在微信上也看到了公众号宣传此事的文章。
+#### 编译：小红帽
 
-了解中共历史的人或许都知道，自毛贼东（毛泽东）夫人江青之后，中共国再无第一夫人被如此抬高，被学习“精神”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片5-3.png)
-《新华社》此前曾报道过，由天津音乐学院和美国茱莉亚学院合作设立的天津茱莉亚学院，上月底举行了校园落成典礼。彭丽媛向这所学院致贺信称，该校是促进美中人文交流的新平台。
+谷歌表示，将在五年内在澳大利亚投入10亿澳元（7.36亿美元），而就在几个月前，它曾威胁要从澳大利亚撤出其服务，以应对更严厉的政府监管。
 
-近期，彭丽媛频频出席各种活动，并接受媒体采访，引发外界对于这位中共国第一夫人可能参政的猜疑。
+字母控股公司（Alphabet）的主要运营部门周二表示，它计划扩大云计算基础设施，建立一个由澳大利亚研究人员和工程师组成的研究中心，并与科学机构英联邦科学和工业研究组织（CSIRO）合作。
 
-分析人士认为，中共六中全会更加确认了习近平的“皇帝梦”野心，并且习正朝着权力“世袭制”的方向努力。习的家族成员在未来一段时间里或许会加速占据中共国的权力领导中心。
+谷歌澳大利亚公司总经理梅尔·席尔瓦（Mel Silva）今年初曾威胁要封锁谷歌在该国的搜索引擎，并表示该支出计划将带来大量技术资源和投资。
 
-注：本文仅代表作者观点
+澳大利亚总理斯科特·莫里森(Scott Morrison)出席了在悉尼举行的融资宣布会时表示，这是对澳大利亚数字经济战略的 “10亿澳元的信心投票”，该战略旨在到2030年使澳大利亚进入全球十大数字经济体之列。
 
-**新闻链接：**[https://twitter.com/aboluowang/status/1460430063199928321](https://twitter.com/aboluowang/status/1460430063199928321)
+席尔瓦在今年1月的澳大利亚议会听证会上威胁说要封锁谷歌的搜索引擎，以避免法律迫使该公司和社交媒体运营商Facebook Inc为其网站上发布的内容向新闻机构付费。
+
+然而，法律出台后，谷歌却放弃了其威胁。谷歌和脸书反而与澳大利亚的大多数主要媒体公司达成了许可协议。
+
+联邦政府定于明年3月开始对该法律的有效性进行审查。
+
+**参考新闻：**[Google commits $736m in Australia after threatening pull-out | Business and Economy | Al Jazeera](https://www.aljazeera.com/economy/2021/11/16/google-commits-736m-in-australia-after-threatening-pull-out)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
