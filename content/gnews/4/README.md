@@ -2,19 +2,19 @@
 ---
 
 
-## 喜联储对中共最大的威胁是什么
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1668743/)
+## 波兰将在与白俄罗斯的边界修建隔离墙
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1668794/)
 
-文编：东京樱花团/樱花传媒
-视频：东京樱花团/中文小视频组
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11162.jpg)图片来自bbc
+11 月 15 日 – 华沙政府在与明斯克发生移民危机后宣布，波兰将于 12 月开始在与白俄罗斯的边界上修建隔离墙。
 
-11月7日，郭文贵先生在GTV大直播强调：
+华沙内政部长马里乌什·卡明斯基表示，将通过在与白俄罗斯接壤的边境修建隔离墙来实施阻止非法移民闯入的行动，并称这绝对是对国家及其公民安全的战略性和优先投资。
 
-喜联储决不被中共渗透，而成为其代言人！喜联储决不为中共收集西方金融技术，与其同流合污！中共妄图获得西方数字货币时代话语权的梦想，会因喜联储成为泡影！这是喜联储对中共的最大威胁。
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/15/la-polonia-costruira-un-muro-al-confine-con-la-bielorussia\_e6d2d7ee-0d62-4930-980a-e5f109ae5e7c.html](https://www.ansa.it/sito/notizie/topnews/2021/11/15/la-polonia-costruira-un-muro-al-confine-con-la-bielorussia_e6d2d7ee-0d62-4930-980a-e5f109ae5e7c.html)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-1.png)
+责任编辑/发布：意大利达芬奇农场   萧亦
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
