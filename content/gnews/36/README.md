@@ -2,19 +2,32 @@
 ---
 
 
-## 上百万人在你的身后，班农先生
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1667412/)
+## 美将军敦促拜登向中共传递：“有侵略必遭反击”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1667715/)
 
-撰稿：西枫westca
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/steve-bannon-contempt-02-rt-llr-211115_1637006945187_hpEmbed_3x2_992.jpg)图片来源：abcnews.go.com
-前川普首席战略家史蒂夫·班农 (Steve Bannon) 在周五因未能遵守委员会的传票而被控两项蔑视罪名。在遭到拜登政权前所未有的起诉后，于今天上午在华盛顿特区联邦调查局外出现。史蒂夫·班农向他的支持者传达了信息：
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/G-2.jpg)foxnews.com
+《福克斯新闻》在拜习虚拟会晤前发表文章，题目是，“基恩（Keane）将军敦促拜登向中共发出信息，他们的侵略行为将受到对抗和反击”。文章副标题称，拜登总统和中共主席习近平星期一（11月15日）召开虚拟峰会讨论紧张局势。
 
-*史蒂夫班农：这是我们吗？我只想告诉大家我们现在正在 GETTR 上直播，每个人都在 The War Room 观看。我们今天到了。我不希望任何人把目光从我们每天所做的事情上移开。我们有西班牙裔人站在我们这边。非裔美国人站在我们这边。我们正在推翻拜登政权。*
-*每一天我们都需要专注，你有拉希姆卡萨姆，你有彼得纳瓦罗博士，班农船长。你将在整个节目中看到鲍里斯·爱泼斯坦。我们得到了民意调查，得到了经济数据。我希望你们保持专注。信号不是噪音， 这就是我们要发出的噪音。*
+全文如下：
 
-新闻来源： [https://www.thegatewaypundit.com/2021/11/must-see-video-steve-bannon-delivers-message-supporters-dc-courthouse-turns-fbi-field-office/](https://www.thegatewaypundit.com/2021/11/must-see-video-steve-bannon-delivers-message-supporters-dc-courthouse-turns-fbi-field-office/)
+前陆军副参谋长杰克·基恩（Jack Keane）将军在星期一（11月15日）的“美国新闻室”（ America’s Newsroom）节目中说，美国需要在即将与习主席举行的峰会上向中共传达一个信息，即他们的侵略将面临对抗。
+
+杰克·基恩：……中共的侵略，世界上迅速发展的军事力量，太平洋地区的力量平衡已经在军事上转移到了他们身上，他们的网络战行动是任何国家破坏另一个国家的公民社会，并窃取其技术和信息的最大规模的行动。
+
+……
+
+显然，美国必须予以回击，并明确地告诉习主席，我们将继续反击和对抗这种侵略，仅仅竞争是不够的，我们不能像奥巴马多年前在南中国海扩张和网络安全问题那样，听信习主席的任何承诺。结果呢？尽管习主席说，是的，他会考虑到这点，他会抑制他的行为——这是我的话，而不是他的话。他做了什么？他反而变本加厉……我们要做的是观察他们的所作所为……我们需要做的是确保这不会导致军事对抗和冲突。这就是中共当面一套背地里又一套的行为。
+
+（原文完）
+
+文贵先生早就告诫过西方，只要你与中共坐下来谈，你就输了，他们会承诺你要求的一切，到头来什么也不会做。迄今为止，那些以中共作出的承诺来影响美国决策的官员、政客，不是有通共嫌疑，就是智商不够，然而，这样的人在美国大有所在，的确需要基恩将军这样的声音出来。
+
+原文链接：
+
+[https://www.foxnews.com/media/gen-keane-urges-us-to-send-message-to-china-that-their-aggression-will-be-confronted-countered](https://www.foxnews.com/media/gen-keane-urges-us-to-send-message-to-china-that-their-aggression-will-be-confronted-countered)
 
  
 

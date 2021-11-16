@@ -2,22 +2,15 @@
 ---
 
 
-## 雅典娜时报-第114期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1668014/)
+## 【文贵先生大直播PPT】共同富裕？全球危机！喜币独好！
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1668135/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+撰稿：泰山，Nine Lee
+PPT制作： sotres ，青山
+文案终审： 三票先生 选票地票言票，顽童2017
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_3.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_4.png)
-***发布：小红帽***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+【2021年11月14日文贵先生大直播PPT：共同富裕？全球危机！喜币独好！】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/31-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/32.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/33.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/34-1.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/35-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/36.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/37.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/38.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/39.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/40.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/41.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/42.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

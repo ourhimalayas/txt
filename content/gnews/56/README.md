@@ -2,33 +2,33 @@
 ---
 
 
-## 针下亡魂｜美国 45 岁知名漫画家接种疫苗后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1665474/)
+## 港闻前线｜律政司再申请押后审讯 33名民主派义士未审先囚近一年
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1665671/)
 
-**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 15/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+**撰文/ 台湾宝岛农场 港台前线关注组｜发布日期/ 15/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Bank-Manager-Banner.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
 
-【美国】俄勒冈州一名 45 岁的漫画家Jesse Hamm 在接种莫德纳 COVID-19 疫苗后死亡。这一消息令整个漫划界大为震惊。
+【香港】47 名民主派人士因组织或参与立法会“35+”初选，而被控“串谋颠覆国家政权罪”，于今年 2月28 日被还押，当中 14 人陆续获保释，余下 33 人一直还押至今。
 
-Jesse Hamm 的妻子 Anna 于 5 月 13日在 Twitter 上简单宣布了丈夫的死讯。她在该贴中特别指出，丈夫死于“肺部血凝块”，有网友在帖子下留言，询问 Jesse Hamm 是否已经接种过 COVID-19 疫苗，Anna 迅速回覆指“他接种过一剂莫德纳。”
+案件原定本月 29 日提堂审讯，不过，根据司法机关的查询系统显示，律政司又一次去信法庭要求押后审讯，延至明年 2 月 7 日进行。律政司给出的理由是，现时仍有上万页的文件及证人口供需要翻译，预计要到明年 1 月才能交予辩方，故希望法庭批准将下次提讯日押后。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Anna-Sahrling-Hamm.png)
+**若法庭批准，这意味着，案中未获保释的 33 名被告，已被未审先囚了整整 1 年。**
 
-根据资料，Jesse Hamm 早在十几岁的时候就出版了他人生的第一部漫画，自 1990 年代以来，他一直活跃在漫划界，同时与许多大牌公司都有合作，包括漫威、DC 漫画和俄勒冈州的黑马漫画。
+#### **律政司三度要求押后审讯 法庭大开绿灯放行**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-05-13-at-4.32.25-AM-min.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-05-13-at-4.32.10-AM-min.png)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-05-13-at-4.31.45-AM-min.png)
+实际上，这已经不是律政司第一次将该案件押后，国安法指定法官苏惠德 3 月时曾批出第一次押后申请，同日，律政司再申请将案件转介高等法院审讯，押后至 7 月 8 日进行提讯程序；苏惠德法官7 月 8 日第二次批准控方申请将案件押后至 9 月 23 日，之后苏惠德突然心脏病吿假，至 9 月 23 日提讯时，国安法指定法官罗德泉放行律政司第三次获得批准，将案件延至 11 月 29 日。
 
+#### **家属/市民：不公不义，荒谬至极**
+**还押人士：意料之中**
 
-他的最新作品“植物大战殭尸第 18 卷：建筑故事”原定在两个月后发售，可惜，他等不到那一天了。许多粉丝、朋友和同业都纷纷在网上留下了对他哀悼及不舍。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗_0-2.jpg)
-来源｜[个案061](https://twitter.com/ASahrlingHamm/status/1392509511525568517)
+律政司的做法引起被告家属及香港市民的极度不满，质疑如有足够的真凭实据，怎会整理一年，都未准备好文件，怒斥律政司及法庭政治挂帅，做法不公不义，荒谬至极。
 
-* * *
+立法会前议员邵家臻经常会去赤柱监狱探望初选案被告，因大部分都是他昔日的同事兼好兄弟，他在 Facebook 上贴文指，当他像前立法会议员尹兆坚，谈及押后提讯一事时，尹兆坚面容平静，表示，“预咗”（粤语，指预料之中），他用“心如止水”来形容自己的心情。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/港台前線-（HK模板）-4.jpg)
+**33名仍被还押的被告包括，戴耀廷、区诺轩、赵家贤、钟锦麟、吴政亨、袁嘉蔚、梁晃维、徐子见、岑子杰、毛孟静、冯达浚、刘泽锋、黄之锋、谭文豪、李嘉达、谭得志、胡志伟、朱凯迪、张可森、黄子悦、伍健伟、尹兆坚、郭家麒、吴敏儿、何桂蓝、刘颕匡、杨岳桥、林卓廷、谭凯邦、范国威、梁国雄、岑敖晖、王百羽**
 
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//｜//[美国 39 岁女医护接种疫苗4日后死亡](https://gnews.org/zh-hans/1625214/)//｜//[美国 56 岁男医生接种疫苗两周后死亡](https://gnews.org/zh-hans/1629915/)//｜//[德国 32 岁心理学专家接种疫苗12日后死亡](https://gnews.org/zh-hans/1636096/)//
+来源｜[香港01](https://www.hk01.com/%E6%94%BF%E6%83%85/700641/%E5%88%9D%E9%81%B8%E6%A1%88-%E5%BE%8B%E6%94%BF%E5%8F%B8%E7%94%B3%E5%BB%B6%E8%87%B3%E6%98%8E%E5%B9%B42%E6%9C%88%E5%86%8D%E8%A8%8A-33%E4%BA%BA%E6%9C%AA%E5%AF%A9%E5%85%88%E5%9B%9A1%E5%B9%B4-%E5%AE%B6%E5%B1%AC%E6%89%B9%E4%BA%82%E4%BE%86)
 
  
 

@@ -2,36 +2,43 @@
 ---
 
 
-## 新中国联邦国防军即将履行使命
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666719/)
+## 人权观察批北京冬奥赞助商对中共践踏人权行为无动于衷
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1666816/)
 
-作者：纽约香草山农场 – 四季
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-郭文贵先生在11月14日的大直播中透露，拥有世界一流装备的新中国联邦国防军，将在明年5月份开始在全世界各地履行使命。
+#### 作者：日本东京方舟农场 子辰
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-12.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6B69B577-C7E0-41E6-8FFF-A25207BE96A5.jpeg)图片来源：https://gdb.voanews.com/EF6E3B62-ED29-4DD1-91AE-83E0826EEAF7\_w408\_r0\_s.jpg
 
-郭先生在半年前就已经安排了，新中国联邦的国防军，也叫雇佣军，由西方国家当地警察，特种兵及退伍军人组成。他们持有当地国家军人牌照，合法拥有及操作武器，并有能力调动本地人脉和资源，将全副武装在世界范围内保护华人。 
+总部设在纽约的“人权观察”近日批评为2022北京冬奥会提供赞助的大企业对中共国新疆发生的反人类罪行保持沉默。
 
-针对未来全世界华人即将面临的排华危机，郭先生诠释了新中国联邦的使命，即只要是黄皮肤人，不分敌我。新中国联邦不仅保护爆料革命战友，即便是伪类受到欺辱，也会受到保护。在一些国家的中国城，例如旧金山，洛杉矶，温哥华，日本、伦敦等地，以及战友聚集的西班牙等欧洲其他国家将派驻合法拥有武装的国防军，保护新中国联邦战友和华人。他们使用的车辆上将显示新中国联邦的标识和旗帜，向世人宣誓新中国联邦的武装力量。 
+据《美国之音》11月15日报道，“人权观察”近日在视频新闻发布会上指出，这次冬奥会的主要赞助商应向中共政府和国际奥委会施加压力，要求中共停止践踏人权的行为。
 
-郭先生对所有西方国家的华人发出了“排华”即将到来的警告。新中国联邦人只有紧紧的团结在一起，才能度过未来的灾难。
+据了解，奥林匹克的顶级赞助商共有13家，包括中共国的电商阿里巴巴、德国保险公司安联、法国信息技术公司阿托斯（Atos）、日本轮胎制造商普利司通（Bridgestone）、松下电器、丰田、美国的可口可乐公司、半导体公司英特尔、陶氏化工（Dow Chemical）、通用电气、宝洁、民宿出租平台爱彼迎（AirBnB）等。
 
-参考链接：[2021年11月14日文贵大直播](https://gtv.org/video/id=61910d9be7e770379234d270)
+这些跨国企业多年来一直为奥运会提供巨额资金赞助。在2013年至2016年的奥运周期中，这些赞助商给国际奥委会提供了10亿美元的现金和物资。预计在2017年至2020年的奥运周期中，资金赞助将会翻一番。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+“人权观察”表示，他们在今年5月致函上述13家顶级赞助商，请它们说明如何处理参与2022年北京冬奥会所导致的人权风险。然而至今为止，只有安联做出了“长期支持奥林匹克运动不会动摇”的答复。
 
-总编：文真
-编辑：Ivy001
-校正/发稿：谐趣园
+“人权观察”还曾为此致函美国全国广播公司NBC。据了解，NBC支付的转播费占国际奥委会全部收入的40%。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“人权观察”全球倡议主任明基·沃登（Minky Worden）表示，“沉默外交的时代已经结束”。
+
+“人权观察”随后在一份声明中批评称，距离北京冬奥会开幕只剩三个月，各大赞助商仍未说明它们将如何施加影响力，去改善中共国的恶劣人权记录。声明同时还谴责这些赞助商，称它们甚至可能沦为这次充满言论审查和压迫的奥运会的帮凶。
+
+注：本文仅代表作者观点
+
+*新闻链接： [https://www.voachinese.com/a/sponsors-asked-to-defend-support-for-beijing-winter-olympics-20211112/6310689.html](https://www.voachinese.com/a/sponsors-asked-to-defend-support-for-beijing-winter-olympics-20211112/6310689.html)*
+
+* * *
+
+
+```
+素材采编：子辰
+编辑：青衣青青
+发布：miumiu
+```
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

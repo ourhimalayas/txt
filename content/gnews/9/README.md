@@ -2,26 +2,76 @@
 ---
 
 
-## 新东方的没落只是经济危机的冰山一角
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1668009/)
+## 众议员马特·盖茨：认清拜登政府的本质，班农是‘美国优先&#8217;火种的守护者
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1668129/)
 
-撰稿：自由战士
+众议员马特·盖茨： 拜登政权现在正将目标对准任何他们担心可能会将他们赶下台的实体，他们正在利用刑事程序来实现这一目标。 【视频中，马特·盖茨称支持史蒂夫·班农，提醒大家认清拜登政府的本质，夸班农是‘美国优先’火种的守护者】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-74.jpg)
 
-图片来自网络
 
-关于校外培训机构的整治行动实施以来，墙内的培训企业关门潮蜂拥而至。中共中央办公厅、国务院办公厅于近日印发了《关于进一步减轻义务教育阶段学生作业负担和校外培训负担的意见》，强调学科类培训机构一律不得上市融资，严禁资本化运作。我们可以拿新东方为例来看，新东方美股跌幅达54.22%，报收2.93美元/股，市值蒸发达385亿元。
+> The Biden Regime is now targeting any entity that they fear might dislodge them from power, and they're using criminal process to do it. [pic.twitter.com/QetdtXCeeM](https://t.co/QetdtXCeeM)
+> — Rep. Matt Gaetz (@RepMattGaetz) [November 16, 2021](https://twitter.com/RepMattGaetz/status/1460433321024962560?ref_src=twsrc%5Etfw)
 
-首先，“双减”政策正式落地后，新东方也对此进行回应。新东方表示将坚决拥护党中央、国务院决策部署，深入贯彻党的十九大和十九届五中全会精神，深刻领会“双减”工作重要意义。同时忍痛割爱的陆续关闭了全国大部分的门店，据其官网显示，在全国有校区门店282个，注册学员超过200万人次，教师近四千人。这样可以看出在中共国内的企业就是他们养的鱼，让你做白手套去收割百姓去站台，但中共随时可以把你连根拔起，没收全部资产。你无力反抗，还要歌唱党的英明领导。新东方其实就是其中的一个小小缩影而已。与邪恶为舞，最终葬送的是自己的全部。
 
-其次，俞洪敏为了带领剩下寥寥无几的员工，继续所谓的二次创业，就是在直播平台直播带货，作为老师的全体，大家完全可以理解，口才和解说水平，投入这个行业去努力活着，是最好的出路。但是经济日报刊文评俞敏洪将开启直播带货《新东方不应照搬李佳琦》来抨击说：“作为校外教育培训行业的龙头企业之一，新东方转型具有风向标意义。如果只是从一个挣快钱的行业跳到另一个挣快钱的行业，恐怕不是最佳示范。”这个舆论无疑直接给他们 当头一棒。也算是全面围堵，最后的生路被堵死。我相信随后很快会迎来新东方彻底的退出历史舞台。后面前赴后继的企业会成千上万家，文贵先生刚刚的视频中也说到，目前北方，西北多地企业，政府部门都无法正常发放工资，可想目前墙内的经济环境寒冷到让人无法呼吸的地步。
 
-最后，在中共统治下的企业家，以前你无论多么的风光无限，最终的结局只有一个，先后我们可以看到不可一世的海航集团，叱咤风云的地产大亨恒大集团，培训行业教父之称的新东方，都在这次中共内部厮杀中一一倒下，墙内的企业家们一定要认知到，不是跟中共上床后，就可以变成正宫，在他们这些邪恶魔鬼眼里，你不是正统的血统关系，永远不可能被认为是自己人。永远是拿来用的马桶，一键被冲走后，你任何东西都不会留下 ，而且还会搭上你全家人的性命。目前唯一能解救你们的唯有新中国联邦和喜联储，加入新中国联邦，把财富注入喜联储，为灭工贡献你的一份力量。可以保命保财，还能扬名天下。
+比尔·格茨: [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 最高领导人在今晚的虚拟峰会开始时称拜登总统为“我的老朋友”。
 
-文章仅代表作者本人观点,与GNews无关
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
+
+> Chinese supreme leader calls President Biden “my old friend” at start of virtual summit tonight
+> — Bill Gertz (@BillGertz) [November 16, 2021](https://twitter.com/BillGertz/status/1460421735421923334?ref_src=twsrc%5Etfw)
+
+
+
+比尔·格茨: 智囊团报告称，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯在 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 大流行期间利用虚假信息破坏美国并洗白他们自己的声誉。敦促建立虚假信息曝光部门。
+
+
+
+> China and Russia used disinformation during the pandemic to undermine the US and launder their reputations, think tank report says. Urges creating disinfo exposure unit [https://t.co/xkQT5Yi4Py](https://t.co/xkQT5Yi4Py)
+> — Bill Gertz (@BillGertz) [November 16, 2021](https://twitter.com/BillGertz/status/1460406623369773057?ref_src=twsrc%5Etfw)
+
+
+
+前白宫经济顾问皮特·纳瓦罗： 从福克斯的新闻报道中脱颖而出。看看我对今晚拜登投降的阻挡。 有关川普关税的背景，请阅读《川普时代》中的第一章在亚马逊这里：[https://bit.ly/InTrumpTimeT](https://t.co/En2l0LXENX?amp=1) 拜登会见 [#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 的全方位妥协绥靖
+
+
+
+> Hot off the Fox press. See my handicapping of tonight's Biden surrender. 
+> 
+> For background on Trump tariffs, read Chap 1 in In Trump Time, from Amazon [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy)
+> 
+> Biden’s meeting with China’s Xi appeasement on all levels [https://t.co/mPPAr1aUuB](https://t.co/mPPAr1aUuB) [#FoxBusiness](https://twitter.com/hashtag/FoxBusiness?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Peter Navarro (@RealPNavarro) [November 15, 2021](https://twitter.com/RealPNavarro/status/1460385991353683969?ref_src=twsrc%5Etfw)
+
+
+
+众议员莫·布鲁克斯： 当乔·拜登和习近平今天晚些时候会面时，[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的具核能力高超音速武器试验应该在议题清单上占据重要位置。你想赌多少拜登不会提出来？拜登在与美国的敌人打交道时处处表现出软弱。
+
+
+
+> Communist China’s nuclear-capable hypersonic weapons testing should be high on the list of topics when Joe Biden & Xi Jinping meet later today. How much do you want to bet that Biden fails to bring it up? Biden has shown weakness at every turn when dealing with America's foes. [pic.twitter.com/JD5EFLY0LO](https://t.co/JD5EFLY0LO)
+> — Mo Brooks (@RepMoBrooks) [November 15, 2021](https://twitter.com/RepMoBrooks/status/1460370980044521480?ref_src=twsrc%5Etfw)
+
+
+
+众议员帕特·法伦： 今天，拜登总统有机会对抗中共。 他需要解决： – 中国不断增长的核武库； – 他们对美国网络安全的威胁； – 以及中国最近对台湾的侵略。 任何少于这些的都是不可接受的。
+
+
+
+> Today, President Biden has an opportunity to confront the CCP.
+> 
+> He needs to address:
+> 
+> – China's growing nuclear arsenal;
+> – Their threat to U.S. cybersecurity;
+> – And China's recent aggressions towards Taiwan.
+> 
+> Anything short of this is unacceptable.
+> — Rep. Pat Fallon (@RepPatFallon) [November 15, 2021](https://twitter.com/RepPatFallon/status/1460340578156048384?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 

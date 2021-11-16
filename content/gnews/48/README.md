@@ -2,34 +2,36 @@
 ---
 
 
-## 跌跌不休，中共国新房二手房都在跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666406/)
+## 班农先生被司法部起诉的意义
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666751/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11111111111-1.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fimg-other.jiwu.com%2Fnews%2F2021%2F05%2F17%2F181315316538.jpg%2Fnewsx&amp;imgrefurl=http%3A%2F%2Fcd.jiwu.com%2Fnews%2F4776067.html&amp;tbnid=MZ0Q0OVoP936-M&amp;vet=12ahUKEwj9_6y1v5r0AhUFzaACHZ7kDAsQMygBegUIARCdAQ..i&amp;docid=XQPBcYpDnm-JXM&amp;w=646&amp;h=415&amp;itg=1&amp;q=%E6%88%BF%E4%BB%B7%E4%B8%8B%E8%B7%8C&amp;ved=2ahUKEwj9_6y1v5r0AhUFzaACHZ7kDAsQMygBegUIARCdAQ)
-11 月 15 日，中共国国家统计局公布 10 月 70 个大中城市商品住宅销售价格变动情况。70 个大中城市商品住宅销售价格环比总体延续下降态势，同比涨幅继续回落。
+作者：美东香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在11月14日的大直播中透露，早在一个多月以前，他就告知班农先生，中共勾兑美国内部势力，借“1月6日国会大厦暴动事件”调查，通过司法程序起诉他。
 
-**70 ****城中 52 城新房价格环比下跌**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2-6.jpeg)
 
-根据中共国国家统计局公布的 10 月数据，一线城市新建商品住宅销售价格环比持平，北京和上海环比分别上涨 0.6% 和 0.1%，广州和深圳分别下降 0.3% 和 0.2%。二线城市新房价格环比由上月持平转为下降 0.2%；三线城市则环比下降 0.3%，降幅比上月扩大 0.1 个百分点。
+中共盲目自大地认为，通过对美国两党和司法的渗透，可以控制美国的政治。班农先生被起诉，使美国人，特别是保守派，看到中共对美国共和党的威胁，对美国选举自由的威胁。从而使美国官方更严肃地重视新中国联邦，加紧保护和承认新中国联邦。
 
-房价的走势从下跌城市的数量变化中体现得更为明显。**全国 70 个大中城市中，新房价格出现环比下跌的城市数量为 52 个**，相比 9 月的 36 个明显增多。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2222222.jpg)
-**70 ****城中 64 城二手房价环比下跌**
+班农先生被起诉，还意味着，美国媒体的大重启。美国严肃媒体，诸如福克斯、华尔街日报等，回避疫苗灾难问题，原因是百分之五十至七十的广告费来自大药厂。这些媒体同样一致地封杀班农事件，是因为大药厂和传统媒体背后有共同的老板。
 
-相比于更受关注的新房，目前二手房市场的降温现象其实更为明显。中共国国家统计局数据显示，10 月一线城市二手住宅销售价格环比下降 0.4%，与上月相同，北京、上海、广州和深圳环比分别下降 0.5%、0.4%、0.6% 和 0.2%。二线城市二手住宅销售价格环比下降 0.3%，降幅比上月扩大 0.2 个百分点；三线城市二手住宅销售价格环比下降 0.3%，降幅比上月扩大 0.1 个百分点。
+班农先生将新中国联邦创始人、宣言人的身份，视作他一生最大的荣耀。中共的疯狂，让美国两党都感受到威胁。班农先生是美国建国以来，自华盛顿后，因国会调查被起诉的人。班农先生无疑会成为美国政治的教父。班农先生作为新中国联邦成立的宣言人，成为世界焦点，成了美国政治风向标，受益者一定是新中国联邦。
 
-从降价城市数量看，10 月二手房房价环比下跌的城市数量达到了 64 个，即有九成左右的城市出现了明显的降价现象。这也说明，**这一波二手房的降温是全国范围性质的。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3333333333333.jpg)
-消息来源:
+参考链接：[2021年11月14日文贵大直播](https://gtv.org/video/id=61910d9be7e770379234d270)
 
-[房价，在继续跌！](https://finance.sina.com.cn/chanjing/cyxw/2021-11-15/doc-iktzscyy5663515.shtml)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+总编：文真
+编辑：Ivy001
+校正/发稿：谐趣园
 
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
