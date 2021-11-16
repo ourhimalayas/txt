@@ -2,38 +2,24 @@
 ---
 
 
-## 福奇承认，疫苗并不那么有效，接种疫苗的人如今很危险
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1668414/)
+## 德国及邻居波兰捷克的中共病毒疫情加重
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1668524/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-69.png)
+图片来源： www.epochtimes.com
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/fauci-vocal-cord-surgery_wide-e0cdb4d2c517d3ef28d555139afa1e44ad3b7efc-scaled.jpg)
+美国合众国际社11月14日报道，欧洲三个邻居国家—德国，捷克，波兰在俄罗斯破记录的每日死亡数之后引领了欧洲新一波中共病毒疫情病例数和死亡数。欧洲显示了本周死亡数比上周增加7%而且感染数增加13%，欧洲的总死亡数已超过135万，总病例数已超过6千8百18万，仅次于亚洲。
 
+世卫组织欧洲区主任一周前说：“信息显示，疫苗正在起到防止病情严重化，尤其减少死亡率，但这个方法必须伴随着其预防措施。”
 
+总体来说，全球总病例数于周日已达到2亿5千4百多万，虽然有5%的病例数增加，但死亡数并没有明显增加，目前死亡数达5百11.5万，美国的死亡数最高，为78万3千5百多人，病例数达4千7百91万6千多人。
 
-图片来源：www.npr.org
+俄罗斯周日报告1219例死亡，总死亡数达25万5千3百86人，全球排第五。
 
+徳国本周死亡数增加42%，疫情以来总死亡数9万8千多人，全球排第十四位，感染人数本周增加49%，总感染数达3千5百20万6千多人，全部排第12位。波兰死亡数增加46%，总死亡数达7万8千8百多人排第17位，病例数增加27%，总感染数达320多万，也是第17位。捷克本周死亡数增加34%，总死亡数达3万1千481人，感染数增加34%，总感染数达189万多人。
 
-#### 编译：小红帽
-
-现在应该很清楚，除非安东尼·福奇（Anthony Fauci）被撤换，否则大流行不会结束。一年多来，福奇阻止了成功的治疗方法，并对无效的中共病毒（COVID-19）疫苗作出了过度承诺。但至少大药厂赚取了创纪录的利润。
-
-周五，福奇博士告诉《纽约时报》播客，疫苗没有像宣传的那样发挥作用，而且由于美国人的免疫力下降，他们正处于危险之中。
-
-11月12日，白宫中共病毒顾问安东尼·福奇博士接受了《纽约时报》播客的采访，讨论了美国中共病毒的现状。根据福奇的说法，官员们现在开始看到，在最初接种疫苗几个月后，人们对感染和住院的免疫力有所下降。这位传染病专家指出来自以色列的数据，以色列在爆发方面，往往比美国早一个月到一个半月。
-
-“他们看到的是免疫力的下降，不仅是针对感染，而且是针对住院和某种程度上的死亡，现在开始涉及所有年龄组。这不仅仅是老年人，”福奇说。“免疫力正在下降，你会看到越来越多的人获得突破性感染，而且越来越多的这些获得突破性感染的人最终被送进医院”。
-
-**参考新闻：**[Explosive Admission by Dr. Fauci: Vaccines Did Not Work as Advertised and That Vaccinated Are in Great Danger Today (humansarefree.com)](https://humansarefree.com/2021/11/fauci-vaccines-did-not-work-as-advertised.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+##### **新闻来源： **[Neighbors Germany, Poland, Czech Republic fuel Europe COVID-19 surge](https://www.upi.com/Top_News/World-News/2021/11/14/world-cornavirus-germany-poland-czech-republic-russia-surge/5701636902602/)
 
  
 

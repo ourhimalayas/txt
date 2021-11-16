@@ -2,32 +2,25 @@
 ---
 
 
-## 港共当局再拒续签驻港外国记者签证
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666985/)
+## 中共统战部是否在影响美国政治
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1667328/)
 
-作者：英国喜庄园 – I770775
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月12日，港共政府拒绝续签英国《经济学人》记者黄淑琳的工作签证，且没有给出拒签的原因。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture6-2.jpg)
-据悉，黄淑琳是澳大利亚人，曾在2019年报道香港民众的反送中抗议运动。相关媒体对黄淑琳的新闻报道“感到骄傲”，呼吁港共政府应当尊重新闻自由，继续保证外国媒体准入。
+撰稿：西枫westca
 
-据了解，黄淑琳已是香港自国安法实施后，第三名延续工作签被拒的外媒记者。外界认为，这是港共对香港新闻自由的又一次打击。
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/page-header.jpg)图片来源：www.kcrw.com
+国家脉动专栏作者娜塔莉温特斯11月15号署文披露：众议员亚当·希夫 (Adam Schiff) 在中美交流基金会赞助的一次活动中，会见了一名中共负责对外影响事务的前中共官员。
 
-参考链接：[港共当局再拒续签驻港外国记者签证](https://amp.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211113-%E6%B8%AF%E5%BA%9C%E6%8B%92%E5%8F%91%E8%8B%B1%E5%AA%92%E8%AE%B0%E8%80%85%E7%AD%BE%E8%AF%81-%E5%A4%96%E7%95%8C-%E5%AF%B9%E6%96%B0%E9%97%BB%E8%87%AA%E7%94%B1%E7%9A%84%E6%9C%80%E6%96%B0%E6%89%93%E5%8E%8B)
+加州民主党的众议员希夫在2009年10月在华盛顿会见了由中美交流基金会（CUSEF）安排的与中共负责对外事务的官员徐匡迪的会面。在此之后，他成为了川普通俄门、弹劾丑闻的主要支持者。 近来作为1月6日违宪活动委员会的主要成员，他的注意力转向了前总统川普的竞选团队负责人史蒂夫班农——著名的“反中鹰派”人士。这带来一个疑问，作为加利福尼亚州第28届国会选区的国会议员是否正在努力平息批评中国共产党的人士。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+中美交流基金会（CUSEF）的网站显示，它 “赞助 “了中共官员徐匡迪对美国的访问，包括在华盛顿特区停留。该基金会简称 “CUSEF”，因寻求 “影响外国政府采取支持北京首选政策的行动或立场 “而被美国政府标记。它是中共用来对付美国精英的几个统一战线团体中的一个。中国政府利用它来 “收编和化解可能反对其执政的中国共产党的政策和权威的来源”。
 
-总编：飞虹
-编辑：文特
-校对/发稿：Hetangyuese
+徐匡迪原为前上海市市长，还担任过中国人民政治协商会议副主席，这是监督中国有争议的“统战部 ”的“最高级别实体”。他在美期间，还会见众议员亚当·希夫（D-CA）、众议员大卫·吴（D-OR）和智库代表。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+《国家脉搏》此前曾透露，根据外国代理人登记法 (FARA) 文件，CUSEF如何通过提供免费前往中国的旅行获得美国记者和前国会议员的“有利报道”。 这些旅行是 CUSEF 更广泛努力的一部分，旨在“向媒体、关键影响者和意见领袖以及公众有效传播关于中国共产党的积极信息”。
+
+**新闻来源：**[REVEALED: Rep. Adam Schiff Met With Former Chairman Of Chinese Communist Party’s Foreign Influence Operations. (thenationalpulse.com)](https://thenationalpulse.com/news/schiff-met-with-ccp-influence-group/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

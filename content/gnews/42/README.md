@@ -2,18 +2,32 @@
 ---
 
 
-## [文贵先生大直播PPT]班农先生被美国司法部起诉
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1668002/)
+## GTV新闻访谈简报|2021年11月15日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1668199/)
 
-撰稿：铲共骑侠，伞兵
-审核：三票先生 选票地票言票，顽童2017
-PPT制作：Bobby（文俊） 健身建心（文阳）
+作者：香草山翻译部
 
-【2021年11月14日文贵先生大直播PPT：班农先生被美国司法部起诉】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-113.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-85.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-73.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-51.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-39.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-27.jpg)
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-4.jpg)
 
-发稿：云起时
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1115text-SC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[11.15  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61930945e7e7703792359815)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://紐約香草山農場%20%20|%20GTV-香草山之聲%20紐約香草山農場GTV-%20|%20MOS%20TALK%20香草山訪談%20紐約香草山農場%20|%20GETTR%20紐約香草山農場%20｜YouTube%20歡迎加入香草山農場%20%20|%20Discord)
 
  
 

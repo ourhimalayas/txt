@@ -2,20 +2,43 @@
 ---
 
 
-## 斯蒂夫·班农撕破民主党拜登及佩洛西的嘴脸：这是来自地狱的指控
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1668378/)
+## 疫苗护照，中共病毒战争期间的“新路条”
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1668463/)
 
-**翻译：  Evalu**
+作者：香草山金融部 – 闲聊钱币
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-16-131112.jpg)           图片来源： http://www.hz-luo.net/
-英国每日邮报11月15日报道，前总统川普的战略顾问斯蒂夫·班农在周一下午就被诉蔑视国会罪来到法院， 并在门口猛烈抨击乔·拜登，承诺会为此而战斗。他对等在那里的记者们说：“我绝不会退缩，这次他们找错了人。”
 
-67岁的班农是第一个面临蔑视国会的指控，该指控是关于未出席调查1月6日国会骚乱的众议院调查委员会听证会，他面临两项针对国会传票拒绝回应的轻罪指控。他在首次来到法院后说：“这是梅域·加兰，南希·佩洛西和乔·拜登的来自地狱的指控，乔·拜登从海洋一号下来后来到白宫草坪上命令梅域·加兰来起诉我，我们将继续冒犯，我们厌烦了总是处于防守地位。”
 
-班农在不需交保释金的情况下获得释放，但必须每周报告并上交他的护照。他周四要回到法庭。他通过班农战斗室平台直播去法院，他在社交媒体盖特上说：“我不希望任何人对我们所做的事转移视线。我们让非裔和西班牙裔美国人站在我们这一边，我们每天都在打击拜登的独裁统治，我希望你们保持关注，不要偏离。”
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
 
-**新闻来源**： [Biden ordered Garland to prosecute me and this will be the misdemeanor from hell’: Steve Bannon tears into Democrats and Nancy Pelosi as he is RELEASED without bail after appearing in court for defying his January 6 subpoena](https://www.dailymail.co.uk/news/article-10204023/Steve-Bannon-arrives-Washington-court-indicted-refusing-comply-subpoena.html)
+
+
+“特殊通行证”，“良民证”，这些在二战曾经用来区分不同人群的身份证件再次回到我们的生活当中。一个小小的QR code，将所有地球人分为打了疫苗的和未打疫苗的。未打疫苗的人群正在受到前所未有的不公平待遇。
+
+路透社维也纳14日报道，从周一开始，数百万没有完全接种疫苗的奥地利人将被重新禁锢家中。政府给出的理由是激增的感染率和日趋紧张的重症监护室床位。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-16.jpg)
+多个政府对未接种疫苗的人们采取歧视行动。奥地利再次限制人们的自由行动，这次仅针对未接种者。澳大利亚的某些州要求必须接种疫苗才能从事特定职业。加拿大的公共交通最不欢迎未打疫苗的人，一律不准乘飞机，坐火车。新加坡则要求从下个月起不打疫苗就自己负担医药费。
+
+这些标榜自由民主的发达国家，在中共蓝金黄的渗透下，不去追根溯源病毒到底是哪里来的，反而利用人民赋予他们的行政权力，强行违宪的出台对未接种人群的歧视性条例。
+
+不灭中共，各种各样的“新路条”会层出不穷。
+
+（本文仅代表作者观点）
+
+参考来源：[疫苗护照，中共病毒战争期间的“新路条”](https://www.reuters.com/business/healthcare-pharmaceuticals/austria-orders-non-vaccinated-people-into-covid-19-lockdown-2021-11-14/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Nomura%20JP%2011-15-21%20Sponsorship&amp;utm_campaign=Nomura%20JP%2011-15-21%20Sponsorship)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 
