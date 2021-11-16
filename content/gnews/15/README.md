@@ -2,32 +2,105 @@
 ---
 
 
-## 中共整治虚拟货币挖矿再出重拳
-` 儒为` [轉載自GNews](https://gnews.org/zh-hans/1668929/)
+## 成千上万的人在墨尔本抗议新的大流行法，该法将赋予行政部门无限期的紧急权力以“保护公共健康”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1669012/)
 
-作者：意大利达芬奇农场-儒为
-![](https://assets.gnews.org/wp-content/uploads/2021/11/虚拟币挖矿.jpeg)封面来源：网络图片
-2021年11月16日，中共国家发展改革委新闻发言人孟玮在新闻发布会上说。**对执行居民电价的单位，若发现参与虚拟货币“挖矿”活动，将研究对其加征惩罚性电价**。
+[https://gtv.org/video/id=61933235182702508105c220](https://gtv.org/video/id=61933235182702508105c220)
 
-中共缺电到如此程度吗？还是仅以此为借口对通过比特币等虚拟币藏钱洗钱的盗国賊进行警告吗？真正的墙内老百姓有几个接触过虚拟币？连人民币都不多，多的都是负债。
+Protest girl
+抗议女孩
 
-2011年9月，中共人民银行会同有关部门印发了**《关于进一步防范和处置虚拟货币交易炒作风险的通知》**，明确虚拟货币不具有法定货币等同的法律地位，其相关业务活动属于非法金融活动，参与虚拟货币投资交易活动存在法律风险。
+As a 14 year old girl I shouldn’t have to be standing here fighting for my freedom.
+作为一名14岁的女孩，不应该由我站在这里为的自由而战
 
-中共非常清楚虚拟币对流氓政府的杀伤力有多强？一方面中共通过虚拟币市场藏钱、洗钱，通过深网和暗网进行犯罪交易，但同时中共及世界黑暗力量也都非常清楚，虚拟币只是工具无好坏之分，区别在于使用的人出于什么目的？
+I’m scared for my future
+但我为自己的未来感到害怕
 
-孟玮说，整治虚拟货币“挖矿”活动对促进我国产业结构优化、推动节能减排、如期实现碳达峰、碳中和目标具有重要意义。这真是纯扯淡的说法，中共从来都把非常无耻的行为，形容成“宇宙无限大，地球是一粒沙，想干啥就干啥”，来给自己扣上一个“高大上”的理由。
+and I’m scared for my parents that they’re gonna lose their jobs
+而且也为我的父母担心，他们会失去工作
 
-中共讲了一大堆的理由，最终目的就是一个，禁止虚拟货币“挖矿”行为。为此中共多部门联合印发《关于整治虚拟货币“挖矿”活动的通知》，虚拟货币“挖矿”活动增补列入**《产业结构调整指导目录(2019年本)》“淘汰类”目录**。这就是中共“以法犯法”的具体表现，自己立法、自己解释法律、自己执行法律。
+and we will be homeless because they don’t want to they don’t want to give in
+我们将无家可归，因为他们不想屈服
 
-2021年11月10日，中共国家发展改革委组织召开虚拟货币“挖矿”治理专题视频会议，要求各省区市切实负起**属地责任**。孟玮指出，将以产业式集中式“挖矿”、国有单位涉及“挖矿”和比特币“挖矿”为重点整治。
+I’m just scared you know
+你知道我只是害怕
 
-**对执行居民电价的单位**，若发现参与虚拟货币“挖矿”活动，将研究对其加征惩罚性电价，形成持续整治虚拟货币“挖矿”活动的高压态势。
+I don’t want the city of fighting as a 14 year old girl
+作为一名14岁的女孩我不想在城市中抗争
 
-中共最近阶段集中发布涉及虚拟币市场限制的通知和条例，主要目标对准以比特币为首的盗国虚拟币，但其最终目标针对的就是喜币。“钱”自由才能实现人身自由、“钱”安全才能实现人身安全、“钱”独立才能实现人身独立，**“钱”的流向既是民心所向**。
+I’m scared when I have kids what if this is still going on?
+当我有孩子时，我很害怕，如果这种情况仍在持续怎么办？
 
-新闻来源：🔗[整治虚拟货币挖矿再出重拳 这类行为或加征惩罚性电价](http://www.news.cn/fortune/2021-11/16/c_1128068889.htm)
+I have to fight for my kids too
+我也要为我的孩子而战
 
-*编辑/校对/发稿：意大利达芬奇农场-儒为*
+it’s gonna go on for so long, and I’m just gonna you know
+抗争会持续很长时间，我只是想让你知道
+
+Avi Yemini (Rebel News)
+阿维·耶米尼（反叛新闻）
+
+how is schooling been in the last two years for you？
+你在过去两年的学习情况如何？
+
+Protest girl
+抗议女孩
+
+my attendance is going down and so my grades is really stressful,
+我的出勤率下降了，所以我的成绩真的很有压力
+
+and all my friends grades as well
+我所有的朋友的成绩也受到了影响
+
+and it’s just get to speak up
+人们只是需要发声
+
+and more I just want to be speaking out about it about this program
+还有更多我只是想就这项立法发表意见
+
+because it’s gonna affect everyone’s future.
+因为这会影响每个人的未来
+
+Avi Yemini
+阿维·耶米尼
+
+Maybe your grades have gone down
+也许你的成绩下降了
+
+but you have much more intellect than the people in that building
+但你比那栋楼里的人有更多的智慧
+
+by the way you talk the passion you have
+顺便说一下，你谈了你的热情
+
+I think you’re going to be alright
+我想你会没事的
+
+Protest girl
+抗议女孩
+
+Thank you
+谢谢你
+
+* * *
+
+Date:11/14/2021
+原视频标题: Tens of thousands protest in Melbourne against new pandemic law that would give the executive indefinite emergency powers to “protect public health”.
+成千上万的人在墨尔本抗议新的大流行法，该法将赋予行政部门无限期的紧急权力以“保护公共健康”
+原视频日期：2021/10/14
+原视频链接: [https://twitter.com/disclosetv/status/1459472668831399940?s=21](https://twitter.com/disclosetv/status/1459472668831399940?s=21)
+任务编号：KE345（2870）
+视频时间段 : 0:00-0:51
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,118 +2,53 @@
 ---
 
 
-## 巴西总统雅伊尔·博尔索纳罗面对世卫组织负责人表示：“人们在疫苗第二剂后死亡”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1668907/)
+## VAERS分析揭露 CDC 和 FDA 掩盖数百起疫苗严重不良事件
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1668948/)
 
-[https://gtv.org/video/id=6193279f182702508105befc](https://gtv.org/video/id=6193279f182702508105befc)
+翻译： Jenny Ball
 
-All the over the world, there are people who need to work to feed themselves
-全世界有许多的人需要工作来养活他们自己
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-329.png)图片来源： newstarget.com
 
-All those measures taken quickly unbalanced the economy
-所有这些措施迅速导致经济失衡
+一位名叫阿尔伯特·贝纳维德斯( Albert Benavides )的研究人员，对疫苗不良事件报告系统 (VAERS) 进行了数据分析，该系统由疾病控制和预防中心 (CDC) 和食品和药物管理局 (FDA) 维护。他发现，这两个联邦机构向公众隐瞒了数百起与COVID-19疫苗相关的严重不良事件。
 
-The world went through more than a year of lockdown
-世界经历了一年多的封锁
+超过 200 种不同的症状，如果你能相信的话，已经被 CDC 和 FDA 完全掩盖了，它们继续声称福奇流感疫苗是“安全有效的”。
 
-if it continues like this, the economy will collapse
-如果再这样下去，经济就会崩溃
+**所有这 ****200 ****种严重不良反应的发生率都比心肌炎高得多**，心肌炎的发生率尤其高，尤其是在那些服从政府命令和当地教育局要求的年轻人中。
 
-I think we don’t need more lockdowns
-我认为我们不需要更多的封锁
+“CDC 应该警告人们，总共有 4,000 多个 VAERS 不良事件代码，被这些疫苗提高了 **10 倍或更多的基线**，”调查记者史蒂夫·基尔施（ Steve Kirsch ）在他的 “子堆栈”（Substack）上报告说。
 
-About the vaccine passports, have the WHO made a decision?
-关于疫苗护照，世卫组织有没有做出决定？
+**与所有其他 ****70 ****多次强加给儿童的疫苗相比，****COVID ****疫苗引起的不良事件更多。**
 
-On its obligation
-关于其义务
+正如[我们所报道的那样](https://www.naturalnews.com/2021-11-10-genocide-childrens-hospitals-flooded-infant-cardiac-patients.html)，**美国各地的医院现在都充斥着接种疫苗的患者，其中许多是儿童，甚至是婴儿，他们遭受着这些被 ****CDC ****和 ****FDA ****向公众隐瞒的不良事件之苦**。
 
-Not for now
-现在不行
+各地的父母都想知道发生了什么，因为媒体-制药-政府三巨头声称：这些注射剂在增强免疫力方面与维生素基本相同。
 
-We are not recommending as the vaccination rate in several countries still low
-我们不推荐，因为一些国家的疫苗接种率仍然很低
+**疫苗正在缓慢或快速地杀人，这取决于个体情况。随着时间的推移，**这种种族灭绝注射的全面影响将变得明显**，但到那时，采取任何行动已经太晚了。**
 
-So, access to the vaccine is low and requiring the certificate could be discriminatio
-因此，它们获得疫苗的机会很少，如果要求疫苗证书可能是歧视行为
+贝纳维德斯的分析发现的另一个小花絮是，自疫苗计划于 30 年前启动以来，**中共病毒疫苗注射引起的不良事件，比政府追踪方案中包含的所有其他 ****70 ****多种注射引起的不良事件更多。**
 
-In Brazil, many who got the second dose are getting COVID
-在巴西，许多接种第二剂疫苗的人正在感染 COVID
+这意味着中共病毒疫苗是迄今为止市场上最致命的“疫苗”。
 
-The vaccine does not prevent COVID but it does prevent serious illness and death
-该疫苗确实不能预防COVID，但确实可以预防严重的疾病和死亡
+“这是一个惊人的统计数据，没有人可以否认，但主流医学界（或主流媒体）似乎没有人在意，”基尔施指出。“它甚至不值得一提。天啊。”
 
-This is the purpose
-这是该疫苗的目的
+总而言之，中共病毒疫苗的致死率，是之前的记录保持者天花疫苗的 800 倍。**福奇流感疫苗已经杀死了至少 ****150,000 ****名美国人，并导致无数人永久致残。**
 
-In Brazil, many who got the second dose are dying
-在巴西，许多接种第二剂疫苗的人正在死亡
+据说，每 **22,000** 人接受注射，只能挽救一个生命。这是根据辉瑞（Pfizer）为期六个月的试验得出的，该试验可能偏向于该公司，这意味着真实数字可能要差得多。
 
-As you said, there can be some cases like that
-正如你所说，可能有这样的情况
+“从试验中还可以看出，**这种药物杀死的人多于拯救的人**（治疗组有 20 人死亡，而揭盲后安慰剂组有 14 人死亡），”基尔施补充道。“因此，**我们以超过 ****15****万 人的死亡为代价**，‘挽救’了不到 一万人的生命。简而言之，我们杀了 15 个人来救 1 个。这太愚蠢了。”
 
-Especially those who have comorbidities,
-尤其是那些有并发症的人
+基尔施和他的团队曾试图与拜登政权的官员会面，讨论这些有罪的数据，但迄今为止他们拒绝了。
 
-some other conditions or underlying health conditions
-一些有其他疾病或潜在的健康状况的人
+“**他们根本不想听到真相**，”基尔希说。“相反，他们专注于去平台化和审查我们，这些技术数据的时效。”
 
-80% of the population are asymptomatic
-80%的人口是无症状的
-
-In Brazil, I do not have control over the actions about the pandemic
-在巴西，我无法控制大流行的行动
-
-Governors and mayors have it by a decision of the Judicial Power
-州长和市长有司法权的决定
-
-And governors and mayors are demanding mandatory vaccination for children
-州长和市长要求为儿童强制接种疫苗
-
-In his words, the WHO does not recommend the vaccine for children
-用他的话来说，世卫组织不推荐给儿童接种疫苗
-
-So we have to make a note in that regard saying that the WHO does not recommend it
-所以我们必须注意，世卫组织不建议这样做
-
-If we say anything here “about the vaccine”, the media starts saying it is “Fake News”
-如果我们在这里说什么“关于疫苗”，媒体就会开始说它是“假新闻”
-
-We are left with our hands tied
-我们被束缚了手脚
-
-The lives of children are at stake and nothing better than to follow what Adhanom said
-孩子们的生命危在旦夕，没有什么比遵循谭德塞-阿达诺姆所说的更好的了
-
-this determination of the WHO
-世卫组织的这一决定
-
-What is the origin of the virus?
-病毒的起源是什么？
-
-We are still studying it
-我们仍在研究它
+**新闻来源**：[newstarget.com] [VAERS analysis exposes CDC, FDA for covering up hundreds of serious adverse events associated with COVID vaccines](https://www.newstarget.com/2021-11-14-vaers-cdc-fda-hiding-serious-adverse-events.html) / [stevekirsch.substack.com](https://stevekirsch.substack.com/) / [naturalnews.com](https://naturalnews.com/)
 
 * * *
 
-Date:11/13/2021
-原视频标题: President Of Brazil, Jair Bolsonaro Confronts WHO Chief: ‘People Are Dying After the Second Dose’
-巴西总统雅伊尔·博尔索纳罗面对世卫组织负责人表示：“人们在疫苗第二剂后死亡”
-原视频日期：2021/10/12
-原视频链接: [https://twitter.com/chi\_un\_lee/status/1458817221787017225?s=24](https://twitter.com/chi_un_lee/status/1458817221787017225?s=24)
-任务编号：KE344（2850）
-视频时间段 : 0:00-2:19
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

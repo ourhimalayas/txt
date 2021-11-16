@@ -2,167 +2,44 @@
 ---
 
 
-## 乌托邦的中共和实力派的美国不可比拟
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1669053/)
+## 俄克拉荷马州国民警卫队拒绝执行拜登政府的疫苗强制令
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1669092/)
 
-[https://gtv.org/video/id=619331ac182702508105c1f6](https://gtv.org/video/id=619331ac182702508105c1f6)
+【简评：】***该备忘录由俄克拉荷马州国民警卫队副指挥官曼奇诺发布。这名副指挥官此前刚刚由该州州长凯文·斯蒂特指定委派，而斯蒂特也是抨击美国政府推行强制接种疫苗规定的代表人之一。另外，这种对自己州约1万名国民警卫队成员的“保护”仅在“州内有效”。如果他们需要赴军事学校学习或被联邦命令征召，则可能面临严重后果。但即便如此，州长和曼奇诺的这一正义之举，也将得到该州国民警卫队所有队员的支持和拥护。***
 
-跟美国人签一份一千年的和平协议
-Firmar un acuerdo de paz por mil años con los estadounidenses
+据《just news》记者Susan Katz Keating，2021年11月12日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-105.png)图片来源：news.yahoo.com
+俄克拉何马州国民警卫队新上任的负责人下令，他指挥的部队将不会被迫遵守五角大楼对武装部队成员的COVID-19疫苗强制接种令。
 
-对中国是最好的
-Es bien para China
+美国陆军准将托马斯·曼奇诺(Thomas Mancino)在周四的一份备忘录中写道:“俄克拉何马州国民警卫队士兵不会被强制要求接种COVID-19疫苗。”这份备忘录与国防部的一项指令不一致，该指令要求包括国民警卫队在内的“全部部队”必须接种COVID-19疫苗。
 
-你想都别想跟人家打架
-No pienses en pelear con ellos
+曼奇诺在备忘录中指出，在没有联邦命令的情况下，俄克拉荷马州州长凯文·斯蒂特是该组织的“合法总司令”，这意味着斯蒂特而非国防部长劳埃德·奥斯汀，拥有对任何疫苗强制令的最终决定权。
 
-它不是钱的事
-Esto no es un asunto de dinero
+曼奇诺在备忘录中写道，对于没有接种疫苗的警卫队成员，“不会采取消极的行政或法律行动”。
 
-不是武器的事
-Arma
+曼奇诺周三被任命为俄克拉荷马州国民警卫队副将，接替前任迈克尔·汤普森（Michael Thompson）。
 
-不是科技的事
-O tecnología
+本月早些时候，州长凯文·斯蒂特(Kevin Stitt)要求奥斯汀暂停俄克拉荷马州国民警卫队成员的疫苗接种任务。
 
-它是一个历史的堆积
-Es la acumulación histórica
+斯蒂特在 11 月 1 日给奥斯汀的一封信中写道：“联邦政府对俄克拉荷马州国民警卫队施加强制性疫苗接种令是不负责任的，这可能会限制我在紧急情况下可以要求协助该州的人数。”
 
-就像新中国联邦, 七哥要没有30年在共产党内的堆积
-Así como el Nuevo Estado Federal de China, si no estuve acumulando durante 30 años en el Partido Comunista
+斯蒂特写道:“这项强制令侵犯了许多俄克拉荷马州人的个人自由，因为这会导致有些人为了不失去工作，而不得不牺牲个人信仰。我们所有的国民警卫队都非常重视这项使命。他们是爱国的公民，在最需要的时候，他们愿意冒着生命危险保护我们社区的其他人。”
 
-今天你说这人, 我张嘴就来
-Hoy yo puedo decir cualquier cosa de esta persona
+据俄克拉荷马州国民警卫队的一名官员称，奥斯汀没有直接回应曼奇诺。
 
-我张嘴就能编
-O inventar de la nada
+五角大楼发言人约翰·柯比(John Kirby)对《军事时报》(Military Times)表示，五角大楼已经知晓斯蒂特的备忘录和信件，并将对州长做出“适当回应”。
 
-我没有这些年的经营
-Si no he estado administrando estos años
+原文连：[https://justthenews.com/nation/states/oklahoma-national-guard-defies-pentagon-wont-impose-covid-19-vaccine-mandate](https://justthenews.com/nation/states/oklahoma-national-guard-defies-pentagon-wont-impose-covid-19-vaccine-mandate)
 
-我就能成为结构师, 搞出一个喜联储
-Puedo convertirme en un ingeniero estructural y crear una Reserva Federal de Himalaya
-
-我能搞出G-TV, 盖特
-El G-TV, GETTR
-
-我今天没有四年爆料
-Si no he estado en Movimiento de denunciantes por cuatro años
-
-我今天给你们讲的, 你们就信, 不可能
-Hoy lo que les digo, ¿ustedes me creerán? Imposible
-
-它是一个时间的累积
-Esto es algo que necesita ir acumulando a través del tiempo
-
-多方面累积的结果
-Es el resultado acumulado de distintas partes
-
-这叫物质的设计
-Esto se llama diseño de cosas materiales
-
-物是行动产生的结果
-Las cosas son los resultados producidos por las acciones
-
-质是什么
-¿Qué es el material?
-
-是一个事情的基本逻辑
-Es la lógica fundamental de un asunto
-
-合在一起叫物质
-Unido se llama cosas materiales
-
-我们就在物质的设计里
-Nosotros estamos dentro del diseño de las cosas materiales
-
-共产党是什么
-¿Qué es el Partido Comunista?
-
-叫乌托邦
-Se llama Utopía
-
-乌托邦就是幻想主义者, 谎言主义者
-Las utopías son fantásticas y mentirosas
-
-你怎么能听他的呢
-Cómo puedes escuchar de ella
-
-胡扯的
-Son puras pendejadas
-
-所以说(如果)打3分钟就给它灭了
-Por eso si golpea por tres minutos y lo terminas de destruir
-
-所以今天的选举结果是什么
-¿Cuál es el resultado de la elección de hoy?
-
-所有这些地方, 你敢打台湾
-Todos estos lugares, te atreves a atacar a Taiwán
-
-老子就修理你
-Te pegaré
-
-真的, 政清, 爱米粒, 大牛, 巴黎
-Es verdad, Zhengqing, Emily, Daniu, Bali
-
-你们应该裸奔了
-Deberían estar corriendo desnudo
-
-好好认真的裸奔
-En serio, corran desnudo
-
-这事值得裸奔
-Este asunto vale la pena correr desnudo
-
-绝对对你们是安全的
-Es absolutamente seguro para ustedes
-
-新中国联邦不可能, 绝对保证你安全
-El Nuevo Estado Federal garantiza tu seguridad
-
-但是这个让你安全上加了安全
-Pero esto es más seguro que cualquier cosa
-
-这是我心里最开心的
-Y es lo que me contenta más
-
-他们赢, 第二个就是绝对灭共
-Si ellos ganan, el segundo es eliminar al Partido Comunista
-
-哪个不是咱战友, 你告诉我哪个不是
-Dime quien no es compañero luchador
-
-导致这个赢的最重要的结果是什么
-¿Cuál es el resultado más importante que conlleva esta victoria?
-
-千万别忘了
-Nunca olviden
-
-所有这些州的现场的所有人, 都是班农战斗士的嘉宾
-Todas las personas que están presentes de estas provincias son todos invitados de los combatientes de Bannon
-
-* * *
-
-日期：11/11/2021
-原视频标题：乌托邦的中共和实力派的美国不可比拟
-El utópico PCCh y el poderoso Estados Unidos son incomparables
-原视频日期：11/05/2021
-原视频网址：[https://twitter.com/se1y7cblljselva/status/1456598738625916929?s=24](https://twitter.com/se1y7cblljselva/status/1456598738625916929?s=24)
-任务编号：KC251（2785）
-视频时间段：0:00-1:48
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
+翻译：洛杉矶盘古农场 – 钢蛋儿
+校对：洛杉矶盘古农场 – 轰炸机
+评论：洛杉矶盘古农场 – 钢蛋儿
+编辑：洛杉矶盘古农场 – 柯镇恶
 发布：洛杉矶盘古农场 – 恩典
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
 
  
 

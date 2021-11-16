@@ -2,31 +2,168 @@
 ---
 
 
-## 墙内新闻速递
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1668984/)
+## 乌托邦的中共和实力派的美国不可比拟
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1669053/)
 
-撰稿人：Microkevin
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-8.png)图片来自网络
-**环时公开报导****2****年前擅闯海湖庄园的中国女间谍张玉婧被遣送回国**
+[https://gtv.org/video/id=619331ac182702508105c1f6](https://gtv.org/video/id=619331ac182702508105c1f6)
 
-众所周知，2019年时任美国总统川普的海湖庄园遭中国间谍张玉婧擅闯，携带很多特工设备，被美方当场抓获，并判刑8个月。党媒环球时报昨日公开报导此事并为此女开脱，起名叫“倒霉的中国女子”只是误闯了海湖庄园，全程无比无辜。报道中还提到了Cindy Yang这个腐败美国政客，专为美国政客送中国女孩的妈咪Cindy Yang。据七哥爆料她也是一个中国间谍。环球时报高调报道此事为此二人开脱作者是在不知是何目的。
+跟美国人签一份一千年的和平协议
+Firmar un acuerdo de paz por mil años con los estadounidenses
 
-按说川普已经是前总统了，已经时过境迁，这两人已经没有利用价值了，悄无声息的消失于大众视野是最好的。为何环球时报为此事专写一篇报导，意欲何为作者是在不知，是否背后另有隐情。还请高人在评论区指点分析。非常感谢！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture2-1.jpg)
-图片来自网络
+对中国是最好的
+Es bien para China
 
-**晕了，解放军海陆军开展拼刺刀训练美其名曰杀声震天血性爆棚**
+你想都别想跟人家打架
+No pienses en pelear con ellos
 
-视频在参考链接中，战友们自己看吧！简直是要笑死我了。堂堂强国自产的QBZ95式居然堕落到要装刺刀直接拼杀的地步，这帮子军人还有模有样的在那练刺杀动作。我真是服了，ccp这战争思维还停留在二战期间呢！就这还要打台湾呢？连我一个草根都知道，远战有狙击和AR步枪，近战有手枪，没子弹了都是直接扔了枪直接拿匕首互搏。真到战场上没等你刺刀上好呢可能已经被手枪打死或者被匕首快速捅死了，手枪，匕首啥的怎么着也比你上刺刀这个动作快啊。我一个草根都知道，自从军事战斗进入自动步枪时代你还见刺刀上过战场么？你有练这个拼刺刀这功夫都不如多打几发子弹练练枪法呢。你ccp军队里有几个打过1000发子弹的士兵。又有几个参加过实战的士兵呢？ccp这样训练士兵，不打仗算好的，如果ccp真敢打台湾派这些人去，只能是像当年故意没给发棉衣的改名叫志愿军的原国民党士兵一样悲剧，被送上朝鲜战场冻死，饿死，当炮灰死。
+它不是钱的事
+Esto no es un asunto de dinero
 
-本文纯属个人观点。
+不是武器的事
+Arma
 
-参考链接
+不是科技的事
+O tecnología
 
-[2年过去了，那个倒霉的中国女子终于被美国放回来了\_腾讯新闻 (qq.com)](https://new.qq.com/omn/20211115/20211115A0EYRA00.html)
+它是一个历史的堆积
+Es la acumulación histórica
 
-[直击解放军陆海军开展多场刺杀训练 “杀”声震天血性爆棚\_腾讯新闻 (qq.com)](https://new.qq.com/omn/20211115/20211115V0ELBK00.html)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
+就像新中国联邦, 七哥要没有30年在共产党内的堆积
+Así como el Nuevo Estado Federal de China, si no estuve acumulando durante 30 años en el Partido Comunista
+
+今天你说这人, 我张嘴就来
+Hoy yo puedo decir cualquier cosa de esta persona
+
+我张嘴就能编
+O inventar de la nada
+
+我没有这些年的经营
+Si no he estado administrando estos años
+
+我就能成为结构师, 搞出一个喜联储
+Puedo convertirme en un ingeniero estructural y crear una Reserva Federal de Himalaya
+
+我能搞出G-TV, 盖特
+El G-TV, GETTR
+
+我今天没有四年爆料
+Si no he estado en Movimiento de denunciantes por cuatro años
+
+我今天给你们讲的, 你们就信, 不可能
+Hoy lo que les digo, ¿ustedes me creerán? Imposible
+
+它是一个时间的累积
+Esto es algo que necesita ir acumulando a través del tiempo
+
+多方面累积的结果
+Es el resultado acumulado de distintas partes
+
+这叫物质的设计
+Esto se llama diseño de cosas materiales
+
+物是行动产生的结果
+Las cosas son los resultados producidos por las acciones
+
+质是什么
+¿Qué es el material?
+
+是一个事情的基本逻辑
+Es la lógica fundamental de un asunto
+
+合在一起叫物质
+Unido se llama cosas materiales
+
+我们就在物质的设计里
+Nosotros estamos dentro del diseño de las cosas materiales
+
+共产党是什么
+¿Qué es el Partido Comunista?
+
+叫乌托邦
+Se llama Utopía
+
+乌托邦就是幻想主义者, 谎言主义者
+Las utopías son fantásticas y mentirosas
+
+你怎么能听他的呢
+Cómo puedes escuchar de ella
+
+胡扯的
+Son puras pendejadas
+
+所以说(如果)打3分钟就给它灭了
+Por eso si golpea por tres minutos y lo terminas de destruir
+
+所以今天的选举结果是什么
+¿Cuál es el resultado de la elección de hoy?
+
+所有这些地方, 你敢打台湾
+Todos estos lugares, te atreves a atacar a Taiwán
+
+老子就修理你
+Te pegaré
+
+真的, 政清, 爱米粒, 大牛, 巴黎
+Es verdad, Zhengqing, Emily, Daniu, Bali
+
+你们应该裸奔了
+Deberían estar corriendo desnudo
+
+好好认真的裸奔
+En serio, corran desnudo
+
+这事值得裸奔
+Este asunto vale la pena correr desnudo
+
+绝对对你们是安全的
+Es absolutamente seguro para ustedes
+
+新中国联邦不可能, 绝对保证你安全
+El Nuevo Estado Federal garantiza tu seguridad
+
+但是这个让你安全上加了安全
+Pero esto es más seguro que cualquier cosa
+
+这是我心里最开心的
+Y es lo que me contenta más
+
+他们赢, 第二个就是绝对灭共
+Si ellos ganan, el segundo es eliminar al Partido Comunista
+
+哪个不是咱战友, 你告诉我哪个不是
+Dime quien no es compañero luchador
+
+导致这个赢的最重要的结果是什么
+¿Cuál es el resultado más importante que conlleva esta victoria?
+
+千万别忘了
+Nunca olviden
+
+所有这些州的现场的所有人, 都是班农战斗士的嘉宾
+Todas las personas que están presentes de estas provincias son todos invitados de los combatientes de Bannon
+
+* * *
+
+日期：11/11/2021
+原视频标题：乌托邦的中共和实力派的美国不可比拟
+El utópico PCCh y el poderoso Estados Unidos son incomparables
+原视频日期：11/05/2021
+原视频网址：[https://twitter.com/se1y7cblljselva/status/1456598738625916929?s=24](https://twitter.com/se1y7cblljselva/status/1456598738625916929?s=24)
+任务编号：KC251（2785）
+视频时间段：0:00-1:48
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

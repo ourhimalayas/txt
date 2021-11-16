@@ -2,53 +2,62 @@
 ---
 
 
-## 克雷格·凯利在“世界上最受压迫的城市”向群众发表讲话
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1669081/)
+## G系列拥有者未来永远VVIP
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1669109/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/么二本.jpg)图片来源：克雷格·凯利的推特
-翻译：文扬
-编辑：热锅小蚂蚁
+**郭文贵
+Miles Guo**
 
-敬请关注阿维·耶米尼在墨尔本与澳大利亚联合党领袖克雷格·凯利的会面。
+还要好人要安全，还要好人过上体面的生活
+also good people have to live a safe and decent life
 
-澳大利亚联合党领导人克雷格·凯利前往墨尔本，他在那里主持了周末充斥墨尔本街道的 “杀死法案 “抗议活动。
+就像我说的，任何Gclub的购买者，
+just like I said, any Gclub’s buyers
 
-据报道，成千上万的人聚集在议会前集会，反对丹尼尔·安德鲁斯及其臭名昭著的 2021 年公共卫生和福利修正案（流行病管理）。这是两年前大流行开始以来墨尔本最大规模的抗议活动。
+法治基金的捐款者，不能包含有问题的，
+donors to the Rule of Law Foundation, cannot include people whose donations were unsuccessful
 
-克雷格·凯利一直是反对滥用流行病控制权力和强制性接种疫苗的最响亮声音之一。
+GTV投资者，借款者，还有喜币拥有者
+and GTV investors, borrowers, and H-Coin owners
 
-人们不会再忍受这种胡作非为了。这是世界上封锁最严的城市，也是世界上最受压迫的城市。科学表明，这是行不通的。休斯议员克雷格-凯利说：”人们将站起来争取他们的权利。
+未来永远拥有所有的VVIP待遇
+Always have all the VVIP treatment in the future
 
-迄今为止，已有超过 96,000 人签署了“终止法案”的请愿书。
+根据你不同的投资，全人类上没有一家敢这么做
+According to your different investments, no one in the whole mankind dares to do this
 
-他接着指出，在新冠病毒大流行期间引入维多利亚的一些歧视性措施在其他国家已被裁定为非法。
+你们就没有想过，GTV战友总共投多少钱
+You never thought about how much total comrades in arms invested in GTV
 
-我们必须结束这种歧视。我们必须保护孩子。而且我认为我们需要彻底改变政治环境。两个政党都表明他们不值得被信任。
+不到10亿美元，现在GTV拥有喜联储5%的股份
+less than 1 billion U.S. dollars, and now GTV owns 5% of Himalaya Reserve
 
-新冠病毒及其相关的大流行应对措施见证了以自由为主题的小党派的迅速崛起。 一国党、自由民主党和澳大利亚统一党都扩大了他们在澳大利亚政治中的地位。
+你知道值多少钱，2万亿的5%是多少
+You know how much it is worth? what is 5% of 2 trillion
 
-上个月，澳大利亚联合党成为澳大利亚最大的政党，其成员数量超过了自由党和工党。该党主席克莱夫-帕尔默（Clive Palmer）对各州州长提出了许多法律挑战，试图推翻他所认为的干涉公民生活的非法健康指令。
+1千亿美元，刨除人家投资机构的
+100 billion US dollars, excluding other institutions investment
 
-凯利批评总理斯科特-·莫里森支持维多利亚州州长丹尼尔·安德鲁斯，而不是反对州长和该法案，因为该法案有可能在澳大利亚境内建立一个有效的独裁政权。
+你有多少钱，你算过账吗
+How much money do you have, have you calculated it?
 
-凯利坚称：“如果我们上台，我们将确保疫苗护照成为过去，永远不会再出现。
+Date:11/14/2021
+原视频标题: G系列拥有者未来永远VVIP
+G series owners will always be VVIP in the future
+原视频日期：2021/11/10
+原视频链接 [https://twitter.com/se1y7cblljselva/status/1459085397754269701?s=24](https://twitter.com/se1y7cblljselva/status/1459085397754269701?s=24)
+任务编号：KC253（2857）
+视频时间段 : 0:00-0:58
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布: 洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-他还承诺皇家委员会将调查大流行期间政客和官僚的行为。
-
-格雷格·亨特“在我上次检查时发现联邦卫生部长已经购买了1.5亿剂加强针，我们国家大约有2500万人，那就是每个人有六支加强针”。
-
-在三位独立人士的帮助下，该法案有望在本月晚些时候通过上议院。
-
-原文链接：[youtube.com](https://www.youtube.com/watch?v=oNKmou6F6ws)
-
-*发布：热锅小蚂蚁*
-
-**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
