@@ -15,95 +15,95 @@
 
 ---
 
-### [新中国联邦的船](/content/gnews/1/README.md)
- ` MG FARM`
+### [日本“疫苗・检测包”成制度，未接种者何去何从](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [禽流感在欧洲和亚洲蔓延](/content/gnews/2/README.md)
+### [喜币上市后爆料革命37天关键增长期日记2](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [喜币上市后爆料革命37天关键增长期日记3](/content/gnews/3/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [自由女神见证了我们的每一步](/content/gnews/4/README.md)
+### [新中国联邦的船](/content/gnews/3/README.md)
  ` MG FARM`
 
-### [白宫：1.75T的BBB无法支付，美国人明年需要加税了](/content/gnews/5/README.md)
+### [禽流感在欧洲和亚洲蔓延](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [喜币上市后爆料革命37天关键增长期日记3](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [自由女神见证了我们的每一步](/content/gnews/6/README.md)
+ ` MG FARM`
+
+### [白宫：1.75T的BBB无法支付，美国人明年需要加税了](/content/gnews/7/README.md)
  ` wenwu`
 
-### [Circle将投资日元稳定币，作为向亚洲扩张的一部分](/content/gnews/6/README.md)
+### [Circle将投资日元稳定币，作为向亚洲扩张的一部分](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [感谢新中国联邦人](/content/gnews/7/README.md)
+### [感谢新中国联邦人](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [列举世界范围内的疫苗预防失败的地区](/content/gnews/8/README.md)
+### [列举世界范围内的疫苗预防失败的地区](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [如果强制雇员接受疫苗而造成伤害，雇主可能面临百万美元赔偿](/content/gnews/9/README.md)
+### [如果强制雇员接受疫苗而造成伤害，雇主可能面临百万美元赔偿](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [福奇和盖茨承认COVID疫苗并不像广告宣传的那样有效](/content/gnews/10/README.md)
+### [福奇和盖茨承认COVID疫苗并不像广告宣传的那样有效](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [《蓝枫法律》第三十三期 法律你我他—藐视法庭罪](/content/gnews/11/README.md)
+### [《蓝枫法律》第三十三期 法律你我他—藐视法庭罪](/content/gnews/13/README.md)
  ` 加拿大温哥华扬帆农场蓝枫法律`
 
-### [拜登令司法部起诉班农，班农称将背水一战](/content/gnews/12/README.md)
+### [拜登令司法部起诉班农，班农称将背水一战](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [谷歌云、Snapchat、Spotify等网站追随Facebook宕机，预示属于GTV、盖特的大时代来临](/content/gnews/13/README.md)
+### [谷歌云、Snapchat、Spotify等网站追随Facebook宕机，预示属于GTV、盖特的大时代来临](/content/gnews/15/README.md)
  ` YALUN 亚伦`
 
-### [拜习会谈：中共警告美国不要在台湾“玩火”](/content/gnews/14/README.md)
+### [拜习会谈：中共警告美国不要在台湾“玩火”](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【信仰之声】我理解的“万佛万神”](/content/gnews/15/README.md)
+### [【信仰之声】我理解的“万佛万神”](/content/gnews/17/README.md)
  ` 纽约香草山MOS03`
 
-### [文·贵天成——文贵先生谈“疫苗”（七）](/content/gnews/16/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（七）](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [魁省法官拒绝对医护人员的疫苗护照发出禁令](/content/gnews/17/README.md)
+### [魁省法官拒绝对医护人员的疫苗护照发出禁令](/content/gnews/19/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [拜登和中共党魁习近平如期举行视频会晤](/content/gnews/18/README.md)
+### [拜登和中共党魁习近平如期举行视频会晤](/content/gnews/20/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [奥地利爆发“反疫苗封锁”示威大游行](/content/gnews/19/README.md)
+### [奥地利爆发“反疫苗封锁”示威大游行](/content/gnews/21/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [拜登即将宣布外交抵制北京冬奥会](/content/gnews/20/README.md)
+### [拜登即将宣布外交抵制北京冬奥会](/content/gnews/22/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [喜币的意义](/content/gnews/21/README.md)
+### [喜币的意义](/content/gnews/23/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [喜联储已然成为了全人类上最有希望成长最快的一个万亿帝国](/content/gnews/22/README.md)
+### [喜联储已然成为了全人类上最有希望成长最快的一个万亿帝国](/content/gnews/24/README.md)
  ` MG 澳喜农场多语组`
 
-### [请愿书:卡尔加里没有气候紧急情况](/content/gnews/23/README.md)
+### [请愿书:卡尔加里没有气候紧急情况](/content/gnews/25/README.md)
  ` MG FARM`
 
-### [中共以通过《历史决议》向习致敬](/content/gnews/24/README.md)
+### [中共以通过《历史决议》向习致敬](/content/gnews/26/README.md)
  ` HimalayaRussia`
 
-### [中国持不同政见者警告美国“已经专制”](/content/gnews/25/README.md)
- ` MG FARM`
-
-### [2021/11/16 大卫作战室直播精要](/content/gnews/26/README.md)
+### [2021/11/16 大卫作战室直播精要](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [17岁少女因疫苗导致严重副作用仍然无法获得医疗豁免](/content/gnews/27/README.md)
+### [17岁少女因疫苗导致严重副作用仍然无法获得医疗豁免](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [白宫再发布拜习虚拟会晤解读稿](/content/gnews/28/README.md)
+### [白宫再发布拜习虚拟会晤解读稿](/content/gnews/29/README.md)
  ` HimalayaRussia`
 
-### [总理斯科特·莫里森（Scott Morrison）警告中共国他不会 “出卖 ”澳大利亚](/content/gnews/29/README.md)
+### [总理斯科特·莫里森（Scott Morrison）警告中共国他不会 “出卖 ”澳大利亚](/content/gnews/30/README.md)
  ` 走进澳洲`
-
-### [白宫发布拜习虚拟会晤新闻稿](/content/gnews/30/README.md)
- ` HimalayaRussia`
 
 ### [价格为何上涨：供应链瓶颈](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
