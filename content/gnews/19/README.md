@@ -2,31 +2,106 @@
 ---
 
 
-## 墙内新闻速递
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1668984/)
+## 成千上万的人在墨尔本抗议新的大流行法，该法将赋予行政部门无限期的紧急权力以“保护公共健康”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1669012/)
 
-撰稿人：Microkevin
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-8.png)图片来自网络
-**环时公开报导****2****年前擅闯海湖庄园的中国女间谍张玉婧被遣送回国**
+[https://gtv.org/video/id=61933235182702508105c220](https://gtv.org/video/id=61933235182702508105c220)
 
-众所周知，2019年时任美国总统川普的海湖庄园遭中国间谍张玉婧擅闯，携带很多特工设备，被美方当场抓获，并判刑8个月。党媒环球时报昨日公开报导此事并为此女开脱，起名叫“倒霉的中国女子”只是误闯了海湖庄园，全程无比无辜。报道中还提到了Cindy Yang这个腐败美国政客，专为美国政客送中国女孩的妈咪Cindy Yang。据七哥爆料她也是一个中国间谍。环球时报高调报道此事为此二人开脱作者是在不知是何目的。
+Protest girl
+抗议女孩
 
-按说川普已经是前总统了，已经时过境迁，这两人已经没有利用价值了，悄无声息的消失于大众视野是最好的。为何环球时报为此事专写一篇报导，意欲何为作者是在不知，是否背后另有隐情。还请高人在评论区指点分析。非常感谢！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture2-1.jpg)
-图片来自网络
+As a 14 year old girl I shouldn’t have to be standing here fighting for my freedom.
+作为一名14岁的女孩，不应该由我站在这里为的自由而战
 
-**晕了，解放军海陆军开展拼刺刀训练美其名曰杀声震天血性爆棚**
+I’m scared for my future
+但我为自己的未来感到害怕
 
-视频在参考链接中，战友们自己看吧！简直是要笑死我了。堂堂强国自产的QBZ95式居然堕落到要装刺刀直接拼杀的地步，这帮子军人还有模有样的在那练刺杀动作。我真是服了，ccp这战争思维还停留在二战期间呢！就这还要打台湾呢？连我一个草根都知道，远战有狙击和AR步枪，近战有手枪，没子弹了都是直接扔了枪直接拿匕首互搏。真到战场上没等你刺刀上好呢可能已经被手枪打死或者被匕首快速捅死了，手枪，匕首啥的怎么着也比你上刺刀这个动作快啊。我一个草根都知道，自从军事战斗进入自动步枪时代你还见刺刀上过战场么？你有练这个拼刺刀这功夫都不如多打几发子弹练练枪法呢。你ccp军队里有几个打过1000发子弹的士兵。又有几个参加过实战的士兵呢？ccp这样训练士兵，不打仗算好的，如果ccp真敢打台湾派这些人去，只能是像当年故意没给发棉衣的改名叫志愿军的原国民党士兵一样悲剧，被送上朝鲜战场冻死，饿死，当炮灰死。
+and I’m scared for my parents that they’re gonna lose their jobs
+而且也为我的父母担心，他们会失去工作
 
-本文纯属个人观点。
+and we will be homeless because they don’t want to they don’t want to give in
+我们将无家可归，因为他们不想屈服
 
-参考链接
+I’m just scared you know
+你知道我只是害怕
 
-[2年过去了，那个倒霉的中国女子终于被美国放回来了\_腾讯新闻 (qq.com)](https://new.qq.com/omn/20211115/20211115A0EYRA00.html)
+I don’t want the city of fighting as a 14 year old girl
+作为一名14岁的女孩我不想在城市中抗争
 
-[直击解放军陆海军开展多场刺杀训练 “杀”声震天血性爆棚\_腾讯新闻 (qq.com)](https://new.qq.com/omn/20211115/20211115V0ELBK00.html)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
+I’m scared when I have kids what if this is still going on?
+当我有孩子时，我很害怕，如果这种情况仍在持续怎么办？
+
+I have to fight for my kids too
+我也要为我的孩子而战
+
+it’s gonna go on for so long, and I’m just gonna you know
+抗争会持续很长时间，我只是想让你知道
+
+Avi Yemini (Rebel News)
+阿维·耶米尼（反叛新闻）
+
+how is schooling been in the last two years for you？
+你在过去两年的学习情况如何？
+
+Protest girl
+抗议女孩
+
+my attendance is going down and so my grades is really stressful,
+我的出勤率下降了，所以我的成绩真的很有压力
+
+and all my friends grades as well
+我所有的朋友的成绩也受到了影响
+
+and it’s just get to speak up
+人们只是需要发声
+
+and more I just want to be speaking out about it about this program
+还有更多我只是想就这项立法发表意见
+
+because it’s gonna affect everyone’s future.
+因为这会影响每个人的未来
+
+Avi Yemini
+阿维·耶米尼
+
+Maybe your grades have gone down
+也许你的成绩下降了
+
+but you have much more intellect than the people in that building
+但你比那栋楼里的人有更多的智慧
+
+by the way you talk the passion you have
+顺便说一下，你谈了你的热情
+
+I think you’re going to be alright
+我想你会没事的
+
+Protest girl
+抗议女孩
+
+Thank you
+谢谢你
+
+* * *
+
+Date:11/14/2021
+原视频标题: Tens of thousands protest in Melbourne against new pandemic law that would give the executive indefinite emergency powers to “protect public health”.
+成千上万的人在墨尔本抗议新的大流行法，该法将赋予行政部门无限期的紧急权力以“保护公共健康”
+原视频日期：2021/10/14
+原视频链接: [https://twitter.com/disclosetv/status/1459472668831399940?s=21](https://twitter.com/disclosetv/status/1459472668831399940?s=21)
+任务编号：KE345（2870）
+视频时间段 : 0:00-0:51
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
