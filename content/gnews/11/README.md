@@ -2,21 +2,51 @@
 ---
 
 
-## 京西宾馆90%的人想拥有喜币
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1669549/)
+## 福奇承认接种疫苗的人处于极大的危险中
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669617/)
 
-习绝对不相信，京西宾馆里边的90%的人想拥有喜币。国内的人给郭先生发出来的，说我告诉你，喜币喜支付，然后喜贷款，从今以后全球流通，绝对的最高效、最保密。
-
-**【郭先生直播摘要】2021.11.10 京西宾馆90%的人想拥有喜币**
-
-**郭先生:**
-
-现在在京西宾馆的, 我相信习他绝对不相信, 我太了解习这个人了。这个人是他所谓的不信邪就是， 我不知道的我都不信， 是吧。我不知道的我都不信，他叫不信邪，所有我不知道的都是邪。我知道的都是正，他叫不信邪，他绝对不信邪， 就是京西宾馆里边的90%的人想拥有喜币。
- 我可以告诉，昨 天那位咱们那位战友在Gnews写的报告， 哗哗的传出去在国内， 国内的人给我发出来， 这哥们写得好。 我告诉你， 喜币喜支付， 然后喜贷款， 从今以后全球流通。 不用，你不可能再需要银行的信用卡，你不可能在需要任何，而且你绝对的安全，绝对的最高效最保密。特别像台湾这样的地方，像新加坡这种地方日本这种地方，澳大利亚新西兰简直是个变态的地方。加拿大就更加变态了，就未来你的财富完全是这些国家是要给你掠夺性的霸占着你。只有我们能解决，谁都解决不了，但是能看清楚七哥设计的高端之巧妙者、之奥妙者寥寥无几。
+信息采集：星星
+作者：英国喜庄园 – I770775
 
 
 
-视频剪辑：小腾腾说 |听写：雨山溪桥客 |翻译：Arthur|校对：tonyj |视频制作+字幕：小腾腾说 |编辑&发布： 闪电训练
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+11月12日，福奇在参加某播客讨论中共病毒现状时，首次承认疫苗并没有像广告宣传得那样有效，接种疫苗的人反而由于免疫力的下降处于极大的危险之中。
+
+福奇说，在首次接种疫苗几个月后，越来越多的人获得了突破性感染。他们不仅对感染，而且对住院和某种程度死亡的免疫力都在下降。值得关注的是，这种情况不仅发生在老年组，而且已经涉及所有年龄组。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.4.jpg)
+不过，面对这些事实，福奇并未表示应该放弃疫苗，反而变本加厉地号召大家继续注射疫苗加强针，称加强针是“绝对必要的”。
+
+参考链接：
+[Dr. Fauci Admits Vaccines Did Not Work as Advertised and that Vaccinated Are in Great Danger Today (VIDEO)](https://www.thegatewaypundit.com/2021/11/dr-fauci-admits-vaccines-not-work-advertised-vaccinated-great-danger-today/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
+
 
  
 

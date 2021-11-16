@@ -2,34 +2,28 @@
 ---
 
 
-## 在激烈的法庭演讲中班农告诉拜登他选错了目标
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1669623/)
+## 奥地利政府颁布10天禁足令 任意未打疫苗的外出者将被罚款
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1669692/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-73.png)视频截图
+作者：香草山商业部 秋末的落叶
+![This image has an empty alt attribute; its file name is logo-5-768x103-2.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-2.jpg)
+《法新社》维也纳14日电，奥地利政府总理查伦柏表示，自奥地利时间2021年11月15日起，对未打疫苗的民众实施10天居家管制，违者可处500欧元罚款。
 
+奥地利本周单日新增人数创历史新高，其疫苗接种率为65%，但是疫情方面仍然处于爆发状态，而此政策出台，意味着12岁以上未接种疫苗的国民无法拥有自由活动的权利，其中包括上学的学生，妇女，老人等社会弱势群体。
 
-华盛顿特区——今天下午，因两项违宪的蔑视国会指控有关的罪名被起诉后，战斗的斯蒂芬·K·班农（ Stephen K. Bannon ）从华盛顿特区联邦法院走出，承诺将揭露乔·拜登（ Joe Biden ）、梅里克·加兰（ Merrick Garland ）和南希·佩洛西（ Nancy Pelosi ）的“来自地狱的恶行”  
- 现年 67 岁的班农在他第一次华盛顿特区法院出庭后几个小时走出法院，并用亨特拜登的“来自地狱的硬盘”的幽灵来表达他对针对他的案件的反对态度。
- “我现在告诉你，这对梅里克·加兰、南希·佩洛西和乔·拜登来说是地狱般的恶
- “乔·拜登从海军陆战队一号下来时，在白宫草坪上，他命令梅里克·加兰起诉我” 班农声称，暗指美国从未见过的一起政治驱动的起诉。
- 他补充道：“我们将继续进攻，我们厌倦了防守。”
- 班农律师道格拉斯·舍恩（ Douglas Schoen ）在法院外对记者讲话时，描述了他在美国公民自由联盟 (ACLU) 的漫长职业生涯并坚称：“这是闻所未闻的，强迫一个人放弃行使行政豁免特权，我代表美国公民自由联盟 (ACLU) 20 多年，在这个问题上美国公民自由联盟应该站在我们这一边。”
+众所周知，奥地利人对于冬季运动拥有疯狂的热爱，冬季周六下午的滑雪比赛经常人满为患，此项政策严重破坏了奥地利人日常的生活习惯，与2020年开年中共的居家禁足如出一辙，对国民的身体禁足以及心理禁足有着严重的影响。 而在这种情况之下，奥地利政府表示，未来10天会有民警不定期的进行巡逻，并且对违规者进行罚款，这像极了中共城管的所作所为。
 
+编辑/审核/发稿：Bronx Bombers
+![This image has an empty alt attribute; its file name is 11-Nov-5.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-5.jpg)
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-原文链接：
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-
-> [MISDEMEANOR FROM HELL: Defiant Bannon Tells Biden He Picked The Wrong Target in Fiery Courthouse Speech.](https://thenationalpulse.com/news/misdemeanor-from-hell-defiant-bannon-tells-biden-he-picked-the-wrong-target-in-fiery-courthouse-speech/)
-
-
-
-
-
-
-
-翻译：Nick｜校对：JS709｜编辑& 发布：闪电训练
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

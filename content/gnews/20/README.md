@@ -2,31 +2,35 @@
 ---
 
 
-## 不投喜币投什么？ ——加密货币的市值增长了五倍
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1669439/)
+## 有声| 澳洲上万民众抗议强制接种毒疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1669492/)
 
-撰稿：电流声
-![](https://assets.gnews.org/wp-content/uploads/2021/11/162.jpg)(图片来自网络截图)
-相较于2020年11月的5780亿美元，全球加密货币市场的市值已经增长了五倍。加密货币的市值在一年内狂飙——总市值（万亿美元）3万亿。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/163.jpg)(图片来自网络截图)
-支付业巨头万事达（Mastercard）最近宣布与三家亚洲加密公司合作，将推出加密信用卡，借记卡和预付卡，用户可以将数字资产转换为法定货币。
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月13日，大批澳大利亚人聚集墨尔本游行示威，反对维多利亚州的CCP毒疫苗强制接种。
 
-上周，澳大利亚最大的银行澳大利亚联邦银行（CBA）成为该国第一家允许客户通过其应用程序购买，出售和持有加密资产的银行。摩根大通（JPMorgan Chase）最近开始向其财富管理客户提供加密基金的购买渠道，尽管该行的首席执行官杰米·戴蒙曾经发出公开警告，称比特币“毫无价值”。
+秘密翻译组报道称，当天，有成千上万的澳大利亚示威者聚集在墨尔本中央商务区，和平抗议维州政府新提出的大流行封锁权力和疫苗强制接种。示威者的长队从维多利亚州立图书馆一直延伸到春天大街的议会大厦。
 
-而喜币（Hcoin）具有安全，最前沿的加密技术，还有20%的黄金锚碇；每天最大额度提现十万美元。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_0441.jpg)(图片来自网络截图)
-11月4日，郭文贵先生在盖特上发文说，“未来的37天内，会是爆料革命政治、经济，革命队伍一个新的关键增长期！我们已经到了，让新中国人在每天早上，从一个新的、真的、快乐的，美好的梦中醒来！从健康的、充满激情的、愉悦的……希望中开始新的一天！”
+本次游行的起因是，澳大利亚政府借CCP病毒大流行，对其公民实施了严厉的封锁和疫苗强制措施。维州州长丹尼尔听命于该法案，以前所未有的权力在全州实施严格的封锁。
 
-语言是苍白的，还用选择吗？不投喜币投什么！共产党——你完球蛋了！
+这种无端剥夺人民自由的疫苗专权，让越来越多的澳洲人走上墨尔本街头，他们高喊“推翻法案”的口号，和平表达自己的不满。
 
-（文章仅代表作者观点）
 
-*编辑&发稿：mgjxs*
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+文字版原文：[澳洲上万民众抗议强制接种毒疫苗](https://gnews.org/zh-hans/1665221/)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

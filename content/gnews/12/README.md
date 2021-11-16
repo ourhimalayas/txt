@@ -2,34 +2,50 @@
 ---
 
 
-## 有声|布林肯敦促北京和平解决台海两岸分歧
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1669534/)
+## NBA要求月底完成加强针 否则视同未接种
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669604/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-美东时间11月12日晚，美国国务卿布林肯，在与中共国外交部长王毅的通话中，敦促北京当局，要依据台湾人民的意愿和利益，通过有意义的对话，和平解决台海两岸分歧。
-
-此番对话是在拜登与习近平的视频会议之前发生的。通话中，布林肯强调了美国在台海和平稳定方面的长期利益，并对中共国持续对台湾的军事、外交及经济压力表示关切。
-
-台湾驻美代表萧美琴说，日本和欧洲几个国家都表示，愿意在台湾最困难的时刻协助与支持台湾。因为台湾的表现，已经被认为是世界上一股良善的力量。
-
-过去一年中，美国国会针对台湾的提案有将近40个，创历史新高。说明美国各界对台湾的安全、经济、健康和卫生十分关心，而且非常支持台湾。
+作者：纽约香草山文艺部 – 宁文静
 
 
 
-文字版原文：[布林肯敦促北京和平解决台海两岸分歧](https://gnews.org/zh-hans/1665136/)
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+
+美国国家篮球协会与NBA在11月12号的一份备忘录中说，球员和教练必须“尽快接受加强针的注射”。“尽快”，很大程度是指在12月1号之前。
+
+NBA称，已经有至少8名球员的病毒检测呈阳性。CDC一直认为NBA的社区传播风险很“高”，随着时间的推移，对delta病毒的免疫力也会下降，因此篮球协会要求球员注射加强针，拒绝接受的将一律被视为未完全接种疫苗 。目前约97%的NBA球员接种了中共病毒疫苗。
+
+NBA中，最引人关注的抵制者是布鲁克林的凯里·欧文，他是一名常年入选的全明星队员，却因不愿打疫苗而被球队停赛数周。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.3-3.jpg)
+参考链接：
+[In memo, NBA tells players and coaches to act on booster shots](https://www.nba.com/news/in-memo-nba-tells-players-and-coaches-to-act-on-booster-shots)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：Jack Li文阳
+编辑：AN
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

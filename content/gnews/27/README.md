@@ -2,38 +2,37 @@
 ---
 
 
-## 日本要闻汇编11月16日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1669260/)
+## 洪都拉斯总统不惧中共威胁访台
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669392/)
 
-素材：东京樱花团丨GNEWS组
-![](https://lh3.googleusercontent.com/9c2uaZ7Y11PFqTR14aUIkRgtqbCFbWIIAKUUnMhtp_w4b3nSyXUXz0ocEpWKTiOkOXJCbx-6W_ViNWyTyFrIetodsK40tQP4X1gHjkPc4H5m8koG_Rr-3dXLsEbte0WTP2zQaw7W)[图片来源](https://china.kyodonews.net/news/2021/11/76165e7c9f79.html)
-1、[**日本外相就美中首脑视频会晤表示关注局势**](https://china.kyodonews.net/news/2021/11/76165e7c9f79.html)
+作者：英国喜庄园 – I770775
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月12日至14日，洪都拉斯总统叶南德兹率团访问台湾。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-52.jpg)
+13日，总统蔡英文于总统府会见了叶南德兹伉俪访台团成员。叶南德兹说，他这次率团来台，是要代表洪国政府与人民向中华民国政府表达诚挚的谢意，特别是在中共对台湾人民进行文攻武吓，造成区域情势紧张之际，以具体行动展现两国坚定的友谊。
 
-日本外相林芳正在16日的记者会上，就美国总统拜登同中国国家主席习近平的视频会晤表示“美中关系稳定不仅对美中两国，而且对国际社会也极其重要。日本政府正在关注局势”。关于日本政府的立场，林芳正说：“将在与同盟国美国的牢固信赖关系下，推进各种合作。（日方）会呼吁中方尽到作为大国的责任。”
+今年是台湾跟洪都拉斯建交80周年，双方在经贸、教育及科技等领域达成了进一步深化的双边关系。14日晚间，叶南德兹一行11人搭乘中华航空班机离台，结束了为期3天的访台行程。
 
-2、[**日美就启动修改钢铝关税磋商达成共识**](https://china.kyodonews.net/news/2021/11/386ee9729702.html)
+针对此次洪国访台行动，中共不仅利用官方媒体公然散布所谓“金元外交”等假新闻，而且派出多架军机日夜威胁。
 
-日美两国政府15日就启动磋商以修改美国对从日本进口的钢铁和铝征收的追加关税达成共识。此外还就建立“日美贸易和工业伙伴关系”达成一致，旨在磋商构建半导体、第五代（5G）移动通信系统等的供应链，以及强化尖端技术研发的合作体制。
+参考链接：
+1). [台媒：洪都拉斯总统访台，解放军6架次军机日夜进入台西南空域](https://news.sina.com.cn/c/2021-11-14/doc-iktzscyy5484085.shtml)
+2). [环时抹黑洪国总统访台 外交部：中共官媒造假](https://www.epochtimes.com/gb/21/11/15/n13376107.htm)
 
-3、[**日澳外长会谈就推进四边机制达成一致**](https://china.kyodonews.net/news/2021/11/02b462d36d19.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-日本外相林芳正16日与澳大利亚外长佩恩举行视频会谈，考虑到崛起的中国，双方就通过日美澳印“四边机制”（Quad）推进合作达成一致。
+总编/编辑：木白
+校正/发稿：Fei797
 
-4、[**日本新冠小组会同意放宽行动限制**](https://china.kyodonews.net/news/2021/11/fe5380fdc3d1.html)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-日本政府16日召开新型冠状病毒感染症对策小组会会议，出示放宽作为防疫对策采取的行动限制的方案并获得同意。即使在紧急事态宣言下，也有条件地取消活动和餐饮人数限制。关于出示疫苗接种证明或检测阴性证明的“疫苗和检测均可制度”，会上还商定大纲草案，其中提出不足6岁的学龄前儿童在父母陪伴下无需检测等。该草案最快19日正式敲定。
 
-5、[**厚劳省小组会同意启动疫苗第三剂接种**](https://china.kyodonews.net/news/2021/11/7127d5f75880-121.html)
-
-有关新冠疫苗第三剂追加接种，日本厚生劳动省疫苗小组会15日同意12月1日起在全国各地实施。现阶段将使用美国辉瑞公司生产的疫苗，也允许第三剂时接种与第一、二剂不同的疫苗。虽然接种时间间隔基本上要求在完成第二剂后约8个月以上，但基于疫情等因素，经地方政府判断，也允许作为例外缩短至6个月。
-
-6、 [**日本自卫队与美海军在南海实施反潜训练**](https://china.kyodonews.net/news/2021/11/e0fb598d7b72.html)
-
-日本海上自卫队16日发布消息称，海自的潜艇当天在南海首次与美国海军实施了反潜联合训练。训练了探测潜艇位置、确认攻击程序等高难度内容。据分析，日美意在通过联合训练牵制主张南海主权的中国。
-
-*编辑：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
