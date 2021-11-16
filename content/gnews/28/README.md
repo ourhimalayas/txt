@@ -2,43 +2,49 @@
 ---
 
 
-## 疫苗灾难明年5月份开始
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1669859/)
+## 俄州法案将允许员工就强制疫苗起诉 赔偿超百万美元
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1669892/)
 
-作者:纽约香草山福音部 |Melisa
+**编译：JennyBall**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip09-1.png)一名男子接种流感疫苗的档案照片。 （斯科特·奥尔森/盖蒂图片社）
+俄克拉荷马州参议院最近推出的法案，可能允许政府和私人实体的雇员就与疫苗或其他形式的医疗相关的健康问题，向雇主提起高达 100 万美元的诉讼。
 
-[![](https://media.discordapp.net/attachments/908033143146172416/909632036548014181/s2.png?width=400&amp;height=54)](https://cdn.discordapp.com/attachments/908033143146172416/909632036548014181/s2.png)
+共和党州参议员罗伯·斯坦德里奇(Rob Standridge)在一份声明中表示，俄州的雇员可以就手术或治疗相关的医疗问题起诉雇主，作为就业条件。
 
-疫苗里的刺蛋白会导致人体DNA修复功能丧失，打了中共病毒，疫苗毒针的加强针，几乎都出现了比较严重的反应，包括: 发烧，疼痛，浑身无力，持续2-3天左右，现在医院和研究机构发现很多人在前两针接种后没有什么反应，但是会对加强针的反应很大。
+他说：“**如果一名员工被要求接种疫苗或其他医疗作为就业条件，并导致该人受到伤害，我们的公民需要知道他们将有追索权，这将为他们提供有意义的救济。” “这就是我的立法将要做的**。”
 
-事实上加强针就是看你死得慢，再加强一下死快点，伪装成疫苗的杀人毒针就是为了全球大规模屠杀而准备的，制造杀人的毒药的真正幕后老板，就是全球黑暗集团的主人势力非常庞大，并且可以直接下令世界各国领袖都像变成魔鬼一样强制国民打毒针。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/TTP-side-effects.jpg)图片源自网络
-郭文贵先生直播告诉世界,中共将再次释放新病毒为了杀人和加强制毒针的接种率,快速达到完成黑暗势力的屠杀目的。爆料革命提前爆出真相预警世界,做好防护准备拒绝毒针屠杀，建立新中国联邦国防军奋力反抗，否则这个地球的灾难不知何时才能完结。
+声明继续说，根据参议院第 1106 号法案，如果“雇主故意要求接种疫苗或治疗，而未根据公开的医学检测和文件确认其安全性”，则允许工人提出索赔。
 
-在抗议疫苗暴政的游行队伍中的白人男子手持牌子上写着:’不打疫苗的精子是下一个比特币’，真的太棒了。看来世界各地人们不论肤色，种族都在听文贵先生的大直播，只有不断告诉世界真相，黑暗势力和中共的屠杀手段会一次次的遭遇挫败，虽然恶魔们会更加疯狂更加残忍，但是他们永远也得逞不了,也必输。现在全世界觉醒并知道真相的人们保护好自己和孩子们，爆料革命不断传播真相，拿起你手中的武器，送恶魔下地狱去，胜利是属于爆料革命和世界正义的人。
+斯坦德里奇的声明说，该法案还将包括雇主强制接种中共病毒COVID-19 疫苗，
 
-写于:16/11/2021
+“根据索赔后的责任认定，”他的办公室补充说，“雇主将自动支付 100 万美元的惩罚性赔偿。”
 
-（本文仅代表作者个人观点）
+该法案将在 2022 年立法会议开始时审议，这将影响所有私营和公共部门的雇员和雇主。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1.jpg)
+联邦卫生官员一再表示， COVID-19 疫苗是安全有效的，认为一些研究表明疫苗的好处超过了可能的副作用。
 
-*编辑 /校对*/发稿：Daxia
+今年早些时候，美国食品和药物管理局 (FDA) 以及几个欧洲国家的卫生监管机构表示，**辉瑞 (Pfizer) 和莫德纳mRNA COVID-19 疫苗都与两种形式的心脏炎症有关：心肌炎和心包炎。**与此同时，由于有血栓的报道，联邦卫生官员和欧洲当局在春季暂停了强生公司的疫苗的使用。
 
-**更多资讯，更多关注**
+该州立法者的法案提案，是在拜登政府本月早些时候公布的一项全面的劳工规则之后提出的，该规则要求联邦雇员、拥有联邦合同的企业，以及受雇于医疗保险或医疗补助资助机构的医疗保健工作者接种疫苗。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+该规则还要求拥有 100 名或更多员工的公司的员工，必须接种疫苗或接受常规的 COVID-19 检测。
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+**该规则的两个条款已经面临众多诉讼**，即来自共和党领导的州。**美国第五巡回上诉法院上周暂停了对私营企业的监管，后来在 11 月 12 日以严厉的命令重申了这一规定**。
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+新奥尔良第五巡回上诉法院在其命令中写道：“该授权过于宽泛，”然后补充说，**该规则“引起了严重的宪法问题”，“可能超出了联邦政府的权力”**。
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+**新闻来源**：[theepochtimes.com][Oklahoma Bill Would Allow Employees to Sue for $1 Million Over Mandated Vaccines](https://www.theepochtimes.com/mkt_morningbrief/oklahoma-bill-would-allow-employees-to-sue-for-1-million-over-mandated-vaccines_4105479.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-11-16&amp;mktids=d483a371845bb9b8e7c1698d6ad9e44b&amp;est=n8M224mtVJ1zA8NPEWupWH4xzMoM3Cpdhqu0hzFa1%2B16iVmzhA1k7rYafi6gwfTABwtJNA%3D%3D)
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+* * *
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
