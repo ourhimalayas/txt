@@ -2,25 +2,26 @@
 ---
 
 
-## 有声|中共将在美国西部释放新变种病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1669644/)
+## “新驭民五术”——中国房地产：弱民、疲民
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669701/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+作者：新西兰伊甸农场 亚伦
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月15日，郭先生在盖特视频中指出：“中国每年新造房屋实际真实数字比公布的高一倍，达到每年两千万套。大量新增房屋导致房价无法坚挺下去，加上如今征收的房地产税。这就好比大秦朝让人民去北边修长城，就是为了弱民、疲民，不让民众有时间思考，而反对当权者。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-16-下午11.15.51.png)
+秦《商君书》提出驭民五术，即壹民，弱民，疲民，辱民，贫民；五者若不灵，杀之。
 
+郭先生指出，秦朝修长城是统治的手段，如今没有土地所有权的房地产也是统治的手段：就是要民众疲于奔命，努力工作还房贷，缴只有使用权的房产税。
 
-2021年11月14日，郭文贵先生在大直播中爆料称，近期，中共将会在美国西部释放新变种病毒，并将自西向东蔓延，覆盖到整个美国以及其他西方国家。
+郭先生强调，房地产是金融信心的信号。房地产的崩溃伤害最大的是中共国的金融系统。
 
-据前中共资深生化专家分析，新变种病毒将会加速疫苗灾难的发展进程，同时会加速各国政府疫苗强制政策的推进。目前，全球已有将近一半的人都接种过毒疫苗。新病毒变种将会使这些接种过疫苗的人更易被感染、患上重症甚至死亡。同时，接种过疫苗的患者也将会把新变种病毒更快地传播给未接种的健康人。对于各国政府而言，这也将成为各国加速疫苗强制令的最好借口，包括儿童也不能幸免。
+参考链接：[中国新股上市接连跌破发行价前所未有，多国与中国取消货币互换业务](https://gnews.org/zh-hans/1667813/)
 
-郭先生说，这是中共生化超限战真正灾难的开始，我们将面临人类最黑暗的时刻。灾难无法预测，新中国联邦人只有紧紧地联合在一起，才能保证自己的生命和财产安全。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-文字版原文：[中共将在美国西部释放新变种病毒](https://gnews.org/zh-hans/1666365/)
-
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编：文徬
+编辑：木白
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -28,7 +29,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
