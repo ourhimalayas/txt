@@ -2,52 +2,36 @@
 ---
 
 
-## 福奇和盖茨承认COVID疫苗并不像广告宣传的那样有效
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1670208/)
+## 白宫：1.75T的BBB无法支付，美国人明年需要加税了
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1670290/)
 
-编译： Jenny Ball
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-*在相隔几天的采访中，比尔·盖茨和安东尼·福奇博士承认 ：COVID 疫苗无效，但都表示解决方案是向更多人提供更多的加强剂。*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-13-1.png)法新社通过盖蒂图片社
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-8-5.jpg)图片来源：childrenshealthdefense.org
+拜登总统及其政府成员长期以来一直吹捧BBB（Built Back Better）法案[将花费“zero dollar”](https://nypost.com/2021/09/27/joe-biden-slammed-for-build-back-better-price-claim-lie/)（税收大部分由中产阶级承担）,这笔法案花费是来自增加公司税、为富有的美国人填补税收漏洞,以及其他改革（比如虚拟货币交易）将[创造足够的抵消作用](https://www.whitehouse.gov/briefing-room/statements-releases/2021/10/28/president-biden-announces-the-build-back-better-framework/)。
 
-在最近的两次采访中，大流行思想领袖安东尼·福奇博士和比尔·盖茨，彻底改变了他们对 COVID 疫苗有效性的看法——但却利用他们新发现的担忧让公众接种加强剂疫苗。
+自上周以来，[CBO 已经发布](https://nypost.com/2021/11/10/cbo-releases-estimates-for-1-75t-biden-social-spending-bill/)了对该法案八个部分的[初步估计](https://nypost.com/2021/11/10/cbo-releases-estimates-for-1-75t-biden-social-spending-bill/)。到目前为止，该机构已经发现这八个部分中的一部分——如果包含在最终立法中——将使联邦预算赤字增加 1500 亿美元以上。预计周五（19日）将对完整立法进行评分。 据《泰晤士报》报道，拜登政府高级官员先发制人地声称， CBO 的估计是“过于保守”，其没有适当考虑加强 IRS 执法所筹集到的资金。
 
-上周，在伦敦政策交流中心接受杰里米·亨特采访时，**盖茨承认了包括《柳叶刀》在内的许多人几个月来一直在说的——疫苗无效。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-14-1.png)
 
-此前曾将 mRNA 疫苗的有效性称为“魔法”的盖茨告诉亨特，“我们需要一种新的疫苗生产方式。”
+几个月来，《重建更好法案》(BBB Act)在众议院和参议院都面临着一场艰苦的战斗，而 CBO 的一份负面报告可能会给拜登政府带来更多问题。众议院温和的民主党人在看到评分之前一直对承诺投票支持该法案持谨慎态度，而参议员乔曼钦（D-WV）——上议院的关键一票——其坚持要求[该立法应得到全额支付](https://nypost.com/2021/07/13/joe-manchin-says-both-infrastructure-bills-should-be-paid-for/)。
 
-仅仅几天后，福奇在《纽约时报》的播客中也表达了类似的观点。**福奇说，****COVID ****疫苗对所有年龄组的感染、住院甚至死亡的有效性正在减弱，**以至于加强剂量对每个人来说都变得“必不可少”。
+许多人质疑《重建更好法案》是否真的需要印刷 1.75 万亿美元，[美国商会](https://nypost.com/2021/11/11/chamber-of-commerce-dems-using-gimmicks-to-hide-spending/)上周[指责](https://nypost.com/2021/11/11/chamber-of-commerce-dems-using-gimmicks-to-hide-spending/)民主党人使用会计的“噱头”（小聪明）来隐藏超过 1 万亿美元的支出。
 
-福奇说：“我认为加强针将成为我们应对措施中绝对必要的组成部分，不是奖金，也不是奢侈品，而是该计划的绝对必要组成部分。”
+“我们有 31 年来最高的通货膨胀率，雇主正在努力填补创纪录的职位空缺，而目前的和解法案草案使用小聪明来掩盖，超过 1 万亿美元的支出，”美国商会执行副总裁兼首席政策警官尼尔·布拉德利（Neil Bradley）在一份声明中说。
 
-福奇说，当局正在观察疫苗效力的减少，“涉及所有年龄组”。
+他补充说：“如果美国国会议员在不了解其真实成本或政策对现实世界的影响的情况下，就对这一项价值数万亿美元的税收和支出法案进行投票，那将是最不负责任的行为。”
 
-为了支持更广泛的加强计划，他告诉《泰晤士报》，**疫苗“正在减少效力，才让你看到越来越多的人突破性感染，越来越多的突破性感染的人要住院**。”
+上个月，[宾夕法尼亚大学沃顿商学院进行的](https://nypost.com/2021/10/29/biden-1-75t-bills-taxes-pay-for-less-than-wh-claims-study/)一项分析发现，用于抵消 1.75 万亿美元支出的税收将比支付账单所需的净额度，少约 4700 亿美元。  白宫估计，新的和更高的征税款项所筹集到是 1.995 万亿美元，但沃顿商学院的预算模型估计它们只能带来 1.527 万亿美元——比白宫数字低 4680 亿美元，比法案的最高成本少 2230 亿美元。
 
-今天在英国，首相鲍里斯·约翰逊同样谈到扩大英国的 COVID 加强针计划。
-
-“接种三针或接种加强剂将成为一个重要的事实……我们将不得不调整我们对全面接种疫苗的概念，”他告诉英国人。
-
-主流媒体也在为未知数量的额外 COVID 疫苗做好准备。周日，彭博社报道说：“事实证明，‘加强剂’这个词有点用词不当，目前还不知道达到最大功效的正确注射次数。”
-
-（**点评：也就是说疫苗将是未来维持生命的必须？大制药商再也不用发愁未来源源不断的进账了！）**
-
-如果盖茨和福奇协调他们最新的 COVID 疫苗信息，通过加强计划获得更广泛采用 COVID 疫苗的同意，这将不是两人第一次在疫苗方面密切合作。
-
-小罗伯特·肯尼迪 (Robert F. Kennedy, Jr.) 即将出版的《真正的安东尼·福奇》一书探讨了精心构建的 药企－福奇－盖茨“Pharma-Fauci-Gates 联盟”，并详细介绍了“盖茨和福奇在整个封锁期间几乎每天都在进行沟通，并几乎对每个COVID-19 对策双方做出决定。”
-
-在此处收听盖茨关于 COVID 疫苗无效的最新消息（时间点：28:00）：[www.youtube.com](https://www.youtube.com/watch?v=CZplF4qdwII&amp;t=8s)
-
-**参考资料：**[childrensheal[thdefense.org\]Fauci, Gates Admit COVID Vaccines Don’t Work as Advertised](https://childrenshealthdefense.org/defender/jeremy-hunt-fauci-gates-covid-vaccines-boosters/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=bc159a5c-a19e-4e36-abe4-febd89cd79dd)
+新闻来源：[nypost.com] [WH warns CBO won’t say $1.75T BBB paid for, tells Dems to ‘disregard’: report](https://nypost.com/2021/11/16/white-house-warns-cbo-wont-rule-spending-bill-paid-for-report/) | 发布时间：2021年11月16日|封面图来源：盖蒂图片社
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
+*发稿：信心的选择*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
 
  
 

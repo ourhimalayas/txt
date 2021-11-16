@@ -2,22 +2,36 @@
 ---
 
 
-## 一语成谶——北上广深10月房价下跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1668336/)
+## 白宫、CNN与芝麻街合作，向孩子们兜售COVID疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1668410/)
 
-#### 撰稿：东京樱花团/墨然
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4444.png)图片来源网络
-11月15日，中共国国家统计局公布了2021年10月份70个大中城市商品住宅销售价格变动情况。统计数据显示，10月份，70个大中城市商品住宅销售价格环比总体延续略降态势，同比涨幅继续回落。此外，房价下跌的城市数量有所增加。环比来看，据测算，10月份一线城市新建商品住宅销售价格环比持平。二线城市新建商品住宅销售价格环比由9月持平转为下降0.2%；二手住宅销售价格环比下降0.3%，降幅比9月扩大0.2个百分点。三线城市新建商品住宅销售价格和二手住宅销售价格环比均下降0.3%，降幅比9月均扩大0.1个百分点。
+作者：纽约香草山福音部 – lilian89
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月8日，美国有线电视新闻网（CNN）播出了一个特别节目：芝麻街虚拟市政厅，由Sanjay Gupta博士主持，邀请备受欢迎的卡通人物ELMO和 Big Bird，一起哄骗孩子们去接种COVID疫苗。
 
-中共国房地产泡沫破裂是一个不可逆转的趋势，当前的北上广深房地产价格下跌就是一个信号。北上广深作为中共国一线城市，其房价的变动情况可直接反映出整体的房地产市场情况。纵观三线、四线小城，在过去的几个月，房地产大幅度下跌，甚至到达了无人问津的地步。近三个月，从中共公布的数据来看，一线城市的房价也在逐步下滑。从当前整体的经济形势来看，公布的数据显然存在不真实的情况。相信在不久的将来，房地产市场面临的风险会越来越大，直到无可控制的地步。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-12.jpeg)
 
-新闻来源：
+辉瑞公司正试图告诉孩童们，他们的实验性mRNA covid疫苗注射液，将使小朋友们成为 “超级英雄 ”，并赋予他们超能力。
 
-[11.16 北上广深全降了！10月二手房全国性降温](https://3g.163.com/news/article/GOU0L5D30007871T.html)
+美国疾病预防控制中心，上周根据一项 “紧急使用授权”，向儿童灌输辉瑞公司的实验性mRNA疫苗注射液。两周前，美国食品和药物管理局疫苗顾问小组成员埃里克-鲁宾博士，在签署为5至11岁儿童注射疫苗令前，也声称，“除非我们开始注射，否则我们永远不会了解这种疫苗有多安全”。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+参考链接：
+1）[White House, CNN Work With Sesame Street to Shill Covid Vax to Kids](https://www.informationliberation.com/?id=62655)
+2）[White House, CNN work with Sesame Street to shill COVID vax to kids](https://dreddymd.com/2021/11/16/white-house-cnn-work-with-sesame-street-to-shill-covid-vax-to-kids/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：文特
+编辑：Kathy文艺
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

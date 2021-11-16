@@ -2,22 +2,39 @@
 ---
 
 
-## 拜习会谈：中共警告美国不要在台湾“玩火”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1670147/)
+## 列举世界范围内的疫苗预防失败的地区
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1670227/)
 
-撰稿：西枫westca
+**【简评】事实证明，疫苗接种率高的地区，病毒爆发更加严重！**
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-7.jpg)图片来源：法新社
-在中美两国日益紧张的局势下，备受关注的拜登、习近平视频会在11月16日举行，双方就中美关系发展、经济问题、人权问题、气候变化、台海等问题进行了沟通和交流，但并未取得突破性共识。反而在会后的媒体会上，中共外交部副外长谢锋对台海问题表示：“维护国家统一和领土完整是全体中国人民的共同意志和坚定决心，在这个关系中国主权和领土完整的问题上，中国没有妥协的空间。”
+**据《零对冲》作者：TYLER DURDEN，2021年11月14日报道：**
+**从新加坡到荷兰再到冰岛到佛蒙特州。而且很快就席卷到美国的整个北半部……**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/aopu4-caunm.jpg)**图片取自原文**
+事情不应该是这样的。
+新加坡的死亡人数创下新高（85%的人口完全接种了疫苗，不是成年人，是全部人），如下图所示。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/bhu.jpg)资料来源：彭博社。
+**荷兰进行了新封锁（70%完全接种疫苗）**：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/23-unknown-3.png)
+**而在冰岛（76%完全接种了疫苗）：**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/@image0.jpg)
+由于佛蒙特州，美国接种疫苗最多的州（71%的人完全接种了疫苗）的病例数打破了高点：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/zyi.jpg)
+病毒就是病毒。
+而且看起来越来越像我们越是努力不让它感染病毒，反弹就越严重。
 
-中国官方媒体《环球时报》称，习近平将最近的紧张局势归咎于“台湾当局一再企图‘依美谋独’，而一些美国人有意搞‘以台制华’，这一趋势是在玩火，而玩火者必自焚。同时谢峰还强调，“美方应当遵守中美间达成的正式双边协议和联合国大会以压倒性多数通过的正式决议，正视世界上绝大多数国家坚持一个中国原则的事实和意志，改弦易辙，用行动取信于中国人民、取信于国际社会。”
+**原文连接：**[https://www.zerohedge.com/covid-19/worldwide-vaccine-failure](https://www.zerohedge.com/covid-19/worldwide-vaccine-failure)
 
-中美双方对此次会议的诠释不同，从美方的报道看拜登的说法，“作为中美两国领导人，我们的责任是确保两国之间的竞争不会转向冲突，无论是有意还是无意，只是简单、直接的竞争。” 拜登还说“在我们在分歧的地方保持清晰和诚实，并在我们的利益相交的地方共同努力”。
+**（本文评论仅代表个人观点）**
 
-中共官媒在任何问题上，都是无视事实、自说自话，这次中美高层会谈，会让世界更加看清，与中共为谋会带来什么后果。中共一日不倒，世界将无安宁之时。
+翻译：洛杉矶盘古农场- TrueSky
+校对：洛杉矶盘古农场-轰炸机
+评论：洛杉矶盘古农场 – 轰炸机
+编辑：洛杉矶盘古农场 – 柯镇恶
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-**新闻来源：**[http://www.chinanews.com/gn/2021/11-16/9610511.shtml](http://www.chinanews.com/gn/2021/11-16/9610511.shtml)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
