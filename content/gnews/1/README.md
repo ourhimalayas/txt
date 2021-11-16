@@ -2,20 +2,23 @@
 ---
 
 
-## 有声|全球最大财经新闻社——彭博社为喜币“造势”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1669356/)
+## 有声| 19岁女孩被迫接种疫苗后出现严重健康问题
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1669465/)
 
-配音：香草山媒体部 – Gtv abeilles（蜜蜂）
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月13日，美国一家媒体发布了一位19岁女孩被迫接种疫苗后躺在医院的视频。
 
-秘翻组消息：全球最大的财经新闻社《彭博社》在11月12日，为上市11天的喜币做了全方面、大篇幅的报道，为扩大喜币在世界范围的影响力“造势”助攻。 报道称，喜币在不到两周的时间里，已经获得了270亿美元的估值，其价格从发行以来已经增长了270倍。 报道将“HCoin to the Moon”这首歌描述成一个集结号，称其是加密货币交易者的指导性希望，持有喜币即意味着价格的巨大飙升。 报道还援引喜交所首席执行官杰西·布朗先生的话，称喜交所已经注册了2万多个账户，郭文贵先生“正在利用他的平台，让人们参与加密货币和财务自由”。 尽管彭博社的报道语气怪异，想暗示喜币可能是骗局，但它并不能抹杀喜币的成功上市和巨大的升值空间，反而会让更多清醒的人因此备受鼓舞而加入喜币的购买队伍。
+从视频中我们得知，这个女孩原本身体健康、充满活力。但在疫苗强制令发布以后，到处都有一种“不接种疫苗，就没有工作”的气氛，不接种疫苗的人被很多公共场合拒绝进入，并被很多人指责为“自私”。为了保住工作，不被视为异类，这个女孩决定碰碰运气，于是在10月份接种了辉瑞疫苗。
 
+但是接种疫苗后，女孩感觉自己像跑完马拉松一样非常疲惫，医生则在她的腿部和肺部发现了大量的血块。目前，她不得不仍然在医院里接受治疗，正常生活完全被毁。
 
-原文链接：[全球最大财经新闻社——彭博社为喜币“造势“](https://gnews.org/zh-hans/1663879/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+文字版原文：[19岁女孩被迫接种疫苗后出现严重健康问题](https://gnews.org/zh-hans/1665188/)
 
 音频处理：喜山必胜Maverick
-发稿：Daxia
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -23,7 +26,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
