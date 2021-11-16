@@ -2,21 +2,30 @@
 ---
 
 
-## 斯蒂夫·班农撕破民主党拜登及佩洛西的嘴脸：这是来自地狱的指控
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1668378/)
+## 相信共产党，走进火葬场
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1668383/)
 
-**翻译：  Evalu**
+#### 撰稿：东京樱花团/深藏不露
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11111-4.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fmedia.gettr.com%2Fgroup29%2Fgetter%2F2021%2F09%2F10%2F10%2F3e799a5a-b10a-9452-51a3-b629ad76348f%2F7559d21a924f40b25e0c9e50d5949cb8_500x0.jpg&amp;imgrefurl=https%3A%2F%2Fgettr.com%2Fhashtag%2F%2523%25E5%2595%2586%25E9%259E%2585%25E9%25A9%25AD%25E6%25B0%2591%25E4%25BA%2594%25E6%259C%25AF&amp;tbnid=w3w-5XsqxwhAuM&amp;vet=12ahUKEwigvpSnjZz0AhWDA94KHXvyCy0QMygbegUIARDEAQ..i&amp;docid=lyKzJGg9ZhUrLM&amp;w=500&amp;h=270&amp;q=%E9%A9%AD%E6%B0%91%E4%BA%94%E6%9C%AF&amp;ved=2ahUKEwigvpSnjZz0AhWDA94KHXvyCy0QMygbegUIARDEAQ)
+中共自1949年建政以来，疯狂的用商鞅五术来统驭着可怜的中国老百姓，对中国老百姓不断进行贫民、疲民、愚民、辱民、虐民政策，使中国老百姓始终生活在贫困线上！
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-16-131112.jpg)           图片来源： http://www.hz-luo.net/
-英国每日邮报11月15日报道，前总统川普的战略顾问斯蒂夫·班农在周一下午就被诉蔑视国会罪来到法院， 并在门口猛烈抨击乔·拜登，承诺会为此而战斗。他对等在那里的记者们说：“我绝不会退缩，这次他们找错了人。”
+通过高房价、高成本的教育、医疗、养老等负担不断的让老百姓处于疲惫不堪中；通过不断的对老百姓进行愚民洗脑教育，控制着他们的思想；通过制造各种社会矛盾，让底层老百姓相互争斗，而坐收渔翁之利！老百姓稍有反抗，就进行强力镇压，使老百姓都患上斯德哥尔摩综合症！
 
-67岁的班农是第一个面临蔑视国会的指控，该指控是关于未出席调查1月6日国会骚乱的众议院调查委员会听证会，他面临两项针对国会传票拒绝回应的轻罪指控。他在首次来到法院后说：“这是梅域·加兰，南希·佩洛西和乔·拜登的来自地狱的指控，乔·拜登从海洋一号下来后来到白宫草坪上命令梅域·加兰来起诉我，我们将继续冒犯，我们厌烦了总是处于防守地位。”
+相信共产党，走进火葬场！中共通过不断压榨愚昧无知的中国老百姓来维系着邪恶政权，中共对中国老百姓的承诺什么时候靠的住过？中共源源不断的对非洲进行各项援助，免费援助非洲大学生来中共读书，还给每位非洲大学生配女学伴，女学伴怀孕后还保送其上研究生，何其荒唐！真是宁与外贼，不予家奴！驭民之术无所不用其极！现在，中共免费给中国老百姓打疫苗，不打还不行！愚昧的中国老百姓在中共的洗脑下争先恐后的去打免费毒疫苗，少量的觉醒者也被中共利用各种恐吓手段被迫打了疫苗，更有甚者，中共正在将邪恶之手伸向了我们可爱的孩子！
 
-班农在不需交保释金的情况下获得释放，但必须每周报告并上交他的护照。他周四要回到法庭。他通过班农战斗室平台直播去法院，他在社交媒体盖特上说：“我不希望任何人对我们所做的事转移视线。我们让非裔和西班牙裔美国人站在我们这一边，我们每天都在打击拜登的独裁统治，我希望你们保持关注，不要偏离。”
+中国老百姓该醒醒了，放弃对中共的幻想，团结起来，站立起来，干掉中共这个邪恶政权，让中共在这个邪恶势力在地球上永远消失！
 
-**新闻来源**： [Biden ordered Garland to prosecute me and this will be the misdemeanor from hell’: Steve Bannon tears into Democrats and Nancy Pelosi as he is RELEASED without bail after appearing in court for defying his January 6 subpoena](https://www.dailymail.co.uk/news/article-10204023/Steve-Bannon-arrives-Washington-court-indicted-refusing-comply-subpoena.html)
+Take down the CCP！
 
+信息来源：
+
+[https://gettr.com/post/pgvfz981f5](https://gettr.com/post/pgvfz981f5)
+
+[https://gettr.com/post/pguz2y32de](https://gettr.com/post/pguz2y32de)
+
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
