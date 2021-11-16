@@ -2,35 +2,35 @@
 ---
 
 
-## 班农先生：我永远不会退缩
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669771/)
+## 日本人发声揭露新冠病毒及其疫苗的全球大骗局
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1669781/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美东时间11月15日下午，班农在结束了国会的调查后，接受媒体采访。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-16-下午11.41.02.png)
-班农说：拜登下令梅里克起诉我，对我无端调查，这是梅里克、佩洛西和拜登犯下的地狱般的罪行；现在，我们已经厌倦了防守，我们要顺势而为，就此展开攻势。
+**作者：**88jj
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片168874.png)图片来源：网络
+为了尽快结束这场历史上规模最大、最严重的全球性的生物恐怖主义，我们将向尽可能多的人讲述新冠病毒和毒疫苗骗局的真相。知道真相的人越多，他们的计划执行效果就越糟糕。
 
-班农还对他的支持者说，我们正在做的，是对抗非法的拜登政权，永远不要让这里的噪音掩盖了真正的信息。我们每天都要重拳出击，在盖特上发出我们的声音。美国的觉醒者应该认清中共的本质，要坚决和中国老百姓站在一起，消灭邪恶的中国共产党。
+这一次，他们建立的全球恐怖主义的标志是，全世界各国政府、医疗机构、医生、科学家、政治家、公务员、媒体等都联手勾结实施全球生物恐怖主义。他们的目标是全球70 亿人，如此大规模的恐怖主义活动是闻所未闻的。
 
-参考链接：
-1）[https://twitter.com/newsmax/status/1460340206574448661?s=21](https://twitter.com/newsmax/status/1460340206574448661?s=21)
-2）[https://gettr.com/post/ph00mp2aff](https://gettr.com/post/ph00mp2aff)
-3）[https://gettr.com/post/ph07vs2b12](https://gettr.com/post/ph07vs2b12)
+但我认为这些已经唤醒了我们许多人，因为他们的谎言和作恶的方式已经曝光。更何况，就算打了疫苗，对比那些警告疫苗有危险不应该接种的人和鼓吹疫苗安全有效提倡接种疫苗的人，就可以看出谁参与了全球生物恐怖主义。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+世界各地的政府和医生绝大多数都参与了生物恐怖主义，一起做着完全相同的事情，例如隐瞒新冠大流行、PCR测试骗局、篡改数据、夸大报道新冠病毒的危害、编造死亡人数、疫苗骗局、强制疫苗接种、封锁、强制戴口罩、社交距离、强制疫苗护照等等。在老年之家和医院等设施对老年患者进行群组灭绝。
 
-总编：Ivy001
-编辑：Lakeman (文仁)
-校正/发稿：呼吸的雾霾（文小呼吸）
+世界各国真的是同步进行的。那些不知道这一点的人们在继续受骗的人，将以他们自身为代价。我要做的是让你们早点醒悟过来。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在去年美国总统大选的时候，他们犯下了如此大规模的选举欺诈行为，很快就被很多人发现了。
+
+再次，生物恐怖主义是如此巨大和强大，以致于世界各地的普通人都感到震惊。他们的方法过于激进和无能。在这种时候，总会有吹哨人出来的。因此，即使是稍微有点判断力的人，也会意识到他们的作恶方式和谎言。
+
+我估计，参与这场全球生物恐怖主义的人最终要么被判有罪（被处决），要么失去社会公信力，彻底失去地位和财富。
+
+编辑：卢卡斯
+
+发布：Lily
+
+20211116
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
