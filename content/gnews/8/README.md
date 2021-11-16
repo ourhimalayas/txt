@@ -2,30 +2,33 @@
 ---
 
 
-## 有声|蓬佩奥在世界知识论坛上的重要演讲
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1667697/)
+## 美将军敦促拜登向中共传递：“有侵略必遭反击”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1667715/)
 
-配音：香草山美食部 – 玫瑰园
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-10月25日，美国前国务卿蓬佩奥先生在世界知识论坛上发表了重要演讲。在演讲中，他提到了当前我们所面临的世界秩序的三次断裂：第一，中共病毒的传播和中国共产党的伪装。这其中包括美国的反叛和与中国共产党的勾兑。中共长期掩盖真相和破坏世界秩序——中共收买控制世卫组织，掩盖疫情真相，武毒至今仍在运转，继续给人类带来灾难；第二次断裂是中共的“一带一路”倡议，它是一种新形式的帝国主义。通过该倡议，中共收买了60个国家，大肆复制腐败贷款，通过这些贷款中隐藏的抵押和条约，将对方变成债务国，直至占有其全部资产；第三次断裂表现在中共公开表示要取代美国成为世界上最重要的力量。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/G-2.jpg)foxnews.com
+《福克斯新闻》在拜习虚拟会晤前发表文章，题目是，“基恩（Keane）将军敦促拜登向中共发出信息，他们的侵略行为将受到对抗和反击”。文章副标题称，拜登总统和中共主席习近平星期一（11月15日）召开虚拟峰会讨论紧张局势。
 
-蓬佩奥还提到，中共并没有应对疫情，反而加速断裂，撕毁《中英联合声明》，把香港归为己有。中（共）国违反了所有贸易协议，并一直从以美国为代表的世界各国偷窃知识产权，是盗国贼控制的国家，
+全文如下：
 
-蓬佩奥正在为了让世界了解中共的邪恶本质而不懈努力。
+前陆军副参谋长杰克·基恩（Jack Keane）将军在星期一（11月15日）的“美国新闻室”（ America’s Newsroom）节目中说，美国需要在即将与习主席举行的峰会上向中共传达一个信息，即他们的侵略将面临对抗。
 
-文字版原文：[蓬佩奥在世界知识论坛上的重要演讲](https://gnews.org/zh-hans/1661876/)
+杰克·基恩：……中共的侵略，世界上迅速发展的军事力量，太平洋地区的力量平衡已经在军事上转移到了他们身上，他们的网络战行动是任何国家破坏另一个国家的公民社会，并窃取其技术和信息的最大规模的行动。
 
-音频处理：喜山必胜Maverick
+……
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+显然，美国必须予以回击，并明确地告诉习主席，我们将继续反击和对抗这种侵略，仅仅竞争是不够的，我们不能像奥巴马多年前在南中国海扩张和网络安全问题那样，听信习主席的任何承诺。结果呢？尽管习主席说，是的，他会考虑到这点，他会抑制他的行为——这是我的话，而不是他的话。他做了什么？他反而变本加厉……我们要做的是观察他们的所作所为……我们需要做的是确保这不会导致军事对抗和冲突。这就是中共当面一套背地里又一套的行为。
+
+（原文完）
+
+文贵先生早就告诫过西方，只要你与中共坐下来谈，你就输了，他们会承诺你要求的一切，到头来什么也不会做。迄今为止，那些以中共作出的承诺来影响美国决策的官员、政客，不是有通共嫌疑，就是智商不够，然而，这样的人在美国大有所在，的确需要基恩将军这样的声音出来。
+
+原文链接：
+
+[https://www.foxnews.com/media/gen-keane-urges-us-to-send-message-to-china-that-their-aggression-will-be-confronted-countered](https://www.foxnews.com/media/gen-keane-urges-us-to-send-message-to-china-that-their-aggression-will-be-confronted-countered)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

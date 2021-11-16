@@ -2,133 +2,36 @@
 ---
 
 
-## 喜美元未来绝对是和法币挂钩的数字货币之王
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1667528/)
+## 有声|变态防疫加房产暴雷，中共经济危机四伏
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1667567/)
 
-[https://gtv.org/video/id=6191cfb218270250810564a9](https://gtv.org/video/id=6191cfb218270250810564a9)
+配音：香草山美食部 – 玫瑰园
 
-我相信喜美元未来他是绝对的和法币挂钩的数字货币当中之王
-Yo confío que el HDO es definitivamente el rey de la moneda digital vinculada a la moneda legal en el futuro
+相关数据显示，本就靠假数据支撑的中共国经济正面临巨大的风险。
 
-为什么, 它有3个谁都无法代替的因素
-¿ Por qué? Esto tiene tres razones irreemplazables
+有投资机构称，2022年，中共国经济的增速将从今年的7.6%放缓至5.4%，其风险主要来自中共病毒感染“清零政策”的不确定性，尤其是国内限制、物价飙涨，以及房地产持续低迷，相关金融暴雷事件的频发。
 
-它毕竟有十几亿中国人的这种市场的潜力
-Después de todo, tiene el potencial de este tipo de mercado de mil millones de chinos
+当全球越来越多的国家转为与病毒共存的模式，中共国仍在实施严格的行业、人员封锁，这种突发的不确定性极大地影响了生产者和消费者的经济活动。
 
-可能性就是灭了共和不灭共
-La posibilidad es eliminar o no al Partido Comunista
+有数据显示，中共国10月生产者物价指数（PPI）同比跳涨至13.5%，追平1995年7月水平；10月居民消费价格指数（CPI）同比上涨1.5%，是上个月的两倍。
 
-这是大的使用者
-Este es el usuario más grande
+以恒大暴雷为起点的中共房地产行业危机持续蔓延，富力、融创、合生创展等各大房地产开发商相继面临债务违约风险，为中共经济埋下巨大隐患。
 
-我们战友这个规模在这摆着呢
-Es la escala de nuestros compañeros luchadores
+有分析指出，如果中共国内‘清零’政策继续进行，或房地产活动出现更大程度的持续下跌，到2022年，其GDP增速可能会降至4%。
 
-我相信战友未来会突破千万的, 突破一千万
-Yo confío que en un futuro los compañeros luchadores sobrepasarán los diez millones
+文字版原文：[变态防疫加房产暴雷，中共经济危机四伏](https://gnews.org/zh-hans/1662256/)
 
-很快
-Pronto
+音频处理：喜山必胜Maverick
 
-你看到盖特人的增长
-Verás el crecimiento de usuarios en GETTR
-
-未来两到三个月
-En los próximos dos a tres meses
-
-你会看到咱们这个喜连储的增长
-Podrás ver el crecimiento de nuestra Reserva Federal de Himalaya
-
-那这个市场在这摆着
-Y dejar este mercado aquí
-
-没有人可以替代
-Nadie lo reemplazará
-
-第二个就是这个喜美元跟这个整个喜连储的这个结构
-La segunda razón es el HDO con la estructura de toda la Reserva Federal de Himalaya
-
-交易所的整个挂钩
-Toda la vinculación del intercambio
-
-我觉得天下没有几个
-Yo digo que no hay casi nadie en este mundo
-
-没有几个
-Casi ninguno
-
-到目前还没看见
-Hasta ahora no he visto
-
-即使有它也跟不上我们的
-Y si hay, tampoco seguirá nuestro ritmo
-
-我们是原创者
-Somos el creador original
-
-第三个, 我们相信, 我们进来的大的机构投资者
-Y la tercera razón, nosotros confiamos en las grandes instituciones de inversores que entrarán
-
-每个人都是影响着世界命运的经济体
-Cada persona es la influencia del cuerpo económico del destino de este mundo
-
-也不会有几个, 你看到刚才所有的那些所谓这coinbase
-Tampoco habrá algunos, ves todo el llamado coinbase en este momento
-
-Kraken这些大多数
-Y Kraken, la mayorá de estos
-
-几乎没有一个像我们这个级别的投资
-Casi ninguno es del nivel de inversión como el de nosotros
-
-就没有, 这三条
-No lo hay, estas tres razones
-
-它决定了喜美元它在全球
-Determina al HDO en el mundo
-
-它一定是最大的流通的
-La circulación más grande
-
-所有货币, 买金融产品
-Todas las monedas, compra de productos financieros
-
-你买啥都能买
-Puedes comprar cualquier cosa
-
-只要是能买的东西你都能买
-Puedes comprar cualquier cosa que pueda ser comprado
-
-我相信未来一定会做到
-Confío que en un futuro puede llegar a ser así
-
-但是时间和方式
-Pero en cuánto tiempo o de qué manera
-
-这个我没法确定, 最终一定会达到的
-Esto no lo puedo asegurar, sin embargo, se logrará finalmente
-
-**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1457921740592406532?s=24](https://twitter.com/se1y7cblljselva/status/1457921740592406532?s=24)
-
-日期：11/12/2021
-原视频标题：喜美元未来绝对是和法币挂钩的数字货币之王
-El HDO es definitivamente el rey de la moneda digital vinculada a la moneda legal en el futuro
-原视频日期：11/09/2021
-任务编号：KC252（2826）
-视频时间段：0:00-1:37
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

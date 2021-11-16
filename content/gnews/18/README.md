@@ -2,26 +2,26 @@
 ---
 
 
-## 有声|花旗集团前首席执行官表示：所有大银行很快就会进行加密交易
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1667586/)
+## 疫情迫使中共政府再次封锁大学校园
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1667618/)
 
-配音：香草山美食部 – 玫瑰园
+采编：青青         编译撰稿：苦尽甜来 (文来）
 
-今日，前花旗集团首席执行官维克拉姆·潘迪特，在新加坡举行的技术会议上预测，世界所有主要银行都将在“一到三年内”开始加密交易。 他在接受彭博社记者采访时表示，为了能继续主导银行和金融交易领域，大型银行业不愿意接受加密货币的情况可能很快就会被扭转。 潘迪特在2007年至2012年期间领导花旗集团，现在出任他共同创立的The Orogen Group的董事长，他对彭博社表示，每家大型银行或证券公司，都会积极思考‘我是否也应该交易和出售加密货币资产’。这种情况已经在许多地方发生。 据Markets Insider首次报道，上周，澳大利亚最大的银行联邦银行宣布，它将很快为其650万客户提供交易加密货币的机会，而高盛、富国银行和富达一直在聘请大量加密货币专家。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-37.jpg)图片来源：CTV
 
-文字版原文：[花旗集团前首席执行官表示：所有大银行很快就会进行加密交易](https://gnews.org/zh-hans/1663842/)
 
-音频处理：喜山必胜Maverick
+据加拿大媒体【CTV新闻】11月15日报道，在中共国东北部城市大连近期再次爆发“新冠病毒”疫情后，当局已将近 1,500 名大学生限制在校园宿舍内不得外出，并开始对这些学生进行远程授课措施。
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“实施强制封锁”是中共政府对所谓“疫情零容忍态度”的最新例证。而不断采取武断隔离、强制性检测和旅行限制已成为大多数中国人在疫情持续爆发中的生活新常态。目前，中共国的“新冠病毒”疫苗接种率是世界最高之一。而且随着冬季来临，当局已开始进行该疫苗加强剂的注射推广。
+
+报道还指出，除了以上新的隔离措施外，从本月17日开始，北京市政府将要求所有乘坐飞机、火车、公共汽车或汽车从中共国其他地区抵达该市的人，都必须在过去的48小时之内进行该病毒的阴性结果检测。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+[原文链接：](https://www.ctvnews.ca/world/new-outbreak-prompts-china-to-lock-down-university-campus-1.5666158)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
