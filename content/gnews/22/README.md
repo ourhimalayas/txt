@@ -2,26 +2,30 @@
 ---
 
 
-## “病毒猛于二手烟”加拿大首席卫生官再次语惊四座
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1667674/)
+## 有声|蓬佩奥在世界知识论坛上的重要演讲
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1667697/)
 
-原文采编：文莱 编译撰稿：文所未闻
+配音：香草山美食部 – 玫瑰园
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-41-edited.jpg)图片来源：REBELS
+10月25日，美国前国务卿蓬佩奥先生在世界知识论坛上发表了重要演讲。在演讲中，他提到了当前我们所面临的世界秩序的三次断裂：第一，中共病毒的传播和中国共产党的伪装。这其中包括美国的反叛和与中国共产党的勾兑。中共长期掩盖真相和破坏世界秩序——中共收买控制世卫组织，掩盖疫情真相，武毒至今仍在运转，继续给人类带来灾难；第二次断裂是中共的“一带一路”倡议，它是一种新形式的帝国主义。通过该倡议，中共收买了60个国家，大肆复制腐败贷款，通过这些贷款中隐藏的抵押和条约，将对方变成债务国，直至占有其全部资产；第三次断裂表现在中共公开表示要取代美国成为世界上最重要的力量。
 
+蓬佩奥还提到，中共并没有应对疫情，反而加速断裂，撕毁《中英联合声明》，把香港归为己有。中（共）国违反了所有贸易协议，并一直从以美国为代表的世界各国偷窃知识产权，是盗国贼控制的国家，
 
-据加拿大自媒体《反叛新闻》11月15日报道，加拿大首席公共卫生官谭咏诗当天表示，即使完全接种了“新冠病毒”疫苗，在圣诞节期间她也不建议在室内唱圣诞颂歌，并同时敦促那些在冬天参加室内活动的人应该打开窗户。
+蓬佩奥正在为了让世界了解中共的邪恶本质而不懈努力。
 
-谭咏诗对媒体称，“新冠病毒”就如同人们抽的二手烟，认为该病毒像烟雾一样，悬浮在空气中的细小气溶胶内。并因此建议公众即使在寒冷的冬季也应该在室内通风不理想的情况下，开窗以减少被感染风险。同时，带上合体高质量的口罩也至关重要。
+文字版原文：[蓬佩奥在世界知识论坛上的重要演讲](https://gnews.org/zh-hans/1661876/)
 
-该国副首席公共卫生官霍华德博士也在本次新闻发布会上，一致附和了谭咏诗医生以上的建议。
+音频处理：喜山必胜Maverick
 
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://www.rebelnews.com/christmas_caroling_is_unsafe_says_dr_theresa_tam)
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,52 +2,43 @@
 ---
 
 
-## 英国研究显示，儿童及青少年感染中共病毒后无实际死亡风险
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1667507/)
+## 2021/11/15 文贵先生盖特精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1667606/)
 
-作者：纽约香草山农场 – 四季
+![](https://assets.gnews.org/wp-content/uploads/2021/11/111519.png)[盖特直播链接](https://gettr.com/post/pgznqk78f7)
+昨天下午绝大多数事情都是关于国内新股上市破发，前所未有。今天星期一，都在场外做大批交易，卖掉手中大量在美国的中概股和香港的“中国红股”。很多国家都在想尽办法把当时认购的人民币的换汇，取消所有的国家与国家之间的互换货币额度。六中全会才刚过，这些事情太吓人呀。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+这周世界经济应该会感受到冷度，今天是习拜会上场，同一时间班农先生进了FBI大楼，这都是刻意安排。
 
+共产党在国内告诉老百姓：“习一神的力量多大，无处不在，大地在颤抖。美国在寒冷中没有油烧，没有饭吃，股票要崩塌。”但在美国没有感受到一点共党所说的。
 
+喜交所的喜币蹭蹭上涨，但共产党的经济完了。当国与国做大量贸易, 做本币互换的业务，主要是减少对美元的依赖，中间的货币交易的成本和两国之间的税收的问题；如果本币互换减少就是贸易减少了，也就是对你的信心减少了。
 
+现在国内特别是黑龙江，辽宁，吉林，河北，河南，湖北，山西，陕西这些中北区的企业，现在都面临着发不出工资。就像八几年、九十年代初国有企业搞改革开放，那时到了冬天各企业都发不出工资，就发棉袄，发产品。现在发什么？
 
+现在官方所谓每年造1千200万套房子，事实是2千万套，还要征收房地产说，老百姓怎样活得下去？像当年的大秦朝把人都赶去修长城，这都是皇家的借口，就是弱民、贫民、苦民的一个统治手段。现在这些房屋没有房地权和永久产权，不值得去交税，中共就是要老百姓欠债、累死。这是明显的骗局，就是弱民、贫民政策。
 
-Gateway Pundit网站11月15日报道，英国最新的一项大规模研究再次证实，儿童和青少年在感染中共病毒后实际上没有任何死亡风险。
+在全世界八百多种数字货币里面真正能运行的只有二、三十个，这些币的总额占整个数字货币里的80%。官方说三万多亿美元，事实会达到6万亿美元。什么叫数字货币？就是一个去中心化的公开账本化的一个数字货币中心，完全打破了政府的垄断、统治和掠夺的形式。它必然成为国际上的未来的货币金融方式。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1428-1-School-Children-COVID.jpg)图片来源：[thegatewaypundit.com](https://www.thegatewaypundit.com/2021/11/uk-study-reveals-99-995-children-young-people-survive-covid-19-two-million-chance-fatal-much-lower-risks-vaccine/)
+上海数字货币研究中心给中共中央人民银行各种警告，说共产党的人民数字货币是不可能的流通：数字人民币的流通对各大行发行的纸币、还有所有人民币的标准化和降准后的人民币和数字化人民币之间的矛盾，那是巨大的；最后老百姓和政府之间就形成了数字和货币的对抗，所以数字化的人民币必将是灾难。这严格来讲是上天给我们灭共的帮助。
 
-这项分析由包括英格兰国家医疗服务系统、伦敦帝国学院、英格兰公共卫生局和布里斯托尔皇家儿童医院在内的几个英国著名医疗机构合作完成。当研究小组查看英国国家儿童死亡率数据库的数据时发现，中共病毒大流行的第一年，在死于各种原因的3105名儿童和年轻人中，只有61人的中共病毒检测呈阳性。
+这个时候新中国联邦的金融系统诞生了。到明年五月至年底，特别是那三个条件诞生后，当共产党失去了对人民的货币控制时，它剩下的只有墙。不相信中共会将14亿人都杀了；不相信它将台湾TCMC台积电的人都弄到大陆去再开个TCMC；不相信在未来两年TCMC的芯片还能当主角，最终还会是美国。
 
-该研究确定，在英格兰，中共病毒大流行的第一年，99.995%的儿童和青少年能在感染中共病毒后幸存，致命率只有百万分之二。
+好日子刚刚开始，周三直播再聊！
 
-在英格兰的1200多万儿童和年轻人中，只有25人由于中共病毒直接相关的并发症而去世。
+***听写**：乐禧禧*
+***校对**: 小雨*
 
-**参考阅读：**
+* * *
 
-[Latest UK Study Reveals 99.995% of Children And Young People SURVIVE Covid-19; Only Two-in-A-Million Chance to Be Fatal (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/11/uk-study-reveals-99-995-children-young-people-survive-covid-19-two-million-chance-fatal-much-lower-risks-vaccine/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-**编辑/校对/发稿：小鹿**
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 

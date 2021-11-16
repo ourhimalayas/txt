@@ -2,13 +2,11 @@
 ---
 
 
-## 日本发现第三例高致病性禽流感病例
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1667903/)
+## 11/15/2021 文贵盖特：中共房地产的本质是让中国人沦为房奴，这是中共弱民、贫民、苦民的一场骗局
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1667930/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._16-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
