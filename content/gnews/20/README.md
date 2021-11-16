@@ -2,19 +2,19 @@
 ---
 
 
-## 美国宇航局对俄罗斯导弹试验的愤怒
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1668783/)
+## 战斗室和我们三次改变了世界，你们不知道意义有多大
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1668850/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11161.jpg)图片来自esa.int
-11 月 16 日 – 美国航天局美国宇航局对俄罗斯的导弹试验表示愤慨，该试验导致一团碎片云使国际空间站处于危险之中。
+文编：东京樱花团/樱花传媒
+视频:东京樱花团/中文小视频组
 
-美国宇航局的谴责是在拜登政府谴责之后几个小时发出的，拜登政府也通过国务院谈到了这是一次危险且不负责任的测试。
+11月7日，郭文贵先生在GTV大直播指出：
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/16/ira-della-nasa-per-il-test-missilistico-della-russia\_aa61ced8-37a3-4a91-8a88-f16580010c14.html](https://www.ansa.it/sito/notizie/topnews/2021/11/16/ira-della-nasa-per-il-test-missilistico-della-russia_aa61ced8-37a3-4a91-8a88-f16580010c14.html)
+班农和我们三次改变了世界: 1.去年川普总统竞选失败后,班农没有鼓吹暴乱煽动内战,完美诠释了美国体制的优越;2.弗吉尼亚州共和党选举大赢,全归功于班农战斗室365日的无休宣传;3.应郭先生的强烈要求和布署,战斗室始终全力以赴高喊反疫苗反杀人。疫苗禁止令的出台,就是战斗室战斗的结果。
 
-责任编辑/发布：意大利达芬奇农场   萧亦
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

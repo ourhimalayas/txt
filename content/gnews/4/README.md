@@ -2,117 +2,52 @@
 ---
 
 
-## 巴西总统雅伊尔·博尔索纳罗面对世卫组织负责人表示：“人们在疫苗第二剂后死亡”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1668907/)
+## 中共超限战灭港行动（85）守护孩子行动
+` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1669029/)
 
-[https://gtv.org/video/id=6193279f182702508105befc](https://gtv.org/video/id=6193279f182702508105befc)
+#### 搜集/撰文：岁月如歌
 
-All the over the world, there are people who need to work to feed themselves
-全世界有许多的人需要工作来养活他们自己
 
-All those measures taken quickly unbalanced the economy
-所有这些措施迅速导致经济失衡
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11161-1.jpg)
+“守护孩子行动”是个非常危险的行为，但是这个组织的成员几乎是“真空上阵”，没有保护装备，最多也只是一个头盔，或一个眼罩，但他们毫无畏惧。 9·21元朗静坐示威演变成连串冲突，“守护孩子行动”成员及陈伯等人上前了解情况遭速龙小队喷胡椒喷剂，一名成员及陈伯被分隔带进后巷，后陈伯被放出来接受治理，另一名成员遭30名警察围攻拳打脚踢，从网络上流传出来的视频可见，并有女子声音呼叫“唔好打人呀！阿sir，停手呀！（警察不要打人呀，停手呀）”警察无动于衷继续施暴，女子再大叫“喂！影住你呀！（拍下你了呀），”该女子立刻遭警察以强光照射，现场还听到男子大叫救命。 “好邻舍北区教会”证实该名男子是“守护孩子行动”成员，该成员为了上前了解一名被捕的青少年而被警方推跌并拘捕，当时並没有拒捕。据报导，该成员被打致口腔及牙齿出血，并出现昏眩状况。事后警方发言人韦华高在记者会上表示他们只是脚踢“黄色物体”，是物体不是人，警方无耻程度令舆论哗然，被认为是“非人化罪行”在运动中的例子。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11162-1.jpg)图片来自众新闻
+82岁的黄伯，没有任何防护措施，连头盔眼罩或者防毒面具都没有他一样在“枪林弹雨”中参加保护孩子。他说：“没什么可怕的，警察有胆打我，尽管打，我直接用我的身体去抵挡。我们都几十岁了，无所谓，但是年轻人就一个都不能少。”他希望年轻人万事小心，保留生命，继续为香港努力。他说会和陈伯（陈基裘）一起在最前线，站在示威者与警察之间做缓冲。
 
-The world went through more than a year of lockdown
-世界经历了一年多的封锁
+陈基裘与哥哥弟弟三人一起参加“守护孩子行动”，哥哥已经96岁。陈伯说他爱香港，他认为目前香港的危险比日本侵占香港时期更危险，他说：“我这么大个人从未见过香港人打香港人。” 73岁的陈伯在反送中运动中表现非常勇敢，不亚于年轻人。 “为了公义即使会失去性命也不要紧”，陈泊说，他和守护孩子其他成员一样与年轻人并肩作战，以血肉之躯抵挡冲突。陈伯经历过内地文革，感受过政权对人民的剥削，亲身经历过被打压，对统治者的压迫永生难忘。他经历过20年前的粉岭、马屎埔村抗争，反对新界东北发展逼村民搬迁。陈伯说“我承受很大的压力，到立法会门前通宵静坐，抗议，为村民争取应有的权益”。最终还是面临搬迁，使他对政府失去信心。反送中运动， 看到100万，甚至200万市民的游行，政府都无动于衷，政府还利用警察和权贵欺压市民，甚至有黑警察欺压及摧残年轻的两三代，陈伯非常痛心。警察打示威者对于陈伯来说司空见惯了，但每次的回忆，使这位古稀老人不禁伤心落泪，残酷的现实也迫使这些银发老人不惜走上抗争之路。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11163-1.jpg)图片来自明报
+7月3日陈伯参与持续19天的绝食抗议活动，年轻人恐怕都难以支撑，但陈伯依靠意志做到了。 7月14日绝食第十日，得知示威者在新城市广场被警察包围时，他毫不犹豫从海富中心奔往沙田，他要求警察让路：“叫你们指挥官出来与我对话，我要拯救年轻人，麻烦你们让路”，经过一轮的扰攘，陈伯终于冲破多重防线。事后他坦言“你以为我真的不怕死吗？那是没办法，牺牲我们老年人没问题，只希望年轻人不要受到伤害”。 921运动中陈伯为解救年轻人被速龙小队喷“食椒（遭喷胡椒喷雾）”和推倒，大家都担心他的安全。
 
-if it continues like this, the economy will collapse
-如果再这样下去，经济就会崩溃
+年近60岁的何女士也是守护孩子的成员，她承认心情紧张，因为接下来不知道会发生什么事，也不知道见到年轻人被打时自己是否真有勇气去阻挡，但会尽自己能力去守护，不希望有暴力事件发生。因为恐惧，才要站出来尽自己的责任，何女士赞每一位走出来的年轻人非常有勇气。
 
-I think we don’t need more lockdowns
-我认为我们不需要更多的封锁
+2019年9月29日的全球反极权大游行中，十多名守护孩子行动的成员为解救被速龙小队围困在海富中心的示威者，他们筑起人链并要求警方让示威者离开，消防员到场后开闸让示威者离去，守护孩子成员被警方命令除下口罩，并登记身份证，警方表示将会保留检控他们非法集结的权利。
 
-About the vaccine passports, have the WHO made a decision?
-关于疫苗护照，世卫组织有没有做出决定？
+（未完待续）
 
-On its obligation
-关于其义务
 
-Not for now
-现在不行
 
-We are not recommending as the vaccination rate in several countries still low
-我们不推荐，因为一些国家的疫苗接种率仍然很低
+参考链接：
 
-So, access to the vaccine is low and requiring the certificate could be discriminatio
-因此，它们获得疫苗的机会很少，如果要求疫苗证书可能是歧视行为
+[【元朗游行】沙田八旬伯伯零装备上阵守护孩子 “拎个身直接挡”](https://www.hk01.com/18%E5%8D%80%E6%96%B0%E8%81%9E/357009/%E5%85%83%E6%9C%97%E9%81%8A%E8%A1%8C-%E6%B2%99%E7%94%B0%E5%85%AB%E6%97%AC%E4%BC%AF%E4%BC%AF%E9%9B%B6%E8%A3%9D%E5%82%99%E4%B8%8A%E9%99%A3%E5%AE%88%E8%AD%B7%E5%AD%A9%E5%AD%90-%E6%8B%8E%E5%80%8B%E8%BA%AB%E7%9B%B4%E6%8E%A5%E6%93%8B)
 
-In Brazil, many who got the second dose are getting COVID
-在巴西，许多接种第二剂疫苗的人正在感染 COVID
+[【](https://www.hk01.com/%E7%AA%81%E7%99%BC/378104/9-21%E5%85%83%E6%9C%97%E7%A4%BA%E5%A8%81-%E5%AE%88%E8%AD%B7%E5%AD%A9%E5%AD%90%E6%88%90%E5%93%A1%E8%A2%AB%E6%8A%BC%E5%85%A5%E5%BE%8C%E5%B7%B7%E6%B5%81%E8%A1%80-%E5%A5%BD%E9%84%B0%E8%88%8D-%E8%A2%AB%E6%8C%87%E8%A5%B2%E8%AD%A6)[9.21元朗示威】守护孩子成员被押入后巷流血　好邻舍﹕被指袭警](https://www.hk01.com/%E7%AA%81%E7%99%BC/378104/9-21%E5%85%83%E6%9C%97%E7%A4%BA%E5%A8%81-%E5%AE%88%E8%AD%B7%E5%AD%A9%E5%AD%90%E6%88%90%E5%93%A1%E8%A2%AB%E6%8A%BC%E5%85%A5%E5%BE%8C%E5%B7%B7%E6%B5%81%E8%A1%80-%E5%A5%BD%E9%84%B0%E8%88%8D-%E8%A2%AB%E6%8C%87%E8%A5%B2%E8%AD%A6)
 
-The vaccine does not prevent COVID but it does prevent serious illness and death
-该疫苗确实不能预防COVID，但确实可以预防严重的疾病和死亡
+[【专访守护孩子陈伯】银发族挺身而出与年轻人同行](https://sparkyouthmedia.com/2020/10/12/%E3%80%90%E5%B0%88%E8%A8%AA%E5%AE%88%E8%AD%B7%E5%AD%A9%E5%AD%90%E9%99%B3%E4%BC%AF%E3%80%91-%E9%8A%80%E9%AB%AE%E6%97%8F%E6%8C%BA%E8%BA%AB%E8%80%8C%E5%87%BA-%E8%88%87%E5%B9%B4%E8%BC%95%E4%BA%BA%E5%90%8C/)
 
-This is the purpose
-这是该疫苗的目的
+导读：
+中共超限战灭港行动
+[中共超限战灭港行动（八十）七二一](https://gnews.org/zh-hans/1599657/)[·恐袭事件之官黑勾结警黑合作（中）](https://gnews.org/zh-hans/1599657/)
 
-In Brazil, many who got the second dose are dying
-在巴西，许多接种第二剂疫苗的人正在死亡
+[中共超限战灭港行动（八十一）七二一](https://gnews.org/zh-hans/1614003/)[·恐袭事件之官黑勾结警黑合作（下）](https://gnews.org/zh-hans/1614003/)
 
-As you said, there can be some cases like that
-正如你所说，可能有这样的情况
+[中共超限战灭港行动（八十二）七二一](https://gnews.org/zh-hans/1620544/)[·恐袭事件之谁在篡改历史](https://gnews.org/zh-hans/1620544/)
 
-Especially those who have comorbidities,
-尤其是那些有并发症的人
+[中共超限战灭港行动（八十三）七二一](https://gnews.org/zh-hans/1634215/)[·恐袭事件之谁主真相](https://gnews.org/zh-hans/1634215/)
 
-some other conditions or underlying health conditions
-一些有其他疾病或潜在的健康状况的人
+[中共超限战灭港行动（八十四）银发族游行与保护孩子组织的出现](https://gnews.org/zh-hans/1645865/)
 
-80% of the population are asymptomatic
-80%的人口是无症状的
 
-In Brazil, I do not have control over the actions about the pandemic
-在巴西，我无法控制大流行的行动
 
-Governors and mayors have it by a decision of the Judicial Power
-州长和市长有司法权的决定
-
-And governors and mayors are demanding mandatory vaccination for children
-州长和市长要求为儿童强制接种疫苗
-
-In his words, the WHO does not recommend the vaccine for children
-用他的话来说，世卫组织不推荐给儿童接种疫苗
-
-So we have to make a note in that regard saying that the WHO does not recommend it
-所以我们必须注意，世卫组织不建议这样做
-
-If we say anything here “about the vaccine”, the media starts saying it is “Fake News”
-如果我们在这里说什么“关于疫苗”，媒体就会开始说它是“假新闻”
-
-We are left with our hands tied
-我们被束缚了手脚
-
-The lives of children are at stake and nothing better than to follow what Adhanom said
-孩子们的生命危在旦夕，没有什么比遵循谭德塞-阿达诺姆所说的更好的了
-
-this determination of the WHO
-世卫组织的这一决定
-
-What is the origin of the virus?
-病毒的起源是什么？
-
-We are still studying it
-我们仍在研究它
-
-* * *
-
-Date:11/13/2021
-原视频标题: President Of Brazil, Jair Bolsonaro Confronts WHO Chief: ‘People Are Dying After the Second Dose’
-巴西总统雅伊尔·博尔索纳罗面对世卫组织负责人表示：“人们在疫苗第二剂后死亡”
-原视频日期：2021/10/12
-原视频链接: [https://twitter.com/chi\_un\_lee/status/1458817221787017225?s=24](https://twitter.com/chi_un_lee/status/1458817221787017225?s=24)
-任务编号：KE344（2850）
-视频时间段 : 0:00-2:19
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*校对 / 封面合成：文粤 / 发布：天网灰灰*
 
  
 

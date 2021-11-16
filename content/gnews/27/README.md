@@ -2,19 +2,19 @@
 ---
 
 
-## 美国法院禁止令，是天大的事，结束人类灾难的开始！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1668703/)
+## 波兰将在与白俄罗斯的边界修建隔离墙
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1668794/)
 
-文编：东京樱花团/樱花传媒
-视频：东京樱花团/中文小视频组
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11162.jpg)图片来自bbc
+11 月 15 日 – 华沙政府在与明斯克发生移民危机后宣布，波兰将于 12 月开始在与白俄罗斯的边界上修建隔离墙。
 
-11月7日，郭文贵先生在GTV大直播指出：
+华沙内政部长马里乌什·卡明斯基表示，将通过在与白俄罗斯接壤的边境修建隔离墙来实施阻止非法移民闯入的行动，并称这绝对是对国家及其公民安全的战略性和优先投资。
 
-11月5日发起的疫苗禁止令，阻止了疫苗对人类的杀戮，这是天大的事！我们要看事情本质，美国这个国家不行动，世界疫苗停不下来！这一切都是行动的结果，这也是法治基金捐款者的伟大，因为捐款，法治基金法治社会才能合法的支持这些人的诉讼！今天穿着这个长袍，就是为了纪念又一个像419伟大时刻的到来！
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/15/la-polonia-costruira-un-muro-al-confine-con-la-bielorussia\_e6d2d7ee-0d62-4930-980a-e5f109ae5e7c.html](https://www.ansa.it/sito/notizie/topnews/2021/11/15/la-polonia-costruira-un-muro-al-confine-con-la-bielorussia_e6d2d7ee-0d62-4930-980a-e5f109ae5e7c.html)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版.png)
+责任编辑/发布：意大利达芬奇农场   萧亦
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

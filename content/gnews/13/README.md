@@ -2,41 +2,118 @@
 ---
 
 
-## Meta因Facebook被俄亥俄州检察长起诉
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1668830/)
+## 巴西总统雅伊尔·博尔索纳罗面对世卫组织负责人表示：“人们在疫苗第二剂后死亡”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1668907/)
 
-**翻译：西班牙巴塞罗那喜悦农场-wenwu**
+[https://gtv.org/video/id=6193279f182702508105befc](https://gtv.org/video/id=6193279f182702508105befc)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-325.png)图片来源 wsj.com
+All the over the world, there are people who need to work to feed themselves
+全世界有许多的人需要工作来养活他们自己
 
-俄亥俄州总检察长戴夫·约斯特（Dave Yost）起诉 [Meta Platforms](https://www.wsj.com/market-data/quotes/FB)Inc.（ [FB1.96%](https://www.wsj.com/market-data/quotes/FB?mod=chiclets)），该公司前身为 Facebook Inc.，其指控该公司在如何控制其算法以及其产品对儿童的影响方面，误导了公众。
+All those measures taken quickly unbalanced the economy
+所有这些措施迅速导致经济失衡
 
-俄亥俄州总检察长 Dave Yost 在一份声明中表示，这起诉讼是代表 Meta 公司的投资者和俄亥俄州公共雇员退休系统提起的，要求赔偿 1000 多亿美元，并要求 Meta 公司做出重大改变，以便不再误导投资者。
+The world went through more than a year of lockdown
+世界经历了一年多的封锁
 
-Meta 发言人乔·奥斯本 (Joe Osborne) 表示：“这起诉讼没有法律依据，我们将积极为自己辩护。”
+if it continues like this, the economy will collapse
+如果再这样下去，经济就会崩溃
 
-该诉讼称，在 2021 年 4 月 29 日至 10 月 21 日期间，Facebook 及其高管违反了联邦证券法，在其公司的产品对未成年人的负面影响方面是故意误导公众，以提升其股票并欺骗股东。
+I think we don’t need more lockdowns
+我认为我们不需要更多的封锁
 
-“Facebook 说它正在盯着我们的孩子，并清除了网络社区中归类到公司不喜欢让孩子看到的言论（洗脑），但该公司实际上是在为了利润而制造痛苦和分裂，”共和党人 Yost 先生说。
+About the vaccine passports, have the WHO made a decision?
+关于疫苗护照，世卫组织有没有做出决定？
 
-“真相于 2021 年 9 月 13 日开始浮出水面，当时《华尔街日报》发表了一系列文章中的第一篇，也就是‘Facebook 档案’。”该诉讼称，指的是《华尔街日报》的报道显示，该公司知道其平台充满了会造成伤害的缺陷。
+On its obligation
+关于其义务
 
-在[Facebook](https://www.wsj.com/articles/the-facebook-files-11631713039?mod=article_inline)[的档案](https://www.wsj.com/articles/the-facebook-files-11631713039?mod=article_inline)系列报道显示，该公司知道它的照片分享应用程序 Instagram 对一些少女有害，以及其他一些事情。
+Not for now
+现在不行
 
-Yost 先生说，这些爆料导致 Facebook 股价下跌 54.08 美元，并导致俄亥俄州公共雇员退休系统和其他 Facebook 投资者损失超过 1000 亿美元。
+We are not recommending as the vaccination rate in several countries still low
+我们不推荐，因为一些国家的疫苗接种率仍然很低
 
-2021 年 5 月，Yost 先生和来自其他 43 个州和地区的总检察长以行为和隐私问题为由，[敦促当时的](https://www.wsj.com/articles/state-prosecutors-add-to-warnings-about-instagrams-child-safety-plans-11620662601?mod=article_inline)[Facebook](https://www.wsj.com/articles/state-prosecutors-add-to-warnings-about-instagrams-child-safety-plans-11620662601?mod=article_inline)放弃为 13 岁以下儿童开发建立 Instagram 应用程序的计划。
+So, access to the vaccine is low and requiring the certificate could be discriminatio
+因此，它们获得疫苗的机会很少，如果要求疫苗证书可能是歧视行为
 
-9 月，在越来越多的[两党政治压力下](https://www.wsj.com/articles/facebooks-efforts-to-attract-youths-come-under-senate-scrutiny-11632994201?mod=article_inline)，该公司表示将暂停该项目。[此举](https://www.wsj.com/articles/facebook-pauses-instagram-kids-project-11632744879?mod=article_inline)是在《华尔街日报》关于 Instagram 如何伤害一些少女的报道发表后，不到两周。
+In Brazil, many who got the second dose are getting COVID
+在巴西，许多接种第二剂疫苗的人正在感染 COVID
 
-Facebook 吹哨人弗朗西斯·豪根 (Frances Haugen) 披露的消息，也[加速](https://www.wsj.com/articles/facebook-documents-accelerate-eu-push-to-regulate-social-media-11636399889?mod=article_inline)了欧盟对大型科技公司实施全面新限制的[努力](https://www.wsj.com/articles/facebook-documents-accelerate-eu-push-to-regulate-social-media-11636399889?mod=article_inline)。
+The vaccine does not prevent COVID but it does prevent serious illness and death
+该疫苗确实不能预防COVID，但确实可以预防严重的疾病和死亡
 
-**新闻来源：**[wsj.com][Ohio Sues Meta Alleging Facebook Parent Misled Public About Its Products’ Effect on Children](https://www.wsj.com/articles/ohio-sues-meta-alleging-facebook-parent-misled-public-about-its-products-effect-on-children-11637011332)
+This is the purpose
+这是该疫苗的目的
+
+In Brazil, many who got the second dose are dying
+在巴西，许多接种第二剂疫苗的人正在死亡
+
+As you said, there can be some cases like that
+正如你所说，可能有这样的情况
+
+Especially those who have comorbidities,
+尤其是那些有并发症的人
+
+some other conditions or underlying health conditions
+一些有其他疾病或潜在的健康状况的人
+
+80% of the population are asymptomatic
+80%的人口是无症状的
+
+In Brazil, I do not have control over the actions about the pandemic
+在巴西，我无法控制大流行的行动
+
+Governors and mayors have it by a decision of the Judicial Power
+州长和市长有司法权的决定
+
+And governors and mayors are demanding mandatory vaccination for children
+州长和市长要求为儿童强制接种疫苗
+
+In his words, the WHO does not recommend the vaccine for children
+用他的话来说，世卫组织不推荐给儿童接种疫苗
+
+So we have to make a note in that regard saying that the WHO does not recommend it
+所以我们必须注意，世卫组织不建议这样做
+
+If we say anything here “about the vaccine”, the media starts saying it is “Fake News”
+如果我们在这里说什么“关于疫苗”，媒体就会开始说它是“假新闻”
+
+We are left with our hands tied
+我们被束缚了手脚
+
+The lives of children are at stake and nothing better than to follow what Adhanom said
+孩子们的生命危在旦夕，没有什么比遵循谭德塞-阿达诺姆所说的更好的了
+
+this determination of the WHO
+世卫组织的这一决定
+
+What is the origin of the virus?
+病毒的起源是什么？
+
+We are still studying it
+我们仍在研究它
 
 * * *
 
-*发稿**：**Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
+Date:11/13/2021
+原视频标题: President Of Brazil, Jair Bolsonaro Confronts WHO Chief: ‘People Are Dying After the Second Dose’
+巴西总统雅伊尔·博尔索纳罗面对世卫组织负责人表示：“人们在疫苗第二剂后死亡”
+原视频日期：2021/10/12
+原视频链接: [https://twitter.com/chi\_un\_lee/status/1458817221787017225?s=24](https://twitter.com/chi_un_lee/status/1458817221787017225?s=24)
+任务编号：KE344（2850）
+视频时间段 : 0:00-2:19
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

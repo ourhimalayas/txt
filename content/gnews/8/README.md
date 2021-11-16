@@ -2,54 +2,46 @@
 ---
 
 
-## 辉瑞疫苗摧毁美山地自行车冠军的职业生涯
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1668882/)
+## VAERS分析揭露 CDC 和 FDA 掩盖数百起疫苗严重不良事件
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1668948/)
 
-编译：Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-16-102540.jpg)图片来源： newstarget.com
-美国29 岁的职业山地自行车手冠军凯尔·华纳 (Kyle Warner) 的生活和职业生涯都被辉瑞 (Pfizer) COVID-19 疫苗毁了。
+翻译： Jenny Ball
 
-这位三届全国耐力赛冠军得主，最近站出来讲述了他的健康如何被福奇流感疫苗破坏，导致他患上心包炎、直立不耐症（POTS）和反应性关节炎。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-329.png)图片来源： newstarget.com
 
-不用说，华纳的职业生涯已经结束。
+一位名叫阿尔伯特·贝纳维德斯( Albert Benavides )的研究人员，对疫苗不良事件报告系统 (VAERS) 进行了数据分析，该系统由疾病控制和预防中心 (CDC) 和食品和药物管理局 (FDA) 维护。他发现，这两个联邦机构向公众隐瞒了数百起与COVID-19疫苗相关的严重不良事件。
 
-“感谢所有支持和理解我就这个问题发表意见的人，”华纳在Instagram帖子中写道。 “你们中的许多人都知道，我是一个非常理性和有爱心的人，我从来没有打算参与这个谈话。”
+超过 200 种不同的症状，如果你能相信的话，已经被 CDC 和 FDA 完全掩盖了，它们继续声称福奇流感疫苗是“安全有效的”。
 
-“**然而，在我今年夏天的经历之后，听了成千上万个类似的故事，我觉得我需要为那些不能或无法访问同一平台的人站出来**。”
+**所有这 ****200 ****种严重不良反应的发生率都比心肌炎高得多**，心肌炎的发生率尤其高，尤其是在那些服从政府命令和当地教育局要求的年轻人中。
 
-华纳强调，他的疫苗伤害与政治无关，它们是个人的，因为它们是真实的，并且毁了他的生活（相关链接：[CovidVaccineVictims.com documents heartbreaking stories of vaccine injures, deaths.](https://www.naturalnews.com/2021-09-27-covidvaccinevictims-com-documents-heartbreaking-stories-of-vaccine-injures-deaths.html))
+“CDC 应该警告人们，总共有 4,000 多个 VAERS 不良事件代码，被这些疫苗提高了 **10 倍或更多的基线**，”调查记者史蒂夫·基尔施（ Steve Kirsch ）在他的 “子堆栈”（Substack）上报告说。
 
-他说：“我想要世界和人类最好的东西，看到人们以这种方式受苦，我的心都碎了。”
+**与所有其他 ****70 ****多次强加给儿童的疫苗相比，****COVID ****疫苗引起的不良事件更多。**
 
-“过去一周在华盛顿特区，彻底动摇了我对世界的看法，这让我意识到，我们作为普通人需要团结在一起，并相互倡导。”
+正如[我们所报道的那样](https://www.naturalnews.com/2021-11-10-genocide-childrens-hospitals-flooded-infant-cardiac-patients.html)，**美国各地的医院现在都充斥着接种疫苗的患者，其中许多是儿童，甚至是婴儿，他们遭受着这些被 ****CDC ****和 ****FDA ****向公众隐瞒的不良事件之苦**。
 
-华纳敦促他的追随者和粉丝，“在评判或贴标签之前”倾听他的故事和其他人的故事。 他说他只是一个“关心他人，并希望政府承认和支持实际发生的事情”的普通人。
+各地的父母都想知道发生了什么，因为媒体-制药-政府三巨头声称：这些注射剂在增强免疫力方面与维生素基本相同。
 
-华纳认为辉瑞注射的是他的血管，而不是肌肉组织。
+**疫苗正在缓慢或快速地杀人，这取决于个体情况。随着时间的推移，**这种种族灭绝注射的全面影响将变得明显**，但到那时，采取任何行动已经太晚了。**
 
-**华纳最严重的症状出现在第二剂辉瑞疫苗之后**，这导致他患上许多严重的慢性疾病，并继续遭受痛苦。
+贝纳维德斯的分析发现的另一个小花絮是，自疫苗计划于 30 年前启动以来，**中共病毒疫苗注射引起的不良事件，比政府追踪方案中包含的所有其他 ****70 ****多种注射引起的不良事件更多。**
 
-在 10 月份接受约翰·坎贝尔（John Campbell）博士的[采访](https://teamtuckercarlson.com/news/29-year-old-mountain-bike-national-title-winner-diagnosed-with-pericarditis-after-taking-pfizer-vaccine/)时，华纳解释了他在接受第二次注射后的感受。
+这意味着中共病毒疫苗是迄今为止市场上最致命的“疫苗”。
 
-“他们一注射，我的嘴里就有一种奇怪的金属盐水味。我问那家伙，‘这正常吗？’他说不，他们没听说过这种反应，”华纳透露。
+“这是一个惊人的统计数据，没有人可以否认，但主流医学界（或主流媒体）似乎没有人在意，”基尔施指出。“它甚至不值得一提。天啊。”
 
-“临床医生没有意识到，口腔中的金属味可能是无意中血管内注射的迹象，这一事实让我感到担忧，因为如果疫苗进入你的肌肉，它留在肌肉中， 至少需要半小时才能被全身吸收，或者更长时间。”
+总而言之，中共病毒疫苗的致死率，是之前的记录保持者天花疫苗的 800 倍。**福奇流感疫苗已经杀死了至少 ****150,000 ****名美国人，并导致无数人永久致残。**
 
-华纳解释说，如果疫苗的药物被注射到血管中，几乎立即就会出现金属味。这件事发生在华纳身上的事实让他相信，辉瑞注射液被注射到了他的静脉中。
+据说，每 **22,000** 人接受注射，只能挽救一个生命。这是根据辉瑞（Pfizer）为期六个月的试验得出的，该试验可能偏向于该公司，这意味着真实数字可能要差得多。
 
-“实际是你的心脏和关节有炎症反应，而不是被注射的手臂有反应，”他说。
+“从试验中还可以看出，**这种药物杀死的人多于拯救的人**（治疗组有 20 人死亡，而揭盲后安慰剂组有 14 人死亡），”基尔施补充道。“因此，**我们以超过 ****15****万 人的死亡为代价**，‘挽救’了不到 一万人的生命。简而言之，我们杀了 15 个人来救 1 个。这太愚蠢了。”
 
-不久之后，华纳的心脏也出现了奇怪的反应，**包括心跳加速**。华纳观察到这一点，因为跟踪他的心率是他保持山地自行车健康的一部分。
+基尔施和他的团队曾试图与拜登政权的官员会面，讨论这些有罪的数据，但迄今为止他们拒绝了。
 
-**可悲的是，华纳被注射的唯一原因是他想继续国际旅行**。如果没有这样的要求，他根本不会接受疫苗。
+“**他们根本不想听到真相**，”基尔希说。“相反，他们专注于去平台化和审查我们，这些技术数据的时效。”
 
-华纳最近前往华盛顿特区，参加一个关于 COVID 注射不良反应的会议，**政府官员有系统地忽视了这些不良反应。**
-
-有关疫苗不良反应更多死亡和病例请点击链接查看[ChemicalViolence.com](https://chemicalviolence.com/).
-
-**点评：疫苗不是政治，关乎每个人的生命，但却被中共和邪恶势力政治化，制造了华纳和百万千万人的人类生死存亡的灾难。**
-
-**新闻来源**：[newstarget.com] [citizenfreepress.com](https://citizenfreepress.com/) / [naturalnews.com](https://naturalnews.com/) / [teamtuckercarlson.com](https://teamtuckercarlson.com/) / [Pfizer’s covid injection destroyed U.S. mountain biking champion’s entire life, career](https://www.newstarget.com/2021-11-14-pfizer-covid-injection-destroyed-mountain-biking-career.html)
+**新闻来源**：[newstarget.com] [VAERS analysis exposes CDC, FDA for covering up hundreds of serious adverse events associated with COVID vaccines](https://www.newstarget.com/2021-11-14-vaers-cdc-fda-hiding-serious-adverse-events.html) / [stevekirsch.substack.com](https://stevekirsch.substack.com/) / [naturalnews.com](https://naturalnews.com/)
 
 * * *
 
