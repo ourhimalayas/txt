@@ -2,29 +2,117 @@
 ---
 
 
-## 拜登和习近平举行视频峰会
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1668898/)
+## 巴西总统雅伊尔·博尔索纳罗面对世卫组织负责人表示：“人们在疫苗第二剂后死亡”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1668907/)
 
-翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
+[https://gtv.org/video/id=6193279f182702508105befc](https://gtv.org/video/id=6193279f182702508105befc)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/der-amerikanische-praesident-1.jpg)
+All the over the world, there are people who need to work to feed themselves
+全世界有许多的人需要工作来养活他们自己
 
+All those measures taken quickly unbalanced the economy
+所有这些措施迅速导致经济失衡
 
-资料来源：FAZ
+The world went through more than a year of lockdown
+世界经历了一年多的封锁
 
-美国总统乔拜登和中国共产党领导人习近平已经开始了他们期待已久的视频会议。这是自拜登 1 月上任以来，两位总统首次面对面，尽管是虚拟的会面。 在此之前，两人只打过两次电话。习近平在开始时表示，正如官方媒体所引述的那样，中美应相互尊重，和平共处与合作。两国也应承担起各自的国际责任。
+if it continues like this, the economy will collapse
+如果再这样下去，经济就会崩溃
 
-对话发生在两个最大经济体之间日益紧张的背景下。自1979年建交以来，两个大国之间的关系比以往任何时候都更加紧张。 双方都将自己视为竞争对手。
+I think we don’t need more lockdowns
+我认为我们不需要更多的封锁
 
-争论的焦点包括中国对台湾的威胁、持续的贸易战、中国的人权状况、与维吾尔族和藏族的打交道，以及对香港民主运动的镇压。华盛顿也非常怀疑中国声称在亚洲拥有权力。反过来，中国指责美国想要减缓其在世界上的崛起。北京还抱怨美国的保护主义抬头​​。
+About the vaccine passports, have the WHO made a decision?
+关于疫苗护照，世卫组织有没有做出决定？
 
-一位美国高级官员在会谈开始前表示，美国总统拜登押注在与中国打交道的“激烈竞争”中，但希望防止公开冲突。美方也明确表示希望中国遵守国际标准。
+On its obligation
+关于其义务
 
-据官方媒体报道，外交部长王毅和负责对美贸易关系的副总理刘鹤正在参加会谈。在美国方面，国务卿安东尼·布林肯和财政部长珍妮特·耶伦也在其中。
+Not for now
+现在不行
 
-原文链接：[新闻来源：德国法兰克福报网页版](https://www.faz.net/aktuell/politik/ausland/die-videokonferenz-zwischen-us-praesident-biden-und-dem-chinesischen-staatschef-xi-beginnt-17636440.html)
+We are not recommending as the vaccination rate in several countries still low
+我们不推荐，因为一些国家的疫苗接种率仍然很低
 
-责任编辑、发布： Shuizhuyu
+So, access to the vaccine is low and requiring the certificate could be discriminatio
+因此，它们获得疫苗的机会很少，如果要求疫苗证书可能是歧视行为
+
+In Brazil, many who got the second dose are getting COVID
+在巴西，许多接种第二剂疫苗的人正在感染 COVID
+
+The vaccine does not prevent COVID but it does prevent serious illness and death
+该疫苗确实不能预防COVID，但确实可以预防严重的疾病和死亡
+
+This is the purpose
+这是该疫苗的目的
+
+In Brazil, many who got the second dose are dying
+在巴西，许多接种第二剂疫苗的人正在死亡
+
+As you said, there can be some cases like that
+正如你所说，可能有这样的情况
+
+Especially those who have comorbidities,
+尤其是那些有并发症的人
+
+some other conditions or underlying health conditions
+一些有其他疾病或潜在的健康状况的人
+
+80% of the population are asymptomatic
+80%的人口是无症状的
+
+In Brazil, I do not have control over the actions about the pandemic
+在巴西，我无法控制大流行的行动
+
+Governors and mayors have it by a decision of the Judicial Power
+州长和市长有司法权的决定
+
+And governors and mayors are demanding mandatory vaccination for children
+州长和市长要求为儿童强制接种疫苗
+
+In his words, the WHO does not recommend the vaccine for children
+用他的话来说，世卫组织不推荐给儿童接种疫苗
+
+So we have to make a note in that regard saying that the WHO does not recommend it
+所以我们必须注意，世卫组织不建议这样做
+
+If we say anything here “about the vaccine”, the media starts saying it is “Fake News”
+如果我们在这里说什么“关于疫苗”，媒体就会开始说它是“假新闻”
+
+We are left with our hands tied
+我们被束缚了手脚
+
+The lives of children are at stake and nothing better than to follow what Adhanom said
+孩子们的生命危在旦夕，没有什么比遵循谭德塞-阿达诺姆所说的更好的了
+
+this determination of the WHO
+世卫组织的这一决定
+
+What is the origin of the virus?
+病毒的起源是什么？
+
+We are still studying it
+我们仍在研究它
+
+* * *
+
+Date:11/13/2021
+原视频标题: President Of Brazil, Jair Bolsonaro Confronts WHO Chief: ‘People Are Dying After the Second Dose’
+巴西总统雅伊尔·博尔索纳罗面对世卫组织负责人表示：“人们在疫苗第二剂后死亡”
+原视频日期：2021/10/12
+原视频链接: [https://twitter.com/chi\_un\_lee/status/1458817221787017225?s=24](https://twitter.com/chi_un_lee/status/1458817221787017225?s=24)
+任务编号：KE344（2850）
+视频时间段 : 0:00-2:19
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

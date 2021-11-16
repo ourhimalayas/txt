@@ -2,117 +2,55 @@
 ---
 
 
-## 巴西总统雅伊尔·博尔索纳罗面对世卫组织负责人表示：“人们在疫苗第二剂后死亡”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1668907/)
+## BBC主持人接种疫苗后未满一月，死于并发症
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1668911/)
 
-[https://gtv.org/video/id=6193279f182702508105befc](https://gtv.org/video/id=6193279f182702508105befc)
+作者：sherryok (水云间)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/E59BBEE78987201-Edited.jpeg)肖丽莎（Lisa Shaw ）是 BBC 纽卡斯尔电台的主持人
+4 月 29 日  接种了第一剂阿斯利康（astrazeneca）疫苗，一周后出现头痛
 
-All the over the world, there are people who need to work to feed themselves
-全世界有许多的人需要工作来养活他们自己
+5 月 13 日  她在头痛数日后被救护车送往北达勒姆大学Durham医院。
 
-All those measures taken quickly unbalanced the economy
-所有这些措施迅速导致经济失衡
+治疗她的约翰霍姆斯博士在一份声明中说，肖丽莎女士抱怨前额和眼睛后面“剧烈的头痛和刺痛”。
 
-The world went through more than a year of lockdown
-世界经历了一年多的封锁
+医生对她进行了测试并在她的大脑中发现了血块，她被转移到纽卡斯尔皇家维多利亚医院 (RVI) 的神经病学专科部门。
 
-if it continues like this, the economy will collapse
-如果再这样下去，经济就会崩溃
+RVI 麻醉学和重症监护顾问克里斯托弗·约翰逊博士（Dr Christopher Johnson）说，肖女士已经清醒了两天，并且似乎已经成功地用药物治疗了凝块。
 
-I think we don’t need more lockdowns
-我认为我们不需要更多的封锁
+5 月 16 日  肖女士说头痛更严重，而且她说话也有困难。
 
-About the vaccine passports, have the WHO made a decision?
-关于疫苗护照，世卫组织有没有做出决定？
+扫描显示她的脑部出血，在病情恶化后，她的部分头骨被移除以试图减轻头部的压力。
 
-On its obligation
-关于其义务
+她的病情继续恶化。。。
 
-Not for now
-现在不行
+5 月 21 日  尽管进行了更多的手术和治疗， 最终仍然无力回天，肖女士去世。
 
-We are not recommending as the vaccination rate in several countries still low
-我们不推荐，因为一些国家的疫苗接种率仍然很低
+这距离她接种第一剂疫苗不到1个月的时间
 
-So, access to the vaccine is low and requiring the certificate could be discriminatio
-因此，它们获得疫苗的机会很少，如果要求疫苗证书可能是歧视行为
+纽卡斯尔验尸官迪尔克（Karen Dilks）说，丽莎死于接种阿斯利康中共病毒疫苗的并发症。
 
-In Brazil, many who got the second dose are getting COVID
-在巴西，许多接种第二剂疫苗的人正在感染 COVID
+验尸结论“明确确定”她的死是由于非常罕见的“疫苗引起的血栓性血小板减少症”，这种情况会导致大脑肿胀和出血。
 
-The vaccine does not prevent COVID but it does prevent serious illness and death
-该疫苗确实不能预防COVID，但确实可以预防严重的疾病和死亡
+神经病理学家 Tuomo Polvikoski 博士说，肖女士生前身体健康，没有任何医疗问题，她死于血栓和大脑出血“令人惊讶”。
 
-This is the purpose
-这是该疫苗的目的
+他说，“时间上”，“似乎”她的死“确实是疫苗引起的”。
 
-In Brazil, many who got the second dose are dying
-在巴西，许多接种第二剂疫苗的人正在死亡
+肖丽莎 女士是康塞县（Consett） 两个孩子的母亲，她的丈夫也是广播界知名人士，一家商业电台的创意导演。
 
-As you said, there can be some cases like that
-正如你所说，可能有这样的情况
+可悲的是，肖丽莎的去世并没有引起英国当局的警醒，药品和保健品监管局的首席安全官艾莉森凯夫博士表示，
 
-Especially those who have comorbidities,
-尤其是那些有并发症的人
+“对大多数人来说，Covid-19 疫苗阿斯利康的好处继续超过风险，”她说。“因此，接种疫苗和接种第二剂疫苗时，仍然非常重要。”
 
-some other conditions or underlying health conditions
-一些有其他疾病或潜在的健康状况的人
+而当被问及医生对待未来类似的疫苗后遗症病人时，是否会改变治疗方案，医生的回答是：“不会。”
 
-80% of the population are asymptomatic
-80%的人口是无症状的
+因为方案遵循了国家健康与护理卓越研究所（尼斯）在 7 月发布了有关如何治疗这种疾病的指南。
 
-In Brazil, I do not have control over the actions about the pandemic
-在巴西，我无法控制大流行的行动
+这样官僚刻板，无视患者生命权的医生和管理者，已经不再视救死扶伤为己任，变成了只会奉命行事的行尸走肉。
 
-Governors and mayors have it by a decision of the Judicial Power
-州长和市长有司法权的决定
+[参考链接](https://www.bbc.com/news/uk-england-tyne-58330796)
 
-And governors and mayors are demanding mandatory vaccination for children
-州长和市长要求为儿童强制接种疫苗
-
-In his words, the WHO does not recommend the vaccine for children
-用他的话来说，世卫组织不推荐给儿童接种疫苗
-
-So we have to make a note in that regard saying that the WHO does not recommend it
-所以我们必须注意，世卫组织不建议这样做
-
-If we say anything here “about the vaccine”, the media starts saying it is “Fake News”
-如果我们在这里说什么“关于疫苗”，媒体就会开始说它是“假新闻”
-
-We are left with our hands tied
-我们被束缚了手脚
-
-The lives of children are at stake and nothing better than to follow what Adhanom said
-孩子们的生命危在旦夕，没有什么比遵循谭德塞-阿达诺姆所说的更好的了
-
-this determination of the WHO
-世卫组织的这一决定
-
-What is the origin of the virus?
-病毒的起源是什么？
-
-We are still studying it
-我们仍在研究它
-
-* * *
-
-Date:11/13/2021
-原视频标题: President Of Brazil, Jair Bolsonaro Confronts WHO Chief: ‘People Are Dying After the Second Dose’
-巴西总统雅伊尔·博尔索纳罗面对世卫组织负责人表示：“人们在疫苗第二剂后死亡”
-原视频日期：2021/10/12
-原视频链接: [https://twitter.com/chi\_un\_lee/status/1458817221787017225?s=24](https://twitter.com/chi_un_lee/status/1458817221787017225?s=24)
-任务编号：KE344（2850）
-视频时间段 : 0:00-2:19
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+审核校对：Barry Jack
+上传排版：F
 
  
 
