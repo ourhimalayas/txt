@@ -2,43 +2,34 @@
 ---
 
 
-## 人权观察批北京冬奥赞助商对中共践踏人权行为无动于衷
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1666816/)
+## 明年五月疫苗危机爆发缘由及防范措施
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666981/)
 
-#### 作者：日本东京方舟农场 子辰
+作者：澳喜农场 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+郭文贵先生在11月14日的大直播中，谈到了明年五月疫苗危机爆发的缘由。北京防化学院一位资深生化武器专家透漏，疫苗接种开始后，普及率会越来越高，同时中共病毒会产生变种，而每个人的身体状况和对疫苗的反应不同，综合判断，疫苗危机将从明年五月开始。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-13.jpg)
+一旦疫苗危机爆发，飞机和邮轮的驾驶员、运动员等身体素质较好的人，会有很多突然死亡。因为注射到人体里的疫苗所含的mRNA，会造成严重的心肌炎或者心包炎，使人突然发生脑梗和心梗。人的身体中越重要的部位越容易形成血栓。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6B69B577-C7E0-41E6-8FFF-A25207BE96A5.jpeg)图片来源：https://gdb.voanews.com/EF6E3B62-ED29-4DD1-91AE-83E0826EEAF7\_w408\_r0\_s.jpg
+这位生化武器专家认为，这场疫苗危机导致的死亡人数，将会是惊人的海量数字。他还预估，如果全球一半人都打了毒疫苗的话，则接种疫苗的人中可能有一半人会死亡。
 
-总部设在纽约的“人权观察”近日批评为2022北京冬奥会提供赞助的大企业对中共国新疆发生的反人类罪行保持沉默。
+此专家建议，对于中共病毒疫苗危机唯一有效的防范措施，就是拒绝接种，同时注意，不要跟打过疫苗的人密切接触。
 
-据《美国之音》11月15日报道，“人权观察”近日在视频新闻发布会上指出，这次冬奥会的主要赞助商应向中共政府和国际奥委会施加压力，要求中共停止践踏人权的行为。
+参考链接：[明年五月疫苗危机爆发缘由及防范措施](https://gnews.org/zh-hans/1664219/)
 
-据了解，奥林匹克的顶级赞助商共有13家，包括中共国的电商阿里巴巴、德国保险公司安联、法国信息技术公司阿托斯（Atos）、日本轮胎制造商普利司通（Bridgestone）、松下电器、丰田、美国的可口可乐公司、半导体公司英特尔、陶氏化工（Dow Chemical）、通用电气、宝洁、民宿出租平台爱彼迎（AirBnB）等。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-这些跨国企业多年来一直为奥运会提供巨额资金赞助。在2013年至2016年的奥运周期中，这些赞助商给国际奥委会提供了10亿美元的现金和物资。预计在2017年至2020年的奥运周期中，资金赞助将会翻一番。
+总编：AN
+编辑：Kathy文艺
+校对/发稿：Hetangyuese
 
-“人权观察”表示，他们在今年5月致函上述13家顶级赞助商，请它们说明如何处理参与2022年北京冬奥会所导致的人权风险。然而至今为止，只有安联做出了“长期支持奥林匹克运动不会动摇”的答复。
-
-“人权观察”还曾为此致函美国全国广播公司NBC。据了解，NBC支付的转播费占国际奥委会全部收入的40%。
-
-“人权观察”全球倡议主任明基·沃登（Minky Worden）表示，“沉默外交的时代已经结束”。
-
-“人权观察”随后在一份声明中批评称，距离北京冬奥会开幕只剩三个月，各大赞助商仍未说明它们将如何施加影响力，去改善中共国的恶劣人权记录。声明同时还谴责这些赞助商，称它们甚至可能沦为这次充满言论审查和压迫的奥运会的帮凶。
-
-注：本文仅代表作者观点
-
-*新闻链接： [https://www.voachinese.com/a/sponsors-asked-to-defend-support-for-beijing-winter-olympics-20211112/6310689.html](https://www.voachinese.com/a/sponsors-asked-to-defend-support-for-beijing-winter-olympics-20211112/6310689.html)*
-
-* * *
-
-
-```
-素材采编：子辰
-编辑：青衣青青
-发布：miumiu
-```
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
