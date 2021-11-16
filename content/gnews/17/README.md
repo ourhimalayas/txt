@@ -2,29 +2,32 @@
 ---
 
 
-## 有声|联邦上诉法院维持对拜登疫苗强制令的临时禁令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1667678/)
+## 美将军敦促拜登向中共传递：“有侵略必遭反击”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1667715/)
 
-配音：香草山美食部 – 玫瑰园
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-1月12日，美国联邦第五巡回法院维持上周六的裁决，继续暂停执行拜登政府的疫苗强制令。该强制令要求拥有一百人以上的企业必须接种疫苗，或每周接受检测。法院表示，该强制令超越了行政当局的权限，有严重的宪法问题。自拜登政府发布强制令至今，已经引发了至少27个州以及商业和宗教团体的一系列法律挑战，他们认为拜登政府的强制令违宪。与此同时，美国第五、第六、第八和第十一巡回上诉法院也都在审理职业安全与健康管理局强制推进疫苗接种是否合法。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/G-2.jpg)foxnews.com
+《福克斯新闻》在拜习虚拟会晤前发表文章，题目是，“基恩（Keane）将军敦促拜登向中共发出信息，他们的侵略行为将受到对抗和反击”。文章副标题称，拜登总统和中共主席习近平星期一（11月15日）召开虚拟峰会讨论紧张局势。
 
-郭文贵先生在11月7日的大直播中曾经说过，美国第五巡回法院的临时禁止令最终一定会使拜登政府的疫苗强制令停止下来，在11月10日的大直播中郭先生进一步指出：联邦法院的禁止令意义很大，说明美国已经认识到疫苗灾难是人类面临的真正的灾难。禁止令不仅会影响美国，最终也会影响世界；禁止令也是打开美国法律大门的开始，随着禁止令的发出，可以预期法庭会进一步发出命令，要求彻查病毒来源和疫苗真相；当真相揭露之时，最终将聚集民意、媒体转向、国会立法，并向中共和邪恶势力追责。
+全文如下：
 
-文字版原文：[联邦上诉法院维持对拜登疫苗强制令的临时禁令](https://gnews.org/zh-hans/1662446/)
+前陆军副参谋长杰克·基恩（Jack Keane）将军在星期一（11月15日）的“美国新闻室”（ America’s Newsroom）节目中说，美国需要在即将与习主席举行的峰会上向中共传达一个信息，即他们的侵略将面临对抗。
 
-音频处理：喜山必胜Maverick
+杰克·基恩：……中共的侵略，世界上迅速发展的军事力量，太平洋地区的力量平衡已经在军事上转移到了他们身上，他们的网络战行动是任何国家破坏另一个国家的公民社会，并窃取其技术和信息的最大规模的行动。
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+……
 
+显然，美国必须予以回击，并明确地告诉习主席，我们将继续反击和对抗这种侵略，仅仅竞争是不够的，我们不能像奥巴马多年前在南中国海扩张和网络安全问题那样，听信习主席的任何承诺。结果呢？尽管习主席说，是的，他会考虑到这点，他会抑制他的行为——这是我的话，而不是他的话。他做了什么？他反而变本加厉……我们要做的是观察他们的所作所为……我们需要做的是确保这不会导致军事对抗和冲突。这就是中共当面一套背地里又一套的行为。
+
+（原文完）
+
+文贵先生早就告诫过西方，只要你与中共坐下来谈，你就输了，他们会承诺你要求的一切，到头来什么也不会做。迄今为止，那些以中共作出的承诺来影响美国决策的官员、政客，不是有通共嫌疑，就是智商不够，然而，这样的人在美国大有所在，的确需要基恩将军这样的声音出来。
+
+原文链接：
+
+[https://www.foxnews.com/media/gen-keane-urges-us-to-send-message-to-china-that-their-aggression-will-be-confronted-countered](https://www.foxnews.com/media/gen-keane-urges-us-to-send-message-to-china-that-their-aggression-will-be-confronted-countered)
 
  
 
