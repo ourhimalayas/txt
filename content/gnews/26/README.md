@@ -2,35 +2,68 @@
 ---
 
 
-## 班农先生：我永远不会退缩
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669771/)
+## 三孩子结伴跳楼
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1669787/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-美东时间11月15日下午，班农在结束了国会的调查后，接受媒体采访。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-16-下午11.41.02.png)
-班农说：拜登下令梅里克起诉我，对我无端调查，这是梅里克、佩洛西和拜登犯下的地狱般的罪行；现在，我们已经厌倦了防守，我们要顺势而为，就此展开攻势。
+作者: 纽约香草山农场-新世界的一员
 
-班农还对他的支持者说，我们正在做的，是对抗非法的拜登政权，永远不要让这里的噪音掩盖了真正的信息。我们每天都要重拳出击，在盖特上发出我们的声音。美国的觉醒者应该认清中共的本质，要坚决和中国老百姓站在一起，消灭邪恶的中国共产党。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
 
-参考链接：
-1）[https://twitter.com/newsmax/status/1460340206574448661?s=21](https://twitter.com/newsmax/status/1460340206574448661?s=21)
-2）[https://gettr.com/post/ph00mp2aff](https://gettr.com/post/ph00mp2aff)
-3）[https://gettr.com/post/ph07vs2b12](https://gettr.com/post/ph07vs2b12)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-总编：Ivy001
-编辑：Lakeman (文仁)
-校正/发稿：呼吸的雾霾（文小呼吸）
+
+
+今天一大早翻朋友圈，翻看到昨天网友转发的新闻，里面竟是几个孩子跳楼的照片！
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/20-1.png)
+
+你能想象到一张照片中的人像下饺子一样连续掉落下去的情景吗？这怎是一句揪心能表达的？笔者又翻到下一个视频：地上两个孩子基本没有反应了，只看到一个孩子的手还在动。震惊、心痛、揪心的难过，是每一个善良人的第一感受！
+
+据网友爆料，两个孩子是江苏启东实验小学六年级的学生，下午4点多放学，3名孩子相约从五楼往下跳楼，当场2个死亡，一个尚在抢救，事故原因不明。
+
+据网传的启东公安要情称，11月15日16时56分，市公安局接到报警称，在汇龙镇实验小学D楼前，有3名学生坠楼。经初步了解，系该校六（一）班吴某某（女，11岁），陈某某（女，11岁），张某某（女，11岁）从该校D楼坠落，现3人已送至人民医院救治。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/20-2.png)
+
+跳楼新闻及视频一出，各层人心动荡，随即共产党的官宣新闻也来了，说三名孩子经过抢救生命体征平稳。笔者感到讶异，才一个晚上五楼堕落的孩子的生命体征都平稳了？笔者上班时，听几个阿姐也在说三个孩子跳楼的事，说还好抢救过来了，笔者也祈祷孩子们都平安健康早回学校。唯一担忧的怕是中共国内没有真相。
+
+启东属于江苏南通市，是比较发达开明的地方，作为实验小学应该属于中心学校，听说师资也不错，究竟为何发生如此惨烈的事情？有网友评论：‘瞎话没有编好，所以内情不便透露“!
+
+十一二岁的女孩子，正是无忧无虑的时候，是什么样的焦虑和压抑，导致丢下疼爱自己的爸妈选择如此极端的行为？答案是中国共产党掐灭了孩子们的希望！天快亮了，孩子却等不到太阳出来了……
+
+《中国儿童自杀报告》指出∶ 中国儿童的自杀率居世界第一，每年约有 10 万名青少年死于自杀。而所有的调查都指出∶青少年自杀高发的大部分原因都与课业压力大有关。
+
+中共治理下的教育体制，强调的是分数教育模式。高昂的教育成本，让父母无意中增加了孩子的压力。另外，共产党的洗脑教育系统，让孩子们在学校无法得到自由良好的教育；繁重的课业压力，让孩子没有了发挥个人特长的机会！因为孩子的压力得不到正确的引导，在成长中也没有健康的心灵做基石，导致孩子对未来缺少信心、缺少自信。最终，在摧残式的洗脑教育下，孩子选择了一种极端回避的方式结束自己如花的生命。一切根源，在于这个摧残人性的共产体制！
+
+在恶毒的共产党统治下，学校早已不是书声琅琅的心灵净土，更不是学习圣地。它变成了伤害孩子的污染地！如果连学习都不能自由，天生的个性被压制在框框条条和分数线中，哪来的健全人格？没有健康的思想没有良好的教育环境，是悲剧的起因。
+
+结伴坠楼，相约自杀！如果这不是个案，而是诺干案件中的特殊一例，这就不单单是个人及家庭的问题了。中共国的孩子们都有厌学情绪、迷惘心态，还有严重的恐考症的普遍现象！
+
+中共不灭，老有老灾难，少有少灾难！底下的老百姓在跳楼，而共产党在老百姓用血染红的地上依然高歌跳舞。然而事实的真相是掩饰不住的！中共粉饰的盛世美颜，在新中国联邦的引领下，早愚弄不了民众。水能载舟，亦能覆舟！共产党，你完了！
+
+(本文仅代表作者观点)
+
+参考链接：[https://www.163.com/dy/article/GOTTSLVP05503FCU.html?f=post2020\_dy\_recommends](https://www.163.com/dy/article/GOTTSLVP05503FCU.html?f=post2020_dy_recommends)
+
+校对/编辑/发稿: Amanda艾曼达
+终审：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-5.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
