@@ -2,43 +2,19 @@
 ---
 
 
-## 澳大利亚电信公司Telstra称5G不能替代NBN
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1668698/)
+## 美国法院禁止令，是天大的事，结束人类灾难的开始！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1668703/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+文编：东京樱花团/樱花传媒
+视频：东京樱花团/中文小视频组
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Telstra-5G-1.png)
+11月7日，郭文贵先生在GTV大直播指出：
 
+11月5日发起的疫苗禁止令，阻止了疫苗对人类的杀戮，这是天大的事！我们要看事情本质，美国这个国家不行动，世界疫苗停不下来！这一切都是行动的结果，这也是法治基金捐款者的伟大，因为捐款，法治基金法治社会才能合法的支持这些人的诉讼！今天穿着这个长袍，就是为了纪念又一个像419伟大时刻的到来！
 
-
-图片来源：www.channelnews.com.au
-
-
-#### 编译：小红帽
-
-澳大利亚电信公司（Telstra）本月初正式推出了5G家庭和商业互联网服务，当时它说这是“快得令人难以置信的互联网”。
-
-这家电信公司的5G家庭互联网承诺让很多人同时观看一部4K电影，进行视频电话，并下载一个新的Xbox游戏。但今天，它告诉我们5G并不是NBN的替代品。
-
-澳大利亚电信公司在周二举行的投资者日上提出，其家用5G套件并不适合替代NBN。
-
-该电信公司负责网络和IT的集团执行官尼科斯·卡蒂纳基斯（Nikos Katinakis）介绍了Telstra的5G覆盖范围，重申Telstra目前覆盖了超过75%的澳大利亚人，其目标是在2025年前覆盖95%的澳大利亚人。
-
-但他也表示，5G不是NBN的替代品，而是针对不适合NBN而适合5G宽带的客户。
-
-虽然澳洲电信的5G家庭和商业互联网服务可能比其NBN 50计划的价格要低，但该电信公司反对将5G完全作为NBN的替代品。
-
-**参考新闻：**[Telstra Says 5G Is Not a Replacement for NBN (msn.com)](https://www.msn.com/en-au/news/techandscience/telstra-says-5g-is-not-a-replacement-for-nbn/ar-AAQKQom?ocid=msedgntp)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

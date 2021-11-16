@@ -2,30 +2,18 @@
 ---
 
 
-## 中共国&#8221;动态清零&#8221; 大连八十万人被困家中
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1668767/)
+## 美国宇航局对俄罗斯导弹试验的愤怒
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1668783/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-10.jpg)中共国”动态清零” 大连八十万人被困家中 网络图片
-据自由亚洲电台11月15日报道，中共国最近确诊新冠肺炎122例，绝大部分在大连市，导致当地八十万人在家隔离。卫健委高官称，中共国疫情防控坚持“动态清零”，而不是“零感染”，即疫情发现一起就扑灭一起。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11161.jpg)图片来自esa.int
+11 月 16 日 – 美国航天局美国宇航局对俄罗斯的导弹试验表示愤慨，该试验导致一团碎片云使国际空间站处于危险之中。
 
-中共国疫情防控的所有动作都带有政治性，都是面子工程。关键是还有三个月就要举行冬季奥运会。隔离就能清零、能控制病毒传播吗？不可能。在全球逐步将疫情看作流行病的时候，中共国搞口号政治，人们成了疫情的工具，既要隔离，又要打疫苗。
+美国宇航局的谴责是在拜登政府谴责之后几个小时发出的，拜登政府也通过国务院谈到了这是一次危险且不负责任的测试。
 
-把老百姓当奴隶剥削的时代因疫情结束了，中共紧接着又开发了一条生财之道：疫情经济。 核酸检测、自费强制隔离、疫苗、居民因隔离抢购生活用品，都能为地方政府带来经济利益。“疫情经济”成为目前中共国最赚钱的生意。天道有轮回，命运由天定。中共用人命赚的钱，早晚拿命来偿还。
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/16/ira-della-nasa-per-il-test-missilistico-della-russia\_aa61ced8-37a3-4a91-8a88-f16580010c14.html](https://www.ansa.it/sito/notizie/topnews/2021/11/16/ira-della-nasa-per-il-test-missilistico-della-russia_aa61ced8-37a3-4a91-8a88-f16580010c14.html)
 
-新闻参考链接：[https://www.rfa.org/mandarin/yataibaodao/huanjing/ql1-11152021055400.html](https://www.rfa.org/mandarin/yataibaodao/huanjing/ql1-11152021055400.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 
