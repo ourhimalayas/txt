@@ -2,10 +2,10 @@
 ---
 
 
-## NBA要求月底完成加强针 否则视同未接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669604/)
+## 17岁天才滑雪选手因中共病毒疫苗副作用遭“淘汰”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669628/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：英国喜庄园 – I770775
 
 
 
@@ -13,19 +13,18 @@
 
 
 
-美国国家篮球协会与NBA在11月12号的一份备忘录中说，球员和教练必须“尽快接受加强针的注射”。“尽快”，很大程度是指在12月1号之前。
+秘密翻译组11月12日消息，挪威著名的越野滑雪天才选手丹尼尔，因接种中共病毒疫苗出现严重反应被 “淘汰”，暂停其赛季。
 
-NBA称，已经有至少8名球员的病毒检测呈阳性。CDC一直认为NBA的社区传播风险很“高”，随着时间的推移，对delta病毒的免疫力也会下降，因此篮球协会要求球员注射加强针，拒绝接受的将一律被视为未完全接种疫苗 。目前约97%的NBA球员接种了中共病毒疫苗。
+丹尼尔今年只有 17 岁，曾取得两届赛事比赛的优秀成绩。几个月前，他接种第一剂疫苗后身体出现了血液样本的异常，不得不暂停了他的赛季。
 
-NBA中，最引人关注的抵制者是布鲁克林的凯里·欧文，他是一名常年入选的全明星队员，却因不愿打疫苗而被球队停赛数周。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.3-3.jpg)
+丹尼尔说，不确定什么时候能够再次参加最高水平的比赛，因为他的身体目前只能做一些低强度的康复训练。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-90.jpg)
 参考链接：
-[In memo, NBA tells players and coaches to act on booster shots](https://www.nba.com/news/in-memo-nba-tells-players-and-coaches-to-act-on-booster-shots)
+[挪威著名越野滑雪天才因接种中共病毒疫苗被 “淘汰’’](https://gettr.com/post/pgyypre4e8)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-总编：Jack Li文阳
-编辑：AN
+总编/编辑：木白
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
