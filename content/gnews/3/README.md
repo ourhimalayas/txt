@@ -2,41 +2,40 @@
 ---
 
 
-## Meta因Facebook被俄亥俄州检察长起诉
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1668830/)
+## 塔利班统治下的阿富汗童婚现象日见增多
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1668862/)
 
-**翻译：西班牙巴塞罗那喜悦农场-wenwu**
+撰稿：Jenny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_2061-2.jpg)截图自原文
+为了养活家里其他孩子， 阿富汗家庭把年幼女儿卖给大年龄男人的趋势在上升。
+据当地记者报道，在塔利班重新控制阿富汗之前，童婚一直是个问题，但现在变得更加突出和公开。联合国预测，如果人道危机得不到解决，到2022年年中，97%的阿富汗人将生活在贫困线以下。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-325.png)图片来源 wsj.com
+上周初，CNN独家专访了一名9岁的女孩Parwana，她的父亲以及购买她的那位55岁的中年男人。
 
-俄亥俄州总检察长戴夫·约斯特（Dave Yost）起诉 [Meta Platforms](https://www.wsj.com/market-data/quotes/FB)Inc.（ [FB1.96%](https://www.wsj.com/market-data/quotes/FB?mod=chiclets)），该公司前身为 Facebook Inc.，其指控该公司在如何控制其算法以及其产品对儿童的影响方面，误导了公众。
+他们告诉CNN他们没有选择，只能将年幼的女儿卖给这种扭曲的婚姻。
 
-俄亥俄州总检察长 Dave Yost 在一份声明中表示，这起诉讼是代表 Meta 公司的投资者和俄亥俄州公共雇员退休系统提起的，要求赔偿 1000 多亿美元，并要求 Meta 公司做出重大改变，以便不再误导投资者。
+9岁的女孩Parwana和父亲及一家人住在流离失所者营地， 冒著极大的风险面对镜头接受采访。他说：“ 我没有钱没有食物，我不得不卖掉女儿，我别无选择”。
 
-Meta 发言人乔·奥斯本 (Joe Osborne) 表示：“这起诉讼没有法律依据，我们将积极为自己辩护。”
+55岁的老男人花了$2000多美元买下了Parwana.
 
-该诉讼称，在 2021 年 4 月 29 日至 10 月 21 日期间，Facebook 及其高管违反了联邦证券法，在其公司的产品对未成年人的负面影响方面是故意误导公众，以提升其股票并欺骗股东。
+半数以上阿富汗人口不知道他们的下一餐在哪里。卖掉Parwana的钱可以帮助家里其他孩子解决吃饭问题。
 
-“Facebook 说它正在盯着我们的孩子，并清除了网络社区中归类到公司不喜欢让孩子看到的言论（洗脑），但该公司实际上是在为了利润而制造痛苦和分裂，”共和党人 Yost 先生说。
+2018年7月29日，联合国儿童基金会曾在其官方网站上发布消息说，阿富汗近年来的童婚率有所下降，但童婚现象仍较严重。前阿富汗政府为加大了对儿童权益的保护力度，规定女性在16岁以下、男性在18岁以下的婚姻均属违法行为。
 
-“真相于 2021 年 9 月 13 日开始浮出水面，当时《华尔街日报》发表了一系列文章中的第一篇，也就是‘Facebook 档案’。”该诉讼称，指的是《华尔街日报》的报道显示，该公司知道其平台充满了会造成伤害的缺陷。
+自8月15日塔利班宣布正式接管阿富汗后，虽然美国已承诺提供10亿美元帮助阿富汗人民，但由于塔利班的统治和国际多数人拒绝承认恐怖分子在该国的领导地位， 因此只提供了一半。预计这个冬季，将有超过3百万5岁以下的儿童将面临营养不良。所以妇女，儿童和饥饿这些人道灾难的大爆发也只是时间问题。
 
-在[Facebook](https://www.wsj.com/articles/the-facebook-files-11631713039?mod=article_inline)[的档案](https://www.wsj.com/articles/the-facebook-files-11631713039?mod=article_inline)系列报道显示，该公司知道它的照片分享应用程序 Instagram 对一些少女有害，以及其他一些事情。
+（本文纯属个人观点，与Gnews 无关）
 
-Yost 先生说，这些爆料导致 Facebook 股价下跌 54.08 美元，并导致俄亥俄州公共雇员退休系统和其他 Facebook 投资者损失超过 1000 亿美元。
+原文翻译：Julie（文蕾）
 
-2021 年 5 月，Yost 先生和来自其他 43 个州和地区的总检察长以行为和隐私问题为由，[敦促当时的](https://www.wsj.com/articles/state-prosecutors-add-to-warnings-about-instagrams-child-safety-plans-11620662601?mod=article_inline)[Facebook](https://www.wsj.com/articles/state-prosecutors-add-to-warnings-about-instagrams-child-safety-plans-11620662601?mod=article_inline)放弃为 13 岁以下儿童开发建立 Instagram 应用程序的计划。
+编辑发布：Jenny
 
-9 月，在越来越多的[两党政治压力下](https://www.wsj.com/articles/facebooks-efforts-to-attract-youths-come-under-senate-scrutiny-11632994201?mod=article_inline)，该公司表示将暂停该项目。[此举](https://www.wsj.com/articles/facebook-pauses-instagram-kids-project-11632744879?mod=article_inline)是在《华尔街日报》关于 Instagram 如何伤害一些少女的报道发表后，不到两周。
+[原文链接：](https://www.redvoicemedia.com/2021/11/young-children-sold-to-older-men-on-the-rise-in-afghanistan-as-families-use-daughters-sales-to-feed-other-children/)
 
-Facebook 吹哨人弗朗西斯·豪根 (Frances Haugen) 披露的消息，也[加速](https://www.wsj.com/articles/facebook-documents-accelerate-eu-push-to-regulate-social-media-11636399889?mod=article_inline)了欧盟对大型科技公司实施全面新限制的[努力](https://www.wsj.com/articles/facebook-documents-accelerate-eu-push-to-regulate-social-media-11636399889?mod=article_inline)。
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
 
-**新闻来源：**[wsj.com][Ohio Sues Meta Alleging Facebook Parent Misled Public About Its Products’ Effect on Children](https://www.wsj.com/articles/ohio-sues-meta-alleging-facebook-parent-misled-public-about-its-products-effect-on-children-11637011332)
 
-* * *
-
-*发稿**：**Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
