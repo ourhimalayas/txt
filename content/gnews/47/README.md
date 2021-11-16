@@ -2,37 +2,40 @@
 ---
 
 
-## 拜登家族及其政治网络与中共有着深度合作
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1668297/)
+## 近5万名医保患者在接种新冠疫苗后不久死亡
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1668181/)
 
-韩国首尔天池农场
-翻译：zzballack
-上传：追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-16-at-13.28.28.jpeg)图为(Andy Wong-Pool/Getty Images)
-2013年12月5日左一为亨特·拜登，前副总统拜登在北京
-在美国总统乔·拜登将和习近平进行视频会晤前夕，《真正美国之声》11月15日刊文梳理了拜登家族及其政治网络与中共的金融关系。拜登家族和中共有着很长的合作历史。拜登一直将中共称作是竞争对手，而非坏人和敌人。数年前，其儿子亨特·拜登与中共合作，资助其核技术。
+![Whistleblower: Nearly 50,000 Medicare patients died soon after getting Vaccine](https://thinkcivics.com/wp-content/uploads/2021/09/MicrosoftTeams-image-1-810x500-1-750x375.png)*举报人托马斯·伦茨（Thomas Renz）*
+举报人称：近5万名医保患者在接种新冠疫苗后不久死亡
 
-2000年，时任美国参议院外交关系委员会（Foreign Relations Committee）首席民主党成员的乔·拜登呼吁与中共国建立正常贸易关系。中共国自2001年加入世贸组织以来，美国有370万个工作岗位转移到了中共国，制造业基础被掏空，这降低了美国的竞争力，减缓了创新，使得美国依赖的供应链被中共控制，包括国防的关键材料。
+据托马斯·伦茨（Thomas Renz）律师称，一位举报人提供的政府数据显示，仅在医保患者中，就有48465人在接种新冠疫苗后14天内死亡。
 
-在奥巴马政府时期，时任美国副总统的拜登推动允许由中共控制和拥有的中共国公司在美国证券交易所上市。目前，在美国三大交易所上市的中共国公司有248家，总市值达到了2.2万亿美元。这意味着中共能够从美国的公民、机构、私人投资者以及养老基金获得巨额资金。
+（伦茨在演讲中播放的）一张幻灯片显示，在“接种新冠疫苗后14天内死亡的人数”中，81岁以下的人群为19400人，81岁及以上的人群为28065人，共计48465人。
 
-中共病毒大流行初期，当川普总统颁布对中共国的旅行禁令时，拜登称川普有“仇外心理”。
+“这是原始数据。没有分析，并且这些死亡数字仅来自不到20%的美国人口。”
 
-拜登任命的几位官员，以及他的儿子亨特，都与中共有经济往来。
+“你想知道为什么14天这么重要吗？因为如果你在14天内死亡，你就不算是接种了疫苗。”根据疾病控制与预防中心（CDC）的说法，注射第一针不算接种了疫苗，只有在打完第二针的14天后才算“接种了疫苗”。
 
-国务卿安东尼·布林肯 (Antony Blinken) 共同创立的咨询公司WestExec Advisors，其工作之一是在美国公司和学术机构与中共之间牵线搭桥。该公司在其官网吹嘘说它曾帮助美国大学从中共国获得资金。现任国家情报总监埃夫丽尔·海恩斯 (Avril Haines)和白宫新闻秘书珍·普萨基 (Jen Psaki)也曾在该公司工作。
+原文链接：[https://thinkcivics.com/whistleblower-nearly-50000-medicare-patients-died-soon-after-getting-vaccine/](https://thinkcivics.com/whistleblower-nearly-50000-medicare-patients-died-soon-after-getting-vaccine/)
 
-印太政策协调员、“亚洲沙皇”库尔特·坎贝尔 (Kurt M. Campbell)之前曾担任中共影响力团体美中强健基金会（U.S.-China Strong Foundation）的董事会副主席，该基金会与孔子学院和中共统战部都有关联。
+简评：
 
-亨特·拜登与中共政府实体保持着长期的商业合作，他从中赚取了数百万美元。参议院联合委员会（Joint Committee）的一份报告称，在乔·拜登担任美国副总统期间，亨特利用其父亲的地位，通过与中共的国有银行建立密切联系来增加自己的财富。
+CDC将接种新冠疫苗后14天内的死亡，都计算为非疫苗引起的死亡，这样混淆概念的做法即荒谬又无耻。这篇短文所揭露的数据，也是现在全球性疫苗灾难的冰山一角。而在这样艰难的情况下，我们更是要感谢那些不畏艰险阻力，为公众们提供真相的吹哨人们。
 
-2013年12月，亨特在陪同其父亲访华10天后，其投资的私募基金渤海华美(BHR Partners)在上海注册成立，亨特被列为董事会成员。渤海华美80%的股份由中共政府的股东控制。《纽约邮报》将渤海华美称为亨特的美国公司罗斯蒙特‧塞内卡（Rosemont Seneca）和中共中央银行（BOC）之间的合资企业。
+翻译：Kone\_Neko
 
-2015年，渤海华美与中国航空工业集团（AVIC）联合收购了美国的军民两用零部件制造商亨尼格斯（Henniges）。渤海华美还投资了专注于面部识别技术的中共国公司旷视科技 (Megvii)，该公司被美国政府列入贸易黑名单。
+PR：Julia Win
 
-中广核集团（（CGN））也获得了渤海华美的投资。该公司被美国司法部指控在未获美国能源部必要授权情况下，密谋非法生产和开发核材料。中广核及其三个子公司还被指控试图窃取美国的军事技术。
+* * *
 
-[新闻来源](https://americasvoice.news/justthenews/monnot-bad-folks-financial-ties-link-biden-family-political/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
