@@ -2,12 +2,18 @@
 ---
 
 
-## 泽连科：早期治疗能降低85%的住院和死亡率（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1667852/)
+## [文贵先生大直播PPT]班农先生被美国司法部起诉
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1668002/)
 
-11/02/2021 泽连科医生：疾控中心的中共肺炎治疗方案告诉医生，在病人发展成肺部并发症之前不要对其进行治疗。这与数十项研究的观察结果所表明的早期治疗能降低85%的住院和死亡率不符，所以是政府想让人们去死。
+撰稿：铲共骑侠，伞兵
+审核：三票先生 选票地票言票，顽童2017
+PPT制作：Bobby（文俊） 健身建心（文阳）
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+【2021年11月14日文贵先生大直播PPT：班农先生被美国司法部起诉】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-113.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-85.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-73.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-51.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-39.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-27.jpg)
+* * *
+
+发稿：云起时
 
  
 

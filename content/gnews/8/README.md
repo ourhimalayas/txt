@@ -2,15 +2,38 @@
 ---
 
 
-## 【文贵先生大直播PPT】共同富裕？全球危机！喜币独好！
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1668135/)
+## 拜登家族及其政治网络与中共有着深度合作
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1668297/)
 
-撰稿：泰山，Nine Lee
-PPT制作： sotres ，青山
-文案终审： 三票先生 选票地票言票，顽童2017
+韩国首尔天池农场
+翻译：zzballack
+上传：追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-16-at-13.28.28.jpeg)图为(Andy Wong-Pool/Getty Images)
+2013年12月5日左一为亨特·拜登，前副总统拜登在北京
+在美国总统乔·拜登将和习近平进行视频会晤前夕，《真正美国之声》11月15日刊文梳理了拜登家族及其政治网络与中共的金融关系。拜登家族和中共有着很长的合作历史。拜登一直将中共称作是竞争对手，而非坏人和敌人。数年前，其儿子亨特·拜登与中共合作，资助其核技术。
 
-【2021年11月14日文贵先生大直播PPT：共同富裕？全球危机！喜币独好！】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/31-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/32.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/33.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/34-1.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/35-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/36.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/37.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/38.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/39.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/40.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/41.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/42.png)
+2000年，时任美国参议院外交关系委员会（Foreign Relations Committee）首席民主党成员的乔·拜登呼吁与中共国建立正常贸易关系。中共国自2001年加入世贸组织以来，美国有370万个工作岗位转移到了中共国，制造业基础被掏空，这降低了美国的竞争力，减缓了创新，使得美国依赖的供应链被中共控制，包括国防的关键材料。
+
+在奥巴马政府时期，时任美国副总统的拜登推动允许由中共控制和拥有的中共国公司在美国证券交易所上市。目前，在美国三大交易所上市的中共国公司有248家，总市值达到了2.2万亿美元。这意味着中共能够从美国的公民、机构、私人投资者以及养老基金获得巨额资金。
+
+中共病毒大流行初期，当川普总统颁布对中共国的旅行禁令时，拜登称川普有“仇外心理”。
+
+拜登任命的几位官员，以及他的儿子亨特，都与中共有经济往来。
+
+国务卿安东尼·布林肯 (Antony Blinken) 共同创立的咨询公司WestExec Advisors，其工作之一是在美国公司和学术机构与中共之间牵线搭桥。该公司在其官网吹嘘说它曾帮助美国大学从中共国获得资金。现任国家情报总监埃夫丽尔·海恩斯 (Avril Haines)和白宫新闻秘书珍·普萨基 (Jen Psaki)也曾在该公司工作。
+
+印太政策协调员、“亚洲沙皇”库尔特·坎贝尔 (Kurt M. Campbell)之前曾担任中共影响力团体美中强健基金会（U.S.-China Strong Foundation）的董事会副主席，该基金会与孔子学院和中共统战部都有关联。
+
+亨特·拜登与中共政府实体保持着长期的商业合作，他从中赚取了数百万美元。参议院联合委员会（Joint Committee）的一份报告称，在乔·拜登担任美国副总统期间，亨特利用其父亲的地位，通过与中共的国有银行建立密切联系来增加自己的财富。
+
+2013年12月，亨特在陪同其父亲访华10天后，其投资的私募基金渤海华美(BHR Partners)在上海注册成立，亨特被列为董事会成员。渤海华美80%的股份由中共政府的股东控制。《纽约邮报》将渤海华美称为亨特的美国公司罗斯蒙特‧塞内卡（Rosemont Seneca）和中共中央银行（BOC）之间的合资企业。
+
+2015年，渤海华美与中国航空工业集团（AVIC）联合收购了美国的军民两用零部件制造商亨尼格斯（Henniges）。渤海华美还投资了专注于面部识别技术的中共国公司旷视科技 (Megvii)，该公司被美国政府列入贸易黑名单。
+
+中广核集团（（CGN））也获得了渤海华美的投资。该公司被美国司法部指控在未获美国能源部必要授权情况下，密谋非法生产和开发核材料。中广核及其三个子公司还被指控试图窃取美国的军事技术。
+
+[新闻来源](https://americasvoice.news/justthenews/monnot-bad-folks-financial-ties-link-biden-family-political/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

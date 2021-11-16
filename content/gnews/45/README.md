@@ -2,30 +2,25 @@
 ---
 
 
-## 新中国联邦人将是找到生命和信仰真相的人类新群体
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666980/)
+## 中共统战部是否在影响美国政治
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1667328/)
 
-作者：英国喜庄园 – I770775
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月14日的“文贵大直播”中，在谈到宗教和信仰时，郭先生说，人类不需要任何作为信仰的中介的宗教，但人类需要信仰。信仰就是要理解人生最根本的意义。即你为什么来到这个世界? 你是怎么来到这个世界的? 你未来会去向何方? 你怎么能去到你想去的地方?……而所谓的宗教，其实是搭建在你和信仰之间的各种中介。实际上，真正的信仰，不需要任何宗教。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-15.jpg)
-郭先生感叹说，信仰是目前新中国联邦人最模糊的一个问题，也是最需要思考面对的问题，因为信仰是终极问题，其他方面的问题都是解决信仰问题的中间过程。人类尤其是被CCP统治过的中国人，对自己过去和现状的判断以及对未来的认知，基本上已经被脑控了。现存的各种宗教没有一个适合于新中国联邦人的，新中国联邦人会找到人类真正的生命和信仰真相。
+撰稿：西枫westca
 
-参考链接：[新中国联邦人将是找到生命和信仰真相的人类新群体](https://gtv.org/video/id=61910d9be7e770379234d270)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/page-header.jpg)图片来源：www.kcrw.com
+国家脉动专栏作者娜塔莉温特斯11月15号署文披露：众议员亚当·希夫 (Adam Schiff) 在中美交流基金会赞助的一次活动中，会见了一名中共负责对外影响事务的前中共官员。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+加州民主党的众议员希夫在2009年10月在华盛顿会见了由中美交流基金会（CUSEF）安排的与中共负责对外事务的官员徐匡迪的会面。在此之后，他成为了川普通俄门、弹劾丑闻的主要支持者。 近来作为1月6日违宪活动委员会的主要成员，他的注意力转向了前总统川普的竞选团队负责人史蒂夫班农——著名的“反中鹰派”人士。这带来一个疑问，作为加利福尼亚州第28届国会选区的国会议员是否正在努力平息批评中国共产党的人士。
 
-总编：Jack Li文阳
-编辑：AN
-校对/发稿：Hetangyuese
+中美交流基金会（CUSEF）的网站显示，它 “赞助 “了中共官员徐匡迪对美国的访问，包括在华盛顿特区停留。该基金会简称 “CUSEF”，因寻求 “影响外国政府采取支持北京首选政策的行动或立场 “而被美国政府标记。它是中共用来对付美国精英的几个统一战线团体中的一个。中国政府利用它来 “收编和化解可能反对其执政的中国共产党的政策和权威的来源”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+徐匡迪原为前上海市市长，还担任过中国人民政治协商会议副主席，这是监督中国有争议的“统战部 ”的“最高级别实体”。他在美期间，还会见众议员亚当·希夫（D-CA）、众议员大卫·吴（D-OR）和智库代表。
+
+《国家脉搏》此前曾透露，根据外国代理人登记法 (FARA) 文件，CUSEF如何通过提供免费前往中国的旅行获得美国记者和前国会议员的“有利报道”。 这些旅行是 CUSEF 更广泛努力的一部分，旨在“向媒体、关键影响者和意见领袖以及公众有效传播关于中国共产党的积极信息”。
+
+**新闻来源：**[REVEALED: Rep. Adam Schiff Met With Former Chairman Of Chinese Communist Party’s Foreign Influence Operations. (thenationalpulse.com)](https://thenationalpulse.com/news/schiff-met-with-ccp-influence-group/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

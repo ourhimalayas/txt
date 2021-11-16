@@ -2,34 +2,30 @@
 ---
 
 
-## 跌跌不休，中共国新房二手房都在跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1666406/)
+## 新中国联邦人将是找到生命和信仰真相的人类新群体
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1666980/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11111111111-1.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fimg-other.jiwu.com%2Fnews%2F2021%2F05%2F17%2F181315316538.jpg%2Fnewsx&amp;imgrefurl=http%3A%2F%2Fcd.jiwu.com%2Fnews%2F4776067.html&amp;tbnid=MZ0Q0OVoP936-M&amp;vet=12ahUKEwj9_6y1v5r0AhUFzaACHZ7kDAsQMygBegUIARCdAQ..i&amp;docid=XQPBcYpDnm-JXM&amp;w=646&amp;h=415&amp;itg=1&amp;q=%E6%88%BF%E4%BB%B7%E4%B8%8B%E8%B7%8C&amp;ved=2ahUKEwj9_6y1v5r0AhUFzaACHZ7kDAsQMygBegUIARCdAQ)
-11 月 15 日，中共国国家统计局公布 10 月 70 个大中城市商品住宅销售价格变动情况。70 个大中城市商品住宅销售价格环比总体延续下降态势，同比涨幅继续回落。
+作者：英国喜庄园 – I770775
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月14日的“文贵大直播”中，在谈到宗教和信仰时，郭先生说，人类不需要任何作为信仰的中介的宗教，但人类需要信仰。信仰就是要理解人生最根本的意义。即你为什么来到这个世界? 你是怎么来到这个世界的? 你未来会去向何方? 你怎么能去到你想去的地方?……而所谓的宗教，其实是搭建在你和信仰之间的各种中介。实际上，真正的信仰，不需要任何宗教。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-15.jpg)
+郭先生感叹说，信仰是目前新中国联邦人最模糊的一个问题，也是最需要思考面对的问题，因为信仰是终极问题，其他方面的问题都是解决信仰问题的中间过程。人类尤其是被CCP统治过的中国人，对自己过去和现状的判断以及对未来的认知，基本上已经被脑控了。现存的各种宗教没有一个适合于新中国联邦人的，新中国联邦人会找到人类真正的生命和信仰真相。
 
-**70 ****城中 52 城新房价格环比下跌**
+参考链接：[新中国联邦人将是找到生命和信仰真相的人类新群体](https://gtv.org/video/id=61910d9be7e770379234d270)
 
-根据中共国国家统计局公布的 10 月数据，一线城市新建商品住宅销售价格环比持平，北京和上海环比分别上涨 0.6% 和 0.1%，广州和深圳分别下降 0.3% 和 0.2%。二线城市新房价格环比由上月持平转为下降 0.2%；三线城市则环比下降 0.3%，降幅比上月扩大 0.1 个百分点。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-房价的走势从下跌城市的数量变化中体现得更为明显。**全国 70 个大中城市中，新房价格出现环比下跌的城市数量为 52 个**，相比 9 月的 36 个明显增多。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2222222.jpg)
-**70 ****城中 64 城二手房价环比下跌**
+总编：Jack Li文阳
+编辑：AN
+校对/发稿：Hetangyuese
 
-相比于更受关注的新房，目前二手房市场的降温现象其实更为明显。中共国国家统计局数据显示，10 月一线城市二手住宅销售价格环比下降 0.4%，与上月相同，北京、上海、广州和深圳环比分别下降 0.5%、0.4%、0.6% 和 0.2%。二线城市二手住宅销售价格环比下降 0.3%，降幅比上月扩大 0.2 个百分点；三线城市二手住宅销售价格环比下降 0.3%，降幅比上月扩大 0.1 个百分点。
-
-从降价城市数量看，10 月二手房房价环比下跌的城市数量达到了 64 个，即有九成左右的城市出现了明显的降价现象。这也说明，**这一波二手房的降温是全国范围性质的。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3333333333333.jpg)
-消息来源:
-
-[房价，在继续跌！](https://finance.sina.com.cn/chanjing/cyxw/2021-11-15/doc-iktzscyy5663515.shtml)
-
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

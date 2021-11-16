@@ -2,10 +2,10 @@
 ---
 
 
-## 鲍里斯·艾普斯汀：中共国更加集权和军事化准备攻击美国
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1666196/)
+## 中共国很可能是美国有史以来最难对付的对手
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1666198/)
 
-11/13/2021 鲍里斯·艾普斯汀：中共国更加军事化和集权准备攻击美国，而我们没有准备好。
+11/13/2021 鲍里斯·艾普斯汀：中共国很可能是美国有史以来最难对付的对手，甚至超过纳粹和苏联。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
