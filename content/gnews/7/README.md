@@ -2,41 +2,61 @@
 ---
 
 
-## Meta因Facebook被俄亥俄州检察长起诉
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1668830/)
+## 辉瑞疫苗摧毁美山地自行车冠军的职业生涯
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1668882/)
 
-**翻译：西班牙巴塞罗那喜悦农场-wenwu**
+编译：Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-16-102540.jpg)图片来源： newstarget.com
+美国29 岁的职业山地自行车手冠军凯尔·华纳 (Kyle Warner) 的生活和职业生涯都被辉瑞 (Pfizer) COVID-19 疫苗毁了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-325.png)图片来源 wsj.com
+这位三届全国耐力赛冠军得主，最近站出来讲述了他的健康如何被福奇流感疫苗破坏，导致他患上心包炎、直立不耐症（POTS）和反应性关节炎。
 
-俄亥俄州总检察长戴夫·约斯特（Dave Yost）起诉 [Meta Platforms](https://www.wsj.com/market-data/quotes/FB)Inc.（ [FB1.96%](https://www.wsj.com/market-data/quotes/FB?mod=chiclets)），该公司前身为 Facebook Inc.，其指控该公司在如何控制其算法以及其产品对儿童的影响方面，误导了公众。
+不用说，华纳的职业生涯已经结束。
 
-俄亥俄州总检察长 Dave Yost 在一份声明中表示，这起诉讼是代表 Meta 公司的投资者和俄亥俄州公共雇员退休系统提起的，要求赔偿 1000 多亿美元，并要求 Meta 公司做出重大改变，以便不再误导投资者。
+“感谢所有支持和理解我就这个问题发表意见的人，”华纳在Instagram帖子中写道。 “你们中的许多人都知道，我是一个非常理性和有爱心的人，我从来没有打算参与这个谈话。”
 
-Meta 发言人乔·奥斯本 (Joe Osborne) 表示：“这起诉讼没有法律依据，我们将积极为自己辩护。”
+“**然而，在我今年夏天的经历之后，听了成千上万个类似的故事，我觉得我需要为那些不能或无法访问同一平台的人站出来**。”
 
-该诉讼称，在 2021 年 4 月 29 日至 10 月 21 日期间，Facebook 及其高管违反了联邦证券法，在其公司的产品对未成年人的负面影响方面是故意误导公众，以提升其股票并欺骗股东。
+华纳强调，他的疫苗伤害与政治无关，它们是个人的，因为它们是真实的，并且毁了他的生活（相关链接：[CovidVaccineVictims.com documents heartbreaking stories of vaccine injures, deaths.](https://www.naturalnews.com/2021-09-27-covidvaccinevictims-com-documents-heartbreaking-stories-of-vaccine-injures-deaths.html))
 
-“Facebook 说它正在盯着我们的孩子，并清除了网络社区中归类到公司不喜欢让孩子看到的言论（洗脑），但该公司实际上是在为了利润而制造痛苦和分裂，”共和党人 Yost 先生说。
+他说：“我想要世界和人类最好的东西，看到人们以这种方式受苦，我的心都碎了。”
 
-“真相于 2021 年 9 月 13 日开始浮出水面，当时《华尔街日报》发表了一系列文章中的第一篇，也就是‘Facebook 档案’。”该诉讼称，指的是《华尔街日报》的报道显示，该公司知道其平台充满了会造成伤害的缺陷。
+“过去一周在华盛顿特区，彻底动摇了我对世界的看法，这让我意识到，我们作为普通人需要团结在一起，并相互倡导。”
 
-在[Facebook](https://www.wsj.com/articles/the-facebook-files-11631713039?mod=article_inline)[的档案](https://www.wsj.com/articles/the-facebook-files-11631713039?mod=article_inline)系列报道显示，该公司知道它的照片分享应用程序 Instagram 对一些少女有害，以及其他一些事情。
+华纳敦促他的追随者和粉丝，“在评判或贴标签之前”倾听他的故事和其他人的故事。 他说他只是一个“关心他人，并希望政府承认和支持实际发生的事情”的普通人。
 
-Yost 先生说，这些爆料导致 Facebook 股价下跌 54.08 美元，并导致俄亥俄州公共雇员退休系统和其他 Facebook 投资者损失超过 1000 亿美元。
+华纳认为辉瑞注射的是他的血管，而不是肌肉组织。
 
-2021 年 5 月，Yost 先生和来自其他 43 个州和地区的总检察长以行为和隐私问题为由，[敦促当时的](https://www.wsj.com/articles/state-prosecutors-add-to-warnings-about-instagrams-child-safety-plans-11620662601?mod=article_inline)[Facebook](https://www.wsj.com/articles/state-prosecutors-add-to-warnings-about-instagrams-child-safety-plans-11620662601?mod=article_inline)放弃为 13 岁以下儿童开发建立 Instagram 应用程序的计划。
+**华纳最严重的症状出现在第二剂辉瑞疫苗之后**，这导致他患上许多严重的慢性疾病，并继续遭受痛苦。
 
-9 月，在越来越多的[两党政治压力下](https://www.wsj.com/articles/facebooks-efforts-to-attract-youths-come-under-senate-scrutiny-11632994201?mod=article_inline)，该公司表示将暂停该项目。[此举](https://www.wsj.com/articles/facebook-pauses-instagram-kids-project-11632744879?mod=article_inline)是在《华尔街日报》关于 Instagram 如何伤害一些少女的报道发表后，不到两周。
+在 10 月份接受约翰·坎贝尔（John Campbell）博士的[采访](https://teamtuckercarlson.com/news/29-year-old-mountain-bike-national-title-winner-diagnosed-with-pericarditis-after-taking-pfizer-vaccine/)时，华纳解释了他在接受第二次注射后的感受。
 
-Facebook 吹哨人弗朗西斯·豪根 (Frances Haugen) 披露的消息，也[加速](https://www.wsj.com/articles/facebook-documents-accelerate-eu-push-to-regulate-social-media-11636399889?mod=article_inline)了欧盟对大型科技公司实施全面新限制的[努力](https://www.wsj.com/articles/facebook-documents-accelerate-eu-push-to-regulate-social-media-11636399889?mod=article_inline)。
+“他们一注射，我的嘴里就有一种奇怪的金属盐水味。我问那家伙，‘这正常吗？’他说不，他们没听说过这种反应，”华纳透露。
 
-**新闻来源：**[wsj.com][Ohio Sues Meta Alleging Facebook Parent Misled Public About Its Products’ Effect on Children](https://www.wsj.com/articles/ohio-sues-meta-alleging-facebook-parent-misled-public-about-its-products-effect-on-children-11637011332)
+“临床医生没有意识到，口腔中的金属味可能是无意中血管内注射的迹象，这一事实让我感到担忧，因为如果疫苗进入你的肌肉，它留在肌肉中， 至少需要半小时才能被全身吸收，或者更长时间。”
+
+华纳解释说，如果疫苗的药物被注射到血管中，几乎立即就会出现金属味。这件事发生在华纳身上的事实让他相信，辉瑞注射液被注射到了他的静脉中。
+
+“实际是你的心脏和关节有炎症反应，而不是被注射的手臂有反应，”他说。
+
+不久之后，华纳的心脏也出现了奇怪的反应，**包括心跳加速**。华纳观察到这一点，因为跟踪他的心率是他保持山地自行车健康的一部分。
+
+**可悲的是，华纳被注射的唯一原因是他想继续国际旅行**。如果没有这样的要求，他根本不会接受疫苗。
+
+华纳最近前往华盛顿特区，参加一个关于 COVID 注射不良反应的会议，**政府官员有系统地忽视了这些不良反应。**
+
+有关疫苗不良反应更多死亡和病例请点击链接查看[ChemicalViolence.com](https://chemicalviolence.com/).
+
+**点评：疫苗不是政治，关乎每个人的生命，但却被中共和邪恶势力政治化，制造了华纳和百万千万人的人类生死存亡的灾难。**
+
+**新闻来源**：[newstarget.com] [citizenfreepress.com](https://citizenfreepress.com/) / [naturalnews.com](https://naturalnews.com/) / [teamtuckercarlson.com](https://teamtuckercarlson.com/) / [Pfizer’s covid injection destroyed U.S. mountain biking champion’s entire life, career](https://www.newstarget.com/2021-11-14-pfizer-covid-injection-destroyed-mountain-biking-career.html)
 
 * * *
 
-*发稿**：**Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

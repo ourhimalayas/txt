@@ -15,137 +15,137 @@
 
 ---
 
-### [郭文贵盖特音频 2021.11.11](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [中共整治虚拟货币挖矿再出重拳](/content/gnews/1/README.md)
+ ` 儒为`
 
-### [辉瑞疫苗摧毁美山地自行车冠军的职业生涯](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [塔利班统治下的阿富汗童婚现象日见增多](/content/gnews/3/README.md)
- ` 澳喜农场`
-
-### [郭文贵盖特摘要和音频 2021.11.09](/content/gnews/4/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [战斗室和我们三次改变了世界，你们不知道意义有多大](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [安全的、合法的、智慧的享受你的财富还不失去你的币](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [Meta因Facebook被俄亥俄州检察长起诉](/content/gnews/7/README.md)
- ` wenwu`
-
-### [七哥兑现共享财富的承诺](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭文贵盖特音频 2021.11.15](/content/gnews/9/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [“老朋友”是“真朋友”吗?](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [供应链危机也有可能毁掉我们的圣诞节](/content/gnews/11/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [波兰将在与白俄罗斯的边界修建隔离墙](/content/gnews/12/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [中共国房企及地方政府融资平台债务暴雷已时日不多](/content/gnews/13/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国宇航局对俄罗斯导弹试验的愤怒](/content/gnews/14/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [中共国&#8221;动态清零&#8221; 大连八十万人被困家中](/content/gnews/15/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [Covid-19:研究人员揭发辉瑞疫苗试验中的数据完整性问题](/content/gnews/16/README.md)
+### [BBC主持人接种疫苗后未满一月，死于并发症](/content/gnews/2/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [DC大中华时事：中共警告美国假期过后或将出现新一波病例激增](/content/gnews/17/README.md)
+### [巴西总统雅伊尔·博尔索纳罗面对世卫组织负责人表示：“人们在疫苗第二剂后死亡”](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [拜登和习近平举行视频峰会](/content/gnews/4/README.md)
+ ` Shuizhuyu`
+
+### [你死不死啊](/content/gnews/5/README.md)
+ ` 银河勇气之星`
+
+### [郭文贵盖特音频 2021.11.11](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [喜联储对中共最大的威胁是什么](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [辉瑞疫苗摧毁美山地自行车冠军的职业生涯](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [打破中共黑手操控数据掌控权](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新中国联邦人的魅力就在唯真不破，是为灭共而战，是有信仰的人](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国法院禁止令，是天大的事，结束人类灾难的开始！](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳大利亚电信公司Telstra称5G不能替代NBN](/content/gnews/22/README.md)
- ` 走进澳洲`
-
-### [喜联储的三个重要时机](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共国公安部高官竞逐国际刑警组织执委，引发关切](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [七哥没有让战友和机构一样签订文件](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [关于喜马拉雅币提现问题](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [1天1万亿！中共央行放水创历史新高](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [逾万澳大利亚人申请新冠疫苗伤害赔偿](/content/gnews/28/README.md)
- ` 走进澳洲`
-
-### [何其荒诞！中共国天津市政府学习彭丽媛“贺信精神”](/content/gnews/29/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [拜登将在“拜习会”上提及台湾和人权等议题](/content/gnews/30/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [拜登的疫苗任务会带来什么样的危害结果？](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [沼泽地、神秘家族、盖茨基金、计划大流行——垄断： 是谁掌控全世界？](/content/gnews/32/README.md)
- ` 加拿大扬帆农场多伦多视频组`
-
-### [德国及邻居波兰捷克的中共病毒疫情加重](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [11月14日文贵大直播精剪汇编——第二部分](/content/gnews/34/README.md)
- ` 澳喜特战旅Gnews`
-
-### [起诉书无耻且具有争议 美国司法正向中共靠拢](/content/gnews/35/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [联盟工作汇报文字版摘要2021.11.14](/content/gnews/36/README.md)
- ` 纽约香草山MOS02`
-
-### [福奇承认，疫苗并不那么有效，接种疫苗的人如今很危险](/content/gnews/37/README.md)
- ` 墨尔本雅典娜农场`
-
-### [“双碳”大跃进，或为中共国内频繁停电原因之一](/content/gnews/38/README.md)
+### [塔利班统治下的阿富汗童婚现象日见增多](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [一语成谶——北上广深10月房价下跌](/content/gnews/39/README.md)
+### [郭文贵盖特摘要和音频 2021.11.09](/content/gnews/9/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [战斗室和我们三次改变了世界，你们不知道意义有多大](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [[速报]中美开始在线峰会，习主席出演“共赢”](/content/gnews/40/README.md)
+### [安全的、合法的、智慧的享受你的财富还不失去你的币](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [浦发银行擅自挪用储户2.95亿元存款](/content/gnews/41/README.md)
+### [Meta因Facebook被俄亥俄州检察长起诉](/content/gnews/12/README.md)
+ ` wenwu`
+
+### [七哥兑现共享财富的承诺](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [垂死挣扎，中国电信还想赖在美国](/content/gnews/42/README.md)
+### [郭文贵盖特音频 2021.11.15](/content/gnews/14/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [“老朋友”是“真朋友”吗?](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登家族及其政治网络与中共有着深度合作](/content/gnews/43/README.md)
+### [供应链危机也有可能毁掉我们的圣诞节](/content/gnews/16/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [波兰将在与白俄罗斯的边界修建隔离墙](/content/gnews/17/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [中共国房企及地方政府融资平台债务暴雷已时日不多](/content/gnews/18/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国宇航局对俄罗斯导弹试验的愤怒](/content/gnews/19/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [中共国&#8221;动态清零&#8221; 大连八十万人被困家中](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [Covid-19:研究人员揭发辉瑞疫苗试验中的数据完整性问题](/content/gnews/21/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [DC大中华时事：中共警告美国假期过后或将出现新一波病例激增](/content/gnews/22/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [喜联储对中共最大的威胁是什么](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [打破中共黑手操控数据掌控权](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新中国联邦人的魅力就在唯真不破，是为灭共而战，是有信仰的人](/content/gnews/25/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国法院禁止令，是天大的事，结束人类灾难的开始！](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [澳大利亚电信公司Telstra称5G不能替代NBN](/content/gnews/27/README.md)
+ ` 走进澳洲`
+
+### [中共国公安部高官竞逐国际刑警组织执委，引发关切](/content/gnews/28/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [1天1万亿！中共央行放水创历史新高](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [逾万澳大利亚人申请新冠疫苗伤害赔偿](/content/gnews/30/README.md)
+ ` 走进澳洲`
+
+### [何其荒诞！中共国天津市政府学习彭丽媛“贺信精神”](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [拜登将在“拜习会”上提及台湾和人权等议题](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [拜登的疫苗任务会带来什么样的危害结果？](/content/gnews/33/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [沼泽地、神秘家族、盖茨基金、计划大流行——垄断： 是谁掌控全世界？](/content/gnews/34/README.md)
+ ` 加拿大扬帆农场多伦多视频组`
+
+### [德国及邻居波兰捷克的中共病毒疫情加重](/content/gnews/35/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [11月14日文贵大直播精剪汇编——第二部分](/content/gnews/36/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [起诉书无耻且具有争议 美国司法正向中共靠拢](/content/gnews/37/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [联盟工作汇报文字版摘要2021.11.14](/content/gnews/38/README.md)
+ ` 纽约香草山MOS02`
+
+### [“双碳”大跃进，或为中共国内频繁停电原因之一](/content/gnews/39/README.md)
+ ` 澳喜农场`
+
+### [一语成谶——北上广深10月房价下跌](/content/gnews/40/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [[速报]中美开始在线峰会，习主席出演“共赢”](/content/gnews/41/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [浦发银行擅自挪用储户2.95亿元存款](/content/gnews/42/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [垂死挣扎，中国电信还想赖在美国](/content/gnews/43/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [拜登家族及其政治网络与中共有着深度合作](/content/gnews/44/README.md)
  ` 首尔天池农场`
-
-### [辽宁大连的防疫志愿者为啥睡在玉米堆上呢？](/content/gnews/44/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [近5万名医保患者在接种新冠疫苗后不久死亡](/content/gnews/45/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

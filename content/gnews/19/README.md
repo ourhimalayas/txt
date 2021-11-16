@@ -2,19 +2,19 @@
 ---
 
 
-## 打破中共黑手操控数据掌控权
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1668732/)
+## 美国宇航局对俄罗斯导弹试验的愤怒
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1668783/)
 
-文编：东京樱花团/樱花传媒
-视频：东京樱花团/中文小视频组
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11161.jpg)图片来自esa.int
+11 月 16 日 – 美国航天局美国宇航局对俄罗斯的导弹试验表示愤慨，该试验导致一团碎片云使国际空间站处于危险之中。
 
-11月7日，郭文贵先生在GTV大直播指出：
+美国宇航局的谴责是在拜登政府谴责之后几个小时发出的，拜登政府也通过国务院谈到了这是一次危险且不负责任的测试。
 
-喜联储打破了中共妄想在西方虚拟世界、数字世界黑手操控，获取主导权的黄粱美梦，喜联储让中共恐惧。而且中共知道老百姓的钱一旦外流，就再也不会回来了。
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/16/ira-della-nasa-per-il-test-missilistico-della-russia\_aa61ced8-37a3-4a91-8a88-f16580010c14.html](https://www.ansa.it/sito/notizie/topnews/2021/11/16/ira-della-nasa-per-il-test-missilistico-della-russia_aa61ced8-37a3-4a91-8a88-f16580010c14.html)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-1.png)
+责任编辑/发布：意大利达芬奇农场   萧亦
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

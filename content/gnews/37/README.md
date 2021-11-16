@@ -2,38 +2,26 @@
 ---
 
 
-## 福奇承认，疫苗并不那么有效，接种疫苗的人如今很危险
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1668414/)
+## 起诉书无耻且具有争议 美国司法正向中共靠拢
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1668503/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### 翻译/撰稿：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/80124403_dershowitz.jpg)图片来源：BBC
+根据布莱特巴特新闻（Breitbart News）11月15日的报道，拜登的司法部周五起诉了前川普总统的顾问、布莱特巴特新闻的前主席史蒂夫·班农（Steve Bannon）。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/fauci-vocal-cord-surgery_wide-e0cdb4d2c517d3ef28d555139afa1e44ad3b7efc-scaled.jpg)
+班农先生周一向联邦当局自首，由于班农先生无视众议院委员会关于1月6日事件的调查传讯，他将面临藐视法庭的指控。
 
+对此，哈佛学院名誉教授艾伦·德肖维茨（Alan Dershowitz）表示：“这是一份无耻的起诉书。我会告诉你这为什么无耻。如果你没有起诉过别人，你就不会知道法律是什么样的。因为如果总统告诉班农不要回答，那么就没有人知道班农是否有权拒绝回答。这是一个有争议的问题。因此不适合以此作为刑事起诉的主题。”
 
+德肖维茨解释道，“保留前总统的行政保密权是一个有争议的法律问题。”他建议对这种有争议的合法性问题进行调查。
 
-图片来源：www.npr.org
+德肖维茨说：“（为了弄清楚这个有争议的法律）你要去到法院，你得到一个宣告判决，你得到一个禁令，你得到法院的命令，只有这样才是有可能。为了弄清这个法律是什么，你用尽除了刑事司法系统以外的所有代替方法。”
 
+对于这个有争议性的法律问题德肖维茨继续举例解释道：“如果有10个宪法学者在一个房间里，这10人里不包括拉里·特里布（Larry Tribe），因为他不是一个学者，他是一个党派倡导者。在这个10人的房间里，如果你没有告诉他们这个人是民主党还是共和党，这时无论前总统是否授权他的前顾问不要把资料交出来，或不要作证，那么得到的结果将是五五开。”
 
-#### 编译：小红帽
+最后德肖维茨总结重申：“这是一个困难的、闭门问题，不适用于刑事起诉的主题。”
 
-现在应该很清楚，除非安东尼·福奇（Anthony Fauci）被撤换，否则大流行不会结束。一年多来，福奇阻止了成功的治疗方法，并对无效的中共病毒（COVID-19）疫苗作出了过度承诺。但至少大药厂赚取了创纪录的利润。
-
-周五，福奇博士告诉《纽约时报》播客，疫苗没有像宣传的那样发挥作用，而且由于美国人的免疫力下降，他们正处于危险之中。
-
-11月12日，白宫中共病毒顾问安东尼·福奇博士接受了《纽约时报》播客的采访，讨论了美国中共病毒的现状。根据福奇的说法，官员们现在开始看到，在最初接种疫苗几个月后，人们对感染和住院的免疫力有所下降。这位传染病专家指出来自以色列的数据，以色列在爆发方面，往往比美国早一个月到一个半月。
-
-“他们看到的是免疫力的下降，不仅是针对感染，而且是针对住院和某种程度上的死亡，现在开始涉及所有年龄组。这不仅仅是老年人，”福奇说。“免疫力正在下降，你会看到越来越多的人获得突破性感染，而且越来越多的这些获得突破性感染的人最终被送进医院”。
-
-**参考新闻：**[Explosive Admission by Dr. Fauci: Vaccines Did Not Work as Advertised and That Vaccinated Are in Great Danger Today (humansarefree.com)](https://humansarefree.com/2021/11/fauci-vaccines-did-not-work-as-advertised.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Exclusive — Alan Dershowitz: Bannon Indictment ‘Outrageous’, ‘Disputed Question’ Whether Trump Retains Executive Privilege](https://www.breitbart.com/radio/2021/11/15/exclusive-alan-dershowitz-bannon-indictment-outrageous-disputed-question-whether-trump-retains-executive-privilege/)
 
  
 
