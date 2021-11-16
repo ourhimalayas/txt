@@ -66,13 +66,6 @@
 
 ---
 
-`@miles 11/15/2021 2:39 PM (UTC)`
-
-【辉瑞公司首席执行官阿尔伯特.波拉11月9日声称，传播疫苗错误信息的人（反对疫苗）是罪犯，他们正在造成生命的损失。第二天（11月10日）早上他的太太被送入纽约长老会劳伦斯医院的急诊室后死亡。保守派比弗网站报道， 根据辉瑞公司总裁太太的医师的消息，死因是辉瑞公司疫苗的并发症。<br/><br/>在阿尔伯特的妻子去世后，他们要求保护隐私。法官已经批准了临时的媒体封锁。所有美国大媒体都没有报道这件事情。在网上通过搜索得到几个自媒体的报道，包括非右派的自媒体。保守派比弗的总部在加拿大，不受法官裁决的约束】
-![img](https://media.gettr.com/group19/getter/2021/11/15/14/36/1648f9ab-7b67-6a90-4637-0c115a87397a/out.jpg)
-
----
-
 `@miles 11/15/2021 11:37 AM (UTC)`
 
 Dr. Shankara Chetty (a general practitioner with a natural science background in genetics, advanced biology, microbiology and biochemistry): <br/>Spike protein is one of the most contrived toxins or poisons that man has ever made, and the aim of this toxin is to kill billions without anyone noticing it.<br/><br/>Shankara Chetty 博士（在遗传学、高等生物学、微生物学和生物化学领域具有自然科学背景的全科医生）：<br/>刺突蛋白是人类有史以来最精心策划的毒素或毒药之一,这种毒素的目的是在没有人注意的情况下杀死数十亿人。 #vaccinedeath #covid19 #covidtruth
@@ -296,6 +289,13 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 11月11号：尊敬的战友们好！共产党的光棍节骗局，彻底破产，共产党的房地产骗局将给世界的经济带来巨大的灾难……莘县阳谷县达县咱走着看！
 ![img](https://media.gettr.com/group44/getter/2021/11/11/15/41/de387d35-2edc-5d0c-93be-348fc83dd05b/out.jpg)
+
+---
+
+`@miles 11/11/2021 7:50 AM (UTC)`
+
+11/10/2021 Miles Guo: Our scientist fellow fighters revealed that the oral drugs against the CCP virus pushed by the crooked pharmaceutical companies to evade regulation are more poisonous than the COVID vaccines, and these drugs can result in a range of problems in the blood, nervous and digestive system. Fellow fighters, stay away from these drugs!<br/><br/>11/10/2021 文贵直播：科学家战友爆料称，无良药企为逃避监管而强推的口服抗中共病毒药比疫苗更毒，会导致血液、神经、消化系统等一系列严重问题。战友们千万别碰！<br/>
+![img](https://media.gettr.com/group16/getter/2021/11/11/07/50/03475c77-8b2d-6dfb-6a89-2aed7ed5d40d/out.jpg)
 
 ---
 

@@ -147,44 +147,44 @@
 ### [班农先生被司法部起诉的意义](/content/gnews/44/README.md)
  ` GTV新闻访谈`
 
-### [殡葬行业的红火才刚开始](/content/gnews/45/README.md)
+### [新中国联邦国防军即将履行使命](/content/gnews/45/README.md)
+ ` GTV新闻访谈`
+
+### [殡葬行业的红火才刚开始](/content/gnews/46/README.md)
  ` 银河勇气之星`
 
-### [跌跌不休，中共国新房二手房都在跌](/content/gnews/46/README.md)
+### [跌跌不休，中共国新房二手房都在跌](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [沈南鹏的“区块链帝国”将最终化为泡影](/content/gnews/47/README.md)
+### [沈南鹏的“区块链帝国”将最终化为泡影](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国很可能是美国有史以来最难对付的对手](/content/gnews/48/README.md)
+### [中共国很可能是美国有史以来最难对付的对手](/content/gnews/49/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [鲍里斯·艾普斯汀：中共国更加集权和军事化准备攻击美国](/content/gnews/49/README.md)
+### [鲍里斯·艾普斯汀：中共国更加集权和军事化准备攻击美国](/content/gnews/50/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [把中共推上世界舞台的人，还在试图向中共妥协](/content/gnews/50/README.md)
+### [把中共推上世界舞台的人，还在试图向中共妥协](/content/gnews/51/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [谁给出的这招](/content/gnews/51/README.md)
+### [谁给出的这招](/content/gnews/52/README.md)
  ` 银河勇气之星`
 
-### [港闻前线｜律政司再申请押后审讯 33名民主派义士未审先囚近一年](/content/gnews/52/README.md)
+### [港闻前线｜律政司再申请押后审讯 33名民主派义士未审先囚近一年](/content/gnews/53/README.md)
  ` G&#124;News TAIWAN`
 
-### [纳瓦罗：福奇该去蹲监狱，中共必须为20万亿损失负责](/content/gnews/53/README.md)
+### [纳瓦罗：福奇该去蹲监狱，中共必须为20万亿损失负责](/content/gnews/54/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [针下亡魂｜美国 45 岁知名漫画家接种疫苗后死亡](/content/gnews/54/README.md)
+### [针下亡魂｜美国 45 岁知名漫画家接种疫苗后死亡](/content/gnews/55/README.md)
  ` G&#124;News TAIWAN`
 
-### [美国通胀率已达到6.2%，美联储为何依然按兵不动](/content/gnews/55/README.md)
+### [美国通胀率已达到6.2%，美联储为何依然按兵不动](/content/gnews/56/README.md)
  ` 澳喜特战旅Gnews`
 
-### [墨尔本连续第三周集会抗议强制疫苗政策，规模已达数万人](/content/gnews/56/README.md)
+### [墨尔本连续第三周集会抗议强制疫苗政策，规模已达数万人](/content/gnews/57/README.md)
  ` 澳喜农场`
-
-### [消息:中共驻美大使馆游说美企反对与中共国相关的议案](/content/gnews/57/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [澳洲知名主持人认为上周六墨尔本的示威活动是一场真正的草根运动](/content/gnews/58/README.md)
  ` 澳喜农场`
