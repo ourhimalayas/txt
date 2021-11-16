@@ -2,32 +2,63 @@
 ---
 
 
-## 令生灵涂炭的政权
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1669156/)
+## G系列拥有者未来永远VVIP
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1669109/)
 
-作者：东京樱花团丨阿恩
-![](https://lh3.googleusercontent.com/fMP65G93v6D9X6XqzxlDFj0d2PM_6AXyjmIhuaXhGdfYLzsO1HnjL98NnmfpO_tKSkZCl7XJwcGrK6odIQIU6-N15V3tfnGP-yCM8WLiaehqEHf4QAjRBRX21HlWrmvcoRsTZS52)[图片来源](https://www.thestandnews.com/society/%E9%87%8E%E8%B1%AC%E6%8D%95%E6%AE%BA%E4%BB%A4%E6%9E%97%E9%84%AD%E9%A1%A7%E5%85%A8%E5%B8%82%E6%B0%91%E5%AE%89%E5%85%A8-%E4%B8%8D%E6%83%B3%E8%A6%8B%E5%88%B0%E9%87%8E%E8%B1%AC%E5%82%B7%E5%AE%B3%E5%B0%8F%E6%9C%8B%E5%8F%8B)
-我们居住的地球四季分明，植被繁多，物产丰富，生物充满水陆空与人类和谐共处。但私欲促使人疯狂侵占别人享有的资源，金钱成为世人追捧的偶像，人们在地上被剥削得已经不能自给自足。在独裁的国家，人民没有土地，没有做人的权力，连生命也如草芥般被独裁者践踏。这一切都不符合上帝创造的心意，地球上一切被上帝视为“好”的，都已成为魔鬼要毁灭的对象。
+**郭文贵
+Miles Guo**
 
-近日漁护署重启市区人道毀灭政策，颁下「野猪捕杀令」，定期捕捉野猪人道毀灭，事因有警员暴力驱赶野猪被噬。香港有七成的土地是保育区，养育着众多的生灵，野生动物一直都受到港人和政策的保护，几百年来和睦相处，偶有野生动物被游人惊扰出现攻击人的事件，但都是用人性化的方法进行处理，从未发生过要对野生动物族群进行灭门式的清剿，但在中共独裁暴政香港的当下，港府推出任何不和逻辑、缺乏人性的政策都无需奇怪，因为中共这个邪恶的政权从来都与上帝所造为敌，不仅奴役压榨人民，还破坏自然环境屠戮世上的生灵。
+还要好人要安全，还要好人过上体面的生活
+also good people have to live a safe and decent life
 
-中共统治下的天空、土地和水，悉数被各种产业所污染，十年前的香港极少出现雾霾，但这些年的空气污染十分严重，每年空气污染严重的日子持续增加，各种空气净化器在港热卖，但香港人居住空间本就狭窄，恶劣的空气导致各种呼吸道疾病丛生。
+就像我说的，任何Gclub的购买者，
+just like I said, any Gclub’s buyers
 
-香港的食品全部都依靠进口，市民每日的蔬菜、生鲜肉类、游水鱼类大部分从内地进口，这些食品均因内地土壤污染而含有超标的重金属、激素、化肥和农药等有害物质。香港政府限制本地农业的发展，许多良田和鱼塘被丢空，因为利益的驱使，很多农地被改造成仓库和停车场永久失去耕种的价值，有心耕种的市民要支付高额的租金，本地作物的市场价格没有任何竞争性。
+法治基金的捐款者，不能包含有问题的，
+donors to the Rule of Law Foundation, cannot include people whose donations were unsuccessful
 
-在毒空气、毒菜、毒肉、毒调味品等有毒食品的攻击下，香港人各种疾病发生率居高不下，各大保险公司每年都以更新保障疾病作为竞争噱头，诱使港人购买高昂的医疗和重疾保单。
+GTV投资者，借款者，还有喜币拥有者
+and GTV investors, borrowers, and H-Coin owners
 
-现在中共又对香港的土地虎视眈眈，尤其是那七成的保育区。自从中共暴政香港后，一些郊野公园的禁车道就违规出现了很多私家车，这些豪车在行山者身边呼啸而过，惊扰同行的狗狗，还在郊野留下难闻的废气。
+未来永远拥有所有的VVIP待遇
+Always have all the VVIP treatment in the future
 
-中共的独裁侵蚀到哪里，特权就蔓延到哪里，中共政权的到来不是造福于民，而是危害众生。我们可预见中共危祸下的香港，郊野公园将高楼林立，满山飞驰的猴子将被以寻衅滋事之罪人道毁灭；豪宅将霸占更多的湿地，候鸟将难觅；更多滩涂被人工沙覆盖，成为公共海滩；海岛成为私人属地……
+根据你不同的投资，全人类上没有一家敢这么做
+According to your different investments, no one in the whole mankind dares to do this
 
-同胞们都深受中共暴政所害，都明白只有起来反抗才有夺回原本属于自己一切的机会，同胞们切不可彼此妥协习惯中共邪恶，我们当知道这世上的一切，所有人都有资格去拥有而不是被中共占有。
+你们就没有想过，GTV战友总共投多少钱
+You never thought about how much total comrades in arms invested in GTV
 
-资料来源：[【野豬捕殺令】林鄭：顧全市民安全　不想見到野豬傷害小朋友](https://www.thestandnews.com/society/%E9%87%8E%E8%B1%AC%E6%8D%95%E6%AE%BA%E4%BB%A4%E6%9E%97%E9%84%AD%E9%A1%A7%E5%85%A8%E5%B8%82%E6%B0%91%E5%AE%89%E5%85%A8-%E4%B8%8D%E6%83%B3%E8%A6%8B%E5%88%B0%E9%87%8E%E8%B1%AC%E5%82%B7%E5%AE%B3%E5%B0%8F%E6%9C%8B%E5%8F%8B)
+不到10亿美元，现在GTV拥有喜联储5%的股份
+less than 1 billion U.S. dollars, and now GTV owns 5% of Himalaya Reserve
 
-*校对：东京樱花团 / 文小白*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
+你知道值多少钱，2万亿的5%是多少
+You know how much it is worth? what is 5% of 2 trillion
+
+1千亿美元，刨除人家投资机构的
+100 billion US dollars, excluding other institutions investment
+
+你有多少钱，你算过账吗
+How much money do you have, have you calculated it?
+
+Date:11/14/2021
+原视频标题: G系列拥有者未来永远VVIP
+G series owners will always be VVIP in the future
+原视频日期：2021/11/10
+原视频链接 [https://twitter.com/se1y7cblljselva/status/1459085397754269701?s=24](https://twitter.com/se1y7cblljselva/status/1459085397754269701?s=24)
+任务编号：KC253（2857）
+视频时间段 : 0:00-0:58
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布: 洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

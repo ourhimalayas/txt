@@ -2,168 +2,41 @@
 ---
 
 
-## 乌托邦的中共和实力派的美国不可比拟
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1669053/)
+## 你死不死啊
+` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1668886/)
 
-[https://gtv.org/video/id=619331ac182702508105c1f6](https://gtv.org/video/id=619331ac182702508105c1f6)
+By：银河勇气星｜骄子
 
-跟美国人签一份一千年的和平协议
-Firmar un acuerdo de paz por mil años con los estadounidenses
+没有在说相声，也不是在德云社的舞台上，面前也没有郭德纲，但是这句“你死不死啊”，最近时常飘荡在耳边。
 
-对中国是最好的
-Es bien para China
+1.最近国内疯传万达王健林去世了，万达集团迫于舆论压力出来澄清他们的老板没死。澄清的新闻配图上还特意标注了日期，事件，以及王健林正襟危坐的姿态。周围的人都戴了口罩，只有王健林一个人没戴口罩，戴口罩就认不出他是王健林了，这摆拍师傅确实下了功夫。
 
-你想都别想跟人家打架
-No pienses en pelear con ellos
+![](https://assets.gnews.org/wp-content/uploads/2021/11/495fd6d4788b441ebff3bdff48480f2b-scaled.jpeg)万达辟谣王健林未死亡 / 图源：网路
 
-它不是钱的事
-Esto no es un asunto de dinero
+2.辉瑞CEO的太太死于辉瑞疫苗，这条新闻也在短短时间内传遍互联网，随即面对“谣言”的压力，辉瑞CEO主动澄清自己的太太没死。发了一张照片，里面很多人在进行聚会，大规模聚会，没有一个人戴口罩，社交距离也非常近。这图片要传达什么？众所周知辉瑞的公司没有要求打疫苗，不打疫苗不戴口罩，好像他们远离了CCP病毒；再者如果辉瑞所有人都打了疫苗，那为什么平时打过疫苗的老百姓仍然被要求戴口罩，而他们这个聚会却不用？
 
-不是武器的事
-Arma
 
-不是科技的事
-O tecnología
 
-它是一个历史的堆积
-Es la acumulación histórica
+![](https://assets.gnews.org/wp-content/uploads/2021/11/FD8G7gIWQAUEa6m.jpeg)辉瑞CEO辟谣太太未死亡 / 图源：网路
 
-就像新中国联邦, 七哥要没有30年在共产党内的堆积
-Así como el Nuevo Estado Federal de China, si no estuve acumulando durante 30 años en el Partido Comunista
+一个国内，一个国外，两条关于某人去世的消息，先是传言人死了，然后马上有辟谣。澄清的套路也非常一致，都是以某会议的PPT背景展示为主。很奇怪就是在社交媒体的livestream和小视频功能这么发达的时刻，他们的澄清是以图文为主，真要是没死的话你直接开个直播，或者发个小视频什么的，比任何方式的澄清谣言的说服力都强。始终一副高高在上的姿态面对网民，一点儿都不真诚。
 
-今天你说这人, 我张嘴就来
-Hoy yo puedo decir cualquier cosa de esta persona
+在发送了媒体澄清文稿以后，王健林的死亡事件仿佛告一段落，王健林确实不是什么值得关注的大咖，文贵先生的爆料里几乎提到这个名字的时候都很少，提到都直接说这人太low了。王健林前段时间记得有一个视频曝光，爆瘦，结合文贵先生爆料，共产党一直都在抓私人企业家，怎么能放过他呢，具体怎么严刑拷打的能一下子瘦成那样就不得而知了。我们可以参照马云的待遇，一开始进去了还打坐，谈人生谈理想，过了没多久，给他吃过敏的食物他都大口大口吃。王健林只是中国那么多私人企业家的其中一个，网上疯传的关于他死掉的“谣言”，对于中共国谣言满天飞的舆论环境，不是什么大不了的事，中国老百姓习惯了被骗，习惯了辟谣，从来也没有人问为什么怎么会有这样的谣言传出？莫谈国事莫谈国事，多问一句可能人命都会没有的。所以打过疫苗出现的那些可怕的并发症，随时倒地，梗阻，还有当场死亡的，没人会觉得是疫苗不对劲儿。也从来没有人问怎么打过疫苗了还是会有疫情，还是要戴口罩。
 
-我张嘴就能编
-O inventar de la nada
+辉瑞的CEO，去翻看了他的Twitter，这是一个把社交媒体当作工作平台来使用的人。CEO，刻板，理性，又是制药大厂，好像这个标签是他本应该拥有的。他的推特全部都是工作工作工作，推文里的大小写，tag使用都非常严谨，不像川普，总是能突然出现大小写夹杂，感叹号之类的。CEO用来澄清自己的太太没有因为疫苗死亡的那条推文，才让人感觉这人是个活人，不是个机器人。最新消息是他的太太并没有因为冠状病毒的疫苗死去。这本来也不是此篇文章关注的重点。我们主要探讨的是谣言为什么能这么多，能传得这么快，而且居然拿人的生死这么大的事情来造谣？
 
-我没有这些年的经营
-Si no he estado administrando estos años
+文贵先生直播中讲过，那些严肃媒体大外宣，背后的资本都是大药厂。而人们对于疫情疫苗的信息来源，几乎全部来自这些媒体。这些媒体引导的方向，不过是为了给大药厂赚钱。虽然社交媒体可以有一定的个体意见，但在生死面前，异常脆弱。生病了寻医问药，是几千年来的传统。前提是你生病了，自身的健康状况是人能感受到的。为了多赚钱，可以徒手制造一种病出来。别忘了辉瑞的总部早在很多年前就在中共国上海了。吴征是共产党的特务，他做过一项任务就是把国外的那些大药厂医疗企业蓝金黄到共产党怀抱里，共产党自己根本不可能创造这些技术，只能靠这些手段。要么就是花钱/性买，要么就只能偷，冠状病毒是美国很早就有的技术。同时共产党把把大媒体变成宣传机器，过度宣传医药。生物武器CCP病毒就是纯人工制造的。病毒本身并没有疫苗可怕，但是媒体的宣传上，并没有报道疫苗死的人比病毒死的人更多，甚至媒体都不报道因为疫苗带来的死亡。大肆渲染病毒的可怕，也不让溯源病毒，只说让打疫苗，不停地打疫苗。国内老百姓都被禁声了，不许你说话；国外这里，允许你说话，但你不能说真话。从这些意义上讲，媒体既是造谣机器，也是辟谣机器。什么都要垄断，连谣言都要垄断。
 
-我就能成为结构师, 搞出一个喜联储
-Puedo convertirme en un ingeniero estructural y crear una Reserva Federal de Himalaya
-
-我能搞出G-TV, 盖特
-El G-TV, GETTR
-
-我今天没有四年爆料
-Si no he estado en Movimiento de denunciantes por cuatro años
-
-我今天给你们讲的, 你们就信, 不可能
-Hoy lo que les digo, ¿ustedes me creerán? Imposible
-
-它是一个时间的累积
-Esto es algo que necesita ir acumulando a través del tiempo
-
-多方面累积的结果
-Es el resultado acumulado de distintas partes
-
-这叫物质的设计
-Esto se llama diseño de cosas materiales
-
-物是行动产生的结果
-Las cosas son los resultados producidos por las acciones
-
-质是什么
-¿Qué es el material?
-
-是一个事情的基本逻辑
-Es la lógica fundamental de un asunto
-
-合在一起叫物质
-Unido se llama cosas materiales
-
-我们就在物质的设计里
-Nosotros estamos dentro del diseño de las cosas materiales
-
-共产党是什么
-¿Qué es el Partido Comunista?
-
-叫乌托邦
-Se llama Utopía
-
-乌托邦就是幻想主义者, 谎言主义者
-Las utopías son fantásticas y mentirosas
-
-你怎么能听他的呢
-Cómo puedes escuchar de ella
-
-胡扯的
-Son puras pendejadas
-
-所以说(如果)打3分钟就给它灭了
-Por eso si golpea por tres minutos y lo terminas de destruir
-
-所以今天的选举结果是什么
-¿Cuál es el resultado de la elección de hoy?
-
-所有这些地方, 你敢打台湾
-Todos estos lugares, te atreves a atacar a Taiwán
-
-老子就修理你
-Te pegaré
-
-真的, 政清, 爱米粒, 大牛, 巴黎
-Es verdad, Zhengqing, Emily, Daniu, Bali
-
-你们应该裸奔了
-Deberían estar corriendo desnudo
-
-好好认真的裸奔
-En serio, corran desnudo
-
-这事值得裸奔
-Este asunto vale la pena correr desnudo
-
-绝对对你们是安全的
-Es absolutamente seguro para ustedes
-
-新中国联邦不可能, 绝对保证你安全
-El Nuevo Estado Federal garantiza tu seguridad
-
-但是这个让你安全上加了安全
-Pero esto es más seguro que cualquier cosa
-
-这是我心里最开心的
-Y es lo que me contenta más
-
-他们赢, 第二个就是绝对灭共
-Si ellos ganan, el segundo es eliminar al Partido Comunista
-
-哪个不是咱战友, 你告诉我哪个不是
-Dime quien no es compañero luchador
-
-导致这个赢的最重要的结果是什么
-¿Cuál es el resultado más importante que conlleva esta victoria?
-
-千万别忘了
-Nunca olviden
-
-所有这些州的现场的所有人, 都是班农战斗士的嘉宾
-Todas las personas que están presentes de estas provincias son todos invitados de los combatientes de Bannon
+疫苗死亡不看人，对所有人都是平等的。不管你死不死，打上三针疫苗了那就只能等着了。而媒体讯息的真假却是可以分辨的，今天能说疫苗管用，改天就说母猪能上树，远离这些嘈杂无用的假讯息，不要把命都搭上。来gettr、gtv、gnews吧。
 
 * * *
 
-日期：11/11/2021
-原视频标题：乌托邦的中共和实力派的美国不可比拟
-El utópico PCCh y el poderoso Estados Unidos son incomparables
-原视频日期：11/05/2021
-原视频网址：[https://twitter.com/se1y7cblljselva/status/1456598738625916929?s=24](https://twitter.com/se1y7cblljselva/status/1456598738625916929?s=24)
-任务编号：KC251（2785）
-视频时间段：0:00-1:48
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+作者：骄子
+审核：兵嫂、天雷滚滚
+发布：骄子
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
-
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

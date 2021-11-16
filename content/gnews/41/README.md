@@ -2,63 +2,40 @@
 ---
 
 
-## G系列拥有者未来永远VVIP
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1669109/)
+## “踩雷”恒大后，中共国苏宁也要“爆雷”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1669025/)
 
-**郭文贵
-Miles Guo**
+#### 整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-115.jpg)图片来源
+**在中共国“谣言”是遥遥领先的预言**
 
-还要好人要安全，还要好人过上体面的生活
-also good people have to live a safe and decent life
+11月16日早间，苏宁易购在官方微博发出一条声明，称“苏宁易购十二月底宣布破产”系谣言，公司经营一切正常。近日，网上广泛流传“苏宁十二月底破产”，“苏宁可能欠钱不还”。
 
-就像我说的，任何Gclub的购买者，
-just like I said, any Gclub’s buyers
+近期苏宁出现大量关于公司“理财”到期无法兑付的投诉，涉及人员多为苏宁员工及前员工，单个案例涉及金额从几万元到上百万元不等。公司也在内部发出通知，拟单方面采取延本付息的方式，本金兑付时点最晚推迟到2022年11月30日。
 
-法治基金的捐款者，不能包含有问题的，
-donors to the Rule of Law Foundation, cannot include people whose donations were unsuccessful
+苏宁易购曾在2021年三季报中称，“第三季度是苏宁易购三十年发展历程中最艰难的时期，我们遇到了前所未有的困难。”前三季度来看，营收1155.7亿元，同比下降36.1%，亏损75.68亿元，同比下滑1483.29%。去年8月以来苏宁易购股价处于持续下降通道中，至记者发稿最新价格4.44元，累计跌幅达到60%。
 
-GTV投资者，借款者，还有喜币拥有者
-and GTV investors, borrowers, and H-Coin owners
+苏宁易购表示，今年6月以来持续的流动性严重不足，使得公司核心电器3C业务的库存商品规模创历史最低值，销售规模急剧下滑，带来了经营业绩的大幅度亏损，毛利额大幅下降。财报显示，苏宁易购前三季度经营活动产生的现金流量净额为-44.56亿元。截止到目前，苏宁已经连续亏损6年。
 
-未来永远拥有所有的VVIP待遇
-Always have all the VVIP treatment in the future
+**苏宁踩雷恒大**
 
-根据你不同的投资，全人类上没有一家敢这么做
-According to your different investments, no one in the whole mankind dares to do this
+苏宁老板张近东，与恒大老板许家印，2017年7月在深圳的一次会面，张近东对许家印非常认可，称“我和许家印主席心有灵犀、一拍即合，共同决定要推动苏宁和恒大全方位的战略合作，携手布局智慧零售时代下的场景消费。”不久，一张张近东与许家印的“交杯酒照”开始在网络上疯传，证实了两人交情深厚，要干一番大事业的传闻。但让张近东没想到的是，这交杯酒，其实是杯苦酒。
 
-你们就没有想过，GTV战友总共投多少钱
-You never thought about how much total comrades in arms invested in GTV
+果不其然在2017年11月6日，中国恒大发布公告称，苏宁电器集团之全资子公司南京润恒将向恒大地产战略投资200亿元。在恒大地产增资扩股完成后，南京润恒将持有其4.7%的股份。在张近东来看，这笔投资即便不像投资阿里巴巴那样回报可观的话，也因为有回购协议的存在而有保证，并且恒大在增资的公告中承诺，未来三年的净利润分别不少于500亿元、550亿元和600亿元。
 
-不到10亿美元，现在GTV拥有喜联储5%的股份
-less than 1 billion U.S. dollars, and now GTV owns 5% of Himalaya Reserve
+苏宁入股恒大后，张近东与许家印经常以好哥俩的形象在重大场合出现。2018年3月31日，张近东受邀出席了恒大集团战略合作伙伴高层峰会。会后，张近东对外透露，双方已经在80个社区物业项目和11个大型开发项目上展开了全面的对接。
 
-你知道值多少钱，2万亿的5%是多少
-You know how much it is worth? what is 5% of 2 trillion
+2020年9月，一份被恒大集团指为“捏造”的《关于恳请支持重大资产重组项目的情况报告》在网上流传，恒大债务危机公开化。当时苏宁已经考虑到了恒大重组深深房可能失败，已经在考虑启动回购条款。9月17日，在苏宁的投资者会议上，苏宁相关人士表示，如果恒大地产不能在明年1月如期在境内完成重组上市，他们将启动回购条款，追回此前的200亿元战略投资。然而张近东也没有算到，对赌协议不能生效，还有不能回购的时候。恒大债务危机迫使地方政府介入，最后恒大80%战略投资者同意转股，不要求回购。
 
-1千亿美元，刨除人家投资机构的
-100 billion US dollars, excluding other institutions investment
+消息来源:
 
-你有多少钱，你算过账吗
-How much money do you have, have you calculated it?
+[网传12月底破产！苏宁紧急澄清已报案！却有理财产品逾期了](https://finance.eastmoney.com/a/202111162182650319.html)
 
-Date:11/14/2021
-原视频标题: G系列拥有者未来永远VVIP
-G series owners will always be VVIP in the future
-原视频日期：2021/11/10
-原视频链接 [https://twitter.com/se1y7cblljselva/status/1459085397754269701?s=24](https://twitter.com/se1y7cblljselva/status/1459085397754269701?s=24)
-任务编号：KC253（2857）
-视频时间段 : 0:00-0:58
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布: 洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+[恒大酿的苦酒，苏宁咬牙喝下](https://www.163.com/dy/article/G445L6UP0539KJLK.html)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
