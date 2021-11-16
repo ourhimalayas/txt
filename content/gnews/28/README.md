@@ -2,60 +2,132 @@
 ---
 
 
-## 【信仰之声】明年黑色五月后的世界
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1667450/)
+## 喜美元未来绝对是和法币挂钩的数字货币之王
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1667528/)
 
-作者：纽约香草山福音部 – 小草
+[https://gtv.org/video/id=6191cfb218270250810564a9](https://gtv.org/video/id=6191cfb218270250810564a9)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-1280x172-1.jpg)
+我相信喜美元未来他是绝对的和法币挂钩的数字货币当中之王
+Yo confío que el HDO es definitivamente el rey de la moneda digital vinculada a la moneda legal en el futuro
 
+为什么, 它有3个谁都无法代替的因素
+¿ Por qué? Esto tiene tres razones irreemplazables
 
+它毕竟有十几亿中国人的这种市场的潜力
+Después de todo, tiene el potencial de este tipo de mercado de mil millones de chinos
 
-这是撒旦搞破坏的第一步，他还想把人间惨剧演给上帝看。撒旦心想：“神，你不是爱你的子民吗？好，我把你看重的子民毀给你看。我让人类互相为敌，在他们间植入仇恨和凶杀。让人类过得像野兽一样。”撒旦在笑的时候，显得特别天真。神才是真正清扫战场的主人。
+可能性就是灭了共和不灭共
+La posibilidad es eliminar o no al Partido Comunista
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-311.png)
+这是大的使用者
+Este es el usuario más grande
 
-在国际关系研究中，有一个概念是“均势理论”，意思是中国发生红卫兵造反，那欧美马上相应有青年上街示威游行，整个世界就是紧密相连的一盘棋局，蝴蝶效应无处不在。从古到今，政客们都机械运用这个概念，但这一理论是有缺陷的。无论是遏制还是绥靖来应对全球化困局，人们的选择并不多。爆料革命给这个陈腐的概念带来一丝亮光，因为我们不用等问题发生后再解决问题，我们先铲除问题。
+我们战友这个规模在这摆着呢
+Es la escala de nuestros compañeros luchadores
 
-明年黑色五月等待我们的是什么呢？前景并不明朗，但不是束手待毙，人类有选择，也有重生的希望。关键是你选择相信谁？你想为谁征战？你会失去什么？如果对答案不明确，我们就是永远被人戏弄的棋子。
+我相信战友未来会突破千万的, 突破一千万
+Yo confío que en un futuro los compañeros luchadores sobrepasarán los diez millones
 
-这一次大重启，撒旦想灭掉的就是人与人之间的信任，人与神之间的亲密关系。信任，这个东西很脆弱的，也很难赢得。它需要你长期的努力去得到，但失去它就是一秒钟。信任，稀缺而不可恢复。当人类知道身体里的疫苗真相时，当被迫过了二年提心吊胆隔离日子后，发现中共病毒远非流感病毒的一分支，疫苗的成分完全没有被告知，自己彻底失去了知情权。人类会对公共、传媒、医药产业、教育、司法、雇主、身边亲朋好友的信任呈现负增长，人会感觉，自己被出卖了，自己无法再信任别人了。
+很快
+Pronto
 
-明年黑色五月，是一个信任大崩溃时期。如果人与人之间没有信任，那还剩下什么呢？孩子可能不再相信父母、老师、医生、政府的话了；患者会控告医生建议打疫苗、雇员会控告雇主推行疫苗，看来律师事务所又有钱可赚了；亲朋好友间会彼此埋怨，对没打疫苗的人羡慕嫉妒恨；打疫苗人群认为不打疫苗者很疯狂，不打疫苗者认为对方很懦弱怕死，互相之间可能老死不来往，原来的老友因为是否打疫苗，友谊面临再次洗牌；今后男女约会，可能会先问对方是否打疫苗，因为关系着未来生育和婚姻；夫妻间会质问不打疫苗一方，为什么不早告诉自己真相，是不是有什么企图；今后社交俱乐部在进行背景审查时，会加添是否打过疫苗；今后选举时，会把政客们在疫苗期间表现公布出来，确认他的政治立场。军人对长官的命令，今后会有什么反应呢？没有做出公正决议的法官，今后走在路上会扬得起头吗？
+你看到盖特人的增长
+Verás el crecimiento de usuarios en GETTR
 
-明年黑色五月，是一个心理疾病高发时期。认识的人突然失联和患病死亡、不认识的人会突发意外、手机中的号码突然无人应答、时时活在恐惧中，无处不在的不确定性。人在极不安全心理下会做出鲁莽的决定。好吧，联系不上亲友、联系不上警察、联系不上公共部门，我被遗忘了，那我刷刷存在感吧。人要不依赖药物和酒精，要不陷入抑郁和焦虑，或者极端行为，到时被别人煽动一下种族仇恨，可能真就危险了。人，是很脆弱的一个群体。
+未来两到三个月
+En los próximos dos a tres meses
 
-明年黑色五月，是一个有钱买不到安全的时期。有钱能买很多东西，但买不到别人喜欢你。到处漂着装尸袋臭味，这个臭味也会漂到富人区，当穷人被剥夺走生计和生命时，又得知一些疫苗真相时，富人的奢侈和放纵是对他们的刺激。左派一直鼓吹的富人是社会精英，可以为穷人找药方，很好，穷人会要求富人为自己灾难负全责。到时不存在你支持那个党派，到时你是富人，你要为穷人找药方，不然就是全民公敌。
+你会看到咱们这个喜连储的增长
+Podrás ver el crecimiento de nuestra Reserva Federal de Himalaya
 
-这是撒旦搞破坏的第一步，他还想把人间惨剧演给上帝看。撒旦心想：“神，你不是爱你的子民吗？好，我把你看重的子民毀给你看。我让人类互相为敌，在他们间植入仇恨和凶杀。让人类过得像野兽一样。”撒旦在笑的时候，显得特别天真。神才是真正清扫战场的主人。
+那这个市场在这摆着
+Y dejar este mercado aquí
 
-撒旦可以破坏人与人的信任，但有一点他没有想到。人，在世界上不是寻找人，而是寻找神。当我们无法相信人时，人可以更靠近神。神可以在信任真空上浇灌福音，也可以在没有爱的世界上做工。撒旦精心准备几十年的大重启，在神面前就是个大笑话。
+没有人可以替代
+Nadie lo reemplazará
 
-大重启是一个膨胀得无限大的气球，爆料革命虽小，如一枚针，将气球的虚胀和油腻肥胖曝光。最后大家发觉，大重启不是气球，大重启是撒旦的幻觉，一个梦。中共国是撒旦的梦工厂，中共是一群梦想家。爆料革命者们进入盗梦空间，把撒旦的梦境替换成约瑟的马车。
+第二个就是这个喜美元跟这个整个喜连储的这个结构
+La segunda razón es el HDO con la estructura de toda la Reserva Federal de Himalaya
 
-2021年11月15日
+交易所的整个挂钩
+Toda la vinculación del intercambio
 
-（本文仅代表作者个人观点）
+我觉得天下没有几个
+Yo digo que no hay casi nadie en este mundo
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1.jpg)
+没有几个
+Casi ninguno
 
-*编辑 /校对*：德州牛仔
+到目前还没看见
+Hasta ahora no he visto
 
-*发稿：Yuki*jiang
+即使有它也跟不上我们的
+Y si hay, tampoco seguirá nuestro ritmo
 
-**更多资讯，更多关注**
+我们是原创者
+Somos el creador original
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+第三个, 我们相信, 我们进来的大的机构投资者
+Y la tercera razón, nosotros confiamos en las grandes instituciones de inversores que entrarán
 
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+每个人都是影响着世界命运的经济体
+Cada persona es la influencia del cuerpo económico del destino de este mundo
 
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+也不会有几个, 你看到刚才所有的那些所谓这coinbase
+Tampoco habrá algunos, ves todo el llamado coinbase en este momento
 
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+Kraken这些大多数
+Y Kraken, la mayorá de estos
 
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+几乎没有一个像我们这个级别的投资
+Casi ninguno es del nivel de inversión como el de nosotros
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+就没有, 这三条
+No lo hay, estas tres razones
+
+它决定了喜美元它在全球
+Determina al HDO en el mundo
+
+它一定是最大的流通的
+La circulación más grande
+
+所有货币, 买金融产品
+Todas las monedas, compra de productos financieros
+
+你买啥都能买
+Puedes comprar cualquier cosa
+
+只要是能买的东西你都能买
+Puedes comprar cualquier cosa que pueda ser comprado
+
+我相信未来一定会做到
+Confío que en un futuro puede llegar a ser así
+
+但是时间和方式
+Pero en cuánto tiempo o de qué manera
+
+这个我没法确定, 最终一定会达到的
+Esto no lo puedo asegurar, sin embargo, se logrará finalmente
+
+**原视频网址**：[https://twitter.com/se1y7cblljselva/status/1457921740592406532?s=24](https://twitter.com/se1y7cblljselva/status/1457921740592406532?s=24)
+
+日期：11/12/2021
+原视频标题：喜美元未来绝对是和法币挂钩的数字货币之王
+El HDO es definitivamente el rey de la moneda digital vinculada a la moneda legal en el futuro
+原视频日期：11/09/2021
+任务编号：KC252（2826）
+视频时间段：0:00-1:37
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

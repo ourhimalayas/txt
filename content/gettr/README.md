@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/16/2021 1:27 AM (UTC)`
+
+11月15号：应战友们的要求……发一个SNOW 的小视频🤪
+![img](https://media.gettr.com/group11/getter/2021/11/16/01/27/e6af9d97-002f-9d07-9de0-9c20fdca1ee1/out.jpg)
+
+---
+
 `@miles 11/15/2021 11:37 PM (UTC)`
 
 11/15/2021 Miles Guo’s GETTR: The CCP's digital RMB (DCEP) will surely be disastrous, while the great financial system of the New Federal State of China has emerged right in time; when the CCP cannot control the currency, it won’t be able to slaughter the 1.4 billion Chinese people or take over TSMC<br/><br/>11/15/2021 文贵盖特：中共的数字人民币必将是一场灾难，而新中国联邦的伟大的金融系统却在此时应运而生；当中共无法控制货币时，它将无法屠戮14亿中国人或接管台积电<br/>
@@ -289,13 +296,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 11月11号：尊敬的战友们好！共产党的光棍节骗局，彻底破产，共产党的房地产骗局将给世界的经济带来巨大的灾难……莘县阳谷县达县咱走着看！
 ![img](https://media.gettr.com/group44/getter/2021/11/11/15/41/de387d35-2edc-5d0c-93be-348fc83dd05b/out.jpg)
-
----
-
-`@miles 11/11/2021 7:50 AM (UTC)`
-
-11/10/2021 Miles Guo: Our scientist fellow fighters revealed that the oral drugs against the CCP virus pushed by the crooked pharmaceutical companies to evade regulation are more poisonous than the COVID vaccines, and these drugs can result in a range of problems in the blood, nervous and digestive system. Fellow fighters, stay away from these drugs!<br/><br/>11/10/2021 文贵直播：科学家战友爆料称，无良药企为逃避监管而强推的口服抗中共病毒药比疫苗更毒，会导致血液、神经、消化系统等一系列严重问题。战友们千万别碰！<br/>
-![img](https://media.gettr.com/group16/getter/2021/11/11/07/50/03475c77-8b2d-6dfb-6a89-2aed7ed5d40d/out.jpg)
 
 ---
 

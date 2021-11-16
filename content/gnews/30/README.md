@@ -2,24 +2,54 @@
 ---
 
 
-## 中共统战部是否在影响美国政治
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1667328/)
+## 英国研究显示，儿童及青少年感染中共病毒后无实际死亡风险
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1667507/)
 
-撰稿：西枫westca
+作者：纽约香草山农场 – 四季
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/page-header.jpg)图片来源：www.kcrw.com
-国家脉动专栏作者娜塔莉温特斯11月15号署文披露：众议员亚当·希夫 (Adam Schiff) 在中美交流基金会赞助的一次活动中，会见了一名中共负责对外影响事务的前中共官员。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-加州民主党的众议员希夫在2009年10月在华盛顿会见了由中美交流基金会（CUSEF）安排的与中共负责对外事务的官员徐匡迪的会面。在此之后，他成为了川普通俄门、弹劾丑闻的主要支持者。 近来作为1月6日违宪活动委员会的主要成员，他的注意力转向了前总统川普的竞选团队负责人史蒂夫班农——著名的“反中鹰派”人士。这带来一个疑问，作为加利福尼亚州第28届国会选区的国会议员是否正在努力平息批评中国共产党的人士。
 
-中美交流基金会（CUSEF）的网站显示，它 “赞助 “了中共官员徐匡迪对美国的访问，包括在华盛顿特区停留。该基金会简称 “CUSEF”，因寻求 “影响外国政府采取支持北京首选政策的行动或立场 “而被美国政府标记。它是中共用来对付美国精英的几个统一战线团体中的一个。中国政府利用它来 “收编和化解可能反对其执政的中国共产党的政策和权威的来源”。
 
-徐匡迪原为前上海市市长，还担任过中国人民政治协商会议副主席，这是监督中国有争议的“统战部 ”的“最高级别实体”。他在美期间，还会见众议员亚当·希夫（D-CA）、众议员大卫·吴（D-OR）和智库代表。
 
-《国家脉搏》此前曾透露，根据外国代理人登记法 (FARA) 文件，CUSEF如何通过提供免费前往中国的旅行获得美国记者和前国会议员的“有利报道”。 这些旅行是 CUSEF 更广泛努力的一部分，旨在“向媒体、关键影响者和意见领袖以及公众有效传播关于中国共产党的积极信息”。
 
-**新闻来源：**[REVEALED: Rep. Adam Schiff Met With Former Chairman Of Chinese Communist Party’s Foreign Influence Operations. (thenationalpulse.com)](https://thenationalpulse.com/news/schiff-met-with-ccp-influence-group/)
+Gateway Pundit网站11月15日报道，英国最新的一项大规模研究再次证实，儿童和青少年在感染中共病毒后实际上没有任何死亡风险。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1428-1-School-Children-COVID.jpg)图片来源：[thegatewaypundit.com](https://www.thegatewaypundit.com/2021/11/uk-study-reveals-99-995-children-young-people-survive-covid-19-two-million-chance-fatal-much-lower-risks-vaccine/)
+
+这项分析由包括英格兰国家医疗服务系统、伦敦帝国学院、英格兰公共卫生局和布里斯托尔皇家儿童医院在内的几个英国著名医疗机构合作完成。当研究小组查看英国国家儿童死亡率数据库的数据时发现，中共病毒大流行的第一年，在死于各种原因的3105名儿童和年轻人中，只有61人的中共病毒检测呈阳性。
+
+该研究确定，在英格兰，中共病毒大流行的第一年，99.995%的儿童和青少年能在感染中共病毒后幸存，致命率只有百万分之二。
+
+在英格兰的1200多万儿童和年轻人中，只有25人由于中共病毒直接相关的并发症而去世。
+
+**参考阅读：**
+
+[Latest UK Study Reveals 99.995% of Children And Young People SURVIVE Covid-19; Only Two-in-A-Million Chance to Be Fatal (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/11/uk-study-reveals-99-995-children-young-people-survive-covid-19-two-million-chance-fatal-much-lower-risks-vaccine/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+**编辑/校对/发稿：小鹿**
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
