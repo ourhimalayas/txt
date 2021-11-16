@@ -2,25 +2,22 @@
 ---
 
 
-## 有声|中共将在美国西部释放新变种病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1669644/)
+## 班农继续呼吁消灭中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669764/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+作者：英国喜庄园-I770775
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月15日下午，班农先生及律师在法庭外接受了记者采访。在回答关于拒绝向国会提供相关文件的问题时，律师表示，任何一个美国人应该感到愤怒，居然会面对这种预先定罪的情形。在这个案子中，没有任何涉罪行为。我们的回复中要求在法律面前被平等对待。谁给了检察官撤销豁免的特权？这是违宪的。班农先生说：是时候反击了，我们要拿回主动权。 这个国家中每一个喜欢言论自由和捍卫民主自由的人都应该为此而战……我永远不会退缩，这次他们找错人了。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-16-下午11.34.57.png)
+上午在进入华盛顿FBI总部之前，班农先生向盖特的支持者们传递如下的信息：“请记住我们今天在这里是推翻违宪的拜登政权，大家要集中注意力，关注本质，不要被表象所左右。每天都要重锤出击，砸向中共，为了老百姓和中国人民，推翻中共！”
 
+参考链接：[https://gettr.com/post/ph2lgs81be](https://gettr.com/post/ph2lgs81be)
 
-2021年11月14日，郭文贵先生在大直播中爆料称，近期，中共将会在美国西部释放新变种病毒，并将自西向东蔓延，覆盖到整个美国以及其他西方国家。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-据前中共资深生化专家分析，新变种病毒将会加速疫苗灾难的发展进程，同时会加速各国政府疫苗强制政策的推进。目前，全球已有将近一半的人都接种过毒疫苗。新病毒变种将会使这些接种过疫苗的人更易被感染、患上重症甚至死亡。同时，接种过疫苗的患者也将会把新变种病毒更快地传播给未接种的健康人。对于各国政府而言，这也将成为各国加速疫苗强制令的最好借口，包括儿童也不能幸免。
-
-郭先生说，这是中共生化超限战真正灾难的开始，我们将面临人类最黑暗的时刻。灾难无法预测，新中国联邦人只有紧紧地联合在一起，才能保证自己的生命和财产安全。
-
-文字版原文：[中共将在美国西部释放新变种病毒](https://gnews.org/zh-hans/1666365/)
-
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编：文徬
+编辑：AN
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -28,7 +25,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
