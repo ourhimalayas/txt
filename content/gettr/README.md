@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@lotuslamp 11/16/2021 2:47 AM (UTC)`
+
+喜币上市15日上涨310倍，总成交量16.99M（百万）个，相对于首发的10亿个币，总共15日，上涨310倍的总换手率1.69%不足2%。其中已经包括了机构给战友们的福利大单，减去这些大单，估计1%都不到了，可见卖的人少之又少，没人卖啊，真的没人卖！！！这证明了7万多战友们的灭共信心，也证明了我们新联邦中国人的素质和实力。这和CCP国内的金融市场形成了鲜明的对比，一个是互相欺骗，给你挖坑，背后捅刀。一个是相互信任，有共同的目标，战友间的袍泽之情。高低胜负，一见分晓。共产党你完了！！！
+![img](https://media.gettr.com/group16/origin/2021/11/16/02/e3c6960e-d4d2-1b4a-0d3a-cba8d8e59208/0c7d8dfe00e03968ab370f0c404c58e2.JPG)
+
+---
+
 `@miles 11/16/2021 4:50 PM (UTC)`
 
 无论是对神和人都要兑现你的承诺<br/>
@@ -289,13 +298,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 A young man is dying after taking the first dose of the Covid vaccine. He’s dying, unconscious and not breathing<br/><br/>一位年轻男子在接种第一针疫苗后濒临死亡，不省人世，没有呼吸。<br/>
 ![img](https://media.gettr.com/group32/getter/2021/11/11/22/58/b29e49df-6d18-3875-6b6b-20a290b8d95a/out.jpg)
-
----
-
-`@miles 11/11/2021 10:48 PM (UTC)`
-
-一位父亲22岁的儿子因严重的中共病毒疫苗不良反应不得不叫救护车：高烧，几乎不能行走，胸部灼烧，超级虚弱。因此他呼吁应立即停止打疫苗。<br/><br/>A dad’s 22-year-old son had to call an ambulance due to severe adverse effects of the Covid vaccine: high fever, could barely walk, chest feels on fire, super weak, so he calls on to stop the vaccine right now
-![img](https://media.gettr.com/group20/getter/2021/11/11/22/48/97daa32d-1aeb-7f18-77d7-6c83b1e9862d/out.jpg)
 
 ---
 
