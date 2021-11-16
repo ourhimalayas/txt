@@ -2,21 +2,49 @@
 ---
 
 
-## 京西宾馆90%的人想拥有喜币
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1669549/)
+## NBA要求月底完成加强针 否则视同未接种
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669604/)
 
-习绝对不相信，京西宾馆里边的90%的人想拥有喜币。国内的人给郭先生发出来的，说我告诉你，喜币喜支付，然后喜贷款，从今以后全球流通，绝对的最高效、最保密。
-
-**【郭先生直播摘要】2021.11.10 京西宾馆90%的人想拥有喜币**
-
-**郭先生:**
-
-现在在京西宾馆的, 我相信习他绝对不相信, 我太了解习这个人了。这个人是他所谓的不信邪就是， 我不知道的我都不信， 是吧。我不知道的我都不信，他叫不信邪，所有我不知道的都是邪。我知道的都是正，他叫不信邪，他绝对不信邪， 就是京西宾馆里边的90%的人想拥有喜币。
- 我可以告诉，昨 天那位咱们那位战友在Gnews写的报告， 哗哗的传出去在国内， 国内的人给我发出来， 这哥们写得好。 我告诉你， 喜币喜支付， 然后喜贷款， 从今以后全球流通。 不用，你不可能再需要银行的信用卡，你不可能在需要任何，而且你绝对的安全，绝对的最高效最保密。特别像台湾这样的地方，像新加坡这种地方日本这种地方，澳大利亚新西兰简直是个变态的地方。加拿大就更加变态了，就未来你的财富完全是这些国家是要给你掠夺性的霸占着你。只有我们能解决，谁都解决不了，但是能看清楚七哥设计的高端之巧妙者、之奥妙者寥寥无几。
+作者：纽约香草山文艺部 – 宁文静
 
 
 
-视频剪辑：小腾腾说 |听写：雨山溪桥客 |翻译：Arthur|校对：tonyj |视频制作+字幕：小腾腾说 |编辑&发布： 闪电训练
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+美国国家篮球协会与NBA在11月12号的一份备忘录中说，球员和教练必须“尽快接受加强针的注射”。“尽快”，很大程度是指在12月1号之前。
+
+NBA称，已经有至少8名球员的病毒检测呈阳性。CDC一直认为NBA的社区传播风险很“高”，随着时间的推移，对delta病毒的免疫力也会下降，因此篮球协会要求球员注射加强针，拒绝接受的将一律被视为未完全接种疫苗 。目前约97%的NBA球员接种了中共病毒疫苗。
+
+NBA中，最引人关注的抵制者是布鲁克林的凯里·欧文，他是一名常年入选的全明星队员，却因不愿打疫苗而被球队停赛数周。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.3-3.jpg)
+参考链接：
+[In memo, NBA tells players and coaches to act on booster shots](https://www.nba.com/news/in-memo-nba-tells-players-and-coaches-to-act-on-booster-shots)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：Jack Li文阳
+编辑：AN
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

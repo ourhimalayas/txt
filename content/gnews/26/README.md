@@ -2,31 +2,51 @@
 ---
 
 
-## 不投喜币投什么？ ——加密货币的市值增长了五倍
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1669439/)
+## 中共加强对网络从业者管控和迫害力度
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669441/)
 
-撰稿：电流声
-![](https://assets.gnews.org/wp-content/uploads/2021/11/162.jpg)(图片来自网络截图)
-相较于2020年11月的5780亿美元，全球加密货币市场的市值已经增长了五倍。加密货币的市值在一年内狂飙——总市值（万亿美元）3万亿。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/163.jpg)(图片来自网络截图)
-支付业巨头万事达（Mastercard）最近宣布与三家亚洲加密公司合作，将推出加密信用卡，借记卡和预付卡，用户可以将数字资产转换为法定货币。
+作者：澳喜农场 – 在远方
 
-上周，澳大利亚最大的银行澳大利亚联邦银行（CBA）成为该国第一家允许客户通过其应用程序购买，出售和持有加密资产的银行。摩根大通（JPMorgan Chase）最近开始向其财富管理客户提供加密基金的购买渠道，尽管该行的首席执行官杰米·戴蒙曾经发出公开警告，称比特币“毫无价值”。
 
-而喜币（Hcoin）具有安全，最前沿的加密技术，还有20%的黄金锚碇；每天最大额度提现十万美元。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_0441.jpg)(图片来自网络截图)
-11月4日，郭文贵先生在盖特上发文说，“未来的37天内，会是爆料革命政治、经济，革命队伍一个新的关键增长期！我们已经到了，让新中国人在每天早上，从一个新的、真的、快乐的，美好的梦中醒来！从健康的、充满激情的、愉悦的……希望中开始新的一天！”
 
-语言是苍白的，还用选择吗？不投喜币投什么！共产党——你完球蛋了！
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-（文章仅代表作者观点）
 
-*编辑&发稿：mgjxs*
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+中共网信办11月14日发布了《网络数据安全管理条例（征求意见稿）》，对数据处理者规定了数据处理、数据保密、申报安全审查、数据泄露处罚等方面的苛刻条件。其中，赴香港上市的数据处理者有可能影响所谓国家安全的，必须申报审查。
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
+在此之前的10月底，中共网信办就发布《数据出境安全评估办法（征求意见稿）》，列出了5种必须先申请“安全评估”的情形，其中包括掌握100万人讯息，或者累计向境外提供10万人以上讯息的从业者。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-9.jpg)
+值得一提的是，该条例还首次明确提到了屏蔽部分境外网站和翻墙软件等事项，并规定了严厉的处罚细则。条例称，任何个人和组织都不能提供用于穿透中共防火墙的程序、工具和线路等，如有违反，对单位可进行最高达50万元的罚款，对个人可以追究刑事责任。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.2-7.jpg)
+参考链接：
+1. [中共加强对网络业者管控 赴港上市须经网络安审批准](https://www.voachinese.com/a/china-may-seek-cyber-check-for-ipo-in-hk-20211114/6312589.html)
+2. [国家互联网信息办公室关于《网络数据安全管理条例（征求意见稿）》公开征求意见的通知](http://politics.people.com.cn/n1/2021/1114/c1001-32281796.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：文特
+编辑：飞虹
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,49 +2,38 @@
 ---
 
 
-## NBA要求月底完成加强针 否则视同未接种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669604/)
+## DC每日热点1116
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1669630/)
 
-作者：纽约香草山文艺部 – 宁文静
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/11/E227348F-1019-4B68-A82C-E257334FB522-scaled.jpeg)
+道琼斯指数 36162.01 ▲0.21%
+纳斯达克指数 15853.51 ▼0.00%
+WTI纽约原油CFD 80.625 ▼0.32%
+布伦特原油CFD 82.048 ▼0.00%
+标普中概股50指数 3,746.90CNY▼24.68%
+美元兑人民币 1USD=6.388RMB
+美元兑港币 1USD=7.788HKD
+国际黄金 1865.05 美元/盎司
+全球CCP病毒感染人数 254,774,256 例
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-美国国家篮球协会与NBA在11月12号的一份备忘录中说，球员和教练必须“尽快接受加强针的注射”。“尽快”，很大程度是指在12月1号之前。
-
-NBA称，已经有至少8名球员的病毒检测呈阳性。CDC一直认为NBA的社区传播风险很“高”，随着时间的推移，对delta病毒的免疫力也会下降，因此篮球协会要求球员注射加强针，拒绝接受的将一律被视为未完全接种疫苗 。目前约97%的NBA球员接种了中共病毒疫苗。
-
-NBA中，最引人关注的抵制者是布鲁克林的凯里·欧文，他是一名常年入选的全明星队员，却因不愿打疫苗而被球队停赛数周。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.3-3.jpg)
-参考链接：
-[In memo, NBA tells players and coaches to act on booster shots](https://www.nba.com/news/in-memo-nba-tells-players-and-coaches-to-act-on-booster-shots)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：Jack Li文阳
-编辑：AN
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+1、缅甸军政府对昂山素季提出新的“选举舞弊”指控
+2、美中首脑首次正式视讯会晤 中方称“富有成效”白宫说没有突破，台湾问题仍僵持对立
+3、为了台海 日在冲绳列岛强化电子战部署
+4、香港特首承认国安法是审核外媒签证的重要考量
+5、英国政府拒绝议会外交事务委员会建议将新疆人权状况宣告为种族灭绝，亦不同意禁止新疆棉进口
+6、拜登总统签署1万亿美元基础设施法案
+7、联邦陪审团裁决一名华裔美国海军上尉违反枪支法及在接受安全背景调查时撒谎
+8、波兰警告关闭与白俄铁路交通 中欧班列或停运
+9、中共国欲成国际刑警执委 四大洲90名议员及社运人士反对 忧通缉机制遭滥用
+10、中共第3份历史决议：实现统一是历史任务
+11、美国务卿：俄反卫星导弹造成碎片威胁国际空间站安全
+12、法新冠病毒新增感染率回升至100 以上 九月以来首见
+13、佳兆业即停中共国人跨境投资开户 暂未见被官媒点名跨境券商跟随
+14、普京与马克龙通电话 同意”缓和”白波边境难民危机
+15、伊拉克政府表示本周四将安排包机“在自愿的基础上”接回被困在白罗斯与波兰边境的伊拉克人
+16、民调：美逾半数家长不放心儿童接种新冠疫苗
+17、 内蒙禁铁路进口俄国产品 称货物包装上现病毒
 
  
 
