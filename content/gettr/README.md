@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/16/2021 3:05 AM (UTC)`
+
+这是哪个战友做的呀，太棒了！衷心的，感谢万分的感谢！🙏🙏🙏🙏🙏🙏🙏
+![img](https://media.gettr.com/group7/getter/2021/11/16/03/05/07008e53-31f6-9a8b-f480-9ff6f0097ac8/out.jpg)
+
+---
+
 `@miles 11/16/2021 1:27 AM (UTC)`
 
 11月15号：应战友们的要求……发一个SNOW 的小视频🤪
@@ -289,13 +296,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 11月11号：尊敬的战友们好！共产党的光棍节骗局，彻底破产，共产党的房地产骗局将给世界的经济带来巨大的灾难……莘县阳谷县达县咱走着看！
 ![img](https://media.gettr.com/group44/getter/2021/11/11/15/41/de387d35-2edc-5d0c-93be-348fc83dd05b/out.jpg)
-
----
-
-`@miles 11/11/2021 7:50 AM (UTC)`
-
-11/10/2021 Miles Guo: Our scientist fellow fighters revealed that the oral drugs against the CCP virus pushed by the crooked pharmaceutical companies to evade regulation are more poisonous than the COVID vaccines, and these drugs can result in a range of problems in the blood, nervous and digestive system. Fellow fighters, stay away from these drugs!<br/><br/>11/10/2021 文贵直播：科学家战友爆料称，无良药企为逃避监管而强推的口服抗中共病毒药比疫苗更毒，会导致血液、神经、消化系统等一系列严重问题。战友们千万别碰！<br/>
-![img](https://media.gettr.com/group16/getter/2021/11/11/07/50/03475c77-8b2d-6dfb-6a89-2aed7ed5d40d/out.jpg)
 
 ---
 
