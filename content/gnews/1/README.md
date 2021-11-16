@@ -2,24 +2,40 @@
 ---
 
 
-## 德国及邻居波兰捷克的中共病毒疫情加重
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1668524/)
+## 谷歌威胁退出澳大利亚后又承诺投入7.36亿美元
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1668561/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-69.png)
-图片来源： www.epochtimes.com
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-美国合众国际社11月14日报道，欧洲三个邻居国家—德国，捷克，波兰在俄罗斯破记录的每日死亡数之后引领了欧洲新一波中共病毒疫情病例数和死亡数。欧洲显示了本周死亡数比上周增加7%而且感染数增加13%，欧洲的总死亡数已超过135万，总病例数已超过6千8百18万，仅次于亚洲。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Australia-Facebook-Google.jpg)图片来源：www.foxbusiness.com
 
-世卫组织欧洲区主任一周前说：“信息显示，疫苗正在起到防止病情严重化，尤其减少死亡率，但这个方法必须伴随着其预防措施。”
 
-总体来说，全球总病例数于周日已达到2亿5千4百多万，虽然有5%的病例数增加，但死亡数并没有明显增加，目前死亡数达5百11.5万，美国的死亡数最高，为78万3千5百多人，病例数达4千7百91万6千多人。
+#### 编译：小红帽
 
-俄罗斯周日报告1219例死亡，总死亡数达25万5千3百86人，全球排第五。
+谷歌表示，将在五年内在澳大利亚投入10亿澳元（7.36亿美元），而就在几个月前，它曾威胁要从澳大利亚撤出其服务，以应对更严厉的政府监管。
 
-徳国本周死亡数增加42%，疫情以来总死亡数9万8千多人，全球排第十四位，感染人数本周增加49%，总感染数达3千5百20万6千多人，全部排第12位。波兰死亡数增加46%，总死亡数达7万8千8百多人排第17位，病例数增加27%，总感染数达320多万，也是第17位。捷克本周死亡数增加34%，总死亡数达3万1千481人，感染数增加34%，总感染数达189万多人。
+字母控股公司（Alphabet）的主要运营部门周二表示，它计划扩大云计算基础设施，建立一个由澳大利亚研究人员和工程师组成的研究中心，并与科学机构英联邦科学和工业研究组织（CSIRO）合作。
 
-##### **新闻来源： **[Neighbors Germany, Poland, Czech Republic fuel Europe COVID-19 surge](https://www.upi.com/Top_News/World-News/2021/11/14/world-cornavirus-germany-poland-czech-republic-russia-surge/5701636902602/)
+谷歌澳大利亚公司总经理梅尔·席尔瓦（Mel Silva）今年初曾威胁要封锁谷歌在该国的搜索引擎，并表示该支出计划将带来大量技术资源和投资。
+
+澳大利亚总理斯科特·莫里森(Scott Morrison)出席了在悉尼举行的融资宣布会时表示，这是对澳大利亚数字经济战略的 “10亿澳元的信心投票”，该战略旨在到2030年使澳大利亚进入全球十大数字经济体之列。
+
+席尔瓦在今年1月的澳大利亚议会听证会上威胁说要封锁谷歌的搜索引擎，以避免法律迫使该公司和社交媒体运营商Facebook Inc为其网站上发布的内容向新闻机构付费。
+
+然而，法律出台后，谷歌却放弃了其威胁。谷歌和脸书反而与澳大利亚的大多数主要媒体公司达成了许可协议。
+
+联邦政府定于明年3月开始对该法律的有效性进行审查。
+
+**参考新闻：**[Google commits $736m in Australia after threatening pull-out | Business and Economy | Al Jazeera](https://www.aljazeera.com/economy/2021/11/16/google-commits-736m-in-australia-after-threatening-pull-out)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,40 +2,32 @@
 ---
 
 
-## 近5万名医保患者在接种新冠疫苗后不久死亡
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1668181/)
+## 秘翻在线:从班农的被指控看中共及邪恶势力的加速灭亡
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1668202/)
 
-![Whistleblower: Nearly 50,000 Medicare patients died soon after getting Vaccine](https://thinkcivics.com/wp-content/uploads/2021/09/MicrosoftTeams-image-1-810x500-1-750x375.png)*举报人托马斯·伦茨（Thomas Renz）*
-举报人称：近5万名医保患者在接种新冠疫苗后不久死亡
+撰稿:牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Image-1-2-4.jpg)
+图片:GETTY IMAGES
 
-据托马斯·伦茨（Thomas Renz）律师称，一位举报人提供的政府数据显示，仅在医保患者中，就有48465人在接种新冠疫苗后14天内死亡。
+**中共的诡计难以得逞**
 
-（伦茨在演讲中播放的）一张幻灯片显示，在“接种新冠疫苗后14天内死亡的人数”中，81岁以下的人群为19400人，81岁及以上的人群为28065人，共计48465人。
+根据CNBC的报导，现年67岁的前川普顾问史蒂夫．班农因为拒绝出示1月6日国会入侵相关档案的要求，被控两项藐视国会罪。11月15日，班农在华盛顿特区向联邦当局自首后无保释放。
 
-“这是原始数据。没有分析，并且这些死亡数字仅来自不到20%的美国人口。”
+班农在GETTR直播中说：”我希望人们专注这件事所发出的讯号，而不是杂音。”郭文贵先生在42天之前就提醒班农，中共及邪恶势力正准备用1月6日国会山事件，搞臭班农及战斗室节目，让他们无法发声。接下来就是对付川普，让川普永远失去总统大选的机会。
 
-“你想知道为什么14天这么重要吗？因为如果你在14天内死亡，你就不算是接种了疫苗。”根据疾病控制与预防中心（CDC）的说法，注射第一针不算接种了疫苗，只有在打完第二针的14天后才算“接种了疫苗”。
+**中共让班农成为教父级的英雄**
 
-原文链接：[https://thinkcivics.com/whistleblower-nearly-50000-medicare-patients-died-soon-after-getting-vaccine/](https://thinkcivics.com/whistleblower-nearly-50000-medicare-patients-died-soon-after-getting-vaccine/)
+中共及邪恶势力正企图利用司法抹黑的方式斗垮班农，”他们找错人了!”班农直言。”此举反而让班农成为横跨两党教父级的英雄。”郭文贵先生直捣黄龙的说。
 
-简评：
+对于共产党而言，想方设法用各种抹黑手段去斗臭斗垮敌人，或许在中共国的体制行得通，然而在自由民主的国度，这样的恶劣手段适得其反，眼睛雪亮的民众因为追求正义，反而更加坚定灭共的决心。
 
-CDC将接种新冠疫苗后14天内的死亡，都计算为非疫苗引起的死亡，这样混淆概念的做法即荒谬又无耻。这篇短文所揭露的数据，也是现在全球性疫苗灾难的冰山一角。而在这样艰难的情况下，我们更是要感谢那些不畏艰险阻力，为公众们提供真相的吹哨人们。
+**中共的恶行加速自己的灭亡**
 
-翻译：Kone\_Neko
+班农成了为正义奋斗的化身，班农的父亲也以儿子为荣。对于崇尚自由民主的美国人而言，将摒弃两党之争，全力支持及关注班农及他为平民老百姓争取的正道主义。这次的事件证明中共的黑手可以操控美国的司法系统，也让美国两党人士明白，消灭中共及暗黑势力的重要性。
 
-PR：Julia Win
+中共及邪恶势力想要借此事件让班农及正道主义的力量消失无踪，反而加速他们被灭亡的时间。原因无他，只因他们错将冯京当马凉，将娴熟的中共国抹黑伎俩放在民主国家，”找错人找错地方还找死!”
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+消息来源:[http://Trump ally Steve Bannon released without bail after handing over passport in Jan. 6 contempt case](http://Trump%20ally%20Steve%20Bannon%20released%20without%20bail%20after%20handing%20over%20passport%20in%20Jan.%206%20contempt%20case)
 
  
 
