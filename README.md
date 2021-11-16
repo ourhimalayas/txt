@@ -147,16 +147,16 @@
 ### [货币的未来 ：经济学家称现金的末日即将到来](/content/gnews/44/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [GTV新闻访谈简报|2021年11月15日早](/content/gnews/45/README.md)
- ` 纽约香草山MOS01`
-
-### [人权观察批北京冬奥赞助商对中共践踏人权行为无动于衷](/content/gnews/46/README.md)
- ` 日本东京方舟农场`
-
-### [班农战斗室：中共是跨国犯罪集团](/content/gnews/47/README.md)
+### [新中国联邦人将是找到生命和信仰真相的人类新群体](/content/gnews/45/README.md)
  ` GTV新闻访谈`
 
-### [班农先生被司法部起诉的意义](/content/gnews/48/README.md)
+### [GTV新闻访谈简报|2021年11月15日早](/content/gnews/46/README.md)
+ ` 纽约香草山MOS01`
+
+### [人权观察批北京冬奥赞助商对中共践踏人权行为无动于衷](/content/gnews/47/README.md)
+ ` 日本东京方舟农场`
+
+### [班农战斗室：中共是跨国犯罪集团](/content/gnews/48/README.md)
  ` GTV新闻访谈`
 
 ### [殡葬行业的红火才刚开始](/content/gnews/49/README.md)
