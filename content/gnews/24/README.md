@@ -2,33 +2,50 @@
 ---
 
 
-## 有声|中共将在美国西部释放新变种病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1669644/)
+## 佛州将召开特别立法会禁止强制疫苗令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669721/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+作者：英国喜庄园 – I770775
 
 
-2021年11月14日，郭文贵先生在大直播中爆料称，近期，中共将会在美国西部释放新变种病毒，并将自西向东蔓延，覆盖到整个美国以及其他西方国家。
 
-据前中共资深生化专家分析，新变种病毒将会加速疫苗灾难的发展进程，同时会加速各国政府疫苗强制政策的推进。目前，全球已有将近一半的人都接种过毒疫苗。新病毒变种将会使这些接种过疫苗的人更易被感染、患上重症甚至死亡。同时，接种过疫苗的患者也将会把新变种病毒更快地传播给未接种的健康人。对于各国政府而言，这也将成为各国加速疫苗强制令的最好借口，包括儿童也不能幸免。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-郭先生说，这是中共生化超限战真正灾难的开始，我们将面临人类最黑暗的时刻。灾难无法预测，新中国联邦人只有紧紧地联合在一起，才能保证自己的生命和财产安全。
 
-文字版原文：[中共将在美国西部释放新变种病毒](https://gnews.org/zh-hans/1666365/)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+11月15日，佛罗里达州州长德桑蒂斯发表声明，将召开特别立法会议，阻止联邦政府强制接种疫苗的政策。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+德桑蒂斯说，“没有警察，没有消防员，没有护士，没有任何人应该因为不注射疫苗而失去他们的工作”。德桑蒂斯指出，联邦政府的强制接种命令是“违宪的”，将迫使人们离开工作岗位，减少关键行业的人力。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3.1-5.jpg)
+据州长办公室信息，在接下来为期一周的时间里，州立法会将审议相关法案，对强制接种疫苗的企业与地方政府实施新的处罚。具体规定为：私营雇主如果公布疫苗政策，则必须允许员工因健康或宗教问题免予施打，从中共病毒中康复的员工和孕妇也可豁免。此外，企业必须免费提供测试，作为施打疫苗的替代方案。对于违反规定的企业，面临的罚款将从目前的每次5000美元，增加到1万美元至5万美元不等。
+
+参考链接：
+[佛州将召开特别立法会议 禁私企强制接种令](https://www.epochtimes.com/gb/21/11/15/n13376029.htm)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：飞虹
+编辑：木白
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
