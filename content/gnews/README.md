@@ -15,115 +15,115 @@
 
 ---
 
-### [班农先生：我永远不会退缩](/content/gnews/1/README.md)
+### [日本人发声揭露新冠病毒及其疫苗的全球大骗局](/content/gnews/1/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [班农先生：我永远不会退缩](/content/gnews/2/README.md)
  ` GTV新闻访谈`
 
-### [班农继续呼吁消灭中共](/content/gnews/2/README.md)
+### [班农继续呼吁消灭中共](/content/gnews/3/README.md)
  ` GTV新闻访谈`
 
-### [国际要闻汇编 11月16日](/content/gnews/3/README.md)
+### [国际要闻汇编 11月16日](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [佛州将召开特别立法会禁止强制疫苗令](/content/gnews/4/README.md)
+### [佛州将召开特别立法会禁止强制疫苗令](/content/gnews/5/README.md)
  ` GTV新闻访谈`
 
-### [11/16/21 香港快讯 彭博社评论批立法会选举受操控 曾国卫去信轰“毫无根据、散播恐惧”](/content/gnews/5/README.md)
+### [11/16/21 香港快讯 彭博社评论批立法会选举受操控 曾国卫去信轰“毫无根据、散播恐惧”](/content/gnews/6/README.md)
  ` 英喜-粵語組`
 
-### [缅甸被剥夺权力的总理昂山素季将受审](/content/gnews/6/README.md)
+### [缅甸被剥夺权力的总理昂山素季将受审](/content/gnews/7/README.md)
  ` Shuizhuyu`
 
-### [恒大很快宣布破产 即将引发雪崩效应](/content/gnews/7/README.md)
+### [恒大很快宣布破产 即将引发雪崩效应](/content/gnews/8/README.md)
  ` 纽约香草山MOS03`
 
-### [墙内要闻汇编 11月16日](/content/gnews/8/README.md)
+### [墙内要闻汇编 11月16日](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“新驭民五术”——中国房地产：弱民、疲民](/content/gnews/9/README.md)
+### [“新驭民五术”——中国房地产：弱民、疲民](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [奥地利政府颁布10天禁足令 任意未打疫苗的外出者将被罚款](/content/gnews/10/README.md)
+### [奥地利政府颁布10天禁足令 任意未打疫苗的外出者将被罚款](/content/gnews/11/README.md)
  ` 纽约香草山MOS03`
 
-### [有声|中共将在美国西部释放新变种病毒](/content/gnews/11/README.md)
+### [有声|中共将在美国西部释放新变种病毒](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [DC每日热点1116](/content/gnews/12/README.md)
+### [DC每日热点1116](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [17岁天才滑雪选手因中共病毒疫苗副作用遭“淘汰”](/content/gnews/13/README.md)
+### [17岁天才滑雪选手因中共病毒疫苗副作用遭“淘汰”](/content/gnews/14/README.md)
  ` GTV新闻访谈`
 
-### [有声|疫苗无效 欧洲将面临第四波疫情的冲击](/content/gnews/14/README.md)
+### [有声|疫苗无效 欧洲将面临第四波疫情的冲击](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [在激烈的法庭演讲中班农告诉拜登他选错了目标](/content/gnews/15/README.md)
+### [在激烈的法庭演讲中班农告诉拜登他选错了目标](/content/gnews/16/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [福奇承认接种疫苗的人处于极大的危险中](/content/gnews/16/README.md)
+### [福奇承认接种疫苗的人处于极大的危险中](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [NBA要求月底完成加强针 否则视同未接种](/content/gnews/17/README.md)
+### [NBA要求月底完成加强针 否则视同未接种](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [有声|联合国气候变化协议达成 煤炭减排承诺缩水](/content/gnews/18/README.md)
+### [有声|联合国气候变化协议达成 煤炭减排承诺缩水](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [有声|恒大将引爆中共房地产业雪崩](/content/gnews/19/README.md)
+### [有声|恒大将引爆中共房地产业雪崩](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [淡马锡先跟中共国脱钩了](/content/gnews/20/README.md)
+### [淡马锡先跟中共国脱钩了](/content/gnews/21/README.md)
  ` 澳喜特战旅Gnews`
 
-### [有声|国会利用班农事件转移拜登外交政策的失败](/content/gnews/21/README.md)
+### [有声|国会利用班农事件转移拜登外交政策的失败](/content/gnews/22/README.md)
  ` MOSREC`
 
-### [京西宾馆90%的人想拥有喜币](/content/gnews/22/README.md)
+### [京西宾馆90%的人想拥有喜币](/content/gnews/23/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [维州自由党议员芬恩呼吁抵制州政府强推的疫情法案](/content/gnews/23/README.md)
+### [维州自由党议员芬恩呼吁抵制州政府强推的疫情法案](/content/gnews/24/README.md)
  ` 澳喜特战旅Gnews`
 
-### [墙内房企资金吃紧，多地涌现“工抵房”](/content/gnews/24/README.md)
+### [墙内房企资金吃紧，多地涌现“工抵房”](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [国际女网协会要求中共调查彭帅被性侵事件](/content/gnews/25/README.md)
+### [国际女网协会要求中共调查彭帅被性侵事件](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [中共加强对网络从业者管控和迫害力度](/content/gnews/26/README.md)
+### [中共加强对网络从业者管控和迫害力度](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [中共的第三次历史决议发布——一本正经的胡说八道](/content/gnews/27/README.md)
+### [中共的第三次历史决议发布——一本正经的胡说八道](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登政府为什么求着习近平开这次视频会议？](/content/gnews/28/README.md)
+### [拜登政府为什么求着习近平开这次视频会议？](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [来这世上学一学](/content/gnews/29/README.md)
+### [来这世上学一学](/content/gnews/30/README.md)
  ` 骄子`
 
-### [11/16/2021国际财经快讯：亚洲股市焦点转向中美会谈；欧洲股市创下新高](/content/gnews/30/README.md)
+### [11/16/2021国际财经快讯：亚洲股市焦点转向中美会谈；欧洲股市创下新高](/content/gnews/31/README.md)
  ` 秘密翻译组金融团队`
 
-### [令生灵涂炭的政权](/content/gnews/31/README.md)
+### [令生灵涂炭的政权](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共将在北京举办首届网络文明大会，展示网络舆论管控成果](/content/gnews/32/README.md)
+### [中共将在北京举办首届网络文明大会，展示网络舆论管控成果](/content/gnews/33/README.md)
  ` 首尔天池农场`
 
-### [北交所开市 存量股普跌](/content/gnews/33/README.md)
+### [北交所开市 存量股普跌](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [震撼民调：COVID 疫苗授权令美国家庭分崩离析](/content/gnews/34/README.md)
+### [震撼民调：COVID 疫苗授权令美国家庭分崩离析](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [G系列拥有者未来永远VVIP](/content/gnews/35/README.md)
+### [G系列拥有者未来永远VVIP](/content/gnews/36/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [不是讽刺：美国接种疫苗最多的州感染正在激增](/content/gnews/36/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [去年英仅6名儿童死于 COVID为何要给孩子接种疫苗？](/content/gnews/37/README.md)
+### [不是讽刺：美国接种疫苗最多的州感染正在激增](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
 ### [克雷格·凯利在“世界上最受压迫的城市”向群众发表讲话](/content/gnews/38/README.md)

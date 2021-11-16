@@ -2,30 +2,29 @@
 ---
 
 
-## 恒大很快宣布破产 即将引发雪崩效应
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1669703/)
+## 缅甸被剥夺权力的总理昂山素季将受审
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1669711/)
 
-作者：香草山商业部 往后余生Jane
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
-
-
-
-在11月14日的文贵大直播中，郭文贵先生谈到，恒大一定破产，随后将对中共国和世界金融、经济造成雪崩效应。 恒大成立了清算委员会，或者债务处理委员会，两周内宣布破产，重要的是恒大宣布破产养老金没了，所有银行的钱要不回来了。中共房地产一定是崩溃式下跌，融创、富力、合生创展、碧桂园一定会倒。 习让房地产惨烈的倒下，把欧洲十几万亿和美国七万亿的投资给灭了，而可恶的是西方主流媒体非但不提疫苗问题，对恒大爆雷也是统一口径、避重就轻，因为背后都是同一拨邪恶的人。 习妄图利用中共房地产崩溃，先搞垮世界经济，声东击西，下一步就要趁乱打台湾。郭先生说，这将加速世界承认新中国联邦。
-
-编辑/审核/发稿：Bronx Bombers
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/UN-fordern-mehr-Druck-auf-Junta-in-Myanmar-jpg.jpg)
 
 
-**更多资讯，更多关注**
+资料来源：世界报
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+缅甸军方在 2 月的政变中夺取了政权。从那以后，被剥夺权力的昂山素季总理一直被软禁。她被指控在去年的议会选举中存在欺诈行为。昂山素季现在将受审。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+缅甸军政府希望对被剥夺权力的事实上的政府首脑昂山素季在去年的议会选举中涉嫌选举舞弊进行审判。官方报纸《全球新光报》周二宣布，昂山素季将因“选举舞弊和不法行为”被起诉。该报没有提供有关可能开始该过程的任何信息。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+缅甸军方在 2 月的政变中夺取了政权。在此之前一直在任的事实上的总理昂山素季一直被软禁，并受到一系列刑事指控。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+军方以 2020 年议会选举中涉嫌选举舞弊为由，为其接管权力辩护，昂山素季的全国民主联盟（NLD）党赢得了投票，但是选举结果于 7 月被废止。
+
+2 月的军事政变结束了缅甸短暂的民主化阶段。 全国各地都发生了反对军政府的抗议活动，一千多名平民在镇压中丧生。
+
+原文链接：[新闻来源：德国世界报网页版](https://www.welt.de/politik/ausland/article235079366/Myanmars-entmachteter-Regierungschefin-Suu-Kyi-soll-der-Prozess-gemacht-werden.html)
+
+责任编辑、发布： Shuizhuyu
 
  
 
