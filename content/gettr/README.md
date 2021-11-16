@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/16/2021 9:53 PM (UTC)`
+
+😱😱😱😱😱😱😱😱😱
+> `@stz_mieyizu 11/5/2021 11:07 AM (UTC)`<br/>A pilot took the Pfizer vaccine, and here are what he faces now: A sick body, frequent doctor visits and medical treatment, expensive medical bills and missing of life. What’s worse, the vaccine has taken his career from him and almost taken away everything he and his family has <br/>一位飞行员打了辉瑞疫苗后面临着生病的身体， 频繁的治疗，高昂的医疗账单和完结的职业生涯；疫苗夺走了他的家庭和所拥有的一切
+![img](https://media.gettr.com/group17/origin/2021/11/05/11/07/6a795d67-d53a-7e88-7c58-4ee4be61ac54/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@lotuslamp 11/16/2021 2:47 AM (UTC)`
@@ -291,13 +299,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 ...
 ![img](https://media.gettr.com/group43/origin/2021/11/12/02/0f36ad13-6ac4-aa80-5412-d4a1830c42c9/9548d67018b19975dcafea4c4484666a.png)
-
----
-
-`@miles 11/11/2021 10:58 PM (UTC)`
-
-A young man is dying after taking the first dose of the Covid vaccine. He’s dying, unconscious and not breathing<br/><br/>一位年轻男子在接种第一针疫苗后濒临死亡，不省人世，没有呼吸。<br/>
-![img](https://media.gettr.com/group32/getter/2021/11/11/22/58/b29e49df-6d18-3875-6b6b-20a290b8d95a/out.jpg)
 
 ---
 
