@@ -2,13 +2,15 @@
 ---
 
 
-## 班农：我希望大家不要从我们每天关注的事情上移开注意力
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1667934/)
+## 【文贵先生大直播PPT】喜币如何迎接人类金融大转变
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1668095/)
 
-11/15/2021 班农在FBI办公室外：我希望大家都不要从我们每天关注的事情上移开注意力。记住，关注关键信号，而不是噪声。这里都是噪声。
+撰稿： 哈雷，我是1，小一，Benj1
+PPT制作： 雷蒙（小蚂蚁在行动） 卡西亚
+文案终审： 三票先生 选票地票言票，顽童2017
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+【2021年11月14日文贵先生大直播PPT：喜币如何迎接人类金融大转变】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/21-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/25-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/26-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/27-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
