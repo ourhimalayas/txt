@@ -2,40 +2,168 @@
 ---
 
 
-## “踩雷”恒大后，中共国苏宁也要“爆雷”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1669025/)
+## 乌托邦的中共和实力派的美国不可比拟
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1669053/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-115.jpg)图片来源
-**在中共国“谣言”是遥遥领先的预言**
+[https://gtv.org/video/id=619331ac182702508105c1f6](https://gtv.org/video/id=619331ac182702508105c1f6)
 
-11月16日早间，苏宁易购在官方微博发出一条声明，称“苏宁易购十二月底宣布破产”系谣言，公司经营一切正常。近日，网上广泛流传“苏宁十二月底破产”，“苏宁可能欠钱不还”。
+跟美国人签一份一千年的和平协议
+Firmar un acuerdo de paz por mil años con los estadounidenses
 
-近期苏宁出现大量关于公司“理财”到期无法兑付的投诉，涉及人员多为苏宁员工及前员工，单个案例涉及金额从几万元到上百万元不等。公司也在内部发出通知，拟单方面采取延本付息的方式，本金兑付时点最晚推迟到2022年11月30日。
+对中国是最好的
+Es bien para China
 
-苏宁易购曾在2021年三季报中称，“第三季度是苏宁易购三十年发展历程中最艰难的时期，我们遇到了前所未有的困难。”前三季度来看，营收1155.7亿元，同比下降36.1%，亏损75.68亿元，同比下滑1483.29%。去年8月以来苏宁易购股价处于持续下降通道中，至记者发稿最新价格4.44元，累计跌幅达到60%。
+你想都别想跟人家打架
+No pienses en pelear con ellos
 
-苏宁易购表示，今年6月以来持续的流动性严重不足，使得公司核心电器3C业务的库存商品规模创历史最低值，销售规模急剧下滑，带来了经营业绩的大幅度亏损，毛利额大幅下降。财报显示，苏宁易购前三季度经营活动产生的现金流量净额为-44.56亿元。截止到目前，苏宁已经连续亏损6年。
+它不是钱的事
+Esto no es un asunto de dinero
 
-**苏宁踩雷恒大**
+不是武器的事
+Arma
 
-苏宁老板张近东，与恒大老板许家印，2017年7月在深圳的一次会面，张近东对许家印非常认可，称“我和许家印主席心有灵犀、一拍即合，共同决定要推动苏宁和恒大全方位的战略合作，携手布局智慧零售时代下的场景消费。”不久，一张张近东与许家印的“交杯酒照”开始在网络上疯传，证实了两人交情深厚，要干一番大事业的传闻。但让张近东没想到的是，这交杯酒，其实是杯苦酒。
+不是科技的事
+O tecnología
 
-果不其然在2017年11月6日，中国恒大发布公告称，苏宁电器集团之全资子公司南京润恒将向恒大地产战略投资200亿元。在恒大地产增资扩股完成后，南京润恒将持有其4.7%的股份。在张近东来看，这笔投资即便不像投资阿里巴巴那样回报可观的话，也因为有回购协议的存在而有保证，并且恒大在增资的公告中承诺，未来三年的净利润分别不少于500亿元、550亿元和600亿元。
+它是一个历史的堆积
+Es la acumulación histórica
 
-苏宁入股恒大后，张近东与许家印经常以好哥俩的形象在重大场合出现。2018年3月31日，张近东受邀出席了恒大集团战略合作伙伴高层峰会。会后，张近东对外透露，双方已经在80个社区物业项目和11个大型开发项目上展开了全面的对接。
+就像新中国联邦, 七哥要没有30年在共产党内的堆积
+Así como el Nuevo Estado Federal de China, si no estuve acumulando durante 30 años en el Partido Comunista
 
-2020年9月，一份被恒大集团指为“捏造”的《关于恳请支持重大资产重组项目的情况报告》在网上流传，恒大债务危机公开化。当时苏宁已经考虑到了恒大重组深深房可能失败，已经在考虑启动回购条款。9月17日，在苏宁的投资者会议上，苏宁相关人士表示，如果恒大地产不能在明年1月如期在境内完成重组上市，他们将启动回购条款，追回此前的200亿元战略投资。然而张近东也没有算到，对赌协议不能生效，还有不能回购的时候。恒大债务危机迫使地方政府介入，最后恒大80%战略投资者同意转股，不要求回购。
+今天你说这人, 我张嘴就来
+Hoy yo puedo decir cualquier cosa de esta persona
 
-消息来源:
+我张嘴就能编
+O inventar de la nada
 
-[网传12月底破产！苏宁紧急澄清已报案！却有理财产品逾期了](https://finance.eastmoney.com/a/202111162182650319.html)
+我没有这些年的经营
+Si no he estado administrando estos años
 
-[恒大酿的苦酒，苏宁咬牙喝下](https://www.163.com/dy/article/G445L6UP0539KJLK.html)
+我就能成为结构师, 搞出一个喜联储
+Puedo convertirme en un ingeniero estructural y crear una Reserva Federal de Himalaya
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+我能搞出G-TV, 盖特
+El G-TV, GETTR
+
+我今天没有四年爆料
+Si no he estado en Movimiento de denunciantes por cuatro años
+
+我今天给你们讲的, 你们就信, 不可能
+Hoy lo que les digo, ¿ustedes me creerán? Imposible
+
+它是一个时间的累积
+Esto es algo que necesita ir acumulando a través del tiempo
+
+多方面累积的结果
+Es el resultado acumulado de distintas partes
+
+这叫物质的设计
+Esto se llama diseño de cosas materiales
+
+物是行动产生的结果
+Las cosas son los resultados producidos por las acciones
+
+质是什么
+¿Qué es el material?
+
+是一个事情的基本逻辑
+Es la lógica fundamental de un asunto
+
+合在一起叫物质
+Unido se llama cosas materiales
+
+我们就在物质的设计里
+Nosotros estamos dentro del diseño de las cosas materiales
+
+共产党是什么
+¿Qué es el Partido Comunista?
+
+叫乌托邦
+Se llama Utopía
+
+乌托邦就是幻想主义者, 谎言主义者
+Las utopías son fantásticas y mentirosas
+
+你怎么能听他的呢
+Cómo puedes escuchar de ella
+
+胡扯的
+Son puras pendejadas
+
+所以说(如果)打3分钟就给它灭了
+Por eso si golpea por tres minutos y lo terminas de destruir
+
+所以今天的选举结果是什么
+¿Cuál es el resultado de la elección de hoy?
+
+所有这些地方, 你敢打台湾
+Todos estos lugares, te atreves a atacar a Taiwán
+
+老子就修理你
+Te pegaré
+
+真的, 政清, 爱米粒, 大牛, 巴黎
+Es verdad, Zhengqing, Emily, Daniu, Bali
+
+你们应该裸奔了
+Deberían estar corriendo desnudo
+
+好好认真的裸奔
+En serio, corran desnudo
+
+这事值得裸奔
+Este asunto vale la pena correr desnudo
+
+绝对对你们是安全的
+Es absolutamente seguro para ustedes
+
+新中国联邦不可能, 绝对保证你安全
+El Nuevo Estado Federal garantiza tu seguridad
+
+但是这个让你安全上加了安全
+Pero esto es más seguro que cualquier cosa
+
+这是我心里最开心的
+Y es lo que me contenta más
+
+他们赢, 第二个就是绝对灭共
+Si ellos ganan, el segundo es eliminar al Partido Comunista
+
+哪个不是咱战友, 你告诉我哪个不是
+Dime quien no es compañero luchador
+
+导致这个赢的最重要的结果是什么
+¿Cuál es el resultado más importante que conlleva esta victoria?
+
+千万别忘了
+Nunca olviden
+
+所有这些州的现场的所有人, 都是班农战斗士的嘉宾
+Todas las personas que están presentes de estas provincias son todos invitados de los combatientes de Bannon
+
+* * *
+
+日期：11/11/2021
+原视频标题：乌托邦的中共和实力派的美国不可比拟
+El utópico PCCh y el poderoso Estados Unidos son incomparables
+原视频日期：11/05/2021
+原视频网址：[https://twitter.com/se1y7cblljselva/status/1456598738625916929?s=24](https://twitter.com/se1y7cblljselva/status/1456598738625916929?s=24)
+任务编号：KC251（2785）
+视频时间段：0:00-1:48
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/16/2021 4:50 PM (UTC)`
+
+无论是对神和人都要兑现你的承诺<br/>
+![img](https://media.gettr.com/group14/getter/2021/11/16/16/50/42ee762a-72d2-fe29-8d82-8482166e299d/34b2eb6550dc420bc534242b20557bb7.jpg)
+
+---
+
 `@miles 11/16/2021 2:50 PM (UTC)`
 
  11月16好：尊敬的战友们好，你们健身了吗？你们传播C C P病毒．香港危机．疫苗解药的真相了吗？
@@ -289,13 +296,6 @@ A young man is dying after taking the first dose of the Covid vaccine. He’s dy
 
 一位父亲22岁的儿子因严重的中共病毒疫苗不良反应不得不叫救护车：高烧，几乎不能行走，胸部灼烧，超级虚弱。因此他呼吁应立即停止打疫苗。<br/><br/>A dad’s 22-year-old son had to call an ambulance due to severe adverse effects of the Covid vaccine: high fever, could barely walk, chest feels on fire, super weak, so he calls on to stop the vaccine right now
 ![img](https://media.gettr.com/group20/getter/2021/11/11/22/48/97daa32d-1aeb-7f18-77d7-6c83b1e9862d/out.jpg)
-
----
-
-`@miles 11/11/2021 10:02 PM (UTC)`
-
-11/11/2021 Miles Guo’s GETTR: The entire family of Sequoia Capital's Neil Shen was arrested and forced to sell off their assets. Overseas mansions of the CCP senior officials were successively cashed out at cheap prices by the CCP. Only by taking down the CCP can your assets be safe!<br/><br/>11/11/2021 文贵盖特：红杉资本沈南鹏全家被抓，被迫变卖资产，体制内高官在海外的豪宅接连被中共贱卖套现，只有灭掉中共，你的资产才能安全！<br/>
-![img](https://media.gettr.com/group15/getter/2021/11/11/22/02/b89e2f51-53de-2506-42e7-e41cfc1ebd69/out.jpg)
 
 ---
 
