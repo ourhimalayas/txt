@@ -2,18 +2,21 @@
 ---
 
 
-## [文贵先生大直播PPT]班农先生被美国司法部起诉
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1668002/)
+## 雅典娜时报-第114期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1668014/)
 
-撰稿：铲共骑侠，伞兵
-审核：三票先生 选票地票言票，顽童2017
-PPT制作：Bobby（文俊） 健身建心（文阳）
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-【2021年11月14日文贵先生大直播PPT：班农先生被美国司法部起诉】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-113.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-85.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-73.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-51.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-39.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-27.jpg)
-* * *
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_3.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_4.png)
+***发布：小红帽***
 
-发稿：云起时
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
