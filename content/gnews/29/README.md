@@ -2,16 +2,16 @@
 ---
 
 
-## 美国宇航局对俄罗斯导弹试验的愤怒
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1668783/)
+## 波兰将在与白俄罗斯的边界修建隔离墙
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1668794/)
 
 翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11161.jpg)图片来自esa.int
-11 月 16 日 – 美国航天局美国宇航局对俄罗斯的导弹试验表示愤慨，该试验导致一团碎片云使国际空间站处于危险之中。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11162.jpg)图片来自bbc
+11 月 15 日 – 华沙政府在与明斯克发生移民危机后宣布，波兰将于 12 月开始在与白俄罗斯的边界上修建隔离墙。
 
-美国宇航局的谴责是在拜登政府谴责之后几个小时发出的，拜登政府也通过国务院谈到了这是一次危险且不负责任的测试。
+华沙内政部长马里乌什·卡明斯基表示，将通过在与白俄罗斯接壤的边境修建隔离墙来实施阻止非法移民闯入的行动，并称这绝对是对国家及其公民安全的战略性和优先投资。
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/16/ira-della-nasa-per-il-test-missilistico-della-russia\_aa61ced8-37a3-4a91-8a88-f16580010c14.html](https://www.ansa.it/sito/notizie/topnews/2021/11/16/ira-della-nasa-per-il-test-missilistico-della-russia_aa61ced8-37a3-4a91-8a88-f16580010c14.html)
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/15/la-polonia-costruira-un-muro-al-confine-con-la-bielorussia\_e6d2d7ee-0d62-4930-980a-e5f109ae5e7c.html](https://www.ansa.it/sito/notizie/topnews/2021/11/15/la-polonia-costruira-un-muro-al-confine-con-la-bielorussia_e6d2d7ee-0d62-4930-980a-e5f109ae5e7c.html)
 
 责任编辑/发布：意大利达芬奇农场   萧亦
 

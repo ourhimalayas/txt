@@ -15,107 +15,107 @@
 
 ---
 
-### [台湾前线｜美共元首峰会：美反对任何破坏台海和平的行为](/content/gnews/1/README.md)
+### [秘翻在线 :不灭中共，全球气候变迁会议都只是纸上谈兵](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [台湾前线｜美共元首峰会：美反对任何破坏台海和平的行为](/content/gnews/2/README.md)
  ` G&#124;News TAIWAN`
 
-### [阿联酋迪拜可以用喜币喜美元购买房产](/content/gnews/2/README.md)
+### [阿联酋迪拜可以用喜币喜美元购买房产](/content/gnews/3/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [美中会谈无果而终](/content/gnews/3/README.md)
+### [乌托邦的中共和实力派的美国不可比拟](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美中会谈无果而终](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共超限战灭港行动（85）守护孩子行动](/content/gnews/4/README.md)
+### [中共超限战灭港行动（85）守护孩子行动](/content/gnews/6/README.md)
  ` 英喜-粵語組`
 
-### [“踩雷”恒大后，中共国苏宁也要“爆雷”](/content/gnews/5/README.md)
+### [“踩雷”恒大后，中共国苏宁也要“爆雷”](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [成千上万的人在墨尔本抗议新的大流行法，该法将赋予行政部门无限期的紧急权力以“保护公共健康”](/content/gnews/6/README.md)
+### [成千上万的人在墨尔本抗议新的大流行法，该法将赋予行政部门无限期的紧急权力以“保护公共健康”](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [墙内新闻速递](/content/gnews/7/README.md)
+### [墙内新闻速递](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [VAERS分析揭露 CDC 和 FDA 掩盖数百起疫苗严重不良事件](/content/gnews/8/README.md)
+### [VAERS分析揭露 CDC 和 FDA 掩盖数百起疫苗严重不良事件](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美国佛罗里达州鼓励全美因不打疫苗而失业的执法人员去佛州工作](/content/gnews/9/README.md)
+### [美国佛罗里达州鼓励全美因不打疫苗而失业的执法人员去佛州工作](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [美国指责俄罗斯危害国际空间站宇航员](/content/gnews/10/README.md)
+### [美国指责俄罗斯危害国际空间站宇航员](/content/gnews/12/README.md)
  ` Shuizhuyu`
 
-### [中共整治虚拟货币挖矿再出重拳](/content/gnews/11/README.md)
+### [中共整治虚拟货币挖矿再出重拳](/content/gnews/13/README.md)
  ` 儒为`
 
-### [BBC主持人接种疫苗后未满一月，死于并发症](/content/gnews/12/README.md)
+### [BBC主持人接种疫苗后未满一月，死于并发症](/content/gnews/14/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [巴西总统雅伊尔·博尔索纳罗面对世卫组织负责人表示：“人们在疫苗第二剂后死亡”](/content/gnews/13/README.md)
+### [巴西总统雅伊尔·博尔索纳罗面对世卫组织负责人表示：“人们在疫苗第二剂后死亡”](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [拜登和习近平举行视频峰会](/content/gnews/14/README.md)
+### [拜登和习近平举行视频峰会](/content/gnews/16/README.md)
  ` Shuizhuyu`
 
-### [你死不死啊](/content/gnews/15/README.md)
+### [你死不死啊](/content/gnews/17/README.md)
  ` 银河勇气之星`
 
-### [郭文贵盖特音频 2021.11.11](/content/gnews/16/README.md)
+### [郭文贵盖特音频 2021.11.11](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [辉瑞疫苗摧毁美山地自行车冠军的职业生涯](/content/gnews/17/README.md)
+### [辉瑞疫苗摧毁美山地自行车冠军的职业生涯](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [塔利班统治下的阿富汗童婚现象日见增多](/content/gnews/18/README.md)
+### [塔利班统治下的阿富汗童婚现象日见增多](/content/gnews/20/README.md)
  ` 澳喜农场`
 
-### [郭文贵盖特摘要和音频 2021.11.09](/content/gnews/19/README.md)
+### [郭文贵盖特摘要和音频 2021.11.09](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [战斗室和我们三次改变了世界，你们不知道意义有多大](/content/gnews/20/README.md)
+### [战斗室和我们三次改变了世界，你们不知道意义有多大](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [安全的、合法的、智慧的享受你的财富还不失去你的币](/content/gnews/21/README.md)
+### [安全的、合法的、智慧的享受你的财富还不失去你的币](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [Meta因Facebook被俄亥俄州检察长起诉](/content/gnews/22/README.md)
+### [Meta因Facebook被俄亥俄州检察长起诉](/content/gnews/24/README.md)
  ` wenwu`
 
-### [七哥兑现共享财富的承诺](/content/gnews/23/README.md)
+### [七哥兑现共享财富的承诺](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵盖特音频 2021.11.15](/content/gnews/24/README.md)
+### [郭文贵盖特音频 2021.11.15](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [“老朋友”是“真朋友”吗?](/content/gnews/25/README.md)
+### [“老朋友”是“真朋友”吗?](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [供应链危机也有可能毁掉我们的圣诞节](/content/gnews/26/README.md)
+### [供应链危机也有可能毁掉我们的圣诞节](/content/gnews/28/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [波兰将在与白俄罗斯的边界修建隔离墙](/content/gnews/27/README.md)
+### [波兰将在与白俄罗斯的边界修建隔离墙](/content/gnews/29/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [中共国房企及地方政府融资平台债务暴雷已时日不多](/content/gnews/28/README.md)
+### [中共国房企及地方政府融资平台债务暴雷已时日不多](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国宇航局对俄罗斯导弹试验的愤怒](/content/gnews/29/README.md)
+### [美国宇航局对俄罗斯导弹试验的愤怒](/content/gnews/31/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [中共国&#8221;动态清零&#8221; 大连八十万人被困家中](/content/gnews/30/README.md)
+### [中共国&#8221;动态清零&#8221; 大连八十万人被困家中](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [Covid-19:研究人员揭发辉瑞疫苗试验中的数据完整性问题](/content/gnews/31/README.md)
+### [Covid-19:研究人员揭发辉瑞疫苗试验中的数据完整性问题](/content/gnews/33/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [DC大中华时事：中共警告美国假期过后或将出现新一波病例激增](/content/gnews/32/README.md)
+### [DC大中华时事：中共警告美国假期过后或将出现新一波病例激增](/content/gnews/34/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [喜联储对中共最大的威胁是什么](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [打破中共黑手操控数据掌控权](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [1天1万亿！中共央行放水创历史新高](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

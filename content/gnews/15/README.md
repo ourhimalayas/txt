@@ -2,41 +2,118 @@
 ---
 
 
-## 你死不死啊
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1668886/)
+## 巴西总统雅伊尔·博尔索纳罗面对世卫组织负责人表示：“人们在疫苗第二剂后死亡”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1668907/)
 
-By：银河勇气星｜骄子
+[https://gtv.org/video/id=6193279f182702508105befc](https://gtv.org/video/id=6193279f182702508105befc)
 
-没有在说相声，也不是在德云社的舞台上，面前也没有郭德纲，但是这句“你死不死啊”，最近时常飘荡在耳边。
+All the over the world, there are people who need to work to feed themselves
+全世界有许多的人需要工作来养活他们自己
 
-1.最近国内疯传万达王健林去世了，万达集团迫于舆论压力出来澄清他们的老板没死。澄清的新闻配图上还特意标注了日期，事件，以及王健林正襟危坐的姿态。周围的人都戴了口罩，只有王健林一个人没戴口罩，戴口罩就认不出他是王健林了，这摆拍师傅确实下了功夫。
+All those measures taken quickly unbalanced the economy
+所有这些措施迅速导致经济失衡
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/495fd6d4788b441ebff3bdff48480f2b-scaled.jpeg)万达辟谣王健林未死亡 / 图源：网路
+The world went through more than a year of lockdown
+世界经历了一年多的封锁
 
-2.辉瑞CEO的太太死于辉瑞疫苗，这条新闻也在短短时间内传遍互联网，随即面对“谣言”的压力，辉瑞CEO主动澄清自己的太太没死。发了一张照片，里面很多人在进行聚会，大规模聚会，没有一个人戴口罩，社交距离也非常近。这图片要传达什么？众所周知辉瑞的公司没有要求打疫苗，不打疫苗不戴口罩，好像他们远离了CCP病毒；再者如果辉瑞所有人都打了疫苗，那为什么平时打过疫苗的老百姓仍然被要求戴口罩，而他们这个聚会却不用？
+if it continues like this, the economy will collapse
+如果再这样下去，经济就会崩溃
 
+I think we don’t need more lockdowns
+我认为我们不需要更多的封锁
 
+About the vaccine passports, have the WHO made a decision?
+关于疫苗护照，世卫组织有没有做出决定？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/FD8G7gIWQAUEa6m.jpeg)辉瑞CEO辟谣太太未死亡 / 图源：网路
+On its obligation
+关于其义务
 
-一个国内，一个国外，两条关于某人去世的消息，先是传言人死了，然后马上有辟谣。澄清的套路也非常一致，都是以某会议的PPT背景展示为主。很奇怪就是在社交媒体的livestream和小视频功能这么发达的时刻，他们的澄清是以图文为主，真要是没死的话你直接开个直播，或者发个小视频什么的，比任何方式的澄清谣言的说服力都强。始终一副高高在上的姿态面对网民，一点儿都不真诚。
+Not for now
+现在不行
 
-在发送了媒体澄清文稿以后，王健林的死亡事件仿佛告一段落，王健林确实不是什么值得关注的大咖，文贵先生的爆料里几乎提到这个名字的时候都很少，提到都直接说这人太low了。王健林前段时间记得有一个视频曝光，爆瘦，结合文贵先生爆料，共产党一直都在抓私人企业家，怎么能放过他呢，具体怎么严刑拷打的能一下子瘦成那样就不得而知了。我们可以参照马云的待遇，一开始进去了还打坐，谈人生谈理想，过了没多久，给他吃过敏的食物他都大口大口吃。王健林只是中国那么多私人企业家的其中一个，网上疯传的关于他死掉的“谣言”，对于中共国谣言满天飞的舆论环境，不是什么大不了的事，中国老百姓习惯了被骗，习惯了辟谣，从来也没有人问为什么怎么会有这样的谣言传出？莫谈国事莫谈国事，多问一句可能人命都会没有的。所以打过疫苗出现的那些可怕的并发症，随时倒地，梗阻，还有当场死亡的，没人会觉得是疫苗不对劲儿。也从来没有人问怎么打过疫苗了还是会有疫情，还是要戴口罩。
+We are not recommending as the vaccination rate in several countries still low
+我们不推荐，因为一些国家的疫苗接种率仍然很低
 
-辉瑞的CEO，去翻看了他的Twitter，这是一个把社交媒体当作工作平台来使用的人。CEO，刻板，理性，又是制药大厂，好像这个标签是他本应该拥有的。他的推特全部都是工作工作工作，推文里的大小写，tag使用都非常严谨，不像川普，总是能突然出现大小写夹杂，感叹号之类的。CEO用来澄清自己的太太没有因为疫苗死亡的那条推文，才让人感觉这人是个活人，不是个机器人。最新消息是他的太太并没有因为冠状病毒的疫苗死去。这本来也不是此篇文章关注的重点。我们主要探讨的是谣言为什么能这么多，能传得这么快，而且居然拿人的生死这么大的事情来造谣？
+So, access to the vaccine is low and requiring the certificate could be discriminatio
+因此，它们获得疫苗的机会很少，如果要求疫苗证书可能是歧视行为
 
-文贵先生直播中讲过，那些严肃媒体大外宣，背后的资本都是大药厂。而人们对于疫情疫苗的信息来源，几乎全部来自这些媒体。这些媒体引导的方向，不过是为了给大药厂赚钱。虽然社交媒体可以有一定的个体意见，但在生死面前，异常脆弱。生病了寻医问药，是几千年来的传统。前提是你生病了，自身的健康状况是人能感受到的。为了多赚钱，可以徒手制造一种病出来。别忘了辉瑞的总部早在很多年前就在中共国上海了。吴征是共产党的特务，他做过一项任务就是把国外的那些大药厂医疗企业蓝金黄到共产党怀抱里，共产党自己根本不可能创造这些技术，只能靠这些手段。要么就是花钱/性买，要么就只能偷，冠状病毒是美国很早就有的技术。同时共产党把把大媒体变成宣传机器，过度宣传医药。生物武器CCP病毒就是纯人工制造的。病毒本身并没有疫苗可怕，但是媒体的宣传上，并没有报道疫苗死的人比病毒死的人更多，甚至媒体都不报道因为疫苗带来的死亡。大肆渲染病毒的可怕，也不让溯源病毒，只说让打疫苗，不停地打疫苗。国内老百姓都被禁声了，不许你说话；国外这里，允许你说话，但你不能说真话。从这些意义上讲，媒体既是造谣机器，也是辟谣机器。什么都要垄断，连谣言都要垄断。
+In Brazil, many who got the second dose are getting COVID
+在巴西，许多接种第二剂疫苗的人正在感染 COVID
 
-疫苗死亡不看人，对所有人都是平等的。不管你死不死，打上三针疫苗了那就只能等着了。而媒体讯息的真假却是可以分辨的，今天能说疫苗管用，改天就说母猪能上树，远离这些嘈杂无用的假讯息，不要把命都搭上。来gettr、gtv、gnews吧。
+The vaccine does not prevent COVID but it does prevent serious illness and death
+该疫苗确实不能预防COVID，但确实可以预防严重的疾病和死亡
+
+This is the purpose
+这是该疫苗的目的
+
+In Brazil, many who got the second dose are dying
+在巴西，许多接种第二剂疫苗的人正在死亡
+
+As you said, there can be some cases like that
+正如你所说，可能有这样的情况
+
+Especially those who have comorbidities,
+尤其是那些有并发症的人
+
+some other conditions or underlying health conditions
+一些有其他疾病或潜在的健康状况的人
+
+80% of the population are asymptomatic
+80%的人口是无症状的
+
+In Brazil, I do not have control over the actions about the pandemic
+在巴西，我无法控制大流行的行动
+
+Governors and mayors have it by a decision of the Judicial Power
+州长和市长有司法权的决定
+
+And governors and mayors are demanding mandatory vaccination for children
+州长和市长要求为儿童强制接种疫苗
+
+In his words, the WHO does not recommend the vaccine for children
+用他的话来说，世卫组织不推荐给儿童接种疫苗
+
+So we have to make a note in that regard saying that the WHO does not recommend it
+所以我们必须注意，世卫组织不建议这样做
+
+If we say anything here “about the vaccine”, the media starts saying it is “Fake News”
+如果我们在这里说什么“关于疫苗”，媒体就会开始说它是“假新闻”
+
+We are left with our hands tied
+我们被束缚了手脚
+
+The lives of children are at stake and nothing better than to follow what Adhanom said
+孩子们的生命危在旦夕，没有什么比遵循谭德塞-阿达诺姆所说的更好的了
+
+this determination of the WHO
+世卫组织的这一决定
+
+What is the origin of the virus?
+病毒的起源是什么？
+
+We are still studying it
+我们仍在研究它
 
 * * *
 
-作者：骄子
-审核：兵嫂、天雷滚滚
-发布：骄子
+Date:11/13/2021
+原视频标题: President Of Brazil, Jair Bolsonaro Confronts WHO Chief: ‘People Are Dying After the Second Dose’
+巴西总统雅伊尔·博尔索纳罗面对世卫组织负责人表示：“人们在疫苗第二剂后死亡”
+原视频日期：2021/10/12
+原视频链接: [https://twitter.com/chi\_un\_lee/status/1458817221787017225?s=24](https://twitter.com/chi_un_lee/status/1458817221787017225?s=24)
+任务编号：KE344（2850）
+视频时间段 : 0:00-2:19
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家-1.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
