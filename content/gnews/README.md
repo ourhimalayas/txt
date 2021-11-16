@@ -15,128 +15,128 @@
 
 ---
 
-### [1天1万亿！中共央行放水创历史新高](/content/gnews/1/README.md)
+### [中共国公安部高官竞逐国际刑警组织执委，引发关切](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [七哥没有让战友和机构一样签订文件](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文·贵天成——文贵先生谈“疫苗”（五）](/content/gnews/2/README.md)
+### [关于喜马拉雅币提现问题](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [1天1万亿！中共央行放水创历史新高](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文·贵天成——文贵先生谈“疫苗”（五）](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [浅析喜币价值](/content/gnews/3/README.md)
+### [浅析喜币价值](/content/gnews/6/README.md)
  ` 澳喜农场`
 
-### [谷歌威胁退出澳大利亚后又承诺投入7.36亿美元](/content/gnews/4/README.md)
+### [谷歌威胁退出澳大利亚后又承诺投入7.36亿美元](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [逾万澳大利亚人申请新冠疫苗伤害赔偿](/content/gnews/5/README.md)
+### [逾万澳大利亚人申请新冠疫苗伤害赔偿](/content/gnews/8/README.md)
  ` 走进澳洲`
 
-### [何其荒诞！中共国天津市政府学习彭丽媛“贺信精神”](/content/gnews/6/README.md)
+### [何其荒诞！中共国天津市政府学习彭丽媛“贺信精神”](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登将在“拜习会”上提及台湾和人权等议题](/content/gnews/7/README.md)
+### [拜登将在“拜习会”上提及台湾和人权等议题](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登的疫苗任务会带来什么样的危害结果？](/content/gnews/8/README.md)
+### [拜登的疫苗任务会带来什么样的危害结果？](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [德国及邻居波兰捷克的中共病毒疫情加重](/content/gnews/9/README.md)
+### [沼泽地、神秘家族、盖茨基金、计划大流行——垄断： 是谁掌控全世界？](/content/gnews/12/README.md)
+ ` 加拿大扬帆农场多伦多视频组`
+
+### [德国及邻居波兰捷克的中共病毒疫情加重](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [11月14日文贵大直播精剪汇编——第二部分](/content/gnews/10/README.md)
+### [11月14日文贵大直播精剪汇编——第二部分](/content/gnews/14/README.md)
  ` 澳喜特战旅Gnews`
 
-### [起诉书无耻且具有争议 美国司法正向中共靠拢](/content/gnews/11/README.md)
+### [起诉书无耻且具有争议 美国司法正向中共靠拢](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美媒报道：中共国房地产新开工萎缩](/content/gnews/12/README.md)
+### [美媒报道：中共国房地产新开工萎缩](/content/gnews/16/README.md)
  ` 澳喜农场`
 
-### [文·贵天成——文贵先生谈“疫苗”（四）](/content/gnews/13/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（四）](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [疫苗护照，中共病毒战争期间的“新路条”](/content/gnews/14/README.md)
+### [疫苗护照，中共病毒战争期间的“新路条”](/content/gnews/18/README.md)
  ` 纽约香草山MOS01`
 
-### [联盟工作汇报文字版摘要2021.11.14](/content/gnews/15/README.md)
+### [联盟工作汇报文字版摘要2021.11.14](/content/gnews/19/README.md)
  ` 纽约香草山MOS02`
 
-### [福奇承认，疫苗并不那么有效，接种疫苗的人如今很危险](/content/gnews/16/README.md)
+### [福奇承认，疫苗并不那么有效，接种疫苗的人如今很危险](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [“双碳”大跃进，或为中共国内频繁停电原因之一](/content/gnews/17/README.md)
+### [“双碳”大跃进，或为中共国内频繁停电原因之一](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [亚欧多地出现禽流感疫情，家禽产业拉响警报](/content/gnews/18/README.md)
+### [亚欧多地出现禽流感疫情，家禽产业拉响警报](/content/gnews/22/README.md)
  ` 澳喜特战旅Gnews`
 
-### [相信共产党，走进火葬场](/content/gnews/19/README.md)
+### [相信共产党，走进火葬场](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [医生大量死亡、逃亡，导致一线医生极度短缺](/content/gnews/20/README.md)
+### [医生大量死亡、逃亡，导致一线医生极度短缺](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [斯蒂夫·班农撕破民主党拜登及佩洛西的嘴脸：这是来自地狱的指控](/content/gnews/21/README.md)
+### [斯蒂夫·班农撕破民主党拜登及佩洛西的嘴脸：这是来自地狱的指控](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国11个第一的其中三个第一](/content/gnews/22/README.md)
+### [中共国11个第一的其中三个第一](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [揭开六中全会的假包装](/content/gnews/23/README.md)
+### [揭开六中全会的假包装](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [每日快报：中国网球运动员在指控中国官员性侵后失踪](/content/gnews/24/README.md)
+### [每日快报：中国网球运动员在指控中国官员性侵后失踪](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [打疫苗的原因无非有三](/content/gnews/25/README.md)
+### [一语成谶——北上广深10月房价下跌](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中资企业被踢出WTO和国际金融组织](/content/gnews/26/README.md)
+### [[速报]中美开始在线峰会，习主席出演“共赢”](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一语成谶——北上广深10月房价下跌](/content/gnews/27/README.md)
+### [浦发银行擅自挪用储户2.95亿元存款](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [[速报]中美开始在线峰会，习主席出演“共赢”](/content/gnews/28/README.md)
+### [垂死挣扎，中国电信还想赖在美国](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [浦发银行擅自挪用储户2.95亿元存款](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [垂死挣扎，中国电信还想赖在美国](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [币圈新闻动态：目前每天大约有6.5万枚BTC被重新激活](/content/gnews/31/README.md)
+### [币圈新闻动态：目前每天大约有6.5万枚BTC被重新激活](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [拜登家族及其政治网络与中共有着深度合作](/content/gnews/32/README.md)
+### [拜登家族及其政治网络与中共有着深度合作](/content/gnews/34/README.md)
  ` 首尔天池农场`
 
-### [辽宁大连的防疫志愿者为啥睡在玉米堆上呢？](/content/gnews/33/README.md)
+### [辽宁大连的防疫志愿者为啥睡在玉米堆上呢？](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [安全专家称加拿大别无选择，必须禁止华为进入5G移动网络](/content/gnews/34/README.md)
+### [安全专家称加拿大别无选择，必须禁止华为进入5G移动网络](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [文·贵天成——文贵先生谈“疫苗”（三）](/content/gnews/35/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（三）](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新冠肺炎检测公司拟出售带客户DNA的棉签而面临隐私调查](/content/gnews/36/README.md)
+### [新冠肺炎检测公司拟出售带客户DNA的棉签而面临隐私调查](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线:从班农的被指控看中共及邪恶势力的加速灭亡](/content/gnews/37/README.md)
+### [秘翻在线:从班农的被指控看中共及邪恶势力的加速灭亡](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [GTV新闻访谈简报|2021年11月15日晚](/content/gnews/38/README.md)
+### [GTV新闻访谈简报|2021年11月15日晚](/content/gnews/40/README.md)
  ` 纽约香草山MOS01`
 
-### [电动汽车的兴起将导致澳洲大半修车厂关门大吉](/content/gnews/39/README.md)
- ` 走进澳洲`
-
-### [近5万名医保患者在接种新冠疫苗后不久死亡](/content/gnews/40/README.md)
+### [近5万名医保患者在接种新冠疫苗后不久死亡](/content/gnews/41/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [众议员马特·盖茨：认清拜登政府的本质，班农是‘美国优先&#8217;火种的守护者](/content/gnews/41/README.md)
- ` 美国政要直译推`
 
 ### [[文贵先生大直播PPT]班农先生被美国司法部起诉](/content/gnews/42/README.md)
  ` Mr. Miles Guo's News Briefing`

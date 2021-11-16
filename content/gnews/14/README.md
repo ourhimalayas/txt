@@ -2,44 +2,27 @@
 ---
 
 
-## 疫苗护照，中共病毒战争期间的“新路条”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1668463/)
+## 11月14日文贵大直播精剪汇编——第二部分
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1668519/)
 
-作者：香草山金融部 – 闲聊钱币
+撰稿：Angelsky
 
+视频：Angelsky
 
+中共企业恒大破产引发世界经济、金融危机的最新消息：据郭文贵先生引领的新中国联邦于2021年11月14日大直播发布的警讯，中共蓄意利用恒大破产搞垮欧美等民主国家的经济，之后顺便打台湾。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+而在各大医药公司控制下的西方主流媒体，不报道疫苗灾难以及中共在全世界的作恶，反而突破人类基本的道德、良知底限，为了自身利益，纷纷在报道中选择了扮演掩盖真相、避重就轻的可耻角色。
 
+文贵先生说，各大主流媒体在恒大破产对西方经济造成冲击的问题上，形成了统一的报道口径，即认为恒大破产的结果，可能给西方经济带来了担忧，而且无一家媒体敢越过该报道标准。郭文贵先生对如此荒唐的报道感到不可思议，直接质问“这是什么王八蛋的话，什么叫担忧？！这些主流媒体太坏了太坏了”！
 
+至于恒大破产对西方房地产等的影响，绝对不是什么担忧，一定是崩溃式的下跌，此乃从天上突降巨石砸盘的概念。加之中共病毒、各国不良疫苗政策正在造成世界供应链的短缺。随着中共国房地产的崩塌，美国的七万亿、欧洲的十几万亿美元投资瞬间成泡影，习近平的如意算盘就是让欧美经济大崩溃，崩溃的越惨越好，然后中共直取台湾。这种状况能是用担忧形容的嘛？！
 
-“特殊通行证”，“良民证”，这些在二战曾经用来区分不同人群的身份证件再次回到我们的生活当中。一个小小的QR code，将所有地球人分为打了疫苗的和未打疫苗的。未打疫苗的人群正在受到前所未有的不公平待遇。
+文贵先生在提醒欧美各国警惕中共灾难的同时，又说，中共如此疯狂作死的结果，只能造成欧美各国加速承认新中国联邦，加速新中国联邦打造的G系列（如喜币、GTV、Gfashion等）项目更快升值。
 
-路透社维也纳14日报道，从周一开始，数百万没有完全接种疫苗的奥地利人将被重新禁锢家中。政府给出的理由是激增的感染率和日趋紧张的重症监护室床位。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-16.jpg)
-多个政府对未接种疫苗的人们采取歧视行动。奥地利再次限制人们的自由行动，这次仅针对未接种者。澳大利亚的某些州要求必须接种疫苗才能从事特定职业。加拿大的公共交通最不欢迎未打疫苗的人，一律不准乘飞机，坐火车。新加坡则要求从下个月起不打疫苗就自己负担医药费。
+（文章内容仅代表作者观点，与Gnews平台无关）
 
-这些标榜自由民主的发达国家，在中共蓝金黄的渗透下，不去追根溯源病毒到底是哪里来的，反而利用人民赋予他们的行政权力，强行违宪的出台对未接种人群的歧视性条例。
-
-不灭中共，各种各样的“新路条”会层出不穷。
-
-（本文仅代表作者观点）
-
-参考来源：[疫苗护照，中共病毒战争期间的“新路条”](https://www.reuters.com/business/healthcare-pharmaceuticals/austria-orders-non-vaccinated-people-into-covid-19-lockdown-2021-11-14/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Nomura%20JP%2011-15-21%20Sponsorship&amp;utm_campaign=Nomura%20JP%2011-15-21%20Sponsorship)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
+编辑：云彩
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
