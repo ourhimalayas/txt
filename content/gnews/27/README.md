@@ -2,51 +2,33 @@
 ---
 
 
-## 中共加强对网络从业者管控和迫害力度
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669441/)
+## 墙内房企资金吃紧，多地涌现“工抵房”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669491/)
 
-作者：澳喜农场 – 在远方
+作者：英国喜庄园 – I770775
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据11月14日消息，中共国房地产企业爆雷，许多公司因无钱支付工程款，各地出现“工抵房”现象，即工程抵账房，是房地产开发商给工程方，用房产抵扣工程款的一种新型结算方式。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-29.jpg)
+有数据显示，近来，不仅三四线城市，甚至广州、厦门、成都、南京等一二线城市，也出现了大量房地产开发商选择“工抵房”。
 
+专家分析，工抵房井喷主要有两个原因：一是开发商现金流压力比较大，有些工程款不能如期支付，建设方需要开发商提供房子作为抵押；二是部分房企为了回笼资金，对某些产品价格进行调整，但又怕老业主形成很大的反弹情绪，就以工抵房的名义来销售房产，实则是一种变相的降价促销行为。 无论哪种原因，都说明，中共国房企开发商资金出了大问题。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-中共网信办11月14日发布了《网络数据安全管理条例（征求意见稿）》，对数据处理者规定了数据处理、数据保密、申报安全审查、数据泄露处罚等方面的苛刻条件。其中，赴香港上市的数据处理者有可能影响所谓国家安全的，必须申报审查。
-
-在此之前的10月底，中共网信办就发布《数据出境安全评估办法（征求意见稿）》，列出了5种必须先申请“安全评估”的情形，其中包括掌握100万人讯息，或者累计向境外提供10万人以上讯息的从业者。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-9.jpg)
-值得一提的是，该条例还首次明确提到了屏蔽部分境外网站和翻墙软件等事项，并规定了严厉的处罚细则。条例称，任何个人和组织都不能提供用于穿透中共防火墙的程序、工具和线路等，如有违反，对单位可进行最高达50万元的罚款，对个人可以追究刑事责任。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.2-7.jpg)
 参考链接：
-1. [中共加强对网络业者管控 赴港上市须经网络安审批准](https://www.voachinese.com/a/china-may-seek-cyber-check-for-ipo-in-hk-20211114/6312589.html)
-2. [国家互联网信息办公室关于《网络数据安全管理条例（征求意见稿）》公开征求意见的通知](http://politics.people.com.cn/n1/2021/1114/c1001-32281796.html)
+[房企无钱付工程款 大陆多地涌现“工抵房”](https://www.epochtimes.com/gb/21/11/15/n13376614.htm)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
 总编：文特
-编辑：飞虹
-校对/发稿：为真不破20
+编辑：Kathy文艺
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

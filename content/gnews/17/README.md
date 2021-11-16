@@ -2,52 +2,33 @@
 ---
 
 
-## 福奇承认接种疫苗的人处于极大的危险中
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669617/)
+## 有声|疫苗无效 欧洲将面临第四波疫情的冲击
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1669624/)
 
-信息采集：星星
-作者：英国喜庄园 – I770775
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
 
 
+11月13日，欧洲疾病预防管制中心发布的中共病毒评估数据显示，欧洲正面临第四波飙升的中共病毒疫情。
 
-11月12日，福奇在参加某播客讨论中共病毒现状时，首次承认疫苗并没有像广告宣传得那样有效，接种疫苗的人反而由于免疫力的下降处于极大的危险之中。
+截至11月11日为止的过去2周，欧盟成员国及冰岛、挪威等欧洲经济区通报了约209万确诊案例，整体疫情呈现确诊病例迅速增加、死亡率缓慢增加的态势。
 
-福奇说，在首次接种疫苗几个月后，越来越多的人获得了突破性感染。他们不仅对感染，而且对住院和某种程度死亡的免疫力都在下降。值得关注的是，这种情况不仅发生在老年组，而且已经涉及所有年龄组。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.4.jpg)
-不过，面对这些事实，福奇并未表示应该放弃疫苗，反而变本加厉地号召大家继续注射疫苗加强针，称加强针是“绝对必要的”。
+欧洲疾病预防管制中心认为，在未来的两周，欧洲地区的新增确诊、死亡以及住院人数都将继续增加。并且警示，比利时、荷兰、捷克及希腊等10个国家需要极度关注疫情的蔓延。
 
-参考链接：
-[Dr. Fauci Admits Vaccines Did Not Work as Advertised and that Vaccinated Are in Great Danger Today (VIDEO)](https://www.thegatewaypundit.com/2021/11/dr-fauci-admits-vaccines-not-work-advertised-vaccinated-great-danger-today/)
+文字版原文：[疫苗无效 欧洲将面临第四波疫情的冲击](https://gnews.org/zh-hans/1665423/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-总编/编辑：飞虹
-校对/发稿：为真不破20
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
-
-
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

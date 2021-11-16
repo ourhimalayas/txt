@@ -2,49 +2,33 @@
 ---
 
 
-## 17岁天才滑雪选手因中共病毒疫苗副作用遭“淘汰”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669628/)
+## 有声|中共将在美国西部释放新变种病毒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1669644/)
 
-作者：英国喜庄园 – I770775
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
 
 
+2021年11月14日，郭文贵先生在大直播中爆料称，近期，中共将会在美国西部释放新变种病毒，并将自西向东蔓延，覆盖到整个美国以及其他西方国家。
 
-秘密翻译组11月12日消息，挪威著名的越野滑雪天才选手丹尼尔，因接种中共病毒疫苗出现严重反应被 “淘汰”，暂停其赛季。
+据前中共资深生化专家分析，新变种病毒将会加速疫苗灾难的发展进程，同时会加速各国政府疫苗强制政策的推进。目前，全球已有将近一半的人都接种过毒疫苗。新病毒变种将会使这些接种过疫苗的人更易被感染、患上重症甚至死亡。同时，接种过疫苗的患者也将会把新变种病毒更快地传播给未接种的健康人。对于各国政府而言，这也将成为各国加速疫苗强制令的最好借口，包括儿童也不能幸免。
 
-丹尼尔今年只有 17 岁，曾取得两届赛事比赛的优秀成绩。几个月前，他接种第一剂疫苗后身体出现了血液样本的异常，不得不暂停了他的赛季。
+郭先生说，这是中共生化超限战真正灾难的开始，我们将面临人类最黑暗的时刻。灾难无法预测，新中国联邦人只有紧紧地联合在一起，才能保证自己的生命和财产安全。
 
-丹尼尔说，不确定什么时候能够再次参加最高水平的比赛，因为他的身体目前只能做一些低强度的康复训练。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-90.jpg)
-参考链接：
-[挪威著名越野滑雪天才因接种中共病毒疫苗被 “淘汰’’](https://gettr.com/post/pgyypre4e8)
+文字版原文：[中共将在美国西部释放新变种病毒](https://gnews.org/zh-hans/1666365/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-总编/编辑：木白
-校对/发稿：为真不破20
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

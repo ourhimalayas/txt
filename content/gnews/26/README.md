@@ -2,32 +2,27 @@
 ---
 
 
-## 国际女网协会要求中共调查彭帅被性侵事件
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669452/)
+## 维州自由党议员芬恩呼吁抵制州政府强推的疫情法案
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1669530/)
 
-作者：澳喜农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月14日，国际女子网球协会主席西蒙公开发表声明，要求中共政府对彭帅做出的指控进行全面调查。声明称，彭帅，以及所有女性，都应该被倾听，而不是被审查。她对前中共领导人张高丽涉及性侵犯的指控，必须得到最严肃的对待。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-40.jpg)
-西蒙还表示，国际女子网球协会希望中共对此事做正确的处理，即中共政府必须就彭帅的指控进行全面、公平且透明的调查，并且过程中不该有被审查的情况。
+撰稿：苏加诺
 
-据悉，彭帅是在11月2日通过微博帐号，指控遭到中共前政治局常委、副总理张高丽的性侵，但该文在发布不久后就被删除，该帐号也无法使用。目前彭帅已经处于失联状态，外界对于她的安危与处境没有任何消息。
+视频：苏加诺
 
-参考链接：
-[国际女网协会关注彭帅 要求北京全面调查性侵指控](https://gnews.org/zh-hans/1666375/)
+澳大利亚当地时间星期六（2021年11月13日），上万名维州人民走上大街，在议会前集体抗议维州政府以及维州州长Daniel Andrew强推疫情法案。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+本周一，维州自由党议员芬恩（Bernie Finn）在议会上大声呼吁制止维州政府通过该项法案。 芬恩认为，维州州长之前的所作所为，以及现在强推的疫情法案已经近乎疯狂。
 
-总编/编辑：文特
-校正/发稿：Fei797
+芬恩参加了周六的集体抗议游行，他认为，本次抗议的人数是自1992年反对政府游行以来最多的一次。很多人民之前并不关注政府制定的政策，甚至对政治毫无兴趣。但是由于长时间的封锁和维州政府的各项疫情措施，让很多当地民众清醒地认识到此项法案通过后会对自身造成的影响。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+本法案已于本周一紧急提交国会进行修改，计划将于本周晚些完成修改并且在议会通过。
+
+（文章内容仅代表作者观点，与Gnews平台无关）
+
+新闻参考链接：
+
+[大纪元](https://www.epochtimes.com/gb/21/11/14/n13374478.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
