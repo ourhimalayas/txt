@@ -2,53 +2,106 @@
 ---
 
 
-## VAERS分析揭露 CDC 和 FDA 掩盖数百起疫苗严重不良事件
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1668948/)
+## 成千上万的人在墨尔本抗议新的大流行法，该法将赋予行政部门无限期的紧急权力以“保护公共健康”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1669012/)
 
-翻译： Jenny Ball
+[https://gtv.org/video/id=61933235182702508105c220](https://gtv.org/video/id=61933235182702508105c220)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-329.png)图片来源： newstarget.com
+Protest girl
+抗议女孩
 
-一位名叫阿尔伯特·贝纳维德斯( Albert Benavides )的研究人员，对疫苗不良事件报告系统 (VAERS) 进行了数据分析，该系统由疾病控制和预防中心 (CDC) 和食品和药物管理局 (FDA) 维护。他发现，这两个联邦机构向公众隐瞒了数百起与COVID-19疫苗相关的严重不良事件。
+As a 14 year old girl I shouldn’t have to be standing here fighting for my freedom.
+作为一名14岁的女孩，不应该由我站在这里为的自由而战
 
-超过 200 种不同的症状，如果你能相信的话，已经被 CDC 和 FDA 完全掩盖了，它们继续声称福奇流感疫苗是“安全有效的”。
+I’m scared for my future
+但我为自己的未来感到害怕
 
-**所有这 ****200 ****种严重不良反应的发生率都比心肌炎高得多**，心肌炎的发生率尤其高，尤其是在那些服从政府命令和当地教育局要求的年轻人中。
+and I’m scared for my parents that they’re gonna lose their jobs
+而且也为我的父母担心，他们会失去工作
 
-“CDC 应该警告人们，总共有 4,000 多个 VAERS 不良事件代码，被这些疫苗提高了 **10 倍或更多的基线**，”调查记者史蒂夫·基尔施（ Steve Kirsch ）在他的 “子堆栈”（Substack）上报告说。
+and we will be homeless because they don’t want to they don’t want to give in
+我们将无家可归，因为他们不想屈服
 
-**与所有其他 ****70 ****多次强加给儿童的疫苗相比，****COVID ****疫苗引起的不良事件更多。**
+I’m just scared you know
+你知道我只是害怕
 
-正如[我们所报道的那样](https://www.naturalnews.com/2021-11-10-genocide-childrens-hospitals-flooded-infant-cardiac-patients.html)，**美国各地的医院现在都充斥着接种疫苗的患者，其中许多是儿童，甚至是婴儿，他们遭受着这些被 ****CDC ****和 ****FDA ****向公众隐瞒的不良事件之苦**。
+I don’t want the city of fighting as a 14 year old girl
+作为一名14岁的女孩我不想在城市中抗争
 
-各地的父母都想知道发生了什么，因为媒体-制药-政府三巨头声称：这些注射剂在增强免疫力方面与维生素基本相同。
+I’m scared when I have kids what if this is still going on?
+当我有孩子时，我很害怕，如果这种情况仍在持续怎么办？
 
-**疫苗正在缓慢或快速地杀人，这取决于个体情况。随着时间的推移，**这种种族灭绝注射的全面影响将变得明显**，但到那时，采取任何行动已经太晚了。**
+I have to fight for my kids too
+我也要为我的孩子而战
 
-贝纳维德斯的分析发现的另一个小花絮是，自疫苗计划于 30 年前启动以来，**中共病毒疫苗注射引起的不良事件，比政府追踪方案中包含的所有其他 ****70 ****多种注射引起的不良事件更多。**
+it’s gonna go on for so long, and I’m just gonna you know
+抗争会持续很长时间，我只是想让你知道
 
-这意味着中共病毒疫苗是迄今为止市场上最致命的“疫苗”。
+Avi Yemini (Rebel News)
+阿维·耶米尼（反叛新闻）
 
-“这是一个惊人的统计数据，没有人可以否认，但主流医学界（或主流媒体）似乎没有人在意，”基尔施指出。“它甚至不值得一提。天啊。”
+how is schooling been in the last two years for you？
+你在过去两年的学习情况如何？
 
-总而言之，中共病毒疫苗的致死率，是之前的记录保持者天花疫苗的 800 倍。**福奇流感疫苗已经杀死了至少 ****150,000 ****名美国人，并导致无数人永久致残。**
+Protest girl
+抗议女孩
 
-据说，每 **22,000** 人接受注射，只能挽救一个生命。这是根据辉瑞（Pfizer）为期六个月的试验得出的，该试验可能偏向于该公司，这意味着真实数字可能要差得多。
+my attendance is going down and so my grades is really stressful,
+我的出勤率下降了，所以我的成绩真的很有压力
 
-“从试验中还可以看出，**这种药物杀死的人多于拯救的人**（治疗组有 20 人死亡，而揭盲后安慰剂组有 14 人死亡），”基尔施补充道。“因此，**我们以超过 ****15****万 人的死亡为代价**，‘挽救’了不到 一万人的生命。简而言之，我们杀了 15 个人来救 1 个。这太愚蠢了。”
+and all my friends grades as well
+我所有的朋友的成绩也受到了影响
 
-基尔施和他的团队曾试图与拜登政权的官员会面，讨论这些有罪的数据，但迄今为止他们拒绝了。
+and it’s just get to speak up
+人们只是需要发声
 
-“**他们根本不想听到真相**，”基尔希说。“相反，他们专注于去平台化和审查我们，这些技术数据的时效。”
+and more I just want to be speaking out about it about this program
+还有更多我只是想就这项立法发表意见
 
-**新闻来源**：[newstarget.com] [VAERS analysis exposes CDC, FDA for covering up hundreds of serious adverse events associated with COVID vaccines](https://www.newstarget.com/2021-11-14-vaers-cdc-fda-hiding-serious-adverse-events.html) / [stevekirsch.substack.com](https://stevekirsch.substack.com/) / [naturalnews.com](https://naturalnews.com/)
+because it’s gonna affect everyone’s future.
+因为这会影响每个人的未来
+
+Avi Yemini
+阿维·耶米尼
+
+Maybe your grades have gone down
+也许你的成绩下降了
+
+but you have much more intellect than the people in that building
+但你比那栋楼里的人有更多的智慧
+
+by the way you talk the passion you have
+顺便说一下，你谈了你的热情
+
+I think you’re going to be alright
+我想你会没事的
+
+Protest girl
+抗议女孩
+
+Thank you
+谢谢你
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
+Date:11/14/2021
+原视频标题: Tens of thousands protest in Melbourne against new pandemic law that would give the executive indefinite emergency powers to “protect public health”.
+成千上万的人在墨尔本抗议新的大流行法，该法将赋予行政部门无限期的紧急权力以“保护公共健康”
+原视频日期：2021/10/14
+原视频链接: [https://twitter.com/disclosetv/status/1459472668831399940?s=21](https://twitter.com/disclosetv/status/1459472668831399940?s=21)
+任务编号：KE345（2870）
+视频时间段 : 0:00-0:51
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,105 +2,52 @@
 ---
 
 
-## 成千上万的人在墨尔本抗议新的大流行法，该法将赋予行政部门无限期的紧急权力以“保护公共健康”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1669012/)
+## 中共超限战灭港行动（85）守护孩子行动
+` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1669029/)
 
-[https://gtv.org/video/id=61933235182702508105c220](https://gtv.org/video/id=61933235182702508105c220)
+#### 搜集/撰文：岁月如歌
 
-Protest girl
-抗议女孩
 
-As a 14 year old girl I shouldn’t have to be standing here fighting for my freedom.
-作为一名14岁的女孩，不应该由我站在这里为的自由而战
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11161-1.jpg)
+“守护孩子行动”是个非常危险的行为，但是这个组织的成员几乎是“真空上阵”，没有保护装备，最多也只是一个头盔，或一个眼罩，但他们毫无畏惧。 9·21元朗静坐示威演变成连串冲突，“守护孩子行动”成员及陈伯等人上前了解情况遭速龙小队喷胡椒喷剂，一名成员及陈伯被分隔带进后巷，后陈伯被放出来接受治理，另一名成员遭30名警察围攻拳打脚踢，从网络上流传出来的视频可见，并有女子声音呼叫“唔好打人呀！阿sir，停手呀！（警察不要打人呀，停手呀）”警察无动于衷继续施暴，女子再大叫“喂！影住你呀！（拍下你了呀），”该女子立刻遭警察以强光照射，现场还听到男子大叫救命。 “好邻舍北区教会”证实该名男子是“守护孩子行动”成员，该成员为了上前了解一名被捕的青少年而被警方推跌并拘捕，当时並没有拒捕。据报导，该成员被打致口腔及牙齿出血，并出现昏眩状况。事后警方发言人韦华高在记者会上表示他们只是脚踢“黄色物体”，是物体不是人，警方无耻程度令舆论哗然，被认为是“非人化罪行”在运动中的例子。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11162-1.jpg)图片来自众新闻
+82岁的黄伯，没有任何防护措施，连头盔眼罩或者防毒面具都没有他一样在“枪林弹雨”中参加保护孩子。他说：“没什么可怕的，警察有胆打我，尽管打，我直接用我的身体去抵挡。我们都几十岁了，无所谓，但是年轻人就一个都不能少。”他希望年轻人万事小心，保留生命，继续为香港努力。他说会和陈伯（陈基裘）一起在最前线，站在示威者与警察之间做缓冲。
 
-I’m scared for my future
-但我为自己的未来感到害怕
+陈基裘与哥哥弟弟三人一起参加“守护孩子行动”，哥哥已经96岁。陈伯说他爱香港，他认为目前香港的危险比日本侵占香港时期更危险，他说：“我这么大个人从未见过香港人打香港人。” 73岁的陈伯在反送中运动中表现非常勇敢，不亚于年轻人。 “为了公义即使会失去性命也不要紧”，陈泊说，他和守护孩子其他成员一样与年轻人并肩作战，以血肉之躯抵挡冲突。陈伯经历过内地文革，感受过政权对人民的剥削，亲身经历过被打压，对统治者的压迫永生难忘。他经历过20年前的粉岭、马屎埔村抗争，反对新界东北发展逼村民搬迁。陈伯说“我承受很大的压力，到立法会门前通宵静坐，抗议，为村民争取应有的权益”。最终还是面临搬迁，使他对政府失去信心。反送中运动， 看到100万，甚至200万市民的游行，政府都无动于衷，政府还利用警察和权贵欺压市民，甚至有黑警察欺压及摧残年轻的两三代，陈伯非常痛心。警察打示威者对于陈伯来说司空见惯了，但每次的回忆，使这位古稀老人不禁伤心落泪，残酷的现实也迫使这些银发老人不惜走上抗争之路。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11163-1.jpg)图片来自明报
+7月3日陈伯参与持续19天的绝食抗议活动，年轻人恐怕都难以支撑，但陈伯依靠意志做到了。 7月14日绝食第十日，得知示威者在新城市广场被警察包围时，他毫不犹豫从海富中心奔往沙田，他要求警察让路：“叫你们指挥官出来与我对话，我要拯救年轻人，麻烦你们让路”，经过一轮的扰攘，陈伯终于冲破多重防线。事后他坦言“你以为我真的不怕死吗？那是没办法，牺牲我们老年人没问题，只希望年轻人不要受到伤害”。 921运动中陈伯为解救年轻人被速龙小队喷“食椒（遭喷胡椒喷雾）”和推倒，大家都担心他的安全。
 
-and I’m scared for my parents that they’re gonna lose their jobs
-而且也为我的父母担心，他们会失去工作
+年近60岁的何女士也是守护孩子的成员，她承认心情紧张，因为接下来不知道会发生什么事，也不知道见到年轻人被打时自己是否真有勇气去阻挡，但会尽自己能力去守护，不希望有暴力事件发生。因为恐惧，才要站出来尽自己的责任，何女士赞每一位走出来的年轻人非常有勇气。
 
-and we will be homeless because they don’t want to they don’t want to give in
-我们将无家可归，因为他们不想屈服
+2019年9月29日的全球反极权大游行中，十多名守护孩子行动的成员为解救被速龙小队围困在海富中心的示威者，他们筑起人链并要求警方让示威者离开，消防员到场后开闸让示威者离去，守护孩子成员被警方命令除下口罩，并登记身份证，警方表示将会保留检控他们非法集结的权利。
 
-I’m just scared you know
-你知道我只是害怕
+（未完待续）
 
-I don’t want the city of fighting as a 14 year old girl
-作为一名14岁的女孩我不想在城市中抗争
 
-I’m scared when I have kids what if this is still going on?
-当我有孩子时，我很害怕，如果这种情况仍在持续怎么办？
 
-I have to fight for my kids too
-我也要为我的孩子而战
+参考链接：
 
-it’s gonna go on for so long, and I’m just gonna you know
-抗争会持续很长时间，我只是想让你知道
+[【元朗游行】沙田八旬伯伯零装备上阵守护孩子 “拎个身直接挡”](https://www.hk01.com/18%E5%8D%80%E6%96%B0%E8%81%9E/357009/%E5%85%83%E6%9C%97%E9%81%8A%E8%A1%8C-%E6%B2%99%E7%94%B0%E5%85%AB%E6%97%AC%E4%BC%AF%E4%BC%AF%E9%9B%B6%E8%A3%9D%E5%82%99%E4%B8%8A%E9%99%A3%E5%AE%88%E8%AD%B7%E5%AD%A9%E5%AD%90-%E6%8B%8E%E5%80%8B%E8%BA%AB%E7%9B%B4%E6%8E%A5%E6%93%8B)
 
-Avi Yemini (Rebel News)
-阿维·耶米尼（反叛新闻）
+[【](https://www.hk01.com/%E7%AA%81%E7%99%BC/378104/9-21%E5%85%83%E6%9C%97%E7%A4%BA%E5%A8%81-%E5%AE%88%E8%AD%B7%E5%AD%A9%E5%AD%90%E6%88%90%E5%93%A1%E8%A2%AB%E6%8A%BC%E5%85%A5%E5%BE%8C%E5%B7%B7%E6%B5%81%E8%A1%80-%E5%A5%BD%E9%84%B0%E8%88%8D-%E8%A2%AB%E6%8C%87%E8%A5%B2%E8%AD%A6)[9.21元朗示威】守护孩子成员被押入后巷流血　好邻舍﹕被指袭警](https://www.hk01.com/%E7%AA%81%E7%99%BC/378104/9-21%E5%85%83%E6%9C%97%E7%A4%BA%E5%A8%81-%E5%AE%88%E8%AD%B7%E5%AD%A9%E5%AD%90%E6%88%90%E5%93%A1%E8%A2%AB%E6%8A%BC%E5%85%A5%E5%BE%8C%E5%B7%B7%E6%B5%81%E8%A1%80-%E5%A5%BD%E9%84%B0%E8%88%8D-%E8%A2%AB%E6%8C%87%E8%A5%B2%E8%AD%A6)
 
-how is schooling been in the last two years for you？
-你在过去两年的学习情况如何？
+[【专访守护孩子陈伯】银发族挺身而出与年轻人同行](https://sparkyouthmedia.com/2020/10/12/%E3%80%90%E5%B0%88%E8%A8%AA%E5%AE%88%E8%AD%B7%E5%AD%A9%E5%AD%90%E9%99%B3%E4%BC%AF%E3%80%91-%E9%8A%80%E9%AB%AE%E6%97%8F%E6%8C%BA%E8%BA%AB%E8%80%8C%E5%87%BA-%E8%88%87%E5%B9%B4%E8%BC%95%E4%BA%BA%E5%90%8C/)
 
-Protest girl
-抗议女孩
+导读：
+中共超限战灭港行动
+[中共超限战灭港行动（八十）七二一](https://gnews.org/zh-hans/1599657/)[·恐袭事件之官黑勾结警黑合作（中）](https://gnews.org/zh-hans/1599657/)
 
-my attendance is going down and so my grades is really stressful,
-我的出勤率下降了，所以我的成绩真的很有压力
+[中共超限战灭港行动（八十一）七二一](https://gnews.org/zh-hans/1614003/)[·恐袭事件之官黑勾结警黑合作（下）](https://gnews.org/zh-hans/1614003/)
 
-and all my friends grades as well
-我所有的朋友的成绩也受到了影响
+[中共超限战灭港行动（八十二）七二一](https://gnews.org/zh-hans/1620544/)[·恐袭事件之谁在篡改历史](https://gnews.org/zh-hans/1620544/)
 
-and it’s just get to speak up
-人们只是需要发声
+[中共超限战灭港行动（八十三）七二一](https://gnews.org/zh-hans/1634215/)[·恐袭事件之谁主真相](https://gnews.org/zh-hans/1634215/)
 
-and more I just want to be speaking out about it about this program
-还有更多我只是想就这项立法发表意见
+[中共超限战灭港行动（八十四）银发族游行与保护孩子组织的出现](https://gnews.org/zh-hans/1645865/)
 
-because it’s gonna affect everyone’s future.
-因为这会影响每个人的未来
 
-Avi Yemini
-阿维·耶米尼
 
-Maybe your grades have gone down
-也许你的成绩下降了
-
-but you have much more intellect than the people in that building
-但你比那栋楼里的人有更多的智慧
-
-by the way you talk the passion you have
-顺便说一下，你谈了你的热情
-
-I think you’re going to be alright
-我想你会没事的
-
-Protest girl
-抗议女孩
-
-Thank you
-谢谢你
-
-* * *
-
-Date:11/14/2021
-原视频标题: Tens of thousands protest in Melbourne against new pandemic law that would give the executive indefinite emergency powers to “protect public health”.
-成千上万的人在墨尔本抗议新的大流行法，该法将赋予行政部门无限期的紧急权力以“保护公共健康”
-原视频日期：2021/10/14
-原视频链接: [https://twitter.com/disclosetv/status/1459472668831399940?s=21](https://twitter.com/disclosetv/status/1459472668831399940?s=21)
-任务编号：KE345（2870）
-视频时间段 : 0:00-0:51
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*校对 / 封面合成：文粤 / 发布：天网灰灰*
 
  
 

@@ -2,40 +2,41 @@
 ---
 
 
-## 1天1万亿！中共央行放水创历史新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1668593/)
+## Meta因Facebook被俄亥俄州检察长起诉
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1668830/)
 
-#### 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-100.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.sohfrance.org%2Fwp-content%2Fuploads%2F2020%2F12%2FCapture-406.png&amp;imgrefurl=https%3A%2F%2Fwww.sohfrance.org%2Fzhonggongyangxingfangshui9500yi-fenxitongzhangjiuyaolaile%2F&amp;tbnid=v0Jux2rMuVkDEM&amp;vet=12ahUKEwjo9d3WlZz0AhWDDN4KHcfvCY0QMygPegUIARC4AQ..i&amp;docid=RvG21INU49iRqM&amp;w=778&amp;h=445&amp;q=%E5%A4%AE%E8%A1%8C%E6%94%BE%E6%B0%B4&amp;ved=2ahUKEwjo9d3WlZz0AhWDDN4KHcfvCY0QMygPegUIARC4AQ)
-中共国央行11月15日公告称，为维护银行体系流动性合理充裕，开展10000亿元中期借贷便利（MLF）操作（含对11月16日和30日两次MLF到期的续做）和100亿元逆回购操作，充分满足金融机构需求。据记者统计，本月10000亿元的单日续做规模创下历史新高。
+**翻译：西班牙巴塞罗那喜悦农场-wenwu**
 
-本月MLF到期量为1万亿元，为年内最高水平，其中，11月16日和11月30日分别有8000亿元和2000亿元MLF到期。由此，央行对本月到期的MLF实现等额平价续做。这已是央行连续第三个月等量平价续做MLF。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-325.png)图片来源 wsj.com
 
-从地方债发行角度看，在“财政后置”安排下，今年专项债发行在收官阶段进入高峰期。东方金诚首席宏观分析师王青表示，11月中下旬将进入新增地方政府专项债高密度发行阶段，估计发行量在9000亿元左右，显著高于上月全月的5135亿元。
+俄亥俄州总检察长戴夫·约斯特（Dave Yost）起诉 [Meta Platforms](https://www.wsj.com/market-data/quotes/FB)Inc.（ [FB1.96%](https://www.wsj.com/market-data/quotes/FB?mod=chiclets)），该公司前身为 Facebook Inc.，其指控该公司在如何控制其算法以及其产品对儿童的影响方面，误导了公众。
 
-**什么是****MLF**
+俄亥俄州总检察长 Dave Yost 在一份声明中表示，这起诉讼是代表 Meta 公司的投资者和俄亥俄州公共雇员退休系统提起的，要求赔偿 1000 多亿美元，并要求 Meta 公司做出重大改变，以便不再误导投资者。
 
-MLF是中期借贷便利（Medium-term Lending Facility）的英文缩写，也俗称“麻辣粉”，是中共国中央银行提供中期基础货币的货币政策工具。其发放对象是符合监管要求的商业银行和政策性银行，发放方式为质押方式。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-87.jpg)
-MLF的期限一般是三个月到一年，在资金使用满足政策要求的情况下，到期可获得展期。所谓“展期”是指贷款人在向贷款银行申请并获得批准的情况下延期偿还贷款的行为。
+Meta 发言人乔·奥斯本 (Joe Osborne) 表示：“这起诉讼没有法律依据，我们将积极为自己辩护。”
 
-**创设****MLF****的目的**
+该诉讼称，在 2021 年 4 月 29 日至 10 月 21 日期间，Facebook 及其高管违反了联邦证券法，在其公司的产品对未成年人的负面影响方面是故意误导公众，以提升其股票并欺骗股东。
 
-MLF是由中共中央银行2014年9月创设的，是作为逆回购和SLF的补充。那么央行为何要创设MLF呢？这得从2013年6月的“钱荒”说起。由于整治同业业务、进行压力测试等原因，2013年6月，一场罕见的“钱荒”将中共国金融系统推向了舆论的风口浪尖。6月20日，上海银行间同业拆放利率隔夜品种飙涨578.4个基点达到13.44%，达到历史新高。
+“Facebook 说它正在盯着我们的孩子，并清除了网络社区中归类到公司不喜欢让孩子看到的言论（洗脑），但该公司实际上是在为了利润而制造痛苦和分裂，”共和党人 Yost 先生说。
 
-根据资料显示，从2013年5月中旬至2013年7月，持续时间不到2个月，回购与拆借利率由3%以下大幅升至11%以上（隔夜拆借利率水平一度高达13%）。在这过程中，外汇占款增长势头出现了大幅放缓趋势，而央行是根据外汇占款情况发行新货币，这就意味着央行不能发行新货币，供应不足了。
+“真相于 2021 年 9 月 13 日开始浮出水面，当时《华尔街日报》发表了一系列文章中的第一篇，也就是‘Facebook 档案’。”该诉讼称，指的是《华尔街日报》的报道显示，该公司知道其平台充满了会造成伤害的缺陷。
 
-为了维护金融市场的健康，补充流动性缺口，中共央行在《2014年第三季度中国货币政策执行报告》中确认，于2014年9月创设了中期借贷便利，向国有商业银行、股份制银行、较大规模的城市商业银行和农村商业银行分别投放基础货币5000亿元和2695亿元，期限3个月，利率3.5%。至此，中期借贷便利成为了央行货币政策工具箱中的关键一员，有了这个工具，央行就能稳定利率的同时又不需要直接向市场投放基础货币了。
+在[Facebook](https://www.wsj.com/articles/the-facebook-files-11631713039?mod=article_inline)[的档案](https://www.wsj.com/articles/the-facebook-files-11631713039?mod=article_inline)系列报道显示，该公司知道它的照片分享应用程序 Instagram 对一些少女有害，以及其他一些事情。
 
-消息来源:
+Yost 先生说，这些爆料导致 Facebook 股价下跌 54.08 美元，并导致俄亥俄州公共雇员退休系统和其他 Facebook 投资者损失超过 1000 亿美元。
 
-[央行续做1万亿元MLF 规模创单日历史新高](http://news.stcn.com/news/202111/t20211116_3870079.html)
+2021 年 5 月，Yost 先生和来自其他 43 个州和地区的总检察长以行为和隐私问题为由，[敦促当时的](https://www.wsj.com/articles/state-prosecutors-add-to-warnings-about-instagrams-child-safety-plans-11620662601?mod=article_inline)[Facebook](https://www.wsj.com/articles/state-prosecutors-add-to-warnings-about-instagrams-child-safety-plans-11620662601?mod=article_inline)放弃为 13 岁以下儿童开发建立 Instagram 应用程序的计划。
 
-[常听到的“MLF操作”，对我们到底有啥影响？](https://m.21jingji.com/article/20210522/herald/ff87816c4132382ef27b46127121c1a1.html)
+9 月，在越来越多的[两党政治压力下](https://www.wsj.com/articles/facebooks-efforts-to-attract-youths-come-under-senate-scrutiny-11632994201?mod=article_inline)，该公司表示将暂停该项目。[此举](https://www.wsj.com/articles/facebook-pauses-instagram-kids-project-11632744879?mod=article_inline)是在《华尔街日报》关于 Instagram 如何伤害一些少女的报道发表后，不到两周。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+Facebook 吹哨人弗朗西斯·豪根 (Frances Haugen) 披露的消息，也[加速](https://www.wsj.com/articles/facebook-documents-accelerate-eu-push-to-regulate-social-media-11636399889?mod=article_inline)了欧盟对大型科技公司实施全面新限制的[努力](https://www.wsj.com/articles/facebook-documents-accelerate-eu-push-to-regulate-social-media-11636399889?mod=article_inline)。
+
+**新闻来源：**[wsj.com][Ohio Sues Meta Alleging Facebook Parent Misled Public About Its Products’ Effect on Children](https://www.wsj.com/articles/ohio-sues-meta-alleging-facebook-parent-misled-public-about-its-products-effect-on-children-11637011332)
+
+* * *
+
+*发稿**：**Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

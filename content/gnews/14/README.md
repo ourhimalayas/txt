@@ -2,53 +2,32 @@
 ---
 
 
-## 克雷格·凯利在“世界上最受压迫的城市”向群众发表讲话
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1669081/)
+## 去年英仅6名儿童死于 COVID为何要给孩子接种疫苗？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1669096/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/么二本.jpg)图片来源：克雷格·凯利的推特
-翻译：文扬
-编辑：热锅小蚂蚁
+**编译：JennyBall**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip05-1.png)
+在过去的一年里，英国只有 6 名儿童死于新冠肺炎。 只有 6 个！
 
-敬请关注阿维·耶米尼在墨尔本与澳大利亚联合党领袖克雷格·凯利的会面。
+来自作战室的拉希姆·卡萨姆（Raheem Kassam）报告说，在过去的一年里，英国只有 6 名健康儿童死于 COVID。
 
-澳大利亚联合党领导人克雷格·凯利前往墨尔本，他在那里主持了周末充斥墨尔本街道的 “杀死法案 “抗议活动。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip06-1.png)
 
-据报道，成千上万的人聚集在议会前集会，反对丹尼尔·安德鲁斯及其臭名昭著的 2021 年公共卫生和福利修正案（流行病管理）。这是两年前大流行开始以来墨尔本最大规模的抗议活动。
+卡萨姆问了一些好问题：为什么要关闭学校？ 当儿童死于 COVID 的风险如此微不足道时，为什么在学校强制执行戴口罩规定？每年死于车祸和溺水的儿童比冠状病毒多——但教师希望学校停课，为什么？
 
-克雷格·凯利一直是反对滥用流行病控制权力和强制性接种疫苗的最响亮声音之一。
+**点评：我们必须让强制孩子们充当试验老鼠的人回答这些问题！**
 
-人们不会再忍受这种胡作非为了。这是世界上封锁最严的城市，也是世界上最受压迫的城市。科学表明，这是行不通的。休斯议员克雷格-凯利说：”人们将站起来争取他们的权利。
+**新闻来源**：[thegatewaypundit.com][Only 6 Healthy Children Reportedly Died in the UK from COVID In the Last Year – Why Close Schools, Wear Masks in Schools or Give Kids COVID Shots? Why?](https://www.thegatewaypundit.com/2021/11/6-healthy-children-died-uk-covid-year-close-schools-wear-masks-schools-give-kids-covid-shots/)
 
-迄今为止，已有超过 96,000 人签署了“终止法案”的请愿书。
+* * *
 
-他接着指出，在新冠病毒大流行期间引入维多利亚的一些歧视性措施在其他国家已被裁定为非法。
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-我们必须结束这种歧视。我们必须保护孩子。而且我认为我们需要彻底改变政治环境。两个政党都表明他们不值得被信任。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
 
-新冠病毒及其相关的大流行应对措施见证了以自由为主题的小党派的迅速崛起。 一国党、自由民主党和澳大利亚统一党都扩大了他们在澳大利亚政治中的地位。
 
-上个月，澳大利亚联合党成为澳大利亚最大的政党，其成员数量超过了自由党和工党。该党主席克莱夫-帕尔默（Clive Palmer）对各州州长提出了许多法律挑战，试图推翻他所认为的干涉公民生活的非法健康指令。
-
-凯利批评总理斯科特-·莫里森支持维多利亚州州长丹尼尔·安德鲁斯，而不是反对州长和该法案，因为该法案有可能在澳大利亚境内建立一个有效的独裁政权。
-
-凯利坚称：“如果我们上台，我们将确保疫苗护照成为过去，永远不会再出现。
-
-他还承诺皇家委员会将调查大流行期间政客和官僚的行为。
-
-格雷格·亨特“在我上次检查时发现联邦卫生部长已经购买了1.5亿剂加强针，我们国家大约有2500万人，那就是每个人有六支加强针”。
-
-在三位独立人士的帮助下，该法案有望在本月晚些时候通过上议院。
-
-原文链接：[youtube.com](https://www.youtube.com/watch?v=oNKmou6F6ws)
-
-*发布：热锅小蚂蚁*
-
-**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,117 +2,32 @@
 ---
 
 
-## 巴西总统雅伊尔·博尔索纳罗面对世卫组织负责人表示：“人们在疫苗第二剂后死亡”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1668907/)
+## 中共整治虚拟货币挖矿再出重拳
+` 儒为` [轉載自GNews](https://gnews.org/zh-hans/1668929/)
 
-[https://gtv.org/video/id=6193279f182702508105befc](https://gtv.org/video/id=6193279f182702508105befc)
+作者：意大利达芬奇农场-儒为
+![](https://assets.gnews.org/wp-content/uploads/2021/11/虚拟币挖矿.jpeg)封面来源：网络图片
+2021年11月16日，中共国家发展改革委新闻发言人孟玮在新闻发布会上说。**对执行居民电价的单位，若发现参与虚拟货币“挖矿”活动，将研究对其加征惩罚性电价**。
 
-All the over the world, there are people who need to work to feed themselves
-全世界有许多的人需要工作来养活他们自己
+中共缺电到如此程度吗？还是仅以此为借口对通过比特币等虚拟币藏钱洗钱的盗国賊进行警告吗？真正的墙内老百姓有几个接触过虚拟币？连人民币都不多，多的都是负债。
 
-All those measures taken quickly unbalanced the economy
-所有这些措施迅速导致经济失衡
+2011年9月，中共人民银行会同有关部门印发了**《关于进一步防范和处置虚拟货币交易炒作风险的通知》**，明确虚拟货币不具有法定货币等同的法律地位，其相关业务活动属于非法金融活动，参与虚拟货币投资交易活动存在法律风险。
 
-The world went through more than a year of lockdown
-世界经历了一年多的封锁
+中共非常清楚虚拟币对流氓政府的杀伤力有多强？一方面中共通过虚拟币市场藏钱、洗钱，通过深网和暗网进行犯罪交易，但同时中共及世界黑暗力量也都非常清楚，虚拟币只是工具无好坏之分，区别在于使用的人出于什么目的？
 
-if it continues like this, the economy will collapse
-如果再这样下去，经济就会崩溃
+孟玮说，整治虚拟货币“挖矿”活动对促进我国产业结构优化、推动节能减排、如期实现碳达峰、碳中和目标具有重要意义。这真是纯扯淡的说法，中共从来都把非常无耻的行为，形容成“宇宙无限大，地球是一粒沙，想干啥就干啥”，来给自己扣上一个“高大上”的理由。
 
-I think we don’t need more lockdowns
-我认为我们不需要更多的封锁
+中共讲了一大堆的理由，最终目的就是一个，禁止虚拟货币“挖矿”行为。为此中共多部门联合印发《关于整治虚拟货币“挖矿”活动的通知》，虚拟货币“挖矿”活动增补列入**《产业结构调整指导目录(2019年本)》“淘汰类”目录**。这就是中共“以法犯法”的具体表现，自己立法、自己解释法律、自己执行法律。
 
-About the vaccine passports, have the WHO made a decision?
-关于疫苗护照，世卫组织有没有做出决定？
+2021年11月10日，中共国家发展改革委组织召开虚拟货币“挖矿”治理专题视频会议，要求各省区市切实负起**属地责任**。孟玮指出，将以产业式集中式“挖矿”、国有单位涉及“挖矿”和比特币“挖矿”为重点整治。
 
-On its obligation
-关于其义务
+**对执行居民电价的单位**，若发现参与虚拟货币“挖矿”活动，将研究对其加征惩罚性电价，形成持续整治虚拟货币“挖矿”活动的高压态势。
 
-Not for now
-现在不行
+中共最近阶段集中发布涉及虚拟币市场限制的通知和条例，主要目标对准以比特币为首的盗国虚拟币，但其最终目标针对的就是喜币。“钱”自由才能实现人身自由、“钱”安全才能实现人身安全、“钱”独立才能实现人身独立，**“钱”的流向既是民心所向**。
 
-We are not recommending as the vaccination rate in several countries still low
-我们不推荐，因为一些国家的疫苗接种率仍然很低
+新闻来源：🔗[整治虚拟货币挖矿再出重拳 这类行为或加征惩罚性电价](http://www.news.cn/fortune/2021-11/16/c_1128068889.htm)
 
-So, access to the vaccine is low and requiring the certificate could be discriminatio
-因此，它们获得疫苗的机会很少，如果要求疫苗证书可能是歧视行为
-
-In Brazil, many who got the second dose are getting COVID
-在巴西，许多接种第二剂疫苗的人正在感染 COVID
-
-The vaccine does not prevent COVID but it does prevent serious illness and death
-该疫苗确实不能预防COVID，但确实可以预防严重的疾病和死亡
-
-This is the purpose
-这是该疫苗的目的
-
-In Brazil, many who got the second dose are dying
-在巴西，许多接种第二剂疫苗的人正在死亡
-
-As you said, there can be some cases like that
-正如你所说，可能有这样的情况
-
-Especially those who have comorbidities,
-尤其是那些有并发症的人
-
-some other conditions or underlying health conditions
-一些有其他疾病或潜在的健康状况的人
-
-80% of the population are asymptomatic
-80%的人口是无症状的
-
-In Brazil, I do not have control over the actions about the pandemic
-在巴西，我无法控制大流行的行动
-
-Governors and mayors have it by a decision of the Judicial Power
-州长和市长有司法权的决定
-
-And governors and mayors are demanding mandatory vaccination for children
-州长和市长要求为儿童强制接种疫苗
-
-In his words, the WHO does not recommend the vaccine for children
-用他的话来说，世卫组织不推荐给儿童接种疫苗
-
-So we have to make a note in that regard saying that the WHO does not recommend it
-所以我们必须注意，世卫组织不建议这样做
-
-If we say anything here “about the vaccine”, the media starts saying it is “Fake News”
-如果我们在这里说什么“关于疫苗”，媒体就会开始说它是“假新闻”
-
-We are left with our hands tied
-我们被束缚了手脚
-
-The lives of children are at stake and nothing better than to follow what Adhanom said
-孩子们的生命危在旦夕，没有什么比遵循谭德塞-阿达诺姆所说的更好的了
-
-this determination of the WHO
-世卫组织的这一决定
-
-What is the origin of the virus?
-病毒的起源是什么？
-
-We are still studying it
-我们仍在研究它
-
-* * *
-
-Date:11/13/2021
-原视频标题: President Of Brazil, Jair Bolsonaro Confronts WHO Chief: ‘People Are Dying After the Second Dose’
-巴西总统雅伊尔·博尔索纳罗面对世卫组织负责人表示：“人们在疫苗第二剂后死亡”
-原视频日期：2021/10/12
-原视频链接: [https://twitter.com/chi\_un\_lee/status/1458817221787017225?s=24](https://twitter.com/chi_un_lee/status/1458817221787017225?s=24)
-任务编号：KE344（2850）
-视频时间段 : 0:00-2:19
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*编辑/校对/发稿：意大利达芬奇农场-儒为*
 
  
 
