@@ -2,41 +2,30 @@
 ---
 
 
-## 近5万名医保患者在接种新冠疫苗后不久死亡
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1668181/)
+## 浦发银行擅自挪用储户2.95亿元存款
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1668320/)
 
-![Whistleblower: Nearly 50,000 Medicare patients died soon after getting Vaccine](https://thinkcivics.com/wp-content/uploads/2021/09/MicrosoftTeams-image-1-810x500-1-750x375.png)*举报人托马斯·伦茨（Thomas Renz）*
-举报人称：近5万名医保患者在接种新冠疫苗后不久死亡
+#### 整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/33-5.jpg)[图片来源](https://mobile.time-weekly.com/v2/articles/BVgeky)
+11月15日下午，[科远智慧](https://finance.sina.com.cn/realstock/company/sz002380/nc.shtml)公告称，公司全资子公司南京科远智慧能源投资有限公司（下称“南京科远智慧”）在浦发银行南通分行的定期存款被质押。
 
-据托马斯·伦茨（Thomas Renz）律师称，一位举报人提供的政府数据显示，仅在医保患者中，就有48465人在接种新冠疫苗后14天内死亡。
+科远智慧表示，南京科远智慧在浦发银行南通分行的定期存款总额为3.45亿元。其中，4000万元已到期，但未能赎回。经公司向浦发银行南通分行问询得知，4000万元定期存款于2020年11月10日已作为南通瑞豪国际贸易有限公司开具银行承兑汇票的质押担保，目前因南通瑞豪国际贸易有限公司未能按时偿债，导致该笔定期存款到期未能及时赎回。
 
-（伦茨在演讲中播放的）一张幻灯片显示，在“接种新冠疫苗后14天内死亡的人数”中，81岁以下的人群为19400人，81岁及以上的人群为28065人，共计48465人。
+此外，科远智慧还表示，南京科远智慧另有2.55亿元未到期的定期存款状态为被质押，科远智慧表示对上述所有质押行为毫不知情。
 
-“这是原始数据。没有分析，并且这些死亡数字仅来自不到20%的美国人口。”
+就此情况，科远智慧已与浦发银行进行沟通，催收上述产品的兑付款项，并要求浦发银行南通分行方面出具有效证明材料，但截至11月15日，尚未收到浦发银行南通分行方面出具的任何证明材料。
 
-“你想知道为什么14天这么重要吗？因为如果你在14天内死亡，你就不算是接种了疫苗。”根据疾病控制与预防中心（CDC）的说法，注射第一针不算接种了疫苗，只有在打完第二针的14天后才算“接种了疫苗”。
+据科远智慧公告，公司已于2021年11月15日向警方及银保监会江苏监管局报案。目前公司经营活动一切正常，尚未受到上述事件影响。
 
-原文链接：[https://thinkcivics.com/whistleblower-nearly-50000-medicare-patients-died-soon-after-getting-vaccine/](https://thinkcivics.com/whistleblower-nearly-50000-medicare-patients-died-soon-after-getting-vaccine/)
+针对上述情况，11月15日晚，记者致函浦发银行，截至发稿未有回复。浦发银行相关负责人则告诉记者，目前银行暂无相关回应。
 
-简评：
+消息来源:
 
-CDC将接种新冠疫苗后14天内的死亡，都计算为非疫苗引起的死亡，这样混淆概念的做法即荒谬又无耻。这篇短文所揭露的数据，也是现在全球性疫苗灾难的冰山一角。而在这样艰难的情况下，我们更是要感谢那些不畏艰险阻力，为公众们提供真相的吹哨人们。
+[谁挪用了存款？2.95亿元被质押，上市公司科远智慧称毫不知情，浦发银行：暂无回应](https://finance.sina.com.cn/chanjing/gsnews/2021-11-15/doc-iktzscyy5723953.shtml)
 
-翻译：Kone\_Neko
-
-PR：Julia Win
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

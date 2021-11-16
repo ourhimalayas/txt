@@ -2,51 +2,33 @@
 ---
 
 
-## 中共加强对网络从业者管控和迫害力度
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669441/)
+## 淡马锡先跟中共国脱钩了
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1669567/)
 
-作者：澳喜农场 – 在远方
+撰稿：电流声
+![](https://assets.gnews.org/wp-content/uploads/2021/11/161-2.jpg)(图片来自网络截图)
+新加坡国营投资机构淡马锡首席投资策略师Rohit Sipahimalani接受《日经亚洲》采访时透露，可能暂时停止对中（共）国科技公司的新投资，因中（共）国政府对行业整顿构成不确定性。
 
+由于中共国近年加强监管各行业，Rohit Sipahimalani在9月时已表示，希望中共国监管和整治行动的影响能更为清晰，现阶段会暂缓进一步投资中共国的互联网平台。
 
+淡马锡截至2021年3月底，年度的投资回报达24.53%，是10年最佳表现，在3810亿新加坡元的资产中，约27%为中共国资产，包括银行股，腾讯，阿里巴巴等。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+据维基百科描述，淡马锡控股私人有限公司，简称淡马锡控股或淡马锡，是一家新加坡的投资公司，新加坡政府财政部对其拥有100%的股权。由于其自成立起到2004年9月期间从未公布过财务报表，因此被认为是新加坡最神秘的企业之一。
 
+据彭博社报道，根据截至9月30日三个月的13F申报文件，淡马锡把所持中国电商巨头阿里巴巴的股份削减16％，以及把所持网约车公司滴滴的股份削减11％。该公司还出清了对搜索引擎百度、好未来教育集团、新东方和求职招聘平台看准网的持股。
 
+早在2019年10月21日文贵报平安直播中，郭文贵先生就爆料说，美国必须从经济上彻底地和它（中共国）脱钩。脱钩，经济脱钩，一定会脱钩。
 
-中共网信办11月14日发布了《网络数据安全管理条例（征求意见稿）》，对数据处理者规定了数据处理、数据保密、申报安全审查、数据泄露处罚等方面的苛刻条件。其中，赴香港上市的数据处理者有可能影响所谓国家安全的，必须申报审查。
+如今爆出来的淡马锡的脱钩，可想而知，我们还有多少不知道的金融机构已经撤出了中共国呢？中共国的银行，恒大地产还能撑多久呢？共产党——你完球蛋了！
 
-在此之前的10月底，中共网信办就发布《数据出境安全评估办法（征求意见稿）》，列出了5种必须先申请“安全评估”的情形，其中包括掌握100万人讯息，或者累计向境外提供10万人以上讯息的从业者。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-9.jpg)
-值得一提的是，该条例还首次明确提到了屏蔽部分境外网站和翻墙软件等事项，并规定了严厉的处罚细则。条例称，任何个人和组织都不能提供用于穿透中共防火墙的程序、工具和线路等，如有违反，对单位可进行最高达50万元的罚款，对个人可以追究刑事责任。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.2-7.jpg)
-参考链接：
-1. [中共加强对网络业者管控 赴港上市须经网络安审批准](https://www.voachinese.com/a/china-may-seek-cyber-check-for-ipo-in-hk-20211114/6312589.html)
-2. [国家互联网信息办公室关于《网络数据安全管理条例（征求意见稿）》公开征求意见的通知](http://politics.people.com.cn/n1/2021/1114/c1001-32281796.html)
+（文章仅代表作者观点）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+*编辑&发稿：mgjxs*
 
-总编：文特
-编辑：飞虹
-校对/发稿：为真不破20
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

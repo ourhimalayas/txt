@@ -2,38 +2,32 @@
 ---
 
 
-## 日本要闻汇编11月16日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1669260/)
+## 国际女网协会要求中共调查彭帅被性侵事件
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669452/)
 
-素材：东京樱花团丨GNEWS组
-![](https://lh3.googleusercontent.com/9c2uaZ7Y11PFqTR14aUIkRgtqbCFbWIIAKUUnMhtp_w4b3nSyXUXz0ocEpWKTiOkOXJCbx-6W_ViNWyTyFrIetodsK40tQP4X1gHjkPc4H5m8koG_Rr-3dXLsEbte0WTP2zQaw7W)[图片来源](https://china.kyodonews.net/news/2021/11/76165e7c9f79.html)
-1、[**日本外相就美中首脑视频会晤表示关注局势**](https://china.kyodonews.net/news/2021/11/76165e7c9f79.html)
+作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月14日，国际女子网球协会主席西蒙公开发表声明，要求中共政府对彭帅做出的指控进行全面调查。声明称，彭帅，以及所有女性，都应该被倾听，而不是被审查。她对前中共领导人张高丽涉及性侵犯的指控，必须得到最严肃的对待。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-40.jpg)
+西蒙还表示，国际女子网球协会希望中共对此事做正确的处理，即中共政府必须就彭帅的指控进行全面、公平且透明的调查，并且过程中不该有被审查的情况。
 
-日本外相林芳正在16日的记者会上，就美国总统拜登同中国国家主席习近平的视频会晤表示“美中关系稳定不仅对美中两国，而且对国际社会也极其重要。日本政府正在关注局势”。关于日本政府的立场，林芳正说：“将在与同盟国美国的牢固信赖关系下，推进各种合作。（日方）会呼吁中方尽到作为大国的责任。”
+据悉，彭帅是在11月2日通过微博帐号，指控遭到中共前政治局常委、副总理张高丽的性侵，但该文在发布不久后就被删除，该帐号也无法使用。目前彭帅已经处于失联状态，外界对于她的安危与处境没有任何消息。
 
-2、[**日美就启动修改钢铝关税磋商达成共识**](https://china.kyodonews.net/news/2021/11/386ee9729702.html)
+参考链接：
+[国际女网协会关注彭帅 要求北京全面调查性侵指控](https://gnews.org/zh-hans/1666375/)
 
-日美两国政府15日就启动磋商以修改美国对从日本进口的钢铁和铝征收的追加关税达成共识。此外还就建立“日美贸易和工业伙伴关系”达成一致，旨在磋商构建半导体、第五代（5G）移动通信系统等的供应链，以及强化尖端技术研发的合作体制。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-3、[**日澳外长会谈就推进四边机制达成一致**](https://china.kyodonews.net/news/2021/11/02b462d36d19.html)
+总编/编辑：文特
+校正/发稿：Fei797
 
-日本外相林芳正16日与澳大利亚外长佩恩举行视频会谈，考虑到崛起的中国，双方就通过日美澳印“四边机制”（Quad）推进合作达成一致。
-
-4、[**日本新冠小组会同意放宽行动限制**](https://china.kyodonews.net/news/2021/11/fe5380fdc3d1.html)
-
-日本政府16日召开新型冠状病毒感染症对策小组会会议，出示放宽作为防疫对策采取的行动限制的方案并获得同意。即使在紧急事态宣言下，也有条件地取消活动和餐饮人数限制。关于出示疫苗接种证明或检测阴性证明的“疫苗和检测均可制度”，会上还商定大纲草案，其中提出不足6岁的学龄前儿童在父母陪伴下无需检测等。该草案最快19日正式敲定。
-
-5、[**厚劳省小组会同意启动疫苗第三剂接种**](https://china.kyodonews.net/news/2021/11/7127d5f75880-121.html)
-
-有关新冠疫苗第三剂追加接种，日本厚生劳动省疫苗小组会15日同意12月1日起在全国各地实施。现阶段将使用美国辉瑞公司生产的疫苗，也允许第三剂时接种与第一、二剂不同的疫苗。虽然接种时间间隔基本上要求在完成第二剂后约8个月以上，但基于疫情等因素，经地方政府判断，也允许作为例外缩短至6个月。
-
-6、 [**日本自卫队与美海军在南海实施反潜训练**](https://china.kyodonews.net/news/2021/11/e0fb598d7b72.html)
-
-日本海上自卫队16日发布消息称，海自的潜艇当天在南海首次与美国海军实施了反潜联合训练。训练了探测潜艇位置、确认攻击程序等高难度内容。据分析，日美意在通过联合训练牵制主张南海主权的中国。
-
-*编辑：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

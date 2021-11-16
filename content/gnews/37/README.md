@@ -2,105 +2,53 @@
 ---
 
 
-## 成千上万的人在墨尔本抗议新的大流行法，该法将赋予行政部门无限期的紧急权力以“保护公共健康”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1669012/)
+## 克雷格·凯利在“世界上最受压迫的城市”向群众发表讲话
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1669081/)
 
-[https://gtv.org/video/id=61933235182702508105c220](https://gtv.org/video/id=61933235182702508105c220)
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/么二本.jpg)图片来源：克雷格·凯利的推特
+翻译：文扬
+编辑：热锅小蚂蚁
 
-Protest girl
-抗议女孩
+敬请关注阿维·耶米尼在墨尔本与澳大利亚联合党领袖克雷格·凯利的会面。
 
-As a 14 year old girl I shouldn’t have to be standing here fighting for my freedom.
-作为一名14岁的女孩，不应该由我站在这里为的自由而战
+澳大利亚联合党领导人克雷格·凯利前往墨尔本，他在那里主持了周末充斥墨尔本街道的 “杀死法案 “抗议活动。
 
-I’m scared for my future
-但我为自己的未来感到害怕
+据报道，成千上万的人聚集在议会前集会，反对丹尼尔·安德鲁斯及其臭名昭著的 2021 年公共卫生和福利修正案（流行病管理）。这是两年前大流行开始以来墨尔本最大规模的抗议活动。
 
-and I’m scared for my parents that they’re gonna lose their jobs
-而且也为我的父母担心，他们会失去工作
+克雷格·凯利一直是反对滥用流行病控制权力和强制性接种疫苗的最响亮声音之一。
 
-and we will be homeless because they don’t want to they don’t want to give in
-我们将无家可归，因为他们不想屈服
+人们不会再忍受这种胡作非为了。这是世界上封锁最严的城市，也是世界上最受压迫的城市。科学表明，这是行不通的。休斯议员克雷格-凯利说：”人们将站起来争取他们的权利。
 
-I’m just scared you know
-你知道我只是害怕
+迄今为止，已有超过 96,000 人签署了“终止法案”的请愿书。
 
-I don’t want the city of fighting as a 14 year old girl
-作为一名14岁的女孩我不想在城市中抗争
+他接着指出，在新冠病毒大流行期间引入维多利亚的一些歧视性措施在其他国家已被裁定为非法。
 
-I’m scared when I have kids what if this is still going on?
-当我有孩子时，我很害怕，如果这种情况仍在持续怎么办？
+我们必须结束这种歧视。我们必须保护孩子。而且我认为我们需要彻底改变政治环境。两个政党都表明他们不值得被信任。
 
-I have to fight for my kids too
-我也要为我的孩子而战
+新冠病毒及其相关的大流行应对措施见证了以自由为主题的小党派的迅速崛起。 一国党、自由民主党和澳大利亚统一党都扩大了他们在澳大利亚政治中的地位。
 
-it’s gonna go on for so long, and I’m just gonna you know
-抗争会持续很长时间，我只是想让你知道
+上个月，澳大利亚联合党成为澳大利亚最大的政党，其成员数量超过了自由党和工党。该党主席克莱夫-帕尔默（Clive Palmer）对各州州长提出了许多法律挑战，试图推翻他所认为的干涉公民生活的非法健康指令。
 
-Avi Yemini (Rebel News)
-阿维·耶米尼（反叛新闻）
+凯利批评总理斯科特-·莫里森支持维多利亚州州长丹尼尔·安德鲁斯，而不是反对州长和该法案，因为该法案有可能在澳大利亚境内建立一个有效的独裁政权。
 
-how is schooling been in the last two years for you？
-你在过去两年的学习情况如何？
+凯利坚称：“如果我们上台，我们将确保疫苗护照成为过去，永远不会再出现。
 
-Protest girl
-抗议女孩
+他还承诺皇家委员会将调查大流行期间政客和官僚的行为。
 
-my attendance is going down and so my grades is really stressful,
-我的出勤率下降了，所以我的成绩真的很有压力
+格雷格·亨特“在我上次检查时发现联邦卫生部长已经购买了1.5亿剂加强针，我们国家大约有2500万人，那就是每个人有六支加强针”。
 
-and all my friends grades as well
-我所有的朋友的成绩也受到了影响
+在三位独立人士的帮助下，该法案有望在本月晚些时候通过上议院。
 
-and it’s just get to speak up
-人们只是需要发声
+原文链接：[youtube.com](https://www.youtube.com/watch?v=oNKmou6F6ws)
 
-and more I just want to be speaking out about it about this program
-还有更多我只是想就这项立法发表意见
+*发布：热锅小蚂蚁*
 
-because it’s gonna affect everyone’s future.
-因为这会影响每个人的未来
-
-Avi Yemini
-阿维·耶米尼
-
-Maybe your grades have gone down
-也许你的成绩下降了
-
-but you have much more intellect than the people in that building
-但你比那栋楼里的人有更多的智慧
-
-by the way you talk the passion you have
-顺便说一下，你谈了你的热情
-
-I think you’re going to be alright
-我想你会没事的
-
-Protest girl
-抗议女孩
-
-Thank you
-谢谢你
-
-* * *
-
-Date:11/14/2021
-原视频标题: Tens of thousands protest in Melbourne against new pandemic law that would give the executive indefinite emergency powers to “protect public health”.
-成千上万的人在墨尔本抗议新的大流行法，该法将赋予行政部门无限期的紧急权力以“保护公共健康”
-原视频日期：2021/10/14
-原视频链接: [https://twitter.com/disclosetv/status/1459472668831399940?s=21](https://twitter.com/disclosetv/status/1459472668831399940?s=21)
-任务编号：KE345（2870）
-视频时间段 : 0:00-0:51
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

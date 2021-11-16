@@ -2,50 +2,33 @@
 ---
 
 
-## 中共公然威胁澳洲准备好末日来临
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669442/)
+## 有声|恒大将引爆中共房地产业雪崩
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1669568/)
 
-作者：澳喜农场 – 在远方
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
 
 
+11月14日，郭文贵先生在大直播中透露，两周之内，恒大就会宣布破产。恒大已经成立了清算委员会，或者债务处理委员会，低调启动企业破产程序。随着恒大的破产，融创、富力、合生创展、碧桂园等中共房地产企业也会纷纷倒闭。中共房地业一定会雪崩式的崩塌。
 
-澳洲媒体14日报道说，在摧毁了香港的民主之后，中共当局开始公开吹嘘它已将收复台湾列入日程，而此举有可能导致与美国及其盟国，包括澳大利亚的全面战争。
+郭先生着重指出，中共房地产行业的崩溃式破产，是由习近平一手操纵的，目的是让美国的7万亿美元投资，欧洲的十几万亿，通通血本无归，搞垮美国经济和世界经济，为下一步攻打台湾创造机会。
 
-中共前外交官高志凯威胁说：澳大利亚不再享有不被核武器攻击的好处，以及其他特权了。任何阻止中共接管台湾的企图，都是要失败的，甚至可能导致同归于尽。他还利诱澳洲政府说，如果澳洲处理得好，将可以两全其美，既能不失去美国的盟友，也能不失去中共的市场。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.2-4.jpg)
-澳洲参议员莫兰表示，他并不相信共产党政权会如此仁慈。他认为中共的目标是在印太地区，甚至是全世界占主导地位，这对民主的澳洲是生存威胁。因为一旦中共和美国之间的战争将快速升级，并失去控制，那将是世界末日。无论接下来会发生什么，都将取决于中共，澳洲和世界其他国家都要抱最好的希望，但要做最坏的准备。
+最后，郭先生充满信心的表示，中共的这些手段，只会促使各国更快承认新中国联邦，加速中共的灭亡，加速喜币和G系列的升值。对新中国联邦是绝对利好的消息。
 
-参考链接：
-[中共对澳洲的警告： 准备好末日来临](https://gnews.org/zh-hans/1664442/)
+文字版原文：[恒大将引爆中共房地产业雪崩](https://gnews.org/zh-hans/1666537/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-总编：文特
-编辑：Lakeman (文仁)
-校对/发稿：为真不破20
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
