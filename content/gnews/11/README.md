@@ -2,43 +2,26 @@
 ---
 
 
-## 疫苗护照，中共病毒战争期间的“新路条”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1668463/)
+## 起诉书无耻且具有争议 美国司法正向中共靠拢
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1668503/)
 
-作者：香草山金融部 – 闲聊钱币
+#### 翻译/撰稿：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/80124403_dershowitz.jpg)图片来源：BBC
+根据布莱特巴特新闻（Breitbart News）11月15日的报道，拜登的司法部周五起诉了前川普总统的顾问、布莱特巴特新闻的前主席史蒂夫·班农（Steve Bannon）。
 
+班农先生周一向联邦当局自首，由于班农先生无视众议院委员会关于1月6日事件的调查传讯，他将面临藐视法庭的指控。
 
+对此，哈佛学院名誉教授艾伦·德肖维茨（Alan Dershowitz）表示：“这是一份无耻的起诉书。我会告诉你这为什么无耻。如果你没有起诉过别人，你就不会知道法律是什么样的。因为如果总统告诉班农不要回答，那么就没有人知道班农是否有权拒绝回答。这是一个有争议的问题。因此不适合以此作为刑事起诉的主题。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+德肖维茨解释道，“保留前总统的行政保密权是一个有争议的法律问题。”他建议对这种有争议的合法性问题进行调查。
 
+德肖维茨说：“（为了弄清楚这个有争议的法律）你要去到法院，你得到一个宣告判决，你得到一个禁令，你得到法院的命令，只有这样才是有可能。为了弄清这个法律是什么，你用尽除了刑事司法系统以外的所有代替方法。”
 
+对于这个有争议性的法律问题德肖维茨继续举例解释道：“如果有10个宪法学者在一个房间里，这10人里不包括拉里·特里布（Larry Tribe），因为他不是一个学者，他是一个党派倡导者。在这个10人的房间里，如果你没有告诉他们这个人是民主党还是共和党，这时无论前总统是否授权他的前顾问不要把资料交出来，或不要作证，那么得到的结果将是五五开。”
 
-“特殊通行证”，“良民证”，这些在二战曾经用来区分不同人群的身份证件再次回到我们的生活当中。一个小小的QR code，将所有地球人分为打了疫苗的和未打疫苗的。未打疫苗的人群正在受到前所未有的不公平待遇。
+最后德肖维茨总结重申：“这是一个困难的、闭门问题，不适用于刑事起诉的主题。”
 
-路透社维也纳14日报道，从周一开始，数百万没有完全接种疫苗的奥地利人将被重新禁锢家中。政府给出的理由是激增的感染率和日趋紧张的重症监护室床位。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-16.jpg)
-多个政府对未接种疫苗的人们采取歧视行动。奥地利再次限制人们的自由行动，这次仅针对未接种者。澳大利亚的某些州要求必须接种疫苗才能从事特定职业。加拿大的公共交通最不欢迎未打疫苗的人，一律不准乘飞机，坐火车。新加坡则要求从下个月起不打疫苗就自己负担医药费。
-
-这些标榜自由民主的发达国家，在中共蓝金黄的渗透下，不去追根溯源病毒到底是哪里来的，反而利用人民赋予他们的行政权力，强行违宪的出台对未接种人群的歧视性条例。
-
-不灭中共，各种各样的“新路条”会层出不穷。
-
-（本文仅代表作者观点）
-
-参考来源：[疫苗护照，中共病毒战争期间的“新路条”](https://www.reuters.com/business/healthcare-pharmaceuticals/austria-orders-non-vaccinated-people-into-covid-19-lockdown-2021-11-14/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Nomura%20JP%2011-15-21%20Sponsorship&amp;utm_campaign=Nomura%20JP%2011-15-21%20Sponsorship)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+新闻来源：[Exclusive — Alan Dershowitz: Bannon Indictment ‘Outrageous’, ‘Disputed Question’ Whether Trump Retains Executive Privilege](https://www.breitbart.com/radio/2021/11/15/exclusive-alan-dershowitz-bannon-indictment-outrageous-disputed-question-whether-trump-retains-executive-privilege/)
 
  
 
