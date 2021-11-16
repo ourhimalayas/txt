@@ -2,19 +2,19 @@
 ---
 
 
-## 波兰将在与白俄罗斯的边界修建隔离墙
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1668794/)
+## 七哥兑现共享财富的承诺
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1668822/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11162.jpg)图片来自bbc
-11 月 15 日 – 华沙政府在与明斯克发生移民危机后宣布，波兰将于 12 月开始在与白俄罗斯的边界上修建隔离墙。
+文编：东京樱花团/樱花传媒
+视频:东京樱花团/中文小视频组
 
-华沙内政部长马里乌什·卡明斯基表示，将通过在与白俄罗斯接壤的边境修建隔离墙来实施阻止非法移民闯入的行动，并称这绝对是对国家及其公民安全的战略性和优先投资。
+11月3日，郭文贵先生在GTV大直播表示：
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/15/la-polonia-costruira-un-muro-al-confine-con-la-bielorussia\_e6d2d7ee-0d62-4930-980a-e5f109ae5e7c.html](https://www.ansa.it/sito/notizie/topnews/2021/11/15/la-polonia-costruira-un-muro-al-confine-con-la-bielorussia_e6d2d7ee-0d62-4930-980a-e5f109ae5e7c.html)
+新中国联邦，未来会将有铸币权银行的原始股，分发给参加爆料革命的战友们以及那些承认、支持新中国联邦推翻中共的人们。只有新中国联邦会让新中国联邦人千秋万代地共享财富，实现人类命运共同体。
 
-责任编辑/发布：意大利达芬奇农场   萧亦
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

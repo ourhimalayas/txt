@@ -2,43 +2,24 @@
 ---
 
 
-## 疫苗护照，中共病毒战争期间的“新路条”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1668463/)
+## 德国及邻居波兰捷克的中共病毒疫情加重
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1668524/)
 
-作者：香草山金融部 – 闲聊钱币
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-69.png)
+图片来源： www.epochtimes.com
 
+美国合众国际社11月14日报道，欧洲三个邻居国家—德国，捷克，波兰在俄罗斯破记录的每日死亡数之后引领了欧洲新一波中共病毒疫情病例数和死亡数。欧洲显示了本周死亡数比上周增加7%而且感染数增加13%，欧洲的总死亡数已超过135万，总病例数已超过6千8百18万，仅次于亚洲。
 
+世卫组织欧洲区主任一周前说：“信息显示，疫苗正在起到防止病情严重化，尤其减少死亡率，但这个方法必须伴随着其预防措施。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+总体来说，全球总病例数于周日已达到2亿5千4百多万，虽然有5%的病例数增加，但死亡数并没有明显增加，目前死亡数达5百11.5万，美国的死亡数最高，为78万3千5百多人，病例数达4千7百91万6千多人。
 
+俄罗斯周日报告1219例死亡，总死亡数达25万5千3百86人，全球排第五。
 
+徳国本周死亡数增加42%，疫情以来总死亡数9万8千多人，全球排第十四位，感染人数本周增加49%，总感染数达3千5百20万6千多人，全部排第12位。波兰死亡数增加46%，总死亡数达7万8千8百多人排第17位，病例数增加27%，总感染数达320多万，也是第17位。捷克本周死亡数增加34%，总死亡数达3万1千481人，感染数增加34%，总感染数达189万多人。
 
-“特殊通行证”，“良民证”，这些在二战曾经用来区分不同人群的身份证件再次回到我们的生活当中。一个小小的QR code，将所有地球人分为打了疫苗的和未打疫苗的。未打疫苗的人群正在受到前所未有的不公平待遇。
-
-路透社维也纳14日报道，从周一开始，数百万没有完全接种疫苗的奥地利人将被重新禁锢家中。政府给出的理由是激增的感染率和日趋紧张的重症监护室床位。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-16.jpg)
-多个政府对未接种疫苗的人们采取歧视行动。奥地利再次限制人们的自由行动，这次仅针对未接种者。澳大利亚的某些州要求必须接种疫苗才能从事特定职业。加拿大的公共交通最不欢迎未打疫苗的人，一律不准乘飞机，坐火车。新加坡则要求从下个月起不打疫苗就自己负担医药费。
-
-这些标榜自由民主的发达国家，在中共蓝金黄的渗透下，不去追根溯源病毒到底是哪里来的，反而利用人民赋予他们的行政权力，强行违宪的出台对未接种人群的歧视性条例。
-
-不灭中共，各种各样的“新路条”会层出不穷。
-
-（本文仅代表作者观点）
-
-参考来源：[疫苗护照，中共病毒战争期间的“新路条”](https://www.reuters.com/business/healthcare-pharmaceuticals/austria-orders-non-vaccinated-people-into-covid-19-lockdown-2021-11-14/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Nomura%20JP%2011-15-21%20Sponsorship&amp;utm_campaign=Nomura%20JP%2011-15-21%20Sponsorship)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+##### **新闻来源： **[Neighbors Germany, Poland, Czech Republic fuel Europe COVID-19 surge](https://www.upi.com/Top_News/World-News/2021/11/14/world-cornavirus-germany-poland-czech-republic-russia-surge/5701636902602/)
 
  
 
