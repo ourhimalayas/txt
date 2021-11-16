@@ -2,10 +2,10 @@
 ---
 
 
-## 日本发现第三例高致病性禽流感病例
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1667903/)
+## 辉瑞CEO之妻死于中共病毒疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1667911/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._16-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1116-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
