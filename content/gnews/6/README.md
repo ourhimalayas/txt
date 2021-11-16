@@ -2,52 +2,167 @@
 ---
 
 
-## 中共超限战灭港行动（85）守护孩子行动
-` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1669029/)
+## 乌托邦的中共和实力派的美国不可比拟
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1669053/)
 
-#### 搜集/撰文：岁月如歌
+[https://gtv.org/video/id=619331ac182702508105c1f6](https://gtv.org/video/id=619331ac182702508105c1f6)
+
+跟美国人签一份一千年的和平协议
+Firmar un acuerdo de paz por mil años con los estadounidenses
+
+对中国是最好的
+Es bien para China
+
+你想都别想跟人家打架
+No pienses en pelear con ellos
+
+它不是钱的事
+Esto no es un asunto de dinero
+
+不是武器的事
+Arma
+
+不是科技的事
+O tecnología
+
+它是一个历史的堆积
+Es la acumulación histórica
+
+就像新中国联邦, 七哥要没有30年在共产党内的堆积
+Así como el Nuevo Estado Federal de China, si no estuve acumulando durante 30 años en el Partido Comunista
+
+今天你说这人, 我张嘴就来
+Hoy yo puedo decir cualquier cosa de esta persona
+
+我张嘴就能编
+O inventar de la nada
+
+我没有这些年的经营
+Si no he estado administrando estos años
+
+我就能成为结构师, 搞出一个喜联储
+Puedo convertirme en un ingeniero estructural y crear una Reserva Federal de Himalaya
+
+我能搞出G-TV, 盖特
+El G-TV, GETTR
+
+我今天没有四年爆料
+Si no he estado en Movimiento de denunciantes por cuatro años
+
+我今天给你们讲的, 你们就信, 不可能
+Hoy lo que les digo, ¿ustedes me creerán? Imposible
+
+它是一个时间的累积
+Esto es algo que necesita ir acumulando a través del tiempo
+
+多方面累积的结果
+Es el resultado acumulado de distintas partes
+
+这叫物质的设计
+Esto se llama diseño de cosas materiales
+
+物是行动产生的结果
+Las cosas son los resultados producidos por las acciones
+
+质是什么
+¿Qué es el material?
+
+是一个事情的基本逻辑
+Es la lógica fundamental de un asunto
+
+合在一起叫物质
+Unido se llama cosas materiales
+
+我们就在物质的设计里
+Nosotros estamos dentro del diseño de las cosas materiales
+
+共产党是什么
+¿Qué es el Partido Comunista?
+
+叫乌托邦
+Se llama Utopía
+
+乌托邦就是幻想主义者, 谎言主义者
+Las utopías son fantásticas y mentirosas
+
+你怎么能听他的呢
+Cómo puedes escuchar de ella
+
+胡扯的
+Son puras pendejadas
+
+所以说(如果)打3分钟就给它灭了
+Por eso si golpea por tres minutos y lo terminas de destruir
+
+所以今天的选举结果是什么
+¿Cuál es el resultado de la elección de hoy?
+
+所有这些地方, 你敢打台湾
+Todos estos lugares, te atreves a atacar a Taiwán
+
+老子就修理你
+Te pegaré
+
+真的, 政清, 爱米粒, 大牛, 巴黎
+Es verdad, Zhengqing, Emily, Daniu, Bali
+
+你们应该裸奔了
+Deberían estar corriendo desnudo
+
+好好认真的裸奔
+En serio, corran desnudo
+
+这事值得裸奔
+Este asunto vale la pena correr desnudo
+
+绝对对你们是安全的
+Es absolutamente seguro para ustedes
+
+新中国联邦不可能, 绝对保证你安全
+El Nuevo Estado Federal garantiza tu seguridad
+
+但是这个让你安全上加了安全
+Pero esto es más seguro que cualquier cosa
+
+这是我心里最开心的
+Y es lo que me contenta más
+
+他们赢, 第二个就是绝对灭共
+Si ellos ganan, el segundo es eliminar al Partido Comunista
+
+哪个不是咱战友, 你告诉我哪个不是
+Dime quien no es compañero luchador
+
+导致这个赢的最重要的结果是什么
+¿Cuál es el resultado más importante que conlleva esta victoria?
+
+千万别忘了
+Nunca olviden
+
+所有这些州的现场的所有人, 都是班农战斗士的嘉宾
+Todas las personas que están presentes de estas provincias son todos invitados de los combatientes de Bannon
+
+* * *
+
+日期：11/11/2021
+原视频标题：乌托邦的中共和实力派的美国不可比拟
+El utópico PCCh y el poderoso Estados Unidos son incomparables
+原视频日期：11/05/2021
+原视频网址：[https://twitter.com/se1y7cblljselva/status/1456598738625916929?s=24](https://twitter.com/se1y7cblljselva/status/1456598738625916929?s=24)
+任务编号：KC251（2785）
+视频时间段：0:00-1:48
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11161-1.jpg)
-“守护孩子行动”是个非常危险的行为，但是这个组织的成员几乎是“真空上阵”，没有保护装备，最多也只是一个头盔，或一个眼罩，但他们毫无畏惧。 9·21元朗静坐示威演变成连串冲突，“守护孩子行动”成员及陈伯等人上前了解情况遭速龙小队喷胡椒喷剂，一名成员及陈伯被分隔带进后巷，后陈伯被放出来接受治理，另一名成员遭30名警察围攻拳打脚踢，从网络上流传出来的视频可见，并有女子声音呼叫“唔好打人呀！阿sir，停手呀！（警察不要打人呀，停手呀）”警察无动于衷继续施暴，女子再大叫“喂！影住你呀！（拍下你了呀），”该女子立刻遭警察以强光照射，现场还听到男子大叫救命。 “好邻舍北区教会”证实该名男子是“守护孩子行动”成员，该成员为了上前了解一名被捕的青少年而被警方推跌并拘捕，当时並没有拒捕。据报导，该成员被打致口腔及牙齿出血，并出现昏眩状况。事后警方发言人韦华高在记者会上表示他们只是脚踢“黄色物体”，是物体不是人，警方无耻程度令舆论哗然，被认为是“非人化罪行”在运动中的例子。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11162-1.jpg)图片来自众新闻
-82岁的黄伯，没有任何防护措施，连头盔眼罩或者防毒面具都没有他一样在“枪林弹雨”中参加保护孩子。他说：“没什么可怕的，警察有胆打我，尽管打，我直接用我的身体去抵挡。我们都几十岁了，无所谓，但是年轻人就一个都不能少。”他希望年轻人万事小心，保留生命，继续为香港努力。他说会和陈伯（陈基裘）一起在最前线，站在示威者与警察之间做缓冲。
-
-陈基裘与哥哥弟弟三人一起参加“守护孩子行动”，哥哥已经96岁。陈伯说他爱香港，他认为目前香港的危险比日本侵占香港时期更危险，他说：“我这么大个人从未见过香港人打香港人。” 73岁的陈伯在反送中运动中表现非常勇敢，不亚于年轻人。 “为了公义即使会失去性命也不要紧”，陈泊说，他和守护孩子其他成员一样与年轻人并肩作战，以血肉之躯抵挡冲突。陈伯经历过内地文革，感受过政权对人民的剥削，亲身经历过被打压，对统治者的压迫永生难忘。他经历过20年前的粉岭、马屎埔村抗争，反对新界东北发展逼村民搬迁。陈伯说“我承受很大的压力，到立法会门前通宵静坐，抗议，为村民争取应有的权益”。最终还是面临搬迁，使他对政府失去信心。反送中运动， 看到100万，甚至200万市民的游行，政府都无动于衷，政府还利用警察和权贵欺压市民，甚至有黑警察欺压及摧残年轻的两三代，陈伯非常痛心。警察打示威者对于陈伯来说司空见惯了，但每次的回忆，使这位古稀老人不禁伤心落泪，残酷的现实也迫使这些银发老人不惜走上抗争之路。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11163-1.jpg)图片来自明报
-7月3日陈伯参与持续19天的绝食抗议活动，年轻人恐怕都难以支撑，但陈伯依靠意志做到了。 7月14日绝食第十日，得知示威者在新城市广场被警察包围时，他毫不犹豫从海富中心奔往沙田，他要求警察让路：“叫你们指挥官出来与我对话，我要拯救年轻人，麻烦你们让路”，经过一轮的扰攘，陈伯终于冲破多重防线。事后他坦言“你以为我真的不怕死吗？那是没办法，牺牲我们老年人没问题，只希望年轻人不要受到伤害”。 921运动中陈伯为解救年轻人被速龙小队喷“食椒（遭喷胡椒喷雾）”和推倒，大家都担心他的安全。
-
-年近60岁的何女士也是守护孩子的成员，她承认心情紧张，因为接下来不知道会发生什么事，也不知道见到年轻人被打时自己是否真有勇气去阻挡，但会尽自己能力去守护，不希望有暴力事件发生。因为恐惧，才要站出来尽自己的责任，何女士赞每一位走出来的年轻人非常有勇气。
-
-2019年9月29日的全球反极权大游行中，十多名守护孩子行动的成员为解救被速龙小队围困在海富中心的示威者，他们筑起人链并要求警方让示威者离开，消防员到场后开闸让示威者离去，守护孩子成员被警方命令除下口罩，并登记身份证，警方表示将会保留检控他们非法集结的权利。
-
-（未完待续）
-
-
-
-参考链接：
-
-[【元朗游行】沙田八旬伯伯零装备上阵守护孩子 “拎个身直接挡”](https://www.hk01.com/18%E5%8D%80%E6%96%B0%E8%81%9E/357009/%E5%85%83%E6%9C%97%E9%81%8A%E8%A1%8C-%E6%B2%99%E7%94%B0%E5%85%AB%E6%97%AC%E4%BC%AF%E4%BC%AF%E9%9B%B6%E8%A3%9D%E5%82%99%E4%B8%8A%E9%99%A3%E5%AE%88%E8%AD%B7%E5%AD%A9%E5%AD%90-%E6%8B%8E%E5%80%8B%E8%BA%AB%E7%9B%B4%E6%8E%A5%E6%93%8B)
-
-[【](https://www.hk01.com/%E7%AA%81%E7%99%BC/378104/9-21%E5%85%83%E6%9C%97%E7%A4%BA%E5%A8%81-%E5%AE%88%E8%AD%B7%E5%AD%A9%E5%AD%90%E6%88%90%E5%93%A1%E8%A2%AB%E6%8A%BC%E5%85%A5%E5%BE%8C%E5%B7%B7%E6%B5%81%E8%A1%80-%E5%A5%BD%E9%84%B0%E8%88%8D-%E8%A2%AB%E6%8C%87%E8%A5%B2%E8%AD%A6)[9.21元朗示威】守护孩子成员被押入后巷流血　好邻舍﹕被指袭警](https://www.hk01.com/%E7%AA%81%E7%99%BC/378104/9-21%E5%85%83%E6%9C%97%E7%A4%BA%E5%A8%81-%E5%AE%88%E8%AD%B7%E5%AD%A9%E5%AD%90%E6%88%90%E5%93%A1%E8%A2%AB%E6%8A%BC%E5%85%A5%E5%BE%8C%E5%B7%B7%E6%B5%81%E8%A1%80-%E5%A5%BD%E9%84%B0%E8%88%8D-%E8%A2%AB%E6%8C%87%E8%A5%B2%E8%AD%A6)
-
-[【专访守护孩子陈伯】银发族挺身而出与年轻人同行](https://sparkyouthmedia.com/2020/10/12/%E3%80%90%E5%B0%88%E8%A8%AA%E5%AE%88%E8%AD%B7%E5%AD%A9%E5%AD%90%E9%99%B3%E4%BC%AF%E3%80%91-%E9%8A%80%E9%AB%AE%E6%97%8F%E6%8C%BA%E8%BA%AB%E8%80%8C%E5%87%BA-%E8%88%87%E5%B9%B4%E8%BC%95%E4%BA%BA%E5%90%8C/)
-
-导读：
-中共超限战灭港行动
-[中共超限战灭港行动（八十）七二一](https://gnews.org/zh-hans/1599657/)[·恐袭事件之官黑勾结警黑合作（中）](https://gnews.org/zh-hans/1599657/)
-
-[中共超限战灭港行动（八十一）七二一](https://gnews.org/zh-hans/1614003/)[·恐袭事件之官黑勾结警黑合作（下）](https://gnews.org/zh-hans/1614003/)
-
-[中共超限战灭港行动（八十二）七二一](https://gnews.org/zh-hans/1620544/)[·恐袭事件之谁在篡改历史](https://gnews.org/zh-hans/1620544/)
-
-[中共超限战灭港行动（八十三）七二一](https://gnews.org/zh-hans/1634215/)[·恐袭事件之谁主真相](https://gnews.org/zh-hans/1634215/)
-
-[中共超限战灭港行动（八十四）银发族游行与保护孩子组织的出现](https://gnews.org/zh-hans/1645865/)
-
-
-
-*校对 / 封面合成：文粤 / 发布：天网灰灰*
 
  
 
