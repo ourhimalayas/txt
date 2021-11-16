@@ -2,167 +2,26 @@
 ---
 
 
-## 乌托邦的中共和实力派的美国不可比拟
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1669053/)
+## 台湾前线｜美共元首峰会：美反对任何破坏台海和平的行为
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1669066/)
 
-[https://gtv.org/video/id=619331ac182702508105c1f6](https://gtv.org/video/id=619331ac182702508105c1f6)
+**台灣寶島農場 港台前線關注組 / 發佈時間｜16/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-07-14.32.38.jpeg)
+**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
 
-跟美国人签一份一千年的和平协议
-Firmar un acuerdo de paz por mil años con los estadounidenses
+16日，美国拜登总统与中共主席习近平视讯会议，针对贸易战、核武、新冷战冲突预防，以及香港、新疆、台湾安全问题会谈，会议结束美、共双方并未发表联合宣言，也没有取得突破性共识。据白宫新闻稿：
 
-对中国是最好的
-Es bien para China
 
-你想都别想跟人家打架
-No pienses en pelear con ellos
+> **美国固然支持“一个中国政策”，但也遵守〈台湾关系法〉的规定；虽然《中美三个联合公报》很重要，但同样的对台湾的《六个承诺》也是；美国强烈反对任何一方，片面改变『两岸现状』，也反对任何破坏台湾海峡的和平与稳定**
 
-它不是钱的事
-Esto no es un asunto de dinero
 
-不是武器的事
-Arma
+会议结束后，中共官媒新华社、央视对外表示，会议上拜登对中共示好，并强调美国支持一个中国、反对台独等承诺，美共关系回到了反台独的传统共识。对台湾将会尽最大努力争取和平统一的前景，但如果『台独』分裂势力挑衅逼迫，甚至突破红线，将不得不采取断然措施。
 
-不是科技的事
-O tecnología
-
-它是一个历史的堆积
-Es la acumulación histórica
-
-就像新中国联邦, 七哥要没有30年在共产党内的堆积
-Así como el Nuevo Estado Federal de China, si no estuve acumulando durante 30 años en el Partido Comunista
-
-今天你说这人, 我张嘴就来
-Hoy yo puedo decir cualquier cosa de esta persona
-
-我张嘴就能编
-O inventar de la nada
-
-我没有这些年的经营
-Si no he estado administrando estos años
-
-我就能成为结构师, 搞出一个喜联储
-Puedo convertirme en un ingeniero estructural y crear una Reserva Federal de Himalaya
-
-我能搞出G-TV, 盖特
-El G-TV, GETTR
-
-我今天没有四年爆料
-Si no he estado en Movimiento de denunciantes por cuatro años
-
-我今天给你们讲的, 你们就信, 不可能
-Hoy lo que les digo, ¿ustedes me creerán? Imposible
-
-它是一个时间的累积
-Esto es algo que necesita ir acumulando a través del tiempo
-
-多方面累积的结果
-Es el resultado acumulado de distintas partes
-
-这叫物质的设计
-Esto se llama diseño de cosas materiales
-
-物是行动产生的结果
-Las cosas son los resultados producidos por las acciones
-
-质是什么
-¿Qué es el material?
-
-是一个事情的基本逻辑
-Es la lógica fundamental de un asunto
-
-合在一起叫物质
-Unido se llama cosas materiales
-
-我们就在物质的设计里
-Nosotros estamos dentro del diseño de las cosas materiales
-
-共产党是什么
-¿Qué es el Partido Comunista?
-
-叫乌托邦
-Se llama Utopía
-
-乌托邦就是幻想主义者, 谎言主义者
-Las utopías son fantásticas y mentirosas
-
-你怎么能听他的呢
-Cómo puedes escuchar de ella
-
-胡扯的
-Son puras pendejadas
-
-所以说(如果)打3分钟就给它灭了
-Por eso si golpea por tres minutos y lo terminas de destruir
-
-所以今天的选举结果是什么
-¿Cuál es el resultado de la elección de hoy?
-
-所有这些地方, 你敢打台湾
-Todos estos lugares, te atreves a atacar a Taiwán
-
-老子就修理你
-Te pegaré
-
-真的, 政清, 爱米粒, 大牛, 巴黎
-Es verdad, Zhengqing, Emily, Daniu, Bali
-
-你们应该裸奔了
-Deberían estar corriendo desnudo
-
-好好认真的裸奔
-En serio, corran desnudo
-
-这事值得裸奔
-Este asunto vale la pena correr desnudo
-
-绝对对你们是安全的
-Es absolutamente seguro para ustedes
-
-新中国联邦不可能, 绝对保证你安全
-El Nuevo Estado Federal garantiza tu seguridad
-
-但是这个让你安全上加了安全
-Pero esto es más seguro que cualquier cosa
-
-这是我心里最开心的
-Y es lo que me contenta más
-
-他们赢, 第二个就是绝对灭共
-Si ellos ganan, el segundo es eliminar al Partido Comunista
-
-哪个不是咱战友, 你告诉我哪个不是
-Dime quien no es compañero luchador
-
-导致这个赢的最重要的结果是什么
-¿Cuál es el resultado más importante que conlleva esta victoria?
-
-千万别忘了
-Nunca olviden
-
-所有这些州的现场的所有人, 都是班农战斗士的嘉宾
-Todas las personas que están presentes de estas provincias son todos invitados de los combatientes de Bannon
-
+台湾政府通过总统府发言人张惇涵表示，台湾政府注意到美方于会议中重申对台湾的承诺，并强调台湾立场清楚，反对改变两岸现状、破坏台海和平稳定的片面行为。台湾及印太区域稳定，已经成为国际焦点，台湾政府将会与理念相近的国家持续合作。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/港台前線-（TW）-5.jpg)
 * * *
 
-日期：11/11/2021
-原视频标题：乌托邦的中共和实力派的美国不可比拟
-El utópico PCCh y el poderoso Estados Unidos son incomparables
-原视频日期：11/05/2021
-原视频网址：[https://twitter.com/se1y7cblljselva/status/1456598738625916929?s=24](https://twitter.com/se1y7cblljselva/status/1456598738625916929?s=24)
-任务编号：KC251（2785）
-视频时间段：0:00-1:48
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-
+來源｜[自由時報](https://news.ltn.com.tw/news/politics/breakingnews/3738474)、[BBC](https://www.bbc.com/zhongwen/trad/world-59301487)、[udn](https://global.udn.com/global_vision/story/8662/5894278)
 
  
 

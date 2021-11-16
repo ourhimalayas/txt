@@ -2,27 +2,33 @@
 ---
 
 
-## 维州自由党议员芬恩呼吁抵制州政府强推的疫情法案
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1669530/)
+## 有声|恒大将引爆中共房地产业雪崩
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1669568/)
 
-撰稿：苏加诺
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
 
-视频：苏加诺
 
-澳大利亚当地时间星期六（2021年11月13日），上万名维州人民走上大街，在议会前集体抗议维州政府以及维州州长Daniel Andrew强推疫情法案。
+11月14日，郭文贵先生在大直播中透露，两周之内，恒大就会宣布破产。恒大已经成立了清算委员会，或者债务处理委员会，低调启动企业破产程序。随着恒大的破产，融创、富力、合生创展、碧桂园等中共房地产企业也会纷纷倒闭。中共房地业一定会雪崩式的崩塌。
 
-本周一，维州自由党议员芬恩（Bernie Finn）在议会上大声呼吁制止维州政府通过该项法案。 芬恩认为，维州州长之前的所作所为，以及现在强推的疫情法案已经近乎疯狂。
+郭先生着重指出，中共房地产行业的崩溃式破产，是由习近平一手操纵的，目的是让美国的7万亿美元投资，欧洲的十几万亿，通通血本无归，搞垮美国经济和世界经济，为下一步攻打台湾创造机会。
 
-芬恩参加了周六的集体抗议游行，他认为，本次抗议的人数是自1992年反对政府游行以来最多的一次。很多人民之前并不关注政府制定的政策，甚至对政治毫无兴趣。但是由于长时间的封锁和维州政府的各项疫情措施，让很多当地民众清醒地认识到此项法案通过后会对自身造成的影响。
+最后，郭先生充满信心的表示，中共的这些手段，只会促使各国更快承认新中国联邦，加速中共的灭亡，加速喜币和G系列的升值。对新中国联邦是绝对利好的消息。
 
-本法案已于本周一紧急提交国会进行修改，计划将于本周晚些完成修改并且在议会通过。
+文字版原文：[恒大将引爆中共房地产业雪崩](https://gnews.org/zh-hans/1666537/)
 
-（文章内容仅代表作者观点，与Gnews平台无关）
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-新闻参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-[大纪元](https://www.epochtimes.com/gb/21/11/14/n13374478.htm)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

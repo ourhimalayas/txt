@@ -15,125 +15,125 @@
 
 ---
 
-### [拜登和中共党魁习近平如期举行视频会晤](/content/gnews/1/README.md)
+### [拜习会谈：中共警告美国不要在台湾“玩火”](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [【信仰之声】我理解的“万佛万神”](/content/gnews/2/README.md)
+ ` 纽约香草山MOS03`
+
+### [文·贵天成——文贵先生谈“疫苗”（七）](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [魁省法官拒绝对医护人员的疫苗护照发出禁令](/content/gnews/4/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [奥地利爆发“反疫苗封锁”示威大游行](/content/gnews/2/README.md)
+### [拜登和中共党魁习近平如期举行视频会晤](/content/gnews/5/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [拜登即将宣布外交抵制北京冬奥会](/content/gnews/3/README.md)
+### [奥地利爆发“反疫苗封锁”示威大游行](/content/gnews/6/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [拜登即将宣布外交抵制北京冬奥会](/content/gnews/7/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [喜币的意义](/content/gnews/4/README.md)
+### [喜币的意义](/content/gnews/8/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [喜联储已然成为了全人类上最有希望成长最快的一个万亿帝国](/content/gnews/5/README.md)
+### [喜联储已然成为了全人类上最有希望成长最快的一个万亿帝国](/content/gnews/9/README.md)
  ` MG 澳喜农场多语组`
 
-### [请愿书:卡尔加里没有气候紧急情况](/content/gnews/6/README.md)
+### [请愿书:卡尔加里没有气候紧急情况](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [中共以通过《历史决议》向习致敬](/content/gnews/7/README.md)
+### [中共以通过《历史决议》向习致敬](/content/gnews/11/README.md)
  ` HimalayaRussia`
 
-### [中国持不同政见者警告美国“已经专制”](/content/gnews/8/README.md)
+### [中国持不同政见者警告美国“已经专制”](/content/gnews/12/README.md)
  ` MG FARM`
 
-### [2021/11/16 大卫作战室直播精要](/content/gnews/9/README.md)
+### [2021/11/16 大卫作战室直播精要](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [17岁少女因疫苗导致严重副作用仍然无法获得医疗豁免](/content/gnews/10/README.md)
+### [17岁少女因疫苗导致严重副作用仍然无法获得医疗豁免](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [白宫再发布拜习虚拟会晤解读稿](/content/gnews/11/README.md)
+### [白宫再发布拜习虚拟会晤解读稿](/content/gnews/15/README.md)
  ` HimalayaRussia`
 
-### [总理斯科特·莫里森（Scott Morrison）警告中共国他不会 “出卖 ”澳大利亚](/content/gnews/12/README.md)
+### [总理斯科特·莫里森（Scott Morrison）警告中共国他不会 “出卖 ”澳大利亚](/content/gnews/16/README.md)
  ` 走进澳洲`
 
-### [白宫发布拜习虚拟会晤新闻稿](/content/gnews/13/README.md)
+### [白宫发布拜习虚拟会晤新闻稿](/content/gnews/17/README.md)
  ` HimalayaRussia`
 
-### [中国对拜登：帮助台湾是“玩火”](/content/gnews/14/README.md)
+### [中国对拜登：帮助台湾是“玩火”](/content/gnews/18/README.md)
  ` MG FARM`
 
-### [疫苗研究人员告诉小肯尼迪：澳大利亚人正活在“恐怖”中](/content/gnews/15/README.md)
+### [疫苗研究人员告诉小肯尼迪：澳大利亚人正活在“恐怖”中](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日本成唯一将通胀率维持在1%的国家](/content/gnews/16/README.md)
+### [日本成唯一将通胀率维持在1%的国家](/content/gnews/20/README.md)
  ` HimalayaRussia`
 
-### [俄州法案将允许员工就强制疫苗起诉 赔偿超百万美元](/content/gnews/17/README.md)
+### [俄州法案将允许员工就强制疫苗起诉 赔偿超百万美元](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [焦点：俄罗斯或趁欧洲疫情加重入侵乌克兰](/content/gnews/18/README.md)
+### [焦点：俄罗斯或趁欧洲疫情加重入侵乌克兰](/content/gnews/22/README.md)
  ` 丁过`
 
-### [价格为何上涨：供应链瓶颈](/content/gnews/19/README.md)
+### [价格为何上涨：供应链瓶颈](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [将习近平定义为新毛泽东的四点](/content/gnews/20/README.md)
+### [将习近平定义为新毛泽东的四点](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西班牙巴塞罗那喜悦农场-新闻播报内容推荐](/content/gnews/21/README.md)
+### [西班牙巴塞罗那喜悦农场-新闻播报内容推荐](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [疫苗灾难明年5月份开始](/content/gnews/22/README.md)
+### [疫苗灾难明年5月份开始](/content/gnews/26/README.md)
  ` 纽约香草山MOS03`
 
-### [西班牙巴塞罗那喜悦农场 —— GNEWS新闻播报内容推荐 （国内奇闻逸事）](/content/gnews/23/README.md)
+### [西班牙巴塞罗那喜悦农场 —— GNEWS新闻播报内容推荐 （国内奇闻逸事）](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [GTV新闻访谈简报|2021年11月16日早](/content/gnews/24/README.md)
+### [GTV新闻访谈简报|2021年11月16日早](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [西媒头条 — 第109期](/content/gnews/25/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [三孩子结伴跳楼](/content/gnews/26/README.md)
+### [三孩子结伴跳楼](/content/gnews/29/README.md)
  ` 纽约香草山MOS03`
 
-### [班农先生：我永远不会退缩](/content/gnews/27/README.md)
+### [班农先生：我永远不会退缩](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [班农继续呼吁消灭中共](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [有声|中共将在美国西部释放新变种病毒](/content/gnews/29/README.md)
+### [有声|中共将在美国西部释放新变种病毒](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [有声|疫苗无效 欧洲将面临第四波疫情的冲击](/content/gnews/30/README.md)
+### [有声|疫苗无效 欧洲将面临第四波疫情的冲击](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [在激烈的法庭演讲中班农告诉拜登他选错了目标](/content/gnews/31/README.md)
+### [在激烈的法庭演讲中班农告诉拜登他选错了目标](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|联合国气候变化协议达成 煤炭减排承诺缩水](/content/gnews/32/README.md)
+### [有声|联合国气候变化协议达成 煤炭减排承诺缩水](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [有声|恒大将引爆中共房地产业雪崩](/content/gnews/33/README.md)
+### [有声|恒大将引爆中共房地产业雪崩](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [京西宾馆90%的人想拥有喜币](/content/gnews/34/README.md)
+### [京西宾馆90%的人想拥有喜币](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [维州自由党议员芬恩呼吁抵制州政府强推的疫情法案](/content/gnews/35/README.md)
+### [维州自由党议员芬恩呼吁抵制州政府强推的疫情法案](/content/gnews/37/README.md)
  ` 澳喜特战旅Gnews`
 
-### [拜登政府为什么求着习近平开这次视频会议？](/content/gnews/36/README.md)
+### [拜登政府为什么求着习近平开这次视频会议？](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
-### [来这世上学一学](/content/gnews/37/README.md)
+### [来这世上学一学](/content/gnews/39/README.md)
  ` 骄子`
 
-### [G系列拥有者未来永远VVIP](/content/gnews/38/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [台湾前线｜美共元首峰会：美反对任何破坏台海和平的行为](/content/gnews/39/README.md)
+### [台湾前线｜美共元首峰会：美反对任何破坏台海和平的行为](/content/gnews/40/README.md)
  ` G&#124;News TAIWAN`
-
-### [乌托邦的中共和实力派的美国不可比拟](/content/gnews/40/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [“踩雷”恒大后，中共国苏宁也要“爆雷”](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
