@@ -2,34 +2,30 @@
 ---
 
 
-## “新驭民五术”——中国房地产：弱民、疲民
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669701/)
+## 缅甸被剥夺权力的总理昂山素季将受审
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1669711/)
 
-作者：新西兰伊甸农场 亚伦
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月15日，郭先生在盖特视频中指出：“中国每年新造房屋实际真实数字比公布的高一倍，达到每年两千万套。大量新增房屋导致房价无法坚挺下去，加上如今征收的房地产税。这就好比大秦朝让人民去北边修长城，就是为了弱民、疲民，不让民众有时间思考，而反对当权者。”
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-16-下午11.15.51.png)
-秦《商君书》提出驭民五术，即壹民，弱民，疲民，辱民，贫民；五者若不灵，杀之。
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-郭先生指出，秦朝修长城是统治的手段，如今没有土地所有权的房地产也是统治的手段：就是要民众疲于奔命，努力工作还房贷，缴只有使用权的房产税。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/UN-fordern-mehr-Druck-auf-Junta-in-Myanmar-jpg.jpg)
 
-郭先生强调，房地产是金融信心的信号。房地产的崩溃伤害最大的是中共国的金融系统。
 
-参考链接：[中国新股上市接连跌破发行价前所未有，多国与中国取消货币互换业务](https://gnews.org/zh-hans/1667813/)
+资料来源：世界报
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+缅甸军方在 2 月的政变中夺取了政权。从那以后，被剥夺权力的昂山素季总理一直被软禁。她被指控在去年的议会选举中存在欺诈行为。昂山素季现在将受审。
 
-总编：文徬
-编辑：木白
-校正/发稿：呼吸的雾霾（文小呼吸）
+缅甸军政府希望对被剥夺权力的事实上的政府首脑昂山素季在去年的议会选举中涉嫌选举舞弊进行审判。官方报纸《全球新光报》周二宣布，昂山素季将因“选举舞弊和不法行为”被起诉。该报没有提供有关可能开始该过程的任何信息。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+缅甸军方在 2 月的政变中夺取了政权。在此之前一直在任的事实上的总理昂山素季一直被软禁，并受到一系列刑事指控。
+
+军方以 2020 年议会选举中涉嫌选举舞弊为由，为其接管权力辩护，昂山素季的全国民主联盟（NLD）党赢得了投票，但是选举结果于 7 月被废止。
+
+2 月的军事政变结束了缅甸短暂的民主化阶段。 全国各地都发生了反对军政府的抗议活动，一千多名平民在镇压中丧生。
+
+原文链接：[新闻来源：德国世界报网页版](https://www.welt.de/politik/ausland/article235079366/Myanmars-entmachteter-Regierungschefin-Suu-Kyi-soll-der-Prozess-gemacht-werden.html)
+
+责任编辑、发布： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

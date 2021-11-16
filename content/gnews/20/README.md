@@ -2,10 +2,9 @@
 ---
 
 
-## 福奇承认接种疫苗的人处于极大的危险中
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669617/)
+## 17岁天才滑雪选手因中共病毒疫苗副作用遭“淘汰”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669628/)
 
-信息采集：星星
 作者：英国喜庄园 – I770775
 
 
@@ -14,18 +13,18 @@
 
 
 
-11月12日，福奇在参加某播客讨论中共病毒现状时，首次承认疫苗并没有像广告宣传得那样有效，接种疫苗的人反而由于免疫力的下降处于极大的危险之中。
+秘密翻译组11月12日消息，挪威著名的越野滑雪天才选手丹尼尔，因接种中共病毒疫苗出现严重反应被 “淘汰”，暂停其赛季。
 
-福奇说，在首次接种疫苗几个月后，越来越多的人获得了突破性感染。他们不仅对感染，而且对住院和某种程度死亡的免疫力都在下降。值得关注的是，这种情况不仅发生在老年组，而且已经涉及所有年龄组。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.4.jpg)
-不过，面对这些事实，福奇并未表示应该放弃疫苗，反而变本加厉地号召大家继续注射疫苗加强针，称加强针是“绝对必要的”。
+丹尼尔今年只有 17 岁，曾取得两届赛事比赛的优秀成绩。几个月前，他接种第一剂疫苗后身体出现了血液样本的异常，不得不暂停了他的赛季。
 
+丹尼尔说，不确定什么时候能够再次参加最高水平的比赛，因为他的身体目前只能做一些低强度的康复训练。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-90.jpg)
 参考链接：
-[Dr. Fauci Admits Vaccines Did Not Work as Advertised and that Vaccinated Are in Great Danger Today (VIDEO)](https://www.thegatewaypundit.com/2021/11/dr-fauci-admits-vaccines-not-work-advertised-vaccinated-great-danger-today/)
+[挪威著名越野滑雪天才因接种中共病毒疫苗被 “淘汰’’](https://gettr.com/post/pgyypre4e8)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-总编/编辑：飞虹
+总编/编辑：木白
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
@@ -43,8 +42,6 @@
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
 
 
 
