@@ -2,165 +2,68 @@
 ---
 
 
-## 乌托邦的中共和实力派的美国不可比拟
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1669053/)
+## 震撼民调：COVID 疫苗授权令美国家庭分崩离析
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1669118/)
 
-[https://gtv.org/video/id=619331ac182702508105c1f6](https://gtv.org/video/id=619331ac182702508105c1f6)
+**编译：JennyBall**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip07-1.png)图片来源：westernjournal.com
+令人沮丧和惊人的新民意调查显示，许多美国人，不仅禁止未接种疫苗的家庭成员参加他们的假期聚会，而且还完全切断了他们的聚会。
 
-跟美国人签一份一千年的和平协议
-Firmar un acuerdo de paz por mil años con los estadounidenses
+这是因为对 COVID-19 疫苗的不同看法，使我们国家的文化和政治剧烈分歧达到了高潮。
 
-对中国是最好的
-Es bien para China
+一个调查于 11 月 2 日对 2,000 名美国人进行了调查，其中 63% 的人表示，他们不希望未接种疫苗的家人一起过节，而 58% 的人表示，他们已与拒绝接种疫苗的亲属断绝关系 。
 
-你想都别想跟人家打架
-No pienses en pelear con ellos
+不到一半的未接种疫苗的受访者（即 49%）表示，他们已停止了与不了解为什么无法接种疫苗的家人沟通。
 
-它不是钱的事
-Esto no es un asunto de dinero
+与此同时，七成的受访者表示，他们觉得在完全接种疫苗之前，无法探望家人。
 
-不是武器的事
-Arma
+有趣的是，虽然超过一半，即 53% 的人表示疫苗的政治化在他们自己的家庭中引起了戏剧化变化，但高达 79% 的人表示，政治不应该在科学或医学中发挥作用。
 
-不是科技的事
-O tecnología
+好吧，我敢肯定，我不必告诉你，那些公开鼓励美国人羞辱未接种疫苗的人的政治倾向。
 
-它是一个历史的堆积
-Es la acumulación histórica
+CNN 的唐·莱蒙（Don Lemon） 在他的节目发出了声嘶力竭的呼吁，告诉观众，他们应该避开“愚蠢”的未接种疫苗的人，并补充说，他们应该被抛在后面，因为他们“对更大的利益有害”。**您可能非常熟悉他最喜欢哪个政党的政策**，**以及他经常诽谤哪个政党是种族主义者、偏执狂和仇视同性恋者。**
 
-就像新中国联邦, 七哥要没有30年在共产党内的堆积
-Así como el Nuevo Estado Federal de China, si no estuve acumulando durante 30 años en el Partido Comunista
+MSNBC 的乔伊·里德 (Joy Reid) 宣布存在“两个美国”——接种疫苗的和未接种疫苗的——她可能是最有部落党派的专家之一，这对于 2021 年的有线新闻来说真是非常重要的。
 
-今天你说这人, 我张嘴就来
-Hoy yo puedo decir cualquier cosa de esta persona
+我们知道谁在将疫苗政治化，谁在保护未接种疫苗的人做出个人、私人医疗决定的权利，这完全是他们自己、他们的医生之间的事情。
 
-我张嘴就能编
-O inventar de la nada
+这不应该是一个政治问题——事实上，大多数主张隐私和医疗自由的政客，自己都接种了疫苗。
 
-我没有这些年的经营
-Si no he estado administrando estos años
+但是**很难不觉得这仅仅是疫苗，这是关于对美国家庭的多方面攻击，而美国家庭是强大的、道德的、美国公民生活的支柱。**
 
-我就能成为结构师, 搞出一个喜联储
-Puedo convertirme en un ingeniero estructural y crear una Reserva Federal de Himalaya
+通过家庭，通过我们的共同遗产，家庭是注入我们的生活的价值观与意义和目的的手段。
 
-我能搞出G-TV, 盖特
-El G-TV, GETTR
+美国家庭的力量，在过去几十年的后现代文化的动荡之后，已经受到了重大打击。然后，疫情来了，在我们的社区中肆虐，最初将我们所有人隔离在远程视频聊天屏幕之后，让老年人被困、被遗弃和孤独地抛弃在疗养院，与亲人、他们珍视的遗产断绝关系。
 
-我今天没有四年爆料
-Si no he estado en Movimiento de denunciantes por cuatro años
+现在，所有家庭是否允许自己因对疫苗的不同看法而四分五裂？
 
-我今天给你们讲的, 你们就信, 不可能
-Hoy lo que les digo, ¿ustedes me creerán? Imposible
+这简直令人难以理解。
 
-它是一个时间的累积
-Esto es algo que necesita ir acumulando a través del tiempo
+极权左派长期以来一直在作梗将我们国家的传统价值观结合在一起，这当然包括家庭。现在，他们攻击性的疫苗接种活动，已经让人对其如此噱头厌恶，他们甚至不允许对疫苗意见分歧的亲人来家过节。
 
-多方面累积的结果
-Es el resultado acumulado de distintas partes
+南北战争让75万美国士兵的鲜血洒在南方战场，被撕裂的家庭，以及被撕裂的国家，但是却能够和解，共同努力治愈被可怕的冲突撕裂的伟大国家。但是你告诉我，到 2021 年，美国人拒绝与未接种疫苗的家人一起吃火鸡一起踢足球？
 
-这叫物质的设计
-Esto se llama diseño de cosas materiales
+这不是我们应该成为的人。我们不能让那些试图分裂和撕裂我们身份、家庭关系、集体遗产和联系的人得逞。
 
-物是行动产生的结果
-Las cosas son los resultados producidos por las acciones
+如果我们是真正的珍视自由，社团和兄弟之爱的国家，我们需要抛开分歧，我们需要搁置对流行病的分歧和恐惧，与那些把我们联系在一起血浓与水的人，在壁炉前分享我们的心声。
 
-质是什么
-¿Qué es el material?
+**如果不是现在，那我们什么时候可以恢复过去的一年半已经失去了的东西？**
 
-是一个事情的基本逻辑
-Es la lógica fundamental de un asunto
+我们的文化中正在形成一个两级社会——而在一年中本应是神圣而欢乐的时刻，选择将亲人拒之门外的美国人，更加加固了这种分化。
 
-合在一起叫物质
-Unido se llama cosas materiales
+这比政治要糟糕得多，这是对我们国家曾经珍视的一切事物的战争。
 
-我们就在物质的设计里
-Nosotros estamos dentro del diseño de las cosas materiales
+**点评： 在2017年，文贵先生已经了告诉美国和世界中共的3F美国阴谋：搞乱美国，搞弱美国，搞垮美国。美国的今天不正是中共阴谋的结果吗？**
 
-共产党是什么
-¿Qué es el Partido Comunista?
-
-叫乌托邦
-Se llama Utopía
-
-乌托邦就是幻想主义者, 谎言主义者
-Las utopías son fantásticas y mentirosas
-
-你怎么能听他的呢
-Cómo puedes escuchar de ella
-
-胡扯的
-Son puras pendejadas
-
-所以说(如果)打3分钟就给它灭了
-Por eso si golpea por tres minutos y lo terminas de destruir
-
-所以今天的选举结果是什么
-¿Cuál es el resultado de la elección de hoy?
-
-所有这些地方, 你敢打台湾
-Todos estos lugares, te atreves a atacar a Taiwán
-
-老子就修理你
-Te pegaré
-
-真的, 政清, 爱米粒, 大牛, 巴黎
-Es verdad, Zhengqing, Emily, Daniu, Bali
-
-你们应该裸奔了
-Deberían estar corriendo desnudo
-
-好好认真的裸奔
-En serio, corran desnudo
-
-这事值得裸奔
-Este asunto vale la pena correr desnudo
-
-绝对对你们是安全的
-Es absolutamente seguro para ustedes
-
-新中国联邦不可能, 绝对保证你安全
-El Nuevo Estado Federal garantiza tu seguridad
-
-但是这个让你安全上加了安全
-Pero esto es más seguro que cualquier cosa
-
-这是我心里最开心的
-Y es lo que me contenta más
-
-他们赢, 第二个就是绝对灭共
-Si ellos ganan, el segundo es eliminar al Partido Comunista
-
-哪个不是咱战友, 你告诉我哪个不是
-Dime quien no es compañero luchador
-
-导致这个赢的最重要的结果是什么
-¿Cuál es el resultado más importante que conlleva esta victoria?
-
-千万别忘了
-Nunca olviden
-
-所有这些州的现场的所有人, 都是班农战斗士的嘉宾
-Todas las personas que están presentes de estas provincias son todos invitados de los combatientes de Bannon
+**新闻来源**：[westernjournal.com][Shock Polls: COVID Vaccines, Mandates Are Tearing American Families Apart](https://www.westernjournal.com/shock-polls-covid-vaccines-mandates-tearing-american-families-apart/?utm_source=Email&amp;utm_medium=conservative-brief-CT&amp;utm_campaign=dailyam&amp;utm_content=conservative-tribune&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
 
 * * *
 
-日期：11/11/2021
-原视频标题：乌托邦的中共和实力派的美国不可比拟
-El utópico PCCh y el poderoso Estados Unidos son incomparables
-原视频日期：11/05/2021
-原视频网址：[https://twitter.com/se1y7cblljselva/status/1456598738625916929?s=24](https://twitter.com/se1y7cblljselva/status/1456598738625916929?s=24)
-任务编号：KC251（2785）
-视频时间段：0:00-1:48
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+***审核：文乐
+校对：阿伯塔
+发布: 信心满满***
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
 
 
 

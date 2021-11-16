@@ -2,20 +2,23 @@
 ---
 
 
-## 有声|全球最大财经新闻社——彭博社为喜币“造势”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1669356/)
+## 有声|国会利用班农事件转移拜登外交政策的失败
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1669553/)
 
-配音：香草山媒体部 – Gtv abeilles（蜜蜂）
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月14日，针对班农先生被指控藐视国会事件，前海军上将福林将军在接受福克斯塔克采访时指出，这是一出政治闹剧，旨在转移人们的关注焦点。
 
-秘翻组消息：全球最大的财经新闻社《彭博社》在11月12日，为上市11天的喜币做了全方面、大篇幅的报道，为扩大喜币在世界范围的影响力“造势”助攻。 报道称，喜币在不到两周的时间里，已经获得了270亿美元的估值，其价格从发行以来已经增长了270倍。 报道将“HCoin to the Moon”这首歌描述成一个集结号，称其是加密货币交易者的指导性希望，持有喜币即意味着价格的巨大飙升。 报道还援引喜交所首席执行官杰西·布朗先生的话，称喜交所已经注册了2万多个账户，郭文贵先生“正在利用他的平台，让人们参与加密货币和财务自由”。 尽管彭博社的报道语气怪异，想暗示喜币可能是骗局，但它并不能抹杀喜币的成功上市和巨大的升值空间，反而会让更多清醒的人因此备受鼓舞而加入喜币的购买队伍。
+福林将军说，目前有关调查 1 月 6 日国会暴动的新闻，已取代了有关拜登政府外交政策失败的消息，例如阿富汗撤军和南部边境非法外国人激增等。
 
+弗林将军强调，尽管有非常确凿的中共病毒证据，以及其背后的阴谋等一系列与之相关的事实，但是中共勾兑美国内部势力，通过操纵大媒体传播传票之类的事情，以确保他们每天都能转移美国人的视线，使美国民众无暇顾及对中共病毒和疫苗真相的追寻。
 
-原文链接：[全球最大财经新闻社——彭博社为喜币“造势“](https://gnews.org/zh-hans/1663879/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+文字版原文：[国会利用班农事件转移拜登外交政策的失败](https://gnews.org/zh-hans/1666469/)
 
 音频处理：喜山必胜Maverick
-发稿：Daxia
+发稿：呼吸的雾霾（文小呼吸）
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -23,7 +26,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
