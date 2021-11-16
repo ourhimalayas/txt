@@ -2,51 +2,34 @@
 ---
 
 
-## 福奇承认接种疫苗的人处于极大的危险中
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1669617/)
+## 在激烈的法庭演讲中班农告诉拜登他选错了目标
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1669623/)
 
-信息采集：星星
-作者：英国喜庄园 – I770775
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-73.png)视频截图
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-11月12日，福奇在参加某播客讨论中共病毒现状时，首次承认疫苗并没有像广告宣传得那样有效，接种疫苗的人反而由于免疫力的下降处于极大的危险之中。
-
-福奇说，在首次接种疫苗几个月后，越来越多的人获得了突破性感染。他们不仅对感染，而且对住院和某种程度死亡的免疫力都在下降。值得关注的是，这种情况不仅发生在老年组，而且已经涉及所有年龄组。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.4.jpg)
-不过，面对这些事实，福奇并未表示应该放弃疫苗，反而变本加厉地号召大家继续注射疫苗加强针，称加强针是“绝对必要的”。
-
-参考链接：
-[Dr. Fauci Admits Vaccines Did Not Work as Advertised and that Vaccinated Are in Great Danger Today (VIDEO)](https://www.thegatewaypundit.com/2021/11/dr-fauci-admits-vaccines-not-work-advertised-vaccinated-great-danger-today/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+华盛顿特区——今天下午，因两项违宪的蔑视国会指控有关的罪名被起诉后，战斗的斯蒂芬·K·班农（ Stephen K. Bannon ）从华盛顿特区联邦法院走出，承诺将揭露乔·拜登（ Joe Biden ）、梅里克·加兰（ Merrick Garland ）和南希·佩洛西（ Nancy Pelosi ）的“来自地狱的恶行”  
+ 现年 67 岁的班农在他第一次华盛顿特区法院出庭后几个小时走出法院，并用亨特拜登的“来自地狱的硬盘”的幽灵来表达他对针对他的案件的反对态度。
+ “我现在告诉你，这对梅里克·加兰、南希·佩洛西和乔·拜登来说是地狱般的恶
+ “乔·拜登从海军陆战队一号下来时，在白宫草坪上，他命令梅里克·加兰起诉我” 班农声称，暗指美国从未见过的一起政治驱动的起诉。
+ 他补充道：“我们将继续进攻，我们厌倦了防守。”
+ 班农律师道格拉斯·舍恩（ Douglas Schoen ）在法院外对记者讲话时，描述了他在美国公民自由联盟 (ACLU) 的漫长职业生涯并坚称：“这是闻所未闻的，强迫一个人放弃行使行政豁免特权，我代表美国公民自由联盟 (ACLU) 20 多年，在这个问题上美国公民自由联盟应该站在我们这一边。”
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+原文链接：
+
+
+
+> [MISDEMEANOR FROM HELL: Defiant Bannon Tells Biden He Picked The Wrong Target in Fiery Courthouse Speech.](https://thenationalpulse.com/news/misdemeanor-from-hell-defiant-bannon-tells-biden-he-picked-the-wrong-target-in-fiery-courthouse-speech/)
 
 
 
 
+
+
+
+翻译：Nick｜校对：JS709｜编辑& 发布：闪电训练
 
  
 

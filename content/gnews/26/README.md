@@ -2,35 +2,33 @@
 ---
 
 
-## 在激烈的法庭演讲中班农告诉拜登他选错了目标
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1669623/)
+## 有声|疫苗无效 欧洲将面临第四波疫情的冲击
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1669624/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-73.png)视频截图
-
-
-华盛顿特区——今天下午，因两项违宪的蔑视国会指控有关的罪名被起诉后，战斗的斯蒂芬·K·班农（ Stephen K. Bannon ）从华盛顿特区联邦法院走出，承诺将揭露乔·拜登（ Joe Biden ）、梅里克·加兰（ Merrick Garland ）和南希·佩洛西（ Nancy Pelosi ）的“来自地狱的恶行”  
- 现年 67 岁的班农在他第一次华盛顿特区法院出庭后几个小时走出法院，并用亨特拜登的“来自地狱的硬盘”的幽灵来表达他对针对他的案件的反对态度。
- “我现在告诉你，这对梅里克·加兰、南希·佩洛西和乔·拜登来说是地狱般的恶
- “乔·拜登从海军陆战队一号下来时，在白宫草坪上，他命令梅里克·加兰起诉我” 班农声称，暗指美国从未见过的一起政治驱动的起诉。
- 他补充道：“我们将继续进攻，我们厌倦了防守。”
- 班农律师道格拉斯·舍恩（ Douglas Schoen ）在法院外对记者讲话时，描述了他在美国公民自由联盟 (ACLU) 的漫长职业生涯并坚称：“这是闻所未闻的，强迫一个人放弃行使行政豁免特权，我代表美国公民自由联盟 (ACLU) 20 多年，在这个问题上美国公民自由联盟应该站在我们这一边。”
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
 
 
+11月13日，欧洲疾病预防管制中心发布的中共病毒评估数据显示，欧洲正面临第四波飙升的中共病毒疫情。
 
-原文链接：
+截至11月11日为止的过去2周，欧盟成员国及冰岛、挪威等欧洲经济区通报了约209万确诊案例，整体疫情呈现确诊病例迅速增加、死亡率缓慢增加的态势。
 
+欧洲疾病预防管制中心认为，在未来的两周，欧洲地区的新增确诊、死亡以及住院人数都将继续增加。并且警示，比利时、荷兰、捷克及希腊等10个国家需要极度关注疫情的蔓延。
 
+文字版原文：[疫苗无效 欧洲将面临第四波疫情的冲击](https://gnews.org/zh-hans/1665423/)
 
-> [MISDEMEANOR FROM HELL: Defiant Bannon Tells Biden He Picked The Wrong Target in Fiery Courthouse Speech.](https://thenationalpulse.com/news/misdemeanor-from-hell-defiant-bannon-tells-biden-he-picked-the-wrong-target-in-fiery-courthouse-speech/)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-
-
-
-
-
-翻译：Nick｜校对：JS709｜编辑& 发布：闪电训练
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
