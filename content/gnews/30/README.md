@@ -2,76 +2,80 @@
 ---
 
 
-## 众议员马特·盖茨：认清拜登政府的本质，班农是‘美国优先&#8217;火种的守护者
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1668129/)
+## 【Michael.Tonny专栏】部分中共黑帮大小盗国贼坚持以黑治国坚决独裁讲话原文
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1668175/)
 
-众议员马特·盖茨： 拜登政权现在正将目标对准任何他们担心可能会将他们赶下台的实体，他们正在利用刑事程序来实现这一目标。 【视频中，马特·盖茨称支持史蒂夫·班农，提醒大家认清拜登政府的本质，夸班农是‘美国优先’火种的守护者】
+加拿大温哥华扬帆农场  Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/22-100.jpg)
+宪政民主、三权分立、司法独立是现代国家治理的一种重要政治原则和政治制度，这种制度设计是透过互相制衡，达到避免独裁、政府滥用权力的目的。
 
+宪政是民主体制的基础，是依法治国的重要标志；立法、行政、司法三种国家权力分别由三种不同职能的国家机关行使、互相制约和平衡；司法独立指一个国家的司法系统“在裁判上独立”、“在制度上独立”，是重要的法治基本精神和原则。
 
+然而，中共 “坚持以黑治国、坚决独裁“，坚决反对、抵制“宪政民主”、三权分立、司法独立、多党竞选、两院制，与人类发展背道而驰，开历史倒车。
 
-> The Biden Regime is now targeting any entity that they fear might dislodge them from power, and they're using criminal process to do it. [pic.twitter.com/QetdtXCeeM](https://t.co/QetdtXCeeM)
-> — Rep. Matt Gaetz (@RepMattGaetz) [November 16, 2021](https://twitter.com/RepMattGaetz/status/1460433321024962560?ref_src=twsrc%5Etfw)
+CCP即将被消灭，中南坑老杂毛、中共盗国贼们很快被公审。
 
+本文列举当前CCP黑帮老大、中共全国人民代表大会、最高人民法院、司法部、CCP中央全面依法治国委员会办公室、CCP中央政法委、教育部等大小盗国贼近年来发表过的部分“坚持以黑治国、坚决独裁“的证据原文，供公审时参考。
 
+2021年2月28日，中共国CCP中央委员会机关喉舌《[求是网](http://qstheory.cn/)》刊登习近平讲话原文，《[坚定不移走中国特色社会主义法治道路 为全面建设社会主义现代化国家提供有力法治保障 作者：习近平](http://www.qstheory.cn/dukan/qs/2021-02/28/c_1127146541.htm)》，该文同时刊登在2021年 3月1日出版的中共国CCP中央委员会机关刊物《求是》2021年第5期上。
 
-比尔·格茨: [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 最高领导人在今晚的虚拟峰会开始时称拜登总统为“我的老朋友”。
+习近平在“第三，坚持中国特色社会主义法治道路“中特别强调，”… …有一点要明确，我们推进全面依法治国，决不照搬别国模式和做法，决不走西方所谓‘宪政’、‘三权鼎立’、‘司法独立’的路子… …“。
 
+同样来自求是网，2019年2月15日发表的文章《[加强党对全面依法治国的领导 习近平](http://www.qstheory.cn/dukan/qs/2019-02/15/c_1124114454.htm)》中，2018年8月24日，习近平在中央全面依法治国委员会第一次会议上的讲话的一部分，习近平讲话原文，“三是坚持中国特色社会主义法治道路“中，”… …走适合自己的法治道路，决不能照搬别国模式和做法，决不能走西方“宪政”、“三权鼎立”、“司法独立”的路子… …“。该文同时刊登在《求是》2019年第3期上。
 
+来自[中华人民国中央人民政府网站](http://www.gov.cn/)，2019年2月15日，在教育部印发的《[教育部办公厅关于印发《普通高等学校宪法学教学重点指南》的通知教高厅函〔2021〕33号](http://www.gov.cn/zhengce/zhengceku/2021-11/14/content_5650832.htm)》，《普通高等学校宪法学教学重点指南》“二、基本原则4.注重分析借鉴”中，“… …深入剖析和批判西方‘宪政’‘多党制’‘三权鼎立’‘司法独立’等错误思潮、错误观点… …“。
 
-> Chinese supreme leader calls President Biden “my old friend” at start of virtual summit tonight
-> — Bill Gertz (@BillGertz) [November 16, 2021](https://twitter.com/BillGertz/status/1460421735421923334?ref_src=twsrc%5Etfw)
+在2021年10月29日中共《[中国全国人民代表大会网站](http://www.npc.gov.cn/)》发表的《[栗战书 在第十三届全国人大常委会第三十一次会议上的讲话](http://www.npc.gov.cn/npc/c30834/202110/417dc2988bc545ddba6a8c6f45e71efa.shtml)》原文中，10月23日，中共国全国人大委员长栗战书讲话第十段“第二，坚定不移走中国特色社会主义政治发展道路，毫不动摇坚持、与时俱进完善人民代表大会制度“的最后一段，”我们…..坚决反对、抵制和防止西方所谓“宪政”、多党竞选、三权鼎立、两院制、司法独立的侵蚀影响“。
 
+栗战书目前担任CCP中央政治局常委、全国人大常委会党组书记、全国人大常委会委员长、中央国家安全委员会副主席、中央全面依法治国委员会副主任等职。
 
+同样是中共《[中国全国人民代表大会网站](http://www.npc.gov.cn/)》，2021年9月27日《[王晨出席习近平法治思想论坛并发表主旨演讲 坚定不移走中国特色社会主义法治道路 为全面建设社会主义现代化国家夯实法治基础](http://www.npc.gov.cn/npc/c30834/202109/3a15aa594b46499e875f441d5ae9a84f.shtml)》，中共中央政治局委员、中共国法学会会长王晨在9月26日在京出席习近平法治思想论坛并发表主旨演讲。“王晨指出… …反对和抵制西方所谓’宪政’’三权鼎立’’司法独立’等错误思潮“。
 
-比尔·格茨: 智囊团报告称，[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和俄罗斯在 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 大流行期间利用虚假信息破坏美国并洗白他们自己的声誉。敦促建立虚假信息曝光部门。
+王晨在2017年10月24日中共十九届一中全会上当选为中共中央政治局委员，2019年3月当选中共国法学会会长。王晨目前担任中央政治局委员、全国人大常委会党组副书记、全国人大常委会副委员长（排名第1）、中共国法学会会长（2019年3月起）。
 
+值得提醒的是，王晨因侵害人权及破坏香港自治问题制裁，在2020年12月被美国国务院宣布治裁的中共全国人大常委会14名副委员长中排名第一。
 
+2019年4月1日，中共《[中国全国人民代表大会网站](http://www.npc.gov.cn/)》发表《[王晨在中国法学会第八次全国会员代表大会闭幕式上的讲话](http://www.npc.gov.cn/npc/c238/201904/8f2d6cac73ee49b8b87e5c00cd072420.shtml)》原文，时年3月20日，在中共国法学会第八次全国会员代表大会闭幕式上，中共中央政治局委员、中共国法学会会长王晨讲话的第六段“一、坚持党的领导，始终坚持正确政治方向“中，”……决不能照搬别国模式和做法，决不能走西方’宪政’、’三权鼎立’、’司法独立的路子 “。
 
-> China and Russia used disinformation during the pandemic to undermine the US and launder their reputations, think tank report says. Urges creating disinfo exposure unit [https://t.co/xkQT5Yi4Py](https://t.co/xkQT5Yi4Py)
-> — Bill Gertz (@BillGertz) [November 16, 2021](https://twitter.com/BillGertz/status/1460406623369773057?ref_src=twsrc%5Etfw)
+2021年4月1日，中共《[中国全国人民代表大会网站](http://www.npc.gov.cn/)》刊登王晨的讲话《[习近平法治思想是马克思主义法治理论中国化的新发展新飞跃 王晨](http://www.npc.gov.cn/npc/c30834/202104/8aa2483240954c12b2da902a87e123f6.shtml)》，在“（一）关于全面依法治国政治方向的理论观点 “一段最后，”… …决不能走西方所谓‘宪政’‘三权鼎立’‘司法独立’的路子“。
 
+追溯到更早，2011年3月10日，中共《[中国全国人民代表大会网站](http://www.npc.gov.cn/)》刊登《[吴邦国：我们不搞多党轮流执政 不搞联邦制 不搞私有化](http://www.npc.gov.cn/zgrdw/npc/dbdhhy/11_4/2011-03/10/content_1640332.htm)》。当日上午9时，时任CCP中央政治局常委、全国人大常委会委员长、党组书记吴邦国，在十一届全国人大四次会议举行第二次全体会议，全国人大常委会工作报告最后一段，“从中(共)国国情出发，郑重表明我们不搞多党轮流执政，不搞指导思想多元化，不搞“三权鼎立”和两院制，不搞联邦制，不搞私有化……“。
 
+吴邦国于2003－2013年期间，担任CCP中央政治局常委，十届、十一届中共国人大常委会委员长、党组书记。
 
-前白宫经济顾问皮特·纳瓦罗： 从福克斯的新闻报道中脱颖而出。看看我对今晚拜登投降的阻挡。 有关川普关税的背景，请阅读《川普时代》中的第一章在亚马逊这里：[https://bit.ly/InTrumpTimeT](https://t.co/En2l0LXENX?amp=1) 拜登会见 [#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 的全方位妥协绥靖
+来自于中共《[最高人民法院网](http://www.court.gov.cn/)》，2017年1月14日《[全国高级法院院长会议在京召开 周强强调 扎实做好人民法院各项工作 以优异成绩迎接党的十九大胜利召开](http://www.court.gov.cn/zixun-xiangqing-34892.html)》，当日上午，最高人民法院党组书记、院长周强在出席全国高级法院院长会议讲话原文第9段中，“周强强调……坚决抵制西方’宪政民主’’三权分立’’司法独立’等错误思潮影响，坚定不移走中国特色社会主义法治道路”。
 
+周强，2013年3月15日在第十二届全国人民代表大会第一次会议上当选最高人民法院院长。2018年3月18日，连任最高人民法院院长。2018年1月，当选第十三届全国政协委员。
 
+来自中共《[中国全国人民代表大会网站](http://www.npc.gov.cn/)》2021年5月14日，CCP中央全面依法治国委员会办公室副主任、中央政法委秘书长陈一新在《[习近平法治思想是全面依法治国的行动指南](http://www.npc.gov.cn/npc/c30834/202105/690a40814c0744b6afcd725a1afe7059.shtml)》，“习近平法治思想指明的政治方向道路“最后一段”… …走适合自己的法治道路，决不照搬别国模式和做法，决不走西方所谓’宪政’’三权鼎立’’司法独立’的路子……”。
 
-> Hot off the Fox press. See my handicapping of tonight's Biden surrender. 
-> 
-> For background on Trump tariffs, read Chap 1 in In Trump Time, from Amazon [https://t.co/KPNUX2SBsy](https://t.co/KPNUX2SBsy)
-> 
-> Biden’s meeting with China’s Xi appeasement on all levels [https://t.co/mPPAr1aUuB](https://t.co/mPPAr1aUuB) [#FoxBusiness](https://twitter.com/hashtag/FoxBusiness?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Peter Navarro (@RealPNavarro) [November 15, 2021](https://twitter.com/RealPNavarro/status/1460385991353683969?ref_src=twsrc%5Etfw)
+参考资料：
 
+[王晨在中国法学会第八次全国会员代表大会闭幕式上的讲话](http://www.npc.gov.cn/npc/c238/201904/8f2d6cac73ee49b8b87e5c00cd072420.shtml)
 
+[全国高级法院院长会议在京召开 周强强调 扎实做好人民法院各项工作 以优异成绩迎接党的十九大胜利召开](http://www.court.gov.cn/zixun-xiangqing-34892.html)
 
-众议员莫·布鲁克斯： 当乔·拜登和习近平今天晚些时候会面时，[#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的具核能力高超音速武器试验应该在议题清单上占据重要位置。你想赌多少拜登不会提出来？拜登在与美国的敌人打交道时处处表现出软弱。
+[在第十三届全国人大常委会第三十一次会议上的讲话 栗战书](http://www.npc.gov.cn/npc/c30834/202110/417dc2988bc545ddba6a8c6f45e71efa.shtml)
 
+[吴邦国：我们不搞多党轮流执政 不搞联邦制 不搞私有化](http://www.npc.gov.cn/zgrdw/npc/dbdhhy/11_4/2011-03/10/content_1640332.htm)
 
+[坚定不移走中国特色社会主义法治道路 为全面建设社会主义现代化国家提供有力法治保障 作者：习近平](http://www.qstheory.cn/dukan/qs/2021-02/28/c_1127146541.htm)
 
-> Communist China’s nuclear-capable hypersonic weapons testing should be high on the list of topics when Joe Biden & Xi Jinping meet later today. How much do you want to bet that Biden fails to bring it up? Biden has shown weakness at every turn when dealing with America's foes. [pic.twitter.com/JD5EFLY0LO](https://t.co/JD5EFLY0LO)
-> — Mo Brooks (@RepMoBrooks) [November 15, 2021](https://twitter.com/RepMoBrooks/status/1460370980044521480?ref_src=twsrc%5Etfw)
+[王晨出席习近平法治思想论坛并发表主旨演讲 坚定不移走中国特色社会主义法治道路 为全面建设社会主义现代化国家夯实法治基础](http://www.npc.gov.cn/npc/c30834/202109/3a15aa594b46499e875f441d5ae9a84f.shtml)
 
+[习近平法治思想是马克思主义法治理论中国化的新发展新飞跃 王晨](http://www.npc.gov.cn/npc/c30834/202104/8aa2483240954c12b2da902a87e123f6.shtml)
 
+[习近平在中央全面依法治国委员会第一次会议上的讲话（节选）](https://www.guizhou.gov.cn/ztzl/hhxxsrxxgclsxjpxsdsx/zyjh/2018n_5642400/202110/t20211011_70827606.html)
 
-众议员帕特·法伦： 今天，拜登总统有机会对抗中共。 他需要解决： – 中国不断增长的核武库； – 他们对美国网络安全的威胁； – 以及中国最近对台湾的侵略。 任何少于这些的都是不可接受的。
+[习近平法治思想是全面依法治国的行动指南 中央全面依法治国委员会办公室副主任、中央政法委秘书长 陈一新](http://www.npc.gov.cn/npc/c30834/202105/690a40814c0744b6afcd725a1afe7059.shtml)
 
+[加强党对全面依法治国的领导 习近平](http://www.qstheory.cn/dukan/qs/2019-02/15/c_1124114454.htm)
 
+[教育部办公厅关于印发《普通高等学校宪法学教学重点指南》的通知教高厅函〔2021〕33号](http://www.gov.cn/zhengce/zhengceku/2021-11/14/content_5650832.htm)
 
-> Today, President Biden has an opportunity to confront the CCP.
-> 
-> He needs to address:
-> 
-> – China's growing nuclear arsenal;
-> – Their threat to U.S. cybersecurity;
-> – And China's recent aggressions towards Taiwan.
-> 
-> Anything short of this is unacceptable.
-> — Rep. Pat Fallon (@RepPatFallon) [November 15, 2021](https://twitter.com/RepPatFallon/status/1460340578156048384?ref_src=twsrc%5Etfw)
+（免责声明：本文只代表作者观点，跟GNEWS平台无关）
 
-
-
-
+编审：文敏    发布：文敏
 
  
 

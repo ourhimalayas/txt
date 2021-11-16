@@ -2,30 +2,27 @@
 ---
 
 
-## 相信共产党，走进火葬场
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1668383/)
+## 亚欧多地出现禽流感疫情，家禽产业拉响警报
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1668395/)
 
-#### 撰稿：东京樱花团/深藏不露
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11111-4.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fmedia.gettr.com%2Fgroup29%2Fgetter%2F2021%2F09%2F10%2F10%2F3e799a5a-b10a-9452-51a3-b629ad76348f%2F7559d21a924f40b25e0c9e50d5949cb8_500x0.jpg&amp;imgrefurl=https%3A%2F%2Fgettr.com%2Fhashtag%2F%2523%25E5%2595%2586%25E9%259E%2585%25E9%25A9%25AD%25E6%25B0%2591%25E4%25BA%2594%25E6%259C%25AF&amp;tbnid=w3w-5XsqxwhAuM&amp;vet=12ahUKEwigvpSnjZz0AhWDA94KHXvyCy0QMygbegUIARDEAQ..i&amp;docid=lyKzJGg9ZhUrLM&amp;w=500&amp;h=270&amp;q=%E9%A9%AD%E6%B0%91%E4%BA%94%E6%9C%AF&amp;ved=2ahUKEwigvpSnjZz0AhWDA94KHXvyCy0QMygbegUIARDEAQ)
-中共自1949年建政以来，疯狂的用商鞅五术来统驭着可怜的中国老百姓，对中国老百姓不断进行贫民、疲民、愚民、辱民、虐民政策，使中国老百姓始终生活在贫困线上！
+翻译：Gradient Boost
 
-通过高房价、高成本的教育、医疗、养老等负担不断的让老百姓处于疲惫不堪中；通过不断的对老百姓进行愚民洗脑教育，控制着他们的思想；通过制造各种社会矛盾，让底层老百姓相互争斗，而坐收渔翁之利！老百姓稍有反抗，就进行强力镇压，使老百姓都患上斯德哥尔摩综合症！
+评论：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/11/011-scaled.jpg)图片来源：Pexels免费照片资料库；摄影：Italo Melo
+根据多家媒体近日报道，亚洲及欧洲多地向世界动物卫生组织报告了严重的禽流感疫情，这似乎表明禽流感病毒又一次发生爆发并出现快速的传播迹象。禽流感是一种高致病性流感，在过去这种疫情已经导致数千万家禽遭到扑杀，同时造成贸易管制，同时禽流感病毒也存在传播人类的可能。
 
-相信共产党，走进火葬场！中共通过不断压榨愚昧无知的中国老百姓来维系着邪恶政权，中共对中国老百姓的承诺什么时候靠的住过？中共源源不断的对非洲进行各项援助，免费援助非洲大学生来中共读书，还给每位非洲大学生配女学伴，女学伴怀孕后还保送其上研究生，何其荒唐！真是宁与外贼，不予家奴！驭民之术无所不用其极！现在，中共免费给中国老百姓打疫苗，不打还不行！愚昧的中国老百姓在中共的洗脑下争先恐后的去打免费毒疫苗，少量的觉醒者也被中共利用各种恐吓手段被迫打了疫苗，更有甚者，中共正在将邪恶之手伸向了我们可爱的孩子！
+本周一，韩国向世界动物卫生组织提交报告，当地一家拥有近七十七万家禽的农场出现禽流感爆发，导致所有的动物都遭到扑杀，想必造成大量损失。而日本目前也报道了2021年入冬以来的第一起禽流感爆发事件，爆发区域位于日本东北地区——这一消息已经在上周得到了日本农业部门的确认。本次疫情爆发的元凶为H5N8型禽流感病毒，值得警惕的是，此类禽流感病毒已经有过人类感染的案例。
 
-中国老百姓该醒醒了，放弃对中共的幻想，团结起来，站立起来，干掉中共这个邪恶政权，让中共在这个邪恶势力在地球上永远消失！
+在欧洲地区例如挪威，则出现H5N1型禽流感的爆发，影响到罗加兰地区近七千只禽类。同时H5N1也具有传染人类的风险和可能，虽然人传人的可能性相对来说较低。比利时政府于周一下达指示，由于在当地野生禽类身上检测出禽流感病毒，现规定对家禽进行室内的封闭式管理。邻近的法国与荷兰则在更早的时候便已经发出类似警训。
 
-Take down the CCP！
+虽然相比中共病毒，上述两种类型的禽流感病毒对于人类健康的影响都较为有限，但在当前国际经济形势的背景之下，今年冬天的禽流感爆发很可能对于部分产业再次造成负面影响。同时禽流感疫情对于目前已经处于崩塌状态的国际生产链及贸易无疑又是雪上加霜，尤其是食品供应链的部分——毕竟家禽类原料在许多食品当中均有添加和使用。
 
-信息来源：
+（文章内容仅代表作者观点，与Gnews平台无关）
 
-[https://gettr.com/post/pgvfz981f5](https://gettr.com/post/pgvfz981f5)
+新闻参考链接：
 
-[https://gettr.com/post/pguz2y32de](https://gettr.com/post/pguz2y32de)
-
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+[9 News](https://www.9news.com.au/world/bird-flu-spreads-in-europe-and-asia-putting-poultry-industry-on-alert/cc24b240-2d25-4bb1-ad3f-684c89a452d6)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

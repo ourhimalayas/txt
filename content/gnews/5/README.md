@@ -2,21 +2,19 @@
 ---
 
 
-## 斯蒂夫·班农撕破民主党拜登及佩洛西的嘴脸：这是来自地狱的指控
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1668378/)
+## 医生大量死亡、逃亡，导致一线医生极度短缺
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1668379/)
 
-**翻译：  Evalu**
+文编：东京樱花团/樱花传媒
+视频:东京樱花团/中文小视频组
 
-**校对：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-16-131112.jpg)           图片来源： http://www.hz-luo.net/
-英国每日邮报11月15日报道，前总统川普的战略顾问斯蒂夫·班农在周一下午就被诉蔑视国会罪来到法院， 并在门口猛烈抨击乔·拜登，承诺会为此而战斗。他对等在那里的记者们说：“我绝不会退缩，这次他们找错了人。”
+11月10日，郭文贵先生在GTV大直播透露：
 
-67岁的班农是第一个面临蔑视国会的指控，该指控是关于未出席调查1月6日国会骚乱的众议院调查委员会听证会，他面临两项针对国会传票拒绝回应的轻罪指控。他在首次来到法院后说：“这是梅域·加兰，南希·佩洛西和乔·拜登的来自地狱的指控，乔·拜登从海洋一号下来后来到白宫草坪上命令梅域·加兰来起诉我，我们将继续冒犯，我们厌烦了总是处于防守地位。”
+ccp病毒以来，对医疗行业最大的冲击是医护、专家极为短缺，三个因素造成，第一，前线医护人员大量离职、死亡、因患病无法履职；第二，疫苗实施后，很多医护人员得病、无法履职；第三，冬奥会、经济、政治、对疫苗的宣传等，很多医疗前线人士大量离职甚至非法出境，逃离到日本、新加坡等周边国家。
 
-班农在不需交保释金的情况下获得释放，但必须每周报告并上交他的护照。他周四要回到法庭。他通过班农战斗室平台直播去法院，他在社交媒体盖特上说：“我不希望任何人对我们所做的事转移视线。我们让非裔和西班牙裔美国人站在我们这一边，我们每天都在打击拜登的独裁统治，我希望你们保持关注，不要偏离。”
-
-**新闻来源**： [Biden ordered Garland to prosecute me and this will be the misdemeanor from hell’: Steve Bannon tears into Democrats and Nancy Pelosi as he is RELEASED without bail after appearing in court for defying his January 6 subpoena](https://www.dailymail.co.uk/news/article-10204023/Steve-Bannon-arrives-Washington-court-indicted-refusing-comply-subpoena.html)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
