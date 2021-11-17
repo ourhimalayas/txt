@@ -2,40 +2,43 @@
 ---
 
 
-## “被囚禁作者日”：美国人权委员会呼吁关注中共国因言获罪人士
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1671303/)
+## 临床研究员举报辉瑞疫苗试验数据造假遭解僱 辉瑞CEO妻子死于疫苗并发症
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1671313/)
 
-作者：英国喜庄园-I770775
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-357.png)图片来自VOA
-11月15日，是一年一度的“被囚禁作者日”40周年纪念日，美国国会兰托斯人权委员会举办线上论坛，讨论全球尤其是中共对言论自由的持续威胁，呼吁外界关注中共国因言入狱的人士境遇。 讨论会指出，在全球很多地方，政府为了打压对政府的批评，以中共病毒为由限制人们的言论自由，以散布虚假信息为由监禁作者。 讨论会尤其关注，中共当局对自由言论人士的监禁或迫害。 无国界记者组织美洲分部总裁安娜·纳尔森表示，媒体自由在过去几年中也持续恶化，很多国家利用CCP病毒来限制媒体自由，打压媒体，还有一些国家则利用网络安全法来限制言论自由，逮捕记者。 她指出，全球目前有465名记者和媒体工作者因他们的工作而遭到监禁，其中中共是关押记者人数最多的。
-
-新闻来源：[https://www.voachinese.com/a/day-of-the-imprisoned-writer-20111115/6314379.html](https://www.voachinese.com/a/day-of-the-imprisoned-writer-20111115/6314379.html)
-
-总编：文徬
-
-上传：浪迹天涯
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
+作者：尚勁哥
+![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp20Image202021-11-1720at2012.03.1720PM-Edited.jpeg)
 
 
+11月2日，英国医学杂志 The BMJ杂志发表了一篇辉瑞疫苗安全测试研究员揭露辉瑞疫苗在临床实验中存在数据造假（不完整）的文章，该研究员名为Brook Jaskon, 此前短暂供职于辉瑞疫苗的合同临床试验公司Ventavia Research Group，并为该公司地区主管。
+
+Jaskon研究员有着十多年的临床研究和管理经验，在去年九月的临床试验中，发现了诸多问题，多次通知公司后，她将问题投诉至美国FDA, 在举报的当天，Jaskon就被公司解雇了。Jaskon 向英国医学杂志提供了数十份公司内部文件、照片、录音和电子邮件。（詳見下文鏈結）
+
+在这篇新闻报道中，笔者对两个重要的点提出追问，一是FDA对于辉瑞疫苗临床研究员的举报，做了什么？二是辉瑞疫苗合同公司解雇临床试验研究员，是想要掩盖什么？
+
+无独有偶，在推特上有推友贴出了中共国北京生物制药疫苗的包装盒被销毁视频，而包装盒上标识着“仅用于临床研究”。
+
+所以说，无论是中共国疫苗，还是西方的疫苗，都没有经过严格且长期的临床试验检验，根据爆料革命，我们知道大医药公司利用WHO, 世界各国政府和医疗系统，一起合谋，正在用疫苗干著人类历史上最邪恶的杀戮行径，同时还试图掩盖自己的虚伪和邪恶，人类在这场中共病毒后的疫苗注射中, 集体被当成了试验用的小白鼠。
+
+2020年秋天，辉瑞疫苗董事兼首席执行官Albert Bourla 对全世界数十亿人发表了一封公开信，他说他们将希望寄托在安全有效的COVID-19疫苗上，期待结束大流行。。。
+
+2020年12月10日，辉瑞疫苗拿到了美国FDA的紧急使用授权
+
+2021年11月9日，辉瑞疫苗Albert Bourla 在一个简短的视频中声称 “反对疫苗并传播疫苗错误信息的人是罪犯，他们正在造成生命的死亡”
+
+第二天，11月10日，Albert Bourla  的太太就被送入了纽约长老会急诊室，死于疫苗并发症。
+
+[援引文章](https://gnews.org/zh-hans/1668753/)1
+
+[援引文章](https://www.bmj.com/content/375/bmj.n2635)2
+
+[援引文章](https://creativedestructionmedia.com/news/2021/11/12/here-we-go-pfizer-whistleblower-says-company-faked-data-in-vaccine-safety-trials/)3
+
+[援引文章](https://twitter.com/fqfeej5mgk3d810/status/1459060250116509699?s=12)4
+
+[援引文章](https://gettr.com/post/pgzhxh2e09)5
+
+审核校对：Barry Jack
+上传排版：F
 
  
 

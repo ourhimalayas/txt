@@ -2,49 +2,50 @@
 ---
 
 
-## 谷歌云、Snapchat、Spotify等在故障数小时后恢复
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1671428/)
+## 许家印的70亿能让恒大续命几秒？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1671449/)
 
-翻译：西班牙巴塞罗那喜悦农场-wenwu
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-360.png)图片来源： dailymail.co.uk
-周二（16日）下午，一场大规模的[谷歌](https://www.dailymail.co.uk/sciencetech/google/index.html)云服务器故障导致 Spotify、**[Snapchat](https://www.dailymail.co.uk/sciencetech/snapchat/index.html)** 和 Discord 等几个主要网站，崩溃了几个小时。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-125.jpg)[图片来源](https://images-fe.ssl-images-amazon.com/images/I/41jrGpWD-fL._AC_UL600_SR600,600_.jpg)
+**许家印拿了500亿只，拿出70亿**
 
-Google Cloud 的服务页面显示（如下图），罪魁祸首是网络问题（ Google Cloud Networking），该问题影响了全球近十几个站点和数万用户。
+承诺要确保投资者利益、实现复工保交楼的中国恒大董事局主席许家印，正在变卖个人资产为恒大输血。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-361.png)
+11月16日，从接近恒大的资本圈知情人士处获悉，从7月1日至今，为了维持集团流动性，许家印已透过变卖个人资产或质押股权等方式筹集资金，累计已向集团注入超70亿现金，维持庞大的恒大帝国的基本运营。在此期间，恒大没有融资、销售停摆，但要保证财富每月10%的兑付、总部员工发薪、境内外债券付息，推动全国各地项目复工复产。“目前都是许家印个人筹钱在为恒大续命。”该知情人士称。
 
-这个问题始于美国东部时间下午 12 点之后，导致网页出现 404 错误，但受网络故障影响的网站似乎在下午 2:30 左右重新上线——一些用户可能仍然遇到问题。
+陷入危机的恒大早在8月中旬时就曾宣称，欲出售恒大物业、恒大汽车等旗下资产以快速回笼资金，缓解流动性压力；期间，还有消息称恒大将出售香港总部大楼等资产。尽管屡有包括碧桂园服务、万科、小米、越秀等各绯闻对象，但两项关键资产的出售，始终未能落地。
 
-谷歌云的网络故障是在一场更大的在线惨败之后（如下图）发生的，该惨败导致 Meta 的所有平台——Facebook、Instagram 和 WhatsApp——在长达 7 小时的全球宕机中瘫痪。谷歌在美国东部时间下午 12 点 10 分在其云计算仪表板上发布了一份声明，承认了网络错误（404），目前没有解决办法。其[页面上](https://status.cloud.google.com/incidents/6PM5mNd43NbMqjCZ5REh)写道：“是我们向所有受到宕机影响的人道歉。”（谷歌云计算的仪表板早些时候[显示](https://finance.yahoo.com/news/google-amazon-several-other-websites-181233082.html)，包括云开发者工具、云控制台和云引擎在内的服务都面临故障）
+更戏剧性的是，国庆前后，合生创展浮出水面，成为恒大物业的收购方。原本市场预期已有较大确定性的出售事项，最终因付款方式等问题而告吹。逾200.4亿港元的交易终止，恒大再丧失一次补血机会。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-363.png)
+公开信息来看，目前恒大仅减持盛京银行股权的举动落定，截至11月初，合计变现约110亿元。除了资产处置进展不佳外，恒大的销售也明显陷入停摆。克而瑞数据显示，9月单月，恒大全口径销售额仅53亿元，位列行业49名；10月的销售额未能上榜，而位列50位的房企销售额为36.9亿元。
 
-据 **[The Verge](https://www.theverge.com/2021/11/16/22785599/google-cloud-outage-spotify-discord-snapchat-google-cloud)** 报道，DownDetector（一种基于网络的监测在线故障的服务）上显示的许多故障（包括Spotify、Alphabet、Discord 和 SnapChat 等），是与 Google Cloud 开始遇到问题的时间相吻合。
+讽刺的是，作为恒大持股超70%的大股东，许家印十年间通过大笔分红，套现了500亿。在现代企业制度下，作为有限责任公司，恒大和许家印的责任并不是一体的，恒大的负债或者破产，并不影响许家印的到手财富。
 
-在谷歌云分享关于网络问题的第一个更新大约七分钟后发布了帖子。其内容为，“云网络的问题已部分解决；在问题完全解决之前，用户将无法对其负载平衡器进行更改；目前我们没有完整解决的预计时间（ETA）。”
+**恒大在违约边缘疯狂试探**
 
-Spotify 表示（如下图），在超过5万名用户报告他们面临问题之后，它“现在意识到一些问题并已正在进行检查”。
+公开信息显示，近期恒大还多次按期支付债券利息。最近的一次为11月11日，恒大于当天支付了三笔美元债利息，合计约1.48亿美元。这三笔美元债分别于2022年、2023年、2024年4月到期，11月11日是三笔债券票息30日宽限期的最后一天。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-365.png)
+近期，有关许家印变卖个人资产的消息亦在市场上广为流传。据称，许家印已把个人财产押的押、卖的卖，已经变卖的资产包中，包括香港的三栋别墅和广州、深圳的豪宅，还有几架私人飞机等，而拿回的钱基本用于恒大保交楼、还利息、兑理财、开工资等。
 
-Google Cloud 服务器故障发生在 Meta 崩溃仅一个多月后，由于其域名系统 (DNS)问题，其三个应用程序崩溃了 7 个小时。Meta 没有使用 CloudFare，但它运行着世界上最大的 DNS 解析器之一。当站点因 DNS 系统故障而停机时，CloudFare 会尝试修复它们。
+**恒大负债高达1.95万亿**
 
-CloudFare 工程高级副总裁 Usman Muzaffar 当时告诉 DailyMail.com：“人类通过域名在线访问信息，如 [facebook.com](http://acebook.com/) 和 DNS 将其转换为数字，称为电脑 IP 地址。
+根据恒大今年中期的财报显示，恒大负债高达1.95万亿。但是恒大的净资产只有3千多亿。这是什么概念呢？中国首富马云的身家是4千亿左右，也就是说一个恒大的负债就等于5个马云的身家。换句话说马化腾、马云、何享健、杨国强、孙飘扬等中国五大富豪一起，把资产都套现了，一起帮恒大还债，都无法还清恒大的债务。看到这里，很多人一定吓一跳了，恒大负债这么多。
 
-从我们对实际问题的理解来看–它是一个全球化的边界网关协议（BGP）配置问题（这些通常是错误，而不是攻击）；边界网关协议（BGP）是互联网的路由协议，就像邮局处理邮件一样，BGP 挑选最有效的路线来传递互联网流量。
+**恒大必定破产**
 
-最初，有报道称 AT&T、Verizon 和 T-Mobile 也全部出现故障。在关闭数小时后，技术人员尝试对其服务器进行“手动重置”以解决问题。
+2021年11月14日郭文贵先生在直播中爆料，恒大两周之内会宣布破产。
 
-值得一提的是，如果无法访问 DNS 服务器，那么用户访问 Facebook 的相关应用将无法得到答复，因此页面将无法加载。
+所以在破产前中共媒体放出许加印卖产救恒大的消息，无非就是为了政治上的维稳，安抚投资者和墙内与恒大相关的老百姓，毕竟共产党的政策就是稳定压倒一切。习近平指示让恒大再撑一段时间，倒闭无法避免，最好坚持到20大。许家印此时变卖的家产也是被逼迫的，跟其他的白手套一样，他当初借的钱就没想到还，也不可能还，只有部分进了他的腰包，大头还是给中南坑的那些盗国贼拿走了，那些钱也早已被洗到了海外，所以恒大必定破产。
 
-新闻来源：[dailymail.co.uk][Back up! Snapchat, Shopify and several other popular websites are working again after Google Cloud networking outage caused disruption for more than two hours](https://www.dailymail.co.uk/sciencetech/article-10209361/Web-Google-Cloud-outage-crashes-Snapchat-Spotify-popular-sites-worldwide.html)发布时间：2021年11月16日
+消息来源:
 
-* * *
+[许家印变卖个人资产，已为恒大注入超70亿续命资金](https://news.sina.com.cn/c/2021-11-16/doc-iktzqtyu7660558.shtml)
 
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
+[恒大2万亿债务拆解：与监管背道而驰，许家印十年套现500亿](https://www.eet-china.com/mp/a78653.html)
 
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

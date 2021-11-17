@@ -2,43 +2,24 @@
 ---
 
 
-## 临床研究员举报辉瑞疫苗试验数据造假遭解僱 辉瑞CEO妻子死于疫苗并发症
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1671313/)
+## 美国医生开具伊维菌素治疗中共病毒遭受匿名投诉
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671319/)
 
-作者：尚勁哥
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp20Image202021-11-1720at2012.03.1720PM-Edited.jpeg)
+#### 撰稿：彩虹
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-11.jpg)图片来源：政客
+共和党众议员安迪·哈里斯（Andy Harris）是一名医生，有人向马里兰州医疗委员会进行匿名投诉，指哈里斯为中共病毒（COVID-19）患者开具伊维菌素。11月16日，《国会山报》对此进行了报道。
 
-11月2日，英国医学杂志 The BMJ杂志发表了一篇辉瑞疫苗安全测试研究员揭露辉瑞疫苗在临床实验中存在数据造假（不完整）的文章，该研究员名为Brook Jaskon, 此前短暂供职于辉瑞疫苗的合同临床试验公司Ventavia Research Group，并为该公司地区主管。
+文章说，三个月前，《华盛顿邮报》报道哈里斯与妻子一起参加“Casey & Company”广播节目，节目中，哈里斯说：“我开了一张伊维菌素的药方，我想大概是三四周前吧。是的，找不到药店拿到此药，因为情况已经变得很糟糕，药剂师们只是一味地拒绝进货此药。”
 
-Jaskon研究员有着十多年的临床研究和管理经验，在去年九月的临床试验中，发现了诸多问题，多次通知公司后，她将问题投诉至美国FDA, 在举报的当天，Jaskon就被公司解雇了。Jaskon 向英国医学杂志提供了数十份公司内部文件、照片、录音和电子邮件。（詳見下文鏈結）
+周一，据《巴尔的摩太阳报》报道，在众议院自由核心小组关于强制接种疫苗会议上，哈里斯暗示了受到投诉。哈里斯说：“目前有人试图对我开伊维菌素的医疗执照采取行动，我觉得这很让人感兴趣，因为作为一名麻醉师，我知道我使用了很多标签外的药物，这是很危险的行为。”
 
-在这篇新闻报道中，笔者对两个重要的点提出追问，一是FDA对于辉瑞疫苗临床研究员的举报，做了什么？二是辉瑞疫苗合同公司解雇临床试验研究员，是想要掩盖什么？
+会后，哈里斯告诉《华盛顿观察家报》，该投诉正处于 “法医委员会的调查阶段”。
 
-无独有偶，在推特上有推友贴出了中共国北京生物制药疫苗的包装盒被销毁视频，而包装盒上标识着“仅用于临床研究”。
+《巴尔的摩太阳报》特别指出，哈里斯在会上还说，根据新型病毒的进化，他预计（现在的）疫苗在未来会变得无效。
 
-所以说，无论是中共国疫苗，还是西方的疫苗，都没有经过严格且长期的临床试验检验，根据爆料革命，我们知道大医药公司利用WHO, 世界各国政府和医疗系统，一起合谋，正在用疫苗干著人类历史上最邪恶的杀戮行径，同时还试图掩盖自己的虚伪和邪恶，人类在这场中共病毒后的疫苗注射中, 集体被当成了试验用的小白鼠。
-
-2020年秋天，辉瑞疫苗董事兼首席执行官Albert Bourla 对全世界数十亿人发表了一封公开信，他说他们将希望寄托在安全有效的COVID-19疫苗上，期待结束大流行。。。
-
-2020年12月10日，辉瑞疫苗拿到了美国FDA的紧急使用授权
-
-2021年11月9日，辉瑞疫苗Albert Bourla 在一个简短的视频中声称 “反对疫苗并传播疫苗错误信息的人是罪犯，他们正在造成生命的死亡”
-
-第二天，11月10日，Albert Bourla  的太太就被送入了纽约长老会急诊室，死于疫苗并发症。
-
-[援引文章](https://gnews.org/zh-hans/1668753/)1
-
-[援引文章](https://www.bmj.com/content/375/bmj.n2635)2
-
-[援引文章](https://creativedestructionmedia.com/news/2021/11/12/here-we-go-pfizer-whistleblower-says-company-faked-data-in-vaccine-safety-trials/)3
-
-[援引文章](https://twitter.com/fqfeej5mgk3d810/status/1459060250116509699?s=12)4
-
-[援引文章](https://gettr.com/post/pgzhxh2e09)5
-
-审核校对：Barry Jack
-上传排版：F
+**新闻来源：**[Maryland Republican says complaint filed against him for prescribing ivermectin to COVID-19 patient](https://thehill.com/policy/healthcare/public-global-health/581884-maryland-republican-says-complaint-filed-against-him)
 
  
 
