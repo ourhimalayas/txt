@@ -2,45 +2,27 @@
 ---
 
 
-## 洪都拉斯总统突访台湾
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670629/)
+## 众安6060
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1670756/)
 
-作者：澳喜农场 在远方
+![Image](https://pbs.twimg.com/media/FEXaJZOVQAYDD8M?format=jpg&amp;name=large)图一：图片来源网络![Image](https://pbs.twimg.com/media/FEXaKuqUUAE7bZL?format=png&amp;name=900x900)图二：图片来源网络![Image](https://pbs.twimg.com/media/FEXaMBpVUAQf78D?format=png&amp;name=900x900)图三：图片来源网络
+图一二：众安占股:蚂蚁、平安、腾讯、深圳加德信(欧亚非)分别为14% 10.56% 10.56% 9.86%。
 
+图三：众安股价：2017年9月28日上市，最终发售价定为59.7元,目前-58% from IPO, -70% from top。市值416亿港币。
 
+众安在线财产保险股份有限公司（港交所：6060）简称众安保险，是中共首家和规模最大的互联网保险公司，2013年11月由蚂蚁金服、腾讯、中国平安等企业出资设立，总部设在上海.
 
+众安保险大股东为蚂蚁金服、腾讯及中国平安，各持有超过一成股份，故众安保险又被称为“三马概念股”。软银为众安保险的唯一基石投资者，认购公开发行股份之36%。摩根大通、瑞士信贷、瑞银、招商银行担任其联席保荐人。软银去年减持，由71.9m 减至 26.2m 股，目前仍持有1.85%股权。
 
+(本文仅代表作者个人观点)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-4.jpg)
+采编：文远Bruce
 
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
-
-
-
-11月13日，洪都拉斯总统叶南德兹对台湾进行了访问，并拜会了蔡英文总统。 叶南德兹表示，这是他第四次访问台湾，在当前台海局势如此紧张的情况下，他代表洪都拉斯与台湾站在一起，此举是要向外界表达一个非常清楚及坚定的讯息，那就是“朋友之间，患难见真情”。
-
-据悉，洪都拉斯将于11月28日举行总统大选，而反对党扬言上台后要与台湾断交，因此此次访问颇受外界关注。有学者分析认为，就洪都拉斯总统大选的选情来看，执政党还不一定会输。并且反对党即使获胜上台后，也不见得真的会罔顾美国的意见和台湾断交。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-117.png)
-**参考链接：**
-
-[https://www.voachinese.com/a/honduras-president-s-surprise-visit-to-taiwan-amid-worries-about-diplomatic-ties-20211114/6312765.html](https://www.voachinese.com/a/honduras-president-s-surprise-visit-to-taiwan-amid-worries-about-diplomatic-ties-20211114/6312765.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
+【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

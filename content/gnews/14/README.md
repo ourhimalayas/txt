@@ -2,44 +2,30 @@
 ---
 
 
-## 因制造美国之音“断播门”遭免职的阿曼达被提名出任新职位
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670659/)
+## 中共国利用海外空壳公司获取意大利军用无人机技术
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1670788/)
 
-作者：英国喜庄园-I770775 – Irene木木
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-12.jpg)中共国利用海外空壳公司获取意大利军用无人机技术 网络图片
+据美国之音11月16日报道，意大利警方判定由”中国中车”资本和无锡市政府旗下的一家投资集团共同出资成立的马尔斯香港信息科技公司为空壳公司。该公司控制了意大利的一家军用无人机生产商Alpi Aviation（阿尔卑飞机公司）。在意大利和欧洲当局不知情的情况下，将知识和技术转移至中共国的一个新生产基地。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-4.jpg)
+阿尔卑飞机公司以生产轻飞机及称为Strix的迷你无人机闻名，曾被驻阿富汗的意大利空军使用。
+
+这起案件符合中共国国企在海外的运行模式：以民营空壳公司为掩护，获取掌握特殊技术的企业的控制权，然后再将该公司的技术转移至中共国。这明显是由中共国政府推动的国家战略。中共的偷盗技术独步天下，这起教科书式的案例暴露出欧洲投资审查体系的脆弱和北京为获取欧洲敏感技术的精心布局。俗话说，不怕贼偷，就怕贼惦记。中共苦心积虑偷遍全世界。西方先进的科学技术如果被中共盗取，对本国和全世界都是极大的威胁。所以，防火防盗防中共。
+
+新闻参考链接：[http://dlvr.it/SCcMWL](https://dlvr.it/SCcMWL)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-11月12日下午，白宫宣布，计划提名前美国之音台长阿曼达担任美国全球媒体首席执行官。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-阿曼达曾于2016年3月至2020年6月担任美国之音台长，因2017年临时叫停原计划对爆料革命郭文贵先生的三个小时现场采访，制造了震惊世界的美国之音“断播门”，后来不得不在多方指责的压力下辞职。
 
-当时，随同阿曼达一道被解职的还有美国之音涉及采访郭先生的几名普通话组的雇员，由此引发的关于新闻自由的讨论曾一度成为全球关注的焦点。
-
-新闻媒体本应该努力进行客观、基于事实的报道，阿曼达利用手中权力，屈从于中共“蓝金黄”力量的威胁，对爆料人郭文贵先生的采访做了选择性的叫停，显然已经失去了一个媒体人应有的基本职业素养。阿曼达此时被提名出任美国全球媒体首席执行官，不排除是中共海外渗透力量的再一次反扑。
-
-但是，有爆料革命的真相传播，中共渗透世界、控制舆论的野心必将一次又一次宣告破产。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-9.png)
-参考链接：
-
-[https://www.voachinese.com/a/white-house-nominates-former-voa-director-to-usagm-ceo-20211112/6311676.html](https://www.voachinese.com/a/white-house-nominates-former-voa-director-to-usagm-ceo-20211112/6311676.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

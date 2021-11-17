@@ -2,38 +2,44 @@
 ---
 
 
-## IBM称量子芯片可在两年内击败标准芯片
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1670569/)
+## 因制造美国之音“断播门”遭免职的阿曼达被提名出任新职位
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670659/)
 
-据《路透社》作者：Stephen Nellis，2021年11月15日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-342-e1637112260319.png)2017年10月19日，在加拿大安大略省多伦多举行的SIBOS银行和金融会议上看到IBM的标志。REUTERS/CHRIS HELGREN
-11月15日《路透社》：**国际商业机器公司（IBM.N）周一表示，它已经设计出一种新的量子计算芯片。其高管认为，在未来两年内，量子系统将在某些任务上开始超越经典计算机。**
+作者：英国喜庄园-I770775 – Irene木木
 
-IBM表示，其“Eagle”计算芯片有127个所谓的“量子比特”，能以量子形式表示信息。古典计算机使用的“比特”必须是1或0，但量子比特可以同时是1和0。
-
-这一事实有朝一日可以使量子计算机比经典计算机快得多，但量子比特极难制造，需要巨大的低温冰箱才能正常运行。虽然苹果公司（AAPL.O）最新的M1 Max芯片有570亿个晶体管——这是比特的粗略代表。但IBM表示，其新的Eagle芯片是第一个拥有超过100个量子比特的芯片。
-
-IBM表示，它在制造该芯片时学到的新技术（该芯片由其在纽约州的工厂制造），在与量子计算机的制冷和控制系统的其他进展相结合时，最终将产生更多的量子比特。该公司周一表示，它计划在2022年推出具有433个量子比特的“Osprey”芯片和具有1121个量子比特的“Condor”芯片。
-
-该公司说，到那时，它将接近所谓的“量子优势”，即量子计算机可以击败经典计算机的时间点。
-
-IBM高级副总裁、其研究部门负责人达里奥·吉尔说，**这并不意味着量子计算机将一下子超越经典计算机。相反，IBM所设想的是这样一个世界：计算应用的某些部分在传统芯片上运行，某些部分在量子芯片上运行，这取决于什么对每项任务最有效。**
-
-吉尔说：“我们相信，我们将在未来几年内能够有实际价值的，达到量子优势的展示。这就是我们的追求。”
-
-原文连接：[https://www.reuters.com/technology/ibm-says-quantum-chip-could-beat-standard-chips-two-years-2021-11-15/](https://www.reuters.com/technology/ibm-says-quantum-chip-could-beat-standard-chips-two-years-2021-11-15/)
-
-翻译：洛杉矶盘古农场 — TrueSky
-
-校对：洛杉矶盘古农场 — Mike Li
-
-编辑：洛杉矶盘古农场 — 心照
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-4.jpg)
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+11月12日下午，白宫宣布，计划提名前美国之音台长阿曼达担任美国全球媒体首席执行官。
+
+阿曼达曾于2016年3月至2020年6月担任美国之音台长，因2017年临时叫停原计划对爆料革命郭文贵先生的三个小时现场采访，制造了震惊世界的美国之音“断播门”，后来不得不在多方指责的压力下辞职。
+
+当时，随同阿曼达一道被解职的还有美国之音涉及采访郭先生的几名普通话组的雇员，由此引发的关于新闻自由的讨论曾一度成为全球关注的焦点。
+
+新闻媒体本应该努力进行客观、基于事实的报道，阿曼达利用手中权力，屈从于中共“蓝金黄”力量的威胁，对爆料人郭文贵先生的采访做了选择性的叫停，显然已经失去了一个媒体人应有的基本职业素养。阿曼达此时被提名出任美国全球媒体首席执行官，不排除是中共海外渗透力量的再一次反扑。
+
+但是，有爆料革命的真相传播，中共渗透世界、控制舆论的野心必将一次又一次宣告破产。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-9.png)
+参考链接：
+
+[https://www.voachinese.com/a/white-house-nominates-former-voa-director-to-usagm-ceo-20211112/6311676.html](https://www.voachinese.com/a/white-house-nominates-former-voa-director-to-usagm-ceo-20211112/6311676.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

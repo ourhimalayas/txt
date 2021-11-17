@@ -2,27 +2,32 @@
 ---
 
 
-## 美国多个州政府就强制接种规定发起联合诉讼
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1670548/)
+## GTV新闻访谈简报|2021年11月16日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670631/)
 
-采编：文明         编译撰稿：文莱
+作者：香草山翻译部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-44-edited.jpg)图片来源：WSJ
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-4.jpg)
 
 
-据美国媒体【丹佛公报】11月13日报道，美国目前有27个州政府已针对总统拜登的三项不同《“新冠病毒”疫苗接种规定》提起了诉讼。这些规定所涉及的对象包括：私人及联邦雇员，医疗保险人员，病患医护服务人员及医疗工作者等。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1116text-SC.png)
+校对：Stay文苑
 
-据悉，由于以上关于“联邦部门和私营机构的疫苗接种授权”诉讼，是直接向五个联邦上诉法院同时提出的，所以此举为美国最高法院的最终权衡判决创造了必要条件。
+编辑：Stay文苑
 
-之前，美国多个州的私人企业雇主已在新奥尔良第五巡回上诉法院，以“疫苗授权接种规定是非法和违宪的”原因起诉了拜登政府。对此，该法院最终以涉嫌严重违宪为由，批准了该诉求并暂停了该规定的执行。
+发稿：Stay文苑
 
-密苏里州总检察长对此表示，拜登当局非法使用联邦支出来胁迫各州遵守其疫苗接种规定，不仅违反了《美国宪法第十修正案》，更加剧了该国目前所面临的劳动力严重短缺问题。
+视频参看：[11.16  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61945ad7e7e7703792360018)
 
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
 
-校对编辑，发稿：硫酸羟氯喹64
+**更多资讯，更多关注**
 
-[原文链接：](https://denvergazette.com/news/lawsuits-challenging-bidens-vaccine-mandates-mount-likely-heading-to-u-s-supreme-court/article_3ec30c05-57d6-5ccf-a253-165b718a5c44.html)
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
 
  
 

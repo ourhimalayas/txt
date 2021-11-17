@@ -2,42 +2,174 @@
 ---
 
 
-## 琵琶曲《战》：奏响灭共又一乐章
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670675/)
+## 纸币的滥发导致人们财富被偷走
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1670804/)
 
-作者：英国喜庄园-I770775 – Irene木木
+美国的财政部长
 
+包括美联储的主席
 
+他都不相信美国真正地印发了这么多货币
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-4.jpg)
+我想问大家：“你们怎么查政府到底印了多少货币？”
 
+因为货币它不是区块链，
 
+你们无法查，
 
-11月16日，郭先生在盖特小视频里上传了由英喜庄园扎西卓玛战友作曲、演奏的原创灭共琵琶曲《战》，深受战友们喜爱。
+同时货币印发机构也不受监控。
 
-乐曲共分为六个乐章，描绘和模拟出爆料革命从2017年1月26日郭先生首次直播，到未来灭共后的相对完整的全过程，生动演绎了爆料革命一路走来的酸甜苦辣、艰苦艰辛、斗智斗勇、不卑不亢、决不放弃等不凡的战斗经历。
+他们说印了30亿，就是30亿吗？
 
-视频上传后，立刻引发战友们的强烈共鸣，无数战友留言： 一起见证 ，一起走过，一起哭一起笑；听得心潮澎湃，看得泪如雨下；七哥一路太不容易，战友们紧紧跟随永不放弃
+你告诉我用什么方式去查验呢？
 
-新闻链接：
+所以现在是整个人类到了最重要的选择时刻，
 
-[https://gettr.com/post/ph37jf717a](https://gettr.com/post/ph37jf717a)
+将来所有的纸币都得废掉，
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+因为我们根本不知道你印了多少货币。
 
-编辑/校对/发稿：滚滚长江都是水
+那天你们看了那个美联储主席埃摩斯（注：同音字）的演讲，
 
-**更多资讯，更多关注**
+他说我们确实把印刷的数字改了，
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+我们确实造了假
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+这就是骗局嘛，比庞氏骗局还可怕，
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+因为没有技术可以监控它。
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+但区块链谁都造不了假，100%真实，
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+而且谁都拿不走。
+
+The Secretary of the Treasury of the United States
+
+including the chairman of the Federal Reserve
+
+They don’t believe the U.S. has really issued that much money
+
+I would ask people, “How do you find out how much money the government actually prints?”
+
+Because paper currency doesn’t use blockchain technology
+
+You will not be able to check that.
+
+Also, the currency issuers are not monitored.
+
+If they claim they printed $3 billion,
+
+is it really $3 billion?
+
+You tell me, how can I check that?
+
+So now is the most important moment of choice for the entire human race.
+
+In the future, all paper money will have to be scrapped.
+
+Because we don’t even know how much money they’ve printed.
+
+You saw that speech the other day by the Fed Chairman Jerome.
+
+He said they did change the numbers that they printed,
+
+They did falsify it.
+
+It’s a fraud. It’s worse than a Ponzi scheme.
+
+Because there’s no technology to monitor it.
+
+But blockchain can’t be faked by anyone, it’s 100% real, and no one can take it away.
+
+共产党仅仅去年2020年（印钞）7万亿美元，
+
+这是他们中央人民银行正式下发的文件说的数目，
+
+7万亿。但实际印了多少你们知道吗？
+
+实际是10万亿美元，67万亿人民币。
+
+美国玩了3万亿，共产党玩了10万亿，
+
+你还觉得你们手里的钱还值钱吗？
+
+不信你们等着看吧。
+
+国内的同胞们
+
+你们绝不是不知道有多少人被打疫苗
+
+和多少人在家里被Quarantine（隔离）
+
+和死了多少人
+
+中共说郑州发洪水就死了4个人，
+
+冠状病毒来自中共国，
+
+他们说中国只死了4000多人，
+
+他们还说说山西发洪水就死了7个半人，8个濒危，
+
+死了7个半，是因为其中一个人已经半死不活了，
+
+你相信他们给的这些数据吗？
+
+人们最大的灾难
+
+是在不知不觉中
+
+你们的钱
+
+你的劳动创造的价值全被剥夺偷走了
+
+The CCP printed $7 trillion just last year in 2020.
+
+This is the number that their official document issued by the Central People’s Bank indicates
+
+7 trillion. But do you know how much was actually printed?
+
+The actual amount is 10 trillion dollars, 67 trillion yuan.
+
+The U.S. played with 3 trillion, the CCP played with 10 trillion.
+
+Do you still think the money in your hands is still worth something?
+
+If you don’t believe me, just wait and see.
+
+Fellow countrymen in China
+
+You are by no means unaware of the number of people who have been vaccinated
+
+and how many people were quarantined in their homes
+
+and how many people have died.
+
+The CCP says that 4 people died in Zhengzhou when it flooded.
+
+The coronavirus came from CCP China,
+
+They said that only 4,000 people died in China.
+
+They also said that 7 and a half people died in the Shanxi flood,
+
+and 8 were endangered.
+
+7 and a half people died because one of them was already half dead.
+
+Do you believe these figures they give?
+
+The biggest disaster for people is not knowing
+
+Your money,
+
+and your hard-earn money is being taken away from you.
+
+听写/翻译： UCool优酷
+
+字幕添加：Kent
+
+发布：风云小哥
 
  
 

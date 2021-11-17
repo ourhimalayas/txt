@@ -2,33 +2,22 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月16日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670631/)
+## 中共国今冬明春疫情将加剧，老百姓须备好必需品
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1670760/)
 
-作者：香草山翻译部
+撰稿：东京樱花团/天路天道
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-345.png)[图片来源](https://cn.nytimes.com/china/20200203/china-coronavirus/)
+近日，中共国务院联防联控机制举行新闻发布会，国家卫生健康委疾控局副局长吴良有在会上表示，不少专家研判，今冬明春疫情防控形势较去年将更为复杂。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-4.jpg)
+此外，随着全面入冬，冬季气温降低，中共病毒与流感等呼吸道传染病叠加流行的风险也在增加。
 
+面对更加严峻复杂的疫情形势，该如何应对？疫情复杂的前提下，中共国的老百姓生活、就业、收入等方面都会受到影响。加之，中共还将在年底前对3-11岁儿童施打疫苗，疫苗灾害已经逐渐暴露。广大墙内老百姓唯有提高警惕，未雨绸缪，适当准备才能减少中共病毒和疫苗的次生灾害。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1116text-SC.png)
-校对：Stay文苑
+信息来源：[专家研判：今冬明春疫情防控形势将更复杂–经济·科技–人民网](http://finance.people.com.cn/n1/2021/1116/c1004-32283512.html)
 
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[11.16  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61945ad7e7e7703792360018)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

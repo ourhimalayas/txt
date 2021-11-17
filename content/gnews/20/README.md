@@ -2,88 +2,26 @@
 ---
 
 
-## 众议员克里斯·斯图尔特： COVID-19 的起源是我们面临的最重要的问题之一 ，美国人民有权得到答案
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1670628/)
+## 美前总统老布什之子尼尔·布什赞助了中共航天公司的研讨会
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1670748/)
 
-众议员克里斯·斯图尔特： 今天，我在众议院提出了《福奇法案》。 本月早些时候，参议员乔尼·恩斯特[@SenJoniErnst](https://twitter.com/SenJoniErnst) 在参议院提出了一项配套法案。 COVID-19 ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)) 的起源是我们面临的最重要的问题之一。 该法案代表美国人民要求透明度和公道。首先，该立法旨在禁止美国资助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的功能增强研究。 其次，它需要全面核算我们的税收资金的使用方式和去向。 最后，它会限制故意误导国会的政府官员。世界仍在感受着 COVID-19 ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)) 对人类和经济的破坏性影响。美国人民有权得到答案，我们需要采取一切可能的措施来防止灾难再次发生。 我鼓励国会过道两边的所有同事，加入我的努力.
+韩国首尔天池农场
+翻译：zzballack
+上传：追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-17-at-13.00.30.jpeg)图片来源：参考新闻
+据《华盛顿自由灯塔》（Washington Free Beacon）11月16日报道，前美国总统老布什的第三子尼尔·布什（Neil Bush）正在利用他的影响力和家族名声来给一家因与中共军队有关联而被美国政府列入黑名单的中共政府承包商背书。
 
+尼尔·布什是将于11月18日至20日在北京召开的“2021空间技术和平利用（健康）国际研讨会（International Symposium on the Peaceful Use of Space Technology）”的共同发起人之一。该论坛的联合主席包括中国航天科技集团（CASC）的高管。该公司是由中共控制的承包商，负责制造中共的军事和太空设备。据报道，CASC的下属子公司中国航天空气动力技术研究院开发了一种高超音速导弹，中共军方在8月对其进行了测试。川普和拜登政府已经禁止美国公司与航天科技集团做生意；跟踪中共军事活动的澳大利亚智库战略政策研究所（The Australian Strategic Policy Institute）认为CASC对外国的安全风险非常高，因为它与中共的军事和情报部门有联系。
 
+尼尔·布什在中共国有广泛的商业联系，并与中共的一些宣传机构密切合作。他是乔治·布什美中关系基金会的主席，该基金会共同赞助了这次太空研讨会。布什基金会在2019年从中共统战部下属的影响力团体–中美交流基金会（China–United States Exchange Foundation）获得了500万美元的资金。布什的商业伙伴–中共房地产投资商王天怡是这次太空研讨会的执行主席。
 
-> Today, I introduced the FAUCI Act in the House. Earlier this month, [@SenJoniErnst](https://twitter.com/SenJoniErnst?ref_src=twsrc%5Etfw) introduced a companion bill in the Senate.
-> 
-> The origin of COVID-19 is one of the most important questions we face. This bill demands transparency and justice on behalf of the American people.
-> — Rep. Chris Stewart (@RepChrisStewart) [November 16, 2021](https://twitter.com/RepChrisStewart/status/1460674635331252226?ref_src=twsrc%5Etfw)
+太空安全分析师布兰登·韦切特 (Brandon Weichert) 说：“尼尔·布什基本上是一个权力经纪人，他是中共利用的一个切入点。太空研讨会遵循典型的中共模式，即利用学术和商业论坛在西方招募专家和投资者，让西方的人才和投资来中共国做尖端研发项目。”
 
+美国的决策者对美国是否应该在太空探索方面与中共进行合作存在分歧，批评者担心中共会从美国同行那里窃取技术。拜登政府中的一些人则敦促美中两国在太空研究方面进行合作，包括美国国家航空航天局局长比尔·纳尔逊 (Bill Nelson)。尼尔·布什最近在接受中共智库“中国与全球化智库”采访时说：“毫无疑问，我们应该合作。”
 
+尼尔·布什还与聚焦中共国的智囊团、商界领袖和拜登政府有联系。布什担任了美中关系全国委员会（National Committee on U.S.-China Relations）2019年度晚宴的名誉副主席，该智库的任务之一是促进美中领导人之间的对话。气候大使约翰·克里 (John Kerry)等拜登政府官员也出席了该晚宴。除此之外，尼尔·布什还一直在为北京的人权侵犯行为辩护。
 
-前白宫经济顾问皮特·纳瓦罗： 最新消息：美国平均每天有83000例新确诊的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 病例。每24小时就有1000多名美国人死亡。 将羟基(hydroxy)推广到全美国，死亡率将大幅下降。在《川普时代》第7章中阅读原因。
-
-
-
-> Breaking news: on average 83,000 new confirmed Covid-19 cases in the U.S. each day. More than 1,000 Americans dying every 24 hours.
-> 
-> FLOOD America with hydroxy and this death rate will fall DRAMATICALLY. Read why in Chap 7 of In Trump Time [https://t.co/Ym7VExlzPT](https://t.co/Ym7VExlzPT)
-> — Peter Navarro (@RealPNavarro) [November 17, 2021](https://twitter.com/RealPNavarro/status/1460776245881360384?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 拜登白宫需要澄清——如果 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 入侵台湾，他们会怎么做。 【转推称政府一高级官员刚说不支持台湾独立，总统拜登又说支持台湾独立，自相矛盾，等待澄清】
-
-
-
-> The Biden White House needs to come clean — what will they do if Communist China invades Taiwan. [https://t.co/w4oHJA8bXH](https://t.co/w4oHJA8bXH)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 17, 2021](https://twitter.com/MarshaBlackburn/status/1460759664220590083?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 拜登正在一个流氓 [#共产主义国家](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E5%9B%BD%E5%AE%B6?src=hashtag_click) 的手中被玩弄，并背弃了我们对台湾说过的话。 【附福克斯新闻：中共国称拜登谴责“台独”并警告美“正在玩火”】
-
-
-
-> Biden is playing into the hands of a rogue, Communist state, and walking back on the word we have given Taiwan.[https://t.co/aL6R8CI5by](https://t.co/aL6R8CI5by)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 16, 2021](https://twitter.com/MarshaBlackburn/status/1460736500765712390?ref_src=twsrc%5Etfw)
-
-
-
-加拉格尔众议员新闻办： 众议员加拉格尔：“国务院正在鼓励我们的外交官不要使用‘[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的恶意影响力’这个词……国防部似乎正在放弃大国竞争这个词……这一切都相当于一种更天真的方式应对中共国。这让我很担心。” 【附福克斯电视台视频：众议员加拉格尔就拜习在紧张加剧的情况下的视频会面】
-
-
-
-> Rep. Gallagher: "The State Department is encouraging our diplomats not to use the phrase "malign Chinese influence"…the Defense Department seems to be walking away from the term great power competition…this all amounts to a more naive approach to China. That concerns me." [pic.twitter.com/RkNr1uV4KU](https://t.co/RkNr1uV4KU)
-> — Rep. Gallagher Press Office (@RepGallagher) [November 16, 2021](https://twitter.com/RepGallagher/status/1460732968931143688?ref_src=twsrc%5Etfw)
-
-
-
-众议员肯·巴克： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府正在窃取美国人的知识产权，威胁对台湾开战，入侵南中国海，进行种族灭绝，并支持在美国领土上进行网络攻击。 白宫通讯主任在推特上能想到的就只有中共国国旗？ 【附白宫通讯主任的推文】
-
-
-
-> The Chinese government is stealing Americans’ intellectual property, threatening war against Taiwan, invading the S. China Sea, committing genocide, & supporting cyberattacks on American soil.
->  
-> And all the White House Messaging Director can think of to Tweet is the Chinese flag? [https://t.co/IPVsmTyPeN](https://t.co/IPVsmTyPeN)
-> — Rep. Ken Buck (@RepKenBuck) [November 16, 2021](https://twitter.com/RepKenBuck/status/1460711006435430407?ref_src=twsrc%5Etfw)
-
-
-
-参议员兰德·保罗： 或者，一个负责资助功能增强研究并向公众撒谎的未经选举产生的官僚可能会损害我们对 COVID 的应对。 【附newsmax新闻：福奇说政治上的分裂损害了对新冠病毒的应对】
-
-
-
-> Or maybe an unelected bureaucrat responsible for funding gain-of-function research and lying to the public is doing harm to our response to COVID. [https://t.co/ozW8svdMDt](https://t.co/ozW8svdMDt)
-> — Senator Rand Paul (@RandPaul) [November 16, 2021](https://twitter.com/RandPaul/status/1460698796967538689?ref_src=twsrc%5Etfw)
-
-
-
-众议员丽莎·麦克莱恩： 台湾是值得信赖的盟友、伙伴和朋友，永远不应被 [#习主席](https://twitter.com/hashtag/%E4%B9%A0%E4%B8%BB%E5%B8%AD?src=hashtag_click) 和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 欺负。
-
-
-
-> Taiwan is a trusted ally, partner and friend and should never be bullied by Chairman [#Xi](https://twitter.com/hashtag/Xi?src=hash&amp;ref_src=twsrc%5Etfw) and the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw).
-> — Representative Lisa McClain (@RepLisaMcClain) [November 16, 2021](https://twitter.com/RepLisaMcClain/status/1460679240077254659?ref_src=twsrc%5Etfw)
-
-
-
-
+[新闻来源](https://freebeacon.com/national-security/bush-family-scion-sponsors-event-with-blacklisted-chinese-company/)
 
  
 
