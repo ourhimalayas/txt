@@ -2,26 +2,36 @@
 ---
 
 
-## [速报]中美开始在线峰会，习主席出演“共赢”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1668329/)
+## 白宫、CNN与芝麻街合作，向孩子们兜售COVID疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1668410/)
 
-#### 撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/222.png)（图片源自本文链接）
-11月16日TBS新闻消息：美国总统拜登和中共国国家主席习近平的首次在线峰会于日本时间上午10点前开始。
+作者：纽约香草山福音部 – lilian89
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月8日，美国有线电视新闻网（CNN）播出了一个特别节目：芝麻街虚拟市政厅，由Sanjay Gupta博士主持，邀请备受欢迎的卡通人物ELMO和 Big Bird，一起哄骗孩子们去接种COVID疫苗。
 
-在会议开始时，习主席呼吁“合作和双赢关系”，同时又为中共国的人权问题打圆场的强调“每个国家都需要根据自己的国情处理自己的问题”。会谈的焦点之一是拜登政府的参与度越来越高的台湾问题，但中国方面最近也有变化。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-12.jpeg)
 
-习近平曾说过会毫不犹豫地使用武力统一台湾，但在上个月的演讲中，却刻意克制的说他会寻求实现和平统一。虽然没有改变他长期坚持的寻求统一的政策，但他似乎已经考虑到了国际社会对使用武力的关注。
+辉瑞公司正试图告诉孩童们，他们的实验性mRNA covid疫苗注射液，将使小朋友们成为 “超级英雄 ”，并赋予他们超能力。
 
-其背景，是中共国的政治日程。尽管已是“习近平一人独霸其政”，但人们猜测本次会谈很可能旨在邀请拜登参加北京冬奥运会和明年那个意义不凡的党代会，希望借此消除其外交中的任何不稳定因素。
+美国疾病预防控制中心，上周根据一项 “紧急使用授权”，向儿童灌输辉瑞公司的实验性mRNA疫苗注射液。两周前，美国食品和药物管理局疫苗顾问小组成员埃里克-鲁宾博士，在签署为5至11岁儿童注射疫苗令前，也声称，“除非我们开始注射，否则我们永远不会了解这种疫苗有多安全”。
 
-信息源：
+参考链接：
+1）[White House, CNN Work With Sesame Street to Shill Covid Vax to Kids](https://www.informationliberation.com/?id=62655)
+2）[White House, CNN work with Sesame Street to shill COVID vax to kids](https://dreddymd.com/2021/11/16/white-house-cnn-work-with-sesame-street-to-shill-covid-vax-to-kids/)
 
-[【速報】米中首脳オンライン会談開始、習主席「ウィンウィンで」（TBS系（JNN）） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/9640bac5b05a98574e11811b5f00608db3b6109c)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+总编：文特
+编辑：Kathy文艺
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

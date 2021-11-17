@@ -2,36 +2,50 @@
 ---
 
 
-## 白宫：1.75T的BBB无法支付，美国人明年需要加税了
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1670290/)
+## 禽流感在欧洲和亚洲蔓延
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1670332/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+**【简评：】***世卫组织已经在其网站上表示：“虽然最近发现的禽流感病毒目前不容易在人与人之间传播，但这些病毒在家禽中的持续传播令人担忧，因为这些病毒会导致人类严重疾病，并有可能发生变异，从而在人与人之间变得**更具传染性**”。中共国在2021年向世卫组织通报称，有21起人类感染H5N6亚型禽流感的案例，而去年只有5起。虽然这21名患者，相比2017年感染H7N9毒株的数百人要低得多，但是这些感染非常严重，导致多人病危和6人死亡。世卫组织在10月4日的一份声明中，强调了病例的增加，并说大多数病例都与家禽接触过，没有人传人的确认病例。在经历过COVID-19之后，我们对世卫组织的“不会人传人”的声明，要打一个大大的问号。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-13-1.png)法新社通过盖蒂图片社
+据《路透社》记者Gus Trompiz and Sybille de La Hamaide，2021年11月15日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-340-e1637102831600.png)图片来源：日本共同通讯社/路透社
+日本共同社于2020年11月8日拍摄的这张照片上，身穿防护服的官员前往日本西部东川的一个家禽养殖场，调查疑似禽流感病例。
 
-拜登总统及其政府成员长期以来一直吹捧BBB（Built Back Better）法案[将花费“zero dollar”](https://nypost.com/2021/09/27/joe-biden-slammed-for-build-back-better-price-claim-lie/)（税收大部分由中产阶级承担）,这笔法案花费是来自增加公司税、为富有的美国人填补税收漏洞,以及其他改革（比如虚拟货币交易）将[创造足够的抵消作用](https://www.whitehouse.gov/briefing-room/statements-releases/2021/10/28/president-biden-announces-the-build-back-better-framework/)。
+**路透巴黎11月15日电，世界动物卫生组织(OIE)近日接到欧洲和亚洲爆发的数起严重禽流感疫情的报告，显示该病毒正再度迅速传播。**
 
-自上周以来，[CBO 已经发布](https://nypost.com/2021/11/10/cbo-releases-estimates-for-1-75t-biden-social-spending-bill/)了对该法案八个部分的[初步估计](https://nypost.com/2021/11/10/cbo-releases-estimates-for-1-75t-biden-social-spending-bill/)。到目前为止，该机构已经发现这八个部分中的一部分——如果包含在最终立法中——将使联邦预算赤字增加 1500 亿美元以上。预计周五（19日）将对完整立法进行评分。 据《泰晤士报》报道，拜登政府高级官员先发制人地声称， CBO 的估计是“过于保守”，其没有适当考虑加强 IRS 执法所筹集到的资金。
+高致病性禽流感（通常称为禽流感）的蔓延，已经使家禽行业进入警戒状态，此前的爆发导致数千万只家禽被扑杀。疫情暴发通常还会导致贸易限制。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-14-1.png)
+**由于该病毒可以传播给人类，因此它也引起了流行病学家的关注。 今年迄今为止，中国报告了 21 例人类感染 H5N6 禽流感亚型的病例，比2020年全年都多。**
 
-几个月来，《重建更好法案》(BBB Act)在众议院和参议院都面临着一场艰苦的战斗，而 CBO 的一份负面报告可能会给拜登政府带来更多问题。众议院温和的民主党人在看到评分之前一直对承诺投票支持该法案持谨慎态度，而参议员乔曼钦（D-WV）——上议院的关键一票——其坚持要求[该立法应得到全额支付](https://nypost.com/2021/07/13/joe-manchin-says-both-infrastructure-bills-should-be-paid-for/)。
+世界动物卫生组织(OIE)周一援引韩国当局的一份报告称，在忠清北道的一个约有 77万只家禽的农场爆发了禽流感，所有动物都已被屠宰。
 
-许多人质疑《重建更好法案》是否真的需要印刷 1.75 万亿美元，[美国商会](https://nypost.com/2021/11/11/chamber-of-commerce-dems-using-gimmicks-to-hide-spending/)上周[指责](https://nypost.com/2021/11/11/chamber-of-commerce-dems-using-gimmicks-to-hide-spending/)民主党人使用会计的“噱头”（小聪明）来隐藏超过 1 万亿美元的支出。
+OIE表示，同样在亚洲，日本报告了 2021 年冬季的首次疫情，在该国东北部的家禽养殖场爆发，证实了日本农业部上周发表的一份声明。此次暴发的血清型是 H5N8。在欧洲，挪威报告在罗加兰地区的7000只禽鸟中爆发了H5N1禽流感。
 
-“我们有 31 年来最高的通货膨胀率，雇主正在努力填补创纪录的职位空缺，而目前的和解法案草案使用小聪明来掩盖，超过 1 万亿美元的支出，”美国商会执行副总裁兼首席政策警官尼尔·布拉德利（Neil Bradley）在一份声明中说。
+疫情通常发生在秋季，由迁徙的野生鸟类传播。
 
-他补充说：“如果美国国会议员在不了解其真实成本或政策对现实世界的影响的情况下，就对这一项价值数万亿美元的税收和支出法案进行投票，那将是最不负责任的行为。”
+在安特卫普附近的一只野鹅身上发现了一种高致病性的禽流感变种后，比利时政府将该国置于禽流感风险上升的状态，下令从周一开始将家禽关在室内饲养。
 
-上个月，[宾夕法尼亚大学沃顿商学院进行的](https://nypost.com/2021/10/29/biden-1-75t-bills-taxes-pay-for-less-than-wh-claims-study/)一项分析发现，用于抵消 1.75 万亿美元支出的税收将比支付账单所需的净额度，少约 4700 亿美元。  白宫估计，新的和更高的征税款项所筹集到是 1.995 万亿美元，但沃顿商学院的预算模型估计它们只能带来 1.527 万亿美元——比白宫数字低 4680 亿美元，比法案的最高成本少 2230 亿美元。
+邻国法国在本月早些时候，以及荷兰在10月份也采取了类似的行动。
 
-新闻来源：[nypost.com] [WH warns CBO won’t say $1.75T BBB paid for, tells Dems to ‘disregard’: report](https://nypost.com/2021/11/16/white-house-warns-cbo-wont-rule-spending-bill-paid-for-report/) | 发布时间：2021年11月16日|封面图来源：盖蒂图片社
+禽流感不会通过食用家禽产品传播。
 
-* * *
+原文连接：[https://www.reuters.com/business/healthcare-pharmaceuticals/norway-reports-bird-flu-farm-oie-says-2021-11-15/](https://www.reuters.com/business/healthcare-pharmaceuticals/norway-reports-bird-flu-farm-oie-says-2021-11-15/)
 
-*发稿：信心的选择*
+翻译：洛杉矶盘古农场 – 钢蛋儿
 
-![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
+校对：洛杉矶盘古农场–轰炸机
+
+评论：洛杉矶盘古农场 – 钢蛋儿
+
+编辑：洛杉矶盘古农场 – 柯镇恶
+
+
+
+
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

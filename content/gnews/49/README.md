@@ -2,22 +2,40 @@
 ---
 
 
-## 一语成谶——北上广深10月房价下跌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1668336/)
+## 俄克拉荷马国民警卫队最高长官上任伊始签署反疫苗令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1668412/)
 
-#### 撰稿：东京樱花团/墨然
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4444.png)图片来源网络
-11月15日，中共国国家统计局公布了2021年10月份70个大中城市商品住宅销售价格变动情况。统计数据显示，10月份，70个大中城市商品住宅销售价格环比总体延续略降态势，同比涨幅继续回落。此外，房价下跌的城市数量有所增加。环比来看，据测算，10月份一线城市新建商品住宅销售价格环比持平。二线城市新建商品住宅销售价格环比由9月持平转为下降0.2%；二手住宅销售价格环比下降0.3%，降幅比9月扩大0.2个百分点。三线城市新建商品住宅销售价格和二手住宅销售价格环比均下降0.3%，降幅比9月均扩大0.1个百分点。
+作者：英国喜庄园 – I770775
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-321.png)
+11月14日，陆军准将托马斯·曼奇诺于2021年11月11日发布命令，停止俄克拉荷马州国民警卫队强制注射中共病毒疫苗。
 
-中共国房地产泡沫破裂是一个不可逆转的趋势，当前的北上广深房地产价格下跌就是一个信号。北上广深作为中共国一线城市，其房价的变动情况可直接反映出整体的房地产市场情况。纵观三线、四线小城，在过去的几个月，房地产大幅度下跌，甚至到达了无人问津的地步。近三个月，从中共公布的数据来看，一线城市的房价也在逐步下滑。从当前整体的经济形势来看，公布的数据显然存在不真实的情况。相信在不久的将来，房地产市场面临的风险会越来越大，直到无可控制的地步。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-11.jpeg)
 
-新闻来源：
+该命令是在托马斯被任命为该州的最高将军不到24小时的时间里发出的，也是在联邦上诉法院维持对拜登的强制疫苗令要求暂缓执行的前一天。
 
-[11.16 北上广深全降了！10月二手房全国性降温](https://3g.163.com/news/article/GOU0L5D30007871T.html)
+曼奇诺上任的第一件事就是停止疫苗令，他说：俄克拉荷马州的国民卫队不会被要求注射中共病毒疫苗，也不会因拒绝接种中共病毒疫苗而受负面的行政或法律行动。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+参考链接：[俄克拉荷马州国民警卫队新任指挥官拒绝接受疫苗任务](https://gnews.org/zh-hans/1666719/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：木白
+编辑：木白
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

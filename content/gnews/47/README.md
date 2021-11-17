@@ -2,39 +2,26 @@
 ---
 
 
-## 俄克拉荷马国民警卫队最高长官上任伊始签署反疫苗令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1668412/)
+## 起诉书无耻且具有争议 美国司法正向中共靠拢
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1668503/)
 
-作者：英国喜庄园 – I770775
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-321.png)
-11月14日，陆军准将托马斯·曼奇诺于2021年11月11日发布命令，停止俄克拉荷马州国民警卫队强制注射中共病毒疫苗。
+#### 翻译/撰稿：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/80124403_dershowitz.jpg)图片来源：BBC
+根据布莱特巴特新闻（Breitbart News）11月15日的报道，拜登的司法部周五起诉了前川普总统的顾问、布莱特巴特新闻的前主席史蒂夫·班农（Steve Bannon）。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-11.jpeg)
+班农先生周一向联邦当局自首，由于班农先生无视众议院委员会关于1月6日事件的调查传讯，他将面临藐视法庭的指控。
 
-该命令是在托马斯被任命为该州的最高将军不到24小时的时间里发出的，也是在联邦上诉法院维持对拜登的强制疫苗令要求暂缓执行的前一天。
+对此，哈佛学院名誉教授艾伦·德肖维茨（Alan Dershowitz）表示：“这是一份无耻的起诉书。我会告诉你这为什么无耻。如果你没有起诉过别人，你就不会知道法律是什么样的。因为如果总统告诉班农不要回答，那么就没有人知道班农是否有权拒绝回答。这是一个有争议的问题。因此不适合以此作为刑事起诉的主题。”
 
-曼奇诺上任的第一件事就是停止疫苗令，他说：俄克拉荷马州的国民卫队不会被要求注射中共病毒疫苗，也不会因拒绝接种中共病毒疫苗而受负面的行政或法律行动。
+德肖维茨解释道，“保留前总统的行政保密权是一个有争议的法律问题。”他建议对这种有争议的合法性问题进行调查。
 
-参考链接：[俄克拉荷马州国民警卫队新任指挥官拒绝接受疫苗任务](https://gnews.org/zh-hans/1666719/)
+德肖维茨说：“（为了弄清楚这个有争议的法律）你要去到法院，你得到一个宣告判决，你得到一个禁令，你得到法院的命令，只有这样才是有可能。为了弄清这个法律是什么，你用尽除了刑事司法系统以外的所有代替方法。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+对于这个有争议性的法律问题德肖维茨继续举例解释道：“如果有10个宪法学者在一个房间里，这10人里不包括拉里·特里布（Larry Tribe），因为他不是一个学者，他是一个党派倡导者。在这个10人的房间里，如果你没有告诉他们这个人是民主党还是共和党，这时无论前总统是否授权他的前顾问不要把资料交出来，或不要作证，那么得到的结果将是五五开。”
 
-总编：木白
-编辑：木白
-校正/发稿：谐趣园
+最后德肖维茨总结重申：“这是一个困难的、闭门问题，不适用于刑事起诉的主题。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
-
-
-
+新闻来源：[Exclusive — Alan Dershowitz: Bannon Indictment ‘Outrageous’, ‘Disputed Question’ Whether Trump Retains Executive Privilege](https://www.breitbart.com/radio/2021/11/15/exclusive-alan-dershowitz-bannon-indictment-outrageous-disputed-question-whether-trump-retains-executive-privilege/)
 
  
 

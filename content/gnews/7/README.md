@@ -2,26 +2,30 @@
 ---
 
 
-## 英国政府批准“皮肤贴片疫苗”人体试验
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1670542/)
+## 有声|新中国联邦战友真正拥有G系列
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1670563/)
 
-采编：青青      编译撰稿：苦尽甜来 (文来）
+配音：香草山教育部 – 蒙古鸿雁
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-2-edited.png)图片来源：TH
+11月12日，郭文贵先生在大直播中说，新中国联邦人的投资涵盖了整个G系列，成为真正的主人。而不会像某社交媒体，把最初80%的小股东排挤出去。那些小股东承担了高风险，但被资本运作后，却失去了获得巨额回报的机会。
 
+郭先生说，战友在G系列的占比，分别是，喜联储占60%，盖特占90%，GTV占 99%，GCLUB 占90%，G-Fashion 占50% 并掌管客服的维护运行。此外，战友掌握10亿个喜币中的6亿个，所有战友还拥有喜联储 5% 以及盖特5% 的份额。
 
-据加拿大媒体【CTV新闻】11月16日报道，英国牛津郡的【Emergex医药公司】最近开发了一种已获该国政府批准进行人体试验，并通过带有微型针头的皮肤贴片进行输送接种的新型“冠状病毒”疫苗。
+郭先生表示，在人类面临新秩序重建的时刻，新中国联邦走在最前沿，G系列已经把新中国联邦人集结在一起。
 
-报道指出，该公司的这款新疫苗，其医疗原理是通过激活接种者体内部分免疫系统中的T型白细胞，以快速清除被“新冠病毒”感染的身体其他细胞。据悉，该疫苗可以在不需要注射加强剂的情况下，提供对“病毒变异体”广泛而持久的免疫力。
+文字版原文：[新中国联邦战友真正拥有G系列](https://gnews.org/zh-hans/1662979/)
 
-与此不同的是，目前在加拿大被推广接种的大多数，包括【辉瑞公司】的“新冠病毒”疫苗，都是在“通过将接种者身体器官的细胞暴露于该病毒的刺突蛋白”之后，而使其体内免疫系统产生抗体反应的。
+音频处理：喜山必胜Maverick
 
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://www.ctvnews.ca/health/coronavirus/u-k-covid-19-vaccine-to-be-delivered-by-skin-patch-approved-for-human-trials-1.5667401)
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
