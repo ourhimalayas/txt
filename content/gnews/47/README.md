@@ -2,27 +2,32 @@
 ---
 
 
-## 擀面杖细了，中共紧急兑现2000亿缓税费
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1671723/)
+## 维州“流行病法”修改后将在议会通过
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1671779/)
 
-撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-126.jpg)S
-[图片来源](https://www.rakumachi.jp/news/wp-content/uploads/2017/09/Fotolia_169316811_S.jpg)
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/台湾1-1.jpeg)图片来源：SKY NEWS
+**翻译：**波澜壮阔
+**编辑：**翼族
 
-11月初，中共国务院公布了《关于制造业中小微企业延缓缴纳2021年第四季度部分税费有关事项的公告》（下称《公告》），对年销售额4亿元以下的制造业中小企业第四季度缓缴五税两费，其中年销售额2000万元至4亿元的缓缴一半税费，2000万元以下缓缴全部税费。
+据《天空新闻》记者安德里亚·克罗瑟斯（Andrea Crothers）报道，维州安德鲁斯政府备受争议的“大流行病法”在七项“关键的修正”之后，将于本周末在维多利亚州议会获得通过。
 
-11月中旬，上述缓税费政策就已紧急落地，这对于毫无效率的中共政府而言是极其不寻常的举动。但缓税费不是免税费，只是延迟交税费，名义上是解中小企业燃眉之急，减轻经营压力，弥补现金流不足，实际意图是延缓中共国擀面杖经济崩塌，延迟政府破产，推迟中共灭亡。
+修正案包括将最高罚款减半，并要求在7天内而不是14天内发布通知，告知公共卫生命令。
 
-文贵先生曾说，国内经济已经捂不住了，它从来就是擀面杖经济，擀面杖子有时候，它也会失控，它时间长就磨细。中共高负债、高税收的发展方式给世界经济埋下了巨大的核弹，中共国的全部利润不够偿还贷款利息，尚有大量外债无法兑付，这个雷最终会炸到我们同胞，中小企业就是直接的受害者。中共见谁都喜欢开药方，这2000亿缓税费就想解救处于破产危机中的中小企业，就能缓解经济爆雷？苟延残喘罢了。
+克罗瑟斯女士对天空新闻节目主持人佩塔·克雷德林称，今天发言的跨党派人士没有得到他们想要的一切。他们仍然担心拘留问题，但他们对目前的结果感到满意。
 
-信息来源：
+克罗瑟斯女士表示，该法案预计将在周四或周五之前获得通过，以取代将于12月15日到期的现行的紧急状态权力法。
 
-[2000亿缓税费兑现，企业：相当于一笔短期无息贷款](https://www.yicai.com/news/101232029.html)
+然而，克雷德林女士指出，有许多法律专家认为，修订后的法律仍将使州长手中的权力过大，缺乏足够的来自议会的监督。
 
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
+**原文链接：**[Victoria’s pandemic laws ‘poised’ to pass through parliament after ‘key amendments’](https://www.msn.com/en-au/news/other/victoria-s-pandemic-laws-poised-to-pass-through-parliament-after-key-amendments/ar-AAQL8uw?ocid=msedgntp)
 
+*发布：翼族*
+
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

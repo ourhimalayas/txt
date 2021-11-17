@@ -15,161 +15,161 @@
 
 ---
 
-### [女医生感激“青蒿素”救了她全家（一）](/content/gnews/1/README.md)
+### [中共病毒口服药比疫苗还毒](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [OSHA宣布暂停执行拜登的疫苗强制令](/content/gnews/2/README.md)
  ` HimalayaRussia`
 
-### [习近平上升到毛泽东和邓小平的水平以延续自己的权力](/content/gnews/2/README.md)
+### [女医生感激“青蒿素”救了她全家（一）](/content/gnews/3/README.md)
+ ` HimalayaRussia`
+
+### [习近平上升到毛泽东和邓小平的水平以延续自己的权力](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [11月17日文贵大直播快讯——习拜会是中共吓唬百姓的手段](/content/gnews/3/README.md)
+### [11月17日文贵大直播快讯——习拜会是中共吓唬百姓的手段](/content/gnews/5/README.md)
  ` 澳喜特战旅Gnews`
 
-### [【文贵先生大直播PPT】乔拜登无力改变中共，习近平决意称霸世界](/content/gnews/4/README.md)
+### [【文贵先生大直播PPT】乔拜登无力改变中共，习近平决意称霸世界](/content/gnews/6/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [11月17日文贵大直播快讯——中共是邪恶势力的最大勾兑者](/content/gnews/5/README.md)
+### [11月17日文贵大直播快讯——中共是邪恶势力的最大勾兑者](/content/gnews/7/README.md)
  ` 澳喜特战旅Gnews`
 
-### [自Covid-19袭击以来，英国有46.5万人从劳动力队伍中失踪](/content/gnews/6/README.md)
+### [自Covid-19袭击以来，英国有46.5万人从劳动力队伍中失踪](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【文贵先生大直播PPT]再谈喜币，喜美元与喜支付](/content/gnews/7/README.md)
+### [【文贵先生大直播PPT]再谈喜币，喜美元与喜支付](/content/gnews/9/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [指控中共国官员性侵的网球明星现已失踪](/content/gnews/8/README.md)
+### [指控中共国官员性侵的网球明星现已失踪](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [GTV新闻访谈简报|2021年11月17日早](/content/gnews/9/README.md)
+### [GTV新闻访谈简报|2021年11月17日早](/content/gnews/11/README.md)
  ` 纽约香草山MOS01`
 
-### [银河快讯：日经平均指数连涨三天；日美将解决额外钢铁关税争端](/content/gnews/10/README.md)
+### [银河快讯：日经平均指数连涨三天；日美将解决额外钢铁关税争端](/content/gnews/12/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [黄明志：拒绝政治控制艺术](/content/gnews/11/README.md)
+### [黄明志：拒绝政治控制艺术](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农的律师：起诉委员会违反法律下的平等正义原则](/content/gnews/12/README.md)
+### [班农的律师：起诉委员会违反法律下的平等正义原则](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [圣约翰市心脏病专家接种中共病毒疫苗两周后去世](/content/gnews/13/README.md)
+### [圣约翰市心脏病专家接种中共病毒疫苗两周后去世](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [【文贵先生大直播PPT】近期的全球疫苗灾难](/content/gnews/14/README.md)
+### [【文贵先生大直播PPT】近期的全球疫苗灾难](/content/gnews/16/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [11月17日文贵大直播快讯——疫苗千万不能打](/content/gnews/15/README.md)
+### [11月17日文贵大直播快讯——疫苗千万不能打](/content/gnews/17/README.md)
  ` 澳喜特战旅Gnews`
 
-### [银河快讯：日本为石油销售商提供补贴；日本政府一体化推动数字改革](/content/gnews/16/README.md)
+### [银河快讯：日本为石油销售商提供补贴；日本政府一体化推动数字改革](/content/gnews/18/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [2021年11月17日文贵先生直播大雨围城速记](/content/gnews/17/README.md)
+### [2021年11月17日文贵先生直播大雨围城速记](/content/gnews/19/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [辉瑞CEO: 我身体健康，不在前线工作，无需打疫苗](/content/gnews/18/README.md)
+### [辉瑞CEO: 我身体健康，不在前线工作，无需打疫苗](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/17/2021 国际财经快讯：欧洲央行认为住房泡沫破裂的风险在上升;日本官员将考虑讨论提高资本收益税问题](/content/gnews/19/README.md)
+### [11/17/2021 国际财经快讯：欧洲央行认为住房泡沫破裂的风险在上升;日本官员将考虑讨论提高资本收益税问题](/content/gnews/21/README.md)
  ` 秘密翻译组金融团队`
 
-### [山姆·法迪斯：中情局弱化了中共对美国及全世界构成的威胁](/content/gnews/20/README.md)
+### [山姆·法迪斯：中情局弱化了中共对美国及全世界构成的威胁](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11月17日文贵大直播快讯——拥有喜币是为了灭共](/content/gnews/21/README.md)
+### [11月17日文贵大直播快讯——拥有喜币是为了灭共](/content/gnews/23/README.md)
  ` 澳喜特战旅Gnews`
 
-### [疫苗强制令下人员短缺导致救援不及](/content/gnews/22/README.md)
+### [疫苗强制令下人员短缺导致救援不及](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [2021年11月17日文贵先生直播小飞象大雨围城速记](/content/gnews/23/README.md)
+### [2021年11月17日文贵先生直播小飞象大雨围城速记](/content/gnews/25/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [有声|中共加强对网络从业者管控和迫害力度](/content/gnews/24/README.md)
+### [有声|中共加强对网络从业者管控和迫害力度](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [中共国又一名抗疫医生猝死](/content/gnews/25/README.md)
+### [中共国又一名抗疫医生猝死](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [美日海军南海潜舰联合训练演习](/content/gnews/26/README.md)
+### [美日海军南海潜舰联合训练演习](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [有声|意大利政府对中共国收购军用无人机公司提出正式控告](/content/gnews/27/README.md)
+### [有声|意大利政府对中共国收购军用无人机公司提出正式控告](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [疯狂：福奇承认新冠病毒正在杀人，称“助推器”会以某种方式阻止屠杀](/content/gnews/28/README.md)
+### [疯狂：福奇承认新冠病毒正在杀人，称“助推器”会以某种方式阻止屠杀](/content/gnews/30/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [有声|医学博士揭露刺突蛋白是人类史上最精心设计的毒素之一](/content/gnews/29/README.md)
+### [有声|医学博士揭露刺突蛋白是人类史上最精心设计的毒素之一](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [日本经济安保法案排除中共敏感设备](/content/gnews/30/README.md)
+### [日本经济安保法案排除中共敏感设备](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [灭共洪潮 · 喜币](/content/gnews/31/README.md)
+### [灭共洪潮 · 喜币](/content/gnews/33/README.md)
  ` 首尔天池农场`
 
-### [内斗加剧，孙力军团伙被彻查](/content/gnews/32/README.md)
+### [内斗加剧，孙力军团伙被彻查](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [美台资深官员将于华盛顿举行会议](/content/gnews/33/README.md)
+### [美台资深官员将于华盛顿举行会议](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [台湾陆委会强烈驳斥习近平涉台谈话](/content/gnews/34/README.md)
+### [台湾陆委会强烈驳斥习近平涉台谈话](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [“请记住，消灭中共！”班农走出联邦法院后再次强调](/content/gnews/35/README.md)
+### [“请记住，消灭中共！”班农走出联邦法院后再次强调](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [有声|国际女网协会要求中共调查彭帅被性侵事件](/content/gnews/36/README.md)
+### [有声|国际女网协会要求中共调查彭帅被性侵事件](/content/gnews/38/README.md)
  ` MOSREC`
 
-### [盖特全球推广稳步展开](/content/gnews/37/README.md)
+### [盖特全球推广稳步展开](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
-### [国际社会反对中共人员进入国际刑警组织](/content/gnews/38/README.md)
+### [国际社会反对中共人员进入国际刑警组织](/content/gnews/40/README.md)
  ` GTV新闻访谈`
 
-### [共产党是全世界邪恶势力的总部](/content/gnews/39/README.md)
+### [共产党是全世界邪恶势力的总部](/content/gnews/41/README.md)
  ` 首尔天池农场`
 
-### [林郑月娥承认依照中共国安法审核外媒签证](/content/gnews/40/README.md)
+### [林郑月娥承认依照中共国安法审核外媒签证](/content/gnews/42/README.md)
  ` GTV新闻访谈`
 
-### [11/17/21 香港快讯 立会投票日廉署将动员8百人 吁勿转载煽动投白票言论](/content/gnews/41/README.md)
+### [11/17/21 香港快讯 立会投票日廉署将动员8百人 吁勿转载煽动投白票言论](/content/gnews/43/README.md)
  ` 英喜-粵語組`
 
-### [中国的习近平在虚拟峰会上威胁拜登，声称美国将在台湾问题上“被烧死”](/content/gnews/42/README.md)
+### [中国的习近平在虚拟峰会上威胁拜登，声称美国将在台湾问题上“被烧死”](/content/gnews/44/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西媒头条 — 第111期](/content/gnews/43/README.md)
+### [西媒头条 — 第111期](/content/gnews/45/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [台湾前线｜拜登：台湾是否独立 台湾自己决定](/content/gnews/44/README.md)
+### [台湾前线｜拜登：台湾是否独立 台湾自己决定](/content/gnews/46/README.md)
  ` G&#124;News TAIWAN`
 
-### [维州“流行病法”修改后将在议会通过](/content/gnews/45/README.md)
+### [维州“流行病法”修改后将在议会通过](/content/gnews/47/README.md)
  ` 走进澳洲`
 
-### [COVID-19最新情报｜奥地利未接种疫苗 没事恐无法出门](/content/gnews/46/README.md)
+### [COVID-19最新情报｜奥地利未接种疫苗 没事恐无法出门](/content/gnews/48/README.md)
  ` G&#124;News TAIWAN`
 
-### [擀面杖细了，中共紧急兑现2000亿缓税费](/content/gnews/47/README.md)
+### [擀面杖细了，中共紧急兑现2000亿缓税费](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国东中西三地同时地震](/content/gnews/48/README.md)
+### [中共国东中西三地同时地震](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜习所赐](/content/gnews/49/README.md)
+### [拜习所赐](/content/gnews/51/README.md)
  ` 银河勇气之星`
 
-### [如何改善肠道生物群落与免疫功能？](/content/gnews/50/README.md)
- ` 澳喜农场`
-
-### [2021/11/15 墙内世界](/content/gnews/51/README.md)
+### [2021/11/15 墙内世界](/content/gnews/52/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [七哥谈喜联储VI:白皮书和摩根士丹利的加密系统无人匹敌](/content/gnews/52/README.md)
- ` NewFOC`
 
 ### [许家印的70亿能让恒大续命几秒？](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
