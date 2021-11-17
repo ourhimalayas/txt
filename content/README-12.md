@@ -16,6 +16,8 @@
 ---
 ## 頁面 12/37 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [37](/content/README-37.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)
 
+[文字版:2020年4月29日郭先生GTV直播](/content/2020/05/20200502-8838486692400180379.md)
+
 [文字版:2020年4月28日郭先生GTV直播](/content/2020/05/20200502-1137245394833329218.md)
 
 [文字版：2020年4月27日郭先生GTV直播](/content/2020/05/20200502-6467348940863168493.md)
@@ -63,8 +65,6 @@
 [文字版：2020年3月27日一切美好再也回不到今天了](/content/2020/03/20200331-6998457737623230780.md)
 
 [文字版：2020年3月25日警示九千万党员不要成为皇帝死前的陪葬](/content/2020/03/20200328-980133680998762013.md)
-
-[文字版：2020年3月23日文贵警示好好活着，一年后再想着上班赚钱](/content/2020/03/20200325-1518205290434863780.md)
 
 
 ## 頁面 12/37 [**<**](/content/README-11.md) [1](/content/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) [17](/content/README-17.md) ... [37](/content/README-37.md) [**>**](/content/README-13.md) [查看全部](/content/README-all.md)

@@ -16,6 +16,8 @@
 ---
 ## 頁面 11/37 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [37](/content/README-37.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
 
+[文字版：2020年5月30日郭先生GTV直播](/content/2020/06/20200602-6823555117302845700.md)
+
 [文字版:郭先生2020年5月29日GTV直播](/content/2020/06/20200601-3800927915915287668.md)
 
 [文字版:5月27日郭先生GTV直播](/content/2020/05/20200530-3579241706056800133.md)
@@ -63,8 +65,6 @@
 [文字版：5月2日郭先生GTV直播爆料香港P3实验室](/content/2020/05/20200504-2906844940978365909.md)
 
 [文字版：4月30日郭先生GTV直播，跟正在看直播的共产党员们聊两句](/content/2020/05/20200503-2344599282144457777.md)
-
-[文字版:2020年4月29日郭先生GTV直播](/content/2020/05/20200502-8838486692400180379.md)
 
 
 ## 頁面 11/37 [**<**](/content/README-10.md) [1](/content/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [15](/content/README-15.md) [16](/content/README-16.md) ... [37](/content/README-37.md) [**>**](/content/README-12.md) [查看全部](/content/README-all.md)
