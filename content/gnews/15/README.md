@@ -2,26 +2,21 @@
 ---
 
 
-## 国际社会反对中共人员进入国际刑警组织
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672119/)
+## 有声|医学博士揭露刺突蛋白是人类史上最精心设计的毒素之一
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1672166/)
 
-作者：澳喜农场 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月16日，消息显示，中共公安部副局长胡彬郴试图竞逐国际刑警组织执委一职，此举随即引发国际政坛的广泛质疑和严重关切。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-41.jpg)
-资料称，由多个国家议会及党派组成的“对华跨国议会联盟” 已经公开发声表示，强烈反对将胡彬郴列入国际刑警组织执委会，需防止中共借此机会，利用发布“红色通缉令”的手段来追踪并打压异议人士。
+配音：香草山教育部 – 蒙古鸿雁
 
-该组织在给国际刑警组织的信件中指出，倘若选举胡彬郴进入执委会，就是向中共继续滥用“国际刑警组织”权力的行为大开绿灯，会让生活在国外的香港、维吾尔、西藏、台湾和中共国异议人士身处更大的危险之中。
+11月15日，著名有遗传学、高等生物学、微生物学和生物化学博士—-山卡拉·切蒂在视频中指出，刺突蛋白是人类有史以来最精心策划的毒素，可以悄然无形地杀死数十亿人。而新冠疾病的病原体是刺突蛋白，而无论灭活疫苗还是mRNA疫苗，都是在身体里制造更多的刺突蛋白。
 
-参考链接：
-[中国公安部高官竞逐国际刑警组织执委，引发人权团体和政界人士关切](https://www.voachinese.com/a/chinese-official-seeks-interpol-role-sparking-fears-for-dissidents-20211115/6313846.html)
+切蒂博士还分析了疫苗不易被质疑的原因。疫苗引发的过敏反应导致死亡，通常在接种后第8天，但这处于CDC规定的14天期限内，被统计在未接种数字中。这样的统计方法让人心生恐惧，互相指责，但这只是开始。刺突蛋白造成的内皮损伤，可以出现在身体任何部位，引发自身免疫系统的过激反应。这种对身体的损伤，甚至死亡，将会因分布之广、数量之多、时间跨度之长，很难被质疑是疫苗引起的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+文字版原文：[医学博士揭露刺突蛋白是人类史上最精心设计的毒素之一](https://gnews.org/zh-hans/1670635/)
 
-总编：文徬
-编辑：文特
-校正/发稿：Fei797
+音频处理：喜山必胜Maverick
 
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

@@ -2,27 +2,28 @@
 ---
 
 
-## 有声| 疫苗灾难明年5月份开始
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1672082/)
+## 日本经济安保法案排除中共敏感设备
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672156/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-疫苗里的刺蛋白会导致人体DNA修复功能丧失，打了中共病毒疫苗毒针的加强针后，几乎都出现了比较严重的反应，包括发烧、疼痛、浑身无力，持续2-3天左右，现在医院和研究机构发现很多人在前两针接种后没有什么反应，但是会对加强针的反应很大。
+作者：纽约香草山 医疗部 – 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+综合日本媒体11月12日到14日的报道，日本政府为了保障经济安全，将制定《经济安全保障推进法案》，目地在于确保日本的技术、情报不外流，以及稳定半导体的供应。
 
-事实上加强针就是看你死得慢，再加强一下死快点，伪装成疫苗的杀人毒针就是为了全球大规模屠杀而准备的，制造杀人毒药的真正幕后老板，就是全球黑暗集团的主人，势力非常庞大，可以直接下令世界各国领袖，使他们都像变成魔鬼一样强制国民打毒针。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-14.jpeg)
 
-郭文贵先生直播告诉世界,中共将再次释放新病毒，为了杀人和提高毒针的接种率，快速达到黑暗势力的屠杀目的。爆料革命提前爆出真相预警世界，做好防护准备拒绝毒针屠杀，建立新中国联邦国防军，奋力反抗，否则这个地球的灾难不知何时才能完结。
+预计，这次的法案将包括“供应链坚韧化”、“维持基础建设功能”、“专利非公开化”及“确保技术基础”这四大重点。
 
-在抗议疫苗暴政的游行队伍中的白人男子手持的牌子上写着“不打疫苗的精子是下一个比特币”，真的太棒了。看来世界各地人们不论肤色、种族，都在听文贵先生的大直播，只有不断地告诉世界真相，才能一次次地挫败黑暗势力和中共的屠杀手段。虽然恶魔们会更加疯狂更加残忍，但是他们永远也无法得逞。
+除此之外，法案还考虑加入“事前审查制度”，要求日本的通讯、能源、金融等产业在购置重要基础设备时，避免引进有安全性风险的产品。据了解，此举主要是为避免引进会影响运作安全性的中共产品或系统。
 
-爆料革命不断地传播真相，向全世界传播病毒和疫苗的真相，使人们觉醒，使人们知道保护好自己和孩子们。让我们都拿起手中的武器，送恶魔下地狱去，胜利必定属于爆料革命和世界正义的人。
+另外，法案中也规定了特定专利非公开化的条款，主要是为防止能被用作新世代武器研发的先进技术外流。
 
-文字版原文：[疫苗灾难明年5月份开始](https://gnews.org/zh-hans/1669859/)
+参考链接：[日本經濟安保法案概要曝光 藉審查排除中國敏感設備](https://www.cna.com.tw/news/firstnews/202111140114.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编：文特
+编辑：飞虹 
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -30,7 +31,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

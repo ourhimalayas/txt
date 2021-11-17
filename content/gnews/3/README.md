@@ -2,36 +2,23 @@
 ---
 
 
-## 美日海军南海潜舰联合训练演习
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672207/)
+## 11月17日文贵大直播快讯——疫苗千万不能打
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1672281/)
 
-作者：纽约香草山 医疗部 – 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月16日，日本防卫省海上自卫队发文表示，日本正在南海与美国的驱逐舰和反潜飞机共同执行潜舰的追踪反潜训练。
+撰稿：Gradient Boost
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-13.jpeg)
+视频：文登
 
-文中还提到，日方除了潜舰外，还派出了“加贺号”等两艘护航舰及反潜巡逻机，协同进行美日海军的联合训练。
+美东当地时间11月17日，文贵先生在大直播中再谈全球疫苗灾难话题。文贵先生再一次强调，这一场病毒大流行背后的深层动机，绝对不是我们想象的那么简单。在这场疫情中人们不停接种疫苗，甚至未来打到第四针第五针，可是就是没人承认羟氯喹有用。
 
-评论指出，美日此次的南海联合潜舰训练，意在警告中共：南海实为国际海域，任何国家的船舰皆有自由航行权。国际社会绝不允许中共私自在南海将岛礁人工军事化，强行将南海变成中共掌控的内海，破坏世界航海秩序。
+在疫苗注射剂次逐渐增加的时候，没有人告诉我们病毒源头是哪里，这个病毒是从哪里来的。同时疫苗的魔爪也伸向我们的孩子，连我们的下一代也不放过。最为无理的还在于，仓促上马的疫苗注射之后还要被注射者自己来承担一切责任，如果拒绝注射者则会被逼迫至绝境。
 
-参考链接：[牽制中國 日美首度舉行南海潛艦共同訓練](https://www.cna.com.tw/news/firstnews/202111160344.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+上述情景不可能是正常的，文贵先生告诫大家：“病毒和疫苗大家小心呀，千万不能打。你打了就完了。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+笔者认为，目前整个世界处在一种极为疯狂的境地，目前我们观察到的现象在过去都是不曾发生过的。当出现一种新型的疾病，我们过去都是在进行溯源的同时从目前已知的治疗方法中寻找有效的手段。没有对于源头不闻不问就直接开始大规模强制推广疫苗的先例。各位亲爱的读者，不论您现在身处何地，请一定要提高警惕，保护好自己。
 
-总编：文特
-编辑：文特 
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+（文章内容仅代表作者观点，与Gnews平台无关）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
