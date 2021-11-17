@@ -2,124 +2,25 @@
 ---
 
 
-## 千年不遇新金融时代的诞生战友们都是参与者
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672781/)
+## 郭文贵精品视频-把握世界金融大变革的契机，Hcoin将是货币之王
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1672843/)
 
-[https://gtv.org/video/id=6193c860182702508105e859](https://gtv.org/video/id=6193c860182702508105e859)
+撰稿：澳喜cindy
 
-**郭文贵**
-**Miles Guo**
+郭先生几十年对世界的金融体系深入研究和探索过程中发现：“布雷顿森林体系最大的问题，就是把铸币权放在了美国。从1971年到现在，全世界所有的法币，就是一张纸。今天全世界还在维护着美元、欧元的地位，就是一个比较高级的谎言。目前美国声称共30万亿的债，这不是真的。连美联储主席都不知道究竟是多少。因为货币不受监控，你没法查。这就是全人类面对的最大的选择，所有纸币都得废掉。因为你不知道他们究竟印了多少。共产党仅仅2020年，印了7万亿美元。这是中国人民银行正式下发的文件。实际上是10万亿美元，67万亿人民币。国内的老百姓最大的灾难是你的劳动和财富，不知不觉中全被剥夺了。而虚拟货币谁都无法造假，其市场必然越来越兴旺，人们不再相信政府，不再会相信法币”。
 
-我们处在新中国联邦也好
-We are in the New Federal State of China
+美元从1971年到现在应该升值200倍但它却被兑水贬值了50倍。全人类生产的剩余价值和货币增发量，不应超过2.5-3倍。全球过去几十年的GDP，一千多万亿美元，大部分被兑水兑没了。这几年虚拟货币市场的火爆就反映出了人们对这些问题的关注。去政府化的人类未来的金融系统的诞生，将会把人类应该有的财富约一千多万亿，大概需要5-10年才能全部反映到新的货币金融系统。可能在3年后是最核心的暴涨期。
 
-就我们所有战友要记住一个
-All of our comrades in arms need to remember this
+在其他虚拟货币出现十几年后的今天，全球已有约800多个币种，其中活跃的品种只有20-30个。去中心化的公开账本化数字中心，打破了政府的垄断、统治、掠夺的形式，必然成为将来的金融方式。以前由少数人关注的币圈，目前很多政府和个人对它开始更感兴趣了。特别是各国由于病毒和疫苗导致的经济灾难法币大兑水，使通货膨胀异常加剧。人们更感兴趣能保值的加密货币。新中国联邦的喜币、喜联储此时的出现恰逢其时。
 
-我们面临着世界上前所未有的几个大的机会
-We are experiencing several unprecedented huge opportunities in the world
+我们的私块链技术加公块链技术于一身的Hcoin，其防盗、能追踪，还具备大家期望的去政府中心化管理的货币，它还是目前唯一的具有支付系统，贷款系统，还有稳定币，还有黄金储备。所以说我们的币天下无敌，没有人能比肩。郭先生断言目前这800多种虚拟货币将来90%都会消失。希望战友们能等到那增值最快的暴涨期以后再卖。
 
-这个机会是跟时间，就是时间和时机
-These opportunities are related to the time frame which is timing and occasion
+Hcoin的发行上市交易使我们新中国联邦的地位又得到了进一步提高。喜币和喜联储一定会彻底改变世界的金融系统。Hcoin将是货币之王。
 
-我们几乎是人类上千年不遇的
-We are in a situation that it’s almost unprecedented in a thousand years as a human
+（本文观点纯属个人与gnews无关）
 
-叫做新金融时代的诞生，就叫做虚拟货币
-which is the born of a new financial era, and is also called the virtual currency
-
-大家一定要记住这个词
-and everyone has to keep that word in mind
-
-而且我们是走在最前面、最核心的
-Also, we are at the core and act ahead of everyone
-
-技术全世界最好的
-Our technology is the best in the world
-
-系统全世界最完美的
-Our system is the most perfect one in the world
-
-而且现在我们战友们拥有了6亿个币
-And now our comrades in arms have possessed 600 million HCoins
-
-这6亿个币到下一个你有机会拿到币
-From this 600-million-coin to the next opportunity to get the coin
-
-还有11个月的时间
-still has 11 months to go
-
-这个时间你要记住
-You need to remember this timing
-
-你第一次拥有的币和第二次币是一个时间
-It’s the time frame when are the first time and second time having coins
-
-也就是整个新世界的金融系统诞生
-That is, the financial system of the whole new world was established
-
-整个人类
-The entire mankind
-
-昨天摩根先生, 包括所有大老板
-Yesterday, Mr. Morgan, including all the big bosses,
-
-没有任何人怀疑说
-none of them has doubted that
-
-还有这个任何机会说这个虚拟货币没有是不可能了
-there is any chance that it’s nothing impossible for this virtual currency
-
-虚拟货币的数字货币世界的诞生
-The establishing of the digital currency world and virtual currency,
-
-永远别忘，第一个
-we should never forget. First,
-
-由于时间，还给我们个时机
-because of the time frame, we have also gained an opportunity
-
-人类上千年不遇的金融的新系统的诞生
-The born of this new financial system is unprecedented in a thousand years as a human
-
-你们是最前边，而且手里已经有币的
-You are at the very front and already in possession of the coins
-
-包括有G-Club、G-Fashion
-including G-Club and G-Fashion
-
-你一定记住，这都和你的命运连在一起的
-You must keep that in mind, all these are connected with your destiny
-
-包括GTV、包括盖特
-including GTV, GETTR
-
-都跟你连在一起的，你前所未有
-everything is unprecedented to you and connected with you
-
-你可不要想……这个币连着太多了
-It’s better not to think that… this coin is connected too much
-
-**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1459700699869380608?s=24](https://twitter.com/se1y7cblljselva/status/1459700699869380608?s=24)
-
-Date: 11/14/2021
-原视频标题: 千年不遇新金融时代的诞生战友们都是参与者
-The Born of The New Financial Era Only Once in a Blue Moon And All Comrades Are The Participants
-原视频日期：2021/11/12
-任务编号：KC257（2878）
-视频时间段 : 0:00-1:43
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：cindy*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

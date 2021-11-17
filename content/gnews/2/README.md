@@ -2,160 +2,52 @@
 ---
 
 
-## 美国媒体大重启大药厂封杀疫苗事件和共产党罪行
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672987/)
+## 又有12个州因疫苗强制令起诉拜登政府
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1673114/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tt-asp84-zw5tb.jpg)
-[https://gtv.org/video/id=6195006e18270250810628cb](https://gtv.org/video/id=6195006e18270250810628cb)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**郭文贵**
-**Miles Guo**
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/V-9.jpg)gazette.al
+《塔克·卡尔森团队》（Team Tucker Carlson）11月17日发表文章，题目是，“又有12个州因疫苗强制令起诉拜登政府”。【1】
 
-另外一个班农事情意味着什么
-Another one is that what does the Bannon incident signal?
+全文如下：
 
-美国媒体大重启
-The U.S. media’s big actions resume,
+12个州周一（11月15日）宣布，他们将起诉拜登政府，以阻止对卫生保健工作者实施的疫苗强制令，称该强制令违反宪法，并违反了多项联邦法律。
 
-大重启
-The huge resume
+阿拉巴马州、亚利桑那州、佐治亚州、爱达荷州、印第安纳州、路易斯安那州、密西西比州、蒙大拿州、俄克拉荷马州、南卡罗来纳州、犹他州和西弗吉尼亚州的总检察长周一（11月15日）宣布了这起诉讼，说，“拜登政府正在与法院玩披着法律外衣的游戏，竭力为自己无理的和史无前例的行为进行着辩护，这些行为将公共卫生政策联邦化，并削弱了国家的宪法权力。
 
-就班农事件你看高兴的是谁
-You can tell who was happy by the Bannon incident
+“没有任何法令授权联邦行政部门强制使用疫苗来提高社会的免疫力。”诉讼写道，并指出乔·拜登吹嘘疫苗是提高免疫力的一种方式，“政府的解决方案？使用以前从未解释过的法定方案，允许联邦疫苗强制令将总统的目标强塞进美国的社会结构中。”
 
-不高兴的是谁，你看得出来
-and who was upset
+该诉讼反对要求医疗保险和医疗补助行业的健康工作者接种疫苗的规定，这是违宪的，并且损害了对患者的护理，因为这些行业的员工要么被迫接种疫苗，要么失去工作。
 
-疫苗没人报道
-The vaccine disaster has not been reported by anyone
+该诉讼写道：“疫苗强制令对弱势群体造成了严重威胁，而医疗保险和医疗补助计划旨在通过强制政策，终止了数百万“医疗行业的英雄”来保护那些弱势群体——穷人、病人和老年人。”
 
-美国严肃媒体的50%到75%的广告费来自何方
-Where do these 50% to 75% of the serious media advertising charges in the United States come from?
+各州政府正在要求一项初步禁令以停止执行这项强制令。
 
-全是大药厂
-They are all major pharmaceutical factories
+蒙大拿州总检察长奥斯汀·克努森（Austin Knudsen）称该强制令是“违宪的权力攫取”。“联邦政府的强制令与健康无关——它们与强制遵守有关，应该允许医疗工作者对自己的健康作出自己的决定——而不是拜登总统来决定。如果他史无前例的过度行为得不到制止，医疗工作者将失去工作，威胁到蒙大拿人所需要的医疗服务。”
 
-全世界特别是美国的严肃媒体的50到65到70的广告费
-50% to 70% of advertising fees for serious media in the world, especially in the United States
+阿拉巴马州总检察长史蒂夫·马歇尔（Steve Marshall）说：“这不仅仅事关疫苗，这是要树立一面旗帜，表明‘够了，够了’，联邦政府的权力不是无限的。如果我们时刻保持警惕，在这里战斗，他们就不会得逞。”
 
-来自于大药商
-are coming from major pharmaceutical factories
+拜登疫苗强制令要求，在接受联邦医疗保险或医疗补助资金的机构工作的医疗保健的员工必须在1月4日之前完全接种疫苗，要么接受常规检测，要么接种疫苗，别无选择。
 
-所以疫苗没人说话呀
-That’s why nobody talks about the vaccine disaster
+包括上述一些州在内的几个州，被要求对联邦承包商的疫苗强制令提起单独的诉讼。
 
-疫苗没人说话
-No one covers the vaccine disaster
+美国第五巡回上诉法院中止了政府要求雇员超过100人的雇主强制接种疫苗或实施每周测试的规定，法院裁定，由于请愿人认为 “该任务存在严重的法律和宪法问题，因此在本法院采取进一步行动之前暂停该任务。”
 
-共产党的事也没人说话
-No one talks about things that the CCP does
+法院后来重申了他们的决定，裁定该行政令可能 “违反了保障我们集体自由的宪法结构”，并且该行政令 “惊人地过于宽泛”。
 
-Eglise你想过这问题吗
-Eglise, have you ever thought about this issue?
+（全文完）
 
-为什么疫苗没人说
-Why nobody talks about vaccines,
+是的，阴谋集团也太低估人们的智商和质疑能力了，以为依靠买通主管机构、政府、媒体就可以为所欲为，忽略了人性的几个基本原则，那就是，“自己的健康自己决定，而不是总统”、“政府的权力不是无限的，只要我们战斗，他们就不会得逞”。
 
-共产党在美国对班农的事也没人说
-nor talks about how the CCP targeting Bannon in the United States
+估计塔克·卡尔森在发这篇文章时，还没有看到“OSHA宣布，服从第五巡回上诉法院的判决，暂停疫苗强制令”这则令保守人士备受鼓舞的消息【2】。这拉开了全面中止拜登疫苗强制令的序幕，从“中止、废除对百人以上私营企业的强制令”开始，下一个是中止“对联邦承包商的强制令”，还是“对联邦雇员的强制令”，我们拭目以待！
 
-这说明他是(同)一个老板哪, 对吧？
-These indicate they have the same boss. Correct?
+有关链接：
 
-邪恶和共产党是一个老板
-The evil and the Communist Party are the same boss
+【1】[https://teamtuckercarlson.com/news/12-more-states-sue-biden-administration-over-vaccine-mandate/](https://teamtuckercarlson.com/news/12-more-states-sue-biden-administration-over-vaccine-mandate/)
 
-这对美国威胁大了去了
-This is a severe threat to the U.S.
-
-我们提前42天的警报证明了以下的问题
-Our 42-day early warning has proved the following problems
-
-而且这些对班农大媒体对他整个的封杀
-and the Bannon incident which he was completely banned from major media
-
-还有整个的完全无视真相的忽视
-as well as the whole ignorance of completely ignoring the truth
-
-然后看好要抓这个班农
-Then, I’m optimistic about arresting Bannon
-
-我说你啥时侯被抓啊，赶快抓呀？
-I asked when did you (Bannon) get arrested, hurry up?
-
-他说我等着呢，没抓啊
-He said he was still waiting
-
-我说你赶快（被）抓了吧
-I was joking that hurry up got arrested
-
-现在我是真希望你能到某个我们的小船上等着去
-Now I really hope that you can wait in one of our boats
-
-再在船上把你给抓走啊
-then you got arrested in the boat and taken away
-
-所以说这次班农无疑成为美国的政治教父
-So this time Bannon will undoubtedly become the political godfather of the United States
-
-这是绝对的
-This is absolute
-
-更重要它团结了（美国人）
-the most significant is that the American people have united
-
-我刚刚看到这个
-I have just seen this one
-
-川普发出了新的文章
-Trump have published a new article
-
-我发给你们群里边
-I’ll send it to your group chat
-
-这是很大的事情
-This is a huge event
-
-所以说兄弟姐妹们
-So, brothers and sisters
-
-这个时候咱们新中国联邦的一个宣言人成了世界的焦点，是吧？
-At this time, one of our New Federal State of China’s declarers has become the fo-cus of the world, right?
-
-成了一个美国的政治当中最重要的风水标
-He has become one of the most important weathercock in American politics
-
-受益者当然是新中国联邦，是吧？
-The beneficiary is of course the New Federal State of China, right?
-
-这个意义大到哪儿去了
-What’s the significance of this?
-
-谈班农不谈郭文贵好像这事都过不去，是吧？
-Talking about Bannon but not Guo Wengui seems to be hard to get through, right?
-
-谈班农不谈咱新中国联邦都过不去
-It doesn’t make any sense that talking about Bannon but not the New Federal State of China
-
-**原视频链接:** [https://gettr.com/post/pgzhxnc17a](https://gettr.com/post/pgzhxnc17a)
-
-Date: 11/14/2021
-原视频标题: 班农事件意味着美国媒体大重启大药厂封杀疫苗事件和共产党罪行
-The Bannon incident indicates that the U.S. media has resumed that the major drug factories blocking vaccine incidents and the Communist Party crimes
-原视频日期：2021/11/14
-任务编号：KC260（2895）
-视频时间段 : 0:00-2:14
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+【2】[https://gnews.org/zh-hans/1672596/](https://gnews.org/zh-hans/1672596/)
 
  
 
