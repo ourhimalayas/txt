@@ -2,38 +2,36 @@
 ---
 
 
-## 如果强制雇员接受疫苗而造成伤害，雇主可能面临百万美元赔偿
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1670217/)
+## 白宫：1.75T的BBB无法支付，美国人明年需要加税了
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1670290/)
 
-据《Fox5》记者：Kevin Severin，2021年11月12日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-337-e1637099589785.png)根据 SB 1106，雇员可以在法庭上向雇主提出索赔，要求因疫苗接种或医疗造成的伤害或疾病造成的实际和惩罚性损害赔偿。(mj0007/ iStock / Getty Images Plus)
-俄克拉荷马市 (Oklahoma City) – 参议员拉布 · 斯坦德里奇（Rob Standridge） 已提交参议院第1106号法案，即“公民健康授权保护法”，针对需要疫苗或其他医疗作为就业条件的公共和私人实体和个人。
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-**如果强制要求雇员接受药物或治疗出现问题，这些雇主可能需要承担 100 万美元的惩罚性赔偿。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-13-1.png)法新社通过盖蒂图片社
 
-“许多俄克拉荷马人可能不知道联邦政府已经给予 COVID-19 疫苗责任保护。”斯坦德里奇说。“如果一名员工被要求接种疫苗或其他医疗作为就业条件，并导致该人受到伤害，我们的公民需要知道他们将有一些追索权，这将为他们提供有意义的救济。这就是我的立法的目的。”
+拜登总统及其政府成员长期以来一直吹捧BBB（Built Back Better）法案[将花费“zero dollar”](https://nypost.com/2021/09/27/joe-biden-slammed-for-build-back-better-price-claim-lie/)（税收大部分由中产阶级承担）,这笔法案花费是来自增加公司税、为富有的美国人填补税收漏洞,以及其他改革（比如虚拟货币交易）将[创造足够的抵消作用](https://www.whitehouse.gov/briefing-room/statements-releases/2021/10/28/president-biden-announces-the-build-back-better-framework/)。
 
-根据SB1106，雇员可以在法庭上向雇主提出索赔，要求雇主因作为就业条件所需的疫苗接种或医疗计划而造成的伤害或疾病造成实际和惩罚性损害赔偿。**如果雇主在未确认其安全性的情况下故意要求接种疫苗或治疗，则雇主将自动负有100万美元的惩罚性赔偿责任。**
+自上周以来，[CBO 已经发布](https://nypost.com/2021/11/10/cbo-releases-estimates-for-1-75t-biden-social-spending-bill/)了对该法案八个部分的[初步估计](https://nypost.com/2021/11/10/cbo-releases-estimates-for-1-75t-biden-social-spending-bill/)。到目前为止，该机构已经发现这八个部分中的一部分——如果包含在最终立法中——将使联邦预算赤字增加 1500 亿美元以上。预计周五（19日）将对完整立法进行评分。 据《泰晤士报》报道，拜登政府高级官员先发制人地声称， CBO 的估计是“过于保守”，其没有适当考虑加强 IRS 执法所筹集到的资金。
 
-**该法案将适用于所有私营和公共部门的雇主。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-14-1.png)
 
-斯坦德里奇的立法将在二月份进行审议。
+几个月来，《重建更好法案》(BBB Act)在众议院和参议院都面临着一场艰苦的战斗，而 CBO 的一份负面报告可能会给拜登政府带来更多问题。众议院温和的民主党人在看到评分之前一直对承诺投票支持该法案持谨慎态度，而参议员乔曼钦（D-WV）——上议院的关键一票——其坚持要求[该立法应得到全额支付](https://nypost.com/2021/07/13/joe-manchin-says-both-infrastructure-bills-should-be-paid-for/)。
 
-文章来源：[https://okcfox.com/news/local/employers-could-face-1-million-in-damages-if-mandated-medications-cause-harm](https://okcfox.com/news/local/employers-could-face-1-million-in-damages-if-mandated-medications-cause-harm)
+许多人质疑《重建更好法案》是否真的需要印刷 1.75 万亿美元，[美国商会](https://nypost.com/2021/11/11/chamber-of-commerce-dems-using-gimmicks-to-hide-spending/)上周[指责](https://nypost.com/2021/11/11/chamber-of-commerce-dems-using-gimmicks-to-hide-spending/)民主党人使用会计的“噱头”（小聪明）来隐藏超过 1 万亿美元的支出。
 
-翻译：洛杉矶盘古农场 –Raul
+“我们有 31 年来最高的通货膨胀率，雇主正在努力填补创纪录的职位空缺，而目前的和解法案草案使用小聪明来掩盖，超过 1 万亿美元的支出，”美国商会执行副总裁兼首席政策警官尼尔·布拉德利（Neil Bradley）在一份声明中说。
 
-校对：洛杉矶盘古农场–Mike Li
+他补充说：“如果美国国会议员在不了解其真实成本或政策对现实世界的影响的情况下，就对这一项价值数万亿美元的税收和支出法案进行投票，那将是最不负责任的行为。”
 
-编辑：洛杉矶盘古农场 –柯镇恶
+上个月，[宾夕法尼亚大学沃顿商学院进行的](https://nypost.com/2021/10/29/biden-1-75t-bills-taxes-pay-for-less-than-wh-claims-study/)一项分析发现，用于抵消 1.75 万亿美元支出的税收将比支付账单所需的净额度，少约 4700 亿美元。  白宫估计，新的和更高的征税款项所筹集到是 1.995 万亿美元，但沃顿商学院的预算模型估计它们只能带来 1.527 万亿美元——比白宫数字低 4680 亿美元，比法案的最高成本少 2230 亿美元。
 
+新闻来源：[nypost.com] [WH warns CBO won’t say $1.75T BBB paid for, tells Dems to ‘disregard’: report](https://nypost.com/2021/11/16/white-house-warns-cbo-wont-rule-spending-bill-paid-for-report/) | 发布时间：2021年11月16日|封面图来源：盖蒂图片社
 
+* * *
 
+*发稿：信心的选择*
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
 
  
 
