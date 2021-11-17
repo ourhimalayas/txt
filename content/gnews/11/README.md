@@ -2,27 +2,23 @@
 ---
 
 
-## 中共国又一名抗疫医生猝死
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672215/)
+## 疫苗强制令下人员短缺导致救援不及
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672233/)
 
-作者：纽约香草山教育部 – Noemi
+作者：纽约香草山佛教部 – 文一
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月13日，中共媒体报道称，一名一线抗疫医生突发性死亡，年仅三十岁。
+11月13日，据当地媒体报道，由于美国新冠疫苗强制令导致的社会基础设施人员短缺，西雅图一名13岁的男孩在为其父亲两次拨打急救电话后，只能眼睁睁地看着父亲的死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-11.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2-7.jpeg)
 
-资料显示，逝者名为李鸿雁，原是一位血液内科医生，疫情期间，其所在的发热门诊任务更为繁重，李鸿雁前去支援，最终却倒在了完成任务之后的隔离期。
+据了解，西雅图地区要求，在进入被当地政府划归的非安全区时，任何人员都必须在警察的协同下方可进入。鉴于当地实施的新冠疫苗强制令，警察人手严重短缺，导致救护人员在到达求救男孩所处的非安全区域时，因长时间等待警察到场而错过了最佳的抢救时间。最终，男孩在苦等20分钟后，看着45岁的父亲因呼吸困难死亡。
 
-另据报道，中共国强推毒疫苗的第一批受害者大多为医护人员，且疫苗接种与否往往与相关人员的工作、晋升密切相关。值得注意的是，疫情期间，中共国内猝死的医生人数已远超因感染新冠病毒死亡的人数。
-
-郭文贵先生曾在直播中爆料，当前中共国内的医护人员极为短缺，其主要原因在于，大多数医护人员被强制接种了新冠毒疫苗，其后许多人仍然感染了新冠病毒，从而导致并发症，甚至死亡。而中共新冠疫苗来带的次生灾难，以及由此引发的医护人员猝死等现象或将形成一个死循环，最终会导致中共国内医疗系统的全面崩塌。
-
-参考链接：[又一位医生倒在抗疫一线，年仅30岁](https://user.observersnews.com/main/content?id=634430&amp;s=fwtjgzwz)
+参考链接：[13-Year-Old Watches Father Die as Staffing Shortages From Covid Vaccine Mandate in Seattle Delays Emergency Response](https://www.thegatewaypundit.com/2021/11/13-year-old-watches-father-die-staffing-shortages-covid-vaccine-mandate-seattle-delays-emergency-response/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：文徬
-编辑：Kathy文艺 
+总编：正义的小新
+编辑：Irene木木 
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

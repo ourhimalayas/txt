@@ -2,10 +2,10 @@
 ---
 
 
-## 山姆·法迪斯：中情局弱化了中共对美国及全世界构成的威胁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1672249/)
+## 辉瑞CEO: 我身体健康，不在前线工作，无需打疫苗
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1672268/)
 
-11/13/2021 山姆·法迪斯：中情局弱化了中共对美国及全世界构成的威胁。
+11/12/2021 未打疫苗的辉瑞CEO阿尔伯特·布尔拉说: 我59岁了身体健康, 并且不在一线工作, 我这种类型不建议打疫苗。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

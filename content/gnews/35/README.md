@@ -2,22 +2,32 @@
 ---
 
 
-## 台湾前线｜拜登：台湾是否独立 台湾自己决定
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1671784/)
+## 法院和医院拒绝使用伊维菌素导致中共病毒患者死亡
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1671788/)
 
-**台灣寶島農場 港台前線關注組 / 發佈時間｜17/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-07-14.32.38.jpeg)
-**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
+整理报道：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4L2YVV4IMZQTMI5TJ7IGMGZHKY.jpg)图片来源：Tampabay
+11月16日，《新闻极限》引述《华盛顿观察家报》报道，指由于法院和医院拒绝使用伊维菌素治疗一名感染中共病毒（COVID-19）的妇女，导致该妇女去世，终年47岁。
 
-16日[拜习会](https://gnews.org/zh-hant/1669028/)举行，美国拜登总统与习近平进行线上会谈，内容涉及贸易战、核武、新冷战冲突预防，以及香港、新疆、台湾安全问题。会议结束，双方并未有突破性共识。但美方明确不允许有片面破坏台海和平的行为。
+12周前，塔玛拉·德罗克（Tamara Drock）在棕榈滩花园医疗中心住院，他的丈夫瑞安·德罗克（Ryan Drock）告诉《华盛顿观察家报》，他上个月提起诉讼，试图迫使医院使用伊维菌素治疗妻子，但被一名县巡回法官驳回。
 
-中共党媒新华社，发布虚假消息称拜登总统于会议中明确表示“拜登反对台独”，引起国际热议。然而，拜登总统16日晚间在新罕布夏州的机场停机坪就被媒体问到了这个问题，**拜登强调自己是说对于两岸关系“台湾必须自己决定”，不过美国没有鼓励台湾独立**。拜登进一步表示，美国鼓励台湾遵循美国政府，完全按照台湾关系法的要求行事。
+尽管德罗克可以收到一定剂量的伊维菌素作为最初达成交易的一部分，但家庭律师认为该剂量太低了，从而导致交易失败。
 
-**美方强调，有关拜习视讯会议的结果，请各界以美方的说明为主**。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/港台前線-（TW）-7.jpg)
-* * *
+瑞安·德罗克说：“我希望用她的名字命名一条法律，这样就没有人遭遇这些了。”
 
-來源｜[風傳媒](https://www.storm.mg/article/4051618?page=1)
+该家庭的律师杰克·哈克斯塔布（Jake Huxtable）告诉西棕榈滩电视频道WPTV，他将就该法官的决定向第四区上诉法院提起诉讼。他说：“这是选择的自由，她有选择接受这种医疗方法的自由，但法院不允许，医院也不允许”。
+
+**新闻来源**
+
+[Florida Woman Whose Family Sued Hospital for Ivermectin Dies](https://www.newsmax.com/newsfront/florida-covid-19-death-ivermectin/2021/11/16/id/1044906/)
+
+**发布：七彩光**
+
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

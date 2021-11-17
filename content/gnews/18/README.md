@@ -2,26 +2,28 @@
 ---
 
 
-## 内斗加剧，孙力军团伙被彻查
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672146/)
+## 日本经济安保法案排除中共敏感设备
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672156/)
 
-作者：日本方舟农场 – Andy5
+作者：纽约香草山 医疗部 – 云豹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月16日，中共公安部声称，将对孙力军政治团伙的人和事进行深挖彻查，进一步清除所谓的党内“害群之马”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-30.jpg)
-六中全会前，中共明示，即将处理孙力军，同时，当局向各省区派驻所谓的“中央督导组”。据悉，该督导组已于11月10日开始执行中共对各地的反馈督导意见。内部人员提到，在督导期间，中共对相关省区最高法院队伍的洗脑整顿工作汇报会议上，孙力军、周永康等仍被作为反面典型素材用以批斗。另外，中共再度用“打老虎”的手段，点名孙力军、周本顺、张越、刘新云等政治内斗的夙敌。
+综合日本媒体11月12日到14日的报道，日本政府为了保障经济安全，将制定《经济安全保障推进法案》，目地在于确保日本的技术、情报不外流，以及稳定半导体的供应。
 
-评论人员指出，一个半月以来，孙力军事件彰显了中共内部厮杀的激化。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-14.jpeg)
 
-参考链接：
-1). [中央督导组密集反馈意见，孙力军、周本顺、张越、刘新云等“老虎”被点名](https://www.163.com/dy/article/GOSGAUU7051482MP.html)
-2). [公安部：深挖彻查涉及孙力军政治团伙的人和事](https://news.sina.com.cn/o/2021-11-16/doc-iktzqtyu7622189.shtml)
+预计，这次的法案将包括“供应链坚韧化”、“维持基础建设功能”、“专利非公开化”及“确保技术基础”这四大重点。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+除此之外，法案还考虑加入“事前审查制度”，要求日本的通讯、能源、金融等产业在购置重要基础设备时，避免引进有安全性风险的产品。据了解，此举主要是为避免引进会影响运作安全性的中共产品或系统。
 
-总编：文徬
-编辑：Kathy文艺
-校正/发稿：Fei797
+另外，法案中也规定了特定专利非公开化的条款，主要是为防止能被用作新世代武器研发的先进技术外流。
+
+参考链接：[日本經濟安保法案概要曝光 藉審查排除中國敏感設備](https://www.cna.com.tw/news/firstnews/202111140114.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：文特
+编辑：飞虹 
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
