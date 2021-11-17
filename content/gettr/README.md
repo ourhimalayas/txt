@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/17/2021 1:04 PM (UTC)`
+
+2021年11月17日文贵大直播：再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向
+![img](https://media.gettr.com/group20/origin/2021/11/17/13/085c2b12-c30c-5d1b-2d2b-4df9bd2859d6/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@gfashion 11/17/2021 2:00 AM (UTC)`
@@ -292,13 +299,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 11/12/2021 Miles Guo: The key issue of today’s live broadcast is to call on everyone to build the New Federal State of China and safeguard the Chinese people. Although the CCP’s Six Plenary Session has accelerated the demise of the CCP, it increased the level of threat to the Chinese. However, nothing is comparable to the disasters caused by the CCP virus vaccines. The CCP does not represent the Chinese, and the Chinese people deserve to be saved. We shall save more fellow fighters in China<br/><br/>11/12/2021 文贵直播：今天直播最重要的核心是号召大家建设新中国联邦、保护华人。六中全会虽然加速了灭共，但也加大了对华人的威胁，而这一切却都没法跟疫苗灾难相提并论。中共不代表中国人，中国人值得救，我们要拯救更多国内战友！<br/><br/>
 ![img](https://media.gettr.com/group5/getter/2021/11/12/23/47/318d2d1a-9d95-bd45-9818-2b511826b06a/out.jpg)
-
----
-
-`@miles 11/12/2021 11:41 PM (UTC)`
-
-11/12/2021 Miles Guo: The revelation of the truth about the CCP virus and its vaccines by the Whistleblowers’ Movement is the result of the joint efforts from countless fellow fighters and me under the CCP’s threats; Xi Jinping will be held accountable for giving the order to release the CCP virus and pushing the CCP virus vaccines! The New Federal State of China will soon establish its defense and global security system to protect the overseas Chinese around the world!<br/><br/>11/12/2021 文贵直播：爆料革命对中共病毒和疫苗灾难真相的揭露是无数受到中共威胁的战友和文贵的共同努力所换来的；习近平将因其下令放毒和推动疫苗而被追责！新中国联邦将马上建立国防和全球安保系统来保护全世界的华人！<br/>
-![img](https://media.gettr.com/group31/getter/2021/11/12/23/41/e3af84b3-48e7-02f5-9fc4-c87ef050ef35/out.jpg)
 
 ---
 
