@@ -2,12 +2,15 @@
 ---
 
 
-## 鲍里斯·艾普斯汀：中共国更加集权和军事化准备攻击美国
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1666196/)
+## 喜币未来
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1652980/)
 
-11/13/2021 鲍里斯·艾普斯汀：中共国更加军事化和集权准备攻击美国，而我们没有准备好。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+韩国首尔天池农场—腊八　校对/上传—无明逆流
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-5.jpg)
+**喜币平台无限大，创造无数银行家。
+喜币支付利无数，货币自由全赢家。
+战友创业无门槛，勤于行动跑商家。
+支付代理全拿下，联储给你当管家。**
 
  
 

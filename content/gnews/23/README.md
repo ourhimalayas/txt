@@ -2,26 +2,26 @@
 ---
 
 
-## 日本著名棒球选手大谷翔平成为美虚拟货币公司FTX的广告形象大使
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1671648/)
+## 中共国东中西三地同时地震
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1671716/)
 
-作者：东京樱花团丨定于二尊
-![](https://lh4.googleusercontent.com/4HCJgVgoJ3fh_rH_p5UbABiHzJNXKn1UBgnFE6lva-cY1In44Z14IbWEuy_Zo5dr2gR5nLle-wBjTJ4jTm_4RXm9xq0I1q_BfpkhjKqjH4P3jEdosII2YJCFv6PG99hoUvI9SipN)[*图片来源*](https://storage.googleapis.com/image.blocktempo.com/2021/11/39571222595_e95af97fc6_o-scaled.jpg)
-11月17日（日本时间）据共[同通讯社纽约分社](https://news.yahoo.co.jp/articles/1afbcb455de193a5b84421a4f04655b185c5a21a)报道，美国棒球大联赛著名日本球员大谷翔平，当地时间16日与美国虚拟币交易所公司FTX签署了为期两年的合同，担当该公司的“全球大使”。其目的在于利用大谷翔平选手来提升企业的品牌知名度和虚拟币的推广。大谷选手的广告报酬为8亿9千万日元（约合4960万美金）。据报道，其报酬全部用虚拟币和股票支付。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-93.jpg)[图片来源](https://news.sina.com.cn/c/2021-11-17/doc-iktzqtyu7827149.shtml)
+中国地震台网正式测定，11月17日10时25分在台湾宜兰县海域发生4.7级地震，震源深度10千米，震中位于北纬24.80度，东经122.25度，距台湾岛约32公里。
 
-据报道，大谷翔平将以FTX公司的全球大使的形象，参与该公司今后开展的保护动物等一系列的慈善活动。
+中国地震台网正式测定：11月17日13时54分在江苏盐城市大丰区海域（北纬33.50度，东经121.19度）发生5.0级地震，震源深度17千米。震中距最近海岸线45公里，距盐城市97公里，距南京市276公里，距上海市254公里。地震造成江苏盐城、南通等地震感强烈，江苏南京、上海等地亦有震感。
 
-根据[科技新报](https://technews.tw/2021/11/17/mlb-superstar-shohei-ohtani-ftx/)资料，大谷翔平目前效力于洛杉矶天使队，是职棒中相当罕见的投打双栖的「二刀流」选手，作为投手，目前球速最快高达165 公里，创下日职官方本土球员纪录；身为打者，则多次轰出全垒打，一度暂居全垒打王宝座，在今年赛季表现极为亮眼，引起外媒关注。
+中国地震台网正式测定：11月17日15时39分在四川宜宾市兴文县（北纬28.22度，东经104.96度）发生3.1级地震，震源深度10千米。
 
-FTX 创办人Sam Bankman-Fried（SBF）本身也是一位传奇人物，29 岁就已经晋升为亿万富翁，《富比士》预估其净资产为265 亿美元。他于2019年成立加密货币交易所FTX，目前FTX 是世界第三大加密货币交易所，仅次于Binance 和OKEx。
+在同一天，6个小时内，东中西部分别地震，如此之短的时间中，有三个地方相继发生地震，这样的情况即使放在全世界来说也是比较罕见的。其存在关联关系的可能性是很大的，实际上一些较大的地震发生之后，往往会在板块的另一端或者另一板块的相关之处发生地震，在中共国独裁者们极其脆弱心里一定会盘算着，天灭中共，这是上天安排的惩罚。
 
-- ***延展阅读：***[***FTX虚拟货币交易***](https://kasobu.com/articles/ftx-application)
-- ***延展阅读：***[***FTX彻底解说***](https://www.fisco.co.jp/media/crypto/ftt-about/)
+信息来源：
 
+[江苏盐城市大丰区海域发生5.0级地震，南京、上海等地有震感](https://ml.mbd.baidu.com/r/wxaTPpuVFK?f=cp&amp;rs=2756314733&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=544b0147e96916cc)
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

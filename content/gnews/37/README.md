@@ -2,24 +2,22 @@
 ---
 
 
-## 美国医生开具伊维菌素治疗中共病毒遭受匿名投诉
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671319/)
+## 英首相约翰逊：英国人需要接种第三针新冠疫苗才被算作完全接种
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671421/)
 
-#### 撰稿：彩虹
+#### 翻译/撰稿：zzballack
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-11.jpg)图片来源：政客
-共和党众议员安迪·哈里斯（Andy Harris）是一名医生，有人向马里兰州医疗委员会进行匿名投诉，指哈里斯为中共病毒（COVID-19）患者开具伊维菌素。11月16日，《国会山报》对此进行了报道。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-2-1.jpg)图片来源：雅虎新闻
+据《零对冲》（Zerohedge）11月17日报道，英国首相鲍里斯·约翰逊（Boris Johnson）11月15日在新闻发布会上说，“完全接种疫苗”的概念需要调整，人们需要在原有的两剂新冠疫苗基础上再打加强针，才能被算作“完全接种”。
 
-文章说，三个月前，《华盛顿邮报》报道哈里斯与妻子一起参加“Casey & Company”广播节目，节目中，哈里斯说：“我开了一张伊维菌素的药方，我想大概是三四周前吧。是的，找不到药店拿到此药，因为情况已经变得很糟糕，药剂师们只是一味地拒绝进货此药。”
+约翰逊说：“由于两针疫苗的作用开始减弱，所以我们必须负责任，必须对衡量如何构成完全接种这一事实做出反应。政府将制定计划，除了国民医疗服务体系（NHS）颁发的数字疫苗护照，还要增加加强针。”
 
-周一，据《巴尔的摩太阳报》报道，在众议院自由核心小组关于强制接种疫苗会议上，哈里斯暗示了受到投诉。哈里斯说：“目前有人试图对我开伊维菌素的医疗执照采取行动，我觉得这很让人感兴趣，因为作为一名麻醉师，我知道我使用了很多标签外的药物，这是很危险的行为。”
+11月15日早些时候，英国政府接受了疫苗接种和免疫联合委员会（JCVI）的建议，将加强针计划的范围扩大到40至49岁人群。
 
-会后，哈里斯告诉《华盛顿观察家报》，该投诉正处于 “法医委员会的调查阶段”。
+记得郭先生在直播中说过，约翰逊的母亲因新冠疫苗而死。不知道在如此背景下，以约翰逊为首的英政府是因为真相信疫苗和加强针能增加对人体的保护，或者只是幕后全球黑势力操控的傀儡，才大力推广疫苗护照和加强针。多方事实证明，加强针只会加速人的死亡。全球百姓到了生死存亡的边缘，除了团结反抗，别无他法。
 
-《巴尔的摩太阳报》特别指出，哈里斯在会上还说，根据新型病毒的进化，他预计（现在的）疫苗在未来会变得无效。
-
-**新闻来源：**[Maryland Republican says complaint filed against him for prescribing ivermectin to COVID-19 patient](https://thehill.com/policy/healthcare/public-global-health/581884-maryland-republican-says-complaint-filed-against-him)
+新闻来源：[Brits Will Need 3 Jabs To Be Considered “Fully Vaccinated”: UK PM Johnson](https://www.zerohedge.com/political/brits-will-need-3-jabs-be-considered-fully-vaccinated-uk-pm-johnson)
 
  
 

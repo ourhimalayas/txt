@@ -2,26 +2,26 @@
 ---
 
 
-## 台湾前线｜美共元首峰会：美反对任何破坏台海和平的行为
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1669066/)
+## 起诉书无耻且具有争议 美国司法正向中共靠拢
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1668503/)
 
-**台灣寶島農場 港台前線關注組 / 發佈時間｜16/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-07-14.32.38.jpeg)
-**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
+#### 翻译/撰稿：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/80124403_dershowitz.jpg)图片来源：BBC
+根据布莱特巴特新闻（Breitbart News）11月15日的报道，拜登的司法部周五起诉了前川普总统的顾问、布莱特巴特新闻的前主席史蒂夫·班农（Steve Bannon）。
 
-16日，美国拜登总统与中共主席习近平视讯会议，针对贸易战、核武、新冷战冲突预防，以及香港、新疆、台湾安全问题会谈，会议结束美、共双方并未发表联合宣言，也没有取得突破性共识。据白宫新闻稿：
+班农先生周一向联邦当局自首，由于班农先生无视众议院委员会关于1月6日事件的调查传讯，他将面临藐视法庭的指控。
 
+对此，哈佛学院名誉教授艾伦·德肖维茨（Alan Dershowitz）表示：“这是一份无耻的起诉书。我会告诉你这为什么无耻。如果你没有起诉过别人，你就不会知道法律是什么样的。因为如果总统告诉班农不要回答，那么就没有人知道班农是否有权拒绝回答。这是一个有争议的问题。因此不适合以此作为刑事起诉的主题。”
 
-> **美国固然支持“一个中国政策”，但也遵守〈台湾关系法〉的规定；虽然《中美三个联合公报》很重要，但同样的对台湾的《六个承诺》也是；美国强烈反对任何一方，片面改变『两岸现状』，也反对任何破坏台湾海峡的和平与稳定**
+德肖维茨解释道，“保留前总统的行政保密权是一个有争议的法律问题。”他建议对这种有争议的合法性问题进行调查。
 
+德肖维茨说：“（为了弄清楚这个有争议的法律）你要去到法院，你得到一个宣告判决，你得到一个禁令，你得到法院的命令，只有这样才是有可能。为了弄清这个法律是什么，你用尽除了刑事司法系统以外的所有代替方法。”
 
-会议结束后，中共官媒新华社、央视对外表示，会议上拜登对中共示好，并强调美国支持一个中国、反对台独等承诺，美共关系回到了反台独的传统共识。对台湾将会尽最大努力争取和平统一的前景，但如果『台独』分裂势力挑衅逼迫，甚至突破红线，将不得不采取断然措施。
+对于这个有争议性的法律问题德肖维茨继续举例解释道：“如果有10个宪法学者在一个房间里，这10人里不包括拉里·特里布（Larry Tribe），因为他不是一个学者，他是一个党派倡导者。在这个10人的房间里，如果你没有告诉他们这个人是民主党还是共和党，这时无论前总统是否授权他的前顾问不要把资料交出来，或不要作证，那么得到的结果将是五五开。”
 
-台湾政府通过总统府发言人张惇涵表示，台湾政府注意到美方于会议中重申对台湾的承诺，并强调台湾立场清楚，反对改变两岸现状、破坏台海和平稳定的片面行为。台湾及印太区域稳定，已经成为国际焦点，台湾政府将会与理念相近的国家持续合作。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/港台前線-（TW）-5.jpg)
-* * *
+最后德肖维茨总结重申：“这是一个困难的、闭门问题，不适用于刑事起诉的主题。”
 
-來源｜[自由時報](https://news.ltn.com.tw/news/politics/breakingnews/3738474)、[BBC](https://www.bbc.com/zhongwen/trad/world-59301487)、[udn](https://global.udn.com/global_vision/story/8662/5894278)
+新闻来源：[Exclusive — Alan Dershowitz: Bannon Indictment ‘Outrageous’, ‘Disputed Question’ Whether Trump Retains Executive Privilege](https://www.breitbart.com/radio/2021/11/15/exclusive-alan-dershowitz-bannon-indictment-outrageous-disputed-question-whether-trump-retains-executive-privilege/)
 
  
 

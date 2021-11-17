@@ -2,30 +2,33 @@
 ---
 
 
-## 谷歌将在澳洲投资10亿澳元 可创数千工作岗位
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1671691/)
+## 维州“流行病法”修改后将在议会通过
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1671779/)
 
-撰稿：文登
-![](https://assets.gnews.org/wp-content/uploads/2021/11/171-2.png)图片来源于网络
-Alphabet旗下的谷歌(Google)宣布，将在五年内向澳大利亚基础设施、研究和伙伴关系投资10亿澳元（约合7.3亿美元），这将是谷歌在澳大利亚最大的一笔投资。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/台湾1-1.jpeg)图片来源：SKY NEWS
+**翻译：**波澜壮阔
+**编辑：**翼族
 
-通过视频连接，Alphabet和谷歌首席执行官Sundar Pichai宣布，在澳洲启动名为“数字未来投资”的项目。
+据《天空新闻》记者安德里亚·克罗瑟斯（Andrea Crothers）报道，维州安德鲁斯政府备受争议的“大流行病法”在七项“关键的修正”之后，将于本周末在维多利亚州议会获得通过。
 
-对于谷歌的最新举动，澳大利亚总理斯科特·莫里森当天赞扬谷歌此举是“为澳大利亚的经济战略投出了10亿澳元的信任票”。此前，莫里森政府曾提出一项“到2030年将澳大利亚发展成顶级数字经济体”的计划，致力于加强在人工智能等领域的实力。
+修正案包括将最高罚款减半，并要求在7天内而不是14天内发布通知，告知公共卫生命令。
 
-莫里森在谷歌位于悉尼的办公室发表讲话时强调，谷歌的这项投资“并不意味着澳大利亚正努力成为下一个硅谷”，但它“有助于创造6000多个工作岗位，并创造约67亿澳元（约313.8亿人民币）的价值”。
+克罗瑟斯女士对天空新闻节目主持人佩塔·克雷德林称，今天发言的跨党派人士没有得到他们想要的一切。他们仍然担心拘留问题，但他们对目前的结果感到满意。
 
-双方都没有提及年初的争端，不过莫里森在16日的讲话中提到：“谷歌决定按照他们自己的方式进行投资的事实……确定了我们之间的合作关系”，“我们已经与科技机构在很多方面达成了合作，此外还有许多领域需要我们努力。
+克罗瑟斯女士表示，该法案预计将在周四或周五之前获得通过，以取代将于12月15日到期的现行的紧急状态权力法。
 
-这笔投资项目将为澳洲带来6000多个直接工作岗位，支持澳洲总计2.8万余个工作岗位，主要集中在3个领域：构建数字经济基础设施、当地创新以及合作解决当地问题。
-（文章内容仅代表作者观点，与Gnews平台无关）
-*发稿：mgjxs*
-参考链接：www.afndaily.com
+然而，克雷德林女士指出，有许多法律专家认为，修订后的法律仍将使州长手中的权力过大，缺乏足够的来自议会的监督。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+**原文链接：**[Victoria’s pandemic laws ‘poised’ to pass through parliament after ‘key amendments’](https://www.msn.com/en-au/news/other/victoria-s-pandemic-laws-poised-to-pass-through-parliament-after-key-amendments/ar-AAQL8uw?ocid=msedgntp)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
+*发布：翼族*
+
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,19 @@
 ---
 
 
-## 樱花灭共诗——怨三三•19届6中全会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1671748/)
+## 西媒头条 — 第111期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1671882/)
 
-#### 作者：东京樱花团/藤田村野
-![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-高鸾殿上掌声雷， 胜利收帏。
+制作：蚂蚁兄弟
 
-集一身权力党魁。
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
 
-赞毛绩，邓江摧！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/xm1117.001.jpeg)
 
-升平不掩戈挥， 暗流湍、高层角追。
+发稿：信心的选择
 
-决议久无媒，
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
 
-千刀拼杀，只为拳锤！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/C1CB02C6-7B84-495F-8BC6-6A739CB55106.jpeg)
-*插图：东京樱花团/闪闪*
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

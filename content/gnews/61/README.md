@@ -2,18 +2,12 @@
 ---
 
 
-## [文贵先生大直播PPT]班农先生被美国司法部起诉
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1668002/)
+## 班农：我希望大家不要从我们每天关注的事情上移开注意力
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1667934/)
 
-撰稿：铲共骑侠，伞兵
-审核：三票先生 选票地票言票，顽童2017
-PPT制作：Bobby（文俊） 健身建心（文阳）
+11/15/2021 班农在FBI办公室外：我希望大家都不要从我们每天关注的事情上移开注意力。记住，关注关键信号，而不是噪声。这里都是噪声。
 
-【2021年11月14日文贵先生大直播PPT：班农先生被美国司法部起诉】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-113.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-85.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-73.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-51.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-39.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-27.jpg)
-* * *
-
-发稿：云起时
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

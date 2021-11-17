@@ -2,27 +2,38 @@
 ---
 
 
-## 起诉书无耻且具有争议 美国司法正向中共靠拢
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1668503/)
+## 山卡拉-切蒂博士：刺突蛋白将悄无声息地杀死地球上的数十亿人
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1668426/)
 
-#### 翻译/撰稿：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/80124403_dershowitz.jpg)图片来源：BBC
-根据布莱特巴特新闻（Breitbart News）11月15日的报道，拜登的司法部周五起诉了前川普总统的顾问、布莱特巴特新闻的前主席史蒂夫·班农（Steve Bannon）。
+作者：纽约香草山教育部 – Noemi
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-322.png)
+11月14日，山卡拉-切蒂博士爆料称，CCP毒疫苗的核心成分——刺突蛋白，将会在未来的几个月中，悄无声息地杀死地球上的数十亿人。
 
-班农先生周一向联邦当局自首，由于班农先生无视众议院委员会关于1月6日事件的调查传讯，他将面临藐视法庭的指控。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-10.jpeg)
 
-对此，哈佛学院名誉教授艾伦·德肖维茨（Alan Dershowitz）表示：“这是一份无耻的起诉书。我会告诉你这为什么无耻。如果你没有起诉过别人，你就不会知道法律是什么样的。因为如果总统告诉班农不要回答，那么就没有人知道班农是否有权拒绝回答。这是一个有争议的问题。因此不适合以此作为刑事起诉的主题。”
+山卡拉-切蒂博士是南非的全科医生，具有丰富的CCP病毒临床经验。截至目前，他已成功地运用药物诊疗方案，治愈了超过4000例的CCP病毒患者。在他的诊疗记录中，CCP病毒患者无需住院，更无死亡。
 
-德肖维茨解释道，“保留前总统的行政保密权是一个有争议的法律问题。”他建议对这种有争议的合法性问题进行调查。
+山卡拉-切蒂博士一直是强制接种CCP毒疫苗的反对者。他说，CCP毒疫苗的核心成分——刺突蛋白是人类已制造出的生化武器中，最被精心策划的毒素之一。制造这种毒素的目的就是要悄无声息地杀掉地球上的数十亿人。
 
-德肖维茨说：“（为了弄清楚这个有争议的法律）你要去到法院，你得到一个宣告判决，你得到一个禁令，你得到法院的命令，只有这样才是有可能。为了弄清这个法律是什么，你用尽除了刑事司法系统以外的所有代替方法。”
+在注射早期，刺突蛋白会引起一部人的急性过敏反应，严重的可致人死亡，但这远非灾难的终结。地球上有超过一半的人口已经接种过CCP毒疫苗，这使人类将长期暴露在这种毒素之下。刺突蛋白将持续地对人体的内皮细胞造成损伤，并对所有含有ACE2受体的器官产生不可逆的伤害，直至人体死亡。然而，这些死亡案例都不会被归咎于CCP毒疫苗。大量的病毒mRNA将会使这种刺突蛋白在人体内的各种组织内产生，甚至具有遗传风险。
 
-对于这个有争议性的法律问题德肖维茨继续举例解释道：“如果有10个宪法学者在一个房间里，这10人里不包括拉里·特里布（Larry Tribe），因为他不是一个学者，他是一个党派倡导者。在这个10人的房间里，如果你没有告诉他们这个人是民主党还是共和党，这时无论前总统是否授权他的前顾问不要把资料交出来，或不要作证，那么得到的结果将是五五开。”
+就如同文贵先生所爆料的那样，中共无休止的放毒和各国政府对健康人的强制接种，已形成了这场生化超限战的死循环模式。若不及时制止疫苗灾难，也许在未来的几个月中，将会有数十亿的人类死于这场灾难。
 
-最后德肖维茨总结重申：“这是一个困难的、闭门问题，不适用于刑事起诉的主题。”
+参考链接：[https://gettr.com/post/ph04qm8a14](https://gettr.com/post/ph04qm8a14)
 
-新闻来源：[Exclusive — Alan Dershowitz: Bannon Indictment ‘Outrageous’, ‘Disputed Question’ Whether Trump Retains Executive Privilege](https://www.breitbart.com/radio/2021/11/15/exclusive-alan-dershowitz-bannon-indictment-outrageous-disputed-question-whether-trump-retains-executive-privilege/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
+总编：文特
+编辑：Kathy文艺
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
