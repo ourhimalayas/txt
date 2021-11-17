@@ -2,80 +2,74 @@
 ---
 
 
-## 全球收购和疫苗任务背后的黑石和先锋公司（四）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1672782/)
+## 【Michael.Tonny专栏】Pfizer向公众隐瞒6人在CCP病毒疫苗临床试验中死亡
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1672811/)
 
-编译：七叶之芒
+作者： 加拿大温哥华扬帆农场  Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/michael-2.jpg)
+#### 拜习会，拜登向宇宙大帝习大神就贸易、人权、阿富汗、伊朗、朝鲜、台湾、香港、西藏、新疆、自由开放的印太地区、健康安全、地球变暖和全球能源危机等话题套了两个多小时近乎。
 
-**【接上篇：**[全球收购和疫苗任务背后的黑石和先锋公司（三）](https://gnews.org/zh-hans/1672761/)】
+#### 更不要指望拜登能亲口问问习大神，“2020年9月2日，陈薇在CCP中央电视台大型电视公益节目开学第一课亲口说，2020年2月26日是她主持的第一批（*笔者注：CCP病毒*）疫苗在生产线下线的那天”，这件事情怎么回事？
 
-**一个犯罪的阴谋**
+#### 所有良知未泯人媒体都在惊呼，拜登只字不敢提及新冠病毒（CCP病毒），拜登向习大神顶礼膜拜，拜登正式向习大神投降！
 
-这是一封很长的信，所以我不会在此全文转载。然而，以下章节特别值得关注，因为这些犯罪精英正在策划破坏我们所知的生命，以努力迎来一个以技术为主导的全球治理和控制体系：
+#### CCP真能瞒天过海，世界从此不再追究中共向全世界发动生化武器战争的反人类罪行？
 
-*2019年11月，武汉病毒研究所的三名技术人员出现了与流感样疾病一致的症状。安东尼-福奇（Anthony Fauci）、彼得-达**扎克（Peter Daszak）和拉尔夫-巴里（Ralph Baric）马上知道发生了什么，因为这个实验室和我们的科学家和官员之间存在后方的沟通渠道。*
+#### 任凭毒疫苗继续杀戮？当然不可能！
 
-*2019年12月12日，拉尔夫-巴里奇签署了一份材料转让协议（本质上是NDA），以接受由Moderna和NIH共同拥有的冠状病毒mRNA疫苗相关材料。*
+#### 2021年11月16日，曾于2013年被授予 Reed Irvine 媒体准确度（Accuracy）奖，并于2016年5 月获美国繁荣基金会（ the Americans for Prosperity Foundation）颁发的 Breitbart 在线新闻卓越奖，美国著名保守派新闻媒体[The Gateway Pundit](https://www.thegatewaypundit.com/)创始人和编辑Jim Hoft在文章中揭露，辉瑞（Pfizer）向公众隐瞒了COVID（CCP病毒）疫苗临床试验中的死亡人数。
 
-*直到整整一个月后，即2020年1月11日，据称中共国才将后来被称为SARS-CoV-2的序列发送给我们。Moderna声称，相当荒谬的是，他们在不到48小时内就从这个序列中开发出了有效的疫苗。*
+#### 2021年7月，辉瑞向公众发布了从第1剂疫苗问世到 2021年3月13日的临床试验数据，截止至3月中旬，它已发现疫苗接种者中有15人死亡。而它报告给FDA的数据，在相同的截止日期，即同样是截止至3月13日，疫苗接种者中死亡了21人。
 
-*Moderna的现任首席执行官Stephane Bancel曾是生物梅里埃公司的首席执行官，这是一家专门从事医疗诊断技术的法国跨国公司，由Alain Merieux创立。Alain Merieux是在武汉病毒研究所的P4实验室建设中起重要作用的人之一。*
+#### 辉瑞向公众隐瞒了多达6个在COVID-19（CCP病毒）疫苗试验期间的死亡人数！
 
-*作为与SARS-CoV-2最接近的序列，RaTG13，并不是一种真正的病毒。它是一个伪造的。它是通过手工将一个基因序列输入数据库，为SARS-CoV-2的存在制造一个幌子，它很可能是武汉病毒研究所生产的功能增益嵌合体，并被意外泄露或故意释放。SARS-CoV-2的动物储库从未被发现。*
+#### 就在昨天，[medicalxpress.com](https://medicalxpress.com/)在题为[Pfizer, BioNTech, Moderna making $1,000 profit every second: analysis](https://medicalxpress.com/news/2021-11-pfizer-biontech-moderna-profit-analysis.html)的新闻中报道，人民疫苗联盟 (PVA，the People’s Vaccine Alliance)表示，Pfizer, BioNTech 和 Moderna三家医药公司已经与世界上多数最富有的政府都签订了最有利可图的合同，这三家公司今年将获得340亿美元的税前利润，相当于每秒超过1,000 美元、每分钟65,000美元或每天9,350万美元。
 
-*这不是一个阴谋“理论”。这是一个实际的犯罪阴谋，其中，与Moderna的mRNA-1273开发有关的人员与武汉病毒研究所及其功能增益研究直接相关。文件线索已被证实。*
+#### 根据[VAERS 网站](https://openvaers.com/covid-data/mortality)统计的报告，今年已经有12,412 人的死亡与辉瑞疫苗有关，而据估计VAERS统计的疫苗伤害仅占美国疫苗伤害的1%。
 
-*实验室泄露的理论被压制了，因为拉动这条线索会让人不可避免地得出结论，有足够的间接证据将莫德纳、美国国立卫生研究院、WIV以及疫苗和病毒的产生联系在一起。*
+#### VAERS是1990年开始实施的疫苗不良事件报告系统，是根据可从vaers.hhs.gov下载的 HHS 数据构建的。它是一种自愿报告系统， VAERS公开申明([see the Lazarus Report](https://openvaers.com/images/r18hs017045-lazarus-final-report-20116.pdf))，VAERS统计的数据仅占疫苗伤害的1%左右（It is a voluntary reporting system that has been estimated to account for only 1%）。
 
-*在一个正常的国家，这将立即导致世界上最大的RICO和大规模谋杀案。安东尼-福奇、彼得-达**扎克、拉尔夫-巴里奇、石正丽和斯蒂芬-班塞尔，以及他们的同伙，都会被起诉，并在法律的最大范围内受到起诉。相反，我们数十亿美元的税款被判给了犯罪者。*
+#### 截止至2021年11月5 日，VAERS已经收集了1720302例因疫苗死亡相关报告，每一份报告都按VAERS ID编号，并有非常详细的病历记载，感兴趣的读者可以到[The OpenVAERS Project](https://openvaers.com/openvaers)查看。
 
-*联邦调查局突击检查了底特律北部谢尔比镇的Allure医疗公司，因为他们以“欺诈性的COVID-19治疗方法”向保险收费。他们所使用的治疗方法——静脉注射维生素C，一种抗氧化剂。如上所述，这是一种完全有效的治疗COVID-19诱发的败血症的方法，事实上，现在是保罗-E-马里克博士提出的MATH+方案的一部分。*
+#### 根据VAERS的统计图表（[VAERS COVID Vaccine Mortality Reports](https://openvaers.com/covid-data/mortality)）分析，在向公众注射Covid-19（CCP病毒）疫苗前，即1990年至2020年30年间，每年VAERS收到因注射疫苗死亡的报告最高不会超过600人，2020年甚至低于400人。
 
-*由于所谓的NDMA（N-亚硝基二甲胺）污染，FDA禁止了雷尼替丁（Zantac）。雷尼替丁不仅是一种用作抗酸剂的H2阻断剂，而且还具有强大的抗氧化作用，可以清除羟基自由基。这使它在治疗COVID-19方面具有实用性。*
+#### 而自开始推广注射COVID-19（CCP病毒）疫苗以来，截止至2021年11月5日，今年因注射疫苗死亡的案例就已经达到19000人以上。这里需要再次提醒各位的是，据估计VAERS统计的数据仅占美国疫苗伤害的1%。
 
-*FDA还试图将N-乙酰半胱氨酸（一种无害的氨基酸补充剂和抗氧化剂）下架，迫使亚马逊将其从其在线店面中删除。这给我们留下了一个令人不寒而栗的问题：作为针对美国公众的犯罪阴谋的一部分，FDA是否故意压制对治疗COVID-19脓毒症有用的抗氧化剂？*
+#### 与此同时，福奇博士（Dr. Fauci）仍在欺骗大众，还在大肆推广疫苗。福奇在本周二表示，如果每个人都接种疫苗，到明年美国可能会达到 Covid -19（CCP病毒）流行水平而不是大流行……人们仍然可能会被感染，人们可能仍会住院，但感染水平会低到我们甚至不用考虑COVID-19（CCP病毒）这件事，也不会影响我们的工作。
 
-*当局正在与人类历史上最恶劣的罪犯合作，并为他们提供便利，积极压制非疫苗治疗和疗法，以迫使我们将这些罪犯的产品注入我们的身体……*
+#### 最后，援引La Quinta Columna研究团队的两个重要研究结论：氧化石墨烯是所有疫苗的关键成份，注射含有氧化石墨烯成份的疫苗和感染CCP病毒是同样的后果，不要打疫苗！通过增加谷胱甘肽水平，（*笔者注：有可能*）可以减轻氧化石墨烯有毒物质的伤害！
 
-*结论：目前的大流行病是由机构产生和延续的，通过使用与解放军有联系的中共国生物战实验室设计的病毒，在美国纳税人的钱和法国专家的帮助下……*
+#### 停止杀戮，停止毒疫苗！
 
-*无论是通过武汉病毒研究所的泄漏还是故意释放，一种致命的SARS菌株现在已经在全球范围内流行，此前世卫组织和疾控中心以及政府官员先是淡化了风险，然后故意煽动恐慌和封锁，危及人们的健康和生计。*
+#### **参考资料：**
 
-*然后，统治我们的完全堕落和精神变态的贵族阶级利用这一点作为借口，胁迫人们接受注射毒药，这种毒药可能是“人口减少剂”，也可能是以注射“智能灰尘”形式出现的精神控制/安抚剂，或者两者都是……*
+[BREAKING NEWS: Pfizer Hid from Public the Number of Deaths in COVID Clinical Trials — Actual Number Was 21 Which Was 6 More than was Reported and 4 More than Unvaccinated Group](https://www.thegatewaypundit.com/2021/11/huge-breaking-news-pfizer-hid-public-number-deaths-covid-clinical-trials-actual-number-21-6-reported-4-unvaccinated-group/)
 
-*他们认为，通过将拒绝接种疫苗的社会污名作为武器，他们可以逃脱这一命运。他们的想法是不正确的。他们的动机对于任何关注此事的人来说都是清楚而明显的。*
+[Pfizer, BioNTech, Moderna Making Combined Profits of $93.5 Million a Day: Analysis](https://www.thegatewaypundit.com/2021/11/pfizer-biontech-moderna-making-combined-profits-93-5-million-day-analysis/)
 
-*这些自大狂搜刮了自由世界的养老基金。华尔街已经资不抵债，自2019年底以来一直存在流动性危机。现在的目的是在我们意识到我们被这些疯子敲诈得多么严重之前，对人类进行全面的、全方位的身体、精神和金融控制。大流行病及其应对措施为精英集团提供了多种用途：*
+[Pfizer, BioNTech, Moderna making $1,000 profit every second: analysis](https://medicalxpress.com/news/2021-11-pfizer-biontech-moderna-profit-analysis.html)
 
-- *掩盖了由高利贷资本家和缺席业主对我们的经济进行的高利贷掠夺所带来的萧条，他们对社会完全不产生任何价值……。*
-- *破坏小企业，侵蚀中产阶级。*
-- *将数万亿美元的财富从美国公众手中转移到亿万富翁和特殊利益集团的口袋里。*
-- *从事内幕交易，购买生物技术公司的股票，做空实体企业和旅游公司，目的是使面对面的商业和旅游业崩溃，代之以电子商务和服务化。*
-- *为与中共国开战制造理由，鼓励我们攻击他们，浪费美国人的生命和财富，把我们推向核大决战的边缘。*
-- *建立技术和生物安全框架，以控制人口和技术官僚社会主义的“智能城市”，每个人的行动都被专制地跟踪，所有这些都是为了预期广泛的自动化、失业和粮食短缺，利用疫苗的虚假幌子来迫使人们合作。*
+[OpenVAERS Report](https://openvaers.com/openvaers)
 
+[COMPLETE SURRENDER: Biden Talks to China’s President Xi on a Two-Hour Phone Call and Never Brings Up COVID](https://www.thegatewaypundit.com/2021/11/complete-surrender-biden-talks-chinas-president-xi-two-hour-phone-call-never-brings-covid/)
 
-*……精英们正试图拉高阶梯，消除大部分人口的向上流动，清除政治对手和其他‘不受欢迎的人’，并将人类的其余部分紧紧束缚起来，对他们认为‘影响大’的某些商品和服务进行配给，如汽车的使用、旅游、肉类消费等。*
+[Health product recall MASKS/ KN95 MASKS WITH BIOMASS GRAPHENE (2021-04-08)](https://recalls-rappels.canada.ca/en/alert-recall/masks-kn95-masks-biomass-graphene-2021-04-08)
 
-*自然，他们将继续拥有自己的奢侈品，作为类似于封建主义的严格种姓制度的一部分。他们为什么要这样做？很简单。精英们是新马尔萨斯主义者，他们认为我们人口过多，资源枯竭将在短短几十年内使文明崩溃。*
+[Shocking News: Spanish Researchers Find 98-99% of Pfizer Vaccine Vial is Comprised of Toxic/Blood-Clotting Nano Graphene Oxide–Also Found in Flu-Vaccines & Now Seen to be True Cause of COVID-19](https://everydayconcerned.net/2021/07/05/shocking-news-spanish-researchers-find-98-99-of-pfizer-vaccine-vial-is-comprised-of-toxic-blood-clotting-nano-graphene-oxide-also-found-in-flu-vaccines-now-seen-to-be-true-cause-of-covid-19/)
 
-*他们的这种想法不一定不正确。我们人口过剩，我们正在消耗太多的资源。然而，为了应对迫在眉睫的危机，他们策划了这样一场令人毛骨悚然的杀人夺权行动，表明他们对自己的同伴只有极度的蔑视。*
+[Official interim report of Pfizer’s vaccination vial analysis explained by La Quinta Columna](https://www.orwell.city/2021/06/vaccination-vial-analysis-explained.html)
 
-*对于那些参与这场令人厌恶的闹剧而不了解自己在做什么的人，我们有一个词送给你——停止。你们正在对你们的国家和你们的同胞造成不可弥补的伤害。*
+[La Quinta Columna: ‘Graphene oxide has its absorption band in 5G’](https://www.orwell.city/2021/06/la-quinta-columna-graphene-5G.html)
 
-*对于那些可能正在阅读这一警告的人，并且完全了解和理解他们正在做的事情，以及它将如何不公正地伤害数百万无辜的人，我们还有几句话要说。让你们下地狱吧。你们不会摧毁美国和自由世界，你们也不会拥有你们的新世界秩序。我们将确保这一点。*
+[Big Pharma Injecting Graphene Oxide As Adjuvant In COVID Jabs!](https://principia-scientific.com/big-pharma-injecting-graphene-oxide-as-adjuvant-in-covid-jabs/)
 
-**【全文完】**
+[“人民英雄”国家荣誉称号获得者陈薇——“除了胜利，别无选择”](http://cpc.people.com.cn/n1/2020/0912/c64387-31858861.html)
 
-**参考资料：**[truthunmuted.org] [Blackrock and Vanguard Behind the Global Takeover and Vaccine Mandates](https://truthunmuted.org/blackrock-and-vanguard-behind-the-global-takeover-and-vaccine-mandates/)
+（免责声明：本文只代表作者观点，跟GNEWS平台无关）
 
 * * *
 
-*审核：蚂蚁兄弟
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+编辑、校对 ctt
 
  
 

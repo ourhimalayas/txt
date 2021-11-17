@@ -2,75 +2,123 @@
 ---
 
 
-## 有声| 中共即将释放新的病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1672769/)
+## 千年不遇新金融时代的诞生战友们都是参与者
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672781/)
 
-配音：香草山香港部 – 新世界一员
+[https://gtv.org/video/id=6193c860182702508105e859](https://gtv.org/video/id=6193c860182702508105e859)
 
-防生化学院的一位资深的生化武器专家
+**郭文贵**
+**Miles Guo**
 
-他说所有的疫苗产生的灾难
+我们处在新中国联邦也好
+We are in the New Federal State of China
 
-开始是在五月份
+就我们所有战友要记住一个
+All of our comrades in arms need to remember this
 
-他说：因为疫苗的普及率
+我们面临着世界上前所未有的几个大的机会
+We are experiencing several unprecedented huge opportunities in the world
 
-他说：打得越来越多
+这个机会是跟时间，就是时间和时机
+These opportunities are related to the time frame which is timing and occasion
 
-他说：这个病毒会变种
+我们几乎是人类上千年不遇的
+We are in a situation that it’s almost unprecedented in a thousand years as a human
 
-同时在每个人不同的身体状况
+叫做新金融时代的诞生，就叫做虚拟货币
+which is the born of a new financial era, and is also called the virtual currency
 
-还有不同的人的身体的反应
+大家一定要记住这个词
+and everyone has to keep that word in mind
 
-综合的就是人群反映的结果
+而且我们是走在最前面、最核心的
+Also, we are at the core and act ahead of everyone
 
-他说在明年五月份
+技术全世界最好的
+Our technology is the best in the world
 
-开始，不是说到灾难
+系统全世界最完美的
+Our system is the most perfect one in the world
 
-他说你会看到飞机、游轮、运动员
+而且现在我们战友们拥有了6亿个币
+And now our comrades in arms have possessed 600 million HCoins
 
-这种身体越好的、越是这些驾驶员
+这6亿个币到下一个你有机会拿到币
+From this 600-million-coin to the next opportunity to get the coin
 
-他说死的会越突然
+还有11个月的时间
+still has 11 months to go
 
-他说因为所有打到身上的疫苗
+这个时间你要记住
+You need to remember this timing
 
-造成的所有的RNA
+你第一次拥有的币和第二次币是一个时间
+It’s the time frame when are the first time and second time having coins
 
-它不管怎么变，都会是这样
+也就是整个新世界的金融系统诞生
+That is, the financial system of the whole new world was established
 
-他说会造成身体最严重的心肌炎、心包炎
+整个人类
+The entire mankind
 
-突然就会脑梗、心梗，这个..那个..
+昨天摩根先生, 包括所有大老板
+Yesterday, Mr. Morgan, including all the big bosses,
 
-他说就是这么简单的结局
+没有任何人怀疑说
+none of them has doubted that
 
+还有这个任何机会说这个虚拟货币没有是不可能了
+there is any chance that it’s nothing impossible for this virtual currency
 
-原文链接：[中共即将释放新的病毒](https://gnews.org/zh-hans/1666337/)
+虚拟货币的数字货币世界的诞生
+The establishing of the digital currency world and virtual currency,
 
-音频处理：喜山必胜Maverick
+永远别忘，第一个
+we should never forget. First,
 
-发稿：Daxia
+由于时间，还给我们个时机
+because of the time frame, we have also gained an opportunity
 
-![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+人类上千年不遇的金融的新系统的诞生
+The born of this new financial system is unprecedented in a thousand years as a human
 
-**更多资讯，更多关注**
+你们是最前边，而且手里已经有币的
+You are at the very front and already in possession of the coins
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+包括有G-Club、G-Fashion
+including G-Club and G-Fashion
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+你一定记住，这都和你的命运连在一起的
+You must keep that in mind, all these are connected with your destiny
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+包括GTV、包括盖特
+including GTV, GETTR
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+都跟你连在一起的，你前所未有
+everything is unprecedented to you and connected with you
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)0
+你可不要想……这个币连着太多了
+It’s better not to think that… this coin is connected too much
 
-[![](https://media.discordapp.net/attachments/908033143146172416/909632036548014181/s2.png?width=400&amp;height=54)](https://cdn.discordapp.com/attachments/908033143146172416/909632036548014181/s2.png)
+**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1459700699869380608?s=24](https://twitter.com/se1y7cblljselva/status/1459700699869380608?s=24)
 
+Date: 11/14/2021
+原视频标题: 千年不遇新金融时代的诞生战友们都是参与者
+The Born of The New Financial Era Only Once in a Blue Moon And All Comrades Are The Participants
+原视频日期：2021/11/12
+任务编号：KC257（2878）
+视频时间段 : 0:00-1:43
 
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

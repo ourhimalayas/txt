@@ -2,123 +2,50 @@
 ---
 
 
-## 千年不遇新金融时代的诞生战友们都是参与者
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672781/)
+## 疯狂科学家现在正在开发替代疫苗的mRNA蔬菜和水果
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1672792/)
 
-[https://gtv.org/video/id=6193c860182702508105e859](https://gtv.org/video/id=6193c860182702508105e859)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-385.png)图片来源：Dreamstime & BioWorld
+**整理报道：文泓**
 
-**郭文贵**
-**Miles Guo**
+美国大部分地区至今仍被政府禁止在家中种植天然药材（如大麻、迷幻蘑菇、仙人掌）。然而，这个政府正在花费大量的纳税人收入来开发人工mRNA植物“疫苗”，未来将鼓励美国人消费，甚至可能自我种植，以“保护”免受最新设计“病毒”侵害。
 
-我们处在新中国联邦也好
-We are in the New Federal State of China
+加州大学河滨分校（UCR）最近的一份声明解释说，美国国家科学基金会（NSF）向UCR的一组科学家提供了50万美元的纳税人资助，为大药厂基因改造（GMO）新式的水果和蔬菜，在其植物材料中含有隐藏的疫苗。
 
-就我们所有战友要记住一个
-All of our comrades in arms need to remember this
+“（接种）疫苗的未来可能看起来更像吃沙拉，而不是在手臂上打一针”，信息官朱尔斯·伯恩斯坦（Jules Bernstein）在该项目公告中写道：**“****UCR****的科学家们正在研究是否能把像生菜这样的可食用植物，变成****mRNA****疫苗工厂（产品）。”**
 
-我们面临着世界上前所未有的几个大的机会
-We are experiencing several unprecedented huge opportunities in the world
+现有的传统瓶装mRNA疫苗必须保存在非常低的温度下才能保持“活力”，因此在“过期”之前如何将它们送入人们的“怀抱”是一个挑战。科学家说，**mRNA****蔬菜和水果可以解决这个问题。**
 
-这个机会是跟时间，就是时间和时机
-These opportunities are related to the time frame which is timing and occasion
+UCR植物学和植物科学系的副教授胡安·巴勃罗·吉拉尔多（Juan Pablo Giraldo）说：“理想情况下，一棵植物就能产生足够的mRNA来为一个人接种疫苗。”
 
-我们几乎是人类上千年不遇的
-We are in a situation that it’s almost unprecedented in a thousand years as a human
+“我们正在用菠菜和生菜测试这种方法，长期目标是让人们在自己的花园里种植它。农民也可在整个田地里种植。”
 
-叫做新金融时代的诞生，就叫做虚拟货币
-which is the born of a new financial era, and is also called the virtual currency
+**在美国，自然的是“非法的”，不自然的反而是正常的**
 
-大家一定要记住这个词
-and everyone has to keep that word in mind
+吉拉尔多进一步解释说，对植物进行重新编程以制造人工mRNA纳米颗粒的关键是篡改它们的叶绿体（基因）。
 
-而且我们是走在最前面、最核心的
-Also, we are at the core and act ahead of everyone
+这些小型植物细胞器官通常将阳光转化为能量，然后由植物用来生长和茁壮成长。经吉拉尔多和他的同事基因编辑后，这些叶绿体可以被用来为制药业培育mRNA药物。
 
-技术全世界最好的
-Our technology is the best in the world
+吉拉尔多说：“它们是微小的、由太阳能驱动的工厂，生产糖和其它分子，使植物得以生长。也是（科学家）制造理想分子的一个未开发的来源。”
 
-系统全世界最完美的
-Our system is the most perfect one in the world
+**吉拉尔多所说的“理想的”当然是指可申请专利的，更重要的是可盈利的。一旦他们所谓的“疫苗”注射剂在市场上销声匿迹，下一步就是将它们伪装成新鲜产品。**
 
-而且现在我们战友们拥有了6亿个币
-And now our comrades in arms have possessed 600 million HCoins
+**像吉拉尔多这样的疯狂科学家显然相信，如果“疫苗”看起来更像食物，而不是金属注射器，就会有更多人被说服食用**。而且他们将竭尽全力实现这一目标。
 
-这6亿个币到下一个你有机会拿到币
-From this 600-million-coin to the next opportunity to get the coin
+“我们的想法是重新利用自然发生的纳米粒子，即植物病毒，将基因传递给植物，”关于这个可恶的项目加州大学旧金山分校纳米工程教授妮可·斯坦梅茨（Nicole Steinmetz）补充说。
 
-还有11个月的时间
-still has 11 months to go
+吉拉尔多说，开发这样的产品一直是他的一个“梦想”。引用他的话，“我开始从事纳米技术工作的原因之一，是我可以将其应用于植物并创造新的技术解决方案。不仅仅是食品，还有高价值产品，如药品。”
 
-这个时间你要记住
-You need to remember this timing
+新闻链接：[Scientists now developing mRNA vegetables so that grocery stores can sell “vaccines” hidden in food – NaturalNews.com](https://www.naturalnews.com/2021-11-16-scientists-mrna-vegetables-eat-produce-vaccines.html)
 
-你第一次拥有的币和第二次币是一个时间
-It’s the time frame when are the first time and second time having coins
+***发布：Candy***
 
-也就是整个新世界的金融系统诞生
-That is, the financial system of the whole new world was established
-
-整个人类
-The entire mankind
-
-昨天摩根先生, 包括所有大老板
-Yesterday, Mr. Morgan, including all the big bosses,
-
-没有任何人怀疑说
-none of them has doubted that
-
-还有这个任何机会说这个虚拟货币没有是不可能了
-there is any chance that it’s nothing impossible for this virtual currency
-
-虚拟货币的数字货币世界的诞生
-The establishing of the digital currency world and virtual currency,
-
-永远别忘，第一个
-we should never forget. First,
-
-由于时间，还给我们个时机
-because of the time frame, we have also gained an opportunity
-
-人类上千年不遇的金融的新系统的诞生
-The born of this new financial system is unprecedented in a thousand years as a human
-
-你们是最前边，而且手里已经有币的
-You are at the very front and already in possession of the coins
-
-包括有G-Club、G-Fashion
-including G-Club and G-Fashion
-
-你一定记住，这都和你的命运连在一起的
-You must keep that in mind, all these are connected with your destiny
-
-包括GTV、包括盖特
-including GTV, GETTR
-
-都跟你连在一起的，你前所未有
-everything is unprecedented to you and connected with you
-
-你可不要想……这个币连着太多了
-It’s better not to think that… this coin is connected too much
-
-**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1459700699869380608?s=24](https://twitter.com/se1y7cblljselva/status/1459700699869380608?s=24)
-
-Date: 11/14/2021
-原视频标题: 千年不遇新金融时代的诞生战友们都是参与者
-The Born of The New Financial Era Only Once in a Blue Moon And All Comrades Are The Participants
-原视频日期：2021/11/12
-任务编号：KC257（2878）
-视频时间段 : 0:00-1:43
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

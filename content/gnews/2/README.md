@@ -2,55 +2,160 @@
 ---
 
 
-## 拜登的强制疫苗令被暂停，60％企业表示会继续执行
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1672984/)
+## 美国媒体大重启大药厂封杀疫苗事件和共产党罪行
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672987/)
 
-蒙特利尔皇家山战友团 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/11/AP21307751014720.0.jpg)图片来源：Deseret News
-根据《CNN》11月17日报道，大多数雇主表示无论法院是支持还是驳回总统乔-拜登的要求，仍要全速推进强制疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tt-asp84-zw5tb.jpg)
+[https://gtv.org/video/id=6195006e18270250810628cb](https://gtv.org/video/id=6195006e18270250810628cb)
 
-联邦上诉法院暂停了拜登政府强制要求100人以上的企业员工接种疫苗或每周测试的计划。但咨询公司Gartner公司周二对300家企业进行的一项闪电式调查显示，60%的企业仍执行计划，就像拜登1月4日的最后期限仍然存在一样。
+**郭文贵**
+**Miles Guo**
 
-咨询公司Gartner的人力资源业务研究主管克洛普（Brian Kropp）称，在参与调查的企业高管中，只有约10%的人说他们正在从计划中退缩，有30%的人在权衡如何进行。
+另外一个班农事情意味着什么
+Another one is that what does the Bannon incident signal?
 
-法院反对强制规定的裁决只适用于政府的规则，而不适用于已经制定了自己的疫苗要求的个别公司。而且，这些决定在法律挑战面前是站得住脚的。例如，一家联邦法院本月维持了美国联合航空公司（UAL）的员工疫苗强制，即使拜登强制令被暂时搁置的情况下。
+美国媒体大重启
+The U.S. media’s big actions resume,
 
-卫生政策智库 KFF 上个月接受调查的工人中，约有 25% 表示他们的雇主现在有疫苗强制要求，而 6 月份的调查中这一比例仅为 9%。约有 8000 万名私营部门雇员将受到拜登政府强制疫苗的约束。
+大重启
+The huge resume
 
-位于新奥尔良的上诉法院周五作出的裁决严厉批评了职业安全与健康管理局要求雇主订购疫苗或进行测试以确保工作场所安全的权力。由三名法官组成的小组称该规则“存在致命缺陷”且“过于宽泛”。但该法院决定暂停了这项任务，并没有取消。此案已被重新分配给俄亥俄州的另一个联邦上诉法院。
+就班农事件你看高兴的是谁
+You can tell who was happy by the Bannon incident
 
-许多人预计，该案件最终将提交给最高法院。尽管该法院的多数成员是保守派，但自大流行病开始以来，曾拒绝阻止强制疫苗。这种法律上的不确定性是许多专家说企业推进疫苗强制或测试计划的一个原因。
+不高兴的是谁，你看得出来
+and who was upset
 
-一些商业团体，包括美国商会和商业圆桌会议（一个由美国许多最大和更有实力的公司组成的团体），对这些任务规定表示了普遍支持。
+疫苗没人报道
+The vaccine disaster has not been reported by anyone
 
-许多企业指望联邦强制能让他们制定他们想要的规则来告诉对疫苗有抵抗力的工人，使他们别无选择，只能打疫苗。也不必担心那些不愿意接种疫苗的工人会被类似规模的公司抢走。
+美国严肃媒体的50%到75%的广告费来自何方
+Where do these 50% to 75% of the serious media advertising charges in the United States come from?
 
-克罗普说：”法院的这一决定为那些希望遵守规则的雇主制造了一块绊脚石，员工不打疫苗因为’法院说这是非法的’。”
+全是大药厂
+They are all major pharmaceutical factories
 
-很大比例的未接种疫苗的员工说，如果强制接种疫苗，如果让他们在疫苗或每周测试之间做出选择，他们将辞职。这是一些雇主的担忧，因为此时工人辞职的人数创下新高，企业无法填补他们的职位空缺。
+全世界特别是美国的严肃媒体的50到65到70的广告费
+50% to 70% of advertising fees for serious media in the world, especially in the United States
 
-特别是零售商对联邦疫苗授权的想法表示了反对。全国零售商联合会是赞扬法院搁置联邦规则之举的团体之一，说联邦授权将损害其许多成员，因为在这个竞争激烈的劳动力市场上，将失去被停职的员工，与授权有关的合规和监测成本，以及资源的转移。这是一些雇主的担忧，因为此时工人辞职的人数创下新高，企业无法填补他们的职位空缺。
+来自于大药商
+are coming from major pharmaceutical factories
 
-特别是零售商对联邦疫苗授权的想法表示了反对。全国零售商联合会是赞扬法院搁置联邦规则之举的团体之一，联邦强制疫苗将损害其许多成员，因为在这个竞争激烈的劳动力市场上，将失去被停职的员工，与强制有关的合规监测成本，以及资源的转移。
+所以疫苗没人说话呀
+That’s why nobody talks about the vaccine disaster
 
-零售商贸易集团表示：“法院意识到联邦强制疫苗给全国数百万企业带来了难以置信和前所未有的负担，传播本质上不是工作场所的问题”。
+疫苗没人说话
+No one covers the vaccine disaster
 
-一些寻找工人的雇主在他们的工作列表中包括 “不需要接种疫苗”，以此来吸引对疫苗犹豫不决的工人。
+共产党的事也没人说话
+No one talks about things that the CCP does
 
-但是像美联航和泰森食品（TSN）这样的许多公司的经验是，当面临疫苗或失业的选择时，很少有员工，远低于5%的人辞职。
+Eglise你想过这问题吗
+Eglise, have you ever thought about this issue?
 
-克罗普说，许多企业计划在明年初重新开放办公室，这是自大流行病开始以来的第一次，雇主们担心，如果不能保证所有同事都接种疫苗，员工们不想回到办公室了。这是一些雇主将继续执行强制疫苗的原因，即使正在进行的法庭斗争意味着联邦强制不会在1月4日的计划日期前生效。
+为什么疫苗没人说
+Why nobody talks about vaccines,
 
-克罗普说：”人力资源执行官从他们的总法律顾问那里得到的建议是这是一个完全合法的强制，但这可能会推迟两三个月。对于那些不想在等待法院判决后重新开放办公室的企业来说，这是执行强制疫苗的理由”。
+共产党在美国对班农的事也没人说
+nor talks about how the CCP targeting Bannon in the United States
 
-这项疫苗强制令关系到8000万名私企雇员的生命安全，由于大部分雇主受到政府，卫生部和媒体的蒙骗而无法做出正确的决定，非常让人担忧，只有抵制强制疫苗才能保护自己的员工。
+这说明他是(同)一个老板哪, 对吧？
+These indicate they have the same boss. Correct?
 
-原文链接：
-[https://www.cnn.com/2021/11/17/economy/employer-vaccine-mandates/index.html](https://www.cnn.com/2021/11/17/economy/employer-vaccine-mandates/index.html)
+邪恶和共产党是一个老板
+The evil and the Communist Party are the same boss
 
-* * *
+这对美国威胁大了去了
+This is a severe threat to the U.S.
 
-发稿 Spirit
+我们提前42天的警报证明了以下的问题
+Our 42-day early warning has proved the following problems
+
+而且这些对班农大媒体对他整个的封杀
+and the Bannon incident which he was completely banned from major media
+
+还有整个的完全无视真相的忽视
+as well as the whole ignorance of completely ignoring the truth
+
+然后看好要抓这个班农
+Then, I’m optimistic about arresting Bannon
+
+我说你啥时侯被抓啊，赶快抓呀？
+I asked when did you (Bannon) get arrested, hurry up?
+
+他说我等着呢，没抓啊
+He said he was still waiting
+
+我说你赶快（被）抓了吧
+I was joking that hurry up got arrested
+
+现在我是真希望你能到某个我们的小船上等着去
+Now I really hope that you can wait in one of our boats
+
+再在船上把你给抓走啊
+then you got arrested in the boat and taken away
+
+所以说这次班农无疑成为美国的政治教父
+So this time Bannon will undoubtedly become the political godfather of the United States
+
+这是绝对的
+This is absolute
+
+更重要它团结了（美国人）
+the most significant is that the American people have united
+
+我刚刚看到这个
+I have just seen this one
+
+川普发出了新的文章
+Trump have published a new article
+
+我发给你们群里边
+I’ll send it to your group chat
+
+这是很大的事情
+This is a huge event
+
+所以说兄弟姐妹们
+So, brothers and sisters
+
+这个时候咱们新中国联邦的一个宣言人成了世界的焦点，是吧？
+At this time, one of our New Federal State of China’s declarers has become the fo-cus of the world, right?
+
+成了一个美国的政治当中最重要的风水标
+He has become one of the most important weathercock in American politics
+
+受益者当然是新中国联邦，是吧？
+The beneficiary is of course the New Federal State of China, right?
+
+这个意义大到哪儿去了
+What’s the significance of this?
+
+谈班农不谈郭文贵好像这事都过不去，是吧？
+Talking about Bannon but not Guo Wengui seems to be hard to get through, right?
+
+谈班农不谈咱新中国联邦都过不去
+It doesn’t make any sense that talking about Bannon but not the New Federal State of China
+
+**原视频链接:** [https://gettr.com/post/pgzhxnc17a](https://gettr.com/post/pgzhxnc17a)
+
+Date: 11/14/2021
+原视频标题: 班农事件意味着美国媒体大重启大药厂封杀疫苗事件和共产党罪行
+The Bannon incident indicates that the U.S. media has resumed that the major drug factories blocking vaccine incidents and the Communist Party crimes
+原视频日期：2021/11/14
+任务编号：KC260（2895）
+视频时间段 : 0:00-2:14
+
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
