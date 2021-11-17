@@ -2,12 +2,10 @@
 ---
 
 
-## 洪都拉斯总统突访台湾
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670629/)
+## 医学博士揭露刺突蛋白是人类史上最精心设计的毒素之一
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670635/)
 
-作者：澳喜农场 在远方
-
-
+作者：纽约香草山文艺部 – 宁文静
 
 
 
@@ -17,13 +15,13 @@
 
 
 
-11月13日，洪都拉斯总统叶南德兹对台湾进行了访问，并拜会了蔡英文总统。 叶南德兹表示，这是他第四次访问台湾，在当前台海局势如此紧张的情况下，他代表洪都拉斯与台湾站在一起，此举是要向外界表达一个非常清楚及坚定的讯息，那就是“朋友之间，患难见真情”。
+11月15日，著名有遗传学、高等生物学、微生物学和生物化学博士—-山卡拉·切蒂在视频中指出，刺突蛋白是人类有史以来最精心策划的毒素，可以悄然无形地杀死数十亿人。而新冠疾病的病原体是刺突蛋白，而无论灭活疫苗还是mRNA疫苗，都是在身体里制造更多的刺突蛋白。
 
-据悉，洪都拉斯将于11月28日举行总统大选，而反对党扬言上台后要与台湾断交，因此此次访问颇受外界关注。有学者分析认为，就洪都拉斯总统大选的选情来看，执政党还不一定会输。并且反对党即使获胜上台后，也不见得真的会罔顾美国的意见和台湾断交。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-117.png)
-**参考链接：**
+切蒂博士还分析了疫苗不易被质疑的原因。疫苗引发的过敏反应导致死亡，通常在接种后第8天，但这处于CDC规定的14天期限内，被统计在未接种数字中。这样的统计方法让人心生恐惧，互相指责，但这只是开始。刺突蛋白造成的内皮损伤，可以出现在身体任何部位，引发自身免疫系统的过激反应。这种对身体的损伤，甚至死亡，将会因分布之广、数量之多、时间跨度之长，很难被质疑是疫苗引起的。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-91.jpg)
+参考链接：
 
-[https://www.voachinese.com/a/honduras-president-s-surprise-visit-to-taiwan-amid-worries-about-diplomatic-ties-20211114/6312765.html](https://www.voachinese.com/a/honduras-president-s-surprise-visit-to-taiwan-amid-worries-about-diplomatic-ties-20211114/6312765.html)
+[https://gettr.com/post/ph04qm8a14](https://gettr.com/post/ph04qm8a14)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 

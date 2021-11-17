@@ -2,10 +2,10 @@
 ---
 
 
-## 岸田文雄与马克龙通话，认同两国军事合作取得飞跃发展
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1670595/)
+## 拜登和习视频会谈，中美双方各说各话
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1670610/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._17-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1117-1-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
