@@ -2,30 +2,33 @@
 ---
 
 
-## 谷歌将在澳洲投资10亿澳元 可创数千工作岗位
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1671691/)
+## 法院和医院拒绝使用伊维菌素导致中共病毒患者死亡
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1671788/)
 
-撰稿：文登
-![](https://assets.gnews.org/wp-content/uploads/2021/11/171-2.png)图片来源于网络
-Alphabet旗下的谷歌(Google)宣布，将在五年内向澳大利亚基础设施、研究和伙伴关系投资10亿澳元（约合7.3亿美元），这将是谷歌在澳大利亚最大的一笔投资。
+整理报道：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4L2YVV4IMZQTMI5TJ7IGMGZHKY.jpg)图片来源：Tampabay
+11月16日，《新闻极限》引述《华盛顿观察家报》报道，指由于法院和医院拒绝使用伊维菌素治疗一名感染中共病毒（COVID-19）的妇女，导致该妇女去世，终年47岁。
 
-通过视频连接，Alphabet和谷歌首席执行官Sundar Pichai宣布，在澳洲启动名为“数字未来投资”的项目。
+12周前，塔玛拉·德罗克（Tamara Drock）在棕榈滩花园医疗中心住院，他的丈夫瑞安·德罗克（Ryan Drock）告诉《华盛顿观察家报》，他上个月提起诉讼，试图迫使医院使用伊维菌素治疗妻子，但被一名县巡回法官驳回。
 
-对于谷歌的最新举动，澳大利亚总理斯科特·莫里森当天赞扬谷歌此举是“为澳大利亚的经济战略投出了10亿澳元的信任票”。此前，莫里森政府曾提出一项“到2030年将澳大利亚发展成顶级数字经济体”的计划，致力于加强在人工智能等领域的实力。
+尽管德罗克可以收到一定剂量的伊维菌素作为最初达成交易的一部分，但家庭律师认为该剂量太低了，从而导致交易失败。
 
-莫里森在谷歌位于悉尼的办公室发表讲话时强调，谷歌的这项投资“并不意味着澳大利亚正努力成为下一个硅谷”，但它“有助于创造6000多个工作岗位，并创造约67亿澳元（约313.8亿人民币）的价值”。
+瑞安·德罗克说：“我希望用她的名字命名一条法律，这样就没有人遭遇这些了。”
 
-双方都没有提及年初的争端，不过莫里森在16日的讲话中提到：“谷歌决定按照他们自己的方式进行投资的事实……确定了我们之间的合作关系”，“我们已经与科技机构在很多方面达成了合作，此外还有许多领域需要我们努力。
+该家庭的律师杰克·哈克斯塔布（Jake Huxtable）告诉西棕榈滩电视频道WPTV，他将就该法官的决定向第四区上诉法院提起诉讼。他说：“这是选择的自由，她有选择接受这种医疗方法的自由，但法院不允许，医院也不允许”。
 
-这笔投资项目将为澳洲带来6000多个直接工作岗位，支持澳洲总计2.8万余个工作岗位，主要集中在3个领域：构建数字经济基础设施、当地创新以及合作解决当地问题。
-（文章内容仅代表作者观点，与Gnews平台无关）
-*发稿：mgjxs*
-参考链接：www.afndaily.com
+**新闻来源**
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+[Florida Woman Whose Family Sued Hospital for Ivermectin Dies](https://www.newsmax.com/newsfront/florida-covid-19-death-ivermectin/2021/11/16/id/1044906/)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
+**发布：七彩光**
+
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

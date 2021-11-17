@@ -2,29 +2,28 @@
 ---
 
 
-## 有声| 疫苗护照，中共病毒战争期间的“新路条”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1672049/)
+## 美台资深官员将于华盛顿举行会议
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672145/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月15日，据台湾媒体消息，在当天的拜习视频会晤后，台湾与美国的资深官员将于16、17两日在美国华盛顿连续举办美台政治军事对话以及国防检讨会。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-17-下午10.39.26.png)
+据了解，相较于拜习视频会的仓促，美台此次会晤经过充足的准备与协商，但两场会议同时举行于双方而言尚属首次。
 
+媒体透露，目前已知的即将出席对话的人士包括台湾总统府副秘书长徐斯俭、外交部政务次长曾厚仁，以及国防部军政副部长柏鸿辉；美方则有国务院政军局助理国务卿露易丝和国防部印太事务助理部长瑞特纳。
 
-“特殊通行证”，“良民证”，这些在二战曾经用来区分不同人群的身份证件再次回到我们的生活当中。一个小小的QR code，将所有地球人分为打了疫苗的和未打疫苗的。未打疫苗的人群正在受到前所未有的不公平待遇。
+数据显示，这是今年经由媒体公开的美台第二次政治军事对话。消息人士称，双方愿意公布这些会谈代表着美台关系的提升，同时，双方将过去模糊的策略变得明白化、公开化和正常化。
 
-路透社维也纳14日报道，从周一开始，数百万没有完全接种疫苗的奥地利人将被重新禁锢家中。政府给出的理由是激增的感染率和日趋紧张的重症监护室床位。
+参考链接：
+1）[台媒：习拜会后台美资深官员将举行对话](https://www.zaobao.com.sg/realtime/china/story20211115-1213576)
+2）[台美政军对话今举行 专家：显见美对台政策延续](https://www.voachinese.com/a/5728287.html)
 
-多个政府对未接种疫苗的人们采取歧视行动。奥地利再次限制人们的自由行动，这次仅针对未接种者。澳大利亚的某些州要求必须接种疫苗才能从事特定职业。加拿大的公共交通最不欢迎未打疫苗的人，一律不准乘飞机，坐火车。新加坡则要求从下个月起不打疫苗就自己负担医药费。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-这些标榜自由民主的发达国家，在中共蓝金黄的渗透下，不去追根溯源病毒到底是哪里来的，反而利用人民赋予他们的行政权力，强行违宪的出台对未接种人群的歧视性条例。
-
-不灭中共，各种各样的“新路条”会层出不穷。
-
-文字版原文：[疫苗护照，中共病毒战争期间的“新路条”](https://gnews.org/zh-hans/1668463/)
-
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
-
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编：飞虹
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -32,7 +31,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,131 +15,131 @@
 
 ---
 
-### [有声| 疫苗灾难明年5月份开始](/content/gnews/1/README.md)
+### [美日海军南海潜舰联合训练演习](/content/gnews/1/README.md)
+ ` GTV新闻访谈`
+
+### [有声|意大利政府对中共国收购军用无人机公司提出正式控告](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [有声| 继沃尔玛之后，克罗哥再陷加密货币骗局](/content/gnews/2/README.md)
+### [疯狂：福奇承认新冠病毒正在杀人，称“助推器”会以某种方式阻止屠杀](/content/gnews/3/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [有声|医学博士揭露刺突蛋白是人类史上最精心设计的毒素之一](/content/gnews/4/README.md)
  ` MOSREC`
 
-### [有声| 俄克拉荷马国民警卫队最高长官上任伊始签署反疫苗令](/content/gnews/3/README.md)
+### [日本经济安保法案排除中共敏感设备](/content/gnews/5/README.md)
+ ` GTV新闻访谈`
+
+### [美台资深官员将于华盛顿举行会议](/content/gnews/6/README.md)
+ ` GTV新闻访谈`
+
+### [台湾陆委会强烈驳斥习近平涉台谈话](/content/gnews/7/README.md)
+ ` GTV新闻访谈`
+
+### [“请记住，消灭中共！”班农走出联邦法院后再次强调](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [有声|国际女网协会要求中共调查彭帅被性侵事件](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [共产党是全世界邪恶势力的总部](/content/gnews/4/README.md)
+### [盖特全球推广稳步展开](/content/gnews/10/README.md)
+ ` GTV新闻访谈`
+
+### [有声| 疫苗灾难明年5月份开始](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [有声| 继沃尔玛之后，克罗哥再陷加密货币骗局](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [有声| 俄克拉荷马国民警卫队最高长官上任伊始签署反疫苗令](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [共产党是全世界邪恶势力的总部](/content/gnews/14/README.md)
  ` 首尔天池农场`
 
-### [有声|GTV新闻访谈简报|2021年11月16日早](/content/gnews/5/README.md)
+### [有声|GTV新闻访谈简报|2021年11月16日早](/content/gnews/15/README.md)
  ` MOSREC`
 
-### [有声| 疫苗护照，中共病毒战争期间的“新路条”](/content/gnews/6/README.md)
+### [有声| 疫苗护照，中共病毒战争期间的“新路条”](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [有声| 新中国联邦人将是找到生命和信仰真相的人类新群体](/content/gnews/7/README.md)
+### [有声| 新中国联邦人将是找到生命和信仰真相的人类新群体](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [11/17/21 香港快讯 立会投票日廉署将动员8百人 吁勿转载煽动投白票言论](/content/gnews/8/README.md)
+### [11/17/21 香港快讯 立会投票日廉署将动员8百人 吁勿转载煽动投白票言论](/content/gnews/18/README.md)
  ` 英喜-粵語組`
 
-### [上海将对密室剧本杀实施备案管理](/content/gnews/9/README.md)
+### [上海将对密室剧本杀实施备案管理](/content/gnews/19/README.md)
  ` G-NEWS TAIWAN`
 
-### [无害化处理将会成为中共最终解决方案](/content/gnews/10/README.md)
+### [无害化处理将会成为中共最终解决方案](/content/gnews/20/README.md)
  ` G-NEWS TAIWAN`
 
-### [超过1万名澳大利亚人已经向政府提出中共病毒疫苗伤害索赔](/content/gnews/11/README.md)
+### [超过1万名澳大利亚人已经向政府提出中共病毒疫苗伤害索赔](/content/gnews/21/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中国的习近平在虚拟峰会上威胁拜登，声称美国将在台湾问题上“被烧死”](/content/gnews/12/README.md)
+### [中国的习近平在虚拟峰会上威胁拜登，声称美国将在台湾问题上“被烧死”](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拜登为什么主动会晤习近平？](/content/gnews/13/README.md)
+### [拜登为什么主动会晤习近平？](/content/gnews/23/README.md)
  ` 波士顿五月花农场`
 
-### [西媒头条 — 第111期](/content/gnews/14/README.md)
+### [西媒头条 — 第111期](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [我们的第三种权力：新中国联邦国防军](/content/gnews/15/README.md)
+### [我们的第三种权力：新中国联邦国防军](/content/gnews/25/README.md)
  ` 波士顿五月花农场`
 
-### [法院和医院拒绝使用伊维菌素导致中共病毒患者死亡](/content/gnews/16/README.md)
+### [法院和医院拒绝使用伊维菌素导致中共病毒患者死亡](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [台湾前线｜拜登：台湾是否独立 台湾自己决定](/content/gnews/17/README.md)
+### [台湾前线｜拜登：台湾是否独立 台湾自己决定](/content/gnews/27/README.md)
  ` G&#124;News TAIWAN`
 
-### [维州“流行病法”修改后将在议会通过](/content/gnews/18/README.md)
+### [维州“流行病法”修改后将在议会通过](/content/gnews/28/README.md)
  ` 走进澳洲`
 
-### [澳总理：未来技术必须保护人民](/content/gnews/19/README.md)
+### [澳总理：未来技术必须保护人民](/content/gnews/29/README.md)
  ` 走进澳洲`
 
-### [COVID-19最新情报｜奥地利未接种疫苗 没事恐无法出门](/content/gnews/20/README.md)
+### [COVID-19最新情报｜奥地利未接种疫苗 没事恐无法出门](/content/gnews/30/README.md)
  ` G&#124;News TAIWAN`
 
-### [樱花灭共诗——怨三三•19届6中全会](/content/gnews/21/README.md)
+### [擀面杖细了，中共紧急兑现2000亿缓税费](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [擀面杖细了，中共紧急兑现2000亿缓税费](/content/gnews/22/README.md)
+### [中共国东中西三地同时地震](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国东中西三地同时地震](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【视频+全文字幕】文贵2021年11月16日直播&#8212;兑现承诺拜自由女神像](/content/gnews/24/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [拜习所赐](/content/gnews/25/README.md)
+### [拜习所赐](/content/gnews/33/README.md)
  ` 银河勇气之星`
 
-### [谷歌将在澳洲投资10亿澳元 可创数千工作岗位](/content/gnews/26/README.md)
+### [谷歌将在澳洲投资10亿澳元 可创数千工作岗位](/content/gnews/34/README.md)
  ` 澳喜特战旅Gnews`
 
-### [日本要闻汇编 11月17日](/content/gnews/27/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [如何改善肠道生物群落与免疫功能？](/content/gnews/28/README.md)
+### [如何改善肠道生物群落与免疫功能？](/content/gnews/35/README.md)
  ` 澳喜农场`
 
-### [第二批美国联邦州提起诉讼挑挑战强制接种中共病毒疫苗](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2021/11/15 墙内世界](/content/gnews/30/README.md)
+### [2021/11/15 墙内世界](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/31/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/37/README.md)
  ` wenwu`
 
-### [辉瑞、生物科技、莫德纳每秒赚一千美元利润](/content/gnews/32/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [七哥谈喜联储VI:白皮书和摩根士丹利的加密系统无人匹敌](/content/gnews/33/README.md)
+### [七哥谈喜联储VI:白皮书和摩根士丹利的加密系统无人匹敌](/content/gnews/38/README.md)
  ` NewFOC`
 
-### [印度政府加强监管加密货币，利好喜马拉雅币](/content/gnews/34/README.md)
+### [印度政府加强监管加密货币，利好喜马拉雅币](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [许家印的70亿能让恒大续命几秒？](/content/gnews/35/README.md)
+### [许家印的70亿能让恒大续命几秒？](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登政府或已决定外交抵制北京冬奥会 正待择时宣布](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [英首相约翰逊：英国人需要接种第三针新冠疫苗才被算作完全接种](/content/gnews/37/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [卢比奥搁置确认美国驻中共国大使人选](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2018年5月22日郭文贵先生第二次直播全文字版](/content/gnews/39/README.md)
+### [2018年5月22日郭文贵先生第二次直播全文字版](/content/gnews/41/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [美国医生开具伊维菌素治疗中共病毒遭受匿名投诉](/content/gnews/40/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [郭文贵先生高度肯定 班农注定成为美国政治教父级的人物](/content/gnews/41/README.md)
+### [郭文贵先生高度肯定 班农注定成为美国政治教父级的人物](/content/gnews/42/README.md)
  ` 纽约香草山MOS01`
-
-### [俄克拉荷马州法案允许工人因强制中共病毒疫苗规定起诉雇主索赔100万美元](/content/gnews/42/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [NFT与新中国联邦](/content/gnews/43/README.md)
  ` 纽约香草山MOS01`

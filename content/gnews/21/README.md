@@ -2,27 +2,43 @@
 ---
 
 
-## 樱花灭共诗——怨三三•19届6中全会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1671748/)
+## 超过1万名澳大利亚人已经向政府提出中共病毒疫苗伤害索赔
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1671940/)
 
-#### 作者：东京樱花团/藤田村野
-![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-高鸾殿上掌声雷， 胜利收帏。
+**By:秘翻新闻**
 
-集一身权力党魁。
+***2021-11-17***
+[![](https://assets.gnews.org/wp-content/uploads/2021/11/1117-2.jpg)](https://gtv.org/broadcast/watch/6194c36ee7e770379236237a)点击图片观看视频
+**新闻摘要:**
 
-赞毛绩，邓江摧！
+1. 许家印变卖个人资产 为恒大续命注资70亿
 
-升平不掩戈挥， 暗流湍、高层角追。
+2. 避美国制裁 华为授权手机设计给第三方
 
-决议久无媒，
+3. 报告：中国八成年轻人不想生育 富人想外逃
 
-千刀拼杀，只为拳锤！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/C1CB02C6-7B84-495F-8BC6-6A739CB55106.jpeg)
-*插图：东京樱花团/闪闪*
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+4. 不识字老人被银行忽悠 45万存款变保险
+
+5. 林郑月娥自曝申请美签遭拒 去年曾称无意访美
+
+6.  拜习会后美中表述大不同 党媒称“拜登不支持台独”遭打脸
+
+7.  超过1万名澳大利亚人已经向政府提出中共病毒疫苗伤害索赔
+
+8.  美国将购买辉瑞公司中共病毒口服药
+
+9.  美养老院8名完全接种疫苗者死亡
+
+10. 英国首相：需要接种3剂疫苗才能被视为完全接种
+
+**GTV链接：**[https://gtv.org/broadcast/watch/6194c36ee7e770379236237a](https://gtv.org/broadcast/watch/6194c36ee7e770379236237a)
+
+发布: 文橙
+
+* * *
+
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

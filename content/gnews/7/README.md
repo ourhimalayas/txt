@@ -2,23 +2,24 @@
 ---
 
 
-## 有声| 新中国联邦人将是找到生命和信仰真相的人类新群体
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1672037/)
+## 台湾陆委会强烈驳斥习近平涉台谈话
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672144/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+作者：澳喜农场 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月16日，台湾陆委会发布声明表示，对于习近平在拜习视频会议中所提出的对台主张，台湾方进行了强烈驳斥。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-17-下午10.39.16.png)
+声明强调，中共借口与国际互动，掩饰其破坏两岸关系的霸权行径，同时嫁祸于台湾，对此，国际社会早已产生了强烈的质疑和反对。中华民国一直是主权独立的国家，台湾也从来不是中共国的一部分——两岸互不隶属既是客观事实，又是当前的台海现状。
 
+声明中还提到，中共不断加大对台湾的政治及军事威胁恫吓，制造台海紧张对立气氛，又对台湾进行统战分化，强迫台湾接受共产党的错误主张。而今，中共一再误判形势，持续加深两岸的隔阂。但是，两千三百万台湾人民会坚定地捍卫主权尊严和民主生活方式，绝不接受中共的威胁和挑衅。因此，中共一厢情愿设定的强迫式结局，绝不可能实现。
 
-11月14日的“文贵大直播”中，在谈到宗教和信仰时，郭先生说，人类不需要任何作为信仰的中介的宗教，但人类需要信仰。信仰就是要理解人生最根本的意义。即你为什么来到这个世界? 你是怎么来到这个世界的? 你未来会去向何方? 你怎么能去到你想去的地方?……而所谓的宗教，其实是搭建在你和信仰之间的各种中介。实际上，真正的信仰，不需要任何宗教。
+参考链接：[中共霸權威脅臺海和平，臺灣不接受其設定的兩岸現狀與終局](https://www-mac-gov-tw.translate.goog/News_Content.aspx?n=B383123AEADAEE52&amp;s=38341230629129EF&amp;_x_tr_sl=zh-TW&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui,sc)
 
-郭先生感叹说，信仰是目前新中国联邦人最模糊的一个问题，也是最需要思考面对的问题，因为信仰是终极问题，其他方面的问题都是解决信仰问题的中间过程。人类尤其是被CCP统治过的中国人，对自己过去和现状的判断以及对未来的认知，基本上已经被脑控了。现存的各种宗教没有一个适合于新中国联邦人的，新中国联邦人会找到人类真正的生命和信仰真相。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-文字版原文：[新中国联邦人将是找到生命和信仰真相的人类新群体](https://gnews.org/zh-hans/1666980/)
-
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
-
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编：文特
+编辑：文特
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -26,7 +27,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
