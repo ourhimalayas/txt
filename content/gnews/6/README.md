@@ -2,46 +2,30 @@
 ---
 
 
-## 拜习会晤结束，双方自说自话
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670651/)
+## 海航重整计划落定，华安财险清偿所涉债务
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1670666/)
 
-作者：英国喜庄园-I770775 – 文徬
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-11.jpg)海航重整计划落定，华安财险清偿所涉债务 网络图片
+据新浪新闻11月16日报道，华安财产保险股份有限公司（简称“华安财险”）16日就海航重整案发布公告。2021年10月31日，海南高院终审裁定批准《海南航空控股股份有限公司及其十家子公司重整计划》（简称《重整计划221》）及《海航集团有限公司等三百二十一家公司实质合并重整案重整计划》（简称《重整计划321》），并终止相关重整程序。
+
+华安财险及其控股子公司扬子江保险经纪有限公司（简称“扬子江经纪”）所涉的46084万元债权需进行清偿。其中“221”包金额为3003万元，“321”包金额为43081万元，通过现金、股票、信托等方式清偿。
+
+虽然有方案，但海航的重整计划和清偿结果能否执行还不确定。在中共的魔幻体制下，国企海航可以神奇地变成私人企业，盈利归个人；然后，私人企业可以神奇地再次变成国企海航，债务归国家。这翻手为云覆手为雨的魔术只有中共国能玩得转，最后买单的还是被欺骗的老百姓。每一个中共国的老百姓都应该问问：海航到底是谁的海航？海航的钱到底去了哪里？中国人民不应该承担不属于自己的债务。
+
+新闻参考链接：[https://finance.sina.cn/2021-11-16/detail-iktzscyy5933352.d.html?sinawapsharesource=newsapp](https://finance.sina.cn/2021-11-16/detail-iktzscyy5933352.d.html?sinawapsharesource=newsapp)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-4.jpg)
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
-11月16日，美国总统拜登和中共党魁习近平，举行了第一次面对面的视频峰会，讨论了一系列意见分歧的领域，随后各自向外界释放不同信号。
-
-据报道，在近四小时的会谈中，拜登强调，美国将继续捍卫自己的利益和价值观，并与盟友一起确保一个自由、开放和公平的国际体系。
-
-会后，白宫发表声明表示：拜登总统对中共国在新疆、西藏和香港的做法，以及更广泛的人权问题表示关切。
-
-不过，中共官媒却依旧宣传”会晤是坦诚、深入、建设性和富有成效的”。 在会谈中，两人还谈到了台湾、气候等问题。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-7.jpeg)
-参考链接：
-
-[https://www.epochtimes.com/gb/21/11/16/n13378860.htm](https://www.epochtimes.com/gb/21/11/16/n13378860.htm)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

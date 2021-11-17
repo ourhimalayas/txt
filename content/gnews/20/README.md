@@ -2,30 +2,23 @@
 ---
 
 
-## 有声|新中国联邦战友真正拥有G系列
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1670563/)
+## 韩昨日新确诊3187例，是疫情爆发以来的第二新高
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1670575/)
 
-配音：香草山教育部 – 蒙古鸿雁
+韩国首尔天池农场——追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-17-at-11.56.06-1.jpeg)图片来自韩国KBS新闻网站
+韩国KBS新闻11月17日的报道，根据韩国中央防疫对策本部17日的通报，截至当天0时，韩国较前一天0时新增中共病毒确诊病例3187例，创爆发疫情以来的第二新高。
 
-11月12日，郭文贵先生在大直播中说，新中国联邦人的投资涵盖了整个G系列，成为真正的主人。而不会像某社交媒体，把最初80%的小股东排挤出去。那些小股东承担了高风险，但被资本运作后，却失去了获得巨额回报的机会。
+单日新增病例较前一天增加了3187例，其中国内累计确诊病例3163例，境外输入病例24例，累计确诊病例突破40万例。
 
-郭先生说，战友在G系列的占比，分别是，喜联储占60%，盖特占90%，GTV占 99%，GCLUB 占90%，G-Fashion 占50% 并掌管客服的维护运行。此外，战友掌握10亿个喜币中的6亿个，所有战友还拥有喜联储 5% 以及盖特5% 的份额。
+截至17日0时，全国已有4206.27万人接种首剂新冠疫苗，占总人口的81.92%，完成疫苗全程接种的人员共计4024.32万人，占总人口的78.37%。
 
-郭先生表示，在人类面临新秩序重建的时刻，新中国联邦走在最前沿，G系列已经把新中国联邦人集结在一起。
+韩国本月1日开始进入第一阶段的“与疫共存”的生活模式，平均每天的感染人数超过2000例，首尔重症患者床位使用率超过75%。
 
-文字版原文：[新中国联邦战友真正拥有G系列](https://gnews.org/zh-hans/1662979/)
+韩政府对策本部在15日的记者会上表示“床位尚有余位，政府正在集中力量推动疫苗加强针接种工作”。
 
-音频处理：喜山必胜Maverick
+[参考新闻](https://mn.kbs.co.kr/mobile/news/view.do?ncd=5326981)
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
