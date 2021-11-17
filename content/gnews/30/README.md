@@ -2,28 +2,32 @@
 ---
 
 
-## COVID-19最新情报｜奥地利未接种疫苗 没事恐无法出门
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1671749/)
+## 维州“流行病法”修改后将在议会通过
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1671779/)
 
-**撰文｜ 台灣寶島農場 疫情關注組 / 發佈時間｜17/11/2021**
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/台湾1-1.jpeg)图片来源：SKY NEWS
+**翻译：**波澜壮阔
+**编辑：**翼族
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+据《天空新闻》记者安德里亚·克罗瑟斯（Andrea Crothers）报道，维州安德鲁斯政府备受争议的“大流行病法”在七项“关键的修正”之后，将于本周末在维多利亚州议会获得通过。
 
+修正案包括将最高罚款减半，并要求在7天内而不是14天内发布通知，告知公共卫生命令。
 
-根据欧洲疾病预防和控制中心的数据，奥地利约有 65% 的人口已完全接种新冠疫苗，仍再度爆发感染潮。奥地利总理认为是因为奥地利仍有数百万人尚未接种疫苗导致。
+克罗瑟斯女士对天空新闻节目主持人佩塔·克雷德林称，今天发言的跨党派人士没有得到他们想要的一切。他们仍然担心拘留问题，但他们对目前的结果感到满意。
 
-奥地利政府计划，新冠重症患者占据加护病房（ICU）的三成医疗量能时，将针对“未接种族群”实施社交限制，禁止未接种新冠疫苗者进入餐厅、剧院、理发院等公共场所（包含但不限于）。
+克罗瑟斯女士表示，该法案预计将在周四或周五之前获得通过，以取代将于12月15日到期的现行的紧急状态权力法。
 
-奥地利总理表示，这项社交限制将非常严厉，未接种疫苗者除了上班、购买生活必需品及适度户外散心外，不得离开家门。他认为这项社交限制是必要、不可避免的，因为没有理由剥夺“多数群体（已经接种疫苗族群）”的自由。
+然而，克雷德林女士指出，有许多法律专家认为，修订后的法律仍将使州长手中的权力过大，缺乏足够的来自议会的监督。
 
-德国卫生部报告称，德国约67%人口接种过新冠疫苗（比例与英国相近），近期仍发生“单日确诊数首次突破5万例”，因此德国也计划收紧对未接种疫苗者的社交限制。
+**原文链接：**[Victoria’s pandemic laws ‘poised’ to pass through parliament after ‘key amendments’](https://www.msn.com/en-au/news/other/victoria-s-pandemic-laws-poised-to-pass-through-parliament-after-key-amendments/ar-AAQL8uw?ocid=msedgntp)
 
-台湾疫情稳定，但连日发生多起境外移入的突破性感染案例。据17日[新闻报导](https://tw.news.yahoo.com/%E5%A2%83%E5%A4%96%E7%A7%BB%E5%85%A5%E5%A2%9E5%E4%BE%8B-%E5%8C%97%E5%B8%82%E5%81%A5%E8%BA%AB%E6%88%BF%E6%9A%AB%E5%81%9C%E7%87%9F%E6%A5%AD%E6%81%90%E8%88%87%E6%A1%8816614%E6%9C%89%E9%97%9C-110815234.html)，有一例完全接种AZ疫苗后突破性感染个案，在参加台北市健身房课程后自费采检呈阳性，引起台湾社会关注。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-9.jpg)
-* * *
+*发布：翼族*
 
-來源｜[DailyMail.co.uk](https://www.dailymail.co.uk/news/article-10191649/Austria-days-away-placing-millions-unvaccinated-people-lockdown.html)/[cbsnews](https://www.cbsnews.com/news/covid-lockdown-austria-unvaccinated/)
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

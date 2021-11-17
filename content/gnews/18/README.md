@@ -2,99 +2,31 @@
 ---
 
 
-## 11/17/21 香港快讯 立会投票日廉署将动员8百人 吁勿转载煽动投白票言论
-` 英喜-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1672021/)
+## 有声| 俄克拉荷马国民警卫队最高长官上任伊始签署反疫苗令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1672077/)
 
-**搜集****/****整理：卡西欧**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1177fenmian.jpg)
-封面素材：独立媒体
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-17-at-8.58.22-AM.png)
-**1. ****立会投票日廉署将动员****8****百人****吁勿转载煽动投白票言论**
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月14日，陆军准将托马斯·曼奇诺于2021年11月11日发布命令，停止俄克拉荷马州国民警卫队强制注射中共病毒疫苗。
 
-[据【香港电台】11月17日讯，立法会换届选举将于下月19日举行，廉政公署表示，截至本月12日共收到6宗投诉，涉及今次立法会选举中，借公开活动煽惑他人不投票或投无效票。](https://news.rthk.hk/rthk/ch/video-gallery.htm?vid=1620232)
+该命令是在托马斯被任命为该州的最高将军不到24小时的时间里发出的，也是在联邦上诉法院维持对拜登的强制疫苗令要求暂缓执行的前一天。
 
-[廉署社区关系处处长何渭枝呼吁，市民切勿参与企图操纵或破坏选举的行为，例如分享或转载任何煽动他人杯葛或投白票废票的违法言论、切勿以任何手段阻止或妨碍他人投票等。](https://news.rthk.hk/rthk/ch/video-gallery.htm?vid=1620232)
+曼奇诺上任的第一件事就是停止疫苗令，他说：俄克拉荷马州的国民卫队不会被要求注射中共病毒疫苗，也不会因拒绝接种中共病毒疫苗而受负面的行政或法律行动。
 
-[被问到市民在网上纯粹转载涉嫌违法文章是否已违法，或部分涉及煽动他人投白票的帖文可能来自海外，廉署会如何执法等。何渭枝说，不评论个别情景，会视乎具体情况调查，但廉署会按法律赋予的权力及程序执法，无论有关舞弊或非法行为在本港或境外发生，廉署都会依法调查。](https://news.rthk.hk/rthk/ch/video-gallery.htm?vid=1620232)
+文字版原文：[俄克拉荷马国民警卫队最高长官上任伊始签署反疫苗令](https://gnews.org/zh-hans/1668412/)
 
-[他又说，今次是完善选举制度后首场大型公共选举，将在投票日首次全体总动员，派出约800名前线人员应付突发情况，包括到各投票站处理市民的查询及投诉，有需要时会执法，亦会派员到部分票站，视察投票及点票程序，同时加派人手监察与选举有关的动向，如社交平台等。](https://news.rthk.hk/rthk/ch/video-gallery.htm?vid=1620232)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-17-at-8.58.35-AM.png)
-**2. ****台湾书店专页遭****FB****取消发布****疑因上传****“****反送中****”****摄影集帖文**
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-[据【大纪元时报】11月17日讯，逾13万人追踪的台湾书店moom bookshop Facebook专页，于16日遭Facebook取消发布，等同被隐藏。该书店专页曾多次被Facebook下架帖文，但列出的警告原因皆与帖文内容不甚相符。店主张鹤腾发文表示，对于Facebook“莫须有的罪名”感到无奈。](https://hk.epochtimes.com/news/2021-11-17/82207713)
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-[店主在发文中提到，书店仅是为艺术家的作品提供管道，使他们的见闻与意志能够触及更多人们，但某些摄影书籍确实触及到了被社会忽视的黑暗角落。店主续指，因为攸关生计，所以moom bookshop在发文前都会先自我审查是否贴文或图片中有相关血腥、暴力等易被下架的素材，但仍讶异被Facebook盯上，几乎每周被禁，结果专页被隐藏。](https://hk.epochtimes.com/news/2021-11-17/82207713)
-
-[在店主上传的图片中，涵盖了多张遭Facebook下架，但警告原因和帖文内容相差甚远的例子，包括有2019年香港“反送中”运动中民众举起看板和手的画面，遭判定与血腥暴力相关。](https://hk.epochtimes.com/news/2021-11-17/82207713)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-17-at-8.58.45-AM.png)
-**3. ****大律师公会强烈谴责****对任何法官或司法机构职员作刑事恐吓**
-
-[据【Now新闻台】11月17日讯，西九龙裁判法院及沙田裁判法院分别收到可疑信件。大律师公会发声明，重申任何对法官或司法机构职员作的攻击或威吓，均严重冲击司法运作及法治，法官须在不受任何干涉情况下，无惧及不偏不倚地履行其司法职责。](https://news.now.com/home/local/player?newsId=456976)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-17-at-8.58.55-AM.png)
-**4. FedEx****：因应香港检疫安排****关闭在港机组人员基地**
-
-[据【立场新闻】11月17日讯，疫情持续近 2 年，美国物流公司联邦快递（FedEx）继今年年初将香港机师及家人迁往三藩市之后，再度调整香港业务。 《南华早报》今早（17日)报道指，联邦快递计划关闭香港的机组人员基地。联邦快递香港分部下午确认消息，但强调业务会如常维持运作。](https://www.thestandnews.com/society/據報-fedex-計劃關閉在港機師基地)
-
-[《南华早报》今日（17日）报道指，联邦快递首席飞行员 Robin Sebasco 在公司通告提及，由于香港未有恢复正常社会及经济活动的明确时间表，公司适应疫情带来的全球经济、监管和商业环境的变化后，决定关闭香港机师基地，以增加飞行团队的稳定性。报道提及，措施并不会影响联邦快递在港的物流业务，服务将由加州奥克兰（Oakland）的机师接手。](https://www.thestandnews.com/society/據報-fedex-計劃關閉在港機師基地)
-
-[香港联邦快递香港分部回覆《立场》查询时表示，指因应香港检疫安排及全球商业环境不断改变，决定关闭香港的机组人员基地，并迁移有关机组人员，但强调香港业务会如常维持运作，但未有透露受影响员工人数及关闭时间。](https://www.thestandnews.com/society/據報-fedex-計劃關閉在港機師基地)
-
-[国泰航空3名获豁免检疫的本港机组人员，在进入社区后确诊。港大感染及传染病中心总监何柏良表示，若本港机组人员继续获得豁免检疫，相信涉及欧洲回港机组人员的确诊个案，将会陆续有来。](https://www.thestandnews.com/society/據報-fedex-計劃關閉在港機師基地)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-17-at-8.59.10-AM.png)
-**5. ****香港美国商会会长辞职****  ****称无法做****“****喜剧丑角****” ****争取放宽同时遵从香港检疫措施**
-
-[据【立场新闻】11月17日讯，香港美国商会会长早·泰娜 (Tara Joseph) 辞职，她接受访问时指，自己无法在呼吁港府放宽防疫限制的同时，自己又接受隔离，否则就会有如喜剧中的丑角一样，而这样不符合她的个性，她会留任至新会长上任。](https://www.thestandnews.com/society/美國商會會長早泰娜辭職-稱無法做喜劇丑角-爭取放寬同時遵從香港檢疫措施)
-
-[早泰娜目前身在美国，如果她要回到香港，将面临 3 周的酒店隔离，她接受《路透社》访问，解释辞职的原因，“我不会提倡某些事，然后像小丑一样开始隔离。这不符合我的个性”她又指香港“太快进入新常态”，揶揄若不介意这种新常态、在当中看到机遇的人，仍会被香港吸引，又指美国企业未来几年有不少事要克服，但香港仍有潜力。](https://www.thestandnews.com/society/美國商會會長早泰娜辭職-稱無法做喜劇丑角-爭取放寬同時遵從香港檢疫措施)
-
-[路透社的报道又形容，在很多国家与地区已转换至“与病毒共存”策略下，香港政府采取全球最严格的防疫标准，令香港面临失去人才与外国投资的巨大压力，外界忧虑可能影响本港全球金融中心的地位。](https://www.thestandnews.com/society/美國商會會長早泰娜辭職-稱無法做喜劇丑角-爭取放寬同時遵從香港檢疫措施)
-
-[摩根大通 (JPMorgan Chase & Co) 行政总裁杰米·戴蒙（Jamie Dimon) 周一抵达香港，短暂停留 32 小时，获豁免隔离检疫，但他亦指香港防疫措施使留住员工变得更加困难。](https://www.thestandnews.com/society/美國商會會長早泰娜辭職-稱無法做喜劇丑角-爭取放寬同時遵從香港檢疫措施)
-
-[虽然最近几个月本港几乎无录得任何本地 COVID-19 确诊病例，但当局仍收紧隔离规定，以说服北京允许香港与大陆通关。香港特首林郑月娥一再表示，香港与大陆通关是她的首要任务。](https://www.thestandnews.com/society/美國商會會長早泰娜辭職-稱無法做喜劇丑角-爭取放寬同時遵從香港檢疫措施)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-17-at-8.59.24-AM.png)
-**6.****【变卖家当】据报许家印变卖或质押资产****注资恒大逾****70****亿人民币**
-
-[据【Now新闻台】11月17日讯，内地传媒报道恒大集团主席许家印变卖或质押资产套现，为恒大注资逾70元亿人民币。](https://news.now.com/home/finance/player?newsId=456911)
-
-[《第一财经》引述消息指许家印由7月起已今，为了维持集团流动性，透过变卖个人资产以及质押股权等方式套现，累计已向恒大注入超过70亿元人民币。基本用于恒大保交楼偿还利息、兑付理财产品以及支付工资等。](https://news.now.com/home/finance/player?newsId=456911)
-
-[消息人士形容目前都是许家印他个人筹钱为恒大续命，根据本地网媒早前报道，许家印已向财务公司抵押山顶布力径10号第三间独立屋。](https://news.now.com/home/finance/player?newsId=456911)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-17-at-8.59.33-AM.png)
-**7. ****传恒大****“****房车宝****”****多个区域濒解散**
-
-[据【Now新闻台】11月17日讯，据内地传媒报道，中国恒大计划精简架构，其中房产汽车交易平台业务多个区域的公司近乎解散。](https://news.now.com/home/finance/player?newsId=456950)
-
-[据内地《财联社》报道，由于资金及业务收缩，恒大旗下“房车宝”多个区域的公司已接近解散，仅留下部分员工善后，“房车宝”今年3月引入弘毅投资、中信资本等，多名战略投资者，市传公司有意年底或明年初在美国上市。](https://news.now.com/home/finance/player?newsId=456950)
-
-[早前，《财联社》引述恒大内部文件指，按战略发展需要调整公司机构设置，包括总部撤销集团综合管理中心，地区管理及监察分部有关业务及人员，划入地产集团地区公司等，计划于月底前完成整合及员工调整。](https://news.now.com/home/finance/player?newsId=456950)
-
-[此外，据《第一财经》引述消息指，许家印7月起已今透过变卖个人资产，以及质押股权等方式套现，累计向恒大注入逾70亿元人民币，基本用于恒大保交楼、偿还利息、兑付理财产品，以及支付工资等。](https://news.now.com/home/finance/player?newsId=456950)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-17-at-8.59.49-AM.png)
-**8. ****彭博****: ****内地计划重新容许发行****ABS****产品**
-
-[据【Now新闻台】11月17日讯，正当内房企业债务违约风险升温之际，内地突然传出房地产融资可能松绑。](https://news.now.com/home/finance/player?newsId=456975)
-
-[据《彭博》引述消息指，近期内地监管部门向交易所进行窗口指导，明确优质房最快本月开始，可重新递交资产证券化的发行申请，以纾缓偿还到期债务压力。](https://news.now.com/home/finance/player?newsId=456975)
-
-[报道引述知情人士指，内地自第2季度起，已收紧发行资产证券化产品，8月开始更没有新项目获批。](https://news.now.com/home/finance/player?newsId=456975)
-
-[此外，监管部门月初在一个房企座谈会上表示，过去新债发行额不可超过未偿还旧债85%的规定亦会取消。](https://news.now.com/home/finance/player?newsId=456975)
-
-[据行业机构统计显示，自11月10日以来，已有25家房企及城投企业，在银行间融资287亿元人民币，相比10月房企境内发债总额仅约203亿元人民币，流动性有所增加。](https://news.now.com/home/finance/player?newsId=456975)
-
-[不过，评级机构标普指出，今年底至2022年是内房债到期高峰，由于销售下降及面对再融资压力，相信内房明年仍会出现违约事件，房企或要透过增加表外债，降低债务比率，令行业透明度进一步减弱，加剧市场波动。](https://news.now.com/home/finance/player?newsId=456975)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-17-at-8.59.58-AM.png)
-**9. ****传中国中免港****IPO****筹****388****亿****成今年第****2****大新股**
-
-[据【Now新闻台】11月17日讯，据外电报道，内地免税零售商中国中免来港第二上市获港交所批准，有机会成为今年第2大新股。](https://news.now.com/home/finance/player?newsId=456954)
-
-[据《彭博》引述消息人士指，在A股上市的中国中免，在港上市集资规模或高达50亿美元，折合约388亿港元，一旦成事，将会是继快手后，今年招股规模第2大新股。](https://news.now.com/home/finance/player?newsId=456954)
-
-[中国中免A股股价今年走势反覆，2月一度高见402.3元人民币的历史新高，不过，现时已自高位回落逾40％，市值约4500亿元人民币。](https://news.now.com/home/finance/player?newsId=456954)
-
-校对 / 封面合成：文粤 / 发布：流光飞舞
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

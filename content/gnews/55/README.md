@@ -2,34 +2,59 @@
 ---
 
 
-## 在激烈的法庭演讲中班农告诉拜登他选错了目标
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1669623/)
+## 继沃尔玛之后，克罗哥再陷加密货币骗局
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670450/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-73.png)视频截图
+作者：纽约香草山佛教部 – 文一
 
-
-华盛顿特区——今天下午，因两项违宪的蔑视国会指控有关的罪名被起诉后，战斗的斯蒂芬·K·班农（ Stephen K. Bannon ）从华盛顿特区联邦法院走出，承诺将揭露乔·拜登（ Joe Biden ）、梅里克·加兰（ Merrick Garland ）和南希·佩洛西（ Nancy Pelosi ）的“来自地狱的恶行”  
- 现年 67 岁的班农在他第一次华盛顿特区法院出庭后几个小时走出法院，并用亨特拜登的“来自地狱的硬盘”的幽灵来表达他对针对他的案件的反对态度。
- “我现在告诉你，这对梅里克·加兰、南希·佩洛西和乔·拜登来说是地狱般的恶
- “乔·拜登从海军陆战队一号下来时，在白宫草坪上，他命令梅里克·加兰起诉我” 班农声称，暗指美国从未见过的一起政治驱动的起诉。
- 他补充道：“我们将继续进攻，我们厌倦了防守。”
- 班农律师道格拉斯·舍恩（ Douglas Schoen ）在法院外对记者讲话时，描述了他在美国公民自由联盟 (ACLU) 的漫长职业生涯并坚称：“这是闻所未闻的，强迫一个人放弃行使行政豁免特权，我代表美国公民自由联盟 (ACLU) 20 多年，在这个问题上美国公民自由联盟应该站在我们这一边。”
-
-
-
-原文链接：
-
-
-
-> [MISDEMEANOR FROM HELL: Defiant Bannon Tells Biden He Picked The Wrong Target in Fiery Courthouse Speech.](https://thenationalpulse.com/news/misdemeanor-from-hell-defiant-bannon-tells-biden-he-picked-the-wrong-target-in-fiery-courthouse-speech/)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
 
 
 
+据《新闻极限》11月5日盖文消息报道：一份克罗格（Kroger）公司宣称将接受“比特币现钞”的声明出现在该公司投资者关系网站上，稍后即被删除。美联社也刊登了该声明，但旋即劝告读者应不予理会。上周五该公司证实此声明完全是欺诈，成为继沃尔玛之后第二个被卷入加密货币骗局的主要零售商。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1436-1.jpg)©AP
+
+据悉，该报道所谓“比特币现金”是比特币基础软件代码的一个扩展，是由一小群在中共国的比特币矿工在2017年主导开发的。
+
+而沃尔玛公司也曾在9月份遭遇类似骗局。骗子说将有一种鲜为人知的加密货币—莱特币与沃尔玛公司合作，该消息致比特币在短时间内价格飙升。
+
+而在克罗哥声明“比特币现钞”是假消息之后，比特币价格略微下滑。
+
+可见，流通性对加密货币的重要程度日益为人所知，而相关骗局频发的根源是发行者的急功近利，还是情知不妙继而垂死挣扎，目前尚不得知。而反观一开始就构架于喜联储、以黄金锚定的喜美元、喜支付之上的喜币，正如郭文贵先生在大直播中所说的“无国界流通价值还远未显现”。“喜币、喜联储的明天，就是现实可感、触手可及的共同富裕、利益共享。”
+
+**参考阅读：**
+
+1. [https://gettr.com/post/pg51ee09cc](https://gettr.com/post/pg51ee09cc)
+2. [文贵大直播 11/03 喜币的铸币权、无国界流通价值还远未显现 – GNEWS](https://gnews.org/zh-hans/1637358/)
 
 
-翻译：Nick｜校对：JS709｜编辑& 发布：闪电训练
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+**编辑：larking
+校对/发稿：小鹿**
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

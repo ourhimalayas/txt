@@ -2,30 +2,44 @@
 ---
 
 
-## 中共国利用海外空壳公司获取意大利军用无人机技术
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1670788/)
+## 中国在全球财富竞赛中超过了美国
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1671075/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-12.jpg)中共国利用海外空壳公司获取意大利军用无人机技术 网络图片
-据美国之音11月16日报道，意大利警方判定由”中国中车”资本和无锡市政府旗下的一家投资集团共同出资成立的马尔斯香港信息科技公司为空壳公司。该公司控制了意大利的一家军用无人机生产商Alpi Aviation（阿尔卑飞机公司）。在意大利和欧洲当局不知情的情况下，将知识和技术转移至中共国的一个新生产基地。
-
-阿尔卑飞机公司以生产轻飞机及称为Strix的迷你无人机闻名，曾被驻阿富汗的意大利空军使用。
-
-这起案件符合中共国国企在海外的运行模式：以民营空壳公司为掩护，获取掌握特殊技术的企业的控制权，然后再将该公司的技术转移至中共国。这明显是由中共国政府推动的国家战略。中共的偷盗技术独步天下，这起教科书式的案例暴露出欧洲投资审查体系的脆弱和北京为获取欧洲敏感技术的精心布局。俗话说，不怕贼偷，就怕贼惦记。中共苦心积虑偷遍全世界。西方先进的科学技术如果被中共盗取，对本国和全世界都是极大的威胁。所以，防火防盗防中共。
-
-新闻参考链接：[http://dlvr.it/SCcMWL](https://dlvr.it/SCcMWL)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/中美.png)图片来源：*Representational Image. News18*
 
 
-编辑：【英国伦敦喜庄园编辑部】
+翻译：文杨
+校对：Candy
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+麦肯锡公司 (McKinsey & Co) 的一份最新《报告》显示：随着全球财富激增，中国已超过美国，成为拥有最大净资产的国家。
 
+根据《彭博社》的报道，这家咨询公司表示：中国的财富在过去 20 年里飙升，其净资产从 2000 年的 7 万亿美元，增长到 2020 年的 120 万亿美元，增长了 17 倍。在此期间，该国约占全球净资产增长的三分之一。 2000年，中国加入世界贸易组织，经济加速发展。
 
+西方认为中国是反商业的。但金钱告诉我们一个不同的故事。
+
+美国的财富在同一时期翻了一番。麦肯锡说：在十大最富有国家的名单上，华盛顿不得不让位给北京，因为它的净资产在2020年只达到90万亿美元。
+
+《报告》称：在这两个国家，超过三分之二的财富集中在最富有的 10% 的家庭。并补充说：这一比例一直在增加。
+
+总体而言，2020 年全球财富达到 514 万亿美元，高于 2000 年的 156 万亿美元。
+
+麦肯锡说：这些财富中约有 68% 存储在房地产中，并补充说：其快速增长超过了同期全球 GDP 的增长。 该公司表示：全球财富增长是由不断膨胀的房地产价格推动的，并警告说：房地产价值飙升可能是不可持续的。
+
+麦肯锡表示：高房价可能让许多人买不起住宅物业，并补充说：这种情况可能导致类似于 2008 年由美国房地产泡沫破裂引发的新金融危机。 这一次，由于房地产开发商欠下的债务，它也可能影响中国。
+
+这家咨询公司表示：资产价格暴跌可能会使全球多达三分之一的财富消失。
+
+参考来源：[https://www.rt.com/news/540351-china-us-global-wealth-race/](https://www.rt.com/news/540351-china-us-global-wealth-race/)
+
+***发布：Candy***
+
+**更多资讯，请关注：**
+
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

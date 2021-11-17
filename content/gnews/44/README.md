@@ -2,44 +2,42 @@
 ---
 
 
-## 中国在全球财富竞赛中超过了美国
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1671075/)
+## 郭文贵先生高度肯定 班农注定成为美国政治教父级的人物
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1671284/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/中美.png)图片来源：*Representational Image. News18*
+作者：澳喜农场-在远方
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
 
 
-翻译：文杨
-校对：Candy
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1114-3.jpg)
+在11月14日的大直播中，郭文贵先生高度肯定，班农无疑会成为美国的政治教父。美国建国以及华盛顿有史以来，班农是因为国会起诉而被逮捕的第一人。但是，在美国被逮捕，很快就会被释放，跟中共国完全不一样。 美国司法部起诉班农先生的背景，始于美国众议院特别委员会，调查1月6日美国国会大厦的暴动。班农事件将使共和党保守派更加清醒，并开始反击。同时也会让大家意识到，中共对美国国会和司法的渗透之深。国会在民主党的把控下，美国选举不可能公正。 郭先生说，班农先生被逮捕，将导致美国媒体大重启的到来。班农先生一定是美国未来影响深远的，政治上教父级的人物。未来对班农先生的评价，一定是正面的。
 
-麦肯锡公司 (McKinsey & Co) 的一份最新《报告》显示：随着全球财富激增，中国已超过美国，成为拥有最大净资产的国家。
+新闻来源：[https://gnews.org/zh-hans/1663784/](https://gnews.org/zh-hans/1663784/)
 
-根据《彭博社》的报道，这家咨询公司表示：中国的财富在过去 20 年里飙升，其净资产从 2000 年的 7 万亿美元，增长到 2020 年的 120 万亿美元，增长了 17 倍。在此期间，该国约占全球净资产增长的三分之一。 2000年，中国加入世界贸易组织，经济加速发展。
+编辑：Kathy文艺
 
-西方认为中国是反商业的。但金钱告诉我们一个不同的故事。
+总编：AN
 
-美国的财富在同一时期翻了一番。麦肯锡说：在十大最富有国家的名单上，华盛顿不得不让位给北京，因为它的净资产在2020年只达到90万亿美元。
+上传：浪迹天涯
 
-《报告》称：在这两个国家，超过三分之二的财富集中在最富有的 10% 的家庭。并补充说：这一比例一直在增加。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
 
-总体而言，2020 年全球财富达到 514 万亿美元，高于 2000 年的 156 万亿美元。
+**更多资讯，更多关注**
 
-麦肯锡说：这些财富中约有 68% 存储在房地产中，并补充说：其快速增长超过了同期全球 GDP 的增长。 该公司表示：全球财富增长是由不断膨胀的房地产价格推动的，并警告说：房地产价值飙升可能是不可持续的。
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-麦肯锡表示：高房价可能让许多人买不起住宅物业，并补充说：这种情况可能导致类似于 2008 年由美国房地产泡沫破裂引发的新金融危机。 这一次，由于房地产开发商欠下的债务，它也可能影响中国。
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-这家咨询公司表示：资产价格暴跌可能会使全球多达三分之一的财富消失。
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-参考来源：[https://www.rt.com/news/540351-china-us-global-wealth-race/](https://www.rt.com/news/540351-china-us-global-wealth-race/)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-***发布：Candy***
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
-**更多资讯，请关注：**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
 
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
