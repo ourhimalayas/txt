@@ -2,27 +2,28 @@
 ---
 
 
-## 擀面杖细了，中共紧急兑现2000亿缓税费
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1671723/)
+## COVID-19最新情报｜奥地利未接种疫苗 没事恐无法出门
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1671749/)
 
-撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-126.jpg)S
-[图片来源](https://www.rakumachi.jp/news/wp-content/uploads/2017/09/Fotolia_169316811_S.jpg)
+**撰文｜ 台灣寶島農場 疫情關注組 / 發佈時間｜17/11/2021**
 
-11月初，中共国务院公布了《关于制造业中小微企业延缓缴纳2021年第四季度部分税费有关事项的公告》（下称《公告》），对年销售额4亿元以下的制造业中小企业第四季度缓缴五税两费，其中年销售额2000万元至4亿元的缓缴一半税费，2000万元以下缓缴全部税费。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-11月中旬，上述缓税费政策就已紧急落地，这对于毫无效率的中共政府而言是极其不寻常的举动。但缓税费不是免税费，只是延迟交税费，名义上是解中小企业燃眉之急，减轻经营压力，弥补现金流不足，实际意图是延缓中共国擀面杖经济崩塌，延迟政府破产，推迟中共灭亡。
 
-文贵先生曾说，国内经济已经捂不住了，它从来就是擀面杖经济，擀面杖子有时候，它也会失控，它时间长就磨细。中共高负债、高税收的发展方式给世界经济埋下了巨大的核弹，中共国的全部利润不够偿还贷款利息，尚有大量外债无法兑付，这个雷最终会炸到我们同胞，中小企业就是直接的受害者。中共见谁都喜欢开药方，这2000亿缓税费就想解救处于破产危机中的中小企业，就能缓解经济爆雷？苟延残喘罢了。
+根据欧洲疾病预防和控制中心的数据，奥地利约有 65% 的人口已完全接种新冠疫苗，仍再度爆发感染潮。奥地利总理认为是因为奥地利仍有数百万人尚未接种疫苗导致。
 
-信息来源：
+奥地利政府计划，新冠重症患者占据加护病房（ICU）的三成医疗量能时，将针对“未接种族群”实施社交限制，禁止未接种新冠疫苗者进入餐厅、剧院、理发院等公共场所（包含但不限于）。
 
-[2000亿缓税费兑现，企业：相当于一笔短期无息贷款](https://www.yicai.com/news/101232029.html)
+奥地利总理表示，这项社交限制将非常严厉，未接种疫苗者除了上班、购买生活必需品及适度户外散心外，不得离开家门。他认为这项社交限制是必要、不可避免的，因为没有理由剥夺“多数群体（已经接种疫苗族群）”的自由。
 
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
+德国卫生部报告称，德国约67%人口接种过新冠疫苗（比例与英国相近），近期仍发生“单日确诊数首次突破5万例”，因此德国也计划收紧对未接种疫苗者的社交限制。
 
+台湾疫情稳定，但连日发生多起境外移入的突破性感染案例。据17日[新闻报导](https://tw.news.yahoo.com/%E5%A2%83%E5%A4%96%E7%A7%BB%E5%85%A5%E5%A2%9E5%E4%BE%8B-%E5%8C%97%E5%B8%82%E5%81%A5%E8%BA%AB%E6%88%BF%E6%9A%AB%E5%81%9C%E7%87%9F%E6%A5%AD%E6%81%90%E8%88%87%E6%A1%8816614%E6%9C%89%E9%97%9C-110815234.html)，有一例完全接种AZ疫苗后突破性感染个案，在参加台北市健身房课程后自费采检呈阳性，引起台湾社会关注。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-9.jpg)
+* * *
+
+來源｜[DailyMail.co.uk](https://www.dailymail.co.uk/news/article-10191649/Austria-days-away-placing-millions-unvaccinated-people-lockdown.html)/[cbsnews](https://www.cbsnews.com/news/covid-lockdown-austria-unvaccinated/)
 
  
 
