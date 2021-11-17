@@ -2,50 +2,57 @@
 ---
 
 
-## FBI利用反恐部门给学生的父母添加了“恐怖分子标签”
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1671495/)
+## 七哥谈喜联储VI:白皮书和摩根士丹利的加密系统无人匹敌
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1671515/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+![](https://assets.gnews.org/wp-content/uploads/2021/11/78354797c9a813f1502b089e1e5990d9_副本.jpg)
+1、郭先生2020年5月19日GTV直播
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-370.png)图片来源 ：dailymail.co.uk
+［所以说亲爱的兄弟姐妹们记住这个平台，G-Fashion, G-News，喜联储，然后G-Clubs，这都是你们的机会。你现在比如说买G-Dallor的，傻眼了，把整个都美国震傻了。我们昨天的白皮书，出了一，二，三，ABC版，我把ABC版找到了几个真正的大咖去看，没有人不马上回复，全都是unbelieveble，unbelieveble，unbelieveble,全都这样，然后再看完，billionaire, billionaire, billionaire,不可思议，太聪明了。］
 
-FBI利用反恐部门给学生的父母添加了“恐怖分子标签”
+2、[2021年4月27号 文贵直播标题：喜币正式上线，喜联储，喜美元，喜支付，金融支付系统将改变新中国联邦； CCP病毒让印度如同人间炼狱， 但是是真实的；欧日澳美都在迅速觉醒；共产党经济一定很快崩塌，不要成为牺牲品；共产党灭亡前的疯狂，不要让子女成为殉葬品！](https://gtv.org/video/id=60880f7b8aa4fd003f386a90)
 
-众议院共和党人获得的爆料文件显示，联邦调查局（FBI）利用反恐部门（counterterrorism unit）为向学校董事会提出，对批判种族理论(CRT)有担忧的家长加上“威胁标签”（反共产主义将被视为恐怖分子）。
+［这就是我们现在看到的喜联储、喜币，喜美元还有喜币到了世界那么多国家所有人都傻眼了，看到所有的白皮书，可以说这是世界上最棒的白皮书，我可以今天在这儿说最棒的白皮书！而且所有用的就是这个CORA，世界上两个写这个虚拟货币的代码，一个是摩根的系统啊，另外一个是美国的IBM系统，CORA这个系统这是目前写的最好的加密货币，不是我说的，是所有获得这些国家的支付牌照、获得这些国家的交易执照后，人家给批准的。］
 
-这与梅里克·加兰10月份在国会宣誓的证词相矛盾。其证词表示，司法部及其部门没有利用反恐法规和资源来针对，在学校董事会会议上抗议的家长；美国司法部长梅里克·加兰（Merrick Garland）应该辞职。
+3、[2021-05-05 文贵直播：回答战友们目前关心的问题](https://gtv.org/video/id=60929c03db13300ca5491b6d)
 
-吹哨人提供了一封日期为10月20日的联邦调查局电子邮件—也就是加兰在国会作证的前一天—该电子邮件是作为“代表”联邦调查局反恐司助理司长和刑事司助理司长发送出去的。
+［看看Libra的白皮书你看看喜联储的白皮书你就知道谁牛了，第二个你看看咱所有的ECO的这个系统，摩根士丹利的加密货币系统，你去看看，你一比就知道了。当然他没法比的，它有喜联储、它有喜美元，它跟咱不是一回事是吧？］
 
-众议院共和党人在一封信中提到吹哨人提供的电子邮件时说：“该电子邮件指示联邦调查局人员对所有’专门针对学校董事会管理人员、董事会成员、教师和工作人员的威胁进行调查和评估’”。
+续前文——
 
-“这是确凿的证据，”克里斯托弗·鲁弗（[Christopher Ruffo](https://twitter.com/realchrisrufo/status/1460705961618726912?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1460705961618726912%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https://www.thegatewaypundit.com/2021/11/breaking-house-republicans-obtain-whistleblower-docs-showing-fbi-used-counterterrorism-unit-add-threat-tags-parents-contradicting-garlands-sworn-testimony/)如下两张推特截图）说。”司法部长加兰没有提供任何证据证明学生的父母正在从事可信的威胁或暴力行为。然而，他却动员联邦调查局的反恐部门使用反恐工具来调查、追踪和标记父母。”
+[七哥谈喜联储I:世界将看到真正的喜联储,喜联储将震撼世界](https://gnews.org/zh-hans/1670803/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-372.png)
+[七哥谈喜联储II:不是脱亚入欧而是脱离共产党制造新世界](https://gnews.org/zh-hans/1671022/)
 
-这些爆料的文件直接与梅里克·加兰的宣誓证词相矛盾，也就是说梅里克·加兰在国会宣誓后被证实是撒谎（如下[推特](https://twitter.com/approject/status/1460714668935327748?s=20)截图）。
+[七哥谈喜联储III:如何让喜联储成为全球共用的金融标准](https://gnews.org/zh-hans/1671067/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-377.png)
+[七哥谈喜联储IV:令中共恐惧至极动用超国家力量骇客抹黑](https://gnews.org/zh-hans/1671091/)
 
-**简评：**
+[七哥谈喜联储V:空中取钱的“钱”就在可装20万亿的喜联储](https://gnews.org/zh-hans/?p=1671125)
 
-**一则来自《[零对冲](https://www.zerohedge.com/political/fbi-whistleblower-reveals-biden-doj-activated-counterterrorism-division-against)》的相关报道。**
+撰稿：喜马拉雅的肉夹馍；
 
-**加兰在10月国会作证时受到了抨击，在那里他否认将联邦调查局“[武器化](https://www.zerohedge.com/political/thank-god-youre-not-supreme-court-tom-cotton-eviscerates-garland-over-doj-memo)”以对抗反对批判种族理论和疫苗相关规定的父母——仅仅使用全国学校董事会协会（NSBA）的一份站不住脚的备忘录作为理由。值得注意的是，该备忘录和司法部都没有提供所谓“威胁”学校管理人员的具体例子。**
+审核：喜马拉雅的馍夹肉；
 
-**争议始于10月4日，当时加兰宣布将集中力量打击学生的家长对学校工作人员的”任何暴力威胁、恐吓和骚扰”。几天前，全国学校董事会协会（NSBA）要求拜登政府采取”非常措施”，以防止据称学生家长对学校工作人员的威胁，该协会说这些威胁来自反对口罩强制令和反对批判性种族理论教学的家长。**
+校对：Maarago
 
-**司法部长梅里克·加兰 (Merrick Garland) 的女儿是丽贝卡·加兰( Rebecca Garland)。2018 年，丽贝卡·加兰 (Rebecca Garland) 与Xan Tanner [[链接](https://www.nytimes.com/2018/06/17/fashion/weddings/rebecca-garland-xan-tanner.html)]结婚。Xan Tanner 先生是一家颇受争议的教育服务公司 Panorama Education 的现任联合创始人。[[链接](https://www.panoramaed.com/about)和[链接](https://www.panoramaed.com/social-emotional-learning-sel)] Panorama Education 是“*[社会学习](https://www.panoramaed.com/social-emotional-learning-sel)*”资源材料的提供者，提供给教授批判种族理论（社会共产主义）的学区和教师。也就是存在利益冲突。**
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-**另外，《[布莱巴特](https://www.breitbart.com/education/2021/11/16/house-republicans-reveal-whistleblower-documents-exposing-fbi-use-of-counterterrorism-tactics-against-parents/)》的报道表示，家长捍卫教育 (PDE) 通过公共记录请求[获得的](https://www.breitbart.com/politics/2021/10/21/emails-reveal-nsba-top-officers-worked-white-house-letter-targeting-parents-domestic-terrorists/)电子邮件显示，NSBA 的总裁和执行董事过去几周一直与拜登白宫工作人员进行谈判（各州的学生家长通过网络平台共同预谋反对共产主义的恐怖暴力行动）。然而，如果假设你在作证时知道联邦调查局的行动，那么这个证据表明是你故意误导（需要额外的解释）委员会关于 FBI 使用联邦反恐工具在学校董事会会议上，针对有关家长的性质和程度。**
+另外正文中引用文字内容皆来源于七哥听写组对郭文贵先生视频文字的整理，在此特别向七哥听写组及战友们致谢。
 
-新闻来源：[thegatewaypundit.com][BREAKING: House Republicans Obtain WhistleblowerDocs Showing FBI Used Counterterrorism Unit to Add “Threat Tags” to Parents – Contradicting Garland’s Sworn Testimony |](https://www.dailymail.co.uk/news/article-10209781/House-Republicans-release-whistleblower-email-showing-FBI-threat-tags-school-related.html) 发布时间：2021年11月16日
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-* * *
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

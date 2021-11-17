@@ -15,127 +15,127 @@
 
 ---
 
-### [辉瑞、生物科技、莫德纳每秒赚一千美元利润](/content/gnews/1/README.md)
+### [Facebook因对儿童造成伤害遭俄州起诉](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：辉瑞、BioNTech和莫德纳每秒赚1000美元](/content/gnews/2/README.md)
+### [墙内要闻汇编 11月17日](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [辉瑞、生物科技、莫德纳每秒赚一千美元利润](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [秘翻在线：辉瑞、BioNTech和莫德纳每秒赚1000美元](/content/gnews/4/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [CCP治下城市建筑美感的消失和原因](/content/gnews/3/README.md)
+### [CCP治下城市建筑美感的消失和原因](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [许家印变卖资产维持运营](/content/gnews/4/README.md)
+### [许家印变卖资产维持运营](/content/gnews/6/README.md)
  ` 走进澳洲`
 
-### [七哥谈喜联储VI:白皮书和摩根士丹利的加密系统无人匹敌](/content/gnews/5/README.md)
+### [七哥谈喜联储VI:白皮书和摩根士丹利的加密系统无人匹敌](/content/gnews/7/README.md)
  ` NewFOC`
 
-### [78岁老人街头摆摊，中共“不以为耻反以为荣”](/content/gnews/6/README.md)
+### [78岁老人街头摆摊，中共“不以为耻反以为荣”](/content/gnews/8/README.md)
  ` 儒为`
 
-### [FBI利用反恐部门给学生的父母添加了“恐怖分子标签”](/content/gnews/7/README.md)
+### [FBI利用反恐部门给学生的父母添加了“恐怖分子标签”](/content/gnews/9/README.md)
  ` wenwu`
 
-### [秘翻在线：有提供完全接种证明才能参加时代广场的跨年夜活动](/content/gnews/8/README.md)
+### [秘翻在线：有提供完全接种证明才能参加时代广场的跨年夜活动](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [许家印变卖70亿个人资产“填坑”，被中共继续利用来行骗](/content/gnews/9/README.md)
+### [许家印变卖70亿个人资产“填坑”，被中共继续利用来行骗](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [NIH起诉Moderna，揭示大药厂如何用纳税人的钱致富](/content/gnews/10/README.md)
+### [NIH起诉Moderna，揭示大药厂如何用纳税人的钱致富](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [印度政府加强监管加密货币，利好喜马拉雅币](/content/gnews/11/README.md)
+### [印度政府加强监管加密货币，利好喜马拉雅币](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [许家印的70亿能让恒大续命几秒？](/content/gnews/12/README.md)
+### [许家印的70亿能让恒大续命几秒？](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登政府或已决定外交抵制北京冬奥会 正待择时宣布](/content/gnews/13/README.md)
+### [拜登政府或已决定外交抵制北京冬奥会 正待择时宣布](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [谷歌云、Snapchat、Spotify等在故障数小时后恢复](/content/gnews/14/README.md)
+### [谷歌云、Snapchat、Spotify等在故障数小时后恢复](/content/gnews/16/README.md)
  ` wenwu`
 
-### [欧盟 9 月份超额死亡率上升至 + 12%](/content/gnews/15/README.md)
+### [欧盟 9 月份超额死亡率上升至 + 12%](/content/gnews/17/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [英首相约翰逊：英国人需要接种第三针新冠疫苗才被算作完全接种](/content/gnews/16/README.md)
+### [英首相约翰逊：英国人需要接种第三针新冠疫苗才被算作完全接种](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [因疫苗豁免而停飞：已婚联航飞行员感到被背叛](/content/gnews/17/README.md)
+### [因疫苗豁免而停飞：已婚联航飞行员感到被背叛](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [习近平，统一台湾是中共的历史使命](/content/gnews/18/README.md)
+### [习近平，统一台湾是中共的历史使命](/content/gnews/20/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [英国批准皮肤贴片新冠疫苗进行人体试验](/content/gnews/19/README.md)
+### [英国批准皮肤贴片新冠疫苗进行人体试验](/content/gnews/21/README.md)
  ` 纽约香草山MOS01`
 
-### [卢比奥搁置确认美国驻中共国大使人选](/content/gnews/20/README.md)
+### [卢比奥搁置确认美国驻中共国大使人选](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [【玫瑰看新闻】第198期 【回魂时刻】疫苗受害者专题新闻12#](/content/gnews/21/README.md)
+### [【玫瑰看新闻】第198期 【回魂时刻】疫苗受害者专题新闻12#](/content/gnews/23/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [北交所开市不利 新股涨停存量股普跌](/content/gnews/22/README.md)
+### [北交所开市不利 新股涨停存量股普跌](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [2018年5月22日郭文贵先生第二次直播全文字版](/content/gnews/23/README.md)
+### [2018年5月22日郭文贵先生第二次直播全文字版](/content/gnews/25/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [美国医生开具伊维菌素治疗中共病毒遭受匿名投诉](/content/gnews/24/README.md)
+### [美国医生开具伊维菌素治疗中共病毒遭受匿名投诉](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [临床研究员举报辉瑞疫苗试验数据造假遭解僱 辉瑞CEO妻子死于疫苗并发症](/content/gnews/25/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [突发：香港飞机师在德国染疫，130名机师需隔离21天](/content/gnews/26/README.md)
+### [突发：香港飞机师在德国染疫，130名机师需隔离21天](/content/gnews/27/README.md)
  ` 澳喜农场`
 
-### [山东国信24亿信托产品踩雷，股价反复“腰斩”](/content/gnews/27/README.md)
+### [山东国信24亿信托产品踩雷，股价反复“腰斩”](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2018年05月17郭文贵先生直播谈马来西亚、委内瑞拉、信仰和理想](/content/gnews/28/README.md)
+### [2018年05月17郭文贵先生直播谈马来西亚、委内瑞拉、信仰和理想](/content/gnews/29/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [爆料革命新歌：深爱着你](/content/gnews/29/README.md)
+### [爆料革命新歌：深爱着你](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生高度肯定 班农注定成为美国政治教父级的人物](/content/gnews/30/README.md)
+### [郭文贵先生高度肯定 班农注定成为美国政治教父级的人物](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
 
-### [郭文贵先生2021年11月16日盖特直播视频（32分11秒）全文字版](/content/gnews/31/README.md)
+### [郭文贵先生2021年11月16日盖特直播视频（32分11秒）全文字版](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [俄克拉荷马州法案允许工人因强制中共病毒疫苗规定起诉雇主索赔100万美元](/content/gnews/32/README.md)
+### [俄克拉荷马州法案允许工人因强制中共病毒疫苗规定起诉雇主索赔100万美元](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [澳洲网坛一哥反对强制疫苗，高调呼吁取消明年澳网](/content/gnews/33/README.md)
+### [澳洲网坛一哥反对强制疫苗，高调呼吁取消明年澳网](/content/gnews/34/README.md)
  ` 走进澳洲`
 
-### [超过1万名澳大利亚人已经向政府提出了中共病毒疫苗伤害索赔](/content/gnews/34/README.md)
+### [超过1万名澳大利亚人已经向政府提出了中共病毒疫苗伤害索赔](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [DC大中华时事：中共墙内宣传拜习视频会](/content/gnews/35/README.md)
+### [DC大中华时事：中共墙内宣传拜习视频会](/content/gnews/36/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [郭先生指出-中共国的经济必定是 “完了”, 而数字人民币更是“灾难”](/content/gnews/36/README.md)
+### [郭先生指出-中共国的经济必定是 “完了”, 而数字人民币更是“灾难”](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [NFT与新中国联邦](/content/gnews/37/README.md)
+### [NFT与新中国联邦](/content/gnews/38/README.md)
  ` 纽约香草山MOS01`
 
-### [中国在全球财富竞赛中超过了美国](/content/gnews/38/README.md)
+### [中国在全球财富竞赛中超过了美国](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
 
-### [CDC错误的设置测试数值，被误诊的‘患者’们被如何处置？](/content/gnews/39/README.md)
+### [CDC错误的设置测试数值，被误诊的‘患者’们被如何处置？](/content/gnews/40/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [肺部卫生工作者Albert Spence谈论新冠病毒PCR测试](/content/gnews/40/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [疫苗问题-运动员、电视主播、政府官员、人们在电视上倒地身亡](/content/gnews/41/README.md)
+### [肺部卫生工作者Albert Spence谈论新冠病毒PCR测试](/content/gnews/41/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
 ### [中共国米面开始涨价，老百姓要护紧钱袋子](/content/gnews/42/README.md)

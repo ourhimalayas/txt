@@ -2,24 +2,22 @@
 ---
 
 
-## 许家印变卖资产维持运营
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1671549/)
+## 秘翻在线：辉瑞、BioNTech和莫德纳每秒赚1000美元
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671570/)
 
-**整理：朝花夕拾**
+#### 翻译撰稿：zzballack
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/许家印.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/jklsdajfio90i90435ktgopkospdakflds.png)图片来源：商业内幕
 
-财联社11月16日电：据接近恒大的资本圈知情人士消息，从7月1日至今，为了维持集团流动性，许家印已透过变卖个人资产或质押股权等方式筹集资金，累计已向集团注入超70亿现金，维持庞大的恒大帝国的基本运营。在此期间，恒大没有融资、销售停摆，但要保证财富每月10%的兑付、总部员工发薪、境内外债券付息，推动全国各地项目复工复产。（第一财经）
+据英国《每日邮报》（Daily Mail）11月16日报道，非盈利组织“人民疫苗联盟（The People’s Vaccine Alliance，PVA）”根据辉瑞、BioNTech和莫德纳这三家制药公司的财报数据估算，它们今年税前获利总计340亿美元，换算后相当于每秒赚1000多美元、每分钟6万5000美元或每天9350万美元。
 
-文贵先生在11月14日的直播中说不出两周时间，恒大一定会破产，不知道恒大到底最终能撑多久，让我们拭目以待，恒大最后的落幕。
+PVA旗下成员非洲联盟（African Alliance）的通讯主管谢云（Maaza Seyoum）说：“少数几家公司每小时获利数百万美元，而低收入国家只有2%的人全面接种了新冠疫苗，这实在是令人厌恶。”
 
-*发布：热锅小蚂蚁*
+PVA指出，辉瑞、BioNTech和莫德纳利用其垄断地位，优先考虑与富有政府签订最有利可图的合同，却对穷国不闻不问。辉瑞和BioNTech已运交给低收入国家的新冠疫苗不到其总供应量的1%，莫德纳也只有0.2%。这三家公司负责生产和销售全球最常用的两种新冠疫苗，在疫苗的研发阶段总共获得了80亿美元的公共资金。辉瑞的首席执行官艾伯乐 (Albert Bourla) 一直坚定反对放弃疫苗的知识产权或专利权，甚至称技术移转是危险想法。强生（Johnson & Johnson）和阿斯利康（AstraZeneca）则以非营利为原则提供另外两种常用新冠疫苗。
 
-**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+这些疫苗厂商作为大重启势力的打手，沾满了无数无辜人的血。它们不仅要将其所赚的脏钱赔偿新冠疫苗的受害者，还得接受纽伦堡大审判似的严惩。
+
+新闻来源：[**‘It is obscene’: Pfizer, BioNTech and Moderna are making combined profits of more than $1,000 every second as Covid vaccine developers prioritize contracts with rich countries instead of developing nations, analysis finds**](https://www.dailymail.co.uk/health/article-10208889/Pfizer-BioNTech-Moderna-making-combined-profits-1-000-second.html)
 
  
 
