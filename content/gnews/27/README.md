@@ -2,51 +2,35 @@
 ---
 
 
-## 辉瑞、生物科技、莫德纳每秒赚一千美元利润
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1671575/)
+## 司法部长加兰：针对学生家长启动“反恐手段”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1671600/)
 
-**翻译：Lulumi**
+#### 作者：东京樱花团｜捆绑CCP一千年
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip11-1.png)Credit: Unsplash/CC0 Public Domain
+![](https://assets.gnews.org/wp-content/uploads/2021/11/司法部.png)*[图片来源](https://cms.zerohedge.com/s3/files/inline-images/garland%20looking_0.jpg?itok=sxrHFT79)*
 
-根据一项最新的分析，辉瑞（Pfizer）、生物科技（BioNTech）和莫德纳（Moderna）从其非常成功的COVID-19疫苗中每分钟能赚取6.5万美元利润，而世界上最贫穷的国家仍然基本上没有接种疫苗。
+**美司法部长加兰坐立不住，为急于解决学生家长反疫苗抗议事件激增的问题启动“反恐调查”，并准予创建“威胁标签” 跟踪起诉愤怒的父母。**
 
-人民疫苗联盟（PVA）说，这些公司将其绝大部分疫苗卖给了富国，让低收入国家陷入困境。
+据17日GETTR消息，[美国FBI 联邦调查局举报人](https://www.zerohedge.com/political/fbi-whistleblower-reveals-biden-doj-activated-counterterrorism-division-against)称，司法委员会的众议院共和党人已于周二向司法部长梅里克加兰发出一封信，称“联邦调查局反恐部门正在汇编和分类与父母有关的威胁评估，并指示联邦调查局人员使用特定的“威胁标签”来跟踪潜在的调查。
 
-该联盟估计，这三家公司今年的税前利润将达到340亿美元，这相当于每秒钟1000多美元，每分钟6.5万美元，或每天9350万美元。
+证据是“加兰于 10 月 21 日作证前一天发送的电子邮件”，为解决对学校董事会的威胁，并通知联邦调查局人员有关反恐和刑事部门创建的新“威胁标签” 。 这一披露提供了具体证据并证实联邦执法部门应左翼黑恶利益集团要求对学生家长实施“反恐工具。”
 
-非洲联盟和非洲人民疫苗联盟的马扎·塞尤姆说：“仅仅几家公司每小时就能赚取数百万美元的利润，而低收入国家只有2%的人全面接种了冠状病毒疫苗，这实在是令人发指。”
+- ***延展阅读：***[***共产主义的拜登声称疫苗是历史上“最强大”的刺激措施***](https://hannity.com/media-room/jabs-for-jobs-biden-claims-vaccine-mandates-the-most-powerful-stimulus-in-history/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=jabs-for-jobs-biden-claims-vaccine-mandates-the-most-powerful-stimulus-in-history)
 
-辉瑞公司、生物科技公司和莫德纳公司利用其垄断地位，优先考虑与最富有的政府签订最有利可图的合同，将低收入国家排除在外。
 
-PVA说，辉瑞公司和生物科技公司向低收入国家提供了不到其总供应量的百分之一，而莫德纳公司只提供了0.2%。
+该消息称，司法部长加兰上个月在国会证词期间特别受到抨击，他在那里否认针对学生父母对抗疫苗相关规定使用联邦调查局“国家机器”，“并使用 一份站不住脚的国家学校董事会协会的备忘录作为反驳理由。值得注意的是，备忘录和司法部都没有提供针对学校管理人员的所谓“威胁”的具体例子。”
 
-目前，低收入国家98%的人还没有完全接种疫苗。
+- ***延展阅读：***[***民主党人可能会后悔起诉班农***](https://thehill.com/homenews/the-memo/581859-the-memo-democrats-may-rue-pursuit-of-bannon?userid=924055)
+- ***延展阅读：***[***小罗伯特·肯尼迪称，COVID-19疫苗杀死的人数超过了所有疫苗***](https://www.redvoicemedia.com/2021/11/rfk-jr-drops-covid-vaccine-bomb-says-jab-is-killing-more-people-than-all-vaccines-combined/?utm_source=daily-email-breaking&amp;utm_medium=email)
 
-这三家公司的行为与阿斯利康和强生公司形成了鲜明对比，后者以非营利的方式提供疫苗，尽管这两家公司已经宣布，随着中共病毒大流行的结束，他们预计今后将结束这种安排。
 
-PVA说，尽管收到了超过80亿美元的公共资金，但辉瑞、生物科技和莫德纳拒绝了通过世界卫生组织向中低收入国家的生产商转让疫苗技术的呼吁：“此举可以增加全球供应，降低价格，拯救数百万人的生命。”
+根据司法部的说法，该项任务是确定如何使用联邦反恐工具来“起诉违规的父母”，司法部还将向学校工作人员提供有关如何报告来自家长的威胁和保存证据以协助调查和起诉的培训。司法部针对全国各地都在抗议并愤怒的父母。联邦调查局与当地领导人坐立不住，并挤在一起，急于解决针对教师和学校董事会成员的 “恐吓和暴力威胁”事件激增的问题。
 
-该组织说：“就莫德纳而言，尽管白宫明确施压，世卫组织也要求该公司合作并帮助加快其复制莫德纳疫苗的计划，以便在其南非的mRNA中心进行更广泛的生产。”
+2021年11月17日
 
-PVA补充说，虽然辉瑞公司首席执行官阿尔伯特·布拉将技术转让斥为“危险的废话”，但世卫组织本月早些时候对印度开发的Covaxin疫苗给予紧急使用批准的决定证明，发展中国家有能力和专业知识。
-
-PVA的80个成员包括非洲联盟、立即行动全球正义组织、乐施会和联合国艾滋病规划署，它呼吁制药公司同意世界贸易组织与贸易有关的知识产权协议的拟议豁免，从而立即暂停中共病毒疫苗的知识产权。
-
-包括美国在内的100多个国家支持这一举措，但它受到了包括英国和德国在内的富裕国家的阻挠。
-
-**评论：疫苗公司赚的每一分钱都是带血的，未来疫苗灾难爆发的时候，这些没有疫苗可打的低收入国家反而因祸得福。**
-
-**新闻来源**：[medicalxpress.com][Pfizer, BioNTech, Moderna making $1,000 profit every second: analysis](https://medicalxpress.com/news/2021-11-pfizer-biontech-moderna-profit-analysis.html)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
-
+*校对：东京樱花团 / 文小白*
+*发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,26 +2,35 @@
 ---
 
 
-## 日本著名棒球选手大谷翔平成为美虚拟货币公司FTX的广告形象大使
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1671648/)
+## 第二批美国联邦州提起诉讼挑挑战强制接种中共病毒疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1671668/)
 
-作者：东京樱花团丨定于二尊
-![](https://lh4.googleusercontent.com/4HCJgVgoJ3fh_rH_p5UbABiHzJNXKn1UBgnFE6lva-cY1In44Z14IbWEuy_Zo5dr2gR5nLle-wBjTJ4jTm_4RXm9xq0I1q_BfpkhjKqjH4P3jEdosII2YJCFv6PG99hoUvI9SipN)[*图片来源*](https://storage.googleapis.com/image.blocktempo.com/2021/11/39571222595_e95af97fc6_o-scaled.jpg)
-11月17日（日本时间）据共[同通讯社纽约分社](https://news.yahoo.co.jp/articles/1afbcb455de193a5b84421a4f04655b185c5a21a)报道，美国棒球大联赛著名日本球员大谷翔平，当地时间16日与美国虚拟币交易所公司FTX签署了为期两年的合同，担当该公司的“全球大使”。其目的在于利用大谷翔平选手来提升企业的品牌知名度和虚拟币的推广。大谷选手的广告报酬为8亿9千万日元（约合4960万美金）。据报道，其报酬全部用虚拟币和股票支付。
+整理报道：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/maxresdefault-2.jpg)图片来源：油管
+据《新闻极限》11月16日报道，代表12个州的最新诉讼在路易斯安那州提出，挑战拜登政府强制接种中共病毒（COVID-19）疫苗。这12个州分别是：路易斯安那州、蒙大拿州、亚利桑那州、阿拉巴马州、佐治亚州、爱达荷州、印第安纳州、密西西比州、俄克拉何马州、南卡罗来纳州、犹他州和西弗吉尼亚州。
 
-据报道，大谷翔平将以FTX公司的全球大使的形象，参与该公司今后开展的保护动物等一系列的慈善活动。
+根据新闻，不到一周前，10个州的联盟在密苏里州也提出了另一项挑战拜登政府强制接种中共病毒疫苗的诉讼。这10个州分别是：密苏里州、阿拉斯加、阿肯色州、爱荷华州、堪萨斯州、内布拉斯加州、新罕布什尔州、北达科他州、南达科他州和怀俄明州。
 
-根据[科技新报](https://technews.tw/2021/11/17/mlb-superstar-shohei-ohtani-ftx/)资料，大谷翔平目前效力于洛杉矶天使队，是职棒中相当罕见的投打双栖的「二刀流」选手，作为投手，目前球速最快高达165 公里，创下日职官方本土球员纪录；身为打者，则多次轰出全垒打，一度暂居全垒打王宝座，在今年赛季表现极为亮眼，引起外媒关注。
+报道说，这两起诉讼都认为，强制接种（中共病毒）疫苗有可能赶走那些拒绝接种疫苗的医护人员，而现在却是非常需要这类人员的时候，并且，医疗保险和医疗补助服务中心发布的规则违反了联邦法律，也违反了宪法，侵犯了各州的权力。
 
-FTX 创办人Sam Bankman-Fried（SBF）本身也是一位传奇人物，29 岁就已经晋升为亿万富翁，《富比士》预估其净资产为265 亿美元。他于2019年成立加密货币交易所FTX，目前FTX 是世界第三大加密货币交易所，仅次于Binance 和OKEx。
+路易斯安那州的诉讼引用了周五时位于新奥尔良的美国第五巡回上诉法院的命令，该命令阻止拜登政府的强制令，即工人超过100人的企业要求员工在1月4日前接种中共病毒疫苗，或者戴口罩并每周进行中共病毒测试。第五巡回法庭称强制医护人员接种中共病毒疫苗是“一刀切”的做法。
 
-- ***延展阅读：***[***FTX虚拟货币交易***](https://kasobu.com/articles/ftx-application)
-- ***延展阅读：***[***FTX彻底解说***](https://www.fisco.co.jp/media/crypto/ftt-about/)
+报道指，位于路易斯安那州的诉讼案被分配给了美国地区法官特里·多蒂（Terry Doughty），他是川普总统任命为法官的，而对多蒂裁决的任何上诉将会被提交给第五巡回法院。
 
+**新闻来源**
 
-*校对：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+[2nd Group of States Challenges Health Worker Vaccine Mandate](https://www.newsmax.com/politics/virus-outbreak-health-worker-vaccines/2021/11/16/id/1044927/)
+
+发布：七彩光
+
+**更多资讯，请关注：**
+
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

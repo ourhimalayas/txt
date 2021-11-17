@@ -2,33 +2,26 @@
 ---
 
 
-## 2021/11/15 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1671624/)
+## 日本著名棒球选手大谷翔平成为美虚拟货币公司FTX的广告形象大使
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1671648/)
 
-1. 辽宁大连疫情严重，确诊者激增，全市民众被勒令居家隔离14天，家家被贴封条。
-2. 11月12日 ，辽宁大连，市民在一空地深坑内发现上百头死猪及充满黑斑的病猪被任意丢弃无人管。
-3. 2021年11月，网络歌曲《2035去台湾》被中共在墙内全网推广，洗脑民众渲染开战氛围。
-4. 恒大施工现场实景现状，业主担忧停工停产复工无期拿房无望。
-5. 海南三亚，一女子疑似因为不愿出示健康码与保安发生冲突，被报警逮捕。
-6. 11月12日 ，黑龙江，老太太因不会扫码，无法乘坐公交车，最终只能步行离开。
-7. 民不聊生，外卖骑手被交警扣车，跪地哭诉。
-8. 11月13日，广东广州，停车场保安因停车纠纷持刀捅伤车主，车主伤重身亡。
-9. 11月13日，湖南衡阳，6岁男童与家人散步时，坠入下水道身亡。
-10. 11月12日，山西晋中，“天价停车位”，疑似停车须交100块钱押金，“超过1小时押金不退”
-11. 中共给动物做核酸检测，混淆病毒来源真相四处甩锅。
+作者：东京樱花团丨定于二尊
+![](https://lh4.googleusercontent.com/4HCJgVgoJ3fh_rH_p5UbABiHzJNXKn1UBgnFE6lva-cY1In44Z14IbWEuy_Zo5dr2gR5nLle-wBjTJ4jTm_4RXm9xq0I1q_BfpkhjKqjH4P3jEdosII2YJCFv6PG99hoUvI9SipN)[*图片来源*](https://storage.googleapis.com/image.blocktempo.com/2021/11/39571222595_e95af97fc6_o-scaled.jpg)
+11月17日（日本时间）据共[同通讯社纽约分社](https://news.yahoo.co.jp/articles/1afbcb455de193a5b84421a4f04655b185c5a21a)报道，美国棒球大联赛著名日本球员大谷翔平，当地时间16日与美国虚拟币交易所公司FTX签署了为期两年的合同，担当该公司的“全球大使”。其目的在于利用大谷翔平选手来提升企业的品牌知名度和虚拟币的推广。大谷选手的广告报酬为8亿9千万日元（约合4960万美金）。据报道，其报酬全部用虚拟币和股票支付。
 
+据报道，大谷翔平将以FTX公司的全球大使的形象，参与该公司今后开展的保护动物等一系列的慈善活动。
 
-* * *
+根据[科技新报](https://technews.tw/2021/11/17/mlb-superstar-shohei-ohtani-ftx/)资料，大谷翔平目前效力于洛杉矶天使队，是职棒中相当罕见的投打双栖的「二刀流」选手，作为投手，目前球速最快高达165 公里，创下日职官方本土球员纪录；身为打者，则多次轰出全垒打，一度暂居全垒打王宝座，在今年赛季表现极为亮眼，引起外媒关注。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+FTX 创办人Sam Bankman-Fried（SBF）本身也是一位传奇人物，29 岁就已经晋升为亿万富翁，《富比士》预估其净资产为265 亿美元。他于2019年成立加密货币交易所FTX，目前FTX 是世界第三大加密货币交易所，仅次于Binance 和OKEx。
+
+- ***延展阅读：***[***FTX虚拟货币交易***](https://kasobu.com/articles/ftx-application)
+- ***延展阅读：***[***FTX彻底解说***](https://www.fisco.co.jp/media/crypto/ftt-about/)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
