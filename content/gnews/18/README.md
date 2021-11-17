@@ -2,28 +2,42 @@
 ---
 
 
-## 俄克拉荷马州法案允许工人因强制中共病毒疫苗规定起诉雇主索赔100万美元
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671268/)
+## 郭文贵先生高度肯定 班农注定成为美国政治教父级的人物
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1671284/)
 
-翻译：Grace
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-14.png)
-图片来源：ussanews
+作者：澳喜农场-在远方
 
-据《每日邮报》11月15日报道，俄克拉荷马州参议院的一项法案，可以允许政府和私人实体的雇员，因为强制中共病毒疫苗规定所导致的健康问题，起诉他们的雇主，最高赔可以偿100万美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
 
-州参议员罗伯.斯坦德里奇（Rob Standridge）在11月12日，提出了参议院法案1106，即 “公民健康任务保护法”。该法案将允许雇员，就与作为雇佣条件的任何强制性操作，所引起的相关的医疗问题起诉雇主。 如果雇员因强制医疗操作而受到伤害，雇主可能要承担高达 100 万美元的赔偿。
 
-斯坦德里奇在一份声明中说： “如果一个雇员被要求接受疫苗或其他一些医疗治疗作为就业条件，并导致该人受到伤害，我们的公民需要知道他们将有一些追索权，为他们提供有意义的救济。这就是我的立法所要做的。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1114-3.jpg)
+在11月14日的大直播中，郭文贵先生高度肯定，班农无疑会成为美国的政治教父。美国建国以及华盛顿有史以来，班农是因为国会起诉而被逮捕的第一人。但是，在美国被逮捕，很快就会被释放，跟中共国完全不一样。 美国司法部起诉班农先生的背景，始于美国众议院特别委员会，调查1月6日美国国会大厦的暴动。班农事件将使共和党保守派更加清醒，并开始反击。同时也会让大家意识到，中共对美国国会和司法的渗透之深。国会在民主党的把控下，美国选举不可能公正。 郭先生说，班农先生被逮捕，将导致美国媒体大重启的到来。班农先生一定是美国未来影响深远的，政治上教父级的人物。未来对班农先生的评价，一定是正面的。
 
-报道称，俄克拉荷马州的这项立法是在拜登政府，本月早些时候，公布了一项新劳动规则之后进行的。拜登政府规定，所有的联邦和承包商的雇员，必须接种中共病毒疫苗。该规则还规定，拥有多于100名雇员的公司的员工，也必须接种中共病毒疫苗或定期接受中共病毒测试。
+新闻来源：[https://gnews.org/zh-hans/1663784/](https://gnews.org/zh-hans/1663784/)
 
-拜登的疫苗令由职业安全与健康管理局（OSHA）发布，但是，在收到突如其来的多个州和企业提出的法律诉讼后，美国第五巡回上诉法院已经暂停了该条例.
+编辑：Kathy文艺
 
-另外，拜登在自己的民主党内，也面临着反对该规则的阻力。堪萨斯州州长劳拉.凯利（Laura Kelly）在职业安全与健康管理局的规则公布后不久, 就站出来反对。
+总编：AN
 
-凯利说: “昨天，我审查了拜登政府的新疫苗任务, 虽然我很感谢保护人们安全的这种意向，而且我也有这样的宗旨，但我认为这项指令对堪萨斯州是不正确的，或不是最有效的解决方案。
+上传：浪迹天涯
 
-**新闻来源：**** **[**https://www.dailywire.com/news/oklahoma-bill-would-allow-workers-to-sue-employers-for-1m-over-harm-from-forced-vaccinations**](https://www.dailywire.com/news/oklahoma-bill-would-allow-workers-to-sue-employers-for-1m-over-harm-from-forced-vaccinations)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
+
+
 
  
 

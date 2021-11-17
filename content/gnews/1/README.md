@@ -2,17 +2,22 @@
 ---
 
 
-## 习近平，统一台湾是中共的历史使命
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1671410/)
+## 英首相约翰逊：英国人需要接种第三针新冠疫苗才被算作完全接种
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671421/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11172-2.png)图片来自Prezi
-11 月 16 日 -在上周中共全会通过了习近平的“历史性决议”– 解决台湾问题和统一中共国是共产党的历史使命和不可动摇的承诺，也是全国人民的共同愿望，对实现民族复兴至关重要，这是大势所趋。
-中共国制定的《反分裂国家法》是为了遏制台独势力，促进统一，挫败一切制造两个中国、一中一台以及台独的企图。
+#### 翻译/撰稿：zzballack
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/16/xi-la-riunificazione-di-taiwan-e-missione-storica-del-pcc\_11c62af7-d2a9-4916-98ac-bec56f79ef5e.html](https://www.ansa.it/sito/notizie/topnews/2021/11/16/xi-la-riunificazione-di-taiwan-e-missione-storica-del-pcc_11c62af7-d2a9-4916-98ac-bec56f79ef5e.html)
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-2-1.jpg)图片来源：雅虎新闻
+据《零对冲》（Zerohedge）11月17日报道，英国首相鲍里斯·约翰逊（Boris Johnson）11月15日在新闻发布会上说，“完全接种疫苗”的概念需要调整，人们需要在原有的两剂新冠疫苗基础上再打加强针，才能被算作“完全接种”。
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+约翰逊说：“由于两针疫苗的作用开始减弱，所以我们必须负责任，必须对衡量如何构成完全接种这一事实做出反应。政府将制定计划，除了国民医疗服务体系（NHS）颁发的数字疫苗护照，还要增加加强针。”
+
+11月15日早些时候，英国政府接受了疫苗接种和免疫联合委员会（JCVI）的建议，将加强针计划的范围扩大到40至49岁人群。
+
+记得郭先生在直播中说过，约翰逊的母亲因新冠疫苗而死。不知道在如此背景下，以约翰逊为首的英政府是因为真相信疫苗和加强针能增加对人体的保护，或者只是幕后全球黑势力操控的傀儡，才大力推广疫苗护照和加强针。多方事实证明，加强针只会加速人的死亡。全球百姓到了生死存亡的边缘，除了团结反抗，别无他法。
+
+新闻来源：[Brits Will Need 3 Jabs To Be Considered “Fully Vaccinated”: UK PM Johnson](https://www.zerohedge.com/political/brits-will-need-3-jabs-be-considered-fully-vaccinated-uk-pm-johnson)
 
  
 

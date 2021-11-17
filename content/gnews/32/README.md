@@ -2,49 +2,28 @@
 ---
 
 
-## 中共非法收购意大利公司，盗取无人机军事机密
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1671122/)
+## 郭先生指出-中共国的经济必定是 “完了”, 而数字人民币更是“灾难”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671127/)
 
-作者：纽约香草山医疗部 – 云豹
+撰稿：Grace
 
+校对：Grace
+![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_0638.jpeg)
+郭文贵先生在11月16日的盖特视频中指出，中共国的经济必定是“悬了， 完了”，而且中共的数字人民币更是“灾难”。相反地，“喜交所和喜币层层上涨”，“一直上行，下行不了”。
 
+郭先生告诉战友说，如果两个国家之间的本币互换（彼此国家的币互相交换）减少的时候，就表明了两国的贸易减少了，对彼此的信心也减少了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+据郭先生透露，国内特别是黑龙江，辽宁，吉林，河北，河南，湖北，山西，陕西，这些中北区的企业现在都面临着发不出工资的困状。
 
+据郭先生的分析，中共现在每年大概造两千万套的房子，而中共国内的老百姓根本没法购买这么多房子，中共的这样的经济将会崩塌，同时，中共国内的老百姓也将非常难于生存，因为中共的“弱民，贫民，苦民”的政策，会继续让国内的老百姓“欠债，欠信用卡，欠房贷，（和）欠车贷”。
 
+郭先生接着指出，现在全世界的八百多个数字货币中，真正能运行的只有二，三十个。但这二，三十个币的总额占掉了整个数字货币中的多半，甚至是80%， 官方说是其价值是3万多亿美元，郭先生却认为事实上会达到6万亿美元。
 
-11月15日，从有关媒体了解到：中共在2018年，借由在香港注册一家空壳公司，收购了意大利军用无人机公司：阿尔卑航空（Alpi Aviation）。 该公司有夜视感测器、资料传输等涉及军事的机密技术。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-10.jpg)
-今年，意大利警方无意中发现马迩斯（香港）的背后金主是中共中车股份有限公司及江苏省无锡市政府掌控的投资集团。 该香港公司在注册后不久，随即买下了阿尔卑航空。
+郭先生坚信 “一个去中心化的， 公开账本化的，这么样的一个数字货币中心，完全打破了政府的垄断，统治和掠夺的形式，它必然成为国际上的未来的货币和金融方式”。
 
-近日，丹提那公司执行长表示，此案件是中共在背后操控，借以获取特定军事管制科技的「教科书案例」。据了解，丹提那公司从事追踪中共在欧洲的投资活动。
+郭先生继续爆料说: “听说，上海数字货币研究中心, 给出了中共中央人民银行各种警告，说共产党的数字人民币是不可能流通的。数字人民币的流通对各大行发行的纸币，还有所有的人民币的标准化，和降准后的人民币，和数字化人民币之间的矛盾是巨大的，最后是老百姓和政府之间会形成了数字的对抗，货币的对抗。”
 
-参考链接：
-[China Bought Italian Military-Drone Maker Without Authorities’ Knowledge](https://www.wsj.com/articles/china-bought-italian-military-drone-maker-without-authorities-knowledge-11636972513?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：文徬
-编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+“所以说数字化的人民币必然是灾难，严格讲是灭共的，上天给我们的帮助,” 郭先生自信满满地说道。
 
  
 

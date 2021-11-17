@@ -2,22 +2,26 @@
 ---
 
 
-## 北交所开市不利 新股涨停存量股普跌
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1671339/)
+## 英国批准皮肤贴片新冠疫苗进行人体试验
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1671380/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山教育部 – Naughty(文行)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-358.png)图片来自财商天下
-11月15日，北京证券交易所敲钟开市。首批共有81家股票正式交易，其中10只为新股，开盘5分钟内，全部触发停牌。然而71家存量股中，约8成下跌，下午跌幅持续扩大。下跌最多的同辉信息，跌幅接近16%。 业内人士分析，这71家存量股票是由新三板的精选层公司平移至北交所的，前期已经被投资者追捧，因此高开回调。北交所是由高层授意开设的，之后必然有配套扶植措施，对后市比较看好。但资深投资者认为，北交所的概念属于政策性短线题材，炒作的成分太大，短期巨量换手会让前期的投资者血本无归，所以已开户但目前不会投入资金。 在沪深新股连续破发的背景下，北交所继续分流了沪深的资金，长远看一定会成为实实在在的“抽血机”，证券市场内卷化。开市首日，沪深两市均应声下跌。
 
-相关链接：
 
-[https://3g.163.com/dy/article/GORRFBMC0530KP1K.html?clickfrom=channel2018\_money\_index\_newslist&ver=c#child=index&offset=1](https://3g.163.com/)
+
+
+
+总部位于英国牛津郡的“Emergex”公司开发了一种SARS-CoV-2疫苗，旨在为体内的T细胞进行优质化，以快速去除病毒感染的细胞。疫苗可能会提供广泛的长期的变种病毒免疫力，使人们不再需要接种加强针。 Emergex周一宣布，它已获得授权，进入第1阶段，第一名患者预计将在2022年1月初接受第一剂Emergex疫苗。 该公司表示，Emergex疫苗与其他皮肤贴片技术类似，旨在使用微针将疫苗输送到身体。该疫苗在室温下也将稳定三个月以上，从而简化了分发和储存。
+![Lab samples](https://www.ctvnews.ca/polopoly_fs/1.5667502.1637024850!/httpImage/image.png_gen/derivatives/landscape_960/image.png)
+自从全球各国政府推进接种SARS-CoV-2疫苗以来，各种自媒体对疫苗造成的各种死亡以及严重副作用的报道层出不穷，然而主流媒体只是一味宣传疫苗的好处。这款疫苗通过皮肤来作用于人体，其具体成分组成不得而知，但其主要成分如果仍然是刺突蛋白的话，对人体的长期影响可以预料仍然是具有伤害性的。而且同济大学发表在细胞杂志上的文章肯定了新冠疫苗对T细胞是有伤害的，英国报道也表明注射新冠疫苗后会导致T细胞的逐渐减少。而该疫苗声称可以使T细胞优质化，去除被病毒感染的细胞，这会不会加速T细胞的衰减不得而知。而且该疫苗作用途径以及更容易保存等特点使得疫苗更加容易推广，或许会让拒绝打疫苗的普通人群感到更为担忧。
+
+新闻链接：[https://www.ctvnews.ca/health/coronavirus/u-k-covid-19-vaccine-to-be-delivered-by-skin-patch-approved-for-human-trials-1.5667401?utm\_source=ground.news&utm\_medium=referral](https://www.ctvnews.ca/health/coronavirus/u-k-covid-19-vaccine-to-be-delivered-by-skin-patch-approved-for-human-trials-1.5667401?utm_source=ground.news&amp;utm_medium=referral)
 
 总编：文徬
 
-上传：浪迹天涯
+审核/编辑/上传：浪迹天涯
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
 

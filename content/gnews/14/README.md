@@ -2,73 +2,41 @@
 ---
 
 
-## 爆料革命新歌：深爱着你
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1671285/)
+## “被囚禁作者日”：美国人权委员会呼吁关注中共国因言获罪人士
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1671303/)
 
-撰稿：东京樱花团/待命（文晓）
+作者：英国喜庄园-I770775
 
-【深爱着你】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
 
-演唱：MC文艺
 
-作词：待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-357.png)图片来自VOA
+11月15日，是一年一度的“被囚禁作者日”40周年纪念日，美国国会兰托斯人权委员会举办线上论坛，讨论全球尤其是中共对言论自由的持续威胁，呼吁外界关注中共国因言入狱的人士境遇。 讨论会指出，在全球很多地方，政府为了打压对政府的批评，以中共病毒为由限制人们的言论自由，以散布虚假信息为由监禁作者。 讨论会尤其关注，中共当局对自由言论人士的监禁或迫害。 无国界记者组织美洲分部总裁安娜·纳尔森表示，媒体自由在过去几年中也持续恶化，很多国家利用CCP病毒来限制媒体自由，打压媒体，还有一些国家则利用网络安全法来限制言论自由，逮捕记者。 她指出，全球目前有465名记者和媒体工作者因他们的工作而遭到监禁，其中中共是关押记者人数最多的。
 
-黑夜里 我呼唤着你
+新闻来源：[https://www.voachinese.com/a/day-of-the-imprisoned-writer-20111115/6314379.html](https://www.voachinese.com/a/day-of-the-imprisoned-writer-20111115/6314379.html)
 
-向你我 走来的喜币
+总编：文徬
 
-辗转万千 难得相见
+上传：浪迹天涯
 
-冥冥中 你在等七个一
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 
-Take down the CCP
+**更多资讯，更多关注**
 
-哦—喜币
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-化作洪荒力大无比～
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-Take down the CCP
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-哦-喜马拉雅币
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-我的爱～我深爱着你～
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-好庆幸 今生能与你相遇
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
 
-不自禁 泪流难抑
 
-我已经 重生不再从前
 
-期盼你 要永远是你
-
-Take down the CCP
-
-哦—喜币
-
-化作洪荒力大无比～
-
-Take down the CCP
-
-哦-喜马拉雅币
-
-我的爱～我深爱着你～
-
-Take down the CCP
-
-哦—喜币
-
-化作洪荒力大无比～
-
-Take down the CCP
-
-哦-喜马拉雅币
-
-我的爱～我深爱着你～
-
-我深爱着你～
-
-*发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
