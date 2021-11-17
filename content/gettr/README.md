@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/17/2021 12:35 AM (UTC)`
+
+11月16日：多多和笨笨都长大了，感谢很多战友很关心他俩的成长，他们俩很快的就要入洞房了……现在应战友的要求发几张照片与大家分享！
+![img](https://media.gettr.com/group35/getter/2021/11/17/00/34/a25b53e2-5862-6d66-21e1-8ebdc83d0bc2/6fc48f3b4711e9afd2a354d4109a24e6.jpg)
+
+---
+
 `@miles 11/16/2021 9:53 PM (UTC)`
 
 😱😱😱😱😱😱😱😱😱
@@ -290,15 +297,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 ...
 ![img](https://media.gettr.com/group45/origin/2021/11/12/12/2a2487a4-ac2f-8b8a-2de7-1f9a5c58d982/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gtranslators_1 11/12/2021 2:16 AM (UTC)`
-
-...
-![img](https://media.gettr.com/group43/origin/2021/11/12/02/0f36ad13-6ac4-aa80-5412-d4a1830c42c9/9548d67018b19975dcafea4c4484666a.png)
 
 ---
 

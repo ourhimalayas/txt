@@ -2,52 +2,38 @@
 ---
 
 
-## 福奇和盖茨承认COVID疫苗并不像广告宣传的那样有效
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1670208/)
+## 如果强制雇员接受疫苗而造成伤害，雇主可能面临百万美元赔偿
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1670217/)
 
-编译： Jenny Ball
+据《Fox5》记者：Kevin Severin，2021年11月12日报道
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-337-e1637099589785.png)根据 SB 1106，雇员可以在法庭上向雇主提出索赔，要求因疫苗接种或医疗造成的伤害或疾病造成的实际和惩罚性损害赔偿。(mj0007/ iStock / Getty Images Plus)
+俄克拉荷马市 (Oklahoma City) – 参议员拉布 · 斯坦德里奇（Rob Standridge） 已提交参议院第1106号法案，即“公民健康授权保护法”，针对需要疫苗或其他医疗作为就业条件的公共和私人实体和个人。
 
-*在相隔几天的采访中，比尔·盖茨和安东尼·福奇博士承认 ：COVID 疫苗无效，但都表示解决方案是向更多人提供更多的加强剂。*
+**如果强制要求雇员接受药物或治疗出现问题，这些雇主可能需要承担 100 万美元的惩罚性赔偿。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-8-5.jpg)图片来源：childrenshealthdefense.org
+“许多俄克拉荷马人可能不知道联邦政府已经给予 COVID-19 疫苗责任保护。”斯坦德里奇说。“如果一名员工被要求接种疫苗或其他医疗作为就业条件，并导致该人受到伤害，我们的公民需要知道他们将有一些追索权，这将为他们提供有意义的救济。这就是我的立法的目的。”
 
-在最近的两次采访中，大流行思想领袖安东尼·福奇博士和比尔·盖茨，彻底改变了他们对 COVID 疫苗有效性的看法——但却利用他们新发现的担忧让公众接种加强剂疫苗。
+根据SB1106，雇员可以在法庭上向雇主提出索赔，要求雇主因作为就业条件所需的疫苗接种或医疗计划而造成的伤害或疾病造成实际和惩罚性损害赔偿。**如果雇主在未确认其安全性的情况下故意要求接种疫苗或治疗，则雇主将自动负有100万美元的惩罚性赔偿责任。**
 
-上周，在伦敦政策交流中心接受杰里米·亨特采访时，**盖茨承认了包括《柳叶刀》在内的许多人几个月来一直在说的——疫苗无效。**
+**该法案将适用于所有私营和公共部门的雇主。**
 
-此前曾将 mRNA 疫苗的有效性称为“魔法”的盖茨告诉亨特，“我们需要一种新的疫苗生产方式。”
+斯坦德里奇的立法将在二月份进行审议。
 
-仅仅几天后，福奇在《纽约时报》的播客中也表达了类似的观点。**福奇说，****COVID ****疫苗对所有年龄组的感染、住院甚至死亡的有效性正在减弱，**以至于加强剂量对每个人来说都变得“必不可少”。
+文章来源：[https://okcfox.com/news/local/employers-could-face-1-million-in-damages-if-mandated-medications-cause-harm](https://okcfox.com/news/local/employers-could-face-1-million-in-damages-if-mandated-medications-cause-harm)
 
-福奇说：“我认为加强针将成为我们应对措施中绝对必要的组成部分，不是奖金，也不是奢侈品，而是该计划的绝对必要组成部分。”
+翻译：洛杉矶盘古农场 –Raul
 
-福奇说，当局正在观察疫苗效力的减少，“涉及所有年龄组”。
+校对：洛杉矶盘古农场–Mike Li
 
-为了支持更广泛的加强计划，他告诉《泰晤士报》，**疫苗“正在减少效力，才让你看到越来越多的人突破性感染，越来越多的突破性感染的人要住院**。”
+编辑：洛杉矶盘古农场 –柯镇恶
 
-今天在英国，首相鲍里斯·约翰逊同样谈到扩大英国的 COVID 加强针计划。
 
-“接种三针或接种加强剂将成为一个重要的事实……我们将不得不调整我们对全面接种疫苗的概念，”他告诉英国人。
 
-主流媒体也在为未知数量的额外 COVID 疫苗做好准备。周日，彭博社报道说：“事实证明，‘加强剂’这个词有点用词不当，目前还不知道达到最大功效的正确注射次数。”
 
-（**点评：也就是说疫苗将是未来维持生命的必须？大制药商再也不用发愁未来源源不断的进账了！）**
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-如果盖茨和福奇协调他们最新的 COVID 疫苗信息，通过加强计划获得更广泛采用 COVID 疫苗的同意，这将不是两人第一次在疫苗方面密切合作。
-
-小罗伯特·肯尼迪 (Robert F. Kennedy, Jr.) 即将出版的《真正的安东尼·福奇》一书探讨了精心构建的 药企－福奇－盖茨“Pharma-Fauci-Gates 联盟”，并详细介绍了“盖茨和福奇在整个封锁期间几乎每天都在进行沟通，并几乎对每个COVID-19 对策双方做出决定。”
-
-在此处收听盖茨关于 COVID 疫苗无效的最新消息（时间点：28:00）：[www.youtube.com](https://www.youtube.com/watch?v=CZplF4qdwII&amp;t=8s)
-
-**参考资料：**[childrensheal[thdefense.org\]Fauci, Gates Admit COVID Vaccines Don’t Work as Advertised](https://childrenshealthdefense.org/defender/jeremy-hunt-fauci-gates-covid-vaccines-boosters/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=bc159a5c-a19e-4e36-abe4-febd89cd79dd)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH..jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

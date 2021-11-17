@@ -2,46 +2,36 @@
 ---
 
 
-## Circle将投资日元稳定币，作为向亚洲扩张的一部分
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1670286/)
+## 白宫：1.75T的BBB无法支付，美国人明年需要加税了
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1670290/)
 
-**【简评：】***Circle的首席战略官兼全球政策主管Dante Disparte指出：“如果不考虑把新加坡作为一个枢纽，你就无法建立一个永远在线的全球互联网金融业务。在我们希望扩大我们的业务范围和投资新加坡市场的过程中，新加坡金融管理局一直是一个非凡的监管伙伴” 。通过近期新加坡金融管理局的种种举措，我们看到了一个对加密货币持开放态度的新加坡。反观中共国，为了牢牢控制住墙内老百姓和他们的钱，只允许自己的数字化人民币，而将所有的虚拟货币都定义为非法，违反自然发展规律和趋势必将自掘坟墓。*
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-据《cointelegraph.com》记者：ERHAN KAHRAMAN，2021年11月15日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-339-e1637101605976.png)图片来源：cointelegraph.com
-**总部位于美国的USD Coin（USDC）发行方Circle已将目光投向蓬勃发展的亚洲加密货币市场。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-13-1.png)法新社通过盖蒂图片社
 
-为了加强其在亚洲的影响力，Circle选择在新加坡设立区域总部。Circle首席执行官杰里米·阿莱尔（Jeremy Allaire）在接受彭博社采访时表示，该公司还将成立名为Circle Ventures的投资部门。该风险投资部门的第一笔投资将集中在日元稳定币上。
+拜登总统及其政府成员长期以来一直吹捧BBB（Built Back Better）法案[将花费“zero dollar”](https://nypost.com/2021/09/27/joe-biden-slammed-for-build-back-better-price-claim-lie/)（税收大部分由中产阶级承担）,这笔法案花费是来自增加公司税、为富有的美国人填补税收漏洞,以及其他改革（比如虚拟货币交易）将[创造足够的抵消作用](https://www.whitehouse.gov/briefing-room/statements-releases/2021/10/28/president-biden-announces-the-build-back-better-framework/)。
 
-**阿莱尔表示，该公司在亚洲市场看到了巨大的机遇，他预计稳定币将在借贷市场上得到广泛应用。他补充称，通胀环境和对收益率的追求将触发市场转向稳定币。**
+自上周以来，[CBO 已经发布](https://nypost.com/2021/11/10/cbo-releases-estimates-for-1-75t-biden-social-spending-bill/)了对该法案八个部分的[初步估计](https://nypost.com/2021/11/10/cbo-releases-estimates-for-1-75t-biden-social-spending-bill/)。到目前为止，该机构已经发现这八个部分中的一部分——如果包含在最终立法中——将使联邦预算赤字增加 1500 亿美元以上。预计周五（19日）将对完整立法进行评分。 据《泰晤士报》报道，拜登政府高级官员先发制人地声称， CBO 的估计是“过于保守”，其没有适当考虑加强 IRS 执法所筹集到的资金。
 
-在评论该公司最新的利息收益产品“Circle Yield”时，他说: “虽然很多人希望专注于通过直接购买比特币进行对冲，但我们认为，对于企业内部的资本管理人员和企业财务人员等来说，稳定币收益的分配实际上将非常、非常有吸引力。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-14-1.png)
 
-Circle目前正在为新加坡总部大量招兵买马，以使USDC成为“首批在新加坡获得许可的全球稳定币之一”。 该公司正在与新加坡金融管理局（Monetary Authority of Singapore）合作，以推动该国主要业务采用USDC。
+几个月来，《重建更好法案》(BBB Act)在众议院和参议院都面临着一场艰苦的战斗，而 CBO 的一份负面报告可能会给拜登政府带来更多问题。众议院温和的民主党人在看到评分之前一直对承诺投票支持该法案持谨慎态度，而参议员乔曼钦（D-WV）——上议院的关键一票——其坚持要求[该立法应得到全额支付](https://nypost.com/2021/07/13/joe-manchin-says-both-infrastructure-bills-should-be-paid-for/)。
 
-阿莱尔是加密货币行业首批公开支持拜登政府最近提出的“将稳定币发行者看作为银行进行监管” 提议的高管之一。
+许多人质疑《重建更好法案》是否真的需要印刷 1.75 万亿美元，[美国商会](https://nypost.com/2021/11/11/chamber-of-commerce-dems-using-gimmicks-to-hide-spending/)上周[指责](https://nypost.com/2021/11/11/chamber-of-commerce-dems-using-gimmicks-to-hide-spending/)民主党人使用会计的“噱头”（小聪明）来隐藏超过 1 万亿美元的支出。
 
-他表示：“我们在某种程度上同意这一提议的前提，是因为它有可能支撑大量支付和市场活动” 。
+“我们有 31 年来最高的通货膨胀率，雇主正在努力填补创纪录的职位空缺，而目前的和解法案草案使用小聪明来掩盖，超过 1 万亿美元的支出，”美国商会执行副总裁兼首席政策警官尼尔·布拉德利（Neil Bradley）在一份声明中说。
 
-在另一次采访中，他表示，当前的措施将把目前以资金传输为重点的监管升级为“一个更加基本的基础设施，这是银行和资本市场未来潜在的核心” 。
+他补充说：“如果美国国会议员在不了解其真实成本或政策对现实世界的影响的情况下，就对这一项价值数万亿美元的税收和支出法案进行投票，那将是最不负责任的行为。”
 
-原文连接：[https://cointelegraph.com/news/circle-to-invest-in-japanese-yen-stablecoin-as-part-of-expansion-to-asia](https://cointelegraph.com/news/circle-to-invest-in-japanese-yen-stablecoin-as-part-of-expansion-to-asia)
+上个月，[宾夕法尼亚大学沃顿商学院进行的](https://nypost.com/2021/10/29/biden-1-75t-bills-taxes-pay-for-less-than-wh-claims-study/)一项分析发现，用于抵消 1.75 万亿美元支出的税收将比支付账单所需的净额度，少约 4700 亿美元。  白宫估计，新的和更高的征税款项所筹集到是 1.995 万亿美元，但沃顿商学院的预算模型估计它们只能带来 1.527 万亿美元——比白宫数字低 4680 亿美元，比法案的最高成本少 2230 亿美元。
 
-翻译：洛杉矶盘古农场–钢蛋儿
+新闻来源：[nypost.com] [WH warns CBO won’t say $1.75T BBB paid for, tells Dems to ‘disregard’: report](https://nypost.com/2021/11/16/white-house-warns-cbo-wont-rule-spending-bill-paid-for-report/) | 发布时间：2021年11月16日|封面图来源：盖蒂图片社
 
-校对：洛杉矶盘古农场–Mike Li
+* * *
 
-评论：洛杉矶盘古农场–钢蛋儿
+*发稿：信心的选择*
 
-编辑：洛杉矶盘古农场–心照
-
-
-
-
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
 
  
 

@@ -2,39 +2,36 @@
 ---
 
 
-## 列举世界范围内的疫苗预防失败的地区
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1670227/)
+## 感谢新中国联邦人
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1670269/)
 
-**【简评】事实证明，疫苗接种率高的地区，病毒爆发更加严重！**
+文编：Hima
+视频：七哥Gettr
 
-**据《零对冲》作者：TYLER DURDEN，2021年11月14日报道：**
-**从新加坡到荷兰再到冰岛到佛蒙特州。而且很快就席卷到美国的整个北半部……**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/aopu4-caunm.jpg)**图片取自原文**
-事情不应该是这样的。
-新加坡的死亡人数创下新高（85%的人口完全接种了疫苗，不是成年人，是全部人），如下图所示。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/bhu.jpg)资料来源：彭博社。
-**荷兰进行了新封锁（70%完全接种疫苗）**：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/23-unknown-3.png)
-**而在冰岛（76%完全接种了疫苗）：**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/@image0.jpg)
-由于佛蒙特州，美国接种疫苗最多的州（71%的人完全接种了疫苗）的病例数打破了高点：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/zyi.jpg)
-病毒就是病毒。
-而且看起来越来越像我们越是努力不让它感染病毒，反弹就越严重。
+11月16日郭文贵在盖特上分享的视频指出：
 
-**原文连接：**[https://www.zerohedge.com/covid-19/worldwide-vaccine-failure](https://www.zerohedge.com/covid-19/worldwide-vaccine-failure)
+郭文贵代表新中国联邦人和所有法制基金的捐款者对Gclub所有会员，GTV所有投资人，所有喜马拉雅联储喜币的拥有者感谢自由女神赐给我们自由让我们成功。他所站的这艘船——“自由号”将欢迎来自所有法制基金的捐款者和新联邦人来曼哈顿使用这艘船。再次感谢自由女神赐予我们的自由、安全、自尊、自信、财富、还有新中国联邦干掉共产党！共产党你完了！
 
-**（本文评论仅代表个人观点）**
+校对：HimaFaFA
+发布：HimaBoy
 
-翻译：洛杉矶盘古农场- TrueSky
-校对：洛杉矶盘古农场-轰炸机
-评论：洛杉矶盘古农场 – 轰炸机
-编辑：洛杉矶盘古农场 – 柯镇恶
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+（文章仅代表作者个人观点）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

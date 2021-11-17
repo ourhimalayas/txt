@@ -2,11 +2,30 @@
 ---
 
 
-## 郭先生：我们正身处灾难之中，只有抱团才能取暖
-` MG 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1670398/)
+## 有声|辉瑞公司在儿童疫苗中添加心脏病药物
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1670410/)
 
-中国北京城上空漂浮的雾霾，不是过去的2.5雾霾，是人尸的雾霾，不仅在武汉市，全中国各地到处都在死人，包括因疫苗导致的畸形婴儿。现在全球病毒死亡人数已超过二战后所有战争死亡人数总和，还有疫苗灾难就在进行中，这是人类上前所未有的，未来大家只有抱团才能生存。蓬佩奥先生唯一后悔的是打了三针疫苗。
+配音：香草山教育部 – 蒙古鸿雁
 
+据Pandemic News报道，一份最新发布的文件显示，辉瑞公司在儿童CCP病毒疫苗中添加了一种的心脏病药物。氨丁三醇, 别名缓血酸胺，是一种能够降低血液酸度，并稳定心脏病发作的化学物质。
+
+在文件中， 解释疫苗成分的部分，提到儿童疫苗包含10微克的经核苷修饰过的信使RNA，用来编码刺突糖蛋白。这些刺突蛋白被脂质纳米颗粒包裹，最终以冷冻悬浮液的形式分装至疫苗瓶。并且，为了优化疫苗的稳定性曲线，辉瑞在5-11岁疫苗中采用了氨丁三醇缓冲剂，而未使用磷酸盐缓冲液、氯化钠或者氯化钾。
+
+目前已有大量的证据显示疫苗是不安全的，而且，美国食品药物管理局FDA无视这一成分的改变，就为这种新药授予了紧急使用授权，给5岁以上的儿童使用，黑暗力量的儿童献祭试验才刚刚开始。
+
+文字版原文：[辉瑞公司在儿童疫苗中添加心脏病药物](https://gnews.org/zh-hans/1659129/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
