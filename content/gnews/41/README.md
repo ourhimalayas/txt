@@ -2,26 +2,33 @@
 ---
 
 
-## 中共国东中西三地同时地震
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1671716/)
+## 维州“流行病法”修改后将在议会通过
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1671779/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-93.jpg)[图片来源](https://news.sina.com.cn/c/2021-11-17/doc-iktzqtyu7827149.shtml)
-中国地震台网正式测定，11月17日10时25分在台湾宜兰县海域发生4.7级地震，震源深度10千米，震中位于北纬24.80度，东经122.25度，距台湾岛约32公里。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/台湾1-1.jpeg)图片来源：SKY NEWS
+**翻译：**波澜壮阔
+**编辑：**翼族
 
-中国地震台网正式测定：11月17日13时54分在江苏盐城市大丰区海域（北纬33.50度，东经121.19度）发生5.0级地震，震源深度17千米。震中距最近海岸线45公里，距盐城市97公里，距南京市276公里，距上海市254公里。地震造成江苏盐城、南通等地震感强烈，江苏南京、上海等地亦有震感。
+据《天空新闻》记者安德里亚·克罗瑟斯（Andrea Crothers）报道，维州安德鲁斯政府备受争议的“大流行病法”在七项“关键的修正”之后，将于本周末在维多利亚州议会获得通过。
 
-中国地震台网正式测定：11月17日15时39分在四川宜宾市兴文县（北纬28.22度，东经104.96度）发生3.1级地震，震源深度10千米。
+修正案包括将最高罚款减半，并要求在7天内而不是14天内发布通知，告知公共卫生命令。
 
-在同一天，6个小时内，东中西部分别地震，如此之短的时间中，有三个地方相继发生地震，这样的情况即使放在全世界来说也是比较罕见的。其存在关联关系的可能性是很大的，实际上一些较大的地震发生之后，往往会在板块的另一端或者另一板块的相关之处发生地震，在中共国独裁者们极其脆弱心里一定会盘算着，天灭中共，这是上天安排的惩罚。
+克罗瑟斯女士对天空新闻节目主持人佩塔·克雷德林称，今天发言的跨党派人士没有得到他们想要的一切。他们仍然担心拘留问题，但他们对目前的结果感到满意。
 
-信息来源：
+克罗瑟斯女士表示，该法案预计将在周四或周五之前获得通过，以取代将于12月15日到期的现行的紧急状态权力法。
 
-[江苏盐城市大丰区海域发生5.0级地震，南京、上海等地有震感](https://ml.mbd.baidu.com/r/wxaTPpuVFK?f=cp&amp;rs=2756314733&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=544b0147e96916cc)
+然而，克雷德林女士指出，有许多法律专家认为，修订后的法律仍将使州长手中的权力过大，缺乏足够的来自议会的监督。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+**原文链接：**[Victoria’s pandemic laws ‘poised’ to pass through parliament after ‘key amendments’](https://www.msn.com/en-au/news/other/victoria-s-pandemic-laws-poised-to-pass-through-parliament-after-key-amendments/ar-AAQL8uw?ocid=msedgntp)
+
+*发布：翼族*
+
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
