@@ -2,31 +2,49 @@
 ---
 
 
-## 许家印变卖70亿个人资产“填坑”，被中共继续利用来行骗
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1671484/)
+## FBI利用反恐部门给学生的父母添加了“恐怖分子标签”
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1671495/)
 
-撰稿人：澳洲天好蓝
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture2-2.jpg)网络图片
-11月16日，第一财经从接近恒大的资本圈知情人士处获悉，从7月1日至今，为了维持集团流动性，许家印已透过变卖个人资产或质押股权等方式筹集资金，累计已向集团注入超70亿现金，维持庞大的恒大帝国的基本运营。在此期间，恒大没有融资、销售停摆，但要保证财富每月10%的兑付、总部员工发薪、境内外债券付息，推动全国各地项目复工复产。
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-除了资产处置进展不佳外，恒大的销售也明显陷入停摆。克而瑞数据显示，9月单月，恒大全口径销售额仅53亿元，位列行业49名；10月的销售额未能上榜，而位列50位的房企销售额为36.9亿元。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-370.png)图片来源 ：dailymail.co.uk
 
-公开信息显示，近期恒大还多次按期支付债券利息。最近的一次为11月11日，恒大于当天支付了三笔美元债利息，合计约1.48亿美元。 这三笔美元债分别于2022年、2023年、2024年4月到期，11月11日是三笔债券票息30日宽限期的最后一天。
+FBI利用反恐部门给学生的父母添加了“恐怖分子标签”
 
-近期，有关许家印变卖个人资产的消息亦在市场上广为流传。据称，许家印已把个人财产押的押、卖的卖，已经变卖的资产包中，包括香港的三栋别墅和广州、深圳的豪宅，还有几架私人飞机等，而拿回的钱基本用于恒大保交楼、还利息、兑理财、开工资等。
+众议院共和党人获得的爆料文件显示，联邦调查局（FBI）利用反恐部门（counterterrorism unit）为向学校董事会提出，对批判种族理论(CRT)有担忧的家长加上“威胁标签”（反共产主义将被视为恐怖分子）。
 
-以上文章引用：
+这与梅里克·加兰10月份在国会宣誓的证词相矛盾。其证词表示，司法部及其部门没有利用反恐法规和资源来针对，在学校董事会会议上抗议的家长；美国司法部长梅里克·加兰（Merrick Garland）应该辞职。
 
-[https://www.163.com/dy/article/GOUN4NBO0519DDQ2.html](https://www.163.com/dy/article/GOUN4NBO0519DDQ2.html)
+吹哨人提供了一封日期为10月20日的联邦调查局电子邮件—也就是加兰在国会作证的前一天—该电子邮件是作为“代表”联邦调查局反恐司助理司长和刑事司助理司长发送出去的。
 
-评：如果按照骗子的一般套路来说，恒大这样的烂摊子，许家印早该跑路了，而不是变卖个人资产用于还债，从许家印近来一系列的操作来看，应该是被中共控制得死死的，这也印证了郭先生所说情报为了保证中共能渡过明年的二十大，保证习能顺利再连任，恒大不能现在倒，所以我们可以从这些蛛丝马迹看出许家印没有半点自由，不过我们也看到，恒大还债对象只是美元债，全文并没有提及会及时还钱给那些中共国百姓投资人，另外文章说了要保交楼给业主，这也是为了能得到业主的按揭还款，这样才能有更多的资金周转，这篇文章只是放出来是为了安抚那些恒大债主的人心，为了继续恒大的庞氏骗局，恒大只是应付了下美元债，并拿此来洗脑国内民众，营造一种恒大不会倒的幻觉，不知恒大的业主与普通债主是否有醒悟过来？
+众议院共和党人在一封信中提到吹哨人提供的电子邮件时说：“该电子邮件指示联邦调查局人员对所有’专门针对学校董事会管理人员、董事会成员、教师和工作人员的威胁进行调查和评估’”。
 
-恒大债务超过万亿，根本就不可能是许家印出售几十亿，上百亿个人资产就能填补的坑，恒大债务的爆炸必定是中共经济倒塌的那根稻草，同是也是世界债务危机的导火索，恒大一倒中共国银行借给恒大的2万亿的坑就彻底的被爆露出来了，到时候会连锁引起银行的破产，百姓与企业的兑付危机，当然主要是由于中共国企业都是高负债模式运营，每年都会找银行贷款来保证公司的正常运作，保证员工的工资发放，如果中共国大量银行破产，那么就会让企业无处贷款，从而引起大量企业倒闭，员工失业，整个中共国将是哀鸿遍野，同时中共的房地产也是其中崩溃最快的，因为没有资金链了。当然这些连锁反应到中共国的房奴，每月的按揭他们必需还，同时企业倒闭很多房奴将没有钱还上，那他们可能会被赶到外面睡大街。当然悲剧还不止于此，企业倒闭的同时，生活物资会大量匮乏，加之百姓失业没有购卖力，通货膨胀与通货紧缩同时出现，也就是物资价格爆涨与物资完全卖不出去，这两者将同时出现，社会经济完全紊乱，中共国社会随时会出现脆断！
+“这是确凿的证据，”克里斯托弗·鲁弗（[Christopher Ruffo](https://twitter.com/realchrisrufo/status/1460705961618726912?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1460705961618726912%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https://www.thegatewaypundit.com/2021/11/breaking-house-republicans-obtain-whistleblower-docs-showing-fbi-used-counterterrorism-unit-add-threat-tags-parents-contradicting-garlands-sworn-testimony/)如下两张推特截图）说。”司法部长加兰没有提供任何证据证明学生的父母正在从事可信的威胁或暴力行为。然而，他却动员联邦调查局的反恐部门使用反恐工具来调查、追踪和标记父母。”
 
-（本文只代表作者个人观点）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-372.png)
 
+这些爆料的文件直接与梅里克·加兰的宣誓证词相矛盾，也就是说梅里克·加兰在国会宣誓后被证实是撒谎（如下[推特](https://twitter.com/approject/status/1460714668935327748?s=20)截图）。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-377.png)
+
+**简评：**
+
+**一则来自《[零对冲](https://www.zerohedge.com/political/fbi-whistleblower-reveals-biden-doj-activated-counterterrorism-division-against)》的相关报道。**
+
+**加兰在10月国会作证时受到了抨击，在那里他否认将联邦调查局“[武器化](https://www.zerohedge.com/political/thank-god-youre-not-supreme-court-tom-cotton-eviscerates-garland-over-doj-memo)”以对抗反对批判种族理论和疫苗相关规定的父母——仅仅使用全国学校董事会协会（NSBA）的一份站不住脚的备忘录作为理由。值得注意的是，该备忘录和司法部都没有提供所谓“威胁”学校管理人员的具体例子。**
+
+**争议始于10月4日，当时加兰宣布将集中力量打击学生的家长对学校工作人员的”任何暴力威胁、恐吓和骚扰”。几天前，全国学校董事会协会（NSBA）要求拜登政府采取”非常措施”，以防止据称学生家长对学校工作人员的威胁，该协会说这些威胁来自反对口罩强制令和反对批判性种族理论教学的家长。**
+
+**司法部长梅里克·加兰 (Merrick Garland) 的女儿是丽贝卡·加兰( Rebecca Garland)。2018 年，丽贝卡·加兰 (Rebecca Garland) 与Xan Tanner [[链接](https://www.nytimes.com/2018/06/17/fashion/weddings/rebecca-garland-xan-tanner.html)]结婚。Xan Tanner 先生是一家颇受争议的教育服务公司 Panorama Education 的现任联合创始人。[[链接](https://www.panoramaed.com/about)和[链接](https://www.panoramaed.com/social-emotional-learning-sel)] Panorama Education 是“*[社会学习](https://www.panoramaed.com/social-emotional-learning-sel)*”资源材料的提供者，提供给教授批判种族理论（社会共产主义）的学区和教师。也就是存在利益冲突。**
+
+**另外，《[布莱巴特](https://www.breitbart.com/education/2021/11/16/house-republicans-reveal-whistleblower-documents-exposing-fbi-use-of-counterterrorism-tactics-against-parents/)》的报道表示，家长捍卫教育 (PDE) 通过公共记录请求[获得的](https://www.breitbart.com/politics/2021/10/21/emails-reveal-nsba-top-officers-worked-white-house-letter-targeting-parents-domestic-terrorists/)电子邮件显示，NSBA 的总裁和执行董事过去几周一直与拜登白宫工作人员进行谈判（各州的学生家长通过网络平台共同预谋反对共产主义的恐怖暴力行动）。然而，如果假设你在作证时知道联邦调查局的行动，那么这个证据表明是你故意误导（需要额外的解释）委员会关于 FBI 使用联邦反恐工具在学校董事会会议上，针对有关家长的性质和程度。**
+
+新闻来源：[thegatewaypundit.com][BREAKING: House Republicans Obtain WhistleblowerDocs Showing FBI Used Counterterrorism Unit to Add “Threat Tags” to Parents – Contradicting Garland’s Sworn Testimony |](https://www.dailymail.co.uk/news/article-10209781/House-Republicans-release-whistleblower-email-showing-FBI-threat-tags-school-related.html) 发布时间：2021年11月16日
+
+* * *
+
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
 
 
  

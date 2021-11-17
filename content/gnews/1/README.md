@@ -2,57 +2,35 @@
 ---
 
 
-## 七哥谈喜联储VI:白皮书和摩根士丹利的加密系统无人匹敌
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1671515/)
+## CCP治下城市建筑美感的消失和原因
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1671550/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/78354797c9a813f1502b089e1e5990d9_副本.jpg)
-1、郭先生2020年5月19日GTV直播
+作者：英国伦敦喜庄园 有贵成喜2020
+[![](https://spark.adobe.com/page/h5JiLzk83RZV9/images/ca91e753-2a74-4b3e-831a-9b3cb6d2cd81.png?asset_id=1f67e798-b959-46ae-8a03-956091fa2889&amp;img_etag=%222419092bcb6f725e475896dad78c1a09%22&amp;size=1024)](https://spark.adobe.com/page/h5JiLzk83RZV9/images/ca91e753-2a74-4b3e-831a-9b3cb6d2cd81.png?asset_id=1f67e798-b959-46ae-8a03-956091fa2889&amp;img_etag=%222419092bcb6f725e475896dad78c1a09%22&amp;size=1024)图片来源：pixabay
+这些年，随着墙内房地产和城市建设的蓬勃发展，各地区城镇化已经基本定型。但是，各地的建筑物、民宅几乎是千篇一律，没有了任何建筑艺术之美，特别是三四线城市尤为明显。所有的二线城市好像都在学上海、北京的城市风格和功能建设，建高楼大厦，建快速通行和超宽通道，楼越建越高，楼间距越来越近……而三四线城市又都在学二线城市。
 
-［所以说亲爱的兄弟姐妹们记住这个平台，G-Fashion, G-News，喜联储，然后G-Clubs，这都是你们的机会。你现在比如说买G-Dallor的，傻眼了，把整个都美国震傻了。我们昨天的白皮书，出了一，二，三，ABC版，我把ABC版找到了几个真正的大咖去看，没有人不马上回复，全都是unbelieveble，unbelieveble，unbelieveble,全都这样，然后再看完，billionaire, billionaire, billionaire,不可思议，太聪明了。］
+拿二线城市山东省会济南来说，在这座城市里行走有时恍惚觉得这就是另一个上海，走在现在的三线城市山东济宁又恍惚觉得这就是另一个济南。你会发现所有三四线城市的建筑风格基本一样，好像地产商都用了同一份图纸，这让不同地域的三四线城市之间在建筑风格上几乎看不到任何地域差，各个城市除了原有的无法更改的自然景观带来的大自然的美感外，城市里的建筑群几乎很少出现能突出当地特色、文化特点以及和谐美感的设计。中国原来美好的地理人文风貌在CCP文革大毁灭一次以后，又被大量毫无灵感、美感的水泥森林强奸了一遍。
 
-2、[2021年4月27号 文贵直播标题：喜币正式上线，喜联储，喜美元，喜支付，金融支付系统将改变新中国联邦； CCP病毒让印度如同人间炼狱， 但是是真实的；欧日澳美都在迅速觉醒；共产党经济一定很快崩塌，不要成为牺牲品；共产党灭亡前的疯狂，不要让子女成为殉葬品！](https://gtv.org/video/id=60880f7b8aa4fd003f386a90)
+任何事实的形成都有其深层的原因，我觉得中共国的现代建筑枯燥无味，甚至丑陋的原因大概有以下几点:
 
-［这就是我们现在看到的喜联储、喜币，喜美元还有喜币到了世界那么多国家所有人都傻眼了，看到所有的白皮书，可以说这是世界上最棒的白皮书，我可以今天在这儿说最棒的白皮书！而且所有用的就是这个CORA，世界上两个写这个虚拟货币的代码，一个是摩根的系统啊，另外一个是美国的IBM系统，CORA这个系统这是目前写的最好的加密货币，不是我说的，是所有获得这些国家的支付牌照、获得这些国家的交易执照后，人家给批准的。］
+1，最本质的原因就是CCP流氓恶党的本质是丑恶的，无论是其各机构的LOGO，还是服装，亦或是其办公场所的设计，无一不透露出其粗俗、暴力和丑陋，更遑论文革期间那种登峰造极的以丑为美，以粗俗无知为正统的颠倒黑白的社会规范，开放国门后的经济发展又让这个没有文化底蕴的CCP滋生出暴发户的狂妄心态。在过去的70年，这一切一直影响着国民的是非善恶观，长此以往，必然造成国人急功近利的做事态度，丧失了敢于说不的勇气，失去了与生俱来的美的灵性，蒙蔽了可以发现美的眼睛，甚至抹灭了追求美的动力，阻断了发掘美的灵感源泉。
 
-3、[2021-05-05 文贵直播：回答战友们目前关心的问题](https://gtv.org/video/id=60929c03db13300ca5491b6d)
+2，另一个重要原因就是CCP以城镇化建设和房地产作为最大的支柱经济来掠取人民的财富。文贵先生爆料透露这些CCP的红色家族根本不懂如何发展经济，更没有以国家与民族利益为己任，而是一味地拼命掠夺、转移国家财富。上行而下效，再加上CCP特有的考核机制，以及中央与地方之间财富分配机制，下面大大小小的官员都愿意制造并享用土地财政这块大肥肉，并乐此不疲，渐渐地就没有了创新发展的动力。大小房地产商都只从资本的角度考虑问题，实现快速收益是他们的首要目标，至于项目是否可以融合当地的地域风貌和文化风土人情，根本不在他们的考虑范围之内，设计图纸都是重复利用以便节省设计费和设计工时，这就造成了如今全国各城市的建筑千篇一律的局面。
 
-［看看Libra的白皮书你看看喜联储的白皮书你就知道谁牛了，第二个你看看咱所有的ECO的这个系统，摩根士丹利的加密货币系统，你去看看，你一比就知道了。当然他没法比的，它有喜联储、它有喜美元，它跟咱不是一回事是吧？］
+3，CCP利益集团的阻挠。城市建设设计有基本的规范，一些城市的规划单位还是按照科学的设计来规划的。可是CCP的几大家族和核心权力部门根本不会理会这些地方政府的规划，法律法规也制约不了他们，他们可以肆意更改，为了追求利润最大化，建筑布局上的突兀建筑、影响城市景观和微气候的建筑比比皆是，实在令人痛心。
 
-续前文——
+走遍这些地方，看着这些毫无生气与美感的建筑遍布在祖国的大江南北，它们一边破坏着当地自然与人文环境，一边将百姓的辛苦所得搜刮一空。这一切不仅仅是因为CCP的邪恶，也是源于中国人民的懦弱。当中共的独裁统治被推翻，一切才只是刚刚开始；中国的未来需要有脊梁、有血性、有正义感，还要有会审美的新中国联邦人，去努力找回属于我们的华夏文明与文化。
 
-[七哥谈喜联储I:世界将看到真正的喜联储,喜联储将震撼世界](https://gnews.org/zh-hans/1670803/)
+*编辑：【英国伦敦喜庄园编辑部】*
 
-[七哥谈喜联储II:不是脱亚入欧而是脱离共产党制造新世界](https://gnews.org/zh-hans/1671022/)
+*校对：仙女儿-文善 | 审核：文明明 | Page：青山*
 
-[七哥谈喜联储III:如何让喜联储成为全球共用的金融标准](https://gnews.org/zh-hans/1671067/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[七哥谈喜联储IV:令中共恐惧至极动用超国家力量骇客抹黑](https://gnews.org/zh-hans/1671091/)
+[![](https://spark.adobe.com/page/h5JiLzk83RZV9/images/b7c25957-8b67-4267-b18c-f25d93f5e760.jpg?asset_id=a48ccfb5-5064-4f46-9a66-a67492000fdd&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/h5JiLzk83RZV9/images/b7c25957-8b67-4267-b18c-f25d93f5e760.jpg?asset_id=a48ccfb5-5064-4f46-9a66-a67492000fdd&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
 
-[七哥谈喜联储V:空中取钱的“钱”就在可装20万亿的喜联储](https://gnews.org/zh-hans/?p=1671125)
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-另外正文中引用文字内容皆来源于七哥听写组对郭文贵先生视频文字的整理，在此特别向七哥听写组及战友们致谢。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

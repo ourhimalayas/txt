@@ -2,26 +2,17 @@
 ---
 
 
-## 卢比奥搁置确认美国驻中共国大使人选
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671367/)
+## 习近平，统一台湾是中共的历史使命
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1671410/)
 
-#### 撰稿：彩虹
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11172-2.png)图片来自Prezi
+11 月 16 日 -在上周中共全会通过了习近平的“历史性决议”– 解决台湾问题和统一中共国是共产党的历史使命和不可动摇的承诺，也是全国人民的共同愿望，对实现民族复兴至关重要，这是大势所趋。
+中共国制定的《反分裂国家法》是为了遏制台独势力，促进统一，挫败一切制造两个中国、一中一台以及台独的企图。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-3-4.jpg)图片来源：News Full Circle
-11月16日，《国会山报》（The Hill）报道，周二，共和党参议员马可·卢比奥（Marco Rubio）表示，他将缓行拜登总统提名的美国驻中共国和西班牙大使人选。
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/16/xi-la-riunificazione-di-taiwan-e-missione-storica-del-pcc\_11c62af7-d2a9-4916-98ac-bec56f79ef5e.html](https://www.ansa.it/sito/notizie/topnews/2021/11/16/xi-la-riunificazione-di-taiwan-e-missione-storica-del-pcc_11c62af7-d2a9-4916-98ac-bec56f79ef5e.html)
 
-卢比奥说，他已经搁置了尼古拉斯·伯恩斯（Nicholas Burns）担任驻中共国大使的提名和朱莉莎·雷诺索·潘塔莱昂（Julissa Reynoso Pantaleón）担任驻西班牙大使的提名。
-
-在一份声明中，卢比奥说，此前在小布什和克林顿政府时期在国务院工作期间，伯恩斯“被认定为无法理解中国共产党构成的威胁”。
-
-对于雷诺索，卢比奥称她是古巴卡斯特罗政府的“同情者和辩护人”，“绝对没有资格进入我们的政府”。他说：“我相信……雷诺索不会推动西班牙对古巴、尼加拉瓜和委内瑞拉的独裁政权施加压力”。
-
-文章说，作为担任第一夫人吉尔·拜登（Jill Biden）的办公室主任和总统助理的雷诺索，此前曾担任驻乌拉圭大使和奥巴马政府西半球事务局副助理部长,负责中美洲和加勒比地区。
-
-**新闻来源**
-
-[Rubio vows to slow-walk Biden’s China, Spain ambassador nominees](https://thehill.com/homenews/senate/581888-rubio-vows-to-slow-walk-bidens-china-spain-ambassador-nominees)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 
