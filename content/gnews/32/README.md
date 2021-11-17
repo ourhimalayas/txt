@@ -2,54 +2,222 @@
 ---
 
 
-## 超过1万澳大利亚人提出了冠状病毒疫苗伤害索赔
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1672848/)
+## 全世界外交加速与CCP决裂
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672908/)
 
-作者：达娜·丹尼尔（Dana Daniel）
-发布日期：2021年11月16日
-新闻来源：悉尼先驱晨报（The Sydney Morning Herald）
-翻译：文虓Bobby
+[https://gtv.org/video/id=61951a141827025081062c28](https://gtv.org/video/id=61951a141827025081062c28)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/111801.png)政府正面临1万多起因接种COVID-19疫苗造成的伤害索赔。盖蒂图片
+美国在中国投资事实上现在是
+La inversión de EE. UU en China realmente es
 
-纳税人正面临着罕见但严重的冠状病毒疫苗伤害的巨额账单，至少有1万人计划根据联邦政府的无过错赔偿计划提出索赔。
+美国内部摸底
+Para averiguar la base de EE. UU
 
-澳大利亚服务局正在建设一个在线门户网站，将于下月推出，为因接种COVID-19疫苗而受伤或失去收入的人提供5000美元以上的无上限索赔，医疗费用和工资损失的赔偿将由政府支付。
+不是中国的5万亿
+No son los 5 billones de China
 
-Shine律师公司医疗事故负责人克莱尔·伊夫斯（Clare Eves）说，索赔金额对那些经历过罕见但严重的疫苗不良反应的人“可能真的很重要”，比如中风和心脏炎症。
+大概是6万多亿美元
+Es aproximadamente más de 6 billones de dólares
 
-伊夫斯表示:“不良事件虽然只发生在一小部分人身上，但对它确实影响到的人来说，它确实几乎是毁灭性的。”
+全世界投资中国的也不是9万亿
+Y la inversión a nivel mundial hacia China no es de 9 billones
 
-截至11月7日，治疗用品管理局记录了78880起与COVID-19疫苗相关的不良事件，仅占1,840万人接种3780万剂疫苗的一小部分(0.21%)。在这7.8万起不良事件中，绝大多数都是中等或轻微的副作用，包括头痛、恶心和手臂疼痛。
+说大概12万亿美元
+Dicen que es aproximadamente 12 billones de dólares
 
-官方数据显示，自去年9月联邦卫生部门网站开通注册以来，已有1万多人登记有意申请索赔，这意味着如果每项索赔申请获得批准，至少要花费5000万美元。
+不要说美国6万亿
+No digamos que Estados Unidos son 6 billones
 
-伊夫斯表示，严重的脑部或心脏损伤可能会导致数十万甚至数百万美元的索赔。
+1万亿 美国的经济绝对给砸到10年都起不来
+Con 1 billón la economía de EE. UU puede ser golpeada hasta 10 años sin poder levantarse
 
-她说:“当你在处理治疗中风之类的疾病时，你可能遇到一个卡车司机不能回去工作，或者一个会计不能再处理大量的数字（数据）了。”
+欧洲你想想现在最大的问题
+Piensa en el problema más grande que hay ahora en Europa
 
-“严重的情况下，患者会多次中风，可能需要24小时护理。”
+欧洲只要是
+Si Europa solo
 
-经历中度甚至显著不良反应导致住院至少一晚的人包括在政府的疫苗补偿计划之内。
+只要是欧联盟有1万亿的烂账
+Con solo la Unión Europea tenga una deuda de 1 billón
 
-索赔2万美元或更少的人将需要提交其受伤及其与COVID-19疫苗接种、医疗费用和工资损失的关系的证据。
+我可以告诉你
+Yo te puedo decir
 
-20，000美元以上的索赔，包括死亡索赔，将由独立法律专家小组进行评估，并根据他们的建议支付赔偿。
+欧联盟整个经济10年20年都回不来
+La economía de la Unión Europea no podrá regresar en 10, 20 años
 
-政府并没有透露需要什么样的证明标准来确定这个人的伤害是由疫苗引起的。
+这老资本家可受不了啊
+Este viejo capitalista no puede soportarlo
 
-澳大利亚有9人因对COVID-19疫苗产生不良反应而死亡，其中大多数是老年人。
+这时他会多恨共产党
+En este momento cuánto odiará al PCCh
 
-伊夫斯表示，Shine Lawyers已经接到了大量电话，这些电话都是人们打来的，他们希望就疫苗的副作用采取法律行动，其中大多数都是针对政府的无过错计划。Shine公司还代理了几位不属于该计划的诉讼当事人。
+除此之外
+A parte de esto
 
-疫苗赔偿计划的资金未列入2021-22年预算。预计将由政府的年中经济和财政展望提供资金。
+大家要看到共产党来个六中全会
+Todos verán que el PCCh tendrá una Sexta Sesión Plenaria
 
-所涉及的不良反应是基于TGA建议，将包括心脏病心肌炎和心包炎，凝血障碍血栓形成伴血小板减少，罕见的神经系统疾病（综合征格林·巴利综合症）和免疫性血小板减少。
+老子要全说了算
+Quiero tener la última palabra de todo
 
-[援引原文](https://www.smh.com.au/politics/federal/more-than-10-000-australians-have-filed-coronavirus-vaccine-injury-claims-20211115-p598yy.html)
+让全世界都完球蛋
+Para que todo el mundo se acabe
 
-审核校对：玫瑰天空
-上传排版：糖果儿
+你要记住 六中全会说得非常清楚啊
+Tienes que recordar, la Sexta Sesión Plenaria lo dijo claramente
+
+他要继续要管理 要给世界开药方
+Él quiere seguir administrando, darle el récipe médico a todo el mundo
+
+要开处方
+Darle una receta
+
+还要继续当老中医
+Quiere seguir siendo el viejo doctor de la medicina china
+
+欧洲一但成为共产党的死敌之后
+En lo que Europa se convierta en el enemigo mortal del PCCh
+
+剩下一个美、加、日
+Quedaría EE. UU, Canadá, Japón
+
+你觉得俄罗斯能给他啥
+Tu crees que Rusia le puede dar algo
+
+能给他啥
+Qué le puede dar
+
+西北完了
+Si el noroeste se acaba
+
+北方完了
+El norte se acaba
+
+指望北朝鲜给他 北朝鲜给他什么
+Espera a que Corea del Norte le dé algo, qué le puede dar Corea del Norte
+
+战友们从此看出来
+Compañeros luchadores pueden ver a través de aquí
+
+剩下亚洲就剩一个印度了
+Queda una India en Asia
+
+就剩下尼波尔了
+Un Nepal
+
+然后现在共产党要到达拉斯萨拉姆
+Entonces ahora el PCCh va a llegar a Dar es Salaam
+
+撒哈拉沙漠
+Desierto del Sahara
+
+非洲现在跟中国的这个外交的崩溃率
+Actualmente la tasa de colapso entre la diplomacia de África y de China
+
+达到了70%
+Ha llegado al 70%
+
+杨洁篪和王毅
+Yang Jiechi y Wang Yi
+
+就为了骗习 从不如实报告
+Nunca le informan honestamente solo por engañar a Xi
+
+为什么
+¿Por qué?
+
+王毅要进局 要进委
+Wang Yi quiere entrar al comité, al politburó
+
+直接进政治局
+Entrar directamente al Buró Político
+
+要进班子
+Quiere unirse al grupito
+
+杨洁篪想不出事儿
+Si Yang Jiechi no quiere que suceda algo
+
+非洲的外交气势完了
+El ímpetu de la diplomacia de África acabará
+
+中东的外交怎么样 兄弟姐妹们
+Cómo será la diplomacia de Medio Oriente hermanos y hermanas
+
+中东的外交花最多钱的是UAE 沙特
+La diplomacia que ha gastado más dinero son los EAU Arabia Saudita
+
+伊朗、卡塔尔
+Irán, Qatar
+
+像科威特阿曼
+Como Sultanato de Omán
+
+这是咱们的哥们的国家
+Es el país de uno de nuestros hermanos
+
+人就不跟他玩儿是吧
+Esa gente no juega con él cierto
+
+UAE 因为你七哥 这你知道的
+Los EAU, porque tu hermano yo lo sé, esto lo sabes
+
+你走着看
+Ya verás
+
+整格中东都会跟它决裂
+Todo Medio Oriente romperá con él
+
+跟它玩死的
+Jugará con él la muerte
+
+他在柬埔寨的军事基地
+La base militar que tiene en Camboya
+
+必须消灭
+Lo tiene que desaparecer
+
+在伊朗建的军事基地
+La base militar construida en Irán
+
+必须毁灭
+Lo tiene que destruir
+
+巴基斯坦军事基地已经下不去了
+La base militar de Pakistán ya no puede seguir
+
+吉布提那个小基地也得给它拿掉
+La pequeña base que está en Yibuti también lo tiene que quitar
+
+阿根廷的
+La de Argentina
+
+所有的对天卫星站全拿掉
+Todas las estaciones satelitales lo tienen que quitar
+
+在委内瑞拉、古巴建的游动式武器就都会被美国秘密摧毁
+Las armas nómadas construidas en Venezuela y Cuba serán todas secretamente destruidas por Estados Unidos
+
+**原视频网址**：[https://gettr.com/post/pgvmb96332](https://gettr.com/post/pgvmb96332)
+
+日期：11/16/2021
+原视频标题：全世界外交加速与CCP决裂
+La diplomacia en todo el mundo se acelera para romper con el PCCh
+原视频日期：11/13/2021
+任务编号：KC259（2876）
+视频时间段：0:00-2:19
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,127 +2,52 @@
 ---
 
 
-## 习近平的过去
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1673072/)
+## 又有12个州因疫苗强制令起诉拜登政府
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1673114/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4444-a9dta-2670i.jpg)
-[https://gtv.org/video/id=619500ec18270250810628e1](https://gtv.org/video/id=619500ec18270250810628e1)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**郭文贵**
-**Miles Guo**
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/V-9.jpg)gazette.al
+《塔克·卡尔森团队》（Team Tucker Carlson）11月17日发表文章，题目是，“又有12个州因疫苗强制令起诉拜登政府”。【1】
 
-我告诉你们，习躲过了13次的谋杀，这种暗杀都躲过13次，
-I tell you that Xi has avoided 13 times assassinations, and he has survived 13 times all of these assassinations
+全文如下：
 
-你觉得习的未来，他的10年就能还躲另外13次，躲不过一次就结束了
-Do you think Xi’s future will be able to avoid another 13 times in next 10 years, and it will be over if he does not avoid once
+12个州周一（11月15日）宣布，他们将起诉拜登政府，以阻止对卫生保健工作者实施的疫苗强制令，称该强制令违反宪法，并违反了多项联邦法律。
 
-习近平他不知道人伦和自然之间的逻辑
-Xi Jinping does not know the logic between human relations and nature
+阿拉巴马州、亚利桑那州、佐治亚州、爱达荷州、印第安纳州、路易斯安那州、密西西比州、蒙大拿州、俄克拉荷马州、南卡罗来纳州、犹他州和西弗吉尼亚州的总检察长周一（11月15日）宣布了这起诉讼，说，“拜登政府正在与法院玩披着法律外衣的游戏，竭力为自己无理的和史无前例的行为进行着辩护，这些行为将公共卫生政策联邦化，并削弱了国家的宪法权力。
 
-新中国联邦的发起人郭文贵最知道事物之间万物的逻辑
-Guo Wengui (Miles) who the founder of the New Federal State of China, knows the logic of existence between all things
+“没有任何法令授权联邦行政部门强制使用疫苗来提高社会的免疫力。”诉讼写道，并指出乔·拜登吹嘘疫苗是提高免疫力的一种方式，“政府的解决方案？使用以前从未解释过的法定方案，允许联邦疫苗强制令将总统的目标强塞进美国的社会结构中。”
 
-我相信有天，我相信有神，我相信大自然的逻辑和根据
-I believe there is a God, I believe there is the Spirit, I believe in the logic and ba-sis of nature
+该诉讼反对要求医疗保险和医疗补助行业的健康工作者接种疫苗的规定，这是违宪的，并且损害了对患者的护理，因为这些行业的员工要么被迫接种疫苗，要么失去工作。
 
-习躲过13次，我要是习近平的话，我一定准备到明天就被干掉的这个准备
-Xi has escaped 13 times, If I were Xi Jinping, I would be prepared to be killed tomorrow
+该诉讼写道：“疫苗强制令对弱势群体造成了严重威胁，而医疗保险和医疗补助计划旨在通过强制政策，终止了数百万“医疗行业的英雄”来保护那些弱势群体——穷人、病人和老年人。”
 
-你能躲过第14次吗？它是个基本的逻辑
-Can you guarantee to escape the 14th time? It is a basic logic
+各州政府正在要求一项初步禁令以停止执行这项强制令。
 
-你不但你没想到14次，你以为是千秋万代
-Not only did Xi not expect the 14 times, Xi thought it will be for generations to come
+蒙大拿州总检察长奥斯汀·克努森（Austin Knudsen）称该强制令是“违宪的权力攫取”。“联邦政府的强制令与健康无关——它们与强制遵守有关，应该允许医疗工作者对自己的健康作出自己的决定——而不是拜登总统来决定。如果他史无前例的过度行为得不到制止，医疗工作者将失去工作，威胁到蒙大拿人所需要的医疗服务。”
 
-你把所有的全中国人都当傻子，全世界当傻子
-Xi treats all Chinese people as fools and the whole world as fools
+阿拉巴马州总检察长史蒂夫·马歇尔（Steve Marshall）说：“这不仅仅事关疫苗，这是要树立一面旗帜，表明‘够了，够了’，联邦政府的权力不是无限的。如果我们时刻保持警惕，在这里战斗，他们就不会得逞。”
 
-我们在看待事物的时候，习不是他的文化决定他的思路
-When we look at things, it is not Xi’s education that determines his thinking
+拜登疫苗强制令要求，在接受联邦医疗保险或医疗补助资金的机构工作的医疗保健的员工必须在1月4日之前完全接种疫苗，要么接受常规检测，要么接种疫苗，别无选择。
 
-一定记住习这个人，在决定他的思路是他的家庭
-Xi’s way of thinking in deciding things comes from about his family of origin
+包括上述一些州在内的几个州，被要求对联邦承包商的疫苗强制令提起单独的诉讼。
 
-他的姐姐的上吊自杀，文化大革命，他被3次被抓进少改所
-His sister committed suicide by hanging herself, the Cultural Revolution, and he was arrested 3 times into the juvenile prison
+美国第五巡回上诉法院中止了政府要求雇员超过100人的雇主强制接种疫苗或实施每周测试的规定，法院裁定，由于请愿人认为 “该任务存在严重的法律和宪法问题，因此在本法院采取进一步行动之前暂停该任务。”
 
-在少改所他被打时他亲口跟我说的
-He told me in person that he was beaten inside the juvenile prison
+法院后来重申了他们的决定，裁定该行政令可能 “违反了保障我们集体自由的宪法结构”，并且该行政令 “惊人地过于宽泛”。
 
-在里面，就是为了那半个窝头，把习给打得半死
-When he was in the juvenile prison, Xi was beaten badly for half of the Wotou (corn bun)
+（全文完）
 
-习被按在地上，拿鞋底抽他的脸，习在路边被当马骑
-Xi was pressed to the ground, his face was beaten with the shoe soles, Xi was ridden as a horse by the side of the road
+是的，阴谋集团也太低估人们的智商和质疑能力了，以为依靠买通主管机构、政府、媒体就可以为所欲为，忽略了人性的几个基本原则，那就是，“自己的健康自己决定，而不是总统”、“政府的权力不是无限的，只要我们战斗，他们就不会得逞”。
 
-3次少改所，习每次出来都是打的跟半残废似的
-Three times in juvenile prison, Xi was beaten so badly every time then he came out
+估计塔克·卡尔森在发这篇文章时，还没有看到“OSHA宣布，服从第五巡回上诉法院的判决，暂停疫苗强制令”这则令保守人士备受鼓舞的消息【2】。这拉开了全面中止拜登疫苗强制令的序幕，从“中止、废除对百人以上私营企业的强制令”开始，下一个是中止“对联邦承包商的强制令”，还是“对联邦雇员的强制令”，我们拭目以待！
 
-他又亲眼看到他爹16年失去自由，他跟习远平去看他爹
-He saw his father lost his freedom for 16 years with his own eyes. He and Xi Yuanping（his little brother ） went to see his father
+有关链接：
 
-他爹当着他们面拉的屎，拿手里往嘴里吃
-His father was eating his own shit in front of them and put them into his mouth with his hand
+【1】[https://teamtuckercarlson.com/news/12-more-states-sue-biden-administration-over-vaccine-mandate/](https://teamtuckercarlson.com/news/12-more-states-sue-biden-administration-over-vaccine-mandate/)
 
-说你是谁呀，习近平都崩溃了，然后是他认不出习近平
-and asked who they are, Xi Jinping fell apart, and his father couldn’t recognize Xi Jinping
-
-他这种背景，他比咱还恨共产党，你千万记住，他说什么共产党
-With his background, he hates the Communist Party more than we do, you must remember what he said about the Communist Party
-
-我说去他大爷，他每天恨不得把这帮孙子都杀光
-I said go to hell, he can’t wait to kill all these bastard every day
-
-他让中国人致富，他觉得你当时打老子的时候
-He made the Chinese people rich, he felt that I was beaten so badly then
-
-我爹16年的时候，把我娘弄到深圳的时候，我们家什么结局
-and my father lost 16 years of freedom, they sent my mother to Shenzhen, what was the result of our family?
-
-邓小平又骗他爹，让他回去，说要当人大委员长
-Deng Xiaoping lied to his father and told him to go back, saying that he would name him to be the chairman of the National People’s Congress
-
-结果不让他去，他爹本来就疯了，又把他爹骗一把
-As a result that he was not nominated, his father was so depressed and cheated again
-
-真的是习仲勋提出的，当年的宝安县就是深圳这个镇
-It was really proposed by Xi Zhongxun（Xi’s father）, Baoan County was the town of Shenzhen
-
-往香港游每天杀几千人，血染成河,
-that people swam and fled to Hong Kong, killing thousands of people every day, staining the river with blood
-
-是习仲勋建议不要再杀人了, 建了特区
-It was Xi Zhongxun who advised not to kill anymore and established the Special Economic Zone
-
-真的是他爹说的，后来邓小平把这个功给弄走了
-That was really said by his father and then Deng Xiaoping took away the merits
-
-他多恼火啊，所以上来先把邓家灭了
-He was so angry, so he came up to destroy the Deng family first
-
-先把你欺骗我爹的邓家人，吴小晖全抓了
-Wu Xiaohui from the Deng family who cheated my father was arrested in the first
-
-**原视频链接: **[** **https://gettr.com/post/pguxbk3062](https://gettr.com/post/pguxbk3062)
-
-Date:11/16/2021
-原视频标题: 习近平的过去
-Xi Jinping’s past
-原视频日期：2021/11/12
-任务编号：KC261（2875）
-视频时间段 : 0:00-2:28
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片: 洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+【2】[https://gnews.org/zh-hans/1672596/](https://gnews.org/zh-hans/1672596/)
 
  
 
