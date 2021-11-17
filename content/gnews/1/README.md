@@ -2,32 +2,38 @@
 ---
 
 
-## 山东国信24亿信托产品踩雷，股价反复“腰斩”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1671287/)
+## 北交所开市不利 新股涨停存量股普跌
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1671339/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-13.jpg)山东国信24亿信托产品踩雷，股价反复“腰斩” 网络图片
-据新浪财经11月16日报道，号称“港股信托第一股”的山东国信股价近日连续暴跌，在0.6港元左右维持了数月之后，从10月22日开始至11月12日收盘，其股价仅为0.345港元，再一次“腰斩”。
+作者：纽约香草山文艺部 – 宁文静
 
-山东国信成立于1987年3月，是经中国人民银行和山东省人民政府批准设立的非银行金融机构，2017年12月在香港联交所H股挂牌上市。山东国信于2020年11月4日至2021年4月16日设立了“山东信托–青山20号集合资金信托计划”，由平安银行代销。山东国信作为受托人，与深圳市宝能投资集团有限公司、太原市宝创置业有限公司及太原市宝能泰盛置业有限公司签署的《山东信托-青山20号集合资金信托计划之债权债务确认暨还款合同》显示，债务人宝能投资集团应于9月22日向山东信托支付第三季度利息共0.67亿元。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-358.png)图片来自财商天下
+11月15日，北京证券交易所敲钟开市。首批共有81家股票正式交易，其中10只为新股，开盘5分钟内，全部触发停牌。然而71家存量股中，约8成下跌，下午跌幅持续扩大。下跌最多的同辉信息，跌幅接近16%。 业内人士分析，这71家存量股票是由新三板的精选层公司平移至北交所的，前期已经被投资者追捧，因此高开回调。北交所是由高层授意开设的，之后必然有配套扶植措施，对后市比较看好。但资深投资者认为，北交所的概念属于政策性短线题材，炒作的成分太大，短期巨量换手会让前期的投资者血本无归，所以已开户但目前不会投入资金。 在沪深新股连续破发的背景下，北交所继续分流了沪深的资金，长远看一定会成为实实在在的“抽血机”，证券市场内卷化。开市首日，沪深两市均应声下跌。
 
-今年8月，宝能集团曝出违约事件。9月22日，山东国信发布公告称，宝能集团因未能按期支付利息，构成实质性违约。山东信托宣布该信托计划（含债权本金24亿元及利息款）提前到期结束，要求债务人履行偿债义务，并通知相关担保人履行担保义务。
+相关链接：
 
-在中共这样一个没有信用、没有担保、没有监管的金融体系中，没有任何信托产品是安全的、是值得信任的，因为拼的不是实力和能力，而是关系和欺骗。谁的关系广，谁的骗术高，谁就是赢家。整个金融系统在这样的环境下运行，最终的结果就是所有的产品都会违约、都会爆雷。有能耐骗钱，没能耐还钱。一起违约，一起破产。
+[https://3g.163.com/dy/article/GORRFBMC0530KP1K.html?clickfrom=channel2018\_money\_index\_newslist&ver=c#child=index&offset=1](https://3g.163.com/)
 
-新闻参考链接：[https://finance.sina.cn/chanjing/gsxw/2021-11-16/detail-iktzqtyu7581170.d.html?sinawapsharesource=newsapp](https://finance.sina.cn/chanjing/gsxw/2021-11-16/detail-iktzqtyu7581170.d.html?sinawapsharesource=newsapp)
+总编：文徬
 
-* * *
+上传：浪迹天涯
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
 
+**更多资讯，更多关注**
 
-编辑：【英国伦敦喜庄园编辑部】
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
 
  
 

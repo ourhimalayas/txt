@@ -2,49 +2,30 @@
 ---
 
 
-## 中共国出现首个主食企业产品涨价
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1671119/)
+## 德国医生呼吁人们上街抗议独裁政权夺回基本权力
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1671209/)
 
-作者：日本方舟农场 – Andy5
+#### 撰稿：日本东京方舟农场  海星
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/64DB546F-5EC3-408C-B0F4-3A9B4C585F1E.jpeg)（图片来源网络）
 
+11月15日，网友“DC政经圈”在盖特（gettr）上发布的一段视频显示，一位德国医生呼吁民众上街抗议独裁政权，夺回基本权力。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+视频中的德国医生凭借其丰富的工作经验，以及对病毒疫苗灾难的仔细观察后指出，中共病毒和疫苗灾难是由伪装的独裁政权操纵，为的是逐渐操控民众。该医生表示，目前的这些情形与病毒无关，它其实是为了引进一个全球性的独裁政权。
 
+据该名医生自述，以前的他没有勇气在众人面前讲述这些。但如今的状况已经到了匪夷所思的地步，因此必须有人站出来对抗这种完全不对等的力量。
 
+他呼吁人们要行动起来，走上街头抗议，重新夺回属于自己的基本权利，夺回先贤们早已写进基本法的那些基本权利。他强调说，目前发生的这一切根本与病毒无关，而勇气、怒火和伟大的心灵将使民众联合起来，对抗独裁政权。
 
-11月12日晚间，墙内面业第一股克明食品也宣布从12月1日起，将旗下主要产品面条、面粉、方便食品进行涨价。
+*参考链接：[https://gettr.com/post/pgzmh3c335](https://gettr.com/post/pgzmh3c335)*
 
-在中共鼓吹粮食丰收的同时，墙内自10月以来，调味品、速冻食品、饮料、零食、副食等价格普遍上涨。而主食价格上涨尚属今年首次。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.2-5.jpg)
-参考链接：
-1. [酱油、食醋、豆奶之后，挂面也要涨价了！](https://news.stcn.com/sd/202111/t20211113_3863777.html)
-2. [挂面也要涨价了？“面业一哥”发布调价公告！](https://finance.sina.com.cn/roll/2021-11-13/doc-iktzqtyu7109386.shtml)
-3. [今年国内粮食丰收已定局，为何玉米等谷物进口量却翻倍？](https://www.yicai.com/news/101227678.html)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+*素材采编：海星*
 
-总编：飞虹
-编辑：木白
-校对/发稿：为真不破20
+*编辑：青衣青青*
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+*发布：miumiu*
 
  
 

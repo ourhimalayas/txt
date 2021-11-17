@@ -2,30 +2,47 @@
 ---
 
 
-## 莫德纳疫苗致台湾一妇人主动脉剥离
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1671050/)
+## 中共国新股上市接连跌破发行价
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1671118/)
 
-#### **撰稿：**日本东京方舟农场 Kevin wang
+作者：新西兰伊甸农场 – 亚伦
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/CB45E299-916C-4D5A-BCFE-03F28EB3A81E.jpeg)（郑妇至今仍躺在加护病房中。图片来自苹果新闻网）
 
-据《苹果新闻网》11月16日报道，台湾一位郑姓妇人在接种两针莫德纳疫苗后， 竟患上致死率极高的心血管疾病——主动脉剥离，生命一度垂危。
 
-据报道，郑妇的儿子向《苹果新闻网》投诉称，他的妈妈今年69岁，10月15日由杏和医院团队为她接种了第2剂莫德纳疫苗。当晚，接种部位红肿、发烫。隔天因症状加剧，随即前往国军高雄总医院看急诊。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-10月20日至11月2日期间，他的妈妈因各种不适，三次到国军高雄总医院就医。11月4日晚间，因剧烈胸痛、背痛，再到国军高雄总医院看急诊。最终确诊是主动脉剥离，转送高雄荣总医院做了14个小时的手术，才走出死亡关卡。至今，仍躺在高荣的加护病房，未能出院。
 
-台湾高雄卫生局表示，已于11月8日协助郑妇通报至疫苗不良反应系统。
 
-*参考链接：[https://tw.appledaily.com/life/20211116/YP5GI4JB6FCTPEFNCPWGN6YKJY/](https://tw.appledaily.com/life/20211116/YP5GI4JB6FCTPEFNCPWGN6YKJY/)*
+据11月15日郭文贵先生最新盖特透露，中国经济出了大问题，国内很多新股上市跌破发行价。
 
-* * *
+郭先生爆料，本周一场外大笔交易集体行动卖掉在美国的中概股，以及香港的所谓的“红股”。一般来说，股票跌破发行价不仅意味着上市公司的名誉会受损，而且意味着持有该股票的投资者损失惨重，更意味着投资者信心严重不足。最近国内新股上市接连跌破发行价，前所未有。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-6.jpg)
+参考链接：
+[中国新股上市接连跌破发行价前所未有，多国与中国取消货币互换业务](https://gnews.org/zh-hans/1667813/)
 
-*素材采编：Kevin wang*
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-*编辑：青衣青青*
+总编：AN
+编辑：木白
+校对/发稿：为真不破20
 
-*发布：miumiu*
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

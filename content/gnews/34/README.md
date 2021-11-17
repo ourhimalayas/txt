@@ -2,38 +2,44 @@
 ---
 
 
-## 多米诺骨牌效应，虚拟货币市值蒸发了2000亿美元
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1670997/)
+## 中国在全球财富竞赛中超过了美国
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1671075/)
 
-**翻译：**Sara9
-**编辑：**MSGZ
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/11.17-4.jpg)图片来源：fool.com.au
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/中美.png)图片来源：*Representational Image. News18*
 
 
-虚拟货币全场一夜之间爆跌至2.6万亿美元左右，数千亿美元的市值蒸发，比特币的价格跌至6万美元以下。
+翻译：文杨
+校对：Candy
 
-其他主要加密货币，包括以太坊、Binance的BNB、solana、cardano和Ripple的XRP，也出现了跌幅高达10%的回调。在上周破纪录的涨势中虚拟货币市值曾短暂地预告过超3万亿美元–比特币创下了69000美元的历史新高。
+麦肯锡公司 (McKinsey & Co) 的一份最新《报告》显示：随着全球财富激增，中国已超过美国，成为拥有最大净资产的国家。
 
-目前还不清楚是什么导致了这种戏剧性的下滑，但有几个因素似乎让投资者忧虑。
-这些因素包括中国对比特币挖矿的新打压，美国证券交易委员会(SEC)对现货比特币交易所交易基金(ETF)的拒绝，以及长期投资者的抛售兑现。
-然而，加密货币是出了名的不稳定，分析师表示，现在判断这次新的下跌是否标志着急剧上升的市场趋势开始逆转，或者是否只是在通往历史新高的道路上的一次修整，还为时尚早。
+根据《彭博社》的报道，这家咨询公司表示：中国的财富在过去 20 年里飙升，其净资产从 2000 年的 7 万亿美元，增长到 2020 年的 120 万亿美元，增长了 17 倍。在此期间，该国约占全球净资产增长的三分之一。 2000年，中国加入世界贸易组织，经济加速发展。
 
-一位接受彭博社采访的分析师警告说，随着 “多米诺骨牌效应 “的出现，可能会出现新的低点。XTB市场的分析师Walid Koudmani说：”经过几天的上涨，看到比特币在它的历史高点附近徘徊，以及其他替代币价格也达到新高，我们看到市场正在大幅回调。如果出现更多的负面消息，市场容易出现多米诺骨牌效应导致价格可能出现新低。”
+西方认为中国是反商业的。但金钱告诉我们一个不同的故事。
 
-其他专家认为，市场有可能在未来几周内创下历史新高， 而最近的暴跌只是一种 “修整”。
+美国的财富在同一时期翻了一番。麦肯锡说：在十大最富有国家的名单上，华盛顿不得不让位给北京，因为它的净资产在2020年只达到90万亿美元。
 
-外汇公司每日换汇（DailyFX）的分析师尼古拉斯·考利(Nicholas Cawley)告诉《独立报》：“比特币的抛售使它回到了10天前的水平，这根本不是暴跌，更像是对过去几个月来上涨的修整。值得关注的一个方面是，比特币的走低使其跌破了多周的上升通道，使技术前景从正面转为中性。一个有趣的支撑区域是在59,500美元左右，如果能保持在这个价位，那么我们很可能看到比特币回调，并在未来几周内上升到历史新高”。
+《报告》称：在这两个国家，超过三分之二的财富集中在最富有的 10% 的家庭。并补充说：这一比例一直在增加。
 
-**原文链接：**[https://www.news.com.au/finance/markets/domino-effect-warning-as-200-billion-wiped-off-cryptocurrency-market/news-story/43f852f4721980f965b0bc3fa8c7f64f](https://www.news.com.au/finance/markets/domino-effect-warning-as-200-billion-wiped-off-cryptocurrency-market/news-story/43f852f4721980f965b0bc3fa8c7f64f)
+总体而言，2020 年全球财富达到 514 万亿美元，高于 2000 年的 156 万亿美元。
 
-发布：文武全才
+麦肯锡说：这些财富中约有 68% 存储在房地产中，并补充说：其快速增长超过了同期全球 GDP 的增长。 该公司表示：全球财富增长是由不断膨胀的房地产价格推动的，并警告说：房地产价值飙升可能是不可持续的。
 
-**更多****资讯****，****请关****注：**
+麦肯锡表示：高房价可能让许多人买不起住宅物业，并补充说：这种情况可能导致类似于 2008 年由美国房地产泡沫破裂引发的新金融危机。 这一次，由于房地产开发商欠下的债务，它也可能影响中国。
+
+这家咨询公司表示：资产价格暴跌可能会使全球多达三分之一的财富消失。
+
+参考来源：[https://www.rt.com/news/540351-china-us-global-wealth-race/](https://www.rt.com/news/540351-china-us-global-wealth-race/)
+
+***发布：Candy***
+
+**更多资讯，请关注：**
+
 [澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
