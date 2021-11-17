@@ -2,123 +2,54 @@
 ---
 
 
-## 千年不遇新金融时代的诞生战友们都是参与者
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672781/)
+## 超过1万澳大利亚人提出了冠状病毒疫苗伤害索赔
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1672848/)
 
-[https://gtv.org/video/id=6193c860182702508105e859](https://gtv.org/video/id=6193c860182702508105e859)
+作者：达娜·丹尼尔（Dana Daniel）
+发布日期：2021年11月16日
+新闻来源：悉尼先驱晨报（The Sydney Morning Herald）
+翻译：文虓Bobby
 
-**郭文贵**
-**Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/111801.png)政府正面临1万多起因接种COVID-19疫苗造成的伤害索赔。盖蒂图片
 
-我们处在新中国联邦也好
-We are in the New Federal State of China
+纳税人正面临着罕见但严重的冠状病毒疫苗伤害的巨额账单，至少有1万人计划根据联邦政府的无过错赔偿计划提出索赔。
 
-就我们所有战友要记住一个
-All of our comrades in arms need to remember this
+澳大利亚服务局正在建设一个在线门户网站，将于下月推出，为因接种COVID-19疫苗而受伤或失去收入的人提供5000美元以上的无上限索赔，医疗费用和工资损失的赔偿将由政府支付。
 
-我们面临着世界上前所未有的几个大的机会
-We are experiencing several unprecedented huge opportunities in the world
+Shine律师公司医疗事故负责人克莱尔·伊夫斯（Clare Eves）说，索赔金额对那些经历过罕见但严重的疫苗不良反应的人“可能真的很重要”，比如中风和心脏炎症。
 
-这个机会是跟时间，就是时间和时机
-These opportunities are related to the time frame which is timing and occasion
+伊夫斯表示:“不良事件虽然只发生在一小部分人身上，但对它确实影响到的人来说，它确实几乎是毁灭性的。”
 
-我们几乎是人类上千年不遇的
-We are in a situation that it’s almost unprecedented in a thousand years as a human
+截至11月7日，治疗用品管理局记录了78880起与COVID-19疫苗相关的不良事件，仅占1,840万人接种3780万剂疫苗的一小部分(0.21%)。在这7.8万起不良事件中，绝大多数都是中等或轻微的副作用，包括头痛、恶心和手臂疼痛。
 
-叫做新金融时代的诞生，就叫做虚拟货币
-which is the born of a new financial era, and is also called the virtual currency
+官方数据显示，自去年9月联邦卫生部门网站开通注册以来，已有1万多人登记有意申请索赔，这意味着如果每项索赔申请获得批准，至少要花费5000万美元。
 
-大家一定要记住这个词
-and everyone has to keep that word in mind
+伊夫斯表示，严重的脑部或心脏损伤可能会导致数十万甚至数百万美元的索赔。
 
-而且我们是走在最前面、最核心的
-Also, we are at the core and act ahead of everyone
+她说:“当你在处理治疗中风之类的疾病时，你可能遇到一个卡车司机不能回去工作，或者一个会计不能再处理大量的数字（数据）了。”
 
-技术全世界最好的
-Our technology is the best in the world
+“严重的情况下，患者会多次中风，可能需要24小时护理。”
 
-系统全世界最完美的
-Our system is the most perfect one in the world
+经历中度甚至显著不良反应导致住院至少一晚的人包括在政府的疫苗补偿计划之内。
 
-而且现在我们战友们拥有了6亿个币
-And now our comrades in arms have possessed 600 million HCoins
+索赔2万美元或更少的人将需要提交其受伤及其与COVID-19疫苗接种、医疗费用和工资损失的关系的证据。
 
-这6亿个币到下一个你有机会拿到币
-From this 600-million-coin to the next opportunity to get the coin
+20，000美元以上的索赔，包括死亡索赔，将由独立法律专家小组进行评估，并根据他们的建议支付赔偿。
 
-还有11个月的时间
-still has 11 months to go
+政府并没有透露需要什么样的证明标准来确定这个人的伤害是由疫苗引起的。
 
-这个时间你要记住
-You need to remember this timing
+澳大利亚有9人因对COVID-19疫苗产生不良反应而死亡，其中大多数是老年人。
 
-你第一次拥有的币和第二次币是一个时间
-It’s the time frame when are the first time and second time having coins
+伊夫斯表示，Shine Lawyers已经接到了大量电话，这些电话都是人们打来的，他们希望就疫苗的副作用采取法律行动，其中大多数都是针对政府的无过错计划。Shine公司还代理了几位不属于该计划的诉讼当事人。
 
-也就是整个新世界的金融系统诞生
-That is, the financial system of the whole new world was established
+疫苗赔偿计划的资金未列入2021-22年预算。预计将由政府的年中经济和财政展望提供资金。
 
-整个人类
-The entire mankind
+所涉及的不良反应是基于TGA建议，将包括心脏病心肌炎和心包炎，凝血障碍血栓形成伴血小板减少，罕见的神经系统疾病（综合征格林·巴利综合症）和免疫性血小板减少。
 
-昨天摩根先生, 包括所有大老板
-Yesterday, Mr. Morgan, including all the big bosses,
+[援引原文](https://www.smh.com.au/politics/federal/more-than-10-000-australians-have-filed-coronavirus-vaccine-injury-claims-20211115-p598yy.html)
 
-没有任何人怀疑说
-none of them has doubted that
-
-还有这个任何机会说这个虚拟货币没有是不可能了
-there is any chance that it’s nothing impossible for this virtual currency
-
-虚拟货币的数字货币世界的诞生
-The establishing of the digital currency world and virtual currency,
-
-永远别忘，第一个
-we should never forget. First,
-
-由于时间，还给我们个时机
-because of the time frame, we have also gained an opportunity
-
-人类上千年不遇的金融的新系统的诞生
-The born of this new financial system is unprecedented in a thousand years as a human
-
-你们是最前边，而且手里已经有币的
-You are at the very front and already in possession of the coins
-
-包括有G-Club、G-Fashion
-including G-Club and G-Fashion
-
-你一定记住，这都和你的命运连在一起的
-You must keep that in mind, all these are connected with your destiny
-
-包括GTV、包括盖特
-including GTV, GETTR
-
-都跟你连在一起的，你前所未有
-everything is unprecedented to you and connected with you
-
-你可不要想……这个币连着太多了
-It’s better not to think that… this coin is connected too much
-
-**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1459700699869380608?s=24](https://twitter.com/se1y7cblljselva/status/1459700699869380608?s=24)
-
-Date: 11/14/2021
-原视频标题: 千年不遇新金融时代的诞生战友们都是参与者
-The Born of The New Financial Era Only Once in a Blue Moon And All Comrades Are The Participants
-原视频日期：2021/11/12
-任务编号：KC257（2878）
-视频时间段 : 0:00-1:43
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+审核校对：玫瑰天空
+上传排版：糖果儿
 
  
 

@@ -2,114 +2,28 @@
 ---
 
 
-## 中共病毒口服药比疫苗还毒
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672600/)
+## 文贵爆料 11.17 : 喜币的神话才刚刚开始
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1672631/)
 
-[https://gtv.org/video/id=61939c4a182702508105db4c](https://gtv.org/video/id=61939c4a182702508105db4c)
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1117-4.jpg)
+喜币一飞冲天的时机还远远没有到来。郭文贵先生在11月17日的大直播中说，只有Hpay上线、大量用户进入，并有实体店接收，才是喜币真正腾飞的时候。
 
-郭文贵
-Miles Guo
+现在喜币的价格到了34美金一个，但它的80%到90%的市场没打开，功能还远远没打开。kyc就是一个大开关。早着呢！当进入喜币的国家多了，账号拥有人就多了，可能网络交易所有一百万、一千万的用户，大量的美的现金进来，然后交易量就增加，然后买者就增加，这个时候你的喜币的价值嘛，那就那绝对不是34块了，你去想去吧。所以说兄弟姐妹，要等到什么时候才值钱？我再说一遍，没有国家主权的认可，没有新虚拟货币的银行牌照，没有新的国家主权批准，没有交易所牌照认可，没开放整个Hpay使用，你看到的价格是它未来价格非常小的一部分，所有的价值的核心是hpay，核心中的核心是hpay，然后就那几个牌照啊。所以说这个市场不用担心，这才几天、两三周吧。兄弟姐妹们，任何一个成功的投资需要五年到十年的耐心。你不用等五到十年，你只要有三年的冷静期，你就是人生的赢家。
 
-告诉大家这个口服药有多可怕，口服药是当年对付艾滋病
-Tell everyone how horrible this oral medicine is, this oral medicine was used to treat with AIDS in the past
+现在，基金不允许他来砸盘，他要怎么杀你呢？这很简单的道理，大家一定要学会这个投资，他先给拿一千个啊说今天三十一。是吧，开门儿。二十九、二十八，一万，十万，坏了，车位坐不住了，是不是还得卖点啊？要不就还会跌，接着一直跌，一直下头一直下行，有人就收不住了。你就二十九卖，你就二十九到二十七，你二十七他二十五刷就给你下来了。而且买你不用你买，还封二十七的时候，另外一个人就买了，我喊二十七，小哥买了。有人买有人卖。这个恐慌就下去了，这时候有人不冷静，就害怕，就会抛。他只拿出来百分之十的钱，然后再砸下去，那你就是输家嘛。
 
-大家记住，不光是艾滋病，大家不能光看一点是对付淋病、性病
-Remember everyone, it’s not just for AIDS, you can’t just focus on treating with gonorrhea and venereal disease
+它的价格是坚挺的，原因之一，现在呢没有人卖；原因之二，机构投资者不允许他进来砸盘是最重要的核心。第三，hpay没上线，还有这些大的利好消息没出来啊。但是大家记住，看到现在全世界的接受hpay和hcoin、hdollar买买东西的在哪里？
 
-还有到非洲的那个痢疾、霍乱的那个药方
-also the prescription for dysentery and cholera in Africa
+但是没有人对这个在迪拜可以买房产这件事情啊认真研究，就没有人看到这个事情的影响它会有多大，为啥咱们要有GFashion。GFashion的诞生之日，就有两件事情大家没有意识到啊，第一个，gclub有了，GFashion有实际物体存在。这个Gclub未来可以做的无限大，因为它唯一一个有实体接收、可依靠的会员制，这在世界上是没有的，大家都是叫场地制、会员制。但是他说它可以未来有实际折扣的实体店，这在美国和西方的法律上完全重新定义了。同时更重要是为喜币的诞生做准备，喜币一旦是有实体店接受，能买东西、喝茶，有人接受买东西。喜币和整个数字货币的价值完全是天地之差啊。所以GFashion这两个功能是意义重大。
 
-它这个激素的副作用，你要连着吃多少天
-the side effect of this hormone is, after you take this medicine consistent many days in a row
+接下来就是只要喜币能买衣服、能买任何东西的时候，你未来接下来各种实体店都会越来越多的接受的是喜币的流通、喜币只要开始流通以后，它的价值你就能想象啊！它是改变人类生存方式，那是巨大的。那么迪拜允许它买房产了。其中一个最重要的王子跟我说，他说我已经告诉他下边了，我们叫他马上接受你买房子。数字货币走向实体店之日，它的意义非常重大。
 
-你真的就是脖子跟脑袋一样粗了，真的是很夸张夸张的
-Your neck will be as large as your head, it’s really exaggerated
+郭先生说，明年五月份是你考虑出售几个解决生活问题的时间点。五月份到一年的时候，考虑是否你拿一些币去做抵押，贷款期贷大概几个月以内吧，一定会有。然后去贷款，看买房子、车、大件物品啊值不值问题。真正一定要要等待两到三年。
 
-特别你有过癌症这个病例的人，或者曾经有过手术的人
-Especially you have had cancer, or someone who has had surgery
+参考链接：
 
-这种激素对你身体危害是巨大的，更夸张的事情
-This hormone is so harmful to your body, and it’s even more exaggerated
-
-它会严重的诱发你心脏病，因为有糖尿病病史的，有这个心脏病的
-that it will seriously induce your heart disease because people with a history of diabetes and heart disease
-
-这极为危险，这是我们欧洲的科学家明确说
-this is extremely dangerous, this is what our European scientists clearly stated
-
-文贵，这个药比疫苗还毒，他说这个毒到什么程度呢
-Wengui (Miles), this medicine is more poisonous than vaccines, how much does he say is it poisonous?
-
-他说很多人以为吃的药就不直接加入身体，
-He said that many people think that the medicine they take is not directly into the body
-
-他说你别忘了，人（的病）都是吃出来的
-He said you don’t forget, illness are all from eating
-
-不是打针打出来的，他说吃进去这个药，对身体的危害更加的危险
-It’s not from the injection, he said that taking this oral medicine would be even more dangerous to the body
-
-他说就是按照医学来说，它分解完以后
-He said that according to the medicine, after it is decomposed
-
-通过整个食道分解以后，他说直接影响的是你的神经系统
-after breaking down through the entire esophagus, he said that it directly affects your nervous system
-
-然后才是你的消化系统，包括血液
-then is your digestive system, including blood
-
-他说针打进去以后，直接影响这些血液循环系统
-He said that after the injection, it directly affects these blood circulatory systems
-
-他说这是很可怕的，他认为这个药吃完以后，
-He said it was terrible, and he thought that after taking this medicine
-
-他说这个人呐，他说这个人可能很慢，有慢性的副反应
-He said this person, he said that this person may have slow chronic side effects
-
-但是对人神经和血液循环系统和循环系统的毁灭性
-But it is devastating to human nerves and blood circulatory system and circulatory system
-
-就是你不知不觉，你这个人就成了傻子
-If you didn’t know it, you became a fool
-
-你就心梗、脑梗、心脏病死，而且不可寻找就这更加没那么直接
-People die from myocardial infarction, cerebral infarction, heart attack, and you can’t find it, it’s not so direct
-
-不是血管出来了，爆管了，脑梗了，心梗了
-It’s not only the blood vessel burst, the brain infarction, the myocardial infarction
-
-你慢慢的就是癌症，然后什么慢性病，爆发症，就死了
-People slowly get cancer, and then any chronic diseases, outbreaks and then die
-
-他说这个太毒了，他对冠状病毒疫苗咱们这个科学家都没那么激动
-He said this is too toxic, and he is not so agitated about the coronavirus vaccine as a scientist
-
-这就是今天告诉大家，碰都别碰，想都别想
-This is what I told you today, don’t touch it, don’t even think about it
-
-谢谢
-Thank you
-
-* * *
-
-Date:11/14/2021
-原视频标题: 中共病毒口服药比疫苗还毒
-CCP virus oral medicine is more poisonous than vaccine
-原视频日期：2021/11/10
-原视频链接 [https://twitter.com/se1y7cblljselva/status/1459004434735067136?s=24](https://twitter.com/se1y7cblljselva/status/1459004434735067136?s=24)
-任务编号：KC255（2858）
-视频时间段 : 0:00-2:16
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[2021年11月17日 文贵大直播](https://gettr.com/streaming/ph567f4b1f)
 
  
 
