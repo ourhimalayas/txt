@@ -2,101 +2,98 @@
 ---
 
 
-## 【玫瑰看新闻】第198期 【回魂时刻】疫苗受害者专题新闻12#
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1671353/)
+## 因疫苗豁免而停飞：已婚联航飞行员感到被背叛
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1671417/)
 
-2021年11月17日（新西兰时间）
+**翻译：Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip10-1.png)2021 年 11 月 9 日，美国联合航空公司的飞行员斯蒂芬妮和 凯尔·阿特贝里和他们 4 岁的儿子亚伦参加了在宾夕法尼亚州哈里斯堡举行的医疗自由集会。（Beth Brelje/大纪元时报）
+多样性、公平性、包容性； 这一直是美联航的口头禅。联合航空飞行员斯蒂芬妮（Stephanie）和凯尔·阿特贝里（Kyle Atteberry）以为公司真是如此。
 
-1.Jamarcus Hall：密西西比高中足球运动员去世
+“联合航空对我们来说很棒，”45 岁的凯尔告诉《大纪元时报》。他回忆起他们的六个孩子出生时收到公司的毯子作为礼物。“我们的期望是，联合航空尊重我们的信仰”。
 
-2.以赛亚班克斯：16 岁的诺克罗斯（乔治亚州）高中足球运动员去世
+凯尔和 40 岁的妻子斯蒂芬妮住在宾夕法尼亚州的兰开斯特县。他们的工作是驾驶波音 767 和 757 飞机环游世界，直到 10 月 1 日，即美联航准许他们飞行的最后一天。
 
-3.注射第二剂实验性 COVID-19“疫苗”三天后两名板球女子运动员倒地
+这对夫妇没有接种 COVID-19 疫苗，他们是 2,000 名美联航员工中的一员，他们通过医疗或宗教豁免要求合理免于疫苗规定。但联合航空以合理安置为由，让他们无限期休无薪假。这 2,000 名员工都是“健康自由的航空公司员工”([Airline Employees 4 Health Freedom](https://ae4hf.org/))的成员，该组织在法律上挑战无薪休假。
 
-4.两名16岁健康男运动员无预兆突发猝死
+“他们已经向我们展示了合理的安置是什么，**因为我们已经无薪休假一年半了，**”凯尔说。“现在他们说我上班不安全？”
 
-5.丹麦足球运动员克里斯蒂安·埃里克森在 6 月 12 日比赛中[倒地](https://www.espn.com/soccer/uefa-european-championship/story/4406960/christian-eriksens-collapse-at-euro-2020-a-reminder-of-the-fragility-of-life)不起
+虽然乔·拜登在 9 月宣布对某些工人强制接种疫苗，但美联航已在 5 月份就发出信号，表示将强制接种疫苗计划。
 
-他们是疫苗推动政策的受害者，有的已经离开了这个世界，有的永久经历着病痛的折磨，悲伤的是这个数字还在不断增长，不知道何时完结？
+今年 5 月，该公司给员工发了一封信，里面有一份激励措施：为接种疫苗的人支付 13 小时的飞行时间，金额为 2,600 美元。也有一个惩罚：那些没有接种的人将无法飞往许多国际目的地。这意味着，未接种疫苗的人可以做的工作更少。从那时起，未接种疫苗的飞行员无法飞往的国家名单不断增加，直到德国成为阿特贝里家唯一可以飞行的国际目的地。
 
-无论如何，只能留下悲痛、愤怒的亲友，无处发声。
+现在他们都在休无薪假。
 
-本栏目旨在此留下一块地方，让他们告诉这个世界，“我曾经来过，是谁把我骗了回去，一个痛苦和死亡之地“。
+“我觉得被航空公司出卖了，它说这一切都关乎爱和尊重，但我们却被边缘化了。看到其他航空公司包容他们的员工——这太令人沮丧，”凯尔说。
 
-希望有一天，公道会还他们一个真相！
+数月来，解决这种情况的压力一直笼罩着他们。
 
-1.[贾马库斯·霍尔16岁：密西西比高中足球运动员去世](https://thecovidblog.com/2021/11/11/5-young-athletes-in-8-days-die-or-suffer-career-threatening-heart-attacks/%20https://bellememorialfuneralhomes.com/obituaries/jamarcus-hall)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-1-3.jpg)
-贾马库斯·霍尔（Jamarcus Hall ）先生于 2021 年 11 月 5 日星期五在他的住所去世，享年 16 岁。
+“这就像骨头在腐烂——就像我灵魂的颤抖，”斯蒂芬妮告诉《大纪元时报》。“但这已经过去了，因为主为我提供了一种惊人的平安感。”
 
-他是休斯顿密西西比州高中的一名 16 岁的二年级后卫。他的故事可能是令我们最悲伤、最令人不安的“双重巧合”。他的告别仪式在2021 年 11 月 13 日上午 10 点至下午 1 点在休斯顿高中礼堂举行，葬礼在休斯顿市公墓举行。
+**事业与家庭交织**
 
-霍尔先生去世当天本来有一场比赛。Clarion Ledger 报道声称，他的死因“[尚不清楚”](https://www.clarionledger.com/story/sports/2021/11/05/jamarcus-hall-dies-houston-high-football-mississippi-state/6304028001/)。
+斯蒂芬妮的母亲是一名拥有 44 年经验的美联航空乘人员，她也在休无薪假。长大后，斯蒂芬妮的家人经常旅行，利用她母亲的免费旅行。
 
-霍尔先生身高 6 英尺 5 英寸，体重 296 磅，已经收到了在密西西比州立大学踢足球的邀请。没有确切的证据表明霍尔先生被注射疫苗了。这就是故事变得非常悲伤的地方。霍尔先生曾经在 9 月的一场比赛或训练中膝盖受伤。据他的母亲杰基·伯克哈尔特(Jackie Burkhalter) 说，他在 10 月初接受了膝盖手术。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-2-2.jpg)
-因此，如果他还没有接种疫苗，他很可能被迫因为需要做手术而“接种疫苗”。我们已经看到许多[患者](https://nypost.com/2021/10/06/colorado-hospitals-deny-organ-transplants-to-unvaccinated/)[因未接种疫苗](https://www.usatoday.com/story/news/health/2021/09/05/florida-doctor-refusing-treat-unvaccinated-patients-person/5742401001/)而[被](https://www.usatoday.com/story/news/health/2021/09/05/florida-doctor-refusing-treat-unvaccinated-patients-person/5742401001/)拒绝提供医疗服务的故事。但这还不是这一切中最糟糕的部分。他的妈妈伯克哈尔特女士说，她在 9 月初的“流感和肺炎”检测呈阳性。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-3.jpg)
-伯克哈尔特女士[于 10 月 23 日去世](https://www.weremember.com/jacqueline-denise-burkhalter/2r8l/memories)，也就是在她儿子 贾马库斯 去世前 13 天。她只有41岁。也许，您可以从这个案例得出自己的“双重巧合”的结论。
+“我在 14 岁的时候告诉我妈妈，‘我喜欢你的工作，我也想成为一名空乘人员，这样我就可以终生免费旅行，’她[回应]，‘当你可以驾驶飞机时，你为什么要成为一名空乘人员？’我当时想，太好了！”
 
-2.以赛亚班克斯：16 岁的诺克罗斯（乔治亚州）高中足球运动员去世
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-4-2.jpg)
-关于以赛亚班克斯先生的巧合死亡的细节并不多。这位 16 岁的[少年](https://www.maxpreps.com/athlete/isaiah-banks/GCK-YelVEeuAzqREozo6lw/default.htm)是诺克罗斯高中的一名[初级进攻边锋](https://www.maxpreps.com/athlete/isaiah-banks/GCK-YelVEeuAzqREozo6lw/default.htm)。据他的家人在Facebook 上的称，他于 11 月 7 日去世。亚特兰大的Fox 5 报道称，班克斯先生“死于[医疗问题”](https://www.fox5atlanta.com/news/norcross-high-school-mourns-football-player-isaiah-banks-death)。《格威内特每日邮报》报道称，他“[在家中](https://www.gwinnettprepsports.com/sports/norcross-mourns-death-of-junior-football-player-isaiah-banks/article_bd54406f-02d5-55d4-a772-d6101fea79ae.html)死于[与足球无关的医疗问题](https://www.gwinnettprepsports.com/sports/norcross-mourns-death-of-junior-football-player-isaiah-banks/article_bd54406f-02d5-55d4-a772-d6101fea79ae.html)”。诚然，是一位 Facebook 使用者问班克斯先生的家人“他接种了疫苗吗？” 但是，得到的回答却是：“不关你的事”！这是2021 年讽刺的一个缩影。每个人都被问到这个问题，就像[在2021 年买一杯咖啡](https://ktla.com/news/local-news/proof-of-vaccination-required-as-strict-mandate-takes-effect-monday-in-l-a/)或申请工作一样简单。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-5-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-6-1.jpg)
-他的另一位家庭成员则告诉大家不要再“爱管闲事（原文如此）”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-7-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/图片8.jpg)
-值得注意的是，似乎有一个针对班克斯先生的[GoFundMe 页面](https://www.gofundme.com/f/mzt9pz-help-after-loss)，这是一个筹集募捐救助资金的网站。页面没有具体提到他的名字，但包含来自几个家庭成员的 Facebook 个人资料的相同照片。也许，其家人知道 ，GoFundMe一向删除与疫苗接种后遗症相关的募捐请求。因此，他们目前对此保持沉默。诺克罗斯足球网站[也在收集捐款](https://www.norcrossfootball.org/)。
+从 14 岁到 16 岁，斯蒂芬妮乞求上飞行课，最后，在 16 岁时，她上了第一堂飞行课。她回忆起在兰开斯特跑道上行驶时，脸上洋溢着喜悦的泪水。高中毕业时，她获得了私人飞行员执照，并进入贝勒大学读飞行。
 
-3.[注射第二剂实验性 COVID-19“疫苗”三天后两名板球女子运动员倒地](https://thecovidblog.com/2021/07/08/two-cricket-west-indies-jamaica-womens-players-collapse-on-field-three-days-after-second-experimental-covid-19-vaccine/%20https://www.espncricinfo.com/player/chedean-nation-355355%20https://www.espncricinfo.com/player/chinelle-henry-474190)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-9-1.jpg)Chedean Nation 女士（左）和 Chinelle Henry
-北音，安提瓜——两名牙买加板球运动员在赛场上倒地不起，这被主流体育媒体视为另一个巧合的偶然事件。
+凯尔是第二代航空公司飞行员。他的父亲在海军陆战队驾驶 F-4，然后为大陆航空公司（2012 年与美联航合并）飞行，直到 2005 年退休。
 
-西印度群岛女子板球队由来自几个加勒比国家的球员组成。该团队被称为“Windies”。上周末，他们与巴基斯坦女子队进行了三场系列比赛。“Windies ”于 6 月 30 日宣布，只有“完全接种疫苗”的球迷才能[进入两个场馆](https://www.windiescricket.com/news/fully-vaccinated-fans-return-antigua-west-indies-women-vs-pakistan-women-series/)：位于安提瓜的柯立芝板球场和维维安·理查兹爵士板球场。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-10-1.jpg)
-[据 Loop News 报道](https://tt.loopnews.com/content/west-indies-womens-team-now-fully-vaccinated)，截至 6 月 30 日，所有团队成员和工作人员都已经全面接种了疫苗。这是该团队自 2019 年以来的首次出赛，他们因为 COVID-19 取消了 2020 年的所有比赛。
+凯尔获得了贝勒大学的足球奖学金，这使他有机会参加他们的航空课程。 当他在大二时遇到斯蒂芬妮时，他毕业于贝勒大学并担任飞行教官。
 
-比赛过程中，球员相隔十分钟倒地。比赛于 7 月 2 日星期五在柯立芝举行。25岁的奇内尔·亨利女士
+他们结婚了，他们的职业生涯从飞行教官发展到商业飞行员，经常工作各种时间。有时他们一个月只在家里见面两个晚上。其他时候，他们会在远离家乡的共同目的地见面。
 
-突然瘫倒在地，并在第四局巴基斯坦比赛中开始抽搐，被担架抬离了球场。
+当她 24 岁时，他 29 岁时，他们被大陆航空（现在的美联航）聘用，现在，由于他们的资历，他们有灵活的时间表。总有一个人和孩子一起在家，年龄从 23 个月到 13 岁不等。
 
-比赛继续，好像什么也没发生。
+“日程安排的灵活性是一个巨大的福气，”斯蒂芬妮说。
 
-十分钟后，34岁的契丹娜（[Chedean Nation](https://www.espncricinfo.com/player/chedean-nation-355355)）女士也[倒在了地上](https://www.hindustantimes.com/cricket/two-west-indies-women-cricketers-chinelle-henry-and-chedean-nation-collapse-in-a-span-of-10-mins-taken-to-hospital-101625298786498.html)。她们都被送往当地医院，但比赛仍在继续。第二天，两名球员似乎都没事。他们在团队的 Twitter 页面上发布了单独的消息，说他们没事。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-11-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-12-1.jpg)
-这两位女士都参加了下一场比赛，球队[也战胜了巴基斯坦](https://africa.espn.com/cricket/series/20202/report/1267324/west-indies-women-vs-pakistan-women-3rd-t20i-pakistan-women-west-indies-2021)队。体育媒体[大多对事件进行了掩饰，对](https://crickettimes.com/2021/07/watch-two-west-indies-women-cricketers-collapse-on-the-field-during-2nd-t20i-against-pakistan-women/)比赛进行[了](https://crickettimes.com/2021/07/watch-two-west-indies-women-cricketers-collapse-on-the-field-during-2nd-t20i-against-pakistan-women/)报道，就好像什么都没发生一样。
+“随着您的资历增加，可在假期和周末工作，”凯尔说。“这是我们不想去其他地方飞行的主要原因之一，因为我们将失去所有的灵活性。”
 
-目前，还不清楚这两位球员注射了哪个厂家的疫苗。但是，两位女性都来自牙买加，[主要使用阿斯利康注射剂](https://jis.gov.jm/55-200-doses-of-covid-19-vaccines-arrive-in-jamaica/)。阿斯利康也是[安提瓜](https://vaccineantiguabarbuda.com/news/)的[主要注射剂](https://vaccineantiguabarbuda.com/news/)，还有俄罗斯的人造卫星五号。两者都是病毒载体 DNA 注射剂。
+“我们不能再这样做了，”斯蒂芬妮补充道。“我们都不能去航空公司工作了，我的职业生涯已经结束。”这让她心碎，因为起飞的快感仍然像她 16 岁时那样激励着她。
 
-4.[两名16岁健康男运动员无预兆突发猝死](https://thecovidblog.com/2021/06/28/7-stories-in-june-mainstream-media-buried-and-big-tech-censored/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-13.jpg)（乔什·约翰逊先生）
-主流媒体现在正试图让世界相信年轻、健康的人会无缘无故地死去。
+“我休完产假 20 个月后第一次乘飞机回国——我真的不期待回来，因为 COVID 和所有措施使旅行变得更加困难。但是，当我们走上 EWR（纽瓦克自由国际机场）的跑道，并开始沿着跑道行驶时，我还有同样的快乐感觉，那让我泪流满面，”斯蒂芬妮说。 “当我们飞起来时，我感谢上帝，即使在手术的所有困难中，飞行仍然给我带来了如此多的快乐。我只是想被允许飞行，而我尊重我的上帝。”
 
-乔什·约翰逊先生是弗吉尼亚州斯坦纳兹维尔威廉门罗高中的一名 16 岁足球运动员。
+**信仰是他们的飞行的计划**
 
-6 月 7 日，他和他的父亲在一次钓鱼之旅中，乔希[在旅行几个小时后昏倒](https://www.gofundme.com/f/paying-tribute-to-josh-johnson-32)并[死亡](https://www.cbs19news.com/story/44060131/wmhs-student-dies-suddenly-while-on-vacation-with-family)。没有预兆，没有理由。伊桑·特雷霍（Ethan Trejo） 先生是另一位遭遇突然意外死亡的 16 岁健康运动员。他在普林斯顿高中足球训练期间倒地，死于心脏骤停。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-14.jpg)（伊桑·特雷霍先生。）
-上周四，普林斯顿辛辛那提高中的学生正在为足球训练进行例行的体能训练。伊桑·特雷霍突然昏倒并癫痫发作。伊桑·特雷霍 没有癫痫病史，或任何其他导致癫痫发作的既往病症。[大约一个小时后](https://www.wlwt.com/article/teen-dies-following-apparent-medical-episode-at-princeton-high-school-field/36840564)他[去世了](https://www.wlwt.com/article/teen-dies-following-apparent-medical-episode-at-princeton-high-school-field/36840564)。我们无法证明这个年轻人死因是否源于实验性疫苗接种。
+“我们不希望每个人都完全了解我们来自哪里，”凯尔说。“随着信仰的增长，你的理解也会改变。”
 
-5.[丹麦足球运动员克里斯蒂安·埃里克森在 6 月 12 日比赛中倒地不起](https://thecovidblog.com/2021/07/08/two-cricket-west-indies-jamaica-womens-players-collapse-on-field-three-days-after-second-experimental-covid-19-vaccine/%20https://www.espn.com/soccer/uefa-european-championship/story/4406960/christian-eriksens-collapse-at-euro-2020-a-reminder-of-the-fragility-of-life)
+他们的一些大孩子打了疫苗，但小点的孩子没有。
 
-似曾相识、悲剧再现，丹麦足球运动员克里斯蒂安·埃里克森也是如此。他的生命中也遭遇了这一幕，他在 6 月 12 日的一场比赛中[倒地](https://www.espn.com/soccer/uefa-european-championship/story/4406960/christian-eriksens-collapse-at-euro-2020-a-reminder-of-the-fragility-of-life)不起。悲剧发生在哥本哈根帕肯体育场，这是丹麦与[芬兰](https://www.espn.com/soccer/team?id=458)队的[2020 年欧洲杯](https://www.espn.com/soccer/league/_/name/uefa.euro)揭幕比赛，[丹麦](https://www.espn.com/soccer/team?id=479)队的[克里斯蒂安·埃里克森](https://www.espn.com/soccer/player/_/id/144130/Christian-Eriksen)( [Christian Eriksen)](https://www.espn.com/soccer/player/_/id/144130/Christian-Eriksen)在场上[倒下](https://www.espn.com/soccer/player/_/id/144130/Christian-Eriksen)的恐怖画面让人们挥之不去。
+斯蒂芬妮说：“我们强烈认为，要成为上帝赐给你的好管家，包括你的身体。” 她选择自然分娩以避免药物。他们有意识地决定如何锻炼和谨慎饮食。
 
-一位处于职业生涯黄金时期的健康运动员用他的生命崩溃提醒人们生命的脆弱。体育、事业、金钱……当面对真正重要的事情：生命时，一切都化为灰烬。
+当斯蒂芬妮得知某些疫苗是由流产婴儿的细胞制成时，疫苗就不再是一种选择。
 
-上面，我们已经报道了伊桑·特雷霍 (Ethan Trejo) 的案例。事实上，在2021年，在各个年龄段的民众频发的突发死亡正在被主流媒体视为正常现象。
+“我非常支持生命，我与堕胎没有任何关系，”斯蒂芬妮说。“但接种疫苗，我们就参与到了堕胎群体。
 
-在 NFL、NCAA、NBA 类似事件时有发生，运动员倒下，或死亡频发，但即便如此，强大的主流媒体和大型科技巨头们却都在处心积虑地使事件正常化和影响最小化。
+“作为飞行员的一部分是健康和强壮，”凯尔说。“我们进行的每一次飞行，我们都必须证明我们适合飞行，这是我们的责任保证身体适合飞行。没有人可以告诉我们疫苗将如何影响我们，但有证据表明短期会产生负面影响。它不仅违反了我真诚持有的宗教信仰，而且违反了我的良心。我不知道疫苗会对我有什么影响。”
 
-这些类型的疫苗接种后死亡和健康崩溃正变得越来越频繁，并且数量将继续增长。请和我们一起继续传播真相。保持警惕、并保护您的朋友和亲人。
+他们的孩子就读于一所基督教学校，他们要在学校上课和家庭上课时间之间轮换。一个孩子有特殊需要，所以他们需要额外支付一位家庭教师。
 
-就大局而言，上述这些案例和年轻运动员们的遭遇只是杯水车薪。奥地利新闻 10月24 日发布[了一份](https://report24.news/ab-13-jahren-lange-liste-ploetzlich-verstorbener-oder-schwerkranker-sportler/)全球[75 名年轻运动员的名单，这些运动员](https://report24.news/ab-13-jahren-lange-liste-ploetzlich-verstorbener-oder-schwerkranker-sportler/)在 6 月至 10 月期间“突然和意外地”死亡或心脏骤停。具体细节我们将在下一期为大家介绍！
+由于没有收入，他们可能不得不让孩子们辍学，放弃钢琴课、足球课和越野赛。
 
-温馨提示：⚠️爱惜生命 远离疫苗
+“我们大一点的孩子很清楚发生了什么。看到我的孩子在情感上受苦是最难的事情，”凯尔说。“我们的恒温器已经调到 55 度了，但还没有打开暖气。”
+
+他们现在靠积蓄过活，并在考虑如何能有两个飞行员那样的收入。
+
+去年，他们还是人们认为的必不可少的一线人员。
+
+如果他能与拜登总统交谈，凯尔会问，在你没有掌握所有科学和数据的情况下，你怎么能诚实地告诉美国人民，这些 COVID 注射是向前发展的唯一科学和道德的答案？他将要求拜登重申保护寻求宗教和医疗的美国人的法律，以便他们的工作和生计不会因无薪休假而受到惩罚。
+
+“如果我们放弃我们的宗教自由——我们的身体自主权，我们就是奴隶，”斯蒂芬妮说。“如果我们不说不，它就永远不会停止。”
+
+美联航发言人在一封电子邮件中告诉《大纪元时报》：“我们知道，尽可能保证每个人安全的最佳方法是，让每个人都接种疫苗，因为几乎所有美联航员工都选择这样做。我们正在努力确定非面对顾客的角色，在这些角色中，被安置的员工可以申请并继续工作，直到他们可以安全地返回到之前的岗位为止。”
+
+**新闻来源**：[theepochtimes.com][Grounded by Vaccine Exemption: Married United Pilots Feel Betrayed](https://www.theepochtimes.com/grounded-by-vaccine-exemption-married-united-pilots-feel-betrayed_4098925.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-11-16)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
 
 
-
-审核校对：Barry Jack
-上传排版：F
 
  
 
