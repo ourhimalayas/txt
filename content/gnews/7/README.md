@@ -2,33 +2,33 @@
 ---
 
 
-## 日本新冠病例的下降是由于伊维菌素吗？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1670620/)
+## GTV新闻访谈简报|2021年11月16日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670631/)
 
-作者：XO酱
+作者：香草山翻译部
 
-翻译：Rosa
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-301.png)图片来自：Halturner广播节目
-[原文链接：](https://gnews.org/1666152/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-4.jpg)
 
-在8月26日的新闻发布会上，东京医学会主席告诉日本的医生为新冠病毒患者开出伊维菌素，因为根据印度的经验，这种廉价的抗寄生虫药物似乎很有效。
 
-许多主流媒体对这一宣布大为不满。伊维菌素是获得2015年诺贝尔生理学和医学奖的药物，被贴上了 “马糊”、”马驱虫剂 “的标签 ，许多大众媒体称其对人类有高风险，尽管它被人类安全使用了几十年。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1116text-SC.png)
+校对：Stay文苑
 
-新闻发布会举行了三个月，当时日本正在经历其历史上最高的病例数量，现在可能是时候评估日本在这一战略中的表现了。
+编辑：Stay文苑
 
-那么，日本的情况如何？
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-298.png)截图来自：https://www.worldometers.info/coronavirus/country/japan/
-除非这纯粹是时间上的巧合，否则在主席宣布后不久，每日Covid-19病例似乎迅速下降。
+发稿：Stay文苑
 
-自8月以来，每日新的Covid-19死亡人数也同样迅速下降。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-299.png)截图来自：https://www.worldometers.info/coronavirus/country/japan/
-奇怪的是，主流媒体对伊维菌素可能起作用的可能性完全不感兴趣，并认为需要对此进行更多研究。为什么？
+视频参看：[11.16  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61945ad7e7e7703792360018)
 
-是否有一个阴谋正在发生，由某些有权势的人推波助澜，而他们不希望这个大流行病结束？
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
 
-（本文仅为个人观点，与GNEWS无关）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1.jpg)
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
