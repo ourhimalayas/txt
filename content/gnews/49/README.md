@@ -2,23 +2,36 @@
 ---
 
 
-## 台湾前线｜拜登：台湾是否独立 台湾自己决定
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1671784/)
+## 日本经济安保法案排除中共敏感设备
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672156/)
 
-**台灣寶島農場 港台前線關注組 / 發佈時間｜17/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-07-14.32.38.jpeg)
-**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
+作者：纽约香草山 医疗部 – 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+综合日本媒体11月12日到14日的报道，日本政府为了保障经济安全，将制定《经济安全保障推进法案》，目地在于确保日本的技术、情报不外流，以及稳定半导体的供应。
 
-16日[拜习会](https://gnews.org/zh-hant/1669028/)举行，美国拜登总统与习近平进行线上会谈，内容涉及贸易战、核武、新冷战冲突预防，以及香港、新疆、台湾安全问题。会议结束，双方并未有突破性共识。但美方明确不允许有片面破坏台海和平的行为。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-14.jpeg)
 
-中共党媒新华社，发布虚假消息称拜登总统于会议中明确表示“拜登反对台独”，引起国际热议。然而，拜登总统16日晚间在新罕布夏州的机场停机坪就被媒体问到了这个问题，**拜登强调自己是说对于两岸关系“台湾必须自己决定”，不过美国没有鼓励台湾独立**。拜登进一步表示，美国鼓励台湾遵循美国政府，完全按照台湾关系法的要求行事。
+预计，这次的法案将包括“供应链坚韧化”、“维持基础建设功能”、“专利非公开化”及“确保技术基础”这四大重点。
 
-**美方强调，有关拜习视讯会议的结果，请各界以美方的说明为主**。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/港台前線-（TW）-7.jpg)
-* * *
+除此之外，法案还考虑加入“事前审查制度”，要求日本的通讯、能源、金融等产业在购置重要基础设备时，避免引进有安全性风险的产品。据了解，此举主要是为避免引进会影响运作安全性的中共产品或系统。
 
-來源｜[風傳媒](https://www.storm.mg/article/4051618?page=1)
+另外，法案中也规定了特定专利非公开化的条款，主要是为防止能被用作新世代武器研发的先进技术外流。
 
+参考链接：[日本經濟安保法案概要曝光 藉審查排除中國敏感設備](https://www.cna.com.tw/news/firstnews/202111140114.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：文特
+编辑：飞虹 
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

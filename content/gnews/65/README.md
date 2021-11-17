@@ -2,40 +2,26 @@
 ---
 
 
-## 班农接受法庭传唤后称我们会继续进攻
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1667828/)
+## 起诉书无耻且具有争议 美国司法正向中共靠拢
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1668503/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+#### 翻译/撰稿：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/80124403_dershowitz.jpg)图片来源：BBC
+根据布莱特巴特新闻（Breitbart News）11月15日的报道，拜登的司法部周五起诉了前川普总统的顾问、布莱特巴特新闻的前主席史蒂夫·班农（Steve Bannon）。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/B-4.jpg)ground.news
-川普总统的战略大师班农先生为避免被已经变得无底线、严重受操控的FBI的强制执行，今天上午（11月15日）接受了法庭的传唤，并按时出庭。离开法院时，班农指责了拜登、众议院议长佩洛西、司法部长加兰走向地狱的行径，“我们厌倦了防守，我们会继续进攻”。
+班农先生周一向联邦当局自首，由于班农先生无视众议院委员会关于1月6日事件的调查传讯，他将面临藐视法庭的指控。
 
-《国家动脉》（the national pulse）发表文章，进行了相关报道，文章题目“地狱般的行径：桀骜不驯的班农在激烈的法院演讲中告诉拜登，你选择了错误的目标。”
+对此，哈佛学院名誉教授艾伦·德肖维茨（Alan Dershowitz）表示：“这是一份无耻的起诉书。我会告诉你这为什么无耻。如果你没有起诉过别人，你就不会知道法律是什么样的。因为如果总统告诉班农不要回答，那么就没有人知道班农是否有权拒绝回答。这是一个有争议的问题。因此不适合以此作为刑事起诉的主题。”
 
-全文如下：
+德肖维茨解释道，“保留前总统的行政保密权是一个有争议的法律问题。”他建议对这种有争议的合法性问题进行调查。
 
-（华盛顿讯）今天下午（11月15日），桀骜不驯的斯蒂芬·班农（Stephen K.Bannon）从华盛顿联邦法院出来，强调乔·拜登（Joe Biden）、梅里克·加兰（Merrick Garland）和南希·佩洛西（Nancy Pelosi）的行径将会使他们走向地狱，此前他被控两项违宪藐视国会罪。
+德肖维茨说：“（为了弄清楚这个有争议的法律）你要去到法院，你得到一个宣告判决，你得到一个禁令，你得到法院的命令，只有这样才是有可能。为了弄清这个法律是什么，你用尽除了刑事司法系统以外的所有代替方法。”
 
-67岁的班农在华盛顿特区法庭第一次出庭几个小时后，用亨特·拜登（Hunter Biden）“来自地狱的硬盘”的幽灵来比喻他们对班农先生的陷害。
+对于这个有争议性的法律问题德肖维茨继续举例解释道：“如果有10个宪法学者在一个房间里，这10人里不包括拉里·特里布（Larry Tribe），因为他不是一个学者，他是一个党派倡导者。在这个10人的房间里，如果你没有告诉他们这个人是民主党还是共和党，这时无论前总统是否授权他的前顾问不要把资料交出来，或不要作证，那么得到的结果将是五五开。”
 
-“我现在告诉你，这将是梅里克·加兰、南希·佩洛西和乔·拜登（走向）地狱的行为。”
+最后德肖维茨总结重申：“这是一个困难的、闭门问题，不适用于刑事起诉的主题。”
 
-“乔·拜登从‘空军一号’上下来在白宫草坪时，就命令梅里克·加兰起诉我。”班农声称，并暗示这是美国从未见过的出于政治动机的起诉。
-
-“我们将继续进攻。” 他补充道，“我们已经厌倦了防守。”
-
-班农的律师道格拉斯·肖恩（Douglas Schoen）在法院外对记者发表讲话时，描述了他在“美国公民自由联盟”（ACLU，the American Civil Liberties Union）的长期职业生涯，并坚称：“这是闻所未闻的，强迫一个人违反行政特权……我代表‘美国公民自由联盟’20多年了……这是一个“美国公民自由联盟”应该站在我们这边的问题。”
-
-（全文完）
-
-班农先生对民主党人滑落到此种地步不应该感到惊讶，作假、操控媒体、操纵司法这些本属于独裁专制政府的行为已经蔓延到了民主党自由派，中共的黑影已经笼罩在美国上空。美国再不觉醒，必将毁在这帮自由派手中。班农、蓬佩奥、纳瓦罗这样的保守人士们站在最前面，必将聚集起越来越多的力量，为拯救美国、拯救世界而战。
-
-班农先生从法院走出来发表的第一段讲话的视频在盖特上疯传，他慷慨陈词：每一天我们都要重锤出击！特别为了中国的老百姓。当今天罪犯习近平和拜登通电话的时候，请记住，消灭中国共产党！
-
-原文链接：
-
-[https://thenationalpulse.com/news/misdemeanor-from-hell-defiant-bannon-tells-biden-he-picked-the-wrong-target-in-fiery-courthouse-speech/](https://thenationalpulse.com/news/misdemeanor-from-hell-defiant-bannon-tells-biden-he-picked-the-wrong-target-in-fiery-courthouse-speech/)
+新闻来源：[Exclusive — Alan Dershowitz: Bannon Indictment ‘Outrageous’, ‘Disputed Question’ Whether Trump Retains Executive Privilege](https://www.breitbart.com/radio/2021/11/15/exclusive-alan-dershowitz-bannon-indictment-outrageous-disputed-question-whether-trump-retains-executive-privilege/)
 
  
 

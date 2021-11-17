@@ -2,42 +2,114 @@
 ---
 
 
-## 自Covid-19袭击以来，英国有46.5万人从劳动力队伍中失踪
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1672473/)
+## 中共病毒口服药比疫苗还毒
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672600/)
 
-编译：七叶之芒
+[https://gtv.org/video/id=61939c4a182702508105db4c](https://gtv.org/video/id=61939c4a182702508105db4c)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/99caae3305ab415bab7f0b2df170873e.jpeg)图片来源：sohu.com
+郭文贵
+Miles Guo
 
-根据美国银行的数据，尽管休假计划已经结束，但英国仍然面临严重的劳动力市场短缺，因为自大流行病开始以来，已有46.5万人从劳动力中消失。
+告诉大家这个口服药有多可怕，口服药是当年对付艾滋病
+Tell everyone how horrible this oral medicine is, this oral medicine was used to treat with AIDS in the past
 
-在9月30日结束对那些在封锁期间失去工作的人的福利，预计会使那些已经放弃找工作的人重新就业。美国银行经济学家罗布·伍德（Rob Wood）在周二的一份说明中说：“这还没有发生。”
+大家记住，不光是艾滋病，大家不能光看一点是对付淋病、性病
+Remember everyone, it’s not just for AIDS, you can’t just focus on treating with gonorrhea and venereal disease
 
-英国10月份的薪资数字跃升16万，创下新高，这表明经济可以吸收计划结束时正在休假的100万工人中的许多人。9月份的官方失业率降至3.9%，低于大流行前的即时水平。
+还有到非洲的那个痢疾、霍乱的那个药方
+also the prescription for dysentery and cholera in Africa
 
-“当工作时间仍比大流行前的峰值低2.4%时，劳动力市场怎么可能紧张？”伍德写道。“因为自2020年1月以来，劳动力萎缩了1.4%，即465千人。”
+它这个激素的副作用，你要连着吃多少天
+the side effect of this hormone is, after you take this medicine consistent many days in a row
 
-就业研究所估计，现在英国的工人比大流行前的趋势要少95万。失踪的95万人中有一半是年长的工人，三分之一是移民，其余大部分是留校的年轻人。
+你真的就是脖子跟脑袋一样粗了，真的是很夸张夸张的
+Your neck will be as large as your head, it’s really exaggerated
 
-工人短缺正在帮助推动工资上涨，并可能增加支持英格兰银行加息的论据。该央行表示，它正在密切关注薪资趋势，以确定通胀是否会持续下去。
+特别你有过癌症这个病例的人，或者曾经有过手术的人
+Especially you have had cancer, or someone who has had surgery
 
-市场预计英国央行下个月将把利率从0.1%提高到0.25%。
+这种激素对你身体危害是巨大的，更夸张的事情
+This hormone is so harmful to your body, and it’s even more exaggerated
 
-**简评：**
+它会严重的诱发你心脏病，因为有糖尿病病史的，有这个心脏病的
+that it will seriously induce your heart disease because people with a history of diabetes and heart disease
 
-**正如郭先生在直播中所预言，在疫情之后、在全世界疯狂推广接种疫苗之后，各国的劳动力会出现严重的短缺情况。今天的英国，劳动力的短缺竟然到了如此严重的程度。**
+这极为危险，这是我们欧洲的科学家明确说
+this is extremely dangerous, this is what our European scientists clearly stated
 
-**不单单是英国，中共病毒大流行病使全世界出现了供应链断裂、通货膨胀、劳动力短缺。但是，这仅仅是疫情爆发之后的影响。在疫苗灾难还没有完全显现之时，各国的经济在各方面已经出现了明显的衰落。可以预想到的是，在疫苗灾难完全显现之时，世界的经济会走向崩塌。**
+文贵，这个药比疫苗还毒，他说这个毒到什么程度呢
+Wengui (Miles), this medicine is more poisonous than vaccines, how much does he say is it poisonous?
 
-**参考资料：**[bloomberg][U.K. Missing 465,000 People From Workforce Since Covid Hit](https://www.bloomberg.com/news/articles/2021-11-16/u-k-missing-465-000-people-from-the-workforce-since-covid-hit)
+他说很多人以为吃的药就不直接加入身体，
+He said that many people think that the medicine they take is not directly into the body
+
+他说你别忘了，人（的病）都是吃出来的
+He said you don’t forget, illness are all from eating
+
+不是打针打出来的，他说吃进去这个药，对身体的危害更加的危险
+It’s not from the injection, he said that taking this oral medicine would be even more dangerous to the body
+
+他说就是按照医学来说，它分解完以后
+He said that according to the medicine, after it is decomposed
+
+通过整个食道分解以后，他说直接影响的是你的神经系统
+after breaking down through the entire esophagus, he said that it directly affects your nervous system
+
+然后才是你的消化系统，包括血液
+then is your digestive system, including blood
+
+他说针打进去以后，直接影响这些血液循环系统
+He said that after the injection, it directly affects these blood circulatory systems
+
+他说这是很可怕的，他认为这个药吃完以后，
+He said it was terrible, and he thought that after taking this medicine
+
+他说这个人呐，他说这个人可能很慢，有慢性的副反应
+He said this person, he said that this person may have slow chronic side effects
+
+但是对人神经和血液循环系统和循环系统的毁灭性
+But it is devastating to human nerves and blood circulatory system and circulatory system
+
+就是你不知不觉，你这个人就成了傻子
+If you didn’t know it, you became a fool
+
+你就心梗、脑梗、心脏病死，而且不可寻找就这更加没那么直接
+People die from myocardial infarction, cerebral infarction, heart attack, and you can’t find it, it’s not so direct
+
+不是血管出来了，爆管了，脑梗了，心梗了
+It’s not only the blood vessel burst, the brain infarction, the myocardial infarction
+
+你慢慢的就是癌症，然后什么慢性病，爆发症，就死了
+People slowly get cancer, and then any chronic diseases, outbreaks and then die
+
+他说这个太毒了，他对冠状病毒疫苗咱们这个科学家都没那么激动
+He said this is too toxic, and he is not so agitated about the coronavirus vaccine as a scientist
+
+这就是今天告诉大家，碰都别碰，想都别想
+This is what I told you today, don’t touch it, don’t even think about it
+
+谢谢
+Thank you
 
 * * *
 
-*审核：蚂蚁兄弟
-校对：信心满满
-发布：信心的选择*
+Date:11/14/2021
+原视频标题: 中共病毒口服药比疫苗还毒
+CCP virus oral medicine is more poisonous than vaccine
+原视频日期：2021/11/10
+原视频链接 [https://twitter.com/se1y7cblljselva/status/1459004434735067136?s=24](https://twitter.com/se1y7cblljselva/status/1459004434735067136?s=24)
+任务编号：KC255（2858）
+视频时间段 : 0:00-2:16
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

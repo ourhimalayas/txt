@@ -2,28 +2,63 @@
 ---
 
 
-## OSHA宣布暂停执行拜登的疫苗强制令
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1672596/)
+## 有声|我们这一代人
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1672642/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+配音：香草山香港部 – 新世界一员
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/V-8.jpg)俄罗斯莫斯科喀秋莎农场 剿匪打工仔
-受到特里西亚·弗拉纳根（Tricia Flanagan）议员这样的提示：“突发——OSHA已宣布暂停执行拜登的疫苗强制令，并同意遵守第五巡回法院的法庭令。永不放弃，爱国者！我们用一个大胆的呼吁，赢了！！！”【1】
+黑暗的墙国早晨
+没有干净的空气
+没有干净的水质
+也没有干净的人文环境
+只有路上行色匆匆的人们
+他们睁开眼睛就是赚钱养家
+共产党说的明天能更好
+苦追了几代人依然是南柯一梦
+这长梦有朝醒悟
+不知我们这一代人情何以堪
+步行在人行道上
+见惯了人让车、人躲车
+车永远那么肆无忌惮
+这是墙国小城的特色
 
-迅速查到了拜登政府劳工部“职业安全与健康管理局”（OSHA，Occupational Safety and Health Administration）的官方公告，有关内容如下：【2】
+一个老农拉着车一直问我
+还有新鲜的青菜
+我停下脚步走过去
+她却忽然骑上几步要走
+我恼了转身就走
+那阿姨叹
+怕被抓没办法
+找个转弯的角落好拿称
+怕你走掉不敢说
+一大早听的人心酸酸
+这个真正的万恶的社会主义
+这阴暗而低沉的空气
+污染的环境总有一朝可以修护
+而污染的人性却任重道远!
 
-2021年11月12日，美国第五巡回上诉法院批准了一项动议，暂停OSHA于2021年11月5日发布的中共（新冠）病毒疫苗接种和紧急检测临时标准（86 Fed.Reg.61402）（“ETS”）。法院令OSHA“在有进一步的法庭令之前，不得采取任何措施实施或强制执行“ETS”。虽然OSHA对其在紧急情况下保护工人的权力仍然充满信心，但OSHA已暂停实施和强制执行ETS相关的活动，以待诉讼的未来发展。”
+原文链接：[我们这一代人](https://gnews.org/zh-hans/1564686/)
 
-弗拉纳根议员在第一时间发出胜利的消息，并如此激动，这也是爆料革命、新中国联邦的胜利！
+音频处理：喜山必胜Maverick
+发稿：Daxia
 
-口子已经撕开，期待揭露疫苗阴谋取得更大的进展，战友们加油！
+[![](https://media.discordapp.net/attachments/908033143146172416/909632271621971978/11_Nov.jpg?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/909632271621971978/11_Nov.jpg)
 
-有关链接链接：
+**更多资讯，更多关注**
 
-【1】[https://twitter.com/NewDayForNJ/status/1461006377544036352](https://twitter.com/NewDayForNJ/status/1461006377544036352)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-【2】[https://www.osha.gov/coronavirus/ets2](https://www.osha.gov/coronavirus/ets2)
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+
+
 
  
 

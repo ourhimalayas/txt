@@ -2,72 +2,74 @@
 ---
 
 
-## 全球收购和疫苗任务背后的黑石和先锋公司（三）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1672761/)
+## 【Michael.Tonny专栏】Pfizer向公众隐瞒6人在CCP病毒疫苗临床试验中死亡
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1672811/)
 
-编译：七叶之芒
+作者： 加拿大温哥华扬帆农场  Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/michael-2.jpg)
+#### 拜习会，拜登向宇宙大帝习大神就贸易、人权、阿富汗、伊朗、朝鲜、台湾、香港、西藏、新疆、自由开放的印太地区、健康安全、地球变暖和全球能源危机等话题套了两个多小时近乎。
 
-**【接上篇：**[全球收购和疫苗任务背后的黑石和先锋公司（二）](https://gnews.org/zh-hans/1672670/)】
+#### 更不要指望拜登能亲口问问习大神，“2020年9月2日，陈薇在CCP中央电视台大型电视公益节目开学第一课亲口说，2020年2月26日是她主持的第一批（*笔者注：CCP病毒*）疫苗在生产线下线的那天”，这件事情怎么回事？
 
-**谁拥有黑石？**
+#### 所有良知未泯人媒体都在惊呼，拜登只字不敢提及新冠病毒（CCP病毒），拜登向习大神顶礼膜拜，拜登正式向习大神投降！
 
-虽然拉里-芬克是黑石的头面人物，是其创始人、主席和首席执行官，但他不是唯一的决策者，因为黑石也是由股东拥有的。在这里，我们发现了另一个奇怪之处，因为黑石的最大股东是先锋。
+#### CCP真能瞒天过海，世界从此不再追究中共向全世界发动生化武器战争的反人类罪行？
 
-“这是它变得黑暗的地方”，吉伦说。先锋有一个独特的结构，使我们无法看到谁是真正的股东。“拥有先锋的精英们不想让任何人知道他们是地球上最强大的公司的所有者。”不过，如果你挖得够深，你还是可以找到关于这些所有者是谁的线索。
+#### 任凭毒疫苗继续杀戮？当然不可能！
 
-可以预计，地球上最富有、最强大的公司的所有者是地球上最富有的人之一。**2016年，乐施会报告说，世界上最富有的1%的人的财富之和相当于其余99%的人的财富。**2018年，据报道，世界上最富有的人得到了2017年全世界赚取的所有钱的82%。
+#### 2021年11月16日，曾于2013年被授予 Reed Irvine 媒体准确度（Accuracy）奖，并于2016年5 月获美国繁荣基金会（ the Americans for Prosperity Foundation）颁发的 Breitbart 在线新闻卓越奖，美国著名保守派新闻媒体[The Gateway Pundit](https://www.thegatewaypundit.com/)创始人和编辑Jim Hoft在文章中揭露，辉瑞（Pfizer）向公众隐瞒了COVID（CCP病毒）疫苗临床试验中的死亡人数。
 
-在现实中，我们可以假设先锋的所有者是地球上最富有的0.001%的人之一。根据福布斯的数据，截至2020年3月，世界上有2075名亿万富翁。吉伦引用乐施会的数据显示，三分之二的亿万富翁通过继承、垄断和/或裙带关系获得财富。
+#### 2021年7月，辉瑞向公众发布了从第1剂疫苗问世到 2021年3月13日的临床试验数据，截止至3月中旬，它已发现疫苗接种者中有15人死亡。而它报告给FDA的数据，在相同的截止日期，即同样是截止至3月13日，疫苗接种者中死亡了21人。
 
-“这意味着先锋掌握在地球上最富有的家族手中”，吉伦说。在这些家族中，我们发现罗斯柴尔德家族、杜邦家族、洛克菲勒家族、布什家族和摩根家族，仅举几例。
+#### 辉瑞向公众隐瞒了多达6个在COVID-19（CCP病毒）疫苗试验期间的死亡人数！
 
-许多人属于皇家血统，是我们的中央银行系统、联合国和地球上几乎所有行业的创始人。吉伦在他的纪录片中甚至走得更远，所以我强烈建议你完整地观看它。我在这里只总结了整部影片的一小部分内容。
+#### 就在昨天，[medicalxpress.com](https://medicalxpress.com/)在题为[Pfizer, BioNTech, Moderna making $1,000 profit every second: analysis](https://medicalxpress.com/news/2021-11-pfizer-biontech-moderna-profit-analysis.html)的新闻中报道，人民疫苗联盟 (PVA，the People’s Vaccine Alliance)表示，Pfizer, BioNTech 和 Moderna三家医药公司已经与世界上多数最富有的政府都签订了最有利可图的合同，这三家公司今年将获得340亿美元的税前利润，相当于每秒超过1,000 美元、每分钟65,000美元或每天9,350万美元。
 
-**一场金融政变**
+#### 根据[VAERS 网站](https://openvaers.com/covid-data/mortality)统计的报告，今年已经有12,412 人的死亡与辉瑞疫苗有关，而据估计VAERS统计的疫苗伤害仅占美国疫苗伤害的1%。
 
-谈到中央银行家，我最近采访了金融大师凯瑟琳-奥斯汀-菲茨，她认为正是中央银行家是我们目前看到的全球接管的核心。她还认为，是他们向私营公司施压，要求它们执行明显非法的COVID疫苗接种任务。他们的控制力是如此之大，很少有公司有能力采取反对他们的立场。
+#### VAERS是1990年开始实施的疫苗不良事件报告系统，是根据可从vaers.hhs.gov下载的 HHS 数据构建的。它是一种自愿报告系统， VAERS公开申明([see the Lazarus Report](https://openvaers.com/images/r18hs017045-lazarus-final-report-20116.pdf))，VAERS统计的数据仅占疫苗伤害的1%左右（It is a voluntary reporting system that has been estimated to account for only 1%）。
 
-*“我认为[央行行长]真正依赖于智能电网和令人毛骨悚然的技术来帮助他们进入金融控制的最后一步，这是我认为他们正在推动的”，她说。*
+#### 截止至2021年11月5 日，VAERS已经收集了1720302例因疫苗死亡相关报告，每一份报告都按VAERS ID编号，并有非常详细的病历记载，感兴趣的读者可以到[The OpenVAERS Project](https://openvaers.com/openvaers)查看。
 
-*“我们所看到的是一个巨大的努力，让民众和政府破产，这样中央银行家就更容易控制了。这就是我从1998年以来一直在写的东西，这是一场金融政变。*
+#### 根据VAERS的统计图表（[VAERS COVID Vaccine Mortality Reports](https://openvaers.com/covid-data/mortality)）分析，在向公众注射Covid-19（CCP病毒）疫苗前，即1990年至2020年30年间，每年VAERS收到因注射疫苗死亡的报告最高不会超过600人，2020年甚至低于400人。
 
-*现在，金融政变正在被整合，中央银行家们只是对国库和税款的管辖权服务。**而如果他们能把[疫苗]护照与CBDC[央行数字货币]一起弄进来，那么它就能从我们的账户中拿走税收，拿走我们的资产。**因此，这是一场真正的政变。”*
+#### 而自开始推广注射COVID-19（CCP病毒）疫苗以来，截止至2021年11月5日，今年因注射疫苗死亡的案例就已经达到19000人以上。这里需要再次提醒各位的是，据估计VAERS统计的数据仅占美国疫苗伤害的1%。
 
-**斯巴达克斯的信**
+#### 与此同时，福奇博士（Dr. Fauci）仍在欺骗大众，还在大肆推广疫苗。福奇在本周二表示，如果每个人都接种疫苗，到明年美国可能会达到 Covid -19（CCP病毒）流行水平而不是大流行……人们仍然可能会被感染，人们可能仍会住院，但感染水平会低到我们甚至不用考虑COVID-19（CCP病毒）这件事，也不会影响我们的工作。
 
-我再次敦促你观看本文顶部的纪录片，并留意我对奥斯汀-菲茨的采访，该采访将在不久的将来发表。最后，我想强调一封由一个名为“斯巴达克斯”的匿名人士发布的神秘信件。
+#### 最后，援引La Quinta Columna研究团队的两个重要研究结论：氧化石墨烯是所有疫苗的关键成份，注射含有氧化石墨烯成份的疫苗和感染CCP病毒是同样的后果，不要打疫苗！通过增加谷胱甘肽水平，（*笔者注：有可能*）可以减轻氧化石墨烯有毒物质的伤害！
 
-“COVID-19-斯巴达克斯的信”最初张贴在docdroid.net上，但后来被删除。另一份副本可以在[“mega.nz.”](https://mega.nz/file/HZNmyRKB#xF15FrsAEZkwBPi4tdUP5toBBqeRHDJJAHzZt6Hg_Qg)，[“The Automatic Earth”](https://www.theautomaticearth.com/2021/09/spartacus/)和[“ZeroHedge”](https://www.zerohedge.com/covid-19/damn-you-hell-you-will-not-destroy-america-here-spartacus-covid-letter-thats-gone-viral)（这三个网址附有超链接）上找到，这些地方也发表了这封信的全文。信的开头说：“我的名字是斯巴达克斯，我已经受够了……”
+#### 停止杀戮，停止毒疫苗！
 
-***“我们正看着医疗机构将字面意义上的毒药注入数百万美国同胞体内，却没有任何反抗。我们被告知，如果我们拒绝接种疫苗，我们将被解雇并被剥夺生计。这是最后一根稻草。”***
+#### **参考资料：**
 
-以下是一份数据汇编，显示COVID大流行病是一种生物战攻击，利用复杂的心理战战术使其持续下去。它还回顾了COVID疫苗的危险性，指出病毒和“疫苗”是由同一实体制造的。
+[BREAKING NEWS: Pfizer Hid from Public the Number of Deaths in COVID Clinical Trials — Actual Number Was 21 Which Was 6 More than was Reported and 4 More than Unvaccinated Group](https://www.thegatewaypundit.com/2021/11/huge-breaking-news-pfizer-hid-public-number-deaths-covid-clinical-trials-actual-number-21-6-reported-4-unvaccinated-group/)
 
-斯巴达克斯的调查结果摘要如下。信中的每一个总结点都在后面的章节中进行了阐述，你可以在所提供的三个参考资料中的任何一个阅读。
+[Pfizer, BioNTech, Moderna Making Combined Profits of $93.5 Million a Day: Analysis](https://www.thegatewaypundit.com/2021/11/pfizer-biontech-moderna-making-combined-profits-93-5-million-day-analysis/)
 
-- *COVID-19是一种血液和血管疾病。SARS-CoV-2感染人的血管内壁，导致其渗入肺部。*
-- *目前的治疗方案（如侵入性通气）对病人是主动性的伤害，加速了氧化应激，造成严重的VILI（呼吸机引起的肺部损伤）。在没有任何经证实的医疗益处的情况下，继续使用呼吸机构成了大规模的谋杀。*
-- *现有的应对措施不足以减缓这种气溶胶和可能由废水传播的病毒的传播，并构成了一种医疗戏剧的形式。*
-- *各种非疫苗干预措施都被媒体和医疗机构压制，而公众需要支持疫苗和昂贵的专利药物。*
-- *当局否认了自然免疫对COVID-19的作用，尽管自然免疫赋予了对该病毒所有蛋白质的保护，而不仅仅是一种。*
-- *疫苗将弊大于利。这些疫苗所基于的抗原，即SARS-CoV-2尖峰，是一种有毒的蛋白质。SARS-CoV-2可能具有ADE，即抗体依赖性增强；目前的抗体可能不会中和未来的毒株，而是帮助它们感染免疫细胞。此外，在病毒流行期间接种有问题的疫苗，不能起到阻止病毒变异从而减低病毒致命性的目的。*
-- *有一个庞大而骇人听闻的犯罪阴谋，将安东尼-福奇和Moderna与武汉病毒研究所直接联系起来。*
-- *COVID-19疫苗研究人员与从事脑机接口（“神经花边”）技术的科学家有直接联系，其中一人因接受中国的资助而被起诉。*
-- *独立研究人员在疫苗内发现了不应该存在的神秘纳米颗粒。*
-- *整个大流行病被用来作为西方社会巨大的政治和经济转型的借口，这将使已经富裕的人富裕起来，把我们其他人变成农奴和贱民。*
+[Pfizer, BioNTech, Moderna making $1,000 profit every second: analysis](https://medicalxpress.com/news/2021-11-pfizer-biontech-moderna-profit-analysis.html)
 
+[OpenVAERS Report](https://openvaers.com/openvaers)
 
-【接下篇：全球收购和疫苗任务背后的黑石和先锋公司（四）】
+[COMPLETE SURRENDER: Biden Talks to China’s President Xi on a Two-Hour Phone Call and Never Brings Up COVID](https://www.thegatewaypundit.com/2021/11/complete-surrender-biden-talks-chinas-president-xi-two-hour-phone-call-never-brings-covid/)
 
-**参考资料：**[truthunmuted.org] [Blackrock and Vanguard Behind the Global Takeover and Vaccine Mandates](https://truthunmuted.org/blackrock-and-vanguard-behind-the-global-takeover-and-vaccine-mandates/)
+[Health product recall MASKS/ KN95 MASKS WITH BIOMASS GRAPHENE (2021-04-08)](https://recalls-rappels.canada.ca/en/alert-recall/masks-kn95-masks-biomass-graphene-2021-04-08)
+
+[Shocking News: Spanish Researchers Find 98-99% of Pfizer Vaccine Vial is Comprised of Toxic/Blood-Clotting Nano Graphene Oxide–Also Found in Flu-Vaccines & Now Seen to be True Cause of COVID-19](https://everydayconcerned.net/2021/07/05/shocking-news-spanish-researchers-find-98-99-of-pfizer-vaccine-vial-is-comprised-of-toxic-blood-clotting-nano-graphene-oxide-also-found-in-flu-vaccines-now-seen-to-be-true-cause-of-covid-19/)
+
+[Official interim report of Pfizer’s vaccination vial analysis explained by La Quinta Columna](https://www.orwell.city/2021/06/vaccination-vial-analysis-explained.html)
+
+[La Quinta Columna: ‘Graphene oxide has its absorption band in 5G’](https://www.orwell.city/2021/06/la-quinta-columna-graphene-5G.html)
+
+[Big Pharma Injecting Graphene Oxide As Adjuvant In COVID Jabs!](https://principia-scientific.com/big-pharma-injecting-graphene-oxide-as-adjuvant-in-covid-jabs/)
+
+[“人民英雄”国家荣誉称号获得者陈薇——“除了胜利，别无选择”](http://cpc.people.com.cn/n1/2020/0912/c64387-31858861.html)
+
+（免责声明：本文只代表作者观点，跟GNEWS平台无关）
 
 * * *
 
-*审核：蚂蚁兄弟
-校对：信心满满
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+编辑、校对 ctt
 
  
 

@@ -2,23 +2,37 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月15日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1672632/)
+## DC每日热点1117
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1672696/)
 
-配音：香草山教育部 – 蒙古鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/中共将在.jpg)
-文字版原文：[GTV新闻访谈简报|2021年11月15日早](https://gnews.org/zh-hans/1666828/)
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4A3ED03D-E64E-4845-8952-B3782E66FBD3-scaled.jpeg)
+道琼斯指数 36142.22 ▲0.15%
+纳斯达克指数 15973.86 ▲0.76%
+WTI纽约原油CFD 76.964 ▼0.99%
+布伦特原油CFD 81.932 ▼0.60%
+标普中概股50指数 3,801.32CNY▼-22.59%
+美元兑人民币 1USD=6.378RMB
+美元兑港币 1USD=7.789HKD
+国际黄金 1861.92 美元/盎司
+全球CCP病毒感染人数 255,298,400 例
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1、香港美国商会会长因无法成功呼吁港府放宽防疫措施而辞职
+2、美参议员引用议事规则迫使院会暂时搁置表决核准新驻华大使人选
+3、拜登政府据信已决定外交抵制北京冬奥会正择时宣布
+4、美中就放松记者签证问题达成一致
+5、涉中共国插手云朗基地 美国制裁柬军将领 金边愤怒反驳
+6、美国国会重启努力 争取年底前通过与中共国竞争法案
+7、为摩根大通CEO入港豁免隔离辩护，林郑称“风险可控”
+8、辉瑞达成国际协议 允许仿制实验性新冠口服药
+9、中共国利用海外空壳公司躲避审查 获取意大利军用无人机技术
+10、北京公布3万6千字中共百年重大成就决议 为习近平第3任期抬轿鸣锣
+11、美商务部长：无意参加CPTPP 盼与日本合作打击中共国过剩产能
+12、国际原子能机构总干事格罗西将于下周一抵达德黑兰讨论伊核事宜
+13、亚美尼亚宣布 在俄罗斯斡旋下与阿塞拜疆已达成停火
+14、白宫安全顾问沙利文：美中将加强来往 避免竞争变冲突
+15、岸田文雄关注拜习会 日澳外长就推进四边机制达成一致
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
