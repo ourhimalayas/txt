@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/17/2021 10:42 PM (UTC)`
+
+11/17/2021 Miles Guo: The CCP virus, the New Federal State of China (NFSC), the Taiwan Strait crisis, and the South China Sea were the topics avoided during the Biden-Xi meeting; only Xi could talk about the COVID vaccines, implying that the vaccines will bring an enormous catastrophe to humankind. Everyone shall be prepared for the worst case scenario; the NFSC is the only community that reveals the truth about the CCP virus and its vaccines, uniting the fellow Chinese to survive together<br/><br/>11/17/2021 文贵直播：习拜会避谈病毒、新中国联邦、台海危机和南海问题；只有习可以谈疫苗，这意味着疫苗将导致人类大劫难，请大家做好最坏打算；新中国联邦是唯一揭露病毒和疫苗真相并让同胞们抱团取暖的群体<br/>
+![img](https://media.gettr.com/group11/getter/2021/11/17/22/42/4ca2f600-8518-6e0f-5157-1b134a9e7117/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@richardabelson 11/17/2021 5:42 PM (UTC)`
@@ -295,13 +302,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 11/12/2021 Miles Guo: As a professional spy in the Third Bureau of the PLA’s General Staff Department, Neil Shen's political and economic influence in the United States was extraordinary; we, the New Federal State of China, should not forget that we were brought together by the common goal of taking down the CCP, and you will lose everything if you forget about this.<br/><br/>11/12/2021 文贵直播：作为总参三部的专业情报人员，沈南鹏在美国的政治、经济影响力非同一般；新中国联邦人不要忘记我们是因灭共的共同目标走到一起，忘记这个就会失去你拥有的一切<br/>
 ![img](https://media.gettr.com/group29/getter/2021/11/13/02/44/602ba90c-483e-b5ab-31c9-044c6726a356/out.jpg)
-
----
-
-`@miles 11/13/2021 1:22 AM (UTC)`
-
-11月12日：这是当年北京政泉公司和北京保利公司的总裁刘平签合约的照片，刘平是个好人，另外在我这两张牵着手的照片的另一个人……她曾改变了我的命运。另外一张的照片是我人生中关键的时刻在郑州的办公室……这个图中的工程会议是刘志华被抓以后的。最关键的工程会议之一…… <br/><br/>
-![img](https://media.gettr.com/group17/getter/2021/11/13/01/21/3fed47dc-41cd-2260-0d13-e356b9278f83/0d53748f25b9119cd06a57dca2e0521c.jpg)
 
 ---
 
