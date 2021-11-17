@@ -15,92 +15,92 @@
 
 ---
 
-### [许家印变卖资产维持运营](/content/gnews/1/README.md)
+### [莫德纳疫苗致台湾一妇人主动脉剥离](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
+
+### [白宫：拜登关切中共国人权问题 反对中共破坏台海现状](/content/gnews/2/README.md)
+ ` 日本东京方舟农场`
+
+### [许家印变卖资产维持运营](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥谈喜联储II:不是脱亚入欧而是脱离共产党制造新世界](/content/gnews/2/README.md)
+### [七哥谈喜联储II:不是脱亚入欧而是脱离共产党制造新世界](/content/gnews/4/README.md)
  ` NewFOC`
 
-### [前台积电高管悉数退出中共国芯片领军企业“中芯国际”](/content/gnews/3/README.md)
+### [前台积电高管悉数退出中共国芯片领军企业“中芯国际”](/content/gnews/5/README.md)
  ` 日本东京方舟农场`
 
-### [第五巡回法庭的背后是一种世界级的人类的较量](/content/gnews/4/README.md)
+### [第五巡回法庭的背后是一种世界级的人类的较量](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [CDC错误的设置测试数值，被误诊的‘患者’们被如何处置？](/content/gnews/5/README.md)
+### [CDC错误的设置测试数值，被误诊的‘患者’们被如何处置？](/content/gnews/7/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [多米诺骨牌效应，虚拟货币市值蒸发了2000亿美元](/content/gnews/6/README.md)
+### [多米诺骨牌效应，虚拟货币市值蒸发了2000亿美元](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [肺部卫生工作者Albert Spence谈论新冠病毒PCR测试](/content/gnews/7/README.md)
+### [肺部卫生工作者Albert Spence谈论新冠病毒PCR测试](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [在核潜艇到位前，澳洲将建造新的柯林斯潜艇](/content/gnews/8/README.md)
+### [在核潜艇到位前，澳洲将建造新的柯林斯潜艇](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国高官：拜登将告诉习近平中共国须遵照规则行事](/content/gnews/9/README.md)
+### [美国高官：拜登将告诉习近平中共国须遵照规则行事](/content/gnews/11/README.md)
  ` 日本东京方舟农场`
 
-### [雅典娜时报-第115期](/content/gnews/10/README.md)
+### [国际要闻汇编11月17日](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [雅典娜时报-第115期](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [疫苗问题-运动员、电视主播、政府官员、人们在电视上倒地身亡](/content/gnews/11/README.md)
+### [疫苗问题-运动员、电视主播、政府官员、人们在电视上倒地身亡](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [近日落马的中共高官](/content/gnews/12/README.md)
+### [近日落马的中共高官](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳大利亚澳式足球联盟（AFL）初级联赛实施疫苗强制令](/content/gnews/13/README.md)
+### [澳大利亚澳式足球联盟（AFL）初级联赛实施疫苗强制令](/content/gnews/16/README.md)
  ` 走进澳洲`
 
-### [台湾3天内出现170例疫苗不良反应事件 6人身亡](/content/gnews/14/README.md)
+### [台湾3天内出现170例疫苗不良反应事件 6人身亡](/content/gnews/17/README.md)
  ` 日本东京方舟农场`
 
-### [中共国米面开始涨价，老百姓要护紧钱袋子](/content/gnews/15/README.md)
+### [中共国米面开始涨价，老百姓要护紧钱袋子](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [香港政府拒发《经济学人》杂志驻港记者工作签证](/content/gnews/16/README.md)
+### [香港政府拒发《经济学人》杂志驻港记者工作签证](/content/gnews/19/README.md)
  ` 日本东京方舟农场`
 
-### [供应链核心环节断裂](/content/gnews/17/README.md)
+### [供应链核心环节断裂](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共和美国超发货币的规模几何？这如何影响虚拟货币？喜币比特币未来会怎样？](/content/gnews/18/README.md)
+### [中共和美国超发货币的规模几何？这如何影响虚拟货币？喜币比特币未来会怎样？](/content/gnews/21/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [黑暗已经到来请做好准备](/content/gnews/19/README.md)
+### [黑暗已经到来请做好准备](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [人心所向，禁而不绝！中共国有单位“挖矿”严重](/content/gnews/20/README.md)
+### [人心所向，禁而不绝！中共国有单位“挖矿”严重](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [明年5月份 疫苗灾难开始显现](/content/gnews/21/README.md)
+### [明年5月份 疫苗灾难开始显现](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [情报显示：中共开始再一次放毒，新变种病毒出现](/content/gnews/22/README.md)
+### [什么叫刺突蛋白？会对身体造成什么伤害？](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [班农先生被起诉对新中国联邦的意义](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [什么叫刺突蛋白？会对身体造成什么伤害？](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [习近平与拜登虚拟会谈的五个主要收获](/content/gnews/25/README.md)
+### [习近平与拜登虚拟会谈的五个主要收获](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [纸币的滥发导致人们财富被偷走](/content/gnews/26/README.md)
+### [纸币的滥发导致人们财富被偷走](/content/gnews/27/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [中共国利用海外空壳公司获取意大利军用无人机技术](/content/gnews/27/README.md)
+### [中共国利用海外空壳公司获取意大利军用无人机技术](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农先生被起诉事件意味着美国媒体大重启](/content/gnews/28/README.md)
+### [班农先生被起诉事件意味着美国媒体大重启](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共病毒及其疫苗全球超限战中的典型案例（二十三）](/content/gnews/29/README.md)
- ` 纽约香草山MOS01`
 
 ### [美前总统老布什之子尼尔·布什赞助了中共航天公司的研讨会](/content/gnews/30/README.md)
  ` 首尔天池农场`

@@ -2,30 +2,174 @@
 ---
 
 
-## 中共国利用海外空壳公司获取意大利军用无人机技术
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1670788/)
+## 纸币的滥发导致人们财富被偷走
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1670804/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-12.jpg)中共国利用海外空壳公司获取意大利军用无人机技术 网络图片
-据美国之音11月16日报道，意大利警方判定由”中国中车”资本和无锡市政府旗下的一家投资集团共同出资成立的马尔斯香港信息科技公司为空壳公司。该公司控制了意大利的一家军用无人机生产商Alpi Aviation（阿尔卑飞机公司）。在意大利和欧洲当局不知情的情况下，将知识和技术转移至中共国的一个新生产基地。
+美国的财政部长
 
-阿尔卑飞机公司以生产轻飞机及称为Strix的迷你无人机闻名，曾被驻阿富汗的意大利空军使用。
+包括美联储的主席
 
-这起案件符合中共国国企在海外的运行模式：以民营空壳公司为掩护，获取掌握特殊技术的企业的控制权，然后再将该公司的技术转移至中共国。这明显是由中共国政府推动的国家战略。中共的偷盗技术独步天下，这起教科书式的案例暴露出欧洲投资审查体系的脆弱和北京为获取欧洲敏感技术的精心布局。俗话说，不怕贼偷，就怕贼惦记。中共苦心积虑偷遍全世界。西方先进的科学技术如果被中共盗取，对本国和全世界都是极大的威胁。所以，防火防盗防中共。
+他都不相信美国真正地印发了这么多货币
 
-新闻参考链接：[http://dlvr.it/SCcMWL](https://dlvr.it/SCcMWL)
+我想问大家：“你们怎么查政府到底印了多少货币？”
 
-* * *
+因为货币它不是区块链，
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+你们无法查，
 
+同时货币印发机构也不受监控。
 
-编辑：【英国伦敦喜庄园编辑部】
+他们说印了30亿，就是30亿吗？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+你告诉我用什么方式去查验呢？
 
+所以现在是整个人类到了最重要的选择时刻，
 
+将来所有的纸币都得废掉，
+
+因为我们根本不知道你印了多少货币。
+
+那天你们看了那个美联储主席埃摩斯（注：同音字）的演讲，
+
+他说我们确实把印刷的数字改了，
+
+我们确实造了假
+
+这就是骗局嘛，比庞氏骗局还可怕，
+
+因为没有技术可以监控它。
+
+但区块链谁都造不了假，100%真实，
+
+而且谁都拿不走。
+
+The Secretary of the Treasury of the United States
+
+including the chairman of the Federal Reserve
+
+They don’t believe the U.S. has really issued that much money
+
+I would ask people, “How do you find out how much money the government actually prints?”
+
+Because paper currency doesn’t use blockchain technology
+
+You will not be able to check that.
+
+Also, the currency issuers are not monitored.
+
+If they claim they printed $3 billion,
+
+is it really $3 billion?
+
+You tell me, how can I check that?
+
+So now is the most important moment of choice for the entire human race.
+
+In the future, all paper money will have to be scrapped.
+
+Because we don’t even know how much money they’ve printed.
+
+You saw that speech the other day by the Fed Chairman Jerome.
+
+He said they did change the numbers that they printed,
+
+They did falsify it.
+
+It’s a fraud. It’s worse than a Ponzi scheme.
+
+Because there’s no technology to monitor it.
+
+But blockchain can’t be faked by anyone, it’s 100% real, and no one can take it away.
+
+共产党仅仅去年2020年（印钞）7万亿美元，
+
+这是他们中央人民银行正式下发的文件说的数目，
+
+7万亿。但实际印了多少你们知道吗？
+
+实际是10万亿美元，67万亿人民币。
+
+美国玩了3万亿，共产党玩了10万亿，
+
+你还觉得你们手里的钱还值钱吗？
+
+不信你们等着看吧。
+
+国内的同胞们
+
+你们绝不是不知道有多少人被打疫苗
+
+和多少人在家里被Quarantine（隔离）
+
+和死了多少人
+
+中共说郑州发洪水就死了4个人，
+
+冠状病毒来自中共国，
+
+他们说中国只死了4000多人，
+
+他们还说说山西发洪水就死了7个半人，8个濒危，
+
+死了7个半，是因为其中一个人已经半死不活了，
+
+你相信他们给的这些数据吗？
+
+人们最大的灾难
+
+是在不知不觉中
+
+你们的钱
+
+你的劳动创造的价值全被剥夺偷走了
+
+The CCP printed $7 trillion just last year in 2020.
+
+This is the number that their official document issued by the Central People’s Bank indicates
+
+7 trillion. But do you know how much was actually printed?
+
+The actual amount is 10 trillion dollars, 67 trillion yuan.
+
+The U.S. played with 3 trillion, the CCP played with 10 trillion.
+
+Do you still think the money in your hands is still worth something?
+
+If you don’t believe me, just wait and see.
+
+Fellow countrymen in China
+
+You are by no means unaware of the number of people who have been vaccinated
+
+and how many people were quarantined in their homes
+
+and how many people have died.
+
+The CCP says that 4 people died in Zhengzhou when it flooded.
+
+The coronavirus came from CCP China,
+
+They said that only 4,000 people died in China.
+
+They also said that 7 and a half people died in the Shanxi flood,
+
+and 8 were endangered.
+
+7 and a half people died because one of them was already half dead.
+
+Do you believe these figures they give?
+
+The biggest disaster for people is not knowing
+
+Your money,
+
+and your hard-earn money is being taken away from you.
+
+听写/翻译： UCool优酷
+
+字幕添加：Kent
+
+发布：风云小哥
 
  
 
