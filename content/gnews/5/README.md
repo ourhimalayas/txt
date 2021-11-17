@@ -2,123 +2,80 @@
 ---
 
 
-## 千年不遇新金融时代的诞生战友们都是参与者
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672781/)
+## 全球收购和疫苗任务背后的黑石和先锋公司（四）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1672782/)
 
-[https://gtv.org/video/id=6193c860182702508105e859](https://gtv.org/video/id=6193c860182702508105e859)
+编译：七叶之芒
 
-**郭文贵**
-**Miles Guo**
+**【接上篇：**[全球收购和疫苗任务背后的黑石和先锋公司（三）](https://gnews.org/zh-hans/1672761/)】
 
-我们处在新中国联邦也好
-We are in the New Federal State of China
+**一个犯罪的阴谋**
 
-就我们所有战友要记住一个
-All of our comrades in arms need to remember this
+这是一封很长的信，所以我不会在此全文转载。然而，以下章节特别值得关注，因为这些犯罪精英正在策划破坏我们所知的生命，以努力迎来一个以技术为主导的全球治理和控制体系：
 
-我们面临着世界上前所未有的几个大的机会
-We are experiencing several unprecedented huge opportunities in the world
+*2019年11月，武汉病毒研究所的三名技术人员出现了与流感样疾病一致的症状。安东尼-福奇（Anthony Fauci）、彼得-达**扎克（Peter Daszak）和拉尔夫-巴里（Ralph Baric）马上知道发生了什么，因为这个实验室和我们的科学家和官员之间存在后方的沟通渠道。*
 
-这个机会是跟时间，就是时间和时机
-These opportunities are related to the time frame which is timing and occasion
+*2019年12月12日，拉尔夫-巴里奇签署了一份材料转让协议（本质上是NDA），以接受由Moderna和NIH共同拥有的冠状病毒mRNA疫苗相关材料。*
 
-我们几乎是人类上千年不遇的
-We are in a situation that it’s almost unprecedented in a thousand years as a human
+*直到整整一个月后，即2020年1月11日，据称中共国才将后来被称为SARS-CoV-2的序列发送给我们。Moderna声称，相当荒谬的是，他们在不到48小时内就从这个序列中开发出了有效的疫苗。*
 
-叫做新金融时代的诞生，就叫做虚拟货币
-which is the born of a new financial era, and is also called the virtual currency
+*Moderna的现任首席执行官Stephane Bancel曾是生物梅里埃公司的首席执行官，这是一家专门从事医疗诊断技术的法国跨国公司，由Alain Merieux创立。Alain Merieux是在武汉病毒研究所的P4实验室建设中起重要作用的人之一。*
 
-大家一定要记住这个词
-and everyone has to keep that word in mind
+*作为与SARS-CoV-2最接近的序列，RaTG13，并不是一种真正的病毒。它是一个伪造的。它是通过手工将一个基因序列输入数据库，为SARS-CoV-2的存在制造一个幌子，它很可能是武汉病毒研究所生产的功能增益嵌合体，并被意外泄露或故意释放。SARS-CoV-2的动物储库从未被发现。*
 
-而且我们是走在最前面、最核心的
-Also, we are at the core and act ahead of everyone
+*这不是一个阴谋“理论”。这是一个实际的犯罪阴谋，其中，与Moderna的mRNA-1273开发有关的人员与武汉病毒研究所及其功能增益研究直接相关。文件线索已被证实。*
 
-技术全世界最好的
-Our technology is the best in the world
+*实验室泄露的理论被压制了，因为拉动这条线索会让人不可避免地得出结论，有足够的间接证据将莫德纳、美国国立卫生研究院、WIV以及疫苗和病毒的产生联系在一起。*
 
-系统全世界最完美的
-Our system is the most perfect one in the world
+*在一个正常的国家，这将立即导致世界上最大的RICO和大规模谋杀案。安东尼-福奇、彼得-达**扎克、拉尔夫-巴里奇、石正丽和斯蒂芬-班塞尔，以及他们的同伙，都会被起诉，并在法律的最大范围内受到起诉。相反，我们数十亿美元的税款被判给了犯罪者。*
 
-而且现在我们战友们拥有了6亿个币
-And now our comrades in arms have possessed 600 million HCoins
+*联邦调查局突击检查了底特律北部谢尔比镇的Allure医疗公司，因为他们以“欺诈性的COVID-19治疗方法”向保险收费。他们所使用的治疗方法——静脉注射维生素C，一种抗氧化剂。如上所述，这是一种完全有效的治疗COVID-19诱发的败血症的方法，事实上，现在是保罗-E-马里克博士提出的MATH+方案的一部分。*
 
-这6亿个币到下一个你有机会拿到币
-From this 600-million-coin to the next opportunity to get the coin
+*由于所谓的NDMA（N-亚硝基二甲胺）污染，FDA禁止了雷尼替丁（Zantac）。雷尼替丁不仅是一种用作抗酸剂的H2阻断剂，而且还具有强大的抗氧化作用，可以清除羟基自由基。这使它在治疗COVID-19方面具有实用性。*
 
-还有11个月的时间
-still has 11 months to go
+*FDA还试图将N-乙酰半胱氨酸（一种无害的氨基酸补充剂和抗氧化剂）下架，迫使亚马逊将其从其在线店面中删除。这给我们留下了一个令人不寒而栗的问题：作为针对美国公众的犯罪阴谋的一部分，FDA是否故意压制对治疗COVID-19脓毒症有用的抗氧化剂？*
 
-这个时间你要记住
-You need to remember this timing
+*当局正在与人类历史上最恶劣的罪犯合作，并为他们提供便利，积极压制非疫苗治疗和疗法，以迫使我们将这些罪犯的产品注入我们的身体……*
 
-你第一次拥有的币和第二次币是一个时间
-It’s the time frame when are the first time and second time having coins
+*结论：目前的大流行病是由机构产生和延续的，通过使用与解放军有联系的中共国生物战实验室设计的病毒，在美国纳税人的钱和法国专家的帮助下……*
 
-也就是整个新世界的金融系统诞生
-That is, the financial system of the whole new world was established
+*无论是通过武汉病毒研究所的泄漏还是故意释放，一种致命的SARS菌株现在已经在全球范围内流行，此前世卫组织和疾控中心以及政府官员先是淡化了风险，然后故意煽动恐慌和封锁，危及人们的健康和生计。*
 
-整个人类
-The entire mankind
+*然后，统治我们的完全堕落和精神变态的贵族阶级利用这一点作为借口，胁迫人们接受注射毒药，这种毒药可能是“人口减少剂”，也可能是以注射“智能灰尘”形式出现的精神控制/安抚剂，或者两者都是……*
 
-昨天摩根先生, 包括所有大老板
-Yesterday, Mr. Morgan, including all the big bosses,
+*他们认为，通过将拒绝接种疫苗的社会污名作为武器，他们可以逃脱这一命运。他们的想法是不正确的。他们的动机对于任何关注此事的人来说都是清楚而明显的。*
 
-没有任何人怀疑说
-none of them has doubted that
+*这些自大狂搜刮了自由世界的养老基金。华尔街已经资不抵债，自2019年底以来一直存在流动性危机。现在的目的是在我们意识到我们被这些疯子敲诈得多么严重之前，对人类进行全面的、全方位的身体、精神和金融控制。大流行病及其应对措施为精英集团提供了多种用途：*
 
-还有这个任何机会说这个虚拟货币没有是不可能了
-there is any chance that it’s nothing impossible for this virtual currency
+- *掩盖了由高利贷资本家和缺席业主对我们的经济进行的高利贷掠夺所带来的萧条，他们对社会完全不产生任何价值……。*
+- *破坏小企业，侵蚀中产阶级。*
+- *将数万亿美元的财富从美国公众手中转移到亿万富翁和特殊利益集团的口袋里。*
+- *从事内幕交易，购买生物技术公司的股票，做空实体企业和旅游公司，目的是使面对面的商业和旅游业崩溃，代之以电子商务和服务化。*
+- *为与中共国开战制造理由，鼓励我们攻击他们，浪费美国人的生命和财富，把我们推向核大决战的边缘。*
+- *建立技术和生物安全框架，以控制人口和技术官僚社会主义的“智能城市”，每个人的行动都被专制地跟踪，所有这些都是为了预期广泛的自动化、失业和粮食短缺，利用疫苗的虚假幌子来迫使人们合作。*
 
-虚拟货币的数字货币世界的诞生
-The establishing of the digital currency world and virtual currency,
 
-永远别忘，第一个
-we should never forget. First,
+*……精英们正试图拉高阶梯，消除大部分人口的向上流动，清除政治对手和其他‘不受欢迎的人’，并将人类的其余部分紧紧束缚起来，对他们认为‘影响大’的某些商品和服务进行配给，如汽车的使用、旅游、肉类消费等。*
 
-由于时间，还给我们个时机
-because of the time frame, we have also gained an opportunity
+*自然，他们将继续拥有自己的奢侈品，作为类似于封建主义的严格种姓制度的一部分。他们为什么要这样做？很简单。精英们是新马尔萨斯主义者，他们认为我们人口过多，资源枯竭将在短短几十年内使文明崩溃。*
 
-人类上千年不遇的金融的新系统的诞生
-The born of this new financial system is unprecedented in a thousand years as a human
+*他们的这种想法不一定不正确。我们人口过剩，我们正在消耗太多的资源。然而，为了应对迫在眉睫的危机，他们策划了这样一场令人毛骨悚然的杀人夺权行动，表明他们对自己的同伴只有极度的蔑视。*
 
-你们是最前边，而且手里已经有币的
-You are at the very front and already in possession of the coins
+*对于那些参与这场令人厌恶的闹剧而不了解自己在做什么的人，我们有一个词送给你——停止。你们正在对你们的国家和你们的同胞造成不可弥补的伤害。*
 
-包括有G-Club、G-Fashion
-including G-Club and G-Fashion
+*对于那些可能正在阅读这一警告的人，并且完全了解和理解他们正在做的事情，以及它将如何不公正地伤害数百万无辜的人，我们还有几句话要说。让你们下地狱吧。你们不会摧毁美国和自由世界，你们也不会拥有你们的新世界秩序。我们将确保这一点。*
 
-你一定记住，这都和你的命运连在一起的
-You must keep that in mind, all these are connected with your destiny
+**【全文完】**
 
-包括GTV、包括盖特
-including GTV, GETTR
+**参考资料：**[truthunmuted.org] [Blackrock and Vanguard Behind the Global Takeover and Vaccine Mandates](https://truthunmuted.org/blackrock-and-vanguard-behind-the-global-takeover-and-vaccine-mandates/)
 
-都跟你连在一起的，你前所未有
-everything is unprecedented to you and connected with you
+* * *
 
-你可不要想……这个币连着太多了
-It’s better not to think that… this coin is connected too much
+*审核：蚂蚁兄弟
+校对：阿伯塔
+发布：信心的选择*
 
-**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1459700699869380608?s=24](https://twitter.com/se1y7cblljselva/status/1459700699869380608?s=24)
-
-Date: 11/14/2021
-原视频标题: 千年不遇新金融时代的诞生战友们都是参与者
-The Born of The New Financial Era Only Once in a Blue Moon And All Comrades Are The Participants
-原视频日期：2021/11/12
-任务编号：KC257（2878）
-视频时间段 : 0:00-1:43
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
 
  
 

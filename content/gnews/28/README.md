@@ -2,66 +2,115 @@
 ---
 
 
-## 全球收购和疫苗任务背后的黑石和先锋公司（一）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1672581/)
+## 中共病毒口服药比疫苗还毒
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672600/)
 
-编译：七叶之芒
+[https://gtv.org/video/id=61939c4a182702508105db4c](https://gtv.org/video/id=61939c4a182702508105db4c)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-383.png) 图片来源： truthunmuted.org
+郭文贵
+Miles Guo
 
-直到最近，经济竞争似乎一直在推动美国各地大小公司的兴衰。据说，百事公司是可口可乐的竞争对手，苹果和安卓争夺在争夺人们的忠诚度，药品公司争夺你的医疗费用。然而，所有这些都变成了一种幻觉。
+告诉大家这个口服药有多可怕，口服药是当年对付艾滋病
+Tell everyone how horrible this oral medicine is, this oral medicine was used to treat with AIDS in the past
 
-自20世纪70年代中期以来，两家公司–Vanguard和Blackrock–吞并了世界上大多数公司，有效地摧毁了美国实力所依赖的竞争市场，只留下了虚假的表象。
+大家记住，不光是艾滋病，大家不能光看一点是对付淋病、性病
+Remember everyone, it’s not just for AIDS, you can’t just focus on treating with gonorrhea and venereal disease
 
-事实上，全球经济可能是有史以来最伟大的幻觉把戏，蒙住了全世界人民的眼睛。要了解真正发生了什么，请观看蒂姆-吉伦的一小时纪录片《垄断：谁拥有世界》。（视频链接：[https://youtu.be/UNg3Vnfu4Pk](https://youtu.be/UNg3Vnfu4Pk)）
+还有到非洲的那个痢疾、霍乱的那个药方
+also the prescription for dysentery and cholera in Africa
 
-**企业统治**
+它这个激素的副作用，你要连着吃多少天
+the side effect of this hormone is, after you take this medicine consistent many days in a row
 
-正如讲述影片的吉伦所指出的，少数巨型公司–私人投资公司–主宰着我们生活的方方面面；我们吃的、喝的、穿的或使用的一切都以这样或那样的方式存在。这些投资公司是如此巨大，它们控制着全世界的资金流动。那么，这个计划是如何运作的？
+你真的就是脖子跟脑袋一样粗了，真的是很夸张夸张的
+Your neck will be as large as your head, it’s really exaggerated
 
-虽然市场上似乎有数以百计的竞争品牌，就像“俄罗斯套娃”一样，但较大的母公司拥有多个小品牌。实际上，所有的包装食品品牌，都是由十几家较大的母公司拥有的。
+特别你有过癌症这个病例的人，或者曾经有过手术的人
+Especially you have had cancer, or someone who has had surgery
 
-百事可乐公司拥有一长串食品、饮料和零食品牌，可口可乐、雀巢、通用磨坊、凯洛格、联合利华、玛氏、卡夫亨氏、蒙迪莱兹、达能和英国联合食品公司也是如此。这些母公司共同垄断了包装食品行业，因为几乎所有可用的食品品牌都属于其中之一。
+这种激素对你身体危害是巨大的，更夸张的事情
+This hormone is so harmful to your body, and it’s even more exaggerated
 
-这些公司都是公开交易，由董事会管理，其中最大的股东拥有决策权。这就是有趣的地方，因为当你查看谁是最大的股东时，你会又发现一个垄断。
+它会严重的诱发你心脏病，因为有糖尿病病史的，有这个心脏病的
+that it will seriously induce your heart disease because people with a history of diabetes and heart disease
 
-虽然最大的股东可能会根据股票的买卖而不时变化，但有两家公司一直被列入这些母公司的最大机构持有人之列。黑石和先锋公司（Blackrock Inc.、Vanguard Group Inc.）。
+这极为危险，这是我们欧洲的科学家明确说
+this is extremely dangerous, this is what our European scientists clearly stated
 
-**一个例子****—****百事可乐和可口可乐**
+文贵，这个药比疫苗还毒，他说这个毒到什么程度呢
+Wengui (Miles), this medicine is more poisonous than vaccines, how much does he say is it poisonous?
 
-例如，虽然百事公司有3000多名股东，但Vanguard和Blackrock的持股量占所有股份的近1/3。在百事可乐公司的前10名股东中，前三名Vanguard、Blackrock和State Street公司拥有的股份比其余7名股东多。
+他说很多人以为吃的药就不直接加入身体，
+He said that many people think that the medicine they take is not directly into the body
 
-现在，让我们来看看百事可乐公司的最大竞争对手可口可乐公司。谁拥有可口可乐？与百事可乐一样，该公司的大部分股份由机构投资者持有，这些投资者有3155人（截至纪录片制作时）。
+他说你别忘了，人（的病）都是吃出来的
+He said you don’t forget, illness are all from eating
 
-如影片所示，可口可乐的前四大机构股东中有三个与百事可乐的股东相同。Vanguard、Blackrock和State Street公司。可口可乐的头号股东是伯克希尔-哈撒韦公司（Berkshire Hathaway）。
+不是打针打出来的，他说吃进去这个药，对身体的危害更加的危险
+It’s not from the injection, he said that taking this oral medicine would be even more dangerous to the body
 
-这四家–Vanguard、Blackrock、State Street和Berkshire Hathaway–是地球上最大的四家投资公司。“因此，百事可乐和可口可乐完全是竞争对手”，吉伦说。其他包装食品公司的情况也是如此。所有这些公司都是由同一小群机构股东所拥有。
+他说就是按照医学来说，它分解完以后
+He said that according to the medicine, after it is decomposed
 
-**大科技的垄断**
+通过整个食道分解以后，他说直接影响的是你的神经系统
+after breaking down through the entire esophagus, he said that it directly affects your nervous system
 
-这些投资公司的垄断并不局限于包装食品行业。你会发现他们也在支配着几乎所有其他行业。以大科技公司为例。在前十大科技公司中，我们发现苹果、三星、Alphabet（谷歌的母公司）、微软、华为、戴尔、IBM和索尼。
+然后才是你的消化系统，包括血液
+then is your digestive system, including blood
 
-在这里，我们发现同样的“俄罗斯套娃”的设置。例如，Facebook拥有Whatsapp和Instagram。Alphabet拥有谷歌和所有谷歌相关业务，包括YouTube和Gmail。它也是安卓系统的最大开发商，是苹果的主要竞争对手。微软拥有Windows和Xbox。总的来说，四家母公司生产的软件几乎被世界上所有的电脑、平板电脑和智能手机使用。那么，谁拥有它们呢？这里有一个样本：
+他说针打进去以后，直接影响这些血液循环系统
+He said that after the injection, it directly affects these blood circulatory systems
 
-- 脸书–超过80%的脸书股票由机构投资者持有，排名靠前的机构持有者与食品行业中的机构相同。截至2021年3月底，Vanguard和Blackrock是前两名。国泰君安公司是第五大股东
-- 苹果–前四大机构投资者是Vanguard、Blackrock、Berkshire Hathaway和State Street Corporation
+他说这是很可怕的，他认为这个药吃完以后，
+He said it was terrible, and he thought that after taking this medicine
 
+他说这个人呐，他说这个人可能很慢，有慢性的副反应
+He said this person, he said that this person may have slow chronic side effects
 
-- 微软–前三大机构股东是Vanguard、Blackrock和道富公司
+但是对人神经和血液循环系统和循环系统的毁灭性
+But it is devastating to human nerves and blood circulatory system and circulatory system
 
+就是你不知不觉，你这个人就成了傻子
+If you didn’t know it, you became a fool
 
-你可以继续浏览科技品牌的名单–制造电脑、智能手机、电子产品和家用电器的公司–你会反复发现Vanguard、Blackrock、Berkshire Hathaway和State Street Corporation都是最大的股东。
+你就心梗、脑梗、心脏病死，而且不可寻找就这更加没那么直接
+People die from myocardial infarction, cerebral infarction, heart attack, and you can’t find it, it’s not so direct
 
-**参考资料：**[truthunmuted.org] [Blackrock and Vanguard Behind the Global Takeover and Vaccine Mandates](https://truthunmuted.org/blackrock-and-vanguard-behind-the-global-takeover-and-vaccine-mandates/)
+不是血管出来了，爆管了，脑梗了，心梗了
+It’s not only the blood vessel burst, the brain infarction, the myocardial infarction
 
-接下篇：全球收购和疫苗任务背后的黑石和先锋公司（二）
+你慢慢的就是癌症，然后什么慢性病，爆发症，就死了
+People slowly get cancer, and then any chronic diseases, outbreaks and then die
+
+他说这个太毒了，他对冠状病毒疫苗咱们这个科学家都没那么激动
+He said this is too toxic, and he is not so agitated about the coronavirus vaccine as a scientist
+
+这就是今天告诉大家，碰都别碰，想都别想
+This is what I told you today, don’t touch it, don’t even think about it
+
+谢谢
+Thank you
 
 * * *
 
-*审核：蚂蚁兄弟
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+Date:11/14/2021
+原视频标题: 中共病毒口服药比疫苗还毒
+CCP virus oral medicine is more poisonous than vaccine
+原视频日期：2021/11/10
+原视频链接 [https://twitter.com/se1y7cblljselva/status/1459004434735067136?s=24](https://twitter.com/se1y7cblljselva/status/1459004434735067136?s=24)
+任务编号：KC255（2858）
+视频时间段 : 0:00-2:16
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
