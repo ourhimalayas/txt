@@ -2,25 +2,27 @@
 ---
 
 
-## 美日海军南海潜舰联合训练演习
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672207/)
+## 中共国又一名抗疫医生猝死
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672215/)
 
-作者：纽约香草山 医疗部 – 云豹
+作者：纽约香草山教育部 – Noemi
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月16日，日本防卫省海上自卫队发文表示，日本正在南海与美国的驱逐舰和反潜飞机共同执行潜舰的追踪反潜训练。
+当地时间11月13日，中共媒体报道称，一名一线抗疫医生突发性死亡，年仅三十岁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-13.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-11.jpeg)
 
-文中还提到，日方除了潜舰外，还派出了“加贺号”等两艘护航舰及反潜巡逻机，协同进行美日海军的联合训练。
+资料显示，逝者名为李鸿雁，原是一位血液内科医生，疫情期间，其所在的发热门诊任务更为繁重，李鸿雁前去支援，最终却倒在了完成任务之后的隔离期。
 
-评论指出，美日此次的南海联合潜舰训练，意在警告中共：南海实为国际海域，任何国家的船舰皆有自由航行权。国际社会绝不允许中共私自在南海将岛礁人工军事化，强行将南海变成中共掌控的内海，破坏世界航海秩序。
+另据报道，中共国强推毒疫苗的第一批受害者大多为医护人员，且疫苗接种与否往往与相关人员的工作、晋升密切相关。值得注意的是，疫情期间，中共国内猝死的医生人数已远超因感染新冠病毒死亡的人数。
 
-参考链接：[牽制中國 日美首度舉行南海潛艦共同訓練](https://www.cna.com.tw/news/firstnews/202111160344.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+郭文贵先生曾在直播中爆料，当前中共国内的医护人员极为短缺，其主要原因在于，大多数医护人员被强制接种了新冠毒疫苗，其后许多人仍然感染了新冠病毒，从而导致并发症，甚至死亡。而中共新冠疫苗来带的次生灾难，以及由此引发的医护人员猝死等现象或将形成一个死循环，最终会导致中共国内医疗系统的全面崩塌。
+
+参考链接：[又一位医生倒在抗疫一线，年仅30岁](https://user.observersnews.com/main/content?id=634430&amp;s=fwtjgzwz)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：文特
-编辑：文特 
+总编：文徬
+编辑：Kathy文艺 
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
@@ -30,8 +32,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,27 +2,27 @@
 ---
 
 
-## 有声|意大利政府对中共国收购军用无人机公司提出正式控告
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1672206/)
+## 美日海军南海潜舰联合训练演习
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672207/)
 
-配音：香草山教育部 – 蒙古鸿雁
+作者：纽约香草山 医疗部 – 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月16日，日本防卫省海上自卫队发文表示，日本正在南海与美国的驱逐舰和反潜飞机共同执行潜舰的追踪反潜训练。
 
-据路透社11月16日报道，今年8月，意大利政府对一家位于意大利北部波代诺省的飞机制造商——阿尔皮航空（Alpi Aviation）2018年进行的75%股权交易进行了调查，以了解政府是否应该根据具有重要战略意义资产的黄金权力法规获得有关交易的通知。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-13.jpeg)
 
-意大利税务警方早前表示，这笔交易“显然”是对技术的掠夺性投资。据悉，中共国投资者为其75% 的股份支付了近600万欧元。意大利政府认为中共国投资者对一家军用无人机公司的收购需要得到意大利政府的批准。政府正准备向所有相关方发出正式通知，要求他们做出澄清。
+文中还提到，日方除了潜舰外，还派出了“加贺号”等两艘护航舰及反潜巡逻机，协同进行美日海军的联合训练。
 
-通过一连串的投资工具参与收购的中共国集团是中国企业联合投资控股公司和华润资本控股公司，这两个公司由无锡蠡园经济开发区管理委员会和国资委控制。
+评论指出，美日此次的南海联合潜舰训练，意在警告中共：南海实为国际海域，任何国家的船舰皆有自由航行权。国际社会绝不允许中共私自在南海将岛礁人工军事化，强行将南海变成中共掌控的内海，破坏世界航海秩序。
 
-这笔交易表明，在美国和欧洲监控中共国投资者对其国家安全的潜在风险的压力上升之际，企业所有权的变化是多么容易被忽视。
+参考链接：[牽制中國 日美首度舉行南海潛艦共同訓練](https://www.cna.com.tw/news/firstnews/202111160344.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-自2012年以来，意大利迄今已四次使用其黄金权力来阻止外国在意大利的收购。其中三次阻止了中共国的竞标。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-文字版原文：[意大利政府对中共国收购军用无人机公司提出正式控告](https://gnews.org/zh-hans/1670544/)
+总编：文特
+编辑：文特 
+校正/发稿：谐趣园
 
-音频处理：喜山必胜Maverick
-
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
@@ -30,6 +30,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
