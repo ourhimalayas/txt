@@ -2,35 +2,23 @@
 ---
 
 
-## “现在就是张伯伦时刻”——纳瓦罗先生评拜习视频会晤
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1670429/)
+## 韩昨日新确诊3187例，是疫情爆发以来的第二新高
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1670575/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-15日，拜登跟习近平视频会晤时，纳瓦罗先生指出，“现在就是张伯伦时刻”，并引用丘吉尔的话评论：“在战争和耻辱的选择面前，选择了耻辱那必将带来战争”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4-12.jpg)
-针对拜登可能单方面撤销对中共国的关税，作为经济学家的纳瓦罗指出，取消关税不会改善目前美国所面临的通胀，相反只会加剧贸易逆差，让美国变得更虚弱。
+韩国首尔天池农场——追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-17-at-11.56.06-1.jpeg)图片来自韩国KBS新闻网站
+韩国KBS新闻11月17日的报道，根据韩国中央防疫对策本部17日的通报，截至当天0时，韩国较前一天0时新增中共病毒确诊病例3187例，创爆发疫情以来的第二新高。
 
-对于台湾问题，纳瓦罗表示，拜登没有对台湾有所表态，习一旦对台有所动作就会进一步对美国提出得寸进尺的要求。拜登政府的软弱最终只会带来战争。
+单日新增病例较前一天增加了3187例，其中国内累计确诊病例3163例，境外输入病例24例，累计确诊病例突破40万例。
 
-参考链接：
-1. [“现在就是张伯伦时刻”——纳瓦罗先生评拜习视频会晤](https://www.gettr.com/post/ph34re0a60)
-2. [“现在就是张伯伦时刻”——纳瓦罗先生评拜习视频会晤](https://www.sohu.com/a/501500825_313745)
-3. [“现在就是张伯伦时刻”——纳瓦罗先生评拜习视频会晤](https://news.sina.com.cn/w/2021-11-15/doc-iktzscyy5665928.shtml)
+截至17日0时，全国已有4206.27万人接种首剂新冠疫苗，占总人口的81.92%，完成疫苗全程接种的人员共计4024.32万人，占总人口的78.37%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+韩国本月1日开始进入第一阶段的“与疫共存”的生活模式，平均每天的感染人数超过2000例，首尔重症患者床位使用率超过75%。
 
-总编：文徬
-编辑：木白
-校对/发稿：Hetangyuese
+韩政府对策本部在15日的记者会上表示“床位尚有余位，政府正在集中力量推动疫苗加强针接种工作”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+[参考新闻](https://mn.kbs.co.kr/mobile/news/view.do?ncd=5326981)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

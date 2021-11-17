@@ -2,44 +2,50 @@
 ---
 
 
-## 中国在全球财富竞赛中超过了美国
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1671075/)
+## “滞涨”“通涨”已并行，疫苗灾难还没来
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1671123/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/中美.png)图片来源：*Representational Image. News18*
+作者：日本方舟农场 – Andy5
 
 
-翻译：文杨
-校对：Candy
 
-麦肯锡公司 (McKinsey & Co) 的一份最新《报告》显示：随着全球财富激增，中国已超过美国，成为拥有最大净资产的国家。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-根据《彭博社》的报道，这家咨询公司表示：中国的财富在过去 20 年里飙升，其净资产从 2000 年的 7 万亿美元，增长到 2020 年的 120 万亿美元，增长了 17 倍。在此期间，该国约占全球净资产增长的三分之一。 2000年，中国加入世界贸易组织，经济加速发展。
 
-西方认为中国是反商业的。但金钱告诉我们一个不同的故事。
 
-美国的财富在同一时期翻了一番。麦肯锡说：在十大最富有国家的名单上，华盛顿不得不让位给北京，因为它的净资产在2020年只达到90万亿美元。
+11月15日 ，中共国家统计局称受到三季度疫情和汛情等因素冲击，经济增速放缓，造成了原材料供给吃紧、产品出厂价格涨幅扩大等“滞涨”现象。
 
-《报告》称：在这两个国家，超过三分之二的财富集中在最富有的 10% 的家庭。并补充说：这一比例一直在增加。
+而同一天，美联储官员卡什卡利在CBS节目中警告，未来几个月可能会出现更高的“通胀”数据。而在此之前，美国劳工部数据表明，美国通胀率处于30年来的历史高位。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.2-8.jpg)
+目前，中美分别处于“滞涨”和“通胀”状态，而全世界经济没有复苏的迹象。近日，郭先生在直播中多次提醒：中共病毒疫苗灾难远没有到来，目前造成的经济损失只是“零头”。所有人需要为将到来的疫苗灾难做好准备。
 
-总体而言，2020 年全球财富达到 514 万亿美元，高于 2000 年的 156 万亿美元。
+参考链接：
+1. [国家统计局：经济看起来好像出现了一些滞胀的表象，但这是一种阶段性的状况](https://news.sina.com.cn/c/2021-11-15/doc-iktzscyy5610803.shtml)
+2. [30年来高位！美联储官员警告：美国通胀未来几个月将进一步恶化！](https://finance.sina.com.cn/roll/2021-11-15/doc-iktzscyy5637783.shtml)
 
-麦肯锡说：这些财富中约有 68% 存储在房地产中，并补充说：其快速增长超过了同期全球 GDP 的增长。 该公司表示：全球财富增长是由不断膨胀的房地产价格推动的，并警告说：房地产价值飙升可能是不可持续的。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-麦肯锡表示：高房价可能让许多人买不起住宅物业，并补充说：这种情况可能导致类似于 2008 年由美国房地产泡沫破裂引发的新金融危机。 这一次，由于房地产开发商欠下的债务，它也可能影响中国。
+总编：飞虹
+编辑：木白
+校对/发稿：为真不破20
 
-这家咨询公司表示：资产价格暴跌可能会使全球多达三分之一的财富消失。
+**更多资讯，更多关注**
 
-参考来源：[https://www.rt.com/news/540351-china-us-global-wealth-race/](https://www.rt.com/news/540351-china-us-global-wealth-race/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-***发布：Candy***
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**更多资讯，请关注：**
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

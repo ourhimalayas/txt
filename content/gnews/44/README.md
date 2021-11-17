@@ -2,22 +2,32 @@
 ---
 
 
-## 韩昨日新确诊3187例，是疫情爆发以来的第二新高
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1670575/)
+## GTV新闻访谈简报|2021年11月16日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670631/)
 
-韩国首尔天池农场——追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-17-at-11.56.06-1.jpeg)图片来自韩国KBS新闻网站
-韩国KBS新闻11月17日的报道，根据韩国中央防疫对策本部17日的通报，截至当天0时，韩国较前一天0时新增中共病毒确诊病例3187例，创爆发疫情以来的第二新高。
+作者：香草山翻译部
 
-单日新增病例较前一天增加了3187例，其中国内累计确诊病例3163例，境外输入病例24例，累计确诊病例突破40万例。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-4.jpg)
 
-截至17日0时，全国已有4206.27万人接种首剂新冠疫苗，占总人口的81.92%，完成疫苗全程接种的人员共计4024.32万人，占总人口的78.37%。
 
-韩国本月1日开始进入第一阶段的“与疫共存”的生活模式，平均每天的感染人数超过2000例，首尔重症患者床位使用率超过75%。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1116text-SC.png)
+校对：Stay文苑
 
-韩政府对策本部在15日的记者会上表示“床位尚有余位，政府正在集中力量推动疫苗加强针接种工作”。
+编辑：Stay文苑
 
-[参考新闻](https://mn.kbs.co.kr/mobile/news/view.do?ncd=5326981)
+发稿：Stay文苑
+
+视频参看：[11.16  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61945ad7e7e7703792360018)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
 
  
 

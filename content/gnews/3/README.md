@@ -2,49 +2,38 @@
 ---
 
 
-## 可使用喜币、喜美元在迪拜购置房产
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1671205/)
+## DC大中华时事：中共墙内宣传拜习视频会
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1671259/)
 
-作者：纽约香草山教育部 – Noemi
+*编辑：西北风 / 作图：*虎子哥
 
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
 
+#   墙国妄语每日驳
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+### 11.17.2021
 
+[福奇：若所有美国人接种疫苗加强针 美或于明年春季控制疫情\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/world/20211117/2460090.shtml)
 
+***简评：***中**国大陆新冠役情全国肆虐，各地封城，封区，危机情形前所未有，既使在2020年新冠刚爆发这种全国范围，如此之广也未曾有过。结合爆料革命的信息，我们也己预感到新的一波美国及全球新冠病毒大爆发要来了。结合福奇的讲话，疫苗接种是要强推下去了，世界正在大觉醒，中共和世界暗势力就要制造更大的恐慌，这是一场正义与邪恶生死较量，这场较量超越了国家，种族，地域和不同的信仰，其广度和深度历史上前所未有。**
 
-11月15日，文贵先生在盖特中公布，使用喜币、喜美元已经可以在阿联酋首都迪拜购置房产。
+### 11.17.2021
 
-Danube公司是UAE排名全十的房地产开发公司，日前正式同意并签署了相关的房地产代理销售协议。可以使用喜币、喜美元来购买Danube公司开发的任意房产。
+[外媒：北交所揭牌开市具有标志性意义\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/finance/20211117/2460062.shtml)
 
-据悉，该合约的签订距离喜币上市不过两周多的时间，而目前H pay功能还未正式上线。在文贵先生的盖文下，有网友留言表示：这一切都来得太快了，喜币是数字货币之王。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.3-4.jpg)
-参考链接：
-[UAE迪拜可以用喜币喜美元购买房产了（第一篇）](https://gettr.com/post/ph0j7i743f)
+***简评：*通过郭先生的爆料我们都知道中共成立北交所就是把中共国人民币和中共国政治经济国际化，引入外国中小企业，至北交所融获人民币，直接推进人民币国际化。图穷匕见，数字人民币国际化，就是要颠覆美元系统。货币霸权是现在和未来世界经济政治斗争终极目的。中共妄想在这场不见嚣烟的世界生化大战争从美国拿走美元世界储备货币的霸权既疯狂，又名无知，首先那些美元的股东会答应吗？沼泽地的主人会答应吗？更有全世界经济体会充许一个假骗黑的极权政体去控制一个最高权力代表货币？中共这一切努力注定是徒劳的。 **
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+11.17.2021
 
-总编：文徬
-编辑：木白
-校对/发稿：为真不破20
+[时政新闻眼丨一场举世瞩目的视频会晤，发出哪些强有力信号？ (huanqiu.com)](https://china.huanqiu.com/article/45cPk5hxIpw)
 
-**更多资讯，更多关注**
+***简评：*很显然，中共如果没有世界黑暗势力的全面配合，这种瞒天过海的计量不可能成功，不可能持续下去。现在我们越来越多的了解疫苗真相，尽管这只是真相刚刚开始，疫苗对人体治命的就是刺突蛋白，这是一个经过基因改造过的。拜习会只是一个政治作秀，拜登只是一个政客，一个台前木偶，他只是黑暗势力的代言人。但也明白无误告诉我们，中共和黑暗势力合作的事实。而且他们要更进一步合作，中共的邪恶己是前无古人。他们要一起合作，这个世界真的是处在黑暗时刻，而黑暗时刻还只是刚刚开始，这个世界危机灾难己远非世界大战、生化战争这类字眼去形容都显得苍白无力。**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+#   港台资讯
+![](https://media.discordapp.net/attachments/858887785507323904/910362403844259870/01.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/910362440347308142/02.png?width=1043&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/910362526871601192/3.png?width=1043&amp;height=586)
+*编辑：*西北风
+*作图：虎子哥
+发布：文顾*
 
  
 

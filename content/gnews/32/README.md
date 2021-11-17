@@ -2,17 +2,22 @@
 ---
 
 
-## 黑暗已经到来请做好准备
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1670893/)
+## 雅典娜时报-第115期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1670957/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-11月14日，郭文贵先生在GTV大直播再次预警，郭先生从2017年起就说过，中共在全世界做下的恶，最终都会由华人去买单。近来旧金山、洛杉矶、伦敦等地的华人不时受到当地人的排挤、辱骂和打压，这种现象将在世界各地扩散开去。黑暗已经降临，在西方的华人需做好各方面的准备。
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-118.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-33.png)
+***发布：小红帽***
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
