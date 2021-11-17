@@ -2,24 +2,43 @@
 ---
 
 
-## 中共国米面开始涨价，老百姓要护紧钱袋子
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1670916/)
+## 郭文贵先生高度肯定 班农注定成为美国政治教父级的人物
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1671284/)
 
-撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12-5.jpg)[图片来源](https://twgreatdaily.com/zh-my/487042248_120919952-sh.html)
-近期，中共国内肉蛋连续涨价，蔬菜价格居高不下，如今涨价潮终于蔓延至米面主食。号称中国“面业第一股”的克明食品日前宣布，将对公司各系列产品上调价格。
+作者：澳喜农场-在远方
 
-11 月 13日，克明食品发布公告称，鉴于面粉、包材、运输等成本持续上涨，该公司经过研究并“审慎考虑后”，决定对公司各系列产品上调价格，而新的价格政策将从2021年12月1日起执行。克明食品称，本次部分产品调价可能对市场销售有一定影响，调价对公司未来业绩的影响具有不确定性，提请投资者理性投资，注意风险。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
 
-由于大众消费品价格上涨都是由成本上升推动的，表明中共国的通胀压力正从生产领域向消费领域传导。中共倒台前，各种问题都在发生，墙内老百姓需要看清实质，平安渡过黑暗时期。
 
-信息来源：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1114-3.jpg)
+在11月14日的大直播中，郭文贵先生高度肯定，班农无疑会成为美国的政治教父。美国建国以及华盛顿有史以来，班农是因为国会起诉而被逮捕的第一人。但是，在美国被逮捕，很快就会被释放，跟中共国完全不一样。 美国司法部起诉班农先生的背景，始于美国众议院特别委员会，调查1月6日美国国会大厦的暴动。班农事件将使共和党保守派更加清醒，并开始反击。同时也会让大家意识到，中共对美国国会和司法的渗透之深。国会在民主党的把控下，美国选举不可能公正。 郭先生说，班农先生被逮捕，将导致美国媒体大重启的到来。班农先生一定是美国未来影响深远的，政治上教父级的人物。未来对班农先生的评价，一定是正面的。
 
-[涨价蔓延到主食 大陆“面业第一股”宣布涨价](http://cn.ntdtv.com/gb/2021/11/13/a103268354.html)
+新闻来源：[https://gnews.org/zh-hans/1663784/](https://gnews.org/zh-hans/1663784/)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+编辑：Kathy文艺
+
+总编：AN
+
+上传：浪迹天涯
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

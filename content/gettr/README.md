@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/17/2021 6:34 PM (UTC)`
+
+11月17日：七哥在茅屎坑里渡过的岁月，心中有万佛万神．还能与魔鬼打交道……最重要的事情要实现自己的目标……在这个过程当中能保持洁身自重！醉而不乱……分享成功与利益，而不乱法．失,,德！才是考验一个人的本性……是否能走向成功最关键的根本性基础！
+![img](https://media.gettr.com/group7/getter/2021/11/17/18/6ed145d8-2030-22e9-2122-7362d70543ad/0c4958bc5c519665391fb2e49731cd94.jpg)
+
+---
+
 `@miles 11/17/2021 6:19 PM (UTC)`
 
 11月17号：只有广交朋友．行走万里路．而且这是一个长期循序渐进的过程……才具备辩真假．识善恶的真实的能力……
@@ -292,13 +299,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 10月12号：2002年的文贵98公斤，体重．比猪头还猪头……你们知道照片里的我．在干什么吗？
 ![img](https://media.gettr.com/group5/getter/2021/11/13/00/43/3813716e-817d-8acb-c620-ae4b0717bc7c/6bfa2f8c304c02ff3763276401a2d13f.jpg)
-
----
-
-`@miles 11/12/2021 11:52 PM (UTC)`
-
-11/12/2021 Miles Guo: Part of the funding for the building of the defense of the New Federal State of China (NFSC) must come from our fellow fighters; we will ask mercenaries from the US, UK, and Japan to train the future generations of the NFSC, and we will build our own naval, air and space forces; we will release the standards for our military recruitment and training in 3 months<br/><br/>11/12/2021 文贵直播：新中国联邦国防建设的部分资金必须来自战友们；我们将请美英日等国的雇佣军来训练新中国联邦的后代，并建立我们自己的海军、空军和空间部队；我们将在3个月内公布招兵和军训的标准<br/>
-![img](https://media.gettr.com/group42/getter/2021/11/12/23/52/74b0d70c-97d1-ffb8-e128-d1e34bae805e/out.jpg)
 
 ---
 
