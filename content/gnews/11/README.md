@@ -2,10 +2,10 @@
 ---
 
 
-## 班农：我们将发起进攻，捍卫你们所有人的权利
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1672712/)
+## 盖特电视广告在福克斯新闻网塔克秀期间闪亮登场
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1672722/)
 
-11/15/2021 班农：言论自由就是这个国家的意义所在。我们将发起进攻，捍卫你们所有人的权利。
+11/15/2021 盖特电视广告在福克斯新闻网塔克秀期间闪亮登场
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
