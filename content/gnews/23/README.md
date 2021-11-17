@@ -2,32 +2,42 @@
 ---
 
 
-## 超过1万名澳大利亚人已经向政府提出了中共病毒疫苗伤害索赔
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671260/)
+## 郭文贵先生高度肯定 班农注定成为美国政治教父级的人物
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1671284/)
 
-撰稿：Grace
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-28.png)
-图片来源：yahoo
+作者：澳喜农场-在远方
 
-据《 悉尼先驱晨报 》11月16日报道，目前已经有超过1万名澳大利亚人，向其政府提出了中共病毒疫苗伤害索赔。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
 
-报道称，澳大利亚服务局（Services Australia）正在建立一个在线门户网站，将于下个月推出，对于因中共病毒疫苗而受伤和失去收入的人，提出的超过 5000 美元的无上限索赔，医疗费用和工资损失的赔偿将由政府支付。
 
-遭遇中度至重度不良反应，导致至少住院一晚的人，可享受政府的疫苗赔偿计划。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1114-3.jpg)
+在11月14日的大直播中，郭文贵先生高度肯定，班农无疑会成为美国的政治教父。美国建国以及华盛顿有史以来，班农是因为国会起诉而被逮捕的第一人。但是，在美国被逮捕，很快就会被释放，跟中共国完全不一样。 美国司法部起诉班农先生的背景，始于美国众议院特别委员会，调查1月6日美国国会大厦的暴动。班农事件将使共和党保守派更加清醒，并开始反击。同时也会让大家意识到，中共对美国国会和司法的渗透之深。国会在民主党的把控下，美国选举不可能公正。 郭先生说，班农先生被逮捕，将导致美国媒体大重启的到来。班农先生一定是美国未来影响深远的，政治上教父级的人物。未来对班农先生的评价，一定是正面的。
 
-要求20,000美元或以下的索赔者，将需要提交他们受伤及其与中共病毒疫苗接种的关系、医疗费用和工资损失的证据。
+新闻来源：[https://gnews.org/zh-hans/1663784/](https://gnews.org/zh-hans/1663784/)
 
-超过2万美元的索赔，包括死亡索赔，将由一个独立的法律专家小组评估，并根据他们的建议支付赔偿。
+编辑：Kathy文艺
 
-但是，目前，澳大利亚政府没有透露，需要什么样的证据标准，来证明该人的伤害是由疫苗造成的。
+总编：AN
 
-据报道，澳大利亚的治疗用品管理局(The Therapeutic Goods Administration)，记录了78,880起与接种中共病毒疫苗有关的不良事件。
+上传：浪迹天涯
 
-报道称，该疫苗赔偿计划涵盖的不良反应，是基于治疗用品管理局的建议，将包括心脏疾病心肌炎和心包炎，血栓性疾病血小板减少症，罕见的神经系统疾病吉兰-巴雷综合症和免疫性血小板减少症。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
 
-官方数据显示，自9月联邦卫生部门网站开放登记以来，已有超过1万人登记了他们的索赔意向，这意味着如果每项索赔获得批准，那么政府将至少花费5000万美元。这也意味着澳大利亚的纳税人正面临着为大量的中共病毒疫苗伤害支付的高额账单。
+**更多资讯，更多关注**
 
-**新闻来源：**** **[**More than 10,000 Australians have filed coronavirus vaccine injury claims**](https://www.smh.com.au/politics/federal/more-than-10-000-australians-have-filed-coronavirus-vaccine-injury-claims-20211115-p598yy.html)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
+
+
 
  
 

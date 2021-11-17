@@ -2,49 +2,34 @@
 ---
 
 
-## 可使用喜币、喜美元在迪拜购置房产
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1671205/)
+## 脸书员工因“脸书丢脸”正大量外流 加入盖特是最佳选择
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671252/)
 
-作者：纽约香草山教育部 – Noemi
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-75.png)
+（图片来自网络）
 
+脸书公司近期因一系列丑闻深陷各种麻烦，声誉严重受损。而脸书员工因“脸书丢脸”，目前正在大量外流。
 
+据《希望之声》2021年11月16日报道，近日，科技招聘公司和业界人士表示，目前脸书公司内部正形成一股员工外流的趋势，并且脸书公司在招聘员工方面也遇到了更多困难。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+据美媒《商业内幕》（Business Insider）近日报道，科技招聘人员和其它行业人士表示，更多的脸书员工——从高管到工程师，正在其它地方寻找工作。其中一个原因是，一系列丑闻使这家社交媒体巨头声誉严重受损。
 
+脸书前员工、举报人豪根（Frances Haugen）的律师最近公布的内部文件显示，脸书知道自己在一些事件中发挥了一定的作用，对公司造成了伤害，但却对员工的警告视而不见。此外，多年来该公司还存在许多其它问题，例如用户增长放缓、监管调查、外国对该平台的操纵以及遭受重罚等。
 
+“斯坦顿大通国际咨询公司”（Stanton Chase）北美技术业务主管塞尔克（Greg Selker）指出，现在越来越多的脸书员工已经选择另谋出路。塞尔克称，他每周都会与脸书员工联系， 发现脸书的员工正在大量外流。
 
-11月15日，文贵先生在盖特中公布，使用喜币、喜美元已经可以在阿联酋首都迪拜购置房产。
+科技招聘公司Build Talent的创始人瓜尔达多（Jose Guardado）也表示，他也看到有更多人离开脸书公司，而且这种状态已经持续了一段时间。
 
-Danube公司是UAE排名全十的房地产开发公司，日前正式同意并签署了相关的房地产代理销售协议。可以使用喜币、喜美元来购买Danube公司开发的任意房产。
+此外，一些科技行业的招聘人员证实，虽然脸书的薪酬很高，但员工仍然被挖走，或者正在考虑离职，因为一些员工担心留在脸书会存在潜在的声誉损失。
 
-据悉，该合约的签订距离喜币上市不过两周多的时间，而目前H pay功能还未正式上线。在文贵先生的盖文下，有网友留言表示：这一切都来得太快了，喜币是数字货币之王。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.3-4.jpg)
-参考链接：
-[UAE迪拜可以用喜币喜美元购买房产了（第一篇）](https://gettr.com/post/ph0j7i743f)
+近期，已经陆续有几位脸书的高层员工离职，包括前应用程序主管菲吉·西莫（Fidji Simo）、前广告主管卡罗琳·埃弗森（Carolyn Everson）、前首席营收官费舍尔（David Fischer）等。此外，脸书首席技术官斯科洛普夫（Mike Schroepfer）近期也宣布他将于明年卸任。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+对于这些脸书高管和员工的离职，笔者十分称赞他们坚守价值观的勇气。但与此同时，笔者更想告诉他们的是，这世上还有一个独一无二、潜力无限、坚持正义、揭示真相、不只为攫取利益、真正保护言论自由并坚守文明价值观的媒体——盖特（GATTR），盖特或许是你们的最佳选择！
 
-总编：文徬
-编辑：木白
-校对/发稿：为真不破20
+注：本文仅代表作者观点
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**新闻链接：**[https://twitter.com/SoundofHopeSOH/status/1460461243161092096](https://twitter.com/SoundofHopeSOH/status/1460461243161092096)
 
  
 

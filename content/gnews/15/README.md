@@ -2,32 +2,24 @@
 ---
 
 
-## 山东国信24亿信托产品踩雷，股价反复“腰斩”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1671287/)
+## 美国医生开具伊维菌素治疗中共病毒遭受匿名投诉
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671319/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-13.jpg)山东国信24亿信托产品踩雷，股价反复“腰斩” 网络图片
-据新浪财经11月16日报道，号称“港股信托第一股”的山东国信股价近日连续暴跌，在0.6港元左右维持了数月之后，从10月22日开始至11月12日收盘，其股价仅为0.345港元，再一次“腰斩”。
+#### 撰稿：彩虹
 
-山东国信成立于1987年3月，是经中国人民银行和山东省人民政府批准设立的非银行金融机构，2017年12月在香港联交所H股挂牌上市。山东国信于2020年11月4日至2021年4月16日设立了“山东信托–青山20号集合资金信托计划”，由平安银行代销。山东国信作为受托人，与深圳市宝能投资集团有限公司、太原市宝创置业有限公司及太原市宝能泰盛置业有限公司签署的《山东信托-青山20号集合资金信托计划之债权债务确认暨还款合同》显示，债务人宝能投资集团应于9月22日向山东信托支付第三季度利息共0.67亿元。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-11.jpg)图片来源：政客
+共和党众议员安迪·哈里斯（Andy Harris）是一名医生，有人向马里兰州医疗委员会进行匿名投诉，指哈里斯为中共病毒（COVID-19）患者开具伊维菌素。11月16日，《国会山报》对此进行了报道。
 
-今年8月，宝能集团曝出违约事件。9月22日，山东国信发布公告称，宝能集团因未能按期支付利息，构成实质性违约。山东信托宣布该信托计划（含债权本金24亿元及利息款）提前到期结束，要求债务人履行偿债义务，并通知相关担保人履行担保义务。
+文章说，三个月前，《华盛顿邮报》报道哈里斯与妻子一起参加“Casey & Company”广播节目，节目中，哈里斯说：“我开了一张伊维菌素的药方，我想大概是三四周前吧。是的，找不到药店拿到此药，因为情况已经变得很糟糕，药剂师们只是一味地拒绝进货此药。”
 
-在中共这样一个没有信用、没有担保、没有监管的金融体系中，没有任何信托产品是安全的、是值得信任的，因为拼的不是实力和能力，而是关系和欺骗。谁的关系广，谁的骗术高，谁就是赢家。整个金融系统在这样的环境下运行，最终的结果就是所有的产品都会违约、都会爆雷。有能耐骗钱，没能耐还钱。一起违约，一起破产。
+周一，据《巴尔的摩太阳报》报道，在众议院自由核心小组关于强制接种疫苗会议上，哈里斯暗示了受到投诉。哈里斯说：“目前有人试图对我开伊维菌素的医疗执照采取行动，我觉得这很让人感兴趣，因为作为一名麻醉师，我知道我使用了很多标签外的药物，这是很危险的行为。”
 
-新闻参考链接：[https://finance.sina.cn/chanjing/gsxw/2021-11-16/detail-iktzqtyu7581170.d.html?sinawapsharesource=newsapp](https://finance.sina.cn/chanjing/gsxw/2021-11-16/detail-iktzqtyu7581170.d.html?sinawapsharesource=newsapp)
+会后，哈里斯告诉《华盛顿观察家报》，该投诉正处于 “法医委员会的调查阶段”。
 
-* * *
+《巴尔的摩太阳报》特别指出，哈里斯在会上还说，根据新型病毒的进化，他预计（现在的）疫苗在未来会变得无效。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+**新闻来源：**[Maryland Republican says complaint filed against him for prescribing ivermectin to COVID-19 patient](https://thehill.com/policy/healthcare/public-global-health/581884-maryland-republican-says-complaint-filed-against-him)
 
  
 

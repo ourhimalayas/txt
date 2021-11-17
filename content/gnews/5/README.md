@@ -2,26 +2,18 @@
 ---
 
 
-## 卢比奥搁置确认美国驻中共国大使人选
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671367/)
+## 欧盟 9 月份超额死亡率上升至 + 12%
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1671427/)
 
-#### 撰稿：彩虹
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11171.jpg)图片来自sky news
+11 月 16 日 – 欧盟的超额死亡率重新上升。欧盟统计局报告称，在 7 月份达到 + 5% 之后，超额死亡率在 8 月份上升至 + 8%，在 9 月份上升至 + 12%。虽然没有证据表明所有超额死亡都归因于新冠病毒，但随着大流行的进行，数据可以清楚地表明这种趋势。大多数欧盟成员国的情况都在逐渐恶化：9 月份的超额死亡率从保加利亚的 + 50% 到比利时、瑞典和匈牙利的 + 4% 不等。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-3-4.jpg)图片来源：News Full Circle
-11月16日，《国会山报》（The Hill）报道，周二，共和党参议员马可·卢比奥（Marco Rubio）表示，他将缓行拜登总统提名的美国驻中共国和西班牙大使人选。
+从去年 4 月开始，意大利一直低于欧盟平均水平：9 月份为 + 6.4%。欧盟的超额死亡率峰值出现在 2020 年 4 月（+ 20%），然后在 2020 年 11 月再次出现（+ 40%；当月在意大利为+ 51.6%）。2020 年 3 月，当由SARS-CoV-2 引起的疾病全面袭击意大利北部时，意大利的超额死亡率为+ 49.6%，几乎是欧盟平均水平（+ 13.7%）的三倍。
 
-卢比奥说，他已经搁置了尼古拉斯·伯恩斯（Nicholas Burns）担任驻中共国大使的提名和朱莉莎·雷诺索·潘塔莱昂（Julissa Reynoso Pantaleón）担任驻西班牙大使的提名。
+原文链接：[https://www.today.it/partner/adnkronos/salute/covid-eurostat-mortalita-in-eccesso-ue-sale-a-12-in-settembre.html](https://www.today.it/partner/adnkronos/salute/covid-eurostat-mortalita-in-eccesso-ue-sale-a-12-in-settembre.html)
 
-在一份声明中，卢比奥说，此前在小布什和克林顿政府时期在国务院工作期间，伯恩斯“被认定为无法理解中国共产党构成的威胁”。
-
-对于雷诺索，卢比奥称她是古巴卡斯特罗政府的“同情者和辩护人”，“绝对没有资格进入我们的政府”。他说：“我相信……雷诺索不会推动西班牙对古巴、尼加拉瓜和委内瑞拉的独裁政权施加压力”。
-
-文章说，作为担任第一夫人吉尔·拜登（Jill Biden）的办公室主任和总统助理的雷诺索，此前曾担任驻乌拉圭大使和奥巴马政府西半球事务局副助理部长,负责中美洲和加勒比地区。
-
-**新闻来源**
-
-[Rubio vows to slow-walk Biden’s China, Spain ambassador nominees](https://thehill.com/homenews/senate/581888-rubio-vows-to-slow-walk-bidens-china-spain-ambassador-nominees)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

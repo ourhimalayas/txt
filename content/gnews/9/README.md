@@ -2,40 +2,42 @@
 ---
 
 
-## 网传王健林去世，难道是为了某种离奇死亡做铺垫？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1671320/)
+## 英国批准皮肤贴片新冠疫苗进行人体试验
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1671380/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5823-13.jpg)图片来源：The Canberra Times
-作者：顺其自然
+作者：纽约香草山教育部 – Naughty(文行)
 
-编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
 
-11月14日晚上，大陆网络热传万达董事长王健林去世的惊人消息，说他是“当天凌晨在北京去世，终年67岁”。消息越传越快，影响广泛。
 
-11月15日，万达集团官方出面“辟谣”，并且说王健林当天还参加了公司会议，并附了照片。同一天，中国的手机App“今日头条”还发布公告说，用户“身拥大海2”捏造知名商业人士去世的消息，已经被永久封禁，这“知名商人”指的就是王健林。
 
-王健林在中国可是鼎鼎大名的人物，不仅是因为万达，不仅因为他是首富，他还有一个非常高调的被网民称为国民老公的儿子王思聪。
 
-但现在我们从郭先生的爆料中得知，中国所谓的企业家也好，富豪也罢，都已经被习近平逼着要把在海外的资产卖掉，降价也要卖掉，把钱拿回来。现在的经济形势这么的差，中共已经没有钱了，但是他还要养庞大的军队和那些个维稳的武警宪特等组织。所以习近平一定要（通过）打富豪来养这个需要庞大的金钱来运转的中共组织。
 
-老百姓的兜儿里没钱了，榨不出什么油水来了，这些富豪这几十年可是赚了不少钱，很多都已经把钱给弄到海外去了。所以呢，现在就是有至少一万个企业家已经被监控、被盯着，在海外，身边跟着好几个人，然后就是各种贱卖资产，把钱往回转。其家人被当作人质、失去自由，王健林自然也不例外。那么，转完钱之后，可能（面临）各种死亡。心脏病死、跳墙死、拍照死，反正是各种离奇的死法。现在呢，网传王健林去世这个消息，我认为就是为富豪以后的各种死法来做铺垫。
+总部位于英国牛津郡的“Emergex”公司开发了一种SARS-CoV-2疫苗，旨在为体内的T细胞进行优质化，以快速去除病毒感染的细胞。疫苗可能会提供广泛的长期的变种病毒免疫力，使人们不再需要接种加强针。 Emergex周一宣布，它已获得授权，进入第1阶段，第一名患者预计将在2022年1月初接受第一剂Emergex疫苗。 该公司表示，Emergex疫苗与其他皮肤贴片技术类似，旨在使用微针将疫苗输送到身体。该疫苗在室温下也将稳定三个月以上，从而简化了分发和储存。
+![Lab samples](https://www.ctvnews.ca/polopoly_fs/1.5667502.1637024850!/httpImage/image.png_gen/derivatives/landscape_960/image.png)
+自从全球各国政府推进接种SARS-CoV-2疫苗以来，各种自媒体对疫苗造成的各种死亡以及严重副作用的报道层出不穷，然而主流媒体只是一味宣传疫苗的好处。这款疫苗通过皮肤来作用于人体，其具体成分组成不得而知，但其主要成分如果仍然是刺突蛋白的话，对人体的长期影响可以预料仍然是具有伤害性的。而且同济大学发表在细胞杂志上的文章肯定了新冠疫苗对T细胞是有伤害的，英国报道也表明注射新冠疫苗后会导致T细胞的逐渐减少。而该疫苗声称可以使T细胞优质化，去除被病毒感染的细胞，这会不会加速T细胞的衰减不得而知。而且该疫苗作用途径以及更容易保存等特点使得疫苗更加容易推广，或许会让拒绝打疫苗的普通人群感到更为担忧。
 
-我们看一下上个世纪50年代对中国民营企业家的迫害，那时提出（政策）叫“公私合营”。现在进行了四十多年的改革开放，随着习近平的大权独揽，中国又重新走回了（当年）对民营企业家迫害的年代。当然现在这一波民营企业家，由于中共的制度问题，是带有一定程度的原罪，就是他们必须官商勾结才能做生意，再加上他们自己的贪婪，所以也确实受到了底层民众的愤恨。习近平现在就借助于底层贫困百姓的对贫富急剧分化的不满的怨恨，实施2.0版的“打土豪分田地”。
+新闻链接：[https://www.ctvnews.ca/health/coronavirus/u-k-covid-19-vaccine-to-be-delivered-by-skin-patch-approved-for-human-trials-1.5667401?utm\_source=ground.news&utm\_medium=referral](https://www.ctvnews.ca/health/coronavirus/u-k-covid-19-vaccine-to-be-delivered-by-skin-patch-approved-for-human-trials-1.5667401?utm_source=ground.news&amp;utm_medium=referral)
 
-上世纪50年代的公私合营，中共对中国民营工商业，包括私营买卖的个体劳动者进行“社会主义改造”。中共未经任何合法手续，仅凭几份文件，便以“赎买”之名消灭了整个民族资产阶级，导致许多传统企业和品牌被埋葬。据不完全统计，1952年中共发动“五反运动”，以5种罪行为名清算数以千计的上海资本家，民众冲入企业办公室要求查账，资本家在威逼下只能招认所有“罪状”。在上海，短短4个月里就有876名资本家跳楼身亡。当时被誉为“煤炭大王”、“火柴大王”的上海企业家刘鸿生，名下所有企业改组为公私合营，毕生努力也收归“国有”。时任上海市长陈毅曾问：“今天又有多少空降兵？”指的就是那一天又有多少资本家跳楼自杀了。
+总编：文徬
 
-现在，习近平的手段又会使多少富豪死于非命呢？对潘石屹、张欣，以及他们的孩子，已经下了通缉令，一定要把他们弄回国，资产当然也拿回去。王健林、董文彪，这几年连国都出不了，那不是让你怎么死就怎么死吗？
+审核/编辑/上传：浪迹天涯
 
-油管视频来源：[闲聊澳洲 – YouTube](https://www.youtube.com/channel/UCPxB0vpNpmHN0hORXK4gj2A)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
 
-发布：kk
+**更多资讯，更多关注**
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
 
  
 
