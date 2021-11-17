@@ -2,27 +2,23 @@
 ---
 
 
-## 樱花灭共诗——怨三三•19届6中全会
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1671748/)
+## 台湾前线｜拜登：台湾是否独立 台湾自己决定
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1671784/)
 
-#### 作者：东京樱花团/藤田村野
-![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-高鸾殿上掌声雷， 胜利收帏。
+**台灣寶島農場 港台前線關注組 / 發佈時間｜17/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-07-14.32.38.jpeg)
+**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
 
-集一身权力党魁。
+16日[拜习会](https://gnews.org/zh-hant/1669028/)举行，美国拜登总统与习近平进行线上会谈，内容涉及贸易战、核武、新冷战冲突预防，以及香港、新疆、台湾安全问题。会议结束，双方并未有突破性共识。但美方明确不允许有片面破坏台海和平的行为。
 
-赞毛绩，邓江摧！
+中共党媒新华社，发布虚假消息称拜登总统于会议中明确表示“拜登反对台独”，引起国际热议。然而，拜登总统16日晚间在新罕布夏州的机场停机坪就被媒体问到了这个问题，**拜登强调自己是说对于两岸关系“台湾必须自己决定”，不过美国没有鼓励台湾独立**。拜登进一步表示，美国鼓励台湾遵循美国政府，完全按照台湾关系法的要求行事。
 
-升平不掩戈挥， 暗流湍、高层角追。
+**美方强调，有关拜习视讯会议的结果，请各界以美方的说明为主**。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/港台前線-（TW）-7.jpg)
+* * *
 
-决议久无媒，
+來源｜[風傳媒](https://www.storm.mg/article/4051618?page=1)
 
-千刀拼杀，只为拳锤！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/C1CB02C6-7B84-495F-8BC6-6A739CB55106.jpeg)
-*插图：东京樱花团/闪闪*
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,32 @@
 ---
 
 
-## COVID-19最新情报｜奥地利未接种疫苗 没事恐无法出门
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1671749/)
+## 法院和医院拒绝使用伊维菌素导致中共病毒患者死亡
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1671788/)
 
-**撰文｜ 台灣寶島農場 疫情關注組 / 發佈時間｜17/11/2021**
+整理报道：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4L2YVV4IMZQTMI5TJ7IGMGZHKY.jpg)图片来源：Tampabay
+11月16日，《新闻极限》引述《华盛顿观察家报》报道，指由于法院和医院拒绝使用伊维菌素治疗一名感染中共病毒（COVID-19）的妇女，导致该妇女去世，终年47岁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+12周前，塔玛拉·德罗克（Tamara Drock）在棕榈滩花园医疗中心住院，他的丈夫瑞安·德罗克（Ryan Drock）告诉《华盛顿观察家报》，他上个月提起诉讼，试图迫使医院使用伊维菌素治疗妻子，但被一名县巡回法官驳回。
 
+尽管德罗克可以收到一定剂量的伊维菌素作为最初达成交易的一部分，但家庭律师认为该剂量太低了，从而导致交易失败。
 
-根据欧洲疾病预防和控制中心的数据，奥地利约有 65% 的人口已完全接种新冠疫苗，仍再度爆发感染潮。奥地利总理认为是因为奥地利仍有数百万人尚未接种疫苗导致。
+瑞安·德罗克说：“我希望用她的名字命名一条法律，这样就没有人遭遇这些了。”
 
-奥地利政府计划，新冠重症患者占据加护病房（ICU）的三成医疗量能时，将针对“未接种族群”实施社交限制，禁止未接种新冠疫苗者进入餐厅、剧院、理发院等公共场所（包含但不限于）。
+该家庭的律师杰克·哈克斯塔布（Jake Huxtable）告诉西棕榈滩电视频道WPTV，他将就该法官的决定向第四区上诉法院提起诉讼。他说：“这是选择的自由，她有选择接受这种医疗方法的自由，但法院不允许，医院也不允许”。
 
-奥地利总理表示，这项社交限制将非常严厉，未接种疫苗者除了上班、购买生活必需品及适度户外散心外，不得离开家门。他认为这项社交限制是必要、不可避免的，因为没有理由剥夺“多数群体（已经接种疫苗族群）”的自由。
+**新闻来源**
 
-德国卫生部报告称，德国约67%人口接种过新冠疫苗（比例与英国相近），近期仍发生“单日确诊数首次突破5万例”，因此德国也计划收紧对未接种疫苗者的社交限制。
+[Florida Woman Whose Family Sued Hospital for Ivermectin Dies](https://www.newsmax.com/newsfront/florida-covid-19-death-ivermectin/2021/11/16/id/1044906/)
 
-台湾疫情稳定，但连日发生多起境外移入的突破性感染案例。据17日[新闻报导](https://tw.news.yahoo.com/%E5%A2%83%E5%A4%96%E7%A7%BB%E5%85%A5%E5%A2%9E5%E4%BE%8B-%E5%8C%97%E5%B8%82%E5%81%A5%E8%BA%AB%E6%88%BF%E6%9A%AB%E5%81%9C%E7%87%9F%E6%A5%AD%E6%81%90%E8%88%87%E6%A1%8816614%E6%9C%89%E9%97%9C-110815234.html)，有一例完全接种AZ疫苗后突破性感染个案，在参加台北市健身房课程后自费采检呈阳性，引起台湾社会关注。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-9.jpg)
-* * *
+**发布：七彩光**
 
-來源｜[DailyMail.co.uk](https://www.dailymail.co.uk/news/article-10191649/Austria-days-away-placing-millions-unvaccinated-people-lockdown.html)/[cbsnews](https://www.cbsnews.com/news/covid-lockdown-austria-unvaccinated/)
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
