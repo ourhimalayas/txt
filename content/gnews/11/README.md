@@ -2,50 +2,79 @@
 ---
 
 
-## 2021/11/17 大卫作战室直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1672999/)
+## 埃内斯·坎特发布支持台湾的视频，台湾总统回应并感谢
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1673132/)
 
-板块1–拜习会谈
+**据《Dailywire》记者：Frank Camp，2021年11月13日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/apjg0-yezmi.jpg)**图片源自原文**
+周五，波士顿凯尔特人队球员埃内斯·坎特（Enes Kanter）在他的社交媒体账户上发布了一段他支持捍卫台湾主权的视频后，台湾总统蔡英文做出了回应。
 
-1. 拜习峰会就伊朗核问题达成统一立场。伊核协议是奥巴马时期重要外交成果，拜习早已“合作共事”过，中共一直在背后支持伊朗核发展，“伊核老话题”重提只是中共又一张“空头支票”。再次证明峰会没有实际成果。
-2. 美俄制定“核削减计划”和“中导条约”逐渐实施初步达成美俄平衡，中共国暗地发展核武和中程导弹打破平衡，制造不稳定的氛围。
-3. 中共宣传拜登为“老朋友”以敲打、威胁拜登，因拜登家族跟中共的利益关系、亨特拜登事件等，拜登刻意回避“老朋友”称呼，显然“老朋友”这层关系已成为其负担。
-4. 拜登政府即将宣布外交抵制冬奥会，拜习峰会后双方“剑拔弩张”表明双方谈判分歧巨大。
-5. 拜习视频通话同时解放军军机侵犯台湾领空。中共通过海外媒体利用炒作“台独”威胁警告美方，并用军事行动强迫美国在台海问题上接受现状。拜登政府进退两难（一面用台湾完成与中共勾兑，一面面对丢弃台湾的政治压力）。
+“感谢埃内斯与台湾站在一起。我们将永远捍卫我们来之不易的自由和民主，”总统说。 “您和我们在世界各地的朋友的支持给了我们力量。台湾也是很多篮球迷的故乡，我们都为你加油。”
 
-
-板块2–财经
-
-1. 中共对虚拟资产零容忍态度，中共国加密货币媒体暂停网站（ChainNews和Odaily无法访问）。凸显中共对喜币的害怕，喜币价格继续看涨。。
+谢谢
+@埃内斯·坎特（EnesKanter）
+与台湾站在一起并捍卫民主。
 
 
-板块3–国内政治
 
-1. 王岐山谈中共国不能独立于世界发展并将继续开放对外投资。此时“搬出”王岐山继续“忽悠”世界资本，凸显中共国内部经济已经“危如累卵”。
-2. 民主党“1月6日委员会”成员伊莱恩·卢里亚被曝投资中共国阿里巴巴。中共“蓝、金、黄”民主党的又一案例，为共和党反击民主党提供“工具”，促使两党更多人觉醒。
-3. 武汉外逃官员8套房产被没收，多名外套官员被追赃。结合中共“强筛”官员进国际刑警组织事件，中共欲警告体制内的官员，“杀鸡儆猴”式阻止官员外逃，防止党心军心溃败。
-4. 环球时报报道张玉静形容其为倒霉女子。中共深知美国已掌握张玉静上下线、相关犯罪证据已收集完毕，环球时报代表中共示好，张玉静已成“弃子”。
+> Thank you [@EnesKanter](https://twitter.com/EnesKanter?ref_src=twsrc%5Etfw) for standing with [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) & standing up for democracy. [pic.twitter.com/DNBJfMiSvl](https://t.co/DNBJfMiSvl)
+> — 蔡英文 Tsai Ing-wen (@iingwen) [November 13, 2021](https://twitter.com/iingwen/status/1459364677402591240?ref_src=twsrc%5Etfw)
 
 
-**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
 
-- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
-- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
-- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
+坎特在他的Instagram上分享了蔡英文的视频，并配文说：“真是荣幸！感谢台湾总统回应。我迫不及待地想参观你美丽的国家，了解台湾文化，品尝一些你的美食，并会见勇敢的台湾人民。当我们站在一起时，我们会变得更强大。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E5%A4%A7%E5%8D%AB%E4%BD%9C%E6%88%98%E5%AE%A4-1.jpg)
-*听写：call me uncle | 校对：乐禧禧*
+他用台湾国旗的表情符号结束了他的回应。
 
-* * *
+**坎特在他周五的视频中说了以下内容：**
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+台湾不是中国的一部分。台湾是一个民主自由的国家——我与台湾站在一起。你知道吗，尽管台湾有自己的历史，自己的政府……自己的选举，自己的一切，习近平却被困在自己的世界里意淫，声称台湾是中国的一部分，（不断）威胁要入侵台湾。台湾2400万人只想和平自由地生活。他们珍视自由、人权和民主。台湾是一股向善的力量。中国政府对台湾的所作所为更加证明习近平和中共政权对世界各地的自由构成威胁。我们看到他们对西藏人、维吾尔人、香港人所做的一切。台湾现在站在反对中共独裁统治的前线。
+
+我要向今天观看此节目的所有自由支持者传达的信息是：我们一起变得更强大。我们都必须与台湾站在一起，支持台湾，捍卫民主。我们必须保持台湾的自由和安全。台湾已经独立了，我相信并希望这个国家永远自由民主。台湾的未来必须由台湾人民决定。
+
+**我对今天观看此节目的所有自由支持者的信息是：**
+
+我们在一起更强大。
+我们都必须#StandWithTaiwan，
+支持台湾，捍卫民主。
+我们必须保持台湾的自由和安全。
+台湾是属于台湾人民的！
+
+# IslandOfResilience
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+> My message to all freedom supporters watching this today is:
+> 
+> We are stronger together.
+> We must all [#StandWithTaiwan](https://twitter.com/hashtag/StandWithTaiwan?src=hash&amp;ref_src=twsrc%5Etfw),
+> support Taiwan, and defend democracy. 
+> We must keep Taiwan free and safe.
+> 
+> Taiwan belongs to the TAIWANESE people![#IslandOfResilience](https://twitter.com/hashtag/IslandOfResilience?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/r925kNm2fY](https://t.co/r925kNm2fY)
+> — Enes Kanter (@EnesKanter) [November 12, 2021](https://twitter.com/EnesKanter/status/1459190235565371397?ref_src=twsrc%5Etfw)
+
+
+
+长期以来，坎特一直是他祖国总统雷杰普·塔伊普·埃尔多安的直言不讳的批评者。然而，这位凯尔特人队球员最近在对阵中国队的比赛中表现出色。
+
+10月中旬，坎特发布了一段视频，呼吁中国共产党和习近平主席“解放西藏”。在最初的帖子之后，他发表了另一篇文章，公开反对中共的维吾尔穆斯林奴役，并称习近平是“无情的独裁者”。
+
+“无情的中国独裁者习近平和中国共产党，我现在在全世界面前向你呼吁，”坎特说。 “关闭劳教所，释放维吾尔人。现在停止种族灭绝。”
+
+这位凯尔特人队的球员还呼吁其他穆斯林运动员保持沉默，包括耐克和勒布朗·詹姆斯。
+
+**文章来源**：[https://www.dailywire.com/news/taiwan-president-thanks-enes-kanter-after-athlete-says-taiwan-at-the-frontlines-against-chinas-dictatorship](https://www.dailywire.com/news/taiwan-president-thanks-enes-kanter-after-athlete-says-taiwan-at-the-frontlines-against-chinas-dictatorship)
+
+翻译：洛杉矶盘古农场–Raul
+校对：洛杉矶盘古农场–Mike Li
+编辑：洛杉矶盘古农场–心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

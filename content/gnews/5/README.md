@@ -2,69 +2,49 @@
 ---
 
 
-## 埃内斯·坎特发布支持台湾的视频，台湾总统回应并感谢
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1673132/)
+## “鸡窝里的狐狸”：中共争夺国际刑警组织的职位
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1673199/)
 
-**据《Dailywire》记者：Frank Camp，2021年11月13日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/apjg0-yezmi.jpg)**图片源自原文**
-周五，波士顿凯尔特人队球员埃内斯·坎特（Enes Kanter）在他的社交媒体账户上发布了一段他支持捍卫台湾主权的视频后，台湾总统蔡英文做出了回应。
+**据《悉尼先驱晨报》记者：Latika Bourke，2021年11月15日报道 ：**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/ak8dr-ljk66.jpg)胡斌晨（Hu Binchen）是争夺两个空缺席位的候选人之一。图片源：中国驻美国大使馆
+一名中共国高级官员已申请加入国际刑警组织的管理机构，这引发了人们的担忧，即北京可能利用这个国际打击犯罪组织在国外追捕中共批评者，包括维吾尔族社区成员和香港民主活动人士等。
 
-“感谢埃内斯与台湾站在一起。我们将永远捍卫我们来之不易的自由和民主，”总统说。 “您和我们在世界各地的朋友的支持给了我们力量。台湾也是很多篮球迷的故乡，我们都为你加油。”
+中共国公安部负责警务工作的副部长胡斌晨（Hu Binchen）是国际刑警组织执行委员会候选人之一。一周后，他将在伊斯坦布尔举行的国际刑警组织大会上争取代表们的投票。会议将闭门举行。
 
-谢谢
-@埃内斯·坎特（EnesKanter）
-与台湾站在一起并捍卫民主。
+胡斌晨（Hu Binchen）是争夺亚洲国家代表所持有的两个空缺席位的三名候选人之一。其他候选人来自新加坡和印度。
 
+如果成功，他将成为监督国际刑警组织秘书长和总秘书处工作的13名成员之一，制定国际刑警组织的整体组织政策和方向，并制定每年一度的大会内容。
 
+国际刑警组织拥有19个数据库，其中包含数百万条信息，包括生物识别记录以及护照、车辆和武器等被盗财产的详细信息。
 
-> Thank you [@EnesKanter](https://twitter.com/EnesKanter?ref_src=twsrc%5Etfw) for standing with [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) & standing up for democracy. [pic.twitter.com/DNBJfMiSvl](https://t.co/DNBJfMiSvl)
-> — 蔡英文 Tsai Ing-wen (@iingwen) [November 13, 2021](https://twitter.com/iingwen/status/1459364677402591240?ref_src=twsrc%5Etfw)
+它运行国际红色通缉令系统，各国列出在被捕前逃离国家的个人姓名。虽然这是为了防止罪犯逃往国外逃避司法，但它也被滥用来追捕政治批评者。
 
+当年，人权活动家比尔·布劳德 (Bill Browder) 在其律师谢尔盖·马格尼茨基 (Sergei Magnitsky) 在俄罗斯去世后，曾推动政府制定法律，对腐败和侵犯人权的官员实施制裁，但由于克里姆林宫发布了一份声明，他多次被外国政府拘留。红色通缉令将他逮捕并引渡回俄罗斯。
 
+“独裁者越来越多地利用国际刑警组织来追捕持不同政见者，”布劳德告诉《悉尼先驱晨报》和《时代报》。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/mk.png)**比尔布劳德批评国际刑警组织，称其已被专制政府使用。图片源：彭博新闻**
+“在国际刑警组织有一名中共官员就像让狐狸掌管鸡舍。
 
-坎特在他的Instagram上分享了蔡英文的视频，并配文说：“真是荣幸！感谢台湾总统回应。我迫不及待地想参观你美丽的国家，了解台湾文化，品尝一些你的美食，并会见勇敢的台湾人民。当我们站在一起时，我们会变得更强大。”
+“如果这种向威权主义缓慢蔓延的趋势继续下去，国际刑警组织可能最终会像1938年纳粹接管时那样过时，”他说。
 
-他用台湾国旗的表情符号结束了他的回应。
+在中共国对澳大利亚实施贸易制裁后，成立的各国议会对华问题联盟的50名议员，已致信包括澳大利亚的凯伦·安德鲁斯在内的内政部长，表示震惊，称胡斌晨（Hu Binchen）可以利用这一立场针对中共认为的敌人。
 
-**坎特在他周五的视频中说了以下内容：**
+他们指出，应中共国的要求，维吾尔活动人士伊德里斯·哈桑( Idris Hasan)于7月在摩洛哥被拘留，而维吾尔族领导人多尔昆·伊萨 (Dolkun Isa) 数十年来一直有一张对她发出的红色通缉令，直到国际刑警组织将其撤下，此举激怒了中共。
 
-台湾不是中国的一部分。台湾是一个民主自由的国家——我与台湾站在一起。你知道吗，尽管台湾有自己的历史，自己的政府……自己的选举，自己的一切，习近平却被困在自己的世界里意淫，声称台湾是中国的一部分，（不断）威胁要入侵台湾。台湾2400万人只想和平自由地生活。他们珍视自由、人权和民主。台湾是一股向善的力量。中国政府对台湾的所作所为更加证明习近平和中共政权对世界各地的自由构成威胁。我们看到他们对西藏人、维吾尔人、香港人所做的一切。台湾现在站在反对中共独裁统治的前线。
+“中华人民共和国政府一再滥用国际刑警组织的红色通缉令迫害流亡异见人士，”国会议员在信中说。
 
-我要向今天观看此节目的所有自由支持者传达的信息是：我们一起变得更强大。我们都必须与台湾站在一起，支持台湾，捍卫民主。我们必须保持台湾的自由和安全。台湾已经独立了，我相信并希望这个国家永远自由民主。台湾的未来必须由台湾人民决定。
+“如果大会通过选举胡斌晨（Hu Binchen）为执行委员会，将为中共国政府继续滥用国际刑警组织开绿灯，并将给安置居住在国外的数万名香港人、维吾尔人、藏人、台湾人和中国持不同政见者带来更大的风险。
 
-**我对今天观看此节目的所有自由支持者的信息是：**
+“我们呼吁你们反对胡斌晨（Hu Binchen）的候选资格，支持改革国际刑警组织红色通缉令制度，以保护全球政治迫害受害者。
 
-我们在一起更强大。
-我们都必须#StandWithTaiwan，
-支持台湾，捍卫民主。
-我们必须保持台湾的自由和安全。
-台湾是属于台湾人民的！
+“北京可能正在扩大其对世界警察机构的影响力，这应该给世界各地的大使馆敲响警钟。我们的政府必须施压代表团反对胡斌晨（Hu Binchen）的竞选。” 议员们说。
+澳大利亚联邦警察国际刑警组织代表的发言人表示，它“了解有关滥用国际刑警组织通知的指控”。
 
-# IslandOfResilience
+“国际刑警组织对其工具和服务的使用进行了多层审查，包括国际刑警组织总部和（独立）国际刑警组织档案控制委员会的监督。”
 
+它没有说明澳大利亚联邦警察打算如何在下周的选举中投票。
 
-
-> My message to all freedom supporters watching this today is:
-> 
-> We are stronger together.
-> We must all [#StandWithTaiwan](https://twitter.com/hashtag/StandWithTaiwan?src=hash&amp;ref_src=twsrc%5Etfw),
-> support Taiwan, and defend democracy. 
-> We must keep Taiwan free and safe.
-> 
-> Taiwan belongs to the TAIWANESE people![#IslandOfResilience](https://twitter.com/hashtag/IslandOfResilience?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/r925kNm2fY](https://t.co/r925kNm2fY)
-> — Enes Kanter (@EnesKanter) [November 12, 2021](https://twitter.com/EnesKanter/status/1459190235565371397?ref_src=twsrc%5Etfw)
-
-
-
-长期以来，坎特一直是他祖国总统雷杰普·塔伊普·埃尔多安的直言不讳的批评者。然而，这位凯尔特人队球员最近在对阵中国队的比赛中表现出色。
-
-10月中旬，坎特发布了一段视频，呼吁中国共产党和习近平主席“解放西藏”。在最初的帖子之后，他发表了另一篇文章，公开反对中共的维吾尔穆斯林奴役，并称习近平是“无情的独裁者”。
-
-“无情的中国独裁者习近平和中国共产党，我现在在全世界面前向你呼吁，”坎特说。 “关闭劳教所，释放维吾尔人。现在停止种族灭绝。”
-
-这位凯尔特人队的球员还呼吁其他穆斯林运动员保持沉默，包括耐克和勒布朗·詹姆斯。
-
-**文章来源**：[https://www.dailywire.com/news/taiwan-president-thanks-enes-kanter-after-athlete-says-taiwan-at-the-frontlines-against-chinas-dictatorship](https://www.dailywire.com/news/taiwan-president-thanks-enes-kanter-after-athlete-says-taiwan-at-the-frontlines-against-chinas-dictatorship)
+**文章来源**：[https://www.smh.com.au/world/asia/fox-in-the-hen-house-fears-chinese-official-vying-for-interpol-job-could-pursue-beijing-s-critics-20211111-p5989h.html](https://www.smh.com.au/world/asia/fox-in-the-hen-house-fears-chinese-official-vying-for-interpol-job-could-pursue-beijing-s-critics-20211111-p5989h.html)
 
 翻译：洛杉矶盘古农场–Raul
 校对：洛杉矶盘古农场–Mike Li

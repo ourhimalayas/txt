@@ -2,12 +2,18 @@
 ---
 
 
-## 班农的律师：起诉委员会违反法律下的平等正义原则
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1672312/)
+## 【文贵先生大直播PPT]再谈喜币，喜美元与喜支付
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1672439/)
 
-11/15/2021 班农的律师：本案并没有体现对法律平等正义的追求，因为起诉委员会成员全部都是事先就做出预判，并公开宣布他们立场的。法律下的平等正义原则对我们所有人都至关重要。当它们被选择性地使用时，当我们违反这一原则时，这是我们所有美国人的失败。
+撰稿：文唐、多梅尼科、Benj1、sotres，ILOVE战神（文凡），政清
+美工：卡西亚，雷蒙
+审核：三票先生，顽童先生，政清
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+【2021年11月17日文贵先生大直播PPT：再谈喜币，喜美元与喜支付】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/21-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/25-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/26-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/27-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/28.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/29.jpg)
+* * *
+
+发稿：云起时
 
  
 

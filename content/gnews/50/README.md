@@ -2,12 +2,18 @@
 ---
 
 
-## 山姆·法迪斯：中情局弱化了中共对美国及全世界构成的威胁
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1672249/)
+## 【文贵先生大直播PPT】近期的全球疫苗灾难
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1672286/)
 
-11/13/2021 山姆·法迪斯：中情局弱化了中共对美国及全世界构成的威胁。
+撰稿：舒平风，MyWay，莲心不染，TCC 幸福堂，坐看云起时
+美工：健身健心（文阳），青山
+审核：舒平风，三票先生，顽童先生
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+【2021年11月17日文贵先生大直播PPT：近期的全球疫苗灾难】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12-2-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-95.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-78.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-55.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-31.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/7-19.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/8-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/9-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/10-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/111-2-1.jpg)
+* * *
+
+发稿：云起时
 
  
 

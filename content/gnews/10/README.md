@@ -2,127 +2,31 @@
 ---
 
 
-## 习近平的过去
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1673072/)
+## 美国和中共国想谈谈消减核武器
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1673159/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4444-a9dta-2670i.jpg)
-[https://gtv.org/video/id=619500ec18270250810628e1](https://gtv.org/video/id=619500ec18270250810628e1)
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-**郭文贵**
-**Miles Guo**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/china-ruestet-nuklear-auf.jpg)
 
-我告诉你们，习躲过了13次的谋杀，这种暗杀都躲过13次，
-I tell you that Xi has avoided 13 times assassinations, and he has survived 13 times all of these assassinations
 
-你觉得习的未来，他的10年就能还躲另外13次，躲不过一次就结束了
-Do you think Xi’s future will be able to avoid another 13 times in next 10 years, and it will be over if he does not avoid once
+资料来源：FAZ
 
-习近平他不知道人伦和自然之间的逻辑
-Xi Jinping does not know the logic between human relations and nature
+在美中两国总统在线峰会后一天，美国安全顾问杰克沙利文在布鲁金斯学会组织的一次虚拟活动中表示，乔拜登和习近平已同意探讨核裁军谈判。两国总统一致同意推动“战略稳定会谈”。沙利文指出，这是一种尝试。安全顾问说，拜登在两位总统的指导下提出了讨论这个问题的必要性。这应该通过处理安全、技术和外交的谈判团队来完成。
 
-新中国联邦的发起人郭文贵最知道事物之间万物的逻辑
-Guo Wengui (Miles) who the founder of the New Federal State of China, knows the logic of existence between all things
+习近平已经表示可以委托高级代表进行谈判。沙利文宣布，将在多个层面进行密集努力，以确保两国之间的竞争存在框架， 以免演变成冲突。讨论的确切形式仍不清楚。 《华尔街日报》援引一位中共国政府官员的话报道称，有可能首先让非政府成员的专家举行会谈。双方都可以采用这种形式，以便随后检查是否可以开始正式的政府谈判。
 
-我相信有天，我相信有神，我相信大自然的逻辑和根据
-I believe there is a God, I believe there is the Spirit, I believe in the logic and ba-sis of nature
+中共国此前拒绝就其核武库进行谈判，理由是美国和俄罗斯首先必须解除其规模大得多的库存。周三北京方面没有发表评论。中共国军火库的迅速扩张使此类谈判更加紧迫。习近平主席于3月下令武装部队“加快建立先进的战略威慑力量”。 特朗普政府已经表态支持全面的军备限制协议，该协议不区分战术核武器和战略核武器，除美国和俄罗斯外，中共国也应加入该协议，因为中华人民共和国被视为真正的挑战。
 
-习躲过13次，我要是习近平的话，我一定准备到明天就被干掉的这个准备
-Xi has escaped 13 times, If I were Xi Jinping, I would be prepared to be killed tomorrow
+据五角大楼称，到 2030 年，中共国的核弹头数量可能翻两番。据华盛顿报道，今年夏天，中共国军方测试了一种环绕地球的具有核能力的高超音速武器。五角大楼参谋长联席会议主席马克米利谈到了一个“非常令人担忧的事件”。卫星图像还显示，中共国正在为洲际弹道导弹建造一百多个额外的发射井。
 
-你能躲过第14次吗？它是个基本的逻辑
-Can you guarantee to escape the 14th time? It is a basic logic
+所有这些都表明中共国与以往的最低核威慑政策背道而驰。防务专家、卡内基国际和平基金会智库前中共国外交政策专家赵彤在《纽约时报》的一篇文章中将中共国重新武装描述为“试图迫使华盛顿接受相互脆弱的关系”。
 
-你不但你没想到14次，你以为是千秋万代
-Not only did Xi not expect the 14 times, Xi thought it will be for generations to come
+与此同时，美国国务院证实，北京和华盛顿已同意在视频峰会前为双方记者提供签证便利。据《纽约时报》报道，该协议还意味着《华尔街日报》、《华盛顿邮报》和《纽约时报》可以再次向中共国派驻记者。不过，去年被驱逐出境的三家媒体的美国雇员是否会被允许返回，目前尚不清楚。这影响了十几名记者。这是特朗普政府在美国将中共国媒体归类为外国代表后的报复措施，因为它们基本上受国家和党的支配。此举也导致事实上的驱逐。中共国外交部周三谈到了“来之不易的成功”。
 
-你把所有的全中国人都当傻子，全世界当傻子
-Xi treats all Chinese people as fools and the whole world as fools
+原文链接：[新闻来源：德国法兰克福报网页版](https://www.faz.net/aktuell/politik/ausland/amerika-und-china-wollen-ueber-atomwaffen-sprechen-17639261.html)
 
-我们在看待事物的时候，习不是他的文化决定他的思路
-When we look at things, it is not Xi’s education that determines his thinking
-
-一定记住习这个人，在决定他的思路是他的家庭
-Xi’s way of thinking in deciding things comes from about his family of origin
-
-他的姐姐的上吊自杀，文化大革命，他被3次被抓进少改所
-His sister committed suicide by hanging herself, the Cultural Revolution, and he was arrested 3 times into the juvenile prison
-
-在少改所他被打时他亲口跟我说的
-He told me in person that he was beaten inside the juvenile prison
-
-在里面，就是为了那半个窝头，把习给打得半死
-When he was in the juvenile prison, Xi was beaten badly for half of the Wotou (corn bun)
-
-习被按在地上，拿鞋底抽他的脸，习在路边被当马骑
-Xi was pressed to the ground, his face was beaten with the shoe soles, Xi was ridden as a horse by the side of the road
-
-3次少改所，习每次出来都是打的跟半残废似的
-Three times in juvenile prison, Xi was beaten so badly every time then he came out
-
-他又亲眼看到他爹16年失去自由，他跟习远平去看他爹
-He saw his father lost his freedom for 16 years with his own eyes. He and Xi Yuanping（his little brother ） went to see his father
-
-他爹当着他们面拉的屎，拿手里往嘴里吃
-His father was eating his own shit in front of them and put them into his mouth with his hand
-
-说你是谁呀，习近平都崩溃了，然后是他认不出习近平
-and asked who they are, Xi Jinping fell apart, and his father couldn’t recognize Xi Jinping
-
-他这种背景，他比咱还恨共产党，你千万记住，他说什么共产党
-With his background, he hates the Communist Party more than we do, you must remember what he said about the Communist Party
-
-我说去他大爷，他每天恨不得把这帮孙子都杀光
-I said go to hell, he can’t wait to kill all these bastard every day
-
-他让中国人致富，他觉得你当时打老子的时候
-He made the Chinese people rich, he felt that I was beaten so badly then
-
-我爹16年的时候，把我娘弄到深圳的时候，我们家什么结局
-and my father lost 16 years of freedom, they sent my mother to Shenzhen, what was the result of our family?
-
-邓小平又骗他爹，让他回去，说要当人大委员长
-Deng Xiaoping lied to his father and told him to go back, saying that he would name him to be the chairman of the National People’s Congress
-
-结果不让他去，他爹本来就疯了，又把他爹骗一把
-As a result that he was not nominated, his father was so depressed and cheated again
-
-真的是习仲勋提出的，当年的宝安县就是深圳这个镇
-It was really proposed by Xi Zhongxun（Xi’s father）, Baoan County was the town of Shenzhen
-
-往香港游每天杀几千人，血染成河,
-that people swam and fled to Hong Kong, killing thousands of people every day, staining the river with blood
-
-是习仲勋建议不要再杀人了, 建了特区
-It was Xi Zhongxun who advised not to kill anymore and established the Special Economic Zone
-
-真的是他爹说的，后来邓小平把这个功给弄走了
-That was really said by his father and then Deng Xiaoping took away the merits
-
-他多恼火啊，所以上来先把邓家灭了
-He was so angry, so he came up to destroy the Deng family first
-
-先把你欺骗我爹的邓家人，吴小晖全抓了
-Wu Xiaohui from the Deng family who cheated my father was arrested in the first
-
-**原视频链接: **[** **https://gettr.com/post/pguxbk3062](https://gettr.com/post/pguxbk3062)
-
-Date:11/16/2021
-原视频标题: 习近平的过去
-Xi Jinping’s past
-原视频日期：2021/11/12
-任务编号：KC261（2875）
-视频时间段 : 0:00-2:28
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片: 洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+责任编辑、发布： Shuizhuyu
 
  
 

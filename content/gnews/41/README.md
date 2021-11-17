@@ -2,28 +2,76 @@
 ---
 
 
-## OSHA宣布暂停执行拜登的疫苗强制令
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1672596/)
+## 斯蒂芬·K·班农敦促在华盛顿特区联邦调查局现场办公室外的支持者要关注“信号，而不是噪音”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672679/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+Stephen K. Bannon
+斯蒂芬·K·班农
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/V-8.jpg)俄罗斯莫斯科喀秋莎农场 剿匪打工仔
-受到特里西亚·弗拉纳根（Tricia Flanagan）议员这样的提示：“突发——OSHA已宣布暂停执行拜登的疫苗强制令，并同意遵守第五巡回法院的法庭令。永不放弃，爱国者！我们用一个大胆的呼吁，赢了！！！”【1】
+I just want to say, tell everybody, it live stream on Gettr right now
+我只想告诉正在看盖特直播
 
-迅速查到了拜登政府劳工部“职业安全与健康管理局”（OSHA，Occupational Safety and Health Administration）的官方公告，有关内容如下：【2】
+everybody watching in the War Room.
+和正在观看战斗室的大家
 
-2021年11月12日，美国第五巡回上诉法院批准了一项动议，暂停OSHA于2021年11月5日发布的中共（新冠）病毒疫苗接种和紧急检测临时标准（86 Fed.Reg.61402）（“ETS”）。法院令OSHA“在有进一步的法庭令之前，不得采取任何措施实施或强制执行“ETS”。虽然OSHA对其在紧急情况下保护工人的权力仍然充满信心，但OSHA已暂停实施和强制执行ETS相关的活动，以待诉讼的未来发展。”
+We’re here today.
+我们今天在这里
 
-弗拉纳根议员在第一时间发出胜利的消息，并如此激动，这也是爆料革命、新中国联邦的胜利！
+I don’t want anybody take their eye off the ball but we do every day.
+我不希望任何人把注意力从我们每天都做的事情上移开
 
-口子已经撕开，期待揭露疫苗阴谋取得更大的进展，战友们加油！
+Okay, we got the Hispanics come on our side,
+好的？我们有西班牙裔美国人站在我们这边
 
-有关链接链接：
+African Americans coming on our side.
+非裔美国人站在我们这边
 
-【1】[https://twitter.com/NewDayForNJ/status/1461006377544036352](https://twitter.com/NewDayForNJ/status/1461006377544036352)
+We’re taking down the Biden regime
+我们正在推翻拜登政权
 
-【2】[https://www.osha.gov/coronavirus/ets2](https://www.osha.gov/coronavirus/ets2)
+every day the focus you got
+每一天这都是你的焦点
+
+Raheem Kassam today, you got Dr. Peter Navarro, Captain Bannon
+今天有拉希姆·卡萨姆，你有彼得·纳瓦罗博士，班农上尉
+
+and you’re going to have Boris Epstein the whole show intense.
+而且鲍里斯·爱泼斯坦会在战斗室节目里，节目会非常激烈
+
+we got polling out, economic data out, and everything
+我们会分析民调、经济数据和其他
+
+I want you guys to stay focused on message
+我希望你们能保持对信息的专注
+
+remember signal not noise.
+记住信号，忽略噪音
+
+This is all noise that signal.
+这些都是那个信号的噪音
+
+Thank you very much
+非常感谢
+
+* * *
+
+Date:11/15/2021
+原视频标题: Stephen K. Bannon urges supporters outside FBI Field Office in D.C. to focus on “signal, not noise,”
+斯蒂芬·K·班农敦促在华盛顿特区联邦调查局现场办公室外的支持者要关注“信号，而不是噪音”
+原视频日期：2021/10/15
+原视频链接: [https://gettr.com/post/ph0i3m1249](https://gettr.com/post/ph0i3m1249)
+任务编号：KE346（2891）
+视频时间段 : 0:50-1:25
+英听校: 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 小战蚁
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
