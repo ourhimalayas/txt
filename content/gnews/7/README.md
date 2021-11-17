@@ -2,35 +2,28 @@
 ---
 
 
-## 澳总理：未来技术必须保护人民
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1671764/)
+## 法院和医院拒绝使用伊维菌素导致中共病毒患者死亡
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1671788/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Untitled3-1.png)图片来源：Government News
-**翻译：**月映万川
-**编辑：**翼族
+整理报道：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4L2YVV4IMZQTMI5TJ7IGMGZHKY.jpg)图片来源：Tampabay
+11月16日，《新闻极限》引述《华盛顿观察家报》报道，指由于法院和医院拒绝使用伊维菌素治疗一名感染中共病毒（COVID-19）的妇女，导致该妇女去世，终年47岁。
 
-本周三，澳大利亚总理莫里森在澳洲战略政策研究所的一个论坛上，详细介绍了他的政府对一些“关键技术未来蓝图”的展望。
+12周前，塔玛拉·德罗克（Tamara Drock）在棕榈滩花园医疗中心住院，他的丈夫瑞安·德罗克（Ryan Drock）告诉《华盛顿观察家报》，他上个月提起诉讼，试图迫使医院使用伊维菌素治疗妻子，但被一名县巡回法官驳回。
 
-这些所谓的“关键技术”包括人工智能和量子技术，指的是一种当前和新兴的趋势，它们有可能促进经济繁荣、增强社会凝聚力和加强国家安全，但也有可能使国家面临风险。
+尽管德罗克可以收到一定剂量的伊维菌素作为最初达成交易的一部分，但家庭律师认为该剂量太低了，从而导致交易失败。
 
-莫里森政府正专注于包括量子技术在内的九个关键领域，并将量子技术作为一个研发中心的重点，计划投资7000万澳元，旨在根据与美国的协议，将澳大利亚的研究进行商业化。
+瑞安·德罗克说：“我希望用她的名字命名一条法律，这样就没有人遭遇这些了。”
 
-该量子技术中心是澳洲政府1.11亿澳元投资的主要部分，政府希望到2040年，该投资能够促进40亿澳元的经济效应，并创造16000个就业机会。
+该家庭的律师杰克·哈克斯塔布（Jake Huxtable）告诉西棕榈滩电视频道WPTV，他将就该法官的决定向第四区上诉法院提起诉讼。他说：“这是选择的自由，她有选择接受这种医疗方法的自由，但法院不允许，医院也不允许”。
 
-莫里森总理将澳大利亚与美国和英国签订的AUKUS协议描述为应对技术破坏的一种方式。
+**新闻来源**
 
-他试图把澳大利亚打造成一个值得信赖和安全的伙伴，与这些志同道合的国家在人工智能技术方面进行合作。
+[Florida Woman Whose Family Sued Hospital for Ivermectin Dies](https://www.newsmax.com/newsfront/florida-covid-19-death-ivermectin/2021/11/16/id/1044906/)
 
-“我们希望技术能够保护我们公民的自主权、隐私和数据”，莫里森先生说，他还引用了美国总统拜登的话——应该由世界来决定“这些技术是赋予了人民力量还是加深了压迫人民的力量”。
+**发布：七彩光**
 
-莫里森先生同时说：“我们不能回避道德方面的问题。我们需要问自己，应该用这种技术做什么，而不仅仅是可以做什么。”
-
-**原文链接：**[Future technology must protect rights: PM](https://thenewdaily.com.au/news/national/2021/11/17/future-technology-protect-rights-pm/)
-
-***发布：****翼族*
-
-**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)

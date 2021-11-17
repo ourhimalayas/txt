@@ -2,57 +2,50 @@
 ---
 
 
-## 七哥谈喜联储VI:白皮书和摩根士丹利的加密系统无人匹敌
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1671515/)
+## 辉瑞、生物科技、莫德纳每秒赚一千美元利润
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1671575/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/78354797c9a813f1502b089e1e5990d9_副本.jpg)
-1、郭先生2020年5月19日GTV直播
+**翻译：Lulumi**
 
-［所以说亲爱的兄弟姐妹们记住这个平台，G-Fashion, G-News，喜联储，然后G-Clubs，这都是你们的机会。你现在比如说买G-Dallor的，傻眼了，把整个都美国震傻了。我们昨天的白皮书，出了一，二，三，ABC版，我把ABC版找到了几个真正的大咖去看，没有人不马上回复，全都是unbelieveble，unbelieveble，unbelieveble,全都这样，然后再看完，billionaire, billionaire, billionaire,不可思议，太聪明了。］
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip11-1.png)Credit: Unsplash/CC0 Public Domain
 
-2、[2021年4月27号 文贵直播标题：喜币正式上线，喜联储，喜美元，喜支付，金融支付系统将改变新中国联邦； CCP病毒让印度如同人间炼狱， 但是是真实的；欧日澳美都在迅速觉醒；共产党经济一定很快崩塌，不要成为牺牲品；共产党灭亡前的疯狂，不要让子女成为殉葬品！](https://gtv.org/video/id=60880f7b8aa4fd003f386a90)
+根据一项最新的分析，辉瑞（Pfizer）、生物科技（BioNTech）和莫德纳（Moderna）从其非常成功的COVID-19疫苗中每分钟能赚取6.5万美元利润，而世界上最贫穷的国家仍然基本上没有接种疫苗。
 
-［这就是我们现在看到的喜联储、喜币，喜美元还有喜币到了世界那么多国家所有人都傻眼了，看到所有的白皮书，可以说这是世界上最棒的白皮书，我可以今天在这儿说最棒的白皮书！而且所有用的就是这个CORA，世界上两个写这个虚拟货币的代码，一个是摩根的系统啊，另外一个是美国的IBM系统，CORA这个系统这是目前写的最好的加密货币，不是我说的，是所有获得这些国家的支付牌照、获得这些国家的交易执照后，人家给批准的。］
+人民疫苗联盟（PVA）说，这些公司将其绝大部分疫苗卖给了富国，让低收入国家陷入困境。
 
-3、[2021-05-05 文贵直播：回答战友们目前关心的问题](https://gtv.org/video/id=60929c03db13300ca5491b6d)
+该联盟估计，这三家公司今年的税前利润将达到340亿美元，这相当于每秒钟1000多美元，每分钟6.5万美元，或每天9350万美元。
 
-［看看Libra的白皮书你看看喜联储的白皮书你就知道谁牛了，第二个你看看咱所有的ECO的这个系统，摩根士丹利的加密货币系统，你去看看，你一比就知道了。当然他没法比的，它有喜联储、它有喜美元，它跟咱不是一回事是吧？］
+非洲联盟和非洲人民疫苗联盟的马扎·塞尤姆说：“仅仅几家公司每小时就能赚取数百万美元的利润，而低收入国家只有2%的人全面接种了冠状病毒疫苗，这实在是令人发指。”
 
-续前文——
+辉瑞公司、生物科技公司和莫德纳公司利用其垄断地位，优先考虑与最富有的政府签订最有利可图的合同，将低收入国家排除在外。
 
-[七哥谈喜联储I:世界将看到真正的喜联储,喜联储将震撼世界](https://gnews.org/zh-hans/1670803/)
+PVA说，辉瑞公司和生物科技公司向低收入国家提供了不到其总供应量的百分之一，而莫德纳公司只提供了0.2%。
 
-[七哥谈喜联储II:不是脱亚入欧而是脱离共产党制造新世界](https://gnews.org/zh-hans/1671022/)
+目前，低收入国家98%的人还没有完全接种疫苗。
 
-[七哥谈喜联储III:如何让喜联储成为全球共用的金融标准](https://gnews.org/zh-hans/1671067/)
+这三家公司的行为与阿斯利康和强生公司形成了鲜明对比，后者以非营利的方式提供疫苗，尽管这两家公司已经宣布，随着中共病毒大流行的结束，他们预计今后将结束这种安排。
 
-[七哥谈喜联储IV:令中共恐惧至极动用超国家力量骇客抹黑](https://gnews.org/zh-hans/1671091/)
+PVA说，尽管收到了超过80亿美元的公共资金，但辉瑞、生物科技和莫德纳拒绝了通过世界卫生组织向中低收入国家的生产商转让疫苗技术的呼吁：“此举可以增加全球供应，降低价格，拯救数百万人的生命。”
 
-[七哥谈喜联储V:空中取钱的“钱”就在可装20万亿的喜联储](https://gnews.org/zh-hans/?p=1671125)
+该组织说：“就莫德纳而言，尽管白宫明确施压，世卫组织也要求该公司合作并帮助加快其复制莫德纳疫苗的计划，以便在其南非的mRNA中心进行更广泛的生产。”
 
-撰稿：喜马拉雅的肉夹馍；
+PVA补充说，虽然辉瑞公司首席执行官阿尔伯特·布拉将技术转让斥为“危险的废话”，但世卫组织本月早些时候对印度开发的Covaxin疫苗给予紧急使用批准的决定证明，发展中国家有能力和专业知识。
 
-审核：喜马拉雅的馍夹肉；
+PVA的80个成员包括非洲联盟、立即行动全球正义组织、乐施会和联合国艾滋病规划署，它呼吁制药公司同意世界贸易组织与贸易有关的知识产权协议的拟议豁免，从而立即暂停中共病毒疫苗的知识产权。
 
-校对：Maarago
+包括美国在内的100多个国家支持这一举措，但它受到了包括英国和德国在内的富裕国家的阻挠。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+**评论：疫苗公司赚的每一分钱都是带血的，未来疫苗灾难爆发的时候，这些没有疫苗可打的低收入国家反而因祸得福。**
 
-另外正文中引用文字内容皆来源于七哥听写组对郭文贵先生视频文字的整理，在此特别向七哥听写组及战友们致谢。
+**新闻来源**：[medicalxpress.com][Pfizer, BioNTech, Moderna making $1,000 profit every second: analysis](https://medicalxpress.com/news/2021-11-pfizer-biontech-moderna-profit-analysis.html)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+* * *
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
 
  
 
