@@ -2,48 +2,32 @@
 ---
 
 
-## 谷歌云、Snapchat、Spotify等在故障数小时后恢复
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1671428/)
+## 拜登政府或已决定外交抵制北京冬奥会 正待择时宣布
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671441/)
 
-翻译：西班牙巴塞罗那喜悦农场-wenwu
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-360.png)图片来源： dailymail.co.uk
-周二（16日）下午，一场大规模的[谷歌](https://www.dailymail.co.uk/sciencetech/google/index.html)云服务器故障导致 Spotify、**[Snapchat](https://www.dailymail.co.uk/sciencetech/snapchat/index.html)** 和 Discord 等几个主要网站，崩溃了几个小时。
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-76.png)
+（图片来自法新社）
 
-Google Cloud 的服务页面显示（如下图），罪魁祸首是网络问题（ Google Cloud Networking），该问题影响了全球近十几个站点和数万用户。
+距离2022北京冬季奥运会开幕只有不到三个月的时间，拜登政府至今还未宣布是否会抵制本届冬奥会。不过，据消息人士透露，拜登政府目前或已决定外交抵制北京冬奥会，正待择时宣布。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-361.png)
+据《美国之音》11月17日报道，北京冬季奥运会开幕的时间越来越临近，在美国，要求拜登政府决定抵制这次冬奥会的压力越来越大。有消息人士称，由于美中首脑峰会已经结束，拜登政府预计会很快宣布这项决定。据信，这项决定既会在某种程度上满足中（共）国人权状况批评者们的要求，又不至于牺牲美国体育健将们展现竞技的机会。
 
-这个问题始于美国东部时间下午 12 点之后，导致网页出现 404 错误，但受网络故障影响的网站似乎在下午 2:30 左右重新上线——一些用户可能仍然遇到问题。
+在美国总统拜登与中共国国家主席习近平星期一结束首次视讯峰会的几个小时后，参议院共和党议员罗姆尼（Mitt Romney）发推文称：“尽管中共对维吾尔族人实施种族灭绝，中（共）国仍得以主办奥运会，这是不能让人接受的。我一直主张对北京奥运会实行外交抵制。我对行政当局将对中共发出强烈信息的同时又不惩罚美国运动员抱有希望。”
 
-谷歌云的网络故障是在一场更大的在线惨败之后（如下图）发生的，该惨败导致 Meta 的所有平台——Facebook、Instagram 和 WhatsApp——在长达 7 小时的全球宕机中瘫痪。谷歌在美国东部时间下午 12 点 10 分在其云计算仪表板上发布了一份声明，承认了网络错误（404），目前没有解决办法。其[页面上](https://status.cloud.google.com/incidents/6PM5mNd43NbMqjCZ5REh)写道：“是我们向所有受到宕机影响的人道歉。”（谷歌云计算的仪表板早些时候[显示](https://finance.yahoo.com/news/google-amazon-several-other-websites-181233082.html)，包括云开发者工具、云控制台和云引擎在内的服务都面临故障）
+罗姆尼曾是2002年美国盐湖城冬季奥运会组委会的执行长。他今年三月在《纽约时报》发表评论，主张美国对北京冬奥会实施经济和外交抵制。他当时说：“在专制国家，主办奥运会常常被作为宣传工具，而不是用来推进改革。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-363.png)
+《华盛顿邮报》专栏作家乔什·罗金（Josh Rogin）也在当天发表的一篇文章中，援引多名官员的话称：拜登政府预计会在月底前宣布总统或任何美国政府官员都不会出席明年2月在北京举行的冬季奥运会，以此作为对中（共）国政府践踏人权的回应，而同时又不剥夺美国选手参赛的机会。
 
-据 **[The Verge](https://www.theverge.com/2021/11/16/22785599/google-cloud-outage-spotify-discord-snapchat-google-cloud)** 报道，DownDetector（一种基于网络的监测在线故障的服务）上显示的许多故障（包括Spotify、Alphabet、Discord 和 SnapChat 等），是与 Google Cloud 开始遇到问题的时间相吻合。
+拜登政府目前还没有对有关很快宣布外交抵制北京冬奥会的报道和评论做出反应。白宫国家安全委员会的一位资深官员在美中首脑会议结束后对媒体表示，两位元首在三个半小时的会晤中并没有讨论北京冬季会议题。
 
-在谷歌云分享关于网络问题的第一个更新大约七分钟后发布了帖子。其内容为，“云网络的问题已部分解决；在问题完全解决之前，用户将无法对其负载平衡器进行更改；目前我们没有完整解决的预计时间（ETA）。”
+分析人士认为，拜登政府之前一直未就是否抵制北京冬奥会做出宣布，除了考虑对美中首脑会议的影响之外，另一个因素是考虑到与盟友及伙伴国之间的协调，避免美国的决定与这些国家差别太大。
 
-Spotify 表示（如下图），在超过5万名用户报告他们面临问题之后，它“现在意识到一些问题并已正在进行检查”。
+而在今年7月，欧洲议会通过了一项不具约束力的决议，督促欧盟及各成员国官员不要前往中共国参加北京冬奥会。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-365.png)
+美国国务卿布林上星期三（2021年11月10日）在《纽约时报》主办的一次对话会上表示，美国还没有决定是否派运动员参加明年2月在北京举行的冬季奥运会。但政府正在与其他国家和伙伴积极磋商，并在适当时候做出宣布。
 
-Google Cloud 服务器故障发生在 Meta 崩溃仅一个多月后，由于其域名系统 (DNS)问题，其三个应用程序崩溃了 7 个小时。Meta 没有使用 CloudFare，但它运行着世界上最大的 DNS 解析器之一。当站点因 DNS 系统故障而停机时，CloudFare 会尝试修复它们。
-
-CloudFare 工程高级副总裁 Usman Muzaffar 当时告诉 DailyMail.com：“人类通过域名在线访问信息，如 [facebook.com](http://acebook.com/) 和 DNS 将其转换为数字，称为电脑 IP 地址。
-
-从我们对实际问题的理解来看–它是一个全球化的边界网关协议（BGP）配置问题（这些通常是错误，而不是攻击）；边界网关协议（BGP）是互联网的路由协议，就像邮局处理邮件一样，BGP 挑选最有效的路线来传递互联网流量。
-
-最初，有报道称 AT&T、Verizon 和 T-Mobile 也全部出现故障。在关闭数小时后，技术人员尝试对其服务器进行“手动重置”以解决问题。
-
-值得一提的是，如果无法访问 DNS 服务器，那么用户访问 Facebook 的相关应用将无法得到答复，因此页面将无法加载。
-
-新闻来源：[dailymail.co.uk][Back up! Snapchat, Shopify and several other popular websites are working again after Google Cloud networking outage caused disruption for more than two hours](https://www.dailymail.co.uk/sciencetech/article-10209361/Web-Google-Cloud-outage-crashes-Snapchat-Spotify-popular-sites-worldwide.html)发布时间：2021年11月16日
-
-* * *
-
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
-
+**新闻链接：**[https://twitter.com/VOAChinese/status/1460848060720816128](https://twitter.com/VOAChinese/status/1460848060720816128)
 
  
 
