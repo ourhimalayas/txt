@@ -2,26 +2,33 @@
 ---
 
 
-## 人心所向，禁而不绝！中共国有单位“挖矿”严重
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1670889/)
+## 台湾3天内出现170例疫苗不良反应事件 6人身亡
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1670943/)
 
-撰稿：东京樱花团/天路天道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-351.png)[图片来源](http://www.dtdata.cn/news/show-6364.html)
-近日，中共国家发展改革委召开虚拟货币“挖矿”治理专题视频会议，通报虚拟货币“挖矿”监测和整治情况，并部署开展全面整治“挖矿”活动。参加此次会议的有中央网信办、教育部、工信部、人民银行、国资委等多个部门。
+#### **撰稿：**日本东京方舟农场 Kevin wang
 
-中共发改委强调，严查严处国有单位机房涉及的“挖矿”活动。 下步，将以产业式集中式“挖矿”、国有单位涉及“挖矿”和比特币“挖矿”为重点开展全面整治。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/C8CD5AF6-40D9-42D4-B354-0575C93B2F68.jpeg)（图片来自纽约时报中文网）
 
-可见，中共国有单位“挖矿”比较严重，国家公务人员知道经济数据的真假，才为自己留后路，数字货币喜币才是未来。
+台湾11月15日新增9例中共病毒确诊病例，均为接种疫苗后的感染案例。此外，从11月12日至14日，3日内，台湾共出现170例接种疫苗后产生不良反应事件，并有6人身亡。
 
-信息来源：
+台湾疫情指挥中心15日表示，当日新增的9例确诊病例均为输入个案，5例男性、4例女性，年龄介于10多岁至40多岁。
 
-[国家发改委：将以比特币“挖矿”等为重点开展全面整治](https://open-hl.toutiao.com/a7031006713364873735/?utm_campaign=open&amp;utm_medium=webview&amp;utm_source=o_llq_api&amp;req_id=20211116211008010211215140271C6DB6&amp;device_brand=&amp;dt=RMX3350&amp;crypt=4957&amp;label=open_o_channel&amp;a_t=ACt8mLx4gzpnUoZGBHAhNYvQdWZWQo8mzYUAF22aph9rT)
+据医疗应变组副组长罗一钧介绍，新增的9例境外输入个案均属接种疫苗后的突破性感染。其中，案例16599接种过2剂辉瑞疫苗；案例16600和案例16607均接种过2剂阿斯利康疫苗；案例16601至16605的5例均接种过2剂科兴疫苗；案例16606接种过1剂强生疫苗。
 
-[国家发改委：严查严处国有单位机房所涉“挖矿”活动](https://m.gmw.cn/toutiao/2021-11/13/content_1302676791.htm?tt_group_id=7029836995878715940&amp;in_ogs=1&amp;traffic_source=CS1113&amp;utm_source=OP&amp;source=search_tab&amp;utm_medium=wap_search&amp;prevent_activate=1&amp;original_source=1&amp;in_tfs=OP&amp;channel=&amp;enter_keyword=%E5%9B%BD%)
+关于11月12日至14日内出现的接种疫苗后产生不良反应事件，卫生福利部疾病管制署副署长庄人祥回应称，共有170例不良反应事件，包含81例非严重不良事件、83例其他疑似严重不良事件，以及6件死亡事件。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
+在6例死亡事件中，有2人是在接种阿斯利康疫苗后的11至18天内死亡，年龄在49至63岁之间；有3人是在接种莫德纳疫苗后的2至23天内死亡，年龄在67至82岁之间；还有1位62岁民众是在接种辉瑞疫苗后的第30天死亡。
+
+*参考链接：[https://www.youtube.com/watch?v=Cvkm3ggXzBE](https://www.youtube.com/watch?v=Cvkm3ggXzBE)*
+
+* * *
+
+*素材采编：Kevin wang*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

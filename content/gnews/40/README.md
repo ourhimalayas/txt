@@ -2,36 +2,59 @@
 ---
 
 
-## 白宫：1.75T的BBB无法支付，美国人明年需要加税了
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1670290/)
+## 继沃尔玛之后，克罗哥再陷加密货币骗局
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670450/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+作者：纽约香草山佛教部 – 文一
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-13-1.png)法新社通过盖蒂图片社
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-拜登总统及其政府成员长期以来一直吹捧BBB（Built Back Better）法案[将花费“zero dollar”](https://nypost.com/2021/09/27/joe-biden-slammed-for-build-back-better-price-claim-lie/)（税收大部分由中产阶级承担）,这笔法案花费是来自增加公司税、为富有的美国人填补税收漏洞,以及其他改革（比如虚拟货币交易）将[创造足够的抵消作用](https://www.whitehouse.gov/briefing-room/statements-releases/2021/10/28/president-biden-announces-the-build-back-better-framework/)。
 
-自上周以来，[CBO 已经发布](https://nypost.com/2021/11/10/cbo-releases-estimates-for-1-75t-biden-social-spending-bill/)了对该法案八个部分的[初步估计](https://nypost.com/2021/11/10/cbo-releases-estimates-for-1-75t-biden-social-spending-bill/)。到目前为止，该机构已经发现这八个部分中的一部分——如果包含在最终立法中——将使联邦预算赤字增加 1500 亿美元以上。预计周五（19日）将对完整立法进行评分。 据《泰晤士报》报道，拜登政府高级官员先发制人地声称， CBO 的估计是“过于保守”，其没有适当考虑加强 IRS 执法所筹集到的资金。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-14-1.png)
 
-几个月来，《重建更好法案》(BBB Act)在众议院和参议院都面临着一场艰苦的战斗，而 CBO 的一份负面报告可能会给拜登政府带来更多问题。众议院温和的民主党人在看到评分之前一直对承诺投票支持该法案持谨慎态度，而参议员乔曼钦（D-WV）——上议院的关键一票——其坚持要求[该立法应得到全额支付](https://nypost.com/2021/07/13/joe-manchin-says-both-infrastructure-bills-should-be-paid-for/)。
 
-许多人质疑《重建更好法案》是否真的需要印刷 1.75 万亿美元，[美国商会](https://nypost.com/2021/11/11/chamber-of-commerce-dems-using-gimmicks-to-hide-spending/)上周[指责](https://nypost.com/2021/11/11/chamber-of-commerce-dems-using-gimmicks-to-hide-spending/)民主党人使用会计的“噱头”（小聪明）来隐藏超过 1 万亿美元的支出。
+据《新闻极限》11月5日盖文消息报道：一份克罗格（Kroger）公司宣称将接受“比特币现钞”的声明出现在该公司投资者关系网站上，稍后即被删除。美联社也刊登了该声明，但旋即劝告读者应不予理会。上周五该公司证实此声明完全是欺诈，成为继沃尔玛之后第二个被卷入加密货币骗局的主要零售商。
 
-“我们有 31 年来最高的通货膨胀率，雇主正在努力填补创纪录的职位空缺，而目前的和解法案草案使用小聪明来掩盖，超过 1 万亿美元的支出，”美国商会执行副总裁兼首席政策警官尼尔·布拉德利（Neil Bradley）在一份声明中说。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1436-1.jpg)©AP
 
-他补充说：“如果美国国会议员在不了解其真实成本或政策对现实世界的影响的情况下，就对这一项价值数万亿美元的税收和支出法案进行投票，那将是最不负责任的行为。”
+据悉，该报道所谓“比特币现金”是比特币基础软件代码的一个扩展，是由一小群在中共国的比特币矿工在2017年主导开发的。
 
-上个月，[宾夕法尼亚大学沃顿商学院进行的](https://nypost.com/2021/10/29/biden-1-75t-bills-taxes-pay-for-less-than-wh-claims-study/)一项分析发现，用于抵消 1.75 万亿美元支出的税收将比支付账单所需的净额度，少约 4700 亿美元。  白宫估计，新的和更高的征税款项所筹集到是 1.995 万亿美元，但沃顿商学院的预算模型估计它们只能带来 1.527 万亿美元——比白宫数字低 4680 亿美元，比法案的最高成本少 2230 亿美元。
+而沃尔玛公司也曾在9月份遭遇类似骗局。骗子说将有一种鲜为人知的加密货币—莱特币与沃尔玛公司合作，该消息致比特币在短时间内价格飙升。
 
-新闻来源：[nypost.com] [WH warns CBO won’t say $1.75T BBB paid for, tells Dems to ‘disregard’: report](https://nypost.com/2021/11/16/white-house-warns-cbo-wont-rule-spending-bill-paid-for-report/) | 发布时间：2021年11月16日|封面图来源：盖蒂图片社
+而在克罗哥声明“比特币现钞”是假消息之后，比特币价格略微下滑。
 
-* * *
+可见，流通性对加密货币的重要程度日益为人所知，而相关骗局频发的根源是发行者的急功近利，还是情知不妙继而垂死挣扎，目前尚不得知。而反观一开始就构架于喜联储、以黄金锚定的喜美元、喜支付之上的喜币，正如郭文贵先生在大直播中所说的“无国界流通价值还远未显现”。“喜币、喜联储的明天，就是现实可感、触手可及的共同富裕、利益共享。”
 
-*发稿：信心的选择*
+**参考阅读：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/07/GNEWS_CH.-5.jpeg)
+1. [https://gettr.com/post/pg51ee09cc](https://gettr.com/post/pg51ee09cc)
+2. [文贵大直播 11/03 喜币的铸币权、无国界流通价值还远未显现 – GNEWS](https://gnews.org/zh-hans/1637358/)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+**编辑：larking
+校对/发稿：小鹿**
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
