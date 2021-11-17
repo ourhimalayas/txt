@@ -2,144 +2,28 @@
 ---
 
 
-## 习拜视频会极大羞辱美国让西方感到彻底威胁
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672627/)
+## 文贵爆料 11.17 : 喜币的神话才刚刚开始
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1672631/)
 
-[https://gtv.org/video/id=61939ccd182702508105db72](https://gtv.org/video/id=61939ccd182702508105db72)
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1117-4.jpg)
+喜币一飞冲天的时机还远远没有到来。郭文贵先生在11月17日的大直播中说，只有Hpay上线、大量用户进入，并有实体店接收，才是喜币真正腾飞的时候。
 
-郭文贵
-Miles Guo
+现在喜币的价格到了34美金一个，但它的80%到90%的市场没打开，功能还远远没打开。kyc就是一个大开关。早着呢！当进入喜币的国家多了，账号拥有人就多了，可能网络交易所有一百万、一千万的用户，大量的美的现金进来，然后交易量就增加，然后买者就增加，这个时候你的喜币的价值嘛，那就那绝对不是34块了，你去想去吧。所以说兄弟姐妹，要等到什么时候才值钱？我再说一遍，没有国家主权的认可，没有新虚拟货币的银行牌照，没有新的国家主权批准，没有交易所牌照认可，没开放整个Hpay使用，你看到的价格是它未来价格非常小的一部分，所有的价值的核心是hpay，核心中的核心是hpay，然后就那几个牌照啊。所以说这个市场不用担心，这才几天、两三周吧。兄弟姐妹们，任何一个成功的投资需要五年到十年的耐心。你不用等五到十年，你只要有三年的冷静期，你就是人生的赢家。
 
-那么现在中美之间发生什么问题
-So currently what’s the problem between China and the U.S.?
+现在，基金不允许他来砸盘，他要怎么杀你呢？这很简单的道理，大家一定要学会这个投资，他先给拿一千个啊说今天三十一。是吧，开门儿。二十九、二十八，一万，十万，坏了，车位坐不住了，是不是还得卖点啊？要不就还会跌，接着一直跌，一直下头一直下行，有人就收不住了。你就二十九卖，你就二十九到二十七，你二十七他二十五刷就给你下来了。而且买你不用你买，还封二十七的时候，另外一个人就买了，我喊二十七，小哥买了。有人买有人卖。这个恐慌就下去了，这时候有人不冷静，就害怕，就会抛。他只拿出来百分之十的钱，然后再砸下去，那你就是输家嘛。
 
-供应链彻底崩塌
-It’s the supply chain collapsed completely
+它的价格是坚挺的，原因之一，现在呢没有人卖；原因之二，机构投资者不允许他进来砸盘是最重要的核心。第三，hpay没上线，还有这些大的利好消息没出来啊。但是大家记住，看到现在全世界的接受hpay和hcoin、hdollar买买东西的在哪里？
 
-美国在这种情况下希望中共
-Under such circumstances, (the Biden administration) hopes that Xi
+但是没有人对这个在迪拜可以买房产这件事情啊认真研究，就没有人看到这个事情的影响它会有多大，为啥咱们要有GFashion。GFashion的诞生之日，就有两件事情大家没有意识到啊，第一个，gclub有了，GFashion有实际物体存在。这个Gclub未来可以做的无限大，因为它唯一一个有实体接收、可依靠的会员制，这在世界上是没有的，大家都是叫场地制、会员制。但是他说它可以未来有实际折扣的实体店，这在美国和西方的法律上完全重新定义了。同时更重要是为喜币的诞生做准备，喜币一旦是有实体店接受，能买东西、喝茶，有人接受买东西。喜币和整个数字货币的价值完全是天地之差啊。所以GFashion这两个功能是意义重大。
 
-你一定给我供应链
-must maintain the supply chain to the U.S.
+接下来就是只要喜币能买衣服、能买任何东西的时候，你未来接下来各种实体店都会越来越多的接受的是喜币的流通、喜币只要开始流通以后，它的价值你就能想象啊！它是改变人类生存方式，那是巨大的。那么迪拜允许它买房产了。其中一个最重要的王子跟我说，他说我已经告诉他下边了，我们叫他马上接受你买房子。数字货币走向实体店之日，它的意义非常重大。
 
-就奴隶、奴隶、奴隶
-which is cheap labor(Chinese people)
+郭先生说，明年五月份是你考虑出售几个解决生活问题的时间点。五月份到一年的时候，考虑是否你拿一些币去做抵押，贷款期贷大概几个月以内吧，一定会有。然后去贷款，看买房子、车、大件物品啊值不值问题。真正一定要要等待两到三年。
 
-而且美国已经对中国开启签证
-And also, the U.S. has opened visa to China
+参考链接：
 
-第二，我现在要让你开始保证我的老百姓基本的生活
-Second, (the Biden administration) now hopes that Xi can guarantee basic living goods to the American people
-
-便宜的内裤，便宜的旅游鞋还得给我
-i.e. the cheap underwear, low-cost travel shoes need to resume in market
-
-第三，你的房地产千万别一下倒，慢慢倒
-Third, (the Biden administration) demands that the real estate business must avoid quickly collapsing, slowly collapsing (is acceptable)
-
-第四，最重要咱俩要合作
-Forth, the most important thing (to the Biden administration) is the cooperation between the Biden administration and Xi
-
-咱得忽悠老百姓
-Both of them have to fool their ordinary people
-
-明天无限美好，继续画大饼
-that tomorrow is wonderful and continue to dream big
-
-一切的一切都为了今年的中期选举
-Everything is for the mid-term election this year
-
-就是民主党绝对不能输
-that is, the Democratic Party must not lose
-
-佛吉尼亚几乎废掉了拜登总统一半以上的能力
-(The winning of) Virginia election has almost abolished more than half of President Biden’s capabilities
-
-你在这个中期选举完几乎就完了
-(The Biden administration) most likely would be over after the mid-term election
-
-所以习在这种情况下列出这十几条羞辱美国
-Therefore, (even though) Xi Jinping listed a dozen requirements for humiliating the United States under these circumstances
-
-拜登都要跟他通个视频会议
-Joe Biden still preferred to have a virtual meeting with Xi
-
-我告诉你们
-Let me tell you
-
-对咱新中国联邦的意义可大了去了
-It’s of great significance to our new Chinese Federal State of China
-
-他公布完这个以后
-After he announced this
-
-证明啥？七哥这几条我都提前发给
-What does it prove? I have already sent those requirements in advance
-
-咱们的政治合作者了
-to our political collaborators
-
-他们当时说：“真的吗？Miles？”
-They all asked that “was that real? Miles”
-
-你说这外国人都很天真
-See, these foreigner are very naive
-
-他都说这是真的吗
-They all asked whether it was real
-
-结果，证明郭文贵又是伟大正确的
-As a result, it has been proved again that Miles Guo is greatly correct
-
-新中国联邦情报准确
-and the New Federal State of China’s Intelligence is accurate
-
-哇塞，每次都给我们逆增上缘
-Wow, it helps us every time, both positively and negatively
-
-那真出来了，美国人、外国人现在害怕了
-(Listed serval requirements) have come out. The American people and foreigners are now scared
-
-这真是习近平拿美国人不当回事儿啊
-This is really indicated that Xi Jinping is not treating the American people as a matter
-
-而这种事公布对拜登是政治需求
-and this kind of announcement is a political demand of Biden
-
-对美国和欧洲对待西方
-In regards to how the United States and Europe treating the West
-
-他感觉到彻底的威胁
-He has felt an exhaustive threat
-
-这是为什么在西方的天主教、基督教系统
-This is the reason that in the Western’s Catholic and Christian systems
-
-你没有好话说的时候你就闭嘴
-you need to keep your mouth shut if you have nothing to say
-
-西方人随便批评人是很大的问题
-It is a serious matter for Westerners to criticize people randomly
-
-* * *
-
-Date: 11/14/2021
-原视频标题: 习拜视频会极大羞辱美国让西方感到彻底威胁
-Xi and Biden’s Virtual Meeting extremely humiliated the United States and made the West feel exhaustive threatened
-原视频日期：2021/11/12
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1459850200227676160?s=24](https://twitter.com/se1y7cblljselva/status/1459850200227676160?s=24)
-任务编号：KC256（2879）
-视频时间段 : 0:00-1:59
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[2021年11月17日 文贵大直播](https://gettr.com/streaming/ph567f4b1f)
 
  
 
