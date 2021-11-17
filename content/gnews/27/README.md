@@ -2,123 +2,32 @@
 ---
 
 
-## 千年不遇新金融时代的诞生战友们都是参与者
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672781/)
+## “突然死亡”的全球搜索趋势飙升至历史新高
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1672815/)
 
-[https://gtv.org/video/id=6193c860182702508105e859](https://gtv.org/video/id=6193c860182702508105e859)
+翻译：真北007
 
-**郭文贵**
-**Miles Guo**
+来自零对冲(ZEROHEDGE) 星期三十一月十七日的新闻报道：我们不禁注意到一种在全球范围内爆发的 Google 搜索趋势。
 
-我们处在新中国联邦也好
-We are in the New Federal State of China
+搜索词“突然死亡”在过去两个月中飙升至历史新高，数据可以追溯到 2004 年。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-77-edited.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-29.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-15.png)
+我们无法明确指出这些神秘死亡的根本原因，但希望将读者引向上周发表的一篇题为“德国报纸重点报道最近晕倒的足球运动员人数异常多”的文章。
 
-就我们所有战友要记住一个
-All of our comrades in arms need to remember this
+在那篇文章中，我们概述了德国报纸《柏林日报》的报道，“最近异常大量的职业和业余足球运动员倒下了。” 虽然不是死亡，但我们发现运动员的突然倒地似乎很奇怪，可能与健康有关。
 
-我们面临着世界上前所未有的几个大的机会
-We are experiencing several unprecedented huge opportunities in the world
+现在推测人们是否因与 COVID-19 疫苗相关的问题（例如心肌炎）而突然死亡或倒地还为时过早，这是一个应该密切关注的趋势。
 
-这个机会是跟时间，就是时间和时机
-These opportunities are related to the time frame which is timing and occasion
+**点评：**尽管心情沉重，但越来越多死亡和严重身体伤害的事实正在发生，希望世界人民由此引发关注，警觉与思考，并采取行动。 有良知的媒体与自媒体能及时报道以唤醒及解救被洗脑的广大民众，文贵先生警告明年五月疫苗灾难才真正开始爆发，我们对此毋庸置疑。同时也真心希望CCP与邪恶势力随即垮塌灰飞烟灭，世界平和美好，新中国联邦事业如雨后春笋蓬勃发展，开创新纪元。
 
-我们几乎是人类上千年不遇的
-We are in a situation that it’s almost unprecedented in a thousand years as a human
+原文链接: [https://www.zerohedge.com/political/worldwide-search-trend-died-suddenly-spikes-record-highs](https://www.zerohedge.com/political/worldwide-search-trend-died-suddenly-spikes-record-highs)
 
-叫做新金融时代的诞生，就叫做虚拟货币
-which is the born of a new financial era, and is also called the virtual currency
+编辑/发布：LILY
 
-大家一定要记住这个词
-and everyone has to keep that word in mind
+20211117
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 
-而且我们是走在最前面、最核心的
-Also, we are at the core and act ahead of everyone
 
-技术全世界最好的
-Our technology is the best in the world
 
-系统全世界最完美的
-Our system is the most perfect one in the world
-
-而且现在我们战友们拥有了6亿个币
-And now our comrades in arms have possessed 600 million HCoins
-
-这6亿个币到下一个你有机会拿到币
-From this 600-million-coin to the next opportunity to get the coin
-
-还有11个月的时间
-still has 11 months to go
-
-这个时间你要记住
-You need to remember this timing
-
-你第一次拥有的币和第二次币是一个时间
-It’s the time frame when are the first time and second time having coins
-
-也就是整个新世界的金融系统诞生
-That is, the financial system of the whole new world was established
-
-整个人类
-The entire mankind
-
-昨天摩根先生, 包括所有大老板
-Yesterday, Mr. Morgan, including all the big bosses,
-
-没有任何人怀疑说
-none of them has doubted that
-
-还有这个任何机会说这个虚拟货币没有是不可能了
-there is any chance that it’s nothing impossible for this virtual currency
-
-虚拟货币的数字货币世界的诞生
-The establishing of the digital currency world and virtual currency,
-
-永远别忘，第一个
-we should never forget. First,
-
-由于时间，还给我们个时机
-because of the time frame, we have also gained an opportunity
-
-人类上千年不遇的金融的新系统的诞生
-The born of this new financial system is unprecedented in a thousand years as a human
-
-你们是最前边，而且手里已经有币的
-You are at the very front and already in possession of the coins
-
-包括有G-Club、G-Fashion
-including G-Club and G-Fashion
-
-你一定记住，这都和你的命运连在一起的
-You must keep that in mind, all these are connected with your destiny
-
-包括GTV、包括盖特
-including GTV, GETTR
-
-都跟你连在一起的，你前所未有
-everything is unprecedented to you and connected with you
-
-你可不要想……这个币连着太多了
-It’s better not to think that… this coin is connected too much
-
-**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1459700699869380608?s=24](https://twitter.com/se1y7cblljselva/status/1459700699869380608?s=24)
-
-Date: 11/14/2021
-原视频标题: 千年不遇新金融时代的诞生战友们都是参与者
-The Born of The New Financial Era Only Once in a Blue Moon And All Comrades Are The Participants
-原视频日期：2021/11/12
-任务编号：KC257（2878）
-视频时间段 : 0:00-1:43
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

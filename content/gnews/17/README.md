@@ -2,10 +2,10 @@
 ---
 
 
-## 莫琳·班农上尉：史蒂夫·班农还没开始战斗，他们惹错人了
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1672924/)
+## 娜塔莉：发起班农起诉的罪魁祸首亚当·希夫是中共勾结者
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1672960/)
 
-11/15/2021 莫琳·班农上尉：史蒂芬·K·班农还没有开始战斗，而且他们惹错人了
+11/15/2021 娜塔莉·温特斯：发起班农起诉和“通俄门”骗局的罪魁祸首亚当·希夫其实是中共勾结者。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

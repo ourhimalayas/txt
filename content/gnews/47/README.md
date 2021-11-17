@@ -2,18 +2,12 @@
 ---
 
 
-## 【文贵先生大直播PPT】近期的全球疫苗灾难
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1672286/)
+## 班农的律师：起诉委员会违反法律下的平等正义原则
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1672312/)
 
-撰稿：舒平风，MyWay，莲心不染，TCC 幸福堂，坐看云起时
-美工：健身健心（文阳），青山
-审核：舒平风，三票先生，顽童先生
+11/15/2021 班农的律师：本案并没有体现对法律平等正义的追求，因为起诉委员会成员全部都是事先就做出预判，并公开宣布他们立场的。法律下的平等正义原则对我们所有人都至关重要。当它们被选择性地使用时，当我们违反这一原则时，这是我们所有美国人的失败。
 
-【2021年11月17日文贵先生大直播PPT：近期的全球疫苗灾难】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12-2-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-95.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-78.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-55.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-31.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/7-19.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/8-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/9-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/10-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/111-2-1.jpg)
-* * *
-
-发稿：云起时
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

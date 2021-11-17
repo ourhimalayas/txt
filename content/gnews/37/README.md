@@ -2,20 +2,76 @@
 ---
 
 
-## 文贵爆料 11.17: 共产党还在，现在躺平只会让你失去一切
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1672626/)
+## 斯蒂芬·K·班农敦促在华盛顿特区联邦调查局现场办公室外的支持者要关注“信号，而不是噪音”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672679/)
 
-撰稿：文行
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1117-4.jpg)
-郭文贵先生在2021年11月17日大直播一开始就提到，一个他预料之中的情况现在已经开始出现：喜币上市还不到三周，很多战友看到喜币上涨就开始躺平了，具体的表现就是现在很多农场的工作已经没有人做了。郭先生说这种情况是很可怕的。
+Stephen K. Bannon
+斯蒂芬·K·班农
 
-郭先生说，现在连美国迈阿密市长都意识到法币超发的危机已经到来，法币将会严重贬值，虚拟货币才是美国的未来。他甚至建议市民参与虚拟币的挖矿去创收。美国参议院下一届将会有十余位有虚拟币背景的参议员上任。喜币的上市创造了人间的奇迹，但爆料革命新中国联邦以的使命是灭共，跟喜币上涨没有任何关系。
+I just want to say, tell everybody, it live stream on Gettr right now
+我只想告诉正在看盖特直播
 
-郭先生语重心长的告诉战友，人穷就是穷在头脑上，穷在心上。战友们都是草根出身，战友们能拥有喜币是因为你要灭共，共产党还在，怎么能躺平呢？当你准备躺平的时候，当你要放弃当初爆料革命新中国联邦的使命的时候，你就会失去喜币，你就会失去一切。
+everybody watching in the War Room.
+和正在观看战斗室的大家
 
-链接来源：
+We’re here today.
+我们今天在这里
 
-[https://gtv.org/video/id=6194fda8e7e7703792363972](https://gtv.org/video/id=6194fda8e7e7703792363972)
+I don’t want anybody take their eye off the ball but we do every day.
+我不希望任何人把注意力从我们每天都做的事情上移开
+
+Okay, we got the Hispanics come on our side,
+好的？我们有西班牙裔美国人站在我们这边
+
+African Americans coming on our side.
+非裔美国人站在我们这边
+
+We’re taking down the Biden regime
+我们正在推翻拜登政权
+
+every day the focus you got
+每一天这都是你的焦点
+
+Raheem Kassam today, you got Dr. Peter Navarro, Captain Bannon
+今天有拉希姆·卡萨姆，你有彼得·纳瓦罗博士，班农上尉
+
+and you’re going to have Boris Epstein the whole show intense.
+而且鲍里斯·爱泼斯坦会在战斗室节目里，节目会非常激烈
+
+we got polling out, economic data out, and everything
+我们会分析民调、经济数据和其他
+
+I want you guys to stay focused on message
+我希望你们能保持对信息的专注
+
+remember signal not noise.
+记住信号，忽略噪音
+
+This is all noise that signal.
+这些都是那个信号的噪音
+
+Thank you very much
+非常感谢
+
+* * *
+
+Date:11/15/2021
+原视频标题: Stephen K. Bannon urges supporters outside FBI Field Office in D.C. to focus on “signal, not noise,”
+斯蒂芬·K·班农敦促在华盛顿特区联邦调查局现场办公室外的支持者要关注“信号，而不是噪音”
+原视频日期：2021/10/15
+原视频链接: [https://gettr.com/post/ph0i3m1249](https://gettr.com/post/ph0i3m1249)
+任务编号：KE346（2891）
+视频时间段 : 0:50-1:25
+英听校: 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 小战蚁
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
