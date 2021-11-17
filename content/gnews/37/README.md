@@ -2,15 +2,36 @@
 ---
 
 
-## 共产党是全世界邪恶势力的总部
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1672061/)
+## 盖特全球推广稳步展开
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672138/)
 
-韩国首尔天池农场—宗介　校对/上传—无明逆流
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4b6c96f8-751e-4dbd-8bd7-9600dbb7065f.jpg)
-文贵先生11月17日直播最新爆料称，世界上超发这么多票据、货币、保险到了最高顶峰，华尔街的金融杠杆（把已经超发的货币，和极少数人获得的绝大部分财富，最重要的就是保险）都是国家政府和金融机构，百万分之一的人控制着这些财富，特别是药厂（合法的杀人武器），还有就是绝对控制着你的精神想法的就是媒体，最后就是背后的大佬 金融控制着，美国的共产党邪恶组织们，他们最后到了崩溃的边缘，所有人都会找他们算账，媒体、药厂、各国的警察。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月15日，福克斯新闻塔克秀节目中，盖特的广告首次出现在广大观众面前。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-17-下午10.36.45.png)
+据悉，盖特投资委员会出资一亿美元用于盖特在全球范围内的广告推广。此前，盖特的推广大多覆盖广告灯箱、报纸、网站、直升机横幅等方式，而今已经递进至主流媒体的王牌节目中。
 
-邪恶势力最大勾兑者共产党，全世界都没人谈一个问题，共产党绝对是世界上邪恶势力的总部，世界到了最黑暗的时刻，我得到了各种信息对人对孩子的杀掠远超于视频中看到的。
+消息显示，盖特目前的推广目标是，在2022年初，盖特的用户总数达到一千万。为此，盖特的CEO杰森·米勒先生已经在欧洲、南美等多国展开宣传，以争取更多的知名度和用户。他表示，未来几周内，盖特将发起一场大型全球广告活动，主要针对巴西、美国、日本、澳大利亚和西欧大部分地区。
 
+另外，盖特全球推广高级副总裁卡兰-多尔先生在接受采访时提到，在大型科技公司言论审查和随意封禁的背景下，盖特作为一个自由的社交媒体平台应运而生。更为重要的是，盖特团队运作的核心就是尊重——尊重每一位用户获得第一修正案的权利。
+
+参考链接：
+1）[https://twitter.com/kdorr\_usa/status/1460424810484453379?s=21](https://twitter.com/kdorr_usa/status/1460424810484453379?s=21)
+2）[https://twitter.com/gettrofficial/status/1460638881041334274?s=21](https://twitter.com/gettrofficial/status/1460638881041334274?s=21)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+
+总编：Irene木木
+编辑：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
