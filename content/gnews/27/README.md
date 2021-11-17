@@ -2,28 +2,123 @@
 ---
 
 
-## 美日发起新贸易倡议以对抗中共国崛起
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1672774/)
+## 千年不遇新金融时代的诞生战友们都是参与者
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672781/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+[https://gtv.org/video/id=6193c860182702508105e859](https://gtv.org/video/id=6193c860182702508105e859)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/D-1.jpg)ca.news724.com
-日本共同社报道，美国和日本11月17日发起了一项倡议以促进两国就贸易问题进行定期讨论，并称这些问题在中共国经济崛起的背景下对美日两国至关重要。
+**郭文贵**
+**Miles Guo**
 
-美日两国有关人士表示，根据《美日贸易伙伴关系协定》（Partnership on Trade）第一次会议将于明年初举行，重点领域包括对“第三国担忧”和为改善印度洋-太平洋地区以规则为基础的经济秩序而进行合作。
+我们处在新中国联邦也好
+We are in the New Federal State of China
 
-这是日本外相林芳正在与美国贸易代表戴琪（Katherine Tai）举行会谈时做出的决定。戴琪自3月上任以来首次访问日本，她在一份声明中说：“我们的密切合作将支持拜登-哈里斯政府为印度洋-太平洋地区制定的经济框架，并帮助创造可持续、有韧性、包容和有竞争力的贸易政策，提升我们的人民和经济。”
+就我们所有战友要记住一个
+All of our comrades in arms need to remember this
 
-在七国集团会议和其他多边会谈中，日本和美国多次对“扭曲市场的做法”表示关切，如工业补贴和生产过剩，显然是指中共国。与此相关的是，日本、美国和欧盟的贸易部长发表了一份联合声明，表示他们同意“更新”他们的伙伴关系，以应对“第三国非市场政策和做法带来的全球挑战”。
+我们面临着世界上前所未有的几个大的机会
+We are experiencing several unprecedented huge opportunities in the world
 
-声明说，三方计划11月30日至12月3日在日内瓦举行的世界贸易组织(WTO)部长级会议间隙举行一次面对面的会议。
+这个机会是跟时间，就是时间和时机
+These opportunities are related to the time frame which is timing and occasion
 
-据美国贸易代表办公室透露，美贸易代表戴琪于周二抵达东京，将在周四前往韩国，周日前往印度。
+我们几乎是人类上千年不遇的
+We are in a situation that it’s almost unprecedented in a thousand years as a human
 
-参考链接：
+叫做新金融时代的诞生，就叫做虚拟货币
+which is the born of a new financial era, and is also called the virtual currency
 
-[https://english.kyodonews.net/news/2021/11/a3a6d8d49d3f-japan-us-hold-talks-over-extra-us-tariffs-on-steel-aluminum.html](https://english.kyodonews.net/news/2021/11/a3a6d8d49d3f-japan-us-hold-talks-over-extra-us-tariffs-on-steel-aluminum.html)
+大家一定要记住这个词
+and everyone has to keep that word in mind
+
+而且我们是走在最前面、最核心的
+Also, we are at the core and act ahead of everyone
+
+技术全世界最好的
+Our technology is the best in the world
+
+系统全世界最完美的
+Our system is the most perfect one in the world
+
+而且现在我们战友们拥有了6亿个币
+And now our comrades in arms have possessed 600 million HCoins
+
+这6亿个币到下一个你有机会拿到币
+From this 600-million-coin to the next opportunity to get the coin
+
+还有11个月的时间
+still has 11 months to go
+
+这个时间你要记住
+You need to remember this timing
+
+你第一次拥有的币和第二次币是一个时间
+It’s the time frame when are the first time and second time having coins
+
+也就是整个新世界的金融系统诞生
+That is, the financial system of the whole new world was established
+
+整个人类
+The entire mankind
+
+昨天摩根先生, 包括所有大老板
+Yesterday, Mr. Morgan, including all the big bosses,
+
+没有任何人怀疑说
+none of them has doubted that
+
+还有这个任何机会说这个虚拟货币没有是不可能了
+there is any chance that it’s nothing impossible for this virtual currency
+
+虚拟货币的数字货币世界的诞生
+The establishing of the digital currency world and virtual currency,
+
+永远别忘，第一个
+we should never forget. First,
+
+由于时间，还给我们个时机
+because of the time frame, we have also gained an opportunity
+
+人类上千年不遇的金融的新系统的诞生
+The born of this new financial system is unprecedented in a thousand years as a human
+
+你们是最前边，而且手里已经有币的
+You are at the very front and already in possession of the coins
+
+包括有G-Club、G-Fashion
+including G-Club and G-Fashion
+
+你一定记住，这都和你的命运连在一起的
+You must keep that in mind, all these are connected with your destiny
+
+包括GTV、包括盖特
+including GTV, GETTR
+
+都跟你连在一起的，你前所未有
+everything is unprecedented to you and connected with you
+
+你可不要想……这个币连着太多了
+It’s better not to think that… this coin is connected too much
+
+**原视频链接**: [https://twitter.com/se1y7cblljselva/status/1459700699869380608?s=24](https://twitter.com/se1y7cblljselva/status/1459700699869380608?s=24)
+
+Date: 11/14/2021
+原视频标题: 千年不遇新金融时代的诞生战友们都是参与者
+The Born of The New Financial Era Only Once in a Blue Moon And All Comrades Are The Participants
+原视频日期：2021/11/12
+任务编号：KC257（2878）
+视频时间段 : 0:00-1:43
+
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

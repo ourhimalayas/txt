@@ -2,75 +2,28 @@
 ---
 
 
-## 有声| 中共即将释放新的病毒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1672769/)
+## 美日发起新贸易倡议以对抗中共国崛起
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1672774/)
 
-配音：香草山香港部 – 新世界一员
+俄罗斯莫斯科喀秋莎农场   银河
 
-防生化学院的一位资深的生化武器专家
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/D-1.jpg)ca.news724.com
+日本共同社报道，美国和日本11月17日发起了一项倡议以促进两国就贸易问题进行定期讨论，并称这些问题在中共国经济崛起的背景下对美日两国至关重要。
 
-他说所有的疫苗产生的灾难
+美日两国有关人士表示，根据《美日贸易伙伴关系协定》（Partnership on Trade）第一次会议将于明年初举行，重点领域包括对“第三国担忧”和为改善印度洋-太平洋地区以规则为基础的经济秩序而进行合作。
 
-开始是在五月份
+这是日本外相林芳正在与美国贸易代表戴琪（Katherine Tai）举行会谈时做出的决定。戴琪自3月上任以来首次访问日本，她在一份声明中说：“我们的密切合作将支持拜登-哈里斯政府为印度洋-太平洋地区制定的经济框架，并帮助创造可持续、有韧性、包容和有竞争力的贸易政策，提升我们的人民和经济。”
 
-他说：因为疫苗的普及率
+在七国集团会议和其他多边会谈中，日本和美国多次对“扭曲市场的做法”表示关切，如工业补贴和生产过剩，显然是指中共国。与此相关的是，日本、美国和欧盟的贸易部长发表了一份联合声明，表示他们同意“更新”他们的伙伴关系，以应对“第三国非市场政策和做法带来的全球挑战”。
 
-他说：打得越来越多
+声明说，三方计划11月30日至12月3日在日内瓦举行的世界贸易组织(WTO)部长级会议间隙举行一次面对面的会议。
 
-他说：这个病毒会变种
+据美国贸易代表办公室透露，美贸易代表戴琪于周二抵达东京，将在周四前往韩国，周日前往印度。
 
-同时在每个人不同的身体状况
+参考链接：
 
-还有不同的人的身体的反应
-
-综合的就是人群反映的结果
-
-他说在明年五月份
-
-开始，不是说到灾难
-
-他说你会看到飞机、游轮、运动员
-
-这种身体越好的、越是这些驾驶员
-
-他说死的会越突然
-
-他说因为所有打到身上的疫苗
-
-造成的所有的RNA
-
-它不管怎么变，都会是这样
-
-他说会造成身体最严重的心肌炎、心包炎
-
-突然就会脑梗、心梗，这个..那个..
-
-他说就是这么简单的结局
-
-
-原文链接：[中共即将释放新的病毒](https://gnews.org/zh-hans/1666337/)
-
-音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)0
-
-[![](https://media.discordapp.net/attachments/908033143146172416/909632036548014181/s2.png?width=400&amp;height=54)](https://cdn.discordapp.com/attachments/908033143146172416/909632036548014181/s2.png)
-
-
+[https://english.kyodonews.net/news/2021/11/a3a6d8d49d3f-japan-us-hold-talks-over-extra-us-tariffs-on-steel-aluminum.html](https://english.kyodonews.net/news/2021/11/a3a6d8d49d3f-japan-us-hold-talks-over-extra-us-tariffs-on-steel-aluminum.html)
 
  
 

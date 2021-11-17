@@ -2,52 +2,78 @@
 ---
 
 
-## 又有12个州因疫苗强制令起诉拜登政府
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1673114/)
+## 埃内斯·坎特发布支持台湾的视频，台湾总统回应并感谢
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1673132/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**据《Dailywire》记者：Frank Camp，2021年11月13日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/apjg0-yezmi.jpg)**图片源自原文**
+周五，波士顿凯尔特人队球员埃内斯·坎特（Enes Kanter）在他的社交媒体账户上发布了一段他支持捍卫台湾主权的视频后，台湾总统蔡英文做出了回应。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/V-9.jpg)gazette.al
-《塔克·卡尔森团队》（Team Tucker Carlson）11月17日发表文章，题目是，“又有12个州因疫苗强制令起诉拜登政府”。【1】
+“感谢埃内斯与台湾站在一起。我们将永远捍卫我们来之不易的自由和民主，”总统说。 “您和我们在世界各地的朋友的支持给了我们力量。台湾也是很多篮球迷的故乡，我们都为你加油。”
 
-全文如下：
+谢谢
+@埃内斯·坎特（EnesKanter）
+与台湾站在一起并捍卫民主。
 
-12个州周一（11月15日）宣布，他们将起诉拜登政府，以阻止对卫生保健工作者实施的疫苗强制令，称该强制令违反宪法，并违反了多项联邦法律。
 
-阿拉巴马州、亚利桑那州、佐治亚州、爱达荷州、印第安纳州、路易斯安那州、密西西比州、蒙大拿州、俄克拉荷马州、南卡罗来纳州、犹他州和西弗吉尼亚州的总检察长周一（11月15日）宣布了这起诉讼，说，“拜登政府正在与法院玩披着法律外衣的游戏，竭力为自己无理的和史无前例的行为进行着辩护，这些行为将公共卫生政策联邦化，并削弱了国家的宪法权力。
 
-“没有任何法令授权联邦行政部门强制使用疫苗来提高社会的免疫力。”诉讼写道，并指出乔·拜登吹嘘疫苗是提高免疫力的一种方式，“政府的解决方案？使用以前从未解释过的法定方案，允许联邦疫苗强制令将总统的目标强塞进美国的社会结构中。”
+> Thank you [@EnesKanter](https://twitter.com/EnesKanter?ref_src=twsrc%5Etfw) for standing with [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) & standing up for democracy. [pic.twitter.com/DNBJfMiSvl](https://t.co/DNBJfMiSvl)
+> — 蔡英文 Tsai Ing-wen (@iingwen) [November 13, 2021](https://twitter.com/iingwen/status/1459364677402591240?ref_src=twsrc%5Etfw)
 
-该诉讼反对要求医疗保险和医疗补助行业的健康工作者接种疫苗的规定，这是违宪的，并且损害了对患者的护理，因为这些行业的员工要么被迫接种疫苗，要么失去工作。
 
-该诉讼写道：“疫苗强制令对弱势群体造成了严重威胁，而医疗保险和医疗补助计划旨在通过强制政策，终止了数百万“医疗行业的英雄”来保护那些弱势群体——穷人、病人和老年人。”
 
-各州政府正在要求一项初步禁令以停止执行这项强制令。
+坎特在他的Instagram上分享了蔡英文的视频，并配文说：“真是荣幸！感谢台湾总统回应。我迫不及待地想参观你美丽的国家，了解台湾文化，品尝一些你的美食，并会见勇敢的台湾人民。当我们站在一起时，我们会变得更强大。”
 
-蒙大拿州总检察长奥斯汀·克努森（Austin Knudsen）称该强制令是“违宪的权力攫取”。“联邦政府的强制令与健康无关——它们与强制遵守有关，应该允许医疗工作者对自己的健康作出自己的决定——而不是拜登总统来决定。如果他史无前例的过度行为得不到制止，医疗工作者将失去工作，威胁到蒙大拿人所需要的医疗服务。”
+他用台湾国旗的表情符号结束了他的回应。
 
-阿拉巴马州总检察长史蒂夫·马歇尔（Steve Marshall）说：“这不仅仅事关疫苗，这是要树立一面旗帜，表明‘够了，够了’，联邦政府的权力不是无限的。如果我们时刻保持警惕，在这里战斗，他们就不会得逞。”
+**坎特在他周五的视频中说了以下内容：**
 
-拜登疫苗强制令要求，在接受联邦医疗保险或医疗补助资金的机构工作的医疗保健的员工必须在1月4日之前完全接种疫苗，要么接受常规检测，要么接种疫苗，别无选择。
+台湾不是中国的一部分。台湾是一个民主自由的国家——我与台湾站在一起。你知道吗，尽管台湾有自己的历史，自己的政府……自己的选举，自己的一切，习近平却被困在自己的世界里意淫，声称台湾是中国的一部分，（不断）威胁要入侵台湾。台湾2400万人只想和平自由地生活。他们珍视自由、人权和民主。台湾是一股向善的力量。中国政府对台湾的所作所为更加证明习近平和中共政权对世界各地的自由构成威胁。我们看到他们对西藏人、维吾尔人、香港人所做的一切。台湾现在站在反对中共独裁统治的前线。
 
-包括上述一些州在内的几个州，被要求对联邦承包商的疫苗强制令提起单独的诉讼。
+我要向今天观看此节目的所有自由支持者传达的信息是：我们一起变得更强大。我们都必须与台湾站在一起，支持台湾，捍卫民主。我们必须保持台湾的自由和安全。台湾已经独立了，我相信并希望这个国家永远自由民主。台湾的未来必须由台湾人民决定。
 
-美国第五巡回上诉法院中止了政府要求雇员超过100人的雇主强制接种疫苗或实施每周测试的规定，法院裁定，由于请愿人认为 “该任务存在严重的法律和宪法问题，因此在本法院采取进一步行动之前暂停该任务。”
+**我对今天观看此节目的所有自由支持者的信息是：**
 
-法院后来重申了他们的决定，裁定该行政令可能 “违反了保障我们集体自由的宪法结构”，并且该行政令 “惊人地过于宽泛”。
+我们在一起更强大。
+我们都必须#StandWithTaiwan，
+支持台湾，捍卫民主。
+我们必须保持台湾的自由和安全。
+台湾是属于台湾人民的！
 
-（全文完）
+# IslandOfResilience
 
-是的，阴谋集团也太低估人们的智商和质疑能力了，以为依靠买通主管机构、政府、媒体就可以为所欲为，忽略了人性的几个基本原则，那就是，“自己的健康自己决定，而不是总统”、“政府的权力不是无限的，只要我们战斗，他们就不会得逞”。
 
-估计塔克·卡尔森在发这篇文章时，还没有看到“OSHA宣布，服从第五巡回上诉法院的判决，暂停疫苗强制令”这则令保守人士备受鼓舞的消息【2】。这拉开了全面中止拜登疫苗强制令的序幕，从“中止、废除对百人以上私营企业的强制令”开始，下一个是中止“对联邦承包商的强制令”，还是“对联邦雇员的强制令”，我们拭目以待！
 
-有关链接：
+> My message to all freedom supporters watching this today is:
+> 
+> We are stronger together.
+> We must all [#StandWithTaiwan](https://twitter.com/hashtag/StandWithTaiwan?src=hash&amp;ref_src=twsrc%5Etfw),
+> support Taiwan, and defend democracy. 
+> We must keep Taiwan free and safe.
+> 
+> Taiwan belongs to the TAIWANESE people![#IslandOfResilience](https://twitter.com/hashtag/IslandOfResilience?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/r925kNm2fY](https://t.co/r925kNm2fY)
+> — Enes Kanter (@EnesKanter) [November 12, 2021](https://twitter.com/EnesKanter/status/1459190235565371397?ref_src=twsrc%5Etfw)
 
-【1】[https://teamtuckercarlson.com/news/12-more-states-sue-biden-administration-over-vaccine-mandate/](https://teamtuckercarlson.com/news/12-more-states-sue-biden-administration-over-vaccine-mandate/)
 
-【2】[https://gnews.org/zh-hans/1672596/](https://gnews.org/zh-hans/1672596/)
+
+长期以来，坎特一直是他祖国总统雷杰普·塔伊普·埃尔多安的直言不讳的批评者。然而，这位凯尔特人队球员最近在对阵中国队的比赛中表现出色。
+
+10月中旬，坎特发布了一段视频，呼吁中国共产党和习近平主席“解放西藏”。在最初的帖子之后，他发表了另一篇文章，公开反对中共的维吾尔穆斯林奴役，并称习近平是“无情的独裁者”。
+
+“无情的中国独裁者习近平和中国共产党，我现在在全世界面前向你呼吁，”坎特说。 “关闭劳教所，释放维吾尔人。现在停止种族灭绝。”
+
+这位凯尔特人队的球员还呼吁其他穆斯林运动员保持沉默，包括耐克和勒布朗·詹姆斯。
+
+**文章来源**：[https://www.dailywire.com/news/taiwan-president-thanks-enes-kanter-after-athlete-says-taiwan-at-the-frontlines-against-chinas-dictatorship](https://www.dailywire.com/news/taiwan-president-thanks-enes-kanter-after-athlete-says-taiwan-at-the-frontlines-against-chinas-dictatorship)
+
+翻译：洛杉矶盘古农场–Raul
+校对：洛杉矶盘古农场–Mike Li
+编辑：洛杉矶盘古农场–心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

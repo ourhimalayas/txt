@@ -2,155 +2,122 @@
 ---
 
 
-## 美国媒体大重启大药厂封杀疫苗事件和共产党罪行
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672987/)
+## 习近平的过去
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1673072/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tt-asp84-zw5tb.jpg)
-[https://gtv.org/video/id=6195006e18270250810628cb](https://gtv.org/video/id=6195006e18270250810628cb)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4444-a9dta-2670i.jpg)
+[https://gtv.org/video/id=619500ec18270250810628e1](https://gtv.org/video/id=619500ec18270250810628e1)
 
 **郭文贵**
 **Miles Guo**
 
-另外一个班农事情意味着什么
-Another one is that what does the Bannon incident signal?
+我告诉你们，习躲过了13次的谋杀，这种暗杀都躲过13次，
+I tell you that Xi has avoided 13 times assassinations, and he has survived 13 times all of these assassinations
 
-美国媒体大重启
-The U.S. media’s big actions resume,
+你觉得习的未来，他的10年就能还躲另外13次，躲不过一次就结束了
+Do you think Xi’s future will be able to avoid another 13 times in next 10 years, and it will be over if he does not avoid once
 
-大重启
-The huge resume
+习近平他不知道人伦和自然之间的逻辑
+Xi Jinping does not know the logic between human relations and nature
 
-就班农事件你看高兴的是谁
-You can tell who was happy by the Bannon incident
+新中国联邦的发起人郭文贵最知道事物之间万物的逻辑
+Guo Wengui (Miles) who the founder of the New Federal State of China, knows the logic of existence between all things
 
-不高兴的是谁，你看得出来
-and who was upset
+我相信有天，我相信有神，我相信大自然的逻辑和根据
+I believe there is a God, I believe there is the Spirit, I believe in the logic and ba-sis of nature
 
-疫苗没人报道
-The vaccine disaster has not been reported by anyone
+习躲过13次，我要是习近平的话，我一定准备到明天就被干掉的这个准备
+Xi has escaped 13 times, If I were Xi Jinping, I would be prepared to be killed tomorrow
 
-美国严肃媒体的50%到75%的广告费来自何方
-Where do these 50% to 75% of the serious media advertising charges in the United States come from?
+你能躲过第14次吗？它是个基本的逻辑
+Can you guarantee to escape the 14th time? It is a basic logic
 
-全是大药厂
-They are all major pharmaceutical factories
+你不但你没想到14次，你以为是千秋万代
+Not only did Xi not expect the 14 times, Xi thought it will be for generations to come
 
-全世界特别是美国的严肃媒体的50到65到70的广告费
-50% to 70% of advertising fees for serious media in the world, especially in the United States
+你把所有的全中国人都当傻子，全世界当傻子
+Xi treats all Chinese people as fools and the whole world as fools
 
-来自于大药商
-are coming from major pharmaceutical factories
+我们在看待事物的时候，习不是他的文化决定他的思路
+When we look at things, it is not Xi’s education that determines his thinking
 
-所以疫苗没人说话呀
-That’s why nobody talks about the vaccine disaster
+一定记住习这个人，在决定他的思路是他的家庭
+Xi’s way of thinking in deciding things comes from about his family of origin
 
-疫苗没人说话
-No one covers the vaccine disaster
+他的姐姐的上吊自杀，文化大革命，他被3次被抓进少改所
+His sister committed suicide by hanging herself, the Cultural Revolution, and he was arrested 3 times into the juvenile prison
 
-共产党的事也没人说话
-No one talks about things that the CCP does
+在少改所他被打时他亲口跟我说的
+He told me in person that he was beaten inside the juvenile prison
 
-Eglise你想过这问题吗
-Eglise, have you ever thought about this issue?
+在里面，就是为了那半个窝头，把习给打得半死
+When he was in the juvenile prison, Xi was beaten badly for half of the Wotou (corn bun)
 
-为什么疫苗没人说
-Why nobody talks about vaccines,
+习被按在地上，拿鞋底抽他的脸，习在路边被当马骑
+Xi was pressed to the ground, his face was beaten with the shoe soles, Xi was ridden as a horse by the side of the road
 
-共产党在美国对班农的事也没人说
-nor talks about how the CCP targeting Bannon in the United States
+3次少改所，习每次出来都是打的跟半残废似的
+Three times in juvenile prison, Xi was beaten so badly every time then he came out
 
-这说明他是(同)一个老板哪, 对吧？
-These indicate they have the same boss. Correct?
+他又亲眼看到他爹16年失去自由，他跟习远平去看他爹
+He saw his father lost his freedom for 16 years with his own eyes. He and Xi Yuanping（his little brother ） went to see his father
 
-邪恶和共产党是一个老板
-The evil and the Communist Party are the same boss
+他爹当着他们面拉的屎，拿手里往嘴里吃
+His father was eating his own shit in front of them and put them into his mouth with his hand
 
-这对美国威胁大了去了
-This is a severe threat to the U.S.
+说你是谁呀，习近平都崩溃了，然后是他认不出习近平
+and asked who they are, Xi Jinping fell apart, and his father couldn’t recognize Xi Jinping
 
-我们提前42天的警报证明了以下的问题
-Our 42-day early warning has proved the following problems
+他这种背景，他比咱还恨共产党，你千万记住，他说什么共产党
+With his background, he hates the Communist Party more than we do, you must remember what he said about the Communist Party
 
-而且这些对班农大媒体对他整个的封杀
-and the Bannon incident which he was completely banned from major media
+我说去他大爷，他每天恨不得把这帮孙子都杀光
+I said go to hell, he can’t wait to kill all these bastard every day
 
-还有整个的完全无视真相的忽视
-as well as the whole ignorance of completely ignoring the truth
+他让中国人致富，他觉得你当时打老子的时候
+He made the Chinese people rich, he felt that I was beaten so badly then
 
-然后看好要抓这个班农
-Then, I’m optimistic about arresting Bannon
+我爹16年的时候，把我娘弄到深圳的时候，我们家什么结局
+and my father lost 16 years of freedom, they sent my mother to Shenzhen, what was the result of our family?
 
-我说你啥时侯被抓啊，赶快抓呀？
-I asked when did you (Bannon) get arrested, hurry up?
+邓小平又骗他爹，让他回去，说要当人大委员长
+Deng Xiaoping lied to his father and told him to go back, saying that he would name him to be the chairman of the National People’s Congress
 
-他说我等着呢，没抓啊
-He said he was still waiting
+结果不让他去，他爹本来就疯了，又把他爹骗一把
+As a result that he was not nominated, his father was so depressed and cheated again
 
-我说你赶快（被）抓了吧
-I was joking that hurry up got arrested
+真的是习仲勋提出的，当年的宝安县就是深圳这个镇
+It was really proposed by Xi Zhongxun（Xi’s father）, Baoan County was the town of Shenzhen
 
-现在我是真希望你能到某个我们的小船上等着去
-Now I really hope that you can wait in one of our boats
+往香港游每天杀几千人，血染成河,
+that people swam and fled to Hong Kong, killing thousands of people every day, staining the river with blood
 
-再在船上把你给抓走啊
-then you got arrested in the boat and taken away
+是习仲勋建议不要再杀人了, 建了特区
+It was Xi Zhongxun who advised not to kill anymore and established the Special Economic Zone
 
-所以说这次班农无疑成为美国的政治教父
-So this time Bannon will undoubtedly become the political godfather of the United States
+真的是他爹说的，后来邓小平把这个功给弄走了
+That was really said by his father and then Deng Xiaoping took away the merits
 
-这是绝对的
-This is absolute
+他多恼火啊，所以上来先把邓家灭了
+He was so angry, so he came up to destroy the Deng family first
 
-更重要它团结了（美国人）
-the most significant is that the American people have united
+先把你欺骗我爹的邓家人，吴小晖全抓了
+Wu Xiaohui from the Deng family who cheated my father was arrested in the first
 
-我刚刚看到这个
-I have just seen this one
+**原视频链接: **[** **https://gettr.com/post/pguxbk3062](https://gettr.com/post/pguxbk3062)
 
-川普发出了新的文章
-Trump have published a new article
+Date:11/16/2021
+原视频标题: 习近平的过去
+Xi Jinping’s past
+原视频日期：2021/11/12
+任务编号：KC261（2875）
+视频时间段 : 0:00-2:28
 
-我发给你们群里边
-I’ll send it to your group chat
-
-这是很大的事情
-This is a huge event
-
-所以说兄弟姐妹们
-So, brothers and sisters
-
-这个时候咱们新中国联邦的一个宣言人成了世界的焦点，是吧？
-At this time, one of our New Federal State of China’s declarers has become the fo-cus of the world, right?
-
-成了一个美国的政治当中最重要的风水标
-He has become one of the most important weathercock in American politics
-
-受益者当然是新中国联邦，是吧？
-The beneficiary is of course the New Federal State of China, right?
-
-这个意义大到哪儿去了
-What’s the significance of this?
-
-谈班农不谈郭文贵好像这事都过不去，是吧？
-Talking about Bannon but not Guo Wengui seems to be hard to get through, right?
-
-谈班农不谈咱新中国联邦都过不去
-It doesn’t make any sense that talking about Bannon but not the New Federal State of China
-
-**原视频链接:** [https://gettr.com/post/pgzhxnc17a](https://gettr.com/post/pgzhxnc17a)
-
-Date: 11/14/2021
-原视频标题: 班农事件意味着美国媒体大重启大药厂封杀疫苗事件和共产党罪行
-The Bannon incident indicates that the U.S. media has resumed that the major drug factories blocking vaccine incidents and the Communist Party crimes
-原视频日期：2021/11/14
-任务编号：KC260（2895）
-视频时间段 : 0:00-2:14
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片: 洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
