@@ -2,22 +2,32 @@
 ---
 
 
-## 许家印变卖资产维持运营
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1671029/)
+## 白宫：拜登关切中共国人权问题 反对中共破坏台海现状
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1671033/)
 
-**整理：**朝花夕拾
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11.17-5.jpg)
-财联社11月16日电，据接近恒大的资本圈知情人士消息，从7月1日至今，为了维持集团流动性，许家印已透过变卖个人资产或质押股权等方式筹集资金，累计已向集团注入超70亿现金，维持庞大的恒大帝国的基本运营。在此期间，恒大没有融资、销售停摆，但要保证财富每月10%的兑付、总部员工发薪、境内外债券付息，推动全国各地项目复工复产。（第一财经）
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-按照网络上的数据恒大欠款1.97万亿计，70亿现金仅九牛一小毛，拆东墙补西墙，许家印手里还尚存多少堵墙可以拆。巨额的财富早已被权贵转移海外。文贵先生在11月14日的直播中说不出两周时间，恒大一定会破产，不知道恒大的擀面杖到底最终能撑多久，让我们拭目以待，恒大最后的落幕。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/C37EFC80-7FC4-49D3-8BA5-2FB228474F2B.jpeg)（图片来自路透社）
 
-发布：文武全才
+美国白宫11月16日表示，拜登总统在与习近平主席视频会议时，表达了对中共国人权问题的关切，并强烈反对中共单方面破坏台海现状。
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据《路透社》报道，此次视频会晤分上、下半场进行，时间超过3个小时。
+
+美国白宫的声明称，拜登同习近平视频会议时，就中共国新疆、西藏和香港以及更广泛的人权问题提出关切。
+
+此外，关于台海局势，拜登表示，美国仍致力于“一个中国”政策，但强烈反对中共单方面改变台湾海峡现状或破坏和平与稳定的举措。美国将和盟友一起捍卫自己的利益和价值观。
+
+这是拜登今年就任美国总统以来，两国领导人的首次“露面会话”。会谈涉及双边关系、宏观经济、经贸关系、台海局势、能源安全、气候变化、公共卫生安全等广泛领域。
+
+*参考链接：[https://cn.reuters.com/article/china-xijinping-us-tw-1116-idCNKBS2I10GL?il=0](https://cn.reuters.com/article/china-xijinping-us-tw-1116-idCNKBS2I10GL?il=0)*
+
+* * *
+
+*素材采编：幽蘭自得*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
 
  
 
