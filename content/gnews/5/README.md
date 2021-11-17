@@ -2,49 +2,30 @@
 ---
 
 
-## 谷歌云、Snapchat、Spotify等在故障数小时后恢复
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1671428/)
+## 印度政府加强监管加密货币，利好喜马拉雅币
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1671469/)
 
-翻译：西班牙巴塞罗那喜悦农场-wenwu
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-360.png)图片来源： dailymail.co.uk
-周二（16日）下午，一场大规模的[谷歌](https://www.dailymail.co.uk/sciencetech/google/index.html)云服务器故障导致 Spotify、**[Snapchat](https://www.dailymail.co.uk/sciencetech/snapchat/index.html)** 和 Discord 等几个主要网站，崩溃了几个小时。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-92.jpg)[图片来源](https://nitter.net/pic/media%2FFDBoe6IUYAE5rEq.jpg%3Fname%3Dsmall)
+据印度经济时报周三报导，印度有可能禁止使用加密货币进行交易或支付，但允许将其作为资产持有，就像黄金、股票或债券等资产那样。
 
-Google Cloud 的服务页面显示（如下图），罪魁祸首是网络问题（ Google Cloud Networking），该问题影响了全球近十几个站点和数万用户。
+该报引述熟悉政府想法的消息人士的话称，这种做法将避免实施全面禁令，尽管政府很想阻止包括交易所和平台在内的加密货币公司积极努力吸引新的投资者。加密货币群体已经向印度当局提出了几次交涉，要求将其归类为一种资产，而不是货币，以便获得接受并避免禁令。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-361.png)
+消息人士周六表示，印度总理莫迪上周主持了一次会议，讨论加密货币的未来，因为担心不受监管的加密货币市场可能成为洗钱和恐怖行动融资的途径。到目前为止，印度央行似乎非常不愿意接受加密货币，对加密货币对宏观经济、金融稳定和资本管控构成的潜在风险表示担忧。
 
-这个问题始于美国东部时间下午 12 点之后，导致网页出现 404 错误，但受网络故障影响的网站似乎在下午 2:30 左右重新上线——一些用户可能仍然遇到问题。
+根据区块链数据平台Chainalysis的数据，2021年5月印度数字货币市场的规模为66亿美元，2020年4月为9.23亿美元。
 
-谷歌云的网络故障是在一场更大的在线惨败之后（如下图）发生的，该惨败导致 Meta 的所有平台——Facebook、Instagram 和 WhatsApp——在长达 7 小时的全球宕机中瘫痪。谷歌在美国东部时间下午 12 点 10 分在其云计算仪表板上发布了一份声明，承认了网络错误（404），目前没有解决办法。其[页面上](https://status.cloud.google.com/incidents/6PM5mNd43NbMqjCZ5REh)写道：“是我们向所有受到宕机影响的人道歉。”（谷歌云计算的仪表板早些时候[显示](https://finance.yahoo.com/news/google-amazon-several-other-websites-181233082.html)，包括云开发者工具、云控制台和云引擎在内的服务都面临故障）
+印度政府所担忧就是以比特币为代表的以洗钱功能为主的虚拟货币，但是相对的作为加密货币中的一股清流——喜马拉雅币，在诞生之初就和洗钱犯罪等活动划清了界限，不同于比特币的责任去中心化，喜马拉雅币倡导的是责任中心化，与稳定币挂钩，防止暴涨暴跌，突出了货币的流通属性。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-363.png)
+经济危机的到来，人民为了保存自己的财富，拥抱虚拟货币的潮流已经无人可挡，当政府不得不选择一个虚拟货币的时候，以喜马拉雅币为代表的可监管的加密货币必然会成为首选。
 
-据 **[The Verge](https://www.theverge.com/2021/11/16/22785599/google-cloud-outage-spotify-discord-snapchat-google-cloud)** 报道，DownDetector（一种基于网络的监测在线故障的服务）上显示的许多故障（包括Spotify、Alphabet、Discord 和 SnapChat 等），是与 Google Cloud 开始遇到问题的时间相吻合。
+消息来源:
 
-在谷歌云分享关于网络问题的第一个更新大约七分钟后发布了帖子。其内容为，“云网络的问题已部分解决；在问题完全解决之前，用户将无法对其负载平衡器进行更改；目前我们没有完整解决的预计时间（ETA）。”
+[印度可能禁止加密货币交易 但允许将其作为资产持有–报载](https://cn.reuters.com/article/india-crypto-currencies-ban-1117-idCNKBS2I20HW?il=0)
 
-Spotify 表示（如下图），在超过5万名用户报告他们面临问题之后，它“现在意识到一些问题并已正在进行检查”。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-365.png)
-
-Google Cloud 服务器故障发生在 Meta 崩溃仅一个多月后，由于其域名系统 (DNS)问题，其三个应用程序崩溃了 7 个小时。Meta 没有使用 CloudFare，但它运行着世界上最大的 DNS 解析器之一。当站点因 DNS 系统故障而停机时，CloudFare 会尝试修复它们。
-
-CloudFare 工程高级副总裁 Usman Muzaffar 当时告诉 DailyMail.com：“人类通过域名在线访问信息，如 [facebook.com](http://acebook.com/) 和 DNS 将其转换为数字，称为电脑 IP 地址。
-
-从我们对实际问题的理解来看–它是一个全球化的边界网关协议（BGP）配置问题（这些通常是错误，而不是攻击）；边界网关协议（BGP）是互联网的路由协议，就像邮局处理邮件一样，BGP 挑选最有效的路线来传递互联网流量。
-
-最初，有报道称 AT&T、Verizon 和 T-Mobile 也全部出现故障。在关闭数小时后，技术人员尝试对其服务器进行“手动重置”以解决问题。
-
-值得一提的是，如果无法访问 DNS 服务器，那么用户访问 Facebook 的相关应用将无法得到答复，因此页面将无法加载。
-
-新闻来源：[dailymail.co.uk][Back up! Snapchat, Shopify and several other popular websites are working again after Google Cloud networking outage caused disruption for more than two hours](https://www.dailymail.co.uk/sciencetech/article-10209361/Web-Google-Cloud-outage-crashes-Snapchat-Spotify-popular-sites-worldwide.html)发布时间：2021年11月16日
-
-* * *
-
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
-
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
