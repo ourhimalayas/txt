@@ -2,34 +2,39 @@
 ---
 
 
-## 国际要闻汇编11月17日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1670968/)
+## 多米诺骨牌效应，虚拟货币市值蒸发了2000亿美元
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1670997/)
 
-素材：东京樱花团丨GNEWS组
-![](https://lh5.googleusercontent.com/59gikfQn_iy3WU1pm_KlZv0hEp-XW9ZC8FwweRI3Qw1_LKsqHe5v1Ou4DPt2s43Ti9NwfwN5jn9Lw88zIt8NbgYqG55FzbhN4-x59y9rrCKXNloo4RgE3LlIAPS_5KHhHLE-5AUN)[图片来源](https://www.aboluowang.com/2021/1117/1672633.html)
-1、[**华邮重磅：美将宣布外交抵制北京冬奥**](https://www.aboluowang.com/2021/1117/1672633.html)
+**翻译：**Sara9
+**编辑：**MSGZ
 
-华盛顿邮报外交国安专栏作家罗金今天（17日）引述多位知情人士指出，拜登政府预计月底前宣布外交抵制北京冬奥。罗金表示，美方之所以采取外交抵制，美方将知会盟友这项决定，但会让他们自己决定是否跟进抵制。这是美国希望在不影响美国选手情况下，回应中方人权侵犯。共和党籍参议员卢比欧、众议员史密斯则进一步要求国际奥林匹克委员会，以北京在新疆进行种族灭绝为由禁止中国队参赛。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/11.17-4.jpg)图片来源：fool.com.au
 
-2、[**拜习视讯峰会各说各话 矛盾和僵局无解**](https://www.voachinese.com/a/observers-say-Biden-Xi-talk-will-not-help-ease-future-tensions-20211116/6315051.html)
 
-美国总统拜登和中国国家主席习近平于北京时间周二(16日)上午展开视讯峰会，这是两国元首继2月和9月两度电话热线后的第三次对话。在近4个小时的晤谈中，中方说，双方就美中两大强权未来的竞合关系和双方关切的敏感议题进行了“坦率、建设性、实质性和富有成效的”交流，但美方则认为毫无突破。对此，观察人士表示，美中两国领导人都展现了合作的主观意愿，但在客观情势上，双方各说各话，这意味着，两国因基本价值观和意识形态所导致的矛盾和僵局恐怕无解，未来经贸竞争和军事压力将不断升级。
+虚拟货币全场一夜之间爆跌至2.6万亿美元左右，数千亿美元的市值蒸发，比特币的价格跌至6万美元以下。
 
-3、[**国会重启努力 争取年底前通过中国竞争法案**](https://www.voachinese.com/a/congress-restarts-push-for-china-legislation-by-year-end-20211116/6315869.html)
+其他主要加密货币，包括以太坊、Binance的BNB、solana、cardano和Ripple的XRP，也出现了跌幅高达10%的回调。在上周破纪录的涨势中虚拟货币市值曾短暂地预告过超3万亿美元–比特币创下了69000美元的历史新高。
 
-参议院多数党领袖查克·舒默说，长时间未见进展的《美国创新与竞争法》将被纳入《国防授权法》之中。这项庞大的年度国防开支授权法案在年底之前必须得到通过。《美国创新与竞争法》今年6月在参议院以68票通过，在众议院仍未获得表决。如果通过，这项法案将提供1900亿美元的资金，用于与中国竞争的领域，包括半导体生产、技术安全和美国劳动力培训。法案还将对在美国从事盗窃知识产权或网络袭击活动的中国公司自动实施制裁。
+目前还不清楚是什么导致了这种戏剧性的下滑，但有几个因素似乎让投资者忧虑。
+这些因素包括中国对比特币挖矿的新打压，美国证券交易委员会(SEC)对现货比特币交易所交易基金(ETF)的拒绝，以及长期投资者的抛售兑现。
+然而，加密货币是出了名的不稳定，分析师表示，现在判断这次新的下跌是否标志着急剧上升的市场趋势开始逆转，或者是否只是在通往历史新高的道路上的一次修整，还为时尚早。
 
-4、[**中共利用海外空壳公司 窃取意大利军用无人机技术**](https://www.voachinese.com/a/China-covertly-purchases-Italian-avionics-firm-ALPI-Aviation-20211116/6315363.html)
+一位接受彭博社采访的分析师警告说，随着 “多米诺骨牌效应 “的出现，可能会出现新的低点。XTB市场的分析师Walid Koudmani说：”经过几天的上涨，看到比特币在它的历史高点附近徘徊，以及其他替代币价格也达到新高，我们看到市场正在大幅回调。如果出现更多的负面消息，市场容易出现多米诺骨牌效应导致价格可能出现新低。”
 
-据美国华尔街日报11月15日报道，意大利警方几个月来的调查发现，马尔斯（香港）信息科技公司（Mars,HK）在2018年7月以400万欧元（约460万美元）购买意大利军用无人机厂商Alpi Aviation（阿尔卑飞机公司）75%的股份。而马尔斯是在此收购行动的几个月之前刚刚在香港注册的一家公司。公司持有人是两家中国当局控制的公司：央企铁路巨头“中国中车”旗下的中车资本和无锡市政府旗下的一家投资集团。警方判定马尔斯是空壳公司，成立的目的是为将阿尔卑纳入中国政府的控制之下。
+其他专家认为，市场有可能在未来几周内创下历史新高， 而最近的暴跌只是一种 “修整”。
 
-5、[**拜习一见完 传台美高层紧接着会晤**](https://www.aboluowang.com/2021/1116/1672478.html)
+外汇公司每日换汇（DailyFX）的分析师尼古拉斯·考利(Nicholas Cawley)告诉《独立报》：“比特币的抛售使它回到了10天前的水平，这根本不是暴跌，更像是对过去几个月来上涨的修整。值得关注的一个方面是，比特币的走低使其跌破了多周的上升通道，使技术前景从正面转为中性。一个有趣的支撑区域是在59,500美元左右，如果能保持在这个价位，那么我们很可能看到比特币回调，并在未来几周内上升到历史新高”。
 
-据报导，拜登和习近平15日晚的视讯会议结束后，美台官员将在16日、17日举行“政军对话”及“国防检讨会谈”，台湾国安会副秘书长徐斯俭，国防部军政副部长柏鸿辉等代表台湾出席。台湾外交部发言人16日表示，台湾跟美国的关系紧密友好，双边官员互动密切。台美间有多层次、多管道的对话机制，就共同的关切事项及合作议题进行深入且广泛的讨论。
+**原文链接：**[https://www.news.com.au/finance/markets/domino-effect-warning-as-200-billion-wiped-off-cryptocurrency-market/news-story/43f852f4721980f965b0bc3fa8c7f64f](https://www.news.com.au/finance/markets/domino-effect-warning-as-200-billion-wiped-off-cryptocurrency-market/news-story/43f852f4721980f965b0bc3fa8c7f64f)
 
-*编辑：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
+发布：文武全才
+
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

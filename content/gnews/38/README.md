@@ -2,32 +2,22 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月16日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670631/)
+## 俄克拉荷馬总检察长加入对疫苗强制令的诉讼
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1670734/)
 
-作者：香草山翻译部
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-27.png)
+图片来源： www.lapeople.com
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-4.jpg)
+美联社11月16日俄克拉荷马市报道，俄克拉荷马州总检察长成为了12个州之一的针对拜登政府对健康工作人员的疫苗强制令向联邦提起上诉。
+
+州总检察长约翰·奥康纳周二说俄克拉荷马州护士本已缺乏，疫苗强制令更加重了这种情况。他说：“我不能忍受拜登政府对这些勇敢地战斗在疫情第一线的健康工作人员威胁撤消他们的工作。
+
+奥康纳同时也起诉了扬升健康公司让雇员执行强制疫苗令，说扬升健康公司违反了上周五州法官发出的限制疫苗强制令。他说他已经向该公司发出必须停止信，告诉该公司让那些被暂停工作或因寻求宗教原因豁免而遭解雇的雇员的工作。
+
+##### **新闻来源： **[Oklahoma AG joins lawsuit over health vaccine mandate](https://apnews.com/article/coronavirus-pandemic-business-health-lawsuits-tulsa-86749eca74e9c625184ae7b99596c0d4)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1116text-SC.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[11.16  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61945ad7e7e7703792360018)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
 
  
 

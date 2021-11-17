@@ -2,10 +2,10 @@
 ---
 
 
-## 中共国新股上市接连跌破发行价
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1671118/)
+## 中共非法收购意大利公司，盗取无人机军事机密
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1671122/)
 
-作者：新西兰伊甸农场 – 亚伦
+作者：纽约香草山医疗部 – 云豹
 
 
 
@@ -13,16 +13,18 @@
 
 
 
-据11月15日郭文贵先生最新盖特透露，中国经济出了大问题，国内很多新股上市跌破发行价。
+11月15日，从有关媒体了解到：中共在2018年，借由在香港注册一家空壳公司，收购了意大利军用无人机公司：阿尔卑航空（Alpi Aviation）。 该公司有夜视感测器、资料传输等涉及军事的机密技术。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-10.jpg)
+今年，意大利警方无意中发现马迩斯（香港）的背后金主是中共中车股份有限公司及江苏省无锡市政府掌控的投资集团。 该香港公司在注册后不久，随即买下了阿尔卑航空。
 
-郭先生爆料，本周一场外大笔交易集体行动卖掉在美国的中概股，以及香港的所谓的“红股”。一般来说，股票跌破发行价不仅意味着上市公司的名誉会受损，而且意味着持有该股票的投资者损失惨重，更意味着投资者信心严重不足。最近国内新股上市接连跌破发行价，前所未有。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-6.jpg)
+近日，丹提那公司执行长表示，此案件是中共在背后操控，借以获取特定军事管制科技的「教科书案例」。据了解，丹提那公司从事追踪中共在欧洲的投资活动。
+
 参考链接：
-[中国新股上市接连跌破发行价前所未有，多国与中国取消货币互换业务](https://gnews.org/zh-hans/1667813/)
+[China Bought Italian Military-Drone Maker Without Authorities’ Knowledge](https://www.wsj.com/articles/china-bought-italian-military-drone-maker-without-authorities-knowledge-11636972513?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-总编：AN
+总编：文徬
 编辑：木白
 校对/发稿：为真不破20
 

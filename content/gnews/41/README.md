@@ -2,66 +2,88 @@
 ---
 
 
-## 欧盟将以海外基础设施计划与中共国的“一带一路”相抗衡
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1670599/)
+## 众议员克里斯·斯图尔特： COVID-19 的起源是我们面临的最重要的问题之一 ，美国人民有权得到答案
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1670628/)
 
-**【简评：】***世界各国都在准备去中共“一带一路”的新供应链合作方式，脱中进行中。*
-
-据《asia.nikkei.com》，2021年11月15日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-343-e1637114015640.png)图片：取自原文
-27国集团将关注印度-太平洋地区的数字互联互通。
-
-欧盟的“全球门户”将强调可持续性和欧盟的价值观，以加强与合作伙伴的联系。在印度-太平洋地区，该框架将重点关注数字连接。
-
-苏格兰格拉斯哥，欧盟很快将宣布一个新的海外基础设施投资框架，与中共国的“一带一路”竞争。
-
-“全球门户项目”将强调可持续性和欧盟的价值观，以加强与合作伙伴的联系。在印太地区，该框架将专注于数字连接，因为这个27国集团希望增加与该地区的联系。
-
-**根据《日经亚洲》看到的“欧洲全球门户伙伴关系战略”草案，该框架将侧重于五个领域，重点取决于地理区域：数字化转型、清洁能源转型、交通、人与人之间的联系，以及贸易和弹性供应链。**
-
-该项目草案显示：“这些投资必须是全面、安全和可持续的，旨在拉近各国、社会和人民之间的距离，实现符合欧盟价值观，尤其是民主、法治和人权的绿色和数字化的双转型。”
-
-印太地区框架的主导将是“与主要志同道合的国家建立数字伙伴关系”，例如促进围绕人工智能的法规。欧盟还将探索与东南亚国家联盟的潜在连通性伙伴关系，类似于与日本和印度已经建立的伙伴关系。
-
-**该倡议是在欧盟推动实施其最近宣布的印太战略之际提出的。该战略强调与该地区志同道合的合作伙伴加深联系，以促进欧盟的安全和繁荣，包括确保强大的半导体供应链。**
-
-欧盟委员会发言人表示，他们的提案正在准备中，目前他们无法对细节发表意见。
-
-该草案指出，确保全球连通性的发展“符合欧洲的规范、标准和价值观”，符合欧盟的利益。
-
-**欧盟还希望“减少战略依赖”，这可能是指在受到COVID-19大流行影响的半导体等关键行业减轻对某些国家（中共）的依赖。**
-
-该草案将在内部进一步讨论，这意味着最终的内容和措辞仍可能发生变化。该法案发布日期尚未确定。
-
-欧盟还对北京的海外基础设施投资模式，以及欧盟该方面可持续发展提供替代选择的意图表示怀疑。草案称，欧盟“寻求提高透明度并平衡其他参与者不断增加的投资，这些参与者利用连通性来促进自己不同的经济和社会模式，并推进其政治议程”。
-
-该倡议将得到欧盟、其成员国和发展金融机构的资源支持。
-
-预计欧洲公共基金将会通过欧盟新的投资框架——欧洲可持续发展基金（EFSD+），为中低收入国家提供进一步融资。
-
-EFSD+提供数十亿欧元的混合赠款，并可为投资提供400亿欧元（460 亿美元）的担保。
-
-相比之下，尽管“一带一路”的财务规模没有官方或明确的数字，但中共国主席习近平在 2017年承诺为该倡议提供1240亿美元。
-
-随着对西巴尔干地区和东欧的投资，欧盟正在感受到“一带一路”倡议的浪潮。
-
-欧盟也被卷入一些不利于经济的项目，如提供大笔资金贷款的问题，这一特征与“一带一路”倡议有关。今年 4 月，黑山请求欧盟帮助偿还一项为中国的高速公路建设项目提供的 10亿美元贷款。
-
-原文连接：[https://asia.nikkei.com/Spotlight/Belt-and-Road/EU-to-rival-China-s-Belt-and-Road-with-overseas-infrastructure-pla](https://asia.nikkei.com/Spotlight/Belt-and-Road/EU-to-rival-China-s-Belt-and-Road-with-overseas-infrastructure-pla)
-
-翻译：洛杉矶盘古农场–TrueSky、轰炸机
-
-校对：洛杉矶盘古农场–轰炸机
-
-评论：洛杉矶盘古农场–轰炸机
-
-编辑：洛杉矶盘古农场–心照
+众议员克里斯·斯图尔特： 今天，我在众议院提出了《福奇法案》。 本月早些时候，参议员乔尼·恩斯特[@SenJoniErnst](https://twitter.com/SenJoniErnst) 在参议院提出了一项配套法案。 COVID-19 ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)) 的起源是我们面临的最重要的问题之一。 该法案代表美国人民要求透明度和公道。首先，该立法旨在禁止美国资助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的功能增强研究。 其次，它需要全面核算我们的税收资金的使用方式和去向。 最后，它会限制故意误导国会的政府官员。世界仍在感受着 COVID-19 ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)) 对人类和经济的破坏性影响。美国人民有权得到答案，我们需要采取一切可能的措施来防止灾难再次发生。 我鼓励国会过道两边的所有同事，加入我的努力.
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+> Today, I introduced the FAUCI Act in the House. Earlier this month, [@SenJoniErnst](https://twitter.com/SenJoniErnst?ref_src=twsrc%5Etfw) introduced a companion bill in the Senate.
+> 
+> The origin of COVID-19 is one of the most important questions we face. This bill demands transparency and justice on behalf of the American people.
+> — Rep. Chris Stewart (@RepChrisStewart) [November 16, 2021](https://twitter.com/RepChrisStewart/status/1460674635331252226?ref_src=twsrc%5Etfw)
+
+
+
+前白宫经济顾问皮特·纳瓦罗： 最新消息：美国平均每天有83000例新确诊的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 病例。每24小时就有1000多名美国人死亡。 将羟基(hydroxy)推广到全美国，死亡率将大幅下降。在《川普时代》第7章中阅读原因。
+
+
+
+> Breaking news: on average 83,000 new confirmed Covid-19 cases in the U.S. each day. More than 1,000 Americans dying every 24 hours.
+> 
+> FLOOD America with hydroxy and this death rate will fall DRAMATICALLY. Read why in Chap 7 of In Trump Time [https://t.co/Ym7VExlzPT](https://t.co/Ym7VExlzPT)
+> — Peter Navarro (@RealPNavarro) [November 17, 2021](https://twitter.com/RealPNavarro/status/1460776245881360384?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 拜登白宫需要澄清——如果 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 入侵台湾，他们会怎么做。 【转推称政府一高级官员刚说不支持台湾独立，总统拜登又说支持台湾独立，自相矛盾，等待澄清】
+
+
+
+> The Biden White House needs to come clean — what will they do if Communist China invades Taiwan. [https://t.co/w4oHJA8bXH](https://t.co/w4oHJA8bXH)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 17, 2021](https://twitter.com/MarshaBlackburn/status/1460759664220590083?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 拜登正在一个流氓 [#共产主义国家](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E5%9B%BD%E5%AE%B6?src=hashtag_click) 的手中被玩弄，并背弃了我们对台湾说过的话。 【附福克斯新闻：中共国称拜登谴责“台独”并警告美“正在玩火”】
+
+
+
+> Biden is playing into the hands of a rogue, Communist state, and walking back on the word we have given Taiwan.[https://t.co/aL6R8CI5by](https://t.co/aL6R8CI5by)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 16, 2021](https://twitter.com/MarshaBlackburn/status/1460736500765712390?ref_src=twsrc%5Etfw)
+
+
+
+加拉格尔众议员新闻办： 众议员加拉格尔：“国务院正在鼓励我们的外交官不要使用‘[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的恶意影响力’这个词……国防部似乎正在放弃大国竞争这个词……这一切都相当于一种更天真的方式应对中共国。这让我很担心。” 【附福克斯电视台视频：众议员加拉格尔就拜习在紧张加剧的情况下的视频会面】
+
+
+
+> Rep. Gallagher: "The State Department is encouraging our diplomats not to use the phrase "malign Chinese influence"…the Defense Department seems to be walking away from the term great power competition…this all amounts to a more naive approach to China. That concerns me." [pic.twitter.com/RkNr1uV4KU](https://t.co/RkNr1uV4KU)
+> — Rep. Gallagher Press Office (@RepGallagher) [November 16, 2021](https://twitter.com/RepGallagher/status/1460732968931143688?ref_src=twsrc%5Etfw)
+
+
+
+众议员肯·巴克： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府正在窃取美国人的知识产权，威胁对台湾开战，入侵南中国海，进行种族灭绝，并支持在美国领土上进行网络攻击。 白宫通讯主任在推特上能想到的就只有中共国国旗？ 【附白宫通讯主任的推文】
+
+
+
+> The Chinese government is stealing Americans’ intellectual property, threatening war against Taiwan, invading the S. China Sea, committing genocide, & supporting cyberattacks on American soil.
+>  
+> And all the White House Messaging Director can think of to Tweet is the Chinese flag? [https://t.co/IPVsmTyPeN](https://t.co/IPVsmTyPeN)
+> — Rep. Ken Buck (@RepKenBuck) [November 16, 2021](https://twitter.com/RepKenBuck/status/1460711006435430407?ref_src=twsrc%5Etfw)
+
+
+
+参议员兰德·保罗： 或者，一个负责资助功能增强研究并向公众撒谎的未经选举产生的官僚可能会损害我们对 COVID 的应对。 【附newsmax新闻：福奇说政治上的分裂损害了对新冠病毒的应对】
+
+
+
+> Or maybe an unelected bureaucrat responsible for funding gain-of-function research and lying to the public is doing harm to our response to COVID. [https://t.co/ozW8svdMDt](https://t.co/ozW8svdMDt)
+> — Senator Rand Paul (@RandPaul) [November 16, 2021](https://twitter.com/RandPaul/status/1460698796967538689?ref_src=twsrc%5Etfw)
+
+
+
+众议员丽莎·麦克莱恩： 台湾是值得信赖的盟友、伙伴和朋友，永远不应被 [#习主席](https://twitter.com/hashtag/%E4%B9%A0%E4%B8%BB%E5%B8%AD?src=hashtag_click) 和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 欺负。
+
+
+
+> Taiwan is a trusted ally, partner and friend and should never be bullied by Chairman [#Xi](https://twitter.com/hashtag/Xi?src=hash&amp;ref_src=twsrc%5Etfw) and the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw).
+> — Representative Lisa McClain (@RepLisaMcClain) [November 16, 2021](https://twitter.com/RepLisaMcClain/status/1460679240077254659?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 
