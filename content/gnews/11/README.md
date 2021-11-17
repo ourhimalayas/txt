@@ -2,23 +2,59 @@
 ---
 
 
-## 加拿大多数人认为未接种的医疗工作者应被解雇
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1670443/)
+## 继沃尔玛之后，克罗哥再陷加密货币骗局
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670450/)
 
-编译撰稿：硫酸羟氯喹64
+作者：纽约香草山佛教部 – 文一
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-10-edited.jpg)图片来源：TH
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-据加拿大法语媒体《魁北克新闻》11月16日报道，知名调研机构【安格斯-里德研究所】日前公布的一项民意调查结果发现，大约70%的该国公众支持解雇拒绝接种“新冠病毒”疫苗的医疗卫生和教育工作者。
 
-报道详细指出，魁北克省是最不愿意惩罚拒绝接种员工的省份之一。在卑诗省，76%的受访者认为未接种该疫苗的医护人员应被解雇。而在魁省，该数字下降到65%。
 
-调查还显示，相比那些未接种该疫苗的人，已接种者对感染“新冠病毒”的恐惧要高得多。55%的已接种者称他们很害怕被该病毒感染，而82%的未接种者则对此表示并不担心。
 
-关于对其他国家的医疗援助方面，加拿大人在“希望向低收入国家提供疫苗”和“只专注于在国内根除该疾病”之间存在较大分歧。而魁北克是唯一一个大多数人（52%受访者）希望关注贫穷国家疫情的省份。
+据《新闻极限》11月5日盖文消息报道：一份克罗格（Kroger）公司宣称将接受“比特币现钞”的声明出现在该公司投资者关系网站上，稍后即被删除。美联社也刊登了该声明，但旋即劝告读者应不予理会。上周五该公司证实此声明完全是欺诈，成为继沃尔玛之后第二个被卷入加密货币骗局的主要零售商。
 
-[原文链接：](https://www.journaldequebec.com/2021/11/15/une-majorite-de-canadiens-croient-que-les-travailleurs-de-la-sante-et-de-leducation-non-vaccines-doivent-etre-licencies)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1436-1.jpg)©AP
+
+据悉，该报道所谓“比特币现金”是比特币基础软件代码的一个扩展，是由一小群在中共国的比特币矿工在2017年主导开发的。
+
+而沃尔玛公司也曾在9月份遭遇类似骗局。骗子说将有一种鲜为人知的加密货币—莱特币与沃尔玛公司合作，该消息致比特币在短时间内价格飙升。
+
+而在克罗哥声明“比特币现钞”是假消息之后，比特币价格略微下滑。
+
+可见，流通性对加密货币的重要程度日益为人所知，而相关骗局频发的根源是发行者的急功近利，还是情知不妙继而垂死挣扎，目前尚不得知。而反观一开始就构架于喜联储、以黄金锚定的喜美元、喜支付之上的喜币，正如郭文贵先生在大直播中所说的“无国界流通价值还远未显现”。“喜币、喜联储的明天，就是现实可感、触手可及的共同富裕、利益共享。”
+
+**参考阅读：**
+
+1. [https://gettr.com/post/pg51ee09cc](https://gettr.com/post/pg51ee09cc)
+2. [文贵大直播 11/03 喜币的铸币权、无国界流通价值还远未显现 – GNEWS](https://gnews.org/zh-hans/1637358/)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+**编辑：larking
+校对/发稿：小鹿**
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

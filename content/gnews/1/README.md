@@ -2,28 +2,30 @@
 ---
 
 
-## 美国多个州政府就强制接种规定发起联合诉讼
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1670548/)
+## 有声|新中国联邦战友真正拥有G系列
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1670563/)
 
-采编：文明         编译撰稿：文莱
+配音：香草山教育部 – 蒙古鸿雁
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-44-edited.jpg)图片来源：WSJ
+11月12日，郭文贵先生在大直播中说，新中国联邦人的投资涵盖了整个G系列，成为真正的主人。而不会像某社交媒体，把最初80%的小股东排挤出去。那些小股东承担了高风险，但被资本运作后，却失去了获得巨额回报的机会。
 
+郭先生说，战友在G系列的占比，分别是，喜联储占60%，盖特占90%，GTV占 99%，GCLUB 占90%，G-Fashion 占50% 并掌管客服的维护运行。此外，战友掌握10亿个喜币中的6亿个，所有战友还拥有喜联储 5% 以及盖特5% 的份额。
 
-据美国媒体【丹佛公报】11月13日报道，美国目前有27个州政府已针对总统拜登的三项不同《“新冠病毒”疫苗接种规定》提起了诉讼。这些规定所涉及的对象包括：私人及联邦雇员，医疗保险人员，病患医护服务人员及医疗工作者等。
+郭先生表示，在人类面临新秩序重建的时刻，新中国联邦走在最前沿，G系列已经把新中国联邦人集结在一起。
 
-据悉，由于以上关于“联邦部门和私营机构的疫苗接种授权”诉讼，是直接向五个联邦上诉法院同时提出的，所以此举为美国最高法院的最终权衡判决创造了必要条件。
+文字版原文：[新中国联邦战友真正拥有G系列](https://gnews.org/zh-hans/1662979/)
 
-之前，美国多个州的私人企业雇主已在新奥尔良第五巡回上诉法院，以“疫苗授权接种规定是非法和违宪的”原因起诉了拜登政府。对此，该法院最终以涉嫌严重违宪为由，批准了该诉求并暂停了该规定的执行。
+音频处理：喜山必胜Maverick
 
-密苏里州总检察长对此表示，拜登当局非法使用联邦支出来胁迫各州遵守其疫苗接种规定，不仅违反了《美国宪法第十修正案》，更加剧了该国目前所面临的劳动力严重短缺问题。
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-[原文链接：](https://denvergazette.com/news/lawsuits-challenging-bidens-vaccine-mandates-mount-likely-heading-to-u-s-supreme-court/article_3ec30c05-57d6-5ccf-a253-165b718a5c44.html)
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
