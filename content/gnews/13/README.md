@@ -2,36 +2,23 @@
 ---
 
 
-## 中共国又一名抗疫医生猝死
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672215/)
+## 11月17日文贵大直播快讯——拥有喜币是为了灭共
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1672242/)
 
-作者：纽约香草山教育部 – Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月13日，中共媒体报道称，一名一线抗疫医生突发性死亡，年仅三十岁。
+撰稿：Gradient Boost
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-11.jpeg)
+视频：文登
 
-资料显示，逝者名为李鸿雁，原是一位血液内科医生，疫情期间，其所在的发热门诊任务更为繁重，李鸿雁前去支援，最终却倒在了完成任务之后的隔离期。
+美东当地时间11月17日，文贵先生在大直播中再谈全球疫苗灾难话题。不过在话题开始之前，文贵先生表示，他预想到的很多事情，现在都到来了，但是其中也包括一些不好的现象。
 
-另据报道，中共国强推毒疫苗的第一批受害者大多为医护人员，且疫苗接种与否往往与相关人员的工作、晋升密切相关。值得注意的是，疫情期间，中共国内猝死的医生人数已远超因感染新冠病毒死亡的人数。
+很多战友在看到喜币升值之后便选择开始躺平，这种情况是在文贵先生的预料之中的。喜币目前其实还没有上涨到达理想的价值，大家便已经开始躺平了，许多农场群许多事情就没人做了。文贵先生认为这很可怕，同时也提醒战友，如果我们在当前这个时间点选择躺平，那么最终的结果将是失去喜币。
 
-郭文贵先生曾在直播中爆料，当前中共国内的医护人员极为短缺，其主要原因在于，大多数医护人员被强制接种了新冠毒疫苗，其后许多人仍然感染了新冠病毒，从而导致并发症，甚至死亡。而中共新冠疫苗来带的次生灾难，以及由此引发的医护人员猝死等现象或将形成一个死循环，最终会导致中共国内医疗系统的全面崩塌。
+喜币上市时间还不到三周，但是已经创造了人间的奇迹。据说在下一届的美国参议员当中会有十几位拥有虚拟货币背景的人物。许多战友币还没拿到手便已经开始躺平，可是不要忘记，我们获得喜币的原因是因为我们的目标是灭共。
 
-参考链接：[又一位医生倒在抗疫一线，年仅30岁](https://user.observersnews.com/main/content?id=634430&amp;s=fwtjgzwz)
+如今共产党仍然存在着并继续作恶，我们是没有理由去躺平的。如果我们现在放弃了对爆料革命和新中国联邦的使命，那么一切便都不再属于我们。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
-
-总编：文徬
-编辑：Kathy文艺 
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+（文章内容仅代表作者观点，与Gnews平台无关）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

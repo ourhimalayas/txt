@@ -2,21 +2,27 @@
 ---
 
 
-## 有声|医学博士揭露刺突蛋白是人类史上最精心设计的毒素之一
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1672166/)
+## 美日海军南海潜舰联合训练演习
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672207/)
 
-配音：香草山教育部 – 蒙古鸿雁
+作者：纽约香草山 医疗部 – 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月16日，日本防卫省海上自卫队发文表示，日本正在南海与美国的驱逐舰和反潜飞机共同执行潜舰的追踪反潜训练。
 
-11月15日，著名有遗传学、高等生物学、微生物学和生物化学博士—-山卡拉·切蒂在视频中指出，刺突蛋白是人类有史以来最精心策划的毒素，可以悄然无形地杀死数十亿人。而新冠疾病的病原体是刺突蛋白，而无论灭活疫苗还是mRNA疫苗，都是在身体里制造更多的刺突蛋白。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-13.jpeg)
 
-切蒂博士还分析了疫苗不易被质疑的原因。疫苗引发的过敏反应导致死亡，通常在接种后第8天，但这处于CDC规定的14天期限内，被统计在未接种数字中。这样的统计方法让人心生恐惧，互相指责，但这只是开始。刺突蛋白造成的内皮损伤，可以出现在身体任何部位，引发自身免疫系统的过激反应。这种对身体的损伤，甚至死亡，将会因分布之广、数量之多、时间跨度之长，很难被质疑是疫苗引起的。
+文中还提到，日方除了潜舰外，还派出了“加贺号”等两艘护航舰及反潜巡逻机，协同进行美日海军的联合训练。
 
-文字版原文：[医学博士揭露刺突蛋白是人类史上最精心设计的毒素之一](https://gnews.org/zh-hans/1670635/)
+评论指出，美日此次的南海联合潜舰训练，意在警告中共：南海实为国际海域，任何国家的船舰皆有自由航行权。国际社会绝不允许中共私自在南海将岛礁人工军事化，强行将南海变成中共掌控的内海，破坏世界航海秩序。
 
-音频处理：喜山必胜Maverick
+参考链接：[牽制中國 日美首度舉行南海潛艦共同訓練](https://www.cna.com.tw/news/firstnews/202111160344.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：文特
+编辑：文特 
+校正/发稿：谐趣园
+
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
@@ -24,6 +30,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,28 @@
 ---
 
 
-## 美台资深官员将于华盛顿举行会议
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672145/)
+## 日本经济安保法案排除中共敏感设备
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672156/)
 
-作者：日本方舟农场 Andy5
+作者：纽约香草山 医疗部 – 云豹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月15日，据台湾媒体消息，在当天的拜习视频会晤后，台湾与美国的资深官员将于16、17两日在美国华盛顿连续举办美台政治军事对话以及国防检讨会。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-17-下午10.39.26.png)
-据了解，相较于拜习视频会的仓促，美台此次会晤经过充足的准备与协商，但两场会议同时举行于双方而言尚属首次。
+综合日本媒体11月12日到14日的报道，日本政府为了保障经济安全，将制定《经济安全保障推进法案》，目地在于确保日本的技术、情报不外流，以及稳定半导体的供应。
 
-媒体透露，目前已知的即将出席对话的人士包括台湾总统府副秘书长徐斯俭、外交部政务次长曾厚仁，以及国防部军政副部长柏鸿辉；美方则有国务院政军局助理国务卿露易丝和国防部印太事务助理部长瑞特纳。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-14.jpeg)
 
-数据显示，这是今年经由媒体公开的美台第二次政治军事对话。消息人士称，双方愿意公布这些会谈代表着美台关系的提升，同时，双方将过去模糊的策略变得明白化、公开化和正常化。
+预计，这次的法案将包括“供应链坚韧化”、“维持基础建设功能”、“专利非公开化”及“确保技术基础”这四大重点。
 
-参考链接：
-1）[台媒：习拜会后台美资深官员将举行对话](https://www.zaobao.com.sg/realtime/china/story20211115-1213576)
-2）[台美政军对话今举行 专家：显见美对台政策延续](https://www.voachinese.com/a/5728287.html)
+除此之外，法案还考虑加入“事前审查制度”，要求日本的通讯、能源、金融等产业在购置重要基础设备时，避免引进有安全性风险的产品。据了解，此举主要是为避免引进会影响运作安全性的中共产品或系统。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+另外，法案中也规定了特定专利非公开化的条款，主要是为防止能被用作新世代武器研发的先进技术外流。
 
-总编：飞虹
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+参考链接：[日本經濟安保法案概要曝光 藉審查排除中國敏感設備](https://www.cna.com.tw/news/firstnews/202111140114.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：文特
+编辑：飞虹 
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
