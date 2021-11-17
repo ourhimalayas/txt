@@ -2,33 +2,19 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月16日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670631/)
+## 班农先生被起诉事件意味着美国媒体大重启
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1670770/)
 
-作者：香草山翻译部
+#### 文编：东京樱花团/樱花传媒
+视频:东京樱花团/中文小视频组
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-4.jpg)
+11月14日，郭文贵先生在GTV大直播再次指出：
 
+班农先生被起诉事件意味着美国媒体大重启。没有对疫苗的异议是由于美国媒体一半以上的广告费来自大药厂。没有反中共的话题是因为与其息息相关。新中国联邦宣言人班农先生因大媒体无视真相和对他的封杀，会更加提高其声誉，成了世界的焦点，美国政治风向标。新中国联邦当然是受益者。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1116text-SC.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[11.16  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61945ad7e7e7703792360018)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,21 +2,18 @@
 ---
 
 
-## 雅典娜时报-第115期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1670957/)
+## 第五巡回法庭的背后是一种世界级的人类的较量
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1671006/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+第五巡回法庭的背后是一种世界级的人类的较量。美国只要是把它终止、停止 (强制疫苗)， 一定是全世界国家的停止。这个影响全人类的命运就是美、中、俄。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-118.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-33.png)
-***发布：小红帽***
+**【郭先生直播摘要】****2011.11.10****第五巡回法庭的背后是一种世界级的人类的较量**
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**郭先生：**
+
+第五巡回法庭的背后是一种世界级的人类的较量。它不是美国，美国只要是把它终止、停止 ，或者进行诉讼、暂缓，对待我们所有中国人和全球的所有战友都是相关的、最相关的。美国终止、停止后，一定是全世界国家的停止。这个影响全人类的命运就是美、中、俄。然后才是欧洲，就是作恶也是美国是首恶，就像那天我跟那个要帮我们建国防系统的哥们说的一样，我说最后的恶，都是你美国作的，他说完全完全完全(对)，把头都点的跟鸡似的。
+
+视频剪辑：小腾腾 |听写：小蜜蜂 |翻译：Arthur |校对：烟波浩淼 |视频制作+字幕：CG. |编辑&发布：断播
 
  
 
