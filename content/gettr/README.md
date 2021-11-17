@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gfashion 11/17/2021 2:00 AM (UTC)`
+
+Shop 'The Drop' at www.GFashion.com<br/><br/>@gfashion <br/>@ddnyc
+![img](https://media.gettr.com/group49/origin/2021/11/17/02/c131b0f9-ef3b-b68a-c2e9-3fc158ae420e/7d7d51eead33a47aed0f871a20543d20.jpg)
+
+---
+
 `@miles 11/17/2021 12:35 AM (UTC)`
 
 11月16日：多多和笨笨都长大了，感谢很多战友很关心他俩的成长，他们俩很快的就要入洞房了……现在应战友的要求发几张照片与大家分享！
@@ -290,13 +299,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 11/12/2021 Miles Guo: The revelation of the truth about the CCP virus and its vaccines by the Whistleblowers’ Movement is the result of the joint efforts from countless fellow fighters and me under the CCP’s threats; Xi Jinping will be held accountable for giving the order to release the CCP virus and pushing the CCP virus vaccines! The New Federal State of China will soon establish its defense and global security system to protect the overseas Chinese around the world!<br/><br/>11/12/2021 文贵直播：爆料革命对中共病毒和疫苗灾难真相的揭露是无数受到中共威胁的战友和文贵的共同努力所换来的；习近平将因其下令放毒和推动疫苗而被追责！新中国联邦将马上建立国防和全球安保系统来保护全世界的华人！<br/>
 ![img](https://media.gettr.com/group31/getter/2021/11/12/23/41/e3af84b3-48e7-02f5-9fc4-c87ef050ef35/out.jpg)
-
----
-
-`@miles 11/12/2021 1:30 PM (UTC)`
-
-...
-![img](https://media.gettr.com/group45/origin/2021/11/12/12/2a2487a4-ac2f-8b8a-2de7-1f9a5c58d982/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
