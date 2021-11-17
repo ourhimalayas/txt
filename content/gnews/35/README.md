@@ -2,50 +2,74 @@
 ---
 
 
-## 疯狂科学家现在正在开发替代疫苗的mRNA蔬菜和水果
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1672792/)
+## 【Michael.Tonny专栏】Pfizer向公众隐瞒6人在CCP病毒疫苗临床试验中死亡
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1672811/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-385.png)图片来源：Dreamstime & BioWorld
-**整理报道：文泓**
+作者： 加拿大温哥华扬帆农场  Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/michael-2.jpg)
+#### 拜习会，拜登向宇宙大帝习大神就贸易、人权、阿富汗、伊朗、朝鲜、台湾、香港、西藏、新疆、自由开放的印太地区、健康安全、地球变暖和全球能源危机等话题套了两个多小时近乎。
 
-美国大部分地区至今仍被政府禁止在家中种植天然药材（如大麻、迷幻蘑菇、仙人掌）。然而，这个政府正在花费大量的纳税人收入来开发人工mRNA植物“疫苗”，未来将鼓励美国人消费，甚至可能自我种植，以“保护”免受最新设计“病毒”侵害。
+#### 更不要指望拜登能亲口问问习大神，“2020年9月2日，陈薇在CCP中央电视台大型电视公益节目开学第一课亲口说，2020年2月26日是她主持的第一批（*笔者注：CCP病毒*）疫苗在生产线下线的那天”，这件事情怎么回事？
 
-加州大学河滨分校（UCR）最近的一份声明解释说，美国国家科学基金会（NSF）向UCR的一组科学家提供了50万美元的纳税人资助，为大药厂基因改造（GMO）新式的水果和蔬菜，在其植物材料中含有隐藏的疫苗。
+#### 所有良知未泯人媒体都在惊呼，拜登只字不敢提及新冠病毒（CCP病毒），拜登向习大神顶礼膜拜，拜登正式向习大神投降！
 
-“（接种）疫苗的未来可能看起来更像吃沙拉，而不是在手臂上打一针”，信息官朱尔斯·伯恩斯坦（Jules Bernstein）在该项目公告中写道：**“****UCR****的科学家们正在研究是否能把像生菜这样的可食用植物，变成****mRNA****疫苗工厂（产品）。”**
+#### CCP真能瞒天过海，世界从此不再追究中共向全世界发动生化武器战争的反人类罪行？
 
-现有的传统瓶装mRNA疫苗必须保存在非常低的温度下才能保持“活力”，因此在“过期”之前如何将它们送入人们的“怀抱”是一个挑战。科学家说，**mRNA****蔬菜和水果可以解决这个问题。**
+#### 任凭毒疫苗继续杀戮？当然不可能！
 
-UCR植物学和植物科学系的副教授胡安·巴勃罗·吉拉尔多（Juan Pablo Giraldo）说：“理想情况下，一棵植物就能产生足够的mRNA来为一个人接种疫苗。”
+#### 2021年11月16日，曾于2013年被授予 Reed Irvine 媒体准确度（Accuracy）奖，并于2016年5 月获美国繁荣基金会（ the Americans for Prosperity Foundation）颁发的 Breitbart 在线新闻卓越奖，美国著名保守派新闻媒体[The Gateway Pundit](https://www.thegatewaypundit.com/)创始人和编辑Jim Hoft在文章中揭露，辉瑞（Pfizer）向公众隐瞒了COVID（CCP病毒）疫苗临床试验中的死亡人数。
 
-“我们正在用菠菜和生菜测试这种方法，长期目标是让人们在自己的花园里种植它。农民也可在整个田地里种植。”
+#### 2021年7月，辉瑞向公众发布了从第1剂疫苗问世到 2021年3月13日的临床试验数据，截止至3月中旬，它已发现疫苗接种者中有15人死亡。而它报告给FDA的数据，在相同的截止日期，即同样是截止至3月13日，疫苗接种者中死亡了21人。
 
-**在美国，自然的是“非法的”，不自然的反而是正常的**
+#### 辉瑞向公众隐瞒了多达6个在COVID-19（CCP病毒）疫苗试验期间的死亡人数！
 
-吉拉尔多进一步解释说，对植物进行重新编程以制造人工mRNA纳米颗粒的关键是篡改它们的叶绿体（基因）。
+#### 就在昨天，[medicalxpress.com](https://medicalxpress.com/)在题为[Pfizer, BioNTech, Moderna making $1,000 profit every second: analysis](https://medicalxpress.com/news/2021-11-pfizer-biontech-moderna-profit-analysis.html)的新闻中报道，人民疫苗联盟 (PVA，the People’s Vaccine Alliance)表示，Pfizer, BioNTech 和 Moderna三家医药公司已经与世界上多数最富有的政府都签订了最有利可图的合同，这三家公司今年将获得340亿美元的税前利润，相当于每秒超过1,000 美元、每分钟65,000美元或每天9,350万美元。
 
-这些小型植物细胞器官通常将阳光转化为能量，然后由植物用来生长和茁壮成长。经吉拉尔多和他的同事基因编辑后，这些叶绿体可以被用来为制药业培育mRNA药物。
+#### 根据[VAERS 网站](https://openvaers.com/covid-data/mortality)统计的报告，今年已经有12,412 人的死亡与辉瑞疫苗有关，而据估计VAERS统计的疫苗伤害仅占美国疫苗伤害的1%。
 
-吉拉尔多说：“它们是微小的、由太阳能驱动的工厂，生产糖和其它分子，使植物得以生长。也是（科学家）制造理想分子的一个未开发的来源。”
+#### VAERS是1990年开始实施的疫苗不良事件报告系统，是根据可从vaers.hhs.gov下载的 HHS 数据构建的。它是一种自愿报告系统， VAERS公开申明([see the Lazarus Report](https://openvaers.com/images/r18hs017045-lazarus-final-report-20116.pdf))，VAERS统计的数据仅占疫苗伤害的1%左右（It is a voluntary reporting system that has been estimated to account for only 1%）。
 
-**吉拉尔多所说的“理想的”当然是指可申请专利的，更重要的是可盈利的。一旦他们所谓的“疫苗”注射剂在市场上销声匿迹，下一步就是将它们伪装成新鲜产品。**
+#### 截止至2021年11月5 日，VAERS已经收集了1720302例因疫苗死亡相关报告，每一份报告都按VAERS ID编号，并有非常详细的病历记载，感兴趣的读者可以到[The OpenVAERS Project](https://openvaers.com/openvaers)查看。
 
-**像吉拉尔多这样的疯狂科学家显然相信，如果“疫苗”看起来更像食物，而不是金属注射器，就会有更多人被说服食用**。而且他们将竭尽全力实现这一目标。
+#### 根据VAERS的统计图表（[VAERS COVID Vaccine Mortality Reports](https://openvaers.com/covid-data/mortality)）分析，在向公众注射Covid-19（CCP病毒）疫苗前，即1990年至2020年30年间，每年VAERS收到因注射疫苗死亡的报告最高不会超过600人，2020年甚至低于400人。
 
-“我们的想法是重新利用自然发生的纳米粒子，即植物病毒，将基因传递给植物，”关于这个可恶的项目加州大学旧金山分校纳米工程教授妮可·斯坦梅茨（Nicole Steinmetz）补充说。
+#### 而自开始推广注射COVID-19（CCP病毒）疫苗以来，截止至2021年11月5日，今年因注射疫苗死亡的案例就已经达到19000人以上。这里需要再次提醒各位的是，据估计VAERS统计的数据仅占美国疫苗伤害的1%。
 
-吉拉尔多说，开发这样的产品一直是他的一个“梦想”。引用他的话，“我开始从事纳米技术工作的原因之一，是我可以将其应用于植物并创造新的技术解决方案。不仅仅是食品，还有高价值产品，如药品。”
+#### 与此同时，福奇博士（Dr. Fauci）仍在欺骗大众，还在大肆推广疫苗。福奇在本周二表示，如果每个人都接种疫苗，到明年美国可能会达到 Covid -19（CCP病毒）流行水平而不是大流行……人们仍然可能会被感染，人们可能仍会住院，但感染水平会低到我们甚至不用考虑COVID-19（CCP病毒）这件事，也不会影响我们的工作。
 
-新闻链接：[Scientists now developing mRNA vegetables so that grocery stores can sell “vaccines” hidden in food – NaturalNews.com](https://www.naturalnews.com/2021-11-16-scientists-mrna-vegetables-eat-produce-vaccines.html)
+#### 最后，援引La Quinta Columna研究团队的两个重要研究结论：氧化石墨烯是所有疫苗的关键成份，注射含有氧化石墨烯成份的疫苗和感染CCP病毒是同样的后果，不要打疫苗！通过增加谷胱甘肽水平，（*笔者注：有可能*）可以减轻氧化石墨烯有毒物质的伤害！
 
-***发布：Candy***
+#### 停止杀戮，停止毒疫苗！
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+#### **参考资料：**
+
+[BREAKING NEWS: Pfizer Hid from Public the Number of Deaths in COVID Clinical Trials — Actual Number Was 21 Which Was 6 More than was Reported and 4 More than Unvaccinated Group](https://www.thegatewaypundit.com/2021/11/huge-breaking-news-pfizer-hid-public-number-deaths-covid-clinical-trials-actual-number-21-6-reported-4-unvaccinated-group/)
+
+[Pfizer, BioNTech, Moderna Making Combined Profits of $93.5 Million a Day: Analysis](https://www.thegatewaypundit.com/2021/11/pfizer-biontech-moderna-making-combined-profits-93-5-million-day-analysis/)
+
+[Pfizer, BioNTech, Moderna making $1,000 profit every second: analysis](https://medicalxpress.com/news/2021-11-pfizer-biontech-moderna-profit-analysis.html)
+
+[OpenVAERS Report](https://openvaers.com/openvaers)
+
+[COMPLETE SURRENDER: Biden Talks to China’s President Xi on a Two-Hour Phone Call and Never Brings Up COVID](https://www.thegatewaypundit.com/2021/11/complete-surrender-biden-talks-chinas-president-xi-two-hour-phone-call-never-brings-covid/)
+
+[Health product recall MASKS/ KN95 MASKS WITH BIOMASS GRAPHENE (2021-04-08)](https://recalls-rappels.canada.ca/en/alert-recall/masks-kn95-masks-biomass-graphene-2021-04-08)
+
+[Shocking News: Spanish Researchers Find 98-99% of Pfizer Vaccine Vial is Comprised of Toxic/Blood-Clotting Nano Graphene Oxide–Also Found in Flu-Vaccines & Now Seen to be True Cause of COVID-19](https://everydayconcerned.net/2021/07/05/shocking-news-spanish-researchers-find-98-99-of-pfizer-vaccine-vial-is-comprised-of-toxic-blood-clotting-nano-graphene-oxide-also-found-in-flu-vaccines-now-seen-to-be-true-cause-of-covid-19/)
+
+[Official interim report of Pfizer’s vaccination vial analysis explained by La Quinta Columna](https://www.orwell.city/2021/06/vaccination-vial-analysis-explained.html)
+
+[La Quinta Columna: ‘Graphene oxide has its absorption band in 5G’](https://www.orwell.city/2021/06/la-quinta-columna-graphene-5G.html)
+
+[Big Pharma Injecting Graphene Oxide As Adjuvant In COVID Jabs!](https://principia-scientific.com/big-pharma-injecting-graphene-oxide-as-adjuvant-in-covid-jabs/)
+
+[“人民英雄”国家荣誉称号获得者陈薇——“除了胜利，别无选择”](http://cpc.people.com.cn/n1/2020/0912/c64387-31858861.html)
+
+（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+
+* * *
+
+编辑、校对 ctt
 
  
 

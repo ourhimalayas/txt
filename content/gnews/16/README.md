@@ -2,127 +2,37 @@
 ---
 
 
-## 习近平的过去
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1673072/)
+## 文贵视角： 政治、金钱和性交易背景下的2022北京冬奥会
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1673084/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4444-a9dta-2670i.jpg)
-[https://gtv.org/video/id=619500ec18270250810628e1](https://gtv.org/video/id=619500ec18270250810628e1)
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图像-2.jpg)
+图片：Miles Guo Gettr
 
-**郭文贵**
-**Miles Guo**
+近期美国多家媒体报道，美国政府正在考虑对明年2月在北京举行的冬奥会作出回应，其中可能包括不派出任何政府官员的“外交抵制”。但是15日在网上举行的美中首脑会议上没有提出这个问题。
 
-我告诉你们，习躲过了13次的谋杀，这种暗杀都躲过13次，
-I tell you that Xi has avoided 13 times assassinations, and he has survived 13 times all of these assassinations
+《华盛顿邮报》16日报道称，拜登预计将很快批准一项建议，即不派美国官员参加北京奥运会。迄今为止，包括众议院议长佩洛西在内的民主党和共和党议员都呼吁进行这一外交抵制，以抗议中共国侵犯人权的行为。 一些共和党议员表示，美国运动员也应该放弃参与以示抗议。美国国务卿布林肯上周表示，他正在与他的盟友“讨论”如何应对此次北京冬季奥运会。
 
-你觉得习的未来，他的10年就能还躲另外13次，躲不过一次就结束了
-Do you think Xi’s future will be able to avoid another 13 times in next 10 years, and it will be over if he does not avoid once
+今天11月17号大直播中，郭先生回答草根小哥的问题：西方到底是为了什么要抵制冬奥会吗？郭文贵先生回答的非常直接：这是政治流氓最低级的操作方法。
 
-习近平他不知道人伦和自然之间的逻辑
-Xi Jinping does not know the logic between human relations and nature
+**第一个，**各国政府说抵制，是为了“政治卸责”。“新疆大屠杀我说了啊。我警告过你，你可能染上病毒”。
 
-新中国联邦的发起人郭文贵最知道事物之间万物的逻辑
-Guo Wengui (Miles) who the founder of the New Federal State of China, knows the logic of existence between all things
+**第二个，**这是政客们的政治表演，说“我反对，不能去，新疆大屠杀”，等着中共来蓝金黄他们，这是一个“会哭要价”的逻辑。
 
-我相信有天，我相信有神，我相信大自然的逻辑和根据
-I believe there is a God, I believe there is the Spirit, I believe in the logic and ba-sis of nature
+**第三个**，奥运会的本质是钱。郭先生最清楚2008北京奥运会就是拿钱、拿性贿赂。自2003年就开始担任2008国际奥委会（IOC）北京代表处首席代表的李红，郭先生强调李红是“萨马兰奇的奥运会中国代表”。（见文章[《盛开国际体育李红和2008年北京奥运会》](https://gnews.org/zh-hans/1663913/)），回忆李红当年“挤着胸部，盘古长期有她房间，经常在21楼，用私人房间，比客厅都大，两道门，给领导亲吻双休检查痔疮，设计好的”，“经常穿盘古几千块睡衣，电梯厅里接来接去的”。
 
-习躲过13次，我要是习近平的话，我一定准备到明天就被干掉的这个准备
-Xi has escaped 13 times, If I were Xi Jinping, I would be prepared to be killed tomorrow
+**奥运会本质都是利益，已经没有了奥林匹克精神。**郭先生揭示了中国怎么拿到奥运会的，是江泽民通过搞定美国赌场老板Steve Wynn，让他在澳门拿到赌牌，最后运作到中国拿到奥运会。郭先生通过邓小平讲话视频知道中共计划通过开奥运会扩大党的国际的形象。共产党奥运的本质就是行贿、蓝金黄还不够。每届奥运会，没有一届没有丑闻的。而对于哪些非洲、亚洲、南美代表，共产党都是投其所好。当时的北京市长刘淇原话“我女婿有关系，奥运会投票权的，这个女的极为喜欢男孩，送一些好的跳舞的男孩去，而且从新疆和西藏选，就这啊，蓝金黄啊”。冬奥会就是金钱交易腐败大会，欺骗人民的大会。
 
-你能躲过第14次吗？它是个基本的逻辑
-Can you guarantee to escape the 14th time? It is a basic logic
+郭先生坚决反对冬奥，他说，我们反对了，我们这个声音，新中国人，奥委会还不能抹杀！冬奥会最近给回复了，以表达他的政治正确。但是我们知道李红的存在，知道共产党怎么拿到奥运会的存在。结束2008年奥运使命后，李红创办盛开国际体育，盛开国际体育的办公室分别设在在北京和奥委会所在地瑞士。一直在运作中共与奥委会的这条线上，就如她毫不掩饰的公开回答：现在商业上的很多合作伙伴都是奥运期间结下的友谊？这种友谊有什么特殊之处？对此问题李红的回答是：我们之间有非常深的信任，类似于一起插队、一起当兵的感情。那是一种和平时期罕见的生死考验。通过郭先生的解读，完全明白了李红就是活跃在奥运战线的另一个燕子“钥匙澜”。
 
-你不但你没想到14次，你以为是千秋万代
-Not only did Xi not expect the 14 times, Xi thought it will be for generations to come
+郭先生列举了北京冬奥会的三种可能。1，病毒传染，世界更恨中共；2，倾一国之力搞冬奥会，习近平得到现场讲话，使得他的生命更危险； 3，冬奥会成功会让不能到达冬奥会的各国领导人羡慕妒忌恨，同时会加大反对共产党力量，我们也有能力让他办不成。
 
-你把所有的全中国人都当傻子，全世界当傻子
-Xi treats all Chinese people as fools and the whole world as fools
+参考链接：
 
-我们在看待事物的时候，习不是他的文化决定他的思路
-When we look at things, it is not Xi’s education that determines his thinking
+1. [2021.11.17郭先生直播](https://gtv.org/video/id=6194fda8e7e7703792363972)
+2. [2021年11月17日文贵先生直播小飞象大雨围城速记](https://gnews.org/zh-hans/1672223/)
+3. [《盛开国际体育李红和2008年北京奥运会》](https://gnews.org/zh-hans/1663913/)
 
-一定记住习这个人，在决定他的思路是他的家庭
-Xi’s way of thinking in deciding things comes from about his family of origin
-
-他的姐姐的上吊自杀，文化大革命，他被3次被抓进少改所
-His sister committed suicide by hanging herself, the Cultural Revolution, and he was arrested 3 times into the juvenile prison
-
-在少改所他被打时他亲口跟我说的
-He told me in person that he was beaten inside the juvenile prison
-
-在里面，就是为了那半个窝头，把习给打得半死
-When he was in the juvenile prison, Xi was beaten badly for half of the Wotou (corn bun)
-
-习被按在地上，拿鞋底抽他的脸，习在路边被当马骑
-Xi was pressed to the ground, his face was beaten with the shoe soles, Xi was ridden as a horse by the side of the road
-
-3次少改所，习每次出来都是打的跟半残废似的
-Three times in juvenile prison, Xi was beaten so badly every time then he came out
-
-他又亲眼看到他爹16年失去自由，他跟习远平去看他爹
-He saw his father lost his freedom for 16 years with his own eyes. He and Xi Yuanping（his little brother ） went to see his father
-
-他爹当着他们面拉的屎，拿手里往嘴里吃
-His father was eating his own shit in front of them and put them into his mouth with his hand
-
-说你是谁呀，习近平都崩溃了，然后是他认不出习近平
-and asked who they are, Xi Jinping fell apart, and his father couldn’t recognize Xi Jinping
-
-他这种背景，他比咱还恨共产党，你千万记住，他说什么共产党
-With his background, he hates the Communist Party more than we do, you must remember what he said about the Communist Party
-
-我说去他大爷，他每天恨不得把这帮孙子都杀光
-I said go to hell, he can’t wait to kill all these bastard every day
-
-他让中国人致富，他觉得你当时打老子的时候
-He made the Chinese people rich, he felt that I was beaten so badly then
-
-我爹16年的时候，把我娘弄到深圳的时候，我们家什么结局
-and my father lost 16 years of freedom, they sent my mother to Shenzhen, what was the result of our family?
-
-邓小平又骗他爹，让他回去，说要当人大委员长
-Deng Xiaoping lied to his father and told him to go back, saying that he would name him to be the chairman of the National People’s Congress
-
-结果不让他去，他爹本来就疯了，又把他爹骗一把
-As a result that he was not nominated, his father was so depressed and cheated again
-
-真的是习仲勋提出的，当年的宝安县就是深圳这个镇
-It was really proposed by Xi Zhongxun（Xi’s father）, Baoan County was the town of Shenzhen
-
-往香港游每天杀几千人，血染成河,
-that people swam and fled to Hong Kong, killing thousands of people every day, staining the river with blood
-
-是习仲勋建议不要再杀人了, 建了特区
-It was Xi Zhongxun who advised not to kill anymore and established the Special Economic Zone
-
-真的是他爹说的，后来邓小平把这个功给弄走了
-That was really said by his father and then Deng Xiaoping took away the merits
-
-他多恼火啊，所以上来先把邓家灭了
-He was so angry, so he came up to destroy the Deng family first
-
-先把你欺骗我爹的邓家人，吴小晖全抓了
-Wu Xiaohui from the Deng family who cheated my father was arrested in the first
-
-**原视频链接: **[** **https://gettr.com/post/pguxbk3062](https://gettr.com/post/pguxbk3062)
-
-Date:11/16/2021
-原视频标题: 习近平的过去
-Xi Jinping’s past
-原视频日期：2021/11/12
-任务编号：KC261（2875）
-视频时间段 : 0:00-2:28
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片: 洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
