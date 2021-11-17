@@ -2,52 +2,34 @@
 ---
 
 
-## 澳大利亚澳式足球联盟（AFL）初级联赛实施疫苗强制令
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1670947/)
+## 近日落马的中共高官
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1670954/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**整理编辑**：Kelly
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-260.png)
+中共11月8日召开的六中全会，是习近平权力达到顶峰的标志。习正式与毛、邓并列，成了中共有史以来第三个最“伟大”的领袖。 在11月12日的大直播中，郭文贵先生说：“习大神，他要不继续干十年，不搞这三个核心、与毛、邓、江并列，咱上哪儿找这样一位加速师，天助我们新中国联邦。”习大神要搞“家天下”，要永远护着自己的龙椅，让他成了共产党内部唯一的公敌。就如同文化大革命的后期毛泽东与刘少奇、林彪的内斗一样，共产党内部的绞杀愈演愈烈必将带来无数腥风血雨。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/ico-aflcover01.jpg)
+中共六中全会刚刚结束，中共高官落马的报道就已经纷纷出现在墙内的媒体上。
 
+**中共国 《北斗融媒》11月16日报道：**
 
+据辽宁省纪委监委消息，盘锦市政府党组成员、副市长，市公安局党委书记、局长申海青涉嫌严重违纪违法，目前正接受纪律审查和监察调查。
 
-图片来源：www.onlymelbourne.com.au
+**中共国《 中国青年报》11月15日报道：**
 
+11月14日，湖北省高院一名厅官落马。中央纪委国家监委网站援引湖北省纪委监委消息通报称：湖北省高级人民法院党组成员、政治部主任侯旺发涉嫌严重违纪违法，目前正接受湖北省纪委监委纪律审查和监察调查。
 
-#### 编译：小红帽
+**中共国 《大众日报》11月13日报道：**
 
-澳大利亚澳式足球联盟（AFL）的中共病毒（COVID-19）疫苗强制令将扩展到维多利亚州的初级和州级联赛。
+根据中央纪委国家监委网站消息，据中央纪委国家监委驻国家开发银行纪检监察组、浙江省监委消息：国家开发银行浙江省分行原党委委员、副行长倪贤孟涉嫌严重违纪违法，目前正在接受纪律审查和监督调查。
 
-新政策将要求所有维多利亚州足球联赛（VFL）、维多利亚州女子足球联赛（VFLW）和NAB的球员和工作人员在2022年赛季开始前接种两剂疫苗。
+发布：文武全才
 
-与完全职业化的澳大利亚澳式足球联盟（AFL）不同，参与这些比赛的大多数人是兼职和临时的。
-
-他们需要在11月24日前接种第一剂疫苗，并要求在12月22日前完全接种疫苗。
-
-澳大利亚澳式足球联盟（AFL）还敦促南澳大利亚足球联盟（SANFL）和西澳大利亚足球联盟（WAFL）比赛在南澳大利亚和西澳大利亚采取类似的政策。
-
-维多利亚州的球员和工作人员如果选择不接种疫苗，将被禁止参加训练和比赛。
-
-与澳大利亚澳式足球联盟（AFL）和澳大利亚澳式女子足球联盟（AFLW）项目一样，俱乐部将最终决定如何处理那些坚持不接种疫苗的球员。
-
-社区联赛的状态将保持不变，当地俱乐部和比赛将需要遵循政府的健康建议。
-
-此前，卡尔顿后卫利亚姆·琼斯（Liam Jones）选择从他30岁的澳大利亚澳式足球联盟（AFL）职业生涯中退役，而不是接受中共病毒疫苗接种。
-
-琼斯是第一个正式抵制疫苗强制令的男子球员，但阿德莱德澳大利亚澳式女子足球联盟（AFLW）的英超后卫丹尼·瓦恩哈根（Deni Varnhagen）已被移至乌鸦队下个赛季的非活跃名单。
-
-据报道，琼斯的前卡尔顿队友列维·卡斯伯特（Levi Casboult）正在权衡是否接种疫苗，这将使他在8月被蓝军除名后，失去加入黄金海岸太阳队的机会。
-
-**参考新闻：**[Vaccine mandate for AFL’s lower leagues (msn.com)](https://www.msn.com/en-au/news/australia/vaccine-mandate-for-afl-s-lower-leagues/ar-AAQMKTb?ocid=msedgntp)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

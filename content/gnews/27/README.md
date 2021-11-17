@@ -2,174 +2,38 @@
 ---
 
 
-## 纸币的滥发导致人们财富被偷走
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1670804/)
+## 习近平与拜登虚拟会谈的五个主要收获
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1670810/)
 
-美国的财政部长
+翻译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-74.png)
+图片来源：网络截图
 
-包括美联储的主席
+据零对冲11月16日报道，中共国国家主席习近平和美国总统拜登在美国时间周一晚晚上举行了虚拟会议。两国的公开声明在内容上大致一致，但在长度和重点上有很大不同。没有宣布重大成果，这与会议前的预期一致，
 
-他都不相信美国真正地印发了这么多货币
+这是自拜登1月就职以来两位领导人的第三次会谈，也是被认为最具实质性的一次会谈。会谈持续了三个半小时，比预期的时间长。双方都强调了两人的个人关系，这次峰会也是缓解紧张局势的一次尝试。自中共病毒大流行病爆发以来，习近平已近两年没有离开过中国。
 
-我想问大家：“你们怎么查政府到底印了多少货币？”
+两人都面临着国内的担忧，面对通货膨胀、冠状病毒的威胁和混乱的阿富汗撤军，拜登的民调数字在下滑。习近平正在解决能源短缺和房地产危机问题。
 
-因为货币它不是区块链，
+以下是此次峰会的五个主要收获，
 
-你们无法查，
+1.习主席和拜登总统的这次虚拟会议的前几分钟对媒体开放。会议持续了三个多小时，两国分别发布了会议纪要。
 
-同时货币印发机构也不受监控。
+2.有一些迹象表明会议的基调是积极的。双方都表示需要管理风险，美国的报道评论说拜登总统 “注意到需要有常识性的护栏以确保竞争不会转向冲突”，而中共国的报道评论说，“不冲突和不对抗是两国必须坚持的底线”。
 
-他们说印了30亿，就是30亿吗？
+3.会议还讨论了一些更具挑战性的话题，不可避免的台湾问题显然受到了极大的关注。拜登总统强调了美国对 “一个中国 ”政策的承诺，同时他也重申了 “美国继续决心维护对该地区的承诺”。美国的宣读稿对新疆、西藏和香港以及人权问题进行了评论，而中共国的宣读稿则呼吁美国 “落实其不打‘新冷战’的立场”。在经济方面，习还敦促美国 “停止滥用和泛化国家安全概念来压制中共国公司”。
 
-你告诉我用什么方式去查验呢？
+4.宣读报告暗示了一些未来的潜在合作领域。
 
-所以现在是整个人类到了最重要的选择时刻，
+– 首先，当然是气候。美国的简报指出 “两位领导人讨论了气候危机对世界的存在性以及美国和中共国发挥的重要作用“，而中共国的简报引用习近平的话说“气候变化肯定可以成为中美合作的一个新亮点。”
 
-将来所有的纸币都得废掉，
+– 第二个领域是包括 “人民对人民 ”和外交交流。美国的报告指出，两位领导人 “讨论了双方继续就一些领域进行讨论的方式，拜登总统强调了实质性和具体对话的重要性。”这些评论可能为调整签证政策，甚至最终重新开放休斯顿和成都的领事馆打开大门，但两方面都需要更多的谈判。
 
-因为我们根本不知道你印了多少货币。
+– 第三个话题是能源安全。中共国的解读建议 “共同维护全球能源安全，加强在天然气和新能源领域的合作，与国际社会共同维护全球产业链和供应链的安全与稳定”，而美国的评论只是指出 “采取措施解决全球能源供应的重要性”。
 
-那天你们看了那个美联储主席埃摩斯（注：同音字）的演讲，
+5.两份读物中都没有提到贸易协议或关税，尽管它们目前在美中经济关系中起着主要作用，尽管刘鹤副总理和财政部长珍妮特·耶伦都参加了这次会议。虽然在这方面没有预期的重大突破，但缺乏任何评论是温和的令人惊讶的。尽管如此，在未来几周和几个月里，美国应美国公司的要求，有针对性地 “排除关税 “仍然是一种可能性。
 
-他说我们确实把印刷的数字改了，
-
-我们确实造了假
-
-这就是骗局嘛，比庞氏骗局还可怕，
-
-因为没有技术可以监控它。
-
-但区块链谁都造不了假，100%真实，
-
-而且谁都拿不走。
-
-The Secretary of the Treasury of the United States
-
-including the chairman of the Federal Reserve
-
-They don’t believe the U.S. has really issued that much money
-
-I would ask people, “How do you find out how much money the government actually prints?”
-
-Because paper currency doesn’t use blockchain technology
-
-You will not be able to check that.
-
-Also, the currency issuers are not monitored.
-
-If they claim they printed $3 billion,
-
-is it really $3 billion?
-
-You tell me, how can I check that?
-
-So now is the most important moment of choice for the entire human race.
-
-In the future, all paper money will have to be scrapped.
-
-Because we don’t even know how much money they’ve printed.
-
-You saw that speech the other day by the Fed Chairman Jerome.
-
-He said they did change the numbers that they printed,
-
-They did falsify it.
-
-It’s a fraud. It’s worse than a Ponzi scheme.
-
-Because there’s no technology to monitor it.
-
-But blockchain can’t be faked by anyone, it’s 100% real, and no one can take it away.
-
-共产党仅仅去年2020年（印钞）7万亿美元，
-
-这是他们中央人民银行正式下发的文件说的数目，
-
-7万亿。但实际印了多少你们知道吗？
-
-实际是10万亿美元，67万亿人民币。
-
-美国玩了3万亿，共产党玩了10万亿，
-
-你还觉得你们手里的钱还值钱吗？
-
-不信你们等着看吧。
-
-国内的同胞们
-
-你们绝不是不知道有多少人被打疫苗
-
-和多少人在家里被Quarantine（隔离）
-
-和死了多少人
-
-中共说郑州发洪水就死了4个人，
-
-冠状病毒来自中共国，
-
-他们说中国只死了4000多人，
-
-他们还说说山西发洪水就死了7个半人，8个濒危，
-
-死了7个半，是因为其中一个人已经半死不活了，
-
-你相信他们给的这些数据吗？
-
-人们最大的灾难
-
-是在不知不觉中
-
-你们的钱
-
-你的劳动创造的价值全被剥夺偷走了
-
-The CCP printed $7 trillion just last year in 2020.
-
-This is the number that their official document issued by the Central People’s Bank indicates
-
-7 trillion. But do you know how much was actually printed?
-
-The actual amount is 10 trillion dollars, 67 trillion yuan.
-
-The U.S. played with 3 trillion, the CCP played with 10 trillion.
-
-Do you still think the money in your hands is still worth something?
-
-If you don’t believe me, just wait and see.
-
-Fellow countrymen in China
-
-You are by no means unaware of the number of people who have been vaccinated
-
-and how many people were quarantined in their homes
-
-and how many people have died.
-
-The CCP says that 4 people died in Zhengzhou when it flooded.
-
-The coronavirus came from CCP China,
-
-They said that only 4,000 people died in China.
-
-They also said that 7 and a half people died in the Shanxi flood,
-
-and 8 were endangered.
-
-7 and a half people died because one of them was already half dead.
-
-Do you believe these figures they give?
-
-The biggest disaster for people is not knowing
-
-Your money,
-
-and your hard-earn money is being taken away from you.
-
-听写/翻译： UCool优酷
-
-字幕添加：Kent
-
-发布：风云小哥
+新闻来源：[“No Major Surprises” – Five Main Takeaways From The Xi-Biden Virtual Meeting](https://www.zerohedge.com/political/no-major-surprises-five-main-takeaways-xi-biden-virtual-meeting)
 
  
 
