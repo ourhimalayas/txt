@@ -2,46 +2,144 @@
 ---
 
 
-## 习近平上升到毛泽东和邓小平的水平以延续自己的权力
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1672537/)
+## 习拜视频会极大羞辱美国让西方感到彻底威胁
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672627/)
 
-编译：文羽
+[https://gtv.org/video/id=61939ccd182702508105db72](https://gtv.org/video/id=61939ccd182702508105db72)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1-9.jpg)图片来源：法新社（ AFP）
+郭文贵
+Miles Guo
 
-经过四天的闭门会议，按照中共国的惯例，习近平主席周四与建国者毛泽东和资本开放之父邓小平一起成为中国共产党最有权势的领导人。它是通过关于党的百年历史的“最伟大成就”的“历史性决议”来实现的，该决议得到了党的十九届六中全会的批准。
+那么现在中美之间发生什么问题
+So currently what’s the problem between China and the U.S.?
 
-在他之前，只有毛泽东在1945年发起了类似的宣言，以边缘化他的内部竞争对手并巩固他的权力，而邓在 1981 年这样做，正是为了承认“伟大舵手”的错误，并确认对资本主义的开放。在这份新声明中，这种自我批评完全消失了，它宣称“过去一个世纪党和人民的努力，是中华民族千年历史上最辉煌的篇章”。
+供应链彻底崩塌
+It’s the supply chain collapsed completely
 
-就这样从落后的半殖民地半封建社会发展成为世界第二大经济体，在世界上的影响力越来越大，有能力挑战美国的全球霸权。
+美国在这种情况下希望中共
+Under such circumstances, (the Biden administration) hopes that Xi
 
-在邓小平放弃带来如此多苦难的毛主义四十年后，习近平标志着 21 世纪富裕的中国“资本共产主义”的进程，并继续巩固他无可争议的领导地位和他的个人崇拜。随着朝鲜宣传力度的加大，全会声明中夸夸其谈的口吻不容置疑：“习同志，通过对新时期党和国家事业的众多理论和实践问题的细致评估和深入思考，围绕着我们时代的主要问题，我们应该捍卫什么样的中国特色社会主义，我们应该建设什么样的伟大的现代社会主义国家，我们应该建设什么样的社会主义现代化强国，建立了一系列国家治理的新理念、新思想和新战略。我们应该发展什么样的马克思主义治理。”
+你一定给我供应链
+must maintain the supply chain to the U.S.
 
-作为“习近平新时代中国特色社会主义思想”的创始人，该声明宣称“这就是当代和21世纪中共国的马克思主义”。并且，作为中央委员会的“核心”，他保证习“展现了伟大的历史主动性、巨大的政治勇气和强烈的使命感”，提供“统一领导，推进我们的伟大斗争、伟大工程、伟大事业、伟大梦想”。
+就奴隶、奴隶、奴隶
+which is cheap labor(Chinese people)
 
-对于香港浸会大学政治学专家让-皮埃尔·卡贝斯坦教授来说，“中国共产党继续战斗，因为它有很多敌人。但是什么样的国家会围绕斗争来组织其政治目标呢？基于该政权所吹嘘的百年‘成就’，卡贝斯坦认为“不再有纠正过去错误（和罪行）或质疑错误政策的空间。”正因如此，以民族主义为党的主要引擎，他认为“他不间断的百年人生，顺理成章地走向了习近平专政的新时代”。
+而且美国已经对中国开启签证
+And also, the U.S. has opened visa to China
 
-声明虽然没有批评江泽民、胡锦涛等前辈，反映他们的成就，但毫不犹豫地肯定，习“解决了许多长期摆在议事日程上的难题，并得到了解决。从未解决并实现了许多他们从未成功过的想要的事情»。其中，他们指出，“党的领导体制有所改善”，“反腐败斗争取得压倒性胜利”，“经济发展更加平衡、协调、可持续”。结果，实现的“社会稳定”被定义为真正的“奇迹”。
+第二，我现在要让你开始保证我的老百姓基本的生活
+Second, (the Biden administration) now hopes that Xi can guarantee basic living goods to the American people
 
-在军事方面，声明令人震惊地宣布，“人民军队进行了革命性的改组，为下一阶段做准备”，“以顽强的战斗精神，以实际行动维护国家主权和安全”。在国际层面，他称赞“中共国在全球深刻变化中开辟外交新路径，化危为机”，“海外影响力显着提升”。从这个意义上讲，它认识到“在百年未有的变化和冠状病毒大流行的共同影响下，过去一年的外部全景变得越来越复杂和严重”，其起源是中共国与西方的对立以及对新疆、西藏和香港的镇压。
+便宜的内裤，便宜的旅游鞋还得给我
+i.e. the cheap underwear, low-cost travel shoes need to resume in market
 
-该决议并未提及其在 2019 年的大规模民主抗议活动，而是吹嘘“恢复了香港的秩序”，就在那些曾经装扮成美国队长的年轻抗议者之一被判处五年徒刑的那一天，因唱独立宣言而入狱九个月。这是该前英国殖民地政权去年根据严厉的《国家安全法》第二次被判入狱，该政权继续失去使其有别于中共国其他地区的自由。
+第三，你的房地产千万别一下倒，慢慢倒
+Third, (the Biden administration) demands that the real estate business must avoid quickly collapsing, slowly collapsing (is acceptable)
 
-在与台湾（北京声称拥有事实上的独立岛屿）关系日益紧张的情况下，该声明还反对“分裂主义活动”和“外国干涉”，因为其民选政府与美国和欧盟的接触增加。
+第四，最重要咱俩要合作
+Forth, the most important thing (to the Biden administration) is the cooperation between the Biden administration and Xi
 
-为结束过去四个十年超常增长带来的不平等，全会呼吁实现习近平倡导的“共同繁荣”。矛盾的是，它的结束恰逢中共国的光棍节，它已成为世界上最大的在线销售日，并且在控制大型科技公司的运动中以比平时更少的炫耀来庆祝。
+咱得忽悠老百姓
+Both of them have to fool their ordinary people
 
-在习近平将在明年秋季召开第二十次代表大会后，习近平将继续执政，声明呼吁他的干部、人民和军队与他一起实施他的“中国特色社会主义”。在新时代。中国共产党第一个百年党庆，正准备再创百年“奇迹”。从表面上的热情宣传来看，不排除百年后习近平还在掌权的可能性。
+明天无限美好，继续画大饼
+that tomorrow is wonderful and continue to dream big
 
-**参考资料：**[abc.es][Xi Jinping se eleva al nivel de Mao y Deng para perpetuarse en el poder](https://www.abc.es/internacional/abci-jinping-eleva-nivel-y-deng-para-perpetuarse-poder-202111111758_noticia.html)
+一切的一切都为了今年的中期选举
+Everything is for the mid-term election this year
+
+就是民主党绝对不能输
+that is, the Democratic Party must not lose
+
+佛吉尼亚几乎废掉了拜登总统一半以上的能力
+(The winning of) Virginia election has almost abolished more than half of President Biden’s capabilities
+
+你在这个中期选举完几乎就完了
+(The Biden administration) most likely would be over after the mid-term election
+
+所以习在这种情况下列出这十几条羞辱美国
+Therefore, (even though) Xi Jinping listed a dozen requirements for humiliating the United States under these circumstances
+
+拜登都要跟他通个视频会议
+Joe Biden still preferred to have a virtual meeting with Xi
+
+我告诉你们
+Let me tell you
+
+对咱新中国联邦的意义可大了去了
+It’s of great significance to our new Chinese Federal State of China
+
+他公布完这个以后
+After he announced this
+
+证明啥？七哥这几条我都提前发给
+What does it prove? I have already sent those requirements in advance
+
+咱们的政治合作者了
+to our political collaborators
+
+他们当时说：“真的吗？Miles？”
+They all asked that “was that real? Miles”
+
+你说这外国人都很天真
+See, these foreigner are very naive
+
+他都说这是真的吗
+They all asked whether it was real
+
+结果，证明郭文贵又是伟大正确的
+As a result, it has been proved again that Miles Guo is greatly correct
+
+新中国联邦情报准确
+and the New Federal State of China’s Intelligence is accurate
+
+哇塞，每次都给我们逆增上缘
+Wow, it helps us every time, both positively and negatively
+
+那真出来了，美国人、外国人现在害怕了
+(Listed serval requirements) have come out. The American people and foreigners are now scared
+
+这真是习近平拿美国人不当回事儿啊
+This is really indicated that Xi Jinping is not treating the American people as a matter
+
+而这种事公布对拜登是政治需求
+and this kind of announcement is a political demand of Biden
+
+对美国和欧洲对待西方
+In regards to how the United States and Europe treating the West
+
+他感觉到彻底的威胁
+He has felt an exhaustive threat
+
+这是为什么在西方的天主教、基督教系统
+This is the reason that in the Western’s Catholic and Christian systems
+
+你没有好话说的时候你就闭嘴
+you need to keep your mouth shut if you have nothing to say
+
+西方人随便批评人是很大的问题
+It is a serious matter for Westerners to criticize people randomly
 
 * * *
 
-*审核：蚂蚁兄弟
-校对：信心满满
-发布：信心的选择*
+Date: 11/14/2021
+原视频标题: 习拜视频会极大羞辱美国让西方感到彻底威胁
+Xi and Biden’s Virtual Meeting extremely humiliated the United States and made the West feel exhaustive threatened
+原视频日期：2021/11/12
+原视频链接: [https://twitter.com/se1y7cblljselva/status/1459850200227676160?s=24](https://twitter.com/se1y7cblljselva/status/1459850200227676160?s=24)
+任务编号：KC256（2879）
+视频时间段 : 0:00-1:59
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

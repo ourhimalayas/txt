@@ -2,15 +2,33 @@
 ---
 
 
-## 共产党是全世界邪恶势力的总部
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1672061/)
+## 国际社会反对中共人员进入国际刑警组织
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672119/)
 
-韩国首尔天池农场—宗介　校对/上传—无明逆流
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4b6c96f8-751e-4dbd-8bd7-9600dbb7065f.jpg)
-文贵先生11月17日直播最新爆料称，世界上超发这么多票据、货币、保险到了最高顶峰，华尔街的金融杠杆（把已经超发的货币，和极少数人获得的绝大部分财富，最重要的就是保险）都是国家政府和金融机构，百万分之一的人控制着这些财富，特别是药厂（合法的杀人武器），还有就是绝对控制着你的精神想法的就是媒体，最后就是背后的大佬 金融控制着，美国的共产党邪恶组织们，他们最后到了崩溃的边缘，所有人都会找他们算账，媒体、药厂、各国的警察。
+作者：澳喜农场 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月16日，消息显示，中共公安部副局长胡彬郴试图竞逐国际刑警组织执委一职，此举随即引发国际政坛的广泛质疑和严重关切。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-41.jpg)
+资料称，由多个国家议会及党派组成的“对华跨国议会联盟” 已经公开发声表示，强烈反对将胡彬郴列入国际刑警组织执委会，需防止中共借此机会，利用发布“红色通缉令”的手段来追踪并打压异议人士。
 
-邪恶势力最大勾兑者共产党，全世界都没人谈一个问题，共产党绝对是世界上邪恶势力的总部，世界到了最黑暗的时刻，我得到了各种信息对人对孩子的杀掠远超于视频中看到的。
+该组织在给国际刑警组织的信件中指出，倘若选举胡彬郴进入执委会，就是向中共继续滥用“国际刑警组织”权力的行为大开绿灯，会让生活在国外的香港、维吾尔、西藏、台湾和中共国异议人士身处更大的危险之中。
 
+参考链接：
+[中国公安部高官竞逐国际刑警组织执委，引发人权团体和政界人士关切](https://www.voachinese.com/a/chinese-official-seeks-interpol-role-sparking-fears-for-dissidents-20211115/6313846.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+
+总编：文徬
+编辑：文特
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

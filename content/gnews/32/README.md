@@ -2,27 +2,23 @@
 ---
 
 
-## 日本经济安保法案排除中共敏感设备
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672156/)
+## 疫苗强制令下人员短缺导致救援不及
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672233/)
 
-作者：纽约香草山 医疗部 – 云豹
+作者：纽约香草山佛教部 – 文一
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-综合日本媒体11月12日到14日的报道，日本政府为了保障经济安全，将制定《经济安全保障推进法案》，目地在于确保日本的技术、情报不外流，以及稳定半导体的供应。
+11月13日，据当地媒体报道，由于美国新冠疫苗强制令导致的社会基础设施人员短缺，西雅图一名13岁的男孩在为其父亲两次拨打急救电话后，只能眼睁睁地看着父亲的死亡。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-14.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2-7.jpeg)
 
-预计，这次的法案将包括“供应链坚韧化”、“维持基础建设功能”、“专利非公开化”及“确保技术基础”这四大重点。
+据了解，西雅图地区要求，在进入被当地政府划归的非安全区时，任何人员都必须在警察的协同下方可进入。鉴于当地实施的新冠疫苗强制令，警察人手严重短缺，导致救护人员在到达求救男孩所处的非安全区域时，因长时间等待警察到场而错过了最佳的抢救时间。最终，男孩在苦等20分钟后，看着45岁的父亲因呼吸困难死亡。
 
-除此之外，法案还考虑加入“事前审查制度”，要求日本的通讯、能源、金融等产业在购置重要基础设备时，避免引进有安全性风险的产品。据了解，此举主要是为避免引进会影响运作安全性的中共产品或系统。
-
-另外，法案中也规定了特定专利非公开化的条款，主要是为防止能被用作新世代武器研发的先进技术外流。
-
-参考链接：[日本經濟安保法案概要曝光 藉審查排除中國敏感設備](https://www.cna.com.tw/news/firstnews/202111140114.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+参考链接：[13-Year-Old Watches Father Die as Staffing Shortages From Covid Vaccine Mandate in Seattle Delays Emergency Response](https://www.thegatewaypundit.com/2021/11/13-year-old-watches-father-die-staffing-shortages-covid-vaccine-mandate-seattle-delays-emergency-response/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：文特
-编辑：飞虹 
+总编：正义的小新
+编辑：Irene木木 
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

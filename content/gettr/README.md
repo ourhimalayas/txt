@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/17/2021 6:19 PM (UTC)`
+
+11月17号：只有广交朋友．行走万里路．而且这是一个长期循序渐进的过程……才具备辩真假．识善恶的真实的能力……
+![img](https://media.gettr.com/group44/getter/2021/11/17/18/18/5e302dcc-12de-537e-ffb1-3086020f42fd/e8cd6b4e41a0f275d80cf60252c4ee67.jpg)
+
+---
+
 `@miles 11/17/2021 1:04 PM (UTC)`
 
 2021年11月17日文贵大直播：再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向
@@ -292,13 +299,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 11/12/2021 Miles Guo: Part of the funding for the building of the defense of the New Federal State of China (NFSC) must come from our fellow fighters; we will ask mercenaries from the US, UK, and Japan to train the future generations of the NFSC, and we will build our own naval, air and space forces; we will release the standards for our military recruitment and training in 3 months<br/><br/>11/12/2021 文贵直播：新中国联邦国防建设的部分资金必须来自战友们；我们将请美英日等国的雇佣军来训练新中国联邦的后代，并建立我们自己的海军、空军和空间部队；我们将在3个月内公布招兵和军训的标准<br/>
 ![img](https://media.gettr.com/group42/getter/2021/11/12/23/52/74b0d70c-97d1-ffb8-e128-d1e34bae805e/out.jpg)
-
----
-
-`@miles 11/12/2021 11:47 PM (UTC)`
-
-11/12/2021 Miles Guo: The key issue of today’s live broadcast is to call on everyone to build the New Federal State of China and safeguard the Chinese people. Although the CCP’s Six Plenary Session has accelerated the demise of the CCP, it increased the level of threat to the Chinese. However, nothing is comparable to the disasters caused by the CCP virus vaccines. The CCP does not represent the Chinese, and the Chinese people deserve to be saved. We shall save more fellow fighters in China<br/><br/>11/12/2021 文贵直播：今天直播最重要的核心是号召大家建设新中国联邦、保护华人。六中全会虽然加速了灭共，但也加大了对华人的威胁，而这一切却都没法跟疫苗灾难相提并论。中共不代表中国人，中国人值得救，我们要拯救更多国内战友！<br/><br/>
-![img](https://media.gettr.com/group5/getter/2021/11/12/23/47/318d2d1a-9d95-bd45-9818-2b511826b06a/out.jpg)
 
 ---
 
