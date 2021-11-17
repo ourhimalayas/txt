@@ -2,23 +2,32 @@
 ---
 
 
-## 拜习会谈：中共警告美国不要在台湾“玩火”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1670147/)
+## 多国取消人民币互换业务，戳破中共虚假经济
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1670426/)
 
-撰稿：西枫westca
+作者：新西兰伊甸农场 – 亚伦
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月15日，郭先生在盖特中爆料：近日，很多国家都在想办法把之前认购的换汇人民币处理掉，并且取消与中共国的人民币互换额度。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-18.jpg)
+许多国家和中国有大量贸易往来，为了减少对美元的依赖和中间货币交易的成本，以及解决两国之间税收的问题，才有了本币互换业务。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-7.jpg)图片来源：法新社
-在中美两国日益紧张的局势下，备受关注的拜登、习近平视频会在11月16日举行，双方就中美关系发展、经济问题、人权问题、气候变化、台海等问题进行了沟通和交流，但并未取得突破性共识。反而在会后的媒体会上，中共外交部副外长谢锋对台海问题表示：“维护国家统一和领土完整是全体中国人民的共同意志和坚定决心，在这个关系中国主权和领土完整的问题上，中国没有妥协的空间。”
+郭先生指出，当本币互换额度减少，意味着两国的贸易额减少，说明他国失去对中国经济的信心，以至于不惜高成本使用美元。中共虚假的经济泡沫被戳破。
 
-中国官方媒体《环球时报》称，习近平将最近的紧张局势归咎于“台湾当局一再企图‘依美谋独’，而一些美国人有意搞‘以台制华’，这一趋势是在玩火，而玩火者必自焚。同时谢峰还强调，“美方应当遵守中美间达成的正式双边协议和联合国大会以压倒性多数通过的正式决议，正视世界上绝大多数国家坚持一个中国原则的事实和意志，改弦易辙，用行动取信于中国人民、取信于国际社会。”
+参考链接：[多国取消人民币互换业务，戳破中共虚假经济](https://gnews.org/zh-hans/1667813/)
 
-中美双方对此次会议的诠释不同，从美方的报道看拜登的说法，“作为中美两国领导人，我们的责任是确保两国之间的竞争不会转向冲突，无论是有意还是无意，只是简单、直接的竞争。” 拜登还说“在我们在分歧的地方保持清晰和诚实，并在我们的利益相交的地方共同努力”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-中共官媒在任何问题上，都是无视事实、自说自话，这次中美高层会谈，会让世界更加看清，与中共为谋会带来什么后果。中共一日不倒，世界将无安宁之时。
+总编：AN
+编辑：木白
+校对/发稿：Hetangyuese
 
-**新闻来源：**[http://www.chinanews.com/gn/2021/11-16/9610511.shtml](http://www.chinanews.com/gn/2021/11-16/9610511.shtml)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

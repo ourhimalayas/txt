@@ -2,56 +2,22 @@
 ---
 
 
-## 意大利政府对中共国收购军用无人机公司提出正式控告
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1670544/)
+## 韩昨日新确诊3187例，是疫情爆发以来的第二新高
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1670575/)
 
-作者：纽约香草山农场 – 四季
+韩国首尔天池农场——追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-17-at-11.56.06-1.jpeg)图片来自韩国KBS新闻网站
+韩国KBS新闻11月17日的报道，根据韩国中央防疫对策本部17日的通报，截至当天0时，韩国较前一天0时新增中共病毒确诊病例3187例，创爆发疫情以来的第二新高。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+单日新增病例较前一天增加了3187例，其中国内累计确诊病例3163例，境外输入病例24例，累计确诊病例突破40万例。
 
+截至17日0时，全国已有4206.27万人接种首剂新冠疫苗，占总人口的81.92%，完成疫苗全程接种的人员共计4024.32万人，占总人口的78.37%。
 
+韩国本月1日开始进入第一阶段的“与疫共存”的生活模式，平均每天的感染人数超过2000例，首尔重症患者床位使用率超过75%。
 
+韩政府对策本部在15日的记者会上表示“床位尚有余位，政府正在集中力量推动疫苗加强针接种工作”。
 
-
-据路透社11月16日报道，今年8月，意大利政府对一家位于意大利北部波代诺省的飞机制造商——阿尔皮航空（Alpi Aviation）2018年进行的75%股权交易进行了调查，以了解政府是否应该根据具有重要战略意义资产的黄金权力法规获得有关交易的通知。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1435-1.jpg)©REUTERS/Yara Nardi
-
-意大利税务警方早前表示，这笔交易“显然”是对技术的掠夺性投资。据悉，中共国投资者为其75% 的股份支付了近600万欧元。意大利政府认为中共国投资者对一家军用无人机公司的收购需要得到意大利政府的批准。政府正准备向所有相关方发出正式通知，要求他们做出澄清。
-
-通过一连串的投资工具参与收购的中共国集团是中国企业联合投资控股公司和华润资本控股公司，这两个公司由无锡蠡园经济开发区管理委员会和国资委控制。
-
-这笔交易表明，在美国和欧洲监控中共国投资者对其国家安全的潜在风险的压力上升之际，企业所有权的变化是多么容易被忽视。
-
-自2012年以来，意大利迄今已四次使用其黄金权力来阻止外国在意大利的收购。其中三次阻止了中共国的竞标。
-
-**参考阅读：**
-
-[EXCLUSIVE Italy to make formal complaint over Chinese takeover of military drones firm – sources | Reuters](https://www.reuters.com/business/aerospace-defense/exclusive-italy-make-formal-complaint-over-chinese-takeover-military-drones-firm-2021-11-16/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-**编辑/校对/发稿：小鹿**
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+[参考新闻](https://mn.kbs.co.kr/mobile/news/view.do?ncd=5326981)
 
  
 

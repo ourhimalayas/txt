@@ -2,26 +2,174 @@
 ---
 
 
-## 美前总统老布什之子尼尔·布什赞助了中共航天公司的研讨会
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1670748/)
+## 纸币的滥发导致人们财富被偷走
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1670804/)
 
-韩国首尔天池农场
-翻译：zzballack
-上传：追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-17-at-13.00.30.jpeg)图片来源：参考新闻
-据《华盛顿自由灯塔》（Washington Free Beacon）11月16日报道，前美国总统老布什的第三子尼尔·布什（Neil Bush）正在利用他的影响力和家族名声来给一家因与中共军队有关联而被美国政府列入黑名单的中共政府承包商背书。
+美国的财政部长
 
-尼尔·布什是将于11月18日至20日在北京召开的“2021空间技术和平利用（健康）国际研讨会（International Symposium on the Peaceful Use of Space Technology）”的共同发起人之一。该论坛的联合主席包括中国航天科技集团（CASC）的高管。该公司是由中共控制的承包商，负责制造中共的军事和太空设备。据报道，CASC的下属子公司中国航天空气动力技术研究院开发了一种高超音速导弹，中共军方在8月对其进行了测试。川普和拜登政府已经禁止美国公司与航天科技集团做生意；跟踪中共军事活动的澳大利亚智库战略政策研究所（The Australian Strategic Policy Institute）认为CASC对外国的安全风险非常高，因为它与中共的军事和情报部门有联系。
+包括美联储的主席
 
-尼尔·布什在中共国有广泛的商业联系，并与中共的一些宣传机构密切合作。他是乔治·布什美中关系基金会的主席，该基金会共同赞助了这次太空研讨会。布什基金会在2019年从中共统战部下属的影响力团体–中美交流基金会（China–United States Exchange Foundation）获得了500万美元的资金。布什的商业伙伴–中共房地产投资商王天怡是这次太空研讨会的执行主席。
+他都不相信美国真正地印发了这么多货币
 
-太空安全分析师布兰登·韦切特 (Brandon Weichert) 说：“尼尔·布什基本上是一个权力经纪人，他是中共利用的一个切入点。太空研讨会遵循典型的中共模式，即利用学术和商业论坛在西方招募专家和投资者，让西方的人才和投资来中共国做尖端研发项目。”
+我想问大家：“你们怎么查政府到底印了多少货币？”
 
-美国的决策者对美国是否应该在太空探索方面与中共进行合作存在分歧，批评者担心中共会从美国同行那里窃取技术。拜登政府中的一些人则敦促美中两国在太空研究方面进行合作，包括美国国家航空航天局局长比尔·纳尔逊 (Bill Nelson)。尼尔·布什最近在接受中共智库“中国与全球化智库”采访时说：“毫无疑问，我们应该合作。”
+因为货币它不是区块链，
 
-尼尔·布什还与聚焦中共国的智囊团、商界领袖和拜登政府有联系。布什担任了美中关系全国委员会（National Committee on U.S.-China Relations）2019年度晚宴的名誉副主席，该智库的任务之一是促进美中领导人之间的对话。气候大使约翰·克里 (John Kerry)等拜登政府官员也出席了该晚宴。除此之外，尼尔·布什还一直在为北京的人权侵犯行为辩护。
+你们无法查，
 
-[新闻来源](https://freebeacon.com/national-security/bush-family-scion-sponsors-event-with-blacklisted-chinese-company/)
+同时货币印发机构也不受监控。
+
+他们说印了30亿，就是30亿吗？
+
+你告诉我用什么方式去查验呢？
+
+所以现在是整个人类到了最重要的选择时刻，
+
+将来所有的纸币都得废掉，
+
+因为我们根本不知道你印了多少货币。
+
+那天你们看了那个美联储主席埃摩斯（注：同音字）的演讲，
+
+他说我们确实把印刷的数字改了，
+
+我们确实造了假
+
+这就是骗局嘛，比庞氏骗局还可怕，
+
+因为没有技术可以监控它。
+
+但区块链谁都造不了假，100%真实，
+
+而且谁都拿不走。
+
+The Secretary of the Treasury of the United States
+
+including the chairman of the Federal Reserve
+
+They don’t believe the U.S. has really issued that much money
+
+I would ask people, “How do you find out how much money the government actually prints?”
+
+Because paper currency doesn’t use blockchain technology
+
+You will not be able to check that.
+
+Also, the currency issuers are not monitored.
+
+If they claim they printed $3 billion,
+
+is it really $3 billion?
+
+You tell me, how can I check that?
+
+So now is the most important moment of choice for the entire human race.
+
+In the future, all paper money will have to be scrapped.
+
+Because we don’t even know how much money they’ve printed.
+
+You saw that speech the other day by the Fed Chairman Jerome.
+
+He said they did change the numbers that they printed,
+
+They did falsify it.
+
+It’s a fraud. It’s worse than a Ponzi scheme.
+
+Because there’s no technology to monitor it.
+
+But blockchain can’t be faked by anyone, it’s 100% real, and no one can take it away.
+
+共产党仅仅去年2020年（印钞）7万亿美元，
+
+这是他们中央人民银行正式下发的文件说的数目，
+
+7万亿。但实际印了多少你们知道吗？
+
+实际是10万亿美元，67万亿人民币。
+
+美国玩了3万亿，共产党玩了10万亿，
+
+你还觉得你们手里的钱还值钱吗？
+
+不信你们等着看吧。
+
+国内的同胞们
+
+你们绝不是不知道有多少人被打疫苗
+
+和多少人在家里被Quarantine（隔离）
+
+和死了多少人
+
+中共说郑州发洪水就死了4个人，
+
+冠状病毒来自中共国，
+
+他们说中国只死了4000多人，
+
+他们还说说山西发洪水就死了7个半人，8个濒危，
+
+死了7个半，是因为其中一个人已经半死不活了，
+
+你相信他们给的这些数据吗？
+
+人们最大的灾难
+
+是在不知不觉中
+
+你们的钱
+
+你的劳动创造的价值全被剥夺偷走了
+
+The CCP printed $7 trillion just last year in 2020.
+
+This is the number that their official document issued by the Central People’s Bank indicates
+
+7 trillion. But do you know how much was actually printed?
+
+The actual amount is 10 trillion dollars, 67 trillion yuan.
+
+The U.S. played with 3 trillion, the CCP played with 10 trillion.
+
+Do you still think the money in your hands is still worth something?
+
+If you don’t believe me, just wait and see.
+
+Fellow countrymen in China
+
+You are by no means unaware of the number of people who have been vaccinated
+
+and how many people were quarantined in their homes
+
+and how many people have died.
+
+The CCP says that 4 people died in Zhengzhou when it flooded.
+
+The coronavirus came from CCP China,
+
+They said that only 4,000 people died in China.
+
+They also said that 7 and a half people died in the Shanxi flood,
+
+and 8 were endangered.
+
+7 and a half people died because one of them was already half dead.
+
+Do you believe these figures they give?
+
+The biggest disaster for people is not knowing
+
+Your money,
+
+and your hard-earn money is being taken away from you.
+
+听写/翻译： UCool优酷
+
+字幕添加：Kent
+
+发布：风云小哥
 
  
 

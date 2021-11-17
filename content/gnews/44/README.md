@@ -2,25 +2,34 @@
 ---
 
 
-## 谷歌云、Snapchat、Spotify等网站追随Facebook宕机，预示属于GTV、盖特的大时代来临
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1670167/)
+## 数字人民币的推行必将引发中共经济的全面崩塌
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1670427/)
 
-作者：新西兰伊甸农场 亚伦
+作者：纽约香草山教育部 – Noemi
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月15日，文贵先生在盖特上指出，中共所推出的数字人民币必将引发其自身经济的全面崩塌。中共一旦失去了对货币的控制，将再也无法继续屠戮十四亿同胞，也再无可能染指台积电。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-14.jpg)
+据文贵先生爆料，上海数字货币研究中心日前向中共人民银行发出各种警告，称数字人民币是绝无流通可能性的。数字人民币的流通与各大行纸币的发行存在着天然的矛盾关系，而且，数字人民币在人民币的标准化和降准等问题上也无从协调。后果就是，中国百姓和中共政府间会形成数字人民币和纸质人民币之间的对抗。
 
+同时，数字人民币本身就存在着天然缺陷，作为数字货币，其既无去中心化的技术安全优势，又无明确的中心化管理、发行机制，一旦全面发行必将会引发经济灾难。
 
+文贵先生说，新中国联邦的金融系统在此刻诞生，既是时运，也是天命。新中国联邦必将接替中共，带领十四亿同胞实现真正的财富安全与自由。
 
-据CTVNews11月16日报道，包括谷歌云、亚马逊、Snapchat和Spotify在内的几个社交媒体应用程序和互联网服务在周二出现宕机故障。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-4.jpg)图片来源AP Photo/Patrick
+参考链接：[数字人民币的推行必将引发中共经济的全面崩塌](https://gettr.com/post/ph18l62cc3)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-在这次宕机故障之前，Facebook脸书（现在的Meta）在上个月因社交媒体公司的路由器配置变化（实际是被俄罗斯黑客骇断总部数据库电源）出现问题而导致6个小时的大范围故障，使该公司陷入瘫痪。
+总编：文徬
+编辑：木白
+校对/发稿：Hetangyuese
 
-大社交媒体、网络科技巨头频频出现宕机事件，不断验证郭文贵先生情报信息的准确性。文贵先生曾在10月5日的直播中透露，人类未来这种网络公司大规模宕机的事情可能每周每个月都会发生，是常态化的，而且Facebook、 Instegram、 Whatsapp没有任何能生存下去的条件。
-
-香港的Facebook、Google、Twitter，已经全面配合中共提供个人数据和电子地图，俨然成为监控民众的帮凶。当任何人使用这些社交媒体或网站的时候，一天的行动踪迹都会泄露，包括电报Instagram、Telegram，使用的时候一定要注意安全。
-
-对比的是，盖特已经可以手机随时直播了，而且还有同声字幕，甚至可以5K推流。更重要的是，GTV和盖特不会像Facebook、Instagram销售用户的个人数据（因为不卖广告），将来还会和喜币、喜美元对接嵌入支付系统。还有一点不要忘记，阿布扎比Mubadala 是AMD公司百分百的股东，Mubadala也是星链公司的大股东。世界上最好的7纳米芯片都是AMD产的，是星链公司必须用芯片而且没有别的选择。这些高新科技是不会要 Whatsapp、Facebook这些公司使用，只会让 GTV、Gettr盖特独享使用。可以说，GTV和Gettr盖特的未来将会是无限美好和光明，集安全、稳定、高质量活跃用户、在线直播及打赏、金融支付于一身。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

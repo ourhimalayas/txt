@@ -2,31 +2,26 @@
 ---
 
 
-## 中共国利用海外空壳公司获取意大利军用无人机技术
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1670788/)
+## 人心所向，禁而不绝！中共国有单位“挖矿”严重
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1670889/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-12.jpg)中共国利用海外空壳公司获取意大利军用无人机技术 网络图片
-据美国之音11月16日报道，意大利警方判定由”中国中车”资本和无锡市政府旗下的一家投资集团共同出资成立的马尔斯香港信息科技公司为空壳公司。该公司控制了意大利的一家军用无人机生产商Alpi Aviation（阿尔卑飞机公司）。在意大利和欧洲当局不知情的情况下，将知识和技术转移至中共国的一个新生产基地。
+撰稿：东京樱花团/天路天道
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-351.png)[图片来源](http://www.dtdata.cn/news/show-6364.html)
+近日，中共国家发展改革委召开虚拟货币“挖矿”治理专题视频会议，通报虚拟货币“挖矿”监测和整治情况，并部署开展全面整治“挖矿”活动。参加此次会议的有中央网信办、教育部、工信部、人民银行、国资委等多个部门。
 
-阿尔卑飞机公司以生产轻飞机及称为Strix的迷你无人机闻名，曾被驻阿富汗的意大利空军使用。
+中共发改委强调，严查严处国有单位机房涉及的“挖矿”活动。 下步，将以产业式集中式“挖矿”、国有单位涉及“挖矿”和比特币“挖矿”为重点开展全面整治。
 
-这起案件符合中共国国企在海外的运行模式：以民营空壳公司为掩护，获取掌握特殊技术的企业的控制权，然后再将该公司的技术转移至中共国。这明显是由中共国政府推动的国家战略。中共的偷盗技术独步天下，这起教科书式的案例暴露出欧洲投资审查体系的脆弱和北京为获取欧洲敏感技术的精心布局。俗话说，不怕贼偷，就怕贼惦记。中共苦心积虑偷遍全世界。西方先进的科学技术如果被中共盗取，对本国和全世界都是极大的威胁。所以，防火防盗防中共。
+可见，中共国有单位“挖矿”比较严重，国家公务人员知道经济数据的真假，才为自己留后路，数字货币喜币才是未来。
 
-新闻参考链接：[http://dlvr.it/SCcMWL](https://dlvr.it/SCcMWL)
+信息来源：
 
-* * *
+[国家发改委：将以比特币“挖矿”等为重点开展全面整治](https://open-hl.toutiao.com/a7031006713364873735/?utm_campaign=open&amp;utm_medium=webview&amp;utm_source=o_llq_api&amp;req_id=20211116211008010211215140271C6DB6&amp;device_brand=&amp;dt=RMX3350&amp;crypt=4957&amp;label=open_o_channel&amp;a_t=ACt8mLx4gzpnUoZGBHAhNYvQdWZWQo8mzYUAF22aph9rT)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[国家发改委：严查严处国有单位机房所涉“挖矿”活动](https://m.gmw.cn/toutiao/2021-11/13/content_1302676791.htm?tt_group_id=7029836995878715940&amp;in_ogs=1&amp;traffic_source=CS1113&amp;utm_source=OP&amp;source=search_tab&amp;utm_medium=wap_search&amp;prevent_activate=1&amp;original_source=1&amp;in_tfs=OP&amp;channel=&amp;enter_keyword=%E5%9B%BD%)
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
