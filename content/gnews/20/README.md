@@ -2,15 +2,25 @@
 ---
 
 
-## 【文贵先生大直播PPT】乔拜登无力改变中共，习近平决意称霸世界
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1672486/)
+## 有声|GTV新闻访谈简报|2021年11月15日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1672563/)
 
-撰稿：顽童2017
-美工：sotres
-审核：三票先生，顽童先生
+配音：香草山教育部 – 蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/简报-1.jpg)
 
-【2021年11月17日文贵先生大直播PPT：乔拜登无力改变中共，习近平决意称霸世界】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/311.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/32-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/33-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/34-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/111-2-2.jpg)
+文字版原文：[GTV新闻访谈简报|2021年11月15日晚](https://gnews.org/zh-hans/1668199/)
+
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

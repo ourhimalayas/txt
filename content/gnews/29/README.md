@@ -2,12 +2,30 @@
 ---
 
 
-## 圣约翰市心脏病专家接种中共病毒疫苗两周后去世
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1672299/)
+## GTV新闻访谈简报|2021年11月17日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1672422/)
 
-11/09/2021 一名男子在视频中说，圣约翰的心脏病专家索赫拉博·拉奇麦迪尔在接种中共病毒疫苗两周后死亡。但加拿大广播公司并没有报道完整事实
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-1.jpg)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-17.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：2021.11.17早GTV新闻访谈
+
+[https://gtv.org/broadcast/watch/61950355e7e7703792364779](https://gtv.org/broadcast/watch/61950355e7e7703792364779)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

@@ -2,56 +2,114 @@
 ---
 
 
-## 女医生感激“青蒿素”救了她全家（一）
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1672547/)
+## 中共病毒口服药比疫苗还毒
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672600/)
 
-俄罗斯莫斯科喀秋莎农场 去他妈的疫苗
+[https://gtv.org/video/id=61939c4a182702508105db4c](https://gtv.org/video/id=61939c4a182702508105db4c)
 
-编辑上传 水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Q.png)俄罗斯莫斯科喀秋莎农场 女农
-前言：她是一名中共国内的年轻妇产科医生，今年8月打了第二针中共病毒疫苗，身体开始出现疲倦，及心慌心悸症状。11月初开始服用“青蒿素哌喹片”，身体系列不适症状消除，她立即让已打疫苗的家人全部服用，并感激此举拯救了全家。然而，在决定是否服用“青蒿素哌喹片”时，却经历了一个曲折传奇的求证过程。
+郭文贵
+Miles Guo
 
-**疫苗会戕害我们身体吗？**
+告诉大家这个口服药有多可怕，口服药是当年对付艾滋病
+Tell everyone how horrible this oral medicine is, this oral medicine was used to treat with AIDS in the past
 
-秋风萧杀，落叶纷飞，看到生命之绿在草木间渐渐褪去，我仿佛看到打了中共疫苗的同胞们……疫苗的毒正在悄悄地侵袭着他们的生命！可是，他们却浑然不觉，即使很多人打了疫苗，患病死亡，大家却以为是生命之本能，听天由命。他们根本不知道，这正是一帮恶魔在痛下杀手，让大量无辜的人先后失去健康和生命。
+大家记住，不光是艾滋病，大家不能光看一点是对付淋病、性病
+Remember everyone, it’s not just for AIDS, you can’t just focus on treating with gonorrhea and venereal disease
 
-我是一名小小的爆料革命战友，很早就听到了七哥有关疫苗的爆料，我没有打疫苗，同时也尽量劝告身边亲友不要打，可是大多数人还是去打了。我只能在心中默默地难过，不知道未来眼前这些鲜活的生命会迎来怎样的遭遇？可后来又听到七哥爆料，疫苗之毒有缓解的办法。于是，我重新燃起希望，尽量去劝告亲友们服用“青蒿素和伊维菌素”。然而，依然大多数人不以为然，觉得我是无事找事。
+还有到非洲的那个痢疾、霍乱的那个药方
+also the prescription for dysentery and cholera in Africa
 
-终于有一天，我又在苦口婆心地劝告几位打了疫苗的朋友时，有一位年轻的妇产科医生回应了我。她说自己在门诊时，碰到多例打了疫苗的孕妇，胎儿停止了发育。由于当地孕妇们一般不会去打疫苗的，而这些打了疫苗的孕妇，多数是怀孕初期并未察觉到已怀孕，而去打了疫苗。因为出现这种停孕现象比以往比例高，她不得不怀疑疫苗的坏作用。同时，她自己8月打了第二针疫苗后，就感觉全身疲惫，每天晚上睡觉时，感觉心慌心悸，很难受，难以很快入睡。
+它这个激素的副作用，你要连着吃多少天
+the side effect of this hormone is, after you take this medicine consistent many days in a row
 
-为了求证自己的疑虑，她去查阅了一些医学类文章，在有些国外翻译而来的文章中，她阅读到疫苗中含有刺突蛋白和氧化石墨烯，会引起人体血栓。她希望得到更多渠道的求证，可是医院已有明文规定，医生护士不可妄议疫苗。但她还是旁敲侧击地从呼吸科一位同事那里得知，有很多打了疫苗的中老年人，患病住院，那肯定是疫苗引起的。
+你真的就是脖子跟脑袋一样粗了，真的是很夸张夸张的
+Your neck will be as large as your head, it’s really exaggerated
 
-后来，她与一位其他医院肿瘤科的外科主刀医生聊天，对方告诉她，在他们医院经常能见到打了疫苗后患心肌炎、心梗、脑梗的病人，尤其脑梗最多……对于疫苗导致人血栓，患各种心脑血管病，这件事在各位医生们心里已经定性，只是医院下令不许谈论。
+特别你有过癌症这个病例的人，或者曾经有过手术的人
+Especially you have had cancer, or someone who has had surgery
 
-而且不仅医生们已经知道了疫苗的坏作用，病人们也心知肚明，自己的病是疫苗引起的，大家也不谈论，都认为这是命，别人打了没事自己有事自认倒霉！
+这种激素对你身体危害是巨大的，更夸张的事情
+This hormone is so harmful to your body, and it’s even more exaggerated
 
-我的这位妇产科医生朋友越了解疫苗后遗症越恐惧，虽然目前出现不良反应的人还是少数，但是她意识到自己已成为少数人之一，因为她的心功能已出现了问题。自己是学医的，她明白自身当下的年龄，出现心悸心慌现象不是自然现象，肯定是外来因素影响，那就是疫苗。
+它会严重的诱发你心脏病，因为有糖尿病病史的，有这个心脏病的
+that it will seriously induce your heart disease because people with a history of diabetes and heart disease
 
-于是，她又去寻找缓解疫苗毒性的方法，可那位外科医生告诉她，没啥好的办法，唯一就是多喝水。她几经周折，终于在微信朋友圈里看到有位私家诊所的中医，一直在发谴责疫苗的言论，并声色俱厉地警告人们，打疫苗有亡国灭族的危险。她向这位中医求问疫苗解毒的妙方，对方给了她一个青蒿鳖甲汤。但她还没来得及服用。
+这极为危险，这是我们欧洲的科学家明确说
+this is extremely dangerous, this is what our European scientists clearly stated
 
-当听完她的一番倾诉，我分明感受到她对疫苗的憎恨和恐惧。我告诉她青蒿素是疫苗最好的解药，但是不是中草药青蒿熬水吃那种，是获得诺贝尔奖的屠呦呦提取的“青蒿素”。接着，我把七哥爆料的相关内容，以及战友们服用青蒿素后的心得一一分享与她。她当即下单，一口气买了几十盒青蒿素哌喹片，说是给自己及家人服用的。
+文贵，这个药比疫苗还毒，他说这个毒到什么程度呢
+Wengui (Miles), this medicine is more poisonous than vaccines, how much does he say is it poisonous?
 
-可是，就在她满心期待着青蒿素哌喹片来解救自己的时候，也就是她下单购买后第三天，七哥在直播中告诉战友们，不宣传服用“青蒿素哌喹片”，因为很多战友服药后出现各种副作用反应，不明原因，所以警告大家服用时要遵循医嘱。
+他说很多人以为吃的药就不直接加入身体，
+He said that many people think that the medicine they take is not directly into the body
 
-当时我听了后不知该怎么办。因为她已经买了几十盒药，还好药未寄到，并没有服用。但我还是及时地把服药有副作用反馈了她，并连续几天收集战友们的服药心得分享给她。她也变得举棋不定，不知道是药的品质问题，还是身体的排毒反应？
+他说你别忘了，人（的病）都是吃出来的
+He said you don’t forget, illness are all from eating
 
-后来，我们共用商议，去寻找一条特别的途径，来解开心中的困惑。多年以来，我们都有幸认识一位易学大师，每当遇到人事困惑时，都会去问卦。因为“天垂象，示吉凶”，每个卦都是来自上天的信息反馈，也可以说卦就是天书。易经大师经过多年学习和实践，获得了解读翻译这种天书的技能和灵感，以告诉求问者神佛的答案。所以，我们是怀着无限的敬意，去向万神万佛求问疫苗和青蒿素哌喹片能带给我们什么？
+不是打针打出来的，他说吃进去这个药，对身体的危害更加的危险
+It’s not from the injection, he said that taking this oral medicine would be even more dangerous to the body
 
-虽然我们决定去寻求易经大师的帮助，可是我的心里依然忐忑不安。因为在去年春天病毒一出现，我就到处告诉亲朋，吃羟氯喹+锌预防。这时，易经大师根本不听我说的，因为他觉得我太平庸，怎么知道预防方法呢？后来出现了疫苗，我又警告说，疫苗有问题，千万别打。但易经大师仰仗高端人脉，成为第一批打疫苗者。如今我知道他已经打了三针。如此这般，他能告诉我们，疫苗的真相吗？
+他说就是按照医学来说，它分解完以后
+He said that according to the medicine, after it is decomposed
 
-但我们别无他法，不妨一试。当易经大师听明我的来意后，他主动谈起，自己所在的地区已经发现中共病毒（新冠）感染者，正在全民做核酸检测。然后，他诚恳地说：“你过去说打了疫苗没啥用，同样会感染的，这证明是正确的，因为咱们这里90%的居民都接种了疫苗。”听他这么一说，我太欣慰了。但我接过话回答，这疫苗不仅没用，而且有毒，会伤害接种者的健康甚至性命，所以，我们求问的第一个问题就是，疫苗的害处是什么？
+通过整个食道分解以后，他说直接影响的是你的神经系统
+after breaking down through the entire esophagus, he said that it directly affects your nervous system
 
-易经大师开始排盘推演，然后简单地说，疫苗属于重木气，水生木，水为人体的血液、精液等，所以会耗损人体的血液循环系统和生殖系统等。而木生火，火可引动木气，而人体的火气与疫苗的木气相比，偏弱，于是无法平衡……总之，确实不好！
+然后才是你的消化系统，包括血液
+then is your digestive system, including blood
 
-于是，我和女医生一起把我们所知道的疫苗毒害信息一一讲了出来。
+他说针打进去以后，直接影响这些血液循环系统
+He said that after the injection, it directly affects these blood circulatory systems
 
-易经大师说，我万万没想到政府会这么对待老百姓，当初全民免费，社区挨家挨户敲门强制接种，我还感激政府如此爱民，哪知是给咱们注射毒针。早知道，当初我应该用卦看一看啊！关键是政府这么兴师动众，草木皆兵地抗疫，这是头一次，过去我从未怀疑过什么。
+他说这是很可怕的，他认为这个药吃完以后，
+He said it was terrible, and he thought that after taking this medicine
 
-是啊！绝大多数的人都被蒙蔽，他们不知道泱泱大国，早已控制在少数魔鬼手中，他们视民如草芥，一切的冠冕堂皇只不过为了更好地奴役、吸血、杀戮！不仅是中共国的各类精英被蒙蔽，连外国元首、沼泽地主人都很多打了疫苗。这就是，“道高一丈，魔高一尺”，魔鬼的凶残和血腥超过了人能想象的极限。唯有文贵先生，振臂高呼，揭露中共的魔法阴谋，拯救着无数的生命，石破天惊的壮举啊！
+他说这个人呐，他说这个人可能很慢，有慢性的副反应
+He said this person, he said that this person may have slow chronic side effects
 
-易经大师问我们，知道什么方法可以解疫苗毒吗？我说，我们求问的第二个问题就是，青蒿素哌喹片能够解除疫苗的毒吗？欲知答案，请看下回分解。
+但是对人神经和血液循环系统和循环系统的毁灭性
+But it is devastating to human nerves and blood circulatory system and circulatory system
 
-注：本文细节皆据实陈述，唯有当事者信息隐去，为了安全起见。
+就是你不知不觉，你这个人就成了傻子
+If you didn’t know it, you became a fool
+
+你就心梗、脑梗、心脏病死，而且不可寻找就这更加没那么直接
+People die from myocardial infarction, cerebral infarction, heart attack, and you can’t find it, it’s not so direct
+
+不是血管出来了，爆管了，脑梗了，心梗了
+It’s not only the blood vessel burst, the brain infarction, the myocardial infarction
+
+你慢慢的就是癌症，然后什么慢性病，爆发症，就死了
+People slowly get cancer, and then any chronic diseases, outbreaks and then die
+
+他说这个太毒了，他对冠状病毒疫苗咱们这个科学家都没那么激动
+He said this is too toxic, and he is not so agitated about the coronavirus vaccine as a scientist
+
+这就是今天告诉大家，碰都别碰，想都别想
+This is what I told you today, don’t touch it, don’t even think about it
+
+谢谢
+Thank you
+
+* * *
+
+Date:11/14/2021
+原视频标题: 中共病毒口服药比疫苗还毒
+CCP virus oral medicine is more poisonous than vaccine
+原视频日期：2021/11/10
+原视频链接 [https://twitter.com/se1y7cblljselva/status/1459004434735067136?s=24](https://twitter.com/se1y7cblljselva/status/1459004434735067136?s=24)
+任务编号：KC255（2858）
+视频时间段 : 0:00-2:16
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

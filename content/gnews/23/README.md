@@ -2,19 +2,23 @@
 ---
 
 
-## 【文贵先生大直播PPT]再谈喜币，喜美元与喜支付
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1672439/)
+## 11月17日文贵大直播快讯——习拜会是中共吓唬百姓的手段
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1672498/)
 
-撰稿：文唐、多梅尼科、Benj1、sotres，ILOVE战神（文凡），政清
-美工：卡西亚，雷蒙
-审核：三票先生，顽童先生，政清
+撰稿：Gradient Boost
 
-【2021年11月17日文贵先生大直播PPT：再谈喜币，喜美元与喜支付】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/21-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/25-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/26-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/27-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/28.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/29.jpg)
-* * *
+视频：文登
 
-发稿：云起时
+美东当地时间11月17日，文贵先生在大直播中再谈全球疫苗灾难话题。文贵先生谈到习拜会的宗旨，其实就是由美国为习神的六中全会进行背书。用拜登求习神的样子糊弄中国人相信、服从、听话并且跟随。
 
+文贵先生认为，中国人这七十年，某种程度上源自于共产党的恶，某种程度上也是中国人应付的原罪。这个国家的人们，七十年来祖祖辈辈，都相信中国共产党——而文贵先生说他自己的家人也不例外。
+
+文贵先生警告，灾难真的还没有开始。即便没有了中国共产党，如果中国的人心未得到恢复，中国这片大地依旧会笼罩在阴霾之中。不论是在疫苗的问题上，还是对美国的认知上，还是北京正在进行的“跟随我的太阳”这件事上，中国的人心想要恢复，似乎还有很长的一段路要走。
+
+笔者认为，消灭共产党只是重建中华的第一个步骤，想要恢复人心也的确任重而道远。但是尽管前途会有各种艰难险阻，这都不能成为我们放弃的理由。相反，我们对于新中国联邦正道主义会变得更加坚定，每一项工作也会更加认真和努力去完成。
+
+（文章内容仅代表作者观点，与Gnews平台无关）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

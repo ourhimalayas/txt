@@ -2,144 +2,24 @@
 ---
 
 
-## 习拜视频会极大羞辱美国让西方感到彻底威胁
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672627/)
+## 文贵爆料 11.17: CCP是全世界邪恶势力的大总部
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1672648/)
 
-[https://gtv.org/video/id=61939ccd182702508105db72](https://gtv.org/video/id=61939ccd182702508105db72)
+撰稿：柯亭
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1117-4.jpg)
+11月17日，文贵先生在直播中回答QMay关于世界邪恶势力意欲将今天的世界带向何方这个问题时强调，CCP是全世界邪恶势力的大总部。
 
-郭文贵
-Miles Guo
+他说，事实上大家都看到了，今天的疫情和疫苗灾难与钱有关系。这个世界上现在超发了这么多的货币和票据，世界保险已经到了最高赔付的顶峰。文贵先生剖析了其中原因和后果。过去70年和平时期以及最近20年的经济发展，都被金融票据也就是华尔街的金融杠杆所影响；金融杠杆化、以及2008年金融危机以来所有超发货币的结果，是世界上极少数人非法获得了却大多数的财富；而金融杠杆化的最终结果，其中最重要的一个问题是保险公司要兑现被保险的钱、以及金融机构要兑现十倍或百倍的回报。
 
-那么现在中美之间发生什么问题
-So currently what’s the problem between China and the U.S.?
+不仅如此，那些控制金融杠杆化的各国政府和金融机构的人，也就是世界上百万分之一的极少数人，同时也控制着大药厂这个和平的、合法的杀人武器。这些邪恶势力控制的另一个武器，就是绝对控制人的精神和思想、不让人知道真相的所有传统媒体。
 
-供应链彻底崩塌
-It’s the supply chain collapsed completely
+文贵先生提醒战友们要看清今日世界的形势，也就是邪恶势力妄图控制世界的三个手段。第一就是掌控所有的媒体把真相干掉；第二个就是用药厂干掉你。如果前两个手段还干不掉你，就用枪用武器，让警察搞掉你。
 
-美国在这种情况下希望中共
-Under such circumstances, (the Biden administration) hopes that Xi
+**郭先生揭示背后的CCP才是全世界邪恶势力的大总部。**这个邪恶势力包括那些背后的大佬、金融之父、杠杆的原创者，也包括美国共产党、以及那些与CCP相互纠结华尔街的大鳄。邪恶势力最大的勾兑者是CCP，CCP是邪恶中的邪恶，CCP是全世界邪恶势力的大总部；而且与药厂、病毒、以及制药都有关系。这个世界已经处于关键时刻，全世界要与邪恶势力算清账，要么邪恶势力会把这个世界给干掉了。
 
-你一定给我供应链
-must maintain the supply chain to the U.S.
+文贵先生提醒战友们说，这个世界已经到了最黑暗的时候；他得到的一些信息，包括对人特别是孩子的杀虐，其血腥程度远远超过战友们搜寻到的所有视频；战友们在不改变生命和生活现状的情况下，绝对要挺下去。
 
-就奴隶、奴隶、奴隶
-which is cheap labor(Chinese people)
-
-而且美国已经对中国开启签证
-And also, the U.S. has opened visa to China
-
-第二，我现在要让你开始保证我的老百姓基本的生活
-Second, (the Biden administration) now hopes that Xi can guarantee basic living goods to the American people
-
-便宜的内裤，便宜的旅游鞋还得给我
-i.e. the cheap underwear, low-cost travel shoes need to resume in market
-
-第三，你的房地产千万别一下倒，慢慢倒
-Third, (the Biden administration) demands that the real estate business must avoid quickly collapsing, slowly collapsing (is acceptable)
-
-第四，最重要咱俩要合作
-Forth, the most important thing (to the Biden administration) is the cooperation between the Biden administration and Xi
-
-咱得忽悠老百姓
-Both of them have to fool their ordinary people
-
-明天无限美好，继续画大饼
-that tomorrow is wonderful and continue to dream big
-
-一切的一切都为了今年的中期选举
-Everything is for the mid-term election this year
-
-就是民主党绝对不能输
-that is, the Democratic Party must not lose
-
-佛吉尼亚几乎废掉了拜登总统一半以上的能力
-(The winning of) Virginia election has almost abolished more than half of President Biden’s capabilities
-
-你在这个中期选举完几乎就完了
-(The Biden administration) most likely would be over after the mid-term election
-
-所以习在这种情况下列出这十几条羞辱美国
-Therefore, (even though) Xi Jinping listed a dozen requirements for humiliating the United States under these circumstances
-
-拜登都要跟他通个视频会议
-Joe Biden still preferred to have a virtual meeting with Xi
-
-我告诉你们
-Let me tell you
-
-对咱新中国联邦的意义可大了去了
-It’s of great significance to our new Chinese Federal State of China
-
-他公布完这个以后
-After he announced this
-
-证明啥？七哥这几条我都提前发给
-What does it prove? I have already sent those requirements in advance
-
-咱们的政治合作者了
-to our political collaborators
-
-他们当时说：“真的吗？Miles？”
-They all asked that “was that real? Miles”
-
-你说这外国人都很天真
-See, these foreigner are very naive
-
-他都说这是真的吗
-They all asked whether it was real
-
-结果，证明郭文贵又是伟大正确的
-As a result, it has been proved again that Miles Guo is greatly correct
-
-新中国联邦情报准确
-and the New Federal State of China’s Intelligence is accurate
-
-哇塞，每次都给我们逆增上缘
-Wow, it helps us every time, both positively and negatively
-
-那真出来了，美国人、外国人现在害怕了
-(Listed serval requirements) have come out. The American people and foreigners are now scared
-
-这真是习近平拿美国人不当回事儿啊
-This is really indicated that Xi Jinping is not treating the American people as a matter
-
-而这种事公布对拜登是政治需求
-and this kind of announcement is a political demand of Biden
-
-对美国和欧洲对待西方
-In regards to how the United States and Europe treating the West
-
-他感觉到彻底的威胁
-He has felt an exhaustive threat
-
-这是为什么在西方的天主教、基督教系统
-This is the reason that in the Western’s Catholic and Christian systems
-
-你没有好话说的时候你就闭嘴
-you need to keep your mouth shut if you have nothing to say
-
-西方人随便批评人是很大的问题
-It is a serious matter for Westerners to criticize people randomly
-
-* * *
-
-Date: 11/14/2021
-原视频标题: 习拜视频会极大羞辱美国让西方感到彻底威胁
-Xi and Biden’s Virtual Meeting extremely humiliated the United States and made the West feel exhaustive threatened
-原视频日期：2021/11/12
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1459850200227676160?s=24](https://twitter.com/se1y7cblljselva/status/1459850200227676160?s=24)
-任务编号：KC256（2879）
-视频时间段 : 0:00-1:59
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+参考链接：[11月17日文贵大直播](https://gtv.org/broadcast/watch/6194fda8e7e7703792363973)
 
  
 
