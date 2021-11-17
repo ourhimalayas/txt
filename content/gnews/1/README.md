@@ -2,30 +2,45 @@
 ---
 
 
-## 印度政府加强监管加密货币，利好喜马拉雅币
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1671469/)
+## NIH起诉Moderna，揭示大药厂如何用纳税人的钱致富
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1671473/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-92.jpg)[图片来源](https://nitter.net/pic/media%2FFDBoe6IUYAE5rEq.jpg%3Fname%3Dsmall)
-据印度经济时报周三报导，印度有可能禁止使用加密货币进行交易或支付，但允许将其作为资产持有，就像黄金、股票或债券等资产那样。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-该报引述熟悉政府想法的消息人士的话称，这种做法将避免实施全面禁令，尽管政府很想阻止包括交易所和平台在内的加密货币公司积极努力吸引新的投资者。加密货币群体已经向印度当局提出了几次交涉，要求将其归类为一种资产，而不是货币，以便获得接受并避免禁令。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/share-the-moderna-recipe-banner-FINAL-9-1500x751-1.png)
 
-消息人士周六表示，印度总理莫迪上周主持了一次会议，讨论加密货币的未来，因为担心不受监管的加密货币市场可能成为洗钱和恐怖行动融资的途径。到目前为止，印度央行似乎非常不愿意接受加密货币，对加密货币对宏观经济、金融稳定和资本管控构成的潜在风险表示担忧。
 
-根据区块链数据平台Chainalysis的数据，2021年5月印度数字货币市场的规模为66亿美元，2020年4月为9.23亿美元。
+ 
+图片来源：www.citizen.org
 
-印度政府所担忧就是以比特币为代表的以洗钱功能为主的虚拟货币，但是相对的作为加密货币中的一股清流——喜马拉雅币，在诞生之初就和洗钱犯罪等活动划清了界限，不同于比特币的责任去中心化，喜马拉雅币倡导的是责任中心化，与稳定币挂钩，防止暴涨暴跌，突出了货币的流通属性。
 
-经济危机的到来，人民为了保存自己的财富，拥抱虚拟货币的潮流已经无人可挡，当政府不得不选择一个虚拟货币的时候，以喜马拉雅币为代表的可监管的加密货币必然会成为首选。
+#### 编译：小红帽
 
-消息来源:
+美国国立卫生研究院（NIH）正在起诉莫德纳（Moderna）公司，要求其拥有中共病毒（COVID-19）疫苗的部分专利。
 
-[印度可能禁止加密货币交易 但允许将其作为资产持有–报载](https://cn.reuters.com/article/india-crypto-currencies-ban-1117-idCNKBS2I20HW?il=0)
+美国国立卫生研究院院长弗朗西斯-柯林斯（Francis Collins）表示，他理应从版税中分得一杯羹，因为他的机构在开发该疫苗方面发挥了“重要作用”。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+莫德纳中共病毒疫苗是一种高利润的药品，因为它在整个地球上被强制使用。
+
+柯林斯现在向媒体抱怨，他应该如何从数十亿美元中分得一杯羹，因为他用美国纳税人的钱来帮助开发这些疫苗。
+
+莫德纳预计在2021年将从强制接种中共病毒疫苗获得高达180亿美元的收入，该疫苗采用有毒的、改变基因的信使RNA（mRNA）技术制成。在2022年，这一数字预计将飙升至220亿美元。
+
+莫德纳想把所有的钱据为己有，所以柯林斯正在浪费更多的美国纳税人的钱，试图起诉该公司，以获得他认为应得的那份。
+
+与此同时，世界各地的人，包括年幼的孩子，正因莫德纳的致命疫苗而受伤和死亡。而他们现在都无能为力，因为莫德纳公司对其产品造成的损害不承担任何责任。
+
+**参考新闻：**[NIH claims co-ownership of Moderna COVID vaccine patent, demonstrating how taxpayer money is used to develop therapeutics that make drug companies wealthy – NaturalNews.com](https://www.naturalnews.com/2021-11-16-nih-co-owns-moderna-covid-vaccine-patent.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

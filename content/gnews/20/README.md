@@ -2,30 +2,38 @@
 ---
 
 
-## 山东国信24亿信托产品踩雷，股价反复“腰斩”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1671287/)
+## “被囚禁作者日”：美国人权委员会呼吁关注中共国因言获罪人士
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1671303/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-13.jpg)山东国信24亿信托产品踩雷，股价反复“腰斩” 网络图片
-据新浪财经11月16日报道，号称“港股信托第一股”的山东国信股价近日连续暴跌，在0.6港元左右维持了数月之后，从10月22日开始至11月12日收盘，其股价仅为0.345港元，再一次“腰斩”。
+作者：英国喜庄园-I770775
 
-山东国信成立于1987年3月，是经中国人民银行和山东省人民政府批准设立的非银行金融机构，2017年12月在香港联交所H股挂牌上市。山东国信于2020年11月4日至2021年4月16日设立了“山东信托–青山20号集合资金信托计划”，由平安银行代销。山东国信作为受托人，与深圳市宝能投资集团有限公司、太原市宝创置业有限公司及太原市宝能泰盛置业有限公司签署的《山东信托-青山20号集合资金信托计划之债权债务确认暨还款合同》显示，债务人宝能投资集团应于9月22日向山东信托支付第三季度利息共0.67亿元。
-
-今年8月，宝能集团曝出违约事件。9月22日，山东国信发布公告称，宝能集团因未能按期支付利息，构成实质性违约。山东信托宣布该信托计划（含债权本金24亿元及利息款）提前到期结束，要求债务人履行偿债义务，并通知相关担保人履行担保义务。
-
-在中共这样一个没有信用、没有担保、没有监管的金融体系中，没有任何信托产品是安全的、是值得信任的，因为拼的不是实力和能力，而是关系和欺骗。谁的关系广，谁的骗术高，谁就是赢家。整个金融系统在这样的环境下运行，最终的结果就是所有的产品都会违约、都会爆雷。有能耐骗钱，没能耐还钱。一起违约，一起破产。
-
-新闻参考链接：[https://finance.sina.cn/chanjing/gsxw/2021-11-16/detail-iktzqtyu7581170.d.html?sinawapsharesource=newsapp](https://finance.sina.cn/chanjing/gsxw/2021-11-16/detail-iktzqtyu7581170.d.html?sinawapsharesource=newsapp)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-357.png)图片来自VOA
+11月15日，是一年一度的“被囚禁作者日”40周年纪念日，美国国会兰托斯人权委员会举办线上论坛，讨论全球尤其是中共对言论自由的持续威胁，呼吁外界关注中共国因言入狱的人士境遇。 讨论会指出，在全球很多地方，政府为了打压对政府的批评，以中共病毒为由限制人们的言论自由，以散布虚假信息为由监禁作者。 讨论会尤其关注，中共当局对自由言论人士的监禁或迫害。 无国界记者组织美洲分部总裁安娜·纳尔森表示，媒体自由在过去几年中也持续恶化，很多国家利用CCP病毒来限制媒体自由，打压媒体，还有一些国家则利用网络安全法来限制言论自由，逮捕记者。 她指出，全球目前有465名记者和媒体工作者因他们的工作而遭到监禁，其中中共是关押记者人数最多的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+新闻来源：[https://www.voachinese.com/a/day-of-the-imprisoned-writer-20111115/6314379.html](https://www.voachinese.com/a/day-of-the-imprisoned-writer-20111115/6314379.html)
+
+总编：文徬
+
+上传：浪迹天涯
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
 
 
 
