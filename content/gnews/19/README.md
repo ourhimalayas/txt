@@ -2,49 +2,34 @@
 ---
 
 
-## FBI利用反恐部门给学生的父母添加了“恐怖分子标签”
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1671495/)
+## CCP治下城市建筑美感的消失和原因
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1671550/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+作者：英国伦敦喜庄园 有贵成喜2020
+[![](https://spark.adobe.com/page/h5JiLzk83RZV9/images/ca91e753-2a74-4b3e-831a-9b3cb6d2cd81.png?asset_id=1f67e798-b959-46ae-8a03-956091fa2889&amp;img_etag=%222419092bcb6f725e475896dad78c1a09%22&amp;size=1024)](https://spark.adobe.com/page/h5JiLzk83RZV9/images/ca91e753-2a74-4b3e-831a-9b3cb6d2cd81.png?asset_id=1f67e798-b959-46ae-8a03-956091fa2889&amp;img_etag=%222419092bcb6f725e475896dad78c1a09%22&amp;size=1024)图片来源：pixabay
+这些年，随着墙内房地产和城市建设的蓬勃发展，各地区城镇化已经基本定型。但是，各地的建筑物、民宅几乎是千篇一律，没有了任何建筑艺术之美，特别是三四线城市尤为明显。所有的二线城市好像都在学上海、北京的城市风格和功能建设，建高楼大厦，建快速通行和超宽通道，楼越建越高，楼间距越来越近……而三四线城市又都在学二线城市。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-370.png)图片来源 ：dailymail.co.uk
+拿二线城市山东省会济南来说，在这座城市里行走有时恍惚觉得这就是另一个上海，走在现在的三线城市山东济宁又恍惚觉得这就是另一个济南。你会发现所有三四线城市的建筑风格基本一样，好像地产商都用了同一份图纸，这让不同地域的三四线城市之间在建筑风格上几乎看不到任何地域差，各个城市除了原有的无法更改的自然景观带来的大自然的美感外，城市里的建筑群几乎很少出现能突出当地特色、文化特点以及和谐美感的设计。中国原来美好的地理人文风貌在CCP文革大毁灭一次以后，又被大量毫无灵感、美感的水泥森林强奸了一遍。
 
-FBI利用反恐部门给学生的父母添加了“恐怖分子标签”
+任何事实的形成都有其深层的原因，我觉得中共国的现代建筑枯燥无味，甚至丑陋的原因大概有以下几点:
 
-众议院共和党人获得的爆料文件显示，联邦调查局（FBI）利用反恐部门（counterterrorism unit）为向学校董事会提出，对批判种族理论(CRT)有担忧的家长加上“威胁标签”（反共产主义将被视为恐怖分子）。
+1，最本质的原因就是CCP流氓恶党的本质是丑恶的，无论是其各机构的LOGO，还是服装，亦或是其办公场所的设计，无一不透露出其粗俗、暴力和丑陋，更遑论文革期间那种登峰造极的以丑为美，以粗俗无知为正统的颠倒黑白的社会规范，开放国门后的经济发展又让这个没有文化底蕴的CCP滋生出暴发户的狂妄心态。在过去的70年，这一切一直影响着国民的是非善恶观，长此以往，必然造成国人急功近利的做事态度，丧失了敢于说不的勇气，失去了与生俱来的美的灵性，蒙蔽了可以发现美的眼睛，甚至抹灭了追求美的动力，阻断了发掘美的灵感源泉。
 
-这与梅里克·加兰10月份在国会宣誓的证词相矛盾。其证词表示，司法部及其部门没有利用反恐法规和资源来针对，在学校董事会会议上抗议的家长；美国司法部长梅里克·加兰（Merrick Garland）应该辞职。
+2，另一个重要原因就是CCP以城镇化建设和房地产作为最大的支柱经济来掠取人民的财富。文贵先生爆料透露这些CCP的红色家族根本不懂如何发展经济，更没有以国家与民族利益为己任，而是一味地拼命掠夺、转移国家财富。上行而下效，再加上CCP特有的考核机制，以及中央与地方之间财富分配机制，下面大大小小的官员都愿意制造并享用土地财政这块大肥肉，并乐此不疲，渐渐地就没有了创新发展的动力。大小房地产商都只从资本的角度考虑问题，实现快速收益是他们的首要目标，至于项目是否可以融合当地的地域风貌和文化风土人情，根本不在他们的考虑范围之内，设计图纸都是重复利用以便节省设计费和设计工时，这就造成了如今全国各城市的建筑千篇一律的局面。
 
-吹哨人提供了一封日期为10月20日的联邦调查局电子邮件—也就是加兰在国会作证的前一天—该电子邮件是作为“代表”联邦调查局反恐司助理司长和刑事司助理司长发送出去的。
+3，CCP利益集团的阻挠。城市建设设计有基本的规范，一些城市的规划单位还是按照科学的设计来规划的。可是CCP的几大家族和核心权力部门根本不会理会这些地方政府的规划，法律法规也制约不了他们，他们可以肆意更改，为了追求利润最大化，建筑布局上的突兀建筑、影响城市景观和微气候的建筑比比皆是，实在令人痛心。
 
-众议院共和党人在一封信中提到吹哨人提供的电子邮件时说：“该电子邮件指示联邦调查局人员对所有’专门针对学校董事会管理人员、董事会成员、教师和工作人员的威胁进行调查和评估’”。
+走遍这些地方，看着这些毫无生气与美感的建筑遍布在祖国的大江南北，它们一边破坏着当地自然与人文环境，一边将百姓的辛苦所得搜刮一空。这一切不仅仅是因为CCP的邪恶，也是源于中国人民的懦弱。当中共的独裁统治被推翻，一切才只是刚刚开始；中国的未来需要有脊梁、有血性、有正义感，还要有会审美的新中国联邦人，去努力找回属于我们的华夏文明与文化。
 
-“这是确凿的证据，”克里斯托弗·鲁弗（[Christopher Ruffo](https://twitter.com/realchrisrufo/status/1460705961618726912?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1460705961618726912%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https://www.thegatewaypundit.com/2021/11/breaking-house-republicans-obtain-whistleblower-docs-showing-fbi-used-counterterrorism-unit-add-threat-tags-parents-contradicting-garlands-sworn-testimony/)如下两张推特截图）说。”司法部长加兰没有提供任何证据证明学生的父母正在从事可信的威胁或暴力行为。然而，他却动员联邦调查局的反恐部门使用反恐工具来调查、追踪和标记父母。”
+*编辑：【英国伦敦喜庄园编辑部】*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-372.png)
+*校对：仙女儿-文善 | 审核：文明明 | Page：青山*
 
-这些爆料的文件直接与梅里克·加兰的宣誓证词相矛盾，也就是说梅里克·加兰在国会宣誓后被证实是撒谎（如下[推特](https://twitter.com/approject/status/1460714668935327748?s=20)截图）。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-377.png)
-
-**简评：**
-
-**一则来自《[零对冲](https://www.zerohedge.com/political/fbi-whistleblower-reveals-biden-doj-activated-counterterrorism-division-against)》的相关报道。**
-
-**加兰在10月国会作证时受到了抨击，在那里他否认将联邦调查局“[武器化](https://www.zerohedge.com/political/thank-god-youre-not-supreme-court-tom-cotton-eviscerates-garland-over-doj-memo)”以对抗反对批判种族理论和疫苗相关规定的父母——仅仅使用全国学校董事会协会（NSBA）的一份站不住脚的备忘录作为理由。值得注意的是，该备忘录和司法部都没有提供所谓“威胁”学校管理人员的具体例子。**
-
-**争议始于10月4日，当时加兰宣布将集中力量打击学生的家长对学校工作人员的”任何暴力威胁、恐吓和骚扰”。几天前，全国学校董事会协会（NSBA）要求拜登政府采取”非常措施”，以防止据称学生家长对学校工作人员的威胁，该协会说这些威胁来自反对口罩强制令和反对批判性种族理论教学的家长。**
-
-**司法部长梅里克·加兰 (Merrick Garland) 的女儿是丽贝卡·加兰( Rebecca Garland)。2018 年，丽贝卡·加兰 (Rebecca Garland) 与Xan Tanner [[链接](https://www.nytimes.com/2018/06/17/fashion/weddings/rebecca-garland-xan-tanner.html)]结婚。Xan Tanner 先生是一家颇受争议的教育服务公司 Panorama Education 的现任联合创始人。[[链接](https://www.panoramaed.com/about)和[链接](https://www.panoramaed.com/social-emotional-learning-sel)] Panorama Education 是“*[社会学习](https://www.panoramaed.com/social-emotional-learning-sel)*”资源材料的提供者，提供给教授批判种族理论（社会共产主义）的学区和教师。也就是存在利益冲突。**
-
-**另外，《[布莱巴特](https://www.breitbart.com/education/2021/11/16/house-republicans-reveal-whistleblower-documents-exposing-fbi-use-of-counterterrorism-tactics-against-parents/)》的报道表示，家长捍卫教育 (PDE) 通过公共记录请求[获得的](https://www.breitbart.com/politics/2021/10/21/emails-reveal-nsba-top-officers-worked-white-house-letter-targeting-parents-domestic-terrorists/)电子邮件显示，NSBA 的总裁和执行董事过去几周一直与拜登白宫工作人员进行谈判（各州的学生家长通过网络平台共同预谋反对共产主义的恐怖暴力行动）。然而，如果假设你在作证时知道联邦调查局的行动，那么这个证据表明是你故意误导（需要额外的解释）委员会关于 FBI 使用联邦反恐工具在学校董事会会议上，针对有关家长的性质和程度。**
-
-新闻来源：[thegatewaypundit.com][BREAKING: House Republicans Obtain WhistleblowerDocs Showing FBI Used Counterterrorism Unit to Add “Threat Tags” to Parents – Contradicting Garland’s Sworn Testimony |](https://www.dailymail.co.uk/news/article-10209781/House-Republicans-release-whistleblower-email-showing-FBI-threat-tags-school-related.html) 发布时间：2021年11月16日
-
-* * *
-
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
+[![](https://spark.adobe.com/page/h5JiLzk83RZV9/images/b7c25957-8b67-4267-b18c-f25d93f5e760.jpg?asset_id=a48ccfb5-5064-4f46-9a66-a67492000fdd&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)](https://spark.adobe.com/page/h5JiLzk83RZV9/images/b7c25957-8b67-4267-b18c-f25d93f5e760.jpg?asset_id=a48ccfb5-5064-4f46-9a66-a67492000fdd&amp;img_etag=%22fb035768c8cb9d7a5024d2e8b5ca4124%22&amp;size=1024)
 
 
  

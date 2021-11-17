@@ -2,35 +2,27 @@
 ---
 
 
-## 司法部长加兰：针对学生家长启动“反恐手段”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1671600/)
+## 秘翻在线：英特尔成都扩产计划泡汤，各大芯片巨头回归美国建厂
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671629/)
 
-#### 作者：东京樱花团｜捆绑CCP一千年
+**撰稿：葛大饼**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/司法部.png)*[图片来源](https://cms.zerohedge.com/s3/files/inline-images/garland%20looking_0.jpg?itok=sxrHFT79)*
+**责编：人间四月**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-17-195118.jpg)
+根据2021年11月14日 快科技报道， 由于美国拜登政府方面的反对，著名半导体芯片公司英特尔（Intel）成都厂扩产计划泡汤。
 
-**美司法部长加兰坐立不住，为急于解决学生家长反疫苗抗议事件激增的问题启动“反恐调查”，并准予创建“威胁标签” 跟踪起诉愤怒的父母。**
+有分析认为，尽管当前全球产业面临芯片短缺大危机，但拜登政府仍更重视推动半导体企业迁回美国，以防止在科技竞赛中落后。
 
-据17日GETTR消息，[美国FBI 联邦调查局举报人](https://www.zerohedge.com/political/fbi-whistleblower-reveals-biden-doj-activated-counterterrorism-division-against)称，司法委员会的众议院共和党人已于周二向司法部长梅里克加兰发出一封信，称“联邦调查局反恐部门正在汇编和分类与父母有关的威胁评估，并指示联邦调查局人员使用特定的“威胁标签”来跟踪潜在的调查。
+知情人士透露， Intel正在等待美国芯片法案520亿美元的补助通过，美国可能需要在Intel的补助中，增加额外的条件。部分共和党议员认为，增加补助的额外条件是为了防止像Intel这样的半导体公司一面接受美国政府的补贴，另一边却持续向中共国投资。
 
-证据是“加兰于 10 月 21 日作证前一天发送的电子邮件”，为解决对学校董事会的威胁，并通知联邦调查局人员有关反恐和刑事部门创建的新“威胁标签” 。 这一披露提供了具体证据并证实联邦执法部门应左翼黑恶利益集团要求对学生家长实施“反恐工具。”
+根据Intel官方的数据显示，Intel成都工厂自建厂至2018年第一季度，已经封装测试并运送出了超过22.3亿颗芯片。从《中国海关》杂志 报道的进出口数据来看，Intel成都工厂占据了中共国很重要的经济地位。但是目前Intel在中共国的制造业务相比之前有所收缩。
 
-- ***延展阅读：***[***共产主义的拜登声称疫苗是历史上“最强大”的刺激措施***](https://hannity.com/media-room/jabs-for-jobs-biden-claims-vaccine-mandates-the-most-powerful-stimulus-in-history/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=jabs-for-jobs-biden-claims-vaccine-mandates-the-most-powerful-stimulus-in-history)
+相比之下，是各大芯片厂商包括英特尔、台积电、三星、格芯等在美国建厂的计划浮出水面。台积电选择了在美国亚利桑那州菲尼克斯建设一座300mm晶圆厂；今年3月英特尔透露将投资200亿美元在亚利桑那州新建两座晶圆厂；今年7月，格芯宣布将在其总部纽约州马耳他市附近建设第二座工厂，并将投资10亿美元提高产能；三星在美国的芯片制造工厂虽然还未正式敲定，但地点大概率会在德州、亚利桑那州和纽约州之一。
 
+美国拜登政府出面制止了Intel在中共国的扩产计划，说明西方和中共国的经济脱钩在加速，这些年很多外资企业纷纷撤离中共国，资本都嗅到了危机。而郭文贵先生更是看好格芯这样的公司完全不依赖中共国的生产布局，会在未来的很多不确定的经济和地缘政治危机中，脱颖而出。 中共目前的内斗和北朝鲜化的走向，以及随时发生的台湾危机，势必会让更多的外资以及国内企业家们纷纷逃离。
 
-该消息称，司法部长加兰上个月在国会证词期间特别受到抨击，他在那里否认针对学生父母对抗疫苗相关规定使用联邦调查局“国家机器”，“并使用 一份站不住脚的国家学校董事会协会的备忘录作为反驳理由。值得注意的是，备忘录和司法部都没有提供针对学校管理人员的所谓“威胁”的具体例子。”
+**[新闻来源](https://m.mydrivers.com/newsview/796222.html?ref=https%3A//www.google.com)**
 
-- ***延展阅读：***[***民主党人可能会后悔起诉班农***](https://thehill.com/homenews/the-memo/581859-the-memo-democrats-may-rue-pursuit-of-bannon?userid=924055)
-- ***延展阅读：***[***小罗伯特·肯尼迪称，COVID-19疫苗杀死的人数超过了所有疫苗***](https://www.redvoicemedia.com/2021/11/rfk-jr-drops-covid-vaccine-bomb-says-jab-is-killing-more-people-than-all-vaccines-combined/?utm_source=daily-email-breaking&amp;utm_medium=email)
-
-
-根据司法部的说法，该项任务是确定如何使用联邦反恐工具来“起诉违规的父母”，司法部还将向学校工作人员提供有关如何报告来自家长的威胁和保存证据以协助调查和起诉的培训。司法部针对全国各地都在抗议并愤怒的父母。联邦调查局与当地领导人坐立不住，并挤在一起，急于解决针对教师和学校董事会成员的 “恐吓和暴力威胁”事件激增的问题。
-
-2021年11月17日
-
-*校对：东京樱花团 / 文小白*
-*发布：东京樱花团 / 野猫*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
