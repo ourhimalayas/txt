@@ -2,32 +2,60 @@
 ---
 
 
-## 有声|纳瓦罗做客班农战斗室谈疫情与经济问题
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1670422/)
+## 继沃尔玛之后，克罗哥再陷加密货币骗局
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670450/)
 
-配音：香草山教育部 – 蒙古鸿雁
+作者：纽约香草山佛教部 – 文一
 
-纳瓦罗先生在11月13日参加班农战斗室节目时，再次说到郭文贵先生在去年1月就提醒过中共病毒来自武汉，并解析了中美第一阶段贸易协议签署前后的故事。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-纳瓦罗先生指出，2020年1月，班农先生、郭文贵先生就指出武毒所是病毒的元凶，而在班农战斗室改名为WAR ROOM PANDEMIC的2个月后，WHO才意识到这是疫情大流行。正是病毒让经济变得糟糕。而拜登政府将经济糟糕的责任推卸给了川普政府的第一阶段贸易协议以及关税。
 
-对此，纳瓦罗先生说，第一阶段贸易协议没有触及中共的根本罪行，原因在于华尔街的苏世民、基辛格坐在了谈判的中央席位，把白宫官员挤兑到了一边。纳瓦罗先生表示，这些帮助中共游说的人，不在乎新疆的器官掠夺、香港人遭受的灾难，他们只在乎钱。这些人应该因帮助敌国游说而被调查。
 
-最后，纳瓦罗先生警告，如果总统拜登把川普政府定下的关税拿掉，就是拿掉了支撑这个国家进口收入2/3以及能让美国制造业免于在中共手中崩盘的最后一道保护。
 
-文字版原文：[纳瓦罗做客班农战斗室谈疫情与经济问题](https://gnews.org/zh-hans/1665184/)
 
-音频处理：喜山必胜Maverick
+据《新闻极限》11月5日盖文消息报道：一份克罗格（Kroger）公司宣称将接受“比特币现钞”的声明出现在该公司投资者关系网站上，稍后即被删除。美联社也刊登了该声明，但旋即劝告读者应不予理会。上周五该公司证实此声明完全是欺诈，成为继沃尔玛之后第二个被卷入加密货币骗局的主要零售商。
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1436-1.jpg)©AP
+
+据悉，该报道所谓“比特币现金”是比特币基础软件代码的一个扩展，是由一小群在中共国的比特币矿工在2017年主导开发的。
+
+而沃尔玛公司也曾在9月份遭遇类似骗局。骗子说将有一种鲜为人知的加密货币—莱特币与沃尔玛公司合作，该消息致比特币在短时间内价格飙升。
+
+而在克罗哥声明“比特币现钞”是假消息之后，比特币价格略微下滑。
+
+可见，流通性对加密货币的重要程度日益为人所知，而相关骗局频发的根源是发行者的急功近利，还是情知不妙继而垂死挣扎，目前尚不得知。而反观一开始就构架于喜联储、以黄金锚定的喜美元、喜支付之上的喜币，正如郭文贵先生在大直播中所说的“无国界流通价值还远未显现”。“喜币、喜联储的明天，就是现实可感、触手可及的共同富裕、利益共享。”
+
+**参考阅读：**
+
+1. [https://gettr.com/post/pg51ee09cc](https://gettr.com/post/pg51ee09cc)
+2. [文贵大直播 11/03 喜币的铸币权、无国界流通价值还远未显现 – GNEWS](https://gnews.org/zh-hans/1637358/)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+**编辑：larking
+校对/发稿：小鹿**
+
+
+
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

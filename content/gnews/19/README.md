@@ -2,24 +2,25 @@
 ---
 
 
-## 有声|香草山翻译部周刊|2021年11月14日第22期
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1670474/)
+## 澳大利亚南澳将在本周末举行反对疫苗强制的大集会
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1670511/)
 
-配音：香草山教育部 – 蒙古鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/11/text-CN-2-1187x1536-1.png)
-文字版原文：[香草山翻译部周刊|2021年11月14日第22期](https://gnews.org/zh-hans/1663999/)
+By：喜国公民
+视频来自网络
+本周六，11月20日中午12点，在阿德莱德东街附近的兰德尔公园，将举行为自由、和平和权利的大集会。
 
-音频处理：喜山必胜Maverick
+澳洲政府目前在借鉴美国给儿童接种疫苗的经验。美国希望在圣诞节前为一百万儿童接种莫得纳疫苗。
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+集会组织者呼吁人们站出来，反对这些发生在澳洲的孩子身上。要为孩子们站出来。因为孩子没有发声渠道。要为他们发声，成为他们的代言人。他们不是被用来做实验的。
+
+不管你是谁，打过疫苗和没有打过疫苗的，每个人都应该走到一起，互相支持，为自由而游行。
+
+我们需要向政府表明，强制接种是不对的。我们要团结，为我们自己的权利而战，为我们自己的身体而战。这是我们的身体，最终我们要自己决定接种的是什么。
+
+(本文纯属个人观点，与Gnews无关)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

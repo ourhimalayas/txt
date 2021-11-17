@@ -2,28 +2,28 @@
 ---
 
 
-## 洪都拉斯总统突访台湾
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670629/)
+## 因制造美国之音“断播门”遭免职的阿曼达被提名出任新职位
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670659/)
 
-作者：澳喜农场 在远方
-
-
-
-
+作者：英国喜庄园-I770775 – Irene木木
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-4.jpg)
 
 
 
+11月12日下午，白宫宣布，计划提名前美国之音台长阿曼达担任美国全球媒体首席执行官。
 
+阿曼达曾于2016年3月至2020年6月担任美国之音台长，因2017年临时叫停原计划对爆料革命郭文贵先生的三个小时现场采访，制造了震惊世界的美国之音“断播门”，后来不得不在多方指责的压力下辞职。
 
-11月13日，洪都拉斯总统叶南德兹对台湾进行了访问，并拜会了蔡英文总统。 叶南德兹表示，这是他第四次访问台湾，在当前台海局势如此紧张的情况下，他代表洪都拉斯与台湾站在一起，此举是要向外界表达一个非常清楚及坚定的讯息，那就是“朋友之间，患难见真情”。
+当时，随同阿曼达一道被解职的还有美国之音涉及采访郭先生的几名普通话组的雇员，由此引发的关于新闻自由的讨论曾一度成为全球关注的焦点。
 
-据悉，洪都拉斯将于11月28日举行总统大选，而反对党扬言上台后要与台湾断交，因此此次访问颇受外界关注。有学者分析认为，就洪都拉斯总统大选的选情来看，执政党还不一定会输。并且反对党即使获胜上台后，也不见得真的会罔顾美国的意见和台湾断交。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-117.png)
-**参考链接：**
+新闻媒体本应该努力进行客观、基于事实的报道，阿曼达利用手中权力，屈从于中共“蓝金黄”力量的威胁，对爆料人郭文贵先生的采访做了选择性的叫停，显然已经失去了一个媒体人应有的基本职业素养。阿曼达此时被提名出任美国全球媒体首席执行官，不排除是中共海外渗透力量的再一次反扑。
 
-[https://www.voachinese.com/a/honduras-president-s-surprise-visit-to-taiwan-amid-worries-about-diplomatic-ties-20211114/6312765.html](https://www.voachinese.com/a/honduras-president-s-surprise-visit-to-taiwan-amid-worries-about-diplomatic-ties-20211114/6312765.html)
+但是，有爆料革命的真相传播，中共渗透世界、控制舆论的野心必将一次又一次宣告破产。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-9.png)
+参考链接：
+
+[https://www.voachinese.com/a/white-house-nominates-former-voa-director-to-usagm-ceo-20211112/6311676.html](https://www.voachinese.com/a/white-house-nominates-former-voa-director-to-usagm-ceo-20211112/6311676.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 
