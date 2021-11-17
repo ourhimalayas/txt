@@ -2,31 +2,27 @@
 ---
 
 
-## 海航重整计划落定，华安财险清偿所涉债务
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1670666/)
+## 众安6060
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1670756/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-11.jpg)海航重整计划落定，华安财险清偿所涉债务 网络图片
-据新浪新闻11月16日报道，华安财产保险股份有限公司（简称“华安财险”）16日就海航重整案发布公告。2021年10月31日，海南高院终审裁定批准《海南航空控股股份有限公司及其十家子公司重整计划》（简称《重整计划221》）及《海航集团有限公司等三百二十一家公司实质合并重整案重整计划》（简称《重整计划321》），并终止相关重整程序。
+![Image](https://pbs.twimg.com/media/FEXaJZOVQAYDD8M?format=jpg&amp;name=large)图一：图片来源网络![Image](https://pbs.twimg.com/media/FEXaKuqUUAE7bZL?format=png&amp;name=900x900)图二：图片来源网络![Image](https://pbs.twimg.com/media/FEXaMBpVUAQf78D?format=png&amp;name=900x900)图三：图片来源网络
+图一二：众安占股:蚂蚁、平安、腾讯、深圳加德信(欧亚非)分别为14% 10.56% 10.56% 9.86%。
 
-华安财险及其控股子公司扬子江保险经纪有限公司（简称“扬子江经纪”）所涉的46084万元债权需进行清偿。其中“221”包金额为3003万元，“321”包金额为43081万元，通过现金、股票、信托等方式清偿。
+图三：众安股价：2017年9月28日上市，最终发售价定为59.7元,目前-58% from IPO, -70% from top。市值416亿港币。
 
-虽然有方案，但海航的重整计划和清偿结果能否执行还不确定。在中共的魔幻体制下，国企海航可以神奇地变成私人企业，盈利归个人；然后，私人企业可以神奇地再次变成国企海航，债务归国家。这翻手为云覆手为雨的魔术只有中共国能玩得转，最后买单的还是被欺骗的老百姓。每一个中共国的老百姓都应该问问：海航到底是谁的海航？海航的钱到底去了哪里？中国人民不应该承担不属于自己的债务。
+众安在线财产保险股份有限公司（港交所：6060）简称众安保险，是中共首家和规模最大的互联网保险公司，2013年11月由蚂蚁金服、腾讯、中国平安等企业出资设立，总部设在上海.
 
-新闻参考链接：[https://finance.sina.cn/2021-11-16/detail-iktzscyy5933352.d.html?sinawapsharesource=newsapp](https://finance.sina.cn/2021-11-16/detail-iktzscyy5933352.d.html?sinawapsharesource=newsapp)
+众安保险大股东为蚂蚁金服、腾讯及中国平安，各持有超过一成股份，故众安保险又被称为“三马概念股”。软银为众安保险的唯一基石投资者，认购公开发行股份之36%。摩根大通、瑞士信贷、瑞银、招商银行担任其联席保荐人。软银去年减持，由71.9m 减至 26.2m 股，目前仍持有1.85%股权。
 
-* * *
+(本文仅代表作者个人观点)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+采编：文远Bruce
 
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

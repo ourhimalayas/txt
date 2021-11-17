@@ -2,12 +2,10 @@
 ---
 
 
-## 洪都拉斯总统突访台湾
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670629/)
+## 琵琶曲《战》：奏响灭共又一乐章
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670675/)
 
-作者：澳喜农场 在远方
-
-
+作者：英国喜庄园-I770775 – Irene木木
 
 
 
@@ -15,15 +13,15 @@
 
 
 
+11月16日，郭先生在盖特小视频里上传了由英喜庄园扎西卓玛战友作曲、演奏的原创灭共琵琶曲《战》，深受战友们喜爱。
 
+乐曲共分为六个乐章，描绘和模拟出爆料革命从2017年1月26日郭先生首次直播，到未来灭共后的相对完整的全过程，生动演绎了爆料革命一路走来的酸甜苦辣、艰苦艰辛、斗智斗勇、不卑不亢、决不放弃等不凡的战斗经历。
 
-11月13日，洪都拉斯总统叶南德兹对台湾进行了访问，并拜会了蔡英文总统。 叶南德兹表示，这是他第四次访问台湾，在当前台海局势如此紧张的情况下，他代表洪都拉斯与台湾站在一起，此举是要向外界表达一个非常清楚及坚定的讯息，那就是“朋友之间，患难见真情”。
+视频上传后，立刻引发战友们的强烈共鸣，无数战友留言： 一起见证 ，一起走过，一起哭一起笑；听得心潮澎湃，看得泪如雨下；七哥一路太不容易，战友们紧紧跟随永不放弃
 
-据悉，洪都拉斯将于11月28日举行总统大选，而反对党扬言上台后要与台湾断交，因此此次访问颇受外界关注。有学者分析认为，就洪都拉斯总统大选的选情来看，执政党还不一定会输。并且反对党即使获胜上台后，也不见得真的会罔顾美国的意见和台湾断交。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-117.png)
-**参考链接：**
+新闻链接：
 
-[https://www.voachinese.com/a/honduras-president-s-surprise-visit-to-taiwan-amid-worries-about-diplomatic-ties-20211114/6312765.html](https://www.voachinese.com/a/honduras-president-s-surprise-visit-to-taiwan-amid-worries-about-diplomatic-ties-20211114/6312765.html)
+[https://gettr.com/post/ph37jf717a](https://gettr.com/post/ph37jf717a)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 

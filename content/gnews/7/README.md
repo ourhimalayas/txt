@@ -2,45 +2,20 @@
 ---
 
 
-## 因制造美国之音“断播门”遭免职的阿曼达被提名出任新职位
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670659/)
+## 备战病毒“第六波”来袭，日本建立感染者快速联系机制
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1670747/)
 
-作者：英国喜庄园-I770775 – Irene木木
+撰稿：东京樱花团/文勝
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-344.png)[图片来源](https://udn.com/news/story/121707/5748143)
+读卖新闻11月16日报道，针对中共病毒感染扩大的“第六波”蔓延，日本政府呼吁地方政府必须“在判明阳性的第二天为止”要与居家疗养的人进行初步联系。之所以提出这种要求是因为在今年夏天的第五波疫情中，很多感染者在居家治疗中死亡。政府预计在未来一波的疫情中，将有多达18.3万人在家里接受治疗，人数是第五波的1.3倍。为避免这种情况再发，政府提出到第二天为止必须取得联系。为了实现这一目标，日本全国各地的保健所正在实施一系列改革，以确保在第二天之前联系上患者。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-4.jpg)
+为此日本东京都的杉并保健所制定了这样的规则—如果感染者家里一天一夜没有人接听电话，保健所的人将立即赶赴感染者家中查看患者的情况。根据医疗机构诊断为冠状病毒感染者的 “疫情报告”，公共卫生中心将联系每个感染者，检查他们的症状并决定治疗方案。
 
+信息来源：[自宅療養者の政府想定、今後最大１８万人超…自治体に「陽性判明翌日までに全員と連絡」求める](https://www.yomiuri.co.jp/national/20211116-OYT1T50195/)
 
-
-11月12日下午，白宫宣布，计划提名前美国之音台长阿曼达担任美国全球媒体首席执行官。
-
-阿曼达曾于2016年3月至2020年6月担任美国之音台长，因2017年临时叫停原计划对爆料革命郭文贵先生的三个小时现场采访，制造了震惊世界的美国之音“断播门”，后来不得不在多方指责的压力下辞职。
-
-当时，随同阿曼达一道被解职的还有美国之音涉及采访郭先生的几名普通话组的雇员，由此引发的关于新闻自由的讨论曾一度成为全球关注的焦点。
-
-新闻媒体本应该努力进行客观、基于事实的报道，阿曼达利用手中权力，屈从于中共“蓝金黄”力量的威胁，对爆料人郭文贵先生的采访做了选择性的叫停，显然已经失去了一个媒体人应有的基本职业素养。阿曼达此时被提名出任美国全球媒体首席执行官，不排除是中共海外渗透力量的再一次反扑。
-
-但是，有爆料革命的真相传播，中共渗透世界、控制舆论的野心必将一次又一次宣告破产。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-9.png)
-参考链接：
-
-[https://www.voachinese.com/a/white-house-nominates-former-voa-director-to-usagm-ceo-20211112/6311676.html](https://www.voachinese.com/a/white-house-nominates-former-voa-director-to-usagm-ceo-20211112/6311676.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

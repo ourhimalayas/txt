@@ -2,46 +2,22 @@
 ---
 
 
-## 拜习会晤结束，双方自说自话
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1670651/)
+## 俄克拉荷馬总检察长加入对疫苗强制令的诉讼
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1670734/)
 
-作者：英国喜庄园-I770775 – 文徬
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-27.png)
+图片来源： www.lapeople.com
+
+美联社11月16日俄克拉荷马市报道，俄克拉荷马州总检察长成为了12个州之一的针对拜登政府对健康工作人员的疫苗强制令向联邦提起上诉。
+
+州总检察长约翰·奥康纳周二说俄克拉荷马州护士本已缺乏，疫苗强制令更加重了这种情况。他说：“我不能忍受拜登政府对这些勇敢地战斗在疫情第一线的健康工作人员威胁撤消他们的工作。
+
+奥康纳同时也起诉了扬升健康公司让雇员执行强制疫苗令，说扬升健康公司违反了上周五州法官发出的限制疫苗强制令。他说他已经向该公司发出必须停止信，告诉该公司让那些被暂停工作或因寻求宗教原因豁免而遭解雇的雇员的工作。
+
+##### **新闻来源： **[Oklahoma AG joins lawsuit over health vaccine mandate](https://apnews.com/article/coronavirus-pandemic-business-health-lawsuits-tulsa-86749eca74e9c625184ae7b99596c0d4)
 
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-4.jpg)
-
-
-
-
-
-11月16日，美国总统拜登和中共党魁习近平，举行了第一次面对面的视频峰会，讨论了一系列意见分歧的领域，随后各自向外界释放不同信号。
-
-据报道，在近四小时的会谈中，拜登强调，美国将继续捍卫自己的利益和价值观，并与盟友一起确保一个自由、开放和公平的国际体系。
-
-会后，白宫发表声明表示：拜登总统对中共国在新疆、西藏和香港的做法，以及更广泛的人权问题表示关切。
-
-不过，中共官媒却依旧宣传”会晤是坦诚、深入、建设性和富有成效的”。 在会谈中，两人还谈到了台湾、气候等问题。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-7.jpeg)
-参考链接：
-
-[https://www.epochtimes.com/gb/21/11/16/n13378860.htm](https://www.epochtimes.com/gb/21/11/16/n13378860.htm)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

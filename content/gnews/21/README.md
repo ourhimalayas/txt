@@ -2,39 +2,33 @@
 ---
 
 
-## IBM称量子芯片可在两年内击败标准芯片
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1670569/)
+## 日本新冠病例的下降是由于伊维菌素吗？
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1670620/)
 
-据《路透社》作者：Stephen Nellis，2021年11月15日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-342-e1637112260319.png)2017年10月19日，在加拿大安大略省多伦多举行的SIBOS银行和金融会议上看到IBM的标志。REUTERS/CHRIS HELGREN
-11月15日《路透社》：**国际商业机器公司（IBM.N）周一表示，它已经设计出一种新的量子计算芯片。其高管认为，在未来两年内，量子系统将在某些任务上开始超越经典计算机。**
+作者：XO酱
 
-IBM表示，其“Eagle”计算芯片有127个所谓的“量子比特”，能以量子形式表示信息。古典计算机使用的“比特”必须是1或0，但量子比特可以同时是1和0。
+翻译：Rosa
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-301.png)图片来自：Halturner广播节目
+[原文链接：](https://gnews.org/1666152/)
 
-这一事实有朝一日可以使量子计算机比经典计算机快得多，但量子比特极难制造，需要巨大的低温冰箱才能正常运行。虽然苹果公司（AAPL.O）最新的M1 Max芯片有570亿个晶体管——这是比特的粗略代表。但IBM表示，其新的Eagle芯片是第一个拥有超过100个量子比特的芯片。
+在8月26日的新闻发布会上，东京医学会主席告诉日本的医生为新冠病毒患者开出伊维菌素，因为根据印度的经验，这种廉价的抗寄生虫药物似乎很有效。
 
-IBM表示，它在制造该芯片时学到的新技术（该芯片由其在纽约州的工厂制造），在与量子计算机的制冷和控制系统的其他进展相结合时，最终将产生更多的量子比特。该公司周一表示，它计划在2022年推出具有433个量子比特的“Osprey”芯片和具有1121个量子比特的“Condor”芯片。
+许多主流媒体对这一宣布大为不满。伊维菌素是获得2015年诺贝尔生理学和医学奖的药物，被贴上了 “马糊”、”马驱虫剂 “的标签 ，许多大众媒体称其对人类有高风险，尽管它被人类安全使用了几十年。
 
-该公司说，到那时，它将接近所谓的“量子优势”，即量子计算机可以击败经典计算机的时间点。
+新闻发布会举行了三个月，当时日本正在经历其历史上最高的病例数量，现在可能是时候评估日本在这一战略中的表现了。
 
-IBM高级副总裁、其研究部门负责人达里奥·吉尔说，**这并不意味着量子计算机将一下子超越经典计算机。相反，IBM所设想的是这样一个世界：计算应用的某些部分在传统芯片上运行，某些部分在量子芯片上运行，这取决于什么对每项任务最有效。**
+那么，日本的情况如何？
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-298.png)截图来自：https://www.worldometers.info/coronavirus/country/japan/
+除非这纯粹是时间上的巧合，否则在主席宣布后不久，每日Covid-19病例似乎迅速下降。
 
-吉尔说：“我们相信，我们将在未来几年内能够有实际价值的，达到量子优势的展示。这就是我们的追求。”
+自8月以来，每日新的Covid-19死亡人数也同样迅速下降。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-299.png)截图来自：https://www.worldometers.info/coronavirus/country/japan/
+奇怪的是，主流媒体对伊维菌素可能起作用的可能性完全不感兴趣，并认为需要对此进行更多研究。为什么？
 
-原文连接：[https://www.reuters.com/technology/ibm-says-quantum-chip-could-beat-standard-chips-two-years-2021-11-15/](https://www.reuters.com/technology/ibm-says-quantum-chip-could-beat-standard-chips-two-years-2021-11-15/)
+是否有一个阴谋正在发生，由某些有权势的人推波助澜，而他们不希望这个大流行病结束？
 
-翻译：洛杉矶盘古农场 — TrueSky
-
-校对：洛杉矶盘古农场 — Mike Li
-
-编辑：洛杉矶盘古农场 — 心照
-
-
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+（本文仅为个人观点，与GNEWS无关）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

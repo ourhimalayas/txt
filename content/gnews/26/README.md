@@ -2,31 +2,26 @@
 ---
 
 
-## 有声|喜马拉雅币一周分析
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1670522/)
+## 秘翻在线：又一名辉瑞疫苗的无辜受害者
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1670584/)
 
-配音：香草山教育部 – 蒙古鸿雁
+#### 撰稿翻译：Hakunamatata
 
-过去一周喜马拉雅币价格从约$19上涨至$30.120，一周内涨幅突破58%。喜马拉雅币上市以来交易量突破1500万枚 ，占今年总发行量仅约1.5%。目前大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。本周喜马拉雅交易所的提现功能已经上线，每日提现上限10万美元，最低提现1000美元，手续费千分之一，最低100美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/156asd4f864ery864548uy9465i56fgd5f.png)
 
-据郭文贵先生直播中透露，未来喜美元很快会开通有息存款，以HCN支付，利率会超过美国国债。战友们还可以用喜币进行抵押贷款，并将部分贷款金额存入喜美元获得利息收入。未来喜币的价值将会由三个标志性事件决定：权威投资机构对喜交所与喜支付的投资、国家级批准的虚拟货币银行牌照以及最终被主权国家承认为国家的法定货币。目前已经有1000多家金融机构在喜交所开户。喜币已获得美国和澳大利亚支付牌照，未来可能会获得近70个国家的支付和交易牌照。另外喜支付的业务与生态系统也在全球推进，拓展喜支付全球业务的战友将终身享受提成奖励。
+在一个名为《不再沉默》的网站上，读者又再发现了一个中共病毒疫苗所造成的伤害，一位单亲母亲因注射的辉瑞疫苗，夺走了她正常生活的能力。
 
-另外，本周11月9日 – 中共央行易纲周二在芬兰央行新兴经济体研究院成立30周年纪念活动上发表视频演讲，介绍了数字人民币研发的进展情况。根据易纲的讲话，数字人民币不计付利息，并被中共政府和央行实行严格的中心化管控，各方面的设计和用户体验都远远落后于喜币。
+症状：严重不良反应心包炎，33岁
 
-文字版原文：[喜马拉雅币一周分析](https://gnews.org/zh-hans/1665499/)
+我叫安博（Amber），是两个孩子的单亲妈妈。
 
-音频处理：喜山必胜Maverick
+2021年10月24日，我去注射了第二针辉瑞疫苗。第二天下午6点，我因为严重的胸痛住进了医院。经过大量的检查和血检，我又在医院住了三天，结果发现我得了心包炎，原因是辉瑞疫苗!
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+我现在已经吃药几个月了，失业了三周。今天我又回去工作了，因为我联系政府领取疾病津贴，但被告知我不符合该津贴或任何其他津贴的标准。在我病休期间，医生给我写了一份说明，清楚的说明了我为什么休假，我的病因是如何来的? 时间快进到今天11月11日，我再次尝试回去工作，依然感觉到非常的痛苦。我打电话给我的医生，他们说我的情况是不应该复工的。
 
+谁能告诉我，公平何在？在接种疫苗之前我很健康，但现在因为疫苗我不能工作了，我是两个孩子的单亲妈妈，没有钱支付账单和一切开支，政府也帮不上忙，即使我现在的状况是由辉瑞疫苗引起的！！！
+
+原文链接： [**Amber Ann Thompson – Pfizer 24th October 2021**](https://apac01.safelinks.protection.outlook.com/?url=https%3A%2F%2Fnomoresilence.world%2Fpfizer-biontech%2Famber-ann-thompson-pfizer-severe-adverse-reaction%2F&amp;data=04%7C01%7C%7C8e57f100c0ed44b26e4608d9a9577d89%7C84df9e7fe9f640afb435aaaaaaaaaaaa%7C1%7C0%7C637727015501773955%7CUnknown%7CTWFpbGZsb3d8eyJWIjoiMC4wLjAwMDAiLCJQIjoiV2luMzIiLCJBTiI6Ik1haWwiLCJXVCI6Mn0%3D%7C3000&amp;sdata=DvWBd3yqUH7UNvQlXFPajH488X09Ma4Fi13Om5uWfNo%3D&amp;reserved=0)
 
  
 
