@@ -2,24 +2,30 @@
 ---
 
 
-## 加拿大多数人认为未接种的医疗工作者应被解雇
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1670443/)
+## 有声|英喜庄园：班农事件会让班农先生更伟大
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1670454/)
 
-编译撰稿：硫酸羟氯喹64
+配音：香草山教育部 – 蒙古鸿雁
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/a-10-edited.jpg)图片来源：TH
+11月13日，英国伦敦喜庄园GTV-UK-1号台凌晨紧急直播， 分析“为何抓捕班农先生会让其更伟大”。紧急直播主要针对美国司法部以藐视国会罪对班农先生的起诉。
 
+嘉宾在直播中分析：众议院特别委员会确实于9月23日向美国前总统特朗普的盟友班农等四人发出传票，要求提供1月6日国会山事件的相关文件。班农先生拒绝遵守，理由是特朗普总统曾经给予自己特赦权。而曾是川普总统首席战略师和顾问的班农先生，已在2017年离开白宫。
 
-据加拿大法语媒体《魁北克新闻》11月16日报道，知名调研机构【安格斯-里德研究所】日前公布的一项民意调查结果发现，大约70%的该国公众支持解雇拒绝接种“新冠病毒”疫苗的医疗卫生和教育工作者。
+藐视国会罪很少用在非在任官员身上，当下的班农先生只是个平民。嘉宾认为：给班农先生强加罪名，是因为班农作战室一向以灭共为己任，近期采访新中国联邦英喜农场战友，关于喜联储的上市和喜币持续涨幅趋势对世界影响的报导，对共产党的伤害太大。同时班农先生对拜登政府的持续批评，以及组织小企业主起诉拜登疫苗强制令的行为，也是对美国现任政府的伤害。而拜登政府和中共的勾兑更使班农先生成为被攻击的头号对象。但随着真相的最终揭示，这些经历将使班农先生的形象更加伟大。
 
-报道详细指出，魁北克省是最不愿意惩罚拒绝接种员工的省份之一。在卑诗省，76%的受访者认为未接种该疫苗的医护人员应被解雇。而在魁省，该数字下降到65%。
+文字版原文：[英喜庄园：班农事件会让班农先生更伟大](https://gnews.org/zh-hans/1664745/)
 
-调查还显示，相比那些未接种该疫苗的人，已接种者对感染“新冠病毒”的恐惧要高得多。55%的已接种者称他们很害怕被该病毒感染，而82%的未接种者则对此表示并不担心。
+音频处理：喜山必胜Maverick
 
-关于对其他国家的医疗援助方面，加拿大人在“希望向低收入国家提供疫苗”和“只专注于在国内根除该疾病”之间存在较大分歧。而魁北克是唯一一个大多数人（52%受访者）希望关注贫穷国家疫情的省份。
-
-[原文链接：](https://www.journaldequebec.com/2021/11/15/une-majorite-de-canadiens-croient-que-les-travailleurs-de-la-sante-et-de-leducation-non-vaccines-doivent-etre-licencies)
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
