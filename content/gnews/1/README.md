@@ -2,22 +2,50 @@
 ---
 
 
-## 秘翻在线：辉瑞、BioNTech和莫德纳每秒赚1000美元
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671570/)
+## 辉瑞、生物科技、莫德纳每秒赚一千美元利润
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1671575/)
 
-#### 翻译撰稿：zzballack
+**翻译：Lulumi**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/jklsdajfio90i90435ktgopkospdakflds.png)图片来源：商业内幕
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip11-1.png)Credit: Unsplash/CC0 Public Domain
 
-据英国《每日邮报》（Daily Mail）11月16日报道，非盈利组织“人民疫苗联盟（The People’s Vaccine Alliance，PVA）”根据辉瑞、BioNTech和莫德纳这三家制药公司的财报数据估算，它们今年税前获利总计340亿美元，换算后相当于每秒赚1000多美元、每分钟6万5000美元或每天9350万美元。
+根据一项最新的分析，辉瑞（Pfizer）、生物科技（BioNTech）和莫德纳（Moderna）从其非常成功的COVID-19疫苗中每分钟能赚取6.5万美元利润，而世界上最贫穷的国家仍然基本上没有接种疫苗。
 
-PVA旗下成员非洲联盟（African Alliance）的通讯主管谢云（Maaza Seyoum）说：“少数几家公司每小时获利数百万美元，而低收入国家只有2%的人全面接种了新冠疫苗，这实在是令人厌恶。”
+人民疫苗联盟（PVA）说，这些公司将其绝大部分疫苗卖给了富国，让低收入国家陷入困境。
 
-PVA指出，辉瑞、BioNTech和莫德纳利用其垄断地位，优先考虑与富有政府签订最有利可图的合同，却对穷国不闻不问。辉瑞和BioNTech已运交给低收入国家的新冠疫苗不到其总供应量的1%，莫德纳也只有0.2%。这三家公司负责生产和销售全球最常用的两种新冠疫苗，在疫苗的研发阶段总共获得了80亿美元的公共资金。辉瑞的首席执行官艾伯乐 (Albert Bourla) 一直坚定反对放弃疫苗的知识产权或专利权，甚至称技术移转是危险想法。强生（Johnson & Johnson）和阿斯利康（AstraZeneca）则以非营利为原则提供另外两种常用新冠疫苗。
+该联盟估计，这三家公司今年的税前利润将达到340亿美元，这相当于每秒钟1000多美元，每分钟6.5万美元，或每天9350万美元。
 
-这些疫苗厂商作为大重启势力的打手，沾满了无数无辜人的血。它们不仅要将其所赚的脏钱赔偿新冠疫苗的受害者，还得接受纽伦堡大审判似的严惩。
+非洲联盟和非洲人民疫苗联盟的马扎·塞尤姆说：“仅仅几家公司每小时就能赚取数百万美元的利润，而低收入国家只有2%的人全面接种了冠状病毒疫苗，这实在是令人发指。”
 
-新闻来源：[**‘It is obscene’: Pfizer, BioNTech and Moderna are making combined profits of more than $1,000 every second as Covid vaccine developers prioritize contracts with rich countries instead of developing nations, analysis finds**](https://www.dailymail.co.uk/health/article-10208889/Pfizer-BioNTech-Moderna-making-combined-profits-1-000-second.html)
+辉瑞公司、生物科技公司和莫德纳公司利用其垄断地位，优先考虑与最富有的政府签订最有利可图的合同，将低收入国家排除在外。
+
+PVA说，辉瑞公司和生物科技公司向低收入国家提供了不到其总供应量的百分之一，而莫德纳公司只提供了0.2%。
+
+目前，低收入国家98%的人还没有完全接种疫苗。
+
+这三家公司的行为与阿斯利康和强生公司形成了鲜明对比，后者以非营利的方式提供疫苗，尽管这两家公司已经宣布，随着中共病毒大流行的结束，他们预计今后将结束这种安排。
+
+PVA说，尽管收到了超过80亿美元的公共资金，但辉瑞、生物科技和莫德纳拒绝了通过世界卫生组织向中低收入国家的生产商转让疫苗技术的呼吁：“此举可以增加全球供应，降低价格，拯救数百万人的生命。”
+
+该组织说：“就莫德纳而言，尽管白宫明确施压，世卫组织也要求该公司合作并帮助加快其复制莫德纳疫苗的计划，以便在其南非的mRNA中心进行更广泛的生产。”
+
+PVA补充说，虽然辉瑞公司首席执行官阿尔伯特·布拉将技术转让斥为“危险的废话”，但世卫组织本月早些时候对印度开发的Covaxin疫苗给予紧急使用批准的决定证明，发展中国家有能力和专业知识。
+
+PVA的80个成员包括非洲联盟、立即行动全球正义组织、乐施会和联合国艾滋病规划署，它呼吁制药公司同意世界贸易组织与贸易有关的知识产权协议的拟议豁免，从而立即暂停中共病毒疫苗的知识产权。
+
+包括美国在内的100多个国家支持这一举措，但它受到了包括英国和德国在内的富裕国家的阻挠。
+
+**评论：疫苗公司赚的每一分钱都是带血的，未来疫苗灾难爆发的时候，这些没有疫苗可打的低收入国家反而因祸得福。**
+
+**新闻来源**：[medicalxpress.com][Pfizer, BioNTech, Moderna making $1,000 profit every second: analysis](https://medicalxpress.com/news/2021-11-pfizer-biontech-moderna-profit-analysis.html)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
 
  
 

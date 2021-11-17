@@ -2,22 +2,18 @@
 ---
 
 
-## 英首相约翰逊：英国人需要接种第三针新冠疫苗才被算作完全接种
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671421/)
+## 欧盟 9 月份超额死亡率上升至 + 12%
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1671427/)
 
-#### 翻译/撰稿：zzballack
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11171.jpg)图片来自sky news
+11 月 16 日 – 欧盟的超额死亡率重新上升。欧盟统计局报告称，在 7 月份达到 + 5% 之后，超额死亡率在 8 月份上升至 + 8%，在 9 月份上升至 + 12%。虽然没有证据表明所有超额死亡都归因于新冠病毒，但随着大流行的进行，数据可以清楚地表明这种趋势。大多数欧盟成员国的情况都在逐渐恶化：9 月份的超额死亡率从保加利亚的 + 50% 到比利时、瑞典和匈牙利的 + 4% 不等。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-2-1.jpg)图片来源：雅虎新闻
-据《零对冲》（Zerohedge）11月17日报道，英国首相鲍里斯·约翰逊（Boris Johnson）11月15日在新闻发布会上说，“完全接种疫苗”的概念需要调整，人们需要在原有的两剂新冠疫苗基础上再打加强针，才能被算作“完全接种”。
+从去年 4 月开始，意大利一直低于欧盟平均水平：9 月份为 + 6.4%。欧盟的超额死亡率峰值出现在 2020 年 4 月（+ 20%），然后在 2020 年 11 月再次出现（+ 40%；当月在意大利为+ 51.6%）。2020 年 3 月，当由SARS-CoV-2 引起的疾病全面袭击意大利北部时，意大利的超额死亡率为+ 49.6%，几乎是欧盟平均水平（+ 13.7%）的三倍。
 
-约翰逊说：“由于两针疫苗的作用开始减弱，所以我们必须负责任，必须对衡量如何构成完全接种这一事实做出反应。政府将制定计划，除了国民医疗服务体系（NHS）颁发的数字疫苗护照，还要增加加强针。”
+原文链接：[https://www.today.it/partner/adnkronos/salute/covid-eurostat-mortalita-in-eccesso-ue-sale-a-12-in-settembre.html](https://www.today.it/partner/adnkronos/salute/covid-eurostat-mortalita-in-eccesso-ue-sale-a-12-in-settembre.html)
 
-11月15日早些时候，英国政府接受了疫苗接种和免疫联合委员会（JCVI）的建议，将加强针计划的范围扩大到40至49岁人群。
-
-记得郭先生在直播中说过，约翰逊的母亲因新冠疫苗而死。不知道在如此背景下，以约翰逊为首的英政府是因为真相信疫苗和加强针能增加对人体的保护，或者只是幕后全球黑势力操控的傀儡，才大力推广疫苗护照和加强针。多方事实证明，加强针只会加速人的死亡。全球百姓到了生死存亡的边缘，除了团结反抗，别无他法。
-
-新闻来源：[Brits Will Need 3 Jabs To Be Considered “Fully Vaccinated”: UK PM Johnson](https://www.zerohedge.com/political/brits-will-need-3-jabs-be-considered-fully-vaccinated-uk-pm-johnson)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 
