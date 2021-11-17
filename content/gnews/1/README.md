@@ -2,30 +2,13 @@
 ---
 
 
-## 有声|新中国联邦战友真正拥有G系列
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1670563/)
+## 岸田文雄与马克龙通话，认同两国军事合作取得飞跃发展
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1670595/)
 
-配音：香草山教育部 – 蒙古鸿雁
-
-11月12日，郭文贵先生在大直播中说，新中国联邦人的投资涵盖了整个G系列，成为真正的主人。而不会像某社交媒体，把最初80%的小股东排挤出去。那些小股东承担了高风险，但被资本运作后，却失去了获得巨额回报的机会。
-
-郭先生说，战友在G系列的占比，分别是，喜联储占60%，盖特占90%，GTV占 99%，GCLUB 占90%，G-Fashion 占50% 并掌管客服的维护运行。此外，战友掌握10亿个喜币中的6亿个，所有战友还拥有喜联储 5% 以及盖特5% 的份额。
-
-郭先生表示，在人类面临新秩序重建的时刻，新中国联邦走在最前沿，G系列已经把新中国联邦人集结在一起。
-
-文字版原文：[新中国联邦战友真正拥有G系列](https://gnews.org/zh-hans/1662979/)
-
-音频处理：喜山必胜Maverick
-
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11._17-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
