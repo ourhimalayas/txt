@@ -2,32 +2,50 @@
 ---
 
 
-## 拜登政府或已决定外交抵制北京冬奥会 正待择时宣布
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671441/)
+## FBI利用反恐部门给学生的父母添加了“恐怖分子标签”
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1671495/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-76.png)
-（图片来自法新社）
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-距离2022北京冬季奥运会开幕只有不到三个月的时间，拜登政府至今还未宣布是否会抵制本届冬奥会。不过，据消息人士透露，拜登政府目前或已决定外交抵制北京冬奥会，正待择时宣布。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-370.png)图片来源 ：dailymail.co.uk
 
-据《美国之音》11月17日报道，北京冬季奥运会开幕的时间越来越临近，在美国，要求拜登政府决定抵制这次冬奥会的压力越来越大。有消息人士称，由于美中首脑峰会已经结束，拜登政府预计会很快宣布这项决定。据信，这项决定既会在某种程度上满足中（共）国人权状况批评者们的要求，又不至于牺牲美国体育健将们展现竞技的机会。
+FBI利用反恐部门给学生的父母添加了“恐怖分子标签”
 
-在美国总统拜登与中共国国家主席习近平星期一结束首次视讯峰会的几个小时后，参议院共和党议员罗姆尼（Mitt Romney）发推文称：“尽管中共对维吾尔族人实施种族灭绝，中（共）国仍得以主办奥运会，这是不能让人接受的。我一直主张对北京奥运会实行外交抵制。我对行政当局将对中共发出强烈信息的同时又不惩罚美国运动员抱有希望。”
+众议院共和党人获得的爆料文件显示，联邦调查局（FBI）利用反恐部门（counterterrorism unit）为向学校董事会提出，对批判种族理论(CRT)有担忧的家长加上“威胁标签”（反共产主义将被视为恐怖分子）。
 
-罗姆尼曾是2002年美国盐湖城冬季奥运会组委会的执行长。他今年三月在《纽约时报》发表评论，主张美国对北京冬奥会实施经济和外交抵制。他当时说：“在专制国家，主办奥运会常常被作为宣传工具，而不是用来推进改革。”
+这与梅里克·加兰10月份在国会宣誓的证词相矛盾。其证词表示，司法部及其部门没有利用反恐法规和资源来针对，在学校董事会会议上抗议的家长；美国司法部长梅里克·加兰（Merrick Garland）应该辞职。
 
-《华盛顿邮报》专栏作家乔什·罗金（Josh Rogin）也在当天发表的一篇文章中，援引多名官员的话称：拜登政府预计会在月底前宣布总统或任何美国政府官员都不会出席明年2月在北京举行的冬季奥运会，以此作为对中（共）国政府践踏人权的回应，而同时又不剥夺美国选手参赛的机会。
+吹哨人提供了一封日期为10月20日的联邦调查局电子邮件—也就是加兰在国会作证的前一天—该电子邮件是作为“代表”联邦调查局反恐司助理司长和刑事司助理司长发送出去的。
 
-拜登政府目前还没有对有关很快宣布外交抵制北京冬奥会的报道和评论做出反应。白宫国家安全委员会的一位资深官员在美中首脑会议结束后对媒体表示，两位元首在三个半小时的会晤中并没有讨论北京冬季会议题。
+众议院共和党人在一封信中提到吹哨人提供的电子邮件时说：“该电子邮件指示联邦调查局人员对所有’专门针对学校董事会管理人员、董事会成员、教师和工作人员的威胁进行调查和评估’”。
 
-分析人士认为，拜登政府之前一直未就是否抵制北京冬奥会做出宣布，除了考虑对美中首脑会议的影响之外，另一个因素是考虑到与盟友及伙伴国之间的协调，避免美国的决定与这些国家差别太大。
+“这是确凿的证据，”克里斯托弗·鲁弗（[Christopher Ruffo](https://twitter.com/realchrisrufo/status/1460705961618726912?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1460705961618726912%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https://www.thegatewaypundit.com/2021/11/breaking-house-republicans-obtain-whistleblower-docs-showing-fbi-used-counterterrorism-unit-add-threat-tags-parents-contradicting-garlands-sworn-testimony/)如下两张推特截图）说。”司法部长加兰没有提供任何证据证明学生的父母正在从事可信的威胁或暴力行为。然而，他却动员联邦调查局的反恐部门使用反恐工具来调查、追踪和标记父母。”
 
-而在今年7月，欧洲议会通过了一项不具约束力的决议，督促欧盟及各成员国官员不要前往中共国参加北京冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-372.png)
 
-美国国务卿布林上星期三（2021年11月10日）在《纽约时报》主办的一次对话会上表示，美国还没有决定是否派运动员参加明年2月在北京举行的冬季奥运会。但政府正在与其他国家和伙伴积极磋商，并在适当时候做出宣布。
+这些爆料的文件直接与梅里克·加兰的宣誓证词相矛盾，也就是说梅里克·加兰在国会宣誓后被证实是撒谎（如下[推特](https://twitter.com/approject/status/1460714668935327748?s=20)截图）。
 
-**新闻链接：**[https://twitter.com/VOAChinese/status/1460848060720816128](https://twitter.com/VOAChinese/status/1460848060720816128)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-377.png)
+
+**简评：**
+
+**一则来自《[零对冲](https://www.zerohedge.com/political/fbi-whistleblower-reveals-biden-doj-activated-counterterrorism-division-against)》的相关报道。**
+
+**加兰在10月国会作证时受到了抨击，在那里他否认将联邦调查局“[武器化](https://www.zerohedge.com/political/thank-god-youre-not-supreme-court-tom-cotton-eviscerates-garland-over-doj-memo)”以对抗反对批判种族理论和疫苗相关规定的父母——仅仅使用全国学校董事会协会（NSBA）的一份站不住脚的备忘录作为理由。值得注意的是，该备忘录和司法部都没有提供所谓“威胁”学校管理人员的具体例子。**
+
+**争议始于10月4日，当时加兰宣布将集中力量打击学生的家长对学校工作人员的”任何暴力威胁、恐吓和骚扰”。几天前，全国学校董事会协会（NSBA）要求拜登政府采取”非常措施”，以防止据称学生家长对学校工作人员的威胁，该协会说这些威胁来自反对口罩强制令和反对批判性种族理论教学的家长。**
+
+**司法部长梅里克·加兰 (Merrick Garland) 的女儿是丽贝卡·加兰( Rebecca Garland)。2018 年，丽贝卡·加兰 (Rebecca Garland) 与Xan Tanner [[链接](https://www.nytimes.com/2018/06/17/fashion/weddings/rebecca-garland-xan-tanner.html)]结婚。Xan Tanner 先生是一家颇受争议的教育服务公司 Panorama Education 的现任联合创始人。[[链接](https://www.panoramaed.com/about)和[链接](https://www.panoramaed.com/social-emotional-learning-sel)] Panorama Education 是“*[社会学习](https://www.panoramaed.com/social-emotional-learning-sel)*”资源材料的提供者，提供给教授批判种族理论（社会共产主义）的学区和教师。也就是存在利益冲突。**
+
+**另外，《[布莱巴特](https://www.breitbart.com/education/2021/11/16/house-republicans-reveal-whistleblower-documents-exposing-fbi-use-of-counterterrorism-tactics-against-parents/)》的报道表示，家长捍卫教育 (PDE) 通过公共记录请求[获得的](https://www.breitbart.com/politics/2021/10/21/emails-reveal-nsba-top-officers-worked-white-house-letter-targeting-parents-domestic-terrorists/)电子邮件显示，NSBA 的总裁和执行董事过去几周一直与拜登白宫工作人员进行谈判（各州的学生家长通过网络平台共同预谋反对共产主义的恐怖暴力行动）。然而，如果假设你在作证时知道联邦调查局的行动，那么这个证据表明是你故意误导（需要额外的解释）委员会关于 FBI 使用联邦反恐工具在学校董事会会议上，针对有关家长的性质和程度。**
+
+新闻来源：[thegatewaypundit.com][BREAKING: House Republicans Obtain WhistleblowerDocs Showing FBI Used Counterterrorism Unit to Add “Threat Tags” to Parents – Contradicting Garland’s Sworn Testimony |](https://www.dailymail.co.uk/news/article-10209781/House-Republicans-release-whistleblower-email-showing-FBI-threat-tags-school-related.html) 发布时间：2021年11月16日
+
+* * *
+
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
+
 
  
 

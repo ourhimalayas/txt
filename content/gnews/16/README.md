@@ -2,40 +2,20 @@
 ---
 
 
-## NIH起诉Moderna，揭示大药厂如何用纳税人的钱致富
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1671473/)
+## 许家印变卖资产维持运营
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1671549/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**整理：朝花夕拾**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/share-the-moderna-recipe-banner-FINAL-9-1500x751-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/许家印.png)
 
+财联社11月16日电：据接近恒大的资本圈知情人士消息，从7月1日至今，为了维持集团流动性，许家印已透过变卖个人资产或质押股权等方式筹集资金，累计已向集团注入超70亿现金，维持庞大的恒大帝国的基本运营。在此期间，恒大没有融资、销售停摆，但要保证财富每月10%的兑付、总部员工发薪、境内外债券付息，推动全国各地项目复工复产。（第一财经）
 
- 
-图片来源：www.citizen.org
+文贵先生在11月14日的直播中说不出两周时间，恒大一定会破产，不知道恒大到底最终能撑多久，让我们拭目以待，恒大最后的落幕。
 
+*发布：热锅小蚂蚁*
 
-#### 编译：小红帽
-
-美国国立卫生研究院（NIH）正在起诉莫德纳（Moderna）公司，要求其拥有中共病毒（COVID-19）疫苗的部分专利。
-
-美国国立卫生研究院院长弗朗西斯-柯林斯（Francis Collins）表示，他理应从版税中分得一杯羹，因为他的机构在开发该疫苗方面发挥了“重要作用”。
-
-莫德纳中共病毒疫苗是一种高利润的药品，因为它在整个地球上被强制使用。
-
-柯林斯现在向媒体抱怨，他应该如何从数十亿美元中分得一杯羹，因为他用美国纳税人的钱来帮助开发这些疫苗。
-
-莫德纳预计在2021年将从强制接种中共病毒疫苗获得高达180亿美元的收入，该疫苗采用有毒的、改变基因的信使RNA（mRNA）技术制成。在2022年，这一数字预计将飙升至220亿美元。
-
-莫德纳想把所有的钱据为己有，所以柯林斯正在浪费更多的美国纳税人的钱，试图起诉该公司，以获得他认为应得的那份。
-
-与此同时，世界各地的人，包括年幼的孩子，正因莫德纳的致命疫苗而受伤和死亡。而他们现在都无能为力，因为莫德纳公司对其产品造成的损害不承担任何责任。
-
-**参考新闻：**[NIH claims co-ownership of Moderna COVID vaccine patent, demonstrating how taxpayer money is used to develop therapeutics that make drug companies wealthy – NaturalNews.com](https://www.naturalnews.com/2021-11-16-nih-co-owns-moderna-covid-vaccine-patent.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)

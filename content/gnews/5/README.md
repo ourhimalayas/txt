@@ -2,49 +2,26 @@
 ---
 
 
-## Facebook因对儿童造成伤害遭俄州起诉
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1671583/)
+## 日本著名棒球选手大谷翔平成为美虚拟货币公司FTX的广告形象大使
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1671648/)
 
-**翻译：Lulumi**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip13-1.png)2018年4月10日，Facebook创始人兼CEO马克·扎克伯格在华盛顿举行的参议院司法和商业委员会联合听证会上作证。(Samira Bouaou/大纪元时报)
-俄亥俄州总检察长周一对Meta公司（前身为Facebook）提起诉讼，指控其违反联邦证券法，误导投资者，声称其产品不会损害儿童的健康和福祉。
+作者：东京樱花团丨定于二尊
+![](https://lh4.googleusercontent.com/4HCJgVgoJ3fh_rH_p5UbABiHzJNXKn1UBgnFE6lva-cY1In44Z14IbWEuy_Zo5dr2gR5nLle-wBjTJ4jTm_4RXm9xq0I1q_BfpkhjKqjH4P3jEdosII2YJCFv6PG99hoUvI9SipN)[*图片来源*](https://storage.googleapis.com/image.blocktempo.com/2021/11/39571222595_e95af97fc6_o-scaled.jpg)
+11月17日（日本时间）据共[同通讯社纽约分社](https://news.yahoo.co.jp/articles/1afbcb455de193a5b84421a4f04655b185c5a21a)报道，美国棒球大联赛著名日本球员大谷翔平，当地时间16日与美国虚拟币交易所公司FTX签署了为期两年的合同，担当该公司的“全球大使”。其目的在于利用大谷翔平选手来提升企业的品牌知名度和虚拟币的推广。大谷选手的广告报酬为8亿9千万日元（约合4960万美金）。据报道，其报酬全部用虚拟币和股票支付。
 
-总检察长戴夫·约斯特代表该州的养老基金——俄亥俄州公共雇员退休系统（OPERS）——和Facebook的投资者提起诉讼。
+据报道，大谷翔平将以FTX公司的全球大使的形象，参与该公司今后开展的保护动物等一系列的慈善活动。
 
-该诉讼指控Facebook违反了联邦证券法，“故意利用”儿童谋取利益，同时“故意误导公众”，称其产品不会伤害儿童，并称该公司已采取措施阻止错误信息和有害内容的传播。
+根据[科技新报](https://technews.tw/2021/11/17/mlb-superstar-shohei-ohtani-ftx/)资料，大谷翔平目前效力于洛杉矶天使队，是职棒中相当罕见的投打双栖的「二刀流」选手，作为投手，目前球速最快高达165 公里，创下日职官方本土球员纪录；身为打者，则多次轰出全垒打，一度暂居全垒打王宝座，在今年赛季表现极为亮眼，引起外媒关注。
 
-约斯特在一份声明中说：“Facebook说它在为我们的孩子着想，并清除网上的巨魔，但实际上是为了利润而制造痛苦和分裂。对马克·扎克伯格来说，我们不是人，我们是产品，出于他们的贪婪，我们被用来对付对方。”
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip12-3.png)2018年11月6日，戴夫·约斯特在俄亥俄州的哥伦布市。(Justin Merriman/Getty Images）
-俄亥俄州戴夫·约斯特
+FTX 创办人Sam Bankman-Fried（SBF）本身也是一位传奇人物，29 岁就已经晋升为亿万富翁，《富比士》预估其净资产为265 亿美元。他于2019年成立加密货币交易所FTX，目前FTX 是世界第三大加密货币交易所，仅次于Binance 和OKEx。
 
-Meta公司的一位发言人对新闻媒体说：“这起诉讼没有法律依据，我们将为自己大力辩护。”
-
-约斯特在诉状中说，Facebook前员工弗朗西斯·豪根在10月分享了该公司的一系列内部文件，这些文件显示，该公司知道其平台“为异议、非法活动和暴力极端主义提供便利，并对用户，尤其是儿童造成重大伤害”，但仍拒绝纠正这些问题。
-
-诉状还引用了《华尔街日报》9月发表的一系列公司文件。其中有文件显示，Facebook没有将其内部研究告诉公众。这些研究一再发现Instagram用户，主要是青少年女孩，受到负面影响，包括身体形象问题的恶化，焦虑和抑郁。
-
-扎克伯格10月25日说，提供给《华尔街日报》和其他新闻机构的泄露文件对研究结果进行了虚假描述，其产品也给用户带来了好处。
-
-诉讼称，扎克伯格和其他公司官员故意在其平台的安全、安保和隐私方面撒谎。
-
-脸书在这些内部文件中曾承认，“我们实际上并没有像我们公开说的那样做，”约斯特的办公室在一份新闻稿中指出。
-
-根据投诉，这些披露导致Facebook的股票贬值到每股54.08美元，使Facebook的投资者在大约一个月内损失超过1000亿美元。
-
-约斯特的诉讼是为了挽回股东价值的损失，并要求Facebook改变其做法，以确保它不会再误导公众的内部做法。
-
-**新闻来源**：[**theepochtimes.com**][Ohio AG Sues Facebook for Violations of Securities Law Amid Allegations of Harm to Children](https://www.theepochtimes.com/ohio-ag-sues-facebook-for-violations-of-securities-law-amid-allegations-of-harm-to-children_4106151.html)
-
-* * *
-
-***审核：文乐
-校对：信心满满
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+- ***延展阅读：***[***FTX虚拟货币交易***](https://kasobu.com/articles/ftx-application)
+- ***延展阅读：***[***FTX彻底解说***](https://www.fisco.co.jp/media/crypto/ftt-about/)
 
 
-
+*校对：东京樱花团 / 東洋武士
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

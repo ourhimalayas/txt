@@ -2,20 +2,22 @@
 ---
 
 
-## 秘翻在线：有提供完全接种证明才能参加时代广场的跨年夜活动
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671489/)
+## 秘翻在线：辉瑞、BioNTech和莫德纳每秒赚1000美元
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671570/)
 
-#### 翻译/撰稿：zzballack
+#### 翻译撰稿：zzballack
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-366.png)图片来源：纽约时报
-据《网关专家》（Gateway Pundit）11月16日报道，纽约市市长白思豪（Bill de Blasio）在11月16日的新闻发布会上宣布，纽约时代广场的跨年夜活动将允许人们到现场庆祝，但前提是他们能提供疫苗接种证明。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/jklsdajfio90i90435ktgopkospdakflds.png)图片来源：商业内幕
 
-白思豪说：“水晶球等所有环节都将重新回来，欢迎数十万人前来参加跨年夜活动，但每个人都需要接种新冠疫苗。”NBC报道说：“任何符合活动参加条件的狂欢者，即5岁以上的人都需要携带疫苗的完全接种证明和一个有效的带照片身份证。除此之外，今年12月31日的跨年夜活动人数没有任何上限。那些因残疾而不能接种疫苗的人仍然可以参加，不过他们必须在抵达后72小时内提供核酸测试的阴性证明。5岁以下儿童必须由一个接种过疫苗的成年人陪同，至少在目前不需要提供阴性测试证明。对那些因为年龄、医疗或其他被批准原因而不能接种疫苗的人来说，则必须戴上口罩。官员们说，更多细节将在未来几天发布。”
+据英国《每日邮报》（Daily Mail）11月16日报道，非盈利组织“人民疫苗联盟（The People’s Vaccine Alliance，PVA）”根据辉瑞、BioNTech和莫德纳这三家制药公司的财报数据估算，它们今年税前获利总计340亿美元，换算后相当于每秒赚1000多美元、每分钟6万5000美元或每天9350万美元。
 
-纽约时代广场2020年的跨年夜活动，因为疫情，没有现场观众，人们只能通过电视、网络观看。但白思豪却和他妻子在现场举行个人派对，遭到了人们的强烈抨击。在疫情之前，时代广场的跨年活动每年都有100万人参加。
+PVA旗下成员非洲联盟（African Alliance）的通讯主管谢云（Maaza Seyoum）说：“少数几家公司每小时获利数百万美元，而低收入国家只有2%的人全面接种了新冠疫苗，这实在是令人厌恶。”
 
-新闻来源：[Show me your Papers: Fully Vaccinated with Proof will be Permitted to Gather in Times Square for New Year’s Eve Celebration](https://www.thegatewaypundit.com/2021/11/show-papers-fully-vaccinated-proof-will-permitted-gather-times-square-new-years-eve-celebration/)
+PVA指出，辉瑞、BioNTech和莫德纳利用其垄断地位，优先考虑与富有政府签订最有利可图的合同，却对穷国不闻不问。辉瑞和BioNTech已运交给低收入国家的新冠疫苗不到其总供应量的1%，莫德纳也只有0.2%。这三家公司负责生产和销售全球最常用的两种新冠疫苗，在疫苗的研发阶段总共获得了80亿美元的公共资金。辉瑞的首席执行官艾伯乐 (Albert Bourla) 一直坚定反对放弃疫苗的知识产权或专利权，甚至称技术移转是危险想法。强生（Johnson & Johnson）和阿斯利康（AstraZeneca）则以非营利为原则提供另外两种常用新冠疫苗。
+
+这些疫苗厂商作为大重启势力的打手，沾满了无数无辜人的血。它们不仅要将其所赚的脏钱赔偿新冠疫苗的受害者，还得接受纽伦堡大审判似的严惩。
+
+新闻来源：[**‘It is obscene’: Pfizer, BioNTech and Moderna are making combined profits of more than $1,000 every second as Covid vaccine developers prioritize contracts with rich countries instead of developing nations, analysis finds**](https://www.dailymail.co.uk/health/article-10208889/Pfizer-BioNTech-Moderna-making-combined-profits-1-000-second.html)
 
  
 

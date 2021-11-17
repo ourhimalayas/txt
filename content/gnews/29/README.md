@@ -2,24 +2,42 @@
 ---
 
 
-## 美国医生开具伊维菌素治疗中共病毒遭受匿名投诉
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671319/)
+## 英国批准皮肤贴片新冠疫苗进行人体试验
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1671380/)
 
-#### 撰稿：彩虹
+作者：纽约香草山教育部 – Naughty(文行)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-11.jpg)图片来源：政客
-共和党众议员安迪·哈里斯（Andy Harris）是一名医生，有人向马里兰州医疗委员会进行匿名投诉，指哈里斯为中共病毒（COVID-19）患者开具伊维菌素。11月16日，《国会山报》对此进行了报道。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
 
-文章说，三个月前，《华盛顿邮报》报道哈里斯与妻子一起参加“Casey & Company”广播节目，节目中，哈里斯说：“我开了一张伊维菌素的药方，我想大概是三四周前吧。是的，找不到药店拿到此药，因为情况已经变得很糟糕，药剂师们只是一味地拒绝进货此药。”
 
-周一，据《巴尔的摩太阳报》报道，在众议院自由核心小组关于强制接种疫苗会议上，哈里斯暗示了受到投诉。哈里斯说：“目前有人试图对我开伊维菌素的医疗执照采取行动，我觉得这很让人感兴趣，因为作为一名麻醉师，我知道我使用了很多标签外的药物，这是很危险的行为。”
 
-会后，哈里斯告诉《华盛顿观察家报》，该投诉正处于 “法医委员会的调查阶段”。
 
-《巴尔的摩太阳报》特别指出，哈里斯在会上还说，根据新型病毒的进化，他预计（现在的）疫苗在未来会变得无效。
 
-**新闻来源：**[Maryland Republican says complaint filed against him for prescribing ivermectin to COVID-19 patient](https://thehill.com/policy/healthcare/public-global-health/581884-maryland-republican-says-complaint-filed-against-him)
+总部位于英国牛津郡的“Emergex”公司开发了一种SARS-CoV-2疫苗，旨在为体内的T细胞进行优质化，以快速去除病毒感染的细胞。疫苗可能会提供广泛的长期的变种病毒免疫力，使人们不再需要接种加强针。 Emergex周一宣布，它已获得授权，进入第1阶段，第一名患者预计将在2022年1月初接受第一剂Emergex疫苗。 该公司表示，Emergex疫苗与其他皮肤贴片技术类似，旨在使用微针将疫苗输送到身体。该疫苗在室温下也将稳定三个月以上，从而简化了分发和储存。
+![Lab samples](https://www.ctvnews.ca/polopoly_fs/1.5667502.1637024850!/httpImage/image.png_gen/derivatives/landscape_960/image.png)
+自从全球各国政府推进接种SARS-CoV-2疫苗以来，各种自媒体对疫苗造成的各种死亡以及严重副作用的报道层出不穷，然而主流媒体只是一味宣传疫苗的好处。这款疫苗通过皮肤来作用于人体，其具体成分组成不得而知，但其主要成分如果仍然是刺突蛋白的话，对人体的长期影响可以预料仍然是具有伤害性的。而且同济大学发表在细胞杂志上的文章肯定了新冠疫苗对T细胞是有伤害的，英国报道也表明注射新冠疫苗后会导致T细胞的逐渐减少。而该疫苗声称可以使T细胞优质化，去除被病毒感染的细胞，这会不会加速T细胞的衰减不得而知。而且该疫苗作用途径以及更容易保存等特点使得疫苗更加容易推广，或许会让拒绝打疫苗的普通人群感到更为担忧。
+
+新闻链接：[https://www.ctvnews.ca/health/coronavirus/u-k-covid-19-vaccine-to-be-delivered-by-skin-patch-approved-for-human-trials-1.5667401?utm\_source=ground.news&utm\_medium=referral](https://www.ctvnews.ca/health/coronavirus/u-k-covid-19-vaccine-to-be-delivered-by-skin-patch-approved-for-human-trials-1.5667401?utm_source=ground.news&amp;utm_medium=referral)
+
+总编：文徬
+
+审核/编辑/上传：浪迹天涯
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
 
  
 

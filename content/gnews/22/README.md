@@ -2,22 +2,44 @@
 ---
 
 
-## 英首相约翰逊：英国人需要接种第三针新冠疫苗才被算作完全接种
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1671421/)
+## NIH起诉Moderna，揭示大药厂如何用纳税人的钱致富
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1671473/)
 
-#### 翻译/撰稿：zzballack
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-2-1.jpg)图片来源：雅虎新闻
-据《零对冲》（Zerohedge）11月17日报道，英国首相鲍里斯·约翰逊（Boris Johnson）11月15日在新闻发布会上说，“完全接种疫苗”的概念需要调整，人们需要在原有的两剂新冠疫苗基础上再打加强针，才能被算作“完全接种”。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/share-the-moderna-recipe-banner-FINAL-9-1500x751-1.png)
 
-约翰逊说：“由于两针疫苗的作用开始减弱，所以我们必须负责任，必须对衡量如何构成完全接种这一事实做出反应。政府将制定计划，除了国民医疗服务体系（NHS）颁发的数字疫苗护照，还要增加加强针。”
 
-11月15日早些时候，英国政府接受了疫苗接种和免疫联合委员会（JCVI）的建议，将加强针计划的范围扩大到40至49岁人群。
+ 
+图片来源：www.citizen.org
 
-记得郭先生在直播中说过，约翰逊的母亲因新冠疫苗而死。不知道在如此背景下，以约翰逊为首的英政府是因为真相信疫苗和加强针能增加对人体的保护，或者只是幕后全球黑势力操控的傀儡，才大力推广疫苗护照和加强针。多方事实证明，加强针只会加速人的死亡。全球百姓到了生死存亡的边缘，除了团结反抗，别无他法。
 
-新闻来源：[Brits Will Need 3 Jabs To Be Considered “Fully Vaccinated”: UK PM Johnson](https://www.zerohedge.com/political/brits-will-need-3-jabs-be-considered-fully-vaccinated-uk-pm-johnson)
+#### 编译：小红帽
+
+美国国立卫生研究院（NIH）正在起诉莫德纳（Moderna）公司，要求其拥有中共病毒（COVID-19）疫苗的部分专利。
+
+美国国立卫生研究院院长弗朗西斯-柯林斯（Francis Collins）表示，他理应从版税中分得一杯羹，因为他的机构在开发该疫苗方面发挥了“重要作用”。
+
+莫德纳中共病毒疫苗是一种高利润的药品，因为它在整个地球上被强制使用。
+
+柯林斯现在向媒体抱怨，他应该如何从数十亿美元中分得一杯羹，因为他用美国纳税人的钱来帮助开发这些疫苗。
+
+莫德纳预计在2021年将从强制接种中共病毒疫苗获得高达180亿美元的收入，该疫苗采用有毒的、改变基因的信使RNA（mRNA）技术制成。在2022年，这一数字预计将飙升至220亿美元。
+
+莫德纳想把所有的钱据为己有，所以柯林斯正在浪费更多的美国纳税人的钱，试图起诉该公司，以获得他认为应得的那份。
+
+与此同时，世界各地的人，包括年幼的孩子，正因莫德纳的致命疫苗而受伤和死亡。而他们现在都无能为力，因为莫德纳公司对其产品造成的损害不承担任何责任。
+
+**参考新闻：**[NIH claims co-ownership of Moderna COVID vaccine patent, demonstrating how taxpayer money is used to develop therapeutics that make drug companies wealthy – NaturalNews.com](https://www.naturalnews.com/2021-11-16-nih-co-owns-moderna-covid-vaccine-patent.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
