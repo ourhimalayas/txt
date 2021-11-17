@@ -2,46 +2,49 @@
 ---
 
 
-## 俄克拉荷马州国民警卫队的将军拒绝执行疫苗强制令
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1671090/)
+## 中共国出现首个主食企业产品涨价
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1671119/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/3000-scaled.jpeg)
+作者：日本方舟农场 – Andy5
 
 
 
-图片来源：AP NEWS
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
-#### 编译：小红帽
 
-随着中共病毒（Covid-19）疫苗接种任务期限的临近，五角大楼一直在苦苦思索如何应对总统乔·拜登疫苗强制令的个别抵制者。
+11月12日晚间，墙内面业第一股克明食品也宣布从12月1日起，将旗下主要产品面条、面粉、方便食品进行涨价。
 
-由于数以万计的现役军人做出了可能结束职业生涯的决定，拒绝接种疫苗，高层正在想办法剥夺他们的福利并迫使他们偿还奖金。
+在中共鼓吹粮食丰收的同时，墙内自10月以来，调味品、速冻食品、饮料、零食、副食等价格普遍上涨。而主食价格上涨尚属今年首次。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1.2-5.jpg)
+参考链接：
+1. [酱油、食醋、豆奶之后，挂面也要涨价了！](https://news.stcn.com/sd/202111/t20211113_3863777.html)
+2. [挂面也要涨价了？“面业一哥”发布调价公告！](https://finance.sina.com.cn/roll/2021-11-13/doc-iktzqtyu7109386.shtml)
+3. [今年国内粮食丰收已定局，为何玉米等谷物进口量却翻倍？](https://www.yicai.com/news/101227678.html)
 
-虽然对疫苗强制令的大部分抵制是以个人的形式出现的，但由于俄克拉荷马州的一位将军，这种情况可能会改变。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-陆军准将托马斯·曼奇诺（Thomas Mancino）于周三被介绍为俄克拉荷马州新任副将兼俄克拉荷马州国民警卫队指挥官。他很快就成了“强迫接种疫苗 ”团队的眼中钉。
+总编：飞虹
+编辑：木白
+校对/发稿：为真不破20
 
-上周末，曼奇诺宣布，他不会对俄克拉荷马州的军队执行国防部执行中共病毒疫苗强制令。根据将军的说法，不会对拒绝接种疫苗的卫兵采取负面的行政或法律行动。
+**更多资讯，更多关注**
 
-显然，俄克拉荷马州州长凯文·斯蒂特(Kevin Stitt)与将军意见一致，实际上斯蒂特在本月初曾要求国防部不要对整个州的陆军和空军国民警卫队成员执行疫苗强制令。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-如果有更多的将军和高级军官效仿，违宪的雇员授权可能会停止，逻辑和理性将占上风，人们将能够做出自己的医疗选择。
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-如今超过一半的州正在就这些暴虐和不科学的强制规定起诉联邦政府，而且似乎正在奏效。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-**参考新闻：**[General of Oklahoma National Guard Refuses to Enforce Vaccine Mandate (humansarefree.com)](https://humansarefree.com/2021/11/general-refuses-to-enforce-vaccine-mandate.html)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-***发布：小红帽***
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
