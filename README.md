@@ -15,137 +15,137 @@
 
 ---
 
-### [俄克拉荷马州法案允许工人因强制中共病毒疫苗规定起诉雇主索赔100万美元](/content/gnews/1/README.md)
+### [中国银行开平支行案](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [郭文贵先生2021年11月16日盖特直播视频（32分11秒）全文字版](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [俄克拉荷马州法案允许工人因强制中共病毒疫苗规定起诉雇主索赔100万美元](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [超过1万名澳大利亚人已经向政府提出了中共病毒疫苗伤害索赔](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [DC大中华时事：中共墙内宣传拜习视频会](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [脸书员工因“脸书丢脸”正大量外流 加入盖特是最佳选择](/content/gnews/4/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [每日快报：辉瑞公司在新冠疫苗临床试验数据上撒了谎](/content/gnews/5/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [回顾庚子以来疫情 我们该如何反思?](/content/gnews/6/README.md)
- ` 日本东京方舟农场`
-
-### [币圈新闻动态：喜币（HCN）价格15日实时价格为33.875 HDO](/content/gnews/7/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [德国医生呼吁人们上街抗议独裁政权夺回基本权力](/content/gnews/8/README.md)
- ` 日本东京方舟农场`
-
-### [可使用喜币、喜美元在迪拜购置房产](/content/gnews/9/README.md)
- ` GTV新闻访谈`
-
-### [阿德莱德的太空创业公司在大笔融资后价值猛增1.71亿美元](/content/gnews/10/README.md)
+### [澳洲网坛一哥反对强制疫苗，高调呼吁取消明年澳网](/content/gnews/4/README.md)
  ` 走进澳洲`
 
-### [郭先生指出-中共国的经济必定是 “完了”, 而数字人民币更是“灾难”](/content/gnews/11/README.md)
+### [超过1万名澳大利亚人已经向政府提出了中共病毒疫苗伤害索赔](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [七哥谈喜联储V:空中取钱的“钱”就在可装20万亿的喜联储](/content/gnews/12/README.md)
+### [DC大中华时事：中共墙内宣传拜习视频会](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [脸书员工因“脸书丢脸”正大量外流 加入盖特是最佳选择](/content/gnews/7/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [每日快报：辉瑞公司在新冠疫苗临床试验数据上撒了谎](/content/gnews/8/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [回顾庚子以来疫情 我们该如何反思?](/content/gnews/9/README.md)
+ ` 日本东京方舟农场`
+
+### [币圈新闻动态：喜币（HCN）价格15日实时价格为33.875 HDO](/content/gnews/10/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [德国医生呼吁人们上街抗议独裁政权夺回基本权力](/content/gnews/11/README.md)
+ ` 日本东京方舟农场`
+
+### [可使用喜币、喜美元在迪拜购置房产](/content/gnews/12/README.md)
+ ` GTV新闻访谈`
+
+### [阿德莱德的太空创业公司在大笔融资后价值猛增1.71亿美元](/content/gnews/13/README.md)
+ ` 走进澳洲`
+
+### [郭先生指出-中共国的经济必定是 “完了”, 而数字人民币更是“灾难”](/content/gnews/14/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [七哥谈喜联储V:空中取钱的“钱”就在可装20万亿的喜联储](/content/gnews/15/README.md)
  ` NewFOC`
 
-### [“滞涨”“通涨”已并行，疫苗灾难还没来](/content/gnews/13/README.md)
+### [“滞涨”“通涨”已并行，疫苗灾难还没来](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [中共非法收购意大利公司，盗取无人机军事机密](/content/gnews/14/README.md)
+### [中共非法收购意大利公司，盗取无人机军事机密](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [中共国出现首个主食企业产品涨价](/content/gnews/15/README.md)
+### [中共国出现首个主食企业产品涨价](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [中共国新股上市接连跌破发行价](/content/gnews/16/README.md)
+### [中共国新股上市接连跌破发行价](/content/gnews/19/README.md)
  ` GTV新闻访谈`
 
-### [NFT与新中国联邦](/content/gnews/17/README.md)
+### [NFT与新中国联邦](/content/gnews/20/README.md)
  ` 纽约香草山MOS01`
 
-### [七哥谈喜联储IV:令中共恐惧至极动用超国家力量骇客抹黑](/content/gnews/18/README.md)
+### [七哥谈喜联储IV:令中共恐惧至极动用超国家力量骇客抹黑](/content/gnews/21/README.md)
  ` NewFOC`
 
-### [俄克拉荷马州国民警卫队的将军拒绝执行疫苗强制令](/content/gnews/19/README.md)
+### [俄克拉荷马州国民警卫队的将军拒绝执行疫苗强制令](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中国在全球财富竞赛中超过了美国](/content/gnews/20/README.md)
+### [中国在全球财富竞赛中超过了美国](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥谈喜联储III:如何让喜联储成为全球共用的金融标准](/content/gnews/21/README.md)
+### [七哥谈喜联储III:如何让喜联储成为全球共用的金融标准](/content/gnews/24/README.md)
  ` NewFOC`
 
-### [2021年11月14日郭文贵先生直播中文简报](/content/gnews/22/README.md)
+### [2021年11月14日郭文贵先生直播中文简报](/content/gnews/25/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [莫德纳疫苗致台湾一妇人主动脉剥离](/content/gnews/23/README.md)
+### [莫德纳疫苗致台湾一妇人主动脉剥离](/content/gnews/26/README.md)
  ` 日本东京方舟农场`
 
-### [白宫：拜登关切中共国人权问题 反对中共破坏台海现状](/content/gnews/24/README.md)
+### [白宫：拜登关切中共国人权问题 反对中共破坏台海现状](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [许家印变卖资产维持运营](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
-
-### [七哥谈喜联储II:不是脱亚入欧而是脱离共产党制造新世界](/content/gnews/26/README.md)
- ` NewFOC`
-
-### [第五巡回法庭的背后是一种世界级的人类的较量](/content/gnews/27/README.md)
+### [第五巡回法庭的背后是一种世界级的人类的较量](/content/gnews/28/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [CDC错误的设置测试数值，被误诊的‘患者’们被如何处置？](/content/gnews/28/README.md)
+### [CDC错误的设置测试数值，被误诊的‘患者’们被如何处置？](/content/gnews/29/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [多米诺骨牌效应，虚拟货币市值蒸发了2000亿美元](/content/gnews/29/README.md)
+### [多米诺骨牌效应，虚拟货币市值蒸发了2000亿美元](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [肺部卫生工作者Albert Spence谈论新冠病毒PCR测试](/content/gnews/30/README.md)
+### [肺部卫生工作者Albert Spence谈论新冠病毒PCR测试](/content/gnews/31/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [国际要闻汇编11月17日](/content/gnews/31/README.md)
+### [国际要闻汇编11月17日](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [雅典娜时报-第115期](/content/gnews/32/README.md)
+### [雅典娜时报-第115期](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [疫苗问题-运动员、电视主播、政府官员、人们在电视上倒地身亡](/content/gnews/33/README.md)
+### [疫苗问题-运动员、电视主播、政府官员、人们在电视上倒地身亡](/content/gnews/34/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [澳大利亚澳式足球联盟（AFL）初级联赛实施疫苗强制令](/content/gnews/34/README.md)
+### [澳大利亚澳式足球联盟（AFL）初级联赛实施疫苗强制令](/content/gnews/35/README.md)
  ` 走进澳洲`
 
-### [中共国米面开始涨价，老百姓要护紧钱袋子](/content/gnews/35/README.md)
+### [中共国米面开始涨价，老百姓要护紧钱袋子](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共和美国超发货币的规模几何？这如何影响虚拟货币？喜币比特币未来会怎样？](/content/gnews/36/README.md)
+### [中共和美国超发货币的规模几何？这如何影响虚拟货币？喜币比特币未来会怎样？](/content/gnews/37/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [黑暗已经到来请做好准备](/content/gnews/37/README.md)
+### [黑暗已经到来请做好准备](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [明年5月份 疫苗灾难开始显现](/content/gnews/38/README.md)
+### [明年5月份 疫苗灾难开始显现](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [习近平与拜登虚拟会谈的五个主要收获](/content/gnews/39/README.md)
+### [习近平与拜登虚拟会谈的五个主要收获](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国利用海外空壳公司获取意大利军用无人机技术](/content/gnews/40/README.md)
+### [中共国利用海外空壳公司获取意大利军用无人机技术](/content/gnews/41/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农先生被起诉事件意味着美国媒体大重启](/content/gnews/41/README.md)
+### [班农先生被起诉事件意味着美国媒体大重启](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美前总统老布什之子尼尔·布什赞助了中共航天公司的研讨会](/content/gnews/42/README.md)
+### [美前总统老布什之子尼尔·布什赞助了中共航天公司的研讨会](/content/gnews/43/README.md)
  ` 首尔天池农场`
 
-### [俄克拉荷馬总检察长加入对疫苗强制令的诉讼](/content/gnews/43/README.md)
+### [俄克拉荷馬总检察长加入对疫苗强制令的诉讼](/content/gnews/44/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [GTV新闻访谈简报|2021年11月16日晚](/content/gnews/44/README.md)
- ` 纽约香草山MOS01`
 
 ### [拜登和习视频会谈，中美双方各说各话](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
