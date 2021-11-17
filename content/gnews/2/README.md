@@ -2,30 +2,46 @@
 ---
 
 
-## 莫德纳疫苗致台湾一妇人主动脉剥离
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1671050/)
+## 俄克拉荷马州国民警卫队的将军拒绝执行疫苗强制令
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1671090/)
 
-#### **撰稿：**日本东京方舟农场 Kevin wang
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/CB45E299-916C-4D5A-BCFE-03F28EB3A81E.jpeg)（郑妇至今仍躺在加护病房中。图片来自苹果新闻网）
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/3000-scaled.jpeg)
 
-据《苹果新闻网》11月16日报道，台湾一位郑姓妇人在接种两针莫德纳疫苗后， 竟患上致死率极高的心血管疾病——主动脉剥离，生命一度垂危。
 
-据报道，郑妇的儿子向《苹果新闻网》投诉称，他的妈妈今年69岁，10月15日由杏和医院团队为她接种了第2剂莫德纳疫苗。当晚，接种部位红肿、发烫。隔天因症状加剧，随即前往国军高雄总医院看急诊。
 
-10月20日至11月2日期间，他的妈妈因各种不适，三次到国军高雄总医院就医。11月4日晚间，因剧烈胸痛、背痛，再到国军高雄总医院看急诊。最终确诊是主动脉剥离，转送高雄荣总医院做了14个小时的手术，才走出死亡关卡。至今，仍躺在高荣的加护病房，未能出院。
+图片来源：AP NEWS
 
-台湾高雄卫生局表示，已于11月8日协助郑妇通报至疫苗不良反应系统。
 
-*参考链接：[https://tw.appledaily.com/life/20211116/YP5GI4JB6FCTPEFNCPWGN6YKJY/](https://tw.appledaily.com/life/20211116/YP5GI4JB6FCTPEFNCPWGN6YKJY/)*
+#### 编译：小红帽
 
-* * *
+随着中共病毒（Covid-19）疫苗接种任务期限的临近，五角大楼一直在苦苦思索如何应对总统乔·拜登疫苗强制令的个别抵制者。
 
-*素材采编：Kevin wang*
+由于数以万计的现役军人做出了可能结束职业生涯的决定，拒绝接种疫苗，高层正在想办法剥夺他们的福利并迫使他们偿还奖金。
 
-*编辑：青衣青青*
+虽然对疫苗强制令的大部分抵制是以个人的形式出现的，但由于俄克拉荷马州的一位将军，这种情况可能会改变。
 
-*发布：miumiu*
+陆军准将托马斯·曼奇诺（Thomas Mancino）于周三被介绍为俄克拉荷马州新任副将兼俄克拉荷马州国民警卫队指挥官。他很快就成了“强迫接种疫苗 ”团队的眼中钉。
+
+上周末，曼奇诺宣布，他不会对俄克拉荷马州的军队执行国防部执行中共病毒疫苗强制令。根据将军的说法，不会对拒绝接种疫苗的卫兵采取负面的行政或法律行动。
+
+显然，俄克拉荷马州州长凯文·斯蒂特(Kevin Stitt)与将军意见一致，实际上斯蒂特在本月初曾要求国防部不要对整个州的陆军和空军国民警卫队成员执行疫苗强制令。
+
+如果有更多的将军和高级军官效仿，违宪的雇员授权可能会停止，逻辑和理性将占上风，人们将能够做出自己的医疗选择。
+
+如今超过一半的州正在就这些暴虐和不科学的强制规定起诉联邦政府，而且似乎正在奏效。
+
+**参考新闻：**[General of Oklahoma National Guard Refuses to Enforce Vaccine Mandate (humansarefree.com)](https://humansarefree.com/2021/11/general-refuses-to-enforce-vaccine-mandate.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,64 +2,88 @@
 ---
 
 
-## 新西兰财经G乐部 2021年11月15日
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1670615/)
+## 众议员克里斯·斯图尔特： COVID-19 的起源是我们面临的最重要的问题之一 ，美国人民有权得到答案
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1670628/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/图片-1-10.jpg)
-提纲：
+众议员克里斯·斯图尔特： 今天，我在众议院提出了《福奇法案》。 本月早些时候，参议员乔尼·恩斯特[@SenJoniErnst](https://twitter.com/SenJoniErnst) 在参议院提出了一项配套法案。 COVID-19 ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)) 的起源是我们面临的最重要的问题之一。 该法案代表美国人民要求透明度和公道。首先，该立法旨在禁止美国资助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的功能增强研究。 其次，它需要全面核算我们的税收资金的使用方式和去向。 最后，它会限制故意误导国会的政府官员。世界仍在感受着 COVID-19 ([#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)) 对人类和经济的破坏性影响。美国人民有权得到答案，我们需要采取一切可能的措施来防止灾难再次发生。 我鼓励国会过道两边的所有同事，加入我的努力.
 
-1、中共国驻美大使：中共国绝不承诺放弃使用武力 敦促美国谨慎妥善处理台湾问题
 
-2、双11”刚落幕，“网红食品第一股”三只松鼠投诉接踵而至，变质发霉、吃出虫卵、致癌物超标…
 
-3、中共国财政部明确北京证交所税收政策 个人所得税、印花税暂按新三板规定执行
+> Today, I introduced the FAUCI Act in the House. Earlier this month, [@SenJoniErnst](https://twitter.com/SenJoniErnst?ref_src=twsrc%5Etfw) introduced a companion bill in the Senate.
+> 
+> The origin of COVID-19 is one of the most important questions we face. This bill demands transparency and justice on behalf of the American people.
+> — Rep. Chris Stewart (@RepChrisStewart) [November 16, 2021](https://twitter.com/RepChrisStewart/status/1460674635331252226?ref_src=twsrc%5Etfw)
 
-4、日本将祭出40万亿日圆经济刺激计划 以缓解疫情和油价上涨之痛5、中共国21城发布房价“限跌令”，绝大多数为三四五线城市
 
-正文
 
-1、中共国驻美大使：中共国绝不承诺放弃使用武力 敦促美国谨慎妥善处理台湾问题
+前白宫经济顾问皮特·纳瓦罗： 最新消息：美国平均每天有83000例新确诊的 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 病例。每24小时就有1000多名美国人死亡。 将羟基(hydroxy)推广到全美国，死亡率将大幅下降。在《川普时代》第7章中阅读原因。
 
-路透上海11月14日 – 中共国驻美大使秦刚周六表示，中共加倍努力推动两岸融合发展，但绝不承诺放弃使用武力，保留采取一切必要措施的选项；敦促美国恪守一个中国原则和对中方所作的承诺，谨慎妥善处理台湾问题，警防台湾问题导致中美冲突和对抗。
 
-中共国驻美使馆官网当日晚间新闻稿引述其在全美中国和平统一促进会联合会2021年年会上的视频致辞指出，当前，台湾民进党当局煽动两岸对立，勾连外部势力，不断进行谋“独”挑衅，正一步步把台湾民众裹挟上“台独”战车。
 
-[参考链接](https://cn.reuters.com/article/china-usa-taiwan-ambassador-1114-sun-idCNKBS2I002T?il=0)：
+> Breaking news: on average 83,000 new confirmed Covid-19 cases in the U.S. each day. More than 1,000 Americans dying every 24 hours.
+> 
+> FLOOD America with hydroxy and this death rate will fall DRAMATICALLY. Read why in Chap 7 of In Trump Time [https://t.co/Ym7VExlzPT](https://t.co/Ym7VExlzPT)
+> — Peter Navarro (@RealPNavarro) [November 17, 2021](https://twitter.com/RealPNavarro/status/1460776245881360384?ref_src=twsrc%5Etfw)
 
-2、双11”刚落幕，“网红食品第一股”三只松鼠投诉接踵而至，变质发霉、吃出虫卵、致癌物超标…
 
-11月12日，有网友在微博发文，“薇娅直播间买的三只松鼠每日坚果变质发霉”。11月13日，又有网友发文称，天猫超市买的三只松鼠手撕面包“居然发霉”，照片显示深灰色块状霉斑清晰可见。实际上，仅10月以来三只松鼠在多个平台的食品问题投诉就达数十起。
 
-[参考链接](https://finance.sina.com.cn/chanjing/gsnews/2021-11-15/doc-iktzqtyu7292699.shtml)：
+参议员玛莎·布莱克本： 拜登白宫需要澄清——如果 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 入侵台湾，他们会怎么做。 【转推称政府一高级官员刚说不支持台湾独立，总统拜登又说支持台湾独立，自相矛盾，等待澄清】
 
-3、中共国财政部明确北京证交所税收政策 个人所得税、印花税暂按新三板规定执行
 
-路透上海11月15日 – 北京证交所开市在即，中国财政部和国家税务总局周日晚间发布通知明确税收政策适用，规定新三板精选层公司转为北交所上市公司，以及创新层挂牌公司通过公开发行股票进入北交所上市后，投资北交所上市公司涉及的个人所得税、印花税相关政策，暂按照现行新三板适用的税收规定执行。
 
-通知并明确，涉及企业所得税、增值税相关政策，按企业所得税法及其实施条例、《财政部国家税务总局关于全面推开营业税改征增值税试点的通知》及有关规定执行。
+> The Biden White House needs to come clean — what will they do if Communist China invades Taiwan. [https://t.co/w4oHJA8bXH](https://t.co/w4oHJA8bXH)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 17, 2021](https://twitter.com/MarshaBlackburn/status/1460759664220590083?ref_src=twsrc%5Etfw)
 
-[参考链接](https://cn.reuters.com/article/bse-tax-policy-1114-sun-idCNKBS2I0012?il=0)：
 
-4、日本将祭出40万亿日圆经济刺激计划 以缓解疫情和油价上涨之痛
 
-日本首相岸田文雄誓言要在11月19日宣布一项“价值几十万亿日元”的刺激计划，以刺激受到新冠疫情影响的世界第三大经济体。岸田文雄的地位因上个月的选举胜利而得以巩固。
+参议员玛莎·布莱克本： 拜登正在一个流氓 [#共产主义国家](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E5%9B%BD%E5%AE%B6?src=hashtag_click) 的手中被玩弄，并背弃了我们对台湾说过的话。 【附福克斯新闻：中共国称拜登谴责“台独”并警告美“正在玩火”】
 
-因岸田文雄将从疫情中复苏置于财政改革之上，政府支出可能会通过一些新债务来融资，这将给本已是经济规模两倍多的公共债务进一步带来压力。日本是工业化国家中公共债务最沉重的国家。
 
-[参考链接](https://cn.reuters.com/article/japan-economy-stimulating-plan-1113-idCNKBS2HY048?il=0)：
 
-5、中共国21城发布房价“限跌令”，绝大多数为三四五线城市
+> Biden is playing into the hands of a rogue, Communist state, and walking back on the word we have given Taiwan.[https://t.co/aL6R8CI5by](https://t.co/aL6R8CI5by)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 16, 2021](https://twitter.com/MarshaBlackburn/status/1460736500765712390?ref_src=twsrc%5Etfw)
 
-第一财经周末报导，据不完全统计，截至目前，全国已经有21城发布了房价“限跌令”。其中有的城市是直接发布行政命令，有的则是通过约谈房企，限制恶意降价，否则就不给予网签的方式。
 
-这些城市包括沈阳、岳阳、昆明、唐山、江阴、鄂州、张家口、株洲、永州等。除了沈阳、昆明等个别城市外，绝大多数都是三四五线城市。
 
-另一方面，在楼市下行压力较大的情况下，目前市场上“工抵房”（工程抵押房）打折甩卖的消息频出。不仅是在三四线城市，包括广州、厦门、成都、南京等一二线城市出现了很多“工抵房”。
+加拉格尔众议员新闻办： 众议员加拉格尔：“国务院正在鼓励我们的外交官不要使用‘[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的恶意影响力’这个词……国防部似乎正在放弃大国竞争这个词……这一切都相当于一种更天真的方式应对中共国。这让我很担心。” 【附福克斯电视台视频：众议员加拉格尔就拜习在紧张加剧的情况下的视频会面】
 
-[参考链接](https://m.yicai.com/news/101228762.html)：
 
-审核校对：Barry Jack
-上传排版：F
+
+> Rep. Gallagher: "The State Department is encouraging our diplomats not to use the phrase "malign Chinese influence"…the Defense Department seems to be walking away from the term great power competition…this all amounts to a more naive approach to China. That concerns me." [pic.twitter.com/RkNr1uV4KU](https://t.co/RkNr1uV4KU)
+> — Rep. Gallagher Press Office (@RepGallagher) [November 16, 2021](https://twitter.com/RepGallagher/status/1460732968931143688?ref_src=twsrc%5Etfw)
+
+
+
+众议员肯·巴克： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府正在窃取美国人的知识产权，威胁对台湾开战，入侵南中国海，进行种族灭绝，并支持在美国领土上进行网络攻击。 白宫通讯主任在推特上能想到的就只有中共国国旗？ 【附白宫通讯主任的推文】
+
+
+
+> The Chinese government is stealing Americans’ intellectual property, threatening war against Taiwan, invading the S. China Sea, committing genocide, & supporting cyberattacks on American soil.
+>  
+> And all the White House Messaging Director can think of to Tweet is the Chinese flag? [https://t.co/IPVsmTyPeN](https://t.co/IPVsmTyPeN)
+> — Rep. Ken Buck (@RepKenBuck) [November 16, 2021](https://twitter.com/RepKenBuck/status/1460711006435430407?ref_src=twsrc%5Etfw)
+
+
+
+参议员兰德·保罗： 或者，一个负责资助功能增强研究并向公众撒谎的未经选举产生的官僚可能会损害我们对 COVID 的应对。 【附newsmax新闻：福奇说政治上的分裂损害了对新冠病毒的应对】
+
+
+
+> Or maybe an unelected bureaucrat responsible for funding gain-of-function research and lying to the public is doing harm to our response to COVID. [https://t.co/ozW8svdMDt](https://t.co/ozW8svdMDt)
+> — Senator Rand Paul (@RandPaul) [November 16, 2021](https://twitter.com/RandPaul/status/1460698796967538689?ref_src=twsrc%5Etfw)
+
+
+
+众议员丽莎·麦克莱恩： 台湾是值得信赖的盟友、伙伴和朋友，永远不应被 [#习主席](https://twitter.com/hashtag/%E4%B9%A0%E4%B8%BB%E5%B8%AD?src=hashtag_click) 和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 欺负。
+
+
+
+> Taiwan is a trusted ally, partner and friend and should never be bullied by Chairman [#Xi](https://twitter.com/hashtag/Xi?src=hash&amp;ref_src=twsrc%5Etfw) and the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw).
+> — Representative Lisa McClain (@RepLisaMcClain) [November 16, 2021](https://twitter.com/RepLisaMcClain/status/1460679240077254659?ref_src=twsrc%5Etfw)
+
+
+
+
 
  
 
