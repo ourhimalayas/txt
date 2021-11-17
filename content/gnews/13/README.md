@@ -2,63 +2,56 @@
 ---
 
 
-## 有声|我们这一代人
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1672642/)
+## 辉瑞隐瞒疫苗临床试验的死亡数据
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1672687/)
 
-配音：香草山香港部 – 新世界一员
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-黑暗的墙国早晨
-没有干净的空气
-没有干净的水质
-也没有干净的人文环境
-只有路上行色匆匆的人们
-他们睁开眼睛就是赚钱养家
-共产党说的明天能更好
-苦追了几代人依然是南柯一梦
-这长梦有朝醒悟
-不知我们这一代人情何以堪
-步行在人行道上
-见惯了人让车、人躲车
-车永远那么肆无忌惮
-这是墙国小城的特色
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/P-4.jpg)the-voiceof-london.uk
+《门道专家》11月16日晚间发表文章，“最新消息：辉瑞对公众隐瞒了中共（新冠）病毒疫苗临床试验中的死亡人数——实际死亡人数为21人，比报道的多6人，比未接种疫苗组多4人”。
 
-一个老农拉着车一直问我
-还有新鲜的青菜
-我停下脚步走过去
-她却忽然骑上几步要走
-我恼了转身就走
-那阿姨叹
-怕被抓没办法
-找个转弯的角落好拿称
-怕你走掉不敢说
-一大早听的人心酸酸
-这个真正的万恶的社会主义
-这阴暗而低沉的空气
-污染的环境总有一朝可以修护
-而污染的人性却任重道远!
+全文如下：
 
-原文链接：[我们这一代人](https://gnews.org/zh-hans/1564686/)
+辉瑞在第三次中共病毒疫苗试验期间的死亡人数上撒了谎。
 
-音频处理：喜山必胜Maverick
-发稿：Daxia
+临床试验期间的实际死亡人数为21人，而不是最初报告的16人。这比临床试验对照组多了4例死亡。
 
-[![](https://media.discordapp.net/attachments/908033143146172416/909632271621971978/11_Nov.jpg?width=232&amp;height=300)](https://cdn.discordapp.com/attachments/908033143146172416/909632271621971978/11_Nov.jpg)
+所以辉瑞公司在他们的致命试验上撒了谎，只是报告了他们最大的有效的一面。
 
-**更多资讯，更多关注**
+逮捕从何时开始？
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+《亚历克斯·贝伦森》（Alex Berenson）报道：
 
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+7月28日，辉瑞及其合作伙伴BioNTech公布了他们关键的中共病毒疫苗临床试验的6个月数据更新，这一试验导致全球监管机构批准了疫苗接种。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+在疫苗有效性问题日益增多之际，该报告受到了全世界的关注。辉瑞说，6个月后疫苗84%的有效率仍然相对较强。
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+它还报告说，在试验中接受疫苗的大约22,000人中有15人死亡，而接受安慰剂（不含疫苗的生理盐水）的22,000人中有14人死亡。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+这些不仅仅是中共病毒死亡，事实上，他们大多不是来自中共病毒。试验中只有三人死于中共病毒相关疾病——一人接种了疫苗，两人接种了生理盐水。其他死亡病例源于与其他疾病，主要是心血管疾病。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
+更多来自《贝伦森》的消息：
 
+从第1剂到2021年3月13日的数据截止日期，共有38人死亡，COMIRNATY疫苗组21人，安慰剂组17人。
 
+辉瑞制药7月份公开表示，截至3月中旬，已发现15名疫苗接种者死亡，但它告诉美国“食品和药物管理局”（FDA），在同一数据截止日期3月13日，共有21人。
+
+是21人，不是15人。
+
+试验中安慰剂的数字也是错误的，辉瑞在接受安慰剂的患者中有17人死亡，而不是14人。总共有9人死亡，6人死于疫苗接种。
+
+根据“疫苗不良事件报告系统”（VAERS）网站，今年有12,412例死亡病例与辉瑞疫苗有关。
+
+辉瑞撒谎 ——人们死亡！
+
+（全文完）
+
+撒谎、掩盖是中共独裁专制政府、邪恶阴谋集团的产物， 现在竟然蔓延到文明、法制比较健全的西方国家，甚至到政府机构，不得不发人深省。相信辉瑞一定会被人告死的，作恶者必得惩罚。人一定要有信仰。
+
+原文链接：
+
+[https://www.thegatewaypundit.com/2021/11/huge-breaking-news-pfizer-hid-public-number-deaths-covid-clinical-trials-actual-number-21-6-reported-4-unvaccinated-group/](https://www.thegatewaypundit.com/2021/11/huge-breaking-news-pfizer-hid-public-number-deaths-covid-clinical-trials-actual-number-21-6-reported-4-unvaccinated-group/)
 
  
 

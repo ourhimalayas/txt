@@ -2,46 +2,114 @@
 ---
 
 
-## 习近平上升到毛泽东和邓小平的水平以延续自己的权力
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1672537/)
+## 中共病毒口服药比疫苗还毒
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672600/)
 
-编译：文羽
+[https://gtv.org/video/id=61939c4a182702508105db4c](https://gtv.org/video/id=61939c4a182702508105db4c)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1-9.jpg)图片来源：法新社（ AFP）
+郭文贵
+Miles Guo
 
-经过四天的闭门会议，按照中共国的惯例，习近平主席周四与建国者毛泽东和资本开放之父邓小平一起成为中国共产党最有权势的领导人。它是通过关于党的百年历史的“最伟大成就”的“历史性决议”来实现的，该决议得到了党的十九届六中全会的批准。
+告诉大家这个口服药有多可怕，口服药是当年对付艾滋病
+Tell everyone how horrible this oral medicine is, this oral medicine was used to treat with AIDS in the past
 
-在他之前，只有毛泽东在1945年发起了类似的宣言，以边缘化他的内部竞争对手并巩固他的权力，而邓在 1981 年这样做，正是为了承认“伟大舵手”的错误，并确认对资本主义的开放。在这份新声明中，这种自我批评完全消失了，它宣称“过去一个世纪党和人民的努力，是中华民族千年历史上最辉煌的篇章”。
+大家记住，不光是艾滋病，大家不能光看一点是对付淋病、性病
+Remember everyone, it’s not just for AIDS, you can’t just focus on treating with gonorrhea and venereal disease
 
-就这样从落后的半殖民地半封建社会发展成为世界第二大经济体，在世界上的影响力越来越大，有能力挑战美国的全球霸权。
+还有到非洲的那个痢疾、霍乱的那个药方
+also the prescription for dysentery and cholera in Africa
 
-在邓小平放弃带来如此多苦难的毛主义四十年后，习近平标志着 21 世纪富裕的中国“资本共产主义”的进程，并继续巩固他无可争议的领导地位和他的个人崇拜。随着朝鲜宣传力度的加大，全会声明中夸夸其谈的口吻不容置疑：“习同志，通过对新时期党和国家事业的众多理论和实践问题的细致评估和深入思考，围绕着我们时代的主要问题，我们应该捍卫什么样的中国特色社会主义，我们应该建设什么样的伟大的现代社会主义国家，我们应该建设什么样的社会主义现代化强国，建立了一系列国家治理的新理念、新思想和新战略。我们应该发展什么样的马克思主义治理。”
+它这个激素的副作用，你要连着吃多少天
+the side effect of this hormone is, after you take this medicine consistent many days in a row
 
-作为“习近平新时代中国特色社会主义思想”的创始人，该声明宣称“这就是当代和21世纪中共国的马克思主义”。并且，作为中央委员会的“核心”，他保证习“展现了伟大的历史主动性、巨大的政治勇气和强烈的使命感”，提供“统一领导，推进我们的伟大斗争、伟大工程、伟大事业、伟大梦想”。
+你真的就是脖子跟脑袋一样粗了，真的是很夸张夸张的
+Your neck will be as large as your head, it’s really exaggerated
 
-对于香港浸会大学政治学专家让-皮埃尔·卡贝斯坦教授来说，“中国共产党继续战斗，因为它有很多敌人。但是什么样的国家会围绕斗争来组织其政治目标呢？基于该政权所吹嘘的百年‘成就’，卡贝斯坦认为“不再有纠正过去错误（和罪行）或质疑错误政策的空间。”正因如此，以民族主义为党的主要引擎，他认为“他不间断的百年人生，顺理成章地走向了习近平专政的新时代”。
+特别你有过癌症这个病例的人，或者曾经有过手术的人
+Especially you have had cancer, or someone who has had surgery
 
-声明虽然没有批评江泽民、胡锦涛等前辈，反映他们的成就，但毫不犹豫地肯定，习“解决了许多长期摆在议事日程上的难题，并得到了解决。从未解决并实现了许多他们从未成功过的想要的事情»。其中，他们指出，“党的领导体制有所改善”，“反腐败斗争取得压倒性胜利”，“经济发展更加平衡、协调、可持续”。结果，实现的“社会稳定”被定义为真正的“奇迹”。
+这种激素对你身体危害是巨大的，更夸张的事情
+This hormone is so harmful to your body, and it’s even more exaggerated
 
-在军事方面，声明令人震惊地宣布，“人民军队进行了革命性的改组，为下一阶段做准备”，“以顽强的战斗精神，以实际行动维护国家主权和安全”。在国际层面，他称赞“中共国在全球深刻变化中开辟外交新路径，化危为机”，“海外影响力显着提升”。从这个意义上讲，它认识到“在百年未有的变化和冠状病毒大流行的共同影响下，过去一年的外部全景变得越来越复杂和严重”，其起源是中共国与西方的对立以及对新疆、西藏和香港的镇压。
+它会严重的诱发你心脏病，因为有糖尿病病史的，有这个心脏病的
+that it will seriously induce your heart disease because people with a history of diabetes and heart disease
 
-该决议并未提及其在 2019 年的大规模民主抗议活动，而是吹嘘“恢复了香港的秩序”，就在那些曾经装扮成美国队长的年轻抗议者之一被判处五年徒刑的那一天，因唱独立宣言而入狱九个月。这是该前英国殖民地政权去年根据严厉的《国家安全法》第二次被判入狱，该政权继续失去使其有别于中共国其他地区的自由。
+这极为危险，这是我们欧洲的科学家明确说
+this is extremely dangerous, this is what our European scientists clearly stated
 
-在与台湾（北京声称拥有事实上的独立岛屿）关系日益紧张的情况下，该声明还反对“分裂主义活动”和“外国干涉”，因为其民选政府与美国和欧盟的接触增加。
+文贵，这个药比疫苗还毒，他说这个毒到什么程度呢
+Wengui (Miles), this medicine is more poisonous than vaccines, how much does he say is it poisonous?
 
-为结束过去四个十年超常增长带来的不平等，全会呼吁实现习近平倡导的“共同繁荣”。矛盾的是，它的结束恰逢中共国的光棍节，它已成为世界上最大的在线销售日，并且在控制大型科技公司的运动中以比平时更少的炫耀来庆祝。
+他说很多人以为吃的药就不直接加入身体，
+He said that many people think that the medicine they take is not directly into the body
 
-在习近平将在明年秋季召开第二十次代表大会后，习近平将继续执政，声明呼吁他的干部、人民和军队与他一起实施他的“中国特色社会主义”。在新时代。中国共产党第一个百年党庆，正准备再创百年“奇迹”。从表面上的热情宣传来看，不排除百年后习近平还在掌权的可能性。
+他说你别忘了，人（的病）都是吃出来的
+He said you don’t forget, illness are all from eating
 
-**参考资料：**[abc.es][Xi Jinping se eleva al nivel de Mao y Deng para perpetuarse en el poder](https://www.abc.es/internacional/abci-jinping-eleva-nivel-y-deng-para-perpetuarse-poder-202111111758_noticia.html)
+不是打针打出来的，他说吃进去这个药，对身体的危害更加的危险
+It’s not from the injection, he said that taking this oral medicine would be even more dangerous to the body
+
+他说就是按照医学来说，它分解完以后
+He said that according to the medicine, after it is decomposed
+
+通过整个食道分解以后，他说直接影响的是你的神经系统
+after breaking down through the entire esophagus, he said that it directly affects your nervous system
+
+然后才是你的消化系统，包括血液
+then is your digestive system, including blood
+
+他说针打进去以后，直接影响这些血液循环系统
+He said that after the injection, it directly affects these blood circulatory systems
+
+他说这是很可怕的，他认为这个药吃完以后，
+He said it was terrible, and he thought that after taking this medicine
+
+他说这个人呐，他说这个人可能很慢，有慢性的副反应
+He said this person, he said that this person may have slow chronic side effects
+
+但是对人神经和血液循环系统和循环系统的毁灭性
+But it is devastating to human nerves and blood circulatory system and circulatory system
+
+就是你不知不觉，你这个人就成了傻子
+If you didn’t know it, you became a fool
+
+你就心梗、脑梗、心脏病死，而且不可寻找就这更加没那么直接
+People die from myocardial infarction, cerebral infarction, heart attack, and you can’t find it, it’s not so direct
+
+不是血管出来了，爆管了，脑梗了，心梗了
+It’s not only the blood vessel burst, the brain infarction, the myocardial infarction
+
+你慢慢的就是癌症，然后什么慢性病，爆发症，就死了
+People slowly get cancer, and then any chronic diseases, outbreaks and then die
+
+他说这个太毒了，他对冠状病毒疫苗咱们这个科学家都没那么激动
+He said this is too toxic, and he is not so agitated about the coronavirus vaccine as a scientist
+
+这就是今天告诉大家，碰都别碰，想都别想
+This is what I told you today, don’t touch it, don’t even think about it
+
+谢谢
+Thank you
 
 * * *
 
-*审核：蚂蚁兄弟
-校对：信心满满
-发布：信心的选择*
+Date:11/14/2021
+原视频标题: 中共病毒口服药比疫苗还毒
+CCP virus oral medicine is more poisonous than vaccine
+原视频日期：2021/11/10
+原视频链接 [https://twitter.com/se1y7cblljselva/status/1459004434735067136?s=24](https://twitter.com/se1y7cblljselva/status/1459004434735067136?s=24)
+任务编号：KC255（2858）
+视频时间段 : 0:00-2:16
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,72 +2,50 @@
 ---
 
 
-## 斯蒂芬·K·班农敦促在华盛顿特区联邦调查局现场办公室外的支持者要关注“信号，而不是噪音”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672679/)
+## 拜登政府拒绝中共国要求其改变政策的“毛主义”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672721/)
 
-Stephen K. Bannon
-斯蒂芬·K·班农
+比尔·格茨(Bill Gertz) 2021年11月14日在《华盛顿时报》发表文章：拜登政府正式拒绝先前天津会谈中北京政府提出的两份要求清单
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-123.png)北京在国务院高级官员访华期间提出了两份不满清单
+据《华盛顿时报》报道：拜登政府拒绝了中共政府提出的两份要求清单，清单是先前在天津会谈中，中共方面提出的中美重新建立关系的先决条件，拜登政府认为这份清单是不严肃的。
 
-I just want to say, tell everybody, it live stream on Gettr right now
-我只想告诉正在看盖特直播
+这些清单是在今年7 月 26 日的中美天津会谈时候交给副国务卿温迪·R·谢尔曼 (Wendy R. Sherman)的。中共在清单中列出了他们认为的美国对华16 项“错误”的政策和 10 项不满意事项。并声明这些内容都是在中美关系改善之前需要纠正的问题。
 
-everybody watching in the War Room.
-和正在观看战斗室的大家
+在拜登总统和中国国家主席习近平周一举行的虚拟会议期间，预计这些事项不会在会议上提出。
 
-We’re here today.
-我们今天在这里
+习近平上周在中国共产党的一次会议上，为他自己可以在中共领导人正常的两个五年任期之外继续担任党总书记一事奠定了基础。
 
-I don’t want anybody take their eye off the ball but we do every day.
-我不希望任何人把注意力从我们每天都做的事情上移开
+一位美国官员表示，向谢尔曼女士提交清单的方式不严肃，不会对美国的政策产生任何影响。他将这些清单描述为“马克思主义/毛主义的‘你必须做这些事情’”的要求。
 
-Okay, we got the Hispanics come on our side,
-好的？我们有西班牙裔美国人站在我们这边
+“除了大笑之外，没有任何回应……没有，零，”这位官员说。“我们从未参与其中，我们没有回应，我们也不会回应。”
 
-African Americans coming on our side.
-非裔美国人站在我们这边
+这些名单似乎反映了中共国领导层内部团体之间就如何与美国打交道发生了官僚内斗。
 
-We’re taking down the Biden regime
-我们正在推翻拜登政权
+一组领导人支持非常强硬的反美政策，并在党的高级领导层——中央委员会和中央军委中争夺权力。另一组倾向于对美国采取缓和的立场，并希望进行最低限度的接触。
 
-every day the focus you got
-每一天这都是你的焦点
+据说这些差异只是细微差别，因为两个阵营都试图破坏和限制美国，但两个阵营使用了非常不同的策略。
 
-Raheem Kassam today, you got Dr. Peter Navarro, Captain Bannon
-今天有拉希姆·卡萨姆，你有彼得·纳瓦罗博士，班农上尉
+这两份清单是北京对拜登政府宣布的寻求与中国合作和对抗的双轨政策的回应，这也是要求拜登政府转变川普政府的对华政策。
 
-and you’re going to have Boris Epstein the whole show intense.
-而且鲍里斯·爱泼斯坦会在战斗室节目里，节目会非常激烈
+经过几十年的对华绥靖政策，前总统川普领导下的美国政府认识到中共国正在寻求取代美国主导的民主世界秩序、意图树立反民主的共产主义品牌的信念之后，制定了一系列政策。
 
-we got polling out, economic data out, and everything
-我们会分析民调、经济数据和其他
+拜登政府保留了许多川普政府的对华政策，但官方对北京的言辞明显软化，一些观察人士称，这些软弱的言辞目的是争取中共国在气候变化方面的合作。美国和中共国特使在刚刚结束的苏格兰格拉斯哥联合国气候峰会上公开站在一起, 并于周六闭幕前发表了一份关于全球气候行动必要性的联合声明。
 
-I want you guys to stay focused on message
-我希望你们能保持对信息的专注
+哈德逊研究所的中国问题专家迈克尔白邦瑞(Michael Pillsbury)说，北京认为拜登政府中的对华鹰派已经被边缘化，至少目前是这样。
 
-remember signal not noise.
-记住信号，忽略噪音
+中共的外交部长王毅交出的清单中的一个核心要求是：美国不要针对中国国内的马克思列宁主义政治制度。中共外交部发言人赵立坚今年7月27日在北京对记者说，结束美国反对中国的共产主义是三个“底线”之一。
 
-This is all noise that signal.
-这些都是那个信号的噪音
+“美国不得挑战、诽谤甚至企图颠覆中国特色社会主义道路和制度，”他说。
+“中国特色社会主义”是中共对共产主义市场导向的委婉说法。中共在扩大自身实力和国际影响力的同时, 也在寻求削弱美国的国际影响力.。在习近平的领导下，这种共产主义重新占据了主导地位。
 
-Thank you very much
-非常感谢
+另外两个优先事项是赵先生所说的美国破坏中国发展的努力，以及要求华盛顿不挑战中国的主权或领土完整. 这是指中国对大部分南海和北京的所有权主张, 以及北京最近在台湾附近的军事入侵，作为加强自治的台湾与大陆重新统一的一部分。
 
-* * *
+原文链接: [https://m.washingtontimes.com/news/2021/nov/14/biden-administration-rejects-chinese-maoist-demand/](https://m.washingtontimes.com/news/2021/nov/14/biden-administration-rejects-chinese-maoist-demand/)
 
-Date:11/15/2021
-原视频标题: Stephen K. Bannon urges supporters outside FBI Field Office in D.C. to focus on “signal, not noise,”
-斯蒂芬·K·班农敦促在华盛顿特区联邦调查局现场办公室外的支持者要关注“信号，而不是噪音”
-原视频日期：2021/10/15
-原视频链接: [https://gettr.com/post/ph0i3m1249](https://gettr.com/post/ph0i3m1249)
-任务编号：KE346（2891）
-视频时间段 : 0:50-1:25
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 小战蚁
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
+翻译： 美国洛杉矶盘古农场 – Freeearth
+校对： 美国洛杉矶盘古农场 – 小象的奶瓶
+编辑： 美国洛杉矶盘古农场 – 小象的奶瓶
+发布： 美国洛杉矶盘古农场 – 恩典
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 

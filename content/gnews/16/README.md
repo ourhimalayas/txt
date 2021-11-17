@@ -2,144 +2,64 @@
 ---
 
 
-## 习拜视频会极大羞辱美国让西方感到彻底威胁
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672627/)
+## 全球收购和疫苗任务背后的黑石和先锋公司（二）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1672670/)
 
-[https://gtv.org/video/id=61939ccd182702508105db72](https://gtv.org/video/id=61939ccd182702508105db72)
+编译：七叶之芒
 
-郭文贵
-Miles Guo
+**【接上篇：**[全球收购和疫苗任务背后的黑石和先锋公司（一）](https://gnews.org/zh-hans/1672581/)】
 
-那么现在中美之间发生什么问题
-So currently what’s the problem between China and the U.S.?
+**同一个小集团也拥有其他的东西**
 
-供应链彻底崩塌
-It’s the supply chain collapsed completely
+同样的所有权趋势存在于所有其他行业。吉伦提供了另一个例子来证明这一说法并非夸大其词：
 
-美国在这种情况下希望中共
-Under such circumstances, (the Biden administration) hopes that Xi
+*“比方说，我们想计划一个假期。在我们的电脑或智能手机上，我们通过Skyscanner和Expedia等网站寻找飞往某地的廉价航班，这两个网站都是由同一批机构投资者[Vanguard、Blackrock和State Street Corporation]拥有。*
 
-你一定给我供应链
-must maintain the supply chain to the U.S.
+*我们乘坐众多航空公司[美国航空、法国航空、荷兰航空、美国联合航空、达美航空和Transavia]中的一家，这些航空公司的大部分股份往往由同一投资者拥有……*
 
-就奴隶、奴隶、奴隶
-which is cheap labor(Chinese people)
+*我们[乘坐]的航空公司在大多数情况下是波音或空客。同样，我们看到同样的[机构股东]。我们通过Bookings.com或AirBnB.com寻找酒店或公寓。一旦我们到达目的地，我们出去吃饭，我们在Trip Advisor上写评论。同样的投资者是我们旅程中每个方面的基础。*
 
-而且美国已经对中国开启签证
-And also, the U.S. has opened visa to China
+*他们的力量甚至更远，因为即使为飞机提供燃料的煤油也来自他们众多的石油公司和炼油厂之一。就像飞机所使用的钢铁来自于他们众多的矿业公司之一。*
 
-第二，我现在要让你开始保证我的老百姓基本的生活
-Second, (the Biden administration) now hopes that Xi can guarantee basic living goods to the American people
+*这个由投资公司、银行和共同基金组成的小俱乐部，也是我们原材料来源的初级产业的最大股东。“*
 
-便宜的内裤，便宜的旅游鞋还得给我
-i.e. the cheap underwear, low-cost travel shoes need to resume in market
+全球食品工业所依赖的农业产业，以及其他任何主要产业也是如此。这些机构投资者拥有世界最大的种子生产商拜耳公司；他们拥有最大的纺织品制造商和许多最大的服装公司。
 
-第三，你的房地产千万别一下倒，慢慢倒
-Third, (the Biden administration) demands that the real estate business must avoid quickly collapsing, slowly collapsing (is acceptable)
+他们拥有炼油厂、最大的太阳能电池板生产商以及汽车、飞机和武器工业。他们拥有所有主要的烟草公司，以及所有主要的药品公司和科研机构。他们还拥有大型百货公司和eBay、Amazon和AliExpress等在线市场。
 
-第四，最重要咱俩要合作
-Forth, the most important thing (to the Biden administration) is the cooperation between the Biden administration and Xi
+他们甚至拥有我们使用的支付方式，从信用卡公司到数字支付平台，以及保险公司、银行、建筑公司、电话公司、餐饮连锁店、个人护理品牌和化妆品品牌。
 
-咱得忽悠老百姓
-Both of them have to fool their ordinary people
+无论你看哪个行业，顶级股东，因此也是决策者，都是一样的：Vanguard、Blackrock、State Street和/或Berkshire Hathaway。在几乎所有的大公司中，你都能在前10名机构投资者中找到这些名字。
 
-明天无限美好，继续画大饼
-that tomorrow is wonderful and continue to dream big
+**谁拥有世界上的投资公司？**
 
-一切的一切都为了今年的中期选举
-Everything is for the mid-term election this year
+深入了解后，我们发现这些主要的投资公司又被他们自己的股东所拥有。这个计划最令人惊奇的一点是，机构投资者–除了我们在这里关注的主要四家之外，还有许多机构投资者–也相互拥有。他们都是对方公司的股东。
 
-就是民主党绝对不能输
-that is, the Democratic Party must not lose
+在金字塔的顶端—“最大的俄罗斯套娃”–我们会发现先锋公司和黑石公司（Vanguard和Blackrock）。“他们一起形成了一个巨大的网络，我们可以把它比作一个金字塔”，吉伦说。较小的机构投资者，如花旗银行、ING和T. Rowe Price，被较大的投资公司所拥有，如北方信托、资本集团、3G资本和KKR。
 
-佛吉尼亚几乎废掉了拜登总统一半以上的能力
-(The winning of) Virginia election has almost abolished more than half of President Biden’s capabilities
+这些投资者又被更大的投资公司所拥有，如高盛和惠灵顿市场，而这些公司又被更大的公司所拥有，如伯克希尔哈撒韦和道富。在金字塔的顶端–最大的“俄罗斯套娃”—先锋和黑石（Vanguard和Blackrock）。
 
-你在这个中期选举完几乎就完了
-(The Biden administration) most likely would be over after the mid-term election
+*“这两家公司的力量是我们几乎无法想象的”，*吉伦*说。“他们不仅是地球上每家大公司的最大机构投资者，他们还拥有这些公司的其他机构投资者，使他们完全处于垄断地位。”*
 
-所以习在这种情况下列出这十几条羞辱美国
-Therefore, (even though) Xi Jinping listed a dozen requirements for humiliating the United States under these circumstances
+吉伦引用了彭博社的数据，显示到2028年，先锋和黑石预计将共同管理价值20万亿美元的投资。在这个过程中，他们将拥有地球上的几乎一切。
 
-拜登都要跟他通个视频会议
-Joe Biden still preferred to have a virtual meeting with Xi
+**黑石–政府的第四部门**
 
-我告诉你们
-Let me tell you
+彭博社也将黑石称为“政府的第四部门”，因为它与中央银行关系密切。黑石实际上是向中央银行、美联储借钱，并且是他们的主要顾问。
 
-对咱新中国联邦的意义可大了去了
-It’s of great significance to our new Chinese Federal State of China
+在布什、奥巴马和拜登政府时期，黑石有数十名员工在白宫担任高级职务。黑石还开发了中央银行使用的计算机系统。
 
-他公布完这个以后
-After he announced this
+【接下篇：全球收购和疫苗任务背后的黑石和先锋公司（三）】
 
-证明啥？七哥这几条我都提前发给
-What does it prove? I have already sent those requirements in advance
-
-咱们的政治合作者了
-to our political collaborators
-
-他们当时说：“真的吗？Miles？”
-They all asked that “was that real? Miles”
-
-你说这外国人都很天真
-See, these foreigner are very naive
-
-他都说这是真的吗
-They all asked whether it was real
-
-结果，证明郭文贵又是伟大正确的
-As a result, it has been proved again that Miles Guo is greatly correct
-
-新中国联邦情报准确
-and the New Federal State of China’s Intelligence is accurate
-
-哇塞，每次都给我们逆增上缘
-Wow, it helps us every time, both positively and negatively
-
-那真出来了，美国人、外国人现在害怕了
-(Listed serval requirements) have come out. The American people and foreigners are now scared
-
-这真是习近平拿美国人不当回事儿啊
-This is really indicated that Xi Jinping is not treating the American people as a matter
-
-而这种事公布对拜登是政治需求
-and this kind of announcement is a political demand of Biden
-
-对美国和欧洲对待西方
-In regards to how the United States and Europe treating the West
-
-他感觉到彻底的威胁
-He has felt an exhaustive threat
-
-这是为什么在西方的天主教、基督教系统
-This is the reason that in the Western’s Catholic and Christian systems
-
-你没有好话说的时候你就闭嘴
-you need to keep your mouth shut if you have nothing to say
-
-西方人随便批评人是很大的问题
-It is a serious matter for Westerners to criticize people randomly
+**参考资料：**[truthunmuted.org] [Blackrock and Vanguard Behind the Global Takeover and Vaccine Mandates](https://truthunmuted.org/blackrock-and-vanguard-behind-the-global-takeover-and-vaccine-mandates/)
 
 * * *
 
-Date: 11/14/2021
-原视频标题: 习拜视频会极大羞辱美国让西方感到彻底威胁
-Xi and Biden’s Virtual Meeting extremely humiliated the United States and made the West feel exhaustive threatened
-原视频日期：2021/11/12
-原视频链接: [https://twitter.com/se1y7cblljselva/status/1459850200227676160?s=24](https://twitter.com/se1y7cblljselva/status/1459850200227676160?s=24)
-任务编号：KC256（2879）
-视频时间段 : 0:00-1:59
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*审核：蚂蚁兄弟
+校对：信心满满
+发布：信心的选择*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
 
  
 
