@@ -2,71 +2,110 @@
 ---
 
 
-## 拜登在峰会上没有向习近平施压，联邦政府是COVID掩盖的一部分
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1675866/)
+## 利益冲突？比尔·盖茨向主要媒体提供了3.19亿美元（2/3）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1675870/)
 
-编译：七叶之芒
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-429.png)**By [Alan Macleod](https://childrenshealthdefense.org/authors/alan-macleod/)**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-14-1.jpg)乔·拜登总统在 2021 年 11 月 15 日的虚拟峰会上会见中国国家主席习近平时做手势。
-曼德尔·甘/法新社通过盖蒂图片社
+BMGF 还为全球范围内的各种特定媒体活动付费。例如，自 2014 年以来，它已向印度人口基金会捐赠了 570 万美元。以制作促进性健康和生殖健康的戏剧，旨在增加南亚的计划生育方法。
 
-**称其为“武汉门”：**
+与此同时，它向塞内加尔的一个组织拨款超过 350 万美元，用于开发以健康信息为特色的广播节目和在线内容。
 
-COVID-19大流行病是由武汉病毒研究所的实验室造成的，这一科学和间接的证据接近于决定性的。中共国掩盖了关于起源和最初传播的关键证据是无可争议的。
+支持者认为，这是在帮助资金严重不足的媒体，而反对者可能认为，这是一个亿万富翁用他的钱将他的想法和观点植入媒体的案例。
 
-但最近公布的文件显示了美国自己与武汉蝙蝠冠状病毒危险研究的联系程度，提出了一个可怕的可能性，即美国纳税人的资金可能促进了COVID的产生–而且美国政府是掩盖真相的一部分。
+**盖茨基金会支持的媒体项目：**
 
-查清此事并追究中共国的责任应该是乔-拜登总统的首要任务–他本周在与中国国家主席习近平的虚拟峰会上有机会这样做。但白宫的会议摘要甚至没有提到COVID，表明总统完全回避了这个爆炸性的话题。
+- 欧洲新闻中心European Journalism Centre — [$20,060,048](https://www.gatesfoundation.org/about/committed-grants?q=stichting%20journalism).
+- 加拿大世界大学服务World University Service of Canada  — [$12,127,622](https://www.gatesfoundation.org/about/committed-grants?q=World%20University%20Service%20of%20Canada).
+- 好故事有限公司Well Told Story Limited — [$9,870,333](https://www.gatesfoundation.org/about/committed-grants?q=Well%20Told%20Story).
+- 解决方案新闻公司Solutions Journalism Inc. — [$7,254,755](https://www.gatesfoundation.org/about/committed-grants?q=Solutions%20Journalism%20inc).
+- 娱乐产业基金会Entertainment Industry Foundation — [$6,688,208.](https://www.gatesfoundation.org/about/committed-grants?q=Entertainment%20Industry%20Foundation)
+- 印度人口基金会Population Foundation of India — [$5,749,826](https://www.gatesfoundation.org/about/committed-grants?q=Population%20Foundation%20of%20India).
+- 参与者媒体Participant Media — [$3,914,207](https://www.gatesfoundation.org/about/committed-grants?q=participant%20media).
+- 法国非洲健康教育网络Réseau Africain de l’Education pour la santé- — [$3,561,683](https://www.gatesfoundation.org/about/committed-grants/2017/11/opp1181104).
+- 新美国New America — [$3,405,859](https://www.gatesfoundation.org/about/committed-grants/2012/09/opp1065829).
+- 全非洲基金AllAfrica Foundation — [$2,311,529](https://www.gatesfoundation.org/about/committed-grants/2010/10/opp1011624).
+- 国际步骤Steps International — [$2,208,265](https://www.gatesfoundation.org/about/committed-grants/2010/10/opp1011909).
+- 倡导和研究中心Center for Advocacy and Research — [$2,200,630](https://www.gatesfoundation.org/about/committed-grants/2005/02/opp30111).
+- 芝麻工作坊The Sesame Workshop — [$2,030,307](https://www.gatesfoundation.org/about/committed-grants/2012/11/opp1052276).
+- 西非帕诺斯研究所Panos Institute West Africa — [$1,809,850.](https://www.gatesfoundation.org/about/committed-grants/2010/11/oppgd1260)
+- 开放城市实验室Open Cities Lab — [$1,601,452.](https://www.gatesfoundation.org/about/committed-grants/2020/09/inv019364)
+- 哈佛大学Harvard University — [$1,190,527](https://www.gatesfoundation.org/about/committed-grants/2005/10/opp39528).
+- 学习Learning Matters — [$1,078,048](https://www.gatesfoundation.org/about/committed-grants?q=learning%20matters).
+- 亚伦·戴蒙德艾滋病研究中心The Aaron Diamond Aids Research Center — [$981,631](https://www.gatesfoundation.org/about/committed-grants/2004/10/opp35735).
+- 汤姆森媒体基金会Thomson Media Foundation — [$860,628](https://www.gatesfoundation.org/about/committed-grants/2010/11/opp1005454).
+- 通信联盟媒体中心Communications Consortium Media Center — [$858,000](https://www.gatesfoundation.org/about/committed-grants?q=Communications%20Consortium%20Media%20Center).
+- 故事情节StoryThings — [799,536](https://www.gatesfoundation.org/about/committed-grants?q=Storythings).
+- 农村战略中心Center for Rural Strategies — [$749,945](https://www.gatesfoundation.org/about/committed-grants?q=Center%20for%20Rural%20Strategies).
+- 新风险基金The New Venture Fund — [$700,000.](https://www.gatesfoundation.org/about/committed-grants/2013/07/opp1092058)
+- 向日葵媒体Helianthus Media — [$575,064.](https://www.gatesfoundation.org/about/committed-grants/2012/07/opp1063354)
+- 南加州大学University of Southern California — [$550,000](https://www.gatesfoundation.org/about/committed-grants/2016/08/opp1151590).
+- 世卫World Health Organization — [$530,095](https://www.gatesfoundation.org/about/committed-grants/2005/06/opp38010).
+- 越南河童三角洲国际Phi Delta Kappa International — [$446,000](https://www.gatesfoundation.org/about/committed-grants?q=phi%20delta%20kappa).
+- 希腊能力媒体Ikana Media — [$425,000](https://www.gatesfoundation.org/about/committed-grants/2019/10/inv003285).
+- 西雅图基金Seattle Foundation — [$305,000](https://www.gatesfoundation.org/about/committed-grants?q=seattle%20foundation%20journalism).
+- NC • 教育 EducationNC — [$300,000](https://www.gatesfoundation.org/about/committed-grants/2018/10/opp1198393).
+- 北京国客互动Beijing Guokr Interactive — [$300,000.](https://www.gatesfoundation.org/about/committed-grants?q=Beijing%20Guokr%20)
+- 上升浪Upswell — [$246,918](https://www.gatesfoundation.org/about/committed-grants?q=upswell).
+- 非洲科学院The African Academy of Sciences — [$208,708.](https://www.gatesfoundation.org/about/committed-grants?q=African%20Academy%20of%20Sciences%20journalism)
+- 寻求现代应用程序以实现真正的转型Seeking Modern Applications for Real Transformation (SMART) — [$201,781](https://www.gatesfoundation.org/about/committed-grants/2021/08/inv028852).
+- 湾区视频联盟Bay Area Video Coalition — [$190,000](https://www.gatesfoundation.org/about/committed-grants?q=Bay%20Area%20Video%20Coalition).
+- 强大的基金会PowHERful Foundation — [$185,953](https://www.gatesfoundation.org/about/committed-grants/2019/05/inv000553).
+- 佛罗里达州家长和教师大会PTA Florida Congress of Parents and Teachers — [$150,000.](https://www.gatesfoundation.org/about/committed-grants/2016/09/opp1160888)
+- 保护社会ProSocial — [$100,000.](https://www.gatesfoundation.org/about/committed-grants?q=prosocial)
+- 波士顿大学Boston University — [$100,000](https://www.gatesfoundation.org/about/committed-grants/2012/10/opp1069881).
+- 国家家庭学习中心National Center for Families Learning — [$100,000.](https://www.gatesfoundation.org/about/committed-grants/2020/05/inv016187)
+- 发展媒体国际Development Media International — [$100,000](https://www.gatesfoundation.org/about/committed-grants/2014/04/opp1107964).
+- 马来西亚艾哈迈杜贝洛大学Ahmadu Bello University — [$100,000](https://www.gatesfoundation.org/about/committed-grants/2013/10/opp1097549).
+- 印度尼西亚电子健康和远程医疗协会Indonesian eHealth and Telemedicine Society — [$100,000](https://www.gatesfoundation.org/about/committed-grants/2018/05/opp1189973).
+- 电影制作人合作社The Filmmakers Collaborative — [$50,000](https://www.gatesfoundation.org/about/committed-grants/1999/02/opp99).
+- 佐治亚州公共广播基金会公司。Foundation for Public Broadcasting in Georgia Inc. — [$25,000](https://www.gatesfoundation.org/about/committed-grants/2010/09/opp1025410).
+- 自我完善SIFF — [$13,000](https://www.gatesfoundation.org/about/committed-grants/2014/04/opp1109278).
 
-事实上，美国人民是至少三个COVID掩盖事件的受害者–从武汉到华盛顿特区的问责时间已经到来。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/05/image0-1-124.jpg)路透社/托马斯彼得/文件照片
+Total: $97,315,408
 
-**掩饰一：**中共国政府从第一天起就对世界撒谎并隐藏有关新型冠状病毒的信息，销毁证据，压制举报人，并隐瞒人民解放军参与WIV（武汉病毒研究所）冠状病毒研究的事实。北京自始至终的行为让人毫不怀疑该实验室是病毒的真正来源–而且中共国是一个计划利用生物学的力量来对抗和赢得未来战争的对手。
+**$3.194 亿还不止**
 
-**掩饰二：**我们自己的国家卫生研究院及其资金中介机构生态健康联盟也在撒谎。事实证明，他们多年来一直在资助WIV的蝙蝠冠状病毒的功能增益研究，这是非常有问题和有风险的。(“功能增益”是指改变微生物以提高某些方面，如传播性或毒力的实验。)
+加起来，这些盖茨赞助的媒体项目总计达到 3.194 亿美元。
 
-事实上，从最近公布的文件中可以看出，参与WIV未被承认的生物武器相关研究和开发项目的几位关键科学家的工资，除了中国人民解放军之外，还得到了来自美国国立卫生研究院、五角大楼和国务院的美国纳税人资金的补充–因此，集体罪责超出了国家过敏和传染病研究所负责人安东尼-福奇的范围，尽管他对允许联邦政府资助这项危险研究的支持至关重要。
+然而，这份非详尽清单也存在明显的不足，这意味着：**真实数字无疑要高得多**。首先，它不计算次级赠款——接受者向世界各地的媒体提供的资金。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/fauci.jpg)J. Scott Applewhite-Pool/Getty Images
+尽管盖茨基金会营造了一种对自己开放的氛围，但实际上几乎没有关于每笔赠款的资金用途的宝贵公开信息，除了基金会本身在其网站上写的简短的一两句话描述 .
 
-那么，为什么福奇在向国会作证时多次声称，NIH从未资助过武汉的功能增益研究？而且，为什么NIH未能提供国会要求的拨款记录？
+只计算对新闻组织本身或项目的捐赠，这些捐赠可以从盖茨基金会网站上的信息中识别为媒体活动，**这意味着数千笔具有媒体元素的赠款不会出现在此列表中**。
 
-换句话说。为什么福奇要向国会撒谎–一再地、有意地撒谎？
+一个典型的例子是， BMGF 与 ViacomCBS 的合作伙伴关系，后者控制着 CBS 新闻、MTV、VH1、Nickelodeon 和 BET。当时的媒体报道指出，盖茨基金会付钱给这家娱乐巨头，让这家娱乐巨头在其节目中插入信息和公益广告。而且盖茨已经进行干预，以改变 ER 和法律与秩序：SVU 等热门节目的故事情节。
 
-现在还不能确定美国WIV的研究经费是否产生了COVID-19。但是，所有这一切的发生足以让我们的公共卫生主管决定关闭队伍，并加倍坚持中国共产党的正统观念，即该病毒是由动物到人类的传播而产生的，尽管有大量证据表明情况并非如此。
+然而，在检查 BMGF 的拨款数据库时，找不到“维亚康姆”和“哥伦比亚广播公司”，可能有问题的拨款（总额超过 600 万美元），只是将该项目描述为“旨在提高高中毕业率和专门针对家长和学生的中学后完成率”，**这意味着它不计入官方总数。**
 
-**掩饰三：**拜登在追求与习近平重归于好的过程中，与我们的情报界合谋，竭力掩盖对COVID-19来源的任何认真调查。
+这样的例子肯定还有很多。“对于一个经常大肆宣扬透明度重要性的税收特权慈善机构来说，盖茨基金会对其资金流动的保密程度是惊人的，”**蒂姆·施瓦布是为数不多的调查过这位科技亿万富翁的调查记者之一**，他告诉 MintPress。
 
-拜登拒绝回答记者关于他是否会在峰会上要求习近平回答的问题，这并非巧合。他就任总统后的第一个行动就是关闭对COVID-19来源的调查–包括我在2020年在国务院领导的调查，该调查提出了关于WIV秘密活动的令人不安的科学和间接证据。
+也不包括旨在为学术期刊撰写文章的赠款。虽然这些文章并不适合大众消费，但它们经常构成主流媒体报道的基础，并有助于围绕关键问题形成叙事。
 
-2021年5月，当媒体对实验室泄密理论的兴趣变得无法忽视时，拜登下令对起源问题进行有时限的情报审查。这显然是一场赌博，目的是争取时间，让人觉得在这个问题上有行动。当情报界基本上耸耸肩说：“我们永远无法确定”时，总统也同样无动于衷，并对进一步追究这个问题表现出零兴趣。
+盖茨基金会为学术资源提供了广泛的支持，至少有 1360 万美元用于为著名的医学期刊《柳叶刀》创作内容。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Biden-US-China-1.jpg)美联社照片/苏珊沃尔什
+当然，即使是为纯粹的研究项目提供给大学的资金，最终也会出现在学术期刊上，并最终进入大众媒体的下游。学术界承受着在著名期刊上发表他们的研究结果的巨大压力：“**要么出版，要么灭亡****”****是大学部门的口头禅**。
 
-很明显，政府认为对COVID的起源进行强有力的调查是对其重启中共国的阻碍，并且基本上已经成为中共掩盖真相的一方。
+因此，即使是这类资助也会对我们的媒体产生影响。这些资助印刷书籍或建立网站的资金都不计入总数，尽管它们也是媒体形式。
 
-北京在我们自己的政府的同意下–可能是无意中的合作–正在逃脱全球大规模谋杀。一个共产主义独裁政权对真相的蔑视并不奇怪；但美国国立卫生研究院对合作的抵制以及拜登政府的鸵鸟姿态应该让每一个美国人都感到担忧。我们需要答案–现在。
+让我们在文章的最后半部分看看“圣比尔”更多的操控全球的细节。
 
-*本文作者：大卫-阿什是哈德逊研究所的高级研究员。他在国务卿迈克-蓬佩奥的领导下领导了国务院对COVID-19的起源的调查。*
+**新闻来源：**[childrenshealthdefense.org][Conflict of Interest? Bill Gates Gave $319 Million to Major Media Outlets, Documents Reveal](https://childrenshealthdefense.org/defender/bill-melinda-gates-foundation-media-objectively/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=5338e30e-cea0-4bbb-a3de-000ded99a327)
 
-**简评：**
+**相关文章请阅读：利益冲突？比尔·盖茨向主要媒体提供了3.19亿美元（1/3）**
 
-**作为美国总统和中共国领导人的峰会，自然是全世界的焦点，然而，在这次会议上，两国领导人都只字不提这场几乎给人类带来了浩劫的大疫情。似乎他们都在有意避开病毒这个问题。他们在怕什么？还有多少不为人知的真相被他们隐瞒？**
-
-**这个世界上任何人都改变不了的便是真相。这一次造成了五百多万人死亡，两亿多人感染的中共病毒的真相，是不会改变的。拜登对病毒溯源问题的置之不理，和福奇博士的满口谎言，都佐证了在病毒和疫苗背后隐藏着惊天的阴谋。**
-
-**我们相信真相最终会公诸于世，我们希望那一天到来得快一些。希望正义不要太迟的到来，因为人类已经陷入到了有史以来最大的灾难之中——病毒、疫苗。**
-
-**参考资料：**[nypost][Of course Biden didn’t press Xi at their summit: The feds are part of the COVID coverup](https://nypost.com/2021/11/17/biden-didnt-press-xi-at-summit-feds-part-of-covid-coverup/)
+**利益冲突？比尔·盖茨向主要媒体提供了3.19亿美元（3/3）**
 
 * * *
 
-*审核：蚂蚁兄弟
-校对：阿伯塔
-发布：信心的选择*
+***审核：文乐
+校对：信心满满
+发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+
+
 
  
 
