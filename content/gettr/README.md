@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/18/2021 8:17 PM (UTC)`
+
+11月18日: 笨笨说，“Snow，出来跟我玩儿嘛……” Snow说, “我不要啦，让我静静的做个美男子好不好啦 ！”😆😆😆😆😆😅😅😅😅😅 
+![img](https://media.gettr.com/group4/getter/2021/11/18/20/17/dca0bb66-91da-0a0a-e81d-8bf35e06da61/out.jpg)
+
+---
+
 `@miles 11/18/2021 8:09 PM (UTC)`
 
 11月18日: 笨笨喜欢啃啃啃… 玩得好开心啊～ 😘😘❤️❤️❤️❤️
@@ -293,13 +300,6 @@ Shop 'The Drop' at www.GFashion.com<br/><br/>@gfashion <br/>@ddnyc
 
 Dr. Shankara Chetty (a general practitioner with a natural science background in genetics, advanced biology, microbiology and biochemistry): <br/>Spike protein is one of the most contrived toxins or poisons that man has ever made, and the aim of this toxin is to kill billions without anyone noticing it.<br/><br/>Shankara Chetty 博士（在遗传学、高等生物学、微生物学和生物化学领域具有自然科学背景的全科医生）：<br/>刺突蛋白是人类有史以来最精心策划的毒素或毒药之一,这种毒素的目的是在没有人注意的情况下杀死数十亿人。 #vaccinedeath #covid19 #covidtruth
 ![img](https://media.gettr.com/group25/origin/2021/11/15/11/37/da29db16-3ed1-6243-c921-b24ff40a42f7/out.jpg)
-
----
-
-`@miles 11/15/2021 10:41 AM (UTC)`
-
-11/14/2021 Miles Guo: Xi’s evil plan is to bring down the world’s economy by using the CCP’s real estate crisis so that he can invade Taiwan during the chaos, but this will speed up the world’s recognition of the legitimacy of the New Federal State of China; Jack Ma will either run away or get killed; Alvin Jiang mistakenly believed Singapore was a safe place to hide his money, indicating there is no real smart guy in the CCP<br/><br/>11/14/2021 文贵直播：习妄图利用中共房地产崩溃搞垮世界经济，以趁乱打台湾，而这将加速世界承认新中国联邦；马云要么逃走，要么被弄死；江志成误以为新加坡可安全藏钱，这说明中共内部没有聪明人<br/>
-![img](https://media.gettr.com/group40/getter/2021/11/15/10/41/3e7fb3f2-d630-8d40-ab2d-2a509f7313e7/out.jpg)
 
 ---
 
