@@ -2,33 +2,32 @@
 ---
 
 
-## 中共国内又一餐饮老板自杀身亡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1674800/)
+## 日本政府将一体化推进行政体制数字化改革
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1674864/)
 
-作者：纽约香草山教育部 – Noemi
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月15日，中共媒体消息显示，中共国内又一位餐饮老板选择烧炭自杀。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-34.jpg)
-消息人士透露，该餐饮老板原籍河南郑州，自2019年开店至今，他经历过修路、疫情、水灾、塌方等诸多中共人为制造的灾难。在花光积蓄、走投无路之后，他最终选择了烧炭自杀，只留下了三封遗书和890元遗产。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-15.png)
+[图片来源](https://www.hossky.com/article/4170.html)
 
-评论指出，在中共国内，该餐饮老板的惨痛经历并非个例。加之此前郭文贵先生就曾爆料，由于新冠病毒以及人为水灾，中共国内有数百万的普通民众家破人亡。与此同时，因中共经济崩塌而引发的墙内普通民众跳楼、自杀潮，也仅仅只是开始。
+11月16日，日本数字临时行政调查会在首相官邸召开首次会议，研究一体化推进行政体制数字化改革事宜。
 
-参考链接：
-[42岁郑州饭店老板自杀，存款仅890元：中年人的苦，都是没钱闹的](https://www.163.com/dy/article/GONMAKER05449T49.html)
+政府表示将在年内制定“完全数字化及自动化原则”的改革共同指针，诸如原则上废除规定必须书面提交或见面的制度等，并将基于指针制定具体措施，旨在实现所有行政事务在线办理。计划明年春季汇总第一次建议，在后年例行国会上实施必要的法律修改。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+临调由相关阁僚和专家组成。作为临调会长的首相岸田文雄表示：“有必要把经济、社会机制改造成契合数字时代的模式。”
 
-总编：文特
-编辑：AN
-校正/发稿：Fei797
+政府方面在会上介绍设置临调的背景称：“通过设置数字厅完善了推进数字改革的体制，但不对行政体制实施结构性改革的话，国民和企业就无法实际感受到实惠。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+此外还将提出，实现行政与民间数据畅通交换的“确保相互运用性原则”、防止行政各自分散开发系统的“利用数字共同基础原则”等。
+
+信息来源：
+
+[日政府拟一体化推动数字改革力争实现事务在线办理](https://china.kyodonews.net/news/2021/11/c4e798110b68--.html)
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

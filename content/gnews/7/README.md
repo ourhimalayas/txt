@@ -2,41 +2,29 @@
 ---
 
 
-## 中共将对内对外无限强硬并继续放毒对内对外资本共产制
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1674809/)
+## 强化军事同盟针对中共！日本拟增加美军驻留经费
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1674886/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tzkp1eo_a80weipf_副本.png)
-据[2021年11月17日 文贵大直播：再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向](https://gtv.org/video/id=6194fda8e7e7703792363972)时间点1：50：21——
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-11.png)
+[图片来源](https://mil.sina.cn/gjjq/2020-02-22/detail-iimxyqvz4932583.d.html)
 
-**郭文贵先生：**现在两个政策，你记住我今天说的话，这两个政策——会对外无限强硬，你会看到无限强硬！一定会再放毒，然后在南海和东海问题上一定会强硬！这就是无限的强硬对内外政策；
+近期，针对2022年度起的驻日美军驻留经费负担，日本政府已与美方达成基本意向，并计划同意美方增额要求。
 
-第二条记住兄弟姐妹们，马上会把中国的经济、私有企业、所有的人的财富和所有的东西都会收回到中央去，然后对所有在华的企业能弄的弄、能抢的抢，就是真正地实现对内对外的资本的共产制，闭关锁国，完全拒绝对外改革开放，完全自主干、自主道路、自主研发、开拓创新、胸怀天下，然后老子来搞你天下。
+据政府相关人士17日透露的消息，日本打算把完善自卫队与美军共同使用的机场、以及联合训练等的经费作为增额部分，而不是美军基地的水电燃气费等原有负担。日本政府认为如果是这种增额，将有助于强化同盟，容易获得国民理解。双方正在进行最后阶段磋商，力争12月达成一致，明年年初签署特别协定。
 
-这两件事就在发生此时此刻，最后的结局是什么？告诉体制内的战友们，你们的所有的问题是你怎么让你活得更好，活得你安全，我今天很抱歉地回答你，我今天应天池的回答，没有一个人是安全的，没有一个人可以再过得好的——一个都不会有！不是说一部分，一个都不会！咱走着看。
+据悉，在谈判中，美方专门指出了中共加强军事力量、朝鲜核与导弹开发，导致驻日美军的重要性上升，将此作为要求日方增加负担的理由。
 
-（以下暂略）
+日美两国政府8月上旬在华盛顿举行了工作人员磋商，正式开始谈判。日本由于12月下旬将在内阁会议上敲定2022年度预算案，因此力争在此之前谈妥。
 
-撰稿：喜马拉雅的肉夹馍；
+信息来源：
 
-审核：喜马拉雅的馍夹肉；
+[详讯：日政府拟增加美军驻留经费己方负担金额](https://china.kyodonews.net/news/2021/11/16ec09faec16.html)
 
-校对：Maarago
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

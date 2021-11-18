@@ -2,34 +2,33 @@
 ---
 
 
-## 日本要闻汇编 11月18日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1674566/)
+## 澳洲政府保护63个涉及国家安全的科技项目
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1674646/)
 
-素材：东京樱花团｜GNEWS组
-![](https://lh5.googleusercontent.com/LQ0EmuS1zKFvXbgDfFt63fgphNUleZcRJO0HGWkUhrmEdt-tpCOkyGT-GNjKnrIJAS8pAHNTdQmDznyZG_Bm9oVy21OcF6ZKP0nzXKNNzGxM3fnJ9RvWKXxDfzWPwbrSLP8QIjDz)[*图片来源*](https://cdn.trt.net.tr/images/xlarge/rectangle/462a/1175/3b13/60e0068c35324.jpg?time=1637230273)
-1、[**联大人权委员会通过决议谴责朝鲜侵犯人权**](https://china.kyodonews.net/news/2021/11/6922542bb7cd.html)
+作者：MOS 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月17日，相关媒体消息称，澳大利亚政府表示，堪培拉当局已经辨识出63个对国家利益至关重要的技术领域，且政府将为这些技术项目提供数百万美元的研发资金支持，用以防止战略对手控制网络安全及医药等相关行业。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-43.jpg)
+近期，澳洲政府承诺，将在未来支出数十亿美元来实现澳洲经济的现代化，同时提振资源和关键矿产等行业的生产，并且将继续支持降低碳排放的技术。为此，澳洲政府筛选出的这63个政府保护科技项目主要覆盖了量子技术、先进网络、基因学和新型抗生素等方面。
 
-联大第三委员会（人权）会议17日通过了欧盟（EU）提交的谴责朝鲜侵犯人权的决议案。同样内容的决议已连续17年获得通过。为早日解决绑架日本人问题，其中强调了“立即让受害者回国的紧急性和重要性”。日本是支持决议的“共同提案国”。预计12月该决议将在联大全体会议上正式获得通过。
+澳洲政府表示，澳大利亚正在与志同道合的自由民主国家合作，确保全球技术规范能够反映出自由民主的价值观。 据了解，澳大利亚此前已与中共经历了长达数月的贸易战和政治经济关系的冷却，与此同时，澳大利亚政府正努力减低澳洲对中共的依赖。消息人士评论称，澳洲政府此举可被看作是对中共海外科技威胁的回应。
 
-2、[**经产相承诺援助中小企业对抗疫情影响**](https://china.kyodonews.net/news/2021/11/9e9a9158952d.html)
+参考链接：
+[Australia says 63 areas of technology are critical to national security](https://www.reuters.com/world/asia-pacific/australia-invest-73-mln-quantum-tech-it-beefs-up-critical-areas-2021-11-16/)
 
-日本经济产业相萩生田光一18日在东京与日本商工会议所主席三村明夫等干部会谈，针对疫情下处于困境的中小及小微企业，表示“将迅速提供必要的支援”，承诺扩充援助措施。着眼于疫情后，萩生田还表示将扶持中小企业推进去碳化和数字化举措。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-3、[**官房长官称尚未决定如何对待北京冬奥会**](https://china.kyodonews.net/news/2021/11/5f0b4400ffbc.html)
+总编：文徬
+编辑：Irene木木
+校正/发稿：Fei797
 
-日本官房长官松野博一17日召开记者会。关于有报道称美国近期将宣布不派遣外交使团参加明年2月的北京冬奥会，实施“外交抵制”一事，他表示“美国政府没有正式发布消息，我们不予置评”。当被问及日本将如何应对时，他回答称：“现阶段，未就要人出席做出任何决定。”
-
-4、[**日本拟创设医药品紧急批准制度**](https://china.kyodonews.net/news/2021/11/dff90a452a87.html)
-
-日本政府相关人士17日透露，为了在新冠疫情扩大等紧急情况下，未获批准的疫苗和医药品能在国内迅速被使用，政府初步决定创设“紧急时药事批准”制度，仅确认安全性，若能推定有效，就给予批准。此举旨在迅速防止传染病疫情扩大。18日起的厚生劳动省专门小组会上开始讨论。12月内敲定制度详细内容，向明年的例行国会提交相关法案。
-
-5、[**日经指数收跌0.3%**](https://china.kyodonews.net/news/2021/11/e98acda99733-03.html)
-
-东京股市日经指数18日继续回落，收盘报29598.66点，较昨日下跌89.67点，跌幅为0.30%。隔夜美股收跌形成重压，东京股市卖盘占优。交易时段传来消息称，日本政府将在19日内阁会议上敲定的经济对策的财政支出规模将创新高，日经指数一度转升。
-
-*编辑：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,32 +2,58 @@
 ---
 
 
-## 拜登表示：是否独立取决于台湾自己
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1674557/)
+## 六中全会告诉你:共产党对内绝对硬；对外嘴硬,一切都软
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1674593/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月17日，美国现任总统拜登在接受记者提问时明确表示，“台湾的独立取决于台湾自己”。其后，拜登总统进一步补充道，美国支持《台湾关系法》，而台湾的独立与否应该由台湾自己决定，美国只希望台湾按照《台湾关系法》行事。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-18-下午9.42.04.png)圖片來源：美國總統拜登資料照。（白宮Flickr）
-据了解，拜登在拜习视频会议上再次强调了美国坚持的“一中政策”。对此，美国国务院发言人曾在11月5日表示，美国的“一中政策”跟中共的并不相同，美国会按照《台湾关系法》行事。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/20180225051149_31399_副本.jpg)
+据[2021年11月17日 文贵大直播：再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向](https://gtv.org/video/id=6194fda8e7e7703792363972)时间点1：43：58——
 
-参考链接：
-1）[https://www.gettr.com/post/ph4zk0c01b](https://www.gettr.com/post/ph4zk0c01b)
-2）[美國務院發言人：我們的一中政策 與中國的「截然不同」](https://news.ltn.com.tw/news/politics/breakingnews/3727921)
+**郭文贵先生：**就是你但凡了解共产党，就是你看看咱说到六中全会以后，到美国来的秦刚，你看习上台以后出国几乎99%的时间周围伴随左右，也就是太监级的，是吧？就是戳着手的（郭先生演示太监样），还得这样的这种动作的永远是秦刚。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+现在你七嫂天天看那个，现在又看大明帝国的，她说，唉呀，这个太监太坏了！我在那笑，我说你觉得中国没太监？她说中国现在没有太监，我说现在中国的太监比那时候还可怕，最后把朱棣、朱元璋的后代全毁了个球的了，是吧？我说你再好好看看。
 
-总编：文徬
-编辑：AN
-校正/发稿：呼吸的雾霾（文小呼吸）
+秦刚就是那个太监级的人物，现在派到美国来了。跟美国人你看有时候一会软一会硬，一会软一会硬，就是这个共产党这个流氓嘴脸你认知以后，你就在六中全会你就得出最好的答案——对内绝对硬！对外嘴硬，一切都软！
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+就是我见到当时最牛的时候，你想想八九之后，我刚才看守所出来，在北京见他军队的几个人——张万年，长眉毛、戴着白手套，吃饭的时候去京西宾馆，戴着白手套、穿着军装咔咔咔的，你说现在看着多老土，就是军阀级的。过来以后手咵~一伸，服务员把手掌手套给捋过去。咵~一伸，把首长手套捋下去，咔一弄，是吧？啪~往那一坐，啊~你们都来了，你们先喝几杯！然后下边人赶快端着喝，一人——首长喝几杯呀？三杯！咔~三杯，有的傻货不懂的就给自己还倒满，——首长，我倒满了，咵~就喝了。
+
+你三杯谁下去空腹你不晕呢？你喝一万斤的酒量你也得晕呐！然后舌头就硬了，然后张万年——啊！你这个小家伙不错啊！你………就是你看到那个场面的时候你就知道，就是张万年作为一个刚到北京城被江泽民给钦点提拔的人，觉得把邓家干掉了，他这个人已经到了这个嚣张时候。
+
+欸，一会儿，说谁这个江泽民的那个谁贾廷安要来，一说哇塞，张万年从那个椅子扑棱~就起来了，直接，快！快！快！收拾收拾，赶快旁边桌子收拾好，赶快把手套戴回来，咔！在那电梯井鞠着躬，在那儿等着呢，——首长好！首长好！首长请~哇塞，这种太监嘴脸，这种人当时我在看守所出来看看，你想想我啥感受啊？
+
+我说共产党这帮流氓，哇塞，七哥看在眼里，也喝了小酒以后，哇噻，我说今天我要把张万年给办了，把旁边的贾廷安给办了，共产党就两个大人物被我干掉了。
+
+然后呢，说江泽民每周要到那个隔壁的1号房，1号房里是绿色的椅子，你们从来没有看过，是个绿色的军绿的椅子，然后后面一个大的洗手间，洗手间里面也是两三道门儿，洗手间里边儿专门有首长坐在那儿所谓要看一下文件的地方，那个椅子就是西方的专门给过双修的椅子叫贵妃榻，江喜欢海外派——西班牙的贵妃榻！
+
+哇塞，我进去溜了一圈，哇，这地方要干掉中共领导人很容易啊，是吧？外边还安的防弹玻璃呀，哇噻，那防弹你说你防什么弹呢？领导在里边拉屁屁，怎么会有人弹你呢是吧？你要弹谁呢？
+
+就这些都跟今天你看到的共产党在外国人面前嘴巴极硬，你想弄啥弄啥，就是张万年对待下属和对待上司之间的关系，你没见张万年去见外国人的时候，一开始那种趾高气扬，在下面人家一说个人话的时候，张万年一拽手外国人，欸，到这屋来，到这屋来！
+
+那时候在三座门，七哥见过几次，——到这屋来，那是个巴基斯坦的人，然后叫翻译进去，一说，说上四五十分钟，交易做成了。在下属面前那种，那家伙捋着长眉毛，那家伙那个样子是吧？所有人江泽民邓小平都是这样。
+
+（以下暂略）
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
