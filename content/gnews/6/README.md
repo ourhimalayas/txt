@@ -2,47 +2,31 @@
 ---
 
 
-## 2021/11/17墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1674166/)
+## 拜登指定的基础设施经理与中共统战部有关系
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1674203/)
 
-一、   打完新冠针就得癌了？患者质疑为什么打完新冠疫苗就发现了癌症。
+#### 撰稿：彩虹
 
-二、在被完全制服情形下，警察依然毫无顾忌的当众暴力执法。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-12.jpg)图片来源：华尔街日报
+近日，美国总统拜登指定新奥尔良市前市长米奇·兰德里厄（Mitch Landrieu）为基础设施经理，11月18日，《新闻极限》报道来自威斯康星州的众议员迈克·加拉格尔（Mike Gallagher）称，兰德里厄与中共统战部有关系，应该“没有资格”担任这份工作。
 
-三、 物业与业主之间的纷争，“和保安过不去能死的快点？”业主被保安威胁。
+据《华盛顿自由灯塔》报道，兰德里厄已被指定为最近签署的1.2万亿美元基础设施支出法案的高级顾问和基础设施协调员，他将掌握对资金分配的影响力，包括从外国公司购买材料的豁免权。
 
-四、   中共治下的宗教人士在宣誓忠于中国共产党。
+根据《国家脉动》的调查文章，USHCA（美国腹地中国协会）是由密苏里州前民主党州长鲍勃·霍尔登（Bob Holden）创建的，自称是一个“两党组织，致力于在美国腹地地区（包括美国五大湖到海湾之间的20个州）和中国之间建立更强大的联系”。
 
-五、   近期各地恒大期房工地现状，违约崩盘在即。
+根据美国政府的说法，该组织是中共“统战部”的一个组成部分，它试图“收编和消除潜在反对中共政权的政策和权威”，并“影响外国政府采取支持北京所指定的政策的行动或立场”。
 
-六、   11月16日，湖南株洲。幼儿园小朋友在家长陪同下打疫苗现场。
+在一份声明中，加拉格尔说：“米奇·兰德里厄曾担任USHCA的顾问，该组织由中共统战部资助，以促进中共对美国基础设施项目的投资。这应该使他没有资格去监督拜登总统的大规模基础设施实施计划的资格。总统必须立即重新考虑新的人选，让没有为中共国资助的实体服务过的人做这项工作”。
 
-七、   11月16日，四川成都。女生因做错题，被老师在课堂上狂扇耳光！
+另据《华盛顿自由灯塔》报道，与被拜登提名的进出口银行负责人雷塔·乔·刘易斯（Reta Jo Lewis）一样，兰德里厄担任USHCA的战略顾问。
 
-八、   11月14日，河北廊坊。河北一职校男生宿舍内一男生遭多人欺凌， 头部被砸玻璃瓶。
+**新闻来源：**
 
-九、   11月15日，安徽马鞍山市发生严重车祸，货车与客车相撞，致8人死亡8人受伤。
-
-十、   11月15日，重庆。外卖骑手当街被店家飞踹，用扫把猛砸骑手脑袋。
-
-十一、   河南南阳。儿子失踪20年，母亲身上挂着照片每天在车站寻找。
-
-十二、  一段泄露在网上的视频曝光了被中共关押人员遭受酷刑的状况。
-
-*搜集： free20200604 ，MrBurns ，Filon| 翻译：瞌睡猫 | 校对：CharlesS*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+1. [Rep. Gallagher: Biden’s Infrastructure Czar Has Dubious China Ties](https://www.newsmax.com/newsfront/mike-gallagher-mitch-landrieu-ccp-spending/2021/11/17/id/1045107/)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+[REVEALED: Biden Cabinet Secretaries, Local Mayors Collude With Chinese Communist Party on Agriculture Policy.](https://thenationalpulse.com/exclusive/cusef-sponsoring-events-travel-for-ag-officials/)
 
  
 

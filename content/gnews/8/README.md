@@ -2,80 +2,62 @@
 ---
 
 
-## 免疫功能低下的个体在注射加强剂后也未产生抗体
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1674164/)
+## 为什么伊维菌素优于辉瑞的抗病毒药
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1674177/)
 
-**翻译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip19.png)图片来源：naturalnews.com
-尽管美国人想知道: 为什么前两剂疫苗不足以预防感染，而现在要推出(COVID-19) 加强剂？
+编译： Jenny Ball
 
-主流媒体已声称疫苗保护正在减弱，这引发了对 COVID-19 疫苗必要性的更多怀疑。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-409.png) 图片来源 ：childrenshealthdefense.org
 
-11 月 9 日，**辉瑞（Pfizer）要求美国（FDA）**允许 18 岁及以上的人接种其冠状病毒疫苗。 FDA 可能会在感恩节之前批准该请求。
+喜剧演员和政治评论员吉米·多尔（Jimmy Dore）讨论了约翰·坎贝尔(John Campbell)博士的视频。视频里，他解释了辉瑞（Pfizer）昂贵的新型 COVID 抗病毒药物与伊维菌素之间的相似之处，以及为什么伊维菌素更好。
 
-（**点评：看清楚了，FDA在执行疫苗制造商辉瑞的命令**！）
+在“吉米·多尔秀”的最新一集中，喜剧演员兼政治评论员吉米·多尔强调了辉瑞昂贵的新型 COVID 抗病毒药物与用于治疗该病毒的仿制药伊维菌素([ivermectin](https://childrenshealthdefense.org/defender/ivermectin-effective-treatment-covid-research/))之间的相似之处。
 
-莫德纳(Moderna)也有可能向 FDA 提交对其 COVID-19疫苗的类似请求。但是，任何新批次的资格，在正式生效之前，仍需要由CDC批准。
+“我从来没见过宣传机器为了压制伊维菌素竟如此地不遗余力，”多尔说。 “伊维菌素在 2015 年获得了诺贝尔人类医学奖，但媒体却企图让每个人都相信它只是给马用的。”
 
-**（点评：莫德纳只要舍得花钱给CDC，CDC和FDA就乖乖听你的！）**
+多尔表示，**宣传背后的动机是利润。**
 
-**大型制药公司声称加强注射可提供“额外保护”**
+多尔播放了约翰·坎贝尔（[John Campbell, Ph.D.](https://www.youtube.com/watch?v=WnyVInblipE)）博士的[一段视频](https://www.youtube.com/watch?v=ufy2AweXRkc&amp;t=7s)，解释了辉瑞的抗病毒药物和伊维菌素如何以“完全相同的方式”治疗 COVID。坎贝尔告诉观众，辉瑞的新型抗病毒药物在预防严重疾病、住院和死亡方面, 显示出非常高的功效。
 
-大型制药公司声称，加强注射是必要的，因为有些人需要针对冠状病毒的“额外保护”，以防止住院和死亡，但很多人不需要额外注射。
+“但还有另一种通用药物，称为**伊维菌素**，其作用与辉瑞抗病毒药物完全相同，”坎贝尔说。“而且科学文献中有确凿的证据表明，这两种药物的作用方式是相同的：**这两种药物都抑制病毒复制。”**
 
-（**点评：疫苗不是为了防止严重症状，那是大夫要做的事情！普及一下疫苗定义：是用来防止人们不感染病毒！）**
+坎贝尔展示了辉瑞新药的分子结构，并将其与伊维菌素的分子形状进行了比较。他指出这两种“**外观完全不同的分子**”使他得出结论，“为辉瑞药物申请专利绝对没问题”。
 
-据说大多数完全接种疫苗的人，只会出现极其轻微的症状或根本没有症状，但情况已经发生了变化**。**
+“所以他们将能够在接下来的 20 年里从中赚到很多钱，”他说。
 
-据埃默里大学医学院([*Emory University School of Medicine*](https://www.med.emory.edu/))传染病学系医学副教授科琳·凯利（Colleen Kelley）博士说，导致 COVID-19 的病毒继续传播，和其他专家一样，凯利也指责那些选择不接种疫苗的人。
+**坎贝尔引用了一些科学论文，强调了伊维菌素作为抗 ****COVID ****病毒的有效性，包括：**
 
-**（点评：什么逻辑，你们的疫苗不是应该病毒刀枪不入吗？跟不打疫苗的人有什么相干？如果传染病教授就这个常识，不信更安全！）**
+- 英国皇家化学学会的[一篇论文](https://pubs.rsc.org/en/content/articlelanding/2021/cp/d1cp02967c)得出结论，伊维菌素对导致 COVID 复制的“催化活性”具有“抑制作用”。
 
-此外，专家声称，“疫苗保护随着时间的推移正在减弱”，其减弱程度比他们两个月前的预期还要大。这意味着，完全接种疫苗的人，突破性感染后有潜在严重症状发生的几率正在增加。
 
-**（点评：这么快就打破了FDA为“疫苗”专门修改的定义！被修改的疫苗定义是：防止病毒感染出现严重症状。）**
+- 《自然》Nature 上的[一篇文章](https://www.nature.com/articles/s42003-020-01577-x)发现，在研究人员测试的 13 种脱靶药物中，只有伊维菌素能阻止 SARS-CoV-2 的病毒复制超过 80%。
+- 英国皇家化学学会的 [一篇论文](https://pubs.rsc.org/en/content/articlelanding/2021/cp/d1cp02967c)显示，在研究人员试验的数十种药物中，伊维菌素在阻止 SARS-CoV-2 病毒复制方面的得分“最高”。值得注意的是，该论文显示，目前获得美国食品和药物管理局专利和批准的**瑞德西韦在所有化合物中得分最低**。
 
-她补充说，加强注射可以帮助提高抗体水平，足以帮助“预防这些感染，并将任何突破性症状恢复到轻微或不存在的状态”。
 
-7 月初，数据显示辉瑞疫苗对冠状病毒的有效率为 39%。到 9 月，强生公司的疫苗有效率仅为 13%。
+坎贝尔还提到了微生物学前沿的[一篇论文](https://www.frontiersin.org/articles/10.3389/fmicb.2020.592908/full)，**他说伊维菌素不仅攻击并与 ****COVID ****的刺突蛋白结合，阻止其感染细胞，而且还与细胞受体结合。伊维菌素不仅攻击并 阻止了感染****COVID ****的刺突蛋白细胞。**
 
-大药企并没有说[疫苗不能提供针对 COVID-19 的全面保护](http://pharmaceuticalfraud.com/)，而是坚持认为，人们应该获得批准的加强注射以获得最大利润。在美国，加强注射仅适用于 65 岁的成年人、高危成年人、有基础疾病的成年人或任何接种强生疫苗的人。
+“**所以它不只是一种方式，而是两种不同的方式的作用，”多尔解释道。“它把病毒感染细胞破坏了，所以你不会感染 ****COVID****。**”
 
-健康专家说，免疫系统受损的人比普通人更需要额外的“保护”来预防加强注射，但他们将来是否还需要注射更多的加强注射？ （相关：科学家质疑 COVID-19 加强注射的必要性[Scientists question the need for COVID-19 booster shots](https://www.naturalnews.com/2021-10-03-scientists-question-need-for-covid-booster-shots.html))
+“坎贝尔是这样说的：“伊维菌素不仅会使 COVID病毒的钥匙弯曲，而且还会破坏锁。”
 
-**免疫功能低下的人说：加强注射没有给他抗体**
+坎贝尔告诉观众：“因此，据我们所知，辉瑞新药仅针对一种特定的生化途径来阻止 COVID，**而伊维菌素则针对相同的生化途径来阻止 COVID，但也针对其他几种生化途径。**”
 
-免疫功能低下的安德鲁·林德 (Andrew Linder) 于 2019 年 9 月从妻子艾米丽那里接受了肾脏，他报告说，即使在接受加强注射后， [他也没有产生 COVID-19 抗体](https://edition.cnn.com/2021/11/09/health/immunocompromised-covid-19-booster-wellness-trnd/index.html)。
+“你为什么不知道这些？”多尔问道。“**因为伊维菌素很便宜，而我们生活在一个由企业宣传控制的世界。”**
 
-34 岁的林德说，他接受了三剂辉瑞 COVID-19 疫苗和额外的加强剂。他承认感到震惊和害怕，尤其是因为他认为可以保护他免受感染的疫苗只会让他“感觉与大流行开始时一样不安全，或者甚至可能更不安全”。
+**评论：在辉瑞推出所谓的医治****Covid****病毒的“新药”之前，爆料革命已经掌握了其“新药”就是伊维菌素主体。伊维菌素十几个美元就能抑制****Covid****，而剽窃了伊维菌素的辉瑞“新药”则要至少****$3000****和更高的价格！**
 
-布列塔尼亚·鲍威尔（Brittania Powell）是俄亥俄州立大学的一名学生，她在去年秋天尽可能多地呆在家里两个月，直到2020 年选举日，她的家人鼓励她在俄亥俄州进行民意调查。鲍威尔被诊断出患有狼疮，一种自身免疫性疾病， 当她 14 岁时，她还患有另一种自身免疫性疾病，称为类风湿性关节炎、贫血和狼疮性肾炎，这会使她的肾脏发炎。
+**所谓科学证明“新药”在防止严重症状更有效也是谬论，因为通过伊维菌素防御，和早期治疗，感染者根本就到不了严重程度！**
 
-鲍威尔说，去年，她和其他投票站工作人员，在投票站对公共表面进行了消毒并保持清洁，但一些前来投票的人没有戴口罩。虽然她戴着双重口罩，并戴着手套，但她还是被感染了。鲍威尔今年春天接种了两剂疫苗，她还不急于接种加强剂。
+**可耻大药企，可耻媒体成了大药企的宣传工具，可悲我们竟然被他们控制着生命和自由！**
 
-甚至演员马修·麦康纳（Matthew McConaughey）也谈到了加强疫苗。在一次采访中，麦康纳透露，他 90 岁的免疫功能低下的母亲，尽管注射了 3 次 COVID-19 疫苗，但并未获得抗体。
-
-许多研究表明，实验性 mRNA 疫苗和加强注射不足以保护公民，尤其是免疫功能低下的人。**事实上，那些免疫系统受损的人甚至可能更容易对疫苗产生不良反应**。
-
-**CDC和以色列的一项研究已经证明，与疫苗相比，自然免疫可以提供更好的冠状病毒保护。**
-
-相干Covid免疫信息：[Immunization.news](https://immunization.news/)
-
-**文章内容来源：**[InfoWars.com](https://www.infowars.com/posts/worth-the-risk-triple-quadruple-vaccinated-people-have-no-antibodies/)
- [CNBC.com](https://www.cnbc.com/2021/11/10/why-young-healthy-people-should-get-covid-vaccine-booster-shots.html)
- [Edition.CNN.com](https://edition.cnn.com/2021/11/09/health/immunocompromised-covid-19-booster-wellness-trnd/index.html)
- [NYTDealBookConference.com](https://www.nytdealbookconference.com/2021/2021sessions?i=6IP7NYJb7r9BPGp34qQtDypicGSElvZ-)
-
-**新闻来源：**[naturalnews.com][Immunocompromised individuals NOT producing antibodies even after receiving COVID-19 booster doses](https://www.naturalnews.com/2021-11-16-immunocompromised-not-producing-antibodies-after-covid-boosters.html)
+**参考资料：**[childrenshealthdefense.org] [Why Ivermectin Is Superior to Pfizer’s Antiviral Pill](https://childrenshealthdefense.org/defender/jimmy-dore-john-campbell-ivermectin-pfizer-covid-antiviral-pill/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=189b28d1-610c-4e4c-8e08-d6413105a1d8)
 
 * * *
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
+*审核：文乐
+校对 : 阿伯塔
+发稿：Nuevo唐人*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
-
 
 
  

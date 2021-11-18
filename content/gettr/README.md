@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/18/2021 10:24 AM (UTC)`
+
+11/17/2021 Miles Guo: Three reasons why the hooligan politicians in the West are boycotting the 2022 Winter Olympics: 1) to use politically correct reasons to shift their responsibility for athletes‘ contracting the virus or suffering from the side effects of mandatory COVID jabs; 2) to put on an anti-CCP political show to get the CCP to bribe them using the BGY scheme; 3) take advantage of the corrupt Olympics for personal gain; no matter how much they oppose the Winter Olympics, they will still end up going<br/><br/>11/17/2021 文贵直播：西方流氓政客抵制2022冬奥会的三个原因：1）以政治正确为由推卸其应为运动员染病或疫苗副作用而负的责任；2）进行反共政治表演让中共对其蓝金黄；3）利用奥运会的腐败谋求个人利益；不论怎么反对冬奥会，他们最终还是会去的
+![img](https://media.gettr.com/group24/getter/2021/11/18/10/24/8b911650-677f-a2bb-250a-b5c2bf7f1255/out.jpg)
+
+---
+
 `@miles 11/18/2021 2:48 AM (UTC)`
 
 11/17/2021 Miles Guo: The “10 Adherences” in the CCP’s third historical resolution mean no reform and opening-up, adherence to the one-party dictatorship, and restoration the rule of the emperor; Xi Jinping has become the “sun” and will possibly invade Taiwan at any time; Biden continues America’s ambiguous policies towards Taiwan<br/><br/>11/17/2021 文贵直播：中共历史决议的“十个坚持”就是坚决不搞改革开放、消灭私有经济、坚持一党独裁，恢复帝制； 习已成为“太阳”，将随时打台湾；拜登延续了美国对台的模糊政策<br/>
@@ -293,13 +300,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
  11月13号：你们能认出照片中的每一个人吗？每一个人都是有故事的…… <br/><br/>
 ![img](https://media.gettr.com/group30/getter/2021/11/13/17/39/c6b9b67f-05c6-1d79-a501-e6694b1cfa0a/750b40ef1d21ca547a34159385cc0583.jpg)
-
----
-
-`@miles 11/13/2021 5:36 PM (UTC)`
-
-11月13号：再油腻一下……当年在北辰东路的摩根办公室．看墙上的当初的盘古大观的龙头照片你们就明白了……这两个照片是与台湾的朋友一起在讨论一些事情……当时的很多的朋友现在都在哪呢？但是有很多在这个楼里的老朋友却始终都是坚定的兄弟和朋友……几十年过去后感触良多……
-![img](https://media.gettr.com/group28/getter/2021/11/13/17/36/1521a579-c1d2-b223-5adc-87d64a8b886f/dd84f2dd1266597c63c5e79c10278b39.jpg)
 
 ---
 

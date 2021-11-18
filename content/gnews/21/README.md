@@ -2,47 +2,37 @@
 ---
 
 
-## 中共利用海外空壳公司盗取意大利军用无人机技术
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1674065/)
+## 全球“猝死”的搜索趋势飙升至历史最高点
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1674091/)
 
-撰稿：澳喜农场 在远方
+**翻译：Lulumi**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-400.png)图片来源 zerohedge.com
 
+人们不得不注意到一个在全球范围内爆发的谷歌搜索趋势。
 
+下面是欧洲媒体关于人们突然死亡的新闻报道标题：
 
-![广东珠海中国国际航空航天博览会上展出的GJ-11隐形无人战斗机。（2021年9月29日](https://gdb.voanews.com/21262B61-F371-4BF6-A4F8-46F3ED84CD64_cx0_cy9_cw0_w1023_r1_s.jpg)（图片来自voa）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-403.png)
 
-据华尔街日报11月15日报道，意大利警方经过几个月的调查发现，中共国的两家国有企业利用一家海外空壳公司，在意大利和欧洲政府不知情的情况下，控制了意大利的一家军用无人机生产商阿尔卑飞机公司，并将其知识及技术转移至中共国的一个新生产基地。 该公司生产的迷你无人机，可装在背包中，由一名操作人员快速部署，可在夜间执行侦察任务，曾被驻阿富汗的意大利空军使用。
+以下是来自美国更多的关于猝死的新闻：
 
-分析人士称，中共国国企在海外一贯的行事模式，通常是以民营空壳公司为掩护，获取掌握特殊技术企业的控制权，然后再将该公司的技术与智慧财产转移至中共国。 意大利警方表示，中共的做法是对技术的掠夺性投资，这在意大利是被禁止的。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-405.png)图片来源 zerohedge.com
 
+我们无法明确给出这些神秘死亡的根本原因，但读者可以参考上周的一篇文章，题为 “德国报纸强调最近倒下的足球运动员的数量‘异常之多’”。
 
+在那篇文章中，我们概述了德国报纸《柏林日报》报道了“最近有异常多的职业和业余足球运动员倒下了”。虽然这不是死亡，但我们发现体育运动员的突然倒下似乎非常奇怪，可能与健康有关。
 
-参考链接：
+虽然现在推测人们是否因为COVID-19疫苗相关的问题，如心肌炎而突然死亡或倒下还为时尚早，但这是一个应该被密切关注的趋势。
 
-[https://www.voachinese.com/a/China-covertly-purchases-Italian-avionics-firm-ALPI-Aviation-20211116/6315363.html](https://www.voachinese.com/a/China-covertly-purchases-Italian-avionics-firm-ALPI-Aviation-20211116/6315363.html)
+**参考资料：**[zerohedge.com][Worldwide Search Trend For “Died Suddenly” Spikes To Record Highs](https://www.zerohedge.com/political/worldwide-search-trend-died-suddenly-spikes-record-highs)
 
-编辑：AN
+* * *
 
-校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
-
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
 
 
  

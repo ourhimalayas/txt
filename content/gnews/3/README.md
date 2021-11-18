@@ -2,34 +2,145 @@
 ---
 
 
-## 昔日民族品牌方正集团欠债3000亿宣布破产！
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1674190/)
+## 六中全会后，习成为全党公敌对新中国联邦是天大的利好
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1674221/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/37a5122d3315431ca503ed05d1ba54c3.jpg)网络图片
-编辑摘要：
+[https://gtv.org/video/id=6195bbd51827025081065606](https://gtv.org/video/id=6195bbd51827025081065606)
 
-据新浪网11月17日报道，新方正集团上个月成立。方正集团曾经是国内首屈一指的科技巨头、全球第七大PC供应商、国内PC市场第二名。2018年，方正年收入1333亿元，旗下6家上市公司。但到了2020年，因为负债3000亿，方正集团宣布破产重组。
+六中全会给我们带来一个（消息）就是上天在帮我们新中国联邦
+La Sexta Sesión Plenaria nos traerá una (noticia) ayuda que nos está haciendo Dios a nuestro Estado Federal de China
 
-1986年，北京大学投资40万元，注册成立了一家“北京大学理科新技术公司”。它就是方正集团的前身，当年被誉为“中国之光”，因为方正技术奠基人王选解决了一个让全中国受益至今的难题：让中文进入信息化的世界。上世纪70年代的中国，用的还是北宋时代耗时耗力的铅字排版印刷，而西方国家使用电子照排系统，利用计算机来控制拍照和排版，效率极高。
+他这么一决定大家要记住
+Todos recuerden él al tomar esa decisión
 
-王选跳过了日本都没研究出来的激光照排第三代，直接完成了第四代激光照排。信息世界第一次出现了中文。靠着这项划时代的发明，短短三年时间，北京大学理科新技术公司（方正集团前身）的订单突破一亿美元。王选随后又对照排技术进行改良升级。方正集团不仅垄断了国内的报业市场，也斩获了海外华文报业市场80%的份额。方正集团1995年在香港主板上市。
+习就成了全党的唯一的公敌
+Xi se convertirá en el único enemigo público de todo el partido
 
-1998年后，方正开辟电脑行业市场，仅仅四年时间，方正电脑就跻身亚太十强，旗下有三家上市公司。而当电脑销量达到全国第二后，方正开始实施所谓的多元化并购战略。王选开创的一个纯IT产业集团，变成了一家金融公司，涉足信息技术、金融、房地产、医药等等行业。但是没有核心技术，各行各业兼并扩张令方正背上了巨额债务。到2020年，方正集团一年净亏30亿，总负债超3000亿。
+就共产党内部的绞杀
+Sobre el estrangulamiento dentro del PCCh
 
-方正走的是一条国内企业不得不走的路，没有核心技术来支持发展，要么靠骗，要么靠买。中共的体制决定了企业不可能专心研发新技术，只能快速发展。挣快钱、热钱，能活一年是一年。政府允许国有企业存活，因为国企帮助中共盗国贼集团窃取国家财富，民营私企根本得不到政府的支持。但是不管国企、私企，在中共绞肉机的体制下，最终企业不得善终，人民不得存活。只有推翻中共，所有企业和每个人才有活下去的可能。
+就是文化大革命的后期
+Es la última parte de la Revolución Cultural
 
-新闻参考链接：[欠债3000亿，宣布破产！昔日民族品牌，为何总沦为反面教材？](https://k.sina.cn/article_1642471052_61e61e8c019016exy.html?from=tech&amp;kdurlshow=1&amp;sinawapsharesource=newsapp%EF%BC%88%E6%A0%B9%E6%8D%AE%E6%96%B0%E9%97%BB%E5%86%85%E5%AE%B9%E8%87%AA%E6%8B%9F%E6%A0%87%E9%A2%98%EF%BC%89)
+毛泽东和刘少奇、林彪就开始了
+Desde Mao Zedong, Liu Shaoqi y Lin Biao comenzaron
 
-* * *
+如果他要立了接班人说自己下去了
+Si él quiere crear un sucesor y decir que bajará
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+那他马上就是赤膊战斗中国真可能失控
+De inmediato va a luchar sin camisa y China de verdad se descontrolará
 
+这回大家有个目标 干掉习
+Esta vez todos tienen una meta, derribar a Xi
 
-编辑：【英国伦敦喜庄园编辑部】
+习要是永远护着自己这个龙椅 记住啊
+Si Xi quiere proteger por siempre su podio de dragón recuerda
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+习要护着这个国家和共产党这个龙椅
+Xi va a proteger este podio de dragón del país y del PCCh
+
+那可复杂了去了
+Eso si se complica
+
+但这些人要干掉他人家在暗处
+Pero estas personas que lo quiere derribar están en la oscuridad
+
+只需一枪只需一炮或者一粒药就能把他解决掉
+Solo necesitan una bala, un cañón o una pastilla lo podrán resolver
+
+你放心 全党的所有人就干两件事儿
+Tú tranquilo, en todo el partido sólo harán dos cosas
+
+他的敌人第一保住自己的什么私生子女和财产
+Lo primero que hará su enemigo es proteger las propiedades de sus hijos ilegítimos
+
+然后呢逮住机会把习干掉
+Luego de eso obtener una oportunidad para derribar a Xi
+
+那么习加速师是我们的礼物
+Entonces el acelerador Xi es nuestro regalo
+
+他这么一折腾咱就省心了
+Él al complicarse nosotros no nos preocupamos
+
+咱这个两三年使劲赚钱去
+Estos dos tres años nos esforzamos al máximo para ganar dinero
+
+建立我们强大的新中国联邦的国防
+Construir la defensa nacional de nuestra poderosa Nuevo Estado Federal de China
+
+建立强大的我们金融系统
+Construir un Sistema Financiero fuerte
+
+多交朋友让新中国联邦得到更多认可
+Hacer muchas amistades nuevas para que el Nuevo Estado Federal de China sea reconocido
+
+从外边准备好
+Prepararse bien desde la parte exterior
+
+另外一个从昨天所有的宣布
+Lo otro que se comunicó el día de ayer
+
+习所谓的他现在已经完全把自己列为
+Lo que Xi dijo que ahora se ha incluido por completo como
+
+就是毛、邓、习了
+Es decir, Mao, Deng, Xi
+
+而且昨天已经很清楚告诉你
+Además, el día de ayer te lo dijo claramente
+
+这个接班人一定是他的家人一定是他的认定
+Este sucesor debe ser su familia y debe ser reconocido por él
+
+接下来20大的事情已经不用想了
+En seguida las 20 cosas principales ya no es necesario de pensar
+
+习是肯定在党内已经都知道都定完了
+Xi seguramente sabe que dentro del partido ya todos lo confirmaron
+
+公告一下就行了
+Solo hay que hacer un aviso y listo
+
+他明年20 大之前
+El año que viene antes de las 20 cosas principales
+
+大量的捕杀要把他的李希、李磊全弄上去
+Habrá una gran cantidad de asesinatos para que Li Xi y Li Lei se levanten
+
+要把江家的人逐渐铲除
+Va a erradicar gradualmente a las personas de la familia Jiang
+
+然后想尽一切办法
+Luego hacer todo lo posible
+
+要把整个企业所谓的再分配
+Para hacer la llamada redistribución de toda la empresa
+
+1分配、2分配、3分配这还没开始呢
+La asignación 1, 2 y 3 no han empezado
+
+在国内的人可就惨了去了现在
+La gente dentro del país sí que estará miserable ahora
+
+日期：11/17/2021
+原视频标题：六中全会后，习成为全党公敌对新中国联邦是天大的利好
+Después de La Sexta Sesión Plenaria, Xi se convertirá en el mayor beneficio del enemigo público de todo el Partido contra El Nuevo Estado Federal de China
+原视频日期：11/14/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1459700077413679104?s=24](https://twitter.com/se1y7cblljselva/status/1459700077413679104?s=24)
+任务编号：KC262（2877）
+视频时间段：0:00-2:18
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
