@@ -2,55 +2,59 @@
 ---
 
 
-## 科学家们想用隐形墨水给孩子们盖上接种“纹身”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1674235/)
+## 越来越多的名人因COVID 疫苗而住院或死亡
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1674276/)
 
-编译: Jenny ball
+**编译：JennyBall**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-412.png)图片来源: naturalnews.com
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip22-1.png)
 
-《生活新闻》就在武汉冠状病毒 (COVID-19) 公开宣布前几个月，[*麻省理工学院*](https://web.mit.edu/)  (MIT) 的科学家宣布完成了一项野兽标记“纹身”技术([Mark of the Beast “tattoo” technology for children](https://www.scientificamerican.com/article/invisible-ink-could-reveal-whether-kids-have-been-vaccinated/))，用于跟踪儿童的疫苗接种记录。
+鲍勃·西森（Bob Sisson），通常称之为水管工鲍勃，在 11 月 11 日的 Brighteon.TV 节目中和他的客人玛丽安·巴里恩托斯（Marien Barrientos）谈到，越来越多的名人因冠状病毒 (COVID-19) 疫苗而[住院或死亡](https://www.brighteon.com/a70919b9-b9c9-4d9f-a057-63a6db238bf2) 。
 
-可以直接植入皮肤的微芯片设计，有特殊的隐形染料，可以用特殊的手机过滤器拾取，这种染料肉眼是看不到的。
+巴里恩托斯正在运营一个拥有数千名粉丝的 Telegram 频道。据她说，最近接种过疫苗的人经常通过该渠道与她联系，谈论他们如何后悔接种实验性危险的 COVID-19 疫苗，因为他们开始经历痛苦的副作用。
 
-这种染料可持续长达五年，使用近红外光检测，近红外光照射到注射区域的皮肤上。 它已经在猪和老鼠身上进行了测试，据推测，下一步是开始給儿童真正的注射。
+巴里恩托斯说：“有很多人一直给我打电话，他们向我报告他们自己，或他们的家人感染 COVID 后发生的情况或其他疾病。”“而现在，截至目前，我接到的电话中，**有一半来自接种疫苗后出现不良副作用的人**。”
 
-亿万富翁兼优生学家比尔·盖茨（Bill Gates），在大流行初期就呼吁这样做，**并暗示中共国病毒的数字疫苗“护照”，包括人们的注射记录**。
+巴里恩托斯还收到有关运动员或名人在接种疫苗后突然死亡或生病的报告。（相关：水管工鲍勃和玛丽恩谈论接种疫苗，足球明星阿圭罗在比赛中倒地 –[Bob The Plumber and Marien talk about vaccinated soccer star Sergio “Kun” Aguero collapsing mid-game – Brighteon.TV](https://www.naturalnews.com/2021-11-09-bob-the-plumber-marien-vaccinated-athlete-collapsing.html).)
 
-“该系统尚未在儿童中进行过测试，它可以快速方便地访问疫苗接种历史，避免文书错误的风险，并且几乎不会增加程序的成本或风险，”《科学美国人》援引一项发表在《科学转化医学》杂志上的项目研究报告说。
+巴里恩托斯指出，许多足球运动员在接种疫苗后，突然出现心肌炎等心脏问题。
 
-**量子点纹身完成兽印记录系统**
+“超过 80 名著名或甲级联赛的足球运动员已经卒死，”巴里恩托斯说。“都是在接种疫苗之后， 这是所有这些人的共同点，这些踢足球和多年从事体育运动的人，没有任何心脏问题。”
 
-参与该项目的科学家们，再次以穷人为借口制造这种令人憎恶的事情，声称它将帮助发展中国家实现更好的儿童健康结果。
+许多其他公众人物正在经历疫苗的危险副作用。知名的墨西哥女演员和政治家卡门·萨利纳斯（Carmen Salinas）[最近因中风住院](https://abc7news.com/carmen-salinas-mexican-actors-and-actresses-telenovela-star-in-hospital/11225318/)，她完全接种了疫苗。
 
-[*佐治亚理工学院*](https://www.gatech.edu/) （Georgia Tech）的生物工程教授马克·普拉斯尼茨（Mark Prausnitz）评论说：“特别是在医疗记录可能不完整或不易获取的发展中国家，将医疗信息与人直接相关是有价值的。” 他没有参与这项研究。“我认为，这是实现这些目标的一种非常有趣的方式。”
+巴里恩托斯指出，萨利纳斯最近几个月因嘲笑担心疫苗副作用的电影和电视行业人士而臭名昭著。
 
-它还[实现了将人们的识别信息合并到微芯片注射或纹身](http://futuretech.news/)中的预言目标，这些信息可以被扫描用于买卖、进入受限制的建筑物、驾驶和参与社交活动。
+加州州长加文·纽森（Gavin Newsom）也经历了 COVID-19 疫苗的严重副作用。
 
-据麻省理工学院生物工程师罗伯特·兰格（ Robert Langer）和安娜·雅克莱内克（Ana Jaklenec）称，首先在儿童皮肤上印上装满微针的小贴片，为他们注射疫苗。之后，他们的注射证明存储在其可注射组件上。
+西森透露，民主党加州州长纽森，在10 月 27 日接受了加强剂公开接受 COVID-19 加强注射后，也经历了严重的副作用。
 
-通过对手腕、前额注射这些成分的地方进行简单扫描，政府就可以快速检查孩子是否“按时”接种疫苗，其中包括福奇流感疫苗。
+纽森因[突然且无法解释的失踪](https://www.yahoo.com/news/where-governor-playing-hookie-gavin-142551067.html)几天，因此受到了强烈批评后，他于 11 月 7 日才重新出现。州长和他的妻子在没有进一步解释的情况下声称，纽森因“家庭义务”而失踪。
 
-“该团队最终使用了一种称为量子点的技术，这种微小的半导体晶体可以反射光，最初开发用于在研究过程中标记细胞，”《科学美国人》报道。“这种染料已被证明对人体是安全的。”
+左派的人批评州长取消了他本应参加苏格兰气候变化会议。 与此同时，保守派认为，他之所以躲藏，是因为他患有某种 COVID-19 疫苗的副作用。
 
-正如您所料，并非每个人都参与该计划。隐私专家表示，让人们带着包含他们所有个人信息的微芯片四处走动存在风险。
+“据我所知，州长加文·纽森在加利福尼亚州，我知道他打了第三针，”西森说。 “然后，当他有反应时，他非常生气，因为他说他应该打生理盐水，但不知何故，给他打了真家伙（疫苗）， 所以现在他遇到了很多麻烦。”
 
-“不同的人和不同的文化，可能会对隐形医疗纹身有不同的感觉，”普劳斯尼茨补充道。
+巴里恩托斯随后分享了 mRNA 技术的发明者罗伯特·马龙（Robert Malone）博士的想法，他在 Twitter 上推测，州长可能一直在躲避格林-巴利综合征，这是一种导致瘫痪的自身免疫性疾病。
 
-**比尔和梅琳达****·****盖茨基金会资助这项兽印记研究这一事实并不令人意外**。它的推出是因为盖茨本人的“直接要求”，他声称，他希望将这些微芯片植入人体内，以“消灭疾病”。
+这一假设得到了小罗伯特·肯尼迪及其儿童健康保护组织的大力支持。根据肯尼迪的说法，一位接近州长的消息人士证实，纽森正在从吉兰-巴利综合症中康复。
 
-“如果我们没有好的数据，就很难根除疾病，”雅克莱内茨补充道，以支持盖茨的议程。
+[点击观看与水管工鲍勃和巴里恩托斯的完整节目。](https://www.brighteon.com/a70919b9-b9c9-4d9f-a057-63a6db238bf2)
 
-**评论：这篇文章让人们看到：疫苗的真正目的，除了大规模灭绝人口，还是更利用管控疫苗没有杀死的人们！**
+**点评：为什么州长加文·纽森第三针作秀“他说他应该打生理盐水”？**
 
-新闻来源: [naturalnews.com][Here come the tattoo marks – Scientists want to stamp children with invisible ink to prove they’ve been vaccinated](https://www.naturalnews.com/2021-11-15-scientists-want-to-stamp-vaccinated-children.html) / [ScientificAmerican.com](https://www.scientificamerican.com/article/invisible-ink-could-reveal-whether-kids-have-been-vaccinated/) / [NaturalNews.com](https://www.naturalnews.com/2020-04-03-eugenicist-bill-gates-demands-digital-certificates-coronavirus-vaccination.html)
+**新闻来源**：[naturalnews.com][More celebrities all over Latin America are getting hospitalized and DYING because of COVID-19 vaccines – Brighteon.TV](https://www.naturalnews.com/2021-11-16-athletes-celebrities-latin-america-dying-covid-vaccines.html)
 
 * * *
 
-*审核：文乐
+***审核：文乐
 校对：信心满满
-发稿：Nuevo唐人*
+发布：信心满满***
+
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

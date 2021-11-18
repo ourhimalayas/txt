@@ -2,59 +2,36 @@
 ---
 
 
-## 越来越多的名人因COVID 疫苗而住院或死亡
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1674276/)
+## 中共陷入能源危机，加速开采页岩气致地震频发
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1674297/)
 
-**编译：JennyBall**
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-129.png)[图片来源](https://www.google.com.hk/search?q=%E5%B7%9D%E5%8D%97%E9%A1%B5%E5%B2%A9%E6%B0%94%E6%9E%84%E9%80%A0&amp;tbm=isch&amp;ved=2ahUKEwjcocH2yqH0AhUK0hQKHU6EAvEQ2-cCegQIABAA&amp;oq=%E5%B7%9D%E5%8D%97%E9%A1%B5%E5%B2%A9%E6%B0%94%E6%9E%84%E9%80%A0&amp;gs_lcp=CgNpbWcQA1AAWABgAGgAcAB4AIABAIgBAJIBAJgBAKoBC2d3cy13aXotaW1n&amp;sclient=img&amp;ei=FhuWYdy-D4qkU86IiogP&amp;bih=625&amp;biw=1366&amp;rlz=1C1YKST_enUS900US901#imgrc=rKq6tkRnuX7qBM)
+中共国地震台网正式测定：11月17日23时36分和42分，在四川宜宾市珙县发生4.7级和2.9级地震，震源深度分别为13千米和10千米。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip22-1.png)
+根据中国地震台网速报目录，震中周边200公里内近5年来发生3级以上地震共285次，最大地震分别是2021年9月16日在四川泸州市泸县发生的6.0级地震（距离本次震中131公里）和2019年6月17日在四川宜宾市长宁县发生的6.0级地震（距离本次震中27公里）。
 
-鲍勃·西森（Bob Sisson），通常称之为水管工鲍勃，在 11 月 11 日的 Brighteon.TV 节目中和他的客人玛丽安·巴里恩托斯（Marien Barrientos）谈到，越来越多的名人因冠状病毒 (COVID-19) 疫苗而[住院或死亡](https://www.brighteon.com/a70919b9-b9c9-4d9f-a057-63a6db238bf2) 。
+这些地震具有三个特点，第一，地震频率极高，平均每周数次（2级及以上地震）；第二，震源异常集中，均集聚于四川盆地川南地区；第三，震源深度均为10——15千米，均属于极浅层地震。为什么？
 
-巴里恩托斯正在运营一个拥有数千名粉丝的 Telegram 频道。据她说，最近接种过疫苗的人经常通过该渠道与她联系，谈论他们如何后悔接种实验性危险的 COVID-19 疫苗，因为他们开始经历痛苦的副作用。
+2010年4月，中石油在威远钻成国内第一口页岩气井，建成威201井；同年9月，在长宁钻成宁201井，两口井均获气。2012年3月，中共国有关部门批准建设该区域页岩气产业化示范区，跨四川宜宾市、自贡市、内江市和泸州市等地（如下图所示）。2020年，该区域页岩气年产量达116亿立方米，并计划于2025年页岩气产量达到270亿立方米。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-35.png)图片来源：中国石油天然气集团公司2019年度报告
+要获取页岩气，需要将化学液体注入地下，用水压将岩石层压裂，从而释放出其中的天然气，这便是水力压裂法。2019年，美国地震学会期刊《地震研究快报》（Seismological Research Letters）的相关报告称，川南地区地震是由附近的水力压裂作业诱发。即为，页岩气开采导致的地质构造的改变才是川南地区地震频繁的根本原因。
 
-巴里恩托斯说：“有很多人一直给我打电话，他们向我报告他们自己，或他们的家人感染 COVID 后发生的情况或其他疾病。”“而现在，截至目前，我接到的电话中，**有一半来自接种疫苗后出现不良副作用的人**。”
+2021年第一季度，川南地区页岩气产能突然猛增，达33.55亿方，同比增长30%以上。川南页岩气产量增幅与中共病毒肆虐及其引发的能源危机几乎同步，随着中共国与世界的快速脱钩，中共只能继续加强页岩气的开采，以弥补进口能源缺口。中共国能源主要依靠进口，原油对外依存度为70%，天然气超过40%，还有超3亿吨的优质煤进口，这绝不是加大川渝页岩气开采就可以弥补的，但可以肯定的是，川南的地震将会越来越频繁。
 
-巴里恩托斯还收到有关运动员或名人在接种疫苗后突然死亡或生病的报告。（相关：水管工鲍勃和玛丽恩谈论接种疫苗，足球明星阿圭罗在比赛中倒地 –[Bob The Plumber and Marien talk about vaccinated soccer star Sergio “Kun” Aguero collapsing mid-game – Brighteon.TV](https://www.naturalnews.com/2021-11-09-bob-the-plumber-marien-vaccinated-athlete-collapsing.html).)
+信息来源：
 
-巴里恩托斯指出，许多足球运动员在接种疫苗后，突然出现心肌炎等心脏问题。
+[四川宜宾市珙县连发两次地震，最强4.7级](https://ie.bjd.com.cn/5b165687a010550e5ddc0e6a/contentApp/5b16573ae4b02a9fe2d558f9/AP619524bbe4b023337f253cad.html?isshare=1&amp;contentType=0&amp;isBjh=0)
 
-“超过 80 名著名或甲级联赛的足球运动员已经卒死，”巴里恩托斯说。“都是在接种疫苗之后， 这是所有这些人的共同点，这些踢足球和多年从事体育运动的人，没有任何心脏问题。”
+[四川页岩气开采：“水力压裂”下小地震频发引公众担忧](https://www.bbc.com/zhongwen/simp/chinese-news-47905139)
 
-许多其他公众人物正在经历疫苗的危险副作用。知名的墨西哥女演员和政治家卡门·萨利纳斯（Carmen Salinas）[最近因中风住院](https://abc7news.com/carmen-salinas-mexican-actors-and-actresses-telenovela-star-in-hospital/11225318/)，她完全接种了疫苗。
+[抢抓国家重大战略机遇 勇当中国“气大庆”建设主力军](https://www.sc.gov.cn/10462/10464/10465/10574/2021/6/23/8f023559cfc14e6bb39cd3673a5c8bf0.shtml)
 
-巴里恩托斯指出，萨利纳斯最近几个月因嘲笑担心疫苗副作用的电影和电视行业人士而臭名昭著。
+[中国油气勘探开发十字路口：面临碳中和”大限” 又要力保增储上产](https://www.swpu.edu.cn/og/info/1033/4440.htm)
 
-加州州长加文·纽森（Gavin Newsom）也经历了 COVID-19 疫苗的严重副作用。
-
-西森透露，民主党加州州长纽森，在10 月 27 日接受了加强剂公开接受 COVID-19 加强注射后，也经历了严重的副作用。
-
-纽森因[突然且无法解释的失踪](https://www.yahoo.com/news/where-governor-playing-hookie-gavin-142551067.html)几天，因此受到了强烈批评后，他于 11 月 7 日才重新出现。州长和他的妻子在没有进一步解释的情况下声称，纽森因“家庭义务”而失踪。
-
-左派的人批评州长取消了他本应参加苏格兰气候变化会议。 与此同时，保守派认为，他之所以躲藏，是因为他患有某种 COVID-19 疫苗的副作用。
-
-“据我所知，州长加文·纽森在加利福尼亚州，我知道他打了第三针，”西森说。 “然后，当他有反应时，他非常生气，因为他说他应该打生理盐水，但不知何故，给他打了真家伙（疫苗）， 所以现在他遇到了很多麻烦。”
-
-巴里恩托斯随后分享了 mRNA 技术的发明者罗伯特·马龙（Robert Malone）博士的想法，他在 Twitter 上推测，州长可能一直在躲避格林-巴利综合征，这是一种导致瘫痪的自身免疫性疾病。
-
-这一假设得到了小罗伯特·肯尼迪及其儿童健康保护组织的大力支持。根据肯尼迪的说法，一位接近州长的消息人士证实，纽森正在从吉兰-巴利综合症中康复。
-
-[点击观看与水管工鲍勃和巴里恩托斯的完整节目。](https://www.brighteon.com/a70919b9-b9c9-4d9f-a057-63a6db238bf2)
-
-**点评：为什么州长加文·纽森第三针作秀“他说他应该打生理盐水”？**
-
-**新闻来源**：[naturalnews.com][More celebrities all over Latin America are getting hospitalized and DYING because of COVID-19 vaccines – Brighteon.TV](https://www.naturalnews.com/2021-11-16-athletes-celebrities-latin-america-dying-covid-vaccines.html)
-
-* * *
-
-***审核：文乐
-校对：信心满满
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

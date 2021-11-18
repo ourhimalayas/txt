@@ -2,37 +2,37 @@
 ---
 
 
-## 美参议员恩斯特：乔拜登没有了骨气
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1674437/)
+## Moderna 寻求美国对所有成年人进行 COVID-19 加强注射的授权
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1674468/)
 
-整理报道：七彩光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WK2LROMQYVAVBH6PRGO6RE2DSI.jpg)图片来源：军事时代
-11月17日，《新闻极限》报道美国参议员乔尼·恩斯特（Joni Ernst）参加“唤醒美国”（Wake Up America）节目时，称本周乔·拜登与习近平会谈时不仅“自己没有找到骨气”，而且在要求中共给予中共病毒（COVID-19）起源答案时“放弃了骨气”。
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/11/MAJHR7GR3VODFPG5QMH2CW7L741-edited.jpg)图片来源：网络
+路透社 2021年11 月 17 日 – Moderna Inc (MRNA.O) 周三表示，已向美国食品和药物管理局申请批准其 COVID-19 加强疫苗，适用于所有 18 岁及以上的成年人。
 
-这位爱荷华州共和党人说：“我们没有得到我们所要求的答案，而得到这些答案是每个美国人的头等大事。我们需要弄清（中共病毒起源）这件事情的真相，我们需要了解它，因为我们需要防止今后再次发生任何类似的大瘟疫。总统甚至都没有努力获得我们需要的问题答案，问题没有得到解决，总统需要为美国站出来，而不是对中国俯首称臣”。
+FDA 已经为免疫功能低下的人、65 岁及以上的人以及患有严重疾病的高风险或经常接触病毒的人清除了 COVID-19 疫苗的加强注射。
 
-恩斯特认为，对中共国的行动，（人们）感到愤怒“没有错”，“作为美国人，在中国对待我们伟大国家方面，还是对待其邻国和其他社区的方式，我们都应该感到愤怒”。
+Moderna 正在寻求获得 50 微克加强剂量的授权，这是其原疫苗剂量的一半，间隔大约 4 周，分两次注射。
 
-恩斯特指出，拜登有机会向习近平明确表示，美国不会容忍中共国的行动，包括测试高超音速导弹或入侵台湾。“他有机会要求回答（这些问题），但他没有这样做。”
+该文件是在辉瑞公司 (PFE.N) 为其与德国合作伙伴 BioNTech 开发的疫苗的加强剂量申请类似许可一周后提出的。
 
-对于与中共国的关系，她认为国家领导人之间确实需要对话，如简单的握手和问候，但这不适合于与共产主义中国的关系。“我们知道他们是邪恶操纵者和行为者，我们需要对他们进行反击，我们许多盟国和世界上其他国家都期待美国的领导，但乔·拜登在所有方面都无所作为”。
+预计 FDA 将于本周在美国疾病控制与预防中心 (CDC) 顾问小组会议之前就辉瑞做出决定，会议将讨论扩大疫苗加强剂量的资格。
 
-值得注意的是，恩斯特正在参与一项跨党派法案，如果该法案通过，将会成立一个类似于911事件的调查委员会，以调查中共病毒（COVID-19）的起源。据报道，该法案的联合提案人还包括堪萨斯的共和党参议员罗杰·马歇尔（Roger Marshall），加利福尼亚州的民主党参议员黛安·费恩斯坦（Dianne Feinstein）和纽约州的民主党参议员克尔斯滕·吉利布兰德（Kirsten Gillibrand）。
+消息传出后，Moderna 的股价在下午的交易中上涨 5% 至 246.16 美元。
 
-**新闻来源**
+专家认为，加强剂量对于将 COVID-19 降低到地方性水平至关重要，美国总统乔·拜登 (Joe Biden) 政府 8 月宣布计划在 9 月为所有成年人推出加强剂量。
 
-[Sen. Ernst to Newsmax: Biden ‘Gave His Backbone Away’ to Xi Jinping](https://www.newsmax.com/newsfront/ernst-biden-xi-jinping-covid/2021/11/17/id/1045025/)
+上个月，欧盟药物监管机构批准了 Moderna 的加强疫苗，适用于 18 岁以上的所有年龄组，第二次接种后至少六个月，该公司还在日本申请了助推器批准。
 
-**发布：七彩光**
+然而，包括法国、加拿大、芬兰和瑞典在内的几个国家的监管机构对 Moderna 的疫苗采取了更具防御性的立场，因为它会影响年轻人的心脏相关安全问题。
 
-**更多资讯，请关注：**
+来源链接：
 
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://t.co/EETZmDokJI](https://t.co/EETZmDokJI)
 
+编辑/发布：LILY
+
+20211118
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

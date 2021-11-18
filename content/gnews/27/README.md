@@ -2,25 +2,55 @@
 ---
 
 
-## NBA球星埃内斯·坎特再批中共：停止强摘器官
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1674215/)
+## 科学家们想用隐形墨水给孩子们盖上接种“纹身”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1674235/)
 
-#### 翻译/撰稿：zzballack
+编译: Jenny ball
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-410.png)图片来源：推特
-据《布雷特巴特新闻网》（Breitbart News）11月17日报道，NBA凯尔特人队球星埃内斯·坎特（Enes Kanter）11月16日再度发推抨击北京的暴行，说中共为了获取器官，正以工业化规模杀害良心犯。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-412.png)图片来源: naturalnews.com
 
-坎特通过其推特、脸书等社交媒体账户发帖说：“中共政府正在强摘人体器官。中共国的少数民族和宗教团体、西藏人、死亡集中营中的维吾尔人、基督徒和法轮功都是其目标。中共统治者从政治犯身上偷取肝脏、肾脏和心脏，这是反人类罪！停止中共国的强摘器官暴行，现在就停止！”
+《生活新闻》就在武汉冠状病毒 (COVID-19) 公开宣布前几个月，[*麻省理工学院*](https://web.mit.edu/)  (MIT) 的科学家宣布完成了一项野兽标记“纹身”技术([Mark of the Beast “tattoo” technology for children](https://www.scientificamerican.com/article/invisible-ink-could-reveal-whether-kids-have-been-vaccinated/))，用于跟踪儿童的疫苗接种记录。
 
-坎特推出了一系列专门设计的球鞋，旨在提高人们对中共大规模的人权侵犯行为的认识。这款最新球鞋上画着一个身着蓝色衣服的医生，抓着一个正在淌血的器官。鞋头上绘有肝脏、肾脏和心脏，每个器官都有一个价格标签，而且整双鞋上遍布喷溅的血迹。上周，他在推特上发布的另一款鞋子旨在反击中共对台湾的主权侵犯。10月底，他推送了两款鞋子，提醒人们注意中共对维吾尔人的种族灭绝行为，以及强调中共对极权主义的偏好。
+可以直接植入皮肤的微芯片设计，有特殊的隐形染料，可以用特殊的手机过滤器拾取，这种染料肉眼是看不到的。
 
-坎特对中共的直言批评引来了中共的报复。腾讯停止直播其所在的凯尔特人队的赛事。NBA大联盟也正在悄悄地试图让坎特闭嘴。坎特最近承认，一些NBA官员已经悄悄联系并警告他说，如果他继续批评中共的人权侵犯行为，将考虑禁止他参加比赛。
+这种染料可持续长达五年，使用近红外光检测，近红外光照射到注射区域的皮肤上。 它已经在猪和老鼠身上进行了测试，据推测，下一步是开始給儿童真正的注射。
 
-坎特本赛季出场时间明显减少。一些球迷怀疑这与他的批评中共行为有关。而坎特本人似乎也暗示情况就是如此，他11月15日发推暗指中共说：“你继续限制我的上场时间，我会在球场外揭发你。”
+亿万富翁兼优生学家比尔·盖茨（Bill Gates），在大流行初期就呼吁这样做，**并暗示中共国病毒的数字疫苗“护照”，包括人们的注射记录**。
 
-新闻来源：[Enes Kanter Blasts Beijing: ‘Stop Organ Harvesting in China’](https://www.breitbart.com/sports/2021/11/17/enes-kanter-blasts-beijing-stop-organ-harvesting-in-china/)
+“该系统尚未在儿童中进行过测试，它可以快速方便地访问疫苗接种历史，避免文书错误的风险，并且几乎不会增加程序的成本或风险，”《科学美国人》援引一项发表在《科学转化医学》杂志上的项目研究报告说。
 
+**量子点纹身完成兽印记录系统**
+
+参与该项目的科学家们，再次以穷人为借口制造这种令人憎恶的事情，声称它将帮助发展中国家实现更好的儿童健康结果。
+
+[*佐治亚理工学院*](https://www.gatech.edu/) （Georgia Tech）的生物工程教授马克·普拉斯尼茨（Mark Prausnitz）评论说：“特别是在医疗记录可能不完整或不易获取的发展中国家，将医疗信息与人直接相关是有价值的。” 他没有参与这项研究。“我认为，这是实现这些目标的一种非常有趣的方式。”
+
+它还[实现了将人们的识别信息合并到微芯片注射或纹身](http://futuretech.news/)中的预言目标，这些信息可以被扫描用于买卖、进入受限制的建筑物、驾驶和参与社交活动。
+
+据麻省理工学院生物工程师罗伯特·兰格（ Robert Langer）和安娜·雅克莱内克（Ana Jaklenec）称，首先在儿童皮肤上印上装满微针的小贴片，为他们注射疫苗。之后，他们的注射证明存储在其可注射组件上。
+
+通过对手腕、前额注射这些成分的地方进行简单扫描，政府就可以快速检查孩子是否“按时”接种疫苗，其中包括福奇流感疫苗。
+
+“该团队最终使用了一种称为量子点的技术，这种微小的半导体晶体可以反射光，最初开发用于在研究过程中标记细胞，”《科学美国人》报道。“这种染料已被证明对人体是安全的。”
+
+正如您所料，并非每个人都参与该计划。隐私专家表示，让人们带着包含他们所有个人信息的微芯片四处走动存在风险。
+
+“不同的人和不同的文化，可能会对隐形医疗纹身有不同的感觉，”普劳斯尼茨补充道。
+
+**比尔和梅琳达****·****盖茨基金会资助这项兽印记研究这一事实并不令人意外**。它的推出是因为盖茨本人的“直接要求”，他声称，他希望将这些微芯片植入人体内，以“消灭疾病”。
+
+“如果我们没有好的数据，就很难根除疾病，”雅克莱内茨补充道，以支持盖茨的议程。
+
+**评论：这篇文章让人们看到：疫苗的真正目的，除了大规模灭绝人口，还是更利用管控疫苗没有杀死的人们！**
+
+新闻来源: [naturalnews.com][Here come the tattoo marks – Scientists want to stamp children with invisible ink to prove they’ve been vaccinated](https://www.naturalnews.com/2021-11-15-scientists-want-to-stamp-vaccinated-children.html) / [ScientificAmerican.com](https://www.scientificamerican.com/article/invisible-ink-could-reveal-whether-kids-have-been-vaccinated/) / [NaturalNews.com](https://www.naturalnews.com/2020-04-03-eugenicist-bill-gates-demands-digital-certificates-coronavirus-vaccination.html)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
