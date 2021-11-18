@@ -2,145 +2,60 @@
 ---
 
 
-## 六中全会后，习成为全党公敌对新中国联邦是天大的利好
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1674221/)
+## YouTube删除了参议员约翰逊质疑COVID 疫苗安全性的视频
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1674223/)
 
-[https://gtv.org/video/id=6195bbd51827025081065606](https://gtv.org/video/id=6195bbd51827025081065606)
+**编译：Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip20-1.png)By：Children’s Health Defense Team
+YouTube暂停了参议员罗恩·约翰逊的帐户一周, 因为视频有关 COVID 疫苗的小组讨论， 该小组的成员包括医生、科学家和因疫苗受伤的人。
 
-六中全会给我们带来一个（消息）就是上天在帮我们新中国联邦
-La Sexta Sesión Plenaria nos traerá una (noticia) ayuda que nos está haciendo Dios a nuestro Estado Federal de China
+**这是今年第五次YouTube 暂停参议员罗恩·约翰逊的 YouTube 频道**——这一次是因为[在 11 月 2 日的圆桌讨论视频中](https://childrenshealthdefense.org/defender/nov-2-sen-ron-johnson-cdh-covid-vaccine-injuries-federal-mandates/)“传播错误信息”，其中包括科学家、医生和因 COVID 疫苗受伤的人。正如约翰逊在一条推文中所说的那样：**“这是今年第 5 次，@YouTube 阻止我告诉大家真相**。”
 
-他这么一决定大家要记住
-Todos recuerden él al tomar esa decisión
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip21-1.png)
 
-习就成了全党的唯一的公敌
-Xi se convertirá en el único enemigo público de todo el partido
+YouTube 发言人[告诉《国会山报》](https://thehill.com/policy/technology/581360-youtube-temporarily-suspends-johnsons-channel-over-covid-19-misinformation)，该平台从 11 月 13 日起暂停了约翰逊的账户一周，并删除了 4 小时的小组讨论部分视频，但允许较短的版本继续存在。
 
-就共产党内部的绞杀
-Sobre el estrangulamiento dentro del PCCh
+发言人说：我们制定政策以降低现实世界伤害的风险，随着官方指南的发展而更新它们，我们考虑视频的背景，在公开讨论人们的经历与防止有害错误信息传播之间取得平衡。”
 
-就是文化大革命的后期
-Es la última parte de la Revolución Cultural
+YouTube 发言人，就儿童健康保护[Children’s Health Defense](https://childrenshealthdefense.org/)主席小罗伯特·肯尼迪评论暂停说：“在 535 名美国参议员和众议员中，只有罗恩·约翰逊有勇气站出来对抗大型制药公司对疫苗受伤者的欺凌。密谋让他闭嘴，并审查专家和受伤美国人的声音是对人类尊严和美国民主的腐败攻击的典型实例。”
 
-毛泽东和刘少奇、林彪就开始了
-Desde Mao Zedong, Liu Shaoqi y Lin Biao comenzaron
+YouTube 要求约翰逊提交给政府运营的疫苗不良事件报告系统 (VAERS) 的[死亡和受伤报告数量](https://childrenshealthdefense.org/defender/vaers-cdc-covid-vaccine-data-injuries-5-year-olds/)。
 
-如果他要立了接班人说自己下去了
-Si él quiere crear un sucesor y decir que bajará
+约翰逊于 11 月 2 日告诉专家组，向 [Vaccine Adverse Event Reporting System](https://vaers.hhs.gov/)报告了 COVID 疫苗，有 7,619 人死亡。
 
-那他马上就是赤膊战斗中国真可能失控
-De inmediato va a luchar sin camisa y China de verdad se descontrolará
+约翰逊说：“与流感疫苗的年度数字相比，这是短短 10 个月内死亡人数的 225 倍。” “这些疫苗伤害是真实的。”
 
-这回大家有个目标 干掉习
-Esta vez todos tienen una meta, derribar a Xi
+YouTube 还反对小组成员罗伯特·卡普兰（Robert Kaplan）博士的证词，他是加州大学洛杉矶分校公共卫生与医学学院的教授，曾是美国国立卫生研究院的官员。
 
-习要是永远护着自己这个龙椅 记住啊
-Si Xi quiere proteger por siempre su podio de dragón recuerda
+卡普兰告诉专家组，他分析了辉瑞和莫德纳临床试验的数据，发现接受注射的人和接受安慰剂的人的死亡率相同。
 
-习要护着这个国家和共产党这个龙椅
-Xi va a proteger este podio de dragón del país y del PCCh
+他还表示，他担心“研究的完整性，以及在这种紧急情况下用于授权、批准和强制使用疫苗的程序”。
 
-那可复杂了去了
-Eso si se complica
+如果约翰逊的帐户在 90 天内再次违反 YouTube 的政策，它将被暂停两周。根据 YouTube 的三次罢工政策，在 90 天内第三次违规将导致该频道被永久暂停。
 
-但这些人要干掉他人家在暗处
-Pero estas personas que lo quiere derribar están en la oscuridad
+在提供给希尔的一份声明中，约翰逊说：“再一次，**大型科技公司正在审查真相**。为什么他们不让疫苗受伤的人讲述他们的故事？这会让医学专家给出第二意见，**为什么我们不能讨论疫苗授权的有害影响？**显然，拜登政府和联邦卫生机构不能受到质疑。这会让多少生命无谓地毁灭？”
 
-只需一枪只需一炮或者一粒药就能把他解决掉
-Solo necesitan una bala, un cañón o una pastilla lo podrán resolver
+约翰逊直言不讳地批评政府对 COVID 的反应，同时也是疫苗伤者的倡导者，他在 6 月举行了一次新闻发布会，以提请人们注意他所说的那些被医学界“一再忽视”的人。
 
-你放心 全党的所有人就干两件事儿
-Tú tranquilo, en todo el partido sólo harán dos cosas
+“我们都支持疫苗，”约翰逊在新闻发布会开始时说。事实上，自从猪流感以来，约翰逊已经接种了所有流感疫苗，他接受的所有疫苗都是最新的，并且是神速行动的坚定支持者，尽管他没有接种 COVID 疫苗，因为他已经感染了 COVID。
 
-他的敌人第一保住自己的什么私生子女和财产
-Lo primero que hará su enemigo es proteger las propiedades de sus hijos ilegítimos
+约翰逊说，他的目标是为这些因 COVID 疫苗而受伤的人提供一个平台，以便卫生界和主流媒体承认他们并找到根本原因——为这些问题找到解决方案。
 
-然后呢逮住机会把习干掉
-Luego de eso obtener una oportunidad para derribar a Xi
+**评论：疫苗受害者讲述自己的亲身经历，这对YouTube来说是“ ****有害错误信息”！质问科学家疫苗证据，****这对YouTube来说是“ ****有害错误信息”！****中共一直在YouTube上撒谎，但Youtube从不阻止中共的账号！CDC， FDA，政府一直在病毒疫苗上撒谎，YouTube从不封他们的账号！**
 
-那么习加速师是我们的礼物
-Entonces el acelerador Xi es nuestro regalo
+**Youtube已经不再是社交平台了，早已沦为中共和邪恶势力的宣传工具！所以，我们的Gettr, GTV, Gnews是多么及时，在这些宣传工具即将把人类带入地狱之时，向人们传播真相！**
 
-他这么一折腾咱就省心了
-Él al complicarse nosotros no nos preocupamos
+**新闻来源**：[childrenshealthdefense.org][YouTube Suspends Sen. Johnson’s Channel Over Video Featuring Doctors, Scientists Who Question COVID Vaccine Safety](https://childrenshealthdefense.org/defender/youtube-censors-sen-ron-johnson-covid-vaccine-safety/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=189b28d1-610c-4e4c-8e08-d6413105a1d8)
 
-咱这个两三年使劲赚钱去
-Estos dos tres años nos esforzamos al máximo para ganar dinero
+* * *
 
-建立我们强大的新中国联邦的国防
-Construir la defensa nacional de nuestra poderosa Nuevo Estado Federal de China
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-建立强大的我们金融系统
-Construir un Sistema Financiero fuerte
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
 
-多交朋友让新中国联邦得到更多认可
-Hacer muchas amistades nuevas para que el Nuevo Estado Federal de China sea reconocido
 
-从外边准备好
-Prepararse bien desde la parte exterior
-
-另外一个从昨天所有的宣布
-Lo otro que se comunicó el día de ayer
-
-习所谓的他现在已经完全把自己列为
-Lo que Xi dijo que ahora se ha incluido por completo como
-
-就是毛、邓、习了
-Es decir, Mao, Deng, Xi
-
-而且昨天已经很清楚告诉你
-Además, el día de ayer te lo dijo claramente
-
-这个接班人一定是他的家人一定是他的认定
-Este sucesor debe ser su familia y debe ser reconocido por él
-
-接下来20大的事情已经不用想了
-En seguida las 20 cosas principales ya no es necesario de pensar
-
-习是肯定在党内已经都知道都定完了
-Xi seguramente sabe que dentro del partido ya todos lo confirmaron
-
-公告一下就行了
-Solo hay que hacer un aviso y listo
-
-他明年20 大之前
-El año que viene antes de las 20 cosas principales
-
-大量的捕杀要把他的李希、李磊全弄上去
-Habrá una gran cantidad de asesinatos para que Li Xi y Li Lei se levanten
-
-要把江家的人逐渐铲除
-Va a erradicar gradualmente a las personas de la familia Jiang
-
-然后想尽一切办法
-Luego hacer todo lo posible
-
-要把整个企业所谓的再分配
-Para hacer la llamada redistribución de toda la empresa
-
-1分配、2分配、3分配这还没开始呢
-La asignación 1, 2 y 3 no han empezado
-
-在国内的人可就惨了去了现在
-La gente dentro del país sí que estará miserable ahora
-
-日期：11/17/2021
-原视频标题：六中全会后，习成为全党公敌对新中国联邦是天大的利好
-Después de La Sexta Sesión Plenaria, Xi se convertirá en el mayor beneficio del enemigo público de todo el Partido contra El Nuevo Estado Federal de China
-原视频日期：11/14/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1459700077413679104?s=24](https://twitter.com/se1y7cblljselva/status/1459700077413679104?s=24)
-任务编号：KC262（2877）
-视频时间段：0:00-2:18
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

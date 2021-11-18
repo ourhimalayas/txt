@@ -2,94 +2,26 @@
 ---
 
 
-## 中共国经济一塌糊涂，并将引起经济崩溃
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1674322/)
+## 中共曲线培养香港小粉红
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1674352/)
 
-[https://gtv.org/video/id=6195fd621827025081066a4d](https://gtv.org/video/id=6195fd621827025081066a4d)
+作者：东京樱花团丨 阿恩
+![](https://lh4.googleusercontent.com/Ens72oSXZDDuOGtzrEoGw_kPm7bD9HhKZhNcLhyN2ABbX4DGK18EoPFaTJxIS3f_vrHPInP9lMdxcQIFut0ph15X4AitPvpWpaoRJouvyJmM0omO0T8jcmU6iLCBWtHxcJ_cuqBs)[图片来源](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/698852/%E5%A4%A9%E6%B0%B4%E5%9C%8D%E8%B3%87%E5%8A%A9%E5%B0%8F%E5%AD%B8%E9%82%80%E5%BE%B7%E5%9C%8B%E5%A4%A7%E5%AD%B8%E7%94%9F%E5%88%B0%E6%A0%A1%E4%BA%A4%E6%B5%811%E5%B9%B4-%E5%85%A8%E6%A0%A1%E5%B8%AB%E7%94%9F%E5%85%8D%E8%B2%BB%E5%AD%B8%E5%BE%B7%E6%96%87)
+香港教育局对教职人员有严格的资格要求，教师必须有大学的教育专业文凭，并考获教育学院的教师资格才能执教；助教一般都需要有大学学历，工作仅限于协助教师处理文书或看管学生；兼职教学助理一般聘请就读大学的学生担任，仅负责课后补习班。香港教育局对外籍教师也有严格的要求，必须要有相关的学士学位，有10年教学经验，在香港获得教育证书等。97后香港推行母语教学，许多普通学校加入其中，导致97后香港学生的英文能力直线下滑，因此香港各大学的许多课程对本港新生提出测验英文能力的要求。港府面对港人的不满也改变态度，允许香港的中学根据师资水平和学生的能力自行决定是否回归英文教学，但大部分中学在第二次的起跑线上掉队无力回复，成功的绝大部分是Band1类的中学，而事实上英中学生的本地和国外大学升学率确实远超中文中学。
 
-**郭文贵
-Miles Guo**
+在香港社会重回英文教学的热潮中，香港教育局却一直忽略英文教师的投入，以香港小学为例，每间资助小学仅获编配一名外籍教师的费用，学校如果要增加外教，需要自掏腰包。而一间小学约600-700名学生，每个班级每周只能编排一至两节外教课。中共暴政香港导致移民潮，今年中小学学位空缺加剧，一些学校面临收生不足有杀校的风险，学校之间为增加收生吸引力不断向机构和组织申请资金，增设当下热门的教学课程，如STEM、外国语等。香港的学校大部分由私人办学团体组建，政府给予土地和一定的资金补助，因此办学团体的资金力量往往决定了学校的师资能力和升学率。
 
-恒大完了就融创、合生创展、富力，然后就是王健林
-After Evergrande failed, then will be Sunac, Hopson Development, R&F, then will be Wang Jianlin（Wanda）
+今日有报道称，中华基督教青年会小学获办学团体YMCA资助，本学年邀请到数名德国大学生以实习生身份到学校交流，该校小学生每周至少有两天学习德文及认识德国交化。中共集权统治下的香港，一切与之为敌，不合它心意的人和组织均被疯狂打压，能正常生存下来的机构，尤其是覆盖香港2/3人口的宗教界也正被中共全面渗透和掌控。这起宗教机构出资邀请外国留学生进入校园，向中共未来的小粉红宣传资本主义传统文化，意图与勾结外国势力无异，中共喉舌报章不仅不厉声抨击，反而堂而皇之地刊登出来赞许，事出反常必有妖！
 
-中国现在你知道中国是47家大银行，近40家银行的股票跌破了净资产
-Now you know that China’s nearly 40 of the 47 major banks’ stocks have fallen below their net assets
+中共的蓝金黄举世闻名，霸占香港多时罪孽深重世人皆知，中共无时不刻想粉饰太平洗白自己，这些外国留学生就成为中共蓝金黄的对象，利用外国学生的身份向世界宣传，中共统治下的香港学生有更多的机会接触外国的文化，绝不是只有监控、洗脑国安和爱国教育。而这些外国留学生也成为最好的外宣工具，为中共在外国人面前摇旗呐喊。对于白纸般的小学生，这些外国留学生口中对中共的赞美和对西方的不满，比孩子父母和亲人的意见更加有信服力。长此以往，中共能成功在香港的孩子心中建立仇视西方的堡垒，孩子们对中共也更加依赖，我们的下一代将堕入中共的罗网成为傀儡。
 
-中国将近70家国家级金融机构，现在几乎是100%全赔钱
-Nearly 70 national financial institutions in China now almost 100% losing money
+中共残暴的独裁体制，施政从来不会以人为本，所有的示好都暗藏邪恶的动机，在这网络技术日新月异的时代，为人父母的、为人师长的、为人邻里的，为人亲友的…… 所有的人都需要互帮互助，彼此提醒认清中共的邪恶动机，保护我们的孩子，保护我们的未来。
 
-保险公司兑付率，兑现率不超过10%，百分之八十几违约
-The redemption rate of insurance companies does not exceed 10%, default rate of more than 80%
+资料来源：[天水圍資助小學邀德國大學生到校交流1年　全校師生免費學德文](https://www.hk01.com/%E7%A4%BE%E6%9C%83%E6%96%B0%E8%81%9E/698852/%E5%A4%A9%E6%B0%B4%E5%9C%8D%E8%B3%87%E5%8A%A9%E5%B0%8F%E5%AD%B8%E9%82%80%E5%BE%B7%E5%9C%8B%E5%A4%A7%E5%AD%B8%E7%94%9F%E5%88%B0%E6%A0%A1%E4%BA%A4%E6%B5%811%E5%B9%B4-%E5%85%A8%E6%A0%A1%E5%B8%AB%E7%94%9F%E5%85%8D%E8%B2%BB%E5%AD%B8%E5%BE%B7%E6%96%87)
 
-这不是要破产的问题了，这不是一个所谓的共享财富的问题
-This is not only a question of going bankrupt, it is not a so-called shared wealth question
-
-是没有人能撑下去的，今天美国的房地产，你看没到2004年到2008年的时候
-No one can hold on, today American’s real estate situation hasn’t be there yet, like from 2004 to 2008
-
-美国这个房产的疯狂简直是不可思议的
-The madness of this American’s real estate is simply unbelievable
-
-美国全世界欧洲没有人工作，跟你家装修、装水管
-No one works in the United States, the world, or Europe, remodel or maintenance
-
-它维护这个，这个它需要人力的，没人干活
-It needs manpower to maintain the real estate, and no one does it
-
-那么现在中美之间发生什么问题，供应链彻底崩塌
-So what is the problem between China and the United States, that is the supply chain has completely broke
-
-美国在这种情况下就希望中共你一定要给我供应链
-In this case, the U.S. hopes that the CCP must maintain the supply chain
-
-就是奴隶，而且美国已经对中国开启签证
-It’s a slave(Chinese people), and the U.S. has opened visa application to China
-
-第二，我现在要让你开始保证我的基本的民意，老百姓的生活
-Second, (the Biden administration) now hopes that Xi can guarantee basic living goods to the American people
-
-便宜点的内裤，便宜的旅游鞋还得给我
-i.e. the cheap underwear, low-cost travel shoes need to resume in market
-
-第三，你千万房地产你别一下倒，要慢慢倒
-Third, (the Biden administration) demands that the real estate business must avoid quickly collapsing, slowly collapsing (is acceptable)
-
-第四，最重要的咱俩要合作，咱得忽悠老百姓
-Forth, the most important thing is that we have to cooperate, we need to fool the Laobaixing
-
-明天无限美好，继续画大饼
-Tomorrow is infinitely beautiful, continue to make a empty promise
-
-一切的一切都为了今年的中期选举，就是民主党绝对不能输
-Everything is for next year’s midterm elections, it means that the Democratic Party must not lose
-
-弗吉尼亚几乎废掉了拜登总统的一半以上的能力
-Virginia (election lost) almost abolished more than half of President Biden’s capabilities
-
-你在这个中期选举完几乎就完了
-(The Biden administration) most likely would be over after this mid-term election
-
-* * *
-
-Date:11/15/2021
-原视频标题: 中共国经济一塌糊涂，并将引起经济崩溃
-Communist China’s economy is in a mess and will cause economic collapse
-原视频日期：2021/11/12
-原视频链接 [https://twitter.com/se1y7cblljselva/status/1459528903681507328?s=24](https://twitter.com/se1y7cblljselva/status/1459528903681507328?s=24)
-任务编号：2874
-视频时间段 : 0:00-2:00
-英听校： 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团 / 文小白
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

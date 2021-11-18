@@ -2,37 +2,146 @@
 ---
 
 
-## 摇摇摆摆不可恕
-` 骄子` [轉載自GNews](https://gnews.org/zh-hans/1674220/)
+## 六中全会后，习成为全党公敌对新中国联邦是天大的利好
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1674221/)
 
-文｜骄子
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-130.jpg)图：骄子
-法币是中心化的，你花出去的每一分钱都是可以查证的，除非住在山上当野人。正因为钱的不自由，人们合理合法的收入会被各种agent用合法流氓手段拿走，agent不用出一分力，轻轻松松就能把别人巨量的财富抢走。民主国家尚且存有民主之基，在法律的方面会考虑到一丝丝民意，对私有财产的保护尚且是可以的。而共产党完全不用考虑这个，独裁就是可以大揽民财，我说收你的企业就收你的企业，抄你的家就抄你的家，人家家里买的假爱马仕都要拿走。墙内老百姓在丧失对财富的正确认知之时，也丧失了对基本善恶的认知。钱是养命之本，没有钱寸步难行，为了钱可以带着老婆出去出卖肉体，为了钱当然可以出卖自己的灵魂，共产党巴不得老百姓把命把灵魂都出卖给他。扭曲人之所以为人的本质，你不是人你是奴隶。
+[https://gtv.org/video/id=6195bbd51827025081065606](https://gtv.org/video/id=6195bbd51827025081065606)
 
-既然是奴隶，那你就不应该有什么思想。你的性格里应该充满了懦弱和摇摆。其实每年的美国大选，最后决定胜利的那几个州，都是摇摆州。有的州在选举的时候只需要door to door一次，送一点小礼物就算了，而这些摇摆州可能需要多次door to door，还要多送点小礼物才行。从最后的选举结果来看，可以这样说，是这些小礼物收买了民意，那也无可厚非。世界上这么多人，我们始终无法定义一个人应该怎样活，摇摆不定是一种活法，甚至还能得到多一些好处呢。在国内，马云的电商平台，购买任何东西都有一个选项叫做“7天无理由退货”，除非是一些确实没办法退换的才不接受这个规则。很奇怪的就是虽说无理由退货，但在退货的同时依然要填写退货理由，其中有一项理由叫做“不喜欢不想要”。讲老实话，如果是货品本身的质量问题，那当退则退，这个规则是底线，你的质量有问题那一定要退，但这个“不喜欢不想要”，看似是给所有的人一种心理补偿，买吧买吧，买了不喜欢就退掉，反正可以随便就退。但是对卖家来说，你浪费人家的时间，浪费人家的包裹，浪费物流，甚至要接受你的侮辱，也许本来一件诚意满满的创造之作，在你这里一开始是喜欢才会拍下来，人家发过来你又不喜欢了，你到底是喜欢还是不喜欢，过一会儿退货了是不是又喜欢了？
+六中全会给我们带来一个（消息）就是上天在帮我们新中国联邦
+La Sexta Sesión Plenaria nos traerá una (noticia) ayuda que nos está haciendo Dios a nuestro Estado Federal de China
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/截屏2021-11-18-下午5.51.15.png)电商陷阱 / 图源：网路
+他这么一决定大家要记住
+Todos recuerden él al tomar esa decisión
 
-流行词里有一个叫做”选择困难症“，马云平台的这个规则简直就是为他们量身打造的。很多人困在选择题里，社会上不仅开始教育人们怎么花钱，而且开始教育人们怎么做人。这种人的数量是一小部分还好，因为毕竟你没办法让人家喜欢哪一种活法，如果这种数量到达了某种限度，那这个社会的灾难也就开始了。选择困难症的本质是摇摆和懦弱，或者叫精致利己。无法选择的根源不是因为眼花缭乱的现代商业物质品类，而是因为无法坚持的内心。
+习就成了全党的唯一的公敌
+Xi se convertirá en el único enemigo público de todo el partido
 
-疫苗怎么这么轻易就能给这么多人扎上，有的还扎了三针？相信一开始要坚决打疫苗的人并不多，大家都是在互相看，你看看我，我看看你，走一步看一步，都是摇摆派。你们都是摇摆的态度那真得太好办了，给你一些小礼物小奖赏，一次不行两次，这可以骗得到一部分人去打疫苗。还有一部分人的摇摆态度对应方法包括多次释放病毒制造恐慌心态，或者强制疫苗证书，不让你上班不让你加油不让你去超市买食物，这么几番下来，没有坚定的内心“我就是不打疫苗”，根本无人生还。是什么造成了这么大范围的摇摆态度？美国大选起决定作用的摇摆州，以及国内电商的那个无理由退货规则，和成为流行语的“选择困难症”，看似没有什么逻辑，但覆盖了老百姓生活的大面积。有的人甚至以这个为荣，确实左右摇摆的心态，是可以得到更多好处的。
+就共产党内部的绞杀
+Sobre el estrangulamiento dentro del PCCh
 
-但在疫苗灾难这么疯狂的爆发下，全世界的人类都要走向一个崩落时刻，摇摆能把你命给要了。这种危难的时刻，一定是那种从一而终，坚持一个目标不动摇的人能够取得胜利。就连共产党都几十年如一日，坚定耍流氓假骗偷，所以能在中国大地横行这么多年是有道理的。灭共的力量，文贵先生爆料革命新中国联邦，一定有更坚定的信心一定能够消灭共产党，才能走到今天这样开阔的局面。
+就是文化大革命的后期
+Es la última parte de la Revolución Cultural
 
-回到开头，agent的存在，某些意义上也是因为摇摆派的增多。agent帮你选，看起来是在帮人解决问题，实则是带来越来越多的问题，让人逐渐失去思考能力并且不断地被agent的旧壶新酒弄得更加左右摇摆。未来喜币互转功能开通以后，战友之间可以自由转账，也许会出现那种不认账的，真得有可能，因为那些共产党的特务还潜伏着呢。马云的“7天无理由退货”，请记住那是在绝对的中心化之下，付款到支付宝，支付宝就是那个中心化agent，摇摆的后果就是被人家各种盘剥。喜币这种互转是不可能再退回的，两个人说得好好的，转好帐了你又反悔了。摇摇摆摆不是新中国联邦人的性格，错了可以改。摇摇摆摆对待喜币，一会儿要一会儿又不要，你让它摇摆，它终有一天会远离你。就像那些卖掉喜币的又后悔了回来找七哥要，永远不可能了。下定决心转帐，就要为自己的转账负责，没有这份笃定，还谈什么灭共？喜币最大程度保护了私密性，也最大程度在考验着人到底能不能驾驭财富。所以这最后的5%，有多难得？
+毛泽东和刘少奇、林彪就开始了
+Desde Mao Zedong, Liu Shaoqi y Lin Biao comenzaron
 
-七哥说起自己的性格，曾得罪了不少人，看你不喜欢马上就得走，坚持让你走，没有任何商量的余地。宁愿得罪人也要维护并坚定自己的内心，皮囊是一副，内心千万种，定心之针竖，纵览风云，不畏变局。
+如果他要立了接班人说自己下去了
+Si él quiere crear un sucesor y decir que bajará
 
-* * *
+那他马上就是赤膊战斗中国真可能失控
+De inmediato va a luchar sin camisa y China de verdad se descontrolará
 
+这回大家有个目标 干掉习
+Esta vez todos tienen una meta, derribar a Xi
 
-作者：骄子
-审核：兵嫂
-发布：骄子
+习要是永远护着自己这个龙椅 记住啊
+Si Xi quiere proteger por siempre su podio de dragón recuerda
 
+习要护着这个国家和共产党这个龙椅
+Xi va a proteger este podio de dragón del país y del PCCh
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![]()
+那可复杂了去了
+Eso si se complica
+
+但这些人要干掉他人家在暗处
+Pero estas personas que lo quiere derribar están en la oscuridad
+
+只需一枪只需一炮或者一粒药就能把他解决掉
+Solo necesitan una bala, un cañón o una pastilla lo podrán resolver
+
+你放心 全党的所有人就干两件事儿
+Tú tranquilo, en todo el partido sólo harán dos cosas
+
+他的敌人第一保住自己的什么私生子女和财产
+Lo primero que hará su enemigo es proteger las propiedades de sus hijos ilegítimos
+
+然后呢逮住机会把习干掉
+Luego de eso obtener una oportunidad para derribar a Xi
+
+那么习加速师是我们的礼物
+Entonces el acelerador Xi es nuestro regalo
+
+他这么一折腾咱就省心了
+Él al complicarse nosotros no nos preocupamos
+
+咱这个两三年使劲赚钱去
+Estos dos tres años nos esforzamos al máximo para ganar dinero
+
+建立我们强大的新中国联邦的国防
+Construir la defensa nacional de nuestra poderosa Nuevo Estado Federal de China
+
+建立强大的我们金融系统
+Construir un Sistema Financiero fuerte
+
+多交朋友让新中国联邦得到更多认可
+Hacer muchas amistades nuevas para que el Nuevo Estado Federal de China sea reconocido
+
+从外边准备好
+Prepararse bien desde la parte exterior
+
+另外一个从昨天所有的宣布
+Lo otro que se comunicó el día de ayer
+
+习所谓的他现在已经完全把自己列为
+Lo que Xi dijo que ahora se ha incluido por completo como
+
+就是毛、邓、习了
+Es decir, Mao, Deng, Xi
+
+而且昨天已经很清楚告诉你
+Además, el día de ayer te lo dijo claramente
+
+这个接班人一定是他的家人一定是他的认定
+Este sucesor debe ser su familia y debe ser reconocido por él
+
+接下来20大的事情已经不用想了
+En seguida las 20 cosas principales ya no es necesario de pensar
+
+习是肯定在党内已经都知道都定完了
+Xi seguramente sabe que dentro del partido ya todos lo confirmaron
+
+公告一下就行了
+Solo hay que hacer un aviso y listo
+
+他明年20 大之前
+El año que viene antes de las 20 cosas principales
+
+大量的捕杀要把他的李希、李磊全弄上去
+Habrá una gran cantidad de asesinatos para que Li Xi y Li Lei se levanten
+
+要把江家的人逐渐铲除
+Va a erradicar gradualmente a las personas de la familia Jiang
+
+然后想尽一切办法
+Luego hacer todo lo posible
+
+要把整个企业所谓的再分配
+Para hacer la llamada redistribución de toda la empresa
+
+1分配、2分配、3分配这还没开始呢
+La asignación 1, 2 y 3 no han empezado
+
+在国内的人可就惨了去了现在
+La gente dentro del país sí que estará miserable ahora
+
+日期：11/17/2021
+原视频标题：六中全会后，习成为全党公敌对新中国联邦是天大的利好
+Después de La Sexta Sesión Plenaria, Xi se convertirá en el mayor beneficio del enemigo público de todo el Partido contra El Nuevo Estado Federal de China
+原视频日期：11/14/2021
+原视频网址： [https://twitter.com/se1y7cblljselva/status/1459700077413679104?s=24](https://twitter.com/se1y7cblljselva/status/1459700077413679104?s=24)
+任务编号：KC262（2877）
+视频时间段：0:00-2:18
+西听校：洛杉矶盘古农场 – 小文萱
+翻译：洛杉矶盘古农场 – 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

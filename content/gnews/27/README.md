@@ -2,31 +2,24 @@
 ---
 
 
-## 拜登指定的基础设施经理与中共统战部有关系
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1674203/)
+## NBA球星埃内斯·坎特再批中共：停止强摘器官
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1674215/)
 
-#### 撰稿：彩虹
+#### 翻译/撰稿：zzballack
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-12.jpg)图片来源：华尔街日报
-近日，美国总统拜登指定新奥尔良市前市长米奇·兰德里厄（Mitch Landrieu）为基础设施经理，11月18日，《新闻极限》报道来自威斯康星州的众议员迈克·加拉格尔（Mike Gallagher）称，兰德里厄与中共统战部有关系，应该“没有资格”担任这份工作。
+#### 校对：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-410.png)图片来源：推特
+据《布雷特巴特新闻网》（Breitbart News）11月17日报道，NBA凯尔特人队球星埃内斯·坎特（Enes Kanter）11月16日再度发推抨击北京的暴行，说中共为了获取器官，正以工业化规模杀害良心犯。
 
-据《华盛顿自由灯塔》报道，兰德里厄已被指定为最近签署的1.2万亿美元基础设施支出法案的高级顾问和基础设施协调员，他将掌握对资金分配的影响力，包括从外国公司购买材料的豁免权。
+坎特通过其推特、脸书等社交媒体账户发帖说：“中共政府正在强摘人体器官。中共国的少数民族和宗教团体、西藏人、死亡集中营中的维吾尔人、基督徒和法轮功都是其目标。中共统治者从政治犯身上偷取肝脏、肾脏和心脏，这是反人类罪！停止中共国的强摘器官暴行，现在就停止！”
 
-根据《国家脉动》的调查文章，USHCA（美国腹地中国协会）是由密苏里州前民主党州长鲍勃·霍尔登（Bob Holden）创建的，自称是一个“两党组织，致力于在美国腹地地区（包括美国五大湖到海湾之间的20个州）和中国之间建立更强大的联系”。
+坎特推出了一系列专门设计的球鞋，旨在提高人们对中共大规模的人权侵犯行为的认识。这款最新球鞋上画着一个身着蓝色衣服的医生，抓着一个正在淌血的器官。鞋头上绘有肝脏、肾脏和心脏，每个器官都有一个价格标签，而且整双鞋上遍布喷溅的血迹。上周，他在推特上发布的另一款鞋子旨在反击中共对台湾的主权侵犯。10月底，他推送了两款鞋子，提醒人们注意中共对维吾尔人的种族灭绝行为，以及强调中共对极权主义的偏好。
 
-根据美国政府的说法，该组织是中共“统战部”的一个组成部分，它试图“收编和消除潜在反对中共政权的政策和权威”，并“影响外国政府采取支持北京所指定的政策的行动或立场”。
+坎特对中共的直言批评引来了中共的报复。腾讯停止直播其所在的凯尔特人队的赛事。NBA大联盟也正在悄悄地试图让坎特闭嘴。坎特最近承认，一些NBA官员已经悄悄联系并警告他说，如果他继续批评中共的人权侵犯行为，将考虑禁止他参加比赛。
 
-在一份声明中，加拉格尔说：“米奇·兰德里厄曾担任USHCA的顾问，该组织由中共统战部资助，以促进中共对美国基础设施项目的投资。这应该使他没有资格去监督拜登总统的大规模基础设施实施计划的资格。总统必须立即重新考虑新的人选，让没有为中共国资助的实体服务过的人做这项工作”。
+坎特本赛季出场时间明显减少。一些球迷怀疑这与他的批评中共行为有关。而坎特本人似乎也暗示情况就是如此，他11月15日发推暗指中共说：“你继续限制我的上场时间，我会在球场外揭发你。”
 
-另据《华盛顿自由灯塔》报道，与被拜登提名的进出口银行负责人雷塔·乔·刘易斯（Reta Jo Lewis）一样，兰德里厄担任USHCA的战略顾问。
-
-**新闻来源：**
-
-1. [Rep. Gallagher: Biden’s Infrastructure Czar Has Dubious China Ties](https://www.newsmax.com/newsfront/mike-gallagher-mitch-landrieu-ccp-spending/2021/11/17/id/1045107/)
-
-
-[REVEALED: Biden Cabinet Secretaries, Local Mayors Collude With Chinese Communist Party on Agriculture Policy.](https://thenationalpulse.com/exclusive/cusef-sponsoring-events-travel-for-ag-officials/)
+新闻来源：[Enes Kanter Blasts Beijing: ‘Stop Organ Harvesting in China’](https://www.breitbart.com/sports/2021/11/17/enes-kanter-blasts-beijing-stop-organ-harvesting-in-china/)
 
  
 
