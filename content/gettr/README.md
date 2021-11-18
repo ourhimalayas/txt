@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/18/2021 2:48 AM (UTC)`
+
+11/17/2021 Miles Guo: The “10 Adherences” in the CCP’s third historical resolution mean no reform and opening-up, adherence to the one-party dictatorship, and restoration the rule of the emperor; Xi Jinping has become the “sun” and will possibly invade Taiwan at any time; Biden continues America’s ambiguous policies towards Taiwan<br/><br/>11/17/2021 文贵直播：中共历史决议的“十个坚持”就是坚决不搞改革开放、消灭私有经济、坚持一党独裁，恢复帝制； 习已成为“太阳”，将随时打台湾；拜登延续了美国对台的模糊政策<br/>
+![img](https://media.gettr.com/group43/getter/2021/11/18/02/48/38bd756a-8c90-f75c-1b8b-481a97fdb1d1/out.jpg)
+
+---
+
 `@miles 11/18/2021 2:36 AM (UTC)`
 
 11月17日：恒大，彻底完鸟……
@@ -293,13 +300,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 11月13号：再油腻一下……当年在北辰东路的摩根办公室．看墙上的当初的盘古大观的龙头照片你们就明白了……这两个照片是与台湾的朋友一起在讨论一些事情……当时的很多的朋友现在都在哪呢？但是有很多在这个楼里的老朋友却始终都是坚定的兄弟和朋友……几十年过去后感触良多……
 ![img](https://media.gettr.com/group28/getter/2021/11/13/17/36/1521a579-c1d2-b223-5adc-87d64a8b886f/dd84f2dd1266597c63c5e79c10278b39.jpg)
-
----
-
-`@miles 11/13/2021 4:18 PM (UTC)`
-
-11月13號：尊敬的戰友們好⋯⋯你們健身了嗎⋯⋯傳播CC P病毒⋯⋯疫苗解藥的真相了嗎！一切都已經開始⋯⋯別忘了今天看真人真事節目呀⋯⋯
-![img](https://media.gettr.com/group42/getter/2021/11/13/16/18/3d920710-d07d-00bb-3fc5-6dda05c82f0c/out.jpg)
 
 ---
 
