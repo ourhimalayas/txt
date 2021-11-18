@@ -2,20 +2,38 @@
 ---
 
 
-## 大量的运动员“倒下” “突然死亡”成为热搜
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1674087/)
+## 全球“猝死”的搜索趋势飙升至历史最高点
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1674091/)
 
-#### 翻译/撰稿：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/e2bde63482b6e5c461129da490042a90-2.jpg)图片来源：invesbrain
-根据《零对冲》（Zero Hedge）11月17日的报道，“突然死亡”这一词成为全球热搜，搜索量创历史新高。
+**翻译：Lulumi**
 
-“突然死亡”搜索量数据可以追溯到2004年，但是就在这两个月，该词的搜索量飙升创下历史新高。而且在欧洲和美国的头条新闻中也不乏出现各种关于突然死亡的报道。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-400.png)图片来源 zerohedge.com
 
-最近《柏林日报》报道了大量运动员异常“倒下”的情况，虽然该报道中没有明确指明运动员的倒下或死亡与接种中共病毒疫苗有关，但是答案已经不言而喻，因为有大量的案例摆在我们面前，大量的运动员在接种后出现心肌炎症状，严重者在接种的几天后死亡。
+人们不得不注意到一个在全球范围内爆发的谷歌搜索趋势。
 
-评论：最近被爆出 “倒下”或死亡的运动员，他们都在各自领域有过人之处，身体也相对于我们普通人更加强健。如今他们都因中共病毒疫苗对身体造成不同程度的损伤或死亡，可见疫苗对人体的危害有多大。更可悲的是这些媒体竟然还在为疫苗洗白或保持中立，大量的事实摆在面前，却仍在睁眼说瞎话。最近报道的突然死亡主要发生在个人身上，所幸没有导致严重的连带事故，但是随着疫苗暴政的发展，会出现越来越多的高接种率国家，不久的将来一旦疫苗灾难爆发，到时候造成的毁灭将是难以想象的。
+下面是欧洲媒体关于人们突然死亡的新闻报道标题：
 
-新闻来源：[Worldwide Search Trend For “Died Suddenly” Spikes To Record Highs](https://www.zerohedge.com/political/worldwide-search-trend-died-suddenly-spikes-record-highs)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-403.png)
+
+以下是来自美国更多的关于猝死的新闻：
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-405.png)图片来源 zerohedge.com
+
+我们无法明确给出这些神秘死亡的根本原因，但读者可以参考上周的一篇文章，题为 “德国报纸强调最近倒下的足球运动员的数量‘异常之多’”。
+
+在那篇文章中，我们概述了德国报纸《柏林日报》报道了“最近有异常多的职业和业余足球运动员倒下了”。虽然这不是死亡，但我们发现体育运动员的突然倒下似乎非常奇怪，可能与健康有关。
+
+虽然现在推测人们是否因为COVID-19疫苗相关的问题，如心肌炎而突然死亡或倒下还为时尚早，但这是一个应该被密切关注的趋势。
+
+**参考资料：**[zerohedge.com][Worldwide Search Trend For “Died Suddenly” Spikes To Record Highs](https://www.zerohedge.com/political/worldwide-search-trend-died-suddenly-spikes-record-highs)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+
 
  
 

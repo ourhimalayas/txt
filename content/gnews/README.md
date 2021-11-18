@@ -15,89 +15,89 @@
 
 ---
 
-### [中共新衙门国家反垄断局正式挂牌](/content/gnews/1/README.md)
+### [FDA让联邦法官批准其在2076年之前完全发布辉瑞新冠疫苗数据](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共新衙门国家反垄断局正式挂牌](/content/gnews/2/README.md)
  ` 儒为`
 
-### [澳大利亚总理呼吁各州放宽强制疫苗政策](/content/gnews/2/README.md)
+### [越来越多的名人因COVID 疫苗而住院或死亡](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [澳大利亚总理呼吁各州放宽强制疫苗政策](/content/gnews/4/README.md)
  ` 走进澳洲`
 
-### [房价，日本蒸蒸日上，中共国节节败退](/content/gnews/3/README.md)
+### [房价，日本蒸蒸日上，中共国节节败退](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [找到生命真相（一）：我们为什么要来到这个世界，我们要去向何方？](/content/gnews/4/README.md)
+### [找到生命真相（一）：我们为什么要来到这个世界，我们要去向何方？](/content/gnews/6/README.md)
  ` 纽约香草山MOS03`
 
-### [科学家们想用隐形墨水给孩子们盖上接种“纹身”](/content/gnews/5/README.md)
+### [科学家们想用隐形墨水给孩子们盖上接种“纹身”](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英国F-35战机在地中海上空坠毁](/content/gnews/6/README.md)
+### [英国F-35战机在地中海上空坠毁](/content/gnews/8/README.md)
  ` Shuizhuyu`
 
-### [YouTube删除了参议员约翰逊质疑COVID 疫苗安全性的视频](/content/gnews/7/README.md)
+### [YouTube删除了参议员约翰逊质疑COVID 疫苗安全性的视频](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [六中全会后，习成为全党公敌对新中国联邦是天大的利好](/content/gnews/8/README.md)
+### [六中全会后，习成为全党公敌对新中国联邦是天大的利好](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [摇摇摆摆不可恕](/content/gnews/9/README.md)
+### [摇摇摆摆不可恕](/content/gnews/11/README.md)
  ` 骄子`
 
-### [NBA球星埃内斯·坎特再批中共：停止强摘器官](/content/gnews/10/README.md)
+### [NBA球星埃内斯·坎特再批中共：停止强摘器官](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登指定的基础设施经理与中共统战部有关系](/content/gnews/11/README.md)
+### [拜登指定的基础设施经理与中共统战部有关系](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [昔日民族品牌方正集团欠债3000亿宣布破产！](/content/gnews/12/README.md)
+### [昔日民族品牌方正集团欠债3000亿宣布破产！](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [为什么伊维菌素优于辉瑞的抗病毒药](/content/gnews/13/README.md)
+### [为什么伊维菌素优于辉瑞的抗病毒药](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [田纳西州州长签署COVID法案，禁止强制接种疫苗与出示疫苗护照](/content/gnews/14/README.md)
+### [田纳西州州长签署COVID法案，禁止强制接种疫苗与出示疫苗护照](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021/11/17墙内世界](/content/gnews/15/README.md)
+### [2021/11/17墙内世界](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [家电巨头海尔的董事长张瑞敏是正常退休吗？](/content/gnews/16/README.md)
+### [家电巨头海尔的董事长张瑞敏是正常退休吗？](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [免疫功能低下的个体在注射加强剂后也未产生抗体](/content/gnews/17/README.md)
+### [免疫功能低下的个体在注射加强剂后也未产生抗体](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [奥地利启动了对 &#8220;未接种疫苗 者&#8221;的封锁和罚款措施](/content/gnews/18/README.md)
+### [奥地利启动了对 &#8220;未接种疫苗 者&#8221;的封锁和罚款措施](/content/gnews/20/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共国反垄断局，只反民企不反国企](/content/gnews/19/README.md)
+### [中共国反垄断局，只反民企不反国企](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [生命的意义是什么？（第一集）](/content/gnews/20/README.md)
+### [生命的意义是什么？（第一集）](/content/gnews/22/README.md)
  ` 纽约香草山MOS03`
 
-### [孙宏斌拿分红的零头救融创，Are you kidding me?](/content/gnews/21/README.md)
+### [孙宏斌拿分红的零头救融创，Are you kidding me?](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本移民政策大转变，为新中国联邦打开大门](/content/gnews/22/README.md)
+### [日本移民政策大转变，为新中国联邦打开大门](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加强经济安全，日本是认真的](/content/gnews/23/README.md)
+### [加强经济安全，日本是认真的](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新冠疫苗-制药公司每分钟价值6.5万美元](/content/gnews/24/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [美军应对高度重视中共的高超音速武器试验](/content/gnews/25/README.md)
+### [美军应对高度重视中共的高超音速武器试验](/content/gnews/26/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [全球“猝死”的搜索趋势飙升至历史最高点](/content/gnews/26/README.md)
+### [全球“猝死”的搜索趋势飙升至历史最高点](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [大量的运动员“倒下” “突然死亡”成为热搜](/content/gnews/27/README.md)
+### [大量的运动员“倒下” “突然死亡”成为热搜](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [FDA请求联邦法官批准其直到2076年才全面公布辉瑞公司COVID-19疫苗数据](/content/gnews/28/README.md)
- ` 澳喜农场`
 
 ### [英国F-35战机坠入地中海，原因有待调查](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`

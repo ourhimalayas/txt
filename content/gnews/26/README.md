@@ -2,38 +2,28 @@
 ---
 
 
-## 全球“猝死”的搜索趋势飙升至历史最高点
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1674091/)
+## 美军应对高度重视中共的高超音速武器试验
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1674110/)
 
-**翻译：Lulumi**
+#### 撰稿：彩虹       
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-400.png)图片来源 zerohedge.com
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-406.png)图片来源：FCW新闻
+10月17日，《新闻极限》报道美军二号人物，参谋长联席会议副主席约翰·海滕（John Hyten）将军在接受CBS（哥伦比亚广播公司）新闻采访时说，中共国今年夏天发射的高超音速导弹以超过五倍音速绕行世界。
 
-人们不得不注意到一个在全球范围内爆发的谷歌搜索趋势。
+海滕说：“此高超音速导弹绕行世界，放下一个高超音速滑翔器，一路滑翔回到中国，达成了中国目标。”
 
-下面是欧洲媒体关于人们突然死亡的新闻报道标题：
+CBS指出，洲际导弹以可预测的弧线飞行，可以被远程雷达追踪到。但高超音速武器更加机动，更为接近地面，让雷达更加难以发现。中共国正在建造数百个新的导弹发射井，海滕将军认为中共国可能已经有能力对美国发动突然的核攻击。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-403.png)
+另据《路透社》报道，核军备专家说，中共国的武器试验似乎是为了躲避美国的防御系统。美国认为中共国的试验涉及到一种首先环绕地球运行的武器，这就是一些军事专家称为的“部分轨道轰炸系统”。
 
-以下是来自美国更多的关于猝死的新闻：
+文章说，有人将中共国在7月27日的高超音速导弹试验与前苏联在1957年军备竞赛期间发射的斯普特尼克卫星相提并论。对此，海滕将军认为：“美国当时对斯普特尼克卫星给与了重视，但中共国7月27日的试验并没有引起美国的警惕，我认为美国应该引起重视”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-405.png)图片来源 zerohedge.com
+海滕告诉CBS新闻，过去五年中，中共国进行了数百次高超音速试验，但美国只进行了九次，中共国已经部署了一种中程高超音速武器，而美国的第一次试验与之相比落后了几年。
 
-我们无法明确给出这些神秘死亡的根本原因，但读者可以参考上周的一篇文章，题为 “德国报纸强调最近倒下的足球运动员的数量‘异常之多’”。
+**新闻来源**
 
-在那篇文章中，我们概述了德国报纸《柏林日报》报道了“最近有异常多的职业和业余足球运动员倒下了”。虽然这不是死亡，但我们发现体育运动员的突然倒下似乎非常奇怪，可能与健康有关。
-
-虽然现在推测人们是否因为COVID-19疫苗相关的问题，如心肌炎而突然死亡或倒下还为时尚早，但这是一个应该被密切关注的趋势。
-
-**参考资料：**[zerohedge.com][Worldwide Search Trend For “Died Suddenly” Spikes To Record Highs](https://www.zerohedge.com/political/worldwide-search-trend-died-suddenly-spikes-record-highs)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
-
+[Gen. John Hyten: China Hypersonic Weapons Test Should Create ‘Sense of Urgency’](https://www.newsmax.com/newsfront/china-missile-hypersonic-hyten/2021/11/17/id/1045060/)
 
  
 
