@@ -2,38 +2,28 @@
 ---
 
 
-## “突然死亡”的全球搜索趋势飙升至历史新高
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1675726/)
+## 曝光张高丽性侵丑闻后，彭帅一直杳无音信
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1675756/)
 
-据《零对冲》2021 年 11 月 17 日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-425-e1637267039851.png)图片源自本文
-**欧洲的头条新闻拼凑出人们突然死亡的神秘趋势。**
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/140627203316815-600x400-1.jpg)图片来源：www.epochtimes.com
+据abc News11月17日报道，自从网球明星彭帅以非凡的勇气指控前中共副总理张高丽对其实施性侵以来，就一直下落不明，多位业内人士对此表示关切。
 
-我们注意到一种在全球范围内爆发的 Google 搜索趋势。
+35岁的彭帅曾是全球排名第一的网球运动员，11月2日在微博上发表了一篇长文，描述了她与前副总理张高丽的多年恋情，以及被张高丽性侵犯的那些不堪回首的往事。她说：就是“以卵击石、飞蛾扑火”，我也要说出真相。帖子发布20分钟后便从博客上消失。在中共国的主要门户网站上搜索彭帅或张高丽这两个名字，结果都是空白。
 
-**搜索词“突然死亡”在过去两个月飙升至历史新高，数据可以追溯到 2004 年。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-426.png)图片源自本文
-**这里有更多来自美国的头条新闻**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-427.png)图片源自本文
-我们无法明确指出这些神秘死亡的根本原因，但希望将读者引向上周发表的一篇题​​为“德国报纸重点报道最近突然倒地的足球运动员人数异常多”的文章。
+彭帅的发声如一声惊雷。但人们在震惊的同时，也越来越担心她的安全和下落。日本职业网球运动员、前世界第一网球明星大坂直美表达了她对彭帅安全的担忧。她在推特上写道：我很震惊！审查制度在任何情况下都是不允许的，我希望彭帅和她的家人都安全无恙。
 
-在那篇文章中，我们概述了德国报纸《柏林日报》的报道，**“最近异常大量的职业和业余足球运动员倒下了。” **虽然不是死亡，但我们发现运动员的突然崩溃似乎很奇怪，可能与健康有关。
+女子网球协会11月14日发表的一份声明中写道，”我们赞扬彭帅站出来的勇气和力量。”
 
-现在推测人们是否因与COVID-19疫苗相关的问题（例如心肌炎症）而突然死亡或崩溃还为时过早。但是，这是一个应该密切关注的趋势。
+WTA巡回赛的首席执行官史蒂夫·西蒙说，彭帅对一名前中共国政府高级官员的性侵犯指控时，表现出了令人难以置信的勇气。巡回赛已经从包括中国网球协会在内的几个信息源得知息，她 “很安全，没有受到任何人身威胁”。然而，西蒙补充说，到目前为止，没有任何与WTA巡回赛有关的人，包括官员和现役球员，能够直接联系到她以确认她的状况。
 
-原文链接：[https://www.zerohedge.com/political/worldwide-search-trend-died-suddenly-spikes-record-highs](https://www.zerohedge.com/political/worldwide-search-trend-died-suddenly-spikes-record-highs)
+据说，西蒙受到了一封彭帅“报平安”的电子邮件。但西蒙在周二的一份声明中说：”我很难相信彭帅真的写了这份电子邮件。中共媒体今天发布的关于彭帅的声明，只能让我对她的安全和下落更加担忧。我曾多次试图通过多种渠道联系她，但都没有结果。必须允许彭帅在没有来自任何方面的胁迫或恐吓下自由发言，WTA和世界其它地区需要可核实的证据来证明她是安全的。
 
-翻译：洛杉矶盘古农场 — 小象的奶瓶
+外交部发言人赵立坚在被问及此事时说，”我没有听说过你提出的这个问题，这不是一个外交问题。”
 
-校对：洛杉矶盘古农场 — 心照
+参考链接：
 
-编辑：洛杉矶盘古农场 — 心照
-
-
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[Fears grow for missing Chinese tennis star who accused ex-official of sexual assault](https://abcnews.go.com/Sports/fears-grow-missing-chinese-tennis-star-accused-official/story?id=81225830)
 
  
 
