@@ -2,49 +2,33 @@
 ---
 
 
-## 中美互相解除记者签证限制
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1674033/)
+## FDA请求联邦法官批准其直到2076年才全面公布辉瑞公司COVID-19疫苗数据
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1674079/)
 
-撰稿：英国喜庄园-I770775
+翻译/编辑：照东方
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-5.jpg)
+2021年11月18日Siri&Glimstad律师事务所的管理合伙人AaronSiri律师在其网站上撰文称：美国食品和药物管理局（FDA）要求一名联邦法官让公众等到2076年才披露它为辉瑞公司COVID-19疫苗颁发许可证所依赖的所有数据与信息。这不是写错数字了，它想用55年的时间方才向公众提供这些信息。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1637224025.jpg)图片源自网络
+AaronSiri在文前摘要写道：美联邦政府为辉瑞公司提供保护，使其免于承担责任，给它提供了数十亿美元的资金，让美国人服用其产品，但不会让你看到支持其安全性/有效性的数据，政府到底为谁工作？
 
+此前，FDA一再保证其在COVID-19疫苗方面是”完全透明”，包括在批准辉瑞公司的COVID-19疫苗时重申“FDA对透明的承诺”。
 
+基于这一承诺，在8月即该疫苗被批准后不及，来自这个国家久富盛名的大学30多名学者、教授和科学家要求FDA提供辉瑞公司为申请COVID-19疫苗许可而提交给它的数据和信息。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1637224070.png)网络截图
+FDA的回应是什么？它什么都没有提供。因此，在9月，AaronSiri的公司代表这个团体对FDA提起诉讼，要求提供这些信息。迄今为止，在批准辉瑞公司的疫苗近三个月后，FDA仍然没有公布任何一页信息，一页也没有。
 
+相反，两天前，FDA要求一名联邦法官允许它2076年之前完全拿出这些信息。FDA要求法官让它以每月500页的速度制作辉瑞公司为获得疫苗许可而提供给FDA的329,000多页文件，这意味着这不会早于2076年完成。美国食品和药物管理局对透明度的承诺，说得不好听一点，完全就是空头支票。
 
+从辉瑞为申请许可开始制作相关记录（2021年5月7日）到FDA批准辉瑞疫苗（2021年8月23日），FDA正好用了108天。美国食品和药物管理局对这些文件进行了紧张、有力、彻底和完整的审查和分析，以确保辉瑞疫苗的安全和有效，从而获得批准许可。虽然它可以在108天内对辉瑞公司的文件进行紧张的审查，但它现在要求超过20000天来向公众提供这些文件。
 
-![Handelskrieg | Fahnen von USA und China | Symbolbild](https://static.dw.com/image/59244760_303.jpg)
+因此，让我们把话说清楚：联邦政府为辉瑞公司提供保护，使其免于承担责任，给予它数十亿美元的资金，让美国人服用其产品，但却不让你看到确保其产品的安全性和有效性的数据，政府到底为谁工作？
 
-中美两国针对对方记者施行签证限制已经超过一年，就在16日双方首脑峰会结束后数小时，中共官媒和美国国务院就对外宣布，两国在媒体相关问题上已达成共识，双方将放宽对来自对方国家记者的签证限制，并依法审批新常驻记者的签证。
+更重要的教训是，公民和个人权利永远不应该以医疗程序为前提，每个想接种疫苗的人都应该有这样做的自由。同时没有人应该被政府胁迫参加任何医疗程序。当然，也不能让政府在2076年之前隐瞒其执照所依据的全部信息。
 
-据了解，目前已有小批替美国媒体工作的记者收到通知，即将在近期获得签证、返回中共国；美国也承诺为中共记者颁发一年多次入境签证，并将立即启动国内程序解决中共记者签证停留期问题。
+从FDA的无理要求可以看出，其机构内部非常担心辉瑞COVID-19疫苗试验的真实数据曝光后被追责，他们极度害怕公众了解到真实的信息。因此企图采用这种卑劣的手段拖延时间，但随着其COVID-19疫苗不良事件越来越多的爆发，民众终将觉醒并站出来更强有力的去追寻真相，捍卫自己的权利。
 
-
-
-参考链接：
-
-[https://www.dw.com/zh/%E4%BA%92%E9%87%8A%E5%88%A9%E5%A4%9A-%E4%B8%AD%E7%BE%8E%E8%A7%A3%E9%99%A4%E8%AE%B0%E8%80%85%E7%AD%BE%E8%AF%81%E9%99%90%E5%88%B6/a-59840889https://www.360kuai.com/pc/98b7f51eccd850d46?cota=3&kuai\_so=1&refer\_scene=so\_3&sign=360\_da20e874&tj\_url=so\_vip](https://www.dw.com/zh/%E4%BA%92%E9%87%8A%E5%88%A9%E5%A4%9A-%E4%B8%AD%E7%BE%8E%E8%A7%A3%E9%99%A4%E8%AE%B0%E8%80%85%E7%AD%BE%E8%AF%81%E9%99%90%E5%88%B6/a-59840889https://www.360kuai.com/pc/98b7f51eccd850d46?cota=3&amp;kuai_so=1&amp;refer_scene=so_3&amp;sign=360_da20e874&amp;tj_url=so_vip)
-
-总编：飞虹
-
-校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-![]()
+文章原文：[https://aaronsiri.substack.com/p/fda-asks-federal-judge-to-grant-it?utm\_campaign=post&utm\_medium=web&utm\_source=](https://aaronsiri.substack.com/p/fda-asks-federal-judge-to-grant-it?utm_campaign=post&amp;utm_medium=web&amp;utm_source=)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
