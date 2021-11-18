@@ -2,31 +2,10 @@
 ---
 
 
-## 樱花灭共诗——过盘古七星大厦
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1674896/)
+## 11/17/2021 文贵直播：六中全会后，中共虽然会对美国嘴上硬，但实际上将越来越软
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1674985/)
 
-撰稿：东京樱花团/小小杜
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-81.jpg)
-一望风云涌，
-
-巍峨大厦孤。
-
-长廊多破败，
-
-石兽自荒芜。
-
-感慨人间苦，
-
-欣然万物苏。
-
-不堪犹极目，
-
-愁杀老腐儒。
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
-
+秘密翻译组-北美组
 
  
 
