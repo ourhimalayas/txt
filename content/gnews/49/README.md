@@ -2,12 +2,30 @@
 ---
 
 
-## 班农的律师：起诉委员会违反法律下的平等正义原则
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1672312/)
+## GTV新闻访谈简报|2021年11月17日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1672422/)
 
-11/15/2021 班农的律师：本案并没有体现对法律平等正义的追求，因为起诉委员会成员全部都是事先就做出预判，并公开宣布他们立场的。法律下的平等正义原则对我们所有人都至关重要。当它们被选择性地使用时，当我们违反这一原则时，这是我们所有美国人的失败。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-1.jpg)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-17.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：2021.11.17早GTV新闻访谈
+
+[https://gtv.org/broadcast/watch/61950355e7e7703792364779](https://gtv.org/broadcast/watch/61950355e7e7703792364779)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

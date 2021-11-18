@@ -53,15 +53,6 @@
 
 ---
 
-**:arrows_clockwise: miles 已轉發**
-
-`@ilpresidento 9/30/2021 1:35 AM (UTC)`
-
-🔥🔥🔥
-![img](https://media.gettr.com/group12/origin/2021/09/30/01/e31dd0e5-8890-220a-30e0-dde1e26aabac/6d70c8a54817b7a70bf1b4331941e51a.jpg)
-
----
-
 `@miles 11/17/2021 6:34 PM (UTC)`
 
 11月17日：七哥在茅屎坑里渡过的岁月，心中有万佛万神．还能与魔鬼打交道……最重要的事情要实现自己的目标……在这个过程当中能保持洁身自重！醉而不乱……分享成功与利益，而不乱法．失,,德！才是考验一个人的本性……是否能走向成功最关键的根本性基础！
@@ -302,6 +293,13 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 11/11/2021 Miles Guo: The CCP’s 6th Plenary Session is a gift from God - Xi Jinping will stay in power after the 20th Party Congress, rendering him the common enemy of the entire Party, and this will help the New Federal State of China destroy the CCP by taking advantage of its internal struggles; Xi will launch massive arrests and plunder the entrepreneurs in the Communist China prior to the 20th Party Congress<br/><br/>11/11/2021 文贵直播：六中全会是上天给新中国联邦的大礼 - 习近平要在20大后继续当老大，这将导致其成为全党众矢之的，这有助于新中国联邦以共灭共；20大前习将展开大抓捕并大肆洗劫国内企业家<br/><br/>
 ![img](https://media.gettr.com/group44/getter/2021/11/13/04/35/f8b88d96-4979-224a-c13e-fc329ba9e5ab/out.jpg)
+
+---
+
+`@miles 11/13/2021 4:25 AM (UTC)`
+
+11/11/2021 Miles Guo: Every fellow fighter is a participant in the history of the New Federal State of China(NFSC), the wealth of the NFSC citizens is manifested in the fact that they are unvaccinated against the CCP virus and the wisdom they have; In contrast, people like Neil Shen and Jack Ma who lack visions and faiths are like the fish farmed by the CCP, which will eventually rip them off; but our NFSC citizens will never be ripped off, and we are saving the world!<br/><br/>11/11/2021 文贵直播：每位战友都是新中国联邦历史的参与者；新中国联邦人的财富在于没打新冠疫苗且开了智；相反，沈南鹏和马云等境界低、无信仰的人好比是中共放水养的鱼，必将任中共宰割；但新中国联邦人永远不会被宰割，而且我们正在拯救全人类！<br/>
+![img](https://media.gettr.com/group41/getter/2021/11/13/04/25/d5c33f5b-c7ba-cbdf-7a81-f5bda551f6a0/out.jpg)
 
 ---
 

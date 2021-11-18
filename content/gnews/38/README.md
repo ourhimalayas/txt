@@ -2,25 +2,223 @@
 ---
 
 
-## 郭文贵精品视频-把握世界金融大变革的契机，Hcoin将是货币之王
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1672843/)
+## 全世界外交加速与CCP决裂
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672908/)
 
-撰稿：澳喜cindy
+[https://gtv.org/video/id=61951a141827025081062c28](https://gtv.org/video/id=61951a141827025081062c28)
 
-郭先生几十年对世界的金融体系深入研究和探索过程中发现：“布雷顿森林体系最大的问题，就是把铸币权放在了美国。从1971年到现在，全世界所有的法币，就是一张纸。今天全世界还在维护着美元、欧元的地位，就是一个比较高级的谎言。目前美国声称共30万亿的债，这不是真的。连美联储主席都不知道究竟是多少。因为货币不受监控，你没法查。这就是全人类面对的最大的选择，所有纸币都得废掉。因为你不知道他们究竟印了多少。共产党仅仅2020年，印了7万亿美元。这是中国人民银行正式下发的文件。实际上是10万亿美元，67万亿人民币。国内的老百姓最大的灾难是你的劳动和财富，不知不觉中全被剥夺了。而虚拟货币谁都无法造假，其市场必然越来越兴旺，人们不再相信政府，不再会相信法币”。
+美国在中国投资事实上现在是
+La inversión de EE. UU en China realmente es
 
-美元从1971年到现在应该升值200倍但它却被兑水贬值了50倍。全人类生产的剩余价值和货币增发量，不应超过2.5-3倍。全球过去几十年的GDP，一千多万亿美元，大部分被兑水兑没了。这几年虚拟货币市场的火爆就反映出了人们对这些问题的关注。去政府化的人类未来的金融系统的诞生，将会把人类应该有的财富约一千多万亿，大概需要5-10年才能全部反映到新的货币金融系统。可能在3年后是最核心的暴涨期。
+美国内部摸底
+Para averiguar la base de EE. UU
 
-在其他虚拟货币出现十几年后的今天，全球已有约800多个币种，其中活跃的品种只有20-30个。去中心化的公开账本化数字中心，打破了政府的垄断、统治、掠夺的形式，必然成为将来的金融方式。以前由少数人关注的币圈，目前很多政府和个人对它开始更感兴趣了。特别是各国由于病毒和疫苗导致的经济灾难法币大兑水，使通货膨胀异常加剧。人们更感兴趣能保值的加密货币。新中国联邦的喜币、喜联储此时的出现恰逢其时。
+不是中国的5万亿
+No son los 5 billones de China
 
-我们的私块链技术加公块链技术于一身的Hcoin，其防盗、能追踪，还具备大家期望的去政府中心化管理的货币，它还是目前唯一的具有支付系统，贷款系统，还有稳定币，还有黄金储备。所以说我们的币天下无敌，没有人能比肩。郭先生断言目前这800多种虚拟货币将来90%都会消失。希望战友们能等到那增值最快的暴涨期以后再卖。
+大概是6万多亿美元
+Es aproximadamente más de 6 billones de dólares
 
-Hcoin的发行上市交易使我们新中国联邦的地位又得到了进一步提高。喜币和喜联储一定会彻底改变世界的金融系统。Hcoin将是货币之王。
+全世界投资中国的也不是9万亿
+Y la inversión a nivel mundial hacia China no es de 9 billones
 
-（本文观点纯属个人与gnews无关）
+说大概12万亿美元
+Dicen que es aproximadamente 12 billones de dólares
 
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
+不要说美国6万亿
+No digamos que Estados Unidos son 6 billones
+
+1万亿 美国的经济绝对给砸到10年都起不来
+Con 1 billón la economía de EE. UU puede ser golpeada hasta 10 años sin poder levantarse
+
+欧洲你想想现在最大的问题
+Piensa en el problema más grande que hay ahora en Europa
+
+欧洲只要是
+Si Europa solo
+
+只要是欧联盟有1万亿的烂账
+Con solo la Unión Europea tenga una deuda de 1 billón
+
+我可以告诉你
+Yo te puedo decir
+
+欧联盟整个经济10年20年都回不来
+La economía de la Unión Europea no podrá regresar en 10, 20 años
+
+这老资本家可受不了啊
+Este viejo capitalista no puede soportarlo
+
+这时他会多恨共产党
+En este momento cuánto odiará al PCCh
+
+除此之外
+A parte de esto
+
+大家要看到共产党来个六中全会
+Todos verán que el PCCh tendrá una Sexta Sesión Plenaria
+
+老子要全说了算
+Quiero tener la última palabra de todo
+
+让全世界都完球蛋
+Para que todo el mundo se acabe
+
+你要记住 六中全会说得非常清楚啊
+Tienes que recordar, la Sexta Sesión Plenaria lo dijo claramente
+
+他要继续要管理 要给世界开药方
+Él quiere seguir administrando, darle el récipe médico a todo el mundo
+
+要开处方
+Darle una receta
+
+还要继续当老中医
+Quiere seguir siendo el viejo doctor de la medicina china
+
+欧洲一但成为共产党的死敌之后
+En lo que Europa se convierta en el enemigo mortal del PCCh
+
+剩下一个美、加、日
+Quedaría EE. UU, Canadá, Japón
+
+你觉得俄罗斯能给他啥
+Tu crees que Rusia le puede dar algo
+
+能给他啥
+Qué le puede dar
+
+西北完了
+Si el noroeste se acaba
+
+北方完了
+El norte se acaba
+
+指望北朝鲜给他 北朝鲜给他什么
+Espera a que Corea del Norte le dé algo, qué le puede dar Corea del Norte
+
+战友们从此看出来
+Compañeros luchadores pueden ver a través de aquí
+
+剩下亚洲就剩一个印度了
+Queda una India en Asia
+
+就剩下尼波尔了
+Un Nepal
+
+然后现在共产党要到达拉斯萨拉姆
+Entonces ahora el PCCh va a llegar a Dar es Salaam
+
+撒哈拉沙漠
+Desierto del Sahara
+
+非洲现在跟中国的这个外交的崩溃率
+Actualmente la tasa de colapso entre la diplomacia de África y de China
+
+达到了70%
+Ha llegado al 70%
+
+杨洁篪和王毅
+Yang Jiechi y Wang Yi
+
+就为了骗习 从不如实报告
+Nunca le informan honestamente solo por engañar a Xi
+
+为什么
+¿Por qué?
+
+王毅要进局 要进委
+Wang Yi quiere entrar al comité, al politburó
+
+直接进政治局
+Entrar directamente al Buró Político
+
+要进班子
+Quiere unirse al grupito
+
+杨洁篪想不出事儿
+Si Yang Jiechi no quiere que suceda algo
+
+非洲的外交气势完了
+El ímpetu de la diplomacia de África acabará
+
+中东的外交怎么样 兄弟姐妹们
+Cómo será la diplomacia de Medio Oriente hermanos y hermanas
+
+中东的外交花最多钱的是UAE 沙特
+La diplomacia que ha gastado más dinero son los EAU Arabia Saudita
+
+伊朗、卡塔尔
+Irán, Qatar
+
+像科威特阿曼
+Como Sultanato de Omán
+
+这是咱们的哥们的国家
+Es el país de uno de nuestros hermanos
+
+人就不跟他玩儿是吧
+Esa gente no juega con él cierto
+
+UAE 因为你七哥 这你知道的
+Los EAU, porque tu hermano yo lo sé, esto lo sabes
+
+你走着看
+Ya verás
+
+整格中东都会跟它决裂
+Todo Medio Oriente romperá con él
+
+跟它玩死的
+Jugará con él la muerte
+
+他在柬埔寨的军事基地
+La base militar que tiene en Camboya
+
+必须消灭
+Lo tiene que desaparecer
+
+在伊朗建的军事基地
+La base militar construida en Irán
+
+必须毁灭
+Lo tiene que destruir
+
+巴基斯坦军事基地已经下不去了
+La base militar de Pakistán ya no puede seguir
+
+吉布提那个小基地也得给它拿掉
+La pequeña base que está en Yibuti también lo tiene que quitar
+
+阿根廷的
+La de Argentina
+
+所有的对天卫星站全拿掉
+Todas las estaciones satelitales lo tienen que quitar
+
+在委内瑞拉、古巴建的游动式武器就都会被美国秘密摧毁
+Las armas nómadas construidas en Venezuela y Cuba serán todas secretamente destruidas por Estados Unidos
+
+**原视频网址**：[https://gettr.com/post/pgvmb96332](https://gettr.com/post/pgvmb96332)
+
+日期：11/16/2021
+原视频标题：全世界外交加速与CCP决裂
+La diplomacia en todo el mundo se acelera para romper con el PCCh
+原视频日期：11/13/2021
+任务编号：KC259（2876）
+视频时间段：0:00-2:19
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
