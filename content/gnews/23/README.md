@@ -2,46 +2,56 @@
 ---
 
 
-## 全球“突然死亡”词条搜索创历史新高
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1673186/)
+## 拜登强调他不希望改变对台政策
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1673203/)
 
-作者：纽约香草山农场 – 四季
+![](https://assets.gnews.org/wp-content/uploads/2021/11/111702.jpg)2021 年 11 月 16 日星期二，乔·拜登总统在佩米奇瓦塞特河的 NH 175 桥上以促进基础设施支出为题发表讲话。（美联社照片）
+来自《台湾英文新闻》2021年11月17日报道
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+**摘要翻译：**
+
+华盛顿（美联社）——总统乔·拜登周二表示，他向中共国国家主席习近平明确表示，他的政府坚决支持美国长期以来的“一个中国”政策，但他也指出，自治的台湾岛最终要自己做出决定。
+
+白宫官员说，一天前，两位领导人在长达三个多小时的虚拟会谈中，广泛地谈论了台湾问题。
+
+随着中共国向台湾派遣越来越多的战斗机，而美国及其盟国的军舰在台湾海峡航行，该地区的紧张局势加剧。
+
+但拜登周二试图强调他对《台湾关系法》的支持，该法案于1979年生效，并确定了美台关系的基本要素。
+
+拜登在新罕布什尔州旅行时对记者说：“我们明确表示我们支持《台湾法案》，仅此而已。它是独立的，它自己做决定。”
+
+美国的“一个中国”政策承认中共是中共国合法政府，但允许与台北建立非正式关系和国防关系。白宫声明称，拜登还明确表示，美国“强烈反对单方面改变现状或破坏台海和平稳定的努力”。
+
+周二早些时候，白宫国家安全顾问杰克·沙利文说，拜登在他们的虚拟会面中提醒习近平，他作为参议员投票支持《台湾关系法》。
+
+沙利文在华盛顿布鲁金斯学会主办的网络研讨会上说：“因此，他深刻地、直接地理解，该法案明确表明，任何以和平方式以外的方式改变台湾未来的努力，都是美国严重关切的。”
+
+拜-习视频会议于北京的周二上午、华盛顿的周一晚上举行。
+
+**简评：**
+
+11月16日，美国拜登总统与中共主席习近平视讯会议，针对贸易战、核武、新冷战冲突预防，以及香港、新疆、台湾安全等问题进行会谈。会议结束，美、共双方并未发表联合宣言，也没有取得突破性共识。
+
+美国固然支持“一个中国政策”，但也遵守《台湾关系法》的规定；虽然《中美三个联合公报》很重要，但同样的对台湾的《六个承诺》也一样重要；美国强烈反对任何一方片面改变两岸现状，也反对任何破坏台湾海峡的和平与稳定。
+
+显然，双方都在各说各话。
+
+新闻链接：[Biden underscores he wants no change in Taiwan policy](https://www.taiwannews.com.tw/en/news/4347630)
+
+***翻译/简评**：希望*
+
+***校对**：Julia Win*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-
-
-据[零对冲](https://www.zerohedge.com/political/worldwide-search-trend-died-suddenly-spikes-record-highs)11月17日报道，一个全球范围内爆发的谷歌搜索趋势引起人们关注——词条“突然死亡”的搜索量在过去两个月中飙升至自2004年起的历史最高点。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1445.png)欧洲的头条新闻拼凑出人们突然死亡的神秘趋势。（图片来源：零对冲）
-
-联想到不久前一篇题为“德国报纸强调最近倒下的足球运动员的不寻常的数量”的[文章](https://www.zerohedge.com/medical/german-newspaper-highlights-unusually-large-number-soccer-players-who-have-collapsed)，文章概述了德国报纸《柏林日报》“最近有异常多的职业和业余足球运动员倒下了”的报道，并表示，“虽然这不是死亡，但体育运动员的突然倒下似乎非常奇怪，可能与健康有关。”
-
-近期，越来越多的普通人、运动员及政治家突然倒地，而这些人大多都施打了疫苗。人们应密切关注这一时所罕见的趋势。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 

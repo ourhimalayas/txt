@@ -2,11 +2,13 @@
 ---
 
 
-## 11/17/2021 文贵直播：拜习会的召开是秦刚一手操办的，中国人为此不得不付出千亿美元的代价来满足拜登在经济上的要求
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1673377/)
+## 三家公司靠中共病毒疫苗，每一秒吸血1000美元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1673402/)
 
-秘密翻译组-北美组
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1118-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

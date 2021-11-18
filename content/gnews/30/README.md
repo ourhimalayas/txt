@@ -2,37 +2,78 @@
 ---
 
 
-## 文贵视角： 政治、金钱和性交易背景下的2022北京冬奥会
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1673084/)
+## 埃内斯·坎特发布支持台湾的视频，台湾总统回应并感谢
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1673132/)
 
-撰稿：Skagen
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图像-2.jpg)
-图片：Miles Guo Gettr
+**据《Dailywire》记者：Frank Camp，2021年11月13日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/apjg0-yezmi.jpg)**图片源自原文**
+周五，波士顿凯尔特人队球员埃内斯·坎特（Enes Kanter）在他的社交媒体账户上发布了一段他支持捍卫台湾主权的视频后，台湾总统蔡英文做出了回应。
 
-近期美国多家媒体报道，美国政府正在考虑对明年2月在北京举行的冬奥会作出回应，其中可能包括不派出任何政府官员的“外交抵制”。但是15日在网上举行的美中首脑会议上没有提出这个问题。
+“感谢埃内斯与台湾站在一起。我们将永远捍卫我们来之不易的自由和民主，”总统说。 “您和我们在世界各地的朋友的支持给了我们力量。台湾也是很多篮球迷的故乡，我们都为你加油。”
 
-《华盛顿邮报》16日报道称，拜登预计将很快批准一项建议，即不派美国官员参加北京奥运会。迄今为止，包括众议院议长佩洛西在内的民主党和共和党议员都呼吁进行这一外交抵制，以抗议中共国侵犯人权的行为。 一些共和党议员表示，美国运动员也应该放弃参与以示抗议。美国国务卿布林肯上周表示，他正在与他的盟友“讨论”如何应对此次北京冬季奥运会。
+谢谢
+@埃内斯·坎特（EnesKanter）
+与台湾站在一起并捍卫民主。
 
-今天11月17号大直播中，郭先生回答草根小哥的问题：西方到底是为了什么要抵制冬奥会吗？郭文贵先生回答的非常直接：这是政治流氓最低级的操作方法。
 
-**第一个，**各国政府说抵制，是为了“政治卸责”。“新疆大屠杀我说了啊。我警告过你，你可能染上病毒”。
 
-**第二个，**这是政客们的政治表演，说“我反对，不能去，新疆大屠杀”，等着中共来蓝金黄他们，这是一个“会哭要价”的逻辑。
+> Thank you [@EnesKanter](https://twitter.com/EnesKanter?ref_src=twsrc%5Etfw) for standing with [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) & standing up for democracy. [pic.twitter.com/DNBJfMiSvl](https://t.co/DNBJfMiSvl)
+> — 蔡英文 Tsai Ing-wen (@iingwen) [November 13, 2021](https://twitter.com/iingwen/status/1459364677402591240?ref_src=twsrc%5Etfw)
 
-**第三个**，奥运会的本质是钱。郭先生最清楚2008北京奥运会就是拿钱、拿性贿赂。自2003年就开始担任2008国际奥委会（IOC）北京代表处首席代表的李红，郭先生强调李红是“萨马兰奇的奥运会中国代表”。（见文章[《盛开国际体育李红和2008年北京奥运会》](https://gnews.org/zh-hans/1663913/)），回忆李红当年“挤着胸部，盘古长期有她房间，经常在21楼，用私人房间，比客厅都大，两道门，给领导亲吻双休检查痔疮，设计好的”，“经常穿盘古几千块睡衣，电梯厅里接来接去的”。
 
-**奥运会本质都是利益，已经没有了奥林匹克精神。**郭先生揭示了中国怎么拿到奥运会的，是江泽民通过搞定美国赌场老板Steve Wynn，让他在澳门拿到赌牌，最后运作到中国拿到奥运会。郭先生通过邓小平讲话视频知道中共计划通过开奥运会扩大党的国际的形象。共产党奥运的本质就是行贿、蓝金黄还不够。每届奥运会，没有一届没有丑闻的。而对于哪些非洲、亚洲、南美代表，共产党都是投其所好。当时的北京市长刘淇原话“我女婿有关系，奥运会投票权的，这个女的极为喜欢男孩，送一些好的跳舞的男孩去，而且从新疆和西藏选，就这啊，蓝金黄啊”。冬奥会就是金钱交易腐败大会，欺骗人民的大会。
 
-郭先生坚决反对冬奥，他说，我们反对了，我们这个声音，新中国人，奥委会还不能抹杀！冬奥会最近给回复了，以表达他的政治正确。但是我们知道李红的存在，知道共产党怎么拿到奥运会的存在。结束2008年奥运使命后，李红创办盛开国际体育，盛开国际体育的办公室分别设在在北京和奥委会所在地瑞士。一直在运作中共与奥委会的这条线上，就如她毫不掩饰的公开回答：现在商业上的很多合作伙伴都是奥运期间结下的友谊？这种友谊有什么特殊之处？对此问题李红的回答是：我们之间有非常深的信任，类似于一起插队、一起当兵的感情。那是一种和平时期罕见的生死考验。通过郭先生的解读，完全明白了李红就是活跃在奥运战线的另一个燕子“钥匙澜”。
+坎特在他的Instagram上分享了蔡英文的视频，并配文说：“真是荣幸！感谢台湾总统回应。我迫不及待地想参观你美丽的国家，了解台湾文化，品尝一些你的美食，并会见勇敢的台湾人民。当我们站在一起时，我们会变得更强大。”
 
-郭先生列举了北京冬奥会的三种可能。1，病毒传染，世界更恨中共；2，倾一国之力搞冬奥会，习近平得到现场讲话，使得他的生命更危险； 3，冬奥会成功会让不能到达冬奥会的各国领导人羡慕妒忌恨，同时会加大反对共产党力量，我们也有能力让他办不成。
+他用台湾国旗的表情符号结束了他的回应。
 
-参考链接：
+**坎特在他周五的视频中说了以下内容：**
 
-1. [2021.11.17郭先生直播](https://gtv.org/video/id=6194fda8e7e7703792363972)
-2. [2021年11月17日文贵先生直播小飞象大雨围城速记](https://gnews.org/zh-hans/1672223/)
-3. [《盛开国际体育李红和2008年北京奥运会》](https://gnews.org/zh-hans/1663913/)
+台湾不是中国的一部分。台湾是一个民主自由的国家——我与台湾站在一起。你知道吗，尽管台湾有自己的历史，自己的政府……自己的选举，自己的一切，习近平却被困在自己的世界里意淫，声称台湾是中国的一部分，（不断）威胁要入侵台湾。台湾2400万人只想和平自由地生活。他们珍视自由、人权和民主。台湾是一股向善的力量。中国政府对台湾的所作所为更加证明习近平和中共政权对世界各地的自由构成威胁。我们看到他们对西藏人、维吾尔人、香港人所做的一切。台湾现在站在反对中共独裁统治的前线。
 
+我要向今天观看此节目的所有自由支持者传达的信息是：我们一起变得更强大。我们都必须与台湾站在一起，支持台湾，捍卫民主。我们必须保持台湾的自由和安全。台湾已经独立了，我相信并希望这个国家永远自由民主。台湾的未来必须由台湾人民决定。
+
+**我对今天观看此节目的所有自由支持者的信息是：**
+
+我们在一起更强大。
+我们都必须#StandWithTaiwan，
+支持台湾，捍卫民主。
+我们必须保持台湾的自由和安全。
+台湾是属于台湾人民的！
+
+# IslandOfResilience
+
+
+
+> My message to all freedom supporters watching this today is:
+> 
+> We are stronger together.
+> We must all [#StandWithTaiwan](https://twitter.com/hashtag/StandWithTaiwan?src=hash&amp;ref_src=twsrc%5Etfw),
+> support Taiwan, and defend democracy. 
+> We must keep Taiwan free and safe.
+> 
+> Taiwan belongs to the TAIWANESE people![#IslandOfResilience](https://twitter.com/hashtag/IslandOfResilience?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/r925kNm2fY](https://t.co/r925kNm2fY)
+> — Enes Kanter (@EnesKanter) [November 12, 2021](https://twitter.com/EnesKanter/status/1459190235565371397?ref_src=twsrc%5Etfw)
+
+
+
+长期以来，坎特一直是他祖国总统雷杰普·塔伊普·埃尔多安的直言不讳的批评者。然而，这位凯尔特人队球员最近在对阵中国队的比赛中表现出色。
+
+10月中旬，坎特发布了一段视频，呼吁中国共产党和习近平主席“解放西藏”。在最初的帖子之后，他发表了另一篇文章，公开反对中共的维吾尔穆斯林奴役，并称习近平是“无情的独裁者”。
+
+“无情的中国独裁者习近平和中国共产党，我现在在全世界面前向你呼吁，”坎特说。 “关闭劳教所，释放维吾尔人。现在停止种族灭绝。”
+
+这位凯尔特人队的球员还呼吁其他穆斯林运动员保持沉默，包括耐克和勒布朗·詹姆斯。
+
+**文章来源**：[https://www.dailywire.com/news/taiwan-president-thanks-enes-kanter-after-athlete-says-taiwan-at-the-frontlines-against-chinas-dictatorship](https://www.dailywire.com/news/taiwan-president-thanks-enes-kanter-after-athlete-says-taiwan-at-the-frontlines-against-chinas-dictatorship)
+
+翻译：洛杉矶盘古农场–Raul
+校对：洛杉矶盘古农场–Mike Li
+编辑：洛杉矶盘古农场–心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

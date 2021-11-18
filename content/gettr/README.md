@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/18/2021 2:01 AM (UTC)`
+
+11月17日：5个月的多多与2岁的笨笨……
+![img](https://media.gettr.com/group9/getter/2021/11/18/02/01/1f958da9-0b4b-0016-9854-ecd2b2d02013/out.jpg)
+
+---
+
 `@miles 11/18/2021 1:51 AM (UTC)`
 
 11/17/2021 Miles Guo: The CCP’s third major historical resolution is to deny Mao and Deng without mentioning any proposal to reform; the purpose for this historical resolution to be released after the Biden-Xi meeting is to deceive the Chinese that the resolution is backed by the Americans<br/><br/>11/17/2021 文贵直播：中共的第三个重大历史决议是习否定毛和邓，只字未提改革方案；该决议被安排在拜习会后公布的目的是制造美国对其背书的假象从而欺骗中国人<br/>
@@ -293,13 +300,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 美联邦第五巡回上诉法院裁定：维持对拜登疫苗强制令的临时禁令。发起诉讼的企业要求终止疫苗强制令，表示该强制令会让他们蒙受无法挽回的损失，联邦政府不应介入个人的医疗决定，例如疫苗接种<br/><br/>The Fifth Circuit Court of Appeals just ruled to uphold the temporary stay on President Biden's vaccine mandate on businesses. The businesses suing to stop the mandate are claiming it causes irreparable hard, and the federal government should not get involved in personal medical decisions such as vaccination.
 ![img](https://media.gettr.com/group22/getter/2021/11/13/14/28/b62520c4-9330-f12f-acad-d514e98915e7/out.jpg)
-
----
-
-`@miles 11/13/2021 7:44 AM (UTC)`
-
-11/12/2021 Miles Guo: The upcoming high-stakes virtual meeting between Biden and Xi Jinping is the result of the Biden Administration's collusion with the CCP for its political and financial interests. The CCP delayed Evergrande's collapse after the Sixth Plenary Session in order to have a smooth meeting. No one can bail Evergrande out, it will certainly go bankrupt and trigger a domino effect of collapse in Communist China’s real estate market and its financial sector!<br/><br/>11/12/2021 文贵直播：即将举行的拜习视频会议的是拜登政府为其政治和经济利益而与中共勾兑的结果；中共安排恒大在六中全会后暴雷是为了顺利开会；没人能拯救恒大，它必定破产，且将在中共国房地产和金融界引发多米诺骨牌的崩溃效应！
-![img](https://media.gettr.com/group18/getter/2021/11/13/07/44/ae27aa8b-5f56-5f13-0352-c5e12e60ff28/out.jpg)
 
 ---
 

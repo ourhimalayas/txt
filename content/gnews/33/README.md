@@ -2,160 +2,37 @@
 ---
 
 
-## 美国媒体大重启大药厂封杀疫苗事件和共产党罪行
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672987/)
+## 文贵视角： 政治、金钱和性交易背景下的2022北京冬奥会
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1673084/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tt-asp84-zw5tb.jpg)
-[https://gtv.org/video/id=6195006e18270250810628cb](https://gtv.org/video/id=6195006e18270250810628cb)
+撰稿：Skagen
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图像-2.jpg)
+图片：Miles Guo Gettr
 
-**郭文贵**
-**Miles Guo**
+近期美国多家媒体报道，美国政府正在考虑对明年2月在北京举行的冬奥会作出回应，其中可能包括不派出任何政府官员的“外交抵制”。但是15日在网上举行的美中首脑会议上没有提出这个问题。
 
-另外一个班农事情意味着什么
-Another one is that what does the Bannon incident signal?
+《华盛顿邮报》16日报道称，拜登预计将很快批准一项建议，即不派美国官员参加北京奥运会。迄今为止，包括众议院议长佩洛西在内的民主党和共和党议员都呼吁进行这一外交抵制，以抗议中共国侵犯人权的行为。 一些共和党议员表示，美国运动员也应该放弃参与以示抗议。美国国务卿布林肯上周表示，他正在与他的盟友“讨论”如何应对此次北京冬季奥运会。
 
-美国媒体大重启
-The U.S. media’s big actions resume,
+今天11月17号大直播中，郭先生回答草根小哥的问题：西方到底是为了什么要抵制冬奥会吗？郭文贵先生回答的非常直接：这是政治流氓最低级的操作方法。
 
-大重启
-The huge resume
+**第一个，**各国政府说抵制，是为了“政治卸责”。“新疆大屠杀我说了啊。我警告过你，你可能染上病毒”。
 
-就班农事件你看高兴的是谁
-You can tell who was happy by the Bannon incident
+**第二个，**这是政客们的政治表演，说“我反对，不能去，新疆大屠杀”，等着中共来蓝金黄他们，这是一个“会哭要价”的逻辑。
 
-不高兴的是谁，你看得出来
-and who was upset
+**第三个**，奥运会的本质是钱。郭先生最清楚2008北京奥运会就是拿钱、拿性贿赂。自2003年就开始担任2008国际奥委会（IOC）北京代表处首席代表的李红，郭先生强调李红是“萨马兰奇的奥运会中国代表”。（见文章[《盛开国际体育李红和2008年北京奥运会》](https://gnews.org/zh-hans/1663913/)），回忆李红当年“挤着胸部，盘古长期有她房间，经常在21楼，用私人房间，比客厅都大，两道门，给领导亲吻双休检查痔疮，设计好的”，“经常穿盘古几千块睡衣，电梯厅里接来接去的”。
 
-疫苗没人报道
-The vaccine disaster has not been reported by anyone
+**奥运会本质都是利益，已经没有了奥林匹克精神。**郭先生揭示了中国怎么拿到奥运会的，是江泽民通过搞定美国赌场老板Steve Wynn，让他在澳门拿到赌牌，最后运作到中国拿到奥运会。郭先生通过邓小平讲话视频知道中共计划通过开奥运会扩大党的国际的形象。共产党奥运的本质就是行贿、蓝金黄还不够。每届奥运会，没有一届没有丑闻的。而对于哪些非洲、亚洲、南美代表，共产党都是投其所好。当时的北京市长刘淇原话“我女婿有关系，奥运会投票权的，这个女的极为喜欢男孩，送一些好的跳舞的男孩去，而且从新疆和西藏选，就这啊，蓝金黄啊”。冬奥会就是金钱交易腐败大会，欺骗人民的大会。
 
-美国严肃媒体的50%到75%的广告费来自何方
-Where do these 50% to 75% of the serious media advertising charges in the United States come from?
+郭先生坚决反对冬奥，他说，我们反对了，我们这个声音，新中国人，奥委会还不能抹杀！冬奥会最近给回复了，以表达他的政治正确。但是我们知道李红的存在，知道共产党怎么拿到奥运会的存在。结束2008年奥运使命后，李红创办盛开国际体育，盛开国际体育的办公室分别设在在北京和奥委会所在地瑞士。一直在运作中共与奥委会的这条线上，就如她毫不掩饰的公开回答：现在商业上的很多合作伙伴都是奥运期间结下的友谊？这种友谊有什么特殊之处？对此问题李红的回答是：我们之间有非常深的信任，类似于一起插队、一起当兵的感情。那是一种和平时期罕见的生死考验。通过郭先生的解读，完全明白了李红就是活跃在奥运战线的另一个燕子“钥匙澜”。
 
-全是大药厂
-They are all major pharmaceutical factories
+郭先生列举了北京冬奥会的三种可能。1，病毒传染，世界更恨中共；2，倾一国之力搞冬奥会，习近平得到现场讲话，使得他的生命更危险； 3，冬奥会成功会让不能到达冬奥会的各国领导人羡慕妒忌恨，同时会加大反对共产党力量，我们也有能力让他办不成。
 
-全世界特别是美国的严肃媒体的50到65到70的广告费
-50% to 70% of advertising fees for serious media in the world, especially in the United States
+参考链接：
 
-来自于大药商
-are coming from major pharmaceutical factories
+1. [2021.11.17郭先生直播](https://gtv.org/video/id=6194fda8e7e7703792363972)
+2. [2021年11月17日文贵先生直播小飞象大雨围城速记](https://gnews.org/zh-hans/1672223/)
+3. [《盛开国际体育李红和2008年北京奥运会》](https://gnews.org/zh-hans/1663913/)
 
-所以疫苗没人说话呀
-That’s why nobody talks about the vaccine disaster
-
-疫苗没人说话
-No one covers the vaccine disaster
-
-共产党的事也没人说话
-No one talks about things that the CCP does
-
-Eglise你想过这问题吗
-Eglise, have you ever thought about this issue?
-
-为什么疫苗没人说
-Why nobody talks about vaccines,
-
-共产党在美国对班农的事也没人说
-nor talks about how the CCP targeting Bannon in the United States
-
-这说明他是(同)一个老板哪, 对吧？
-These indicate they have the same boss. Correct?
-
-邪恶和共产党是一个老板
-The evil and the Communist Party are the same boss
-
-这对美国威胁大了去了
-This is a severe threat to the U.S.
-
-我们提前42天的警报证明了以下的问题
-Our 42-day early warning has proved the following problems
-
-而且这些对班农大媒体对他整个的封杀
-and the Bannon incident which he was completely banned from major media
-
-还有整个的完全无视真相的忽视
-as well as the whole ignorance of completely ignoring the truth
-
-然后看好要抓这个班农
-Then, I’m optimistic about arresting Bannon
-
-我说你啥时侯被抓啊，赶快抓呀？
-I asked when did you (Bannon) get arrested, hurry up?
-
-他说我等着呢，没抓啊
-He said he was still waiting
-
-我说你赶快（被）抓了吧
-I was joking that hurry up got arrested
-
-现在我是真希望你能到某个我们的小船上等着去
-Now I really hope that you can wait in one of our boats
-
-再在船上把你给抓走啊
-then you got arrested in the boat and taken away
-
-所以说这次班农无疑成为美国的政治教父
-So this time Bannon will undoubtedly become the political godfather of the United States
-
-这是绝对的
-This is absolute
-
-更重要它团结了（美国人）
-the most significant is that the American people have united
-
-我刚刚看到这个
-I have just seen this one
-
-川普发出了新的文章
-Trump have published a new article
-
-我发给你们群里边
-I’ll send it to your group chat
-
-这是很大的事情
-This is a huge event
-
-所以说兄弟姐妹们
-So, brothers and sisters
-
-这个时候咱们新中国联邦的一个宣言人成了世界的焦点，是吧？
-At this time, one of our New Federal State of China’s declarers has become the fo-cus of the world, right?
-
-成了一个美国的政治当中最重要的风水标
-He has become one of the most important weathercock in American politics
-
-受益者当然是新中国联邦，是吧？
-The beneficiary is of course the New Federal State of China, right?
-
-这个意义大到哪儿去了
-What’s the significance of this?
-
-谈班农不谈郭文贵好像这事都过不去，是吧？
-Talking about Bannon but not Guo Wengui seems to be hard to get through, right?
-
-谈班农不谈咱新中国联邦都过不去
-It doesn’t make any sense that talking about Bannon but not the New Federal State of China
-
-**原视频链接:** [https://gettr.com/post/pgzhxnc17a](https://gettr.com/post/pgzhxnc17a)
-
-Date: 11/14/2021
-原视频标题: 班农事件意味着美国媒体大重启大药厂封杀疫苗事件和共产党罪行
-The Bannon incident indicates that the U.S. media has resumed that the major drug factories blocking vaccine incidents and the Communist Party crimes
-原视频日期：2021/11/14
-任务编号：KC260（2895）
-视频时间段 : 0:00-2:14
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
