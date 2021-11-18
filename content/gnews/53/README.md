@@ -2,18 +2,30 @@
 ---
 
 
-## 【文贵先生大直播PPT】近期的全球疫苗灾难
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1672286/)
+## GTV新闻访谈简报|2021年11月17日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1672422/)
 
-撰稿：舒平风，MyWay，莲心不染，TCC 幸福堂，坐看云起时
-美工：健身健心（文阳），青山
-审核：舒平风，三票先生，顽童先生
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-1.jpg)
 
-【2021年11月17日文贵先生大直播PPT：近期的全球疫苗灾难】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12-2-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-95.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-78.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-55.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-31.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/7-19.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/8-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/9-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/10-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/111-2-1.jpg)
-* * *
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-17.png)
+文章仅代表作者本人观点，与Gnews无关
 
-发稿：云起时
+视频参看：2021.11.17早GTV新闻访谈
+
+[https://gtv.org/broadcast/watch/61950355e7e7703792364779](https://gtv.org/broadcast/watch/61950355e7e7703792364779)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

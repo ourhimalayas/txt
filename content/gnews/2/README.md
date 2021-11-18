@@ -2,27 +2,22 @@
 ---
 
 
-## 拜登政府下令订购1千万个疗程的“辉瑞菌素”同时计划“即将”扩大疫苗加强针施打范围
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1673475/)
+## 疫苗接种率全球最高的国家疫情再度飙升
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1673517/)
 
-编译：沙子最怕你不理它
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-16.png)
-据零对冲11月16日报道，随着世界各国政府继续加大对未接种疫苗和未完全接种疫苗者的专制惩罚，卫生官员再次重新定义了“完全接种”。
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-30.png)
+图片来源： Our World in Data
 
-据美国短新闻网站Axios称，拜登政府预计将最早在本周开始“将疫苗加强针授权扩展到所有成年人”。这一决定的主要依据是疫苗的有效性会随着时间的推移而下降，需要第三针加强降低大多数50岁以下成年人&lt;1%的死亡风险，同时略微减少传播，直到90天内疫苗有效性再次消失。
+“零对冲”网11月17日报道，欧洲大部分地区最近一周的新冠发病率再次走高，超越今年3 月的疫情高峰，其中作为全球疫苗接种率最高的国家、英属直布罗陀的新冠病例呈“指数级”飙升，政府已宣布取消官方圣诞聚会类活动，并建议公众四周内避免聚会和社交活动、戴好口罩、避免拥抱及身体接触。
 
-更多来自Axios的消息称，尽管专家们对谁需要施打加强针存在分歧，但人们普遍认为，老年人和至少一些有潜在健康状况的人应在第一个系列赛后六个月左右获得额外剂量。
+位于伊比利亚半岛南端的直布罗陀，按Our World in Data的统计数据、其疫苗接种率为全球之首，接近100%；而根据零对冲的报道，如果算上每天入境工作的西班牙人等外籍人员，其接种率超过 118% 。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片4-7.png)
+（图表来源Bloomberg：直布罗陀2021年11月16日）
 
-- 但据疾控中心（CDC)称65岁及以上的美国人中，只有36%的人施打了加强针。
-- “随着每个月的流逝，免疫力越来越下降。国家过敏和传染病研究所NIAID主任福奇（Anthony Fauci）告诉Axios，随着时间的推移，您将看到更多的接种疫苗的人“更容易感染病毒”。
-- 绝大多数突破性案例，特别是在年轻人中并不严重。但福奇说：“和往常一样，老年人更容易受到伤害，因为他们更有可能随着时间的推移而减少保护。”
+这种疫苗接种率极高、疫情不减反增的情况，直布罗陀并非唯一。全民接种率高达85%的新加坡，近期的疫情死亡人数创下历史新高；接种率70%的荷兰再施封锁；接种率76%的冰岛再度升高疫情管制；接种率71%的美国佛蒙特州创下染疫人数新高……接下来还会轮到在哪些国家和地区？
 
-
-与此同时，拜登政府还订购了1千万个疗程的辉瑞新的抗中共病毒药丸（辉瑞菌素）。周二，辉瑞宣布了其计划，要求美国食品药品监督管理局授权其紧急使用该药。
-
-辉瑞本月早些时候宣布，其实验药丸将以Paxlovid品牌出售，在症状出现后三天内服用，高危人群的住院和死亡风险降低了89%。该公司表示，它计划很快向联邦监管机构提交紧急使用授权申请。辉瑞还允许仿制药公司生产其新型抗病毒药物，即使这样也不太可能动摇伊维菌素作为世界首选的早期治疗药物的地位。辉瑞的“实验性药丸”到底效果怎么样，拭目以待吧。
-
-来源：[Biden Admin Plans ‘Imminent’ Booster Expansion; Orders 10M Courses Of ‘Pfizermectin’](https://www.zerohedge.com/covid-19/biden-admin-plans-imminent-booster-expansion-orders-10m-courses-pfizermectin)
+**新闻来源：** [“Most Vaccinated” Nation On Earth Cancels Christmas Over Surge In COVID Cases](https://www.zerohedge.com/covid-19/most-vaccinated-nation-earth-cancels-christmas-over-surge-cases)；[Worldwide Vaccine Failure](https://www.zerohedge.com/covid-19/worldwide-vaccine-failure)
 
  
 

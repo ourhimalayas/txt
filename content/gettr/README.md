@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/18/2021 2:36 AM (UTC)`
+
+11月17日：恒大，彻底完鸟……
+![img](https://media.gettr.com/group3/getter/2021/11/18/02/7da0220b-f956-8181-845b-2ae8bf660174/1c8bfdbfb5166da61d5ec8222b6eb074.jpg)
+
+---
+
 `@miles 11/18/2021 2:01 AM (UTC)`
 
 11月17日：5个月的多多与2岁的笨笨……
@@ -293,13 +300,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 11月13號：尊敬的戰友們好⋯⋯你們健身了嗎⋯⋯傳播CC P病毒⋯⋯疫苗解藥的真相了嗎！一切都已經開始⋯⋯別忘了今天看真人真事節目呀⋯⋯
 ![img](https://media.gettr.com/group42/getter/2021/11/13/16/18/3d920710-d07d-00bb-3fc5-6dda05c82f0c/out.jpg)
-
----
-
-`@miles 11/13/2021 2:28 PM (UTC)`
-
-美联邦第五巡回上诉法院裁定：维持对拜登疫苗强制令的临时禁令。发起诉讼的企业要求终止疫苗强制令，表示该强制令会让他们蒙受无法挽回的损失，联邦政府不应介入个人的医疗决定，例如疫苗接种<br/><br/>The Fifth Circuit Court of Appeals just ruled to uphold the temporary stay on President Biden's vaccine mandate on businesses. The businesses suing to stop the mandate are claiming it causes irreparable hard, and the federal government should not get involved in personal medical decisions such as vaccination.
-![img](https://media.gettr.com/group22/getter/2021/11/13/14/28/b62520c4-9330-f12f-acad-d514e98915e7/out.jpg)
 
 ---
 
