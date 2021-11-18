@@ -2,22 +2,28 @@
 ---
 
 
-## 疫苗接种率全球最高的国家疫情再度飙升
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1673517/)
+## OSHA在法院阻止后暂停执行疫苗任务
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1673531/)
 
-编译：致敬香港！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-30.png)
-图片来源： Our World in Data
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-78.png)
+图片来源：网络截图
 
-“零对冲”网11月17日报道，欧洲大部分地区最近一周的新冠发病率再次走高，超越今年3 月的疫情高峰，其中作为全球疫苗接种率最高的国家、英属直布罗陀的新冠病例呈“指数级”飙升，政府已宣布取消官方圣诞聚会类活动，并建议公众四周内避免聚会和社交活动、戴好口罩、避免拥抱及身体接触。
+据零对冲11月17日报道，劳工部的职业安全与健康管理局（OSHA）已经遵循美国上诉法院的法令，暂停执行拜登政府对私营企业的中共病毒疫苗的授权。
 
-位于伊比利亚半岛南端的直布罗陀，按Our World in Data的统计数据、其疫苗接种率为全球之首，接近100%；而根据零对冲的报道，如果算上每天入境工作的西班牙人等外籍人员，其接种率超过 118% 。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片4-7.png)
-（图表来源Bloomberg：直布罗陀2021年11月16日）
+美国上诉法院于11月12日驳回了拜登政府的挑战，并重申其搁置OSHA任务的决定，该任务要求拥有100名或以上员工的企业确保工人在2022年1月4日前接种中共病毒疫苗，或每周接受测试并佩戴口罩。
 
-这种疫苗接种率极高、疫情不减反增的情况，直布罗陀并非唯一。全民接种率高达85%的新加坡，近期的疫情死亡人数创下历史新高；接种率70%的荷兰再施封锁；接种率76%的冰岛再度升高疫情管制；接种率71%的美国佛蒙特州创下染疫人数新高……接下来还会轮到在哪些国家和地区？
+新奥尔良第五巡回上诉法院在一份意见中指出，OSHA的任务是 “惊人的过度宽泛”，并命令它在下一步法庭令前不得采取任何措施来强制实施执行该任务。此前，法院曾于11月6日发布临时停止该任务，以待诉讼。
 
-**新闻来源：** [“Most Vaccinated” Nation On Earth Cancels Christmas Over Surge In COVID Cases](https://www.zerohedge.com/covid-19/most-vaccinated-nation-earth-cancels-christmas-over-surge-cases)；[Worldwide Vaccine Failure](https://www.zerohedge.com/covid-19/worldwide-vaccine-failure)
+劳工部在一份声明中确认了法院的裁决，OSHA已经暂停了与实施和执行紧急临时标准（ETS）有关的活动，等待诉讼的未来发展，
+
+至少有美国有27个州，以及私人雇主、宗教组织和其他团体起诉拜登政府，声称它在发布该授权时超越了其权限。
+
+第五巡回法院在11月12日的重申中指出，拜登政府的疫苗授权 “引起了严重的宪法问题”，“很可能超出了联邦政府的权限”。
+
+与此同时，白宫官员继续呼吁雇主在11月6日的初步裁决后继续遵守私营企业的疫苗任务。
+
+新闻来源：[OSHA Suspends Enforcement Of Vaccine Mandate After Court Block](https://www.zerohedge.com/markets/osha-suspends-enforcement-vaccine-mandate-after-court-block)
 
  
 

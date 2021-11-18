@@ -15,116 +15,116 @@
 
 ---
 
-### [郭文贵先生剖析拜习会的桌下交易](/content/gnews/1/README.md)
+### [秘翻在线：永远处在风口浪尖的班农正面临着新的考验](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [第二批州向针对医护人员的疫苗强制令提出挑战](/content/gnews/2/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：美国在芯片技术上给中共挖大陷阱](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [新中国联邦国防军](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [二十篇科学论文证实，疫苗强制无效并有害于社会](/content/gnews/5/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [郭文贵先生剖析拜习会的桌下交易](/content/gnews/6/README.md)
  ` 澳喜农场`
 
-### [视频| 坚决不能打疫苗](/content/gnews/2/README.md)
+### [视频| 坚决不能打疫苗](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [COVID-19 最新情報｜那些最健壯的運動員們正在「倒下」](/content/gnews/3/README.md)
+### [COVID-19 最新情報｜那些最健壯的運動員們正在「倒下」](/content/gnews/8/README.md)
  ` G&#124;News TAIWAN`
 
-### [面临通胀威胁，澳洲政府不急于推进移民步伐](/content/gnews/4/README.md)
+### [面临通胀威胁，澳洲政府不急于推进移民步伐](/content/gnews/9/README.md)
  ` 走进澳洲`
 
-### [拥有喜币的原因是灭共，在躺平的那一刻起就会失去喜币](/content/gnews/5/README.md)
+### [拥有喜币的原因是灭共，在躺平的那一刻起就会失去喜币](/content/gnews/10/README.md)
  ` NewFOC`
 
-### [拜登政府或将对北京冬奥会实施“外交抵制”](/content/gnews/6/README.md)
+### [拜登政府或将对北京冬奥会实施“外交抵制”](/content/gnews/11/README.md)
  ` 日本东京方舟农场`
 
-### [喜联储和喜币创造的财富 是灭共的有力武器](/content/gnews/7/README.md)
+### [喜联储和喜币创造的财富 是灭共的有力武器](/content/gnews/12/README.md)
  ` 澳喜农场`
 
-### [中共利用海外空壳公司获取意大利军用无人机技术](/content/gnews/8/README.md)
+### [中共利用海外空壳公司获取意大利军用无人机技术](/content/gnews/13/README.md)
  ` 日本东京方舟农场`
 
-### [国际要闻汇编11月18日](/content/gnews/9/README.md)
+### [国际要闻汇编11月18日](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [康涅狄克护理院完成疫苗者8 例死亡80例受感染](/content/gnews/10/README.md)
+### [康涅狄克护理院完成疫苗者8 例死亡80例受感染](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美执业护士用伊维菌素挽救了2400多中共病毒重症患者](/content/gnews/11/README.md)
+### [美执业护士用伊维菌素挽救了2400多中共病毒重症患者](/content/gnews/16/README.md)
  ` 日本东京方舟农场`
 
-### [“朝阳大妈”无异于文化大革命中的红卫兵](/content/gnews/12/README.md)
+### [“朝阳大妈”无异于文化大革命中的红卫兵](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [维多利亚州的新冠限制措施将会在2021年11月18日晚结束](/content/gnews/13/README.md)
+### [维多利亚州的新冠限制措施将会在2021年11月18日晚结束](/content/gnews/18/README.md)
  ` 走进澳洲`
 
-### [美国通胀率创31年来最高纪录](/content/gnews/14/README.md)
+### [美国通胀率创31年来最高纪录](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共毒计逼幼儿打疫苗](/content/gnews/15/README.md)
+### [中共毒计逼幼儿打疫苗](/content/gnews/20/README.md)
  ` 澳喜农场`
 
-### [11/17/2021 文贵直播：习拜会制造了美国人给习背书的假象来唬骗百姓](/content/gnews/16/README.md)
+### [11/17/2021 文贵直播：习拜会制造了美国人给习背书的假象来唬骗百姓](/content/gnews/21/README.md)
  ` 秘密翻译组-北美组`
 
-### [中国恒大以约310亿日元低价出售所持恒登网通的全部股份](/content/gnews/17/README.md)
+### [中国恒大以约310亿日元低价出售所持恒登网通的全部股份](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥11.17着装是否为铭记共产党2019.11.17的掩盖疫情](/content/gnews/18/README.md)
+### [七哥11.17着装是否为铭记共产党2019.11.17的掩盖疫情](/content/gnews/23/README.md)
  ` NewFOC`
 
-### [焦点新闻摘要 2021年11月17日](/content/gnews/19/README.md)
+### [焦点新闻摘要 2021年11月17日](/content/gnews/24/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [有声|郭文贵先生高度肯定 班农注定成为美国政治教父级的人物](/content/gnews/20/README.md)
+### [有声|郭文贵先生高度肯定 班农注定成为美国政治教父级的人物](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [每日快报： 拜登政府据信已决定外交抵制北京冬奥会](/content/gnews/21/README.md)
+### [每日快报： 拜登政府据信已决定外交抵制北京冬奥会](/content/gnews/26/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [币圈新闻动态：喜币（HCN）价格17日实时价格为35.367 HDO](/content/gnews/22/README.md)
+### [币圈新闻动态：喜币（HCN）价格17日实时价格为35.367 HDO](/content/gnews/27/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [焦点新闻摘要 2021年11月16日](/content/gnews/23/README.md)
+### [焦点新闻摘要 2021年11月16日](/content/gnews/28/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [喜币和GTV股票哪个更值钱？](/content/gnews/24/README.md)
+### [喜币和GTV股票哪个更值钱？](/content/gnews/29/README.md)
  ` 文永`
 
-### [有声|“被囚禁作者日”：美国人权委员会呼吁关注中共国因言获罪人士](/content/gnews/25/README.md)
+### [有声|“被囚禁作者日”：美国人权委员会呼吁关注中共国因言获罪人士](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [视频| 研究报告显示：刺突蛋白可进入细胞核，干扰DNA的正常修复](/content/gnews/26/README.md)
+### [有声| 英国批准皮肤贴片新冠疫苗进行人体试验](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [有声| 英国批准皮肤贴片新冠疫苗进行人体试验](/content/gnews/27/README.md)
+### [有声| 日本经济安保法案排除中共敏感设备](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [有声| 日本经济安保法案排除中共敏感设备](/content/gnews/28/README.md)
- ` MOSREC`
-
-### [有声| 内斗加剧，孙力军团伙被彻查](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [GTV新闻访谈简报|2021年11月17日晚](/content/gnews/30/README.md)
+### [GTV新闻访谈简报|2021年11月17日晚](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [卑诗省暴雨洪灾或引发全加拿大供应链危机](/content/gnews/31/README.md)
+### [卑诗省暴雨洪灾或引发全加拿大供应链危机](/content/gnews/34/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [继南海冲突后，菲律宾告诉中共国“退让”](/content/gnews/32/README.md)
+### [7·24系列——李红与奥运会](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [7·24系列——李红与奥运会](/content/gnews/33/README.md)
- ` 墨尔本雅典娜农场`
-
-### [加拿大安省因疫情恶化或重施更严格的卫生措施](/content/gnews/34/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [OSHA在法院阻止后暂停执行疫苗任务](/content/gnews/35/README.md)
+### [OSHA在法院阻止后暂停执行疫苗任务](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [疫苗接种率全球最高的国家疫情再度飙升](/content/gnews/36/README.md)
+### [疫苗接种率全球最高的国家疫情再度飙升](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [雅典娜时报-第116期](/content/gnews/37/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [耶伦再次警告美国财政即将破产](/content/gnews/38/README.md)
  ` 军迷wilson`

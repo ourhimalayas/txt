@@ -2,47 +2,36 @@
 ---
 
 
-## 维多利亚州的新冠限制措施将会在2021年11月18日晚结束
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1673761/)
+## 中共利用海外空壳公司获取意大利军用无人机技术
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1673798/)
 
-**翻译：月映万川**
-**编辑：月映万川**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳洲.png)图片来源：澳洲新闻网
-随着维多利亚州的两剂疫苗接种率即将达到90%，本州大多数的防疫规定都将在本周四晚上取消。
+#### 作者：日本东京方舟农场 子辰
 
-在餐饮服务业、音乐会和大型活动中，室内人数限制将不再适用于两剂疫苗接种者。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/A7DAC006-95E7-4878-AD50-11C91672A40B.jpeg)（图片来自路透社）
 
-室内歌舞场所在6个月后首次重开，这其中也包括了婚礼和夜店。家庭访客人数也不再设限制人数。
+据《美国之音》11月17日报道，意大利警方经过调查发现，中共两家国有企业利用一家海外空壳公司，隐瞒真相躲避审查，控制了意大利的一家军用无人机生产商。此事暴露出欧洲投资审查体系的脆弱性，以及中共为获取欧洲敏感技术的精心布局。
 
-而维多利亚州针对完全疫苗接种人士的隔离要求也有巨大变化。
+据《华尔街日报》近日报道，意大利警方调查发现，马尔斯（香港）信息科技公司（Mars HK）在2018年7月，以400万欧元购买了意大利军用无人机厂商“阿尔卑飞机公司”（Alpi Aviation）75%的股份。随后又跟进投资了150万欧元。警方之后调查发现，该公司是在此收购行动的几个月前，刚刚在香港注册的一家公司。
 
-今晚开始，两剂疫苗接种者如果被认定为病例密接者，将会被要求进行PCR 测试，并隔离直到拿到阴性结果为止。
+意大利警方追踪“马尔斯”的持有人，发现是两家中共当局控制的公司——央企铁路巨头“中国中车”旗下的中车资本，和无锡市政府旗下的一家投资集团。至此，警方判定“马尔斯”是空壳公司，成立的目的是为将阿尔卑飞机公司纳入中共政府的控制之下。
 
-维多利亚州卫生部将不在自己的网站上公布病毒暴露点。而去过高风险地点的人士会在维多利亚服务部的应用程序中收到短信提醒。
+阿尔卑飞机公司位于意大利北部城镇波德诺（Pordenone），主要生产轻飞机和被称为Strix的迷你无人机。Strix可装于背包，由一名操作人员快速部署，甚至在夜间也能进行侦察任务，曾被驻阿富汗的意大利空军使用。
 
-婚礼和葬礼将不再对完全接种疫苗人士设人数限制。
+负责调查的意大利金融警察负责人表示，这是对技术的掠夺性投资，而这类投资在意大利是被禁止的。
 
-对于非必要零售商店，大型活动，和餐饮服务业，两剂疫苗接种要求保持不变，并且大型活动必须要获新冠安全计划批准。
+分析人士认为，对“阿尔卑”的收购符合中共国企在海外的行事模式。它们通常是以民营空壳公司为掩护，获取掌握特殊技术企业的控制权，然后再将该公司的技术与智慧财产转移至中共国。
 
-零售行业的口罩强制令要至少维持到下个月。同时，口罩强制令也会在高风险地点保持，这些地点包括公共交通和医疗设施。
+《华尔街日报》的报道援引多年来追踪中资海外收购的荷兰数据咨询机构Datenna的执行长范·埃滕（Jaap van Etten）的话指出，“这是教科书级的案例，且是由中共政府推动的国家战略”。
 
-小学教师仍然需要戴口罩工作。
+*新闻链接： [https://www.voachinese.com/a/China-covertly-purchases-Italian-avionics-firm-ALPI-Aviation-20211116/6315363.html](https://www.voachinese.com/a/China-covertly-purchases-Italian-avionics-firm-ALPI-Aviation-20211116/6315363.html)*
 
-政府鼓励完全接种的维多利亚州办公室白领返回办公地点办公。
+* * *
 
-截止到目前，维多利亚州已经有88%的12岁以上人口目前已经完全接种了疫苗，而93%的人口已经接种了至少一剂新冠疫苗。
+*素材采编：子辰*
 
-原文链接：[Covid updates: Restrictions end at midnight in Victoria](https://www.news.com.au/national/victoria/news/huge-changes-set-for-victorias-covid-rules-as-state-hits-90-per-cent-double-jabbed/news-story/1ee84473ff2cabd2149e8e12d9c3db6f)
+*编辑：青衣青青*
 
-***发布：Candy***
-
-**更多资讯，请关注：**
-
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*发布：miumiu*
 
  
 

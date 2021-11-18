@@ -2,27 +2,25 @@
 ---
 
 
-## 加拿大安省因疫情恶化或重施更严格的卫生措施
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1673571/)
+## 卑诗省暴雨洪灾或引发全加拿大供应链危机
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1673582/)
 
-采编：Ucool(优酷)      编译撰稿：苦尽甜来 (文来）
+原文采编：青青        编译撰稿：文莱
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-32.jpg)图片来源：TNH
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-48-edited.jpg)图片来源：CBC
 
 
-据加拿大媒体【CTV新闻】11月16日报道，安大略省卫生部日前表示：在“新冠病毒”感染病例数激增的情况下，当局或将恢复对“公共场所人员容量”限制和其他公共卫生强制措施。
+据加拿大媒体【CTV新闻】11月16日报道，“百年不遇”的暴风雨所带来的洪灾和泥石流对卑诗省的大部分公路、房屋和基础设施等造成了严重的破坏，并或将直接导致该省乃至整个加拿大一系列有关物流供应链的脆弱性危机。
 
-报道称，安省的苏圣玛丽市最近因疫情恶化，而必须采取紧急措施以避免更多感染和保证卫生系统的正常运行。为此，该市在翌日将恢复省政府刚解除的“公共场所人员容量限制”，包括保持两米社交距离并配戴口罩等卫生措施。违者将处以每天最高 5,000 加元的罚款。
+据悉，当天泛滥的洪水和泥石流不仅造成了该省几乎所有进出低陆平原的高速公路被迫关闭，而且大部分连接低陆平原和内陆的主要交通路线也被阻断。为此，卑诗省【交通和基础设施部】发表声明称，当局评估全省的各类损失工作仍在继续进行中。
 
-尽管安省卫生部官方数据显示：超过86%的该省居民已完全接种了“新冠病毒”疫苗，但目前的该病毒感染病例数是“自疫情开始以来的最高水平”，并达到每10万人就有121宗的高比例感染个案。
-
-对此，省长福特宣称：当局将尽量避免再次实施更广泛的疫情封锁政策。但如果需要重新采取任何相对宽松的公共卫生措施，将以局部方式缓步进行。
+据业内人士分析，全球乃至加拿大的货物供应链在“新冠病毒”疫情期间一直承受着巨大的压力。而此次罕见暴风雨的袭击则再次暴露了其内在的脆弱性。同时，卑诗省罕见的洪灾所导致温哥华港口的被隔绝，无疑进一步加重了加拿大国内经济的萎靡不前。
 
 * * *
 
 校对编辑，发稿：硫酸羟氯喹64
 
-原文链接：[https://toronto.ctvnews.ca/mobile/some-ontario-health-units-reinstating-capacity-limits-mulling-tougher-covid-measures-1.5667898](https://toronto.ctvnews.ca/mobile/some-ontario-health-units-reinstating-capacity-limits-mulling-tougher-covid-measures-1.5667898)
+原文链接：[https://www.ctvnews.ca/business/b-c-storm-aftermath-latest-blow-to-supply-chain-issues-1.5669026](https://www.ctvnews.ca/business/b-c-storm-aftermath-latest-blow-to-supply-chain-issues-1.5669026)
 
  
 
