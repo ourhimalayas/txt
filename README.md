@@ -15,92 +15,92 @@
 
 ---
 
-### [前国际刑警组织主席孟宏伟妻子高歌批中共是“魔鬼”](/content/gnews/1/README.md)
+### [加拿大法院结束 COVID 紧急情况| 戴口罩、封锁和紧急使用疫苗接种 现在是非法的](/content/gnews/1/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [拜登政府或将宣布外交抵制北京冬奥会](/content/gnews/2/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [蔡英文主持美国F16V战机接装典礼](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共官媒发布“彭帅电邮”被质疑其真实性](/content/gnews/2/README.md)
+### [前国际刑警组织主席孟宏伟妻子高歌批中共是“魔鬼”](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [去政府化的人类未来的金融系统诞生](/content/gnews/3/README.md)
+### [特鲁多政府国策加剧加拿大通货膨胀](/content/gnews/5/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [中共官媒发布“彭帅电邮”被质疑其真实性](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [去政府化的人类未来的金融系统诞生](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|GTV新闻访谈简报|2021年11月17日早](/content/gnews/4/README.md)
+### [有声|GTV新闻访谈简报|2021年11月17日早](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [又一名1月6日委员会成员被发现与中共有关联](/content/gnews/5/README.md)
+### [又一名1月6日委员会成员被发现与中共有关联](/content/gnews/9/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新中国联邦的国旗，坐着飞机去阿根廷了！](/content/gnews/6/README.md)
+### [新中国联邦的国旗，坐着飞机去阿根廷了！](/content/gnews/10/README.md)
  ` MG FARM`
 
-### [美国总统在处理冠状病毒大流行、气候变化、经济、外交政策方面受到重创](/content/gnews/7/README.md)
+### [美国总统在处理冠状病毒大流行、气候变化、经济、外交政策方面受到重创](/content/gnews/11/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [第六巡回法院受理诉讼 拜登疫苗授权注定失败](/content/gnews/8/README.md)
+### [第六巡回法院受理诉讼 拜登疫苗授权注定失败](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [利益冲突？比尔·盖茨向主要媒体提供了3.19亿美元（3/3）](/content/gnews/9/README.md)
+### [利益冲突？比尔·盖茨向主要媒体提供了3.19亿美元（3/3）](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [法院禁令：美职业安全与健康管理局暂停强制疫苗](/content/gnews/10/README.md)
+### [法院禁令：美职业安全与健康管理局暂停强制疫苗](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [蹊跷的48小时内核酸检测阴性证明](/content/gnews/11/README.md)
+### [蹊跷的48小时内核酸检测阴性证明](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [爆炸新闻：辉瑞谎报试验死亡人数——死亡率高得多](/content/gnews/12/README.md)
+### [爆炸新闻：辉瑞谎报试验死亡人数——死亡率高得多](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [利益冲突？比尔·盖茨向主要媒体提供了3.19亿美元（2/3）](/content/gnews/13/README.md)
+### [利益冲突？比尔·盖茨向主要媒体提供了3.19亿美元（2/3）](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [利益冲突？比尔·盖茨向主要媒体提供了 3.19 亿美元（1/3）](/content/gnews/14/README.md)
+### [利益冲突？比尔·盖茨向主要媒体提供了 3.19 亿美元（1/3）](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拜登在峰会上没有向习近平施压，联邦政府是COVID掩盖的一部分](/content/gnews/15/README.md)
+### [拜登在峰会上没有向习近平施压，联邦政府是COVID掩盖的一部分](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [拜登的违宪命令在联邦法院继续败诉，田纳西州成为最新一个禁止 COVID-19 疫苗授权的州](/content/gnews/16/README.md)
+### [拜登的违宪命令在联邦法院继续败诉，田纳西州成为最新一个禁止 COVID-19 疫苗授权的州](/content/gnews/20/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [超22个州就医护人员的强制疫苗接种令将拜登政府告上法庭](/content/gnews/17/README.md)
+### [超22个州就医护人员的强制疫苗接种令将拜登政府告上法庭](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国劳工部职业安全与健康管理局暂停执行疫苗强制令](/content/gnews/18/README.md)
+### [美国劳工部职业安全与健康管理局暂停执行疫苗强制令](/content/gnews/22/README.md)
  ` 纽约香草山MOS02`
 
-### [面对新冠毒疫苗，请勇敢说不](/content/gnews/19/README.md)
+### [面对新冠毒疫苗，请勇敢说不](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [突破中共外交封锁 驻立陶宛台湾代表处正式启动](/content/gnews/20/README.md)
+### [突破中共外交封锁 驻立陶宛台湾代表处正式启动](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [曝光张高丽性侵丑闻后，彭帅一直杳无音信](/content/gnews/21/README.md)
+### [曝光张高丽性侵丑闻后，彭帅一直杳无音信](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021/11/18 大卫作战室直播精要](/content/gnews/22/README.md)
+### [2021/11/18 大卫作战室直播精要](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [甘肃“夺命山地越野赛”幸存者受到威胁被禁声](/content/gnews/23/README.md)
+### [甘肃“夺命山地越野赛”幸存者受到威胁被禁声](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“突然死亡”的全球搜索趋势飙升至历史新高](/content/gnews/24/README.md)
+### [“突然死亡”的全球搜索趋势飙升至历史新高](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [西媒头条 — 第112期](/content/gnews/25/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [FDA要求联邦法官55年后才完全公布其疫苗数据](/content/gnews/26/README.md)
- ` HimalayaRussia`
-
-### [拜登的疫苗强制的法律斗争预计将进入最高法院](/content/gnews/27/README.md)
- ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
-
-### [独家｜消息人士称美国要求中国释放石油储备作为经济合作讨论的一部分](/content/gnews/28/README.md)
+### [独家｜消息人士称美国要求中国释放石油储备作为经济合作讨论的一部分](/content/gnews/29/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [DC每日热点1118](/content/gnews/29/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [中国可以摧毁加密货币生态系统？](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`

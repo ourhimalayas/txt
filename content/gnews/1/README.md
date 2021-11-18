@@ -2,35 +2,27 @@
 ---
 
 
-## 前国际刑警组织主席孟宏伟妻子高歌批中共是“魔鬼”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1676069/)
+## 加拿大法院结束 COVID 紧急情况| 戴口罩、封锁和紧急使用疫苗接种 现在是非法的
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1676105/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/111807.jpg)前国际刑警组织主席孟宏伟的妻子高歌在法国里昂接受美联社采访后拍照。（2021年11月18日）
-**编辑摘要：**
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-58-1.png)图片来源：网络
+加拿大多个省法院审理的许多案件已经结出硕果，政府被迫宣布结束紧急状态，但媒体并未对此进行报道，政府本身仍在继续其议程，尽管他们现在 100% 这样做是犯罪。 如果没有进入紧急状态，口罩强制令、封锁或所谓的“疫苗”就没有法律依据，因为它只有紧急使用授权。
 
-据美国之音11月18日报道，在中共国公安部国际合作局副局长、一级督察胡彬郴竞逐国际刑警组织执委一职引发人权团体和国际政坛关切之际，曾经担任过国际刑警组织主席的公安部副部长孟宏伟的妻子高歌接受美联社独家专访，痛批她丈夫一度服务过的中共国政府是“魔鬼”。
+显然，并非这个国家的所有法院都受到了腐败
 
-孟宏伟2016年当选国际刑警组织主席，2018年返回中共国后突然失踪。他在法国的妻子高歌带着一对双胞胎儿子寻求政治庇护后成为政治难民，目前受到法国警方24小时的保护。高歌之前也曾隐匿真实面容举行过记者会或接受媒体采访。11月18日，高歌在法国首次公开接受采访，控诉中共国政府的迫害与暴行。
+为 Covid 危害人类罪的肇事者伸张正义
 
-高歌声称对孟宏伟目前的下落和健康状况毫不知情，甚至都不能确定孟宏伟是否还活着。2018年10月，中共政府声称孟宏伟因为并未细说的违法行为而被调查。2019年孟宏伟被开除党籍。2020年1月，天津市第一中级人民法院以受贿罪判处孟宏伟有期徒刑13年半。法院在判决书中声称，孟宏伟收受贿赂200万美元，并纵容他的妻子滥用职权谋取私利。孟宏伟对所犯罪行供认不讳，而且还表达了悔意。
+加拿大排名第一的宪法律师 Rocco Gallati 证实，加拿大高等法院已终止针对 Covid-19 的紧急法案，从而取消了所有省份的所有封锁和戴口罩规定。
 
-一位终生在中共国国内外抓捕罪犯的高层官员，最后以国际刑警组织主席的身份在任上被捕入狱。让人匪夷所思的是，国际刑警组织对孟宏伟的被捕毫不知情，曾向中共国政府打听孟宏伟的下落。中共玩弄法律和体制的游戏居然玩到了国际刑警组织，但是被中共深度蓝金黄的国际刑警组织全盘接受，并无异议，今年再度接受一位中共国执委候选人。了解中共本质的人对孟宏伟的结局都不会感觉意外，一个曾经在体制内助纣为虐，又被体制无情抛弃并被绞杀的人，冤枉不冤枉，想想那些被迫害致死的冤魂。就算曾经是中共的顶级杀手，孟宏伟、孟建柱、王立军的结局都预示了每一个中国人的命运。不推翻中共，人人都可能是下一个孟宏伟。
+贾斯汀·卡斯特罗领导的专制共产主义政府无视法治。
 
-新闻参考链接：[前国际刑警组织主席孟宏伟妻子高歌直面媒体 批中国政府是“魔鬼”](https://www.voachinese.com/a/AP-interviewed-ex-Interpol-wife-takes-on-China-government-20211118/6318304.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+来源链接：[https://rightsfreedoms.wordpress.com/2021/07/15/canadian-court-ends-covid-emergency-mask-mandates-lockdowns-emergency-use-jab-are-now-unlawful/](https://rightsfreedoms.wordpress.com/2021/07/15/canadian-court-ends-covid-emergency-mask-mandates-lockdowns-emergency-use-jab-are-now-unlawful/)
 
-***编辑**：胖丁*
+编辑/发布：LILY
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+20211118
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 
 
  
