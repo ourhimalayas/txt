@@ -2,35 +2,48 @@
 ---
 
 
-## 有声| 英国批准皮肤贴片新冠疫苗进行人体试验
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1673597/)
+## 维多利亚州的新冠限制措施将会在2021年11月18日晚结束
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1673761/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-总部位于英国牛津郡的“Emergex”公司开发了一种SARS-CoV-2疫苗，旨在为体内的T细胞进行优质化，以快速去除病毒感染的细胞。疫苗可能会提供广泛的长期的变种病毒免疫力，使人们不再需要接种加强针。
+**翻译：月映万川**
+**编辑：月映万川**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳洲.png)图片来源：澳洲新闻网
+随着维多利亚州的两剂疫苗接种率即将达到90%，本州大多数的防疫规定都将在本周四晚上取消。
 
-Emergex周一宣布，它已获得授权，进入第1阶段，第一名患者预计将在2022年1月初接受第一剂Emergex疫苗。 该公司表示，Emergex疫苗与其他皮肤贴片技术类似，旨在使用微针将疫苗输送到身体。该疫苗在室温下也将稳定三个月以上，从而简化了分发和储存。
+在餐饮服务业、音乐会和大型活动中，室内人数限制将不再适用于两剂疫苗接种者。
 
-自从全球各国政府推进接种SARS-CoV-2疫苗以来，各种自媒体对疫苗造成的各种死亡以及严重副作用的报道层出不穷，然而主流媒体只是一味宣传疫苗的好处。这款疫苗通过皮肤来作用于人体，其具体成分组成不得而知，但其主要成分如果仍然是刺突蛋白的话，对人体的长期影响可以预料仍然是具有伤害性的。而且同济大学发表在细胞杂志上的文章肯定了新冠疫苗对T细胞是有伤害的，英国报道也表明注射新冠疫苗后会导致T细胞的逐渐减少。
+室内歌舞场所在6个月后首次重开，这其中也包括了婚礼和夜店。家庭访客人数也不再设限制人数。
 
-而该疫苗声称可以使T细胞优质化，去除被病毒感染的细胞，这会不会加速T细胞的衰减不得而知。而且该疫苗作用途径以及更容易保存等特点使得疫苗更加容易推广，或许会让拒绝打疫苗的普通人群感到更为担忧。
+而维多利亚州针对完全疫苗接种人士的隔离要求也有巨大变化。
 
+今晚开始，两剂疫苗接种者如果被认定为病例密接者，将会被要求进行PCR 测试，并隔离直到拿到阴性结果为止。
 
+维多利亚州卫生部将不在自己的网站上公布病毒暴露点。而去过高风险地点的人士会在维多利亚服务部的应用程序中收到短信提醒。
 
-文字版原文：[英国批准皮肤贴片新冠疫苗进行人体试验](https://gnews.org/zh-hans/1671380/)
+婚礼和葬礼将不再对完全接种疫苗人士设人数限制。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+对于非必要零售商店，大型活动，和餐饮服务业，两剂疫苗接种要求保持不变，并且大型活动必须要获新冠安全计划批准。
 
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+零售行业的口罩强制令要至少维持到下个月。同时，口罩强制令也会在高风险地点保持，这些地点包括公共交通和医疗设施。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+小学教师仍然需要戴口罩工作。
+
+政府鼓励完全接种的维多利亚州办公室白领返回办公地点办公。
+
+截止到目前，维多利亚州已经有88%的12岁以上人口目前已经完全接种了疫苗，而93%的人口已经接种了至少一剂新冠疫苗。
+
+原文链接：[Covid updates: Restrictions end at midnight in Victoria](https://www.news.com.au/national/victoria/news/huge-changes-set-for-victorias-covid-rules-as-state-hits-90-per-cent-double-jabbed/news-story/1ee84473ff2cabd2149e8e12d9c3db6f)
+
+***发布：Candy***
+
+**更多资讯，请关注：**
+
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,48 +2,28 @@
 ---
 
 
-## 中共利用海外空壳公司盗取意大利军用无人机技术
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1674065/)
+## 美军应对高度重视中共的高超音速武器试验
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1674110/)
 
-撰稿：澳喜农场 在远方
+#### 撰稿：彩虹       
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-5.jpg)
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-406.png)图片来源：FCW新闻
+10月17日，《新闻极限》报道美军二号人物，参谋长联席会议副主席约翰·海滕（John Hyten）将军在接受CBS（哥伦比亚广播公司）新闻采访时说，中共国今年夏天发射的高超音速导弹以超过五倍音速绕行世界。
 
+海滕说：“此高超音速导弹绕行世界，放下一个高超音速滑翔器，一路滑翔回到中国，达成了中国目标。”
 
+CBS指出，洲际导弹以可预测的弧线飞行，可以被远程雷达追踪到。但高超音速武器更加机动，更为接近地面，让雷达更加难以发现。中共国正在建造数百个新的导弹发射井，海滕将军认为中共国可能已经有能力对美国发动突然的核攻击。
 
-![广东珠海中国国际航空航天博览会上展出的GJ-11隐形无人战斗机。（2021年9月29日](https://gdb.voanews.com/21262B61-F371-4BF6-A4F8-46F3ED84CD64_cx0_cy9_cw0_w1023_r1_s.jpg)（图片来自voa）
+另据《路透社》报道，核军备专家说，中共国的武器试验似乎是为了躲避美国的防御系统。美国认为中共国的试验涉及到一种首先环绕地球运行的武器，这就是一些军事专家称为的“部分轨道轰炸系统”。
 
-据华尔街日报11月15日报道，意大利警方经过几个月的调查发现，中共国的两家国有企业利用一家海外空壳公司，在意大利和欧洲政府不知情的情况下，控制了意大利的一家军用无人机生产商阿尔卑飞机公司，并将其知识及技术转移至中共国的一个新生产基地。 该公司生产的迷你无人机，可装在背包中，由一名操作人员快速部署，可在夜间执行侦察任务，曾被驻阿富汗的意大利空军使用。
+文章说，有人将中共国在7月27日的高超音速导弹试验与前苏联在1957年军备竞赛期间发射的斯普特尼克卫星相提并论。对此，海滕将军认为：“美国当时对斯普特尼克卫星给与了重视，但中共国7月27日的试验并没有引起美国的警惕，我认为美国应该引起重视”。
 
-分析人士称，中共国国企在海外一贯的行事模式，通常是以民营空壳公司为掩护，获取掌握特殊技术企业的控制权，然后再将该公司的技术与智慧财产转移至中共国。 意大利警方表示，中共的做法是对技术的掠夺性投资，这在意大利是被禁止的。
+海滕告诉CBS新闻，过去五年中，中共国进行了数百次高超音速试验，但美国只进行了九次，中共国已经部署了一种中程高超音速武器，而美国的第一次试验与之相比落后了几年。
 
+**新闻来源**
 
-
-参考链接：
-
-[https://www.voachinese.com/a/China-covertly-purchases-Italian-avionics-firm-ALPI-Aviation-20211116/6315363.html](https://www.voachinese.com/a/China-covertly-purchases-Italian-avionics-firm-ALPI-Aviation-20211116/6315363.html)
-
-编辑：AN
-
-校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
-
-
+[Gen. John Hyten: China Hypersonic Weapons Test Should Create ‘Sense of Urgency’](https://www.newsmax.com/newsfront/china-missile-hypersonic-hyten/2021/11/17/id/1045060/)
 
  
 
