@@ -2,34 +2,88 @@
 ---
 
 
-## FDA让联邦法官批准其在2076年之前完全发布辉瑞新冠疫苗数据
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1674286/)
+## 中共国经济一塌糊涂，并将引起经济崩溃
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1674322/)
 
-美国联邦政府保护辉瑞使其免于承担责任，并花费数十亿美元迫使美国人接受辉瑞的产品，却不对公众开放证明其安全性和有效性的数据。政府到底在为谁工作？
+[https://gtv.org/video/id=6195fd621827025081066a4d](https://gtv.org/video/id=6195fd621827025081066a4d)
 
-据《Injecting Freedom》记者 Aaron Siri 2021 年 11 月17日报道 ：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-128.png)
-FDA 已要求一名联邦法官批准需要等到 2076 年才披露所有的新冠疫苗数据和信息，以许可辉瑞 (Pfizer) 的 COVID-19 疫苗。这不是打字错误，FDA需要 55 年的时间向公众提供这些信息。
+**郭文贵
+Miles Guo**
 
-正如之前的一篇文章中所解释的那样，FDA 一再承诺对 Covid-19 疫苗“完全透明”，包括在许可辉瑞 (Pfizer) 的 COVID-19 疫苗时重申的“ FDA 对透明度的承诺”。
+恒大完了就融创、合生创展、富力，然后就是王健林
+After Evergrande failed, then will be Sunac, Hopson Development, R&F, then will be Wang Jianlin（Wanda）
 
-考虑到这一承诺，在 8 月份该疫苗获得批准后，来自该国最负盛名的大学的 30 多名学者、教授和科学家要求辉瑞向 FDA 提交数据和信息，以获得辉瑞 COVID-19 疫苗的使用许可。
+中国现在你知道中国是47家大银行，近40家银行的股票跌破了净资产
+Now you know that China’s nearly 40 of the 47 major banks’ stocks have fallen below their net assets
 
-FDA对于上述要求却没有任何回应。因此在 9 月份，我的公司代表该科学家和学者团体向 FDA提起诉讼，要求FDA提供这些信息。迄今为止，在辉瑞的疫苗获得许可近三个月后，FDA 仍未发布任何一页报告或者申明，什么都没有。
+中国将近70家国家级金融机构，现在几乎是100%全赔钱
+Nearly 70 national financial institutions in China now almost 100% losing money
 
-相反，在两天前，FDA却要求联邦法官许可其可以在 2076 年之前提供完整的信息。FDA 要求法官允许它来制作辉瑞提供给的 329,000 多页文件，FDA说它们每个月可以完成 500 页的报告，按这个速度速度，意味着完整的报告不会早于 2076 年完成。 FDA 对透明度的承诺说得客气一点，就是一堆幻想。
+保险公司兑付率，兑现率不超过10%，百分之八十几违约
+The redemption rate of insurance companies does not exceed 10%, default rate of more than 80%
 
-从辉瑞开始制作许可记录（2021 年 5 月 7 日）到 FDA 批准辉瑞疫苗（2021 年 8 月 23 日），FDA 用了整整 108 天。按照 FDA 的说法，它对这些文件进行了密集、有力、彻底和完整的审查和分析，以确保辉瑞疫苗在获得许可时是安全有效的。虽然它可以在 108 天内对辉瑞的文件进行如此密集的审查，但现在它需要超过 20,000 天的时间才能向公众提供这些文件。
+这不是要破产的问题了，这不是一个所谓的共享财富的问题
+This is not only a question of going bankrupt, it is not a so-called shared wealth question
 
-所以，让我们说清楚。事情的本质是：联邦政府正在保护辉瑞免于承担责任，花费数十亿美元迫使美国人使用它的产品，却不会让你看到支持其产品安全性和有效性的数据。政府在为谁工作？
+是没有人能撑下去的，今天美国的房地产，你看没到2004年到2008年的时候
+No one can hold on, today American’s real estate situation hasn’t be there yet, like from 2004 to 2008
 
-再一次的教训是，公民和个人权利永远不应受控于医疗程序。每个想要接种疫苗和加强剂的人都可以自由地选择去这样做。但是，任何人都不应该被政府强迫参与任何医疗程序。需要确认的前提条件是，政府不能掩盖或隐藏全部信息直到2076年！（译者：我们需要尽快地向公众公开所有支持疫苗许可的信息和数据！）
+美国这个房产的疯狂简直是不可思议的
+The madness of this American’s real estate is simply unbelievable
 
-文章来源：[https://aaronsiri.substack.com/p/fda-asks-federal-judge-to-grant-it](https://aaronsiri.substack.com/p/fda-asks-federal-judge-to-grant-it)
+美国全世界欧洲没有人工作，跟你家装修、装水管
+No one works in the United States, the world, or Europe, remodel or maintenance
 
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – 小象的奶瓶
-编辑：洛杉矶盘古农场 – 小象的奶瓶
+它维护这个，这个它需要人力的，没人干活
+It needs manpower to maintain the real estate, and no one does it
+
+那么现在中美之间发生什么问题，供应链彻底崩塌
+So what is the problem between China and the United States, that is the supply chain has completely broke
+
+美国在这种情况下就希望中共你一定要给我供应链
+In this case, the U.S. hopes that the CCP must maintain the supply chain
+
+就是奴隶，而且美国已经对中国开启签证
+It’s a slave(Chinese people), and the U.S. has opened visa application to China
+
+第二，我现在要让你开始保证我的基本的民意，老百姓的生活
+Second, (the Biden administration) now hopes that Xi can guarantee basic living goods to the American people
+
+便宜点的内裤，便宜的旅游鞋还得给我
+i.e. the cheap underwear, low-cost travel shoes need to resume in market
+
+第三，你千万房地产你别一下倒，要慢慢倒
+Third, (the Biden administration) demands that the real estate business must avoid quickly collapsing, slowly collapsing (is acceptable)
+
+第四，最重要的咱俩要合作，咱得忽悠老百姓
+Forth, the most important thing is that we have to cooperate, we need to fool the Laobaixing
+
+明天无限美好，继续画大饼
+Tomorrow is infinitely beautiful, continue to make a empty promise
+
+一切的一切都为了今年的中期选举，就是民主党绝对不能输
+Everything is for next year’s midterm elections, it means that the Democratic Party must not lose
+
+弗吉尼亚几乎废掉了拜登总统的一半以上的能力
+Virginia (election lost) almost abolished more than half of President Biden’s capabilities
+
+你在这个中期选举完几乎就完了
+(The Biden administration) most likely would be over after this mid-term election
+
+* * *
+
+Date:11/15/2021
+原视频标题: 中共国经济一塌糊涂，并将引起经济崩溃
+Communist China’s economy is in a mess and will cause economic collapse
+原视频日期：2021/11/12
+原视频链接 [https://twitter.com/se1y7cblljselva/status/1459528903681507328?s=24](https://twitter.com/se1y7cblljselva/status/1459528903681507328?s=24)
+任务编号：2874
+视频时间段 : 0:00-2:00
+英听校： 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
 发布：洛杉矶盘古农场 – 恩典
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

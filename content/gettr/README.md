@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/18/2021 1:46 PM (UTC)`
+
+11月18号：尊敬的战友们好，……你们健身了吗？传播C C P病毒……疫苗解药的真相了吗？新中国联邦正以．前所未有的速度．和巨大的力量，在推动停止人类正在面对的疫苗灾难！
+![img](https://media.gettr.com/group3/getter/2021/11/18/13/46/06514e76-b9a9-baa3-029f-cd138778f2fc/out.jpg)
+
+---
+
 `@miles 11/18/2021 1:29 PM (UTC)`
 
 The CCP’s Infiltration in Western World : The CCP Agent Bruno Wu<br/><br/>中共渗透西方世界：中共间谍吴征
@@ -293,13 +300,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 11/14/2021 Miles Guo: A Chinese bioweapons scientist currently living in Europe explains why the COVID vaccine disaster is beginning next May; the scientist predicts that half of the world's vaccinated people may die; according to the scientists' intelligence, the CCP will release a new virus and the upcoming outbreak will spread from the West Coast to the East Coast in the U.S.<br/><br/>11/14/2021 文贵直播：现居欧洲的中国生化武器科学家解读疫苗灾难为何会在明年五月开始；科学家预测全球接种疫苗者或将有一半死亡；科学家的情报表明，中共将释放新病毒并让疫情从美西蔓延到美东<br/>
 ![img](https://media.gettr.com/group37/getter/2021/11/15/02/08/1c2554ed-a1b5-7f3b-17d8-340a15e323d2/out.jpg)
-
----
-
-`@miles 11/15/2021 2:04 AM (UTC)`
-
-11/14/2021 Miles Guo: Evergrande will definitely declare bankruptcy, which will lead to the financial and economic avalanche in the Communist China and in the rest of the world. The terrible mainstream media in the West not only avoids reporting on the problems caused by the COVID vaccines, but also covers the Evergrande crisis in a uniform manner by dodging the key issues while focusing on the minor stuff. Because all the mainstream media outlets are backed by the same group of evil people<br/><br/>11/14/2021 文贵直播：恒大一定破产，随后将对中共国和世界金融、经济造成雪崩效应，可恶的是西方主流媒体非但不提疫苗问题，对恒大爆雷也是统一口径、避重就轻，因为背后都是同一拨邪恶的人<br/>
-![img](https://media.gettr.com/group9/getter/2021/11/15/02/04/a2ac0663-a3cb-b129-739c-1ab5e06ab165/out.jpg)
 
 ---
 

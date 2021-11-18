@@ -2,93 +2,53 @@
 ---
 
 
-## 中共国经济一塌糊涂，并将引起经济崩溃
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1674322/)
+## 医院故意给病人过量服用药物，确保死亡率上升
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1674363/)
 
-[https://gtv.org/video/id=6195fd621827025081066a4d](https://gtv.org/video/id=6195fd621827025081066a4d)
+**简评：**
 
-**郭文贵
-Miles Guo**
+医院故意给病人过量服用羟氯喹把病人毒死，确保死亡率上升。硫酸羟氯喹和伊维菌素治疗红班狼疮很多年了，只要按剂量服用，不会毒死人。疫情期间有一些医生按照McCullough、Zelenko和Math+三位医生的方法给病人服用这两种药，无一例死亡。但是如果你在医院要求得到同样的治疗，他们一定会把你扔出医院。为了钱，这些人草菅人命，公开向美国人民宣战。
 
-恒大完了就融创、合生创展、富力，然后就是王健林
-After Evergrande failed, then will be Sunac, Hopson Development, R&F, then will be Wang Jianlin（Wanda）
+[GTV视频链接](https://gtv.org/video/id=6195e3a218270250810663a7)
 
-中国现在你知道中国是47家大银行，近40家银行的股票跌破了净资产
-Now you know that China’s nearly 40 of the 47 major banks’ stocks have fallen below their net assets
 
-中国将近70家国家级金融机构，现在几乎是100%全赔钱
-Nearly 70 national financial institutions in China now almost 100% losing money
 
-保险公司兑付率，兑现率不超过10%，百分之八十几违约
-The redemption rate of insurance companies does not exceed 10%, default rate of more than 80%
+**视频字幕：**
 
-这不是要破产的问题了，这不是一个所谓的共享财富的问题
-This is not only a question of going bankrupt, it is not a so-called shared wealth question
+下一页， 硫酸羟氯喹。还记得川普宣传的那个“能杀死人”的药吗？还记得他们在那项研究中给病人过量用药吗？他们给病人服用了高于致死剂量好几倍的羟氯喹。他们把人毒死，就为了在某个被收买的科学杂志上发表这篇垃圾文章。我猜是为了击败川普，并确保（新冠死亡人数）继续增长。
 
-是没有人能撑下去的，今天美国的房地产，你看没到2004年到2008年的时候
-No one can hold on, today American’s real estate situation hasn’t be there yet, like from 2004 to 2008
+为什么多年来我们各地医生都一直在开这个药？你们哪位得过红斑狼疮？如果有的話，我想其中一些人是被这个药治愈的。你死了吗？
 
-美国这个房产的疯狂简直是不可思议的
-The madness of this American’s real estate is simply unbelievable
+硫酸羟氯奎、伊维菌素，不同的医生开不同的药。我跟很多医生交谈过，他们都比我聪明，我没能力跟他们争论哪个药更好。
 
-美国全世界欧洲没有人工作，跟你家装修、装水管
-No one works in the United States, the world, or Europe, remodel or maintenance
+我不在乎。我只知道这两个药都比瑞德西韦好，而且我知道吃这两种药的病人不会死。你们知道吗？上帝保佑你，先生，我会为你的家人祷告。我希望这里的每一位都这么做。
 
-它维护这个，这个它需要人力的，没人干活
-It needs manpower to maintain the real estate, and no one does it
+刚才有人说，他们杀死了他的父亲。我猜也许在座的很多人，他们都杀死过你们的家人。因为你如果最近去过医院……要不然，我们这样吧，如果你们有家人或者朋友在医院里被杀死，医院没有给他们治疗，你们可以站起来吗？
 
-那么现在中美之间发生什么问题，供应链彻底崩塌
-So what is the problem between China and the United States, that is the supply chain has completely broke
+这样可以吗？女士们先生们，这样可以吗？我会见了一个又一个医生，你们可以坐下了。
 
-美国在这种情况下就希望中共你一定要给我供应链
-In this case, the U.S. hopes that the CCP must maintain the supply chain
+这些医生告诉我，他们使用了McCullough医生的方法，使用Zelenko医生的方法，或者使用Math+方法治疗几千人，一个病人都没死，其中有人在这里做过演讲。
 
-就是奴隶，而且美国已经对中国开启签证
-It’s a slave(Chinese people), and the U.S. has opened visa application to China
+你们中间有用McCullough医生的方法治疗的吗？我敢打赌（没有）。 因为我收到一个又一个邮件，接到一个又一个电话，他们求我帮助，因为医院要害死他们的亲人。我敢说，如果你们要求医院用McCullough医生的方法，他们会把你扔出医院，再不让你看到你的亲人。
 
-第二，我现在要让你开始保证我的基本的民意，老百姓的生活
-Second, (the Biden administration) now hopes that Xi can guarantee basic living goods to the American people
+我怎么会知道这些呢？因为他们在这个国家处处这么做。告诉我他们之间没有配合？告诉我他们之间没有配合？这些家伙为了金钱和权力向美国人民宣战了，这些人渣、垃圾，坏透了。
 
-便宜点的内裤，便宜的旅游鞋还得给我
-i.e. the cheap underwear, low-cost travel shoes need to resume in market
+*字幕/听写：云岭 | 翻译：Roberts |校对：nights | 简评/文字整理/编辑：胖丁*
 
-第三，你千万房地产你别一下倒，要慢慢倒
-Third, (the Biden administration) demands that the real estate business must avoid quickly collapsing, slowly collapsing (is acceptable)
 
-第四，最重要的咱俩要合作，咱得忽悠老百姓
-Forth, the most important thing is that we have to cooperate, we need to fool the Laobaixing
-
-明天无限美好，继续画大饼
-Tomorrow is infinitely beautiful, continue to make a empty promise
-
-一切的一切都为了今年的中期选举，就是民主党绝对不能输
-Everything is for next year’s midterm elections, it means that the Democratic Party must not lose
-
-弗吉尼亚几乎废掉了拜登总统的一半以上的能力
-Virginia (election lost) almost abolished more than half of President Biden’s capabilities
-
-你在这个中期选举完几乎就完了
-(The Biden administration) most likely would be over after this mid-term election
 
 * * *
 
-Date:11/15/2021
-原视频标题: 中共国经济一塌糊涂，并将引起经济崩溃
-Communist China’s economy is in a mess and will cause economic collapse
-原视频日期：2021/11/12
-原视频链接 [https://twitter.com/se1y7cblljselva/status/1459528903681507328?s=24](https://twitter.com/se1y7cblljselva/status/1459528903681507328?s=24)
-任务编号：2874
-视频时间段 : 0:00-2:00
-英听校： 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

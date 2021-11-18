@@ -2,49 +2,18 @@
 ---
 
 
-## 希腊全国餐饮业集体罢工抗议防疫新政策
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1674457/)
+## 土耳其领导人埃尔多安注射新冠疫苗九个月后 “病重”
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1674492/)
 
-作者：英国喜庄园 – I770775
+#### 翻译整理：意大利罗马达芬奇农场               小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Schermata-2021-11-18-alle-13.41.12.png)图片来源 : 安莎社
+土耳其总统塔伊普•埃尔多安早在2021年1月为了打消公众对新冠疫苗的疑虑，证明其有效性，在公开场合及摄像机前接种了疫苗。据统计，土耳其对其医护人员施打了中共科兴疫苗， 他的全国疫苗接种计划杀死了两万三千多人。注射疫苗九个多月后，埃尔多安明显且“严重”地患病了。据说他患上了血液微凝块而引起的右侧心力衰竭。从一些被泄露出的照片上可以看到他倚靠在两位助手身上来行走。事实上，埃尔多安没有参加格拉斯哥的气候峰会，特别是他也没有参加马克龙在巴黎组织的有关利比亚的会议，而此会议对他来说只有直接兴趣的。他的患病解释了他为什么缺席。
 
+如果这一消息被证实或持续发酵，肯定会影响中东的局势。据来自土耳其的秘密消息说，埃尔多安患有右心衰竭，是由众多的微血凝块堵塞肺部内部和周围的毛细血管。据分析是在他注射了新冠病毒之后，由于细胞中产生的刺突蛋白导致血液微凝。埃尔多安不幸的例子是疫苗造成的中期伤害，我们每天都有主流媒体继续忽视新冠疫苗的副作用，现在这一副作用使国际人士、年轻人、运动员和身体健康者也深受影响。
 
+原文链接： https://www.maurizioblondet.it/erdogan-gravemente-malato-9-mesi-dopo-la-puntura-vax/
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-当地时间11月16日，希腊全国各地的餐馆、酒吧和咖啡馆举行了24小时罢工，抗议政府最近出台的中共病毒防疫措施。
-
-根据新的防疫规定，任何餐厅或咖啡馆，如果被发现在无适当证明材料下为顾客提供服务，都有可能被罚款5000欧元并暂时关闭。
-
-餐饮行业协会代表称，自从防疫新政策实施一周后，一些餐馆的营业额下降至原来的50%，数以千计的餐馆正面临破产，员工正被集体解雇。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-7.jpg)
-参考链接：
-1. [澳喜快讯11/17/2021](https://gettr.com/post/ph5dk3d8f1)
-2. [增6950！希腊全国餐饮业明天罢工，11.17纪念日6千警察上街严防](https://china.greekreporter.com/2021/11/16/%E5%B8%8C%E8%85%8A%E5%85%A8%E5%9B%BD%E9%A4%90%E9%A5%AE%E4%B8%9A%E6%98%8E%E5%A4%A9%E7%BD%A2%E5%B7%A5/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+编辑、发布:  Xiao   baige
 
  
 

@@ -2,51 +2,39 @@
 ---
 
 
-## 日本23岁女性接种疫苗后出现多种不适致放弃工作
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1674504/)
+## 了解情报才了解共产党有时候硬得如钢有时候又软得如屎
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1674542/)
 
-作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/11/mhB_副本.jpg)
+据[2021年11月17日 文贵大直播：再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向](https://gtv.org/video/id=6194fda8e7e7703792363972)时间点1：42：40——
 
+**郭文贵先生：**体制内战友有体制内的所谓的体制内的看法，我现在郭文贵在这块儿很不要脸的一个人可以告诉大家，从很多国内体制内人的理解，包括所谓的海外的一些独立的华人媒体的理解，这就是共产党能在这活70年的原因，就是大家对共产党的认知极为浅薄，不是答案不是坏就是好，然后再一个就不是强就是弱，——它不是这样子的。
 
+你了解共产党以后的，你只有了解了情报你才了解了共产党这个东西是什么怪物。这个家伙真是有时候它硬得如钢、软得如屎——又臭又粘，你只有了解了共产党这个特性，你才知道它啥时候真的钢，他对待中国人民的时候他钢着呢！他对着自己的谎言钢着呢！对自己所有玩弄女性的时候——宇宙无限大，地球是一粒沙！哇塞，它不要脸着呢！对待美帝国主义、对待俄罗斯，它软得跟狗屎一样——人家说啥它给人家干啥！它就成了宇宙的那一粒沙，人家成宇宙了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+（以下暂略）
 
+撰稿：喜马拉雅的肉夹馍；
 
+审核：喜马拉雅的馍夹肉；
 
-据日媒11月17日报道，一位日本仙台市23岁女性，在9月接种辉瑞疫苗后的两个月的时间里，持续出现倦怠感、头痛、发低烧等症状。该女士从小练习空手道，因此身体状态一直很好，直到今年接种疫苗之后。
+校对：Maarago
 
-这位女士每次出现症状之后都会去各大医院做检查，但得到的体检报告都是没有异常，而她在网上也很难找到跟疫苗副作用相关的信息，咨询当地厚生劳动部门时，得到的答复也不是去哪里能得到救治，而是日本政府有“预防接种后健康被害救济金制度”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-11.jpg)
-这位本来为参加工作而接种疫苗的女士，现在已经不得不暂时放弃工作回到老家休养。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-另据仙台市内科医院堀田修医生介绍，他接收过3例接种莫德纳疫苗后健康恶化的患者，因此认为不能否定疫苗接种后副作用的存在。他还呼吁不应过度展现疫苗的安全性和优点，而必须先承认接种后的副作用以及接种风险，让全社会冷静地思考究竟该如何对待这类疫苗的接种。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-参考链接：
-[「ワクチン後遺症」知って　２３歳女性、長引く体調不良訴える](https://news.yahoo.co.jp/articles/7f44e9021b11363031bc5814420c80c6675b3b07)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-总编：文特
-编辑：文特，飞虹
-校对/发稿：为真不破20
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-**更多资讯，更多关注**
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

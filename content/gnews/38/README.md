@@ -2,31 +2,41 @@
 ---
 
 
-## 拜登指定的基础设施经理与中共统战部有关系
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1674203/)
+## 澳大利亚总理呼吁各州放宽强制疫苗政策
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1674272/)
 
-#### 撰稿：彩虹
+**翻译/整理：月映万川
+编辑：朝花夕拾**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-36.jpg)
+图片来源：[Scott Morrison demands rouge states drop vaccine mandates](https://www.msn.com/en-au/news/australia/scott-morrison-demands-rouge-states-drop-vaccine-mandates/ar-AAQPWTy?li=AAaeSy5)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-12.jpg)图片来源：华尔街日报
-近日，美国总统拜登指定新奥尔良市前市长米奇·兰德里厄（Mitch Landrieu）为基础设施经理，11月18日，《新闻极限》报道来自威斯康星州的众议员迈克·加拉格尔（Mike Gallagher）称，兰德里厄与中共统战部有关系，应该“没有资格”担任这份工作。
+当新南威士州做出在12月15日废除疫苗护照的决定时，昆士兰州将会在12月17日引入疫苗护照针对酒店服务场所。于此同时，维多利亚州誓言要把疫苗护照一直保持到明年。
 
-据《华盛顿自由灯塔》报道，兰德里厄已被指定为最近签署的1.2万亿美元基础设施支出法案的高级顾问和基础设施协调员，他将掌握对资金分配的影响力，包括从外国公司购买材料的豁免权。
+因受到来自自由党内部的议员压力，莫里森在周四称，他仅仅支持对医疗工作者执行强制疫苗政策。
 
-根据《国家脉动》的调查文章，USHCA（美国腹地中国协会）是由密苏里州前民主党州长鲍勃·霍尔登（Bob Holden）创建的，自称是一个“两党组织，致力于在美国腹地地区（包括美国五大湖到海湾之间的20个州）和中国之间建立更强大的联系”。
+在回应昆士兰州州长时，总理称＂未接种者应该被允许在布里斯班街头喝一杯咖啡。＂
 
-根据美国政府的说法，该组织是中共“统战部”的一个组成部分，它试图“收编和消除潜在反对中共政权的政策和权威”，并“影响外国政府采取支持北京所指定的政策的行动或立场”。
+同时在周四的访问中，总理也表示，＂现在是时候让政府回归到自己原来的位置，而让澳大利亚人找回自己曾经的生活。＂
 
-在一份声明中，加拉格尔说：“米奇·兰德里厄曾担任USHCA的顾问，该组织由中共统战部资助，以促进中共对美国基础设施项目的投资。这应该使他没有资格去监督拜登总统的大规模基础设施实施计划的资格。总统必须立即重新考虑新的人选，让没有为中共国资助的实体服务过的人做这项工作”。
+昆士兰副州长斯蒂文迈尔斯在回击总理的言论时称，总理因其自身＂狡猾的政治利益＂而损害了昆士兰州政府对大流行的应对计划。
 
-另据《华盛顿自由灯塔》报道，与被拜登提名的进出口银行负责人雷塔·乔·刘易斯（Reta Jo Lewis）一样，兰德里厄担任USHCA的战略顾问。
+总理的这番言论是在两名自由党议员和一国党党魁保琳汉森宣布不再支持政府任何法案后做出的。而让三位议员重新支持政府法案的前提就是，莫里森要在各州制止疫苗强制令上有所行动。
 
-**新闻来源：**
+如果这三位参议员的要求不能得到满足，那么，任何在下周表决的政府法案将不会获得通过。
 
-1. [Rep. Gallagher: Biden’s Infrastructure Czar Has Dubious China Ties](https://www.newsmax.com/newsfront/mike-gallagher-mitch-landrieu-ccp-spending/2021/11/17/id/1045107/)
+于此同时，未接种疫苗的一国党汉森参议员已经提交了一份有关停止疫苗强制令的法案。此法案要求联邦政府可以越过各州法规而叫停疫苗强制令。
 
+在上一周，莫里森总理公开抨击了疫苗强制令，并称未接种者在做出自己的选择后，不应该被妖魔化。
 
-[REVEALED: Biden Cabinet Secretaries, Local Mayors Collude With Chinese Communist Party on Agriculture Policy.](https://thenationalpulse.com/exclusive/cusef-sponsoring-events-travel-for-ag-officials/)
+原文链接：[PM Scott Morrison demands states drop Covid jab mandates and says unvaccinated Aussies MUST be allowed into pubs and restaurants](https://www.dailymail.co.uk/news/article-10214777/amp/Scott-Morrison-demands-states-like-Queensland-drop-Covid-19-vaccine-mandates.html)
+
+发布：Janek
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
