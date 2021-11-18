@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/18/2021 11:39 AM (UTC)`
+
+11/17/2021 Miles Guo: The “Ten Adherences” of the Sixth Plenary Session show that the CCP is running out of talent, the CCP is decoupling with the world, and Xi is going to be the “emperor”; everything happened in the Sixth Plenary Session is in line with my prediction, with Xi being praised as “the Sun” and a series of ridiculous propaganda popping up; there will be massive deaths before the end of the CCP<br/><br/>11/17/2021 文贵直播：六中全会的“十大坚持”说明中共已经无人可用、中共正在跟世界脱钩且习要当皇帝；六中全会尽在文贵掌握之中，习真当上了“我的太阳”，一系列宣传闹剧即将上演；中共灭亡前将有大量人死亡<br/>
+![img](https://media.gettr.com/group24/getter/2021/11/18/11/39/ae8d93e7-2cc1-d1dd-4994-4cbcd14bd4a7/out.jpg)
+
+---
+
 `@miles 11/18/2021 10:24 AM (UTC)`
 
 11/17/2021 Miles Guo: Three reasons why the hooligan politicians in the West are boycotting the 2022 Winter Olympics: 1) to use politically correct reasons to shift their responsibility for athletes‘ contracting the virus or suffering from the side effects of mandatory COVID jabs; 2) to put on an anti-CCP political show to get the CCP to bribe them using the BGY scheme; 3) take advantage of the corrupt Olympics for personal gain; no matter how much they oppose the Winter Olympics, they will still end up going<br/><br/>11/17/2021 文贵直播：西方流氓政客抵制2022冬奥会的三个原因：1）以政治正确为由推卸其应为运动员染病或疫苗副作用而负的责任；2）进行反共政治表演让中共对其蓝金黄；3）利用奥运会的腐败谋求个人利益；不论怎么反对冬奥会，他们最终还是会去的
@@ -293,13 +300,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 11/13/2021 Miles Guo’s GETTR: The female Bloomberg journalist who reported on the Himalaya Coin avoided covering the key issues, and she is very likely controlled by Bruno Wu; instead of smearing the Himalaya Coin, the CCP ended up helping us advertise it; the CCP has started to rip off the entrepreneurs in the Communist China; Mr. Bannon is becoming a real hero in the darkness and in the test of life and death<br/><br/>11/13/2021 文贵盖特: 报道喜币的彭博社女记者对关键问题避而不谈，她十有八九被吴征控制；中共非但没能抹黑喜币，反而帮咱打了广告；中共在国内已开始宰割企业家；班农先生将在黑暗和生死的考验中成为真正的英雄<br/>
 ![img](https://media.gettr.com/group19/getter/2021/11/14/01/42/c6b22351-93b9-dbeb-937c-c8f9712406b2/out.jpg)
-
----
-
-`@miles 11/13/2021 5:39 PM (UTC)`
-
- 11月13号：你们能认出照片中的每一个人吗？每一个人都是有故事的…… <br/><br/>
-![img](https://media.gettr.com/group30/getter/2021/11/13/17/39/c6b9b67f-05c6-1d79-a501-e6694b1cfa0a/750b40ef1d21ca547a34159385cc0583.jpg)
 
 ---
 

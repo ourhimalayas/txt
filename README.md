@@ -15,122 +15,122 @@
 
 ---
 
-### [中共国经济一塌糊涂，并将引起经济崩溃](/content/gnews/1/README.md)
+### [班农先生：他们惹错人了！](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [首相约翰逊：英国人需要打3针才算“完全接种疫苗”](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/2/README.md)
+### [中共国经济一塌糊涂，并将引起经济崩溃](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/4/README.md)
  ` wenwu`
 
-### [共产主义本质](/content/gnews/3/README.md)
+### [共产主义本质](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共陷入能源危机，加速开采页岩气致地震频发](/content/gnews/4/README.md)
+### [中共陷入能源危机，加速开采页岩气致地震频发](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年11月18日 澳喜要闻摘要](/content/gnews/5/README.md)
+### [2021年11月18日 澳喜要闻摘要](/content/gnews/7/README.md)
  ` 澳喜特战旅Gnews`
 
-### [FDA让联邦法官批准其在2076年之前完全发布辉瑞新冠疫苗数据](/content/gnews/6/README.md)
+### [FDA让联邦法官批准其在2076年之前完全发布辉瑞新冠疫苗数据](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共新衙门国家反垄断局正式挂牌](/content/gnews/7/README.md)
+### [中共新衙门国家反垄断局正式挂牌](/content/gnews/9/README.md)
  ` 儒为`
 
-### [越来越多的名人因COVID 疫苗而住院或死亡](/content/gnews/8/README.md)
+### [越来越多的名人因COVID 疫苗而住院或死亡](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳大利亚总理呼吁各州放宽强制疫苗政策](/content/gnews/9/README.md)
+### [澳大利亚总理呼吁各州放宽强制疫苗政策](/content/gnews/11/README.md)
  ` 走进澳洲`
 
-### [房价，日本蒸蒸日上，中共国节节败退](/content/gnews/10/README.md)
+### [房价，日本蒸蒸日上，中共国节节败退](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [找到生命真相（一）：我们为什么要来到这个世界，我们要去向何方？](/content/gnews/11/README.md)
+### [找到生命真相（一）：我们为什么要来到这个世界，我们要去向何方？](/content/gnews/13/README.md)
  ` 纽约香草山MOS03`
 
-### [科学家们想用隐形墨水给孩子们盖上接种“纹身”](/content/gnews/12/README.md)
+### [科学家们想用隐形墨水给孩子们盖上接种“纹身”](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [英国F-35战机在地中海上空坠毁](/content/gnews/13/README.md)
+### [英国F-35战机在地中海上空坠毁](/content/gnews/15/README.md)
  ` Shuizhuyu`
 
-### [YouTube删除了参议员约翰逊质疑COVID 疫苗安全性的视频](/content/gnews/14/README.md)
+### [YouTube删除了参议员约翰逊质疑COVID 疫苗安全性的视频](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [六中全会后，习成为全党公敌对新中国联邦是天大的利好](/content/gnews/15/README.md)
+### [六中全会后，习成为全党公敌对新中国联邦是天大的利好](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [摇摇摆摆不可恕](/content/gnews/16/README.md)
+### [摇摇摆摆不可恕](/content/gnews/18/README.md)
  ` 骄子`
 
-### [NBA球星埃内斯·坎特再批中共：停止强摘器官](/content/gnews/17/README.md)
+### [NBA球星埃内斯·坎特再批中共：停止强摘器官](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拜登指定的基础设施经理与中共统战部有关系](/content/gnews/18/README.md)
+### [拜登指定的基础设施经理与中共统战部有关系](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [昔日民族品牌方正集团欠债3000亿宣布破产！](/content/gnews/19/README.md)
+### [昔日民族品牌方正集团欠债3000亿宣布破产！](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [为什么伊维菌素优于辉瑞的抗病毒药](/content/gnews/20/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [田纳西州州长签署COVID法案，禁止强制接种疫苗与出示疫苗护照](/content/gnews/21/README.md)
+### [田纳西州州长签署COVID法案，禁止强制接种疫苗与出示疫苗护照](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021/11/17墙内世界](/content/gnews/22/README.md)
+### [2021/11/17墙内世界](/content/gnews/23/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [家电巨头海尔的董事长张瑞敏是正常退休吗？](/content/gnews/23/README.md)
+### [家电巨头海尔的董事长张瑞敏是正常退休吗？](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [奥地利启动了对 &#8220;未接种疫苗 者&#8221;的封锁和罚款措施](/content/gnews/24/README.md)
+### [奥地利启动了对 &#8220;未接种疫苗 者&#8221;的封锁和罚款措施](/content/gnews/25/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共国反垄断局，只反民企不反国企](/content/gnews/25/README.md)
+### [中共国反垄断局，只反民企不反国企](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [孙宏斌拿分红的零头救融创，Are you kidding me?](/content/gnews/26/README.md)
+### [孙宏斌拿分红的零头救融创，Are you kidding me?](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本移民政策大转变，为新中国联邦打开大门](/content/gnews/27/README.md)
+### [日本移民政策大转变，为新中国联邦打开大门](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加强经济安全，日本是认真的](/content/gnews/28/README.md)
+### [加强经济安全，日本是认真的](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美军应对高度重视中共的高超音速武器试验](/content/gnews/29/README.md)
+### [美军应对高度重视中共的高超音速武器试验](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [大量的运动员“倒下” “突然死亡”成为热搜](/content/gnews/30/README.md)
+### [大量的运动员“倒下” “突然死亡”成为热搜](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [英国F-35战机坠入地中海，原因有待调查](/content/gnews/31/README.md)
+### [英国F-35战机坠入地中海，原因有待调查](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [11月17日文贵大直播精简汇编](/content/gnews/32/README.md)
+### [11月17日文贵大直播精简汇编](/content/gnews/33/README.md)
  ` 澳喜特战旅Gnews`
 
-### [阿富汗未来80天内将饿殍两三百万,这就是中共国的明天](/content/gnews/33/README.md)
+### [阿富汗未来80天内将饿殍两三百万,这就是中共国的明天](/content/gnews/34/README.md)
  ` NewFOC`
 
-### [短视频：孩子们为什么会得心脏病和中风？](/content/gnews/34/README.md)
+### [短视频：孩子们为什么会得心脏病和中风？](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：永远处在风口浪尖的班农正面临着新的考验](/content/gnews/35/README.md)
+### [秘翻在线：永远处在风口浪尖的班农正面临着新的考验](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [第二批州向针对医护人员的疫苗强制令提出挑战](/content/gnews/36/README.md)
+### [第二批州向针对医护人员的疫苗强制令提出挑战](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [秘翻在线：美国在芯片技术上给中共挖大陷阱](/content/gnews/37/README.md)
+### [秘翻在线：美国在芯片技术上给中共挖大陷阱](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [视频| 坚决不能打疫苗](/content/gnews/38/README.md)
+### [视频| 坚决不能打疫苗](/content/gnews/39/README.md)
  ` MOSREC`
-
-### [COVID-19 最新情報｜那些最健壯的運動員們正在「倒下」](/content/gnews/39/README.md)
- ` G&#124;News TAIWAN`
 
 ### [美执业护士用伊维菌素挽救了2400多中共病毒重症患者](/content/gnews/40/README.md)
  ` 日本东京方舟农场`
