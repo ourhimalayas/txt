@@ -2,32 +2,30 @@
 ---
 
 
-## 樱花灭共诗——过盘古七星大厦
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1674896/)
+## 樱花灭共诗——登阁晚望寄郭文贵先生
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1674959/)
 
 撰稿：东京樱花团/小小杜
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-81.jpg)
-一望风云涌，
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-82.jpg)
+独自登高日，
 
-巍峨大厦孤。
+天青叶落时。
 
-长廊多破败，
+疾风听飒飒，
 
-石兽自荒芜。
+斜照见迟迟。
 
-感慨人间苦，
+乱局凭谁问，
 
-欣然万物苏。
+民生共子思。
 
-不堪犹极目，
+老夫怜夏族，
 
-愁杀老腐儒。
+临阁望王师。
 
 校对：东京樱花团/知了知了
 发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
