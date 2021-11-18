@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/18/2021 12:55 PM (UTC)`
+
+泽连科医生：新冠疫苗对儿童的致命性是病毒的172倍!<br/><br/>Dr. Zelenko: COVID vaccines are 172 times more lethal to children than COVID-19 Virus!<br/><br/>
+![img](https://media.gettr.com/group17/getter/2021/11/18/12/55/7d4b5c93-9d53-e424-7804-d06c1a6861bc/out.jpg)
+
+---
+
 `@miles 11/18/2021 12:09 PM (UTC)`
 
 An orthopedic surgeon from Wisconsin described the serious side effects after his first dose of Moderna COVID vaccine, and he urged the CDC, FDA, NIH and all other involved governmental agencies to listen to dangers, and to maintain open and transparent on COVID vaccine data.<br/><br/>一位来自威斯康星州的骨科医生讲述了他接种第一剂莫德纳新冠疫苗之后的严重副作用，并敦促CDC、FDA、NIH以及其他相关政府机构，倾听存在的危险，保持对于新冠疫苗数据的公开和透明。
@@ -293,13 +300,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 11/14/2021 Miles Guo: The New Federal State of China will have our own defense forces around the world to safeguard not only the fellow fighters and their families, but also other Asians; fellow fighters who are fluent in your local languages, please follow the instructions of the Himalaya Farms at any time to participate in the coordination at the front line<br/><br/>11/14/2021 文贵直播：新中国联邦在全球会有我们自己的国防军，不但保护战友和家人，也保护其他亚裔；请熟练掌握当地语言的战友们随时听候农场调遣，参与前线协调工作<br/>
 ![img](https://media.gettr.com/group17/getter/2021/11/14/22/04/71b89a6e-3a3b-ad39-e7dc-e647b81d2142/out.jpg)
-
----
-
-`@miles 11/14/2021 1:22 PM (UTC)`
-
-2021年11月14日 文贵大直播：香港大陆及世界股市；喜币迎接金融大转变；疫苗灾难台湾房地产；新中国联邦机会何在
-![img](https://media.gettr.com/group49/origin/2021/11/14/13/72f94c61-4c93-d2e3-e84c-8f15c3071ba9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

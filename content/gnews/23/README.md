@@ -2,58 +2,39 @@
 ---
 
 
-## 越来越多的名人因COVID 疫苗而住院或死亡
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1674276/)
+## FDA让联邦法官批准其在2076年之前完全发布辉瑞新冠疫苗数据
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1674286/)
 
-**编译：JennyBall**
+美国联邦政府保护辉瑞使其免于承担责任，并花费数十亿美元迫使美国人接受辉瑞的产品，却不对公众开放证明其安全性和有效性的数据。政府到底在为谁工作？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip22-1.png)
+据《Injecting Freedom》记者 Aaron Siri 2021 年 11 月17日报道 ：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-128.png)
+FDA 已要求一名联邦法官批准需要等到 2076 年才披露所有的新冠疫苗数据和信息，以许可辉瑞 (Pfizer) 的 COVID-19 疫苗。这不是打字错误，FDA需要 55 年的时间向公众提供这些信息。
 
-鲍勃·西森（Bob Sisson），通常称之为水管工鲍勃，在 11 月 11 日的 Brighteon.TV 节目中和他的客人玛丽安·巴里恩托斯（Marien Barrientos）谈到，越来越多的名人因冠状病毒 (COVID-19) 疫苗而[住院或死亡](https://www.brighteon.com/a70919b9-b9c9-4d9f-a057-63a6db238bf2) 。
+正如之前的一篇文章中所解释的那样，FDA 一再承诺对 Covid-19 疫苗“完全透明”，包括在许可辉瑞 (Pfizer) 的 COVID-19 疫苗时重申的“ FDA 对透明度的承诺”。
 
-巴里恩托斯正在运营一个拥有数千名粉丝的 Telegram 频道。据她说，最近接种过疫苗的人经常通过该渠道与她联系，谈论他们如何后悔接种实验性危险的 COVID-19 疫苗，因为他们开始经历痛苦的副作用。
+考虑到这一承诺，在 8 月份该疫苗获得批准后，来自该国最负盛名的大学的 30 多名学者、教授和科学家要求辉瑞向 FDA 提交数据和信息，以获得辉瑞 COVID-19 疫苗的使用许可。
 
-巴里恩托斯说：“有很多人一直给我打电话，他们向我报告他们自己，或他们的家人感染 COVID 后发生的情况或其他疾病。”“而现在，截至目前，我接到的电话中，**有一半来自接种疫苗后出现不良副作用的人**。”
+FDA对于上述要求却没有任何回应。因此在 9 月份，我的公司代表该科学家和学者团体向 FDA提起诉讼，要求FDA提供这些信息。迄今为止，在辉瑞的疫苗获得许可近三个月后，FDA 仍未发布任何一页报告或者申明，什么都没有。
 
-巴里恩托斯还收到有关运动员或名人在接种疫苗后突然死亡或生病的报告。（相关：水管工鲍勃和玛丽恩谈论接种疫苗，足球明星阿圭罗在比赛中倒地 –[Bob The Plumber and Marien talk about vaccinated soccer star Sergio “Kun” Aguero collapsing mid-game – Brighteon.TV](https://www.naturalnews.com/2021-11-09-bob-the-plumber-marien-vaccinated-athlete-collapsing.html).)
+相反，在两天前，FDA却要求联邦法官许可其可以在 2076 年之前提供完整的信息。FDA 要求法官允许它来制作辉瑞提供给的 329,000 多页文件，FDA说它们每个月可以完成 500 页的报告，按这个速度速度，意味着完整的报告不会早于 2076 年完成。 FDA 对透明度的承诺说得客气一点，就是一堆幻想。
 
-巴里恩托斯指出，许多足球运动员在接种疫苗后，突然出现心肌炎等心脏问题。
+从辉瑞开始制作许可记录（2021 年 5 月 7 日）到 FDA 批准辉瑞疫苗（2021 年 8 月 23 日），FDA 用了整整 108 天。按照 FDA 的说法，它对这些文件进行了密集、有力、彻底和完整的审查和分析，以确保辉瑞疫苗在获得许可时是安全有效的。虽然它可以在 108 天内对辉瑞的文件进行如此密集的审查，但现在它需要超过 20,000 天的时间才能向公众提供这些文件。
 
-“超过 80 名著名或甲级联赛的足球运动员已经卒死，”巴里恩托斯说。“都是在接种疫苗之后， 这是所有这些人的共同点，这些踢足球和多年从事体育运动的人，没有任何心脏问题。”
+所以，让我们说清楚。事情的本质是：联邦政府正在保护辉瑞免于承担责任，花费数十亿美元迫使美国人使用它的产品，却不会让你看到支持其产品安全性和有效性的数据。政府在为谁工作？
 
-许多其他公众人物正在经历疫苗的危险副作用。知名的墨西哥女演员和政治家卡门·萨利纳斯（Carmen Salinas）[最近因中风住院](https://abc7news.com/carmen-salinas-mexican-actors-and-actresses-telenovela-star-in-hospital/11225318/)，她完全接种了疫苗。
+再一次的教训是，公民和个人权利永远不应受控于医疗程序。每个想要接种疫苗和加强剂的人都可以自由地选择去这样做。但是，任何人都不应该被政府强迫参与任何医疗程序。需要确认的前提条件是，政府不能掩盖或隐藏全部信息直到2076年！（译者：我们需要尽快地向公众公开所有支持疫苗许可的信息和数据！）
 
-巴里恩托斯指出，萨利纳斯最近几个月因嘲笑担心疫苗副作用的电影和电视行业人士而臭名昭著。
+文章来源：[https://aaronsiri.substack.com/p/fda-asks-federal-judge-to-grant-it](https://aaronsiri.substack.com/p/fda-asks-federal-judge-to-grant-it)
 
-加州州长加文·纽森（Gavin Newsom）也经历了 COVID-19 疫苗的严重副作用。
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – 小象的奶瓶
+编辑：洛杉矶盘古农场 – 小象的奶瓶
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-西森透露，民主党加州州长纽森，在10 月 27 日接受了加强剂公开接受 COVID-19 加强注射后，也经历了严重的副作用。
-
-纽森因[突然且无法解释的失踪](https://www.yahoo.com/news/where-governor-playing-hookie-gavin-142551067.html)几天，因此受到了强烈批评后，他于 11 月 7 日才重新出现。州长和他的妻子在没有进一步解释的情况下声称，纽森因“家庭义务”而失踪。
-
-左派的人批评州长取消了他本应参加苏格兰气候变化会议。 与此同时，保守派认为，他之所以躲藏，是因为他患有某种 COVID-19 疫苗的副作用。
-
-“据我所知，州长加文·纽森在加利福尼亚州，我知道他打了第三针，”西森说。 “然后，当他有反应时，他非常生气，因为他说他应该打生理盐水，但不知何故，给他打了真家伙（疫苗）， 所以现在他遇到了很多麻烦。”
-
-巴里恩托斯随后分享了 mRNA 技术的发明者罗伯特·马龙（Robert Malone）博士的想法，他在 Twitter 上推测，州长可能一直在躲避格林-巴利综合征，这是一种导致瘫痪的自身免疫性疾病。
-
-这一假设得到了小罗伯特·肯尼迪及其儿童健康保护组织的大力支持。根据肯尼迪的说法，一位接近州长的消息人士证实，纽森正在从吉兰-巴利综合症中康复。
-
-[点击观看与水管工鲍勃和巴里恩托斯的完整节目。](https://www.brighteon.com/a70919b9-b9c9-4d9f-a057-63a6db238bf2)
-
-**点评：为什么州长加文·纽森第三针作秀“他说他应该打生理盐水”？**
-
-**新闻来源**：[naturalnews.com][More celebrities all over Latin America are getting hospitalized and DYING because of COVID-19 vaccines – Brighteon.TV](https://www.naturalnews.com/2021-11-16-athletes-celebrities-latin-america-dying-covid-vaccines.html)
-
-* * *
-
-***审核：文乐
-校对：信心满满
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
