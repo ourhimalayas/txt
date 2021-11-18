@@ -2,53 +2,27 @@
 ---
 
 
-## 2021年11月17日文贵先生大直播摘要——银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1673338/)
+## 拜登政府下令订购1千万个疗程的“辉瑞菌素”同时计划“即将”扩大疫苗加强针施打范围
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1673475/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/snapshot_副本-3.jpg)
-视频连接：[2021年11月17日 文贵大直播：再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向](https://gtv.org/video/id=6194fda8e7e7703792363972)
+编译：沙子最怕你不理它
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-16.png)
+据零对冲11月16日报道，随着世界各国政府继续加大对未接种疫苗和未完全接种疫苗者的专制惩罚，卫生官员再次重新定义了“完全接种”。
 
-1、喜币上市不到三周，创造了人间奇迹，很多战友都躺平了。人穷就穷在脑子。你躺平那一刻起，你就会失去喜币
+据美国短新闻网站Axios称，拜登政府预计将最早在本周开始“将疫苗加强针授权扩展到所有成年人”。这一决定的主要依据是疫苗的有效性会随着时间的推移而下降，需要第三针加强降低大多数50岁以下成年人&lt;1%的死亡风险，同时略微减少传播，直到90天内疫苗有效性再次消失。
 
-2、病毒与疫苗阴谋和钱有关系：超发的货币杠杆化，其中最重要的就是保险要兑现保单，背后是、政府、药厂、媒体和邪恶势力勾结，共产党是邪恶中的邪恶，中国共产党是邪恶势力的大总部
+更多来自Axios的消息称，尽管专家们对谁需要施打加强针存在分歧，但人们普遍认为，老年人和至少一些有潜在健康状况的人应在第一个系列赛后六个月左右获得额外剂量。
 
-3、这场人间的大浩劫，灾难远远没有到来！冠状病毒和疫苗就是母子武器，阴阳武器，就是用来杀人的！战友们要做好最坏的准备。新中国联邦是唯一的抱团取暖的群体
+- 但据疾控中心（CDC)称65岁及以上的美国人中，只有36%的人施打了加强针。
+- “随着每个月的流逝，免疫力越来越下降。国家过敏和传染病研究所NIAID主任福奇（Anthony Fauci）告诉Axios，随着时间的推移，您将看到更多的接种疫苗的人“更容易感染病毒”。
+- 绝大多数突破性案例，特别是在年轻人中并不严重。但福奇说：“和往常一样，老年人更容易受到伤害，因为他们更有可能随着时间的推移而减少保护。”
 
-4、CCP支持塔利班占领阿富汗，已经死了几万人，预计80天，就会200-300万人由于饥饿和战乱而死亡。阿富汗的今天就是中国人的明年
 
-5、现在冬奥会怎么来的? 查查 每届奥运会 没有一届没有丑闻的 所有代表 CCP简直是堵着门拿下 过去是给男的送女的 这一次甚至给女的送男的 某女的(有投票权的)喜欢男孩 给她送去几个会跳舞的男孩
+与此同时，拜登政府还订购了1千万个疗程的辉瑞新的抗中共病毒药丸（辉瑞菌素）。周二，辉瑞宣布了其计划，要求美国食品药品监督管理局授权其紧急使用该药。
 
-6、冬奥CCP搞的话 对咱有好处 搞了有3个可能:（1）病毒加剧 世界恨它 （2）对习来讲不是好事儿 （3）中国经济这样了 你知道冬奥会发生啥事儿
+辉瑞本月早些时候宣布，其实验药丸将以Paxlovid品牌出售，在症状出现后三天内服用，高危人群的住院和死亡风险降低了89%。该公司表示，它计划很快向联邦监管机构提交紧急使用授权申请。辉瑞还允许仿制药公司生产其新型抗病毒药物，即使这样也不太可能动摇伊维菌素作为世界首选的早期治疗药物的地位。辉瑞的“实验性药丸”到底效果怎么样，拭目以待吧。
 
-7、六中全会后 习一定会面临着随时被做掉的可能 傅振华 孟建柱 逮着机会一定会动手的
-
-美国 中共内都相信 把习干掉 中共国得平安 相信在中国一定会发生 最大受益者是新中国联邦 最大受害者是现在在墙内的同胞
-
-8、喜币美加日开放？喜交所的交易牌照没有在美加日获得批准，但虚拟货币在全球任何国家使用是不受限制的
-
-9、喜联储是合法的发币机构，会有发行可兑付的现代化的加密纸币或者金币
-
-10、通过你的智慧和谦虚，持续见高人 ，会遇到更厉害的高人，这对个人的开窍至关重要。七哥最早认识美国就是从科技界开始的。
-
-编辑整理：文俊
-
-发布：黎明之前
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+来源：[Biden Admin Plans ‘Imminent’ Booster Expansion; Orders 10M Courses Of ‘Pfizermectin’](https://www.zerohedge.com/covid-19/biden-admin-plans-imminent-booster-expansion-orders-10m-courses-pfizermectin)
 
  
 

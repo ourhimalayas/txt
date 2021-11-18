@@ -2,22 +2,22 @@
 ---
 
 
-## 韩国昨天中共病毒确诊病例3292例，创下历史新高
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1673359/)
+## 疫苗接种率全球最高的国家疫情再度飙升
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1673517/)
 
-韩国首尔天池农场——追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-18-at-10.56.32.jpeg)图片来源：KBS新闻
-韩国KBS新闻11月18日的报道，根据韩国中央防疫对策本部18日的通报，截至当天0时，韩国较前一天0时新增中共病毒确诊病例3292例，创下历史新高。
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-30.png)
+图片来源： Our World in Data
 
-新增确诊病例 3292 例，超过9月25日记录的 3270 例， 这也是连续两天新增确诊病例超过3000例。其中境内确诊病例3272例，境外输入病例20例，累计406,065例。
+“零对冲”网11月17日报道，欧洲大部分地区最近一周的新冠发病率再次走高，超越今年3 月的疫情高峰，其中作为全球疫苗接种率最高的国家、英属直布罗陀的新冠病例呈“指数级”飙升，政府已宣布取消官方圣诞聚会类活动，并建议公众四周内避免聚会和社交活动、戴好口罩、避免拥抱及身体接触。
 
-按地区划分，首尔1423例、京畿道965例、仁川195例，首都圈约占国内确诊病例总量的79%，处于领先地位。
+位于伊比利亚半岛南端的直布罗陀，按Our World in Data的统计数据、其疫苗接种率为全球之首，接近100%；而根据零对冲的报道，如果算上每天入境工作的西班牙人等外籍人员，其接种率超过 118% 。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片4-7.png)
+（图表来源Bloomberg：直布罗陀2021年11月16日）
 
-住院重症患者506人，比前一天减少16人。单日死亡人数增加29人，累计死亡3187人，病死率为0.78%。
+这种疫苗接种率极高、疫情不减反增的情况，直布罗陀并非唯一。全民接种率高达85%的新加坡，近期的疫情死亡人数创下历史新高；接种率70%的荷兰再施封锁；接种率76%的冰岛再度升高疫情管制；接种率71%的美国佛蒙特州创下染疫人数新高……接下来还会轮到在哪些国家和地区？
 
-截至17日0时，全国已有42,110,652人接种首剂中共病毒疫苗，占总人口的82.01%，完成疫苗全程接种的人员共计40,312,386人，占总人口的78.51%。
-
-[参考新闻](https://mn.kbs.co.kr/news/view.do?ncd=5328061)
+**新闻来源：** [“Most Vaccinated” Nation On Earth Cancels Christmas Over Surge In COVID Cases](https://www.zerohedge.com/covid-19/most-vaccinated-nation-earth-cancels-christmas-over-surge-cases)；[Worldwide Vaccine Failure](https://www.zerohedge.com/covid-19/worldwide-vaccine-failure)
 
  
 

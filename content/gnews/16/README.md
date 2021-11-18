@@ -2,30 +2,25 @@
 ---
 
 
-## 澳总理宣布关键技术保护措施 建立防范中共国隔离带
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1673365/)
+## 前美国总统顾问班农承诺将转守为攻
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1673538/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/images-1.jpg)澳总理宣布关键技术保护措施 建立防范中共国隔离带 网络图片
-据美国之音11月18日报道，澳大利亚总理莫里森17日宣布一份涵盖60多项对国家安全至关重要的关键技术保护和发展的战略蓝图，包括了量子技术、人工智能、基因工程、自动驾驶汽车技术、5G、疫苗、区块链等关键技术，以对抗中共国在相关领域日益增强的趋势。
+原文采编：UCool优酷 编译撰稿：文所未闻
 
-莫里森表示，这些关键技术广泛运用于重大的国防项目上，安全至关重要。莫里森政府专门成立了“关键技术政策协调办公室”（CTPCO），负责为政府成员提供“促进和保护关键技术”的行动建议。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-46-edited.jpg)图片来源：GNEWS
 
-防火防盗防中共，在西方各国已经成为国防战略。保护国家之先，保护好本国先进的国防科技。未来战争，打的不是人数，而是科技。
 
-新闻参考链接：[http://dlvr.it/SChFF5](https://dlvr.it/SChFF5)
+据英国知名媒体《每日邮报》11月15日报道，前美国总统川普的首席战略顾问班农先生，当天在华盛顿【联邦调查局】总部，参加了简短听证会以回应当局关于对其“藐视国会”的指控。
+
+报道称，班农在本次听证会现场利用社交媒体GETTR平台进行了全程直播。聆讯期间，他不仅抨击了拜登政府的无能，还要求其支持者们继续关注两党大势。并同时承诺将迅速改变斗争策略而转守为攻。
+
+针对班农先生将于11月18日再次出庭接受听证，他女儿对此直言不讳表示，这不仅是一场典型的政治迫害，也是拜登政府用来转移目前美国民众对当局国策全面失败的关注。
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+校对编辑，发稿：硫酸羟氯喹64
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+原文链接：[https://www.dailymail.co.uk/news/article-10204023/Steve-Bannon-arrives-Washington-court-indicted-refusing-comply-subpoena.html](https://www.dailymail.co.uk/news/article-10204023/Steve-Bannon-arrives-Washington-court-indicted-refusing-comply-subpoena.html)
 
  
 

@@ -2,25 +2,62 @@
 ---
 
 
-## 前美国总统顾问班农承诺将转守为攻
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1673538/)
+## 视频| 研究报告显示：刺突蛋白可进入细胞核，干扰DNA的正常修复
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1673605/)
 
-原文采编：UCool优酷 编译撰稿：文所未闻
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-46-edited.jpg)图片来源：GNEWS
+制作：香草山视频部
 
 
-据英国知名媒体《每日邮报》11月15日报道，前美国总统川普的首席战略顾问班农先生，当天在华盛顿【联邦调查局】总部，参加了简短听证会以回应当局关于对其“藐视国会”的指控。
 
-报道称，班农在本次听证会现场利用社交媒体GETTR平台进行了全程直播。聆讯期间，他不仅抨击了拜登政府的无能，还要求其支持者们继续关注两党大势。并同时承诺将迅速改变斗争策略而转守为攻。
+十月的第一周
 
-针对班农先生将于11月18日再次出庭接受听证，他女儿对此直言不讳表示，这不仅是一场典型的政治迫害，也是拜登政府用来转移目前美国民众对当局国策全面失败的关注。
+瑞典的一个研究团队发表了一份研究
 
-* * *
+他们的人类细胞实验
 
-校对编辑，发稿：硫酸羟氯喹64
+表明刺突蛋白可以进入细胞核
 
-原文链接：[https://www.dailymail.co.uk/news/article-10204023/Steve-Bannon-arrives-Washington-court-indicted-refusing-comply-subpoena.html](https://www.dailymail.co.uk/news/article-10204023/Steve-Bannon-arrives-Washington-court-indicted-refusing-comply-subpoena.html)
+他们发现 一旦刺突蛋白进入了细胞核
+
+可以抑制受损DNA的正常修复
+
+特别是当DNA被一刀两段的时候
+
+意思是当你把双链DNA斩断以后
+
+刺突蛋白对DNA修复功能的负面影响
+
+是以某种暂无法确认的方式
+
+干扰BRCA蛋白修复受损DNA的机制
+
+如果你使BRCA1基因突变
+
+那将是最能导致癌症的变异之一
+
+正因为BRCA的基因代码是用于修复DNA的蛋白
+
+比如修复被截断的DNA
+
+这显然是有重要意义的新闻 不能轻视 必须重审
+
+
+
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 
