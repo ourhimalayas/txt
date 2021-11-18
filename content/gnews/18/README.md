@@ -2,24 +2,22 @@
 ---
 
 
-## FDA 在隐藏了什么？等 55 年再发布辉瑞 COVID 疫苗试验信息？
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1675383/)
+## 突发：辉瑞称拜登政府将以 50 亿美元的价格购买 1000 万粒 COVID 药丸
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1675395/)
 
-翻译：真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_5689-2-edited.jpg)图片来源：网络
-来自GATEWAY PUNDIT 星期四十一月十八日的新闻报道：美国食品与药物管理局FDA 正在掩藏信息。
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/11/imrs1-edited.jpg)图片来源：网络
+据两位知情人士透露，拜登政府正计划购买 1000 万个辉瑞 Covid 药丸，这是一项 50 亿美元的投资用于治疗，官员认为这将有助于通过减少严重疾病和死亡来改变冠状病毒大流行的轨迹。
 
-为回应几个月前《信息自由法》(FOIA)提交的请求，FDA 已要求联邦法官给他们 55 年的时间来发布与辉瑞 COVID 疫苗相关的数据。
+随着政府和辉瑞周二敲定最终细节，该公司要求联邦监管机构批准名为 Paxlovid 的为期五天的抗病毒药丸方案。 该药物是第二种易于服用的治疗方法，旨在让新感染者远离医院，前往美国食品和药物管理局。 另一个是默克公司和 Ridgeback Biotherapeutics 公司的。
 
-美国人目前正被政府强迫接受辉瑞PFIZER疫苗来保住工作，但无权看到这种“疫苗”是如何获得批准的。
+拜登的助手认为这两种治疗方法都是潜在的改变游戏规则的人，以帮助在大流行两周年之际恢复正常感，并渴望将它们添加到为感染冠状病毒的美国人提供的一小部分治疗方法中，据官员匿名透露的条件，他们无权讨论这笔交易。 随着突破性病例的增加和 30% 的成年人未完全接种疫苗，卫生官员表示，这些药丸将通过阻止病毒最有害的影响来帮助控制大流行。
 
-他们的孙子孙女可能会在 55 年后(2076年)看到这些数据。
+在另一个重要的进展中，辉瑞同意了一项许可共享协议，允许该药丸在全球范围内生产，并在贫穷国家以较低的价格出售。 该公司表示，这项协议可以让世界上一半以上的人口获得这种治疗，即使辉瑞拒绝了让较贫穷国家获得其冠状病毒疫苗配方的呼吁。
 
-美国医学界正在失去所有信任和信誉。
+“该许可证非常重要，因为如果获得授权或批准，这种口服药物特别适合低收入和中等收入国家，并且可以在挽救生命方面发挥关键作用，为全球抗击当前流行病的努力做出贡献，” 查尔斯·戈尔 (Charles Gore)，药品专利的执行董事，该组织是由联合国支持的非营利组织，旨在促进全球获得救生药物。
 
-**点评：**这的确滑稽可笑! 既然疫苗试验数据结果没问题且被授权，那为什么不敢现在就放开让医学界评议呢？辉瑞的CEO肯定知道内幕，所以自己不打疫苗。 美国医学界正失去信任和信誉， 他们被FDA假专家、真政客给挟持了。FDA正失去信誉和信任，真正的科学专家被威胁打压。
-
-原文链接: [https://www.thegatewaypundit.com/2021/11/fda-wont-release-information-pfizer-covid-vaccine-trials-another-55-years/](https://www.thegatewaypundit.com/2021/11/fda-wont-release-information-pfizer-covid-vaccine-trials-another-55-years/)
+来源链接：[https://www.washingtonpost.com/health/2021/11/16/administration-purchases-pfizer-anti-covid-pill/](https://www.washingtonpost.com/health/2021/11/16/administration-purchases-pfizer-anti-covid-pill/)
 
 编辑/发布：LILY
 
