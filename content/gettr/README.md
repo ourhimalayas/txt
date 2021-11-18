@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/18/2021 1:12 AM (UTC)`
+
+11月17号：刚刚理完发的SNOW 欢迎七哥回家……
+![img](https://media.gettr.com/group32/getter/2021/11/18/01/12/1a647453-ccc6-fc65-3e77-af6862fb1a9f/out.jpg)
+
+---
+
 `@miles 11/18/2021 12:53 AM (UTC)`
 
 11/17/2021 Miles Guo: The Biden-Xi meeting was in fact arranged by Qin Gang, and the Chinese have to pay hundreds of billions of dollars to meet Biden's economic demands; in exchange, the U.S. agreed to participate in the 2022 Winter Olympics, adhere to the "One China Policy", and not change the CCP’s system; the third historical resolution of the CCP was not out until after the Biden-Xi meeting<br/><br/>11/17/2021 文贵直播：拜习会的召开是秦刚一手操办的，中国人为此不得不付出千亿美元的代价来满足拜登在经济上的要求；作为交换，美方同意参加冬奥会、坚持一个“中国政策”和不改变中共体制；中共第三个历史决议直到拜习会后才公布<br/>
@@ -295,13 +302,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 11/11/2021 Miles Guo: The CCP’s 6th Plenary Session is a gift from God - Xi Jinping will stay in power after the 20th Party Congress, rendering him the common enemy of the entire Party, and this will help the New Federal State of China destroy the CCP by taking advantage of its internal struggles; Xi will launch massive arrests and plunder the entrepreneurs in the Communist China prior to the 20th Party Congress<br/><br/>11/11/2021 文贵直播：六中全会是上天给新中国联邦的大礼 - 习近平要在20大后继续当老大，这将导致其成为全党众矢之的，这有助于新中国联邦以共灭共；20大前习将展开大抓捕并大肆洗劫国内企业家<br/><br/>
 ![img](https://media.gettr.com/group44/getter/2021/11/13/04/35/f8b88d96-4979-224a-c13e-fc329ba9e5ab/out.jpg)
-
----
-
-`@miles 11/13/2021 4:25 AM (UTC)`
-
-11/11/2021 Miles Guo: Every fellow fighter is a participant in the history of the New Federal State of China(NFSC), the wealth of the NFSC citizens is manifested in the fact that they are unvaccinated against the CCP virus and the wisdom they have; In contrast, people like Neil Shen and Jack Ma who lack visions and faiths are like the fish farmed by the CCP, which will eventually rip them off; but our NFSC citizens will never be ripped off, and we are saving the world!<br/><br/>11/11/2021 文贵直播：每位战友都是新中国联邦历史的参与者；新中国联邦人的财富在于没打新冠疫苗且开了智；相反，沈南鹏和马云等境界低、无信仰的人好比是中共放水养的鱼，必将任中共宰割；但新中国联邦人永远不会被宰割，而且我们正在拯救全人类！<br/>
-![img](https://media.gettr.com/group41/getter/2021/11/13/04/25/d5c33f5b-c7ba-cbdf-7a81-f5bda551f6a0/out.jpg)
 
 ---
 
