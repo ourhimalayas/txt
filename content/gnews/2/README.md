@@ -2,38 +2,46 @@
 ---
 
 
-## 国际要闻汇编11月18日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1673795/)
+## 拥有喜币的原因是灭共，在躺平的那一刻起就会失去喜币
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1673833/)
 
-素材：东京樱花团丨GNEWS组
-![](https://lh5.googleusercontent.com/k-fJMIpBTY-HxlX8AGdJNR65nE8B3rrf9P_67zss0by18FDcpViWG61h5K9V78TaSWg-t51fuQ71qfs1zzzPtRotsH87vIwxFDJVxD2ayTt7YUuOUHkxedcM4mntyo6mW_nOGUkD)[图片来源](https://www.aboluowang.com/2021/1118/1673130.html)
-1、[**美劳工部机构OSHA暂停执行拜登政府疫苗令 **](https://www.aboluowang.com/2021/1118/1673130.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image8-7-1536x864_副本.jpg)
+据[2021年11月17日 文贵大直播：再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向](https://gtv.org/video/id=6194fda8e7e7703792363972)时间点30：24——
 
-美国劳工部职业安全与健康管理局（OSHA）已宣布，暂停执行拜登政府对私营企业的中共病毒（COVID-19）疫苗令。上周五（12日），美国上诉法院驳回了拜登政府的诉讼，并重申搁置OSHA疫苗令的决定。该疫苗令要求拥有100名或以上员工的私营企业，确保员工在2022年1月4日之前接种COVID-19疫苗，或者每周接受检测，并在工作期间戴口罩。
+**郭文贵先生：**我们有很多的话题，但是在话题打开之前，我这几天的感受就是我预想到的很多事情都到来了，不好的也来了，特别是很多战友看到喜币上升的时候，很多战友都开始躺平了，这也是我预料之中的，就是喜币还没涨到你想要那样的大家都躺平了，就是能感觉到我们各农场群很多事情都没人做了，这是个很可怕的事情。
 
-新奥尔良第五巡回上诉法院在一份意见书中指出，OSHA的疫苗令是“惊人的越权”，并命令OSHA“不得采取任何步骤来实施或执行这项指令，直到法院进一步下令”。目前已有至少27个州以及私人雇主、宗教组织和其他团体起诉拜登政府，声称其在发布疫苗令时“超越了权限”。
+喜币上市还不到三周的时间，创造了可以说人间的奇迹，刚才你看到那个迈阿密市长那个视频，你想想迈阿密市长经常在嘴里说出什么话，说联邦过度印刷，然后就是它币就不值钱了嘛，他在那还要求整个迈阿密市的人去挖矿，然后政府分点成，现在成了最大创新。
 
-2、[**布林肯认定中国等10国为宗教自由侵犯国**](https://www.voachinese.com/a/Blinken-designates-China-and-other-countries-as-religious-freedom-violators-20211117/6317105.html)** **
+据说下一届的美国参议员里面会有十几个都是有虚拟货币背景的人，那你说一个迈阿密的市长都知道这事，人家都知道虚拟货币现在是美国的未来，美国的美元都不行，就甭提人民币了。
 
-美国国务卿布林肯周三（17日）发表声明，根据美国的《国际宗教自由法》认定中国、缅甸、朝鲜、俄国、沙特阿拉伯等10国为本年度宗教自由侵犯国。
+咱战友这币还没拿到手里面了，现在就开始躺平了，这个人呐，穷绝对不是穷在哪里，穷就穷在脑子上，穷就穷在你的心上，我们都是草根出身，所以说今天一开始的时候，希望兄弟姐妹们，你躺平的这一刻起，你有这种对新中国联邦、对爆料革命的使命完全放弃那一刻起，你就会失去一切。
 
-布林肯国务卿的声明全文请点击链接。
+你拥有的喜币的原因是因为你要灭共，共产党还在那儿，你能躺平吗？它跟币升多少都没关系，你躺平那一刻起你就会失去喜币，这是非常不好的。
 
-3、[**澳总理宣布关键技术保护措施 建立防范中国隔离带 **](https://www.voachinese.com/a/Australia-Tries-To-Protect-Critical-Technologies-20211117/6316945.html)
+（以下暂略）
 
-澳大利亚总理莫里森17日宣布一份涵盖60多项对国家安全至关重要的关键技术保护和发展的战略蓝图，以对抗中共国在相关领域日益增强的趋势。这个战略蓝图包括了量子技术、人工智能、基因工程、自动驾驶汽车技术、5G、疫苗、区块链等关键技术。悉尼先驱晨报说，这个技术清单将可以用于阻止中共国与澳大利亚大学在某些特殊领域的研究合作，以及阻止某些项目的出口和外国投资。
+撰稿：喜马拉雅的肉夹馍；
 
-4、[**韩最大在野党候选人支持率首过半 大赢执政党对手**](https://www.aboluowang.com/2021/1117/1672898.html)
+审核：喜马拉雅的馍夹肉；
 
-据韩国中央日报今(17)日报导，最大在野党国民力量党总统候选人尹锡悦的民调支持率正持续上升，超过50%。另一方面，执政党共同民主党总统候选人李在明的支持率约占35%。据报导，11月13日至14日，民调机构“MediaTomato”受“NewsTomato”委托，向韩国1,000名成年人实施总统选举的民意调查。结果显示，在假设朝野“一对一对决”的情况下，尹锡悦的支持率为52.7%，在同系列调查中首次过半。与李在明的差距(支持率为34.8%)，已经拉大到误差范围之外。
+校对：Maarago
 
-5、[**疾控中心称美国逾10万人死于用药过量 **](https://www.voachinese.com/a/overdose-deaths-top-100000-cdc-says-20211117/6317842.html)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-美国疾病控制与预防中心(CDC)估测说，在2020年5月到2021年4月期间，有10万名美国人死于过量用药，比前一年增加了近30%。虽然这不是正式统计数字，但是疾控中心表示，到目前为止可以证实在这段时期有9万8千起死亡案例，在正式确认死亡原因后，总死亡人数有可能达到10万零300左右。调查和确定用药死亡可能需要数月时间。专家们说，获取致命的阿片类药物、特别是芬太尼的便利性的增加是主要驱动因素，占过量用药死亡案例的64%。另一个因素是新冠疫情。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-*编辑：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

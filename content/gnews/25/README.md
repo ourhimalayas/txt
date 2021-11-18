@@ -2,26 +2,33 @@
 ---
 
 
-## 卑诗省暴雨洪灾或引发全加拿大供应链危机
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1673582/)
+## 有声| 日本经济安保法案排除中共敏感设备
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1673593/)
 
-原文采编：青青        编译撰稿：文莱
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+综合日本媒体11月12日到14日的报道，日本政府为了保障经济安全，将制定《经济安全保障推进法案》，目地在于确保日本的技术、情报不外流，以及稳定半导体的供应。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-48-edited.jpg)图片来源：CBC
+预计，这次的法案将包括“供应链坚韧化”、“维持基础建设功能”、“专利非公开化”及“确保技术基础”这四大重点。
 
+除此之外，法案还考虑加入“事前审查制度”，要求日本的通讯、能源、金融等产业在购置重要基础设备时，避免引进有安全性风险的产品。据了解，此举主要是为避免引进会影响运作安全性的中共产品或系统。
 
-据加拿大媒体【CTV新闻】11月16日报道，“百年不遇”的暴风雨所带来的洪灾和泥石流对卑诗省的大部分公路、房屋和基础设施等造成了严重的破坏，并或将直接导致该省乃至整个加拿大一系列有关物流供应链的脆弱性危机。
+另外，法案中也规定了特定专利非公开化的条款，主要是为防止能被用作新世代武器研发的先进技术外流。
 
-据悉，当天泛滥的洪水和泥石流不仅造成了该省几乎所有进出低陆平原的高速公路被迫关闭，而且大部分连接低陆平原和内陆的主要交通路线也被阻断。为此，卑诗省【交通和基础设施部】发表声明称，当局评估全省的各类损失工作仍在继续进行中。
+文字版原文：[日本经济安保法案排除中共敏感设备](https://gnews.org/zh-hans/1672156/)
 
-据业内人士分析，全球乃至加拿大的货物供应链在“新冠病毒”疫情期间一直承受着巨大的压力。而此次罕见暴风雨的袭击则再次暴露了其内在的脆弱性。同时，卑诗省罕见的洪灾所导致温哥华港口的被隔绝，无疑进一步加重了加拿大国内经济的萎靡不前。
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-* * *
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-校对编辑，发稿：硫酸羟氯喹64
-
-原文链接：[https://www.ctvnews.ca/business/b-c-storm-aftermath-latest-blow-to-supply-chain-issues-1.5669026](https://www.ctvnews.ca/business/b-c-storm-aftermath-latest-blow-to-supply-chain-issues-1.5669026)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
