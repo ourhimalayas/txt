@@ -2,78 +2,56 @@
 ---
 
 
-## 埃内斯·坎特发布支持台湾的视频，台湾总统回应并感谢
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1673132/)
+## 香港隔离130名飞行员，引发了对供应链的担忧
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1673175/)
 
-**据《Dailywire》记者：Frank Camp，2021年11月13日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/apjg0-yezmi.jpg)**图片源自原文**
-周五，波士顿凯尔特人队球员埃内斯·坎特（Enes Kanter）在他的社交媒体账户上发布了一段他支持捍卫台湾主权的视频后，台湾总统蔡英文做出了回应。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/111701.jpg)三名飞行员检测出COVID-19呈阳性后，香港已将130名国泰航空飞行员进行了隔离。（文件图片：Amr Abdallah Dalsh/路透社）
+**摘要翻译：**
 
-“感谢埃内斯与台湾站在一起。我们将永远捍卫我们来之不易的自由和民主，”总统说。 “您和我们在世界各地的朋友的支持给了我们力量。台湾也是很多篮球迷的故乡，我们都为你加油。”
+据《半岛电视台》报道，
 
-谢谢
-@埃内斯·坎特（EnesKanter）
-与台湾站在一起并捍卫民主。
+香港政府强迫130名国泰航空公司的飞行员接受21天的隔离，令人担心该航空枢纽的“零冠状病毒”政策，可能会加剧由该疫情引发的全球供应危机。
 
+香港行政长官林郑月娥周二宣布了这一消息，此前三名飞行员通过了严格的中共病毒检测程序，当再次进入香港时被检测出阳性。
 
+林说，所有住在德国法兰克福一家酒店的航空人员都必须接受21天的强制隔离，这三名飞行员曾在这家酒店短暂停留。
 
-> Thank you [@EnesKanter](https://twitter.com/EnesKanter?ref_src=twsrc%5Etfw) for standing with [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) & standing up for democracy. [pic.twitter.com/DNBJfMiSvl](https://t.co/DNBJfMiSvl)
-> — 蔡英文 Tsai Ing-wen (@iingwen) [November 13, 2021](https://twitter.com/iingwen/status/1459364677402591240?ref_src=twsrc%5Etfw)
+当局将130名货运和客运飞行员以及机组人员，送往位于这个中共国半自治领土的一个由政府运营的隔离设施，该航空公司进口香港90%以上的食物。
 
+“如果再出现一两个这样的案例，我们可能会失去所有货运飞行员。”林在新闻发布会上说，承认此举将对香港的供应链产生重大影响。
 
+航空咨询公司恩道分析公司(Endau Analytics)的创始人舒科尔·尤索夫(Shukor Yusof)表示，这一决定“显得相当极端”。“除了给飞行员带来不便外，在航空公司面临财务压力的情况下，这可能还会给该航空公司带来额外成本，并削弱香港作为航空枢纽的地位。”
 
-坎特在他的Instagram上分享了蔡英文的视频，并配文说：“真是荣幸！感谢台湾总统回应。我迫不及待地想参观你美丽的国家，了解台湾文化，品尝一些你的美食，并会见勇敢的台湾人民。当我们站在一起时，我们会变得更强大。”
+此举是对国泰航空的最新的打击，该航空公司正因新冠大流，以及发生在2019年的大规模支持民主和反政府抗议活动的影响而陷入困境。国泰航空曾经是香港的骄傲，该公司已裁员近6千名员工，并在去年10月裁撤了一家支线航空公司。该航空公司报告称，今年上半年亏损76亿港元（合9,760万美元）。
 
-他用台湾国旗的表情符号结束了他的回应。
+为了绕开香港对中共病毒的限制规定，该航空公司正在考虑将其飞行员安置到迪拜、安克雷奇和芝加哥等城市。它现在还要求所有抵达香港的机组人员在家隔离三天，并避免参加社交聚会。
 
-**坎特在他周五的视频中说了以下内容：**
+**简评：**
 
-台湾不是中国的一部分。台湾是一个民主自由的国家——我与台湾站在一起。你知道吗，尽管台湾有自己的历史，自己的政府……自己的选举，自己的一切，习近平却被困在自己的世界里意淫，声称台湾是中国的一部分，（不断）威胁要入侵台湾。台湾2400万人只想和平自由地生活。他们珍视自由、人权和民主。台湾是一股向善的力量。中国政府对台湾的所作所为更加证明习近平和中共政权对世界各地的自由构成威胁。我们看到他们对西藏人、维吾尔人、香港人所做的一切。台湾现在站在反对中共独裁统治的前线。
+随着澳洲、新西兰和新加坡等亚太地区国家逐步放弃病毒“清零”政策，中共国几乎成为全世界唯一一个还在坚持对病毒采取“清零”政策的国家，香港政府则紧随其后，但是，这一所谓的“清零”政策却是令人怀疑的。
 
-我要向今天观看此节目的所有自由支持者传达的信息是：我们一起变得更强大。我们都必须与台湾站在一起，支持台湾，捍卫民主。我们必须保持台湾的自由和安全。台湾已经独立了，我相信并希望这个国家永远自由民主。台湾的未来必须由台湾人民决定。
+据《德国之声》报道，今年8月，好莱坞女星妮可·基德曼到香港拍片，获准免于隔离；摩根大通(JP Morgan Chase)首席执行官戴蒙(Jamie Dimon)11月15日抵港短暂停留，也获香港政府豁免隔离检疫。香港特首林郑月娥则在16日为港府的通融做法辩护，称“风险可控”。但是香港政府的规定是，普通旅客入境香港需进行21天的集中检疫隔离。人们不禁要问，为什么明星总裁可以得到豁免，飞行员就不可以？
 
-**我对今天观看此节目的所有自由支持者的信息是：**
+香港政府的“清零”措施，究竟是为了阻止病毒传播还是在为即将到来的“疫苗危机”进行管控测试，只有它们自己清楚，毕竟，病毒检测是否阳性，强制隔离是否必要，在独裁统治的中共国，中共政府是唯一掌握话语权的机构，它能制造并利用新冠病毒杀害全世界人， 那么在危机到来之时，说它利用所谓的阳性结果和强制隔离政策控制中共国的老百姓，更加不必怀疑。
 
-我们在一起更强大。
-我们都必须#StandWithTaiwan，
-支持台湾，捍卫民主。
-我们必须保持台湾的自由和安全。
-台湾是属于台湾人民的！
+新闻链接：[Hong Kong quarantines 130 pilots, stoking supply chain fears](https://www.aljazeera.com/economy/2021/11/16/hong-kong-quarantines-130-pilots-stoking-supply-chain-fears)
 
-# IslandOfResilience
+***翻译/简评**：Harvey (叶知秋)*
 
+***校对**：Julia Win*
 
+* * *
 
-> My message to all freedom supporters watching this today is:
-> 
-> We are stronger together.
-> We must all [#StandWithTaiwan](https://twitter.com/hashtag/StandWithTaiwan?src=hash&amp;ref_src=twsrc%5Etfw),
-> support Taiwan, and defend democracy. 
-> We must keep Taiwan free and safe.
-> 
-> Taiwan belongs to the TAIWANESE people![#IslandOfResilience](https://twitter.com/hashtag/IslandOfResilience?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/r925kNm2fY](https://t.co/r925kNm2fY)
-> — Enes Kanter (@EnesKanter) [November 12, 2021](https://twitter.com/EnesKanter/status/1459190235565371397?ref_src=twsrc%5Etfw)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-长期以来，坎特一直是他祖国总统雷杰普·塔伊普·埃尔多安的直言不讳的批评者。然而，这位凯尔特人队球员最近在对阵中国队的比赛中表现出色。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-10月中旬，坎特发布了一段视频，呼吁中国共产党和习近平主席“解放西藏”。在最初的帖子之后，他发表了另一篇文章，公开反对中共的维吾尔穆斯林奴役，并称习近平是“无情的独裁者”。
 
-“无情的中国独裁者习近平和中国共产党，我现在在全世界面前向你呼吁，”坎特说。 “关闭劳教所，释放维吾尔人。现在停止种族灭绝。”
-
-这位凯尔特人队的球员还呼吁其他穆斯林运动员保持沉默，包括耐克和勒布朗·詹姆斯。
-
-**文章来源**：[https://www.dailywire.com/news/taiwan-president-thanks-enes-kanter-after-athlete-says-taiwan-at-the-frontlines-against-chinas-dictatorship](https://www.dailywire.com/news/taiwan-president-thanks-enes-kanter-after-athlete-says-taiwan-at-the-frontlines-against-chinas-dictatorship)
-
-翻译：洛杉矶盘古农场–Raul
-校对：洛杉矶盘古农场–Mike Li
-编辑：洛杉矶盘古农场–心照
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

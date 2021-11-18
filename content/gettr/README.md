@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/18/2021 12:53 AM (UTC)`
+
+11/17/2021 Miles Guo: The Biden-Xi meeting was in fact arranged by Qin Gang, and the Chinese have to pay hundreds of billions of dollars to meet Biden's economic demands; in exchange, the U.S. agreed to participate in the 2022 Winter Olympics, adhere to the "One China Policy", and not change the CCP’s system; the third historical resolution of the CCP was not out until after the Biden-Xi meeting<br/><br/>11/17/2021 文贵直播：拜习会的召开是秦刚一手操办的，中国人为此不得不付出千亿美元的代价来满足拜登在经济上的要求；作为交换，美方同意参加冬奥会、坚持一个“中国政策”和不改变中共体制；中共第三个历史决议直到拜习会后才公布<br/>
+![img](https://media.gettr.com/group2/getter/2021/11/18/00/53/8e4bcd39-0da0-5d6e-802f-8fe0db561ecc/out.jpg)
+
+---
+
 `@miles 11/18/2021 12:22 AM (UTC)`
 
 亲爱的战友们好，盖特新功能开始内测：Instagram导入。注册新帐号时可以直接选择Instagram同名帐号导入，盖特现有用户，请将您的Instagram用户名留言给<br/>@GettrEngineer<br/><br/>Dear Brothers and Sisters, GETTR released a BETA version of Instagram importation. Users are able to import the same Instagram account during the registration process. For existing GETTR users, please send your Instagram username to @GettrEngineer
@@ -295,13 +302,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 11/11/2021 Miles Guo: Every fellow fighter is a participant in the history of the New Federal State of China(NFSC), the wealth of the NFSC citizens is manifested in the fact that they are unvaccinated against the CCP virus and the wisdom they have; In contrast, people like Neil Shen and Jack Ma who lack visions and faiths are like the fish farmed by the CCP, which will eventually rip them off; but our NFSC citizens will never be ripped off, and we are saving the world!<br/><br/>11/11/2021 文贵直播：每位战友都是新中国联邦历史的参与者；新中国联邦人的财富在于没打新冠疫苗且开了智；相反，沈南鹏和马云等境界低、无信仰的人好比是中共放水养的鱼，必将任中共宰割；但新中国联邦人永远不会被宰割，而且我们正在拯救全人类！<br/>
 ![img](https://media.gettr.com/group41/getter/2021/11/13/04/25/d5c33f5b-c7ba-cbdf-7a81-f5bda551f6a0/out.jpg)
-
----
-
-`@miles 11/13/2021 2:48 AM (UTC)`
-
-11/11/2021 Miles Guo: One of U.S. Military Industry Groups would like the New Federal State of China to join it;  It is because we strategically and accurately grasped the current situation on politics, economy, military, culture and finance; It is also the result relying on our strength and action<br/><br/><br/>11/11/2021 文贵直播：美国某军工集团希望新中国联邦加入，这是新中国联邦战略性、准确性地把握政治、经济、军事和金融时局的结果，也是我们靠实力、靠行动说话的结果<br/>
-![img](https://media.gettr.com/group26/getter/2021/11/13/02/48/4a4f04f5-bddc-346b-9208-c76f267860a2/out.jpg)
 
 ---
 

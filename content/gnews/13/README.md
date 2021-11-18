@@ -2,48 +2,27 @@
 ---
 
 
-## 全球“突然死亡”词条搜索创历史新高
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1673186/)
+## 与拜登的视频对话上习近平警告不要玩火
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1673193/)
 
-作者：纽约香草山农场 – 四季
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/joe-biden-und-xi-jinping-am.jpg)
 
 
+资料来源：FAZ
 
-据[零对冲](https://www.zerohedge.com/political/worldwide-search-trend-died-suddenly-spikes-record-highs)11月17日报道，一个全球范围内爆发的谷歌搜索趋势引起人们关注——词条“突然死亡”的搜索量在过去两个月中飙升至自2004年起的历史最高点。
+在周二举行的中美两国元首首次在线会议上，台湾冲突成为议程的重要议题。双方强调必须避免军事冲突。 “作为中美两国领导人，我们的责任是确保两国之间的竞争不会演变成冲突，无论是有意还是无意，”乔拜登在虚拟会面开始时说。因此，应架设“常识护栏”。要“保持沟通渠道畅通”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1445.png)欧洲的头条新闻拼凑出人们突然死亡的神秘趋势。（图片来源：零对冲）
+习近平还提出要加强双方“交流合作”，“和平共处”。必须防止中美两艘“巨型油轮”相撞。然而，他随后对台湾的评论提醒我们，该岛共和国周围的局势仍然很危险。 “如果台独势力挑衅、推进或越过红线，我们必须果断采取行动，”根据中共国外交部发布的文本，习近平说。他再次威胁“美国方面的一些人”，他们“想利用台湾控制中共国”。这是一个非常危险的发展。习说：“玩火会被烧死。”
 
-联想到不久前一篇题为“德国报纸强调最近倒下的足球运动员的不寻常的数量”的[文章](https://www.zerohedge.com/medical/german-newspaper-highlights-unusually-large-number-soccer-players-who-have-collapsed)，文章概述了德国报纸《柏林日报》“最近有异常多的职业和业余足球运动员倒下了”的报道，并表示，“虽然这不是死亡，但体育运动员的突然倒下似乎非常奇怪，可能与健康有关。”
+这些话也是对他自己的听众说的，中共国领导人不想对他们表现出任何软弱。不过，习近平也说了一个他在台湾方面很少用的词：耐心。 “我们有耐心并准备尽最大努力以最认真的态度为和平统一的前景而努力。”这可能是为了向华盛顿发出信号，表明中共国也对军事对抗不感兴趣。
 
-近期，越来越多的普通人、运动员及政治家突然倒地，而这些人大多都施打了疫苗。人们应密切关注这一时所罕见的趋势。
+白宫表示，拜登总统已明确表示“美国坚决反对单方面改变现状的努力”。本着北京的精神，他补充说，美国坚持一个中共国的原则。然而，华盛顿对此的定义与北京截然不同。习近平周二再次错误地声称，这包括承诺说台湾是中共国的一部分。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+原文链接：[新闻来源：德国法兰克福报网页版](https://www.faz.net/aktuell/politik/ausland/xi-jinping-und-biden-ueber-taiwan-niemand-soll-sich-einmischen-17636794.html)
 
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+责任编辑、发布： Shuizhuyu
 
  
 
