@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/18/2021 8:38 PM (UTC)`
+
+11月18日: 我们的笨笨有女朋友啦～～～ 他们将过上幸福快乐的日子, 让我们见证他们的成长吧♥️♥️
+![img](https://media.gettr.com/group34/getter/2021/11/18/20/be3009f6-a3bc-188f-8da0-910bf2f63592/90ebbd9e21329ed9f42fd6b81dfc6314.jpg)
+
+---
+
+`@miles 11/18/2021 8:26 PM (UTC)`
+
+11月18日: 自娱自乐模式启动🤣🤣🤣🤣🤣
+![img](https://media.gettr.com/group42/getter/2021/11/18/20/26/f07426d3-fdfd-044d-1adc-06a58846a0d8/out.jpg)
+
+---
+
 `@miles 11/18/2021 8:17 PM (UTC)`
 
 11月18日: 笨笨说，“Snow，出来跟我玩儿嘛……” Snow说, “我不要啦，让我静静的做个美男子好不好啦 ！”😆😆😆😆😆😅😅😅😅😅 
@@ -286,20 +300,6 @@ Shop 'The Drop' at www.GFashion.com<br/><br/>@gfashion <br/>@ddnyc
 
 11月15号：尊敬的战友们好，全世界都在准备着……共产党擀面杖子的虚假经济．即将崩塌，而准备各自的经济大逃亡……
 ![img](https://media.gettr.com/group49/getter/2021/11/15/16/23/8c27ef50-aa7e-fc69-e1af-4efebcef4492/out.jpg)
-
----
-
-`@miles 11/15/2021 3:22 PM (UTC)`
-
-11月15号：尊敬的战友们好，你们健身了吗？传播C C P病毒和疫苗解药的真相了吗？一切都已经开始！
-![img](https://media.gettr.com/group40/getter/2021/11/15/15/22/0de14503-0bca-b551-4972-1194c3e6bd7f/out.jpg)
-
----
-
-`@miles 11/15/2021 11:37 AM (UTC)`
-
-Dr. Shankara Chetty (a general practitioner with a natural science background in genetics, advanced biology, microbiology and biochemistry): <br/>Spike protein is one of the most contrived toxins or poisons that man has ever made, and the aim of this toxin is to kill billions without anyone noticing it.<br/><br/>Shankara Chetty 博士（在遗传学、高等生物学、微生物学和生物化学领域具有自然科学背景的全科医生）：<br/>刺突蛋白是人类有史以来最精心策划的毒素或毒药之一,这种毒素的目的是在没有人注意的情况下杀死数十亿人。 #vaccinedeath #covid19 #covidtruth
-![img](https://media.gettr.com/group25/origin/2021/11/15/11/37/da29db16-3ed1-6243-c921-b24ff40a42f7/out.jpg)
 
 ---
 

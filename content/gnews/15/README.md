@@ -2,53 +2,90 @@
 ---
 
 
-## 房地产公司正越来越多地接受加密货币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1675371/)
+## 报告：中共推进马克思主义全球化对抗西方领导的国际秩序
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1675382/)
 
-**【简评：】***在萨尔瓦多将比特币作为法定货币之后，纽约市开始采用比特币，并在房地产领域引发了一场风暴。我们看到虚拟货币的应用场景正在逐步扩大，纽约、新加坡等都在力争成为加密货币中心，人们已经不能阻挡加密货币的历史潮流。同时我们也看到，对加密货币的监管措施也在逐步提升，无责任主体的虚拟币如比特币等注定要被人们抛弃。而有强大财团投资背书、有20%黄金储备、有合法合规的独立公司主体的喜币，必将展现其强大的魅力，被更多国家主体认可、实现全球范围内的流通和财富保障。*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/111803-1.jpg)2021年6月25日北京，新建的中国共产党博物馆外巡逻的中共国武警。（凯文•弗雷尔/盖蒂图片社）
+**摘要翻译：**
 
-据《雅虎财经》 2021年11月15日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-420-e1637260840752.png)图片来源：雅虎财经网
-视频链接：
+《大纪元时报》11月17日报道，
+
+根据美国国会咨询机构的一份新报告，中共政权试图破坏当前的国际体系，用中共领导的马克思主义秩序取而代之。
+
+美中经济与安全评估委员会(USCC)主席卡罗琳‧巴塞洛缪(Carolyn Bartholomew，白嘉玲)在11月17日的报告发布会上说：“在中共成立一百周年之际，中国共产党要领导全球的野心变得越来越清晰。”
+
+白嘉玲表示，2021年，中共继续扩大与其他国家的对抗，其侵略行为日益引起国际社会的关注。
+
+她说：“中共政府宣布了它为世界提供‘人类文明新模式’的目标，但却加深了其对侵略、战狼行为和高压政治的信奉，这加剧了整个印太及世界其它地区对中共政权崛起的担忧。”
+
+这份长达551页的两党报告，是在美国总统乔·拜登与中共总书记习近平举行首次虚拟峰会几天后发布的，这次峰会未能在缓解两国之间持续的紧张局势方面取得实质性进展。
+
+在报告中，该委员会概述了中共对全世界民主国家所构成的威胁，并补充说，中国共产党的马克思主义意识形态和无法接受批评的态度，正使其走上全球冲突的道路。
+
+报告指出：“由于缺乏代议制治理体系，中共还利用其政治模式的优越性来为其独裁统治辩护，并将任何批评或承认失败视为对其合法性的威胁。”
+
+“因此，中共领导人感到有责任强调他们所认为的中共独裁体制的优势，即使面对明显的系统性失败。”
+
+报告还指出，中共领导层的花言巧语越来越多，声称该党一直在为“中国的秩序”和“西方的混乱”之间的对抗做准备。报告强调了日益增长的打击“强敌”的承诺，这是中共经常用来形容美国的一个词。
+
+此外，报告还指出，在今年早些时候中国共产党庆祝其成立一百周年之际，其领导层敦促中共国人民“为与美国和其他民主国家就全球秩序的未来，进行长达数十年的对抗做好准备”。
+
+中共领导人上周在六中全会公报中重申，其致力于发展和传播马克思列宁主义，他们拥护“中国特色的社会主义”，并表示他们正在“创造人类文明新模式”。
+
+与此相关的是，该报告发现，中共正在采取全政府模式(WGA)来破坏美国及其盟友。中国共产党表示，该党致力于颠覆国际机构，并建立新的地区和国际机构来取而代之，以努力扩大中国共产党在海外的影响力。
+
+**野心勃勃**
+
+委员会成员、前参议员吉姆·塔兰托(Jim Talent)将中共的野心描述为“全球化”，并表示其独裁意识形态旨在取代美国，而不是与美国共存。
+
+“他们的意图……是朝着他们的’人类命运共同体’迈进，很明显，他们将其定义为用类似于等级制度的、以中共国为首的国际秩序，取代现有的基于规则的国际秩序。”塔兰托说。
+
+“我认为在这里我们都会意识到这种野心的程度。”
+
+该报告指出了中共试图在国外实现这些野心的多种方法，包括军事教科书、高调的虚假信息和政治战争活动。
+
+例如，最新版的中共国军官教科书中有一个关于政治战争的新章节，称未来的冲突将需要一个训练有素的“隐蔽战线”以在敌人内部“煽动叛变”。
+
+报告中的另一个例子，提到了加拿大政府要求中共释放两名加拿大人，这两名加拿大人被广泛认为是在中共政府的“人质外交”运动中被当作政治犯关押的。中共外交官对这一要求的回应是利用热点问题使加拿大政府失去合法性，指责该要求助长“西方利己主义和白人至上主义”。
+
+在另一个例子中，中共政权的最高级外交官杨洁篪向拜登政府提出了一份要求清单，其中概述了美国需要做些什么才能与中共国建立建设性关系。
+
+声明说，美国必须放弃一切与中共国的竞争，停止一切遏制中共在美国境内的影响力活动，对中共破坏台湾稳定的行为和在香港、西藏以及新疆的侵犯人权的行为保持沉默。
+
+报告称，这份清单表明中共对其与美国的关系抱有更广泛的希望。
+
+报告称：“杨的框架表明，中共国不再寻求合作或寻找共同点，而是现在就要求美国必须服从中共国的所有偏好。”
+
+**简评：**
+
+美中经济与安全评估委员会，是一个美国政府于2000年10月通过国会授权设立的，是负责监督和调查美国与中共国之间的国家安全和贸易问题的机构。成员由两党国会议员所任命，每年发布年度报告，被认为是美国国会、白宫，决定美中政策的重要指南。
+
+美中经济与安全评估委员会在2019年11月的报告中建议：美国不应该再称呼中共国领导人习近平为“中共国国家主席”，避免外界以为其为民选领袖，应该以中国共产党最高领导人的职衔“中共总书记”称呼他。这说明，美国对于中共政权在中共国的非法统治地位有清晰的认识。
+
+从今年的年度报告相关内容可以看出，美国对中共政权意欲取代美国、控制全世界的野心非常了解，如今缺乏的只是一个强势的政府。再看如今美国的政治局势，由于民主党人未能履行他们主要的竞选承诺，以及人们对新冠大流行的愤怒仍在升温，拜登政府的执政能力，从内政到外交都在饱受质疑，民众的支持率正在下降，2022年的中期选举，共和党代表的保守派力量很可能大赢。如果共和党通过中期选举控制了参议院和众议院，就可以控制议事日程。到那时，中共政权想要借助软弱的拜登政府搞弱美国，利用他们领导的马克思主义秩序，破坏当今基于规则的国际秩序的企图必将破产。
+
+《美国之音》在11月18日发表的文章“[USCC: “既自信又恐惧”的中共，未来可能会更加强势](https://www.voachinese.com/a/uscc-annual-report-11172021/6317079.html)”对美中经济与安全评估委员会今年的年度报告有更进一步的解读，推荐阅读。
+
+新闻链接：[Chinese Regime Advances Global Marxism to Confront Western-Led International Order: Report](https://www.theepochtimes.com/chinese-regime-advances-global-marxism-to-confront-western-led-international-order-report_4109499.html)
+
+***翻译/简评**：Harvey (叶知秋)*
+
+***校对**：Julia Win*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-[https://edgecast-vod.yimg.com/geminivideoads/f7d0079f-1585-5521-8afa-d950b591979b/video\_output\_101.mp4](https://edgecast-vod.yimg.com/geminivideoads/f7d0079f-1585-5521-8afa-d950b591979b/video_output_101.mp4)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
-对话实录
-
-JULIE HYMAN：你也许不会使用加密货币或比特币来购买披萨，但它正被用于越来越多的项目，比如说NFTs（Non-Fungible Tokens，非同质化代币）。但是，奢侈品交易或大额交易能否使用加密货币，比如房地产交易？这是雅虎财经的Jennifer Schonberger一直在研究的问题。事实上，这似乎正在发生。
-
-JENNIFER SCHONBERGER：嘿，早上好，朱莉。是的，**加密货币正被越来越多地用于房地产交易。事实上，在纽约，已经出现了第一个接受比特币交易的商业房地产项目。Magnum房地产集团正在出售三套零售公寓，在曼哈顿上东区的底层完全出租，售价2900万美元，但他们只接受比特币。**
-
-虽然这是以比特币进行交易的第一个商业房地产项目，但我们已经看到过去几年住宅方面的房地产交易和加密货币正在回升。为Magnum处理房地产交易的加密货币支付处理商BitPay的CMO Bill Zielke说，过去几年，该公司一直在为国际买家处理加密货币房地产交易，最近在美国处理美国西部的滑雪屋和纽约的房产。在上市商业地产之前，Magnum房地产公司使用比特币做了三笔住宅交易，其中一笔交易位于上东区，以超过1500万美元的比特币价格成交。
-
-Magnum房地产公司的管理合伙人Ben Shaoul说，他预计加密货币的交易将继续增长。
-
-Ben Shaoul：我看到加密货币交易的跑道呈指数增长。比特币处于历史高位的事实，你知道，显然有帮助。但我认为投资者就是投资者，他们在拥有比特币方面做得非常非常好。而现在，他们正在寻找现金流资产。
-
-JENNIFER SCHONBERGER：随着比特币与其他加密货币价格的持续飙升，这些创纪录高点和投资者对房地产的需求之间存在相关性。因此，正如Shaoul提到的，我们应该期待房地产市场的加密货币交易部分在未来几年继续增长。JULIE？
-
-JULIE HYMAN：但当然，每当我听到这些东西，价格就会有很大的变动。比如，你如何决定比特币的交易量？比如，什么时候？你知道，如果你决定要用比特币买这个公寓，然后（比特币的）价格大幅波动，会发生什么？就像，他们怎么……我不知道。你是如何知道这些的？
-
-JENNIFER SCHONBERGER: 是的，我的意思是，我想这真的只是——就像你说的，这确实取决于价格。但是，如果你已经积累了足够的财富，而且你觉得你想兑现，你想把它部署到另一个现金流资产中，无论是投资还是别的。你知道，你（有了）真正想住的地方——那么你就能够转让。顺便说一句，这非常有趣，因为当你用比特币或加密货币进行交易时，结算过程会逐渐加快。
-
-**它只在第二天就结算了，而不是花30到90天来尝试结算这笔交易。所以我想，如果你很着急，或者你是一个国际买家或投资者，使用加密货币肯定也会让支付过程更容易。**
-
-JULIE HYMAN：也许是这样。好的，我们将依靠你让我们了解这一趋势，这一蓬勃发展的趋势。
-
-英文链接：[https://www.yahoo.com/news/real-estate-companies-increasingly-accepting-161153297.html?guce\_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS91cmw\_cT1odHRwcyUzQSUyRiUyRnd3dy55YWhvby5jb20lMkZuZXdzJTJGcmVhbC1lc3RhdGUtY29tcGFuaWVzLWluY3JlYXNpbmdseS1hY2NlcHRpbmctMTYxMTUzMjk3Lmh0bWwmc2E9RCZzb3VyY2U9ZWRpdG9ycyZ1c3Q9MTYzNzE3Mzk2Njg1ODAwMCZ1c2c9QU92VmF3MEtvUEhZbmM2N0dCYmxPTFE1ci0tQg&guce\_referrer\_sig=AQAAAFB6gCkwKZhodZJ9LCY-6iVvb6XKLoJShcgrJkvBSjBpeRRPUxzLV6a63Xx6H9mi2CWDpFZ\_SKVIqybcVT1pGYkbauUDlF4xHeCPeeY01sM5rgQGj0WOWgFydpFIEg01ddGBlSkWJXcWBwql-7J-MwKENPERtoPU3Z7Qi3MAb-6s&\_guc\_consent\_skip=1637171417](https://www.yahoo.com/news/real-estate-companies-increasingly-accepting-161153297.html?guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS91cmw_cT1odHRwcyUzQSUyRiUyRnd3dy55YWhvby5jb20lMkZuZXdzJTJGcmVhbC1lc3RhdGUtY29tcGFuaWVzLWluY3JlYXNpbmdseS1hY2NlcHRpbmctMTYxMTUzMjk3Lmh0bWwmc2E9RCZzb3VyY2U9ZWRpdG9ycyZ1c3Q9MTYzNzE3Mzk2Njg1ODAwMCZ1c2c9QU92VmF3MEtvUEhZbmM2N0dCYmxPTFE1ci0tQg&amp;guce_referrer_sig=AQAAAFB6gCkwKZhodZJ9LCY-6iVvb6XKLoJShcgrJkvBSjBpeRRPUxzLV6a63Xx6H9mi2CWDpFZ_SKVIqybcVT1pGYkbauUDlF4xHeCPeeY01sM5rgQGj0WOWgFydpFIEg01ddGBlSkWJXcWBwql-7J-MwKENPERtoPU3Z7Qi3MAb-6s&amp;_guc_consent_skip=1637171417)
-
-翻译：洛杉矶盘古农场–Mike Li
-校对：洛杉矶盘古农场–比格渣餐厅老板の娘
-评论：洛杉矶盘古农场–比格渣餐厅老板の娘
-编辑：洛杉矶盘古农场–心照
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

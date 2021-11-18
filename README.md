@@ -15,82 +15,82 @@
 
 ---
 
-### [FDA要求联邦法官55年后才完全公布其疫苗数据](/content/gnews/1/README.md)
+### [西媒头条 — 第112期](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [FDA要求联邦法官55年后才完全公布其疫苗数据](/content/gnews/2/README.md)
  ` HimalayaRussia`
 
-### [拜登的疫苗强制的法律斗争预计将进入最高法院](/content/gnews/2/README.md)
+### [拜登的疫苗强制的法律斗争预计将进入最高法院](/content/gnews/3/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [斯洛伐克对未接种疫苗的人实施封锁](/content/gnews/3/README.md)
+### [斯洛伐克对未接种疫苗的人实施封锁](/content/gnews/4/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [独家｜消息人士称美国要求中国释放石油储备作为经济合作讨论的一部分](/content/gnews/4/README.md)
+### [独家｜消息人士称美国要求中国释放石油储备作为经济合作讨论的一部分](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [DC每日热点1118](/content/gnews/5/README.md)
+### [DC每日热点1118](/content/gnews/6/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中国可以摧毁加密货币生态系统？](/content/gnews/6/README.md)
+### [中国可以摧毁加密货币生态系统？](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年11月17日郭文贵先生直播全文字版](/content/gnews/7/README.md)
+### [2021年11月17日郭文贵先生直播全文字版](/content/gnews/8/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [三十几个国家已跟中共脱钩，喜币真正价格体现在三个标志事件](/content/gnews/8/README.md)
+### [三十几个国家已跟中共脱钩，喜币真正价格体现在三个标志事件](/content/gnews/9/README.md)
  ` MG 澳喜农场多语组`
 
-### [突发：辉瑞隐瞒了COVID-19疫苗临床试验的死亡人数](/content/gnews/9/README.md)
+### [突发：辉瑞隐瞒了COVID-19疫苗临床试验的死亡人数](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [家庭反洗脑序列：第35篇 钱币](/content/gnews/10/README.md)
+### [家庭反洗脑序列：第35篇 钱币](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [蜂蜜的“幌子”](/content/gnews/11/README.md)
+### [蜂蜜的“幌子”](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [突发：辉瑞称拜登政府将以 50 亿美元的价格购买 1000 万粒 COVID 药丸](/content/gnews/12/README.md)
+### [突发：辉瑞称拜登政府将以 50 亿美元的价格购买 1000 万粒 COVID 药丸](/content/gnews/13/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [FDA 在隐藏了什么？等 55 年再发布辉瑞 COVID 疫苗试验信息？](/content/gnews/13/README.md)
+### [FDA 在隐藏了什么？等 55 年再发布辉瑞 COVID 疫苗试验信息？](/content/gnews/14/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [报告：中共推进马克思主义全球化对抗西方领导的国际秩序](/content/gnews/14/README.md)
+### [报告：中共推进马克思主义全球化对抗西方领导的国际秩序](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [房地产公司正越来越多地接受加密货币](/content/gnews/15/README.md)
+### [房地产公司正越来越多地接受加密货币](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国职业安全与健康管理局（OSHA）暂停执行强制疫苗接种令](/content/gnews/16/README.md)
+### [美国职业安全与健康管理局（OSHA）暂停执行强制疫苗接种令](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国在台湾的扩张主义政策是不可接受的](/content/gnews/17/README.md)
+### [中共国在台湾的扩张主义政策是不可接受的](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [卡马拉·哈里斯副总统要被拜登总统解职吗？](/content/gnews/18/README.md)
+### [卡马拉·哈里斯副总统要被拜登总统解职吗？](/content/gnews/19/README.md)
  ` HimalayaRussia`
 
-### [银河快讯: 去年日本海外动漫产业首超国内；油价持续上涨影响纳豆容器](/content/gnews/19/README.md)
+### [银河快讯: 去年日本海外动漫产业首超国内；油价持续上涨影响纳豆容器](/content/gnews/20/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [德国将对未接种疫苗的人实施封锁](/content/gnews/20/README.md)
+### [德国将对未接种疫苗的人实施封锁](/content/gnews/21/README.md)
  ` MG FARM`
 
-### [FDA将不听专家小组的意见，批准辉瑞疫苗加强针](/content/gnews/21/README.md)
+### [FDA将不听专家小组的意见，批准辉瑞疫苗加强针](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国国务院在“危险、鲁莽”的卫星击落后警告俄罗斯](/content/gnews/22/README.md)
+### [美国国务院在“危险、鲁莽”的卫星击落后警告俄罗斯](/content/gnews/23/README.md)
  ` MG FARM`
 
-### [中共军队正在购买什么 （二）](/content/gnews/23/README.md)
+### [中共军队正在购买什么 （二）](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日本政府将设立5000亿日元基金支持尖端技术研发](/content/gnews/24/README.md)
+### [日本政府将设立5000亿日元基金支持尖端技术研发](/content/gnews/25/README.md)
  ` HimalayaRussia`
 
-### [中共国再次打击加密货币 比特币下跌7%](/content/gnews/25/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/26/README.md)
+### [中共国再次打击加密货币 比特币下跌7%](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
 ### [参议员怒批拜登不提病毒溯源](/content/gnews/27/README.md)
