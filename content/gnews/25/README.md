@@ -2,161 +2,50 @@
 ---
 
 
-## 美国媒体大重启大药厂封杀疫苗事件和共产党罪行
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672987/)
+## 2021/11/17 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1672999/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tt-asp84-zw5tb.jpg)
-[https://gtv.org/video/id=6195006e18270250810628cb](https://gtv.org/video/id=6195006e18270250810628cb)
+板块1–拜习会谈
 
-**郭文贵**
-**Miles Guo**
+1. 拜习峰会就伊朗核问题达成统一立场。伊核协议是奥巴马时期重要外交成果，拜习早已“合作共事”过，中共一直在背后支持伊朗核发展，“伊核老话题”重提只是中共又一张“空头支票”。再次证明峰会没有实际成果。
+2. 美俄制定“核削减计划”和“中导条约”逐渐实施初步达成美俄平衡，中共国暗地发展核武和中程导弹打破平衡，制造不稳定的氛围。
+3. 中共宣传拜登为“老朋友”以敲打、威胁拜登，因拜登家族跟中共的利益关系、亨特拜登事件等，拜登刻意回避“老朋友”称呼，显然“老朋友”这层关系已成为其负担。
+4. 拜登政府即将宣布外交抵制冬奥会，拜习峰会后双方“剑拔弩张”表明双方谈判分歧巨大。
+5. 拜习视频通话同时解放军军机侵犯台湾领空。中共通过海外媒体利用炒作“台独”威胁警告美方，并用军事行动强迫美国在台海问题上接受现状。拜登政府进退两难（一面用台湾完成与中共勾兑，一面面对丢弃台湾的政治压力）。
 
-另外一个班农事情意味着什么
-Another one is that what does the Bannon incident signal?
 
-美国媒体大重启
-The U.S. media’s big actions resume,
+板块2–财经
 
-大重启
-The huge resume
+1. 中共对虚拟资产零容忍态度，中共国加密货币媒体暂停网站（ChainNews和Odaily无法访问）。凸显中共对喜币的害怕，喜币价格继续看涨。。
 
-就班农事件你看高兴的是谁
-You can tell who was happy by the Bannon incident
 
-不高兴的是谁，你看得出来
-and who was upset
+板块3–国内政治
 
-疫苗没人报道
-The vaccine disaster has not been reported by anyone
+1. 王岐山谈中共国不能独立于世界发展并将继续开放对外投资。此时“搬出”王岐山继续“忽悠”世界资本，凸显中共国内部经济已经“危如累卵”。
+2. 民主党“1月6日委员会”成员伊莱恩·卢里亚被曝投资中共国阿里巴巴。中共“蓝、金、黄”民主党的又一案例，为共和党反击民主党提供“工具”，促使两党更多人觉醒。
+3. 武汉外逃官员8套房产被没收，多名外套官员被追赃。结合中共“强筛”官员进国际刑警组织事件，中共欲警告体制内的官员，“杀鸡儆猴”式阻止官员外逃，防止党心军心溃败。
+4. 环球时报报道张玉静形容其为倒霉女子。中共深知美国已掌握张玉静上下线、相关犯罪证据已收集完毕，环球时报代表中共示好，张玉静已成“弃子”。
 
-美国严肃媒体的50%到75%的广告费来自何方
-Where do these 50% to 75% of the serious media advertising charges in the United States come from?
 
-全是大药厂
-They are all major pharmaceutical factories
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
 
-全世界特别是美国的严肃媒体的50到65到70的广告费
-50% to 70% of advertising fees for serious media in the world, especially in the United States
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
 
-来自于大药商
-are coming from major pharmaceutical factories
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E5%A4%A7%E5%8D%AB%E4%BD%9C%E6%88%98%E5%AE%A4-1.jpg)
+*听写：call me uncle | 校对：乐禧禧*
 
-所以疫苗没人说话呀
-That’s why nobody talks about the vaccine disaster
+* * *
 
-疫苗没人说话
-No one covers the vaccine disaster
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-共产党的事也没人说话
-No one talks about things that the CCP does
 
-Eglise你想过这问题吗
-Eglise, have you ever thought about this issue?
-
-为什么疫苗没人说
-Why nobody talks about vaccines,
-
-共产党在美国对班农的事也没人说
-nor talks about how the CCP targeting Bannon in the United States
-
-这说明他是(同)一个老板哪, 对吧？
-These indicate they have the same boss. Correct?
-
-邪恶和共产党是一个老板
-The evil and the Communist Party are the same boss
-
-这对美国威胁大了去了
-This is a severe threat to the U.S.
-
-我们提前42天的警报证明了以下的问题
-Our 42-day early warning has proved the following problems
-
-而且这些对班农大媒体对他整个的封杀
-and the Bannon incident which he was completely banned from major media
-
-还有整个的完全无视真相的忽视
-as well as the whole ignorance of completely ignoring the truth
-
-然后看好要抓这个班农
-Then, I’m optimistic about arresting Bannon
-
-我说你啥时侯被抓啊，赶快抓呀？
-I asked when did you (Bannon) get arrested, hurry up?
-
-他说我等着呢，没抓啊
-He said he was still waiting
-
-我说你赶快（被）抓了吧
-I was joking that hurry up got arrested
-
-现在我是真希望你能到某个我们的小船上等着去
-Now I really hope that you can wait in one of our boats
-
-再在船上把你给抓走啊
-then you got arrested in the boat and taken away
-
-所以说这次班农无疑成为美国的政治教父
-So this time Bannon will undoubtedly become the political godfather of the United States
-
-这是绝对的
-This is absolute
-
-更重要它团结了（美国人）
-the most significant is that the American people have united
-
-我刚刚看到这个
-I have just seen this one
-
-川普发出了新的文章
-Trump have published a new article
-
-我发给你们群里边
-I’ll send it to your group chat
-
-这是很大的事情
-This is a huge event
-
-所以说兄弟姐妹们
-So, brothers and sisters
-
-这个时候咱们新中国联邦的一个宣言人成了世界的焦点，是吧？
-At this time, one of our New Federal State of China’s declarers has become the fo-cus of the world, right?
-
-成了一个美国的政治当中最重要的风水标
-He has become one of the most important weathercock in American politics
-
-受益者当然是新中国联邦，是吧？
-The beneficiary is of course the New Federal State of China, right?
-
-这个意义大到哪儿去了
-What’s the significance of this?
-
-谈班农不谈郭文贵好像这事都过不去，是吧？
-Talking about Bannon but not Guo Wengui seems to be hard to get through, right?
-
-谈班农不谈咱新中国联邦都过不去
-It doesn’t make any sense that talking about Bannon but not the New Federal State of China
-
-**原视频链接:** [https://gettr.com/post/pgzhxnc17a](https://gettr.com/post/pgzhxnc17a)
-
-Date: 11/14/2021
-原视频标题: 班农事件意味着美国媒体大重启大药厂封杀疫苗事件和共产党罪行
-The Bannon incident indicates that the U.S. media has resumed that the major drug factories blocking vaccine incidents and the Communist Party crimes
-原视频日期：2021/11/14
-任务编号：KC260（2895）
-视频时间段 : 0:00-2:14
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

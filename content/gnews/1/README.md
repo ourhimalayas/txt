@@ -2,45 +2,53 @@
 ---
 
 
-## 纽约助理医师成为吹哨人，报告揭露疫苗伤害被禁言
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1673322/)
+## 2021年11月17日文贵先生大直播摘要——银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1673338/)
 
-#### **翻译：钢豆奶油面包**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/snapshot_副本-3.jpg)
+视频连接：[2021年11月17日 文贵大直播：再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向](https://gtv.org/video/id=6194fda8e7e7703792363972)
 
-#### **编辑：朝花夕拾****/****文泓**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-389.png)**图片来源：墨尔本雅典娜农场设计组**
-美国FDA和CDC（有意）忽略了一个医院超过90%的入院病人均接种过新冠疫苗，但是没人就此事向疫苗不良事件报告系统(VAERS)报告这一令人震惊的数据。
+1、喜币上市不到三周，创造了人间奇迹，很多战友都躺平了。人穷就穷在脑子。你躺平那一刻起，你就会失去喜币
 
-纽约医院助理医师黛博拉·康拉德勇敢地报告了这些疫苗伤害，如今她被VAERS禁止再次提供报告。
+2、病毒与疫苗阴谋和钱有关系：超发的货币杠杆化，其中最重要的就是保险要兑现保单，背后是、政府、药厂、媒体和邪恶势力勾结，共产党是邪恶中的邪恶，中国共产党是邪恶势力的大总部
 
-黛博拉·康拉德，这位心存忧虑的助理医师坦诚曝光她工作的医院，她认真地追踪了每一个他们医院病人的新冠疫苗接种状况。
+3、这场人间的大浩劫，灾难远远没有到来！冠状病毒和疫苗就是母子武器，阴阳武器，就是用来杀人的！战友们要做好最坏的准备。新中国联邦是唯一的抱团取暖的群体
 
-结果是令人震惊的！
+4、CCP支持塔利班占领阿富汗，已经死了几万人，预计80天，就会200-300万人由于饥饿和战乱而死亡。阿富汗的今天就是中国人的明年
 
-他们医院服务社区那里的人们新冠疫苗接种率低于50%。相同的时间段内，大约90%的入院病人都接种过新冠疫苗，并且这些病人都因为不同的原因入院，包括新冠病毒感染。令人困惑的是有许多的病人是年轻人，他们中的许多人入院时是打过疫苗后几个月，表现出不寻常的不应该有的健康问题。
+5、现在冬奥会怎么来的? 查查 每届奥运会 没有一届没有丑闻的 所有代表 CCP简直是堵着门拿下 过去是给男的送女的 这一次甚至给女的送男的 某女的(有投票权的)喜欢男孩 给她送去几个会跳舞的男孩
 
-人们或许认为这种相似的症状被一个健康医疗专家发现后，至少我们政府健康权力机构应该调查一下是吧？
+6、冬奥CCP搞的话 对咱有好处 搞了有3个可能:（1）病毒加剧 世界恨它 （2）对习来讲不是好事儿 （3）中国经济这样了 你知道冬奥会发生啥事儿
 
-可悲的是，当康拉德女士向健康权力机构联系后，她根本得不到回应。
+7、六中全会后 习一定会面临着随时被做掉的可能 傅振华 孟建柱 逮着机会一定会动手的
 
-2021年7月19日，当律师事务所为康拉德女士向CDC和FDA递交信函，再次不被理睬。
+美国 中共内都相信 把习干掉 中共国得平安 相信在中国一定会发生 最大受益者是新中国联邦 最大受害者是现在在墙内的同胞
 
-更严重的是，当有医生为他们的病人寻求康拉德女士的协助向VAERS报告时，医院禁止她提交（相关）报告。
+8、喜币美加日开放？喜交所的交易牌照没有在美加日获得批准，但虚拟货币在全球任何国家使用是不受限制的
 
-CDC和FDA的不回应一点都不令人吃惊，他们一直都是疫苗的啦啦队，有一天新冠疫苗的伤害会显现在他们自己身上。
+9、喜联储是合法的发币机构，会有发行可兑付的现代化的加密纸币或者金币
 
-康拉德的报告不仅提供了对CDC审查过程的深入了解，而且证实了只有1%的疫苗不良事件得到报告的说法。事实上，她所在的医院警告她停止报告，然后院方解雇了她。
+10、通过你的智慧和谦虚，持续见高人 ，会遇到更厉害的高人，这对个人的开窍至关重要。七哥最早认识美国就是从科技界开始的。
 
-资料链接：
-1、[“THESE PATIENTS DESERVE TO BE HEARD” -VAERS WHISTLEBLOWER – The HighWire](https://thehighwire.com/videos/these-patients-deserve-to-be-heard-vaers-whistleblower/)
-2、[Sentinel fails in vaccine reporting, by John-Michael Dumais | Letters To The Editor | sentinelsource.com](https://www.sentinelsource.com/opinion/letters_to_the_editor/sentinel-fails-in-vaccine-reporting-by-john-michael-dumais/article_41ace816-e981-511c-8e0a-406d94239533.html)
+编辑整理：文俊
 
-发布：文泓
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+发布：黎明之前
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
