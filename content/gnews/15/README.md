@@ -2,40 +2,22 @@
 ---
 
 
-## 英国F-35战机坠入地中海，原因有待调查
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1674055/)
+## 新冠疫苗-制药公司每分钟价值6.5万美元
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1674111/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11173-1.jpg)图片来自altalex.com
+来自人民疫苗联盟的一份报告中所包含的估计称：由于新冠疫苗的普及，辉瑞、BioNTech 和 Moderna 每分钟赚取 65000 美元，或每秒超过 1000 美元。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/38GpPO-OFFICIAL-20181127-208-0001.jpg)
+人民疫苗联盟非洲部门的马扎塞尤姆说：“令人不快的是，很少有公司每小时能赚取数百万美元的利润，而只有 2% 的低收入国家接种了两剂新冠病毒疫苗。”
 
+意大利乐施会全球卫生政策顾问萨拉·阿尔比亚尼 (Sara Albiani) 和罗塞拉 (Sara Albiani) 表示：“辉瑞、BioNTech 和 Moderna 继续利用他们的垄断地位，优先考虑与富裕国家签订的明显更有利可图的合同.”
 
- 
-图片来源：www.raf.mod.uk
+尽管获得了超过 80 亿美元的公共资金，这 3 家公司继续拒绝通过世界卫生组织与现成的低收入和中等收入国家的合格生产商分享专利、技术和专有技术。
 
+原文链接：[https://www.today.it/economia/vaccini-quanti-soldi-guadagnano.html](https://www.today.it/economia/vaccini-quanti-soldi-guadagnano.html)
 
-#### 编译：小红帽
-
-英国国防部(MoD)表示，一名从伊丽莎白女王号航空母舰上起飞的英国F-35飞行员在地中海上空的一次例行行动中不得不从飞机上弹射。
-
-飞行员被救起，但这架价值1亿英镑的隐形飞机在英国时间上午10点左右发生的事件中坠入大海。国防部消息人士说，没有涉及其他船只或飞机。
-
-国防部长发言人说，事故发生在F-35起飞后不久，但尽管发生了事故，其他涉及喷气机的操作和训练飞行目前仍在进行。
-
-这是英国皇家空军F-35B战机的第一次事故，尽管在过去三年中曾发生过几起涉及战机的事故。最相似的事故发生在2018年9月，涉及一架F-35B，当一名美国海军陆战队员飞行员，不得不在南卡罗来纳州弹射。故障归咎于的发动机管子。
-
-坠机事件将由国防事故调查处进行调查，该处通常需要几周时间才能产生初步报告。最终报告通常需要一年左右的时间来完成。
-
-**参考新闻：**[British F-35 jet crashes into Mediterranean (msn.com)](https://www.msn.com/en-au/news/uknews/british-f-35-jet-crashes-into-mediterranean/ar-AAQQ8j5?ocid=msedgntp)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 
