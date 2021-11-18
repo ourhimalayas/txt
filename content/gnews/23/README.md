@@ -2,23 +2,27 @@
 ---
 
 
-## FDA计划对成年人批准辉瑞疫苗加强针
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1675124/)
+## 参议员怒批拜登不提病毒溯源
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1675138/)
 
-作者：MOS – 柳是多水土透
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月17日，美国媒体消息称，FDA可能最早于本周四批准对成年人使用辉瑞公司的新冠疫苗加强针。与此同时，CDC的疫苗独立专家委员会也预定于周五召开会议，讨论新冠疫苗的安全性和有效性。报道称，在通过上述两个机构的批准后，美国民众或将面临继续接种辉瑞新冠疫苗加强针的境况。
+11月17日，美国参议员乔尼·恩斯特在接受媒体采访时指责，拜登在与习近平的视频会谈中“被抽掉了脊梁骨”，闭口不谈新冠病毒疫情的起源问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-12.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide10-8.jpeg)
 
-对此，医学专家警告，新冠疫苗及其加强针都需要更多的时间和数据来进行检验。相关医生提到，目前并没有足够的结果能够证明，新冠疫苗的好处大于其所带来的风险。同时，监管机构无法确认，新冠疫苗所带来的心肌炎等副作用会否因接种了疫苗第三针而加重。
+恩斯特表示，新冠溯源是每个美国人最关心的问题，美国需要彻查新冠病毒的真相，从而防止未来发生类似事件的可能性。恩斯特强调，拜习视频会议进行了三个多小时，当中讨论了贸易、人权等方面，却对最为重要的新冠病毒溯源问题只字不提，让人感到“愤怒”。 据悉，恩斯特是呼吁成立跨党派“911”式委员会，对新冠病毒起源进行调查的参议员之一。
 
-参考链接：[FDA plans to authorize Pfizer vaccine booster shots for all adults](https://justthenews.com/politics-policy/coronavirus/fda-plans-authorize-pfizer-vaccine-booster-shots-all-adults)
+对此，郭文贵先生在17日的直播中透露，拜习会谈之前，中共曾划定了五条“不能谈”的红线，当中就包括了不能谈病毒真相这一点。
+
+参考链接：
+1）[Sen. Ernst to Newsmax: Biden ‘Gave His Backbone Away’ to Xi Jinping](https://www.newsmax.com/newsmax-tv/ernst-biden-xi-jinping-covid/2021/11/17/id/1045025/)
+2）[2021年11月17日 文贵大直播：再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向](https://gtv.org/video/id=6194fda8e7e7703792363972)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：文特
-编辑：文特
+总编：AN 
+编辑：Lakeman(文仁)
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**

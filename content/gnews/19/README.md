@@ -2,43 +2,40 @@
 ---
 
 
-## “被解雇”的战士：从“前线英雄”到“零不服从”
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1675164/)
+## 西喜时事新闻简报 — 美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1675205/)
 
-作者：Alexandra Lavoie
-翻译：Himasally
+翻译：土饭团
 
+**1.[共和党参议员Todd Young说习近平对他的法案感到“焦虑”，因为它将投资于美国的技术](https://www.foxnews.com/politics/indiana-senator-says-xi-scared-of-his-new-bill-reason-behind-china-lobbying-against-bill)**
 
+福克斯新闻11月15日电，印第安纳州共和党参议员Todd Young在周一的新闻报导中抨击习近平对他的新法案感到“焦虑”，称习近平的恐惧是有关中共“向美国商界领袖施压以反对”美国创新与竞争法案的报道背后的原因。Young在他的新闻稿中说，中共对该法案的插手只会助长该法案的通过。
 
-当今世界变化如此之快，这难道不是令人难以置信吗？
+**2.[Biden在对中国行动的“关注”下准备与习近平会面](https://www.foxnews.com/politics/biden-prepares-to-meet-with-chinese-president-xi-jinping)**
 
-事实上，就在上个月，在 9/11 事件 20 周年之际，纽约市乃至全世界的急救人员都理所当然地被誉为英雄。毕竟，在 2001 年 9 月那个可怕的日子里，消防员和警察冲进了双子塔，而普通市民正在逃离这些建筑物。当然，许多急救人员付出了最终的代价。我们绝不能忘记这种牺牲。
+福克斯新闻11月15日电，Biden总统在周一晚间与中国国家主席习近平的虚拟会晤中不会对关注的领域 “有所保留”。白宫周五宣布了这次会晤，称两位领导人“将讨论如何负责任地管理美中之间的竞争，以及如何在我们的利益一致的情况下进行合作。”白宫新闻秘书Jen Psaki在预告会议时说，COVID-19大流行病的起源是Biden“仍然关注的问题”。
 
-然而，看看与急救人员有关的氛围在短短一个月内是如何变化的。现在，这些几周前还被称为英雄的人现在正被他们的政治主人命令要么接受 新冠疫苗，要么与他们的工作吻别。哇，谈论关于“你最近为我做了什么？”
+**3.[Keane将军敦促Biden向中国发出信息，即他们的侵略行为将受到抵制和反击](https://www.foxnews.com/media/gen-keane-urges-us-to-send-message-to-china-that-their-aggression-will-be-confronted-countered)**
 
-以安省普林奇镇的消防和救援服务部门的消防员彼得·范·奥德为例。彼得选择不向镇上透露他的疫苗接种情况。然后他在消防厅拍摄了一段视频，解释了他的决定。这对普林奇镇的权力来说并不顺利，最终的结果是消防员彼得很快就被解雇了。
+福克斯新闻11月15日电，前陆军副参谋长Jack Keane将军周一在“美国新闻室”说，美国需要向中国发出一个信息，即他们的侵略行为将在即将与习主席举行的峰会上受到对抗和反击。太平洋地区的力量平衡已经转向他们的军队。他们的网络战活动是任何国家为破坏另一个国家的公民社会并窃取其技术和信息而进行的最大规模的行动。
 
-这些解雇的表面政策原因是……安全？这很有趣，因为如果在未来几周和几个月内有越来越多的消防员被解雇，这将对紧急服务产生什么不利影响？尤其是在遇到真正的紧急情况时，比如，你知道……火灾？在 新冠疫苗问世之前前线工作人员突然被认为是现代伤寒玛丽，这有多奇怪？如果潜在的消防员人手短缺导致不必要的伤亡，这肯定是一种耻辱。
+**4.[Biden签署1.2万亿美元法案，称美国基础设施投资增速将超过中国](https://www.aninews.in/news/world/us/biden-signs-usd-12-tln-bill-says-us-infrastructure-investment-will-grow-faster-than-chinas20211116051219/)**
 
-来源：https://www.rebelnews.com/fired\_fighter\_from\_frontline\_hero\_to\_insubordinate\_zero\_for\_not\_disclosing\_vax\_status
+ANI 11月16日电，美国总统Joe Biden（当地时间）在竞争对手共和党人的两党支持下签署了1.2万亿美元的基础设施法案，该法案强调将修复美国落后的交通和宽带网络，并帮助其在基础设施方面的投资增长速度超过中国。美国总统进一步表示，美国正在再次行动。“你的生活会变得更好。”
 
-（文章仅代表作者个人观点）
+**5.[日本和美国将解决关于Trump时代额外钢铁关税的争端](https://english.kyodonews.net/news/2021/11/69dd4730ec3b-japan-us-ministers-meet-over-steel-aluminum-tariffs.html)**
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+共同社11月15日电，日本和美国周一同意启动谈判，以解决美国前总统Donald Trump政府对钢铁和铝进口产品征收高额关税的争端。美国贸易代表处的声明说，与日本就钢铁问题开始会谈将“提供一个机会，以促进高标准，解决包括气候变化在内的共同关心的问题，并让像中国这样支持扭曲贸易的非市场政策和做法的国家承担责任。”
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+(注：封面图来自facebook.com)
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+* * *
 
-**关注我们**
+*审核：蚂蚁兄弟
+校对：阿伯塔
+发布：信心的选择*
 
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
 
  
 
