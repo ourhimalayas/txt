@@ -2,28 +2,76 @@
 ---
 
 
-## 文贵爆料 11.17 : 喜币的神话才刚刚开始
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1672631/)
+## 斯蒂芬·K·班农敦促在华盛顿特区联邦调查局现场办公室外的支持者要关注“信号，而不是噪音”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672679/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1117-4.jpg)
-喜币一飞冲天的时机还远远没有到来。郭文贵先生在11月17日的大直播中说，只有Hpay上线、大量用户进入，并有实体店接收，才是喜币真正腾飞的时候。
+Stephen K. Bannon
+斯蒂芬·K·班农
 
-现在喜币的价格到了34美金一个，但它的80%到90%的市场没打开，功能还远远没打开。kyc就是一个大开关。早着呢！当进入喜币的国家多了，账号拥有人就多了，可能网络交易所有一百万、一千万的用户，大量的美的现金进来，然后交易量就增加，然后买者就增加，这个时候你的喜币的价值嘛，那就那绝对不是34块了，你去想去吧。所以说兄弟姐妹，要等到什么时候才值钱？我再说一遍，没有国家主权的认可，没有新虚拟货币的银行牌照，没有新的国家主权批准，没有交易所牌照认可，没开放整个Hpay使用，你看到的价格是它未来价格非常小的一部分，所有的价值的核心是hpay，核心中的核心是hpay，然后就那几个牌照啊。所以说这个市场不用担心，这才几天、两三周吧。兄弟姐妹们，任何一个成功的投资需要五年到十年的耐心。你不用等五到十年，你只要有三年的冷静期，你就是人生的赢家。
+I just want to say, tell everybody, it live stream on Gettr right now
+我只想告诉正在看盖特直播
 
-现在，基金不允许他来砸盘，他要怎么杀你呢？这很简单的道理，大家一定要学会这个投资，他先给拿一千个啊说今天三十一。是吧，开门儿。二十九、二十八，一万，十万，坏了，车位坐不住了，是不是还得卖点啊？要不就还会跌，接着一直跌，一直下头一直下行，有人就收不住了。你就二十九卖，你就二十九到二十七，你二十七他二十五刷就给你下来了。而且买你不用你买，还封二十七的时候，另外一个人就买了，我喊二十七，小哥买了。有人买有人卖。这个恐慌就下去了，这时候有人不冷静，就害怕，就会抛。他只拿出来百分之十的钱，然后再砸下去，那你就是输家嘛。
+everybody watching in the War Room.
+和正在观看战斗室的大家
 
-它的价格是坚挺的，原因之一，现在呢没有人卖；原因之二，机构投资者不允许他进来砸盘是最重要的核心。第三，hpay没上线，还有这些大的利好消息没出来啊。但是大家记住，看到现在全世界的接受hpay和hcoin、hdollar买买东西的在哪里？
+We’re here today.
+我们今天在这里
 
-但是没有人对这个在迪拜可以买房产这件事情啊认真研究，就没有人看到这个事情的影响它会有多大，为啥咱们要有GFashion。GFashion的诞生之日，就有两件事情大家没有意识到啊，第一个，gclub有了，GFashion有实际物体存在。这个Gclub未来可以做的无限大，因为它唯一一个有实体接收、可依靠的会员制，这在世界上是没有的，大家都是叫场地制、会员制。但是他说它可以未来有实际折扣的实体店，这在美国和西方的法律上完全重新定义了。同时更重要是为喜币的诞生做准备，喜币一旦是有实体店接受，能买东西、喝茶，有人接受买东西。喜币和整个数字货币的价值完全是天地之差啊。所以GFashion这两个功能是意义重大。
+I don’t want anybody take their eye off the ball but we do every day.
+我不希望任何人把注意力从我们每天都做的事情上移开
 
-接下来就是只要喜币能买衣服、能买任何东西的时候，你未来接下来各种实体店都会越来越多的接受的是喜币的流通、喜币只要开始流通以后，它的价值你就能想象啊！它是改变人类生存方式，那是巨大的。那么迪拜允许它买房产了。其中一个最重要的王子跟我说，他说我已经告诉他下边了，我们叫他马上接受你买房子。数字货币走向实体店之日，它的意义非常重大。
+Okay, we got the Hispanics come on our side,
+好的？我们有西班牙裔美国人站在我们这边
 
-郭先生说，明年五月份是你考虑出售几个解决生活问题的时间点。五月份到一年的时候，考虑是否你拿一些币去做抵押，贷款期贷大概几个月以内吧，一定会有。然后去贷款，看买房子、车、大件物品啊值不值问题。真正一定要要等待两到三年。
+African Americans coming on our side.
+非裔美国人站在我们这边
 
-参考链接：
+We’re taking down the Biden regime
+我们正在推翻拜登政权
 
-[2021年11月17日 文贵大直播](https://gettr.com/streaming/ph567f4b1f)
+every day the focus you got
+每一天这都是你的焦点
+
+Raheem Kassam today, you got Dr. Peter Navarro, Captain Bannon
+今天有拉希姆·卡萨姆，你有彼得·纳瓦罗博士，班农上尉
+
+and you’re going to have Boris Epstein the whole show intense.
+而且鲍里斯·爱泼斯坦会在战斗室节目里，节目会非常激烈
+
+we got polling out, economic data out, and everything
+我们会分析民调、经济数据和其他
+
+I want you guys to stay focused on message
+我希望你们能保持对信息的专注
+
+remember signal not noise.
+记住信号，忽略噪音
+
+This is all noise that signal.
+这些都是那个信号的噪音
+
+Thank you very much
+非常感谢
+
+* * *
+
+Date:11/15/2021
+原视频标题: Stephen K. Bannon urges supporters outside FBI Field Office in D.C. to focus on “signal, not noise,”
+斯蒂芬·K·班农敦促在华盛顿特区联邦调查局现场办公室外的支持者要关注“信号，而不是噪音”
+原视频日期：2021/10/15
+原视频链接: [https://gettr.com/post/ph0i3m1249](https://gettr.com/post/ph0i3m1249)
+任务编号：KE346（2891）
+视频时间段 : 0:50-1:25
+英听校: 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 小战蚁
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

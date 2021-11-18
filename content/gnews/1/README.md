@@ -2,18 +2,39 @@
 ---
 
 
-## 土耳其领导人埃尔多安注射新冠疫苗九个月后 “病重”
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1674492/)
+## 了解情报才了解共产党有时候硬得如钢有时候又软得如屎
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1674542/)
 
-#### 翻译整理：意大利罗马达芬奇农场               小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Schermata-2021-11-18-alle-13.41.12.png)图片来源 : 安莎社
-土耳其总统塔伊普•埃尔多安早在2021年1月为了打消公众对新冠疫苗的疑虑，证明其有效性，在公开场合及摄像机前接种了疫苗。据统计，土耳其对其医护人员施打了中共科兴疫苗， 他的全国疫苗接种计划杀死了两万三千多人。注射疫苗九个多月后，埃尔多安明显且“严重”地患病了。据说他患上了血液微凝块而引起的右侧心力衰竭。从一些被泄露出的照片上可以看到他倚靠在两位助手身上来行走。事实上，埃尔多安没有参加格拉斯哥的气候峰会，特别是他也没有参加马克龙在巴黎组织的有关利比亚的会议，而此会议对他来说只有直接兴趣的。他的患病解释了他为什么缺席。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/mhB_副本.jpg)
+据[2021年11月17日 文贵大直播：再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向](https://gtv.org/video/id=6194fda8e7e7703792363972)时间点1：42：40——
 
-如果这一消息被证实或持续发酵，肯定会影响中东的局势。据来自土耳其的秘密消息说，埃尔多安患有右心衰竭，是由众多的微血凝块堵塞肺部内部和周围的毛细血管。据分析是在他注射了新冠病毒之后，由于细胞中产生的刺突蛋白导致血液微凝。埃尔多安不幸的例子是疫苗造成的中期伤害，我们每天都有主流媒体继续忽视新冠疫苗的副作用，现在这一副作用使国际人士、年轻人、运动员和身体健康者也深受影响。
+**郭文贵先生：**体制内战友有体制内的所谓的体制内的看法，我现在郭文贵在这块儿很不要脸的一个人可以告诉大家，从很多国内体制内人的理解，包括所谓的海外的一些独立的华人媒体的理解，这就是共产党能在这活70年的原因，就是大家对共产党的认知极为浅薄，不是答案不是坏就是好，然后再一个就不是强就是弱，——它不是这样子的。
 
-原文链接： https://www.maurizioblondet.it/erdogan-gravemente-malato-9-mesi-dopo-la-puntura-vax/
+你了解共产党以后的，你只有了解了情报你才了解了共产党这个东西是什么怪物。这个家伙真是有时候它硬得如钢、软得如屎——又臭又粘，你只有了解了共产党这个特性，你才知道它啥时候真的钢，他对待中国人民的时候他钢着呢！他对着自己的谎言钢着呢！对自己所有玩弄女性的时候——宇宙无限大，地球是一粒沙！哇塞，它不要脸着呢！对待美帝国主义、对待俄罗斯，它软得跟狗屎一样——人家说啥它给人家干啥！它就成了宇宙的那一粒沙，人家成宇宙了。
 
-编辑、发布:  Xiao   baige
+（以下暂略）
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

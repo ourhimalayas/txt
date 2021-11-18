@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/18/2021 1:29 PM (UTC)`
+
+The CCP’s Infiltration in Western World : The CCP Agent Bruno Wu<br/><br/>中共渗透西方世界：中共间谍吴征
+![img](https://media.gettr.com/group49/getter/2021/11/18/13/80f887f8-7681-5efd-afaf-ffba91971096/4f8067580d2a3f28a1ec938cc736879f.jpg)
+
+---
+
 `@miles 11/18/2021 12:55 PM (UTC)`
 
 泽连科医生：新冠疫苗对儿童的致命性是病毒的172倍!<br/><br/>Dr. Zelenko: COVID vaccines are 172 times more lethal to children than COVID-19 Virus!<br/><br/>
@@ -293,13 +300,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 11/14/2021 Miles Guo: Evergrande will definitely declare bankruptcy, which will lead to the financial and economic avalanche in the Communist China and in the rest of the world. The terrible mainstream media in the West not only avoids reporting on the problems caused by the COVID vaccines, but also covers the Evergrande crisis in a uniform manner by dodging the key issues while focusing on the minor stuff. Because all the mainstream media outlets are backed by the same group of evil people<br/><br/>11/14/2021 文贵直播：恒大一定破产，随后将对中共国和世界金融、经济造成雪崩效应，可恶的是西方主流媒体非但不提疫苗问题，对恒大爆雷也是统一口径、避重就轻，因为背后都是同一拨邪恶的人<br/>
 ![img](https://media.gettr.com/group9/getter/2021/11/15/02/04/a2ac0663-a3cb-b129-739c-1ab5e06ab165/out.jpg)
-
----
-
-`@miles 11/14/2021 10:04 PM (UTC)`
-
-11/14/2021 Miles Guo: The New Federal State of China will have our own defense forces around the world to safeguard not only the fellow fighters and their families, but also other Asians; fellow fighters who are fluent in your local languages, please follow the instructions of the Himalaya Farms at any time to participate in the coordination at the front line<br/><br/>11/14/2021 文贵直播：新中国联邦在全球会有我们自己的国防军，不但保护战友和家人，也保护其他亚裔；请熟练掌握当地语言的战友们随时听候农场调遣，参与前线协调工作<br/>
-![img](https://media.gettr.com/group17/getter/2021/11/14/22/04/71b89a6e-3a3b-ad39-e7dc-e647b81d2142/out.jpg)
 
 ---
 

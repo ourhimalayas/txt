@@ -2,58 +2,93 @@
 ---
 
 
-## 越来越多的名人因COVID 疫苗而住院或死亡
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1674276/)
+## 中共国经济一塌糊涂，并将引起经济崩溃
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1674322/)
 
-**编译：JennyBall**
+[https://gtv.org/video/id=6195fd621827025081066a4d](https://gtv.org/video/id=6195fd621827025081066a4d)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip22-1.png)
+**郭文贵
+Miles Guo**
 
-鲍勃·西森（Bob Sisson），通常称之为水管工鲍勃，在 11 月 11 日的 Brighteon.TV 节目中和他的客人玛丽安·巴里恩托斯（Marien Barrientos）谈到，越来越多的名人因冠状病毒 (COVID-19) 疫苗而[住院或死亡](https://www.brighteon.com/a70919b9-b9c9-4d9f-a057-63a6db238bf2) 。
+恒大完了就融创、合生创展、富力，然后就是王健林
+After Evergrande failed, then will be Sunac, Hopson Development, R&F, then will be Wang Jianlin（Wanda）
 
-巴里恩托斯正在运营一个拥有数千名粉丝的 Telegram 频道。据她说，最近接种过疫苗的人经常通过该渠道与她联系，谈论他们如何后悔接种实验性危险的 COVID-19 疫苗，因为他们开始经历痛苦的副作用。
+中国现在你知道中国是47家大银行，近40家银行的股票跌破了净资产
+Now you know that China’s nearly 40 of the 47 major banks’ stocks have fallen below their net assets
 
-巴里恩托斯说：“有很多人一直给我打电话，他们向我报告他们自己，或他们的家人感染 COVID 后发生的情况或其他疾病。”“而现在，截至目前，我接到的电话中，**有一半来自接种疫苗后出现不良副作用的人**。”
+中国将近70家国家级金融机构，现在几乎是100%全赔钱
+Nearly 70 national financial institutions in China now almost 100% losing money
 
-巴里恩托斯还收到有关运动员或名人在接种疫苗后突然死亡或生病的报告。（相关：水管工鲍勃和玛丽恩谈论接种疫苗，足球明星阿圭罗在比赛中倒地 –[Bob The Plumber and Marien talk about vaccinated soccer star Sergio “Kun” Aguero collapsing mid-game – Brighteon.TV](https://www.naturalnews.com/2021-11-09-bob-the-plumber-marien-vaccinated-athlete-collapsing.html).)
+保险公司兑付率，兑现率不超过10%，百分之八十几违约
+The redemption rate of insurance companies does not exceed 10%, default rate of more than 80%
 
-巴里恩托斯指出，许多足球运动员在接种疫苗后，突然出现心肌炎等心脏问题。
+这不是要破产的问题了，这不是一个所谓的共享财富的问题
+This is not only a question of going bankrupt, it is not a so-called shared wealth question
 
-“超过 80 名著名或甲级联赛的足球运动员已经卒死，”巴里恩托斯说。“都是在接种疫苗之后， 这是所有这些人的共同点，这些踢足球和多年从事体育运动的人，没有任何心脏问题。”
+是没有人能撑下去的，今天美国的房地产，你看没到2004年到2008年的时候
+No one can hold on, today American’s real estate situation hasn’t be there yet, like from 2004 to 2008
 
-许多其他公众人物正在经历疫苗的危险副作用。知名的墨西哥女演员和政治家卡门·萨利纳斯（Carmen Salinas）[最近因中风住院](https://abc7news.com/carmen-salinas-mexican-actors-and-actresses-telenovela-star-in-hospital/11225318/)，她完全接种了疫苗。
+美国这个房产的疯狂简直是不可思议的
+The madness of this American’s real estate is simply unbelievable
 
-巴里恩托斯指出，萨利纳斯最近几个月因嘲笑担心疫苗副作用的电影和电视行业人士而臭名昭著。
+美国全世界欧洲没有人工作，跟你家装修、装水管
+No one works in the United States, the world, or Europe, remodel or maintenance
 
-加州州长加文·纽森（Gavin Newsom）也经历了 COVID-19 疫苗的严重副作用。
+它维护这个，这个它需要人力的，没人干活
+It needs manpower to maintain the real estate, and no one does it
 
-西森透露，民主党加州州长纽森，在10 月 27 日接受了加强剂公开接受 COVID-19 加强注射后，也经历了严重的副作用。
+那么现在中美之间发生什么问题，供应链彻底崩塌
+So what is the problem between China and the United States, that is the supply chain has completely broke
 
-纽森因[突然且无法解释的失踪](https://www.yahoo.com/news/where-governor-playing-hookie-gavin-142551067.html)几天，因此受到了强烈批评后，他于 11 月 7 日才重新出现。州长和他的妻子在没有进一步解释的情况下声称，纽森因“家庭义务”而失踪。
+美国在这种情况下就希望中共你一定要给我供应链
+In this case, the U.S. hopes that the CCP must maintain the supply chain
 
-左派的人批评州长取消了他本应参加苏格兰气候变化会议。 与此同时，保守派认为，他之所以躲藏，是因为他患有某种 COVID-19 疫苗的副作用。
+就是奴隶，而且美国已经对中国开启签证
+It’s a slave(Chinese people), and the U.S. has opened visa application to China
 
-“据我所知，州长加文·纽森在加利福尼亚州，我知道他打了第三针，”西森说。 “然后，当他有反应时，他非常生气，因为他说他应该打生理盐水，但不知何故，给他打了真家伙（疫苗）， 所以现在他遇到了很多麻烦。”
+第二，我现在要让你开始保证我的基本的民意，老百姓的生活
+Second, (the Biden administration) now hopes that Xi can guarantee basic living goods to the American people
 
-巴里恩托斯随后分享了 mRNA 技术的发明者罗伯特·马龙（Robert Malone）博士的想法，他在 Twitter 上推测，州长可能一直在躲避格林-巴利综合征，这是一种导致瘫痪的自身免疫性疾病。
+便宜点的内裤，便宜的旅游鞋还得给我
+i.e. the cheap underwear, low-cost travel shoes need to resume in market
 
-这一假设得到了小罗伯特·肯尼迪及其儿童健康保护组织的大力支持。根据肯尼迪的说法，一位接近州长的消息人士证实，纽森正在从吉兰-巴利综合症中康复。
+第三，你千万房地产你别一下倒，要慢慢倒
+Third, (the Biden administration) demands that the real estate business must avoid quickly collapsing, slowly collapsing (is acceptable)
 
-[点击观看与水管工鲍勃和巴里恩托斯的完整节目。](https://www.brighteon.com/a70919b9-b9c9-4d9f-a057-63a6db238bf2)
+第四，最重要的咱俩要合作，咱得忽悠老百姓
+Forth, the most important thing is that we have to cooperate, we need to fool the Laobaixing
 
-**点评：为什么州长加文·纽森第三针作秀“他说他应该打生理盐水”？**
+明天无限美好，继续画大饼
+Tomorrow is infinitely beautiful, continue to make a empty promise
 
-**新闻来源**：[naturalnews.com][More celebrities all over Latin America are getting hospitalized and DYING because of COVID-19 vaccines – Brighteon.TV](https://www.naturalnews.com/2021-11-16-athletes-celebrities-latin-america-dying-covid-vaccines.html)
+一切的一切都为了今年的中期选举，就是民主党绝对不能输
+Everything is for next year’s midterm elections, it means that the Democratic Party must not lose
+
+弗吉尼亚几乎废掉了拜登总统的一半以上的能力
+Virginia (election lost) almost abolished more than half of President Biden’s capabilities
+
+你在这个中期选举完几乎就完了
+(The Biden administration) most likely would be over after this mid-term election
 
 * * *
 
-***审核：文乐
-校对：信心满满
-发布：信心满满***
+Date:11/15/2021
+原视频标题: 中共国经济一塌糊涂，并将引起经济崩溃
+Communist China’s economy is in a mess and will cause economic collapse
+原视频日期：2021/11/12
+原视频链接 [https://twitter.com/se1y7cblljselva/status/1459528903681507328?s=24](https://twitter.com/se1y7cblljselva/status/1459528903681507328?s=24)
+任务编号：2874
+视频时间段 : 0:00-2:00
+英听校： 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

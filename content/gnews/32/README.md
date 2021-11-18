@@ -2,24 +2,58 @@
 ---
 
 
-## NBA球星埃内斯·坎特再批中共：停止强摘器官
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1674215/)
+## 越来越多的名人因COVID 疫苗而住院或死亡
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1674276/)
 
-#### 翻译/撰稿：zzballack
+**编译：JennyBall**
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-410.png)图片来源：推特
-据《布雷特巴特新闻网》（Breitbart News）11月17日报道，NBA凯尔特人队球星埃内斯·坎特（Enes Kanter）11月16日再度发推抨击北京的暴行，说中共为了获取器官，正以工业化规模杀害良心犯。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip22-1.png)
 
-坎特通过其推特、脸书等社交媒体账户发帖说：“中共政府正在强摘人体器官。中共国的少数民族和宗教团体、西藏人、死亡集中营中的维吾尔人、基督徒和法轮功都是其目标。中共统治者从政治犯身上偷取肝脏、肾脏和心脏，这是反人类罪！停止中共国的强摘器官暴行，现在就停止！”
+鲍勃·西森（Bob Sisson），通常称之为水管工鲍勃，在 11 月 11 日的 Brighteon.TV 节目中和他的客人玛丽安·巴里恩托斯（Marien Barrientos）谈到，越来越多的名人因冠状病毒 (COVID-19) 疫苗而[住院或死亡](https://www.brighteon.com/a70919b9-b9c9-4d9f-a057-63a6db238bf2) 。
 
-坎特推出了一系列专门设计的球鞋，旨在提高人们对中共大规模的人权侵犯行为的认识。这款最新球鞋上画着一个身着蓝色衣服的医生，抓着一个正在淌血的器官。鞋头上绘有肝脏、肾脏和心脏，每个器官都有一个价格标签，而且整双鞋上遍布喷溅的血迹。上周，他在推特上发布的另一款鞋子旨在反击中共对台湾的主权侵犯。10月底，他推送了两款鞋子，提醒人们注意中共对维吾尔人的种族灭绝行为，以及强调中共对极权主义的偏好。
+巴里恩托斯正在运营一个拥有数千名粉丝的 Telegram 频道。据她说，最近接种过疫苗的人经常通过该渠道与她联系，谈论他们如何后悔接种实验性危险的 COVID-19 疫苗，因为他们开始经历痛苦的副作用。
 
-坎特对中共的直言批评引来了中共的报复。腾讯停止直播其所在的凯尔特人队的赛事。NBA大联盟也正在悄悄地试图让坎特闭嘴。坎特最近承认，一些NBA官员已经悄悄联系并警告他说，如果他继续批评中共的人权侵犯行为，将考虑禁止他参加比赛。
+巴里恩托斯说：“有很多人一直给我打电话，他们向我报告他们自己，或他们的家人感染 COVID 后发生的情况或其他疾病。”“而现在，截至目前，我接到的电话中，**有一半来自接种疫苗后出现不良副作用的人**。”
 
-坎特本赛季出场时间明显减少。一些球迷怀疑这与他的批评中共行为有关。而坎特本人似乎也暗示情况就是如此，他11月15日发推暗指中共说：“你继续限制我的上场时间，我会在球场外揭发你。”
+巴里恩托斯还收到有关运动员或名人在接种疫苗后突然死亡或生病的报告。（相关：水管工鲍勃和玛丽恩谈论接种疫苗，足球明星阿圭罗在比赛中倒地 –[Bob The Plumber and Marien talk about vaccinated soccer star Sergio “Kun” Aguero collapsing mid-game – Brighteon.TV](https://www.naturalnews.com/2021-11-09-bob-the-plumber-marien-vaccinated-athlete-collapsing.html).)
 
-新闻来源：[Enes Kanter Blasts Beijing: ‘Stop Organ Harvesting in China’](https://www.breitbart.com/sports/2021/11/17/enes-kanter-blasts-beijing-stop-organ-harvesting-in-china/)
+巴里恩托斯指出，许多足球运动员在接种疫苗后，突然出现心肌炎等心脏问题。
+
+“超过 80 名著名或甲级联赛的足球运动员已经卒死，”巴里恩托斯说。“都是在接种疫苗之后， 这是所有这些人的共同点，这些踢足球和多年从事体育运动的人，没有任何心脏问题。”
+
+许多其他公众人物正在经历疫苗的危险副作用。知名的墨西哥女演员和政治家卡门·萨利纳斯（Carmen Salinas）[最近因中风住院](https://abc7news.com/carmen-salinas-mexican-actors-and-actresses-telenovela-star-in-hospital/11225318/)，她完全接种了疫苗。
+
+巴里恩托斯指出，萨利纳斯最近几个月因嘲笑担心疫苗副作用的电影和电视行业人士而臭名昭著。
+
+加州州长加文·纽森（Gavin Newsom）也经历了 COVID-19 疫苗的严重副作用。
+
+西森透露，民主党加州州长纽森，在10 月 27 日接受了加强剂公开接受 COVID-19 加强注射后，也经历了严重的副作用。
+
+纽森因[突然且无法解释的失踪](https://www.yahoo.com/news/where-governor-playing-hookie-gavin-142551067.html)几天，因此受到了强烈批评后，他于 11 月 7 日才重新出现。州长和他的妻子在没有进一步解释的情况下声称，纽森因“家庭义务”而失踪。
+
+左派的人批评州长取消了他本应参加苏格兰气候变化会议。 与此同时，保守派认为，他之所以躲藏，是因为他患有某种 COVID-19 疫苗的副作用。
+
+“据我所知，州长加文·纽森在加利福尼亚州，我知道他打了第三针，”西森说。 “然后，当他有反应时，他非常生气，因为他说他应该打生理盐水，但不知何故，给他打了真家伙（疫苗）， 所以现在他遇到了很多麻烦。”
+
+巴里恩托斯随后分享了 mRNA 技术的发明者罗伯特·马龙（Robert Malone）博士的想法，他在 Twitter 上推测，州长可能一直在躲避格林-巴利综合征，这是一种导致瘫痪的自身免疫性疾病。
+
+这一假设得到了小罗伯特·肯尼迪及其儿童健康保护组织的大力支持。根据肯尼迪的说法，一位接近州长的消息人士证实，纽森正在从吉兰-巴利综合症中康复。
+
+[点击观看与水管工鲍勃和巴里恩托斯的完整节目。](https://www.brighteon.com/a70919b9-b9c9-4d9f-a057-63a6db238bf2)
+
+**点评：为什么州长加文·纽森第三针作秀“他说他应该打生理盐水”？**
+
+**新闻来源**：[naturalnews.com][More celebrities all over Latin America are getting hospitalized and DYING because of COVID-19 vaccines – Brighteon.TV](https://www.naturalnews.com/2021-11-16-athletes-celebrities-latin-america-dying-covid-vaccines.html)
+
+* * *
+
+***审核：文乐
+校对：信心满满
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+
+
 
  
 

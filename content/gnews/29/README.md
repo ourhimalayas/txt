@@ -2,55 +2,75 @@
 ---
 
 
-## 科学家们想用隐形墨水给孩子们盖上接种“纹身”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1674235/)
+## 2021年11月18日 澳喜要闻摘要
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1674296/)
 
-编译: Jenny ball
+撰稿：澳喜要闻小组
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-10-1.jpg)
+**１　****OSHA****暂停实施和执行拜登政府疫苗授权**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-412.png)图片来源: naturalnews.com
+美国职业安全与健康管理局OSHA宣布，他们将暂停实施和执行拜登政府对拥有100名或以上员工的公司的疫苗授权，以待诉讼。
 
-《生活新闻》就在武汉冠状病毒 (COVID-19) 公开宣布前几个月，[*麻省理工学院*](https://web.mit.edu/)  (MIT) 的科学家宣布完成了一项野兽标记“纹身”技术([Mark of the Beast “tattoo” technology for children](https://www.scientificamerican.com/article/invisible-ink-could-reveal-whether-kids-have-been-vaccinated/))，用于跟踪儿童的疫苗接种记录。
+在本周早些时候，美国第五巡回上诉法院的法官小组抵制了强制接种疫苗政策，称其为“一刀切的大锤”，会颠覆宪法和个人自由。OSHA因此被迫暂停强推中共病毒疫苗计划，并在其官网上表示，虽然OSHA对其在紧急情况下保护工人的权力仍有信心，但OSHA已经暂停了与实施和执行疫苗授权的相关活动，等待诉讼的未来发展。
 
-可以直接植入皮肤的微芯片设计，有特殊的隐形染料，可以用特殊的手机过滤器拾取，这种染料肉眼是看不到的。
+本周二，经过抽签后，接下来对拜登政府疫苗授权的挑战，将分配给倾向于保守派的美国第六巡回上诉法院。
 
-这种染料可持续长达五年，使用近红外光检测，近红外光照射到注射区域的皮肤上。 它已经在猪和老鼠身上进行了测试，据推测，下一步是开始給儿童真正的注射。
+[https://www.theepochtimes.com/osha-suspends-enforcement-of-vaccine-mandate-after-court-block\_4108842.html?utm\_source=partner&utm\_campaign=imctgm01](https://www.theepochtimes.com/osha-suspends-enforcement-of-vaccine-mandate-after-court-block_4108842.html?utm_source=partner&amp;utm_campaign=imctgm01)
 
-亿万富翁兼优生学家比尔·盖茨（Bill Gates），在大流行初期就呼吁这样做，**并暗示中共国病毒的数字疫苗“护照”，包括人们的注射记录**。
+[https://www.osha.gov/coronavirus/ets2](https://www.osha.gov/coronavirus/ets2)
 
-“该系统尚未在儿童中进行过测试，它可以快速方便地访问疫苗接种历史，避免文书错误的风险，并且几乎不会增加程序的成本或风险，”《科学美国人》援引一项发表在《科学转化医学》杂志上的项目研究报告说。
+**２　超过****1****万名澳大利亚人已经向政府提出了中共病毒疫苗伤害索赔**
 
-**量子点纹身完成兽印记录系统**
+《悉尼先驱晨报 》11月16日报道，目前已经有超过1万名澳大利亚人，向政府提出了中共病毒疫苗伤害索赔。
 
-参与该项目的科学家们，再次以穷人为借口制造这种令人憎恶的事情，声称它将帮助发展中国家实现更好的儿童健康结果。
+报道称，澳大利亚服务局（Services Australia）正在建立一个在线门户网站，将于下个月推出，对于因中共病毒疫苗而受伤和失去收入的人，提出的超过 5000 美元的无上限索赔，医疗费用和工资损失的赔偿将由政府支付。
 
-[*佐治亚理工学院*](https://www.gatech.edu/) （Georgia Tech）的生物工程教授马克·普拉斯尼茨（Mark Prausnitz）评论说：“特别是在医疗记录可能不完整或不易获取的发展中国家，将医疗信息与人直接相关是有价值的。” 他没有参与这项研究。“我认为，这是实现这些目标的一种非常有趣的方式。”
+超过2万美元的索赔，包括死亡索赔，将由一个独立的法律专家小组评估，并根据他们的建议支付赔偿。
 
-它还[实现了将人们的识别信息合并到微芯片注射或纹身](http://futuretech.news/)中的预言目标，这些信息可以被扫描用于买卖、进入受限制的建筑物、驾驶和参与社交活动。
+目前澳大利亚政府没有透露，需要什么样的证据标准，来证明该人的伤害是由疫苗造成的。
 
-据麻省理工学院生物工程师罗伯特·兰格（ Robert Langer）和安娜·雅克莱内克（Ana Jaklenec）称，首先在儿童皮肤上印上装满微针的小贴片，为他们注射疫苗。之后，他们的注射证明存储在其可注射组件上。
+据悉，澳大利亚的治疗用品管理局(The Therapeutic Goods Administration)，记录了78,880起与接种中共病毒疫苗有关的不良事件。
 
-通过对手腕、前额注射这些成分的地方进行简单扫描，政府就可以快速检查孩子是否“按时”接种疫苗，其中包括福奇流感疫苗。
+该疫苗赔偿计划涵盖的不良反应，将包括心脏疾病心肌炎和心包炎，血栓性疾病血小板减少症，罕见的神经系统疾病吉兰-巴雷综合症和免疫性血小板减少症。
 
-“该团队最终使用了一种称为量子点的技术，这种微小的半导体晶体可以反射光，最初开发用于在研究过程中标记细胞，”《科学美国人》报道。“这种染料已被证明对人体是安全的。”
+官方数据显示，自9月联邦卫生部门网站开放登记以来，已有超过1万人登记了他们的索赔意向，这意味着如果每项索赔获得批准，那么政府将至少花费5000万美元。这也意味着澳大利亚的纳税人正面临着为大量的中共病毒疫苗伤害支付的高额账单。
 
-正如您所料，并非每个人都参与该计划。隐私专家表示，让人们带着包含他们所有个人信息的微芯片四处走动存在风险。
+[https://www.smh.com.au/politics/federal/more-than-10-000-australians-have-filed-coronavirus-vaccine-injury-claims-20211115-p598yy.html](https://www.smh.com.au/politics/federal/more-than-10-000-australians-have-filed-coronavirus-vaccine-injury-claims-20211115-p598yy.html)
 
-“不同的人和不同的文化，可能会对隐形医疗纹身有不同的感觉，”普劳斯尼茨补充道。
+**３　辉瑞承认其临床试验时间太短，无法检测疫苗与心肌炎的潜在风险**
 
-**比尔和梅琳达****·****盖茨基金会资助这项兽印记研究这一事实并不令人意外**。它的推出是因为盖茨本人的“直接要求”，他声称，他希望将这些微芯片植入人体内，以“消灭疾病”。
+根据 INFOWARS 2021年11月15日的一份报告，制药巨头辉瑞承认其临床试验时间太短，无法确定已接种 Covid-19 疫苗的儿童的长期心肌炎风险，而且样本量太小，无法检测与疫苗接种相关的心肌炎的任何潜在风险。
 
-“如果我们没有好的数据，就很难根除疾病，”雅克莱内茨补充道，以支持盖茨的议程。
+该信息出现在食品和药物管理局 (FDA) 咨询委员会简报中，很难在FDA网站上找到。
 
-**评论：这篇文章让人们看到：疫苗的真正目的，除了大规模灭绝人口，还是更利用管控疫苗没有杀死的人们！**
+辉瑞在结论中表示，“将在 5 项授权的安全性研究中研究 COVID-19 疫苗在 5 至 12 岁参与者中的长期安全性，包括一项为期 5 年的随访研究，以评估疫苗接种后心肌炎/心包炎的长期后遗症。”
 
-新闻来源: [naturalnews.com][Here come the tattoo marks – Scientists want to stamp children with invisible ink to prove they’ve been vaccinated](https://www.naturalnews.com/2021-11-15-scientists-want-to-stamp-vaccinated-children.html) / [ScientificAmerican.com](https://www.scientificamerican.com/article/invisible-ink-could-reveal-whether-kids-have-been-vaccinated/) / [NaturalNews.com](https://www.naturalnews.com/2020-04-03-eugenicist-bill-gates-demands-digital-certificates-coronavirus-vaccination.html)
+FDA在10月26日针对5-11岁儿童辉瑞虚拟紧急授权的会议简报中明确写明在针对这一年龄段的疫苗中加入氨丁三醇（Tris）缓冲液，氨丁三醇经常出现在治疗心脏骤停的药物中。
 
-* * *
+在全球范围内，关键词搜索“心肌炎”从5月份开始飙升；关键词“猝死”的搜索从10月份开始飙升。
 
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+**４　《新英格兰医学杂志》发现疫苗对****COVID****病毒的免疫力在两个月后就消失了**
+
+上周五，安东尼.福奇博士承认中共病毒（COVID-19）疫苗没有起到广告宣传的作用，接种疫苗的人今天处于极大的危险之中。但是实际情况要比这更糟。
+
+最近发表在《新英格兰医学杂志》上对以色列进行的一项研究发现，在接受第二剂疫苗后的几个月，所有年龄组对SARS-CoV-2的delta变体的免疫力都会减弱。
+
+科学家们对比了60岁以上、40-59岁以及16-39岁三组人群，发现不论哪个年龄组，首次符合条件接种人的被中共病毒的感染率均高于两个月后的接种者。这些发现表明，在接受第二剂疫苗后的几个月，所有年龄组对SARS-CoV-2的delta变体的免疫力都会减弱。
+
+
+
+> [SHOCKING New England Journal of Medicine Study: Vaccine Immunity Wanes Against COVID Virus After ONLY 2 MONTHS](https://www.thegatewaypundit.com/2021/11/shocking-new-england-journal-medicine-study-vaccine-immunity-wanes-covid-virus-2-months/)
+
+
+
+５　**USCC****称既自信又恐惧的中共未来可能会更加强势**
+
+11月17日，美中经济与安全审查委员会USCC公布一份551页的最新年度报告。报告称，现在的中共“既自信又恐惧”。自信于政治制度的优越性，恐惧于政权随时被颠覆。在此基础上，中共的态度在未来会更加强势。
+
+USCC主席卡罗琳•巴塞洛缪（Carolyn Bartholomew）在报告发布会的开场白中说，中共国领导人将改善关系的责任完全放在了对方的身上，中共声称不能妥协，要求得到美国、澳大利亚和其他国家的尊重。在台湾问题上，该报告特别指出，鉴于中共领导人习近平对风险的承受度较高，同时他又希望留下永久的政治遗产，所以中共有可能会不顾美国的警告袭击台湾。
+
+发布：五饼二鱼
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/016.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
