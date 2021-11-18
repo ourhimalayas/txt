@@ -2,37 +2,40 @@
 ---
 
 
-## Moderna 寻求美国对所有成年人进行 COVID-19 加强注射的授权
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1674468/)
+## 了解情报才了解共产党有时候硬得如钢有时候又软得如屎
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1674542/)
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MAJHR7GR3VODFPG5QMH2CW7L741-edited.jpg)图片来源：网络
-路透社 2021年11 月 17 日 – Moderna Inc (MRNA.O) 周三表示，已向美国食品和药物管理局申请批准其 COVID-19 加强疫苗，适用于所有 18 岁及以上的成年人。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/mhB_副本.jpg)
+据[2021年11月17日 文贵大直播：再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向](https://gtv.org/video/id=6194fda8e7e7703792363972)时间点1：42：40——
 
-FDA 已经为免疫功能低下的人、65 岁及以上的人以及患有严重疾病的高风险或经常接触病毒的人清除了 COVID-19 疫苗的加强注射。
+**郭文贵先生：**体制内战友有体制内的所谓的体制内的看法，我现在郭文贵在这块儿很不要脸的一个人可以告诉大家，从很多国内体制内人的理解，包括所谓的海外的一些独立的华人媒体的理解，这就是共产党能在这活70年的原因，就是大家对共产党的认知极为浅薄，不是答案不是坏就是好，然后再一个就不是强就是弱，——它不是这样子的。
 
-Moderna 正在寻求获得 50 微克加强剂量的授权，这是其原疫苗剂量的一半，间隔大约 4 周，分两次注射。
+你了解共产党以后的，你只有了解了情报你才了解了共产党这个东西是什么怪物。这个家伙真是有时候它硬得如钢、软得如屎——又臭又粘，你只有了解了共产党这个特性，你才知道它啥时候真的钢，他对待中国人民的时候他钢着呢！他对着自己的谎言钢着呢！对自己所有玩弄女性的时候——宇宙无限大，地球是一粒沙！哇塞，它不要脸着呢！对待美帝国主义、对待俄罗斯，它软得跟狗屎一样——人家说啥它给人家干啥！它就成了宇宙的那一粒沙，人家成宇宙了。
 
-该文件是在辉瑞公司 (PFE.N) 为其与德国合作伙伴 BioNTech 开发的疫苗的加强剂量申请类似许可一周后提出的。
+（以下暂略）
 
-预计 FDA 将于本周在美国疾病控制与预防中心 (CDC) 顾问小组会议之前就辉瑞做出决定，会议将讨论扩大疫苗加强剂量的资格。
+撰稿：喜马拉雅的肉夹馍；
 
-消息传出后，Moderna 的股价在下午的交易中上涨 5% 至 246.16 美元。
+审核：喜马拉雅的馍夹肉；
 
-专家认为，加强剂量对于将 COVID-19 降低到地方性水平至关重要，美国总统乔·拜登 (Joe Biden) 政府 8 月宣布计划在 9 月为所有成年人推出加强剂量。
+校对：Maarago
 
-上个月，欧盟药物监管机构批准了 Moderna 的加强疫苗，适用于 18 岁以上的所有年龄组，第二次接种后至少六个月，该公司还在日本申请了助推器批准。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-然而，包括法国、加拿大、芬兰和瑞典在内的几个国家的监管机构对 Moderna 的疫苗采取了更具防御性的立场，因为它会影响年轻人的心脏相关安全问题。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-来源链接：
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[https://t.co/EETZmDokJI](https://t.co/EETZmDokJI)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-编辑/发布：LILY
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-20211118
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

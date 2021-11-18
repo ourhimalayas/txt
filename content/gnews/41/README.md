@@ -2,47 +2,41 @@
 ---
 
 
-## 2021/11/17墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1674166/)
+## 澳大利亚总理呼吁各州放宽强制疫苗政策
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1674272/)
 
-一、   打完新冠针就得癌了？患者质疑为什么打完新冠疫苗就发现了癌症。
+**翻译/整理：月映万川
+编辑：朝花夕拾**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-36.jpg)
+图片来源：[Scott Morrison demands rouge states drop vaccine mandates](https://www.msn.com/en-au/news/australia/scott-morrison-demands-rouge-states-drop-vaccine-mandates/ar-AAQPWTy?li=AAaeSy5)
 
-二、在被完全制服情形下，警察依然毫无顾忌的当众暴力执法。
+当新南威士州做出在12月15日废除疫苗护照的决定时，昆士兰州将会在12月17日引入疫苗护照针对酒店服务场所。于此同时，维多利亚州誓言要把疫苗护照一直保持到明年。
 
-三、 物业与业主之间的纷争，“和保安过不去能死的快点？”业主被保安威胁。
+因受到来自自由党内部的议员压力，莫里森在周四称，他仅仅支持对医疗工作者执行强制疫苗政策。
 
-四、   中共治下的宗教人士在宣誓忠于中国共产党。
+在回应昆士兰州州长时，总理称＂未接种者应该被允许在布里斯班街头喝一杯咖啡。＂
 
-五、   近期各地恒大期房工地现状，违约崩盘在即。
+同时在周四的访问中，总理也表示，＂现在是时候让政府回归到自己原来的位置，而让澳大利亚人找回自己曾经的生活。＂
 
-六、   11月16日，湖南株洲。幼儿园小朋友在家长陪同下打疫苗现场。
+昆士兰副州长斯蒂文迈尔斯在回击总理的言论时称，总理因其自身＂狡猾的政治利益＂而损害了昆士兰州政府对大流行的应对计划。
 
-七、   11月16日，四川成都。女生因做错题，被老师在课堂上狂扇耳光！
+总理的这番言论是在两名自由党议员和一国党党魁保琳汉森宣布不再支持政府任何法案后做出的。而让三位议员重新支持政府法案的前提就是，莫里森要在各州制止疫苗强制令上有所行动。
 
-八、   11月14日，河北廊坊。河北一职校男生宿舍内一男生遭多人欺凌， 头部被砸玻璃瓶。
+如果这三位参议员的要求不能得到满足，那么，任何在下周表决的政府法案将不会获得通过。
 
-九、   11月15日，安徽马鞍山市发生严重车祸，货车与客车相撞，致8人死亡8人受伤。
+于此同时，未接种疫苗的一国党汉森参议员已经提交了一份有关停止疫苗强制令的法案。此法案要求联邦政府可以越过各州法规而叫停疫苗强制令。
 
-十、   11月15日，重庆。外卖骑手当街被店家飞踹，用扫把猛砸骑手脑袋。
+在上一周，莫里森总理公开抨击了疫苗强制令，并称未接种者在做出自己的选择后，不应该被妖魔化。
 
-十一、   河南南阳。儿子失踪20年，母亲身上挂着照片每天在车站寻找。
+原文链接：[PM Scott Morrison demands states drop Covid jab mandates and says unvaccinated Aussies MUST be allowed into pubs and restaurants](https://www.dailymail.co.uk/news/article-10214777/amp/Scott-Morrison-demands-states-like-Queensland-drop-Covid-19-vaccine-mandates.html)
 
-十二、  一段泄露在网上的视频曝光了被中共关押人员遭受酷刑的状况。
+发布：Janek
 
-*搜集： free20200604 ，MrBurns ，Filon| 翻译：瞌睡猫 | 校对：CharlesS*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,26 +2,42 @@
 ---
 
 
-## 无耻缺德！中共把老年人当作产业来经营
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1674501/)
+## 辉瑞承认要对儿童新冠疫苗心肌炎风险做更多研究
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1674554/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-133.png)
-[图片来源](https://www.silverindustry.cn/pressdetail/2494.html)
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-第一财经报道11月18日，在15日-17日举行的第八届中国国际老龄产业博览会上，与会人士表示十分看好未来老龄产业的未来。老龄产业已经成为新的战略性新兴产业。根据预测，“十四五”时期，中共国将新增老年人口5380万，是“十三五”的1.5倍，老年人口总量也将超过三个亿。其中，1963年出生人口高达2934万人，1964年超过2700万人，1965年也接近2700万。上世纪60年代，出生人口高达2.39亿。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/share-the-moderna-recipe-banner-FINAL-9-1500x751-1.png)
 
-当前，中共国12个省市已经进入中度老龄化，149个城市已经进入了中度老龄化。80岁及以上老年人口3580万人，占比为13.56%。
 
-长期以来，由于中共不作为和割韭菜的做法，导致养老、医疗等方面社会服务缺失，但是中共不从增加社会福利资源这个根本上去着力，反而利用2.39亿老龄化人口需求的空缺，把养老当作战略性新兴产业来盈利。可谓，无耻缺德至极！
+图片来源：www.citizen.org
 
-信息来源：
 
-[“60后”出生人口达2.39亿，老龄产业迎来爆发期](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_9928816034427325324%22%7D&amp;n_type=-1&amp;p_from=-1)
+#### 编译：小红帽
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
+**医药巨头辉瑞公司在提交给美国食品和药物管理局（****FDA****）的文件中承认，为确定儿童长期心肌炎风险而进行的临床试验时间太短。**
+
+辉瑞和FDA都没有公开这一信息。此信息出现在去年10月美国FDA咨询委员会简报的第11页，其中辉瑞公司承认其临床试验志愿者的样本量太小，无法检测5至12岁儿童的心肌炎风险。
+
+该声明被隐藏在辉瑞公司为12岁以下儿童注射的中共病毒（COVID-19）疫苗的简报文件中。
+
+文件写道 “目前临床开发项目的参与者数量太少，无法检测出与接种疫苗相关的任何潜在心肌炎风险。中共病毒疫苗在5至12岁参与者中的长期安全性将在5项授权后的安全性研究中进行研究，包括一项为期5年的随访研究，以评估疫苗接种后心肌炎或心包炎的长期后遗症。”
+
+**尽管如此，****FDA****仍然决定为辉瑞公司的中共病毒疫苗颁发紧急使用授权（****EUA****），以便对用于****5****至****11****岁的儿童。**
+
+同时，FDA推迟了对莫德纳（Moderna）的类似授权，称他们需要对心肌炎的风险进行更彻底的检查，因为莫德纳的中共病毒疫苗配方中含有氨丁三醇–一种用于治疗代谢性酸中毒的药物，通常发生在心脏搭桥手术或心脏骤停后。
+
+**参考新闻：**[UNKNOWN RISK: Pfizer admits more studies are needed on myocarditis risk linked to COVID vaccines for kids – NaturalNews.com](https://www.naturalnews.com/2021-11-17-pfizer-admits-more-studies-needed-covid-vaccine.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

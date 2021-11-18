@@ -2,35 +2,34 @@
 ---
 
 
-## 辉瑞公然谎报中共病毒疫苗临床实验中的死亡人数
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1674533/)
+## 日本要闻汇编 11月18日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1674566/)
 
-#### 撰稿：日本东京方舟农场  海星
+素材：东京樱花团｜GNEWS组
+![](https://lh5.googleusercontent.com/LQ0EmuS1zKFvXbgDfFt63fgphNUleZcRJO0HGWkUhrmEdt-tpCOkyGT-GNjKnrIJAS8pAHNTdQmDznyZG_Bm9oVy21OcF6ZKP0nzXKNNzGxM3fnJ9RvWKXxDfzWPwbrSLP8QIjDz)[*图片来源*](https://cdn.trt.net.tr/images/xlarge/rectangle/462a/1175/3b13/60e0068c35324.jpg?time=1637230273)
+1、[**联大人权委员会通过决议谴责朝鲜侵犯人权**](https://china.kyodonews.net/news/2021/11/6922542bb7cd.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/B714B93D-ECDC-4709-94B1-D5063A9AAF52.jpeg)（图片来源：网络）
+联大第三委员会（人权）会议17日通过了欧盟（EU）提交的谴责朝鲜侵犯人权的决议案。同样内容的决议已连续17年获得通过。为早日解决绑架日本人问题，其中强调了“立即让受害者回国的紧急性和重要性”。日本是支持决议的“共同提案国”。预计12月该决议将在联大全体会议上正式获得通过。
 
-据《网关专家》近日报道，辉瑞公司在有关中共病毒疫苗试验期间死亡人数的数据上对公众撒谎，实际死亡人数是21人，而不是最初报告的15人。
+2、[**经产相承诺援助中小企业对抗疫情影响**](https://china.kyodonews.net/news/2021/11/9e9a9158952d.html)
 
-该报道援引美国记者亚历克斯·贝伦森（Alex Berenson）的报告指出，辉瑞公司及其合作公司BioNTech于7月28日公布的疫苗6个月临床试验数据，是世界各地监管机构同意注射该疫苗的依据。然而这份数据却公然造假。
+日本经济产业相萩生田光一18日在东京与日本商工会议所主席三村明夫等干部会谈，针对疫情下处于困境的中小及小微企业，表示“将迅速提供必要的支援”，承诺扩充援助措施。着眼于疫情后，萩生田还表示将扶持中小企业推进去碳化和数字化举措。
 
-辉瑞对外公布的这份试验报告称，截至3月中旬，在试验中接受疫苗的大约22000人中，有15人死亡；而接受安慰剂（不含疫苗的盐水注射）的22000人中有14人死亡。
+3、[**官房长官称尚未决定如何对待北京冬奥会**](https://china.kyodonews.net/news/2021/11/5f0b4400ffbc.html)
 
-然而贝伦森却发现，辉瑞向美国FDA报告的数据显示，从注射第一剂疫苗开始，截止至2021年3月13日，共有38人死亡——疫苗组有21人，安慰剂组有17人。
+日本官房长官松野博一17日召开记者会。关于有报道称美国近期将宣布不派遣外交使团参加明年2月的北京冬奥会，实施“外交抵制”一事，他表示“美国政府没有正式发布消息，我们不予置评”。当被问及日本将如何应对时，他回答称：“现阶段，未就要人出席做出任何决定。”
 
-显然，辉瑞在对外公布的数据中少报了6例注射疫苗的死亡人数，以及3例注射安慰剂的死亡人数。
+4、[**日本拟创设医药品紧急批准制度**](https://china.kyodonews.net/news/2021/11/dff90a452a87.html)
 
-此外，贝伦森还指出，这些死亡的人并不都是因感染中共病毒而死。实际上只有3人死于中共病毒，其中，1人注射了疫苗，2人注射了盐水，而其余的死亡案例都是由其他疾病造成的。
+日本政府相关人士17日透露，为了在新冠疫情扩大等紧急情况下，未获批准的疫苗和医药品能在国内迅速被使用，政府初步决定创设“紧急时药事批准”制度，仅确认安全性，若能推定有效，就给予批准。此举旨在迅速防止传染病疫情扩大。18日起的厚生劳动省专门小组会上开始讨论。12月内敲定制度详细内容，向明年的例行国会提交相关法案。
 
-*参考链接：[https://www.thegatewaypundit.com/2021/11/huge-breaking-news-pfizer-hid-public-number-deaths-covid-clinical-trials-actual-number-21-6-reported-4-unvaccinated-group/](https://www.thegatewaypundit.com/2021/11/huge-breaking-news-pfizer-hid-public-number-deaths-covid-clinical-trials-actual-number-21-6-reported-4-unvaccinated-group/)*
+5、[**日经指数收跌0.3%**](https://china.kyodonews.net/news/2021/11/e98acda99733-03.html)
 
-* * *
+东京股市日经指数18日继续回落，收盘报29598.66点，较昨日下跌89.67点，跌幅为0.30%。隔夜美股收跌形成重压，东京股市卖盘占优。交易时段传来消息称，日本政府将在19日内阁会议上敲定的经济对策的财政支出规模将创新高，日经指数一度转升。
 
-*素材采编：海星*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
-
+*编辑：东京樱花团 / 文小白
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
