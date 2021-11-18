@@ -15,83 +15,83 @@
 
 ---
 
-### [11/17/2021 文贵直播：六中全会后，中共虽然会对美国嘴上硬，但实际上将越来越软](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
-
-### [墙内要闻汇编 11月18日](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花灭共诗——登阁晚望寄郭文贵先生](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [11/18/21 香港快讯【首宗国安法案】罪成判囚 9 年唐英杰提上诉 下周五作指示聆讯](/content/gnews/4/README.md)
- ` 英喜-粵語組`
-
-### [樱花灭共诗——过盘古七星大厦](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [习太阳将会把中共带向何方？](/content/gnews/6/README.md)
+### [战友有了喜币，勿忘灭共使命](/content/gnews/1/README.md)
  ` 波士顿五月花农场`
 
-### [强化军事同盟针对中共！日本拟增加美军驻留经费](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本政府将一体化推进行政体制数字化改革](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [11/17/2021 文贵直播：六中全会的“十大坚持”说明中共已经无人可用、中共正在跟世界脱钩且习要当皇帝](/content/gnews/9/README.md)
+### [11/17/2021 文贵直播：六中全会后，中共虽然会对美国嘴上硬，但实际上将越来越软](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [11/17/2021 文贵直播：西方流氓政客抵制2022冬奥会的三个原因](/content/gnews/10/README.md)
+### [墙内要闻汇编 11月18日](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花灭共诗——登阁晚望寄郭文贵先生](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [11/18/21 香港快讯【首宗国安法案】罪成判囚 9 年唐英杰提上诉 下周五作指示聆讯](/content/gnews/5/README.md)
+ ` 英喜-粵語組`
+
+### [樱花灭共诗——过盘古七星大厦](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [习太阳将会把中共带向何方？](/content/gnews/7/README.md)
+ ` 波士顿五月花农场`
+
+### [强化军事同盟针对中共！日本拟增加美军驻留经费](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本政府将一体化推进行政体制数字化改革](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [11/17/2021 文贵直播：六中全会的“十大坚持”说明中共已经无人可用、中共正在跟世界脱钩且习要当皇帝](/content/gnews/10/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共将对内对外无限强硬并继续放毒对内对外资本共产制](/content/gnews/11/README.md)
+### [11/17/2021 文贵直播：西方流氓政客抵制2022冬奥会的三个原因](/content/gnews/11/README.md)
+ ` 秘密翻译组-北美组`
+
+### [中共将对内对外无限强硬并继续放毒对内对外资本共产制](/content/gnews/12/README.md)
  ` NewFOC`
 
-### [中共国内又一餐饮老板自杀身亡](/content/gnews/12/README.md)
+### [中共国内又一餐饮老板自杀身亡](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [扎扎实实做假作秀！中共“二十大”代表选举启动](/content/gnews/13/README.md)
+### [扎扎实实做假作秀！中共“二十大”代表选举启动](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美劳工部暂停实施拜登政府针对私企的疫苗强制令](/content/gnews/14/README.md)
+### [美劳工部暂停实施拜登政府针对私企的疫苗强制令](/content/gnews/15/README.md)
  ` 日本东京方舟农场`
 
-### [一众太监成就六中全会对内实行习皇制对外实行习特勒制](/content/gnews/15/README.md)
+### [一众太监成就六中全会对内实行习皇制对外实行习特勒制](/content/gnews/16/README.md)
  ` NewFOC`
 
-### [11/12郭文贵直播：新中国联邦将建立国防和全球安保系统保护全世界华人（粤语配音）](/content/gnews/16/README.md)
+### [11/12郭文贵直播：新中国联邦将建立国防和全球安保系统保护全世界华人（粤语配音）](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/12郭文贵直播：今天直播最重要的是号召大家建设新中国联邦、保护华人（粤语配音）](/content/gnews/17/README.md)
+### [11/12郭文贵直播：今天直播最重要的是号召大家建设新中国联邦、保护华人（粤语配音）](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/12郭文贵直播：新中国联邦将建立自己的海军、空军和空间部队（粤语配音）](/content/gnews/18/README.md)
+### [11/12郭文贵直播：新中国联邦将建立自己的海军、空军和空间部队（粤语配音）](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/12郭文贵直播：沉南鹏在美国的政治、经济影响力非同一般（粤语配音）](/content/gnews/19/README.md)
+### [11/12郭文贵直播：沉南鹏在美国的政治、经济影响力非同一般（粤语配音）](/content/gnews/20/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/11郭文贵直播：美国某军工集团希望新中国联邦加入（粤语配音）](/content/gnews/20/README.md)
+### [11/11郭文贵直播：美国某军工集团希望新中国联邦加入（粤语配音）](/content/gnews/21/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/14郭文贵直播：查抄马云新加坡秘密办公室足以让他牢底坐穿（粤语配音）](/content/gnews/21/README.md)
+### [11/14郭文贵直播：查抄马云新加坡秘密办公室足以让他牢底坐穿（粤语配音）](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [澳洲政府保护63个涉及国家安全的科技项目](/content/gnews/22/README.md)
+### [澳洲政府保护63个涉及国家安全的科技项目](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [美财长警告国家财政破产](/content/gnews/23/README.md)
+### [美财长警告国家财政破产](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德国卫生部长强调需降低对中共的依赖](/content/gnews/24/README.md)
+### [德国卫生部长强调需降低对中共的依赖](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [活着的意义](/content/gnews/25/README.md)
+### [活着的意义](/content/gnews/26/README.md)
  ` 纽约香草山MOS03`
-
-### [六中全会告诉你:共产党对内绝对硬；对外嘴硬,一切都软](/content/gnews/26/README.md)
- ` NewFOC`
 
 ### [11/10郭文贵直播：六中全会内部报告曝中共国11个“第一”（粤语配音）](/content/gnews/27/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

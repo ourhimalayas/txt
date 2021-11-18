@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/18/2021 3:50 PM (UTC)`
+
+11/17/2021 Miles Guo: After the Six Plenary Session, the CCP’s attitude towards the US will get softer although it will keep taking tough; the West will regard the CCP as more threatening; Xi is going to be the “emperor” in China, while acting like Hitler internationally; Xi will implement isolation policy and push communist policies for both domestic and foreign businesses in China; no one within the CCP’s system will be safe<br/><br/>11/17/2021 文贵直播：六中全会后，中共虽然会对美国嘴上硬，但实际上将越来越软；西方将把中共视为更大的威胁；习近平将对内实行“习皇制”，对外当“习特勒”；习将闭关锁国并对国内外资本实施共产制；中共体制内无人会是安全的<br/>
+![img](https://media.gettr.com/group30/getter/2021/11/18/15/50/2cb8fd48-2bc5-5dd2-2b2e-8c9f6c64ae88/out.jpg)
+
+---
+
 `@miles 11/18/2021 1:46 PM (UTC)`
 
 11月18号：尊敬的战友们好，……你们健身了吗？传播C C P病毒……疫苗解药的真相了吗？新中国联邦正以．前所未有的速度．和巨大的力量，在推动停止人类正在面对的疫苗灾难！
@@ -293,13 +300,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 11/14/2021 Miles Guo: The CCP ransacked Jack Ma's secret office in Singapore and seized enough materials to put him behind bars. The citizens of the New Federal State of China must learn the lesson from Jack Ma. We shall never be enslaved by wealth due to ignorance, and we must accumulate clean, legitimate and sustainable wealth<br/><br/>11/14/2021 文贵直播：中共在马云新加坡的秘密办公室查抄的东西足以让他把牢底坐穿；而新中国联邦人要以马云为鉴，不要因无知而成为财富的奴隶，我们要拥有干净、合法和永续的财富<br/>
 ![img](https://media.gettr.com/group33/getter/2021/11/15/03/01/b6b2a059-e0ee-52b4-8945-58047a53915d/out.jpg)
-
----
-
-`@miles 11/15/2021 2:08 AM (UTC)`
-
-11/14/2021 Miles Guo: A Chinese bioweapons scientist currently living in Europe explains why the COVID vaccine disaster is beginning next May; the scientist predicts that half of the world's vaccinated people may die; according to the scientists' intelligence, the CCP will release a new virus and the upcoming outbreak will spread from the West Coast to the East Coast in the U.S.<br/><br/>11/14/2021 文贵直播：现居欧洲的中国生化武器科学家解读疫苗灾难为何会在明年五月开始；科学家预测全球接种疫苗者或将有一半死亡；科学家的情报表明，中共将释放新病毒并让疫情从美西蔓延到美东<br/>
-![img](https://media.gettr.com/group37/getter/2021/11/15/02/08/1c2554ed-a1b5-7f3b-17d8-340a15e323d2/out.jpg)
 
 ---
 
