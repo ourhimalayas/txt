@@ -141,38 +141,38 @@
 ### [纽约助理医师成为吹哨人，报告揭露疫苗伤害被禁言](/content/gnews/42/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线:北京的“朝阳群众”和“西城大妈”注册人数超过20万](/content/gnews/43/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2021/11/16 墙内世界](/content/gnews/44/README.md)
+### [2021/11/16 墙内世界](/content/gnews/43/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [娜塔莉：发起班农起诉的罪魁祸首亚当·希夫是中共勾结者](/content/gnews/45/README.md)
+### [娜塔莉：发起班农起诉的罪魁祸首亚当·希夫是中共勾结者](/content/gnews/44/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [杰森·米勒高度评价班农，战斗室节目正在让美国逐渐觉醒](/content/gnews/46/README.md)
+### [杰森·米勒高度评价班农，战斗室节目正在让美国逐渐觉醒](/content/gnews/45/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [全网独家解析拜习会，揭开会议前后的桌下秘密](/content/gnews/47/README.md)
+### [全网独家解析拜习会，揭开会议前后的桌下秘密](/content/gnews/46/README.md)
  ` YALUN 亚伦`
 
-### [莫琳·班农上尉：史蒂夫·班农还没开始战斗，他们惹错人了](/content/gnews/48/README.md)
+### [莫琳·班农上尉：史蒂夫·班农还没开始战斗，他们惹错人了](/content/gnews/47/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [班农：我们不会坐以待毙，我们会主动出击](/content/gnews/49/README.md)
+### [班农：我们不会坐以待毙，我们会主动出击](/content/gnews/48/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [班农：我们将发起进攻，捍卫你们所有人的权利](/content/gnews/50/README.md)
+### [班农：我们将发起进攻，捍卫你们所有人的权利](/content/gnews/49/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [斯蒂芬·K·班农敦促在华盛顿特区联邦调查局现场办公室外的支持者要关注“信号，而不是噪音”](/content/gnews/51/README.md)
+### [斯蒂芬·K·班农敦促在华盛顿特区联邦调查局现场办公室外的支持者要关注“信号，而不是噪音”](/content/gnews/50/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文贵爆料 11.17: CCP是全世界邪恶势力的大总部](/content/gnews/52/README.md)
+### [文贵爆料 11.17: CCP是全世界邪恶势力的大总部](/content/gnews/51/README.md)
  ` 秘密翻译组-原创组`
 
-### [文贵爆料 11.17 : 喜币的神话才刚刚开始](/content/gnews/53/README.md)
+### [文贵爆料 11.17 : 喜币的神话才刚刚开始](/content/gnews/52/README.md)
  ` 秘密翻译组-原创组`
+
+### [中共招商银行为员工发放速效救心丸套餐](/content/gnews/53/README.md)
+ ` GTV新闻访谈`
 
 ### [【文贵先生大直播PPT】乔拜登无力改变中共，习近平决意称霸世界](/content/gnews/54/README.md)
  ` Mr. Miles Guo's News Briefing`
