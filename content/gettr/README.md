@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/18/2021 1:51 AM (UTC)`
+
+11/17/2021 Miles Guo: The CCP’s third major historical resolution is to deny Mao and Deng without mentioning any proposal to reform; the purpose for this historical resolution to be released after the Biden-Xi meeting is to deceive the Chinese that the resolution is backed by the Americans<br/><br/>11/17/2021 文贵直播：中共的第三个重大历史决议是习否定毛和邓，只字未提改革方案；该决议被安排在拜习会后公布的目的是制造美国对其背书的假象从而欺骗中国人<br/>
+![img](https://media.gettr.com/group14/getter/2021/11/18/01/51/9c0b3775-bef2-9617-74f6-8089a83ab73a/out.jpg)
+
+---
+
+`@miles 11/18/2021 1:46 AM (UTC)`
+
+11月17日：想笨笨了…… <br/><br/>
+![img](https://media.gettr.com/group10/getter/2021/11/18/01/46/be0d8034-1f65-a09d-0d4b-da0b55921f0f/4ae34c9e4427a9ef0cd7d0b313e77583.jpg)
+
+---
+
+`@miles 11/18/2021 1:41 AM (UTC)`
+
+11月17日：可爱的绅士笨笨…… <br/><br/>
+![img](https://media.gettr.com/group49/getter/2021/11/18/01/41/5a5068a8-d1bc-04fe-e430-b5493aaa7438/30f4807c5d051542b2d7f968f889d9f9.jpg)
+
+---
+
 `@miles 11/18/2021 1:12 AM (UTC)`
 
 11月17号：刚刚理完发的SNOW 欢迎七哥回家……
@@ -279,27 +300,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 11/12/2021 Miles Guo: The upcoming high-stakes virtual meeting between Biden and Xi Jinping is the result of the Biden Administration's collusion with the CCP for its political and financial interests. The CCP delayed Evergrande's collapse after the Sixth Plenary Session in order to have a smooth meeting. No one can bail Evergrande out, it will certainly go bankrupt and trigger a domino effect of collapse in Communist China’s real estate market and its financial sector!<br/><br/>11/12/2021 文贵直播：即将举行的拜习视频会议的是拜登政府为其政治和经济利益而与中共勾兑的结果；中共安排恒大在六中全会后暴雷是为了顺利开会；没人能拯救恒大，它必定破产，且将在中共国房地产和金融界引发多米诺骨牌的崩溃效应！
 ![img](https://media.gettr.com/group18/getter/2021/11/13/07/44/ae27aa8b-5f56-5f13-0352-c5e12e60ff28/out.jpg)
-
----
-
-`@miles 11/13/2021 6:23 AM (UTC)`
-
-彭博社电视台记者斯蒂芬·英格：恒大债务危机引发的中共国的金融压力最终可能会通过风险情绪的恶化使全球金融市场为之紧张<br/><br/>Bloomberg TV correspondent Stephen Engle: The financial stress triggered by Evergrande debt crisis may eventually strain global financial markets through a deterioration of risk sentiment<br/>
-![img](https://media.gettr.com/group5/getter/2021/11/13/06/23/210b2b94-f272-0a5c-ddcf-f553b11f1e56/out.jpg)
-
----
-
-`@miles 11/13/2021 4:36 AM (UTC)`
-
-11/11/2021 Miles Guo: The CCP’s 6th Plenary Session is a gift from God - Xi Jinping will stay in power after the 20th Party Congress, rendering him the common enemy of the entire Party, and this will help the New Federal State of China destroy the CCP by taking advantage of its internal struggles; Xi will launch massive arrests and plunder the entrepreneurs in the Communist China prior to the 20th Party Congress<br/><br/>11/11/2021 文贵直播：六中全会是上天给新中国联邦的大礼 - 习近平要在20大后继续当老大，这将导致其成为全党众矢之的，这有助于新中国联邦以共灭共；20大前习将展开大抓捕并大肆洗劫国内企业家<br/><br/>
-![img](https://media.gettr.com/group44/getter/2021/11/13/04/35/f8b88d96-4979-224a-c13e-fc329ba9e5ab/out.jpg)
-
----
-
-`@miles 11/13/2021 4:25 AM (UTC)`
-
-11/11/2021 Miles Guo: Every fellow fighter is a participant in the history of the New Federal State of China(NFSC), the wealth of the NFSC citizens is manifested in the fact that they are unvaccinated against the CCP virus and the wisdom they have; In contrast, people like Neil Shen and Jack Ma who lack visions and faiths are like the fish farmed by the CCP, which will eventually rip them off; but our NFSC citizens will never be ripped off, and we are saving the world!<br/><br/>11/11/2021 文贵直播：每位战友都是新中国联邦历史的参与者；新中国联邦人的财富在于没打新冠疫苗且开了智；相反，沈南鹏和马云等境界低、无信仰的人好比是中共放水养的鱼，必将任中共宰割；但新中国联邦人永远不会被宰割，而且我们正在拯救全人类！<br/>
-![img](https://media.gettr.com/group41/getter/2021/11/13/04/25/d5c33f5b-c7ba-cbdf-7a81-f5bda551f6a0/out.jpg)
 
 ---
 
