@@ -2,36 +2,44 @@
 ---
 
 
-## 参议员怒批拜登不提病毒溯源
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1675138/)
+## “被解雇”的战士：从“前线英雄”到“零不服从”
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1675164/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月17日，美国参议员乔尼·恩斯特在接受媒体采访时指责，拜登在与习近平的视频会谈中“被抽掉了脊梁骨”，闭口不谈新冠病毒疫情的起源问题。
+作者：Alexandra Lavoie
+翻译：Himasally
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide10-8.jpeg)
 
-恩斯特表示，新冠溯源是每个美国人最关心的问题，美国需要彻查新冠病毒的真相，从而防止未来发生类似事件的可能性。恩斯特强调，拜习视频会议进行了三个多小时，当中讨论了贸易、人权等方面，却对最为重要的新冠病毒溯源问题只字不提，让人感到“愤怒”。 据悉，恩斯特是呼吁成立跨党派“911”式委员会，对新冠病毒起源进行调查的参议员之一。
 
-对此，郭文贵先生在17日的直播中透露，拜习会谈之前，中共曾划定了五条“不能谈”的红线，当中就包括了不能谈病毒真相这一点。
+当今世界变化如此之快，这难道不是令人难以置信吗？
 
-参考链接：
-1）[Sen. Ernst to Newsmax: Biden ‘Gave His Backbone Away’ to Xi Jinping](https://www.newsmax.com/newsmax-tv/ernst-biden-xi-jinping-covid/2021/11/17/id/1045025/)
-2）[2021年11月17日 文贵大直播：再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向](https://gtv.org/video/id=6194fda8e7e7703792363972)
+事实上，就在上个月，在 9/11 事件 20 周年之际，纽约市乃至全世界的急救人员都理所当然地被誉为英雄。毕竟，在 2001 年 9 月那个可怕的日子里，消防员和警察冲进了双子塔，而普通市民正在逃离这些建筑物。当然，许多急救人员付出了最终的代价。我们绝不能忘记这种牺牲。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+然而，看看与急救人员有关的氛围在短短一个月内是如何变化的。现在，这些几周前还被称为英雄的人现在正被他们的政治主人命令要么接受 新冠疫苗，要么与他们的工作吻别。哇，谈论关于“你最近为我做了什么？”
 
-总编：AN 
-编辑：Lakeman(文仁)
-校正/发稿：谐趣园
+以安省普林奇镇的消防和救援服务部门的消防员彼得·范·奥德为例。彼得选择不向镇上透露他的疫苗接种情况。然后他在消防厅拍摄了一段视频，解释了他的决定。这对普林奇镇的权力来说并不顺利，最终的结果是消防员彼得很快就被解雇了。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这些解雇的表面政策原因是……安全？这很有趣，因为如果在未来几周和几个月内有越来越多的消防员被解雇，这将对紧急服务产生什么不利影响？尤其是在遇到真正的紧急情况时，比如，你知道……火灾？在 新冠疫苗问世之前前线工作人员突然被认为是现代伤寒玛丽，这有多奇怪？如果潜在的消防员人手短缺导致不必要的伤亡，这肯定是一种耻辱。
+
+来源：https://www.rebelnews.com/fired\_fighter\_from\_frontline\_hero\_to\_insubordinate\_zero\_for\_not\_disclosing\_vax\_status
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
