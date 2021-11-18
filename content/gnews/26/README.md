@@ -2,34 +2,41 @@
 ---
 
 
-## 辉瑞公然谎报中共病毒疫苗临床实验中的死亡人数
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1674533/)
+## 辉瑞承认要对儿童新冠疫苗心肌炎风险做更多研究
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1674554/)
 
-#### 撰稿：日本东京方舟农场  海星
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/B714B93D-ECDC-4709-94B1-D5063A9AAF52.jpeg)（图片来源：网络）
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/share-the-moderna-recipe-banner-FINAL-9-1500x751-1.png)
 
-据《网关专家》近日报道，辉瑞公司在有关中共病毒疫苗试验期间死亡人数的数据上对公众撒谎，实际死亡人数是21人，而不是最初报告的15人。
 
-该报道援引美国记者亚历克斯·贝伦森（Alex Berenson）的报告指出，辉瑞公司及其合作公司BioNTech于7月28日公布的疫苗6个月临床试验数据，是世界各地监管机构同意注射该疫苗的依据。然而这份数据却公然造假。
+图片来源：www.citizen.org
 
-辉瑞对外公布的这份试验报告称，截至3月中旬，在试验中接受疫苗的大约22000人中，有15人死亡；而接受安慰剂（不含疫苗的盐水注射）的22000人中有14人死亡。
 
-然而贝伦森却发现，辉瑞向美国FDA报告的数据显示，从注射第一剂疫苗开始，截止至2021年3月13日，共有38人死亡——疫苗组有21人，安慰剂组有17人。
+#### 编译：小红帽
 
-显然，辉瑞在对外公布的数据中少报了6例注射疫苗的死亡人数，以及3例注射安慰剂的死亡人数。
+**医药巨头辉瑞公司在提交给美国食品和药物管理局（****FDA****）的文件中承认，为确定儿童长期心肌炎风险而进行的临床试验时间太短。**
 
-此外，贝伦森还指出，这些死亡的人并不都是因感染中共病毒而死。实际上只有3人死于中共病毒，其中，1人注射了疫苗，2人注射了盐水，而其余的死亡案例都是由其他疾病造成的。
+辉瑞和FDA都没有公开这一信息。此信息出现在去年10月美国FDA咨询委员会简报的第11页，其中辉瑞公司承认其临床试验志愿者的样本量太小，无法检测5至12岁儿童的心肌炎风险。
 
-*参考链接：[https://www.thegatewaypundit.com/2021/11/huge-breaking-news-pfizer-hid-public-number-deaths-covid-clinical-trials-actual-number-21-6-reported-4-unvaccinated-group/](https://www.thegatewaypundit.com/2021/11/huge-breaking-news-pfizer-hid-public-number-deaths-covid-clinical-trials-actual-number-21-6-reported-4-unvaccinated-group/)*
+该声明被隐藏在辉瑞公司为12岁以下儿童注射的中共病毒（COVID-19）疫苗的简报文件中。
 
-* * *
+文件写道 “目前临床开发项目的参与者数量太少，无法检测出与接种疫苗相关的任何潜在心肌炎风险。中共病毒疫苗在5至12岁参与者中的长期安全性将在5项授权后的安全性研究中进行研究，包括一项为期5年的随访研究，以评估疫苗接种后心肌炎或心包炎的长期后遗症。”
 
-*素材采编：海星*
+**尽管如此，****FDA****仍然决定为辉瑞公司的中共病毒疫苗颁发紧急使用授权（****EUA****），以便对用于****5****至****11****岁的儿童。**
 
-*编辑：青衣青青*
+同时，FDA推迟了对莫德纳（Moderna）的类似授权，称他们需要对心肌炎的风险进行更彻底的检查，因为莫德纳的中共病毒疫苗配方中含有氨丁三醇–一种用于治疗代谢性酸中毒的药物，通常发生在心脏搭桥手术或心脏骤停后。
 
-*发布：miumiu*
+**参考新闻：**[UNKNOWN RISK: Pfizer admits more studies are needed on myocarditis risk linked to COVID vaccines for kids – NaturalNews.com](https://www.naturalnews.com/2021-11-17-pfizer-admits-more-studies-needed-covid-vaccine.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

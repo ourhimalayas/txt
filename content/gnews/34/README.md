@@ -2,51 +2,18 @@
 ---
 
 
-## CDC承认没有自然免疫者传播中共病毒的记录
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1674458/)
+## 土耳其领导人埃尔多安注射新冠疫苗九个月后 “病重”
+` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1674492/)
 
-作者：纽约香草山文艺部 – 宁文静
+#### 翻译整理：意大利罗马达芬奇农场               小白鸽
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Schermata-2021-11-18-alle-13.41.12.png)图片来源 : 安莎社
+土耳其总统塔伊普•埃尔多安早在2021年1月为了打消公众对新冠疫苗的疑虑，证明其有效性，在公开场合及摄像机前接种了疫苗。据统计，土耳其对其医护人员施打了中共科兴疫苗， 他的全国疫苗接种计划杀死了两万三千多人。注射疫苗九个多月后，埃尔多安明显且“严重”地患病了。据说他患上了血液微凝块而引起的右侧心力衰竭。从一些被泄露出的照片上可以看到他倚靠在两位助手身上来行走。事实上，埃尔多安没有参加格拉斯哥的气候峰会，特别是他也没有参加马克龙在巴黎组织的有关利比亚的会议，而此会议对他来说只有直接兴趣的。他的患病解释了他为什么缺席。
 
+如果这一消息被证实或持续发酵，肯定会影响中东的局势。据来自土耳其的秘密消息说，埃尔多安患有右心衰竭，是由众多的微血凝块堵塞肺部内部和周围的毛细血管。据分析是在他注射了新冠病毒之后，由于细胞中产生的刺突蛋白导致血液微凝。埃尔多安不幸的例子是疫苗造成的中期伤害，我们每天都有主流媒体继续忽视新冠疫苗的副作用，现在这一副作用使国际人士、年轻人、运动员和身体健康者也深受影响。
 
+原文链接： https://www.maurizioblondet.it/erdogan-gravemente-malato-9-mesi-dopo-la-puntura-vax/
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-据美国媒体11月15日的报道，美国疾病控制中心CDC近日表示，没有收到任何中共病毒自然免疫传播者的记录。所谓自然免疫传播者，根据一位名叫阿兰·思瑞的律师的描述，指的是从未接种疫苗，感染中共病毒康复后又复发，并传染他人者。
-
-CDC的这一信息，立刻引起了几位医学专家的注意，他们发现，该机构公布的关于病毒患者康复、传染等信息的数据非常缺乏。约翰·霍普金斯大学的马蒂·马卡瑞博士呼吁，康复者的数据应该彻底公开透明。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.2-6.jpg)
-事实上，目前有100多项研究为自然免疫提供了支持，证实自然免疫有着强大、长久的保护作用。
-
-有专家据此分析，政府推广疫苗的政策并没有建立在科学研究和分析的基础之上，是缺乏医学理论支撑的。
-
-参考链接：
-[CDC Admits No Record Of Naturally Immune Transmitting COVID-19](https://www.zerohedge.com/covid-19/cdc-admits-no-record-naturally-immune-transmitting-covid-19)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：Ivy001
-编辑：Kathy文艺
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+编辑、发布:  Xiao   baige
 
  
 

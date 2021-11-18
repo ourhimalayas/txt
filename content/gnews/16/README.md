@@ -2,34 +2,32 @@
 ---
 
 
-## 日本要闻汇编 11月18日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1674566/)
+## 德国卫生部长强调需降低对中共的依赖
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1674608/)
 
-素材：东京樱花团｜GNEWS组
-![](https://lh5.googleusercontent.com/LQ0EmuS1zKFvXbgDfFt63fgphNUleZcRJO0HGWkUhrmEdt-tpCOkyGT-GNjKnrIJAS8pAHNTdQmDznyZG_Bm9oVy21OcF6ZKP0nzXKNNzGxM3fnJ9RvWKXxDfzWPwbrSLP8QIjDz)[*图片来源*](https://cdn.trt.net.tr/images/xlarge/rectangle/462a/1175/3b13/60e0068c35324.jpg?time=1637230273)
-1、[**联大人权委员会通过决议谴责朝鲜侵犯人权**](https://china.kyodonews.net/news/2021/11/6922542bb7cd.html)
+作者：MOS 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月17日，据柏林消息提及，德国代理卫生部长斯班表示，德国应开设单独的经济峰会，用以降低德国对中共的依赖程度。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-18-下午9.42.25.png)圖片來源：2021年11月12日，德國衛生部長延斯·施潘在新聞發布會上就COVID-19疫情發表講話。（TOBIAS SCHWARZ/AFP via Getty Images）
+斯班提到，由于新冠疫情，自2020年以来，德国对中共的经济依赖逐步加深，尤其在医用口罩及药物原材料方面，这种情况令人担忧，同时也造成了严重的后果。斯班认为，降低德国对中共的依赖是十分必要的，且这将会成为德国未来10年内的主要挑战。
 
-联大第三委员会（人权）会议17日通过了欧盟（EU）提交的谴责朝鲜侵犯人权的决议案。同样内容的决议已连续17年获得通过。为早日解决绑架日本人问题，其中强调了“立即让受害者回国的紧急性和重要性”。日本是支持决议的“共同提案国”。预计12月该决议将在联大全体会议上正式获得通过。
+斯班补充，德国需要加大力度开发除中共以外的出口市场，并且与其他国家及地区签订更为广泛的贸易合同，从而降低对中共的依赖。另有其他政党的相关人士指出，德国应该提高对中共进口的贸易壁垒，以此阻止中共长久以来的倾销手段，以及惩罚中共对环境的污染和对人权的侵犯。
 
-2、[**经产相承诺援助中小企业对抗疫情影响**](https://china.kyodonews.net/news/2021/11/9e9a9158952d.html)
+参考链接：[Germany must reduce its dependence on China – health minister](https://www.reuters.com/world/china/germany-must-reduce-its-dependence-china-health-minister-2021-11-17/)
 
-日本经济产业相萩生田光一18日在东京与日本商工会议所主席三村明夫等干部会谈，针对疫情下处于困境的中小及小微企业，表示“将迅速提供必要的支援”，承诺扩充援助措施。着眼于疫情后，萩生田还表示将扶持中小企业推进去碳化和数字化举措。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-3、[**官房长官称尚未决定如何对待北京冬奥会**](https://china.kyodonews.net/news/2021/11/5f0b4400ffbc.html)
+总编：文徬
+编辑：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-日本官房长官松野博一17日召开记者会。关于有报道称美国近期将宣布不派遣外交使团参加明年2月的北京冬奥会，实施“外交抵制”一事，他表示“美国政府没有正式发布消息，我们不予置评”。当被问及日本将如何应对时，他回答称：“现阶段，未就要人出席做出任何决定。”
-
-4、[**日本拟创设医药品紧急批准制度**](https://china.kyodonews.net/news/2021/11/dff90a452a87.html)
-
-日本政府相关人士17日透露，为了在新冠疫情扩大等紧急情况下，未获批准的疫苗和医药品能在国内迅速被使用，政府初步决定创设“紧急时药事批准”制度，仅确认安全性，若能推定有效，就给予批准。此举旨在迅速防止传染病疫情扩大。18日起的厚生劳动省专门小组会上开始讨论。12月内敲定制度详细内容，向明年的例行国会提交相关法案。
-
-5、[**日经指数收跌0.3%**](https://china.kyodonews.net/news/2021/11/e98acda99733-03.html)
-
-东京股市日经指数18日继续回落，收盘报29598.66点，较昨日下跌89.67点，跌幅为0.30%。隔夜美股收跌形成重压，东京股市卖盘占优。交易时段传来消息称，日本政府将在19日内阁会议上敲定的经济对策的财政支出规模将创新高，日经指数一度转升。
-
-*编辑：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,49 +2,34 @@
 ---
 
 
-## 疫苗无效 韩国单日新增确诊病例再破3000
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1674505/)
+## 辉瑞公然谎报中共病毒疫苗临床实验中的死亡人数
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1674533/)
 
-作者：纽约香草山医疗部 – 云豹
+#### 撰稿：日本东京方舟农场  海星
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/B714B93D-ECDC-4709-94B1-D5063A9AAF52.jpeg)（图片来源：网络）
 
+据《网关专家》近日报道，辉瑞公司在有关中共病毒疫苗试验期间死亡人数的数据上对公众撒谎，实际死亡人数是21人，而不是最初报告的15人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+该报道援引美国记者亚历克斯·贝伦森（Alex Berenson）的报告指出，辉瑞公司及其合作公司BioNTech于7月28日公布的疫苗6个月临床试验数据，是世界各地监管机构同意注射该疫苗的依据。然而这份数据却公然造假。
 
+辉瑞对外公布的这份试验报告称，截至3月中旬，在试验中接受疫苗的大约22000人中，有15人死亡；而接受安慰剂（不含疫苗的盐水注射）的22000人中有14人死亡。
 
+然而贝伦森却发现，辉瑞向美国FDA报告的数据显示，从注射第一剂疫苗开始，截止至2021年3月13日，共有38人死亡——疫苗组有21人，安慰剂组有17人。
 
-据韩国中央防疫本部11月17日公告，韩国境内16日单日新增中共病毒确诊人数3187例，时隔53天后再次突破3000例，危重症患者人数也创下522例的新高纪录。与此同时，至11月15日为止，韩国完整疫苗接种比率已达到77.6%。
+显然，辉瑞在对外公布的数据中少报了6例注射疫苗的死亡人数，以及3例注射安慰剂的死亡人数。
 
-韩国的单日新增确诊人数，曾在9月24日达到最高峰值3270例，10月24日降到了1190例。韩国政府当时评估，完整疫苗接种率达到70%即可有效阻止病毒的传播。进入11月，在疫苗接种率达到这一比率后，韩国即放松了部分防疫管制措施。
+此外，贝伦森还指出，这些死亡的人并不都是因感染中共病毒而死。实际上只有3人死于中共病毒，其中，1人注射了疫苗，2人注射了盐水，而其余的死亡案例都是由其他疾病造成的。
 
-但短短两周时间，完整疫苗接种率虽然继续增加，但新增确诊人数及危重症病例没有下降，反而同时急遽飙升。 显而易见，疫苗无效，是不争的事实。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.2-9.jpg)
-参考链接：
-[韓國單日確診再破3000例 重症數創新高](https://www.cna.com.tw/news/firstnews/202111170048.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+*参考链接：[https://www.thegatewaypundit.com/2021/11/huge-breaking-news-pfizer-hid-public-number-deaths-covid-clinical-trials-actual-number-21-6-reported-4-unvaccinated-group/](https://www.thegatewaypundit.com/2021/11/huge-breaking-news-pfizer-hid-public-number-deaths-covid-clinical-trials-actual-number-21-6-reported-4-unvaccinated-group/)*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+* * *
 
-总编：文徬
-编辑：Kathy文艺
-校对/发稿：为真不破20
+*素材采编：海星*
 
-**更多资讯，更多关注**
+*编辑：青衣青青*
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+*发布：miumiu*
 
  
 
