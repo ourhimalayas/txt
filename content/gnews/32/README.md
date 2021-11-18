@@ -2,42 +2,34 @@
 ---
 
 
-## 辉瑞承认要对儿童新冠疫苗心肌炎风险做更多研究
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1674554/)
+## 文革2.0时代将给百姓带来深重苦难
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1674555/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：纽约香草山农场 – 四季
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月17日，郭文贵先生在直播中透露，在拜习视频会议之后的四小时，中共公布了六中全会的第三个重大决议，即中共的“10个坚持”，其实质就是宣布中共国继续坚持一党专制的独裁，大搞皇帝制。同时，中共国内将全面停止经济改革开放，开始新的文化大革命。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-18-下午9.41.09.png)圖片來源：jiangfei777.blogspot.com 姜野飛
+郭先生还提到，中共将即刻收回所有经济自由权，也就是说，私有企业会全部被收归国有，实行资本共产制。此后，中共会逐步跟世界经济脱钩、思想脱钩，实现真正的闭关锁国。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/share-the-moderna-recipe-banner-FINAL-9-1500x751-1.png)
+郭先生表示，共产党的本质是毫无自信且崇洋媚外，因此，共产党对美国会越来越软。然而，通过这次六中全会，美国和西方将视中共为更大的威胁。
 
+郭先生还警告说，在中共国，没有一个人是安全的——阿富汗的今天就是中国人的明天。大家要做好准备，灾难正在以光速降临在中国人头上。
 
-图片来源：www.citizen.org
+参考链接：[2021年11月17日 文贵大直播：再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向](https://gtv.org/video/id=6194fda8e7e7703792363972)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-#### 编译：小红帽
+总编：Irene木木
+编辑：文特
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-**医药巨头辉瑞公司在提交给美国食品和药物管理局（****FDA****）的文件中承认，为确定儿童长期心肌炎风险而进行的临床试验时间太短。**
-
-辉瑞和FDA都没有公开这一信息。此信息出现在去年10月美国FDA咨询委员会简报的第11页，其中辉瑞公司承认其临床试验志愿者的样本量太小，无法检测5至12岁儿童的心肌炎风险。
-
-该声明被隐藏在辉瑞公司为12岁以下儿童注射的中共病毒（COVID-19）疫苗的简报文件中。
-
-文件写道 “目前临床开发项目的参与者数量太少，无法检测出与接种疫苗相关的任何潜在心肌炎风险。中共病毒疫苗在5至12岁参与者中的长期安全性将在5项授权后的安全性研究中进行研究，包括一项为期5年的随访研究，以评估疫苗接种后心肌炎或心包炎的长期后遗症。”
-
-**尽管如此，****FDA****仍然决定为辉瑞公司的中共病毒疫苗颁发紧急使用授权（****EUA****），以便对用于****5****至****11****岁的儿童。**
-
-同时，FDA推迟了对莫德纳（Moderna）的类似授权，称他们需要对心肌炎的风险进行更彻底的检查，因为莫德纳的中共病毒疫苗配方中含有氨丁三醇–一种用于治疗代谢性酸中毒的药物，通常发生在心脏搭桥手术或心脏骤停后。
-
-**参考新闻：**[UNKNOWN RISK: Pfizer admits more studies are needed on myocarditis risk linked to COVID vaccines for kids – NaturalNews.com](https://www.naturalnews.com/2021-11-17-pfizer-admits-more-studies-needed-covid-vaccine.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

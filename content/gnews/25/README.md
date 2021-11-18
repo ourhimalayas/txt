@@ -2,24 +2,25 @@
 ---
 
 
-## 德国卫生部长强调需降低对中共的依赖
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1674608/)
+## 澳洲政府保护63个涉及国家安全的科技项目
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1674646/)
 
 作者：MOS 柳是多水土透
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月17日，据柏林消息提及，德国代理卫生部长斯班表示，德国应开设单独的经济峰会，用以降低德国对中共的依赖程度。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-18-下午9.42.25.png)圖片來源：2021年11月12日，德國衛生部長延斯·施潘在新聞發布會上就COVID-19疫情發表講話。（TOBIAS SCHWARZ/AFP via Getty Images）
-斯班提到，由于新冠疫情，自2020年以来，德国对中共的经济依赖逐步加深，尤其在医用口罩及药物原材料方面，这种情况令人担忧，同时也造成了严重的后果。斯班认为，降低德国对中共的依赖是十分必要的，且这将会成为德国未来10年内的主要挑战。
+当地时间11月17日，相关媒体消息称，澳大利亚政府表示，堪培拉当局已经辨识出63个对国家利益至关重要的技术领域，且政府将为这些技术项目提供数百万美元的研发资金支持，用以防止战略对手控制网络安全及医药等相关行业。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-43.jpg)
+近期，澳洲政府承诺，将在未来支出数十亿美元来实现澳洲经济的现代化，同时提振资源和关键矿产等行业的生产，并且将继续支持降低碳排放的技术。为此，澳洲政府筛选出的这63个政府保护科技项目主要覆盖了量子技术、先进网络、基因学和新型抗生素等方面。
 
-斯班补充，德国需要加大力度开发除中共以外的出口市场，并且与其他国家及地区签订更为广泛的贸易合同，从而降低对中共的依赖。另有其他政党的相关人士指出，德国应该提高对中共进口的贸易壁垒，以此阻止中共长久以来的倾销手段，以及惩罚中共对环境的污染和对人权的侵犯。
+澳洲政府表示，澳大利亚正在与志同道合的自由民主国家合作，确保全球技术规范能够反映出自由民主的价值观。 据了解，澳大利亚此前已与中共经历了长达数月的贸易战和政治经济关系的冷却，与此同时，澳大利亚政府正努力减低澳洲对中共的依赖。消息人士评论称，澳洲政府此举可被看作是对中共海外科技威胁的回应。
 
-参考链接：[Germany must reduce its dependence on China – health minister](https://www.reuters.com/world/china/germany-must-reduce-its-dependence-china-health-minister-2021-11-17/)
+参考链接：
+[Australia says 63 areas of technology are critical to national security](https://www.reuters.com/world/asia-pacific/australia-invest-73-mln-quantum-tech-it-beefs-up-critical-areas-2021-11-16/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
 总编：文徬
 编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
