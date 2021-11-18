@@ -2,44 +2,34 @@
 ---
 
 
-## 墙内要闻汇编 11月18日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1674971/)
+## 辉瑞允许仿制商在多国试验新冠药物
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1675099/)
 
-#### 素材：东京樱花团｜GNEWS组
+作者：香草山农场-晓仙女
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月16日，据相关媒体报道，辉瑞公司表示，将允许仿制药商通过国际公共卫生组织药品专利许可协议，向95个中低收入的国家提供其实验性新冠病毒治疗药物，预计将覆盖全球约53%的人口。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/墙内1118.png)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1118/20211118103306548.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-14.jpeg)
 
-1、[**恒大集团再套现2.7亿美元 出售恒腾全部股权**](https://www.aboluowang.com/2021/1118/1673238.html)
+在该协议下，辉瑞允许联合国支持的机构向合格的非专利药品制造商发放许可，使其生产自己版本的新冠药品，同时，辉瑞将以Paxlovid 品牌出售这些药商生产的相关药物。
 
-中国房地产商恒大集团今天公告出售恒腾网络全部股权，总交易额超过港币21亿2763万元（约2.7亿美元）。相信此举与解决债务危机有关；受此消息刺激，恒腾网络股价今早飙升。
+对此，医疗慈善机构无国界医生组织表示，这笔交易使人感到“沮丧”。此前，郭文贵先生也在大直播中表示，新冠口服药物比当下的新冠疫苗还可怕，一定要远离这类口服药。
 
-2、[**大连庄河户户被安报警器 出门就被抓**](https://www.aboluowang.com/2021/1118/1673377.html)
+参考链接：[Pfizer to allow generic versions of its COVID pill in 95 countries](https://www.reuters.com/business/healthcare-pharmaceuticals/pfizer-allow-generic-versions-its-covid-19-pill-95-countries-2021-11-16/)
 
-大连这轮疫情确诊病例至少已有280例，其中，庄河市是重灾区。有民众透露，12日庄河市每家门上都被贴上封条。庄河市某商户林先生透露，现在更严了，门上都被安了报警器，一出门就被抓。而大面积隔离也导致隔离点不足或环境不佳，民众抱怨连连。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-3、[**比亚迪员工猝死 加班文化何时休？**](https://www.aboluowang.com/2021/1118/1673066.html)
+总编：文特
+编辑：Lakeman(文仁)
+校正/发稿：谐趣园
 
-澎湃新闻报道，比亚迪汽车公司的一位三十六岁西安员工本月初在出租屋中猝死，而他的亲属从手机中调取的工作打卡记录显示，他上个月有二十六天的工作时长都在十二小时左右，严重超出了法律规定的时长上限。前一阵儿，中国互联网企业的“996”文化被指严重违法，但高强度工作制为何仍然广泛存在？
-
-4、[**瞒天过海？中共代发的彭帅“我很好” 有3个疑点**](https://www.aboluowang.com/2021/1118/1673297.html)
-
-先前透过微博控诉中共高官性侵的国际网球好手彭帅自从11月2日发文以后至今仍完全失联、下落不明。国际女子网球协会（WTA）和多名国际选手也在本周相继出面声援彭帅，就在舆论再次延烧的时候，北京时间18日凌晨，中共官媒CGTN突然发布“彭帅之信”，声称是彭帅寄给WTA主席的email，内容表示“自己一切都很好很平安，没有失踪”，甚至反驳“性侵指控的相关新闻皆非事实”。
-
-5、[**北京市多城区突现“云中城市” 能见度低于100米**](https://www.aboluowang.com/2021/1118/1673295.html)
-
-北京市气象局今（18日）向大兴、通州、密云、顺义4个城区发布大雾橙色预警（6小时内区域能见度小于200米），通州、大兴部分地区能见度小于100米，有网友拍下东四环附近城市，高楼大厦底部被浓雾包围，而道路及交通工具则几乎被大雾垄罩。
-
-6、[**山东中学学生伤人致死 手段残忍**](https://www.aboluowang.com/2021/1118/1673340.html)
-
-11月16日晚，山东省潍坊市寿光市稻田镇赵庙初级中学发生一起学生伤人致死事件。知情者透露，伤人者应该是八年级的学生，被害人正在读九年级。在16日晚自习后，伤人者叫了几个同学一起将被害人拖到操场。伤人者的手段极其残忍，受害学生“疑似气管被割破”。在出事前，这两个孩子曾发生过口角。
-
-7、[**北京推广“朝阳群众”制度 世界第五大情报组织**](https://www.aboluowang.com/2021/1118/1673366.html)
-
-被网民戏称为“世界第五大情报组织”的“朝阳群众”，曾举报过无数吸毒嫖娼的政要、明星，是当局监管社区的常用手法。北京市委近日宣布，将打造更多类似“朝阳群众”、“西城大妈”的群众自治组织，参与到基层社会治理。预计到2023年，北京市每个社区将培育不少于2个的社区社会组织。
-
-*编辑：东京樱花团 / 東洋武士
-发布：东京樱花团 / 野猫*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

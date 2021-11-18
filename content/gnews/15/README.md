@@ -2,34 +2,37 @@
 ---
 
 
-## 辉瑞允许仿制商在多国试验新冠药物
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1675099/)
+## 孟宏伟妻子在法国露面指控中共是独裁魔鬼
+` 军迷wilson` [轉載自GNews](https://gnews.org/zh-hans/1675159/)
 
-作者：香草山农场-晓仙女
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月16日，据相关媒体报道，辉瑞公司表示，将允许仿制药商通过国际公共卫生组织药品专利许可协议，向95个中低收入的国家提供其实验性新冠病毒治疗药物，预计将覆盖全球约53%的人口。
+#### 加拿大扬帆农场 向真
+![](https://assets.gnews.org/wp-content/uploads/2021/11/A301550C-2BD8-4C16-8D53-C6FEF6D0A4CE_w1023_r1_s.jpg)来源：voachinese
+德国之声11月18日报道，在前国际刑警组织主席孟宏伟以受贿罪被判处有期徒刑13年6个月并处罚金人民币200万元后近两年，孟宏伟的妻子决定放弃隐匿身份，不再顾虑国内亲朋可能被迫害，在法国公开露面指控中共是独裁魔鬼。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-14.jpeg)
+孟宏伟是在国际刑警组织主席任上被捕的，他在任上时曾经对新中国联邦创始人郭文贵签发红通令，足见中共对囯际组织渗透之深之广。国际刑警组织总部设在法国里昂，孟宏伟和妻子高歌有一对年幼的双胞胎男孩，孟被捕后高歌和两个孩子一直留在法国。
 
-在该协议下，辉瑞允许联合国支持的机构向合格的非专利药品制造商发放许可，使其生产自己版本的新冠药品，同时，辉瑞将以Paxlovid 品牌出售这些药商生产的相关药物。
+高歌认为中共一直在试图将她和两个儿子绑架回国，让他们面对无人所知的命运，因此非常恐惧。她在今年5月获得法国政治庇护，法国警方为她提供了24小时全天候保护。
 
-对此，医疗慈善机构无国界医生组织表示，这笔交易使人感到“沮丧”。此前，郭文贵先生也在大直播中表示，新冠口服药物比当下的新冠疫苗还可怕，一定要远离这类口服药。
+外界一直认为孟宏伟是周永康提拨起来的，不是习近平的人，所以被清洗。近日高歌在接受美联社公开釆访时称，中共对她丈夫的指控都是凭空捏造的，是一桩假案，是政治分歧变为刑事案件的一个例子。
 
-参考链接：[Pfizer to allow generic versions of its COVID pill in 95 countries](https://www.reuters.com/business/healthcare-pharmaceuticals/pfizer-allow-generic-versions-its-covid-19-pill-95-countries-2021-11-16/)
+她说，今天中共国的腐败程度极其严重，无处不在，我的丈夫被清洗是因为他一直利用他的高官职位推动改革。我有责任告诉世界究竟发生了什么，我知道如何同一个独裁魔鬼共存。此前高歌曾经多次接受采访，但均背对摄像头。
+![Image](https://pbs.twimg.com/media/D_Rc7QuUwAIJbtn?format=jpg&amp;name=small)来源：禁闻网
+高歌说，2018年10月她丈夫回国后失踪，从此失去音讯，我不知道丈夫的健康状况如何，委托律师寄给中共官方的几封信也都石沉大海，我甚至不知道丈夫现在是否还活着。我的两个儿子每听到敲门声都会飞奔过去开门，以为爸爸回来了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+今年4月，高歌向海牙国际仲裁法院提起诉讼，状告国际刑警组织“未尽到保护我家人的义务，在其成员国中共国的国际性错误行动中负有罪责”。国际刑警组织立即回应称没有犯有任何错误，但声称“与高歌的交流属于机密性质。”
 
-总编：文特
-编辑：Lakeman(文仁)
-校正/发稿：谐趣园
+据悉，高歌有香港身份证，曾挂名中国太平保险集团等多家公司高管职务，在境内外购有多处房产。在孟宏伟被捕事件后，高歌被撤掉山东省政协常委、民建青岛市委副主任等职务。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+孟宏伟是核心权力机关公安部正部级高官，熟悉中共绞肉机体制，早料到有这一天，会将掌握的情报和高层腐败证据交给高歌，因此高歌是有底气的。
+
+中共是欺软怕硬的主，高歌选择公开向中共挑战是最明智的选择。高歌敢于站出来或是受到战神郭文贵先生的影响，受此鼓舞，相信以后选择挑战中共的中国流亡者会越来越多。
+
+参考来源：
+
+[孟宏伟的妻子公开谈论丈夫、自己和中国政府 | 德国之声 来自德国 介绍德国 | DW | 18.11.2021](https://www.dw.com/zh/孟宏伟的妻子公开谈论丈夫自己和中国政府/a-59858094)
+
+[孟宏伟妻子状告国际刑警组织 | 德国之声 来自德国 介绍德国 | DW | 07.07.2019](https://www.dw.com/zh/孟宏伟妻子状告国际刑警组织/a-49503671)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

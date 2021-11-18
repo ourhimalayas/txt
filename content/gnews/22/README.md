@@ -2,30 +2,22 @@
 ---
 
 
-## 樱花灭共诗——登阁晚望寄郭文贵先生
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1674959/)
+## 七哥说—第29期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1675091/)
 
-撰稿：东京樱花团/小小杜
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-82.jpg)
-独自登高日，
+**制作：Inzaghi**
 
-天青叶落时。
+天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。
 
-疾风听飒飒，
+![](https://assets.gnews.org/wp-content/uploads/2021/11/a123.png)
 
-斜照见迟迟。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/a124.png)
 
-乱局凭谁问，
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
 
-民生共子思。
 
-老夫怜夏族，
-
-临阁望王师。
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
