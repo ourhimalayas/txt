@@ -2,24 +2,25 @@
 ---
 
 
-## 雅典娜时报-第116期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1673477/)
+## 前美国总统顾问班农承诺将转守为攻
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1673538/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+原文采编：UCool优酷 编译撰稿：文所未闻
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-46-edited.jpg)图片来源：GNEWS
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_618-2.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_818.png)
-***发布：小红帽***
+据英国知名媒体《每日邮报》11月15日报道，前美国总统川普的首席战略顾问班农先生，当天在华盛顿【联邦调查局】总部，参加了简短听证会以回应当局关于对其“藐视国会”的指控。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+报道称，班农在本次听证会现场利用社交媒体GETTR平台进行了全程直播。聆讯期间，他不仅抨击了拜登政府的无能，还要求其支持者们继续关注两党大势。并同时承诺将迅速改变斗争策略而转守为攻。
+
+针对班农先生将于11月18日再次出庭接受听证，他女儿对此直言不讳表示，这不仅是一场典型的政治迫害，也是拜登政府用来转移目前美国民众对当局国策全面失败的关注。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+原文链接：[https://www.dailymail.co.uk/news/article-10204023/Steve-Bannon-arrives-Washington-court-indicted-refusing-comply-subpoena.html](https://www.dailymail.co.uk/news/article-10204023/Steve-Bannon-arrives-Washington-court-indicted-refusing-comply-subpoena.html)
 
  
 
