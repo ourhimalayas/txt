@@ -117,56 +117,56 @@
 ### [GTV新闻访谈简报|2021年11月17日晚](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
 
-### [7·24系列——李红与奥运会](/content/gnews/35/README.md)
- ` 墨尔本雅典娜农场`
-
-### [OSHA在法院阻止后暂停执行疫苗任务](/content/gnews/36/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [耶伦再次警告美国财政即将破产](/content/gnews/37/README.md)
+### [耶伦再次警告美国财政即将破产](/content/gnews/35/README.md)
  ` 军迷wilson`
 
-### [三家公司靠中共病毒疫苗，每一秒吸血1000美元](/content/gnews/38/README.md)
+### [三家公司靠中共病毒疫苗，每一秒吸血1000美元](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [六中全会习近平加冕,中共内斗血雨腥风,国际四面楚歌](/content/gnews/39/README.md)
+### [六中全会习近平加冕,中共内斗血雨腥风,国际四面楚歌](/content/gnews/37/README.md)
  ` mary202064`
 
-### [纽约助理医师成为吹哨人，报告揭露疫苗伤害被禁言](/content/gnews/40/README.md)
+### [纽约助理医师成为吹哨人，报告揭露疫苗伤害被禁言](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021/11/16 墙内世界](/content/gnews/41/README.md)
+### [2021/11/16 墙内世界](/content/gnews/39/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [娜塔莉：发起班农起诉的罪魁祸首亚当·希夫是中共勾结者](/content/gnews/42/README.md)
+### [娜塔莉：发起班农起诉的罪魁祸首亚当·希夫是中共勾结者](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [杰森·米勒高度评价班农，战斗室节目正在让美国逐渐觉醒](/content/gnews/43/README.md)
+### [杰森·米勒高度评价班农，战斗室节目正在让美国逐渐觉醒](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [全网独家解析拜习会，揭开会议前后的桌下秘密](/content/gnews/44/README.md)
+### [全网独家解析拜习会，揭开会议前后的桌下秘密](/content/gnews/42/README.md)
  ` YALUN 亚伦`
 
-### [莫琳·班农上尉：史蒂夫·班农还没开始战斗，他们惹错人了](/content/gnews/45/README.md)
+### [莫琳·班农上尉：史蒂夫·班农还没开始战斗，他们惹错人了](/content/gnews/43/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [班农：我们不会坐以待毙，我们会主动出击](/content/gnews/46/README.md)
+### [班农：我们不会坐以待毙，我们会主动出击](/content/gnews/44/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [疯狂科学家现在正在开发替代疫苗的mRNA蔬菜和水果](/content/gnews/47/README.md)
+### [毒疫苗，你的危害还要走多远？](/content/gnews/45/README.md)
+ ` 纽约香草山MOS01`
+
+### [疯狂科学家现在正在开发替代疫苗的mRNA蔬菜和水果](/content/gnews/46/README.md)
  ` 走进澳洲`
 
-### [班农：我们将发起进攻，捍卫你们所有人的权利](/content/gnews/48/README.md)
+### [班农：我们将发起进攻，捍卫你们所有人的权利](/content/gnews/47/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [斯蒂芬·K·班农敦促在华盛顿特区联邦调查局现场办公室外的支持者要关注“信号，而不是噪音”](/content/gnews/49/README.md)
+### [斯蒂芬·K·班农敦促在华盛顿特区联邦调查局现场办公室外的支持者要关注“信号，而不是噪音”](/content/gnews/48/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文贵爆料 11.17: CCP是全世界邪恶势力的大总部](/content/gnews/50/README.md)
+### [文贵爆料 11.17: CCP是全世界邪恶势力的大总部](/content/gnews/49/README.md)
  ` 秘密翻译组-原创组`
 
-### [文贵爆料 11.17 : 喜币的神话才刚刚开始](/content/gnews/51/README.md)
+### [文贵爆料 11.17 : 喜币的神话才刚刚开始](/content/gnews/50/README.md)
  ` 秘密翻译组-原创组`
+
+### [纳瓦罗：数百万人因福奇对武毒所保持沉默而死亡](/content/gnews/51/README.md)
+ ` GTV新闻访谈`
 
 ### [中共就台湾问题威胁美国 玩火者必自焚](/content/gnews/52/README.md)
  ` GTV新闻访谈`

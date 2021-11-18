@@ -2,76 +2,24 @@
 ---
 
 
-## 斯蒂芬·K·班农敦促在华盛顿特区联邦调查局现场办公室外的支持者要关注“信号，而不是噪音”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672679/)
+## 文贵爆料 11.17: CCP是全世界邪恶势力的大总部
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1672648/)
 
-Stephen K. Bannon
-斯蒂芬·K·班农
+撰稿：柯亭
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1117-4.jpg)
+11月17日，文贵先生在直播中回答QMay关于世界邪恶势力意欲将今天的世界带向何方这个问题时强调，CCP是全世界邪恶势力的大总部。
 
-I just want to say, tell everybody, it live stream on Gettr right now
-我只想告诉正在看盖特直播
+他说，事实上大家都看到了，今天的疫情和疫苗灾难与钱有关系。这个世界上现在超发了这么多的货币和票据，世界保险已经到了最高赔付的顶峰。文贵先生剖析了其中原因和后果。过去70年和平时期以及最近20年的经济发展，都被金融票据也就是华尔街的金融杠杆所影响；金融杠杆化、以及2008年金融危机以来所有超发货币的结果，是世界上极少数人非法获得了却大多数的财富；而金融杠杆化的最终结果，其中最重要的一个问题是保险公司要兑现被保险的钱、以及金融机构要兑现十倍或百倍的回报。
 
-everybody watching in the War Room.
-和正在观看战斗室的大家
+不仅如此，那些控制金融杠杆化的各国政府和金融机构的人，也就是世界上百万分之一的极少数人，同时也控制着大药厂这个和平的、合法的杀人武器。这些邪恶势力控制的另一个武器，就是绝对控制人的精神和思想、不让人知道真相的所有传统媒体。
 
-We’re here today.
-我们今天在这里
+文贵先生提醒战友们要看清今日世界的形势，也就是邪恶势力妄图控制世界的三个手段。第一就是掌控所有的媒体把真相干掉；第二个就是用药厂干掉你。如果前两个手段还干不掉你，就用枪用武器，让警察搞掉你。
 
-I don’t want anybody take their eye off the ball but we do every day.
-我不希望任何人把注意力从我们每天都做的事情上移开
+**郭先生揭示背后的CCP才是全世界邪恶势力的大总部。**这个邪恶势力包括那些背后的大佬、金融之父、杠杆的原创者，也包括美国共产党、以及那些与CCP相互纠结华尔街的大鳄。邪恶势力最大的勾兑者是CCP，CCP是邪恶中的邪恶，CCP是全世界邪恶势力的大总部；而且与药厂、病毒、以及制药都有关系。这个世界已经处于关键时刻，全世界要与邪恶势力算清账，要么邪恶势力会把这个世界给干掉了。
 
-Okay, we got the Hispanics come on our side,
-好的？我们有西班牙裔美国人站在我们这边
+文贵先生提醒战友们说，这个世界已经到了最黑暗的时候；他得到的一些信息，包括对人特别是孩子的杀虐，其血腥程度远远超过战友们搜寻到的所有视频；战友们在不改变生命和生活现状的情况下，绝对要挺下去。
 
-African Americans coming on our side.
-非裔美国人站在我们这边
-
-We’re taking down the Biden regime
-我们正在推翻拜登政权
-
-every day the focus you got
-每一天这都是你的焦点
-
-Raheem Kassam today, you got Dr. Peter Navarro, Captain Bannon
-今天有拉希姆·卡萨姆，你有彼得·纳瓦罗博士，班农上尉
-
-and you’re going to have Boris Epstein the whole show intense.
-而且鲍里斯·爱泼斯坦会在战斗室节目里，节目会非常激烈
-
-we got polling out, economic data out, and everything
-我们会分析民调、经济数据和其他
-
-I want you guys to stay focused on message
-我希望你们能保持对信息的专注
-
-remember signal not noise.
-记住信号，忽略噪音
-
-This is all noise that signal.
-这些都是那个信号的噪音
-
-Thank you very much
-非常感谢
-
-* * *
-
-Date:11/15/2021
-原视频标题: Stephen K. Bannon urges supporters outside FBI Field Office in D.C. to focus on “signal, not noise,”
-斯蒂芬·K·班农敦促在华盛顿特区联邦调查局现场办公室外的支持者要关注“信号，而不是噪音”
-原视频日期：2021/10/15
-原视频链接: [https://gettr.com/post/ph0i3m1249](https://gettr.com/post/ph0i3m1249)
-任务编号：KE346（2891）
-视频时间段 : 0:50-1:25
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 小战蚁
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+参考链接：[11月17日文贵大直播](https://gtv.org/broadcast/watch/6194fda8e7e7703792363973)
 
  
 
