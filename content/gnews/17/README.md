@@ -2,146 +2,55 @@
 ---
 
 
-## 六中全会后，习成为全党公敌对新中国联邦是天大的利好
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1674221/)
+## 科学家们想用隐形墨水给孩子们盖上接种“纹身”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1674235/)
 
-[https://gtv.org/video/id=6195bbd51827025081065606](https://gtv.org/video/id=6195bbd51827025081065606)
+编译: Jenny ball
 
-六中全会给我们带来一个（消息）就是上天在帮我们新中国联邦
-La Sexta Sesión Plenaria nos traerá una (noticia) ayuda que nos está haciendo Dios a nuestro Estado Federal de China
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-412.png)图片来源: naturalnews.com
 
-他这么一决定大家要记住
-Todos recuerden él al tomar esa decisión
+《生活新闻》就在武汉冠状病毒 (COVID-19) 公开宣布前几个月，[*麻省理工学院*](https://web.mit.edu/)  (MIT) 的科学家宣布完成了一项野兽标记“纹身”技术([Mark of the Beast “tattoo” technology for children](https://www.scientificamerican.com/article/invisible-ink-could-reveal-whether-kids-have-been-vaccinated/))，用于跟踪儿童的疫苗接种记录。
 
-习就成了全党的唯一的公敌
-Xi se convertirá en el único enemigo público de todo el partido
+可以直接植入皮肤的微芯片设计，有特殊的隐形染料，可以用特殊的手机过滤器拾取，这种染料肉眼是看不到的。
 
-就共产党内部的绞杀
-Sobre el estrangulamiento dentro del PCCh
+这种染料可持续长达五年，使用近红外光检测，近红外光照射到注射区域的皮肤上。 它已经在猪和老鼠身上进行了测试，据推测，下一步是开始給儿童真正的注射。
 
-就是文化大革命的后期
-Es la última parte de la Revolución Cultural
+亿万富翁兼优生学家比尔·盖茨（Bill Gates），在大流行初期就呼吁这样做，**并暗示中共国病毒的数字疫苗“护照”，包括人们的注射记录**。
 
-毛泽东和刘少奇、林彪就开始了
-Desde Mao Zedong, Liu Shaoqi y Lin Biao comenzaron
+“该系统尚未在儿童中进行过测试，它可以快速方便地访问疫苗接种历史，避免文书错误的风险，并且几乎不会增加程序的成本或风险，”《科学美国人》援引一项发表在《科学转化医学》杂志上的项目研究报告说。
 
-如果他要立了接班人说自己下去了
-Si él quiere crear un sucesor y decir que bajará
+**量子点纹身完成兽印记录系统**
 
-那他马上就是赤膊战斗中国真可能失控
-De inmediato va a luchar sin camisa y China de verdad se descontrolará
+参与该项目的科学家们，再次以穷人为借口制造这种令人憎恶的事情，声称它将帮助发展中国家实现更好的儿童健康结果。
 
-这回大家有个目标 干掉习
-Esta vez todos tienen una meta, derribar a Xi
+[*佐治亚理工学院*](https://www.gatech.edu/) （Georgia Tech）的生物工程教授马克·普拉斯尼茨（Mark Prausnitz）评论说：“特别是在医疗记录可能不完整或不易获取的发展中国家，将医疗信息与人直接相关是有价值的。” 他没有参与这项研究。“我认为，这是实现这些目标的一种非常有趣的方式。”
 
-习要是永远护着自己这个龙椅 记住啊
-Si Xi quiere proteger por siempre su podio de dragón recuerda
+它还[实现了将人们的识别信息合并到微芯片注射或纹身](http://futuretech.news/)中的预言目标，这些信息可以被扫描用于买卖、进入受限制的建筑物、驾驶和参与社交活动。
 
-习要护着这个国家和共产党这个龙椅
-Xi va a proteger este podio de dragón del país y del PCCh
+据麻省理工学院生物工程师罗伯特·兰格（ Robert Langer）和安娜·雅克莱内克（Ana Jaklenec）称，首先在儿童皮肤上印上装满微针的小贴片，为他们注射疫苗。之后，他们的注射证明存储在其可注射组件上。
 
-那可复杂了去了
-Eso si se complica
+通过对手腕、前额注射这些成分的地方进行简单扫描，政府就可以快速检查孩子是否“按时”接种疫苗，其中包括福奇流感疫苗。
 
-但这些人要干掉他人家在暗处
-Pero estas personas que lo quiere derribar están en la oscuridad
+“该团队最终使用了一种称为量子点的技术，这种微小的半导体晶体可以反射光，最初开发用于在研究过程中标记细胞，”《科学美国人》报道。“这种染料已被证明对人体是安全的。”
 
-只需一枪只需一炮或者一粒药就能把他解决掉
-Solo necesitan una bala, un cañón o una pastilla lo podrán resolver
+正如您所料，并非每个人都参与该计划。隐私专家表示，让人们带着包含他们所有个人信息的微芯片四处走动存在风险。
 
-你放心 全党的所有人就干两件事儿
-Tú tranquilo, en todo el partido sólo harán dos cosas
+“不同的人和不同的文化，可能会对隐形医疗纹身有不同的感觉，”普劳斯尼茨补充道。
 
-他的敌人第一保住自己的什么私生子女和财产
-Lo primero que hará su enemigo es proteger las propiedades de sus hijos ilegítimos
+**比尔和梅琳达****·****盖茨基金会资助这项兽印记研究这一事实并不令人意外**。它的推出是因为盖茨本人的“直接要求”，他声称，他希望将这些微芯片植入人体内，以“消灭疾病”。
 
-然后呢逮住机会把习干掉
-Luego de eso obtener una oportunidad para derribar a Xi
+“如果我们没有好的数据，就很难根除疾病，”雅克莱内茨补充道，以支持盖茨的议程。
 
-那么习加速师是我们的礼物
-Entonces el acelerador Xi es nuestro regalo
+**评论：这篇文章让人们看到：疫苗的真正目的，除了大规模灭绝人口，还是更利用管控疫苗没有杀死的人们！**
 
-他这么一折腾咱就省心了
-Él al complicarse nosotros no nos preocupamos
+新闻来源: [naturalnews.com][Here come the tattoo marks – Scientists want to stamp children with invisible ink to prove they’ve been vaccinated](https://www.naturalnews.com/2021-11-15-scientists-want-to-stamp-vaccinated-children.html) / [ScientificAmerican.com](https://www.scientificamerican.com/article/invisible-ink-could-reveal-whether-kids-have-been-vaccinated/) / [NaturalNews.com](https://www.naturalnews.com/2020-04-03-eugenicist-bill-gates-demands-digital-certificates-coronavirus-vaccination.html)
 
-咱这个两三年使劲赚钱去
-Estos dos tres años nos esforzamos al máximo para ganar dinero
+* * *
 
-建立我们强大的新中国联邦的国防
-Construir la defensa nacional de nuestra poderosa Nuevo Estado Federal de China
-
-建立强大的我们金融系统
-Construir un Sistema Financiero fuerte
-
-多交朋友让新中国联邦得到更多认可
-Hacer muchas amistades nuevas para que el Nuevo Estado Federal de China sea reconocido
-
-从外边准备好
-Prepararse bien desde la parte exterior
-
-另外一个从昨天所有的宣布
-Lo otro que se comunicó el día de ayer
-
-习所谓的他现在已经完全把自己列为
-Lo que Xi dijo que ahora se ha incluido por completo como
-
-就是毛、邓、习了
-Es decir, Mao, Deng, Xi
-
-而且昨天已经很清楚告诉你
-Además, el día de ayer te lo dijo claramente
-
-这个接班人一定是他的家人一定是他的认定
-Este sucesor debe ser su familia y debe ser reconocido por él
-
-接下来20大的事情已经不用想了
-En seguida las 20 cosas principales ya no es necesario de pensar
-
-习是肯定在党内已经都知道都定完了
-Xi seguramente sabe que dentro del partido ya todos lo confirmaron
-
-公告一下就行了
-Solo hay que hacer un aviso y listo
-
-他明年20 大之前
-El año que viene antes de las 20 cosas principales
-
-大量的捕杀要把他的李希、李磊全弄上去
-Habrá una gran cantidad de asesinatos para que Li Xi y Li Lei se levanten
-
-要把江家的人逐渐铲除
-Va a erradicar gradualmente a las personas de la familia Jiang
-
-然后想尽一切办法
-Luego hacer todo lo posible
-
-要把整个企业所谓的再分配
-Para hacer la llamada redistribución de toda la empresa
-
-1分配、2分配、3分配这还没开始呢
-La asignación 1, 2 y 3 no han empezado
-
-在国内的人可就惨了去了现在
-La gente dentro del país sí que estará miserable ahora
-
-日期：11/17/2021
-原视频标题：六中全会后，习成为全党公敌对新中国联邦是天大的利好
-Después de La Sexta Sesión Plenaria, Xi se convertirá en el mayor beneficio del enemigo público de todo el Partido contra El Nuevo Estado Federal de China
-原视频日期：11/14/2021
-原视频网址： [https://twitter.com/se1y7cblljselva/status/1459700077413679104?s=24](https://twitter.com/se1y7cblljselva/status/1459700077413679104?s=24)
-任务编号：KC262（2877）
-视频时间段：0:00-2:18
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*审核：文乐
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

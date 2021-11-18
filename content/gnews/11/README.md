@@ -2,41 +2,39 @@
 ---
 
 
-## 澳大利亚总理呼吁各州放宽强制疫苗政策
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1674272/)
+## FDA让联邦法官批准其在2076年之前完全发布辉瑞新冠疫苗数据
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1674286/)
 
-**翻译/整理：月映万川
-编辑：朝花夕拾**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-36.jpg)
-图片来源：[Scott Morrison demands rouge states drop vaccine mandates](https://www.msn.com/en-au/news/australia/scott-morrison-demands-rouge-states-drop-vaccine-mandates/ar-AAQPWTy?li=AAaeSy5)
+美国联邦政府保护辉瑞使其免于承担责任，并花费数十亿美元迫使美国人接受辉瑞的产品，却不对公众开放证明其安全性和有效性的数据。政府到底在为谁工作？
 
-当新南威士州做出在12月15日废除疫苗护照的决定时，昆士兰州将会在12月17日引入疫苗护照针对酒店服务场所。于此同时，维多利亚州誓言要把疫苗护照一直保持到明年。
+据《Injecting Freedom》记者 Aaron Siri 2021 年 11 月17日报道 ：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-128.png)
+FDA 已要求一名联邦法官批准需要等到 2076 年才披露所有的新冠疫苗数据和信息，以许可辉瑞 (Pfizer) 的 COVID-19 疫苗。这不是打字错误，FDA需要 55 年的时间向公众提供这些信息。
 
-因受到来自自由党内部的议员压力，莫里森在周四称，他仅仅支持对医疗工作者执行强制疫苗政策。
+正如之前的一篇文章中所解释的那样，FDA 一再承诺对 Covid-19 疫苗“完全透明”，包括在许可辉瑞 (Pfizer) 的 COVID-19 疫苗时重申的“ FDA 对透明度的承诺”。
 
-在回应昆士兰州州长时，总理称＂未接种者应该被允许在布里斯班街头喝一杯咖啡。＂
+考虑到这一承诺，在 8 月份该疫苗获得批准后，来自该国最负盛名的大学的 30 多名学者、教授和科学家要求辉瑞向 FDA 提交数据和信息，以获得辉瑞 COVID-19 疫苗的使用许可。
 
-同时在周四的访问中，总理也表示，＂现在是时候让政府回归到自己原来的位置，而让澳大利亚人找回自己曾经的生活。＂
+FDA对于上述要求却没有任何回应。因此在 9 月份，我的公司代表该科学家和学者团体向 FDA提起诉讼，要求FDA提供这些信息。迄今为止，在辉瑞的疫苗获得许可近三个月后，FDA 仍未发布任何一页报告或者申明，什么都没有。
 
-昆士兰副州长斯蒂文迈尔斯在回击总理的言论时称，总理因其自身＂狡猾的政治利益＂而损害了昆士兰州政府对大流行的应对计划。
+相反，在两天前，FDA却要求联邦法官许可其可以在 2076 年之前提供完整的信息。FDA 要求法官允许它来制作辉瑞提供给的 329,000 多页文件，FDA说它们每个月可以完成 500 页的报告，按这个速度速度，意味着完整的报告不会早于 2076 年完成。 FDA 对透明度的承诺说得客气一点，就是一堆幻想。
 
-总理的这番言论是在两名自由党议员和一国党党魁保琳汉森宣布不再支持政府任何法案后做出的。而让三位议员重新支持政府法案的前提就是，莫里森要在各州制止疫苗强制令上有所行动。
+从辉瑞开始制作许可记录（2021 年 5 月 7 日）到 FDA 批准辉瑞疫苗（2021 年 8 月 23 日），FDA 用了整整 108 天。按照 FDA 的说法，它对这些文件进行了密集、有力、彻底和完整的审查和分析，以确保辉瑞疫苗在获得许可时是安全有效的。虽然它可以在 108 天内对辉瑞的文件进行如此密集的审查，但现在它需要超过 20,000 天的时间才能向公众提供这些文件。
 
-如果这三位参议员的要求不能得到满足，那么，任何在下周表决的政府法案将不会获得通过。
+所以，让我们说清楚。事情的本质是：联邦政府正在保护辉瑞免于承担责任，花费数十亿美元迫使美国人使用它的产品，却不会让你看到支持其产品安全性和有效性的数据。政府在为谁工作？
 
-于此同时，未接种疫苗的一国党汉森参议员已经提交了一份有关停止疫苗强制令的法案。此法案要求联邦政府可以越过各州法规而叫停疫苗强制令。
+再一次的教训是，公民和个人权利永远不应受控于医疗程序。每个想要接种疫苗和加强剂的人都可以自由地选择去这样做。但是，任何人都不应该被政府强迫参与任何医疗程序。需要确认的前提条件是，政府不能掩盖或隐藏全部信息直到2076年！（译者：我们需要尽快地向公众公开所有支持疫苗许可的信息和数据！）
 
-在上一周，莫里森总理公开抨击了疫苗强制令，并称未接种者在做出自己的选择后，不应该被妖魔化。
+文章来源：[https://aaronsiri.substack.com/p/fda-asks-federal-judge-to-grant-it](https://aaronsiri.substack.com/p/fda-asks-federal-judge-to-grant-it)
 
-原文链接：[PM Scott Morrison demands states drop Covid jab mandates and says unvaccinated Aussies MUST be allowed into pubs and restaurants](https://www.dailymail.co.uk/news/article-10214777/amp/Scott-Morrison-demands-states-like-Queensland-drop-Covid-19-vaccine-mandates.html)
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – 小象的奶瓶
+编辑：洛杉矶盘古农场 – 小象的奶瓶
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-发布：Janek
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
