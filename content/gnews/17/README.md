@@ -2,21 +2,49 @@
 ---
 
 
-## 中共将在美国西部放毒
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1673961/)
+## 中美互相解除记者签证限制
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1674033/)
 
-又有新病毒即将开始。而且一定是从美国西部到东部。我的根据是什么？他（战友）说放毒就是在西部。
+撰稿：英国喜庄园-I770775
 
-**【郭先生直播摘要】2021.11.14中共将在美国西部放毒**
-
-**郭先生：**
-
-病毒又有新病毒即将开始，而且一定是从美国西部到东部。 我的根据是什么？（战友）说放毒就是在西部，一定往东部开(始)。大家你已经看到。 从这个三天前， 七十个小时以前。 现在我当时直播没说， 还有跟我说， 文贵你直播别说。 他说你想个办法再说， 因为他有他的情报吧。 还有那么多下属在国内呀！他根据国内的信息和情报， 那么现在你看看西方已经是这样了。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-5.jpg)
 
 
 
-视频剪辑：小腾腾 |听写：小蜜蜂 |翻译：Arthur |校对：烟波浩淼 |视频制作+字幕：信正 |编辑&发布：闪电训练
 
+
+![Handelskrieg | Fahnen von USA und China | Symbolbild](https://static.dw.com/image/59244760_303.jpg)
+
+中美两国针对对方记者施行签证限制已经超过一年，就在16日双方首脑峰会结束后数小时，中共官媒和美国国务院就对外宣布，两国在媒体相关问题上已达成共识，双方将放宽对来自对方国家记者的签证限制，并依法审批新常驻记者的签证。
+
+据了解，目前已有小批替美国媒体工作的记者收到通知，即将在近期获得签证、返回中共国；美国也承诺为中共记者颁发一年多次入境签证，并将立即启动国内程序解决中共记者签证停留期问题。
+
+
+
+参考链接：
+
+[https://www.dw.com/zh/%E4%BA%92%E9%87%8A%E5%88%A9%E5%A4%9A-%E4%B8%AD%E7%BE%8E%E8%A7%A3%E9%99%A4%E8%AE%B0%E8%80%85%E7%AD%BE%E8%AF%81%E9%99%90%E5%88%B6/a-59840889https://www.360kuai.com/pc/98b7f51eccd850d46?cota=3&kuai\_so=1&refer\_scene=so\_3&sign=360\_da20e874&tj\_url=so\_vip](https://www.dw.com/zh/%E4%BA%92%E9%87%8A%E5%88%A9%E5%A4%9A-%E4%B8%AD%E7%BE%8E%E8%A7%A3%E9%99%A4%E8%AE%B0%E8%80%85%E7%AD%BE%E8%AF%81%E9%99%90%E5%88%B6/a-59840889https://www.360kuai.com/pc/98b7f51eccd850d46?cota=3&amp;kuai_so=1&amp;refer_scene=so_3&amp;sign=360_da20e874&amp;tj_url=so_vip)
+
+总编：飞虹
+
+校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![]()
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
