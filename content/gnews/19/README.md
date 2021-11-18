@@ -2,25 +2,62 @@
 ---
 
 
-## 卑诗省暴雨洪灾或引发全加拿大供应链危机
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1673582/)
+## 视频| 研究报告显示：刺突蛋白可进入细胞核，干扰DNA的正常修复
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1673605/)
 
-原文采编：青青        编译撰稿：文莱
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-48-edited.jpg)图片来源：CBC
+制作：香草山视频部
 
 
-据加拿大媒体【CTV新闻】11月16日报道，“百年不遇”的暴风雨所带来的洪灾和泥石流对卑诗省的大部分公路、房屋和基础设施等造成了严重的破坏，并或将直接导致该省乃至整个加拿大一系列有关物流供应链的脆弱性危机。
 
-据悉，当天泛滥的洪水和泥石流不仅造成了该省几乎所有进出低陆平原的高速公路被迫关闭，而且大部分连接低陆平原和内陆的主要交通路线也被阻断。为此，卑诗省【交通和基础设施部】发表声明称，当局评估全省的各类损失工作仍在继续进行中。
+十月的第一周
 
-据业内人士分析，全球乃至加拿大的货物供应链在“新冠病毒”疫情期间一直承受着巨大的压力。而此次罕见暴风雨的袭击则再次暴露了其内在的脆弱性。同时，卑诗省罕见的洪灾所导致温哥华港口的被隔绝，无疑进一步加重了加拿大国内经济的萎靡不前。
+瑞典的一个研究团队发表了一份研究
 
-* * *
+他们的人类细胞实验
 
-校对编辑，发稿：硫酸羟氯喹64
+表明刺突蛋白可以进入细胞核
 
-原文链接：[https://www.ctvnews.ca/business/b-c-storm-aftermath-latest-blow-to-supply-chain-issues-1.5669026](https://www.ctvnews.ca/business/b-c-storm-aftermath-latest-blow-to-supply-chain-issues-1.5669026)
+他们发现 一旦刺突蛋白进入了细胞核
+
+可以抑制受损DNA的正常修复
+
+特别是当DNA被一刀两段的时候
+
+意思是当你把双链DNA斩断以后
+
+刺突蛋白对DNA修复功能的负面影响
+
+是以某种暂无法确认的方式
+
+干扰BRCA蛋白修复受损DNA的机制
+
+如果你使BRCA1基因突变
+
+那将是最能导致癌症的变异之一
+
+正因为BRCA的基因代码是用于修复DNA的蛋白
+
+比如修复被截断的DNA
+
+这显然是有重要意义的新闻 不能轻视 必须重审
+
+
+
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

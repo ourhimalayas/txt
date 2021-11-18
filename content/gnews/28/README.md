@@ -2,28 +2,27 @@
 ---
 
 
-## OSHA在法院阻止后暂停执行疫苗任务
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1673531/)
+## 加拿大安省因疫情恶化或重施更严格的卫生措施
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1673571/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-78.png)
-图片来源：网络截图
+采编：Ucool(优酷)      编译撰稿：苦尽甜来 (文来）
 
-据零对冲11月17日报道，劳工部的职业安全与健康管理局（OSHA）已经遵循美国上诉法院的法令，暂停执行拜登政府对私营企业的中共病毒疫苗的授权。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-32.jpg)图片来源：TNH
 
-美国上诉法院于11月12日驳回了拜登政府的挑战，并重申其搁置OSHA任务的决定，该任务要求拥有100名或以上员工的企业确保工人在2022年1月4日前接种中共病毒疫苗，或每周接受测试并佩戴口罩。
 
-新奥尔良第五巡回上诉法院在一份意见中指出，OSHA的任务是 “惊人的过度宽泛”，并命令它在下一步法庭令前不得采取任何措施来强制实施执行该任务。此前，法院曾于11月6日发布临时停止该任务，以待诉讼。
+据加拿大媒体【CTV新闻】11月16日报道，安大略省卫生部日前表示：在“新冠病毒”感染病例数激增的情况下，当局或将恢复对“公共场所人员容量”限制和其他公共卫生强制措施。
 
-劳工部在一份声明中确认了法院的裁决，OSHA已经暂停了与实施和执行紧急临时标准（ETS）有关的活动，等待诉讼的未来发展，
+报道称，安省的苏圣玛丽市最近因疫情恶化，而必须采取紧急措施以避免更多感染和保证卫生系统的正常运行。为此，该市在翌日将恢复省政府刚解除的“公共场所人员容量限制”，包括保持两米社交距离并配戴口罩等卫生措施。违者将处以每天最高 5,000 加元的罚款。
 
-至少有美国有27个州，以及私人雇主、宗教组织和其他团体起诉拜登政府，声称它在发布该授权时超越了其权限。
+尽管安省卫生部官方数据显示：超过86%的该省居民已完全接种了“新冠病毒”疫苗，但目前的该病毒感染病例数是“自疫情开始以来的最高水平”，并达到每10万人就有121宗的高比例感染个案。
 
-第五巡回法院在11月12日的重申中指出，拜登政府的疫苗授权 “引起了严重的宪法问题”，“很可能超出了联邦政府的权限”。
+对此，省长福特宣称：当局将尽量避免再次实施更广泛的疫情封锁政策。但如果需要重新采取任何相对宽松的公共卫生措施，将以局部方式缓步进行。
 
-与此同时，白宫官员继续呼吁雇主在11月6日的初步裁决后继续遵守私营企业的疫苗任务。
+* * *
 
-新闻来源：[OSHA Suspends Enforcement Of Vaccine Mandate After Court Block](https://www.zerohedge.com/markets/osha-suspends-enforcement-vaccine-mandate-after-court-block)
+校对编辑，发稿：硫酸羟氯喹64
+
+原文链接：[https://toronto.ctvnews.ca/mobile/some-ontario-health-units-reinstating-capacity-limits-mulling-tougher-covid-measures-1.5667898](https://toronto.ctvnews.ca/mobile/some-ontario-health-units-reinstating-capacity-limits-mulling-tougher-covid-measures-1.5667898)
 
  
 

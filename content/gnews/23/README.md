@@ -2,27 +2,31 @@
 ---
 
 
-## 民调显示多数美国人不支持拜登连任
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1673567/)
+## 有声| 美日海军南海潜舰联合训练演习
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1673587/)
 
-采编：青青   编译撰稿：文明(添草灭共)
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间11月16日，日本防卫省海上自卫队发文表示，日本正在南海与美国的驱逐舰和反潜飞机共同执行潜舰的追踪反潜训练。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-18-edited.jpg)图片来源：NWM
+文中还提到，日方除了潜舰外，还派出了“加贺号”等两艘护航舰及反潜巡逻机，协同进行美日海军的联合训练。
 
+评论指出，美日此次的南海联合潜舰训练，意在警告中共：南海实为国际海域，任何国家的船舰皆有自由航行权。国际社会绝不允许中共私自在南海将岛礁人工军事化，强行将南海变成中共掌控的内海，破坏世界航海秩序。
 
-美国主媒体【NEWSMAX】11月16日报道，据《国会山报》当天发布的一项民意调查结果显示：目前约有61%的美国选民不希望拜登寻求连任，另有约15%的受访者则表示不确定拜登是否应该再次竞选。
+文字版原文：[美日海军南海潜舰联合训练演习](https://gnews.org/zh-hans/1672207/)
 
-该民调还同时显示：自8月底以来，随着美国从阿富汗混乱撤军、通货膨胀加剧、供应链断裂，以及对联邦工作人员和雇员超过100人的公司施行“‘新冠病毒’疫苗接种授权政策”等，这些因素都导致了当前拜登总统的支持率大幅下跌。
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-据悉，本次对921位美国注册选民的在线调查是在11月9日至10日进行的，其误差率为正负3.2个百分点。
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-原文链接：
-https://www.newsmax.com/politics/poll-biden-politics-elections/2021/11/16/id/1044971
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
