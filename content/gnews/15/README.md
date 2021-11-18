@@ -2,78 +2,31 @@
 ---
 
 
-## 埃内斯·坎特发布支持台湾的视频，台湾总统回应并感谢
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1673132/)
+## 美国和中共国想谈谈消减核武器
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1673159/)
 
-**据《Dailywire》记者：Frank Camp，2021年11月13日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/apjg0-yezmi.jpg)**图片源自原文**
-周五，波士顿凯尔特人队球员埃内斯·坎特（Enes Kanter）在他的社交媒体账户上发布了一段他支持捍卫台湾主权的视频后，台湾总统蔡英文做出了回应。
+翻译整理： 意大利罗马达芬奇农场  Shuizhuyu
 
-“感谢埃内斯与台湾站在一起。我们将永远捍卫我们来之不易的自由和民主，”总统说。 “您和我们在世界各地的朋友的支持给了我们力量。台湾也是很多篮球迷的故乡，我们都为你加油。”
-
-谢谢
-@埃内斯·坎特（EnesKanter）
-与台湾站在一起并捍卫民主。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/china-ruestet-nuklear-auf.jpg)
 
 
+资料来源：FAZ
 
-> Thank you [@EnesKanter](https://twitter.com/EnesKanter?ref_src=twsrc%5Etfw) for standing with [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) & standing up for democracy. [pic.twitter.com/DNBJfMiSvl](https://t.co/DNBJfMiSvl)
-> — 蔡英文 Tsai Ing-wen (@iingwen) [November 13, 2021](https://twitter.com/iingwen/status/1459364677402591240?ref_src=twsrc%5Etfw)
+在美中两国总统在线峰会后一天，美国安全顾问杰克沙利文在布鲁金斯学会组织的一次虚拟活动中表示，乔拜登和习近平已同意探讨核裁军谈判。两国总统一致同意推动“战略稳定会谈”。沙利文指出，这是一种尝试。安全顾问说，拜登在两位总统的指导下提出了讨论这个问题的必要性。这应该通过处理安全、技术和外交的谈判团队来完成。
 
+习近平已经表示可以委托高级代表进行谈判。沙利文宣布，将在多个层面进行密集努力，以确保两国之间的竞争存在框架， 以免演变成冲突。讨论的确切形式仍不清楚。 《华尔街日报》援引一位中共国政府官员的话报道称，有可能首先让非政府成员的专家举行会谈。双方都可以采用这种形式，以便随后检查是否可以开始正式的政府谈判。
 
+中共国此前拒绝就其核武库进行谈判，理由是美国和俄罗斯首先必须解除其规模大得多的库存。周三北京方面没有发表评论。中共国军火库的迅速扩张使此类谈判更加紧迫。习近平主席于3月下令武装部队“加快建立先进的战略威慑力量”。 特朗普政府已经表态支持全面的军备限制协议，该协议不区分战术核武器和战略核武器，除美国和俄罗斯外，中共国也应加入该协议，因为中华人民共和国被视为真正的挑战。
 
-坎特在他的Instagram上分享了蔡英文的视频，并配文说：“真是荣幸！感谢台湾总统回应。我迫不及待地想参观你美丽的国家，了解台湾文化，品尝一些你的美食，并会见勇敢的台湾人民。当我们站在一起时，我们会变得更强大。”
+据五角大楼称，到 2030 年，中共国的核弹头数量可能翻两番。据华盛顿报道，今年夏天，中共国军方测试了一种环绕地球的具有核能力的高超音速武器。五角大楼参谋长联席会议主席马克米利谈到了一个“非常令人担忧的事件”。卫星图像还显示，中共国正在为洲际弹道导弹建造一百多个额外的发射井。
 
-他用台湾国旗的表情符号结束了他的回应。
+所有这些都表明中共国与以往的最低核威慑政策背道而驰。防务专家、卡内基国际和平基金会智库前中共国外交政策专家赵彤在《纽约时报》的一篇文章中将中共国重新武装描述为“试图迫使华盛顿接受相互脆弱的关系”。
 
-**坎特在他周五的视频中说了以下内容：**
+与此同时，美国国务院证实，北京和华盛顿已同意在视频峰会前为双方记者提供签证便利。据《纽约时报》报道，该协议还意味着《华尔街日报》、《华盛顿邮报》和《纽约时报》可以再次向中共国派驻记者。不过，去年被驱逐出境的三家媒体的美国雇员是否会被允许返回，目前尚不清楚。这影响了十几名记者。这是特朗普政府在美国将中共国媒体归类为外国代表后的报复措施，因为它们基本上受国家和党的支配。此举也导致事实上的驱逐。中共国外交部周三谈到了“来之不易的成功”。
 
-台湾不是中国的一部分。台湾是一个民主自由的国家——我与台湾站在一起。你知道吗，尽管台湾有自己的历史，自己的政府……自己的选举，自己的一切，习近平却被困在自己的世界里意淫，声称台湾是中国的一部分，（不断）威胁要入侵台湾。台湾2400万人只想和平自由地生活。他们珍视自由、人权和民主。台湾是一股向善的力量。中国政府对台湾的所作所为更加证明习近平和中共政权对世界各地的自由构成威胁。我们看到他们对西藏人、维吾尔人、香港人所做的一切。台湾现在站在反对中共独裁统治的前线。
+原文链接：[新闻来源：德国法兰克福报网页版](https://www.faz.net/aktuell/politik/ausland/amerika-und-china-wollen-ueber-atomwaffen-sprechen-17639261.html)
 
-我要向今天观看此节目的所有自由支持者传达的信息是：我们一起变得更强大。我们都必须与台湾站在一起，支持台湾，捍卫民主。我们必须保持台湾的自由和安全。台湾已经独立了，我相信并希望这个国家永远自由民主。台湾的未来必须由台湾人民决定。
-
-**我对今天观看此节目的所有自由支持者的信息是：**
-
-我们在一起更强大。
-我们都必须#StandWithTaiwan，
-支持台湾，捍卫民主。
-我们必须保持台湾的自由和安全。
-台湾是属于台湾人民的！
-
-# IslandOfResilience
-
-
-
-> My message to all freedom supporters watching this today is:
-> 
-> We are stronger together.
-> We must all [#StandWithTaiwan](https://twitter.com/hashtag/StandWithTaiwan?src=hash&amp;ref_src=twsrc%5Etfw),
-> support Taiwan, and defend democracy. 
-> We must keep Taiwan free and safe.
-> 
-> Taiwan belongs to the TAIWANESE people![#IslandOfResilience](https://twitter.com/hashtag/IslandOfResilience?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/r925kNm2fY](https://t.co/r925kNm2fY)
-> — Enes Kanter (@EnesKanter) [November 12, 2021](https://twitter.com/EnesKanter/status/1459190235565371397?ref_src=twsrc%5Etfw)
-
-
-
-长期以来，坎特一直是他祖国总统雷杰普·塔伊普·埃尔多安的直言不讳的批评者。然而，这位凯尔特人队球员最近在对阵中国队的比赛中表现出色。
-
-10月中旬，坎特发布了一段视频，呼吁中国共产党和习近平主席“解放西藏”。在最初的帖子之后，他发表了另一篇文章，公开反对中共的维吾尔穆斯林奴役，并称习近平是“无情的独裁者”。
-
-“无情的中国独裁者习近平和中国共产党，我现在在全世界面前向你呼吁，”坎特说。 “关闭劳教所，释放维吾尔人。现在停止种族灭绝。”
-
-这位凯尔特人队的球员还呼吁其他穆斯林运动员保持沉默，包括耐克和勒布朗·詹姆斯。
-
-**文章来源**：[https://www.dailywire.com/news/taiwan-president-thanks-enes-kanter-after-athlete-says-taiwan-at-the-frontlines-against-chinas-dictatorship](https://www.dailywire.com/news/taiwan-president-thanks-enes-kanter-after-athlete-says-taiwan-at-the-frontlines-against-chinas-dictatorship)
-
-翻译：洛杉矶盘古农场–Raul
-校对：洛杉矶盘古农场–Mike Li
-编辑：洛杉矶盘古农场–心照
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+责任编辑、发布： Shuizhuyu
 
  
 

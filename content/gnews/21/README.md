@@ -2,50 +2,128 @@
 ---
 
 
-## 2021/11/17 大卫作战室直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1672999/)
+## 习近平的过去
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1673072/)
 
-板块1–拜习会谈
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4444-a9dta-2670i.jpg)
+[https://gtv.org/video/id=619500ec18270250810628e1](https://gtv.org/video/id=619500ec18270250810628e1)
 
-1. 拜习峰会就伊朗核问题达成统一立场。伊核协议是奥巴马时期重要外交成果，拜习早已“合作共事”过，中共一直在背后支持伊朗核发展，“伊核老话题”重提只是中共又一张“空头支票”。再次证明峰会没有实际成果。
-2. 美俄制定“核削减计划”和“中导条约”逐渐实施初步达成美俄平衡，中共国暗地发展核武和中程导弹打破平衡，制造不稳定的氛围。
-3. 中共宣传拜登为“老朋友”以敲打、威胁拜登，因拜登家族跟中共的利益关系、亨特拜登事件等，拜登刻意回避“老朋友”称呼，显然“老朋友”这层关系已成为其负担。
-4. 拜登政府即将宣布外交抵制冬奥会，拜习峰会后双方“剑拔弩张”表明双方谈判分歧巨大。
-5. 拜习视频通话同时解放军军机侵犯台湾领空。中共通过海外媒体利用炒作“台独”威胁警告美方，并用军事行动强迫美国在台海问题上接受现状。拜登政府进退两难（一面用台湾完成与中共勾兑，一面面对丢弃台湾的政治压力）。
+**郭文贵**
+**Miles Guo**
 
+我告诉你们，习躲过了13次的谋杀，这种暗杀都躲过13次，
+I tell you that Xi has avoided 13 times assassinations, and he has survived 13 times all of these assassinations
 
-板块2–财经
+你觉得习的未来，他的10年就能还躲另外13次，躲不过一次就结束了
+Do you think Xi’s future will be able to avoid another 13 times in next 10 years, and it will be over if he does not avoid once
 
-1. 中共对虚拟资产零容忍态度，中共国加密货币媒体暂停网站（ChainNews和Odaily无法访问）。凸显中共对喜币的害怕，喜币价格继续看涨。。
+习近平他不知道人伦和自然之间的逻辑
+Xi Jinping does not know the logic between human relations and nature
 
+新中国联邦的发起人郭文贵最知道事物之间万物的逻辑
+Guo Wengui (Miles) who the founder of the New Federal State of China, knows the logic of existence between all things
 
-板块3–国内政治
+我相信有天，我相信有神，我相信大自然的逻辑和根据
+I believe there is a God, I believe there is the Spirit, I believe in the logic and ba-sis of nature
 
-1. 王岐山谈中共国不能独立于世界发展并将继续开放对外投资。此时“搬出”王岐山继续“忽悠”世界资本，凸显中共国内部经济已经“危如累卵”。
-2. 民主党“1月6日委员会”成员伊莱恩·卢里亚被曝投资中共国阿里巴巴。中共“蓝、金、黄”民主党的又一案例，为共和党反击民主党提供“工具”，促使两党更多人觉醒。
-3. 武汉外逃官员8套房产被没收，多名外套官员被追赃。结合中共“强筛”官员进国际刑警组织事件，中共欲警告体制内的官员，“杀鸡儆猴”式阻止官员外逃，防止党心军心溃败。
-4. 环球时报报道张玉静形容其为倒霉女子。中共深知美国已掌握张玉静上下线、相关犯罪证据已收集完毕，环球时报代表中共示好，张玉静已成“弃子”。
+习躲过13次，我要是习近平的话，我一定准备到明天就被干掉的这个准备
+Xi has escaped 13 times, If I were Xi Jinping, I would be prepared to be killed tomorrow
 
+你能躲过第14次吗？它是个基本的逻辑
+Can you guarantee to escape the 14th time? It is a basic logic
 
-**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
+你不但你没想到14次，你以为是千秋万代
+Not only did Xi not expect the 14 times, Xi thought it will be for generations to come
 
-- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
-- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
-- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
-- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
+你把所有的全中国人都当傻子，全世界当傻子
+Xi treats all Chinese people as fools and the whole world as fools
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E5%A4%A7%E5%8D%AB%E4%BD%9C%E6%88%98%E5%AE%A4-1.jpg)
-*听写：call me uncle | 校对：乐禧禧*
+我们在看待事物的时候，习不是他的文化决定他的思路
+When we look at things, it is not Xi’s education that determines his thinking
 
-* * *
+一定记住习这个人，在决定他的思路是他的家庭
+Xi’s way of thinking in deciding things comes from about his family of origin
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+他的姐姐的上吊自杀，文化大革命，他被3次被抓进少改所
+His sister committed suicide by hanging herself, the Cultural Revolution, and he was arrested 3 times into the juvenile prison
 
+在少改所他被打时他亲口跟我说的
+He told me in person that he was beaten inside the juvenile prison
 
-编辑：【英国伦敦喜庄园编辑部】
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+在里面，就是为了那半个窝头，把习给打得半死
+When he was in the juvenile prison, Xi was beaten badly for half of the Wotou (corn bun)
+
+习被按在地上，拿鞋底抽他的脸，习在路边被当马骑
+Xi was pressed to the ground, his face was beaten with the shoe soles, Xi was ridden as a horse by the side of the road
+
+3次少改所，习每次出来都是打的跟半残废似的
+Three times in juvenile prison, Xi was beaten so badly every time then he came out
+
+他又亲眼看到他爹16年失去自由，他跟习远平去看他爹
+He saw his father lost his freedom for 16 years with his own eyes. He and Xi Yuanping（his little brother ） went to see his father
+
+他爹当着他们面拉的屎，拿手里往嘴里吃
+His father was eating his own shit in front of them and put them into his mouth with his hand
+
+说你是谁呀，习近平都崩溃了，然后是他认不出习近平
+and asked who they are, Xi Jinping fell apart, and his father couldn’t recognize Xi Jinping
+
+他这种背景，他比咱还恨共产党，你千万记住，他说什么共产党
+With his background, he hates the Communist Party more than we do, you must remember what he said about the Communist Party
+
+我说去他大爷，他每天恨不得把这帮孙子都杀光
+I said go to hell, he can’t wait to kill all these bastard every day
+
+他让中国人致富，他觉得你当时打老子的时候
+He made the Chinese people rich, he felt that I was beaten so badly then
+
+我爹16年的时候，把我娘弄到深圳的时候，我们家什么结局
+and my father lost 16 years of freedom, they sent my mother to Shenzhen, what was the result of our family?
+
+邓小平又骗他爹，让他回去，说要当人大委员长
+Deng Xiaoping lied to his father and told him to go back, saying that he would name him to be the chairman of the National People’s Congress
+
+结果不让他去，他爹本来就疯了，又把他爹骗一把
+As a result that he was not nominated, his father was so depressed and cheated again
+
+真的是习仲勋提出的，当年的宝安县就是深圳这个镇
+It was really proposed by Xi Zhongxun（Xi’s father）, Baoan County was the town of Shenzhen
+
+往香港游每天杀几千人，血染成河,
+that people swam and fled to Hong Kong, killing thousands of people every day, staining the river with blood
+
+是习仲勋建议不要再杀人了, 建了特区
+It was Xi Zhongxun who advised not to kill anymore and established the Special Economic Zone
+
+真的是他爹说的，后来邓小平把这个功给弄走了
+That was really said by his father and then Deng Xiaoping took away the merits
+
+他多恼火啊，所以上来先把邓家灭了
+He was so angry, so he came up to destroy the Deng family first
+
+先把你欺骗我爹的邓家人，吴小晖全抓了
+Wu Xiaohui from the Deng family who cheated my father was arrested in the first
+
+**原视频链接: **[** **https://gettr.com/post/pguxbk3062](https://gettr.com/post/pguxbk3062)
+
+Date:11/16/2021
+原视频标题: 习近平的过去
+Xi Jinping’s past
+原视频日期：2021/11/12
+任务编号：KC261（2875）
+视频时间段 : 0:00-2:28
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片: 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
