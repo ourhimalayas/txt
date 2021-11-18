@@ -2,30 +2,54 @@
 ---
 
 
-## 突破中共外交封锁 驻立陶宛台湾代表处正式启动
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1675819/)
+## 美国劳工部职业安全与健康管理局暂停执行疫苗强制令
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1675835/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1000-2-1.jpg)台湾外交部制作的驻立陶宛台湾代表处成立预告 （图片来源：美国之音）
-编辑摘要：
+作者：纽约香草山农场 – 四季
 
-据美国之音11月18日报道，台湾在立陶宛的外交机构“驻立陶宛台湾代表处”18日正式成立，首任代表由现任驻拉脱维亚代表黄钧耀担任。这是台湾顶住北京的压力在外交方面获得的一个重大突破。
-
-多年来，中共为了在世界舞台上孤立台湾，通过一切手段阻止台湾在外交事务上使用“台湾”的字样。台湾驻外代表机构只能够使用“台北”的称谓，以显示它是中共国的一部分。这次用“台湾”取代“台北”命名台湾驻立陶宛代表处是台湾在国际外交事务中迈出的重要一步。
-
-立陶宛今年7月同意台湾在维尔纽斯设立代表处。中共国立即撤走了驻立陶宛大使，并要求立陶宛撤回其驻北京的大使。北京停止了与立陶宛的铁路货运联系，并停止发放食品出口许可。弹丸小国捍卫自己的国家主权和民主权利，敢于挑战中共庞然大物，台湾和立陶宛为民主国家做出了榜样。对中共国的霸凌说不，国家才能正常发展。被中共蓝金黄深度渗透的国家，无不日渐下行，国力衰微、国内矛盾加剧。中共一天不灭亡，台湾的危险一天就不会解除。延伸到所有国家都是如此，中共病毒和中共疫苗所到之处，谁能躲得了？
-
-新闻参考链接：[台湾突破中共外交封锁 驻立陶宛代表处终于冠上关键字](https://www.voachinese.com/a/Taiwan-Opens-Representative-Office-Using-Own-Name-20211118/6318371.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+据[零对冲](https://www.zerohedge.com/markets/osha-suspends-enforcement-vaccine-mandate-after-court-block)11月17日报道，在被法院阻止后，美国劳工部职业安全与健康管理局（OSHA）已经暂停执行拜登政府对私营企业的中共病毒疫苗强制令。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1453.jpg)图片来源：零对冲
+
+此前，法院曾在11月6日颁布了暂时停止执行疫苗强制授权的命令，要求美国劳工部职业安全与健康管理局“在法院下达进一步指令前，不得采取任何措施来实施或执行该疫苗强制令”。
+
+在随后的11月12日，新奥尔良第五巡回上诉法院驳回了拜登政府的诉求，并重申了搁置美国劳工部职业安全与健康管理局的疫苗强制令的决定。
+
+该强制令要求拥有100名或以上员工的企业要确保雇员在2022年1月4日前接种中共病毒疫苗，或每周接受测试并佩戴口罩。
+
+第五巡回法院在11月12日的重申中指出，拜登政府的疫苗强制令 “引发了严重的宪法问题”，“很可能超出了联邦政府的权限”。
+
+美国至少有27个州，以及私人雇主、宗教组织和其他团体起诉拜登政府，声称它在发布这一授权时超越了其权限。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

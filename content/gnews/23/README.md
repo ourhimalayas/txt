@@ -2,74 +2,53 @@
 ---
 
 
-## 中共国在台湾的扩张主义政策是不可接受的
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1675346/)
+## 房地产公司正越来越多地接受加密货币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1675371/)
 
-编译：蚂蚁兄弟
+**【简评：】***在萨尔瓦多将比特币作为法定货币之后，纽约市开始采用比特币，并在房地产领域引发了一场风暴。我们看到虚拟货币的应用场景正在逐步扩大，纽约、新加坡等都在力争成为加密货币中心，人们已经不能阻挡加密货币的历史潮流。同时我们也看到，对加密货币的监管措施也在逐步提升，无责任主体的虚拟币如比特币等注定要被人们抛弃。而有强大财团投资背书、有20%黄金储备、有合法合规的独立公司主体的喜币，必将展现其强大的魅力，被更多国家主体认可、实现全球范围内的流通和财富保障。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-10-3.jpg)图片来源：dw.com
+据《雅虎财经》 2021年11月15日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-420-e1637260840752.png)图片来源：雅虎财经网
+视频链接：
 
-台湾大使刘德利在习近平和拜登首次虚拟峰会后数小时，在马德里的台北经济文化办事处谈到，他对美国领导人的立场感到满意，但在采访中他多次警告说中共国不是一个可靠的国家。
 
-以下是采访的内容：
+[https://edgecast-vod.yimg.com/geminivideoads/f7d0079f-1585-5521-8afa-d950b591979b/video\_output\_101.mp4](https://edgecast-vod.yimg.com/geminivideoads/f7d0079f-1585-5521-8afa-d950b591979b/video_output_101.mp4)
 
-中国已经警告美国，它正在与台湾玩火，如果你玩火，你就会被烧死。这听起来像是一种威胁吗？
 
-台湾国防部长邱国正在11月4日发表在《华尔街日报》上的一篇文章中警告说，目前台湾海峡的局势是四十年来最具挑战性的。面对中共国的军事优势，台湾军方正在努力提高其应对军事挑衅的能力。“我们知道，和平是必须赢得的东西，我们永远不会向中国屈服”。
+对话实录
 
-拜登拒绝单方面改变台湾海峡的现状。中共是否感到受到美国立场的支持？
+JULIE HYMAN：你也许不会使用加密货币或比特币来购买披萨，但它正被用于越来越多的项目，比如说NFTs（Non-Fungible Tokens，非同质化代币）。但是，奢侈品交易或大额交易能否使用加密货币，比如房地产交易？这是雅虎财经的Jennifer Schonberger一直在研究的问题。事实上，这似乎正在发生。
 
-事实上，拜登总统已经表示，美国强烈反对改变现状或破坏台湾海峡和平与稳定的单边行动。这是最重要的。拜登强调，他仍然致力于“一个中国政策”，以《台湾关系法》、三个联合公报和六个保证为指导，证明美国致力于台湾的自卫。美国这样做，显然是在与北京试图强加的“一个中国原则”保持距离。
+JENNIFER SCHONBERGER：嘿，早上好，朱莉。是的，**加密货币正被越来越多地用于房地产交易。事实上，在纽约，已经出现了第一个接受比特币交易的商业房地产项目。Magnum房地产集团正在出售三套零售公寓，在曼哈顿上东区的底层完全出租，售价2900万美元，但他们只接受比特币。**
 
-台湾主张的“一个中国政策”和北京主张的“一个中共国原则”有什么区别？
+虽然这是以比特币进行交易的第一个商业房地产项目，但我们已经看到过去几年住宅方面的房地产交易和加密货币正在回升。为Magnum处理房地产交易的加密货币支付处理商BitPay的CMO Bill Zielke说，过去几年，该公司一直在为国际买家处理加密货币房地产交易，最近在美国处理美国西部的滑雪屋和纽约的房产。在上市商业地产之前，Magnum房地产公司使用比特币做了三笔住宅交易，其中一笔交易位于上东区，以超过1500万美元的比特币价格成交。
 
-北京实施的“一个中国原则”意味着只有一个中国，台湾是中国的一部分。但台湾人声称，台湾不是中共国的一部分。这就是美国倡导的“一个中国政策”。这是个文字游戏，但它有很大的区别。中共国总是在玩文字游戏。
+Magnum房地产公司的管理合伙人Ben Shaoul说，他预计加密货币的交易将继续增长。
 
-今年，习近平在香港一直是无情的。国家安全法的实施正在取消“一国两制”的原则。你从这场危机中吸取了什么教训？
+Ben Shaoul：我看到加密货币交易的跑道呈指数增长。比特币处于历史高位的事实，你知道，显然有帮助。但我认为投资者就是投资者，他们在拥有比特币方面做得非常非常好。而现在，他们正在寻找现金流资产。
 
-在虚拟会议期间，拜登总统对中国在新疆、西藏和香港的做法以及一般的人权问题表示关切。我们强烈谴责中共国强加的香港国家安全法，它破坏了自由、民主和人权的价值，并表明“一国两制”方案已被证明是完全失败的。
+JENNIFER SCHONBERGER：随着比特币与其他加密货币价格的持续飙升，这些创纪录高点和投资者对房地产的需求之间存在相关性。因此，正如Shaoul提到的，我们应该期待房地产市场的加密货币交易部分在未来几年继续增长。JULIE？
 
-台湾一直反对将这一方案作为解决冲突的方式，香港的现状最终证明他们是正确的吗？
+JULIE HYMAN：但当然，每当我听到这些东西，价格就会有很大的变动。比如，你如何决定比特币的交易量？比如，什么时候？你知道，如果你决定要用比特币买这个公寓，然后（比特币的）价格大幅波动，会发生什么？就像，他们怎么……我不知道。你是如何知道这些的？
 
-是的，当然。我们拒绝了它，我们看到了现在在香港发生的事情。1997年，中国提出了这个有效期为50年的方案，但还没到30年，这个方案就被搁浅了。
+JENNIFER SCHONBERGER: 是的，我的意思是，我想这真的只是——就像你说的，这确实取决于价格。但是，如果你已经积累了足够的财富，而且你觉得你想兑现，你想把它部署到另一个现金流资产中，无论是投资还是别的。你知道，你（有了）真正想住的地方——那么你就能够转让。顺便说一句，这非常有趣，因为当你用比特币或加密货币进行交易时，结算过程会逐渐加快。
 
-香港是否已被中国大陆同化？
+**它只在第二天就结算了，而不是花30到90天来尝试结算这笔交易。所以我想，如果你很着急，或者你是一个国际买家或投资者，使用加密货币肯定也会让支付过程更容易。**
 
-香港已经是中国的一个领土。中共国有个巨大的领土，人口刚刚超过14亿，但由9500万名中共党员控制。中国共产党并没有改变，他们说他们有自己的民主，但民主不仅仅是举手之劳，另外在中共国谁会提出批评意见：没有人。
+JULIE HYMAN：也许是这样。好的，我们将依靠你让我们了解这一趋势，这一蓬勃发展的趋势。
 
-你认为英国在接受“一国两制”方案时是否过于乐观？
+英文链接：[https://www.yahoo.com/news/real-estate-companies-increasingly-accepting-161153297.html?guce\_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS91cmw\_cT1odHRwcyUzQSUyRiUyRnd3dy55YWhvby5jb20lMkZuZXdzJTJGcmVhbC1lc3RhdGUtY29tcGFuaWVzLWluY3JlYXNpbmdseS1hY2NlcHRpbmctMTYxMTUzMjk3Lmh0bWwmc2E9RCZzb3VyY2U9ZWRpdG9ycyZ1c3Q9MTYzNzE3Mzk2Njg1ODAwMCZ1c2c9QU92VmF3MEtvUEhZbmM2N0dCYmxPTFE1ci0tQg&guce\_referrer\_sig=AQAAAFB6gCkwKZhodZJ9LCY-6iVvb6XKLoJShcgrJkvBSjBpeRRPUxzLV6a63Xx6H9mi2CWDpFZ\_SKVIqybcVT1pGYkbauUDlF4xHeCPeeY01sM5rgQGj0WOWgFydpFIEg01ddGBlSkWJXcWBwql-7J-MwKENPERtoPU3Z7Qi3MAb-6s&\_guc\_consent\_skip=1637171417](https://www.yahoo.com/news/real-estate-companies-increasingly-accepting-161153297.html?guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS91cmw_cT1odHRwcyUzQSUyRiUyRnd3dy55YWhvby5jb20lMkZuZXdzJTJGcmVhbC1lc3RhdGUtY29tcGFuaWVzLWluY3JlYXNpbmdseS1hY2NlcHRpbmctMTYxMTUzMjk3Lmh0bWwmc2E9RCZzb3VyY2U9ZWRpdG9ycyZ1c3Q9MTYzNzE3Mzk2Njg1ODAwMCZ1c2c9QU92VmF3MEtvUEhZbmM2N0dCYmxPTFE1ci0tQg&amp;guce_referrer_sig=AQAAAFB6gCkwKZhodZJ9LCY-6iVvb6XKLoJShcgrJkvBSjBpeRRPUxzLV6a63Xx6H9mi2CWDpFZ_SKVIqybcVT1pGYkbauUDlF4xHeCPeeY01sM5rgQGj0WOWgFydpFIEg01ddGBlSkWJXcWBwql-7J-MwKENPERtoPU3Z7Qi3MAb-6s&amp;_guc_consent_skip=1637171417)
 
-当时的英国认为中共国会兑现所承诺的话。现在英国说，香港的情况是不可接受的，但现在情况是不可逆转的。我想，今天的英国有遗憾。这就是为什么我们必须保护自己。
+翻译：洛杉矶盘古农场–Mike Li
+校对：洛杉矶盘古农场–比格渣餐厅老板の娘
+评论：洛杉矶盘古农场–比格渣餐厅老板の娘
+编辑：洛杉矶盘古农场–心照
 
-拜登和习近平的电视电话会议是近来最热烈的一次。这种和睦关系是对他们有利，还是让他们感到不舒服？
 
-我们相信，与我们共享民主、自由和人权价值的美国政府，将永远准备帮助台湾自卫，而且它已经向我们表明了这一点。自拜登就职以来，他的政府多次表示对台湾的支持“坚如磐石”。这对我们非常重要，我们知道这一承诺使中共感到不安。
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-中共坚持认为台湾是他的一个省份，但台湾人渴望投票支持独立。有什么办法可以解决冲突？
-
-中共对台湾的所作所为是不可接受的，正在激起台湾人的进一步敌意。你无法通过威胁和恐吓来说服民众。这是不可能的。台湾总统坚持认为，解决台湾海峡两岸之间的分歧需要在对等的基础上建立对话。我们愿意参与这些会谈，但北京不设置条件。
-
-争端的军事化程度一直在提高。在10月的头几天，有150架战斗机飞过台湾。 入侵可能性大吗？
-
-我们认为，战争对抗的风险是存在的，我们中华民国（台湾）正在通过现代化的防御性，提高不对称的作战能力，为对抗做准备。当然，我们不寻求军事对抗，但我们将采取必要的措施来捍卫自由和民主。仅在10月4日，就有56次空袭记录，这是我们监测演习以来的最高数字。
-
-习近平成功让中共通过“历史性决议”以继续执政， 你担心吗？
-
-他已经成功地续任了五年，直到2027年。这种担忧不是台湾独有的，世界上所有的民主国家都应该有这种担忧。对美国来说，最重要的是，中国已经测试了第一枚高超音速核导弹。这项技术是一个巨大的突破，令华盛顿感到震惊。
-
-美国从阿富汗撤军是否让你觉得自己是个孤儿？
-
-我们依靠的是美国。目前，他们正在帮助我们提高国防能力，并向我们出售先进的武器装备，使我们能够实现充分的自卫。台湾也在努力增加其国防预算。通过这种方式，我们希望表明我们愿意保卫自己。
-
-**参考资料：**[larazon.es][El embajador José María Liu: “La política expansionista china en Taiwán es inaceptable”](https://www.larazon.es/internacional/20211116/mtpeeaiztnabbkuwv34sfhxphm.html)
-
-* * *
-
-*审核：Aries的星
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

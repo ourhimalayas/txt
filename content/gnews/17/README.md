@@ -2,46 +2,60 @@
 ---
 
 
-## 蜂蜜的“幌子”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1675409/)
+## 突发：辉瑞隐瞒了COVID-19疫苗临床试验的死亡人数
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1675462/)
 
-编译：蚂蚁兄弟
+**【简评：】***正是这份虚假的数据让全世界的药品安全机构为辉瑞开了绿灯。这是一场世纪大屠杀。而对照组（接种了生理盐水）的2.2万人，据报道也被辉瑞在12月份匆匆的接种了疫苗，彻底堵死再继续观察疫苗免疫效果和长期副作用的路。同时报告中明确提到了死亡原因大部分来自心血管疾病，我们现在已经知道，疫苗和心肌炎、心包炎有很高的相关性，由此可见，辉瑞其实早就知道了其毒疫苗的副作用。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-11-3.jpg)图片来自网络
+据《网关专家》记者Jim Hoft，2021年11月16日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-421-e1637262600176.png)图片源自本文
+**辉瑞公司向公众隐瞒了‘COVID-19疫苗临床试验’的（死亡人数）真实数据。**
 
-根据农业协会COAG的技术服务部门的调查和消费者组织OCU的确认，一包标签上写着“原产地西班牙”的混合蜂蜜可能参杂了大部分来自中国的蜂蜜。
+临床试验期间的实际死亡人数是21人，而不是最初报道的16人。这比临床试验对照组的死亡人数多了四人。
 
-这两个组织在周二公布了调查结果，并同意在欧盟和西班牙“立法纠纷”，以至于在法律上有可能“掩盖蜂蜜的真正来源”。
+所以辉瑞公司在他们致命临床试验的数据上撒了谎，只是公开了对他们有益的假数据（也许是有史以来对其最有益的数据）。
 
-OCU发言人Enrique García说：“如果是这样的话，消费者就会在食品原产地方面受到误导。”，他要求改进立法，以防止“向消费者隐瞒信息”。
+那么，何时对其进行逮捕？
 
-COAG的养蜂部门负责人Pedro Loscertales也呼吁当局“纠正”欧盟和西班牙的现行法律，以防止该行业继续以这种方式标记蜂蜜，并“调查进入欧盟市场的中国蜂蜜”。
+亚历克斯·贝伦森（Alex Berenson）报道：
 
-Loscertales指出，中国蜂蜜的大量涌入，有时要经过超滤和混合，这使得无法确定来源地，这也导致“西班牙蜂蜜市场丧失盈利能力”的原因之一，因为其低价意味着西班牙国家产品的价格并没有像它应该被评估的价值那样。
+7月28日，辉瑞及其合作伙伴BioNTech发布了一份为期6个月的Covid-19疫苗临床试验关键数据更新，这一数据促使全球监管机构批准了对该疫苗进行接种。
 
-据COAG称，调查提供的数据导致了这样的结论：“西班牙经营者可能利用法规来掩盖在西班牙销售的蜂蜜的真实来源。”
+就在人们对疫苗有效性的质疑不断增加的时候，这份报告引起了全世界的关注。辉瑞公司表示，该疫苗的效力仍然相对强劲，六个月后仍为84%。
 
-调查开始时，其技术服务部门意识到在西班牙超市和大卖场销售的蜂蜜标签上消失了“中国原产”的标签，而这种产品的进口有30%来自这个亚洲国家。
+它还报告说，在试验中接受疫苗接种的大约2.2万人中，有15人死亡，而接受安慰剂(一种不含疫苗的生理盐水)的2.2万人中，有14人死亡。
 
-另外，葡萄牙在2020年开始成为西班牙的主要外国蜂蜜供应商，超过了中国，而标签上仍然没有显示“原产地：中国”或“原产地：葡萄牙”，并在2021年，罗马尼亚的蜂蜜强势进入。
+这些死亡案例不仅仅是Covid-19导致的。 事实上，他们大多不是来自Covid-19。 试验中只有三人死于与Covid -19相关的疾病。一名接种了疫苗，两名接种了生理盐水。 其他死亡来自其他疾病，主要是心血管疾病。
 
-在审查了与产品标签和原产国有关的欧洲和西班牙立法后，结论是，从葡萄牙经销商从中国进口在葡萄牙加工的蜂蜜与在西班牙再次混合，以获得“西班牙原产地”是非法的，尽管西班牙原产地的配比超过50%。
+更多来自贝伦森（Berenson）的消息。
 
-**简评：**
+根据第1剂到2021年3月13日截止日期的数据，共有38人死亡，其中COMIRNATY（疫苗）21人，安慰剂组17人。
 
-**低廉的劳动力成本，使中共国在这二十年中，成为了“世界的大工厂”。然而，作为世界大工厂的中共国并没有遵守任何贸易上的国际规则。劳动力成本低廉，对环境毫无顾忌的破坏，使中共国很多产业的产品价格都会远远低于其他国家。蜂蜜对西班牙的入侵，仅仅是冰山一角。低价涌入市场、或政府帮助补贴、倾销产品……中共无所不用其极的在各行各业扰乱着、绑架着各国的经济。**
+辉瑞公司在7月公开表示，截至3月中旬，已发现疫苗接种者中有15人死亡。 然而，在相同的数据截止日期—3月13日，辉瑞却告诉FDA有21人死亡。
 
-**经济秩序的混乱，中共才是源头。因为它满口谎言，向来不遵守规则。**
+是21人死亡，
 
-**参考资料：**[20minutos.es][Una investigación desvela el “engaño” con la miel: puede proceder de China aunque esté etiquetada ‘Origen España’](https://www.20minutos.es/noticia/4893813/0/una-investigacion-desvela-el-engano-con-la-miel-puede-proceder-de-china-aunque-este-etiquetada-origen-espana/?autoref=true)
+不是15。
 
-* * *
+临床试验中的安慰剂组的死亡数据也是错误的。 安慰剂组志愿者中有17人死亡，而不是 14人。辉瑞瞒报了9人的死亡数据，其中包括实验组（接种疫苗）的额外的6人死亡。
 
-*审核：Aries的星
-校对：阿伯塔
-发布：信心的选择*
+根据VAERS网站数据，今年有12,412人死亡与辉瑞疫苗有关。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-423-e1637262531620.png)图片源自本文
+**辉瑞撒谎，民众死亡。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+**辉瑞故意耍赖，人民被迫狗带（go die）。**
+
+原文连接：[https://www.thegatewaypundit.com/2021/11/huge-breaking-news-pfizer-hid-public-number-deaths-covid-clinical-trials-actual-number-21-6-reported-4-unvaccinated-group/?\_\_cf\_chl\_tk=reRxw.yK32XRlRHs9bPmEbtb2nx\_ca6I1PP62ZTaIrs-1637214078-0-gaNycGzNCCU](https://www.thegatewaypundit.com/2021/11/huge-breaking-news-pfizer-hid-public-number-deaths-covid-clinical-trials-actual-number-21-6-reported-4-unvaccinated-group/?__cf_chl_tk=reRxw.yK32XRlRHs9bPmEbtb2nx_ca6I1PP62ZTaIrs-1637214078-0-gaNycGzNCCU)
+
+翻译：洛杉矶盘古农场–钢蛋儿
+
+校对：洛杉矶盘古农场–心照
+
+
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
