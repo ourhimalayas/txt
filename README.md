@@ -15,128 +15,128 @@
 
 ---
 
-### [一众太监成就六中全会对内实行习皇制对外实行习特勒制](/content/gnews/1/README.md)
+### [11/17/2021 文贵直播：六中全会的“十大坚持”说明中共已经无人可用、中共正在跟世界脱钩且习要当皇帝](/content/gnews/1/README.md)
+ ` 秘密翻译组-北美组`
+
+### [11/17/2021 文贵直播：西方流氓政客抵制2022冬奥会的三个原因](/content/gnews/2/README.md)
+ ` 秘密翻译组-北美组`
+
+### [中共将对内对外无限强硬并继续放毒对内对外资本共产制](/content/gnews/3/README.md)
  ` NewFOC`
 
-### [11/14郭文贵直播：查抄马云新加坡秘密办公室足以让他牢底坐穿（粤语配音）](/content/gnews/2/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美财长警告国家财政破产](/content/gnews/3/README.md)
+### [扎扎实实做假作秀！中共“二十大”代表选举启动](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [活着的意义](/content/gnews/4/README.md)
+### [一众太监成就六中全会对内实行习皇制对外实行习特勒制](/content/gnews/5/README.md)
+ ` NewFOC`
+
+### [11/12郭文贵直播：新中国联邦将建立国防和全球安保系统保护全世界华人（粤语配音）](/content/gnews/6/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [11/12郭文贵直播：今天直播最重要的是号召大家建设新中国联邦、保护华人（粤语配音）](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [11/12郭文贵直播：新中国联邦将建立自己的海军、空军和空间部队（粤语配音）](/content/gnews/8/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [11/12郭文贵直播：沉南鹏在美国的政治、经济影响力非同一般（粤语配音）](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [11/11郭文贵直播：美国某军工集团希望新中国联邦加入（粤语配音）](/content/gnews/10/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [11/14郭文贵直播：查抄马云新加坡秘密办公室足以让他牢底坐穿（粤语配音）](/content/gnews/11/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [美财长警告国家财政破产](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [德国卫生部长强调需降低对中共的依赖](/content/gnews/13/README.md)
+ ` GTV新闻访谈`
+
+### [活着的意义](/content/gnews/14/README.md)
  ` 纽约香草山MOS03`
 
-### [六中全会告诉你:共产党对内绝对硬；对外嘴硬,一切都软](/content/gnews/5/README.md)
+### [六中全会告诉你:共产党对内绝对硬；对外嘴硬,一切都软](/content/gnews/15/README.md)
  ` NewFOC`
 
-### [日本要闻汇编 11月18日](/content/gnews/6/README.md)
+### [日本要闻汇编 11月18日](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/10郭文贵直播：六中全会内部报告曝中共国11个“第一”（粤语配音）](/content/gnews/7/README.md)
+### [11/10郭文贵直播：六中全会内部报告曝中共国11个“第一”（粤语配音）](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/10郭文贵直播：六中全会内部报告惊爆所谓的“文化调查”（粤语配音）](/content/gnews/8/README.md)
+### [11/10郭文贵直播：六中全会内部报告惊爆所谓的“文化调查”（粤语配音）](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/10郭文贵直播：口服抗中共病毒药比疫苗更毒（粤语配音）](/content/gnews/9/README.md)
+### [11/10郭文贵直播：口服抗中共病毒药比疫苗更毒（粤语配音）](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [文革2.0时代将给百姓带来深重苦难](/content/gnews/10/README.md)
+### [拜登表示：是否独立取决于台湾自己](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [辉瑞承认要对儿童新冠疫苗心肌炎风险做更多研究](/content/gnews/11/README.md)
+### [拜习会的真相和内容](/content/gnews/21/README.md)
+ ` GTV新闻访谈`
+
+### [文革2.0时代将给百姓带来深重苦难](/content/gnews/22/README.md)
+ ` GTV新闻访谈`
+
+### [辉瑞承认要对儿童新冠疫苗心肌炎风险做更多研究](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭文贵先生：阿富汗的今天就是中共国的明天](/content/gnews/12/README.md)
+### [郭文贵先生：阿富汗的今天就是中共国的明天](/content/gnews/24/README.md)
  ` 日本东京方舟农场`
 
-### [了解情报才了解共产党有时候硬得如钢有时候又软得如屎](/content/gnews/13/README.md)
+### [了解情报才了解共产党有时候硬得如钢有时候又软得如屎](/content/gnews/25/README.md)
  ` NewFOC`
 
-### [辉瑞公然谎报中共病毒疫苗临床实验中的死亡人数](/content/gnews/14/README.md)
+### [辉瑞公然谎报中共病毒疫苗临床实验中的死亡人数](/content/gnews/26/README.md)
  ` 日本东京方舟农场`
 
-### [我最爱听的故事](/content/gnews/15/README.md)
+### [我最爱听的故事](/content/gnews/27/README.md)
  ` 骄子`
 
-### [美国会力争年底前通过与中共国竞争法案](/content/gnews/16/README.md)
+### [美国会力争年底前通过与中共国竞争法案](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [疫苗无效 韩国单日新增确诊病例再破3000](/content/gnews/17/README.md)
+### [疫苗无效 韩国单日新增确诊病例再破3000](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [日本23岁女性接种疫苗后出现多种不适致放弃工作](/content/gnews/18/README.md)
+### [日本23岁女性接种疫苗后出现多种不适致放弃工作](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [无耻缺德！中共把老年人当作产业来经营](/content/gnews/19/README.md)
+### [无耻缺德！中共把老年人当作产业来经营](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [土耳其领导人埃尔多安注射新冠疫苗九个月后 “病重”](/content/gnews/20/README.md)
+### [土耳其领导人埃尔多安注射新冠疫苗九个月后 “病重”](/content/gnews/32/README.md)
  ` xiaobaige`
 
-### [Moderna 寻求美国对所有成年人进行 COVID-19 加强注射的授权](/content/gnews/21/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [疫苗灾难](/content/gnews/22/README.md)
- ` 银河勇气之星`
-
-### [DC大中华时事：拜登称台湾的未来由台湾人决定](/content/gnews/23/README.md)
+### [DC大中华时事：拜登称台湾的未来由台湾人决定](/content/gnews/33/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [CDC承认没有自然免疫者传播中共病毒的记录](/content/gnews/24/README.md)
+### [CDC承认没有自然免疫者传播中共病毒的记录](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [希腊全国餐饮业集体罢工抗议防疫新政策](/content/gnews/25/README.md)
- ` GTV新闻访谈`
-
-### [秘翻在线：习拜会公关成功 中共女婿秦刚展望中美关系](/content/gnews/26/README.md)
+### [秘翻在线：习拜会公关成功 中共女婿秦刚展望中美关系](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美参议员恩斯特：乔拜登没有了骨气](/content/gnews/27/README.md)
+### [美参议员恩斯特：乔拜登没有了骨气](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线：张文宏说病毒永不会消失，要“常态化”抗疫](/content/gnews/28/README.md)
+### [秘翻在线：张文宏说病毒永不会消失，要“常态化”抗疫](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [拥有1毛喜币者的光荣使命](/content/gnews/29/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [国际财经快讯：美中经济和安全审议委员会呼吁限制美国投资中共国，称国安风险加剧；本田日本产能12月恢复正常，缺芯有改善](/content/gnews/30/README.md)
+### [国际财经快讯：美中经济和安全审议委员会呼吁限制美国投资中共国，称国安风险加剧；本田日本产能12月恢复正常，缺芯有改善](/content/gnews/38/README.md)
  ` 秘密翻译组金融团队`
 
-### [秘翻在线：德国医生 因无法忍受政府威胁和疫苗接种无害的谎言而自杀](/content/gnews/31/README.md)
+### [秘翻在线：德国医生 因无法忍受政府威胁和疫苗接种无害的谎言而自杀](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [习近平呼吁美国采取理性政策，在与拜登的峰会上划出红线](/content/gnews/32/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [医院故意给病人过量服用药物，确保死亡率上升](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美国CDC一篇2005年论文表明氯喹药对SARS病毒有效](/content/gnews/34/README.md)
- ` 墨尔本雅典娜农场`
-
-### [班农先生：他们惹错人了！](/content/gnews/35/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共曲线培养香港小粉红](/content/gnews/36/README.md)
+### [中共曲线培养香港小粉红](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [首相约翰逊：英国人需要打3针才算“完全接种疫苗”](/content/gnews/37/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共国经济一塌糊涂，并将引起经济崩溃](/content/gnews/38/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/39/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/41/README.md)
  ` wenwu`
-
-### [共产主义本质](/content/gnews/40/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳大利亚总理呼吁各州放宽强制疫苗政策](/content/gnews/41/README.md)
- ` 走进澳洲`
 
 ### [摇摇摆摆不可恕](/content/gnews/42/README.md)
  ` 骄子`

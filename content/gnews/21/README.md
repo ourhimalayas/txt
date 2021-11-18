@@ -2,37 +2,34 @@
 ---
 
 
-## Moderna 寻求美国对所有成年人进行 COVID-19 加强注射的授权
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1674468/)
+## 拜习会的真相和内容
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1674556/)
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MAJHR7GR3VODFPG5QMH2CW7L741-edited.jpg)图片来源：网络
-路透社 2021年11 月 17 日 – Moderna Inc (MRNA.O) 周三表示，已向美国食品和药物管理局申请批准其 COVID-19 加强疫苗，适用于所有 18 岁及以上的成年人。
+作者：新西兰伊甸农场 亚伦
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+郭文贵先生在11月17日的大直播中解释，关于外界风传的拜登要求与习近平进行视频会议，实际上是习的女婿秦刚私下再三恳请拜登，希望由拜登发起此次视频会，其目的是为了让习更有面子。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-18-下午9.41.45.png)圖片來源：REUTERS
+至于本次视频会议的具体内容，习向拜登提出：一、拜登总统要助阵北京冬奥会，进行政治表演；二、美方要按照中方的要求表述台湾问题；三、美方不能反中共，不能改变共产党体制。
 
-FDA 已经为免疫功能低下的人、65 岁及以上的人以及患有严重疾病的高风险或经常接触病毒的人清除了 COVID-19 疫苗的加强注射。
+郭先生提到，拜登总统没有对此采用任何过激的手段，但也没有出卖台湾，仍旧坚持美方一直以来的“一中”模糊政策。
 
-Moderna 正在寻求获得 50 微克加强剂量的授权，这是其原疫苗剂量的一半，间隔大约 4 周，分两次注射。
+但是，为了这次会议，中共需要付出的代价是，购买更多的美国农产品和美国国债。郭先生透露，仅仅为了这次视频会议，中共付出了千亿美元。同时，在美国的中期选举前，拜登总统要求中共的经济崩溃不能影响到美国，尤其是恒大地产尽量不能破产，或者逐渐慢慢破产，给美国华尔街资金撤出的时间。
 
-该文件是在辉瑞公司 (PFE.N) 为其与德国合作伙伴 BioNTech 开发的疫苗的加强剂量申请类似许可一周后提出的。
+参考链接：[全网独家解析拜习会，揭开会议前后的桌下秘密](https://gnews.org/zh-hans/1672935/)
 
-预计 FDA 将于本周在美国疾病控制与预防中心 (CDC) 顾问小组会议之前就辉瑞做出决定，会议将讨论扩大疫苗加强剂量的资格。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-消息传出后，Moderna 的股价在下午的交易中上涨 5% 至 246.16 美元。
+总编：Ivy001
+编辑：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-专家认为，加强剂量对于将 COVID-19 降低到地方性水平至关重要，美国总统乔·拜登 (Joe Biden) 政府 8 月宣布计划在 9 月为所有成年人推出加强剂量。
-
-上个月，欧盟药物监管机构批准了 Moderna 的加强疫苗，适用于 18 岁以上的所有年龄组，第二次接种后至少六个月，该公司还在日本申请了助推器批准。
-
-然而，包括法国、加拿大、芬兰和瑞典在内的几个国家的监管机构对 Moderna 的疫苗采取了更具防御性的立场，因为它会影响年轻人的心脏相关安全问题。
-
-来源链接：
-
-[https://t.co/EETZmDokJI](https://t.co/EETZmDokJI)
-
-编辑/发布：LILY
-
-20211118
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
