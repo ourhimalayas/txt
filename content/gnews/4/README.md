@@ -2,42 +2,36 @@
 ---
 
 
-## 澳大利亚总理呼吁各州放宽强制疫苗政策
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1674272/)
+## 中共陷入能源危机，加速开采页岩气致地震频发
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1674297/)
 
-**翻译/整理：月映万川
-编辑：朝花夕拾**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-36.jpg)
-图片来源：[Scott Morrison demands rouge states drop vaccine mandates](https://www.msn.com/en-au/news/australia/scott-morrison-demands-rouge-states-drop-vaccine-mandates/ar-AAQPWTy?li=AAaeSy5)
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-129.png)[图片来源](https://www.google.com.hk/search?q=%E5%B7%9D%E5%8D%97%E9%A1%B5%E5%B2%A9%E6%B0%94%E6%9E%84%E9%80%A0&amp;tbm=isch&amp;ved=2ahUKEwjcocH2yqH0AhUK0hQKHU6EAvEQ2-cCegQIABAA&amp;oq=%E5%B7%9D%E5%8D%97%E9%A1%B5%E5%B2%A9%E6%B0%94%E6%9E%84%E9%80%A0&amp;gs_lcp=CgNpbWcQA1AAWABgAGgAcAB4AIABAIgBAJIBAJgBAKoBC2d3cy13aXotaW1n&amp;sclient=img&amp;ei=FhuWYdy-D4qkU86IiogP&amp;bih=625&amp;biw=1366&amp;rlz=1C1YKST_enUS900US901#imgrc=rKq6tkRnuX7qBM)
+中共国地震台网正式测定：11月17日23时36分和42分，在四川宜宾市珙县发生4.7级和2.9级地震，震源深度分别为13千米和10千米。
 
-当新南威士州做出在12月15日废除疫苗护照的决定时，昆士兰州将会在12月17日引入疫苗护照针对酒店服务场所。于此同时，维多利亚州誓言要把疫苗护照一直保持到明年。
+根据中国地震台网速报目录，震中周边200公里内近5年来发生3级以上地震共285次，最大地震分别是2021年9月16日在四川泸州市泸县发生的6.0级地震（距离本次震中131公里）和2019年6月17日在四川宜宾市长宁县发生的6.0级地震（距离本次震中27公里）。
 
-因受到来自自由党内部的议员压力，莫里森在周四称，他仅仅支持对医疗工作者执行强制疫苗政策。
+这些地震具有三个特点，第一，地震频率极高，平均每周数次（2级及以上地震）；第二，震源异常集中，均集聚于四川盆地川南地区；第三，震源深度均为10——15千米，均属于极浅层地震。为什么？
 
-在回应昆士兰州州长时，总理称＂未接种者应该被允许在布里斯班街头喝一杯咖啡。＂
+2010年4月，中石油在威远钻成国内第一口页岩气井，建成威201井；同年9月，在长宁钻成宁201井，两口井均获气。2012年3月，中共国有关部门批准建设该区域页岩气产业化示范区，跨四川宜宾市、自贡市、内江市和泸州市等地（如下图所示）。2020年，该区域页岩气年产量达116亿立方米，并计划于2025年页岩气产量达到270亿立方米。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-35.png)图片来源：中国石油天然气集团公司2019年度报告
+要获取页岩气，需要将化学液体注入地下，用水压将岩石层压裂，从而释放出其中的天然气，这便是水力压裂法。2019年，美国地震学会期刊《地震研究快报》（Seismological Research Letters）的相关报告称，川南地区地震是由附近的水力压裂作业诱发。即为，页岩气开采导致的地质构造的改变才是川南地区地震频繁的根本原因。
 
-同时在周四的访问中，总理也表示，＂现在是时候让政府回归到自己原来的位置，而让澳大利亚人找回自己曾经的生活。＂
+2021年第一季度，川南地区页岩气产能突然猛增，达33.55亿方，同比增长30%以上。川南页岩气产量增幅与中共病毒肆虐及其引发的能源危机几乎同步，随着中共国与世界的快速脱钩，中共只能继续加强页岩气的开采，以弥补进口能源缺口。中共国能源主要依靠进口，原油对外依存度为70%，天然气超过40%，还有超3亿吨的优质煤进口，这绝不是加大川渝页岩气开采就可以弥补的，但可以肯定的是，川南的地震将会越来越频繁。
 
-昆士兰副州长斯蒂文迈尔斯在回击总理的言论时称，总理因其自身＂狡猾的政治利益＂而损害了昆士兰州政府对大流行的应对计划。
+信息来源：
 
-总理的这番言论是在两名自由党议员和一国党党魁保琳汉森宣布不再支持政府任何法案后做出的。而让三位议员重新支持政府法案的前提就是，莫里森要在各州制止疫苗强制令上有所行动。
+[四川宜宾市珙县连发两次地震，最强4.7级](https://ie.bjd.com.cn/5b165687a010550e5ddc0e6a/contentApp/5b16573ae4b02a9fe2d558f9/AP619524bbe4b023337f253cad.html?isshare=1&amp;contentType=0&amp;isBjh=0)
 
-如果这三位参议员的要求不能得到满足，那么，任何在下周表决的政府法案将不会获得通过。
+[四川页岩气开采：“水力压裂”下小地震频发引公众担忧](https://www.bbc.com/zhongwen/simp/chinese-news-47905139)
 
-于此同时，未接种疫苗的一国党汉森参议员已经提交了一份有关停止疫苗强制令的法案。此法案要求联邦政府可以越过各州法规而叫停疫苗强制令。
+[抢抓国家重大战略机遇 勇当中国“气大庆”建设主力军](https://www.sc.gov.cn/10462/10464/10465/10574/2021/6/23/8f023559cfc14e6bb39cd3673a5c8bf0.shtml)
 
-在上一周，莫里森总理公开抨击了疫苗强制令，并称未接种者在做出自己的选择后，不应该被妖魔化。
+[中国油气勘探开发十字路口：面临碳中和”大限” 又要力保增储上产](https://www.swpu.edu.cn/og/info/1033/4440.htm)
 
-原文链接：[PM Scott Morrison demands states drop Covid jab mandates and says unvaccinated Aussies MUST be allowed into pubs and restaurants](https://www.dailymail.co.uk/news/article-10214777/amp/Scott-Morrison-demands-states-like-Queensland-drop-Covid-19-vaccine-mandates.html)
-
-发布：Janek
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
