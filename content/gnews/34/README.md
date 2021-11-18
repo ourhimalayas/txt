@@ -2,10 +2,10 @@
 ---
 
 
-## 日本第三个县确认禽流感，扑杀15.5万只鸡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1673379/)
+## 三家公司靠中共病毒疫苗，每一秒吸血1000美元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1673402/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._18-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1118-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)

@@ -2,40 +2,34 @@
 ---
 
 
-## 继南海冲突后，菲律宾告诉中共国“退让”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1673575/)
+## GTV新闻访谈简报|2021年11月17日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1673585/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：香草山翻译部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/07southchinaseaQandA-web4-superJumbo.jpg)
-
-
-
-图片来源：www.nytimes.com
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-1.jpg)
 
 
-#### 编译：小红帽
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1117text-SC.png)
 
-菲律宾表示，中共国海岸警卫队的三艘船在有争议的南海专属经济区（EEZ）内对菲律宾的两艘补给船进行了拦截并发射水炮。
 
-菲律宾外交部长特奥多罗·洛钦（Teodoro Locsin）说，事件于11月16日发生在爱永金浅滩Ayungin（第二多马浅滩）附近，正在向驻扎在附近的军事人员运送食品的菲律宾船只被迫放弃了这项任务。没有人员伤亡的报道。
+校对：Stay文苑
 
-“中共国海岸警卫队船只的行为是非法的，”洛钦在外交部的社交媒体上分享的一份声明中说。“中共国在这些地区及其周围没有执法权。他们必须注意并退让。”
+编辑：Stay文苑
 
-中共国根据其所谓的“九段线”宣称几乎拥有整个南海，而国际法院在五年前裁定该线没有法律依据。北京当局无视这一裁决，而是在有争议的海域建造人工岛，并部署其海军、海岸警卫队和渔船船队，菲律宾、马来西亚、越南、文莱和台湾也对该海域提出主权要求。
+发稿：Stay文苑
 
-洛钦指责中共国未能保持克制，并表示他已向中共国大使转达了马尼拉当局对该事件的 “愤怒、谴责和抗议”。
+视频参看：[11.17  晚GTV新闻访谈](https://gtv.org/broadcast/watch/6195acdce7e770379236a68c)
 
-**参考新闻：**[Philippines tells China to ‘back off’ after South China Sea clash (msn.com)](https://www.msn.com/en-au/news/world/philippines-tells-china-to-back-off-after-south-china-sea-clash/ar-AAQPKLH?ocid=msedgntp)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 
-***发布：小红帽***
+**更多资讯，更多关注**
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
 
  
 

@@ -2,27 +2,40 @@
 ---
 
 
-## 加拿大安省因疫情恶化或重施更严格的卫生措施
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1673571/)
+## 继南海冲突后，菲律宾告诉中共国“退让”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1673575/)
 
-采编：Ucool(优酷)      编译撰稿：苦尽甜来 (文来）
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-32.jpg)图片来源：TNH
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/07southchinaseaQandA-web4-superJumbo.jpg)
 
 
-据加拿大媒体【CTV新闻】11月16日报道，安大略省卫生部日前表示：在“新冠病毒”感染病例数激增的情况下，当局或将恢复对“公共场所人员容量”限制和其他公共卫生强制措施。
 
-报道称，安省的苏圣玛丽市最近因疫情恶化，而必须采取紧急措施以避免更多感染和保证卫生系统的正常运行。为此，该市在翌日将恢复省政府刚解除的“公共场所人员容量限制”，包括保持两米社交距离并配戴口罩等卫生措施。违者将处以每天最高 5,000 加元的罚款。
+图片来源：www.nytimes.com
 
-尽管安省卫生部官方数据显示：超过86%的该省居民已完全接种了“新冠病毒”疫苗，但目前的该病毒感染病例数是“自疫情开始以来的最高水平”，并达到每10万人就有121宗的高比例感染个案。
 
-对此，省长福特宣称：当局将尽量避免再次实施更广泛的疫情封锁政策。但如果需要重新采取任何相对宽松的公共卫生措施，将以局部方式缓步进行。
+#### 编译：小红帽
 
-* * *
+菲律宾表示，中共国海岸警卫队的三艘船在有争议的南海专属经济区（EEZ）内对菲律宾的两艘补给船进行了拦截并发射水炮。
 
-校对编辑，发稿：硫酸羟氯喹64
+菲律宾外交部长特奥多罗·洛钦（Teodoro Locsin）说，事件于11月16日发生在爱永金浅滩Ayungin（第二多马浅滩）附近，正在向驻扎在附近的军事人员运送食品的菲律宾船只被迫放弃了这项任务。没有人员伤亡的报道。
 
-原文链接：[https://toronto.ctvnews.ca/mobile/some-ontario-health-units-reinstating-capacity-limits-mulling-tougher-covid-measures-1.5667898](https://toronto.ctvnews.ca/mobile/some-ontario-health-units-reinstating-capacity-limits-mulling-tougher-covid-measures-1.5667898)
+“中共国海岸警卫队船只的行为是非法的，”洛钦在外交部的社交媒体上分享的一份声明中说。“中共国在这些地区及其周围没有执法权。他们必须注意并退让。”
+
+中共国根据其所谓的“九段线”宣称几乎拥有整个南海，而国际法院在五年前裁定该线没有法律依据。北京当局无视这一裁决，而是在有争议的海域建造人工岛，并部署其海军、海岸警卫队和渔船船队，菲律宾、马来西亚、越南、文莱和台湾也对该海域提出主权要求。
+
+洛钦指责中共国未能保持克制，并表示他已向中共国大使转达了马尼拉当局对该事件的 “愤怒、谴责和抗议”。
+
+**参考新闻：**[Philippines tells China to ‘back off’ after South China Sea clash (msn.com)](https://www.msn.com/en-au/news/world/philippines-tells-china-to-back-off-after-south-china-sea-clash/ar-AAQPKLH?ocid=msedgntp)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

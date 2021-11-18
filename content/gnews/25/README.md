@@ -2,25 +2,24 @@
 ---
 
 
-## 前美国总统顾问班农承诺将转守为攻
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1673538/)
+## 秘鲁欲加入全球推动发展数字货币的行列
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1673554/)
 
-原文采编：UCool优酷 编译撰稿：文所未闻
+采编：青青     编译撰稿：文明(添草灭共)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-46-edited.jpg)图片来源：GNEWS
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-47-edited.jpg)图片来源：路透社
 
 
-据英国知名媒体《每日邮报》11月15日报道，前美国总统川普的首席战略顾问班农先生，当天在华盛顿【联邦调查局】总部，参加了简短听证会以回应当局关于对其“藐视国会”的指控。
+据【路透社】11月16日报道，秘鲁央行行长维拉德当天在该国首都利马举行的商界领袖会议上表示，该国央行目前正在与印度、新加坡和香港等国家和地区的中央银行合作开发数字货币。
 
-报道称，班农在本次听证会现场利用社交媒体GETTR平台进行了全程直播。聆讯期间，他不仅抨击了拜登政府的无能，还要求其支持者们继续关注两党大势。并同时承诺将迅速改变斗争策略而转守为攻。
-
-针对班农先生将于11月18日再次出庭接受听证，他女儿对此直言不讳表示，这不仅是一场典型的政治迫害，也是拜登政府用来转移目前美国民众对当局国策全面失败的关注。
+据悉，“中央银行数字货币”的概念起源于比特币。但与目前完全去中心化的比特币或其他加密货币不同，它由各国中央银行发行作为本国法定货币的数字化版本。并因此受到各国金融监督机构的全面监管并由国家货币储备给予支持。
 
 * * *
 
 校对编辑，发稿：硫酸羟氯喹64
 
-原文链接：[https://www.dailymail.co.uk/news/article-10204023/Steve-Bannon-arrives-Washington-court-indicted-refusing-comply-subpoena.html](https://www.dailymail.co.uk/news/article-10204023/Steve-Bannon-arrives-Washington-court-indicted-refusing-comply-subpoena.html)
+原文链接：
+https://www.reuters.com/world/americas/perus-central-bank-joins-global-push-develop-digital-currency-2021-11-16/
 
  
 
