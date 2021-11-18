@@ -2,41 +2,31 @@
 ---
 
 
-## 中共将对内对外无限强硬并继续放毒对内对外资本共产制
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1674809/)
+## 日本政府将一体化推进行政体制数字化改革
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1674864/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tzkp1eo_a80weipf_副本.png)
-据[2021年11月17日 文贵大直播：再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向](https://gtv.org/video/id=6194fda8e7e7703792363972)时间点1：50：21——
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-15.png)
+[图片来源](https://www.hossky.com/article/4170.html)
 
-**郭文贵先生：**现在两个政策，你记住我今天说的话，这两个政策——会对外无限强硬，你会看到无限强硬！一定会再放毒，然后在南海和东海问题上一定会强硬！这就是无限的强硬对内外政策；
+11月16日，日本数字临时行政调查会在首相官邸召开首次会议，研究一体化推进行政体制数字化改革事宜。
 
-第二条记住兄弟姐妹们，马上会把中国的经济、私有企业、所有的人的财富和所有的东西都会收回到中央去，然后对所有在华的企业能弄的弄、能抢的抢，就是真正地实现对内对外的资本的共产制，闭关锁国，完全拒绝对外改革开放，完全自主干、自主道路、自主研发、开拓创新、胸怀天下，然后老子来搞你天下。
+政府表示将在年内制定“完全数字化及自动化原则”的改革共同指针，诸如原则上废除规定必须书面提交或见面的制度等，并将基于指针制定具体措施，旨在实现所有行政事务在线办理。计划明年春季汇总第一次建议，在后年例行国会上实施必要的法律修改。
 
-这两件事就在发生此时此刻，最后的结局是什么？告诉体制内的战友们，你们的所有的问题是你怎么让你活得更好，活得你安全，我今天很抱歉地回答你，我今天应天池的回答，没有一个人是安全的，没有一个人可以再过得好的——一个都不会有！不是说一部分，一个都不会！咱走着看。
+临调由相关阁僚和专家组成。作为临调会长的首相岸田文雄表示：“有必要把经济、社会机制改造成契合数字时代的模式。”
 
-（以下暂略）
+政府方面在会上介绍设置临调的背景称：“通过设置数字厅完善了推进数字改革的体制，但不对行政体制实施结构性改革的话，国民和企业就无法实际感受到实惠。”
 
-撰稿：喜马拉雅的肉夹馍；
+此外还将提出，实现行政与民间数据畅通交换的“确保相互运用性原则”、防止行政各自分散开发系统的“利用数字共同基础原则”等。
 
-审核：喜马拉雅的馍夹肉；
+信息来源：
 
-校对：Maarago
+[日政府拟一体化推动数字改革力争实现事务在线办理](https://china.kyodonews.net/news/2021/11/c4e798110b68--.html)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
