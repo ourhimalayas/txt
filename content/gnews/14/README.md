@@ -2,28 +2,31 @@
 ---
 
 
-## 加拿大安省因疫情恶化或重施更严格的卫生措施
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1673571/)
+## 有声| 内斗加剧，孙力军团伙被彻查
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1673592/)
 
-采编：Ucool(优酷)      编译撰稿：苦尽甜来 (文来）
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间11月16日，中共公安部声称，将对孙力军政治团伙的人和事进行深挖彻查，进一步清除所谓的党内“害群之马”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-32.jpg)图片来源：TNH
+六中全会前，中共明示，即将处理孙力军，同时，当局向各省区派驻所谓的“中央督导组”。据悉，该督导组已于11月10日开始执行中共对各地的反馈督导意见。内部人员提到，在督导期间，中共对相关省区最高法院队伍的洗脑整顿工作汇报会议上，孙力军、周永康等仍被作为反面典型素材用以批斗。另外，中共再度用“打老虎”的手段，点名孙力军、周本顺、张越、刘新云等政治内斗的夙敌。
 
+评论人员指出，一个半月以来，孙力军事件彰显了中共内部厮杀的激化。
 
-据加拿大媒体【CTV新闻】11月16日报道，安大略省卫生部日前表示：在“新冠病毒”感染病例数激增的情况下，当局或将恢复对“公共场所人员容量”限制和其他公共卫生强制措施。
+文字版原文：[内斗加剧，孙力军团伙被彻查](https://gnews.org/zh-hans/1672146/)
 
-报道称，安省的苏圣玛丽市最近因疫情恶化，而必须采取紧急措施以避免更多感染和保证卫生系统的正常运行。为此，该市在翌日将恢复省政府刚解除的“公共场所人员容量限制”，包括保持两米社交距离并配戴口罩等卫生措施。违者将处以每天最高 5,000 加元的罚款。
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-尽管安省卫生部官方数据显示：超过86%的该省居民已完全接种了“新冠病毒”疫苗，但目前的该病毒感染病例数是“自疫情开始以来的最高水平”，并达到每10万人就有121宗的高比例感染个案。
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-对此，省长福特宣称：当局将尽量避免再次实施更广泛的疫情封锁政策。但如果需要重新采取任何相对宽松的公共卫生措施，将以局部方式缓步进行。
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-原文链接：[https://toronto.ctvnews.ca/mobile/some-ontario-health-units-reinstating-capacity-limits-mulling-tougher-covid-measures-1.5667898](https://toronto.ctvnews.ca/mobile/some-ontario-health-units-reinstating-capacity-limits-mulling-tougher-covid-measures-1.5667898)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,49 +2,45 @@
 ---
 
 
-## 史蒂夫·班农在出庭后被释放
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1673258/)
+## 纽约助理医师成为吹哨人，报告揭露疫苗伤害被禁言
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1673322/)
 
-**简评：关于此事，文贵先生早在四十几天前就已经告知了班农先生，这是共产党作出的决定，目的就是干倒班农和战斗室，而且也会用此法干掉川普总统。此事件意味着共产党正在作死，共产党认为美国都被它控制了。班农事件让美国人看到中共在美国对美国人的威胁。此事的最大收益是让我们知道美国的官方更加重视新中国联邦和爆料革命。而且他们觉得我们需要真正的国防力量，他们真正严肃地，加速思考承认新中国联邦的代表性。**
+#### **翻译：钢豆奶油面包**
 
-**据《布赖特巴特新闻》记者WENDELL HUSEBØ，2021年11月15日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/aucnc-bkmxd-1.jpg)**图片来源：ANDREW CABALLERO-REYNOLDS/AFP via Getty Images**
+#### **编辑：朝花夕拾****/****文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-389.png)**图片来源：墨尔本雅典娜农场设计组**
+美国FDA和CDC（有意）忽略了一个医院超过90%的入院病人均接种过新冠疫苗，但是没人就此事向疫苗不良事件报告系统(VAERS)报告这一令人震惊的数据。
 
-史蒂夫·班农 (Steve Bannon) 曾任川普总统的白宫高级顾问、布赖特巴特新闻 (Breitbart News) 前执行主席，他在周五被起诉后出庭，后于周一下午获释。
+纽约医院助理医师黛博拉·康拉德勇敢地报告了这些疫苗伤害，如今她被VAERS禁止再次提供报告。
 
-班农的律师在离开法庭时告诉记者，法官罗宾·梅里韦瑟（Robin Meriweather ）将于11月18日在华盛顿特区联邦地方法院举行听证会。
+黛博拉·康拉德，这位心存忧虑的助理医师坦诚曝光她工作的医院，她认真地追踪了每一个他们医院病人的新冠疫苗接种状况。
 
-“我永远不会退缩。 他们抓错人了”，班农告诉记者，“这对梅里克·加兰、南希·佩洛西和乔·拜登来说将是地狱般的轻罪”。
+结果是令人震惊的！
 
-班农声称，“乔·拜登从‘海军一号’下来在白宫草坪上时，就命令梅里克·加兰起诉我，我们厌倦了防守。 我们将继续进攻”，反对乔拜登和中国共产党。
+他们医院服务社区那里的人们新冠疫苗接种率低于50%。相同的时间段内，大约90%的入院病人都接种过新冠疫苗，并且这些病人都因为不同的原因入院，包括新冠病毒感染。令人困惑的是有许多的病人是年轻人，他们中的许多人入院时是打过疫苗后几个月，表现出不寻常的不应该有的健康问题。
 
-班农在向联邦调查局特工自首之前还表示，民粹主义运动正在西班牙裔和非裔美国人中取得成功。
+人们或许认为这种相似的症状被一个健康医疗专家发现后，至少我们政府健康权力机构应该调查一下是吧？
 
-班农说：“西班牙裔和非裔美国人站在我们这边；我们正在推翻拜登政权”。
+可悲的是，当康拉德女士向健康权力机构联系后，她根本得不到回应。
 
-“我不希望任何人把注意力从我们每天所做的事情上转移开”，班农继续说，“这都是噪音”。
+2021年7月19日，当律师事务所为康拉德女士向CDC和FDA递交信函，再次不被理睬。
 
-《布赖特巴特新闻》此前报道：班农周五被控两项藐视法庭罪，第一项罪名是不出席国会听证会，第二项罪名是在回应国会传票时没有提交文件。
+更严重的是，当有医生为他们的病人寻求康拉德女士的协助向VAERS报告时，医院禁止她提交（相关）报告。
 
-班农被起诉的消息表明，拜登政府有意要追究前政治对手的责任，为未来的政府可能受到起诉提供了可能。
+CDC和FDA的不回应一点都不令人吃惊，他们一直都是疫苗的啦啦队，有一天新冠疫苗的伤害会显现在他们自己身上。
 
-前几届美国总统政府拒绝调查他们的前对手，即使在选举期间承诺要这样做，以此来保护行政特权。
+康拉德的报告不仅提供了对CDC审查过程的深入了解，而且证实了只有1%的疫苗不良事件得到报告的说法。事实上，她所在的医院警告她停止报告，然后院方解雇了她。
 
-如果班农被判有罪，他将面临每项罪行最高1,000美元的罚款和一年的监禁。
+资料链接：
+1、[“THESE PATIENTS DESERVE TO BE HEARD” -VAERS WHISTLEBLOWER – The HighWire](https://thehighwire.com/videos/these-patients-deserve-to-be-heard-vaers-whistleblower/)
+2、[Sentinel fails in vaccine reporting, by John-Michael Dumais | Letters To The Editor | sentinelsource.com](https://www.sentinelsource.com/opinion/letters_to_the_editor/sentinel-fails-in-vaccine-reporting-by-john-michael-dumais/article_41ace816-e981-511c-8e0a-406d94239533.html)
 
-**原文连接：**[https://www.breitbart.com/politics/2021/11/15/steve-bannon-released-from-custody-after-appearing-before-judge/](https://www.breitbart.com/politics/2021/11/15/steve-bannon-released-from-custody-after-appearing-before-judge/)
-
-**（本文评论仅代表个人观点）**
-
-翻译：洛杉矶盘古农场–钢蛋儿
-校对：洛杉矶盘古农场–Mike Li
-评论：洛杉矶盘古农场–钢蛋儿
-编辑：洛杉矶盘古农场–心照
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+发布：文泓
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
