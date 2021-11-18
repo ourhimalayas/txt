@@ -2,65 +2,53 @@
 ---
 
 
-## 美国国务院在“危险、鲁莽”的卫星击落后警告俄罗斯
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1675284/)
+## 房地产公司正越来越多地接受加密货币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1675371/)
 
-作者：Ian Miles Cheong
-翻译：Himasally
+**【简评：】***在萨尔瓦多将比特币作为法定货币之后，纽约市开始采用比特币，并在房地产领域引发了一场风暴。我们看到虚拟货币的应用场景正在逐步扩大，纽约、新加坡等都在力争成为加密货币中心，人们已经不能阻挡加密货币的历史潮流。同时我们也看到，对加密货币的监管措施也在逐步提升，无责任主体的虚拟币如比特币等注定要被人们抛弃。而有强大财团投资背书、有20%黄金储备、有合法合规的独立公司主体的喜币，必将展现其强大的魅力，被更多国家主体认可、实现全球范围内的流通和财富保障。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-3.png)
+据《雅虎财经》 2021年11月15日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-420-e1637260840752.png)图片来源：雅虎财经网
+视频链接：
 
-美国国务院表示，不会容忍俄罗斯“危险、鲁莽”的击落太空卫星，并警告美国及其盟国打算对俄罗斯联邦采取行动。
 
-周一，俄罗斯对其直接上升反卫星 (ASAT) 导弹进行了测试，该导弹曾用于摧毁自己的一颗卫星。
+[https://edgecast-vod.yimg.com/geminivideoads/f7d0079f-1585-5521-8afa-d950b591979b/video\_output\_101.mp4](https://edgecast-vod.yimg.com/geminivideoads/f7d0079f-1585-5521-8afa-d950b591979b/video_output_101.mp4)
 
-据空间网报道，俄罗斯国防部使用“努多”反弹道导弹系统进行了“同类首次”导弹试验，该系统此前并未摧毁任何目标。
 
-多年来，包括美国在内的多个国家已经开发并测试了反卫星技术。
+对话实录
 
-2007 年，中国向自己的一颗气象卫星发射了反卫星导弹，印度于 2019 年进行了首次反卫星试验。
+JULIE HYMAN：你也许不会使用加密货币或比特币来购买披萨，但它正被用于越来越多的项目，比如说NFTs（Non-Fungible Tokens，非同质化代币）。但是，奢侈品交易或大额交易能否使用加密货币，比如房地产交易？这是雅虎财经的Jennifer Schonberger一直在研究的问题。事实上，这似乎正在发生。
 
-2020年，俄罗斯发射了两枚反卫星导弹，并分别测试了另一种非破坏性天基反卫星技术。
+JENNIFER SCHONBERGER：嘿，早上好，朱莉。是的，**加密货币正被越来越多地用于房地产交易。事实上，在纽约，已经出现了第一个接受比特币交易的商业房地产项目。Magnum房地产集团正在出售三套零售公寓，在曼哈顿上东区的底层完全出租，售价2900万美元，但他们只接受比特币。**
 
-但周一的测试有所不同。马萨诸塞州剑桥市哈佛-史密森天体物理中心的天体物理学家兼卫星追踪者乔纳森·麦克道威尔告诉空间网，这是俄罗斯对其当前反卫星系统努多的首次正式拦截。
+虽然这是以比特币进行交易的第一个商业房地产项目，但我们已经看到过去几年住宅方面的房地产交易和加密货币正在回升。为Magnum处理房地产交易的加密货币支付处理商BitPay的CMO Bill Zielke说，过去几年，该公司一直在为国际买家处理加密货币房地产交易，最近在美国处理美国西部的滑雪屋和纽约的房产。在上市商业地产之前，Magnum房地产公司使用比特币做了三笔住宅交易，其中一笔交易位于上东区，以超过1500万美元的比特币价格成交。
 
-不同的国家有不同的系统，但目前从地球发射的非天基反卫星武器都比较相似。麦克道尔说：“它们是亚轨道火箭，可以锁定目标卫星，并在卫星以每小时 17,000 英里 [27,000 公里] 的速度撞击目标卫星时挡在途中将其摧毁。”
+Magnum房地产公司的管理合伙人Ben Shaoul说，他预计加密货币的交易将继续增长。
 
-但这一次，测试击中了近地轨道上的一个真正目标：一颗名为宇宙1408 的苏联卫星，自 1980 年代以来一直没有运行。而且，虽然苏联时代的反卫星测试是从不同的系统发射的，但周一的测试是俄罗斯现代系统的第一次拦截，麦克道尔说。
+Ben Shaoul：我看到加密货币交易的跑道呈指数增长。比特币处于历史高位的事实，你知道，显然有帮助。但我认为投资者就是投资者，他们在拥有比特币方面做得非常非常好。而现在，他们正在寻找现金流资产。
 
-目标卫星的破坏产生了 1,500 块可追踪的轨道碎片，以及数以千计注定要永远留在轨道上的较小物体。这些物体太小，无法在多个生命周期内被地球引力拉下。
+JENNIFER SCHONBERGER：随着比特币与其他加密货币价格的持续飙升，这些创纪录高点和投资者对房地产的需求之间存在相关性。因此，正如Shaoul提到的，我们应该期待房地产市场的加密货币交易部分在未来几年继续增长。JULIE？
 
-美国国务院发言人内德·普莱斯在周一的新闻发布会上说：“我们非常清楚地传达的是，今天决定进行这次反卫星试验这是危险的、鲁莽的、不负责任的。” “我们将并且一直在与我们在世界各地的盟友和合作伙伴协商，向俄罗斯联邦和其他任何认为这种危险行动的人表明，我们不会容忍这种行为。”
+JULIE HYMAN：但当然，每当我听到这些东西，价格就会有很大的变动。比如，你如何决定比特币的交易量？比如，什么时候？你知道，如果你决定要用比特币买这个公寓，然后（比特币的）价格大幅波动，会发生什么？就像，他们怎么……我不知道。你是如何知道这些的？
 
-“我们和盟友不想提前采取具体的措施，但我们将继续明确表示我们不会容忍这种活动，”普莱斯补充道。
+JENNIFER SCHONBERGER: 是的，我的意思是，我想这真的只是——就像你说的，这确实取决于价格。但是，如果你已经积累了足够的财富，而且你觉得你想兑现，你想把它部署到另一个现金流资产中，无论是投资还是别的。你知道，你（有了）真正想住的地方——那么你就能够转让。顺便说一句，这非常有趣，因为当你用比特币或加密货币进行交易时，结算过程会逐渐加快。
 
-普莱斯的言论得到国务卿安东尼·布林肯的回应，他说导弹试验“清楚地表明，尽管俄罗斯声称反对外空武器化，但却危害外空的长期可持续性并危及外空的探索和探索。反对所有国家通过其鲁莽和不负责任的行为来利用外层空间。”
+**它只在第二天就结算了，而不是花30到90天来尝试结算这笔交易。所以我想，如果你很着急，或者你是一个国际买家或投资者，使用加密货币肯定也会让支付过程更容易。**
 
-俄罗斯导弹试验产生的大量碎片迫使国际空间站上的美国宇航员和俄罗斯宇航员躲在载人龙飞船和联盟号飞船中，这些飞船在发生灾难时充当救生艇。
+JULIE HYMAN：也许是这样。好的，我们将依靠你让我们了解这一趋势，这一蓬勃发展的趋势。
 
-周三，国防部长劳埃德奥斯汀警告说，俄罗斯导弹试验“最令人不安”的方面“是它给国际社会带来的危险，它破坏了战略稳定。”
+英文链接：[https://www.yahoo.com/news/real-estate-companies-increasingly-accepting-161153297.html?guce\_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS91cmw\_cT1odHRwcyUzQSUyRiUyRnd3dy55YWhvby5jb20lMkZuZXdzJTJGcmVhbC1lc3RhdGUtY29tcGFuaWVzLWluY3JlYXNpbmdseS1hY2NlcHRpbmctMTYxMTUzMjk3Lmh0bWwmc2E9RCZzb3VyY2U9ZWRpdG9ycyZ1c3Q9MTYzNzE3Mzk2Njg1ODAwMCZ1c2c9QU92VmF3MEtvUEhZbmM2N0dCYmxPTFE1ci0tQg&guce\_referrer\_sig=AQAAAFB6gCkwKZhodZJ9LCY-6iVvb6XKLoJShcgrJkvBSjBpeRRPUxzLV6a63Xx6H9mi2CWDpFZ\_SKVIqybcVT1pGYkbauUDlF4xHeCPeeY01sM5rgQGj0WOWgFydpFIEg01ddGBlSkWJXcWBwql-7J-MwKENPERtoPU3Z7Qi3MAb-6s&\_guc\_consent\_skip=1637171417](https://www.yahoo.com/news/real-estate-companies-increasingly-accepting-161153297.html?guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS91cmw_cT1odHRwcyUzQSUyRiUyRnd3dy55YWhvby5jb20lMkZuZXdzJTJGcmVhbC1lc3RhdGUtY29tcGFuaWVzLWluY3JlYXNpbmdseS1hY2NlcHRpbmctMTYxMTUzMjk3Lmh0bWwmc2E9RCZzb3VyY2U9ZWRpdG9ycyZ1c3Q9MTYzNzE3Mzk2Njg1ODAwMCZ1c2c9QU92VmF3MEtvUEhZbmM2N0dCYmxPTFE1ci0tQg&amp;guce_referrer_sig=AQAAAFB6gCkwKZhodZJ9LCY-6iVvb6XKLoJShcgrJkvBSjBpeRRPUxzLV6a63Xx6H9mi2CWDpFZ_SKVIqybcVT1pGYkbauUDlF4xHeCPeeY01sM5rgQGj0WOWgFydpFIEg01ddGBlSkWJXcWBwql-7J-MwKENPERtoPU3Z7Qi3MAb-6s&amp;_guc_consent_skip=1637171417)
 
-“我们担心太空武器化，”他说。“如你所知，有一个碎片场现在将永远存在，这是一个安全问题。我们将呼吁俄罗斯采取更负责任的行动。他们确切地知道他们将要创造什么样的碎片场，所以我们想知道他们为什么会做这样的事情。”
+翻译：洛杉矶盘古农场–Mike Li
+校对：洛杉矶盘古农场–比格渣餐厅老板の娘
+评论：洛杉矶盘古农场–比格渣餐厅老板の娘
+编辑：洛杉矶盘古农场–心照
 
-来源：https://www.rebelnews.com/us\_state\_dept\_warns\_russia\_after\_dangerous\_reckless\_satellite\_shoot\_down
 
-（文章仅代表作者个人观点）
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

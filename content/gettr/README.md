@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/18/2021 8:09 PM (UTC)`
+
+11月18日: 笨笨喜欢啃啃啃… 玩得好开心啊～ 😘😘❤️❤️❤️❤️
+![img](https://media.gettr.com/group45/getter/2021/11/18/20/09/056c8563-1371-f372-006e-b2f571fbb29f/out.jpg)
+
+---
+
+`@miles 11/18/2021 8:02 PM (UTC)`
+
+11月18日： 可爱的笨笨和Snow嬉闹的日常生活🥰🥰🥰
+![img](https://media.gettr.com/group8/getter/2021/11/18/20/02/db601031-2e53-9fe5-543a-56e24ca9b7d5/out.jpg)
+
+---
+
 `@miles 11/18/2021 3:50 PM (UTC)`
 
 11/17/2021 Miles Guo: After the Six Plenary Session, the CCP’s attitude towards the US will get softer although it will keep taking tough; the West will regard the CCP as more threatening; Xi is going to be the “emperor” in China, while acting like Hitler internationally; Xi will implement isolation policy and push communist policies for both domestic and foreign businesses in China; no one within the CCP’s system will be safe<br/><br/>11/17/2021 文贵直播：六中全会后，中共虽然会对美国嘴上硬，但实际上将越来越软；西方将把中共视为更大的威胁；习近平将对内实行“习皇制”，对外当“习特勒”；习将闭关锁国并对国内外资本实施共产制；中共体制内无人会是安全的<br/>
@@ -286,20 +300,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 11/14/2021 Miles Guo: Xi’s evil plan is to bring down the world’s economy by using the CCP’s real estate crisis so that he can invade Taiwan during the chaos, but this will speed up the world’s recognition of the legitimacy of the New Federal State of China; Jack Ma will either run away or get killed; Alvin Jiang mistakenly believed Singapore was a safe place to hide his money, indicating there is no real smart guy in the CCP<br/><br/>11/14/2021 文贵直播：习妄图利用中共房地产崩溃搞垮世界经济，以趁乱打台湾，而这将加速世界承认新中国联邦；马云要么逃走，要么被弄死；江志成误以为新加坡可安全藏钱，这说明中共内部没有聪明人<br/>
 ![img](https://media.gettr.com/group40/getter/2021/11/15/10/41/3e7fb3f2-d630-8d40-ab2d-2a509f7313e7/out.jpg)
-
----
-
-`@miles 11/15/2021 3:27 AM (UTC)`
-
-11/14/2021 Miles Guo: What’s the key issue of this global supply chain disaster? The CCP virus and the vaccine side effects causing massive labor shortage of blue-collar and office workers and sailors in manufacturing sectors, ocean transportation and ports; vaccine disasters have not come yet<br/><br/>11/14/2021文贵直播：全球供应链问题的核心是什么？病毒疫苗造成生产、海运、港口中高低端劳动力的大量短缺；疫苗给人类带来的灾难还没有开始
-![img](https://media.gettr.com/group43/getter/2021/11/15/03/27/9b5660c1-be96-2891-f260-54e81aec1c3c/out.jpg)
-
----
-
-`@miles 11/15/2021 3:01 AM (UTC)`
-
-11/14/2021 Miles Guo: The CCP ransacked Jack Ma's secret office in Singapore and seized enough materials to put him behind bars. The citizens of the New Federal State of China must learn the lesson from Jack Ma. We shall never be enslaved by wealth due to ignorance, and we must accumulate clean, legitimate and sustainable wealth<br/><br/>11/14/2021 文贵直播：中共在马云新加坡的秘密办公室查抄的东西足以让他把牢底坐穿；而新中国联邦人要以马云为鉴，不要因无知而成为财富的奴隶，我们要拥有干净、合法和永续的财富<br/>
-![img](https://media.gettr.com/group33/getter/2021/11/15/03/01/b6b2a059-e0ee-52b4-8945-58047a53915d/out.jpg)
 
 ---
 

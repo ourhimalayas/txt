@@ -15,179 +15,179 @@
 
 ---
 
-### [三十几个国家已跟中共脱钩，喜币真正价格体现在三个标志事件](/content/gnews/1/README.md)
+### [FDA要求联邦法官55年后才完全公布其疫苗数据](/content/gnews/1/README.md)
+ ` HimalayaRussia`
+
+### [拜登的疫苗强制的法律斗争预计将进入最高法院](/content/gnews/2/README.md)
+ ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
+
+### [斯洛伐克对未接种疫苗的人实施封锁](/content/gnews/3/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [独家｜消息人士称美国要求中国释放石油储备作为经济合作讨论的一部分](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [DC每日热点1118](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中国可以摧毁加密货币生态系统？](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021年11月17日郭文贵先生直播全文字版](/content/gnews/7/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [三十几个国家已跟中共脱钩，喜币真正价格体现在三个标志事件](/content/gnews/8/README.md)
  ` MG 澳喜农场多语组`
 
-### [突发：辉瑞隐瞒了COVID-19疫苗临床试验的死亡人数](/content/gnews/2/README.md)
+### [突发：辉瑞隐瞒了COVID-19疫苗临床试验的死亡人数](/content/gnews/9/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [家庭反洗脑序列：第35篇 钱币](/content/gnews/3/README.md)
+### [家庭反洗脑序列：第35篇 钱币](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [蜂蜜的“幌子”](/content/gnews/4/README.md)
+### [蜂蜜的“幌子”](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [突发：辉瑞称拜登政府将以 50 亿美元的价格购买 1000 万粒 COVID 药丸](/content/gnews/5/README.md)
+### [突发：辉瑞称拜登政府将以 50 亿美元的价格购买 1000 万粒 COVID 药丸](/content/gnews/12/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [FDA 在隐藏了什么？等 55 年再发布辉瑞 COVID 疫苗试验信息？](/content/gnews/6/README.md)
+### [FDA 在隐藏了什么？等 55 年再发布辉瑞 COVID 疫苗试验信息？](/content/gnews/13/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [报告：中共推进马克思主义全球化对抗西方领导的国际秩序](/content/gnews/7/README.md)
+### [报告：中共推进马克思主义全球化对抗西方领导的国际秩序](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [房地产公司正越来越多地接受加密货币](/content/gnews/8/README.md)
+### [房地产公司正越来越多地接受加密货币](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国职业安全与健康管理局（OSHA）暂停执行强制疫苗接种令](/content/gnews/9/README.md)
+### [美国职业安全与健康管理局（OSHA）暂停执行强制疫苗接种令](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国在台湾的扩张主义政策是不可接受的](/content/gnews/10/README.md)
+### [中共国在台湾的扩张主义政策是不可接受的](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [卡马拉·哈里斯副总统要被拜登总统解职吗？](/content/gnews/11/README.md)
+### [卡马拉·哈里斯副总统要被拜登总统解职吗？](/content/gnews/18/README.md)
  ` HimalayaRussia`
 
-### [银河快讯: 去年日本海外动漫产业首超国内；油价持续上涨影响纳豆容器](/content/gnews/12/README.md)
+### [银河快讯: 去年日本海外动漫产业首超国内；油价持续上涨影响纳豆容器](/content/gnews/19/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [德国将对未接种疫苗的人实施封锁](/content/gnews/13/README.md)
+### [德国将对未接种疫苗的人实施封锁](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [FDA将不听专家小组的意见，批准辉瑞疫苗加强针](/content/gnews/14/README.md)
+### [FDA将不听专家小组的意见，批准辉瑞疫苗加强针](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国国务院在“危险、鲁莽”的卫星击落后警告俄罗斯](/content/gnews/15/README.md)
+### [美国国务院在“危险、鲁莽”的卫星击落后警告俄罗斯](/content/gnews/22/README.md)
  ` MG FARM`
 
-### [中共军队正在购买什么 （二）](/content/gnews/16/README.md)
+### [中共军队正在购买什么 （二）](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [日本政府将设立5000亿日元基金支持尖端技术研发](/content/gnews/17/README.md)
+### [日本政府将设立5000亿日元基金支持尖端技术研发](/content/gnews/24/README.md)
  ` HimalayaRussia`
 
-### [中共国再次打击加密货币 比特币下跌7%](/content/gnews/18/README.md)
+### [中共国再次打击加密货币 比特币下跌7%](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/19/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“被解雇”的战士：从“前线英雄”到“零不服从”](/content/gnews/20/README.md)
- ` MG FARM`
-
-### [孟宏伟妻子在法国露面指控中共是独裁魔鬼](/content/gnews/21/README.md)
- ` 军迷wilson`
-
-### [中共军队正在购买什么 （一）](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [参议员怒批拜登不提病毒溯源](/content/gnews/23/README.md)
+### [参议员怒批拜登不提病毒溯源](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [FDA计划对成年人批准辉瑞疫苗加强针](/content/gnews/24/README.md)
+### [FDA计划对成年人批准辉瑞疫苗加强针](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [【信仰之声】从血洗示剑的启示谈化解排华危机](/content/gnews/25/README.md)
- ` 纽约香草山MOS03`
-
-### [辉瑞允许仿制商在多国试验新冠药物](/content/gnews/26/README.md)
+### [辉瑞允许仿制商在多国试验新冠药物](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [七哥说—第29期](/content/gnews/27/README.md)
+### [七哥说—第29期](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [GTV新闻访谈简报|2021年11月18日早](/content/gnews/28/README.md)
+### [GTV新闻访谈简报|2021年11月18日早](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
 
-### [习拜会后引爆美国债务危机 剑指台湾](/content/gnews/29/README.md)
+### [11/17/2021 文贵直播：六中全会后，中共虽然会对美国嘴上硬，但实际上将越来越软](/content/gnews/32/README.md)
+ ` 秘密翻译组-北美组`
+
+### [樱花灭共诗——过盘古七星大厦](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/17/2021 文贵直播：六中全会后，中共虽然会对美国嘴上硬，但实际上将越来越软](/content/gnews/30/README.md)
+### [11/17/2021 文贵直播：六中全会的“十大坚持”说明中共已经无人可用、中共正在跟世界脱钩且习要当皇帝](/content/gnews/34/README.md)
  ` 秘密翻译组-北美组`
 
-### [樱花灭共诗——过盘古七星大厦](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [11/17/2021 文贵直播：六中全会的“十大坚持”说明中共已经无人可用、中共正在跟世界脱钩且习要当皇帝](/content/gnews/32/README.md)
+### [11/17/2021 文贵直播：西方流氓政客抵制2022冬奥会的三个原因](/content/gnews/35/README.md)
  ` 秘密翻译组-北美组`
 
-### [11/17/2021 文贵直播：西方流氓政客抵制2022冬奥会的三个原因](/content/gnews/33/README.md)
- ` 秘密翻译组-北美组`
-
-### [中共将对内对外无限强硬并继续放毒对内对外资本共产制](/content/gnews/34/README.md)
+### [中共将对内对外无限强硬并继续放毒对内对外资本共产制](/content/gnews/36/README.md)
  ` NewFOC`
 
-### [中共国内又一餐饮老板自杀身亡](/content/gnews/35/README.md)
- ` GTV新闻访谈`
-
-### [11/12郭文贵直播：新中国联邦将建立国防和全球安保系统保护全世界华人（粤语配音）](/content/gnews/36/README.md)
+### [11/12郭文贵直播：新中国联邦将建立国防和全球安保系统保护全世界华人（粤语配音）](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/12郭文贵直播：今天直播最重要的是号召大家建设新中国联邦、保护华人（粤语配音）](/content/gnews/37/README.md)
+### [11/12郭文贵直播：今天直播最重要的是号召大家建设新中国联邦、保护华人（粤语配音）](/content/gnews/38/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/12郭文贵直播：新中国联邦将建立自己的海军、空军和空间部队（粤语配音）](/content/gnews/38/README.md)
+### [11/12郭文贵直播：新中国联邦将建立自己的海军、空军和空间部队（粤语配音）](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/12郭文贵直播：沉南鹏在美国的政治、经济影响力非同一般（粤语配音）](/content/gnews/39/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美财长警告国家财政破产](/content/gnews/40/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [我最爱听的故事](/content/gnews/41/README.md)
+### [我最爱听的故事](/content/gnews/40/README.md)
  ` 骄子`
 
-### [摇摇摆摆不可恕](/content/gnews/42/README.md)
+### [摇摇摆摆不可恕](/content/gnews/41/README.md)
  ` 骄子`
 
-### [家电巨头海尔的董事长张瑞敏是正常退休吗？](/content/gnews/43/README.md)
+### [家电巨头海尔的董事长张瑞敏是正常退休吗？](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国反垄断局，只反民企不反国企](/content/gnews/44/README.md)
+### [中共国反垄断局，只反民企不反国企](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：永远处在风口浪尖的班农正面临着新的考验](/content/gnews/45/README.md)
+### [秘翻在线：永远处在风口浪尖的班农正面临着新的考验](/content/gnews/44/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [美执业护士用伊维菌素挽救了2400多中共病毒重症患者](/content/gnews/46/README.md)
+### [美执业护士用伊维菌素挽救了2400多中共病毒重症患者](/content/gnews/45/README.md)
  ` 日本东京方舟农场`
 
-### [“朝阳大妈”无异于文化大革命中的红卫兵](/content/gnews/47/README.md)
+### [“朝阳大妈”无异于文化大革命中的红卫兵](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [三家公司靠中共病毒疫苗，每一秒吸血1000美元](/content/gnews/48/README.md)
+### [三家公司靠中共病毒疫苗，每一秒吸血1000美元](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [纽约助理医师成为吹哨人，报告揭露疫苗伤害被禁言](/content/gnews/49/README.md)
+### [纽约助理医师成为吹哨人，报告揭露疫苗伤害被禁言](/content/gnews/48/README.md)
  ` 墨尔本雅典娜农场`
 
-### [娜塔莉：发起班农起诉的罪魁祸首亚当·希夫是中共勾结者](/content/gnews/50/README.md)
+### [娜塔莉：发起班农起诉的罪魁祸首亚当·希夫是中共勾结者](/content/gnews/49/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [杰森·米勒高度评价班农，战斗室节目正在让美国逐渐觉醒](/content/gnews/51/README.md)
+### [杰森·米勒高度评价班农，战斗室节目正在让美国逐渐觉醒](/content/gnews/50/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [莫琳·班农上尉：史蒂夫·班农还没开始战斗，他们惹错人了](/content/gnews/52/README.md)
+### [莫琳·班农上尉：史蒂夫·班农还没开始战斗，他们惹错人了](/content/gnews/51/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [班农：我们不会坐以待毙，我们会主动出击](/content/gnews/53/README.md)
+### [班农：我们不会坐以待毙，我们会主动出击](/content/gnews/52/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [疯狂科学家现在正在开发替代疫苗的mRNA蔬菜和水果](/content/gnews/54/README.md)
+### [疯狂科学家现在正在开发替代疫苗的mRNA蔬菜和水果](/content/gnews/53/README.md)
  ` 走进澳洲`
 
-### [班农：我们将发起进攻，捍卫你们所有人的权利](/content/gnews/55/README.md)
+### [班农：我们将发起进攻，捍卫你们所有人的权利](/content/gnews/54/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [斯蒂芬·K·班农敦促在华盛顿特区联邦调查局现场办公室外的支持者要关注“信号，而不是噪音”](/content/gnews/56/README.md)
+### [斯蒂芬·K·班农敦促在华盛顿特区联邦调查局现场办公室外的支持者要关注“信号，而不是噪音”](/content/gnews/55/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文贵爆料 11.17: CCP是全世界邪恶势力的大总部](/content/gnews/57/README.md)
+### [文贵爆料 11.17: CCP是全世界邪恶势力的大总部](/content/gnews/56/README.md)
  ` 秘密翻译组-原创组`
 
-### [文贵爆料 11.17 : 喜币的神话才刚刚开始](/content/gnews/58/README.md)
+### [文贵爆料 11.17 : 喜币的神话才刚刚开始](/content/gnews/57/README.md)
  ` 秘密翻译组-原创组`
+
+### [超万名澳大利亚人提出疫苗伤害索赔](/content/gnews/58/README.md)
+ ` GTV新闻访谈`
 
 ### [班农的律师：起诉委员会违反法律下的平等正义原则](/content/gnews/59/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

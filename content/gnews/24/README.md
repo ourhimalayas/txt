@@ -2,32 +2,57 @@
 ---
 
 
-## FDA计划对成年人批准辉瑞疫苗加强针
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1675124/)
+## 日本政府将设立5000亿日元基金支持尖端技术研发
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1675253/)
 
-作者：MOS – 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月17日，美国媒体消息称，FDA可能最早于本周四批准对成年人使用辉瑞公司的新冠疫苗加强针。与此同时，CDC的疫苗独立专家委员会也预定于周五召开会议，讨论新冠疫苗的安全性和有效性。报道称，在通过上述两个机构的批准后，美国民众或将面临继续接种辉瑞新冠疫苗加强针的境况。
+俄罗斯莫斯科喀秋莎农场 奥法
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-12.jpeg)
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/J-3.jpg)mysteriousuniverse.org
 
-对此，医学专家警告，新冠疫苗及其加强针都需要更多的时间和数据来进行检验。相关医生提到，目前并没有足够的结果能够证明，新冠疫苗的好处大于其所带来的风险。同时，监管机构无法确认，新冠疫苗所带来的心肌炎等副作用会否因接种了疫苗第三针而加重。
+```
+据读卖新闻独家报道，日本政府在11月19日的经济对策决议中将包含设立5000亿日元(相当于43.84亿美元）的经济保障基金。设立这笔基金的目的是为了加强经济安全，支持重要尖端技术的研发和实际应用。
+```
 
-参考链接：[FDA plans to authorize Pfizer vaccine booster shots for all adults](https://justthenews.com/politics-policy/coronavirus/fda-plans-authorize-pfizer-vaccine-booster-shots-all-adults)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：文特
-编辑：文特
-校正/发稿：谐趣园
+```
+据有关人士介绍，人工智能（AI）、量子技术和太空开发都在考虑之中。这些领域是日本在未来保持国际竞争力所必需的。政府计划在今年晚些时候建立一个相关的智库，以支持大学等研究机构。
+```
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+```
+经济安全具有保护和维护对于国家利益不可或缺的经济领域的含义。被称为“产业之米”的半导体也是一个重要领域，目前该国60%以上的需求依赖于台湾和中共国的进口。政府的目标是扩大国内生产，并将资助台积电（TSMC）在熊本县建设工厂的计划。
+```
+
+
+
+```
+笔者观点：
+```
+
+
+
+```
+众所周知，半导体在所有的电子产品中是不可缺少的原材料之一。虽然文章把“半导体生产”放在最后，但是发展人工智能、量子技术、太空开发的基石是半导体。即使通信技术有了飞跃式的发展，如果没有对应的半导体元件的支持，下一代的通信环境是搭建不起来的。文章提到日本将帮助台积电在熊本县建立工厂，可以看出日本已经意识到过度依赖进口将导致芯片断供的可能。尤其是在中共可能攻打台湾和闭关锁国的情况下，世界芯片制造产业将遭受重大打击，日本此时决定把芯片制造产业移回本土无疑是明智之举。
+```
+
+
+
+```
+另外，我们可以从这笔基金支持的行业领域看出下一个时代科技的发展方向。无论是个人或者企业如果能抓住这个脉络，相信在未来的发展中一定可以找到自己的位置，分得一杯羹。相信新中国联邦管理下的基金也会涉及这些领域。如果战友个人想创业或者投资，和这些领域相关的行业都是值得考虑的。
+```
+
+
+
+```
+原文链接：
+```
+
+
+[https://www.yomiuri.co.jp/pluralphoto/20211118-OYT1I50016/](https://www.yomiuri.co.jp/pluralphoto/20211118-OYT1I50016/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
