@@ -15,128 +15,128 @@
 
 ---
 
-### [参议员怒批拜登不提病毒溯源](/content/gnews/1/README.md)
- ` GTV新闻访谈`
+### [孟宏伟妻子在法国露面指控中共是独裁魔鬼](/content/gnews/1/README.md)
+ ` 军迷wilson`
 
-### [FDA计划对成年人批准辉瑞疫苗加强针](/content/gnews/2/README.md)
- ` GTV新闻访谈`
-
-### [【信仰之声】从血洗示剑的启示谈化解排华危机](/content/gnews/3/README.md)
- ` 纽约香草山MOS03`
-
-### [中共全面推进数字人民币普及，第三方支付和发工资成重要场景](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [辉瑞允许仿制商在多国试验新冠药物](/content/gnews/5/README.md)
- ` GTV新闻访谈`
-
-### [七哥说—第29期](/content/gnews/6/README.md)
+### [中共军队正在购买什么 （一）](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [GTV新闻访谈简报|2021年11月18日早](/content/gnews/7/README.md)
- ` 纽约香草山MOS01`
-
-### [习拜会后引爆美国债务危机 剑指台湾](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [战友有了喜币，勿忘灭共使命](/content/gnews/9/README.md)
- ` 波士顿五月花农场`
-
-### [11/17/2021 文贵直播：六中全会后，中共虽然会对美国嘴上硬，但实际上将越来越软](/content/gnews/10/README.md)
- ` 秘密翻译组-北美组`
-
-### [墙内要闻汇编 11月18日](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [樱花灭共诗——登阁晚望寄郭文贵先生](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [11/18/21 香港快讯【首宗国安法案】罪成判囚 9 年唐英杰提上诉 下周五作指示聆讯](/content/gnews/13/README.md)
- ` 英喜-粵語組`
-
-### [樱花灭共诗——过盘古七星大厦](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [习太阳将会把中共带向何方？](/content/gnews/15/README.md)
- ` 波士顿五月花农场`
-
-### [强化军事同盟针对中共！日本拟增加美军驻留经费](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本政府将一体化推进行政体制数字化改革](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [11/17/2021 文贵直播：六中全会的“十大坚持”说明中共已经无人可用、中共正在跟世界脱钩且习要当皇帝](/content/gnews/18/README.md)
- ` 秘密翻译组-北美组`
-
-### [11/17/2021 文贵直播：西方流氓政客抵制2022冬奥会的三个原因](/content/gnews/19/README.md)
- ` 秘密翻译组-北美组`
-
-### [中共将对内对外无限强硬并继续放毒对内对外资本共产制](/content/gnews/20/README.md)
- ` NewFOC`
-
-### [中共国内又一餐饮老板自杀身亡](/content/gnews/21/README.md)
+### [参议员怒批拜登不提病毒溯源](/content/gnews/3/README.md)
  ` GTV新闻访谈`
 
-### [扎扎实实做假作秀！中共“二十大”代表选举启动](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美劳工部暂停实施拜登政府针对私企的疫苗强制令](/content/gnews/23/README.md)
- ` 日本东京方舟农场`
-
-### [11/12郭文贵直播：新中国联邦将建立国防和全球安保系统保护全世界华人（粤语配音）](/content/gnews/24/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [11/12郭文贵直播：今天直播最重要的是号召大家建设新中国联邦、保护华人（粤语配音）](/content/gnews/25/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [11/12郭文贵直播：新中国联邦将建立自己的海军、空军和空间部队（粤语配音）](/content/gnews/26/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [11/12郭文贵直播：沉南鹏在美国的政治、经济影响力非同一般（粤语配音）](/content/gnews/27/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [11/11郭文贵直播：美国某军工集团希望新中国联邦加入（粤语配音）](/content/gnews/28/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [11/14郭文贵直播：查抄马云新加坡秘密办公室足以让他牢底坐穿（粤语配音）](/content/gnews/29/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [澳洲政府保护63个涉及国家安全的科技项目](/content/gnews/30/README.md)
+### [FDA计划对成年人批准辉瑞疫苗加强针](/content/gnews/4/README.md)
  ` GTV新闻访谈`
 
-### [美财长警告国家财政破产](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [德国卫生部长强调需降低对中共的依赖](/content/gnews/32/README.md)
- ` GTV新闻访谈`
-
-### [活着的意义](/content/gnews/33/README.md)
+### [【信仰之声】从血洗示剑的启示谈化解排华危机](/content/gnews/5/README.md)
  ` 纽约香草山MOS03`
 
-### [拜登表示：是否独立取决于台湾自己](/content/gnews/34/README.md)
- ` GTV新闻访谈`
-
-### [拜习会的真相和内容](/content/gnews/35/README.md)
- ` GTV新闻访谈`
-
-### [辉瑞承认要对儿童新冠疫苗心肌炎风险做更多研究](/content/gnews/36/README.md)
- ` 墨尔本雅典娜农场`
-
-### [我最爱听的故事](/content/gnews/37/README.md)
- ` 骄子`
-
-### [无耻缺德！中共把老年人当作产业来经营](/content/gnews/38/README.md)
+### [中共全面推进数字人民币普及，第三方支付和发工资成重要场景](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC大中华时事：拜登称台湾的未来由台湾人决定](/content/gnews/39/README.md)
+### [辉瑞允许仿制商在多国试验新冠药物](/content/gnews/7/README.md)
+ ` GTV新闻访谈`
+
+### [七哥说—第29期](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [GTV新闻访谈简报|2021年11月18日早](/content/gnews/9/README.md)
+ ` 纽约香草山MOS01`
+
+### [习拜会后引爆美国债务危机 剑指台湾](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [战友有了喜币，勿忘灭共使命](/content/gnews/11/README.md)
+ ` 波士顿五月花农场`
+
+### [11/17/2021 文贵直播：六中全会后，中共虽然会对美国嘴上硬，但实际上将越来越软](/content/gnews/12/README.md)
+ ` 秘密翻译组-北美组`
+
+### [墙内要闻汇编 11月18日](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花灭共诗——登阁晚望寄郭文贵先生](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [11/18/21 香港快讯【首宗国安法案】罪成判囚 9 年唐英杰提上诉 下周五作指示聆讯](/content/gnews/15/README.md)
+ ` 英喜-粵語組`
+
+### [樱花灭共诗——过盘古七星大厦](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [习太阳将会把中共带向何方？](/content/gnews/17/README.md)
+ ` 波士顿五月花农场`
+
+### [强化军事同盟针对中共！日本拟增加美军驻留经费](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本政府将一体化推进行政体制数字化改革](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [11/17/2021 文贵直播：六中全会的“十大坚持”说明中共已经无人可用、中共正在跟世界脱钩且习要当皇帝](/content/gnews/20/README.md)
+ ` 秘密翻译组-北美组`
+
+### [11/17/2021 文贵直播：西方流氓政客抵制2022冬奥会的三个原因](/content/gnews/21/README.md)
+ ` 秘密翻译组-北美组`
+
+### [中共将对内对外无限强硬并继续放毒对内对外资本共产制](/content/gnews/22/README.md)
+ ` NewFOC`
+
+### [中共国内又一餐饮老板自杀身亡](/content/gnews/23/README.md)
+ ` GTV新闻访谈`
+
+### [扎扎实实做假作秀！中共“二十大”代表选举启动](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美劳工部暂停实施拜登政府针对私企的疫苗强制令](/content/gnews/25/README.md)
+ ` 日本东京方舟农场`
+
+### [11/12郭文贵直播：新中国联邦将建立国防和全球安保系统保护全世界华人（粤语配音）](/content/gnews/26/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [11/12郭文贵直播：今天直播最重要的是号召大家建设新中国联邦、保护华人（粤语配音）](/content/gnews/27/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [11/12郭文贵直播：新中国联邦将建立自己的海军、空军和空间部队（粤语配音）](/content/gnews/28/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [11/12郭文贵直播：沉南鹏在美国的政治、经济影响力非同一般（粤语配音）](/content/gnews/29/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [11/11郭文贵直播：美国某军工集团希望新中国联邦加入（粤语配音）](/content/gnews/30/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [澳洲政府保护63个涉及国家安全的科技项目](/content/gnews/31/README.md)
+ ` GTV新闻访谈`
+
+### [美财长警告国家财政破产](/content/gnews/32/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [德国卫生部长强调需降低对中共的依赖](/content/gnews/33/README.md)
+ ` GTV新闻访谈`
+
+### [活着的意义](/content/gnews/34/README.md)
+ ` 纽约香草山MOS03`
+
+### [拜登表示：是否独立取决于台湾自己](/content/gnews/35/README.md)
+ ` GTV新闻访谈`
+
+### [拜习会的真相和内容](/content/gnews/36/README.md)
+ ` GTV新闻访谈`
+
+### [辉瑞承认要对儿童新冠疫苗心肌炎风险做更多研究](/content/gnews/37/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [我最爱听的故事](/content/gnews/38/README.md)
+ ` 骄子`
+
+### [无耻缺德！中共把老年人当作产业来经营](/content/gnews/39/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [DC大中华时事：拜登称台湾的未来由台湾人决定](/content/gnews/40/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：习拜会公关成功 中共女婿秦刚展望中美关系](/content/gnews/40/README.md)
+### [秘翻在线：习拜会公关成功 中共女婿秦刚展望中美关系](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [美参议员恩斯特：乔拜登没有了骨气](/content/gnews/41/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [摇摇摆摆不可恕](/content/gnews/42/README.md)
  ` 骄子`

@@ -2,32 +2,24 @@
 ---
 
 
-## 德国卫生部长强调需降低对中共的依赖
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1674608/)
+## 美财长警告国家财政破产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1674632/)
 
-作者：MOS 柳是多水土透
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月17日，据柏林消息提及，德国代理卫生部长斯班表示，德国应开设单独的经济峰会，用以降低德国对中共的依赖程度。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-18-下午9.42.25.png)圖片來源：2021年11月12日，德國衛生部長延斯·施潘在新聞發布會上就COVID-19疫情發表講話。（TOBIAS SCHWARZ/AFP via Getty Images）
-斯班提到，由于新冠疫情，自2020年以来，德国对中共的经济依赖逐步加深，尤其在医用口罩及药物原材料方面，这种情况令人担忧，同时也造成了严重的后果。斯班认为，降低德国对中共的依赖是十分必要的，且这将会成为德国未来10年内的主要挑战。
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-99.jpg)
+（图片来源于本文链接）
 
-斯班补充，德国需要加大力度开发除中共以外的出口市场，并且与其他国家及地区签订更为广泛的贸易合同，从而降低对中共的依赖。另有其他政党的相关人士指出，德国应该提高对中共进口的贸易壁垒，以此阻止中共长久以来的倾销手段，以及惩罚中共对环境的污染和对人权的侵犯。
+美国财政部长耶伦警告说，联邦政府有可能会在12月15日沦入财政违约。在致国会众议院议长佩洛西（NancyPelosi）的一封信中，耶伦呼吁提高或暂停债务上限，以确保“美国的信心和信誉”。耶伦财长视12月15日为最后期限。她在信中写道：“届时，财政部将无充足资源为美国政府的继续运作提供资金。”此前，耶伦财长曾预期12月3日是最后期限。
 
-参考链接：[Germany must reduce its dependence on China – health minister](https://www.reuters.com/world/china/germany-must-reduce-its-dependence-china-health-minister-2021-11-17/)
+今年10 月，美国联邦政府已濒临违约。经由国会通过将债务上限提高4800亿美元，暂时得以避免。数月来，拜登总统的民主党人和在野的共和党人之间有关债务限额的争议有增无减。耶伦这一对财政违约的最新警告正值拜登总统庞大的社会与气候保护计划——“重建得更好”——处于艰难谈判之时。共和党人对这1.85万亿美元的一揽子计划说不。该一揽子计划涉及扩大儿童保育、老年护理和法定医疗保险、家庭减税，以及用于气候保护的5550亿美元。若各方无法就债务上限达成一致，美国的政府部门和相关机构便会出现部分停摆。此现象在美国近期历史上曾发生数次。届时，大量政府机构将不得不关门，雇员被迫休假；政府将暂时不能借新贷，亦无力偿债。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+信息来源：
 
-总编：文徬
-编辑：Irene木木
-校正/发稿：呼吸的雾霾（文小呼吸）
+[美财长警告国家财政破产](https://www.dw.com/zh/%E7%BE%8E%E8%B4%A2%E9%95%BF%E8%AD%A6%E5%91%8A%E5%9B%BD%E5%AE%B6%E8%B4%A2%E6%94%BF%E7%A0%B4%E4%BA%A7/a-59845527)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
