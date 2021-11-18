@@ -2,45 +2,49 @@
 ---
 
 
-## 拥有喜币的原因是灭共，在躺平的那一刻起就会失去喜币
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1673833/)
+## 面临通胀威胁，澳洲政府不急于推进移民步伐
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1673841/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image8-7-1536x864_副本.jpg)
-据[2021年11月17日 文贵大直播：再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向](https://gtv.org/video/id=6194fda8e7e7703792363972)时间点30：24——
+翻译：Lish
+编辑：文泓
+![Image](https://media.discordapp.net/attachments/906139544930361395/910755759569133568/5823.jpg?width=656&amp;height=369)图片来源：YAXIS
+目前，莫里森政府正在抵制商界和其他领域关于从现在到联邦大选期间加快移民接收的呼吁，因为他们担心此举会阻碍工资增长。
 
-**郭文贵先生：**我们有很多的话题，但是在话题打开之前，我这几天的感受就是我预想到的很多事情都到来了，不好的也来了，特别是很多战友看到喜币上升的时候，很多战友都开始躺平了，这也是我预料之中的，就是喜币还没涨到你想要那样的大家都躺平了，就是能感觉到我们各农场群很多事情都没人做了，这是个很可怕的事情。
+澳洲大选将于明年3月至5月间举行，总理斯科特·莫里森正在寻求将生活成本作为大选的一个关键话题。政府认为，为弥补大流行年间带来的损失而放开移民的闸门将压制（本地人）工资增长。政府也要平衡控制新冠疫情对经济的压力。
 
-喜币上市还不到三周的时间，创造了可以说人间的奇迹，刚才你看到那个迈阿密市长那个视频，你想想迈阿密市长经常在嘴里说出什么话，说联邦过度印刷，然后就是它币就不值钱了嘛，他在那还要求整个迈阿密市的人去挖矿，然后政府分点成，现在成了最大创新。
+澳大利亚统计局周三公布的数据显示，尽管工资在一年内增长了2.2%，但与同期总体通胀率增长3%相比，这相当于实际降低了0.8%。
 
-据说下一届的美国参议员里面会有十几个都是有虚拟货币背景的人，那你说一个迈阿密的市长都知道这事，人家都知道虚拟货币现在是美国的未来，美国的美元都不行，就甭提人民币了。
+莫里森先生上周说，技术移民和国际学生将在圣诞节前开始返回已经开放边界的各州。但消息人士称，除了正常调整外，政府没有计划在短期内加快更广泛的移民进程。
 
-咱战友这币还没拿到手里面了，现在就开始躺平了，这个人呐，穷绝对不是穷在哪里，穷就穷在脑子上，穷就穷在你的心上，我们都是草根出身，所以说今天一开始的时候，希望兄弟姐妹们，你躺平的这一刻起，你有这种对新中国联邦、对爆料革命的使命完全放弃那一刻起，你就会失去一切。
+在整个大流行病期间，海外净移民人数为负数，导致劳动力短缺，并助长了商业团体和新南威尔士州政府提高移民人数以弥补损失的呼吁。
 
-你拥有的喜币的原因是因为你要灭共，共产党还在那儿，你能躺平吗？它跟币升多少都没关系，你躺平那一刻起你就会失去喜币，这是非常不好的。
+新州州长多米尼克·佩罗特上个月被他的部门告知，“一个类似于澳大利亚二战后的雄心勃勃的国家移民计划，将确保澳洲从技能、投资和人口增长中受益”。
 
-（以下暂略）
+周四，莫里森先生将公布一项幕后测算，政府希望从现在到圣诞节期间可以创造28万个工作岗位，这些岗位可以由澳大利亚人承接。
 
-撰稿：喜马拉雅的肉夹馍；
+这个数字是基于这样的计算：到去年12月，在联邦完全摆脱封锁后，726,100个工作岗位得到了恢复，占封锁期间损失总数的84%。
 
-审核：喜马拉雅的馍夹肉；
+据政府计算，今年东海岸大部分地区进入持续封锁状态时，损失的工作岗位是84%相当于280,308个。
 
-校对：Maarago
+根据去年的情况，它希望在圣诞节前能出现更多的就业机会。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+这种做法忽略了一个事实，即在圣诞节前创造了大约20万个工作岗位，以满足消费者需求的增加。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+莫里森先生说：“澳大利亚正在安全地重新开放，为了确保经济复苏，我们希望看到更多的澳大利亚人在这个圣诞节和夏天从事工作。有数十万个工作机会，我们想要你。我们已经看到了封锁后可以实现的就业增长，随着更少的限制和封锁的威胁逐渐消失，随着更多的人在这个节日期间外出购物、旅游、吃饭和享受生活，对企业来说，这是一个前所未有的好时机。”
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+尽管政府不排除采取更长期的方法来解决移民挑战，但在大选之前，政府并没有采取行动的欲望。一国党等右翼政党表示反对，工资增长平缓一直是一个政治问题。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+澳大利亚统计局的数据显示，9月份工资增长0.6%，全年增长2.2%，与市场共识一致，但仍远低于澳大利亚储备银行寻求的3%以上的增长。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+新闻链接：[Australia inflation: government won’t rush to boost migration (afr.com)](https://www.afr.com/politics/federal/government-won-t-rush-to-boost-migration-20211117-p599kq)
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+***发布：Candy***
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+**更多资讯，请关注：**[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)[Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
