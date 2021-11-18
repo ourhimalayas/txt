@@ -2,36 +2,45 @@
 ---
 
 
-## 中共利用海外空壳公司获取意大利军用无人机技术
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1673798/)
+## 拥有喜币的原因是灭共，在躺平的那一刻起就会失去喜币
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1673833/)
 
-#### 作者：日本东京方舟农场 子辰
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image8-7-1536x864_副本.jpg)
+据[2021年11月17日 文贵大直播：再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向](https://gtv.org/video/id=6194fda8e7e7703792363972)时间点30：24——
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/A7DAC006-95E7-4878-AD50-11C91672A40B.jpeg)（图片来自路透社）
+**郭文贵先生：**我们有很多的话题，但是在话题打开之前，我这几天的感受就是我预想到的很多事情都到来了，不好的也来了，特别是很多战友看到喜币上升的时候，很多战友都开始躺平了，这也是我预料之中的，就是喜币还没涨到你想要那样的大家都躺平了，就是能感觉到我们各农场群很多事情都没人做了，这是个很可怕的事情。
 
-据《美国之音》11月17日报道，意大利警方经过调查发现，中共两家国有企业利用一家海外空壳公司，隐瞒真相躲避审查，控制了意大利的一家军用无人机生产商。此事暴露出欧洲投资审查体系的脆弱性，以及中共为获取欧洲敏感技术的精心布局。
+喜币上市还不到三周的时间，创造了可以说人间的奇迹，刚才你看到那个迈阿密市长那个视频，你想想迈阿密市长经常在嘴里说出什么话，说联邦过度印刷，然后就是它币就不值钱了嘛，他在那还要求整个迈阿密市的人去挖矿，然后政府分点成，现在成了最大创新。
 
-据《华尔街日报》近日报道，意大利警方调查发现，马尔斯（香港）信息科技公司（Mars HK）在2018年7月，以400万欧元购买了意大利军用无人机厂商“阿尔卑飞机公司”（Alpi Aviation）75%的股份。随后又跟进投资了150万欧元。警方之后调查发现，该公司是在此收购行动的几个月前，刚刚在香港注册的一家公司。
+据说下一届的美国参议员里面会有十几个都是有虚拟货币背景的人，那你说一个迈阿密的市长都知道这事，人家都知道虚拟货币现在是美国的未来，美国的美元都不行，就甭提人民币了。
 
-意大利警方追踪“马尔斯”的持有人，发现是两家中共当局控制的公司——央企铁路巨头“中国中车”旗下的中车资本，和无锡市政府旗下的一家投资集团。至此，警方判定“马尔斯”是空壳公司，成立的目的是为将阿尔卑飞机公司纳入中共政府的控制之下。
+咱战友这币还没拿到手里面了，现在就开始躺平了，这个人呐，穷绝对不是穷在哪里，穷就穷在脑子上，穷就穷在你的心上，我们都是草根出身，所以说今天一开始的时候，希望兄弟姐妹们，你躺平的这一刻起，你有这种对新中国联邦、对爆料革命的使命完全放弃那一刻起，你就会失去一切。
 
-阿尔卑飞机公司位于意大利北部城镇波德诺（Pordenone），主要生产轻飞机和被称为Strix的迷你无人机。Strix可装于背包，由一名操作人员快速部署，甚至在夜间也能进行侦察任务，曾被驻阿富汗的意大利空军使用。
+你拥有的喜币的原因是因为你要灭共，共产党还在那儿，你能躺平吗？它跟币升多少都没关系，你躺平那一刻起你就会失去喜币，这是非常不好的。
 
-负责调查的意大利金融警察负责人表示，这是对技术的掠夺性投资，而这类投资在意大利是被禁止的。
+（以下暂略）
 
-分析人士认为，对“阿尔卑”的收购符合中共国企在海外的行事模式。它们通常是以民营空壳公司为掩护，获取掌握特殊技术企业的控制权，然后再将该公司的技术与智慧财产转移至中共国。
+撰稿：喜马拉雅的肉夹馍；
 
-《华尔街日报》的报道援引多年来追踪中资海外收购的荷兰数据咨询机构Datenna的执行长范·埃滕（Jaap van Etten）的话指出，“这是教科书级的案例，且是由中共政府推动的国家战略”。
+审核：喜马拉雅的馍夹肉；
 
-*新闻链接： [https://www.voachinese.com/a/China-covertly-purchases-Italian-avionics-firm-ALPI-Aviation-20211116/6315363.html](https://www.voachinese.com/a/China-covertly-purchases-Italian-avionics-firm-ALPI-Aviation-20211116/6315363.html)*
+校对：Maarago
 
-* * *
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-*素材采编：子辰*
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-*编辑：青衣青青*
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-*发布：miumiu*
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
