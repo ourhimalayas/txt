@@ -2,75 +2,94 @@
 ---
 
 
-## 2021年11月18日 澳喜要闻摘要
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1674296/)
+## 中共国经济一塌糊涂，并将引起经济崩溃
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1674322/)
 
-撰稿：澳喜要闻小组
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-10-1.jpg)
-**１　****OSHA****暂停实施和执行拜登政府疫苗授权**
+[https://gtv.org/video/id=6195fd621827025081066a4d](https://gtv.org/video/id=6195fd621827025081066a4d)
 
-美国职业安全与健康管理局OSHA宣布，他们将暂停实施和执行拜登政府对拥有100名或以上员工的公司的疫苗授权，以待诉讼。
+**郭文贵
+Miles Guo**
 
-在本周早些时候，美国第五巡回上诉法院的法官小组抵制了强制接种疫苗政策，称其为“一刀切的大锤”，会颠覆宪法和个人自由。OSHA因此被迫暂停强推中共病毒疫苗计划，并在其官网上表示，虽然OSHA对其在紧急情况下保护工人的权力仍有信心，但OSHA已经暂停了与实施和执行疫苗授权的相关活动，等待诉讼的未来发展。
+恒大完了就融创、合生创展、富力，然后就是王健林
+After Evergrande failed, then will be Sunac, Hopson Development, R&F, then will be Wang Jianlin（Wanda）
 
-本周二，经过抽签后，接下来对拜登政府疫苗授权的挑战，将分配给倾向于保守派的美国第六巡回上诉法院。
+中国现在你知道中国是47家大银行，近40家银行的股票跌破了净资产
+Now you know that China’s nearly 40 of the 47 major banks’ stocks have fallen below their net assets
 
-[https://www.theepochtimes.com/osha-suspends-enforcement-of-vaccine-mandate-after-court-block\_4108842.html?utm\_source=partner&utm\_campaign=imctgm01](https://www.theepochtimes.com/osha-suspends-enforcement-of-vaccine-mandate-after-court-block_4108842.html?utm_source=partner&amp;utm_campaign=imctgm01)
+中国将近70家国家级金融机构，现在几乎是100%全赔钱
+Nearly 70 national financial institutions in China now almost 100% losing money
 
-[https://www.osha.gov/coronavirus/ets2](https://www.osha.gov/coronavirus/ets2)
+保险公司兑付率，兑现率不超过10%，百分之八十几违约
+The redemption rate of insurance companies does not exceed 10%, default rate of more than 80%
 
-**２　超过****1****万名澳大利亚人已经向政府提出了中共病毒疫苗伤害索赔**
+这不是要破产的问题了，这不是一个所谓的共享财富的问题
+This is not only a question of going bankrupt, it is not a so-called shared wealth question
 
-《悉尼先驱晨报 》11月16日报道，目前已经有超过1万名澳大利亚人，向政府提出了中共病毒疫苗伤害索赔。
+是没有人能撑下去的，今天美国的房地产，你看没到2004年到2008年的时候
+No one can hold on, today American’s real estate situation hasn’t be there yet, like from 2004 to 2008
 
-报道称，澳大利亚服务局（Services Australia）正在建立一个在线门户网站，将于下个月推出，对于因中共病毒疫苗而受伤和失去收入的人，提出的超过 5000 美元的无上限索赔，医疗费用和工资损失的赔偿将由政府支付。
+美国这个房产的疯狂简直是不可思议的
+The madness of this American’s real estate is simply unbelievable
 
-超过2万美元的索赔，包括死亡索赔，将由一个独立的法律专家小组评估，并根据他们的建议支付赔偿。
+美国全世界欧洲没有人工作，跟你家装修、装水管
+No one works in the United States, the world, or Europe, remodel or maintenance
 
-目前澳大利亚政府没有透露，需要什么样的证据标准，来证明该人的伤害是由疫苗造成的。
+它维护这个，这个它需要人力的，没人干活
+It needs manpower to maintain the real estate, and no one does it
 
-据悉，澳大利亚的治疗用品管理局(The Therapeutic Goods Administration)，记录了78,880起与接种中共病毒疫苗有关的不良事件。
+那么现在中美之间发生什么问题，供应链彻底崩塌
+So what is the problem between China and the United States, that is the supply chain has completely broke
 
-该疫苗赔偿计划涵盖的不良反应，将包括心脏疾病心肌炎和心包炎，血栓性疾病血小板减少症，罕见的神经系统疾病吉兰-巴雷综合症和免疫性血小板减少症。
+美国在这种情况下就希望中共你一定要给我供应链
+In this case, the U.S. hopes that the CCP must maintain the supply chain
 
-官方数据显示，自9月联邦卫生部门网站开放登记以来，已有超过1万人登记了他们的索赔意向，这意味着如果每项索赔获得批准，那么政府将至少花费5000万美元。这也意味着澳大利亚的纳税人正面临着为大量的中共病毒疫苗伤害支付的高额账单。
+就是奴隶，而且美国已经对中国开启签证
+It’s a slave(Chinese people), and the U.S. has opened visa application to China
 
-[https://www.smh.com.au/politics/federal/more-than-10-000-australians-have-filed-coronavirus-vaccine-injury-claims-20211115-p598yy.html](https://www.smh.com.au/politics/federal/more-than-10-000-australians-have-filed-coronavirus-vaccine-injury-claims-20211115-p598yy.html)
+第二，我现在要让你开始保证我的基本的民意，老百姓的生活
+Second, (the Biden administration) now hopes that Xi can guarantee basic living goods to the American people
 
-**３　辉瑞承认其临床试验时间太短，无法检测疫苗与心肌炎的潜在风险**
+便宜点的内裤，便宜的旅游鞋还得给我
+i.e. the cheap underwear, low-cost travel shoes need to resume in market
 
-根据 INFOWARS 2021年11月15日的一份报告，制药巨头辉瑞承认其临床试验时间太短，无法确定已接种 Covid-19 疫苗的儿童的长期心肌炎风险，而且样本量太小，无法检测与疫苗接种相关的心肌炎的任何潜在风险。
+第三，你千万房地产你别一下倒，要慢慢倒
+Third, (the Biden administration) demands that the real estate business must avoid quickly collapsing, slowly collapsing (is acceptable)
 
-该信息出现在食品和药物管理局 (FDA) 咨询委员会简报中，很难在FDA网站上找到。
+第四，最重要的咱俩要合作，咱得忽悠老百姓
+Forth, the most important thing is that we have to cooperate, we need to fool the Laobaixing
 
-辉瑞在结论中表示，“将在 5 项授权的安全性研究中研究 COVID-19 疫苗在 5 至 12 岁参与者中的长期安全性，包括一项为期 5 年的随访研究，以评估疫苗接种后心肌炎/心包炎的长期后遗症。”
+明天无限美好，继续画大饼
+Tomorrow is infinitely beautiful, continue to make a empty promise
 
-FDA在10月26日针对5-11岁儿童辉瑞虚拟紧急授权的会议简报中明确写明在针对这一年龄段的疫苗中加入氨丁三醇（Tris）缓冲液，氨丁三醇经常出现在治疗心脏骤停的药物中。
+一切的一切都为了今年的中期选举，就是民主党绝对不能输
+Everything is for next year’s midterm elections, it means that the Democratic Party must not lose
 
-在全球范围内，关键词搜索“心肌炎”从5月份开始飙升；关键词“猝死”的搜索从10月份开始飙升。
+弗吉尼亚几乎废掉了拜登总统的一半以上的能力
+Virginia (election lost) almost abolished more than half of President Biden’s capabilities
 
-**４　《新英格兰医学杂志》发现疫苗对****COVID****病毒的免疫力在两个月后就消失了**
+你在这个中期选举完几乎就完了
+(The Biden administration) most likely would be over after this mid-term election
 
-上周五，安东尼.福奇博士承认中共病毒（COVID-19）疫苗没有起到广告宣传的作用，接种疫苗的人今天处于极大的危险之中。但是实际情况要比这更糟。
+* * *
 
-最近发表在《新英格兰医学杂志》上对以色列进行的一项研究发现，在接受第二剂疫苗后的几个月，所有年龄组对SARS-CoV-2的delta变体的免疫力都会减弱。
+Date:11/15/2021
+原视频标题: 中共国经济一塌糊涂，并将引起经济崩溃
+Communist China’s economy is in a mess and will cause economic collapse
+原视频日期：2021/11/12
+原视频链接 [https://twitter.com/se1y7cblljselva/status/1459528903681507328?s=24](https://twitter.com/se1y7cblljselva/status/1459528903681507328?s=24)
+任务编号：2874
+视频时间段 : 0:00-2:00
+英听校： 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-科学家们对比了60岁以上、40-59岁以及16-39岁三组人群，发现不论哪个年龄组，首次符合条件接种人的被中共病毒的感染率均高于两个月后的接种者。这些发现表明，在接受第二剂疫苗后的几个月，所有年龄组对SARS-CoV-2的delta变体的免疫力都会减弱。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-
-
-> [SHOCKING New England Journal of Medicine Study: Vaccine Immunity Wanes Against COVID Virus After ONLY 2 MONTHS](https://www.thegatewaypundit.com/2021/11/shocking-new-england-journal-medicine-study-vaccine-immunity-wanes-covid-virus-2-months/)
-
-
-
-５　**USCC****称既自信又恐惧的中共未来可能会更加强势**
-
-11月17日，美中经济与安全审查委员会USCC公布一份551页的最新年度报告。报告称，现在的中共“既自信又恐惧”。自信于政治制度的优越性，恐惧于政权随时被颠覆。在此基础上，中共的态度在未来会更加强势。
-
-USCC主席卡罗琳•巴塞洛缪（Carolyn Bartholomew）在报告发布会的开场白中说，中共国领导人将改善关系的责任完全放在了对方的身上，中共声称不能妥协，要求得到美国、澳大利亚和其他国家的尊重。在台湾问题上，该报告特别指出，鉴于中共领导人习近平对风险的承受度较高，同时他又希望留下永久的政治遗产，所以中共有可能会不顾美国的警告袭击台湾。
-
-发布：五饼二鱼
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/016.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

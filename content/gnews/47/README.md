@@ -2,10 +2,10 @@
 ---
 
 
-## 莫琳·班农上尉：史蒂夫·班农还没开始战斗，他们惹错人了
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1672924/)
+## 杰森·米勒高度评价班农，战斗室节目正在让美国逐渐觉醒
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1672940/)
 
-11/15/2021 莫琳·班农上尉：史蒂芬·K·班农还没有开始战斗，而且他们惹错人了
+11/16/2021 杰森·米勒高度评价了班农和战斗室节目，认为正是班农节目的巨大影响力正在让美国逐渐觉醒
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

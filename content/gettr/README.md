@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/18/2021 12:09 PM (UTC)`
+
+An orthopedic surgeon from Wisconsin described the serious side effects after his first dose of Moderna COVID vaccine, and he urged the CDC, FDA, NIH and all other involved governmental agencies to listen to dangers, and to maintain open and transparent on COVID vaccine data.<br/><br/>一位来自威斯康星州的骨科医生讲述了他接种第一剂莫德纳新冠疫苗之后的严重副作用，并敦促CDC、FDA、NIH以及其他相关政府机构，倾听存在的危险，保持对于新冠疫苗数据的公开和透明。
+![img](https://media.gettr.com/group48/origin/2021/11/18/12/09/a3e4c18b-8cdd-3f43-fb2a-f05156b8c8a7/out.jpg)
+
+---
+
 `@miles 11/18/2021 11:39 AM (UTC)`
 
 11/17/2021 Miles Guo: The “Ten Adherences” of the Sixth Plenary Session show that the CCP is running out of talent, the CCP is decoupling with the world, and Xi is going to be the “emperor”; everything happened in the Sixth Plenary Session is in line with my prediction, with Xi being praised as “the Sun” and a series of ridiculous propaganda popping up; there will be massive deaths before the end of the CCP<br/><br/>11/17/2021 文贵直播：六中全会的“十大坚持”说明中共已经无人可用、中共正在跟世界脱钩且习要当皇帝；六中全会尽在文贵掌握之中，习真当上了“我的太阳”，一系列宣传闹剧即将上演；中共灭亡前将有大量人死亡<br/>
@@ -293,13 +300,6 @@ Dr. Shankara Chetty (a general practitioner with a natural science background in
 
 2021年11月14日 文贵大直播：香港大陆及世界股市；喜币迎接金融大转变；疫苗灾难台湾房地产；新中国联邦机会何在
 ![img](https://media.gettr.com/group49/origin/2021/11/14/13/72f94c61-4c93-d2e3-e84c-8f15c3071ba9/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 11/14/2021 1:42 AM (UTC)`
-
-11/13/2021 Miles Guo’s GETTR: The female Bloomberg journalist who reported on the Himalaya Coin avoided covering the key issues, and she is very likely controlled by Bruno Wu; instead of smearing the Himalaya Coin, the CCP ended up helping us advertise it; the CCP has started to rip off the entrepreneurs in the Communist China; Mr. Bannon is becoming a real hero in the darkness and in the test of life and death<br/><br/>11/13/2021 文贵盖特: 报道喜币的彭博社女记者对关键问题避而不谈，她十有八九被吴征控制；中共非但没能抹黑喜币，反而帮咱打了广告；中共在国内已开始宰割企业家；班农先生将在黑暗和生死的考验中成为真正的英雄<br/>
-![img](https://media.gettr.com/group19/getter/2021/11/14/01/42/c6b22351-93b9-dbeb-937c-c8f9712406b2/out.jpg)
 
 ---
 
