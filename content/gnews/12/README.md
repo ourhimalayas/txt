@@ -2,31 +2,32 @@
 ---
 
 
-## 中共全面推进数字人民币普及，第三方支付和发工资成重要场景
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1675101/)
+## FDA计划对成年人批准辉瑞疫苗加强针
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1675124/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-6.png)
-[图片来源](https://cn.technode.com/post/2021-04-26/jd-tech-e-cny/)
+作者：MOS – 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月17日，美国媒体消息称，FDA可能最早于本周四批准对成年人使用辉瑞公司的新冠疫苗加强针。与此同时，CDC的疫苗独立专家委员会也预定于周五召开会议，讨论新冠疫苗的安全性和有效性。报道称，在通过上述两个机构的批准后，美国民众或将面临继续接种辉瑞新冠疫苗加强针的境况。
 
-11月17日，第三方支付机构拉卡拉公司在互动平台表示，公司员工部分工资已经通过数字人民币形式发放。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-12.jpeg)
 
-拉卡拉表示，其作为中共央行数字人民币研究所首批战略合作机构，已深度参与了迄今为止所有试点城市的试点活动，并与百联、物美等大型商超以及圆明园等景区建立了数字人民币支付合作关系。
+对此，医学专家警告，新冠疫苗及其加强针都需要更多的时间和数据来进行检验。相关医生提到，目前并没有足够的结果能够证明，新冠疫苗的好处大于其所带来的风险。同时，监管机构无法确认，新冠疫苗所带来的心肌炎等副作用会否因接种了疫苗第三针而加重。
 
-拉卡拉还透露，前三季度，其数字人民币支付扫码笔数70亿笔，扫码金额7300亿元，分别增长29%和39%，扫码的交易金额增长超出了整体业务增速。另外，拉卡拉已介入批发零售领域的B2B数字人民币支付业务。
+参考链接：[FDA plans to authorize Pfizer vaccine booster shots for all adults](https://justthenews.com/politics-policy/coronavirus/fda-plans-authorize-pfizer-vaccine-booster-shots-all-adults)
 
-此外，京东集团、长沙银行、雄安新区等单位已经试点数字人民币发薪。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-当前，中共正在加速推进数字人民币落地，不断拓展各类应用场景，全面介入老百姓的经济和生活。随着数字人民币的全面普及，中共将进入“数字计划经济时代”，全面监控和掌控老百姓的一切。
+总编：文特
+编辑：文特
+校正/发稿：谐趣园
 
-信息来源：
-
-[200亿支付巨头突然直线拉升，公司发声：已在用数字货币发工资！这一板块要火了？](https://finance.sina.com.cn/roll/2021-11-17/doc-iktzqtyu7911307.shtml)
-
-编辑：东京樱花团/知了知了
-
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
