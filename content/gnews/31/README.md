@@ -2,22 +2,34 @@
 ---
 
 
-## 七哥说—第29期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1675091/)
+## 辉瑞允许仿制商在多国试验新冠药物
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1675099/)
 
-**制作：Inzaghi**
+作者：香草山农场-晓仙女
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月16日，据相关媒体报道，辉瑞公司表示，将允许仿制药商通过国际公共卫生组织药品专利许可协议，向95个中低收入的国家提供其实验性新冠病毒治疗药物，预计将覆盖全球约53%的人口。
 
-天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
-不抛弃，不放弃的正是你心中那一份对信念的坚定。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-14.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/a123.png)
+在该协议下，辉瑞允许联合国支持的机构向合格的非专利药品制造商发放许可，使其生产自己版本的新冠药品，同时，辉瑞将以Paxlovid 品牌出售这些药商生产的相关药物。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/a124.png)
+对此，医疗慈善机构无国界医生组织表示，这笔交易使人感到“沮丧”。此前，郭文贵先生也在大直播中表示，新冠口服药物比当下的新冠疫苗还可怕，一定要远离这类口服药。
 
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+参考链接：[Pfizer to allow generic versions of its COVID pill in 95 countries](https://www.reuters.com/business/healthcare-pharmaceuticals/pfizer-allow-generic-versions-its-covid-19-pill-95-countries-2021-11-16/)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
+总编：文特
+编辑：Lakeman(文仁)
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
