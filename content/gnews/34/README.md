@@ -2,35 +2,13 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月17日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1673585/)
+## 三家公司靠中共病毒疫苗，每一秒吸血1000美元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1673402/)
 
-作者：香草山翻译部
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-1.jpg)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1117text-SC.png)
-
-
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[11.17  晚GTV新闻访谈](https://gtv.org/broadcast/watch/6195acdce7e770379236a68c)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1118-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

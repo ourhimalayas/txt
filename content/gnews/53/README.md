@@ -2,32 +2,43 @@
 ---
 
 
-## 拜习会后台湾表示：“遇到压力不屈服，得到支持不冒进”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1672620/)
+## 自Covid-19袭击以来，英国有46.5万人从劳动力队伍中失踪
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1672473/)
 
-作者：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-台湾总统府16日表示：在拜习会后，台湾注意到了美国拜登总统在台湾问题上的立场，即坚持基于台湾关系法、三个联合公报、六个保证条件下的美国“一中政策”，并反对单方面改变台海两岸现状及和平。对此台湾的立场一贯清楚，就是“遇到压力不屈服，得到支持不冒进”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-15.jpg)
-台湾将继续坚持蔡英文总统在国庆时提出的“四个坚持”：一、永远坚持自由民主的宪政体制；二、坚持中华民国与中华人民共和国互不隶属；三、坚持主权不容侵犯并吞；四、坚持中华民国台湾的前途，必须遵循全体台湾人民的意志。 这就是台湾社会的最大公约数，而确保主权、捍卫国土，是不变的坚持。
+编译：七叶之芒
 
-总统府强调，台湾会持续与理念相近的国家携手合作，持续扮演台海及区域和平稳定与繁荣发展的贡献者。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/99caae3305ab415bab7f0b2df170873e.jpeg)图片来源：sohu.com
 
-参考链接：[拜习会后台湾表示：“遇到压力不屈服，得到支持不冒进”](https://www.cna.com.tw/news/firstnews/202111160224.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+根据美国银行的数据，尽管休假计划已经结束，但英国仍然面临严重的劳动力市场短缺，因为自大流行病开始以来，已有46.5万人从劳动力中消失。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+在9月30日结束对那些在封锁期间失去工作的人的福利，预计会使那些已经放弃找工作的人重新就业。美国银行经济学家罗布·伍德（Rob Wood）在周二的一份说明中说：“这还没有发生。”
 
-总编：Irene木木
-编辑：Lakeman（文仁）
-校对/发稿：Hetangyuese
+英国10月份的薪资数字跃升16万，创下新高，这表明经济可以吸收计划结束时正在休假的100万工人中的许多人。9月份的官方失业率降至3.9%，低于大流行前的即时水平。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+“当工作时间仍比大流行前的峰值低2.4%时，劳动力市场怎么可能紧张？”伍德写道。“因为自2020年1月以来，劳动力萎缩了1.4%，即465千人。”
+
+就业研究所估计，现在英国的工人比大流行前的趋势要少95万。失踪的95万人中有一半是年长的工人，三分之一是移民，其余大部分是留校的年轻人。
+
+工人短缺正在帮助推动工资上涨，并可能增加支持英格兰银行加息的论据。该央行表示，它正在密切关注薪资趋势，以确定通胀是否会持续下去。
+
+市场预计英国央行下个月将把利率从0.1%提高到0.25%。
+
+**简评：**
+
+**正如郭先生在直播中所预言，在疫情之后、在全世界疯狂推广接种疫苗之后，各国的劳动力会出现严重的短缺情况。今天的英国，劳动力的短缺竟然到了如此严重的程度。**
+
+**不单单是英国，中共病毒大流行病使全世界出现了供应链断裂、通货膨胀、劳动力短缺。但是，这仅仅是疫情爆发之后的影响。在疫苗灾难还没有完全显现之时，各国的经济在各方面已经出现了明显的衰落。可以预想到的是，在疫苗灾难完全显现之时，世界的经济会走向崩塌。**
+
+**参考资料：**[bloomberg][U.K. Missing 465,000 People From Workforce Since Covid Hit](https://www.bloomberg.com/news/articles/2021-11-16/u-k-missing-465-000-people-from-the-workforce-since-covid-hit)
+
+* * *
+
+*审核：蚂蚁兄弟
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
