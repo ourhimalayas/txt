@@ -2,47 +2,110 @@
 ---
 
 
-## 超22个州就医护人员的强制疫苗接种令将拜登政府告上法庭
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1675851/)
+## 利益冲突？比尔·盖茨向主要媒体提供了3.19亿美元（2/3）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1675870/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/apjg0-yezmi-1.jpg)
-**据《Lifesite News》记者 Calvin Freiburger 2021 年 11 月17日报道**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-429.png)**By [Alan Macleod](https://childrenshealthdefense.org/authors/alan-macleod/)**
 
-华盛顿特区（LifeSiteNews）— 因为医护人员的COVID-19 疫苗强制令而将拜登政府告上法庭的州数量现在多达 22 个，并涉及两起不同的联合诉讼。
+BMGF 还为全球范围内的各种特定媒体活动付费。例如，自 2014 年以来，它已向印度人口基金会捐赠了 570 万美元。以制作促进性健康和生殖健康的戏剧，旨在增加南亚的计划生育方法。
 
-9 月 9 日，乔·拜登总统宣布了一系列针对公共和私营部门的疫苗任务，其中包括一项对拥有医疗保险和医疗补助资金的医疗机构中的约 1700 万医护人员不提供检测选项的命令。 （译者：选项包括注射疫苗和不注射但需要检测）
-上周，以密苏里州为首的 10 个州在联邦法院对卫生工作者的疫苗强制令提起诉讼；据美联社报道，周一，由路易斯安那州为首的由 12 个州组成的另一个联盟提交了另一个文件。诉讼称，该强制令超出了联邦政府根据宪法和联邦法律的权力，并将进一步加剧国家医疗工作者的持续短缺。
+与此同时，它向塞内加尔的一个组织拨款超过 350 万美元，用于开发以健康信息为特色的广播节目和在线内容。
 
-路易斯安那州总检察长杰夫兰德里宣称：“如果我们持续坚决反抗，联邦政府不会对路易斯安那州人民实行医疗暴政。”
+支持者认为，这是在帮助资金严重不足的媒体，而反对者可能认为，这是一个亿万富翁用他的钱将他的想法和观点植入媒体的案例。
 
-上周，第五巡回上诉法院的一个小组因“严重的法定和宪法问题”暂时阻止了政府的一项其他授权，该授权要求对任何拥有 100 名或以上的雇员的企业进行疫苗接种或每周测试。法官命令美国劳工部职业安全与健康管理局 (OSHA)“在进一步的法院命令之前”“不得采取措施实施或执行”， 劳工部职业安全与健康管理局已表示将暂时遵守。
+**盖茨基金会支持的媒体项目：**
 
-至关重要的是，路易斯安那州的诉讼引用了第五巡回法院裁决的结论，如果美国地方法官特里·道蒂的最终裁决被上诉，第五巡回法院也将审理此案。
+- 欧洲新闻中心European Journalism Centre — [$20,060,048](https://www.gatesfoundation.org/about/committed-grants?q=stichting%20journalism).
+- 加拿大世界大学服务World University Service of Canada  — [$12,127,622](https://www.gatesfoundation.org/about/committed-grants?q=World%20University%20Service%20of%20Canada).
+- 好故事有限公司Well Told Story Limited — [$9,870,333](https://www.gatesfoundation.org/about/committed-grants?q=Well%20Told%20Story).
+- 解决方案新闻公司Solutions Journalism Inc. — [$7,254,755](https://www.gatesfoundation.org/about/committed-grants?q=Solutions%20Journalism%20inc).
+- 娱乐产业基金会Entertainment Industry Foundation — [$6,688,208.](https://www.gatesfoundation.org/about/committed-grants?q=Entertainment%20Industry%20Foundation)
+- 印度人口基金会Population Foundation of India — [$5,749,826](https://www.gatesfoundation.org/about/committed-grants?q=Population%20Foundation%20of%20India).
+- 参与者媒体Participant Media — [$3,914,207](https://www.gatesfoundation.org/about/committed-grants?q=participant%20media).
+- 法国非洲健康教育网络Réseau Africain de l’Education pour la santé- — [$3,561,683](https://www.gatesfoundation.org/about/committed-grants/2017/11/opp1181104).
+- 新美国New America — [$3,405,859](https://www.gatesfoundation.org/about/committed-grants/2012/09/opp1065829).
+- 全非洲基金AllAfrica Foundation — [$2,311,529](https://www.gatesfoundation.org/about/committed-grants/2010/10/opp1011624).
+- 国际步骤Steps International — [$2,208,265](https://www.gatesfoundation.org/about/committed-grants/2010/10/opp1011909).
+- 倡导和研究中心Center for Advocacy and Research — [$2,200,630](https://www.gatesfoundation.org/about/committed-grants/2005/02/opp30111).
+- 芝麻工作坊The Sesame Workshop — [$2,030,307](https://www.gatesfoundation.org/about/committed-grants/2012/11/opp1052276).
+- 西非帕诺斯研究所Panos Institute West Africa — [$1,809,850.](https://www.gatesfoundation.org/about/committed-grants/2010/11/oppgd1260)
+- 开放城市实验室Open Cities Lab — [$1,601,452.](https://www.gatesfoundation.org/about/committed-grants/2020/09/inv019364)
+- 哈佛大学Harvard University — [$1,190,527](https://www.gatesfoundation.org/about/committed-grants/2005/10/opp39528).
+- 学习Learning Matters — [$1,078,048](https://www.gatesfoundation.org/about/committed-grants?q=learning%20matters).
+- 亚伦·戴蒙德艾滋病研究中心The Aaron Diamond Aids Research Center — [$981,631](https://www.gatesfoundation.org/about/committed-grants/2004/10/opp35735).
+- 汤姆森媒体基金会Thomson Media Foundation — [$860,628](https://www.gatesfoundation.org/about/committed-grants/2010/11/opp1005454).
+- 通信联盟媒体中心Communications Consortium Media Center — [$858,000](https://www.gatesfoundation.org/about/committed-grants?q=Communications%20Consortium%20Media%20Center).
+- 故事情节StoryThings — [799,536](https://www.gatesfoundation.org/about/committed-grants?q=Storythings).
+- 农村战略中心Center for Rural Strategies — [$749,945](https://www.gatesfoundation.org/about/committed-grants?q=Center%20for%20Rural%20Strategies).
+- 新风险基金The New Venture Fund — [$700,000.](https://www.gatesfoundation.org/about/committed-grants/2013/07/opp1092058)
+- 向日葵媒体Helianthus Media — [$575,064.](https://www.gatesfoundation.org/about/committed-grants/2012/07/opp1063354)
+- 南加州大学University of Southern California — [$550,000](https://www.gatesfoundation.org/about/committed-grants/2016/08/opp1151590).
+- 世卫World Health Organization — [$530,095](https://www.gatesfoundation.org/about/committed-grants/2005/06/opp38010).
+- 越南河童三角洲国际Phi Delta Kappa International — [$446,000](https://www.gatesfoundation.org/about/committed-grants?q=phi%20delta%20kappa).
+- 希腊能力媒体Ikana Media — [$425,000](https://www.gatesfoundation.org/about/committed-grants/2019/10/inv003285).
+- 西雅图基金Seattle Foundation — [$305,000](https://www.gatesfoundation.org/about/committed-grants?q=seattle%20foundation%20journalism).
+- NC • 教育 EducationNC — [$300,000](https://www.gatesfoundation.org/about/committed-grants/2018/10/opp1198393).
+- 北京国客互动Beijing Guokr Interactive — [$300,000.](https://www.gatesfoundation.org/about/committed-grants?q=Beijing%20Guokr%20)
+- 上升浪Upswell — [$246,918](https://www.gatesfoundation.org/about/committed-grants?q=upswell).
+- 非洲科学院The African Academy of Sciences — [$208,708.](https://www.gatesfoundation.org/about/committed-grants?q=African%20Academy%20of%20Sciences%20journalism)
+- 寻求现代应用程序以实现真正的转型Seeking Modern Applications for Real Transformation (SMART) — [$201,781](https://www.gatesfoundation.org/about/committed-grants/2021/08/inv028852).
+- 湾区视频联盟Bay Area Video Coalition — [$190,000](https://www.gatesfoundation.org/about/committed-grants?q=Bay%20Area%20Video%20Coalition).
+- 强大的基金会PowHERful Foundation — [$185,953](https://www.gatesfoundation.org/about/committed-grants/2019/05/inv000553).
+- 佛罗里达州家长和教师大会PTA Florida Congress of Parents and Teachers — [$150,000.](https://www.gatesfoundation.org/about/committed-grants/2016/09/opp1160888)
+- 保护社会ProSocial — [$100,000.](https://www.gatesfoundation.org/about/committed-grants?q=prosocial)
+- 波士顿大学Boston University — [$100,000](https://www.gatesfoundation.org/about/committed-grants/2012/10/opp1069881).
+- 国家家庭学习中心National Center for Families Learning — [$100,000.](https://www.gatesfoundation.org/about/committed-grants/2020/05/inv016187)
+- 发展媒体国际Development Media International — [$100,000](https://www.gatesfoundation.org/about/committed-grants/2014/04/opp1107964).
+- 马来西亚艾哈迈杜贝洛大学Ahmadu Bello University — [$100,000](https://www.gatesfoundation.org/about/committed-grants/2013/10/opp1097549).
+- 印度尼西亚电子健康和远程医疗协会Indonesian eHealth and Telemedicine Society — [$100,000](https://www.gatesfoundation.org/about/committed-grants/2018/05/opp1189973).
+- 电影制作人合作社The Filmmakers Collaborative — [$50,000](https://www.gatesfoundation.org/about/committed-grants/1999/02/opp99).
+- 佐治亚州公共广播基金会公司。Foundation for Public Broadcasting in Georgia Inc. — [$25,000](https://www.gatesfoundation.org/about/committed-grants/2010/09/opp1025410).
+- 自我完善SIFF — [$13,000](https://www.gatesfoundation.org/about/committed-grants/2014/04/opp1109278).
 
-总而言之，阿拉巴马州、阿拉斯加州、亚利桑那州、阿肯色州、乔治亚州、爱达荷州、印第安纳州、爱荷华州、堪萨斯州、密西西比州、密苏里州、蒙大拿州、内布拉斯加州、新罕布什尔州、北达科他州、俄克拉荷马州、南卡罗来纳州、南达科他州、犹他州、西弗吉尼亚州和怀俄明州到目前为止，他们正在就卫生工作者的强制疫苗接种令起诉政府。共有 26 个州也在起诉私人雇员的疫苗强制令。
 
-同时，疫苗任务的不利证据在继续增加，有越来越多的真实的数据表明，用大规模疫苗接种的策略来抗击COVID-19病毒已经失败。联邦政府认为超过 1.94 亿美国人（符合条件的 58%）已“完全接种”（鉴于疫苗的临时性质，这还是一个变动的目标），但美国广播公司新闻10 月 6 日报道称，今年有更多美国人死于 COVID-19。根据约翰霍普金斯大学的数据，今年的死亡数据是（353,000），比 2020 年全年人数（352,000）都要高。
+Total: $97,315,408
 
-相比之下，超过 100 项研究发现，与联邦政府和主流媒体的坚持相反，感染COVID后产生的免疫力“等于或比现有疫苗注射后产生的免疫力更强大、更优越”。美国疾病控制与预防中心 (CDC)上周承认，其档案中没有任何未接种疫苗的美国人在自然康复后，将 COVID-19 传播给另一个人的例子。
+**$3.194 亿还不止**
 
-除了对 COVID 疫苗的必要性的怀疑之外，对其安全性的重大担忧仍然存在，这主要是因为它们的开发和发布速度比以前的任何疫苗都要快得多。
+加起来，这些盖茨赞助的媒体项目总计达到 3.194 亿美元。
 
-疫苗的捍卫者强调，他们疫苗的发展并非从零开始，而是依赖于对 mRNA 技术的多年研究；而 “Operation: Warp Speed ”的创新之一是同时而不是顺序进行开发过程的各个方面，消除了与安全无关的延迟。然而，这些因素并没有完全解释临床试验阶段的压缩：每个阶段都可能需要 1 到 3 年的时间，（而不是现在这样）每个阶段只需要三个月。
+然而，这份非详尽清单也存在明显的不足，这意味着：**真实数字无疑要高得多**。首先，它不计算次级赠款——接受者向世界各地的媒体提供的资金。
 
-虽然在注射 COVID 疫苗后向联邦疫苗不良事件报告系统 (VAERS) 报告的严重伤害病例不到美国施用的总剂量的1% ，但2010 年提交给美国卫生与公共服务部（HHS）医疗保健研究和质量局（AHRQ）的报告警告说，VAERS 捕获了“不到 1% 的疫苗不良事件”。 NBC 新闻的May 报道援引几位主流专家的话说，他们承认联邦疫苗监测存在“差距”。
+尽管盖茨基金会营造了一种对自己开放的氛围，但实际上几乎没有关于每笔赠款的资金用途的宝贵公开信息，除了基金会本身在其网站上写的简短的一两句话描述 .
 
-截至 2021 年 10 月 29 日， 美国政府的疫苗不良事件报告系统报告了超过 850,000 人因冠状疫苗注射而受到伤害。
+只计算对新闻组织本身或项目的捐赠，这些捐赠可以从盖茨基金会网站上的信息中识别为媒体活动，**这意味着数千笔具有媒体元素的赠款不会出现在此列表中**。
 
-**文章来源：**[https://www.lifesitenews.com/news/more-than-22-states-take-biden-to-court-over-vaccine-mandate-for-health-care-workers/](https://www.lifesitenews.com/news/more-than-22-states-take-biden-to-court-over-vaccine-mandate-for-health-care-workers/)
+一个典型的例子是， BMGF 与 ViacomCBS 的合作伙伴关系，后者控制着 CBS 新闻、MTV、VH1、Nickelodeon 和 BET。当时的媒体报道指出，盖茨基金会付钱给这家娱乐巨头，让这家娱乐巨头在其节目中插入信息和公益广告。而且盖茨已经进行干预，以改变 ER 和法律与秩序：SVU 等热门节目的故事情节。
 
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场-小象的奶瓶
-编辑：洛杉矶盘古农场-小象的奶瓶
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+然而，在检查 BMGF 的拨款数据库时，找不到“维亚康姆”和“哥伦比亚广播公司”，可能有问题的拨款（总额超过 600 万美元），只是将该项目描述为“旨在提高高中毕业率和专门针对家长和学生的中学后完成率”，**这意味着它不计入官方总数。**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+这样的例子肯定还有很多。“对于一个经常大肆宣扬透明度重要性的税收特权慈善机构来说，盖茨基金会对其资金流动的保密程度是惊人的，”**蒂姆·施瓦布是为数不多的调查过这位科技亿万富翁的调查记者之一**，他告诉 MintPress。
+
+也不包括旨在为学术期刊撰写文章的赠款。虽然这些文章并不适合大众消费，但它们经常构成主流媒体报道的基础，并有助于围绕关键问题形成叙事。
+
+盖茨基金会为学术资源提供了广泛的支持，至少有 1360 万美元用于为著名的医学期刊《柳叶刀》创作内容。
+
+当然，即使是为纯粹的研究项目提供给大学的资金，最终也会出现在学术期刊上，并最终进入大众媒体的下游。学术界承受着在著名期刊上发表他们的研究结果的巨大压力：“**要么出版，要么灭亡****”****是大学部门的口头禅**。
+
+因此，即使是这类资助也会对我们的媒体产生影响。这些资助印刷书籍或建立网站的资金都不计入总数，尽管它们也是媒体形式。
+
+让我们在文章的最后半部分看看“圣比尔”更多的操控全球的细节。
+
+**新闻来源：**[childrenshealthdefense.org][Conflict of Interest? Bill Gates Gave $319 Million to Major Media Outlets, Documents Reveal](https://childrenshealthdefense.org/defender/bill-melinda-gates-foundation-media-objectively/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=5338e30e-cea0-4bbb-a3de-000ded99a327)
+
+**相关文章请阅读：利益冲突？比尔·盖茨向主要媒体提供了3.19亿美元（1/3）**
+
+**利益冲突？比尔·盖茨向主要媒体提供了3.19亿美元（3/3）**
+
+* * *
+
+***审核：文乐
+校对：信心满满
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+
+
 
  
 

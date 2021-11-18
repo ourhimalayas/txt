@@ -2,38 +2,30 @@
 ---
 
 
-## “突然死亡”的全球搜索趋势飙升至历史新高
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1675726/)
+## 突破中共外交封锁 驻立陶宛台湾代表处正式启动
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1675819/)
 
-据《零对冲》2021 年 11 月 17 日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-425-e1637267039851.png)图片源自本文
-**欧洲的头条新闻拼凑出人们突然死亡的神秘趋势。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1000-2-1.jpg)台湾外交部制作的驻立陶宛台湾代表处成立预告 （图片来源：美国之音）
+编辑摘要：
 
-我们注意到一种在全球范围内爆发的 Google 搜索趋势。
+据美国之音11月18日报道，台湾在立陶宛的外交机构“驻立陶宛台湾代表处”18日正式成立，首任代表由现任驻拉脱维亚代表黄钧耀担任。这是台湾顶住北京的压力在外交方面获得的一个重大突破。
 
-**搜索词“突然死亡”在过去两个月飙升至历史新高，数据可以追溯到 2004 年。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-426.png)图片源自本文
-**这里有更多来自美国的头条新闻**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-427.png)图片源自本文
-我们无法明确指出这些神秘死亡的根本原因，但希望将读者引向上周发表的一篇题​​为“德国报纸重点报道最近突然倒地的足球运动员人数异常多”的文章。
+多年来，中共为了在世界舞台上孤立台湾，通过一切手段阻止台湾在外交事务上使用“台湾”的字样。台湾驻外代表机构只能够使用“台北”的称谓，以显示它是中共国的一部分。这次用“台湾”取代“台北”命名台湾驻立陶宛代表处是台湾在国际外交事务中迈出的重要一步。
 
-在那篇文章中，我们概述了德国报纸《柏林日报》的报道，**“最近异常大量的职业和业余足球运动员倒下了。” **虽然不是死亡，但我们发现运动员的突然崩溃似乎很奇怪，可能与健康有关。
+立陶宛今年7月同意台湾在维尔纽斯设立代表处。中共国立即撤走了驻立陶宛大使，并要求立陶宛撤回其驻北京的大使。北京停止了与立陶宛的铁路货运联系，并停止发放食品出口许可。弹丸小国捍卫自己的国家主权和民主权利，敢于挑战中共庞然大物，台湾和立陶宛为民主国家做出了榜样。对中共国的霸凌说不，国家才能正常发展。被中共蓝金黄深度渗透的国家，无不日渐下行，国力衰微、国内矛盾加剧。中共一天不灭亡，台湾的危险一天就不会解除。延伸到所有国家都是如此，中共病毒和中共疫苗所到之处，谁能躲得了？
 
-现在推测人们是否因与COVID-19疫苗相关的问题（例如心肌炎症）而突然死亡或崩溃还为时过早。但是，这是一个应该密切关注的趋势。
+新闻参考链接：[台湾突破中共外交封锁 驻立陶宛代表处终于冠上关键字](https://www.voachinese.com/a/Taiwan-Opens-Representative-Office-Using-Own-Name-20211118/6318371.html)
 
-原文链接：[https://www.zerohedge.com/political/worldwide-search-trend-died-suddenly-spikes-record-highs](https://www.zerohedge.com/political/worldwide-search-trend-died-suddenly-spikes-record-highs)
+* * *
 
-翻译：洛杉矶盘古农场 — 小象的奶瓶
-
-校对：洛杉矶盘古农场 — 心照
-
-编辑：洛杉矶盘古农场 — 心照
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+编辑：【英国伦敦喜庄园编辑部】
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

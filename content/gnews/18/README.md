@@ -2,18 +2,38 @@
 ---
 
 
-## 斯洛伐克对未接种疫苗的人实施封锁
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1675631/)
+## “突然死亡”的全球搜索趋势飙升至历史新高
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1675726/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11181.jpg)图片来自euronews.com
-11 月 18 日-据英国《卫报》报道，斯洛维尼亚总理爱德华·黑格尔在电视直播的新闻发布会上宣布：斯洛伐克将对冠状病毒实施对未接种疫苗的人的封锁。
+据《零对冲》2021 年 11 月 17 日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-425-e1637267039851.png)图片源自本文
+**欧洲的头条新闻拼凑出人们突然死亡的神秘趋势。**
 
-新的紧缩措施从下星期一开始生效，为期 3 周，只有接种过疫苗或在过去六个月内感染过新冠病毒的人才能进入餐馆、购物中心、非必需品商店、体育活动和公共活动。并且还有义务在所有受疫情影响最严重的地区对未接种疫苗的工作人员进行检测。
+我们注意到一种在全球范围内爆发的 Google 搜索趋势。
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/18/la-slovacchia-impone-il-lockdown-ai-non-vaccinati\_78c39470-46e9-4f49-8921-b85c8539f68e.html](https://www.ansa.it/sito/notizie/topnews/2021/11/18/la-slovacchia-impone-il-lockdown-ai-non-vaccinati_78c39470-46e9-4f49-8921-b85c8539f68e.html)
+**搜索词“突然死亡”在过去两个月飙升至历史新高，数据可以追溯到 2004 年。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-426.png)图片源自本文
+**这里有更多来自美国的头条新闻**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-427.png)图片源自本文
+我们无法明确指出这些神秘死亡的根本原因，但希望将读者引向上周发表的一篇题​​为“德国报纸重点报道最近突然倒地的足球运动员人数异常多”的文章。
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+在那篇文章中，我们概述了德国报纸《柏林日报》的报道，**“最近异常大量的职业和业余足球运动员倒下了。” **虽然不是死亡，但我们发现运动员的突然崩溃似乎很奇怪，可能与健康有关。
+
+现在推测人们是否因与COVID-19疫苗相关的问题（例如心肌炎症）而突然死亡或崩溃还为时过早。但是，这是一个应该密切关注的趋势。
+
+原文链接：[https://www.zerohedge.com/political/worldwide-search-trend-died-suddenly-spikes-record-highs](https://www.zerohedge.com/political/worldwide-search-trend-died-suddenly-spikes-record-highs)
+
+翻译：洛杉矶盘古农场 — 小象的奶瓶
+
+校对：洛杉矶盘古农场 — 心照
+
+编辑：洛杉矶盘古农场 — 心照
+
+
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

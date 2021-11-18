@@ -2,25 +2,23 @@
 ---
 
 
-## 辉瑞允许仿制商在多国试验新冠药物
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1675099/)
+## FDA计划对成年人批准辉瑞疫苗加强针
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1675124/)
 
-作者：香草山农场-晓仙女
+作者：MOS – 柳是多水土透
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月16日，据相关媒体报道，辉瑞公司表示，将允许仿制药商通过国际公共卫生组织药品专利许可协议，向95个中低收入的国家提供其实验性新冠病毒治疗药物，预计将覆盖全球约53%的人口。
+11月17日，美国媒体消息称，FDA可能最早于本周四批准对成年人使用辉瑞公司的新冠疫苗加强针。与此同时，CDC的疫苗独立专家委员会也预定于周五召开会议，讨论新冠疫苗的安全性和有效性。报道称，在通过上述两个机构的批准后，美国民众或将面临继续接种辉瑞新冠疫苗加强针的境况。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-14.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide9-12.jpeg)
 
-在该协议下，辉瑞允许联合国支持的机构向合格的非专利药品制造商发放许可，使其生产自己版本的新冠药品，同时，辉瑞将以Paxlovid 品牌出售这些药商生产的相关药物。
+对此，医学专家警告，新冠疫苗及其加强针都需要更多的时间和数据来进行检验。相关医生提到，目前并没有足够的结果能够证明，新冠疫苗的好处大于其所带来的风险。同时，监管机构无法确认，新冠疫苗所带来的心肌炎等副作用会否因接种了疫苗第三针而加重。
 
-对此，医疗慈善机构无国界医生组织表示，这笔交易使人感到“沮丧”。此前，郭文贵先生也在大直播中表示，新冠口服药物比当下的新冠疫苗还可怕，一定要远离这类口服药。
-
-参考链接：[Pfizer to allow generic versions of its COVID pill in 95 countries](https://www.reuters.com/business/healthcare-pharmaceuticals/pfizer-allow-generic-versions-its-covid-19-pill-95-countries-2021-11-16/)
+参考链接：[FDA plans to authorize Pfizer vaccine booster shots for all adults](https://justthenews.com/politics-policy/coronavirus/fda-plans-authorize-pfizer-vaccine-booster-shots-all-adults)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
 总编：文特
-编辑：Lakeman(文仁)
+编辑：文特
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
