@@ -2,26 +2,47 @@
 ---
 
 
-## COVID-19 最新情报｜科学家们成功获得资助尝试将新冠疫苗注入蔬菜让未接种者吃下
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1677012/)
+## 前工党议员投反对票，安德鲁斯大流行病法案面临夭折
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1677014/)
 
-**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜19/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+**整理报道：文泓**
 
-加州大学河滨分校的官方网站 9 月 16 日刊文指，本校的科学家们已获得了美国国家科学基金会 50 万美元的资助，用于开发将实验性 mRNA Covid-19 疫苗注入菠菜、生菜和其他可食用植物的技术。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/222222222.jpg)图片来源：ABCNEWS
 
-该项技术的核心，就是证明转基因植物可以产生足够的 mRNA ，透过向植物注入所需的剂量以替代疫苗接种。最终成功让所有拒绝接种 mRNA Covid-19 疫苗的人在无意识中，通过食物中获取疫苗有效成分。
+维多利亚州工党元老，前工党议员艾德姆·索缪里克表示，他将阻止安德鲁斯政府通过有争议的大[流行病法案](https://www.9news.com.au/national/coronavirus-update-victoria-chief-health-officer-to-no-longer-have-final-say-on-handling-of-pandemic/e4f971a5-c4c9-4183-85e0-78b2225a9ba8)，此举将破坏该立法在维多利亚州上议院的通过。
 
-领导开放该项技术的总负责人，加州大学河滨分校植物学和植物科学系副教授胡安·巴勃罗·吉拉尔多 (Juan Pablo Giraldo) 表示，“ mRNA Covid-19 疫苗将是可食用的。理想状况下，通过食用一株植物可产生足够的 mRNA 来代替注射疫苗。目前，我们正在用菠菜和生菜测试这种方法，并为人们将来在自己的花园中种植制定长期目标。”
+索缪里克先生在去年因不当招聘指控而被工党抛弃后，现已返回州议会作为独立议员坐在交叉席位上。
 
-吉拉尔教授指出，研究的关键就是叶绿体，叶绿体可将阳光转化为植物所需的能量，产生糖及其他分子，以促进植物生长。同样的道理，他的研究团队准备将外来遗传物质（即 DNA 或者 RNA）输送到叶绿体中，借此传导进入植物。
+“如果我继续担任安德鲁斯内阁的成员，我会认为该法案是个坏主意，因为它赋予政府太多权力”，他说：“我不会支持目前形式的这项法案，我会鼓励政府重新起草并进行更广泛的协商。”
 
-因此，他们招募了圣地亚哥分校纳米工程教授 Nicole Steinmetz 参与，利用纳米技术将 mRNA 疫苗注入植物的叶绿体。吉拉尔教授说，“我们的想法是重新利用天然存在的纳米粒子，即植物病毒，将基因传递给植物，也就是说使纳米颗粒进入叶绿体，并使它们对植物没有传染性。”
+索缪里克先生投票反对该法案的决定，使得维州政府的计划陷入混乱，因为如果已经表示反对该法案的其他八名交叉议员也投反对票，该法案将无法通过。
 
-**最令人担忧的是，若该项研究成功，相信很快成千上万个拒绝接受疫苗的人将在餐桌上被迫接受。根据 CDC 的疫苗不良事件报告系统，2021 年有 18,461 人死于接种疫苗，而在 2020 年强制COVID-19 疫苗接种之前，只有 420 人死于接种疫苗。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-11.jpg)
-来源｜[UCR](https://news.ucr.edu/articles/2021/09/16/grow-and-eat-your-own-vaccines) / [OPENVAERS](https://openvaers.com/index.php)
+如果该法案未能在紧急状态规定到期前的两周内通过议会审议，维州政府将无法执行任何大流行命令。
+
+目前，只有三名交叉议员表示支持该法案，包括绿党议员萨曼莎·拉特南、动物正义党的安迪·梅迪克和理性党领袖菲奥娜·帕滕。
+
+“由于工党控制着两院，让议会无法再履行其审查职能，（现在）通过内阁和核心小组进行的内部审查和集体决策更为重要，”索米雷克先生说。
+
+“这让（州长）安德鲁斯成为唯一的决策者，这在复杂的现代政府中是不可接受的。”
+
+在受到律师和人权活动家的强烈批评后，维州政府周一宣布了对该法案的七项重要修正案，但一些批评者表示，这些变化还不够。
+
+维州[抗议者们已连续第四个晚上睡在议会的台阶上](https://www.9news.com.au/national/coronavirus-victoria-updates-covid-19-restrictions-to-ease-at-90-per-cent-vaccination-revealed/c889a05e-93a1-4168-8920-dd5ebedfa5f4)，反对大流行法案。
+
+维州政府正在寻求推迟对该法案的辩论，以获得通过该法案所需的支持。
+
+州长丹尼尔·安德鲁斯今天表示，大流行法是必要的，以确保一旦紧急状态权力于12月15日到期，规则可以继续实施。
+
+新闻链接：[Victoria pandemic bill: Adem Somyurek has threatened to vote against proposed law (9news.com.au)](https://www.9news.com.au/national/former-labor-mp-adem-somyurek-vows-to-vote-against-victorias-pandemic-bill/69a59a81-07b0-4720-bd40-3e71b113bf77)
+
+*发布： 热锅小蚂蚁*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

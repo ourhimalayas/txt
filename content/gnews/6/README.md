@@ -2,47 +2,28 @@
 ---
 
 
-## 前工党议员投反对票，安德鲁斯大流行病法案面临夭折
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1677014/)
+## 中共外交部发言人竟狂言《台湾关系法》非法无效
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1677031/)
 
-**整理报道：文泓**
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-17.png)
+（图片来自网络）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/222222222.jpg)图片来源：ABCNEWS
+在全球近日关注的焦点“拜习会”刚一结束，中共外交部发言人赵立坚就连续2天在例行记者会上狂言，宣称《台湾关系法》是“非法无效”的。这一疯狂至极、企图推翻美国法律的狂妄举动，在令全世界瞠目结舌的同时，也进一步加剧了台海局势的紧张程度。
 
-维多利亚州工党元老，前工党议员艾德姆·索缪里克表示，他将阻止安德鲁斯政府通过有争议的大[流行病法案](https://www.9news.com.au/national/coronavirus-update-victoria-chief-health-officer-to-no-longer-have-final-say-on-handling-of-pandemic/e4f971a5-c4c9-4183-85e0-78b2225a9ba8)，此举将破坏该立法在维多利亚州上议院的通过。
+据《希望之声》11月19日报道，在拜登与习近平11月16日举行视频会晤之后，台湾议题持续成为中共外交部例行记者会上的提问焦点之一。
 
-索缪里克先生在去年因不当招聘指控而被工党抛弃后，现已返回州议会作为独立议员坐在交叉席位上。
+中共外交部发言人赵立坚17日在回答有关问题时声称，美方应遵守的是“一个中国原则”和《中美三个联合公报》，这是中美两国的重要政治共识。而所谓的《台湾关系法》也好，“对台六项保证”也罢，纯粹是美国“国内一些势力炮制出来的…… 是非法和无效的”。
 
-“如果我继续担任安德鲁斯内阁的成员，我会认为该法案是个坏主意，因为它赋予政府太多权力”，他说：“我不会支持目前形式的这项法案，我会鼓励政府重新起草并进行更广泛的协商。”
+第二天，即11月18日，针对白宫副国安顾问纽柏格（Anne Neuberger）所说的美国政府将根据《台湾关系法》为台湾防卫提供支援，赵立坚又再度宣称，《台湾关系法》是“非法无效的”。他还再次指点美国政府称，在台湾议题上，美方应遵守“一个中国原则”和《中美三个联合公报》，而不是“美方单方面搞的什么东西”。
 
-索缪里克先生投票反对该法案的决定，使得维州政府的计划陷入混乱，因为如果已经表示反对该法案的其他八名交叉议员也投反对票，该法案将无法通过。
+在台海局势持续紧张之际，在中美领导人刚刚结束视频会谈之后，中共就使用如此具有挑衅性的言辞，甚至直接针对美国政府发出挑战，相当值得关注。
 
-如果该法案未能在紧急状态规定到期前的两周内通过议会审议，维州政府将无法执行任何大流行命令。
+观察人士回溯中共19届六中全会，认为第三份历史决议已将台湾置于危险之地。
 
-目前，只有三名交叉议员表示支持该法案，包括绿党议员萨曼莎·拉特南、动物正义党的安迪·梅迪克和理性党领袖菲奥娜·帕滕。
+《日经》主笔中泽克二11月19日发表文章指出，习近平为了超越邓小平，势必打破邓小平的“韬光养晦”战略。而“统一台湾”或许是习唯一可写入史册的所谓“历史性成就”。习会认为“解决台湾问题”将是他超越邓的重要功绩。
 
-“由于工党控制着两院，让议会无法再履行其审查职能，（现在）通过内阁和核心小组进行的内部审查和集体决策更为重要，”索米雷克先生说。
-
-“这让（州长）安德鲁斯成为唯一的决策者，这在复杂的现代政府中是不可接受的。”
-
-在受到律师和人权活动家的强烈批评后，维州政府周一宣布了对该法案的七项重要修正案，但一些批评者表示，这些变化还不够。
-
-维州[抗议者们已连续第四个晚上睡在议会的台阶上](https://www.9news.com.au/national/coronavirus-victoria-updates-covid-19-restrictions-to-ease-at-90-per-cent-vaccination-revealed/c889a05e-93a1-4168-8920-dd5ebedfa5f4)，反对大流行法案。
-
-维州政府正在寻求推迟对该法案的辩论，以获得通过该法案所需的支持。
-
-州长丹尼尔·安德鲁斯今天表示，大流行法是必要的，以确保一旦紧急状态权力于12月15日到期，规则可以继续实施。
-
-新闻链接：[Victoria pandemic bill: Adem Somyurek has threatened to vote against proposed law (9news.com.au)](https://www.9news.com.au/national/former-labor-mp-adem-somyurek-vows-to-vote-against-victorias-pandemic-bill/69a59a81-07b0-4720-bd40-3e71b113bf77)
-
-*发布： 热锅小蚂蚁*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻链接：[https://m.soundofhope.org/post/567185](https://m.soundofhope.org/post/567185)
 
  
 

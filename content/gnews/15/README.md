@@ -2,35 +2,32 @@
 ---
 
 
-## 内燃机不能亡，TOYOTA 组织油车大联盟拒绝格拉斯哥协议
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1676938/)
+## 中共是邪恶势力的全球总部
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1676949/)
 
-撰稿：天蝎独角兽
+撰稿：纽约香草山文艺部 – 宁文静/ 纽约香草山教育部-Noemi
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
+11月17日，郭文贵先生在大直播表示，共产党是世界邪恶力量的大总部，这股邪恶势力已经侵蚀各国政府、主流媒体、大药企。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-437.png)
+在七十年代之后的二十年和平时期，各国政府超发货币，华尔街等金融机构运用杠杆放大资金报，社会的大部分财富，逐渐集中到少数人手里。同时，中共蓝金黄各国政要、金融机构、主流媒体，并和美国共产党暗中勾结，妄图实现对世界人民从财产、生活，甚至精神的绝对控制。
 
-就在拒绝格拉斯哥协议三天后,TOYOTA铁了心要巩固燃油车帝国，组建「Team Japan」，死守内燃机，并持续开发新引擎。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16372976251.png)网络截图
-如果油电终须一战，Toyota 已找好燃油车联盟，决定坚持到底。今日 Toyota 宣布成立「Team Japan」，持续开发内燃机技术，成员包括 Subaru、Mazda、Kawasaki 和 Yamaha，这个华丽的阵容在「日本超级耐久赛」中揭晓。
+当前，中共与其背后的邪恶势力已经走到了崩溃的边缘。他们只有两种结果：要么毁掉全世界，要么被全球正义力量消灭。郭先生呼吁，只有坚定地灭共，才能获得真正的安全、自由与财富。
 
-以 Toyota 为首的五间日本汽机车公司，认为这个世界尚未准备好迎接纯电车，他们将持续开发研究更环保的燃油技术，同时也不会中断对氢燃料电池的投入。
+新闻链接: [https://gtv.org/video/id=6194fda8e7e7703792363972](https://gtv.org/video/id=6194fda8e7e7703792363972)
 
-Mazda 和 Toyota 将合作开发 1,500 cc 的 Skyactive-D 引擎，让新款赛车能使用生质燃料柴油，用来参加明年的超级耐久赛。Subaru 和 Toyota 同样也会在之后的耐久赛中，采用以生质合成燃料的燃油，来减少碳排放，甚至达成碳中和目标。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
 
-另两成员 Kawasaki 与 Yamaha 将与 Toyota 合作，将氢燃料电池技术导入摩托车，让引以为傲的重型机车也能使用零排放的氢燃料电池驱动。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16372976151.png)网络截图
-「五家公司共同承诺，将会持续制造、运输、使用燃油和内燃机，提供客户更好的选择。」Toyota 官方表示。
+编辑:文特/雪梨
 
-联盟就成立在 Toyota 拒绝格拉斯哥协议三天后，全球汽车龙头不愿意配合奔驰、福特、通用与 Volvo 等车厂 2040 停用化石燃料协议，展现 Toyota 死守内燃机的决心。
+校正/发稿: 浪迹天涯
 
-有趣的是，相较 Toyota 电动车的牛步，福斯汽车虽然大力推展电动车，但也同样拒绝签署这项协议，可见全球汽车销售前两大的龙头，并不会轻易的放弃现有疆土。
-
-Toyota 将在明年推出第一款量产纯电车 bz4x，Subaru 也会推出相似的电动车，Kawasaki 和 Yamaha 也是日本换电机车联盟的主要成员，显示这些车厂并非反对电动车，只是不愿放弃燃油车市场。而相对保守的策略究竟是对是错，要等到十年后才看得到结果。
-
-评：用不了十年就可看到结果了吧。要么这只是这几个大牌厂商为了未来市场份额       讨价还价的策略，要么是退出舞台的一种开始。咱们拭目以待。
-
-新闻参考链接：[https://technews.tw/2021/11/15/toyota-refuse-zero-emission-league/](https://technews.tw/2021/11/15/toyota-refuse-zero-emission-league/)
-
-发布：五饼二鱼
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/016.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
