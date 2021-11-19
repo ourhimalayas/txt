@@ -2,11 +2,19 @@
 ---
 
 
-## 恒大彻底完了
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1677346/)
+## 财经G乐部：数字货币知识分享-2
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1677347/)
 
-此前，恒大已经抛售恒腾网络22亿股，套现额88.08亿港元。到此，中国恒大累计抛售恒腾网络38.6亿股，套现额超百亿港币。
-![img](https://media.gettr.com/group37/getter/2021/11/18/08/11/dbbd0890-f197-88c6-d7ac-eda45d05b47d/01f03cec1cf6c759ddb63e30179cdf89_500x0.jpg)
+数字货币变现为美元的过程中，你知道有哪些监管环节吗？
+
+在[第1节知识分享](https://gnews.org/zh-hans/1677345/)中我们说到了稳定币的出现是为了满足更多投资者对于风险的控制和退出的需求。
+
+那么（美元类）稳定币在转换成美元的过程中是需要一个合规的过程，这个过程是衡量数字货币平台正规化的指标。
+
+美国FinCEN（美国财政部下设机构金融犯罪执法局）的监管条例明确规定：从事货币兑换业务，必须要向政府登记并申请货币服务牌照。简称：MBS（MoneyServicesBusiness），此牌照是由FinCEN监管并颁发的一类金融牌照。
+
+例如：稳定币HDO转换成美元的过程中是需要有美国政府批准的金融牌照。HimalayaInternationalPaymentsLtd则是拥有MBS金融牌照的。
+![img](https://media.gettr.com/group23/getter/2021/11/19/03/00/83754580-3f4d-b3e9-a5fa-9eefb4102692/243cf55b603ac96d8db749679b91816d_500x0.jpg)
 （文章内容仅代表新西兰-财经G乐部节目观点）
 
  
