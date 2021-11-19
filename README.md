@@ -15,101 +15,101 @@
 
 ---
 
-### [今天中共的狂妄自满恰恰是明天全球声讨其罪恶的铁证！](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭文贵先生2021年11月18日盖特视频（2分32秒）全文字版](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [HPay的代理权](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [个人账户提现的相关常识](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|中共国又一名抗疫医生猝死](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [新中国联邦是秉承上天旨意而来的](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [七哥谈喜联储VIII:打造金融安全港湾和法治民主自由平台](/content/gnews/7/README.md)
- ` NewFOC`
-
-### [雅典娜时报-第117期](/content/gnews/8/README.md)
+### [文·贵天成——文贵先生谈“量子电脑”（二）](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|疫苗强制令下人员短缺导致救援不及](/content/gnews/9/README.md)
+### [六中全会后疫情爆发，北京严防死守](/content/gnews/2/README.md)
+ ` 纽约香草山MOS01`
+
+### [参议员汤姆·科顿：美国必须对北京冬奥会实施全面抵制](/content/gnews/3/README.md)
+ ` 美国政要直译推`
+
+### [文·贵天成——文贵先生谈“量子电脑”（一）](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美议员要求白宫提供更多拜习会议信息，并称中共不可信](/content/gnews/5/README.md)
+ ` 纽约香草山MOS01`
+
+### [今天中共的狂妄自满恰恰是明天全球声讨其罪恶的铁证！](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [郭文贵先生2021年11月18日盖特视频（2分32秒）全文字版](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [HPay的代理权](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [个人账户提现的相关常识](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|中共国又一名抗疫医生猝死](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [樱花灭共诗——僭尊（新韵）](/content/gnews/10/README.md)
+### [新中国联邦是秉承上天旨意而来的](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|多国取消人民币互换业务，戳破中共虚假经济](/content/gnews/11/README.md)
- ` MOSREC`
-
-### [美国FDA要求2076年公布辉瑞中共病毒疫苗相关文件](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [东京新建公寓价格大涨，超过1990年泡沫时期价格](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：国际刑警组织前主席孟宏伟妻子接受采访抨击中共](/content/gnews/14/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [外国人和党内的人都认为干掉习才能得到解放和自由](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [七哥谈喜联储VII:核心目的筛选喜系列会员到国家管理人员](/content/gnews/16/README.md)
+### [七哥谈喜联储VIII:打造金融安全港湾和法治民主自由平台](/content/gnews/12/README.md)
  ` NewFOC`
 
-### [大多数选民认为拜登司法部和FBI对班农和奥基夫的举措是政治迫害](/content/gnews/17/README.md)
- ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
+### [雅典娜时报-第117期](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [美卫生机构违背对疫苗信息透明度的承诺](/content/gnews/18/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
+### [有声|疫苗强制令下人员短缺导致救援不及](/content/gnews/14/README.md)
+ ` MOSREC`
 
-### [澳联储称，大流行让更多人储藏现金](/content/gnews/19/README.md)
- ` 走进澳洲`
+### [家长们，问你们自己几个问题吧！](/content/gnews/15/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [加拿大媒体对疫苗接种情况的追踪报道](/content/gnews/20/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
+### [樱花灭共诗——僭尊（新韵）](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳大利亚雇主不顾总理取消疫苗强制接种的讲话继续推进强制接种政策](/content/gnews/21/README.md)
- ` 澳喜农场`
+### [有声|多国取消人民币互换业务，戳破中共虚假经济](/content/gnews/17/README.md)
+ ` MOSREC`
 
-### [美多数企业欲继续执行已被禁止的强制接种令](/content/gnews/22/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
+### [美国FDA要求2076年公布辉瑞中共病毒疫苗相关文件](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [天主教领袖号召全球信众联合反抗极权主义](/content/gnews/23/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
+### [东京新建公寓价格大涨，超过1990年泡沫时期价格](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美劳工机构依法停止拜登的强制接种令](/content/gnews/24/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [美国高科技公司和好莱坞叩头中共，饮鸩止渴，回头是岸](/content/gnews/25/README.md)
- ` mary202064`
-
-### [文贵老照片解密：阿尔·戈尔和他的第一次中国之行](/content/gnews/26/README.md)
- ` 秘密翻译组-原创组`
-
-### [孟宏伟之妻直面镜头接受采访](/content/gnews/27/README.md)
+### [秘翻在线：国际刑警组织前主席孟宏伟妻子接受采访抨击中共](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [天花生物战——全球主义者准备了“完美”的计划来掩盖疫苗死亡并通过引发新的致命流行病来取消中期选举](/content/gnews/28/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [外国人和党内的人都认为干掉习才能得到解放和自由](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美参议院全体共和党议员集体挑战拜登强制疫苗令](/content/gnews/29/README.md)
- ` 日本东京方舟农场`
+### [七哥谈喜联储VII:核心目的筛选喜系列会员到国家管理人员](/content/gnews/22/README.md)
+ ` NewFOC`
 
-### [加拿大阿尔伯塔省率先免除中小学强制接种](/content/gnews/30/README.md)
+### [大多数选民认为拜登司法部和FBI对班农和奥基夫的举措是政治迫害](/content/gnews/23/README.md)
+ ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
+
+### [美卫生机构违背对疫苗信息透明度的承诺](/content/gnews/24/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [加拿大法院结束 COVID 紧急情况| 戴口罩、封锁和紧急使用疫苗接种 现在是非法的](/content/gnews/31/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [澳联储称，大流行让更多人储藏现金](/content/gnews/25/README.md)
+ ` 走进澳洲`
 
-### [拜登政府或将宣布外交抵制北京冬奥会](/content/gnews/32/README.md)
+### [加拿大媒体对疫苗接种情况的追踪报道](/content/gnews/26/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
+
+### [澳大利亚雇主不顾总理取消疫苗强制接种的讲话继续推进强制接种政策](/content/gnews/27/README.md)
+ ` 澳喜农场`
+
+### [美多数企业欲继续执行已被禁止的强制接种令](/content/gnews/28/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [天主教领袖号召全球信众联合反抗极权主义](/content/gnews/29/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [美劳工机构依法停止拜登的强制接种令](/content/gnews/30/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [美国高科技公司和好莱坞叩头中共，饮鸩止渴，回头是岸](/content/gnews/31/README.md)
+ ` mary202064`
+
+### [文贵老照片解密：阿尔·戈尔和他的第一次中国之行](/content/gnews/32/README.md)
+ ` 秘密翻译组-原创组`
 
 ### [有声|GTV新闻访谈简报|2021年11月17日早](/content/gnews/33/README.md)
  ` MOSREC`

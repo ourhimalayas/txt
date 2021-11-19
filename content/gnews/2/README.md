@@ -2,26 +2,49 @@
 ---
 
 
-## 郭文贵先生2021年11月18日盖特视频（2分32秒）全文字版
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1676560/)
+## 六中全会后疫情爆发，北京严防死守
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1676613/)
 
-听写整理编辑：东京樱花团/Peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-137.png)
-啊，啊，哎，啊，我的娘嘞，哎，太不容易了，兄弟姐妹们，别忘了健身呐！你别有了钱了，你没命享受好日子啊。
+作者：东京樱花团 修文
 
-这疫苗，七哥说过吧?疫苗，一定咱们让他们那个停了，放心，咱们有更多国家政府现在已经慌了。就是我们爆的料，提供的信息和发生的情况都证明了，是的，疫苗灾难比病毒还可怕。共产党正在准备另外一波的放毒。所以说兄弟姐妹们，信不信，咱不强求，咱只做成自己力所能及，认为正确的事儿，自己喜欢又能做到的事就够了。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-5.jpg)
 
-哎，太可怕了，多少人打了疫苗？现在，害怕了吧，还没开始呢，未来的人类新中国联邦人，比什么都珍贵，精子，卵子，没打过疫苗的精子卵子是最贵的，新中国联邦人太伟大了。
 
-俺要继续锻炼嘞，今天没有直播啊，所以国内战友快睡觉觉吧，呵呵，mua……
 
-稿件仅作参考，最终以郭文贵先生盖特直播视频内容为准。
 
-[郭文贵先生11月18日盖特视频](https://gettr.com/post/pha9c3cef4)
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/北京防疫.jpeg)（美联社资料照）
+
+中共国最新一波新冠疫情爆发。截至16日累计1327例本土个案、涉及21省份；首都北京宣布防疫升级，17日起严格管控进京人流，警方更声称将“逢车必查、逢人必核”，筑好“外防输入”的第一道防线。 北京政府在13日即宣布，自17日起外来人员进京，须持48小时内核酸检测阴性证明，及“北京健康宝”绿码；14日内到过疫区者禁止进京、14日内去过陆路边境口岸者非必要不得进京。
+
+六中全会以后，疫情再次爆发。有媒体怀疑，中共国疫情是否一直存在。只是为营造六中全会圆满的氛围，才隐瞒消息。所以大会结束后，北京立刻安排提升防疫等级。
+
+参考链接：
+
+[https://news.ltn.com.tw/news/world/breakingnews/3739440](https://news.ltn.com.tw/news/world/breakingnews/3739440)
+
+总编：文徬
+
+校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-4.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is logo-5.jpg](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

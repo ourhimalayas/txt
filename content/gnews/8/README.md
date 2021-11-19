@@ -2,22 +2,19 @@
 ---
 
 
-## 雅典娜时报-第117期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1676513/)
+## HPay的代理权
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1676558/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+文编：东京樱花团/樱花传媒
+视频：东京樱花团/中文小视频组
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_9.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_10.png)
-***发布：小红帽***
+11月17日，郭文贵先生在GTV大直播指出：
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+法治基金大额捐款者，GCLUB的会员，新GTV和老GTV投资者，喜马拉雅币拥有者都有代理权资格。想要代理Hpay的战友首先要阅览Hpay代理标准，由农场和战友之间做代理协议SOP签约。客户方要在喜联储开企业账号，让存款美元与HDO、HCN连接，Hpay上线后账户之间即可转帐运作。
 
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
