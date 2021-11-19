@@ -2,47 +2,89 @@
 ---
 
 
-## 前工党议员投反对票，安德鲁斯大流行病法案面临夭折
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1677014/)
+## 视频| 解读中共的“十大坚持”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1677074/)
 
-**整理报道：文泓**
+制作：香草山视频部
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/222222222.jpg)图片来源：ABCNEWS
 
-维多利亚州工党元老，前工党议员艾德姆·索缪里克表示，他将阻止安德鲁斯政府通过有争议的大[流行病法案](https://www.9news.com.au/national/coronavirus-update-victoria-chief-health-officer-to-no-longer-have-final-say-on-handling-of-pandemic/e4f971a5-c4c9-4183-85e0-78b2225a9ba8)，此举将破坏该立法在维多利亚州上议院的通过。
 
-索缪里克先生在去年因不当招聘指控而被工党抛弃后，现已返回州议会作为独立议员坐在交叉席位上。
+十个坚持的结果
+坚决不改革开放
+坚决把私有经济灭掉
+控制中国的一切
+坚持绝对的皇帝制
+台湾你知道是什么概念吗？
+人家明确告诉你了
+你不要来尝试问我怎么看
+台湾是我的一部分
+你但凡尝试，头破血流
+我会马上迅速采取果敢行动
+已经明确告诉你我随时打它(台湾）
+我来给你们介绍一下
+坚持党的领导
+这个王八蛋
+党在人民之上，人民永远是脸朝上
+第二个坚持理论创新
+你(共产党)是共产主义
+你(共产党)有什么理论创新
+不就是编瞎话嘛
+坚持独立自主
+也就是跟世界经济脱钩、技术脱钩
+坚持中国道路
+那就是跟外国人完全走不一样的路
+那就是独立、脱钩嘛
+坚持胸怀天下
+你看看七哥蒙对了吧
+胸怀天下..就是要领导全世界
+这个词儿都写出来了，哇塞
+坚持开拓创新
+开拓创新和独立自主、理论创新
+有啥不一样？
+也就是又是科技创新
+就是放屁的话
+坚持敢于斗争
+就是说谁不听我话，我就弄死你个球的
+不管国内国外
+坚持统一战线，继续搞情报
+对内搞朝阳群众，对外搞蓝金黄嘛
+坚持自我革命
+这些放狗屁的话
+上面都听党的了
+人民至上是假的了
+从这十个坚持你看到什么了？
+中南坑这帮人是没人了
+没有人超过小学五年级文化
+而且完全是跟世界脱钩
+经济脱钩、科技脱钩、思想脱钩
+然后就是要对内部就是统治
+习(近平)啥都不想了
+老子就当着皇帝了，活一天是一天
+爱谁谁谁…就耍混的了
+然后对外蓝金黄
+对内搞朝阳群众
+你不行就整死你，上下举报
+如果你没认真研究六中全会这些东西
+那你不懂得
+新中国联邦咱为啥诞生
 
-“如果我继续担任安德鲁斯内阁的成员，我会认为该法案是个坏主意，因为它赋予政府太多权力”，他说：“我不会支持目前形式的这项法案，我会鼓励政府重新起草并进行更广泛的协商。”
 
-索缪里克先生投票反对该法案的决定，使得维州政府的计划陷入混乱，因为如果已经表示反对该法案的其他八名交叉议员也投反对票，该法案将无法通过。
 
-如果该法案未能在紧急状态规定到期前的两周内通过议会审议，维州政府将无法执行任何大流行命令。
+发稿：雪梨
 
-目前，只有三名交叉议员表示支持该法案，包括绿党议员萨曼莎·拉特南、动物正义党的安迪·梅迪克和理性党领袖菲奥娜·帕滕。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
 
-“由于工党控制着两院，让议会无法再履行其审查职能，（现在）通过内阁和核心小组进行的内部审查和集体决策更为重要，”索米雷克先生说。
+**更多资讯，更多关注**
 
-“这让（州长）安德鲁斯成为唯一的决策者，这在复杂的现代政府中是不可接受的。”
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-在受到律师和人权活动家的强烈批评后，维州政府周一宣布了对该法案的七项重要修正案，但一些批评者表示，这些变化还不够。
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-维州[抗议者们已连续第四个晚上睡在议会的台阶上](https://www.9news.com.au/national/coronavirus-victoria-updates-covid-19-restrictions-to-ease-at-90-per-cent-vaccination-revealed/c889a05e-93a1-4168-8920-dd5ebedfa5f4)，反对大流行法案。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-维州政府正在寻求推迟对该法案的辩论，以获得通过该法案所需的支持。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-州长丹尼尔·安德鲁斯今天表示，大流行法是必要的，以确保一旦紧急状态权力于12月15日到期，规则可以继续实施。
-
-新闻链接：[Victoria pandemic bill: Adem Somyurek has threatened to vote against proposed law (9news.com.au)](https://www.9news.com.au/national/former-labor-mp-adem-somyurek-vows-to-vote-against-victorias-pandemic-bill/69a59a81-07b0-4720-bd40-3e71b113bf77)
-
-*发布： 热锅小蚂蚁*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,20 +2,41 @@
 ---
 
 
-## 2021年11月18日郭先生盖特 — 视频盖特「2分32秒」
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1676892/)
+## 阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1676922/)
 
-听写：洛杉矶盘古农场 — 盘古小蚂蚁
+作者：香草山金融部 – 闲聊钱币
 
-Video link: [https://gettr.com/post/pha9c3cef4](https://gettr.com/post/pha9c3cef4)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/DFD26AB2-71EC-4305-8873-9577428420B1.png)
-太不容易了，兄弟姐妹们，别忘了健身呐！别有了钱了没命享受好日子了。
 
-疫苗7哥说过吧？ — “疫苗一定咱们能给它停了的” 放心，有更多国家政府现在已经慌了，觉得我们爆的料，提供的信息和发生的情况都证明了。是的，疫苗灾难比病毒还可怕。
 
-共产党正在准备另外一波的放毒。兄弟姐妹们，信不信咱不强求，咱只做力所能及认为正确的事，做自己喜欢又能做到的事就够了。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
 
-太可怕了，多少人打了疫苗？现在害怕了吧？还没开始呢。未来的人类，新中国联邦人比什么都珍贵。精子、卵子，没打过疫苗的人的精子、卵子是最贵的。新中国联邦人太伟大了，俺要继续锻炼了。今天没有直播，所有国内战友快睡觉吧。
+
+
+路透社伦敦11月18日报道，中共国的大型电商阿里巴巴股价周四盘前暴跌10.3%。官方给出的理由是消费放缓，竞争加剧，以及监管部门的打击。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1005-1.jpg)
+这些理由看似都很有道理，但是并未揭开表面原因背后的深层含义。首先来说消费放缓。没错，老百姓买买买的动力的确是慢下来了。韭菜们已经快被连根拔起了，哪里还有能力自身消费？再来看看竞争加剧。从来商场如战场，竞争一直都存在着。凡是购买过淘宝商品的人几乎都知道淘宝上假冒伪劣商品泛滥，由此导致的客商纠纷从未断过。这样一个不以商品品质盛出的店家终将被淘汰。最后，监管部门的打击绝不是要维护法律的公平公正，而是要杀鸡取卵，给中共摇摇欲坠的经济打点儿鸡血。
+
+马云被限制自由，蚂蚁金服募资暂停，阿里巴巴股价暴跌，这一切都只是中共内斗的冰山一角。
+
+（本文仅代表作者观点）
+
+参考来源：[阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%](https://www.reuters.com/business/chinas-alibaba-misses-quarterly-revenue-expectations-2021-11-18/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Nomura%20JP%2011-18-21%20Sponsorship&amp;utm_campaign=Nomura%20JP%2011-18-21%20Sponsorship)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
+
 
  
 
