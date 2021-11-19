@@ -2,26 +2,36 @@
 ---
 
 
-## 是谁辜负了中共国1076万毕业生？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1677715/)
+## 万事达卡将推出亚太地区首张加密货币信用卡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1677734/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-104.jpg)
-[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2Fyataibaodao%2Fjingmao%2Fgf1-12022020072803.html%2F%40%40images%2F9f544346-ad53-4b89-99db-38c2472b8274.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2Fyataibaodao%2Fjingmao%2Fgf1-12022020072803.html&amp;tbnid=p8aLkEWN-2GTuM&amp;vet=12ahUKEwiOtI_xvaT0AhX6hNgFHfncAwEQMygHegUIARC4AQ..i&amp;docid=n9aSrhbQM0cp7M&amp;w=620&amp;h=348&amp;itg=1&amp;q=%E9%AB%98%E6%A0%A1%E6%AF%95%E4%B8%9A%E7%94%9F&amp;ved=2ahUKEwiOtI_xvaT0AhX6hNgFHfncAwEQMygHegUIARC4AQ)
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，万事达卡公司宣布，即将推出亚太地区首张与加密货币连动的信用卡。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-19-下午9.24.35.png)
+消息称，万事达卡将与泰国和澳洲的3家加密货币服务公司合作，帮助用户直接将数字资产转换为通用法币进行支付。
 
-11月19日中国青年网报道，教育部、人力资源和社会保障部19日在京召开2022届中共国普通高校毕业生就业创业工作网络视频会议，部署做好2022届高校毕业生就业创业工作，2022届高校毕业生规模预计1076万人，同比增加167万人。
+据万事达卡在亚太地区所作的市场调查发现，接近一半的受访者表示，会考虑在2022年使用加密货币。
 
-中共国年年都是最难毕业季，随着大学的扩招，应届生人数逐年增加，近些年中共国经济困难，就业难度越来越大，就业竞争愈加激烈，这也就有了中共国大约700万外卖骑手，将近30万硕士和本科生送外卖的新闻，其中本科学历的有21万，硕士学历的有7万。一个家庭，把一个孩子从小培养到大，读完大学、硕士，培养成硕士，最后只能去送外卖，这都是中共国腐败制度下的牺牲品，所谓的是为了生活，其实仅仅是活着而已。是辜负了文凭呢，还是文聘辜负了自己？
+相关评论表示，加密货币正在逐渐被世人接受并落实在实际生活的层面上。因此，应运而生的喜币因着其独一无二的优越性，注定将在未来拥有无限可能的发展空间。
 
-信息来源：
+参考链接：
+1）[萬事達卡在亞太區推首張加密貨幣信用卡](https://ec.ltn.com.tw/article/breakingnews/3731062)
+2）[嗅到元宇宙商機 萬事達卡發行亞太區首張加密貨幣卡](https://www.cna.com.tw/news/afe/202111180420.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-[两部委：2022届高校毕业生规模预计1076万人](https://me.mbd.baidu.com/r/wEx6PJGT04?f=cp&amp;rs=3111343186&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=d315d2c923218c8b)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-4.png)
+总编：Irene木木
+编辑：AN
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

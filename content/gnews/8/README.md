@@ -2,36 +2,39 @@
 ---
 
 
-## 万事达卡将推出亚太地区首张加密货币信用卡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1677734/)
+## DC每日热点1119
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1677802/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，万事达卡公司宣布，即将推出亚太地区首张与加密货币连动的信用卡。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-19-下午9.24.35.png)
-消息称，万事达卡将与泰国和澳洲的3家加密货币服务公司合作，帮助用户直接将数字资产转换为通用法币进行支付。
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/11/665A04DF-BFA9-4B86-98D7-68510837DDEE-scaled.jpeg)
+道琼斯指数 35870.95 ▼0.17%
+纳斯达克指数 15993.71 ▲0.45%
+WTI纽约原油CFD 75.785 ▼3.31%
+布伦特原油CFD 78.627 ▼3.25%
+标普中概股50指数 3,573.32CNY▼-24.97%
+美元兑人民币 1USD=6.390RMB
+美元兑港币 1USD=7.792HKD
+国际黄金 1861.18 美元/盎司
+全球CCP病毒感染人数 256,528,787 例
 
-据万事达卡在亚太地区所作的市场调查发现，接近一半的受访者表示，会考虑在2022年使用加密货币。
+1、立陶宛挺台 美国以出口信贷协议支持，中共官媒恶言相向
+2、中俄军机飞入韩国防空识别区
+3、拜登表示正在考虑对北京冬奥会进行外交抵制 有议员呼吁全面抵制
+4、美国议员推动让台湾参与国际刑警组织
+5、美中等多国考虑联合释放石油储备，为油价上涨降温
+6、中共游说让缅甸军政府参加中共国-东盟峰会，遭到东盟成员国反对
+7、布林肯访问尼日利亚，讨论美国的非洲政策
+8、美政府与辉瑞达成协议 购1千万疗程新冠口服药
+9、日本外务大臣18日通话与中共外长王毅，明确表示台海和平稳定很重要
+10、在“恶势力”打压下“以退为进”，香港童装品牌Chickeeduck宣布撤离香港
+11、墨西哥出现2000移民潮大篷车队 1个月内2批
+12、乌克兰警告：面对自白俄罗斯的移民潮冲击边境时将会开枪
+13、联合国要中共国提供证据证明彭帅安好
+14、美国报告：中共侵台风险高但非不可能 吁增威摄力及减中美经济关系 中方斥诽谤
+15、日本将通过史上最大规模经济计划 针对中共国威胁意味浓
+16、美中经济和安全审议委员会呼吁限制美国对华投资，称国安风险加剧
+17、 中印边境事务磋商协调工作机制第23轮谈判同意尽早解除部队对峙
 
-相关评论表示，加密货币正在逐渐被世人接受并落实在实际生活的层面上。因此，应运而生的喜币因着其独一无二的优越性，注定将在未来拥有无限可能的发展空间。
-
-参考链接：
-1）[萬事達卡在亞太區推首張加密貨幣信用卡](https://ec.ltn.com.tw/article/breakingnews/3731062)
-2）[嗅到元宇宙商機 萬事達卡發行亞太區首張加密貨幣卡](https://www.cna.com.tw/news/afe/202111180420.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
-
-总编：Irene木木
-编辑：AN
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
