@@ -17,6 +17,24 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@megapatriotnews 11/19/2021 6:46 PM (UTC)`
+
+🚨🇺🇸🚨🇺🇸 BOOM!! Kyle #Rittenhouse has been found #NotGulity on all charges #FreedomRings #Justice 
+![img](https://media.gettr.com/group22/getter/2021/11/19/18/46/9d68c2ec-6afa-65e4-fb41-99d93777fd5a/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
+`@trump_supporter 11/19/2021 7:12 PM (UTC)`
+
+Not going to lie, I almost cried when he broke out. 
+![img](https://media.gettr.com/group20/getter/2021/11/19/19/12/fee01bbe-9868-b610-52bb-83c6971a6d91/out.jpg)
+
+---
+
 `@miles 11/19/2021 1:07 PM (UTC)`
 
 2021年11月19日 文贵大直播：阿里巴巴股市暴跌；国际市场资金短缺；数字货币法币共存；“灭疫”战斗将胜利
@@ -286,20 +304,6 @@ Shop 'The Drop' at www.GFashion.com<br/><br/>@gfashion <br/>@ddnyc
 
 11/15/2021 Miles Guo’s GETTR: The CCP's digital RMB (DCEP) will surely be disastrous, while the great financial system of the New Federal State of China has emerged right in time; when the CCP cannot control the currency, it won’t be able to slaughter the 1.4 billion Chinese people or take over TSMC<br/><br/>11/15/2021 文贵盖特：中共的数字人民币必将是一场灾难，而新中国联邦的伟大的金融系统却在此时应运而生；当中共无法控制货币时，它将无法屠戮14亿中国人或接管台积电<br/>
 ![img](https://media.gettr.com/group1/getter/2021/11/15/23/37/e5c50f3b-78cc-3a40-09af-1e9d10b2b54a/out.jpg)
-
----
-
-`@miles 11/15/2021 10:10 PM (UTC)`
-
-11/14/2021 Miles Guo’s GETTR: Communist China’s economy is not looking good after the end of the Sixth Plenary Session: The stocks are falling on debut, China Concept Stocks are being sold off massively, various countries are cancelling the currency swap with RMB, and the enterprises in numerous provinces are having difficulty paying wages<br/><br/>11/15/2021 文贵盖特：六中全会刚结束，中共国经济即显颓势：新股破发，中概股遭大量抛售，各国竞相取消与人民币之间的货币互换，多省企业发不出工资
-![img](https://media.gettr.com/group33/getter/2021/11/15/22/10/f14973d6-40b2-6a5b-aa6e-0e9fc92af464/out.jpg)
-
----
-
-`@miles 11/15/2021 6:53 PM (UTC)`
-
-11月15号乖乖嘞……【UAE迪拜可以用喜币喜美元购买房产了（第一篇）。我们迪拜当地公司已经正式和Danube Properties地产开发公司签订好了房地产代理销售协议，通过我们作为您在UAE的房地产经纪人，来和开发商对接，任何战友都可以用喜币喜美元来购买Danube开发的任何房产。Danube是UAE排名前十的的房地产开发商。】
-![img](https://media.gettr.com/group47/getter/2021/11/15/18/4b79720c-71ba-740f-5abf-432499cf9703/4aaccefcb8a6ef11b9d37abef8825025.jpg)
 
 ---
 
