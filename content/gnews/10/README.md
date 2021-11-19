@@ -2,8 +2,8 @@
 ---
 
 
-## 美议员要求白宫提供更多拜习会议信息，并称中共不可信
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1676571/)
+## 中共借口“节能减排”继续全面打压虚拟币
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1676644/)
 
 作者：英国喜庄园-I770775
 
@@ -13,15 +13,15 @@
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/参议员-1.jpeg)WASHINGTON, DC – JUNE 18: U.S. Senate Foreign Relations Committee Chairman Jim Risch (R-ID) speaks at a hearing June 18, 2020 in Washington, DC. (Photo by Caroline Brehman-Pool/Getty Images)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/喜币.jpeg)
 
-11月16日，美国参议院外交关系委员会排名第一的参议员吉姆·里施，就拜登总统与中共党魁习近平在线会晤发表声明，要求白宫提供更多会议信息，并提醒中共不可信。 声明说，虽然拜登政府希望在某些全球问题上与北京合作，但中共已经一再表明它不能被相信，它总是把共产党的利益放在整个世界的利益之上。 吉姆还提醒拜登政府，任何时候美国与中共政府接触时，都必须在台湾问题上发出强有力的威慑信息，并申明美国对加强台湾防御的承诺。
+11月16日，中共发改委表示，将全面整治虚拟币“挖矿”活动，对参与虚拟货币相关活动的行为将予以惩罚。这是今年9月中共发改委等10部门联合发布整顿虚拟币政策的升级版。至于为何禁止虚拟币，中共官方给出的理由是：虚拟货币是一种特定的虚拟商品，不由货币当局发行，不具有法偿性与强制性，不是真正的货币，不应该且不能作为货币在市场上流通使用。
 
-
+有战友分析说，中共打击虚拟币的唯一原因是刚刚上市的喜币给其所谓的法定货币带来了极大威胁。众所周知，中共所谓虚拟币的每一项“缺点”，恰好都正是去中心化且锚定黄金的喜币的优点。
 
 参考链接：
 
-[https://www.epochtimes.com/gb/21/11/17/n13380596.htm](https://www.epochtimes.com/gb/21/11/17/n13380596.htm)
+[http://china.qianlong.com/2021/1117/6535485.shtml](http://china.qianlong.com/2021/1117/6535485.shtml)
 
 总编：文徬
 
@@ -31,17 +31,19 @@
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![This image has an empty alt attribute; its file name is logo-5.jpg](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
 
  
 

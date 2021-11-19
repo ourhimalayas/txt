@@ -2,23 +2,19 @@
 ---
 
 
-## 樱花灭共诗——僭尊（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1676473/)
+## 个人账户提现的相关常识
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1676549/)
 
-#### 作者：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-炮轰催雪兆吉天，独角六中全会完。
+文编：东京樱花团/樱花传媒
+视频：东京樱花团/中文小视频组
 
-蛛网导图铭旧业，鼠仓加冕帝新冠。
+11月17日，郭文贵先生在GTV大直播指出：
 
-大国决议单核器，全会票投一指禅。
+根据法律规定各国的提现都是有金额限制的，个人账户能每天超高额提现的机构是不存在的。作为国际金融监管的方式，必须遵守。所以喜联储要根据当地的法律规定来决定提现金额。
 
-倾亿党徒尊僭主，可知膝下竟无男。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/E3DF5A53-DE76-4124-8348-A76302424C91.jpeg)
-*插图：东京樱花团/闪闪*
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
