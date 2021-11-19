@@ -2,32 +2,47 @@
 ---
 
 
-## 有声|中共国又一名抗疫医生猝死
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1676535/)
+## 中共公布第三个重大历史决议，重回皇权专制老路
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1676699/)
 
-配音：香草山教育部 – Rita七号小青蛙
+作者：新西兰伊甸农场 亚伦
 
-当地时间11月13日，中共媒体报道称，一名一线抗疫医生突发性死亡，年仅三十岁。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-5.jpg)
 
-资料显示，逝者名为李鸿雁，原是一位血液内科医生，疫情期间，其所在的发热门诊任务更为繁重，李鸿雁前去支援，最终却倒在了完成任务之后的隔离期。
 
-另据报道，中共国强推毒疫苗的第一批受害者大多为医护人员，且疫苗接种与否往往与相关人员的工作、晋升密切相关。值得注意的是，疫情期间，中共国内猝死的医生人数已远超因感染新冠病毒死亡的人数。
 
-郭文贵先生曾在直播中爆料，当前中共国内的医护人员极为短缺，其主要原因在于，大多数医护人员被强制接种了新冠毒疫苗，其后许多人仍然感染了新冠病毒，从而导致并发症，甚至死亡。而中共新冠疫苗来带的次生灾难，以及由此引发的医护人员猝死等现象或将形成一个死循环，最终会导致中共国内医疗系统的全面崩塌。
 
-文字版原文：[中共国又一名抗疫医生猝死](https://gnews.org/zh-hans/1672215/)
 
-音频处理：喜山必胜Maverick
+![](https://assets.gnews.org/wp-content/uploads/2021/11/ezgif.com-gif-maker-3-1.jpg)（图片来自路透社）
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+在11月17日的大直播中，郭先生透露，就在拜习会议四个小时后，本届中共六中全会结束后没有马上公告的所谓第三个重大历史决议被公之于众。
+
+中共别有用心的时间安排，是想让美国为他们的第三个历史决议背书，至少是让墙内的中国人看到美国“支持”习大神。紧接着中共喉舌新华社抛出 “十个坚持”的历史经验，宣告中共国彻底停止改革开放，进入新文化大革命时代，曾经的一党独裁，将进一步升级皇权专制。
+
+参考链接：
+
+[https://gnews.org/zh-hans/1672935/](https://gnews.org/zh-hans/1672935/)
+
+总编：Irene木木
+
+校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-4.png)
+
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

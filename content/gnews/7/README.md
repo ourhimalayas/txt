@@ -2,37 +2,44 @@
 ---
 
 
-## SK海力士升级计划受阻 美防中共获先进芯片技术强化军力
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1676911/)
+## 新中国联邦教育组将规划儿童网络教学方案
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1676983/)
 
-#### 撰稿：日本东京方舟农场  海星
+作者：纽约香草山农场福音部-恩永存
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
+在11月17日的大直播中，郭文贵先生表示，在当前的疫情下，新中国联邦将规划针对儿童的网络教育，并提出六点建议：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-438.png)
+第一，   不向学生收取任何费用。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/0AE6D7C8-AA4A-4C0B-A18E-D5039740D1B8.jpeg)（图片来源：路透社）
+第二，   教学时间、教学内容、教学标准由联盟教育组商讨决定。
 
-11月18日，据知情人士透露，韩国半导体大厂SK海力士原先计划升级其中共国工厂的芯片生产设施，但由于美国担忧中共利用先进芯片技术强化军事力量，该计划目前陷入困境。
+第三，   教师由各农场优选有教育资质的老师授课。
 
-据《路透社》报道，有3位知情人士表示，全球最大的动态随机存取记忆体（DRAM）晶片供应商之一、韩国半导体大厂SK海力士，原定计划在其中共国的无锡厂房配备荷兰艾司摩尔（ASML）的最新极紫外光（EUV）微影技术芯片制造机，以升级量产设备。
+第四，   教师实行有偿服务原则，经费由法制基金承担。
 
-但据一位美国白宫高级官员透露，拜登政府担忧芯片技术会强化中共的军事力量，仍致力于防止中共利用美国和盟国的技术，开发最先进的半导体制造。因此，SK海力士的此项计划或存在潜在挫折。
+第五，   实行封闭式网络教学。
 
-SK海力士无锡厂对全球电子产业至关重要。该厂生产SK海力士约半数的DRAM晶片，占全球总产量的15%。据研调机构IDC估计，2021年全球记忆体市场的需求将增长19%，任何重大变化都可能影响全球记忆体市场。因此，在未来几年内，若上述情况得不到解决，SK海力士将落后于三星电子和美国美光。
+第六，   师生必须签保密协议。
 
-《路透社》的报道指出，在川普总统执政时期，美国与荷兰当局联手成功阻止ASML出售EUV光刻机给中共最大的晶片生产商中芯国际，以抑制其生产先进芯片的能力，遏止中共的军力扩张。 拜登上任后也延续相关政策。分析人士认为，针对SK海力士试图将EUV设备引入中共国，美国官员预计不会改变立场。
+愿新中国联邦教育事业健康发展，培养更多优秀人才。
 
-*参考链接：*
+新闻链接：https://gettr.com/post/ph567f4b1f
 
-1. [*https://cn.reuters.com/article/sk-hynix-china-wuxi-plant-1118-idCNKBS2I303Q*](https://cn.reuters.com/article/sk-hynix-china-wuxi-plant-1118-idCNKBS2I303Q)
-2. [*https://www.epochtimes.com/gb/21/11/18/n13383758.htm*](https://www.epochtimes.com/gb/21/11/18/n13383758.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
 
+编辑：文特/雪梨
 
-* * *
+总编：Irene木木
 
-*素材采编：海星*
+校正/发稿：浪迹天涯
 
-*编辑：青衣青青*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
