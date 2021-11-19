@@ -2,35 +2,36 @@
 ---
 
 
-## 有声| 毒疫苗，你的危害还要走多远？
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1677240/)
+## 比特币跌，还会跌，喜马拉雅币涨，还会涨
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1677298/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据华盛顿11月17日（路透社）报道，白宫协调员Jeff Zients周三表示，美国计划投资数十亿美元扩大中共病毒疫苗的生产能力，每年可多提供10亿剂。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-103.jpg)[图片来源](https://www.facebook.com/photo/?fbid=113234821028412&amp;set=p.113234821028412)
+比特币周五跌至一个月低点，并将迎来六个月来最糟糕的单周表现，因为交易员针对一波长线涨势了结获利，而且已倒闭的加密货币交易所MtGox的债权人可能清算其款项的预期令市场受到惊吓。
 
-Zients还说，政府正准备向mRNA疫苗制造商提供大量帮助，以扩大基础设施的建设和人员的培训。这些新设施将在2022年投入运行。
+亚洲交易时段，比特币下跌1.6%，报55,980美元，为10月中旬以来最低水平，较上周所及纪录高点低了20%。本周比特币已下挫14%，跌破50日移动均线。Dibb表示，市场中出现获利了结，而且东京法院签署了偿还MtGox债权人的计划，引发进一步下跌的担忧。MtGox是一家加密货币交易所，2014年在比特币交易中损失5亿美元后倒闭。“受到影响的人将收到一大笔比特币，可能会在2022年第一季或第二季。较长期来看这给市场带来一些疑虑，”他说，因预期那些债权人可能是卖家。
 
-媒体平台GTV, Gettr上有大量视频文章显示疫苗对人体的危害，文贵先生也多次强调强制推广疫苗的接种无异于杀人行为。但是以美国为代表的这些政府机构，科技公司，黑暗势力相互勾结，利益至上，不顾人民死活。据GTV News Talk 17日早间报道，辉瑞等三大疫苗公司每秒钟可获利1000美元！
+按市值计算第二大加密货币–以太币周五在三周低点4,014美元附近持稳，但周线或下跌14%。以太币和比特币似乎也受到了影响，因为最近几天全球市场一致弥漫谨慎情绪，因担心经济增长、利率和通胀。“但未来几个月可能会波动，因为机构投资者在观察美联储是否会被迫提早加息，并引发包括比特币在内的风险资产普遍遭遇抛售。”
 
-在这么巨大的经济利益面前，全世界的普通百姓都成为他们实验室里的小白鼠。更为可悲的是这为白宫发言人表示今天晚间将有260万5-11岁的儿童接受他们的第一针毒疫苗。可怜啊，我们的下一代。
+然而本月在加密货币市场上，却有一个加密货币逆势上涨，在11月1日新诞生的加密货币“喜马拉雅币”上市以来每日上涨，截至11月19日16点价格稳步上涨至36.8美元，单日涨幅4.13%，区别于比特币之类的以洗钱和投机炒作为卖点的加密货币，喜马拉雅币则突出自身的财富保值和商业流通属性。
+
+喜马拉雅金融体系近期将推出的喜支付(Hpay）将与喜马拉雅美元（HDO）与喜马拉雅币（HCN）共同构建全球第一个加密货币生态系统；作为稳定币的HDO，为HCN的发展降低了市场波动和恶意挤兑的风险；HCN为HDO和Hpay提供了最大的升值希望和理财机会；Hpay奠定了HDO和HCN的流通性基础，所以喜马拉雅币一诞生就受到世界各地的投资人青睐，才能在一众加密货币快速下跌的市场行情中，独树一帜逆势上扬，这还只是刚刚开始，未来前途不可限量。
+
+消息来源:
+
+**[比特币料录得六个月来最差单周表现MtGox破产清算风险迫近](https://cn.reuters.com/article/bitcoin-weekly-1119-fri-idCNKBS2I40AW?il=0)**
+
+**2021****年11月17日郭文贵先生直播全文字版**
 
 
 
-文字版原文：[毒疫苗，你的危害还要走多远？](https://gnews.org/zh-hans/1672829/)
+> [2021年11月17日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1675487/)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
 
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

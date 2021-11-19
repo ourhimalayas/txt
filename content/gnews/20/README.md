@@ -2,16 +2,20 @@
 ---
 
 
-## 加密货币抛售
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1677263/)
+## 西媒头条 — 第113期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1677350/)
 
-由于美国税务问题，加密货币抛售趋于稳定。比特币价格下跌了约5%，但后来稳定在6万美元左右。周二大部分加密货币走低，这是交易员对美基础设施法案签署做出的反应，该法案内容包含有争议性的加密税收报告要求。
+制作：蚂蚁兄弟
 
-加密策略平台AlphaImpact首席执行官海登休斯(HaydenHughes)在SeekingAlpha周二的时事通讯中指出：“我们已经看到美国基础设施法案的签署，这引发了担心监管和税收的交易者对数字货币的抛售”。
-![img](https://media.gettr.com/group9/getter/2021/11/17/05/14/4650ad1b-5e50-e1ce-a59c-550f53a6e29a/bea35aab5a70dcc49638c7802f4c73b9_500x0.jpg)
-参考链接：[https://www.coindesk.com/markets/2021/11…](https://www.coindesk.com/markets/2021/11/16/market-wrap-cryptocurrency-sell-off-stabilizes-amid-us-tax-concerns/)
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
 
-（文章内容仅代表新西兰-财经G乐部节目观点）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/xm1119.001.jpeg)
+
+* * *
+
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+
 
  
 
