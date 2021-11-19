@@ -2,26 +2,44 @@
 ---
 
 
-## 是谁辜负了中共国1076万毕业生？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1677715/)
+## 美国国会报告认为香港已经“中共化”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1677735/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-104.jpg)
-[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2Fyataibaodao%2Fjingmao%2Fgf1-12022020072803.html%2F%40%40images%2F9f544346-ad53-4b89-99db-38c2472b8274.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2Fyataibaodao%2Fjingmao%2Fgf1-12022020072803.html&amp;tbnid=p8aLkEWN-2GTuM&amp;vet=12ahUKEwiOtI_xvaT0AhX6hNgFHfncAwEQMygHegUIARC4AQ..i&amp;docid=n9aSrhbQM0cp7M&amp;w=620&amp;h=348&amp;itg=1&amp;q=%E9%AB%98%E6%A0%A1%E6%AF%95%E4%B8%9A%E7%94%9F&amp;ved=2ahUKEwiOtI_xvaT0AhX6hNgFHfncAwEQMygHegUIARC4AQ)
+作者：日本樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月17日，据美国“美中经济与安全审议委员会”向国会提交的年度报告显示，在中共国安法下，香港的人权、司法、教育和营商环境正在不断倒退，已经逐步恶化至“中共化”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-19-下午9.24.43.png)
+报告提及，中共当局借由国安法扼杀香港的民主运动，打压香港异己政治势力，损害香港的营商环境及全球金融中心优势，剥夺港人的言论自由，还侵害了香港的司法独立性。
 
-11月19日中国青年网报道，教育部、人力资源和社会保障部19日在京召开2022届中共国普通高校毕业生就业创业工作网络视频会议，部署做好2022届高校毕业生就业创业工作，2022届高校毕业生规模预计1076万人，同比增加167万人。
+对此，委员会向美国国会提出了五大建议：
 
-中共国年年都是最难毕业季，随着大学的扩招，应届生人数逐年增加，近些年中共国经济困难，就业难度越来越大，就业竞争愈加激烈，这也就有了中共国大约700万外卖骑手，将近30万硕士和本科生送外卖的新闻，其中本科学历的有21万，硕士学历的有7万。一个家庭，把一个孩子从小培养到大，读完大学、硕士，培养成硕士，最后只能去送外卖，这都是中共国腐败制度下的牺牲品，所谓的是为了生活，其实仅仅是活着而已。是辜负了文凭呢，还是文聘辜负了自己？
+一、修改《香港自治法》，将中共是否控制香港政府侵犯香港人的移民自由纳入至年度报告中；
 
-信息来源：
+二、修改2000年签订的《美中关系法》第421条，重新考虑香港在国际贸易中的地位，避免中共通过香港逃避国际关税；
 
-[两部委：2022届高校毕业生规模预计1076万人](https://me.mbd.baidu.com/r/wEx6PJGT04?f=cp&amp;rs=3111343186&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=d315d2c923218c8b)
+三、鼓励国土安全部根据《移民和国籍法》行使权利，为申请进入美国的香港人提供临时入境许可；
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-4.png)
+四、美国司法部和商务部应要求美国在港公司提供季度报告，当中包括港共政府收集数据或删改内容的详细信息；
 
+五、司法部需对在美经营的媒体机构进行规整，要求由中共或港共政府控制的媒体根据《外国代理人登记法》在美国进行登记。
 
+参考链接：
+1）[2021 Annual Report to Congress](https://www.uscc.gov/node/862)
+2）[美国会报告形容香港”大陆化” 提出五大应对建议](https://www.rfa.org/mandarin/yataibaodao/gangtai/ac2-11182021065833.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+
+总编：Jack Li文阳
+编辑：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

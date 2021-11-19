@@ -2,36 +2,25 @@
 ---
 
 
-## 美特种部队重点为与中共国或俄罗斯的战争做准备
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1677670/)
+## 是谁辜负了中共国1076万毕业生？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1677715/)
 
-整理报道：七彩光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/ezgif-2-08f641f02c3c.jpg)图片来源：商业内幕
-11月18日，《新闻极限》引述《商业内幕》的报道，称美军特种作战部队正转移重点，为与中共国或俄罗斯的可能战争做准备。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-104.jpg)
+[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2Fyataibaodao%2Fjingmao%2Fgf1-12022020072803.html%2F%40%40images%2F9f544346-ad53-4b89-99db-38c2472b8274.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2Fyataibaodao%2Fjingmao%2Fgf1-12022020072803.html&amp;tbnid=p8aLkEWN-2GTuM&amp;vet=12ahUKEwiOtI_xvaT0AhX6hNgFHfncAwEQMygHegUIARC4AQ..i&amp;docid=n9aSrhbQM0cp7M&amp;w=620&amp;h=348&amp;itg=1&amp;q=%E9%AB%98%E6%A0%A1%E6%AF%95%E4%B8%9A%E7%94%9F&amp;ved=2ahUKEwiOtI_xvaT0AhX6hNgFHfncAwEQMygHegUIARC4AQ)
 
-根据该新闻媒体的报道，现在就有一些部队已经在夏威夷为此而进行训练，尤其是要在一个完全不同类型的战争中，寻找各种方法来与时俱进。
+11月19日中国青年网报道，教育部、人力资源和社会保障部19日在京召开2022届中共国普通高校毕业生就业创业工作网络视频会议，部署做好2022届高校毕业生就业创业工作，2022届高校毕业生规模预计1076万人，同比增加167万人。
 
-绿色贝雷帽（即美国陆军特种作战部队）占据美国特种作战部队的大部分，美国特种作战部队专注于非常规战争和外国内部的防御，例如向友军部队和游击队提供训练或咨询。但是，该新闻机构称绿色贝雷帽也可以进行战略侦察、反恐和直接行动，如突袭。
+中共国年年都是最难毕业季，随着大学的扩招，应届生人数逐年增加，近些年中共国经济困难，就业难度越来越大，就业竞争愈加激烈，这也就有了中共国大约700万外卖骑手，将近30万硕士和本科生送外卖的新闻，其中本科学历的有21万，硕士学历的有7万。一个家庭，把一个孩子从小培养到大，读完大学、硕士，培养成硕士，最后只能去送外卖，这都是中共国腐败制度下的牺牲品，所谓的是为了生活，其实仅仅是活着而已。是辜负了文凭呢，还是文聘辜负了自己？
 
-《商业内幕》称，在最近的训练演习中，来自第一特种作战部队的绿色贝雷帽与夏威夷第25步兵师的第三旅战斗队进行了合作，训练内容包括步兵作战的基础知识：小分队战术。
+信息来源：
 
-美国陆军特种作战司令部在最近的一份报告中，确定了面临与俄罗斯和中共国战争时，特种部队能够做出贡献的方式。在所有的措施中，包含在被准入的地区进行远程渗透，在纵深地区招募和训练当地游击队。
+[两部委：2022届高校毕业生规模预计1076万人](https://me.mbd.baidu.com/r/wEx6PJGT04?f=cp&amp;rs=3111343186&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=d315d2c923218c8b)
 
-文章说，根据《华尔街日报》10月份的报道，称面对中共国可能的对台湾的侵略，大约二十多名美国特种作战部队和支援部队成员一直在台湾进行训练，以努力加强台湾的防御能力。并且，官员还告诉《华尔街日报》称，这样的训练已经持续了至少一年。
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-4.png)
 
-**新闻来源**
-
-[US Special Forces Training for War With China or Russia](https://www.newsmax.com/newsfront/us-special-forces-hawaii-china-russia/2021/11/18/id/1045226/)
-
-**发布：七彩光**
-
-**更多资讯，请关注：**
-
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

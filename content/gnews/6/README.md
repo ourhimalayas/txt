@@ -2,18 +2,16 @@
 ---
 
 
-## 有声|全球“突然死亡”词条搜索创历史新高
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1677827/)
+## 有声|中共利用海外空壳公司盗取意大利军用无人机技术
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1677901/)
 
 配音：香草山美食部 – 玫瑰园
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据[零对冲](https://www.zerohedge.com/political/worldwide-search-trend-died-suddenly-spikes-record-highs)11月17日报道，一个全球范围内爆发的谷歌搜索趋势引起人们关注——词条“突然死亡”的搜索量在过去两个月中飙升至自2004年起的历史最高点。
+据华尔街日报11月15日报道，意大利警方经过几个月的调查发现，中共国的两家国有企业利用一家海外空壳公司，在意大利和欧洲政府不知情的情况下，控制了意大利的一家军用无人机生产商阿尔卑飞机公司，并将其知识及技术转移至中共国的一个新生产基地。 该公司生产的迷你无人机，可装在背包中，由一名操作人员快速部署，可在夜间执行侦察任务，曾被驻阿富汗的意大利空军使用。
 
-联想到不久前一篇题为“德国报纸强调最近倒下的足球运动员的不寻常的数量”的[文章](https://www.zerohedge.com/medical/german-newspaper-highlights-unusually-large-number-soccer-players-who-have-collapsed)，文章概述了德国报纸《柏林日报》“最近有异常多的职业和业余足球运动员倒下了”的报道，并表示，“虽然这不是死亡，但体育运动员的突然倒下似乎非常奇怪，可能与健康有关。”
+分析人士称，中共国国企在海外一贯的行事模式，通常是以民营空壳公司为掩护，获取掌握特殊技术企业的控制权，然后再将该公司的技术与智慧财产转移至中共国。 意大利警方表示，中共的做法是对技术的掠夺性投资，这在意大利是被禁止的。
 
-近期，越来越多的普通人、运动员及政治家突然倒地，而这些人大多都施打了疫苗。人们应密切关注这一时所罕见的趋势。
-
-文字版原文：[全球“突然死亡”词条搜索创历史新高](https://gnews.org/zh-hans/1673186/)
+文字版原文：[中共利用海外空壳公司盗取意大利军用无人机技术](https://gnews.org/zh-hans/1674065/)
 
 音频处理：喜山必胜Maverick
 发稿：Fei797
@@ -25,8 +23,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
