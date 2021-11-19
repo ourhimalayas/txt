@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/19/2021 1:07 PM (UTC)`
+
+2021年11月19日 文贵大直播：阿里巴巴股市暴跌；国际市场资金短缺；数字货币法币共存；“灭疫”战斗将胜利
+![img](https://media.gettr.com/group12/origin/2021/11/19/12/d7ca091b-b3d1-7e6f-da3f-202de71c1e95/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 11/19/2021 12:45 PM (UTC)`
 
 One Southern California Mayor takes a stand against 'totalitarian' vaccine mandates and restrictions<br/><br/>一位南加州市长反对“极权主义”的疫苗强制和限制
@@ -293,13 +300,6 @@ Shop 'The Drop' at www.GFashion.com<br/><br/>@gfashion <br/>@ddnyc
 
 11月15号乖乖嘞……【UAE迪拜可以用喜币喜美元购买房产了（第一篇）。我们迪拜当地公司已经正式和Danube Properties地产开发公司签订好了房地产代理销售协议，通过我们作为您在UAE的房地产经纪人，来和开发商对接，任何战友都可以用喜币喜美元来购买Danube开发的任何房产。Danube是UAE排名前十的的房地产开发商。】
 ![img](https://media.gettr.com/group47/getter/2021/11/15/18/4b79720c-71ba-740f-5abf-432499cf9703/4aaccefcb8a6ef11b9d37abef8825025.jpg)
-
----
-
-`@miles 11/15/2021 4:59 PM (UTC)`
-
-11月15号：尊敬的战友们好，我们开始吃馍馍．吃饭饭喽……
-![img](https://media.gettr.com/group22/getter/2021/11/15/16/59/2fa1457f-f57d-581f-d8d5-0963ab644c5c/out.jpg)
 
 ---
 
