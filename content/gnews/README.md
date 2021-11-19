@@ -120,13 +120,13 @@
 ### [房地产公司正越来越多地接受加密货币](/content/gnews/35/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [参议员怒批拜登不提病毒溯源](/content/gnews/36/README.md)
+### [美国会年度报告称中共已初步具备侵台能力](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [FDA计划对成年人批准辉瑞疫苗加强针](/content/gnews/37/README.md)
+### [参议员怒批拜登不提病毒溯源](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [辉瑞允许仿制商在多国试验新冠药物](/content/gnews/38/README.md)
+### [FDA计划对成年人批准辉瑞疫苗加强针](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
 ### [七哥说—第29期](/content/gnews/39/README.md)
