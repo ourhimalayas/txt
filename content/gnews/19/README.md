@@ -2,15 +2,39 @@
 ---
 
 
-## 中财办副主任韩文秀：慈善捐赠是自愿行为，绝不能“杀富济贫”“杀富致贫”
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1677212/)
+## 有声| 美国劳工部职业安全与健康管理局暂停执行疫苗强制令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1677236/)
 
-财经G评：中共的历史无数次证明，谁信了这些承诺，谁就会被中共吃的渣都不剩！当中共官员戳破这层窗户纸的时候，就是中共大开杀戒的时候。这些官员开始说：绝不能“杀富济贫”“杀富致贫”，不能搞“逼捐”，背后就是在说：绝对能/绝对可以/绝对会这么干…
-![img](https://media.gettr.com/group10/getter/2021/11/12/12/14/a69a5c3c-72c4-2083-1acf-51081fc897e1/80c04497363edd27f120839c3330084d_500x0.jpg)
-参考链接：[https://finance.sina.com.cn/jjxw/2021-11-12…](https://finance.sina.com.cn/jjxw/2021-11-12/doc-iktzscyy5099030.shtml)
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据[零对冲](https://www.zerohedge.com/markets/osha-suspends-enforcement-vaccine-mandate-after-court-block)11月17日报道，在被法院阻止后，美国劳工部职业安全与健康管理局（OSHA）已经暂停执行拜登政府对私营企业的中共病毒疫苗强制令。
 
-（文章内容仅代表新西兰-财经G乐部节目观点）
+此前，法院曾在11月6日颁布了暂时停止执行疫苗强制授权的命令，要求美国劳工部职业安全与健康管理局“在法院下达进一步指令前，不得采取任何措施来实施或执行该疫苗强制令”。
 
+在随后的11月12日，新奥尔良第五巡回上诉法院驳回了拜登政府的诉求，并重申了搁置美国劳工部职业安全与健康管理局的疫苗强制令的决定。
+
+该强制令要求拥有100名或以上员工的企业要确保雇员在2022年1月4日前接种中共病毒疫苗，或每周接受测试并佩戴口罩。
+
+第五巡回法院在11月12日的重申中指出，拜登政府的疫苗强制令 “引发了严重的宪法问题”，“很可能超出了联邦政府的权限”。
+
+美国至少有27个州，以及私人雇主、宗教组织和其他团体起诉拜登政府，声称它在发布这一授权时超越了其权限。
+
+
+
+文字版原文：[美国劳工部职业安全与健康管理局暂停执行疫苗强制令](https://gnews.org/zh-hans/1675835/)
+
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

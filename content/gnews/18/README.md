@@ -2,15 +2,27 @@
 ---
 
 
-## 岸田文雄的40万亿日元经济刺激计划
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1677213/)
+## 有声|
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1677237/)
 
-日本首相岸田文雄誓言要在11月19日宣布一项“价值几十万亿日元”的刺激计划。岸田文雄的地位因上月选举的胜利而得以巩固。疫情以来日本已经成为工业化国家中公共债务最沉重的国家。
-![img](https://media.gettr.com/group30/getter/2021/11/15/12/02/76a4089a-d4b0-d341-b24a-3d7f8d3833c6/1c2b51310db305b50e238f71a322bf66_500x0.jpg)
-参考链接**🔗**：[https://cn.reuters.com/article/japan-e…](https://cn.reuters.com/article/japan-economy-stimulating-plan-1113-idCNKBS2HY048?il=0)
+配音：香草山教育部 – Rita七号小青蛙
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/1117text-SC.png)
 
-（文章内容仅代表新西兰-财经G乐部节目观点）
 
+文字版原文：[GTV新闻访谈简报|2021年11月17日晚](https://gnews.org/zh-hans/1673585/)
+
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

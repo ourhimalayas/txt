@@ -2,12 +2,36 @@
 ---
 
 
-## 财经G评之元宇宙
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1677190/)
+## 塞雷娜·威廉姆斯对中国网球明星彭帅的失踪感到 ＂悲恸和震惊＂
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1677228/)
 
-自11月1日开始“元宇宙”一词被不断刷屏，Facebook的更名让“元宇宙”一词成为了人们热议的话题。Facebook更名的真正原因是“元宇宙”本身的含义吗？这点我们不得而知，但是论起“拿来主义”、蹭热点和制造虚假信息来利多资本市场，中共国真是玩到了登峰造极的地步！Facebook更名玩起“元宇宙”股票没怎么涨，但中共国股市靠着蹭热点已经频频涨停！这还不够，又马上推出了“中国首家元宇宙行业协会……”世界探讨“元宇宙”发展方向的时候，中共国已经开始落实：元宇宙与割韭菜之间的辩证关系了。
-![img](https://media.gettr.com/group20/getter/2021/11/12/12/10/f3b356d7-6179-21ae-67a7-06bc6d7d063a/d7045af4f8a3e694cf5c6f74ee08ea14_500x0.jpg)![img](https://media.gettr.com/group20/getter/2021/11/12/12/10/fb0f2219-39b8-f870-8d68-ed953626bf22/e22edd67be6443c6721f087a1ce48717_500x0.jpg)![img](https://media.gettr.com/group24/getter/2021/11/12/12/11b93437-f512-bf0d-972b-1796042ac9ca/97444248f3c6e59807c6686e2b69ec05_500x0.jpg)
-**（文章内容仅代表新西兰-财经G乐部节目观点）**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/22222.png)图片来源：雅典娜农场
+翻译：文扬 编辑：朝花夕拾
+
+彭帅自从对一名前中国政府官员提出性侵犯指控以来，她一直没有公开露面。塞雷娜·威廉姆斯表达了对彭帅的担忧。
+
+塞雷娜·威廉姆斯加入了对中国网球明星彭帅的行踪进行调查的呼吁。
+
+越来越多的球员和组织对这位35岁的球员（彭帅）的安全表示担忧， 塞雷娜·威廉姆斯，这位23次大满贯冠军是最新加入的一位成员，自从两周前彭帅对一名前中共政府官员提出性侵犯指控后，她就再也没有出现过。
+
+中国官方媒体周四发布了一封声称来自中国球员的电子邮件，但随着担忧的不断加剧，该电子邮件很快被删除。
+
+塞雷娜·威廉姆斯：＂听到我的同龄人彭帅的消息，我感到非常悲恸和震惊，希望她平安，尽快找到。 必须对此进行调查，我们不能保持沉默。 在这个极其困难的时期，向她和她的家人表达我的关爱。＂
+
+女子网球协会主席史蒂夫西蒙坚持认为必须听到彭帅的声音，暗示这个问题可能会危及巡回赛在中国的未来，尽管涉及巨额资金。
+
+资料来源：IPA/Sipa USA [Serena Williams ‘devastated and shocked’ over missing Chinese tennis star Peng Shuai (sbs.com.au)](https://www.sbs.com.au/news/serena-williams-devastated-and-shocked-over-missing-chinese-tennis-star-peng-shuai/aba3440e-5272-42b3-a06e-0a531b64000e?utm_source=newsshowcase&amp;utm_medium=gnews&amp;utm_campaign=CDAqEAgAKgcICjDNi4ELMMz8-wIwsoQp&amp;utm_content=rundown)
+
+发布：kk
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
 
  
 

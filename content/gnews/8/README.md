@@ -2,31 +2,31 @@
 ---
 
 
-## 有声| 参议员怒批拜登不提病毒溯源
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1677239/)
+## 财经G乐部：数字货币知识分享-1
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1677345/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月17日，美国参议员乔尼·恩斯特在接受媒体采访时指责，拜登在与习近平的视频会谈中“被抽掉了脊梁骨”，闭口不谈新冠病毒疫情的起源问题。
+如何理解郭先生说的“喜币交易去中心化和责任的中心化”？责任中心化与数字货币去中心化的概念矛盾吗？
 
-恩斯特表示，新冠溯源是每个美国人最关心的问题，美国需要彻查新冠病毒的真相，从而防止未来发生类似事件的可能性。恩斯特强调，拜习视频会议进行了三个多小时，当中讨论了贸易、人权等方面，却对最为重要的新冠病毒溯源问题只字不提，让人感到“愤怒”。 据悉，恩斯特是呼吁成立跨党派“911”式委员会，对新冠病毒起源进行调查的参议员之一。
+1、交易的去中心化。
 
-对此，郭文贵先生在17日的直播中透露，拜习会谈之前，中共曾划定了五条“不能谈”的红线，当中就包括了不能谈病毒真相这一点。
+首先我们通过HCN的白皮书可以知道： HCN是由Himalaya International Financial Group发行和管理的官方币种。 日常生活中的银行系统，都是采用中央结算体系，而数字货币的开创者比特币是通过公开分布式账本，摒弃了第三方机构（中央结算体系）。比特币所有的历史交易通过块（Blocks）的形式记录进帐本，不保存在中央服务器中，这个过程就是去中心化的。
 
-文字版原文：[参议员怒批拜登不提病毒溯源](https://gnews.org/zh-hans/1675138/)
+Himalaya的生态系统采用Ethereum（以太坊）和Quorum区块链的混合链。HCN交易肯定也是去中心化的——也就是“喜币交易的去中心化”。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+2、责任中心化。
 
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+HDO是HimalayaInternationalReserves（喜联储）发行和管理的稳定币，其目标是与美元维持固定的价值。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+这里要说明稳定币的出现，在加密市场发展初期，投资者眼中的基础资产是比特币，其他加密货币都需要使用比特币来兑换。但比特币早期巨大的波动性导致加密投资者可能承担巨大的风险。随着以太坊的出现以及其生态系统的发展（为了满足更多投资者对于风险控制和退出的需求，稳定币随之出现。）稳定币可以根据发行机构的不同，将稳定币种类分为中心化稳定币和去中心化稳定币。
+
+USDT、USDC等是中心化稳定币（都属美元稳定币）由Tether、Circle两家中心化机构发行；而DAI、UST、USDN等是去中心化的稳定币。
+
+HDO属于中心化稳定币（美元稳定币），客户可以自由地使用HDO购买HCN、也可以把HDO提现到自己的银行账户中。
+
+喜交所为客户提供服务，保障客户法定的市场权利就是——“责任中心化”的体现。
+
+（文章内容仅代表新西兰-财经G乐部节目观点）
+![gif](https://media.gettr.com/group47/getter/2021/11/18/07/59/24e00bb3-feb1-f43a-5213-7aae1a25e328/5a5c082590f28134c7a6c0c9ae916e4c.GIF)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
