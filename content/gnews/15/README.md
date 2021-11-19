@@ -2,58 +2,32 @@
 ---
 
 
-## 家长们，问你们自己几个问题吧！
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1676481/)
+## 有声|中共国又一名抗疫医生猝死
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1676535/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/儿童.png)图片来源：Reddit
+配音：香草山教育部 – Rita七号小青蛙
 
+当地时间11月13日，中共媒体报道称，一名一线抗疫医生突发性死亡，年仅三十岁。
 
-作者：James Epstein
-翻译：Janyvo
+资料显示，逝者名为李鸿雁，原是一位血液内科医生，疫情期间，其所在的发热门诊任务更为繁重，李鸿雁前去支援，最终却倒在了完成任务之后的隔离期。
 
-**家长们****,**
+另据报道，中共国强推毒疫苗的第一批受害者大多为医护人员，且疫苗接种与否往往与相关人员的工作、晋升密切相关。值得注意的是，疫情期间，中共国内猝死的医生人数已远超因感染新冠病毒死亡的人数。
 
-我们如何将冠状病毒疫苗方案的前后步骤放在一起，让它说得通？
+郭文贵先生曾在直播中爆料，当前中共国内的医护人员极为短缺，其主要原因在于，大多数医护人员被强制接种了新冠毒疫苗，其后许多人仍然感染了新冠病毒，从而导致并发症，甚至死亡。而中共新冠疫苗来带的次生灾难，以及由此引发的医护人员猝死等现象或将形成一个死循环，最终会导致中共国内医疗系统的全面崩塌。
 
-为什么压制像羟氯喹、伊维菌素等救命药的获得渠道？
+文字版原文：[中共国又一名抗疫医生猝死](https://gnews.org/zh-hans/1672215/)
 
-为什么压制有关这些药物的知识？
+音频处理：喜山必胜Maverick
 
-为什么任何敢于反对主流疫苗说法的医生的言论平台都会被封杀？
-
-为什么可怕的疫苗的所有副作用也被压制？
-
-你为什么要对拥有接近100%的冠状病毒康复机会的儿童接种疫苗？
-
-你到底为什么要给他们打针，让他们承受血栓、心肌炎、流产增加、癌症增加、自身免疫性疾病增加、很可能不孕不育的副作用，然后还有可怕的抗体依赖性增强反应？对于这种疾病，儿童有99.998%的机会康复。
-
-所以你必须问你们自己，这都是什么情况？
-
-只有当你意识到这实际上是关于你的健康或你孩子的健康，关于什么是对你和你的孩子最好的，你才会提出所有这些问题。
-
-让我们对大规模冠状病毒疫苗项目反过来看。 只有当你用正确光度的眼镜、以正确的视角来分析这些问题的时候，事情才说的通，而这副眼镜绝不是来与一个善良人的眼睛。
-
-这是人类历史上最严重的犯罪吗？
-
-这是一个优生学（人种改良学）的计划，用来谋杀我们中的一部分人，更多的是，紧接着发生的各种慢性病，并使剩下的人不孕不育？
-
-否则事情怎么会如此？
-
-**请不要让您的孩子注射冠状病毒疫苗****!**
-
-“不要伤害我们的孩子”
-
-**原文链接：**[https://gnews.org/1675939/](https://gnews.org/1675939/)
-
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

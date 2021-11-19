@@ -2,24 +2,49 @@
 ---
 
 
-## 今天中共的狂妄自满恰恰是明天全球声讨其罪恶的铁证！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1676564/)
+## 六中全会后疫情爆发，北京严防死守
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1676613/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-36.png)（图片源自本文链接）
-CGTN日文版11月18日报道称：中共国自去年12月开始接种中共病毒病疫苗以来，迄今已接种了超过23.8亿剂。同时，供应全世界的疫苗总数超过了40亿剂，其中，超过23.8亿剂是中共国国内接种，另外17亿剂是提供给海外其它国家接种。
+作者：东京樱花团 修文
 
-国务院防治机制联合科研组疫苗研发专家组组长郑忠伟在谈到疫苗问题时说：目前，13种新的疫苗已进入第三期临床试验，有4种已被有条件批准上市。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-5.jpg)
 
-目前，国药集团的北京和武汉实验室以及国药集团的灭活疫苗已经被用于3-17岁人群的疫苗接种。与此同时，中共国的疫苗公司正在提高其疫苗生产能力。
 
-在笔者看来，上述中共自满的每个数字，都将成为不久的将来全球声讨中共罪恶的铁证！
 
-信息来源： [中国、新型コロナワクチンの国内接種は23.8億回に 全世界に計40億回分超を供給（CGTN Japanese） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/c5340d8ac3d32e2dcea6fab71f746a675b5ce50b)
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/北京防疫.jpeg)（美联社资料照）
+
+中共国最新一波新冠疫情爆发。截至16日累计1327例本土个案、涉及21省份；首都北京宣布防疫升级，17日起严格管控进京人流，警方更声称将“逢车必查、逢人必核”，筑好“外防输入”的第一道防线。 北京政府在13日即宣布，自17日起外来人员进京，须持48小时内核酸检测阴性证明，及“北京健康宝”绿码；14日内到过疫区者禁止进京、14日内去过陆路边境口岸者非必要不得进京。
+
+六中全会以后，疫情再次爆发。有媒体怀疑，中共国疫情是否一直存在。只是为营造六中全会圆满的氛围，才隐瞒消息。所以大会结束后，北京立刻安排提升防疫等级。
+
+参考链接：
+
+[https://news.ltn.com.tw/news/world/breakingnews/3739440](https://news.ltn.com.tw/news/world/breakingnews/3739440)
+
+总编：文徬
+
+校对/发稿：有莫举名
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-4.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is logo-5.jpg](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
