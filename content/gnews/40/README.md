@@ -2,28 +2,26 @@
 ---
 
 
-## 美国会年度报告称中共已初步具备侵台能力
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1675197/)
+## 迪士尼邮轮要求 5 岁及以上儿童接种新冠疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1675279/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-323.png)
-11月17日，美国国会美中经济暨安全审查委员会（USCC）2021年最新年度报告指出，中共解放军已具备，或即将取得初步侵犯台湾的能力。
+迪士尼邮轮公司11月17日宣布，从2022年1月13日开始，公司将要求5-11岁的儿童游客接种新冠病毒疫苗，这将成为首批将疫苗强制令扩展到儿童的案例之一。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-7.png)
+此前，迪士尼邮轮公司要求，12岁以上的客人必须完全接种疫，而其他的儿童游客在登船前，必须提供一到三天内新冠病毒检测呈阴性的证明。另外，所有游客，包括接种疫苗的游客，必须在登船前一天接受新冠病毒检测。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-12.png)
-
-这份长达539页的报告指出，中共军力的提升，从根本上改变了战略环境，削弱了美国在台海的军事威慑力。美国必需有足够的军事力量，来抵抗任何可能危及台湾安全的武力行动。为此，美国需在印太区域部署大量反舰巡弋飞弹（ASCM）、及反舰弹道飞弹（ASBM）。
-
-报告中还提到，台湾的防御投资几十年来长期不足，建议国会加强台湾向美国军购的能力，并加速美国对台军售。
+分析人士指出，强制儿童接种疫苗，将使更多无辜儿童受到疫苗的毒害。
 
 参考链接：
 
-- [美国会报告：共军已具备或即将取得初步犯台能力](https://www.cna.com.tw/news/firstnews/202111180015.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+- [Vaccine Mandates Expanding To Kids: Disney Cruise Requires Children 5 And Up Be Fully Vaccinated](https://www.forbes.com/sites/alisondurkee/2021/11/17/vaccine-mandates-expanding-to-kids-disney-cruise-requires-children-5-and-up-be-fully-vaccinated/?utm_source=ground.news&amp;utm_medium=referral&amp;sh=45b429224331)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
 
-总编：文特 
-编辑：AN
+总编：文特
+编辑：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

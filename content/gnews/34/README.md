@@ -2,53 +2,56 @@
 ---
 
 
-## 房地产公司正越来越多地接受加密货币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1675371/)
+## 2021/11/18 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1675753/)
 
-**【简评：】***在萨尔瓦多将比特币作为法定货币之后，纽约市开始采用比特币，并在房地产领域引发了一场风暴。我们看到虚拟货币的应用场景正在逐步扩大，纽约、新加坡等都在力争成为加密货币中心，人们已经不能阻挡加密货币的历史潮流。同时我们也看到，对加密货币的监管措施也在逐步提升，无责任主体的虚拟币如比特币等注定要被人们抛弃。而有强大财团投资背书、有20%黄金储备、有合法合规的独立公司主体的喜币，必将展现其强大的魅力，被更多国家主体认可、实现全球范围内的流通和财富保障。*
-
-据《雅虎财经》 2021年11月15日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-420-e1637260840752.png)图片来源：雅虎财经网
-视频链接：
+嘉宾：Castle、天机
 
 
-[https://edgecast-vod.yimg.com/geminivideoads/f7d0079f-1585-5521-8afa-d950b591979b/video\_output\_101.mp4](https://edgecast-vod.yimg.com/geminivideoads/f7d0079f-1585-5521-8afa-d950b591979b/video_output_101.mp4)
+
+**板块1–国际政治**
+
+1. 请大家关注每周三英喜采访班农先生。
+2. 默克尔强调德国一开始对中共国很天真；欧洲与中共国脱钩是不对的。德国大选后宣告“一家独大”时代结束，默克尔是中德贸易蓬勃发展的推手，被中共称呼为“老朋友”，德系车销售在中共国巨量增长。默克尔摸棱两可的表态反应国际社会普遍状态（对待中共国国际关系尺度不明确）。
+3. 基辛格在彭博新经济论坛上警告美国和中共国处于“悬崖”。在江派、王岐山政治示弱，海外资产被习收缴的背景下，作为中美关系“奠基关键人物”的基辛格代表华尔街和沼泽地部分势力发声表示不满，凸显中美关系处在危机边缘。
+4. 美中经济与安全评估委员会向国会提交年度报告，强调美国应限制对中共国的投资。拜习峰会刚结束再次表明谈判无果；年度报告将影响美国对中共国经济政策导向，其中涉及VIE架构、SOE国有企业、战狼外交等，为中美经济脱钩迈出一大步。
+5. 美国困境–在高通胀的背景下，中共生化战、媒体超限战、供应链短缺等不确定因素加重美国经济的不稳定性，可能导致房地产和股市雪崩式坍塌。
+6. 全球石油等能源高涨，导致所有生产成本增加，致使美国感受到危机，拜登政府一边与OPEC谈判（基本破裂），一边恳求习释放石油储备（牺牲美国战略盟友利益），欲降低美国油价稳定经济局面。
+7. 美联社对孟宏伟妻子进行采访表达对中共国的不满。恰逢中共努力“安排”公安部背景的周彬郴进国际刑警组织执委会，中共欲安插人员获取敏感机密信息进行“选择性办案”。孟宏伟深度参与“王健案件”并知晓过多秘密，在中共开启绞肉机模式最终成为牺牲品，其妻子选择“不痛不痒”的平台抗议实则对中共没有杀伤力。
 
 
-对话实录
+**板块2–网络科技**
 
-JULIE HYMAN：你也许不会使用加密货币或比特币来购买披萨，但它正被用于越来越多的项目，比如说NFTs（Non-Fungible Tokens，非同质化代币）。但是，奢侈品交易或大额交易能否使用加密货币，比如房地产交易？这是雅虎财经的Jennifer Schonberger一直在研究的问题。事实上，这似乎正在发生。
-
-JENNIFER SCHONBERGER：嘿，早上好，朱莉。是的，**加密货币正被越来越多地用于房地产交易。事实上，在纽约，已经出现了第一个接受比特币交易的商业房地产项目。Magnum房地产集团正在出售三套零售公寓，在曼哈顿上东区的底层完全出租，售价2900万美元，但他们只接受比特币。**
-
-虽然这是以比特币进行交易的第一个商业房地产项目，但我们已经看到过去几年住宅方面的房地产交易和加密货币正在回升。为Magnum处理房地产交易的加密货币支付处理商BitPay的CMO Bill Zielke说，过去几年，该公司一直在为国际买家处理加密货币房地产交易，最近在美国处理美国西部的滑雪屋和纽约的房产。在上市商业地产之前，Magnum房地产公司使用比特币做了三笔住宅交易，其中一笔交易位于上东区，以超过1500万美元的比特币价格成交。
-
-Magnum房地产公司的管理合伙人Ben Shaoul说，他预计加密货币的交易将继续增长。
-
-Ben Shaoul：我看到加密货币交易的跑道呈指数增长。比特币处于历史高位的事实，你知道，显然有帮助。但我认为投资者就是投资者，他们在拥有比特币方面做得非常非常好。而现在，他们正在寻找现金流资产。
-
-JENNIFER SCHONBERGER：随着比特币与其他加密货币价格的持续飙升，这些创纪录高点和投资者对房地产的需求之间存在相关性。因此，正如Shaoul提到的，我们应该期待房地产市场的加密货币交易部分在未来几年继续增长。JULIE？
-
-JULIE HYMAN：但当然，每当我听到这些东西，价格就会有很大的变动。比如，你如何决定比特币的交易量？比如，什么时候？你知道，如果你决定要用比特币买这个公寓，然后（比特币的）价格大幅波动，会发生什么？就像，他们怎么……我不知道。你是如何知道这些的？
-
-JENNIFER SCHONBERGER: 是的，我的意思是，我想这真的只是——就像你说的，这确实取决于价格。但是，如果你已经积累了足够的财富，而且你觉得你想兑现，你想把它部署到另一个现金流资产中，无论是投资还是别的。你知道，你（有了）真正想住的地方——那么你就能够转让。顺便说一句，这非常有趣，因为当你用比特币或加密货币进行交易时，结算过程会逐渐加快。
-
-**它只在第二天就结算了，而不是花30到90天来尝试结算这笔交易。所以我想，如果你很着急，或者你是一个国际买家或投资者，使用加密货币肯定也会让支付过程更容易。**
-
-JULIE HYMAN：也许是这样。好的，我们将依靠你让我们了解这一趋势，这一蓬勃发展的趋势。
-
-英文链接：[https://www.yahoo.com/news/real-estate-companies-increasingly-accepting-161153297.html?guce\_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS91cmw\_cT1odHRwcyUzQSUyRiUyRnd3dy55YWhvby5jb20lMkZuZXdzJTJGcmVhbC1lc3RhdGUtY29tcGFuaWVzLWluY3JlYXNpbmdseS1hY2NlcHRpbmctMTYxMTUzMjk3Lmh0bWwmc2E9RCZzb3VyY2U9ZWRpdG9ycyZ1c3Q9MTYzNzE3Mzk2Njg1ODAwMCZ1c2c9QU92VmF3MEtvUEhZbmM2N0dCYmxPTFE1ci0tQg&guce\_referrer\_sig=AQAAAFB6gCkwKZhodZJ9LCY-6iVvb6XKLoJShcgrJkvBSjBpeRRPUxzLV6a63Xx6H9mi2CWDpFZ\_SKVIqybcVT1pGYkbauUDlF4xHeCPeeY01sM5rgQGj0WOWgFydpFIEg01ddGBlSkWJXcWBwql-7J-MwKENPERtoPU3Z7Qi3MAb-6s&\_guc\_consent\_skip=1637171417](https://www.yahoo.com/news/real-estate-companies-increasingly-accepting-161153297.html?guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS91cmw_cT1odHRwcyUzQSUyRiUyRnd3dy55YWhvby5jb20lMkZuZXdzJTJGcmVhbC1lc3RhdGUtY29tcGFuaWVzLWluY3JlYXNpbmdseS1hY2NlcHRpbmctMTYxMTUzMjk3Lmh0bWwmc2E9RCZzb3VyY2U9ZWRpdG9ycyZ1c3Q9MTYzNzE3Mzk2Njg1ODAwMCZ1c2c9QU92VmF3MEtvUEhZbmM2N0dCYmxPTFE1ci0tQg&amp;guce_referrer_sig=AQAAAFB6gCkwKZhodZJ9LCY-6iVvb6XKLoJShcgrJkvBSjBpeRRPUxzLV6a63Xx6H9mi2CWDpFZ_SKVIqybcVT1pGYkbauUDlF4xHeCPeeY01sM5rgQGj0WOWgFydpFIEg01ddGBlSkWJXcWBwql-7J-MwKENPERtoPU3Z7Qi3MAb-6s&amp;_guc_consent_skip=1637171417)
-
-翻译：洛杉矶盘古农场–Mike Li
-校对：洛杉矶盘古农场–比格渣餐厅老板の娘
-评论：洛杉矶盘古农场–比格渣餐厅老板の娘
-编辑：洛杉矶盘古农场–心照
+1. 美国参众两元将就中共国的科技法案（将美国科技与创新法案添加到国防授权法案，520亿美金增强美国半导体生产与中共国竞争）进行谈判。当前全球面临芯片供应荒，中共国如果攻打台湾拿下台积电将控制全球大部分芯片生产；美国意识到芯片自主、安全生产的重要性，立法保证芯片的供应。
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+**板块3–军事**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+1. 美军二号人物透露中共国超高音速武器试验细节。中共国实质违反承诺“不首先使用核武器”的原则，欲打破美国维护世界和平状态的局面。
+2. 美国打算推进向阿联酋出售F35战机。因为阿布扎比与中共国深度合作，防止华为5G进行技术窃取，军售被暂缓。
+3. 在面对中共国咄咄逼人的军事威胁下，台湾耗资1100亿新台币升级新型F-16，蔡英文出席仪式。升级后的军事设备对付中共国设备有一定优势，满足其防空需求。台湾与美国在科技（台向美芯片供应）和军事（美向台提供军备支持）领域密切合作，凸显台湾的重要性。
+
+
+**板块4–中共病毒**
+
+迪斯尼邮轮公司要求5岁以上儿童接种疫苗。中共病毒和疫苗灾难还在继续，望战友们保持警惕，中共有可能再次放毒。英喜已准备一定应急药物，有需要的同胞可以联系。
+
+***听写**：call me uncle*
+
+***校对**: 乐禧禧*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

@@ -2,29 +2,25 @@
 ---
 
 
-## 加拿大法院结束 COVID 紧急情况| 戴口罩、封锁和紧急使用疫苗接种 现在是非法的
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1676105/)
+## 澳大利亚雇主不顾总理取消疫苗强制接种的讲话继续推进强制接种政策
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1676217/)
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-58-1.png)图片来源：网络
-加拿大多个省法院审理的许多案件已经结出硕果，政府被迫宣布结束紧急状态，但媒体并未对此进行报道，政府本身仍在继续其议程，尽管他们现在 100% 这样做是犯罪。 如果没有进入紧急状态，口罩强制令、封锁或所谓的“疫苗”就没有法律依据，因为它只有紧急使用授权。
+By：喜国公民
+视频来自网络
+澳大利亚总理莫里森最近承认，政府推行的强制疫苗接种政策，已经让80%以上的澳大利亚人都完全接种了疫苗，使澳洲成为世界上疫苗接种率最高的国家之一。
 
-显然，并非这个国家的所有法院都受到了腐败
+他说，现在是应该取消强制疫苗接种，让澳州人自由生活的时候了。他强调，联邦政府不赞成政府强加的强制疫苗政策。
 
-为 Covid 危害人类罪的肇事者伸张正义
+然而，他并不反对企业根据法律做出自己的决定。联邦政府这种不负责任的态度，使一些企业主不受约束地继续推行强制疫苗政策。
 
-加拿大排名第一的宪法律师 Rocco Gallati 证实，加拿大高等法院已终止针对 Covid-19 的紧急法案，从而取消了所有省份的所有封锁和戴口罩规定。
+例如，[塔斯马尼亚一家托儿所的数百名员工被要求](https://www.themercury.com.au/news/coronavirus/adventure-patch-ceo-calls-for-mandatory-vaccinations-for-tasmanian-child-care-workers/news-story/9d57f35789d5619ff77ecdb52c6bdc45?utm_source=Mercury&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=MERC_LATESTNEWS_AM-CUR_01&amp;net_sub_id=287163446&amp;type=curated&amp;position=1&amp;overallPos=1)在12 月 3 日前接种新冠疫苗，否则将失去工作。
 
-贾斯汀·卡斯特罗领导的专制共产主义政府无视法治。
+联邦和州政府都曾经强制要求为老年护理和为残疾人服务的工人接种疫苗。现在把12 岁以下的孩子也划归到这类脆弱需要保护的人群中，而强制幼儿园的工作人员接种疫苗。
 
-来源链接：[https://rightsfreedoms.wordpress.com/2021/07/15/canadian-court-ends-covid-emergency-mask-mandates-lockdowns-emergency-use-jab-are-now-unlawful/](https://rightsfreedoms.wordpress.com/2021/07/15/canadian-court-ends-covid-emergency-mask-mandates-lockdowns-emergency-use-jab-are-now-unlawful/)
+塔斯马尼亚州将在 12 月 15 日开放边境，旅客必须全面接种疫苗才能进入该州。
 
-编辑/发布：LILY
-
-20211118
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
-
-
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,25 +2,30 @@
 ---
 
 
-## 澳大利亚雇主不顾总理取消疫苗强制接种的讲话继续推进强制接种政策
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1676217/)
+## 有声|多国取消人民币互换业务，戳破中共虚假经济
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1676449/)
 
-By：喜国公民
-视频来自网络
-澳大利亚总理莫里森最近承认，政府推行的强制疫苗接种政策，已经让80%以上的澳大利亚人都完全接种了疫苗，使澳洲成为世界上疫苗接种率最高的国家之一。
+配音：香草山教育部 – Rita七号小青蛙
 
-他说，现在是应该取消强制疫苗接种，让澳州人自由生活的时候了。他强调，联邦政府不赞成政府强加的强制疫苗政策。
+11月15日，郭先生在盖特中爆料：近日，很多国家都在想办法把之前认购的换汇人民币处理掉，并且取消与中共国的人民币互换额度。
 
-然而，他并不反对企业根据法律做出自己的决定。联邦政府这种不负责任的态度，使一些企业主不受约束地继续推行强制疫苗政策。
+许多国家和中国有大量贸易往来，为了减少对美元的依赖和中间货币交易的成本，以及解决两国之间税收的问题，才有了本币互换业务。
 
-例如，[塔斯马尼亚一家托儿所的数百名员工被要求](https://www.themercury.com.au/news/coronavirus/adventure-patch-ceo-calls-for-mandatory-vaccinations-for-tasmanian-child-care-workers/news-story/9d57f35789d5619ff77ecdb52c6bdc45?utm_source=Mercury&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=MERC_LATESTNEWS_AM-CUR_01&amp;net_sub_id=287163446&amp;type=curated&amp;position=1&amp;overallPos=1)在12 月 3 日前接种新冠疫苗，否则将失去工作。
+郭先生指出，当本币互换额度减少，意味着两国的贸易额减少，说明他国失去对中国经济的信心，以至于不惜高成本使用美元。中共虚假的经济泡沫被戳破。
 
-联邦和州政府都曾经强制要求为老年护理和为残疾人服务的工人接种疫苗。现在把12 岁以下的孩子也划归到这类脆弱需要保护的人群中，而强制幼儿园的工作人员接种疫苗。
+文字版原文：[多国取消人民币互换业务，戳破中共虚假经济](https://gnews.org/zh-hans/1670426/)
 
-塔斯马尼亚州将在 12 月 15 日开放边境，旅客必须全面接种疫苗才能进入该州。
+音频处理：喜山必胜Maverick
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
