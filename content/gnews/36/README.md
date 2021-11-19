@@ -2,28 +2,29 @@
 ---
 
 
-## 美国会年度报告称中共已初步具备侵台能力
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1675197/)
+## “突然死亡”成为全球热搜词汇
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1675254/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：纽约香草山教育部 – Noemi
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-323.png)
-11月17日，美国国会美中经济暨安全审查委员会（USCC）2021年最新年度报告指出，中共解放军已具备，或即将取得初步侵犯台湾的能力。
+《零对冲》11月17日的报道称，近两个月，“突然死亡”一词搜索量创下了历史新高，成为全球热搜词汇。而在欧美的头条新闻中，“突然死亡”一词也层出不穷。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-12.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-7.png)
 
-这份长达539页的报告指出，中共军力的提升，从根本上改变了战略环境，削弱了美国在台海的军事威慑力。美国必需有足够的军事力量，来抵抗任何可能危及台湾安全的武力行动。为此，美国需在印太区域部署大量反舰巡弋飞弹（ASCM）、及反舰弹道飞弹（ASBM）。
+在这些与“突然死亡”相关的新闻报道中，18岁以下的青少年，和中青年群体竟都是高危人群。据悉，在过去的几十年中，这两个群体发生突然死亡的概率相对较低。在全球疫苗接种率的不断攀升的等下，突然死亡事件却频频发生。
 
-报告中还提到，台湾的防御投资几十年来长期不足，建议国会加强台湾向美国军购的能力，并加速美国对台军售。
+疫苗已经影响大量运动员的身体健康，甚至导致死亡。而各国仍持续推广疫苗，甚至向未成年儿童进行推广。如文贵先生所说，人类即将面临最黑暗的疫苗灾难时期。
 
 参考链接：
 
-- [美国会报告：共军已具备或即将取得初步犯台能力](https://www.cna.com.tw/news/firstnews/202111180015.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+- [大量的运动员“倒下” “突然死亡”成为热搜](https://gettr.com/post/ph9kxnc635)
+- [German Newspaper Highlights “Unusually Large” Number Of Soccer Players Who Have Collapsed Recently](https://www.zerohedge.com/medical/german-newspaper-highlights-unusually-large-number-soccer-players-who-have-collapsed)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
 
-总编：文特 
-编辑：AN
+总编：雪梨
+编辑：雪梨
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

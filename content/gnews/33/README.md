@@ -2,58 +2,53 @@
 ---
 
 
-## 中国可以摧毁加密货币生态系统？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1675508/)
+## 房地产公司正越来越多地接受加密货币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1675371/)
 
-编译：蚂蚁兄弟
+**【简评：】***在萨尔瓦多将比特币作为法定货币之后，纽约市开始采用比特币，并在房地产领域引发了一场风暴。我们看到虚拟货币的应用场景正在逐步扩大，纽约、新加坡等都在力争成为加密货币中心，人们已经不能阻挡加密货币的历史潮流。同时我们也看到，对加密货币的监管措施也在逐步提升，无责任主体的虚拟币如比特币等注定要被人们抛弃。而有强大财团投资背书、有20%黄金储备、有合法合规的独立公司主体的喜币，必将展现其强大的魅力，被更多国家主体认可、实现全球范围内的流通和财富保障。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-13-2.jpg)图片来源：estrategiasdeinversion.com
+据《雅虎财经》 2021年11月15日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-420-e1637260840752.png)图片来源：雅虎财经网
+视频链接：
 
-中共国已经宣布，它在开发量子超级计算机方面处于世界领先地位，甚至领先于谷歌声称拥有的、仍处于“测试”阶段的超级计算机。
 
-量子计算机，直到最近还只是一种理论，它的编程能力和计算速度对拥有它的国家或公司来说是一种竞争的核武器，因为它们可以进行迄今为止不可能完成的计算，这就是科技武器的作用……破译密码和更复杂的加密系统。谷歌希望它能改善搜索和提高安全性，并能将其用于人工智能（AI）为概率计算带来改进，例如用于制造疫苗的新模型。
+[https://edgecast-vod.yimg.com/geminivideoads/f7d0079f-1585-5521-8afa-d950b591979b/video\_output\_101.mp4](https://edgecast-vod.yimg.com/geminivideoads/f7d0079f-1585-5521-8afa-d950b591979b/video_output_101.mp4)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-2-6.png)（图：谷歌的计算机）
 
-但是，中共国和俄罗斯是近年发动网络攻击最多的国家，为获取国家和公司的秘密破坏基础设施，这在未来4或5年内可能是一个非常强大的武器，就是解密目前支持加密世界的区块链。
+对话实录
 
-如果说加密货币有一样东西非常可信，那就是它们的安全性，如果这一点被破坏，就意味着所有加密货币将会有巨大降幅。像金融业这样建立在信任基础上的行业，仅在加密货币世界中，仅有少数虚拟货币被黑，就会拖累整个行业。
+JULIE HYMAN：你也许不会使用加密货币或比特币来购买披萨，但它正被用于越来越多的项目，比如说NFTs（Non-Fungible Tokens，非同质化代币）。但是，奢侈品交易或大额交易能否使用加密货币，比如房地产交易？这是雅虎财经的Jennifer Schonberger一直在研究的问题。事实上，这似乎正在发生。
 
-看看全球加密货币的市值，超过2.5万亿美元，分布在全球9000多种加密货币中（其中90%将在未来几年变得一文不值），其中只有少数将保持并在几年内具有巨大价值。
+JENNIFER SCHONBERGER：嘿，早上好，朱莉。是的，**加密货币正被越来越多地用于房地产交易。事实上，在纽约，已经出现了第一个接受比特币交易的商业房地产项目。Magnum房地产集团正在出售三套零售公寓，在曼哈顿上东区的底层完全出租，售价2900万美元，但他们只接受比特币。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-3-7.png)
+虽然这是以比特币进行交易的第一个商业房地产项目，但我们已经看到过去几年住宅方面的房地产交易和加密货币正在回升。为Magnum处理房地产交易的加密货币支付处理商BitPay的CMO Bill Zielke说，过去几年，该公司一直在为国际买家处理加密货币房地产交易，最近在美国处理美国西部的滑雪屋和纽约的房产。在上市商业地产之前，Magnum房地产公司使用比特币做了三笔住宅交易，其中一笔交易位于上东区，以超过1500万美元的比特币价格成交。
 
-以目前的估值拿下加密货币市场，对于一个试图削弱西方的国家来说是一个巨大的恐惧，你能想象如果几万亿美元能在一周内消失吗？其他金融部门又会发生什么？恐惧是一种强大的武器，特别是在一个据说“没有什么比一百万美元更懦弱的世界”。如果这种情况发生，所有金融部门都会受到影响。
+Magnum房地产公司的管理合伙人Ben Shaoul说，他预计加密货币的交易将继续增长。
 
-另一张有趣的图表，关于与加密货币世界相关的上市公司是如何做的。仅在今年，交易型开放式指数基金ETF的股票市场就上涨了20%。
+Ben Shaoul：我看到加密货币交易的跑道呈指数增长。比特币处于历史高位的事实，你知道，显然有帮助。但我认为投资者就是投资者，他们在拥有比特币方面做得非常非常好。而现在，他们正在寻找现金流资产。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-4-7.png)
+JENNIFER SCHONBERGER：随着比特币与其他加密货币价格的持续飙升，这些创纪录高点和投资者对房地产的需求之间存在相关性。因此，正如Shaoul提到的，我们应该期待房地产市场的加密货币交易部分在未来几年继续增长。JULIE？
 
-中共国已经宣布反对境外加密货币，还在境内开始人民币数字化，因为他们知道，中共国任何控制不了的东西都不会引起他们的兴趣，至少在他们的领土上。
+JULIE HYMAN：但当然，每当我听到这些东西，价格就会有很大的变动。比如，你如何决定比特币的交易量？比如，什么时候？你知道，如果你决定要用比特币买这个公寓，然后（比特币的）价格大幅波动，会发生什么？就像，他们怎么……我不知道。你是如何知道这些的？
 
-另一方面，我认为我们必须谨慎对待这些“我们在量子编程方面有优势”的说法，因为如果他们真的有这个优势，有趣的是不要告诉公众，这将是一个能够入侵对手并获得竞争优势的秘密武器。
+JENNIFER SCHONBERGER: 是的，我的意思是，我想这真的只是——就像你说的，这确实取决于价格。但是，如果你已经积累了足够的财富，而且你觉得你想兑现，你想把它部署到另一个现金流资产中，无论是投资还是别的。你知道，你（有了）真正想住的地方——那么你就能够转让。顺便说一句，这非常有趣，因为当你用比特币或加密货币进行交易时，结算过程会逐渐加快。
 
-也许最重要的问题是，中共国是否敢按下按钮来黑掉加密货币？那么，这将取决于我们所在的经济战争时刻。当然，量子计算是可以破坏市场稳定的。中共国一直是一个经济巨人，现在它也想成为一个军事巨人，而现在全世界的人工智能和网络安全是任何一个国家国防战略的一部分。
+**它只在第二天就结算了，而不是花30到90天来尝试结算这笔交易。所以我想，如果你很着急，或者你是一个国际买家或投资者，使用加密货币肯定也会让支付过程更容易。**
 
-关注三项技术：量子计算机、5G和核聚变（廉价和无污染的能源）。在未来几年里，谁掌握了这三项技术，谁就能在未来拥有竞争优势。
+JULIE HYMAN：也许是这样。好的，我们将依靠你让我们了解这一趋势，这一蓬勃发展的趋势。
 
-**简评：**
+英文链接：[https://www.yahoo.com/news/real-estate-companies-increasingly-accepting-161153297.html?guce\_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS91cmw\_cT1odHRwcyUzQSUyRiUyRnd3dy55YWhvby5jb20lMkZuZXdzJTJGcmVhbC1lc3RhdGUtY29tcGFuaWVzLWluY3JlYXNpbmdseS1hY2NlcHRpbmctMTYxMTUzMjk3Lmh0bWwmc2E9RCZzb3VyY2U9ZWRpdG9ycyZ1c3Q9MTYzNzE3Mzk2Njg1ODAwMCZ1c2c9QU92VmF3MEtvUEhZbmM2N0dCYmxPTFE1ci0tQg&guce\_referrer\_sig=AQAAAFB6gCkwKZhodZJ9LCY-6iVvb6XKLoJShcgrJkvBSjBpeRRPUxzLV6a63Xx6H9mi2CWDpFZ\_SKVIqybcVT1pGYkbauUDlF4xHeCPeeY01sM5rgQGj0WOWgFydpFIEg01ddGBlSkWJXcWBwql-7J-MwKENPERtoPU3Z7Qi3MAb-6s&\_guc\_consent\_skip=1637171417](https://www.yahoo.com/news/real-estate-companies-increasingly-accepting-161153297.html?guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS91cmw_cT1odHRwcyUzQSUyRiUyRnd3dy55YWhvby5jb20lMkZuZXdzJTJGcmVhbC1lc3RhdGUtY29tcGFuaWVzLWluY3JlYXNpbmdseS1hY2NlcHRpbmctMTYxMTUzMjk3Lmh0bWwmc2E9RCZzb3VyY2U9ZWRpdG9ycyZ1c3Q9MTYzNzE3Mzk2Njg1ODAwMCZ1c2c9QU92VmF3MEtvUEhZbmM2N0dCYmxPTFE1ci0tQg&amp;guce_referrer_sig=AQAAAFB6gCkwKZhodZJ9LCY-6iVvb6XKLoJShcgrJkvBSjBpeRRPUxzLV6a63Xx6H9mi2CWDpFZ_SKVIqybcVT1pGYkbauUDlF4xHeCPeeY01sM5rgQGj0WOWgFydpFIEg01ddGBlSkWJXcWBwql-7J-MwKENPERtoPU3Z7Qi3MAb-6s&amp;_guc_consent_skip=1637171417)
 
-**一个连芯片都无法生产的“大国”，会在量子计算机上有所建树。人们真的会相信吗？**
+翻译：洛杉矶盘古农场–Mike Li
+校对：洛杉矶盘古农场–比格渣餐厅老板の娘
+评论：洛杉矶盘古农场–比格渣餐厅老板の娘
+编辑：洛杉矶盘古农场–心照
 
-**中共，一个用谎言骗取了中国大陆，一个用谎言欺骗了全世界，一个用谎言给中国百姓编织起“中国梦”的邪恶政党。开始向全世界吹嘘其在量子计算机上的成就，人们真的会相信吗？**
 
-**我们可以未雨绸缪，做充分的准备以应对潜在的威胁。但是，西方的记者们是否应该真正去认识一下中共撒谎成性的本质，还有中共那一贯“假、大、空”的作风。**
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-**参考资料：**[estrategiasdeinversion][China puede destruir el ecosistema criptomonedas y muchas otras cosas más](https://www.estrategiasdeinversion.com/analisis/bolsa-y-mercados/informes/china-puede-destruir-el-ecosistema-criptomonedas-n-490127)
-
-* * *
-
-*审核：Aries的星
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
