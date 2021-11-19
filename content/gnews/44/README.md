@@ -2,34 +2,58 @@
 ---
 
 
-## 迪士尼邮轮要求 5 岁及以上儿童接种新冠疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1675279/)
+## 中国可以摧毁加密货币生态系统？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1675508/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-323.png)
-迪士尼邮轮公司11月17日宣布，从2022年1月13日开始，公司将要求5-11岁的儿童游客接种新冠病毒疫苗，这将成为首批将疫苗强制令扩展到儿童的案例之一。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-7.png)
-此前，迪士尼邮轮公司要求，12岁以上的客人必须完全接种疫，而其他的儿童游客在登船前，必须提供一到三天内新冠病毒检测呈阴性的证明。另外，所有游客，包括接种疫苗的游客，必须在登船前一天接受新冠病毒检测。
+编译：蚂蚁兄弟
 
-分析人士指出，强制儿童接种疫苗，将使更多无辜儿童受到疫苗的毒害。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-13-2.jpg)图片来源：estrategiasdeinversion.com
 
-参考链接：
+中共国已经宣布，它在开发量子超级计算机方面处于世界领先地位，甚至领先于谷歌声称拥有的、仍处于“测试”阶段的超级计算机。
 
-- [Vaccine Mandates Expanding To Kids: Disney Cruise Requires Children 5 And Up Be Fully Vaccinated](https://www.forbes.com/sites/alisondurkee/2021/11/17/vaccine-mandates-expanding-to-kids-disney-cruise-requires-children-5-and-up-be-fully-vaccinated/?utm_source=ground.news&amp;utm_medium=referral&amp;sh=45b429224331)
+量子计算机，直到最近还只是一种理论，它的编程能力和计算速度对拥有它的国家或公司来说是一种竞争的核武器，因为它们可以进行迄今为止不可能完成的计算，这就是科技武器的作用……破译密码和更复杂的加密系统。谷歌希望它能改善搜索和提高安全性，并能将其用于人工智能（AI）为概率计算带来改进，例如用于制造疫苗的新模型。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-2-6.png)（图：谷歌的计算机）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
+但是，中共国和俄罗斯是近年发动网络攻击最多的国家，为获取国家和公司的秘密破坏基础设施，这在未来4或5年内可能是一个非常强大的武器，就是解密目前支持加密世界的区块链。
 
-总编：文特
-编辑：飞虹
-校正/发稿：海阔天空1
+如果说加密货币有一样东西非常可信，那就是它们的安全性，如果这一点被破坏，就意味着所有加密货币将会有巨大降幅。像金融业这样建立在信任基础上的行业，仅在加密货币世界中，仅有少数虚拟货币被黑，就会拖累整个行业。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+看看全球加密货币的市值，超过2.5万亿美元，分布在全球9000多种加密货币中（其中90%将在未来几年变得一文不值），其中只有少数将保持并在几年内具有巨大价值。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-3-7.png)
+
+以目前的估值拿下加密货币市场，对于一个试图削弱西方的国家来说是一个巨大的恐惧，你能想象如果几万亿美元能在一周内消失吗？其他金融部门又会发生什么？恐惧是一种强大的武器，特别是在一个据说“没有什么比一百万美元更懦弱的世界”。如果这种情况发生，所有金融部门都会受到影响。
+
+另一张有趣的图表，关于与加密货币世界相关的上市公司是如何做的。仅在今年，交易型开放式指数基金ETF的股票市场就上涨了20%。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-4-7.png)
+
+中共国已经宣布反对境外加密货币，还在境内开始人民币数字化，因为他们知道，中共国任何控制不了的东西都不会引起他们的兴趣，至少在他们的领土上。
+
+另一方面，我认为我们必须谨慎对待这些“我们在量子编程方面有优势”的说法，因为如果他们真的有这个优势，有趣的是不要告诉公众，这将是一个能够入侵对手并获得竞争优势的秘密武器。
+
+也许最重要的问题是，中共国是否敢按下按钮来黑掉加密货币？那么，这将取决于我们所在的经济战争时刻。当然，量子计算是可以破坏市场稳定的。中共国一直是一个经济巨人，现在它也想成为一个军事巨人，而现在全世界的人工智能和网络安全是任何一个国家国防战略的一部分。
+
+关注三项技术：量子计算机、5G和核聚变（廉价和无污染的能源）。在未来几年里，谁掌握了这三项技术，谁就能在未来拥有竞争优势。
+
+**简评：**
+
+**一个连芯片都无法生产的“大国”，会在量子计算机上有所建树。人们真的会相信吗？**
+
+**中共，一个用谎言骗取了中国大陆，一个用谎言欺骗了全世界，一个用谎言给中国百姓编织起“中国梦”的邪恶政党。开始向全世界吹嘘其在量子计算机上的成就，人们真的会相信吗？**
+
+**我们可以未雨绸缪，做充分的准备以应对潜在的威胁。但是，西方的记者们是否应该真正去认识一下中共撒谎成性的本质，还有中共那一贯“假、大、空”的作风。**
+
+**参考资料：**[estrategiasdeinversion][China puede destruir el ecosistema criptomonedas y muchas otras cosas más](https://www.estrategiasdeinversion.com/analisis/bolsa-y-mercados/informes/china-puede-destruir-el-ecosistema-criptomonedas-n-490127)
+
+* * *
+
+*审核：Aries的星
+校对：阿伯塔
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
 
  
 

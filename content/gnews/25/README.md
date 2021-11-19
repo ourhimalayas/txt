@@ -2,22 +2,19 @@
 ---
 
 
-## 雅典娜时报-第117期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1676513/)
+## 个人账户提现的相关常识
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1676549/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+文编：东京樱花团/樱花传媒
+视频：东京樱花团/中文小视频组
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_9.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_10.png)
-***发布：小红帽***
+11月17日，郭文贵先生在GTV大直播指出：
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+根据法律规定各国的提现都是有金额限制的，个人账户能每天超高额提现的机构是不存在的。作为国际金融监管的方式，必须遵守。所以喜联储要根据当地的法律规定来决定提现金额。
 
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

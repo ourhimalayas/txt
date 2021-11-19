@@ -2,31 +2,25 @@
 ---
 
 
-## 澳洲修改反外国干预指南 严防中共干预大学校园
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1675235/)
+## 迪士尼邮轮要求 5 岁及以上儿童接种新冠疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1675279/)
 
-作者：东京樱花团 – 修文
+作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-323.png)
-11月17日，澳大利亚政府公布了修订后的《澳大利亚大学反外国干预指南》，要求大学对可能受干预的员工进行评估，并要求他们向政府报告自己与外国各类组织的所有联系，以及是否获得国外资金的支持。
+迪士尼邮轮公司11月17日宣布，从2022年1月13日开始，公司将要求5-11岁的儿童游客接种新冠病毒疫苗，这将成为首批将疫苗强制令扩展到儿童的案例之一。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-7.png)
+此前，迪士尼邮轮公司要求，12岁以上的客人必须完全接种疫，而其他的儿童游客在登船前，必须提供一到三天内新冠病毒检测呈阴性的证明。另外，所有游客，包括接种疫苗的游客，必须在登船前一天接受新冠病毒检测。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/10-6.jpg)
-
-该指南认为，“干预”与一般的公开游说不同，具有“胁迫”“秘密”“腐败”等特点。澳大利亚教育部长则称，外国机构会使用复杂的欺骗手段，窃取澳大利亚的研究和知识产权。
-
-尽管澳大利亚政府的这些规定并没有明确指向哪个国家，但相关专业人士指出，这些措施针对的就是中共国。
-
-早在2018年澳大利亚首次通过这个反外国干预指南时，就曾引起中共的激烈反应。如今，为应对中共威胁的增加，澳大利亚政府对这一指南进行了修改，相关条款更趋严格。
-
-与此同时，欧盟委员会也表示，要针对欧洲的大学制定抵制外国干预的相关法律。
+分析人士指出，强制儿童接种疫苗，将使更多无辜儿童受到疫苗的毒害。
 
 参考链接：
 
-- [澳大利亚修改法律反击中国渗透和干预大学校园](https://www.voachinese.com/a/Australia-Toughen-Laws-Against-Chinese-Interference-into-Universities-20211117/6316752.html)
+- [Vaccine Mandates Expanding To Kids: Disney Cruise Requires Children 5 And Up Be Fully Vaccinated](https://www.forbes.com/sites/alisondurkee/2021/11/17/vaccine-mandates-expanding-to-kids-disney-cruise-requires-children-5-and-up-be-fully-vaccinated/?utm_source=ground.news&amp;utm_medium=referral&amp;sh=45b429224331)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
 
-总编：雪梨
+总编：文特
 编辑：飞虹
 校正/发稿：海阔天空1
 
