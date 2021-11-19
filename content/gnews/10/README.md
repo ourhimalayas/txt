@@ -2,23 +2,33 @@
 ---
 
 
-## 灾难正在以光的速度降临的
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1678181/)
+## 疫苗政策急变，澳大利亚总理180度急转弯!
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1678195/)
 
-文编：东京樱花团/樱花传媒
+翻译：昔马千羽
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片12-edited.png)图片来源：网络
+澳大利亚总理Scott Morrison原本强推疫苗，
 
-视频:东京樱花团/中文小视频组
+但今日突然发表讲话称强制疫苗是不对的，
 
-11月17日，郭文贵先生在GTV大直播指出：
+不打疫苗的各种限制也应该取消，
 
-就像以涉嫌向美国泄露中国情报为理由逮捕一些抖音高工，并无理抄其全家一样，中共的为所欲为、腐败邪恶加之粮食等危机，使老百姓无处藏身。灾难正在以光速降临到中国人头上。另外世界各地的供应链断裂导致材料严重不足，物价高扬、货币贬值。
+正当大家错愕不解之时，
 
-编辑：东京樱花团/喜马拉雅的微尘
+从知情人士传出原因是澳大利亚议会出现了宪政危机！
 
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-3.png)
+原来自由党的两名议员和澳大利亚OneNation党两名议员要求总理必须介入处理强制疫苗政策，否则收回他们的议席。而一旦4名议员收回议席后，Morrison的政府就面临宪政危机（议会票数不够？）。当这种情况出现时，全国必须进行重新选举！所以Morrirson不得不被迫改变立场，做出180度大转弯！
 
+Morrison是自由党党魁，他自己的政党都有2名议员叛变，说明他已经走得太远，离心离德。
 
+不得不说这次斗争反转，澳洲干得漂亮！澳洲的大起大落印证了早上A1党党魁说的鸡血内容，让我们静观澳洲情况变化！他们的变化将对其他西方国家产生深远影响。
+
+新闻链接：[https://www.dailymail.co.uk/news/article-10214777/Scott-Morrison-demands-states-like-Queensland-drop-Covid-19-vaccine-mandates.html](https://www.dailymail.co.uk/news/article-10214777/Scott-Morrison-demands-states-like-Queensland-drop-Covid-19-vaccine-mandates.html)
+
+编辑/发布：LILY
+
+20211119
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

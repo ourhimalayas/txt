@@ -2,36 +2,25 @@
 ---
 
 
-## 美国会两党议员正在推动让台湾加入国际刑警组织
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1677619/)
+## 是谁辜负了中共国1076万毕业生？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1677715/)
 
-#### 作者：日本东京方舟农场 子辰
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-104.jpg)
+[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2Fyataibaodao%2Fjingmao%2Fgf1-12022020072803.html%2F%40%40images%2F9f544346-ad53-4b89-99db-38c2472b8274.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.rfa.org%2Fmandarin%2Fyataibaodao%2Fjingmao%2Fgf1-12022020072803.html&amp;tbnid=p8aLkEWN-2GTuM&amp;vet=12ahUKEwiOtI_xvaT0AhX6hNgFHfncAwEQMygHegUIARC4AQ..i&amp;docid=n9aSrhbQM0cp7M&amp;w=620&amp;h=348&amp;itg=1&amp;q=%E9%AB%98%E6%A0%A1%E6%AF%95%E4%B8%9A%E7%94%9F&amp;ved=2ahUKEwiOtI_xvaT0AhX6hNgFHfncAwEQMygHegUIARC4AQ)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/D361F6D3-1006-49BF-A60A-717422968D6A.jpeg)图片来自：https://gdb.voanews.com/e9495978-c796-4572-99e5-14b38695d650\_w408\_r1\_s.jpg
+11月19日中国青年网报道，教育部、人力资源和社会保障部19日在京召开2022届中共国普通高校毕业生就业创业工作网络视频会议，部署做好2022届高校毕业生就业创业工作，2022届高校毕业生规模预计1076万人，同比增加167万人。
 
-据《美国之音》11月19日报道，在美国国会众议员约翰·科蒂斯（John Curtis）的倡议下，70多位来自民主与共和两党的议员正在推动让国际刑警组织（Interpol）接纳台湾。
+中共国年年都是最难毕业季，随着大学的扩招，应届生人数逐年增加，近些年中共国经济困难，就业难度越来越大，就业竞争愈加激烈，这也就有了中共国大约700万外卖骑手，将近30万硕士和本科生送外卖的新闻，其中本科学历的有21万，硕士学历的有7万。一个家庭，把一个孩子从小培养到大，读完大学、硕士，培养成硕士，最后只能去送外卖，这都是中共国腐败制度下的牺牲品，所谓的是为了生活，其实仅仅是活着而已。是辜负了文凭呢，还是文聘辜负了自己？
 
-国际刑警组织成立于1923年。是仅次于联合国的第二大国际组织，也是全世界最大的警察组织，共有194个成员国，总部设在法国里昂。
+信息来源：
 
-11月18日，来自犹他州的共和党众议员科蒂斯发表声明称，70余名两党议员11月9日联署[致函](https://curtis.house.gov/wp-content/uploads/2021/11/Curtis-Delegation-Letter-on-Taiwan-Interpol.pdf)美国国务卿安东尼·布林肯、司法部长梅里克·加兰德和国际刑警组织华盛顿办事处主任迈克尔·休斯，表明国会支持将台湾纳入国际刑警组织的明确意图。
+[两部委：2022届高校毕业生规模预计1076万人](https://me.mbd.baidu.com/r/wEx6PJGT04?f=cp&amp;rs=3111343186&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=d315d2c923218c8b)
 
-科蒂斯在声明中表示，台湾理应有与美国和其他民主伙伴共事的席位，以根除国际刑警组织的腐败和滥权。本届行政当局必须落实国会所通过的法律的意图，抗衡中共国的影响力，并在本月召开国际刑警组织大会之前，大力推动台湾参与国际刑警组织。
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-4.png)
 
-声明还指出，台湾的持续缺席给国际打击犯罪的努力留下了空隙。此外，威权政府对国际刑警组织的影响，还导致该组织的“红通”制度被俄罗斯、白俄罗斯和中共国等独裁政权所利用。
-
-在此之前，纳入2021财政年度拨款法案并获得通过的《台湾保证法》已申明，美国的政策是推动台湾有意义地参与国际刑警组织和其他国际组织。
-
-除此之外，台湾媒体之前也曾报道，18名支持台湾的跨党派意大利参众议员最近也致函国际刑警组织，要求其接纳台湾。
-
-*新闻链接： [https://www.voachinese.com/a/us-taiwan-interpol-20211118/6319052.html](https://www.voachinese.com/a/us-taiwan-interpol-20211118/6319052.html)*
-
-* * *
-
-*素材采编：子辰*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
 
  
 
