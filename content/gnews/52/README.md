@@ -2,11 +2,13 @@
 ---
 
 
-## 美国高科技公司和好莱坞叩头中共，饮鸩止渴，回头是岸
-` mary202064` [轉載自GNews](https://gnews.org/zh-hans/1676154/)
+## 美国FDA要求2076年公布辉瑞中共病毒疫苗相关文件
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1676420/)
 
-作者：海阔天空
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1119-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
