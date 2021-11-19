@@ -2,57 +2,49 @@
 ---
 
 
-## 拜耳高管表示，covid mRNA 疫苗是“基因疗法”，被错误地称为“疫苗”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1676705/)
+## 参议院共和党人挑战拜登政府疫苗强制令
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1676740/)
 
-作者：Ethan Huff
+作者：纽约香草山农场-蓝天大海
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Child-Girl-Vaccine-Injection-Syringe-e1628078183543-edited.jpg)图片来源：网络
-自然新闻报道：拜耳制药部门总裁斯蒂芬·奥尔里希（Stefan Oelrich）在最近的全球主义健康会议上向国际“专家”承认，辉瑞 BioNTech 和 Moderna 的两种 mRNA（信使 RNA）“疫苗”根本不是疫苗， 而是伪装的“细胞和基因疗法”注射。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-5.jpg)
 
-在最近于 10 月 24 日至 26 日在柏林举行的世界卫生峰会上，来自 120 个国家的 6,000 名与会者听到了 Oelrich 的讲话。 他们还听到他解释说，如果这些注射剂按实际情况进行销售，大多数人可能会拒绝它们。
 
-Oelrich 说：“我们真的正在跨越 [推动创新]——我们作为一家公司，拜耳——在细胞和基因疗法方面……最终，mRNA 疫苗是这种细胞和基因疗法的一个例子。
 
-“我总是喜欢说：如果我们两年前在公众中进行调查——’你是否愿意接受一种基因或细胞疗法并将其注射到你的身体里？’ – 我们可能会有 95% 的拒绝率。  ”
 
-就让群众挽起袖子而取得任何“成功”的唯一原因是，大型制药公司在这些事情是什么以及他们应该做什么方面向公众撒谎。
 
-“我们在这 18 个月 [COVID‘大流行’的持续时间]中取得的成功应该使我们更加坚定地更加专注于获取、创新和协作，以释放所有人的健康，尤其是在我们进入时 正在发生，一个新的科学时代——很多人在这种背景下谈论生物革命，”Oelrich 在活动中继续吹嘘。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/参议员-.jpeg)WASHINGTON, DC – JUNE 9: Sen. Mike Braun (Photo by Stefani Reynolds-Pool/Getty Images)
 
-Covid“疫苗”正在重新编程人们的身体，成为一个新的人工智能驱动的奴隶种族
+据《newsmax》11月17日报道，美国联邦参议院50名共和党人联合起来，在印第安纳州共和党参议员迈克·布劳恩 (Mike Braun) 的带领下，正式对拜登政府的疫苗强制令提出挑战。
 
-美国疾病控制与预防中心 (CDC) 也参与其中，将“疫苗”的定义更改为包括 mRNA 注射。
+该强制令要求拥有一百人以上的企业员工必须接种新冠疫苗，或每周接受检测。 参议院共和党的议案已经提交给参议院卫生、教育、劳工和养老金委员会。宾夕法尼亚州共和党众议员弗雷德凯勒，此前在众议院也提出了类似的议案。
 
-假的联邦机构实际上只是一家伪装的私营公司，它认为疫苗的旧定义是“有问题的”，目的是散布大流行的谎言。 因此，该机构完全取消了它，并提出了一个适合叙述的全新定义。
+布劳恩在一份声明中说，拜登总统的疫苗强制令是违宪的，是对个人医疗权利的侵犯，也是对八千万美国工人权利的侵犯。他表示将敦促参议院在12月初进行简单多数投票，通过这项反对议案。
 
-麦肯锡全球研究所将奥尔里希在演讲中提到的这场“生物革命”描述为“生物科学进步与加速计算、自动化和人工智能发展的汇合[这]正在推动新的创新浪潮。  ”
 
-“这场生物革命可能对经济和我们的生活产生重大影响，从健康和农业到消费品，再到能源和材料，”麦肯锡进一步表示。
 
-换句话说，大型制药公司的 mRNA 注射剂正在为人类完全转变为人工智能驱动的奴隶种族奠定基础，该种族由全球主义者计划通过“疫苗接种”植入人们身体的任何其他东西控制。
+参考链接：
 
-奥尔里希进一步主张通过向整个欧洲的“另外一亿妇女”分发更多避孕药具来减少地球人口。
+[https://www.newsmax.com/politics/covid-19-business-vaccine-mandate-mike-braun/2021/11/17/id/1045100/](https://www.newsmax.com/politics/covid-19-business-vaccine-mandate-mike-braun/2021/11/17/id/1045100/)
 
-“我们今年已投资 4 亿美元用于新工厂，这些工厂致力于为中低收入国家的女性生产长效避孕药，”他解释说。
+校对/发稿：有莫举名
 
-“我们与比尔和梅琳达·盖茨一起，在计划生育方面开展了非常密切的合作。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-4.png)
 
-Oelrich 说，持续的新冠疫苗管理与这些其他人口减少方法相结合，最终将创造一个“可持续”的世界。
+**更多资讯，更多关注**
 
-奥尔里希也是所谓的“大重置”倡议的坚定支持者，世界经济论坛 (WEF) 表示，该倡议在很大程度上是由大流行驱动的。
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-“为了取得更好的结果，世界必须共同迅速采取行动，改造我们社会和经济的各个方面，从教育到社会契约和工作条件，”世界经济论坛创始人克劳斯施瓦布说。
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-您可以通过访问 [Pandemic.news](http://Pandemic.news)了解有关瘟疫欺骗的最新消息。
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-来源链接：[https://www.afinalwarning.com/572102.html](https://www.afinalwarning.com/572102.html)
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-编辑/发布：LILY
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
-20211118
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

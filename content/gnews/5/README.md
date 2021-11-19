@@ -2,26 +2,35 @@
 ---
 
 
-## 习拜会成果：中共放行美国 “人质”，美国遣返中共罪犯
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1676897/)
+## 内燃机不能亡，TOYOTA 组织油车大联盟拒绝格拉斯哥协议
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1676938/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-435.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Frichclub.azureedge.net%2Farticle%2F20170508154246_w780.jpg&amp;imgrefurl=https%3A%2F%2Fwww.sinotrade.com.tw%2Frichclub%2Ffreshman%2F%25E4%25B8%2580%25E5%2588%2586%25E9%2590%2598%25E6%2590%259E%25E6%2587%2582%25E7%258F%25BE%25E8%25B2%25A8%25E4%25BA%25A4%25E6%2598%2593--5ea7edfd0d95d31484fde9e3&amp;tbnid=0L2Lo8R1jpYQ_M&amp;vet=12ahUKEwi57_-bxaP0AhXUGCsKHZP6CZgQMygDegUIARCzAQ..i&amp;docid=nn2w2YmIGD--EM&amp;w=780&amp;h=408&amp;itg=1&amp;q=%E4%BA%A4%E6%98%93&amp;ved=2ahUKEwi57_-bxaP0AhXUGCsKHZP6CZgQMygDegUIARCzAQ)
-美国政府透露一名被中共国限制离境多年的美国人已经回到美国，他在美中领导人本周视频会议前几小时被释放。
+撰稿：天蝎独角兽
 
-美籍华人丹尼尔·徐(Daniel Hsu，音译)被解除离境限制时，美国也驱逐了七名被判有罪的中共国公民，其中至少包括一名被中共国政府以欺诈罪名通缉的人。一位美国政府官员否认驱逐这些人是一种交换。
+就在拒绝格拉斯哥协议三天后,TOYOTA铁了心要巩固燃油车帝国，组建「Team Japan」，死守内燃机，并持续开发新引擎。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/16372976251.png)网络截图
+如果油电终须一战，Toyota 已找好燃油车联盟，决定坚持到底。今日 Toyota 宣布成立「Team Japan」，持续开发内燃机技术，成员包括 Subaru、Mazda、Kawasaki 和 Yamaha，这个华丽的阵容在「日本超级耐久赛」中揭晓。
 
-美国官员证实，上周末徐已被中共国当局允许离开中共国。他在中共国未曾被定罪，但四年多来一直被限制离境。他在周一晚间回到家中，当时美国总统拜登与中共国国家主席习近平正在举行三个半小时的视频会议。美国称中共国以限制离境的方式非法扣留了人数不详的美国公民，徐就是其中之一。
+以 Toyota 为首的五间日本汽机车公司，认为这个世界尚未准备好迎接纯电车，他们将持续开发研究更环保的燃油技术，同时也不会中断对氢燃料电池的投入。
 
-另外美国移民和海关执法局(ICE)表示，已将几名中共国公民送上回中共国的飞机，其中包括因欺诈和拍摄国防设施而被定罪的个人，以及两名试图闯入前总统特朗普的海湖庄园的女性。
+Mazda 和 Toyota 将合作开发 1,500 cc 的 Skyactive-D 引擎，让新款赛车能使用生质燃料柴油，用来参加明年的超级耐久赛。Subaru 和 Toyota 同样也会在之后的耐久赛中，采用以生质合成燃料的燃油，来减少碳排放，甚至达成碳中和目标。
 
-“我们欢迎丹尼尔·徐回到美国，”上述美国官员称，并否认遣返这七个中共国人是与领导人会晤有关的交换行动的一部分。
+另两成员 Kawasaki 与 Yamaha 将与 Toyota 合作，将氢燃料电池技术导入摩托车，让引以为傲的重型机车也能使用零排放的氢燃料电池驱动。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/16372976151.png)网络截图
+「五家公司共同承诺，将会持续制造、运输、使用燃油和内燃机，提供客户更好的选择。」Toyota 官方表示。
 
-消息来源：**[独家：被中国限制离境数年的美籍华人在习拜会前获准返回美国](https://cn.reuters.com/article/exclusive-american-china-leaving-1118-th-idCNKBS2I4066?il=0)**
+联盟就成立在 Toyota 拒绝格拉斯哥协议三天后，全球汽车龙头不愿意配合奔驰、福特、通用与 Volvo 等车厂 2040 停用化石燃料协议，展现 Toyota 死守内燃机的决心。
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-3.png)
+有趣的是，相较 Toyota 电动车的牛步，福斯汽车虽然大力推展电动车，但也同样拒绝签署这项协议，可见全球汽车销售前两大的龙头，并不会轻易的放弃现有疆土。
+
+Toyota 将在明年推出第一款量产纯电车 bz4x，Subaru 也会推出相似的电动车，Kawasaki 和 Yamaha 也是日本换电机车联盟的主要成员，显示这些车厂并非反对电动车，只是不愿放弃燃油车市场。而相对保守的策略究竟是对是错，要等到十年后才看得到结果。
+
+评：用不了十年就可看到结果了吧。要么这只是这几个大牌厂商为了未来市场份额       讨价还价的策略，要么是退出舞台的一种开始。咱们拭目以待。
+
+新闻参考链接：[https://technews.tw/2021/11/15/toyota-refuse-zero-emission-league/](https://technews.tw/2021/11/15/toyota-refuse-zero-emission-league/)
+
+发布：五饼二鱼
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/016.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
