@@ -2,53 +2,40 @@
 ---
 
 
-## 接种 Covid 疫苗的人说的 7 大谎言，无论他们是否知道
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1678236/)
+## 恒大近期续命措施难解困境
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678257/)
 
-作者：S.D. 威尔斯
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月17日，郭文贵先生在盖特中揭露，恒大集团印发通知称，11月30日前，剧团必须精简机构，同时，郑州恒大立即开始以最低薪资辞退员工。
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/News-Fake-Media-Satire-Deception-Disinformation-Propaganda-edited.jpg)图片来源：网络
-自然新闻报道：美国人上班、与人交谈，并从他们在主流新闻中听到的内容中解释他们对大流行的“了解”。 有些人是专家，会准确地重复他们在主流新闻中听到或读到的内容。 其他人则是经验丰富的从业者，因为他们专注于某个特定的医疗领域，他们甚至可以非常详细地解释口罩和疫苗的安全性和有效性。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-7.jpeg)
 
-然而，看看电视和对抗疗法网站上的广告，我们就可以确切地看到是谁在资助这种“专家”见解，而且这些都是针对病假药物的制药脚本封面。 这一次，我们谈论的是口腔的细菌感染和肺部的病毒感染，无论你死于什么，包括血栓注射，它都被称为“Covid”。
+据报道，恒大集团将旗下的房产汽车平台——房车宝的多个区域公司解散。另外，法院也正式受理了中共国内住宅装饰公司——全筑股份对恒大多达三百三十三起的诉讼。
 
-50年来，疫苗行业的口号对于每一种疫苗都是一样的：永远“95%有效”、“100%安全”。
+此前，郭先生多次在直播中提及，恒大爆雷虽然被延后，但无法被挽救，许家印一定会宣布破产。近期资料显示，许家印通过变卖个人70亿的资产、清仓股票，以及出售恒大汽车子公司等方式试图为恒大集团续命，但这些措施完全不足以支撑恒大集团正常运营，更不可能缓解即将到来的债务违约。
 
-自 1960 年代以来，大多数美国人都被蒙骗，相信每种疫苗都是安全有效的。 从脊髓灰质炎到麻疹，从 HPV 到 Covid，数亿人因实验性的危险疫苗接种而受伤、终生残废和死亡，而这一切都被媒体、FDA 和 CDC 所掩盖。 人们不愿意相信监管机构和电视上的著名医生（演员）可能会撒谎，并向他们的同胞（男人、女人和儿童）推销导致自闭症、癌症和血栓的药物。 怎么可能？
+参考链接：
+1）[11月17日：恒大，彻底完鸟……](https://www.gettr.com/post/ph8asp6d56)
+2）[焦点：中国恒大忙于还债 掌门人许家印不得不自掏腰包填窟窿](https://cn.reuters.com/article/evergrande-founder-hui-assets-sale-1117-idCNKBS2I205C)
+3）[深夜重磅！许家印变卖家产70亿，给恒大“续命”！卖豪宅卖私人飞机，网友：是条汉子…](https://finance.sina.com.cn/chanjing/gsnews/2021-11-17/doc-iktzscyy5977656.shtml)
+4）[消息：中国恒大旗下房车宝多个区域公司已解散](https://www.zaobao.com.sg/realtime/china/story20211117-1214381)
+5）[突发！这家A股公司状告恒大，涉333起诉讼，金额超2亿！](https://finance.sina.com.cn/stock/s/2021-11-17/doc-iktzqtyu7911208.shtml)
+6）[恒大暴雷时间](https://www.gettr.com/post/pgrob05b6a)
 
-支持疫苗接种的人们现在进行的大多数对话完全依赖于由制造有毒医疗产品和投资昂贵诊断设备的公司编写的新闻。 这就是癌症、糖尿病和肥胖症在美国如此突出的原因，因为主流医生并没有真正尝试解决任何问题；他们只治疗症状，现在他们正在治疗恐惧。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-大流行是基于恐惧的，而凝块注射是 Covid 棺材上的钉子。 尽管如此，接种了 Covid 疫苗的人被洗脑了，他们仍然戴着口罩四处走动，仍然屈服于更多的镜头，仍然相信如果他们挤在一起，他们就可以免受 Covid 感染，仍然在电视上看晚间新闻，仍在滚动 智能设备到 WebMD，每天早上仍然从前到后阅读小说报纸。
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-“完全接种疫苗”的人戴着面具互相开派对，而福奇则宣布疫苗根本不起作用。
-
-你的疗效下降了吗？ 你不看新闻吗？ 在您缩短的余生中，您将需要每 4 个月进行一次新的基因治疗。 此外，正如 CDC 所承认的那样，Covid 疫苗从未停止传播。 正如 FDA 承认的那样，中国流感疫苗从未阻止任何人感染 Covid。 正如福奇刚刚透露的那样，几个月后凝块注射停止提供任何类型的针对 Covid 的保护。
-
-也许是时候再三考虑另一个被媒体、疾病预防控制中心和这个国家的每个接种 Covid 疫苗的人散播的有脚本的谎言，那就是关于 Covid 疫苗将你从 Covid 的“坏案例”中拯救出来的谎言。 哪来的科学证明？
-
-口罩会在口腔、喉咙和肺部滋生细菌感染。 疫苗会导致微小的血凝块，导致过度炎症、心肌炎、朊病毒疾病，许多医生说，最终会导致癌症。 社交距离从未奏效。 这将我们带到了接种疫苗的人互相告诉对方和自己的前 7 个谎言，这样他们就会感到安全和舒适，或者至少在一段时间内消退所有媒体影响的焦虑和恐惧。
-
-谎言#1、“接种了 Covid 疫苗的人彼此之间更安全，因为他们不再携带和传播疾病。”
-
-谎言#2、 “如果你接种了 Covid 疫苗并且仍然感染了它，你就不会那么糟糕了。”
-
-谎言#3、 “Covid 疫苗的成分会留在注射部位，这就是为什么它会肿胀和有点受伤。”
-
-谎言#4、 “加强注射将提高您的免疫力，使其更强壮，更有能力抵抗新的 Covid 变种。”
-
-谎言#5、“接种疫苗的人中的突破性Covid病例都是由未接种疫苗的人引起的。”
-
-谎言#6、 “如果每个人都接种疫苗，那么大流行就会结束。”
-
-谎言#7、“Covid 注射是安全有效的，否则 FDA 和 CDC 不会批准它们。”
-
-来源链接：[https://www.afinalwarning.com/571714.html](https://www.afinalwarning.com/571714.html)
-
-编辑/发布：LILY
-
-20211119
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
