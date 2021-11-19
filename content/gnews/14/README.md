@@ -2,49 +2,24 @@
 ---
 
 
-## 法院禁令：美职业安全与健康管理局暂停强制疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1675921/)
+## 有声|GTV新闻访谈简报|2021年11月17日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1676005/)
 
-**编译：聖地香港**
+配音：香草山教育部 – Rita七号小青蛙
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-17-768x994-1.png)
+文字版原文：[GTV新闻访谈简报|2021年11月17日早](https://gnews.org/zh-hans/1672422/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip30-1.png)2021 年 2 月 8 日，旧金山湾景社区的一个中共病毒疫苗接种点标志。（Haven Daley/美联社照片）
+音频处理：喜山必胜Maverick
 
-美国劳工部下属的职业安全与健康管理局（OSHA）已暂停拜登政府针对私营企业的疫苗强制令。
-
-美国上诉法院于 11 月 12 日驳回拜登政府的盘问，并重申其决定暂停职业安全与健康管理局的授权后不久，该公告发布，其中要求拥有 100 名及以上员工的企业或者截止到 2022 年 1 月 4 日接种中共病毒疫苗，或者每周进行测试并戴上口罩。
-
-新奥尔良第五巡回上诉法院表示，OSHA 的授权“过于广泛”，并命令其“在法院下条命令之前不得采取任何强制施行措施”。
-
-法院此前曾于 11 月 6 日未决诉讼中临时暂停该授权。
-
-劳工部在一份声明中确认了法院的裁决，“法院命令职业安全与健康管理局在法院下条命令之前‘不得实施‘紧急临时授权’” 虽然 OSHA 对其在紧急情况下保护工人的权力仍然充满信心，但 OSHA 已暂停紧急临时授权相关的措施，等待未来的诉讼进展。”
-
-美国至少有 27 个州以及私人雇主、宗教组织和其他团体起诉拜登政府，称其在疫苗强制措施方面越权。
-
-第五巡回法院 11 月 12 日重申，拜登政府的强制疫苗措施 “引发了严重的宪法问题”，“可能超出了联邦政府的权力”。
-
-大纪元时报已联系拜登政府官员征求意见。
-
-与此同时，在 11 月 6 日的初步裁决之后，白宫官员仍继续呼吁雇主遵守对私营企业的强制疫苗规定。
-
-白宫首席新闻副秘书长卡琳·让-皮埃尔（Karine Jean-Pierre）在 11 月 8 日回答关于在法院已经暂停授权的情况下，雇主是否应该推迟要求雇员接种疫苗的问题时表示，“我们认为人们不应该等待，应该立即采取行动来确保工作场所安全，这点十分重要，等待让更多的人接种疫苗会导致疫情进一步爆发。”
-
-卡琳补充道，雇主“不应等待”法律问题得到解决之后再遵守拜登的强制疫苗措施。“他们应该继续推进工作场所的疫苗接种。
-
-**评论：**
-
-**文贵先生之前在直播中说过关于话语权的争夺，在这篇新闻中有所体现。邪恶势力为了卖疫苗，为了股价，不惜牺牲平民百姓的健康乃至生命，其心可诛。在这风起云涌的世界大战之际，唯有新中国联邦人登上诺亚方舟，不打疫苗，拥有预防的药物和解药，同时还拥有喜联储。借用赵本山洗脑小品的台词来讲，纵观世界风云，风景这边更好！希望更多醒来的同胞加入爆料革命、加入新中国联邦，共同灭掉共产党，结束中共病毒大流行，人类才有未来。**
-
-**新闻来源**：[www.ntd.com] [OSHA Suspends Enforcement of Vaccine Mandate After Court Block](https://www.ntd.com/osha-suspends-enforcement-of-vaccine-mandate-after-court-block_702810.html)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

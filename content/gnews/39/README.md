@@ -2,10 +2,21 @@
 ---
 
 
-## 11/17/2021 文贵直播：六中全会的“十大坚持”说明中共已经无人可用、中共正在跟世界脱钩且习要当皇帝
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1674848/)
+## 七哥说—第29期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1675091/)
 
-秘密翻译组-北美组
+**制作：Inzaghi**
+
+天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/a123.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/a124.png)
+
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+
 
  
 

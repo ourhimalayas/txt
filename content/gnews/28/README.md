@@ -2,38 +2,54 @@
 ---
 
 
-## “突然死亡”的全球搜索趋势飙升至历史新高
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1675726/)
+## 美国劳工部职业安全与健康管理局暂停执行疫苗强制令
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1675835/)
 
-据《零对冲》2021 年 11 月 17 日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-425-e1637267039851.png)图片源自本文
-**欧洲的头条新闻拼凑出人们突然死亡的神秘趋势。**
+作者：纽约香草山农场 – 四季
 
-我们注意到一种在全球范围内爆发的 Google 搜索趋势。
-
-**搜索词“突然死亡”在过去两个月飙升至历史新高，数据可以追溯到 2004 年。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-426.png)图片源自本文
-**这里有更多来自美国的头条新闻**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-427.png)图片源自本文
-我们无法明确指出这些神秘死亡的根本原因，但希望将读者引向上周发表的一篇题​​为“德国报纸重点报道最近突然倒地的足球运动员人数异常多”的文章。
-
-在那篇文章中，我们概述了德国报纸《柏林日报》的报道，**“最近异常大量的职业和业余足球运动员倒下了。” **虽然不是死亡，但我们发现运动员的突然崩溃似乎很奇怪，可能与健康有关。
-
-现在推测人们是否因与COVID-19疫苗相关的问题（例如心肌炎症）而突然死亡或崩溃还为时过早。但是，这是一个应该密切关注的趋势。
-
-原文链接：[https://www.zerohedge.com/political/worldwide-search-trend-died-suddenly-spikes-record-highs](https://www.zerohedge.com/political/worldwide-search-trend-died-suddenly-spikes-record-highs)
-
-翻译：洛杉矶盘古农场 — 小象的奶瓶
-
-校对：洛杉矶盘古农场 — 心照
-
-编辑：洛杉矶盘古农场 — 心照
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+据[零对冲](https://www.zerohedge.com/markets/osha-suspends-enforcement-vaccine-mandate-after-court-block)11月17日报道，在被法院阻止后，美国劳工部职业安全与健康管理局（OSHA）已经暂停执行拜登政府对私营企业的中共病毒疫苗强制令。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1453.jpg)图片来源：零对冲
+
+此前，法院曾在11月6日颁布了暂时停止执行疫苗强制授权的命令，要求美国劳工部职业安全与健康管理局“在法院下达进一步指令前，不得采取任何措施来实施或执行该疫苗强制令”。
+
+在随后的11月12日，新奥尔良第五巡回上诉法院驳回了拜登政府的诉求，并重申了搁置美国劳工部职业安全与健康管理局的疫苗强制令的决定。
+
+该强制令要求拥有100名或以上员工的企业要确保雇员在2022年1月4日前接种中共病毒疫苗，或每周接受测试并佩戴口罩。
+
+第五巡回法院在11月12日的重申中指出，拜登政府的疫苗强制令 “引发了严重的宪法问题”，“很可能超出了联邦政府的权限”。
+
+美国至少有27个州，以及私人雇主、宗教组织和其他团体起诉拜登政府，声称它在发布这一授权时超越了其权限。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 
