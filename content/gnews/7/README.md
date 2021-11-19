@@ -2,32 +2,34 @@
 ---
 
 
-## 职业安全与健康管理局暂停执行雇主的“强制疫苗”规定
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1678690/)
+## 恒大被踢出恒生指数
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1678725/)
 
-**据《福克斯59.com》尼克星媒体网于2021年11月17日报道**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/af68z-tsp7s.jpg)图片来源：网络
-华盛顿特区（WSPA）在美国第五巡回上诉法院11月12日作出裁决后，职业安全与健康管理局（OSHA）表示，它已暂停实施和执行“雇佣超过100位员工的雇主必须要求雇员接种疫苗或进行COVID-19测试“有关的所有活动，并在等待诉讼的进一步发展。
-法院的裁决命令OSHA不能采取任何措施来实施或执行所谓的紧急临时标准，“直到法院进一步指令”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/iStock-864893078-770x436-1-1.jpg)图片来源: iStock
+编辑摘要：
 
-据美联社周二报道，拜登总统关于“对私人雇主的COVID-19疫苗授权的挑战”现在将被合并到美国第六巡回上诉法院，这个小组由共和党人任命的法官主导。
+据中国基金报11月19日报道，19日收市后，恒生指数有限公司（“恒指公司”）公布了第三季度恒生系列指数检讨结果。恒生中国企业指数(“国指”)成份股数量未变，但中国恒大被踢出指数。
 
-在所有11个联邦地区巡回法院以及哥伦比亚特区的巡回法院中，总共提出了34项反对意见。
+每次恒指调整都意味着资金流向的变动，尤其是追踪指数的被动资金。第三季度恒指调整报告指出，追踪恒指和国指的ETF资金规模分别为211.2亿及42.3亿美元。11月19日，替代恒大进入国指的信达生物上涨2.42%。
 
-位于辛辛那提的法院是周二用乒乓球随机抽签选出来的，当对某些联邦机构的行动提出质疑时，会在多个法院采用这一程序。
+股市跌宕沉浮，百亿资金重组调整，蒙骗的只是不知情的股民。恒大已经出局，中共房地产市场即将崩盘，由此引发国内经济危机，甚至世界经济危机，没人能够阻挡。兴于此，必败于此。中共的经济主要靠虚假的房地产市场来支撑。一旦房地产倒下，山崩海啸般的灾难，难以想象。
 
-拜登政府坚持认为OSHA的紧急临时标准具有强大的法律基础。它还得到了美国医学协会的支持，该协会提交了文件支持这项任务。
+新闻参考链接：[确定了！恒大“被踢出局”](https://finance.sina.cn/stock/ssgs/2021-11-19/detail-iktzscyy6588326.d.html?sinawapsharesource=newsapp)
 
-**文章来源**:[https://fox59.com/news/coronavirus/osha-suspends-enforcement-of-large-employer-vaccine-mandate/](https://fox59.com/news/coronavirus/osha-suspends-enforcement-of-large-employer-vaccine-mandate/)
 
-翻译：洛杉矶盘古农场 – Mike Li
-校对：洛杉矶盘古农场 – 小象的奶瓶
-编辑：洛杉矶盘古农场 –小象的奶瓶
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
