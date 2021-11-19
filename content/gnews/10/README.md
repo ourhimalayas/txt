@@ -2,16 +2,27 @@
 ---
 
 
-## 王岐山出席经济论坛
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1677216/)
+## 有声|
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1677237/)
 
-彭博11月17日报道：王岐山在新加坡举行的彭博新经济论坛上进行了线上演讲，其强调“中共国不能孤立于世界发展，世界没有中共国也不能发展，中共国深化改革、扩大开放的决心不会动摇。”
+配音：香草山教育部 – Rita七号小青蛙
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/1117text-SC.png)
 
-财经G评：
-习跟拜登视频会晤，王歧山也到彭博的场子上刷存在感。
-![img](https://media.gettr.com/group26/getter/2021/11/17/03/18/9e6c4ba5-1c5d-816f-f320-4e921f1924a7/fd62c97f853bedb4aad2a075137a2428_500x0.jpg)
-（文章内容仅代表新西兰-财经G乐部节目观点）
 
+文字版原文：[GTV新闻访谈简报|2021年11月17日晚](https://gnews.org/zh-hans/1673585/)
+
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

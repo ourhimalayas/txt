@@ -15,149 +15,149 @@
 
 ---
 
-### [日本计划拨款7700亿国防开支，应对中共军事威胁](/content/gnews/1/README.md)
+### [比特币跌，还会跌，喜马拉雅币涨，还会涨](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [高瓴发布最新美股持仓报告](/content/gnews/2/README.md)
+### [日本计划拨款7700亿国防开支，应对中共军事威胁](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加密货币抛售](/content/gnews/3/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [2018年5月22日郭文贵先生第一次直播全文字版](/content/gnews/3/README.md)
+### [高瓴发布最新美股持仓报告](/content/gnews/4/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [2018年5月22日郭文贵先生第一次直播全文字版](/content/gnews/5/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [有声| 毒疫苗，你的危害还要走多远？](/content/gnews/4/README.md)
+### [有声| 辉瑞允许仿制商在多国试验新冠药物](/content/gnews/6/README.md)
  ` MOSREC`
 
-### [有声| 参议员怒批拜登不提病毒溯源](/content/gnews/5/README.md)
+### [有声| 毒疫苗，你的危害还要走多远？](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [有声| 澳洲政府保护63个涉及国家安全的科技项目](/content/gnews/6/README.md)
+### [有声| 参议员怒批拜登不提病毒溯源](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [有声|](/content/gnews/7/README.md)
+### [有声| 澳洲政府保护63个涉及国家安全的科技项目](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [塞雷娜·威廉姆斯对中国网球明星彭帅的失踪感到 ＂悲恸和震惊＂](/content/gnews/8/README.md)
+### [有声|](/content/gnews/10/README.md)
+ ` MOSREC`
+
+### [有声| 林郑月娥承认依照中共国安法审核外媒签证](/content/gnews/11/README.md)
+ ` MOSREC`
+
+### [塞雷娜·威廉姆斯对中国网球明星彭帅的失踪感到 ＂悲恸和震惊＂](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [墨尔本全面取消限制，中央商务区依然空置](/content/gnews/9/README.md)
+### [墨尔本全面取消限制，中央商务区依然空置](/content/gnews/13/README.md)
  ` 走进澳洲`
 
-### [王岐山出席经济论坛](/content/gnews/10/README.md)
+### [王岐山出席经济论坛](/content/gnews/14/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [中共北交所上市第二天情况](/content/gnews/11/README.md)
+### [中共北交所上市第二天情况](/content/gnews/15/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [Coinbase建议美国设立单一的加密监管机构](/content/gnews/12/README.md)
+### [Coinbase建议美国设立单一的加密监管机构](/content/gnews/16/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [岸田文雄的40万亿日元经济刺激计划](/content/gnews/13/README.md)
+### [岸田文雄的40万亿日元经济刺激计划](/content/gnews/17/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [中财办副主任韩文秀：慈善捐赠是自愿行为，绝不能“杀富济贫”“杀富致贫”](/content/gnews/14/README.md)
+### [中财办副主任韩文秀：慈善捐赠是自愿行为，绝不能“杀富济贫”“杀富致贫”](/content/gnews/18/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [疫苗灾情｜新西兰 36 岁男子接种疫苗三周后心脏病发作 冀助其他受害者一起活下去](/content/gnews/15/README.md)
+### [疫苗灾情｜新西兰 36 岁男子接种疫苗三周后心脏病发作 冀助其他受害者一起活下去](/content/gnews/19/README.md)
  ` G&#124;News TAIWAN`
 
-### [财经G评之元宇宙](/content/gnews/16/README.md)
+### [财经G评之元宇宙](/content/gnews/20/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [每日快报：通往法西斯的道路用疫苗任务和企业勾结铺就](/content/gnews/17/README.md)
+### [每日快报：通往法西斯的道路用疫苗任务和企业勾结铺就](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [比尔．盖茨和默克公司想干什么？](/content/gnews/18/README.md)
+### [比尔．盖茨和默克公司想干什么？](/content/gnews/22/README.md)
  ` 秘密翻译组-原创组`
 
-### [币圈新闻动态：喜币（HCN）价格17日实时价格为36.721 HDO](/content/gnews/19/README.md)
+### [币圈新闻动态：喜币（HCN）价格17日实时价格为36.721 HDO](/content/gnews/23/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [国防部长称俄罗斯正“密切关注”英国皇家海军航空母舰](/content/gnews/20/README.md)
+### [国防部长称俄罗斯正“密切关注”英国皇家海军航空母舰](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美日联袂，对中共贸易“一剑封喉”](/content/gnews/21/README.md)
+### [美日联袂，对中共贸易“一剑封喉”](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [立陶宛不顾中共威胁，批准设立“驻立陶宛台湾代表处”](/content/gnews/22/README.md)
+### [立陶宛不顾中共威胁，批准设立“驻立陶宛台湾代表处”](/content/gnews/26/README.md)
  ` 首尔天池农场`
 
-### [科学家们一直在设计方法将他们所谓的疫苗加入食品供应中](/content/gnews/23/README.md)
+### [科学家们一直在设计方法将他们所谓的疫苗加入食品供应中](/content/gnews/27/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [【文炬拾字】摆拍造假的中共选举](/content/gnews/24/README.md)
+### [【文炬拾字】摆拍造假的中共选举](/content/gnews/28/README.md)
  ` 温哥华扬帆农场`
 
-### [文雍漫谈：心声](/content/gnews/25/README.md)
+### [文雍漫谈：心声](/content/gnews/29/README.md)
  ` 文雍`
 
-### [看中共如何“一房四吃”](/content/gnews/26/README.md)
+### [看中共如何“一房四吃”](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [王公公发飙敲打日本新外相](/content/gnews/27/README.md)
+### [王公公发飙敲打日本新外相](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频| 解读中共的“十大坚持”](/content/gnews/28/README.md)
+### [视频| 解读中共的“十大坚持”](/content/gnews/32/README.md)
  ` MOSREC`
 
-### [孟宏伟的妻子抨击 “恶魔 ”中共国](/content/gnews/29/README.md)
+### [孟宏伟的妻子抨击 “恶魔 ”中共国](/content/gnews/33/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [视频| 拜习会的真正核心是什么？](/content/gnews/30/README.md)
+### [视频| 拜习会的真正核心是什么？](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [中共外交部发言人竟狂言《台湾关系法》非法无效](/content/gnews/31/README.md)
+### [中共外交部发言人竟狂言《台湾关系法》非法无效](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [前工党议员投反对票，安德鲁斯大流行病法案面临夭折](/content/gnews/32/README.md)
- ` 走进澳洲`
-
-### [COVID-19 最新情报｜科学家们成功获得资助尝试将新冠疫苗注入蔬菜让未接种者吃下](/content/gnews/33/README.md)
+### [COVID-19 最新情报｜科学家们成功获得资助尝试将新冠疫苗注入蔬菜让未接种者吃下](/content/gnews/36/README.md)
  ` G&#124;News TAIWAN`
 
-### [警惕：邪恶势力或使用天花病毒实施恐怖袭击](/content/gnews/34/README.md)
+### [警惕：邪恶势力或使用天花病毒实施恐怖袭击](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [政治操作和蓝金黄！文贵先生揭露中共奥运会的真相](/content/gnews/35/README.md)
+### [政治操作和蓝金黄！文贵先生揭露中共奥运会的真相](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [新中国联邦教育组将规划儿童网络教学方案](/content/gnews/36/README.md)
+### [新中国联邦教育组将规划儿童网络教学方案](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
-### [今天流血的你是否还记得昨日的创伤](/content/gnews/37/README.md)
- ` 澳喜特战旅Gnews`
-
-### [中共是邪恶势力的全球总部](/content/gnews/38/README.md)
+### [中共是邪恶势力的全球总部](/content/gnews/40/README.md)
  ` GTV新闻访谈`
 
-### [阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%](/content/gnews/39/README.md)
+### [阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%](/content/gnews/41/README.md)
  ` 纽约香草山MOS01`
 
-### [七哥谈喜联储IX:不是战友们第一个赚钱的平台就是失败的](/content/gnews/40/README.md)
+### [七哥谈喜联储IX:不是战友们第一个赚钱的平台就是失败的](/content/gnews/42/README.md)
  ` NewFOC`
 
-### [驻立陶宛台湾代表处正式成立](/content/gnews/41/README.md)
+### [驻立陶宛台湾代表处正式成立](/content/gnews/43/README.md)
  ` 日本东京方舟农场`
 
-### [拜耳高管称mRNA针剂是 “基因疗法”，被包装为 “疫苗”](/content/gnews/42/README.md)
+### [拜耳高管称mRNA针剂是 “基因疗法”，被包装为 “疫苗”](/content/gnews/44/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国又一个P2P平台“共信赢”爆雷](/content/gnews/43/README.md)
+### [中共国又一个P2P平台“共信赢”爆雷](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [跪舔姿势不正确，叶檀挨铁拳](/content/gnews/44/README.md)
+### [跪舔姿势不正确，叶檀挨铁拳](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [广发银行与蓝光地产内外勾结骗贷55亿](/content/gnews/45/README.md)
+### [广发银行与蓝光地产内外勾结骗贷55亿](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [驻立陶宛台湾代表处正式成立，中共气的跳脚](/content/gnews/46/README.md)
+### [驻立陶宛台湾代表处正式成立，中共气的跳脚](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [盖特备受基金投资者的青睐](/content/gnews/47/README.md)
- ` GTV新闻访谈`
-
-### [为什么我们之前没有被告知非药物疗法？](/content/gnews/48/README.md)
- ` 澳喜农场`
 
 ### [今天中共的狂妄自满恰恰是明天全球声讨其罪恶的铁证！](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

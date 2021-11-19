@@ -2,30 +2,41 @@
 ---
 
 
-## 驻立陶宛台湾代表处正式成立
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1676878/)
+## 阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1676922/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+作者：香草山金融部 – 闲聊钱币
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/0486425C-1437-48A5-9ED3-F01E318101D0.jpeg)（图片来自台湾外交部）
 
-据《自由时报》11月18日报道，台湾外交部宣布，“驻立陶宛台湾代表处”18日正式设立并挂牌运作。首任驻立陶宛代表将由原驻拉脱维亚代表黄钧耀出任。这是台湾在欧洲设立的首个以“台湾”为名的代表处。
 
-台湾外交部表示，“驻立陶宛台湾代表处”的设立，为“台立”实质交流合作开启了新一页。该代表处即日起将负责立陶宛全境包含领事在内等业务；驻拉脱维亚代表处则继续负责拉脱维亚并兼辖爱沙尼亚。两处将共同推动与波罗的海三国的实质关系，并为旅外国人提供各项服务。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
 
-台湾外交部指出，台湾和立陶宛在半导体、激光、金融科技等各项产业领域，有着庞大合作潜力。中东欧三国经贸投资考察团10月下旬成功访问立陶宛，双方签署6项合作备忘录，共同擘画未来密切合作蓝图，奠定友好坚实的合作基础。未来也将持续在共享的核心价值上，致力促进双方人民的友谊。
 
-中共此前对立陶宛与台湾互设代表机构一事表示强烈不满，并对立陶宛施以经济报复。然而中共的这一施压做法，反倒引起欧美各国纷纷声援立陶宛。
 
-*参考链接：[https://news.ltn.com.tw/news/politics/breakingnews/3740999](https://news.ltn.com.tw/news/politics/breakingnews/3740999)*
+路透社伦敦11月18日报道，中共国的大型电商阿里巴巴股价周四盘前暴跌10.3%。官方给出的理由是消费放缓，竞争加剧，以及监管部门的打击。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1005-1.jpg)
+这些理由看似都很有道理，但是并未揭开表面原因背后的深层含义。首先来说消费放缓。没错，老百姓买买买的动力的确是慢下来了。韭菜们已经快被连根拔起了，哪里还有能力自身消费？再来看看竞争加剧。从来商场如战场，竞争一直都存在着。凡是购买过淘宝商品的人几乎都知道淘宝上假冒伪劣商品泛滥，由此导致的客商纠纷从未断过。这样一个不以商品品质盛出的店家终将被淘汰。最后，监管部门的打击绝不是要维护法律的公平公正，而是要杀鸡取卵，给中共摇摇欲坠的经济打点儿鸡血。
 
-* * *
+马云被限制自由，蚂蚁金服募资暂停，阿里巴巴股价暴跌，这一切都只是中共内斗的冰山一角。
 
-*素材采编：幽蘭自得*
+（本文仅代表作者观点）
 
-*编辑：青衣青青*
+参考来源：[阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%](https://www.reuters.com/business/chinas-alibaba-misses-quarterly-revenue-expectations-2021-11-18/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Nomura%20JP%2011-18-21%20Sponsorship&amp;utm_campaign=Nomura%20JP%2011-18-21%20Sponsorship)
 
-*发布：miumiu*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
+
 
  
 
