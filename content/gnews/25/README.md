@@ -2,37 +2,44 @@
 ---
 
 
-## 美特种部队重点为与中共国或俄罗斯的战争做准备
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1677670/)
+## 美国国会报告认为香港已经“中共化”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1677735/)
 
-整理报道：七彩光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/ezgif-2-08f641f02c3c.jpg)图片来源：商业内幕
-11月18日，《新闻极限》引述《商业内幕》的报道，称美军特种作战部队正转移重点，为与中共国或俄罗斯的可能战争做准备。
+作者：日本樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月17日，据美国“美中经济与安全审议委员会”向国会提交的年度报告显示，在中共国安法下，香港的人权、司法、教育和营商环境正在不断倒退，已经逐步恶化至“中共化”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-19-下午9.24.43.png)
+报告提及，中共当局借由国安法扼杀香港的民主运动，打压香港异己政治势力，损害香港的营商环境及全球金融中心优势，剥夺港人的言论自由，还侵害了香港的司法独立性。
 
-根据该新闻媒体的报道，现在就有一些部队已经在夏威夷为此而进行训练，尤其是要在一个完全不同类型的战争中，寻找各种方法来与时俱进。
+对此，委员会向美国国会提出了五大建议：
 
-绿色贝雷帽（即美国陆军特种作战部队）占据美国特种作战部队的大部分，美国特种作战部队专注于非常规战争和外国内部的防御，例如向友军部队和游击队提供训练或咨询。但是，该新闻机构称绿色贝雷帽也可以进行战略侦察、反恐和直接行动，如突袭。
+一、修改《香港自治法》，将中共是否控制香港政府侵犯香港人的移民自由纳入至年度报告中；
 
-《商业内幕》称，在最近的训练演习中，来自第一特种作战部队的绿色贝雷帽与夏威夷第25步兵师的第三旅战斗队进行了合作，训练内容包括步兵作战的基础知识：小分队战术。
+二、修改2000年签订的《美中关系法》第421条，重新考虑香港在国际贸易中的地位，避免中共通过香港逃避国际关税；
 
-美国陆军特种作战司令部在最近的一份报告中，确定了面临与俄罗斯和中共国战争时，特种部队能够做出贡献的方式。在所有的措施中，包含在被准入的地区进行远程渗透，在纵深地区招募和训练当地游击队。
+三、鼓励国土安全部根据《移民和国籍法》行使权利，为申请进入美国的香港人提供临时入境许可；
 
-文章说，根据《华尔街日报》10月份的报道，称面对中共国可能的对台湾的侵略，大约二十多名美国特种作战部队和支援部队成员一直在台湾进行训练，以努力加强台湾的防御能力。并且，官员还告诉《华尔街日报》称，这样的训练已经持续了至少一年。
+四、美国司法部和商务部应要求美国在港公司提供季度报告，当中包括港共政府收集数据或删改内容的详细信息；
 
-**新闻来源**
+五、司法部需对在美经营的媒体机构进行规整，要求由中共或港共政府控制的媒体根据《外国代理人登记法》在美国进行登记。
 
-[US Special Forces Training for War With China or Russia](https://www.newsmax.com/newsfront/us-special-forces-hawaii-china-russia/2021/11/18/id/1045226/)
+参考链接：
+1）[2021 Annual Report to Congress](https://www.uscc.gov/node/862)
+2）[美国会报告形容香港”大陆化” 提出五大应对建议](https://www.rfa.org/mandarin/yataibaodao/gangtai/ac2-11182021065833.html)
 
-**发布：七彩光**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-**更多资讯，请关注：**
+总编：Jack Li文阳
+编辑：Irene木木
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

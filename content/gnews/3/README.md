@@ -2,18 +2,31 @@
 ---
 
 
-## 【文贵先生大直播PPT】加密货币与法币共存的时代已经到来
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1677977/)
+## 樱花灭共诗——辛丑六四夜重寄郭文贵先生
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1678086/)
 
-撰稿：sotres，ILOVE战神，Benj1，now小哥
-美工：卡西娅，雷蒙
-审核：三票先生，顽童先生，政清
+撰稿：东京樱花团/小小杜
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-82.jpg)
+独卧南窗阁，
 
-【2021年11月19日文贵先生大直播PPT：加密货币与法币共存的时代已经到来】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/21-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/25-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/111-2-2.jpg)
-* * *
+无眠近未央。
 
-发稿：云起时
+看山潮起伏，
+
+怜事意彷徨。
+
+热血非谋位，
+
+丹心要改良。
+
+与君同守望，
+
+呜咽泪沾裳。
+
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-4.png)
+
 
  
 

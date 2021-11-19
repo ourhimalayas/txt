@@ -2,12 +2,20 @@
 ---
 
 
-## 恒大彻底完了
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1677346/)
+## 西媒头条 — 第113期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1677350/)
 
-此前，恒大已经抛售恒腾网络22亿股，套现额88.08亿港元。到此，中国恒大累计抛售恒腾网络38.6亿股，套现额超百亿港币。
-![img](https://media.gettr.com/group37/getter/2021/11/18/08/11/dbbd0890-f197-88c6-d7ac-eda45d05b47d/01f03cec1cf6c759ddb63e30179cdf89_500x0.jpg)
-（文章内容仅代表新西兰-财经G乐部节目观点）
+制作：蚂蚁兄弟
+
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/xm1119.001.jpeg)
+
+* * *
+
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+
 
  
 
