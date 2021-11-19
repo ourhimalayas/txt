@@ -2,28 +2,24 @@
 ---
 
 
-## 万事达卡将推出亚太地区首张加密货币信用卡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1677734/)
+## 菲律宾谴责中共海警船非法阻挡菲补给船
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1677789/)
 
-作者：纽约香草山 医疗部 云豹
+作者：日本樱花团 – 在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，万事达卡公司宣布，即将推出亚太地区首张与加密货币连动的信用卡。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-19-下午9.24.35.png)
-消息称，万事达卡将与泰国和澳洲的3家加密货币服务公司合作，帮助用户直接将数字资产转换为通用法币进行支付。
+当地时间11月16日，据菲律宾政府消息，中共三艘海警船非法阻止两艘菲律宾向阿云金暗沙运送物资的补给船，并对菲律宾补给船使用了水炮。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-10.jpg)
+资料显示，2016年7月，海牙国际仲裁法庭做出裁决，由于阿云金暗沙在涨潮时没入水中，因此该岛构成菲律宾专属经济区和大陆架的一部分，且不与中共国任何可能的权力主张相重叠。但中共方拒绝接受该裁决，并继续使用武力强行推进其非法主权扩张的行为。
 
-据万事达卡在亚太地区所作的市场调查发现，接近一半的受访者表示，会考虑在2022年使用加密货币。
-
-相关评论表示，加密货币正在逐渐被世人接受并落实在实际生活的层面上。因此，应运而生的喜币因着其独一无二的优越性，注定将在未来拥有无限可能的发展空间。
+对此，菲律宾外交部长洛欣于18日在声明中以最强烈的措辞，向中共驻菲大使以及中共外交部表达了菲律宾的愤怒、谴责和抗议。同时，他还提醒中共，菲律宾政府的船只受到菲律宾与美国共同防御条约的保护。
 
 参考链接：
-1）[萬事達卡在亞太區推首張加密貨幣信用卡](https://ec.ltn.com.tw/article/breakingnews/3731062)
-2）[嗅到元宇宙商機 萬事達卡發行亞太區首張加密貨幣卡](https://www.cna.com.tw/news/afe/202111180420.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+[中国海再有事 马尼拉“最强烈”谴责中国海警船射水炮阻挡菲律宾补给船](https://www.voachinese.com/a/philippines-south-china-sea-20211118/6317972.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-总编：Irene木木
-编辑：AN
-校正/发稿：呼吸的雾霾（文小呼吸）
+总编/编辑：文特
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

@@ -2,39 +2,34 @@
 ---
 
 
-## DC每日热点1119
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1677802/)
+## 泽连科医生强调疫苗对儿童有严重致命性
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1677818/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/11/665A04DF-BFA9-4B86-98D7-68510837DDEE-scaled.jpeg)
-道琼斯指数 35870.95 ▼0.17%
-纳斯达克指数 15993.71 ▲0.45%
-WTI纽约原油CFD 75.785 ▼3.31%
-布伦特原油CFD 78.627 ▼3.25%
-标普中概股50指数 3,573.32CNY▼-24.97%
-美元兑人民币 1USD=6.390RMB
-美元兑港币 1USD=7.792HKD
-国际黄金 1861.18 美元/盎司
-全球CCP病毒感染人数 256,528,787 例
+作者：英国喜庄园 – I770775
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月16日，泽连科医生在盖特上再次发声，呼吁大家“救救孩子”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/10-7.jpg)
+泽连科医生揭露，新冠疫苗对儿童的致命性伤害远远高于新冠病毒本身。 医生补充道，最新的统计数据表明，儿童每出现一例因新冠病毒引发的自然死亡案例，就会同步出现172例因新冠疫苗副作用导致的死亡案例，这表明，新冠疫苗对儿童的致命性是新冠病毒的172倍，该数据已经远远高于之前统计的1:100。
 
-1、立陶宛挺台 美国以出口信贷协议支持，中共官媒恶言相向
-2、中俄军机飞入韩国防空识别区
-3、拜登表示正在考虑对北京冬奥会进行外交抵制 有议员呼吁全面抵制
-4、美国议员推动让台湾参与国际刑警组织
-5、美中等多国考虑联合释放石油储备，为油价上涨降温
-6、中共游说让缅甸军政府参加中共国-东盟峰会，遭到东盟成员国反对
-7、布林肯访问尼日利亚，讨论美国的非洲政策
-8、美政府与辉瑞达成协议 购1千万疗程新冠口服药
-9、日本外务大臣18日通话与中共外长王毅，明确表示台海和平稳定很重要
-10、在“恶势力”打压下“以退为进”，香港童装品牌Chickeeduck宣布撤离香港
-11、墨西哥出现2000移民潮大篷车队 1个月内2批
-12、乌克兰警告：面对自白俄罗斯的移民潮冲击边境时将会开枪
-13、联合国要中共国提供证据证明彭帅安好
-14、美国报告：中共侵台风险高但非不可能 吁增威摄力及减中美经济关系 中方斥诽谤
-15、日本将通过史上最大规模经济计划 针对中共国威胁意味浓
-16、美中经济和安全审议委员会呼吁限制美国对华投资，称国安风险加剧
-17、 中印边境事务磋商协调工作机制第23轮谈判同意尽早解除部队对峙
+对此，泽连科医生痛心疾首地强调，人们应该关注疫苗真相，同时，各国政府需要立即停止大面积接种新冠疫苗的行为，尤其是不能给儿童接种疫苗。
 
+参考链接：
+[泽连科医生：新冠疫苗对儿童的致命性是病毒的172倍!](https://gettr.com/post/ph90l51bff)
+[Dr. Vladimir Zev Zelenko](https://gettr.com/post/ph4frj80b5)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+
+总编：Irene木木
+编辑：Lakeman(文仁)
+校正/发稿：Fei797
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
