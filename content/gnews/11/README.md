@@ -2,19 +2,30 @@
 ---
 
 
-## 外国人和党内的人都认为干掉习才能得到解放和自由
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1676371/)
+## 有声|多国取消人民币互换业务，戳破中共虚假经济
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1676449/)
 
-文编：东京樱花团/樱花传媒
-视频：东京樱花团/中文小视频组
+配音：香草山教育部 – Rita七号小青蛙
 
-11月17日，郭文贵先生在GTV大直播指出：
+11月15日，郭先生在盖特中爆料：近日，很多国家都在想办法把之前认购的换汇人民币处理掉，并且取消与中共国的人民币互换额度。
 
-六中全会让江、孟等势力和大企业家们更清楚地认识到，政治斗争已到了你死我活的时刻，不除掉习，他们自己一定会被消失。不仅中共党内，美国、世界也一致认为习是罪魁祸首，除习是解救中国的唯一途径。接下来的政治绞杀会给新中国联邦带来灭共的大好机会，但也为中国老百姓由此受连累而担心。
+许多国家和中国有大量贸易往来，为了减少对美元的依赖和中间货币交易的成本，以及解决两国之间税收的问题，才有了本币互换业务。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
+郭先生指出，当本币互换额度减少，意味着两国的贸易额减少，说明他国失去对中国经济的信心，以至于不惜高成本使用美元。中共虚假的经济泡沫被戳破。
+
+文字版原文：[多国取消人民币互换业务，戳破中共虚假经济](https://gnews.org/zh-hans/1670426/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

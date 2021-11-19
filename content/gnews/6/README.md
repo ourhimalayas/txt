@@ -2,23 +2,19 @@
 ---
 
 
-## 樱花灭共诗——僭尊（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1676473/)
+## 新中国联邦是秉承上天旨意而来的
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1676531/)
 
-#### 作者：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-炮轰催雪兆吉天，独角六中全会完。
+文编：东京樱花团/樱花传媒
+视频：东京樱花团/中文小视频组
 
-蛛网导图铭旧业，鼠仓加冕帝新冠。
+11月17日，郭文贵先生在GTV大直播指出：
 
-大国决议单核器，全会票投一指禅。
+就像IBM的量子芯片即将诞生，在科技技术快速腾飞的时代，具有道德和信仰的新中国联邦追求内心及精神的高贵，不忘感恩之心，认清天赐与我们的使命。相信新中国联邦有超人类，非自然的神秘力量的引导和保佑。
 
-倾亿党徒尊僭主，可知膝下竟无男。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/E3DF5A53-DE76-4124-8348-A76302424C91.jpeg)
-*插图：东京樱花团/闪闪*
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

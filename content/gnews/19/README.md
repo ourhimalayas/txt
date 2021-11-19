@@ -2,26 +2,41 @@
 ---
 
 
-## 天主教领袖号召全球信众联合反抗极权主义
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1676183/)
+## 澳联储称，大流行让更多人储藏现金
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1676229/)
 
-采编：风云小哥   编译撰稿：文明(添草灭共)
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GettyImages-688344538-e1567402516701-1.jpg)图片来源：Crikey
+**翻译：**月映万川
+**编辑：**翼族
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-9-edited.jpeg)图片来源：TGP
+在澳大利亚，人们看到50元和100元纸币现金的机会越来越少。在整个大流行期间，实体店关停，导致网上购物越来越流行。即使那些还在开着的店，也更喜欢银行卡支付，因为银行卡比现金更卫生。
 
+但是令人奇怪的是，目前市场上的纸币持有量却达到了历史新高。所以问题就是可能大多数的纸币都被藏到了床垫下，袜子或柜子里。
 
-据美国自媒体【网关专家】11月17日报道，天主教前驻美大主教维格诺当天公开呼吁：全球所有的天主教信徒应联合起来，共同将人类从极权主义政权中解放出来。
+澳联储的货币发行主任玛丽莎·霍普说：“这种趋势让很多人都非常困惑，很多人都感觉纸币使用得越来越少。银行取出的现钞，越来越多被作为一种财富储备，这意味着，它们更多的被藏在了床垫下，而不是放在了收银机里。”
 
-为此，该主教提出倡议：把天主教基督徒和有善心的信众召集在一起，组成“反全球化联盟”，以对抗那些试图奴役妇孺，剥夺人类自由的“邪恶精英集团”。
+在大流行前，有800亿现钞在经济中流通。而就在大流行的一年后，这一数值升到了1000亿。
 
-此外，该联盟将谴责和追究“极权主义集团”责任人的罪行，并向国际法庭对其提起控告，以此限制过度权力所造成的灾难。同时，当前首要目标就是打击各国政府官员在信息产业中的深度腐败，并冻结其用于破坏社会秩序的非法资本。
+**为什么会出现这种趋势呢**？
 
-* * *
+第一，“人们为了应对经济的不确定性。”
 
-校对编辑，发稿：硫酸羟氯喹64
+另一种原因就是“利率过低，导致自己在家储藏现金与放在银行的差别不是很大。”
 
-原文链接：
-https://www.thegatewaypundit.com/2021/11/huge-exclusive-archbishop-carlo-maria-vigano-calls-people-faith-unite-worldwide-anti-globalist-alliance-free-humanity-totalitarian-regime-video/
+现实中，这种趋势可能是比较反常的。人们仍然在放弃使用现金，除了在买咖啡、支付停车费以外。长期的趋势正朝着电子交易化的方向发展。
+
+霍普说：“澳联储会经常与经济各方座谈，确保各方的声音都能够被听到和考虑到。我们印刷钞票的数量一定会是我们认为的能够满足各方要求的数量。”
+
+**原文链接：**[RBA says cash hoarders stashed record amounts during pandemic](https://amp.abc.net.au/article/100628486)
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

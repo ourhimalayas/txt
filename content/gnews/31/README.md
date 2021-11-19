@@ -2,24 +2,29 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2021年11月17日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1676005/)
+## 加拿大法院结束 COVID 紧急情况| 戴口罩、封锁和紧急使用疫苗接种 现在是非法的
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1676105/)
 
-配音：香草山教育部 – Rita七号小青蛙
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-17-768x994-1.png)
-文字版原文：[GTV新闻访谈简报|2021年11月17日早](https://gnews.org/zh-hans/1672422/)
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-58-1.png)图片来源：网络
+加拿大多个省法院审理的许多案件已经结出硕果，政府被迫宣布结束紧急状态，但媒体并未对此进行报道，政府本身仍在继续其议程，尽管他们现在 100% 这样做是犯罪。 如果没有进入紧急状态，口罩强制令、封锁或所谓的“疫苗”就没有法律依据，因为它只有紧急使用授权。
 
-音频处理：喜山必胜Maverick
+显然，并非这个国家的所有法院都受到了腐败
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+为 Covid 危害人类罪的肇事者伸张正义
+
+加拿大排名第一的宪法律师 Rocco Gallati 证实，加拿大高等法院已终止针对 Covid-19 的紧急法案，从而取消了所有省份的所有封锁和戴口罩规定。
+
+贾斯汀·卡斯特罗领导的专制共产主义政府无视法治。
+
+来源链接：[https://rightsfreedoms.wordpress.com/2021/07/15/canadian-court-ends-covid-emergency-mask-mandates-lockdowns-emergency-use-jab-are-now-unlawful/](https://rightsfreedoms.wordpress.com/2021/07/15/canadian-court-ends-covid-emergency-mask-mandates-lockdowns-emergency-use-jab-are-now-unlawful/)
+
+编辑/发布：LILY
+
+20211118
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

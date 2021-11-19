@@ -2,27 +2,23 @@
 ---
 
 
-## 加拿大法院结束 COVID 紧急情况| 戴口罩、封锁和紧急使用疫苗接种 现在是非法的
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1676105/)
+## 孟宏伟之妻直面镜头接受采访
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1676135/)
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-58-1.png)图片来源：网络
-加拿大多个省法院审理的许多案件已经结出硕果，政府被迫宣布结束紧急状态，但媒体并未对此进行报道，政府本身仍在继续其议程，尽管他们现在 100% 这样做是犯罪。 如果没有进入紧急状态，口罩强制令、封锁或所谓的“疫苗”就没有法律依据，因为它只有紧急使用授权。
+撰稿：西枫westca
 
-显然，并非这个国家的所有法院都受到了腐败
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-8-1.jpg)图片来源：美联社
+据美国之音11月18日报道，前国际刑警组织主席孟宏伟妻子高歌在法国里昂接受美联社采访。痛批中共政府是“魔鬼”。
 
-为 Covid 危害人类罪的肇事者伸张正义
+孟宏伟在中共的策划下，与2016年当选为国际刑警主席，国际刑警曾在2017年郭文贵先生接受美国之音采访前夕，发出了“红通令”。然而，2018年，在孟宏伟返回后突然失踪，在2019年突然被中共宣布将其开除出党，指责他以权谋私。2020年天津市第一中级人民法院以受贿罪判处孟宏伟有期徒刑13.5年。
 
-加拿大排名第一的宪法律师 Rocco Gallati 证实，加拿大高等法院已终止针对 Covid-19 的紧急法案，从而取消了所有省份的所有封锁和戴口罩规定。
+高歌说她对即将年满68岁的孟宏伟目前的下落和健康状况完全不知情，她认为，对孟宏伟的指控都是虚构的。他的被清洗是因为孟想利用他的职权推动改革。高歌还说，中共是魔鬼，因为他们吞噬自己的孩子。
 
-贾斯汀·卡斯特罗领导的专制共产主义政府无视法治。
+日前，中共公安部国际合作局副局长、一级督察胡彬梆正在竞逐国际刑警组织执委一职。此时高歌接受著名媒体采访，可谓用意不浅。
 
-来源链接：[https://rightsfreedoms.wordpress.com/2021/07/15/canadian-court-ends-covid-emergency-mask-mandates-lockdowns-emergency-use-jab-are-now-unlawful/](https://rightsfreedoms.wordpress.com/2021/07/15/canadian-court-ends-covid-emergency-mask-mandates-lockdowns-emergency-use-jab-are-now-unlawful/)
+**新闻来源：**[https://www.voachinese.com/a/AP-interviewed-ex-Interpol-wife-takes-on-China-government-20211118/6318304.html](https://www.voachinese.com/a/AP-interviewed-ex-Interpol-wife-takes-on-China-government-20211118/6318304.html)
 
-编辑/发布：LILY
-
-20211118
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 
 
  
