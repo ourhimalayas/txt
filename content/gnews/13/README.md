@@ -2,37 +2,36 @@
 ---
 
 
-## “大棋盘”如何导致美国在阿富汗的败局
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1678262/)
+## 美情报官员将战略目标聚焦中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678269/)
 
-作者：泰勒·杜登
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月16日，美国现任和前任情报官员在举行会议时明确，美国未来的战略目标需要对准中共。
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/grand-chessboard-1456x900-1-edited.jpg)图片来源：网络
-与美国武装部队最终从阿富汗撤出后塔利班迅速重新掌权一样令人悬疑的是，在后果中接下来会发生什么的不确定性……
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-12.jpeg)
 
-许多人预测，俄罗斯和中国将介入以填补权力真空，并说服整容的塔利班谈判达成权力分享协议，以换取政治和经济支持，而其他人则担心陷入内战是不可避免的。
+前美国情报局首席副局长苏·戈登称，几十年来，美国情报界先是关注苏联，随后着重于中东恐怖主义，而现在的情报界已经进入了第三个情报纪元。对于美国而言，需要从反恐的沉迷中清醒过来，将目光转向中共。
 
-尽管莫斯科和北京可能会通过推动喀布尔的包容性政府从美国的屈辱性撤退中受益，但必须首先将重新命名的普什图族团体作为指定的恐怖组织移除。 双方都不想看到阿富汗成为圣战的温床，因为伊斯兰分裂主义之前已经在高加索困扰俄罗斯，而中国仍处于新疆与维吾尔穆斯林分离主义者和与基地组织有联系的土耳其斯坦伊斯兰党持续的民族冲突之中。
+与此同时，现任和前任情报官员们纷纷表示，没有任何一个国家像现在的中共这样，正在全方位地监视美国。对此，前CIA参谋长拉里·菲弗也提到，中共先是通过人海战术收集数据，接着用人工智能对这些数据进行分析，最后有针对性地瞄准着美国。
 
-在这一点上，每个人都认识到更严重的极端主义威胁不在于塔利班，而在于 ISIS Khorasan 或 ISIS-K 的出现，伊斯兰国附属机构将最近的几起恐怖袭击归咎于 8 月 26 日在阿富汗首都哈米德卡尔扎伊国际机场发生的爆炸事件 在美国缩编期间，它杀死了 13 名美国军人和 100 多名阿富汗人。
+评论称，此次美国情报官员齐聚的安全会议表明，美国情报界正在把焦点定位于中共。
 
-三天后，美国指挥官下令对一辆他们声称在同一喀布尔机场引爆炸弹的车辆进行报复性无人机袭击。
+参考链接：[As U.S. spies look to the future, one target stands out: China](https://www.npr.org/2021/11/16/1051170999/as-u-s-spies-look-to-the-future-one-target-stands-out-china)
 
-几天来，五角大楼错误地坚持认为空袭成功击退了两名 ISIS-K 武装分子，而一个卑鄙的企业媒体毫无疑问地重复了这些断言，包括编造了一份完全虚构的报告，称爆炸是由已经在内部的设备“二次爆炸”组成的。 用于恐怖活动的汽车。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-两周后，美国中央司令部（CENTCOM）被迫道歉并承认这次袭击确实是一个“悲剧性错误”，误杀了十名无辜平民 —— 他们都是一个家庭的成员，包括七个孩子 —— 而没有伊斯兰国成员 在死者中。
+总编：飞虹
+编辑：文特
+校正/发稿：谐趣园
 
-**评：**根据郭文贵先生的爆料，中共政权是塔利班恐怖政权的真正靠山，实事也证明了一切邪恶势力的背后都有中共的黑手。
-
-原文链接：
-
-[https://t.co/HbezS8c877](https://t.co/HbezS8c877)
-
-编辑/发布：LILY
-
-20211119
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
