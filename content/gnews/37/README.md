@@ -2,43 +2,36 @@
 ---
 
 
-## 澳洲嘲笑中共国对澳英美联盟协定的担忧是“愚蠢的 ”
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1677665/)
+## 万事达卡将推出亚太地区首张加密货币信用卡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1677734/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+近日，万事达卡公司宣布，即将推出亚太地区首张与加密货币连动的信用卡。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-19-下午9.24.35.png)
+消息称，万事达卡将与泰国和澳洲的3家加密货币服务公司合作，帮助用户直接将数字资产转换为通用法币进行支付。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/copertinaasianews-10.jpg)
+据万事达卡在亚太地区所作的市场调查发现，接近一半的受访者表示，会考虑在2022年使用加密货币。
 
+相关评论表示，加密货币正在逐渐被世人接受并落实在实际生活的层面上。因此，应运而生的喜币因着其独一无二的优越性，注定将在未来拥有无限可能的发展空间。
 
+参考链接：
+1）[萬事達卡在亞太區推首張加密貨幣信用卡](https://ec.ltn.com.tw/article/breakingnews/3731062)
+2）[嗅到元宇宙商機 萬事達卡發行亞太區首張加密貨幣卡](https://www.cna.com.tw/news/afe/202111180420.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-图片来源：http://www.asianews.it
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
+总编：Irene木木
+编辑：AN
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-#### 编译：小红帽
-
-澳大利亚国防部长嘲笑中共国高级外交官王西宁的言论是“愚蠢的”和 “滑稽的”，因为王西宁将澳大利亚与美国、英国的三边核动力潜艇协定称为对和平的威胁。
-
-在周五的电视采访中，彼得·达顿（ Peter Dutton）说，“中共国驻澳大利亚大使王西宁警告说，如果澳大利亚通过澳英美联盟协定（AUKUS）采购隐形作战舰艇，澳大利亚将成为‘顽皮的家伙’。王西宁可能是在读共产党的剧本”。
-
-在前任大使的任期于上个月结束后，作为中共国驻澳大利亚最高级别的代表–王西宁在周四告诉《卫报》，澳大利亚公众 “应该更担心 ”他们国家与英国、美国达成的安全协定的影响。
-
-然而，达顿 “驳回”了这些评论，并反驳说“大多数澳大利亚人[会]看穿[共产党]的本质”。
-
-上周末，达顿表示，他无法想象，如果在台湾问题上与中共国发生武装冲突，澳大利亚会犹豫不决地支持美国，这令北京当局恼火。
-
-王西宁在周四警告澳大利亚政界人士，不要做任何“破坏我们关系”的事情。
-
-**参考新闻：**[Australia mocks China’s ‘silly’ AUKUS concerns — RT World News](https://www.rt.com/news/540706-australia-china-silly-aukus-concerns/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
