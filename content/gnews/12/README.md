@@ -2,24 +2,26 @@
 ---
 
 
-## 郭文贵先生直播中分享处事经验
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1677733/)
+## 万事达卡将推出亚太地区首张加密货币信用卡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1677734/)
 
-作者：纽约香草山农场福音部-恩永存
+作者：纽约香草山 医疗部 云豹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月17日，郭文贵先生在大直播中谈及家族基金投资成功的经验时，与战友们分享了以下经验：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-19-下午9.23.48.png)
-首先，应该找到做人的诀窍和法门，以及练就走向成功的智慧。
+近日，万事达卡公司宣布，即将推出亚太地区首张与加密货币连动的信用卡。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-19-下午9.24.35.png)
+消息称，万事达卡将与泰国和澳洲的3家加密货币服务公司合作，帮助用户直接将数字资产转换为通用法币进行支付。
 
-其次，需要多和高层次的人士打交道。同时，与人相处的核心是个人的智慧、谦虚和为人——把握住这一点，战友们的交往层面会进一步扩大。在此，郭先生还以自身为例，详述了以前在硅谷结识的科技界朋友，并通过他们了解太空文化，启迪个人智慧，释放内心潜力。郭先生解释，家族基金在生物科技、芯片方面的成功投资，都离不开此前拓展的人脉。
+据万事达卡在亚太地区所作的市场调查发现，接近一半的受访者表示，会考虑在2022年使用加密货币。
 
-最后，郭先生强调，新中国联邦人应该让自己强大起来，而让自己强大的途径只有一条，即相信自己的世界使命。
+相关评论表示，加密货币正在逐渐被世人接受并落实在实际生活的层面上。因此，应运而生的喜币因着其独一无二的优越性，注定将在未来拥有无限可能的发展空间。
 
-参考链接：[https://gettr.com/post/ph567f4b1f](https://gettr.com/post/ph567f4b1f)
+参考链接：
+1）[萬事達卡在亞太區推首張加密貨幣信用卡](https://ec.ltn.com.tw/article/breakingnews/3731062)
+2）[嗅到元宇宙商機 萬事達卡發行亞太區首張加密貨幣卡](https://www.cna.com.tw/news/afe/202111180420.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-总编：文特
+总编：Irene木木
 编辑：AN
 校正/发稿：呼吸的雾霾（文小呼吸）
 
