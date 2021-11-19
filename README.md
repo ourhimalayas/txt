@@ -138,72 +138,75 @@
 ### [阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%](/content/gnews/41/README.md)
  ` 纽约香草山MOS01`
 
-### [驻立陶宛台湾代表处正式成立](/content/gnews/42/README.md)
+### [七哥谈喜联储IX:不是战友们第一个赚钱的平台就是失败的](/content/gnews/42/README.md)
+ ` NewFOC`
+
+### [驻立陶宛台湾代表处正式成立](/content/gnews/43/README.md)
  ` 日本东京方舟农场`
 
-### [拜耳高管称mRNA针剂是 “基因疗法”，被包装为 “疫苗”](/content/gnews/43/README.md)
+### [拜耳高管称mRNA针剂是 “基因疗法”，被包装为 “疫苗”](/content/gnews/44/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国又一个P2P平台“共信赢”爆雷](/content/gnews/44/README.md)
+### [中共国又一个P2P平台“共信赢”爆雷](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [跪舔姿势不正确，叶檀挨铁拳](/content/gnews/45/README.md)
+### [跪舔姿势不正确，叶檀挨铁拳](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [广发银行与蓝光地产内外勾结骗贷55亿](/content/gnews/46/README.md)
+### [广发银行与蓝光地产内外勾结骗贷55亿](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [驻立陶宛台湾代表处正式成立，中共气的跳脚](/content/gnews/47/README.md)
+### [驻立陶宛台湾代表处正式成立，中共气的跳脚](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [今天中共的狂妄自满恰恰是明天全球声讨其罪恶的铁证！](/content/gnews/48/README.md)
+### [今天中共的狂妄自满恰恰是明天全球声讨其罪恶的铁证！](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国FDA要求2076年公布辉瑞中共病毒疫苗相关文件](/content/gnews/49/README.md)
+### [美国FDA要求2076年公布辉瑞中共病毒疫苗相关文件](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国高科技公司和好莱坞叩头中共，饮鸩止渴，回头是岸](/content/gnews/50/README.md)
+### [美国高科技公司和好莱坞叩头中共，饮鸩止渴，回头是岸](/content/gnews/51/README.md)
  ` mary202064`
 
-### [孟宏伟之妻直面镜头接受采访](/content/gnews/51/README.md)
+### [孟宏伟之妻直面镜头接受采访](/content/gnews/52/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [利益冲突？比尔·盖茨向主要媒体提供了 3.19 亿美元（1/3）](/content/gnews/52/README.md)
+### [利益冲突？比尔·盖茨向主要媒体提供了 3.19 亿美元（1/3）](/content/gnews/53/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [突破中共外交封锁 驻立陶宛台湾代表处正式启动](/content/gnews/53/README.md)
+### [突破中共外交封锁 驻立陶宛台湾代表处正式启动](/content/gnews/54/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [曝光张高丽性侵丑闻后，彭帅一直杳无音信](/content/gnews/54/README.md)
+### [曝光张高丽性侵丑闻后，彭帅一直杳无音信](/content/gnews/55/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：永远处在风口浪尖的班农正面临着新的考验](/content/gnews/55/README.md)
+### [秘翻在线：永远处在风口浪尖的班农正面临着新的考验](/content/gnews/56/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [“朝阳大妈”无异于文化大革命中的红卫兵](/content/gnews/56/README.md)
+### [“朝阳大妈”无异于文化大革命中的红卫兵](/content/gnews/57/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [三家公司靠中共病毒疫苗，每一秒吸血1000美元](/content/gnews/57/README.md)
+### [三家公司靠中共病毒疫苗，每一秒吸血1000美元](/content/gnews/58/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [娜塔莉：发起班农起诉的罪魁祸首亚当·希夫是中共勾结者](/content/gnews/58/README.md)
+### [娜塔莉：发起班农起诉的罪魁祸首亚当·希夫是中共勾结者](/content/gnews/59/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [斯蒂芬·K·班农敦促在华盛顿特区联邦调查局现场办公室外的支持者要关注“信号，而不是噪音”](/content/gnews/59/README.md)
+### [斯蒂芬·K·班农敦促在华盛顿特区联邦调查局现场办公室外的支持者要关注“信号，而不是噪音”](/content/gnews/60/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [拜习所赐](/content/gnews/60/README.md)
+### [拜习所赐](/content/gnews/61/README.md)
  ` 银河勇气之星`
 
-### [郭文贵先生高度肯定 班农注定成为美国政治教父级的人物](/content/gnews/61/README.md)
+### [郭文贵先生高度肯定 班农注定成为美国政治教父级的人物](/content/gnews/62/README.md)
  ` 纽约香草山MOS01`
 
-### [班农先生被起诉事件意味着美国媒体大重启](/content/gnews/62/README.md)
+### [班农先生被起诉事件意味着美国媒体大重启](/content/gnews/63/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登令司法部起诉班农，班农称将背水一战](/content/gnews/63/README.md)
+### [拜登令司法部起诉班农，班农称将背水一战](/content/gnews/64/README.md)
  ` 墨尔本雅典娜农场`
 
-### [在激烈的法庭演讲中班农告诉拜登他选错了目标](/content/gnews/64/README.md)
+### [在激烈的法庭演讲中班农告诉拜登他选错了目标](/content/gnews/65/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
