@@ -2,28 +2,62 @@
 ---
 
 
-## 又一名1月6日委员会成员被发现与中共有关联
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1675998/)
+## 去政府化的人类未来的金融系统诞生
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1676015/)
 
-撰稿：西枫westca
+[https://gtv.org/video/id=619661961827025081068585](https://gtv.org/video/id=619661961827025081068585)
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-8.jpg)图片来源：网络照片
-国家脉动11月17日专题报道，民主党众议员伊莱恩卢里亚是国会1月6日委员会的成员之一。她在一家与中共有关的科技公司进行了六位数的投资，而该公司被美国国务院标记为协助中共政权的军事和间谍服务机构。
+**郭文贵**
+**Miles Guo**
 
-这位弗吉尼亚州女议员最近的财务披露显示，她在阿里巴巴的投资价值为25万至50万美元，她似乎在2021年3月出售了她在阿里巴巴股份以获得资本收益。
+说政府要搞自己的区块链，所有的政府的区块链都是中心化的区块链
+The government wants to build its own blockchain, and all gov-ernment blockchains are centralized blockchains
 
-阿里巴巴是一家中国的电子商务巨头，其高管有中共成员。前负责国际安全和不扩散事务的助理国务卿克里斯托弗·福特透露，阿里巴巴还参与了 “为中国人民解放军研究、生产和修理武器和设备”，并与中国的 “国家安全机构 “有 “深入的合作和协作记录”。
+就是去掉你的中心，把我变成绝对的中心
+It means to get rid of your center and make me as an absolute center
 
-美国务院还把该公司标记为中国共产党的 “工具”，协助其建立 “技术促进的监视和社会控制”。国务院的报告还指出： 值得注意的是，现代“中国模式”是建立在技术促进的监视和社会控制的基础上。 华为、腾讯、中兴、阿里巴巴和百度等科技公司已经代表中共开发、构建和维护了这些统治中国的技术。 随着这些公司向世界其他地区出口产品和服务，与这种“中国模式”相关的安全和人权问题也逐渐随之出口。
+就是共产党的数字化的区块链，因为共产党它怕不安全嘛
+It’s the Communist Party’s digital blockchain, because the Com-munist Party is afraid of insecurity
 
-报告补充道，包括阿里巴巴在内的公司，如果中共官员决定寻求他们的帮助，例如，获取外国技术、进入外国网络、有关外国商业交易对手的有用信息、对外国商业模式的深入了解，或有关中国托管或协助的社交媒体、计算机或智能手机应用程序或电信的外国用户的个人资料、活动或位置的具体信息，”他们没有任何能力对中共说‘不’。
+区块链就让它不安全，去掉它这个中心了嘛
+Blockchain makes the Communist Party feel insecure because it wants to remove the important centralization of the Communist Party
 
-日前《国家脉动》披露了1月6日委员会的另一位成员亚当希夫议员是如何在中美交流基金会赞助的华盛顿特区之行中会见了一位此前负责领导该政权对外影响行动的中共官员。 此外，该委员会主席本尼·汤普森有支持美国极端主义游击战团体的历史。
+这给了我们机会了，你见瑞士现在搞的数字瑞士元
+This gives us a chance, you look at the digital Swiss dollar that Switzerland is doing now
 
-美国众议院1月6日袭击事件特别委员会由9名众议员组成，7名来自民主党，2名来自共和党。
+开户8000块欧元，开个户要8000块钱，然后政府绝对中心化
+8,000 euros for opening an account, open an account requires 8,000 euros, then the government is absolutely centralized
 
-**新闻来源：**[EXC: Jan 6 Commission Member Rep. Elaine Luria Made Six Figure Investments In Chinese Communist Party ‘Tool.’ (thenationalpulse.com)](https://thenationalpulse.com/exclusive/jan-6-committee-member-invested-in-ccp-tech-firm/)
+你记住我今天说的，所有的买它的所谓的数字瑞元的都是金融机构，就是那些黑钱
+Remember what I said today, all the buyers for all the so-called digital Swiss dollar are financial institutions, that is illegal money
+
+包括中国人的钱，如果是散户，没有人会用它，
+Including Chinese money, if it is the retail investors, no one will use it
+
+以后的数字区块链只要有政府背景的，是没有人用的
+In the future, as long as the digital blockchain has a government background, no one will use it
+
+这叫去什么，去政府化的人类未来的金融系统诞生
+What will it called? the birth of a degovernmentalized financial system for the future of mankind
+
+**原视频链接** :[https://gtv.org/video/id=619661961827025081068585](https://gtv.org/video/id=619661961827025081068585)
+
+Date:11/17/2021
+原视频标题: 去政府化的人类未来的金融系统诞生
+The birth of a degovernmentalized financial system for the future of mankind
+原视频日期：2021/11/14
+任务编号：KC263（2912）
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

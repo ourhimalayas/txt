@@ -15,85 +15,85 @@
 
 ---
 
-### [天主教领袖号召全球信众联合反抗极权主义](/content/gnews/1/README.md)
+### [澳联储称，大流行让更多人储藏现金](/content/gnews/1/README.md)
+ ` 走进澳洲`
+
+### [美多数企业欲继续执行已被禁止的强制接种令](/content/gnews/2/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [美劳工机构依法停止拜登的强制接种令](/content/gnews/2/README.md)
+### [天主教领袖号召全球信众联合反抗极权主义](/content/gnews/3/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [美国高科技公司和好莱坞叩头中共，饮鸩止渴，回头是岸](/content/gnews/3/README.md)
+### [美劳工机构依法停止拜登的强制接种令](/content/gnews/4/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [美国高科技公司和好莱坞叩头中共，饮鸩止渴，回头是岸](/content/gnews/5/README.md)
  ` mary202064`
 
-### [文贵老照片解密：阿尔·戈尔和他的第一次中国之行](/content/gnews/4/README.md)
+### [文贵老照片解密：阿尔·戈尔和他的第一次中国之行](/content/gnews/6/README.md)
  ` 秘密翻译组-原创组`
 
-### [孟宏伟之妻直面镜头接受采访](/content/gnews/5/README.md)
+### [孟宏伟之妻直面镜头接受采访](/content/gnews/7/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [天花生物战——全球主义者准备了“完美”的计划来掩盖疫苗死亡并通过引发新的致命流行病来取消中期选举](/content/gnews/6/README.md)
+### [天花生物战——全球主义者准备了“完美”的计划来掩盖疫苗死亡并通过引发新的致命流行病来取消中期选举](/content/gnews/8/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美参议院全体共和党议员集体挑战拜登强制疫苗令](/content/gnews/7/README.md)
+### [美参议院全体共和党议员集体挑战拜登强制疫苗令](/content/gnews/9/README.md)
  ` 日本东京方舟农场`
 
-### [加拿大阿尔伯塔省率先免除中小学强制接种](/content/gnews/8/README.md)
+### [加拿大阿尔伯塔省率先免除中小学强制接种](/content/gnews/10/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [加拿大法院结束 COVID 紧急情况| 戴口罩、封锁和紧急使用疫苗接种 现在是非法的](/content/gnews/9/README.md)
+### [加拿大法院结束 COVID 紧急情况| 戴口罩、封锁和紧急使用疫苗接种 现在是非法的](/content/gnews/11/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [拜登政府或将宣布外交抵制北京冬奥会](/content/gnews/10/README.md)
+### [拜登政府或将宣布外交抵制北京冬奥会](/content/gnews/12/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [蔡英文主持美国F16V战机接装典礼](/content/gnews/11/README.md)
+### [蔡英文主持美国F16V战机接装典礼](/content/gnews/13/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [前国际刑警组织主席孟宏伟妻子高歌批中共是“魔鬼”](/content/gnews/12/README.md)
+### [前国际刑警组织主席孟宏伟妻子高歌批中共是“魔鬼”](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [特鲁多政府国策加剧加拿大通货膨胀](/content/gnews/13/README.md)
+### [特鲁多政府国策加剧加拿大通货膨胀](/content/gnews/15/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [中共官媒发布“彭帅电邮”被质疑其真实性](/content/gnews/14/README.md)
+### [中共官媒发布“彭帅电邮”被质疑其真实性](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [去政府化的人类未来的金融系统诞生](/content/gnews/15/README.md)
+### [去政府化的人类未来的金融系统诞生](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|GTV新闻访谈简报|2021年11月17日早](/content/gnews/16/README.md)
+### [有声|GTV新闻访谈简报|2021年11月17日早](/content/gnews/18/README.md)
  ` MOSREC`
 
-### [又一名1月6日委员会成员被发现与中共有关联](/content/gnews/17/README.md)
+### [又一名1月6日委员会成员被发现与中共有关联](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新中国联邦的国旗，坐着飞机去阿根廷了！](/content/gnews/18/README.md)
+### [新中国联邦的国旗，坐着飞机去阿根廷了！](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [美国总统在处理冠状病毒大流行、气候变化、经济、外交政策方面受到重创](/content/gnews/19/README.md)
+### [美国总统在处理冠状病毒大流行、气候变化、经济、外交政策方面受到重创](/content/gnews/21/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [第六巡回法院受理诉讼 拜登疫苗授权注定失败](/content/gnews/20/README.md)
+### [第六巡回法院受理诉讼 拜登疫苗授权注定失败](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [利益冲突？比尔·盖茨向主要媒体提供了3.19亿美元（3/3）](/content/gnews/21/README.md)
+### [利益冲突？比尔·盖茨向主要媒体提供了3.19亿美元（3/3）](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [法院禁令：美职业安全与健康管理局暂停强制疫苗](/content/gnews/22/README.md)
+### [法院禁令：美职业安全与健康管理局暂停强制疫苗](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [蹊跷的48小时内核酸检测阴性证明](/content/gnews/23/README.md)
+### [蹊跷的48小时内核酸检测阴性证明](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [爆炸新闻：辉瑞谎报试验死亡人数——死亡率高得多](/content/gnews/24/README.md)
+### [爆炸新闻：辉瑞谎报试验死亡人数——死亡率高得多](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [利益冲突？比尔·盖茨向主要媒体提供了3.19亿美元（2/3）](/content/gnews/25/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [利益冲突？比尔·盖茨向主要媒体提供了 3.19 亿美元（1/3）](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [拜登在峰会上没有向习近平施压，联邦政府是COVID掩盖的一部分](/content/gnews/27/README.md)
+### [利益冲突？比尔·盖茨向主要媒体提供了 3.19 亿美元（1/3）](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
 ### [曝光张高丽性侵丑闻后，彭帅一直杳无音信](/content/gnews/28/README.md)

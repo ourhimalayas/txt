@@ -2,62 +2,29 @@
 ---
 
 
-## 去政府化的人类未来的金融系统诞生
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1676015/)
+## 特鲁多政府国策加剧加拿大通货膨胀
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1676068/)
 
-[https://gtv.org/video/id=619661961827025081068585](https://gtv.org/video/id=619661961827025081068585)
+原文采编：文莱  编译撰稿：文所未闻
 
-**郭文贵**
-**Miles Guo**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-6-edited.png)图片来源：CBC
 
-说政府要搞自己的区块链，所有的政府的区块链都是中心化的区块链
-The government wants to build its own blockchain, and all gov-ernment blockchains are centralized blockchains
 
-就是去掉你的中心，把我变成绝对的中心
-It means to get rid of your center and make me as an absolute center
+据加拿大自媒体《后千禧年》11月17日报道，总理特鲁多执政期间物价再次上涨，创2003年以来最高纪录，10月份通货膨胀率飙升至4.7%。
 
-就是共产党的数字化的区块链，因为共产党它怕不安全嘛
-It’s the Communist Party’s digital blockchain, because the Com-munist Party is afraid of insecurity
+【加拿大统计局】近期表示，全国各地的物价都在全面上涨，交通变得尤其昂贵，其中汽油价格的暴涨是主要因素。加拿大民众倍感食品价格上涨压力，例如肉类价格已上升了百分之十。
 
-区块链就让它不安全，去掉它这个中心了嘛
-Blockchain makes the Communist Party feel insecure because it wants to remove the important centralization of the Communist Party
+目前的通胀率远超加拿大银行最初预期。对此，当局虽承诺将控制物价，但尚未提出是否将提高利率等具体应对措施来对抗不断加剧的通货膨胀。同时，加拿大的经济也并没有像大部分政府官员们所预测的那样迅速恢复。
 
-这给了我们机会了，你见瑞士现在搞的数字瑞士元
-This gives us a chance, you look at the digital Swiss dollar that Switzerland is doing now
+此外，特鲁多政府在其已承诺的1010亿加元的预算开支外，还计划在未来五年内增加780亿加元的额外新支出，这无疑会进一步加剧该国难以控制的恶性通货膨胀危机。
 
-开户8000块欧元，开个户要8000块钱，然后政府绝对中心化
-8,000 euros for opening an account, open an account requires 8,000 euros, then the government is absolutely centralized
+* * *
 
-你记住我今天说的，所有的买它的所谓的数字瑞元的都是金融机构，就是那些黑钱
-Remember what I said today, all the buyers for all the so-called digital Swiss dollar are financial institutions, that is illegal money
+校对编辑，发稿：硫酸羟氯喹64
 
-包括中国人的钱，如果是散户，没有人会用它，
-Including Chinese money, if it is the retail investors, no one will use it
+原文链接：
 
-以后的数字区块链只要有政府背景的，是没有人用的
-In the future, as long as the digital blockchain has a government background, no one will use it
-
-这叫去什么，去政府化的人类未来的金融系统诞生
-What will it called? the birth of a degovernmentalized financial system for the future of mankind
-
-**原视频链接** :[https://gtv.org/video/id=619661961827025081068585](https://gtv.org/video/id=619661961827025081068585)
-
-Date:11/17/2021
-原视频标题: 去政府化的人类未来的金融系统诞生
-The birth of a degovernmentalized financial system for the future of mankind
-原视频日期：2021/11/14
-任务编号：KC263（2912）
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[https://thepostmillennial.com/justinflation-prices-rises-again-under-trudeau-highest-recorded-since-2003](https://thepostmillennial.com/justinflation-prices-rises-again-under-trudeau-highest-recorded-since-2003)
 
  
 

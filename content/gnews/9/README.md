@@ -2,28 +2,38 @@
 ---
 
 
-## 加拿大法院结束 COVID 紧急情况| 戴口罩、封锁和紧急使用疫苗接种 现在是非法的
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1676105/)
+## 美参议院全体共和党议员集体挑战拜登强制疫苗令
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1676129/)
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-58-1.png)图片来源：网络
-加拿大多个省法院审理的许多案件已经结出硕果，政府被迫宣布结束紧急状态，但媒体并未对此进行报道，政府本身仍在继续其议程，尽管他们现在 100% 这样做是犯罪。 如果没有进入紧急状态，口罩强制令、封锁或所谓的“疫苗”就没有法律依据，因为它只有紧急使用授权。
+**作者：日本东京方舟农场 Kevin wang**
 
-显然，并非这个国家的所有法院都受到了腐败
+11月17日，美国参议院的全部50名共和党议员达成一致，依据《国会审查法案》，对拜登政府的强制疫苗令采取行动。
 
-为 Covid 危害人类罪的肇事者伸张正义
+据《大纪元》报道，由印第安纳州参议员迈克‧布劳恩（Mike Braun）牵头发起的此次挑战拜登强制疫苗令的行动，依据的是《国会审查法案》（Congressional Review Act）。该法案是国会以正式程序废除行政部门规则的法律依据。共和党参议员目前已启动该行动的正常程序，整个流程为20天，最早将于12月初在全院表决。
 
-加拿大排名第一的宪法律师 Rocco Gallati 证实，加拿大高等法院已终止针对 Covid-19 的紧急法案，从而取消了所有省份的所有封锁和戴口罩规定。
+针对劳工部职业安全与健康管理局（OSHA）日前所执行的强制疫苗令，参议员迈克‧布劳恩（Mike Braun）在接受采访时表示，“拜登总统的疫苗令是违宪的，是对本该属于每个美国人的个人医疗决定的侵犯，也是对8000万美国工人权利的冒犯。”
 
-贾斯汀·卡斯特罗领导的专制共产主义政府无视法治。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-136.png)图片来自网络
 
-来源链接：[https://rightsfreedoms.wordpress.com/2021/07/15/canadian-court-ends-covid-emergency-mask-mandates-lockdowns-emergency-use-jab-are-now-unlawful/](https://rightsfreedoms.wordpress.com/2021/07/15/canadian-court-ends-covid-emergency-mask-mandates-lockdowns-emergency-use-jab-are-now-unlawful/)
+布劳恩还表示，他和他的共和党同事正式挑战这种联邦越权行为，并敦促参议院在12月初就“防阻挠议事”（filibuster-proof）进行全院表决时，以简单多数票支持这项反对决议。
 
-编辑/发布：LILY
+迈克‧布劳恩（Mike Braun）是参议院就业和工作场所安全小组委员会（Senate Subcommittee on Employment and Workplace Safety）首席共和党人，该小组委员会对OSHA拥有监督权。
 
-20211118
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+据悉，目前三十多项针对拜登疫苗令的诉讼已提交给了联邦法院。官员们周二宣布，将把这些诉讼合并为一个案件，由位于俄亥俄州辛辛那提（Cincinnati）的联邦第六巡回上诉法院审理。 另据《星岛日报》报道，从法官名单来看，第六巡回上诉庭共有16位全职法官，当中的11人由共和党总统任命，其中有6人更是由前总统川普委任。虽然小布什委任的法官怀特（Helene White）属于中间派，立场不时与民主党总统委任的法官一致，但若加上其他年资较长的半退休法官，保守派享有19比9的压倒性优势。
 
+*新闻链接：*
+
+[美參院共和黨人一致行動 挑戰拜登疫苗令](https://www.epochtimes.com/b5/21/11/17/n13382297.htm)
+
+[白宮強制企業疫苗令 共和黨控制上訴庭審理](https://www.singtaousa.com/2021-11-17/%e7%99%bd%e5%ae%ae%e5%bc%b7%e5%88%b6%e4%bc%81%e6%a5%ad%e7%96%ab%e8%8b%97%e4%bb%a4-%e5%85%b1%e5%92%8c%e9%bb%a8%e6%8e%a7%e5%88%b6%e4%b8%8a%e8%a8%b4%e5%ba%ad%e5%af%a9%e7%90%86-2/3762964)
+
+* * *
+
+*素材采编：Kevin wang*
+
+*编辑：青衣青青*
+
+*发布：Ranting*
 
  
 
