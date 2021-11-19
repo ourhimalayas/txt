@@ -15,134 +15,134 @@
 
 ---
 
-### [中共军方正在加紧搭建覆盖青藏高原的大型陆航机场网络](/content/gnews/1/README.md)
- ` G-NEWS TAIWAN`
+### [加密货币受PayPal青睐，H-pay未来可期](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国经济的“自给自足”走向](/content/gnews/2/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [参议员科顿抨击中共，呼吁拜登政府全面抵制北京冬奥会](/content/gnews/2/README.md)
+ ` 首尔天池农场`
 
-### [2021年11月19日 澳喜要闻摘要](/content/gnews/3/README.md)
- ` 澳喜特战旅Gnews`
-
-### [新西兰财经G乐部 2021年11月19日](/content/gnews/4/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [彭丽媛会不会成为像江青一样的红都女皇](/content/gnews/5/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国副总统哈里斯的通讯主管辞职](/content/gnews/6/README.md)
+### [中共在南中共国海横行霸道](/content/gnews/3/README.md)
  ` Shuizhuyu`
 
-### [新西兰财经G乐部 2021年11月18日](/content/gnews/7/README.md)
+### [【玫瑰看新闻】每日快讯](/content/gnews/4/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [美国食品药品监督管理局：接种疫苗的全因死亡率更高](/content/gnews/8/README.md)
- ` 澳喜特战旅Gnews`
+### [中共军方正在加紧搭建覆盖青藏高原的大型陆航机场网络](/content/gnews/5/README.md)
+ ` G-NEWS TAIWAN`
 
-### [中共“刀笔吏”王沪宁强调宣讲十九届六中全会精神](/content/gnews/9/README.md)
- ` 儒为`
-
-### [党之疲敝，不日崩殂](/content/gnews/10/README.md)
- ` 骄子`
-
-### [盖特在巴西迅速推广](/content/gnews/11/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [班农专访7: 国民警卫队陆军准将要求停止强制疫苗](/content/gnews/12/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [班农专访2: 民调显示，共和党会在明年中期选举获胜](/content/gnews/13/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：欧洲顶级大学的中共国教授隐瞒了其与中共军方合作研究猴脑](/content/gnews/14/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [别无它路 只能与中共对抗到底](/content/gnews/15/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [内燃机不能亡，丰田组织油车大联盟拒绝格拉斯哥协议](/content/gnews/16/README.md)
- ` 澳喜特战旅Gnews`
-
-### [七哥谈喜联储X:在喜联储和联盟委员会一次造假一切皆输](/content/gnews/17/README.md)
- ` NewFOC`
-
-### [习近平与拜登的视频会晤是勾兑的结果与作秀](/content/gnews/18/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [疯狂！日本政府欲给5—11岁儿童打毒疫苗](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [西媒头条 — 第113期](/content/gnews/20/README.md)
+### [中共国经济的“自给自足”走向](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [财经G乐部：数字货币知识分享-2](/content/gnews/21/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
+### [2021年11月19日 澳喜要闻摘要](/content/gnews/7/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [恒大彻底完了](/content/gnews/22/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [财经G乐部：数字货币知识分享-1](/content/gnews/23/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [比特币跌，还会跌，喜马拉雅币涨，还会涨](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本计划拨款7700亿国防开支，应对中共军事威胁](/content/gnews/25/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [加密货币抛售](/content/gnews/26/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [高瓴发布最新美股持仓报告](/content/gnews/27/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [2018年5月22日郭文贵先生第一次直播全文字版](/content/gnews/28/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
-
-### [有声| 辉瑞允许仿制商在多国试验新冠药物](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [有声| 毒疫苗，你的危害还要走多远？](/content/gnews/30/README.md)
- ` MOSREC`
-
-### [有声| 参议员怒批拜登不提病毒溯源](/content/gnews/31/README.md)
- ` MOSREC`
-
-### [有声| 澳洲政府保护63个涉及国家安全的科技项目](/content/gnews/32/README.md)
- ` MOSREC`
-
-### [有声|](/content/gnews/33/README.md)
- ` MOSREC`
-
-### [有声| 美国劳工部职业安全与健康管理局暂停执行疫苗强制令](/content/gnews/34/README.md)
- ` MOSREC`
-
-### [有声| 林郑月娥承认依照中共国安法审核外媒签证](/content/gnews/35/README.md)
- ` MOSREC`
-
-### [塞雷娜·威廉姆斯对中国网球明星彭帅的失踪感到 ＂悲恸和震惊＂](/content/gnews/36/README.md)
- ` 墨尔本雅典娜农场`
-
-### [王岐山出席经济论坛](/content/gnews/37/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [Coinbase建议美国设立单一的加密监管机构](/content/gnews/38/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [新西兰财经G乐部 2021年11月17日](/content/gnews/39/README.md)
+### [新西兰财经G乐部 2021年11月19日](/content/gnews/8/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [孟宏伟的妻子抨击 “恶魔 ”中共国](/content/gnews/40/README.md)
+### [彭丽媛会不会成为像江青一样的红都女皇](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国副总统哈里斯的通讯主管辞职](/content/gnews/10/README.md)
+ ` Shuizhuyu`
+
+### [新西兰财经G乐部 2021年11月18日](/content/gnews/11/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [美国食品药品监督管理局：接种疫苗的全因死亡率更高](/content/gnews/12/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [中共“刀笔吏”王沪宁强调宣讲十九届六中全会精神](/content/gnews/13/README.md)
+ ` 儒为`
+
+### [党之疲敝，不日崩殂](/content/gnews/14/README.md)
+ ` 骄子`
+
+### [盖特在巴西迅速推广](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [班农专访7: 国民警卫队陆军准将要求停止强制疫苗](/content/gnews/16/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [班农专访2: 民调显示，共和党会在明年中期选举获胜](/content/gnews/17/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：欧洲顶级大学的中共国教授隐瞒了其与中共军方合作研究猴脑](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共外交部发言人竟狂言《台湾关系法》非法无效](/content/gnews/41/README.md)
+### [别无它路 只能与中共对抗到底](/content/gnews/19/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [COVID-19 最新情报｜科学家们成功获得资助尝试将新冠疫苗注入蔬菜让未接种者吃下](/content/gnews/42/README.md)
+### [内燃机不能亡，丰田组织油车大联盟拒绝格拉斯哥协议](/content/gnews/20/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [七哥谈喜联储X:在喜联储和联盟委员会一次造假一切皆输](/content/gnews/21/README.md)
+ ` NewFOC`
+
+### [习近平与拜登的视频会晤是勾兑的结果与作秀](/content/gnews/22/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [疯狂！日本政府欲给5—11岁儿童打毒疫苗](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [西媒头条 — 第113期](/content/gnews/24/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [财经G乐部：数字货币知识分享-2](/content/gnews/25/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [恒大彻底完了](/content/gnews/26/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [财经G乐部：数字货币知识分享-1](/content/gnews/27/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [比特币跌，还会跌，喜马拉雅币涨，还会涨](/content/gnews/28/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本计划拨款7700亿国防开支，应对中共军事威胁](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加密货币抛售](/content/gnews/30/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [高瓴发布最新美股持仓报告](/content/gnews/31/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [2018年5月22日郭文贵先生第一次直播全文字版](/content/gnews/32/README.md)
+ ` 温哥华扬帆农场七哥直播全文听写组`
+
+### [有声| 辉瑞允许仿制商在多国试验新冠药物](/content/gnews/33/README.md)
+ ` MOSREC`
+
+### [有声| 毒疫苗，你的危害还要走多远？](/content/gnews/34/README.md)
+ ` MOSREC`
+
+### [有声| 参议员怒批拜登不提病毒溯源](/content/gnews/35/README.md)
+ ` MOSREC`
+
+### [有声| 澳洲政府保护63个涉及国家安全的科技项目](/content/gnews/36/README.md)
+ ` MOSREC`
+
+### [有声| 美国劳工部职业安全与健康管理局暂停执行疫苗强制令](/content/gnews/37/README.md)
+ ` MOSREC`
+
+### [有声| 林郑月娥承认依照中共国安法审核外媒签证](/content/gnews/38/README.md)
+ ` MOSREC`
+
+### [王岐山出席经济论坛](/content/gnews/39/README.md)
+ ` Finance-GCLUB【新西兰财经G乐部】`
+
+### [新西兰财经G乐部 2021年11月17日](/content/gnews/40/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [孟宏伟的妻子抨击 “恶魔 ”中共国](/content/gnews/41/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [中共外交部发言人竟狂言《台湾关系法》非法无效](/content/gnews/42/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [COVID-19 最新情报｜科学家们成功获得资助尝试将新冠疫苗注入蔬菜让未接种者吃下](/content/gnews/43/README.md)
  ` G&#124;News TAIWAN`
-
-### [警惕：邪恶势力或使用天花病毒实施恐怖袭击](/content/gnews/43/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [政治操作和蓝金黄！文贵先生揭露中共奥运会的真相](/content/gnews/44/README.md)
  ` GTV新闻访谈`
