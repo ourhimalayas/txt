@@ -2,34 +2,24 @@
 ---
 
 
-## 新中国联邦教育组将规划儿童网络教学方案
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1676983/)
+## 政治操作和蓝金黄！文贵先生揭露中共奥运会的真相
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1677003/)
 
-作者：纽约香草山农场福音部-恩永存
+作者：纽约香草山信息部- 诺雅
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
-在11月17日的大直播中，郭文贵先生表示，在当前的疫情下，新中国联邦将规划针对儿童的网络教育，并提出六点建议：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-438.png)
-第一，   不向学生收取任何费用。
+郭文贵先生在11月17日直播中，揭露了西方流氓政客抵制2022北京冬奥会的三个原因：1）事先表明政治正确的态度和警告病毒风险，以推卸所有责任；2）进行反共政治表演，向中共要价，促使中共对其蓝金黄；3）利用奥运会的腐败，谋求个人利益。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-440.png)
+中共国的奥运，本质就是利益勾兑、蓝金黄的结果，是一场欺骗人民的政治表演。因许诺澳门的赌场牌照，中共拿下了2008年的北京奥运会举办权。
 
-第二，   教学时间、教学内容、教学标准由联盟教育组商讨决定。
+郭先生表示，中共国脆弱的经济状况给2022年冬奥会带来巨大的不确定性。如果中共以倾国之力举办2022北京冬奥会，将给中共国带来巨大的政治和安全隐患；冬奥会也将引爆新一轮的病毒感染；而不能出席冬奥会的各国领导人也将更加反对中共。郭先生还强调，新中国联邦有能力让中共办不成冬奥会。
 
-第三，   教师由各农场优选有教育资质的老师授课。
+【新闻链接】[https://gtv.org/video/id=6194fda8e7e7703792363972](https://gtv.org/video/id=6194fda8e7e7703792363972)
 
-第四，   教师实行有偿服务原则，经费由法制基金承担。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-9.jpg)
 
-第五，   实行封闭式网络教学。
+总编：文特
 
-第六，   师生必须签保密协议。
-
-愿新中国联邦教育事业健康发展，培养更多优秀人才。
-
-新闻链接：https://gettr.com/post/ph567f4b1f
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
-
-编辑：文特/雪梨
-
-总编：Irene木木
+编辑：Lakeman(文仁)/雪梨
 
 校正/发稿：浪迹天涯
 
@@ -40,6 +30,8 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

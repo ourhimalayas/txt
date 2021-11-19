@@ -2,35 +2,26 @@
 ---
 
 
-## 政治操作和蓝金黄！文贵先生揭露中共奥运会的真相
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1677003/)
+## COVID-19 最新情报｜科学家们成功获得资助尝试将新冠疫苗注入蔬菜让未接种者吃下
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1677012/)
 
-作者：纽约香草山信息部- 诺雅
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
-郭文贵先生在11月17日直播中，揭露了西方流氓政客抵制2022北京冬奥会的三个原因：1）事先表明政治正确的态度和警告病毒风险，以推卸所有责任；2）进行反共政治表演，向中共要价，促使中共对其蓝金黄；3）利用奥运会的腐败，谋求个人利益。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-440.png)
-中共国的奥运，本质就是利益勾兑、蓝金黄的结果，是一场欺骗人民的政治表演。因许诺澳门的赌场牌照，中共拿下了2008年的北京奥运会举办权。
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜19/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-郭先生表示，中共国脆弱的经济状况给2022年冬奥会带来巨大的不确定性。如果中共以倾国之力举办2022北京冬奥会，将给中共国带来巨大的政治和安全隐患；冬奥会也将引爆新一轮的病毒感染；而不能出席冬奥会的各国领导人也将更加反对中共。郭先生还强调，新中国联邦有能力让中共办不成冬奥会。
+加州大学河滨分校的官方网站 9 月 16 日刊文指，本校的科学家们已获得了美国国家科学基金会 50 万美元的资助，用于开发将实验性 mRNA Covid-19 疫苗注入菠菜、生菜和其他可食用植物的技术。
 
-【新闻链接】[https://gtv.org/video/id=6194fda8e7e7703792363972](https://gtv.org/video/id=6194fda8e7e7703792363972)
+该项技术的核心，就是证明转基因植物可以产生足够的 mRNA ，透过向植物注入所需的剂量以替代疫苗接种。最终成功让所有拒绝接种 mRNA Covid-19 疫苗的人在无意识中，通过食物中获取疫苗有效成分。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-9.jpg)
+领导开放该项技术的总负责人，加州大学河滨分校植物学和植物科学系副教授胡安·巴勃罗·吉拉尔多 (Juan Pablo Giraldo) 表示，“ mRNA Covid-19 疫苗将是可食用的。理想状况下，通过食用一株植物可产生足够的 mRNA 来代替注射疫苗。目前，我们正在用菠菜和生菜测试这种方法，并为人们将来在自己的花园中种植制定长期目标。”
 
-总编：文特
+吉拉尔教授指出，研究的关键就是叶绿体，叶绿体可将阳光转化为植物所需的能量，产生糖及其他分子，以促进植物生长。同样的道理，他的研究团队准备将外来遗传物质（即 DNA 或者 RNA）输送到叶绿体中，借此传导进入植物。
 
-编辑：Lakeman(文仁)/雪梨
+因此，他们招募了圣地亚哥分校纳米工程教授 Nicole Steinmetz 参与，利用纳米技术将 mRNA 疫苗注入植物的叶绿体。吉拉尔教授说，“我们的想法是重新利用天然存在的纳米粒子，即植物病毒，将基因传递给植物，也就是说使纳米颗粒进入叶绿体，并使它们对植物没有传染性。”
 
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
-
+**最令人担忧的是，若该项研究成功，相信很快成千上万个拒绝接受疫苗的人将在餐桌上被迫接受。根据 CDC 的疫苗不良事件报告系统，2021 年有 18,461 人死于接种疫苗，而在 2020 年强制COVID-19 疫苗接种之前，只有 420 人死于接种疫苗。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-11.jpg)
+来源｜[UCR](https://news.ucr.edu/articles/2021/09/16/grow-and-eat-your-own-vaccines) / [OPENVAERS](https://openvaers.com/index.php)
 
  
 
