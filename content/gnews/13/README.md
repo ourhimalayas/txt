@@ -2,47 +2,36 @@
 ---
 
 
-## 墨尔本全面取消限制，中央商务区依然空置
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1677219/)
+## 塞雷娜·威廉姆斯对中国网球明星彭帅的失踪感到 ＂悲恸和震惊＂
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1677228/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5826.jpg)图片来源：Realestate.com.au
-整理报道：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/11/22222.png)图片来源：雅典娜农场
+翻译：文扬 编辑：朝花夕拾
 
-维多利亚州放宽了新冠病毒限制，并要求公务员每周回办公室工作三天。然而公司和业主并不指望员工在明年2月前大量返回墨尔本CBD。
+彭帅自从对一名前中国政府官员提出性侵犯指控以来，她一直没有公开露面。塞雷娜·威廉姆斯表达了对彭帅的担忧。
 
-随着疫苗接种率达到90%，从周四晚上11点59分开始，大多数工作场所的办公室人数限制和疫苗接种员工的口罩规则被取消。
+塞雷娜·威廉姆斯加入了对中国网球明星彭帅的行踪进行调查的呼吁。
 
-然而，业主们预计这些限制措施的取消仅对城市办公大楼的人员配置水平产生些许影响。
+越来越多的球员和组织对这位35岁的球员（彭帅）的安全表示担忧， 塞雷娜·威廉姆斯，这位23次大满贯冠军是最新加入的一位成员，自从两周前彭帅对一名前中共政府官员提出性侵犯指控后，她就再也没有出现过。
 
-根据在澳交所上市的写字楼公司Dexus对租户进行的一项全国性调查，大多数租户认为到明年2月份时，会有多达80%的员工会回到办公室。
+中国官方媒体周四发布了一封声称来自中国球员的电子邮件，但随着担忧的不断加剧，该电子邮件很快被删除。
 
-维州政府于10月底发给政府高级管理人员的电子邮件称，政府工作场所必须制定计划，一旦达到90%的疫苗接种水平，全职员工每周至少要三天返回办公室。
+塞雷娜·威廉姆斯：＂听到我的同龄人彭帅的消息，我感到非常悲恸和震惊，希望她平安，尽快找到。 必须对此进行调查，我们不能保持沉默。 在这个极其困难的时期，向她和她的家人表达我的关爱。＂
 
-然而，它也在整个公共服务部门规定了一项灵活的工作政策，保留了“远程工作的好处”。
+女子网球协会主席史蒂夫西蒙坚持认为必须听到彭帅的声音，暗示这个问题可能会危及巡回赛在中国的未来，尽管涉及巨额资金。
 
-在私营公司部门，城区一些大型办公场所雇主表示，他们并不急于强制员工回到CBD总部工作。
+资料来源：IPA/Sipa USA [Serena Williams ‘devastated and shocked’ over missing Chinese tennis star Peng Shuai (sbs.com.au)](https://www.sbs.com.au/news/serena-williams-devastated-and-shocked-over-missing-chinese-tennis-star-peng-shuai/aba3440e-5272-42b3-a06e-0a531b64000e?utm_source=newsshowcase&amp;utm_medium=gnews&amp;utm_campaign=CDAqEAgAKgcICjDNi4ELMMz8-wIwsoQp&amp;utm_content=rundown)
 
-澳大利亚电信公司是疫苗接种规定的早期推动者，它将在未来保持其灵活的工作政策，并预计其核心员工将继续花大部分时间在家里工作。
+发布：kk
 
-“在疫情之前，我们员工已经每周在家工作两天左右，现在限制正在放宽，我们的员工认为，他们将每周在家工作三天左右，”澳洲电信发言人说。
-
-多家银行也将在明年之前暂缓更多的员工返回办公室。
-
-“随着那些仍然在家工作的人回到办公室，我们将继续建立一个混合工作模式，”一位银行发言人说。
-
-今年早些时候，多家媒体对联邦50家最大的雇主进行的调查显示，即使解除了封锁限制，绝大多数人也会保持对远程工作的关注。
-
-新闻链接：[Restrictions ease after Melbourne lockdown: Masks off and offices open but don’t expect a CBD revival just yet (theage.com.au)](https://www.theage.com.au/business/companies/masks-off-and-offices-open-but-don-t-expect-a-cbd-revival-just-yet-20211118-p59a3l.html?utm_medium=Social&amp;utm_source=Twitter#Echobox=1637263429-1)
-
-**发布：**kk
-
-**更多资讯，请关注：****
+**更多资讯，请关注：
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
 
  
 

@@ -2,12 +2,12 @@
 ---
 
 
-## 中财办副主任韩文秀：慈善捐赠是自愿行为，绝不能“杀富济贫”“杀富致贫”
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1677212/)
+## 岸田文雄的40万亿日元经济刺激计划
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1677213/)
 
-财经G评：中共的历史无数次证明，谁信了这些承诺，谁就会被中共吃的渣都不剩！当中共官员戳破这层窗户纸的时候，就是中共大开杀戒的时候。这些官员开始说：绝不能“杀富济贫”“杀富致贫”，不能搞“逼捐”，背后就是在说：绝对能/绝对可以/绝对会这么干…
-![img](https://media.gettr.com/group10/getter/2021/11/12/12/14/a69a5c3c-72c4-2083-1acf-51081fc897e1/80c04497363edd27f120839c3330084d_500x0.jpg)
-参考链接：[https://finance.sina.com.cn/jjxw/2021-11-12…](https://finance.sina.com.cn/jjxw/2021-11-12/doc-iktzscyy5099030.shtml)
+日本首相岸田文雄誓言要在11月19日宣布一项“价值几十万亿日元”的刺激计划。岸田文雄的地位因上月选举的胜利而得以巩固。疫情以来日本已经成为工业化国家中公共债务最沉重的国家。
+![img](https://media.gettr.com/group30/getter/2021/11/15/12/02/76a4089a-d4b0-d341-b24a-3d7f8d3833c6/1c2b51310db305b50e238f71a322bf66_500x0.jpg)
+参考链接**🔗**：[https://cn.reuters.com/article/japan-e…](https://cn.reuters.com/article/japan-economy-stimulating-plan-1113-idCNKBS2HY048?il=0)
 
 （文章内容仅代表新西兰-财经G乐部节目观点）
 
