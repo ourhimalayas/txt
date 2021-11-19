@@ -2,10 +2,10 @@
 ---
 
 
-## 东京新建公寓价格大涨，超过1990年泡沫时期价格
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1676390/)
+## 美国FDA要求2076年公布辉瑞中共病毒疫苗相关文件
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1676420/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._19-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1119-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)

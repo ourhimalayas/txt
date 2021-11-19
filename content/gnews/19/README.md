@@ -2,10 +2,10 @@
 ---
 
 
-## 中共公布第三个重大历史决议，重回皇权专制老路
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1676699/)
+## 参议院共和党人挑战拜登政府疫苗强制令
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1676740/)
 
-作者：新西兰伊甸农场 亚伦
+作者：纽约香草山农场-蓝天大海
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-5.jpg)
 
@@ -13,17 +13,19 @@
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/ezgif.com-gif-maker-3-1.jpg)（图片来自路透社）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/参议员-.jpeg)WASHINGTON, DC – JUNE 9: Sen. Mike Braun (Photo by Stefani Reynolds-Pool/Getty Images)
 
-在11月17日的大直播中，郭先生透露，就在拜习会议四个小时后，本届中共六中全会结束后没有马上公告的所谓第三个重大历史决议被公之于众。
+据《newsmax》11月17日报道，美国联邦参议院50名共和党人联合起来，在印第安纳州共和党参议员迈克·布劳恩 (Mike Braun) 的带领下，正式对拜登政府的疫苗强制令提出挑战。
 
-中共别有用心的时间安排，是想让美国为他们的第三个历史决议背书，至少是让墙内的中国人看到美国“支持”习大神。紧接着中共喉舌新华社抛出 “十个坚持”的历史经验，宣告中共国彻底停止改革开放，进入新文化大革命时代，曾经的一党独裁，将进一步升级皇权专制。
+该强制令要求拥有一百人以上的企业员工必须接种新冠疫苗，或每周接受检测。 参议院共和党的议案已经提交给参议院卫生、教育、劳工和养老金委员会。宾夕法尼亚州共和党众议员弗雷德凯勒，此前在众议院也提出了类似的议案。
+
+布劳恩在一份声明中说，拜登总统的疫苗强制令是违宪的，是对个人医疗权利的侵犯，也是对八千万美国工人权利的侵犯。他表示将敦促参议院在12月初进行简单多数投票，通过这项反对议案。
+
+
 
 参考链接：
 
-[https://gnews.org/zh-hans/1672935/](https://gnews.org/zh-hans/1672935/)
-
-总编：Irene木木
+[https://www.newsmax.com/politics/covid-19-business-vaccine-mandate-mike-braun/2021/11/17/id/1045100/](https://www.newsmax.com/politics/covid-19-business-vaccine-mandate-mike-braun/2021/11/17/id/1045100/)
 
 校对/发稿：有莫举名
 
