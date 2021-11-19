@@ -2,39 +2,32 @@
 ---
 
 
-## 有声| 美国劳工部职业安全与健康管理局暂停执行疫苗强制令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1677236/)
+## 日本计划拨款7700亿国防开支，应对中共军事威胁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1677293/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据[零对冲](https://www.zerohedge.com/markets/osha-suspends-enforcement-vaccine-mandate-after-court-block)11月17日报道，在被法院阻止后，美国劳工部职业安全与健康管理局（OSHA）已经暂停执行拜登政府对私营企业的中共病毒疫苗强制令。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-133.jpg)[图片来源](https://new.qq.com/omn/20201225/20201225A07IWE00.html)
+日本计划在周五与经济刺激计划一同公布的追加预算中，列支创纪录的国防开支，同时前首相安倍晋三呼吁将日本同澳洲的防卫合作关系提高到“新的水平”。目前日本与美国、英国和澳洲等西方盟友对中共国在亚太地区的军事化进程都有所回应。
 
-此前，法院曾在11月6日颁布了暂时停止执行疫苗强制授权的命令，要求美国劳工部职业安全与健康管理局“在法院下达进一步指令前，不得采取任何措施来实施或执行该疫苗强制令”。
+日本计划在追加预算中至少拨款7,700亿日圆(67.4亿美元)用于国防，该预算案将是周五敲定的经济刺激方案的一部分。这一数额将使2019财年4,300亿日圆的追加预算相形见绌，是追加预算中用于防务的最高数额，其中将包括用于加强日本在西南部岛屿附近防卫能力的支出。
 
-在随后的11月12日，新奥尔良第五巡回上诉法院驳回了拜登政府的诉求，并重申了搁置美国劳工部职业安全与健康管理局的疫苗强制令的决定。
+长期以来，日本一直承诺军事预算不超过国内生产总值(GDP)的1%，这一数字缓解了国内外对其军国主义死灰复燃的担心。军国主义曾将日本拖入二战的深渊。
 
-该强制令要求拥有100名或以上员工的企业要确保雇员在2022年1月4日前接种中共病毒疫苗，或每周接受测试并佩戴口罩。
+但是，随着人们越来越关注中共国在有争议的东海海域的军事行动，日本执政的自民党在10月31日的选举之前，在其政策纲领中列入了一个目标，拟将国内生产总值(GDP)的2%或更多用于军事开支。
 
-第五巡回法院在11月12日的重申中指出，拜登政府的疫苗强制令 “引发了严重的宪法问题”，“很可能超出了联邦政府的权限”。
+日本防卫省希望有资金用于国产隐形战斗机和射程超过1,000公里(621英里)的导弹等，同时该国还在打造网络、太空和电磁战能力。日本还计划加强与澳洲等盟友和友好国家的关系，安倍晋三周五参加一个由澳洲智库组织的在线研讨会时提出了这一点。安倍晋三去年辞任日本首相，但在自民党内仍有影响力。
 
-美国至少有27个州，以及私人雇主、宗教组织和其他团体起诉拜登政府，声称它在发布这一授权时超越了其权限。
+“鉴于区域安全环境日益严峻，有必要将日澳双边安全和防务合作提升到一个新的水平，”他在研讨会上发表演讲称。印度总理莫迪也在会上发言。
 
+安倍晋三周五表示，日本应与美国、英国和澳洲等AUKUS安全伙伴在人工智能、网络能力和量子技术方面进行合作。AUKUS协议被广泛认为是对中共国在该地区军事力量提升的回应。
 
+消息来源:
 
-文字版原文：[美国劳工部职业安全与健康管理局暂停执行疫苗强制令](https://gnews.org/zh-hans/1675835/)
+[日本计划列支创纪录国防开支 因关注来自中国的威胁–共同社（更新版）](https://cn.reuters.com/article/japan-military-budget-increase-1119-fri-idCNKBS2I402X?il=0)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
-
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
