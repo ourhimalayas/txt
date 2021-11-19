@@ -2,27 +2,25 @@
 ---
 
 
-## 天主教领袖号召全球信众联合反抗极权主义
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1676183/)
+## 澳大利亚雇主不顾总理取消疫苗强制接种的讲话继续推进强制接种政策
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1676217/)
 
-采编：风云小哥   编译撰稿：文明(添草灭共)
+By：喜国公民
+视频来自网络
+澳大利亚总理莫里森最近承认，政府推行的强制疫苗接种政策，已经让80%以上的澳大利亚人都完全接种了疫苗，使澳洲成为世界上疫苗接种率最高的国家之一。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-9-edited.jpeg)图片来源：TGP
+他说，现在是应该取消强制疫苗接种，让澳州人自由生活的时候了。他强调，联邦政府不赞成政府强加的强制疫苗政策。
 
+然而，他并不反对企业根据法律做出自己的决定。联邦政府这种不负责任的态度，使一些企业主不受约束地继续推行强制疫苗政策。
 
-据美国自媒体【网关专家】11月17日报道，天主教前驻美大主教维格诺当天公开呼吁：全球所有的天主教信徒应联合起来，共同将人类从极权主义政权中解放出来。
+例如，[塔斯马尼亚一家托儿所的数百名员工被要求](https://www.themercury.com.au/news/coronavirus/adventure-patch-ceo-calls-for-mandatory-vaccinations-for-tasmanian-child-care-workers/news-story/9d57f35789d5619ff77ecdb52c6bdc45?utm_source=Mercury&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=MERC_LATESTNEWS_AM-CUR_01&amp;net_sub_id=287163446&amp;type=curated&amp;position=1&amp;overallPos=1)在12 月 3 日前接种新冠疫苗，否则将失去工作。
 
-为此，该主教提出倡议：把天主教基督徒和有善心的信众召集在一起，组成“反全球化联盟”，以对抗那些试图奴役妇孺，剥夺人类自由的“邪恶精英集团”。
+联邦和州政府都曾经强制要求为老年护理和为残疾人服务的工人接种疫苗。现在把12 岁以下的孩子也划归到这类脆弱需要保护的人群中，而强制幼儿园的工作人员接种疫苗。
 
-此外，该联盟将谴责和追究“极权主义集团”责任人的罪行，并向国际法庭对其提起控告，以此限制过度权力所造成的灾难。同时，当前首要目标就是打击各国政府官员在信息产业中的深度腐败，并冻结其用于破坏社会秩序的非法资本。
+塔斯马尼亚州将在 12 月 15 日开放边境，旅客必须全面接种疫苗才能进入该州。
 
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-原文链接：
-https://www.thegatewaypundit.com/2021/11/huge-exclusive-archbishop-carlo-maria-vigano-calls-people-faith-unite-worldwide-anti-globalist-alliance-free-humanity-totalitarian-regime-video/
-
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

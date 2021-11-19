@@ -2,28 +2,28 @@
 ---
 
 
-## 美国会年度报告称中共已初步具备侵台能力
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1675197/)
+## 布林肯认定中共国等10国为宗教自由侵犯国
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1675210/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：澳喜农场 – 在远方
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-323.png)
-11月17日，美国国会美中经济暨安全审查委员会（USCC）2021年最新年度报告指出，中共解放军已具备，或即将取得初步侵犯台湾的能力。
+11月17日，美国国务卿布林肯发表声明，根据美国《国际宗教自由法》，认定中共国、朝鲜、俄罗斯等10个国家为宗教自由侵犯国。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-12.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-5.png)
 
-这份长达539页的报告指出，中共军力的提升，从根本上改变了战略环境，削弱了美国在台海的军事威慑力。美国必需有足够的军事力量，来抵抗任何可能危及台湾安全的武力行动。为此，美国需在印太区域部署大量反舰巡弋飞弹（ASCM）、及反舰弹道飞弹（ASBM）。
+声明称，美国对各国倡导人人享有宗教、信仰自由的承诺从不动摇。但当今世界上有太多的政府，正在持续逮捕、威胁、监禁和杀害那些为遵循自己信仰而生活的人民。
 
-报告中还提到，台湾的防御投资几十年来长期不足，建议国会加强台湾向美国军购的能力，并加速美国对台军售。
+鉴于此，布林肯呼吁国际社会关注迫害宗教信仰的事件，并承诺支持每一个人的宗教信仰自由。他还表示，美国政府将会持续给侵犯宗教自由的政府施压，迫使他们修改法律，并推动责任人承担责任。
 
 参考链接：
 
-- [美国会报告：共军已具备或即将取得初步犯台能力](https://www.cna.com.tw/news/firstnews/202111180015.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+- [布林肯认定中国等10国为宗教自由侵犯国](https://www.voachinese.com/a/Blinken-designates-China-and-other-countries-as-religious-freedom-violators-20211117/6317105.html)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
 
 总编：文特 
-编辑：AN
+编辑：文特
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

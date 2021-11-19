@@ -15,140 +15,140 @@
 
 ---
 
-### [七哥谈喜联储VIII:打造金融安全港湾和法治民主自由平台](/content/gnews/1/README.md)
+### [有声|中共国又一名抗疫医生猝死](/content/gnews/1/README.md)
+ ` MOSREC`
+
+### [新中国联邦是秉承上天旨意而来的](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [七哥谈喜联储VIII:打造金融安全港湾和法治民主自由平台](/content/gnews/3/README.md)
  ` NewFOC`
 
-### [雅典娜时报-第117期](/content/gnews/2/README.md)
+### [雅典娜时报-第117期](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|疫苗强制令下人员短缺导致救援不及](/content/gnews/3/README.md)
+### [有声|疫苗强制令下人员短缺导致救援不及](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [樱花灭共诗——僭尊（新韵）](/content/gnews/4/README.md)
+### [樱花灭共诗——僭尊（新韵）](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|多国取消人民币互换业务，戳破中共虚假经济](/content/gnews/5/README.md)
+### [有声|多国取消人民币互换业务，戳破中共虚假经济](/content/gnews/7/README.md)
  ` MOSREC`
 
-### [美国FDA要求2076年公布辉瑞中共病毒疫苗相关文件](/content/gnews/6/README.md)
+### [美国FDA要求2076年公布辉瑞中共病毒疫苗相关文件](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [东京新建公寓价格大涨，超过1990年泡沫时期价格](/content/gnews/7/README.md)
+### [东京新建公寓价格大涨，超过1990年泡沫时期价格](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：国际刑警组织前主席孟宏伟妻子接受采访抨击中共](/content/gnews/8/README.md)
+### [秘翻在线：国际刑警组织前主席孟宏伟妻子接受采访抨击中共](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [外国人和党内的人都认为干掉习才能得到解放和自由](/content/gnews/9/README.md)
+### [外国人和党内的人都认为干掉习才能得到解放和自由](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [七哥谈喜联储VII:核心目的筛选喜系列会员到国家管理人员](/content/gnews/10/README.md)
+### [七哥谈喜联储VII:核心目的筛选喜系列会员到国家管理人员](/content/gnews/12/README.md)
  ` NewFOC`
 
-### [大多数选民认为拜登司法部和FBI对班农和奥基夫的举措是政治迫害](/content/gnews/11/README.md)
+### [大多数选民认为拜登司法部和FBI对班农和奥基夫的举措是政治迫害](/content/gnews/13/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [美卫生机构违背对疫苗信息透明度的承诺](/content/gnews/12/README.md)
+### [美卫生机构违背对疫苗信息透明度的承诺](/content/gnews/14/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [澳联储称，大流行让更多人储藏现金](/content/gnews/13/README.md)
+### [澳联储称，大流行让更多人储藏现金](/content/gnews/15/README.md)
  ` 走进澳洲`
 
-### [加拿大媒体对疫苗接种情况的追踪报道](/content/gnews/14/README.md)
+### [加拿大媒体对疫苗接种情况的追踪报道](/content/gnews/16/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [澳大利亚雇主不顾总理取消疫苗强制接种的讲话继续推进强制接种政策](/content/gnews/15/README.md)
+### [澳大利亚雇主不顾总理取消疫苗强制接种的讲话继续推进强制接种政策](/content/gnews/17/README.md)
  ` 澳喜农场`
 
-### [美多数企业欲继续执行已被禁止的强制接种令](/content/gnews/16/README.md)
+### [美多数企业欲继续执行已被禁止的强制接种令](/content/gnews/18/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [天主教领袖号召全球信众联合反抗极权主义](/content/gnews/17/README.md)
+### [天主教领袖号召全球信众联合反抗极权主义](/content/gnews/19/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [美劳工机构依法停止拜登的强制接种令](/content/gnews/18/README.md)
+### [美劳工机构依法停止拜登的强制接种令](/content/gnews/20/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [美国高科技公司和好莱坞叩头中共，饮鸩止渴，回头是岸](/content/gnews/19/README.md)
+### [美国高科技公司和好莱坞叩头中共，饮鸩止渴，回头是岸](/content/gnews/21/README.md)
  ` mary202064`
 
-### [文贵老照片解密：阿尔·戈尔和他的第一次中国之行](/content/gnews/20/README.md)
+### [文贵老照片解密：阿尔·戈尔和他的第一次中国之行](/content/gnews/22/README.md)
  ` 秘密翻译组-原创组`
 
-### [孟宏伟之妻直面镜头接受采访](/content/gnews/21/README.md)
+### [孟宏伟之妻直面镜头接受采访](/content/gnews/23/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [天花生物战——全球主义者准备了“完美”的计划来掩盖疫苗死亡并通过引发新的致命流行病来取消中期选举](/content/gnews/22/README.md)
+### [天花生物战——全球主义者准备了“完美”的计划来掩盖疫苗死亡并通过引发新的致命流行病来取消中期选举](/content/gnews/24/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美参议院全体共和党议员集体挑战拜登强制疫苗令](/content/gnews/23/README.md)
+### [美参议院全体共和党议员集体挑战拜登强制疫苗令](/content/gnews/25/README.md)
  ` 日本东京方舟农场`
 
-### [加拿大阿尔伯塔省率先免除中小学强制接种](/content/gnews/24/README.md)
+### [加拿大阿尔伯塔省率先免除中小学强制接种](/content/gnews/26/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [加拿大法院结束 COVID 紧急情况| 戴口罩、封锁和紧急使用疫苗接种 现在是非法的](/content/gnews/25/README.md)
+### [加拿大法院结束 COVID 紧急情况| 戴口罩、封锁和紧急使用疫苗接种 现在是非法的](/content/gnews/27/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [拜登政府或将宣布外交抵制北京冬奥会](/content/gnews/26/README.md)
+### [拜登政府或将宣布外交抵制北京冬奥会](/content/gnews/28/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [蔡英文主持美国F16V战机接装典礼](/content/gnews/27/README.md)
+### [蔡英文主持美国F16V战机接装典礼](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [前国际刑警组织主席孟宏伟妻子高歌批中共是“魔鬼”](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [特鲁多政府国策加剧加拿大通货膨胀](/content/gnews/29/README.md)
+### [特鲁多政府国策加剧加拿大通货膨胀](/content/gnews/30/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [有声|GTV新闻访谈简报|2021年11月17日早](/content/gnews/30/README.md)
+### [有声|GTV新闻访谈简报|2021年11月17日早](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [利益冲突？比尔·盖茨向主要媒体提供了 3.19 亿美元（1/3）](/content/gnews/31/README.md)
+### [利益冲突？比尔·盖茨向主要媒体提供了 3.19 亿美元（1/3）](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [突破中共外交封锁 驻立陶宛台湾代表处正式启动](/content/gnews/32/README.md)
+### [突破中共外交封锁 驻立陶宛台湾代表处正式启动](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [曝光张高丽性侵丑闻后，彭帅一直杳无音信](/content/gnews/33/README.md)
+### [曝光张高丽性侵丑闻后，彭帅一直杳无音信](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [2021/11/18 大卫作战室直播精要](/content/gnews/34/README.md)
+### [2021/11/18 大卫作战室直播精要](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [独家｜消息人士称美国要求中国释放石油储备作为经济合作讨论的一部分](/content/gnews/35/README.md)
+### [独家｜消息人士称美国要求中国释放石油储备作为经济合作讨论的一部分](/content/gnews/36/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中国可以摧毁加密货币生态系统？](/content/gnews/36/README.md)
+### [中国可以摧毁加密货币生态系统？](/content/gnews/37/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021年11月17日郭文贵先生直播全文字版](/content/gnews/37/README.md)
+### [2021年11月17日郭文贵先生直播全文字版](/content/gnews/38/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [房地产公司正越来越多地接受加密货币](/content/gnews/38/README.md)
+### [房地产公司正越来越多地接受加密货币](/content/gnews/39/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [英国报告显示惊人疫苗危害 官方试图掩盖真相](/content/gnews/39/README.md)
+### [英国报告显示惊人疫苗危害 官方试图掩盖真相](/content/gnews/40/README.md)
  ` GTV新闻访谈`
 
-### [迪士尼邮轮要求 5 岁及以上儿童接种新冠疫苗](/content/gnews/40/README.md)
+### [迪士尼邮轮要求 5 岁及以上儿童接种新冠疫苗](/content/gnews/41/README.md)
  ` GTV新闻访谈`
 
-### [“突然死亡”成为全球热搜词汇](/content/gnews/41/README.md)
+### [“突然死亡”成为全球热搜词汇](/content/gnews/42/README.md)
  ` GTV新闻访谈`
 
-### [澳洲修改反外国干预指南 严防中共干预大学校园](/content/gnews/42/README.md)
+### [澳洲修改反外国干预指南 严防中共干预大学校园](/content/gnews/43/README.md)
  ` GTV新闻访谈`
 
-### [布林肯认定中共国等10国为宗教自由侵犯国](/content/gnews/43/README.md)
+### [布林肯认定中共国等10国为宗教自由侵犯国](/content/gnews/44/README.md)
  ` GTV新闻访谈`
 
-### [美国会年度报告称中共已初步具备侵台能力](/content/gnews/44/README.md)
+### [美国会年度报告称中共已初步具备侵台能力](/content/gnews/45/README.md)
  ` GTV新闻访谈`
-
-### [11/17/2021 文贵直播：六中全会后，中共虽然会对美国嘴上硬，但实际上将越来越软](/content/gnews/45/README.md)
- ` 秘密翻译组-北美组`
 
 ### [我最爱听的故事](/content/gnews/46/README.md)
  ` 骄子`
