@@ -2,38 +2,42 @@
 ---
 
 
-## 广发银行与蓝光地产内外勾结骗贷55亿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1676799/)
+## 阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1676922/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-102.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fp5.itc.cn%2Fimages01%2F20210119%2F6508913ded6047e58b56e1bf621dd073.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F445506301_100001551&amp;tbnid=5oG1-HzUg9mtdM&amp;vet=12ahUKEwij_5S-v6P0AhVKidgFHa8ICEsQMygGegUIARCsAQ..i&amp;docid=nrh1o-3hi3OMiM&amp;w=1213&amp;h=803&amp;itg=1&amp;q=%E5%B9%BF%E5%8F%91%E9%93%B6%E8%A1%8C&amp;ved=2ahUKEwij_5S-v6P0AhVKidgFHa8ICEsQMygGegUIARCsAQ)
-近日，一封涉及55亿元巨额贷款的举报信在网络上流传。举报信称，广发银行昆明分行党委书记兼行长朱少彥，实名举报副行长保晓君和四川蓝光地产集团原董事长杨铿内外勾结，将已售出的房产进行违规抵押，从该行骗走55亿元的经营贷。
+作者：香草山金融部 – 闲聊钱币
 
-在举报信中，举报人自称是广发银行昆明分行党委书记兼行长朱少彦，他对广发银行昆明分行副行长保晓君、四川蓝光地产集团原董事长杨铿进行举报。举报信称，蓝光花间溪谷花园（即花田国际）的1、2期房产早已售罄，但杨铿操纵旗下子公司——昆明蓝光滇池文化旅游发展有限公司，将该楼盘的产权窃取到手进行违规抵押贷款。
 
-“（以）我分行副行长保晓君为主的个别人居中策应杨铿，以‘总行领导的意旨’给同僚施压，推进这笔巨额非法抵押的经营贷通过。”举报信称，这笔55亿元的经营贷本是用于扶贫抗疫的库款。
 
-举报信提到，55亿元的经营贷刚一到蓝光集团账户，杨铿就以退股的名义提现、私吞了这笔巨款，并通过代理人分次支付当时价值12亿元的比特币给保晓君等人作为辛苦费。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-84.jpg)
-举报信中提及的四川蓝光地产集团，应该是指上市公司蓝光发展。公开资料显示，蓝光发展专注于房地产开发和经营，以住宅地产开发业务为核心。而举报信中的另一当事人——杨铿是蓝光发展的实际控制人，也曾是蓝光发展的董事长。今年6月初，杨铿辞去蓝光发展董事长一职，由其儿子杨武正接任。而在父子俩交棒前，蓝光发展的股权结构曾进行过调整。在调整前，杨铿直接持有蓝光发展的1.69亿股股份，占总股本的5.58%。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
 
-据蓝光发展披露，其控股股东——蓝光投资控股集团有限公司（以下简称“蓝光集团”）通过协议转让方式受让上述股份。在调整后，蓝光集团持有公司股份17.70亿股，占58.31%；而杨铿的持股股份减至0股。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-57.jpg)
-截图自蓝光发展公告
 
-蓝光发展当时在公告中称，此次股权结构调整不会导致其控股股东和实际控制人发生变化，控股股东仍为蓝光集团，实际控制人仍为杨铿。当天，记者还多次致电杨铿，但电话均在响铃几声后跳出“正在通话中”的提示音，疑似被挂断。同时，记者以短信方式向杨铿发送相关采访问题，但截至发稿尚未收到回复。
 
-今年9月4日，蓝光发展曾发布公告称，由于其出现阶段性流动性紧张及债务风险，部分金融机构及合作方向公司提起了诉讼或仲裁，涉案金额累计约28.90亿元。在该公告披露的12起诉讼或仲裁中，有3起是关于广发银行昆明分行及该分行下第一支行。据红星资本局统计，这3起案件涉及的贷款本金共为10.09亿元，案件情况为“待开庭审理”。
+路透社伦敦11月18日报道，中共国的大型电商阿里巴巴股价周四盘前暴跌10.3%。官方给出的理由是消费放缓，竞争加剧，以及监管部门的打击。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1005-1.jpg)
+这些理由看似都很有道理，但是并未揭开表面原因背后的深层含义。首先来说消费放缓。没错，老百姓买买买的动力的确是慢下来了。韭菜们已经快被连根拔起了，哪里还有能力自身消费？再来看看竞争加剧。从来商场如战场，竞争一直都存在着。凡是购买过淘宝商品的人几乎都知道淘宝上假冒伪劣商品泛滥，由此导致的客商纠纷从未断过。这样一个不以商品品质盛出的店家终将被淘汰。最后，监管部门的打击绝不是要维护法律的公平公正，而是要杀鸡取卵，给中共摇摇欲坠的经济打点儿鸡血。
 
-11月6日，蓝光发展再次发布公告称，由于其出现阶段性流动性紧张及债务风险，部分金融机构及合作方向公司提起了诉讼，本次新增诉讼涉案金额合计36.98亿元。截至11月18日收盘，蓝光发展的股价为1.68元/股，总市值50.99亿元。
+马云被限制自由，蚂蚁金服募资暂停，阿里巴巴股价暴跌，这一切都只是中共内斗的冰山一角。
 
-消息来源:
+（本文仅代表作者观点）
 
-[行长举报副行长帮地产商骗贷55亿?银行、蓝光均回应：假的，已报案](https://finance.sina.com.cn/stock/s/2021-11-18/doc-iktzqtyu8114508.shtml)
+参考来源：[阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%](https://www.reuters.com/business/chinas-alibaba-misses-quarterly-revenue-expectations-2021-11-18/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Nomura%20JP%2011-18-21%20Sponsorship&amp;utm_campaign=Nomura%20JP%2011-18-21%20Sponsorship)
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,13 +2,31 @@
 ---
 
 
-## 财经G评之元宇宙
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1677190/)
+## 有声| 参议员怒批拜登不提病毒溯源
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1677239/)
 
-自11月1日开始“元宇宙”一词被不断刷屏，Facebook的更名让“元宇宙”一词成为了人们热议的话题。Facebook更名的真正原因是“元宇宙”本身的含义吗？这点我们不得而知，但是论起“拿来主义”、蹭热点和制造虚假信息来利多资本市场，中共国真是玩到了登峰造极的地步！Facebook更名玩起“元宇宙”股票没怎么涨，但中共国股市靠着蹭热点已经频频涨停！这还不够，又马上推出了“中国首家元宇宙行业协会……”世界探讨“元宇宙”发展方向的时候，中共国已经开始落实：元宇宙与割韭菜之间的辩证关系了。
-![img](https://media.gettr.com/group20/getter/2021/11/12/12/10/f3b356d7-6179-21ae-67a7-06bc6d7d063a/d7045af4f8a3e694cf5c6f74ee08ea14_500x0.jpg)![img](https://media.gettr.com/group20/getter/2021/11/12/12/10/fb0f2219-39b8-f870-8d68-ed953626bf22/e22edd67be6443c6721f087a1ce48717_500x0.jpg)![img](https://media.gettr.com/group24/getter/2021/11/12/12/11b93437-f512-bf0d-972b-1796042ac9ca/97444248f3c6e59807c6686e2b69ec05_500x0.jpg)
-**（文章内容仅代表新西兰-财经G乐部节目观点）**
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月17日，美国参议员乔尼·恩斯特在接受媒体采访时指责，拜登在与习近平的视频会谈中“被抽掉了脊梁骨”，闭口不谈新冠病毒疫情的起源问题。
 
+恩斯特表示，新冠溯源是每个美国人最关心的问题，美国需要彻查新冠病毒的真相，从而防止未来发生类似事件的可能性。恩斯特强调，拜习视频会议进行了三个多小时，当中讨论了贸易、人权等方面，却对最为重要的新冠病毒溯源问题只字不提，让人感到“愤怒”。 据悉，恩斯特是呼吁成立跨党派“911”式委员会，对新冠病毒起源进行调查的参议员之一。
+
+对此，郭文贵先生在17日的直播中透露，拜习会谈之前，中共曾划定了五条“不能谈”的红线，当中就包括了不能谈病毒真相这一点。
+
+文字版原文：[参议员怒批拜登不提病毒溯源](https://gnews.org/zh-hans/1675138/)
+
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

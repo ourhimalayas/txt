@@ -2,28 +2,46 @@
 ---
 
 
-## 中共外交部发言人竟狂言《台湾关系法》非法无效
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1677031/)
+## 国防部长称俄罗斯正“密切关注”英国皇家海军航空母舰
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1677141/)
 
-撰稿：青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-17.png)
-（图片来自网络）
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-在全球近日关注的焦点“拜习会”刚一结束，中共外交部发言人赵立坚就连续2天在例行记者会上狂言，宣称《台湾关系法》是“非法无效”的。这一疯狂至极、企图推翻美国法律的狂妄举动，在令全世界瞠目结舌的同时，也进一步加剧了台海局势的紧张程度。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/AU200055005-scaled.jpg)
 
-据《希望之声》11月19日报道，在拜登与习近平11月16日举行视频会晤之后，台湾议题持续成为中共外交部例行记者会上的提问焦点之一。
 
-中共外交部发言人赵立坚17日在回答有关问题时声称，美方应遵守的是“一个中国原则”和《中美三个联合公报》，这是中美两国的重要政治共识。而所谓的《台湾关系法》也好，“对台六项保证”也罢，纯粹是美国“国内一些势力炮制出来的…… 是非法和无效的”。
 
-第二天，即11月18日，针对白宫副国安顾问纽柏格（Anne Neuberger）所说的美国政府将根据《台湾关系法》为台湾防卫提供支援，赵立坚又再度宣称，《台湾关系法》是“非法无效的”。他还再次指点美国政府称，在台湾议题上，美方应遵守“一个中国原则”和《中美三个联合公报》，而不是“美方单方面搞的什么东西”。
+图片来源： news.usni.org
 
-在台海局势持续紧张之际，在中美领导人刚刚结束视频会谈之后，中共就使用如此具有挑衅性的言辞，甚至直接针对美国政府发出挑战，相当值得关注。
 
-观察人士回溯中共19届六中全会，认为第三份历史决议已将台湾置于危险之地。
+#### 编译：小红帽
 
-《日经》主笔中泽克二11月19日发表文章指出，习近平为了超越邓小平，势必打破邓小平的“韬光养晦”战略。而“统一台湾”或许是习唯一可写入史册的所谓“历史性成就”。习会认为“解决台湾问题”将是他超越邓的重要功绩。
+本·华莱士（Ben Wallace）告诉天空新闻，俄罗斯飞机一直在跟踪伊丽莎白女王号、其绝密战机和辅助船队，因为它们从为期7个月的远东首航中返回。
 
-新闻链接：[https://m.soundofhope.org/post/567185](https://m.soundofhope.org/post/567185)
+周三，航母打击群遭受了一次重大打击，其八架英国F-35战机中的一架在起飞后不久就坠入地中海。
+
+这是英国第一次让其价值1亿英镑的喷气式战机坠毁。该飞机是英国武库中最昂贵、最秘密和最复杂的飞机。舰队航空兵的飞行员成功弹出并获救。
+
+但这架装有雷达、传感器和其他机密技术的飞机仍在水下，目前正在进行打捞工作。
+
+华莱士不愿透露俄罗斯潜艇是否也在搜寻飞机残骸，因为了解任何有关F-35的信息都是非常宝贵的情报。
+
+这位高级政府部长透露，当英国皇家海军伊丽莎白女王号及其F-35喷气式战机穿越地中海返回时，俄罗斯重新表现出对他们的兴趣。
+
+早在6月航母打击群开始部署时，莫斯科当局就曾部署多架战机，在航母打击群通过水道时对其进行干扰。
+
+据报道，英国已经呼吁美国帮助打捞这架飞机，因美国是F-35项目的主要合作伙伴。
+
+**参考新闻：** [Russian aircraft ‘buzzed’ Royal Navy aircraft carrier, says defence minister, as sea search continues for ditched stealth fighter (msn.com)](https://www.msn.com/en-au/news/uknews/russian-aircraft-buzzed-royal-navy-aircraft-carrier-says-defence-minister-as-sea-search-continues-for-ditched-stealth-fighter/ar-AAQSL6J?ocid=msedgntp)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
