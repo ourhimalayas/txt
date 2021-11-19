@@ -2,25 +2,36 @@
 ---
 
 
-## 比尔·盖茨、安东尼·福奇承认中共病毒疫苗无效
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1678213/)
+## 美情报官员将战略目标聚焦中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678269/)
 
-翻译：武松(Sam)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片11-edited.png)图片来源：网络
-亿万富翁比尔·盖茨和拜登总统的首席医疗顾问安东尼·福奇博士都承认中共冠状病毒疫苗不起作用。福奇对该问题的解决方案是接种更多的疫苗，完全接种疫苗的人应该立即接种加强剂量。
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月16日，美国现任和前任情报官员在举行会议时明确，美国未来的战略目标需要对准中共。
 
-盖茨也表达了同样的观点，其表示中共病毒造成的“经济损失”和死亡人数“非常可怕”，但是他并没有指出中共病毒造成的经济损失几乎完全是由于封锁和其他与中共病毒相关的限制造成的，他也没有提到很大一部分死亡人数，尤其是在过去一年中，来自接种疫苗后死亡的人和被完全接种疫苗的人感染的人。盖茨希望大型制药公司创造“研制疫苗的新方法”，并希望全世界在中共病毒方面的经验将申请到“更大的研发预算”，以便更好地为未来的大流行做好准备。盖茨是目前疫苗的最大支持者之一，并积极推动将这些仓促、实验性和致命的疫苗注射到地球上的每个人，其还负责推动和资助在全球范围内使用疫苗护照等各种邪恶的计划。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-12.jpeg)
 
-**评：**盖茨和福奇作为世界暗黑势力的前台发言人、跳梁小丑，不遗余力的为他们主子在全世界内的杀人行动摇旗呐喊，宣传、推动和资助中共病毒疫苗在全世界范围内的开打，一针、两针、加强针……不打死人不罢休。新中国联邦正在用实际行动照亮整个世界，促使人类大觉醒，认识到疫苗是真正的杀人武器，这些跳梁小丑及其他们的主子很快会受到应有的惩罚。
+前美国情报局首席副局长苏·戈登称，几十年来，美国情报界先是关注苏联，随后着重于中东恐怖主义，而现在的情报界已经进入了第三个情报纪元。对于美国而言，需要从反恐的沉迷中清醒过来，将目光转向中共。
 
-原文链接：
+与此同时，现任和前任情报官员们纷纷表示，没有任何一个国家像现在的中共这样，正在全方位地监视美国。对此，前CIA参谋长拉里·菲弗也提到，中共先是通过人海战术收集数据，接着用人工智能对这些数据进行分析，最后有针对性地瞄准着美国。
 
-[https://www.naturalnews.com/2021-11-18-gates-fauci-admit-covid-vaccines-not-working.html#](https://www.naturalnews.com/2021-11-18-gates-fauci-admit-covid-vaccines-not-working.html#)
+评论称，此次美国情报官员齐聚的安全会议表明，美国情报界正在把焦点定位于中共。
 
-编辑/发布：LILY
+参考链接：[As U.S. spies look to the future, one target stands out: China](https://www.npr.org/2021/11/16/1051170999/as-u-s-spies-look-to-the-future-one-target-stands-out-china)
 
-20211119
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：飞虹
+编辑：文特
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

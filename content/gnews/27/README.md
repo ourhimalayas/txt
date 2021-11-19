@@ -2,31 +2,23 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月19日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1677937/)
+## 11月19日文贵大直播快讯——隔空取钱还没有开始
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1678031/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-1.png)
+撰稿：Gradient Boost
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-1-4.png)
-文章仅代表作者本人观点，与Gnews无关
+视频：扶苏
 
-视频参看：2021.11.19早GTV新闻访谈
+美东当地时间11月19日，文贵先生在大直播中探讨数字货币与法币问题，以及经济膨胀所带来的危害。再聊到当前情势下隔空取钱是否已经开始运作时，文贵先生称现在还不算是。
 
-[https://gtv.org/video/id=6197a649fcd196126f8cb4b9](https://gtv.org/video/id=6197a649fcd196126f8cb4b9)
+隔空取钱牛的地方在于它事实上就像一个黑洞，即便没有亲自主动取得，也会存在巨大的吸引力，想不来都不行，没有选择。笔者认为，这已经是比取钱更上一层楼的形式，称为“隔空吸钱”都不算夸张。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+同时人们将逐渐明白数字货币将没有未来，例如赵长鹏的币安，也不会有任何前途了。一个战友所用有的财富都会超过他加在一起的那13亿价值。玩数字货币的人其实也很清楚，他们没有黄金，没有稳定币，而最为重要的在于，他们没有联邦，即缺少法定的实体。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov.jpg)
+文贵先生透露，现在某些国家都已经要让新中国联邦购买武器了。可以说是与赵长鹏根本不在一个等级之上。一个没有邦护佑的币，是不会安全的。邦能够合法化，那么同时也就能够立法。而邦立下的数字法，就可以通行与全世界。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+咱们的邦已经成立，现在是一统江湖的时刻。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

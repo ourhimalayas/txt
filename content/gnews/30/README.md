@@ -2,27 +2,31 @@
 ---
 
 
-## 有声|中共利用海外空壳公司盗取意大利军用无人机技术
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1677901/)
+## 秘翻在线：俄克拉荷马州的雇主可能面临疫苗不良反应的法律后果
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1677979/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据华尔街日报11月15日报道，意大利警方经过几个月的调查发现，中共国的两家国有企业利用一家海外空壳公司，在意大利和欧洲政府不知情的情况下，控制了意大利的一家军用无人机生产商阿尔卑飞机公司，并将其知识及技术转移至中共国的一个新生产基地。 该公司生产的迷你无人机，可装在背包中，由一名操作人员快速部署，可在夜间执行侦察任务，曾被驻阿富汗的意大利空军使用。
+#### 撰稿翻译：文斗
 
-分析人士称，中共国国企在海外一贯的行事模式，通常是以民营空壳公司为掩护，获取掌握特殊技术企业的控制权，然后再将该公司的技术与智慧财产转移至中共国。 意大利警方表示，中共的做法是对技术的掠夺性投资，这在意大利是被禁止的。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/oklahoma-capitol-e163726745tfdsa576461.jpg)
 
-文字版原文：[中共利用海外空壳公司盗取意大利军用无人机技术](https://gnews.org/zh-hans/1674065/)
+美国右翼新闻网站 rsbnetwork 2021年11月18日报道，俄克拉荷马州共和党州参议员罗布·斯坦德里格 (Rob Standridge)周五提交了名为《公民健康授权保护法》的1106号参议院法案，旨在让那些强制员工接种中共病毒疫苗的雇主对不良后果负责。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据参议员罗布·斯坦德里格说，如果1106号参议院法案通过，该法案将允许公共和私营部门的雇员就雇主强制接种疫苗造成的不良健康事件向雇主提出索赔。
+
+如果强制接种对雇员造成伤害，雇主还可能面临100万美元的惩罚性赔偿。
+
+“许多俄克拉荷马人可能不知道，中共病毒疫苗已经得到了联邦政府的责任保护，”斯坦德里格在新闻稿中透露。“如果一个雇员被要求接受疫苗或其他一些医疗处置作为就业条件，并导致其受到伤害，我们的公民需要知道他们将有一些追索权，为他们提供有意义的救济。这就是我的立法所要做的”。
+
+这项措施的有趣之处在于，它将是对拜登政府实施的接种规定的第一个立法挑战。
+
+尽管佛罗里达州的立法机构预计将通过类似的立法，惩罚强制接种疫苗的雇主和企业，但俄克拉荷马州的立法目前仍是一枝独秀。
+
+该法案没有具体推行罚款和惩罚，而是提出了一个法律先例，即雇主是否可以强制（雇员）接种疫苗，首先要允许雇员在出现严重麻烦（例如受伤或与接种相关的其他疾病）时起诉雇主。
+
+然而，该法案可能要到2022年2月立法机关召开例会时才会被审议。
+
+原文链接：[**Employers in Oklahoma could face legal consequences for adverse vaccine effects**](https://rsbnetwork.com/news/employers-in-oklahoma-could-face-legal-consequences-for-adverse-vaccine-effects/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

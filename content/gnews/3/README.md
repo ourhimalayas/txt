@@ -2,53 +2,40 @@
 ---
 
 
-## 德国准备对未接种疫苗者实施奥地利式的封锁
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1678193/)
+## 恒大近期续命措施难解困境
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678257/)
 
-**【简评】***第四波疫情来势汹汹，作为紧急应对措施，奥地利从本周一起对未接种疫苗者实施有针对性地”禁足”。它是欧盟第一个采取这一措施的国家。继荷兰及奥地利为遏止病毒传播启动限制性防疫新规后，比利时本周也将讨论是否采取包括强制远程办公、关闭夜生活场所等措施。德国考虑采取更严格的限制措施，英国则扩大加强针接种范围。奥地利总理沙伦贝格表示，对部分人口采取限制部分自由的措施并不情愿，但这一措施已经产生效果。*
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月17日，郭文贵先生在盖特中揭露，恒大集团印发通知称，11月30日前，剧团必须精简机构，同时，郑州恒大立即开始以最低薪资辞退员工。
 
-*不过，我认为他们理想的效果仅仅是提高疫苗接种率而已。而对于真正有效的伊维菌素、青蒿素疗法，欧洲各国依然选择视而不见、充耳不闻。*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-7.jpeg)
 
-据《零对冲》记者Tyler Durden，2021 年 11 月 18 日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-450-e1637344636755.png)图片来源：零对冲
-德国正准备效仿奥地利，实施仅适用于未接种疫苗者的新封锁措施。
+据报道，恒大集团将旗下的房产汽车平台——房车宝的多个区域公司解散。另外，法院也正式受理了中共国内住宅装饰公司——全筑股份对恒大多达三百三十三起的诉讼。
 
-**正如我们昨天强调的那样，奥地利当局正在执行新措施，让警察在超市和高速公路上巡逻，拦截人们并检查他们的疫苗接种情况。**
+此前，郭先生多次在直播中提及，恒大爆雷虽然被延后，但无法被挽救，许家印一定会宣布破产。近期资料显示，许家印通过变卖个人70亿的资产、清仓股票，以及出售恒大汽车子公司等方式试图为恒大集团续命，但这些措施完全不足以支撑恒大集团正常运营，更不可能缓解即将到来的债务违约。
 
-**类似的场景现在可能即将在邻国德国上演。**
+参考链接：
+1）[11月17日：恒大，彻底完鸟……](https://www.gettr.com/post/ph8asp6d56)
+2）[焦点：中国恒大忙于还债 掌门人许家印不得不自掏腰包填窟窿](https://cn.reuters.com/article/evergrande-founder-hui-assets-sale-1117-idCNKBS2I205C)
+3）[深夜重磅！许家印变卖家产70亿，给恒大“续命”！卖豪宅卖私人飞机，网友：是条汉子…](https://finance.sina.com.cn/chanjing/gsnews/2021-11-17/doc-iktzscyy5977656.shtml)
+4）[消息：中国恒大旗下房车宝多个区域公司已解散](https://www.zaobao.com.sg/realtime/china/story20211117-1214381)
+5）[突发！这家A股公司状告恒大，涉333起诉讼，金额超2亿！](https://finance.sina.com.cn/stock/s/2021-11-17/doc-iktzqtyu7911208.shtml)
+6）[恒大暴雷时间](https://www.gettr.com/post/pgrob05b6a)
 
-《卫报》报道说，该国目前的COVID情况比引入疫苗之前更糟。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-“周二，该国疾病控制机构—罗伯特·科赫研究所（the Robert Koch Institute）记录的7天发病率为每100,000 人 312例，有几个地区超过1,000例。
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-“一年前，在引入疫苗之前，该比率为 139，”该报报道。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-451-e1637344734803.png)图片来源：零对冲
-虽然“不像对未接种疫苗的奥地利人采取的措施那么严格”，但几个州现在正在采取行动，将未接种疫苗的人排除在众多场所之外。
-
-萨克森州85%的ICU病床由Covid患者占据，该州成为最新一个在所有非必需商店和设施中引入所谓2G规则的州，这意味着只有能够证明自己已接种Covid疫苗或已康复的人才被允许入境。萨克森州社会部长佩特拉·科平（Petra Köpping）表示，如果发病率继续上升到医院无法应对的程度，则还需要进行额外的检测。2G是对德语中表示已接种疫苗和康复的单词（geimpft和genesen）的缩写。
-
-北莱茵威斯特法伦州也将效仿，未接种疫苗的人将被禁止进入所有非必要设施和活动，包括足球比赛和圣诞市场。想要在赛季开始时参加狂欢节活动的人们，除了接种疫苗或康复外，还需要接受核酸测试。
-
-柏林市长迈克尔·穆勒（Michael Müller）周二表示，柏林也有望推出类似的“2G-plus”规则。该市希望重新开放疫苗接种中心，这些中心在夏末被认为不再需要时在全国范围内被关闭，但当局表示‘重启疫苗接种中心’最早会在1月或2月进行。
-
-**尽管本月早些时候在德国举行了一场合唱音乐会，只有完全接种疫苗的人才能参加，但最终导致至少24人感染的大规模COVID爆发，德国决定仍将对未接种疫苗者实施新措施 。 与此同时，英国的一项民意调查也发现，大多数英国人也希望对未接种疫苗的人实施封锁。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-452-e1637344791902.png)图片来源：零对冲
-原文链接：[https://www.zerohedge.com/covid-19/germany-preparing-impose-austria-style-lockdown-unvaxxd](https://www.zerohedge.com/covid-19/germany-preparing-impose-austria-style-lockdown-unvaxxd)
-
-翻译：洛杉矶盘古农场–小象的奶瓶
-
-校对：洛杉矶盘古农场–比格渣餐厅老板の娘
-
-评论：洛杉矶盘古农场–比格渣餐厅老板の娘
-
-编辑：洛杉矶盘古农场–心照
-
-
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

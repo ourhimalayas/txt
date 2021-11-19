@@ -2,27 +2,20 @@
 ---
 
 
-## 泽连科医生强调疫苗对儿童有严重致命性
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1677818/)
+## 有声|中共利用海外空壳公司盗取意大利军用无人机技术
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1677901/)
 
-作者：英国喜庄园 – I770775
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月16日，泽连科医生在盖特上再次发声，呼吁大家“救救孩子”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/10-7.jpg)
-泽连科医生揭露，新冠疫苗对儿童的致命性伤害远远高于新冠病毒本身。 医生补充道，最新的统计数据表明，儿童每出现一例因新冠病毒引发的自然死亡案例，就会同步出现172例因新冠疫苗副作用导致的死亡案例，这表明，新冠疫苗对儿童的致命性是新冠病毒的172倍，该数据已经远远高于之前统计的1:100。
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+据华尔街日报11月15日报道，意大利警方经过几个月的调查发现，中共国的两家国有企业利用一家海外空壳公司，在意大利和欧洲政府不知情的情况下，控制了意大利的一家军用无人机生产商阿尔卑飞机公司，并将其知识及技术转移至中共国的一个新生产基地。 该公司生产的迷你无人机，可装在背包中，由一名操作人员快速部署，可在夜间执行侦察任务，曾被驻阿富汗的意大利空军使用。
 
-对此，泽连科医生痛心疾首地强调，人们应该关注疫苗真相，同时，各国政府需要立即停止大面积接种新冠疫苗的行为，尤其是不能给儿童接种疫苗。
+分析人士称，中共国国企在海外一贯的行事模式，通常是以民营空壳公司为掩护，获取掌握特殊技术企业的控制权，然后再将该公司的技术与智慧财产转移至中共国。 意大利警方表示，中共的做法是对技术的掠夺性投资，这在意大利是被禁止的。
 
-参考链接：
-[泽连科医生：新冠疫苗对儿童的致命性是病毒的172倍!](https://gettr.com/post/ph90l51bff)
-[Dr. Vladimir Zev Zelenko](https://gettr.com/post/ph4frj80b5)
+文字版原文：[中共利用海外空壳公司盗取意大利军用无人机技术](https://gnews.org/zh-hans/1674065/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
-
-总编：Irene木木
-编辑：Lakeman(文仁)
-校正/发稿：Fei797
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
