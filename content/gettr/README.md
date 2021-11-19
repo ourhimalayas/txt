@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/19/2021 12:45 PM (UTC)`
+
+One Southern California Mayor takes a stand against 'totalitarian' vaccine mandates and restrictions<br/><br/>一位南加州市长反对“极权主义”的疫苗强制和限制
+![img](https://media.gettr.com/group30/origin/2021/11/19/12/44/d0312b5b-3bec-0c25-a2b6-5783ea052271/out.jpg)
+
+---
+
 `@miles 11/18/2021 8:38 PM (UTC)`
 
 11月18日: 我们的笨笨有女朋友啦～～～ 他们将过上幸福快乐的日子, 让我们见证他们的成长吧♥️♥️
@@ -293,13 +300,6 @@ Shop 'The Drop' at www.GFashion.com<br/><br/>@gfashion <br/>@ddnyc
 
 11月15号：尊敬的战友们好，我们开始吃馍馍．吃饭饭喽……
 ![img](https://media.gettr.com/group22/getter/2021/11/15/16/59/2fa1457f-f57d-581f-d8d5-0963ab644c5c/out.jpg)
-
----
-
-`@miles 11/15/2021 4:23 PM (UTC)`
-
-11月15号：尊敬的战友们好，全世界都在准备着……共产党擀面杖子的虚假经济．即将崩塌，而准备各自的经济大逃亡……
-![img](https://media.gettr.com/group49/getter/2021/11/15/16/23/8c27ef50-aa7e-fc69-e1af-4efebcef4492/out.jpg)
 
 ---
 
