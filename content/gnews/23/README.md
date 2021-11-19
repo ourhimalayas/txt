@@ -2,20 +2,36 @@
 ---
 
 
-## 习近平六中全会后的两个重大决策
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1678256/)
+## 美情报官员将战略目标聚焦中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678269/)
 
-文编：东京樱花团/樱花传媒
+作者：日本方舟农场 – Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月16日，美国现任和前任情报官员在举行会议时明确，美国未来的战略目标需要对准中共。
 
-视频:东京樱花团/中文小视频组
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-12.jpeg)
 
-11月17日，郭文贵先生在GTV大直播指出：
+前美国情报局首席副局长苏·戈登称，几十年来，美国情报界先是关注苏联，随后着重于中东恐怖主义，而现在的情报界已经进入了第三个情报纪元。对于美国而言，需要从反恐的沉迷中清醒过来，将目光转向中共。
 
-六中全会以后，中共对美国会越来越软，嘴巴越来越硬，美国人和西方会看到中共是更大威胁。习近平会更加敢干，对内实行习皇制，抢夺私人企业和在华外企，资本共产制，对外实行希特勒制，会继续放毒，在南海东海问题上强硬！中国人没有人会安全会过好！
+与此同时，现任和前任情报官员们纷纷表示，没有任何一个国家像现在的中共这样，正在全方位地监视美国。对此，前CIA参谋长拉里·菲弗也提到，中共先是通过人海战术收集数据，接着用人工智能对这些数据进行分析，最后有针对性地瞄准着美国。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-3.png)
+评论称，此次美国情报官员齐聚的安全会议表明，美国情报界正在把焦点定位于中共。
+
+参考链接：[As U.S. spies look to the future, one target stands out: China](https://www.npr.org/2021/11/16/1051170999/as-u-s-spies-look-to-the-future-one-target-stands-out-china)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：飞虹
+编辑：文特
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

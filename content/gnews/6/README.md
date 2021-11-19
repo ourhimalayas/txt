@@ -2,41 +2,30 @@
 ---
 
 
-## 中共国地产的冬天降临，10月份连续第四个月土地销售收入下滑
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1678522/)
+## 天花生物战——全球主义者准备“完美”计划掩盖疫苗死亡
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1678621/)
 
-作者：香草山金融部 – 闲聊钱币
+编译： Jenny Ball
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/HRR-2021-11-18-Situation-Update-1.jpg)图片来源：naturalnews.com
 
+好消息是，拜登的疫苗授权几乎肯定会被第六巡回上诉法院驳回。这将使拜登通过“疫苗”生物武器大规模灭绝美国人民的企图彻底失败。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-1.png)
+坏消息是，一旦疫苗授权被取消，全球主义者将被迫采取下一个毁灭性战略来实现种族灭绝和人口减少的目标。**看起来他们的下一个武器将是马尔堡病毒、埃博拉病毒或天花病毒。**
 
+在默克实验室发现了标有“天花”的小瓶，这违反了美国法律。比尔·盖茨警告说，美国机场可能会出现天花释放。他们有什么打算？
 
+天花生物战——全球主义者准备了“完美”的计划来掩盖疫苗授权，并通过引发新的致命流行病来取消中期选举。
 
-四十几年的所谓改革开放，中共国取得了“巨大”的成就，成为世界上第二大经济体。其中最为引人注目的当数地产经济。老百姓从祖孙三代同居一室，到现在祖孙三代共同还贷。真是厉害了我的国！
+**参考资料：**[naturalnews][The SMALLPOX BIOWAR – globalists prepare “perfect” scheme to cover up vaccine deaths and cancel mid-term elections by unleashing a new, deadly epidemic](https://www.naturalnews.com/2021-11-18-smallpox-biowar-globalists-prepare-perfect-scheme-to-cover-up-vaccine-deaths-epidemic.html)
 
-然而，这种竭泽而渔的疯狂开发方式，导致华夏大地不再有蓝蓝的天，白白的云。河流干涸，土地贫瘠。雾霾笼罩着人们的双眼和心灵。恶魔中共真是欠下了累累血债。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-23.jpg)
-据路透社北京19日消息，中共官方数据表明今年10月份土地出让金比去年同期下降了13.14%。九月份下降了11.15%。不仅连续4个月走低，而且幅度在增大。中共的数据一贯是报喜不报忧，自己都承认下降了，恐怕真实情况更糟。
+* * *
 
-文贵先生在他的大直播里多次提及中共地产的脆弱。以恒大地产为代表的这些靠过度借贷，关系批条，暴力强拆的地产商们随时都有可能猝死。只可惜不知道有多少勤劳善良的老百姓要成为殉葬品。
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
 
-参考来源：[中共国地产的冬天降临，10月份连续第四个月土地销售收入下滑](https://www.reuters.com/markets/us/chinas-jan-oct-government-land-sales-revenue-rises-61-yy-2021-11-19/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Nomura%20JP%2011-19-21%20Sponsorship&amp;utm_campaign=Nomura%20JP%2011-19-21%20Sponsorship)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
 
  
 

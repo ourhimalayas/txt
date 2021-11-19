@@ -2,28 +2,50 @@
 ---
 
 
-## 比尔-盖茨和默克公司想干什么？
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1678352/)
+## 恒大将被从恒生中国企业指数中剔除
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1678446/)
 
-**作者： Rosemary**
+作者：纽约香草山农场 – 四季
 
-11月9日，比尔-盖茨警告说，生物恐怖主义可能是一个比自然发生的流行病更大的威胁。他警告各国政府要为天花”SMALLPOX “恐怖袭击和未来的大流行病做好准备，在研究和开发方面需要投入数十亿美元。盖茨先生是在接受Policy Exchange采访时发表上述言论的，采访对象是卫生专门委员会主席杰里米-亨特。他说，像美国和英国这样的国家必须花费 “数百亿 “来资助研究，并补充说，虽然这可能很昂贵，但它可能会导致流感和普通感冒的根除。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-八天后，11月17日晚上在费城外默克公司的一个制药实验室发现的15个小瓶–包括5个令人震惊的标为 “天花 “”SMALLPOX “的小瓶。10个小瓶贴有用于制造天花疫苗的病毒的 “疫苗 “标签，是由一名正在清理冰柜的实验室工作人员发现的。在被发现后，这些小瓶被立即保护起来，并对该设施进行了封锁，到周三晚上解除了封锁。默克公司没有立即回应DailyMail.com的评论请求。联邦调查局展开了紧急调查。
-![上图是2003年的一瓶天花疫苗.](https://assets.gnews.org/wp-content/uploads/2021/11/Vial.jpg)
-天花仅在20世纪就造成约3亿人死亡，随着一次成功的大规模疫苗接种运动，天花在1980年被根除。这种致命病毒的样本只应该保存在两个实验室里：亚特兰大的CDC总部和俄罗斯Koltsovo的Vector研究所。
 
-天花是一种严重的、威胁生命的疾病，由变种病毒引起。一个人在接触后的7到14天内可能不会看起来或感到不适，但最初的症状包括高烧、头痛、背痛和呕吐。约有三分之一的人感染该病后死亡。在最初的症状之后，会出现全身性的皮疹。在这个阶段，患者的传染性最强。皮疹出现在舌头、口腔和喉咙。然后扩散到面部和手臂、躯干和腿部。充满脓液的疙瘩，也称为脓疱，形成后开始结痂，并在大约10天的时间内掉落。它主要是通过呼吸道微粒导致的长期面对面的传播。该病毒还通过共享床单、毛巾和衣服传播。 大多数美国人没有接种过这种疾病的疫苗，那些接种过疫苗的人的免疫力可能正在减弱，这意味着一旦爆发可能会产生破坏性的后果。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Merckbiulding.jpg)
-这是发现天花的在默克公司位于费城外的Upper Gwenydd工厂
-![](https://assets.gnews.org/wp-content/uploads/2021/11/twoloc.jpg)
-这两个机构没有立即回应DailyMail.com的评论请求。
 
-参考链接：
 
-[https://www.independent.co.uk/news/science/bill-gates-smallpox-terror-attack-b1958789.html](https://www.independent.co.uk/news/science/bill-gates-smallpox-terror-attack-b1958789.html)
 
-[https://www.dailymail.co.uk/news/article-10215345/FBI-launches-probe-SMALLPOX-Merck-facility-cleaning-freezer.html](https://www.dailymail.co.uk/news/article-10215345/FBI-launches-probe-SMALLPOX-Merck-facility-cleaning-freezer.html)
+[路透社](https://www.reuters.com/markets/us/evergrande-be-removed-hang-seng-china-enterprises-index-2021-11-19/)11月19日报道，恒生中国企业指数（. HSCE）的基准供应商周五在定期季度审查后表示，陷入困境的开发商中共国恒大集团（3333. HK）将被从香港的恒生中国企业指数中删除。 该变动将于12月6日生效。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1460-1.jpg)‎2021年9月23日，香港。 中国恒大中心大楼标志。 （REUTERS/Tyrone Siu）
+
+恒生中（共）国企业指数旨在反映在香港上市的中共国大陆公司的表现，并包括按市场价值衡量的前50只合格股票。
+
+迄今为止，恒大股价已下跌逾80%。 有近期报道称，中共恒大深陷债务危机，其掌门人许家印不得不出售私人资产偿还债务。 恒大债务的全面暴雷势必会对世界经济产生灾难性影响。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
+
 
  
 

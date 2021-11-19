@@ -2,30 +2,32 @@
 ---
 
 
-## 天花生物战——全球主义者准备“完美”计划掩盖疫苗死亡
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1678621/)
+## 2021/11/18 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1678695/)
 
-编译： Jenny Ball
+1. 河南郑州，42岁餐饮店老板因修路、疫情、洪水长期连续的灾难导致生意失败，将仅剩的890块转给女儿后，烧炭自杀。
+2. 中国女子在美国接种辉瑞疫苗五天后面部瘫痪。
+3. 11月5日，陕西西安，36岁比亚迪员工猝死在出租屋，生前一个月连续夜班，每班12小时。
+4. 11月15日，广西南宁，医生赶到急救室救人，病人家属在门口偷偷抹眼泪。
+5. 11月17日，四川成都。23岁小伙白血病复发，不忍心拖累单亲母亲…儿子：“我走后就埋在外公那边，这样就能经常看到你们了！”
+6. 畅行在中共国食品市场的注水猪肉被注水的瞬间。
+7. 11月17日，辽宁阜新一村庄常年泡在水中，孩子趟冰水上学房屋被泡裂，政府回应：明年开春解决。
+8. 辽宁大连被隔离的一岁宝宝。
+9. 山东日照，一岁宝宝被穿上隔离服送去隔离。
+10. 烤红薯老人紧抓电三轮，无奈的看着自己的烤炉被城管没收。
+11. 女子16万理财存银行被银行工作人员诱骗变成保险，要100年后才能取出。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/HRR-2021-11-18-Situation-Update-1.jpg)图片来源：naturalnews.com
-
-好消息是，拜登的疫苗授权几乎肯定会被第六巡回上诉法院驳回。这将使拜登通过“疫苗”生物武器大规模灭绝美国人民的企图彻底失败。
-
-坏消息是，一旦疫苗授权被取消，全球主义者将被迫采取下一个毁灭性战略来实现种族灭绝和人口减少的目标。**看起来他们的下一个武器将是马尔堡病毒、埃博拉病毒或天花病毒。**
-
-在默克实验室发现了标有“天花”的小瓶，这违反了美国法律。比尔·盖茨警告说，美国机场可能会出现天花释放。他们有什么打算？
-
-天花生物战——全球主义者准备了“完美”的计划来掩盖疫苗授权，并通过引发新的致命流行病来取消中期选举。
-
-**参考资料：**[naturalnews][The SMALLPOX BIOWAR – globalists prepare “perfect” scheme to cover up vaccine deaths and cancel mid-term elections by unleashing a new, deadly epidemic](https://www.naturalnews.com/2021-11-18-smallpox-biowar-globalists-prepare-perfect-scheme-to-cover-up-vaccine-deaths-epidemic.html)
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
