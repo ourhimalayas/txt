@@ -105,65 +105,65 @@
 ### [比尔·盖茨、安东尼·福奇承认中共病毒疫苗无效](/content/gnews/30/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [德国准备对未接种疫苗者实施奥地利式的封锁](/content/gnews/31/README.md)
+### [疫苗政策急变，澳大利亚总理180度急转弯!](/content/gnews/31/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [德国准备对未接种疫苗者实施奥地利式的封锁](/content/gnews/32/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [格蕾丝·孟在接受采访时抨击“怪物”中国](/content/gnews/32/README.md)
+### [格蕾丝·孟在接受采访时抨击“怪物”中国](/content/gnews/33/README.md)
  ` MG FARM`
 
-### [灾难正在以光的速度降临的](/content/gnews/33/README.md)
+### [灾难正在以光的速度降临的](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/14/2021文贵先生大直播精选-Himalaya生态系统是去政府化的人类未来的金融系统](/content/gnews/34/README.md)
+### [11/14/2021文贵先生大直播精选-Himalaya生态系统是去政府化的人类未来的金融系统](/content/gnews/35/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [联合国阿富汗特使称该国正处于“人道主义灾难”的边缘](/content/gnews/35/README.md)
+### [联合国阿富汗特使称该国正处于“人道主义灾难”的边缘](/content/gnews/36/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [11月19日文贵大直播快讯——新中国联邦的货币是全球性的](/content/gnews/36/README.md)
+### [11月19日文贵大直播快讯——新中国联邦的货币是全球性的](/content/gnews/37/README.md)
  ` 澳喜特战旅Gnews`
 
-### [11/12/2021文贵先生大直播精选-财富只是工具而不是信仰](/content/gnews/37/README.md)
+### [11/12/2021文贵先生大直播精选-财富只是工具而不是信仰](/content/gnews/38/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [联合国要求中共提供证据证明彭帅安好](/content/gnews/38/README.md)
+### [联合国要求中共提供证据证明彭帅安好](/content/gnews/39/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [富翁们通过独立的家族办公室拥有所有加密货币的4%](/content/gnews/39/README.md)
+### [富翁们通过独立的家族办公室拥有所有加密货币的4%](/content/gnews/40/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [11月19日文贵大直播快讯——隔空取钱还没有开始](/content/gnews/40/README.md)
+### [11月19日文贵大直播快讯——隔空取钱还没有开始](/content/gnews/41/README.md)
  ` 澳喜特战旅Gnews`
 
-### [【文贵先生大直播PPT】全球疫苗灾难情况跟踪](/content/gnews/41/README.md)
+### [【文贵先生大直播PPT】全球疫苗灾难情况跟踪](/content/gnews/42/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [【文贵先生大直播PPT】加密货币与法币共存的时代已经到来](/content/gnews/42/README.md)
+### [【文贵先生大直播PPT】加密货币与法币共存的时代已经到来](/content/gnews/43/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [【文贵大直播PPT】主权国家法币将慢慢消失](/content/gnews/43/README.md)
+### [【文贵大直播PPT】主权国家法币将慢慢消失](/content/gnews/44/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [有声|中美互相解除记者签证限制](/content/gnews/44/README.md)
+### [有声|中美互相解除记者签证限制](/content/gnews/45/README.md)
  ` MOSREC`
 
-### [有声|中共利用海外空壳公司盗取意大利军用无人机技术](/content/gnews/45/README.md)
+### [有声|中共利用海外空壳公司盗取意大利军用无人机技术](/content/gnews/46/README.md)
  ` MOSREC`
 
-### [有声|中共国内又一餐饮老板自杀身亡](/content/gnews/46/README.md)
+### [有声|中共国内又一餐饮老板自杀身亡](/content/gnews/47/README.md)
  ` MOSREC`
 
-### [2021年11月19日文贵先生直播大雨围城速记](/content/gnews/47/README.md)
+### [2021年11月19日文贵先生直播大雨围城速记](/content/gnews/48/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [美国会两党议员正在推动让台湾加入国际刑警组织](/content/gnews/48/README.md)
+### [美国会两党议员正在推动让台湾加入国际刑警组织](/content/gnews/49/README.md)
  ` 日本东京方舟农场`
 
-### [11/19/2021国际财经快讯：喜币价格最高突破37美元；SEC在2021财年征收39亿美元罚款](/content/gnews/49/README.md)
+### [11/19/2021国际财经快讯：喜币价格最高突破37美元；SEC在2021财年征收39亿美元罚款](/content/gnews/50/README.md)
  ` 秘密翻译组金融团队`
-
-### [参议员科顿抨击中共，呼吁拜登政府全面抵制北京冬奥会](/content/gnews/50/README.md)
- ` 首尔天池农场`
 
 ### [党之疲敝，不日崩殂](/content/gnews/51/README.md)
  ` 骄子`
