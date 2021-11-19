@@ -15,127 +15,127 @@
 
 ---
 
-### [币圈新闻动态：喜币（HCN）价格17日实时价格为36.721 HDO](/content/gnews/1/README.md)
+### [每日快报：通往法西斯的道路用疫苗任务和企业勾结铺就](/content/gnews/1/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [国防部长称俄罗斯正“密切关注”英国皇家海军航空母舰](/content/gnews/2/README.md)
+### [币圈新闻动态：喜币（HCN）价格17日实时价格为36.721 HDO](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [国防部长称俄罗斯正“密切关注”英国皇家海军航空母舰](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美日联袂，对中共贸易“一剑封喉”](/content/gnews/3/README.md)
+### [美日联袂，对中共贸易“一剑封喉”](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [立陶宛不顾中共威胁，批准设立“驻立陶宛台湾代表处”](/content/gnews/4/README.md)
+### [立陶宛不顾中共威胁，批准设立“驻立陶宛台湾代表处”](/content/gnews/5/README.md)
  ` 首尔天池农场`
 
-### [科学家们一直在设计方法将他们所谓的疫苗加入食品供应中](/content/gnews/5/README.md)
+### [科学家们一直在设计方法将他们所谓的疫苗加入食品供应中](/content/gnews/6/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [【文炬拾字】摆拍造假的中共选举](/content/gnews/6/README.md)
+### [【文炬拾字】摆拍造假的中共选举](/content/gnews/7/README.md)
  ` 温哥华扬帆农场`
 
-### [文雍漫谈：心声](/content/gnews/7/README.md)
+### [文雍漫谈：心声](/content/gnews/8/README.md)
  ` 文雍`
 
-### [看中共如何“一房四吃”](/content/gnews/8/README.md)
+### [看中共如何“一房四吃”](/content/gnews/9/README.md)
  ` 墨尔本雅典娜农场`
 
-### [王公公发飙敲打日本新外相](/content/gnews/9/README.md)
+### [王公公发飙敲打日本新外相](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频| 解读中共的“十大坚持”](/content/gnews/10/README.md)
+### [视频| 解读中共的“十大坚持”](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [孟宏伟的妻子抨击 “恶魔 ”中共国](/content/gnews/11/README.md)
+### [孟宏伟的妻子抨击 “恶魔 ”中共国](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [视频| 拜习会的真正核心是什么？](/content/gnews/12/README.md)
+### [视频| 拜习会的真正核心是什么？](/content/gnews/13/README.md)
  ` MOSREC`
 
-### [中共外交部发言人竟狂言《台湾关系法》非法无效](/content/gnews/13/README.md)
+### [中共外交部发言人竟狂言《台湾关系法》非法无效](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [前工党议员投反对票，安德鲁斯大流行病法案面临夭折](/content/gnews/14/README.md)
+### [前工党议员投反对票，安德鲁斯大流行病法案面临夭折](/content/gnews/15/README.md)
  ` 走进澳洲`
 
-### [COVID-19 最新情报｜科学家们成功获得资助尝试将新冠疫苗注入蔬菜让未接种者吃下](/content/gnews/15/README.md)
+### [COVID-19 最新情报｜科学家们成功获得资助尝试将新冠疫苗注入蔬菜让未接种者吃下](/content/gnews/16/README.md)
  ` G&#124;News TAIWAN`
 
-### [警惕：邪恶势力或使用天花病毒实施恐怖袭击](/content/gnews/16/README.md)
+### [警惕：邪恶势力或使用天花病毒实施恐怖袭击](/content/gnews/17/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [政治操作和蓝金黄！文贵先生揭露中共奥运会的真相](/content/gnews/17/README.md)
+### [政治操作和蓝金黄！文贵先生揭露中共奥运会的真相](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [主流媒体抹黑抗议民众，避重就轻掩盖抗议真相](/content/gnews/18/README.md)
+### [主流媒体抹黑抗议民众，避重就轻掩盖抗议真相](/content/gnews/19/README.md)
  ` 走进澳洲`
 
-### [新中国联邦教育组将规划儿童网络教学方案](/content/gnews/19/README.md)
+### [新中国联邦教育组将规划儿童网络教学方案](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [焦点新闻摘要 2021年11月18日](/content/gnews/20/README.md)
+### [焦点新闻摘要 2021年11月18日](/content/gnews/21/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [今天流血的你是否还记得昨日的创伤](/content/gnews/21/README.md)
+### [今天流血的你是否还记得昨日的创伤](/content/gnews/22/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中共是邪恶势力的全球总部](/content/gnews/22/README.md)
+### [中共是邪恶势力的全球总部](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%](/content/gnews/23/README.md)
+### [阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [SK海力士升级计划受阻 美防中共获先进芯片技术强化军力](/content/gnews/24/README.md)
+### [SK海力士升级计划受阻 美防中共获先进芯片技术强化军力](/content/gnews/25/README.md)
  ` 日本东京方舟农场`
 
-### [七哥谈喜联储IX:不是战友们第一个赚钱的平台就是失败的](/content/gnews/25/README.md)
+### [七哥谈喜联储IX:不是战友们第一个赚钱的平台就是失败的](/content/gnews/26/README.md)
  ` NewFOC`
 
-### [习拜会成果：中共放行美国 “人质”，美国遣返中共罪犯](/content/gnews/26/README.md)
+### [习拜会成果：中共放行美国 “人质”，美国遣返中共罪犯](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年11月18日郭先生盖特 — 视频盖特「2分32秒」](/content/gnews/27/README.md)
+### [2021年11月18日郭先生盖特 — 视频盖特「2分32秒」](/content/gnews/28/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Gettr`
 
-### [驻立陶宛台湾代表处正式成立](/content/gnews/28/README.md)
+### [驻立陶宛台湾代表处正式成立](/content/gnews/29/README.md)
  ` 日本东京方舟农场`
 
-### [日本要闻汇编11月19日](/content/gnews/29/README.md)
+### [日本要闻汇编11月19日](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜耳高管称mRNA针剂是 “基因疗法”，被包装为 “疫苗”](/content/gnews/30/README.md)
+### [拜耳高管称mRNA针剂是 “基因疗法”，被包装为 “疫苗”](/content/gnews/31/README.md)
  ` 墨尔本雅典娜农场`
 
-### [欧洲对未接种疫苗者实施严格规定](/content/gnews/31/README.md)
+### [欧洲对未接种疫苗者实施严格规定](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国又一个P2P平台“共信赢”爆雷](/content/gnews/32/README.md)
+### [中共国又一个P2P平台“共信赢”爆雷](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [跪舔姿势不正确，叶檀挨铁拳](/content/gnews/33/README.md)
+### [跪舔姿势不正确，叶檀挨铁拳](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [广发银行与蓝光地产内外勾结骗贷55亿](/content/gnews/34/README.md)
+### [广发银行与蓝光地产内外勾结骗贷55亿](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际要闻汇编11月19日](/content/gnews/35/README.md)
+### [国际要闻汇编11月19日](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [驻立陶宛台湾代表处正式成立，中共气的跳脚](/content/gnews/36/README.md)
+### [驻立陶宛台湾代表处正式成立，中共气的跳脚](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [盖特备受基金投资者的青睐](/content/gnews/37/README.md)
+### [盖特备受基金投资者的青睐](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [为什么我们之前没有被告知非药物疗法？](/content/gnews/38/README.md)
+### [为什么我们之前没有被告知非药物疗法？](/content/gnews/39/README.md)
  ` 澳喜农场`
 
-### [六中全会后习成众矢之的](/content/gnews/39/README.md)
+### [六中全会后习成众矢之的](/content/gnews/40/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：中共病毒起源又现新论！为何？为谁？](/content/gnews/40/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [FDA要等到2076年才完全释放辉瑞疫苗数据](/content/gnews/41/README.md)
+### [秘翻在线：中共病毒起源又现新论！为何？为谁？](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
 ### [就在与习近平进行虚拟会面几个小时后，美国外交官说“将抵制2022年北京冬奥会，以应对中共国侵犯人权行为，拜登将宣布这一决定”](/content/gnews/42/README.md)
