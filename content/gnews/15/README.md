@@ -2,29 +2,28 @@
 ---
 
 
-## 特鲁多政府国策加剧加拿大通货膨胀
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1676068/)
+## 加拿大法院结束 COVID 紧急情况| 戴口罩、封锁和紧急使用疫苗接种 现在是非法的
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1676105/)
 
-原文采编：文莱  编译撰稿：文所未闻
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-58-1.png)图片来源：网络
+加拿大多个省法院审理的许多案件已经结出硕果，政府被迫宣布结束紧急状态，但媒体并未对此进行报道，政府本身仍在继续其议程，尽管他们现在 100% 这样做是犯罪。 如果没有进入紧急状态，口罩强制令、封锁或所谓的“疫苗”就没有法律依据，因为它只有紧急使用授权。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-6-edited.png)图片来源：CBC
+显然，并非这个国家的所有法院都受到了腐败
 
+为 Covid 危害人类罪的肇事者伸张正义
 
-据加拿大自媒体《后千禧年》11月17日报道，总理特鲁多执政期间物价再次上涨，创2003年以来最高纪录，10月份通货膨胀率飙升至4.7%。
+加拿大排名第一的宪法律师 Rocco Gallati 证实，加拿大高等法院已终止针对 Covid-19 的紧急法案，从而取消了所有省份的所有封锁和戴口罩规定。
 
-【加拿大统计局】近期表示，全国各地的物价都在全面上涨，交通变得尤其昂贵，其中汽油价格的暴涨是主要因素。加拿大民众倍感食品价格上涨压力，例如肉类价格已上升了百分之十。
+贾斯汀·卡斯特罗领导的专制共产主义政府无视法治。
 
-目前的通胀率远超加拿大银行最初预期。对此，当局虽承诺将控制物价，但尚未提出是否将提高利率等具体应对措施来对抗不断加剧的通货膨胀。同时，加拿大的经济也并没有像大部分政府官员们所预测的那样迅速恢复。
+来源链接：[https://rightsfreedoms.wordpress.com/2021/07/15/canadian-court-ends-covid-emergency-mask-mandates-lockdowns-emergency-use-jab-are-now-unlawful/](https://rightsfreedoms.wordpress.com/2021/07/15/canadian-court-ends-covid-emergency-mask-mandates-lockdowns-emergency-use-jab-are-now-unlawful/)
 
-此外，特鲁多政府在其已承诺的1010亿加元的预算开支外，还计划在未来五年内增加780亿加元的额外新支出，这无疑会进一步加剧该国难以控制的恶性通货膨胀危机。
+编辑/发布：LILY
 
-* * *
+20211118
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 
-校对编辑，发稿：硫酸羟氯喹64
-
-原文链接：
-
-[https://thepostmillennial.com/justinflation-prices-rises-again-under-trudeau-highest-recorded-since-2003](https://thepostmillennial.com/justinflation-prices-rises-again-under-trudeau-highest-recorded-since-2003)
 
  
 

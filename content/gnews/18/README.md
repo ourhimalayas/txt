@@ -2,24 +2,37 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2021年11月17日早
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1676005/)
+## 前国际刑警组织主席孟宏伟妻子高歌批中共是“魔鬼”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1676069/)
 
-配音：香草山教育部 – Rita七号小青蛙
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-17-768x994-1.png)
-文字版原文：[GTV新闻访谈简报|2021年11月17日早](https://gnews.org/zh-hans/1672422/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/111807.jpg)前国际刑警组织主席孟宏伟的妻子高歌在法国里昂接受美联社采访后拍照。（2021年11月18日）
+**编辑摘要：**
 
-音频处理：喜山必胜Maverick
+据美国之音11月18日报道，在中共国公安部国际合作局副局长、一级督察胡彬郴竞逐国际刑警组织执委一职引发人权团体和国际政坛关切之际，曾经担任过国际刑警组织主席的公安部副部长孟宏伟的妻子高歌接受美联社独家专访，痛批她丈夫一度服务过的中共国政府是“魔鬼”。
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+孟宏伟2016年当选国际刑警组织主席，2018年返回中共国后突然失踪。他在法国的妻子高歌带着一对双胞胎儿子寻求政治庇护后成为政治难民，目前受到法国警方24小时的保护。高歌之前也曾隐匿真实面容举行过记者会或接受媒体采访。11月18日，高歌在法国首次公开接受采访，控诉中共国政府的迫害与暴行。
+
+高歌声称对孟宏伟目前的下落和健康状况毫不知情，甚至都不能确定孟宏伟是否还活着。2018年10月，中共政府声称孟宏伟因为并未细说的违法行为而被调查。2019年孟宏伟被开除党籍。2020年1月，天津市第一中级人民法院以受贿罪判处孟宏伟有期徒刑13年半。法院在判决书中声称，孟宏伟收受贿赂200万美元，并纵容他的妻子滥用职权谋取私利。孟宏伟对所犯罪行供认不讳，而且还表达了悔意。
+
+一位终生在中共国国内外抓捕罪犯的高层官员，最后以国际刑警组织主席的身份在任上被捕入狱。让人匪夷所思的是，国际刑警组织对孟宏伟的被捕毫不知情，曾向中共国政府打听孟宏伟的下落。中共玩弄法律和体制的游戏居然玩到了国际刑警组织，但是被中共深度蓝金黄的国际刑警组织全盘接受，并无异议，今年再度接受一位中共国执委候选人。了解中共本质的人对孟宏伟的结局都不会感觉意外，一个曾经在体制内助纣为虐，又被体制无情抛弃并被绞杀的人，冤枉不冤枉，想想那些被迫害致死的冤魂。就算曾经是中共的顶级杀手，孟宏伟、孟建柱、王立军的结局都预示了每一个中国人的命运。不推翻中共，人人都可能是下一个孟宏伟。
+
+新闻参考链接：[前国际刑警组织主席孟宏伟妻子高歌直面媒体 批中国政府是“魔鬼”](https://www.voachinese.com/a/AP-interviewed-ex-Interpol-wife-takes-on-China-government-20211118/6318304.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+
+***编辑**：胖丁*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
