@@ -2,18 +2,18 @@
 ---
 
 
-## 有声|全球“突然死亡”词条搜索创历史新高
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1677827/)
+## 有声|中共国内又一餐饮老板自杀身亡
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1677880/)
 
 配音：香草山美食部 – 玫瑰园
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据[零对冲](https://www.zerohedge.com/political/worldwide-search-trend-died-suddenly-spikes-record-highs)11月17日报道，一个全球范围内爆发的谷歌搜索趋势引起人们关注——词条“突然死亡”的搜索量在过去两个月中飙升至自2004年起的历史最高点。
+当地时间11月15日，中共媒体消息显示，中共国内又一位餐饮老板选择烧炭自杀。当地时间11月15日，中共媒体消息显示，中共国内又一位餐饮老板选择烧炭自杀。
 
-联想到不久前一篇题为“德国报纸强调最近倒下的足球运动员的不寻常的数量”的[文章](https://www.zerohedge.com/medical/german-newspaper-highlights-unusually-large-number-soccer-players-who-have-collapsed)，文章概述了德国报纸《柏林日报》“最近有异常多的职业和业余足球运动员倒下了”的报道，并表示，“虽然这不是死亡，但体育运动员的突然倒下似乎非常奇怪，可能与健康有关。”
+消息人士透露，该餐饮老板原籍河南郑州，自2019年开店至今，他经历过修路、疫情、水灾、塌方等诸多中共人为制造的灾难。在花光积蓄、走投无路之后，他最终选择了烧炭自杀，只留下了三封遗书和890元遗产。
 
-近期，越来越多的普通人、运动员及政治家突然倒地，而这些人大多都施打了疫苗。人们应密切关注这一时所罕见的趋势。
+评论指出，在中共国内，该餐饮老板的惨痛经历并非个例。加之此前郭文贵先生就曾爆料，由于新冠病毒以及人为水灾，中共国内有数百万的普通民众家破人亡。与此同时，因中共经济崩塌而引发的墙内普通民众跳楼、自杀潮，也仅仅只是开始。
 
-文字版原文：[全球“突然死亡”词条搜索创历史新高](https://gnews.org/zh-hans/1673186/)
+文字版原文：[中共国内又一餐饮老板自杀身亡](https://gnews.org/zh-hans/1674800/)
 
 音频处理：喜山必胜Maverick
 发稿：Fei797
@@ -25,7 +25,7 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+0
 
  
 

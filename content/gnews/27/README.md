@@ -2,30 +2,30 @@
 ---
 
 
-## 有声|中共国内又一餐饮老板自杀身亡
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1677880/)
+## GTV新闻访谈简报|2021年11月19日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1677937/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-当地时间11月15日，中共媒体消息显示，中共国内又一位餐饮老板选择烧炭自杀。当地时间11月15日，中共媒体消息显示，中共国内又一位餐饮老板选择烧炭自杀。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-1.png)
 
-消息人士透露，该餐饮老板原籍河南郑州，自2019年开店至今，他经历过修路、疫情、水灾、塌方等诸多中共人为制造的灾难。在花光积蓄、走投无路之后，他最终选择了烧炭自杀，只留下了三封遗书和890元遗产。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-1-4.png)
+文章仅代表作者本人观点，与Gnews无关
 
-评论指出，在中共国内，该餐饮老板的惨痛经历并非个例。加之此前郭文贵先生就曾爆料，由于新冠病毒以及人为水灾，中共国内有数百万的普通民众家破人亡。与此同时，因中共经济崩塌而引发的墙内普通民众跳楼、自杀潮，也仅仅只是开始。
+视频参看：2021.11.19早GTV新闻访谈
 
-文字版原文：[中共国内又一餐饮老板自杀身亡](https://gnews.org/zh-hans/1674800/)
+[https://gtv.org/video/id=6197a649fcd196126f8cb4b9](https://gtv.org/video/id=6197a649fcd196126f8cb4b9)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov.jpg)
+
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-0
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
