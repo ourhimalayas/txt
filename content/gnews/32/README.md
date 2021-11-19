@@ -2,32 +2,26 @@
 ---
 
 
-## 有声|中共国又一名抗疫医生猝死
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1676535/)
+## 郭文贵先生2021年11月18日盖特视频（2分32秒）全文字版
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1676560/)
 
-配音：香草山教育部 – Rita七号小青蛙
+听写整理编辑：东京樱花团/Peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-137.png)
+啊，啊，哎，啊，我的娘嘞，哎，太不容易了，兄弟姐妹们，别忘了健身呐！你别有了钱了，你没命享受好日子啊。
 
-当地时间11月13日，中共媒体报道称，一名一线抗疫医生突发性死亡，年仅三十岁。
+这疫苗，七哥说过吧?疫苗，一定咱们让他们那个停了，放心，咱们有更多国家政府现在已经慌了。就是我们爆的料，提供的信息和发生的情况都证明了，是的，疫苗灾难比病毒还可怕。共产党正在准备另外一波的放毒。所以说兄弟姐妹们，信不信，咱不强求，咱只做成自己力所能及，认为正确的事儿，自己喜欢又能做到的事就够了。
 
-资料显示，逝者名为李鸿雁，原是一位血液内科医生，疫情期间，其所在的发热门诊任务更为繁重，李鸿雁前去支援，最终却倒在了完成任务之后的隔离期。
+哎，太可怕了，多少人打了疫苗？现在，害怕了吧，还没开始呢，未来的人类新中国联邦人，比什么都珍贵，精子，卵子，没打过疫苗的精子卵子是最贵的，新中国联邦人太伟大了。
 
-另据报道，中共国强推毒疫苗的第一批受害者大多为医护人员，且疫苗接种与否往往与相关人员的工作、晋升密切相关。值得注意的是，疫情期间，中共国内猝死的医生人数已远超因感染新冠病毒死亡的人数。
+俺要继续锻炼嘞，今天没有直播啊，所以国内战友快睡觉觉吧，呵呵，mua……
 
-郭文贵先生曾在直播中爆料，当前中共国内的医护人员极为短缺，其主要原因在于，大多数医护人员被强制接种了新冠毒疫苗，其后许多人仍然感染了新冠病毒，从而导致并发症，甚至死亡。而中共新冠疫苗来带的次生灾难，以及由此引发的医护人员猝死等现象或将形成一个死循环，最终会导致中共国内医疗系统的全面崩塌。
+稿件仅作参考，最终以郭文贵先生盖特直播视频内容为准。
 
-文字版原文：[中共国又一名抗疫医生猝死](https://gnews.org/zh-hans/1672215/)
+[郭文贵先生11月18日盖特视频](https://gettr.com/post/pha9c3cef4)
 
-音频处理：喜山必胜Maverick
-
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

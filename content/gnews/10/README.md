@@ -2,28 +2,56 @@
 ---
 
 
-## 中共国又一个P2P平台“共信赢”爆雷
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1676819/)
+## 欧洲对未接种疫苗者实施严格规定
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1676828/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-13.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fpic3.zhimg.com%2Fv2-b3097f91f896ce540310c98e84bc9b2f_720w.jpg%3Fsource%3D172ae18b&amp;imgrefurl=https%3A%2F%2Fzhuanlan.zhihu.com%2Fp%2F154221411&amp;tbnid=tvuY3uKn1pUbFM&amp;vet=12ahUKEwjxt4vBwqP0AhXim0sFHRXRCdsQMygBegQIARB3..i&amp;docid=ZKPaz2N4UceN0M&amp;w=640&amp;h=359&amp;itg=1&amp;q=P2P%E6%9A%B4%E9%9B%B7&amp;ved=2ahUKEwjxt4vBwqP0AhXim0sFHRXRCdsQMygBegQIARB3)
-11月19日，中共国深圳市公安局南山分局发布一则通报称，深圳市文燊威投资有限公司及其旗下深圳市共信赢金融信息服务有限公司运营的“共信赢”平台，涉嫌非法吸收公众存款罪。为保护投资人权益，惩治犯罪，深圳市公安局南山分局已依法对深圳市文燊威投资有限公司立案侦查。
+**【雅典娜观察】与您一起洞察世界**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Untitled-3.png)
+**翻译：**文扬
+**编辑：**朝花夕拾
 
-深圳市公安局南山分局还指出，经全面收集证据，2021年11月18日，其对深圳市文燊威投资有限公司林某峰、王某鹏等犯罪嫌疑人依法采取刑事强制措施。
+随着中共病毒（Covid-19）病例在欧洲爆发，个别国家正在严厉打击未接种疫苗的人，拼命试图防止一场健康灾难。
 
-公开资料显示，深圳市文燊威投资有限公司是一家综合性投资与管理集团，包含综合金融投资服务、房地产开发、文化体育、传媒、酒店管理等板块。而其中的综合金融投资服务业务，正是由深圳市共信赢金融信息服务有限公司来运营。
+本月早些时候，世卫组织对未来几个月发出了令人不寒而栗的警告，世卫声称现在令人“严重关切”的是难以置信的传播速度，到2月份，整个非洲大陆的死亡人数可能达到50万人。
 
-据深圳市共信赢金融信息服务有限公司运营的共信赢平台披露数据，该平台成立以来累计借贷金额达219.55亿元，累计借贷笔数达46335笔，累计出借人数量达183445人次，累计借款人数量达12068人次。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9-9.jpg)
-值得关注的是，“共信赢”平台运营主体深圳市共信赢金融信息服务有限公司自2020年以来，已经多次成为失信被执行人。不仅如此，该公司还频繁因为劳动争议、人事争议、合同争议等原因遭到多个自然人起诉。
+世卫组织区域主任汉斯·克鲁格（Hans Kluge）表示，欧洲“再次处于大流行的中心”，并敦促居民接种疫苗，因为致命的德尔塔变种病毒依然在持续传播。
 
-消息来源:
+从那时起，许多欧洲国家对日益严重的危机做出了回应，它们恢复了先前有所放松的Covid规则，而其它一些国家也采取了全新的措施。
 
-[涉非吸罪，深圳一投资公司遭立案调查，实控人被采取刑事强制措施](https://tech.ifeng.com/c/8BIBZhEIRxj)
+丹麦在9月份成为第一个取消所有Covid限制的欧盟国家，成为头条新闻，现在丹麦又重新引入了疫苗护照，现在需要在进入场馆之前出示护照，以证明个人的疫苗接种或康复状况。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+本周，奥地利作为欧洲疫苗接种率最低的国家之一，开始采取严厉措施，将约200万未接种疫苗的公民置于封锁状态。
+
+因为限制措施激增，荷兰同样在本周进入全面封锁状态，成为自夏季以来第一个重新封锁的西欧国家。现在，其它国家似乎也将纷纷效仿。
+
+德国准备效仿奥地利的做法，对未接种疫苗的人实施专门的限制，该国新的联合政府在议会中透露了这一潜在的计划。
+
+根据绿党联合领导人罗伯特·哈贝克（Robert Habeck）的描述，一份“对未接种疫苗的人进行封锁”的提案，德国人使用公共交通工具或进入工作场所之前，需要证明他们的疫苗接种状况或检测结果呈阴性，这将扩大该国所谓的“3G”大流行系统。
+
+该联盟还在推动，在某些行业进行疫苗强制接种。
+
+针对未接种疫苗者的特定规则已经开始在德国推出，萨克森州禁止那些无法证明自己已接种疫苗的人享受非必要的服务和进入一些商店，如果病例继续上升，在不久的将来也有可能需要进行测试。
+
+北莱茵·威斯特法伦州也可能采用萨克森州的规则，未接种疫苗的人将被禁止参加体育比赛和进入圣诞市场，而柏林已经推出了类似的限制。
+
+希腊的情况也类似，希腊最近出台了一项规定，要求未接种疫苗的人在进入银行和商店等服务场所、以及咖啡馆和餐馆等场所之前，进行快速PCR检测。
+
+尽管该措施引发了罢工行动，但当局拒绝让步，而是坚持认为正在考虑对未接种疫苗的人采取更严厉的限制措施。
+
+在法国，65岁以上需要健康通行证的人必须注射加强针，该国还限制来自一系列欧盟国家未接种疫苗的外国游客。而在意大利，工人需要证明接种了疫苗、或者最近从病毒中康复、或者进行定期测试。
+
+随着整个欧洲大陆的病例和死亡人数的继续飙升，随着冬季的到来，情况只会恶化。
+
+**原文链接：**[Austria, Germany: European nations introduce tough rules for unvaccinated as Covid outbreak explodes | news.com.au — Australia’s leading news site](https://www.news.com.au/world/coronavirus/global/inside-europes-tough-rules-for-the-unvaccinated-as-covid-cases-explode/news-story/1bf365d648d4da747cff5ca9e6d3b3cf)
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,42 +2,35 @@
 ---
 
 
-## 阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1676922/)
+## 内燃机不能亡，TOYOTA 组织油车大联盟拒绝格拉斯哥协议
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1676938/)
 
-作者：香草山金融部 – 闲聊钱币
+撰稿：天蝎独角兽
 
+就在拒绝格拉斯哥协议三天后,TOYOTA铁了心要巩固燃油车帝国，组建「Team Japan」，死守内燃机，并持续开发新引擎。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/16372976251.png)网络截图
+如果油电终须一战，Toyota 已找好燃油车联盟，决定坚持到底。今日 Toyota 宣布成立「Team Japan」，持续开发内燃机技术，成员包括 Subaru、Mazda、Kawasaki 和 Yamaha，这个华丽的阵容在「日本超级耐久赛」中揭晓。
 
+以 Toyota 为首的五间日本汽机车公司，认为这个世界尚未准备好迎接纯电车，他们将持续开发研究更环保的燃油技术，同时也不会中断对氢燃料电池的投入。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
+Mazda 和 Toyota 将合作开发 1,500 cc 的 Skyactive-D 引擎，让新款赛车能使用生质燃料柴油，用来参加明年的超级耐久赛。Subaru 和 Toyota 同样也会在之后的耐久赛中，采用以生质合成燃料的燃油，来减少碳排放，甚至达成碳中和目标。
 
+另两成员 Kawasaki 与 Yamaha 将与 Toyota 合作，将氢燃料电池技术导入摩托车，让引以为傲的重型机车也能使用零排放的氢燃料电池驱动。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/16372976151.png)网络截图
+「五家公司共同承诺，将会持续制造、运输、使用燃油和内燃机，提供客户更好的选择。」Toyota 官方表示。
 
+联盟就成立在 Toyota 拒绝格拉斯哥协议三天后，全球汽车龙头不愿意配合奔驰、福特、通用与 Volvo 等车厂 2040 停用化石燃料协议，展现 Toyota 死守内燃机的决心。
 
-路透社伦敦11月18日报道，中共国的大型电商阿里巴巴股价周四盘前暴跌10.3%。官方给出的理由是消费放缓，竞争加剧，以及监管部门的打击。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1005-1.jpg)
-这些理由看似都很有道理，但是并未揭开表面原因背后的深层含义。首先来说消费放缓。没错，老百姓买买买的动力的确是慢下来了。韭菜们已经快被连根拔起了，哪里还有能力自身消费？再来看看竞争加剧。从来商场如战场，竞争一直都存在着。凡是购买过淘宝商品的人几乎都知道淘宝上假冒伪劣商品泛滥，由此导致的客商纠纷从未断过。这样一个不以商品品质盛出的店家终将被淘汰。最后，监管部门的打击绝不是要维护法律的公平公正，而是要杀鸡取卵，给中共摇摇欲坠的经济打点儿鸡血。
+有趣的是，相较 Toyota 电动车的牛步，福斯汽车虽然大力推展电动车，但也同样拒绝签署这项协议，可见全球汽车销售前两大的龙头，并不会轻易的放弃现有疆土。
 
-马云被限制自由，蚂蚁金服募资暂停，阿里巴巴股价暴跌，这一切都只是中共内斗的冰山一角。
+Toyota 将在明年推出第一款量产纯电车 bz4x，Subaru 也会推出相似的电动车，Kawasaki 和 Yamaha 也是日本换电机车联盟的主要成员，显示这些车厂并非反对电动车，只是不愿放弃燃油车市场。而相对保守的策略究竟是对是错，要等到十年后才看得到结果。
 
-（本文仅代表作者观点）
+评：用不了十年就可看到结果了吧。要么这只是这几个大牌厂商为了未来市场份额       讨价还价的策略，要么是退出舞台的一种开始。咱们拭目以待。
 
-参考来源：[阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%](https://www.reuters.com/business/chinas-alibaba-misses-quarterly-revenue-expectations-2021-11-18/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Nomura%20JP%2011-18-21%20Sponsorship&amp;utm_campaign=Nomura%20JP%2011-18-21%20Sponsorship)
+新闻参考链接：[https://technews.tw/2021/11/15/toyota-refuse-zero-emission-league/](https://technews.tw/2021/11/15/toyota-refuse-zero-emission-league/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
-
-
+发布：五饼二鱼
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/016.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,41 @@
 ---
 
 
-## SK海力士升级计划受阻 美防中共获先进芯片技术强化军力
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1676911/)
+## 阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1676922/)
 
-#### 撰稿：日本东京方舟农场  海星
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/0AE6D7C8-AA4A-4C0B-A18E-D5039740D1B8.jpeg)（图片来源：路透社）
-
-11月18日，据知情人士透露，韩国半导体大厂SK海力士原先计划升级其中共国工厂的芯片生产设施，但由于美国担忧中共利用先进芯片技术强化军事力量，该计划目前陷入困境。
-
-据《路透社》报道，有3位知情人士表示，全球最大的动态随机存取记忆体（DRAM）晶片供应商之一、韩国半导体大厂SK海力士，原定计划在其中共国的无锡厂房配备荷兰艾司摩尔（ASML）的最新极紫外光（EUV）微影技术芯片制造机，以升级量产设备。
-
-但据一位美国白宫高级官员透露，拜登政府担忧芯片技术会强化中共的军事力量，仍致力于防止中共利用美国和盟国的技术，开发最先进的半导体制造。因此，SK海力士的此项计划或存在潜在挫折。
-
-SK海力士无锡厂对全球电子产业至关重要。该厂生产SK海力士约半数的DRAM晶片，占全球总产量的15%。据研调机构IDC估计，2021年全球记忆体市场的需求将增长19%，任何重大变化都可能影响全球记忆体市场。因此，在未来几年内，若上述情况得不到解决，SK海力士将落后于三星电子和美国美光。
-
-《路透社》的报道指出，在川普总统执政时期，美国与荷兰当局联手成功阻止ASML出售EUV光刻机给中共最大的晶片生产商中芯国际，以抑制其生产先进芯片的能力，遏止中共的军力扩张。 拜登上任后也延续相关政策。分析人士认为，针对SK海力士试图将EUV设备引入中共国，美国官员预计不会改变立场。
-
-*参考链接：*
-
-1. [*https://cn.reuters.com/article/sk-hynix-china-wuxi-plant-1118-idCNKBS2I303Q*](https://cn.reuters.com/article/sk-hynix-china-wuxi-plant-1118-idCNKBS2I303Q)
-2. [*https://www.epochtimes.com/gb/21/11/18/n13383758.htm*](https://www.epochtimes.com/gb/21/11/18/n13383758.htm)
+作者：香草山金融部 – 闲聊钱币
 
 
-* * *
 
-*素材采编：海星*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
 
-*编辑：青衣青青*
 
-*发布：miumiu*
+
+路透社伦敦11月18日报道，中共国的大型电商阿里巴巴股价周四盘前暴跌10.3%。官方给出的理由是消费放缓，竞争加剧，以及监管部门的打击。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1005-1.jpg)
+这些理由看似都很有道理，但是并未揭开表面原因背后的深层含义。首先来说消费放缓。没错，老百姓买买买的动力的确是慢下来了。韭菜们已经快被连根拔起了，哪里还有能力自身消费？再来看看竞争加剧。从来商场如战场，竞争一直都存在着。凡是购买过淘宝商品的人几乎都知道淘宝上假冒伪劣商品泛滥，由此导致的客商纠纷从未断过。这样一个不以商品品质盛出的店家终将被淘汰。最后，监管部门的打击绝不是要维护法律的公平公正，而是要杀鸡取卵，给中共摇摇欲坠的经济打点儿鸡血。
+
+马云被限制自由，蚂蚁金服募资暂停，阿里巴巴股价暴跌，这一切都只是中共内斗的冰山一角。
+
+（本文仅代表作者观点）
+
+参考来源：[阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%](https://www.reuters.com/business/chinas-alibaba-misses-quarterly-revenue-expectations-2021-11-18/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Nomura%20JP%2011-18-21%20Sponsorship&amp;utm_campaign=Nomura%20JP%2011-18-21%20Sponsorship)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
+
 
  
 
