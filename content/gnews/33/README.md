@@ -2,11 +2,11 @@
 ---
 
 
-## Coinbase建议美国设立单一的加密监管机构
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1677214/)
+## 中共北交所上市第二天情况
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1677215/)
 
-11月15日据Newsbitcoin消息，Coinbase正在推动美国设立单一的加密监管机构。Coinbase首席执行官BrianArmstrong在上周的第三季度财报会议上表示：“我们已经与许多不同的监管机构进行了定期会面。上周与美国SEC主席GaryGensler举行的会议颇有成效。”
-![img](https://media.gettr.com/group36/getter/2021/11/15/12/12/76f0a952-60e6-9261-d929-6327ac9989b9/3a687432fa36879f7469ec08c66f4d04_500x0.jpg)
+截止目前一共81支股票，目前仅有6只股票飘红，继续第一天的颓势。按照中共的筛选标准，去北交所上市的公司还都是像模像样的，但根据上市的情况来看是资本和韭菜都不认账啊！
+![img](https://media.gettr.com/group19/getter/2021/11/16/03/42/fc92a8bb-c6f2-192b-c44e-9c7a8a428544/f8f5b53c355a6eb34ad1c5ee18304ae2_500x0.jpg)
 （文章内容仅代表新西兰-财经G乐部节目观点）
 
  
