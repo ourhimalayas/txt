@@ -2,46 +2,31 @@
 ---
 
 
-## 国防部长称俄罗斯正“密切关注”英国皇家海军航空母舰
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1677141/)
+## 比尔．盖茨和默克公司想干什么？
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1677171/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/圖片1.png)
+图片:网路(2003年的一瓶天花疫苗)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/AU200055005-scaled.jpg)
+作者： Rosemary
 
+發布:牛小妹
 
+11月9日，比尔．盖茨警告说，生物恐怖主义可能造成比自然发生的流行病更大的威胁。他警告各国政府要为天花”SMALLPOX “恐怖袭击和未来的大流行病做好准备，在研究和开发方面需投入数十亿美元。盖茨先生在接受Policy Exchange采访时发表上述言论的，他说，像美国和英国这样的国家必须花费 “数百亿 “来资助研究，并补充说，虽然这可能很昂贵，但它可能可以根除流感和普通感冒。
 
-图片来源： news.usni.org
+八天后，11月17日晚上，在费城外默克公司的一个制药实验室，一名正在清理冰柜的实验室工作人员发现了5个令人震惊的标为 “天花 “”SMALLPOX “的小瓶，另外还有10个小瓶贴着天花病毒 “疫苗 “标签。被发现之后，这些小瓶立即被保护起来，并对该设施进行了封锁，到11月17日晚上才解除了封锁。默克公司没有立即回应DailyMail.com的评论请求。联邦调查局展开了紧急调查。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/圖片1-1.png)
+发现天花的默克公司位于费城外的Upper Gwenydd工厂
 
+天花是一种严重的、威胁生命的疾病，由变种病毒引起。一个人在接触后的7到14天内可能不会看起来或感到不适，但最初的症状包括高烧、头痛、背痛和呕吐。约有三分之一的人感染该病后死亡。在最初的症状之后，会出现全身性的皮疹。在这个阶段，患者的传染性最强。皮疹出现在舌头、口腔和喉咙。然后扩散到面部和手臂、躯干和腿部。充满脓液的疙瘩，也称为脓疱，形成后开始结痂，并在大约10天的时间内掉落。它主要是通过呼吸道微粒导致的长期面对面的传播。该病毒还通过共享床单、毛巾和衣服传播。
 
-#### 编译：小红帽
+天花在20世纪就造成约3亿人死亡，随着一次成功的大规模疫苗接种运动，天花在1980年被根除。这种致命病毒的样本只应该保存在两个实验室里：亚特兰大的CDC总部和俄罗斯Koltsovo的Vector研究所。 大多数美国人没有接种过这种疾病的疫苗，那些接种过疫苗的人的免疫力可能正在减弱，这意味着一旦爆发可能会产生破坏性的后果。
 
-本·华莱士（Ben Wallace）告诉天空新闻，俄罗斯飞机一直在跟踪伊丽莎白女王号、其绝密战机和辅助船队，因为它们从为期7个月的远东首航中返回。
+这两个机构没有立即回应DailyMail.com的评论请求。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/圖片1.jpg-4.png)
+[https://www.independent.co.uk/news/science/bill-gates-smallpox-terror-attack-b1958789.html](https://www.independent.co.uk/news/science/bill-gates-smallpox-terror-attack-b1958789.html)
 
-周三，航母打击群遭受了一次重大打击，其八架英国F-35战机中的一架在起飞后不久就坠入地中海。
-
-这是英国第一次让其价值1亿英镑的喷气式战机坠毁。该飞机是英国武库中最昂贵、最秘密和最复杂的飞机。舰队航空兵的飞行员成功弹出并获救。
-
-但这架装有雷达、传感器和其他机密技术的飞机仍在水下，目前正在进行打捞工作。
-
-华莱士不愿透露俄罗斯潜艇是否也在搜寻飞机残骸，因为了解任何有关F-35的信息都是非常宝贵的情报。
-
-这位高级政府部长透露，当英国皇家海军伊丽莎白女王号及其F-35喷气式战机穿越地中海返回时，俄罗斯重新表现出对他们的兴趣。
-
-早在6月航母打击群开始部署时，莫斯科当局就曾部署多架战机，在航母打击群通过水道时对其进行干扰。
-
-据报道，英国已经呼吁美国帮助打捞这架飞机，因美国是F-35项目的主要合作伙伴。
-
-**参考新闻：** [Russian aircraft ‘buzzed’ Royal Navy aircraft carrier, says defence minister, as sea search continues for ditched stealth fighter (msn.com)](https://www.msn.com/en-au/news/uknews/russian-aircraft-buzzed-royal-navy-aircraft-carrier-says-defence-minister-as-sea-search-continues-for-ditched-stealth-fighter/ar-AAQSL6J?ocid=msedgntp)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://www.dailymail.co.uk/news/article-10215345/FBI-launches-probe-SMALLPOX-Merck-facility-cleaning-freezer.html](https://www.dailymail.co.uk/news/article-10215345/FBI-launches-probe-SMALLPOX-Merck-facility-cleaning-freezer.html)
 
  
 
