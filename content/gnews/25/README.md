@@ -2,25 +2,34 @@
 ---
 
 
-## 比尔·盖茨、安东尼·福奇承认中共病毒疫苗无效
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1678213/)
+## “朝阳群众”基层监管遍布中共国
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678229/)
 
-翻译：武松(Sam)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片11-edited.png)图片来源：网络
-亿万富翁比尔·盖茨和拜登总统的首席医疗顾问安东尼·福奇博士都承认中共冠状病毒疫苗不起作用。福奇对该问题的解决方案是接种更多的疫苗，完全接种疫苗的人应该立即接种加强剂量。
+作者：日本樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月18日，据中共媒体消息称，中共北京当局在一份文件中表示，未来将打造更多的“朝阳群众”、“西城大妈”等所谓“基层社会治理”的群众组织。中共声称，截至2023年，北京每个社区都需被这类监管群体覆盖。相关人士透露，这种伪民间组织现已遍布全国，并多与当地公安紧密合作，破坏、阻挠墙内民众为了维护自身权益所采取的行动，其中甚至出现维权人士被该组织成员跟踪、监视的现象。
 
-盖茨也表达了同样的观点，其表示中共病毒造成的“经济损失”和死亡人数“非常可怕”，但是他并没有指出中共病毒造成的经济损失几乎完全是由于封锁和其他与中共病毒相关的限制造成的，他也没有提到很大一部分死亡人数，尤其是在过去一年中，来自接种疫苗后死亡的人和被完全接种疫苗的人感染的人。盖茨希望大型制药公司创造“研制疫苗的新方法”，并希望全世界在中共病毒方面的经验将申请到“更大的研发预算”，以便更好地为未来的大流行做好准备。盖茨是目前疫苗的最大支持者之一，并积极推动将这些仓促、实验性和致命的疫苗注射到地球上的每个人，其还负责推动和资助在全球范围内使用疫苗护照等各种邪恶的计划。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide4-7.jpeg)
 
-**评：**盖茨和福奇作为世界暗黑势力的前台发言人、跳梁小丑，不遗余力的为他们主子在全世界内的杀人行动摇旗呐喊，宣传、推动和资助中共病毒疫苗在全世界范围内的开打，一针、两针、加强针……不打死人不罢休。新中国联邦正在用实际行动照亮整个世界，促使人类大觉醒，认识到疫苗是真正的杀人武器，这些跳梁小丑及其他们的主子很快会受到应有的惩罚。
+有学者指出，自中共建政之初，“朝阳群众”这种延续演变至今的监控管制模式，本质是一种社会动员。这当中，“群众”未必是真群众，实为中共假借“群众举报”之名，来达到自身的某些目的。
 
-原文链接：
+参考链接：
+1）[北京将打造更多”朝阳群众” “世界第五大情报组织”已遍布全中国](https://www.rfa.org/mandarin/yataibaodao/shehui/ac1-11182021052828.html)
+2）**[“朝阳群众”屡获战功 北京拟打造更多神秘组织](https://news.creaders.net/china/2021/11/18/2420890.html)**
 
-[https://www.naturalnews.com/2021-11-18-gates-fauci-admit-covid-vaccines-not-working.html#](https://www.naturalnews.com/2021-11-18-gates-fauci-admit-covid-vaccines-not-working.html#)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-编辑/发布：LILY
+总编：文特
+编辑：小鹿妞妞
+校正/发稿：谐趣园
 
-20211119
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
