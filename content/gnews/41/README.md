@@ -2,106 +2,72 @@
 ---
 
 
-## 参议员汤姆·科顿：美国必须对北京冬奥会实施全面抵制
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1676608/)
+## 就在与习近平进行虚拟会面几个小时后，美国外交官说“将抵制2022年北京冬奥会，以应对中共国侵犯人权行为，拜登将宣布这一决定”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1676730/)
 
-参议员汤姆·科顿： 美国必须对 [#北京冬奥会](https://twitter.com/hashtag/%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A?src=hashtag_click) 实施全面抵制。 (鉴于) 对我们运动员的威胁和 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的反人类罪行，这让我们别无选择。 【附科顿参议员相关视频讲话】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-434.png)
+来自《每日邮报》2021年11月16日报道
 
+根据在白宫与习近平举行虚拟峰会几个小时后发布的一份报告，拜登总统将宣布外交抵制 2022 年北京奥运会，理由是侵犯人权。
 
+外交抵制通常意味着拜登及其官员不会参加，但美国运动员仍将参加比赛。
 
-> The United States must implement a complete and total boycott of the Beijing Winter Olympics. 
-> 
-> The threat to our athletes and China’s crimes against humanity leave us no other option. [pic.twitter.com/lSLvKhJPMd](https://t.co/lSLvKhJPMd)
-> — Tom Cotton (@SenTomCotton) [November 18, 2021](https://twitter.com/SenTomCotton/status/1461386072622092292?ref_src=twsrc%5Etfw)
+此举旨在平衡因中共国虐待新疆维吾尔族少数民族而希望完全退出的人权活动人士的要求，以及为参加比赛而训练终生的运动员的要求。
 
+但是，今年只有中国大陆的观众可以现场观看比赛，比赛将于2022年2月4日至20 日举行。
 
+据《华盛顿邮报》报道，政府尚未最终确定这一决定，但已向总统提出正式建议，预计他将在本月底之前宣布他的决定。
 
-美前国务卿迈克·蓬佩奥： 拜登对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 软弱的原因很简单。[#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 和 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 将美国视为敌人，而拜登拒绝以同样态度对待 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。
+白宫副新闻秘书安德鲁·贝茨（Andrew Bates）表示，拜登与中共国国家主席习近平近三个半小时的会晤中，本周并未提及奥运问题。一位白宫官员早些时候表示，两国领导人进行了“健康辩论”，但没有取得任何突破。
 
+根据通话内容，拜登确实对中共国在新疆、西藏和香港的做法以及更广泛的人权提出了担忧。
 
+美国会将其决定通知盟友，但让他们自行决定是否参加2022年北京奥运会。
 
-> The reason for Biden’s weakness in regard to China is simple. He refuses to see China in the same way Xi and the Chinese Communist Party view the United States, as an adversary. [https://t.co/pDRV9oSN7U](https://t.co/pDRV9oSN7U)
-> — Mike Pompeo (@mikepompeo) [November 19, 2021](https://twitter.com/mikepompeo/status/1461499735366373380?ref_src=twsrc%5Etfw)
+第一夫人吉尔·拜登最后一次参加了在东京举行的2020年夏季奥运会。
 
+美国上一次全面抵制奥运会是在1980年，当时奥运会在俄罗斯莫斯科举办。 以美国为首的65个国家退出奥运会，以抗议苏联入侵阿富汗。
 
+美国不仅不允许其运动员参加比赛，而且还告诉他们，如果他们试图在奥林匹克旗帜下独自参加比赛，他们就有失去美国护照的风险。
 
-众议员莫·布鲁克斯： 福奇博士说，“人们对个人做出决定的权力有一种错位的认识，而这种权力取代了社会安全。” 他认为他的话比宪法更有力。蝠奇这号人证明了为什们宪法要对政府的权力加以限制。
+上个月，人权活动人士扰乱了希腊南部的传统点火仪式，对国际奥委会（IOC）将奥运会安排在北京举行感到愤怒。他们将2022年奥运会称为“种族灭绝运动会”。
 
+2021年7月，欧洲议会和英国议会投票通过外交抵制冬奥会。5月，众议院议长佩洛西推动外交抵制，以避免惩罚运动员。
 
+由于侵犯人权，包括NBC在内的一些奥运转播商推动取消奥运会转播计划。
 
-> Dr. Fauci says there's a "misplaced perception about people's individual right to make a decision that supersedes the societal safety."
-> 
-> He thinks his word is more powerful than the Constitution. Fauci is why Constitutional limitations on government exist. [https://t.co/vIrUjwTrVJ](https://t.co/vIrUjwTrVJ)
-> — Mo Brooks (@RepMoBrooks) [November 19, 2021](https://twitter.com/RepMoBrooks/status/1461491410935287810?ref_src=twsrc%5Etfw)
+中共国当局表示，他们的目标不是消灭维吾尔人——历史上有1300万人口的穆斯林群体——而是让他们融入社会。
 
+中共国还因镇压香港抗议者、侵犯台湾和西藏以及掩盖新冠病毒的起源而面临国际批评。
 
+中国官方媒体在峰会后报道称，习近平警告拜登，鼓励台湾独立是“玩火”。
 
-比尔·格茨: 参议员卢比奥(Marco Rubio)推迟提名尼克·伯恩斯(Nick Burns)担任美国驻华大使，原因是伯恩斯与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 相关企业的关系以及对拜登政府对 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 北京软化政策的担忧。
+白宫声明说，在台湾问题上，拜登总统强调，美国……强烈反对单方面改变现状或破坏台海和平稳定的努力。
 
+一位高级官员说，他对北京的一些行为表示担忧，他认为这些行为不利于两岸的和平与稳定，他对此表示非常直接的担忧。
 
+简评：文贵先生2021年11月17日大直播中说奥运会的本质是钱，中共拿钱拿性贿赂得到了2008奥运会主办权，所有奥运会的本质都是利益，跟什么奥林匹克精神不搭边。
 
-> Sen. Marco Rubio is holding up the nomination of Nick Burns to be US ambassador to China over Burns' ties to Chinese-linked businesses and concerns about Biden admin softening policies toward Beijing [https://t.co/rOavuvZNZl](https://t.co/rOavuvZNZl)
-> — Bill Gertz (@BillGertz) [November 19, 2021](https://twitter.com/BillGertz/status/1461488941501083648?ref_src=twsrc%5Etfw)
+“冬奥会就是金钱交易的腐败大会、蓝金黄结果的大会、政治家欺骗人民的大会；新中国联邦坚决反对中共国搞冬奥会也是政治，让人家听到我们的声音。
 
+冬奥会共产党搞的话对咱是好事，不搞不是好事，我们希望他搞成，但也有机会让他搞不成。”
 
+原文链接: [https://www.dailymail.co.uk/news/article-10208867/Biden-administration-announce-diplomatic-BOYCOTT-Beijing-Winter-Olympics-2022.html](https://www.dailymail.co.uk/news/article-10208867/Biden-administration-announce-diplomatic-BOYCOTT-Beijing-Winter-Olympics-2022.html)
 
-参议员卢比奥新闻办： 参议员卢比奥发表了一份关于 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 网球明星彭帅 [#PengShuai](https://twitter.com/hashtag/PengShuai?src=hashtag_click) 下落不明的声明，她指控一名前 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 中央政治局常委成员(张高丽)性侵，此后一直没有露面
+Author: 希望
 
+PR: clau
 
+* * *
 
-> Sen. Rubio released a statement regarding the ongoing disappearance of Chinese tennis star [#PengShuai](https://twitter.com/hashtag/PengShuai?src=hash&amp;ref_src=twsrc%5Etfw), who accused a former member of the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s Politburo Standing Committee of sexual assault and has not been seen since. 
-> 
-> Read👇[https://t.co/oR1XYiqvIq](https://t.co/oR1XYiqvIq)
-> — Senator Rubio Press (@SenRubioPress) [November 18, 2021](https://twitter.com/SenRubioPress/status/1461474984799444993?ref_src=twsrc%5Etfw)
-
-
-
-众议员吉姆·乔丹： 金·普萨基（白宫发言人）拒绝就 [#彭帅](https://twitter.com/hashtag/%E5%BD%AD%E5%B8%85?src=hashtag_click) 今天的失踪发表评论。拜登政府不能着手 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的人权问题是可耻的！ 阅读我写给拜登的信，敦促他的团队结束与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 对话，直到我们知道她安全为止： 【附该信全文】
-
-
-
-> Jen Psaki refused to comment about [#PengShuai](https://twitter.com/hashtag/PengShuai?src=hash&amp;ref_src=twsrc%5Etfw)’s disappearance today. The Biden administration’s inability to address human rights concerns in China is shameful!
-> 
-> Read my letter to Biden urging his admin to end talks with [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) until we know she’s safe: [pic.twitter.com/sf5VAL4BRY](https://t.co/sf5VAL4BRY)
-> — Jim Banks (@RepJimBanks) [November 18, 2021](https://twitter.com/RepJimBanks/status/1461434960531922950?ref_src=twsrc%5Etfw)
-
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-众议员肯·巴克： 《重建得更好法案》向 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 输送数十亿美元。 北京在国会最大的拥护者是所谓的“进步人士”，他们的立法将支持种族灭绝、强迫劳动，并补贴 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的不可再生能源产业。
+编辑：【英国伦敦喜庄园编辑部】
 
-
-
-> The Build Back Better Act sends billions of dollars to the CCP. Beijing's greatest advocates in Congress are so-called "progressives," whose legislation would support genocide, forced labor, and subsidize China's non-renewable energy industries.
-> — Rep. Ken Buck (@RepKenBuck) [November 18, 2021](https://twitter.com/RepKenBuck/status/1461417964872294408?ref_src=twsrc%5Etfw)
-
-
-
-美国国会及行政当局中国委员会： 昨天举行了“技术极权主义：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和国外的压迫平台” 听证会，该听证会的证人证词，国会中国委员会[@CECCgov](https://twitter.com/CECCgov) 主席的声明，以及存档的听证会视频，均可以通过以下链接和 CECC 网站访问。（附链接）
-
-
-
-> Witness testimony, statements by the [@CECCgov](https://twitter.com/CECCgov?ref_src=twsrc%5Etfw) Chairs and archived hearing video for yesterday's hearing "Techno-Authoritarianism: Platform for Repression in China and Abroad" can be accessed via the link below & on the CECC website. [https://t.co/VP2zr2OcNE](https://t.co/VP2zr2OcNE) [https://t.co/XTag2cVLdc](https://t.co/XTag2cVLdc) [pic.twitter.com/wy3tCy9vKy](https://t.co/wy3tCy9vKy)
-> — China Commission (@CECCgov) [November 18, 2021](https://twitter.com/CECCgov/status/1461384576941580292?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 彭帅表现出极大的勇气来挺身对抗 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click)，现在她失踪了。 我们必须确保她保持安全。 【转美联社报道：对中国网球明星电子邮件的质疑引发安全担忧】
-
-
-
-> Peng Shuai showed tremendous bravery by standing up to the CCP, and now she’s missing. We must ensure she remains safe.[https://t.co/iMHM8OKSZ3](https://t.co/iMHM8OKSZ3)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 18, 2021](https://twitter.com/MarshaBlackburn/status/1461382523989147648?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特: 今天很高兴与 (NBA球星) 埃内斯·坎特 [@EnesKanter](https://twitter.com/EnesKanter) 谈论我们与 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 可怕的侵犯人权和压迫进行的斗争。 每一个热爱自由的国家都必须强烈谴责共产主义中国对自由和民主的攻击，并就其罪行追究它的责任。
-
-
-
-> It was great to speak with [@EnesKanter](https://twitter.com/EnesKanter?ref_src=twsrc%5Etfw) today about our fight against Communist China’s horrific human rights abuses & oppression. Every freedom-loving nation must be strong in condemning Communist China’s attacks on freedom & democracy & holding it accountable for its crimes. [pic.twitter.com/5VXqTC26V7](https://t.co/5VXqTC26V7)
-> — Rick Scott (@SenRickScott) [November 18, 2021](https://twitter.com/SenRickScott/status/1461373677484888069?ref_src=twsrc%5Etfw)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

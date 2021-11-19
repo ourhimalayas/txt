@@ -2,41 +2,42 @@
 ---
 
 
-## 阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1676922/)
+## 焦点新闻摘要 2021年11月18日
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1676964/)
 
-作者：香草山金融部 – 闲聊钱币
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
+1. 沪综指早盘略收低传媒股领跌 “元宇宙”概念再遭中共官媒泼冷水
+2. 欧盟2025年组联合部队 印太应对中共国
+3. 中国华融拟剥离银行、金租牌照  称对公司主业经营无影响
 
 
+1.[沪综指早盘略收低传媒股领跌 “元宇宙”概念再遭中共官媒泼冷水](https://cn.reuters.com/article/china-shares-1118-noon-idCNKBS2I309X)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-1-6.jpg)
+路透上海11月18日 – 中共国股市沪综指周四早盘微收低。时隔一周中共官媒再度给热炒多日的”元宇宙”浇冷水，相关概念股重挫，并拖累传媒板块跑输大市。中美关系反复亦有所拖累市场情绪。
 
-路透社伦敦11月18日报道，中共国的大型电商阿里巴巴股价周四盘前暴跌10.3%。官方给出的理由是消费放缓，竞争加剧，以及监管部门的打击。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1005-1.jpg)
-这些理由看似都很有道理，但是并未揭开表面原因背后的深层含义。首先来说消费放缓。没错，老百姓买买买的动力的确是慢下来了。韭菜们已经快被连根拔起了，哪里还有能力自身消费？再来看看竞争加剧。从来商场如战场，竞争一直都存在着。凡是购买过淘宝商品的人几乎都知道淘宝上假冒伪劣商品泛滥，由此导致的客商纠纷从未断过。这样一个不以商品品质盛出的店家终将被淘汰。最后，监管部门的打击绝不是要维护法律的公平公正，而是要杀鸡取卵，给中共摇摇欲坠的经济打点儿鸡血。
+沪综指早盘跌0.1%，至3,532.81点，沪深300指数跌0.6%。深圳创业板指数跌0.4%，上证科创板50成份指数跌0.4%。
 
-马云被限制自由，蚂蚁金服募资暂停，阿里巴巴股价暴跌，这一切都只是中共内斗的冰山一角。
+传媒板块领跌，受”元宇宙”概念股重挫拖累。中证传媒指数早盘收跌2.8%
 
-（本文仅代表作者观点）
+2.[欧盟2025年组联合部队 印太应对中共国](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-11172021081602.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-2-5.jpg)2021 年 11 月 16 日，北约秘书长秘书长斯托尔滕贝格在布鲁塞尔欧洲理事会大楼参加欧盟外交部长和国防部长会议之前，与记者团进行了短暂会面。 美联社图片
+自由亚洲电台11月17日，欧洲联盟正考虑在2025年前成立一支可达五千人的联合部队。欧盟近日举行防长会议，为打造联合部队设定了路线图和时间表。欧盟联军将旨在补充北约而不是取而代之，在减少对美国依赖的同时，为在印太地区应对中共国提供更多可能性。
 
-参考来源：[阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%](https://www.reuters.com/business/chinas-alibaba-misses-quarterly-revenue-expectations-2021-11-18/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Nomura%20JP%2011-18-21%20Sponsorship&amp;utm_campaign=Nomura%20JP%2011-18-21%20Sponsorship)
+欧盟成员国的国防部长11月15日在布鲁塞尔举行了为期两天的会议，辩论名为“战略指南”的计划。根据草拟计划，欧盟考虑在2025年前成立一支5000人的联合部队，可不仰赖美国，应对各种危机，目标明年3月前敲定最终计划。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+欧盟各国代表16日也和北约秘书长斯托尔滕贝格(Jens Stoltenberg）见面，强调欧洲联军计划“并非是要和北约竞争”，“而是要对其进行补充”。
 
-编辑/校对/发稿：Hetangyuese
+3.[中国华融拟剥离银行、金租牌照  称对公司主业经营无影响](https://cn.reuters.com/article/china-huarong-bank-fin-rent-1118-idCNKBS2I30MT)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-3-4.jpg)
+路透北京11月18日 – 中国华融周四表示，转让华融金融租赁及华融湘江银行股权以及此前已披露的转让安排，是落实监管要求的具体举措；公司转让金融子公司股权对公司主业经营无影响，各项业务有序推进。
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+今年4月，中国华融因无法发布2020年年报而引发市场担忧，并搅动美元债市场。公司在8月中旬披露千亿亏损的同时，宣布引入中信集团等五家战投，并正式开启剥离非主业牌照的进程，陆续宣布拟转让华融证券、华融交易中心等资产。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+中共银保监会周二称，同意中国华融发行金额不超过700亿元（含）的金融债券。
 
+不管融创如何打消世界的疑虑，也无法改变其紧跟恒大倒塌的命运。
 
+审核校对：Barry Jack
+上传排版：F
 
  
 
