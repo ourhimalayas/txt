@@ -2,48 +2,20 @@
 ---
 
 
-## 参议院共和党人挑战拜登政府疫苗强制令
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1676740/)
+## 六中全会后习成众矢之的
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1676757/)
 
-作者：纽约香草山农场-蓝天大海
+所以说兄弟姐妹们，一定要记住啊！共产党六中全会以后，反而新中国联邦瞬间都可能得到机会干掉共产党。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-5.jpg)
+**【郭先生直播摘要】****2021.11.17 ****六中全会后习成众矢之的**
 
+**郭先生：**
 
+王岐山、孟建柱所有的江志成、马云系列， 所有中国企业家系列。 曾庆红， 那这些哪个人。包括傅(政华)， 你不要小看傅政华啊， 傅政华知道早晚有这一天的， 傅政华的下属逮着机会是一定要动手的， 孟建柱的兵力和实力绝不亚于习(近平)，逮着机会会动手的。所以说兄弟姐妹们，一定要记住啊！共产党六中全会以后，反而新中国联邦瞬间都可能得到机会干掉共产党，最重要现在大家都有一个目标——干习(近平)去。
 
+美国人相信，全世界相信，把习(近平)干掉，中国得平安，中共党内也相信，干掉习(近平) ，中国就解放，党内就解放，都自由。这就是历史以来，这就是为什么。在世界上看到这些像利比亚！像这个原来伊拉克呀！是不是？包括前罗马吉亚，发生各种这样的事情，包括前苏联。我相信在中国一定会发生，总体这个六中全会最大受益者是新中国联邦，最大受害者是中国在墙内的人民。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/参议员-.jpeg)WASHINGTON, DC – JUNE 9: Sen. Mike Braun (Photo by Stefani Reynolds-Pool/Getty Images)
-
-据《newsmax》11月17日报道，美国联邦参议院50名共和党人联合起来，在印第安纳州共和党参议员迈克·布劳恩 (Mike Braun) 的带领下，正式对拜登政府的疫苗强制令提出挑战。
-
-该强制令要求拥有一百人以上的企业员工必须接种新冠疫苗，或每周接受检测。 参议院共和党的议案已经提交给参议院卫生、教育、劳工和养老金委员会。宾夕法尼亚州共和党众议员弗雷德凯勒，此前在众议院也提出了类似的议案。
-
-布劳恩在一份声明中说，拜登总统的疫苗强制令是违宪的，是对个人医疗权利的侵犯，也是对八千万美国工人权利的侵犯。他表示将敦促参议院在12月初进行简单多数投票，通过这项反对议案。
-
-
-
-参考链接：
-
-[https://www.newsmax.com/politics/covid-19-business-vaccine-mandate-mike-braun/2021/11/17/id/1045100/](https://www.newsmax.com/politics/covid-19-business-vaccine-mandate-mike-braun/2021/11/17/id/1045100/)
-
-校对/发稿：有莫举名
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-4.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+视频剪辑：小腾腾 |听写：小蜜蜂 |翻译：Arthur  |校对：烟波浩淼 |视频制作+字幕：信正 |编辑&发布：断播
 
  
 

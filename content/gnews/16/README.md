@@ -2,26 +2,42 @@
 ---
 
 
-## 习拜会成果：中共放行美国 “人质”，美国遣返中共罪犯
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1676897/)
+## 阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1676922/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-435.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Frichclub.azureedge.net%2Farticle%2F20170508154246_w780.jpg&amp;imgrefurl=https%3A%2F%2Fwww.sinotrade.com.tw%2Frichclub%2Ffreshman%2F%25E4%25B8%2580%25E5%2588%2586%25E9%2590%2598%25E6%2590%259E%25E6%2587%2582%25E7%258F%25BE%25E8%25B2%25A8%25E4%25BA%25A4%25E6%2598%2593--5ea7edfd0d95d31484fde9e3&amp;tbnid=0L2Lo8R1jpYQ_M&amp;vet=12ahUKEwi57_-bxaP0AhXUGCsKHZP6CZgQMygDegUIARCzAQ..i&amp;docid=nn2w2YmIGD--EM&amp;w=780&amp;h=408&amp;itg=1&amp;q=%E4%BA%A4%E6%98%93&amp;ved=2ahUKEwi57_-bxaP0AhXUGCsKHZP6CZgQMygDegUIARCzAQ)
-美国政府透露一名被中共国限制离境多年的美国人已经回到美国，他在美中领导人本周视频会议前几小时被释放。
+作者：香草山金融部 – 闲聊钱币
 
-美籍华人丹尼尔·徐(Daniel Hsu，音译)被解除离境限制时，美国也驱逐了七名被判有罪的中共国公民，其中至少包括一名被中共国政府以欺诈罪名通缉的人。一位美国政府官员否认驱逐这些人是一种交换。
 
-美国官员证实，上周末徐已被中共国当局允许离开中共国。他在中共国未曾被定罪，但四年多来一直被限制离境。他在周一晚间回到家中，当时美国总统拜登与中共国国家主席习近平正在举行三个半小时的视频会议。美国称中共国以限制离境的方式非法扣留了人数不详的美国公民，徐就是其中之一。
 
-另外美国移民和海关执法局(ICE)表示，已将几名中共国公民送上回中共国的飞机，其中包括因欺诈和拍摄国防设施而被定罪的个人，以及两名试图闯入前总统特朗普的海湖庄园的女性。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
 
-“我们欢迎丹尼尔·徐回到美国，”上述美国官员称，并否认遣返这七个中共国人是与领导人会晤有关的交换行动的一部分。
 
-消息来源：**[独家：被中国限制离境数年的美籍华人在习拜会前获准返回美国](https://cn.reuters.com/article/exclusive-american-china-leaving-1118-th-idCNKBS2I4066?il=0)**
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-3.png)
+路透社伦敦11月18日报道，中共国的大型电商阿里巴巴股价周四盘前暴跌10.3%。官方给出的理由是消费放缓，竞争加剧，以及监管部门的打击。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1005-1.jpg)
+这些理由看似都很有道理，但是并未揭开表面原因背后的深层含义。首先来说消费放缓。没错，老百姓买买买的动力的确是慢下来了。韭菜们已经快被连根拔起了，哪里还有能力自身消费？再来看看竞争加剧。从来商场如战场，竞争一直都存在着。凡是购买过淘宝商品的人几乎都知道淘宝上假冒伪劣商品泛滥，由此导致的客商纠纷从未断过。这样一个不以商品品质盛出的店家终将被淘汰。最后，监管部门的打击绝不是要维护法律的公平公正，而是要杀鸡取卵，给中共摇摇欲坠的经济打点儿鸡血。
+
+马云被限制自由，蚂蚁金服募资暂停，阿里巴巴股价暴跌，这一切都只是中共内斗的冰山一角。
+
+（本文仅代表作者观点）
+
+参考来源：[阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%](https://www.reuters.com/business/chinas-alibaba-misses-quarterly-revenue-expectations-2021-11-18/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Nomura%20JP%2011-18-21%20Sponsorship&amp;utm_campaign=Nomura%20JP%2011-18-21%20Sponsorship)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

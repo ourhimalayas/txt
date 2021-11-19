@@ -2,54 +2,46 @@
 ---
 
 
-## 主流媒体抹黑抗议民众，避重就轻掩盖抗议真相
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1676992/)
+## 前工党议员投反对票，安德鲁斯大流行病法案面临夭折
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1677014/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/123456.jpg)图片来源： The Guardian
+**整理报道：文泓**
 
-**翻译：月映万川
-编辑：文泓**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/222222222.jpg)图片来源：ABCNEWS
 
-过去的一周，我们见证了媒体令人发指的虚伪嘴脸。墨尔本的和平抗议者们被诽谤为暴力极端分子，仅仅因为某些示威者在周六的游行中带着一些愚蠢的道具来反对州政府新的大流行法案。
+维多利亚州工党元老，前工党议员艾德姆·索缪里克表示，他将阻止安德鲁斯政府通过有争议的大[流行病法案](https://www.9news.com.au/national/coronavirus-update-victoria-chief-health-officer-to-no-longer-have-final-say-on-handling-of-pandemic/e4f971a5-c4c9-4183-85e0-78b2225a9ba8)，此举将破坏该立法在维多利亚州上议院的通过。
 
-毋庸置疑，任何鼓吹暴力的个人都应受到法律的严惩。但是，将反对严厉限制和激进的大流行病法案而走上街头和平抗议的维多利亚人等同于暴徒是完全不可接受的。
+索缪里克先生在去年因不当招聘指控而被工党抛弃后，现已返回州议会作为独立议员坐在交叉席位上。
 
-当极左派的活动家们焚烧自由党政客的肖像时，或者，这些左派人士以气候变化、妇女运动或者种族关系的名义制造混乱时，主流媒体却视而不见从来不会提出类似的担心，而政治家们也会对左派行为集体失声。
+“如果我继续担任安德鲁斯内阁的成员，我会认为该法案是个坏主意，因为它赋予政府太多权力”，他说：“我不会支持目前形式的这项法案，我会鼓励政府重新起草并进行更广泛的协商。”
 
-事实上，在议会大厦前因（如何）对待妇女而引发的抗议活动中，我们看到5根绞索的图像，而每根绞索都挂着被切断的男性生殖器。可笑的是，没有任何媒体和政治家站出来谴责，抗议者们要对所有男性进行大规模阉割。
+索缪里克先生投票反对该法案的决定，使得维州政府的计划陷入混乱，因为如果已经表示反对该法案的其他八名交叉议员也投反对票，该法案将无法通过。
 
-然而，上周六的墨尔本大游行就没有这么好运了。众多的媒体热衷于鼓吹工党和那三个支持工党的独立议员的偏见描述。他们把普通人描绘成了精神错乱的阴谋理论家。绿党领袖亚当·班特发帖说，“墨尔本街头的示威活动是边缘群体的可怕升级，而这些人正在与现实脱节。”
+如果该法案未能在紧急状态规定到期前的两周内通过议会审议，维州政府将无法执行任何大流行命令。
 
-而亚当·班特自己曾经发表过最应受谴责的鲁莽言论，包括称国防部长彼得·达顿为“恐怖分子”，这可以说是一种煽动行为。班特过去曾在一次集会上发言，而当时的联邦的一位部长克里斯托弗·派恩的真人大小的塑像也在那次集会中当众烧毁。
+目前，只有三名交叉议员表示支持该法案，包括绿党议员萨曼莎·拉特南、动物正义党的安迪·梅迪克和理性党领袖菲奥娜·帕滕。
 
-几个月来，看着自私自利的政客和懒惰、同流合污的媒体恶意诋毁反封锁和反大流行病法案的抗议者，我决定带着摄像师去参加星期六的大规模抗议活动，亲眼看看谁在游行，为什么游行，他们的真实人数是多少。
+“由于工党控制着两院，让议会无法再履行其审查职能，（现在）通过内阁和核心小组进行的内部审查和集体决策更为重要，”索米雷克先生说。
 
-首先，人群数量远比报道的要多。你只需看一下斯普润街和博格街的航拍图，就能看到抗议的规模。柯林斯街也挤满了抗议者，从斯普林街一直到伊丽莎白街。数万名、可能远远超过5万名维多利亚人，在寒冷和大雨中游行，反对安德鲁斯政府的大流行病法案，这显示了维州人的民心。
+“这让（州长）安德鲁斯成为唯一的决策者，这在复杂的现代政府中是不可接受的。”
 
-明知政客和媒体会恶毒地歪曲和抹黑，却还要游行，这对民众来说需要勇气。周六的大规模抗议活动是和平的，根据维多利亚州警方的说法：“尽管出席人数众多，但抗议活动是和平的，没有发生逮捕事件”。
+在受到律师和人权活动家的强烈批评后，维州政府周一宣布了对该法案的七项重要修正案，但一些批评者表示，这些变化还不够。
 
-一如既往，媒体只把注意力集中在几个拿着道具的蠢货身上，并对游行人数进行了低估。难怪在抗议者眼中，媒体被认为几乎与维州政府一样令人反感。
+维州[抗议者们已连续第四个晚上睡在议会的台阶上](https://www.9news.com.au/national/coronavirus-victoria-updates-covid-19-restrictions-to-ease-at-90-per-cent-vaccination-revealed/c889a05e-93a1-4168-8920-dd5ebedfa5f4)，反对大流行法案。
 
-与我交谈的每一位抗议者（我与几十位抗议者交谈过）都至少提到了以下两点：大流行病法案、封锁、精神健康影响、疫苗护照和媒体的错误报道。
+维州政府正在寻求推迟对该法案的辩论，以获得通过该法案所需的支持。
 
-“我们相信自由选择，而不是胁迫，这就是我们在这里的原因。”
+州长丹尼尔·安德鲁斯今天表示，大流行法是必要的，以确保一旦紧急状态权力于12月15日到期，规则可以继续实施。
 
-“我们恳求政府，我们所有的上议院议员，请投票反对。你们是民选代表，就要服务于人民。”
+新闻链接：[Victoria pandemic bill: Adem Somyurek has threatened to vote against proposed law (9news.com.au)](https://www.9news.com.au/national/former-labor-mp-adem-somyurek-vows-to-vote-against-victorias-pandemic-bill/69a59a81-07b0-4720-bd40-3e71b113bf77)
 
-“他们把我们说成是恶棍，把我们说成是罪犯，而我们想做的只是和平抗议。”
+*发布： 热锅小蚂蚁*
 
-与我交谈的大多数人都接种了两剂疫苗，但反对强制性疫苗要求。同样，这也是大多数报道所忽略的细微差别。
-
-**最引人注目的是这群人是如此的多样化：从祖父母到千禧一代，不同的种族和社会经济群体，但在反对安德鲁斯政府方面是一致的。**在短短几个小时内，我与来自罗马尼亚、德国、南非、委内瑞拉和加拿大的各种肤色的第一代移民进行了交谈。这并不是一些人想让你相信的白人至上主义者的游行盛宴。
-
-原文链接：[the media does not want Victorians to know the truth about protesters](https://www.heraldsun.com.au/subscribe/news/1/?sourceCode=HSWEB_WRE170_a&amp;dest=https%3A%2F%2Fwww.heraldsun.com.au%2Fnews%2Fopinion%2Frita-panahi%2Frita-panahi-the-media-doesnt-want-victorians-to-know-the-truth-about-protesters%2Fnews-story%2F3c830182ad532c05fb00c81b12b8518c&amp;memtype=anonymous&amp;mode=premium&amp;v21=dynamic-hot-test-score&amp;V21spcbehaviour=append)
-
-*发布：热锅小蚂蚁*
-
-**更多资讯，请关注：
+**更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
