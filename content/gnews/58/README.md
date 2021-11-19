@@ -2,38 +2,73 @@
 ---
 
 
-## 广发银行与蓝光地产内外勾结骗贷55亿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1676799/)
+## Covid：法国为什么不太可能严格控制未接种疫苗的人
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1676222/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-102.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fp5.itc.cn%2Fimages01%2F20210119%2F6508913ded6047e58b56e1bf621dd073.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F445506301_100001551&amp;tbnid=5oG1-HzUg9mtdM&amp;vet=12ahUKEwij_5S-v6P0AhVKidgFHa8ICEsQMygGegUIARCsAQ..i&amp;docid=nrh1o-3hi3OMiM&amp;w=1213&amp;h=803&amp;itg=1&amp;q=%E5%B9%BF%E5%8F%91%E9%93%B6%E8%A1%8C&amp;ved=2ahUKEwij_5S-v6P0AhVKidgFHa8ICEsQMygGegUIARCsAQ)
-近日，一封涉及55亿元巨额贷款的举报信在网络上流传。举报信称，广发银行昆明分行党委书记兼行长朱少彥，实名举报副行长保晓君和四川蓝光地产集团原董事长杨铿内外勾结，将已售出的房产进行违规抵押，从该行骗走55亿元的经营贷。
+翻译：香草山商业部 – 文锤
 
-在举报信中，举报人自称是广发银行昆明分行党委书记兼行长朱少彦，他对广发银行昆明分行副行长保晓君、四川蓝光地产集团原董事长杨铿进行举报。举报信称，蓝光花间溪谷花园（即花田国际）的1、2期房产早已售罄，但杨铿操纵旗下子公司——昆明蓝光滇池文化旅游发展有限公司，将该楼盘的产权窃取到手进行违规抵押贷款。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-“（以）我分行副行长保晓君为主的个别人居中策应杨铿，以‘总行领导的意旨’给同僚施压，推进这笔巨额非法抵押的经营贷通过。”举报信称，这笔55亿元的经营贷本是用于扶贫抗疫的库款。
 
-举报信提到，55亿元的经营贷刚一到蓝光集团账户，杨铿就以退股的名义提现、私吞了这笔巨款，并通过代理人分次支付当时价值12亿元的比特币给保晓君等人作为辛苦费。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-84.jpg)
-举报信中提及的四川蓝光地产集团，应该是指上市公司蓝光发展。公开资料显示，蓝光发展专注于房地产开发和经营，以住宅地产开发业务为核心。而举报信中的另一当事人——杨铿是蓝光发展的实际控制人，也曾是蓝光发展的董事长。今年6月初，杨铿辞去蓝光发展董事长一职，由其儿子杨武正接任。而在父子俩交棒前，蓝光发展的股权结构曾进行过调整。在调整前，杨铿直接持有蓝光发展的1.69亿股股份，占总股本的5.58%。
 
-据蓝光发展披露，其控股股东——蓝光投资控股集团有限公司（以下简称“蓝光集团”）通过协议转让方式受让上述股份。在调整后，蓝光集团持有公司股份17.70亿股，占58.31%；而杨铿的持股股份减至0股。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-57.jpg)
-截图自蓝光发展公告
 
-蓝光发展当时在公告中称，此次股权结构调整不会导致其控股股东和实际控制人发生变化，控股股东仍为蓝光集团，实际控制人仍为杨铿。当天，记者还多次致电杨铿，但电话均在响铃几声后跳出“正在通话中”的提示音，疑似被挂断。同时，记者以短信方式向杨铿发送相关采访问题，但截至发稿尚未收到回复。
 
-今年9月4日，蓝光发展曾发布公告称，由于其出现阶段性流动性紧张及债务风险，部分金融机构及合作方向公司提起了诉讼或仲裁，涉案金额累计约28.90亿元。在该公告披露的12起诉讼或仲裁中，有3起是关于广发银行昆明分行及该分行下第一支行。据红星资本局统计，这3起案件涉及的贷款本金共为10.09亿元，案件情况为“待开庭审理”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1458-1.png)[图片来源](https://www.lesechos.fr/economie-france/social/covid-pourquoi-un-confinement-des-non-vaccines-est-peu-probable-1364119)
 
-11月6日，蓝光发展再次发布公告称，由于其出现阶段性流动性紧张及债务风险，部分金融机构及合作方向公司提起了诉讼，本次新增诉讼涉案金额合计36.98亿元。截至11月18日收盘，蓝光发展的股价为1.68元/股，总市值50.99亿元。
+自周一以来，奥地利仅对未接种疫苗的人实施严格控制，而德国也在专门针对这一类别的人群考虑措施。在法国，这一想法正在发展，但政府实施的意愿正在放缓。
 
-消息来源:
+请注意，敏感文件。虽然疫情反弹引发了对新患者涌入医院的担忧，但许多人质疑政府避免这种情况的策略。法国人的疫苗接种覆盖率降低了7月到10月的第四波疫情，但这足够了吗？还是必须再次采取封城限制措施？
 
-[行长举报副行长帮地产商骗贷55亿?银行、蓝光均回应：假的，已报案](https://finance.sina.com.cn/stock/s/2021-11-18/doc-iktzqtyu8114508.shtml)
+目前，政府已将重点放在[加强剂量上，](https://www-lesechos-fr.translate.goog/economie-france/social/covid-hausse-des-rendez-vous-pour-une-troisieme-dose-de-vaccin-1361902?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui)这将从 12 月开始影响所有 50 岁以上的成年人，届时 65 岁以上的[人的健康状况将取决于这种新的注射剂。](https://www-lesechos-fr.translate.goog/economie-france/social/vaccination-contre-le-covid-les-nouvelles-regles-pour-le-rappel-et-la-3e-dose-1362589?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui)问题：部分人群仍未接种第一剂疫苗，这使他们面临更高的住院风险。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+**奥地利采取行动**
+
+因此，越来越多地提到针对未接种疫苗的人采取措施的可能性，而我们的一些欧洲邻国已经采取了行动。奥地利就是这种情况，自周一以来，200 万未接种疫苗的人除治疗、购物或运动外不再有权外出。额外的警察巡逻必须确保遵守这项措施，违反者将处以巨额罚款。
+
+面对目前席卷莱茵河的浪潮，德国正准备加强其健康限制措施。但与之前的不同，这些应该只涉及未接种疫苗的人，从而[隐含地控制](https://www-lesechos-fr.translate.goog/monde/europe/covid-vers-un-confinement-implicite-des-personnes-non-vaccinees-en-allemagne-1363784?_x_tr_sl=auto&amp;_x_tr_tl=zh-cn&amp;_x_tr_hl=zh-CN&amp;_x_tr_pto=nui)了这一类别。
+
+**法国“不在议程上”的话题**
+
+在法国，这个想法也在逐渐取得进展，即使政府暂时不想听到它。“这就是我们想要避免的，”布鲁诺·勒梅尔周日在 BFMTV 上说。LREM 代表的老板克里斯托夫·卡斯塔纳 (Christophe Castaner) 更加谨慎地宣称，总统“不希望”重新严格控制未接种疫苗的法国人。卫生部还解释说，这将发生政府不希望的，事实上的疫苗接种义务。并且目前还没有要求就该议题提供法律专业知识，因为它“不在议程上”。
+
+在现阶段，可以说政府没有可以实施的措施。事实上，政府将首先诉诸于卫生紧急状态，他有可能通过一项简单的法令做到这一点，直到 2022 年 7 月，之后才能在宪法委员会面前通过。
+
+**政治敏感**
+
+然而，尽管该措施具有歧视性，但审查制度远未实现。 “完美的平等从来没有被奉为神圣，总是有可能根据差异进行区分。例如，法国人和外国人、成人和未成年人”，巴黎第二大学名誉教授、法学俱乐部成员雅克-亨利·罗伯特表示。据专家介绍，“没有特别的障碍”似乎很明显。
+
+尽管如此，从政治角度来看，这样的决定似乎是危险的，在总统竞选开始之际，以及在政府监视社会紧张局势时，如同将牛奶放在火上烧。如果疫情的规模有可能再次使法国医院不堪重负，那么政府将会做出什么决定还有待观察。
+
+译者评论：法国之所以没有实施这样的强硬措施，根本上是因为马克龙要在明年4月的总统大选中争取连任，在这期间的任何社会动荡都对他不利。疫苗的中长期的灾难还未完全展现，法国老百姓的觉醒还有很长路要走！
+
+**原文阅读：**
+
+[Covid : pourquoi un confinement des non-vaccinés est peu probable | Les Echos](https://www.lesechos.fr/economie-france/social/covid-pourquoi-un-confinement-des-non-vaccines-est-peu-probable-1364119)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

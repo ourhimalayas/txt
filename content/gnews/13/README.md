@@ -2,33 +2,34 @@
 ---
 
 
-## 疫苗政策急变，澳大利亚总理180度急转弯!
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1678195/)
+## “朝阳群众”基层监管遍布中共国
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678229/)
 
-翻译：昔马千羽
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片12-edited.png)图片来源：网络
-澳大利亚总理Scott Morrison原本强推疫苗，
+作者：日本樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月18日，据中共媒体消息称，中共北京当局在一份文件中表示，未来将打造更多的“朝阳群众”、“西城大妈”等所谓“基层社会治理”的群众组织。中共声称，截至2023年，北京每个社区都需被这类监管群体覆盖。相关人士透露，这种伪民间组织现已遍布全国，并多与当地公安紧密合作，破坏、阻挠墙内民众为了维护自身权益所采取的行动，其中甚至出现维权人士被该组织成员跟踪、监视的现象。
 
-但今日突然发表讲话称强制疫苗是不对的，
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide4-7.jpeg)
 
-不打疫苗的各种限制也应该取消，
+有学者指出，自中共建政之初，“朝阳群众”这种延续演变至今的监控管制模式，本质是一种社会动员。这当中，“群众”未必是真群众，实为中共假借“群众举报”之名，来达到自身的某些目的。
 
-正当大家错愕不解之时，
+参考链接：
+1）[北京将打造更多”朝阳群众” “世界第五大情报组织”已遍布全中国](https://www.rfa.org/mandarin/yataibaodao/shehui/ac1-11182021052828.html)
+2）**[“朝阳群众”屡获战功 北京拟打造更多神秘组织](https://news.creaders.net/china/2021/11/18/2420890.html)**
 
-从知情人士传出原因是澳大利亚议会出现了宪政危机！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-原来自由党的两名议员和澳大利亚OneNation党两名议员要求总理必须介入处理强制疫苗政策，否则收回他们的议席。而一旦4名议员收回议席后，Morrison的政府就面临宪政危机（议会票数不够？）。当这种情况出现时，全国必须进行重新选举！所以Morrirson不得不被迫改变立场，做出180度大转弯！
+总编：文特
+编辑：小鹿妞妞
+校正/发稿：谐趣园
 
-Morrison是自由党党魁，他自己的政党都有2名议员叛变，说明他已经走得太远，离心离德。
-
-不得不说这次斗争反转，澳洲干得漂亮！澳洲的大起大落印证了早上A1党党魁说的鸡血内容，让我们静观澳洲情况变化！他们的变化将对其他西方国家产生深远影响。
-
-新闻链接：[https://www.dailymail.co.uk/news/article-10214777/Scott-Morrison-demands-states-like-Queensland-drop-Covid-19-vaccine-mandates.html](https://www.dailymail.co.uk/news/article-10214777/Scott-Morrison-demands-states-like-Queensland-drop-Covid-19-vaccine-mandates.html)
-
-编辑/发布：LILY
-
-20211119
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

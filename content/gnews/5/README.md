@@ -2,36 +2,73 @@
 ---
 
 
-## 美情报官员将战略目标聚焦中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678269/)
+## 医生护士谈拒绝强制接种的后果
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1678288/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月16日，美国现任和前任情报官员在举行会议时明确，美国未来的战略目标需要对准中共。
+编译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-12.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-2-7.png)9 月 13 日，一名护士在纽约曼哈顿 Foley 广场抗议强制接种疫苗（Enrico Trigoso/大纪元时报）
 
-前美国情报局首席副局长苏·戈登称，几十年来，美国情报界先是关注苏联，随后着重于中东恐怖主义，而现在的情报界已经进入了第三个情报纪元。对于美国而言，需要从反恐的沉迷中清醒过来，将目光转向中共。
+由于医疗、宗教或道德方面的反对，而无法接种 COVID-19 疫苗的卫生保健工作者，正在被其工作的医院开除。
 
-与此同时，现任和前任情报官员们纷纷表示，没有任何一个国家像现在的中共这样，正在全方位地监视美国。对此，前CIA参谋长拉里·菲弗也提到，中共先是通过人海战术收集数据，接着用人工智能对这些数据进行分析，最后有针对性地瞄准着美国。
+各个州和医院都已强制要求接种疫苗，拜登-哈里斯政府发布了一项紧急法规，要求在提供医疗保险和医疗补助服务的设施中工作的所有卫生保健工作者，在 1 月4日之前全面接种 COVID-19 疫苗。政府的授权，不允许测试选择或承认自然免疫这些一线工人有效的替代保护形式，其中许多人在大流行的高峰期被感染过。
 
-评论称，此次美国情报官员齐聚的安全会议表明，美国情报界正在把焦点定位于中共。
+布朗斯通研究所高级科学主任、《大巴林顿宣言》的合著者马丁·库尔多夫博士，此前告诉《大纪元时报》，这种方法不符合既定的科学知识，或者从医学的角度来看没有意义。他认为，**那些从**** COVID-19 ****感染中康复的人比接种疫苗的人具有“更强、更持久的免疫力”，并且是“最不可能感染”他人的人。疾病预防控制中心承认，没有自然免疫的人感染他人的记录**。
 
-参考链接：[As U.S. spies look to the future, one target stands out: China](https://www.npr.org/2021/11/16/1051170999/as-u-s-spies-look-to-the-future-one-target-stands-out-china)
+《大纪元时报》从全国各地的医护人员那里收集了[更多信息](https://www.theepochtimes.com/health-care-workers-speak-out-on-why-they-would-rather-lose-their-jobs-than-take-a-covid-19-vaccine_4065164.html)，说明他们不应遵守疫苗规定的许多原因，这些注射剂被美国一些最大的公司广泛宣传为“安全有效“。 他们在不同程度上审查被标记传播“医疗错误信息”的人，包括医生和护士。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+**“没有长期安全数据”**
 
-总编：飞虹
-编辑：文特
-校正/发稿：谐趣园
+托马斯·雷德伍德（Thomas Redwood）医生因未接种疫苗而被皮埃蒙特医疗(Piedmont)和威尔斯塔医疗(Wellstar) 解雇。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+他认为，“**根据目前的流行病学数据……如果我感染了**** COVID****，我有**** 98% ****到**** 99% ****的存活率**。而另一边，疫苗不良事件报告系统 (VAERS) 记录了超过 18,000 例死亡和超过 800,000 例不良事件……此外，我们没有长期安全性数据去确认能够广泛使用它们， 因为之前其他疫苗都要求有类似数据，更不用说创建疫苗授权了。**除了安全问题外，接种疫苗**** 4 ****到**** 6 ****个月后，疫苗效力已显示低于**** 50%****。**
+
+“疫苗规定，作为像我这样的医护人员的雇佣条款的目的，是防止医护人员感染患者。 鉴于我们所知道的接种疫苗的人免疫力下降，以及接种疫苗的人与未接种疫苗的人一样具有传染性的能力，**我看不出这种授权的逻辑**，因为它未能实现其既定目标。更令人担忧的是，**通过迫使医护人员在身体自主权或就业之间做出选择**，我们冒着造成护士、医生和其他维持医院运转的人员短缺的风险，”他说。
+
+**“健康人身上发生的奇怪、异常的事情”**
+
+洛妮·塔尔海默 (Loni Thalheimer) 已经当了 11 年的护士。
+
+“我在现在的医院工作了七 年。在过去的六年里，我担任麻醉后护理护士，并在科罗拉多州柯林斯堡 Poudre Valley 医院的科罗拉多大学健康大学担任了周末的护士长职位。
+
+“在社区完全获得疫苗大约两到三个月后，我开始看到很多人特发性癫痫发作、偏头痛、运动障碍、感觉异常甚至昏迷而接受 MRI 检查。
+
+“我说我们看到健康人身上发生的奇怪、异常的事情越来越多，每个人都拒绝回答我。 如果我们正在进行临床试验，**为什么不需要我们收集数据**？ 我很困惑，”塔尔海默说。
+
+7 月，她的雇主宣布，现在所有员工都必须接种疫苗，包括远程工作者。
+
+“我收到了医生的签名信，说我目前正在尝试怀孕，过去我有过严重的疫苗反应，不建议我接种。”
+
+她的豁免申请被拒绝，随后她于 10 月 28 日被解雇。
+
+“他们现在试图拒绝我是失业，说我是‘自愿的’……我现在没有工作，没有收入，医疗保险很糟糕，而且我还怀着孕，有一个四岁的孩子。”
+
+“有我经理的签名和我签名的地方，上面写着‘员工无法参加会议’，所以他们甚至不必当面解雇我。”
+
+**“我的合同被取消了”**
+
+希瑟·波普(Heather Pope )是俄克拉荷马州的一名注册护士，持有可在多州执业的护士执照。
+
+波普说：“在整个大流行期间，我在急诊科担任护士，但由于我拒绝为患者服用强生药而被取消合同，最终放弃了这份工作。”
+
+至少有 10 名在不同州被解雇的护士联系了《大纪元时报》， 他们中的许多人认为，他们在自己的职业中工作非常努力，并且在大流行期间遵守了所有规则。
+
+他们中的一些人伤心欲绝，**认为因身体自主权而解雇他们是冒犯性的，对他们以及他们的家人来说都会造成精神和经济上的压力。**
+
+**点评：简直不敢相信，这些都是真真切切****,****堂堂正正发生在美国的政府违宪暴政！然而主流媒体， 社交媒体审核这些血淋淋伤心欲绝的遭遇是“错误信息”！**
+
+**只有行动才能最终救到我们自己！拿起保护我们的宪法，让所有违法违宪的政府，企业媒体受到应有的惩罚！上天会救助自救之人！**
+
+**参考资料：**[theepochtimes][Doctors and Nurses Speak on the Consequences of Rejecting Mandatory Vaccination](https://www.theepochtimes.com/mkt_morningbrief/doctors-and-nurses-speak-on-the-consequences-of-rejecting-mandatory-vaccination_4099934.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-11-17&amp;mktids=07f44fa269cf6b2e5a5edd81cacdf557&amp;est=qSXS2XddUF1UOKbWBd1gI5qnUEEjSnZRCXtsyk76W1wP5hTBtbRjdv8Ar96hDqboGeoxvg%3D%3D)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
