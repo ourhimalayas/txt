@@ -15,104 +15,104 @@
 
 ---
 
-### [台湾用自己的名字在立陶宛开设代表处](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [奥地利或成为首个强制疫苗的西方国家](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [球员埃内斯·坎特抨击 NBA 特勒布朗·詹姆斯对中国的虚伪](/content/gnews/2/README.md)
+### [数百名接种两剂疫苗的加拿大士兵在新冠爆发期间被隔离](/content/gnews/2/README.md)
  ` MG FARM`
 
-### [北京以冠状病毒“风险”为由限制国内航班入京](/content/gnews/3/README.md)
+### [恒大将被从恒生中国企业指数中剔除](/content/gnews/3/README.md)
+ ` 纽约香草山MOS02`
+
+### [台湾用自己的名字在立陶宛开设代表处](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [比尔-盖茨和默克公司想干什么？](/content/gnews/4/README.md)
+### [球员埃内斯·坎特抨击 NBA 特勒布朗·詹姆斯对中国的虚伪](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [北京以冠状病毒“风险”为由限制国内航班入京](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [比尔-盖茨和默克公司想干什么？](/content/gnews/7/README.md)
  ` 秘密翻译组-原创组`
 
-### [第三位外国运动员在北京新冠检测呈阳性](/content/gnews/5/README.md)
+### [第三位外国运动员在北京新冠检测呈阳性](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵爆料 11.19：喜币如日中天，将成为未来的世界货币](/content/gnews/6/README.md)
+### [文贵爆料 11.19：喜币如日中天，将成为未来的世界货币](/content/gnews/9/README.md)
  ` 秘密翻译组-原创组`
 
-### [医生护士谈拒绝强制接种的后果](/content/gnews/7/README.md)
+### [医生护士谈拒绝强制接种的后果](/content/gnews/10/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美日欧续签盟约对抗中共贸易挑战](/content/gnews/8/README.md)
+### [美日欧续签盟约对抗中共贸易挑战](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [美情报官员将战略目标聚焦中共](/content/gnews/9/README.md)
+### [美情报官员将战略目标聚焦中共](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [“大棋盘”如何导致美国在阿富汗的败局](/content/gnews/10/README.md)
+### [“大棋盘”如何导致美国在阿富汗的败局](/content/gnews/13/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [这个国家已经没有勇气、善恶和真假](/content/gnews/11/README.md)
+### [这个国家已经没有勇气、善恶和真假](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [恒大近期续命措施难解困境](/content/gnews/12/README.md)
+### [恒大近期续命措施难解困境](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [习近平六中全会后的两个重大决策](/content/gnews/13/README.md)
+### [习近平六中全会后的两个重大决策](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [接种 Covid 疫苗的人说的 7 大谎言，无论他们是否知道](/content/gnews/14/README.md)
+### [接种 Covid 疫苗的人说的 7 大谎言，无论他们是否知道](/content/gnews/17/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [“朝阳群众”基层监管遍布中共国](/content/gnews/15/README.md)
+### [“朝阳群众”基层监管遍布中共国](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [比尔·盖茨、安东尼·福奇承认中共病毒疫苗无效](/content/gnews/16/README.md)
+### [比尔·盖茨、安东尼·福奇承认中共病毒疫苗无效](/content/gnews/19/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [疫苗政策急变，澳大利亚总理180度急转弯!](/content/gnews/17/README.md)
+### [疫苗政策急变，澳大利亚总理180度急转弯!](/content/gnews/20/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [德国准备对未接种疫苗者实施奥地利式的封锁](/content/gnews/18/README.md)
+### [德国准备对未接种疫苗者实施奥地利式的封锁](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [格蕾丝·孟在接受采访时抨击“怪物”中国](/content/gnews/19/README.md)
+### [格蕾丝·孟在接受采访时抨击“怪物”中国](/content/gnews/22/README.md)
  ` MG FARM`
 
-### [灾难正在以光的速度降临的](/content/gnews/20/README.md)
+### [灾难正在以光的速度降临的](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC大中华时事：中共称要惩罚立陶宛当局](/content/gnews/21/README.md)
+### [DC大中华时事：中共称要惩罚立陶宛当局](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [11/14/2021文贵先生大直播精选-Himalaya生态系统是去政府化的人类未来的金融系统](/content/gnews/22/README.md)
+### [11/14/2021文贵先生大直播精选-Himalaya生态系统是去政府化的人类未来的金融系统](/content/gnews/25/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [联合国阿富汗特使称该国正处于“人道主义灾难”的边缘](/content/gnews/23/README.md)
+### [联合国阿富汗特使称该国正处于“人道主义灾难”的边缘](/content/gnews/26/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [11/14/2021文贵先生大直播精选-未来三年数字货币将迎来爆发期](/content/gnews/24/README.md)
+### [11/14/2021文贵先生大直播精选-未来三年数字货币将迎来爆发期](/content/gnews/27/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [串珠457:疫苗灾难明年5月开始，打的人有一半会死](/content/gnews/25/README.md)
+### [串珠457:疫苗灾难明年5月开始，打的人有一半会死](/content/gnews/28/README.md)
  ` 郭爆料串珠`
 
-### [11月19日文贵大直播快讯——新中国联邦的货币是全球性的](/content/gnews/26/README.md)
+### [11月19日文贵大直播快讯——新中国联邦的货币是全球性的](/content/gnews/29/README.md)
  ` 澳喜特战旅Gnews`
 
-### [放弃爆料革命使命去躺平的那一刻起你就会失去一切](/content/gnews/27/README.md)
+### [放弃爆料革命使命去躺平的那一刻起你就会失去一切](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/12/2021文贵先生大直播精选-财富只是工具而不是信仰](/content/gnews/28/README.md)
+### [11/12/2021文贵先生大直播精选-财富只是工具而不是信仰](/content/gnews/31/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [中共金融危机压不住！20多家银行之后，交行也将关闭个人贵金属业务](/content/gnews/29/README.md)
+### [中共金融危机压不住！20多家银行之后，交行也将关闭个人贵金属业务](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共明确提出五大安全，坚决一条道走到黑](/content/gnews/30/README.md)
+### [中共明确提出五大安全，坚决一条道走到黑](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [澳大利亚新补给舰下水，为打脸中共国侵台作准备](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【全字幕+视频】文贵2021年11月17日直播](/content/gnews/32/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [联合国要求中共提供证据证明彭帅安好](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
 
 ### [富翁们通过独立的家族办公室拥有所有加密货币的4%](/content/gnews/34/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
