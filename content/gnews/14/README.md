@@ -2,37 +2,34 @@
 ---
 
 
-## “大棋盘”如何导致美国在阿富汗的败局
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1678262/)
+## 美日欧续签盟约对抗中共贸易挑战
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678280/)
 
-作者：泰勒·杜登
+作者：英国喜庄园 – I770775
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月17日，欧盟官方网站发布声明称，美国、日本和欧盟三地的贸易部长表示，愿意继续签订三方伙伴关系联盟，携手遏制中共扭曲贸易市场的不公平政策。
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/grand-chessboard-1456x900-1-edited.jpg)图片来源：网络
-与美国武装部队最终从阿富汗撤出后塔利班迅速重新掌权一样令人悬疑的是，在后果中接下来会发生什么的不确定性……
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-16.jpeg)
 
-许多人预测，俄罗斯和中国将介入以填补权力真空，并说服整容的塔利班谈判达成权力分享协议，以换取政治和经济支持，而其他人则担心陷入内战是不可避免的。
+声明提到，在11月30日于日内瓦举行的世界贸易组织部长级会议上，美国贸易代表戴琪、日本经济产业大臣狄生田光一、欧盟执委会副主席东布罗夫斯基斯将面对面商讨具体的工作计划与落实。
 
-尽管莫斯科和北京可能会通过推动喀布尔的包容性政府从美国的屈辱性撤退中受益，但必须首先将重新命名的普什图族团体作为指定的恐怖组织移除。 双方都不想看到阿富汗成为圣战的温床，因为伊斯兰分裂主义之前已经在高加索困扰俄罗斯，而中国仍处于新疆与维吾尔穆斯林分离主义者和与基地组织有联系的土耳其斯坦伊斯兰党持续的民族冲突之中。
+据了解，美、日、欧三边合作关系建立于川普政府时期，其宗旨在于，三地共同制定新的国际贸易规则，用以打击中共对贸易企业的变相补贴、挤压对手以及破坏公平的行为。
 
-在这一点上，每个人都认识到更严重的极端主义威胁不在于塔利班，而在于 ISIS Khorasan 或 ISIS-K 的出现，伊斯兰国附属机构将最近的几起恐怖袭击归咎于 8 月 26 日在阿富汗首都哈米德卡尔扎伊国际机场发生的爆炸事件 在美国缩编期间，它杀死了 13 名美国军人和 100 多名阿富汗人。
+参考链接：[美欧日三方续盟 应对中共贸易挑战](https://www.epochtimes.com/gb/21/11/18/n13383049.htm)
 
-三天后，美国指挥官下令对一辆他们声称在同一喀布尔机场引爆炸弹的车辆进行报复性无人机袭击。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-几天来，五角大楼错误地坚持认为空袭成功击退了两名 ISIS-K 武装分子，而一个卑鄙的企业媒体毫无疑问地重复了这些断言，包括编造了一份完全虚构的报告，称爆炸是由已经在内部的设备“二次爆炸”组成的。 用于恐怖活动的汽车。
+总编：Irene木木 
+编辑：Lakeman(文仁)
+校正/发稿：谐趣园
 
-两周后，美国中央司令部（CENTCOM）被迫道歉并承认这次袭击确实是一个“悲剧性错误”，误杀了十名无辜平民 —— 他们都是一个家庭的成员，包括七个孩子 —— 而没有伊斯兰国成员 在死者中。
-
-**评：**根据郭文贵先生的爆料，中共政权是塔利班恐怖政权的真正靠山，实事也证明了一切邪恶势力的背后都有中共的黑手。
-
-原文链接：
-
-[https://t.co/HbezS8c877](https://t.co/HbezS8c877)
-
-编辑/发布：LILY
-
-20211119
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
