@@ -2,30 +2,18 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月19日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1677937/)
+## 【文贵先生大直播PPT】加密货币与法币共存的时代已经到来
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1677977/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-1.png)
+撰稿：sotres，ILOVE战神，Benj1，now小哥
+美工：卡西娅，雷蒙
+审核：三票先生，顽童先生，政清
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-1-4.png)
-文章仅代表作者本人观点，与Gnews无关
+【2021年11月19日文贵先生大直播PPT：加密货币与法币共存的时代已经到来】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/21-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/25-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/111-2-2.jpg)
+* * *
 
-视频参看：2021.11.19早GTV新闻访谈
-
-[https://gtv.org/video/id=6197a649fcd196126f8cb4b9](https://gtv.org/video/id=6197a649fcd196126f8cb4b9)
-
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov.jpg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发稿：云起时
 
  
 
