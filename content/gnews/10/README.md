@@ -2,51 +2,32 @@
 ---
 
 
-## 美科学家获得资助尝试将新冠毒疫苗注入蔬菜让人食用技术
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1678969/)
+## GTV新闻访谈简报|2021年11月19日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1679081/)
 
-作者：日本樱花团-在远方
+作者：香草山翻译部
 
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-1.png)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1119text-SC.png)
+校对：Stay文苑
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-5.jpg)
+编辑：Stay文苑
 
+发稿：Stay文苑
 
+视频参看：[11.19  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61984ea0fcd196126f8d0b88)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-2-8.jpg)图片源自网络
-
-据报道，美国加州大学河滨分校的网站9月16日发表刊文指出，该校的科学家们已经获得了美国国家科学基金会50万美元的资助，用于开发将新冠疫苗注入蔬菜中让人食用的技术 。
-
-据悉，该技术的核心就是证明转基因植物可以产生足够的mRNA,通过向植物注入所需的剂量来替代疫苗接种。也就是说，该技术能让拒绝接种的人在无意识中，通过食物将毒疫苗吞进体内。 郭文贵先生在爆料中多次警告世界，冠状病毒是共产党的生化武器，而疫苗才是正真的杀人目标和工具。上述技术充分暴露了黑暗势力想尽各种办法屠杀人类的邪恶目的，而爆料革命和新中国联邦每时每刻，都在为全世界停止疫苗灾难而努力。
-
-参考链接：[https://gnews.org/zh-hans/1677012/](https://gnews.org/zh-hans/1677012/)
-
-总编：Irene木木
-校对/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-4.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://紐約香草山農場%20%20|%20GTV-香草山之聲%20紐約香草山農場GTV-%20|%20MOS%20TALK%20香草山訪談%20紐約香草山農場%20|%20GETTR%20紐約香草山農場%20｜YouTube%20歡迎加入香草山農場%20%20|%20Discord)
 
  
 
