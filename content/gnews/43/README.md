@@ -2,28 +2,21 @@
 ---
 
 
-## 恒大还想骗钱，拟配股筹资约27亿
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1679455/)
+## 文贵爆料11.19.2021 未来属于数字货币 喜币一统货币江湖
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1679546/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-105.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fupload.iheima.com%2F2020%2F0918%2F1600411361832.jpg&amp;imgrefurl=https%3A%2F%2Fwww.iheima.com%2Farticle-307787.html&amp;tbnid=oUg4-_ZQlOP6AM&amp;vet=12ahUKEwjo0K_Mrab0AhWLCN4KHYT2CtUQMyhjegQIARB0..i&amp;docid=vaqCsDPU1_DaPM&amp;w=1080&amp;h=717&amp;q=%E6%81%92%E5%A4%A7%E6%B1%BD%E8%BD%A6%20%E6%A8%A1%E5%9E%8B&amp;hl=zh-CN&amp;ved=2ahUKEwjo0K_Mrab0AhWLCN4KHYT2CtUQMyhjegQIARB0)
-恒大新能源汽车集团有限公司[0708.HK](https://cn.reuters.com/companies/0708.HK)周五在港交所发布公告称，将通过配售股份筹集约27亿港元，用于新能源汽车研发及生产制造。
+撰稿：回响
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-19-at-4.53.05-PM.png)图片来源：GTV & GETTR
+11月19日文贵大直播如期而至，喜币的意义再次成为首要话题。郭先生深入浅出地再次把货币发展的脉络清晰地刨析给公众。
 
-该公司在公告中表示，通过先旧后新方式，以每股3.00港元配售9亿股，预期配售事项的所得款项总额为约27亿港元。公司拟将收取的所得款专项用于集团新能源汽车的研发及生产制造，为恒驰新能源汽车顺利投产奠定基础。
+2017年郭先生爆料伊始就告诉世界，中共就是要打掉美元，从而夺取美国的全球霸主位置。他在当时就告诉中共高官刘彦平，自己将一统江湖。没有一个人懂，没有一个人信。如今中共副主席王岐山恍然大悟：谁都没想到文贵搞这一手，一统世界货币的江湖。
 
-公告还称，本次配售股份占于公告日期已发行股份总数约9.05%及认购事项完成后经扩大已发行股份总数约8.30%。此次配股价较该股周五收盘价3.53港元有15%的折让。
+郭先生用完全通俗的语言把法币特别是美元的历史由来给大家做了形象生动的回顾，并且通过美国历史上三大不允许的政治灾难（汽油、面包和天然气价格上涨限度），揭示出滞涨、通胀、通缩并发的后果，一定是经济大崩溃。未来法币将退出货币系统，全球的未来一定是数字货币。
 
-上周恒大汽车刚通过先旧后新方式，以每股2.86港元配售1.75亿股，筹资5亿港元，也是用于新能源汽车研发及生产制造。
+【原文链接】https://gtv.org/broadcast/watch/6197a194fcd196126f8cab92
 
-稍早，香港恒生指数公司公布季度变动，恒大将自12月6日起被剔出恒生中国企业指数。取而代之由信达生物制药补选成为恒生中国企业指数“新贵”。
+校对发布：Shifter
 
-消息来源:
-
-[恒大汽车拟配股筹资约27亿港元 用于新能源汽车的研发及生产](https://cn.reuters.com/article/evergrande-motors-financing-1120-idCNKBS2I502Q?il=0)
-
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

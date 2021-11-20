@@ -2,34 +2,31 @@
 ---
 
 
-## 日本要闻汇编11月20日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1680040/)
+## “猝死风”吹至芬兰球场 52岁足球教练突发心脏病去世
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1680162/)
 
-素材：东京樱花团丨GNEWS组
-![](https://lh5.googleusercontent.com/0MnmqTAnI_RTBCZa_dLNK25lxWPsaVBCJX1jz_QO_vS_yK2dVUI0i4PQxXnn12QzWZMBQ_aZDLytNFVDKvZEVjncSpy0Ier3_piAivRAJVTArjYbBR-wKHnL0vcQiy2t0k988xT1)[图片来源](https://china.kyodonews.net/news/2021/11/722247a0b44f.html)
-1、[**日本政府新设经济安全保障法制准备室**](https://china.kyodonews.net/news/2021/11/722247a0b44f.html)
+#### **撰稿：**日本东京方舟农场 JIHO
 
-日本政府19日在内阁官房设置了“经济安全保障法制准备室”，配备了来自财务省和经济产业省等的约50人，加速制定力争向明年例行国会提交的“经济安保推进法案”。在美中对立长期持续的形势下，法案将写入支援高科技技术开发、强化电子设备不可或缺的半导体等战略物资的供应链。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/66CFAAE1-402F-4EE7-919C-197CA224ABFB.jpeg)（图片来自MVLEHTI）
 
-2、[**防卫省称中国海军测量舰驶入日本领海**](https://china.kyodonews.net/news/2021/11/36ccf4891ca8.html)
+据芬兰《晚报》（Iltalehti） 周五（11月19日）报道，深受球迷喜爱的芬兰图尔库足球俱乐部（TPS）主教练吉姆·索米宁（Kim Suominen），周四在球队训练时突然癫痫发作，并于训练结束后的一个小时内迅速死亡，年仅52岁。TPS已经确认了这一消息。
 
-日本防卫省19日发布消息称，中国海军1艘测量舰17日晚在鹿儿岛县屋久岛和口永良部岛附近海域，驶入了日本领海。这是日方第4次确认并公布中国海军舰艇驶入领海，上次是2017年7月。
+吉姆·索米宁 曾担任P17队主教练十年，在芬兰和其它国家有着广泛的职业生涯，是该俱乐部的传奇人物。他的突然离世，令很多人深感震惊。
 
-3、[**日本政府正式敲定新一轮经济对策**](https://www3.nhk.or.jp/nhkworld/zh/news/333860/)
+根据芬兰媒体网站MVLEHTI的一篇报道，自 2021 年 6 月初以来，已有超过 75 名运动员因心脏病发作死亡或受伤，而冠状病毒（中共病毒）疫苗被怀疑与“猝死”的大幅增加有关。
 
-19日，日本政府召开临时内阁会议，以4项核心内容为基础，敲定了新一轮经济对策。这4项核心内容分别是：防止新冠疫情扩大；本着“与新冠病毒共存”的方针，重启经济社会活动，为今后的危机做好准备；实施开启未来社会的“新资本主义”；推进防灾、减灾工作，增强全国的抗灾能力。
+尽管TPS 青少年足球协会执行董事莉娜·艾伦（Leena Allen）表示，不知道索米宁的具体死亡原因，而索米宁是否接种了中共病毒疫苗，目前尚不清楚，但索米宁教练的猝死已引起民众对疫苗问题的担忧。
 
-4、[**美高官称日本明年主办Quad首脑会议**](https://china.kyodonews.net/news/2021/11/36eeb05c922c-quad.html)
+*参考链接：[https://mvlehti.net/2021/11/19/akillisen-kuoleman-ilmio-iski-myos-suomalaiskentalle-tpsn-valmentaja-sai-sydankohtauksen-treeneissa-ja-kuoli/](https://mvlehti.net/2021/11/19/akillisen-kuoleman-ilmio-iski-myos-suomalaiskentalle-tpsn-valmentaja-sai-sydankohtauksen-treeneissa-ja-kuoli/)*
 
-【共同社华盛顿11月20日电】美国国家安全委员会总管亚洲政策的印度太平洋事务协调员坎贝尔19日，关于日本、美国、澳大利亚和印度的“四边机制”首脑会议表示“就明年由日本主办，达成了共识”。根据开会时间，可能会成为总统拜登首次访日的契机。
+* * *
 
-5、[**武藏野市提交条例案允许外籍人士居民投票**](https://www3.nhk.or.jp/nhkworld/zh/news/333863/)
+*素材采编：JIHO*
 
-东京都武藏野市向19日起召开的市议会提交了一份常设型居民投票条例案，这一条例案实质上允许外国籍居民与日本籍居民以同样条件参加居民投票。这一条例案预计将于12月进行表决。
+*编辑：青衣青青*
 
-*编辑：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
