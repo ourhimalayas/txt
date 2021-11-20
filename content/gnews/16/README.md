@@ -2,53 +2,42 @@
 ---
 
 
-## 中共国在海湾地区的秘密港口工程损害美阿关系
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1679309/)
+## 反对强制疫苗和大流行病法，澳首府城市爆发大规模抗议
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1679317/)
 
-作者：MOS – 柳是多水土透
+**【雅典娜快讯】，紧贴时事脉搏**
 
+**整理报道：文泓**
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/今天.jpg)**图片来源：Aljazeera**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-5.jpg)
+作为反对强制疫苗接种规定和大流行立法的全国性抗议活动的一部分，大量的抗议者涌入了澳大利亚的主要首府城市中心城区。** **
 
+11月20日，成千上万的人在墨尔本、悉尼、阿德莱德和布里斯班举行“自由集会”。同期，支持疫苗接种的抗议者也举行了反集会。
 
+抗议人群已经在墨尔本中央商务区游行，抗议维多利亚州拟议的大流行病法案。抗议者举着写着“自由”的标语，穿着写着“我的身体，我的选择”的T恤在街上游行。
 
-消息人士透露，美情报机构今年春天得到情报，中共国在阿联酋一港口秘密建设军事设施。阿为美在中东地区最紧密的盟友之一，其领土内部署有可观的美军事资源。
+作为“自由集会”的一部分，成千上万的抗议者聚集在悉尼中心城区的海德公园。人们带着和披着澳大利亚和尤里卡（抗议）旗帜抵达现场，还可以听到抗议者在鼓声中高呼“自由”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/social.jpg)图片源自网络
+新南威尔士州警方宣布正在该地区进行“高能见度”（监督）行动。现场记者艾尔利·沃什说，悉尼中央商务区的许多人都在抗议强制疫苗规定和之前政府的封锁措施。
 
-拜登政府对此感到惊讶，并警告酋长国政府，中共国在其境内的军事存在威胁两国关系。在双方多次接触和美官员到访后的工程建设最近停止。 阿计划斥资230亿美元采购50架美F35战机和18架死神无人机，但似乎对中国工程的军事部分并不知情 。二战后英退出中东交由美国管理，之后数十年，美在该地区发挥了核心作用。中央司令部在中东部署军队，指挥作战，国务院协调建立以色列国，最近川普政府达成亚伯拉罕协议，正常化以色列和阿拉伯国家关系。
+大量自由集会抗议者已抵达布里斯班中央商务区，并向议会大厦游行。澳大利亚联合党领袖克莱夫·帕尔默也参加了布里斯班的抗议活动。现场记者里斯 亚历山德罗说，支持接种疫苗的抗议者也仍在该市。
 
- 近来中东出现在中美竞争前沿，中共国已经是石油第一大消费者，此外以疫苗外交，货币互换协议等方式企图扩张政治影响力 – 包含新近的军事驻扎尝试，此港口。项目为中海外军事计划一部分，其它动作含2017年东非吉布提基地；2019年与柬埔寨政府秘密协议，允许其使用军港；巴基斯坦和斯里兰卡允许中海军使用商业港口. 中共国已成为阿第一大贸易伙伴，同时阿政府允许华为参建基础设施，即使西方警告这将带来间谍和破坏等隐患。
+在过去一周墨尔本中央商务区已持续举行了针对维州拟议的大流行病法的[抗议](https://www.9news.com.au/national/melbourne-protests-large-crowds-pack-melbourne-cbd-in-pandemic-bill-lockdown-protest/4634ad29-d7db-44eb-9944-35c7f96ac746)，11月20日的集会继续这一主题。
 
-约一年前，美国安机构收到情报，据阿布达比约50英里的卡利法港，有可疑的中共国活动。港口由央企中远集团建设，并运行集装箱码头。初始情报并无结论，但今春秘密卫星图像显示，中共国开始建造某种军用设施，工地部分时间被遮挡以躲避监督，美官员最近视察了该工地 UAE与美存在广泛反恐合作，是第一个派遣军队随美进入阿富汗作战的国家。由于伊朗的威胁，UAE寻求与华盛顿签署军事协议，以保证酋长国受攻击时得到美军保护.
+人群抗议《2021年公共卫生和福祉修正案（流行病管理）》法案，该法案于10月通过了下议院。
 
- 郭先生曾提到，中共海外军事部署会遭到一系列打击，含军事和外交挫折。其它受关注的还有阿根廷的卫星基地，美佛州南部的移动监视设施等.
+由于人们抗议强制疫苗、封锁措施和现在的大流行法案，在过去的几个月内，澳大利亚各地都在举行这类的集会。
 
-参考链接：[https://www.wsj.com/articles/us-china-uae-military-11637274224](https://www.wsj.com/articles/us-china-uae-military-11637274224)
+新闻链接：[Melbourne Sydney protests: Large crowds gather across Australia to protest COVID-19 vaccines, pandemic legislation, coronavirus restrictions (9news.com.au)](https://www.9news.com.au/national/melbourne-sydney-protests-crowds-gather-across-australia-to-protest-covid-19-vaccines-pandemic-legislation-coronavirus-restrictions/ba8d6b3e-8b60-4a4b-bd4e-64e2f09a5186)
 
-.
-总编：文徬
+*发布：热锅小蚂蚁*
 
-校对/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-4.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

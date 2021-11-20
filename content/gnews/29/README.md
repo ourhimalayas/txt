@@ -2,30 +2,50 @@
 ---
 
 
-## 美国就菲律宾船遭中共国攻击发出警告，北京无视
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1679154/)
+## 展望2022，三点原因使澳币走弱
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1679162/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-16.jpg)美国就菲律宾船遭中共国攻击发出警告，北京无视 网络图片
-据美国之音11月20日报道，中共国海警船16日在斯普拉特利群岛（中共国称南沙群岛）的“第二托马斯浅滩”（中共国称仁爱礁）向菲律宾补给船发射水炮，阻止其为那里的游客运送补给物资。菲律宾对中共国的武力行动表示愤怒、谴责和抗议。美国国务院19日向中共国发出严正警告，称中共国的武装攻击将会招致美国的回应。
+**翻译：月映万川
+编辑：MSGZ**
 
-南中国海是全球最重要的商业通道，有丰富的渔业资源和巨大的石油和天然气储量，每年有数万亿美元的货物从此通过。中共国声称拥有南中国海域全部主权，周边其他国家都声称拥有部分主权。2016年，海牙仲裁法院否定了中共国对南中国海主权要求的法律依据。中共国对这一裁决不予理睬。
-
-中共一向无视国际法律或仲裁，因为中共的蓝金黄几乎腐蚀了全世界，中共自认为能够拿下周边国家，而西方的软弱和妥协助长了中共的狂妄和扩张。中共画个圈就把南中国海圈进了中共国的版图，美国的警告根本阻止不了中共的野心。必须以其人之道还治其人之身，用同样的武装行动消灭共产党，从此航运通畅，天下太平。
-
-新闻参考链接：[https://www.voachinese.com/a/US-warns-Beijing-it-will-defend-philippines-in-event-of-attack-20211119/6320129.html](https://www.voachinese.com/a/US-warns-Beijing-it-will-defend-philippines-in-event-of-attack-20211119/6320129.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/11.2-3.png)图片来源：ANZ Australian Dollar Exchange Rate Forecasts 2021-2022
 
 
-编辑：【英国伦敦喜庄园编辑部】
+**1.****贸易条件指数**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+一个国家每出口一个单位商品可以获得多少单位的进口商品，也就是这个国家的出口商品相对于进口商品的相对价格叫做贸易条件指数。澳元涨跌在历史上与这一指数很有渊源。2021年，贸易条件指数的上涨导致了澳元的上涨。
 
+由于中国经济增长预期放缓，包括，铁矿石，煤炭和天然气在内的大宗商品价格也预期在2022会大幅下滑。这就引发了澳元下跌的担忧。
 
+**2.****利率**
+
+第二个有关澳元汇率的因素就是相对利率。如果澳大利亚的利率比世界其它国家的利率高，这里重点是指美国，那么全球热钱就会涌入澳洲购买本地资产继而使澳元走高。反之亦同。
+
+虽然，目前澳洲的利率要比美国利率高，但是，这样的利率差既不是很明显也不会对投资人很有吸引力。
+
+另外，市场也有预期美国在2022年会提升自己的利率进而反超澳大利亚。这种预测是因为，美国市场目前经历着更高的通货膨胀，较低的失业率，但是工资增长速度很快。
+
+此外，堪培拉正试图重启大规模移民项目来拉低工资增长幅度，并且，不断下跌的大宗商品价格也打击了上扬的通货膨胀率。
+
+最后，澳大利亚房屋贷款市场正在经历着固定还款利率的上涨波动。这会给本地房地产市场降温，并打击消费者的信心。
+
+**3.****美元价值**
+
+第三点原因就是澳元与美元相比的相对价值。美国经济在后疫情时代的增长幅度要比任何发达国家的市场都大。由于通货膨胀，回报率和增长率都会被资本拉动，这也使美元汇率更加坚挺。
+
+随着拜登政府通过了明年财政刺激方案，这种强劲增长势头会保持5至6年，并且美国的优势地位会一直保持下去。
+
+反过来，强劲的美元往往会拖累新兴市场的发展和大宗商品价格，并加剧外。
+
+**新闻：**[Three reasons the Australian dollar could decline in 2022](https://www.news.com.au/finance/economy/australian-economy/three-reasons-the-australian-dollar-could-decline-in-2022/news-story/c9c431c595fa55e2cec000ab3ddd026f)
+
+发布：文武全才
+
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
