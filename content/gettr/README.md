@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/20/2021 5:03 AM (UTC)`
+
+11/19/2021 Miles Guo: I was wearing this black blazer when I met with Liu Yanping, and I told him that I would “dominate the sphere”; now everyone knows that the CCP seeks to internationalize RMB and launch the digital RMB (DCEP), while our cryptocurrency has become the king of digital currencies in the world<br/><br/>11/19/2021 文贵直播：文贵在2017年穿着这件黑色西装见了刘彦平 ，我当时告诉他我要“一统江湖”；现在大家可以看到，中共玩是“货币江湖“，而我们的数字货币已经成为了世界之王<br/>
+![img](https://media.gettr.com/group30/getter/2021/11/20/05/7514a1c7-a2f8-d225-7bdf-6d35a9c757e5/out.jpg)
+
+---
+
 `@miles 11/20/2021 2:22 AM (UTC)`
 
 11/19/2021 Miles Guo: Bruno Wu is bisexual and has a remarkable talent to make things up; all the fiat currencies are scams; by taking advantage of the disasters caused by the CCP virus and its vaccines, the CCP seeks to take down the US dollar so that it can internationalize RMB and achieve world domination<br/><br/>11/19/2021 文贵直播：吴征是双性恋，他在造假这方面的天赋异禀；所有的法币都是一场骗局；中共想通过病毒和疫苗的灾难干掉美元，从而达到人民币国际化和独霸世界的目的<br/>
@@ -297,13 +304,6 @@ Shop 'The Drop' at www.GFashion.com<br/><br/>@gfashion <br/>@ddnyc
 
 琵琶曲-《战》 #音乐灭共<br/><br/>《琵琶曲-战》是🇬🇧英喜庄园扎西卓玛 @jixiangdumu  战友亲自作曲、亲自演奏的一首原创琵琶曲。乐曲共分为六个乐章：【计出万死、运筹帷幄、双亲教导、百战不殆、庆功饮至、相偕归隐】<br/><br/>六个乐章描绘和模拟出 #爆料革命 从2017年1月26日郭先生首次直播 ，到未来灭共胜利之后的一个相对完整的过程（未来胜利属于模拟部分）。爆料革命的酸甜苦辣、艰苦艰辛、斗智斗勇、不卑不亢、决不放弃等不凡的经历都通过这首抑扬顿挫的琵琶曲渗透出来。<br/><br/>视频制作于2020年10月，一年之后更新其中部分素材再次发布，分享给所有爆料革命和新中国联邦的战友们，一起回忆属于我们每位战友的不平凡的四年。我们不仅仅是历史的见证者，更是时代的创造者！✊✊✊
 ![img](https://media.gettr.com/group39/origin/2021/11/16/11/39/dbd1bbc4-8eda-1991-0164-0486b30e5a82/out.jpg)
-
----
-
-`@miles 11/16/2021 3:05 AM (UTC)`
-
-这是哪个战友做的呀，太棒了！衷心的，感谢万分的感谢！🙏🙏🙏🙏🙏🙏🙏
-![img](https://media.gettr.com/group7/getter/2021/11/16/03/05/07008e53-31f6-9a8b-f480-9ff6f0097ac8/out.jpg)
 
 ---
 

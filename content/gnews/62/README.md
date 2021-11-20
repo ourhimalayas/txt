@@ -2,19 +2,43 @@
 ---
 
 
-## 班农先生被起诉事件意味着美国媒体大重启
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1670770/)
+## 郭文贵先生高度肯定 班农注定成为美国政治教父级的人物
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1671284/)
 
-#### 文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+作者：澳喜农场-在远方
 
-11月14日，郭文贵先生在GTV大直播再次指出：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
 
-班农先生被起诉事件意味着美国媒体大重启。没有对疫苗的异议是由于美国媒体一半以上的广告费来自大药厂。没有反中共的话题是因为与其息息相关。新中国联邦宣言人班农先生因大媒体无视真相和对他的封杀，会更加提高其声誉，成了世界的焦点，美国政治风向标。新中国联邦当然是受益者。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/野猫*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1114-3.jpg)
+在11月14日的大直播中，郭文贵先生高度肯定，班农无疑会成为美国的政治教父。美国建国以及华盛顿有史以来，班农是因为国会起诉而被逮捕的第一人。但是，在美国被逮捕，很快就会被释放，跟中共国完全不一样。 美国司法部起诉班农先生的背景，始于美国众议院特别委员会，调查1月6日美国国会大厦的暴动。班农事件将使共和党保守派更加清醒，并开始反击。同时也会让大家意识到，中共对美国国会和司法的渗透之深。国会在民主党的把控下，美国选举不可能公正。 郭先生说，班农先生被逮捕，将导致美国媒体大重启的到来。班农先生一定是美国未来影响深远的，政治上教父级的人物。未来对班农先生的评价，一定是正面的。
+
+新闻来源：[https://gnews.org/zh-hans/1663784/](https://gnews.org/zh-hans/1663784/)
+
+编辑：Kathy文艺
+
+总编：AN
+
+上传：浪迹天涯
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-3.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
