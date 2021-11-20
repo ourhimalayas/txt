@@ -15,104 +15,104 @@
 
 ---
 
-### [有声|找到生命真相（一）：我们为什么要来到这个世界，我们要去向何方？](/content/gnews/1/README.md)
- ` MOSREC`
-
-### [因医疗系统禁止对COVID-19患者使用伊维菌素和其他药物，诺福克医生提起诉讼](/content/gnews/2/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [参议院议员blackburn认为应该就CCP-virus 对中共以及大科技公司追责](/content/gnews/3/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [参议院议员marsha认为应该就CCP-virus 对中共以及大科技公司追责](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [班农先生的重点事件](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [文贵爆料 11.20：房峰辉曾警告美国：小心生化武器，中共要在中东建军事基地](/content/gnews/6/README.md)
- ` 秘密翻译组-原创组`
-
-### [全球邪恶势力制造疫苗大灾难的动机是什么](/content/gnews/7/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [班农先生的政治理念](/content/gnews/8/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共经济倒塌牵动欧美，经济大崩溃习欲趁机攻台湾](/content/gnews/9/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [喜币如日中天，将成为未来的世界货币](/content/gnews/10/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [2021年11月20日文贵先生直播大雨围城速记（第一部分）](/content/gnews/11/README.md)
- ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
-
-### [有俄罗斯撑腰胆子越来越大！中共海军测量舰驶入日本领海](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [疯狂印钞必然导致各主权国家货币贬值，未来三年将迎来数字货币的爆发期](/content/gnews/13/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [欧盟组建联合部队应对中共](/content/gnews/14/README.md)
- ` GTV新闻访谈`
-
-### [美国国会支持台湾参与国际刑警组织](/content/gnews/15/README.md)
- ` GTV新闻访谈`
-
-### [球星坎特持续抨击中共人权问题 批詹姆斯“金钱高于道德”](/content/gnews/16/README.md)
+### [彭帅失踪引发世界网坛关注](/content/gnews/1/README.md)
  ` 日本东京方舟农场`
 
-### [受核心主控芯片制约！中共5G小基站产业硬不起](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [荷兰鹿特丹爆发反对疲苗护照的暴乱](/content/gnews/2/README.md)
+ ` 丁过`
 
-### [有声|中共国地产的冬天降临，10月份连续第四个月土地销售收入下滑](/content/gnews/18/README.md)
+### [有声|找到生命真相（一）：我们为什么要来到这个世界，我们要去向何方？](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [有声|直播武汉疫情的张展狱中获新闻自由勇气奖](/content/gnews/19/README.md)
- ` MOSREC`
+### [因医疗系统禁止对COVID-19患者使用伊维菌素和其他药物，诺福克医生提起诉讼](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [全球禁止的农药在日本市场泛滥成灾](/content/gnews/20/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [参议院议员blackburn认为应该就CCP-virus 对中共以及大科技公司追责](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [麦克库罗医生提告医疗期刊公司](/content/gnews/21/README.md)
- ` GTV新闻访谈`
+### [参议院议员marsha认为应该就CCP-virus 对中共以及大科技公司追责](/content/gnews/6/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [日本外务大臣表达对港台新疆人权的关切](/content/gnews/22/README.md)
- ` GTV新闻访谈`
+### [班农先生的重点事件](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|日本政府拟定在12月底之前敲定增加驻日美军军费，以应对中朝威胁](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [中共新能源大跃进，中企争夺美洲锂矿资源](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|美情报官员将战略目标聚焦中共](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [DC每日热点1120](/content/gnews/26/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [11/19/2021 文贵直播：任何一个国家政府批准新中国联邦国防军购买武器和参加培训等同于认可了我们的主权资格](/content/gnews/27/README.md)
- ` 秘密翻译组-北美组`
-
-### [中共病毒及其疫苗全球超限战中的典型案例（二十五）](/content/gnews/28/README.md)
- ` 纽约香草山MOS01`
-
-### [文贵视角:喜联储一统江湖](/content/gnews/29/README.md)
+### [文贵爆料 11.20：房峰辉曾警告美国：小心生化武器，中共要在中东建军事基地](/content/gnews/8/README.md)
  ` 秘密翻译组-原创组`
 
-### [焦点：福奇要对6个月至5岁婴幼儿下毒手！](/content/gnews/30/README.md)
- ` 军迷wilson`
+### [全球邪恶势力制造疫苗大灾难的动机是什么](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [有声|新中国联邦教育组将规划儿童网络教学方案](/content/gnews/31/README.md)
+### [班农先生的政治理念](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共经济倒塌牵动欧美，经济大崩溃习欲趁机攻台湾](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [喜币如日中天，将成为未来的世界货币](/content/gnews/12/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [2021年11月20日文贵先生直播大雨围城速记（第一部分）](/content/gnews/13/README.md)
+ ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
+
+### [有俄罗斯撑腰胆子越来越大！中共海军测量舰驶入日本领海](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [疯狂印钞必然导致各主权国家货币贬值，未来三年将迎来数字货币的爆发期](/content/gnews/15/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [欧盟组建联合部队应对中共](/content/gnews/16/README.md)
+ ` GTV新闻访谈`
+
+### [美国国会支持台湾参与国际刑警组织](/content/gnews/17/README.md)
+ ` GTV新闻访谈`
+
+### [球星坎特持续抨击中共人权问题 批詹姆斯“金钱高于道德”](/content/gnews/18/README.md)
+ ` 日本东京方舟农场`
+
+### [受核心主控芯片制约！中共5G小基站产业硬不起](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|中共国地产的冬天降临，10月份连续第四个月土地销售收入下滑](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [11/20/21 香港快讯 浸大生执导动画未获批电检 电影节放映取消](/content/gnews/32/README.md)
- ` 英喜-粵語組`
+### [有声|直播武汉疫情的张展狱中获新闻自由勇气奖](/content/gnews/21/README.md)
+ ` MOSREC`
 
-### [中共病毒及其疫苗全球超限战中的典型案例（二十四）](/content/gnews/33/README.md)
+### [全球禁止的农药在日本市场泛滥成灾](/content/gnews/22/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [麦克库罗医生提告医疗期刊公司](/content/gnews/23/README.md)
+ ` GTV新闻访谈`
+
+### [日本外务大臣表达对港台新疆人权的关切](/content/gnews/24/README.md)
+ ` GTV新闻访谈`
+
+### [有声|日本政府拟定在12月底之前敲定增加驻日美军军费，以应对中朝威胁](/content/gnews/25/README.md)
+ ` MOSREC`
+
+### [中共新能源大跃进，中企争夺美洲锂矿资源](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|美情报官员将战略目标聚焦中共](/content/gnews/27/README.md)
+ ` MOSREC`
+
+### [DC每日热点1120](/content/gnews/28/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共病毒及其疫苗全球超限战中的典型案例（二十五）](/content/gnews/29/README.md)
  ` 纽约香草山MOS01`
+
+### [文贵视角:喜联储一统江湖](/content/gnews/30/README.md)
+ ` 秘密翻译组-原创组`
+
+### [焦点：福奇要对6个月至5岁婴幼儿下毒手！](/content/gnews/31/README.md)
+ ` 军迷wilson`
+
+### [有声|新中国联邦教育组将规划儿童网络教学方案](/content/gnews/32/README.md)
+ ` MOSREC`
+
+### [11/20/21 香港快讯 浸大生执导动画未获批电检 电影节放映取消](/content/gnews/33/README.md)
+ ` 英喜-粵語組`
 
 ### [2021/11/19 墙内世界](/content/gnews/34/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
