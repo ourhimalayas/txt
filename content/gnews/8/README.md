@@ -2,26 +2,44 @@
 ---
 
 
-## 再见，廉价药
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1679871/)
+## 加拿大为学生发放新冠病毒快速检测包
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1679899/)
 
-撰稿人：东南
-![](https://assets.gnews.org/wp-content/uploads/2021/11/廉价药.png)
-（图片来源网络）
+作者：香草山教育部- Naughty（文行）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+加拿大安大略省正准备在寒假前给该省的每个学童发放包含五份新冠抗原快速检测试剂的检测包，希望在假期期间筛查儿童并防止受感染的儿童在1月份重新入学。
 
-据中共国家药品监督管理局此前发布的公告（2021年第132号），在注销的药品中，包括了安乃近片、土霉素片、马来酸氯苯那敏片等。其中兰州和盛堂制药股份有限公司和甘肃中天金丹药业有限公司生产的安乃近片（0.5g）均注销药品注册证书。这也意味着，按照新版《药品管理法》规定，两家药企的上述药品不得生产或者进口、销售和使用。来看看因不良反应遭多国禁用注销的理由，实在难以恭维。注销安乃近注射液等品种，并要求安乃近片对说明书进行修订，明确禁用于18岁以下青少年儿童、妊娠晚期妇女。截至11月16日，药监局网站数据显示，安乃近生产批号众多，共有批准文号854个，其中包括安乃近片、复方青蒿安乃近片、重感灵片及重感灵胶囊，涉及生产企业近千家，其中不乏石药集团欧意药业、国药控股星鲨制药(厦门)、山东新华制药、哈药集团制药六厂等知名药企。目前京东、淘宝、拼多多、叮当快药等各大健康产品相关app，发现多个平台已下架人用安乃近片，平台在售安乃近片、注射液均为兽用。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-39.jpg)图片来源：CTVNEWS
 
-相信我们很多年纪稍大的战友对于这款药都不会陌生，在国内安乃近曾是我们小时候常用的“退热神药”，无论是感冒还是咳嗽都吃它，基本上家家户户都有。小时候发烧了每次父母给掰开半片吃下去，几天功夫病也就好了。
+加拿大安大略省卫生官员日前表示，12月中旬的某个时候，学校将发布1亿份快速抗原新冠测试试剂——足以满足该省数百万公立学校学生的检测——并指示他们从12月开始，在寒假期间每三四天使用一次。任何抗原检测呈阳性的人都必须参加确认性的PCR COVID-19测试。
 
-话说回来以前生病时普通发热就吃这药，实在不行上医院的话退热针一打也能下去。但现在呢在CCP的医疗产业化制度下，发烧先去验血拍片，挂水都是三天起，说不上名字但明显贵很多的药再吃上个十天半个月，要我说“安乃近”这药最大的缺点就是太便宜了几块钱一大盒，吃完几小时就退烧。纳了闷是不是这帮“专家”觉得如果病都给几块钱的药都治好了，那好几百的吊瓶卖给谁去啊？不注销这些平民药品，医院怎么扩建，医生怎么提成，药品，设备，住院床位…不消灭CCP每一个环节都会是一根根吸在老百姓身上的“抽血管”。
+安大略省卫生官员表示，目前参与测试是自愿的，任何不参加快速测试的儿童都被允许在1月份返回学校。
 
-文章参考：
-https://tech.sina.cn/2020-03-20/detail-iimxyqwa1841483.d.html
-图源片来： 网络
+卫生局首席医务官表示，随着冬天的到来，越来越多的人进入室内参加节日活动，他预计病例数会更高，快速测试将给人们提供额外的保护。
 
-发稿：MG4
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
+安大略省政府官员表示，政府还将在新冠病毒高传播和疫苗接种率较低的地区设置移动测试站点。
 
+（本文内容仅代表作者个人及原文观点）
+
+原文链接：
+
+[https://toronto.ctvnews.ca/mobile/ontario-sending-students-home-with-five-rapid-covid-19-antigen-tests-for-winter-break-1.5671232?utm\_source=ground.news&utm\_medium=referral](https://toronto.ctvnews.ca/mobile/ontario-sending-students-home-with-five-rapid-covid-19-antigen-tests-for-winter-break-1.5671232?utm_source=ground.news&amp;utm_medium=referral)
+
+校对/发稿：飞虹
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 
