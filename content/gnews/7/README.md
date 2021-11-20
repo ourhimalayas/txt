@@ -2,41 +2,59 @@
 ---
 
 
-## 反对强制疫苗和大流行病法，澳首府城市爆发大规模抗议
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1679317/)
+## 病理学家发现，疫苗抑制免疫力，易感染HIV、疱疹
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1679355/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Cole-at-AAPS-2-1024x548-1.png)
 
-**整理报道：文泓**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/今天.jpg)**图片来源：Aljazeera**
 
-作为反对强制疫苗接种规定和大流行立法的全国性抗议活动的一部分，大量的抗议者涌入了澳大利亚的主要首府城市中心城区。** **
+图片来源：idahocapitalsun.com
 
-11月20日，成千上万的人在墨尔本、悉尼、阿德莱德和布里斯班举行“自由集会”。同期，支持疫苗接种的抗议者也举行了反集会。
 
-抗议人群已经在墨尔本中央商务区游行，抗议维多利亚州拟议的大流行病法案。抗议者举着写着“自由”的标语，穿着写着“我的身体，我的选择”的T恤在街上游行。
+#### 编译：小红帽
 
-作为“自由集会”的一部分，成千上万的抗议者聚集在悉尼中心城区的海德公园。人们带着和披着澳大利亚和尤里卡（抗议）旗帜抵达现场，还可以听到抗议者在鼓声中高呼“自由”。
+最近，**我们已经警告过，新冠病毒（Covid-19）疫苗接种导致急性伤害的趋势，包括猝死。**但另一件要记住的事情是，在大多数完全接种疫苗的人中，正在发生一个更微妙的缓慢伤害过程。
 
-新南威尔士州警方宣布正在该地区进行“高能见度”（监督）行动。现场记者艾尔利·沃什说，悉尼中央商务区的许多人都在抗议强制疫苗规定和之前政府的封锁措施。
+这种缓慢伤害过程的影响可能不会立即显现，但随着时间的推移，它们会变得更加明显，因为**接种新冠疫苗会削弱免疫系统，使其更容易被其他病毒感染。**
 
-大量自由集会抗议者已抵达布里斯班中央商务区，并向议会大厦游行。澳大利亚联合党领袖克莱夫·帕尔默也参加了布里斯班的抗议活动。现场记者里斯 亚历山德罗说，支持接种疫苗的抗议者也仍在该市。
+瑞安·科尔（Ryan Cole）博士是一名获得董事会认证的病理学家，他经营着爱达荷州最大的独立诊断实验室。他观察到接种过新冠疫苗的人的健康状况严重下降。
 
-在过去一周墨尔本中央商务区已持续举行了针对维州拟议的大流行病法的[抗议](https://www.9news.com.au/national/melbourne-protests-large-crowds-pack-melbourne-cbd-in-pandemic-bill-lockdown-protest/4634ad29-d7db-44eb-9944-35c7f96ac746)，11月20日的集会继续这一主题。
+科尔博士在他的视频中警告说：“在人们打了这些疫苗后，我们看到这些重要的杀伤性T细胞（这种你希望身体里存在的细胞）出现了非常令人担忧的锁定式低水平状态。”这几乎是一种逆转的艾滋病毒。
 
-人群抗议《2021年公共卫生和福祉修正案（流行病管理）》法案，该法案于10月通过了下议院。
+“感染艾滋病毒后，你就会失去你的辅助T细胞，你的CD4细胞。在接种疫苗后的病毒中，我们看到的是你的杀伤性T细胞，即CD8细胞的减少。而CD8细胞是做什么的？它们会控制所有其他病毒”。
 
-由于人们抗议强制疫苗、封锁措施和现在的大流行法案，在过去的几个月内，澳大利亚各地都在举行这类的集会。
+在实验室里，科尔博士说他看到疱疹家族的病毒，以及带状疱疹、单核细胞和人类乳头瘤病毒（HPV）在女性宫颈活检和子宫颈抹片上急剧上升。(相关：科尔博士还说，子宫内膜癌自1月份以来上升了2000%）。
 
-新闻链接：[Melbourne Sydney protests: Large crowds gather across Australia to protest COVID-19 vaccines, pandemic legislation, coronavirus restrictions (9news.com.au)](https://www.9news.com.au/national/melbourne-sydney-protests-crowds-gather-across-australia-to-protest-covid-19-vaccines-pandemic-legislation-coronavirus-restrictions/ba8d6b3e-8b60-4a4b-bd4e-64e2f09a5186)
+“除此之外，还有一种传染性的肿块，被称为传染性软疣，”科尔说。“你需要什么来控制它？你需要CD8杀伤性T细胞。我看到50岁以上的人中，出现这种小肿块和皮疹的人数增加了20倍。”
 
-*发布：热锅小蚂蚁*
+“它是无害的，但它告诉我的是这些接种过疫苗的人的免疫状态。我们实际上是在削弱这些人的免疫系统。”
+
+#### **新冠疫苗使人们的身体更容易患癌症**
+
+**科尔博士在他的实验室里观察到的另一件事是癌症的大规模激增。**他警告说，自从新冠疫苗首次推出以来，某些类型的癌症现在是正常平均值的20倍。
+
+“现在最令人担忧的是，身体中的这些类型的免疫细胞存在一种模式，可以控制癌症，”科尔博士说。“嗯，自1月1日以来，在实验室里，我看到子宫内膜癌比我每年看到的增加了20倍–增加了20倍，我一点都不夸张。”
+
+“我在年轻的病人中看到了侵袭性黑色素瘤。通常情况下，我们及早发现这些黑色素瘤，它们是薄的黑色素瘤。在过去一两个月里，我看到厚的黑色素瘤在急剧上升。”
+
+科尔博士说，正在发生的情况是，被完全接种疫苗的人的身体正在被重新调整为一个被削弱的免疫状态。这种重新调整是否是永久性的，还有待观察。
+
+他警告说：“我已经看到了早期的信号，我们正在将免疫系统修改为一个弱化的状态。”
+
+“也许免疫系统会再生，这些比率会回升。但是谁在研究它？而且长期试验在哪里–两个月，四个月，这个资料被锁定了多长时间？我们不知道。”
+
+换句话说，这是一个大规模的篡改免疫系统的实验，更有可能对那些选择参与其中的人产生破坏性和永久性影响。
+
+**参考新闻：** [Mayo Clinic-trained doctor says covid “vaccines” are locking in suppressed immunity, making people more prone to HIV, HPV, shingles, herpes – NaturalNews.com](https://www.naturalnews.com/2021-11-19-covid-vaccines-suppressed-immunity-hiv-hpv-herpes.html)
+
+***发布：小红帽***
 
 **更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

@@ -2,31 +2,29 @@
 ---
 
 
-## 有声|美科学家获得资助尝试将新冠毒疫苗注入蔬菜让人食用技术
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1679335/)
+## 中共说“不知道”网球名将彭帅的事
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1679373/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据报道，美国加州大学河滨分校的网站9月16日发表刊文指出，该校的科学家们已经获得了美国国家科学基金会50万美元的资助，用于开发将新冠疫苗注入蔬菜中让人食用的技术 。
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-86.png)
+图片来源：www.epochtimes.com
 
-据悉，该技术的核心就是证明转基因植物可以产生足够的mRNA,通过向植物注入所需的剂量来替代疫苗接种。也就是说，该技术能让拒绝接种的人在无意识中，通过食物将毒疫苗吞进体内。 郭文贵先生在爆料中多次警告世界，冠状病毒是共产党的生化武器，而疫苗才是正真的杀人目标和工具。上述技术充分暴露了黑暗势力想尽各种办法屠杀人类的邪恶目的，而爆料革命和新中国联邦每时每刻，都在为全世界停止疫苗灾难而努力。
+美联社11月19日报道，中共国外交部周五坚持说其不知道外界对彭帅之事的不同看法，这位网球职业运动员在指控前中共高官性侵她的事实之后便消失了。
 
+外交部发言人赵立坚告诉记者说：“这不是外交问题，我不知道这事。”
 
+中共政府一直否认关于彭帅两周前指控的事，这位35岁的前顶尖网球运动员曾于2013年赢得英国温布尔顿女子双打冠军以及2014年法国杯比赛，但在明年2月4日将在北京举行的冬奥会运动上完全不出现。
 
-文字版原文：[美科学家获得资助尝试将新冠毒疫苗注入蔬菜让人食用技术](https://gnews.org/zh-hans/1678969/)
+白宫新闻秘书珍·莎琪周五说：“中共政府应该提供独立的和可验证的证据证明她的下落以及她的安全。”
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+美国副国务卿温迪·席曼发推说：“我们深切地担心网球运动员彭帅，她看起来是失踪了，我们要求中共提供独立的，可验证的依据证明她的下落，世界任何地方的妇女都有权利报告受到性侵并获得严肃的调查。”
 
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+女子网球协会主席史蒂夫·西蒙对中共媒体提出疑问，说他本周看到的以彭帅的名义发出的电子邮件试图告诉他彭帅是安全的而且关于她的指控不是真的，他认为这封电子邮件不是彭帅发出的，该电子邮件由中共国环球电视网北美分台（CGTN）通过推特发出，而这个CGTN实质上是中共国中央电视台（CCTV)的国际分支。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+中共国情报委员会办公室对电子邮件的问题，西蒙的疑问以及彭帅的状况均无反应。
+
+##### **新闻来源： **[China says ‘not aware’ of tennis player Peng Shuai issue](https://apnews.com/article/sports-china-media-social-media-beijing-3c2a5e60f1412760e59594bd138ecdc8)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

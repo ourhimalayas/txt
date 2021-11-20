@@ -2,79 +2,33 @@
 ---
 
 
-## 华夏视角系列之二：写在1120，值得纪念的一天
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1679270/)
+## 有声|阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1679336/)
 
-撰稿:东京樱花团/华夏小哥
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+路透社伦敦11月18日报道，中共国的大型电商阿里巴巴股价周四盘前暴跌10.3%。官方给出的理由是消费放缓，竞争加剧，以及监管部门的打击。
 
-本系列将以个人的视角、随笔的形式与大家分享笔者追随爆料革命的点点滴滴。
+这些理由看似都很有道理，但是并未揭开表面原因背后的深层含义。首先来说消费放缓。没错，老百姓买买买的动力的确是慢下来了。韭菜们已经快被连根拔起了，哪里还有能力自身消费？再来看看竞争加剧。从来商场如战场，竞争一直都存在着。凡是购买过淘宝商品的人几乎都知道淘宝上假冒伪劣商品泛滥，由此导致的客商纠纷从未断过。这样一个不以商品品质盛出的店家终将被淘汰。最后，监管部门的打击绝不是要维护法律的公平公正，而是要杀鸡取卵，给中共摇摇欲坠的经济打点儿鸡血。
 
-2017年郭文贵先生“横空出世”，“419”美国之音“断播门”令世界哗然，逆增上缘令爆料革命广泛传播。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-147.png)
-笔者并没有看到419直播实况，第一次看文贵先生直播应该是爆料黄燕的小手的那一次。刚开始有些看热闹的想法，但是看了郭文贵先生2017年5月29号端午节之日直接爆料王岐山的直播之后就认定，这个人肯定是要干大事的，就认定这个世界上能够灭共的只有郭文贵先生一个人。
-
-从2017年初郭文贵先生在社交媒体爆料开始，到今天的喜币上市。从最早的“郭七条”到现在的“唯真不破，正道主义”。从“一人战一国”到现在的“喜马拉雅农场”遍布世界。笔者认为爆料革命大概分为以下三个阶段：
-
-1. 战神横空出世、一人战一国（大概从2017年开始到2018年底）。
-2. 伪类丛生，群魔乱舞（大概从2019初到2020年初）。
-3. 世界各地成立农场，推出各种G系列（2020年初到现在）。
+马云被限制自由，蚂蚁金服募资暂停，阿里巴巴股价暴跌，这一切都只是中共内斗的冰山一角。
 
 
-其中标志性的有以下几个最重要的时间点：
 
-1.2017年419美国之音断播门。
+文字版原文：[阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%](https://gnews.org/zh-hans/1676922/)
 
-2.2018年1120发布会。
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-3.2020年64新中国联邦成立。
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-4.2021年11月1日喜币上市。
-
-从郭文贵先生2017年出来爆料开始很多事情都发生了变化，海航倒了，王健死了，孙立军被抓了，马云被控制了。不变的是爆料革命节节胜利，新中国联邦越来越强，战友们越聚越多。
-
-七哥在1120发布会上首次提出的灭共手段和方法：
-
-1.推倒防火墙；
-
-2.停止投资共产党；
-
-让共产党无法蓝，无法金。从根上除掉共产党。七哥的战略实在是太高了。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-40.png)
-2021年11月19日亚洲各地爆发了近600年一遇的月全食，月亮都变成了红色。在中华传统里天有异象代表人间要发生大的动荡。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-24.png)
-至此今年的1120赋诗一首，以做纪念。
-
-《1120天灭中共》
-
-一轮明月当空照
-
-千古一贵灭共潮
-
-中华大地终有望
-
-紧跟七哥莫迷茫
-
-七哥身边的伪类也是层出不穷，从最早的郭宝盛、唐柏桥、火鸡龚，到后期的鸡腿潘、九指妖，路大脑袋、蛇妖闫，真是你方唱罢我登场，魑魅魍魉令人恍。只要我们坚定自己的信仰，唯真不破，紧跟七哥，哪怕再多的妖魔鬼怪出来都会被战神降服，最后的胜利肯定属于新中国联邦人。
-
-参考资料：
-
-[1.坚信七哥的具体原因](https://gtv.org/video/id=5eac5510a5a52740f30577e6)
-
-[2.419断播](https://www.youtube.com/watch?v=C_N5IHj0Fy8)
-
-[3.529爆料王岐山](https://www.youtube.com/watch?v=uoMlhusFIkY&amp;t=1s)
-
-[4.1120发布会](https://www.youtube.com/watch?v=0mNIkyNq0Aw&amp;t=552s)
-
-[5.64建国](https://www.youtube.com/watch?v=tamPSHpac0A&amp;t=51686s)
-
-[6.日本国立天文台](https://www.nao.ac.jp/astro/sky/2021/11-topics03.html)
-
-[7.600年一遇月食](http://news.hsw.cn/system/2021/1119/1397142.shtml)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

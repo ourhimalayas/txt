@@ -2,24 +2,33 @@
 ---
 
 
-## 害怕人民币暴跌，中共进一步收紧外汇管制
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1679292/)
+## 有声|参议院共和党人挑战拜登政府疫苗强制令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1679337/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/ab2b4350923550452d661afdba8e5319.jpeg)[图片来源](https://www.followme.com/baike/2017.html)
-五位消息人士周五表示，中共国全国外汇市场自律机制最新倡议银行对自营交易设置上限，落实风险中性理念。他们透露，外汇市场自律机制倡议银行对自营交易量同比增速超过50%或自营/代客交易量比例高于15倍的，可触发进一步分析调查。不过他们没有提及该倡议何时生效。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据《newsmax》11月17日报道，美国联邦参议院50名共和党人联合起来，在印第安纳州共和党参议员迈克·布劳恩 (Mike Braun) 的带领下，正式对拜登政府的疫苗强制令提出挑战。
 
-一外资行交易员认为，倡议的目的还是希望不要“炒汇”。今年中共国外贸延续去年以来的高景气，其中10月出口同比增速优于预期，贸易顺差为845.4亿美元，创下纪录新高。1-10月贸易顺差超5,100亿美元，巨量的顺差带来充足的美元流动性，客盘结汇需求不减，人民币持续偏强，哪怕是11月美指加速上行时。
+该强制令要求拥有一百人以上的企业员工必须接种新冠疫苗，或每周接受检测。 参议院共和党的议案已经提交给参议院卫生、教育、劳工和养老金委员会。宾夕法尼亚州共和党众议员弗雷德凯勒，此前在众议院也提出了类似的议案。
 
-全国外汇市场自律机制本周召开会议强调，金融机构要加强自身外汇业务风险管理，既不能帮助企业“炒汇”，自身也不宜“炒汇”。汇率风险中性理念是中共外管局多次提及的话题，并提醒市场主体应适应人民币汇率双向波动的常态。
+布劳恩在一份声明中说，拜登总统的疫苗强制令是违宪的，是对个人医疗权利的侵犯，也是对八千万美国工人权利的侵犯。他表示将敦促参议院在12月初进行简单多数投票，通过这项反对议案。
 
-消息来源:
 
-**[独家：中国外汇市场自律机制倡议银行对自营交易设上限 超出可触发分析调查–消息](https://cn.reuters.com/article/china-fx-proprietary-trading-1120-idCNKBS2I501Q?il=0)**
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+文字版原文：[参议院共和党人挑战拜登政府疫苗强制令](https://gnews.org/zh-hans/1676740/)
+
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

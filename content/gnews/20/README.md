@@ -2,51 +2,79 @@
 ---
 
 
-## 展望2022，三点原因使澳币走弱
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1679162/)
+## 华夏视角系列之二：写在1120，值得纪念的一天
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1679270/)
 
-**翻译：月映万川
-编辑：MSGZ**
+撰稿:东京樱花团/华夏小哥
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/11.2-3.png)图片来源：ANZ Australian Dollar Exchange Rate Forecasts 2021-2022
+本系列将以个人的视角、随笔的形式与大家分享笔者追随爆料革命的点点滴滴。
+
+2017年郭文贵先生“横空出世”，“419”美国之音“断播门”令世界哗然，逆增上缘令爆料革命广泛传播。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-147.png)
+笔者并没有看到419直播实况，第一次看文贵先生直播应该是爆料黄燕的小手的那一次。刚开始有些看热闹的想法，但是看了郭文贵先生2017年5月29号端午节之日直接爆料王岐山的直播之后就认定，这个人肯定是要干大事的，就认定这个世界上能够灭共的只有郭文贵先生一个人。
+
+从2017年初郭文贵先生在社交媒体爆料开始，到今天的喜币上市。从最早的“郭七条”到现在的“唯真不破，正道主义”。从“一人战一国”到现在的“喜马拉雅农场”遍布世界。笔者认为爆料革命大概分为以下三个阶段：
+
+1. 战神横空出世、一人战一国（大概从2017年开始到2018年底）。
+2. 伪类丛生，群魔乱舞（大概从2019初到2020年初）。
+3. 世界各地成立农场，推出各种G系列（2020年初到现在）。
 
 
-**1.****贸易条件指数**
+其中标志性的有以下几个最重要的时间点：
 
-一个国家每出口一个单位商品可以获得多少单位的进口商品，也就是这个国家的出口商品相对于进口商品的相对价格叫做贸易条件指数。澳元涨跌在历史上与这一指数很有渊源。2021年，贸易条件指数的上涨导致了澳元的上涨。
+1.2017年419美国之音断播门。
 
-由于中国经济增长预期放缓，包括，铁矿石，煤炭和天然气在内的大宗商品价格也预期在2022会大幅下滑。这就引发了澳元下跌的担忧。
+2.2018年1120发布会。
 
-**2.****利率**
+3.2020年64新中国联邦成立。
 
-第二个有关澳元汇率的因素就是相对利率。如果澳大利亚的利率比世界其它国家的利率高，这里重点是指美国，那么全球热钱就会涌入澳洲购买本地资产继而使澳元走高。反之亦同。
+4.2021年11月1日喜币上市。
 
-虽然，目前澳洲的利率要比美国利率高，但是，这样的利率差既不是很明显也不会对投资人很有吸引力。
+从郭文贵先生2017年出来爆料开始很多事情都发生了变化，海航倒了，王健死了，孙立军被抓了，马云被控制了。不变的是爆料革命节节胜利，新中国联邦越来越强，战友们越聚越多。
 
-另外，市场也有预期美国在2022年会提升自己的利率进而反超澳大利亚。这种预测是因为，美国市场目前经历着更高的通货膨胀，较低的失业率，但是工资增长速度很快。
+七哥在1120发布会上首次提出的灭共手段和方法：
 
-此外，堪培拉正试图重启大规模移民项目来拉低工资增长幅度，并且，不断下跌的大宗商品价格也打击了上扬的通货膨胀率。
+1.推倒防火墙；
 
-最后，澳大利亚房屋贷款市场正在经历着固定还款利率的上涨波动。这会给本地房地产市场降温，并打击消费者的信心。
+2.停止投资共产党；
 
-**3.****美元价值**
+让共产党无法蓝，无法金。从根上除掉共产党。七哥的战略实在是太高了。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-40.png)
+2021年11月19日亚洲各地爆发了近600年一遇的月全食，月亮都变成了红色。在中华传统里天有异象代表人间要发生大的动荡。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-24.png)
+至此今年的1120赋诗一首，以做纪念。
 
-第三点原因就是澳元与美元相比的相对价值。美国经济在后疫情时代的增长幅度要比任何发达国家的市场都大。由于通货膨胀，回报率和增长率都会被资本拉动，这也使美元汇率更加坚挺。
+《1120天灭中共》
 
-随着拜登政府通过了明年财政刺激方案，这种强劲增长势头会保持5至6年，并且美国的优势地位会一直保持下去。
+一轮明月当空照
 
-反过来，强劲的美元往往会拖累新兴市场的发展和大宗商品价格，并加剧外。
+千古一贵灭共潮
 
-**新闻：**[Three reasons the Australian dollar could decline in 2022](https://www.news.com.au/finance/economy/australian-economy/three-reasons-the-australian-dollar-could-decline-in-2022/news-story/c9c431c595fa55e2cec000ab3ddd026f)
+中华大地终有望
 
-发布：文武全才
+紧跟七哥莫迷茫
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+七哥身边的伪类也是层出不穷，从最早的郭宝盛、唐柏桥、火鸡龚，到后期的鸡腿潘、九指妖，路大脑袋、蛇妖闫，真是你方唱罢我登场，魑魅魍魉令人恍。只要我们坚定自己的信仰，唯真不破，紧跟七哥，哪怕再多的妖魔鬼怪出来都会被战神降服，最后的胜利肯定属于新中国联邦人。
 
+参考资料：
+
+[1.坚信七哥的具体原因](https://gtv.org/video/id=5eac5510a5a52740f30577e6)
+
+[2.419断播](https://www.youtube.com/watch?v=C_N5IHj0Fy8)
+
+[3.529爆料王岐山](https://www.youtube.com/watch?v=uoMlhusFIkY&amp;t=1s)
+
+[4.1120发布会](https://www.youtube.com/watch?v=0mNIkyNq0Aw&amp;t=552s)
+
+[5.64建国](https://www.youtube.com/watch?v=tamPSHpac0A&amp;t=51686s)
+
+[6.日本国立天文台](https://www.nao.ac.jp/astro/sky/2021/11-topics03.html)
+
+[7.600年一遇月食](http://news.hsw.cn/system/2021/1119/1397142.shtml)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

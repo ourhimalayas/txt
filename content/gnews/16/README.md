@@ -2,42 +2,53 @@
 ---
 
 
-## 台湾无视中共国反对，在立陶宛开设办事处
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1679224/)
+## 中共国在海湾地区的秘密港口工程损害美阿关系
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1679309/)
 
-据《路透社》记者Ben Blanchard 于2021年11月18日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-476-e1637382922621.png)2021 年6月30日，台湾桃园，台湾国旗迎风飘扬。图片来源：路透社/ Ann Wang
-路透台北11月18日电—**无视北京方面的强烈反对，台湾周四在立陶宛开设了事实上的大使馆，这是台湾的外交突破，北京再次表达了它的愤怒并警告了后果。**
-
-今年8月，中共要求这个波罗的海国家撤回其驻北京大使，并表示将召回中共驻维尔纽斯大使。此前，台湾宣布在维尔纽斯的办事处将更名为台湾驻立陶宛代表处。
-
-台湾在欧洲和美国的其他办事处使用台北这个城市的名称，避免提及台湾本身，因中共声称台湾是自己的领土。
-
-中共已加紧努力让其他国家限制与台湾的联系，或完全断绝与台湾的交往。 与台湾建立正式外交关系的国家只有15个。
-
-立陶宛决定在台湾开设自己的代表处也激怒了中共当局，尽管尚未确定具体日期。
-
-台湾外交部表示，开设办事处将为台湾与立陶宛的关系“开辟一条新的、充满希望的道路。在半导体、激光和金融科技等行业存在巨大的合作潜力。”。
-
-“台湾将基于我们共同的价值观，珍惜并促进这种新的友谊。”
-
-中共国外交部表示，此举是对中国内政的“粗暴干涉”，“立陶宛方面对由此产生的一切后果负责，我们要求立陶宛方面立即纠正错误决定。”。
-
-**与立陶宛在台湾的争端也吸引了美国，美国向维尔纽斯提供支持以顶住中国的压力。**
-
-**许多其他国家也在台北设有事实上的大使馆，包括立陶宛的几个欧盟成员国、英国、澳大利亚和美国。**
-
-原文连接：[https://www.reuters.com/world/china/taiwan-opens-office-lithuania-brushing-aside-china-opposition-2021-11-18/?taid=619627abdc16960001750f2c&utm\_campaign=trueAnthem:%20Trending%20Content&utm\_medium=trueAnthem&utm\_source=twitter&s=09](https://www.reuters.com/world/china/taiwan-opens-office-lithuania-brushing-aside-china-opposition-2021-11-18/?taid=619627abdc16960001750f2c&amp;utm_campaign=trueAnthem:%20Trending%20Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter&amp;s=09)
-
-翻译：洛杉矶盘古农场 – 比格渣餐厅老板の娘
-
-校对&编辑：洛杉矶盘古农场 – 小象的奶瓶
+作者：MOS – 柳是多水土透
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-5.jpg)
+
+
+
+消息人士透露，美情报机构今年春天得到情报，中共国在阿联酋一港口秘密建设军事设施。阿为美在中东地区最紧密的盟友之一，其领土内部署有可观的美军事资源。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/social.jpg)图片源自网络
+
+拜登政府对此感到惊讶，并警告酋长国政府，中共国在其境内的军事存在威胁两国关系。在双方多次接触和美官员到访后的工程建设最近停止。 阿计划斥资230亿美元采购50架美F35战机和18架死神无人机，但似乎对中国工程的军事部分并不知情 。二战后英退出中东交由美国管理，之后数十年，美在该地区发挥了核心作用。中央司令部在中东部署军队，指挥作战，国务院协调建立以色列国，最近川普政府达成亚伯拉罕协议，正常化以色列和阿拉伯国家关系。
+
+ 近来中东出现在中美竞争前沿，中共国已经是石油第一大消费者，此外以疫苗外交，货币互换协议等方式企图扩张政治影响力 – 包含新近的军事驻扎尝试，此港口。项目为中海外军事计划一部分，其它动作含2017年东非吉布提基地；2019年与柬埔寨政府秘密协议，允许其使用军港；巴基斯坦和斯里兰卡允许中海军使用商业港口. 中共国已成为阿第一大贸易伙伴，同时阿政府允许华为参建基础设施，即使西方警告这将带来间谍和破坏等隐患。
+
+约一年前，美国安机构收到情报，据阿布达比约50英里的卡利法港，有可疑的中共国活动。港口由央企中远集团建设，并运行集装箱码头。初始情报并无结论，但今春秘密卫星图像显示，中共国开始建造某种军用设施，工地部分时间被遮挡以躲避监督，美官员最近视察了该工地 UAE与美存在广泛反恐合作，是第一个派遣军队随美进入阿富汗作战的国家。由于伊朗的威胁，UAE寻求与华盛顿签署军事协议，以保证酋长国受攻击时得到美军保护.
+
+ 郭先生曾提到，中共海外军事部署会遭到一系列打击，含军事和外交挫折。其它受关注的还有阿根廷的卫星基地，美佛州南部的移动监视设施等.
+
+参考链接：[https://www.wsj.com/articles/us-china-uae-military-11637274224](https://www.wsj.com/articles/us-china-uae-military-11637274224)
+
+.
+总编：文徬
+
+校对/发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-4.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
 
  
 

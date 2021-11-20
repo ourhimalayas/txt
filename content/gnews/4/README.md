@@ -2,33 +2,58 @@
 ---
 
 
-## 有声|阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1679336/)
+## 滞胀&amp;通胀促成引发美政局更迭的油价、面包和气电上涨
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1679375/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-路透社伦敦11月18日报道，中共国的大型电商阿里巴巴股价周四盘前暴跌10.3%。官方给出的理由是消费放缓，竞争加剧，以及监管部门的打击。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3767839309260446910_副本.png)
+据[2019年11月19日文贵大直播：国际市场资金短缺；数字货币、法币及经济膨胀所带来的危害；疫苗灾难最新数据及病毒解药的进展](https://gtv.org/video/id=6197a194fcd196126f8cab91)时间点49：41——
 
-这些理由看似都很有道理，但是并未揭开表面原因背后的深层含义。首先来说消费放缓。没错，老百姓买买买的动力的确是慢下来了。韭菜们已经快被连根拔起了，哪里还有能力自身消费？再来看看竞争加剧。从来商场如战场，竞争一直都存在着。凡是购买过淘宝商品的人几乎都知道淘宝上假冒伪劣商品泛滥，由此导致的客商纠纷从未断过。这样一个不以商品品质盛出的店家终将被淘汰。最后，监管部门的打击绝不是要维护法律的公平公正，而是要杀鸡取卵，给中共摇摇欲坠的经济打点儿鸡血。
+**郭文贵先生：**说到这儿的时候大家你们要知道的是，美国人最怕什么吗？Rachel你们做了半天，今天七哥给你们讲点核心，刚才东弟念的那一块，兄弟姐妹们一定要认真听，美国在历史上三不允许，都是跟你刚才念的东西有关系，谁要能说出这三不允许，只要这三样东西你动了他的奶酪了，老百姓不管你哪国总统，也不管你哪党的总统，一定把你换掉，一定把你推翻，你这个党一定下台，就是事关他生命的，刚才那里面都有，咱们叫通胀和通缩。
 
-马云被限制自由，蚂蚁金服募资暂停，阿里巴巴股价暴跌，这一切都只是中共内斗的冰山一角。
+你知道直接反应，你那个股票市场他不一定在乎，你的房价市场，他也不一定在乎，但是另样三不允许，他一定在乎，大家知道是什么吗？战友念的什么美元霸权地位，老百姓才不管你什么狗屁霸权的，大多数人是移民，3.5亿人口，现在实际4.5亿人口，80%人不管你那个屁事儿，什么硅谷、军队、养老基金呐。
 
+你们四个谁想回答的，老百姓绝不允许，你说今天你做的世界经济即将崩溃通缩前滞胀和通胀的并发前，并发症给美国人民的带来了三不允许的政治灾难，谁知道？你们不知道，七哥告诉你——
 
+第一条，油价，永远不接受超过4美金一桶，永远不接受！只要超过四美金了你就放心吧，美国这个政治就要大变了。大家去看现在是多少了？多少钱一桶了？油价；
 
-文字版原文：[阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%](https://gnews.org/zh-hans/1676922/)
+第二个就是买的面包，不能叫食品，你不能通称食品，也不能通称什么，就是面包价。面包价只要超过1.2刀，就是块的时候一般一块大面包大概是2.8~3.5美金，你只要超过4美金、5美金的时候，老百姓就反了。从历史可以查去，面包啊，咱说的是面包，不能叫食品，这是第二个；
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+第三件事情，什么？——气，美国点的气，美国的气，这个国家很厉害的，只要这个气超过历史上的均价的20%，老百姓就不想做饭了，气和什么联？跟电也联着呢，电价也不能上，就简称气电。
 
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+所以气电、面包、油价只要超过这价格，不管你哪党，咔~走人，而且经济一定是大崩跌，是吧？现在是历史上以来，整个交易市场股票市场达到150%、200%，货币增发，美国国债都是历史最高值，从28.5万亿迅速30万亿，而且这不是真实的。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+房价达到了什么程度，大家去想一想，曼哈顿在过去几个交易都是超过了历史总和，和洛杉矶、旧金山，就整个增发货币都是这结果，刚才你们做的PPT，我看到群里在讲什么叫通胀，什么叫通滞。
+
+简单今天跟你说形容大家最能听得懂的话，就是本来这个人经济不行，但是他错误地用了一个招儿就是什么，就打了疫苗，还打了5针、10针疫苗，由于疫苗打太多造成眼梗、脑梗、心梗，这就是美国和世界的经济。
+
+形容得很准确吧？就是美国给本来不应该的人打了5针、10针的疫苗，就造成脑梗心梗已经，所以美国叫滞胀、通胀，通缩并发，就是社会的货币M2印太多导致不流通，为什么呢？我想买面包——面包贵了，结果我不想买房子——房子可能便宜了，我不想买汽车——可能汽车便宜了，想买汽车——可能汽车贵了。
+
+就完全是非需要和需要产品和生活用品、轻工业产品和重工业产品，还有供应链，完全是就像你打了疫苗一样，到处梗、到处阻，它就通胀通缩呀，该给的不给，该要的不要，该堵的全堵了，而且是全世界性的，人类上从来没有像今天全人类并发了一种症，个人身体叫做疫苗灾难，各种病、各种心包炎、心肌炎，经济一模一样，简称通胀通缩，这都是专业放屁的话。
+
+（以下暂略）
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
