@@ -2,34 +2,33 @@
 ---
 
 
-## 苹果概念车将强烈冲击特斯拉电车市场
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1679566/)
+## 加拿大佩塔瓦瓦军事基地多名军人感染新冠阳性，数百名军人被隔离。
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1679603/)
 
-**翻译：美哥 
-编辑：MSGZ**
+2021年11月20日
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/苹果.png)图片来源：CNET
+翻译报道：Torsteintt
+![](https://assets.gnews.org/wp-content/uploads/2021/11/0429-pm-2-garrison-v-pm-e1637397515850.jpg)图片来源：Sun Media
+根据加拿大CTV新闻
 
-据摩根大通公司分析，苹果公司强势插入电动车市场可能会引发市场又一轮地震，就如苹果2007年横扫手机电信市场一样。
+在佩塔瓦瓦市为期十一月十三至十四日的的演练导致了至少七例军人和和三例军人家属感染新冠阳性。 “当发现检测新冠阳性案例时，病人被隔离，我们接着对接触者们做了追踪联系。” 加拿大机动二号旅的艾瑞克 兰德上校说，“所有的与病人有密切接触者都已被要求隔离。”
 
-布隆伯格新闻报道，2025年这个世界上市值最大的公司将会推出拥有完全无人驾驶能力的电动车。
+此次演练有三百七十三名军人在户外密切的一起工作，另外有一百名军人在后方较远处工作。 兰德上校说所有参加了此次演练的人员都已经接种了两次疫苗。
 
-如今数以万亿级的全球汽车市场炙手可热，苹果公司一旦介入投资，多半对于福特，特斯拉等车商是个“负能量”的消息。 正如智能手机，平板电脑和运动手表市场，苹果公司每次介入一个新行业，通常都对该行业形成科技催化剂效应。
+“（他们）在排等级，连等级运作。” 兰德上校向渥太华CTV新闻解释，“因为演练人数庞大，他们需要在此等级运作以便满足北约的规定。军人们单独工作不可能能满足这些规定；他们必须团队工作。这是为何我们执行这些保护军队健康的措施。” 伦弗县和地方医疗机构也在跟踪社区内的十名高危新冠接触者，并对三名带有症状的军人进行观察。
 
-苹果的股票也在星期四一路坚挺，上涨3%，周五股票继续上涨1.7%。从微软公司重新夺回世界最有价值上市公司的桂冠。
+代理卫生医疗官罗伯特 库什曼医生预计会出现更多新冠案例并且担心疫情会蔓延到更多的社区。 “把军人家属包括在内的话，” 库什曼医生说，“那随随便便就是接近一千人。”
 
-即使目前苹果公司只占了电车市场的4%的份额，但鉴于以往苹果公司在各行业竞争里都遥遥领先，重新洗牌的态势看，相信在不久之后的苹果电车发布后，必将带动无人驾驶电车市场突飞猛进的发展和强烈市场冲击。
+每位参与过此次演练的人员如有症状都需自我隔离，如果他们表现出无症状则需被隔离观察直到十一月二十二日。届时，所有三百七十三名人员将再次接受新冠检测以对情况重新评估。 “旅里每位不愿回到自己住所的人员都被安排到了基地宿舍。” 兰德上校说。
 
-原文链接：[afr.com/companies](https://www.afr.com/companies/transport/the-apple-car-is-coming-and-tesla-better-watch-out-20211120-p59aks)
+库什曼医生说因疫情爆发演练不得不在周末中途停止，这是减缓疫情蔓延的关键。他对于此次演练不报意见，因为所有人都已经接种两剂新冠疫苗而且是户外。 “军队已经损失了一些时间所以他们显然需要回去工作、训练和准备。” 库什曼医生说。“我们讨论的是某领域的三百七十人，而不是在谈论一场一万八千人观看的冰球比赛。”
 
-*发布：热锅小蚂蚁*
+目前在驻军佩塔瓦瓦的加拿大机动二号旅中已有百分之九十二的人员已经完全接种新冠疫苗。兰德上校说，剩下的百分之八人员是否能够继续保留就业岗位正在被审核等待决定。 “希望我们能在下周过半的时候能摆脱这种状况，”这位卫生官员补充道。”希望我们能控制住疫情蔓延。”
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原文链接：[H](https://ottawa.ctvnews.ca/hundreds-of-soldiers-in-quarantine-at-cfb-petawawa-following-covid-19-exposure-1.5672254?fbclid=IwAR0Mp4b-OLz_Xo0Jqrm8Da8_vaF0Bmg9cZXUgKyCElvaVH4YX5z7BxskV8I)[undreds of soldiers in quarantine at CFB Petawawa following COVID-19 exposure](https://ottawa.ctvnews.ca/hundreds-of-soldiers-in-quarantine-at-cfb-petawawa-following-covid-19-exposure-1.5672254?fbclid=IwAR0Mp4b-OLz_Xo0Jqrm8Da8_vaF0Bmg9cZXUgKyCElvaVH4YX5z7BxskV8I)
 
+校对发布：MQ
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

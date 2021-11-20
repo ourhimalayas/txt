@@ -2,10 +2,10 @@
 ---
 
 
-## 泽连科医生：中共病毒疫苗对儿童的致命性是病毒的172倍
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1679687/)
+## 澳洲电视台制作视频显示中共国军事实力大大超过澳洲
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1679717/)
 
-11/16/2021 泽连科医生：中共病毒疫苗对儿童的致命性是病毒的172倍
+11/17/2021 澳洲电视台制作视频显示中共国军事实力大大超过澳洲
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

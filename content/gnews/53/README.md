@@ -2,26 +2,29 @@
 ---
 
 
-## 澳洲总理敦促各州回归正常生活
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678178/)
+## 佛州州长签署多项法案，限制私营企业对员工强制接种疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678183/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山 – AlexZ
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-323.png)
-11月18日，澳大利亚总理斯科特·莫里森接受媒体采访时，敦促澳大利亚各州和地区领导人后退一步，让澳大利亚人回归正常生活。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-21.jpg)
-莫里森指出，澳洲是个拥有安全渡过大疫情的强大经济体，在过去一年多以来，地方政府一直在指导澳大利亚人该怎么做，但现在是时候让政府退后，把自由还给民众，回归正常的生活。这是联邦工作计划中的重要任务之一。
+佛罗里达州州长罗恩·德桑蒂斯最近签署了多项法案，限制该州雇主强制员工接种疫苗。11月18日，德桑蒂斯在佛州布兰登发表讲话时表示，这是他们采取的最强硬的“支持自由”的反对行动。
 
-对于目前一些州激进的强制疫苗政策，莫里森说，“我们不赞成由政府强加的强制性疫苗。企业可以根据法律做出自己的选择，但我们不是要告诉他们做什么，或告诉澳大利亚人做什么。无论是否接种疫苗，人们应该可以在布里斯班喝杯咖啡。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-11.jpg)
+
+周三，在佛州立法机构的特别会议上，通过了四项法案。法案规定，私人雇主在不提供医疗或宗教豁免，以及每周检测选项的情况下，强制实施疫苗接种是非法的。
+
+与此同时，佛州也参与了对拜登政府就其 OSHA 疫苗授权进行的诉讼。19日，桑德蒂斯发推称：“佛州正在保护雇员和家庭的权利，佛州自由之州，将阻止那些想通过强硬命令夺走我们工作和自由的官僚们。”
 
 参考链接：
 
-- [Morrison calls on states to allow Australians “to have their lives back”](https://www.9news.com.au/national/covid-19-morrison-calls-on-states-to-allow-australians-their-freedoms/320c9fd8-824d-4978-ada0-e14bc04250e3)
+- [Gov. DeSantis Signs Multiple Bills Limiting Private Businesses From Imposing Vaccine Mandates On Employees](https://www.oann.com/gov-desantis-signs-multiple-bills-limiting-private-businesses-from-imposing-vaccine-mandates-on-employees/)
+- [Florida is protecting the rights of employees and families](https://twitter.com/GovRonDeSantis/status/1461415361635622916?s=20)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
 
-总编：Irene木木
-编辑：Ivy001
+总编：文徬
+编辑：DM
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
