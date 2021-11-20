@@ -2,36 +2,41 @@
 ---
 
 
-## 麦克库罗医生提告医疗期刊公司
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1680554/)
+## 全球禁止的农药在日本市场泛滥成灾
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1680570/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月19日，相关媒体报道称，美国心脏科医生麦克库罗控告爱思薇尔期刊出版社掩盖新冠疫苗真相。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-20-下午10.45.47.png)圖片來源：2017年，石正麗在武漢病毒研究所。CHINATOPIX，VIA ASSOCIATED PRESS
-据悉，爱思薇尔期刊出版社于今年10月撤稿一篇题为“新冠疫苗造成心肌炎”的论文，该论文的作者即为麦克库罗医生。医生表示，爱思薇尔期刊原本已经刊登此篇论文，后因FDA正在讨论紧急授权5至11岁儿童使用新冠疫苗的问题，该期刊撤稿了此篇论文。医生认为，这种行为违反合约。因此，医生将对该期刊公司进行全面性的法律诉讼。
+作者：88JJ
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1546.png)图片来源：网络
+日本政府以其他名义在商店排队购买被认可为“安全”的农药。
 
-另据麦克库罗医生称，爱思薇尔要对公众及科学界隐瞒这一重要研究的原因在于，真正的科学已经驳斥了这些实验性新冠疫苗所自称的 “安全性”和 “有效性”。医生指出，因注射新冠疫苗导致的心肌炎通常在注射第二剂辉瑞或莫德那疫苗后的数天内爆炸性发生。
+人们对农药Roundup的危险意识正在世界范围内传播，在发达国家当中，只有在日本的商店中，却很容易买到Roundup。
 
-麦克库罗医生强调，爱思薇尔期刊公司拥有全系列的医学期刊，掌控了绝大部分医学论文的发言权。因此，该公司对医学论文的不当审查行为，涉嫌掩盖有关新冠疫苗信息的真相。而这种审查方式是对科学的戕害。
+这个被世界驱逐失去一席之地的农药，一时涌入日本市场，占据除草剂销量第一的位置。在日本，日产化学工业公司于2002年5月收购了孟山都公司在日本的农药除草剂业务，接手Roundup在日本的销售权，并标榜为“药效优、环保型” 稻田除草剂。
 
-参考链接：
-1）[Dr. McCullough sues Elsevier journal for refusing to publish study highlighting risks of covid “vaccination” in children](https://www.newstarget.com/2021-11-18-mccullough-sues-elsevier-study-covid-vaccines-children.html)
-2）[COVID-19 vaccine-myocarditis paper to be permanently removed: Elsevier](https://retractionwatch.com/2021/10/25/covid-19-vaccine-myocarditis-paper-to-be-permanently-removed-elsevier/)
+日本政府在 2016 年发布了一份评估报告，称“草甘膦的安全性得到确认”，当时其危险性已经在全球范围内变得清晰。根据这份评估报告，2017年12月，草甘膦农药残留标准明显放宽。其残留放宽量分别为小麦6倍，荞麦150倍，芝麻200倍，红花籽400倍。然而媒体根本没有报道此事。结果，草甘膦残留标准比中国标准高出150倍。问题是从中国进口的蔬菜被农药覆盖，很危险，但中国蔬菜仍然处于对人类的杀戮状态。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+此外，Roundup的主要成分草甘膦的成分专利已经到期，该剂以各种名称出售。其中有住友化学园艺的“草根灭绝剂”。
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+在日本商店出售的Roundup，上面有“最安全的除草剂”和“神奇的除草剂”等广告词。也出现在农业合作社的销售渠道上，在家居中心、药店等广泛销售。此外，还有电视和报纸广告，并没有说明其危险性，因此目前的情况是不小心购买和使用。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+孟山都开发了转基因作物，以生产对农药具有抗性的作物，并将其作为一整套出售。农药推广也与转基因作物的引进有关。日本是世界上最大的转基因作物进口国之一，由于日本转基因食品的标签在世界体系中是松散的，日本消费者被迫在不知情的情况下食用大量转基因食品。
+
+在孟山都网站上，“日本从海外进口大量玉米、大豆等谷物，总量约为每年3100万吨。其中一半以上（16-1700万吨=日本大米）”约是产量的两倍）是“转基因作物”，”该公司声称，“它对日本人饮食习惯的稳定性有很大贡献。”进行大肆吹嘘。
+
+针对孟山都提出的这些要求，很明显，日本政府对孟山都转基因作物的认可度超过了美国政府。随着TPP11的生效以及日美未来贸易协定的签署，转基因作物进口面临前所未有的压力在所难免。
+
+孟山都（去年被德国拜耳收购）是一家跨国生化制造商，总部位于美国密苏里州。Roundup除草剂是其主要产品，转基因种子的世界份额为90%，是几乎垄断世界食品市场的巨大全球公司。该公司还在 2011 年的健康信息网站上被评为世界上最糟糕的公司，因为它对人类健康和环境都构成了威胁。
+
+当Roundup农药在全球范围内被禁止和封锁时，日本政府是唯一一个接替孟山都的救世主，并将其带入日本市场引发雪崩。日本政府被揭露危害人民生命健康，并把关系到日本后代繁荣的国家利益出卖给一家名为孟山都的私营公司。
+
+参考文献：[https://www.rui.jp/ruinet.html?i=200&c=400&m=347417&g=131106](https://www.rui.jp/ruinet.html?i=200&amp;c=400&amp;m=347417&amp;g=131106)
+
+编辑：卢卡斯
+
+发布：Lily
+
+20211120
+![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
