@@ -2,22 +2,26 @@
 ---
 
 
-## 害怕人民币暴跌，中共进一步收紧外汇管制
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1679292/)
+## 恒大还想骗钱，拟配股筹资约27亿
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1679455/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/ab2b4350923550452d661afdba8e5319.jpeg)[图片来源](https://www.followme.com/baike/2017.html)
-五位消息人士周五表示，中共国全国外汇市场自律机制最新倡议银行对自营交易设置上限，落实风险中性理念。他们透露，外汇市场自律机制倡议银行对自营交易量同比增速超过50%或自营/代客交易量比例高于15倍的，可触发进一步分析调查。不过他们没有提及该倡议何时生效。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-105.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fupload.iheima.com%2F2020%2F0918%2F1600411361832.jpg&amp;imgrefurl=https%3A%2F%2Fwww.iheima.com%2Farticle-307787.html&amp;tbnid=oUg4-_ZQlOP6AM&amp;vet=12ahUKEwjo0K_Mrab0AhWLCN4KHYT2CtUQMyhjegQIARB0..i&amp;docid=vaqCsDPU1_DaPM&amp;w=1080&amp;h=717&amp;q=%E6%81%92%E5%A4%A7%E6%B1%BD%E8%BD%A6%20%E6%A8%A1%E5%9E%8B&amp;hl=zh-CN&amp;ved=2ahUKEwjo0K_Mrab0AhWLCN4KHYT2CtUQMyhjegQIARB0)
+恒大新能源汽车集团有限公司[0708.HK](https://cn.reuters.com/companies/0708.HK)周五在港交所发布公告称，将通过配售股份筹集约27亿港元，用于新能源汽车研发及生产制造。
 
-一外资行交易员认为，倡议的目的还是希望不要“炒汇”。今年中共国外贸延续去年以来的高景气，其中10月出口同比增速优于预期，贸易顺差为845.4亿美元，创下纪录新高。1-10月贸易顺差超5,100亿美元，巨量的顺差带来充足的美元流动性，客盘结汇需求不减，人民币持续偏强，哪怕是11月美指加速上行时。
+该公司在公告中表示，通过先旧后新方式，以每股3.00港元配售9亿股，预期配售事项的所得款项总额为约27亿港元。公司拟将收取的所得款专项用于集团新能源汽车的研发及生产制造，为恒驰新能源汽车顺利投产奠定基础。
 
-全国外汇市场自律机制本周召开会议强调，金融机构要加强自身外汇业务风险管理，既不能帮助企业“炒汇”，自身也不宜“炒汇”。汇率风险中性理念是中共外管局多次提及的话题，并提醒市场主体应适应人民币汇率双向波动的常态。
+公告还称，本次配售股份占于公告日期已发行股份总数约9.05%及认购事项完成后经扩大已发行股份总数约8.30%。此次配股价较该股周五收盘价3.53港元有15%的折让。
+
+上周恒大汽车刚通过先旧后新方式，以每股2.86港元配售1.75亿股，筹资5亿港元，也是用于新能源汽车研发及生产制造。
+
+稍早，香港恒生指数公司公布季度变动，恒大将自12月6日起被剔出恒生中国企业指数。取而代之由信达生物制药补选成为恒生中国企业指数“新贵”。
 
 消息来源:
 
-**[独家：中国外汇市场自律机制倡议银行对自营交易设上限 超出可触发分析调查–消息](https://cn.reuters.com/article/china-fx-proprietary-trading-1120-idCNKBS2I501Q?il=0)**
+[恒大汽车拟配股筹资约27亿港元 用于新能源汽车的研发及生产](https://cn.reuters.com/article/evergrande-motors-financing-1120-idCNKBS2I502Q?il=0)
 
-*校对：东京樱花团/喜马拉雅的微尘*
+*校对：东京樱花团/知了知了*
 *发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  

@@ -2,26 +2,37 @@
 ---
 
 
-## 再见，廉价药
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1679871/)
+## COVID-19 最新情报｜新冠疫苗恐降低免疫力 接种后更容易感染其他病毒
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1679933/)
 
-撰稿人：东南
-![](https://assets.gnews.org/wp-content/uploads/2021/11/廉价药.png)
-（图片来源网络）
+**台灣寶島農場 疫情關注組 / 發佈時間｜20/11/2021**
 
-据中共国家药品监督管理局此前发布的公告（2021年第132号），在注销的药品中，包括了安乃近片、土霉素片、马来酸氯苯那敏片等。其中兰州和盛堂制药股份有限公司和甘肃中天金丹药业有限公司生产的安乃近片（0.5g）均注销药品注册证书。这也意味着，按照新版《药品管理法》规定，两家药企的上述药品不得生产或者进口、销售和使用。来看看因不良反应遭多国禁用注销的理由，实在难以恭维。注销安乃近注射液等品种，并要求安乃近片对说明书进行修订，明确禁用于18岁以下青少年儿童、妊娠晚期妇女。截至11月16日，药监局网站数据显示，安乃近生产批号众多，共有批准文号854个，其中包括安乃近片、复方青蒿安乃近片、重感灵片及重感灵胶囊，涉及生产企业近千家，其中不乏石药集团欧意药业、国药控股星鲨制药(厦门)、山东新华制药、哈药集团制药六厂等知名药企。目前京东、淘宝、拼多多、叮当快药等各大健康产品相关app，发现多个平台已下架人用安乃近片，平台在售安乃近片、注射液均为兽用。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-相信我们很多年纪稍大的战友对于这款药都不会陌生，在国内安乃近曾是我们小时候常用的“退热神药”，无论是感冒还是咳嗽都吃它，基本上家家户户都有。小时候发烧了每次父母给掰开半片吃下去，几天功夫病也就好了。
 
-话说回来以前生病时普通发热就吃这药，实在不行上医院的话退热针一打也能下去。但现在呢在CCP的医疗产业化制度下，发烧先去验血拍片，挂水都是三天起，说不上名字但明显贵很多的药再吃上个十天半个月，要我说“安乃近”这药最大的缺点就是太便宜了几块钱一大盒，吃完几小时就退烧。纳了闷是不是这帮“专家”觉得如果病都给几块钱的药都治好了，那好几百的吊瓶卖给谁去啊？不注销这些平民药品，医院怎么扩建，医生怎么提成，药品，设备，住院床位…不消灭CCP每一个环节都会是一根根吸在老百姓身上的“抽血管”。
+外媒有报导指出，猝死是新冠疫苗的严重副作用之一，且被广为关注。但完全接种新冠疫苗后，完全接种者的免疫力将随时间推移而下降，使完全接种者更容易感染其他病毒，这是一个缓慢的过程，不会立即显现而被忽视。
 
-文章参考：
-https://tech.sina.cn/2020-03-20/detail-iimxyqwa1841483.d.html
-图源片来： 网络
+美国爱达荷州最大的独立诊断实验室经营者瑞安．科尔（Ryan Cole），同时也是病理学家，经观察他发现到接种新冠疫苗者的健康状况逐渐下降，并在影片传达自己对新冠疫苗的担忧。
 
-发稿：MG4
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
 
+
+> OMG! On this clip.
+> 
+> This doctor trained at the Mayo Clinic and runs the largest independent testing laboratory in Idaho. 
+> 
+> Listen to what his lab testing is showing. [pic.twitter.com/WmX7N3qKHK](https://t.co/WmX7N3qKHK)
+> — Jangled Nerves (@ToriaMart) [November 14, 2021](https://twitter.com/ToriaMart/status/1459675860458524677?ref_src=twsrc%5Etfw)
+
+
+
+瑞安．科尔于影片中表示，人类在感染爱滋病毒后，身体的CD4细胞（辅助T细胞）数量将会大幅下降。而，接种新冠疫苗后，他发现人体内的CD8细胞（杀手T 细胞）数量大幅下降。CD8细胞是身体抑制其他病毒的关键。
+
+此外，他还发现美国自1月以来，子宫内膜癌的发病率上升了20倍。以及传染性软疣、皮疹或带状疱疹在50岁群体的就诊率有显着上升。抑制这些病毒的细胞，正是CD8细胞，也就是接种新冠疫苗可能正在减弱他们的免疫力。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-13.jpg)
+* * *
+
+来源｜[LIFE SITE](https://www.lifesitenews.com/news/idaho-doctor-reports-a-20-times-increase-of-cancer-in-vaccinated-patients/)/[推特](https://twitter.com/ToriaMart/status/1459675860458524677?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1459675860458524677%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fimmunization.news%2F2021-11-19-covid-vaccines-suppressed-immunity-hiv-hpv-herpes.html)
 
  
 

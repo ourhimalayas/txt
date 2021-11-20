@@ -2,20 +2,45 @@
 ---
 
 
-## 文贵爆料11.19.2021 未来属于数字货币 喜币一统货币江湖
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1679546/)
+## 人民币国际化和蓝金黄世界所有的雷明年5月份前一定爆
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1679557/)
 
-撰稿：回响
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-19-at-4.53.05-PM.png)图片来源：GTV & GETTR
-11月19日文贵大直播如期而至，喜币的意义再次成为首要话题。郭先生深入浅出地再次把货币发展的脉络清晰地刨析给公众。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/FClimiIVcAEnTkV_副本.jpg)
+据[2021年11月19日文贵大直播：国际市场资金短缺；数字货币、法币及经济膨胀所带来的危害；疫苗灾难最新数据及病毒解药的进展](https://gtv.org/video/id=6197a194fcd196126f8cab91)时间点1：00：17——
 
-2017年郭先生爆料伊始就告诉世界，中共就是要打掉美元，从而夺取美国的全球霸主位置。他在当时就告诉中共高官刘彦平，自己将一统江湖。没有一个人懂，没有一个人信。如今中共副主席王岐山恍然大悟：谁都没想到文贵搞这一手，一统世界货币的江湖。
+**郭文贵先生：**共产党能叫王岐山出来到新加坡专门诋毁咱，找赵长鹏，但是你看到了马云，他本来让马云要出来讲几句的，这马云不知道死活就没出来讲，结果马云的这个七哥告诉你了嘛，头两天到西班牙，我说涨了160 170，你们都忘了七哥说的话了。
 
-郭先生用完全通俗的语言把法币特别是美元的历史由来给大家做了形象生动的回顾，并且通过美国历史上三大不允许的政治灾难（汽油、面包和天然气价格上涨限度），揭示出滞涨、通胀、通缩并发的后果，一定是经济大崩溃。未来法币将退出货币系统，全球的未来一定是数字货币。
+我说这孙子出来就是把他弄起来，共产党要你——看看，马云出来了啊，马云出来了！就像那个小姐，夜总会，每次我们到夜总会看的就是女孩子都出来咔咔地遛两圈是吧？那介绍，然后啪又转身走了，欸，你选几号几号是吧？
 
-【原文链接】https://gtv.org/broadcast/watch/6197a194fcd196126f8cab92
+这东弟你我都是常干的事是吧？颖妹妹，这是我过去事，你不要管着，这是我们都经常干的事儿，就是让马云去做小姐嘛，出来兜两圈嘛，是吧？晃晃腚嘛，是吧？然后大家说，欸，我买单，我买单。
 
-校对发布：Shifter
+就是买了阿里巴巴股票，160咣唧给砸下来了，10%、10%地跌，你们不要看百分比，兄弟姐妹们，股票不能看百分比，人家一块钱股票10%是一毛钱，它是160块钱的股票，10%是16块钱呢，这是很大的钱呐！咵咵咵，没了，这不就出来表演了嘛，七哥跟你们说对了吧？你说我要做股票哪回不赚，你告诉我。
+
+所以今天要说的是，随着世界整个经济进行通胀、通缩，进入了整个的数字货币的时代，逃避掉法币，还有共产党想人民币国际化，蓝金黄世界的整个的所有这些雷都会在未来的可能下一个小时，绝不会超过明年5月份一定会爆。
+
+（以下暂略）
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
