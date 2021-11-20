@@ -2,27 +2,23 @@
 ---
 
 
-## 最新：针对阿尔伯塔省政府的疫苗护照发起的法律行动
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1679575/)
+## 乌克兰、美国向盟友发出警告：普京有可能发动闪电战
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1679631/)
 
-2021年11月19日
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11201.jpg)图片来自freeimages.com
+11 月 19 日–美国和英国的情报部门越来越相信，弗拉基米尔·普京正在考虑采取军事行动，以控制乌克兰的更大范围，或者通过安抚乌克兰政府内的俄罗斯支持派来破坏该国的稳定。
 
-翻译报道：Sandy
-![](https://assets.gnews.org/wp-content/uploads/2021/11/AHSBuilding05-copy-edited.jpg)图片来源：网络
-我们与 Chad Williamson 律师一起分析了这一重要质疑的基础。
+《纽约时报》写道：美国人警告盟国，防止此类行动的迅速性，并促使欧洲国家与美国合作制定一揽子经济制裁和军事措施以遏制克里姆林宫。
 
-最新的质疑之一是由Williamson Law 的 Chad Williamson 提出的，对阿尔塔省卫生部门的首席医疗官 Deena Hinshaw 和阿尔伯塔省卫生服务部门的质疑，以回应所谓的“限制豁免计划”导致的权利和自由被剥夺，该计划是事实上的阿尔伯塔省政府的疫苗护照系统。
+据消息人士称，美国情报部门告诉盟友，在吞并克里米亚和支持顿巴斯分离主义起义后，普京对与法国和德国达成的和平进程越来越感到沮丧。他会选择继续在邻国边境集结军队以确保乌克兰东部和克里米亚之间的陆路安全。
 
-在质疑中被提名的是三名申请人；拥有宗教和医疗疫苗豁免权的 Amanda Robinson, Joseph Kenny的结社自由和政治抗议受到 COVID 立法阻碍，以及享有疫苗接种宗教豁免权的Joseph Rylance。
+美国分析人士认为，利用安格拉·默克尔的退出和能源价格上涨这一时期，克里姆林宫领导人认为未来几个月是采取行动的独特时机。
 
-质疑中还列出了 John 和 Jane Doe(s)，除了可能允许案件的裁决为处于类似情况的其他人树立一个重要的先例之外，这一补充还开启了将潜在的额外申请人添加到申请中的法律程序。
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/20/ucraina-monito-usa-ad-alleati-possibile-un-blitz-di-putin\_542469a9-ce8e-44ff-89a4-594074e0db94.html](https://www.ansa.it/sito/notizie/topnews/2021/11/20/ucraina-monito-usa-ad-alleati-possibile-un-blitz-di-putin_542469a9-ce8e-44ff-89a4-594074e0db94.html)
 
-我们与 Chad Williamson 一起分析了这一重要质疑的基础。鉴于 COVID-19 限制和疫苗护照系统导致我们看到的所有侵犯权利和自由的行为，他还回答了我们关于人们在难以得到公义和答案时所面临的挣扎和延误的问题。
+责任编辑/发布：意大利达芬奇农场   萧亦
 
-想了解更多详情，请点击此处：[UPDATE: Legal action launched against Alberta government’s vaccine passport](https://www.rebelnews.com/update_legal_action_launched_against_alberta_government_vaccine_passport)
-
-校对发布：MQ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,10 +2,10 @@
 ---
 
 
-## 一位年轻女孩打完辉瑞疫苗后发生面瘫
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1679660/)
+## 澳洲电视台制作视频显示中共国军事实力大大超过澳洲
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1679717/)
 
-11/14/2021 一位年轻女孩讲述自己打完辉瑞疫苗后发生面瘫的过程
+11/17/2021 澳洲电视台制作视频显示中共国军事实力大大超过澳洲
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

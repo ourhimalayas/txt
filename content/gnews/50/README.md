@@ -2,29 +2,32 @@
 ---
 
 
-## 佛州州长签署多项法案，限制私营企业对员工强制接种疫苗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678183/)
+## 阿里巴巴二季度盈利同比下滑39%，在美股价逆市大跌10%
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678194/)
 
-作者：纽约香草山 – AlexZ
+作者：日本方舟农场 – Andy5
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-323.png)
-佛罗里达州州长罗恩·德桑蒂斯最近签署了多项法案，限制该州雇主强制员工接种疫苗。11月18日，德桑蒂斯在佛州布兰登发表讲话时表示，这是他们采取的最强硬的“支持自由”的反对行动。
+18日，阿里巴巴发布第二季度财报之后，在美股盘逆势大跌8%，开盘后跌幅扩大至10%，港股收盘时也大跌11%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9-11.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/10-8.jpg)
 
-周三，在佛州立法机构的特别会议上，通过了四项法案。法案规定，私人雇主在不提供医疗或宗教豁免，以及每周检测选项的情况下，强制实施疫苗接种是非法的。
+据财报内容公布，本季度阿里巴巴营收2006.9亿元人民币，同比增长29%。而2022年财年总收入预计只增长20-23%，创2014年上市以来的新低。值得注意的是，阿里巴巴今年第二季度净利润同比下滑了39%。
 
-与此同时，佛州也参与了对拜登政府就其 OSHA 疫苗授权进行的诉讼。19日，桑德蒂斯发推称：“佛州正在保护雇员和家庭的权利，佛州自由之州，将阻止那些想通过强硬命令夺走我们工作和自由的官僚们。”
+阿里巴巴利润下降的原因，一方面，墙内消费水平下降；另一方面，自今年4月以来，中共以反垄断、共同富裕等名义，给阿里巴巴开出天价罚单，阿里巴巴不得以用所谓“自愿”捐助，“助力共同富裕”等措施断臂求生。
+
+18日，中共反垄断局正式挂牌成立，与阿里巴巴类似的墙内巨头，即将面临同样困境。
 
 参考链接：
 
-- [Gov. DeSantis Signs Multiple Bills Limiting Private Businesses From Imposing Vaccine Mandates On Employees](https://www.oann.com/gov-desantis-signs-multiple-bills-limiting-private-businesses-from-imposing-vaccine-mandates-on-employees/)
-- [Florida is protecting the rights of employees and families](https://twitter.com/GovRonDeSantis/status/1461415361635622916?s=20)
+- [阿里巴巴预计财年总收入同比增20-23%创上市来新低 美股盘初跌逾10%](https://cn.reuters.com/article/alibaba-revenue-1118-thur-idCNKBS2I401N)
+- [182.28 亿元！阿里巴巴这张天价罚单在全球反垄断榜上能排](http://finance.sina.com.cn/tech/csj/2021-04-12/doc-ikmyaawa9204389.shtml)
+- [阿里1000亿元助力共同富裕，十项具体行动回应社会关切](https://www.sohu.com/a/487472792_114930)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
 
-总编：文徬
-编辑：DM
+总编：Kathy文艺
+编辑：Kathy文艺
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
