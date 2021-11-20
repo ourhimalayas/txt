@@ -2,34 +2,28 @@
 ---
 
 
-## 日本国防开支创纪录为应对中共威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1679579/)
+## 恒大还想骗钱，拟配股筹资约27亿
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1679455/)
 
-编辑：飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
-据媒体报道，日本计划在当地时间11月19日与经济刺激计划一同公布的追加预算中，列支创纪录的67.4亿美元用于国防开支。同时，前首相安倍晋三在参加澳洲智库研讨会时呼吁，应该将日本同澳洲的防卫合作关系提高到新的水平。因为日本政府越来越关注中共国在有争议的东海海域的军事行动。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11203.jpg)
-日本执政的自民党在选举之前，就在其政策纲领众列入了，拟将GDP的2%或者更多用于军事开支的计划。而在此前，日本一直承诺国防开支不超过GDP的1%。日本防卫省希望，有资金用于生产国产隐形战斗机，和远程导弹，同时日本还在努力打造网络战、太空战和电磁战的能力。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-105.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fupload.iheima.com%2F2020%2F0918%2F1600411361832.jpg&amp;imgrefurl=https%3A%2F%2Fwww.iheima.com%2Farticle-307787.html&amp;tbnid=oUg4-_ZQlOP6AM&amp;vet=12ahUKEwjo0K_Mrab0AhWLCN4KHYT2CtUQMyhjegQIARB0..i&amp;docid=vaqCsDPU1_DaPM&amp;w=1080&amp;h=717&amp;q=%E6%81%92%E5%A4%A7%E6%B1%BD%E8%BD%A6%20%E6%A8%A1%E5%9E%8B&amp;hl=zh-CN&amp;ved=2ahUKEwjo0K_Mrab0AhWLCN4KHYT2CtUQMyhjegQIARB0)
+恒大新能源汽车集团有限公司[0708.HK](https://cn.reuters.com/companies/0708.HK)周五在港交所发布公告称，将通过配售股份筹集约27亿港元，用于新能源汽车研发及生产制造。
 
-安倍晋三表示，日本应与美国、英国和澳洲等AUKUS安全伙伴，在人工智能、网络能力和量子技术方面进行合作。而AUKUS协议，被广泛认为是对中共国在该地区军事力量提升的回应。
+该公司在公告中表示，通过先旧后新方式，以每股3.00港元配售9亿股，预期配售事项的所得款项总额为约27亿港元。公司拟将收取的所得款专项用于集团新能源汽车的研发及生产制造，为恒驰新能源汽车顺利投产奠定基础。
 
-新闻链接：
+公告还称，本次配售股份占于公告日期已发行股份总数约9.05%及认购事项完成后经扩大已发行股份总数约8.30%。此次配股价较该股周五收盘价3.53港元有15%的折让。
 
-[https://cn.reuters.com/article/japan-military-budget-increase-1119-fri-idCNKBS2I402X](https://cn.reuters.com/article/japan-military-budget-increase-1119-fri-idCNKBS2I402X)
+上周恒大汽车刚通过先旧后新方式，以每股2.86港元配售1.75亿股，筹资5亿港元，也是用于新能源汽车研发及生产制造。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-9.jpg)
+稍早，香港恒生指数公司公布季度变动，恒大将自12月6日起被剔出恒生中国企业指数。取而代之由信达生物制药补选成为恒生中国企业指数“新贵”。
 
-总编：文徬
+消息来源:
 
-校正/发稿：浪迹天涯
+[恒大汽车拟配股筹资约27亿港元 用于新能源汽车的研发及生产](https://cn.reuters.com/article/evergrande-motors-financing-1120-idCNKBS2I502Q?il=0)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

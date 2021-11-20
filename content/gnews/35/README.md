@@ -2,48 +2,28 @@
 ---
 
 
-## 新南威尔士州居民被警告要为洪水做好准备
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1680175/)
+## WTA首席执行官愿意为彭帅的安全退出中国市场
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1680239/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-88.png)
+图片来源：网络截图
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/3271.jpg)
+据零对冲11月19日报道，世界女子网球协会（WTA）首席执行官史蒂夫·西蒙在接受CNN采访时说，为了确保中共国网球明星彭帅的安全，WTA愿意将其业务从中共国撤出并处理随之而来的所有复杂问题。
 
+彭帅是中共国最著名的体育明星之一，自从她指控中共国前副总理张高丽胁迫她在其家中发生性关系后，就从公众视野中消失了。她在11月2日的一篇长篇微博的帖子中提出这一指控，半小时后被删除。据称，中共国的审查人员迅速采取行动，从互联网上屏蔽了任何有关这一主题的内容，中共国政府尚未对彭帅的最初指控作出回应。
 
+“我们肯定愿意撤出我们的业务，并处理随之而来的所有复杂问题。因为这肯定比业务更重要,” 西蒙说，并强调妇女需要被尊重，而不是被审查。
 
-图片来源：www.theguardian.com
+35岁的彭帅曾在女双比赛中排名第一，在2013年的温布尔登和2014年的法国公开赛上赢得冠军。
 
+现年75岁的张高丽在2018年退休后就退出了公众视野，这是前中共党内高级官员的惯例。尽管中共国网球协会保证彭帅在北京是安全的，但是WTA试图联系她的努力没有成功。
 
-编译：小红帽
+本周早些时候，中共国国家媒体CGTN在推特上发布了一份据称是彭帅发给WTA的电子邮件的截图，其中她似乎否认了之前的指控，并表示她没有失踪。然而，这封邮件似乎只是扩大了对彭帅安全和下落的担忧，西蒙等许多人对这封邮件的真实性产生了怀疑。他补充说，这封邮件 “只会引起我对她的安全和下落的担忧”，并且需要可核实的证据来确保彭帅的安全。西蒙继续呼吁允许彭帅自由发言，不受来自任何方面的胁迫或恐吓。
 
-新南威尔士州的居民被警告要为可能发生的洪水做好准备，因为预计明天该州部分地区将出现恶劣天气。
+中共国外交部发言人赵立坚在接受记者提问时说，他不知道彭帅的情况。
 
-周日有冰雹、强风、大雨和可能发生的洪水的警告。
-
-新南威尔士州紧急服务局(NSW SES)已经警告居民要做好准备，以应对恶劣天气。
-
-气象局（BoM）建议，蓝山和新州东北部地区可能出现雷暴。
-
-Weatherzone昨天说，”周日该州的降雨量预计在20-40毫米之间，而一些地区可能会出现50-100毫米的降雨量，特别是有雷暴天气”。
-
-新南威尔士州紧急服务中心助理专员妮可·霍根（Nicole Hogan）补充道，恶劣的天气可能导致山洪爆发。
-
-上麦金泰尔（Upper Macintyre）、格威迪尔（Gwydir）、皮尔（Peel）、卡斯特里（Castlereagh）、贝鲁布拉（Belubula）和麦考瑞（Macquarie）至巴瑟斯特（Bathurst）已经发布了洪水警报。
-
-新南威尔士州的的紧急服务中心敦促人们避免开车、步行或骑车通过洪水。
-
-我们还建议居民为暴风雨做好准备，包括将汽车远离树木和电线，捆绑好后院的松散物品并清理排水沟。
-
-**参考新闻：**[NSW Weather: NSW warned to prepare for flooding as extreme weather warning issued (9news.com.au)](https://www.9news.com.au/national/weather-news-ses-warning-for-severe-weather-on-sunday-in-new-south-wales/d9459150-db9f-4c49-a1ae-5a1c7f36c258)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻链接：[WTA Chief Willing To Forsake Millions, Pull Out Of China Over Peng Shuai’s Safety](WTA%20Chief%20Willing%20To%20Forsake%20Millions,%20Pull%20Out%20Of%20China%20Over%20Peng%20Shuai's%20Safety)
 
  
 
