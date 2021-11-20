@@ -2,36 +2,23 @@
 ---
 
 
-## 美情报官员将战略目标聚焦中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678269/)
+## 奥地利或成为首个强制疫苗的西方国家
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1678496/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月16日，美国现任和前任情报官员在举行会议时明确，美国未来的战略目标需要对准中共。
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-12.jpeg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-9.jpg)图片来源：网络照片
+据多家媒体11月19日报道，奥地利计划要求全体国民在2022年2月前接种中共病毒疫苗。这将是欧洲第一个强制接种疫苗的国家。继11月17日，奥地利政府将约200万未完全接种疫苗的民众关起来之后，今天又宣布全国从11月22日起进入全面封锁状态，奥地利将成为第一个重新实施全面COVID-19封锁的国家。
 
-前美国情报局首席副局长苏·戈登称，几十年来，美国情报界先是关注苏联，随后着重于中东恐怖主义，而现在的情报界已经进入了第三个情报纪元。对于美国而言，需要从反恐的沉迷中清醒过来，将目光转向中共。
+欧洲最近的再次成为COVID-19流行的中心，据路透社统计，上周欧洲占全球平均感染人数的一半以上、最新死亡人数的一半左右。德国卫生部长廷斯斯帕恩说，第四波感染使欧洲最大经济体德国陷入国家紧急状态，不排除类似全面封锁的行动。默克尔周四宣布，将限制那些尚未接种疫苗的地区公众生活。
 
-与此同时，现任和前任情报官员们纷纷表示，没有任何一个国家像现在的中共这样，正在全方位地监视美国。对此，前CIA参谋长拉里·菲弗也提到，中共先是通过人海战术收集数据，接着用人工智能对这些数据进行分析，最后有针对性地瞄准着美国。
+然而在法国，总统马克龙在周四表示，法国不需要对未接种疫苗者实施封锁，因为法国在遏制病毒传播方面取得了成功。有74.9%的法国人接种了疫苗。
 
-评论称，此次美国情报官员齐聚的安全会议表明，美国情报界正在把焦点定位于中共。
+正如郭文贵先生在直播中指出，黑暗已经来临。新联邦中国人要团结起来，继续传播病毒、疫苗真相。让我们的光柱刺破黑暗，为光明的到来做出自己的努力。
 
-参考链接：[As U.S. spies look to the future, one target stands out: China](https://www.npr.org/2021/11/16/1051170999/as-u-s-spies-look-to-the-future-one-target-stands-out-china)
+**新闻来源：**[Austria the first country in Europe to impose mandatory COVID-19 shots | National Post](https://nationalpost.com/news/world/austria-will-enter-fourth-nationwide-lockdown-impose-mandatory-vaccinations)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
-
-总编：飞虹
-编辑：文特
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

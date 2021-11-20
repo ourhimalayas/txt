@@ -2,48 +2,53 @@
 ---
 
 
-## 医生揭发新冠疫苗削弱白细胞，接种者会有艾滋病人症状
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1679269/)
+## 中共国在海湾地区的秘密港口工程损害美阿关系
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1679309/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/103656_P01-21-003.jpg_356217b1-2b6d-400e-8158-e14e9663897a.jpeg)
-
-
-
-图片来源：www.poz.com
+作者：MOS – 柳是多水土透
 
 
-#### 编译：小红帽
 
-一位拥有1600名病人的匿名自然健康医生，从自己的客户、其他医生、护士、免疫专家和病毒学医生那里收集了信息。她从这些信息和数据中分析了新冠病毒（Covid-19）疫苗的前两剂和加强针的情况。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-5.jpg)
 
-目前，这位自然医生还没有准备好 “公开”自己的身份，所以目前正以联为一体（[T.A.O.- Together As One](http://www.togetherasone.cc/nd.aspx)）的名义分享她的信息。
 
-根据此分析，新冠病毒疫苗的第一针包含多种有毒成分，这些成分对你的细胞系统是灾难性的。这些毒素使你身体的免疫系统产生白细胞的能力降低多达50%。这还只是接种第一剂疫苗的情况。
 
-人体在大约8周后会产生另一代白细胞，这就是为什么第二剂疫苗的接种被设定在第一次接种之后的8周内进行，以再次削弱白细胞数量，而白细胞仍然受到严重损害。这使白细胞的生成量又减少了25%。
+消息人士透露，美情报机构今年春天得到情报，中共国在阿联酋一港口秘密建设军事设施。阿为美在中东地区最紧密的盟友之一，其领土内部署有可观的美军事资源。
 
-每次接种时，疫苗的盐水比例将减少，而有毒成分增加。这意味着白细胞数量减少了75%，而这是在接种任何加强针之前。加强针有80多股人类血细胞从未遇到过的外来细菌。这就是慢性炎症发生的时候。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/social.jpg)图片源自网络
 
-对于任何有健康状况的人来说，虚弱的身体部位将被这种外来病原体的攻击而加剧病情。无论你是否已经有消化系统、呼吸系统、癌细胞、皮肤状况等问题，在这种慢性炎症状态下，这些部位都会发炎。由于只有25%的免疫系统能力，这将被证明是灾难性的。
+拜登政府对此感到惊讶，并警告酋长国政府，中共国在其境内的军事存在威胁两国关系。在双方多次接触和美官员到访后的工程建设最近停止。 阿计划斥资230亿美元采购50架美F35战机和18架死神无人机，但似乎对中国工程的军事部分并不知情 。二战后英退出中东交由美国管理，之后数十年，美在该地区发挥了核心作用。中央司令部在中东部署军队，指挥作战，国务院协调建立以色列国，最近川普政府达成亚伯拉罕协议，正常化以色列和阿拉伯国家关系。
 
-另外，加强针包含八股艾滋病毒，可完全关闭身体制造白细胞的能力。所有的生理盐水都被从加强针中去除，因此对病人来说是致命的。这时，受害者在零免疫力的情况下四处走动。医生预测，加强针受害者的死亡率为20%至30%。
+ 近来中东出现在中美竞争前沿，中共国已经是石油第一大消费者，此外以疫苗外交，货币互换协议等方式企图扩张政治影响力 – 包含新近的军事驻扎尝试，此港口。项目为中海外军事计划一部分，其它动作含2017年东非吉布提基地；2019年与柬埔寨政府秘密协议，允许其使用军港；巴基斯坦和斯里兰卡允许中海军使用商业港口. 中共国已成为阿第一大贸易伙伴，同时阿政府允许华为参建基础设施，即使西方警告这将带来间谍和破坏等隐患。
 
-如今，美国食品和药物管理局（FDA）现在正在策划让美国的每个孩子都接种这些有毒的基因突变疫苗。
+约一年前，美国安机构收到情报，据阿布达比约50英里的卡利法港，有可疑的中共国活动。港口由央企中远集团建设，并运行集装箱码头。初始情报并无结论，但今春秘密卫星图像显示，中共国开始建造某种军用设施，工地部分时间被遮挡以躲避监督，美官员最近视察了该工地 UAE与美存在广泛反恐合作，是第一个派遣军队随美进入阿富汗作战的国家。由于伊朗的威胁，UAE寻求与华盛顿签署军事协议，以保证酋长国受攻击时得到美军保护.
 
-安东尼·福奇已经承认（头两剂）疫苗完全没有用，那是因为现在是他推动致命的加强针的时候了。以下是福奇的一段话。”他们看到不仅对感染的免疫力在减弱，而且对住院和某种程度上的死亡的免疫力正在减弱，现在开始涉及所有年龄组。不仅仅是老年人。”
+ 郭先生曾提到，中共海外军事部署会遭到一系列打击，含军事和外交挫折。其它受关注的还有阿根廷的卫星基地，美佛州南部的移动监视设施等.
 
-也许免疫力的 “减弱 “不仅仅是因为新冠病毒疫苗没有用，而是因为疫苗在这个过程中破坏了人体白细胞，导致免疫力被大大地削弱。
+参考链接：[https://www.wsj.com/articles/us-china-uae-military-11637274224](https://www.wsj.com/articles/us-china-uae-military-11637274224)
 
-**参考新闻：**[BOOSTER SYNDROME: Natural doctor blows whistle on Covid vaccines lowering white blood cells more and more with each shot, turning vaccinated people into AIDS-like patients – NaturalNews.com](https://www.naturalnews.com/2021-11-19-natural-doctor-blows-whistle-on-covid-vaccines.html)
+.
+总编：文徬
 
-***发布：小红帽***
+校对/发稿：Daxia
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-4.png)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
 
  
 
