@@ -2,216 +2,80 @@
 ---
 
 
-## 情报显示 中共开始再一次放毒新变种病毒出现
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1678772/)
+## 【信仰之声】论自由
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1678785/)
 
-[https://gtv.org/video/id=6197302f182702508106b3d3](https://gtv.org/video/id=6197302f182702508106b3d3)
+作者：纽约香草山福音部 — 山城小哥
 
-**郭文贵**
-**Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
 
-同样的事情
-The same thing
+1989年参加过天安门学运的长辈们曾经讲过这样一个真实的故事: 当时，广场上参加学运的一些人们聚在一起讨论到底什么是自由。最初大家都是激情澎湃，引经据典地高谈阔论。但到最后却是公说公有理，婆说婆有理，谁也说服不了谁，谁也不服谁，闹了个面红耳赤之后不了了之。三十多年后的今天，我觉得有必要再来谈谈到底什么才是自由。
 
-我一会儿告诉你们大家
-I’ll tell you in a moment
+首先，来说说最简单粗暴的解释，自由就是：我想做什么，就做什么。这个解释，听起很诱人，但我相信任何还有一点基本良知和理智的人，都会发现这不是我们所想要的自由，这是放肆。是不切实际，没有价值，不值得深入探讨的“自由”。因为这种自由最终只会导致人与人之间陷入战争状态，直到相互毁灭。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-472.png)
+第一个直接粗暴的解释不靠谱以后，我们发现，由于人类的群居本性导致自由这个词必然应该有一定的群体（社会)属性，不能仅仅局限于个人。人们所渴望的自由，很现实和必然地实际上是指在群体生活中的个体自由。而群体生活，若要避免陷入人与人之间的战争状态，就必须要对每一个人的“放肆”有所约束。而对每一个人都有一定约束效力的东西，这就说到了公共事务，也就是政治。
 
-班农先生
-is about Mr. Bannon
+所以，自由这个词天然和人的公共事务（政治)脱不了干系。于是就索性加一个政治在自由前面。那么，我们应该怎么去解释和理解政治自由呢？前面说到了公共生活中为了避免战争状态，而必须要有的约束，也就是对所有人都适用的游戏规则（Rules)–法律。所以我们可以说政治自由就是在一个对全体群体生活成员都适用法律（Rules游戏规则)体系之下的自由。
 
-42天前我告诉班农先生
-I told Mr. Bannon 42 days ago
+那么问题又来了，谁来制定这个法律体系？谁来执行这个法律体系？谁来监督这个法律体系真的按其中所说的执行了？答案很简单，就是这个法律体系所约束的所有成员。而且很自然的，所有的成员都应该具有同等大小的权力来参加这些事务。
 
-我说共产党和美国这块
-I said that the CCP and the United States (Biden Administration)
+但由于人与人之间即使不是出于恶意，也不可能所有看法都相同，所以为了避免陷入战争状态，只能理性地选择少数服从多数。其次，随着群体生活成员的增多，成员们不可能就所有具体的事务都进行直接参与和表决，也不可能所有成员都真正直接参与法律的制定、执行、对执法者的监督。所以，必然就有了处理相关事务的专家，成员们也只有通过投票的方式委托他们认为可信的专家进行这些事务的处理。
 
-一定会把你战斗室给你干掉
-would definitely destroy your War Room
+因此，我们可以说：当一个参与了群体生活的人，如果他只需要服从他与所有其他成员都平等地参与制定的法律，而不需要服从群体中某个人的意志的时候，那么他就是政治自由的。这样的群体，我们称之为法治自由的社会。也是我们追求的理想目标。
 
-而且通过法院
-via court
+然而，这样的政治自由，可不是我说起来那样简单就可以得到的。为什么呢？原因就在构成群体的每一个人身上。所以，说到政治自由，最终又要回到每一个人身上来。
 
-怎么样？法院
-What happened? Through the court system
+我们先来看看我们每一个人的共同处境。由于人都是有肉体的存在，而肉体不仅给人带来了死亡（衰老）恐惧，更带来了淫乱，骄傲，虚荣，嫉妒……这些罪恶的欲望。为了满足这些的欲望，我们排斥造物主给与我们的公义之心，同理之心，怜悯之心，理智，甚至最基本的常识。每个人都顽固地喜欢开篇说到过的那种最简单粗暴的放肆式的“自由”，人们就是喜欢任意而为，不停地犯罪。
 
-1月6号
-on January 6th (incident)
+因此，世界的现实就如《圣经》里所说“没有人行善，一个也没有。他们的喉咙是敞开的坟墓，舌头上尽是诡诈，嘴唇有蛇的毒液，满口咒诅，言语恶毒；杀人流血，脚步飞快；所到之处，大肆毁灭。(罗马书 3:12-16 )”。
 
-下个就是川普
-The next target will be Trump
+那这带来了什么结果呢？如耶稣基督所说：“我实实在在地告诉你们，所有犯罪的人都是罪的奴隶。”(约翰福音8:34 )我们所有人都因为从肉体而来的败坏，做了罪的奴隶，都被从肉体而来的罪恶欲望奴役着。因此，若一个社会每个人都只顾“放肆”地去满足自己的欲望，做罪的奴隶，那怎么可能会有与之相反的法治自由呢？就像我们没办法用沙子做出面包来一样。耶稣基督也说“好树不结坏果子，坏树也结不出好果子来”。
 
-不是我蒙的
-I didn’t make that up
+所以，若想要政治自由，首先那个社会绝大部分人要从自己罪恶欲望的捆绑里被释放，愿意接受一定的约束，最核心的是自我的约束。然而，人是无法通过自己的努力从罪恶的捆绑中挣脱出来的。因为无论我们人类怎么做，我们都不可能靠自己真正彻底战胜死亡，死亡恐惧最终会让每一个人陷入癫狂，绝望，恼怒，嫉妒等其他罪恶中。同时，无论我们自己怎么做，我们都没办法真正去爱和尊重和我们自己一样败坏“放肆”的同类，靠我们自己，他人的确就是我们自己的地狱……
 
-它是国内的情报告诉我的
-I got that from the domestic intelligence
+所以，若不是神亲自出手，人类是没办法自由的。感谢神，祂差派了自己的独生子耶稣基督给我们。正如耶稣基督自己说“如果上帝的儿子释放了你们，你们就真正自由了！”祂带来的自由是真正的彻底自由。
 
-这是中美之间黑暗的较量
-This is a dark contest between the CCP and the United States
+那么，耶稣基督到底是怎样释放我们的呢？简单的说，祂就是通过在十字架上为我们死而复活释放了我们。主耶稣基督在十字架上的受难，用自己的血遮盖了我们一切的罪和过犯，让我们从罪的控告、捆绑中解脱出来。
 
-其中, 告诉我的
-Among these,
+祂从坟墓里复活，亲自战胜了死亡，带给了全人类永生的明证，借此“释放了那些因怕死而一生做奴隶的人。(希伯来书 2:15 )”也让我们有了荣耀的盼望，能为永恒的生命，为将来与神同在的那远超过我们想象的喜乐和荣耀而活。因此，我们能从以往体贴肉体私欲的罪恶生活方式中解脱出来，因为任何对世界的贪爱、留恋，都会是罪恶的世界束缚我们的东西，会让我们不得自由。
 
-咱们的这个科学家就告诉我什么
-one of our scientists told me
+耶稣基督不仅给全人类带来了全新的生活方式和生活目的，祂还让我们能心甘情愿地服在祂“爱神，也彼此相爱”的律法之下。这律法，不是使我们成为奴隶的律法，相反，祂的律法是“使人得自由的全备律法”。(雅各书 1:25 ）我们以前都“愚蠢、悖逆、易受迷惑，受各种私欲和享乐的驱使，心里充满了嫉妒和恶念，令人憎恶，也彼此憎恨。 (提多书 3:3 )”现在却能彼此相爱相顾，相互体谅、尊重。
 
-他说我的一个学生
-that one of his students
+一个社会，若绝大多数人有了耶稣基督这从神而来的、终极的、高纬度的自由，那我们所追求的法治自由自然是立杆见影，水到渠成的事儿了。
 
-突然间我最近联络不上去了
-suddenly couldn’t get in touch with recently
+我们回过头来看看现实和历史。为什么偏偏在英美两国，相对法治自由的社会能够首先建立起来呢？我们查看罗马帝国之后英国的历史就知道，正是由于福音传到英国，让原本野蛮的安格鲁撒克逊人中有了一群虔诚为耶稣基督而活的真正自由人。这群人虔诚的生活最终影响了掌握专制权力的国王，虔诚的国王又把这从神而来的福音和自由传递给了所有同胞。随着基督精神慢慢地深入民心，国王的心和王权本身也就越来越受到福音精神的制约，最后这种制约成了明文和制度来限制王权，于是诞生了君主立宪制，英国也最终成了今天的英国，并诞生了美国。
 
-结果好嘛
-As a result, which was great,
+由此看来，个人和国家的自由都在于耶稣基督的福音，立根基在福音上的自由才是可靠的和可信的。在21世纪，华人若要想获得一定层度的政治自由，没有一大群真心接受了耶稣基督福音的华人和他们所活出的好的见证是绝不可能的。因此，爆料革命中的基督徒战友们实在是任重道远。因为我们活出的给耶稣基督的见证，不仅决定着我们自己、也决定着中国和世界未来的命运。
 
-他说我发现他出现在了美国西部
-he said he found out that he (his student) appeared in the western United States
+求神保守我们，让我们真能活出耶稣基督那样自由的生命。真正自由的生命，是不惧邪恶的生命，是施恩和给与的生命，是能爱和体谅他人的生命，是带给他人祝福的生命，是凡事都可做却不受其束缚的生命，是能随时潇潇洒洒离开这个世界与神同在的生命。
 
-不是美国，是美国的西部某国
-It’s not the United States, but a country in the west of the United States
+愿荣耀归给神，也祈求神开恩，让我们能把这份真自由带给我们深陷罪恶和苦难中的同胞，阿门 !
 
-他说我觉得这事儿不妙啊
-He said he felt that there was something not lined up
+2021年11月19日
 
-他就这么一点我
-Just by this hint
+（本文仅代表作者个人观点）
 
-我一下就明白了
-I suddenly realized that
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1.jpg)
 
-我说坏了，坏了，又要出事儿
-something wrong must have happened again
+*编辑 /校对*：德州牛仔
 
-然后六中全会要开
-And then, the Sixth Plenary Session of the Central Committee will be held
+*发稿：Yuki*jiang
 
-这个时候
-At that time,
+**更多资讯，更多关注**
 
-告诉我要干掉班农的战友跟我说
-the comrade who told me the CCP would take down Bannon said
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-六中全会后
-that after the Sixth Plenary Session of the Central Committee,
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-美国等西方国家
-the U.S. and other western countries
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-又一波新的病毒变种会出来
-would have another wave of new virus variants appearing
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-那我就问咱们这个欧洲科学家了
-So I asked this European scientist
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-我说那你说这变种出来后
-I said that after this variant comes out,
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-对疫苗什么影响
-what effect will it have on the vaccine?
-
-加速疫苗的整个的所有的身体反应
-It will speed up the entire body when getting the vaccine
-
-而且会加速这个政府推广疫苗
-And will accelerate the government’s promotion of vaccines
-
-他说这就是真正的灾难的开始了
-He said this was the beginning of the real disaster
-
-哇塞，整得我浑身
-Wow, it made my entire body
-
-这真是浑身汗毛倒立呀，吓人的
-break out with goosebumps. It’s scary
-
-所以Eglise，我觉得
-So, Eglise, I have the feeling that
-
-现在真的是我们很可怕的事
-it’s really a terrible thing for us now
-
-真的是我们面临着人类最黑暗的时刻
-It’s for real that we are facing the darkest moment of mankind
-
-最黑暗的时刻
-The darkest moment
-
-就这种情况下还要给孩子打疫苗
-Under this circumstance, it is still required that children get vaccinated
-
-你能想一想
-Can you imagine
-
-那多可怕
-how terrible the outcome would be?
-
-七哥所说的咱们的情报
-What I have said is based on our intelligence
-
-到现在，运动员、飞机
-Until now, athletes, pilots, (etc.) have been affected
-
-你看多少飞机出事儿现在？
-Look, how many airplane accidents are there now?
-
-名人，死的死，瘫的瘫
-Many celebrities have died or been paralyzed from the vaccine
-
-但它往孩子身上还要打
-But it still vaccinated on our children
-
-灾难啊
-It’s disaster
-
-没法预测
-It cannot predict
-
-只有爆料革命、新中国联邦联合在一起
-Only when the whistleblower movement and the New Federal State of China united,
-
-咱们大家才真正的
-all of us could actually
-
-互相之间可能会安全
-be safe among each other,
-
-谁也不敢保证
-but no one can guarantee that
-
-只有紧紧地连在一起
-Only when we are tightly connected together it may work
-
-没有任何招
-There is no other trick
-
-千万别指望政府
-Never count on the government
-
-你也甭指望着别人
-or other people
-
-只有新中国联邦能让咱战友们安全
-Only the New Federal State of China can keep our comrades safe
-
-**原视频链接:** [https://gettr.com/post/ph08fqf847](https://gettr.com/post/ph08fqf847)
-
-Date: 11/14/2021
-原视频标题: 情报显示 中共开始再一次放毒新变种病毒出现
-Intelligence indicates that the CCP starts to once again discharge another new variant of the virus
-原视频日期：2021/11/14
-任务编号：KC263（2896）
-视频时间段 : 0:00-2:13
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+​
 
  
 

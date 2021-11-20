@@ -2,60 +2,61 @@
 ---
 
 
-## FDA 要求法院在55年内发布辉瑞 COVID-19 疫苗数据
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1678784/)
+## 2021年11月19日郭文贵先生大直播摘要——银河系
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1678815/)
 
-翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2021/11/snapshot2.jpg)
+视频连接：[文贵大直播：国际市场资金短缺；数字货币、法币及经济膨胀所带来的危害；疫苗灾难最新数据及病毒解药的进展](https://gtv.org/video/id=6197a194fcd196126f8cab91)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/pfizer-vaccine-in-hand-1200x702-700x420-1.jpg)2021 年 9 月 21 日，一瓶 5 剂辉瑞 COVID-19 疫苗在加利福尼亚州洛杉矶举行。（Frederic J. Brown/AFP via Getty Images）
+1、吴征是双性恋 这小子是当女性那种；
 
-美国食品和药物管理局 (FDA) 于 11 月 15 日要求联邦法官，在 2076 年之前完全公布其拥有的与批准辉瑞-生物科技 COVID-19 疫苗相关的文件。
+2、CCP病毒目的是摧毁世界经济和美元，中共一门心思想把美元干掉
 
-作为信息自由法 (FOIA) 诉讼的一部分，FDA 的请求是由医疗透明度组织在一份文件中提出的。政府告诉法庭，它有 329,000 页的文件响应 FOIA 的要求，并提议每月发布 500 页以允许编辑豁免材料。按照这个速度，FDA 将在不到 55 年的时间内完全公布有问题的记录。
+3、美国3个百姓绝不允许:
 
-原告“公共卫生和透明医疗专业人员”(PHMPT)是一群医生和科学家，其中包括耶鲁大学公共卫生学院流行病学教授哈维·里施（Harvey Risch）。
+（1）油价，永远不超过4美金一桶的油价。超过了，政治大变；
 
-在 FDA 拒绝了他们加快发布记录的请求后，该组织提起了诉讼 。原告和被告无法就披露时间表达成协议，正在寻求举行听证会，在法官面前辩论他们的案件，法官最终可能会就此做出决定。
+（2）面包价格，只要超过1.2美元，老百姓就反了；
 
-“FDA 对透明度的承诺，委婉地说，是一堆幻想，”Aaron Siri 于 11 月 17 日在一篇博客文章中写道，他的公司在诉讼中代表 PHMPT(Public Health and Medical Professionals for Transparency)。
+（3）天然气和电，超过历史均价的20%，经济大变；
 
-“从辉瑞开始制作许可记录到 FDA 批准辉瑞疫苗，FDA 用了整整 108 天，”Siri 继续说道。“按照 FDA 的话，它对这些文件进行了密集、有力、彻底和完整的审查和分析，以确保辉瑞疫苗在获得许可时是安全有效的。虽然它可以在 108 天内对辉瑞的文件进行如此严格的审查，但它现在需要超过 20,000 天的时间才能向公众提供这些文件。”
+4、币安赵长鹏在新加坡到处敲门诋毁喜币，结局一定和王健一样；
 
-FDA 没有回应置评请求。
+5、区块链技术 ：任何政府都管不了 ，它是一种记账的方式 ，互相就可以买东西了 。去中心化 ，没有第三方 、不需要”妈咪”、不需要”银行”、不需要”信用卡”；
 
-FDA于 2021 年 8 月 23 日以 Comirnaty 标签许可辉瑞 COVID-19疫苗，距辉瑞开始提交该药物的全面批准文件不到四个月。**FDA ****于**** 8 ****月下旬批准了该许可证，导致私营和公共部门大量使用疫苗。**
+6、迪拜房地产公司接受喜币 ，也接受喜美元 ，是喜币上市后最具标志性的事情 。把数字货币变成比法币还有信用的货币；
 
-本月早些时候，参与辉瑞疫苗试验的其中一家公司表示，它正在调查一名举报人揭露的所谓问题，该举报人告诉《英国医学杂志》 (BMJ)，该试验充斥着问题，包括数据造假。
+7、在加拿大用加币、在韩国用韩币，世界上的法币都是地域强迫的被动式使用，而喜联储是用户主动信任的货币；
 
-举报人布鲁克·杰克逊（Brook Jackson）向 FDA 发出警报，之后在数小时内被解雇。杰克逊在“文塔维亚” Ventavia 研究集团工作，该集团于 2020 年秋季运营了几个辉瑞试验站点。
+8、未来喜币一定会超过比特币 ，而且比特币绝对不是2100万个 。喜币你看到的信息都是真实的 ，有没有可能有同样的第2套系统？
 
-根据世界上最古老的医学期刊之一 BMJ 的说法，尽管 FDA 对这些问题发出了警告，但并未检查 Ventavia 的试验地点。
+9、疫苗灾难改变了一切，世界发生的一切改变都会是因为疫苗，打了疫苗青蒿素管用；
 
-FDA 在本月早些时候在一封电子邮件中告诉《大纪元时报》，虽然它不能对 Ventavia 问题发表评论，但它“对用于支持辉瑞-生物科技 COVID-19 疫苗授权和 Comirnaty 批准的数据充满信心。”
+10、科学就是某种范围内在某种条件下对某种事物可认知的 、科学就被否定的 、被怀疑的 ，而且它是一定条件下对物质世界的一种定义 、对精神它没法定义；
 
-截至 11 月 14 日，辉瑞的 COVID-19 疫苗已在美国接种超过 2.56 亿剂。
+11、为什么七哥对精子卵子感兴趣 ，一个小小精子卵子能带着先祖的基金因。人死了 ，精子卵子通过后代还在传递信息。精子卵子都是带微电波的 ，当初咱们就是精子卵子中最强的相遇 、才得到生命 。微电波是啥 ？那就是灵魂；
 
-**评论：**
+12、明天11.20还有大直播；
 
-- **“FDA 于 8 月下旬批准了该许可证，导致私营和公共部门大量使用疫苗。”但所谓的**Comirnaty 标签许可的辉瑞 COVID-19疫苗并没有生产！政府用“许可”强迫人们接受的是没有许可用于紧急情况的疫苗！政府和FDA可以这样明目张胆违法吗？
-- **FDA现在强制人们接受试验毒疫苗，难道现在不是最好的时刻，彻底公布“辉瑞 COVID-19 疫苗数据”，让人们对它到底是什么东西有信心接受吗？**
-- **为什么这届美国政府可以违宪行事，而且是违宪杀害全国人民？**
-- **是谁给了FDA主宰人民命运的权利？人民没有选举FDA 或CDC！**
-- **如果法官不能遵守宪法主持公道，为什么让他们终身坐在裁判人民生命的位置上？**
-- **我们必须思考才能找出未来的答案！**
+编辑整理：文俊
 
+发布：黎明之前
 
-**参考资料：**[theepochtimes][FDA Asks Court for 55 Years to Fully Release Pfizer COVID-19 Vaccine Data](https://www.theepochtimes.com/mkt_morningbrief/fda-asks-court-for-55-years-to-fully-release-pfizer-covid-19-vaccine-data_4110761.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-11-19&amp;mktids=979a9fa29183704770db0a1226d1cd5b&amp;est=7txshA4mYuC6fya9UWiQy3YcNfPCcITOj%2Fh3%2FmI1nD1bGCq1P8FcQM0UYugH%2BHYFbcoodw%3D%3D)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
 
-* * *
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

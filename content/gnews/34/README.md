@@ -2,28 +2,51 @@
 ---
 
 
-## 比尔-盖茨和默克公司想干什么？
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1678352/)
+## 数百名接种两剂疫苗的加拿大士兵在新冠爆发期间被隔离
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1678493/)
 
-**作者： Rosemary**
+作者：Dakota Christensen
+翻译：HimaBoy
 
-11月9日，比尔-盖茨警告说，生物恐怖主义可能是一个比自然发生的流行病更大的威胁。他警告各国政府要为天花”SMALLPOX “恐怖袭击和未来的大流行病做好准备，在研究和开发方面需要投入数十亿美元。盖茨先生是在接受Policy Exchange采访时发表上述言论的，采访对象是卫生专门委员会主席杰里米-亨特。他说，像美国和英国这样的国家必须花费 “数百亿 “来资助研究，并补充说，虽然这可能很昂贵，但它可能会导致流感和普通感冒的根除。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-39-e1637352671396.png)
 
-八天后，11月17日晚上在费城外默克公司的一个制药实验室发现的15个小瓶–包括5个令人震惊的标为 “天花 “”SMALLPOX “的小瓶。10个小瓶贴有用于制造天花疫苗的病毒的 “疫苗 “标签，是由一名正在清理冰柜的实验室工作人员发现的。在被发现后，这些小瓶被立即保护起来，并对该设施进行了封锁，到周三晚上解除了封锁。默克公司没有立即回应DailyMail.com的评论请求。联邦调查局展开了紧急调查。
-![上图是2003年的一瓶天花疫苗.](https://assets.gnews.org/wp-content/uploads/2021/11/Vial.jpg)
-天花仅在20世纪就造成约3亿人死亡，随着一次成功的大规模疫苗接种运动，天花在1980年被根除。这种致命病毒的样本只应该保存在两个实验室里：亚特兰大的CDC总部和俄罗斯Koltsovo的Vector研究所。
+据CTV 新闻报道，在一次大型训练演习后导致许多新冠阳性病例后，CFB 佩塔瓦瓦的数百名士兵被隔离。
 
-天花是一种严重的、威胁生命的疾病，由变种病毒引起。一个人在接触后的7到14天内可能不会看起来或感到不适，但最初的症状包括高烧、头痛、背痛和呕吐。约有三分之一的人感染该病后死亡。在最初的症状之后，会出现全身性的皮疹。在这个阶段，患者的传染性最强。皮疹出现在舌头、口腔和喉咙。然后扩散到面部和手臂、躯干和腿部。充满脓液的疙瘩，也称为脓疱，形成后开始结痂，并在大约10天的时间内掉落。它主要是通过呼吸道微粒导致的长期面对面的传播。该病毒还通过共享床单、毛巾和衣服传播。 大多数美国人没有接种过这种疾病的疫苗，那些接种过疫苗的人的免疫力可能正在减弱，这意味着一旦爆发可能会产生破坏性的后果。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Merckbiulding.jpg)
-这是发现天花的在默克公司位于费城外的Upper Gwenydd工厂
-![](https://assets.gnews.org/wp-content/uploads/2021/11/twoloc.jpg)
-这两个机构没有立即回应DailyMail.com的评论请求。
+训练演习于 11 月 13 日至 14 日在安大略省佩塔瓦瓦举行，迄今已导致至少 7 例士兵阳性病例和 3 例士兵平民家庭成员阳性病例。
 
-参考链接：
+直接和间接参加培训活动的每个人都接种了两针新冠疫苗。
 
-[https://www.independent.co.uk/news/science/bill-gates-smallpox-terror-attack-b1958789.html](https://www.independent.co.uk/news/science/bill-gates-smallpox-terror-attack-b1958789.html)
+“当发现一个阳性病例时，该人被隔离，然后我们进行了接触者追踪，”加拿大第 2 机械旅大队指挥官埃里克兰德里上校说。“所有与该人密切接触的人都被要求隔离。”
 
-[https://www.dailymail.co.uk/news/article-10215345/FBI-launches-probe-SMALLPOX-Merck-facility-cleaning-freezer.html](https://www.dailymail.co.uk/news/article-10215345/FBI-launches-probe-SMALLPOX-Merck-facility-cleaning-freezer.html)
+训练涉及 373 名士兵在户外密切合作，以及另外 100 人在更远的后方作战。
+
+据报道，伦弗鲁县和地区卫生部门也在跟踪社区中的 10 名高危接触者，并监测另外三名出现症状的士兵。代理卫生官员罗伯特·库什曼博士说，他不希望看到更多阳性病例，并担心会传播到更大的社区。
+
+“如果将平民家属考虑在内，这个数字会很大，”库什曼博士说。“我们正在谈论很容易接近一千人。”
+
+本周早些时候，《华尔街日报》 报道称，尽管 100% 的球员接种了疫苗，但在 40% 的球队检测出新冠呈阳性后，渥太华参议员 NHL 球队已将赛季暂停至至少 11 月 20 日。
+
+在另一个类似的例子中，直布罗陀国家由于对来访的外国人进行了新冠注射，其疫苗接种率超过 100%，但却取消了“一些自己的活动，包括官方圣诞派对、官方招待会和类似的聚会，”由于最近新冠病例数的增加。尽管该国成功地向所有人口甚至更多人进行了新冠注射，但该国仍然强制要求在所有室内公共场所戴口罩并保持距离。
+
+来源：https://www.rebelnews.com/all\_double\_vaccinated\_hundreds\_of\_canadian\_soldiers\_in\_quarantine\_amid\_covid-19\_outbreak
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
