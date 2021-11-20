@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/20/2021 1:08 AM (UTC)`
+
+11/19/2021 Miles Guo: The collapse of the CCP’s real estate is going to trigger the collapse of the Western economy; the core task of the New Federal State of China is to save people with truth; the CCP sent Changpeng Zhao to attack the Himalaya Coin just like how they had attacked the Whistleblowers’ Movement in the past, and Zhao will end up in the same way as Wang Jian<br/><br/>11/19/2021 文贵直播：中共房地产崩溃将引发西方经济崩盘；新中国联邦的核心要务是以真相救人；中共派赵长鹏攻击喜币跟其过去对爆料革命的攻击如出一辙，赵长鹏的结局会跟王健一样<br/>
+![img](https://media.gettr.com/group19/getter/2021/11/20/01/08/dbbf38a5-b14d-cca9-e861-bb43662b01ec/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@megapatriotnews 11/19/2021 6:46 PM (UTC)`
@@ -297,13 +304,6 @@ Shop 'The Drop' at www.GFashion.com<br/><br/>@gfashion <br/>@ddnyc
 
 11月15号：应战友们的要求……发一个SNOW 的小视频🤪
 ![img](https://media.gettr.com/group11/getter/2021/11/16/01/27/e6af9d97-002f-9d07-9de0-9c20fdca1ee1/out.jpg)
-
----
-
-`@miles 11/15/2021 11:37 PM (UTC)`
-
-11/15/2021 Miles Guo’s GETTR: The CCP's digital RMB (DCEP) will surely be disastrous, while the great financial system of the New Federal State of China has emerged right in time; when the CCP cannot control the currency, it won’t be able to slaughter the 1.4 billion Chinese people or take over TSMC<br/><br/>11/15/2021 文贵盖特：中共的数字人民币必将是一场灾难，而新中国联邦的伟大的金融系统却在此时应运而生；当中共无法控制货币时，它将无法屠戮14亿中国人或接管台积电<br/>
-![img](https://media.gettr.com/group1/getter/2021/11/15/23/37/e5c50f3b-78cc-3a40-09af-1e9d10b2b54a/out.jpg)
 
 ---
 
