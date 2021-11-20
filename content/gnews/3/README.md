@@ -2,38 +2,36 @@
 ---
 
 
-## DC每日热点1120
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1680502/)
+## 麦克库罗医生提告医疗期刊公司
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1680554/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5DC6ACEE-3E54-4367-B217-BCB108C69705-scaled.jpeg)
-道琼斯指数 35601.98 ▼0.75%
-纳斯达克指数 16057.44 ▲0.40%
-WTI纽约原油CFD 75.621 ▼3.56%
-布伦特原油CFD 78.599 ▼0.37%
-标普中概股50指数 3,581.09CNY▼-26.82%
-美元兑人民币 1USD=6.387RMB
-美元兑港币 1USD=7.791HKD
-国际黄金 1845.74 美元/盎司
-全球CCP病毒感染人数 257,130,507 例
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月19日，相关媒体报道称，美国心脏科医生麦克库罗控告爱思薇尔期刊出版社掩盖新冠疫苗真相。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-20-下午10.45.47.png)圖片來源：2017年，石正麗在武漢病毒研究所。CHINATOPIX，VIA ASSOCIATED PRESS
+据悉，爱思薇尔期刊出版社于今年10月撤稿一篇题为“新冠疫苗造成心肌炎”的论文，该论文的作者即为麦克库罗医生。医生表示，爱思薇尔期刊原本已经刊登此篇论文，后因FDA正在讨论紧急授权5至11岁儿童使用新冠疫苗的问题，该期刊撤稿了此篇论文。医生认为，这种行为违反合约。因此，医生将对该期刊公司进行全面性的法律诉讼。
 
-1、美国欲打造新的印度太平洋区域经济框架，以有效应对中共在该地区日益增长的实力
-2、中共施压日议员反弹强烈 日本版《与台湾关系法》端上台
-3、拜登接受例行体检后 医生宣布他身体健康能够胜任职责
-4、美两党议员推出法案 呼吁让台湾在国际货币基金组织拥有席位
-5、FDA及CDC顾问组批准所有美国成年人接种辉瑞与莫德纳新冠疫苗加强针
-6、美宣布副国务卿率团参加美台经济繁荣伙伴对话
-7、美众议院按党派划线通过大型社会保障与气候变化支出法案
-8、国际货币基金组织敦促中共“明确而协调”地应对金融风险
-9、美国就菲船遭中共国攻击发出警告，北京不要无视美菲共同防御条约
-10、安倍主张日本加强与“奥库斯(AUKUS)”安全合作伙伴合作，共同应对中共国扩张
-11、新冠病毒溯源调查尚未结束，一美国研究员刊文指武汉华南海鲜市场可能是新冠疫情的起源地
-12、中共国驻澳大利亚临时代办批澳寻求核潜艇“捣蛋” 遭澳方反唇相讥“愚蠢”
-13、香港恒生指数把恒大从中共国企业指数中剔除
-14、奥地利全国22日重新封城
-15、比利时强制医护接种疫苗 工会反弹拟发动罢工
-16、跟进美国 英议员联名要求约翰逊外交抵制北京冬奥
+另据麦克库罗医生称，爱思薇尔要对公众及科学界隐瞒这一重要研究的原因在于，真正的科学已经驳斥了这些实验性新冠疫苗所自称的 “安全性”和 “有效性”。医生指出，因注射新冠疫苗导致的心肌炎通常在注射第二剂辉瑞或莫德那疫苗后的数天内爆炸性发生。
 
+麦克库罗医生强调，爱思薇尔期刊公司拥有全系列的医学期刊，掌控了绝大部分医学论文的发言权。因此，该公司对医学论文的不当审查行为，涉嫌掩盖有关新冠疫苗信息的真相。而这种审查方式是对科学的戕害。
+
+参考链接：
+1）[Dr. McCullough sues Elsevier journal for refusing to publish study highlighting risks of covid “vaccination” in children](https://www.newstarget.com/2021-11-18-mccullough-sues-elsevier-study-covid-vaccines-children.html)
+2）[COVID-19 vaccine-myocarditis paper to be permanently removed: Elsevier](https://retractionwatch.com/2021/10/25/covid-19-vaccine-myocarditis-paper-to-be-permanently-removed-elsevier/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

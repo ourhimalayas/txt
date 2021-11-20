@@ -2,48 +2,20 @@
 ---
 
 
-## 新南威尔士州居民被警告要为洪水做好准备
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1680175/)
+## 秘翻在线：【独家报道】日本尖端临床医学会学术大会提及伊维菌素
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1680249/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+撰稿：待命（文暁）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image1-8-scaled.jpg)（图片由本文作者现场拍摄）
+11月20日，笔者参加了日本尖端临床医学会在东京举办的学术会议。会议为期两天，将由多名尖端医学研究专家和医生发表研究成果。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/3271.jpg)
+今天是第一天，有六位医疗专家学者发表了学术研究报告。其中最吸引人的是，癌症的高分子疗法、维生素C的点滴疗法、中共病毒的防治以及对疫苗的态度。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-40-scaled.jpg)（图片由本文作者现场拍摄）
+关于中共病毒的防治，如本文图片所示，提到了维生素C、D，锌片、硒、镁，伊维菌素的有效性。这与新中国联邦发布过的相关消息基本一致。
 
+关于疫苗，点滴疗法研究会会长柳泽厚生先生说：关于中共病毒疫苗，目前有反对派、有赞成派，我们是慎重派。
 
-
-图片来源：www.theguardian.com
-
-
-编译：小红帽
-
-新南威尔士州的居民被警告要为可能发生的洪水做好准备，因为预计明天该州部分地区将出现恶劣天气。
-
-周日有冰雹、强风、大雨和可能发生的洪水的警告。
-
-新南威尔士州紧急服务局(NSW SES)已经警告居民要做好准备，以应对恶劣天气。
-
-气象局（BoM）建议，蓝山和新州东北部地区可能出现雷暴。
-
-Weatherzone昨天说，”周日该州的降雨量预计在20-40毫米之间，而一些地区可能会出现50-100毫米的降雨量，特别是有雷暴天气”。
-
-新南威尔士州紧急服务中心助理专员妮可·霍根（Nicole Hogan）补充道，恶劣的天气可能导致山洪爆发。
-
-上麦金泰尔（Upper Macintyre）、格威迪尔（Gwydir）、皮尔（Peel）、卡斯特里（Castlereagh）、贝鲁布拉（Belubula）和麦考瑞（Macquarie）至巴瑟斯特（Bathurst）已经发布了洪水警报。
-
-新南威尔士州的的紧急服务中心敦促人们避免开车、步行或骑车通过洪水。
-
-我们还建议居民为暴风雨做好准备，包括将汽车远离树木和电线，捆绑好后院的松散物品并清理排水沟。
-
-**参考新闻：**[NSW Weather: NSW warned to prepare for flooding as extreme weather warning issued (9news.com.au)](https://www.9news.com.au/national/weather-news-ses-warning-for-severe-weather-on-sunday-in-new-south-wales/d9459150-db9f-4c49-a1ae-5a1c7f36c258)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+笔者是这样理解的。如果是赞成，跟日本政府正在推行的疫苗政策相符，完全可以直言系赞成派。如果是反对，就是跟政府唱反调了。所以，圆滑的日本学者就为自己另立一个折中的“慎重派”。可见，日本专家们完全明白有必要谨慎对待中共疫苗！
 
  
 
