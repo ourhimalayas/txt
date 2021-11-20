@@ -2,37 +2,68 @@
 ---
 
 
-## 银河快讯: 岸田首相对华“立场”令人不安；日本将放宽外国工人“永久居留”
-` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1681237/)
+## [Michael.Tonny专栏]接种CCP病毒疫苗已在欧盟造成118.1万人产生不良反应
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1681255/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-91.png)[图片来源](https://www.mizuhobank.co.jp/)
-**1.****岸田首相的对华 “立场 “令人不安**
+加拿大温哥华扬帆农场  Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/22-100.jpg)
+截止至2021年11月13日，EudraVigilance统计系统共收到四种在欧洲药品管理局所属欧洲经济区（EEA）27国推广的COVID-19（CCP病毒）疫苗已导致 1,163,356 例药物不良反应报告，其中，轻度不良反应665，751例，严重不良反应497,605例，死亡30,551例。而到2021年11月20日，该系统总共收到1,181,121例CCP病毒疫苗不良反应报告（包含死亡的数据）。
 
-[据夕刊富士 11月18日报道，岸田文雄政府对中共国的 “立场 “已经变得令人怀疑。 鉴于中共国当局在香港和维吾尔地区犯下的侵犯人权行为，日本版的《马格尼茨基法案》一直在考虑之中，该法案将对海外的侵犯人权行为进行制裁，但据报道岸田首相决定暂时不实施该法案。 第二届岸田内阁在启用政界中屈指可数的亲共政治家外相林义正的同时，任命积极推动立法的前防卫大臣中谷元担任 “国际人权问题首相助理 “以试图达到平衡。](https://news.yahoo.co.jp/articles/a5407601f027bed985b050d4939d085b4454ce6d)
+这四种疫苗是：BioNTech/ Pfizer的mRNA疫苗Tozinameran，Moderna的mRNA疫苗mRNA-1273，Johnson & Johnson的疫苗JANSSEN，Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA 。
 
-**2.****日本政府将扩大14个行业中外国工人的 “永久居留”身份**
+EudraVigilance统计系统是欧洲药品管理局设立的一个旨在收集欧盟 (EU)国家疑似药物副作用报告和用于评估药物开发过程中的益处和风险，并在药品获得授权后监测其安全性的报告统计系统（[EudraVigilance-European database of suspected adverse drug reaction reports](https://www.adrreports.eu/en/search_subst.html)）。民众可以登录ADRreports.eu网站，查看疑似副作用报告的总数（Individual Case Safety Reports或ICSRs）。
 
-[据时事通讯社11月18日报道，政府决定取消 劳动力严重短缺的14类”特殊技能 “外国技术工人的在留期限。这将扩大可以获得永久居留权的外国工人的范围，包括农业、制造业和服务业等广泛的领域。 政府决定将在下一财政年度结束前审查该系统。](https://news.yahoo.co.jp/articles/8c9ac64544318bd89d9ec7bb39ed26abf22d6ef2)
+这些数据是由欧盟(EU)各国药品监管机构和持有药品上市许可（执照）的制药公司以网络报告方式（electronically）提交给EudraVigilance的。
 
-**3.****美国要求日中等国释放库存，油价短暂暴跌**
+持有药品上市许可的制药公司以及欧盟国家的药品监管机构，依法必须向EudraVigilance 提交疑似副作用报告。包含从医疗、保健专业人员和患者那里收到的报告，但不包括在欧盟之外发生的非严重副作用，也不包括研究报告（例如临床试验、非干预性研究）或其他类型的报告（仅自发报告）。
 
-[据朝日新闻 11月18日报道，美国拜登政府已要求中共国、日本和其他国家考虑与美国合作释放石油。全球经济活动的恢复促进了对原油的需求，但由于主要产油国组成的欧佩克不愿意增加产量，WTI期货在10月底创下七年来的85美元高点。内阁官房长官在周三的新闻发布会上拒绝评论，只是说，”日本和美国每天都在交换各种信息，但我不想对每一个信息进行评论。“经济产业省没有澄清美国是否提出了要求，但表示只有在冲突或灾难导致供应短缺的情况下才能释放国内库存。](https://news.yahoo.co.jp/articles/dabfa9b4d9076d8dc09bda9c9332ab7f0e2f2fbd)
+必须报告的副作用包括：(i) 导致死亡，(ii) 危及生命，(iii) 需要住院或延长现有住院时间，(iv) 报告者认为会导致持续或严重的残疾/丧失能力，(v)先天性异常/出生缺陷，或 (vi) 导致其他一些重要的医学病症。
 
-**4.****日本外相表示台湾海峡的和平很重要**
+必须强调的是，EudraVigilance维护的数据库仅包括属于欧盟27个国家。这意味着，如果我们将欧洲50来个国家都包括在内，CCP病毒疫苗导致的不良反应病例会多得多。
 
-[据共同社 11月18日报道，日本新任外相林义正周四与中共国外长王毅通话，表示台湾海峡的和平与稳定很重要，并对北京派出船只多次侵入钓鱼岛附近日本水域表示担忧。他还表达了对香港和新疆地区的人权问题的 “严重关切”。据参会官员称，在与林义正交谈时，王毅提到了本周早些时候习近平与美国总统拜登的虚拟会晤，并表示北京与华盛顿有 “健康的沟通”。](https://english.kyodonews.net/news/2021/11/1eb320146247-urgent-japans-new-foreign-minister-speaks-by-phone-with-china-counterpart.html)
+根据EudraVigilance系统统计数据显示，CCP病毒疫苗导致的副作用（死亡或药物不良反应）包括：血液和淋巴系统疾病；心脏疾病；先天性、家族性和遗传性疾病；听力系统疾病；内分泌失调；眼部疾病；胃肠道疾病；一般疾病和给药部位疾病；肝胆疾病；免疫系统疾病；易被感染或侵染；受伤、中毒和手术并发症；代谢和营养障碍；肌肉骨骼和结缔组织疾病；良性、恶性和未指明的肿瘤（包括囊肿和息肉）；神经系统疾病；妊娠、产褥期和围产期疾病；精神疾病；肾脏和泌尿系统疾病；生殖系统和乳房疾病；呼吸、胸部和纵隔疾病；皮肤和皮下组织疾病；；外科和医疗程序；血管疾病，等等。
 
-**5.****将有5000亿日元专门用于建设疫苗研发生产基地**
+截至2021年11月13日，四种疫苗导致的不良反应具体数据如下：
 
-[据NNN 11月19日报道，作为经济措施之一，政府已决定建立一个疫苗研究和生产基地，以加强国产疫苗的发展，并为此拨款5000亿日元。该研究和开发基地将在国家研究和开发公司–日本医学研究和开发机构（AMED）下建立，AMED将有超过2500亿日元的基金来支持这些活动。 政府预计将补贴新设施成本的90%左右，并计划拨出约2300亿日元用于生产基地的建设。](https://news.yahoo.co.jp/articles/c1f953143a3ffc32d19b7e9f5efbbe685ae34778)
+BioNTech/ Pfizer的mRNA疫苗Tozinameran（代码 BNT162b2，Comirnaty）：14,303 例死亡和562,213 例不良反应
 
-**6.****日本政府将创纪录地用4880亿美元刺激经济**
+Moderna的mRNA疫苗mRNA-1273(代码CX-024414)：8,385例死亡和155,793例不良反应
 
-[据共同社 11月18日报道，日本将花费创纪录的55.7万亿日元（4880亿美元）用于经济刺激计划，旨在缓解中共病毒大流行带来的影响。该计划包括对私营企业资助的政策，如将78.9万亿日元用于向陷入困境的企业提供紧急银行贷款。岸田内阁将于周五批准该方案。该财政支出从早先的约30万亿日元扩大，包括政府的 “财投 “投资和贷款计划以及地方政府的支出，将大于去年4月首相安倍晋三政府制定的48.4万亿日元的类似方案。](https://english.kyodonews.net/news/2021/11/dc3d075f2e8a-breaking-news-japan-to-spend-record-557-trillion-yen-for-economic-stimulus.html)
+Johnson & Johnson的疫苗JANSSEN（AD26.COV2.S）：1793人死亡和37038不良反应
 
-【日本银河系农场-阿尔法星球】
-作者：Totoro
-校对：Tagomi
+Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA (CHADOX1 NCOV-19)：6,070 人死亡和408,312例不良反应
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture4.jpg)
+截止到2021年11月20日，EudraVigilance收到的BioNTech/ Pfizer、Moderna、Johnson & Johnson、Oxford/ AstraZeneca四种疫苗不良反应报告（包含死亡）分别为：574,427例、158,401例、410,479例、37,814例。
+
+11月20日，Moderna的mRNA疫苗mRNA-1273的不良反应报告统计
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-21.jpg)
+11月20日，BioNTech/ Pfizer的mRNA疫苗Tozinameran（代码 BNT162b2，Comirnaty）的不良反应报告统计
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture2-3.jpg)
+# 
+
+11月20日，Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA (CHADOX1 NCOV-19) 的不良反应报告统计
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture3-1.jpg)
+11月20日，Johnson & Johnson的疫苗JANSSEN（AD26.COV2.S）的不良反应报告统计
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture5.jpg)
+参考资料：
+
+[EXCLUSIVE: European Medicines Agency Data Shows 1,163,356 Adverse Drug Reactions and 30,551 Fatalities by COVID-19 Vaccinations](https://www.thegatewaypundit.com/2021/11/european-medicines-agency-data-shows-1163356-adverse-drug-reactions-30551-fatalities-covid-19-vaccinations/)
+
+[EudraVigilance-European database of suspected adverse drug reaction reports](https://www.adrreports.eu/en/data_source.html)
+
+[Important information to consider before looking at ADR reports for the COVID-19 vaccines](https://www.adrreports.eu/en/covid19_message.html)
+
+[Number of individual cases identified in EudraVigilance received over the last 12 months and overall for COVID-19 MRNA VACCINE MODERNA (CX-024414) (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages)
+
+[The number of individual cases identified in EudraVigilance for TOZINAMERAN is 574,427 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42325700)
+
+[The number of individual cases identified in EudraVigilance for COVID-19 VACCINE ASTRAZENECA (CHADOX1 NCOV-19) is 410,479 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40995439)
+
+[The number of individual cases identified in EudraVigilance for COVID-19 VACCINE JANSSEN (AD26.COV2.S) is 37,814 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42287887)
+
+（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+
+编审：文敏      发布：文敏
 
  
 
