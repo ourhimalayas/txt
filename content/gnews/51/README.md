@@ -2,26 +2,26 @@
 ---
 
 
-## 美台军事合作 台湾空军拥有全球最多F-16V先进战机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678173/)
+## 澳洲总理敦促各州回归正常生活
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678178/)
 
-作者：东京樱花团 – 在远方
+作者：纽约香草山文艺部 – 宁文静
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-323.png)
-当地时间11月18日，台湾空军在嘉义空军基地举行美国F-16V战机接装典礼。总统蔡英文主持了典礼，称这次美台的国防工业合作，代表了美台伙伴关系的坚定承诺。她表示，只要坚守民主自由的价值，就会有更多理念相近的国家，跟台湾站在一起。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-35.jpg)
-据报道，待采购订单全部交付后，台空军将拥有207架，成为全球拥有此款先进战机数量最多的一支空军。F-16V战机担负了战备任务，为了对抗中共军事威胁，该机进行了改进和升级，性能不断提升。加上隐身、新式雷达和配备的新型武器，使战力提升了一代，进入了四代半战机的行列。
+11月18日，澳大利亚总理斯科特·莫里森接受媒体采访时，敦促澳大利亚各州和地区领导人后退一步，让澳大利亚人回归正常生活。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-21.jpg)
+莫里森指出，澳洲是个拥有安全渡过大疫情的强大经济体，在过去一年多以来，地方政府一直在指导澳大利亚人该怎么做，但现在是时候让政府退后，把自由还给民众，回归正常的生活。这是联邦工作计划中的重要任务之一。
 
-就在典礼举行的同时，中共军机进入台西南防空识别区进行挑衅，被台湾空军“在空警戒并广播驱离”。
+对于目前一些州激进的强制疫苗政策，莫里森说，“我们不赞成由政府强加的强制性疫苗。企业可以根据法律做出自己的选择，但我们不是要告诉他们做什么，或告诉澳大利亚人做什么。无论是否接种疫苗，人们应该可以在布里斯班喝杯咖啡。”
 
 参考链接：
 
-- [中国军事压力催生一支全球拥有F-16V战机最多的空军](https://www.voachinese.com/a/Taiwan-deploys-first-advanced-f-16v-fighter-squadron-20211118/6318249.html)
+- [Morrison calls on states to allow Australians “to have their lives back”](https://www.9news.com.au/national/covid-19-morrison-calls-on-states-to-allow-australians-their-freedoms/320c9fd8-824d-4978-ada0-e14bc04250e3)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
 
-总编：AN
-编辑：DN
+总编：Irene木木
+编辑：Ivy001
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

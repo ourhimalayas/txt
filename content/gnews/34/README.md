@@ -2,45 +2,50 @@
 ---
 
 
-## 陪审团最终判决所有媒体都有罪
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1679451/)
+## 日本希望加入奥库斯（AUKUS）的行列
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1679475/)
 
-2021 年 11 月 19 日
+**翻译：文扬
+整理：热锅小蚂蚁**
 
-翻译报道：沉默老歌
-![Here&#039;s what happened the first week of the Kyle Rittenhouse trial : NPR](https://media.npr.org/assets/img/2021/11/05/ap21309588152126_custom-d59aabf6840572e69156c1834f1274f8efeb71c6-s1100-c50.jpg)图片来源：Sean Krajacic via the Internet
-在一项令检方、辩方和法官都感到惊讶的裁决中，里顿豪斯审判（The Rittenhouse Trial）的陪审团宣布媒体在所有罪名上都被判有罪。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/日本.jpg)图片来源：Financial Review
 
-当陪审团长站起来宣读判决书时，法庭陷入了沉默：“我们陪审团认定媒体在所有指控上都有罪，包括严重利用其影响力向美国人民撒谎。”
+**东京消息 ：**日本前首相安倍晋三呼吁加强与澳大利亚的防务合作，并表示东京应在网络安全、人工智能和量子技术等领域与奥库斯（AUKUS)（澳大利亚、英国和美国之间的新安全联盟）安全伙伴关系合作。
 
-陪审团随后列出了对以下指控的有罪判决：
+安倍先生在日本执政联盟中仍有很大的影响力，他在新任首相岸田文雄公布数万亿日元的经济刺激计划时发表了上述评论，其中包括7700亿日元（92.5亿美元）的国防开支。
 
-- 将一个无辜的美国青少年描绘成一个白人至上主义的恐怖分子。
+“我欢迎奥库斯（AUKUS）的成立。它对促进印度-太平洋地区和平与稳定的多层次努力极为重要，”安倍先生在一个在线论坛上说，他接受了澳大利亚前总理约翰-霍华德(John Howard)的采访。
 
+“我认为，日本应该参与奥库斯（AUKUS）在网络能力、人工智能和量子技术等领域的合作。日本不是奥库斯（AUKUS）的成员，该联盟计划促进澳大利亚购买核动力潜艇。东京的国防人士说，日本有与该联盟合作的空间，特别是在技术共享能力方面。”
 
-- 将暴力的共产主义罪犯描绘成和平、无辜的受害者。
+安倍先生还说，日本与澳大利亚的防务合作应提升到一个 “新水平”。他说，所谓的四方–澳大利亚、日本、印度和美国需要合作，以加强和重建可靠的供应链。
 
+安倍先生说：“鉴于日益严峻的地区安全环境，有必要将日澳双边安全和防务合作提升到一个新水平”。
 
-- 利用其影响力在世界上最伟大的国家播下痛苦的分裂。
+他说：“日本应该增加双边演习和行动，货物、服务和关键矿产的供应链，以及经济安全，如数字和网络能力的合作，以及其他领域”。
 
+“此外，在科学和技术领域，新成立的日本-澳大利亚-印度-美国关键和新兴技术工作组正在进行讨论。 我的感觉是，在未来几个月内，日本可能能够与 奥库斯（AUKUS） 或 USEU 贸易和技术委员会在科学和技术领域的努力进行协调。”
 
-- 使用少数民族作为种族诱饵计划的棋子，只是为了收视率。
+随着事态的发展，日本和包括美国、英国和澳大利亚在内的西方盟国对中国在亚太地区日益军事化做出了回应。
 
+据共同社报道，日本计划在预算方案中为国防拨款至少 7,700 亿日元。 共同社表示，这将使 2019 财年额外预算中的 4300 亿日元相形见绌，其中包括导弹和巡逻机的支出，以及加强西南岛屿附近防御能力的支出。
 
-- 煽动对脆弱社区和少数族裔企业的暴力行为。
+日本长期以来一直致力于将其军事预算保持在国内生产总值的 1% 以内，这一数字缓解了国内外对导致其进入二战的军国主义复兴的担忧。
 
+但是，随着人们对中国在有争议的东中国海的军事行动越来越关注，执政的自由民主党在10月31日举行的选举之前，在其政策纲领中列入了将国内生产总值的2%或以上用于军事的目标。
 
-- 完全偏袒布赖恩·斯泰尔特 (Brian Stelter) 。
+日本防卫省希望获得资金用于购买可飞行超过 1000 公里的本土隐形战斗机和导弹，同时该国也在建设网络、太空和电磁战能力。
 
+新闻链接：[Japan wants in on AUKUS](https://www.afr.com/world/asia/japan-wants-in-on-aukus-20211119-p59aha)
 
-在听到判决后，法官当即判处媒体继续其收视率和信任度不可避免的下降，直到他们要么争取客观的新闻报道，要么完全消失。
+*发布：热锅小蚂蚁*
 
-裁决后，媒体立即向美国人民报告说，一名凶残的白人至上主义恐怖分子被释放，获得了 KKK 服装和火箭筒，并被告知要杀、杀、杀。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-来源链接：[The Babylon Bee:](https://babylonbee.com/news/media-found-guilty-on-all-counts/?utm_source=telegram&amp;utm_medium=link&amp;utm_campaign=telegram)[Media](https://babylonbee.com/news/media-found-guilty-on-all-counts/?utm_source=telegram&amp;utm_medium=link&amp;utm_campaign=telegram) [Found Guilty On All Counts](https://babylonbee.com/news/media-found-guilty-on-all-counts/?utm_source=telegram&amp;utm_medium=link&amp;utm_campaign=telegram)
-
-校对发布：Mu Qian
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
