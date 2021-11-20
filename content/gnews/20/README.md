@@ -2,38 +2,36 @@
 ---
 
 
-## 中共新能源大跃进，中企争夺美洲锂矿资源
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1680538/)
+## 日本外务大臣表达对港台新疆人权的关切
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1680553/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-25.png)
-[图片来源](https://cleantechnica.com/2021/01/07/cobalt-banished-from-new-lithium-ion-electric-vehicle-batteries/)
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月18日，日本新任外务大臣林芳正与中共外长王毅举行了首次电话会谈。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-20-下午10.45.03.png)圖片來源：2017年，石正麗在武漢病毒研究所。CHINATOPIX，VIA ASSOCIATED PRESS
+资料显示，林芳正于11月10日起出任日本外务大臣，并于第二日辞去日中友好议员联盟会长职务。在于王毅的电话会谈中，林芳正主要表达了日方对尖阁诸岛、东中国海及南中国海局势、香港和新疆人权问题的深重担忧。同时，林芳正还强调了台湾海峡和平稳定的重要性。林芳正还提出，希望中共尽早解除对日本食品的进口限制。
 
-近年来，中共在国内力推新能源和新能源汽车产业发展，特别是新能源和新能源汽车产业被纳入“十四五”规划后，众多中企开始加紧布局锂矿资源。宁德时代、赣锋国际、紫金矿业等电池和矿业巨头则将眼光瞄准了海外。
+分析人士指出，此次会谈反映新任日本政府，即使是知华派的外务大臣，依旧延续前政府对中共的强硬态度，未能如中共期望的那样软弱求和。
 
-北京时间11月18日，加拿大温哥华的千禧锂业(Millennial Lithium)在官网发布消息称，千禧锂业的最终收购方为加拿大锂业公司美洲锂业(Lithium Americas Corp)，双方已签订最终安排协议(下称“LAC安排协议”)，该笔交易将于2022年1月完成。此外，美洲锂业将承担应付给宁德时代的2000万美元违约金。
+参考链接：
+1）[https://www.gettr.com/post/phc2e1a6a8](https://www.gettr.com/post/phc2e1a6a8)
+2）[王毅同日本外相林芳正通电话](http://www3.fmprc.gov.cn/web/wjbzhd/t1919364.shtml)
+3）[日外相林芳正走马上任，他“亲中”还是“知中”?](https://www.voachinese.com/a/Is-Japanese-New-Foreign-Minister-Pro-China-20211112/6309050.html)
+4）[林氏、初の日中外相会談で尖閣・人権「深刻な懸念」](https://news.yahoo.co.jp/articles/436791dec7a846a74520b5d5950ec8de6aeab70f)
 
-值得注意的是，美洲锂业的大股东是赣锋锂业。赣锋锂业在2021年半年报中提及，集团持有美洲锂业12.51%的股权，虽然不足20%，但由于本集团目前派驻一名董事，对美洲锂业的经营具有重大影响。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-据LAC安排协议，美洲锂业同意以每股4.70加元的价格收购千禧锂业所有已发行和流通的股份，总交易金额为4亿美元(折合人民币约25.5亿元)。这一价格比此前宁德时代约2.97亿美元的报价高出约35%。
+总编：文徬
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-千禧锂业表示，这一交易将使千禧锂业[股东](http://data.eastmoney.com/gdfx/)拥有美洲锂业约9.1%的股份。由于宁德时代未行使匹配权，因此千禧锂业根据条款终止与宁德时代的协议并订立LAC安排协议。
-
-此外，美洲锂业已根据协议向Canada Brunp Contemporary (Investment) Inc。(CBC，加拿大邦普时代(投资)股份有限公司)支付2000万美元终止费。CBC为宁德时代控股子公司。宁德时代与千禧锂业于2021年9月28日签订协议后，经修订并于10月12日将该协议转让给CBC。
-
-“宁锂大战”始于今年7月。当月，赣锋锂业公告称，全资子公司赣锋国际将以自有资金对千禧锂业发起要约收购，交易金额不超过3.53亿加元。宁德时代横插一杠，在9月提出以3.768亿加元收购千禧锂业，这一价格比赣锋锂业的收购价高出约7%。根据千禧锂业公告，宁德时代为此还替千禧锂业向[赣锋锂业](http://quote.eastmoney.com/unify/r/116.01772)支付了1000万美元的违约金。就在所有人都认为千禧锂业已是宁德时代的“囊中物”时，11月1日，美洲锂业突然杀出，提高报价，宣布以总价4亿美元(现金加股权)收购千禧锂业所有流通股。
-
-在项目合作上，赣锋锂业和美洲锂业共同拥有阿根廷的Cauchari-Olaroz锂盐湖项目。另一方面，赣锋锂业全资子公司赣锋国际还为美洲锂业提供财务资助，帮助推动Cauchari-Olaroz锂盐湖项目的投产进度。截至2021年6月30日，赣锋锂业已经为美洲锂业提供了1.05亿美元的贷款，折合人民币约6.8亿元。
-
-当前，在中共的行政指挥棒之下，国内新能源和新能源汽车项目不断上马。中共在产业上历来都是“大跃进”式的做法，最终导致的是企业和资本的内斗、内耗和浪费，留下的永远是一地鸡毛。宁德时代和赣锋锂业在海外的锂矿收购战看似是良性的商业竞争行为，但实质却是中企中资的内斗内耗。
-
-信息来源：
-
-[抢锂大战：美洲锂业截胡成功宁德时代获赔2000万美元\_电线电缆资讯](http://news.cableabc.com/exposure/20211118709641.html)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-3.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

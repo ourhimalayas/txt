@@ -2,10 +2,10 @@
 ---
 
 
-## 班农先生的重点事件
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1680872/)
+## 参议院议员blackburn认为应该就CCP-virus 对中共以及大科技公司追责
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1680912/)
 
-制作：peacelv
+制作：The-World
 
 发稿：信心的选择
 
