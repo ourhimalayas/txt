@@ -2,44 +2,216 @@
 ---
 
 
-## 天花生物战——全球主义者准备了“完美”计划掩盖疫苗死亡（完整版）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1678754/)
+## 情报显示 中共开始再一次放毒新变种病毒出现
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1678772/)
 
-翻译： Jenny Ball
+[https://gtv.org/video/id=6197302f182702508106b3d3](https://gtv.org/video/id=6197302f182702508106b3d3)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-14-1.png)图片来自网络
+**郭文贵**
+**Miles Guo**
 
-（自然新闻）好消息是，拜登的疫苗授权几乎肯定会被第六巡回上诉法院驳回。这将使拜登彻底挫败他通过“疫苗”生物武器大规模灭绝美国人民的企图。
+同样的事情
+The same thing
 
-坏消息是，一旦疫苗授权被取消，全球主义者将被迫采取下一个毁灭性战略来实现种族灭绝和人口减少的目标。看起来他们的下一个武器将是马尔堡病毒、埃博拉病毒或天花病毒。
+我一会儿告诉你们大家
+I’ll tell you in a moment
 
-天花是最有可能的选择，因为它具有极强的传染性，几乎没有人对它具有免疫力。比尔·盖茨一再警告——带着令人毛骨悚然的笑容——美国应该为针对美国机场的天花恐怖主义袭击做好准备。当比尔·盖茨警告这样的事情时，通常是因为全球主义者正计划实施它。
+班农先生
+is about Mr. Bannon
 
-雅虎新闻本周报道称，默克(Merck)实验室发现了标有“天花”的小瓶，这违反了美国法律。在美国大陆，只有 CDC 在亚特兰大的设施被授权储存天花小瓶。那么，疫苗制造商默克 (Merck) 是如何处理天花小瓶的呢？
+42天前我告诉班农先生
+I told Mr. Bannon 42 days ago
 
-假设他们正在研究下一个大型生物武器的发布，以从天花疫苗中产生另一波利润，您不会感到太意外。
+我说共产党和美国这块
+I said that the CCP and the United States (Biden Administration)
 
-但是，全球主义者释放的天花不仅仅是减少人口……
+一定会把你战斗室给你干掉
+would definitely destroy your War Room
 
-他们还要埋葬新冠病毒疫苗死亡追责，并停止 2022 年中期选举。
+而且通过法院
+via court
 
-反人类全球主义者故意释放天花的影响来掩盖新冠病毒疫苗死亡，而这种死亡已经开始急剧加速。随着免疫抑制、抗体依赖性增强和癌症肿瘤的生长都加速，在接下来的六个月内，全球将有数百万人死于新冠病毒疫苗。全球主义阴谋集团不顾一切地分散世界对疫苗人口减少影响的注意力，因此他们需要一些更大的大规模死亡灾难来逃避承担责任。
+怎么样？法院
+What happened? Through the court system
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-4-8.png)
+1月6号
+on January 6th (incident)
 
-其次，天花的爆发也会让华盛顿的犯罪分子宣布全国进入紧急状态，并暂停 2022 年的中期选举，他们很可能在那里遭到政治屠杀。**目前的民意调查，如果预测到选举结果中，表明民主党很可能会失去众议院、参议院和众多州州长和州立法机构的席位，让拜登（或哈里斯）**除了违宪的行政法令（法院一直在射击）之外没有任何有效权力 下）。
+下个就是川普
+The next target will be Trump
 
-因此，民主党需要更大的灾难来取消 2022 年的选举。天花（或马尔堡）是他们的“完美”选择，因为他们对人类生命的尊重为零，如果这样做能让他们继续掌权，他们会牺牲每一个在世的美国人。他们就像疯狂的动物，愿意做任何事情来维持他们的控制。
+不是我蒙的
+I didn’t make that up
 
-**参考资料：**[naturalnews][The SMALLPOX BIOWAR – globalists prepare “perfect” scheme to cover up vaccine deaths and cancel mid-term elections by unleashing a new, deadly epidemic](https://www.naturalnews.com/2021-11-18-smallpox-biowar-globalists-prepare-perfect-scheme-to-cover-up-vaccine-deaths-epidemic.html)
+它是国内的情报告诉我的
+I got that from the domestic intelligence
 
-* * *
+这是中美之间黑暗的较量
+This is a dark contest between the CCP and the United States
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
+其中, 告诉我的
+Among these,
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+咱们的这个科学家就告诉我什么
+one of our scientists told me
+
+他说我的一个学生
+that one of his students
+
+突然间我最近联络不上去了
+suddenly couldn’t get in touch with recently
+
+结果好嘛
+As a result, which was great,
+
+他说我发现他出现在了美国西部
+he said he found out that he (his student) appeared in the western United States
+
+不是美国，是美国的西部某国
+It’s not the United States, but a country in the west of the United States
+
+他说我觉得这事儿不妙啊
+He said he felt that there was something not lined up
+
+他就这么一点我
+Just by this hint
+
+我一下就明白了
+I suddenly realized that
+
+我说坏了，坏了，又要出事儿
+something wrong must have happened again
+
+然后六中全会要开
+And then, the Sixth Plenary Session of the Central Committee will be held
+
+这个时候
+At that time,
+
+告诉我要干掉班农的战友跟我说
+the comrade who told me the CCP would take down Bannon said
+
+六中全会后
+that after the Sixth Plenary Session of the Central Committee,
+
+美国等西方国家
+the U.S. and other western countries
+
+又一波新的病毒变种会出来
+would have another wave of new virus variants appearing
+
+那我就问咱们这个欧洲科学家了
+So I asked this European scientist
+
+我说那你说这变种出来后
+I said that after this variant comes out,
+
+对疫苗什么影响
+what effect will it have on the vaccine?
+
+加速疫苗的整个的所有的身体反应
+It will speed up the entire body when getting the vaccine
+
+而且会加速这个政府推广疫苗
+And will accelerate the government’s promotion of vaccines
+
+他说这就是真正的灾难的开始了
+He said this was the beginning of the real disaster
+
+哇塞，整得我浑身
+Wow, it made my entire body
+
+这真是浑身汗毛倒立呀，吓人的
+break out with goosebumps. It’s scary
+
+所以Eglise，我觉得
+So, Eglise, I have the feeling that
+
+现在真的是我们很可怕的事
+it’s really a terrible thing for us now
+
+真的是我们面临着人类最黑暗的时刻
+It’s for real that we are facing the darkest moment of mankind
+
+最黑暗的时刻
+The darkest moment
+
+就这种情况下还要给孩子打疫苗
+Under this circumstance, it is still required that children get vaccinated
+
+你能想一想
+Can you imagine
+
+那多可怕
+how terrible the outcome would be?
+
+七哥所说的咱们的情报
+What I have said is based on our intelligence
+
+到现在，运动员、飞机
+Until now, athletes, pilots, (etc.) have been affected
+
+你看多少飞机出事儿现在？
+Look, how many airplane accidents are there now?
+
+名人，死的死，瘫的瘫
+Many celebrities have died or been paralyzed from the vaccine
+
+但它往孩子身上还要打
+But it still vaccinated on our children
+
+灾难啊
+It’s disaster
+
+没法预测
+It cannot predict
+
+只有爆料革命、新中国联邦联合在一起
+Only when the whistleblower movement and the New Federal State of China united,
+
+咱们大家才真正的
+all of us could actually
+
+互相之间可能会安全
+be safe among each other,
+
+谁也不敢保证
+but no one can guarantee that
+
+只有紧紧地连在一起
+Only when we are tightly connected together it may work
+
+没有任何招
+There is no other trick
+
+千万别指望政府
+Never count on the government
+
+你也甭指望着别人
+or other people
+
+只有新中国联邦能让咱战友们安全
+Only the New Federal State of China can keep our comrades safe
+
+**原视频链接:** [https://gettr.com/post/ph08fqf847](https://gettr.com/post/ph08fqf847)
+
+Date: 11/14/2021
+原视频标题: 情报显示 中共开始再一次放毒新变种病毒出现
+Intelligence indicates that the CCP starts to once again discharge another new variant of the virus
+原视频日期：2021/11/14
+任务编号：KC263（2896）
+视频时间段 : 0:00-2:13
+
+英听校: 洛杉矶盘古农场 – 郭班之樱
+翻译: 洛杉矶盘古农场 – 郭班之樱
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
