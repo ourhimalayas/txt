@@ -2,50 +2,30 @@
 ---
 
 
-## 展望2022，三点原因使澳币走弱
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1679162/)
+## 英媒：英国首相考虑对北京冬奥会进行外交抵制
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1679211/)
 
-**翻译：月映万川
-编辑：MSGZ**
+![唐宁街10号 （英国首相官邸）](https://cdn.sputniknews.cn/images/101692/83/1016928358.jpg)
+据俄罗斯卫星通讯社11月20日，援引英国《泰晤士报》报道称，英国首相鲍里斯·约翰逊为“抗议中国的人权记录”，正在考虑对2022年北京冬奥会进行外交抵制。此前，5名保守党政客致信约翰逊，呼吁其禁止英国任何官方外交代表出席2月份的冬奥会。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/11.2-3.png)图片来源：ANZ Australian Dollar Exchange Rate Forecasts 2021-2022
+报道称，英国政府内部正在进行“积极的讨论”。英国外交大臣利兹·特拉斯（Liz Truss）支持抵制。与前任外交大臣多米尼克·拉布（Dominic Raab）相比，特拉斯采取了更为强硬的立场，她曾私下指责“北京迫害维吾尔穆斯林，犯下种族灭绝罪”。
+
+自去年美国前国务卿蓬佩奥宣布中共犯下种族灭绝罪后，西方自称尊重人权的各国政府就再也不可回避北京的人权问题，如果继续默许北京的反人类罪行，继续毫无顾忌与中共勾兑，那西方各国政要必将成为侵害人权的共谋者，成为人类历史的罪人。世界各国也越来越认识到中共就是万恶之源，横亘在人类文明前进的路上，任何人都不能回避，我们没有选择，只有团结起来正视它，消灭之。
+
+新闻参考链接：[https://sputniknews.cn/politics/202111201034835407/](https://sputniknews.cn/politics/202111201034835407/)
+
+编辑：MQ
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-**1.****贸易条件指数**
+编辑：【英国伦敦喜庄园编辑部】
 
-一个国家每出口一个单位商品可以获得多少单位的进口商品，也就是这个国家的出口商品相对于进口商品的相对价格叫做贸易条件指数。澳元涨跌在历史上与这一指数很有渊源。2021年，贸易条件指数的上涨导致了澳元的上涨。
-
-由于中国经济增长预期放缓，包括，铁矿石，煤炭和天然气在内的大宗商品价格也预期在2022会大幅下滑。这就引发了澳元下跌的担忧。
-
-**2.****利率**
-
-第二个有关澳元汇率的因素就是相对利率。如果澳大利亚的利率比世界其它国家的利率高，这里重点是指美国，那么全球热钱就会涌入澳洲购买本地资产继而使澳元走高。反之亦同。
-
-虽然，目前澳洲的利率要比美国利率高，但是，这样的利率差既不是很明显也不会对投资人很有吸引力。
-
-另外，市场也有预期美国在2022年会提升自己的利率进而反超澳大利亚。这种预测是因为，美国市场目前经历着更高的通货膨胀，较低的失业率，但是工资增长速度很快。
-
-此外，堪培拉正试图重启大规模移民项目来拉低工资增长幅度，并且，不断下跌的大宗商品价格也打击了上扬的通货膨胀率。
-
-最后，澳大利亚房屋贷款市场正在经历着固定还款利率的上涨波动。这会给本地房地产市场降温，并打击消费者的信心。
-
-**3.****美元价值**
-
-第三点原因就是澳元与美元相比的相对价值。美国经济在后疫情时代的增长幅度要比任何发达国家的市场都大。由于通货膨胀，回报率和增长率都会被资本拉动，这也使美元汇率更加坚挺。
-
-随着拜登政府通过了明年财政刺激方案，这种强劲增长势头会保持5至6年，并且美国的优势地位会一直保持下去。
-
-反过来，强劲的美元往往会拖累新兴市场的发展和大宗商品价格，并加剧外。
-
-**新闻：**[Three reasons the Australian dollar could decline in 2022](https://www.news.com.au/finance/economy/australian-economy/three-reasons-the-australian-dollar-could-decline-in-2022/news-story/c9c431c595fa55e2cec000ab3ddd026f)
-
-发布：文武全才
-
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

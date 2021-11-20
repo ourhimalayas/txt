@@ -2,42 +2,48 @@
 ---
 
 
-## 台湾无视中共国反对，在立陶宛开设办事处
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1679224/)
+## 医生揭发新冠疫苗削弱白细胞，接种者会有艾滋病人症状
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1679269/)
 
-据《路透社》记者Ben Blanchard 于2021年11月18日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-476-e1637382922621.png)2021 年6月30日，台湾桃园，台湾国旗迎风飘扬。图片来源：路透社/ Ann Wang
-路透台北11月18日电—**无视北京方面的强烈反对，台湾周四在立陶宛开设了事实上的大使馆，这是台湾的外交突破，北京再次表达了它的愤怒并警告了后果。**
-
-今年8月，中共要求这个波罗的海国家撤回其驻北京大使，并表示将召回中共驻维尔纽斯大使。此前，台湾宣布在维尔纽斯的办事处将更名为台湾驻立陶宛代表处。
-
-台湾在欧洲和美国的其他办事处使用台北这个城市的名称，避免提及台湾本身，因中共声称台湾是自己的领土。
-
-中共已加紧努力让其他国家限制与台湾的联系，或完全断绝与台湾的交往。 与台湾建立正式外交关系的国家只有15个。
-
-立陶宛决定在台湾开设自己的代表处也激怒了中共当局，尽管尚未确定具体日期。
-
-台湾外交部表示，开设办事处将为台湾与立陶宛的关系“开辟一条新的、充满希望的道路。在半导体、激光和金融科技等行业存在巨大的合作潜力。”。
-
-“台湾将基于我们共同的价值观，珍惜并促进这种新的友谊。”
-
-中共国外交部表示，此举是对中国内政的“粗暴干涉”，“立陶宛方面对由此产生的一切后果负责，我们要求立陶宛方面立即纠正错误决定。”。
-
-**与立陶宛在台湾的争端也吸引了美国，美国向维尔纽斯提供支持以顶住中国的压力。**
-
-**许多其他国家也在台北设有事实上的大使馆，包括立陶宛的几个欧盟成员国、英国、澳大利亚和美国。**
-
-原文连接：[https://www.reuters.com/world/china/taiwan-opens-office-lithuania-brushing-aside-china-opposition-2021-11-18/?taid=619627abdc16960001750f2c&utm\_campaign=trueAnthem:%20Trending%20Content&utm\_medium=trueAnthem&utm\_source=twitter&s=09](https://www.reuters.com/world/china/taiwan-opens-office-lithuania-brushing-aside-china-opposition-2021-11-18/?taid=619627abdc16960001750f2c&amp;utm_campaign=trueAnthem:%20Trending%20Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter&amp;s=09)
-
-翻译：洛杉矶盘古农场 – 比格渣餐厅老板の娘
-
-校对&编辑：洛杉矶盘古农场 – 小象的奶瓶
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/103656_P01-21-003.jpg_356217b1-2b6d-400e-8158-e14e9663897a.jpeg)
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+图片来源：www.poz.com
+
+
+#### 编译：小红帽
+
+一位拥有1600名病人的匿名自然健康医生，从自己的客户、其他医生、护士、免疫专家和病毒学医生那里收集了信息。她从这些信息和数据中分析了新冠病毒（Covid-19）疫苗的前两剂和加强针的情况。
+
+目前，这位自然医生还没有准备好 “公开”自己的身份，所以目前正以联为一体（[T.A.O.- Together As One](http://www.togetherasone.cc/nd.aspx)）的名义分享她的信息。
+
+根据此分析，新冠病毒疫苗的第一针包含多种有毒成分，这些成分对你的细胞系统是灾难性的。这些毒素使你身体的免疫系统产生白细胞的能力降低多达50%。这还只是接种第一剂疫苗的情况。
+
+人体在大约8周后会产生另一代白细胞，这就是为什么第二剂疫苗的接种被设定在第一次接种之后的8周内进行，以再次削弱白细胞数量，而白细胞仍然受到严重损害。这使白细胞的生成量又减少了25%。
+
+每次接种时，疫苗的盐水比例将减少，而有毒成分增加。这意味着白细胞数量减少了75%，而这是在接种任何加强针之前。加强针有80多股人类血细胞从未遇到过的外来细菌。这就是慢性炎症发生的时候。
+
+对于任何有健康状况的人来说，虚弱的身体部位将被这种外来病原体的攻击而加剧病情。无论你是否已经有消化系统、呼吸系统、癌细胞、皮肤状况等问题，在这种慢性炎症状态下，这些部位都会发炎。由于只有25%的免疫系统能力，这将被证明是灾难性的。
+
+另外，加强针包含八股艾滋病毒，可完全关闭身体制造白细胞的能力。所有的生理盐水都被从加强针中去除，因此对病人来说是致命的。这时，受害者在零免疫力的情况下四处走动。医生预测，加强针受害者的死亡率为20%至30%。
+
+如今，美国食品和药物管理局（FDA）现在正在策划让美国的每个孩子都接种这些有毒的基因突变疫苗。
+
+安东尼·福奇已经承认（头两剂）疫苗完全没有用，那是因为现在是他推动致命的加强针的时候了。以下是福奇的一段话。”他们看到不仅对感染的免疫力在减弱，而且对住院和某种程度上的死亡的免疫力正在减弱，现在开始涉及所有年龄组。不仅仅是老年人。”
+
+也许免疫力的 “减弱 “不仅仅是因为新冠病毒疫苗没有用，而是因为疫苗在这个过程中破坏了人体白细胞，导致免疫力被大大地削弱。
+
+**参考新闻：**[BOOSTER SYNDROME: Natural doctor blows whistle on Covid vaccines lowering white blood cells more and more with each shot, turning vaccinated people into AIDS-like patients – NaturalNews.com](https://www.naturalnews.com/2021-11-19-natural-doctor-blows-whistle-on-covid-vaccines.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

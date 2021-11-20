@@ -2,35 +2,34 @@
 ---
 
 
-## 奥地利从2月1日起实行强制疫苗
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1679368/)
+## 特德.克鲁兹称拜登的加密货币经纪人定义必须被废除
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1679397/)
 
-作者：香草山金融部 – Linda Progress
+撰稿：Grace
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-32.png)
+图片来源：thescotfree
 
+据Rebelnews 11月18日报道，共和党参议员特德.克鲁兹(Ted Cruz)周一提出一项法案，旨在扭转拜登政府的《基础设施投资和就业法案》中的加密货币规定。
 
+《基础设施投资和就业法案》于8月在参议院通过，并于11月5日获得美国国会批准。11月15日，拜登签署了该法案，使之成为法律。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
+报道称，改法案将为了税收目的，通过强制报告数字资产，筹集高达 280 亿美元的资金。而且，该法案并不是第一次试图对新生的加密货币行业加强监管。
 
+据报道，参议院在8月就加密货币相关法规进行了辩论，共和党议员强调法案文本中的 “经纪人” 一词是模糊的，可能会影响任何持有加密货币的人。
 
+于是，克鲁兹提出了一项修正案，该修正案将澄清法案中的语言, 并保护区块链行业。
 
-奥地利将命令全体人口从明年 2 月 1 日起接种疫苗。疫苗政策的下一个严厉步骤似乎正在成为现实。 周五，保守派总理亚历山大·沙伦伯格 (Alexander Schallenberg) 表示，他将从 2 月 1 日起强制接种疫苗。此前，全国范围内的封锁将于周一开始，最初为期 10 天，但可能会延长至 3 周。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-27.jpg)
-尚未就他计划如何为所有奥地利人强制执行疫苗任务发表评论，但值得注意的是，当全面封锁结束时，未接种疫苗的人仍将受到限制。
+在该法案获得批准后，克鲁兹提出了立法，以废除“基础设施一揽子计划中, 过于宽泛且设计不当的条款，该条款对区块链行业的许多参与者, 提出了新的报告要求”。
 
-参考来源：[https://www.rt.com/news/540714-austria-lockdown-for-everyone/](https://www.rt.com/news/540714-austria-lockdown-for-everyone/)
+据报道，《基础设施投资和就业法案》的一项条款将 “数字资产 “定义为 “任何记录在加密安全的分布式账本或任何类似技术上的数字价值代表”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+数字商会认为目前的规定 “过于宽泛和模糊”。 数字商会主席（Chamber of Digital Commerce） 帕里安.博林 (Parianne Boring)表示，”需要进一步澄清，以确保数字资产生态系统能够继续发展和繁荣”。
 
-编辑/校对/发稿：Hetangyuese
+克鲁兹说： “孤星州 (The Lone Star State)已经迅速成为加密货币行业的主要中心，而这个令人兴奋的行业, 现在正面临着被扼杀的危险，并被这个新签署的、鲁莽的支出方案中的一个过度条款驱赶到海外。作为一个审议机构，参议院应该做好自己的工作，举行听证会，在我们为参与的美国人的生计和隐私冒险之前，正确理解对这一新兴行业立法的后果。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+他还补充说： “我敦促参议院的同事, 废除这种有害的语言，它将造成监管的不确定性，同时对创新造成不必要的障碍。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+**新闻来源： **[**Ted Cruz says Biden’s cryptocurrency broker definition must be repealed**](https://www.rebelnews.com/ted_cruz_says_bidens_cryptocurrency_broker_definition_must_be_repealed)[**Ted Cruz Proposes Reversal To Infrastructure Bill’s Cryptocurrency Crackdown**](https://www.dailywire.com/news/ted-cruz-proposes-reversal-to-infrastructure-bills-cryptocurrency-crackdown?itm_source=parsely-api)
 
  
 

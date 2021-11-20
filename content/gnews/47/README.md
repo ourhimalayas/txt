@@ -2,28 +2,37 @@
 ---
 
 
-## 文贵爆料 11.19：喜币如日中天，将成为未来的世界货币
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1678298/)
+## 佛州州长签署多项法案，限制私营企业对员工强制接种疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678183/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1119-4.jpg)
-众里寻它千百度，蓦然回首，它却在灯火阑珊处。在11月19日的文贵大直播中，当一位战友问及喜币转换为法币的税务问题时，她显然不曾想到，未来喜币就是她所追求的法币。郭文贵先生说，未来喜币将打破所有壁垒，成为世界货币，一切会用喜币来结算。
+作者：纽约香草山 – AlexZ
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-323.png)
+佛罗里达州州长罗恩·德桑蒂斯最近签署了多项法案，限制该州雇主强制员工接种疫苗。11月18日，德桑蒂斯在佛州布兰登发表讲话时表示，这是他们采取的最强硬的“支持自由”的反对行动。
 
-哈恩战友问，你从美国给我打来喜币，我从银行提款，这会被收税吗？郭先生回答说，你为啥要提现呢？长则三年，快则一年半到两年，战友们再也不用把喜美元换成美元了。如果这样做，第一你傻，第二你不信。你已经在天上飞了，非要下地去种菜去。只要喜支付越来越扩大化，只要我大手一挥，所有人都得用我的喜币和喜支付。只要换成美元，韩国得交56%的税。把喜币换成韩元，不交税你是犯法的。你晚上会睡不好觉的。你干嘛要换呢？当买房子都可以用喜币的时候，你干嘛要换喜美元呢？法币就是在物理上圈定你的财富，来剥夺你的剩余价值。而自由支付的喜支付系统，打破了所有这些壁垒。去中心化，我和你之间不存在美国和韩国，只要轻轻一划拉，一切都轻松搞定。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-11.jpg)
 
-你能想到，未来喜支付上线的时候，喜币在全球流通什么概念？你在北美，我在韩国，他在西班牙，你们俩找到同一个商店去支付，告诉商店先去喜平台做kyc，跟当地政府没有任何关系。你们就可以交易了，不需要第三方，不需要信用卡和银行。当喜支付被接受的越来越多的时候，世界就不需要银行了。
+周三，在佛州立法机构的特别会议上，通过了四项法案。法案规定，私人雇主在不提供医疗或宗教豁免，以及每周检测选项的情况下，强制实施疫苗接种是非法的。
 
-美国最大管数字货币的是税务机关和商业机构交易所。但对于虚拟货币交易所，它也只能要求你把客户信息给我，看一看是不是美国公民，要不要纳税。现在区块链，美国政府管不了。他半点影响不了你。区块链技术就是完全保密的，没有地域和第三方限制，是去中心化的。
-
-我们要一统江湖，未来的隔空取钱，牛就牛在，像宇宙黑洞一样，你不来都不行，你没选择的。赵长鹏恐惧我们，未来他的币安玩不转了，他就是妈咪，没有稳定币，没有黄金，没有联邦，法定的实体。
-
-郭先生说，喜美元是法币，但HCN，喜币，在任何国家购买不受法律监管。全人类，没一个公司有监管数字货币的法律和制度，有专门的数字货币律师。
+与此同时，佛州也参与了对拜登政府就其 OSHA 疫苗授权进行的诉讼。19日，桑德蒂斯发推称：“佛州正在保护雇员和家庭的权利，佛州自由之州，将阻止那些想通过强硬命令夺走我们工作和自由的官僚们。”
 
 参考链接：
 
-[2021年11月19日 文贵大直播](https://gettr.com/streaming/phclzjde0e)
+- [Gov. DeSantis Signs Multiple Bills Limiting Private Businesses From Imposing Vaccine Mandates On Employees](https://www.oann.com/gov-desantis-signs-multiple-bills-limiting-private-businesses-from-imposing-vaccine-mandates-on-employees/)
+- [Florida is protecting the rights of employees and families](https://twitter.com/GovRonDeSantis/status/1461415361635622916?s=20)
 
-[2021年11月19日文贵先生直播大雨围城速记](https://gnews.org/zh-hans/1677879/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
+
+总编：文徬
+编辑：DM
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
