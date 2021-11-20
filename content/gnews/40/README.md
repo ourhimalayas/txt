@@ -2,34 +2,23 @@
 ---
 
 
-## 美日欧续签盟约对抗中共贸易挑战
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678280/)
+## 奥地利或成为首个强制疫苗的西方国家
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1678496/)
 
-作者：英国喜庄园 – I770775
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月17日，欧盟官方网站发布声明称，美国、日本和欧盟三地的贸易部长表示，愿意继续签订三方伙伴关系联盟，携手遏制中共扭曲贸易市场的不公平政策。
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-16.jpeg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-9.jpg)图片来源：网络照片
+据多家媒体11月19日报道，奥地利计划要求全体国民在2022年2月前接种中共病毒疫苗。这将是欧洲第一个强制接种疫苗的国家。继11月17日，奥地利政府将约200万未完全接种疫苗的民众关起来之后，今天又宣布全国从11月22日起进入全面封锁状态，奥地利将成为第一个重新实施全面COVID-19封锁的国家。
 
-声明提到，在11月30日于日内瓦举行的世界贸易组织部长级会议上，美国贸易代表戴琪、日本经济产业大臣狄生田光一、欧盟执委会副主席东布罗夫斯基斯将面对面商讨具体的工作计划与落实。
+欧洲最近的再次成为COVID-19流行的中心，据路透社统计，上周欧洲占全球平均感染人数的一半以上、最新死亡人数的一半左右。德国卫生部长廷斯斯帕恩说，第四波感染使欧洲最大经济体德国陷入国家紧急状态，不排除类似全面封锁的行动。默克尔周四宣布，将限制那些尚未接种疫苗的地区公众生活。
 
-据了解，美、日、欧三边合作关系建立于川普政府时期，其宗旨在于，三地共同制定新的国际贸易规则，用以打击中共对贸易企业的变相补贴、挤压对手以及破坏公平的行为。
+然而在法国，总统马克龙在周四表示，法国不需要对未接种疫苗者实施封锁，因为法国在遏制病毒传播方面取得了成功。有74.9%的法国人接种了疫苗。
 
-参考链接：[美欧日三方续盟 应对中共贸易挑战](https://www.epochtimes.com/gb/21/11/18/n13383049.htm)
+正如郭文贵先生在直播中指出，黑暗已经来临。新联邦中国人要团结起来，继续传播病毒、疫苗真相。让我们的光柱刺破黑暗，为光明的到来做出自己的努力。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+**新闻来源：**[Austria the first country in Europe to impose mandatory COVID-19 shots | National Post](https://nationalpost.com/news/world/austria-will-enter-fourth-nationwide-lockdown-impose-mandatory-vaccinations)
 
-总编：Irene木木 
-编辑：Lakeman(文仁)
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

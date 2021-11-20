@@ -2,61 +2,63 @@
 ---
 
 
-## 2021年11月19日郭文贵先生大直播摘要——银河系
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1678815/)
+## 2021/11/19 大卫作战室直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1678885/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/snapshot2.jpg)
-视频连接：[文贵大直播：国际市场资金短缺；数字货币、法币及经济膨胀所带来的危害；疫苗灾难最新数据及病毒解药的进展](https://gtv.org/video/id=6197a194fcd196126f8cab91)
+**主播**：大卫｜**嘉宾**：微蓝、神奇四侠
 
-1、吴征是双性恋 这小子是当女性那种；
 
-2、CCP病毒目的是摧毁世界经济和美元，中共一门心思想把美元干掉
 
-3、美国3个百姓绝不允许:
+**板块1–彭帅事件**
 
-（1）油价，永远不超过4美金一桶的油价。超过了，政治大变；
+事件回顾：网球运动员彭帅11月3日在微博控诉前中央政治局常委张高丽性侵，随后微博被删帖、账号被注销，WTA（Women Tennis Association）表示关注，正值中共筹备六中全会期间，中共国官方没有任何回应，直到CGTN报道彭帅邮箱账号向WTA首席执行官表示安好，实际是中共用“low招”伪造彭帅邮箱账号向WTA首席执行官发邮件，此事引发小威廉姆斯、大坂直美等网坛名将公开呼吁，再发展到国际各界重点关注。
 
-（2）面包价格，只要超过1.2美元，老百姓就反了；
+事件影响和意义：WTA首席执行官西蒙计划退出在中共国内所有运作；议员吉姆班克斯呼吁直接抵制2022北京冬奥会；西方看透中共的流氓本质。
 
-（3）天然气和电，超过历史均价的20%，经济大变；
+**板块2–国内政治**
 
-4、币安赵长鹏在新加坡到处敲门诋毁喜币，结局一定和王健一样；
+在中共国内经济下行压力巨大、民营企业被“宰杀”的背景下，中共各派内斗加剧（习派收拾江派王派收割利益）开启“绞肉机模式”体制内官员人人自危，都在为自己准备“后路”，为中共政治危机埋下“大雷”。
 
-5、区块链技术 ：任何政府都管不了 ，它是一种记账的方式 ，互相就可以买东西了 。去中心化 ，没有第三方 、不需要”妈咪”、不需要”银行”、不需要”信用卡”；
+**板块3–国际政治**
 
-6、迪拜房地产公司接受喜币 ，也接受喜美元 ，是喜币上市后最具标志性的事情 。把数字货币变成比法币还有信用的货币；
+1. 全球供应链短缺造成通胀危机持续发酵，如果美国股市楼市中的泡沫遇到经济波动（如能源价格暴涨）将刺激经济危机的到来，拜登政府对此“坐立不安”，所以美国拜登政府“恳求”中共国释放石油储备。
 
-7、在加拿大用加币、在韩国用韩币，世界上的法币都是地域强迫的被动式使用，而喜联储是用户主动信任的货币；
+2. 参议员沃伦呼吁SEC调查川普的SPAC。购买DWAC股票的股民因其前期“承诺”的美好前景买入，随着沃伦的呼吁，“厕所股票”背后操作都将逐步调查和曝光，“赚钱”机会从天而降。
 
-8、未来喜币一定会超过比特币 ，而且比特币绝对不是2100万个 。喜币你看到的信息都是真实的 ，有没有可能有同样的第2套系统？
+**板块4–灭共这联盟**
 
-9、疫苗灾难改变了一切，世界发生的一切改变都会是因为疫苗，打了疫苗青蒿素管用；
+众议院Covid小组传唤纳瓦罗先生、加上民主党近期“刁难”班农先生、川普总统可能惹上诈骗官司。针对灭共者的行动一直暗地里配合中共在进行，促使美国民众觉醒，并让爆料革命传播的真相让更多人知晓。
 
-10、科学就是某种范围内在某种条件下对某种事物可认知的 、科学就被否定的 、被怀疑的 ，而且它是一定条件下对物质世界的一种定义 、对精神它没法定义；
+**板块5–香港台湾**
 
-11、为什么七哥对精子卵子感兴趣 ，一个小小精子卵子能带着先祖的基金因。人死了 ，精子卵子通过后代还在传递信息。精子卵子都是带微电波的 ，当初咱们就是精子卵子中最强的相遇 、才得到生命 。微电波是啥 ？那就是灵魂；
+美国众议院军事高级成员罗杰斯称：中共国计划于2022冬奥会后占领台湾，完全吻合文贵先生前期爆料内容。冬奥会后大量不确定因素（西方圣诞后消费能力相对降低、美国股市和全球能源周期性变化带来经济压力、中共真对台湾“动手”、中共内部“突发事件”）导致资金避险欲望强烈，喜联储有大量准备KYC的用户，喜币是避险资金的绝佳去处。
 
-12、明天11.20还有大直播；
+**板块6–网络科技**
 
-编辑整理：文俊
+曾就读于哥本哈根大学现就职于华大基因的张国杰被爆出进行与中共军方有关的猴脑研究，并引发担忧。其中涉及多个问题值得关注（谁让他出国留学、谁审批的研究、如何躲过的审查、如何将技术输送给中共军方）。中共利用军民融合项目开展生物武器研究违反自然规律，西方科学界学术界开始觉醒并反思。
 
-发布：黎明之前
+**大卫作战室每周一到周六直播：英国时间12点；美东早7点；盘古19点.**
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+- [欢迎关注GTV-大卫作战室](https://gtv.org/user/5e86008377d0e42087e2a56d#home)
+- [欢迎关注YouTube-大卫作战室](https://www.youtube.com/channel/UCq5haQKrVHnCQ84YmyBn4KA)
+- [欢迎关注YouTube-大卫作战室 备用直播号](https://www.youtube.com/channel/UCSjAwTM1autpHTLVihdJHHg)
+- [欢迎关注GETTR-大卫作战室](https://gettr.com/user/davidswarroom)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+![](https://assets.gnews.org/wp-content/uploads/2021/11/大卫作战室-1.jpg)
+*听写：call me uncle | 校对：乐禧禧 | Page：我是球大哥*
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+* * *
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+编辑：【英国伦敦喜庄园编辑部】
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
 
  
 

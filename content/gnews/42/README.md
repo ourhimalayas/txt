@@ -2,31 +2,25 @@
 ---
 
 
-## 恒大近期续命措施难解困境
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678257/)
+## 美日欧续签盟约对抗中共贸易挑战
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678280/)
 
-作者：日本方舟农场 – Andy5
+作者：英国喜庄园 – I770775
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月17日，郭文贵先生在盖特中揭露，恒大集团印发通知称，11月30日前，剧团必须精简机构，同时，郑州恒大立即开始以最低薪资辞退员工。
+当地时间11月17日，欧盟官方网站发布声明称，美国、日本和欧盟三地的贸易部长表示，愿意继续签订三方伙伴关系联盟，携手遏制中共扭曲贸易市场的不公平政策。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-7.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-16.jpeg)
 
-据报道，恒大集团将旗下的房产汽车平台——房车宝的多个区域公司解散。另外，法院也正式受理了中共国内住宅装饰公司——全筑股份对恒大多达三百三十三起的诉讼。
+声明提到，在11月30日于日内瓦举行的世界贸易组织部长级会议上，美国贸易代表戴琪、日本经济产业大臣狄生田光一、欧盟执委会副主席东布罗夫斯基斯将面对面商讨具体的工作计划与落实。
 
-此前，郭先生多次在直播中提及，恒大爆雷虽然被延后，但无法被挽救，许家印一定会宣布破产。近期资料显示，许家印通过变卖个人70亿的资产、清仓股票，以及出售恒大汽车子公司等方式试图为恒大集团续命，但这些措施完全不足以支撑恒大集团正常运营，更不可能缓解即将到来的债务违约。
+据了解，美、日、欧三边合作关系建立于川普政府时期，其宗旨在于，三地共同制定新的国际贸易规则，用以打击中共对贸易企业的变相补贴、挤压对手以及破坏公平的行为。
 
-参考链接：
-1）[11月17日：恒大，彻底完鸟……](https://www.gettr.com/post/ph8asp6d56)
-2）[焦点：中国恒大忙于还债 掌门人许家印不得不自掏腰包填窟窿](https://cn.reuters.com/article/evergrande-founder-hui-assets-sale-1117-idCNKBS2I205C)
-3）[深夜重磅！许家印变卖家产70亿，给恒大“续命”！卖豪宅卖私人飞机，网友：是条汉子…](https://finance.sina.com.cn/chanjing/gsnews/2021-11-17/doc-iktzscyy5977656.shtml)
-4）[消息：中国恒大旗下房车宝多个区域公司已解散](https://www.zaobao.com.sg/realtime/china/story20211117-1214381)
-5）[突发！这家A股公司状告恒大，涉333起诉讼，金额超2亿！](https://finance.sina.com.cn/stock/s/2021-11-17/doc-iktzqtyu7911208.shtml)
-6）[恒大暴雷时间](https://www.gettr.com/post/pgrob05b6a)
+参考链接：[美欧日三方续盟 应对中共贸易挑战](https://www.epochtimes.com/gb/21/11/18/n13383049.htm)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：Irene木木
-编辑：Kathy文艺
+总编：Irene木木 
+编辑：Lakeman(文仁)
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
