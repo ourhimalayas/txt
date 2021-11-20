@@ -2,10 +2,10 @@
 ---
 
 
-## 证据表明辉瑞和FDA明知中共病毒疫苗会杀死儿童，却依然进行推广
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1680173/)
+## OSHA宣布将暂停执行乔·拜登对私企的疫苗强制令
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1680201/)
 
-11/17/2021 生物技术分析师凯伦·金斯顿展示出证据，辉瑞和食药监局隐瞒真实数据，明知中共病毒疫苗会杀死儿童，却依然进行推广。
+11/18/2021 美国职业安全与健康管理局宣布将暂停执行乔·拜登对私营企业的中共病毒疫苗强制令。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

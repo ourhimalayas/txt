@@ -2,10 +2,10 @@
 ---
 
 
-## 澳大利亚橄榄球明星拒绝接种中共病毒疫苗并选择立刻退役
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1680253/)
+## 鲍里斯·爱普施坦在战斗室节目力挺盖特GETTR
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1680293/)
 
-11/16/2021 澳大利亚橄榄球队卡尔顿队球员利亚姆·琼斯拒绝在接种中共病毒疫苗一事上作出让步，选择提前退役并放弃50万美元年薪，成为第一位因此而退役的澳大利亚澳式足球联盟球员。
+11/18/2021 曾任川普总统助理的鲍里斯·爱普施坦在战斗室节目力挺盖特GETTR
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

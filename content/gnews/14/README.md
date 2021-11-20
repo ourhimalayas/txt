@@ -2,28 +2,26 @@
 ---
 
 
-## 美议员呼吁拜登政府全面抵制北京冬奥会
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1680112/)
+## “猝死风”吹至芬兰球场 52岁足球教练突发心脏病去世
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1680162/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+#### **撰稿：**日本东京方舟农场 JIHO
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/44554F2D-0696-4B47-8109-51DA0B5A7AAF.jpeg)（图片来自美国之音）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/66CFAAE1-402F-4EE7-919C-197CA224ABFB.jpeg)（图片来自MVLEHTI）
 
-由于认为拜登政府对北京冬奥会采取外交抵制力度不够，美国共和党联邦参议员汤姆·科顿（Tom Cotton）11月18日在记者会上呼吁拜登政府全面抵制北京冬奥会。
+据芬兰《晚报》（Iltalehti） 周五（11月19日）报道，深受球迷喜爱的芬兰图尔库足球俱乐部（TPS）主教练吉姆·索米宁（Kim Suominen），周四在球队训练时突然癫痫发作，并于训练结束后的一个小时内迅速死亡，年仅52岁。TPS已经确认了这一消息。
 
-据《美国之音》11月19日报道，科顿议员在国会山召开记者会表示：“我今天在这里呼吁拜登行政当局对北京冬季奥运会采取全面、彻底的抵制。不派运动员去，不派政府官员去，也禁止企业赞助商支持。”
+吉姆·索米宁 曾担任P17队主教练十年，在芬兰和其它国家有着广泛的职业生涯，是该俱乐部的传奇人物。他的突然离世，令很多人深感震惊。
 
-科顿表示，他呼吁全面抵制北京冬奥会基于两个原因：第一，为了保护美国运动员的安全；第二，抗议中共国对美国、文明世界和自己国民犯下的罪行。
+根据芬兰媒体网站MVLEHTI的一篇报道，自 2021 年 6 月初以来，已有超过 75 名运动员因心脏病发作死亡或受伤，而冠状病毒（中共病毒）疫苗被怀疑与“猝死”的大幅增加有关。
 
-科顿指出，中共国是个极权主义的奴隶制国家，关押了数十万、甚至数百万宗教人士和少数民族，让他们从事奴工，并对少数民族妇女使用包括大规模强奸和绝育等手段的性暴力，以此作为种族清洗的一种形式。
+尽管TPS 青少年足球协会执行董事莉娜·艾伦（Leena Allen）表示，不知道索米宁的具体死亡原因，而索米宁是否接种了中共病毒疫苗，目前尚不清楚，但索米宁教练的猝死已引起民众对疫苗问题的担忧。
 
-同日，美国总统拜登证实，美国正在考虑对北京冬季奥运会进行外交抵制，旨在抗议中共国对人权的打压。
-
-*参考链接：[https://www.voachinese.com/a/us-china-Beijing-Olympics-boycott-20211118/6319022.html](https://www.voachinese.com/a/us-china-Beijing-Olympics-boycott-20211118/6319022.html)*
+*参考链接：[https://mvlehti.net/2021/11/19/akillisen-kuoleman-ilmio-iski-myos-suomalaiskentalle-tpsn-valmentaja-sai-sydankohtauksen-treeneissa-ja-kuoli/](https://mvlehti.net/2021/11/19/akillisen-kuoleman-ilmio-iski-myos-suomalaiskentalle-tpsn-valmentaja-sai-sydankohtauksen-treeneissa-ja-kuoli/)*
 
 * * *
 
-*素材采编：幽蘭自得*
+*素材采编：JIHO*
 
 *编辑：青衣青青*
 
