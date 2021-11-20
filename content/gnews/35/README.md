@@ -2,40 +2,29 @@
 ---
 
 
-## 恒大近期续命措施难解困境
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678257/)
+## 文贵爆料 11.19：喜币如日中天，将成为未来的世界货币
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1678298/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月17日，郭文贵先生在盖特中揭露，恒大集团印发通知称，11月30日前，剧团必须精简机构，同时，郑州恒大立即开始以最低薪资辞退员工。
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1119-4.jpg)
+众里寻它千百度，蓦然回首，它却在灯火阑珊处。在11月19日的文贵大直播中，当一位战友问及喜币转换为法币的税务问题时，她显然不曾想到，未来喜币就是她所追求的法币。郭文贵先生说，未来喜币将打破所有壁垒，成为世界货币，一切会用喜币来结算。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-7.jpeg)
+哈恩战友问，你从美国给我打来喜币，我从银行提款，这会被收税吗？郭先生回答说，你为啥要提现呢？长则三年，快则一年半到两年，战友们再也不用把喜美元换成美元了。如果这样做，第一你傻，第二你不信。你已经在天上飞了，非要下地去种菜去。只要喜支付越来越扩大化，只要我大手一挥，所有人都得用我的喜币和喜支付。只要换成美元，韩国得交56%的税。把喜币换成韩元，不交税你是犯法的。你晚上会睡不好觉的。你干嘛要换呢？当买房子都可以用喜币的时候，你干嘛要换喜美元呢？法币就是在物理上圈定你的财富，来剥夺你的剩余价值。而自由支付的喜支付系统，打破了所有这些壁垒。去中心化，我和你之间不存在美国和韩国，只要轻轻一划拉，一切都轻松搞定。
 
-据报道，恒大集团将旗下的房产汽车平台——房车宝的多个区域公司解散。另外，法院也正式受理了中共国内住宅装饰公司——全筑股份对恒大多达三百三十三起的诉讼。
+你能想到，未来喜支付上线的时候，喜币在全球流通什么概念？你在北美，我在韩国，他在西班牙，你们俩找到同一个商店去支付，告诉商店先去喜平台做kyc，跟当地政府没有任何关系。你们就可以交易了，不需要第三方，不需要信用卡和银行。当喜支付被接受的越来越多的时候，世界就不需要银行了。
 
-此前，郭先生多次在直播中提及，恒大爆雷虽然被延后，但无法被挽救，许家印一定会宣布破产。近期资料显示，许家印通过变卖个人70亿的资产、清仓股票，以及出售恒大汽车子公司等方式试图为恒大集团续命，但这些措施完全不足以支撑恒大集团正常运营，更不可能缓解即将到来的债务违约。
+美国最大管数字货币的是税务机关和商业机构交易所。但对于虚拟货币交易所，它也只能要求你把客户信息给我，看一看是不是美国公民，要不要纳税。现在区块链，美国政府管不了。他半点影响不了你。区块链技术就是完全保密的，没有地域和第三方限制，是去中心化的。
+
+我们要一统江湖，未来的隔空取钱，牛就牛在，像宇宙黑洞一样，你不来都不行，你没选择的。赵长鹏恐惧我们，未来他的币安玩不转了，他就是妈咪，没有稳定币，没有黄金，没有联邦，法定的实体。
+
+郭先生说，喜美元是法币，但HCN，喜币，在任何国家购买不受法律监管。全人类，没一个公司有监管数字货币的法律和制度，有专门的数字货币律师。
 
 参考链接：
-1）[11月17日：恒大，彻底完鸟……](https://www.gettr.com/post/ph8asp6d56)
-2）[焦点：中国恒大忙于还债 掌门人许家印不得不自掏腰包填窟窿](https://cn.reuters.com/article/evergrande-founder-hui-assets-sale-1117-idCNKBS2I205C)
-3）[深夜重磅！许家印变卖家产70亿，给恒大“续命”！卖豪宅卖私人飞机，网友：是条汉子…](https://finance.sina.com.cn/chanjing/gsnews/2021-11-17/doc-iktzscyy5977656.shtml)
-4）[消息：中国恒大旗下房车宝多个区域公司已解散](https://www.zaobao.com.sg/realtime/china/story20211117-1214381)
-5）[突发！这家A股公司状告恒大，涉333起诉讼，金额超2亿！](https://finance.sina.com.cn/stock/s/2021-11-17/doc-iktzqtyu7911208.shtml)
-6）[恒大暴雷时间](https://www.gettr.com/post/pgrob05b6a)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+[2021年11月19日 文贵大直播](https://gettr.com/streaming/phclzjde0e)
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
+[2021年11月19日文贵先生直播大雨围城速记](https://gnews.org/zh-hans/1677879/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

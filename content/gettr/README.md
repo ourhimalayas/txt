@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/20/2021 2:22 AM (UTC)`
+
+11/19/2021 Miles Guo: Bruno Wu is bisexual and has a remarkable talent to make things up; all the fiat currencies are scams; by taking advantage of the disasters caused by the CCP virus and its vaccines, the CCP seeks to take down the US dollar so that it can internationalize RMB and achieve world domination<br/><br/>11/19/2021 文贵直播：吴征是双性恋，他在造假这方面的天赋异禀；所有的法币都是一场骗局；中共想通过病毒和疫苗的灾难干掉美元，从而达到人民币国际化和独霸世界的目的<br/>
+![img](https://media.gettr.com/group26/getter/2021/11/20/02/22/2f04837f-1374-3e0f-ccec-6c3df8811e14/out.jpg)
+
+---
+
 `@miles 11/20/2021 1:08 AM (UTC)`
 
 11/19/2021 Miles Guo: The collapse of the CCP’s real estate is going to trigger the collapse of the Western economy; the core task of the New Federal State of China is to save people with truth; the CCP sent Changpeng Zhao to attack the Himalaya Coin just like how they had attacked the Whistleblowers’ Movement in the past, and Zhao will end up in the same way as Wang Jian<br/><br/>11/19/2021 文贵直播：中共房地产崩溃将引发西方经济崩盘；新中国联邦的核心要务是以真相救人；中共派赵长鹏攻击喜币跟其过去对爆料革命的攻击如出一辙，赵长鹏的结局会跟王健一样<br/>
@@ -297,13 +304,6 @@ Shop 'The Drop' at www.GFashion.com<br/><br/>@gfashion <br/>@ddnyc
 
 这是哪个战友做的呀，太棒了！衷心的，感谢万分的感谢！🙏🙏🙏🙏🙏🙏🙏
 ![img](https://media.gettr.com/group7/getter/2021/11/16/03/05/07008e53-31f6-9a8b-f480-9ff6f0097ac8/out.jpg)
-
----
-
-`@miles 11/16/2021 1:27 AM (UTC)`
-
-11月15号：应战友们的要求……发一个SNOW 的小视频🤪
-![img](https://media.gettr.com/group11/getter/2021/11/16/01/27/e6af9d97-002f-9d07-9de0-9c20fdca1ee1/out.jpg)
 
 ---
 

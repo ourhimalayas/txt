@@ -15,143 +15,143 @@
 
 ---
 
-### [疫苗的危险是永久性的](/content/gnews/1/README.md)
+### [白宫联合国与左媒等齐声找彭帅](/content/gnews/1/README.md)
+ ` HimalayaRussia`
+
+### [疫苗的危险是永久性的](/content/gnews/2/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美科学家获得资助尝试将新冠毒疫苗注入蔬菜让人食用技术](/content/gnews/2/README.md)
+### [美科学家获得资助尝试将新冠毒疫苗注入蔬菜让人食用技术](/content/gnews/3/README.md)
  ` 纽约香草山MOS01`
 
-### [雅典娜时报-第118期](/content/gnews/3/README.md)
+### [雅典娜时报-第118期](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本政府拟定在12月底之前敲定增加驻日美军军费，以应对中朝威胁](/content/gnews/4/README.md)
+### [日本政府拟定在12月底之前敲定增加驻日美军军费，以应对中朝威胁](/content/gnews/5/README.md)
  ` 纽约香草山MOS01`
 
-### [2021/11/19 大卫作战室直播精要](/content/gnews/5/README.md)
+### [2021/11/19 大卫作战室直播精要](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国银行启动试点计划 区分接种与未接种员工](/content/gnews/6/README.md)
+### [美国银行启动试点计划 区分接种与未接种员工](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [生命的意义是什么？（第三集）](/content/gnews/7/README.md)
+### [生命的意义是什么？（第三集）](/content/gnews/8/README.md)
  ` 纽约香草山MOS03`
 
-### [中共的封城模式就是现代版的集中营](/content/gnews/8/README.md)
+### [中共的封城模式就是现代版的集中营](/content/gnews/9/README.md)
  ` 澳喜农场`
 
-### [直播武汉疫情的张展狱中或新闻自由勇气奖](/content/gnews/9/README.md)
+### [直播武汉疫情的张展狱中或新闻自由勇气奖](/content/gnews/10/README.md)
  ` 纽约香草山MOS01`
 
-### [这是一个什么样的黑暗群体集团？](/content/gnews/10/README.md)
+### [这是一个什么样的黑暗群体集团？](/content/gnews/11/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [2021年11月19日郭文贵先生大直播摘要——银河系](/content/gnews/11/README.md)
+### [2021年11月19日郭文贵先生大直播摘要——银河系](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [中共国房产断供潮开始](/content/gnews/12/README.md)
+### [中共国房产断供潮开始](/content/gnews/13/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [【信仰之声】论自由](/content/gnews/13/README.md)
+### [【信仰之声】论自由](/content/gnews/14/README.md)
  ` 纽约香草山MOS03`
 
-### [FDA 要求法院在55年内发布辉瑞 COVID-19 疫苗数据](/content/gnews/14/README.md)
+### [FDA 要求法院在55年内发布辉瑞 COVID-19 疫苗数据](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [美联邦第五巡回上诉法院裁定: 维持对拜登疫苗强制令的临时禁令](/content/gnews/15/README.md)
+### [美联邦第五巡回上诉法院裁定: 维持对拜登疫苗强制令的临时禁令](/content/gnews/16/README.md)
  ` 纽约香草山MOS02`
 
-### [情报显示 中共开始再一次放毒新变种病毒出现](/content/gnews/16/README.md)
+### [情报显示 中共开始再一次放毒新变种病毒出现](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [天花生物战——全球主义者准备了“完美”计划掩盖疫苗死亡（完整版）](/content/gnews/17/README.md)
+### [天花生物战——全球主义者准备了“完美”计划掩盖疫苗死亡（完整版）](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [恒大被踢出恒生指数](/content/gnews/18/README.md)
+### [恒大被踢出恒生指数](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021/11/18 墙内世界](/content/gnews/19/README.md)
+### [2021/11/18 墙内世界](/content/gnews/20/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [11/19/2021 文贵直播：中共房地产崩溃将引发西方经济崩盘](/content/gnews/20/README.md)
+### [11/19/2021 文贵直播：中共房地产崩溃将引发西方经济崩盘](/content/gnews/21/README.md)
  ` 秘密翻译组-北美组`
 
-### [职业安全与健康管理局暂停执行雇主的“强制疫苗”规定](/content/gnews/21/README.md)
+### [职业安全与健康管理局暂停执行雇主的“强制疫苗”规定](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [联合国称供应链成本激增或将导致全球物价飙升](/content/gnews/22/README.md)
+### [联合国称供应链成本激增或将导致全球物价飙升](/content/gnews/23/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [澳大利亚的顶尖银行家警告:被加密货币抛弃是银行面临的最大风险](/content/gnews/23/README.md)
+### [澳大利亚的顶尖银行家警告:被加密货币抛弃是银行面临的最大风险](/content/gnews/24/README.md)
  ` 走进澳洲`
 
-### [天花生物战——全球主义者准备“完美”计划掩盖疫苗死亡](/content/gnews/24/README.md)
+### [天花生物战——全球主义者准备“完美”计划掩盖疫苗死亡](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [打脸！英国官方数据显示：疫苗接种者感染率高于未接种者](/content/gnews/25/README.md)
+### [已知Delta AY.4.2 COVID 变体引起的症状较少](/content/gnews/26/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [打脸！英国官方数据显示：疫苗接种者感染率高于未接种者](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [根本不是疫苗！拜耳高管表示mRNA 是“基因疗法”](/content/gnews/26/README.md)
+### [根本不是疫苗！拜耳高管表示mRNA 是“基因疗法”](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [奥地利或成为首个强制疫苗的西方国家](/content/gnews/27/README.md)
+### [中共国地产的冬天降临，10月份连续第四个月土地销售收入下滑](/content/gnews/29/README.md)
+ ` 纽约香草山MOS01`
+
+### [奥地利或成为首个强制疫苗的西方国家](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [恒大将被从恒生中国企业指数中剔除](/content/gnews/28/README.md)
+### [2021/11/17 文贵先生直播精要](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [恒大将被从恒生中国企业指数中剔除](/content/gnews/32/README.md)
  ` 纽约香草山MOS02`
 
-### [台湾用自己的名字在立陶宛开设代表处](/content/gnews/29/README.md)
+### [台湾用自己的名字在立陶宛开设代表处](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [北京以冠状病毒“风险”为由限制国内航班入京](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [比尔-盖茨和默克公司想干什么？](/content/gnews/31/README.md)
+### [比尔-盖茨和默克公司想干什么？](/content/gnews/34/README.md)
  ` 秘密翻译组-原创组`
 
-### [文贵爆料 11.19：喜币如日中天，将成为未来的世界货币](/content/gnews/32/README.md)
+### [文贵爆料 11.19：喜币如日中天，将成为未来的世界货币](/content/gnews/35/README.md)
  ` 秘密翻译组-原创组`
 
-### [美日欧续签盟约对抗中共贸易挑战](/content/gnews/33/README.md)
+### [美日欧续签盟约对抗中共贸易挑战](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [美情报官员将战略目标聚焦中共](/content/gnews/34/README.md)
+### [美情报官员将战略目标聚焦中共](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [恒大近期续命措施难解困境](/content/gnews/35/README.md)
+### [恒大近期续命措施难解困境](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [“朝阳群众”基层监管遍布中共国](/content/gnews/36/README.md)
+### [“朝阳群众”基层监管遍布中共国](/content/gnews/39/README.md)
  ` GTV新闻访谈`
 
-### [11/14/2021文贵先生大直播精选-Himalaya生态系统是去政府化的人类未来的金融系统](/content/gnews/37/README.md)
+### [11/14/2021文贵先生大直播精选-Himalaya生态系统是去政府化的人类未来的金融系统](/content/gnews/40/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [联合国阿富汗特使称该国正处于“人道主义灾难”的边缘](/content/gnews/38/README.md)
+### [联合国阿富汗特使称该国正处于“人道主义灾难”的边缘](/content/gnews/41/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [11月19日文贵大直播快讯——新中国联邦的货币是全球性的](/content/gnews/39/README.md)
+### [11月19日文贵大直播快讯——新中国联邦的货币是全球性的](/content/gnews/42/README.md)
  ` 澳喜特战旅Gnews`
 
-### [11/12/2021文贵先生大直播精选-财富只是工具而不是信仰](/content/gnews/40/README.md)
+### [11/12/2021文贵先生大直播精选-财富只是工具而不是信仰](/content/gnews/43/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [联合国要求中共提供证据证明彭帅安好](/content/gnews/41/README.md)
+### [联合国要求中共提供证据证明彭帅安好](/content/gnews/44/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [富翁们通过独立的家族办公室拥有所有加密货币的4%](/content/gnews/42/README.md)
+### [富翁们通过独立的家族办公室拥有所有加密货币的4%](/content/gnews/45/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [11月19日文贵大直播快讯——隔空取钱还没有开始](/content/gnews/43/README.md)
+### [11月19日文贵大直播快讯——隔空取钱还没有开始](/content/gnews/46/README.md)
  ` 澳喜特战旅Gnews`
-
-### [【文贵先生大直播PPT】全球疫苗灾难情况跟踪](/content/gnews/44/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [【文贵先生大直播PPT】加密货币与法币共存的时代已经到来](/content/gnews/45/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [【文贵大直播PPT】主权国家法币将慢慢消失](/content/gnews/46/README.md)
- ` Mr. Miles Guo's News Briefing`
 
 ### [有声|中美互相解除记者签证限制](/content/gnews/47/README.md)
  ` MOSREC`

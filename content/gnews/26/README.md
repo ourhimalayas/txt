@@ -2,67 +2,61 @@
 ---
 
 
-## 根本不是疫苗！拜耳高管表示mRNA 是“基因疗法”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1678581/)
+## 已知Delta AY.4.2 COVID 变体引起的症状较少
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1678619/)
 
 编译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unknown-3-8.png)图片来源：naturalnews.com
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-19-224022.jpg) 图片来源 : google.com
 
-自然新闻([Natural News](https://www.naturalnews.com/))拜耳制药部门总裁斯蒂芬·奥尔里希（Stefan Oelrich）在最近的全球主义健康会议上向国际“专家”承认，辉瑞-生物科技(Pfizer-BioNTech) 和莫德纳(Moderna)的两种 mRNA（信使 RNA）“疫苗”[根本不是疫苗](https://www.lifesitenews.com/news/bayer-executive-mrna-shots-are-gene-therapy-marketed-as-vaccines-to-gain-public-trust/)，而是伪装的“细胞和基因疗法”注射剂。
+根据来自英国的新数据，与其他Delta分支相比，COVID 的 AY.4.2 变体可能不太可能引起有症状的感染。
 
-在最近于 10 月 24 日至 26 日在柏林举行的世卫峰会上，来自 120 个国家的 6,000 名与会者听到了奥尔里希的讲话。他们还听到他解释说，如果这些注射剂按实际情况进行销售，大多数人可能会拒绝它们。
+这一发现出现在英国 “社区传播实时评估” (REACT) 研究的最新报告中，该研究从 2020 年 4 月以来的社区调查和拭子测试中收集了数据，以了解病毒是如何传播的。
 
-奥尔里希说：“我们真的正在跨越 [推动创新]——我们作为一家公司，拜耳——在细胞和基因疗法方面……最终，**mRNA ****疫苗是这种细胞和基因疗法的一个例子**。”
+最新一轮研究于 10 月 19 日至 11 月 5 日进行，对 AY.4.2 的传播提供了一些见解，AY.4.2 是最近几个月在英国越来越多地传播的 Delta 变体版本。
 
-“我总是喜欢说：如果我们两年前在公众中进行调查——‘**你是否愿意接受一种基因或细胞疗法，并将其注射到你的身体里？‘我们可能会有**** 95% ****的拒绝率。** ”
+可能更快传播的 AY.4.2 变体在一周内增加 10,000 个的案例。作为最新一轮的一部分，研究了来自 100,112 人的拭子测试。其中，1,399 人的 COVID 检测呈阳性。
 
-让群众挽起袖子而取得“成功”的唯一原因是，大型制药公司在这些事情，以及他们应该做的事情上向公众撒谎。
+专家继续对阳性样本进行测序，产生了 841 个谱系。世卫组织表示，其中所有这些都是 Delta 变体或其亚系——是世界上最主要的冠状病毒株。
 
-“我们在这 18 个月 [COVID‘大流行’的持续时间]中取得的成功，应该使我们更加坚定地更加专注于获取、创新和协作，以释放所有人的健康，尤其是我们正在进入一个新的科学时代——很多人在这种背景下谈论生物革命，” 奥尔里希在活动中继续吹嘘。
+英国最常见的 Delta 子变体 Delta AY.4 占这些序列的 57.6%，而 AY.4.2 占 11.8%。
 
-**Covid****“****疫苗****”****正在重新编程人们的身体，成为一个新的人工智能驱动的奴隶种族**
+该研究还根据该人的亚系血统研究了报告的症状。根据研究中的数据表明，感染 AY.4.2 的人不太可能报告“典型的”COVID 症状——**嗅觉或味觉丧失、发烧、新的持续咳嗽。**
 
-美国疾病控制与预防中心 (CDC) 也参与其中，将“疫苗”的定义更改为包括 mRNA 注射。
+“与 AY.4 相比，亚系 AY.4.2 不太可能与症状相关，”该研究指出。
 
-CDC这个假的联邦机构，实际上只是[一家伪装的私营公司](https://www.naturalnews.com/052190_cdc_corruption_private_corporation_vaccine_industry.html)。它认为疫苗的旧定义是“有问题的”，其目的是散布大流行的谎言。因此，该机构完全应该取消它，并提出了一个适合叙述的全新定义。
+伦敦大学学院遗传学研究所所长弗朗西斯·巴卢（Francis Balloux）教授表示，**这一结果可以解释为什么 ****AY.4.2 ****在英国传播如此之多。**
 
-麦肯锡全球研究所，将奥尔里希在演讲中提到的这场“生物革命”描述为“生物科学进步与加速计算、自动化和人工智能发展的汇合，[这]正在推动新的创新浪潮。 ”
+他在周四早些时候发推文说：“AY.4.2 导致有症状感染的比例较低，可能解释了其频率增加的原因，无症状携带者不知不觉地更频繁地传播它。”
 
-“这场生物革命可能对经济和我们的生活产生重大影响，从健康和农业到消费品，再到能源和材料，”麦肯锡进一步表示。
+然而，他补充说，这一发现需要得到证实，其统计意义“非常微不足道”。
 
-换句话说，**大型制药公司的**** mRNA ****注射剂，正在为人类完全转变为人工智能驱动的奴隶种族奠定基础，该种族由全球主义者计划，通过****“****疫苗接种****”****植入人们身体的任何其他东西控制。**
+东安格利亚大学医学教授保罗·亨特（Paul Hunter）在给美国医学会的一份声明中说：“我认为根据这些数据确定 AY4.2 是否真的比其他变体更不容易引起疾病还**为时过早**。”科学媒体中心。“还需要做更多的工作。然而，如果这种变体的毒性确实不那么强，那就太好了，但现在对这一观察结果给予太多可信度是错误的。”
 
-奥尔里希进一步主张通过向整个欧洲的“另外一亿妇女”分发更多避孕药具来减少地球人口。
+**AY.4.2 ****通过其刺突蛋白 ****Y145H ****和 ****A222V ****的两个突变来识别。****刺突蛋白有助于病毒进入人体细胞**。
 
-“我们今年已投资 4 亿美元用于新建工厂，这些工厂致力于为中低收入国家的女性生产长效避孕药，”他解释说。
+迄今为止的数据表明，AY4.2可能比其他 Delta 类型具有轻微的增长优势。
 
-“我们与比尔和梅琳达·盖茨一起，在计划生育方面开展了非常密切的合作。”
+**不再对疫苗产生抵抗力**
 
-奥尔里希说，持续的新冠疫苗管理与这些其他人口减少方法相结合，最终将创造一个“可持续”的世界。
+与此同时，英国最近的分析表明，AY.4.2 对疫苗的抵抗力并不比其他 Delta 类型强。
 
-奥尔里希也是所谓的“**大重置**”倡议的坚定支持者，世界经济论坛 (WEF) 表示，**该倡议在很大程度上是由大流行驱动的。**
+根据变体跟踪工具 Outbreak.info 的数据，自 5 月份首次发现以来，截至 11 月 16 日，AY.4.2 已在全球范围内至少记录了 40,233 例 COVID 病例。
 
-“为了取得更好的结果，世界必须共同迅速采取行动，改造我们社会和经济的各个方面，从教育到社会契约和工作条件，”世界经济论坛创始人克劳斯·施瓦布说。
+其中，英国报告了 37,883 个，该变体占新测序样本的 15% 以上。
 
-文章信息来源：
+Outbreak.info 周四显示，该变体似乎没有在美国广泛传播，美国总共对 13 个州的 25 个样本进行了测序。
 
-[LifeSiteNews.com](https://www.lifesitenews.com/news/bayer-executive-mrna-shots-are-gene-therapy-marketed-as-vaccines-to-gain-public-trust/)
+**评论：中共不灭，各种各样的生化武器病毒将层出不穷。爆料革命已经得到情报，中共为达到在中共国的独裁统治和对世界的控制，一定还会继续释放病毒。中共研究将在中东，东欧和南亚建许多新的制造病毒的实验室！**
 
-[NaturalNews.com](https://www.naturalnews.com/2021-11-09-cdc-definition-vaccines-problematic-include-covid-injections.html)
-
-[NaturalNews.com](https://www.naturalnews.com/052190_cdc_corruption_private_corporation_vaccine_industry.html)
-
-**参考资料：**[naturalnews][Bayer executive says covid mRNA shots are “gene therapy” falsely marketed as “vaccines”](https://www.naturalnews.com/2021-11-18-covid-mrna-shots-gene-therapy-falsely-marketed-vaccines.html)
+新闻来源 **：**[newsweek.com] [What We Know About Delta AY.4.2 COVID Variant as Study Suggests It Causes Fewer Symptoms](https://www.newsweek.com/ay42-delta-covid-variant-study-fewer-symptoms-1650731?utm_source=PushnamiMailing&amp;utm_medium=email&amp;utm_campaign=automatic&amp;UTM=1637284116282&amp;subscriberId=6180566715c6fcdd524c7c95)
 
 * * *
 
 *审核：文乐
-校对：信心满满
-发布：信心的选择*
-
+ 校对：信心满满
+ 发稿： Nuevo唐人*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,216 +2,49 @@
 ---
 
 
-## 情报显示 中共开始再一次放毒新变种病毒出现
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1678772/)
+## 美联邦第五巡回上诉法院裁定: 维持对拜登疫苗强制令的临时禁令
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1678775/)
 
-[https://gtv.org/video/id=6197302f182702508106b3d3](https://gtv.org/video/id=6197302f182702508106b3d3)
+作者：纽约香草山福音部 – Melisa
 
-**郭文贵**
-**Miles Guo**
 
-同样的事情
-The same thing
 
-我一会儿告诉你们大家
-I’ll tell you in a moment
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
-班农先生
-is about Mr. Bannon
 
-42天前我告诉班农先生
-I told Mr. Bannon 42 days ago
 
-我说共产党和美国这块
-I said that the CCP and the United States (Biden Administration)
+这是一个重要的裁定，它会给美国和世界带来新的，停止毒疫苗强制令的行动，和停止毒疫苗强制令的时间节点。同一时间段有另外一个好消息，美国国民警卫队首次反对拜登强迫疫苗政策，指挥官拒绝执行。还有一个好消息，本周一11月15号佛罗里达州立法机构决定是否退出联邦职业安全卫生署OSHA，一旦退出OSHA，就意味着佛罗里达州各公司企业将不再受OSHA管辖，OSHA的疫苗强制令在佛州将彻底无效，这算是州与联邦之间的部分脱钩，联邦政府持续强推疫苗强制令也可能会导致其它州更大面积的脱钩。
 
-一定会把你战斗室给你干掉
-would definitely destroy your War Room
 
-而且通过法院
-via court
 
-怎么样？法院
-What happened? Through the court system
+![](https://assets.gnews.org/wp-content/uploads/2021/11/20211119_1.jpg)[图片来源](https://media.npr.org)
 
-1月6号
-on January 6th (incident)
 
-下个就是川普
-The next target will be Trump
 
-不是我蒙的
-I didn’t make that up
+我们回顾一下国会那几个魔鬼在主流媒体上公开撒过谎：首先登场的是一号撒谎魔鬼南希佩洛西，她说“我们不能要求别人注射疫苗，那不是我们应该做的事情”；二号登场的撒谎魔鬼是最爱浪笑的哈里斯，她说“不用多说，妇女对自己身体做决定的权利是不容质疑的”；三号登场的撒谎魔鬼是福奇，他说“不，绝不，你不能强制和逼迫任何人注射疫苗，我们从来没有这么做过”；四号登场撒谎的魔鬼是白宫发言人珍普撒基，她说“我们联邦政府关心的事情非常简单那就是美国人的个人隐私和权利应该受到保护，强制疫苗不是联邦政府应该做的”。五号登场的撒谎魔鬼是拜登，他说“不，我认为不应该强制，我不会要求强制”。
 
-它是国内的情报告诉我的
-I got that from the domestic intelligence
+这些政客们公开撒谎，真叫人倒吸一口凉气，您还敢相信他们说的话吗？让我们先平静一下吧！现在就是强制，世界各国都是官方强制，在美国拥有100名以上员工的企业对于未接种疫苗的人，每次违规罚款14000美元，牵扯到大约8千400万人。福奇他们一直都是在撒谎，我们每个人都应该知道的常识，那就是，我们是自由人，我们很幸运的能来到这个世界，我们不是奴工，不是低等人，不是奴隶，没有必要按照这些撒谎的政客所说的去做。美国总统拜登不是国王，中共国的习一尊也不是神，他们没有权利说你必须这样做，不然就被解雇，你所在州的州长从来没有权利说你不接种疫苗就无法工作，法律从来没有赋予这些人渣这样的权利对待任何人。
 
-这是中美之间黑暗的较量
-This is a dark contest between the CCP and the United States
+如果你没有打中共病毒疫苗，如果你不想打毒疫苗，那就别打。让这些强制的人渣滚远点，谁再强制你打毒针就一巴掌呼死它个龟孙。感谢班农先生美国英雄，世界英雄。我们新中国联邦的文贵先生在直播中多次告诉世界，冠状病毒不是灾难，中共病毒疫苗才是灾难。文贵先生冒着生命危险向世人说出真相：这是世界黑暗力量，大型制药公司，比尔盖茨的邪恶屠杀。
 
-其中, 告诉我的
-Among these,
+因为我们尊敬的硬汉郭文贵先生，因为新中国联邦和爆料革命，才有美联邦第五巡回上诉法院裁定维持对拜登疫苗强制的临时禁令。同时也让我们爆料革命的战友们能够从一开始就远离毒针，获得预防和治疗的解药。从文贵先生直播中的话，我们知道，中共病毒疫苗的事情，是美国停世界就跟着停。
 
-咱们的这个科学家就告诉我什么
-one of our scientists told me
 
-他说我的一个学生
-that one of his students
 
-突然间我最近联络不上去了
-suddenly couldn’t get in touch with recently
+![](https://assets.gnews.org/wp-content/uploads/2021/11/calendar_nov-1.jpg)
 
-结果好嘛
-As a result, which was great,
 
-他说我发现他出现在了美国西部
-he said he found out that he (his student) appeared in the western United States
 
-不是美国，是美国的西部某国
-It’s not the United States, but a country in the west of the United States
+编辑/校对/发稿：武裝的羔羊
 
-他说我觉得这事儿不妙啊
-He said he felt that there was something not lined up
+**更多资讯，更多关注**
 
-他就这么一点我
-Just by this hint
-
-我一下就明白了
-I suddenly realized that
-
-我说坏了，坏了，又要出事儿
-something wrong must have happened again
-
-然后六中全会要开
-And then, the Sixth Plenary Session of the Central Committee will be held
-
-这个时候
-At that time,
-
-告诉我要干掉班农的战友跟我说
-the comrade who told me the CCP would take down Bannon said
-
-六中全会后
-that after the Sixth Plenary Session of the Central Committee,
-
-美国等西方国家
-the U.S. and other western countries
-
-又一波新的病毒变种会出来
-would have another wave of new virus variants appearing
-
-那我就问咱们这个欧洲科学家了
-So I asked this European scientist
-
-我说那你说这变种出来后
-I said that after this variant comes out,
-
-对疫苗什么影响
-what effect will it have on the vaccine?
-
-加速疫苗的整个的所有的身体反应
-It will speed up the entire body when getting the vaccine
-
-而且会加速这个政府推广疫苗
-And will accelerate the government’s promotion of vaccines
-
-他说这就是真正的灾难的开始了
-He said this was the beginning of the real disaster
-
-哇塞，整得我浑身
-Wow, it made my entire body
-
-这真是浑身汗毛倒立呀，吓人的
-break out with goosebumps. It’s scary
-
-所以Eglise，我觉得
-So, Eglise, I have the feeling that
-
-现在真的是我们很可怕的事
-it’s really a terrible thing for us now
-
-真的是我们面临着人类最黑暗的时刻
-It’s for real that we are facing the darkest moment of mankind
-
-最黑暗的时刻
-The darkest moment
-
-就这种情况下还要给孩子打疫苗
-Under this circumstance, it is still required that children get vaccinated
-
-你能想一想
-Can you imagine
-
-那多可怕
-how terrible the outcome would be?
-
-七哥所说的咱们的情报
-What I have said is based on our intelligence
-
-到现在，运动员、飞机
-Until now, athletes, pilots, (etc.) have been affected
-
-你看多少飞机出事儿现在？
-Look, how many airplane accidents are there now?
-
-名人，死的死，瘫的瘫
-Many celebrities have died or been paralyzed from the vaccine
-
-但它往孩子身上还要打
-But it still vaccinated on our children
-
-灾难啊
-It’s disaster
-
-没法预测
-It cannot predict
-
-只有爆料革命、新中国联邦联合在一起
-Only when the whistleblower movement and the New Federal State of China united,
-
-咱们大家才真正的
-all of us could actually
-
-互相之间可能会安全
-be safe among each other,
-
-谁也不敢保证
-but no one can guarantee that
-
-只有紧紧地连在一起
-Only when we are tightly connected together it may work
-
-没有任何招
-There is no other trick
-
-千万别指望政府
-Never count on the government
-
-你也甭指望着别人
-or other people
-
-只有新中国联邦能让咱战友们安全
-Only the New Federal State of China can keep our comrades safe
-
-**原视频链接:** [https://gettr.com/post/ph08fqf847](https://gettr.com/post/ph08fqf847)
-
-Date: 11/14/2021
-原视频标题: 情报显示 中共开始再一次放毒新变种病毒出现
-Intelligence indicates that the CCP starts to once again discharge another new variant of the virus
-原视频日期：2021/11/14
-任务编号：KC263（2896）
-视频时间段 : 0:00-2:13
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

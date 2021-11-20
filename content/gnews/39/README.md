@@ -2,23 +2,34 @@
 ---
 
 
-## 11月19日文贵大直播快讯——新中国联邦的货币是全球性的
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1678143/)
+## “朝阳群众”基层监管遍布中共国
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678229/)
 
-撰稿：Gradient Boost
+作者：日本樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月18日，据中共媒体消息称，中共北京当局在一份文件中表示，未来将打造更多的“朝阳群众”、“西城大妈”等所谓“基层社会治理”的群众组织。中共声称，截至2023年，北京每个社区都需被这类监管群体覆盖。相关人士透露，这种伪民间组织现已遍布全国，并多与当地公安紧密合作，破坏、阻挠墙内民众为了维护自身权益所采取的行动，其中甚至出现维权人士被该组织成员跟踪、监视的现象。
 
-视频：云彩
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide4-7.jpeg)
 
-美东当地时间11月19日，文贵先生在大直播中探讨数字货币与法币问题，以及经济膨胀所带来的危害。在谈到新中国联邦创造的货币时，文贵先生强调它是全球性的，简称“数字球币”，甚至可以到月球上去。
+有学者指出，自中共建政之初，“朝阳群众”这种延续演变至今的监控管制模式，本质是一种社会动员。这当中，“群众”未必是真群众，实为中共假借“群众举报”之名，来达到自身的某些目的。
 
-同时在直播中文贵先生喊话币安的赵长鹏，提醒赵长鹏他的最终结局将与王健一样。赵长鹏选择和共产党王岐山进行勾兑，替他洗钱说话，肯定是会完蛋的。
+参考链接：
+1）[北京将打造更多”朝阳群众” “世界第五大情报组织”已遍布全中国](https://www.rfa.org/mandarin/yataibaodao/shehui/ac1-11182021052828.html)
+2）**[“朝阳群众”屡获战功 北京拟打造更多神秘组织](https://news.creaders.net/china/2021/11/18/2420890.html)**
 
-文贵先生提到，赵长鹏在新加坡到处串门称喜币是scam，是骗局。然而他的币安实际上只是一个交易所，充其量就是一个夜总会的妈咪而已。而新中国联邦拥有的是真正的稳定币，相当于是开了一家夜总会，而且同时还是警察以及决定警察人选的帮。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-赵长鹏否定喜币，相当于是夜总会的妈咪要否定夜总会，天下哪有这样的道理？因此笔者认为，即便王岐山派出了币安的赵长鹏，打算采取卑鄙手法污蔑和打击喜币，最终的结局必定是毫无成效——因为双方根本就不再同一个层次上。
+总编：文特
+编辑：小鹿妞妞
+校正/发稿：谐趣园
 
-当赵长鹏决定替共匪卖命时，在前方等待他的道路也就仅剩下了毁灭。在有了王健这样的前车之鉴后，仍然有人选择做中南坑的走狗，这也不禁令人唏嘘扼腕。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-2.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

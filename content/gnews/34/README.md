@@ -2,36 +2,29 @@
 ---
 
 
-## 美情报官员将战略目标聚焦中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678269/)
+## 比尔-盖茨和默克公司想干什么？
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1678352/)
 
-作者：日本方舟农场 – Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月16日，美国现任和前任情报官员在举行会议时明确，美国未来的战略目标需要对准中共。
+**作者： Rosemary**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-12.jpeg)
+11月9日，比尔-盖茨警告说，生物恐怖主义可能是一个比自然发生的流行病更大的威胁。他警告各国政府要为天花”SMALLPOX “恐怖袭击和未来的大流行病做好准备，在研究和开发方面需要投入数十亿美元。盖茨先生是在接受Policy Exchange采访时发表上述言论的，采访对象是卫生专门委员会主席杰里米-亨特。他说，像美国和英国这样的国家必须花费 “数百亿 “来资助研究，并补充说，虽然这可能很昂贵，但它可能会导致流感和普通感冒的根除。
 
-前美国情报局首席副局长苏·戈登称，几十年来，美国情报界先是关注苏联，随后着重于中东恐怖主义，而现在的情报界已经进入了第三个情报纪元。对于美国而言，需要从反恐的沉迷中清醒过来，将目光转向中共。
+八天后，11月17日晚上在费城外默克公司的一个制药实验室发现的15个小瓶–包括5个令人震惊的标为 “天花 “”SMALLPOX “的小瓶。10个小瓶贴有用于制造天花疫苗的病毒的 “疫苗 “标签，是由一名正在清理冰柜的实验室工作人员发现的。在被发现后，这些小瓶被立即保护起来，并对该设施进行了封锁，到周三晚上解除了封锁。默克公司没有立即回应DailyMail.com的评论请求。联邦调查局展开了紧急调查。
+![上图是2003年的一瓶天花疫苗.](https://assets.gnews.org/wp-content/uploads/2021/11/Vial.jpg)
+天花仅在20世纪就造成约3亿人死亡，随着一次成功的大规模疫苗接种运动，天花在1980年被根除。这种致命病毒的样本只应该保存在两个实验室里：亚特兰大的CDC总部和俄罗斯Koltsovo的Vector研究所。
 
-与此同时，现任和前任情报官员们纷纷表示，没有任何一个国家像现在的中共这样，正在全方位地监视美国。对此，前CIA参谋长拉里·菲弗也提到，中共先是通过人海战术收集数据，接着用人工智能对这些数据进行分析，最后有针对性地瞄准着美国。
+天花是一种严重的、威胁生命的疾病，由变种病毒引起。一个人在接触后的7到14天内可能不会看起来或感到不适，但最初的症状包括高烧、头痛、背痛和呕吐。约有三分之一的人感染该病后死亡。在最初的症状之后，会出现全身性的皮疹。在这个阶段，患者的传染性最强。皮疹出现在舌头、口腔和喉咙。然后扩散到面部和手臂、躯干和腿部。充满脓液的疙瘩，也称为脓疱，形成后开始结痂，并在大约10天的时间内掉落。它主要是通过呼吸道微粒导致的长期面对面的传播。该病毒还通过共享床单、毛巾和衣服传播。 大多数美国人没有接种过这种疾病的疫苗，那些接种过疫苗的人的免疫力可能正在减弱，这意味着一旦爆发可能会产生破坏性的后果。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Merckbiulding.jpg)
+这是发现天花的在默克公司位于费城外的Upper Gwenydd工厂
+![](https://assets.gnews.org/wp-content/uploads/2021/11/twoloc.jpg)
+这两个机构没有立即回应DailyMail.com的评论请求。
 
-评论称，此次美国情报官员齐聚的安全会议表明，美国情报界正在把焦点定位于中共。
+参考链接：
 
-参考链接：[As U.S. spies look to the future, one target stands out: China](https://www.npr.org/2021/11/16/1051170999/as-u-s-spies-look-to-the-future-one-target-stands-out-china)
+[https://www.independent.co.uk/news/science/bill-gates-smallpox-terror-attack-b1958789.html](https://www.independent.co.uk/news/science/bill-gates-smallpox-terror-attack-b1958789.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+[https://www.dailymail.co.uk/news/article-10215345/FBI-launches-probe-SMALLPOX-Merck-facility-cleaning-freezer.html](https://www.dailymail.co.uk/news/article-10215345/FBI-launches-probe-SMALLPOX-Merck-facility-cleaning-freezer.html)
 
-总编：飞虹
-编辑：文特
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

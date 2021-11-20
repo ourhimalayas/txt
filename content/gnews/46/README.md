@@ -2,19 +2,23 @@
 ---
 
 
-## 【文贵大直播PPT】主权国家法币将慢慢消失
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1677938/)
+## 11月19日文贵大直播快讯——隔空取钱还没有开始
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1678031/)
 
-撰稿：巍峨泰山，Nine Lee
-美工：sotres
-审核：三票先生，顽童先生
+撰稿：Gradient Boost
 
-【2021年11月19日文贵大直播PPT：主权国家法币将慢慢消失】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-19-105502-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/12-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/13-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/14-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/15-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/16-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/17-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/18-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/19.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/111-2-2.jpg)
-* * *
+视频：扶苏
 
-发稿：云起时
+美东当地时间11月19日，文贵先生在大直播中探讨数字货币与法币问题，以及经济膨胀所带来的危害。再聊到当前情势下隔空取钱是否已经开始运作时，文贵先生称现在还不算是。
 
+隔空取钱牛的地方在于它事实上就像一个黑洞，即便没有亲自主动取得，也会存在巨大的吸引力，想不来都不行，没有选择。笔者认为，这已经是比取钱更上一层楼的形式，称为“隔空吸钱”都不算夸张。
+
+同时人们将逐渐明白数字货币将没有未来，例如赵长鹏的币安，也不会有任何前途了。一个战友所用有的财富都会超过他加在一起的那13亿价值。玩数字货币的人其实也很清楚，他们没有黄金，没有稳定币，而最为重要的在于，他们没有联邦，即缺少法定的实体。
+
+文贵先生透露，现在某些国家都已经要让新中国联邦购买武器了。可以说是与赵长鹏根本不在一个等级之上。一个没有邦护佑的币，是不会安全的。邦能够合法化，那么同时也就能够立法。而邦立下的数字法，就可以通行与全世界。
+
+咱们的邦已经成立，现在是一统江湖的时刻。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
