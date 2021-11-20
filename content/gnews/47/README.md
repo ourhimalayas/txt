@@ -2,24 +2,26 @@
 ---
 
 
-## 日本国防开支创纪录为应对中共威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1679579/)
+## 台湾驻立陶宛代表处正式成立
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1679586/)
 
-编辑：飞虹
+撰稿：日本樱花团—在远方
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
-据媒体报道，日本计划在当地时间11月19日与经济刺激计划一同公布的追加预算中，列支创纪录的67.4亿美元用于国防开支。同时，前首相安倍晋三在参加澳洲智库研讨会时呼吁，应该将日本同澳洲的防卫合作关系提高到新的水平。因为日本政府越来越关注中共国在有争议的东海海域的军事行动。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11203.jpg)
-日本执政的自民党在选举之前，就在其政策纲领众列入了，拟将GDP的2%或者更多用于军事开支的计划。而在此前，日本一直承诺国防开支不超过GDP的1%。日本防卫省希望，有资金用于生产国产隐形战斗机，和远程导弹，同时日本还在努力打造网络战、太空战和电磁战的能力。
+当地时间11月18日，台湾在立陶宛的外交机构“驻立陶宛台湾代表处”正式成立，这是台湾顶住中共的压力，在外交方面取得的一项重大突破。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11205.jpg)
+多年来，为了在国际舞台上孤立台湾，并使其从名称上显示对中共国的隶属关系，中共用尽各种手段，阻止台湾在外交事务上使用“台湾“字样。此次成功用“台湾”取代“台北”命名台湾驻立陶宛代表处，是台湾在国际外交事务中迈出的重要一步。
 
-安倍晋三表示，日本应与美国、英国和澳洲等AUKUS安全伙伴，在人工智能、网络能力和量子技术方面进行合作。而AUKUS协议，被广泛认为是对中共国在该地区军事力量提升的回应。
 
-新闻链接：
 
-[https://cn.reuters.com/article/japan-military-budget-increase-1119-fri-idCNKBS2I402X](https://cn.reuters.com/article/japan-military-budget-increase-1119-fri-idCNKBS2I402X)
+相关链接：
+
+[https://www.voachinese.com/a/Taiwan-Opens-Representative-Office-Using-Own-Name-20211118/6318371.html](https://www.voachinese.com/a/Taiwan-Opens-Representative-Office-Using-Own-Name-20211118/6318371.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-9.jpg)
 
-总编：文徬
+总编：AN
+
+编辑：小鹿妞妞
 
 校正/发稿：浪迹天涯
 
