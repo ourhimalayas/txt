@@ -2,43 +2,32 @@
 ---
 
 
-## 日本政府拟定在12月底之前敲定增加驻日美军军费，以应对中朝威胁
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1678895/)
+## 奥地利将步入封国 强制疫苗引入罚款
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1678934/)
 
-作者：日本方舟农场 Andy5
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-5.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/奥地利-1.png)图片来源：澳洲9新闻网
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1-10.jpg)图片源自网络
-日本政府正在协调同意增加美军驻留经费的日本负担的金额。报道称这部分追加金额将用于日本自卫队与美军共同使用的机场、以及联合训练等经费，而不是针对美军基地的水电燃气费等原有负担，也不会是川普政府时期所要求的巨额增量。日本政府认为这样的增额，将有助于强化同盟同时容易获得国民的理解。
+**翻译：美哥**
+**编辑：Candy**
 
- 美国指出中共国加强军事力量、北朝鲜对核武器和导弹的开发，都导致了驻日美军重要性的上升。目前日美正在就联合训练等部分，探讨是否在特别协定中新设项目。 本次军费审议已经在今年8月举行了磋商并开始正式谈判，日本政府力争在12月下旬国会敲定2022年度预算案之前，跟美方谈妥增加金额。
+奥地利总理亚历山大（Alexander Schallenberg ）宣布：为应对第四波新冠疫情，全国将进入封国阶段。从下周一开始，初步计划持续10天，大部分店面和文化活动将全面取消，学校基本停摆。
 
-参考链接：[https://china.kyodonews.net/news/2021/11/16ec09faec16.html](https://china.kyodonews.net/news/2021/11/16ec09faec16.html)
+公共电台ORF透露：从明年2月1号起，奥地利将继续加大强制疫苗的力度，来避免第五波、第六波的来袭。奥地利本来计划只对不打疫苗的人士进行封锁，但是因为新冠疫情火箭般的蹿升，只得扩大到每一个人。“如果封国十天，效果评估不好，疫情下不去，可能还需要最多延长20天的封国。”总理补充道。另外，奥利地医学代表对于“强按暂停键”的强制行为却表示了欢迎。
 
-总编：Irene木木
-校对/发稿：Daxia
+奥地利拥有890万人口，在过去的七天里，报道了日均超过1万个中共病毒新增感染案例。医院人满为患，死亡率再次升高，迄今有11525人死于中共新冠病毒。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-4.png)
+奥地利总理说：要么离开奥地利，要么打疫苗。2月开始，你没有选择。抵制打疫苗的人等待的将是罚款。我们的强制疫苗政策执行得太晚了 。
 
-**更多资讯，更多关注**
+原文链接：[https://amp.9news.com.au/article/ea0563b1-6557-4130-bee0-1fbe2a5afd9e](https://amp.9news.com.au/article/ea0563b1-6557-4130-bee0-1fbe2a5afd9e)
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+***发布：Candy***
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,13 +2,11 @@
 ---
 
 
-## 日本政府将推出创纪录的55.7万亿日元经济刺激措施
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1679055/)
+## 11/19/2021 文贵直播：中共想通过病毒和疫苗的灾难干掉美元，从而达到人民币国际化和独霸世界的目的
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1679068/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._20-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

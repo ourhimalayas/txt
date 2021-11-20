@@ -2,30 +2,42 @@
 ---
 
 
-## 英媒：英国首相考虑对北京冬奥会进行外交抵制
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1679211/)
+## 台湾无视中共国反对，在立陶宛开设办事处
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1679224/)
 
-![唐宁街10号 （英国首相官邸）](https://cdn.sputniknews.cn/images/101692/83/1016928358.jpg)
-据俄罗斯卫星通讯社11月20日，援引英国《泰晤士报》报道称，英国首相鲍里斯·约翰逊为“抗议中国的人权记录”，正在考虑对2022年北京冬奥会进行外交抵制。此前，5名保守党政客致信约翰逊，呼吁其禁止英国任何官方外交代表出席2月份的冬奥会。
+据《路透社》记者Ben Blanchard 于2021年11月18日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-476-e1637382922621.png)2021 年6月30日，台湾桃园，台湾国旗迎风飘扬。图片来源：路透社/ Ann Wang
+路透台北11月18日电—**无视北京方面的强烈反对，台湾周四在立陶宛开设了事实上的大使馆，这是台湾的外交突破，北京再次表达了它的愤怒并警告了后果。**
 
-报道称，英国政府内部正在进行“积极的讨论”。英国外交大臣利兹·特拉斯（Liz Truss）支持抵制。与前任外交大臣多米尼克·拉布（Dominic Raab）相比，特拉斯采取了更为强硬的立场，她曾私下指责“北京迫害维吾尔穆斯林，犯下种族灭绝罪”。
+今年8月，中共要求这个波罗的海国家撤回其驻北京大使，并表示将召回中共驻维尔纽斯大使。此前，台湾宣布在维尔纽斯的办事处将更名为台湾驻立陶宛代表处。
 
-自去年美国前国务卿蓬佩奥宣布中共犯下种族灭绝罪后，西方自称尊重人权的各国政府就再也不可回避北京的人权问题，如果继续默许北京的反人类罪行，继续毫无顾忌与中共勾兑，那西方各国政要必将成为侵害人权的共谋者，成为人类历史的罪人。世界各国也越来越认识到中共就是万恶之源，横亘在人类文明前进的路上，任何人都不能回避，我们没有选择，只有团结起来正视它，消灭之。
+台湾在欧洲和美国的其他办事处使用台北这个城市的名称，避免提及台湾本身，因中共声称台湾是自己的领土。
 
-新闻参考链接：[https://sputniknews.cn/politics/202111201034835407/](https://sputniknews.cn/politics/202111201034835407/)
+中共已加紧努力让其他国家限制与台湾的联系，或完全断绝与台湾的交往。 与台湾建立正式外交关系的国家只有15个。
 
-编辑：MQ
+立陶宛决定在台湾开设自己的代表处也激怒了中共当局，尽管尚未确定具体日期。
 
-* * *
+台湾外交部表示，开设办事处将为台湾与立陶宛的关系“开辟一条新的、充满希望的道路。在半导体、激光和金融科技等行业存在巨大的合作潜力。”。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+“台湾将基于我们共同的价值观，珍惜并促进这种新的友谊。”
+
+中共国外交部表示，此举是对中国内政的“粗暴干涉”，“立陶宛方面对由此产生的一切后果负责，我们要求立陶宛方面立即纠正错误决定。”。
+
+**与立陶宛在台湾的争端也吸引了美国，美国向维尔纽斯提供支持以顶住中国的压力。**
+
+**许多其他国家也在台北设有事实上的大使馆，包括立陶宛的几个欧盟成员国、英国、澳大利亚和美国。**
+
+原文连接：[https://www.reuters.com/world/china/taiwan-opens-office-lithuania-brushing-aside-china-opposition-2021-11-18/?taid=619627abdc16960001750f2c&utm\_campaign=trueAnthem:%20Trending%20Content&utm\_medium=trueAnthem&utm\_source=twitter&s=09](https://www.reuters.com/world/china/taiwan-opens-office-lithuania-brushing-aside-china-opposition-2021-11-18/?taid=619627abdc16960001750f2c&amp;utm_campaign=trueAnthem:%20Trending%20Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter&amp;s=09)
+
+翻译：洛杉矶盘古农场 – 比格渣餐厅老板の娘
+
+校对&编辑：洛杉矶盘古农场 – 小象的奶瓶
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
