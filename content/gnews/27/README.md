@@ -2,31 +2,135 @@
 ---
 
 
-## 有俄罗斯撑腰胆子越来越大！中共海军测量舰驶入日本领海
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1680787/)
+## 中共经济倒塌牵动欧美，经济大崩溃习欲趁机攻台湾
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1680812/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-15.png)
-[图片来源](http://tokyoexpress.info/2014/10/05/%E4%B8%AD%E5%9B%BD%E6%B5%B7%E8%BB%8D%E3%81%AE%E6%B8%AC%E9%87%8F%E8%89%A6%E3%80%81%E6%88%91%E5%9B%BD%E3%81%AE%E6%8E%92%E4%BB%96%E7%9A%84%E7%B5%8C%E6%B8%88%E6%B0%B4%E5%9F%9Feez%E3%81%AB%E4%BE%B5/)
+[https://gtv.org/video/id=619766f7182702508106bff2](https://gtv.org/video/id=619766f7182702508106bff2)
 
-日本防卫省11月19日发布消息称，中共海军1艘测量舰17日晚在鹿儿岛县屋久岛和口永良部岛附近海域，驶入了日本领海。
+接下来房地产崩塌, 不是说他担忧, 一定是崩塌的下跌
+Lo que viene es el colapso inmobiliario, no es que sea una preocupación, debe ser el colapso de la caída
 
-防卫省未透露驶入期间的详细行动。日本政府通过外交渠道，向中共政府传达了关切。这是日方第4次确认并公布中共海军舰艇驶入领海，上次是2017年7月。此次未发出基于《自卫队法》可以使用武器的“海上警备行动”命令。
+绝对不是抛物线上去
+Definitivamente no se va en una parábola
 
-据防卫省介绍，17日晚8点40分前后，海上自卫队巡逻机发现了在屋久岛以南毗连区航行的测量舰。翌日的18日凌晨1点20分前后，发现该测量舰在口永良部岛以西的毗连区向西航行。防卫省认为在此期间，测量舰驶入了日本领海航行。
+绝对是天上不是扔一个苹果
+Tampoco no es lanzar una manzana desde el cielo
 
-防卫省认为中共与俄罗斯携手、活动趋于频繁，已加强警惕。19日，在日本周边，中国和俄罗斯各2架轰炸机在日本海和东海上空长途飞行，航空自卫队战机紧急升空应对。18日以后，日方发现中俄驱逐舰等共3艘经对马海峡驶入了东海。
+是扔颗大石头下来的感觉
+Sino es como lanzar una piedra grande
 
-近期，中共与俄罗斯频繁在日台海域周边开展舰艇和战机联合巡航，向美日台强调其亚太地位的同时，也释放强烈的武力对抗信号。中共在军事上一直都是纸老虎和打嘴炮，一反常态地越来越活跃，除了中南坑的疯狂和无知之外，还因为拉上了“俄爹”当靠山。
+你走着看
+Verás
 
-信息来源：
+刚就是说那个供应链
+Lo que estabamos hablando de la cadena del suministro
 
-[详讯：防卫省称中国海军测量舰驶入日本领海](https://china.kyodonews.net/news/2021/11/36ccf4891ca8.html)
+要用国民警卫队
+Que van a usar la Guardia Nacional
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-4.png)
+他没有闹明白
+Él no ha comprendido bien
 
+你用什么对队, 国民警卫都给打疫苗啦
+Qué guardia vas a usar si toda la Guardia Nacional se han vacunado
+
+国民警卫队有家人, 他有孩子要上学
+Ellos también tienen familiares e hijos que van al colegio
+
+你发完了钱
+Luego que termines de distribuir el dinero
+
+根本物价上涨
+El precio de los bienes fundamentales ha aumentado
+
+以后你发完了钱, 这边给你100
+Después cuando terminas de distrubuir el dinero, aquí te dan 100
+
+然后这边给你这一杯子水
+Y aquí te dan un vaso de agua
+
+过去1块钱就变成200块钱了
+Lo que era 1 yuan en el pasado, se convirtió en 200 yuanes
+
+给你100有什么用
+De qué sirve darte 100
+
+这手通货膨胀, 这手给你弄钞票, 全是政治操作吗
+Esta mano es la inflación y la otra te da billete, todo es puro control político
+
+最后大家全完蛋吗
+Finalmente, todos se acabarán
+
+国民警卫队管用吗, 不管用的
+¿Servirá la Guardia Nacional? No
+
+供应链的问题是疫苗造成的
+El problema de la cadena del suministro es causado por las vacunas
+
+是这个病毒造成的
+Y este virus
+
+是你这个不良的疫苗政策造成的
+Es causado por su mala política de vacunas
+
+那么接下来共产党这个房地产一倒塌
+Y lo que viene es el colapso inmobiliario del Partido Comunista
+
+咵嚓, 美国的7万亿美元投资
+¡Boom! Una inversión de 7 billones en los Estados Unidos
+
+你还能找回来吗
+¿Podrás recuperarlo?
+
+习就一句话
+Xi sólo dijo una palabra
+
+老子就让你经济大崩溃
+Yo te haré un gran colapso económico
+
+我就顺便打台湾
+Y aprovecho puedo atacar a Taiwán
+
+这是多简单的事情啊
+Esto es un asunto tan fácil
+
+梁山, 水浒, 三国演义, 无数次诸葛亮, 陆逊, 司马懿用的办法
+Liang Shan, A la orilla del agua, el Romance de los tres Reinos, el método utilizado por Zhuge Liang, Lu Xun y Sima Yi por innumerables veces
+
+东边点火, 西边烧妳粮仓去, 是吧
+Dispara en el este y quema tu granero en el oeste, ¿verdad?
+
+这边是打你的小城, 那边是把你引开注意力
+Este lado es para vencer a tu pequeña ciudad y el otro lado es para desviar tu atención
+
+攻你的老窝去
+Ataca tu nido
+
+不都是这招吗
+No siempre usan este truco, cierto
+
+现在习就用这招
+Ahora Xi está usando este truco
+
+* * *
+
+日期：11/18/2021
+原视频标题：中共经济倒塌牵动欧美，经济大崩溃习欲趁机攻台湾
+El colapso de la economía del PCCh afecta a Europa y Estados Unidos; Xi quiere aprovechar esta oportunidad para atacar a Taiwán
+原视频日期：11/16/2021
+原视频网址：[https://gettr.com/post/ph212m0818](https://gettr.com/post/ph212m0818)
+任务编号：KC265（2914）
+视频时间段：0:00-1:35
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
