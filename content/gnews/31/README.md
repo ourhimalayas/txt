@@ -2,46 +2,28 @@
 ---
 
 
-## 第三位外国运动员在北京新冠检测呈阳性
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1678336/)
+## 比尔-盖茨和默克公司想干什么？
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1678352/)
 
-编译： Jenny Ball
+**作者： Rosemary**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-37.jpg)2021 年 11 月 11 日，在北京国家室内体育场举行的 2022 年北京冬季奥运会测试赛期间，运动员参加冰球训练课程，卫生工作者（上）待命。（王兆/法新社，盖蒂图片社）
+11月9日，比尔-盖茨警告说，生物恐怖主义可能是一个比自然发生的流行病更大的威胁。他警告各国政府要为天花”SMALLPOX “恐怖袭击和未来的大流行病做好准备，在研究和开发方面需要投入数十亿美元。盖茨先生是在接受Policy Exchange采访时发表上述言论的，采访对象是卫生专门委员会主席杰里米-亨特。他说，像美国和英国这样的国家必须花费 “数百亿 “来资助研究，并补充说，虽然这可能很昂贵，但它可能会导致流感和普通感冒的根除。
 
-中共国于 11 月 18 日报告了,在即将到来的北京 2022 年冬季奥运会的热身赛中，外国运动员中出现的第三例 COVID-19 病例。
+八天后，11月17日晚上在费城外默克公司的一个制药实验室发现的15个小瓶–包括5个令人震惊的标为 “天花 “”SMALLPOX “的小瓶。10个小瓶贴有用于制造天花疫苗的病毒的 “疫苗 “标签，是由一名正在清理冰柜的实验室工作人员发现的。在被发现后，这些小瓶被立即保护起来，并对该设施进行了封锁，到周三晚上解除了封锁。默克公司没有立即回应DailyMail.com的评论请求。联邦调查局展开了紧急调查。
+![上图是2003年的一瓶天花疫苗.](https://assets.gnews.org/wp-content/uploads/2021/11/Vial.jpg)
+天花仅在20世纪就造成约3亿人死亡，随着一次成功的大规模疫苗接种运动，天花在1980年被根除。这种致命病毒的样本只应该保存在两个实验室里：亚特兰大的CDC总部和俄罗斯Koltsovo的Vector研究所。
 
-冬奥会发言人赵卫东在周四的新闻发布会上对记者说，这名运动员于 11 月 14 日检测呈阳性，已被送往隔离酒店。
+天花是一种严重的、威胁生命的疾病，由变种病毒引起。一个人在接触后的7到14天内可能不会看起来或感到不适，但最初的症状包括高烧、头痛、背痛和呕吐。约有三分之一的人感染该病后死亡。在最初的症状之后，会出现全身性的皮疹。在这个阶段，患者的传染性最强。皮疹出现在舌头、口腔和喉咙。然后扩散到面部和手臂、躯干和腿部。充满脓液的疙瘩，也称为脓疱，形成后开始结痂，并在大约10天的时间内掉落。它主要是通过呼吸道微粒导致的长期面对面的传播。该病毒还通过共享床单、毛巾和衣服传播。 大多数美国人没有接种过这种疾病的疫苗，那些接种过疫苗的人的免疫力可能正在减弱，这意味着一旦爆发可能会产生破坏性的后果。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Merckbiulding.jpg)
+这是发现天花的在默克公司位于费城外的Upper Gwenydd工厂
+![](https://assets.gnews.org/wp-content/uploads/2021/11/twoloc.jpg)
+这两个机构没有立即回应DailyMail.com的评论请求。
 
-赵说，运动员没有出现任何症状，并补充说运动员是先前确诊病例的密切接触者。
+参考链接：
 
-11 月 12 日，当局报告了两名乘坐感染 COVID-19 的包机抵达的雪橇运动员。
+[https://www.independent.co.uk/news/science/bill-gates-smallpox-terror-attack-b1958789.html](https://www.independent.co.uk/news/science/bill-gates-smallpox-terror-attack-b1958789.html)
 
-组织者没有透露三人中任何一个人的身份或国籍。
-
-1500多名运动员已抵达该国参加无舵雪橇训练周，和作为北京2022年冬季奥运会测试项目的无舵雪橇世界杯。
-
-北京为奥运会实施了严格的 COVID-19 协议，要求参与者每天接受 PCR 检测，并保持在“封闭”系统中，限制他们的行动。
-
-据报道，自 2019 年底武汉市首次出现中共病毒以来，中共国正在经历最广泛的爆发。目前的感染浪潮已扩大到包括首都北京在内的大陆 31 个省中的 21 个，促使当局加倍努力追踪潜在感染人，并增加对其行动的限制。
-
-北京奥运会官员上个月表示，COVID-19 疫情是奥运会面临的最大挑战。
-
-奥运会定于 2 月 4 日至 20 日举行，越来越多的人呼吁抵制中共对新疆、西藏和香港的迫害。
-
-**评论：中共能够用封死房门对付自己的百姓，外国运动员无疑是冒着生命危险为独裁中共站台！**
-
-**参考资料：**[theepochtimes][Third Foreign Athlete COVID-19 Positive in Beijing](https://www.theepochtimes.com/third-foreign-athlete-covid-19-positive-in-beijing_4111258.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-11-19)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
-
-
+[https://www.dailymail.co.uk/news/article-10215345/FBI-launches-probe-SMALLPOX-Merck-facility-cleaning-freezer.html](https://www.dailymail.co.uk/news/article-10215345/FBI-launches-probe-SMALLPOX-Merck-facility-cleaning-freezer.html)
 
  
 

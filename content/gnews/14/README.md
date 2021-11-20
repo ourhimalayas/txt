@@ -2,216 +2,60 @@
 ---
 
 
-## 情报显示 中共开始再一次放毒新变种病毒出现
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1678772/)
+## FDA 要求法院在55年内发布辉瑞 COVID-19 疫苗数据
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1678784/)
 
-[https://gtv.org/video/id=6197302f182702508106b3d3](https://gtv.org/video/id=6197302f182702508106b3d3)
+翻译： Jenny Ball
 
-**郭文贵**
-**Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/pfizer-vaccine-in-hand-1200x702-700x420-1.jpg)2021 年 9 月 21 日，一瓶 5 剂辉瑞 COVID-19 疫苗在加利福尼亚州洛杉矶举行。（Frederic J. Brown/AFP via Getty Images）
 
-同样的事情
-The same thing
+美国食品和药物管理局 (FDA) 于 11 月 15 日要求联邦法官，在 2076 年之前完全公布其拥有的与批准辉瑞-生物科技 COVID-19 疫苗相关的文件。
 
-我一会儿告诉你们大家
-I’ll tell you in a moment
+作为信息自由法 (FOIA) 诉讼的一部分，FDA 的请求是由医疗透明度组织在一份文件中提出的。政府告诉法庭，它有 329,000 页的文件响应 FOIA 的要求，并提议每月发布 500 页以允许编辑豁免材料。按照这个速度，FDA 将在不到 55 年的时间内完全公布有问题的记录。
 
-班农先生
-is about Mr. Bannon
+原告“公共卫生和透明医疗专业人员”(PHMPT)是一群医生和科学家，其中包括耶鲁大学公共卫生学院流行病学教授哈维·里施（Harvey Risch）。
 
-42天前我告诉班农先生
-I told Mr. Bannon 42 days ago
+在 FDA 拒绝了他们加快发布记录的请求后，该组织提起了诉讼 。原告和被告无法就披露时间表达成协议，正在寻求举行听证会，在法官面前辩论他们的案件，法官最终可能会就此做出决定。
 
-我说共产党和美国这块
-I said that the CCP and the United States (Biden Administration)
+“FDA 对透明度的承诺，委婉地说，是一堆幻想，”Aaron Siri 于 11 月 17 日在一篇博客文章中写道，他的公司在诉讼中代表 PHMPT(Public Health and Medical Professionals for Transparency)。
 
-一定会把你战斗室给你干掉
-would definitely destroy your War Room
+“从辉瑞开始制作许可记录到 FDA 批准辉瑞疫苗，FDA 用了整整 108 天，”Siri 继续说道。“按照 FDA 的话，它对这些文件进行了密集、有力、彻底和完整的审查和分析，以确保辉瑞疫苗在获得许可时是安全有效的。虽然它可以在 108 天内对辉瑞的文件进行如此严格的审查，但它现在需要超过 20,000 天的时间才能向公众提供这些文件。”
 
-而且通过法院
-via court
+FDA 没有回应置评请求。
 
-怎么样？法院
-What happened? Through the court system
+FDA于 2021 年 8 月 23 日以 Comirnaty 标签许可辉瑞 COVID-19疫苗，距辉瑞开始提交该药物的全面批准文件不到四个月。**FDA ****于**** 8 ****月下旬批准了该许可证，导致私营和公共部门大量使用疫苗。**
 
-1月6号
-on January 6th (incident)
+本月早些时候，参与辉瑞疫苗试验的其中一家公司表示，它正在调查一名举报人揭露的所谓问题，该举报人告诉《英国医学杂志》 (BMJ)，该试验充斥着问题，包括数据造假。
 
-下个就是川普
-The next target will be Trump
+举报人布鲁克·杰克逊（Brook Jackson）向 FDA 发出警报，之后在数小时内被解雇。杰克逊在“文塔维亚” Ventavia 研究集团工作，该集团于 2020 年秋季运营了几个辉瑞试验站点。
 
-不是我蒙的
-I didn’t make that up
+根据世界上最古老的医学期刊之一 BMJ 的说法，尽管 FDA 对这些问题发出了警告，但并未检查 Ventavia 的试验地点。
 
-它是国内的情报告诉我的
-I got that from the domestic intelligence
+FDA 在本月早些时候在一封电子邮件中告诉《大纪元时报》，虽然它不能对 Ventavia 问题发表评论，但它“对用于支持辉瑞-生物科技 COVID-19 疫苗授权和 Comirnaty 批准的数据充满信心。”
 
-这是中美之间黑暗的较量
-This is a dark contest between the CCP and the United States
+截至 11 月 14 日，辉瑞的 COVID-19 疫苗已在美国接种超过 2.56 亿剂。
 
-其中, 告诉我的
-Among these,
+**评论：**
 
-咱们的这个科学家就告诉我什么
-one of our scientists told me
+- **“FDA 于 8 月下旬批准了该许可证，导致私营和公共部门大量使用疫苗。”但所谓的**Comirnaty 标签许可的辉瑞 COVID-19疫苗并没有生产！政府用“许可”强迫人们接受的是没有许可用于紧急情况的疫苗！政府和FDA可以这样明目张胆违法吗？
+- **FDA现在强制人们接受试验毒疫苗，难道现在不是最好的时刻，彻底公布“辉瑞 COVID-19 疫苗数据”，让人们对它到底是什么东西有信心接受吗？**
+- **为什么这届美国政府可以违宪行事，而且是违宪杀害全国人民？**
+- **是谁给了FDA主宰人民命运的权利？人民没有选举FDA 或CDC！**
+- **如果法官不能遵守宪法主持公道，为什么让他们终身坐在裁判人民生命的位置上？**
+- **我们必须思考才能找出未来的答案！**
 
-他说我的一个学生
-that one of his students
 
-突然间我最近联络不上去了
-suddenly couldn’t get in touch with recently
+**参考资料：**[theepochtimes][FDA Asks Court for 55 Years to Fully Release Pfizer COVID-19 Vaccine Data](https://www.theepochtimes.com/mkt_morningbrief/fda-asks-court-for-55-years-to-fully-release-pfizer-covid-19-vaccine-data_4110761.html?utm_source=Morningbrief&amp;utm_medium=email&amp;utm_campaign=mb-2021-11-19&amp;mktids=979a9fa29183704770db0a1226d1cd5b&amp;est=7txshA4mYuC6fya9UWiQy3YcNfPCcITOj%2Fh3%2FmI1nD1bGCq1P8FcQM0UYugH%2BHYFbcoodw%3D%3D)
 
-结果好嘛
-As a result, which was great,
+* * *
 
-他说我发现他出现在了美国西部
-he said he found out that he (his student) appeared in the western United States
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
 
-不是美国，是美国的西部某国
-It’s not the United States, but a country in the west of the United States
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
 
-他说我觉得这事儿不妙啊
-He said he felt that there was something not lined up
 
-他就这么一点我
-Just by this hint
-
-我一下就明白了
-I suddenly realized that
-
-我说坏了，坏了，又要出事儿
-something wrong must have happened again
-
-然后六中全会要开
-And then, the Sixth Plenary Session of the Central Committee will be held
-
-这个时候
-At that time,
-
-告诉我要干掉班农的战友跟我说
-the comrade who told me the CCP would take down Bannon said
-
-六中全会后
-that after the Sixth Plenary Session of the Central Committee,
-
-美国等西方国家
-the U.S. and other western countries
-
-又一波新的病毒变种会出来
-would have another wave of new virus variants appearing
-
-那我就问咱们这个欧洲科学家了
-So I asked this European scientist
-
-我说那你说这变种出来后
-I said that after this variant comes out,
-
-对疫苗什么影响
-what effect will it have on the vaccine?
-
-加速疫苗的整个的所有的身体反应
-It will speed up the entire body when getting the vaccine
-
-而且会加速这个政府推广疫苗
-And will accelerate the government’s promotion of vaccines
-
-他说这就是真正的灾难的开始了
-He said this was the beginning of the real disaster
-
-哇塞，整得我浑身
-Wow, it made my entire body
-
-这真是浑身汗毛倒立呀，吓人的
-break out with goosebumps. It’s scary
-
-所以Eglise，我觉得
-So, Eglise, I have the feeling that
-
-现在真的是我们很可怕的事
-it’s really a terrible thing for us now
-
-真的是我们面临着人类最黑暗的时刻
-It’s for real that we are facing the darkest moment of mankind
-
-最黑暗的时刻
-The darkest moment
-
-就这种情况下还要给孩子打疫苗
-Under this circumstance, it is still required that children get vaccinated
-
-你能想一想
-Can you imagine
-
-那多可怕
-how terrible the outcome would be?
-
-七哥所说的咱们的情报
-What I have said is based on our intelligence
-
-到现在，运动员、飞机
-Until now, athletes, pilots, (etc.) have been affected
-
-你看多少飞机出事儿现在？
-Look, how many airplane accidents are there now?
-
-名人，死的死，瘫的瘫
-Many celebrities have died or been paralyzed from the vaccine
-
-但它往孩子身上还要打
-But it still vaccinated on our children
-
-灾难啊
-It’s disaster
-
-没法预测
-It cannot predict
-
-只有爆料革命、新中国联邦联合在一起
-Only when the whistleblower movement and the New Federal State of China united,
-
-咱们大家才真正的
-all of us could actually
-
-互相之间可能会安全
-be safe among each other,
-
-谁也不敢保证
-but no one can guarantee that
-
-只有紧紧地连在一起
-Only when we are tightly connected together it may work
-
-没有任何招
-There is no other trick
-
-千万别指望政府
-Never count on the government
-
-你也甭指望着别人
-or other people
-
-只有新中国联邦能让咱战友们安全
-Only the New Federal State of China can keep our comrades safe
-
-**原视频链接:** [https://gettr.com/post/ph08fqf847](https://gettr.com/post/ph08fqf847)
-
-Date: 11/14/2021
-原视频标题: 情报显示 中共开始再一次放毒新变种病毒出现
-Intelligence indicates that the CCP starts to once again discharge another new variant of the virus
-原视频日期：2021/11/14
-任务编号：KC263（2896）
-视频时间段 : 0:00-2:13
-
-英听校: 洛杉矶盘古农场 – 郭班之樱
-翻译: 洛杉矶盘古农场 – 郭班之樱
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

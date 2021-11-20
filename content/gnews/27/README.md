@@ -2,50 +2,22 @@
 ---
 
 
-## 恒大将被从恒生中国企业指数中剔除
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1678446/)
+## 奥地利或成为首个强制疫苗的西方国家
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1678496/)
 
-作者：纽约香草山农场 – 四季
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-9.jpg)图片来源：网络照片
+据多家媒体11月19日报道，奥地利计划要求全体国民在2022年2月前接种中共病毒疫苗。这将是欧洲第一个强制接种疫苗的国家。继11月17日，奥地利政府将约200万未完全接种疫苗的民众关起来之后，今天又宣布全国从11月22日起进入全面封锁状态，奥地利将成为第一个重新实施全面COVID-19封锁的国家。
 
+欧洲最近的再次成为COVID-19流行的中心，据路透社统计，上周欧洲占全球平均感染人数的一半以上、最新死亡人数的一半左右。德国卫生部长廷斯斯帕恩说，第四波感染使欧洲最大经济体德国陷入国家紧急状态，不排除类似全面封锁的行动。默克尔周四宣布，将限制那些尚未接种疫苗的地区公众生活。
 
+然而在法国，总统马克龙在周四表示，法国不需要对未接种疫苗者实施封锁，因为法国在遏制病毒传播方面取得了成功。有74.9%的法国人接种了疫苗。
 
+正如郭文贵先生在直播中指出，黑暗已经来临。新联邦中国人要团结起来，继续传播病毒、疫苗真相。让我们的光柱刺破黑暗，为光明的到来做出自己的努力。
 
-
-[路透社](https://www.reuters.com/markets/us/evergrande-be-removed-hang-seng-china-enterprises-index-2021-11-19/)11月19日报道，恒生中国企业指数（. HSCE）的基准供应商周五在定期季度审查后表示，陷入困境的开发商中共国恒大集团（3333. HK）将被从香港的恒生中国企业指数中删除。 该变动将于12月6日生效。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1460-1.jpg)‎2021年9月23日，香港。 中国恒大中心大楼标志。 （REUTERS/Tyrone Siu）
-
-恒生中（共）国企业指数旨在反映在香港上市的中共国大陆公司的表现，并包括按市场价值衡量的前50只合格股票。
-
-迄今为止，恒大股价已下跌逾80%。 有近期报道称，中共恒大深陷债务危机，其掌门人许家印不得不出售私人资产偿还债务。 恒大债务的全面暴雷势必会对世界经济产生灾难性影响。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
-
+**新闻来源：**[Austria the first country in Europe to impose mandatory COVID-19 shots | National Post](https://nationalpost.com/news/world/austria-will-enter-fourth-nationwide-lockdown-impose-mandatory-vaccinations)
 
  
 
