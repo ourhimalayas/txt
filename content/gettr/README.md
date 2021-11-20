@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/20/2021 10:30 PM (UTC)`
+
+11/20/2021 [3rd Anniversary of 1120] Steve Bannon: All the warnings sent by Mr. Miles Guo to the West have been verified; the CCP doesn’t care about the life and death of the Chinese people, while the Biden regime is kowtowing to the CCP; we are in a very dangerous time right now, and the Rule of the Law Foundation and Rule of the Law Society should work diligently to help more defectors from the Communist China to bring the evidence about the truth of the COVID vaccines<br/><br/>11/20/2021【1120三周年纪念】班农先生：文贵先生向西方发出的警告都得到了一一验证；中共不在乎中国人的死活，而拜登政府却向中共俯首称臣；我们正处在非常危险的时刻，法治基金和法治社会要努力帮助更多从中共国逃出来的人带来有关疫情真相的证据<br/>
+![img](https://media.gettr.com/group35/getter/2021/11/20/22/30/420f4917-9b5e-a9b7-b652-4350c4c0fbab/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@rolfoundation 11/20/2021 7:22 PM (UTC)`
@@ -298,13 +305,6 @@ An orthopedic surgeon from Wisconsin described the serious side effects after hi
 
 Shop 'The Drop' at www.GFashion.com<br/><br/>@gfashion <br/>@ddnyc
 ![img](https://media.gettr.com/group49/origin/2021/11/17/02/c131b0f9-ef3b-b68a-c2e9-3fc158ae420e/7d7d51eead33a47aed0f871a20543d20.jpg)
-
----
-
-`@miles 11/17/2021 12:35 AM (UTC)`
-
-11月16日：多多和笨笨都长大了，感谢很多战友很关心他俩的成长，他们俩很快的就要入洞房了……现在应战友的要求发几张照片与大家分享！
-![img](https://media.gettr.com/group35/getter/2021/11/17/00/34/a25b53e2-5862-6d66-21e1-8ebdc83d0bc2/6fc48f3b4711e9afd2a354d4109a24e6.jpg)
 
 ---
 
