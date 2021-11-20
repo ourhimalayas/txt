@@ -2,56 +2,42 @@
 ---
 
 
-## 拜耳高管称covid mRNA针剂是基因疗法，被错误地当作疫苗来销售
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1679298/)
+## 反对强制疫苗和大流行病法，澳首府城市爆发大规模抗议
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1679317/)
 
-据《naturalnews.com》作者Ethan Huff在2021年11月18日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-478-e1637386039731.png)图片源自本文
-(Natural News)拜耳制药部门的总裁Stefan Oelrich在最近一次全球主义健康会议上向国际”专家”承认，**辉瑞生物技术公司和Moderna公司的两种mRNA（信使RNA）”疫苗”根本就不是疫苗，而是变相的”细胞和基因疗法”注射。**
+**【雅典娜快讯】，紧贴时事脉搏**
 
-10月24日至26日在柏林举行的世界卫生峰会上，来自120个国家的6000名与会者听到了Oelrich言论。他们还听到他解释说，如果这些注射剂在市场上以实际的身份出现，可能会被大多数人拒绝。
+**整理报道：文泓**
 
-Oelrich说：“我们正在真正实现这一飞跃（推动创新）–我们作为一家公司，拜耳–在细胞和基因疗法方面……最终，mRNA疫苗是细胞和基因疗法的一个例子。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/今天.jpg)**图片来源：Aljazeera**
 
-“我喜欢这样来表达：如果我们两年前在公众之间进行调查：’你愿意采取基因或细胞疗法并将其注入你的身体里吗’–我们可能会得到95%的拒绝率。”
+作为反对强制疫苗接种规定和大流行立法的全国性抗议活动的一部分，大量的抗议者涌入了澳大利亚的主要首府城市中心城区。** **
 
-让大众卷起袖子方面取得任何”成功”的唯一原因是，大药厂在这些东西是什么以及它们的所谓作用方面对公众撒谎并逃脱了责任。
+11月20日，成千上万的人在墨尔本、悉尼、阿德莱德和布里斯班举行“自由集会”。同期，支持疫苗接种的抗议者也举行了反集会。
 
-“我们在这18个月COVID’大流行’的持续时间中取得的成功，应该使我们更有勇气来充分关注所有人的健康，获取创新和合作，特别是当我们正处于一个科学的新时代：很多人在这种情况下谈论生物革命，”Oelrich在活动中继续发表言论。
+抗议人群已经在墨尔本中央商务区游行，抗议维多利亚州拟议的大流行病法案。抗议者举着写着“自由”的标语，穿着写着“我的身体，我的选择”的T恤在街上游行。
 
-**Covid”****疫苗****“****正在对人们的身体进行重新编程，意图让人们成为新的****AI****驱动的奴隶种族**
+作为“自由集会”的一部分，成千上万的抗议者聚集在悉尼中心城区的海德公园。人们带着和披着澳大利亚和尤里卡（抗议）旗帜抵达现场，还可以听到抗议者在鼓声中高呼“自由”。
 
-**美国疾病控制和预防中心（CDC）也是同谋，它改变了”疫苗”的定义：包括了mRNA注射。**
+新南威尔士州警方宣布正在该地区进行“高能见度”（监督）行动。现场记者艾尔利·沃什说，悉尼中央商务区的许多人都在抗议强制疫苗规定和之前政府的封锁措施。
 
-这个虚假的联邦机构，实际上只是一个伪装的私人公司，他们认为传统的疫苗定义，对于宣扬瘟疫谎言的目的来说是”有问题的”。因此，该机构将传统的疫苗定义完全废除，并创造出了一个全新的定义，来吻合他们想要的说法。
+大量自由集会抗议者已抵达布里斯班中央商务区，并向议会大厦游行。澳大利亚联合党领袖克莱夫·帕尔默也参加了布里斯班的抗议活动。现场记者里斯 亚历山德罗说，支持接种疫苗的抗议者也仍在该市。
 
-麦肯锡全球研究院将Oelrich在演讲中提到的”生物革命”描述为”生物科学的进步与计算、自动化和人工智能的加速发展的汇合，正在推动新一轮的创新。”麦肯锡进一步表示：”这场生物革命可能对经济和我们的生活产生重大影响，从健康和农业到消费品，以及能源和材料。”
+在过去一周墨尔本中央商务区已持续举行了针对维州拟议的大流行病法的[抗议](https://www.9news.com.au/national/melbourne-protests-large-crowds-pack-melbourne-cbd-in-pandemic-bill-lockdown-protest/4634ad29-d7db-44eb-9944-35c7f96ac746)，11月20日的集会继续这一主题。
 
-**换句话说，大药厂的mRNA注射正在为人类彻底转变为人工智能驱动的奴隶种族奠定基础，而这一转变是由全球主义者计划通过”疫苗接种”安装到人们体内的其他东西控制的。**
+人群抗议《2021年公共卫生和福祉修正案（流行病管理）》法案，该法案于10月通过了下议院。
 
-Oelrich进一步主张通过向整个欧洲”额外的一亿名妇女”发放更多的避孕药具来减少地球人口。他解释说：”我们今年已经向新工厂投资了4亿，专门为中低收入国家的妇女生产长效避孕药具。”
+由于人们抗议强制疫苗、封锁措施和现在的大流行法案，在过去的几个月内，澳大利亚各地都在举行这类的集会。
 
-“我们与比尔和梅林达-盖茨一起，在计划生育倡议方面进行了非常密切的合作。”Oelrich说，继续注射covid与这些其他减少人口的方法相结合，最终将创造一个”可持续”的世界。Oelrich也是所谓的”大重置”倡议的有力支持者，世界经济论坛（WEF）称该倡议在很大程度上是由瘟疫推动的。
+新闻链接：[Melbourne Sydney protests: Large crowds gather across Australia to protest COVID-19 vaccines, pandemic legislation, coronavirus restrictions (9news.com.au)](https://www.9news.com.au/national/melbourne-sydney-protests-crowds-gather-across-australia-to-protest-covid-19-vaccines-pandemic-legislation-coronavirus-restrictions/ba8d6b3e-8b60-4a4b-bd4e-64e2f09a5186)
 
-世界经济论坛创始人克劳斯-施瓦布说：”为了取得更好的结果，世界必须联合起来，迅速采取行动，改造我们社会和经济的所有方面，从教育到社会契约和工作条件。”
+*发布：热锅小蚂蚁*
 
-**编者按：**
-
-*我们从来不否认生物科技的发展的美好愿景，帮助人类减少疾病，提高寿命，但是全球主义者的发动瘟疫来推动大重置，并且通过疫苗要控制人类，是有悖伦理的，但是他们已经在这样做了，而且现在毫不掩饰的开始这样公开说了！文章表达了全球主义者在这次大流行中实施疫苗的终极目的。*
-
-原文连接：[https://www.naturalnews.com/2021-11-18-covid-mrna-shots-gene-therapy-falsely-marketed-vaccines.html#](https://www.naturalnews.com/2021-11-18-covid-mrna-shots-gene-therapy-falsely-marketed-vaccines.html#)
-
-翻译：洛杉矶盘古农场- TrueSky
-
-校对：洛杉矶盘古农场 – 小象的奶瓶
-
-编辑&评论：洛杉矶盘古农场 – 小象的奶瓶
-
-
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -15,113 +15,113 @@
 
 ---
 
-### [反对强制疫苗和大流行病法，澳首府城市爆发大规模抗议](/content/gnews/1/README.md)
+### [美联社采访：孟宏伟的妻子抨击怪物中共国](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [反对强制疫苗和大流行病法，澳首府城市爆发大规模抗议](/content/gnews/2/README.md)
  ` 走进澳洲`
 
-### [拜耳高管称covid mRNA针剂是基因疗法，被错误地当作疫苗来销售](/content/gnews/2/README.md)
+### [中共国在海湾地区的秘密港口工程损害美阿关系](/content/gnews/3/README.md)
+ ` 纽约香草山MOS01`
+
+### [拜耳高管称covid mRNA针剂是基因疗法，被错误地当作疫苗来销售](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [紫光集团欠债1426亿！也要爆雷？](/content/gnews/3/README.md)
+### [紫光集团欠债1426亿！也要爆雷？](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [害怕人民币暴跌，中共进一步收紧外汇管制](/content/gnews/4/README.md)
+### [害怕人民币暴跌，中共进一步收紧外汇管制](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [华夏视角系列之二：写在1120，值得纪念的一天](/content/gnews/5/README.md)
+### [华夏视角系列之二：写在1120，值得纪念的一天](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [医生揭发新冠疫苗削弱白细胞，接种者会有艾滋病人症状](/content/gnews/6/README.md)
+### [医生揭发新冠疫苗削弱白细胞，接种者会有艾滋病人症状](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [樱花灭共诗——送共产](/content/gnews/7/README.md)
+### [樱花灭共诗——送共产](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [与中共军事有关的猴脑研究扰乱欧洲顶尖大学](/content/gnews/8/README.md)
+### [与中共军事有关的猴脑研究扰乱欧洲顶尖大学](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [台湾无视中共国反对，在立陶宛开设办事处](/content/gnews/9/README.md)
+### [台湾无视中共国反对，在立陶宛开设办事处](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [英媒：英国首相考虑对北京冬奥会进行外交抵制](/content/gnews/10/README.md)
+### [英媒：英国首相考虑对北京冬奥会进行外交抵制](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共病毒“第四波”横扫欧洲，多国出台严苛限制措施](/content/gnews/11/README.md)
+### [中共病毒“第四波”横扫欧洲，多国出台严苛限制措施](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [93%疫苗接种率的爱尔兰重新进入部分封锁，包括午夜宵禁](/content/gnews/12/README.md)
+### [93%疫苗接种率的爱尔兰重新进入部分封锁，包括午夜宵禁](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [展望2022，三点原因使澳币走弱](/content/gnews/13/README.md)
+### [展望2022，三点原因使澳币走弱](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国就菲律宾船遭中共国攻击发出警告，北京无视](/content/gnews/14/README.md)
+### [美国就菲律宾船遭中共国攻击发出警告，北京无视](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [对儿童来说，疫苗的致死率是 中共病毒的172倍](/content/gnews/15/README.md)
+### [对儿童来说，疫苗的致死率是 中共病毒的172倍](/content/gnews/17/README.md)
  ` 墨尔本雅典娜农场`
 
-### [王岐山终于明白刘彦平没听懂郭文贵先生所说的一统江湖](/content/gnews/16/README.md)
+### [王岐山终于明白刘彦平没听懂郭文贵先生所说的一统江湖](/content/gnews/18/README.md)
  ` NewFOC`
 
-### [美国人可以买喜币的时候一定是更高倍涨](/content/gnews/17/README.md)
+### [美国人可以买喜币的时候一定是更高倍涨](/content/gnews/19/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [浅析贵阳“警税合成作战中心”](/content/gnews/18/README.md)
+### [浅析贵阳“警税合成作战中心”](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国所有企业家或可能“全军覆没”](/content/gnews/19/README.md)
+### [中共国所有企业家或可能“全军覆没”](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [班农事件意味着什么](/content/gnews/20/README.md)
+### [班农事件意味着什么](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [这片雾霾天](/content/gnews/21/README.md)
+### [这片雾霾天](/content/gnews/23/README.md)
  ` 澳喜特战旅Gnews`
 
-### [GTV新闻访谈简报|2021年11月19日晚](/content/gnews/22/README.md)
+### [GTV新闻访谈简报|2021年11月19日晚](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [奥地利政府计划强制全国人民接种中共病毒疫苗](/content/gnews/23/README.md)
+### [奥地利政府计划强制全国人民接种中共病毒疫苗](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/19/2021 文贵直播：中共想通过病毒和疫苗的灾难干掉美元，从而达到人民币国际化和独霸世界的目的](/content/gnews/24/README.md)
+### [11/19/2021 文贵直播：中共想通过病毒和疫苗的灾难干掉美元，从而达到人民币国际化和独霸世界的目的](/content/gnews/26/README.md)
  ` 秘密翻译组-北美组`
 
-### [日本政府将推出创纪录的55.7万亿日元经济刺激措施](/content/gnews/25/README.md)
+### [日本政府将推出创纪录的55.7万亿日元经济刺激措施](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [NVIDIA 推出全球最小 AI 超级计算机，实现更强大边缘运算](/content/gnews/26/README.md)
+### [NVIDIA 推出全球最小 AI 超级计算机，实现更强大边缘运算](/content/gnews/28/README.md)
  ` 澳喜特战旅Gnews`
 
-### [白宫联合国与左媒等齐声找彭帅](/content/gnews/27/README.md)
+### [白宫联合国与左媒等齐声找彭帅](/content/gnews/29/README.md)
  ` HimalayaRussia`
 
-### [疫苗的危险是永久性的](/content/gnews/28/README.md)
+### [疫苗的危险是永久性的](/content/gnews/30/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [美科学家获得资助尝试将新冠毒疫苗注入蔬菜让人食用技术](/content/gnews/29/README.md)
+### [美科学家获得资助尝试将新冠毒疫苗注入蔬菜让人食用技术](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
 
-### [雅典娜时报-第118期](/content/gnews/30/README.md)
+### [雅典娜时报-第118期](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [奥地利将步入封国 强制疫苗引入罚款](/content/gnews/31/README.md)
+### [奥地利将步入封国 强制疫苗引入罚款](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本政府拟定在12月底之前敲定增加驻日美军军费，以应对中朝威胁](/content/gnews/32/README.md)
+### [日本政府拟定在12月底之前敲定增加驻日美军军费，以应对中朝威胁](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
 
-### [2021/11/19 大卫作战室直播精要](/content/gnews/33/README.md)
+### [2021/11/19 大卫作战室直播精要](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国银行启动试点计划 区分接种与未接种员工](/content/gnews/34/README.md)
+### [美国银行启动试点计划 区分接种与未接种员工](/content/gnews/36/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [生命的意义是什么？（第三集）](/content/gnews/35/README.md)
- ` 纽约香草山MOS03`
-
-### [中共的封城模式就是现代版的集中营](/content/gnews/36/README.md)
- ` 澳喜农场`
 
 ### [直播武汉疫情的张展狱中或新闻自由勇气奖](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`

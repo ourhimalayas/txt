@@ -2,10 +2,10 @@
 ---
 
 
-## 日本政府将推出创纪录的55.7万亿日元经济刺激措施
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1679055/)
+## 奥地利政府计划强制全国人民接种中共病毒疫苗
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1679069/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._20-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1120-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
