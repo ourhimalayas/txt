@@ -2,51 +2,41 @@
 ---
 
 
-## 数百名接种两剂疫苗的加拿大士兵在新冠爆发期间被隔离
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1678493/)
+## 中共国地产的冬天降临，10月份连续第四个月土地销售收入下滑
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1678522/)
 
-作者：Dakota Christensen
-翻译：HimaBoy
+作者：香草山金融部 – 闲聊钱币
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-39-e1637352671396.png)
 
-据CTV 新闻报道，在一次大型训练演习后导致许多新冠阳性病例后，CFB 佩塔瓦瓦的数百名士兵被隔离。
 
-训练演习于 11 月 13 日至 14 日在安大略省佩塔瓦瓦举行，迄今已导致至少 7 例士兵阳性病例和 3 例士兵平民家庭成员阳性病例。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-1.png)
 
-直接和间接参加培训活动的每个人都接种了两针新冠疫苗。
 
-“当发现一个阳性病例时，该人被隔离，然后我们进行了接触者追踪，”加拿大第 2 机械旅大队指挥官埃里克兰德里上校说。“所有与该人密切接触的人都被要求隔离。”
 
-训练涉及 373 名士兵在户外密切合作，以及另外 100 人在更远的后方作战。
+四十几年的所谓改革开放，中共国取得了“巨大”的成就，成为世界上第二大经济体。其中最为引人注目的当数地产经济。老百姓从祖孙三代同居一室，到现在祖孙三代共同还贷。真是厉害了我的国！
 
-据报道，伦弗鲁县和地区卫生部门也在跟踪社区中的 10 名高危接触者，并监测另外三名出现症状的士兵。代理卫生官员罗伯特·库什曼博士说，他不希望看到更多阳性病例，并担心会传播到更大的社区。
+然而，这种竭泽而渔的疯狂开发方式，导致华夏大地不再有蓝蓝的天，白白的云。河流干涸，土地贫瘠。雾霾笼罩着人们的双眼和心灵。恶魔中共真是欠下了累累血债。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-23.jpg)
+据路透社北京19日消息，中共官方数据表明今年10月份土地出让金比去年同期下降了13.14%。九月份下降了11.15%。不仅连续4个月走低，而且幅度在增大。中共的数据一贯是报喜不报忧，自己都承认下降了，恐怕真实情况更糟。
 
-“如果将平民家属考虑在内，这个数字会很大，”库什曼博士说。“我们正在谈论很容易接近一千人。”
+文贵先生在他的大直播里多次提及中共地产的脆弱。以恒大地产为代表的这些靠过度借贷，关系批条，暴力强拆的地产商们随时都有可能猝死。只可惜不知道有多少勤劳善良的老百姓要成为殉葬品。
 
-本周早些时候，《华尔街日报》 报道称，尽管 100% 的球员接种了疫苗，但在 40% 的球队检测出新冠呈阳性后，渥太华参议员 NHL 球队已将赛季暂停至至少 11 月 20 日。
+参考来源：[中共国地产的冬天降临，10月份连续第四个月土地销售收入下滑](https://www.reuters.com/markets/us/chinas-jan-oct-government-land-sales-revenue-rises-61-yy-2021-11-19/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Nomura%20JP%2011-19-21%20Sponsorship&amp;utm_campaign=Nomura%20JP%2011-19-21%20Sponsorship)
 
-在另一个类似的例子中，直布罗陀国家由于对来访的外国人进行了新冠注射，其疫苗接种率超过 100%，但却取消了“一些自己的活动，包括官方圣诞派对、官方招待会和类似的聚会，”由于最近新冠病例数的增加。尽管该国成功地向所有人口甚至更多人进行了新冠注射，但该国仍然强制要求在所有室内公共场所戴口罩并保持距离。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 
-来源：https://www.rebelnews.com/all\_double\_vaccinated\_hundreds\_of\_canadian\_soldiers\_in\_quarantine\_amid\_covid-19\_outbreak
+编辑/校对/发稿：Hetangyuese
 
-（文章仅代表作者个人观点）
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
