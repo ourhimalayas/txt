@@ -2,50 +2,48 @@
 ---
 
 
-## 展望2022，三点原因使澳币走弱
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1679162/)
+## 医生揭发新冠疫苗削弱白细胞，接种者会有艾滋病人症状
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1679269/)
 
-**翻译：月映万川
-编辑：MSGZ**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/11.2-3.png)图片来源：ANZ Australian Dollar Exchange Rate Forecasts 2021-2022
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/103656_P01-21-003.jpg_356217b1-2b6d-400e-8158-e14e9663897a.jpeg)
 
 
-**1.****贸易条件指数**
 
-一个国家每出口一个单位商品可以获得多少单位的进口商品，也就是这个国家的出口商品相对于进口商品的相对价格叫做贸易条件指数。澳元涨跌在历史上与这一指数很有渊源。2021年，贸易条件指数的上涨导致了澳元的上涨。
+图片来源：www.poz.com
 
-由于中国经济增长预期放缓，包括，铁矿石，煤炭和天然气在内的大宗商品价格也预期在2022会大幅下滑。这就引发了澳元下跌的担忧。
 
-**2.****利率**
+#### 编译：小红帽
 
-第二个有关澳元汇率的因素就是相对利率。如果澳大利亚的利率比世界其它国家的利率高，这里重点是指美国，那么全球热钱就会涌入澳洲购买本地资产继而使澳元走高。反之亦同。
+一位拥有1600名病人的匿名自然健康医生，从自己的客户、其他医生、护士、免疫专家和病毒学医生那里收集了信息。她从这些信息和数据中分析了新冠病毒（Covid-19）疫苗的前两剂和加强针的情况。
 
-虽然，目前澳洲的利率要比美国利率高，但是，这样的利率差既不是很明显也不会对投资人很有吸引力。
+目前，这位自然医生还没有准备好 “公开”自己的身份，所以目前正以联为一体（[T.A.O.- Together As One](http://www.togetherasone.cc/nd.aspx)）的名义分享她的信息。
 
-另外，市场也有预期美国在2022年会提升自己的利率进而反超澳大利亚。这种预测是因为，美国市场目前经历着更高的通货膨胀，较低的失业率，但是工资增长速度很快。
+根据此分析，新冠病毒疫苗的第一针包含多种有毒成分，这些成分对你的细胞系统是灾难性的。这些毒素使你身体的免疫系统产生白细胞的能力降低多达50%。这还只是接种第一剂疫苗的情况。
 
-此外，堪培拉正试图重启大规模移民项目来拉低工资增长幅度，并且，不断下跌的大宗商品价格也打击了上扬的通货膨胀率。
+人体在大约8周后会产生另一代白细胞，这就是为什么第二剂疫苗的接种被设定在第一次接种之后的8周内进行，以再次削弱白细胞数量，而白细胞仍然受到严重损害。这使白细胞的生成量又减少了25%。
 
-最后，澳大利亚房屋贷款市场正在经历着固定还款利率的上涨波动。这会给本地房地产市场降温，并打击消费者的信心。
+每次接种时，疫苗的盐水比例将减少，而有毒成分增加。这意味着白细胞数量减少了75%，而这是在接种任何加强针之前。加强针有80多股人类血细胞从未遇到过的外来细菌。这就是慢性炎症发生的时候。
 
-**3.****美元价值**
+对于任何有健康状况的人来说，虚弱的身体部位将被这种外来病原体的攻击而加剧病情。无论你是否已经有消化系统、呼吸系统、癌细胞、皮肤状况等问题，在这种慢性炎症状态下，这些部位都会发炎。由于只有25%的免疫系统能力，这将被证明是灾难性的。
 
-第三点原因就是澳元与美元相比的相对价值。美国经济在后疫情时代的增长幅度要比任何发达国家的市场都大。由于通货膨胀，回报率和增长率都会被资本拉动，这也使美元汇率更加坚挺。
+另外，加强针包含八股艾滋病毒，可完全关闭身体制造白细胞的能力。所有的生理盐水都被从加强针中去除，因此对病人来说是致命的。这时，受害者在零免疫力的情况下四处走动。医生预测，加强针受害者的死亡率为20%至30%。
 
-随着拜登政府通过了明年财政刺激方案，这种强劲增长势头会保持5至6年，并且美国的优势地位会一直保持下去。
+如今，美国食品和药物管理局（FDA）现在正在策划让美国的每个孩子都接种这些有毒的基因突变疫苗。
 
-反过来，强劲的美元往往会拖累新兴市场的发展和大宗商品价格，并加剧外。
+安东尼·福奇已经承认（头两剂）疫苗完全没有用，那是因为现在是他推动致命的加强针的时候了。以下是福奇的一段话。”他们看到不仅对感染的免疫力在减弱，而且对住院和某种程度上的死亡的免疫力正在减弱，现在开始涉及所有年龄组。不仅仅是老年人。”
 
-**新闻：**[Three reasons the Australian dollar could decline in 2022](https://www.news.com.au/finance/economy/australian-economy/three-reasons-the-australian-dollar-could-decline-in-2022/news-story/c9c431c595fa55e2cec000ab3ddd026f)
+也许免疫力的 “减弱 “不仅仅是因为新冠病毒疫苗没有用，而是因为疫苗在这个过程中破坏了人体白细胞，导致免疫力被大大地削弱。
 
-发布：文武全才
+**参考新闻：**[BOOSTER SYNDROME: Natural doctor blows whistle on Covid vaccines lowering white blood cells more and more with each shot, turning vaccinated people into AIDS-like patients – NaturalNews.com](https://www.naturalnews.com/2021-11-19-natural-doctor-blows-whistle-on-covid-vaccines.html)
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

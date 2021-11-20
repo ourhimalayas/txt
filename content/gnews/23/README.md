@@ -2,24 +2,33 @@
 ---
 
 
-## 害怕人民币暴跌，中共进一步收紧外汇管制
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1679292/)
+## 有声|阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1679336/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/ab2b4350923550452d661afdba8e5319.jpeg)[图片来源](https://www.followme.com/baike/2017.html)
-五位消息人士周五表示，中共国全国外汇市场自律机制最新倡议银行对自营交易设置上限，落实风险中性理念。他们透露，外汇市场自律机制倡议银行对自营交易量同比增速超过50%或自营/代客交易量比例高于15倍的，可触发进一步分析调查。不过他们没有提及该倡议何时生效。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+路透社伦敦11月18日报道，中共国的大型电商阿里巴巴股价周四盘前暴跌10.3%。官方给出的理由是消费放缓，竞争加剧，以及监管部门的打击。
 
-一外资行交易员认为，倡议的目的还是希望不要“炒汇”。今年中共国外贸延续去年以来的高景气，其中10月出口同比增速优于预期，贸易顺差为845.4亿美元，创下纪录新高。1-10月贸易顺差超5,100亿美元，巨量的顺差带来充足的美元流动性，客盘结汇需求不减，人民币持续偏强，哪怕是11月美指加速上行时。
+这些理由看似都很有道理，但是并未揭开表面原因背后的深层含义。首先来说消费放缓。没错，老百姓买买买的动力的确是慢下来了。韭菜们已经快被连根拔起了，哪里还有能力自身消费？再来看看竞争加剧。从来商场如战场，竞争一直都存在着。凡是购买过淘宝商品的人几乎都知道淘宝上假冒伪劣商品泛滥，由此导致的客商纠纷从未断过。这样一个不以商品品质盛出的店家终将被淘汰。最后，监管部门的打击绝不是要维护法律的公平公正，而是要杀鸡取卵，给中共摇摇欲坠的经济打点儿鸡血。
 
-全国外汇市场自律机制本周召开会议强调，金融机构要加强自身外汇业务风险管理，既不能帮助企业“炒汇”，自身也不宜“炒汇”。汇率风险中性理念是中共外管局多次提及的话题，并提醒市场主体应适应人民币汇率双向波动的常态。
+马云被限制自由，蚂蚁金服募资暂停，阿里巴巴股价暴跌，这一切都只是中共内斗的冰山一角。
 
-消息来源:
 
-**[独家：中国外汇市场自律机制倡议银行对自营交易设上限 超出可触发分析调查–消息](https://cn.reuters.com/article/china-fx-proprietary-trading-1120-idCNKBS2I501Q?il=0)**
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+文字版原文：[阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%](https://gnews.org/zh-hans/1676922/)
+
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

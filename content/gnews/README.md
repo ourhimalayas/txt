@@ -15,116 +15,116 @@
 
 ---
 
-### [喜马拉雅-不生不灭的宝藏](/content/gnews/1/README.md)
- ` G-NEWS TAIWAN`
-
-### [恒大还想骗钱，拟配股筹资约27亿](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [惹不起躲的起，丹麦驻重庆领事馆撤馆](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [统一江湖是爆料革命和新中国联邦开启数字货币的新时代](/content/gnews/4/README.md)
+### [王岐山派币安赵长鹏攻击喜币，赵长鹏一定会步王健后尘](/content/gnews/1/README.md)
  ` NewFOC`
 
-### [在中共癌症的天网里，每个人都卑微如尘埃](/content/gnews/5/README.md)
- ` 澳喜农场`
+### [澳大利亚总理斯科特·莫里森要求各州取消强制注射新冠疫苗的规定，并表示必须允许未接种疫苗的澳大利亚人进入酒吧和餐馆](/content/gnews/2/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [奥地利重新实施全面封锁，并推出强制接种中共病毒疫苗的政策](/content/gnews/6/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [特德.克鲁兹称拜登的加密货币经纪人定义必须被废除](/content/gnews/7/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [滞胀&amp;通胀促成引发美政局更迭的油价、面包和气电上涨](/content/gnews/8/README.md)
- ` NewFOC`
-
-### [中共说“不知道”网球名将彭帅的事](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [奥地利从2月1日起实行强制疫苗](/content/gnews/10/README.md)
- ` 纽约香草山MOS01`
-
-### [病理学家发现，疫苗抑制免疫力，易感染HIV、疱疹](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
-
-### [有声|恒大将被从恒生中国企业指数中剔除](/content/gnews/12/README.md)
- ` MOSREC`
-
-### [有声|郭文贵：消灭中共是人类唯一的选择](/content/gnews/13/README.md)
- ` MOSREC`
-
-### [有声|盖特备受基金投资者的青睐](/content/gnews/14/README.md)
- ` MOSREC`
-
-### [有声|参议院共和党人挑战拜登政府疫苗强制令](/content/gnews/15/README.md)
- ` MOSREC`
-
-### [有声|阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [有声|美科学家获得资助尝试将新冠毒疫苗注入蔬菜让人食用技术](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [美联社采访：孟宏伟的妻子抨击怪物中共国](/content/gnews/18/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [反对强制疫苗和大流行病法，澳首府城市爆发大规模抗议](/content/gnews/19/README.md)
- ` 走进澳洲`
-
-### [中共国在海湾地区的秘密港口工程损害美阿关系](/content/gnews/20/README.md)
- ` 纽约香草山MOS01`
-
-### [拜耳高管称covid mRNA针剂是基因疗法，被错误地当作疫苗来销售](/content/gnews/21/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [紫光集团欠债1426亿！也要爆雷？](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [害怕人民币暴跌，中共进一步收紧外汇管制](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [华夏视角系列之二：写在1120，值得纪念的一天](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [医生揭发新冠疫苗削弱白细胞，接种者会有艾滋病人症状](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
-
-### [樱花灭共诗——送共产](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [与中共军事有关的猴脑研究扰乱欧洲顶尖大学](/content/gnews/27/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [台湾无视中共国反对，在立陶宛开设办事处](/content/gnews/28/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [英媒：英国首相考虑对北京冬奥会进行外交抵制](/content/gnews/29/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共病毒“第四波”横扫欧洲，多国出台严苛限制措施](/content/gnews/30/README.md)
- ` 墨尔本雅典娜农场`
-
-### [93%疫苗接种率的爱尔兰重新进入部分封锁，包括午夜宵禁](/content/gnews/31/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [展望2022，三点原因使澳币走弱](/content/gnews/32/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国就菲律宾船遭中共国攻击发出警告，北京无视](/content/gnews/33/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [对儿童来说，疫苗的致死率是 中共病毒的172倍](/content/gnews/34/README.md)
- ` 墨尔本雅典娜农场`
-
-### [王岐山终于明白刘彦平没听懂郭文贵先生所说的一统江湖](/content/gnews/35/README.md)
- ` NewFOC`
-
-### [美国人可以买喜币的时候一定是更高倍涨](/content/gnews/36/README.md)
+### [币圈新闻动态：喜币（HCN）价格19日达到39.999](/content/gnews/3/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共国所有企业家或可能“全军覆没”](/content/gnews/37/README.md)
+### [文贵爆料11.20.2021 全世界货币超发将国家法币变成废币](/content/gnews/4/README.md)
+ ` 秘密翻译组-原创组`
+
+### [文贵先生20年前已投资AMD芯片 用远见把握着世界的命脉](/content/gnews/5/README.md)
+ ` GTV新闻访谈`
+
+### [喜马拉雅-不生不灭的宝藏](/content/gnews/6/README.md)
+ ` G-NEWS TAIWAN`
+
+### [日本希望加入奥库斯（AUKUS）的行列](/content/gnews/7/README.md)
+ ` 走进澳洲`
+
+### [恒大还想骗钱，拟配股筹资约27亿](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [陪审团最终判决所有媒体都有罪](/content/gnews/9/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [惹不起躲的起，丹麦驻重庆领事馆撤馆](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [统一江湖是爆料革命和新中国联邦开启数字货币的新时代](/content/gnews/11/README.md)
+ ` NewFOC`
+
+### [在中共癌症的天网里，每个人都卑微如尘埃](/content/gnews/12/README.md)
+ ` 澳喜农场`
+
+### [奥地利重新实施全面封锁，并推出强制接种中共病毒疫苗的政策](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
+
+### [特德.克鲁兹称拜登的加密货币经纪人定义必须被废除](/content/gnews/14/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [滞胀&amp;通胀促成引发美政局更迭的油价、面包和气电上涨](/content/gnews/15/README.md)
+ ` NewFOC`
+
+### [中共说“不知道”网球名将彭帅的事](/content/gnews/16/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [奥地利从2月1日起实行强制疫苗](/content/gnews/17/README.md)
+ ` 纽约香草山MOS01`
+
+### [病理学家发现，疫苗抑制免疫力，易感染HIV、疱疹](/content/gnews/18/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声|恒大将被从恒生中国企业指数中剔除](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [有声|郭文贵：消灭中共是人类唯一的选择](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [有声|盖特备受基金投资者的青睐](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [有声|参议院共和党人挑战拜登政府疫苗强制令](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [有声|阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [有声|美科学家获得资助尝试将新冠毒疫苗注入蔬菜让人食用技术](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [美联社采访：孟宏伟的妻子抨击怪物中共国](/content/gnews/25/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [反对强制疫苗和大流行病法，澳首府城市爆发大规模抗议](/content/gnews/26/README.md)
+ ` 走进澳洲`
+
+### [中共国在海湾地区的秘密港口工程损害美阿关系](/content/gnews/27/README.md)
+ ` 纽约香草山MOS01`
+
+### [拜耳高管称covid mRNA针剂是基因疗法，被错误地当作疫苗来销售](/content/gnews/28/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [紫光集团欠债1426亿！也要爆雷？](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [害怕人民币暴跌，中共进一步收紧外汇管制](/content/gnews/30/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [华夏视角系列之二：写在1120，值得纪念的一天](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [医生揭发新冠疫苗削弱白细胞，接种者会有艾滋病人症状](/content/gnews/32/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [樱花灭共诗——送共产](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [与中共军事有关的猴脑研究扰乱欧洲顶尖大学](/content/gnews/34/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [台湾无视中共国反对，在立陶宛开设办事处](/content/gnews/35/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美国就菲律宾船遭中共国攻击发出警告，北京无视](/content/gnews/36/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [对儿童来说，疫苗的致死率是 中共病毒的172倍](/content/gnews/37/README.md)
+ ` 墨尔本雅典娜农场`
 
 ### [日本政府将推出创纪录的55.7万亿日元经济刺激措施](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

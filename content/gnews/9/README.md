@@ -2,29 +2,45 @@
 ---
 
 
-## 中共说“不知道”网球名将彭帅的事
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1679373/)
+## 陪审团最终判决所有媒体都有罪
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1679451/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-86.png)
-图片来源：www.epochtimes.com
+2021 年 11 月 19 日
 
-美联社11月19日报道，中共国外交部周五坚持说其不知道外界对彭帅之事的不同看法，这位网球职业运动员在指控前中共高官性侵她的事实之后便消失了。
+翻译报道：沉默老歌
+![Here&#039;s what happened the first week of the Kyle Rittenhouse trial : NPR](https://media.npr.org/assets/img/2021/11/05/ap21309588152126_custom-d59aabf6840572e69156c1834f1274f8efeb71c6-s1100-c50.jpg)图片来源：Sean Krajacic via the Internet
+在一项令检方、辩方和法官都感到惊讶的裁决中，里顿豪斯审判（The Rittenhouse Trial）的陪审团宣布媒体在所有罪名上都被判有罪。
 
-外交部发言人赵立坚告诉记者说：“这不是外交问题，我不知道这事。”
+当陪审团长站起来宣读判决书时，法庭陷入了沉默：“我们陪审团认定媒体在所有指控上都有罪，包括严重利用其影响力向美国人民撒谎。”
 
-中共政府一直否认关于彭帅两周前指控的事，这位35岁的前顶尖网球运动员曾于2013年赢得英国温布尔顿女子双打冠军以及2014年法国杯比赛，但在明年2月4日将在北京举行的冬奥会运动上完全不出现。
+陪审团随后列出了对以下指控的有罪判决：
 
-白宫新闻秘书珍·莎琪周五说：“中共政府应该提供独立的和可验证的证据证明她的下落以及她的安全。”
+- 将一个无辜的美国青少年描绘成一个白人至上主义的恐怖分子。
 
-美国副国务卿温迪·席曼发推说：“我们深切地担心网球运动员彭帅，她看起来是失踪了，我们要求中共提供独立的，可验证的依据证明她的下落，世界任何地方的妇女都有权利报告受到性侵并获得严肃的调查。”
 
-女子网球协会主席史蒂夫·西蒙对中共媒体提出疑问，说他本周看到的以彭帅的名义发出的电子邮件试图告诉他彭帅是安全的而且关于她的指控不是真的，他认为这封电子邮件不是彭帅发出的，该电子邮件由中共国环球电视网北美分台（CGTN）通过推特发出，而这个CGTN实质上是中共国中央电视台（CCTV)的国际分支。
+- 将暴力的共产主义罪犯描绘成和平、无辜的受害者。
 
-中共国情报委员会办公室对电子邮件的问题，西蒙的疑问以及彭帅的状况均无反应。
 
-##### **新闻来源： **[China says ‘not aware’ of tennis player Peng Shuai issue](https://apnews.com/article/sports-china-media-social-media-beijing-3c2a5e60f1412760e59594bd138ecdc8)
+- 利用其影响力在世界上最伟大的国家播下痛苦的分裂。
 
+
+- 使用少数民族作为种族诱饵计划的棋子，只是为了收视率。
+
+
+- 煽动对脆弱社区和少数族裔企业的暴力行为。
+
+
+- 完全偏袒布赖恩·斯泰尔特 (Brian Stelter) 。
+
+
+在听到判决后，法官当即判处媒体继续其收视率和信任度不可避免的下降，直到他们要么争取客观的新闻报道，要么完全消失。
+
+裁决后，媒体立即向美国人民报告说，一名凶残的白人至上主义恐怖分子被释放，获得了 KKK 服装和火箭筒，并被告知要杀、杀、杀。
+
+来源链接：[The Babylon Bee:](https://babylonbee.com/news/media-found-guilty-on-all-counts/?utm_source=telegram&amp;utm_medium=link&amp;utm_campaign=telegram)[Media](https://babylonbee.com/news/media-found-guilty-on-all-counts/?utm_source=telegram&amp;utm_medium=link&amp;utm_campaign=telegram) [Found Guilty On All Counts](https://babylonbee.com/news/media-found-guilty-on-all-counts/?utm_source=telegram&amp;utm_medium=link&amp;utm_campaign=telegram)
+
+校对发布：Mu Qian
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
