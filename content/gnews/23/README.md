@@ -2,35 +2,28 @@
 ---
 
 
-## 奥地利从2月1日起实行强制疫苗
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1679368/)
+## 奥地利重新实施全面封锁，并推出强制接种中共病毒疫苗的政策
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1679415/)
 
-作者：香草山金融部 – Linda Progress
+撰稿：Grace
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-18.png)
+图片来源：tipsyredfox
 
+据雅虎新闻11月19日报道，奥地利政府周五表示，为了应对新一轮的感染，奥地利将成为西欧第一个，在今秋重新实施中共病毒病毒封锁的国家，而且该政府还将要求其全体人口，从明年的2月份开始接种中共病毒疫苗。
 
+报道称， 奥地利大约有三分之二的人口完全接种了疫苗，是西欧国家中接种率最低的国家之一。大部分公众对疫苗持怀疑态度，这种观点受到议会第三大党–极右翼自由党的鼓励。该党正计划在周六举行抗议，反对中共病毒限制令。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Gnews-Logo-36-1.png)
+报道指出，奥地利在周一对那些没有完全接种疫苗的人实行了封锁，但从那时起，感染率继续创造新的记录。其感染率是欧洲大陆最高的之一，七天的发病率为每10万人991人。
 
+奥地利政府宣布，封锁将从周一开始，最长持续20天。人们只允许为满足基本需求而离开家，如杂货、药品或外出锻炼。学校将继续开放，但政府已敦促家长尽可能让他们的孩子留在家里。
 
+奥地利政府还宣布，从2月1日起，所有18岁以上的奥地利人都必须接种中共病毒疫苗。
 
-奥地利将命令全体人口从明年 2 月 1 日起接种疫苗。疫苗政策的下一个严厉步骤似乎正在成为现实。 周五，保守派总理亚历山大·沙伦伯格 (Alexander Schallenberg) 表示，他将从 2 月 1 日起强制接种疫苗。此前，全国范围内的封锁将于周一开始，最初为期 10 天，但可能会延长至 3 周。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-27.jpg)
-尚未就他计划如何为所有奥地利人强制执行疫苗任务发表评论，但值得注意的是，当全面封锁结束时，未接种疫苗的人仍将受到限制。
+报道称， 随着欧洲各地寒冷天气的到来，各国政府被迫考虑重新实施不受欢迎的封锁措施，以防止中共病毒的持续传染。荷兰现在处于部分封锁状态，酒吧和餐馆在晚上8点关闭。
 
-参考来源：[https://www.rt.com/news/540714-austria-lockdown-for-everyone/](https://www.rt.com/news/540714-austria-lockdown-for-everyone/)
+据报道，这个封锁问题加深了沙伦伯格的保守派与他们的联盟伙伴–左翼绿党之间的裂痕。沙伦伯格几天前还说，他不想对未接种疫苗的人施加额外的限制，虽然当时卫生部长，沃尔夫冈.穆克施泰因 (Wolfgang Mueckstein)呼吁实行夜间宵禁。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+**新闻来源：**** https://gettr.com/post/pgznqk78f7**
 
  
 

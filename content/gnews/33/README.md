@@ -2,54 +2,33 @@
 ---
 
 
-## 中共国在海湾地区的秘密港口工程损害美阿关系
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1679309/)
+## 有声|阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1679336/)
 
-作者：MOS – 柳是多水土透
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+路透社伦敦11月18日报道，中共国的大型电商阿里巴巴股价周四盘前暴跌10.3%。官方给出的理由是消费放缓，竞争加剧，以及监管部门的打击。
+
+这些理由看似都很有道理，但是并未揭开表面原因背后的深层含义。首先来说消费放缓。没错，老百姓买买买的动力的确是慢下来了。韭菜们已经快被连根拔起了，哪里还有能力自身消费？再来看看竞争加剧。从来商场如战场，竞争一直都存在着。凡是购买过淘宝商品的人几乎都知道淘宝上假冒伪劣商品泛滥，由此导致的客商纠纷从未断过。这样一个不以商品品质盛出的店家终将被淘汰。最后，监管部门的打击绝不是要维护法律的公平公正，而是要杀鸡取卵，给中共摇摇欲坠的经济打点儿鸡血。
+
+马云被限制自由，蚂蚁金服募资暂停，阿里巴巴股价暴跌，这一切都只是中共内斗的冰山一角。
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-5.jpg)
+文字版原文：[阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%](https://gnews.org/zh-hans/1676922/)
 
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-
-消息人士透露，美情报机构今年春天得到情报，中共国在阿联酋一港口秘密建设军事设施。阿为美在中东地区最紧密的盟友之一，其领土内部署有可观的美军事资源。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/social.jpg)图片源自网络
-
-拜登政府对此感到惊讶，并警告酋长国政府，中共国在其境内的军事存在威胁两国关系。在双方多次接触和美官员到访后的工程建设最近停止。 阿计划斥资230亿美元采购50架美F35战机和18架死神无人机，但似乎对中国工程的军事部分并不知情 。二战后英退出中东交由美国管理，之后数十年，美在该地区发挥了核心作用。中央司令部在中东部署军队，指挥作战，国务院协调建立以色列国，最近川普政府达成亚伯拉罕协议，正常化以色列和阿拉伯国家关系。
-
- 近来中东出现在中美竞争前沿，中共国已经是石油第一大消费者，此外以疫苗外交，货币互换协议等方式企图扩张政治影响力 – 包含新近的军事驻扎尝试，此港口。项目为中海外军事计划一部分，其它动作含2017年东非吉布提基地；2019年与柬埔寨政府秘密协议，允许其使用军港；巴基斯坦和斯里兰卡允许中海军使用商业港口. 中共国已成为阿第一大贸易伙伴，同时阿政府允许华为参建基础设施，即使西方警告这将带来间谍和破坏等隐患。
-
-约一年前，美国安机构收到情报，据阿布达比约50英里的卡利法港，有可疑的中共国活动。港口由央企中远集团建设，并运行集装箱码头。初始情报并无结论，但今春秘密卫星图像显示，中共国开始建造某种军用设施，工地部分时间被遮挡以躲避监督，美官员最近视察了该工地 UAE与美存在广泛反恐合作，是第一个派遣军队随美进入阿富汗作战的国家。由于伊朗的威胁，UAE寻求与华盛顿签署军事协议，以保证酋长国受攻击时得到美军保护.
-
- 郭先生曾提到，中共海外军事部署会遭到一系列打击，含军事和外交挫折。其它受关注的还有阿根廷的卫星基地，美佛州南部的移动监视设施等.
-
-参考链接：[https://www.wsj.com/articles/us-china-uae-military-11637274224](https://www.wsj.com/articles/us-china-uae-military-11637274224)
-
-.
-总编：文徬
-
-校对/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-11-4.png)
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

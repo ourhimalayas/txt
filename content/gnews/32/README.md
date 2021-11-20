@@ -2,43 +2,33 @@
 ---
 
 
-## 反对强制疫苗和大流行病法，澳首府城市爆发大规模抗议
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1679317/)
+## 有声|参议院共和党人挑战拜登政府疫苗强制令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1679337/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据《newsmax》11月17日报道，美国联邦参议院50名共和党人联合起来，在印第安纳州共和党参议员迈克·布劳恩 (Mike Braun) 的带领下，正式对拜登政府的疫苗强制令提出挑战。
 
-**整理报道：文泓**
+该强制令要求拥有一百人以上的企业员工必须接种新冠疫苗，或每周接受检测。 参议院共和党的议案已经提交给参议院卫生、教育、劳工和养老金委员会。宾夕法尼亚州共和党众议员弗雷德凯勒，此前在众议院也提出了类似的议案。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/今天.jpg)**图片来源：Aljazeera**
+布劳恩在一份声明中说，拜登总统的疫苗强制令是违宪的，是对个人医疗权利的侵犯，也是对八千万美国工人权利的侵犯。他表示将敦促参议院在12月初进行简单多数投票，通过这项反对议案。
 
-作为反对强制疫苗接种规定和大流行立法的全国性抗议活动的一部分，大量的抗议者涌入了澳大利亚的主要首府城市中心城区。** **
 
-11月20日，成千上万的人在墨尔本、悉尼、阿德莱德和布里斯班举行“自由集会”。同期，支持疫苗接种的抗议者也举行了反集会。
 
-抗议人群已经在墨尔本中央商务区游行，抗议维多利亚州拟议的大流行病法案。抗议者举着写着“自由”的标语，穿着写着“我的身体，我的选择”的T恤在街上游行。
+文字版原文：[参议院共和党人挑战拜登政府疫苗强制令](https://gnews.org/zh-hans/1676740/)
 
-作为“自由集会”的一部分，成千上万的抗议者聚集在悉尼中心城区的海德公园。人们带着和披着澳大利亚和尤里卡（抗议）旗帜抵达现场，还可以听到抗议者在鼓声中高呼“自由”。
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-新南威尔士州警方宣布正在该地区进行“高能见度”（监督）行动。现场记者艾尔利·沃什说，悉尼中央商务区的许多人都在抗议强制疫苗规定和之前政府的封锁措施。
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-大量自由集会抗议者已抵达布里斯班中央商务区，并向议会大厦游行。澳大利亚联合党领袖克莱夫·帕尔默也参加了布里斯班的抗议活动。现场记者里斯 亚历山德罗说，支持接种疫苗的抗议者也仍在该市。
-
-在过去一周墨尔本中央商务区已持续举行了针对维州拟议的大流行病法的[抗议](https://www.9news.com.au/national/melbourne-protests-large-crowds-pack-melbourne-cbd-in-pandemic-bill-lockdown-protest/4634ad29-d7db-44eb-9944-35c7f96ac746)，11月20日的集会继续这一主题。
-
-人群抗议《2021年公共卫生和福祉修正案（流行病管理）》法案，该法案于10月通过了下议院。
-
-由于人们抗议强制疫苗、封锁措施和现在的大流行法案，在过去的几个月内，澳大利亚各地都在举行这类的集会。
-
-新闻链接：[Melbourne Sydney protests: Large crowds gather across Australia to protest COVID-19 vaccines, pandemic legislation, coronavirus restrictions (9news.com.au)](https://www.9news.com.au/national/melbourne-sydney-protests-crowds-gather-across-australia-to-protest-covid-19-vaccines-pandemic-legislation-coronavirus-restrictions/ba8d6b3e-8b60-4a4b-bd4e-64e2f09a5186)
-
-*发布：热锅小蚂蚁*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,29 +2,45 @@
 ---
 
 
-## 奥地利重新实施全面封锁，并推出强制接种中共病毒疫苗的政策
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1679415/)
+## 陪审团最终判决所有媒体都有罪
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1679451/)
 
-撰稿：Grace
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-18.png)
-图片来源：tipsyredfox
+2021 年 11 月 19 日
 
-据雅虎新闻11月19日报道，奥地利政府周五表示，为了应对新一轮的感染，奥地利将成为西欧第一个，在今秋重新实施中共病毒病毒封锁的国家，而且该政府还将要求其全体人口，从明年的2月份开始接种中共病毒疫苗。
+翻译报道：沉默老歌
+![Here&#039;s what happened the first week of the Kyle Rittenhouse trial : NPR](https://media.npr.org/assets/img/2021/11/05/ap21309588152126_custom-d59aabf6840572e69156c1834f1274f8efeb71c6-s1100-c50.jpg)图片来源：Sean Krajacic via the Internet
+在一项令检方、辩方和法官都感到惊讶的裁决中，里顿豪斯审判（The Rittenhouse Trial）的陪审团宣布媒体在所有罪名上都被判有罪。
 
-报道称， 奥地利大约有三分之二的人口完全接种了疫苗，是西欧国家中接种率最低的国家之一。大部分公众对疫苗持怀疑态度，这种观点受到议会第三大党–极右翼自由党的鼓励。该党正计划在周六举行抗议，反对中共病毒限制令。
+当陪审团长站起来宣读判决书时，法庭陷入了沉默：“我们陪审团认定媒体在所有指控上都有罪，包括严重利用其影响力向美国人民撒谎。”
 
-报道指出，奥地利在周一对那些没有完全接种疫苗的人实行了封锁，但从那时起，感染率继续创造新的记录。其感染率是欧洲大陆最高的之一，七天的发病率为每10万人991人。
+陪审团随后列出了对以下指控的有罪判决：
 
-奥地利政府宣布，封锁将从周一开始，最长持续20天。人们只允许为满足基本需求而离开家，如杂货、药品或外出锻炼。学校将继续开放，但政府已敦促家长尽可能让他们的孩子留在家里。
+- 将一个无辜的美国青少年描绘成一个白人至上主义的恐怖分子。
 
-奥地利政府还宣布，从2月1日起，所有18岁以上的奥地利人都必须接种中共病毒疫苗。
 
-报道称， 随着欧洲各地寒冷天气的到来，各国政府被迫考虑重新实施不受欢迎的封锁措施，以防止中共病毒的持续传染。荷兰现在处于部分封锁状态，酒吧和餐馆在晚上8点关闭。
+- 将暴力的共产主义罪犯描绘成和平、无辜的受害者。
 
-据报道，这个封锁问题加深了沙伦伯格的保守派与他们的联盟伙伴–左翼绿党之间的裂痕。沙伦伯格几天前还说，他不想对未接种疫苗的人施加额外的限制，虽然当时卫生部长，沃尔夫冈.穆克施泰因 (Wolfgang Mueckstein)呼吁实行夜间宵禁。
 
-**新闻来源：**** https://gettr.com/post/pgznqk78f7**
+- 利用其影响力在世界上最伟大的国家播下痛苦的分裂。
 
+
+- 使用少数民族作为种族诱饵计划的棋子，只是为了收视率。
+
+
+- 煽动对脆弱社区和少数族裔企业的暴力行为。
+
+
+- 完全偏袒布赖恩·斯泰尔特 (Brian Stelter) 。
+
+
+在听到判决后，法官当即判处媒体继续其收视率和信任度不可避免的下降，直到他们要么争取客观的新闻报道，要么完全消失。
+
+裁决后，媒体立即向美国人民报告说，一名凶残的白人至上主义恐怖分子被释放，获得了 KKK 服装和火箭筒，并被告知要杀、杀、杀。
+
+来源链接：[The Babylon Bee:](https://babylonbee.com/news/media-found-guilty-on-all-counts/?utm_source=telegram&amp;utm_medium=link&amp;utm_campaign=telegram)[Media](https://babylonbee.com/news/media-found-guilty-on-all-counts/?utm_source=telegram&amp;utm_medium=link&amp;utm_campaign=telegram) [Found Guilty On All Counts](https://babylonbee.com/news/media-found-guilty-on-all-counts/?utm_source=telegram&amp;utm_medium=link&amp;utm_campaign=telegram)
+
+校对发布：Mu Qian
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

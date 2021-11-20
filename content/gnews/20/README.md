@@ -2,34 +2,41 @@
 ---
 
 
-## 特德.克鲁兹称拜登的加密货币经纪人定义必须被废除
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1679397/)
+## 惹不起躲的起，丹麦驻重庆领事馆撤馆
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1679448/)
 
-撰稿：Grace
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-32.png)
-图片来源：thescotfree
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-138.jpg)
+[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpub.creaders.net%2Fupload_files%2Fimage%2F202111%2F20211119_16373379997494.png&amp;imgrefurl=https%3A%2F%2Fnews.creaders.net%2Fchina%2F2021%2F11%2F19%2F2421262.html&amp;tbnid=9ePEf6qp1qhMnM&amp;vet=12ahUKEwjcg_b6o6b0AhXICN4KHdkmDrcQMygAegUIARCdAQ..i&amp;docid=Tk8wn9WpHyi1UM&amp;w=650&amp;h=430&amp;q=%E4%B8%B9%E9%BA%A6%E9%A9%BB%E9%87%8D%E5%BA%86%E9%A2%86%E4%BA%8B%E9%A6%86&amp;ved=2ahUKEwjcg_b6o6b0AhXICN4KHdkmDrcQMygAegUIARCdAQ)
 
-据Rebelnews 11月18日报道，共和党参议员特德.克鲁兹(Ted Cruz)周一提出一项法案，旨在扭转拜登政府的《基础设施投资和就业法案》中的加密货币规定。
+据丹麦王国驻华大使馆微信公号11月19日消息，丹麦王国驻重庆总领事馆将于2021年12月1日起正式撤馆。文章称，由于行政原因，从2021年11月18日起，该总领事馆所有业务移交丹麦王国驻华大使馆。
 
-《基础设施投资和就业法案》于8月在参议院通过，并于11月5日获得美国国会批准。11月15日，拜登签署了该法案，使之成为法律。
+8月下旬，丹麦外交部宣布了将对全球外交机构进行优先的重组计划，在计划中将关闭位于中共国重庆的丹麦总领事馆。2005年，为了进一步加强丹麦与重庆市和西南各省的合作关系，丹麦选择了在重庆设立领事馆，成为了第五家在重庆设立领事馆的国家，也是第三家在西部地区设立领事馆的欧洲国家。
 
-报道称，改法案将为了税收目的，通过强制报告数字资产，筹集高达 280 亿美元的资金。而且，该法案并不是第一次试图对新生的加密货币行业加强监管。
+目前有8家领事馆处于关闭状态，分别为：美国驻成都总领事馆，利维亚驻广州、爱沙尼亚驻上海、芬兰驻广州、冰岛驻上海、瑞典驻广州等5家总领事馆和斯里兰卡驻成都、尼日尔驻广州2家领事馆。
 
-据报道，参议院在8月就加密货币相关法规进行了辩论，共和党议员强调法案文本中的 “经纪人” 一词是模糊的，可能会影响任何持有加密货币的人。
+**丹麦报纸“辱共”外交风波**
 
-于是，克鲁兹提出了一项修正案，该修正案将澄清法案中的语言, 并保护区块链行业。
+2020年1月27日，《日德兰邮报》刊载了丹麦漫画家博延森的一副漫画。这幅漫画画的是一面中共国国旗。但是画家用“冠状病毒图案”替代国旗中的五颗星，并将这幅漫画作品称为“冠状病毒”。中共国武汉爆发的新型冠状病毒疫情已经导致数千人感染，100多人丧生。疫情扩散到全球十几个国家和地区。
 
-在该法案获得批准后，克鲁兹提出了立法，以废除“基础设施一揽子计划中, 过于宽泛且设计不当的条款，该条款对区块链行业的许多参与者, 提出了新的报告要求”。
+中共国驻丹麦大使馆1月27日发表声明，要求丹麦报纸《日德兰邮报》就其刊载丹麦漫画家博延森的“辱华”漫画道歉。
 
-据报道，《基础设施投资和就业法案》的一项条款将 “数字资产 “定义为 “任何记录在加密安全的分布式账本或任何类似技术上的数字价值代表”。
+丹麦通讯社报道，《日德兰邮报》总编尼布鲁说，该报纸无意嘲笑中共国疫情，因此他拒绝道歉。他说：“我们不能为我们认为没有错的事情道歉”，“我们无意贬低或嘲笑中共国的局势，我们并不认为漫画有这个含义。”
 
-数字商会认为目前的规定 “过于宽泛和模糊”。 数字商会主席（Chamber of Digital Commerce） 帕里安.博林 (Parianne Boring)表示，”需要进一步澄清，以确保数字资产生态系统能够继续发展和繁荣”。
+丹麦跨党派的政界人士表示，中共国不应对该报施压。保守党领袖波尔森发推文称“全力支持《日德兰邮报》”。
 
-克鲁兹说： “孤星州 (The Lone Star State)已经迅速成为加密货币行业的主要中心，而这个令人兴奋的行业, 现在正面临着被扼杀的危险，并被这个新签署的、鲁莽的支出方案中的一个过度条款驱赶到海外。作为一个审议机构，参议院应该做好自己的工作，举行听证会，在我们为参与的美国人的生计和隐私冒险之前，正确理解对这一新兴行业立法的后果。”
+消息来源:
 
-他还补充说： “我敦促参议院的同事, 废除这种有害的语言，它将造成监管的不确定性，同时对创新造成不必要的障碍。”
+**[丹麦驻重庆总领事馆将于12月1日起撤馆](http://news.china.com.cn/2021-11/20/content_77882531.htm)**
 
-**新闻来源： **[**Ted Cruz says Biden’s cryptocurrency broker definition must be repealed**](https://www.rebelnews.com/ted_cruz_says_bidens_cryptocurrency_broker_definition_must_be_repealed)[**Ted Cruz Proposes Reversal To Infrastructure Bill’s Cryptocurrency Crackdown**](https://www.dailywire.com/news/ted-cruz-proposes-reversal-to-infrastructure-bills-cryptocurrency-crackdown?itm_source=parsely-api)
+**[两家总领事馆先后宣布关闭，重庆的中西部国际交往中心路途漫漫！](https://www.163.com/dy/article/GIVBAARV055271R0.html)**
+
+[中共国要求丹麦报纸就刊发“辱华”漫画道歉](https://www.voachinese.com/a/chinese-embassy-wants-danish-paper-to-apologize-for-coronavirus-cartoon-20200128/5263538.html)
+
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+
 
  
 
