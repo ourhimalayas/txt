@@ -2,12 +2,14 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2021年11月18日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1680330/)
+## 有声|GTV新闻访谈简报|2021年11月18日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1680352/)
 
 配音：香草山教育部 – 蒙古鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1118text-SC-2.png)
-文字版原文：[GTV新闻访谈简报|2021年11月18日晚](https://gnews.org/zh-hans/1676600/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-19-768x994-1.png)
+文字版原文：[GTV新闻访谈简报|2021年11月18日早](https://gnews.org/zh-hans/1675031/)
+
+音频处理：喜山必胜Maverick
 
 发稿：Tom Li
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)

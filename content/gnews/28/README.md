@@ -2,10 +2,10 @@
 ---
 
 
-## 佛州众议员批评拜登的疫苗强制令违反了美国立国之本
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1680274/)
+## 鲍里斯·爱普施坦在战斗室节目力挺盖特GETTR
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1680293/)
 
-11/18/2021 佛州众议员拜伦·唐纳滋：政府没有权力强加其意志要求自由的美国人民接种疫苗。拜登的疫苗强制令违反了美国的立国之本
+11/18/2021 曾任川普总统助理的鲍里斯·爱普施坦在战斗室节目力挺盖特GETTR
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,11 +2,40 @@
 ---
 
 
-## 11/19/2021 文贵直播：很多有钱人都死于疫苗，世界的一切都将被疫苗彻底改变
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1680462/)
+## 有声|新中国联邦教育组将规划儿童网络教学方案
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1680478/)
 
-秘密翻译组-北美组
+配音：香草山教育部 – 蒙古鸿雁
 
+在11月17日的大直播中，郭文贵先生表示，在当前的疫情下，新中国联邦将规划针对儿童的网络教育，并提出六点建议：
+
+第一，   不向学生收取任何费用。
+
+第二，   教学时间、教学内容、教学标准由联盟教育组商讨决定。
+
+第三，   教师由各农场优选有教育资质的老师授课。
+
+第四，   教师实行有偿服务原则，经费由法制基金承担。
+
+第五，   实行封闭式网络教学。
+
+第六，   师生必须签保密协议。
+
+愿新中国联邦教育事业健康发展，培养更多优秀人才。
+
+文字版原文：[新中国联邦教育组将规划儿童网络教学方案](https://gnews.org/zh-hans/1676983/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
