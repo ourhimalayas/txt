@@ -2,37 +2,38 @@
 ---
 
 
-## COVID-19 最新情报｜新冠疫苗恐降低免疫力 接种后更容易感染其他病毒
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1679933/)
+## 台湾前线｜前新党荣誉主席郁慕明：已做好被统的准备
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1679969/)
 
-**台灣寶島農場 疫情關注組 / 發佈時間｜20/11/2021**
+**台灣寶島農場 港台前線關注組 / 發佈時間｜20/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-07-14.32.38.jpeg)
+**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+台湾面临中共武力侵犯的巨大威胁，但对台湾危害最深的是内部人士，享受台湾给予的民主、法治、福利与安全，却仗着言论自由及其他自由权利出卖台湾。这些卖台人士将对台湾存亡有巨大的负面影响。中华民国于法律上仍为中国，在一个中国的前提下，国际若认为和平统一是台湾人民的希望，对于中共的武力侵犯将不会干涉，台湾势必承受巨大、不可逆的伤害。
 
+今日香港，明日台灣，並非口號。西藏、新疆的經歷，將複製在中共治理的台灣。
 
-外媒有报导指出，猝死是新冠疫苗的严重副作用之一，且被广为关注。但完全接种新冠疫苗后，完全接种者的免疫力将随时间推移而下降，使完全接种者更容易感染其他病毒，这是一个缓慢的过程，不会立即显现而被忽视。
+**郁慕明**
 
-美国爱达荷州最大的独立诊断实验室经营者瑞安．科尔（Ryan Cole），同时也是病理学家，经观察他发现到接种新冠疫苗者的健康状况逐渐下降，并在影片传达自己对新冠疫苗的担忧。
+曾任新党荣誉主席的郁慕明预测，蔡英文在520的谈话依然会非常强势，且蔡在军事上频频挑衅，结合美国给大陆压力，他认为**武统台湾**可能在今年发生，与其**被当炮灰再投降，不如先做好被动接受的准备**比较有尊严。郁慕明的说法立刻被中国官媒《央视》引用，并以郁慕明称“**已做好被动接受武统的准备**”，作为《央视》节目《海峡两岸》的讨论主题。（[原新闻](https://newtalk.tw/news/view/2020-05-14/406416)）
 
+#### [做好被武统的准备，两岸不排除今年开开战](https://www.storm.mg/article/2637091)（风传媒）
 
+郁慕明提到，台湾部分立委提案修改两岸关系条例或修宪，想要删除“国家统一”等字眼，这些走向法理台独的作为都是中国无法忍受的，势必会有所反应。
 
-> OMG! On this clip.
-> 
-> This doctor trained at the Mayo Clinic and runs the largest independent testing laboratory in Idaho. 
-> 
-> Listen to what his lab testing is showing. [pic.twitter.com/WmX7N3qKHK](https://t.co/WmX7N3qKHK)
-> — Jangled Nerves (@ToriaMart) [November 14, 2021](https://twitter.com/ToriaMart/status/1459675860458524677?ref_src=twsrc%5Etfw)
+新党荣誉主席郁慕明预言，在两岸敏感的时刻，总统蔡英文520的谈话将不会放软，郁慕明提醒，不能排除战争会在今年发生，“**先做好被動接受的準備，總比被當炮灰再投降來得有尊嚴**！”
 
+#### [台湾走过的阿富汗之路 改变了什么？](https://www.chinatimes.com/opinion/20210829003016-262104?chdtv)（郁慕明）
 
+2016年11月12日，郁慕明赴中国大陆出席“纪念孙中山先生150年诞辰纪念大会”，听取中共中央总书记习近平的演讲，**并起立唱中华人民共和国国歌**，招致批评。
 
-瑞安．科尔于影片中表示，人类在感染爱滋病毒后，身体的CD4细胞（辅助T细胞）数量将会大幅下降。而，接种新冠疫苗后，他发现人体内的CD8细胞（杀手T 细胞）数量大幅下降。CD8细胞是身体抑制其他病毒的关键。
+2016年7月18日，民进党籍立法委员段宜康爆料，台湾烟酒公卖局的金鸡母长寿烟在中国的代理商是新党主席郁慕明靠特权取得，每年获利一亿三千多元台币，核准日期4月8日，就在政党轮替之前，授权长达10年，但台湾烟酒公司自己的权利金竟只有135万，每年图利郁慕明一亿多元台币。新党主席郁慕明承认确有此事并表示：“**不叫特权，这叫有影响力。**”
 
-此外，他还发现美国自1月以来，子宫内膜癌的发病率上升了20倍。以及传染性软疣、皮疹或带状疱疹在50岁群体的就诊率有显着上升。抑制这些病毒的细胞，正是CD8细胞，也就是接种新冠疫苗可能正在减弱他们的免疫力。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-13.jpg)
+#### [少小抓扒老卖台 狼性未改头毛秃](https://newtalk.tw/news/view/2019-05-12/245491)（撰 管仁健）
+
+马英九、李庆华、赵少康、郁慕明、关中……类似的职业学生，虽然都是由国民党派驻海外，专门监控台湾留学生有无“附匪”嫌疑的抓扒仔。但胡志强会成为罪证确凿，法院认证的抓扒仔，就是因为“党职并公职”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/港台前線-（TW）-8.jpg)
 * * *
-
-来源｜[LIFE SITE](https://www.lifesitenews.com/news/idaho-doctor-reports-a-20-times-increase-of-cancer-in-vaccinated-patients/)/[推特](https://twitter.com/ToriaMart/status/1459675860458524677?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1459675860458524677%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fimmunization.news%2F2021-11-19-covid-vaccines-suppressed-immunity-hiv-hpv-herpes.html)
 
  
 

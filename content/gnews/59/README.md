@@ -2,76 +2,28 @@
 ---
 
 
-## 斯蒂芬·K·班农敦促在华盛顿特区联邦调查局现场办公室外的支持者要关注“信号，而不是噪音”
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1672679/)
+## 秘翻在线：永远处在风口浪尖的班农正面临着新的考验
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1673924/)
 
-Stephen K. Bannon
-斯蒂芬·K·班农
+**编撰：地平线**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-91.jpg)
+史蒂夫·班农先生最近成为全美甚至全世界新闻的热点，他被诬陷鼓励美国前总统川普支持者，在1月6日袭击美国国会大厦而获得法院的传票。正如伟大的人生永远不会一帆风顺，班农先生几乎生活在接连不断的麻烦中，这次班农先生再次被媒体（美联社）大做文章，认为班农是狂热的“革命”发起者，挑起了很多国家的宗教、文化和政治“战争”。
 
-I just want to say, tell everybody, it live stream on Gettr right now
-我只想告诉正在看盖特直播
+美联社报道，班农2014年在梵蒂冈发表演讲时宣布，激进的伊斯兰教正在与西方的犹太教和基督教进行一场全球战争。几年后，他试图在一座历史悠久的罗马修道院里为极端保守的天主教徒建立一个平民主义培训学院。他称它为”犹太教-基督教西方学院”。甚至将班农列为罗马教皇的“敌人”。他的”学院”遭到了当地居民的强烈反对，2021年3月，他在一场有关租约的法律诉讼中败诉后放弃了学院。
 
-everybody watching in the War Room.
-和正在观看战斗室的大家
+美联社认为班农先生在布赖特巴特新闻的伦敦卫星的言论激起了反穆斯林情绪，甚至影响了英国的脱欧进程。在英国顺利脱欧后，英国的脱欧领袖甚至在一段网络视频中“感谢”了班农先生。同时对班农先生的污蔑变本加厉，以2015年班农先生在布赖特巴特新闻发表的一篇名为“高举邦联旗帜，骄傲：邦联国旗宣布光荣遗产”为根据，将最近发生的种族仇杀事件与班农6年前的一篇文章联系起来，认为班农的想控制了这一切。
 
-We’re here today.
-我们今天在这里
+同时，美联社对班农先生的污蔑进行到底，班农先生在川普总统之前使用了“建墙”和“排干沼泽”口号，这些来自于班农先生的一个公司出品，甚至认为这个公司使用不当手段收集了7800万脸书用户的数据。并攻击了班农和目前盖特CEO杰森米勒先生当时策划的穆斯林禁令政策。
 
-I don’t want anybody take their eye off the ball but we do every day.
-我不希望任何人把注意力从我们每天都做的事情上移开
+更让人震惊的是这些媒体诬陷班农先生有纳粹主义倾向，造谣班农先生在欧盟总部布鲁塞尔设立的基金是为了分裂欧盟，在一次聚会上一些支持者向纳粹行礼并袭击警察的原因推卸给班农，与这次的传票事件如出一辙。同时，班农先生并与世界多国的右派如杰尔·博索纳罗和他的儿子（巴西）、马特奥·萨尔维尼（意大利）、维克多·欧尔班（匈牙利）和马林·勒庞（法国）等结成联盟。
 
-Okay, we got the Hispanics come on our side,
-好的？我们有西班牙裔美国人站在我们这边
+正如郭文贵先生所言，现在媒体谈班农必须带上郭文贵。文章中讲到，班农先生与郭先生联合，郭文贵先生赞助了班农的一些项目，如“战斗室”节目。媒体在公众面前一定要证明班农先生做的事情都是错的，连带“战斗室”节目的主持人之一——杰克·波索比奇，一并抹黑。
 
-African Americans coming on our side.
-非裔美国人站在我们这边
+因为巴西总统博索纳罗是班农先生的坚定支持者，班农先生在2021年8月的一次投票机研讨会上，班农宣称，”博索纳罗将赢得（2022年连任），除非它被（投票）机器偷走”。为了证明班农先生的判断错误，美联社引用了《新共和国报》报道， “各大民调机构”几个月来一直预测博尔索纳罗将惨败。
 
-We’re taking down the Biden regime
-我们正在推翻拜登政权
+班农先生是新中国联邦英文宣言的宣读者，代表着爆料革命在西方世界最重要的力量之一，中共发动一切西方力量费劲心机对班农先生进行攻击。而班农先生称自己是不怕毒蛇敢单挑狮子的蜜罐，无所畏惧。真正强大的人只会在一次次困难与挫折中进步，敌人的造谣与攻击只会让强者变得愈发强大。
 
-every day the focus you got
-每一天这都是你的焦点
-
-Raheem Kassam today, you got Dr. Peter Navarro, Captain Bannon
-今天有拉希姆·卡萨姆，你有彼得·纳瓦罗博士，班农上尉
-
-and you’re going to have Boris Epstein the whole show intense.
-而且鲍里斯·爱泼斯坦会在战斗室节目里，节目会非常激烈
-
-we got polling out, economic data out, and everything
-我们会分析民调、经济数据和其他
-
-I want you guys to stay focused on message
-我希望你们能保持对信息的专注
-
-remember signal not noise.
-记住信号，忽略噪音
-
-This is all noise that signal.
-这些都是那个信号的噪音
-
-Thank you very much
-非常感谢
-
-* * *
-
-Date:11/15/2021
-原视频标题: Stephen K. Bannon urges supporters outside FBI Field Office in D.C. to focus on “signal, not noise,”
-斯蒂芬·K·班农敦促在华盛顿特区联邦调查局现场办公室外的支持者要关注“信号，而不是噪音”
-原视频日期：2021/10/15
-原视频链接: [https://gettr.com/post/ph0i3m1249](https://gettr.com/post/ph0i3m1249)
-任务编号：KE346（2891）
-视频时间段 : 0:50-1:25
-英听校: 洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 小战蚁
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**参考链接**：[Steve Bannon isn’t just a problem for America. He is an international menace](https://www.independent.co.uk/voices/steve-bannon-court-case-vatican-brexit-posobiec-b1959471.html)
 
  
 

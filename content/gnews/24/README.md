@@ -2,155 +2,98 @@
 ---
 
 
-## 疯狂印钞必然导致各主权国家货币贬值，未来三年将迎来数字货币的爆发期
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1680766/)
+## 2021年11月20日文贵先生直播大雨围城速记（第一部分）
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1680798/)
 
-[https://gtv.org/video/id=6197a9b7182702508106cd78](https://gtv.org/video/id=6197a9b7182702508106cd78)
+#### 听写/速记：加拿大扬帆农场 – 大雨围城
 
-郭文贵
-Miles Guo
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7ea17ca03821c218da2265f75382d254.jpg)
 
-国内的10万亿美元，67万亿人民币，过去印了一天算过多少钱吗
-The domestic 10 trillion U.S. dollars, that is 67 trillion RMB was printed in the past, how much is it in a day?
+**01:15:00**
 
-也就是将近2000亿左右，10万亿美元是多少个广东和香港、上海的GDP，
-That is about 200 billion or so, 10 trillion dollars is how many times the GDP of Guangdong and Hong Kong and Shanghai?
+*青藤*：班农先生，对背叛爆料革命的人，您有何感想？
 
-它是纯钱，哇塞，印出来的
-Wow, it’s printed money
+*班农*：郭先生，为了人类万年的文明延续，前后奔走呼号，并行动者。盖特和GTV,GNEWS的观众们，新中国和新中国人，历史会评判他们（路闫九指妖），也会评判我们。我们站在天使的一边，拯救中国和世界人民于水火。一定会有背叛，但这并不重要，不要在意杂音，请关注那些有价值的声音。
 
-你觉得美国和世界的股市，美国是涨了78%，50万亿的股市
-Do you think the US and the world’s stock markets, the stock market in the US has risen 78% and 50 trillion dollars market cap
+*小新*：我们为自己的人民战斗，你作为美国人，为中国人战斗。很感谢班农先生，和我们站在一起。
 
-它能这样活着下去，如果这样能活下去
-Can it go on like this? If it can go on like this
+*班农*：中国人在战斗中牺牲，缩短了战争进程。请记得，移民到美国的华人，对美国的贡献巨大。我们不能给中国人自由，只有中国人自己才能给自己自由。请记得，罪恶的，独裁的，凶残的中共政权，我们一定可以取而代之。
 
-我们人类真的啥也不用干了，政府就印钞票就完了
-We humans really don’t have to do anything, the government just prints money and should be fine
+*小新*：在传播真相的过程中，法治基金和法治社会的角色是怎样的？
 
-一直印，股票一直涨，我告诉你能干啥
-Keep printing, stocks keep going up, let me tell you what you can do
+*班农*：自从去年武汉病毒爆发以来，西方世界要意识到，中共通过奴役中国人，没有政府是会这样对自己的人民的。很震惊，拜登政府给中共下跪。拜习通话没有提到中共病毒，没有提到武汉病毒大爆发。自从2020年1月中共病毒爆发，法治基金，爆料革命，讲真相和证据摆在世人面前，中共还在准备释放新的病毒。中共官方宣布中共病毒死亡人数才有几千人。
 
-美元贬值，从布雷顿系统1971年50倍，不要忘了，贬值是相对值
-The dollar has depreciated 50 times since the Breton system in 1971. Don’t forget that the depreciation is a relative value
+*青藤*：我们中国人的自由被政府剥夺，我们中国的经济正在崩塌。您的这次诉讼，中共是幕后黑手吗？
 
-叫货币的相对值，你是拿它当时的货币的含金量和今天的含金量的相对值
-Called the relative value of the currency, you take the relative value of the gold content of the currency at that time and the gold content of today
+*班农*：GTV,盖特前的战友们。中共力图不让政权崩塌。天安门事件（89.64）对中共如此重要。是西方纵容了中共的邪恶生长。中国的老百姓们，自由市场，资本主义的好，自由和法治的好，中国人无法看到，中国一直在遮蔽中国人的眼睛。我们在摧毁共产党。拜登和华尔街和中共一直沆瀣一气。在格拉斯哥气候峰会，拜登说把人权放在一边，我们向习下跪，在气候变化方面和中共合作，习会很开心。中共一直在压榨劳动人民的血汗，维持经济的快速增长。我无惧华尔街和中共的攻击，周一会是新的一天，是我和邪恶势力斗争的新的一天。
 
-如果整个货币它没有相对值的贬，它应该升值，
-If the entire currency has no relative depreciation, it should appreciate
+**01:35:00**
 
-叫做金融现象的最重要的叫客观相对比较值
-The financial phenomenon is objective relative comparison value
+*青藤*：您说华尔街恨您，华尔街也恨郭先生。您如何看待喜币？对数字货币的未来持何态度？
 
-就是去掉我可增长的，减掉现在已经降低的，才是我应该中间那个数
-Just remove what I can grow, and subtract what I have now decreased, that’s where I should be in the middle
+*班农*：喜币是对中共和华尔街的直接反击。我看喜币，会说，当你有中央银行和中央政府无限印钞，人民有责任去思考自己的未来，如何储存自己的财富。喜币和喜联储，未来是非常强劲的。今天必须去研究并了解喜币。中共的房地产泡沫即将破裂。中国人把财富放在房地产里面，资产会在房地产崩塌后被血洗。数字货币是安全的，是存储财富的好的选择。如果你消极对待自己的财富威胁，你会被清理出局。
 
-这个货币喷发量的时候，它就算的第一个数据说
-When this currency erupts, it’s even the first data that says
+*七哥*：今天是非常开心地在这里，11月20日，2018年11月20日，是爆料革命有史以来第一个新闻发布会。今早和班农先生见面，我非常激动。当和班农谈论海航事件的时候，班农是很难相信海航事件是真实发生的。他一次次对共产党，及其对西方世界的渗透，刷新下限。当时我说要针对海航搞一个新闻发布会，他说，不可能（impossible）。当时班农说，如果要开新闻发布会，现场应该如何布置，所有文件的信息他要逐一确认。没有一件事，不伴随着泪水、鲜血、生命。
 
-货币应有的增值数值和它现在的贬值数量经过除以后才是货币的真实价值，
-that the value of the currency’s expected appreciation and its current depreciation amount are divided into the real value of the currency
+班农今天第一感觉，当时我们租林肯中心，这个中心的董事就是陈峰的哥哥，陈国军。班农先生是白宫的，美国的大师。但一个中国的间谍就能把班农推出白宫。班农在这个过程中体味了我们爆料革命的坚持和执着。我最起码一个小时接两到三个威胁电话，说会把我和班农都干掉，每时都在发生。
 
-它要没贬50倍，它应该涨多少倍，你知道吗
-If it doesn’t depreciate 50 times, how many times it should appreciate, do you know？
+今天坐在这里，世界已经大变了。我想说的是，第一个，当年1120讲的王健事件，和法治基金法治社会的成立。谁能想到，三年后，中共通过病毒和疫苗，杀死数百万人，几亿人感染病毒。我们最早告诉世界，中共病毒是生化武器，最早告诉世界，病毒不重要，疫苗才重要。班农先生大师级的脑子，不是一般人。我们情报的调查和执行能力，天下无双。欺民贼当时对我们的造谣和威胁，到现在也难以想象，会发生在美国这种社会。我们用生命向西方传达的声音，完全被掩盖。现在病毒和疫苗灾难，比恐龙灭绝还要恐怖。
 
-人类创造那么多财富，按照M2, M0整个的货币发行的计算的话
-Human beings create so much wealth, according to the calculation of the entire currency issuance of M2, M0
+今天我们的直播技术和直播团队，今天我们在全世界的影响力，经济能力，团队能力，正义的形象和传递的声音，我们每时每刻都在改变世界。这个过程中，班农一家人都支持新中国人。班农先生冒着生死威胁。创建法治基金法治社会。我们新中国联邦人，第一次向中国人展示了，我们和白人可以互敬互爱互尊。我们在推行平民主义和新中国联邦，而且我们没流一滴血。再回看三年前的新闻发布会，很多人已经背叛了我们。这是正常的，我们吃了东西，有些物质一定会排出去的。
 
-美元现在应该升值在200倍，它乘以3.7的系数
-The dollar should now appreciate by 200 times, multiplied by the factor of 3.7
+为何今天的班农先生还这么有激情，还这么有战斗力？班农先生从来不在意面子，只在意输赢。班农 经历了这么多事情，从来没有一点点犹豫过，这是我们学习的最好的榜样。班农先生是白人里面百分百支持中国人的，绝对不可能是种族主义者。三年后的1120，我最要说的，不是夸你们。所有的战友们，全球的战友们，我们今天比昨天好。共产党总是说，明天会更好。我们要说，我们今天比昨天好。共产党总是在做梦，他们这帮骗子。更多的中国人凝聚在一起追随爆料革命。现在，喜币要一飞冲天，我们一定要珍惜兄弟姐妹们。那些我们拉出来的屎，是很自然的现象。有吃就要有拉。像路大脑袋，蛇妖闫，九指妖之流。
 
-人类就愣把这个人类创造了3.7倍的财富给贬到了50倍以下，给你兑水
-Humans have created 3.7 times their wealth and they just reduced the value to less than 50 times, dilution of wealth
+**01:56:00**
 
-钱去哪了？必须问钱去哪了，
-Where did the money go? Where the money is？
+*七哥*：1919年五四运动以来，像李大钊，中国人在追求自由和法治。而在100年后，我们在追求真正的自由和法治。1120，是过去5年里最重要的一件事情。
 
-现在人类不会再傻，因为它有2个核心的（问题）过不了
-now humans will no longer be stupid because it has 2 core factors can’t get through
+今天我们首先和班农先生谈谈，我们还有13个小时的大直播。现在先让班农先生讲讲。今天一说话我就想激动。三年了，我得控制控制，不能哭出来。
 
-一，互联网技术，你不是政府想说啥就是啥，你都闭嘴是不可能的
+*02:17:00*
 
-1. Internet technology, the government can’t say whatever they want to say, it is impossible for people to shut up
+*卡丽熙*：自1120，法治基金和法治社会成立以来，我们有了自己的货币，G系列,感恩。
 
+*杨丹荷*：从2017年郭先生第一次出来爆料，用自己的财富、家人和员工的安全，开始和中共恶党斗争。如今我们的民天下正在崛起，非常开心。
 
-第二，区块链技术的诞生，大家有了选择，我不用你我用啥
-Second, with the birth of blockchain technology, everyone has a choice, if iI don’t need you, then what I can use
+*安红*：难以相信，已经过去三年时间了。时间会说明一切。我们的目标是唯一的，而且从未改变，干掉共产党。
 
-区块链技术是什么概念呢，全人类现在是1300万亿美元的， 所有的货币量
-What is the concept of blockchain technology? All mankind is now worth 1300 trillion U.S. dollars, all the amount of money
+*木兰（法治基金董事）*：七哥和班农先生好。很荣幸参加1120三周年纪念活动。三年前，我们亲历了这次直播。如今回想，仿若昨日。当天，香港高院冻结了七哥87亿港币的资产。但是七哥灭共的决心，从未动摇。班农先生每天两期的战斗室节目，非常感恩。
 
-进去的几十年的GDP，那么这1000多万亿美元，几乎一大半都是兑水
-In the past decades of GDP, almost half of these more than 1,000 trillion U.S. dollars are all diluted
+*大卫*：如今越来越多的人加入爆料革命。这三年经历这么多血雨腥风，这些经历，让我们每一个人成长。这三年，中共在逐渐走向死亡。我们给世界展示了真相，作为一名普通的战友，我以此为荣。感谢兄弟姐妹们，感谢真战友老战友们，我们从未离开。只有那些渣渣们，被淘汰掉了。感激感恩，并肩灭共。
 
-兑过水的东西要乘以3.7到3.9的货币和财富生产价值的系数的话
-Diluted things are multiplied by currencies ranging from 3.7 to 3.9 and the coefficient of wealth production value
+**02:25:00**
 
-也就是全人类生产剩余价值和货币增发量
-That means the surplus value produced by all mankind and the amount of additional currency issuance
+*长岛*：三年前，郭先生一人战一国。如今，无数战友走向前台，并肩灭共。如今，我们的喜币已经上市。当年1120，只有卡丽熙和杨丹荷在场，其他都已经是伪类。
 
-不应该超过它在2.5倍到3倍，大家遵守的规则，它现在玩的30倍以上
-that it should not be more than 2.5 times to 3 times, and everyone abides by the rules, it is now over 30 times
+*七哥*：今天很高兴和老革命们同框同心。当时到的人少，但从第一天起，我便相信所有背后的战友数量，多过共产党和伪类所说的数字。2017年，我第一爆料的时候，当晚习近平给刘彦平打电话，这相当于上帝给老百姓打电话的概率。4亿多人次观看。我知道有多少中国人关注我们，有多少中国人想干掉共产党。这给了我巨大的信心。今天最重要的，第一天起，七哥是否是错的，是否是神经病。当时班农先生说不可能开这个发布会。当时背后有多少故事，你们真的不知道。今天我和班农坐在这里，仿佛三年一晃就过去了。但世界已经大不同了。再三年后看今天，又是天大的变化。今天，不是老同志在这，我怎么样。人只要吃饭就要排泄的。我们从来不孤独。刚刚我出去，某个在马阿拉歌的人，班农先生也认识，说现在全家21口子都在看直播。老同志们是代表人物，全中国的，90%和95%的人，发自内心地想干掉共产党。就像班农先生是美国的代表，绝大多数美国人想干掉共产党。
 
-那就全部蒸发，蒸发完以后，虚拟货币这边会增长多少呢
-Then all will evaporate, after evaporating, how much will the virtual currency grow?
+我们家族基金捐到法治基金的，一定是超过1亿美金的。我们能保证，捐款的每一块钱，都在用于灭共。法治基金和法治社会的意义是巨大的。QMay十几年前就已经支持七哥了。当QMay看到我的直播，她不敢相信，过去那个油腻的郭文贵，现在开始灭共了。天安门六四事件后，我被抓了起来。
 
-虚拟货币会再把所有的人类应有的过去几十年的所有的财富
-Virtual currency will regain all the wealth of the past few decades that all human beings deserve
+**02:41:00**
 
-生产价值，剩余价值，1000多万亿反映在虚拟货币上
-Production value, surplus value, more than 1,000 trillion are reflected in virtual currency
+*班农*：如果2017年，美国听了郭先生的忠告，今天的病毒和一切灾难可能就不会发生。当时郭先生的警告，如今一件件都被验证。中国人一定要团结起来，才能推翻恶共。
 
-大概需要5年到10年，3年是最核心的暴涨期
-It takes about 5 to 10 years, and these 3 years is the core period of skyrocketing
+*大卫*：班农先生上周参加了英喜的节目连线。您有什么计划，去终止病毒和疫苗灾难吗？
 
-那是什么概念呢，就现在比特币也得没有了
-What is it mean? Even now Bitcoin has gone
+*班农*：我们必须抵制北京冬奥会，直到他们允许我们到武汉P4实验室调查。我们必须调查福奇和NIH对武汉功能增强病毒研究的资助，我们必须彻查到底。我们必须抵制冬奥会，施压中共政府。中共国的PLA实验室还在做着什么实验，我们一无所知。
 
-比特币的这1万多亿，还有现在你看到那些杂七杂八的
-Bitcoin has more than 1 trillion dollars and now you see all those miscellaneous
+*七哥*：UAE的中共军事基地，是来自CIA。4年前，CIA问我，UAE有没有中共的军事基地。CIA从中共方得到的消息，说UAE有军事基地。今天班农先生把我给爆料了。我跟班农先生第一次见面就说，你们要想办法把房峰辉给搞定。班农说，你太疯狂了。房一直跟我联系，说只要美国保他，他啥都能提供。他当时就说，中共有化学武器。说中共在中东要建多个军事基地。这都是2017年发生的事情。是中共解放军自己出卖了自己，不是我爆料的。
 
-什么狗币、什么猫币、鼠币的都扯淡的事
-like dog coins, cat coins, and rat coins are all nonsense
+*杨丹荷*：中共病毒在威胁着全人类，全球都在搞强制疫苗。我的很多朋友，都想打疫苗加强针。您如何看？什么时候能结束呢？
 
-没有支付（功能）都是扯到事儿，包括那些所有的交易所都胡扯，99%都会完蛋
-coins without payment features are nonsense, including those all exchanges are nonsense, 99% will be gone
+*班农*：疫苗灾难，美国海军出海，必须打疫苗。郭先生说吃了羟氯喹，就能治疗病毒感染。奥地利，强迫几乎所有国民打疫苗。为什么病毒没有在非洲肆虐呢？还有很多问题需要了解。
 
-就像当年互联网诞生，99.999%的互联网完蛋了
-Just like when the Internet was born, 99.999% of the Internet companies are dead
+*卡丽熙*：班农先生是如何建立对郭先生的信任，并和我们站在一起灭共的呢？接下来，中国人在海外可能遇到排华事件，对新中国联邦的国防，班农先生有哪些建议？
 
-诞生了一个FACEBOOK、YOUTUBE、GOOGLE、YAHOO
-A FACEBOOK, YOUTUBE, GOOGLE, YAHOO was born
+*班农*：这很简单。VOA断播事件，引起班农先生关注。郭先生在警告西方，关于海航事件。因为这帮盗国贼，中国人失去了万亿财富。中共的腐败，香港事件的发生，都证明了郭先生是正确的。没有人是完美的，但当郭先生说到中共的时候，把脉都很准。
 
-中国的墙内的百度，就这么简单
-There is one Baidu left inside China’s firewall, it’s that simple
+*安红*：跟三年前比，我们有G系列和喜币了。我们在全球有了二十多个农场。比如在澳大利亚，本来政府是反共的，但后来澳洲政府也在推行强制疫苗。请问班农先生有何感受？
 
-也就是1000多万亿的人类的生产财富
-Which is more than 1,000 trillion dollars human production wealth
+*班农*：如果我们没有GNEWS,GTV,GETTR,我们早完了。网络信息战，经济战，我们必须坚持战斗。我们要曝光中共的腐败，和对澳洲的蓝金黄。我们要让更多的人关注GNEWS,GTV,GETTR。班农战斗室的节目在G平台上不断被曝光，你们的战斗精神，体现的淋漓尽致。
 
-重新定价的货币权和货币方式都会在区块链诞生，政府没有选择的
-The repricing of currency rights and currency methods will be born on the blockchain, and the government has no choice
+*校对、上传：文永*
 
 * * *
-
-Date:11/18/2021
-原视频标题: 疯狂印钞必然导致各主权国家货币贬值，未来三年将迎来数字货币的爆发期
-Crazy printing of money will inevitably lead to the devaluation of the currencies of sovereign countries, and the next three years will usher in a period of digital currency explosion
-原视频日期：2021/11/14
-原视频链接 [https://gettr.com/post/ph2a61002d](https://gettr.com/post/ph2a61002d)
-任务编号：KC267（2911）
-视频时间段 : 0:00-2:59
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
