@@ -2,29 +2,24 @@
 ---
 
 
-## 麦克库罗医生提告医疗期刊公司
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1680554/)
+## 有声|中共国地产的冬天降临，10月份连续第四个月土地销售收入下滑
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1680630/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月19日，相关媒体报道称，美国心脏科医生麦克库罗控告爱思薇尔期刊出版社掩盖新冠疫苗真相。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-20-下午10.45.47.png)圖片來源：2017年，石正麗在武漢病毒研究所。CHINATOPIX，VIA ASSOCIATED PRESS
-据悉，爱思薇尔期刊出版社于今年10月撤稿一篇题为“新冠疫苗造成心肌炎”的论文，该论文的作者即为麦克库罗医生。医生表示，爱思薇尔期刊原本已经刊登此篇论文，后因FDA正在讨论紧急授权5至11岁儿童使用新冠疫苗的问题，该期刊撤稿了此篇论文。医生认为，这种行为违反合约。因此，医生将对该期刊公司进行全面性的法律诉讼。
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+四十几年的所谓改革开放，中共国取得了“巨大”的成就，成为世界上第二大经济体。其中最为引人注目的当数地产经济。老百姓从祖孙三代同居一室，到现在祖孙三代共同还贷。真是厉害了我的国！
 
-另据麦克库罗医生称，爱思薇尔要对公众及科学界隐瞒这一重要研究的原因在于，真正的科学已经驳斥了这些实验性新冠疫苗所自称的 “安全性”和 “有效性”。医生指出，因注射新冠疫苗导致的心肌炎通常在注射第二剂辉瑞或莫德那疫苗后的数天内爆炸性发生。
+然而，这种竭泽而渔的疯狂开发方式，导致华夏大地不再有蓝蓝的天，白白的云。河流干涸，土地贫瘠。雾霾笼罩着人们的双眼和心灵。恶魔中共真是欠下了累累血债。
 
-麦克库罗医生强调，爱思薇尔期刊公司拥有全系列的医学期刊，掌控了绝大部分医学论文的发言权。因此，该公司对医学论文的不当审查行为，涉嫌掩盖有关新冠疫苗信息的真相。而这种审查方式是对科学的戕害。
+据路透社北京19日消息，中共官方数据表明今年10月份土地出让金比去年同期下降了13.14%。九月份下降了11.15%。不仅连续4个月走低，而且幅度在增大。中共的数据一贯是报喜不报忧，自己都承认下降了，恐怕真实情况更糟。
 
-参考链接：
-1）[Dr. McCullough sues Elsevier journal for refusing to publish study highlighting risks of covid “vaccination” in children](https://www.newstarget.com/2021-11-18-mccullough-sues-elsevier-study-covid-vaccines-children.html)
-2）[COVID-19 vaccine-myocarditis paper to be permanently removed: Elsevier](https://retractionwatch.com/2021/10/25/covid-19-vaccine-myocarditis-paper-to-be-permanently-removed-elsevier/)
+文贵先生在他的大直播里多次提及中共地产的脆弱。以恒大地产为代表的这些靠过度借贷，关系批条，暴力强拆的地产商们随时都有可能猝死。只可惜不知道有多少勤劳善良的老百姓要成为殉葬品。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+文字版原文：[中共国地产的冬天降临，10月份连续第四个月土地销售收入下滑](https://gnews.org/zh-hans/1678522/)
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
