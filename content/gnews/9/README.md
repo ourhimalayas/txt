@@ -2,21 +2,28 @@
 ---
 
 
-## 秘翻在线：【独家报道】日本尖端临床医学会学术大会提及伊维菌素
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1680249/)
+## 有声|FDA计划对成年人批准辉瑞疫苗加强针
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1680390/)
 
-撰稿：待命（文暁）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image1-8-scaled.jpg)（图片由本文作者现场拍摄）
-11月20日，笔者参加了日本尖端临床医学会在东京举办的学术会议。会议为期两天，将由多名尖端医学研究专家和医生发表研究成果。
+配音：香草山教育部 – 蒙古鸿雁
 
-今天是第一天，有六位医疗专家学者发表了学术研究报告。其中最吸引人的是，癌症的高分子疗法、维生素C的点滴疗法、中共病毒的防治以及对疫苗的态度。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-40-scaled.jpg)（图片由本文作者现场拍摄）
-关于中共病毒的防治，如本文图片所示，提到了维生素C、D，锌片、硒、镁，伊维菌素的有效性。这与新中国联邦发布过的相关消息基本一致。
+11月17日，美国媒体消息称，FDA可能最早于本周四批准对成年人使用辉瑞公司的新冠疫苗加强针。与此同时，CDC的疫苗独立专家委员会也预定于周五召开会议，讨论新冠疫苗的安全性和有效性。报道称，在通过上述两个机构的批准后，美国民众或将面临继续接种辉瑞新冠疫苗加强针的境况。
 
-关于疫苗，点滴疗法研究会会长柳泽厚生先生说：关于中共病毒疫苗，目前有反对派、有赞成派，我们是慎重派。
+对此，医学专家警告，新冠疫苗及其加强针都需要更多的时间和数据来进行检验。相关医生提到，目前并没有足够的结果能够证明，新冠疫苗的好处大于其所带来的风险。同时，监管机构无法确认，新冠疫苗所带来的心肌炎等副作用会否因接种了疫苗第三针而加重。
 
-笔者是这样理解的。如果是赞成，跟日本政府正在推行的疫苗政策相符，完全可以直言系赞成派。如果是反对，就是跟政府唱反调了。所以，圆滑的日本学者就为自己另立一个折中的“慎重派”。可见，日本专家们完全明白有必要谨慎对待中共疫苗！
+文字版原文：[FDA计划对成年人批准辉瑞疫苗加强针](https://gnews.org/zh-hans/1675124/)
 
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

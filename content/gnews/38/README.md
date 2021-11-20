@@ -2,50 +2,38 @@
 ---
 
 
-## 拜登为何急于降油价？郭文贵先生给出答案
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1679817/)
+## COVID-19 最新情报｜新冠疫苗恐降低免疫力 接种后更容易感染其他病毒
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1679933/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Snipaste_2021-11-20_17-35-49.png)[图片来源](https://m.soundofhope.org/post/567194)
-**拜登国际上施展美国影响力要各国配合释放库存石油**
+**台灣寶島農場 疫情關注組 / 發佈時間｜20/11/2021**
 
-路透社11月17日报道，据数位熟悉此事的人士透露，美国拜登政府已要求包括中国、印度和日本在内的全球一些最大的石油消费国考虑释出原油库存，协同降低全球能源价格。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-美国提出这一不寻常的请求，正值经济活动从疫情初期时的低谷反弹，推动汽油价格和其他消费成本上涨，总统拜登忙于应付由此带来的政治压力。
 
-这也反映了美国对石油输出国组织(OPEC)及其产油国盟友感到失望，他们拒绝了华盛顿提出的加快增加供应的一再呼声。
+外媒有报导指出，猝死是新冠疫苗的严重副作用之一，且被广为关注。但完全接种新冠疫苗后，完全接种者的免疫力将随时间推移而下降，使完全接种者更容易感染其他病毒，这是一个缓慢的过程，不会立即显现而被忽视。
 
-消息人士称，最近几周，拜登和他的高级助手已经向包括日本、韩国和印度在内的亲密盟友以及中国讨论了协同释放库存石油的可能性。
+美国爱达荷州最大的独立诊断实验室经营者瑞安．科尔（Ryan Cole），同时也是病理学家，经观察他发现到接种新冠疫苗者的健康状况逐渐下降，并在影片传达自己对新冠疫苗的担忧。
 
-美国和盟国以前有过协调释放战略石油储备的先例，比如在2011年OPEC成员国利比亚战争期间。
 
-**国内严查投机倒把哄抬油价，拍卖油气资源**
 
-11月17日，美国拍卖了大批墨西哥湾油气田开采权，所涉油气田储量多达11亿桶原油，这是拜登上任以来首次拍卖油气资源。
+> OMG! On this clip.
+> 
+> This doctor trained at the Mayo Clinic and runs the largest independent testing laboratory in Idaho. 
+> 
+> Listen to what his lab testing is showing. [pic.twitter.com/WmX7N3qKHK](https://t.co/WmX7N3qKHK)
+> — Jangled Nerves (@ToriaMart) [November 14, 2021](https://twitter.com/ToriaMart/status/1459675860458524677?ref_src=twsrc%5Etfw)
 
-11月17日，面对美国居高不下的油价，拜登致信美国联邦贸易委员会FTC，要求该组织动用一切工具，彻底调查石油公司是否存在涉嫌哄抬油价的非法行为。拜登在信里指出，一般来说，粗制汽油和零售端汽油价格涨跌走势一致，但是10月粗制汽油降价5%，零售端汽油价格却上涨了3％，而且美国最大的两家油气公司今年的净利润较2019年有望翻倍，还计划回购股票或者提升股息来回馈股东。
 
-拜登称，越来越多的证据表明这两家油气公司在操纵价格，要求立即调查清楚，给大家一个交代。虽说拜登没有点明是哪两家油气公司，但美媒表示，显然易见埃克森美孚和雪佛龙被拜登认为是“为富不仁”的油企。
 
-**郭文贵先生精辟解读**
+瑞安．科尔于影片中表示，人类在感染爱滋病毒后，身体的CD4细胞（辅助T细胞）数量将会大幅下降。而，接种新冠疫苗后，他发现人体内的CD8细胞（杀手T 细胞）数量大幅下降。CD8细胞是身体抑制其他病毒的关键。
 
-2019年11月19日郭文贵先生在大直播中提到：“美国在历史上三不允许，只要这三样东西你动了他的奶酪了，老百姓不管你哪国总统，也不管你哪党的总统，一定把你换掉，一定把你推翻，你这个党一定下台，就是事关他生命的，其中第一条就是油价，永远不接受超过4美金一加仑，永远不接受！只要超过四美金了你就放心吧，美国这个政治就要大变了。大家去看现在是多少了？油价多少钱一桶了？”
+此外，他还发现美国自1月以来，子宫内膜癌的发病率上升了20倍。以及传染性软疣、皮疹或带状疱疹在50岁群体的就诊率有显着上升。抑制这些病毒的细胞，正是CD8细胞，也就是接种新冠疫苗可能正在减弱他们的免疫力。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-13.jpg)
+* * *
 
-美国汽车协会最新数据显示，本周三美国汽油平均价格为每加仑3.14美元，创2014年以来最高水平，且11月中旬美国汽油均价和去年同期相比，上涨了60％。美国汽油价格涨个不停，也推动该国10月CPI大涨6.2％，涨幅是过去31年来最高的。如果按这个速度不用半年油价就会超过4美金的死线。
+来源｜[LIFE SITE](https://www.lifesitenews.com/news/idaho-doctor-reports-a-20-times-increase-of-cancer-in-vaccinated-patients/)/[推特](https://twitter.com/ToriaMart/status/1459675860458524677?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1459675860458524677%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fimmunization.news%2F2021-11-19-covid-vaccines-suppressed-immunity-hiv-hpv-herpes.html)
 
-所以拜登使出浑身解数打压油价的举动，事实上可能只是一场秀，为的是国会中期大选，2006年，时任美国总统的小布什为了获得更多支持，也在中期大选之前，也有类似的做法，要求FTC等组织严格执行哄抬汽油价格的法律，呼吁各州检察长追查相关企业非法欺诈的行为。
-
-消息来源:
-
-[独家：美国要求中日等国考虑释出原油储备 协同应对高油价–消息（更新版）](https://cn.reuters.com/article/us-china-oil-reserve-price-1118-idCNKBS2I3056?il=0)
-
-[美国汽油价大涨60％！拜登放出大招：追查油企是否操纵价格](https://www.sohu.com/a/502338990_639898)
-
-[滞胀&通胀促成引发美政局更迭的油价、面包和气电上涨](https://gnews.org/zh-hans/1679375/)
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
