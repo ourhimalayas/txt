@@ -2,10 +2,10 @@
 ---
 
 
-## 麦卡洛医生呼吁立即叫停疫苗接种并进行疫苗安全性调查
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1680263/)
+## 鲍里斯·爱普施坦在战斗室节目力挺盖特GETTR
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1680293/)
 
-11/12/2021 麦卡洛医生呼吁立即废除疫苗强制令，立刻叫停疫苗接种并开展彻底的疫苗安全性调查
+11/18/2021 曾任川普总统助理的鲍里斯·爱普施坦在战斗室节目力挺盖特GETTR
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

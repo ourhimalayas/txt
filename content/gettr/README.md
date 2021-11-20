@@ -17,6 +17,15 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@gfashion 11/20/2021 3:07 AM (UTC)`
+
+Golden State of Mind<br/><br/>@gfashion <br/>@DDNYC 
+![img](https://media.gettr.com/group32/getter/2021/11/20/03/07/355ced94-cb4b-e694-8640-043416168018/111be944925b5eca8a4b9d41d052c786.jpg)
+
+---
+
 `@miles 11/20/2021 1:01 PM (UTC)`
 
 2021年11月20日 “11·20”发布会及法治基金、法治社会成立三周年纪念日大直播
@@ -295,15 +304,6 @@ Shop 'The Drop' at www.GFashion.com<br/><br/>@gfashion <br/>@ddnyc
 😱😱😱😱😱😱😱😱😱
 > `@stz_mieyizu 11/5/2021 11:07 AM (UTC)`<br/>A pilot took the Pfizer vaccine, and here are what he faces now: A sick body, frequent doctor visits and medical treatment, expensive medical bills and missing of life. What’s worse, the vaccine has taken his career from him and almost taken away everything he and his family has <br/>一位飞行员打了辉瑞疫苗后面临着生病的身体， 频繁的治疗，高昂的医疗账单和完结的职业生涯；疫苗夺走了他的家庭和所拥有的一切
 ![img](https://media.gettr.com/group17/origin/2021/11/05/11/07/6a795d67-d53a-7e88-7c58-4ee4be61ac54/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@lotuslamp 11/16/2021 2:47 AM (UTC)`
-
-喜币上市15日上涨310倍，总成交量16.99M（百万）个，相对于首发的10亿个币，总共15日，上涨310倍的总换手率1.69%不足2%。其中已经包括了机构给战友们的福利大单，减去这些大单，估计1%都不到了，可见卖的人少之又少，没人卖啊，真的没人卖！！！这证明了7万多战友们的灭共信心，也证明了我们新联邦中国人的素质和实力。这和CCP国内的金融市场形成了鲜明的对比，一个是互相欺骗，给你挖坑，背后捅刀。一个是相互信任，有共同的目标，战友间的袍泽之情。高低胜负，一见分晓。共产党你完了！！！
-![img](https://media.gettr.com/group16/origin/2021/11/16/02/e3c6960e-d4d2-1b4a-0d3a-cba8d8e59208/0c7d8dfe00e03968ab370f0c404c58e2.JPG)
 
 ---
 
