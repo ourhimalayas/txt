@@ -2,42 +2,22 @@
 ---
 
 
-## 荷兰警方向上街抗议中共病毒封锁措施的民众开枪
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1681046/)
+## 欧洲汽车销量因缺少微芯片创历史新低
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1681081/)
 
-**作者：日本东京方舟农场 海星**
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11203-yiche.com_.jpg)图片来自yiche.com
+欧洲汽车制造商协会 ACEA 的分析称：10 月份欧洲新车销售数据创历史新低，据市场观察人士称，这是全球微芯片短缺的结果。
 
-11月20 日，荷兰鹿特丹民众上街抗议政府强制实施中共病毒封锁措施。在此过程中，警方突然向民众开枪。
+过去一个月，欧盟新车注册量下降了 30%，欧洲最大的汽车市场遭受了很大的损失， 10 月是今年汽车销量连续第四个月下降。
 
-据《卫报》报导，在荷兰鹿特丹市中心举行的抗议中共病毒封锁措施的活动中，警方向抗议者开枪，导致7人受伤。
+ACEA 表示：“半导体供应危机的持续影响导致销售额下降，半导体是生产芯片的重要材料这使得从汽车到移动电话的许多行业的基本电子元件都能正常运行。但最近微芯片的短缺严重中断了汽车行业的供应链，迫使其减产。
 
-鹿特丹市市长阿布塔勒（Ahmed Aboutaleb）声称这场抗议活动是“暴力狂欢”事件，并将上街抗议的民众描述为“暴乱者”。然而，根据盖特（gettr）网友Himalaya Japan Galaxy Courage Star发布的视频显示，当地民众在抗议过程中并未采取暴力行动，但突然之间，只听到一声枪响，远处一位男子当场倒地。
+去年工厂因新冠病毒疫情关闭后，芯片短缺就开始了。生产线重启后，技术设备需求大于供应，给半导体供应带来压力。因此，芯片短缺给汽车行业带来了问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-142.jpg)图片来源：卫报
+原文链接：[https://europa.today.it/attualita/microchip-vendite-auto-europa-minimo-storico.html#\_ga=2.176585772.829892400.1637225848-145009575.1615972944](https://europa.today.it/attualita/microchip-vendite-auto-europa-minimo-storico.html#_ga=2.176585772.829892400.1637225848-145009575.1615972944)
 
-据悉，荷兰政府从13日起对餐厅、商店以及运动活动等，实施至少3周限制民众活动的措施。该政府还强制实施疫苗通行证，规定只有完成疫苗接种或检测病毒为阴性者方可进入室内公共场所。
-
-此前，荷兰海牙民众也曾上街抗议中共病毒封锁措施，反对针对未接种疫苗者所采取的限制措施。结果多人遭警方逮捕，警方甚至还一度针对抗议者部署了水炮。
-
-*新闻链接：*
-
-[Rotterdam police open fire as Covid protest turns into ‘orgy of violence’](https://www.theguardian.com/world/2021/nov/19/the-netherlands-rotterdam-police-open-fire-as-covid-protest-turns-violent)
-
-[The anti-government vaccine papers and two demonstrations in the city centre.（Rotterdam, Netherlands）](https://gettr.com/post/phg9zm50ed)
-
-
-
-> [在荷兰宣布新的Covid限制措施后，警察对抗议者使用水炮](https://gnews.org/zh-hans/1660177/)
-
-
-
-* * *
-
-*素材采编：海星*
-
-*编辑：青衣青青*
-
-*发布：Ranting*
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

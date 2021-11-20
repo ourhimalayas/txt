@@ -2,41 +2,68 @@
 ---
 
 
-## 独家：RNC将与拜登违宪的疫苗授权作斗争
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681210/)
+## [Michael.Tonny专栏]接种CCP病毒疫苗已在欧盟造成118.1万人产生不良反应
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1681255/)
 
-**据《Breitbart》作者：Ronna McDaniel，2021年11月16日报道 ：**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/af68z-tsp7s-1.jpg)图片来自原文
-就在红色浪潮（共和党支持者）席卷全国各州和地方选举两天后，拜登公布了他的Covid疫苗强制令的细节，这对数百万工人和小企业构成了威胁。拜登无法完成他的工作，所以现在他希望美国人失去他们的工作。共和党全国委员会致力于在每一步都与这种令人震惊的过度行为作斗争，并且已经提起联邦诉讼以阻止这项违宪的法令。
+加拿大温哥华扬帆农场  Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/22-100.jpg)
+截止至2021年11月13日，EudraVigilance统计系统共收到四种在欧洲药品管理局所属欧洲经济区（EEA）27国推广的COVID-19（CCP病毒）疫苗已导致 1,163,356 例药物不良反应报告，其中，轻度不良反应665，751例，严重不良反应497,605例，死亡30,551例。而到2021年11月20日，该系统总共收到1,181,121例CCP病毒疫苗不良反应报告（包含死亡的数据）。
 
-拜登的强制令将迫使只有100名员工的小型企业要求其员工接种疫苗、进行严格测试，否则将被解雇。他还强迫我们国家的一线医护人员接受类似的强制接种要求，在他们冒着生命危险带领我们度过大流行之后，开始威胁他们的职业生涯。在这项规定和拜登推动的其他规定之间，将有超过1亿美国工人需要接种某种类型的拜登疫苗——这占全国所有工人的三分之二。
+这四种疫苗是：BioNTech/ Pfizer的mRNA疫苗Tozinameran，Moderna的mRNA疫苗mRNA-1273，Johnson & Johnson的疫苗JANSSEN，Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA 。
 
-拜登的强制令公然违宪。将联邦政府武器化以迫使私营企业在不遵守规定的情况下解雇勤奋的员工是实施其政治议程的惊人滥用权力。赋予未经选举、不负责任的官僚权力为该国近三分之一的人强制接种疫苗是非常不民主的，白宫也知道这一点。拜登的参谋长Ron Klain实际上承认，他们将这些规定用作满足联邦疫苗要求的“最终解决方法”。
+EudraVigilance统计系统是欧洲药品管理局设立的一个旨在收集欧盟 (EU)国家疑似药物副作用报告和用于评估药物开发过程中的益处和风险，并在药品获得授权后监测其安全性的报告统计系统（[EudraVigilance-European database of suspected adverse drug reaction reports](https://www.adrreports.eu/en/search_subst.html)）。民众可以登录ADRreports.eu网站，查看疑似副作用报告的总数（Individual Case Safety Reports或ICSRs）。
 
-但这项强制令不仅违宪，还与个人权利背道而驰。让美国人在医疗自由和生计之间做出选择是对个人自由的侵犯。虽然我支持疫苗，但拜登政府无权强迫勤劳的美国人做出一个非常私人的决定，这可能会使他们失去工作和养家糊口的能力。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/xfy.png)抗议者于2021年11月8日在加利福尼亚州洛杉矶举行的“自由游行”集会上聚集在格兰德公园，抗议洛杉矶市议会为城市雇员和承包商制定的COVID-19疫苗规定。 （马里奥多摩/盖蒂图片社）
-这也是一种经济成本。拜登的失败政策已经导致物价飞涨，推高了企业成本，使他们难以留住客户。现在，拜登的强制令将惩罚因民主党封锁、劳动力短缺以及支付工人留在家中，而不是重返工作岗位的政策弄得不堪重负的小企业。拒绝遵守的企业将面临从14,000美元到136,000美元不等的罚款。对于已经在努力维持生计的企业来说，这是一个沉重的负担。
+这些数据是由欧盟(EU)各国药品监管机构和持有药品上市许可（执照）的制药公司以网络报告方式（electronically）提交给EudraVigilance的。
 
-然而，拜登大胆断言，“疫苗接种要求对经济有利。”
+持有药品上市许可的制药公司以及欧盟国家的药品监管机构，依法必须向EudraVigilance 提交疑似副作用报告。包含从医疗、保健专业人员和患者那里收到的报告，但不包括在欧盟之外发生的非严重副作用，也不包括研究报告（例如临床试验、非干预性研究）或其他类型的报告（仅自发报告）。
 
-显然情况并非如此。已经有50万个装有价值240亿美元货物的集装箱滞留在加利福尼亚海岸附近，由于劳动力短缺而无法卸货 。疫苗强制令只会让事情变得更糟。一些卡车司机警告说，这项强制令将导致许多司机辞职，加剧了该行业近40年来最严重的司机短缺。铁路员工也威胁要罢工。正如美国卡车运输协会所说，这项强制令可能“削弱供应链”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-4.png)2021年9月20日，集装箱船停泊在长滩和洛杉矶港口，等待在加利福尼亚州洛杉矶附近卸货。 （马里奥多摩/盖蒂图片社）
-拜登声称他的疫苗强制令是保护工人的“紧急”行动，但如果是这样，为什么他的规则要到1月才生效？很明显，这其实是在攻击我们的一线工人、第一反应者、小企业和美国人民的权利。
+必须报告的副作用包括：(i) 导致死亡，(ii) 危及生命，(iii) 需要住院或延长现有住院时间，(iv) 报告者认为会导致持续或严重的残疾/丧失能力，(v)先天性异常/出生缺陷，或 (vi) 导致其他一些重要的医学病症。
 
-拜登试图迫使美国人加入他的议程，这是分裂和不可接受的。这就是为什么共和党全国委员会要起诉拜登政府的违宪疫苗强制令。这不仅仅是一针疫苗的问题。这是关于捍卫建立美国并使其伟大的有限政府和个人自由的原则。我们将保留所有合法选项来打击这种专制的过度扩张。
+必须强调的是，EudraVigilance维护的数据库仅包括属于欧盟27个国家。这意味着，如果我们将欧洲50来个国家都包括在内，CCP病毒疫苗导致的不良反应病例会多得多。
 
-罗娜·麦克丹尼尔（Ronna McDaniel）是共和党全国委员会（RNC）的主席。
+根据EudraVigilance系统统计数据显示，CCP病毒疫苗导致的副作用（死亡或药物不良反应）包括：血液和淋巴系统疾病；心脏疾病；先天性、家族性和遗传性疾病；听力系统疾病；内分泌失调；眼部疾病；胃肠道疾病；一般疾病和给药部位疾病；肝胆疾病；免疫系统疾病；易被感染或侵染；受伤、中毒和手术并发症；代谢和营养障碍；肌肉骨骼和结缔组织疾病；良性、恶性和未指明的肿瘤（包括囊肿和息肉）；神经系统疾病；妊娠、产褥期和围产期疾病；精神疾病；肾脏和泌尿系统疾病；生殖系统和乳房疾病；呼吸、胸部和纵隔疾病；皮肤和皮下组织疾病；；外科和医疗程序；血管疾病，等等。
 
-**文章来源：**[https://www.breitbart.com/politics/2021/11/16/exclusive-ronna-mcdaniel-rnc-will-fight-bidens-unconstitutional-vaccine-mandate/](https://www.breitbart.com/politics/2021/11/16/exclusive-ronna-mcdaniel-rnc-will-fight-bidens-unconstitutional-vaccine-mandate/)
+截至2021年11月13日，四种疫苗导致的不良反应具体数据如下：
 
-翻译：洛杉矶盘古农场–Raul
-校对：洛杉矶盘古农场–Mike Li
-编辑：洛杉矶盘古农场–心照
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+BioNTech/ Pfizer的mRNA疫苗Tozinameran（代码 BNT162b2，Comirnaty）：14,303 例死亡和562,213 例不良反应
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+Moderna的mRNA疫苗mRNA-1273(代码CX-024414)：8,385例死亡和155,793例不良反应
+
+Johnson & Johnson的疫苗JANSSEN（AD26.COV2.S）：1793人死亡和37038不良反应
+
+Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA (CHADOX1 NCOV-19)：6,070 人死亡和408,312例不良反应
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture4.jpg)
+截止到2021年11月20日，EudraVigilance收到的BioNTech/ Pfizer、Moderna、Johnson & Johnson、Oxford/ AstraZeneca四种疫苗不良反应报告（包含死亡）分别为：574,427例、158,401例、410,479例、37,814例。
+
+11月20日，Moderna的mRNA疫苗mRNA-1273的不良反应报告统计
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-21.jpg)
+11月20日，BioNTech/ Pfizer的mRNA疫苗Tozinameran（代码 BNT162b2，Comirnaty）的不良反应报告统计
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture2-3.jpg)
+# 
+
+11月20日，Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA (CHADOX1 NCOV-19) 的不良反应报告统计
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture3-1.jpg)
+11月20日，Johnson & Johnson的疫苗JANSSEN（AD26.COV2.S）的不良反应报告统计
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture5.jpg)
+参考资料：
+
+[EXCLUSIVE: European Medicines Agency Data Shows 1,163,356 Adverse Drug Reactions and 30,551 Fatalities by COVID-19 Vaccinations](https://www.thegatewaypundit.com/2021/11/european-medicines-agency-data-shows-1163356-adverse-drug-reactions-30551-fatalities-covid-19-vaccinations/)
+
+[EudraVigilance-European database of suspected adverse drug reaction reports](https://www.adrreports.eu/en/data_source.html)
+
+[Important information to consider before looking at ADR reports for the COVID-19 vaccines](https://www.adrreports.eu/en/covid19_message.html)
+
+[Number of individual cases identified in EudraVigilance received over the last 12 months and overall for COVID-19 MRNA VACCINE MODERNA (CX-024414) (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages)
+
+[The number of individual cases identified in EudraVigilance for TOZINAMERAN is 574,427 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42325700)
+
+[The number of individual cases identified in EudraVigilance for COVID-19 VACCINE ASTRAZENECA (CHADOX1 NCOV-19) is 410,479 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40995439)
+
+[The number of individual cases identified in EudraVigilance for COVID-19 VACCINE JANSSEN (AD26.COV2.S) is 37,814 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42287887)
+
+（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+
+编审：文敏      发布：文敏
 
  
 

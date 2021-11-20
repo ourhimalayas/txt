@@ -2,10 +2,28 @@
 ---
 
 
-## 11/20/2021【11·20王健之死新闻发布会三周年】班农先生：文贵先生向西方发出的警告都得到了一一验证
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1681368/)
+## GTV新闻访谈简报|2021年11月20日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1681438/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2.png)
+
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-21.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：2021.11.20早GTV新闻访谈
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov.jpg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
