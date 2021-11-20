@@ -2,36 +2,32 @@
 ---
 
 
-## 美国国会支持台湾参与国际刑警组织
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1680739/)
+## 有俄罗斯撑腰胆子越来越大！中共海军测量舰驶入日本领海
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1680787/)
 
-作者：日本樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月18日，美国国会众议员约翰-科蒂斯表示，70多位美国两党议员联合致函国务卿布林肯、司法部长加兰德，以及国际刑警组织驻华盛顿办事处主任休斯，表明国会支持将台湾纳入国际刑警组织的明确意图。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-15.png)
+[图片来源](http://tokyoexpress.info/2014/10/05/%E4%B8%AD%E5%9B%BD%E6%B5%B7%E8%BB%8D%E3%81%AE%E6%B8%AC%E9%87%8F%E8%89%A6%E3%80%81%E6%88%91%E5%9B%BD%E3%81%AE%E6%8E%92%E4%BB%96%E7%9A%84%E7%B5%8C%E6%B8%88%E6%B0%B4%E5%9F%9Feez%E3%81%AB%E4%BE%B5/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide3-9.jpeg)
+日本防卫省11月19日发布消息称，中共海军1艘测量舰17日晚在鹿儿岛县屋久岛和口永良部岛附近海域，驶入了日本领海。
 
-声明提到，台湾在国际刑警组织中的持续缺席给打击国际犯罪的努力留下了真空。另外，国际刑警组织的“红色通缉令”制度会被诸如中共和俄罗斯等独裁政权所利用。因此，台湾理应具备与美国和其他民主伙伴共事的席位，从而根除国际刑警组织的腐败和滥权。
+防卫省未透露驶入期间的详细行动。日本政府通过外交渠道，向中共政府传达了关切。这是日方第4次确认并公布中共海军舰艇驶入领海，上次是2017年7月。此次未发出基于《自卫队法》可以使用武器的“海上警备行动”命令。
 
-声明强调，拜登政府必须落实国会通过法律的意图，用以抗衡中共的影响力。同时，政府应在国际刑警组织大会之前，推动台湾参与该组织。
+据防卫省介绍，17日晚8点40分前后，海上自卫队巡逻机发现了在屋久岛以南毗连区航行的测量舰。翌日的18日凌晨1点20分前后，发现该测量舰在口永良部岛以西的毗连区向西航行。防卫省认为在此期间，测量舰驶入了日本领海航行。
 
-另据台湾媒体报道，18名支持台湾的跨党派意大利参众议员最近也致函国际刑警组织，要求让台湾参与组织的运行。
+防卫省认为中共与俄罗斯携手、活动趋于频繁，已加强警惕。19日，在日本周边，中国和俄罗斯各2架轰炸机在日本海和东海上空长途飞行，航空自卫队战机紧急升空应对。18日以后，日方发现中俄驱逐舰等共3艘经对马海峡驶入了东海。
 
-参考链接：[美国议员推动让台湾参与国际刑警组织](https://www.voachinese.com/a/us-taiwan-interpol-20211118/6319052.html)
+近期，中共与俄罗斯频繁在日台海域周边开展舰艇和战机联合巡航，向美日台强调其亚太地位的同时，也释放强烈的武力对抗信号。中共在军事上一直都是纸老虎和打嘴炮，一反常态地越来越活跃，除了中南坑的疯狂和无知之外，还因为拉上了“俄爹”当靠山。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+信息来源：
 
-总编：文徬
-编辑：Lakeman(文仁) 
-校正/发稿：谐趣园
+[详讯：防卫省称中国海军测量舰驶入日本领海](https://china.kyodonews.net/news/2021/11/36ccf4891ca8.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-4.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,29 @@
 ---
 
 
-## 有声|美情报官员将战略目标聚焦中共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1680523/)
+## 日本外务大臣表达对港台新疆人权的关切
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1680553/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-11月16日，美国现任和前任情报官员在举行会议时明确，美国未来的战略目标需要对准中共。
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月18日，日本新任外务大臣林芳正与中共外长王毅举行了首次电话会谈。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-20-下午10.45.03.png)圖片來源：2017年，石正麗在武漢病毒研究所。CHINATOPIX，VIA ASSOCIATED PRESS
+资料显示，林芳正于11月10日起出任日本外务大臣，并于第二日辞去日中友好议员联盟会长职务。在于王毅的电话会谈中，林芳正主要表达了日方对尖阁诸岛、东中国海及南中国海局势、香港和新疆人权问题的深重担忧。同时，林芳正还强调了台湾海峡和平稳定的重要性。林芳正还提出，希望中共尽早解除对日本食品的进口限制。
 
-前美国情报局首席副局长苏·戈登称，几十年来，美国情报界先是关注苏联，随后着重于中东恐怖主义，而现在的情报界已经进入了第三个情报纪元。对于美国而言，需要从反恐的沉迷中清醒过来，将目光转向中共。
+分析人士指出，此次会谈反映新任日本政府，即使是知华派的外务大臣，依旧延续前政府对中共的强硬态度，未能如中共期望的那样软弱求和。
 
-与此同时，现任和前任情报官员们纷纷表示，没有任何一个国家像现在的中共这样，正在全方位地监视美国。对此，前CIA参谋长拉里·菲弗也提到，中共先是通过人海战术收集数据，接着用人工智能对这些数据进行分析，最后有针对性地瞄准着美国。
+参考链接：
+1）[https://www.gettr.com/post/phc2e1a6a8](https://www.gettr.com/post/phc2e1a6a8)
+2）[王毅同日本外相林芳正通电话](http://www3.fmprc.gov.cn/web/wjbzhd/t1919364.shtml)
+3）[日外相林芳正走马上任，他“亲中”还是“知中”?](https://www.voachinese.com/a/Is-Japanese-New-Foreign-Minister-Pro-China-20211112/6309050.html)
+4）[林氏、初の日中外相会談で尖閣・人権「深刻な懸念」](https://news.yahoo.co.jp/articles/436791dec7a846a74520b5d5950ec8de6aeab70f)
 
-评论称，此次美国情报官员齐聚的安全会议表明，美国情报界正在把焦点定位于中共。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-文字版原文：[美情报官员将战略目标聚焦中共](https://gnews.org/zh-hans/1678269/)
+总编：文徬
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

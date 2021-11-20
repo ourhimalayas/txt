@@ -2,40 +2,155 @@
 ---
 
 
-## 球星坎特持续抨击中共人权问题 批詹姆斯“金钱高于道德”
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1680727/)
+## 疯狂印钞必然导致各主权国家货币贬值，未来三年将迎来数字货币的爆发期
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1680766/)
 
-#### 作者：日本东京方舟农场 子辰
+[https://gtv.org/video/id=6197a9b7182702508106cd78](https://gtv.org/video/id=6197a9b7182702508106cd78)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/B8E4D44A-4940-4C5B-B794-F4CB8F381233.jpeg)图片来源：美国之音
+郭文贵
+Miles Guo
 
-据《美国之音》11月20日报道，美国职业篮球明星埃内斯·坎特（Enes Kanter）11月18日再次在推特上对中共的人权问题发起抨击，并批评以勒布朗·詹姆斯为代表的一些运动员为了利益对中共恶行噤声不语。
+国内的10万亿美元，67万亿人民币，过去印了一天算过多少钱吗
+The domestic 10 trillion U.S. dollars, that is 67 trillion RMB was printed in the past, how much is it in a day?
 
-过去的一个月来，坎特分别就新疆、西藏、香港、台湾以及强摘器官等问题批判中共。此外，他的最新推文还将目标锁定明星球员、洛杉矶湖人队的勒布朗·詹姆斯（LeBron James），批评詹姆斯的价值观是“金钱高于道德”，为了利益讨好中共。
+也就是将近2000亿左右，10万亿美元是多少个广东和香港、上海的GDP，
+That is about 200 billion or so, 10 trillion dollars is how many times the GDP of Guangdong and Hong Kong and Shanghai?
 
-此前，坎特在与纽约尼克斯队的一场比赛中，穿着印有“自由西藏”字样的球鞋上场，导致后来中共禁播了凯尔特人队的赛事。坎特之后还透露，当时有两名NBA官员请求他脱下那双鞋子。
+它是纯钱，哇塞，印出来的
+Wow, it’s printed money
 
-“批评运动研究”学者、美国陶森大学（Towson University）访问讲师孙又揆（Daniel Yu-Kuei Sun）对《美国之音》表示，他不同意一些网友所说的坎特批判中共人权是为了吸引眼球，获取关注。
+你觉得美国和世界的股市，美国是涨了78%，50万亿的股市
+Do you think the US and the world’s stock markets, the stock market in the US has risen 78% and 50 trillion dollars market cap
 
-孙又揆指出，坎特是为所有弱势群体发声，包括人权问题、西藏、新疆、维吾尔、香港及台湾。坎特就是觉得他在做对的事情，他认为极权政府的做法是错误的，理应发声批判。
+它能这样活着下去，如果这样能活下去
+Can it go on like this? If it can go on like this
 
-好莱坞制片人、《喂食中国龙》一书的作者克里斯·芬顿（Chris Fenton）也称赞坎特在批评中共方面的做法“非常不同凡响”。他表示，对于许多名人、运动员以及运动联盟和众多企业来说，中共是巨大的收入来源。人们为此非常不情愿批评中共，也避免触碰这样的话题。而坎特绝对是出类拔萃的，没有几个有影响力的人物敢于涉足这个雷区。
+我们人类真的啥也不用干了，政府就印钞票就完了
+We humans really don’t have to do anything, the government just prints money and should be fine
 
-由于之前在2019年香港反送中运动期间，休士顿火箭队总经理莫里通过推特表达对香港抗议者的支持，引发中共不满，NBA当时为了商业利益出面向中共道歉，但却招来美国国内一片声势浩大的批评声。最终让NBA陷入双输：既损失了商业利益，又丧失了道德制高点。因此，在坎特此次抨击中共人权问题后，NBA始终保持低调。总裁萧华只是告诉坎特，他这么做“没有违反规定”。
+一直印，股票一直涨，我告诉你能干啥
+Keep printing, stocks keep going up, let me tell you what you can do
 
-坎特是出生在瑞士苏黎世的一名土耳其人，曾经效力过土耳其国家篮球队。他在2015年发表声明支持民主价值观，并公开批评时任土耳其总理埃尔多安，因此被土耳其国家队开除，他的土耳其护照也被取消了。坎特随后定居美国后，还曾因害怕离开美国会遭到土耳其政府暗杀，而放弃过参加NBA伦敦站的比赛。
+美元贬值，从布雷顿系统1971年50倍，不要忘了，贬值是相对值
+The dollar has depreciated 50 times since the Breton system in 1971. Don’t forget that the depreciation is a relative value
 
-上个月，土耳其政府对坎特签发了四年中的第十份逮捕令。粉丝评论说，“他唯一的犯罪是有勇气反对压迫。”
+叫货币的相对值，你是拿它当时的货币的含金量和今天的含金量的相对值
+Called the relative value of the currency, you take the relative value of the gold content of the currency at that time and the gold content of today
 
-*新闻链接： [https://www.voachinese.com/a/Kanter-slams-lebron-james-on-china-20211119/6320095.html](https://www.voachinese.com/a/Kanter-slams-lebron-james-on-china-20211119/6320095.html)*
+如果整个货币它没有相对值的贬，它应该升值，
+If the entire currency has no relative depreciation, it should appreciate
+
+叫做金融现象的最重要的叫客观相对比较值
+The financial phenomenon is objective relative comparison value
+
+就是去掉我可增长的，减掉现在已经降低的，才是我应该中间那个数
+Just remove what I can grow, and subtract what I have now decreased, that’s where I should be in the middle
+
+这个货币喷发量的时候，它就算的第一个数据说
+When this currency erupts, it’s even the first data that says
+
+货币应有的增值数值和它现在的贬值数量经过除以后才是货币的真实价值，
+that the value of the currency’s expected appreciation and its current depreciation amount are divided into the real value of the currency
+
+它要没贬50倍，它应该涨多少倍，你知道吗
+If it doesn’t depreciate 50 times, how many times it should appreciate, do you know？
+
+人类创造那么多财富，按照M2, M0整个的货币发行的计算的话
+Human beings create so much wealth, according to the calculation of the entire currency issuance of M2, M0
+
+美元现在应该升值在200倍，它乘以3.7的系数
+The dollar should now appreciate by 200 times, multiplied by the factor of 3.7
+
+人类就愣把这个人类创造了3.7倍的财富给贬到了50倍以下，给你兑水
+Humans have created 3.7 times their wealth and they just reduced the value to less than 50 times, dilution of wealth
+
+钱去哪了？必须问钱去哪了，
+Where did the money go? Where the money is？
+
+现在人类不会再傻，因为它有2个核心的（问题）过不了
+now humans will no longer be stupid because it has 2 core factors can’t get through
+
+一，互联网技术，你不是政府想说啥就是啥，你都闭嘴是不可能的
+
+1. Internet technology, the government can’t say whatever they want to say, it is impossible for people to shut up
+
+
+第二，区块链技术的诞生，大家有了选择，我不用你我用啥
+Second, with the birth of blockchain technology, everyone has a choice, if iI don’t need you, then what I can use
+
+区块链技术是什么概念呢，全人类现在是1300万亿美元的， 所有的货币量
+What is the concept of blockchain technology? All mankind is now worth 1300 trillion U.S. dollars, all the amount of money
+
+进去的几十年的GDP，那么这1000多万亿美元，几乎一大半都是兑水
+In the past decades of GDP, almost half of these more than 1,000 trillion U.S. dollars are all diluted
+
+兑过水的东西要乘以3.7到3.9的货币和财富生产价值的系数的话
+Diluted things are multiplied by currencies ranging from 3.7 to 3.9 and the coefficient of wealth production value
+
+也就是全人类生产剩余价值和货币增发量
+That means the surplus value produced by all mankind and the amount of additional currency issuance
+
+不应该超过它在2.5倍到3倍，大家遵守的规则，它现在玩的30倍以上
+that it should not be more than 2.5 times to 3 times, and everyone abides by the rules, it is now over 30 times
+
+那就全部蒸发，蒸发完以后，虚拟货币这边会增长多少呢
+Then all will evaporate, after evaporating, how much will the virtual currency grow?
+
+虚拟货币会再把所有的人类应有的过去几十年的所有的财富
+Virtual currency will regain all the wealth of the past few decades that all human beings deserve
+
+生产价值，剩余价值，1000多万亿反映在虚拟货币上
+Production value, surplus value, more than 1,000 trillion are reflected in virtual currency
+
+大概需要5年到10年，3年是最核心的暴涨期
+It takes about 5 to 10 years, and these 3 years is the core period of skyrocketing
+
+那是什么概念呢，就现在比特币也得没有了
+What is it mean? Even now Bitcoin has gone
+
+比特币的这1万多亿，还有现在你看到那些杂七杂八的
+Bitcoin has more than 1 trillion dollars and now you see all those miscellaneous
+
+什么狗币、什么猫币、鼠币的都扯淡的事
+like dog coins, cat coins, and rat coins are all nonsense
+
+没有支付（功能）都是扯到事儿，包括那些所有的交易所都胡扯，99%都会完蛋
+coins without payment features are nonsense, including those all exchanges are nonsense, 99% will be gone
+
+就像当年互联网诞生，99.999%的互联网完蛋了
+Just like when the Internet was born, 99.999% of the Internet companies are dead
+
+诞生了一个FACEBOOK、YOUTUBE、GOOGLE、YAHOO
+A FACEBOOK, YOUTUBE, GOOGLE, YAHOO was born
+
+中国的墙内的百度，就这么简单
+There is one Baidu left inside China’s firewall, it’s that simple
+
+也就是1000多万亿的人类的生产财富
+Which is more than 1,000 trillion dollars human production wealth
+
+重新定价的货币权和货币方式都会在区块链诞生，政府没有选择的
+The repricing of currency rights and currency methods will be born on the blockchain, and the government has no choice
 
 * * *
 
-*素材采编：子辰*
+Date:11/18/2021
+原视频标题: 疯狂印钞必然导致各主权国家货币贬值，未来三年将迎来数字货币的爆发期
+Crazy printing of money will inevitably lead to the devaluation of the currencies of sovereign countries, and the next three years will usher in a period of digital currency explosion
+原视频日期：2021/11/14
+原视频链接 [https://gettr.com/post/ph2a61002d](https://gettr.com/post/ph2a61002d)
+任务编号：KC267（2911）
+视频时间段 : 0:00-2:59
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-*编辑：青衣青青*
-
-*发布：miumiu*
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

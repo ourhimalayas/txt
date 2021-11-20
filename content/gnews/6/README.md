@@ -2,34 +2,34 @@
 ---
 
 
-## 受核心主控芯片制约！中共5G小基站产业硬不起
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1680699/)
+## 欧盟组建联合部队应对中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1680745/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-18.png)
-[图片来源](https://wpig-iotsolutionaggregator.wpgholdings.com/zhcn/solution/detail/adlink5gsmallcell)
+作者：日本樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月15日，欧盟在防长会议上确认，为了在2025年前成立一支可达五千人的联合部队，欧盟已经设定了具体的执行蓝图和时间表。
 
-近日，中共工信部公布数据称，截至2021年8月底，国内建成5G基站已经超过100万个，占全球的70％以上，5G终端连接数超过了4亿，中共国已是全球最大的5G市场。但由于大量关重芯片仍旧不能国产，导致小基站产业发展滞后，基本被国外企业主导。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide4-8.jpeg)
 
-目前，中共5G网络布局规划是“宏基站基础、小基站补充”。近年来，4G基站向5G基站的过渡中，受相关网络建设条件限制，小基站成为必要补充，尤为需要强调的是室内网络建设方面。
+欧盟表示，这支联军旨为北约作补充，并且在减少欧盟对美国依赖的同时，重点为在印太地区应对中共提供更多可能性。欧盟代表强调，与北约互补意味着欧盟具备建立共同安全和国防政策的雄心，在必要时能够单独使用自己的能力。
 
-与消费级不同，小基站芯片需要高程度的成熟性和高可靠性。目前，由于FPGA和ASIC的特性拥有不同的使用场景和特性，因此5G小基站的核心主控芯片以FPGA和ASIC芯片的SoC占据主流市场。据悉，5Ｇ小基站芯片仍被国际大厂垄断，博通退出该市场之后，[英特尔](https://ee.ofweek.com/tag-%E8%8B%B1%E7%89%B9%E5%B0%94.HTM)、恩智浦、[高通](https://ee.ofweek.com/tag-%E9%AB%98%E9%80%9A.HTM)成为三大玩家。
+根据欧盟“战略指南”计划，到2025年，欧盟应发展出一支由海、陆、空三军组成的，名为“欧盟快速部署能力”的部队，其中还将包括远程军用航空运输、空间通信技术和情报能力等部分。另一方面，作为西方战略应对中共军事崛起的一部分，欧盟计划于2023年前，将在印太地区开展更多的欧洲海军协调联动、海上军演和巡逻。
 
-英特尔、恩智浦、高通三大巨头分别采用FPGA、Arm多核架构和ASIC芯片，而华为、中兴等国内企业则看重ASIC和RISC－V架构。
+参考链接就：[欧盟2025年组联合部队 印太应对中国](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-11172021081602.html)
 
-由于中共5G小基站上游芯片起步较晚，与中游众多的通信厂商和下游众多应用场景比较，国产化程度低，参与者少始终是无法破解的问题。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-出于加强统治维稳和拓展全球控制力，中共一直青睐5G技术，近年更是从政治、经济和产业多方面不遗余力地推进5G技术的落地。但由于自身的先天不足，中共不管如何折腾永远面临的是其能力无法匹配其野心的尴尬境地，即在5G技术和产业上想硬无法真硬，想自主无法真自主。
+总编：小鹿妞妞
+编辑：Lakeman(文仁) 
+校正/发稿：谐趣园
 
-信息来源：
-
-[5G小基站芯片等待星光中的赶路人：国产还要多久？ – OFweek电子工程网](https://ee.ofweek.com/2021-11/ART-8320315-8500-30535253.html)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-3.png)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
