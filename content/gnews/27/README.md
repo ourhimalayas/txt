@@ -2,125 +2,143 @@
 ---
 
 
-## 中共经济倒塌牵动欧美，经济大崩溃习欲趁机攻台湾
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1680812/)
+## 全球邪恶势力制造疫苗大灾难的动机是什么
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1680867/)
 
-[https://gtv.org/video/id=619766f7182702508106bff2](https://gtv.org/video/id=619766f7182702508106bff2)
+[https://gtv.org/video/id=61985aa8182702508106f646](https://gtv.org/video/id=61985aa8182702508106f646)
 
-接下来房地产崩塌, 不是说他担忧, 一定是崩塌的下跌
-Lo que viene es el colapso inmobiliario, no es que sea una preocupación, debe ser el colapso de la caída
+这个事实上大家的动机
+De hecho, la motivación de todos
 
-绝对不是抛物线上去
-Definitivamente no se va en una parábola
+能看到它跟钱有关系
+Pueden ver que tiene relación con el dinero
 
-绝对是天上不是扔一个苹果
-Tampoco no es lanzar una manzana desde el cielo
+这个世界上现在超发这么多票据
+Hay tantas facturas emitidas en exceso
 
-是扔颗大石头下来的感觉
-Sino es como lanzar una piedra grande
+超发那么多的货币
+Billetes emitidos en exceso en este mundo ahora
 
-你走着看
-Verás
+世界的保险已经到了最高顶峰
+El seguro mundial ha alcanzado su punto máximo
 
-刚就是说那个供应链
-Lo que estabamos hablando de la cadena del suministro
+全人类的所有的过去
+El pasado de toda la humanidad
 
-要用国民警卫队
-Que van a usar la Guardia Nacional
+和平时期70年到后20年的经济发展当中
+En el desarrollo económico de 70 años a los próximos 20 años durante el período de paz
 
-他没有闹明白
-Él no ha comprendido bien
+大量的金融票据
+Grandes cantidades de facturas financieras
 
-你用什么对队, 国民警卫都给打疫苗啦
-Qué guardia vas a usar si toda la Guardia Nacional se han vacunado
+也就是说华尔街的金融杠杆, 杠杆化的结果
+En otras palabras, el apalancamiento financiero de Wall Street y su resultado
 
-国民警卫队有家人, 他有孩子要上学
-Ellos también tienen familiares e hijos que van al colegio
+其中最重要的问题就是保险
+Dentro de eso, el problema más importante es el seguro
 
-你发完了钱
-Luego que termines de distribuir el dinero
+保险公司要大量的兑现, 兑保
+Las compañías de seguro necesitan cobrar grandes cantidades de efectivos y garantías
 
-根本物价上涨
-El precio de los bienes fundamentales ha aumentado
+金融机构要给你所有的十倍百倍的回报
+Las instituciones financieras quieren darte diez hasta cien veces más de recompensa
 
-以后你发完了钱, 这边给你100
-Después cuando terminas de distrubuir el dinero, aquí te dan 100
+而且所有的杠杆化都是这些国家政府和这些银行金融机构
+Y todo el apalancamiento son los gobiernos de estos países y estos bancos e instituciones financieras
 
-然后这边给你这一杯子水
-Y aquí te dan un vaso de agua
+人类上不是1%是千分万分百万分之一的人在控制着
+La humanidad no es 1% sino es una entre decenas de millones de personas al mando
 
-过去1块钱就变成200块钱了
-Lo que era 1 yuan en el pasado, se convirtió en 200 yuanes
+特别这种药厂
+Especialmente, este tipo de fábrica farmacéutica
 
-给你100有什么用
-De qué sirve darte 100
+决定你命, 生死叫和平的杀人武器
+Decide tu vida, la vida y muerte es un arma homicida llamada paz
 
-这手通货膨胀, 这手给你弄钞票, 全是政治操作吗
-Esta mano es la inflación y la otra te da billete, todo es puro control político
+合法的杀人武器
+Arma homicida legal
 
-最后大家全完蛋吗
-Finalmente, todos se acabarán
+药厂没有任何东西的
+En las fábricas farmacéuticas no hay ninguna cosa
 
-国民警卫队管用吗, 不管用的
-¿Servirá la Guardia Nacional? No
+到最后才是武器核武器
+Al final son armas y armas nucleares
 
-供应链的问题是疫苗造成的
-El problema de la cadena del suministro es causado por las vacunas
+那另外一个就是绝对控制了你的精神和想法的
+Y lo otro es definitivamente controlar tu espíritu y pensamiento
 
-是这个病毒造成的
-Y este virus
+知道真相的就是世界的所谓传统媒体和社交媒体
+Los que saben la realidad son los medios de comunicación antigua y las redes sociales de este mundo
 
-是你这个不良的疫苗政策造成的
-Es causado por su mala política de vacunas
+最后就是这几个所谓的背后的大佬
+Por último son estos jefes que están detrás de todo
 
-那么接下来共产党这个房地产一倒塌
-Y lo que viene es el colapso inmobiliario del Partido Comunista
+金融支付和杠杆的原创者之地
+El lugar de origen del pago y apalancamiento financiero
 
-咵嚓, 美国的7万亿美元投资
-¡Boom! Una inversión de 7 billones en los Estados Unidos
+包括美国共产党这些相互勾搭者
+Incluyendo los colaboradores del PCCh y EE. UU
 
-你还能找回来吗
-¿Podrás recuperarlo?
+晚上才能见面的, 这种中共和华尔街的关系
+Sólo se ven de noche, esta relación entre el PCCh y el Wall Street
 
-习就一句话
-Xi sólo dijo una palabra
+白天不能见面的, 这种邪恶的组织们
+Este tipo de organizaciones malignas no se pueden ver de día
 
-老子就让你经济大崩溃
-Yo te haré un gran colapso económico
+他们现在已经到了最后的崩溃的边缘
+Ahora están al borde del colapso final
 
-我就顺便打台湾
-Y aprovecho puedo atacar a Taiwán
+要不然世界要跟他们算帐
+De otra manera, el mundo debe saldar cuentas con ellos
 
-这是多简单的事情啊
-Esto es un asunto tan fácil
+要不他们现在就把全世界给干掉
+O ellos eliminarán al mundo ahora
 
-梁山, 水浒, 三国演义, 无数次诸葛亮, 陆逊, 司马懿用的办法
-Liang Shan, A la orilla del agua, el Romance de los tres Reinos, el método utilizado por Zhuge Liang, Lu Xun y Sima Yi por innumerables veces
+而且大家看得很清楚
+Y todos ustedes lo ven claramente
 
-东边点火, 西边烧妳粮仓去, 是吧
-Dispara en el este y quema tu granero en el oeste, ¿verdad?
+你所有(看到)今天刚才的视频
+Todos los videos que viste hoy
 
-这边是打你的小城, 那边是把你引开注意力
-Este lado es para vencer a tu pequeña ciudad y el otro lado es para desviar tu atención
+你们讲的话就是跟三件事有关系
+Tiene relación con tres cosas por lo que hablaron
 
-攻你的老窝去
-Ataca tu nido
+所有的媒体就不让你知道真相
+Todos los medios de comunicación no quieren que te enteres de la realidad
 
-不都是这招吗
-No siempre usan este truco, cierto
+用媒体来搞掉你
+Te derriban a través de estos medios
 
-现在习就用这招
-Ahora Xi está usando este truco
+第二, 用药厂搞掉你
+Segundo, te destruyen mediante las fábricas farmacéuticas
+
+第三, 搞不掉你就用政府的枪搞掉你, 警察搞你
+Tercero, si no logran eliminarte entonces utilizarán las pistolas del gobierno o las policías para alcanzar el objetivo
+
+就这三件事
+Son estas tres cosas
+
+这三件事谁说了算呢
+Y ¿quién tiene la última palabra sobre estas tres cosas?
+
+任何人说了不算
+No es cualquier persona
+
+只有这种邪恶势力
+Sino solamente esta fuerza maligna
+
+邪恶的势力最大勾兑者是谁, 中国共产党
+Y ¿quién es el colaborador más grande de esta fuerza? El Partido Comunista China
 
 * * *
 
-日期：11/18/2021
-原视频标题：中共经济倒塌牵动欧美，经济大崩溃习欲趁机攻台湾
-El colapso de la economía del PCCh afecta a Europa y Estados Unidos; Xi quiere aprovechar esta oportunidad para atacar a Taiwán
-原视频日期：11/16/2021
-原视频网址：[https://gettr.com/post/ph212m0818](https://gettr.com/post/ph212m0818)
-任务编号：KC265（2914）
-视频时间段：0:00-1:35
+日期：11/19/2021
+原视频标题：全球邪恶势力制造疫苗大灾难的动机是什么
+¿Cuál es la motivación de las fuerzas del mal global para crear la catástrofe de la vacuna?
+原视频日期：11/18/2021
+原视频网址： [https://gettr.com/post/ph8z939415](https://gettr.com/post/ph8z939415)
+任务编号：KC269（2933）
+视频时间段：0:00-2:17
 西听校：洛杉矶盘古农场 – 霙霙（文霙）
 翻译：洛杉矶盘古农场 – 小文萱
 翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
