@@ -2,45 +2,66 @@
 ---
 
 
-## 人民币国际化和蓝金黄世界所有的雷明年5月份前一定爆
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1679557/)
+## Meta将“把我们困在虚拟现实中”扎克伯格是“世界最大房东”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1679659/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/FClimiIVcAEnTkV_副本.jpg)
-据[2021年11月19日文贵大直播：国际市场资金短缺；数字货币、法币及经济膨胀所带来的危害；疫苗灾难最新数据及病毒解药的进展](https://gtv.org/video/id=6197a194fcd196126f8cab91)时间点1：00：17——
+**编译：Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip32-1.png)By Jeremy Loffredo
+记者兼政治评论员 艾米丽·贾辛斯基（Emily Jashinsky ）表示，马克·扎克伯格正在使用元宇宙使虚拟现实崇拜、工作、社交和娱乐“正常化”，“因为我们在元宇宙中花费的时间越多，他赚的钱就越多，他拥有的控制权也就越多。”
 
-**郭文贵先生：**共产党能叫王岐山出来到新加坡专门诋毁咱，找赵长鹏，但是你看到了马云，他本来让马云要出来讲几句的，这马云不知道死活就没出来讲，结果马云的这个七哥告诉你了嘛，头两天到西班牙，我说涨了160 170，你们都忘了七哥说的话了。
+Facebook 的母公司有了一个新名字——Meta(元界)。
 
-我说这孙子出来就是把他弄起来，共产党要你——看看，马云出来了啊，马云出来了！就像那个小姐，夜总会，每次我们到夜总会看的就是女孩子都出来咔咔地遛两圈是吧？那介绍，然后啪又转身走了，欸，你选几号几号是吧？
+根据扎克伯格的说法，该公司还有一个新的使命：成为“移动互联网的继承者”和“一个我们可以闲逛、购物和工作的虚拟环境”。
 
-这东弟你我都是常干的事是吧？颖妹妹，这是我过去事，你不要管着，这是我们都经常干的事儿，就是让马云去做小姐嘛，出来兜两圈嘛，是吧？晃晃腚嘛，是吧？然后大家说，欸，我买单，我买单。
+但记者和政治评论员艾米丽·贾辛斯基对扎克伯格的元宇宙有不同的看法。
 
-就是买了阿里巴巴股票，160咣唧给砸下来了，10%、10%地跌，你们不要看百分比，兄弟姐妹们，股票不能看百分比，人家一块钱股票10%是一毛钱，它是160块钱的股票，10%是16块钱呢，这是很大的钱呐！咵咵咵，没了，这不就出来表演了嘛，七哥跟你们说对了吧？你说我要做股票哪回不赚，你告诉我。
+“**人类历史上最强大的公司之一，正计划将我们困在虚拟现实中，**”贾辛斯基说。
 
-所以今天要说的是，随着世界整个经济进行通胀、通缩，进入了整个的数字货币的时代，逃避掉法币，还有共产党想人民币国际化，蓝金黄世界的整个的所有这些雷都会在未来的可能下一个小时，绝不会超过明年5月份一定会爆。
+贾辛斯基告诉观众元界的“崛起”：
 
-（以下暂略）
+“扎克伯格正在迅速将自己定位为世界上最大的房东，他正在使用与 15 年前相同的乌托邦语言，来说服每个人，Facebook 将成为一股全球性的力量。”
 
-撰稿：喜马拉雅的肉夹馍；
+贾辛斯基说，现在和过去的区别在于：“现在我们知道他运用自己的力量让我们变得更愤怒、更孤独、更愚蠢、更不健康、更容易上瘾。”
 
-审核：喜马拉雅的馍夹肉；
+“他接受了测试，失败了，”她说。
 
-校对：Maarago
+7 月，扎克伯格在与“边缘”（The Verge）的一次“令人深感不安的采访”中解释了他对元宇宙的计划。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+在采访中，扎克伯格说，他设想了一个未来，每个人都戴着配备虚拟现实的眼镜，让人们“更自然”地与互联网互动。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+他将元宇宙描述为“一个我们可以在一起的持久、同步的环境，我认为这可能类似于我们今天看到的社交平台之间的某种混合，但是一个你体现在其中的环境。”
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+贾辛斯基表示，同月 The Verge 发表了对扎克伯格的采访，Facebook 首席执行官雪莉·桑德伯格（Sheryl Sandberg）告诉《纽约时报》，Facebook 希望有一天，“人们将在虚拟现实空间中举办宗教仪式”，并“使用增强现实作为一种教育工具来教他们的孩子他们信仰的故事。”
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+桑德伯格告诉《泰晤士报》，“信仰组织和社交媒体是天作之合，因为从根本上说，两者都是关于联系的。”
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+贾辛斯基表示，Metaverse 正在“以 Facebook 向我们推销的完全相同的语言来掩盖其新技术。”
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+她解释了 Facebook 最初是如何被描述为“一种将我们联系起来的模糊抽象技术，这种联系将是美妙的。”
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+“我们现在知道：这种假设是天真的和破坏性的，”贾辛斯基说。“**将我们更多的生活转移到他们的平台上的寡头计划，应该被视为紧急情况应对。”**
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+“崇拜只是日常生活的一个方面，元界希望虚拟现实取代我们的生活，”贾辛斯基说。 “他们对即将到来的虚拟空间的控制，将使他们更好地控制人类体验和我们的文化。”
+
+贾辛斯基告诉观众，像元界这样的平台“讽刺地将自己定位为未来的房地产主力军，因为他们想成为每个 [虚拟现实] 教堂、健身房和办公空间的全球房东。”
+
+根据世界经济论坛“战略合作伙伴”“认知”(Cognizant) 的说法，工作和娱乐的未来，实际上将发生在“更安全”的虚拟世界中。
+
+Cognizant 声称，到 2025 年，“病毒过后”，房屋将被改装成特殊的办公室和工作空间，作为“虚拟社交”的空间。
+
+**评论：总记得爆料革命引领着文贵先生的预示：扎克伯格一定会进监狱的！如果这样的寡头魔鬼不进监狱，我们地球人就要活在地狱了！**
+
+**新闻来源**：[childrenshealthdefense.org][Metaverse Will ‘Trap Us in Virtual Reality’ and Position Zuckerberg as ‘World’s Largest Landlord’](https://childrenshealthdefense.org/defender/emily-jashinsky-metaverse-virtual-reality-zuckerberg/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=747edecb-16bd-4250-92c7-d98916a77adb)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+
+
 
  
 

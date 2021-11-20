@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/20/2021 1:01 PM (UTC)`
+
+2021年11月20日 “11·20”发布会及法治基金、法治社会成立三周年纪念日大直播
+![img](https://media.gettr.com/group6/origin/2021/11/20/12/3caabf07-86eb-78e8-d62d-f3cb94543810/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 11/20/2021 6:54 AM (UTC)`
 
 11/19/2021 Miles Guo: Any government that approves the purchase of weapons and training for the defense forces of the New Federal State of China is tantamount to recognizing our sovereign status; the world’s best mercenary troops are all our friends, and they can be dispatched to protect our fellow fighters on the ground at any time<br/><br/>11/19/2021 文贵直播：任何一个国家政府批准新中国联邦国防军购买武器和参加培训等同于认可了我们的主权资格；世界上最牛的雇佣军都是咱的人，他们可被随时派去在陆上保护咱战友<br/>
@@ -297,13 +304,6 @@ Shop 'The Drop' at www.GFashion.com<br/><br/>@gfashion <br/>@ddnyc
 
 喜币上市15日上涨310倍，总成交量16.99M（百万）个，相对于首发的10亿个币，总共15日，上涨310倍的总换手率1.69%不足2%。其中已经包括了机构给战友们的福利大单，减去这些大单，估计1%都不到了，可见卖的人少之又少，没人卖啊，真的没人卖！！！这证明了7万多战友们的灭共信心，也证明了我们新联邦中国人的素质和实力。这和CCP国内的金融市场形成了鲜明的对比，一个是互相欺骗，给你挖坑，背后捅刀。一个是相互信任，有共同的目标，战友间的袍泽之情。高低胜负，一见分晓。共产党你完了！！！
 ![img](https://media.gettr.com/group16/origin/2021/11/16/02/e3c6960e-d4d2-1b4a-0d3a-cba8d8e59208/0c7d8dfe00e03968ab370f0c404c58e2.JPG)
-
----
-
-`@miles 11/16/2021 4:50 PM (UTC)`
-
-无论是对神和人都要兑现你的承诺<br/>
-![img](https://media.gettr.com/group14/getter/2021/11/16/16/50/42ee762a-72d2-fe29-8d82-8482166e299d/34b2eb6550dc420bc534242b20557bb7.jpg)
 
 ---
 

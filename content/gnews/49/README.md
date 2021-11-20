@@ -2,31 +2,28 @@
 ---
 
 
-## 美国就菲律宾船遭中共国攻击发出警告，北京无视
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1679154/)
+## 恒大还想骗钱，拟配股筹资约27亿
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1679455/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-16.jpg)美国就菲律宾船遭中共国攻击发出警告，北京无视 网络图片
-据美国之音11月20日报道，中共国海警船16日在斯普拉特利群岛（中共国称南沙群岛）的“第二托马斯浅滩”（中共国称仁爱礁）向菲律宾补给船发射水炮，阻止其为那里的游客运送补给物资。菲律宾对中共国的武力行动表示愤怒、谴责和抗议。美国国务院19日向中共国发出严正警告，称中共国的武装攻击将会招致美国的回应。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-105.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fupload.iheima.com%2F2020%2F0918%2F1600411361832.jpg&amp;imgrefurl=https%3A%2F%2Fwww.iheima.com%2Farticle-307787.html&amp;tbnid=oUg4-_ZQlOP6AM&amp;vet=12ahUKEwjo0K_Mrab0AhWLCN4KHYT2CtUQMyhjegQIARB0..i&amp;docid=vaqCsDPU1_DaPM&amp;w=1080&amp;h=717&amp;q=%E6%81%92%E5%A4%A7%E6%B1%BD%E8%BD%A6%20%E6%A8%A1%E5%9E%8B&amp;hl=zh-CN&amp;ved=2ahUKEwjo0K_Mrab0AhWLCN4KHYT2CtUQMyhjegQIARB0)
+恒大新能源汽车集团有限公司[0708.HK](https://cn.reuters.com/companies/0708.HK)周五在港交所发布公告称，将通过配售股份筹集约27亿港元，用于新能源汽车研发及生产制造。
 
-南中国海是全球最重要的商业通道，有丰富的渔业资源和巨大的石油和天然气储量，每年有数万亿美元的货物从此通过。中共国声称拥有南中国海域全部主权，周边其他国家都声称拥有部分主权。2016年，海牙仲裁法院否定了中共国对南中国海主权要求的法律依据。中共国对这一裁决不予理睬。
+该公司在公告中表示，通过先旧后新方式，以每股3.00港元配售9亿股，预期配售事项的所得款项总额为约27亿港元。公司拟将收取的所得款专项用于集团新能源汽车的研发及生产制造，为恒驰新能源汽车顺利投产奠定基础。
 
-中共一向无视国际法律或仲裁，因为中共的蓝金黄几乎腐蚀了全世界，中共自认为能够拿下周边国家，而西方的软弱和妥协助长了中共的狂妄和扩张。中共画个圈就把南中国海圈进了中共国的版图，美国的警告根本阻止不了中共的野心。必须以其人之道还治其人之身，用同样的武装行动消灭共产党，从此航运通畅，天下太平。
+公告还称，本次配售股份占于公告日期已发行股份总数约9.05%及认购事项完成后经扩大已发行股份总数约8.30%。此次配股价较该股周五收盘价3.53港元有15%的折让。
 
-新闻参考链接：[https://www.voachinese.com/a/US-warns-Beijing-it-will-defend-philippines-in-event-of-attack-20211119/6320129.html](https://www.voachinese.com/a/US-warns-Beijing-it-will-defend-philippines-in-event-of-attack-20211119/6320129.html)
+上周恒大汽车刚通过先旧后新方式，以每股2.86港元配售1.75亿股，筹资5亿港元，也是用于新能源汽车研发及生产制造。
 
-* * *
+稍早，香港恒生指数公司公布季度变动，恒大将自12月6日起被剔出恒生中国企业指数。取而代之由信达生物制药补选成为恒生中国企业指数“新贵”。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+消息来源:
 
+[恒大汽车拟配股筹资约27亿港元 用于新能源汽车的研发及生产](https://cn.reuters.com/article/evergrande-motors-financing-1120-idCNKBS2I502Q?il=0)
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
