@@ -2,26 +2,32 @@
 ---
 
 
-## 联合国称供应链成本激增或将导致全球物价飙升
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1678677/)
+## 职业安全与健康管理局暂停执行雇主的“强制疫苗”规定
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1678690/)
 
-采编：风云小哥   编译撰稿：文明(添草灭共)
+**据《福克斯59.com》尼克星媒体网于2021年11月17日报道**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/af68z-tsp7s.jpg)图片来源：网络
+华盛顿特区（WSPA）在美国第五巡回上诉法院11月12日作出裁决后，职业安全与健康管理局（OSHA）表示，它已暂停实施和执行“雇佣超过100位员工的雇主必须要求雇员接种疫苗或进行COVID-19测试“有关的所有活动，并在等待诉讼的进一步发展。
+法院的裁决命令OSHA不能采取任何措施来实施或执行所谓的紧急临时标准，“直到法院进一步指令”。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-51-edited.jpg)图片来源：TODAY
+据美联社周二报道，拜登总统关于“对私人雇主的COVID-19疫苗授权的挑战”现在将被合并到美国第六巡回上诉法院，这个小组由共和党人任命的法官主导。
 
+在所有11个联邦地区巡回法院以及哥伦比亚特区的巡回法院中，总共提出了34项反对意见。
 
-据【今日在线】11月18日报道，联合国近日提出警告称：除非“新冠病毒疫情”引发的问题得到基本解决，否则国际集装箱运费的激增可能导致2022年全球消费价格大幅上涨。
+位于辛辛那提的法院是周二用乒乓球随机抽签选出来的，当对某些联邦机构的行动提出质疑时，会在多个法院采用这一程序。
 
-报道称，【联合国贸易和发展会议】最新发布的《2021年海运回顾》报告表明，尽管从2020年下半年开始，全球供应链需求快速提升，但因同时遇到包括集装箱船运载能力、集装箱劳动力短缺、港口拥堵及“新冠病毒”疫情等方面的限制，而导致国际贸易集装箱运费创下历史新高。
+拜登政府坚持认为OSHA的紧急临时标准具有强大的法律基础。它还得到了美国医学协会的支持，该协会提交了文件支持这项任务。
 
-为此，该机构秘书长格林斯潘表示：供应链成本飙升将对全球贸易产生深远影响并阻碍各国经济复苏。并预测发展中国家的消费价格将因此上涨至少7.5%，而且在2022年至2026年期间，海上贸易运输量的年增长率也可能会大幅下降。
+**文章来源**:[https://fox59.com/news/coronavirus/osha-suspends-enforcement-of-large-employer-vaccine-mandate/](https://fox59.com/news/coronavirus/osha-suspends-enforcement-of-large-employer-vaccine-mandate/)
 
-* * *
+翻译：洛杉矶盘古农场 – Mike Li
+校对：洛杉矶盘古农场 – 小象的奶瓶
+编辑：洛杉矶盘古农场 –小象的奶瓶
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-校对编辑，发稿：硫酸羟氯喹64
-
-原文链接：
-https://www.todayonline.com/world/un-warns-soaring-prices-2022-due-freight-rate-spike?utm\_source=dlvr.it&utm\_medium=twitter
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

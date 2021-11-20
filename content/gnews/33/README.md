@@ -2,22 +2,41 @@
 ---
 
 
-## 奥地利或成为首个强制疫苗的西方国家
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1678496/)
+## 中共国地产的冬天降临，10月份连续第四个月土地销售收入下滑
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1678522/)
 
-撰稿：西枫westca
+作者：香草山金融部 – 闲聊钱币
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-9.jpg)图片来源：网络照片
-据多家媒体11月19日报道，奥地利计划要求全体国民在2022年2月前接种中共病毒疫苗。这将是欧洲第一个强制接种疫苗的国家。继11月17日，奥地利政府将约200万未完全接种疫苗的民众关起来之后，今天又宣布全国从11月22日起进入全面封锁状态，奥地利将成为第一个重新实施全面COVID-19封锁的国家。
 
-欧洲最近的再次成为COVID-19流行的中心，据路透社统计，上周欧洲占全球平均感染人数的一半以上、最新死亡人数的一半左右。德国卫生部长廷斯斯帕恩说，第四波感染使欧洲最大经济体德国陷入国家紧急状态，不排除类似全面封锁的行动。默克尔周四宣布，将限制那些尚未接种疫苗的地区公众生活。
 
-然而在法国，总统马克龙在周四表示，法国不需要对未接种疫苗者实施封锁，因为法国在遏制病毒传播方面取得了成功。有74.9%的法国人接种了疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-1.png)
 
-正如郭文贵先生在直播中指出，黑暗已经来临。新联邦中国人要团结起来，继续传播病毒、疫苗真相。让我们的光柱刺破黑暗，为光明的到来做出自己的努力。
 
-**新闻来源：**[Austria the first country in Europe to impose mandatory COVID-19 shots | National Post](https://nationalpost.com/news/world/austria-will-enter-fourth-nationwide-lockdown-impose-mandatory-vaccinations)
+
+四十几年的所谓改革开放，中共国取得了“巨大”的成就，成为世界上第二大经济体。其中最为引人注目的当数地产经济。老百姓从祖孙三代同居一室，到现在祖孙三代共同还贷。真是厉害了我的国！
+
+然而，这种竭泽而渔的疯狂开发方式，导致华夏大地不再有蓝蓝的天，白白的云。河流干涸，土地贫瘠。雾霾笼罩着人们的双眼和心灵。恶魔中共真是欠下了累累血债。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-23.jpg)
+据路透社北京19日消息，中共官方数据表明今年10月份土地出让金比去年同期下降了13.14%。九月份下降了11.15%。不仅连续4个月走低，而且幅度在增大。中共的数据一贯是报喜不报忧，自己都承认下降了，恐怕真实情况更糟。
+
+文贵先生在他的大直播里多次提及中共地产的脆弱。以恒大地产为代表的这些靠过度借贷，关系批条，暴力强拆的地产商们随时都有可能猝死。只可惜不知道有多少勤劳善良的老百姓要成为殉葬品。
+
+参考来源：[中共国地产的冬天降临，10月份连续第四个月土地销售收入下滑](https://www.reuters.com/markets/us/chinas-jan-oct-government-land-sales-revenue-rises-61-yy-2021-11-19/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_term=The%20Reuters%20Daily%20Briefing&amp;utm_content=Nomura%20JP%2011-19-21%20Sponsorship&amp;utm_campaign=Nomura%20JP%2011-19-21%20Sponsorship)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+
+
 
  
 
