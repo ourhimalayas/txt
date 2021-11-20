@@ -2,32 +2,32 @@
 ---
 
 
-## 福奇和他领导的NIAID资助了在猴子身上进行残忍的痛苦实验
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1679547/)
+## 日本国防开支创纪录为应对中共威胁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1679579/)
 
-作者：纽约香草山翻译部 – defiance
+编辑：飞虹
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
-据白衣浪费项目团队获得的照片及文档资料，福奇和美国国家卫生研究院，在南卡罗来纳州沿海的摩根岛上饲养活猴，并动用美国纳税人的钱，在这些活猴身上做骇人听闻的最大痛苦动物实验，比如注射各种致命病毒。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11202-1.jpg)
-该项目公共政策与沟通经理德文-墨菲说，”我们最新调查发现，福奇动用税款做的另人作呕的实验，除了虐狗门之外，他还浪费数百万美元，在一座秘密岛屿上为他的实验室培育灵长类动物，并对它们施加惩罚性的痛苦，并如一个变态恶魔般，不给它们上止痛药。福奇习惯了大把花钱，而纳税人不想为他的沦丧埋单。”
+据媒体报道，日本计划在当地时间11月19日与经济刺激计划一同公布的追加预算中，列支创纪录的67.4亿美元用于国防开支。同时，前首相安倍晋三在参加澳洲智库研讨会时呼吁，应该将日本同澳洲的防卫合作关系提高到新的水平。因为日本政府越来越关注中共国在有争议的东海海域的军事行动。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11203.jpg)
+日本执政的自民党在选举之前，就在其政策纲领众列入了，拟将GDP的2%或者更多用于军事开支的计划。而在此前，日本一直承诺国防开支不超过GDP的1%。日本防卫省希望，有资金用于生产国产隐形战斗机，和远程导弹，同时日本还在努力打造网络战、太空战和电磁战的能力。
 
-每年，大约会有500只猴子，从摩根岛运往联邦政府执行最为残忍而痛苦的一些动物实验室。文档显示，截至2019年6月，3044只灵长类动物曾经生活在摩根岛上，雌性占77%。每年估计有750只猴子在岛上出生，其中的许多猴子长大后会被用于这些病态实验。
+安倍晋三表示，日本应与美国、英国和澳洲等AUKUS安全伙伴，在人工智能、网络能力和量子技术方面进行合作。而AUKUS协议，被广泛认为是对中共国在该地区军事力量提升的回应。
 
-【新闻链接】[https://www.redvoicemedia.com/2021/11/fauci-and-naid-funding-maximum-pain-experiments-on-monkeys-on-south-carolina-island/](https://www.redvoicemedia.com/2021/11/fauci-and-naid-funding-maximum-pain-experiments-on-monkeys-on-south-carolina-island/)
+新闻链接：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
+[https://cn.reuters.com/article/japan-military-budget-increase-1119-fri-idCNKBS2I402X](https://cn.reuters.com/article/japan-military-budget-increase-1119-fri-idCNKBS2I402X)
 
-总编：童谣
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-9.jpg)
 
-编辑：童谣
+总编：文徬
 
 校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
  
