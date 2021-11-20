@@ -2,33 +2,29 @@
 ---
 
 
-## 有声|恒大将被从恒生中国企业指数中剔除
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1679341/)
+## 奥地利重新实施全面封锁，并推出强制接种中共病毒疫苗的政策
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1679415/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-[路透社](https://www.reuters.com/markets/us/evergrande-be-removed-hang-seng-china-enterprises-index-2021-11-19/)11月19日报道，恒生中国企业指数（. HSCE）的基准供应商周五在定期季度审查后表示，陷入困境的开发商中共国恒大集团（3333. HK）将被从香港的恒生中国企业指数中删除。 该变动将于12月6日生效。
+撰稿：Grace
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-18.png)
+图片来源：tipsyredfox
 
-恒生中（共）国企业指数旨在反映在香港上市的中共国大陆公司的表现，并包括按市场价值衡量的前50只合格股票。
+据雅虎新闻11月19日报道，奥地利政府周五表示，为了应对新一轮的感染，奥地利将成为西欧第一个，在今秋重新实施中共病毒病毒封锁的国家，而且该政府还将要求其全体人口，从明年的2月份开始接种中共病毒疫苗。
 
-迄今为止，恒大股价已下跌逾80%。 有近期报道称，中共恒大深陷债务危机，其掌门人许家印不得不出售私人资产偿还债务。 恒大债务的全面暴雷势必会对世界经济产生灾难性影响。
+报道称， 奥地利大约有三分之二的人口完全接种了疫苗，是西欧国家中接种率最低的国家之一。大部分公众对疫苗持怀疑态度，这种观点受到议会第三大党–极右翼自由党的鼓励。该党正计划在周六举行抗议，反对中共病毒限制令。
 
+报道指出，奥地利在周一对那些没有完全接种疫苗的人实行了封锁，但从那时起，感染率继续创造新的记录。其感染率是欧洲大陆最高的之一，七天的发病率为每10万人991人。
 
+奥地利政府宣布，封锁将从周一开始，最长持续20天。人们只允许为满足基本需求而离开家，如杂货、药品或外出锻炼。学校将继续开放，但政府已敦促家长尽可能让他们的孩子留在家里。
 
-文字版原文：[恒大将被从恒生中国企业指数中剔除](https://gnews.org/zh-hans/1678446/)
+奥地利政府还宣布，从2月1日起，所有18岁以上的奥地利人都必须接种中共病毒疫苗。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+报道称， 随着欧洲各地寒冷天气的到来，各国政府被迫考虑重新实施不受欢迎的封锁措施，以防止中共病毒的持续传染。荷兰现在处于部分封锁状态，酒吧和餐馆在晚上8点关闭。
 
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+据报道，这个封锁问题加深了沙伦伯格的保守派与他们的联盟伙伴–左翼绿党之间的裂痕。沙伦伯格几天前还说，他不想对未接种疫苗的人施加额外的限制，虽然当时卫生部长，沃尔夫冈.穆克施泰因 (Wolfgang Mueckstein)呼吁实行夜间宵禁。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+**新闻来源：**** https://gettr.com/post/pgznqk78f7**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

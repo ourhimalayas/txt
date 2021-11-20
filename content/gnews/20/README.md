@@ -2,33 +2,35 @@
 ---
 
 
-## 有声|郭文贵：消灭中共是人类唯一的选择
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1679339/)
+## 特德.克鲁兹称拜登的加密货币经纪人定义必须被废除
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1679397/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月17日，郭文贵先生在大直播中再次向世界发出警告，中国共产党是世界有史以来最大的邪恶势力，全世界正义力量应该联合起来消灭共产党，否则全世界就会被它毁灭。
+撰稿：Grace
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-32.png)
+图片来源：thescotfree
 
-郭先生说，以中共为代表的世界邪恶势力，之所以如此丧心病狂，用冠状病毒和疫苗作为子母阴阳弹屠杀人类，原因无非有两点： 第一，控制全世界的钱。二战后，世界和平共处时期长达70年，积累了大量财富，后20年各国政府严重超发货币，搞了大量的金融票据，华尔街把超发的货币和极少数人非法获得的财富，以10-100倍比例杠杆化，再通过银行、金融机构、政府、各大药厂，以合法的名义窃为己有，这是邪恶势力和平的杀人武器。 第二，控制所有人的想法。中共以及和中共勾兑的华尔街资本集团，包括美国共产党，相互勾搭，利用金融手段控制世界各大媒体，引导全球舆论，掌握了绝对话语权，控制了人们的思想，为他们推行邪恶的全球杀人计划扫清了道路。
+据Rebelnews 11月18日报道，共和党参议员特德.克鲁兹(Ted Cruz)周一提出一项法案，旨在扭转拜登政府的《基础设施投资和就业法案》中的加密货币规定。
 
-郭先生强调，所有这些邪恶势力的中心就是中国共产党。世界已经到了崩溃的边缘，全世界团结起来消灭中共是人类唯一的选择。
+《基础设施投资和就业法案》于8月在参议院通过，并于11月5日获得美国国会批准。11月15日，拜登签署了该法案，使之成为法律。
 
+报道称，改法案将为了税收目的，通过强制报告数字资产，筹集高达 280 亿美元的资金。而且，该法案并不是第一次试图对新生的加密货币行业加强监管。
 
+据报道，参议院在8月就加密货币相关法规进行了辩论，共和党议员强调法案文本中的 “经纪人” 一词是模糊的，可能会影响任何持有加密货币的人。
 
-文字版原文：[郭文贵：消灭中共是人类唯一的选择](https://gnews.org/zh-hans/1676756/)
+于是，克鲁兹提出了一项修正案，该修正案将澄清法案中的语言, 并保护区块链行业。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+在该法案获得批准后，克鲁兹提出了立法，以废除“基础设施一揽子计划中, 过于宽泛且设计不当的条款，该条款对区块链行业的许多参与者, 提出了新的报告要求”。
 
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+据报道，《基础设施投资和就业法案》的一项条款将 “数字资产 “定义为 “任何记录在加密安全的分布式账本或任何类似技术上的数字价值代表”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+数字商会认为目前的规定 “过于宽泛和模糊”。 数字商会主席（Chamber of Digital Commerce） 帕里安.博林 (Parianne Boring)表示，”需要进一步澄清，以确保数字资产生态系统能够继续发展和繁荣”。
+
+克鲁兹说： “孤星州 (The Lone Star State)已经迅速成为加密货币行业的主要中心，而这个令人兴奋的行业, 现在正面临着被扼杀的危险，并被这个新签署的、鲁莽的支出方案中的一个过度条款驱赶到海外。作为一个审议机构，参议院应该做好自己的工作，举行听证会，在我们为参与的美国人的生计和隐私冒险之前，正确理解对这一新兴行业立法的后果。”
+
+他还补充说： “我敦促参议院的同事, 废除这种有害的语言，它将造成监管的不确定性，同时对创新造成不必要的障碍。”
+
+**新闻来源： **[**Ted Cruz says Biden’s cryptocurrency broker definition must be repealed**](https://www.rebelnews.com/ted_cruz_says_bidens_cryptocurrency_broker_definition_must_be_repealed)[**Ted Cruz Proposes Reversal To Infrastructure Bill’s Cryptocurrency Crackdown**](https://www.dailywire.com/news/ted-cruz-proposes-reversal-to-infrastructure-bills-cryptocurrency-crackdown?itm_source=parsely-api)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
