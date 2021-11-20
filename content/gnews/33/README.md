@@ -2,31 +2,27 @@
 ---
 
 
-## 恒大近期续命措施难解困境
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678257/)
+## 美情报官员将战略目标聚焦中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678269/)
 
 作者：日本方舟农场 – Andy5
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月17日，郭文贵先生在盖特中揭露，恒大集团印发通知称，11月30日前，剧团必须精简机构，同时，郑州恒大立即开始以最低薪资辞退员工。
+11月16日，美国现任和前任情报官员在举行会议时明确，美国未来的战略目标需要对准中共。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-7.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-12.jpeg)
 
-据报道，恒大集团将旗下的房产汽车平台——房车宝的多个区域公司解散。另外，法院也正式受理了中共国内住宅装饰公司——全筑股份对恒大多达三百三十三起的诉讼。
+前美国情报局首席副局长苏·戈登称，几十年来，美国情报界先是关注苏联，随后着重于中东恐怖主义，而现在的情报界已经进入了第三个情报纪元。对于美国而言，需要从反恐的沉迷中清醒过来，将目光转向中共。
 
-此前，郭先生多次在直播中提及，恒大爆雷虽然被延后，但无法被挽救，许家印一定会宣布破产。近期资料显示，许家印通过变卖个人70亿的资产、清仓股票，以及出售恒大汽车子公司等方式试图为恒大集团续命，但这些措施完全不足以支撑恒大集团正常运营，更不可能缓解即将到来的债务违约。
+与此同时，现任和前任情报官员们纷纷表示，没有任何一个国家像现在的中共这样，正在全方位地监视美国。对此，前CIA参谋长拉里·菲弗也提到，中共先是通过人海战术收集数据，接着用人工智能对这些数据进行分析，最后有针对性地瞄准着美国。
 
-参考链接：
-1）[11月17日：恒大，彻底完鸟……](https://www.gettr.com/post/ph8asp6d56)
-2）[焦点：中国恒大忙于还债 掌门人许家印不得不自掏腰包填窟窿](https://cn.reuters.com/article/evergrande-founder-hui-assets-sale-1117-idCNKBS2I205C)
-3）[深夜重磅！许家印变卖家产70亿，给恒大“续命”！卖豪宅卖私人飞机，网友：是条汉子…](https://finance.sina.com.cn/chanjing/gsnews/2021-11-17/doc-iktzscyy5977656.shtml)
-4）[消息：中国恒大旗下房车宝多个区域公司已解散](https://www.zaobao.com.sg/realtime/china/story20211117-1214381)
-5）[突发！这家A股公司状告恒大，涉333起诉讼，金额超2亿！](https://finance.sina.com.cn/stock/s/2021-11-17/doc-iktzqtyu7911208.shtml)
-6）[恒大暴雷时间](https://www.gettr.com/post/pgrob05b6a)
+评论称，此次美国情报官员齐聚的安全会议表明，美国情报界正在把焦点定位于中共。
+
+参考链接：[As U.S. spies look to the future, one target stands out: China](https://www.npr.org/2021/11/16/1051170999/as-u-s-spies-look-to-the-future-one-target-stands-out-china)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：Irene木木
-编辑：Kathy文艺
+总编：飞虹
+编辑：文特
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
