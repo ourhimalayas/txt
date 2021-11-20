@@ -2,42 +2,24 @@
 ---
 
 
-## 荷兰警方向上街抗议中共病毒封锁措施的民众开枪
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1681046/)
+## 新冠病毒烧伤大脑
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1681107/)
 
-**作者：日本东京方舟农场 海星**
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11204-arizona.edu_.png)图片来自arizona.edu
+SARS-CoV-2 的真正目标可能是大脑。如果在疾病的第一阶段新冠病毒的症状主要是呼吸和代谢，那么一旦急性期解决，“后遗症”首先是神经系统的。
 
-11月20 日，荷兰鹿特丹民众上街抗议政府强制实施中共病毒封锁措施。在此过程中，警方突然向民众开枪。
+最近发表在神经科学杂志上的布雷西亚大学和米兰贝斯塔神经学研究所的“COVID Next”研究数据证明了这一点。数据补充了大量研究，这些研究观察到新冠病毒治愈后神经系统综合症如何影响多达 70% 的具有中度严重症状的患者，从而导致记忆力、注意力、睡眠和情绪障碍。
 
-据《卫报》报导，在荷兰鹿特丹市中心举行的抗议中共病毒封锁措施的活动中，警方向抗议者开枪，导致7人受伤。
+多达 70% 的中度至重度疾病患者在 6 个月后报告神经系统症状，包括慢性疲劳（34%）、记忆力和注意力障碍（32%），睡眠障碍 (31%)、肌肉酸痛 (30%) 以及抑郁和焦虑 (27%)。然而，这些问题也经常表现在那些患有轻微疾病的人身上。
 
-鹿特丹市市长阿布塔勒（Ahmed Aboutaleb）声称这场抗议活动是“暴力狂欢”事件，并将上街抗议的民众描述为“暴乱者”。然而，根据盖特（gettr）网友Himalaya Japan Galaxy Courage Star发布的视频显示，当地民众在抗议过程中并未采取暴力行动，但突然之间，只听到一声枪响，远处一位男子当场倒地。
+“目前尚不清楚为什么 SARS-CoV-2 可以将大脑作为其‘目标’，尤其是从长远来看，它会经常出现神经和精神类型的并发症，甚至严重的并发症。发起人兼科学协调员埃米利奥·萨切蒂 (Emilio Sacchetti) 说：“ 由感染引起的神经炎症机制和个体先前因强烈和长时间的压力状况而严重恶化的状况似乎在起作用。甚至接触某些疗法，例如，可的松药物，它可以诱发真正的神经精神障碍”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-142.jpg)图片来源：卫报
+新冠病毒痊愈之后的神经和精神障碍也可能部分取决于大脑形态的改变，因为病毒会对受感染患者的大脑关键区域进行体积减少。同时缺乏社交互动也会导致灰质减少，尤其是年轻人和老年人。
 
-据悉，荷兰政府从13日起对餐厅、商店以及运动活动等，实施至少3周限制民众活动的措施。该政府还强制实施疫苗通行证，规定只有完成疫苗接种或检测病毒为阴性者方可进入室内公共场所。
+原文链接：[https://www.today.it/scienze/covid-coronavirus-brucia-cervello.html](https://www.today.it/scienze/covid-coronavirus-brucia-cervello.html)
 
-此前，荷兰海牙民众也曾上街抗议中共病毒封锁措施，反对针对未接种疫苗者所采取的限制措施。结果多人遭警方逮捕，警方甚至还一度针对抗议者部署了水炮。
-
-*新闻链接：*
-
-[Rotterdam police open fire as Covid protest turns into ‘orgy of violence’](https://www.theguardian.com/world/2021/nov/19/the-netherlands-rotterdam-police-open-fire-as-covid-protest-turns-violent)
-
-[The anti-government vaccine papers and two demonstrations in the city centre.（Rotterdam, Netherlands）](https://gettr.com/post/phg9zm50ed)
-
-
-
-> [在荷兰宣布新的Covid限制措施后，警察对抗议者使用水炮](https://gnews.org/zh-hans/1660177/)
-
-
-
-* * *
-
-*素材采编：海星*
-
-*编辑：青衣青青*
-
-*发布：Ranting*
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

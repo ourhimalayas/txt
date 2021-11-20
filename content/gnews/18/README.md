@@ -2,34 +2,43 @@
 ---
 
 
-## 欧盟组建联合部队应对中共
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1680745/)
+## 喜币如日中天，将成为未来的世界货币
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1680805/)
 
-作者：日本樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月15日，欧盟在防长会议上确认，为了在2025年前成立一支可达五千人的联合部队，欧盟已经设定了具体的执行蓝图和时间表。
+**By:秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide4-8.jpeg)
+***2021-11-20***
+[![](https://assets.gnews.org/wp-content/uploads/2021/11/1120-1.png)](https://gtv.org/broadcast/watch/6198ba8bcbfd016d63776dc0)点击图片观看视频
+**新闻摘要:**
 
-欧盟表示，这支联军旨为北约作补充，并且在减少欧盟对美国依赖的同时，重点为在印太地区应对中共提供更多可能性。欧盟代表强调，与北约互补意味着欧盟具备建立共同安全和国防政策的雄心，在必要时能够单独使用自己的能力。
+1. 中共公安部高层人事变动 党委书记换人
 
-根据欧盟“战略指南”计划，到2025年，欧盟应发展出一支由海、陆、空三军组成的，名为“欧盟快速部署能力”的部队，其中还将包括远程军用航空运输、空间通信技术和情报能力等部分。另一方面，作为西方战略应对中共军事崛起的一部分，欧盟计划于2023年前，将在印太地区开展更多的欧洲海军协调联动、海上军演和巡逻。
+2. 疫情持续蔓延 北京严管引抗议
 
-参考链接就：[欧盟2025年组联合部队 印太应对中国](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-11172021081602.html)
+3. 上海中小学做自杀问卷调查惹众议 教育局道歉
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+4. 孟宏伟妻子现身 诉中共是魔鬼
 
-总编：小鹿妞妞
-编辑：Lakeman(文仁) 
-校正/发稿：谐趣园
+5. 喜币如日中天，将成为未来的世界货币
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+6. 突发：拜登暂时将权力移交给卡玛拉·哈里斯
+
+7. 英议员联名要求英首相约翰逊外交抵制北京冬奥会
+
+8. 美国、英国和澳大利亚联合对抗中共军事威胁
+
+9. 比尔·盖茨和默克公司有何阴谋？
+
+10. 丹麦驻重庆总领事馆12月1日起正式撤馆
+
+**GTV链接：**[https://gtv.org/broadcast/watch/6198ba8bcbfd016d63776dc0](https://gtv.org/broadcast/watch/6198ba8bcbfd016d63776dc0)
+
+发布: 文橙
+
+* * *
+
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,55 +2,37 @@
 ---
 
 
-## 因医疗系统禁止对COVID-19患者使用伊维菌素和其他药物，诺福克医生提起诉讼
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1680920/)
+## 彭帅失踪引发世界网坛关注
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1680992/)
 
-据《pilotonline.com》作者JANE HARPER于2021年11月16日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-151.png)
-去年，EVMS的保罗-马里克博士因治疗败血症而成为头条新闻。2018年2月16日，他谈到了这一年的情况以及测试该疗法的临床试验。(Stephen M. Katz)
-一位诺福克的医生认为，由于医疗系统禁止对圣塔拉医院的COVID-19患者使用某些药物，正在发生不必要的死亡，他已提起诉讼，以寻求结束这一禁令。
+**作者：日本东京方舟农场 Kevin wang**
 
-保罗-马里克博士是一位重症监护专家，2017年他想出的一种非常规败血症治疗方法而获得国际关注，他上周在诺福克巡回法院提出了终止禁令的请求。
+中共国网球名将彭帅自本月初在微博上举报中共前常委张高丽性侵后，一直处于失踪状态。此事引起了世界网坛的关注。
 
-马里克认为，圣塔拉医疗集团阻止医生使用他和全国各地其他几位重症监护专家制定的治疗方案，危及COVID患者的生命。
+据《中央社》11月19日报到，国际女子网球协会（WTA）主席史蒂夫·西蒙（Steve Simon）发表声明，要求中共提供彭帅近况并对案件进行调查。西蒙在接受采访时说：“女性必须受到尊重，而非审查。我们绝对愿意撤回我们的业务，并处理随之而来的所有后果，因为这绝对比业绩更重要。”
 
-该治疗方案被称为MATH +方案。其中包括伊维菌素，这种药物通常用于治疗和预防家畜中的寄生虫，但也被食品和药物管理局批准用于治疗由寄生虫引起的疾病，以及局部治疗皮肤问题，如头虱和酒渣鼻。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-152.png)图片来源：https://twitter.com/serenawilliams/status/1461408866697105413
 
-诉讼要求立即取消药物禁令，听证会定于周四举行。
-诉讼中说：”圣塔拉-诺福克总医院的病人正在死亡，而他们不应该死亡，他们正在死亡，因为他们被无理和非法地拒绝接受他们的主治医生认为在医学上适合他们的潜在的救命治疗。”
+美国天后级网球女将小威廉姆丝（Serena Williams）、网球名将西蒙娜·哈莱普（Simona Halep），捷克网球名将彼得拉·克维托娃等多名国际网坛名将，均在推特上通过“彭帅在哪”（#whereispengshuai）这一热搜词关注彭帅安危。 小威廉姆丝（Serena Williams）19日在推特上写道：“我对于彭帅的新闻感到受伤又震惊。我希望她是安全的，且很快可以现身。此事必须被彻底调查，而我们绝不能保持沉默。” 目前这则贴文已获得17万的关注量。
 
-诉讼说，圣塔拉公司于10月6日通过电子邮件向其医院的医生发送了一份题为”COVID-19综合治疗指南第26版”的文件，禁止对COVID患者使用某些药物。除伊维菌素外，被禁止的药物还包括抗坏血酸（维生素C）IV、比卡鲁胺、度他雄胺、非那雄胺和氟伏沙明。
+*新闻链接：*
 
-美国食品和药物管理局、美国疾病控制和预防中心以及国家卫生研究所已经建议不要对COVID-19患者使用伊维菌素，因为他们说此药物还没有被证明是安全或有效的，并可能引起有害的副作用，甚至死亡。
+[若彭帥控張高麗性侵案未獲調查 WTA：願撤出中國市場](https://www.cna.com.tw/news/firstnews/202111195005.aspx)
 
-圣达拉发表声明说，它遵循CDC、NIH和FDA等机构推荐的”循证协议”。
-该声明继续说，圣塔拉通过”让多学科的临床医生小组审查文献、护理标准并提供专家意见”来制定治疗指南。在大多数情况下，医生们能够偏离指南，为病人提供个性化的护理。然而，在某些情况下，可能会对患者造成潜在伤害或被广泛认为超出护理标准的治疗方法可能会受到限制”。
 
-但马里克在诉讼中称，当他被允许实施他的方案时，诺福克医院重症监护室的COVID-19死亡率大约减少了一半。
 
-诉讼称，其他使用该方案的医生报告说，住院的COVID患者的死亡率为4%至7%，而美国医院对他们的平均全国死亡率约为20%。
+> I am devastated and shocked to hear about the news of my peer, Peng Shuai. I hope she is safe and found as soon as possible. This must be investigated and we must not stay silent. Sending love to her and her family during this incredibly difficult time. [#whereispengshuai](https://twitter.com/hashtag/whereispengshuai?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/GZG3zLTSC6](https://t.co/GZG3zLTSC6)
+> — Serena Williams (@serenawilliams) [November 18, 2021](https://twitter.com/serenawilliams/status/1461408866697105413?ref_src=twsrc%5Etfw)
 
-根据该组织的网站，马里克和来自全国各地的其他几位重症监护医生在大流行病开始时成立了非营利组织前线重症监护COVID联盟，以提出治疗方法。到2020年10月，伊维菌素已经成为他们方案中的一个核心药物。
 
-诉讼说，圣塔拉的用药禁令”违反了美国医疗法最基本的原则–知情同意”，以及弗吉尼亚州关于高级医疗指示的法律。
 
-诉讼说，知情同意要求病人被告知并被允许选择现有的替代疗法。诉讼说，当医疗服务提供者没有透露现有的替代治疗方法时，他们就侵犯了病人的知情同意权。
-诉讼说，弗吉尼亚州的高级指令法规赋予住院病人选择接受何种治疗的权利，只要他们的医生认为这种治疗是合适的。
+* * *
 
-该法规并没有说”由医院决定”。它特别明确地说，”由（他们的）主治医生决定”。
-在马里克提出索赔的同一天，《重症医学杂志》的编辑委员会撤回了他与人合著的一篇关于MATH+协议的文章。
+*素材采编：Kevin wang*
 
-根据圣塔拉医疗集团给飞行员的声明，圣塔拉医疗集团对作者用于得出结论的圣塔拉-诺福克综合医院数据的准确性提出了质疑，然后向该出版物提供了”准确的数据”，这才撤回了文章。
+*编辑：青衣青青*
 
-原文连接：[https://www.pilotonline.com/news/health/vp-nw-doctor-sues-hospital-20211116-aauskwb2w5fcppqrrxjwbtmwvy-story.html](https://www.pilotonline.com/news/health/vp-nw-doctor-sues-hospital-20211116-aauskwb2w5fcppqrrxjwbtmwvy-story.html)
-
-翻译：洛杉矶盘古农场 – TrueSky
-校对&编辑：洛杉矶盘古农场 – 小象の奶瓶
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*发布：Ranting*
 
  
 

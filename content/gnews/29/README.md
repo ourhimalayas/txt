@@ -2,24 +2,29 @@
 ---
 
 
-## 有声|美情报官员将战略目标聚焦中共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1680523/)
+## 麦克库罗医生提告医疗期刊公司
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1680554/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-11月16日，美国现任和前任情报官员在举行会议时明确，美国未来的战略目标需要对准中共。
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月19日，相关媒体报道称，美国心脏科医生麦克库罗控告爱思薇尔期刊出版社掩盖新冠疫苗真相。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-20-下午10.45.47.png)圖片來源：2017年，石正麗在武漢病毒研究所。CHINATOPIX，VIA ASSOCIATED PRESS
+据悉，爱思薇尔期刊出版社于今年10月撤稿一篇题为“新冠疫苗造成心肌炎”的论文，该论文的作者即为麦克库罗医生。医生表示，爱思薇尔期刊原本已经刊登此篇论文，后因FDA正在讨论紧急授权5至11岁儿童使用新冠疫苗的问题，该期刊撤稿了此篇论文。医生认为，这种行为违反合约。因此，医生将对该期刊公司进行全面性的法律诉讼。
 
-前美国情报局首席副局长苏·戈登称，几十年来，美国情报界先是关注苏联，随后着重于中东恐怖主义，而现在的情报界已经进入了第三个情报纪元。对于美国而言，需要从反恐的沉迷中清醒过来，将目光转向中共。
+另据麦克库罗医生称，爱思薇尔要对公众及科学界隐瞒这一重要研究的原因在于，真正的科学已经驳斥了这些实验性新冠疫苗所自称的 “安全性”和 “有效性”。医生指出，因注射新冠疫苗导致的心肌炎通常在注射第二剂辉瑞或莫德那疫苗后的数天内爆炸性发生。
 
-与此同时，现任和前任情报官员们纷纷表示，没有任何一个国家像现在的中共这样，正在全方位地监视美国。对此，前CIA参谋长拉里·菲弗也提到，中共先是通过人海战术收集数据，接着用人工智能对这些数据进行分析，最后有针对性地瞄准着美国。
+麦克库罗医生强调，爱思薇尔期刊公司拥有全系列的医学期刊，掌控了绝大部分医学论文的发言权。因此，该公司对医学论文的不当审查行为，涉嫌掩盖有关新冠疫苗信息的真相。而这种审查方式是对科学的戕害。
 
-评论称，此次美国情报官员齐聚的安全会议表明，美国情报界正在把焦点定位于中共。
+参考链接：
+1）[Dr. McCullough sues Elsevier journal for refusing to publish study highlighting risks of covid “vaccination” in children](https://www.newstarget.com/2021-11-18-mccullough-sues-elsevier-study-covid-vaccines-children.html)
+2）[COVID-19 vaccine-myocarditis paper to be permanently removed: Elsevier](https://retractionwatch.com/2021/10/25/covid-19-vaccine-myocarditis-paper-to-be-permanently-removed-elsevier/)
 
-文字版原文：[美情报官员将战略目标聚焦中共](https://gnews.org/zh-hans/1678269/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
+
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
