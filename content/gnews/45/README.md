@@ -2,40 +2,32 @@
 ---
 
 
-## 阿里巴巴二季度盈利同比下滑39%，在美股价逆市大跌10%
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678194/)
+## 2021/11/18 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1678695/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-323.png)
-18日，阿里巴巴发布第二季度财报之后，在美股盘逆势大跌8%，开盘后跌幅扩大至10%，港股收盘时也大跌11%。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/10-8.jpg)
-
-据财报内容公布，本季度阿里巴巴营收2006.9亿元人民币，同比增长29%。而2022年财年总收入预计只增长20-23%，创2014年上市以来的新低。值得注意的是，阿里巴巴今年第二季度净利润同比下滑了39%。
-
-阿里巴巴利润下降的原因，一方面，墙内消费水平下降；另一方面，自今年4月以来，中共以反垄断、共同富裕等名义，给阿里巴巴开出天价罚单，阿里巴巴不得以用所谓“自愿”捐助，“助力共同富裕”等措施断臂求生。
-
-18日，中共反垄断局正式挂牌成立，与阿里巴巴类似的墙内巨头，即将面临同样困境。
-
-参考链接：
-
-- [阿里巴巴预计财年总收入同比增20-23%创上市来新低 美股盘初跌逾10%](https://cn.reuters.com/article/alibaba-revenue-1118-thur-idCNKBS2I401N)
-- [182.28 亿元！阿里巴巴这张天价罚单在全球反垄断榜上能排](http://finance.sina.com.cn/tech/csj/2021-04-12/doc-ikmyaawa9204389.shtml)
-- [阿里1000亿元助力共同富裕，十项具体行动回应社会关切](https://www.sohu.com/a/487472792_114930)
+1. 河南郑州，42岁餐饮店老板因修路、疫情、洪水长期连续的灾难导致生意失败，将仅剩的890块转给女儿后，烧炭自杀。
+2. 中国女子在美国接种辉瑞疫苗五天后面部瘫痪。
+3. 11月5日，陕西西安，36岁比亚迪员工猝死在出租屋，生前一个月连续夜班，每班12小时。
+4. 11月15日，广西南宁，医生赶到急救室救人，病人家属在门口偷偷抹眼泪。
+5. 11月17日，四川成都。23岁小伙白血病复发，不忍心拖累单亲母亲…儿子：“我走后就埋在外公那边，这样就能经常看到你们了！”
+6. 畅行在中共国食品市场的注水猪肉被注水的瞬间。
+7. 11月17日，辽宁阜新一村庄常年泡在水中，孩子趟冰水上学房屋被泡裂，政府回应：明年开春解决。
+8. 辽宁大连被隔离的一岁宝宝。
+9. 山东日照，一岁宝宝被穿上隔离服送去隔离。
+10. 烤红薯老人紧抓电三轮，无奈的看着自己的烤炉被城管没收。
+11. 女子16万理财存银行被银行工作人员诱骗变成保险，要100年后才能取出。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
+* * *
 
-总编：Kathy文艺
-编辑：Kathy文艺
-校正/发稿：海阔天空1
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

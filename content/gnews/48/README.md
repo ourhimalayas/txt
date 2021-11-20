@@ -2,26 +2,26 @@
 ---
 
 
-## 澳洲总理敦促各州回归正常生活
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678178/)
+## 英国新冠确诊病例数又创新高
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678187/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-323.png)
-11月18日，澳大利亚总理斯科特·莫里森接受媒体采访时，敦促澳大利亚各州和地区领导人后退一步，让澳大利亚人回归正常生活。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-21.jpg)
-莫里森指出，澳洲是个拥有安全渡过大疫情的强大经济体，在过去一年多以来，地方政府一直在指导澳大利亚人该怎么做，但现在是时候让政府退后，把自由还给民众，回归正常的生活。这是联邦工作计划中的重要任务之一。
+据英国政府官方网站18日报道，在过去的24小时内，英国记录了46,807例新冠病毒病例——这是自10月22日有49,298人新冠病毒检测呈阳性以来最高的单日确诊病例数。
 
-对于目前一些州激进的强制疫苗政策，莫里森说，“我们不赞成由政府强加的强制性疫苗。企业可以根据法律做出自己的选择，但我们不是要告诉他们做什么，或告诉澳大利亚人做什么。无论是否接种疫苗，人们应该可以在布里斯班喝杯咖啡。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-6.png)
+
+截至目前，英国88.1%的人口接种了第一剂新冠病毒疫苗，80.1%的人口接种了第二剂。英国副首席医疗官15日表示，英国总共又有1387万人接种了新冠病毒加强针。18日数据还显示，在检测呈阳性后的28天内，已有199人死亡。
 
 参考链接：
 
-- [Morrison calls on states to allow Australians “to have their lives back”](https://www.9news.com.au/national/covid-19-morrison-calls-on-states-to-allow-australians-their-freedoms/320c9fd8-824d-4978-ada0-e14bc04250e3)
+- [COVID-19: UK reports highest number of daily coronavirus infections in a month as 199 deaths recorded](https://news.sky.com/story/covid-19-uk-reports-highest-number-of-daily-coronavirus-infections-in-a-month-as-199-deaths-recorded-12471882?utm_source=ground.news&amp;utm_medium=referral)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
 
-总编：Irene木木
-编辑：Ivy001
+总编：文徬
+编辑：童谣
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

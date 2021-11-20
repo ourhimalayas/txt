@@ -2,26 +2,29 @@
 ---
 
 
-## 美台军事合作 台湾空军拥有全球最多F-16V先进战机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678173/)
+## 佛州州长签署多项法案，限制私营企业对员工强制接种疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1678183/)
 
-作者：东京樱花团 – 在远方
+作者：纽约香草山 – AlexZ
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-323.png)
-当地时间11月18日，台湾空军在嘉义空军基地举行美国F-16V战机接装典礼。总统蔡英文主持了典礼，称这次美台的国防工业合作，代表了美台伙伴关系的坚定承诺。她表示，只要坚守民主自由的价值，就会有更多理念相近的国家，跟台湾站在一起。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-35.jpg)
-据报道，待采购订单全部交付后，台空军将拥有207架，成为全球拥有此款先进战机数量最多的一支空军。F-16V战机担负了战备任务，为了对抗中共军事威胁，该机进行了改进和升级，性能不断提升。加上隐身、新式雷达和配备的新型武器，使战力提升了一代，进入了四代半战机的行列。
+佛罗里达州州长罗恩·德桑蒂斯最近签署了多项法案，限制该州雇主强制员工接种疫苗。11月18日，德桑蒂斯在佛州布兰登发表讲话时表示，这是他们采取的最强硬的“支持自由”的反对行动。
 
-就在典礼举行的同时，中共军机进入台西南防空识别区进行挑衅，被台湾空军“在空警戒并广播驱离”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-11.jpg)
+
+周三，在佛州立法机构的特别会议上，通过了四项法案。法案规定，私人雇主在不提供医疗或宗教豁免，以及每周检测选项的情况下，强制实施疫苗接种是非法的。
+
+与此同时，佛州也参与了对拜登政府就其 OSHA 疫苗授权进行的诉讼。19日，桑德蒂斯发推称：“佛州正在保护雇员和家庭的权利，佛州自由之州，将阻止那些想通过强硬命令夺走我们工作和自由的官僚们。”
 
 参考链接：
 
-- [中国军事压力催生一支全球拥有F-16V战机最多的空军](https://www.voachinese.com/a/Taiwan-deploys-first-advanced-f-16v-fighter-squadron-20211118/6318249.html)
+- [Gov. DeSantis Signs Multiple Bills Limiting Private Businesses From Imposing Vaccine Mandates On Employees](https://www.oann.com/gov-desantis-signs-multiple-bills-limiting-private-businesses-from-imposing-vaccine-mandates-on-employees/)
+- [Florida is protecting the rights of employees and families](https://twitter.com/GovRonDeSantis/status/1461415361635622916?s=20)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
 
-总编：AN
-编辑：DN
+总编：文徬
+编辑：DM
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

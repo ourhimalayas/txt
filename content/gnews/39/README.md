@@ -2,29 +2,31 @@
 ---
 
 
-## NVIDIA 推出全球最小 AI 超级计算机，实现更强大边缘运算
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1679053/)
+## 美国就菲律宾船遭中共国攻击发出警告，北京无视
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1679154/)
 
-撰稿：天蝎独角兽
-![](https://assets.gnews.org/wp-content/uploads/2021/11/201.png)（图片来源：NVIDIA）
-为实现更强大的边缘运算，满足机器人、自主机器及医疗器材等应用，NVIDIA 宣布推出全球体积最小、效能更佳且更节能的 AI 超级计算机「NVIDIA Jetson AGX Orin」。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-16.jpg)美国就菲律宾船遭中共国攻击发出警告，北京无视 网络图片
+据美国之音11月20日报道，中共国海警船16日在斯普拉特利群岛（中共国称南沙群岛）的“第二托马斯浅滩”（中共国称仁爱礁）向菲律宾补给船发射水炮，阻止其为那里的游客运送补给物资。菲律宾对中共国的武力行动表示愤怒、谴责和抗议。美国国务院19日向中共国发出严正警告，称中共国的武装攻击将会招致美国的回应。
 
-NVIDIA 嵌入式和边缘运算部门副总裁暨总经理 Deepu Talla 表示，随着机器人技术和嵌入式运算改变了制造、医疗、零售、运输、智慧城市和其他重要的经济领域，运算需求亦持续遽增。NVIDIA 推出 Jetson AGX Orin，让 85 万名 Jetson 开发人员与超过 6,000 家企业能藉此创造、部署过去看似不可能做到的自主机器和 AI 应用程序。
+南中国海是全球最重要的商业通道，有丰富的渔业资源和巨大的石油和天然气储量，每年有数万亿美元的货物从此通过。中共国声称拥有南中国海域全部主权，周边其他国家都声称拥有部分主权。2016年，海牙仲裁法院否定了中共国对南中国海主权要求的法律依据。中共国对这一裁决不予理睬。
 
-Jetson AGX Orin 采用 NVIDIA Ampere 架构，使效能为前一代产品（Jetson AGX Xavier）六倍，每秒可进行 200 兆次运算，相当于搭载 GPU 服务器的运算能力，但尺寸只有手掌大小。
+中共一向无视国际法律或仲裁，因为中共的蓝金黄几乎腐蚀了全世界，中共自认为能够拿下周边国家，而西方的软弱和妥协助长了中共的狂妄和扩张。中共画个圈就把南中国海圈进了中共国的版图，美国的警告根本阻止不了中共的野心。必须以其人之道还治其人之身，用同样的武装行动消灭共产党，从此航运通畅，天下太平。
 
-同时，Jetson AGX Orin 可加速整个 NVIDIA AI 软件堆栈的运行速度。用户可透过 NVIDIA CUDA-X 加速运算堆栈、NVIDIA JetPack 软件开发工具包和最新的 NVIDIA 工具来开发及优化应用程序，包括云端原生开发工作流程。NVIDIA NGC 项目预先完成训练的模型优化调整，透过 NVIDIA TAO Tookit 和客户数据库微调。
+新闻参考链接：[https://www.voachinese.com/a/US-warns-Beijing-it-will-defend-philippines-in-event-of-attack-20211119/6320129.html](https://www.voachinese.com/a/US-warns-Beijing-it-will-defend-philippines-in-event-of-attack-20211119/6320129.html)
 
-如此降低 AI 部署生产质量的时间和成本，而云端原生技术则在产品生命周期间皆能不断更新；换言之，开发人员将能部署更庞大、更复杂的模型，以解决边缘 AI 和机器人在自然语言理解、3D 感测及多传感器融合等方面的挑战。
+* * *
 
-参考链接：[https://technews.tw/2021/11/10/jetson-agx-orin/](https://technews.tw/2021/11/10/jetson-agx-orin/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-*发稿：mgjxs*
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+编辑：【英国伦敦喜庄园编辑部】
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/016.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
