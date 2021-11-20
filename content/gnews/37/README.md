@@ -2,33 +2,34 @@
 ---
 
 
-## 加拿大佩塔瓦瓦军事基地多名军人感染新冠阳性，数百名军人被隔离。
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1679603/)
+## 日本国防开支创纪录为应对中共威胁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1679579/)
 
-2021年11月20日
+编辑：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
+据媒体报道，日本计划在当地时间11月19日与经济刺激计划一同公布的追加预算中，列支创纪录的67.4亿美元用于国防开支。同时，前首相安倍晋三在参加澳洲智库研讨会时呼吁，应该将日本同澳洲的防卫合作关系提高到新的水平。因为日本政府越来越关注中共国在有争议的东海海域的军事行动。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11203.jpg)
+日本执政的自民党在选举之前，就在其政策纲领众列入了，拟将GDP的2%或者更多用于军事开支的计划。而在此前，日本一直承诺国防开支不超过GDP的1%。日本防卫省希望，有资金用于生产国产隐形战斗机，和远程导弹，同时日本还在努力打造网络战、太空战和电磁战的能力。
 
-翻译报道：Torsteintt
-![](https://assets.gnews.org/wp-content/uploads/2021/11/0429-pm-2-garrison-v-pm-e1637397515850.jpg)图片来源：Sun Media
-根据加拿大CTV新闻
+安倍晋三表示，日本应与美国、英国和澳洲等AUKUS安全伙伴，在人工智能、网络能力和量子技术方面进行合作。而AUKUS协议，被广泛认为是对中共国在该地区军事力量提升的回应。
 
-在佩塔瓦瓦市为期十一月十三至十四日的的演练导致了至少七例军人和和三例军人家属感染新冠阳性。 “当发现检测新冠阳性案例时，病人被隔离，我们接着对接触者们做了追踪联系。” 加拿大机动二号旅的艾瑞克 兰德上校说，“所有的与病人有密切接触者都已被要求隔离。”
+新闻链接：
 
-此次演练有三百七十三名军人在户外密切的一起工作，另外有一百名军人在后方较远处工作。 兰德上校说所有参加了此次演练的人员都已经接种了两次疫苗。
+[https://cn.reuters.com/article/japan-military-budget-increase-1119-fri-idCNKBS2I402X](https://cn.reuters.com/article/japan-military-budget-increase-1119-fri-idCNKBS2I402X)
 
-“（他们）在排等级，连等级运作。” 兰德上校向渥太华CTV新闻解释，“因为演练人数庞大，他们需要在此等级运作以便满足北约的规定。军人们单独工作不可能能满足这些规定；他们必须团队工作。这是为何我们执行这些保护军队健康的措施。” 伦弗县和地方医疗机构也在跟踪社区内的十名高危新冠接触者，并对三名带有症状的军人进行观察。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-9.jpg)
 
-代理卫生医疗官罗伯特 库什曼医生预计会出现更多新冠案例并且担心疫情会蔓延到更多的社区。 “把军人家属包括在内的话，” 库什曼医生说，“那随随便便就是接近一千人。”
+总编：文徬
 
-每位参与过此次演练的人员如有症状都需自我隔离，如果他们表现出无症状则需被隔离观察直到十一月二十二日。届时，所有三百七十三名人员将再次接受新冠检测以对情况重新评估。 “旅里每位不愿回到自己住所的人员都被安排到了基地宿舍。” 兰德上校说。
+校正/发稿：浪迹天涯
 
-库什曼医生说因疫情爆发演练不得不在周末中途停止，这是减缓疫情蔓延的关键。他对于此次演练不报意见，因为所有人都已经接种两剂新冠疫苗而且是户外。 “军队已经损失了一些时间所以他们显然需要回去工作、训练和准备。” 库什曼医生说。“我们讨论的是某领域的三百七十人，而不是在谈论一场一万八千人观看的冰球比赛。”
-
-目前在驻军佩塔瓦瓦的加拿大机动二号旅中已有百分之九十二的人员已经完全接种新冠疫苗。兰德上校说，剩下的百分之八人员是否能够继续保留就业岗位正在被审核等待决定。 “希望我们能在下周过半的时候能摆脱这种状况，”这位卫生官员补充道。”希望我们能控制住疫情蔓延。”
-
-原文链接：[H](https://ottawa.ctvnews.ca/hundreds-of-soldiers-in-quarantine-at-cfb-petawawa-following-covid-19-exposure-1.5672254?fbclid=IwAR0Mp4b-OLz_Xo0Jqrm8Da8_vaF0Bmg9cZXUgKyCElvaVH4YX5z7BxskV8I)[undreds of soldiers in quarantine at CFB Petawawa following COVID-19 exposure](https://ottawa.ctvnews.ca/hundreds-of-soldiers-in-quarantine-at-cfb-petawawa-following-covid-19-exposure-1.5672254?fbclid=IwAR0Mp4b-OLz_Xo0Jqrm8Da8_vaF0Bmg9cZXUgKyCElvaVH4YX5z7BxskV8I)
-
-校对发布：MQ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
