@@ -15,106 +15,106 @@
 
 ---
 
-### [以藐视国会的罪名起诉班农是司法部在严重滥用职权](/content/gnews/1/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共持续出台政策打压虚拟货币意图何在](/content/gnews/2/README.md)
+### [美媒长篇报道：中共闭关并不仅在于关闭其边境（1）](/content/gnews/1/README.md)
  ` 澳喜农场`
 
-### [艾普斯汀：班农在为捍卫自由，反击极权和独裁而战](/content/gnews/3/README.md)
+### [一位年轻女孩打完辉瑞疫苗后发生面瘫](/content/gnews/2/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [揭秘：在欧洲顶尖大学任职的中共国教授和中共军方合作猴脑研究](/content/gnews/4/README.md)
+### [Meta将“把我们困在虚拟现实中”扎克伯格是“世界最大房东”](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [小蚂蚁的财富心得](/content/gnews/4/README.md)
+ ` 澳喜农场`
+
+### [众议员揭露斯沃韦尔的中共间谍丑闻和民主党腐败行为](/content/gnews/5/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [乌克兰、美国向盟友发出警告：普京有可能发动闪电战](/content/gnews/6/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [以藐视国会的罪名起诉班农是司法部在严重滥用职权](/content/gnews/7/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共持续出台政策打压虚拟货币意图何在](/content/gnews/8/README.md)
+ ` 澳喜农场`
+
+### [艾普斯汀：班农在为捍卫自由，反击极权和独裁而战](/content/gnews/9/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [加拿大佩塔瓦瓦军事基地多名军人感染新冠阳性，数百名军人被隔离。](/content/gnews/10/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [揭秘：在欧洲顶尖大学任职的中共国教授和中共军方合作猴脑研究](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [最新：针对阿尔伯塔省政府的疫苗护照发起的法律行动](/content/gnews/5/README.md)
+### [最新：针对阿尔伯塔省政府的疫苗护照发起的法律行动](/content/gnews/12/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [苹果概念车将强烈冲击特斯拉电车市场](/content/gnews/6/README.md)
+### [苹果概念车将强烈冲击特斯拉电车市场](/content/gnews/13/README.md)
  ` 走进澳洲`
 
-### [每日快报：美国警告会在南海争端中对中共国作出军事反应](/content/gnews/7/README.md)
+### [每日快报：美国警告会在南海争端中对中共国作出军事反应](/content/gnews/14/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [人民币国际化和蓝金黄世界所有的雷明年5月份前一定爆](/content/gnews/8/README.md)
+### [人民币国际化和蓝金黄世界所有的雷明年5月份前一定爆](/content/gnews/15/README.md)
  ` NewFOC`
 
-### [文贵爆料11.19.2021 未来属于数字货币 喜币一统货币江湖](/content/gnews/9/README.md)
+### [文贵爆料11.19.2021 未来属于数字货币 喜币一统货币江湖](/content/gnews/16/README.md)
  ` 秘密翻译组-原创组`
 
-### [王岐山派币安赵长鹏攻击喜币，赵长鹏一定会步王健后尘](/content/gnews/10/README.md)
+### [王岐山派币安赵长鹏攻击喜币，赵长鹏一定会步王健后尘](/content/gnews/17/README.md)
  ` NewFOC`
 
-### [澳大利亚总理斯科特·莫里森要求各州取消强制注射新冠疫苗的规定，并表示必须允许未接种疫苗的澳大利亚人进入酒吧和餐馆](/content/gnews/11/README.md)
+### [澳大利亚总理斯科特·莫里森要求各州取消强制注射新冠疫苗的规定，并表示必须允许未接种疫苗的澳大利亚人进入酒吧和餐馆](/content/gnews/18/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [仅有中共承认的塔利班带给世界的，除了恐怖主义还有毒品！](/content/gnews/12/README.md)
+### [仅有中共承认的塔利班带给世界的，除了恐怖主义还有毒品！](/content/gnews/19/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [币圈新闻动态：喜币（HCN）价格19日达到39.999](/content/gnews/13/README.md)
+### [币圈新闻动态：喜币（HCN）价格19日达到39.999](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [文贵爆料11.20.2021 全世界货币超发将国家法币变成废币](/content/gnews/14/README.md)
+### [文贵爆料11.20.2021 全世界货币超发将国家法币变成废币](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [文贵先生20年前已投资AMD芯片 用远见把握着世界的命脉](/content/gnews/15/README.md)
+### [文贵先生20年前已投资AMD芯片 用远见把握着世界的命脉](/content/gnews/22/README.md)
  ` GTV新闻访谈`
 
-### [喜马拉雅-不生不灭的宝藏](/content/gnews/16/README.md)
+### [喜马拉雅-不生不灭的宝藏](/content/gnews/23/README.md)
  ` G-NEWS TAIWAN`
 
-### [日本希望加入奥库斯（AUKUS）的行列](/content/gnews/17/README.md)
+### [日本希望加入奥库斯（AUKUS）的行列](/content/gnews/24/README.md)
  ` 走进澳洲`
 
-### [恒大还想骗钱，拟配股筹资约27亿](/content/gnews/18/README.md)
+### [恒大还想骗钱，拟配股筹资约27亿](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [陪审团最终判决所有媒体都有罪](/content/gnews/19/README.md)
+### [陪审团最终判决所有媒体都有罪](/content/gnews/26/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [惹不起躲的起，丹麦驻重庆领事馆撤馆](/content/gnews/20/README.md)
+### [惹不起躲的起，丹麦驻重庆领事馆撤馆](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [统一江湖是爆料革命和新中国联邦开启数字货币的新时代](/content/gnews/21/README.md)
+### [统一江湖是爆料革命和新中国联邦开启数字货币的新时代](/content/gnews/28/README.md)
  ` NewFOC`
 
-### [在中共癌症的天网里，每个人都卑微如尘埃](/content/gnews/22/README.md)
+### [在中共癌症的天网里，每个人都卑微如尘埃](/content/gnews/29/README.md)
  ` 澳喜农场`
 
-### [奥地利重新实施全面封锁，并推出强制接种中共病毒疫苗的政策](/content/gnews/23/README.md)
+### [奥地利重新实施全面封锁，并推出强制接种中共病毒疫苗的政策](/content/gnews/30/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [特德.克鲁兹称拜登的加密货币经纪人定义必须被废除](/content/gnews/24/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [滞胀&amp;通胀促成引发美政局更迭的油价、面包和气电上涨](/content/gnews/25/README.md)
- ` NewFOC`
-
-### [中共说“不知道”网球名将彭帅的事](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [奥地利从2月1日起实行强制疫苗](/content/gnews/27/README.md)
+### [奥地利从2月1日起实行强制疫苗](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
 
-### [病理学家发现，疫苗抑制免疫力，易感染HIV、疱疹](/content/gnews/28/README.md)
+### [病理学家发现，疫苗抑制免疫力，易感染HIV、疱疹](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|恒大将被从恒生中国企业指数中剔除](/content/gnews/29/README.md)
+### [有声|恒大将被从恒生中国企业指数中剔除](/content/gnews/33/README.md)
  ` MOSREC`
 
-### [有声|郭文贵：消灭中共是人类唯一的选择](/content/gnews/30/README.md)
- ` MOSREC`
-
-### [有声|盖特备受基金投资者的青睐](/content/gnews/31/README.md)
- ` MOSREC`
-
-### [有声|参议院共和党人挑战拜登政府疫苗强制令](/content/gnews/32/README.md)
- ` MOSREC`
-
-### [有声|阿里巴巴，中共假擀面杖经济的代表，股价骤跌近10%](/content/gnews/33/README.md)
- ` MOSREC`
-
-### [有声|美科学家获得资助尝试将新冠毒疫苗注入蔬菜让人食用技术](/content/gnews/34/README.md)
+### [有声|郭文贵：消灭中共是人类唯一的选择](/content/gnews/34/README.md)
  ` MOSREC`
 
 ### [紫光集团欠债1426亿！也要爆雷？](/content/gnews/35/README.md)

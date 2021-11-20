@@ -2,48 +2,33 @@
 ---
 
 
-## 王岐山派币安赵长鹏攻击喜币，赵长鹏一定会步王健后尘
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1679528/)
+## 加拿大佩塔瓦瓦军事基地多名军人感染新冠阳性，数百名军人被隔离。
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1679603/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/v2-3e4c650f5ac51196b667ce9d3cbed1b5_720w_副本.jpg)
-据[2021年11月19日文贵大直播：国际市场资金短缺；数字货币、法币及经济膨胀所带来的危害；疫苗灾难最新数据及病毒解药的进展](https://gtv.org/video/id=6197a194fcd196126f8cab91)时间点58：23——
+2021年11月20日
 
-**郭文贵先生：**更重要的是王岐山看到了我们一样的问题，他找出那个小烂仔赵长鹏，记住，币安的赵长鹏从大陆出去到日本注册，到台湾待着，现在窜访新加坡。
+翻译报道：Torsteintt
+![](https://assets.gnews.org/wp-content/uploads/2021/11/0429-pm-2-garrison-v-pm-e1637397515850.jpg)图片来源：Sun Media
+根据加拿大CTV新闻
 
-你记住七哥今天说的话，明天是1120，赵长鹏你听着，你最终的结局一定是和王健一样的，你和共产党王岐山勾兑了，你帮他洗钱了，你帮他说话了，不是我们怎么着你，你结局个小屁孩儿，是不是啊？你的毛还没褪干净了，你敢挑战我们邦是吧，你肯定完蛋。
+在佩塔瓦瓦市为期十一月十三至十四日的的演练导致了至少七例军人和和三例军人家属感染新冠阳性。 “当发现检测新冠阳性案例时，病人被隔离，我们接着对接触者们做了追踪联系。” 加拿大机动二号旅的艾瑞克 兰德上校说，“所有的与病人有密切接触者都已被要求隔离。”
 
-而且到处窜说在新加坡，到处挨个敲门，说我们喜币是Scam（骗局），他就是一个交易所，他啥都不是个小屁孩儿，你知道吗？咱们是币，咱别忘了咱是有币，有稳定币有真的币。他是个交易所，是啥？他是一个夜总会的妈咪，是不是？咱搞了一个夜总会，他是夜总会的妈咪要否定夜总会，他想单独拉几个小姐出去拉摊子去。
+此次演练有三百七十三名军人在户外密切的一起工作，另外有一百名军人在后方较远处工作。 兰德上校说所有参加了此次演练的人员都已经接种了两次疫苗。
 
-咱不但是夜总会，咱还是警察，咱不但是警察，咱还是决定谁当警察的那个邦，他跟咱怎么能相比呢？他连咱屁股上的那根肛毛都不是，是不是啊？
+“（他们）在排等级，连等级运作。” 兰德上校向渥太华CTV新闻解释，“因为演练人数庞大，他们需要在此等级运作以便满足北约的规定。军人们单独工作不可能能满足这些规定；他们必须团队工作。这是为何我们执行这些保护军队健康的措施。” 伦弗县和地方医疗机构也在跟踪社区内的十名高危新冠接触者，并对三名带有症状的军人进行观察。
 
-但是你看王岐山能派出他去攻咱去，你可见共产党之卑鄙，东弟、颖妹妹，就像我们看的彭帅事件，你说能叫一个国家在全人类面前撒这样的谎、造这样的文件，连鼠标都不知道移开，你代表彭帅了，彭帅还找不着。
+代理卫生医疗官罗伯特 库什曼医生预计会出现更多新冠案例并且担心疫情会蔓延到更多的社区。 “把军人家属包括在内的话，” 库什曼医生说，“那随随便便就是接近一千人。”
 
-全世界哗了，各国的，那法国的一个记者跟我说，郭先生我真的知道你说的共产党有多Low了，在北京呆了十几年的，你去好好看看那个法联社的那个记者，写了好多文章，接着说共产党的Low，他已经是真的觉得共产党太Low了。
+每位参与过此次演练的人员如有症状都需自我隔离，如果他们表现出无症状则需被隔离观察直到十一月二十二日。届时，所有三百七十三名人员将再次接受新冠检测以对情况重新评估。 “旅里每位不愿回到自己住所的人员都被安排到了基地宿舍。” 兰德上校说。
 
-（以下暂略）
+库什曼医生说因疫情爆发演练不得不在周末中途停止，这是减缓疫情蔓延的关键。他对于此次演练不报意见，因为所有人都已经接种两剂新冠疫苗而且是户外。 “军队已经损失了一些时间所以他们显然需要回去工作、训练和准备。” 库什曼医生说。“我们讨论的是某领域的三百七十人，而不是在谈论一场一万八千人观看的冰球比赛。”
 
-撰稿：喜马拉雅的肉夹馍；
+目前在驻军佩塔瓦瓦的加拿大机动二号旅中已有百分之九十二的人员已经完全接种新冠疫苗。兰德上校说，剩下的百分之八人员是否能够继续保留就业岗位正在被审核等待决定。 “希望我们能在下周过半的时候能摆脱这种状况，”这位卫生官员补充道。”希望我们能控制住疫情蔓延。”
 
-审核：喜马拉雅的馍夹肉；
+原文链接：[H](https://ottawa.ctvnews.ca/hundreds-of-soldiers-in-quarantine-at-cfb-petawawa-following-covid-19-exposure-1.5672254?fbclid=IwAR0Mp4b-OLz_Xo0Jqrm8Da8_vaF0Bmg9cZXUgKyCElvaVH4YX5z7BxskV8I)[undreds of soldiers in quarantine at CFB Petawawa following COVID-19 exposure](https://ottawa.ctvnews.ca/hundreds-of-soldiers-in-quarantine-at-cfb-petawawa-following-covid-19-exposure-1.5672254?fbclid=IwAR0Mp4b-OLz_Xo0Jqrm8Da8_vaF0Bmg9cZXUgKyCElvaVH4YX5z7BxskV8I)
 
-校对：Maarago
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+校对发布：MQ
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
