@@ -2,30 +2,39 @@
 ---
 
 
-## 美国就菲律宾船遭中共国攻击发出警告，北京无视
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1679154/)
+## 与法币长期共存 喜币将全球通行
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1679439/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-16.jpg)美国就菲律宾船遭中共国攻击发出警告，北京无视 网络图片
-据美国之音11月20日报道，中共国海警船16日在斯普拉特利群岛（中共国称南沙群岛）的“第二托马斯浅滩”（中共国称仁爱礁）向菲律宾补给船发射水炮，阻止其为那里的游客运送补给物资。菲律宾对中共国的武力行动表示愤怒、谴责和抗议。美国国务院19日向中共国发出严正警告，称中共国的武装攻击将会招致美国的回应。
+作者： 纽约香草山文艺部 – 宁文静
 
-南中国海是全球最重要的商业通道，有丰富的渔业资源和巨大的石油和天然气储量，每年有数万亿美元的货物从此通过。中共国声称拥有南中国海域全部主权，周边其他国家都声称拥有部分主权。2016年，海牙仲裁法院否定了中共国对南中国海主权要求的法律依据。中共国对这一裁决不予理睬。
-
-中共一向无视国际法律或仲裁，因为中共的蓝金黄几乎腐蚀了全世界，中共自认为能够拿下周边国家，而西方的软弱和妥协助长了中共的狂妄和扩张。中共画个圈就把南中国海圈进了中共国的版图，美国的警告根本阻止不了中共的野心。必须以其人之道还治其人之身，用同样的武装行动消灭共产党，从此航运通畅，天下太平。
-
-新闻参考链接：[https://www.voachinese.com/a/US-warns-Beijing-it-will-defend-philippines-in-event-of-attack-20211119/6320129.html](https://www.voachinese.com/a/US-warns-Beijing-it-will-defend-philippines-in-event-of-attack-20211119/6320129.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+在11月19日的大直播中，郭文贵先生再次强调了喜币在未来金融体系的重要地位。
 
+郭先生表示，数字货币和法币将长期共存，但喜币具有技术“去中心化”、责任“中心化”的优势，必将会战胜其它有缺陷的虚拟币，形成与法币共生局面。最终，喜币将超越法币，在全球范围内流通。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/PP-2.001.jpeg)
+郭先生解释，喜币的区块链技术打破了限制货币流通的物理和地域限制。目前，任何国家都没有监管数字货币的法律和制度，但喜联储具备世界上最严格的KYC，能够保证每一笔交易的公开和透明。同时，喜币有喜美元作为稳定币，以及H-Pay作为支付系统，完全符合市场的定义，即根据供需双方的需求，在政府监管下进行基本公平的经济交易行为。
 
+另一方面，喜币——与法币不同——具有主动信任的特性，因此，喜币未来一定会超越法币，在全世界通行。再加上喜联储有能力制定未来数字货币的发行和交易规则，喜币将成就数字货币的“布雷顿森林”体系。
+
+**参考链接：**[文贵大直播：2）数字货币、法币及经济膨胀所带来的危害](https://gtv.org/video/id=6197a194fcd196126f8cab91)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+
+总编：Irene木木
+编辑：文真
+校正/发稿：我不在这里
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

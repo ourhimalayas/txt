@@ -2,33 +2,38 @@
 ---
 
 
-## 彭帅失踪引发世界网坛关注
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1680992/)
+## 荷兰警方向上街抗议中共病毒封锁措施的民众开枪
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1681046/)
 
-**作者：日本东京方舟农场 Kevin wang**
+**作者：日本东京方舟农场 海星**
 
-中共国网球名将彭帅自本月初在微博上举报中共前常委张高丽性侵后，一直处于失踪状态。此事引起了世界网坛的关注。
+11月20 日，荷兰鹿特丹民众上街抗议政府强制实施中共病毒封锁措施。在此过程中，警方突然向民众开枪。
 
-据《中央社》11月19日报到，国际女子网球协会（WTA）主席史蒂夫·西蒙（Steve Simon）发表声明，要求中共提供彭帅近况并对案件进行调查。西蒙在接受采访时说：“女性必须受到尊重，而非审查。我们绝对愿意撤回我们的业务，并处理随之而来的所有后果，因为这绝对比业绩更重要。”
+据《卫报》报导，在荷兰鹿特丹市中心举行的抗议中共病毒封锁措施的活动中，警方向抗议者开枪，导致7人受伤。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-152.png)图片来源：https://twitter.com/serenawilliams/status/1461408866697105413
+鹿特丹市市长阿布塔勒（Ahmed Aboutaleb）声称这场抗议活动是“暴力狂欢”事件，并将上街抗议的民众描述为“暴乱者”。然而，根据盖特（gettr）网友Himalaya Japan Galaxy Courage Star发布的视频显示，当地民众在抗议过程中并未采取暴力行动，但突然之间，只听到一声枪响，远处一位男子当场倒地。
 
-美国天后级网球女将小威廉姆丝（Serena Williams）、网球名将西蒙娜·哈莱普（Simona Halep），捷克网球名将彼得拉·克维托娃等多名国际网坛名将，均在推特上通过“彭帅在哪”（#whereispengshuai）这一热搜词关注彭帅安危。 小威廉姆丝（Serena Williams）19日在推特上写道：“我对于彭帅的新闻感到受伤又震惊。我希望她是安全的，且很快可以现身。此事必须被彻底调查，而我们绝不能保持沉默。” 目前这则贴文已获得17万的关注量。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-142.jpg)图片来源：卫报
+
+据悉，荷兰政府从13日起对餐厅、商店以及运动活动等，实施至少3周限制民众活动的措施。该政府还强制实施疫苗通行证，规定只有完成疫苗接种或检测病毒为阴性者方可进入室内公共场所。
+
+此前，荷兰海牙民众也曾上街抗议中共病毒封锁措施，反对针对未接种疫苗者所采取的限制措施。结果多人遭警方逮捕，警方甚至还一度针对抗议者部署了水炮。
 
 *新闻链接：*
 
-[若彭帥控張高麗性侵案未獲調查 WTA：願撤出中國市場](https://www.cna.com.tw/news/firstnews/202111195005.aspx)
+[Rotterdam police open fire as Covid protest turns into ‘orgy of violence’](https://www.theguardian.com/world/2021/nov/19/the-netherlands-rotterdam-police-open-fire-as-covid-protest-turns-violent)
+
+[The anti-government vaccine papers and two demonstrations in the city centre.（Rotterdam, Netherlands）](https://gettr.com/post/phg9zm50ed)
 
 
 
-> I am devastated and shocked to hear about the news of my peer, Peng Shuai. I hope she is safe and found as soon as possible. This must be investigated and we must not stay silent. Sending love to her and her family during this incredibly difficult time. [#whereispengshuai](https://twitter.com/hashtag/whereispengshuai?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/GZG3zLTSC6](https://t.co/GZG3zLTSC6)
-> — Serena Williams (@serenawilliams) [November 18, 2021](https://twitter.com/serenawilliams/status/1461408866697105413?ref_src=twsrc%5Etfw)
+> [在荷兰宣布新的Covid限制措施后，警察对抗议者使用水炮](https://gnews.org/zh-hans/1660177/)
 
 
 
 * * *
 
-*素材采编：Kevin wang*
+*素材采编：海星*
 
 *编辑：青衣青青*
 

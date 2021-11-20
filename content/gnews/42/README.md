@@ -2,33 +2,36 @@
 ---
 
 
-## 2021/11/19 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1680370/)
+## 麦克库罗医生提告医疗期刊公司
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1680554/)
 
-1. 11月17日 河南郑州，老板突然自杀，工人10多万劳务费没人结。
-2. 11月19日，四川成都。男子和老婆带着孩子上市里卖橘子，为了节约50块住宿费，抱着孩子睡在露天车上。
-3. 11月16日，广西南宁。80后农民工晒出自己的手，称出去吃饭不好意思伸手夹菜！
-4. 11月16日，陕西咸阳。只因地产公司领导来检查，小区保安将业主拒之门外。
-5. 11月15日，湖南衡阳。工人曝出工地偷工减料后，遭施工方现场威胁。逃离现场后才赶曝光信息。
-6. 市民吐槽自家孩子感冒，十天做了三次核酸抽了三次血，花了1000多元，感慨医院现在都称集团公司，早没有了医者仁心，救死扶伤的初心。
-7. 11月16日，重庆渝中区。市民社保养老基金被挪用，去政府部门上访被堵在门外。
-8. 11月18日，广西柳州，男子骑行途中，突然倒地不起。
-9. 河北保定。保定古城醫院附近，一男子下班途中突然倒地！
-10. 11月16日晚，辽宁大连西林街，49岁男子突然倒地。
-11. 辽宁大连，物价飞涨，白菜10元一斤，萝卜20元一根。市长视察就能整顿了物价市场？官僚的作秀。
+作者：纽约香草山 医疗部 云豹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月19日，相关媒体报道称，美国心脏科医生麦克库罗控告爱思薇尔期刊出版社掩盖新冠疫苗真相。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-20-下午10.45.47.png)圖片來源：2017年，石正麗在武漢病毒研究所。CHINATOPIX，VIA ASSOCIATED PRESS
+据悉，爱思薇尔期刊出版社于今年10月撤稿一篇题为“新冠疫苗造成心肌炎”的论文，该论文的作者即为麦克库罗医生。医生表示，爱思薇尔期刊原本已经刊登此篇论文，后因FDA正在讨论紧急授权5至11岁儿童使用新冠疫苗的问题，该期刊撤稿了此篇论文。医生认为，这种行为违反合约。因此，医生将对该期刊公司进行全面性的法律诉讼。
 
+另据麦克库罗医生称，爱思薇尔要对公众及科学界隐瞒这一重要研究的原因在于，真正的科学已经驳斥了这些实验性新冠疫苗所自称的 “安全性”和 “有效性”。医生指出，因注射新冠疫苗导致的心肌炎通常在注射第二剂辉瑞或莫德那疫苗后的数天内爆炸性发生。
 
-* * *
+麦克库罗医生强调，爱思薇尔期刊公司拥有全系列的医学期刊，掌控了绝大部分医学论文的发言权。因此，该公司对医学论文的不当审查行为，涉嫌掩盖有关新冠疫苗信息的真相。而这种审查方式是对科学的戕害。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+参考链接：
+1）[Dr. McCullough sues Elsevier journal for refusing to publish study highlighting risks of covid “vaccination” in children](https://www.newstarget.com/2021-11-18-mccullough-sues-elsevier-study-covid-vaccines-children.html)
+2）[COVID-19 vaccine-myocarditis paper to be permanently removed: Elsevier](https://retractionwatch.com/2021/10/25/covid-19-vaccine-myocarditis-paper-to-be-permanently-removed-elsevier/)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-编辑：【英国伦敦喜庄园编辑部】
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

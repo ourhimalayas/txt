@@ -2,29 +2,24 @@
 ---
 
 
-## 日本外务大臣表达对港台新疆人权的关切
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1680553/)
+## 有声|中共国地产的冬天降临，10月份连续第四个月土地销售收入下滑
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1680630/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月18日，日本新任外务大臣林芳正与中共外长王毅举行了首次电话会谈。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-20-下午10.45.03.png)圖片來源：2017年，石正麗在武漢病毒研究所。CHINATOPIX，VIA ASSOCIATED PRESS
-资料显示，林芳正于11月10日起出任日本外务大臣，并于第二日辞去日中友好议员联盟会长职务。在于王毅的电话会谈中，林芳正主要表达了日方对尖阁诸岛、东中国海及南中国海局势、香港和新疆人权问题的深重担忧。同时，林芳正还强调了台湾海峡和平稳定的重要性。林芳正还提出，希望中共尽早解除对日本食品的进口限制。
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+四十几年的所谓改革开放，中共国取得了“巨大”的成就，成为世界上第二大经济体。其中最为引人注目的当数地产经济。老百姓从祖孙三代同居一室，到现在祖孙三代共同还贷。真是厉害了我的国！
 
-分析人士指出，此次会谈反映新任日本政府，即使是知华派的外务大臣，依旧延续前政府对中共的强硬态度，未能如中共期望的那样软弱求和。
+然而，这种竭泽而渔的疯狂开发方式，导致华夏大地不再有蓝蓝的天，白白的云。河流干涸，土地贫瘠。雾霾笼罩着人们的双眼和心灵。恶魔中共真是欠下了累累血债。
 
-参考链接：
-1）[https://www.gettr.com/post/phc2e1a6a8](https://www.gettr.com/post/phc2e1a6a8)
-2）[王毅同日本外相林芳正通电话](http://www3.fmprc.gov.cn/web/wjbzhd/t1919364.shtml)
-3）[日外相林芳正走马上任，他“亲中”还是“知中”?](https://www.voachinese.com/a/Is-Japanese-New-Foreign-Minister-Pro-China-20211112/6309050.html)
-4）[林氏、初の日中外相会談で尖閣・人権「深刻な懸念」](https://news.yahoo.co.jp/articles/436791dec7a846a74520b5d5950ec8de6aeab70f)
+据路透社北京19日消息，中共官方数据表明今年10月份土地出让金比去年同期下降了13.14%。九月份下降了11.15%。不仅连续4个月走低，而且幅度在增大。中共的数据一贯是报喜不报忧，自己都承认下降了，恐怕真实情况更糟。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+文贵先生在他的大直播里多次提及中共地产的脆弱。以恒大地产为代表的这些靠过度借贷，关系批条，暴力强拆的地产商们随时都有可能猝死。只可惜不知道有多少勤劳善良的老百姓要成为殉葬品。
 
-总编：文徬
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+文字版原文：[中共国地产的冬天降临，10月份连续第四个月土地销售收入下滑](https://gnews.org/zh-hans/1678522/)
 
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)

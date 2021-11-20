@@ -2,57 +2,69 @@
 ---
 
 
-## 只有纯血种的人才能在因疫苗刺突蛋白导致基因分裂的疫苗及辐射大屠杀中幸存下来
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1681249/)
+## [Michael.Tonny专栏]接种CCP病毒疫苗已在欧盟造成118.1万人产生不良反应
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1681255/)
 
-2021 年 11 月 19 日，星期五
+加拿大温哥华扬帆农场  Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/22-100.jpg)
+截止至2021年11月13日，EudraVigilance统计系统共收到四种在欧洲药品管理局所属欧洲经济区（EEA）27国推广的COVID-19（CCP病毒）疫苗已导致 1,163,356 例药物不良反应报告，其中，轻度不良反应665，751例，严重不良反应497,605例，死亡30,551例。而到2021年11月20日，该系统总共收到1,181,121例CCP病毒疫苗不良反应报告（包含死亡的数据）。
 
-作者：迈克·亚当斯
+这四种疫苗是：BioNTech/ Pfizer的mRNA疫苗Tozinameran，Moderna的mRNA疫苗mRNA-1273，Johnson & Johnson的疫苗JANSSEN，Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA 。
 
-翻译： 沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1554.png)来源：网络
-（自然新闻）今天的播客是一个重磅炸弹，任何希望在疫苗大屠杀中幸存下来的人都需要理解，因为它真的是一个反人类的“基因炸弹”。
+EudraVigilance统计系统是欧洲药品管理局设立的一个旨在收集欧盟 (EU)国家疑似药物副作用报告和用于评估药物开发过程中的益处和风险，并在药品获得授权后监测其安全性的报告统计系统（[EudraVigilance-European database of suspected adverse drug reaction reports](https://www.adrreports.eu/en/search_subst.html)）。民众可以登录ADRreports.eu网站，查看疑似副作用报告的总数（Individual Case Safety Reports或ICSRs）。
 
-该疫苗通过抑制体内的天然 DNA 修复机制——称为 NHEJ，或非同源末端连接——使人们即使暴露在极低水平的电离辐射（如日光照射或乳房 X 光检查）下也极易发生毁灭性的癌性突变 . 由于 NHEJ 被刺突蛋白抑制，身体无法再修复其受损的 DNA，细胞会失控突变，破坏整个身体并导致生物体的基因瓦解。
+这些数据是由欧盟(EU)各国药品监管机构和持有药品上市许可（执照）的制药公司以网络报告方式（electronically）提交给EudraVigilance的。
 
-没有遗传完整性，地球上的任何生物都无法生存。  NHEJ 是地球上每一个活的植物、动物和人类的每一个细胞的一部分。
+持有药品上市许可的制药公司以及欧盟国家的药品监管机构，依法必须向EudraVigilance 提交疑似副作用报告。包含从医疗、保健专业人员和患者那里收到的报告，但不包括在欧盟之外发生的非严重副作用，也不包括研究报告（例如临床试验、非干预性研究）或其他类型的报告（仅自发报告）。
 
-刺突蛋白疫苗是对人类基因完整性的攻击，接种疫苗的人将在很大程度上无法繁殖，因为他们的婴儿会因基因突变而自行流产。 这就是为什么 82% 在怀孕的前三个月接种 COVID 疫苗的孕妇最终会因自然流产而失去婴儿的原因。
+必须报告的副作用包括：(i) 导致死亡，(ii) 危及生命，(iii) 需要住院或延长现有住院时间，(iv) 报告者认为会导致持续或严重的残疾/丧失能力，(v)先天性异常/出生缺陷，或 (vi) 导致其他一些重要的医学病症。
 
-人口减少全球主义者如何加速接种疫苗的突变？重要的是，一旦一个星球上的生物被广泛注射了新冠病毒疫苗，全球主义者就可以发动核事故（或核恐怖主义）在整个星球上散布辐射。 即使是低水平的铯 137 暴露（或锶 91、碘 131 等）也会在接种疫苗的人中引发致命的癌症浪潮。 虽然正常、健康的人可以修复由低水平电离辐射暴露引起的 DNA 损伤，但接种疫苗的人几乎无法进行修复（他们对 DNA 修复的抑制率大约为 90%）。
+必须强调的是，EudraVigilance维护的数据库仅包括属于欧盟27个国家。这意味着，如果我们将欧洲50来个国家都包括在内，CCP病毒疫苗导致的不良反应病例会多得多。
 
-因此，接种疫苗的人的癌症发病率将飙升，当他们死亡时，死亡可以归咎于癌症而不是疫苗。 因此，这种二元武器安排也让疫苗拉皮条的全球主义者逃脱了对疫苗的指责。 它通过将疫苗死亡归类为癌症死亡来掩盖疫苗死亡。
+根据EudraVigilance系统统计数据显示，CCP病毒疫苗导致的副作用（死亡或药物不良反应）包括：血液和淋巴系统疾病；心脏疾病；先天性、家族性和遗传性疾病；听力系统疾病；内分泌失调；眼部疾病；胃肠道疾病；一般疾病和给药部位疾病；肝胆疾病；免疫系统疾病；易被感染或侵染；受伤、中毒和手术并发症；代谢和营养障碍；肌肉骨骼和结缔组织疾病；良性、恶性和未指明的肿瘤（包括囊肿和息肉）；神经系统疾病；妊娠、产褥期和围产期疾病；精神疾病；肾脏和泌尿系统疾病；生殖系统和乳房疾病；呼吸、胸部和纵隔疾病；皮肤和皮下组织疾病；；外科和医疗程序；血管疾病，等等。
 
-他们所需要的只是北半球某处的另一次切尔诺贝利、福岛或核爆炸——几乎任何地方——并且风会将放射性同位素传播到地球的一半，实现将接种疫苗的人变成患癌症的突变体所需的低水平电离辐射从而加速死亡。
+截至2021年11月13日，四种疫苗导致的不良反应具体数据如下：
 
-由于精子和卵细胞的 DNA 损伤，那些没有被癌症杀死的接种疫苗的个体极不可能产生可存活的后代。有趣的是，一旦接种疫苗的个体在不遭受基因突变的情况下无法忍受阳光变得明显，他们就会避开日光并成为夜间生物。
+BioNTech/ Pfizer的mRNA疫苗Tozinameran（代码 BNT162b2，Comirnaty）：14,303 例死亡和562,213 例不良反应
 
-在文化神话中，吸血鬼是夜晚的生物，当阳光照射到他们的皮肤时，它们会瞬间瓦解。 实际上，解体会花费更多的时间，但这是一个类似的想法：
+Moderna的mRNA疫苗mRNA-1273(代码CX-024414)：8,385例死亡和155,793例不良反应
 
-Covid疫苗+阳光=基因瓦解。
+Johnson & Johnson的疫苗JANSSEN（AD26.COV2.S）：1793人死亡和37038不良反应
 
-只有纯血才能繁殖，所以人类的未来属于拒绝mRNA疫苗的人。那些拒绝接受新冠病毒疫苗的人被称为“纯血统”。 他们是唯一能够为子孙后代保持基因完整性的人，这意味着人类的未来属于那些拒绝接受新冠病毒疫苗的人。  （拍摄刺突蛋白/mRNA covid 镜头的人正在赢得达尔文奖……）
+Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA (CHADOX1 NCOV-19)：6,070 人死亡和408,312例不良反应
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture4.jpg)
+截止到2021年11月20日，EudraVigilance收到的BioNTech/ Pfizer、Moderna、Johnson & Johnson、Oxford/ AstraZeneca四种疫苗不良反应报告（包含死亡）分别为：574,427例、158,401例、410,479例、37,814例。
 
-根据上帝的说法，通过旧约，血是生命存在的地方。 您的身体每分钟制造 200 万个红细胞，这些红细胞是在您的骨骼中制造的。 这就是为什么创世记说夏娃是用亚当的肋骨造的。 骨骼是 DNA 存在的地方，用于制造血液、生命的本质，并找到描述新生物生物学的遗传模式。
+11月20日，Moderna的mRNA疫苗mRNA-1273的不良反应报告统计
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-21.jpg)
+11月20日，BioNTech/ Pfizer的mRNA疫苗Tozinameran（代码 BNT162b2，Comirnaty）的不良反应报告统计
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture2-3.jpg)
+# 
 
-血液中发生基因突变的人被诊断出患有白血病，本质上是血癌。 简而言之，这是它们血液制造模板的遗传完整性的瓦解，当它们的血液的遗传完整性被破坏时，从长远来看，没有哺乳动物是可行的。
+11月20日，Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA (CHADOX1 NCOV-19) 的不良反应报告统计
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture3-1.jpg)
+11月20日，Johnson & Johnson的疫苗JANSSEN（AD26.COV2.S）的不良反应报告统计
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture5.jpg)
+参考资料：
 
-然而，这正是疫苗在伴随低水平电离辐射暴露时所能达到的效果。 再次声明：
+[EXCLUSIVE: European Medicines Agency Data Shows 1,163,356 Adverse Drug Reactions and 30,551 Fatalities by COVID-19 Vaccinations](https://www.thegatewaypundit.com/2021/11/european-medicines-agency-data-shows-1163356-adverse-drug-reactions-30551-fatalities-covid-19-vaccinations/)
 
-尖峰蛋白 + 电离辐射 = DNA 突变 / 遗传完整性丧失
+[EudraVigilance-European database of suspected adverse drug reaction reports](https://www.adrreports.eu/en/data_source.html)
 
-那些接受刺突蛋白注射的人已经经历了癌症肿瘤的加速生长。 这在自然疗法医生和分析师中被广泛报道。 虽然有可能通过积极的营养排毒计划和终生的抗癌生活方式来阻止 DNA 突变，但实际上大多数人通过他们的有毒食物、有毒的个人护理产品和有毒的室内生活环境过着亲癌的生活方式 . 最重要的是，大多数人都缺乏维生素 D，这意味着即使在注射尖峰蛋白之前，他们基本上就是“癌症工厂”。
+[Important information to consider before looking at ADR reports for the COVID-19 vaccines](https://www.adrreports.eu/en/covid19_message.html)
 
-因此，由于新型冠状病毒疫苗，我们即将看到全球癌症的爆发。 这将在 2022 年真正加速，到 2022 年我们很容易看到美国有超过 100 万人死于癌症（尽管数据很可能要到 2024 年才能获得）。 在未来十年（2022 年至 2032 年），我们可能会看到美国有数千万癌症死亡人数。全球主义者的任何辐射释放只会加速这些数字并造成更多生命损失。  （这是全球主义者的目标。）
+[Number of individual cases identified in EudraVigilance received over the last 12 months and overall for COVID-19 MRNA VACCINE MODERNA (CX-024414) (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages)
 
-与此同时，那些接受 mRNA 刺突蛋白注射的人将生下缺乏遗传活力的突变婴儿，即使他们在自己的突变中幸存下来。 目前，大约有一半的人口接受了一种或另一种新冠病毒注射，这意味着人口减少全球主义者可能已经实现了他们的目标，即破坏大部分人类的生育能力/遗传活力。
+[The number of individual cases identified in EudraVigilance for TOZINAMERAN is 574,427 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42325700)
 
-死亡现在已经开始。 今年冬天，美国各地的癌症死亡人数将激增，而在接下来的十年里，那些容易上当受骗以注射致命刺突蛋白生物武器的人的癌症死亡人数将猛增。 接下来将会看在美国、欧洲、澳大利亚、加拿大和其他所有容易上当的人因疫苗导致癌症而引发的自杀浪潮。
+[The number of individual cases identified in EudraVigilance for COVID-19 VACCINE ASTRAZENECA (CHADOX1 NCOV-19) is 410,479 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40995439)
 
-来源链接：https://www.afinalwarning.com/572791.html
+[The number of individual cases identified in EudraVigilance for COVID-19 VACCINE JANSSEN (AD26.COV2.S) is 37,814 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42287887)
 
-发布：涅
-![This image has an empty alt attribute; its file name is 農場文宣.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3.jpg)
+（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+
+编审：文敏      发布：文敏
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
