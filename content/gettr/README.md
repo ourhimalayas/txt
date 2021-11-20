@@ -19,6 +19,15 @@
 
 **:arrows_clockwise: miles 已轉發**
 
+`@rolfoundation 11/20/2021 7:22 PM (UTC)`
+
+【法治基金/法治社会捐款者留言11/20/2021】法治基金/法治社会成立三周年！衷心感谢每一位捐款者的支持与信任🙏<br/><br/>尊敬的法治基金、法治社会捐款者大家好，<br/><br/>2018年11月20日，我们因共同的信仰聚集在这里，为了建立一个民主、自由、法治的社会，为了中国同胞们不再受共产党的迫害，在美国法律的监管保护下成立了法治基金与法治社会。<br/><br/>在法治基金、法治社会成立三周年之际，法治基金、法治社会工作团队向所有捐款者表示诚挚的谢意。每位捐款者的慷慨，救出了受到中共体制迫害的同胞们，给中国人予希望。每一次的捐款者留言，都令更多中国人体会到了信仰、勇气、坚定的巨大力量。<br/><br/>我们还要向法治基金、法治社会的全体客服组义工致以衷心的感谢。三年中，您们不仅自己也是长期的捐款者，更是顶住共产党的威胁，认真负责、耐心专业、24小时全年无休地代表法治基金与社会帮助了无数捐款者们。<br/><br/>再次，我们感谢所有的捐款者与义工们所带来的鼓舞与感动。因您们，中国人正在坚实地迈向一个法治自由的社会！<br/><br/>2021.11.20<br/>— 法治基金/法治社会全体工作团队敬上
+![img](https://media.gettr.com/group11/origin/2021/11/20/19/22/5efe6db3-86f9-18cf-1a44-2d472770b462/out.jpg)
+
+---
+
+**:arrows_clockwise: miles 已轉發**
+
 `@gfashion 11/20/2021 3:07 AM (UTC)`
 
 Golden State of Mind<br/><br/>@gfashion <br/>@DDNYC 
@@ -296,14 +305,6 @@ Shop 'The Drop' at www.GFashion.com<br/><br/>@gfashion <br/>@ddnyc
 
 11月16日：多多和笨笨都长大了，感谢很多战友很关心他俩的成长，他们俩很快的就要入洞房了……现在应战友的要求发几张照片与大家分享！
 ![img](https://media.gettr.com/group35/getter/2021/11/17/00/34/a25b53e2-5862-6d66-21e1-8ebdc83d0bc2/6fc48f3b4711e9afd2a354d4109a24e6.jpg)
-
----
-
-`@miles 11/16/2021 9:53 PM (UTC)`
-
-😱😱😱😱😱😱😱😱😱
-> `@stz_mieyizu 11/5/2021 11:07 AM (UTC)`<br/>A pilot took the Pfizer vaccine, and here are what he faces now: A sick body, frequent doctor visits and medical treatment, expensive medical bills and missing of life. What’s worse, the vaccine has taken his career from him and almost taken away everything he and his family has <br/>一位飞行员打了辉瑞疫苗后面临着生病的身体， 频繁的治疗，高昂的医疗账单和完结的职业生涯；疫苗夺走了他的家庭和所拥有的一切
-![img](https://media.gettr.com/group17/origin/2021/11/05/11/07/6a795d67-d53a-7e88-7c58-4ee4be61ac54/out.jpg)
 
 ---
 
