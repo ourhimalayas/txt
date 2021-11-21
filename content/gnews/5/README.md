@@ -2,225 +2,156 @@
 ---
 
 
-## 习近平六中全会后的两个重大决策
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681421/)
+## 喜币的优势绝对是现今区块链发展的方向
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681477/)
 
-[https://gtv.org/video/id=6198bc6fe6900076612d2959](https://gtv.org/video/id=6198bc6fe6900076612d2959)
+[https://gtv.org/video/id=61992de2e6900076612d8985](https://gtv.org/video/id=61992de2e6900076612d8985)
 
-那么回来我们再看六中全会的时候
-Entonces cuando volvamos a ver la Sexta Sesión Plenaria
+**郭文贵
+Miles Guo**
 
-共产党的1943年和1981年2个重大的决议
-Las 2 grandes decisiones que hizo el PCCh en el 1943 y 1981
+(区块链专家 )他说，当区块链技术
+He (blockchain expert）said that when blockchain technology
 
-到今天的2021年重大决议
-Hasta el de 2021 de hoy en día
+在2020年年底之后
+after the end of 2020
 
-43年81年
-En el año 43 y 81
+在逐渐普及之后
+gradually became popular,
 
-https://gtv.org/video/id=6198bc6fe6900076612d2959中国的军队什么样
-Cómo era el ejército de China
+它基本上不会让人相信银行
+it basically would make no people trust the bank
 
-当时要没要收回台湾
-En ese momento acaso no dijeron que iban a tomar de regreso a Taiwán
+他说如果在区块链得到应用
+He said if the blockchain has been applied
 
-大家去看看历史去
-Todos vayan a ver la historia
+记住啊，要得到应用
+Remember, it has to be applied
 
-所有这个决议的时候
-Todos los momentos de esta decisión
+特别是它的流通没有层次、没有阶级
+Especially when its circulation has no hierarchy or class,
 
-就喊着打台湾比啥时候都响
-El grito de atacar a Taiwán era más fuerte que en cualquier momento
+普遍性、支付性达到的时候
+and when its universality and payment availability is reached
 
-那个时候缺啥
-En ese momento había crisis de todo
+没有任何人再相信政府和相信银行
+There would be no one to trust the government and the bank anymore
 
-中国缺粮食
-China carecía de comida
+2021年我们将看到去中心化存储、去中心化金融
+In 2021, we would see decentralized storage and decentralized finance,
 
-那个时候中国人需要什么
-En ese momento que necesitaban los chinos
+和非政治性货币的飞速发展
+and the rapid development of non-political currencies
 
-要改革开放 这次是什么
-Necesitan una reforma económica y ¿ esta vez que es?
+我认为表现最好的将是加密货币和比特币、以太坊
+In my opinion, the best performers would be cryptocurrencies and Bitcoin and Ethereum
 
-中国人不缺粮食
-A los chinos no les hace falta comida
+然而我们希望继续在2022年看到成功
+However, we hoped to continue to see success in 2022
 
-中国继续这个事实上是坚决不开放
-De hecho, China sigue negándose a abrirse en esta realidad
+以太坊的扩展范围需要在2021年得到解决
+Ethereum’s extended scope needed to be resolved in 2021
 
-继续打台湾 对待美帝国主义是什么
-Sigue atacando a Taiwán y cómo le trata al imperialismo estadounidense
+但是下一个专家说得很清楚
+But the following expert made it very clear
 
-我告诉你
-Yo te digo
+不能流通的虚拟货币
+Virtual currencies that could not be circulated
 
-对美国会越来越软
-Hacia Estado Unidos es cada vez más suave
+几乎都会被淘汰
+would almost always be eliminated
 
-嘴巴会狠喊
-Por la boca gritará ferozmente
+在支付普遍性情况下的货币
+In the case of universal payment currency
 
-绝对越来越软
-Pero definitivamente será cada vez más suave
+和有稳定性的货币一定是世界的金融之王
+and stable currency must be the king of finance in the world
 
-第2个
-El segundo
+这就是人类的劳动和时间换来的生产结果
+and those were the results that exchanged from human’s labor and time
 
-美国人和西方人通过这个六中全会
-Los estadounidenses y los occidentales a través de esta Sexta Sesión Plenaria
+不应该被政府垄断
+It should not be monopolized by the government
 
-绝对会视共产党为更大的威胁
-Seguro verá al PCCh como la mayor amenaza
+不应该被一个某个政府所定价
+It should not be priced by a certain government
 
-第3个
-Tercero
+区块链的到来
+The arrival of the blockchain
 
-习近平和邓小平和毛泽东不一样是他敢干
-A diferencia de Mao Zedong, Xi Jinping y Deng Xiaoping es que se atreven
+把医学、科技、想法、知识全变成了
+has turned medicine, technology, ideology, and knowledge
 
-绝对敢发起第3次世界大战
-Absolutamente se atreve a lanzar la Tercera Guerra Mundial
+端到端的、公平的、去第三方去中心化的衡量资产的标准
+into end-to-end, fair, and third-party decentralized standards for measuring assets
 
-他绝对敢打台湾
-Definitivamente se atreve a atacar Taiwán
+这是多么伟大呀
+How great this is
 
-邓小平敢弄印度敢弄这个越南
-Deng Xiaoping se atrevió lidiar con India y Vietnam
+最重要的事情
+The most important thing is that
 
-毛泽东敢到北朝鲜
-Mao Zedong se atrevió ir hasta Corea del Norte
+其中这仨哥们都说到
+among what these three buddy friends have said,
 
-他绝对敢上台湾
-Él seguro se atreve ir a Taiwán
+全世界所有区块链的核心要点
+all the key points of all blockchains in the world
 
-就是习近平这次的六中全会的对内的所有的实行习皇制
-Es la implementación interna de Xi Jinping sobre el sistema imperial de Xi en esta Sexta Sesión Plenaria
+全被喜联储给抓到了
+have been in possession of the Himalaya Reserve
 
-对外的实行 希特勒制
-Hacia el exterior implementa el Sistema de Hitler
+没有支付的货币一定没有未来，都得滚蛋
+Currency without a payment system will certainly have no future and would be eliminated
 
-你一点都不用怀疑
-No lo necesitas dudar ni un poquito
+你别忘了
+Please don’t forget
 
-为什么呀
-Por qué será
+IBM是整个区块链的核心要素
+IBM is the core element of the entire blockchain
 
-他下边的一个个的张万年
-Debajo de él tiene varios Zhang Wannian
+IBM的电脑里的有一种语言说得非常清楚
+And there is a language in IBM computers that speak very clearly that
 
-一个个的太监
-Varios eunucos
+所有的区块链的最终的存在不存在的结果和价值
+the final existence and value of all blockchains
 
-还有今天他的这个战羊秦（刚）
-Y hoy en día su oveja guerrero Qing
+衡量在你是否遵守区块链的去账本化的加密技术
+and the measurement of whether you comply with the de-booking encryption tech-nology of the blockchain
 
-都会给他
-Se lo da
+就是保密安全
+is confidentiality and security
 
-还有这个
-También este
+咱们喜币牛就牛在这
+This is the extraordinary thing about our HCoin
 
-特别是杨洁篪和王毅一定会执行下去
-Especialmente Yang Jiechi y Wang Yi seguro lo ejecutarán
+它能流通，是在全球啥都能买
+It can be circulated, and you can buy anything with it globally
 
-现在2个政策
-Ahora las 2 políticas
+不但如此
+Not just this
 
-你记住我今天说的话
-Recuerda lo que dije hoy
+我可以稳定欧元
+I can stabilize the euro (with the HCoin)
 
-这2个政策
-Estas 2 políticas
+我想稳定谁稳定谁
+I can stabilize whoever I want (with the HCoin)
 
-会对外无限强硬
-Será infinitamente duro para el mundo exterior
+所以咱的喜币牛的不是一般了
+Therefore, our HCoin is not just average, its extraordinary
 
-一定会再放毒
-Seguro seguirán soltando veneno
+**原视频链接:** [https://gettr.com/post/pgywfk3cdf](https://gettr.com/post/pgywfk3cdf)
 
-然后在南海和东海问题上一定会强硬
-Entonces serán duros con los problemas del Mar de China Meridional y del Mar de China Oriental
+Date: 11/14/2021
+原视频标题: 喜币的优势绝对是现今区块链发展的方向
+The advantage of HCoin is definitely the direction of current blockchain develop-ment
+原视频日期：2021/11/14
+任务编号：KC270（2897）
+视频时间段 : 0:00-2:17
 
-第2条记住兄弟姐妹们
-El segundo lo deben recordar hermanos y hermanas
-
-马上会把中国的经济私有企业
-Muy pronto la economía de las empresas privadas de China
-
-所有的人的财富和所有的东西都会收回到中央去
-Toda la riqueza de las personas y todo se devolverá a la central
-
-然后对所有在华的企业
-Y hacia las empresas que están en China
-
-能弄的弄能抢得抢
-Lo que se pueda tomar y hacer lo harán
-
-就是真正的实现
-Quiere decir, cumplir con el verdadero
-
-对内对外的资本的共产制
-El sistema comunista de capital interno y externo
-
-闭关锁国 完全拒绝对外改革开放完全自主 干自主道路
-Cerrar el país y negarse por completo a reformar y abrirse al mundo exterior
-
-自主研发 开拓创新 胸怀天下
-Investigar y desarrollar independientemente, ser pioneros e innovadores, cuidándose del mundo
-
-然后老子来搞你天下
-Entonces yo les hago el mundo
-
-这两件事儿就在发生
-Estos dos asuntos están sucediendo
-
-此时此刻
-En este preciso instante
-
-最后的结局是什么
-Cuál sería el final
-
-告诉体制内的战友们
-Decirles a los luchadores que están dentro del sistema
-
-你们的所有的问题是
-Todos los problemas de ustedes son
-
-你怎么让你活得更好
-Cómo hacerte vivir de una mejor manera
-
-活得你安全
-De una forma más segura
-
-我今天很抱歉的回答你们
-Lo siento mucho por responderles hoy en día
-
-没有一个人是安全的
-No hay una persona segura
-
-没有一个人可以再过得好的
-No habrá ni una persona que pueda pasarla bien
-
-一个都不会有
-No habrá ni uno
-
-**原视频网址**：[https://gettr.com/post/ph9jb973e8](https://gettr.com/post/ph9jb973e8)
-
-日期：11/19/2021
-原视频标题：习近平六中全会后的两个重大决策
-Las dos grandes decisiones de Xi Jinping luego de la Sexta Sesión Plenaria
-原视频日期：11/18/2021
-任务编号：KC268（2932）
-视频时间段：0:00-2:29
-
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)

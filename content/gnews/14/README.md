@@ -2,68 +2,76 @@
 ---
 
 
-## [Michael.Tonny专栏]接种CCP病毒疫苗已在欧盟造成118.1万人产生不良反应
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1681255/)
+## 中共对维吾尔人的迫害是在预演更广泛的监视计划
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681345/)
 
-加拿大温哥华扬帆农场  Michael.Tonny
-![](https://assets.gnews.org/wp-content/uploads/2021/11/22-100.jpg)
-截止至2021年11月13日，EudraVigilance统计系统共收到四种在欧洲药品管理局所属欧洲经济区（EEA）27国推广的COVID-19（CCP病毒）疫苗已导致 1,163,356 例药物不良反应报告，其中，轻度不良反应665，751例，严重不良反应497,605例，死亡30,551例。而到2021年11月20日，该系统总共收到1,181,121例CCP病毒疫苗不良反应报告（包含死亡的数据）。
+**据《自由亚洲电台》作者：Roseanne Gerin和Alim Seytoff，2021.11.17报道**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/au3dh-zq3wv.jpg)
+2019年6月4日，在中国西北部新疆地区喀什以南的阿克托县，学童走过监控摄像头。
 
-这四种疫苗是：BioNTech/ Pfizer的mRNA疫苗Tozinameran，Moderna的mRNA疫苗mRNA-1273，Johnson & Johnson的疫苗JANSSEN，Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA 。
+在新疆发生的事情相当于“大规模的心理折磨”。
 
-EudraVigilance统计系统是欧洲药品管理局设立的一个旨在收集欧盟 (EU)国家疑似药物副作用报告和用于评估药物开发过程中的益处和风险，并在药品获得授权后监测其安全性的报告统计系统（[EudraVigilance-European database of suspected adverse drug reaction reports](https://www.adrreports.eu/en/search_subst.html)）。民众可以登录ADRreports.eu网站，查看疑似副作用报告的总数（Individual Case Safety Reports或ICSRs）。
+一个两党国会委员会的成员周三警告说，中共在新疆西部使用高科技镇压穆斯林维吾尔人的情况正在扩大，并可能出口到世界各地。
 
-这些数据是由欧盟(EU)各国药品监管机构和持有药品上市许可（执照）的制药公司以网络报告方式（electronically）提交给EudraVigilance的。
+成立2000年的美国国会行政当局中国委员会，在华盛顿举行了听证会，以提请注意侵犯人权的行为以及中共国（在新疆维吾尔自治区）使用的大规模监视技术和审查制度的战略影响。
 
-持有药品上市许可的制药公司以及欧盟国家的药品监管机构，依法必须向EudraVigilance 提交疑似副作用报告。包含从医疗、保健专业人员和患者那里收到的报告，但不包括在欧盟之外发生的非严重副作用，也不包括研究报告（例如临床试验、非干预性研究）或其他类型的报告（仅自发报告）。
+由17名成员组成的委员会联合主席、参议员杰夫·默克利表示，如果没有适当的措施来保护隐私和人权，专制政权可以利用技术来控制人口、阻止言论自由并破坏民主制度。
 
-必须报告的副作用包括：(i) 导致死亡，(ii) 危及生命，(iii) 需要住院或延长现有住院时间，(iv) 报告者认为会导致持续或严重的残疾/丧失能力，(v)先天性异常/出生缺陷，或 (vi) 导致其他一些重要的医学病症。
+来自俄勒冈州的美国参议员默克利表示，中共使用人工智能、区块链和云计算等技术，使中国处于“世界上最普遍的监视状态”。
 
-必须强调的是，EudraVigilance维护的数据库仅包括属于欧盟27个国家。这意味着，如果我们将欧洲50来个国家都包括在内，CCP病毒疫苗导致的不良反应病例会多得多。
+他说，政府已经从手机、个人电脑和安全摄像头收集了大量数据，目的是对目标人群实施政治和社会控制。 “我们在新疆维吾尔自治区看到的更多，”默克利说。
 
-根据EudraVigilance系统统计数据显示，CCP病毒疫苗导致的副作用（死亡或药物不良反应）包括：血液和淋巴系统疾病；心脏疾病；先天性、家族性和遗传性疾病；听力系统疾病；内分泌失调；眼部疾病；胃肠道疾病；一般疾病和给药部位疾病；肝胆疾病；免疫系统疾病；易被感染或侵染；受伤、中毒和手术并发症；代谢和营养障碍；肌肉骨骼和结缔组织疾病；良性、恶性和未指明的肿瘤（包括囊肿和息肉）；神经系统疾病；妊娠、产褥期和围产期疾病；精神疾病；肾脏和泌尿系统疾病；生殖系统和乳房疾病；呼吸、胸部和纵隔疾病；皮肤和皮下组织疾病；；外科和医疗程序；血管疾病，等等。
+多年来，中共当局任意逮捕新疆维吾尔人和其他突厥少数民族，并限制他们的宗教和文化活动。该系统由一个无处不在的数字化系统执行，该系统通过监视无人机、面部识别摄像头、手机扫描和无处不在的警察来监控居民的一举一动。
 
-截至2021年11月13日，四种疫苗导致的不良反应具体数据如下：
+众议员克里斯·史密斯说，中国的数字丝绸之路作为“一带一路”倡议的组成部分，目标就是加强海外数字连接。这是“一个侵入性的互联网架构和监控技术生态系统，意图扩大中共在全球的影响力”。
 
-BioNTech/ Pfizer的mRNA疫苗Tozinameran（代码 BNT162b2，Comirnaty）：14,303 例死亡和562,213 例不良反应
+“中共当局对新疆地区以穆斯林为主的维吾尔人、哈萨克人和其他中亚人的无情迫害，令人不安地预知了这些工具将会在更大范围内的滥用。”他说。
 
-Moderna的mRNA疫苗mRNA-1273(代码CX-024414)：8,385例死亡和155,793例不良反应
+自2017年以来，中共已将多达180万维吾尔人和其他人关押在“再教育”营地。中共还驳斥了广泛记录的证据，包括前被拘留者和看守的证词，这些证据表明中共虐待了住在营地内外的穆斯林。
 
-Johnson & Johnson的疫苗JANSSEN（AD26.COV2.S）：1793人死亡和37038不良反应
+相反，中共官员辩称，这些营地是用于防止该地区宗教极端主义和恐怖主义的职业培训设施，该地区约有1200万维吾尔人居住。
 
-Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA (CHADOX1 NCOV-19)：6,070 人死亡和408,312例不良反应
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture4.jpg)
-截止到2021年11月20日，EudraVigilance收到的BioNTech/ Pfizer、Moderna、Johnson & Johnson、Oxford/ AstraZeneca四种疫苗不良反应报告（包含死亡）分别为：574,427例、158,401例、410,479例、37,814例。
+但是，最近出版了一本关于中共监控的书的作者杰弗里·凯恩告诉委员会成员，他采访过的前集中营被拘留者以及维吾尔族和哈萨克族难民讲述了类似的故事，形容新疆“陷入全面的监控的乌托邦”。
 
-11月20日，Moderna的mRNA疫苗mRNA-1273的不良反应报告统计
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-21.jpg)
-11月20日，BioNTech/ Pfizer的mRNA疫苗Tozinameran（代码 BNT162b2，Comirnaty）的不良反应报告统计
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture2-3.jpg)
-# 
+中共使用综合联合作战平台来存储来自警察人工输入、摄像头监控以及犯罪和法庭历史中收集的数据。中共官员说，需要将这些信息来确定维吾尔人是否可能犯罪。当地警方通过发送到当局智能手机的信息，来审讯和拘留被系统标记的维吾尔人。
 
-11月20日，Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA (CHADOX1 NCOV-19) 的不良反应报告统计
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture3-1.jpg)
-11月20日，Johnson & Johnson的疫苗JANSSEN（AD26.COV2.S）的不良反应报告统计
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture5.jpg)
-参考资料：
+他说，电信巨头华为、面部识别技术提供商旷视科技和人工智能软件提供商商汤科技等中国科技公司开发的技术，相当于一个“大规模心理折磨系统”。
 
-[EXCLUSIVE: European Medicines Agency Data Shows 1,163,356 Adverse Drug Reactions and 30,551 Fatalities by COVID-19 Vaccinations](https://www.thegatewaypundit.com/2021/11/european-medicines-agency-data-shows-1163356-adverse-drug-reactions-30551-fatalities-covid-19-vaccinations/)
+杰弗里说，新疆少数民族居民有一种“不断被监视的感觉，不是被人类监视，而是被预测是否未来犯罪和恐怖主义行为的大数据软件算法监视，”
 
-[EudraVigilance-European database of suspected adverse drug reaction reports](https://www.adrreports.eu/en/data_source.html)
+“被拘留的原因可能很广泛，比如他们是从前门还是后门走，他们是否突然开始了体育锻炼，以及他们是否感染了流感并且那天只是上班迟到，” 杰弗里告诉记者说。
 
-[Important information to consider before looking at ADR reports for the COVID-19 vaccines](https://www.adrreports.eu/en/covid19_message.html)
+中共政府没有立即对听证会作出回应。
 
-[Number of individual cases identified in EudraVigilance received over the last 12 months and overall for COVID-19 MRNA VACCINE MODERNA (CX-024414) (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages)
+**“情况可能更糟”**
 
-[The number of individual cases identified in EudraVigilance for TOZINAMERAN is 574,427 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42325700)
+听证会是在美国总统乔拜登和中共国家主席习近平就双边关系进行了三个小时的虚拟会晤后两天举行的。
 
-[The number of individual cases identified in EudraVigilance for COVID-19 VACCINE ASTRAZENECA (CHADOX1 NCOV-19) is 410,479 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40995439)
+根据国家安全顾问沙利文第二天的简报，拜登强调了美国对新疆、西藏和香港人权的担忧。但没有详细说明。
 
-[The number of individual cases identified in EudraVigilance for COVID-19 VACCINE JANSSEN (AD26.COV2.S) is 37,814 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42287887)
+总部位于德国的世界维吾尔代表大会主席多尔昆·伊萨表示，他很感激拜登在与习近平的虚拟峰会期间提出中共对维吾尔人的暴行的议题。
 
-（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+“如果不是美国谴责中共对维吾尔人进行种族灭绝，我们今天的情况可能会更糟，”他周二告诉自由亚洲电台。
 
-编审：文敏      发布：文敏
+“拜登政府必须抵制北京冬奥会，”伊萨说。 “否则，只会助长中共继续犯下种族灭绝罪行。”
+
+6月，美国国会行政当局中国委员会，敦促国际奥委会主席托马斯·巴赫（Thomas Bach）推迟2022年北京奥运会，如果东道国政府不停止侵犯人权行为，则应另选举办国。
+
+美国政府宣布，中共在新疆虐待维吾尔人的运动构成危害人类罪和种族灭绝罪。
+
+译者按：
+以上为翻译件，最后一段是中共宣传部长的老套路（已删），贼喊捉贼的手段从未改变过。一个富饶美丽的新疆变成了一个大监狱。对于生活在中共监控下的中国老百姓，又何尝不是被中共制造的监控囚禁在一个牢笼里呢？
+
+**原文链接：**[https://www.rfa.org/english/news/uyghur/commission-hearing-11172021191538.html](https://www.rfa.org/english/news/uyghur/commission-hearing-11172021191538.html)
+
+翻译：洛杉矶盘古农场 — 小象的奶瓶
+校对：洛杉矶盘古农场 — Mike Li
+编辑：洛杉矶盘古农场 — 心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

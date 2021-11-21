@@ -2,41 +2,48 @@
 ---
 
 
-## 比尔盖茨声称两招可使疫情在明年夏天得到控制
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1681055/)
+## 福特和通用汽车可能将很快涉足半导体产业
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1681127/)
 
-蒙特利尔皇家山战友团 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/11/bill_gates_great_corrector.jpeg.jpg)图片来源：India Today
-比尔盖茨一毒招向低收入国家推广疫苗，另一毒招推广药物。
+作者：纽约香草山农场 – 四季
 
-左媒《CNBC》11月17日报道，比尔盖茨在彭博社新经济论坛的采访中说到阻止Covid疫情的两个关键步骤：一，世界其他地区接种疫苗，二，使用新的抗病毒药物。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-比尔盖茨说，鉴于疫苗和抗病毒药物的进步，这一目标“仍然是现实的”。对于初感染者来说”疫苗是非常好的”。根据美国疾病控制和预防中心的数据，在美国，69%的人口目前已经完全接种了Covid疫苗。
 
-在低收入国家，对疫苗的获取和需求都很低。根据研究公司Our World in Data的数据，低收入国家中只有4.7%的人至少接种过一剂Covid疫苗。
 
-盖茨预测说：“由于供应限制将在很大程度上得到解决，到明年会有所改善。然而，鼓励接种可能更加棘手，特别是在疫情不那么明显的地方，如撒哈拉以南非洲国家”。
 
-世界卫生组织称，加强教育和打击错误信息可以提高世界这些地区的疫苗接种率。
 
-至于抗病毒药物，盖茨称 “相当令人印象深刻”，尽管它们都还没有被美国食品和药物管理局批准。这些药物如果获得批准，可以大大降低因Covid而住院和患重病的人数。
+据[零对冲](https://www.zerohedge.com/markets/ford-and-gm-could-soon-be-getting-semiconductor-production-business)11月19日报道，福特和通用汽车可能将开始垂直整合，通过生产来解决他们的半导体困境。
 
-制药商默克公司和辉瑞公司都向美国食品和药物管理局提交了他们的抗病毒Covid药物的数据，这些药物分别被称为Molnupiravir和Paxlovid。如果获得批准，可能在今年年底前在美国上市。本月早些时候，英国是第一个国家批准了Molnupiravir。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1466-ford-gm.png)图片来源：零对冲
 
-盖茨说可以在检测出阳性后立即服用这些药物。虽然消费者定价仍是未知数，但肯定比Remdesivir等静脉注射治疗更容易，而且可以为低收入国家重新配制成价格较低的版本。
+《华尔街日报》的一份新报告称，两家汽车制造商都在寻求进入半导体行业，事实上，福特已经与格芯（GlobalFoundries）达成开发芯片的战略协议，这一合作的重点是生产高端芯片，用于几年后的汽车，并实现其在美国的生产。
 
-在默克公司的临床试验中，未接种疫苗的轻度或中度染病者在出现症状后5天内服用Molnupiravir，与服用安慰剂的患者相比，住院率和死亡率降低了约50%。在辉瑞公司的试验中，Paxlovid和Ritonavir使高危患者的住院或死亡风险降低了89%。
+报道称，福特正在考虑开发芯片，帮助改善一些车辆功能。而通用汽车也在与高通和恩智浦半导体等公司合作，并已签订了生产芯片的协议。
 
-盖茨说，用疫苗和抗病毒药物，到今年夏天，Covid的严重疾病和死亡的比率 “应该会大幅下降”。但是，他警告说，“从现在到那时，这个时间表很容易被一种新的、更危险的Covid变体的出现所推翻。虽然现在证据表明[新的变体]不太可能出现，但可能性永远不可能被排除在外”。
+汽车制造商预计，由于市场的高需求，芯片短缺将在未来几个月甚至几年内持续。然而，自由市场将为行业的瓶颈找到解决方案，使危机转化为机遇。
 
-比尔盖茨向低收入国家，没有明显疫情的地方推广疫苗，并开始推广没有证实的药物，其险恶用心显而易见。大家行动起来，一起抵制有害疫苗和有害药物。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
 
-原文链接：
-[https://www.cnbc.com/2021/11/18/bill-gates-covid-pandemic-will-be-manageable-by-summer-2022.html](https://www.cnbc.com/2021/11/18/bill-gates-covid-pandemic-will-be-manageable-by-summer-2022.html)
+编辑/校对/发稿：小鹿
 
-* * *
 
-发稿 Spirit
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
 
 
 

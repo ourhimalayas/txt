@@ -2,70 +2,231 @@
 ---
 
 
-## 《我是音雄》第二季第十三期复赛|第四场节目预告
-` 我是音雄` [轉載自GNews](https://gnews.org/zh-hans/1681352/)
+## 习近平六中全会后的两个重大决策
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681421/)
 
-《我是音雄》第二季第十三期，复赛第四场将于美东时间2021年11月21日周日下午3点，即北京时间11月22日周一凌晨4点，在GTV正式开播。
+[https://gtv.org/video/id=6198bc6fe6900076612d2959](https://gtv.org/video/id=6198bc6fe6900076612d2959)
 
-请订阅喜马拉雅农场联盟频道：
+那么回来我们再看六中全会的时候
+Entonces cuando volvamos a ver la Sexta Sesión Plenaria
 
-GTV   [https://gtv.org/video/id=613ecf61751e4f2b0e518675](https://gtv.org/video/id=613ecf61751e4f2b0e518675)
+共产党的1943年和1981年2个重大的决议
+Las 2 grandes decisiones que hizo el PCCh en el 1943 y 1981
 
-Youtube   [https://youtube.com/channel/UC\_E99PLRQHapCyjREgnFyrg](https://youtube.com/channel/UC_E99PLRQHapCyjREgnFyrg)
+到今天的2021年重大决议
+Hasta el de 2021 de hoy en día
 
-* * *
+43年81年
+En el año 43 y 81
 
-GMUSIC – 我是音雄第二季第十三期 复赛第四场 共有10位选手：
+https://gtv.org/video/id=6198bc6fe6900076612d2959中国的军队什么样
+Cómo era el ejército de China
 
-**1****号选手：文天****（****纽约香草山农场****  ****）**
+当时要没要收回台湾
+En ese momento acaso no dijeron que iban a tomar de regreso a Taiwán
 
-本身从事医疗工作，现在香草山医疗部为战友提供医疗方面的帮助。在香草山的discord、盖特、以及GTV医疗部都能看到她的身影。非常喜欢音乐，声音美，初赛时歌声悠扬回旋，犹如身在剧院一样的感觉，舒适而享受。
+大家去看看历史去
+Todos vayan a ver la historia
 
-**2****号选手：進擊の番茄****  ****（台湾宝岛农场）**
+所有这个决议的时候
+Todos los momentos de esta decisión
 
-在农场和翻译组，尽自己所能传播爆料革命。相信信息传播的力量可以很大，不忽略每一个机会，她爱笑也容易羞涩脸红，所以起名番茄。选手拥有独特的声线，浑厚的女中音在初赛环节留下深刻的印象。
+就喊着打台湾比啥时候都响
+El grito de atacar a Taiwán era más fuerte que en cualquier momento
 
-**3****号选手：****Superman  ****（纽约香草山农场）**
+那个时候缺啥
+En ese momento había crisis de todo
 
-Superman美丽而大方，是一名专业音乐人，在《我是音雄》节目组的执行导演团队，指导和帮助参赛音雄们完成参赛前的准备工作，虽然辛苦但为能帮助到战友感到极为开心，也为节目组留下无数的欢乐。初赛时她的演唱令留言区掀起夺冠般的沸腾。
+中国缺粮食
+China carecía de comida
 
-**4****号选手：麥可****   ****（纽约香草山农场）**
+那个时候中国人需要什么
+En ese momento que necesitaban los chinos
 
-大家熟知的香草山农场医学部和GTV新闻访谈的医学博士麦可医生，初赛时一曲清唱《独上西楼》感染舞台。他专业深情的演唱让人沉醉其中，非常期待他复赛的精彩表现。
+要改革开放 这次是什么
+Necesitan una reforma económica y ¿ esta vez que es?
 
-**5****号选手：****Allen  ****（美国纽约香草山农场）**
+中国人不缺粮食
+A los chinos no les hace falta comida
 
-又是一位大家非常熟悉的战友。今年的六四新中国联邦成立一周年活动时，他同爱人，不顾辛苦，亲赴现场为战友做造型，让每位战友展现出最佳面貌。他在GTV也经常直播与大家分享灭共生活中的快乐，本人非常喜欢《我是音雄》以歌灭共节目，当之无愧初赛时成为台风及舞台造型候选人。
+中国继续这个事实上是坚决不开放
+De hecho, China sigue negándose a abrirse en esta realidad
 
-**6****号选手：郭七郎****  ****（加拿大温哥华英里农场）**
+继续打台湾 对待美帝国主义是什么
+Sigue atacando a Taiwán y cómo le trata al imperialismo estadounidense
 
-加拿大温哥华英里农场农场主，郭七郎拥有非常漂亮的女中音，初赛时自己设计的舞台效果，把节目再次推向高潮。参加音雄给农场战友们打气，希望大家勇敢来参加《我是音雄》，非常期待复赛再次听到她非常有魅力的女中音。
+我告诉你
+Yo te digo
 
-**7****号选手：****Emily****（纽约香草山农场）**
+对美国会越来越软
+Hacia Estado Unidos es cada vez más suave
 
-她是来自爆料革命家庭的一名在读高中生，已经是爆二代老战友。年纪不大，但参加了很多的爆料革命工作。初赛时评委赞扬选手灵性的声音条件非常好，期待她复赛精彩表现。
+嘴巴会狠喊
+Por la boca gritará ferozmente
 
-**8****号选手：****打不死小強****   ****（喜马拉雅新加坡狮城农场）**
+绝对越来越软
+Pero definitivamente será cada vez más suave
 
-亲身体会过在国内中共统治下的生活。作为爆料革命第二代，很开心从2017年跟随爆料革命，全家人没有打疫苗，感恩新中国联邦。初赛时的演唱音色非常好听，清澈、深情，发挥自由。期待他在复赛的精彩表现。
+第2个
+El segundo
 
-**9****号选手：政清****  ****（台湾宝岛农场）**** **
+美国人和西方人通过这个六中全会
+Los estadounidenses y los occidentales a través de esta Sexta Sesión Plenaria
 
-深受大家喜爱的台湾农场青年才俊，在文贵先生大直播、NEWS TALK 、农场GTV直播等都做了很多的优质的节目，政经分析评论，还有近期给大家鼓劲的《鸡血王 喜币大决战》节目，毫无保留将自己的的知识分享给战友们，干货满满。初赛时一出场就收获尖叫和粉丝无数！
+绝对会视共产党为更大的威胁
+Seguro verá al PCCh como la mayor amenaza
 
-**10****号选手：鬼五（纽约香草山农场）**
+第3个
+Tercero
 
-从小喜爱音乐艺术，过去在幕后做了很多的工作，对每份工作都会非常认真。对战友也是有求必应，热心回答技术问题，非常有耐心。初赛时在他温暖动人的歌声后，一段精彩脱口秀，将自身参加爆料革命经历分享给大家。
+习近平和邓小平和毛泽东不一样是他敢干
+A diferencia de Mao Zedong, Xi Jinping y Deng Xiaoping es que se atreven
 
-![](https://assets.gnews.org/wp-content/uploads/2021/09/Screen-Shot-2021-09-07-at-10.56.10-AM.png)
+绝对敢发起第3次世界大战
+Absolutamente se atreve a lanzar la Tercera Guerra Mundial
 
-G|Music创始人郭先生单曲打榜，向世界展示爆料革命、新中国联邦的实力，将“以歌灭共”推向高潮。音乐就是子弹，歌唱就有力量！《我是音雄》参赛战友将给大家带来什么样的感动呢？让我们拭目以待！
+他绝对敢打台湾
+Definitivamente se atreve a atacar Taiwán
 
-《我是音雄》文宣组： May
+邓小平敢弄印度敢弄这个越南
+Deng Xiaoping se atrevió lidiar con India y Vietnam
 
-编辑/审核：暗黑
+毛泽东敢到北朝鲜
+Mao Zedong se atrevió ir hasta Corea del Norte
 
-校正/发稿：正义的小新
+他绝对敢上台湾
+Él seguro se atreve ir a Taiwán
+
+就是习近平这次的六中全会的对内的所有的实行习皇制
+Es la implementación interna de Xi Jinping sobre el sistema imperial de Xi en esta Sexta Sesión Plenaria
+
+对外的实行 希特勒制
+Hacia el exterior implementa el Sistema de Hitler
+
+你一点都不用怀疑
+No lo necesitas dudar ni un poquito
+
+为什么呀
+Por qué será
+
+他下边的一个个的张万年
+Debajo de él tiene varios Zhang Wannian
+
+一个个的太监
+Varios eunucos
+
+还有今天他的这个战羊秦（刚）
+Y hoy en día su oveja guerrero Qing
+
+都会给他
+Se lo da
+
+还有这个
+También este
+
+特别是杨洁篪和王毅一定会执行下去
+Especialmente Yang Jiechi y Wang Yi seguro lo ejecutarán
+
+现在2个政策
+Ahora las 2 políticas
+
+你记住我今天说的话
+Recuerda lo que dije hoy
+
+这2个政策
+Estas 2 políticas
+
+会对外无限强硬
+Será infinitamente duro para el mundo exterior
+
+一定会再放毒
+Seguro seguirán soltando veneno
+
+然后在南海和东海问题上一定会强硬
+Entonces serán duros con los problemas del Mar de China Meridional y del Mar de China Oriental
+
+第2条记住兄弟姐妹们
+El segundo lo deben recordar hermanos y hermanas
+
+马上会把中国的经济私有企业
+Muy pronto la economía de las empresas privadas de China
+
+所有的人的财富和所有的东西都会收回到中央去
+Toda la riqueza de las personas y todo se devolverá a la central
+
+然后对所有在华的企业
+Y hacia las empresas que están en China
+
+能弄的弄能抢得抢
+Lo que se pueda tomar y hacer lo harán
+
+就是真正的实现
+Quiere decir, cumplir con el verdadero
+
+对内对外的资本的共产制
+El sistema comunista de capital interno y externo
+
+闭关锁国 完全拒绝对外改革开放完全自主 干自主道路
+Cerrar el país y negarse por completo a reformar y abrirse al mundo exterior
+
+自主研发 开拓创新 胸怀天下
+Investigar y desarrollar independientemente, ser pioneros e innovadores, cuidándose del mundo
+
+然后老子来搞你天下
+Entonces yo les hago el mundo
+
+这两件事儿就在发生
+Estos dos asuntos están sucediendo
+
+此时此刻
+En este preciso instante
+
+最后的结局是什么
+Cuál sería el final
+
+告诉体制内的战友们
+Decirles a los luchadores que están dentro del sistema
+
+你们的所有的问题是
+Todos los problemas de ustedes son
+
+你怎么让你活得更好
+Cómo hacerte vivir de una mejor manera
+
+活得你安全
+De una forma más segura
+
+我今天很抱歉的回答你们
+Lo siento mucho por responderles hoy en día
+
+没有一个人是安全的
+No hay una persona segura
+
+没有一个人可以再过得好的
+No habrá ni una persona que pueda pasarla bien
+
+一个都不会有
+No habrá ni uno
+
+**原视频网址**：[https://gettr.com/post/ph9jb973e8](https://gettr.com/post/ph9jb973e8)
+
+日期：11/19/2021
+原视频标题：习近平六中全会后的两个重大决策
+Las dos grandes decisiones de Xi Jinping luego de la Sexta Sesión Plenaria
+原视频日期：11/18/2021
+任务编号：KC268（2932）
+视频时间段：0:00-2:29
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

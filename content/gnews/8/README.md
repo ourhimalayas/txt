@@ -2,32 +2,28 @@
 ---
 
 
-## 恒大集团被香港恒生中国企业指数剔除
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681354/)
+## GTV新闻访谈简报|2021年11月20日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1681438/)
 
-**据《雅虎财经》记者：Alun John和Twinnie Siu，2021年11月19日报道：**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/789.jpg)图片取自原文
-香港《路透社》：基准指数提供商周五在定期进行的季度审查后表示，陷入困境的开发商中国恒大集团将从香港恒生中国企业指数中剔除。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2.png)
 
-恒生指数公司通常不会解释其指数变动的原因，在周五的声明中也没有说明。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-21.png)
+文章仅代表作者本人观点，与Gnews无关
 
-恒生中国企业指数旨在反映在香港上市的中共国内地公司的表现，包括按市值衡量的前50名合格股票。
+视频参看：2021.11.20早GTV新闻访谈
 
-恒大的股价今年至今已下跌超过80%。
-另外，恒生指数表示，他们已将科技公司京东和网易纳入基准恒生指数。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-恒生指数正试图将更多证券纳入其中，以使其更能反映在香港上市的公司情况。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov.jpg)
 
-**原文链接：**[https://finance.yahoo.com/news/evergrande-removed-hang-seng-china-124552543.html](https://finance.yahoo.com/news/evergrande-removed-hang-seng-china-124552543.html)
-
-翻译：洛杉矶盘古农场 — 小象的奶瓶
-校对：洛杉矶盘古农场 — 轰炸机
-编辑：洛杉矶盘古农场 — 心照
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
