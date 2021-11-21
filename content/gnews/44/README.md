@@ -2,30 +2,28 @@
 ---
 
 
-## 奥地利数万民众示威，抗议疫情封闭及强制疫苗新措施
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1681807/)
+## 11名澳大利亚护士对COVID疫苗的副作用爆料：我们被告知不要谈论我们所看到的东西
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682130/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-19.jpg)奥地利数万民众示威，抗议疫情封闭及强制疫苗新措施 网络图片
-据美国之音11月20日援引美联社报道，包括很多极右翼支持者在内的数万民众20日在奥地利首都维也纳示威，抗议奥地利政府宣布的新冠疫情封闭新措施以及明年强制接种疫苗的规定。奥地利政府19日宣布，22日开始再次实施封闭措施，并在明年2月1日开始强制疫苗接种。
+据《thecovidworld.com》，2021年11月20日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-514-e1637468058858.png)图片源自原文
+**在一段令人震惊的视频中，来自澳大利亚昆士兰州的11名护士和护理人员站出来，讲述了他们注射COVID-19疫苗的经历。这些护士的身份被遮住了，因为他们不敢说出来，但他们的身份在拍摄前被检查过并确认。在一系列令人痛心的故事中，护士们讲述了他们如何看到死亡和受伤的人堆积如山，但没有人被允许谈论此事。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-515-e1637468114282.png)图片源自原文
+护士们进一步表示，医院不再在入院病例上标注接种状态，医院的抢救警报器也被禁用，以避免吓到排队等候接种的人。此外，对于严重的不良反应，根本没有报告机制。
 
-大约有3万5000人参加示威活动，很多示威者在霍夫堡皇宫前的英雄广场挥舞奥地利旗帜，高举“不打疫苗”、“够了”和“打到法西斯独裁统治”等标语，抗议政府出台的新措施。极右翼的自由党和其它批评疫苗接种的团体在奥地利政府19日宣布上述新措施之前就已经策划20日在维也纳举行的示威活动。自由党领导人基克尔表示，“今天，奥地利是独裁政府。”
+**疫苗开始推广后，他们开始看到越来越多的中风病例，尤其是年轻人，神经系统疾病、心脏病发作、肺部充满液体、内出血、肠子和鼻子的外部出血以及人们通过大血块。一名护士描述说，超过50%的病人在接受疫苗接种后看起来”严重不适”，其中一些人在接受注射后晕倒在医院。 许多护士描述说，他们宁可失去工作也不愿意打针，有些人承认他们再也不会在医疗保健领域工作了。**
 
-奥地利本星期对未接种疫苗的人实施封闭之后，每日新增新冠病例依然在创纪录。世界各国人民在新中国联邦的影响下，越来越意识到接种疫苗并不能降低感染中共病毒的风险，反而加剧中共病毒的传播，更可怕的是疫苗会给接种者带来生命危险，一个个因为接种疫苗而失去生命的鲜活例子每天都在世界每一个角落上演，疫苗灾难一定会让世界人民更加看清中共丑恶的嘴脸，一定会集结所有正义之士铲除中共这颗毒瘤。
+原文连接：[https://thecovidworld.com/11-australian-nurses-blow-the-whistle-on-covid-vaccine-side-effects-we-were-told-not-to-talk-about-what-we-had-seen/](https://thecovidworld.com/11-australian-nurses-blow-the-whistle-on-covid-vaccine-side-effects-we-were-told-not-to-talk-about-what-we-had-seen/)
 
-新闻参考链接：[https://www.voachinese.com/a/march-in-vienna-against-covid-lockdown-20211120/6321699.html](https://www.voachinese.com/a/march-in-vienna-against-covid-lockdown-20211120/6321699.html)
+翻译：洛杉矶盘古农场- TrueSky
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+校对&编辑：洛杉矶盘古农场 – 小象的奶品
 
 
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

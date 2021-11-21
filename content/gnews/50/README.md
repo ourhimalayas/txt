@@ -2,10 +2,10 @@
 ---
 
 
-## 班农先生的政治理念
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1680818/)
+## 班农先生的重点事件
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1680872/)
 
-制作：The-world
+制作：peacelv
 
 发稿：信心的选择
 

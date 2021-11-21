@@ -2,109 +2,35 @@
 ---
 
 
-## 喜联储是中心化的行政体制
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682537/)
+## 捐款大不同
+` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1682580/)
 
-[https://gtv.org/video/id=6199cfa2e6900076612dcd75](https://gtv.org/video/id=6199cfa2e6900076612dcd75)
+By：银河勇气星｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/11/777-1.jpg)图：骄子
+是的，同样都是捐款，那区别真的大了去了，今天主要谈论的是政治捐款。有的捐款比如海外的伪类民运们，给你画个自由民主的大饼，画完就是伸手要捐款。前几年互联网上总是能看到有些伪类成立什么海外流亡政府，可能都没有线下的座谈会，社交媒体发点垃圾推文，后面就附上捐款信息。没认识文贵先生，没听爆料革命之前，看着这些伪类的精彩表演，尤其王丹魏京生吾尔开希这样的64大咖，时不时还有这些人和美国某些政府要员的合影，当然就傻傻地给这些人捐款，然而他们都拿来吃吃喝喝了。拿钱养骗子，真是太心塞了。况且这种戏码，总是能够骗来一批又一批的人，好似搞传销拉人头一样，总有人要来上这个当。
 
-郭文贵
-Miles Guo
+美国是全世界热爱民主自由的人们向往的地方，很多民主进程的推动者都籍靠了美国的支持。孙中山，蒋介石，宋美龄，都多多少少和美国建立过联系。孙中山那个年代，中国在进行着巨大的觉醒，大清瞬间倾覆，之后谁来主导这个东方神秘的国家，革命党人秉承着推翻清朝封建政府，建立一个“三民主义”的国家，把孙中山推上了临时大总统的位子。而孙中山在进行革命的那些年，同样采取了募捐的形势，文贵先生之前推荐的那本书《中国秘密社会史》里有很清晰地写到关于会党募捐来搞革命这方面的内容，以下是此募捐内容简述：
 
-告诉你，所有全人类只要是货币都是中心化的
-I tell you, all human beings’ currency are all centralized
+![](https://assets.gnews.org/wp-content/uploads/2021/10/截屏2021-10-01-下午7.09.57.png)
 
-只要是货币就是中心化，数字货币就是去中心化的，也有中心化的
-As long as the currency is centralized, the digital currency is decentralized, and there is also centralized
+孙中山创立了兴中会，兴中会的章程里介绍革命的费用“款项宜筹也”，革命这个事儿很大，用到的钱也多，所以成立了银会来接受社会各界的捐款。这个银会的款项，一用来革命费用“以济公家之急”，二用来投机“股友生财捷径”。大意就是号召大家来认股，一股科银十员，可认购一股到万股不等，收上来的银子存到银行。然后认购股份的人就给你发一个股票凭证，还承诺了“十可报百”、“万可图亿”，机不可失呀。
 
-你们要意识到，喜联储它是中心化的行政体制
-You have to realize that Himalaya Reserve is a centralized administrative system
+孙中山成立的这个接收捐款的银会是一个社会公益基金组织，不是一个盈利机构，那么当然这个所谓的认股行为就是违法的，这个银会不具备对外发股的资质。既然不能发股，那么承诺的“十可报百”、“万可图亿”就更加荒唐了。成立一个这样的组织，需要创始股东拿一大笔钱出来，但是书里没有涉及这个内容。甲午中日战争的时候，孙中山都是说服洪门拿钱出来买武器，他自己有没有拿钱出来，不清楚。所以作为兴中会的创始人，他有没有拿钱出来成立这个银会，不清楚。但是，我们必须承认的是，孙中山，成功了，成功推翻了几千年的封建帝制，用合法的民选的方式成为了中华民国大总统。
 
-它的价值太大了，就是一个去中心化的币
-Its value is too large, it is the decentralized coin
+1120是爆料革命法治基金成立三周年纪念日。法治基金是一个政治公益基金，本本分分在做着合法的事情，从成立到现在为止三年，帮助了无数个被共产党迫害的中国人，并继续向着消灭共产党这个目标努力着。美国有法律，用法律的方法来消灭共产党，为中国人建立一个“一人一票”的选举制度，这在中国人的历史上，做得这么合理规范合法的，有且只有文贵先生。
 
-但有人承担责任，这是为什么喜美元和世界要为此所震撼
-But someone takes responsibility, that’s why H dollar make the world so shocked by it
+法治基金成立是灭共的历史性事件，让中国的老百姓相信，这个世界有法律，中国人可以用法律来终结共产党的百年欺压，可以用合法的捐款来表明自己的态度。又由于法治基金成立的当天，文贵先生对王健死亡讯息的爆料，从而引出的共产党的邪恶一定会把这个世界埋葬，就更可想而之成立这个基金的初衷。卡丽熙战友当时说成立法治基金以后，很多伪类都告诉她说不要去捐款，作为1120会议的亲身参与者，当时她的前后左右坐着的那些人，现在已经都是伪类了。木兰战友讲述，不断有人刷屏式地捐，他似乎并不仅仅只是捐款，他是要借着捐款的名义来给文贵先生给爆料革命写留言，哈哈。共产党到底有多失民心，中国人到底有多痛恨共产党，从这里全都看得出。而且那些被选为做“财务”的角色，像美国小李，他说自己给战友订餐，现金支付要便宜一些，但是较麻烦；而卡支付方便一些，但要一点手续费。他宁愿选择那个省钱的方案，用法治基金的钱比用自己的钱更小心更节省。而作为初创者的文贵先生，不仅从一开始就拿出一亿美金，而且很多需要用到法治基金的款项，文贵先生都是事先垫付的家族基金的钱，如果是此项目成功了，才会算到法治基金里面。平时对一些战友的捐款行为，如果是条件不怎么好还是要去捐款的，往往就会反对此项捐款。
 
-是完全一个去中心化的技术，数字化货币就是分散式账本
-It is a completely decentralized technology, and digital currency is the distributed ledger
-
-不是中心化的账本，谁也拿不走，谁也偷不走，谁也不可监控
-it is not a centralized ledger, no one can take it away, no one can steal it, and no one can monitor it
-
-而且是全球化的，说当然是中心化的
-And it’s global, of course it’s centralized
-
-但是这件事如果有了问题，谁负责任，有一个中心化的责任，在那呢
-But if there is a problem, say responsible, there is a centralized responsibility, where is it?
-
-叫行政中心化，但是，只要是喜联储，它现在发行把喜币变成中心化纸币
-It’s called administrative centralization, but as long as it is the Himalaya Reserve, it is now issuing to turn H-Coins into centralized banknotes
-
-它印出来纸币来，就叫中心化的，他们早就在准备中会发纸币的
-When it prints out paper money, it is called centralized, they will issue paper money, it is in preparation for a long time
-
-甚至是金币都会发，就是什么，你拥有去中心化的资产
-Even gold coins will be issued, what is it, you own decentralized assets
-
-在某种条件下，又给你中心化性可衡量的资产，
-Under certain conditions, it gives you centralized and measurable assets
-
-一定不是印的钞票，它是可兑现的，
-It must not be the printed banknote, it is cashable
-
-比如说你拿了一万个币，印成了一个一万币的券
-For example, you took ten thousand coins and printed a ten thousand coins notes
-
-这一万个币券里面就你可以拿回来，你也可以拿走一万币和拿走等同一万币的资产
-You can take back this ten thousand currency notes, you can also take away ten thousand coins and take away assets of the same ten thousand coins
-
-包括大家现在最担心，也是最想的，未来提现你们想到的
-Including what everyone worries about now, and what you think about most that cash withdrawal in the future
-
-比如说用的金币，它发行，它一定不是全流通
-For example the circulated gold coin, it issued that it must not be fully circulated
-
-只给一些一定的客户，和大家有级别使用有选择使用的那些金币
-It is only for certain customers, and everyone has the level to use and choose to use those gold coins
-
-大家可以拿到，就是任何情况下，你可以完全中性化的交易
-Everyone can get it, that means under any circumstances, you can completely neutralized the transaction
-
-就草根小哥手滑手的，我给QMAY中心化的币
-As for Caogen brother gives QMAY centralized currency
-
-拿到手就是你的一个完全去中心化的技术，
-Using a completely decentralized technology
-
-管理体制和未来中心化的流通的币，区块链它厉害的
-The management system and the future centralized circulation of the coins, the blockchain is powerful
-
-叫全球的，谁也不可查，不可控，去账本化，去中心化的账本化管制叫区块链
-It’s called global transactions, no one can check it, uncontrollable, de-booking, decentralized book ledger control is called blockchain
-
-区块链就是全球账本化，没有中心化的账本，不可控的
-Blockchain is a global ledger, without a centralized ledger, it is uncontrollable
+法治基金之后，随着G系列，喜联储的正常运行，爆料革命新中国联邦在一步一步脚踏实地盯着脚下的路走着。别忘了孙中山当年那个操作要逊色多了，居然都成功了。我们今天比起那个时候来不知道先进多少倍了，今天的全世界局势虽然也比那个时候要恶劣一些，但也没有超出太多。所以这次，该我们赢了。
 
 * * *
 
-Date:11/19/2021
-原视频标题: 喜联储是中心化的行政体制
-Himalaya Reserve is a centralized administrative system
-原视频日期：2021/11/17
-原视频链接 [https://gettr.com/post/ph99osbf29](https://gettr.com/post/ph99osbf29)
-任务编号：KC272（2930）
-视频时间段 : 0:00-2:19
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+作者：骄子
+审核：兵嫂
+发布：骄子
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

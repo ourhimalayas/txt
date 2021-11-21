@@ -2,40 +2,156 @@
 ---
 
 
-## 布罗陀接种率已达100% 现敦促取消圣诞庆祝活动
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1682460/)
+## 文化大革命创新版，坚持皇帝制
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682514/)
 
-**编译： Jenny Ball**
+[https://gtv.org/video/id=619933ade6900076612d8e6e](https://gtv.org/video/id=619933ade6900076612d8e6e)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip34.png)
+你要看到十个坚持每一个字
+Debes ver cada letra de las diez persistencias
 
-英国领土小国直布罗陀是世界上接种疫苗最多的地区之一，其政府官员宣布，由于 COVID 感染人数增加，今年的官方圣诞节庆祝活动将被取消。
+就是两个宣布
+Se realiza dos anuncios
 
-人们经常提到，“**地球上接种疫苗最多的地方”是什么样子的**？ 那时 100% 的符合条件的公民都已接种了冠状病毒。
+中国停止任何的经济改革开放
+China cesa cualquier reforma económica y apertura
 
-据卫生官员称，自 3 月以来，该领土上的每个成年人都已接种了 COVID 疫苗，该地区人口约为 34,000 人， 一份报告实际上表明，该地区的疫苗接种率高于 100%。
+记住啊, 从那一刻起
+Recuerden, a partir de ese momento
 
-“超过 118% 的直布罗陀人口都接种了 Covid-19 疫苗，由于每天越过边境工作或访问该领土的西班牙人接种了疫苗，这一数字超过了 100%，” 《电子涡轮新闻》（eTurboNews ）报道。
+中国人绝对是回到了文化大革命的时代
+Los chinos definitivamente regresaron a la era de la Revolución Cultural
 
-尽管距离圣诞节还有五个星期，而且疫苗接种率很高，但地中海地区大约 2.6 平方英里的地区的官员警告人们，不要举行圣诞节聚会和庆祝活动。
+但是, 你看它这里面很有意思啊
+Pero mire que dentro de esto tiene su sentido
 
-“直布罗陀在整个 10 月，经历的 COVID-19 活跃病例的稳步增长一直持续到 11 月，**并且在过去几天变得更加指数化**，”上周的一项政府咨询宣布。“这意味着,公众必须以谨慎和明智的方式行事，同时牢记,我们仍处于全球大流行中，全世界每天都有人在失去生命。
+他认为文化大革命是一场过去的一种失败啊, 什么什么的
+Él cree que la Revolución Cultural es un fracaso del pasado
 
-“敦促公众避免大型聚会，在法律规定的情况下或感到不舒服时戴口罩，并与他人保持谨慎的社交距离。”
+但是他搞了个新的文化大革命
+Sin embargo, él ahora hizo una nueva Revolución Cultural
 
-忽略有关疫苗效力的明显问题，直布罗陀的人们可以采取哪些不同的做法？ 根据数据，这个小领土上的每个人，都遵循了公共卫生官员的建议,他们都接种了疫苗。
+很多人说习近平没有给文化大革命平反, 他就不搞文化大革命
+Mucha gente dice que, si Xi Jinping no reivindica la Revolución Cultural, no participaría en la Revolución Cultural
 
-**评论：这就是有良知医学专家的警告：疫苗是易感Covid 的原因，是促发Covid变种的原因，mRNA和刺突蛋白造成各种猝死的元凶！政府逼迫100%人民充当试验老鼠，置人民生命为草芥，声称什么“疫苗可以保护人们免受感染”。**
+这是脑子里进了狗屎了, 吃了我们Snow的狗屎才会说的话
+Esto implica que se le metió el excremento del perro en la cabeza, dijo estas palabras porque comió el excremento de nuestro Snow
 
-**新闻来源：**[westernjournal.com] [City That Hit 100% Vaccination Rate in March Now Urging Cancellation of Christmas Celebrations over Virus Fears](https://www.westernjournal.com/city-hit-100-vaccination-rate-march-now-urging-cancellation-christmas-celebrations-virus-fears/?utm_source=Email&amp;utm_medium=conservative-brief-CT&amp;utm_campaign=dailyam&amp;utm_content=conservative-tribune&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
+坚持坚决不改革开放, 没有任何改革的词语
+Insiste resueltamente a no reformar y abrirse, no hay ninguna palabra de reforma
+
+第二个, 最大的问题大家没有看到
+El segundo, no vieron el mayor problema
+
+坚持一党独裁
+Insiste a una dictadura de partido único
+
+中国搞了皇帝制
+China se ha comprometido con el sistema imperial
+
+习近平在那个新闻发布会已经宣布成神了, 成神话了
+Xi Jinping había declarado en esa conferencia de prensa que se había convertido en un dios, un mito
+
+在这之前, 有习近平跟着我太阳走的感觉
+Antes de esto, se siente que Xi Jinping me estaba siguiendo bajo el sol
+
+北京城搞了音乐会
+En la ciudad de Beijing se hizo un concierto
+
+而且北京几个我们唐平的那些哥们儿
+Y nuestros hermanos de Tang Ping en Beijing
+
+Qmay那个领域里面
+Dentro de ese ámbito de Qmay
+
+叫做乐坛, 音乐吐的痰
+Llamado la escena musical, el escupitajo de la música
+
+内部搞了上百次, 所谓中国音乐家, 艺术家
+Se hizo cientos de veces internamente, los llamados músicos y artistas chinos
+
+都带家
+En mandarín, estas palabras llevan la palabra “casa”
+
+都带家的啊, 音乐家, 艺术家
+Como músicos y artistas
+
+中国共产党所谓过去, 若干决定当中的一些思考
+El llamado pasado del PCCh, en cuanto a sus decisiones y pensamientos
+
+上百起都是主题, 跟着我的太阳走
+Más de cien tópicos son “siguiendo los pasos de mi sol”
+
+太阳啊
+Sol
+
+习近平已经是太阳了
+Xi Jinping ya es un sol
+
+月亮都不当了
+Ya no quiere ni siquiera ser luna
+
+咱最多做了个梦
+Nosotros por más que sea sólo soñamos
+
+咱叫H-coin to the moon
+Nosotros llamamos H-coin a la luna
+
+他是H-coin to the太阳
+Él es H-coin al sol
+
+哇赛, 比我大多了
+¡Wow! Es más grande que yo
+
+我们这词叫Qmay, 唐平整太小了
+Este vocabulario lo decimos Qmay, Tang Ping lo hizo muy pequeño
+
+人家是去太阳, 咱是月亮
+Ellos van a donde está el sol y nosotros es la luna
+
+月亮围着太阳转, 完了吧
+La luna gira alrededor del sol, esto se acabó
+
+你输了吧
+Ya perdiste
+
+这共产党吹牛, 吹太大了
+Este Partido Comunista se jacta, se jacta demasiado
+
+这种结果是什么
+Cuál es su resultado
+
+中国回到了绝对的皇帝制
+China regresó absolutamente al sistema imperial
+
+十个坚持的结果. 坚决不改革开放
+El resultado de diez insistencias, resiste no cambiar a la revolución y la apertura
+
+坚决把私有经济灭掉, 控制中国的一切
+Insiste eliminar a la economía privada y controlar todo de China
+
+坚持绝对的皇帝制
+Se insiste al sistema de emperador absoluto
 
 * * *
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+日期：11/20/2021
+原视频标题：文化大革命创新版，坚持皇帝制
+Versión innovadora de la Revolución Cultural, insistir al sistema del emperador
+原视频日期：11/19/2021
+原视频网址：[https://gettr.com/post/phdgzc0535](https://gettr.com/post/phdgzc0535)
+任务编号：KC274(2946)
+视频时间段：0:00-2:19
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
