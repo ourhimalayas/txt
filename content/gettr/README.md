@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/21/2021 3:23 AM (UTC)`
+
+11/20/2021 [3rd Anniversary of 1120] Mr. Bannon: China is the greatest ally of the United States in World War II. Only the Chinese people can free the Chinese people.<br/><br/>11/20/2021【1120三周年纪念】 班农先生：中国是美国在第二次世界大战中最大的盟友，解放中国要靠中国人自己。<br/>
+![img](https://media.gettr.com/group23/getter/2021/11/21/03/23/e71b3173-d492-7aa2-4003-b5933b6b294c/out.jpg)
+
+---
+
+`@miles 11/21/2021 3:18 AM (UTC)`
+
+11/20/2021 [3rd Anniversary of 1120] Steve Bannon: It is the Chinese people’s grit, determination, and belief in family values and tradition that support me to fight for democracy and freedom on behalf of them; the Chinese Lao Baixing and the American Lao Baixing share the same qualities, which will eventually take down the CCP<br/><br/>11/20/2021【1120三周年纪念】班农先生：支持着我为中国人争取民主和自由而战的是中国人的意志力、决心、对家庭与传统价值的敬奉和传承；中国老百姓和美国老百姓有着同样的品质，而正是这些品质将最终灭掉中共<br/>
+![img](https://media.gettr.com/group1/getter/2021/11/21/03/18/74fea1b1-7bb9-698c-db23-5e991a47be20/out.jpg)
+
+---
+
 `@miles 11/21/2021 3:06 AM (UTC)`
 
 11/20/2021 [3rd Anniversary of 1120] Steve Bannon: By working closely with the Whistleblowers’ Movement, the most importantly work of the Rule of Law Foundation (ROLF) is to help get more people out of Communist China to help the West understand the evilness of the CCP and show the world why the Chinese need rule of law<br/><br/>11/20/2021【1120三周年纪念】班农先生：法治基金最重要的工作是通过爆料革命紧密合作，从中共国解救更多的人出来，从而让西方认清中共的邪恶并告诉世界中国人为什么需要法治<br/>
@@ -288,21 +302,6 @@ An orthopedic surgeon from Wisconsin described the serious side effects after hi
 
 11/17/2021 Miles Guo: The CCP virus, the New Federal State of China (NFSC), the Taiwan Strait crisis, and the South China Sea were the topics avoided during the Biden-Xi meeting; only Xi could talk about the COVID vaccines, implying that the vaccines will bring an enormous catastrophe to humankind. Everyone shall be prepared for the worst case scenario; the NFSC is the only community that reveals the truth about the CCP virus and its vaccines, uniting the fellow Chinese to survive together<br/><br/>11/17/2021 文贵直播：习拜会避谈病毒、新中国联邦、台海危机和南海问题；只有习可以谈疫苗，这意味着疫苗将导致人类大劫难，请大家做好最坏打算；新中国联邦是唯一揭露病毒和疫苗真相并让同胞们抱团取暖的群体<br/>
 ![img](https://media.gettr.com/group11/getter/2021/11/17/22/42/4ca2f600-8518-6e0f-5157-1b134a9e7117/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@richardabelson 11/17/2021 5:42 PM (UTC)`
-
-@DavidBerger_PP writes on "Philosophia Perennis" about @jasonmillerindc welcoming him on @GETTR :<br/><br/>https://philosophia-perennis.com/2021/11/17/grossartig-gettr-chef-jason-miller-heisst-philosophia-perennis-willkommen/
-
----
-
-`@miles 11/17/2021 6:34 PM (UTC)`
-
-11月17日：七哥在茅屎坑里渡过的岁月，心中有万佛万神．还能与魔鬼打交道……最重要的事情要实现自己的目标……在这个过程当中能保持洁身自重！醉而不乱……分享成功与利益，而不乱法．失,,德！才是考验一个人的本性……是否能走向成功最关键的根本性基础！
-![img](https://media.gettr.com/group7/getter/2021/11/17/18/6ed145d8-2030-22e9-2122-7362d70543ad/0c4958bc5c519665391fb2e49731cd94.jpg)
 
 ---
 

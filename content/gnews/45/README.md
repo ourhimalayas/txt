@@ -2,36 +2,41 @@
 ---
 
 
-## 麦克库罗医生提告医疗期刊公司
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1680554/)
+## 球星坎特持续抨击中共人权问题 批詹姆斯“金钱高于道德”
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1680727/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月19日，相关媒体报道称，美国心脏科医生麦克库罗控告爱思薇尔期刊出版社掩盖新冠疫苗真相。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-20-下午10.45.47.png)圖片來源：2017年，石正麗在武漢病毒研究所。CHINATOPIX，VIA ASSOCIATED PRESS
-据悉，爱思薇尔期刊出版社于今年10月撤稿一篇题为“新冠疫苗造成心肌炎”的论文，该论文的作者即为麦克库罗医生。医生表示，爱思薇尔期刊原本已经刊登此篇论文，后因FDA正在讨论紧急授权5至11岁儿童使用新冠疫苗的问题，该期刊撤稿了此篇论文。医生认为，这种行为违反合约。因此，医生将对该期刊公司进行全面性的法律诉讼。
+#### 作者：日本东京方舟农场 子辰
 
-另据麦克库罗医生称，爱思薇尔要对公众及科学界隐瞒这一重要研究的原因在于，真正的科学已经驳斥了这些实验性新冠疫苗所自称的 “安全性”和 “有效性”。医生指出，因注射新冠疫苗导致的心肌炎通常在注射第二剂辉瑞或莫德那疫苗后的数天内爆炸性发生。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/B8E4D44A-4940-4C5B-B794-F4CB8F381233.jpeg)图片来源：美国之音
 
-麦克库罗医生强调，爱思薇尔期刊公司拥有全系列的医学期刊，掌控了绝大部分医学论文的发言权。因此，该公司对医学论文的不当审查行为，涉嫌掩盖有关新冠疫苗信息的真相。而这种审查方式是对科学的戕害。
+据《美国之音》11月20日报道，美国职业篮球明星埃内斯·坎特（Enes Kanter）11月18日再次在推特上对中共的人权问题发起抨击，并批评以勒布朗·詹姆斯为代表的一些运动员为了利益对中共恶行噤声不语。
 
-参考链接：
-1）[Dr. McCullough sues Elsevier journal for refusing to publish study highlighting risks of covid “vaccination” in children](https://www.newstarget.com/2021-11-18-mccullough-sues-elsevier-study-covid-vaccines-children.html)
-2）[COVID-19 vaccine-myocarditis paper to be permanently removed: Elsevier](https://retractionwatch.com/2021/10/25/covid-19-vaccine-myocarditis-paper-to-be-permanently-removed-elsevier/)
+过去的一个月来，坎特分别就新疆、西藏、香港、台湾以及强摘器官等问题批判中共。此外，他的最新推文还将目标锁定明星球员、洛杉矶湖人队的勒布朗·詹姆斯（LeBron James），批评詹姆斯的价值观是“金钱高于道德”，为了利益讨好中共。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+此前，坎特在与纽约尼克斯队的一场比赛中，穿着印有“自由西藏”字样的球鞋上场，导致后来中共禁播了凯尔特人队的赛事。坎特之后还透露，当时有两名NBA官员请求他脱下那双鞋子。
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+“批评运动研究”学者、美国陶森大学（Towson University）访问讲师孙又揆（Daniel Yu-Kuei Sun）对《美国之音》表示，他不同意一些网友所说的坎特批判中共人权是为了吸引眼球，获取关注。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+孙又揆指出，坎特是为所有弱势群体发声，包括人权问题、西藏、新疆、维吾尔、香港及台湾。坎特就是觉得他在做对的事情，他认为极权政府的做法是错误的，理应发声批判。
+
+好莱坞制片人、《喂食中国龙》一书的作者克里斯·芬顿（Chris Fenton）也称赞坎特在批评中共方面的做法“非常不同凡响”。他表示，对于许多名人、运动员以及运动联盟和众多企业来说，中共是巨大的收入来源。人们为此非常不情愿批评中共，也避免触碰这样的话题。而坎特绝对是出类拔萃的，没有几个有影响力的人物敢于涉足这个雷区。
+
+由于之前在2019年香港反送中运动期间，休士顿火箭队总经理莫里通过推特表达对香港抗议者的支持，引发中共不满，NBA当时为了商业利益出面向中共道歉，但却招来美国国内一片声势浩大的批评声。最终让NBA陷入双输：既损失了商业利益，又丧失了道德制高点。因此，在坎特此次抨击中共人权问题后，NBA始终保持低调。总裁萧华只是告诉坎特，他这么做“没有违反规定”。
+
+坎特是出生在瑞士苏黎世的一名土耳其人，曾经效力过土耳其国家篮球队。他在2015年发表声明支持民主价值观，并公开批评时任土耳其总理埃尔多安，因此被土耳其国家队开除，他的土耳其护照也被取消了。坎特随后定居美国后，还曾因害怕离开美国会遭到土耳其政府暗杀，而放弃过参加NBA伦敦站的比赛。
+
+上个月，土耳其政府对坎特签发了四年中的第十份逮捕令。粉丝评论说，“他唯一的犯罪是有勇气反对压迫。”
+
+*新闻链接： [https://www.voachinese.com/a/Kanter-slams-lebron-james-on-china-20211119/6320095.html](https://www.voachinese.com/a/Kanter-slams-lebron-james-on-china-20211119/6320095.html)*
+
+* * *
+
+*素材采编：子辰*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

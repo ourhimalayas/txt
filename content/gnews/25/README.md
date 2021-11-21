@@ -2,155 +2,102 @@
 ---
 
 
-## 喜币的优势绝对是现今区块链发展的方向
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681477/)
+## Facebook等社交媒体无法和GTV盖特比拟
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681507/)
 
-[https://gtv.org/video/id=61992de2e6900076612d8985](https://gtv.org/video/id=61992de2e6900076612d8985)
+[https://gtv.org/video/id=61992e4ae6900076612d89dc](https://gtv.org/video/id=61992e4ae6900076612d89dc)
 
-**郭文贵
-Miles Guo**
+**郭文贵**
+**Miles Guo**
 
-(区块链专家 )他说，当区块链技术
-He (blockchain expert）said that when blockchain technology
+我昨天跟摩根先生说，它是垃圾
+I told Mr. Morgan yesterday that it was garbage
 
-在2020年年底之后
-after the end of 2020
+摩根先生讲，你什么意思？
+Mr. Morgan said, “What do you mean?”
 
-在逐渐普及之后
-gradually became popular,
+我说它是垃圾。它是什么垃圾？
+I said it’s garbage. Why?
 
-它基本上不会让人相信银行
-it basically would make no people trust the bank
+我说Facebook、Instagram、Youtube都是垃圾
+I said Facebook, Instagram, Youtube are all garbage
 
-他说如果在区块链得到应用
-He said if the blockchain has been applied
+因为他有时候耳朵不太好，有时候我的英文他又听不太清楚
+Because sometimes his hearing are not good, and sometimes he can’t understand my English very well
 
-记住啊，要得到应用
-Remember, it has to be applied
+他就说为什么啊？
+He asked why?
 
-特别是它的流通没有层次、没有阶级
-Especially when its circulation has no hierarchy or class,
+因为他们没有支付系统
+Because they don’t have a payment system
 
-普遍性、支付性达到的时候
-and when its universality and payment availability is reached
+它是销售个人数据
+It’s selling personal data
 
-没有任何人再相信政府和相信银行
-There would be no one to trust the government and the bank anymore
+盖特最重要的是它有支付系统，还不销售个人数据
+The most important thing about Gettr is that it has a payment system, but it doesn’t sell personal data
 
-2021年我们将看到去中心化存储、去中心化金融
-In 2021, we would see decentralized storage and decentralized finance,
+它有原罪，我们没原罪
+It has the original sin, and we don’t
 
-和非政治性货币的飞速发展
-and the rapid development of non-political currencies
+它们必然被消灭，我们必然是永久生存而且是唯一的
+They’re bound to be wiped out, we’re bound to live forever and be the only ones
 
-我认为表现最好的将是加密货币和比特币、以太坊
-In my opinion, the best performers would be cryptocurrencies and Bitcoin and Ethereum
+有道理，是吧？
+Makes sense, doesn’t it?
 
-然而我们希望继续在2022年看到成功
-However, we hoped to continue to see success in 2022
+GTV一定是全世界最好的视频直播平台
+GTV must be the best live video platform in the world
 
-以太坊的扩展范围需要在2021年得到解决
-Ethereum’s extended scope needed to be resolved in 2021
+唯一的平台
+The only one
 
-但是下一个专家说得很清楚
-But the following expert made it very clear
+七哥说的话是吹牛吗？
+Am I bragging?
 
-不能流通的虚拟货币
-Virtual currencies that could not be circulated
+你觉得我一年前说这话，你们肯定不信
+You wouldn’t have believed me when I said that a year ago
 
-几乎都会被淘汰
-would almost always be eliminated
+现在你觉得是吹牛吗？
+Do you think it’s bragging now?
 
-在支付普遍性情况下的货币
-In the case of universal payment currency
+就这GTV，就这盖特，你知道，今天战友们记住啊
+Just the GTV and Gettr, you know, my fellow comrades remember
 
-和有稳定性的货币一定是世界的金融之王
-and stable currency must be the king of finance in the world
+更新你的手机软件，盖特软件，你就可以手机直播了
+Update your cell phone software, Gettr software, you can use your cell phone to go livestream
 
-这就是人类的劳动和时间换来的生产结果
-and those were the results that exchanged from human’s labor and time
+你可以现在电脑直播，手机直播，而且我们还有同生字幕，中英文
+Now you can broadcast live on your computer, live on your phone, and there are simultaneous subtitles in English and Chinese on the Gettr platform
 
-不应该被政府垄断
-It should not be monopolized by the government
+而且现在的这个可以达到5K推流
+And now the clarity can reach 5K push stream
 
-不应该被一个某个政府所定价
-It should not be priced by a certain government
+我告诉兄弟姐妹们，你们就看到这一点功能的增加
+I tell you brothers and sisters, you just see this little increase in functionality
 
-区块链的到来
-The arrival of the blockchain
+它的价值是多大
+How valuable it is?
 
-把医学、科技、想法、知识全变成了
-has turned medicine, technology, ideology, and knowledge
+昨天盖特和今天的盖特最起码增长50%
+Gettr increases at least 50% in yesterday and today
 
-端到端的、公平的、去第三方去中心化的衡量资产的标准
-into end-to-end, fair, and third-party decentralized standards for measuring assets
+如果它昨天市值1000亿的话，今天就涨了500亿
+If its market value was $100 billion yesterday, it’s add up $50 billion today
 
-这是多么伟大呀
-How great this is
+就因为这一个功能
+Just because of this one feature
 
-最重要的事情
-The most important thing is that
+Date: 11/16/2021
+原视频标题: Facebook等社交媒体无法和GTV 盖特比拟
+Facebook and other social media can’t compete with GTV and Getter
+原视频日期：2021/11/12
+任务编号：KC271（2898）
+视频时间段 : 0:00-1:28
 
-其中这仨哥们都说到
-among what these three buddy friends have said,
-
-全世界所有区块链的核心要点
-all the key points of all blockchains in the world
-
-全被喜联储给抓到了
-have been in possession of the Himalaya Reserve
-
-没有支付的货币一定没有未来，都得滚蛋
-Currency without a payment system will certainly have no future and would be eliminated
-
-你别忘了
-Please don’t forget
-
-IBM是整个区块链的核心要素
-IBM is the core element of the entire blockchain
-
-IBM的电脑里的有一种语言说得非常清楚
-And there is a language in IBM computers that speak very clearly that
-
-所有的区块链的最终的存在不存在的结果和价值
-the final existence and value of all blockchains
-
-衡量在你是否遵守区块链的去账本化的加密技术
-and the measurement of whether you comply with the de-booking encryption tech-nology of the blockchain
-
-就是保密安全
-is confidentiality and security
-
-咱们喜币牛就牛在这
-This is the extraordinary thing about our HCoin
-
-它能流通，是在全球啥都能买
-It can be circulated, and you can buy anything with it globally
-
-不但如此
-Not just this
-
-我可以稳定欧元
-I can stabilize the euro (with the HCoin)
-
-我想稳定谁稳定谁
-I can stabilize whoever I want (with the HCoin)
-
-所以咱的喜币牛的不是一般了
-Therefore, our HCoin is not just average, its extraordinary
-
-**原视频链接:** [https://gettr.com/post/pgywfk3cdf](https://gettr.com/post/pgywfk3cdf)
-
-Date: 11/14/2021
-原视频标题: 喜币的优势绝对是现今区块链发展的方向
-The advantage of HCoin is definitely the direction of current blockchain develop-ment
-原视频日期：2021/11/14
-任务编号：KC270（2897）
-视频时间段 : 0:00-2:17
-
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
+英听校：洛杉矶盘古农场 – Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – Layka
 字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
