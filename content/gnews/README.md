@@ -15,122 +15,122 @@
 
 ---
 
-### [伊利诺伊州养老金缺口超过 5000 亿美元，现在每个家庭的平均债务负担为 110,000 美元](/content/gnews/1/README.md)
+### [维也纳万人游行反对封锁措施](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [伊利诺伊州养老金缺口超过 5000 亿美元，现在每个家庭的平均债务负担为 110,000 美元](/content/gnews/2/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [DC每日热点1121](/content/gnews/2/README.md)
+### [DC每日热点1121](/content/gnews/3/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美打造印太新新经济框架向中共施压](/content/gnews/3/README.md)
+### [美打造印太新新经济框架向中共施压](/content/gnews/4/README.md)
  ` GTV新闻访谈`
 
-### [班农先生和郭先生回顾1120新闻发布会和法治基金法治社会成立](/content/gnews/4/README.md)
+### [班农先生和郭先生回顾1120新闻发布会和法治基金法治社会成立](/content/gnews/5/README.md)
  ` GTV新闻访谈`
 
-### [继欧洲议会、德国和美国之后 英国也考虑外交抵制北京冬奥会](/content/gnews/5/README.md)
+### [继欧洲议会、德国和美国之后 英国也考虑外交抵制北京冬奥会](/content/gnews/6/README.md)
  ` GTV新闻访谈`
 
-### [中共国因台湾问题下调与立陶宛的外交关系](/content/gnews/6/README.md)
+### [中共国因台湾问题下调与立陶宛的外交关系](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共正在加剧21世纪毁灭整个民族的方法](/content/gnews/7/README.md)
+### [中共正在加剧21世纪毁灭整个民族的方法](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [喜币在迪拜买房的意义](/content/gnews/8/README.md)
+### [喜币在迪拜买房的意义](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [GTV自动多语言字幕功能在1120大直播中应用](/content/gnews/9/README.md)
+### [GTV自动多语言字幕功能在1120大直播中应用](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [我们叫新中国联邦](/content/gnews/10/README.md)
+### [我们叫新中国联邦](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国老百姓的3个不允许](/content/gnews/11/README.md)
+### [美国老百姓的3个不允许](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [盖特新功能“Instagram导入”开始内测](/content/gnews/12/README.md)
+### [盖特新功能“Instagram导入”开始内测](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [NIH 主任要求将 COVID 的“阴谋家”绳之以法](/content/gnews/13/README.md)
+### [NIH 主任要求将 COVID 的“阴谋家”绳之以法](/content/gnews/14/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [HPay上线，喜币开启价值，等待3年就是人生赢家](/content/gnews/14/README.md)
+### [HPay上线，喜币开启价值，等待3年就是人生赢家](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [原中共解放军总参谋长曾欲揭露中共的秘密军事项目](/content/gnews/15/README.md)
+### [原中共解放军总参谋长曾欲揭露中共的秘密军事项目](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [中共六中全会三大内容](/content/gnews/16/README.md)
+### [中共六中全会三大内容](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文化大革命创新版——坚持皇帝制](/content/gnews/17/README.md)
+### [文化大革命创新版——坚持皇帝制](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [背叛 betray](/content/gnews/18/README.md)
+### [背叛 betray](/content/gnews/19/README.md)
  ` 骄子`
 
-### [解读六中全会的10个坚持——锁国独裁](/content/gnews/19/README.md)
+### [解读六中全会的10个坚持——锁国独裁](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共房地产就是奴役中国人的最佳工具](/content/gnews/20/README.md)
+### [中共房地产就是奴役中国人的最佳工具](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国北部、西部各州出现 COVID-19 病例激增](/content/gnews/21/README.md)
+### [美国北部、西部各州出现 COVID-19 病例激增](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [郭文贵先生：强者面前永远不会有人家](/content/gnews/22/README.md)
+### [郭文贵先生：强者面前永远不会有人家](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新的人类共同体](/content/gnews/23/README.md)
+### [新的人类共同体](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共舰艇军机频繁骚扰日本领海领空](/content/gnews/24/README.md)
+### [中共舰艇军机频繁骚扰日本领海领空](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
 
-### [全球邪恶势力制造疫苗大灾难的动机是什么](/content/gnews/25/README.md)
+### [全球邪恶势力制造疫苗大灾难的动机是什么](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [纳瓦罗先生指出每一个美国人都应该成为对中共的鹰派](/content/gnews/26/README.md)
+### [纳瓦罗先生指出每一个美国人都应该成为对中共的鹰派](/content/gnews/27/README.md)
  ` 纽约香草山MOS01`
 
-### [欧洲经济区超3万人死于中共病毒疫苗！](/content/gnews/27/README.md)
+### [欧洲经济区超3万人死于中共病毒疫苗！](/content/gnews/28/README.md)
  ` 军迷wilson`
 
-### [GTV新闻访谈简报|2021年11月21日早](/content/gnews/28/README.md)
+### [GTV新闻访谈简报|2021年11月21日早](/content/gnews/29/README.md)
  ` 纽约香草山MOS01`
 
-### [11/21/21 香港快讯 田飞龙倡「投票率加权」 叶国谦不点名斥近乎无聊](/content/gnews/29/README.md)
+### [11/21/21 香港快讯 田飞龙倡「投票率加权」 叶国谦不点名斥近乎无聊](/content/gnews/30/README.md)
  ` 英喜-粵語組`
 
-### [11/20/2021【1120三周年纪念】班农先生：你作为人的权利是神赋予的，但信仰无神论和唯物主义的中共却妄图利用科技来当上帝](/content/gnews/30/README.md)
+### [11/20/2021【1120三周年纪念】班农先生：你作为人的权利是神赋予的，但信仰无神论和唯物主义的中共却妄图利用科技来当上帝](/content/gnews/31/README.md)
  ` 秘密翻译组-北美组`
 
-### [11/20/2021【1120三周年纪念】郭先生：班农先生是个真正有信仰的、高贵的人，他从未有任何性丑闻，也不愿意拿老百姓的钱，相比之下共产党简直太低级了才](/content/gnews/31/README.md)
+### [11/20/2021【1120三周年纪念】郭先生：班农先生是个真正有信仰的、高贵的人，他从未有任何性丑闻，也不愿意拿老百姓的钱，相比之下共产党简直太低级了才](/content/gnews/32/README.md)
  ` 秘密翻译组-北美组`
 
-### [11/20/2021【11·20王健之死新闻发布会三周年】班农先生：我们新中国联邦需要培养更多有创业技能、熟谙商业、金融和市场营销等方面的人才](/content/gnews/32/README.md)
+### [11/20/2021【11·20王健之死新闻发布会三周年】班农先生：我们新中国联邦需要培养更多有创业技能、熟谙商业、金融和市场营销等方面的人才](/content/gnews/33/README.md)
  ` 秘密翻译组-北美组`
 
-### [11/20/2021【11·20王健之死新闻发布会三周年】班农先生：支持着我为中国人争取民主和自由而战的是中国人的意志力、决心、对家庭与传统价值的敬奉和传承；中国老百姓和美国老百姓有着同样的品质，而正是这些品质将最终灭掉中共](/content/gnews/33/README.md)
+### [11/20/2021【11·20王健之死新闻发布会三周年】班农先生：支持着我为中国人争取民主和自由而战的是中国人的意志力、决心、对家庭与传统价值的敬奉和传承；中国老百姓和美国老百姓有着同样的品质，而正是这些品质将最终灭掉中共](/content/gnews/34/README.md)
  ` 秘密翻译组-北美组`
 
-### [11/21/2021国内经济财经周报：喜币已可在迪拜购买豪宅；阿里巴巴股票大跌](/content/gnews/34/README.md)
+### [11/21/2021国内经济财经周报：喜币已可在迪拜购买豪宅；阿里巴巴股票大跌](/content/gnews/35/README.md)
  ` 秘密翻译组金融团队`
 
-### [11/20/2021【11·20王健之死新闻发布会三周年】班农先生：法治基金最重要的工作是通过爆料革命紧密合作，从中共国解救更多的人出来，从而让西方认清中共的邪恶并告诉世界中国人为什么需要法治](/content/gnews/35/README.md)
+### [11/20/2021【11·20王健之死新闻发布会三周年】班农先生：法治基金最重要的工作是通过爆料革命紧密合作，从中共国解救更多的人出来，从而让西方认清中共的邪恶并告诉世界中国人为什么需要法治](/content/gnews/36/README.md)
  ` 秘密翻译组-北美组`
 
-### [世界各地爆发大规模抗议活动，主流媒体保持沉默](/content/gnews/36/README.md)
+### [世界各地爆发大规模抗议活动，主流媒体保持沉默](/content/gnews/37/README.md)
  ` 墨尔本雅典娜农场`
 
-### [秘翻在线:二十一世纪的民主制度偷走人民的奶酪?](/content/gnews/37/README.md)
+### [秘翻在线:二十一世纪的民主制度偷走人民的奶酪?](/content/gnews/38/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声|美国国会支持台湾参与国际刑警组织](/content/gnews/38/README.md)
+### [有声|美国国会支持台湾参与国际刑警组织](/content/gnews/39/README.md)
  ` MOSREC`
-
-### [工人威胁离职 美海军造船承包商暂停疫苗接种任务](/content/gnews/39/README.md)
- ` 西班牙巴塞罗那喜悦农场`
 
 ### [拜登在拜习会上再次确认了“一中”政策](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
