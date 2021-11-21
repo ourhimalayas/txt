@@ -2,34 +2,29 @@
 ---
 
 
-## 班农先生和郭先生回顾1120新闻发布会和法治基金法治社会成立
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683657/)
+## 法院暂停拜登的强制疫苗令，仍有60％的企业继续执行
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683798/)
 
-作者：纽约香草山信息部- 诺雅
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月20日，文贵先生和班农先生共同出席大直播，回顾了1120新闻发布会和法治基金法治社会的成立。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-22-上午3.01.31.png)
-2018年8-9月，文贵先生告诉班农先生要举办王建之死新闻发布会。准备过程中，验证了中共在美国的渗透：林肯中心的场地预定被无故取消，郭先生无数次受到中共随时随地的死亡威胁，欺民贼不断地造谣和攻击。并且，1120当天，中共控制的香港高等法院宣布冻结郭先生在87亿港币的资产。
+作者：加拿大杨帆农场 Spirit
 
-在准备过程中，班农先生建议制作最受关注的失踪名人照片墙，并提议成立法治基金 。法治基金在美国和西方社会合法呼吁，率先告诉世界ccp病毒是中共的生物武器，以及疫苗的阴谋和灾难。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-3.png)
 
-极为可惜的是，因为中共对全世界金融，媒体，政府的完全渗透，导致了郭先生在1120以生命发出的警告未能被听到。至今，中共病毒已经杀死了世界几百万无辜的人们，导致了几亿人感染。
 
-参考链接：[https://gettr.com/post/phfwwdaf84](https://gettr.com/post/phfwwdaf84)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-总编：Zion文恩
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+根据《CNN》11月17日报道，联邦上诉法院暂停了拜登政府强制要求100人以上的企业员工接种疫苗或每周测试的疫苗强制计划。咨询公司Gartner公司周二对300家企业进行的一项闪电式调查显示，60%的企业仍愿执行计划，只有约10%的人将退出强制疫苗，有30%的人在权衡如何进行。 卫生政策智库 KFF 上个月接受调查的工人中，约有 25% 表示他们的雇主现在有疫苗强制要求，而 6 月份的调查中这一比例仅为 9%。 这项疫苗强制计划关系到8000万名私企雇员的生命安全，由于大部分雇主受到政府，卫生部门和媒体的蒙骗而无法做出正确的决定，非常让人担忧，只有抵制强制疫苗才能保护自己的员工。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/cnn.png)图片来源：cnn
+
+**参考阅读：**
+
+https://www.cnn.com/2021/11/17/economy/employer-vaccine-mandates/index.html
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-5.jpg)
+
+编辑/校对/发稿：一烘
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

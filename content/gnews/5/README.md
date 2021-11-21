@@ -2,101 +2,53 @@
 ---
 
 
-## 当Hpay可以互相支付的时候
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1683805/)
+## 犯罪毒品垄断联盟：FDA 拒绝在 2076 年之前发布辉瑞 Covid 疫苗数据
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1683826/)
 
-[https://gtv.org/video/id=619a325be6900076612deecb](https://gtv.org/video/id=619a325be6900076612deecb)
+作者：Ethan Huff
 
-**郭文贵**
-**Miles Guo**
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Coronavirus-Covid-19-Pfizer-Vaccine-Syringe-Vial.jpg)图片来源：网络
+自然新闻：美国食品和药物管理局 (FDA) 已要求联邦法官让公众再等 55 年，然后才能要求辉瑞公布其用于向辉瑞的“紧急使用授权”(EUA) 授予“紧急使用授权”(EUA) 的所有数据和信息。
 
-当我们之间互相可以H币，HDO可以支付的时候，兄弟姐妹们
-When we can make payment to each other with HCN and HDO, brothers and sisters
+既使在多次承诺注射剂“完全透明”之后，包括“承诺透明”声明，FDA 再次证明自己只不过是一个对公共健康毫不关心的大型制药公司的看门人。
 
-这个标准可就不一样了，也就是人类上所有国家不能做的事，你们都能得到
-This world is different, that is, what all countries on the human race can not do, you can get
+您可能还记得 8 月份，来自该国许多最负盛名的大学的 30 多名学者、教授和科学家向 FDA 提出要求，要求其发布上述信息以供同行审查。
 
-草根小哥说，现在我给天池妹妹划上一万个喜币，你管的着吗？
-Caogen brother said, now I have set aside 10,000 H coins for my sister Tianchi, it’s not government’s business anymore
+作为回应，FDA 绝对没有提供任何东西，现在坚持认为世界必须等待半个多世纪才能了解真相。 这促使律师 Aaron Siri 代表提出初始请求的专家组对 FDA 提起诉讼。
 
-天池妹妹我要给QMAY汇上个10万HDO, 100万HDO, 你管的着吗？
-Sister Tianchi wants to send 100,000 HDO, 1 million HDO to QMAY, it’s not government’s business anymore
+“迄今为止，在辉瑞的疫苗获得许可近三个月后，FDA 仍然没有发布任何一页。 没有一个，”Siri 说。
 
-它可能有一个限制，不可能是无限的大，但基本上过了KYC的战友们
-It may has a limit, it cannot be infinitely large, but basically the comrades who have passed KYC
+“相反…… FDA 要求联邦法官在 2076 年之前提供完整的信息。 FDA 要求法官让其制作辉瑞提供给 FDA 的 329,000 多页文件，以每月 500 页的速度许可其疫苗，这意味着其生产不会早于 2076 年完成。”
 
-你们之间的来往，那可就成了世界上脱缰的野马
-The funds between you has become a wild horse in the world
+FDA 的承诺毫无意义——该机构所做的只是谎言
 
-最自由，最无限, 没有国家地域限制，而且额度是最大的
-It’s the most free, the most unlimited, there is no country and geographic re-strictions, and the quota is the largest
+令人惊讶的是，从辉瑞开始获取许可记录（2021 年 5 月 7 日）到向辉瑞授予注射剂许可（2021 年 8 月 23 日），FDA 仅用了大约 108 天。
 
-关键你还没有税，还合法，你还得合法呀
-The key point is that you have no tax, and still legal, you have to be legal
+“按照 FDA 的话，它对这些文件进行了密集、有力、彻底和完整的审查和分析，以确保辉瑞疫苗在获得许可时是安全有效的”，Siri 写道。
 
-我再给重申一遍，全球的虚拟货币互相之间
-Let me repeat again that the global virtual currencies between each other
+“虽然它可以在 108 天内对辉瑞的文件进行如此严格的审查，但它现在需要超过 20,000 天的时间来向公众提供这些文件……所以，让我们直截了当地说吧，联邦政府保护辉瑞免于承担责任。 给它数十亿美元，让美国人接受它的产品，但不会让您看到支持其产品安全性和有效性的数据，政府为谁工作？”
 
-只要没有法币的联系的，你任何交易，只要你接受，他接受都是合法的
-as long as there is no legal currency connection, any transaction you accept is legal as long as you accept it
+当然，所有这些都表明，FDA 对透明度的定义与该词的实际含义完全相反。  FDA 的承诺也完全没有价值，尤其是当它们威胁要削减大型制药公司的不义之财时。
 
-而且没有税，还不需要任何政府监管，现在要懂这个道理
-And there is no tax, and there is no need for any government supervision, now we must understand this principle
+“再一次的教训是，公民和个人权利永远不应取决于医疗程序”，Siri 争辩道。
 
-我再重申一遍，兄弟姐妹们所有的虚拟货币，
-I repeat it again, brothers and sisters, all virtual currencies
+“每个想要接种疫苗和加强免疫的人都应该可以自由地这样做，但是任何人都不应该被政府强迫参与任何医疗程序。 当然，政府不想在 2076 年之前隐藏其许可所依赖的全部信息！”
 
-只要你有账号之间你们之间只要这个技术能做到的，互相交易不纳税，不受国家不受监管
-as long as you have account, you can do transfer within each other with this technology, you will not pay taxes on each transactions, and will not be subject to state supervision
+Siri 的文章发表在 Zero Hedge 上，引起了读者的热烈响应。他们中的许多人观察到 FDA 不愿公布辉瑞的数据清楚地表明它包含有不当行为的犯罪证据。
 
-这是第二个问题，第三个问题我再告诉大家，因为刚才没有说到的
-This is the second question. I will tell you the third question because I didn’t talk about it just now
+“他们想在我们得到他们反人类罪行的细节之前确保他们都死了，”其中一位写道。
 
-H-pay很多商家说，这个商家要不要KYC
-Many H-pay merchant asked whether the merchants need to do KYC
+“还有人需要更多证据证明美国野蛮黑帮政府腐败无能、不负责任、不可信吗？”
 
-战友们这个常识你不要问，你要问，我们直播100年不会拉倒
-This is common sense, comrades, if you still ask it, we will have to do our live broadcast for another 100 years
+来源链接：
 
-回答你这个问题，你不去KYC你怎么开账号呢
-To answer this question, how do you open an account if you don’t do KYC?
+[https://www.afinalwarning.com/572839.html](https://www.afinalwarning.com/572839.html)
 
-任何商家你得到喜联储KYC你才能开账号，
-Any merchant, you can open an account only if you pass the KYC of the Himalaya Reserve
+编辑/发布：LILY
 
-账号和账号之间才能接受KYC，才能付钱呐，是吧
-Only the account accepted by KYC can be paid transfer to each other, right?
-
-你不解裤子，你怎么跟人家上床，怎么生孩子
-You don’t take off your pants, how do you have children with others
-
-我连你男女都不知道，我现在就要跟你结婚了吗？
-I don’t even know you are man or woman, How can I get married to you now?
-
-这是个简单的道理吧
-The simple is that, right？
-
-原视频链接: [https://gettr.com/post/ph8y47e262](https://gettr.com/post/ph8y47e262)
-
-Date:11/20/2021
-原视频标题: 当Hpay可以互相支付的时候
-When H-pay can make pay to each other
-原视频日期：2021/11/17
-原视频链接[https://gettr.com/post/ph8y47e262](https://gettr.com/post/ph8y47e262)
-任务编号：2929
-视频时间段 : 0:00-2:11
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+20211121
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

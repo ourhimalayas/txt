@@ -2,36 +2,29 @@
 ---
 
 
-## 继欧洲议会、德国和美国之后 英国也考虑外交抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683656/)
+## 郭文贵先生对新中国联邦人的期望
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683797/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-英国媒体11月20日报道，英国首相约翰逊，正在考虑外交抵制北京冬奥会，以抗议中共恶劣的人权纪录。该报道称，五名保守党政客致信约翰逊，敦促他禁止英国任何官方外交代表，出席2月份的北京冬奥。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-22-上午3.02.10.png)
-就在两天前，美国总统拜登证实，美国政府正在考虑对北京冬奥会进行外交抵制。上个月，即将从德国联邦议院体育委员会主席卸任的，弗莱塔克女士也再次呼吁，各国政府要抵制北京冬奥，作为对中共当局严重侵犯人权的抗议。
+作者：纽约香草山农场福音部-恩永存
 
-7月份，欧洲议会也以压倒性票数，通过了一项不具强制力的决议，敦促欧盟及成员国的官员，不要出席北京冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-4.png)
 
-参考链接：
-1）[英国正考虑外交抵制北京冬奥会–泰晤士报](https://www.reuters.com/article/uk-thames-beijing-winter-olympic-1120-idCNKBS2I508P)
-2）[彭帅事件或加剧抵制呼声 美国对北京冬奥的外交抵制意味着什么？](https://www.voachinese.com/a/beijing-olympics-diplomatic-boycott-20211119/6320934.html)
-3）[卸任前登高一呼 德國聯邦議院體委會主席籲抵制北京冬奧](https://news.ltn.com.tw/news/world/breakingnews/3701885)
-4）[欧洲议会通过决议呼吁外交抵制北京冬奥会 北京称不值得关注](https://www.voachinese.com/a/European-parliament-resolution-beijing-olympics-boycott-20210709/5960158.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-总编：文特
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+11月17日，郭文贵先生在大直播中谈及家族基金投资成功的经验时，对战友们有以下期望： 首先要找到做人的窍门和法门，以及走向成功的智慧。其次要和高人打交道，核心是你的智慧、谦虚和为人，然后这些高人就会介绍比他们更高层次的人给你。 郭先生说他很早就认识了美国的科技界、生物界，然后是投资界。1999年郭先生在硅谷住了六个月，认识了多国领导人，结交了科技界朋友。他了解了太空文化，启迪了内心智慧，从而释放了内心潜力。郭先生的家族基金投资那么多生物科技、芯片，都跟那时结识的人脉有关。 郭先生最后说：新中国联邦人不要学张高丽、马云。要自己强大，而让自己强大的只有一条，即相信你的世界使命，相信上天有神。新中国联邦受上天指引，处处充满着神秘，一定有来自上天超自然的力量在帮助我们。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6383d6c383a688bc0ce747d8282e44b3_500x0-3.jpeg)图片来源：喜马拉雅农场联盟委员会
+
+**参考阅读：**
+
+https://gettr.com/post/ph567f4b1f
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-4.jpg)
+
+编辑/校对/发稿：一烘
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
