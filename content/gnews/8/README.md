@@ -2,55 +2,20 @@
 ---
 
 
-## 纳瓦罗先生指出每一个美国人都应该成为对中共的鹰派
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683348/)
+## 解读六中全会的10个坚持——锁国独裁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1683451/)
 
-作者：日本方舟农场 Andy5
+文编：东京樱花团/樱花传媒
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-1.png)
+视频:东京樱花团/中文小视频组
 
+11月17日，郭文贵先生在GTV大直播指出：
 
+坚持党的领导,即党在人民之上;坚持理论创新,即共产主义的老声常谈毫无创新可言;坚持独立自主和中国道路,即与外国全面脱钩;坚持胸怀天下,即要领导全世界;坚持开拓创新,和第三个坚持同义,是废话重复;坚持敢于斗争,即谁不听话干死谁;坚持统一战线,即继续用蓝金黄搞情报;坚持自我革命,即对内继续高压统治。
 
-
-
-纳瓦罗先生在18日接受FOX斯图尔特采访的时，谈到本周的拜习会晤就像肥皂剧一样是无所事事的一场峰会。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-527.png)图片来源：盖特 
-
-纳瓦罗先生分析道本周的拜习视频会晤，因为没有谈及病毒起源以及在台湾问题上划定界限，更重要的是没有谈论中共到目前只购买了700万美金的美国产品，根本没有履行第一阶段贸易协议的事情。这些事都可以看出中共根本不会履行任何它们所签署的协议。
-
-然后在关于是否抵制北京冬奥会的问题上，纳瓦罗先生反问道美国什么时候才能感觉到受够了中共国？并列举了中共的新疆集中营、利用可携带高超音速武器对美国造成的威胁，并强调是中共孵化了病毒并散播给了全世界。
-
-最后纳瓦罗先生指出每一个美国人都该在对中共问题上成为鹰派，并提醒五角大楼中共是比气候变化更危险的东西。
-
-相关链接：[https://www.gettr.com/post/phbtwcb717](https://www.gettr.com/post/phbtwcb717)
-
-新闻采集人：日本方舟农场 Andy5
-
-总编：文徬
-
-校对/发稿：小小安
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2.png)
-
-
-
-
-
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
