@@ -17,6 +17,27 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/21/2021 6:34 AM (UTC)`
+
+11/20/2021 [3rd Anniversary of 1120] Steve Bannon: Your rights as a human being are given by God, but the CCP, which is atheistic and materialistic, attempts to use technology to become God; we must make sure that technology is the service of mankind rather than the master of mankind<br/><br/>11/20/2021【1120三周年纪念】班农先生：你作为人的权利是神赋予的，但信仰无神论和唯物主义的中共却妄图利用科技来当上帝；我们必须确保科技是为人类服务的，而不是人类的主人
+![img](https://media.gettr.com/group32/getter/2021/11/21/06/3d62db0d-7aa8-0961-6e29-10227b664849/out.jpg)
+
+---
+
+`@miles 11/21/2021 6:28 AM (UTC)`
+
+11/20/2021 [3rd Anniversary of 1120] Miles Guo: Mr. Bannon is a truly faithful and noble person, who has never had any sex scandal and does not want to take Lao Baixing’s money. In contrast, the CCP is just so despicable<br/><br/>11/20/2021【1120三周年纪念】郭先生：班农先生是个真正有信仰的、高贵的人，他从未有任何性丑闻，也不愿意拿老百姓的钱，相比之下共产党简直太低级了<br/>
+![img](https://media.gettr.com/group38/getter/2021/11/21/06/28/2fb6c47e-098f-b3bb-138e-b2210dfc91fd/out.jpg)
+
+---
+
+`@miles 11/21/2021 6:25 AM (UTC)`
+
+11/20/2021 [3rd Anniversary of 1120] Steve Bannon: Our New Federal State of China needs to cultivate more talents with entrepreneurial skills and those who understand business, finance and marketing. We can send them to the companies worldwide, where they will set up a good example of the Chinese people under the protection of rule of law, freedom, and democracy<br/><br/>11/20/2021【1120三周年纪念】班农先生：我们新中国联邦需要培养更多有创业技能、熟谙商业、金融和市场营销等方面的人才，我们可以把他们派到世界各地的公司里，他们将向世人树立中国人在法治、自由和民主保护下的好榜样
+![img](https://media.gettr.com/group45/getter/2021/11/21/06/25/9f2ad651-f450-e070-a73a-558468b95f6a/out.jpg)
+
+---
+
 `@miles 11/21/2021 3:23 AM (UTC)`
 
 11/20/2021 [3rd Anniversary of 1120] Mr. Bannon: China is the greatest ally of the United States in World War II. Only the Chinese people can free the Chinese people.<br/><br/>11/20/2021【1120三周年纪念】 班农先生：中国是美国在第二次世界大战中最大的盟友，解放中国要靠中国人自己。<br/>
@@ -281,27 +302,6 @@ An orthopedic surgeon from Wisconsin described the serious side effects after hi
 
 11月17号：刚刚理完发的SNOW 欢迎七哥回家……
 ![img](https://media.gettr.com/group32/getter/2021/11/18/01/12/1a647453-ccc6-fc65-3e77-af6862fb1a9f/out.jpg)
-
----
-
-`@miles 11/18/2021 12:53 AM (UTC)`
-
-11/17/2021 Miles Guo: The Biden-Xi meeting was in fact arranged by Qin Gang, and the Chinese have to pay hundreds of billions of dollars to meet Biden's economic demands; in exchange, the U.S. agreed to participate in the 2022 Winter Olympics, adhere to the "One China Policy", and not change the CCP’s system; the third historical resolution of the CCP was not out until after the Biden-Xi meeting<br/><br/>11/17/2021 文贵直播：拜习会的召开是秦刚一手操办的，中国人为此不得不付出千亿美元的代价来满足拜登在经济上的要求；作为交换，美方同意参加冬奥会、坚持一个“中国政策”和不改变中共体制；中共第三个历史决议直到拜习会后才公布<br/>
-![img](https://media.gettr.com/group2/getter/2021/11/18/00/53/8e4bcd39-0da0-5d6e-802f-8fe0db561ecc/out.jpg)
-
----
-
-`@miles 11/18/2021 12:22 AM (UTC)`
-
-亲爱的战友们好，盖特新功能开始内测：Instagram导入。注册新帐号时可以直接选择Instagram同名帐号导入，盖特现有用户，请将您的Instagram用户名留言给<br/>@GettrEngineer<br/><br/>Dear Brothers and Sisters, GETTR released a BETA version of Instagram importation. Users are able to import the same Instagram account during the registration process. For existing GETTR users, please send your Instagram username to @GettrEngineer
-![img](https://media.gettr.com/group28/origin/2021/11/18/00/52a8bad1-4a05-b0c7-786d-c6a958253021/e1bc99a2ce909c0f67e624a894b66bb1.png)
-
----
-
-`@miles 11/17/2021 10:42 PM (UTC)`
-
-11/17/2021 Miles Guo: The CCP virus, the New Federal State of China (NFSC), the Taiwan Strait crisis, and the South China Sea were the topics avoided during the Biden-Xi meeting; only Xi could talk about the COVID vaccines, implying that the vaccines will bring an enormous catastrophe to humankind. Everyone shall be prepared for the worst case scenario; the NFSC is the only community that reveals the truth about the CCP virus and its vaccines, uniting the fellow Chinese to survive together<br/><br/>11/17/2021 文贵直播：习拜会避谈病毒、新中国联邦、台海危机和南海问题；只有习可以谈疫苗，这意味着疫苗将导致人类大劫难，请大家做好最坏打算；新中国联邦是唯一揭露病毒和疫苗真相并让同胞们抱团取暖的群体<br/>
-![img](https://media.gettr.com/group11/getter/2021/11/17/22/42/4ca2f600-8518-6e0f-5157-1b134a9e7117/out.jpg)
 
 ---
 
