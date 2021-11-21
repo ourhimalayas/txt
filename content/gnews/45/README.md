@@ -2,36 +2,23 @@
 ---
 
 
-## 美国国会支持台湾参与国际刑警组织
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1680739/)
+## 文贵爆料 11.20：房峰辉曾警告美国：小心生化武器，中共要在中东建军事基地
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1680868/)
 
-作者：日本樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月18日，美国国会众议员约翰-科蒂斯表示，70多位美国两党议员联合致函国务卿布林肯、司法部长加兰德，以及国际刑警组织驻华盛顿办事处主任休斯，表明国会支持将台湾纳入国际刑警组织的明确意图。
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-2.png)
+早在这场生化灾难之前，这世界早已是暗流汹涌，杀机四伏。在11月20日 “11·20”发布会及法治基金、法治社会成立三周年纪念日大直播中，郭文贵先生说，早在2017年，中共上将房峰辉就私下警告美国：小心生化武器，中共计划要在中东建多个军事基地。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide3-9.jpeg)
+在2年前、3年前、4年前，美国CIA就曾经问我，中东有军事基地吗？我都说不知道。CIA说，我们从中共军方得到消息，中共要在中东建军事基地。我说，那你们自己可以去核实一下。我跟CIA和FBI人员见面时说，你们要想办法把房峰辉给搞定。我曾告诉班农，房峰辉想同美国合作。CIA并没有认真，都说你疯了，他怎么会跟我们合作呢？不可能。结果过了段时间房峰辉被抓了。
 
-声明提到，台湾在国际刑警组织中的持续缺席给打击国际犯罪的努力留下了真空。另外，国际刑警组织的“红色通缉令”制度会被诸如中共和俄罗斯等独裁政权所利用。因此，台湾理应具备与美国和其他民主伙伴共事的席位，从而根除国际刑警组织的腐败和滥权。
+房峰辉被抓之前一直跟我有联系，说只要美国人能保我家人安全，我把知道的所有的东西都给他们，当时他就对美国说，美国要小心化学武器和生化武器，中共计划要在中东建多个军事基地。这都是2017年发生的事情。今天看直播的中共高官，你们别搞错了啊，是你们的人卖掉了你们，不是中东，不是郭文贵啊。
 
-声明强调，拜登政府必须落实国会通过法律的意图，用以抗衡中共的影响力。同时，政府应在国际刑警组织大会之前，推动台湾参与该组织。
+房峰辉是中共中央军事委员会原委员、中央军委联合参谋部原参谋长，上将军衔，于2018年落马。
 
-另据台湾媒体报道，18名支持台湾的跨党派意大利参众议员最近也致函国际刑警组织，要求让台湾参与组织的运行。
+参考链接：
 
-参考链接：[美国议员推动让台湾参与国际刑警组织](https://www.voachinese.com/a/us-taiwan-interpol-20211118/6319052.html)
+[2021年11月20日 “11·20”发布会及法治基金、法治社会成立三周年纪念日大直播](https://gettr.com/streaming/phfwwdaf84)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
-
-总编：文徬
-编辑：Lakeman(文仁) 
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

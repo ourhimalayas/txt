@@ -2,21 +2,30 @@
 ---
 
 
-## 雅典娜时报-第119期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1681636/)
+## 喜币坚挺的原因
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1681737/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+没有人卖，还有机构投资者不允许它进来砸盘，大的利好消息没出来，是价格坚挺的最重要原因。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_13.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_14.png)
-***发布：小红帽***
+**【郭先生直播摘要】****2021.11.17 ****The Reason for Himalaya Coin Is So Strong**
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**郭先生****:**
+
+所以说现在的没有人卖，它是价格坚挺的最重要原因之一。
+
+还有机构投资者不允许它进来砸盘。
+
+是最重要的核心之二。
+
+第三Hpay没上线。
+
+还有这些大的利好消息没出来。
+
+这是现在所有机构投资者不进来没抓住时机的。
+
+一个其中投资基本的专业原因之一。
+
+视频剪辑：小腾腾说 |听写：雨山溪桥客 |翻译： Arthur |校对：烟波浩淼 |视频制作+字幕：知行致一（文知）| 编辑& 发布：断播
 
  
 

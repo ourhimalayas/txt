@@ -2,26 +2,40 @@
 ---
 
 
-## 成千上万的奥地利人上街抗议中共病毒疫情下的限制
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1681889/)
+## 美加强与印太、日本经贸 向中共施压
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1682167/)
 
-翻译：Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-33.png)
-图片来源：
+作者：东京樱花团 – 在远方
 
-美国合众国际社11月20日报道，有成千上万个奥地利人周六行进在首都维也纳街上抗议政府实施限制措施以防中共病毒疫情扩散。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-155.png)
 
-据科隆新闻报报告，大约有3万8千人参与周六的抗议示威，多数不戴口罩，也不保持社交距离。
 
-纽约时报称，通过嘈杂的人群中可听到有歌声，其中包含了“自由”和“限制”的字眼，人群中有家庭成员一起上街，也有被政府的中共病毒疫情下的限制措施和强制疫苗而激怒的“极右组织”。
 
-科隆报说在人群中有新纳粹分子和否认大屠杀分子。
+11月17日，美国商务部长吉娜·雷蒙多表示，印度-太平洋经济框架可能在明年初启动。美国不会加入“跨太平洋伙伴全面进步协定”，但会寻求与印太地区志同道合的国家，成立一个比传统自由贸易协定更加广泛和自由的经济框架。
 
-奥地利政府决定将从下周起实施新一轮的10天封城措施以防止另一波的疫情，并要求所有成年人在三个月内必须注射疫苗，周六的抗议一开始是安静的，但随后抗议者点燃鞭炮，向警察投掷啤酒罐和塑料桶，至少有五人因此而被捕。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-8.png)
 
-目前还有1/3的奥地利人尚未打疫苗，在欧洲中占最高的未打疫苗比例，最近疫情在加重，死亡数从个位数增加至周五的16例。疫情以来，奥地利已有1百多万人染疫，11993例死亡。
+另一方面，当日，美国和日本宣布建立新“美日贸易伙伴关系”，加强在劳工、环境和数字贸易问题上的合作，表明重点是对第三国关切，意指中共。
 
-**新闻来源： **[Tens of thousands in Austria protest COVID-19 restrictions](https://www.upi.com/Top_News/World-News/2021/11/20/Austria-protest-COVID-19-restrictions/6771637431171/)
+分析人士表示，上述举措是美国为有效应对中共在该地区扩张的对策采取的；华盛顿应当继续保持对北京施压，迫使中共改变其贸易行为。
+
+参考链接：
+
+- [美国打造印太新经济框架 专家：华盛顿向北京施压新工具](https://www.voachinese.com/a/us-asia-trade-20211119/6320176.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
+
+总编：木白
+编辑：木白
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

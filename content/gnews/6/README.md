@@ -2,40 +2,46 @@
 ---
 
 
-## 荷兰警察向抗议新冠病毒限制措施的公民开枪
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1681776/)
+## 伊维菌素防治方案的研发者控告医院的处方禁令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1681882/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者： 纽约香草山文艺部 – 宁文静
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/AP_21324522728284.jpg)
-
-
- 
-图片来源：www.nbcchicago.com
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-155.png)
 
 
-#### 编译：小红帽
 
-周五深夜，鹿特丹市中心爆发一场反对新冠病毒（COVID-19）限制措施的示威活动，警方向抗议者开火。
+当地时间11月18日，“前线新冠重症监护联盟”的首席医疗专家保罗·马瑞克医生，出席了弗吉尼亚州巡回法庭在诺福克的听证会，为其所发起的诉讼作证。
 
-现在整个欧洲正在进行一场战斗，一场决定人们是否仍有权利决定自己的未来的战斗，还是他们将成为国家的奴隶和附庸。这场战斗并不局限于欧洲，我们在澳大利亚、新西兰、美国和澳大利亚都可以看到。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-8.png)
 
-来自美联社的消息，荷兰警察向抗议者开火。警方表示，两名抗议者在被子弹击中后被送往医院，目前正在调查他们是否是被警察射杀。受伤的抗议者的情况没有被披露。
+11月9日，马瑞克医生向弗吉尼亚州巡回法院提交了诉讼，控告他所供职的森塔拉医疗系统——诺福克综合医院——禁止医生为新冠病人提供伊维菌素的行为。
 
-警方周六下午说，警察逮捕了51人，其中约一半是未成年人。一名警察因在骚乱中腿部受伤而被送进医院，另一名警察接受了救护车的治疗，还有 “无数 ”人受到了轻伤。
+马瑞克医生担任诺福克综合医院重症监护科主任一职已逾16年。自新冠疫情爆发以来，马瑞克医生综合大量治疗实例和已发表的临床试验结果，与其他合作者共同提出了基于伊维菌素、氟伏沙明等药物的新冠病毒防治指南——MATH+和I-MASK（编者按：按照字母来读，+读作plus，-不读）。
 
-市长哈迈德·阿布塔勒布 (Ahmed Aboutaleb)在周六凌晨告诉记者，在抗议者在港口城市的中心商业区横冲直撞，放火并向警察投掷石块和烟花时，警察多次感到有必要拔出武器来保护自己。
+然而，当伊维菌素在印度、日本等国成功遏制病毒扩散、挽救千万生命之时，马瑞科医生所在的诺福克综合医院却以行政命令的形式禁止医生向新冠患者提供伊维菌素等药物。马瑞克医生表示，这一禁令妨害了患者在医生的指导下做出医疗决策的权力，患者或因无法获得有效的药物而付出无谓的牺牲。
 
-**参考新闻：**[https://humansarefree.com/2021/11/dutch-police-opened-fire-on-citizens-protesting-covid-19-tyranny.html](https://humansarefree.com/2021/11/dutch-police-opened-fire-on-citizens-protesting-covid-19-tyranny.html)
+据悉，弗吉尼亚州法律明确表明，主治医生有权使用他们认为适当的治疗方案。本台将跟踪报导该案件的审理进展。
 
-***发布：小红帽***
+参考链接：
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+- [Top doctor banned from treating COVID patients with ivermectin brings lawsuit to court today](https://www.lifesitenews.com/news/top-doctor-banned-from-treating-covid-patients-with-ivermectin-brings-lawsuit-to-court-today/)
+- [The FLCCC Physicians](https://covid19criticalcare.com/about/the-flccc-physicians/)
+- [Norfolk doctor leading charge for controversial COVID-19 treatment faces off against Sentara in court](https://www.wtkr.com/investigations/norfolk-doctor-leading-charge-for-controversial-covid-19-treatment-faces-off-against-sentara-in-court)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
+
+总编：Zion文恩
+编辑：Zion文恩
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

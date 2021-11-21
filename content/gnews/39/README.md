@@ -2,22 +2,28 @@
 ---
 
 
-## 欧洲汽车销量因缺少微芯片创历史新低
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1681081/)
+## GTV新闻访谈简报|2021年11月20日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1681438/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11203-yiche.com_.jpg)图片来自yiche.com
-欧洲汽车制造商协会 ACEA 的分析称：10 月份欧洲新车销售数据创历史新低，据市场观察人士称，这是全球微芯片短缺的结果。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2.png)
 
-过去一个月，欧盟新车注册量下降了 30%，欧洲最大的汽车市场遭受了很大的损失， 10 月是今年汽车销量连续第四个月下降。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-21.png)
+文章仅代表作者本人观点，与Gnews无关
 
-ACEA 表示：“半导体供应危机的持续影响导致销售额下降，半导体是生产芯片的重要材料这使得从汽车到移动电话的许多行业的基本电子元件都能正常运行。但最近微芯片的短缺严重中断了汽车行业的供应链，迫使其减产。
+视频参看：2021.11.20早GTV新闻访谈
 
-去年工厂因新冠病毒疫情关闭后，芯片短缺就开始了。生产线重启后，技术设备需求大于供应，给半导体供应带来压力。因此，芯片短缺给汽车行业带来了问题。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-原文链接：[https://europa.today.it/attualita/microchip-vendite-auto-europa-minimo-storico.html#\_ga=2.176585772.829892400.1637225848-145009575.1615972944](https://europa.today.it/attualita/microchip-vendite-auto-europa-minimo-storico.html#_ga=2.176585772.829892400.1637225848-145009575.1615972944)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov.jpg)
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
