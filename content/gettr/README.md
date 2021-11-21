@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/21/2021 5:02 PM (UTC)`
+
+<br/>11月21号：时间真是个好东西，能让一切真假和善恶得出最真实的结果！
+![img](https://media.gettr.com/group42/getter/2021/11/21/17/02/3aa4c448-a070-6320-93d5-dff55e9cb579/out.jpg)
+
+---
+
 `@miles 11/21/2021 3:55 PM (UTC)`
 
 11-21日：吃饭饭啦……
@@ -295,13 +302,6 @@ The CCP’s Infiltration in Western World : The CCP Agent Bruno Wu<br/><br/>中�
 
 An orthopedic surgeon from Wisconsin described the serious side effects after his first dose of Moderna COVID vaccine, and he urged the CDC, FDA, NIH and all other involved governmental agencies to listen to dangers, and to maintain open and transparent on COVID vaccine data.<br/><br/>一位来自威斯康星州的骨科医生讲述了他接种第一剂莫德纳新冠疫苗之后的严重副作用，并敦促CDC、FDA、NIH以及其他相关政府机构，倾听存在的危险，保持对于新冠疫苗数据的公开和透明。
 ![img](https://media.gettr.com/group48/origin/2021/11/18/12/09/a3e4c18b-8cdd-3f43-fb2a-f05156b8c8a7/out.jpg)
-
----
-
-`@miles 11/18/2021 11:39 AM (UTC)`
-
-11/17/2021 Miles Guo: The “Ten Adherences” of the Sixth Plenary Session show that the CCP is running out of talent, the CCP is decoupling with the world, and Xi is going to be the “emperor”; everything happened in the Sixth Plenary Session is in line with my prediction, with Xi being praised as “the Sun” and a series of ridiculous propaganda popping up; there will be massive deaths before the end of the CCP<br/><br/>11/17/2021 文贵直播：六中全会的“十大坚持”说明中共已经无人可用、中共正在跟世界脱钩且习要当皇帝；六中全会尽在文贵掌握之中，习真当上了“我的太阳”，一系列宣传闹剧即将上演；中共灭亡前将有大量人死亡<br/>
-![img](https://media.gettr.com/group24/getter/2021/11/18/11/39/ae8d93e7-2cc1-d1dd-4994-4cbcd14bd4a7/out.jpg)
 
 ---
 
