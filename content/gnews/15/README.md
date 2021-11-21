@@ -2,36 +2,34 @@
 ---
 
 
-## 有声|美国国会支持台湾参与国际刑警组织
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1683059/)
+## 纳瓦罗先生未接种疫苗，坚决反对疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683091/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月18日，美国国会众议员约翰-科蒂斯表示，70多位美国两党议员联合致函国务卿布林肯、司法部长加兰德，以及国际刑警组织驻华盛顿办事处主任休斯，表明国会支持将台湾纳入国际刑警组织的明确意图。
+信息采集：熊嘟嘟
 
-声明提到，台湾在国际刑警组织中的持续缺席给打击国际犯罪的努力留下了真空。另外，国际刑警组织的“红色通缉令”制度会被诸如中共和俄罗斯等独裁政权所利用。因此，台湾理应具备与美国和其他民主伙伴共事的席位，从而根除国际刑警组织的腐败和滥权。
+撰稿：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
+11月18日，纳瓦罗先生在视频采访中，确认自己没有接种中共病毒疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-525.png)
+纳瓦罗曾患过中共病毒，现已痊愈。他说，自己携带的抗体是打过疫苗的人的20倍。而一个橄榄球运动员感染后治疗一周便能回复如初。健康人根本不需要打疫苗，强制打疫苗是非常危险的。
 
-声明强调，拜登政府必须落实国会通过法律的意图，用以抗衡中共的影响力。同时，政府应在国际刑警组织大会之前，推动台湾参与该组织。
+纳瓦罗指出，每个人都应该有选择的权利，疫苗不应该被用在儿童和健康人群身上，这些人患病后应采取药物治疗的措施。他同时提到自己在白宫时曾为争取使用廉价治疗药物，比如羟氯喹、伊维菌素等，进行过激烈的斗争。
 
+纳瓦罗强调，如果早期能使用这些药物而不是被福奇之流欺骗，美国能避免30万人死亡。
 
-原文链接：[美国国会支持台湾参与国际刑警组织](https://gnews.org/zh-hans/1680739/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3-5.png)
 
+总编/编辑：木白
 
-音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
