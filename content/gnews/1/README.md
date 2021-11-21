@@ -2,156 +2,28 @@
 ---
 
 
-## 文化大革命创新版，坚持皇帝制
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682514/)
+## 意大利成为帮中共国宣传的猎物
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1682542/)
 
-[https://gtv.org/video/id=619933ade6900076612d8e6e](https://gtv.org/video/id=619933ade6900076612d8e6e)
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11212.jpg)图片来自Formiche.net
+一份名为“轻松猎物”的 62 页档案声称，来自意大利的数十位领导人物被北京用作宣传工具。中共国的目标是促进外国对中共当局有益的商业活动以及面对系统性侵犯人权的沉默。多年来，很多领军人物上了当-通过那些看似无害的文化协会促进活动孵化，而现实中是由中共国共产党直接操作。
 
-你要看到十个坚持每一个字
-Debes ver cada letra de las diez persistencias
+该论文得到了捷克智库 Sinopsis 与全球法治法律委员会的支持。它揭示了什么是中共的影响机构以及如何在议会和意大利地方政治中运作。它分析了北京在拉拢国会议员、政党、地方行政人员以及舆论团体和媒体中有影响力人物等方面所做的努力。我们公共生活中的知名人物扮演着支持中共利益和宣传的角色，成为中共机构利用的目标。
 
-就是两个宣布
-Se realiza dos anuncios
+根据研究人员的说法，多年前开始的软实力宣传活动在 2019 年变得明显，当时一个新的执政联盟，其中包括有利于中共的新兴政治力量的 M5S签署了关于新丝绸之路，五星级领导人Beppe Grillo在他的博客上频繁发表支持中共在新疆政策的文章。
 
-中国停止任何的经济改革开放
-China cesa cualquier reforma económica y apertura
+该研究的作者透露，中共国的战略既简单又便宜：旨在与政治家、官员、外交官、企业家、学者和专家建立关系，包括创建平台、组织活动和旅行、维持个人关系，偶尔提供报酬或就业等。
 
-记住啊, 从那一刻起
-Recuerden, a partir de ese momento
+运作的最高层是国际联络部（ILD），这是负责与外国精英互动的主要政党机构，主要目标是政治家和政党、智囊团、学术界和非政府组织。其中包括当代中国研究中心、意中友好协会，此外还有媒体集团。
 
-中国人绝对是回到了文化大革命的时代
-Los chinos definitivamente regresaron a la era de la Revolución Cultural
+根据档案，中共国人通过议会友好协会参与意大利政治。该协会经常出访中共国，其中外国政客和媒体通常无法访问的西藏。报道提到，时任参议院预算委员会主席毛罗·玛丽亚·马里诺在其中一次访问中称赞了西藏自治区在管理民族和宗教事务方面的成就。因此，一次有趣而独特的禁地之旅的特权成为中共国人获得和解态度的一种方式。
 
-但是, 你看它这里面很有意思啊
-Pero mire que dentro de esto tiene su sentido
+此外还包括2016 年成立的中国文化研究所（ICC）以及成立于2017年的意中联谊会。这些组织通过利用当地政客、说客和顾问建立网络，从而增大中共在当地的影响力。
 
-他认为文化大革命是一场过去的一种失败啊, 什么什么的
-Él cree que la Revolución Cultural es un fracaso del pasado
+原文链接：[https://www.repubblica.it/esteri/2021/11/20/news/una\_preda\_facile\_cosi\_l\_italia\_abbocca\_all\_esca\_della\_propaganda\_cinese-327058007/](https://www.repubblica.it/esteri/2021/11/20/news/una_preda_facile_cosi_l_italia_abbocca_all_esca_della_propaganda_cinese-327058007/)
 
-但是他搞了个新的文化大革命
-Sin embargo, él ahora hizo una nueva Revolución Cultural
-
-很多人说习近平没有给文化大革命平反, 他就不搞文化大革命
-Mucha gente dice que, si Xi Jinping no reivindica la Revolución Cultural, no participaría en la Revolución Cultural
-
-这是脑子里进了狗屎了, 吃了我们Snow的狗屎才会说的话
-Esto implica que se le metió el excremento del perro en la cabeza, dijo estas palabras porque comió el excremento de nuestro Snow
-
-坚持坚决不改革开放, 没有任何改革的词语
-Insiste resueltamente a no reformar y abrirse, no hay ninguna palabra de reforma
-
-第二个, 最大的问题大家没有看到
-El segundo, no vieron el mayor problema
-
-坚持一党独裁
-Insiste a una dictadura de partido único
-
-中国搞了皇帝制
-China se ha comprometido con el sistema imperial
-
-习近平在那个新闻发布会已经宣布成神了, 成神话了
-Xi Jinping había declarado en esa conferencia de prensa que se había convertido en un dios, un mito
-
-在这之前, 有习近平跟着我太阳走的感觉
-Antes de esto, se siente que Xi Jinping me estaba siguiendo bajo el sol
-
-北京城搞了音乐会
-En la ciudad de Beijing se hizo un concierto
-
-而且北京几个我们唐平的那些哥们儿
-Y nuestros hermanos de Tang Ping en Beijing
-
-Qmay那个领域里面
-Dentro de ese ámbito de Qmay
-
-叫做乐坛, 音乐吐的痰
-Llamado la escena musical, el escupitajo de la música
-
-内部搞了上百次, 所谓中国音乐家, 艺术家
-Se hizo cientos de veces internamente, los llamados músicos y artistas chinos
-
-都带家
-En mandarín, estas palabras llevan la palabra “casa”
-
-都带家的啊, 音乐家, 艺术家
-Como músicos y artistas
-
-中国共产党所谓过去, 若干决定当中的一些思考
-El llamado pasado del PCCh, en cuanto a sus decisiones y pensamientos
-
-上百起都是主题, 跟着我的太阳走
-Más de cien tópicos son “siguiendo los pasos de mi sol”
-
-太阳啊
-Sol
-
-习近平已经是太阳了
-Xi Jinping ya es un sol
-
-月亮都不当了
-Ya no quiere ni siquiera ser luna
-
-咱最多做了个梦
-Nosotros por más que sea sólo soñamos
-
-咱叫H-coin to the moon
-Nosotros llamamos H-coin a la luna
-
-他是H-coin to the太阳
-Él es H-coin al sol
-
-哇赛, 比我大多了
-¡Wow! Es más grande que yo
-
-我们这词叫Qmay, 唐平整太小了
-Este vocabulario lo decimos Qmay, Tang Ping lo hizo muy pequeño
-
-人家是去太阳, 咱是月亮
-Ellos van a donde está el sol y nosotros es la luna
-
-月亮围着太阳转, 完了吧
-La luna gira alrededor del sol, esto se acabó
-
-你输了吧
-Ya perdiste
-
-这共产党吹牛, 吹太大了
-Este Partido Comunista se jacta, se jacta demasiado
-
-这种结果是什么
-Cuál es su resultado
-
-中国回到了绝对的皇帝制
-China regresó absolutamente al sistema imperial
-
-十个坚持的结果. 坚决不改革开放
-El resultado de diez insistencias, resiste no cambiar a la revolución y la apertura
-
-坚决把私有经济灭掉, 控制中国的一切
-Insiste eliminar a la economía privada y controlar todo de China
-
-坚持绝对的皇帝制
-Se insiste al sistema de emperador absoluto
-
-* * *
-
-日期：11/20/2021
-原视频标题：文化大革命创新版，坚持皇帝制
-Versión innovadora de la Revolución Cultural, insistir al sistema del emperador
-原视频日期：11/19/2021
-原视频网址：[https://gettr.com/post/phdgzc0535](https://gettr.com/post/phdgzc0535)
-任务编号：KC274(2946)
-视频时间段：0:00-2:19
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

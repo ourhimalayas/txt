@@ -2,41 +2,40 @@
 ---
 
 
-## 布罗陀接种率已达100% 现敦促取消圣诞庆祝活动
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1682460/)
+## 共和党参议院候选人称福奇是“大屠杀凶手”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1682484/)
 
-**编译： Jenny Ball**
+**翻译： Jenny Ball**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip34.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip03-2.png)
 
-英国领土小国直布罗陀是世界上接种疫苗最多的地区之一，其政府官员宣布，由于 COVID 感染人数增加，今年的官方圣诞节庆祝活动将被取消。
+据《新闻周刊》报道，在 2022 年俄克拉荷马州参议院初选中，与共和党参议员詹姆斯·兰克福德竞争的牧师杰克逊·拉迈尔（Jackson Lahmeyer）表示，如果凯尔·里顿豪斯（Kyle Rittenhouse）被送进监狱，而美国国家过敏研究所（NIAID）所长安东尼福奇可以自由行走，那么这个世界就真颠了个了。
 
-人们经常提到，“**地球上接种疫苗最多的地方”是什么样子的**？ 那时 100% 的符合条件的公民都已接种了冠状病毒。
+据《新闻周刊》报道，拉迈尔称里顿豪斯是一名“美国英雄”，他去年因枪击两名暴徒并打伤第三人而受审，**拉迈尔称福奇应该被监禁。**
 
-据卫生官员称，自 3 月以来，该领土上的每个成年人都已接种了 COVID 疫苗，该地区人口约为 34,000 人， 一份报告实际上表明，该地区的疫苗接种率高于 100%。
+“他们崇拜一个大屠杀凶手，福奇应该在监狱里，” 拉迈尔在周二的 Facebook 直播中说，据《新闻周刊》报道。“但是凯尔·里顿豪斯为自己辩护，反对一名被定罪的恋童癖者，一名被定罪的殴打女子的人，他正在为自己的生命而战，以免入狱。我们的国家现在正在颠倒黑白。”
 
-“超过 118% 的直布罗陀人口都接种了 Covid-19 疫苗，由于每天越过边境工作或访问该领土的西班牙人接种了疫苗，这一数字超过了 100%，” 《电子涡轮新闻》（eTurboNews ）报道。
+据《新闻周刊》报道，拉迈尔发誓每天都会打电话给福奇，并表示这位传染病专家是“美国最大的骗子，他犯了谋杀罪”。
 
-尽管距离圣诞节还有五个星期，而且疫苗接种率很高，但地中海地区大约 2.6 平方英里的地区的官员警告人们，不要举行圣诞节聚会和庆祝活动。
+**拉迈尔转发了《新闻周刊》关于他的评论的文章，他补充说：“安东尼·福奇需要因危害人类罪而被解雇、逮捕和定罪**。”
 
-“直布罗陀在整个 10 月，经历的 COVID-19 活跃病例的稳步增长一直持续到 11 月，**并且在过去几天变得更加指数化**，”上周的一项政府咨询宣布。“这意味着,公众必须以谨慎和明智的方式行事，同时牢记,我们仍处于全球大流行中，全世界每天都有人在失去生命。
+福奇是一名大规模杀人犯，他需要因危害人类罪被解雇、逮捕和定罪。
 
-“敦促公众避免大型聚会，在法律规定的情况下或感到不舒服时戴口罩，并与他人保持谨慎的社交距离。”
+拉迈尔得到了前总统川普的国家安全顾问迈克尔·弗林（Michael Flynn）和川普政府前高级顾问塞巴斯蒂安·戈卡（Sebastian Gorka）的支持，正如拉迈尔的竞选网站所宣传的那样。
 
-忽略有关疫苗效力的明显问题，直布罗陀的人们可以采取哪些不同的做法？ 根据数据，这个小领土上的每个人，都遵循了公共卫生官员的建议,他们都接种了疫苗。
+拉迈尔的竞选网站还称，他“从没想过自己会竞选政治职务，但在詹姆斯·兰克福德于 1 月 6 日背叛川普总统后，拉迈尔说他‘受够了’并决定参加竞选。”
 
-**评论：这就是有良知医学专家的警告：疫苗是易感Covid 的原因，是促发Covid变种的原因，mRNA和刺突蛋白造成各种猝死的元凶！政府逼迫100%人民充当试验老鼠，置人民生命为草芥，声称什么“疫苗可以保护人们免受感染”。**
+他的网站还提供了一个指向 COVID-19 疫苗豁免表的链接，以及支持者填写的请愿书。
 
-**新闻来源：**[westernjournal.com] [City That Hit 100% Vaccination Rate in March Now Urging Cancellation of Christmas Celebrations over Virus Fears](https://www.westernjournal.com/city-hit-100-vaccination-rate-march-now-urging-cancellation-christmas-celebrations-virus-fears/?utm_source=Email&amp;utm_medium=conservative-brief-CT&amp;utm_campaign=dailyam&amp;utm_content=conservative-tribune&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
+**新闻来源**：[thehill.com][GOP Senate candidate says Fauci is ‘mass murderer,’ should be jailed rather than ‘hero’ Rittenhouse](https://thehill.com/gop-lawmakers/582309-gop-senate-candidate-says-fauci-is-mass-murderer-should-be-jailed-rather-than)
 
 * * *
 
-***审核：文乐
+***素材：文舞
+审核：文乐
 校对：阿伯塔
 发布：信心满满***
-
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

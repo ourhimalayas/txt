@@ -2,20 +2,18 @@
 ---
 
 
-## COVID-19 最新情报｜围堵韩国疾控中心主任座驾 家属誓为死者寻找真相和公义
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1682354/)
+## 疑似回应中俄军演，美日澳加德五国将在日本周边海域联合军演
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1682376/)
 
-**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 21/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+韩国首尔天池农场—虎眼　校对/上传—无明逆流
+![](https://assets.gnews.org/wp-content/uploads/2021/11/５f5-400a-bfb0-7d29bb8dc5e8.jpg)图为南海战略媒体消息
+据中共南海战略媒体消息，11月20日，有卫星在日本四国岛以南海域发现包括美军“卡尔文森”号航母，日本“出云号”直升机驱逐舰、澳大利亚海军“布里斯班”号驱逐舰、加拿大海军“温尼伯”号护卫舰、德国海军“拜仁”号护卫舰在内的多国军舰。
 
-【韩国】韩国疾病控制和预防中心 (KDCA) 负责人郑恩京 19 日到访韩国清州的一间医院，并公开接种 COVID-19 加强剂。
+此前，中俄两国的海军编队与战略轰炸机编队分别在东海和日本海空域、海域举行了联合军事巡航。
 
-同一时间，一个由疫苗受害者的家属组成的 COVID-19 疫苗受害者家庭委员会（Kobaekhoe）聚集在医院外，待郑恩京的座驾驶出医院，他们手举死者遗像和抗议标语上前围堵，迫使郑恩京下车与遇难者家属交谈，承诺会准备与遇难者家属亲自会面的机会，并且会就死亡事件做详细调查。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/81a09464-a8259b13f1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-14.jpg)
-
-来源｜[Daum](https://news.v.daum.net/v/20211119165109527)
+据悉，11月21日－30日，美、日、澳、加、德约34艘军舰和40架飞机将在日本周边水域举行为期10天的联合军演。
 
  
 
