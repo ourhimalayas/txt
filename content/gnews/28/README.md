@@ -2,68 +2,60 @@
 ---
 
 
-## [Michael.Tonny专栏]接种CCP病毒疫苗已在欧盟造成118.1万人产生不良反应
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1681255/)
+## 有声|【信仰之声】对70多年苦难的反思
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1681338/)
 
-加拿大温哥华扬帆农场  Michael.Tonny
-![](https://assets.gnews.org/wp-content/uploads/2021/11/22-100.jpg)
-截止至2021年11月13日，EudraVigilance统计系统共收到四种在欧洲药品管理局所属欧洲经济区（EEA）27国推广的COVID-19（CCP病毒）疫苗已导致 1,163,356 例药物不良反应报告，其中，轻度不良反应665，751例，严重不良反应497,605例，死亡30,551例。而到2021年11月20日，该系统总共收到1,181,121例CCP病毒疫苗不良反应报告（包含死亡的数据）。
+配音：香草山福音部 — Daxia
 
-这四种疫苗是：BioNTech/ Pfizer的mRNA疫苗Tozinameran，Moderna的mRNA疫苗mRNA-1273，Johnson & Johnson的疫苗JANSSEN，Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA 。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-109-1280x172-1-3.jpg)
 
-EudraVigilance统计系统是欧洲药品管理局设立的一个旨在收集欧盟 (EU)国家疑似药物副作用报告和用于评估药物开发过程中的益处和风险，并在药品获得授权后监测其安全性的报告统计系统（[EudraVigilance-European database of suspected adverse drug reaction reports](https://www.adrreports.eu/en/search_subst.html)）。民众可以登录ADRreports.eu网站，查看疑似副作用报告的总数（Individual Case Safety Reports或ICSRs）。
 
-这些数据是由欧盟(EU)各国药品监管机构和持有药品上市许可（执照）的制药公司以网络报告方式（electronically）提交给EudraVigilance的。
 
-持有药品上市许可的制药公司以及欧盟国家的药品监管机构，依法必须向EudraVigilance 提交疑似副作用报告。包含从医疗、保健专业人员和患者那里收到的报告，但不包括在欧盟之外发生的非严重副作用，也不包括研究报告（例如临床试验、非干预性研究）或其他类型的报告（仅自发报告）。
+每次想到我们民族所遭遇的苦难，我就喜欢和以色列人的历史对比，想看明白，到底是什么原因导致这些苦难，是什么原因，神许可这些苦难发生。本来在上个世纪，中国人拥有极大的自由，比如极大的言论自由，出版自由，甚至持枪自由等。但我们却偏偏最终落入中共魔爪，受了这七十多年的地狱之苦。抛开苏联，日本这些外在因素，其实更多的问题还是出于中国人自己身上。
 
-必须报告的副作用包括：(i) 导致死亡，(ii) 危及生命，(iii) 需要住院或延长现有住院时间，(iv) 报告者认为会导致持续或严重的残疾/丧失能力，(v)先天性异常/出生缺陷，或 (vi) 导致其他一些重要的医学病症。
+无独有偶，以色列人在逃离他们做奴隶的埃及之时，也多受了70年苦难。今天我们就来看看，以色列人是为什么多受了这70年的苦难。
 
-必须强调的是，EudraVigilance维护的数据库仅包括属于欧盟27个国家。这意味着，如果我们将欧洲50来个国家都包括在内，CCP病毒疫苗导致的不良反应病例会多得多。
+首先，以色列人这多余的70年苦难分为两个部分，埃及的30年和在沙漠里的40年。
 
-根据EudraVigilance系统统计数据显示，CCP病毒疫苗导致的副作用（死亡或药物不良反应）包括：血液和淋巴系统疾病；心脏疾病；先天性、家族性和遗传性疾病；听力系统疾病；内分泌失调；眼部疾病；胃肠道疾病；一般疾病和给药部位疾病；肝胆疾病；免疫系统疾病；易被感染或侵染；受伤、中毒和手术并发症；代谢和营养障碍；肌肉骨骼和结缔组织疾病；良性、恶性和未指明的肿瘤（包括囊肿和息肉）；神经系统疾病；妊娠、产褥期和围产期疾病；精神疾病；肾脏和泌尿系统疾病；生殖系统和乳房疾病；呼吸、胸部和纵隔疾病；皮肤和皮下组织疾病；；外科和医疗程序；血管疾病，等等。
+本来神对亚伯拉罕的启示是他的后裔要在埃及为奴400年。但他们却偏偏在埃及呆了430年。事情的原因，要从摩西说起。摩西本是以色列人，但因为那时候埃及人屠杀以色列人的男婴，摩西的母亲不得不把他用一个篮子放在尼罗河的芦苇丛中，躲避埃及人的追杀。在神的安排下，摩西被埃及公主救起，并因公主的怜悯心而做了公主的养子，躲过了追杀。摩西学会了埃及的一切学问，并且享受着身为公主养子带来的荣华（这一切和文贵先生的经历惊人的相似)。
 
-截至2021年11月13日，四种疫苗导致的不良反应具体数据如下：
+埃及的荣华富贵却没办法满足摩西那颗对同胞充满同情，爱好公义和怜悯的心。在摩西40岁那年，也就是以色列人在埃及的第390年。神感动摩西去带领自己的同胞从埃及人的奴役中解脱出来。有一天，在他去看望自己受奴役的以色列同胞时，发现一个埃及监工在殴打自己的同胞，于是他看四周无人，就动手杀了那个埃及监工。他希望借此让同胞知道神（上天)和自己的心意，希望同胞跟随他，一起从受奴役的悲惨命运中解脱出来，去自由地侍奉神。
 
-BioNTech/ Pfizer的mRNA疫苗Tozinameran（代码 BNT162b2，Comirnaty）：14,303 例死亡和562,213 例不良反应
+但紧接着又发生了另外一件事，几天后，摩西再次去看望同胞的时候，发现两个以色列人正在相互殴打。当他上前去劝诫那个理亏的同胞的时候，那人却说“谁立你做我们的首领和审判官？难道你要像杀那个埃及人一样杀了我吗”。不仅如此，后来居然还有以色列人把摩西杀掉那个埃及人的事情告诉了法老，于是摩西只好逃离埃及，离开了自己本来想要去救赎的同胞。
 
-Moderna的mRNA疫苗mRNA-1273(代码CX-024414)：8,385例死亡和155,793例不良反应
+摩西逃到了米甸，一住就是四十年。在拒绝了神差派去拯救他们的摩西以后，以色列人又受了埃及人40年的奴役，一直到摩西再次受神的差遣去带领他们离开埃及。他们受奴役的时间也因此比神原本预定的400年多出了30年。以色列人这30年多余苦难的根源就在于那时候大多数的以色列人黑白不分，善恶不分，不顺服公义的权柄，彼此之间没有爱，反而相互攻击、吞咬。甚至出卖和攻击自己同胞里那些愿意舍弃自己的安逸生活、有正义感、敢于站出来主持公义、制止罪恶、说真话的人。他们亲手拒绝或者说杀害了神差派的拯救者。
 
-Johnson & Johnson的疫苗JANSSEN（AD26.COV2.S）：1793人死亡和37038不良反应
+所以，40年后，神再次差遣摩西去拯救以色列人的时候，摩西多次对神说自己没那个口才和能力，甚至神显神迹以后摩西也多次委婉拒绝。一方面固然是摩西谦虚和缺乏自信，不知道神的大能。另一方面，因为过去的事情，以色列同胞早已伤透了摩西的心，摩西深深地知道自己的同胞是如何地悖逆、顽梗、怙恶不悛。可能摩西内心深深地意识到了自己的同胞是多么地无可救药。某种意义上说，摩西的判断整体而言是对的，但神就是要摩西去拯救这样的一群人。因为神知道，只要祂做工，这群罪人的后代还可以改变，还有希望。
 
-Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA (CHADOX1 NCOV-19)：6,070 人死亡和408,312例不良反应
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture4.jpg)
-截止到2021年11月20日，EudraVigilance收到的BioNTech/ Pfizer、Moderna、Johnson & Johnson、Oxford/ AstraZeneca四种疫苗不良反应报告（包含死亡）分别为：574,427例、158,401例、410,479例、37,814例。
+以色列人另外的40年多余苦难，是在他们离开埃及，进入神应许的迦南美地的路上发生的。以色列人在离开埃及后大约两年，他们已经领受了神的公义律法和正确侍奉神的条例。当他们来到圣地的边界时，神要他们勇敢地去占领应许之地。但他们的探子去打探应许之地回来后，12个人里10个人都报告坏消息，说以色列人无法得胜。约书亚和迦勒却坚定地告诉同胞们，他们可以靠神征战得胜，但是同胞们不但不听从，反而商议要用石头打死这两个有坚定信心的人，并且商量要另立首领回到埃及去。由于信心不坚定，一遇到一点挫折就要走回头路，于是神审判他们，让他们在沙漠里绕行40年的时间，才能进入应许之地。
 
-11月20日，Moderna的mRNA疫苗mRNA-1273的不良反应报告统计
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-21.jpg)
-11月20日，BioNTech/ Pfizer的mRNA疫苗Tozinameran（代码 BNT162b2，Comirnaty）的不良反应报告统计
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture2-3.jpg)
-# 
+从以色列人受这多余的70年苦难上我们可以清晰地看到我们华人过去和现在的处境都是何其相似。
 
-11月20日，Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA (CHADOX1 NCOV-19) 的不良反应报告统计
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture3-1.jpg)
-11月20日，Johnson & Johnson的疫苗JANSSEN（AD26.COV2.S）的不良反应报告统计
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture5.jpg)
-参考资料：
+回顾我们近代的历史，我们华人拒绝了太多次神的拯救，从义和团迫害基督徒，国共两党在苏联的操控下搞非基督教运动迫害教会，后来又接受自带无神论邪教属性的中共……直到现今，我们传播真相，传播福音的同胞在国内也是受到被洗脑和败坏了的同胞和中共的双重歧视和迫害。
 
-[EXCLUSIVE: European Medicines Agency Data Shows 1,163,356 Adverse Drug Reactions and 30,551 Fatalities by COVID-19 Vaccinations](https://www.thegatewaypundit.com/2021/11/european-medicines-agency-data-shows-1163356-adverse-drug-reactions-30551-fatalities-covid-19-vaccinations/)
+现在，我们要感恩神在我们因悖逆受难七十多年以后给了我们文贵先生和爆料革命。但华人要想真正得救赎，还必须要更多的同胞觉醒，更多的同胞弃恶从善。爆料革命战友们要坚定信心，绝不后退，不要害怕和畏惧挫折。最核心的，是要认识神，认识耶稣基督，知道自己生命的最终归宿和存在的意义，依靠对神的坚定信仰得胜。否则，以目前的形势来看，很可能同胞们在获得自由之前还要受许多多余的苦难。基督徒要为此祷告，更要为此付出行动。希望我们苦难不要再次白受了。
 
-[EudraVigilance-European database of suspected adverse drug reaction reports](https://www.adrreports.eu/en/data_source.html)
+愿荣耀归给我们的父神和主耶稣基督，阿门 !
 
-[Important information to consider before looking at ADR reports for the COVID-19 vaccines](https://www.adrreports.eu/en/covid19_message.html)
+文字版原文：[【信仰之声】对70多年苦难的反思](https://gnews.org/zh-hans/1646404/)
 
-[Number of individual cases identified in EudraVigilance received over the last 12 months and overall for COVID-19 MRNA VACCINE MODERNA (CX-024414) (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages)
+音频处理：Daxia
 
-[The number of individual cases identified in EudraVigilance for TOZINAMERAN is 574,427 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42325700)
+*发稿：*Yuki jiang
 
-[The number of individual cases identified in EudraVigilance for COVID-19 VACCINE ASTRAZENECA (CHADOX1 NCOV-19) is 410,479 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40995439)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-8.jpg)
 
-[The number of individual cases identified in EudraVigilance for COVID-19 VACCINE JANSSEN (AD26.COV2.S) is 37,814 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42287887)
+**更多资讯，更多关注**
 
-（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-编审：文敏      发布：文敏
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

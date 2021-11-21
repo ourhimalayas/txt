@@ -2,162 +2,60 @@
 ---
 
 
-## 喜币的优势绝对是现今区块链发展的方向
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681477/)
+## 被禁止用伊维菌素治疗新冠病毒感染者的医生今天提起诉讼
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1681501/)
 
-[https://gtv.org/video/id=61992de2e6900076612d8985](https://gtv.org/video/id=61992de2e6900076612d8985)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/112002.jpg)保罗·马里克博士（图片：来自Youtube视频截屏）
+来自《生活新闻》2021年11月18日报道
 
-**郭文贵
-Miles Guo**
+摘要翻译：
 
-(区块链专家 )他说，当区块链技术
-He (blockchain expert）said that when blockchain technology
+保罗·马里克博士提出的恢复使用安全有效的新冠病毒治疗方法的案件，将于美国东部时间11月18日星期四下午1点，在诺福克弗吉尼亚法院审理。
 
-在2020年年底之后
-after the end of 2020
+华盛顿特区《生活新闻》——在11月9日向弗吉尼亚州诺福克市巡回法院提起诉讼后，世界上发表论文最多的重症监护医生之一、圣塔拉·诺福克综合医院ICU主任、医学博士保罗·马里克医生将会出庭。
 
-在逐渐普及之后
-gradually became popular,
+定于11月18日星期四举行的听证会，可能会恢复目前被圣塔拉医疗保健系统禁止的几种治疗方法。
 
-它基本上不会让人相信银行
-it basically would make no people trust the bank
+“令人震惊的是，不允许医生行医，”儿童健康保护组织(CHD)主席兼总法律顾问玛丽·霍兰德说:“对医生的限制是不道德的，会让人们付出生命的代价。”
 
-他说如果在区块链得到应用
-He said if the blockchain has been applied
+马里克最近被圣塔拉医疗集团告知，他不能再为重症患者提供一系列高效的新冠肺炎治疗。而他已成功使用这些治疗方法，将重症监护室的新冠肺炎的死亡人数减少了50%。禁令的结果是患者死亡率急剧上升。
 
-记住啊，要得到应用
-Remember, it has to be applied
+由于马里克博士不能再眼睁睁地看着患者在没有适当治疗的情况下不必要地死亡，他提起了诉讼，允许他和他的同事使用FDA批准的药物和其它疗法的组合，在过去的18个月里，这些药物和疗法挽救了数千名新冠肺炎危重患者。
 
-特别是它的流通没有层次、没有阶级
-Especially when its circulation has no hierarchy or class,
+11月12日星期五，圣塔拉医院随后提出动议，要求驳回马里克博士对他们的诉讼，因为他们禁止使用几种药物，而他自去年以来一直使用这些药物，安全有效地治疗新冠病毒感染的危重患者。
 
-普遍性、支付性达到的时候
-and when its universality and payment availability is reached
+根据马里克博士随后提交的回复，圣塔拉医院的驳回动议是一种“苍白无力的借口”，旨在避免医院面临的真正生死问题，声称马里克博士缺乏提起诉讼的“资格”，因为他本人（与他的患者不同）据称没有受到任何伤害。
 
-没有任何人再相信政府和相信银行
-There would be no one to trust the government and the bank anymore
+马里克博士的律师弗雷德泰勒说：“圣塔拉诺医院的辩护，剥夺了对患者接受挽救生命治疗的权利，以及对她的医生开具处方的权利的非常真实的伤害，”。
 
-2021年我们将看到去中心化存储、去中心化金融
-In 2021, we would see decentralized storage and decentralized finance,
+“这个案例是关于医院管理部门，是否可以合法地禁止重症新冠肺炎患者接受信息和治疗，如果他们和他们的医生这样决定，在医学上对他们来说是合适的，”泰勒继续说道。“弗吉尼亚州的法律很明确，主治医生有权使用他们认为合适的治疗方法，而不是医院。”
 
-和非政治性货币的飞速发展
-and the rapid development of non-political currencies
+**简评：**
 
-我认为表现最好的将是加密货币和比特币、以太坊
-In my opinion, the best performers would be cryptocurrencies and Bitcoin and Ethereum
+200多项研究证明，伊维菌素对治疗新冠病毒感染有效。如果在感染后的7天内服药，治愈率100%。如果7天后服药，治愈率99%。临床上有FDA批准的成品药阿斯匹林、安全使用超过30年的伊维菌素，还有硫酸羟氯喹的临床实验。但是这些药不允许使用，必须接种有很多不良反应、且完全没有经过安全、科学实验，反常规的疫苗。有些12到16的孩子接种疫苗之后出现了心肌炎、心包炎，血栓、甚至死亡等等。
 
-然而我们希望继续在2022年看到成功
-However, we hoped to continue to see success in 2022
+伊维菌素起源于日本，而且许多科学论文显示伊维菌素是治疗新冠病毒感染安全有效的药物，特别是在中美洲、南美洲、以及印度，医生们使用伊维菌素治疗新冠病毒感染，已经取得巨大的成功。而CDC、FDA以及政客们，在经济以及政治利益驱使下，对此却无视。
 
-以太坊的扩展范围需要在2021年得到解决
-Ethereum’s extended scope needed to be resolved in 2021
+新闻链接：[Top doctor banned from treating COVID patients with ivermectin brings lawsuit to court today](https://www.lifesitenews.com/news/top-doctor-banned-from-treating-covid-patients-with-ivermectin-brings-lawsuit-to-court-today/)
 
-但是下一个专家说得很清楚
-But the following expert made it very clear
+***翻译/简评**：希望*
 
-不能流通的虚拟货币
-Virtual currencies that could not be circulated
+***校对**：Julia Win*
 
-几乎都会被淘汰
-would almost always be eliminated
 
-在支付普遍性情况下的货币
-In the case of universal payment currency
 
-和有稳定性的货币一定是世界的金融之王
-and stable currency must be the king of finance in the world
+* * *
 
-这就是人类的劳动和时间换来的生产结果
-and those were the results that exchanged from human’s labor and time
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-不应该被政府垄断
-It should not be monopolized by the government
 
-不应该被一个某个政府所定价
-It should not be priced by a certain government
+编辑：【英国伦敦喜庄园编辑部】
 
-区块链的到来
-The arrival of the blockchain
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-把医学、科技、想法、知识全变成了
-has turned medicine, technology, ideology, and knowledge
 
-端到端的、公平的、去第三方去中心化的衡量资产的标准
-into end-to-end, fair, and third-party decentralized standards for measuring assets
-
-这是多么伟大呀
-How great this is
-
-最重要的事情
-The most important thing is that
-
-其中这仨哥们都说到
-among what these three buddy friends have said,
-
-全世界所有区块链的核心要点
-all the key points of all blockchains in the world
-
-全被喜联储给抓到了
-have been in possession of the Himalaya Reserve
-
-没有支付的货币一定没有未来，都得滚蛋
-Currency without a payment system will certainly have no future and would be eliminated
-
-你别忘了
-Please don’t forget
-
-IBM是整个区块链的核心要素
-IBM is the core element of the entire blockchain
-
-IBM的电脑里的有一种语言说得非常清楚
-And there is a language in IBM computers that speak very clearly that
-
-所有的区块链的最终的存在不存在的结果和价值
-the final existence and value of all blockchains
-
-衡量在你是否遵守区块链的去账本化的加密技术
-and the measurement of whether you comply with the de-booking encryption tech-nology of the blockchain
-
-就是保密安全
-is confidentiality and security
-
-咱们喜币牛就牛在这
-This is the extraordinary thing about our HCoin
-
-它能流通，是在全球啥都能买
-It can be circulated, and you can buy anything with it globally
-
-不但如此
-Not just this
-
-我可以稳定欧元
-I can stabilize the euro (with the HCoin)
-
-我想稳定谁稳定谁
-I can stabilize whoever I want (with the HCoin)
-
-所以咱的喜币牛的不是一般了
-Therefore, our HCoin is not just average, its extraordinary
-
-**原视频链接:** [https://gettr.com/post/pgywfk3cdf](https://gettr.com/post/pgywfk3cdf)
-
-Date: 11/14/2021
-原视频标题: 喜币的优势绝对是现今区块链发展的方向
-The advantage of HCoin is definitely the direction of current blockchain develop-ment
-原视频日期：2021/11/14
-任务编号：KC270（2897）
-视频时间段 : 0:00-2:17
-
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

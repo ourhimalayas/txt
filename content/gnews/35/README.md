@@ -2,50 +2,20 @@
 ---
 
 
-## 福特和通用汽车可能将很快涉足半导体产业
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1681127/)
+## 秘翻在线: 香港欲为3岁以上儿童接种疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1681150/)
 
-作者：纽约香草山农场 – 四季
+撰稿：西枫westca
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-9-1.jpg)图片来源：网络照片
+据新华网11月20日报道，香港政府将科兴疫苗的年龄限制由18岁降至3岁。根据港府声明，会优先安排12-17岁青少年接种，并在稍后阶段扩展至低年龄组别的儿童。香港食物及卫生局长认为，考虑到疫情对公众健康构成的威胁，扩大接种年龄资格后，好处超过了风险。
 
+在中共国，自10月以来，已经开始为年仅3岁的儿童接种疫苗，而在另一共产国家古巴，年龄已经降至2岁。在欧洲，意大利、爱尔兰、希腊、芬兰、德国、奥地利、丹麦、法国、西班牙、瑞典、瑞士、挪威等国已经开始为12以上的青少年接种中共病毒疫苗。
 
+最大的疫苗制造公司辉瑞，在获得FDA的授权数天后，针对5-11岁的儿童的疫苗已经获得了CDA的认可。这意味着多达2800万的儿童将要被注射疫苗。在没有足够的时间进行临床实验，各种致残、致死的副作用不断在世界各地涌现的情况下。各国在强推完全接种至成年人后，现在又把矛头指向儿童。从这种全球统一的行动下，我们所能看到的是大医药公司的贪婪，对利润无止境的追求，以及各国政府利用疫情加大对民众的控制手段。
 
-
-
-据[零对冲](https://www.zerohedge.com/markets/ford-and-gm-could-soon-be-getting-semiconductor-production-business)11月19日报道，福特和通用汽车可能将开始垂直整合，通过生产来解决他们的半导体困境。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1466-ford-gm.png)图片来源：零对冲
-
-《华尔街日报》的一份新报告称，两家汽车制造商都在寻求进入半导体行业，事实上，福特已经与格芯（GlobalFoundries）达成开发芯片的战略协议，这一合作的重点是生产高端芯片，用于几年后的汽车，并实现其在美国的生产。
-
-报道称，福特正在考虑开发芯片，帮助改善一些车辆功能。而通用汽车也在与高通和恩智浦半导体等公司合作，并已签订了生产芯片的协议。
-
-汽车制造商预计，由于市场的高需求，芯片短缺将在未来几个月甚至几年内持续。然而，自由市场将为行业的瓶颈找到解决方案，使危机转化为机遇。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+**新闻来源：**[香港批准扩大科兴疫苗接种年龄至3到17岁-新华网 (news.cn)](http://www.news.cn/politics/2021-11/20/c_1128083363.htm)
 
  
 
