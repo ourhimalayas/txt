@@ -2,31 +2,40 @@
 ---
 
 
-## 有声|文贵先生20年前已投资AMD芯片 用远见把握着世界的命脉
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1682462/)
+## 共和党参议院候选人称福奇是“大屠杀凶手”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1682484/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月17日文贵大直播尾声阶段，草根小哥提出一问题：郭文貴先生早在20年前已深入佈局關鍵領域，投資AMD芯片，很多AMD的核心人才，包括台积电的核心人才，在2000年左右就有接触，文贵先生如何有这种远见和判断？把握着世界的命脉！
+**翻译： Jenny Ball**
 
-文贵先生表示：有些事开了窍，就一通百通了，希望战友们找到做人的窍门和法门，走向成功的智慧。首先越远离中国大陆和里面的人，进步的越快。再次一定要和高人打交道，核心是智慧、谦虚为人，高人会介绍比他们更高的人，结识更多人脉，这也是文贵先生能认识那么多国家领导人所在。只有把内心的智慧启迪出来，认识更高的人，才能走向世界文明的最高端，释放内心的潜力。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip03-2.png)
 
-文贵先生最后强调：新中国联邦不需要宗教，但需要信仰，只有相信上天有神，新中国联邦人是有使命的，受上天指引，来自上天的力量，新中国联邦充满着神秘，受上天超自然力量的帮助。
+据《新闻周刊》报道，在 2022 年俄克拉荷马州参议院初选中，与共和党参议员詹姆斯·兰克福德竞争的牧师杰克逊·拉迈尔（Jackson Lahmeyer）表示，如果凯尔·里顿豪斯（Kyle Rittenhouse）被送进监狱，而美国国家过敏研究所（NIAID）所长安东尼福奇可以自由行走，那么这个世界就真颠了个了。
 
-文字版原文：[文贵先生20年前已投资AMD芯片 用远见把握着世界的命脉](https://gnews.org/zh-hans/1679505/)
+据《新闻周刊》报道，拉迈尔称里顿豪斯是一名“美国英雄”，他去年因枪击两名暴徒并打伤第三人而受审，**拉迈尔称福奇应该被监禁。**
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+“他们崇拜一个大屠杀凶手，福奇应该在监狱里，” 拉迈尔在周二的 Facebook 直播中说，据《新闻周刊》报道。“但是凯尔·里顿豪斯为自己辩护，反对一名被定罪的恋童癖者，一名被定罪的殴打女子的人，他正在为自己的生命而战，以免入狱。我们的国家现在正在颠倒黑白。”
 
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+据《新闻周刊》报道，拉迈尔发誓每天都会打电话给福奇，并表示这位传染病专家是“美国最大的骗子，他犯了谋杀罪”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+**拉迈尔转发了《新闻周刊》关于他的评论的文章，他补充说：“安东尼·福奇需要因危害人类罪而被解雇、逮捕和定罪**。”
+
+福奇是一名大规模杀人犯，他需要因危害人类罪被解雇、逮捕和定罪。
+
+拉迈尔得到了前总统川普的国家安全顾问迈克尔·弗林（Michael Flynn）和川普政府前高级顾问塞巴斯蒂安·戈卡（Sebastian Gorka）的支持，正如拉迈尔的竞选网站所宣传的那样。
+
+拉迈尔的竞选网站还称，他“从没想过自己会竞选政治职务，但在詹姆斯·兰克福德于 1 月 6 日背叛川普总统后，拉迈尔说他‘受够了’并决定参加竞选。”
+
+他的网站还提供了一个指向 COVID-19 疫苗豁免表的链接，以及支持者填写的请愿书。
+
+**新闻来源**：[thehill.com][GOP Senate candidate says Fauci is ‘mass murderer,’ should be jailed rather than ‘hero’ Rittenhouse](https://thehill.com/gop-lawmakers/582309-gop-senate-candidate-says-fauci-is-mass-murderer-should-be-jailed-rather-than)
+
+* * *
+
+***素材：文舞
+审核：文乐
+校对：阿伯塔
+发布：信心满满***
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

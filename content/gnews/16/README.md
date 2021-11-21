@@ -2,18 +2,18 @@
 ---
 
 
-## 疑似回应中俄军演，美日澳加德五国将在日本周边海域联合军演
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1682376/)
+## 中共国下调与立陶宛的外交关系
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1682419/)
 
-韩国首尔天池农场—虎眼　校对/上传—无明逆流
-![](https://assets.gnews.org/wp-content/uploads/2021/11/５f5-400a-bfb0-7d29bb8dc5e8.jpg)图为南海战略媒体消息
-据中共南海战略媒体消息，11月20日，有卫星在日本四国岛以南海域发现包括美军“卡尔文森”号航母，日本“出云号”直升机驱逐舰、澳大利亚海军“布里斯班”号驱逐舰、加拿大海军“温尼伯”号护卫舰、德国海军“拜仁”号护卫舰在内的多国军舰。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11211.jpg)图片来自大纪元网站
+11 月 21 日 – 中共国外交部今天表示，中共国已正式将与立陶宛的外交关系降级为“业务任务”级别，以抗议台湾事实上在维尔纽斯设立大使馆。
 
-此前，中俄两国的海军编队与战略轰炸机编队分别在东海和日本海空域、海域举行了联合军事巡航。
+外交部在一份声明中说：“中共国政府不得不降低两国外交关系，以维护其主权和国际关系的基本标准。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/81a09464-a8259b13f1.jpg)
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/21/taiwan-cina-declassa-relazioni-diplomatiche-con-lituania\_fee6c410-f16c-4159-87ac-369a942de74b.html](https://www.ansa.it/sito/notizie/topnews/2021/11/21/taiwan-cina-declassa-relazioni-diplomatiche-con-lituania_fee6c410-f16c-4159-87ac-369a942de74b.html)
 
-据悉，11月21日－30日，美、日、澳、加、德约34艘军舰和40架飞机将在日本周边水域举行为期10天的联合军演。
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

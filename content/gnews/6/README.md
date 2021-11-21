@@ -2,55 +2,109 @@
 ---
 
 
-## 首届中共网络文明大会，文革数字版升级
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1682513/)
+## 喜联储是中心化的行政体制
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682537/)
 
-*视频&文章：澳洲天好蓝*
+[https://gtv.org/video/id=6199cfa2e6900076612dcd75](https://gtv.org/video/id=6199cfa2e6900076612dcd75)
 
-11月19日上午，中共所谓的首届网络文明大会在北京举行，习也致信表示祝贺，表明习也比较看重这个事情，因为这是新文革的现代化数字网络版。跟毛当权时一样，为了巩固和完全夺取中共党内的全部权力，打击政敌，文革便是毛所谓发动群众也就是红卫兵来武力冲击当时党内各机关和部门夺得控制权，所以习还是予以关注的，还是重视的，希望当他与江大打出手的时候，至少舆论也要占据优势，这样他干什么都名正言顺了。以前只能通过报纸书刊给大众洗脑，搞运动，不过那时候的方式已经不适应现在这个时代了，现在百姓大都通过网络获取信息，所以现在所谓的网络“文明建设”就是中共的重点。
+郭文贵
+Miles Guo
 
-中共网络“文明”大会发布了所谓十件大事：
+告诉你，所有全人类只要是货币都是中心化的
+I tell you, all human beings’ currency are all centralized
 
-1.吹棒习的内容略过。。。
+只要是货币就是中心化，数字货币就是去中心化的，也有中心化的
+As long as the currency is centralized, the digital currency is decentralized, and there is also centralized
 
-2. 制定出台网络安全、数据安全和网络生态治理系列法律法规规章，为网络文明建设提供有力法治保障
+你们要意识到，喜联储它是中心化的行政体制
+You have to realize that Himalaya Reserve is a centralized administrative system
 
-此条出台的所谓: 《中华人民共和国网络安全法》、《中华人民共和国数据安全法》、《中华人民共和国个人信息保护法》、《互联网新闻信息服务管理规定》《网络信息内容生态治理规定》、《互联网用户公众账号信息服务管理规定（修订）》，实际都是以所谓法律的形式把个人信息都变成了中共的财产，企业和个人的信息完全受中共的控制和操作，中共有最高权限可以访问任何人的数据。当然这也是政治斗争的手段，老百姓的数据归中共所有，当然你中共自己人的也归习所有，习通过此来夺取信息权力。
+它的价值太大了，就是一个去中心化的币
+Its value is too large, it is the decentralized coin
 
-3. 实施网络内容建设工程，网络空间主旋律更加昂扬、正能量更加充沛
+但有人承担责任，这是为什么喜美元和世界要为此所震撼
+But someone takes responsibility, that’s why H dollar make the world so shocked by it
 
-所谓策划推出《牵妈妈的手》、《把青春华章写在祖国大地上》等网络主题宣传和互动引导活动，成功举办“五个一百”网络正能量精品展播活动， 实际上都是编造一些故事来给民众洗脑。
+是完全一个去中心化的技术，数字化货币就是分散式账本
+It is a completely decentralized technology, and digital currency is the distributed ledger
 
-4. 深入推进“争做中国好网民工程”，在全社会形成争做好网民的文明风尚
+不是中心化的账本，谁也拿不走，谁也偷不走，谁也不可监控
+it is not a centralized ledger, no one can take it away, no one can steal it, and no one can monitor it
 
-此举是教育部，中共全国总工会，妇联，共青团实施的，是通过线下的形式来深入洗脑民众，形成网上网下，全方位无死角洗脑民众，特别是学生。
+而且是全球化的，说当然是中心化的
+And it’s global, of course it’s centralized
 
-5. 持续开展“清朗”“净网”“护苗”等专项整治行动，有力净化网络生态
+但是这件事如果有了问题，谁负责任，有一个中心化的责任，在那呢
+But if there is a problem, say responsible, there is a centralized responsibility, where is it?
 
-这也是网络上删贴，删视频的原因之一，所谓由中央网信办、公安部、全国“扫黄打非”工作小组办公室等部门持续开展网络专项整治行动，坚决打击各类网络犯罪活动，集中整治网上各类违法和不良信息，重点清理网上对未成年人具有不良影响的负面内容，实际上醉翁之意不在酒，项庄舞剑，意在沛公，核心目的还是为了清洗网络言论。
+叫行政中心化，但是，只要是喜联储，它现在发行把喜币变成中心化纸币
+It’s called administrative centralization, but as long as it is the Himalaya Reserve, it is now issuing to turn H-Coins into centralized banknotes
 
-6. 连续举办“中国网络诚信大会”，积极营造守信互信、共践共行良好社会氛围
+它印出来纸币来，就叫中心化的，他们早就在准备中会发纸币的
+When it prints out paper money, it is called centralized, they will issue paper money, it is in preparation for a long time
 
-7. 持续举办“中国好人”网上评议和发布活动，创新社会主义核心价值观宣传教育
+甚至是金币都会发，就是什么，你拥有去中心化的资产
+Even gold coins will be issued, what is it, you own decentralized assets
 
-第6、第7条都是继续深化洗脑，严控言论。所谓的中共累计评出“中国好人”1万5千余人，重点宣传展示候选人先进事迹7万2千余件，这些所谓的好人，都是中共利益相关的人，普通人也是没有机会入选的，而且事迹都是大多都是假造或者添油加醋，比如各种消防员睡在地上摆拍，明眼人一看，就能看到衣服和鞋子都是干浄的，怎么可能是真的。
+在某种条件下，又给你中心化性可衡量的资产，
+Under certain conditions, it gives you centralized and measurable assets
 
-8. 深入宣传贯彻《英雄烈士保护法》，推动形成网上祭奠英烈的良好风尚
+一定不是印的钞票，它是可兑现的，
+It must not be the printed banknote, it is cashable
 
-英烈保护法，是一个彻头彻尾的恶法，最为著名的受害者是潘石屹的儿子在2020年6月23在微博发表了所谓侮辱烈士的言论，不过当时潘石屹的儿子在海外，一旦他回国就有牢狱之灾，讽刺的是潘石屹是中共的白手套，不过这也是政治斗争了，潘石屹是江派系的，无疑是习要整他。
+比如说你拿了一万个币，印成了一个一万币的券
+For example, you took ten thousand coins and printed a ten thousand coins notes
 
-9. “中国互联网联合辟谣平台”上线，助力建设清朗网络空间
+这一万个币券里面就你可以拿回来，你也可以拿走一万币和拿走等同一万币的资产
+You can take back this ten thousand currency notes, you can also take away ten thousand coins and take away assets of the same ten thousand coins
 
-这是新时代的互相举报，以前是邻里熟人之间举报，受害面小，现在是全国网络举报，你可能被跨省抓捕，而且所谓辟谣本身是就是一个伪命题，因为中共本身就是骗子，他们说的都是谣言。
+包括大家现在最担心，也是最想的，未来提现你们想到的
+Including what everyone worries about now, and what you think about most that cash withdrawal in the future
 
-10. 开展青年网络文明志愿行动，引导青少年健康成长
+比如说用的金币，它发行，它一定不是全流通
+For example the circulated gold coin, it issued that it must not be fully circulated
 
-最后一条就是网络洗脑，所谓打造《中国好青年》《青年网络公开课》等系列品牌产品，开展“网络青晚”“中国青年网络音乐节”等系列网络文化活动，这就相当于以前毛时代的样板戏，唱的演的都是红歌，都是舔共的所谓“主旋律”。
+只给一些一定的客户，和大家有级别使用有选择使用的那些金币
+It is only for certain customers, and everyone has the level to use and choose to use those gold coins
 
-以上十条都跟“文明”没有半点关系，都是中共加强统治，打击政敌，洗脑民众的手段，正如秦始皇的焚书坑儒，文字狱，又如毛的的文革，最终目的就是消灭不同的声音，维护自己的独裁，这是消灭文明，而不是建立文明。
+大家可以拿到，就是任何情况下，你可以完全中性化的交易
+Everyone can get it, that means under any circumstances, you can completely neutralized the transaction
 
-发布：Runaway
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-1.jpg)
+就草根小哥手滑手的，我给QMAY中心化的币
+As for Caogen brother gives QMAY centralized currency
+
+拿到手就是你的一个完全去中心化的技术，
+Using a completely decentralized technology
+
+管理体制和未来中心化的流通的币，区块链它厉害的
+The management system and the future centralized circulation of the coins, the blockchain is powerful
+
+叫全球的，谁也不可查，不可控，去账本化，去中心化的账本化管制叫区块链
+It’s called global transactions, no one can check it, uncontrollable, de-booking, decentralized book ledger control is called blockchain
+
+区块链就是全球账本化，没有中心化的账本，不可控的
+Blockchain is a global ledger, without a centralized ledger, it is uncontrollable
+
+* * *
+
+Date:11/19/2021
+原视频标题: 喜联储是中心化的行政体制
+Himalaya Reserve is a centralized administrative system
+原视频日期：2021/11/17
+原视频链接 [https://gettr.com/post/ph99osbf29](https://gettr.com/post/ph99osbf29)
+任务编号：KC272（2930）
+视频时间段 : 0:00-2:19
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

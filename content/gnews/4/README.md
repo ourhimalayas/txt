@@ -2,108 +2,28 @@
 ---
 
 
-## 喜联储是中心化的行政体制
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682537/)
+## 意大利成为帮中共国宣传的猎物
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1682542/)
 
-[https://gtv.org/video/id=6199cfa2e6900076612dcd75](https://gtv.org/video/id=6199cfa2e6900076612dcd75)
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11212.jpg)图片来自Formiche.net
+一份名为“轻松猎物”的 62 页档案声称，来自意大利的数十位领导人物被北京用作宣传工具。中共国的目标是促进外国对中共当局有益的商业活动以及面对系统性侵犯人权的沉默。多年来，很多领军人物上了当-通过那些看似无害的文化协会促进活动孵化，而现实中是由中共国共产党直接操作。
 
-郭文贵
-Miles Guo
+该论文得到了捷克智库 Sinopsis 与全球法治法律委员会的支持。它揭示了什么是中共的影响机构以及如何在议会和意大利地方政治中运作。它分析了北京在拉拢国会议员、政党、地方行政人员以及舆论团体和媒体中有影响力人物等方面所做的努力。我们公共生活中的知名人物扮演着支持中共利益和宣传的角色，成为中共机构利用的目标。
 
-告诉你，所有全人类只要是货币都是中心化的
-I tell you, all human beings’ currency are all centralized
+根据研究人员的说法，多年前开始的软实力宣传活动在 2019 年变得明显，当时一个新的执政联盟，其中包括有利于中共的新兴政治力量的 M5S签署了关于新丝绸之路，五星级领导人Beppe Grillo在他的博客上频繁发表支持中共在新疆政策的文章。
 
-只要是货币就是中心化，数字货币就是去中心化的，也有中心化的
-As long as the currency is centralized, the digital currency is decentralized, and there is also centralized
+该研究的作者透露，中共国的战略既简单又便宜：旨在与政治家、官员、外交官、企业家、学者和专家建立关系，包括创建平台、组织活动和旅行、维持个人关系，偶尔提供报酬或就业等。
 
-你们要意识到，喜联储它是中心化的行政体制
-You have to realize that Himalaya Reserve is a centralized administrative system
+运作的最高层是国际联络部（ILD），这是负责与外国精英互动的主要政党机构，主要目标是政治家和政党、智囊团、学术界和非政府组织。其中包括当代中国研究中心、意中友好协会，此外还有媒体集团。
 
-它的价值太大了，就是一个去中心化的币
-Its value is too large, it is the decentralized coin
+根据档案，中共国人通过议会友好协会参与意大利政治。该协会经常出访中共国，其中外国政客和媒体通常无法访问的西藏。报道提到，时任参议院预算委员会主席毛罗·玛丽亚·马里诺在其中一次访问中称赞了西藏自治区在管理民族和宗教事务方面的成就。因此，一次有趣而独特的禁地之旅的特权成为中共国人获得和解态度的一种方式。
 
-但有人承担责任，这是为什么喜美元和世界要为此所震撼
-But someone takes responsibility, that’s why H dollar make the world so shocked by it
+此外还包括2016 年成立的中国文化研究所（ICC）以及成立于2017年的意中联谊会。这些组织通过利用当地政客、说客和顾问建立网络，从而增大中共在当地的影响力。
 
-是完全一个去中心化的技术，数字化货币就是分散式账本
-It is a completely decentralized technology, and digital currency is the distributed ledger
+原文链接：[https://www.repubblica.it/esteri/2021/11/20/news/una\_preda\_facile\_cosi\_l\_italia\_abbocca\_all\_esca\_della\_propaganda\_cinese-327058007/](https://www.repubblica.it/esteri/2021/11/20/news/una_preda_facile_cosi_l_italia_abbocca_all_esca_della_propaganda_cinese-327058007/)
 
-不是中心化的账本，谁也拿不走，谁也偷不走，谁也不可监控
-it is not a centralized ledger, no one can take it away, no one can steal it, and no one can monitor it
-
-而且是全球化的，说当然是中心化的
-And it’s global, of course it’s centralized
-
-但是这件事如果有了问题，谁负责任，有一个中心化的责任，在那呢
-But if there is a problem, say responsible, there is a centralized responsibility, where is it?
-
-叫行政中心化，但是，只要是喜联储，它现在发行把喜币变成中心化纸币
-It’s called administrative centralization, but as long as it is the Himalaya Reserve, it is now issuing to turn H-Coins into centralized banknotes
-
-它印出来纸币来，就叫中心化的，他们早就在准备中会发纸币的
-When it prints out paper money, it is called centralized, they will issue paper money, it is in preparation for a long time
-
-甚至是金币都会发，就是什么，你拥有去中心化的资产
-Even gold coins will be issued, what is it, you own decentralized assets
-
-在某种条件下，又给你中心化性可衡量的资产，
-Under certain conditions, it gives you centralized and measurable assets
-
-一定不是印的钞票，它是可兑现的，
-It must not be the printed banknote, it is cashable
-
-比如说你拿了一万个币，印成了一个一万币的券
-For example, you took ten thousand coins and printed a ten thousand coins notes
-
-这一万个币券里面就你可以拿回来，你也可以拿走一万币和拿走等同一万币的资产
-You can take back this ten thousand currency notes, you can also take away ten thousand coins and take away assets of the same ten thousand coins
-
-包括大家现在最担心，也是最想的，未来提现你们想到的
-Including what everyone worries about now, and what you think about most that cash withdrawal in the future
-
-比如说用的金币，它发行，它一定不是全流通
-For example the circulated gold coin, it issued that it must not be fully circulated
-
-只给一些一定的客户，和大家有级别使用有选择使用的那些金币
-It is only for certain customers, and everyone has the level to use and choose to use those gold coins
-
-大家可以拿到，就是任何情况下，你可以完全中性化的交易
-Everyone can get it, that means under any circumstances, you can completely neutralized the transaction
-
-就草根小哥手滑手的，我给QMAY中心化的币
-As for Caogen brother gives QMAY centralized currency
-
-拿到手就是你的一个完全去中心化的技术，
-Using a completely decentralized technology
-
-管理体制和未来中心化的流通的币，区块链它厉害的
-The management system and the future centralized circulation of the coins, the blockchain is powerful
-
-叫全球的，谁也不可查，不可控，去账本化，去中心化的账本化管制叫区块链
-It’s called global transactions, no one can check it, uncontrollable, de-booking, decentralized book ledger control is called blockchain
-
-区块链就是全球账本化，没有中心化的账本，不可控的
-Blockchain is a global ledger, without a centralized ledger, it is uncontrollable
-
-* * *
-
-Date:11/19/2021
-原视频标题: 喜联储是中心化的行政体制
-Himalaya Reserve is a centralized administrative system
-原视频日期：2021/11/17
-原视频链接 [https://gettr.com/post/ph99osbf29](https://gettr.com/post/ph99osbf29)
-任务编号：KC272（2930）
-视频时间段 : 0:00-2:19
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

@@ -2,26 +2,40 @@
 ---
 
 
-## 秘翻在线：纽约时报揭露亨特·拜登曾帮助中共公司收购刚果的一座钴矿
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1682432/)
+## 布罗陀接种率已达100% 现敦促取消圣诞庆祝活动
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1682460/)
 
-#### 翻译/撰稿：zzballack
+**编译： Jenny Ball**
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-516.png)图片来源：纽约邮报
-《新闻极限》（Newsmax）11月20日援引《纽约时报》（New York Times）报道说，亨特·拜登 (Hunter Biden)参与创立的渤海华美（上海）股权投资基金管理公司（BHR）曾协助中共矿业公司洛阳钼业集团 (China Molybdenum) 收购位于非洲刚果民主共和国的全球其中一座规模最大的钴矿。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip34.png)
 
-据《泰晤士报》（The Times）报道，BHR由亨特·拜登与2名美国人、多名中共投资者在2013年共同创立。亨特与2名美国伙伴担任董事会成员，总共持有30%股份，其余股份由中共投资者拥有或控制，其中包括中国银行。
+英国领土小国直布罗陀是世界上接种疫苗最多的地区之一，其政府官员宣布，由于 COVID 感染人数增加，今年的官方圣诞节庆祝活动将被取消。
 
-2016年，BHR将位于非洲刚果、原属于美国费利浦·麦克莫兰铜金公司 (Freeport-McMoRan)的Tenke Fungurume钴铜矿，以26.5亿美元的价格转让给洛阳钼业。BHR还以少数利益相关者的身分，从拥有刚果矿场部分股权的加拿大伦丁矿业公司（Lundin Mining Corp）收购了大约11.4亿美元的股份。事隔2年后，洛阳钼业又收购了BHR手中的刚果矿场股份，使其股权比例增加到80%，余下的20%则属于刚果国营矿业公司。
+人们经常提到，“**地球上接种疫苗最多的地方”是什么样子的**？ 那时 100% 的符合条件的公民都已接种了冠状病毒。
 
-数据显示，当时BHR动用的资金全部来自中共国企。其中洛阳钼业向中国建设银行贷款7亿美元，余款则由BHR透过建行属下的离岸公司获得。对于当时的交易，伦丁矿业时任行政总裁保尔·科尼贝尔（Paul Conibear）表示，虽然购买伦丁矿业股份的是渤海华美，但洛阳钼业才是真正的牵头人，交易过程中没有人尝试追究这层关系。
+据卫生官员称，自 3 月以来，该领土上的每个成年人都已接种了 COVID 疫苗，该地区人口约为 34,000 人， 一份报告实际上表明，该地区的疫苗接种率高于 100%。
 
-媒体调查还发现，亨特透过一家名为Skaneateles的有限公司，控制了BHR 10%的股份。中国方面的记录则显示，亨特虽然从2020年4月开始已不是BHR的董事会成员，但仍然透过Skaneateles持有渤海华美的股份。
+“超过 118% 的直布罗陀人口都接种了 Covid-19 疫苗，由于每天越过边境工作或访问该领土的西班牙人接种了疫苗，这一数字超过了 100%，” 《电子涡轮新闻》（eTurboNews ）报道。
 
-总统乔.拜登曾经明确表示，钴是电动车电池的关键原材料，这种资源若由中共垄断的话，将阻碍美国的电动车发展。
+尽管距离圣诞节还有五个星期，而且疫苗接种率很高，但地中海地区大约 2.6 平方英里的地区的官员警告人们，不要举行圣诞节聚会和庆祝活动。
 
-新闻来源：[NY Times Uncovers Hunter Biden Ties to Chinese Company Buying Congo Cobalt Mine](https://www.newsmax.com/politics/hunter-biden-corruption-cobalt-electric/2021/11/20/id/1045522/)
+“直布罗陀在整个 10 月，经历的 COVID-19 活跃病例的稳步增长一直持续到 11 月，**并且在过去几天变得更加指数化**，”上周的一项政府咨询宣布。“这意味着,公众必须以谨慎和明智的方式行事，同时牢记,我们仍处于全球大流行中，全世界每天都有人在失去生命。
+
+“敦促公众避免大型聚会，在法律规定的情况下或感到不舒服时戴口罩，并与他人保持谨慎的社交距离。”
+
+忽略有关疫苗效力的明显问题，直布罗陀的人们可以采取哪些不同的做法？ 根据数据，这个小领土上的每个人，都遵循了公共卫生官员的建议,他们都接种了疫苗。
+
+**评论：这就是有良知医学专家的警告：疫苗是易感Covid 的原因，是促发Covid变种的原因，mRNA和刺突蛋白造成各种猝死的元凶！政府逼迫100%人民充当试验老鼠，置人民生命为草芥，声称什么“疫苗可以保护人们免受感染”。**
+
+**新闻来源：**[westernjournal.com] [City That Hit 100% Vaccination Rate in March Now Urging Cancellation of Christmas Celebrations over Virus Fears](https://www.westernjournal.com/city-hit-100-vaccination-rate-march-now-urging-cancellation-christmas-celebrations-virus-fears/?utm_source=Email&amp;utm_medium=conservative-brief-CT&amp;utm_campaign=dailyam&amp;utm_content=conservative-tribune&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
 
  
 

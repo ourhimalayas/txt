@@ -15,82 +15,82 @@
 
 ---
 
-### [中共国内儿童和青少年疫苗接种现状](/content/gnews/1/README.md)
+### [【全字幕+视频】文贵2021年11月19日文贵大直播](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共国内儿童和青少年疫苗接种现状](/content/gnews/2/README.md)
  ` 澳喜农场`
 
-### [意大利成为帮中共国宣传的猎物](/content/gnews/2/README.md)
+### [2021-11-14《医学视角》栏目第十九期 直播精要 乙酰半胱氨酸及褪黑色素在新冠防治中的应用](/content/gnews/3/README.md)
+ ` 纽约香草山MOS03`
+
+### [意大利成为帮中共国宣传的猎物](/content/gnews/4/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [因受疫情影响，亚洲旅游业在2020年遭受重创](/content/gnews/3/README.md)
+### [因受疫情影响，亚洲旅游业在2020年遭受重创](/content/gnews/5/README.md)
  ` 首尔天池农场`
 
-### [喜联储是中心化的行政体制](/content/gnews/4/README.md)
+### [喜联储是中心化的行政体制](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文化大革命创新版，坚持皇帝制](/content/gnews/5/README.md)
+### [文化大革命创新版，坚持皇帝制](/content/gnews/7/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [首届中共网络文明大会，文革数字版升级](/content/gnews/6/README.md)
+### [首届中共网络文明大会，文革数字版升级](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [共和党参议院候选人称福奇是“大屠杀凶手”](/content/gnews/7/README.md)
+### [共和党参议院候选人称福奇是“大屠杀凶手”](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|与法币长期共存 喜币将全球通行](/content/gnews/8/README.md)
+### [有声|与法币长期共存 喜币将全球通行](/content/gnews/10/README.md)
  ` MOSREC`
 
-### [有声|文贵先生20年前已投资AMD芯片 用远见把握着世界的命脉](/content/gnews/9/README.md)
+### [有声|文贵先生20年前已投资AMD芯片 用远见把握着世界的命脉](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [有声|欧盟组建联合部队应对中共](/content/gnews/10/README.md)
+### [有声|欧盟组建联合部队应对中共](/content/gnews/12/README.md)
  ` MOSREC`
 
-### [布罗陀接种率已达100% 现敦促取消圣诞庆祝活动](/content/gnews/11/README.md)
+### [布罗陀接种率已达100% 现敦促取消圣诞庆祝活动](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [瑞典研究表明注射第二针后死亡率高20%](/content/gnews/12/README.md)
+### [瑞典研究表明注射第二针后死亡率高20%](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [秘翻在线：纽约时报揭露亨特·拜登曾帮助中共公司收购刚果的一座钴矿](/content/gnews/13/README.md)
+### [秘翻在线：纽约时报揭露亨特·拜登曾帮助中共公司收购刚果的一座钴矿](/content/gnews/15/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国下调与立陶宛的外交关系](/content/gnews/14/README.md)
+### [中共国下调与立陶宛的外交关系](/content/gnews/16/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [郭文贵-让中共闻风丧胆的战神，中共猎狐行动第一目标](/content/gnews/15/README.md)
+### [郭文贵-让中共闻风丧胆的战神，中共猎狐行动第一目标](/content/gnews/17/README.md)
  ` mary202064`
 
-### [疑似回应中俄军演，美日澳加德五国将在日本周边海域联合军演](/content/gnews/16/README.md)
+### [疑似回应中俄军演，美日澳加德五国将在日本周边海域联合军演](/content/gnews/18/README.md)
  ` 首尔天池农场`
 
-### [中共垮塌始于地产崩盘，历年人口数据造假如今骗倒自己（三）](/content/gnews/17/README.md)
+### [中共垮塌始于地产崩盘，历年人口数据造假如今骗倒自己（三）](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共垮塌始于地产崩盘，历年人口数据造假如今骗倒自己（二）](/content/gnews/18/README.md)
+### [中共垮塌始于地产崩盘，历年人口数据造假如今骗倒自己（二）](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声| 从血洗示剑的启示谈化解排华危机](/content/gnews/19/README.md)
+### [有声| 从血洗示剑的启示谈化解排华危机](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [COVID-19 最新情报｜围堵韩国疾控中心主任座驾 家属誓为死者寻找真相和公义](/content/gnews/20/README.md)
+### [COVID-19 最新情报｜围堵韩国疾控中心主任座驾 家属誓为死者寻找真相和公义](/content/gnews/22/README.md)
  ` G&#124;News TAIWAN`
 
-### [中共垮塌始于地产崩盘，历年人口数据造假如今骗倒自己（一）](/content/gnews/21/README.md)
+### [中共垮塌始于地产崩盘，历年人口数据造假如今骗倒自己（一）](/content/gnews/23/README.md)
  ` 墨尔本雅典娜农场`
 
-### [七哥谈喜联储XI:喜币和喜联储是新中国联邦人千秋万代的财产](/content/gnews/22/README.md)
+### [七哥谈喜联储XI:喜币和喜联储是新中国联邦人千秋万代的财产](/content/gnews/24/README.md)
  ` NewFOC`
 
-### [视频| 文贵先生的“一统江湖”](/content/gnews/23/README.md)
+### [视频| 文贵先生的“一统江湖”](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [视频| 世界经济背后的秘密](/content/gnews/24/README.md)
- ` MOSREC`
-
-### [全世界更多年轻运动员遭遇心肌梗塞、心脏骤停、倒地身亡](/content/gnews/25/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [视频| 托尼·布莱尔：中共必须明白 台湾和香港不同](/content/gnews/26/README.md)
+### [视频| 世界经济背后的秘密](/content/gnews/26/README.md)
  ` MOSREC`
 
 ### [印度总理同意废除农业法，意味平民运动的一次胜利](/content/gnews/27/README.md)
