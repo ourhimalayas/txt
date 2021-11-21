@@ -2,28 +2,28 @@
 ---
 
 
-## 美国官方数据显示疫苗伤害案件量触目惊心
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1682160/)
+## 11名澳大利亚护士对COVID疫苗的副作用爆料：我们被告知不要谈论我们所看到的东西
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682130/)
 
-采编：风云小哥     编译撰稿：文明(添草灭共）
+据《thecovidworld.com》，2021年11月20日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-514-e1637468058858.png)图片源自原文
+**在一段令人震惊的视频中，来自澳大利亚昆士兰州的11名护士和护理人员站出来，讲述了他们注射COVID-19疫苗的经历。这些护士的身份被遮住了，因为他们不敢说出来，但他们的身份在拍摄前被检查过并确认。在一系列令人痛心的故事中，护士们讲述了他们如何看到死亡和受伤的人堆积如山，但没有人被允许谈论此事。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-515-e1637468114282.png)图片源自原文
+护士们进一步表示，医院不再在入院病例上标注接种状态，医院的抢救警报器也被禁用，以避免吓到排队等候接种的人。此外，对于严重的不良反应，根本没有报告机制。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-8-edited.png)图片来源：yahoo新闻
+**疫苗开始推广后，他们开始看到越来越多的中风病例，尤其是年轻人，神经系统疾病、心脏病发作、肺部充满液体、内出血、肠子和鼻子的外部出血以及人们通过大血块。一名护士描述说，超过50%的病人在接受疫苗接种后看起来”严重不适”，其中一些人在接受注射后晕倒在医院。 许多护士描述说，他们宁可失去工作也不愿意打针，有些人承认他们再也不会在医疗保健领域工作了。**
+
+原文连接：[https://thecovidworld.com/11-australian-nurses-blow-the-whistle-on-covid-vaccine-side-effects-we-were-told-not-to-talk-about-what-we-had-seen/](https://thecovidworld.com/11-australian-nurses-blow-the-whistle-on-covid-vaccine-side-effects-we-were-told-not-to-talk-about-what-we-had-seen/)
+
+翻译：洛杉矶盘古农场- TrueSky
+
+校对&编辑：洛杉矶盘古农场 – 小象的奶品
 
 
-美国非盈利组织【儿童健康防卫】11月19日报道，据该国[疾病控制预防中心]当天发布的最新数据显示，在2020年12月至2021年11月期间，总共发生了89万多起“新冠病毒”疫苗接种后的健康伤害案件。
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-据悉，这些案件是由美国政府资助的【疫苗不良事件报告系统】，针对各国在使用美国制造商提供的疫苗后，所出现的各类不良事件而收录的。但有消息称，经该系统确认的疫苗副作用案例数通常只占实际数据的1%。
-
-报道还指出：在以上数据中，严重伤害报告约14万起，包括1万8千多件死亡个案；另外，在8千多宗美国死亡病例中，有约10%发生在接种该疫苗后的24小时内，约41%发生在接种后48小时内。
-
-同时，该系统数据还显示，约有2万3千多起该疫苗不良案例发生在美国12至17岁接种儿童组，其中约有1400宗包括了30起死亡报告的严重健康伤害个案。
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-原文链接：
-https://childrenshealthdefense.org/defender/vaers-cdc-injuries-covid-vaccines-fda-pfizer-moderna-bosters/
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

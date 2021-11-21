@@ -2,8 +2,8 @@
 ---
 
 
-## 视频| 把法治带回中国
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1682292/)
+## 视频| 是时候反击了
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1682284/)
 
 制作：香草山视频部
 

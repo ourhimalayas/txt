@@ -2,8 +2,8 @@
 ---
 
 
-## 视频| 四年肩并肩
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1682298/)
+## 视频| 把法治带回中国
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1682292/)
 
 制作：香草山视频部
 
