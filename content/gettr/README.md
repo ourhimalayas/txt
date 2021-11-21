@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/21/2021 2:46 PM (UTC)`
+
+11/20/2021 [3rd Anniversary of 1120]  Mr. Steve Bannon: The New Federal State of China will eventually unite the Chinese people and the world under the rule of law and the ability to achieve freedom of dissent, freedom of speech, freedom of religion<br/><br/>11/20/2021【1120三周年纪念】<br/>班农先生：新中国联邦最终会用法治把中国人和全世界连结在一起,并有能力实现异议自由,言论自由和宗教自由<br/>
+![img](https://media.gettr.com/group12/getter/2021/11/21/14/46/86ccb564-ddfd-480a-b7aa-d3aea637622c/out.jpg)
+
+---
+
 `@miles 11/21/2021 1:59 PM (UTC)`
 
 Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Clip of the Second Anniversary of the Establishment of the Rule of Law Foundation on November 20, 2020 + The Early Warning about the Disaster of the CCP Virus Vaccine by the Whistleblower Movement + Himalaya Coin Officially and Successfully Launched<br/><br/>中共体制下“被消失”的高官和商人 + 2020年11月20日【王健之死新闻发布会和法治基金成立】两周年纪念日直播片段  + 爆料革命早期预警中共病毒疫苗灾难 + 喜币正式成功上线
@@ -295,13 +302,6 @@ An orthopedic surgeon from Wisconsin described the serious side effects after hi
 
 11/17/2021 Miles Guo: Three reasons why the hooligan politicians in the West are boycotting the 2022 Winter Olympics: 1) to use politically correct reasons to shift their responsibility for athletes‘ contracting the virus or suffering from the side effects of mandatory COVID jabs; 2) to put on an anti-CCP political show to get the CCP to bribe them using the BGY scheme; 3) take advantage of the corrupt Olympics for personal gain; no matter how much they oppose the Winter Olympics, they will still end up going<br/><br/>11/17/2021 文贵直播：西方流氓政客抵制2022冬奥会的三个原因：1）以政治正确为由推卸其应为运动员染病或疫苗副作用而负的责任；2）进行反共政治表演让中共对其蓝金黄；3）利用奥运会的腐败谋求个人利益；不论怎么反对冬奥会，他们最终还是会去的
 ![img](https://media.gettr.com/group24/getter/2021/11/18/10/24/8b911650-677f-a2bb-250a-b5c2bf7f1255/out.jpg)
-
----
-
-`@miles 11/18/2021 2:48 AM (UTC)`
-
-11/17/2021 Miles Guo: The “10 Adherences” in the CCP’s third historical resolution mean no reform and opening-up, adherence to the one-party dictatorship, and restoration the rule of the emperor; Xi Jinping has become the “sun” and will possibly invade Taiwan at any time; Biden continues America’s ambiguous policies towards Taiwan<br/><br/>11/17/2021 文贵直播：中共历史决议的“十个坚持”就是坚决不搞改革开放、消灭私有经济、坚持一党独裁，恢复帝制； 习已成为“太阳”，将随时打台湾；拜登延续了美国对台的模糊政策<br/>
-![img](https://media.gettr.com/group43/getter/2021/11/18/02/48/38bd756a-8c90-f75c-1b8b-481a97fdb1d1/out.jpg)
 
 ---
 
