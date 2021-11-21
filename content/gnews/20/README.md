@@ -2,31 +2,63 @@
 ---
 
 
-## 奥地利居民集会抗议政府封城政令
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1682955/)
+## 奥运官员警告彭帅事件“可能失控”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1683022/)
 
-撰稿：Gradient Boost
+**编译：Jenny Ball**
 
-视频：历史铭记
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1121-AUS.jpg)图片来源于社交媒体
-奥地利当地时间11月20日星期六，数以千计的奥地利居民走上维也纳街头，抗议政府最新发布的全国范围内的封城命令。该封城命令从周一开始正式生效，最短也将持续超过一个星期的时间，期限大约是在10天到20天左右。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip38.png)中国网球明星彭帅在 2018 年马德里公开赛上。（Susana Vera/路透社）
 
-在封城期间，大多数商店将处于关闭状态，而原本预定在该周期内举行的所有文化活动都将取消。而人们仅被允许在某些特殊情况下离开自己的住所，例如购买生活必须物资、锻炼以及就医。
+一位奥运会官员警告说，中共国网球明星彭帅的下落危机引发了全球的强烈抗议，“可能会失控”，并敦促使国际奥委会（IOC）对北京采取更强硬的立场。
 
-于此同时奥地利政府还宣布，全国预计会在明年的2月份开始实行疫苗强制令。在这种情况下，未来12岁以上未接种疫苗的居民很可能将被限制出行，失去自由。
-视频来源于社交媒体
-游行队伍当日首先在维也纳的英雄广场集结，随后逐渐向城市内环道路行进。在现场人们高喊反抗口号，高举奥地利国旗、手举“我的身体，我做主”或是“我们与孩子站在一起”等标语——标语中也不乏对奥地利政客的嘲弄。
+现年 35 岁的彭帅，是三届奥运会选手和两届大满贯双打冠军。她已经两周多没有公开露面了，此前，她在网上帖子中[指控一名前副总理对她进行了大约三年的性侵犯](https://www.washingtonpost.com/world/asia_pacific/china-peng-shuai-zhang-gaoli-metoo/2021/11/03/79c0f308-3c4f-11ec-bd6f-da376f47304e_story.html?itid=lk_inline_manual_2&amp;itid=lk_inline_manual_4)。  她的帖子及其讨论很快在中共国社交媒体上遭到审查删帖。
 
-截至目前，奥地利在西欧国家中的疫苗接种率排名靠后。由于近段时间奥地利疫情较为严重，无能的执政者勾结无良媒体将这一黑锅甩在了未接种疫苗者的身上，并很早就开始构思限制未接种疫苗者的行动和计划。
+塞雷娜·威廉姆斯 ([Serena Williams](https://twitter.com/serenawilliams/status/1461408866697105413?s=21)) 和大阪直美 (Naomi Osaka) 等明星运动员要求提供有关她的信息，而联合国人权办公室则要求提供彭帅的安全证明。
 
-而这一次的封城在笔者看来也是为了进一步分化奥地利社会，让已经接种疫苗的人错误地认为自己的不自由是由于有人不愿意接种疫苗造成的，从而将矛头指向未接种疫苗者。这期间政府的无能将被遗忘和淡化，取而代之的是群众与群众的斗争，是典型的中共国思路。
+[其主席周四表示](https://www.washingtonpost.com/world/asia_pacific/china-wta-peng-tennis/2021/11/19/ff2c2b68-4904-11ec-beca-3cc7103bd814_story.html?itid=lk_inline_manual_7)，如果不对彭帅的性侵犯指控进行适当调查，女子网球协会或将比赛撤出中共国，可能会损失数亿美元。
 
-同时，针对疫情强制令及封城限制的抗议或许还会陆续在其他欧洲国家爆发，例如瑞士、意大利以及克罗地亚。
+中共国网球明星彭帅失踪，需要了解的内容：[*Chinese tennis star Peng Shuai is missing. Here is what you need to know.*](https://www.washingtonpost.com/sports/2021/11/19/peng-shuai-what-to-know/?itid=lk_interstitial_manual_8)
 
-新闻参考链接：
+国际奥委会表示尚未打算在 2022 年北京奥运会上采取类似举措，但这是可能会危及世界上最大的体育赛事之一的网球赛事和其相关产业的数十亿美元。国际奥委会新闻办公室周四表示，“安静的外交是找到解决方案的最佳机会。”
 
-[9 News](https://www.9news.com.au/world/austria-coronavirus-lockdown-thousands-protest-vienna/55968776-a2ac-4f55-bf8d-71536d5e223a)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-3.jpg)
+国际奥委会运动员委员会对安静的外交方式表示支持。
+
+国际奥委会运动员委员会在一份声明中说：“国际奥委会与全球运动员社区一起，非常关注三届奥运选手彭帅的情况。”“我们支持目前采取的 外交方式，希望通过这种方式，能够公开彭帅下落的信息，确认她的安全和福祉。我们也希望能找到一种方式让她和她的运动员同事直接接触。”
+
+然而，国际奥委会高级成员迪克·庞德（Dick Pound）[周五告诉路透社](https://www.reuters.com/lifestyle/sports/peng-situation-may-force-ioc-take-hard-line-with-china-says-pound-2021-11-19/)，奥委会正在关注此案，“如果不尽快以合理的方式解决，事件可能会失控。”“这是否会升级为奥运会的停止，我对此表示怀疑。但你永远不知道会发生什么。”
+
+审查已经增加了抵制即将举行的冬季奥运会的势头，因为拜登总统的政府表示，正在“[考虑”外交抵制](https://www.washingtonpost.com/politics/biden-says-us-considering-diplomatic-boycott-of-winter-olympics-in-china/2021/11/18/252ed4cc-48a2-11ec-b8d9-232f4afe4d9b_story.html?itid=lk_inline_manual_9&amp;itid=lk_inline_manual_18)，并呼吁抵制奥运会。[中共国驳斥了侵犯人权的指控](https://www.washingtonpost.com/sports/olympics/2021/11/19/china-olympics-diplomatic-boycott/?itid=lk_inline_manual_18) ，称其“分散注意力”。
+
+与此同时，一名中共官方媒体记者周五分享了彭的照片，他说她在微信上发布了“周末快乐”的字样。官方媒体《环球时报》的编辑说，这名运动员“在自己家里自由自在”，但“很快就会出现在公共场合，并参加一些活动”。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip39.png)
+
+周六晚些时候，另一位中共官方媒体记者分享了彭在一家餐厅的视频。这些照片显示彭微笑着在满是毛绒玩具的房间里抱着一只猫，视频并没有缓解人们的担忧， [人权研究人员表示](https://twitter.com/williamnee/status/1461770430021181446)，这些图片只会引发更多问题，评论者[质疑帖子的真实性](https://twitter.com/ThisIsWenhao/status/1461742290406363153)。
+
+“我很高兴看到中共国官方媒体发布的视频显示彭帅在北京的一家餐厅里，”WTA 主席[史蒂夫•西蒙周六在一份声明中回应这些视频时说](https://www.wtatennis.com/news/2361225/statement-by-steve-simon-wta-chairman-ceo-on-recent-video-posted-by-china-state-run-media-of-peng-shuai)。“虽然见到她是积极的，但目前尚不清楚她是否自由，是否能够在没有胁迫或外部干扰的情况下，自行做出决定和采取行动。仅此视频是不够的。正如我从一开始就说过的，我仍然担心彭帅的健康和安全，性侵犯的指控正在被审查和掩盖。我很清楚需要发生什么，我们与中共国的关系正处于十字路口。”
+
+本周早些时候，国营的中共国环球电视网（CGTN）发布的一封据称来自彭的电子邮件也遭到了质疑。西蒙说，他“很难相信彭真的写了这封电子邮件”给他，她说她既没有不安全也没有失踪。
+
+他说：“我多次尝试通过多种沟通方式联系到她，但无济于事。”“WTA 和世界其他地方，都需要独立且可验证的证据来证明她是安全的。”
+
+**点评：安静的解决方案就是抵制在中共国的冬奥会，行动力量大于语言，尤其对中共这样的流氓共产主义独裁者！**
+
+更多相关信息和素材链接：
+
+[Women’s Tennis Association threatens to pull out of China over star player’s disappearance](https://www.washingtonpost.com/world/asia_pacific/china-wta-peng-tennis/2021/11/19/ff2c2b68-4904-11ec-beca-3cc7103bd814_story.html?itid=lk_inline_manual_30)
+
+**新闻来源：**[washingtonpost.com][Olympics official warns that Peng Shuai case ‘may spin out of control’ as images of tennis star raise questions](https://www.washingtonpost.com/world/2021/11/20/peng-shaui-china-ioc-member-comments/?utm_campaign=wp_post_most&amp;utm_medium=email&amp;utm_source=newsletter&amp;wpisrc=nl_most&amp;carta-url=https%3A%2F%2Fs2.washingtonpost.com%2Fcar-ln-tr%2F35560c9%2F619926989d2fdab56b963138%2F5e2dde419bbc0f6326309bfd%2F15%2F70%2F619926989d2fdab56b963138)
+
+* * *
+
+***审核：文乐
+校对：信心满满
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
