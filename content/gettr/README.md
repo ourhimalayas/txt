@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/21/2021 1:35 PM (UTC)`
+
+Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Clip of the First Anniversary of the Establishment of the Rule of Law Foundation on November 20, 2019 +<br/>Foundation of the New Federal State of China (NFSC) + The Whistleblower Movement Exposes the Truth about the CCP Virus<br/><br/>中共体制下“被消失”的高官和商人 + 2019年11月20日【王健之死新闻发布会和法治基金成立】一周年纪念日直播片段 + 新中国联邦成立 + 爆料革命预警中共病毒时间线
+![img](https://media.gettr.com/group17/origin/2021/11/21/13/35/6befacb4-3bad-0ddd-bae6-762ed739deeb/out.jpg)
+
+---
+
 `@miles 11/21/2021 1:09 PM (UTC)`
 
 Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Touching Moments of the Press Conference for the Establishment of the Rule of Law Foundation on November 20, 2018 +<br/>Liberate Hong Kong, Revolution of Our Time<br/><br/>中共体制下“被消失”的高官和商人 + 2018年11月20日【法治基金成立】新闻发布会震撼瞬间 + 光复香港 时代革命
@@ -295,13 +302,6 @@ An orthopedic surgeon from Wisconsin described the serious side effects after hi
 
 11月17日：恒大，彻底完鸟……
 ![img](https://media.gettr.com/group3/getter/2021/11/18/02/7da0220b-f956-8181-845b-2ae8bf660174/1c8bfdbfb5166da61d5ec8222b6eb074.jpg)
-
----
-
-`@miles 11/18/2021 2:01 AM (UTC)`
-
-11月17日：5个月的多多与2岁的笨笨……
-![img](https://media.gettr.com/group9/getter/2021/11/18/02/01/1f958da9-0b4b-0016-9854-ecd2b2d02013/out.jpg)
 
 ---
 

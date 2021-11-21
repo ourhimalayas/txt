@@ -2,22 +2,52 @@
 ---
 
 
-## 文贵爆料 11.20：房峰辉曾警告美国：小心生化武器，中共要在中东建军事基地
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1680868/)
+## 洛杉矶对孕妇接种中共病毒疫苗加强针
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1681256/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-2.png)
-早在这场生化灾难之前，这世界早已是暗流汹涌，杀机四伏。在11月20日 “11·20”发布会及法治基金、法治社会成立三周年纪念日大直播中，郭文贵先生说，早在2017年，中共上将房峰辉就私下警告美国：小心生化武器，中共计划要在中东建多个军事基地。
+作者: 洛杉矶盘古农场 – 滴水穿石
 
-在2年前、3年前、4年前，美国CIA就曾经问我，中东有军事基地吗？我都说不知道。CIA说，我们从中共军方得到消息，中共要在中东建军事基地。我说，那你们自己可以去核实一下。我跟CIA和FBI人员见面时说，你们要想办法把房峰辉给搞定。我曾告诉班农，房峰辉想同美国合作。CIA并没有认真，都说你疯了，他怎么会跟我们合作呢？不可能。结果过了段时间房峰辉被抓了。
 
-房峰辉被抓之前一直跟我有联系，说只要美国人能保我家人安全，我把知道的所有的东西都给他们，当时他就对美国说，美国要小心化学武器和生化武器，中共计划要在中东建多个军事基地。这都是2017年发生的事情。今天看直播的中共高官，你们别搞错了啊，是你们的人卖掉了你们，不是中东，不是郭文贵啊。
 
-房峰辉是中共中央军事委员会原委员、中央军委联合参谋部原参谋长，上将军衔，于2018年落马。
 
-参考链接：
 
-[2021年11月20日 “11·20”发布会及法治基金、法治社会成立三周年纪念日大直播](https://gettr.com/streaming/phfwwdaf84)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2.png)
+
+
+
+
+
+在美国加州洛杉矶县，公共卫生总监芭芭拉·费雷尔 (Barbara Ferrer) 表示，根据美国疾病控制与预防中心发布的指南，几乎所有的成年人已经有资格获得中共病毒疫苗加强针。同时加州州长要求所有的小学校必须全面执行疫苗接种令，5-12岁的孩子也包含其中，该年龄段的儿童若不接种新冠疫苗，明年1月1日之后将无法入学。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/LAtimes.jpg)图片来源: Los Angeles Times
+
+洛杉矶县的Altadena 居民 Nicole Fahey 已怀孕六个月，她于 11 月 3 日在加州政府与洛杉矶卫生部门的“全民接种令”的宣传下，到 Eugene A. Obregon 公园接种了来自 RN Veronique Vida 的辉瑞 BioNTech 疫苗加强针。 据专业人士称，这是典型的医药大公司与地方政府卫生部门之间的默契，而联邦与地方的卫生官员更不再乎孕妇怀着6个月大的婴儿在身。为了争夺资本、控制权利，可怜的小生命与妈妈成了大医药公司的试验品。
+
+参考阅读:
+
+[洛杉矶和旧金山市鼓励所有成年人接种疫苗强化针](https://www.latimes.com/california/story/2021-11-12/l-a-county-encourages-all-adults-to-get-booster-shots)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+编辑/校对/发稿：Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-1.png)
+
+
 
  
 

@@ -2,66 +2,44 @@
 ---
 
 
-## 麦卡洛博士起诉爱思唯尔期刊拒发儿童接种风险研究
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1682719/)
+## 韩国芯片制造商停止在中共国的业务扩张
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1682805/)
 
-**翻译： Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-145.jpg)图片来源：laoyaoba
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip35.png)McCullough 博士起诉 Elsevier 期刊拒绝发表强调儿童“接种疫苗”风险的研究
+**翻译：**Lish
+**编辑：**MSGZ
 
-Covid-19 顶级专家彼得·麦卡洛博士(DR. Peter McCullough) [起诉爱思唯尔](https://www.lifesitenews.com/blogs/dr-mccullough-sues-medical-journal-for-refusing-to-publish-papers-showing-covid-shot-risks-in-children/)期刊(Elsevier)拒绝发表一项新研究，该研究表明福奇流感疫苗对儿童特别危险。
+美国阻止英特尔等公司在中共国扩大其芯片制造业务，似乎对全球其它芯片制造商产生了影响。因为美国的贸易政策，全球顶级的内存芯片供应商海力士（韩国），已经停止了在中共国安装新的生产设备。
 
-在 “约翰-亨利·韦斯顿秀”（John-Henry Westen Show）最近的一集中，麦卡洛博士解释说，爱思唯尔最初发表了该研究，但在美国食品和药物管理局 (FDA) 齐聚一堂讨论在 5 至 11 岁的儿童中授权该实验药物用于“紧急”用途后，迅速删除了它  。
+据日经新闻报道，该公司本来计划将极紫外光刻（EUV）设备引入其在江苏省的工厂，该工厂生产约40%的DRAM芯片（动态随机存取存储器）。但是，由于美国已经采取了“限制中共国获得可能提高其军事力量的先进技术”的措施，该公司停止了这一计划。
 
-“这是一种公开的审查行为，”他解释说。“我们将对爱思唯尔发起全面诉讼，这将是违反合同的。”
+美国当局表示，应限制向中共国公司直接供应EUV设备。报道指出，由于同样的担忧，荷兰芯片制造设备制造商（ASML）在2019年暂停向中共国芯片制造商《中芯国际集成电路制造有限公司》供货。
 
-麦卡洛博士想知道为什么爱思唯尔决定对公众和科学界隐瞒这项重要的研究。不过，我们都已经知道答案：这是因为真正的科学反驳了这些实验性疫苗所谓的“安全性”和“有效性”。
+回顾几天前，中共外交部发言人赵立坚在北京的一次新闻发布会上说，美国阻止英特尔等半成品公司的（业务）扩张计划，是在“延伸国家安全概念”。还说美国正在利用国家安全作为“建立贸易壁垒”的手段。他还指责拜登政府强迫三星和台湾半导体交出与其供应链有关的“敏感信息”。
 
-“最值得注意的发现是，这种心肌炎心脏炎症，通常发生在辉瑞或莫德纳之后的第二次注射时，它具有爆炸性，并且会在第二次注射后的几天内发生，” 麦卡洛博士说。
+回顾一下我们上周的报道，英特尔曾提议“使用中国成都的一家工厂来生产硅片”。它本可以在2022年之前上线，但白宫“强烈反对”这一举措。英特尔可能不得不听从，因为该公司正在寻求政府支持，帮助扩大其在美国制造半导体的能力。
 
-**审查科学不是真正的科学**
+英特尔告诉彭博社，它现在正在寻找其他可以满足对创新和经济至关重要的，对半导体高需求的解决方案。该公司继续说，英特尔和拜登政府有一个共同的目标，即解决目前全行业的微芯片短缺问题，我们已经与美国政府探讨了一些方法，我们的重点是对我们现有半导体制造业务的重大扩展，以及我们在美国和欧洲投资数百亿美元建设新晶圆制造厂的计划。
 
-**爱思唯尔涵盖了整个医学期刊系列**，要清楚， 在指导现代医学方向方面，它是规模最大、可以说是最有影响力的机构之一。
+在这篇报道的前几天，我们写了美国公司如何在中共国的半成品交易上大肆挥霍，引起了白宫的审查。
 
-对于爱思唯尔来说，仅仅因为科学违背了官方的大流行叙述，就将科学拒之门外，这只是表明，它与其他人一样受到了损害。
+《华尔街日报》的一篇报道说，尽管存在明显的安全冲突，美国风险投资公司一直在“加大对中共国半导体公司的投资”。我们注意到，美国公司累计已经帮助中国芯片初创企业筹集了“数十亿美元”。
 
-在这种情况下，爱思唯尔出版的心脏病学消除了当前“有争议”问题的研究。**麦卡洛博士是为数不多的敢于对此发表意见的人之一，如果不是唯一的话**。
+我们写道，从2017年到2020年，中共国的半导体行业已经有超过58笔交易。在这些“积极的投资者”中，英特尔投资了一家名为概伦电子的中共国公司，该公司生产的芯片设计工具目前在美国占有领先地位。
 
-毕竟，麦卡洛博士[直言不讳](https://www.naturalnews.com/2021-07-14-cdc-whistleblowers-covid-vaccines-killed-50000-americans.html)地谈论了瘟疫的欺骗行为。早在 7 月，他就表示，当时已有超过 50,000 名美国人因疫苗注射而死亡。
+英特尔上周告诉《华尔街日报》，其在中共国的投资“在旨在支持其业务和产生回报的全球投资组合中不到10%的交易”。
 
-包括两名来自美国CDC的举报人在内的几名举报人告诉麦卡洛博士，福奇流感疫苗导致的真实死亡人数，远高于报道的人数。
+**原文链接：**[South Korean Chipmaker SK Hynix Halts Expansion Plans In China Due To U.S. Trade Restrictions | ZeroHedge](https://www.zerohedge.com/markets/south-korean-chipmaker-sk-hynix-halts-expansion-plans-china-due-us-trade-restrictions)
 
-**疫苗不良事件报告系统 (VAERS) 以严重低估不仅与福奇流感疫苗有关，而且与 CDC 推动的所有“疫苗”相关的伤害和死亡的真实数量而闻名**。
+***发布：**翼族*
 
-如果爱思唯尔是一本诚实的出版物，它的编辑人员就会毫不犹豫地发表与现状相反的研究。相反，爱思唯尔选择审查真相，只发表支持福奇版本的“真相”的研究。
-
-您可能还记得，**麦卡洛博士仍然强烈支持对所谓的“Covid”感染进行早期干预治疗。 他提倡使用羟氯喹 (HCQ) 和伊维菌素**，这两种药物都已被爱思唯尔等公司列入黑名单。
-
-“没有证据表明病毒机器存在，”一位自然新闻评论员在谈到整件事的闹剧时写道。
-
-“假设的病毒机器能够进入人体，附着在细胞上，钻穿细胞壁，将遗传物质注入细胞，利用细胞材料进行多次复制，利用细胞材料在每个新细胞周围形成蛋白质外壳。复制病毒核，然后爆裂细胞以感染其他细胞，或离开身体感染其他宿主。**没有证据表明这些步骤中的任何一个发生了。****”**
-
-同一位评论者继续解释说，病毒学家只是从动物身上切下组织，给它下毒，然后从中提取遗传物质。这些都不能证明病毒存在，甚至不能证明它们具有传染性，但这是病毒学“科学”的基础。
-
-想更多地了解福奇流感疫苗如何既危险又有效？ 访问[VaccineInjuryNews.com](https://vaccineinjurynews.com/).
-
-**文章信息来源:**
-
-[LifeSiteNews.com](https://www.lifesitenews.com/blogs/dr-mccullough-sues-medical-journal-for-refusing-to-publish-papers-showing-covid-shot-risks-in-children/)
-
-[NaturalNews.com](https://www.naturalnews.com/2021-07-14-cdc-whistleblowers-covid-vaccines-killed-50000-americans.html)
-
-**新闻来源**：[newstarget.com][Dr. McCullough sues Elsevier journal for refusing to publish study highlighting risks of covid “vaccination” in children](https://www.newstarget.com/2021-11-18-mccullough-sues-elsevier-study-covid-vaccines-children.html)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
-
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

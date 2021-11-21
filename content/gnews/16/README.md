@@ -2,34 +2,49 @@
 ---
 
 
-## 喜币的未来与威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1682831/)
+## 17 岁女孩接受辉瑞疫苗数周后死于心脏骤停
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1682950/)
 
-撰稿：飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
-11月19日，文贵先生在大直播中详细描绘了喜币的未来。11月19日，文贵先生在大直播中详细描绘了喜币的未来。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11211.png)图片来自nitter.domain.glass
-第一，喜币在强大的技术支撑下，将在现有的法币支付体系之外，开辟并完善自己独特的支付体系——先进的区块链技术、严密的KYC系统、中心化的管理系统。目前喜支付已经被迪拜知名房地产公司接受。随着被越来越多的实体和国家认可，喜币将以其便捷、安全、自由的优势迅速形成自己独特的支付体系。
+**编译：Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip37.png)图片来源：teamtuckercarlson.com
+华盛顿一名 17 岁女孩感染了 COVID-19 并完全康复，上月底在接受第二剂冠状病毒疫苗后死亡。
 
-第二，喜币的发展离不开新中国联邦。喜币是新中国联邦成长的基石，将在新中国联邦的护佑下健康成长。新中国联邦的庞大体系，以及新中国联邦人在全球积累的信用，都是支撑喜币强势成长的源泉。
+克拉克县今天网站（ClarkCountyToday.com） 援引美国政府疫苗不良事件报告系统 (VAERS）。
 
-第三，喜币的强势成长面临三个方面的挑战——传统法币体系中获益的华尔街、推翻并取代美元地位的中共；以及其他实力不如喜币的虚拟币。
+数据显示，她在八月份的冠状病毒检测呈阳性，但她能够完全康复。
 
-新闻链接：[https://gtv.org/video/id=6197a194fcd196126f8cab91](https://gtv.org/video/id=6197a194fcd196126f8cab91)
+她的记录显示，这名女孩在过去 48 小时内，出现胸痛和呼吸困难后，于死亡当天出现在医院的急诊室。据称，她在出现症状之前“完全好”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-9.jpg)
+据报道，在女孩心脏骤停后，医院工作人员对其进行了先进的心血管生命支持方案和心肺复苏术 65 分钟，但她无法复苏还是死亡。
 
-总编/编辑：文特
+**这名少女在去世前没有任何预先存在的健康状况，也没有与病人或家人接触**。
 
-校正/发稿：浪迹天涯
+她是在 VAERS 中注册的第三位华盛顿居民，该数据库是由美国食品药品监督管理局（FDA）和疾病控制与预防中心 (CDC) 运营的一个开放协作数据库，据报道称，她可能死于 COVID-19 疫苗。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
+第一个死亡的是一名 34 岁的男子，他在两天前心脏骤停后于 6 月 25 日死亡，**原因是辉瑞疫苗产生了过敏反应**。第二例死亡是杰西卡·伯格·威尔逊 (Jessica Berg Wilson)，她是一名 37 岁的母亲，据称于 9 月 7 日死于血栓性血小板减少症——一种导致血栓的罕见疾病。
+
+CDC 解释说，在接种 COVID-19 疫苗后遇到严重的安全问题的情况很少见，而且疫苗是安全有效的。
+
+10 月下旬，泰国南邦府发生了类似案件，一名 16 岁女孩在接种第二剂 COVID-19 疫苗几天后，因肺部血栓而死亡。
+
+这名不愿透露姓名的女孩于 10 月 27 日接受辉瑞冠状病毒疫苗的后续注射后，**因双肺血栓形成（血栓阻塞血管）**死亡。据称，她在 10 月第一次接种后没有出现任何副作用，但是打完第二针第二天就发烧了。
+
+这名少女后来被送往医院，但在重症监护室接受治疗后被宣布死亡。
+
+**评论：已经翻译了许多年轻生命被邪恶势力强制的疫苗夺去了如花一样的生命的报道，每次读都落泪。他们都是我自己孩子的年龄，我难以想象自己健康的孩子被自己的政府和“科学家”杀害的愤怒！我要第一时间把这些噩耗传给更多的人，尤其是警告已为人母人父的FDA， CDC那些犯下这些杀害生命的政府“科学家”们，你们一定会受到历史的审判！**
+
+**新闻来源**：[teamtuckercarlson.com][17-Year-Old Girl Dies Of Cardiac Arrest Weeks After Receiving Pfizer Covid Vaccine](https://teamtuckercarlson.com/news/17-year-old-girl-dies-of-cardiac-arrest-weeks-after-receiving-pfizer-covid-vaccine/)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

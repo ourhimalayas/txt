@@ -2,49 +2,34 @@
 ---
 
 
-## 澳大利亚年通货膨胀率已达到近十年来最高水平
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1682737/)
+## 喜币的未来与威胁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1682831/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-2-11.jpg)
-[图片来源](/Users/37831/Desktop/Waiting%20list/Covid-19%20shock%20responsible%20for%20global%20inflation,%20says%20Australian%20central%20bank)
+撰稿：飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
+11月19日，文贵先生在大直播中详细描绘了喜币的未来。11月19日，文贵先生在大直播中详细描绘了喜币的未来。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11211.png)图片来自nitter.domain.glass
+第一，喜币在强大的技术支撑下，将在现有的法币支付体系之外，开辟并完善自己独特的支付体系——先进的区块链技术、严密的KYC系统、中心化的管理系统。目前喜支付已经被迪拜知名房地产公司接受。随着被越来越多的实体和国家认可，喜币将以其便捷、安全、自由的优势迅速形成自己独特的支付体系。
 
-**翻译：月映万川**
-**编辑：朝花夕拾**
+第二，喜币的发展离不开新中国联邦。喜币是新中国联邦成长的基石，将在新中国联邦的护佑下健康成长。新中国联邦的庞大体系，以及新中国联邦人在全球积累的信用，都是支撑喜币强势成长的源泉。
 
-经济学家称，消费者将会面对更多的产品价格上涨，这些产品包括，家具，技术服务，食品，和租金。但是，学者们也认为针对于所有产品与服务的大通胀尚不太可能发生。
+第三，喜币的强势成长面临三个方面的挑战——传统法币体系中获益的华尔街、推翻并取代美元地位的中共；以及其他实力不如喜币的虚拟币。
 
-目前，澳大利亚的年通货膨胀率为3%，这一数字是近十年来的最高点。但与美国的6.2%和新西兰的4.9%的通货率比起来，澳大利亚还是在一定程度上抑制了通货膨胀。当然，由进口产品和更为广泛的经济因素引起的通货膨胀会让澳大利亚更加困难的控制它。
+新闻链接：[https://gtv.org/video/id=6197a194fcd196126f8cab91](https://gtv.org/video/id=6197a194fcd196126f8cab91)
 
-AMP 资本的首席经济学家谢恩奥利弗说，＂尽管我们看到，目前大多数的通货膨胀都是暂时的，是因为新冠病毒引起的供应链断裂导致的。另外，因为新冠恐慌，消费者的疯狂消费也是推高通货的原因。＂但是，我们可能会看到现在的通胀要比大流行前的通胀更高。自上个世纪70年代以来规模最大的世界政府印钱行动，新冠病毒经济刺激计划，以及更多的工人因提前退休而转变为单纯的消费者，是导致成本增长过快持续时间过长的原因。＂
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-9.jpg)
 
-2021年的汽油价格飞涨直接提高了运输与零售业的成本，汽车价格也在不断攀升。奥利弗博士说：＂家具与电子产品可能是下一个价格飙升的产品类别。已经价格下跌好多年的电脑似乎已经停止了价格下降。＂他说：＂我们可能也会看到更加昂贵的假期和机票。＂
+总编/编辑：文特
 
-如果工资水平急剧增长，我们预期这一现象的影响会流入服务业，包括，保险，理发，和美容。目前我们还没有看到这些行业价格的急剧增长。博士说。
+校正/发稿：浪迹天涯
 
-根据澳大利亚统计局的数据，运输价格的年增长率为10.4%，家用设备和家具的价格增长率为6%，而医疗价格增长为4.9%。
-
-我的预算的创始人塔米巴顿说：＂房租也在上升，房租比重一般为租客的净收入的30-40%，所以，房租的上涨是对他们的巨大影响。＂
-
-信贷观察的首席经济学家哈利达尔说：＂汽油价格是急剧显露的问题，当经济重新开放时，你必须要加满你的油箱。消费者们会感受到高油价的痛苦。＂
-
-油价将会推高所有的零售产品。
-
-达尔补充说：＂全球供应链的断裂和更加昂贵的农产品，特别是牛肉，也推高了通货膨胀。另外，由于海外通货膨胀而造成的输入型价格上扬也是值得警惕的。＂
-
-达尔不认为澳联储会在近期内进行加息。因为工资水平还没有出现强劲增长。因此，我们还有等好一段时间来看到澳联储的升息。
-
-参考新闻：[inflation heading higher: which household costs will climb first?](https://www.theaustralian.com.au/subscribe/news/1/?sourceCode=TAWEB_WRE170_a&amp;dest=https%3A%2F%2Fwww.theaustralian.com.au%2Fbusiness%2Fwealth%2Finflation-heading-higher-which-household-costs-will-climb-first%2Fnews-story%2F9e5602ac99679ac5a8fee5643f827698&amp;memtype=anonymous&amp;mode=premium&amp;v21=dynamic-hot-control-score&amp;V21spcbehaviour=append)
-
-**发布：**Lish
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
