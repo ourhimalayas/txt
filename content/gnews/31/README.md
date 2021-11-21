@@ -2,34 +2,76 @@
 ---
 
 
-## 喜币的未来与威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1682831/)
+## 癌症专家：英国非新冠死亡人数将继续上升
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1682843/)
 
-撰稿：飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
-11月19日，文贵先生在大直播中详细描绘了喜币的未来。11月19日，文贵先生在大直播中详细描绘了喜币的未来。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11211.png)图片来自nitter.domain.glass
-第一，喜币在强大的技术支撑下，将在现有的法币支付体系之外，开辟并完善自己独特的支付体系——先进的区块链技术、严密的KYC系统、中心化的管理系统。目前喜支付已经被迪拜知名房地产公司接受。随着被越来越多的实体和国家认可，喜币将以其便捷、安全、自由的优势迅速形成自己独特的支付体系。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Untitled-4.png)
+**[图片来源](https://www.zerohedge.com/medical/rise-uk-non-covid-deaths-set-continue-cancer-expert)**
 
-第二，喜币的发展离不开新中国联邦。喜币是新中国联邦成长的基石，将在新中国联邦的护佑下健康成长。新中国联邦的庞大体系，以及新中国联邦人在全球积累的信用，都是支撑喜币强势成长的源泉。
+**翻译**：皮特
+**编辑**：朝花夕拾
 
-第三，喜币的强势成长面临三个方面的挑战——传统法币体系中获益的华尔街、推翻并取代美元地位的中共；以及其他实力不如喜币的虚拟币。
+本文由欧文埃文斯通过大纪元时报撰写。
 
-新闻链接：[https://gtv.org/video/id=6197a194fcd196126f8cab91](https://gtv.org/video/id=6197a194fcd196126f8cab91)
+一位世界癌症专家表示，英国的封锁政策仍在对超额死亡率产生影响，并将其描述为＂国家丑闻。＂
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-9.jpg)
+据《每日电讯报》报道，过去四个月因非中共病毒死亡的人数比平时多 9,300 人。
 
-总编/编辑：文特
+国家统计局的最新数据显示，英格兰和威尔士在过去 18 周内登记的死亡人数比五年平均水平多 20,823 人。其中只有 11,531 人死亡与中共病毒有关。
 
-校正/发稿：浪迹天涯
+很多专家，例如牛津大学循证医学中心主任卡尔·赫内根教授，呼吁对这种增长进行紧急调查。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
+他说：＂我们迫切需要理解到底发生了什么，并调查根本原因，以便可以防止更多不必要死亡。＂
+
+这种超出常规死亡数量在未来几周内还很可能会继续增加。
+
+白金汉大学医学院的顾问肿瘤学家和医学教授 卡罗尔·西科拉教授是世界知名的癌症专家。
+
+他告诉大纪元时报：＂超常规死亡率很可能是和积压的病例和缺乏医疗保健所引起的。＂
+
+＂这是国家丑闻。＂
+
+西科拉 因此认为封锁政策的影响将远远超出病毒而闻名。
+
+＂癌症的死亡数量在增加，但不会很快发生。＂他说。
+
+由于肺部感染，包括COVID，流感和普通感冒引起的死亡数量会在冬天有些变化。英国每天会有上千的人第一次被诊断出癌症。 西科拉说癌症病人会受到封锁政策巨大负面影响。
+
+西科拉强调了阻止人们获得服务的因素。
+
+首先是洗脑心理的影响，主要来自政府的广告活动：＂待在家里，保护 NHS，拯救生命。＂他说它阻止了患者抑制早期癌症的症状。
+
+这还包括缺乏与医生面对面的检查和诊断，这些都阻止了癌症的早期诊断。
+
+＂这三者都导致了非 COVID 死亡人数的增加。其中一些，如癌症、心脏护理和心脏病手术的延误，将导致过度死亡。这就是为什么我们看到死亡率过高的原因。＂他说。
+
+西科拉补充说，他认为情况可能会变得更糟，批评 NHS 缺乏医疗保健能力。
+
+统计数据还显示，在家死亡数量比五年平均水平高出 40.9%。
+
+＂在家死亡的人数增加了，这很奇怪。这是 COVID 的次级影响，人们不想寻求医疗援助以及医疗系统缺乏对他们救助能力。＂他总结道。
+
+健康数据分析师和封锁评论家 利沃诺·康明斯告诉大纪元时报，他知道在 2020 年＂封锁/口罩政策会适得其反，我在无数次采访中无数次公开指出这一点。＂
+
+康明斯补充说，他认为＂根据现实世界的数据证明，封锁是非常无效的，最多只能推迟相对较少的（主要是老年人/体弱的）死亡。＂
+
+看看最近的数字，他预测，随着时间的推移，封锁将导致大量过早死亡，＂这些人通常比 COVID-19 受害者的平均年龄年轻得多。＂
+
+译者评论：这篇文章分析了封锁对人们精神层面，就医方面，早期诊断，早期治疗方面对死亡率的影响。
+
+译者补充，至少阐明了一个事实，＂英格兰和威尔士在过去 18 周内登记的死亡人数比五年平均水平多 20,823 人。其中只有 11,531 人死亡与中共病毒有关。＂要看到UK的疫苗接种率达到（12岁以上）一针88.2%，两针80.2%。 [Vaccinations in the UK | Coronavirus in the UK (data.gov.uk)](https://coronavirus.data.gov.uk/details/vaccinations) 文章没有分析指出一个最大的可能性，超常规死亡率是否来自疫苗本身。对比现在的人群和5年平均人群之最大不同是接种疫苗和封锁，文中只分析了封锁影响。
+
+原文链接：[https://www.zerohedge.com/medical/rise-uk-non-covid-deaths-set-continue-cancer-expert](https://www.zerohedge.com/medical/rise-uk-non-covid-deaths-set-continue-cancer-expert)
+
+发布：Lish
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

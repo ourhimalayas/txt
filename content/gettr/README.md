@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/21/2021 1:59 PM (UTC)`
+
+Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Clip of the Second Anniversary of the Establishment of the Rule of Law Foundation on November 20, 2020 + The Early Warning about the Disaster of the CCP Virus Vaccine by the Whistleblower Movement + Himalaya Coin Officially and Successfully Launched<br/><br/>中共体制下“被消失”的高官和商人 + 2020年11月20日【王健之死新闻发布会和法治基金成立】两周年纪念日直播片段  + 爆料革命早期预警中共病毒疫苗灾难 + 喜币正式成功上线
+![img](https://media.gettr.com/group41/origin/2021/11/21/13/59/5b435574-daba-8835-8b1c-1c5650061844/out.jpg)
+
+---
+
 `@miles 11/21/2021 1:35 PM (UTC)`
 
 Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Clip of the First Anniversary of the Establishment of the Rule of Law Foundation on November 20, 2019 +<br/>Foundation of the New Federal State of China (NFSC) + The Whistleblower Movement Exposes the Truth about the CCP Virus<br/><br/>中共体制下“被消失”的高官和商人 + 2019年11月20日【王健之死新闻发布会和法治基金成立】一周年纪念日直播片段 + 新中国联邦成立 + 爆料革命预警中共病毒时间线
@@ -295,13 +302,6 @@ An orthopedic surgeon from Wisconsin described the serious side effects after hi
 
 11/17/2021 Miles Guo: The “10 Adherences” in the CCP’s third historical resolution mean no reform and opening-up, adherence to the one-party dictatorship, and restoration the rule of the emperor; Xi Jinping has become the “sun” and will possibly invade Taiwan at any time; Biden continues America’s ambiguous policies towards Taiwan<br/><br/>11/17/2021 文贵直播：中共历史决议的“十个坚持”就是坚决不搞改革开放、消灭私有经济、坚持一党独裁，恢复帝制； 习已成为“太阳”，将随时打台湾；拜登延续了美国对台的模糊政策<br/>
 ![img](https://media.gettr.com/group43/getter/2021/11/18/02/48/38bd756a-8c90-f75c-1b8b-481a97fdb1d1/out.jpg)
-
----
-
-`@miles 11/18/2021 2:36 AM (UTC)`
-
-11月17日：恒大，彻底完鸟……
-![img](https://media.gettr.com/group3/getter/2021/11/18/02/7da0220b-f956-8181-845b-2ae8bf660174/1c8bfdbfb5166da61d5ec8222b6eb074.jpg)
 
 ---
 

@@ -2,62 +2,41 @@
 ---
 
 
-## 奥运官员警告彭帅事件“可能失控”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1683022/)
+## 全球明年史诗级金融海啸，习近平打击电商图谋江派
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1683030/)
 
-**编译：Jenny Ball**
+作者：顺其自然
+编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-12-scaled.jpeg)图片来源：Tellimer
+今年10月份以前中共国的房价一直上涨，成交量也不错，但在10月份，绝大多数城市出现成交量急剧萎缩，甚至出现房价下跌，说明房地产市场已开始掉头向下。在9月份，恒大、华样年、佳兆业相继违约爆雷，这都是中国的顶级房企。多年来的房地产大发展，不仅中国老百姓欠了一屁股债，中国房企也是欠了国内和海外一屁股的债，根本没钱还。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip38.png)中国网球明星彭帅在 2018 年马德里公开赛上。（Susana Vera/路透社）
+在2008年之后，中共国成了所谓世界经济的火车头，而中国经济增长的火车头就是“铁公基”——所谓的投资拉动，实质就是债务拉动。当高楼大厦铺满华夏大地，高铁开进各个城市，机场飞机起飞降落，公路修到了乡村的时候，很多人没想到，这都是负债建设的，借的钱是要还的。很多人说，国内经济不好政府怎么可能还，赖账呗——政府赖账就是继续印钱，然后物价飞涨。十月份之后，菜涨价、油涨价、面涨价，想必大家都体会到了。
 
-一位奥运会官员警告说，中共国网球明星彭帅的下落危机引发了全球的强烈抗议，“可能会失控”，并敦促使国际奥委会（IOC）对北京采取更强硬的立场。
+明年年中房企集中违约将会达到高峰。恒大只是中国房地产市场的缩影，大型房企债务违约是中国金融与经济危机爆发前倒下的的第一个多米诺骨牌。实际上国际离岸债券市场已呈现比国内市场更大的波动，大约有520亿美元的中国房地产债券将在明年到期，还有440亿美元在后年到期，预计很大国内债券发行方大概率违约。但西方的养老基金、退休基金已投入到中国房地产公司，现在他们控制着媒体，藏着瞒着这些消息，世界普通民众肯定会逐渐了解真相，因为他们不可能一直瞒天过海。经过一段时间有效信息的扩散，了解真相的民众就会找这些基金要说法。
 
-现年 35 岁的彭帅，是三届奥运会选手和两届大满贯双打冠军。她已经两周多没有公开露面了，此前，她在网上帖子中[指控一名前副总理对她进行了大约三年的性侵犯](https://www.washingtonpost.com/world/asia_pacific/china-peng-shuai-zhang-gaoli-metoo/2021/11/03/79c0f308-3c4f-11ec-bd6f-da376f47304e_story.html?itid=lk_inline_manual_2&amp;itid=lk_inline_manual_4)。  她的帖子及其讨论很快在中共国社交媒体上遭到审查删帖。
+再者，明年秋天中共会开二十大。二十大之前，极有可能习近平会武力犯台，只要台海战争开打，当今如此脆弱的世界经济绝对承受不起，并将遭受重创。明年2月中共国开冬奥会，大概在4至5月份中共入侵台湾可能性很大，所以在明年年中世界经济会有史诗级的金融灾难。
 
-塞雷娜·威廉姆斯 ([Serena Williams](https://twitter.com/serenawilliams/status/1461408866697105413?s=21)) 和大阪直美 (Naomi Osaka) 等明星运动员要求提供有关她的信息，而联合国人权办公室则要求提供彭帅的安全证明。
+美国十月份CPI同比上升6.2%，通货膨胀触及30年最高点，美国还能继续印钞下去吗?在疫情之后，美国和其他西方国家就是靠印钞支撑经济，这也成就了美国、澳洲等国的房价大涨。现在这些西方国家普遍出现通货膨胀，同时政府也发不出救济了。下一步将政府将收紧银根甚至升息，房地产没有了金融支持，大概率掉头向下。当然，房价下跌不会一蹴而就，犹如一辆高速行驶的大货车，当你踩了刹车，大货车还会继续向前滑行一段才会停下来。所以西方房地产出现下跌的时间段应该在明年年中。澳洲的西太银行从11月4日起再度上调房贷固定利率，四年固定利率从原来的1.299%，大幅上调到3.219%。在11月5日上午，联邦银行固定利率也上调了，四年自住房固定利率从原来的2.239%，上调至2.289%。11月12日，澳新银行再次提高了利率，四年和五年期利率调整为2.49%和2.69%。
 
-[其主席周四表示](https://www.washingtonpost.com/world/asia_pacific/china-wta-peng-tennis/2021/11/19/ff2c2b68-4904-11ec-beca-3cc7103bd814_story.html?itid=lk_inline_manual_7)，如果不对彭帅的性侵犯指控进行适当调查，女子网球协会或将比赛撤出中共国，可能会损失数亿美元。
+同期，墨西哥、秘鲁、乌拉圭也上调各自利率50个基点。在11月4日，美联储正式开启缩水政策，每月水龙头拧紧150亿美元。根据这个进度，将在8个月后，也就是明年6月份彻底结束放水。在此期间面临居高不下的CPI，美联储还可能加息。全球各国在今年年底、明年年初都会开启加息，而加息一般会在半年多开始显现效果，也就是在明年年中全世界会开始承受加息的痛苦，那是才是金融灾难到来的时刻。
 
-中共国网球明星彭帅失踪，需要了解的内容：[*Chinese tennis star Peng Shuai is missing. Here is what you need to know.*](https://www.washingtonpost.com/sports/2021/11/19/peng-shuai-what-to-know/?itid=lk_interstitial_manual_8)
+2020年，中共国共有310万个体户倒闭关门。电商的增长，导致资本向电商市场倾斜，也造成了对实体经济的一次次致命打击。加之全国各地房租的上涨，一批网红实体店也开始了胜利大逃亡。
 
-国际奥委会表示尚未打算在 2022 年北京奥运会上采取类似举措，但这是可能会危及世界上最大的体育赛事之一的网球赛事和其相关产业的数十亿美元。国际奥委会新闻办公室周四表示，“安静的外交是找到解决方案的最佳机会。”
+2021年11月18日上午，国家反垄断局在北京三里河东路8号正式挂牌成立，与国家市场监管总局三里河办公区同楼。此前，人社部网站发布消息，国务院任命甘霖任国家反垄断局局长，分管竞争政策协调司、反垄断执法一司、反垄断执法二司等三个新设司局工作。
 
-国际奥委会运动员委员会对安静的外交方式表示支持。
+11月20日上午，市场监管总局根据中华人民共和国反垄断法对43起未依法申报违法实施经营者集中案件立案调查。经查，上述案件均违反了中华人民共和国反垄断法第21条。此次反垄断监管涉及腾讯、阿里、滴滴等43起案件（来自第一财经新闻）。
 
-国际奥委会运动员委员会在一份声明中说：“国际奥委会与全球运动员社区一起，非常关注三届奥运选手彭帅的情况。”“我们支持目前采取的 外交方式，希望通过这种方式，能够公开彭帅下落的信息，确认她的安全和福祉。我们也希望能找到一种方式让她和她的运动员同事直接接触。”
+从去年310万个个体户破产倒闭，到今年反垄断局挂牌，再有反垄断监管调查，这三个新闻放在一起来看，就知道习近平要对电商动手了。我们知道，无论是对中共来说，还是对世界各国而言，百姓就业才是国家最重要的。而中国电商的强大，以及像李佳琪、威亚等几个高端网红，积聚着大量的资源和财富，整垮了大量的个体户，使得很多人都失业了。所以此次的反垄断局成立和对电商进行打击，看起来想要重新扶持一些小门面、小商铺，让人们有个就业开始的地方，背后真正的目的也许是打击江派吧。
 
-然而，国际奥委会高级成员迪克·庞德（Dick Pound）[周五告诉路透社](https://www.reuters.com/lifestyle/sports/peng-situation-may-force-ioc-take-hard-line-with-china-says-pound-2021-11-19/)，奥委会正在关注此案，“如果不尽快以合理的方式解决，事件可能会失控。”“这是否会升级为奥运会的停止，我对此表示怀疑。但你永远不知道会发生什么。”
+油管视频来源：[闲聊澳洲 – YouTube](https://www.youtube.com/channel/UCPxB0vpNpmHN0hORXK4gj2A)
 
-审查已经增加了抵制即将举行的冬季奥运会的势头，因为拜登总统的政府表示，正在“[考虑”外交抵制](https://www.washingtonpost.com/politics/biden-says-us-considering-diplomatic-boycott-of-winter-olympics-in-china/2021/11/18/252ed4cc-48a2-11ec-b8d9-232f4afe4d9b_story.html?itid=lk_inline_manual_9&amp;itid=lk_inline_manual_18)，并呼吁抵制奥运会。[中共国驳斥了侵犯人权的指控](https://www.washingtonpost.com/sports/olympics/2021/11/19/china-olympics-diplomatic-boycott/?itid=lk_inline_manual_18) ，称其“分散注意力”。
+发布：kk
 
-与此同时，一名中共官方媒体记者周五分享了彭的照片，他说她在微信上发布了“周末快乐”的字样。官方媒体《环球时报》的编辑说，这名运动员“在自己家里自由自在”，但“很快就会出现在公共场合，并参加一些活动”。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip39.png)
-
-周六晚些时候，另一位中共官方媒体记者分享了彭在一家餐厅的视频。这些照片显示彭微笑着在满是毛绒玩具的房间里抱着一只猫，视频并没有缓解人们的担忧， [人权研究人员表示](https://twitter.com/williamnee/status/1461770430021181446)，这些图片只会引发更多问题，评论者[质疑帖子的真实性](https://twitter.com/ThisIsWenhao/status/1461742290406363153)。
-
-“我很高兴看到中共国官方媒体发布的视频显示彭帅在北京的一家餐厅里，”WTA 主席[史蒂夫•西蒙周六在一份声明中回应这些视频时说](https://www.wtatennis.com/news/2361225/statement-by-steve-simon-wta-chairman-ceo-on-recent-video-posted-by-china-state-run-media-of-peng-shuai)。“虽然见到她是积极的，但目前尚不清楚她是否自由，是否能够在没有胁迫或外部干扰的情况下，自行做出决定和采取行动。仅此视频是不够的。正如我从一开始就说过的，我仍然担心彭帅的健康和安全，性侵犯的指控正在被审查和掩盖。我很清楚需要发生什么，我们与中共国的关系正处于十字路口。”
-
-本周早些时候，国营的中共国环球电视网（CGTN）发布的一封据称来自彭的电子邮件也遭到了质疑。西蒙说，他“很难相信彭真的写了这封电子邮件”给他，她说她既没有不安全也没有失踪。
-
-他说：“我多次尝试通过多种沟通方式联系到她，但无济于事。”“WTA 和世界其他地方，都需要独立且可验证的证据来证明她是安全的。”
-
-**点评：安静的解决方案就是抵制在中共国的冬奥会，行动力量大于语言，尤其对中共这样的流氓共产主义独裁者！**
-
-更多相关信息和素材链接：
-
-[Women’s Tennis Association threatens to pull out of China over star player’s disappearance](https://www.washingtonpost.com/world/asia_pacific/china-wta-peng-tennis/2021/11/19/ff2c2b68-4904-11ec-beca-3cc7103bd814_story.html?itid=lk_inline_manual_30)
-
-**新闻来源：**[washingtonpost.com][Olympics official warns that Peng Shuai case ‘may spin out of control’ as images of tennis star raise questions](https://www.washingtonpost.com/world/2021/11/20/peng-shaui-china-ioc-member-comments/?utm_campaign=wp_post_most&amp;utm_medium=email&amp;utm_source=newsletter&amp;wpisrc=nl_most&amp;carta-url=https%3A%2F%2Fs2.washingtonpost.com%2Fcar-ln-tr%2F35560c9%2F619926989d2fdab56b963138%2F5e2dde419bbc0f6326309bfd%2F15%2F70%2F619926989d2fdab56b963138)
-
-* * *
-
-***审核：文乐
-校对：信心满满
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
-
-
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
