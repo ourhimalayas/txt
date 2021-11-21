@@ -15,92 +15,92 @@
 
 ---
 
-### [11/18/2021：俄罗斯议员猛批社会主义，警告习近平独裁统治，强大的中国会拖俄罗斯下水](/content/gnews/1/README.md)
+### [英官方报告显示大部分染疫逝者完全接种了疫苗](/content/gnews/1/README.md)
+ ` HimalayaRussia`
+
+### [11/18/2021：俄罗斯议员猛批社会主义，警告习近平独裁统治，强大的中国会拖俄罗斯下水](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [香草山翻译部周刊|2021年11月21日第23期](/content/gnews/2/README.md)
+### [从李云迪事件联想开去](/content/gnews/3/README.md)
+ ` 秘密翻译组-原创组`
+
+### [香草山翻译部周刊|2021年11月21日第23期](/content/gnews/4/README.md)
  ` 纽约香草山MOS01`
 
-### [世界上最大的收藏家汽车拍卖行开始接受加密货币付款](/content/gnews/3/README.md)
+### [世界上最大的收藏家汽车拍卖行开始接受加密货币付款](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [斯科特·莫里森抨击各州的疫苗强制令：“退后一步”](/content/gnews/4/README.md)
+### [斯科特·莫里森抨击各州的疫苗强制令：“退后一步”](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [犯罪毒品垄断联盟：FDA 拒绝在 2076 年之前发布辉瑞 Covid 疫苗数据](/content/gnews/5/README.md)
+### [犯罪毒品垄断联盟：FDA 拒绝在 2076 年之前发布辉瑞 Covid 疫苗数据](/content/gnews/7/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [【玫瑰看新闻】 【回魂时刻】- 196期 疫苗受害者专题新闻11#](/content/gnews/6/README.md)
+### [【玫瑰看新闻】 【回魂时刻】- 196期 疫苗受害者专题新闻11#](/content/gnews/8/README.md)
  ` 新西兰新联邦新闻摘要`
 
-### [“永不放弃” &#8211; 世界各地爆发针对政府 COVID 暴政的抗议活动](/content/gnews/7/README.md)
+### [“永不放弃” &#8211; 世界各地爆发针对政府 COVID 暴政的抗议活动](/content/gnews/9/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [当Hpay可以互相支付的时候](/content/gnews/8/README.md)
+### [当Hpay可以互相支付的时候](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [DC大中华时事： 中方决定将中立两国外交关系降为代办级](/content/gnews/9/README.md)
+### [DC大中华时事： 中方决定将中立两国外交关系降为代办级](/content/gnews/11/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国劳工部暂停实施拜登强制接种令](/content/gnews/10/README.md)
+### [美国劳工部暂停实施拜登强制接种令](/content/gnews/12/README.md)
  ` 纽约香草山MOS01`
 
-### [中亚国家人民忧中俄输出网路信息管制 民主国家应该反击](/content/gnews/11/README.md)
+### [中亚国家人民忧中俄输出网路信息管制 民主国家应该反击](/content/gnews/13/README.md)
  ` 纽约香草山MOS01`
 
-### [辉瑞与美政府签订53亿美金新冠药物合同](/content/gnews/12/README.md)
+### [辉瑞与美政府签订53亿美金新冠药物合同](/content/gnews/14/README.md)
  ` 纽约香草山MOS01`
 
-### [法院暂停拜登的强制疫苗令，仍有60％的企业继续执行](/content/gnews/13/README.md)
+### [法院暂停拜登的强制疫苗令，仍有60％的企业继续执行](/content/gnews/15/README.md)
  ` 纽约香草山MOS01`
 
-### [郭文贵先生对新中国联邦人的期望](/content/gnews/14/README.md)
+### [郭文贵先生对新中国联邦人的期望](/content/gnews/16/README.md)
  ` 纽约香草山MOS01`
 
-### [盖特成功度过“90天受孕期”受投资大佬青睐](/content/gnews/15/README.md)
+### [盖特成功度过“90天受孕期”受投资大佬青睐](/content/gnews/17/README.md)
  ` 纽约香草山MOS01`
 
-### [中共未来将对内施行“习皇制”，对外实行“希特勒制”](/content/gnews/16/README.md)
+### [中共未来将对内施行“习皇制”，对外实行“希特勒制”](/content/gnews/18/README.md)
  ` 纽约香草山MOS01`
 
-### [银河快讯: 日本首相将审查财政重建目标；日中韩领导人会议无望在年内举行](/content/gnews/17/README.md)
+### [银河快讯: 日本首相将审查财政重建目标；日中韩领导人会议无望在年内举行](/content/gnews/19/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [青蒿趣谈](/content/gnews/18/README.md)
+### [青蒿趣谈](/content/gnews/20/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [维也纳万人游行反对封锁措施](/content/gnews/19/README.md)
+### [维也纳万人游行反对封锁措施](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [伊利诺伊州养老金缺口超过 5000 亿美元，现在每个家庭的平均债务负担为 110,000 美元](/content/gnews/20/README.md)
+### [伊利诺伊州养老金缺口超过 5000 亿美元，现在每个家庭的平均债务负担为 110,000 美元](/content/gnews/22/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [DC每日热点1121](/content/gnews/21/README.md)
+### [DC每日热点1121](/content/gnews/23/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美打造印太新新经济框架向中共施压](/content/gnews/22/README.md)
+### [美打造印太新新经济框架向中共施压](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [班农先生和郭先生回顾1120新闻发布会和法治基金法治社会成立](/content/gnews/23/README.md)
+### [班农先生和郭先生回顾1120新闻发布会和法治基金法治社会成立](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [继欧洲议会、德国和美国之后 英国也考虑外交抵制北京冬奥会](/content/gnews/24/README.md)
+### [继欧洲议会、德国和美国之后 英国也考虑外交抵制北京冬奥会](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [中共国因台湾问题下调与立陶宛的外交关系](/content/gnews/25/README.md)
+### [中共国因台湾问题下调与立陶宛的外交关系](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共正在加剧21世纪毁灭整个民族的方法](/content/gnews/26/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [GTV自动多语言字幕功能在1120大直播中应用](/content/gnews/27/README.md)
+### [GTV自动多语言字幕功能在1120大直播中应用](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [美国老百姓的3个不允许](/content/gnews/28/README.md)
+### [美国老百姓的3个不允许](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [盖特新功能“Instagram导入”开始内测](/content/gnews/29/README.md)
- ` GTV新闻访谈`
 
 ### [背叛 betray](/content/gnews/30/README.md)
  ` 骄子`

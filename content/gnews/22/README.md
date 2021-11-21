@@ -2,30 +2,49 @@
 ---
 
 
-## 美打造印太新新经济框架向中共施压
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683658/)
+## 伊利诺伊州养老金缺口超过 5000 亿美元，现在每个家庭的平均债务负担为 110,000 美元
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1683687/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月17日，美国商务部长吉娜.雷蒙多表示，印太经济框架可能于明年初启动。并且表明，美国虽然不会加入“跨太平洋伙伴全面进步协定”，但会寻求印太地区志同道合的国家，成立一个更加广泛和自由的经济框架。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-22-上午3.01.46.png)
-同日，美国和日本同时宣布建立新的“美日贸易伙伴关系”，以加强在劳工、环境和数字贸易问题上的合作，并表明重点是对第三国关切，意指中共推动的经济政策。
+作者：泰勒·杜登
 
-参考链接：[美国打造印太新经济框架 专家：华盛顿向北京施压新工具](https://www.voachinese.com/a/us-asia-trade-20211119/6320176.html)
+翻译：沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/11/illinois-edited.jpg)图片来源：网络
+伊利诺伊州刚刚达到了一个令人震惊的里程碑：现在伊利诺伊州的每个家庭平均有 110,000 美元的政府工作人员退休债务。 这个数字是将伊利诺伊州 5300 亿美元的州和地方退休金缺口分配给该州 490 万个家庭的结果。  2019 年每个家庭的负担为 90,000 美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+根据 Wirepoints 对穆迪投资者服务公司债务估计的分析，伊利诺伊州的退休债务在 2020 年增加到 5300 亿美元。 这是信用评级机构对伊利诺伊州退休债务（由州和地方层面的养老金和退休人员健康短缺构成）的估计首次突破 5000 亿美元。
 
-总编：木白
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
+与 2019 年相比，伊利诺伊州的缺口增加了近 1000 亿美元，这主要是由于 COVID 危机导致利率下降。 尽管市场复苏，伊利诺伊州的短缺预计将在 2021 年继续偏高。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/500-B-Chart-1680x840-1.png)
+伊利诺伊州的退休债务增加到 50 亿美元，再次严峻地提醒人们，立法者拒绝解决养老金危机对普通居民造成了真正的伤害。 这些巨额债务直接导致了伊利诺伊州的其他危机，包括该州的信用评级是全美最差的，财产税是全美第二高的，以及实际房屋价值下降最严重的全美第五。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+养老金危机也间接导致了创纪录的外迁率和自 2010 年以来全国第二大人口流失。
+
+此外，不断增长的债务表明超过 100 万伊利诺伊州政府工作人员和退休人员的退休保障已经崩溃。
+
+根据皮尤慈善信托基金的数据，伊利诺伊州的州级养老金只有 39% 的资金到位，是全国最低的。
+
+总的来说，伊利诺伊州 5300 亿美元的州和地方退休金缺口包括：
+
+伊利诺伊州的五个国有养老基金——3130 亿美元
+
+州退休人员健康保险——550 亿美元
+
+国家养老金义务债券——90亿美元
+
+芝加哥和库克县的养老金和退休人员健康——1220 亿美元
+
+其他地方政府养老金和退休人员健康——320 亿美元。
+
+来源链接：[https://t.co/VZkXoafVcd](https://t.co/VZkXoafVcd)
+
+编辑/发布：LILY
+
+20211121
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
