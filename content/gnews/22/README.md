@@ -2,36 +2,30 @@
 ---
 
 
-## 拜登政府预购千万疗程的新冠口服药
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1683278/)
+## GTV新闻访谈简报|2021年11月21日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683321/)
 
-**作者：日本东京方舟农场 老孙**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2.png)
 
-近期，拜登政府与辉瑞制药达成采购协议，购入用于治疗中共病毒的口服药。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-22.png)
+文章仅代表作者本人观点，与Gnews无关
 
-据法广网报导，拜登政府已经与辉瑞公司达成协议并支付53亿美元，以确保辉瑞公司生产提供1千万疗程的中共病毒药片，但这种药物在世界上还没有在任何国家得到过批准。
+视频参看：2021.11.21早GTV新闻访谈
 
-此前，拜登政府扩大了与另一家新冠药物生产商——默克公司（Merck）之间的协议，承诺投入22亿美元用于购买310万个疗程的药物，而这项交易也尚未获得美国药物监管部门的批准。
+[https://gtv.org/video/id=619a4955cbfd016d6378903d](https://gtv.org/video/id=619a4955cbfd016d6378903d)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/微信图片_20211121162102.png)Le « Washington Post » a rapporté le 16 novembre 2021 que le gouvernement américain prévoyait d’annoncer cette semaine l’achat de 10 millions de traitements © SOPA Images/SIPA
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-但郭文贵先生在11月10日的GTV大直播中是发出警告，中共病毒的口服药对身体的危害可能更甚于疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov.jpg)
 
-郭先生转述逃亡欧洲的中共军方科学家的话说，中共病毒的口服药品是当年对付艾滋病、淋病，对付非洲的痢疾、霍乱的药方，这个药激素的副作用很大，更夸张的是会诱发严重心脏病。
-
-这位科学家还强调，口服药比疫苗更毒，该药品进入人体分解后，会直接影响神经系统，然后才是循环系统，将触发各种更加隐蔽的慢性疾病。
-
-*新闻链接：*
-
-[拜登政府與輝瑞達協議 預購千萬療程口服藥](https://www.rfi.fr/tw/%E7%BE%8E%E6%B4%B2/20211119-%E6%8B%9C%E7%99%BB%E6%94%BF%E5%BA%9C%E8%88%87%E8%BC%9D%E7%91%9E%E9%81%94%E5%8D%94%E8%AD%B0-%E9%A0%90%E8%B3%BC%E5%8D%83%E8%90%AC%E7%99%82%E7%A8%8B%E5%8F%A3%E6%9C%8D%E8%97%A5)
-
-* * *
-
-*素材采编：老孙*
-
-*编辑：文顺*
-
-*发布：Ranting*
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

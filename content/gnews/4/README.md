@@ -2,25 +2,25 @@
 ---
 
 
-## 原中共解放军总参谋长曾欲揭露中共的秘密军事项目
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683486/)
+## 盖特新功能“Instagram导入”开始内测
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683511/)
 
-作者：秘密翻译组-原创组
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-528.png)
-秘密翻译组消息：11月20日 ，在“11·20”发布会及法治基金、法治社会成立三周年纪念日大直播中，郭文贵先生说，在2017年，前中共上将房峰辉秘密向他爆料，中共计划使用生化武器，而且要在中东建多个军事基地。
+作者：香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月17日，郭文贵先生发布盖特消息称，盖特新功能——“Instagram导入”已经进入内部测试阶段。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide8-15.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-17.jpeg)
 
-房峰辉曾经一直与郭先生保持联系。2017年，他曾向郭先生透露，只要美国能保护他和家人的安全，他愿意完全提供他所掌握的中共内部情报。他爆料称，美国要小心中共的化学武器和生化武器，中共计划要在中东地区建多个军事基地。
+用户在注册盖特新账户时，可以直接选择Instagram同名账号导入。盖特现有用户，如果想将Instagram账号导入盖特，可以将所属Instagram用户名留言给盖特工程师，要求导入账号。
 
-CIA曾从中共军方得到同样情报，并与郭先生核实。郭先生建议CIA联络房峰辉，因为房峰辉也想与美方合作。但那时CIA并不相信，没有认真对待房峰辉与美方合作的意愿。不久后，房峰辉被中共抓捕。美国错失中共生化武器计划的关键人证。
+Instagram是脸书旗下的社交媒体平台，和脸书使用同样的“言论审查”政策，不允许用户表达与其不同的政治观点。与其相异的政治观点的图片和视频会遭到封禁，甚至会因此被封号。盖特与这些社交媒体平台相反，没有“言论审查”，是一个言论自由的社交媒体平台，用户可以畅所欲言，自由的表达自己，因此吸引大量热爱自由的人进驻。盖特开发这个新功能，为盖特用户提供了更全面的服务，更方便的体验。同时，吸引更多的人加入到盖特的平台中来，成为盖特的用户。
 
-参考链接：[文贵爆料 11.20：房峰辉曾警告美国：小心生化武器，中共要在中东建军事基地](https://gnews.org/zh-hans/1680868/)
+参考链接：[https://gettr.com/post/ph6vj1ba87](https://gettr.com/post/ph6vj1ba87)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：Zion文恩
-编辑：文真
+总编：Ivy001
+编辑：Ivy001
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
