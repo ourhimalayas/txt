@@ -2,20 +2,32 @@
 ---
 
 
-## COVID-19 最新情报｜围堵韩国疾控中心主任座驾 家属誓为死者寻找真相和公义
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1682354/)
+## 有声| 从血洗示剑的启示谈化解排华危机
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1682358/)
 
-**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 21/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+配音：香草山福音部 – Daxia
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+《旧约》创世记34章是非常血腥的一章，讲述示剑玷污底拿引发的屠城之灾，以及神的安排，这对当下华人面临的排华危机非常有启发。
 
-【韩国】韩国疾病控制和预防中心 (KDCA) 负责人郑恩京 19 日到访韩国清州的一间医院，并公开接种 COVID-19 加强剂。
+城主哈抹的儿子示剑，看上了雅各的女儿底拿，玷污底拿后到雅各家求婚。雅各的儿子们，不管什么条件都不解心头之恨，就用诡诈的计谋，骗哈抹让城里所有的男丁行割礼，才答应嫁妹妹底拿。割礼第三天，城里男丁疼痛之时，雅各的两个儿子，西缅和利未，把一切男丁都杀了，又用刀杀了哈抹和他儿子示剑，带走底拿，夺了他们的羊群、牛群和驴，并城里田间所有的，又把他们一切货财、孩子、妇女，并各房中所有的，都掳掠去了。
 
-同一时间，一个由疫苗受害者的家属组成的 COVID-19 疫苗受害者家庭委员会（Kobaekhoe）聚集在医院外，待郑恩京的座驾驶出医院，他们手举死者遗像和抗议标语上前围堵，迫使郑恩京下车与遇难者家属交谈，承诺会准备与遇难者家属亲自会面的机会，并且会就死亡事件做详细调查。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-14.jpg)
 
-来源｜[Daum](https://news.v.daum.net/v/20211119165109527)
+**文字版原文：[【信仰之声】从血洗示剑的启示谈化解排华危机](https://gnews.org/zh-hans/1675116/)**
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

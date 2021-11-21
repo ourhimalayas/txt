@@ -2,27 +2,47 @@
 ---
 
 
-## 郭文贵精品视频-中共六中全会报告惊人内幕
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1681817/)
+## 伊维菌素防治方案的研发者控告医院的处方禁令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1681882/)
 
-撰稿：澳喜cindy
+作者： 纽约香草山文艺部 – 宁文静
 
-11/10/2021 文贵先生直播中透露：中共六中全会内部报告称：中共国在以下几个方面世界排名“第一”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-155.png)
 
-包括：去年癌症发病人数约1100万；与病毒相关性死亡1370万人，染病毒者7000万人；房地产海外债务违约创历史新高，且30天内将面临2700亿到6000亿美元的融资和票据贷款；还有中共国外汇减少，连续7个月创造了历史上的每个月减少量第一，大量的外汇汇出，形成了逆差贸易和顺差贸易双并行的不利局面；过去三个月香港大量外籍和外资高管撤离，从7000-11000人， 以及大量的外汇都移到了英国、新加坡和日本等国家，香港将可能成为“金融空港”；根据中共在全球的外宣政策和文化调查，中国人连续17个月被列为全球最不受欢迎的人种，面临着巨大的海外排华、反华和厌华的不利局面。
 
-中共十九届六中全会审议通过了“百年总结”—《中共中央关于党的百年奋斗重大成就和历史经验的决议》。中共的野蛮和野心在世界人民面前暴露无疑。
 
-在国际上会使世界人民更清楚地认识到：习大神在20大后如果对内实行了习皇制，会更加胆大妄为，会实行希特勒制，会肆无忌惮的对世界继续放毒。
+当地时间11月18日，“前线新冠重症监护联盟”的首席医疗专家保罗·马瑞克医生，出席了弗吉尼亚州巡回法庭在诺福克的听证会，为其所发起的诉讼作证。
 
-在国内，习近平与他的政敌内斗会加剧，加大力度的抢夺私人企业和在华外企，使其资本共产制。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-8.png)
 
-习近平这个总加速师要搞所谓的第三个核心和毛泽东并列和邓小平并列，把江泽民胡锦涛踢出去， 在中共党内成为了众矢之的。中共内部的绞肉机就会高速运转，不是成为那个机器里的刀片抑或是机器里被绞的肉。对我们新中国联邦人的灭共事业都是有利的。真可谓天助我们新中国联邦。
+11月9日，马瑞克医生向弗吉尼亚州巡回法院提交了诉讼，控告他所供职的森塔拉医疗系统——诺福克综合医院——禁止医生为新冠病人提供伊维菌素的行为。
 
-目前我们新中国联邦人不能躺平坐等中共自己灭亡，我们要未雨绸缪，建立我们强大的新中国联邦的国防、建立强大的金融系统、多交朋友。 让新中国联邦得到世界多国的认可，从外围准备好。等共产党内部绞杀，最后剩下一个帮派。剩下任何一个人，我们就给它干掉。我们就实现中国人的一人一票的选举，使14亿老百姓过上没有恐惧的美好生活。
+马瑞克医生担任诺福克综合医院重症监护科主任一职已逾16年。自新冠疫情爆发以来，马瑞克医生综合大量治疗实例和已发表的临床试验结果，与其他合作者共同提出了基于伊维菌素、氟伏沙明等药物的新冠病毒防治指南——MATH+和I-MASK（编者按：按照字母来读，+读作plus，-不读）。
 
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
+然而，当伊维菌素在印度、日本等国成功遏制病毒扩散、挽救千万生命之时，马瑞科医生所在的诺福克综合医院却以行政命令的形式禁止医生向新冠患者提供伊维菌素等药物。马瑞克医生表示，这一禁令妨害了患者在医生的指导下做出医疗决策的权力，患者或因无法获得有效的药物而付出无谓的牺牲。
+
+据悉，弗吉尼亚州法律明确表明，主治医生有权使用他们认为适当的治疗方案。本台将跟踪报导该案件的审理进展。
+
+参考链接：
+
+- [Top doctor banned from treating COVID patients with ivermectin brings lawsuit to court today](https://www.lifesitenews.com/news/top-doctor-banned-from-treating-covid-patients-with-ivermectin-brings-lawsuit-to-court-today/)
+- [The FLCCC Physicians](https://covid19criticalcare.com/about/the-flccc-physicians/)
+- [Norfolk doctor leading charge for controversial COVID-19 treatment faces off against Sentara in court](https://www.wtkr.com/investigations/norfolk-doctor-leading-charge-for-controversial-covid-19-treatment-faces-off-against-sentara-in-court)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
+
+总编：Zion文恩
+编辑：Zion文恩
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
