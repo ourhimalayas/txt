@@ -2,109 +2,34 @@
 ---
 
 
-## Facebook等社交媒体无法和GTV盖特比拟
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681507/)
+## 塞尔维亚越南劳工罢工 抗议中共国资方剥削
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1681558/)
 
-[https://gtv.org/video/id=61992e4ae6900076612d89dc](https://gtv.org/video/id=61992e4ae6900076612d89dc)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/images-2.jpg)塞尔维亚越南劳工罢工 抗议中共国资方剥削 网络图片
+据德国之声中文网11月20日报道，中共国玲珑轮胎在塞尔维亚工厂的数百名越南工人本周再次集体罢工，抗议拖欠工资和食物短缺，包括生活及工作条件恶劣。该起事件登上当地新闻头条，也引起人权团体及欧盟议员关注。塞尔维亚政府则试图淡化中共国资方的责任。
 
-**郭文贵**
-**Miles Guo**
+塞尔维亚是中共国在欧洲扩张和投资政策的重要地点。北京在塞尔维亚投资了数十亿美元承建高速公路和铁路，玲珑轮胎项目被塞尔维亚和中共国官员吹捧为两国”战略伙伴关系”的体现。塞尔维亚不断被指责对中资企业的运营采取放任态度。来自民间社会、人权团体和媒体的批评声指出，因为生产轮胎可能造成潜在污染，但塞尔维亚政府对环境问题和侵犯人权行为视而不见。
 
-我昨天跟摩根先生说，它是垃圾
-I told Mr. Morgan yesterday that it was garbage
+媒体实地采访发现，几百名劳工生活条件恶劣，床铺没有床垫，宿舍没有暖气和热水。即使出现类似新冠肺炎的症状，也没有任何医疗照顾，经理只告诉他们留在房中不要出门。他们的护照被收走，许诺的工资不能及时兑付。欧洲议会德国议员冯·克拉蒙表示：”一个欧盟候选国容忍此事发生在其领土上，并对欧洲境内可能发生强迫劳动保持沉默，令人无法接受。”
 
-摩根先生讲，你什么意思？
-Mr. Morgan said, “What do you mean?”
+塞尔维亚总理在证实工人被迁至合适的住所后表示，这起事件可能是针对中共国在该国投资的一场阴谋。而总统武契奇自上任以来大力拓展与北京的关系，并表示两国拥有”钢铁般的友谊”。塞尔维亚是最早取得中共国新冠疫苗的欧洲国家之一。这种“坚固的关系”会在塞尔维亚今后的经济和疫苗灾难中得到证实。
 
-我说它是垃圾。它是什么垃圾？
-I said it’s garbage. Why?
+中共是连亲爹亲娘、国家利益都可以出卖的“找爹党”，跪舔俄国很多年，奉上了大把的利益并割让了大片土地。爹之外的国家，谁与中共亲近，灾难就如影随形。主动跪舔的更不可能用卑躬屈膝换来应得的利益。 中共对生命的蔑视不分场合，中共黑帮“国歌”道，起来不愿做奴隶的人们。起来，全世界不愿意受压迫的人民，推翻中共。只要中共存在，任何国家的人民都会遭到奴役。
 
-我说Facebook、Instagram、Youtube都是垃圾
-I said Facebook, Instagram, Youtube are all garbage
+新闻参考链接：[https://t.co/0Z2wd4uRSS?amp=1](https://t.co/0Z2wd4uRSS?amp=1)
 
-因为他有时候耳朵不太好，有时候我的英文他又听不太清楚
-Because sometimes his hearing are not good, and sometimes he can’t understand my English very well
+* * *
 
-他就说为什么啊？
-He asked why?
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-因为他们没有支付系统
-Because they don’t have a payment system
 
-它是销售个人数据
-It’s selling personal data
+编辑：【英国伦敦喜庄园编辑部】
 
-盖特最重要的是它有支付系统，还不销售个人数据
-The most important thing about Gettr is that it has a payment system, but it doesn’t sell personal data
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-它有原罪，我们没原罪
-It has the original sin, and we don’t
 
-它们必然被消灭，我们必然是永久生存而且是唯一的
-They’re bound to be wiped out, we’re bound to live forever and be the only ones
-
-有道理，是吧？
-Makes sense, doesn’t it?
-
-GTV一定是全世界最好的视频直播平台
-GTV must be the best live video platform in the world
-
-唯一的平台
-The only one
-
-七哥说的话是吹牛吗？
-Am I bragging?
-
-你觉得我一年前说这话，你们肯定不信
-You wouldn’t have believed me when I said that a year ago
-
-现在你觉得是吹牛吗？
-Do you think it’s bragging now?
-
-就这GTV，就这盖特，你知道，今天战友们记住啊
-Just the GTV and Gettr, you know, my fellow comrades remember
-
-更新你的手机软件，盖特软件，你就可以手机直播了
-Update your cell phone software, Gettr software, you can use your cell phone to go livestream
-
-你可以现在电脑直播，手机直播，而且我们还有同生字幕，中英文
-Now you can broadcast live on your computer, live on your phone, and there are simultaneous subtitles in English and Chinese on the Gettr platform
-
-而且现在的这个可以达到5K推流
-And now the clarity can reach 5K push stream
-
-我告诉兄弟姐妹们，你们就看到这一点功能的增加
-I tell you brothers and sisters, you just see this little increase in functionality
-
-它的价值是多大
-How valuable it is?
-
-昨天盖特和今天的盖特最起码增长50%
-Gettr increases at least 50% in yesterday and today
-
-如果它昨天市值1000亿的话，今天就涨了500亿
-If its market value was $100 billion yesterday, it’s add up $50 billion today
-
-就因为这一个功能
-Just because of this one feature
-
-Date: 11/16/2021
-原视频标题: Facebook等社交媒体无法和GTV 盖特比拟
-Facebook and other social media can’t compete with GTV and Getter
-原视频日期：2021/11/12
-任务编号：KC271（2898）
-视频时间段 : 0:00-1:28
-
-英听校：洛杉矶盘古农场 – Mike Li
-翻译：洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – Layka
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
