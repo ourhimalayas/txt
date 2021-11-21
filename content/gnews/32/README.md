@@ -2,26 +2,28 @@
 ---
 
 
-## GTV自动多语言字幕功能在1120大直播中应用
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683527/)
+## 继欧洲议会、德国和美国之后 英国也考虑外交抵制北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683656/)
 
-作者：波士顿五月花 – 葛朗台太太
+作者：东京樱花团—在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月20日，1120三周年纪念日大直播中，GTV启用自动多语言字幕功能，这是自11月11日正式上线以后的再次应用。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-13.jpeg)
-目前，此功能仅在网页版的GTV上推出，并且能够支持中文简体，中文繁体，广东话，英文，日语，韩语，法语，西班牙语，阿拉伯语等十二种语言。
+英国媒体11月20日报道，英国首相约翰逊，正在考虑外交抵制北京冬奥会，以抗议中共恶劣的人权纪录。该报道称，五名保守党政客致信约翰逊，敦促他禁止英国任何官方外交代表，出席2月份的北京冬奥。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-22-上午3.02.10.png)
+就在两天前，美国总统拜登证实，美国政府正在考虑对北京冬奥会进行外交抵制。上个月，即将从德国联邦议院体育委员会主席卸任的，弗莱塔克女士也再次呼吁，各国政府要抵制北京冬奥，作为对中共当局严重侵犯人权的抗议。
 
-并且，用户在收看GTV网页版直播时，还可以选择高清视频直播、低像素视频直播以及纯语言直播形式。
+7月份，欧洲议会也以压倒性票数，通过了一项不具强制力的决议，敦促欧盟及成员国的官员，不要出席北京冬奥会。
 
 参考链接：
-1）[多语言字幕](https://gettr.com/post/pgpenyd355)
-2）[2021年11月20日 “11·20”发布会及法治基金、法治社会成立三周年纪念日大直播](https://gtv.org/video/id=6198f18ccbfd016d6377a4f1)
+1）[英国正考虑外交抵制北京冬奥会–泰晤士报](https://www.reuters.com/article/uk-thames-beijing-winter-olympic-1120-idCNKBS2I508P)
+2）[彭帅事件或加剧抵制呼声 美国对北京冬奥的外交抵制意味着什么？](https://www.voachinese.com/a/beijing-olympics-diplomatic-boycott-20211119/6320934.html)
+3）[卸任前登高一呼 德國聯邦議院體委會主席籲抵制北京冬奧](https://news.ltn.com.tw/news/world/breakingnews/3701885)
+4）[欧洲议会通过决议呼吁外交抵制北京冬奥会 北京称不值得关注](https://www.voachinese.com/a/European-parliament-resolution-beijing-olympics-boycott-20210709/5960158.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-总编：Ivy001
-编辑：文特
-校正/发稿：谐趣园
+总编：文特
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

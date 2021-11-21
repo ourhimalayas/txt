@@ -2,39 +2,35 @@
 ---
 
 
-## “永不放弃” &#8211; 世界各地爆发针对政府 COVID 暴政的抗议活动
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1683812/)
+## 世界上最大的收藏家汽车拍卖行开始接受加密货币付款
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1683944/)
 
-翻译：真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/11/protest_4.jpg)图片来源：网络
-来自零对冲（ZERO HEDGE） 星期天十一月二一日的新闻报道：
+**简评：随着加密货币应用越来越广泛，数字货币将成为新的金融系统主要的支付方式。在这个大洗牌的过程中，各种数字加密货币有的会消失，有的会成为金融界的主流。关注加密货币的动态，关注喜币。**
 
-美联社新闻称他们为“极右翼”，但欧洲各地成千上万热爱自由的人游行，反对新的残暴公共卫生措施，例如部分和全面封锁、健康护照和强制疫苗接种。
+**据《阿拉伯新闻网》2021年11月19日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/77-ak8dr-ljk66-1.jpg)**做出这一决定是因为该公司希望吸引新的客户群，以将“收藏汽车市场扩大到更广泛的爱好者和收藏家”。图片来源：阿拉伯新闻网**
+全球最大（按总销售额计算）的收藏汽车拍卖行RM Sotheby’s将接受通过Bitpay进行的加密货币支付。该公司于11月19日星期五的举行的Guikas Collection拍卖会将是RM Sotheby首次接受数字货币付款的收藏汽车拍卖会。
 
-奥地利、克罗地亚、意大利、北爱尔兰、英国、法国、德国和荷兰出现了反对新病毒限制的示威活动。 在欧洲以外，加拿大、澳大利亚、日本甚至美国的几个城市都出现了抗议者。 一些人将周六标记为“全球自由”集会的一部分，以抗议 COVID-19 限制和疫苗规定。
+本次拍卖将展出75辆最好的赛车和公路车，并且该系列将毫无保留地拍卖。做出这一决定是因为该公司希望吸引新的客户群，以将“收藏汽车市场扩大到更广泛的爱好者和收藏家”。
 
-一些最激烈的集会发生在港口城市鹿特丹，后来演变成了骚乱。抗议者和警察之间的冲突从周五开始，一直持续到周六晚上。
+RM Sotheby的CSO Bryon Madsen说：“加密货币已成为金融领域的重要组成部分，现在也是许多人在进行重大投资交易时所选择的方式。”
 
-维持生活、保护生命和自由是抗议者们游行的共同点。 各国政府正试图通过增加 COVID 限制、强制健康护照和强制接种疫苗来掠夺这些。
+RM Sotheby’s公司是一家位于加拿大安大略省布伦海姆的经典汽车拍卖公司。该公司最初名为RM Auctions，2015年，RM Auctions与领先的艺术品和奢侈品拍卖行苏富比(Sotheby’s)宣布建立新的战略合作伙伴关系，后者收购了RM Auctions的25%所有权权益。因此公司改名为RM Sotheby’s。
 
-最严重的限制，或确切地说，政府对自由的严重掠夺，发生在奥地利，周一开始全面封锁。 全国范围内的封锁预计至少持续十天，但可以延长至两周以上。 然后到 2 月 1 日，政府将强制接种疫苗（奥地利 890 万人中只有 66% 的人完全接种了疫苗），希望最后这一措施能顺利进行。
+**原文链接：**[https://www.albawaba.com/business/worlds-largest-collector-car-auction-house-start-accept-cryptocurrency-payments-1455610](https://www.albawaba.com/business/worlds-largest-collector-car-auction-house-start-accept-cryptocurrency-payments-1455610)
 
-周六在维也纳巨大的 Heldenplatz 广场举行的游行中有许多人高呼“我的身体我做主”、“我们为孩子挺身而出！”和“反抗！”
+**（本文评论仅代表个人观点）**
 
-最大的抗议活动之一应是在克罗地亚西北部首府萨格勒布，据《公民自由报》报道，那里有多达 十万民众涌向街道，以抗议政府的疫苗护照和新的 COVID 措施。
+翻译：洛杉矶盘古农场 — 小象の奶瓶
+校对：洛杉矶盘古农场 — 比格渣餐厅老闆の娘
+评论：洛杉矶盘古农场 — 小象の奶瓶
+编辑：洛杉矶盘古农场 — 心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-在罗马，数千名示威者聚集在首都巨大的马克西姆斯古战车竞技场（Circus Maximus），抗议工作场所、餐厅、电影院、剧院、体育场馆和健身房以及公共交通所需的“绿色通行证”。“永不放弃，”一名抗议者的标语写道。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-对极权主义的抵制正在整个欧洲蔓延。 通常，“在政府命令方面，欧洲人通常比美国人更服从。但即使在那里，公民也抗议政府以公共卫生的名义攫取权力，”美国思想家托马斯·利夫森说。
-
-世界人民正在觉醒，意识到政府暴政正在掠夺他们的生命和自由，‘达沃斯人’，世界精英和他们的傀儡政府变得更加视民众如草芥。 公民与政府之间日益增长的不满是危险的——革命就是这样产生。
-
-原文链接：[https://www.zerohedge.com/political/well-never-give-protests-erupt-across-europe-over-govt-covid-tyranny](https://www.zerohedge.com/political/well-never-give-protests-erupt-across-europe-over-govt-covid-tyranny)
-
-编辑/发布：LILY
-
-20211121
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
