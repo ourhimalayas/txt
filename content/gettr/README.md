@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/21/2021 2:51 AM (UTC)`
+
+11/20/2021 [3rd Anniversary of 1120] Steve Bannon: People are attracted to cryptos such as the Himalaya Coin due to the collusion between the Western corrupt elites and the CCP and their mismanagement of the economy; the CCP’s real estate is about to collapse, and I hope everyone to learn more about cryptos, which are our future<br/><br/>11/20/2021【1120三周年纪念】班农先生：人们对喜币等加密货币趋之若鹜是因为西方腐败的精英跟中共勾结以及他们在经济上的胡作非为；面临即将崩溃的中共房地产，希望大家多去了解加密货币，它是我们的未来<br/>
+![img](https://media.gettr.com/group40/getter/2021/11/21/02/51/787e1133-b78c-50cf-54fe-fb68bb6cc931/out.jpg)
+
+---
+
 `@miles 11/20/2021 10:30 PM (UTC)`
 
 11/20/2021 [3rd Anniversary of 1120] Steve Bannon: All the warnings sent by Mr. Miles Guo to the West have been verified; the CCP doesn’t care about the life and death of the Chinese people, while the Biden regime is kowtowing to the CCP; we are in a very dangerous time right now, and the Rule of the Law Foundation and Rule of the Law Society should work diligently to help more defectors from the Communist China to bring the evidence about the truth of the COVID vaccines<br/><br/>11/20/2021【1120三周年纪念】班农先生：文贵先生向西方发出的警告都得到了一一验证；中共不在乎中国人的死活，而拜登政府却向中共俯首称臣；我们正处在非常危险的时刻，法治基金和法治社会要努力帮助更多从中共国逃出来的人带来有关疫情真相的证据<br/>
@@ -296,15 +303,6 @@ An orthopedic surgeon from Wisconsin described the serious side effects after hi
 
 2021年11月17日文贵大直播：再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向
 ![img](https://media.gettr.com/group20/origin/2021/11/17/13/085c2b12-c30c-5d1b-2d2b-4df9bd2859d6/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@gfashion 11/17/2021 2:00 AM (UTC)`
-
-Shop 'The Drop' at www.GFashion.com<br/><br/>@gfashion <br/>@ddnyc
-![img](https://media.gettr.com/group49/origin/2021/11/17/02/c131b0f9-ef3b-b68a-c2e9-3fc158ae420e/7d7d51eead33a47aed0f871a20543d20.jpg)
 
 ---
 

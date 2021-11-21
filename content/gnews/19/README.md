@@ -2,32 +2,50 @@
 ---
 
 
-## 百万西澳人面临强制接种疫苗的选择
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1681453/)
+## 欧盟官方确认疫苗已致三万多人死亡
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1681503/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1633947456219_GUK3GMQUP.1-2.jpg)图片来源：The West Australian
-**整理报道：**翼族
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-西澳大利亚州是澳大利亚的矿业重地，而矿业是澳大利亚的经济支柱。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/V-11.jpg)truedemocracyparty.net
+《门道专家》11月19日发表文章，题目是，“欧洲药品管理局数据显示，中共（冠状）病毒疫苗不良反应事件有1,163,356例，30,551例死亡。
 
-近日，西澳州长马克·麦高文（Mark McGowan）宣布将实施一项新的疫苗接种措施，该措施将适用于约110万名的西澳工人，涵盖西澳75%的劳动力。在一系列的行业中，疫苗接种将成为强制性要求，如果雇主和雇员不遵守规定，他们将面临罚款。
+全文如下：
 
-大多数西澳劳动力必须在2022年1月底之前接种疫苗。在接下来的几个月里，西澳工人将根据其所在的行业，面临三个迫在眉睫的截止日期——12月1日、12月31日和1月31日。
+欧盟官方的可疑药物反应数据库网站目前根据提交给其系统的数据，报告了截至2021年11月13日，辉瑞、摩德纳、强生和阿斯利康的中共病毒疫苗，有30,551例死亡和1,163,356例不良药物反应。
 
-西澳政府将强制疫苗接种的行业分为三类：1）具有高传播风险、脆弱性或对社区安全至关重要的行业；2）包括提供食品、汽油、运输和教育等关键服务的企业；3）包括零售、批发、制造、政府、议会、行政人员等行业。
+根据欧洲药品管理局”（European Medicines Agency）的说法，“不良反应数据报告门户网站”（ADRreports.eu portal）是欧盟的一个官方网站，这个网站“允许用户查看可疑的副作用报告的总数（也称独立的安全病例报告，即ICSRS，Individual Case Safety Reports），中共病毒疫苗不良反应的数据发表在这个网站。
 
-目前，西澳大利亚州是全国失业率最低的地区之一，为 3.9%。西澳工商会（CCIWA）首席经济学家亚伦·莫雷（Aaron Morey）表示，估计高达5%的工人将会因为这项强制疫苗接种新规定而辞职或被解雇。
+网站和独立的病案报告表中显示的所有数据均来自“尤德拉警戒”（Eudra Vigilance），“一个旨在收集可疑副作用报告的系统，用于评估药物开发过程中的益处和风险，并在欧洲经济区（EEA）授权后监测其安全性。”
 
-**原文链接：**[As WA COVID vaccine mandate deadline looms, some WA workers say they’ll quit rather than get the jab](https://www.abc.net.au/news/2021-11-21/fears-covid-vaccine-mandate-to-lead-to-worker-shortage-in-wa/100617550)
+这些信息由“国家药品监管机构和持有药品销售许可证（执照）的制药公司”以电子方式提交给“尤德拉警戒”（系统）。
 
-*编辑/发布：翼族*
+来自“不良反应数据报告门户网站”：
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+持有药品上市许可证的制药公司，以及欧洲经济区的药品监管机构，在法律上被要求向“尤德拉警戒”（系统）提交疑似副作用的报告，这包括从医疗专业人员和患者处收到的报告，这不包括欧洲经济区以外发生的非严重副作用病例。
+
+网络报告不包括研究报告（如临床试验、非介入性研究）或其他类型的报告（即非勉强要求的报告）。
+
+如果（i）导致死亡，（ii）危及生命，（iii）需要住院或延长现有住院时间，（iv）导致持续或严重残疾/丧失能力（根据报告人的意见），（v）是先天性异常/出生缺陷，或（vi）在其他一些重要的医疗条件下的结果等的就被归类为“严重” 副作用。
+
+《健康影响新闻》（Health Impact News）的一份报告提到，“尤德拉警戒”（系统）维护的数据库仅适用于属于欧盟（EU）的欧洲国家，欧盟由27个国家组成。这意味着，如果我们将欧洲所有国家都包括在内，中共病毒疫苗的不良反应将高得多。
+
+以下是截至2021年11月13日的数据摘要。
+
+“尤德拉警戒”（系统）中所述，来自辉瑞生物技术的吉那美兰（Tozinameran）mRNA疫苗（代码BNT162b2，Comirnaty类）的总反应：14,303例死亡和562,213例不良反应，具体数据如下：
+
+……
+
+原文列出了各种疫苗、各种不良反应详细的数据。
+
+（摘译完）
+
+110多万起不良反应，3万多人死亡，这还不是欧洲的全部，笔者怀疑公布的数据还有可能被“压缩”，面对这种情况，懵懂的人们还不觉醒？还让阴谋集团牵着鼻子走？
+
+原文链接：
+
+[https://www.thegatewaypundit.com/2021/11/european-medicines-agency-data-shows-1163356-adverse-drug-reactions-30551-fatalities-covid-19-vaccinations/](https://www.thegatewaypundit.com/2021/11/european-medicines-agency-data-shows-1163356-adverse-drug-reactions-30551-fatalities-covid-19-vaccinations/)
 
  
 

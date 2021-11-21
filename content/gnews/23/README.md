@@ -2,129 +2,163 @@
 ---
 
 
-## BC宣布大温限油、禁跨区旅行 立即生效
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1681397/)
+## 喜币的优势绝对是现今区块链发展的方向
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681477/)
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/640-11-edited.jpg)图片来源：网络
-BC省政府公共安全部长兼副检察长Mike Farnworth，使用《紧急计划法》的特别权利发布了两项最新禁令。
+[https://gtv.org/video/id=61992de2e6900076612d8985](https://gtv.org/video/id=61992de2e6900076612d8985)
 
-第一：即刻起全省西南地区的汽油和柴油将优先加给基本民生车辆，该命令立即生效，直至2021年12月1日。
+**郭文贵
+Miles Guo**
 
-第二：禁止在严重受洪水影响的高速公路上进行非必要的旅行（non-essential travel）。
+(区块链专家 )他说，当区块链技术
+He (blockchain expert）said that when blockchain technology
 
-第一条限令适用于的区域如下：低陆平原到希望小镇地区Lower Mainland-to-Hope region；海天地区the Sea-to-Sky region；阳光海岸Sunshine Coast；海湾群岛the Gulf Islands和温哥华岛Vancouver Island。
+在2020年年底之后
+after the end of 2020
 
-根据该命令，基本民生车辆可以根据需求优先使用商业加油站（cardlock加油站）不受限制地进行加油。非必要车辆，包括普通大众，仍可通过零售加油站获得燃料。人们每次去加油站的油量将被限制在30升以内。符合基本车辆的完整列表如下：
+在逐渐普及之后
+gradually became popular,
 
-紧急服务车辆（消防、警察、救护车和医疗保健，包括紧急医疗）
+它基本上不会让人相信银行
+it basically would make no people trust the bank
 
-公共交通车辆
+他说如果在区块链得到应用
+He said if the blockchain has been applied
 
-商业运输卡车——关键货物和服务（食品和饮料、医疗保健、安全）
+记住啊，要得到应用
+Remember, it has to be applied
 
-冷藏车
+特别是它的流通没有层次、没有阶级
+Especially when its circulation has no hierarchy or class,
 
-饮用水输送/废水服务
+普遍性、支付性达到的时候
+and when its universality and payment availability is reached
 
-杂货配送
+没有任何人再相信政府和相信银行
+There would be no one to trust the government and the bank anymore
 
-道路维修、保养和恢复车辆/拖车
+2021年我们将看到去中心化存储、去中心化金融
+In 2021, we would see decentralized storage and decentralized finance,
 
-军车
+和非政治性货币的飞速发展
+and the rapid development of non-political currencies
 
-关键基础设施、建筑和维修车辆
+我认为表现最好的将是加密货币和比特币、以太坊
+In my opinion, the best performers would be cryptocurrencies and Bitcoin and Ethereum
 
-家庭护理人员
+然而我们希望继续在2022年看到成功
+However, we hoped to continue to see success in 2022
 
-市政车辆
+以太坊的扩展范围需要在2021年得到解决
+Ethereum’s extended scope needed to be resolved in 2021
 
-原住民政府服务车辆
+但是下一个专家说得很清楚
+But the following expert made it very clear
 
-BC渡轮/海岸警卫队/拖船/海上应急/领航船
+不能流通的虚拟货币
+Virtual currencies that could not be circulated
 
-加拿大邮政和其他快递/包裹递送车辆
+几乎都会被淘汰
+would almost always be eliminated
 
-提供关键政府服务的车辆
+在支付普遍性情况下的货币
+In the case of universal payment currency
 
-机场当局和航空旅行车辆
+和有稳定性的货币一定是世界的金融之王
+and stable currency must be the king of finance in the world
 
-废物处理/回收
+这就是人类的劳动和时间换来的生产结果
+and those were the results that exchanged from human’s labor and time
 
-BCHydro、Fortis和其他重型和轻型多功能车
+不应该被政府垄断
+It should not be monopolized by the government
 
-电信维修安装车
+不应该被一个某个政府所定价
+It should not be priced by a certain government
 
-燃料运输卡车和船只
+区块链的到来
+The arrival of the blockchain
 
-校车
+把医学、科技、想法、知识全变成了
+has turned medicine, technology, ideology, and knowledge
 
-出租车
+端到端的、公平的、去第三方去中心化的衡量资产的标准
+into end-to-end, fair, and third-party decentralized standards for measuring assets
 
-农业和农用车辆，包括支持洪水响应的车辆
+这是多么伟大呀
+How great this is
 
-支持洪水响应的兽医
+最重要的事情
+The most important thing is that
 
-城际巴士
+其中这仨哥们都说到
+among what these three buddy friends have said,
 
-BC省府将与燃气零售商和分销商合作执行此命令，以确保人们每次出行不超过分配的限额。作为该命令的一部分，燃气零售商将被要求确保剩余的汽油储备持续到2021年12月1日。根据该命令，任何对加油站工作人员进行辱骂、威胁或好斗的人都可能受到罚款。
+全世界所有区块链的核心要点
+all the key points of all blockchains in the world
 
-同时，根据该命令，零售加油站和批发分销商将被禁止哄抬利润率，人们将被禁止以转售为目的购买汽油。
+全被喜联储给抓到了
+have been in possession of the Himalaya Reserve
 
-这些限制将确保向BC省的居民提供稳定的燃料供应，并在这期间努力修复因洪水原因而暂停使用的横山油管公司Transmountain管道。目前道路受损情况正在评估，横山油管何时重启，公司还没有给出具体的时间表，因为要确保油管安全才可开启运行。与此同时，政府正努力通过建立新路线来替代原有的燃料通道。
+没有支付的货币一定没有未来，都得滚蛋
+Currency without a payment system will certainly have no future and would be eliminated
 
-该命令不影响用于为房屋供暖的天然气和取暖用油。
+你别忘了
+Please don’t forget
 
-第二命令中禁止非必要旅行的高速公路如下：
+IBM是整个区块链的核心要素
+IBM is the core element of the entire blockchain
 
-99号公路（Highway 99）：99号公路和在Lillooet上的Lillooet River Road到BC Hydro Seton Lake Campsite入口的交界处。只允许载重不超过1.45万公斤的乘用车和商用车；
+IBM的电脑里的有一种语言说得非常清楚
+And there is a language in IBM computers that speak very clearly that
 
-3号公路（Highway 3）：5号公路和3号公路上Hope到Princeton的西入口的交界处；
+所有的区块链的最终的存在不存在的结果和价值
+the final existence and value of all blockchains
 
-7号公路（Highway 7）：Agassiz的7、9号公路交界处到Hope的7、1号公路交界处；
+衡量在你是否遵守区块链的去账本化的加密技术
+and the measurement of whether you comply with the de-booking encryption tech-nology of the blockchain
 
-随着这些高速公路开始重新开放，该命令也将从今天开始生效。低陆平原和BC省内陆之间的高速公路里的特定路段即可禁止非必要旅行。
+就是保密安全
+is confidentiality and security
 
-运输货物和保证BC省民健康安全的相关车辆不含在内。随着基本交通积压的清除，基本旅行的限制可以相应放宽。不被包括在内的服务和车辆如下：
+咱们喜币牛就牛在这
+This is the extraordinary thing about our HCoin
 
-商业运输货物
+它能流通，是在全球啥都能买
+It can be circulated, and you can buy anything with it globally
 
-运输必需品和用品，特别是：
+不但如此
+Not just this
 
-食物、水和其他饮料
+我可以稳定欧元
+I can stabilize the euro (with the HCoin)
 
-燃料和汽油
+我想稳定谁稳定谁
+I can stabilize whoever I want (with the HCoin)
 
-保健品、药品和医疗用品
+所以咱的喜币牛的不是一般了
+Therefore, our HCoin is not just average, its extraordinary
 
-个人卫生、卫生和清洁用品。
+**原视频链接:** [https://gettr.com/post/pgywfk3cdf](https://gettr.com/post/pgywfk3cdf)
 
-运输牲畜、农产品或海鲜产品和供应品
+Date: 11/14/2021
+原视频标题: 喜币的优势绝对是现今区块链发展的方向
+The advantage of HCoin is definitely the direction of current blockchain develop-ment
+原视频日期：2021/11/14
+任务编号：KC270（2897）
+视频时间段 : 0:00-2:17
 
-牲畜生产者返回农场照顾动物
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-应对紧急情况，包括搜救行动
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-因医疗原因疏散和紧急医疗
-
-公路维修和保养
-
-运送重要人员
-
-返回个人居住的主要住所
-
-行使1982年《宪法法案》第35条承认和确认的原住民或条约权利
-
-对此，BC政府表示将会有稳定的汽油供应来支持所有的基本民生车辆，希望省民们保持冷静，只购买所需要的东西并互相帮助。这些措施都只是暂时的，大家无需惊慌，重建BC省灾区，需要我们共同的努力。
-
-来源链接：
-
-[https://mp.weixin.qq.com/s/uEFqRDKhfFnop7OCVG76UA](https://mp.weixin.qq.com/s/uEFqRDKhfFnop7OCVG76UA)
-
-编辑/发布：LILY
-
-20211120
-![](https://assets.gnews.org/wp-content/uploads/2021/08/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

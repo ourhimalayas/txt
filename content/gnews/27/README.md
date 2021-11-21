@@ -2,71 +2,226 @@
 ---
 
 
-## 中共对维吾尔人的迫害是在预演更广泛的监视计划
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681345/)
+## 习近平六中全会后的两个重大决策
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681421/)
 
-**据《自由亚洲电台》作者：Roseanne Gerin和Alim Seytoff，2021.11.17报道**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/au3dh-zq3wv.jpg)
-2019年6月4日，在中国西北部新疆地区喀什以南的阿克托县，学童走过监控摄像头。
+[https://gtv.org/video/id=6198bc6fe6900076612d2959](https://gtv.org/video/id=6198bc6fe6900076612d2959)
 
-在新疆发生的事情相当于“大规模的心理折磨”。
+那么回来我们再看六中全会的时候
+Entonces cuando volvamos a ver la Sexta Sesión Plenaria
 
-一个两党国会委员会的成员周三警告说，中共在新疆西部使用高科技镇压穆斯林维吾尔人的情况正在扩大，并可能出口到世界各地。
+共产党的1943年和1981年2个重大的决议
+Las 2 grandes decisiones que hizo el PCCh en el 1943 y 1981
 
-成立2000年的美国国会行政当局中国委员会，在华盛顿举行了听证会，以提请注意侵犯人权的行为以及中共国（在新疆维吾尔自治区）使用的大规模监视技术和审查制度的战略影响。
+到今天的2021年重大决议
+Hasta el de 2021 de hoy en día
 
-由17名成员组成的委员会联合主席、参议员杰夫·默克利表示，如果没有适当的措施来保护隐私和人权，专制政权可以利用技术来控制人口、阻止言论自由并破坏民主制度。
+43年81年
+En el año 43 y 81
 
-来自俄勒冈州的美国参议员默克利表示，中共使用人工智能、区块链和云计算等技术，使中国处于“世界上最普遍的监视状态”。
+https://gtv.org/video/id=6198bc6fe6900076612d2959中国的军队什么样
+Cómo era el ejército de China
 
-他说，政府已经从手机、个人电脑和安全摄像头收集了大量数据，目的是对目标人群实施政治和社会控制。 “我们在新疆维吾尔自治区看到的更多，”默克利说。
+当时要没要收回台湾
+En ese momento acaso no dijeron que iban a tomar de regreso a Taiwán
 
-多年来，中共当局任意逮捕新疆维吾尔人和其他突厥少数民族，并限制他们的宗教和文化活动。该系统由一个无处不在的数字化系统执行，该系统通过监视无人机、面部识别摄像头、手机扫描和无处不在的警察来监控居民的一举一动。
+大家去看看历史去
+Todos vayan a ver la historia
 
-众议员克里斯·史密斯说，中国的数字丝绸之路作为“一带一路”倡议的组成部分，目标就是加强海外数字连接。这是“一个侵入性的互联网架构和监控技术生态系统，意图扩大中共在全球的影响力”。
+所有这个决议的时候
+Todos los momentos de esta decisión
 
-“中共当局对新疆地区以穆斯林为主的维吾尔人、哈萨克人和其他中亚人的无情迫害，令人不安地预知了这些工具将会在更大范围内的滥用。”他说。
+就喊着打台湾比啥时候都响
+El grito de atacar a Taiwán era más fuerte que en cualquier momento
 
-自2017年以来，中共已将多达180万维吾尔人和其他人关押在“再教育”营地。中共还驳斥了广泛记录的证据，包括前被拘留者和看守的证词，这些证据表明中共虐待了住在营地内外的穆斯林。
+那个时候缺啥
+En ese momento había crisis de todo
 
-相反，中共官员辩称，这些营地是用于防止该地区宗教极端主义和恐怖主义的职业培训设施，该地区约有1200万维吾尔人居住。
+中国缺粮食
+China carecía de comida
 
-但是，最近出版了一本关于中共监控的书的作者杰弗里·凯恩告诉委员会成员，他采访过的前集中营被拘留者以及维吾尔族和哈萨克族难民讲述了类似的故事，形容新疆“陷入全面的监控的乌托邦”。
+那个时候中国人需要什么
+En ese momento que necesitaban los chinos
 
-中共使用综合联合作战平台来存储来自警察人工输入、摄像头监控以及犯罪和法庭历史中收集的数据。中共官员说，需要将这些信息来确定维吾尔人是否可能犯罪。当地警方通过发送到当局智能手机的信息，来审讯和拘留被系统标记的维吾尔人。
+要改革开放 这次是什么
+Necesitan una reforma económica y ¿ esta vez que es?
 
-他说，电信巨头华为、面部识别技术提供商旷视科技和人工智能软件提供商商汤科技等中国科技公司开发的技术，相当于一个“大规模心理折磨系统”。
+中国人不缺粮食
+A los chinos no les hace falta comida
 
-杰弗里说，新疆少数民族居民有一种“不断被监视的感觉，不是被人类监视，而是被预测是否未来犯罪和恐怖主义行为的大数据软件算法监视，”
+中国继续这个事实上是坚决不开放
+De hecho, China sigue negándose a abrirse en esta realidad
 
-“被拘留的原因可能很广泛，比如他们是从前门还是后门走，他们是否突然开始了体育锻炼，以及他们是否感染了流感并且那天只是上班迟到，” 杰弗里告诉记者说。
+继续打台湾 对待美帝国主义是什么
+Sigue atacando a Taiwán y cómo le trata al imperialismo estadounidense
 
-中共政府没有立即对听证会作出回应。
+我告诉你
+Yo te digo
 
-**“情况可能更糟”**
+对美国会越来越软
+Hacia Estado Unidos es cada vez más suave
 
-听证会是在美国总统乔拜登和中共国家主席习近平就双边关系进行了三个小时的虚拟会晤后两天举行的。
+嘴巴会狠喊
+Por la boca gritará ferozmente
 
-根据国家安全顾问沙利文第二天的简报，拜登强调了美国对新疆、西藏和香港人权的担忧。但没有详细说明。
+绝对越来越软
+Pero definitivamente será cada vez más suave
 
-总部位于德国的世界维吾尔代表大会主席多尔昆·伊萨表示，他很感激拜登在与习近平的虚拟峰会期间提出中共对维吾尔人的暴行的议题。
+第2个
+El segundo
 
-“如果不是美国谴责中共对维吾尔人进行种族灭绝，我们今天的情况可能会更糟，”他周二告诉自由亚洲电台。
+美国人和西方人通过这个六中全会
+Los estadounidenses y los occidentales a través de esta Sexta Sesión Plenaria
 
-“拜登政府必须抵制北京冬奥会，”伊萨说。 “否则，只会助长中共继续犯下种族灭绝罪行。”
+绝对会视共产党为更大的威胁
+Seguro verá al PCCh como la mayor amenaza
 
-6月，美国国会行政当局中国委员会，敦促国际奥委会主席托马斯·巴赫（Thomas Bach）推迟2022年北京奥运会，如果东道国政府不停止侵犯人权行为，则应另选举办国。
+第3个
+Tercero
 
-美国政府宣布，中共在新疆虐待维吾尔人的运动构成危害人类罪和种族灭绝罪。
+习近平和邓小平和毛泽东不一样是他敢干
+A diferencia de Mao Zedong, Xi Jinping y Deng Xiaoping es que se atreven
 
-译者按：
-以上为翻译件，最后一段是中共宣传部长的老套路（已删），贼喊捉贼的手段从未改变过。一个富饶美丽的新疆变成了一个大监狱。对于生活在中共监控下的中国老百姓，又何尝不是被中共制造的监控囚禁在一个牢笼里呢？
+绝对敢发起第3次世界大战
+Absolutamente se atreve a lanzar la Tercera Guerra Mundial
 
-**原文链接：**[https://www.rfa.org/english/news/uyghur/commission-hearing-11172021191538.html](https://www.rfa.org/english/news/uyghur/commission-hearing-11172021191538.html)
+他绝对敢打台湾
+Definitivamente se atreve a atacar Taiwán
 
-翻译：洛杉矶盘古农场 — 小象的奶瓶
-校对：洛杉矶盘古农场 — Mike Li
-编辑：洛杉矶盘古农场 — 心照
+邓小平敢弄印度敢弄这个越南
+Deng Xiaoping se atrevió lidiar con India y Vietnam
+
+毛泽东敢到北朝鲜
+Mao Zedong se atrevió ir hasta Corea del Norte
+
+他绝对敢上台湾
+Él seguro se atreve ir a Taiwán
+
+就是习近平这次的六中全会的对内的所有的实行习皇制
+Es la implementación interna de Xi Jinping sobre el sistema imperial de Xi en esta Sexta Sesión Plenaria
+
+对外的实行 希特勒制
+Hacia el exterior implementa el Sistema de Hitler
+
+你一点都不用怀疑
+No lo necesitas dudar ni un poquito
+
+为什么呀
+Por qué será
+
+他下边的一个个的张万年
+Debajo de él tiene varios Zhang Wannian
+
+一个个的太监
+Varios eunucos
+
+还有今天他的这个战羊秦（刚）
+Y hoy en día su oveja guerrero Qing
+
+都会给他
+Se lo da
+
+还有这个
+También este
+
+特别是杨洁篪和王毅一定会执行下去
+Especialmente Yang Jiechi y Wang Yi seguro lo ejecutarán
+
+现在2个政策
+Ahora las 2 políticas
+
+你记住我今天说的话
+Recuerda lo que dije hoy
+
+这2个政策
+Estas 2 políticas
+
+会对外无限强硬
+Será infinitamente duro para el mundo exterior
+
+一定会再放毒
+Seguro seguirán soltando veneno
+
+然后在南海和东海问题上一定会强硬
+Entonces serán duros con los problemas del Mar de China Meridional y del Mar de China Oriental
+
+第2条记住兄弟姐妹们
+El segundo lo deben recordar hermanos y hermanas
+
+马上会把中国的经济私有企业
+Muy pronto la economía de las empresas privadas de China
+
+所有的人的财富和所有的东西都会收回到中央去
+Toda la riqueza de las personas y todo se devolverá a la central
+
+然后对所有在华的企业
+Y hacia las empresas que están en China
+
+能弄的弄能抢得抢
+Lo que se pueda tomar y hacer lo harán
+
+就是真正的实现
+Quiere decir, cumplir con el verdadero
+
+对内对外的资本的共产制
+El sistema comunista de capital interno y externo
+
+闭关锁国 完全拒绝对外改革开放完全自主 干自主道路
+Cerrar el país y negarse por completo a reformar y abrirse al mundo exterior
+
+自主研发 开拓创新 胸怀天下
+Investigar y desarrollar independientemente, ser pioneros e innovadores, cuidándose del mundo
+
+然后老子来搞你天下
+Entonces yo les hago el mundo
+
+这两件事儿就在发生
+Estos dos asuntos están sucediendo
+
+此时此刻
+En este preciso instante
+
+最后的结局是什么
+Cuál sería el final
+
+告诉体制内的战友们
+Decirles a los luchadores que están dentro del sistema
+
+你们的所有的问题是
+Todos los problemas de ustedes son
+
+你怎么让你活得更好
+Cómo hacerte vivir de una mejor manera
+
+活得你安全
+De una forma más segura
+
+我今天很抱歉的回答你们
+Lo siento mucho por responderles hoy en día
+
+没有一个人是安全的
+No hay una persona segura
+
+没有一个人可以再过得好的
+No habrá ni una persona que pueda pasarla bien
+
+一个都不会有
+No habrá ni uno
+
+**原视频网址**：[https://gettr.com/post/ph9jb973e8](https://gettr.com/post/ph9jb973e8)
+
+日期：11/19/2021
+原视频标题：习近平六中全会后的两个重大决策
+Las dos grandes decisiones de Xi Jinping luego de la Sexta Sesión Plenaria
+原视频日期：11/18/2021
+任务编号：KC268（2932）
+视频时间段：0:00-2:29
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场- 小文萱
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

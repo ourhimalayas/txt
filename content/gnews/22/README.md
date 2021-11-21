@@ -2,231 +2,50 @@
 ---
 
 
-## 习近平六中全会后的两个重大决策
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681421/)
+## 罗杰斯：“我相信中共的计划是在2022年奥运会后占领台湾。”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1681480/)
 
-[https://gtv.org/video/id=6198bc6fe6900076612d2959](https://gtv.org/video/id=6198bc6fe6900076612d2959)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/112001-1.jpg)资料图片：阿拉巴马州众议员迈克·罗杰斯（(Bill Clark/CQ Roll Call）
+摘要翻译：
 
-那么回来我们再看六中全会的时候
-Entonces cuando volvamos a ver la Sexta Sesión Plenaria
+来自《布赖特巴特新闻网》11月18日的报道称，
 
-共产党的1943年和1981年2个重大的决议
-Las 2 grandes decisiones que hizo el PCCh en el 1943 y 1981
+有迹象表明，中共国近几个月加大了其野心勃勃的步伐，尤其是在今年早些时候乔·拜登总统上任以来。然而，根据众议院军事委员会资深共和党议员迈克·罗杰斯(阿拉巴马州共和党)的说法，中共国可能在2022年进一步加强侵略。
 
-到今天的2021年重大决议
-Hasta el de 2021 de hoy en día
+罗杰斯在接受美国阿拉巴马州商业调频广播电台FM Talk 106.5电话采访时预测，在中共国举办2022年奥运会后，中共将尝试入侵台湾，因为有奥运会的宣传优势，同时也在被认为是软弱的拜登还是总统的情况下这样做。
 
-43年81年
-En el año 43 y 81
+“这真的危险。”他说。“这个话题我已经谈了很久，我相信中共国的计划是在2022年奥运会之后占领台湾。他们打算利用奥运会作为契机，真正在全球范围内提升自己的形象。一旦奥运会结束，他们打算消耗一些资本，拿下台湾。而且我认为现在正在发生的事情是，他们正在衡量拜登，看看如果发生什么事，他会怎么做。我想我们都知道答案。”
 
-https://gtv.org/video/id=6198bc6fe6900076612d2959中国的军队什么样
-Cómo era el ejército de China
+“我知道我相信他们会在2022奥运会之后立即这样做的另一个原因是，中共不想冒着拜登不能连任的风险，当美国由一个软弱的领导人领导时，这是一个采取行动的黄金机会。因为我确信，这将是本届政府的唯一任期，并且本届政府不会被另一个民主党人继任。所以，中共也面临着这种压力，要在世界上唯一的超级大国有机会做出最少的反应时采取行动。”
 
-当时要没要收回台湾
-En ese momento acaso no dijeron que iban a tomar de regreso a Taiwán
+**简评：**
 
-大家去看看历史去
-Todos vayan a ver la historia
+共和党参议员汤姆·科顿与众议员迈克·罗杰斯有一样的判断，即中共很有可能仿效俄罗斯在索契冬奥会之后攻占了克里米亚时的做法，在2022北京冬奥会之后攻占台湾。从习近平政府掌权之后，不断加强其极权统治的势头和习近平本人的性格分析，习近平政府也是完全有可能会这样做的。如今中共国政治内斗加剧，经济奄奄一息，这也促使习近平会铤而走险，利用一场战争缓解各方面的矛盾。
 
-所有这个决议的时候
-Todos los momentos de esta decisión
+如果台海发生战争，地区局势会变得更加复杂，在国际社会对于新冠病毒溯源调查还没有明确答案的情况下，中共政权更有意愿通过制造地区的混乱局面来吸引国际社会的注意力，淡化国际社会对其制毒放毒这一罪恶行径的关注度。
 
-就喊着打台湾比啥时候都响
-El grito de atacar a Taiwán era más fuerte que en cualquier momento
+面对邪恶的中共政权，如果没有美日等国的协防，台湾很难有胜算，希望在科顿和罗杰斯这样有远见的政治人物的警醒和推动下，美国能够在中共犯台时，采取行动保护台湾，同时维护自己在亚太地区的军事和经济利益。
 
-那个时候缺啥
-En ese momento había crisis de todo
+新闻链接：[House Armed Services Ranking Member Rogers: ‘I Believe China’s Plan Is to Take Taiwan After the 2022 Olympics’](https://www.breitbart.com/clips/2021/11/18/house-armed-services-ranking-member-rogers-i-believe-chinas-plan-is-to-take-taiwan-after-the-2022-olympics/)
 
-中国缺粮食
-China carecía de comida
+***翻译/简评**：Harvey (叶知秋)*
 
-那个时候中国人需要什么
-En ese momento que necesitaban los chinos
+***校对**：Julia Win*
 
-要改革开放 这次是什么
-Necesitan una reforma económica y ¿ esta vez que es?
+* * *
 
-中国人不缺粮食
-A los chinos no les hace falta comida
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-中国继续这个事实上是坚决不开放
-De hecho, China sigue negándose a abrirse en esta realidad
 
-继续打台湾 对待美帝国主义是什么
-Sigue atacando a Taiwán y cómo le trata al imperialismo estadounidense
+编辑：【英国伦敦喜庄园编辑部】
 
-我告诉你
-Yo te digo
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-对美国会越来越软
-Hacia Estado Unidos es cada vez más suave
 
-嘴巴会狠喊
-Por la boca gritará ferozmente
 
-绝对越来越软
-Pero definitivamente será cada vez más suave
 
-第2个
-El segundo
-
-美国人和西方人通过这个六中全会
-Los estadounidenses y los occidentales a través de esta Sexta Sesión Plenaria
-
-绝对会视共产党为更大的威胁
-Seguro verá al PCCh como la mayor amenaza
-
-第3个
-Tercero
-
-习近平和邓小平和毛泽东不一样是他敢干
-A diferencia de Mao Zedong, Xi Jinping y Deng Xiaoping es que se atreven
-
-绝对敢发起第3次世界大战
-Absolutamente se atreve a lanzar la Tercera Guerra Mundial
-
-他绝对敢打台湾
-Definitivamente se atreve a atacar Taiwán
-
-邓小平敢弄印度敢弄这个越南
-Deng Xiaoping se atrevió lidiar con India y Vietnam
-
-毛泽东敢到北朝鲜
-Mao Zedong se atrevió ir hasta Corea del Norte
-
-他绝对敢上台湾
-Él seguro se atreve ir a Taiwán
-
-就是习近平这次的六中全会的对内的所有的实行习皇制
-Es la implementación interna de Xi Jinping sobre el sistema imperial de Xi en esta Sexta Sesión Plenaria
-
-对外的实行 希特勒制
-Hacia el exterior implementa el Sistema de Hitler
-
-你一点都不用怀疑
-No lo necesitas dudar ni un poquito
-
-为什么呀
-Por qué será
-
-他下边的一个个的张万年
-Debajo de él tiene varios Zhang Wannian
-
-一个个的太监
-Varios eunucos
-
-还有今天他的这个战羊秦（刚）
-Y hoy en día su oveja guerrero Qing
-
-都会给他
-Se lo da
-
-还有这个
-También este
-
-特别是杨洁篪和王毅一定会执行下去
-Especialmente Yang Jiechi y Wang Yi seguro lo ejecutarán
-
-现在2个政策
-Ahora las 2 políticas
-
-你记住我今天说的话
-Recuerda lo que dije hoy
-
-这2个政策
-Estas 2 políticas
-
-会对外无限强硬
-Será infinitamente duro para el mundo exterior
-
-一定会再放毒
-Seguro seguirán soltando veneno
-
-然后在南海和东海问题上一定会强硬
-Entonces serán duros con los problemas del Mar de China Meridional y del Mar de China Oriental
-
-第2条记住兄弟姐妹们
-El segundo lo deben recordar hermanos y hermanas
-
-马上会把中国的经济私有企业
-Muy pronto la economía de las empresas privadas de China
-
-所有的人的财富和所有的东西都会收回到中央去
-Toda la riqueza de las personas y todo se devolverá a la central
-
-然后对所有在华的企业
-Y hacia las empresas que están en China
-
-能弄的弄能抢得抢
-Lo que se pueda tomar y hacer lo harán
-
-就是真正的实现
-Quiere decir, cumplir con el verdadero
-
-对内对外的资本的共产制
-El sistema comunista de capital interno y externo
-
-闭关锁国 完全拒绝对外改革开放完全自主 干自主道路
-Cerrar el país y negarse por completo a reformar y abrirse al mundo exterior
-
-自主研发 开拓创新 胸怀天下
-Investigar y desarrollar independientemente, ser pioneros e innovadores, cuidándose del mundo
-
-然后老子来搞你天下
-Entonces yo les hago el mundo
-
-这两件事儿就在发生
-Estos dos asuntos están sucediendo
-
-此时此刻
-En este preciso instante
-
-最后的结局是什么
-Cuál sería el final
-
-告诉体制内的战友们
-Decirles a los luchadores que están dentro del sistema
-
-你们的所有的问题是
-Todos los problemas de ustedes son
-
-你怎么让你活得更好
-Cómo hacerte vivir de una mejor manera
-
-活得你安全
-De una forma más segura
-
-我今天很抱歉的回答你们
-Lo siento mucho por responderles hoy en día
-
-没有一个人是安全的
-No hay una persona segura
-
-没有一个人可以再过得好的
-No habrá ni una persona que pueda pasarla bien
-
-一个都不会有
-No habrá ni uno
-
-**原视频网址**：[https://gettr.com/post/ph9jb973e8](https://gettr.com/post/ph9jb973e8)
-
-日期：11/19/2021
-原视频标题：习近平六中全会后的两个重大决策
-Las dos grandes decisiones de Xi Jinping luego de la Sexta Sesión Plenaria
-原视频日期：11/18/2021
-任务编号：KC268（2932）
-视频时间段：0:00-2:29
-
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
