@@ -2,18 +2,31 @@
 ---
 
 
-## 战友要提高行动力和智慧力
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1683310/)
+## GTV新闻访谈简报|2021年11月21日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683321/)
 
-文编：东京樱花团/樱花传媒
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2.png)
 
-视频:东京樱花团/中文小视频组
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-22.png)
+文章仅代表作者本人观点，与Gnews无关
 
-11月19日，郭文贵先生在GTV大直播指出，战友要提高行动力和智慧力，这是一个人最终的结果。很多人不明白5%母股的作用，那些不相信新中国联邦，不敢行动的人，千万别看爆料革命的直播。数字货币，新中国联邦是最厉害的，唯我独尊！
+视频参看：2021.11.21早GTV新闻访谈
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
+[https://gtv.org/video/id=619a4955cbfd016d6378903d](https://gtv.org/video/id=619a4955cbfd016d6378903d)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov.jpg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

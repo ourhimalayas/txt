@@ -2,32 +2,28 @@
 ---
 
 
-## 2020年中国人口出生率再创新低
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683379/)
+## 中共舰艇军机频繁骚扰日本领海领空
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683404/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：东京樱花团—在远方
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-1.png)
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/641.jpg)图片来源：腾讯新闻 
 
-当地时间11月18日，《中国统计年鉴2021》中的数据显示，2020年，中共国内的人口出生率仅为千分之8.52。消息称，2020年初爆发的新冠疫情导致年末两个月的出生人口断崖式下跌。
 
-另据数据表明，自2018年起，中共国内的月出生人口数量就开始温和下降，到了2020年，当年的月出生人口降幅已迅速加大。与此同时，中共当局推广的二孩生育势能已经衰减至末端。
+当地时间19日，日本防卫省发布消息称，一艘中共海军测量船于17日晚，在鹿儿岛县屋久岛和口永良部岛附近海域，驶入了日本领海。日本政府已经通过外交渠道，向中共传达了关切，这是日方第4次确认并公布中共海军驶入领海。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1121-00180-001s1.jpg)图片来源：东方日报 
+同日，中共和俄罗斯各2架轰炸机，在日本海和东海上空进行长途飞行，日本航空自卫队战机进行了紧急升空应对。另外，19日上午10时前后，4艘中共海警局的船只，相继驶入尖阁诸岛附近的日本领海，其中1艘还搭载了类似机关炮的装置，被日本巡逻船警告后，于11时45分驶入日本领海，进入外侧的毗连区。日本海保总部称，这是包括毗连区在内，连续32天在尖阁诸岛附近发现中共船只。
 
-数据分析发现，新冠疫情对30岁以下年轻人的生育影响最大。这一年龄组本就处于学习、就业、生活成本严重内卷的压力下，加之多数年轻人高喊“躺平”，仅仅维持最低限度的生存，其生育意愿大幅降低。
+新闻链接：
 
-评论人士表示，中共国内的经济现状日益悲观，这导致中共国内的出生人口数量和生育率双双创下历史新低，中共国的人口负增长或将马上出现。
+[https://china.kyodonews.net/news/2021/11/36ccf4891ca8.html](https://china.kyodonews.net/news/2021/11/36ccf4891ca8.html)
 
-新闻链接：[https://xw.qq.com/cmsid/20211118A09PL500?f=newdc](https://xw.qq.com/cmsid/20211118A09PL500?f=newdc)
+[https://china.kyodonews.net/news/2021/11/0aa79f933336-4.html](https://china.kyodonews.net/news/2021/11/0aa79f933336-4.html)
 
-总编：Irene木木 编辑：Kathy文艺
-
-校对/发稿：小小安
+总编：文特 校对/发稿：小小安
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov.jpg)
 
@@ -43,9 +39,7 @@
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-1.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2.png)
 
 
 
