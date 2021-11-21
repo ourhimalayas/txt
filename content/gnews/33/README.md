@@ -2,109 +2,40 @@
 ---
 
 
-## 喜联储是中心化的行政体制
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682537/)
+## 墙内要闻汇编 11月21日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1682674/)
 
-[https://gtv.org/video/id=6199cfa2e6900076612dcd75](https://gtv.org/video/id=6199cfa2e6900076612dcd75)
+#### 素材：东京樱花团｜GNEWS组
 
-郭文贵
-Miles Guo
+![](https://assets.gnews.org/wp-content/uploads/2021/11/墙内1121.png)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1120/20211120123511374.webp)
 
-告诉你，所有全人类只要是货币都是中心化的
-I tell you, all human beings’ currency are all centralized
+1、[**王小洪又添一职 20大前习近平加紧收缴刀把子**](https://www.aboluowang.com/2021/1121/1674366.html)
 
-只要是货币就是中心化，数字货币就是去中心化的，也有中心化的
-As long as the currency is centralized, the digital currency is decentralized, and there is also centralized
+王小洪接任中共公安部党委书记后，又担任中央政法委委员。专家分析，习近平正在二十大前加紧收缴“刀把子”，王小洪是习的亲信，他很可能在二十大接任政法委书记。习近平主政后，王小洪在河南省公安厅任职一年半后，出任北京市副市长、公安局局长和党委书记。2018年3月，升任中共公安部党委副书记、分管日常工作的副部长（正部长级），是中共中共十九届中央委员。
 
-你们要意识到，喜联储它是中心化的行政体制
-You have to realize that Himalaya Reserve is a centralized administrative system
+2、[**中国资金通过加密货币流入日本**](https://www.aboluowang.com/2021/1120/1674089.html)
 
-它的价值太大了，就是一个去中心化的币
-Its value is too large, it is the decentralized coin
+根据《朝日新闻》11月11日的报道，东京国税局在调查企业资金流水的过程中，发现一家日本摄影公司开设了虚拟货币交易账户，接受从中国发来的虚拟货币兑换成日元，在截至2019年3月的三年时间内总计接受270亿日元（2.35亿美元）的资金。在收取手续费后，这家日本公司代领剩余资金，然后根据三名中国投资者通过微信发送的指示进行投资，包括购买房产。
 
-但有人承担责任，这是为什么喜美元和世界要为此所震撼
-But someone takes responsibility, that’s why H dollar make the world so shocked by it
+3、[**李克强向企业界“哭穷”：经济下行 要爬坡过坎**](https://www.aboluowang.com/2021/1120/1674101.html)
 
-是完全一个去中心化的技术，数字化货币就是分散式账本
-It is a completely decentralized technology, and digital currency is the distributed ledger
+中共官媒报道，李克强11月19日在北京主持召开经济形势专家和企业家座谈会，他在座谈会上称，中国经济出现新的下行压力，经济平稳运行面临很多挑战。因此要做好跨周期调节，推动经济“爬坡过坎”。他表示，采取针对性措施加强经济运行调节，缓解大宗商品价格上涨向下游中小微企业传导的压力。李克强还提到，支持发展跨境电商、海外仓等外贸新业态；发挥自贸试验区等开放平台作用，更大力度吸引外资。
 
-不是中心化的账本，谁也拿不走，谁也偷不走，谁也不可监控
-it is not a centralized ledger, no one can take it away, no one can steal it, and no one can monitor it
+4、[**广州血拆！一人跳楼身亡 另一人也要以死抗争**](https://www.aboluowang.com/2021/1121/1674219.html)
 
-而且是全球化的，说当然是中心化的
-And it’s global, of course it’s centralized
+阿波罗网记者李雨菡报道，广州血拆逼死人命。11月19日，广州市知行西路三洞大道东，强拆民房。当日上午8时15分，一名住户被逼得跳楼身亡！11时，另一住户坐在屋顶欲跳楼抗议！
 
-但是这件事如果有了问题，谁负责任，有一个中心化的责任，在那呢
-But if there is a problem, say responsible, there is a centralized responsibility, where is it?
+5、[**中国教培三巨头濒死 海外求生前景难料**](https://www.aboluowang.com/2021/1121/1674275.html)
 
-叫行政中心化，但是，只要是喜联储，它现在发行把喜币变成中心化纸币
-It’s called administrative centralization, but as long as it is the Himalaya Reserve, it is now issuing to turn H-Coins into centralized banknotes
+中国财经媒体“界面新闻”报道，新东方一位高管表示，到年底裁员人数将超过4万人。《北京商报》10月走访了教培行业从业人员，他们有的转行，有的考研。8至9月间，华尔街英语、绿光少儿教育、巨人教育等老牌教育机构相继宣布破产，还有多家教育机构跑路，引发维权抗议事件。大陆企业信息查询网站“天眼查”数据显示，截至9月1日，今年已有16万家教培相关机构注销或吊销。《中国基金报》7月27日说，教育三巨头在7月23日和26日两天蒸发将近1300亿元人民币（约合201亿美元）。
 
-它印出来纸币来，就叫中心化的，他们早就在准备中会发纸币的
-When it prints out paper money, it is called centralized, they will issue paper money, it is in preparation for a long time
+6、[**中共中央上紧箍咒 新誓词显示当局不安 绑架百姓**](https://www.aboluowang.com/2021/1121/1674202.html)
 
-甚至是金币都会发，就是什么，你拥有去中心化的资产
-Even gold coins will be issued, what is it, you own decentralized assets
+中共公安部日前修订了警察誓辞，从原来的“做到对党忠诚”，改为“拥护中国共产党的绝对领导”；从“维护社会大局稳定”，改为“捍卫政治安全”。为什么中国人几千年来要人发了毒誓才肯信，因为发了毒誓是要应验的。中共新改加上的毒誓正是验证了退出中共党、团、队，也就是“三退”的重要性。你不退，你就是党的人，你发的毒誓就会应验，到那时，谁也没办法，还是需要你自己把自己给救了。
 
-在某种条件下，又给你中心化性可衡量的资产，
-Under certain conditions, it gives you centralized and measurable assets
-
-一定不是印的钞票，它是可兑现的，
-It must not be the printed banknote, it is cashable
-
-比如说你拿了一万个币，印成了一个一万币的券
-For example, you took ten thousand coins and printed a ten thousand coins notes
-
-这一万个币券里面就你可以拿回来，你也可以拿走一万币和拿走等同一万币的资产
-You can take back this ten thousand currency notes, you can also take away ten thousand coins and take away assets of the same ten thousand coins
-
-包括大家现在最担心，也是最想的，未来提现你们想到的
-Including what everyone worries about now, and what you think about most that cash withdrawal in the future
-
-比如说用的金币，它发行，它一定不是全流通
-For example the circulated gold coin, it issued that it must not be fully circulated
-
-只给一些一定的客户，和大家有级别使用有选择使用的那些金币
-It is only for certain customers, and everyone has the level to use and choose to use those gold coins
-
-大家可以拿到，就是任何情况下，你可以完全中性化的交易
-Everyone can get it, that means under any circumstances, you can completely neutralized the transaction
-
-就草根小哥手滑手的，我给QMAY中心化的币
-As for Caogen brother gives QMAY centralized currency
-
-拿到手就是你的一个完全去中心化的技术，
-Using a completely decentralized technology
-
-管理体制和未来中心化的流通的币，区块链它厉害的
-The management system and the future centralized circulation of the coins, the blockchain is powerful
-
-叫全球的，谁也不可查，不可控，去账本化，去中心化的账本化管制叫区块链
-It’s called global transactions, no one can check it, uncontrollable, de-booking, decentralized book ledger control is called blockchain
-
-区块链就是全球账本化，没有中心化的账本，不可控的
-Blockchain is a global ledger, without a centralized ledger, it is uncontrollable
-
-* * *
-
-Date:11/19/2021
-原视频标题: 喜联储是中心化的行政体制
-Himalaya Reserve is a centralized administrative system
-原视频日期：2021/11/17
-原视频链接 [https://gettr.com/post/ph99osbf29](https://gettr.com/post/ph99osbf29)
-任务编号：KC272（2930）
-视频时间段 : 0:00-2:19
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：东京樱花团 / 東洋武士
+发布：东京樱花团 / 野猫*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,21 +2,56 @@
 ---
 
 
-## 中共国内儿童和青少年疫苗接种现状
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1682576/)
+## 原来拿到大陆居民身份证的台湾表妹李乔昕是个老戏骨
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1682693/)
 
-撰稿：自由战士
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture2-8.png)（图片来自网络）
-截止2021.11.21日下午16:00，中共国内的疫苗累计接种24.3亿剂，比起上日新增783.5万剂，目前每百人接种168.88剂，也就是说超过两剂的人群基本覆盖人口的70%左右，全部人群覆盖率达到了86.9%。这个数据根本没有能够迎来群体免疫和百姓的出行自由。大家知道在中共十六大召开前夕，各地迎来了一波全国范围的疫情爆发，这波疫情我们要追溯到9月11日的福建莆田市仙游县枫亭镇一小学2名学生阳性开始的两个多月的封城排查。但是经过这次事件后，就开始了全国部分地区相继出现感染 爆发，而且不约而同的都是儿童青少年感染。如此诡异的情况，我们下面来详细深入分析。
+据[台灣大牛(台灣寶島農場)@jackson66368924](https://twitter.com/jackson66368924)于[下午3:55 · 2021年11月21日](https://twitter.com/jackson66368924/status/1462328691737120768)发布的推文——
 
-首先，大家可以看到目前中共墙内的成年人的疫苗接种率已经接近100%，下一步的计划需要进一步推广接种范围，增加盗国贼控制的医药集团的财富搜刮，只能把接种年龄进一步下探。为此需要对大面积接种做好铺垫，因此就有了莆田和全国各地的学校感染事件。通过控制的新闻媒体对百姓心里防线进行一次全面打击，让大家首先接受，病毒已经开始感染未成年人。与此同时中共利用所谓的海外媒体，在墙内大量宣传，目前全球多国已经开始低龄儿童的疫苗接种计划，加上世界卫生组织同步背书宣传。整体达到了第一波的宣传目的。
+中共推出了台湾居民身份证………
 
-其次，在学校推广，通过国家教育机关，层层下达硬性任务，最终任务指标安排到每个教师和班主任的头上，以前安排作业和家长沟通的微信群，就立即变成了监督疫苗接种进度的群。班主任每天一早的 第一条信息就是催促未接种的孩子尽快安排接种，然后后面就是接种后的排名情况，甚至有的学校居然还发奖状来鼓励孩子尽快接种。中共利用教师这个伟大受人尊敬的职业开启了屠杀模式。令人发指。
 
-最后，在威逼利诱和恐吓的情况下，家长为了孩子在学校不被歧视或者退学，被逼去接种了疫苗，但是在网上随后出现了大批异常反应，有的接种后，晚上开始高烧不退；有的孩子一直流鼻血，心肺严重受损，几乎失去自理能力；有的甚至接种后咳嗽发烧，然后在10天后直接去世 。这些异常的反应刚刚在媒体发声出来很快即被删除消息。当灾难来临的时候，就是一个家庭的彻底破灭。中共不灭，灾难不止。为了自己和孩子的未来，认清病毒和疫苗，这个是被邪恶中共一手策划的人类灾难。不要因为自己的无知葬送了整个家庭和孩子的 未来。
 
-发布：Runaway
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-1.jpg)
+> 中共推出了台湾居民身份证………🙄 [pic.twitter.com/TiY0s6aZpw](https://t.co/TiY0s6aZpw)
+> — 台灣大牛(台灣寶島農場) (@jackson66368924) [November 21, 2021](https://twitter.com/jackson66368924/status/1462328691737120768?ref_src=twsrc%5Etfw)
+
+
+
+对照这条视频可以查到的墙内对应的视频是[*台湾*女孩晒出新办的*身份证*，拿在手中激动不已：看谁还敢欺负我！](https://haokan.baidu.com/v?pd=wisenatural&amp;vid=16796058277692176009)(来源：好看视频 发布时间：2021年11月20日)
+
+李乔昕究竟何许人也？据[百度百科——李乔昕](https://baike.baidu.com/item/%E6%9D%8E%E4%B9%94%E6%98%95/57989400?fr=aladdin)［2021年7月1日，李乔昕刚好到浙江杭州工作，当晚她在[钱塘江](https://baike.baidu.com/item/%E9%92%B1%E5%A1%98%E6%B1%9F/389131)边，欣赏了一场颇为壮观的灯光表演。那天，她看到广场上绚丽的灯光和欢乐的人群，特别激动，因此有感而发，在[短视频](https://baike.baidu.com/item/%E7%9F%AD%E8%A7%86%E9%A2%91/20596678)平台上激动地赞叹道。她在画面里展示了杭州钱塘江壮观的夜景，讲述了大陆的防疫情况，并对着镜头向祖国表白：“这么好看的夜景，又是这么安全的一个地方，我觉得，此生不悔入[华夏](https://baike.baidu.com/item/%E5%8D%8E%E5%A4%8F/5823)！”
+
+李乔昕表示，起初拍摄视频时，她不是很有信心：毕竟不是专门学表演的，没有出镜经验。结果，通过去各地旅行、品尝各地美食，体验祖国大陆的风俗文化，她[切切实实](https://baike.baidu.com/item/%E5%88%87%E5%88%87%E5%AE%9E%E5%AE%9E/9986014)地感受到了大陆[日新月异](https://baike.baidu.com/item/%E6%97%A5%E6%96%B0%E6%9C%88%E5%BC%82/1540218)的发展，发现根本不需要“表演”，而是发自内心地赞叹祖国的[大好河山](https://baike.baidu.com/item/%E5%A4%A7%E5%A5%BD%E6%B2%B3%E5%B1%B1/53927)和[美味佳肴](https://baike.baidu.com/item/%E7%BE%8E%E5%91%B3%E4%BD%B3%E8%82%B4/1025979)。
+
+如今，“台湾表妹”短视频账号仅用半年时间，就收获了160多万粉丝，累计获得网友们2226万多次的点赞。李乔昕表示，未来她想更深入地体验大陆的生活，制作更多正能量的短视频，分享给两岸的年轻人，“我最大的目标是成为两岸交流的一种纽带”。
+
+李乔昕已经在[北京](https://baike.baidu.com/item/%E5%8C%97%E4%BA%AC/128981)接种完两剂[新冠疫苗](https://baike.baidu.com/item/%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97/24611354)，只需要出示[台胞证](https://baike.baidu.com/item/%E5%8F%B0%E8%83%9E%E8%AF%81/10584345)就能在当地社区接种，她评价“整个流程非常专业又很迅速”。］
+
+现在李乔昕的新浪微博[@李喬昕兒](https://weibo.com/n/%E6%9D%8E%E5%96%AC%E6%98%95%E5%85%92) 已经404，但是李乔昕的表演还在——[**台湾小哥声音超好听 *****李乔昕*****直言自己“太兴奋”\_腾讯视频**](https://www.baidu.com/link?url=gEapHnVDzhe5tFnAApHakg3n_Jioztt50KR3xtbO4SUrMzz_X0GlAPwZ42Vb4bVobJZag4OPE0IOwMr2tCxA3a&amp;wd=&amp;eqid=dcacb90600146b9f00000002619a1606)（2019年5月18日）
+
+当年大清朝灭亡前废尽心机切了小弟弟入宫的太监们在后清时代再也安不上那根小弟弟了，这位精神上已经自宫的台湾表妹在后共时代还能不能挺起胸膛，倒也真的很令人生疑。
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago；
+
+（文章内容仅代表作者个人观点）
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
