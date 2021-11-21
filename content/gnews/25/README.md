@@ -2,30 +2,162 @@
 ---
 
 
-## 【小雨专栏】在路上043——风花雪夜篇
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1681442/)
+## 喜币的优势绝对是现今区块链发展的方向
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681477/)
 
-加拿大温哥华扬帆农场 小雨
-![](https://assets.gnews.org/wp-content/uploads/2021/11/专栏图.png)
-穷人家的孩子早当家，这句话好像用在我们一帮死党身上不是太合适，虽然大家都穷，但在我们眼里好像除了吃就是玩，从来没有为自己或家庭生计担心发愁，永远都是没心没肺在一起疯狂起哄。
+[https://gtv.org/video/id=61992de2e6900076612d8985](https://gtv.org/video/id=61992de2e6900076612d8985)
 
-记得我们平时最刺激的活动就是打猎，说是打猎其实就是捕鸟。阿弥陀佛，千万不要滥杀无辜，大家听了也要引以为戒，这里只是就事说事。八十年代初期国内还没有完全禁止枪枝，家里可以拥有气枪、鸟铳（chòng）什么的。我们是充分发挥自己动手丰衣足食，鸟铳基本上是依葫芦画瓢，东拼西凑自己制作，现在想想几个十几岁的小孩在那样简陋的条件下能自己做鸟铳，我都有点佩服自己。看来凡事只要真心喜欢了，并踏实钻进去，没有克服不了的。
+**郭文贵
+Miles Guo**
 
-好不容易我们几个折腾出来一把比较原始的鸟铳，油油的枪托，长长的枪管，幽深的枪口，每次都是从枪口放火药进去，然后倒入铁砂，用一段钢棍来回颠倒着压实火药，最后用轻薄的纸张再压上以防倒流，枪后撞针地方还要准备“引星”，“引星”其实也是火药做的。一套流程下来，小八做的行云流水，他的最大梦想是长大当兵做个神枪手，后来讽刺的是初中没毕业就去当了保安，天天被媳妇儿骂地回不了家。哎，人生无常，挨骂常常；小八小八，快发快发！这里祝福发小们都过上好日子！
+(区块链专家 )他说，当区块链技术
+He (blockchain expert）said that when blockchain technology
 
-通常我们都是冬天捕鸟，不是在白天，反而是在晚上，晚上鸟儿成群结队落在小树林抱团取暖。我们一般三四个人一起行动，有拿灯的，有拿装备的，小八负责扛枪打鸟；首先深夜悄悄潜入林中，突然用灯强光照着在枝头睡觉的鸟群，鸟群一般都静静不动，也有机敏地马上飞跑；这时小八气定神闲地架着把式，我们所有人屏息凝视，随着一声枪响，我们几个头顶一团白烟浮起，鸟群簌簌落下。阿弥陀佛，造孽啊造孽，罪过罪过！现在想起儿时的无知都是无地自容。
+在2020年年底之后
+after the end of 2020
 
-记得有一次，还是我们几个扛枪夜游小树林，踩着枯枝败叶沙沙做响，伴着啸啸北风簌簌发抖，尤其树梢在寒风中呜呜作响，搞的人不寒而栗，我是拿灯的还必须胆战心惊走在前面。也不知道什么原因，那天晚上大家几乎找不到鸟群，就开始左顾右盼发牢骚；忽然有白色的东西像个蝴蝶一样飘飘忽忽落在老妖身上（我们另一个小伙伴负责拿装备，足智多谋），我是拿灯的自然第一个发现；老妖半信半疑地去肩膀上摸索，还真摸到一个东西，定睛一看，原来是两个叠在一起的白纸做的冥币，外圆内方那种，一般是做白事送殡才用；所有人吓得顿时目瞪口呆，连扛枪的小八也哆哆嗦嗦故作镇定地再次问老妖，你确定是从你身上拿的？大冬天晚上寒风啸啸，可怜的老妖满头大汗吓得话都说不出来，牙齿哆嗦着点头确定。我们几个看着老妖扔在地上的冥币，面面相觑，小八也扛枪四顾心茫然了。这时候发现开始下雪了，还是很大片那种鹅毛大雪，不知道谁战战兢兢提议说下雪了，我们还是撤了吧，大家都强颜镇定说也只能如此。
+在逐渐普及之后
+gradually became popular,
 
-由于要打灯，自然还是我走在前，大家慌不择路往回赶。又是突然，又是我发现，远远望见在要回去的必经之路方向，有一个火苗又是飘飘忽忽，在雪夜里伴着风声忽明忽暗；几个人快被折腾懵了，快被吓傻的老妖都快哭了，呜咽着说‘不会是鬼火吧’，大家泄恶气似地一起看着我，好像是我引来的一样；因为回程只能走那条路，所以小八就胆战心惊地扛着鸟铳指着火苗方向，我们几个亦步亦趋地跟在后面朝着火苗方位挪。互相壮着胆总算到了跟前，才发现原来是个新坟，花圈、供品都是新的，尤其是花圈被风吹得哗哗作响，坟头纸糊的纸人随风一摇一摇的，远远望着很是瘮人，坟前烧了一堆供纸，其中火苗忽隐忽现；后来推测应该是白天办了丧事，有些东西没有烧尽，晚上风吹又复燃，由于白天办丧事吹吹打打，自然没有鸟儿在这里落脚了，至于冥币肯定是风吹的，又好死不死刚好落到倒霉的老妖身上，无巧不成书，这一切都让我们几个倒霉蛋全碰上。好一个风花雪夜，由于太受刺激了，我觉得自己的小心脏都快崩溃了，大家也好长时间都不敢再走那条小路。
+它基本上不会让人相信银行
+it basically would make no people trust the bank
 
-事出反常必有妖，凡事一定有因果规律，有的是我们有无能力分析辨别；在爆料革命的具体事务中，我们会遇到形形色色的不可理喻，这个时候就更要战友们拥有独立的思考能力，有一个基本事务常识，不人云亦云，更不能乱说添乱；紧跟七哥，紧跟唯真不破，从实际出发，从具体行动出发，在行动中机动调整，在调整中明确自我，也只有这样才是真正爱自己。
+他说如果在区块链得到应用
+He said if the blockchain has been applied
 
-喜欢七哥的神游直播，掏心掏肺，娓娓动听，唯真不破。分享一段儿时风花雪夜鬼故事，纪念少时荒唐的如梭岁月，成长的经历更是让人坚定善念，阿弥陀佛！
+记住啊，要得到应用
+Remember, it has to be applied
 
-（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+特别是它的流通没有层次、没有阶级
+Especially when its circulation has no hierarchy or class,
 
-编审：文敏      发布：文敏
+普遍性、支付性达到的时候
+and when its universality and payment availability is reached
+
+没有任何人再相信政府和相信银行
+There would be no one to trust the government and the bank anymore
+
+2021年我们将看到去中心化存储、去中心化金融
+In 2021, we would see decentralized storage and decentralized finance,
+
+和非政治性货币的飞速发展
+and the rapid development of non-political currencies
+
+我认为表现最好的将是加密货币和比特币、以太坊
+In my opinion, the best performers would be cryptocurrencies and Bitcoin and Ethereum
+
+然而我们希望继续在2022年看到成功
+However, we hoped to continue to see success in 2022
+
+以太坊的扩展范围需要在2021年得到解决
+Ethereum’s extended scope needed to be resolved in 2021
+
+但是下一个专家说得很清楚
+But the following expert made it very clear
+
+不能流通的虚拟货币
+Virtual currencies that could not be circulated
+
+几乎都会被淘汰
+would almost always be eliminated
+
+在支付普遍性情况下的货币
+In the case of universal payment currency
+
+和有稳定性的货币一定是世界的金融之王
+and stable currency must be the king of finance in the world
+
+这就是人类的劳动和时间换来的生产结果
+and those were the results that exchanged from human’s labor and time
+
+不应该被政府垄断
+It should not be monopolized by the government
+
+不应该被一个某个政府所定价
+It should not be priced by a certain government
+
+区块链的到来
+The arrival of the blockchain
+
+把医学、科技、想法、知识全变成了
+has turned medicine, technology, ideology, and knowledge
+
+端到端的、公平的、去第三方去中心化的衡量资产的标准
+into end-to-end, fair, and third-party decentralized standards for measuring assets
+
+这是多么伟大呀
+How great this is
+
+最重要的事情
+The most important thing is that
+
+其中这仨哥们都说到
+among what these three buddy friends have said,
+
+全世界所有区块链的核心要点
+all the key points of all blockchains in the world
+
+全被喜联储给抓到了
+have been in possession of the Himalaya Reserve
+
+没有支付的货币一定没有未来，都得滚蛋
+Currency without a payment system will certainly have no future and would be eliminated
+
+你别忘了
+Please don’t forget
+
+IBM是整个区块链的核心要素
+IBM is the core element of the entire blockchain
+
+IBM的电脑里的有一种语言说得非常清楚
+And there is a language in IBM computers that speak very clearly that
+
+所有的区块链的最终的存在不存在的结果和价值
+the final existence and value of all blockchains
+
+衡量在你是否遵守区块链的去账本化的加密技术
+and the measurement of whether you comply with the de-booking encryption tech-nology of the blockchain
+
+就是保密安全
+is confidentiality and security
+
+咱们喜币牛就牛在这
+This is the extraordinary thing about our HCoin
+
+它能流通，是在全球啥都能买
+It can be circulated, and you can buy anything with it globally
+
+不但如此
+Not just this
+
+我可以稳定欧元
+I can stabilize the euro (with the HCoin)
+
+我想稳定谁稳定谁
+I can stabilize whoever I want (with the HCoin)
+
+所以咱的喜币牛的不是一般了
+Therefore, our HCoin is not just average, its extraordinary
+
+**原视频链接:** [https://gettr.com/post/pgywfk3cdf](https://gettr.com/post/pgywfk3cdf)
+
+Date: 11/14/2021
+原视频标题: 喜币的优势绝对是现今区块链发展的方向
+The advantage of HCoin is definitely the direction of current blockchain develop-ment
+原视频日期：2021/11/14
+任务编号：KC270（2897）
+视频时间段 : 0:00-2:17
+
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译： 洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/21/2021 3:06 AM (UTC)`
+
+11/20/2021 [3rd Anniversary of 1120] Steve Bannon: By working closely with the Whistleblowers’ Movement, the most importantly work of the Rule of Law Foundation (ROLF) is to help get more people out of Communist China to help the West understand the evilness of the CCP and show the world why the Chinese need rule of law<br/><br/>11/20/2021【1120三周年纪念】班农先生：法治基金最重要的工作是通过爆料革命紧密合作，从中共国解救更多的人出来，从而让西方认清中共的邪恶并告诉世界中国人为什么需要法治<br/>
+![img](https://media.gettr.com/group41/getter/2021/11/21/03/4923a262-19eb-48cc-6415-76e34c619a9f/out.jpg)
+
+---
+
+`@miles 11/21/2021 2:59 AM (UTC)`
+
+11/20/2021 [3rd Anniversary of 1120] Steve Bannon: I come from American Lao Baixing, and my father instilled in me the value of keeping fighting. So, I will never stop fighting, and I will help President Trump rewin the presidential election and assist the Chinese people in their fight for freedom!<br/><br/>11/20/2021 【1120三周年纪念】班农先生：我是来自美国的老百姓，我父亲教给我的价值观就是坚持战斗， 所以我不会停止战斗，而且我将帮助川普总统再次赢得总统大选并将协助中国人为自由而战！<br/>
+![img](https://media.gettr.com/group12/getter/2021/11/21/02/59/6e3bdc28-1127-c571-5e75-6d2d8e8cb249/out.jpg)
+
+---
+
 `@miles 11/21/2021 2:51 AM (UTC)`
 
 11/20/2021 [3rd Anniversary of 1120] Steve Bannon: People are attracted to cryptos such as the Himalaya Coin due to the collusion between the Western corrupt elites and the CCP and their mismanagement of the economy; the CCP’s real estate is about to collapse, and I hope everyone to learn more about cryptos, which are our future<br/><br/>11/20/2021【1120三周年纪念】班农先生：人们对喜币等加密货币趋之若鹜是因为西方腐败的精英跟中共勾结以及他们在经济上的胡作非为；面临即将崩溃的中共房地产，希望大家多去了解加密货币，它是我们的未来<br/>
@@ -289,20 +303,6 @@ An orthopedic surgeon from Wisconsin described the serious side effects after hi
 
 11月17日：七哥在茅屎坑里渡过的岁月，心中有万佛万神．还能与魔鬼打交道……最重要的事情要实现自己的目标……在这个过程当中能保持洁身自重！醉而不乱……分享成功与利益，而不乱法．失,,德！才是考验一个人的本性……是否能走向成功最关键的根本性基础！
 ![img](https://media.gettr.com/group7/getter/2021/11/17/18/6ed145d8-2030-22e9-2122-7362d70543ad/0c4958bc5c519665391fb2e49731cd94.jpg)
-
----
-
-`@miles 11/17/2021 6:19 PM (UTC)`
-
-11月17号：只有广交朋友．行走万里路．而且这是一个长期循序渐进的过程……才具备辩真假．识善恶的真实的能力……
-![img](https://media.gettr.com/group44/getter/2021/11/17/18/18/5e302dcc-12de-537e-ffb1-3086020f42fd/e8cd6b4e41a0f275d80cf60252c4ee67.jpg)
-
----
-
-`@miles 11/17/2021 1:04 PM (UTC)`
-
-2021年11月17日文贵大直播：再谈全球疫苗灾难；习拜视频会议信息；喜联储结构再分析；秦刚及美欧日动向
-![img](https://media.gettr.com/group20/origin/2021/11/17/13/085c2b12-c30c-5d1b-2d2b-4df9bd2859d6/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
