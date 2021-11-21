@@ -2,39 +2,34 @@
 ---
 
 
-## NIH 主任要求将 COVID 的“阴谋家”绳之以法
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1683504/)
+## 盖特新功能“Instagram导入”开始内测
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683511/)
 
-作者：泰勒·杜登
+作者：香草山农场 – 文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月17日，郭文贵先生发布盖特消息称，盖特新功能——“Instagram导入”已经进入内部测试阶段。
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/191121collins1-edited.jpg)图片来源：网络
-美国国立卫生研究院 (NIH) 主任弗朗西斯·柯林斯 (Francis Collins) 愤怒地呼吁将任何在网上传播有关 COVID-19 的“错误信息”的人“绳之以法”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-17.jpeg)
 
-“阴谋在这里获胜。 真相正在失去。 柯林斯告诉华盛顿邮报，这是对我们社会似乎正在旅行的方式的一个非常严重的控诉。
+用户在注册盖特新账户时，可以直接选择Instagram同名账号导入。盖特现有用户，如果想将Instagram账号导入盖特，可以将所属Instagram用户名留言给盖特工程师，要求导入账号。
 
-这位官僚引用了针对安东尼·福奇博士的大量愤怒信息，柯林斯似乎认为他是无可指责的，他要求查明应对此类行为负责的人并“将其绳之以法”。
+Instagram是脸书旗下的社交媒体平台，和脸书使用同样的“言论审查”政策，不允许用户表达与其不同的政治观点。与其相异的政治观点的图片和视频会遭到封禁，甚至会因此被封号。盖特与这些社交媒体平台相反，没有“言论审查”，是一个言论自由的社交媒体平台，用户可以畅所欲言，自由的表达自己，因此吸引大量热爱自由的人进驻。盖特开发这个新功能，为盖特用户提供了更全面的服务，更方便的体验。同时，吸引更多的人加入到盖特的平台中来，成为盖特的用户。
 
-文章引用了这样一个“错误信息”的例子，即福奇参与了美国国家过敏和传染病研究所（NIAID）对狗进行的野蛮实验，尽管这种残忍行为实际上是在福奇的领导下发生的。
+参考链接：[https://gettr.com/post/ph6vj1ba87](https://gettr.com/post/ph6vj1ba87)
 
-虽然柯林斯没有具体说明他所说的“绳之以法”是什么意思，但辉瑞首席执行官阿尔伯特·布尔拉此前曾断言，散布有关 COVID 疫苗的虚假信息的个人是“罪犯”，他们“实际上已经夺去了数百万人的生命”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-这是一个有趣的基准，因为曾经认为 COVID 疫苗没有阻止接种疫苗的 COVID 传播被认为是错误的，现在这是一个非常明显的事实。
+总编：Ivy001
+编辑：Ivy001
+校正/发稿：谐趣园
 
-关于 COVID-19 的“错误信息”的构成是任何人的猜测，因为有几件事被证明是合理的或真实的，例如武汉实验室背后的病毒起源，曾经被认为是“错误信息”。
-
-似乎美国国立卫生研究院、安东尼·福奇或辉瑞认为“错误信息”的任何内容都将成为标准。
-
-正如我们之前强调的那样，英国也在努力为那些质疑制药公司生产的产品的安全性和有效性的人打上品牌，这些公司一直受到无数历史丑闻的困扰。
-
-被描述为“打击互联网上滥用和仇恨的旗舰立法”的在线安全法案显然将包括一项规定，将“散布他们知道不真实的虚假信息的反吸毒者”监禁两年。
-
-来源链接：[https://t.co/0XKZDNK0qe](https://t.co/0XKZDNK0qe)
-
-编辑/发布：LILY
-
-20211121
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

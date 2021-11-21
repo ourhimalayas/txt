@@ -15,85 +15,85 @@
 
 ---
 
-### [犯罪毒品垄断联盟：FDA 拒绝在 2076 年之前发布辉瑞 Covid 疫苗数据](/content/gnews/1/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [“永不放弃” &#8211; 世界各地爆发针对政府 COVID 暴政的抗议活动](/content/gnews/2/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [当Hpay可以互相支付的时候](/content/gnews/3/README.md)
+### [斯科特·莫里森抨击各州的疫苗强制令：“退后一步”](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [DC大中华时事： 中方决定将中立两国外交关系降为代办级](/content/gnews/4/README.md)
+### [犯罪毒品垄断联盟：FDA 拒绝在 2076 年之前发布辉瑞 Covid 疫苗数据](/content/gnews/2/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [“永不放弃” &#8211; 世界各地爆发针对政府 COVID 暴政的抗议活动](/content/gnews/3/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [当Hpay可以互相支付的时候](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [DC大中华时事： 中方决定将中立两国外交关系降为代办级](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [银河快讯: 日本首相将审查财政重建目标；日中韩领导人会议无望在年内举行](/content/gnews/5/README.md)
+### [银河快讯: 日本首相将审查财政重建目标；日中韩领导人会议无望在年内举行](/content/gnews/6/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [青蒿趣谈](/content/gnews/6/README.md)
+### [青蒿趣谈](/content/gnews/7/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [维也纳万人游行反对封锁措施](/content/gnews/7/README.md)
+### [维也纳万人游行反对封锁措施](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [伊利诺伊州养老金缺口超过 5000 亿美元，现在每个家庭的平均债务负担为 110,000 美元](/content/gnews/8/README.md)
+### [伊利诺伊州养老金缺口超过 5000 亿美元，现在每个家庭的平均债务负担为 110,000 美元](/content/gnews/9/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [DC每日热点1121](/content/gnews/9/README.md)
+### [DC每日热点1121](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美打造印太新新经济框架向中共施压](/content/gnews/10/README.md)
+### [美打造印太新新经济框架向中共施压](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [班农先生和郭先生回顾1120新闻发布会和法治基金法治社会成立](/content/gnews/11/README.md)
+### [班农先生和郭先生回顾1120新闻发布会和法治基金法治社会成立](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [继欧洲议会、德国和美国之后 英国也考虑外交抵制北京冬奥会](/content/gnews/12/README.md)
+### [继欧洲议会、德国和美国之后 英国也考虑外交抵制北京冬奥会](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [中共国因台湾问题下调与立陶宛的外交关系](/content/gnews/13/README.md)
+### [中共国因台湾问题下调与立陶宛的外交关系](/content/gnews/14/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共正在加剧21世纪毁灭整个民族的方法](/content/gnews/14/README.md)
+### [中共正在加剧21世纪毁灭整个民族的方法](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [喜币在迪拜买房的意义](/content/gnews/15/README.md)
+### [喜币在迪拜买房的意义](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [GTV自动多语言字幕功能在1120大直播中应用](/content/gnews/16/README.md)
+### [GTV自动多语言字幕功能在1120大直播中应用](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [我们叫新中国联邦](/content/gnews/17/README.md)
+### [我们叫新中国联邦](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国老百姓的3个不允许](/content/gnews/18/README.md)
+### [美国老百姓的3个不允许](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [盖特新功能“Instagram导入”开始内测](/content/gnews/19/README.md)
+### [盖特新功能“Instagram导入”开始内测](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [NIH 主任要求将 COVID 的“阴谋家”绳之以法](/content/gnews/20/README.md)
+### [NIH 主任要求将 COVID 的“阴谋家”绳之以法](/content/gnews/21/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [HPay上线，喜币开启价值，等待3年就是人生赢家](/content/gnews/21/README.md)
+### [HPay上线，喜币开启价值，等待3年就是人生赢家](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [原中共解放军总参谋长曾欲揭露中共的秘密军事项目](/content/gnews/22/README.md)
+### [原中共解放军总参谋长曾欲揭露中共的秘密军事项目](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [中共六中全会三大内容](/content/gnews/23/README.md)
+### [中共六中全会三大内容](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文化大革命创新版——坚持皇帝制](/content/gnews/24/README.md)
+### [文化大革命创新版——坚持皇帝制](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [背叛 betray](/content/gnews/25/README.md)
+### [背叛 betray](/content/gnews/26/README.md)
  ` 骄子`
 
-### [解读六中全会的10个坚持——锁国独裁](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共房地产就是奴役中国人的最佳工具](/content/gnews/27/README.md)
+### [解读六中全会的10个坚持——锁国独裁](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [美国北部、西部各州出现 COVID-19 病例激增](/content/gnews/28/README.md)
