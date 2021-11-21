@@ -2,108 +2,90 @@
 ---
 
 
-## 喜联储是中心化的行政体制
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682537/)
+## 2021-11-14《医学视角》栏目第十九期 直播精要 乙酰半胱氨酸及褪黑色素在新冠防治中的应用
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1682572/)
 
-[https://gtv.org/video/id=6199cfa2e6900076612dcd75](https://gtv.org/video/id=6199cfa2e6900076612dcd75)
+**主讲**：纽约香草山医疗部 – 文恩  麦可
 
-郭文贵
-Miles Guo
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
 
-告诉你，所有全人类只要是货币都是中心化的
-I tell you, all human beings’ currency are all centralized
+记录：纽约香草山医疗部 – 爆料粉 清照
 
-只要是货币就是中心化，数字货币就是去中心化的，也有中心化的
-As long as the currency is centralized, the digital currency is decentralized, and there is also centralized
+**新冠病毒的结构模型**：包括S1部分和S2部分，文恩战友在节目中结合图片，形象的讲解了病毒的结构，有兴趣的战友可以到直播节目的24:32-29:22处收听，这里不多做赘述。
 
-你们要意识到，喜联储它是中心化的行政体制
-You have to realize that Himalaya Reserve is a centralized administrative system
+**新冠病毒准备进入细胞**（节目中29:22-38:04处）：ACE2受体优先和S1亚极上的识别片段结合，后在细胞膜表面表达TMPRSS2分子，此分子可以在识别的同时将S蛋白的S1和S2之间的铰链切掉，切割后，把S1带走，暴露出S2亚极，S2结构中经过氨基酸构型的变化，可将构型扭转，形成铰链结构，把SARS2牢牢地与人体细胞结合在一起。两个膜融合后各自包含物质可相互沟通，病毒中的RNA序列进入到宿主细胞。
 
-它的价值太大了，就是一个去中心化的币
-Its value is too large, it is the decentralized coin
+伊维菌素可以牢牢的占据人体细胞的ACE2受体，使之无法与病毒S1识别片段结合，从而阻止病毒细胞膜与人体细胞膜融合，从而起到抗新冠病毒的作用。抗雄性激素的使用机理是， TMPRSS2分子依靠雄性激素营养，以促进其切割作用从而使S1下降与人体细胞相结合，使用抗雄性激素可以削弱TMPRSS2分子的切割效能，从而阻止病毒与人体细胞相结合来起到抗新冠病毒的作用。所以此两种药物均为ICU内治疗新冠病毒的关键用药。有一些讲座提到，如果重症新冠病人如果应用其它药物都无效，需要应用抗雄性激素。
 
-但有人承担责任，这是为什么喜美元和世界要为此所震撼
-But someone takes responsibility, that’s why H dollar make the world so shocked by it
+**对抗新冠病毒进入人体细胞的两个步骤（切割、结合）**同时可以抑制的复合用药效果最好，如：硫酸羟氯喹和伊维菌素的联合用药，也包括抗雄性激素与伊维菌素的联合，也可以达到同时拮抗上述两个步骤。
 
-是完全一个去中心化的技术，数字化货币就是分散式账本
-It is a completely decentralized technology, and digital currency is the distributed ledger
+**NAC**(N-ACETYLCYSTEIN)的传统用途：（节目44:00-51:30处）
 
-不是中心化的账本，谁也拿不走，谁也偷不走，谁也不可监控
-it is not a centralized ledger, no one can take it away, no one can steal it, and no one can monitor it
+- 乙酰半胱氨酸是 抗氧化剂谷胱甘肽的前身
+- 谷胱甘肽是人体内最强效的辅助剂，但其生成量，可随着我们的饮食品种和年龄的增长而降低。
+- 体内其它抗氧化剂，需要谷胱甘肽才得以发挥更持久强效的功效。
+- 可减低气管粘液粘稠度，容易咳出粘液。（减弱二硫键）雾化剂，口服剂中
+- 抗氧化作用，NAC可以通过减少氧化应激和随后的炎症来打破恶性氧化循环
+- 作为泰诺中毒的解药，急救室必备。NAC中胱氨酸与泰诺代谢一级产物结合消除对肝的毒性损害。口服或静脉，1天完成，否则肝损害需要移植。
 
-而且是全球化的，说当然是中心化的
-And it’s global, of course it’s centralized
 
-但是这件事如果有了问题，谁负责任，有一个中心化的责任，在那呢
-But if there is a problem, say responsible, there is a centralized responsibility, where is it?
+NAC在新冠防治中的机理：
 
-叫行政中心化，但是，只要是喜联储，它现在发行把喜币变成中心化纸币
-It’s called administrative centralization, but as long as it is the Himalaya Reserve, it is now issuing to turn H-Coins into centralized banknotes
+- NAC会抑制SARS-CoV-2的复制。NAC能够在细胞外清除ROS自由基、补充细胞内GSH（在衰老或免疫缺陷者的免疫细胞中，由于谷胱甘肽的减少，ROS增加，导致免疫反应失调）
+- 抑制细胞因子风暴和保护T细胞，从而减轻炎症和组织损伤
 
-它印出来纸币来，就叫中心化的，他们早就在准备中会发纸币的
-When it prints out paper money, it is called centralized, they will issue paper money, it is in preparation for a long time
 
-甚至是金币都会发，就是什么，你拥有去中心化的资产
-Even gold coins will be issued, what is it, you own decentralized assets
+N AC在新冠治疗中的用量，取自文献中的用药剂量推荐**（下图）**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-523.png)
+NAC的其它用途：
 
-在某种条件下，又给你中心化性可衡量的资产，
-Under certain conditions, it gives you centralized and measurable assets
+- 精神科领域OCD强迫症行为（拔头发、眉毛、刮伤皮肤、咬指甲），冲动型人格行为、暴力行为可1200mg BID
+- 皮肤健康：过敏性皮炎、牛皮癣、接触性皮炎、伤口愈合
 
-一定不是印的钞票，它是可兑现的，
-It must not be the printed banknote, it is cashable
 
-比如说你拿了一万个币，印成了一个一万币的券
-For example, you took ten thousand coins and printed a ten thousand coins notes
+**褪黑色素**的生理功能和产品：
 
-这一万个币券里面就你可以拿回来，你也可以拿走一万币和拿走等同一万币的资产
-You can take back this ten thousand currency notes, you can also take away ten thousand coins and take away assets of the same ten thousand coins
+- 由松果体分泌，可调节生物钟，在深夜分泌达高峰
+- 随着年纪增大而分泌减少，时差、熬夜使分泌紊乱或减少
+- 脑白金（以褪黑色素为主要有效成分）曾经被商业运作，变成高大上的产品
+- 作用于褪黑色素受体（在视网膜及垂体前部分泌），可帮助入眠（内源信号给各器官：是时候休息了），不一定能维持整晚的高质量睡眠
+- 是中老年失眠的一线用药，没有第二天脑雾现象。1毫克至10毫克，白天晒太阳可增加自身分泌，增强效果，建议使用长效型Extended Release ER
 
-包括大家现在最担心，也是最想的，未来提现你们想到的
-Including what everyone worries about now, and what you think about most that cash withdrawal in the future
 
-比如说用的金币，它发行，它一定不是全流通
-For example the circulated gold coin, it issued that it must not be fully circulated
+**褪黑色素在新冠病毒的作用：**
 
-只给一些一定的客户，和大家有级别使用有选择使用的那些金币
-It is only for certain customers, and everyone has the level to use and choose to use those gold coins
+麦可医生：褪黑色素的生理功能和产品：褪黑色素是我们自己的松果体分泌的，调节生物钟，在深夜里分泌达到最高峰。我们要准时睡觉，如果太晚了，就不太分泌了。随着年龄的增大而分泌减少，是中老年失眠的一线用药。
 
-大家可以拿到，就是任何情况下，你可以完全中性化的交易
-Everyone can get it, that means under any circumstances, you can completely neutralized the transaction
+褪黑色素在新冠病毒的作用：是一种有效的中性粒细胞髓过氧化物酶（MPO）抑制剂，有抗炎、抗氧化、抗细胞死亡和神经保护作用。
 
-就草根小哥手滑手的，我给QMAY中心化的币
-As for Caogen brother gives QMAY centralized currency
+麦可医生：我推荐的乙酰半胱氨酸NAC与褪黑色素都是在国内、外可以买到的药，而且剂量都是相符的。我为什么要同大家分享这两种药？是因为这两种药都是FLCCC医疗准则里推荐使用的药；建议大家应该在家里备有这两种药。
 
-拿到手就是你的一个完全去中心化的技术，
-Using a completely decentralized technology
+- **疫情期间医生的行为医德的讨论**
 
-管理体制和未来中心化的流通的币，区块链它厉害的
-The management system and the future centralized circulation of the coins, the blockchain is powerful
 
-叫全球的，谁也不可查，不可控，去账本化，去中心化的账本化管制叫区块链
-It’s called global transactions, no one can check it, uncontrollable, de-booking, decentralized book ledger control is called blockchain
+麦可医生：无国界巴西医生使用伊维菌素挽救佛州患者的例子。医生相信自己的判断，相信伊维菌素，因为这个药在巴西已经广泛使用，冒险治疗濒临死亡的病人。
 
-区块链就是全球账本化，没有中心化的账本，不可控的
-Blockchain is a global ledger, without a centralized ledger, it is uncontrollable
+在医疗系统，FDA、药厂、NIH、药典、治疗准则、医生开药、药剂师配药、护士发药、喂药，其中一环都有可能被告。医生的压力很大，60％－90％的美国医生是防御性行医。
 
-* * *
+**原视频链接**： https://gtv.org/video/id=61914788e7e770379235135b
 
-Date:11/19/2021
-原视频标题: 喜联储是中心化的行政体制
-Himalaya Reserve is a centralized administrative system
-原视频日期：2021/11/17
-原视频链接 [https://gettr.com/post/ph99osbf29](https://gettr.com/post/ph99osbf29)
-任务编号：KC272（2930）
-视频时间段 : 0:00-2:19
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+审稿：圣母院钟声
+编辑：圣母院钟声 
+发稿：圣母院钟声
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-5.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
 
  
 

@@ -2,35 +2,109 @@
 ---
 
 
-## 有声|与法币长期共存 喜币将全球通行
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1682466/)
+## 喜联储是中心化的行政体制
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682537/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在11月19日的大直播中，郭文贵先生再次强调了喜币在未来金融体系的重要地位。
+[https://gtv.org/video/id=6199cfa2e6900076612dcd75](https://gtv.org/video/id=6199cfa2e6900076612dcd75)
 
-郭先生表示，数字货币和法币将长期共存，但喜币具有技术“去中心化”、责任“中心化”的优势，必将会战胜其它有缺陷的虚拟币，形成与法币共生局面。最终，喜币将超越法币，在全球范围内流通。
+郭文贵
+Miles Guo
 
-郭先生解释，喜币的区块链技术打破了限制货币流通的物理和地域限制。目前，任何国家都没有监管数字货币的法律和制度，但喜联储具备世界上最严格的KYC，能够保证每一笔交易的公开和透明。同时，喜币有喜美元作为稳定币，以及H-Pay作为支付系统，完全符合市场的定义，即根据供需双方的需求，在政府监管下进行基本公平的经济交易行为。
+告诉你，所有全人类只要是货币都是中心化的
+I tell you, all human beings’ currency are all centralized
 
-另一方面，喜币——与法币不同——具有主动信任的特性，因此，喜币未来一定会超越法币，在全世界通行。再加上喜联储有能力制定未来数字货币的发行和交易规则，喜币将成就数字货币的“布雷顿森林”体系。
+只要是货币就是中心化，数字货币就是去中心化的，也有中心化的
+As long as the currency is centralized, the digital currency is decentralized, and there is also centralized
 
+你们要意识到，喜联储它是中心化的行政体制
+You have to realize that Himalaya Reserve is a centralized administrative system
 
+它的价值太大了，就是一个去中心化的币
+Its value is too large, it is the decentralized coin
 
-文字版原文：[与法币长期共存 喜币将全球通行](https://gnews.org/zh-hans/1679439/)
+但有人承担责任，这是为什么喜美元和世界要为此所震撼
+But someone takes responsibility, that’s why H dollar make the world so shocked by it
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+是完全一个去中心化的技术，数字化货币就是分散式账本
+It is a completely decentralized technology, and digital currency is the distributed ledger
 
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+不是中心化的账本，谁也拿不走，谁也偷不走，谁也不可监控
+it is not a centralized ledger, no one can take it away, no one can steal it, and no one can monitor it
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+而且是全球化的，说当然是中心化的
+And it’s global, of course it’s centralized
+
+但是这件事如果有了问题，谁负责任，有一个中心化的责任，在那呢
+But if there is a problem, say responsible, there is a centralized responsibility, where is it?
+
+叫行政中心化，但是，只要是喜联储，它现在发行把喜币变成中心化纸币
+It’s called administrative centralization, but as long as it is the Himalaya Reserve, it is now issuing to turn H-Coins into centralized banknotes
+
+它印出来纸币来，就叫中心化的，他们早就在准备中会发纸币的
+When it prints out paper money, it is called centralized, they will issue paper money, it is in preparation for a long time
+
+甚至是金币都会发，就是什么，你拥有去中心化的资产
+Even gold coins will be issued, what is it, you own decentralized assets
+
+在某种条件下，又给你中心化性可衡量的资产，
+Under certain conditions, it gives you centralized and measurable assets
+
+一定不是印的钞票，它是可兑现的，
+It must not be the printed banknote, it is cashable
+
+比如说你拿了一万个币，印成了一个一万币的券
+For example, you took ten thousand coins and printed a ten thousand coins notes
+
+这一万个币券里面就你可以拿回来，你也可以拿走一万币和拿走等同一万币的资产
+You can take back this ten thousand currency notes, you can also take away ten thousand coins and take away assets of the same ten thousand coins
+
+包括大家现在最担心，也是最想的，未来提现你们想到的
+Including what everyone worries about now, and what you think about most that cash withdrawal in the future
+
+比如说用的金币，它发行，它一定不是全流通
+For example the circulated gold coin, it issued that it must not be fully circulated
+
+只给一些一定的客户，和大家有级别使用有选择使用的那些金币
+It is only for certain customers, and everyone has the level to use and choose to use those gold coins
+
+大家可以拿到，就是任何情况下，你可以完全中性化的交易
+Everyone can get it, that means under any circumstances, you can completely neutralized the transaction
+
+就草根小哥手滑手的，我给QMAY中心化的币
+As for Caogen brother gives QMAY centralized currency
+
+拿到手就是你的一个完全去中心化的技术，
+Using a completely decentralized technology
+
+管理体制和未来中心化的流通的币，区块链它厉害的
+The management system and the future centralized circulation of the coins, the blockchain is powerful
+
+叫全球的，谁也不可查，不可控，去账本化，去中心化的账本化管制叫区块链
+It’s called global transactions, no one can check it, uncontrollable, de-booking, decentralized book ledger control is called blockchain
+
+区块链就是全球账本化，没有中心化的账本，不可控的
+Blockchain is a global ledger, without a centralized ledger, it is uncontrollable
+
+* * *
+
+Date:11/19/2021
+原视频标题: 喜联储是中心化的行政体制
+Himalaya Reserve is a centralized administrative system
+原视频日期：2021/11/17
+原视频链接 [https://gettr.com/post/ph99osbf29](https://gettr.com/post/ph99osbf29)
+任务编号：KC272（2930）
+视频时间段 : 0:00-2:19
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
