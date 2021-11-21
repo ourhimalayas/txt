@@ -2,42 +2,101 @@
 ---
 
 
-## 青蒿趣谈
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1683745/)
+## 当Hpay可以互相支付的时候
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1683805/)
 
-2021-11-21
+[https://gtv.org/video/id=619a325be6900076612deecb](https://gtv.org/video/id=619a325be6900076612deecb)
 
-整理总结资料：Elli
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-543-edited.png)图源：网络/筱雅美食
+**郭文贵**
+**Miles Guo**
 
-> “青蒿素是中医药送给世界人民的礼物。”
-> — 屠呦呦（因发现青蒿素而获得诺贝尔科学奖）
+当我们之间互相可以H币，HDO可以支付的时候，兄弟姐妹们
+When we can make payment to each other with HCN and HDO, brothers and sisters
 
+这个标准可就不一样了，也就是人类上所有国家不能做的事，你们都能得到
+This world is different, that is, what all countries on the human race can not do, you can get
 
-屠呦呦研究的青蒿学名为Artemisinin Annua，而常用的英文名字为wormwood，泛指艾草，艾蒿，青蒿，中亚苦蒿等好几种菊科植物。Wormwood在圣经启示录里被翻译为茵陈，讲述第三位天使吹号后，一颗名叫茵陈（wormwood艾草本身很苦，所以翻译为茵陈，也为苦的意思）的星星坠落到地球上，使三分之一的河流和泉水变成苦涩的，英文原文是：The third Angel trumpeted. A huge Star, blazing like a torch, fell from Heaven, wiping out a third of the rivers and a third of the springs. The Star’s name was **Wormwood**. A third of the water turned bitter, and many people died from the poisoned water.
+草根小哥说，现在我给天池妹妹划上一万个喜币，你管的着吗？
+Caogen brother said, now I have set aside 10,000 H coins for my sister Tianchi, it’s not government’s business anymore
 
-Artemisia这个词来自古希腊语ἀρτεμισία，词源来自Ἄρτεμις（Artemis）。在希腊文化中，阿尔忒弥斯是狩猎女神、森林和儿童的保护神。
+天池妹妹我要给QMAY汇上个10万HDO, 100万HDO, 你管的着吗？
+Sister Tianchi wants to send 100,000 HDO, 1 million HDO to QMAY, it’s not government’s business anymore
 
-青蒿与艾草同为菊科植物，两者都带有一个“蒿”字，青蒿的学名叫蒌蒿，而艾草学名为艾蒿。而且都喜欢生长在田埂地边、池塘边等土壤水分丰富的地方。青蒿和艾草均为药食兼用植物，有清热祛风和消毒的作用。在实际生活中，人们将青蒿视为春天最受欢迎的野味之一，“烂烝香荠白鱼肥，碎点青蒿凉饼滑”，以青蒿嫩尖制作的粑粑和青团为湖南、江浙等地的特色传统美食。而艾草很少食用，大多时候作为除湿祛寒和驱蚊灭菌的天然药材，尤其是在蒸熏中运用较多。青蒿和艾草都有特殊的香味，一般不会直接散发出来，只有将它们的叶子碾碎后，味道才会释放。同样是香气，但两种香气截然不同，放在鼻子上嗅一嗅，会感到它们明显的差别。青蒿有一种带有清凉的淡淡清香，令人非常舒服；而艾草的香气比较浓郁，虽也有清凉感但伴有辛辣气，气味比较厚重。
+它可能有一个限制，不可能是无限的大，但基本上过了KYC的战友们
+It may has a limit, it cannot be infinitely large, but basically the comrades who have passed KYC
 
-参考链接：
+你们之间的来往，那可就成了世界上脱缰的野马
+The funds between you has become a wild horse in the world
 
-[青蒿網站：https://www.artemisiaannua.org](https://www.artemisiaannua.org)
+最自由，最无限, 没有国家地域限制，而且额度是最大的
+It’s the most free, the most unlimited, there is no country and geographic re-strictions, and the quota is the largest
 
-[艾草在聖經啓示錄中的內容](https://www.biblegateway.com/quicksearch/?quicksearch=wormwood&amp;version=MSG)
+关键你还没有税，还合法，你还得合法呀
+The key point is that you have no tax, and still legal, you have to be legal
 
-[YouTube視頻：University of Kentucky：Cancer, COVID and the Kentucky Economy: How “Sweet Annie” Could Make an Impact](https://www.youtube.com/watch?app=desktop&amp;v=3fSAQorkDqc)
+我再给重申一遍，全球的虚拟货币互相之间
+Let me repeat again that the global virtual currencies between each other
 
-[青蒿和艾草的區別](https://3g.163.com/dy/article/G5CD872B0542ROII.html?spss=adap_pc)
+只要没有法币的联系的，你任何交易，只要你接受，他接受都是合法的
+as long as there is no legal currency connection, any transaction you accept is legal as long as you accept it
 
-[中医带你认识艾叶艾绒和艾条](https://zhuanlan.zhihu.com/p/45447799?back=https%3A%2F%2Fwww.google.com%2Fsearch%3Fclient%3Dsafari%26as_qdr%3Dall%26as_occt%3Dany%26safe%3Dactive%26as_q%3D%E8%89%BE%E6%9D%A1%E6%98%AF%E7%94%A8%E8%89%BE%E8%8D%89%E5%81%9A%E5%87%BA%E6%9D%A5%E7%9A%84%E5%90%97%26channel%3Daplab%26source%3Da-app1%26hl%3Dzh_CN)
+而且没有税，还不需要任何政府监管，现在要懂这个道理
+And there is no tax, and there is no need for any government supervision, now we must understand this principle
 
-[維基百科-中亚苦蒿](https://zh.wikipedia.org/zh-hant/中亚苦蒿)
+我再重申一遍，兄弟姐妹们所有的虚拟货币，
+I repeat it again, brothers and sisters, all virtual currencies
 
-[維基百科-*Artemisia absinthium*](https://en.wikipedia.org/wiki/Artemisia_absinthium)
+只要你有账号之间你们之间只要这个技术能做到的，互相交易不纳税，不受国家不受监管
+as long as you have account, you can do transfer within each other with this technology, you will not pay taxes on each transactions, and will not be subject to state supervision
 
-校对发布：MQ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
+这是第二个问题，第三个问题我再告诉大家，因为刚才没有说到的
+This is the second question. I will tell you the third question because I didn’t talk about it just now
+
+H-pay很多商家说，这个商家要不要KYC
+Many H-pay merchant asked whether the merchants need to do KYC
+
+战友们这个常识你不要问，你要问，我们直播100年不会拉倒
+This is common sense, comrades, if you still ask it, we will have to do our live broadcast for another 100 years
+
+回答你这个问题，你不去KYC你怎么开账号呢
+To answer this question, how do you open an account if you don’t do KYC?
+
+任何商家你得到喜联储KYC你才能开账号，
+Any merchant, you can open an account only if you pass the KYC of the Himalaya Reserve
+
+账号和账号之间才能接受KYC，才能付钱呐，是吧
+Only the account accepted by KYC can be paid transfer to each other, right?
+
+你不解裤子，你怎么跟人家上床，怎么生孩子
+You don’t take off your pants, how do you have children with others
+
+我连你男女都不知道，我现在就要跟你结婚了吗？
+I don’t even know you are man or woman, How can I get married to you now?
+
+这是个简单的道理吧
+The simple is that, right？
+
+原视频链接: [https://gettr.com/post/ph8y47e262](https://gettr.com/post/ph8y47e262)
+
+Date:11/20/2021
+原视频标题: 当Hpay可以互相支付的时候
+When H-pay can make pay to each other
+原视频日期：2021/11/17
+原视频链接[https://gettr.com/post/ph8y47e262](https://gettr.com/post/ph8y47e262)
+任务编号：2929
+视频时间段 : 0:00-2:11
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

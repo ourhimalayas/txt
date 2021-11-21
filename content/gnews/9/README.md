@@ -2,36 +2,40 @@
 ---
 
 
-## 继欧洲议会、德国和美国之后 英国也考虑外交抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683656/)
+## DC每日热点1121
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1683682/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-英国媒体11月20日报道，英国首相约翰逊，正在考虑外交抵制北京冬奥会，以抗议中共恶劣的人权纪录。该报道称，五名保守党政客致信约翰逊，敦促他禁止英国任何官方外交代表，出席2月份的北京冬奥。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-22-上午3.02.10.png)
-就在两天前，美国总统拜登证实，美国政府正在考虑对北京冬奥会进行外交抵制。上个月，即将从德国联邦议院体育委员会主席卸任的，弗莱塔克女士也再次呼吁，各国政府要抵制北京冬奥，作为对中共当局严重侵犯人权的抗议。
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/11/AD959BA3-35D6-4464-9DA7-6A763DE7287D-scaled.jpeg)
+道琼斯指数 35601.98 ▼0.75%
+纳斯达克指数 16057.44 ▲0.40%
+WTI纽约原油CFD 75.621 ▼3.56%
+布伦特原油CFD 78.599 ▼0.37%
+标普中概股50指数 3,581.09CNY▼-26.82%
+美元兑人民币 1USD=6.387RMB
+美元兑港币 1USD=7.791HKD
+国际黄金 1845.74 美元/盎司
+全球CCP病毒感染人数 257,577,038 例
 
-7月份，欧洲议会也以压倒性票数，通过了一项不具强制力的决议，敦促欧盟及成员国的官员，不要出席北京冬奥会。
+1、日外相林芳正称王毅邀请其访华
+2、奥地利数万民众示威，抗议疫情封闭新措施
+3、伊朗革命卫队的炮艇星期六（11月20日）在波斯湾拦截了一艘油轮，并拘留了11名船员
+4、美国务卿布林肯在对非洲进行最后一天访问，重申伙伴关系
+5、奥斯汀：美国对中东安全的承诺“有力而肯定”
+6、荷兰爆发反对新冠措施抗议 20多人被逮捕
+7、中共国官媒编辑称彭帅就在家中 将很快回归公众视野
+8、拜登借79岁庆寿明说2024将竞选连任
+9、中共国宣布与立陶宛外交关系降至代办级，以此抗议立陶宛允许台湾在其境内设立代表处的决定
+10、军事政变一月后苏丹总理重返岗位
+11、43年来新低：中共国2020出生率千分之8.52
+12、基辛格表示：中共国10年内不会攻打台湾
+13、英国酝酿是否紧跟美国考虑抵制北京冬奥会
+14、波兰指控白俄罗斯采用新方法：将移民分散突破边境线
+15、法国外交部称关注彭帅下落 敦促中共国实践保护妇女家庭法
+16、俄罗斯近期在乌克兰附近集结军队，美国难断俄真实意图左右为难
+17、 委内瑞拉选民今天被号召投票，选举各市长、市议员以及全国23个州的州长，自2017年以来，这是反对派首次参加投票
+18、刚果(金)BGFI银行文件大泄密，揭示位于非洲中部的刚果（金-RDC）大笔公共资金遭挪用
 
-参考链接：
-1）[英国正考虑外交抵制北京冬奥会–泰晤士报](https://www.reuters.com/article/uk-thames-beijing-winter-olympic-1120-idCNKBS2I508P)
-2）[彭帅事件或加剧抵制呼声 美国对北京冬奥的外交抵制意味着什么？](https://www.voachinese.com/a/beijing-olympics-diplomatic-boycott-20211119/6320934.html)
-3）[卸任前登高一呼 德國聯邦議院體委會主席籲抵制北京冬奧](https://news.ltn.com.tw/news/world/breakingnews/3701885)
-4）[欧洲议会通过决议呼吁外交抵制北京冬奥会 北京称不值得关注](https://www.voachinese.com/a/European-parliament-resolution-beijing-olympics-boycott-20210709/5960158.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
-
-总编：文特
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
