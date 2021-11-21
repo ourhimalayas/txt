@@ -2,28 +2,23 @@
 ---
 
 
-## 11名澳大利亚护士对COVID疫苗的副作用爆料：我们被告知不要谈论我们所看到的东西
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682130/)
+## 加拿大已完全接种军人仍因疫情爆发被隔离
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1682242/)
 
-据《thecovidworld.com》，2021年11月20日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-514-e1637468058858.png)图片源自原文
-**在一段令人震惊的视频中，来自澳大利亚昆士兰州的11名护士和护理人员站出来，讲述了他们注射COVID-19疫苗的经历。这些护士的身份被遮住了，因为他们不敢说出来，但他们的身份在拍摄前被检查过并确认。在一系列令人痛心的故事中，护士们讲述了他们如何看到死亡和受伤的人堆积如山，但没有人被允许谈论此事。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-515-e1637468114282.png)图片源自原文
-护士们进一步表示，医院不再在入院病例上标注接种状态，医院的抢救警报器也被禁用，以避免吓到排队等候接种的人。此外，对于严重的不良反应，根本没有报告机制。
+编译撰稿：文莱     校对编辑，发稿：硫酸羟氯喹64
 
-**疫苗开始推广后，他们开始看到越来越多的中风病例，尤其是年轻人，神经系统疾病、心脏病发作、肺部充满液体、内出血、肠子和鼻子的外部出血以及人们通过大血块。一名护士描述说，超过50%的病人在接受疫苗接种后看起来”严重不适”，其中一些人在接受注射后晕倒在医院。 许多护士描述说，他们宁可失去工作也不愿意打针，有些人承认他们再也不会在医疗保健领域工作了。**
-
-原文连接：[https://thecovidworld.com/11-australian-nurses-blow-the-whistle-on-covid-vaccine-side-effects-we-were-told-not-to-talk-about-what-we-had-seen/](https://thecovidworld.com/11-australian-nurses-blow-the-whistle-on-covid-vaccine-side-effects-we-were-told-not-to-talk-about-what-we-had-seen/)
-
-翻译：洛杉矶盘古农场- TrueSky
-
-校对&编辑：洛杉矶盘古农场 – 小象的奶品
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-9.png)图片来源：REBELNEWS
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+据加拿大自媒体【反叛新闻】11月19日报道，数百名驻扎在安大略省佩塔瓦瓦地区已接种了“新冠病毒”疫苗的士兵因其军营内爆发疫情而被隔离。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+据悉，该批士兵日前在当地进行了一次户外训练演习后，发生了该病毒疫情。迄今为止，已造成至少10名士兵及其平民家属被感染。而参加训练的所有军人，都已接种了两剂“新冠病毒”疫苗。据医疗人士分析，在考虑到有平民家属被感染的情况下，此次疫情波及人数可能接近千人。
+
+此外，与以上状况相似的是，在本周早些时候，尽管所有队员都接种了“新冠病毒”疫苗，但渥太华NHL冰球队在其40%队员的“新冠病毒”检测呈阳性后，被迫暂停参加接下来的赛季比赛。
+
+原文链接：
+
+[All double vaccinated: Hundreds of Canadian soldiers in quarantine amid COVID-19 outbreak – Rebel News](https://www.rebelnews.com/all_double_vaccinated_hundreds_of_canadian_soldiers_in_quarantine_amid_covid-19_outbreak)
 
  
 

@@ -2,20 +2,18 @@
 ---
 
 
-## COVID-19 最新情报｜围堵韩国疾控中心主任座驾 家属誓为死者寻找真相和公义
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1682354/)
+## 中共国下调与立陶宛的外交关系
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1682419/)
 
-**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 21/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11211.jpg)图片来自大纪元网站
+11 月 21 日 – 中共国外交部今天表示，中共国已正式将与立陶宛的外交关系降级为“业务任务”级别，以抗议台湾事实上在维尔纽斯设立大使馆。
 
-【韩国】韩国疾病控制和预防中心 (KDCA) 负责人郑恩京 19 日到访韩国清州的一间医院，并公开接种 COVID-19 加强剂。
+外交部在一份声明中说：“中共国政府不得不降低两国外交关系，以维护其主权和国际关系的基本标准。”
 
-同一时间，一个由疫苗受害者的家属组成的 COVID-19 疫苗受害者家庭委员会（Kobaekhoe）聚集在医院外，待郑恩京的座驾驶出医院，他们手举死者遗像和抗议标语上前围堵，迫使郑恩京下车与遇难者家属交谈，承诺会准备与遇难者家属亲自会面的机会，并且会就死亡事件做详细调查。
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/21/taiwan-cina-declassa-relazioni-diplomatiche-con-lituania\_fee6c410-f16c-4159-87ac-369a942de74b.html](https://www.ansa.it/sito/notizie/topnews/2021/11/21/taiwan-cina-declassa-relazioni-diplomatiche-con-lituania_fee6c410-f16c-4159-87ac-369a942de74b.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-14.jpg)
-
-来源｜[Daum](https://news.v.daum.net/v/20211119165109527)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 
