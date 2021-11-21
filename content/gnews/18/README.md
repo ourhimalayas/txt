@@ -2,28 +2,39 @@
 ---
 
 
-## 11名澳大利亚护士对COVID疫苗的副作用爆料：我们被告知不要谈论我们所看到的东西
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682130/)
+## 白宫通讯参谋长离职并前往劳工部工作
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1682222/)
 
-据《thecovidworld.com》，2021年11月20日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-514-e1637468058858.png)图片源自原文
-**在一段令人震惊的视频中，来自澳大利亚昆士兰州的11名护士和护理人员站出来，讲述了他们注射COVID-19疫苗的经历。这些护士的身份被遮住了，因为他们不敢说出来，但他们的身份在拍摄前被检查过并确认。在一系列令人痛心的故事中，护士们讲述了他们如何看到死亡和受伤的人堆积如山，但没有人被允许谈论此事。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-515-e1637468114282.png)图片源自原文
-护士们进一步表示，医院不再在入院病例上标注接种状态，医院的抢救警报器也被禁用，以避免吓到排队等候接种的人。此外，对于严重的不良反应，根本没有报告机制。
+翻译：Rosa
+![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-16-1.png)图片链接：
+[https://www.newsmax.com/us/white-house-emma-riley-communications-department-of-labor/2021/11/20/id/1045512/](https://www.newsmax.com/us/white-house-emma-riley-communications-department-of-labor/2021/11/20/id/1045512/)
+[原文链接：](https://www.newsmax.com/us/white-house-emma-riley-communications-department-of-labor/2021/11/20/id/1045512/)
 
-**疫苗开始推广后，他们开始看到越来越多的中风病例，尤其是年轻人，神经系统疾病、心脏病发作、肺部充满液体、内出血、肠子和鼻子的外部出血以及人们通过大血块。一名护士描述说，超过50%的病人在接受疫苗接种后看起来”严重不适”，其中一些人在接受注射后晕倒在医院。 许多护士描述说，他们宁可失去工作也不愿意打针，有些人承认他们再也不会在医疗保健领域工作了。**
+白宫通讯参谋长离职并前往劳工部工作
 
-原文连接：[https://thecovidworld.com/11-australian-nurses-blow-the-whistle-on-covid-vaccine-side-effects-we-were-told-not-to-talk-about-what-we-had-seen/](https://thecovidworld.com/11-australian-nurses-blow-the-whistle-on-covid-vaccine-side-effects-we-were-told-not-to-talk-about-what-we-had-seen/)
+白宫通讯参谋长艾玛-莱利周五宣布，她将离开白宫，并下个月去劳工部工作，这是一周内第二位离职的乔-拜登政府成员。
 
-翻译：洛杉矶盘古农场- TrueSky
+“在白宫为总统和美国人民服务是我的荣誉和特权，”莱利周五下午在推特上说。”我很高兴能搬到宾夕法尼亚大道，并与马蒂-沃尔什部长和美国劳工部一起在全国各地旅行。”
 
-校对&编辑：洛杉矶盘古农场 – 小象的奶品
+莱利的离职是一周内的第二次，副总统卡马拉-哈里斯的通讯主管阿什利-艾蒂安周四刚刚宣布她将离职的消息。
 
+“阿什利是副总统团队的重要成员，她为推进本届政府的目标而不懈努力，”一位白宫官员在一份报告中告诉福克斯新闻。”她将于12月离开办公室，以寻求其他机会。”
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+艾蒂安曾两次担任众议院议长和加州民主党人南希-佩洛西的通信主管和顾问，并在前总统巴拉克-奥巴马的白宫任职。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+这些离职伴随着昆尼皮亚克大学周四的一份报告发生，该报告指出拜登的民调数字降至其总统任期内的最低点，只有36%的人认可他作为总统的工作。
+
+调查显示，46%的受访者 “强烈反对 “拜登的表现，而只有21%的人 “强烈赞同”。
+
+民意调查的受访者还希望看到共和党在2022年控制众议院和参议院，48%的人倾向于共和党，而38%的人倾向于民主党，16%的人说他们不确定。
+
+“昆尼皮亚克大学民调分析师蒂姆-马洛伊说：”在中期选举不到一年的时间里，对民主党来说是一个不祥的双重打击。”参议院和众议院将被争夺，选民希望共和党在争夺中胜出。”
+
+据该组织称，11月11日至15日，全国有1378名美国成年人接受了调查，误差率为正负2.6个百分点。
+
+这些举动也是在CNN关于白宫功能紊乱的报道之后，因为拜登办公室和哈里斯的工作人员之间的关系持续紧张。
+
+“CNN报道说：”副总统圈子里的许多人认为她没有得到充分的准备或定位，而是被排挤在外。”副总统本人告诉几个她的心腹，她感到自己在政治上能做的事情受到限制。副总统周围的人对暗示未来的政治野心也保持警惕，伴随着拜登的团队开始对不忠诚的迹象高度关注，副总统受到了格外的关注。”
 
  
 
