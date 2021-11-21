@@ -2,55 +2,157 @@
 ---
 
 
-## 首届中共网络文明大会，文革数字版升级
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1682513/)
+## 文化大革命创新版，坚持皇帝制
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682514/)
 
-*视频&文章：澳洲天好蓝*
+[https://gtv.org/video/id=619933ade6900076612d8e6e](https://gtv.org/video/id=619933ade6900076612d8e6e)
 
-11月19日上午，中共所谓的首届网络文明大会在北京举行，习也致信表示祝贺，表明习也比较看重这个事情，因为这是新文革的现代化数字网络版。跟毛当权时一样，为了巩固和完全夺取中共党内的全部权力，打击政敌，文革便是毛所谓发动群众也就是红卫兵来武力冲击当时党内各机关和部门夺得控制权，所以习还是予以关注的，还是重视的，希望当他与江大打出手的时候，至少舆论也要占据优势，这样他干什么都名正言顺了。以前只能通过报纸书刊给大众洗脑，搞运动，不过那时候的方式已经不适应现在这个时代了，现在百姓大都通过网络获取信息，所以现在所谓的网络“文明建设”就是中共的重点。
+你要看到十个坚持每一个字
+Debes ver cada letra de las diez persistencias
 
-中共网络“文明”大会发布了所谓十件大事：
+就是两个宣布
+Se realiza dos anuncios
 
-1.吹棒习的内容略过。。。
+中国停止任何的经济改革开放
+China cesa cualquier reforma económica y apertura
 
-2. 制定出台网络安全、数据安全和网络生态治理系列法律法规规章，为网络文明建设提供有力法治保障
+记住啊, 从那一刻起
+Recuerden, a partir de ese momento
 
-此条出台的所谓: 《中华人民共和国网络安全法》、《中华人民共和国数据安全法》、《中华人民共和国个人信息保护法》、《互联网新闻信息服务管理规定》《网络信息内容生态治理规定》、《互联网用户公众账号信息服务管理规定（修订）》，实际都是以所谓法律的形式把个人信息都变成了中共的财产，企业和个人的信息完全受中共的控制和操作，中共有最高权限可以访问任何人的数据。当然这也是政治斗争的手段，老百姓的数据归中共所有，当然你中共自己人的也归习所有，习通过此来夺取信息权力。
+中国人绝对是回到了文化大革命的时代
+Los chinos definitivamente regresaron a la era de la Revolución Cultural
 
-3. 实施网络内容建设工程，网络空间主旋律更加昂扬、正能量更加充沛
+但是, 你看它这里面很有意思啊
+Pero mire que dentro de esto tiene su sentido
 
-所谓策划推出《牵妈妈的手》、《把青春华章写在祖国大地上》等网络主题宣传和互动引导活动，成功举办“五个一百”网络正能量精品展播活动， 实际上都是编造一些故事来给民众洗脑。
+他认为文化大革命是一场过去的一种失败啊, 什么什么的
+Él cree que la Revolución Cultural es un fracaso del pasado
 
-4. 深入推进“争做中国好网民工程”，在全社会形成争做好网民的文明风尚
+但是他搞了个新的文化大革命
+Sin embargo, él ahora hizo una nueva Revolución Cultural
 
-此举是教育部，中共全国总工会，妇联，共青团实施的，是通过线下的形式来深入洗脑民众，形成网上网下，全方位无死角洗脑民众，特别是学生。
+很多人说习近平没有给文化大革命平反, 他就不搞文化大革命
+Mucha gente dice que, si Xi Jinping no reivindica la Revolución Cultural, no participaría en la Revolución Cultural
 
-5. 持续开展“清朗”“净网”“护苗”等专项整治行动，有力净化网络生态
+这是脑子里进了狗屎了, 吃了我们Snow的狗屎才会说的话
+Esto implica que se le metió el excremento del perro en la cabeza, dijo estas palabras porque comió el excremento de nuestro Snow
 
-这也是网络上删贴，删视频的原因之一，所谓由中央网信办、公安部、全国“扫黄打非”工作小组办公室等部门持续开展网络专项整治行动，坚决打击各类网络犯罪活动，集中整治网上各类违法和不良信息，重点清理网上对未成年人具有不良影响的负面内容，实际上醉翁之意不在酒，项庄舞剑，意在沛公，核心目的还是为了清洗网络言论。
+坚持坚决不改革开放, 没有任何改革的词语
+Insiste resueltamente a no reformar y abrirse, no hay ninguna palabra de reforma
 
-6. 连续举办“中国网络诚信大会”，积极营造守信互信、共践共行良好社会氛围
+第二个, 最大的问题大家没有看到
+El segundo, no vieron el mayor problema
 
-7. 持续举办“中国好人”网上评议和发布活动，创新社会主义核心价值观宣传教育
+坚持一党独裁
+Insiste a una dictadura de partido único
 
-第6、第7条都是继续深化洗脑，严控言论。所谓的中共累计评出“中国好人”1万5千余人，重点宣传展示候选人先进事迹7万2千余件，这些所谓的好人，都是中共利益相关的人，普通人也是没有机会入选的，而且事迹都是大多都是假造或者添油加醋，比如各种消防员睡在地上摆拍，明眼人一看，就能看到衣服和鞋子都是干浄的，怎么可能是真的。
+中国搞了皇帝制
+China se ha comprometido con el sistema imperial
 
-8. 深入宣传贯彻《英雄烈士保护法》，推动形成网上祭奠英烈的良好风尚
+习近平在那个新闻发布会已经宣布成神了, 成神话了
+Xi Jinping había declarado en esa conferencia de prensa que se había convertido en un dios, un mito
 
-英烈保护法，是一个彻头彻尾的恶法，最为著名的受害者是潘石屹的儿子在2020年6月23在微博发表了所谓侮辱烈士的言论，不过当时潘石屹的儿子在海外，一旦他回国就有牢狱之灾，讽刺的是潘石屹是中共的白手套，不过这也是政治斗争了，潘石屹是江派系的，无疑是习要整他。
+在这之前, 有习近平跟着我太阳走的感觉
+Antes de esto, se siente que Xi Jinping me estaba siguiendo bajo el sol
 
-9. “中国互联网联合辟谣平台”上线，助力建设清朗网络空间
+北京城搞了音乐会
+En la ciudad de Beijing se hizo un concierto
 
-这是新时代的互相举报，以前是邻里熟人之间举报，受害面小，现在是全国网络举报，你可能被跨省抓捕，而且所谓辟谣本身是就是一个伪命题，因为中共本身就是骗子，他们说的都是谣言。
+而且北京几个我们唐平的那些哥们儿
+Y nuestros hermanos de Tang Ping en Beijing
 
-10. 开展青年网络文明志愿行动，引导青少年健康成长
+Qmay那个领域里面
+Dentro de ese ámbito de Qmay
 
-最后一条就是网络洗脑，所谓打造《中国好青年》《青年网络公开课》等系列品牌产品，开展“网络青晚”“中国青年网络音乐节”等系列网络文化活动，这就相当于以前毛时代的样板戏，唱的演的都是红歌，都是舔共的所谓“主旋律”。
+叫做乐坛, 音乐吐的痰
+Llamado la escena musical, el escupitajo de la música
 
-以上十条都跟“文明”没有半点关系，都是中共加强统治，打击政敌，洗脑民众的手段，正如秦始皇的焚书坑儒，文字狱，又如毛的的文革，最终目的就是消灭不同的声音，维护自己的独裁，这是消灭文明，而不是建立文明。
+内部搞了上百次, 所谓中国音乐家, 艺术家
+Se hizo cientos de veces internamente, los llamados músicos y artistas chinos
 
-发布：Runaway
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-1.jpg)
+都带家
+En mandarín, estas palabras llevan la palabra “casa”
+
+都带家的啊, 音乐家, 艺术家
+Como músicos y artistas
+
+中国共产党所谓过去, 若干决定当中的一些思考
+El llamado pasado del PCCh, en cuanto a sus decisiones y pensamientos
+
+上百起都是主题, 跟着我的太阳走
+Más de cien tópicos son “siguiendo los pasos de mi sol”
+
+太阳啊
+Sol
+
+习近平已经是太阳了
+Xi Jinping ya es un sol
+
+月亮都不当了
+Ya no quiere ni siquiera ser luna
+
+咱最多做了个梦
+Nosotros por más que sea sólo soñamos
+
+咱叫H-coin to the moon
+Nosotros llamamos H-coin a la luna
+
+他是H-coin to the太阳
+Él es H-coin al sol
+
+哇赛, 比我大多了
+¡Wow! Es más grande que yo
+
+我们这词叫Qmay, 唐平整太小了
+Este vocabulario lo decimos Qmay, Tang Ping lo hizo muy pequeño
+
+人家是去太阳, 咱是月亮
+Ellos van a donde está el sol y nosotros es la luna
+
+月亮围着太阳转, 完了吧
+La luna gira alrededor del sol, esto se acabó
+
+你输了吧
+Ya perdiste
+
+这共产党吹牛, 吹太大了
+Este Partido Comunista se jacta, se jacta demasiado
+
+这种结果是什么
+Cuál es su resultado
+
+中国回到了绝对的皇帝制
+China regresó absolutamente al sistema imperial
+
+十个坚持的结果. 坚决不改革开放
+El resultado de diez insistencias, resiste no cambiar a la revolución y la apertura
+
+坚决把私有经济灭掉, 控制中国的一切
+Insiste eliminar a la economía privada y controlar todo de China
+
+坚持绝对的皇帝制
+Se insiste al sistema de emperador absoluto
+
+* * *
+
+日期：11/20/2021
+原视频标题：文化大革命创新版，坚持皇帝制
+Versión innovadora de la Revolución Cultural, insistir al sistema del emperador
+原视频日期：11/19/2021
+原视频网址：[https://gettr.com/post/phdgzc0535](https://gettr.com/post/phdgzc0535)
+任务编号：KC274(2946)
+视频时间段：0:00-2:19
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

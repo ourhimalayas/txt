@@ -2,150 +2,102 @@
 ---
 
 
-## 文化大革命创新版，坚持皇帝制
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682514/)
+## 喜联储是中心化的行政体制
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682537/)
 
-[https://gtv.org/video/id=619933ade6900076612d8e6e](https://gtv.org/video/id=619933ade6900076612d8e6e)
+[https://gtv.org/video/id=6199cfa2e6900076612dcd75](https://gtv.org/video/id=6199cfa2e6900076612dcd75)
 
-你要看到十个坚持每一个字
-Debes ver cada letra de las diez persistencias
+郭文贵
+Miles Guo
 
-就是两个宣布
-Se realiza dos anuncios
+告诉你，所有全人类只要是货币都是中心化的
+I tell you, all human beings’ currency are all centralized
 
-中国停止任何的经济改革开放
-China cesa cualquier reforma económica y apertura
+只要是货币就是中心化，数字货币就是去中心化的，也有中心化的
+As long as the currency is centralized, the digital currency is decentralized, and there is also centralized
 
-记住啊, 从那一刻起
-Recuerden, a partir de ese momento
+你们要意识到，喜联储它是中心化的行政体制
+You have to realize that Himalaya Reserve is a centralized administrative system
 
-中国人绝对是回到了文化大革命的时代
-Los chinos definitivamente regresaron a la era de la Revolución Cultural
+它的价值太大了，就是一个去中心化的币
+Its value is too large, it is the decentralized coin
 
-但是, 你看它这里面很有意思啊
-Pero mire que dentro de esto tiene su sentido
+但有人承担责任，这是为什么喜美元和世界要为此所震撼
+But someone takes responsibility, that’s why H dollar make the world so shocked by it
 
-他认为文化大革命是一场过去的一种失败啊, 什么什么的
-Él cree que la Revolución Cultural es un fracaso del pasado
+是完全一个去中心化的技术，数字化货币就是分散式账本
+It is a completely decentralized technology, and digital currency is the distributed ledger
 
-但是他搞了个新的文化大革命
-Sin embargo, él ahora hizo una nueva Revolución Cultural
+不是中心化的账本，谁也拿不走，谁也偷不走，谁也不可监控
+it is not a centralized ledger, no one can take it away, no one can steal it, and no one can monitor it
 
-很多人说习近平没有给文化大革命平反, 他就不搞文化大革命
-Mucha gente dice que, si Xi Jinping no reivindica la Revolución Cultural, no participaría en la Revolución Cultural
+而且是全球化的，说当然是中心化的
+And it’s global, of course it’s centralized
 
-这是脑子里进了狗屎了, 吃了我们Snow的狗屎才会说的话
-Esto implica que se le metió el excremento del perro en la cabeza, dijo estas palabras porque comió el excremento de nuestro Snow
+但是这件事如果有了问题，谁负责任，有一个中心化的责任，在那呢
+But if there is a problem, say responsible, there is a centralized responsibility, where is it?
 
-坚持坚决不改革开放, 没有任何改革的词语
-Insiste resueltamente a no reformar y abrirse, no hay ninguna palabra de reforma
+叫行政中心化，但是，只要是喜联储，它现在发行把喜币变成中心化纸币
+It’s called administrative centralization, but as long as it is the Himalaya Reserve, it is now issuing to turn H-Coins into centralized banknotes
 
-第二个, 最大的问题大家没有看到
-El segundo, no vieron el mayor problema
+它印出来纸币来，就叫中心化的，他们早就在准备中会发纸币的
+When it prints out paper money, it is called centralized, they will issue paper money, it is in preparation for a long time
 
-坚持一党独裁
-Insiste a una dictadura de partido único
+甚至是金币都会发，就是什么，你拥有去中心化的资产
+Even gold coins will be issued, what is it, you own decentralized assets
 
-中国搞了皇帝制
-China se ha comprometido con el sistema imperial
+在某种条件下，又给你中心化性可衡量的资产，
+Under certain conditions, it gives you centralized and measurable assets
 
-习近平在那个新闻发布会已经宣布成神了, 成神话了
-Xi Jinping había declarado en esa conferencia de prensa que se había convertido en un dios, un mito
+一定不是印的钞票，它是可兑现的，
+It must not be the printed banknote, it is cashable
 
-在这之前, 有习近平跟着我太阳走的感觉
-Antes de esto, se siente que Xi Jinping me estaba siguiendo bajo el sol
+比如说你拿了一万个币，印成了一个一万币的券
+For example, you took ten thousand coins and printed a ten thousand coins notes
 
-北京城搞了音乐会
-En la ciudad de Beijing se hizo un concierto
+这一万个币券里面就你可以拿回来，你也可以拿走一万币和拿走等同一万币的资产
+You can take back this ten thousand currency notes, you can also take away ten thousand coins and take away assets of the same ten thousand coins
 
-而且北京几个我们唐平的那些哥们儿
-Y nuestros hermanos de Tang Ping en Beijing
+包括大家现在最担心，也是最想的，未来提现你们想到的
+Including what everyone worries about now, and what you think about most that cash withdrawal in the future
 
-Qmay那个领域里面
-Dentro de ese ámbito de Qmay
+比如说用的金币，它发行，它一定不是全流通
+For example the circulated gold coin, it issued that it must not be fully circulated
 
-叫做乐坛, 音乐吐的痰
-Llamado la escena musical, el escupitajo de la música
+只给一些一定的客户，和大家有级别使用有选择使用的那些金币
+It is only for certain customers, and everyone has the level to use and choose to use those gold coins
 
-内部搞了上百次, 所谓中国音乐家, 艺术家
-Se hizo cientos de veces internamente, los llamados músicos y artistas chinos
+大家可以拿到，就是任何情况下，你可以完全中性化的交易
+Everyone can get it, that means under any circumstances, you can completely neutralized the transaction
 
-都带家
-En mandarín, estas palabras llevan la palabra “casa”
+就草根小哥手滑手的，我给QMAY中心化的币
+As for Caogen brother gives QMAY centralized currency
 
-都带家的啊, 音乐家, 艺术家
-Como músicos y artistas
+拿到手就是你的一个完全去中心化的技术，
+Using a completely decentralized technology
 
-中国共产党所谓过去, 若干决定当中的一些思考
-El llamado pasado del PCCh, en cuanto a sus decisiones y pensamientos
+管理体制和未来中心化的流通的币，区块链它厉害的
+The management system and the future centralized circulation of the coins, the blockchain is powerful
 
-上百起都是主题, 跟着我的太阳走
-Más de cien tópicos son “siguiendo los pasos de mi sol”
+叫全球的，谁也不可查，不可控，去账本化，去中心化的账本化管制叫区块链
+It’s called global transactions, no one can check it, uncontrollable, de-booking, decentralized book ledger control is called blockchain
 
-太阳啊
-Sol
-
-习近平已经是太阳了
-Xi Jinping ya es un sol
-
-月亮都不当了
-Ya no quiere ni siquiera ser luna
-
-咱最多做了个梦
-Nosotros por más que sea sólo soñamos
-
-咱叫H-coin to the moon
-Nosotros llamamos H-coin a la luna
-
-他是H-coin to the太阳
-Él es H-coin al sol
-
-哇赛, 比我大多了
-¡Wow! Es más grande que yo
-
-我们这词叫Qmay, 唐平整太小了
-Este vocabulario lo decimos Qmay, Tang Ping lo hizo muy pequeño
-
-人家是去太阳, 咱是月亮
-Ellos van a donde está el sol y nosotros es la luna
-
-月亮围着太阳转, 完了吧
-La luna gira alrededor del sol, esto se acabó
-
-你输了吧
-Ya perdiste
-
-这共产党吹牛, 吹太大了
-Este Partido Comunista se jacta, se jacta demasiado
-
-这种结果是什么
-Cuál es su resultado
-
-中国回到了绝对的皇帝制
-China regresó absolutamente al sistema imperial
-
-十个坚持的结果. 坚决不改革开放
-El resultado de diez insistencias, resiste no cambiar a la revolución y la apertura
-
-坚决把私有经济灭掉, 控制中国的一切
-Insiste eliminar a la economía privada y controlar todo de China
-
-坚持绝对的皇帝制
-Se insiste al sistema de emperador absoluto
+区块链就是全球账本化，没有中心化的账本，不可控的
+Blockchain is a global ledger, without a centralized ledger, it is uncontrollable
 
 * * *
 
-日期：11/20/2021
-原视频标题：文化大革命创新版，坚持皇帝制
-Versión innovadora de la Revolución Cultural, insistir al sistema del emperador
-原视频日期：11/19/2021
-原视频网址：[https://gettr.com/post/phdgzc0535](https://gettr.com/post/phdgzc0535)
-任务编号：KC274(2946)
-视频时间段：0:00-2:19
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 -天涯行
+Date:11/19/2021
+原视频标题: 喜联储是中心化的行政体制
+Himalaya Reserve is a centralized administrative system
+原视频日期：2021/11/17
+原视频链接 [https://gettr.com/post/ph99osbf29](https://gettr.com/post/ph99osbf29)
+任务编号：KC272（2930）
+视频时间段 : 0:00-2:19
+英听校：洛杉矶盘古农场 – Layka
+翻译：洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
 审片：洛杉矶盘古农场 – 银龙
 发布：洛杉矶盘古农场 – 恩典
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
