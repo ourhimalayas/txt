@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/21/2021 11:28 AM (UTC)`
+
+11/20/2021 [3rd Anniversary of 1120] Mr. Miles Guo: We shall love Mr. Bannon and he is a real master who can help us NFSC and global Chinese. <br/><br/>11/20/2021【1120三周年纪念】<br/>文贵先生：我们要真心爱班农先生，他是真正的大师可以帮助到新中国联邦和全球所有的华人。
+![img](https://media.gettr.com/group13/getter/2021/11/21/11/28/73bacd0d-2646-5494-1627-f4d5a912a519/out.jpg)
+
+---
+
 `@miles 11/21/2021 6:50 AM (UTC)`
 
 11/20/2021 [3rd Anniversary of 1120] The globalists who are the partners of the CCP want to be more like the CCP.<br/><br/>11/20/2021【1120三周年纪念】 与中共沆瀣一气的全球主义者们更想成为中共
@@ -295,13 +302,6 @@ An orthopedic surgeon from Wisconsin described the serious side effects after hi
 
 11月17日：想笨笨了…… <br/><br/>
 ![img](https://media.gettr.com/group10/getter/2021/11/18/01/46/be0d8034-1f65-a09d-0d4b-da0b55921f0f/4ae34c9e4427a9ef0cd7d0b313e77583.jpg)
-
----
-
-`@miles 11/18/2021 1:41 AM (UTC)`
-
-11月17日：可爱的绅士笨笨…… <br/><br/>
-![img](https://media.gettr.com/group49/getter/2021/11/18/01/41/5a5068a8-d1bc-04fe-e430-b5493aaa7438/30f4807c5d051542b2d7f968f889d9f9.jpg)
 
 ---
 

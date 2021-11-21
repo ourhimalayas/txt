@@ -15,158 +15,158 @@
 
 ---
 
-### [冠状病毒&#8221;塑料海啸&#8221;平均每天2000吨](/content/gnews/1/README.md)
- ` 首尔天池农场`
-
-### [每日快报：左派曾经用虚假新闻攻击川普总统](/content/gnews/2/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [费城又现对华裔暴力事件，排华浪潮隐隐欲来](/content/gnews/3/README.md)
- ` 澳喜农场`
-
-### [【全字幕+视频】文贵2021年11月19日文贵大直播](/content/gnews/4/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共国内儿童和青少年疫苗接种现状](/content/gnews/5/README.md)
- ` 澳喜农场`
-
-### [2021-11-14《医学视角》栏目第十九期 直播精要 乙酰半胱氨酸及褪黑色素在新冠防治中的应用](/content/gnews/6/README.md)
- ` 纽约香草山MOS03`
-
-### [立陶宛对中共降级立陶宛关系表示“遗憾”](/content/gnews/7/README.md)
- ` 首尔天池农场`
-
-### [意大利成为帮中共国宣传的猎物](/content/gnews/8/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [因受疫情影响，亚洲旅游业在2020年遭受重创](/content/gnews/9/README.md)
- ` 首尔天池农场`
-
-### [喜联储是中心化的行政体制](/content/gnews/10/README.md)
+### [喜币上市后爆料革命37天关键增长期日记4](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [习近平为“保龙椅”调任亲信王小洪接管公安部](/content/gnews/11/README.md)
+### [国际要闻汇编 11月21日](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文化大革命创新版，坚持皇帝制](/content/gnews/12/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [原来拿到大陆居民身份证的台湾表妹李乔昕是个老戏骨](/content/gnews/3/README.md)
+ ` NewFOC`
 
-### [首届中共网络文明大会，文革数字版升级](/content/gnews/13/README.md)
- ` 澳喜农场`
-
-### [共和党参议院候选人称福奇是“大屠杀凶手”](/content/gnews/14/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|与法币长期共存 喜币将全球通行](/content/gnews/15/README.md)
- ` MOSREC`
-
-### [有声|文贵先生20年前已投资AMD芯片 用远见把握着世界的命脉](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [有声|欧盟组建联合部队应对中共](/content/gnews/17/README.md)
- ` MOSREC`
-
-### [布罗陀接种率已达100% 现敦促取消圣诞庆祝活动](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [瑞典研究表明注射第二针后死亡率高20%](/content/gnews/19/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [秘翻在线：纽约时报揭露亨特·拜登曾帮助中共公司收购刚果的一座钴矿](/content/gnews/20/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共国下调与立陶宛的外交关系](/content/gnews/21/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [郭文贵-让中共闻风丧胆的战神，中共猎狐行动第一目标](/content/gnews/22/README.md)
- ` mary202064`
-
-### [疑似回应中俄军演，美日澳加德五国将在日本周边海域联合军演](/content/gnews/23/README.md)
+### [冠状病毒&#8221;塑料海啸&#8221;平均每天2000吨](/content/gnews/4/README.md)
  ` 首尔天池农场`
 
-### [中共垮塌始于地产崩盘，历年人口数据造假如今骗倒自己（三）](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
+### [澳大利亚爆发大游行，数十万人为自由而抗议](/content/gnews/5/README.md)
+ ` 走进澳洲`
 
-### [中共垮塌始于地产崩盘，历年人口数据造假如今骗倒自己（二）](/content/gnews/25/README.md)
- ` 墨尔本雅典娜农场`
+### [墙内要闻汇编 11月21日](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声| 从血洗示剑的启示谈化解排华危机](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [COVID-19 最新情报｜围堵韩国疾控中心主任座驾 家属誓为死者寻找真相和公义](/content/gnews/27/README.md)
- ` G&#124;News TAIWAN`
-
-### [中共垮塌始于地产崩盘，历年人口数据造假如今骗倒自己（一）](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [视频| 文贵先生的“一统江湖”](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [印度总理同意废除农业法，意味平民运动的一次胜利](/content/gnews/30/README.md)
- ` 澳喜农场`
-
-### [美国陆军将对未接种疫苗的军人采取纪律处分程序](/content/gnews/31/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [班农先生指出法治基金和法治社会的重要性](/content/gnews/32/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [立陶宛模式奠定中共不做正房改做偏房的国际关系新模式](/content/gnews/33/README.md)
- ` NewFOC`
-
-### [加拿大已完全接种军人仍因疫情爆发被隔离](/content/gnews/34/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [中共推出所谓治新冠病毒药物VV116、FB2001及普克鲁胺](/content/gnews/35/README.md)
- ` NewFOC`
-
-### [白宫要求中共交待彭帅下落](/content/gnews/36/README.md)
- ` GTV新闻访谈`
-
-### [美加强与印太、日本经贸 向中共施压](/content/gnews/37/README.md)
- ` GTV新闻访谈`
-
-### [11名澳大利亚护士对COVID疫苗的副作用爆料：我们被告知不要谈论我们所看到的东西](/content/gnews/38/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [美两党议员联合推动台湾加入国际货币基金组织](/content/gnews/39/README.md)
- ` GTV新闻访谈`
-
-### [欧洲的中共病毒危机使已接种疫苗的人与未接种疫苗的人发生对立](/content/gnews/40/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [伊维菌素防治方案的研发者控告医院的处方禁令](/content/gnews/41/README.md)
- ` GTV新闻访谈`
-
-### [奥地利数万民众示威，抗议疫情封闭及强制疫苗新措施](/content/gnews/42/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [币圈新闻动态：布雷纳德可能被提名担任美联储主席](/content/gnews/43/README.md)
+### [每日快报：左派曾经用虚假新闻攻击川普总统](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [荷兰警察向抗议新冠病毒限制措施的公民开枪](/content/gnews/44/README.md)
- ` 墨尔本雅典娜农场`
+### [费城又现对华裔暴力事件，排华浪潮隐隐欲来](/content/gnews/8/README.md)
+ ` 澳喜农场`
 
-### [透露中共在中东建军事基地的是希望与美方合作的房峰辉](/content/gnews/45/README.md)
- ` NewFOC`
+### [【全字幕+视频】文贵2021年11月19日文贵大直播](/content/gnews/9/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线: 香港欲为3岁以上儿童接种疫苗](/content/gnews/46/README.md)
+### [中共国内儿童和青少年疫苗接种现状](/content/gnews/10/README.md)
+ ` 澳喜农场`
+
+### [2021-11-14《医学视角》栏目第十九期 直播精要 乙酰半胱氨酸及褪黑色素在新冠防治中的应用](/content/gnews/11/README.md)
+ ` 纽约香草山MOS03`
+
+### [立陶宛对中共降级立陶宛关系表示“遗憾”](/content/gnews/12/README.md)
+ ` 首尔天池农场`
+
+### [意大利成为帮中共国宣传的猎物](/content/gnews/13/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [因受疫情影响，亚洲旅游业在2020年遭受重创](/content/gnews/14/README.md)
+ ` 首尔天池农场`
+
+### [喜联储是中心化的行政体制](/content/gnews/15/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [习近平为“保龙椅”调任亲信王小洪接管公安部](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文化大革命创新版，坚持皇帝制](/content/gnews/17/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [首届中共网络文明大会，文革数字版升级](/content/gnews/18/README.md)
+ ` 澳喜农场`
+
+### [共和党参议院候选人称福奇是“大屠杀凶手”](/content/gnews/19/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [有声|与法币长期共存 喜币将全球通行](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [有声|文贵先生20年前已投资AMD芯片 用远见把握着世界的命脉](/content/gnews/21/README.md)
+ ` MOSREC`
+
+### [有声|欧盟组建联合部队应对中共](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [布罗陀接种率已达100% 现敦促取消圣诞庆祝活动](/content/gnews/23/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [瑞典研究表明注射第二针后死亡率高20%](/content/gnews/24/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [秘翻在线：纽约时报揭露亨特·拜登曾帮助中共公司收购刚果的一座钴矿](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [班农先生的重点事件](/content/gnews/47/README.md)
+### [中共国下调与立陶宛的外交关系](/content/gnews/26/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [郭文贵-让中共闻风丧胆的战神，中共猎狐行动第一目标](/content/gnews/27/README.md)
+ ` mary202064`
+
+### [疑似回应中俄军演，美日澳加德五国将在日本周边海域联合军演](/content/gnews/28/README.md)
+ ` 首尔天池农场`
+
+### [中共垮塌始于地产崩盘，历年人口数据造假如今骗倒自己（三）](/content/gnews/29/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声| 从血洗示剑的启示谈化解排华危机](/content/gnews/30/README.md)
+ ` MOSREC`
+
+### [COVID-19 最新情报｜围堵韩国疾控中心主任座驾 家属誓为死者寻找真相和公义](/content/gnews/31/README.md)
+ ` G&#124;News TAIWAN`
+
+### [印度总理同意废除农业法，意味平民运动的一次胜利](/content/gnews/32/README.md)
+ ` 澳喜农场`
+
+### [美国陆军将对未接种疫苗的军人采取纪律处分程序](/content/gnews/33/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [班农先生指出法治基金和法治社会的重要性](/content/gnews/34/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [立陶宛模式奠定中共不做正房改做偏房的国际关系新模式](/content/gnews/35/README.md)
+ ` NewFOC`
+
+### [中共推出所谓治新冠病毒药物VV116、FB2001及普克鲁胺](/content/gnews/36/README.md)
+ ` NewFOC`
+
+### [白宫要求中共交待彭帅下落](/content/gnews/37/README.md)
+ ` GTV新闻访谈`
+
+### [美加强与印太、日本经贸 向中共施压](/content/gnews/38/README.md)
+ ` GTV新闻访谈`
+
+### [11名澳大利亚护士对COVID疫苗的副作用爆料：我们被告知不要谈论我们所看到的东西](/content/gnews/39/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美两党议员联合推动台湾加入国际货币基金组织](/content/gnews/40/README.md)
+ ` GTV新闻访谈`
+
+### [欧洲的中共病毒危机使已接种疫苗的人与未接种疫苗的人发生对立](/content/gnews/41/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [伊维菌素防治方案的研发者控告医院的处方禁令](/content/gnews/42/README.md)
+ ` GTV新闻访谈`
+
+### [奥地利数万民众示威，抗议疫情封闭及强制疫苗新措施](/content/gnews/43/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [币圈新闻动态：布雷纳德可能被提名担任美联储主席](/content/gnews/44/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [荷兰警察向抗议新冠病毒限制措施的公民开枪](/content/gnews/45/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [透露中共在中东建军事基地的是希望与美方合作的房峰辉](/content/gnews/46/README.md)
+ ` NewFOC`
+
+### [秘翻在线: 香港欲为3岁以上儿童接种疫苗](/content/gnews/47/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [班农先生的重点事件](/content/gnews/48/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文贵爆料 11.20：房峰辉曾警告美国：小心生化武器，中共要在中东建军事基地](/content/gnews/48/README.md)
+### [文贵爆料 11.20：房峰辉曾警告美国：小心生化武器，中共要在中东建军事基地](/content/gnews/49/README.md)
  ` 秘密翻译组-原创组`
 
-### [班农先生的政治理念](/content/gnews/49/README.md)
+### [班农先生的政治理念](/content/gnews/50/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [球星坎特持续抨击中共人权问题 批詹姆斯“金钱高于道德”](/content/gnews/50/README.md)
+### [球星坎特持续抨击中共人权问题 批詹姆斯“金钱高于道德”](/content/gnews/51/README.md)
  ` 日本东京方舟农场`
-
-### [2021/11/19 墙内世界](/content/gnews/51/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [鲍里斯·爱普施坦在战斗室节目力挺盖特GETTR](/content/gnews/52/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

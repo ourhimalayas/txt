@@ -2,109 +2,21 @@
 ---
 
 
-## 喜联储是中心化的行政体制
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682537/)
+## 中共国内儿童和青少年疫苗接种现状
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1682576/)
 
-[https://gtv.org/video/id=6199cfa2e6900076612dcd75](https://gtv.org/video/id=6199cfa2e6900076612dcd75)
+撰稿：自由战士
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture2-8.png)（图片来自网络）
+截止2021.11.21日下午16:00，中共国内的疫苗累计接种24.3亿剂，比起上日新增783.5万剂，目前每百人接种168.88剂，也就是说超过两剂的人群基本覆盖人口的70%左右，全部人群覆盖率达到了86.9%。这个数据根本没有能够迎来群体免疫和百姓的出行自由。大家知道在中共十六大召开前夕，各地迎来了一波全国范围的疫情爆发，这波疫情我们要追溯到9月11日的福建莆田市仙游县枫亭镇一小学2名学生阳性开始的两个多月的封城排查。但是经过这次事件后，就开始了全国部分地区相继出现感染 爆发，而且不约而同的都是儿童青少年感染。如此诡异的情况，我们下面来详细深入分析。
 
-郭文贵
-Miles Guo
+首先，大家可以看到目前中共墙内的成年人的疫苗接种率已经接近100%，下一步的计划需要进一步推广接种范围，增加盗国贼控制的医药集团的财富搜刮，只能把接种年龄进一步下探。为此需要对大面积接种做好铺垫，因此就有了莆田和全国各地的学校感染事件。通过控制的新闻媒体对百姓心里防线进行一次全面打击，让大家首先接受，病毒已经开始感染未成年人。与此同时中共利用所谓的海外媒体，在墙内大量宣传，目前全球多国已经开始低龄儿童的疫苗接种计划，加上世界卫生组织同步背书宣传。整体达到了第一波的宣传目的。
 
-告诉你，所有全人类只要是货币都是中心化的
-I tell you, all human beings’ currency are all centralized
+其次，在学校推广，通过国家教育机关，层层下达硬性任务，最终任务指标安排到每个教师和班主任的头上，以前安排作业和家长沟通的微信群，就立即变成了监督疫苗接种进度的群。班主任每天一早的 第一条信息就是催促未接种的孩子尽快安排接种，然后后面就是接种后的排名情况，甚至有的学校居然还发奖状来鼓励孩子尽快接种。中共利用教师这个伟大受人尊敬的职业开启了屠杀模式。令人发指。
 
-只要是货币就是中心化，数字货币就是去中心化的，也有中心化的
-As long as the currency is centralized, the digital currency is decentralized, and there is also centralized
+最后，在威逼利诱和恐吓的情况下，家长为了孩子在学校不被歧视或者退学，被逼去接种了疫苗，但是在网上随后出现了大批异常反应，有的接种后，晚上开始高烧不退；有的孩子一直流鼻血，心肺严重受损，几乎失去自理能力；有的甚至接种后咳嗽发烧，然后在10天后直接去世 。这些异常的反应刚刚在媒体发声出来很快即被删除消息。当灾难来临的时候，就是一个家庭的彻底破灭。中共不灭，灾难不止。为了自己和孩子的未来，认清病毒和疫苗，这个是被邪恶中共一手策划的人类灾难。不要因为自己的无知葬送了整个家庭和孩子的 未来。
 
-你们要意识到，喜联储它是中心化的行政体制
-You have to realize that Himalaya Reserve is a centralized administrative system
-
-它的价值太大了，就是一个去中心化的币
-Its value is too large, it is the decentralized coin
-
-但有人承担责任，这是为什么喜美元和世界要为此所震撼
-But someone takes responsibility, that’s why H dollar make the world so shocked by it
-
-是完全一个去中心化的技术，数字化货币就是分散式账本
-It is a completely decentralized technology, and digital currency is the distributed ledger
-
-不是中心化的账本，谁也拿不走，谁也偷不走，谁也不可监控
-it is not a centralized ledger, no one can take it away, no one can steal it, and no one can monitor it
-
-而且是全球化的，说当然是中心化的
-And it’s global, of course it’s centralized
-
-但是这件事如果有了问题，谁负责任，有一个中心化的责任，在那呢
-But if there is a problem, say responsible, there is a centralized responsibility, where is it?
-
-叫行政中心化，但是，只要是喜联储，它现在发行把喜币变成中心化纸币
-It’s called administrative centralization, but as long as it is the Himalaya Reserve, it is now issuing to turn H-Coins into centralized banknotes
-
-它印出来纸币来，就叫中心化的，他们早就在准备中会发纸币的
-When it prints out paper money, it is called centralized, they will issue paper money, it is in preparation for a long time
-
-甚至是金币都会发，就是什么，你拥有去中心化的资产
-Even gold coins will be issued, what is it, you own decentralized assets
-
-在某种条件下，又给你中心化性可衡量的资产，
-Under certain conditions, it gives you centralized and measurable assets
-
-一定不是印的钞票，它是可兑现的，
-It must not be the printed banknote, it is cashable
-
-比如说你拿了一万个币，印成了一个一万币的券
-For example, you took ten thousand coins and printed a ten thousand coins notes
-
-这一万个币券里面就你可以拿回来，你也可以拿走一万币和拿走等同一万币的资产
-You can take back this ten thousand currency notes, you can also take away ten thousand coins and take away assets of the same ten thousand coins
-
-包括大家现在最担心，也是最想的，未来提现你们想到的
-Including what everyone worries about now, and what you think about most that cash withdrawal in the future
-
-比如说用的金币，它发行，它一定不是全流通
-For example the circulated gold coin, it issued that it must not be fully circulated
-
-只给一些一定的客户，和大家有级别使用有选择使用的那些金币
-It is only for certain customers, and everyone has the level to use and choose to use those gold coins
-
-大家可以拿到，就是任何情况下，你可以完全中性化的交易
-Everyone can get it, that means under any circumstances, you can completely neutralized the transaction
-
-就草根小哥手滑手的，我给QMAY中心化的币
-As for Caogen brother gives QMAY centralized currency
-
-拿到手就是你的一个完全去中心化的技术，
-Using a completely decentralized technology
-
-管理体制和未来中心化的流通的币，区块链它厉害的
-The management system and the future centralized circulation of the coins, the blockchain is powerful
-
-叫全球的，谁也不可查，不可控，去账本化，去中心化的账本化管制叫区块链
-It’s called global transactions, no one can check it, uncontrollable, de-booking, decentralized book ledger control is called blockchain
-
-区块链就是全球账本化，没有中心化的账本，不可控的
-Blockchain is a global ledger, without a centralized ledger, it is uncontrollable
-
-* * *
-
-Date:11/19/2021
-原视频标题: 喜联储是中心化的行政体制
-Himalaya Reserve is a centralized administrative system
-原视频日期：2021/11/17
-原视频链接 [https://gettr.com/post/ph99osbf29](https://gettr.com/post/ph99osbf29)
-任务编号：KC272（2930）
-视频时间段 : 0:00-2:19
-英听校：洛杉矶盘古农场 – Layka
-翻译：洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+发布：Runaway
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
