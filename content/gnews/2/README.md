@@ -2,49 +2,42 @@
 ---
 
 
-## 伊利诺伊州养老金缺口超过 5000 亿美元，现在每个家庭的平均债务负担为 110,000 美元
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1683687/)
+## 青蒿趣谈
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1683745/)
 
-作者：泰勒·杜登
+2021-11-21
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/illinois-edited.jpg)图片来源：网络
-伊利诺伊州刚刚达到了一个令人震惊的里程碑：现在伊利诺伊州的每个家庭平均有 110,000 美元的政府工作人员退休债务。 这个数字是将伊利诺伊州 5300 亿美元的州和地方退休金缺口分配给该州 490 万个家庭的结果。  2019 年每个家庭的负担为 90,000 美元。
+整理总结资料：Elli
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-543-edited.png)图源：网络/筱雅美食
 
-根据 Wirepoints 对穆迪投资者服务公司债务估计的分析，伊利诺伊州的退休债务在 2020 年增加到 5300 亿美元。 这是信用评级机构对伊利诺伊州退休债务（由州和地方层面的养老金和退休人员健康短缺构成）的估计首次突破 5000 亿美元。
+> “青蒿素是中医药送给世界人民的礼物。”
+> — 屠呦呦（因发现青蒿素而获得诺贝尔科学奖）
 
-与 2019 年相比，伊利诺伊州的缺口增加了近 1000 亿美元，这主要是由于 COVID 危机导致利率下降。 尽管市场复苏，伊利诺伊州的短缺预计将在 2021 年继续偏高。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/500-B-Chart-1680x840-1.png)
-伊利诺伊州的退休债务增加到 50 亿美元，再次严峻地提醒人们，立法者拒绝解决养老金危机对普通居民造成了真正的伤害。 这些巨额债务直接导致了伊利诺伊州的其他危机，包括该州的信用评级是全美最差的，财产税是全美第二高的，以及实际房屋价值下降最严重的全美第五。
 
-养老金危机也间接导致了创纪录的外迁率和自 2010 年以来全国第二大人口流失。
+屠呦呦研究的青蒿学名为Artemisinin Annua，而常用的英文名字为wormwood，泛指艾草，艾蒿，青蒿，中亚苦蒿等好几种菊科植物。Wormwood在圣经启示录里被翻译为茵陈，讲述第三位天使吹号后，一颗名叫茵陈（wormwood艾草本身很苦，所以翻译为茵陈，也为苦的意思）的星星坠落到地球上，使三分之一的河流和泉水变成苦涩的，英文原文是：The third Angel trumpeted. A huge Star, blazing like a torch, fell from Heaven, wiping out a third of the rivers and a third of the springs. The Star’s name was **Wormwood**. A third of the water turned bitter, and many people died from the poisoned water.
 
-此外，不断增长的债务表明超过 100 万伊利诺伊州政府工作人员和退休人员的退休保障已经崩溃。
+Artemisia这个词来自古希腊语ἀρτεμισία，词源来自Ἄρτεμις（Artemis）。在希腊文化中，阿尔忒弥斯是狩猎女神、森林和儿童的保护神。
 
-根据皮尤慈善信托基金的数据，伊利诺伊州的州级养老金只有 39% 的资金到位，是全国最低的。
+青蒿与艾草同为菊科植物，两者都带有一个“蒿”字，青蒿的学名叫蒌蒿，而艾草学名为艾蒿。而且都喜欢生长在田埂地边、池塘边等土壤水分丰富的地方。青蒿和艾草均为药食兼用植物，有清热祛风和消毒的作用。在实际生活中，人们将青蒿视为春天最受欢迎的野味之一，“烂烝香荠白鱼肥，碎点青蒿凉饼滑”，以青蒿嫩尖制作的粑粑和青团为湖南、江浙等地的特色传统美食。而艾草很少食用，大多时候作为除湿祛寒和驱蚊灭菌的天然药材，尤其是在蒸熏中运用较多。青蒿和艾草都有特殊的香味，一般不会直接散发出来，只有将它们的叶子碾碎后，味道才会释放。同样是香气，但两种香气截然不同，放在鼻子上嗅一嗅，会感到它们明显的差别。青蒿有一种带有清凉的淡淡清香，令人非常舒服；而艾草的香气比较浓郁，虽也有清凉感但伴有辛辣气，气味比较厚重。
 
-总的来说，伊利诺伊州 5300 亿美元的州和地方退休金缺口包括：
+参考链接：
 
-伊利诺伊州的五个国有养老基金——3130 亿美元
+[青蒿網站：https://www.artemisiaannua.org](https://www.artemisiaannua.org)
 
-州退休人员健康保险——550 亿美元
+[艾草在聖經啓示錄中的內容](https://www.biblegateway.com/quicksearch/?quicksearch=wormwood&amp;version=MSG)
 
-国家养老金义务债券——90亿美元
+[YouTube視頻：University of Kentucky：Cancer, COVID and the Kentucky Economy: How “Sweet Annie” Could Make an Impact](https://www.youtube.com/watch?app=desktop&amp;v=3fSAQorkDqc)
 
-芝加哥和库克县的养老金和退休人员健康——1220 亿美元
+[青蒿和艾草的區別](https://3g.163.com/dy/article/G5CD872B0542ROII.html?spss=adap_pc)
 
-其他地方政府养老金和退休人员健康——320 亿美元。
+[中医带你认识艾叶艾绒和艾条](https://zhuanlan.zhihu.com/p/45447799?back=https%3A%2F%2Fwww.google.com%2Fsearch%3Fclient%3Dsafari%26as_qdr%3Dall%26as_occt%3Dany%26safe%3Dactive%26as_q%3D%E8%89%BE%E6%9D%A1%E6%98%AF%E7%94%A8%E8%89%BE%E8%8D%89%E5%81%9A%E5%87%BA%E6%9D%A5%E7%9A%84%E5%90%97%26channel%3Daplab%26source%3Da-app1%26hl%3Dzh_CN)
 
-来源链接：[https://t.co/VZkXoafVcd](https://t.co/VZkXoafVcd)
+[維基百科-中亚苦蒿](https://zh.wikipedia.org/zh-hant/中亚苦蒿)
 
-编辑/发布：LILY
+[維基百科-*Artemisia absinthium*](https://en.wikipedia.org/wiki/Artemisia_absinthium)
 
-20211121
+校对发布：MQ
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
-
-
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
