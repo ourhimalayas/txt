@@ -2,46 +2,34 @@
 ---
 
 
-## 伊维菌素防治方案的研发者控告医院的处方禁令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1681882/)
+## 欧洲的中共病毒危机使已接种疫苗的人与未接种疫苗的人发生对立
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1681943/)
 
-作者： 纽约香草山文艺部 – 宁文静
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-92.png)
+图片来源：网络截图
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-155.png)
+据美联社布鲁塞尔11月20日报道，随着许多国家的病例飙升到创纪录的水平，欧洲大陆成为中共病毒大流行病的全球震中。尽管有近两年的限制，但随着感染率再次飙升，这场健康危机正日益使公民与公民对立起来，已接种疫苗者与未接种疫苗者的对立。
 
+急于保护负担过重的医疗系统的绝望的政府正在实施限制未接种疫苗者选择的规则，希望这样做能推动疫苗接种率的提高，殊不知疫苗才是真正中共病毒传播的载体。
 
+奥地利在周五规定从2月1日起必须接种疫苗，从而成为欧盟中唯一一个强制接种疫苗的国家。奥地利总理愚蠢的认为这是永远摆脱这种病毒浪潮和封锁讨论的恶性循环的唯一途径。
 
-当地时间11月18日，“前线新冠重症监护联盟”的首席医疗专家保罗·马瑞克医生，出席了弗吉尼亚州巡回法庭在诺福克的听证会，为其所发起的诉讼作证。
+从周一开始，斯洛伐克禁止未接种疫苗的人进入所有非必需的商店和购物中心。他们也将不被允许参加任何公共活动或集会，并且每周仅在上班时就需要进行两次测试。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-8.png)
+德国现在正处于全国性的紧急状态，其疾病控制机构负责人认为需要拉动紧急刹车。德国现在正在考虑对许多卫生专业人员进行强制性疫苗接种。
 
-11月9日，马瑞克医生向弗吉尼亚州巡回法院提交了诉讼，控告他所供职的森塔拉医疗系统——诺福克综合医院——禁止医生为新冠病人提供伊维菌素的行为。
+希腊也在针对未接种疫苗的人，其总理周四晚些时候宣布了一系列针对未接种疫苗者的新限制措施，不让他们进入包括酒吧、餐馆、电影院、剧院、博物馆和健身房在内的场所，即使他们的测试结果为阴性。
 
-马瑞克医生担任诺福克综合医院重症监护科主任一职已逾16年。自新冠疫情爆发以来，马瑞克医生综合大量治疗实例和已发表的临床试验结果，与其他合作者共同提出了基于伊维菌素、氟伏沙明等药物的新冠病毒防治指南——MATH+和I-MASK（编者按：按照字母来读，+读作plus，-不读）。
+这些限制激怒了欧洲议会公民自由和司法委员会成员、爱尔兰的欧盟立法者克莱尔·戴利。她认为，各国正在践踏个人权利并且正在排除人们去工作的能力。她称奥地利在周五决定全面封锁之前对未接种疫苗者的限制是 “一个可怕的场景”。
 
-然而，当伊维菌素在印度、日本等国成功遏制病毒扩散、挽救千万生命之时，马瑞科医生所在的诺福克综合医院却以行政命令的形式禁止医生向新冠患者提供伊维菌素等药物。马瑞克医生表示，这一禁令妨害了患者在医生的指导下做出医疗决策的权力，患者或因无法获得有效的药物而付出无谓的牺牲。
+即使是在爱尔兰，75.9%的人口完全接种了疫苗，她也感觉到了对坚持不大疫苗者的反对。她认为有一种针对未接种疫苗者的仇恨言论被煽动起来。本周，约有一万人争取自由的民众聚集在布拉格，抗议捷克政府对未接种疫苗者施加的限制。
 
-据悉，弗吉尼亚州法律明确表明，主治医生有权使用他们认为适当的治疗方案。本台将跟踪报导该案件的审理进展。
+所谓“没有任何一种个人自由是绝对的“的这一荒谬论调正在使朋友们彼此疏远，并使欧洲各国的家庭分裂。
 
-参考链接：
+评：全世界随着中共疫苗普及率的大幅提高，中共病毒的传播不降反升，暗黑势力控制了主流媒体来掩盖中共病毒疫苗的真相。全世界只有新中国联邦在传播中共病毒和疫苗的真相。随着中共病毒疫苗灾难的到来，人们最终会了解真相，中共和其勾结的邪恶暗黑势力必将受到惩罚。
 
-- [Top doctor banned from treating COVID patients with ivermectin brings lawsuit to court today](https://www.lifesitenews.com/news/top-doctor-banned-from-treating-covid-patients-with-ivermectin-brings-lawsuit-to-court-today/)
-- [The FLCCC Physicians](https://covid19criticalcare.com/about/the-flccc-physicians/)
-- [Norfolk doctor leading charge for controversial COVID-19 treatment faces off against Sentara in court](https://www.wtkr.com/investigations/norfolk-doctor-leading-charge-for-controversial-covid-19-treatment-faces-off-against-sentara-in-court)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
-
-总编：Zion文恩
-编辑：Zion文恩
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+新闻来源：[Europe’s COVID crisis pits vaccinated against unvaccinated](https://apnews.com/article/europe-coronavirus-vaccinated-vs-unvaccinated-eca483dc933075818334c74de26fb9c0)
 
  
 
