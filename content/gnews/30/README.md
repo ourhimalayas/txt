@@ -2,25 +2,27 @@
 ---
 
 
-## 有声| 从血洗示剑的启示谈化解排华危机
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1682358/)
+## 有声|与法币长期共存 喜币将全球通行
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1682466/)
 
-配音：香草山福音部 – Daxia
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-《旧约》创世记34章是非常血腥的一章，讲述示剑玷污底拿引发的屠城之灾，以及神的安排，这对当下华人面临的排华危机非常有启发。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在11月19日的大直播中，郭文贵先生再次强调了喜币在未来金融体系的重要地位。
 
-城主哈抹的儿子示剑，看上了雅各的女儿底拿，玷污底拿后到雅各家求婚。雅各的儿子们，不管什么条件都不解心头之恨，就用诡诈的计谋，骗哈抹让城里所有的男丁行割礼，才答应嫁妹妹底拿。割礼第三天，城里男丁疼痛之时，雅各的两个儿子，西缅和利未，把一切男丁都杀了，又用刀杀了哈抹和他儿子示剑，带走底拿，夺了他们的羊群、牛群和驴，并城里田间所有的，又把他们一切货财、孩子、妇女，并各房中所有的，都掳掠去了。
+郭先生表示，数字货币和法币将长期共存，但喜币具有技术“去中心化”、责任“中心化”的优势，必将会战胜其它有缺陷的虚拟币，形成与法币共生局面。最终，喜币将超越法币，在全球范围内流通。
+
+郭先生解释，喜币的区块链技术打破了限制货币流通的物理和地域限制。目前，任何国家都没有监管数字货币的法律和制度，但喜联储具备世界上最严格的KYC，能够保证每一笔交易的公开和透明。同时，喜币有喜美元作为稳定币，以及H-Pay作为支付系统，完全符合市场的定义，即根据供需双方的需求，在政府监管下进行基本公平的经济交易行为。
+
+另一方面，喜币——与法币不同——具有主动信任的特性，因此，喜币未来一定会超越法币，在全世界通行。再加上喜联储有能力制定未来数字货币的发行和交易规则，喜币将成就数字货币的“布雷顿森林”体系。
 
 
 
-**文字版原文：[【信仰之声】从血洗示剑的启示谈化解排华危机](https://gnews.org/zh-hans/1675116/)**
-
-
+文字版原文：[与法币长期共存 喜币将全球通行](https://gnews.org/zh-hans/1679439/)
 
 音频处理：喜山必胜Maverick
-发稿：雪梨
+发稿：呼吸的雾霾（文小呼吸）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -28,7 +30,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

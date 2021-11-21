@@ -2,157 +2,27 @@
 ---
 
 
-## 文化大革命创新版，坚持皇帝制
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682514/)
+## 费城又现对华裔暴力事件，排华浪潮隐隐欲来
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1682637/)
 
-[https://gtv.org/video/id=619933ade6900076612d8e6e](https://gtv.org/video/id=619933ade6900076612d8e6e)
+视频&文章：澳洲天好蓝
 
-你要看到十个坚持每一个字
-Debes ver cada letra de las diez persistencias
+11月17日美国费城地铁上发生了一起对华裔的暴力攻击事件，四名黑人女性对一群亚裔学生进行了辱骂殴打，大叫歧视性话语“FXXXING CHINA”。后来一名亚裔女生来阻止，结果被当成了攻击对象。据媒体后来报道，这名女生叫Tina Lu，祖籍地为福建省。
 
-就是两个宣布
-Se realiza dos anuncios
+据网上媒体报道：事件发生在17日下午3时30分左右，当Broad Street线列车行驶在Erie站附近时，四名站立在车厢中部的黑人女青年不停地向对面坐在座位上的三名亚裔学生挥拳、咆哮。
 
-中国停止任何的经济改革开放
-China cesa cualquier reforma económica y apertura
+其中一名被攻击的是费城中学一年级的14岁学生，出手阻止的Tina Lu是也是该校的高中三年级学生，结果被拖到车门处施暴，从流出来的图片可以看到，Tina Lu伤势挺吓人，眼角已经出血红肿。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture14-1.png)（网络图片）
+据媒体报道：SEPTA警方展开调查，正在与费城警察局和该地区的学校合作。SEPTA交通警察局长Thomas Nestel在周四下午的新闻发布会上说，录像中的四名女性嫌疑人年龄在13-16岁，正在等待指控，包括种族恐吓、严重袭击、简单袭击、鲁莽危害他人和恐怖威胁。
 
-记住啊, 从那一刻起
-Recuerden, a partir de ese momento
+随着CCP病毒与疫苗对全球带来越来越明显的伤害，这些伤害包括：人员死亡，染病或接种疫苗后的后遗症，失自由被封闭在家，对全球的经济重创，以及对未来的恐惧，全球对中国人的仇恨开始显著的上升，这都是因为外国人区分不了中共与中国人的不同，他们只知道病毒灾难是从中国武汉传播出来的，而且中共编造中国人吃蝙蝠被传染的谎言，至到目前为止，世界上几乎没有国家认真的去查病毒的来源，所以外国人对中国人的不满越来越多，就算现在没有大规模的表现出来，但是用不了多久就可能会被阴谋集团所利用，引起排华浪潮。就算不被利用，当中共制造病毒并释放全球的真相被接受的时候，外国人也会把自己遭受的苦难归咎于中国与中国人，中国人有可能成为世界上最不受欢迎的群体。
 
-中国人绝对是回到了文化大革命的时代
-Los chinos definitivamente regresaron a la era de la Revolución Cultural
+不过幸运的是爆料革命新中国联绑郭先生，力挽狂澜，运筹帷幄，世界上第一个揭露CCP病毒与疫苗真相，并创建新中国联邦，目的就是要区另中国人与中共的不同，并拯救世界，消灭中共，不但拯救中华民族，也拯救全世界！
 
-但是, 你看它这里面很有意思啊
-Pero mire que dentro de esto tiene su sentido
+引用参考：[恐怖！华裔女生见义勇保护男生，遭暴力围殴 头部被撞被砸](https://posts.careerengine.us/p/61983479befc266bc2a7c3f7)
 
-他认为文化大革命是一场过去的一种失败啊, 什么什么的
-Él cree que la Revolución Cultural es un fracaso del pasado
-
-但是他搞了个新的文化大革命
-Sin embargo, él ahora hizo una nueva Revolución Cultural
-
-很多人说习近平没有给文化大革命平反, 他就不搞文化大革命
-Mucha gente dice que, si Xi Jinping no reivindica la Revolución Cultural, no participaría en la Revolución Cultural
-
-这是脑子里进了狗屎了, 吃了我们Snow的狗屎才会说的话
-Esto implica que se le metió el excremento del perro en la cabeza, dijo estas palabras porque comió el excremento de nuestro Snow
-
-坚持坚决不改革开放, 没有任何改革的词语
-Insiste resueltamente a no reformar y abrirse, no hay ninguna palabra de reforma
-
-第二个, 最大的问题大家没有看到
-El segundo, no vieron el mayor problema
-
-坚持一党独裁
-Insiste a una dictadura de partido único
-
-中国搞了皇帝制
-China se ha comprometido con el sistema imperial
-
-习近平在那个新闻发布会已经宣布成神了, 成神话了
-Xi Jinping había declarado en esa conferencia de prensa que se había convertido en un dios, un mito
-
-在这之前, 有习近平跟着我太阳走的感觉
-Antes de esto, se siente que Xi Jinping me estaba siguiendo bajo el sol
-
-北京城搞了音乐会
-En la ciudad de Beijing se hizo un concierto
-
-而且北京几个我们唐平的那些哥们儿
-Y nuestros hermanos de Tang Ping en Beijing
-
-Qmay那个领域里面
-Dentro de ese ámbito de Qmay
-
-叫做乐坛, 音乐吐的痰
-Llamado la escena musical, el escupitajo de la música
-
-内部搞了上百次, 所谓中国音乐家, 艺术家
-Se hizo cientos de veces internamente, los llamados músicos y artistas chinos
-
-都带家
-En mandarín, estas palabras llevan la palabra “casa”
-
-都带家的啊, 音乐家, 艺术家
-Como músicos y artistas
-
-中国共产党所谓过去, 若干决定当中的一些思考
-El llamado pasado del PCCh, en cuanto a sus decisiones y pensamientos
-
-上百起都是主题, 跟着我的太阳走
-Más de cien tópicos son “siguiendo los pasos de mi sol”
-
-太阳啊
-Sol
-
-习近平已经是太阳了
-Xi Jinping ya es un sol
-
-月亮都不当了
-Ya no quiere ni siquiera ser luna
-
-咱最多做了个梦
-Nosotros por más que sea sólo soñamos
-
-咱叫H-coin to the moon
-Nosotros llamamos H-coin a la luna
-
-他是H-coin to the太阳
-Él es H-coin al sol
-
-哇赛, 比我大多了
-¡Wow! Es más grande que yo
-
-我们这词叫Qmay, 唐平整太小了
-Este vocabulario lo decimos Qmay, Tang Ping lo hizo muy pequeño
-
-人家是去太阳, 咱是月亮
-Ellos van a donde está el sol y nosotros es la luna
-
-月亮围着太阳转, 完了吧
-La luna gira alrededor del sol, esto se acabó
-
-你输了吧
-Ya perdiste
-
-这共产党吹牛, 吹太大了
-Este Partido Comunista se jacta, se jacta demasiado
-
-这种结果是什么
-Cuál es su resultado
-
-中国回到了绝对的皇帝制
-China regresó absolutamente al sistema imperial
-
-十个坚持的结果. 坚决不改革开放
-El resultado de diez insistencias, resiste no cambiar a la revolución y la apertura
-
-坚决把私有经济灭掉, 控制中国的一切
-Insiste eliminar a la economía privada y controlar todo de China
-
-坚持绝对的皇帝制
-Se insiste al sistema de emperador absoluto
-
-* * *
-
-日期：11/20/2021
-原视频标题：文化大革命创新版，坚持皇帝制
-Versión innovadora de la Revolución Cultural, insistir al sistema del emperador
-原视频日期：11/19/2021
-原视频网址：[https://gettr.com/post/phdgzc0535](https://gettr.com/post/phdgzc0535)
-任务编号：KC274(2946)
-视频时间段：0:00-2:19
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+发布：Runaway
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

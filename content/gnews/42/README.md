@@ -2,46 +2,28 @@
 ---
 
 
-## 伊维菌素防治方案的研发者控告医院的处方禁令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1681882/)
+## 11名澳大利亚护士对COVID疫苗的副作用爆料：我们被告知不要谈论我们所看到的东西
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682130/)
 
-作者： 纽约香草山文艺部 – 宁文静
+据《thecovidworld.com》，2021年11月20日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-514-e1637468058858.png)图片源自原文
+**在一段令人震惊的视频中，来自澳大利亚昆士兰州的11名护士和护理人员站出来，讲述了他们注射COVID-19疫苗的经历。这些护士的身份被遮住了，因为他们不敢说出来，但他们的身份在拍摄前被检查过并确认。在一系列令人痛心的故事中，护士们讲述了他们如何看到死亡和受伤的人堆积如山，但没有人被允许谈论此事。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-515-e1637468114282.png)图片源自原文
+护士们进一步表示，医院不再在入院病例上标注接种状态，医院的抢救警报器也被禁用，以避免吓到排队等候接种的人。此外，对于严重的不良反应，根本没有报告机制。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-155.png)
+**疫苗开始推广后，他们开始看到越来越多的中风病例，尤其是年轻人，神经系统疾病、心脏病发作、肺部充满液体、内出血、肠子和鼻子的外部出血以及人们通过大血块。一名护士描述说，超过50%的病人在接受疫苗接种后看起来”严重不适”，其中一些人在接受注射后晕倒在医院。 许多护士描述说，他们宁可失去工作也不愿意打针，有些人承认他们再也不会在医疗保健领域工作了。**
 
+原文连接：[https://thecovidworld.com/11-australian-nurses-blow-the-whistle-on-covid-vaccine-side-effects-we-were-told-not-to-talk-about-what-we-had-seen/](https://thecovidworld.com/11-australian-nurses-blow-the-whistle-on-covid-vaccine-side-effects-we-were-told-not-to-talk-about-what-we-had-seen/)
 
+翻译：洛杉矶盘古农场- TrueSky
 
-当地时间11月18日，“前线新冠重症监护联盟”的首席医疗专家保罗·马瑞克医生，出席了弗吉尼亚州巡回法庭在诺福克的听证会，为其所发起的诉讼作证。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-8.png)
-
-11月9日，马瑞克医生向弗吉尼亚州巡回法院提交了诉讼，控告他所供职的森塔拉医疗系统——诺福克综合医院——禁止医生为新冠病人提供伊维菌素的行为。
-
-马瑞克医生担任诺福克综合医院重症监护科主任一职已逾16年。自新冠疫情爆发以来，马瑞克医生综合大量治疗实例和已发表的临床试验结果，与其他合作者共同提出了基于伊维菌素、氟伏沙明等药物的新冠病毒防治指南——MATH+和I-MASK（编者按：按照字母来读，+读作plus，-不读）。
-
-然而，当伊维菌素在印度、日本等国成功遏制病毒扩散、挽救千万生命之时，马瑞科医生所在的诺福克综合医院却以行政命令的形式禁止医生向新冠患者提供伊维菌素等药物。马瑞克医生表示，这一禁令妨害了患者在医生的指导下做出医疗决策的权力，患者或因无法获得有效的药物而付出无谓的牺牲。
-
-据悉，弗吉尼亚州法律明确表明，主治医生有权使用他们认为适当的治疗方案。本台将跟踪报导该案件的审理进展。
-
-参考链接：
-
-- [Top doctor banned from treating COVID patients with ivermectin brings lawsuit to court today](https://www.lifesitenews.com/news/top-doctor-banned-from-treating-covid-patients-with-ivermectin-brings-lawsuit-to-court-today/)
-- [The FLCCC Physicians](https://covid19criticalcare.com/about/the-flccc-physicians/)
-- [Norfolk doctor leading charge for controversial COVID-19 treatment faces off against Sentara in court](https://www.wtkr.com/investigations/norfolk-doctor-leading-charge-for-controversial-covid-19-treatment-faces-off-against-sentara-in-court)
+校对&编辑：洛杉矶盘古农场 – 小象的奶品
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-总编：Zion文恩
-编辑：Zion文恩
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

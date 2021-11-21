@@ -2,33 +2,21 @@
 ---
 
 
-## 有声|欧盟组建联合部队应对中共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1682461/)
+## 立陶宛对中共降级立陶宛关系表示“遗憾”
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1682552/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间11月15日，欧盟在防长会议上确认，为了在2025年前成立一支可达五千人的联合部队，欧盟已经设定了具体的执行蓝图和时间表。
+韩国首尔天池农场—虎眼　校对/上传—无明逆流
 
-欧盟表示，这支联军旨为北约作补充，并且在减少欧盟对美国依赖的同时，重点为在印太地区应对中共提供更多可能性。欧盟代表强调，与北约互补意味着欧盟具备建立共同安全和国防政策的雄心，在必要时能够单独使用自己的能力。
+中共外交部在21日发声明将中立两国外交关系降为代办级。中共外交部声明如下↓
+![](https://assets.gnews.org/wp-content/uploads/2021/11/９b34c74474791.jpg)（2021年11月21日）
+在中共利用外交强权对立陶宛威逼利诱无用之后，无可奈何的中共外交部发表声明对立陶宛进行制裁，声明中称立陶宛无视了中国政府的立场，执意设立台湾“代表处”，在国际上制造了台独的先例，中方为了维护自己的主权不得不将立中关系降至“代办级”，立陶宛政府必须承担由此产生的一切后果。
 
-根据欧盟“战略指南”计划，到2025年，欧盟应发展出一支由海、陆、空三军组成的，名为“欧盟快速部署能力”的部队，其中还将包括远程军用航空运输、空间通信技术和情报能力等部分。另一方面，作为西方战略应对中共军事崛起的一部分，欧盟计划于2023年前，将在印太地区开展更多的欧洲海军协调联动、海上军演和巡逻。
+中共在声明最后又升级了对台湾的定论，称“台湾从来都不是一个国家！”无论“台独势力”如何颠倒黑白、歪曲事实，都改变不了台湾和大陆都属于同一个中国的历史事实。
 
+中共发表声明过后，立陶宛官方也在21日表示，对于中方将立中两国外交关系降为代办级的决定表示“遗憾”。
 
+什么是“外交关系降为代办级？”降为代办级关系是指两国的外交关系从友好下降到了恶劣甚至对立的状态，这里指中共政府主动降低了对立陶宛的外交友好度。国家之间外交级别一般分为五级：盟国、大使级、代办级、断交，外交关系降级是由一国对另一国单方面行使的外交权利。
 
-文字版原文：[欧盟组建联合部队应对中共](https://gnews.org/zh-hans/1680745/)
-
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
-
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,79 +2,156 @@
 ---
 
 
-## 郭文贵-让中共闻风丧胆的战神，中共猎狐行动第一目标
-` mary202064` [轉載自GNews](https://gnews.org/zh-hans/1682387/)
+## 文化大革命创新版，坚持皇帝制
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682514/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/anticcp2-1_副本.png)
-郭文贵先生，亿万富翁、持不同政见者和最著名的爆料人，是中共国全球猎狐行动的第一目标。猎狐行动是指派受过专业训练的中共特务，到海外追捕被中共诬陷的所谓中共国的敌人或罪犯。
+[https://gtv.org/video/id=619933ade6900076612d8e6e](https://gtv.org/video/id=619933ade6900076612d8e6e)
 
-猎狐行动团队不会遵守其他国家的法律或法规，而是非法跟踪、监视或威胁个人或家庭，将他们带回中共进行酷刑或刑事指控。
+你要看到十个坚持每一个字
+Debes ver cada letra de las diez persistencias
 
-在大多数情况下，猎狐行动成员会利用其当地盟友，以金钱、名望或其他方式诱惑他们进行合作，将猎狐目标引诱到他们的猎捕陷阱中。
+就是两个宣布
+Se realiza dos anuncios
 
-过去70年来，14亿中国人民中，郭文贵绝对是一个真正的英雄。自2016年以来，以勇气和决心，公开勇敢地挑战共产党作为执政党的合法性，这在中共建政后尚属首次。
+中国停止任何的经济改革开放
+China cesa cualquier reforma económica y apertura
 
-郭文贵先生作为一个深知中共在国内外偷盗、抢劫、欺骗的知情人，毅然挺身而出，几乎牺牲了一切，大声疾呼，联合世界正义联盟灭掉邪恶中共，解放14亿中国人民，唤醒人类。
+记住啊, 从那一刻起
+Recuerden, a partir de ese momento
 
-为什么郭文贵是中共猎狐行动的第一目标？中共为何在全球范围内启动隐藏的间谍网络追捕郭文贵先生？为什么中共不惜暴露培植多年的西方精英同盟，也要恶毒而疯狂地攻击郭文贵先生？为什么会有那么多从西方民主中受益的所谓海外华人异见人士和虚名的民主斗士，突然站出来千方百计玷污、抹黑、陷害郭文贵先生？
+中国人绝对是回到了文化大革命的时代
+Los chinos definitivamente regresaron a la era de la Revolución Cultural
 
-事出反常必有妖。中共倾尽一国之力来对付一个郭文贵先生，不惜启动间谍网，不遗余力地收紧猎狐行动，其恶毒目的不言而喻。
+但是, 你看它这里面很有意思啊
+Pero mire que dentro de esto tiene su sentido
 
-1. 中共不能接受任何人的直接挑战或批评，因为中共的本性是狂妄、杀戮、自卑和无耻。郭先生领导的爆料革命，扎到了中共的痛处，不仅让一大批中国人看清了中共的本来面目，也唤醒了很多世界上正义的力量。
+他认为文化大革命是一场过去的一种失败啊, 什么什么的
+Él cree que la Revolución Cultural es un fracaso del pasado
 
-郭文贵先生彻底揭露中国被一群流氓黑社会集团所统治，而这个流氓黑社会集团又被几个、十几个、几十个盗国集团所统治，而这些黑帮集团统治中国的方式是以黑治国、以假治国、以警治国，以贪反贪，这个黑帮集团将黑暗的、反人类的、反智的商鞅五策——愚民、弱民、贫民、苦民、辱民运用到了极致。
+但是他搞了个新的文化大革命
+Sin embargo, él ahora hizo una nueva Revolución Cultural
 
-这个黑帮集团的头目穷奢极欲、视人命如草芥，用国家机器为个人家族服务。这个流氓黑社会集团是中国亿万人民苦难的根源，是无数像杨改兰这样的草根含恨离开人世、没有半点生存空间的根源，是中华优秀文化被彻底摧毁、伦理美德被摧毁的根源，是中国思想萎缩、艺术创作凋零、假冒伪劣产品泛滥以及人伦悲剧盛行的根源。
+很多人说习近平没有给文化大革命平反, 他就不搞文化大革命
+Mucha gente dice que, si Xi Jinping no reivindica la Revolución Cultural, no participaría en la Revolución Cultural
 
-爆料革命清楚地告诉中国人，只有推翻共产党的统治，中国人民才能有美好的未来，中国人才能在国际上扬眉吐气，重新融入国际主流社会。中共不灭，天理不容。
+这是脑子里进了狗屎了, 吃了我们Snow的狗屎才会说的话
+Esto implica que se le metió el excremento del perro en la cabeza, dijo estas palabras porque comió el excremento de nuestro Snow
 
-2. 郭文贵先生领导的爆料革命让觉醒的中国人和正义力量窥探了中共征服世界的野心和血腥肮脏的秘密。
+坚持坚决不改革开放, 没有任何改革的词语
+Insiste resueltamente a no reformar y abrirse, no hay ninguna palabra de reforma
 
-习近平、王岐山、江泽民等中共核心大佬们，无法忍受以一己之力挑战中共合法性和权威性的郭文贵先生。郭文贵积蓄了近30年的力量连续4年持续爆料，已经让中共在世界面前脱掉了皇帝的新衣裸奔，彻底揭穿了在中共企图征服世界的野心。
+第二个, 最大的问题大家没有看到
+El segundo, no vieron el mayor problema
 
-以美国为代表的西方世界习惯了自己的优势地位，习惯了当世界老大，傲视群雄。谁能想到一直伪装第三世界的中共悄悄布置了天罗地网，要与美国共管共治甚至独治这个世界。
+坚持一党独裁
+Insiste a una dictadura de partido único
 
-郭文贵先生之前，世界知道什么是蓝金黄吗？知道什么是3F计划？知道一带一路的本质是什么吗？知道海航是间谍企业吗？知道中共想要征服香港和台湾的企图吗？知道遍布全球的孔子学院的险恶用心吗？
+中国搞了皇帝制
+China se ha comprometido con el sistema imperial
 
-知道华尔街精英与中共勾结之深吗？知道国际刑警组织、世界卫生组织、联合国听命于谁吗？知道中共在向美国输出芬太尼吗？知道Twitter、Facebook和谷歌如何打压言论自由吗? 知道西方世界的主流媒体堕落到什么程度了吗？
+习近平在那个新闻发布会已经宣布成神了, 成神话了
+Xi Jinping había declarado en esa conferencia de prensa que se había convertido en un dios, un mito
 
-知道中共人工合成并且放出了冠状病毒准备荼毒人类吗？知道香港运动的真相吗？知道上万香港人的冤死吗？知道新疆两百万人被关进集中营了吗？
+在这之前, 有习近平跟着我太阳走的感觉
+Antes de esto, se siente que Xi Jinping me estaba siguiendo bajo el sol
 
-中共就像一个吸血鬼，长期以来靠吸食西方的技术、资本、人才和市场的血液而生，西方豢养了中共这么一个危险的怪兽，现在怪兽要反噬西方，要不是爆料革命，西方和世界竟然浑然不知？郭文贵先生不仅仅是在拯救中国，更是在拯救世界。功德无量！
+北京城搞了音乐会
+En la ciudad de Beijing se hizo un concierto
 
-3. 郭文贵依靠唯真不破的人格魅力和灭共的使命与能力，感召了数以千万计的中国人和西方联盟，加入到爆料运动和新中国联邦的伟大事业中来，中共妄想扑灭自由的火种，但为时已晚。
+而且北京几个我们唐平的那些哥们儿
+Y nuestros hermanos de Tang Ping en Beijing
 
-郭文贵团结、凝聚了一批真正有信仰、有理想，愿意为中华民族的解放事业做出贡献的杰出优秀儿女。这些人团结在郭文贵先生周围，冒着生命危险为郭文贵先生传递信息和情报，提前预警中共的阴险伎俩，不仅使中共处处陷入被动，使得香港人民、世界人民避免了很多不必要的牺牲，更让爆料革命在世界上赢得了无与伦比的尊重。
+Qmay那个领域里面
+Dentro de ese ámbito de Qmay
 
-这些中国的行动派让中国更有可能以最低的代价实现向民主、自由、法治社会的转型。更重要的是，爆料革命团结了国际上最有影响力、最有实力的中坚力量。这些能够掌握世界走向和趋势的时代精英坚定地与郭文贵先生站在一起，为自由、为未来未雨绸缪、力挽狂澜。
+叫做乐坛, 音乐吐的痰
+Llamado la escena musical, el escupitajo de la música
 
-此外，越来越多的西方世界大佬，他们虽然曾经为了自身的利益，对中共压榨14亿中国人民的罪恶置若罔闻，但因为郭文贵先生的爆料革命，不得不开始面对他们曾经出卖过的灵魂，开始内省和忏悔。郭文贵先生是中共眼中最大的障碍和敌人，中共担心被蓝金黄的精英们弃船脱离。
+内部搞了上百次, 所谓中国音乐家, 艺术家
+Se hizo cientos de veces internamente, los llamados músicos y artistas chinos
 
-4. 郭文贵先生携手爆料革命的同行者和已经觉醒的西方富豪、名人和权贵们，在不到两年的时间里推出了具有影响力并快速发展的G系列。中共对G系列的发展恐惧至极，中共无法忍受中国人民过上富裕丰足的生活。
+都带家
+En mandarín, estas palabras llevan la palabra “casa”
 
-郭文贵先生设计的G系列可谓神来之笔，不仅让郭文贵先生的跟随者拥有了干净丰硕的财富，更为中华同胞打造了神奇的财富加速器。同时，郭文贵先生的G系列还会吸引更多逐利的资本前赴后继地加入G系列，为以钱灭共提供强大的经济支持，这让中共感到了深入骨髓的恐惧。
+都带家的啊, 音乐家, 艺术家
+Como músicos y artistas
 
-此外，G系列聚集、培养了大量为信仰服务的人才。在中国，中共垄断一切，垄断机会、垄断信息、垄断人才晋升的通道，只有跟中共媾和的人才有机会获得发展，中共的控制会让天才堕落为奴隶。而G系列吸引的是追随正道主义，愿意为真理、信仰奋斗的人才、英才和天才，G系列和新中国联邦对无数优秀人才具有强烈的吸引力，中共必然面临巨大的人才流失。
+中国共产党所谓过去, 若干决定当中的一些思考
+El llamado pasado del PCCh, en cuanto a sus decisiones y pensamientos
 
-在全球疫情灾难下，郭文贵先生的的媒体平台包括Ｇ-TＶ、Gettr 和G-News是全球为数极少的全网全天候播报各类关于病毒和疫苗真相的平台之一，在主流媒体垄断信息市场的当下，这种系统性的平台传播具有不可取代的重要意义和贡献。
+上百起都是主题, 跟着我的太阳走
+Más de cien tópicos son “siguiendo los pasos de mi sol”
 
-5. 郭文贵先生在2019年底就告诉世界，中共将发动生化武器袭击美国和西方世界。为了世代统治中国人民，为了维护独裁的统治，中共不惜使用病毒和信息超限战。郭文贵先生大声疾呼，告诉全世界病毒和疫苗是子母弹，子弹是病毒，母弹是疫苗，向世界警示疫苗灾难将席卷全球，让全球做好准备千万不要打疫苗。同时郭文贵先生也揭示了青蒿素是病毒解药的惊人消息，让中共依靠病毒和疫苗胁迫世界的愿望成空。
+太阳啊
+Sol
 
-郭文贵先生在2017年第一次警告世界，中共在预谋搞垮美国，黑暗即将降临，又在2019年向全球预警中共将在香港使用生化武器。2020年1月初，郭文贵先生在直播中强调武汉病毒是生化武器，呼吁各国政府和民众必须立刻进行紧急措施防止继续蔓延。
+习近平已经是太阳了
+Xi Jinping ya es un sol
 
-2021年6月20日，郭文贵先生又向全世界发出第二次预警：疫苗灾难将席卷全球，大家做好准备千万不要打疫苗。2021年9月3日郭文贵先生在直播中揭示，青蒿素是病毒解药。
+月亮都不当了
+Ya no quiere ni siquiera ser luna
 
-在郭文贵以及其背后正义力量的支持下，美国联邦政府正式提出Covid-19病毒、疫苗灾难和科技公司非法操纵媒体导向，致使许多无辜的生命受到非人的摧残，进行调查，所有参与这一邪恶计划的组织和个人都将会正义的审判，所有这一切都让幕后的邪恶力量中共颤抖。
+咱最多做了个梦
+Nosotros por más que sea sólo soñamos
 
-郭文贵先生通过四年持续不断的爆料和努力，告诉中国人民和西方世界，中共是人类的毒瘤，灭共有天意，灭共是人类正义的必须。只有灭掉中国共产党，才可以拯救人类免于被中共所代表的恶魔拖入地狱。
+咱叫H-coin to the moon
+Nosotros llamamos H-coin a la luna
 
-此外，需要说明的是，郭文贵先生个性率真、爱憎分别、语言犀利、行动强悍，郭文贵先生的风格可能不符合有些海外网民的习惯，而且其爆料内容的超前性和劲爆超越一般人对中共的认知，这会导致部分人跳脚式的反应，给中共抹黑、丑化郭文贵先生以可乘之机，误导一些善良而不知全貌的人。
+他是H-coin to the太阳
+Él es H-coin al sol
 
-人无完人，我们排除噪音，聚焦本质，郭文贵先生是中共的第一号敌人，是最令中共恐惧的对手，郭文贵先生令人惊叹。所以，中共不惜一切代价，发誓要消灭郭文贵先生，郭文贵先生成为中共国全球猎狐行动的第一目标。
+哇赛, 比我大多了
+¡Wow! Es más grande que yo
 
-作者——纽约香草山农场：正道人&华盛顿DC农场：海阔天空
+我们这词叫Qmay, 唐平整太小了
+Este vocabulario lo decimos Qmay, Tang Ping lo hizo muy pequeño
 
-（文章内容仅代表作者个人观点）
+人家是去太阳, 咱是月亮
+Ellos van a donde está el sol y nosotros es la luna
+
+月亮围着太阳转, 完了吧
+La luna gira alrededor del sol, esto se acabó
+
+你输了吧
+Ya perdiste
+
+这共产党吹牛, 吹太大了
+Este Partido Comunista se jacta, se jacta demasiado
+
+这种结果是什么
+Cuál es su resultado
+
+中国回到了绝对的皇帝制
+China regresó absolutamente al sistema imperial
+
+十个坚持的结果. 坚决不改革开放
+El resultado de diez insistencias, resiste no cambiar a la revolución y la apertura
+
+坚决把私有经济灭掉, 控制中国的一切
+Insiste eliminar a la economía privada y controlar todo de China
+
+坚持绝对的皇帝制
+Se insiste al sistema de emperador absoluto
+
+* * *
+
+日期：11/20/2021
+原视频标题：文化大革命创新版，坚持皇帝制
+Versión innovadora de la Revolución Cultural, insistir al sistema del emperador
+原视频日期：11/19/2021
+原视频网址：[https://gettr.com/post/phdgzc0535](https://gettr.com/post/phdgzc0535)
+任务编号：KC274(2946)
+视频时间段：0:00-2:19
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 -天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

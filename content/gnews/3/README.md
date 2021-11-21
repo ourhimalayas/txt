@@ -2,55 +2,36 @@
 ---
 
 
-## 原来拿到大陆居民身份证的台湾表妹李乔昕是个老戏骨
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1682693/)
+## 中共在阿联酋偷建军事基地 白宫大为震惊
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1682763/)
 
-据[台灣大牛(台灣寶島農場)@jackson66368924](https://twitter.com/jackson66368924)于[下午3:55 · 2021年11月21日](https://twitter.com/jackson66368924/status/1462328691737120768)发布的推文——
+撰稿：青衣
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-34.png)
+阿布扎比一景（图片来源：ludovic MARIN / AFP）
 
-中共推出了台湾居民身份证………
+爆料革命和新中国联邦创始人郭文贵先生曾经不止一次地揭露，中共正在中东某国秘密建造军事基地。近期终于有媒体披露，美国情报机关已获取确切情报，证实确有此事，而白宫为此大为震惊。
 
+《华尔街日报》周五（11月19日）引述知情人士的消息报道称，美国情报机构今年春天获悉，中共在阿拉伯联合酋长国的一个港口秘密建造疑似军事设施。
 
+《大纪元》11月20日的报道指出，阿联酋是美国最亲密的中东盟友之一，美国因此大为震惊。据悉，拜登政府在震惊之余，立刻警告阿联酋政府，指出中共的军事存在可能会威胁到两国之间的关系。
 
-> 中共推出了台湾居民身份证………🙄 [pic.twitter.com/TiY0s6aZpw](https://t.co/TiY0s6aZpw)
-> — 台灣大牛(台灣寶島農場) (@jackson66368924) [November 21, 2021](https://twitter.com/jackson66368924/status/1462328691737120768?ref_src=twsrc%5Etfw)
+据知情人士透露，阿联酋政府看上去并没有意识到中共活动的军事性质。但在美国官员的多轮会晤和出访后，这一靠近阿联酋首都阿布扎比的秘密工程最近已停止施工。
 
+《华尔街日报》的报道称，知情人士表示，大约一年前，美国官员开始收到情报。情报显示，在阿布扎比以北约50英里的哈利法港，有可疑的中方活动——中远海运集团在该处建造了一个商业集装箱码头，且已开始运营。
 
+直到今年春天，机密卫星图像让美国官员得出结论：中共正在该港建造某种军事设施。一位熟悉此事的人士表示，美国情报机构今年春天在那里发现了一个大洞，里面可以容纳一栋多层建筑和架设梁柱，而施工现场被覆盖起来以逃避审查。
 
-对照这条视频可以查到的墙内对应的视频是[*台湾*女孩晒出新办的*身份证*，拿在手中激动不已：看谁还敢欺负我！](https://haokan.baidu.com/v?pd=wisenatural&amp;vid=16796058277692176009)(来源：好看视频 发布时间：2021年11月20日)
+拜登总统为此先后在5月和8月，与阿联酋实际领导人、阿布扎比王储穆罕默德·本·扎耶德·阿勒纳哈扬（Mohammed bin Zayed al Nahyan）通话，直接表达了对中共在阿联酋日益增长的存在的担忧。
 
-李乔昕究竟何许人也？据[百度百科——李乔昕](https://baike.baidu.com/item/%E6%9D%8E%E4%B9%94%E6%98%95/57989400?fr=aladdin)［2021年7月1日，李乔昕刚好到浙江杭州工作，当晚她在[钱塘江](https://baike.baidu.com/item/%E9%92%B1%E5%A1%98%E6%B1%9F/389131)边，欣赏了一场颇为壮观的灯光表演。那天，她看到广场上绚丽的灯光和欢乐的人群，特别激动，因此有感而发，在[短视频](https://baike.baidu.com/item/%E7%9F%AD%E8%A7%86%E9%A2%91/20596678)平台上激动地赞叹道。她在画面里展示了杭州钱塘江壮观的夜景，讲述了大陆的防疫情况，并对着镜头向祖国表白：“这么好看的夜景，又是这么安全的一个地方，我觉得，此生不悔入[华夏](https://baike.baidu.com/item/%E5%8D%8E%E5%A4%8F/5823)！”
+之后，美国和阿联酋官员在今年早些时候又就哈利法港的问题进行了多次讨论。9月底，白宫国家安全顾问杰克·沙利文（Jake Sullivan）和中东问题最高助手布雷特·麦格克（Brett McGurk）访问阿布扎比，期间详细介绍了中共基地的情报。
 
-李乔昕表示，起初拍摄视频时，她不是很有信心：毕竟不是专门学表演的，没有出镜经验。结果，通过去各地旅行、品尝各地美食，体验祖国大陆的风俗文化，她[切切实实](https://baike.baidu.com/item/%E5%88%87%E5%88%87%E5%AE%9E%E5%AE%9E/9986014)地感受到了大陆[日新月异](https://baike.baidu.com/item/%E6%97%A5%E6%96%B0%E6%9C%88%E5%BC%82/1540218)的发展，发现根本不需要“表演”，而是发自内心地赞叹祖国的[大好河山](https://baike.baidu.com/item/%E5%A4%A7%E5%A5%BD%E6%B2%B3%E5%B1%B1/53927)和[美味佳肴](https://baike.baidu.com/item/%E7%BE%8E%E5%91%B3%E4%BD%B3%E8%82%B4/1025979)。
+据悉，美国官员最近对该基地进行了检查。官员们认为目前施工已经停止。
 
-如今，“台湾表妹”短视频账号仅用半年时间，就收获了160多万粉丝，累计获得网友们2226万多次的点赞。李乔昕表示，未来她想更深入地体验大陆的生活，制作更多正能量的短视频，分享给两岸的年轻人，“我最大的目标是成为两岸交流的一种纽带”。
+中共在阿联酋建立军事据点的行为，以及拜登政府说服阿联酋政府阻止该基地的建设，都反映出美国政府正面临来自中共的全方位挑战。
 
-李乔昕已经在[北京](https://baike.baidu.com/item/%E5%8C%97%E4%BA%AC/128981)接种完两剂[新冠疫苗](https://baike.baidu.com/item/%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97/24611354)，只需要出示[台胞证](https://baike.baidu.com/item/%E5%8F%B0%E8%83%9E%E8%AF%81/10584345)就能在当地社区接种，她评价“整个流程非常专业又很迅速”。］
+中共为实现其称霸世界的野心，近年来一直在全球秘密进行军事部署，在多地建立军事设施。2017 年，中共在东非国家吉布提开辟了第一个海外军事基地，负责监控印度洋和非洲周边的行动； 2019年，中共跟柬埔寨签署了一项秘密协议，允许中共军队使用柬埔寨的一处海军基地；此外，中共还在巴基斯坦和斯里兰卡建立了商业港口设施，可供其海军使用。
 
-现在李乔昕的新浪微博[@李喬昕兒](https://weibo.com/n/%E6%9D%8E%E5%96%AC%E6%98%95%E5%85%92) 已经404，但是李乔昕的表演还在——[**台湾小哥声音超好听 *****李乔昕*****直言自己“太兴奋”\_腾讯视频**](https://www.baidu.com/link?url=gEapHnVDzhe5tFnAApHakg3n_Jioztt50KR3xtbO4SUrMzz_X0GlAPwZ42Vb4bVobJZag4OPE0IOwMr2tCxA3a&amp;wd=&amp;eqid=dcacb90600146b9f00000002619a1606)（2019年5月18日）
-
-当年大清朝灭亡前废尽心机切了小弟弟入宫的太监们在后清时代再也安不上那根小弟弟了，这位精神上已经自宫的台湾表妹在后共时代还能不能挺起胸膛，倒也真的很令人生疑。
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-（文章内容仅代表作者个人观点）
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**新闻链接：**[https://twitter.com/dajiyuan/status/1461967569850716160](https://twitter.com/dajiyuan/status/1461967569850716160)
 
  
 
