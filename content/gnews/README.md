@@ -15,77 +15,77 @@
 
 ---
 
-### [喜币在迪拜买房的意义](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [GTV自动多语言字幕功能在1120大直播中应用](/content/gnews/2/README.md)
- ` GTV新闻访谈`
-
-### [我们叫新中国联邦](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国老百姓的3个不允许](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [盖特新功能“Instagram导入”开始内测](/content/gnews/5/README.md)
- ` GTV新闻访谈`
-
-### [NIH 主任要求将 COVID 的“阴谋家”绳之以法](/content/gnews/6/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [HPay上线，喜币开启价值，等待3年就是人生赢家](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [原中共解放军总参谋长曾欲揭露中共的秘密军事项目](/content/gnews/8/README.md)
- ` GTV新闻访谈`
-
-### [中共六中全会三大内容](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文化大革命创新版——坚持皇帝制](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [背叛 betray](/content/gnews/11/README.md)
- ` 骄子`
-
-### [解读六中全会的10个坚持——锁国独裁](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共房地产就是奴役中国人的最佳工具](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国北部、西部各州出现 COVID-19 病例激增](/content/gnews/14/README.md)
+### [中共正在加剧21世纪毁灭整个民族的方法](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [郭文贵先生：强者面前永远不会有人家](/content/gnews/15/README.md)
+### [喜币在迪拜买房的意义](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新的人类共同体](/content/gnews/16/README.md)
+### [GTV自动多语言字幕功能在1120大直播中应用](/content/gnews/3/README.md)
+ ` GTV新闻访谈`
+
+### [我们叫新中国联邦](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共舰艇军机频繁骚扰日本领海领空](/content/gnews/17/README.md)
+### [美国老百姓的3个不允许](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [盖特新功能“Instagram导入”开始内测](/content/gnews/6/README.md)
+ ` GTV新闻访谈`
+
+### [NIH 主任要求将 COVID 的“阴谋家”绳之以法](/content/gnews/7/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [HPay上线，喜币开启价值，等待3年就是人生赢家](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [原中共解放军总参谋长曾欲揭露中共的秘密军事项目](/content/gnews/9/README.md)
+ ` GTV新闻访谈`
+
+### [中共六中全会三大内容](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文化大革命创新版——坚持皇帝制](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [背叛 betray](/content/gnews/12/README.md)
+ ` 骄子`
+
+### [解读六中全会的10个坚持——锁国独裁](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共房地产就是奴役中国人的最佳工具](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国北部、西部各州出现 COVID-19 病例激增](/content/gnews/15/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [郭文贵先生：强者面前永远不会有人家](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新的人类共同体](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共舰艇军机频繁骚扰日本领海领空](/content/gnews/18/README.md)
  ` 纽约香草山MOS01`
 
-### [2020年中国人口出生率再创新低](/content/gnews/18/README.md)
+### [2020年中国人口出生率再创新低](/content/gnews/19/README.md)
  ` 纽约香草山MOS01`
 
-### [全球邪恶势力制造疫苗大灾难的动机是什么](/content/gnews/19/README.md)
+### [全球邪恶势力制造疫苗大灾难的动机是什么](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [纳瓦罗先生指出每一个美国人都应该成为对中共的鹰派](/content/gnews/20/README.md)
+### [纳瓦罗先生指出每一个美国人都应该成为对中共的鹰派](/content/gnews/21/README.md)
  ` 纽约香草山MOS01`
 
-### [喜交所受全球金融机构监管](/content/gnews/21/README.md)
+### [喜交所受全球金融机构监管](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [欧洲经济区超3万人死于中共病毒疫苗！](/content/gnews/22/README.md)
+### [欧洲经济区超3万人死于中共病毒疫苗！](/content/gnews/23/README.md)
  ` 军迷wilson`
 
-### [GTV新闻访谈简报|2021年11月21日早](/content/gnews/23/README.md)
+### [GTV新闻访谈简报|2021年11月21日早](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
-
-### [战友要提高行动力和智慧力](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [拜登政府预购千万疗程的新冠口服药](/content/gnews/25/README.md)
  ` 日本东京方舟农场`
@@ -132,47 +132,47 @@
 ### [【独家报道】日本尖端临床医学会学术会：基因疫苗&#8211;有毒！](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [SK海力士冻结中共国工厂尖端投资，中共半导体幻梦恐将破灭](/content/gnews/40/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [拜登在拜习会上再次确认了“一中”政策](/content/gnews/41/README.md)
+### [拜登在拜习会上再次确认了“一中”政策](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [起诉班农的国会调查委员会成员──伊莱恩·路里亚在中共阿里巴巴拥有六位数投资](/content/gnews/42/README.md)
+### [起诉班农的国会调查委员会成员──伊莱恩·路里亚在中共阿里巴巴拥有六位数投资](/content/gnews/41/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [韩国芯片制造商停止在中共国的业务扩张](/content/gnews/43/README.md)
+### [韩国芯片制造商停止在中共国的业务扩张](/content/gnews/42/README.md)
  ` 墨尔本雅典娜农场`
 
-### [原来拿到大陆居民身份证的台湾表妹李乔昕是个老戏骨](/content/gnews/44/README.md)
+### [原来拿到大陆居民身份证的台湾表妹李乔昕是个老戏骨](/content/gnews/43/README.md)
  ` NewFOC`
 
-### [捐款大不同](/content/gnews/45/README.md)
+### [捐款大不同](/content/gnews/44/README.md)
  ` 银河勇气之星`
 
-### [COVID-19 最新情报｜围堵韩国疾控中心主任座驾 家属誓为死者寻找真相和公义](/content/gnews/46/README.md)
+### [COVID-19 最新情报｜围堵韩国疾控中心主任座驾 家属誓为死者寻找真相和公义](/content/gnews/45/README.md)
  ` G&#124;News TAIWAN`
 
-### [立陶宛模式奠定中共不做正房改做偏房的国际关系新模式](/content/gnews/47/README.md)
+### [立陶宛模式奠定中共不做正房改做偏房的国际关系新模式](/content/gnews/46/README.md)
  ` NewFOC`
 
-### [中共推出所谓治新冠病毒药物VV116、FB2001及普克鲁胺](/content/gnews/48/README.md)
+### [中共推出所谓治新冠病毒药物VV116、FB2001及普克鲁胺](/content/gnews/47/README.md)
  ` NewFOC`
 
-### [11名澳大利亚护士对COVID疫苗的副作用爆料：我们被告知不要谈论我们所看到的东西](/content/gnews/49/README.md)
+### [11名澳大利亚护士对COVID疫苗的副作用爆料：我们被告知不要谈论我们所看到的东西](/content/gnews/48/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [欧洲的中共病毒危机使已接种疫苗的人与未接种疫苗的人发生对立](/content/gnews/50/README.md)
+### [欧洲的中共病毒危机使已接种疫苗的人与未接种疫苗的人发生对立](/content/gnews/49/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [奥地利数万民众示威，抗议疫情封闭及强制疫苗新措施](/content/gnews/51/README.md)
+### [奥地利数万民众示威，抗议疫情封闭及强制疫苗新措施](/content/gnews/50/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [币圈新闻动态：布雷纳德可能被提名担任美联储主席](/content/gnews/52/README.md)
+### [币圈新闻动态：布雷纳德可能被提名担任美联储主席](/content/gnews/51/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [荷兰警察向抗议新冠病毒限制措施的公民开枪](/content/gnews/53/README.md)
+### [荷兰警察向抗议新冠病毒限制措施的公民开枪](/content/gnews/52/README.md)
  ` 墨尔本雅典娜农场`
+
+### [透露中共在中东建军事基地的是希望与美方合作的房峰辉](/content/gnews/53/README.md)
+ ` NewFOC`
 
 ### [洛杉矶对孕妇接种中共病毒疫苗加强针](/content/gnews/54/README.md)
  ` 纽约香草山MOS01`

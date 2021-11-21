@@ -2,34 +2,30 @@
 ---
 
 
-## GTV自动多语言字幕功能在1120大直播中应用
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683527/)
+## 喜币在迪拜买房的意义
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1683533/)
 
-作者：波士顿五月花 – 葛朗台太太
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月20日，1120三周年纪念日大直播中，GTV启用自动多语言字幕功能，这是自11月11日正式上线以后的再次应用。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-13.jpeg)
-目前，此功能仅在网页版的GTV上推出，并且能够支持中文简体，中文繁体，广东话，英文，日语，韩语，法语，西班牙语，阿拉伯语等十二种语言。
+文编：东京樱花团/樱花传媒
 
-并且，用户在收看GTV网页版直播时，还可以选择高清视频直播、低像素视频直播以及纯语言直播形式。
+视频:东京樱花团/中文小视频组
 
-参考链接：
-1）[多语言字幕](https://gettr.com/post/pgpenyd355)
-2）[2021年11月20日 “11·20”发布会及法治基金、法治社会成立三周年纪念日大直播](https://gtv.org/video/id=6198f18ccbfd016d6377a4f1)
+11月19日，郭文贵先生在GTV大直播指出：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+就像打仗一样，当初爆料革命只有郭媒体和Gnews，兵力单薄。但在这一年多的时间里，我们建立了新中国联邦，有了GTV、Gfashion、Gclub、喜联储和喜马拉雅币，可以多方出兵，壮大了实力。迪拜房地产接受喜马拉雅币就像杀出来的兵中之外的兵，标志着新中国联邦会获得更大的胜利。
 
-总编：Ivy001
-编辑：文特
-校正/发稿：谐趣园
+郭文贵先生继续指出：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+用比特币买比萨，开启了虚拟货币与实体店的结合。之后发工资，把它和生产方式连在一起。当成为主权货币时，直接上万。基金大佬：所有的社交媒体，会有几个关键点。第一个九十天“怀孕期”，你们过了。盖特第二个九十天“稳胎期”，孩子生了能否稳住，保住胎，就在现在。盖特过去了，就会飞速爆发。
+
+郭文贵先生继续指出：
+
+我们现在处于“稳胎期”，面临内外挑战，过去了就是盖特爆发期。当喜马拉雅币在美、加、日和全球支付系统实体购物时，价值更大。战友花几千拥有几万币，明年五月至一年，可以考虑出售或抵押到喜马拉雅贷款，贴补家用。2至3年，才是喜马拉雅币真正厉害的时候。
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,30 +2,26 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月21日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683321/)
+## 欧洲经济区超3万人死于中共病毒疫苗！
+` 军迷wilson` [轉載自GNews](https://gnews.org/zh-hans/1683334/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2.png)
+#### 加拿大温哥华扬帆农场 向真
+![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_0279.jpeg)来源：Getty Images
+红声传媒11月20日报道，欧洲药品管理局最新报告显示，截至11月13日，欧洲经济区被证实死于中共病毒疫苗的人数已达30,551人，另外有1,163,356例不良药物反应。这组刚刚曝光的新数据令人毛骨悚然。
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-22.png)
-文章仅代表作者本人观点，与Gnews无关
+欧洲药管局表示，已经将该报告发布在ADRreports.eu门户网站及欧盟官方疑似药物反应网站数据库上，“用户可以查看单个疑似副作用报告的总数（也称为个人病例安全报告或ICSR）。由于俄罗斯、白俄罗斯、乌克兰等不在欧洲经济区范围内，故报告数据不包括以上国家。
 
-视频参看：2021.11.21早GTV新闻访谈
+这份报告的釆样范围来自欧洲经济区内的医学监测机构提交的案例。因存在故意隐瞒等现象，死亡和不良反应病例数会有较大遗漏。报告指辉瑞、莫德纳、强生和阿斯利康等中共病毒疫苗制造商共同制造了这起大惨案。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/56037164_401.jpg)来源： DW
+报告称，截至11月13日，辉瑞导致14,303人死亡，562,213例不良反应；莫德纳造成8,385人死亡，155,793次不良反应；牛津/阿斯利康造成6,070人死亡，408,312例不良反应。强生造成1,793人死亡，37,038人出现不良反应。
 
-[https://gtv.org/video/id=619a4955cbfd016d6378903d](https://gtv.org/video/id=619a4955cbfd016d6378903d)
+报告显示，不同疫苗对人体几乎所有的系统都造成致命伤害，其中因心脏病突发死亡人数最多，疫苗导致神经系统、血液和淋巴系统、眼部、胃肠道、新陈代谢和营养吸收系统受损，以及感染、肌肉骨骼与结缔组织疾病、良性恶性和未指明的新肿瘤等等而死亡的人数排在前列。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+欧洲经济区各国的分报告提供者肯定经过所在国政府卫生部门的审核，才能递交到欧洲药管局，按理说各国政府是提前知道中共疫苗毒副作用的，但令人不解的是，当前欧洲各国仍然不约而同地极力推行疫苗及其加强针，同时打压疫苗之外的各种有效疗法，难道这些政府的动机不值得怀疑吗？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov.jpg)
+参考来源：
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[最新消息：欧洲药品管理局数据显示，超过 30,000 人死于新冠病毒 – 1.1 百万不良药物反应](https://www.reuters.com/article/factcheck-coronavirus-eu-idUSL1N2S924P)
 
  
 
