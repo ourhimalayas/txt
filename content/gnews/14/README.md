@@ -2,61 +2,36 @@
 ---
 
 
-## 中共国因台湾问题下调与立陶宛的外交关系
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1683651/)
+## 继欧洲议会、德国和美国之后 英国也考虑外交抵制北京冬奥会
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683656/)
 
-翻译: 里奇
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-21-194828.jpg)图片来源: reuters.com
-路透北京/维尔纽斯11月21日 – 中共国周日降级与立陶宛的外交关系，对这一波罗的海国家允许台湾在立陶宛开设事实上的大使馆表示强烈不满，此举连续加剧了华盛顿的紧张局势。
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+英国媒体11月20日报道，英国首相约翰逊，正在考虑外交抵制北京冬奥会，以抗议中共恶劣的人权纪录。该报道称，五名保守党政客致信约翰逊，敦促他禁止英国任何官方外交代表，出席2月份的北京冬奥。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-22-上午3.02.10.png)
+就在两天前，美国总统拜登证实，美国政府正在考虑对北京冬奥会进行外交抵制。上个月，即将从德国联邦议院体育委员会主席卸任的，弗莱塔克女士也再次呼吁，各国政府要抵制北京冬奥，作为对中共当局严重侵犯人权的抗议。
 
-中共国将自治和民主治理的台湾视为其领土，无权获得一个独立国家的角色。并加大压力，要求各国降级或断绝与台湾的关系，甚至是非官方关系。
+7月份，欧洲议会也以压倒性票数，通过了一项不具强制力的决议，敦促欧盟及成员国的官员，不要出席北京冬奥会。
 
-今年夏天，当立陶宛允许台湾在该国以台湾的名义开设办事处时，北京已经表达了愤怒。中共国于 8 月召回了其大使。
+参考链接：
+1）[英国正考虑外交抵制北京冬奥会–泰晤士报](https://www.reuters.com/article/uk-thames-beijing-winter-olympic-1120-idCNKBS2I508P)
+2）[彭帅事件或加剧抵制呼声 美国对北京冬奥的外交抵制意味着什么？](https://www.voachinese.com/a/beijing-olympics-diplomatic-boycott-20211119/6320934.html)
+3）[卸任前登高一呼 德國聯邦議院體委會主席籲抵制北京冬奧](https://news.ltn.com.tw/news/world/breakingnews/3701885)
+4）[欧洲议会通过决议呼吁外交抵制北京冬奥会 北京称不值得关注](https://www.voachinese.com/a/European-parliament-resolution-beijing-olympics-boycott-20210709/5960158.html)
 
-在欧洲和美国的其他台湾办事处使用台北市的名称，避免提及该岛本身。然而，台湾驻立陶宛代表处终于在周四开业。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-中共国外交部在一份直言不讳的声明中表示，立陶宛无视中方的“严正立场”和国际关系基本准则。
+总编：文特
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-声明称，此举“损害了中共国的主权和领土完整，粗暴干涉中共国内政”，在国际上开创了“坏先例”。
-
-北京表示，两国关系将降级为代办级别，比大使级别低。
-
-“我们敦促立陶宛方立即纠正错误，不要低估中共国人民捍卫国家主权和领土完整的坚定决心”
-
-外交部表示, 无论台湾做什么，都无法改变它是中共国的一部分的事实。
-
-合作权
-
-立陶宛外交部周日在一份声明中对中共国的决定表示“遗憾”。
-
-立陶宛表示，“接受台湾在立陶宛的代表权是基于经济利益”。
-
-“立陶宛再次确认其坚持‘一中’政策，但同时有权扩大与台湾的合作，接受并建立非外交代表机构，以确保双方关系的实际发展，正如此前所做的那样。许多其他国家已经这样做了。”
-
-台湾称它是一个独立的国家，正式名称为中华民国，中华人民共和国从未统治过它，也无权为它代言。
-
-台湾陆委会谴责中共国的“粗鲁和傲慢”，称北京无权评论不是中共国内政、纯粹是台湾和立陶宛之间的事情。
-
-面对中共国的军事和外交压力之时，台湾获得越来越多的国际支持，尤其是来自美国及其一些盟国的支持，并为此感到鼓舞。
-
-美国副国务卿乌兹拉·泽亚周五在维尔纽斯举行的新闻发布会上表示，华盛顿拒绝其他国家干涉立陶宛与台湾关系的企图。
-
-华盛顿已向维尔纽斯提供支持以对抗中共国的压力，立陶宛将于周三与美国进出口银行签署一项 6 亿美元的出口信贷协议。
-
-与台湾建立正式外交关系的国家只有15个。
-
-在本月晚些时候的洪都拉斯总统大选之后，台北可能会失去北京的另一个盟友，一位主要反对党支持的候选人在民意调查中领先。
-
-休马拉·卡斯特罗誓言，如果他当选，要与中共国建立官方关系。
-
-新闻来源: [reuters.com] [China downgrades diplomatic ties with Lithuania over Taiwan](https://www.reuters.com/world/asia-pacific/china-downgrades-its-diplomatic-ties-with-lithuania-over-taiwan-issue-2021-11-21/)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

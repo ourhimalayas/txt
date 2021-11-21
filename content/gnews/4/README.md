@@ -2,101 +2,39 @@
 ---
 
 
-## 当Hpay可以互相支付的时候
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1683805/)
+## “永不放弃” &#8211; 世界各地爆发针对政府 COVID 暴政的抗议活动
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1683812/)
 
-[https://gtv.org/video/id=619a325be6900076612deecb](https://gtv.org/video/id=619a325be6900076612deecb)
+翻译：真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/11/protest_4.jpg)图片来源：网络
+来自零对冲（ZERO HEDGE） 星期天十一月二一日的新闻报道：
 
-**郭文贵**
-**Miles Guo**
+美联社新闻称他们为“极右翼”，但欧洲各地成千上万热爱自由的人游行，反对新的残暴公共卫生措施，例如部分和全面封锁、健康护照和强制疫苗接种。
 
-当我们之间互相可以H币，HDO可以支付的时候，兄弟姐妹们
-When we can make payment to each other with HCN and HDO, brothers and sisters
+奥地利、克罗地亚、意大利、北爱尔兰、英国、法国、德国和荷兰出现了反对新病毒限制的示威活动。 在欧洲以外，加拿大、澳大利亚、日本甚至美国的几个城市都出现了抗议者。 一些人将周六标记为“全球自由”集会的一部分，以抗议 COVID-19 限制和疫苗规定。
 
-这个标准可就不一样了，也就是人类上所有国家不能做的事，你们都能得到
-This world is different, that is, what all countries on the human race can not do, you can get
+一些最激烈的集会发生在港口城市鹿特丹，后来演变成了骚乱。抗议者和警察之间的冲突从周五开始，一直持续到周六晚上。
 
-草根小哥说，现在我给天池妹妹划上一万个喜币，你管的着吗？
-Caogen brother said, now I have set aside 10,000 H coins for my sister Tianchi, it’s not government’s business anymore
+维持生活、保护生命和自由是抗议者们游行的共同点。 各国政府正试图通过增加 COVID 限制、强制健康护照和强制接种疫苗来掠夺这些。
 
-天池妹妹我要给QMAY汇上个10万HDO, 100万HDO, 你管的着吗？
-Sister Tianchi wants to send 100,000 HDO, 1 million HDO to QMAY, it’s not government’s business anymore
+最严重的限制，或确切地说，政府对自由的严重掠夺，发生在奥地利，周一开始全面封锁。 全国范围内的封锁预计至少持续十天，但可以延长至两周以上。 然后到 2 月 1 日，政府将强制接种疫苗（奥地利 890 万人中只有 66% 的人完全接种了疫苗），希望最后这一措施能顺利进行。
 
-它可能有一个限制，不可能是无限的大，但基本上过了KYC的战友们
-It may has a limit, it cannot be infinitely large, but basically the comrades who have passed KYC
+周六在维也纳巨大的 Heldenplatz 广场举行的游行中有许多人高呼“我的身体我做主”、“我们为孩子挺身而出！”和“反抗！”
 
-你们之间的来往，那可就成了世界上脱缰的野马
-The funds between you has become a wild horse in the world
+最大的抗议活动之一应是在克罗地亚西北部首府萨格勒布，据《公民自由报》报道，那里有多达 十万民众涌向街道，以抗议政府的疫苗护照和新的 COVID 措施。
 
-最自由，最无限, 没有国家地域限制，而且额度是最大的
-It’s the most free, the most unlimited, there is no country and geographic re-strictions, and the quota is the largest
+在罗马，数千名示威者聚集在首都巨大的马克西姆斯古战车竞技场（Circus Maximus），抗议工作场所、餐厅、电影院、剧院、体育场馆和健身房以及公共交通所需的“绿色通行证”。“永不放弃，”一名抗议者的标语写道。
 
-关键你还没有税，还合法，你还得合法呀
-The key point is that you have no tax, and still legal, you have to be legal
+对极权主义的抵制正在整个欧洲蔓延。 通常，“在政府命令方面，欧洲人通常比美国人更服从。但即使在那里，公民也抗议政府以公共卫生的名义攫取权力，”美国思想家托马斯·利夫森说。
 
-我再给重申一遍，全球的虚拟货币互相之间
-Let me repeat again that the global virtual currencies between each other
+世界人民正在觉醒，意识到政府暴政正在掠夺他们的生命和自由，‘达沃斯人’，世界精英和他们的傀儡政府变得更加视民众如草芥。 公民与政府之间日益增长的不满是危险的——革命就是这样产生。
 
-只要没有法币的联系的，你任何交易，只要你接受，他接受都是合法的
-as long as there is no legal currency connection, any transaction you accept is legal as long as you accept it
+原文链接：[https://www.zerohedge.com/political/well-never-give-protests-erupt-across-europe-over-govt-covid-tyranny](https://www.zerohedge.com/political/well-never-give-protests-erupt-across-europe-over-govt-covid-tyranny)
 
-而且没有税，还不需要任何政府监管，现在要懂这个道理
-And there is no tax, and there is no need for any government supervision, now we must understand this principle
+编辑/发布：LILY
 
-我再重申一遍，兄弟姐妹们所有的虚拟货币，
-I repeat it again, brothers and sisters, all virtual currencies
-
-只要你有账号之间你们之间只要这个技术能做到的，互相交易不纳税，不受国家不受监管
-as long as you have account, you can do transfer within each other with this technology, you will not pay taxes on each transactions, and will not be subject to state supervision
-
-这是第二个问题，第三个问题我再告诉大家，因为刚才没有说到的
-This is the second question. I will tell you the third question because I didn’t talk about it just now
-
-H-pay很多商家说，这个商家要不要KYC
-Many H-pay merchant asked whether the merchants need to do KYC
-
-战友们这个常识你不要问，你要问，我们直播100年不会拉倒
-This is common sense, comrades, if you still ask it, we will have to do our live broadcast for another 100 years
-
-回答你这个问题，你不去KYC你怎么开账号呢
-To answer this question, how do you open an account if you don’t do KYC?
-
-任何商家你得到喜联储KYC你才能开账号，
-Any merchant, you can open an account only if you pass the KYC of the Himalaya Reserve
-
-账号和账号之间才能接受KYC，才能付钱呐，是吧
-Only the account accepted by KYC can be paid transfer to each other, right?
-
-你不解裤子，你怎么跟人家上床，怎么生孩子
-You don’t take off your pants, how do you have children with others
-
-我连你男女都不知道，我现在就要跟你结婚了吗？
-I don’t even know you are man or woman, How can I get married to you now?
-
-这是个简单的道理吧
-The simple is that, right？
-
-原视频链接: [https://gettr.com/post/ph8y47e262](https://gettr.com/post/ph8y47e262)
-
-Date:11/20/2021
-原视频标题: 当Hpay可以互相支付的时候
-When H-pay can make pay to each other
-原视频日期：2021/11/17
-原视频链接[https://gettr.com/post/ph8y47e262](https://gettr.com/post/ph8y47e262)
-任务编号：2929
-视频时间段 : 0:00-2:11
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+20211121
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
