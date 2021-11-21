@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/21/2021 3:55 PM (UTC)`
+
+11-21日：吃饭饭啦……
+![img](https://media.gettr.com/group17/getter/2021/11/21/15/55/966f1f77-e196-9e64-22e5-6f4e10b3f1f6/out.jpg)
+
+---
+
 `@miles 11/21/2021 2:46 PM (UTC)`
 
 11/20/2021 [3rd Anniversary of 1120]  Mr. Steve Bannon: The New Federal State of China will eventually unite the Chinese people and the world under the rule of law and the ability to achieve freedom of dissent, freedom of speech, freedom of religion<br/><br/>11/20/2021【1120三周年纪念】<br/>班农先生：新中国联邦最终会用法治把中国人和全世界连结在一起,并有能力实现异议自由,言论自由和宗教自由<br/>
@@ -295,13 +302,6 @@ An orthopedic surgeon from Wisconsin described the serious side effects after hi
 
 11/17/2021 Miles Guo: The “Ten Adherences” of the Sixth Plenary Session show that the CCP is running out of talent, the CCP is decoupling with the world, and Xi is going to be the “emperor”; everything happened in the Sixth Plenary Session is in line with my prediction, with Xi being praised as “the Sun” and a series of ridiculous propaganda popping up; there will be massive deaths before the end of the CCP<br/><br/>11/17/2021 文贵直播：六中全会的“十大坚持”说明中共已经无人可用、中共正在跟世界脱钩且习要当皇帝；六中全会尽在文贵掌握之中，习真当上了“我的太阳”，一系列宣传闹剧即将上演；中共灭亡前将有大量人死亡<br/>
 ![img](https://media.gettr.com/group24/getter/2021/11/18/11/39/ae8d93e7-2cc1-d1dd-4994-4cbcd14bd4a7/out.jpg)
-
----
-
-`@miles 11/18/2021 10:24 AM (UTC)`
-
-11/17/2021 Miles Guo: Three reasons why the hooligan politicians in the West are boycotting the 2022 Winter Olympics: 1) to use politically correct reasons to shift their responsibility for athletes‘ contracting the virus or suffering from the side effects of mandatory COVID jabs; 2) to put on an anti-CCP political show to get the CCP to bribe them using the BGY scheme; 3) take advantage of the corrupt Olympics for personal gain; no matter how much they oppose the Winter Olympics, they will still end up going<br/><br/>11/17/2021 文贵直播：西方流氓政客抵制2022冬奥会的三个原因：1）以政治正确为由推卸其应为运动员染病或疫苗副作用而负的责任；2）进行反共政治表演让中共对其蓝金黄；3）利用奥运会的腐败谋求个人利益；不论怎么反对冬奥会，他们最终还是会去的
-![img](https://media.gettr.com/group24/getter/2021/11/18/10/24/8b911650-677f-a2bb-250a-b5c2bf7f1255/out.jpg)
 
 ---
 
