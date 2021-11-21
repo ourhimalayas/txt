@@ -2,109 +2,31 @@
 ---
 
 
-## Facebook等社交媒体无法和GTV盖特比拟
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681507/)
+## 2021年11月19日郭文贵先生大直播摘要——MOS &#8211; 正道人
+` mary202064` [轉載自GNews](https://gnews.org/zh-hans/1681535/)
 
-[https://gtv.org/video/id=61992e4ae6900076612d89dc](https://gtv.org/video/id=61992e4ae6900076612d89dc)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/snapshot.jpg)
+视频连接： [https://gtv.org/video/id=6197a194fcd196126f8cab91](https://gtv.org/video/id=6197a194fcd196126f8cab91)
 
-**郭文贵**
-**Miles Guo**
+1.      郭文贵先生在11月19日的直播中，再次爆料，中共的注册代理人吴征是双性恋，在同性恋关系中扮演女性角色。
 
-我昨天跟摩根先生说，它是垃圾
-I told Mr. Morgan yesterday that it was garbage
+2.      郭文贵提醒世界，中共国不是美国的竞争对手，而是美国和西方世界最大的敌人，因为中共的第一战略是破坏世界经济，削弱美元，成为新的全球霸主。
 
-摩根先生讲，你什么意思？
-Mr. Morgan said, “What do you mean?”
+3.      郭先生说：”美国人最担心的是金钱（如油价，天然气价格和食品价格）、失业、经济衰退和人身健康，同时中共病毒仍然是全球最令人担忧的话题。
 
-我说它是垃圾。它是什么垃圾？
-I said it’s garbage. Why?
+4.      赵长鹏，绰号CZ，是Binance公司的创始人和CEO。这位华裔加拿大人经营着世界上最大的加密货币交易所，由于他的无知、嫉妒和与CCP的关联，他疯狂地攻击喜币。CZ将被中共秘密杀害，就像海航王健的命运一样。
 
-我说Facebook、Instagram、Youtube都是垃圾
-I said Facebook, Instagram, Youtube are all garbage
+5.      郭先生宣布了关于喜马拉雅币的巨大利好消息，作为最可信和最有价值的数字货币，喜币将被全球所有商家和商业企业自愿接受，就像信用卡的广泛使用一样；阿联酋的迪拜率先迈出了第一步，接受喜币用于房地产交易。
 
-因为他有时候耳朵不太好，有时候我的英文他又听不太清楚
-Because sometimes his hearing are not good, and sometimes he can’t understand my English very well
+6.      迈尔斯说：”喜马拉雅币在未来肯定会超过比特币，因为比特币可能不仅仅只有2100万个币，可能同时有一个平行比特币交易系统在运行，”
 
-他就说为什么啊？
-He asked why?
+7.    郭先生向世界发出主要讯息：”由于中共病毒和全球疫苗接种灾难，世界将被彻底改变，而青蒿素是真正的解药，不仅是对中共病毒，也是适用于疫苗接种者的解药。”。
 
-因为他们没有支付系统
-Because they don’t have a payment system
+8.      科学是了解三维世界运作的强大力量，但它不是真理也不是实相，因为科学是在一定条件下对现实世界的解释，而且具有局限性。换句话说，科学只是对自然界现象的整理，加上了有限的解释和主观的预测而已。
 
-它是销售个人数据
-It’s selling personal data
+9.      灵魂（或者可以说是永恒的不死不灭的微能量场），作为肉体和意识之间的连接，通过整合人类的精子和卵子，存在于当下的三维世界。这就是郭文贵先生关心人类的基因世袭传承的原因，也是他一再提及精子和卵子库的用心所在。
 
-盖特最重要的是它有支付系统，还不销售个人数据
-The most important thing about Gettr is that it has a payment system, but it doesn’t sell personal data
-
-它有原罪，我们没原罪
-It has the original sin, and we don’t
-
-它们必然被消灭，我们必然是永久生存而且是唯一的
-They’re bound to be wiped out, we’re bound to live forever and be the only ones
-
-有道理，是吧？
-Makes sense, doesn’t it?
-
-GTV一定是全世界最好的视频直播平台
-GTV must be the best live video platform in the world
-
-唯一的平台
-The only one
-
-七哥说的话是吹牛吗？
-Am I bragging?
-
-你觉得我一年前说这话，你们肯定不信
-You wouldn’t have believed me when I said that a year ago
-
-现在你觉得是吹牛吗？
-Do you think it’s bragging now?
-
-就这GTV，就这盖特，你知道，今天战友们记住啊
-Just the GTV and Gettr, you know, my fellow comrades remember
-
-更新你的手机软件，盖特软件，你就可以手机直播了
-Update your cell phone software, Gettr software, you can use your cell phone to go livestream
-
-你可以现在电脑直播，手机直播，而且我们还有同生字幕，中英文
-Now you can broadcast live on your computer, live on your phone, and there are simultaneous subtitles in English and Chinese on the Gettr platform
-
-而且现在的这个可以达到5K推流
-And now the clarity can reach 5K push stream
-
-我告诉兄弟姐妹们，你们就看到这一点功能的增加
-I tell you brothers and sisters, you just see this little increase in functionality
-
-它的价值是多大
-How valuable it is?
-
-昨天盖特和今天的盖特最起码增长50%
-Gettr increases at least 50% in yesterday and today
-
-如果它昨天市值1000亿的话，今天就涨了500亿
-If its market value was $100 billion yesterday, it’s add up $50 billion today
-
-就因为这一个功能
-Just because of this one feature
-
-Date: 11/16/2021
-原视频标题: Facebook等社交媒体无法和GTV 盖特比拟
-Facebook and other social media can’t compete with GTV and Getter
-原视频日期：2021/11/12
-任务编号：KC271（2898）
-视频时间段 : 0:00-1:28
-
-英听校：洛杉矶盘古农场 – Mike Li
-翻译：洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – Layka
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑整理：MOS – 正道人
 
  
 

@@ -2,162 +2,50 @@
 ---
 
 
-## 喜币的优势绝对是现今区块链发展的方向
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681477/)
+## 罗杰斯：“我相信中共的计划是在2022年奥运会后占领台湾。”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1681480/)
 
-[https://gtv.org/video/id=61992de2e6900076612d8985](https://gtv.org/video/id=61992de2e6900076612d8985)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/112001-1.jpg)资料图片：阿拉巴马州众议员迈克·罗杰斯（(Bill Clark/CQ Roll Call）
+摘要翻译：
 
-**郭文贵
-Miles Guo**
+来自《布赖特巴特新闻网》11月18日的报道称，
 
-(区块链专家 )他说，当区块链技术
-He (blockchain expert）said that when blockchain technology
+有迹象表明，中共国近几个月加大了其野心勃勃的步伐，尤其是在今年早些时候乔·拜登总统上任以来。然而，根据众议院军事委员会资深共和党议员迈克·罗杰斯(阿拉巴马州共和党)的说法，中共国可能在2022年进一步加强侵略。
 
-在2020年年底之后
-after the end of 2020
+罗杰斯在接受美国阿拉巴马州商业调频广播电台FM Talk 106.5电话采访时预测，在中共国举办2022年奥运会后，中共将尝试入侵台湾，因为有奥运会的宣传优势，同时也在被认为是软弱的拜登还是总统的情况下这样做。
 
-在逐渐普及之后
-gradually became popular,
+“这真的危险。”他说。“这个话题我已经谈了很久，我相信中共国的计划是在2022年奥运会之后占领台湾。他们打算利用奥运会作为契机，真正在全球范围内提升自己的形象。一旦奥运会结束，他们打算消耗一些资本，拿下台湾。而且我认为现在正在发生的事情是，他们正在衡量拜登，看看如果发生什么事，他会怎么做。我想我们都知道答案。”
 
-它基本上不会让人相信银行
-it basically would make no people trust the bank
+“我知道我相信他们会在2022奥运会之后立即这样做的另一个原因是，中共不想冒着拜登不能连任的风险，当美国由一个软弱的领导人领导时，这是一个采取行动的黄金机会。因为我确信，这将是本届政府的唯一任期，并且本届政府不会被另一个民主党人继任。所以，中共也面临着这种压力，要在世界上唯一的超级大国有机会做出最少的反应时采取行动。”
 
-他说如果在区块链得到应用
-He said if the blockchain has been applied
+**简评：**
 
-记住啊，要得到应用
-Remember, it has to be applied
+共和党参议员汤姆·科顿与众议员迈克·罗杰斯有一样的判断，即中共很有可能仿效俄罗斯在索契冬奥会之后攻占了克里米亚时的做法，在2022北京冬奥会之后攻占台湾。从习近平政府掌权之后，不断加强其极权统治的势头和习近平本人的性格分析，习近平政府也是完全有可能会这样做的。如今中共国政治内斗加剧，经济奄奄一息，这也促使习近平会铤而走险，利用一场战争缓解各方面的矛盾。
 
-特别是它的流通没有层次、没有阶级
-Especially when its circulation has no hierarchy or class,
+如果台海发生战争，地区局势会变得更加复杂，在国际社会对于新冠病毒溯源调查还没有明确答案的情况下，中共政权更有意愿通过制造地区的混乱局面来吸引国际社会的注意力，淡化国际社会对其制毒放毒这一罪恶行径的关注度。
 
-普遍性、支付性达到的时候
-and when its universality and payment availability is reached
+面对邪恶的中共政权，如果没有美日等国的协防，台湾很难有胜算，希望在科顿和罗杰斯这样有远见的政治人物的警醒和推动下，美国能够在中共犯台时，采取行动保护台湾，同时维护自己在亚太地区的军事和经济利益。
 
-没有任何人再相信政府和相信银行
-There would be no one to trust the government and the bank anymore
+新闻链接：[House Armed Services Ranking Member Rogers: ‘I Believe China’s Plan Is to Take Taiwan After the 2022 Olympics’](https://www.breitbart.com/clips/2021/11/18/house-armed-services-ranking-member-rogers-i-believe-chinas-plan-is-to-take-taiwan-after-the-2022-olympics/)
 
-2021年我们将看到去中心化存储、去中心化金融
-In 2021, we would see decentralized storage and decentralized finance,
+***翻译/简评**：Harvey (叶知秋)*
 
-和非政治性货币的飞速发展
-and the rapid development of non-political currencies
+***校对**：Julia Win*
 
-我认为表现最好的将是加密货币和比特币、以太坊
-In my opinion, the best performers would be cryptocurrencies and Bitcoin and Ethereum
+* * *
 
-然而我们希望继续在2022年看到成功
-However, we hoped to continue to see success in 2022
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-以太坊的扩展范围需要在2021年得到解决
-Ethereum’s extended scope needed to be resolved in 2021
 
-但是下一个专家说得很清楚
-But the following expert made it very clear
+编辑：【英国伦敦喜庄园编辑部】
 
-不能流通的虚拟货币
-Virtual currencies that could not be circulated
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-几乎都会被淘汰
-would almost always be eliminated
 
-在支付普遍性情况下的货币
-In the case of universal payment currency
 
-和有稳定性的货币一定是世界的金融之王
-and stable currency must be the king of finance in the world
 
-这就是人类的劳动和时间换来的生产结果
-and those were the results that exchanged from human’s labor and time
-
-不应该被政府垄断
-It should not be monopolized by the government
-
-不应该被一个某个政府所定价
-It should not be priced by a certain government
-
-区块链的到来
-The arrival of the blockchain
-
-把医学、科技、想法、知识全变成了
-has turned medicine, technology, ideology, and knowledge
-
-端到端的、公平的、去第三方去中心化的衡量资产的标准
-into end-to-end, fair, and third-party decentralized standards for measuring assets
-
-这是多么伟大呀
-How great this is
-
-最重要的事情
-The most important thing is that
-
-其中这仨哥们都说到
-among what these three buddy friends have said,
-
-全世界所有区块链的核心要点
-all the key points of all blockchains in the world
-
-全被喜联储给抓到了
-have been in possession of the Himalaya Reserve
-
-没有支付的货币一定没有未来，都得滚蛋
-Currency without a payment system will certainly have no future and would be eliminated
-
-你别忘了
-Please don’t forget
-
-IBM是整个区块链的核心要素
-IBM is the core element of the entire blockchain
-
-IBM的电脑里的有一种语言说得非常清楚
-And there is a language in IBM computers that speak very clearly that
-
-所有的区块链的最终的存在不存在的结果和价值
-the final existence and value of all blockchains
-
-衡量在你是否遵守区块链的去账本化的加密技术
-and the measurement of whether you comply with the de-booking encryption tech-nology of the blockchain
-
-就是保密安全
-is confidentiality and security
-
-咱们喜币牛就牛在这
-This is the extraordinary thing about our HCoin
-
-它能流通，是在全球啥都能买
-It can be circulated, and you can buy anything with it globally
-
-不但如此
-Not just this
-
-我可以稳定欧元
-I can stabilize the euro (with the HCoin)
-
-我想稳定谁稳定谁
-I can stabilize whoever I want (with the HCoin)
-
-所以咱的喜币牛的不是一般了
-Therefore, our HCoin is not just average, its extraordinary
-
-**原视频链接:** [https://gettr.com/post/pgywfk3cdf](https://gettr.com/post/pgywfk3cdf)
-
-Date: 11/14/2021
-原视频标题: 喜币的优势绝对是现今区块链发展的方向
-The advantage of HCoin is definitely the direction of current blockchain develop-ment
-原视频日期：2021/11/14
-任务编号：KC270（2897）
-视频时间段 : 0:00-2:17
-
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

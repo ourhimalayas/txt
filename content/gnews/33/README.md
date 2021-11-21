@@ -2,24 +2,50 @@
 ---
 
 
-## 新冠病毒烧伤大脑
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1681107/)
+## 福特和通用汽车可能将很快涉足半导体产业
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1681127/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11204-arizona.edu_.png)图片来自arizona.edu
-SARS-CoV-2 的真正目标可能是大脑。如果在疾病的第一阶段新冠病毒的症状主要是呼吸和代谢，那么一旦急性期解决，“后遗症”首先是神经系统的。
+作者：纽约香草山农场 – 四季
 
-最近发表在神经科学杂志上的布雷西亚大学和米兰贝斯塔神经学研究所的“COVID Next”研究数据证明了这一点。数据补充了大量研究，这些研究观察到新冠病毒治愈后神经系统综合症如何影响多达 70% 的具有中度严重症状的患者，从而导致记忆力、注意力、睡眠和情绪障碍。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-多达 70% 的中度至重度疾病患者在 6 个月后报告神经系统症状，包括慢性疲劳（34%）、记忆力和注意力障碍（32%），睡眠障碍 (31%)、肌肉酸痛 (30%) 以及抑郁和焦虑 (27%)。然而，这些问题也经常表现在那些患有轻微疾病的人身上。
 
-“目前尚不清楚为什么 SARS-CoV-2 可以将大脑作为其‘目标’，尤其是从长远来看，它会经常出现神经和精神类型的并发症，甚至严重的并发症。发起人兼科学协调员埃米利奥·萨切蒂 (Emilio Sacchetti) 说：“ 由感染引起的神经炎症机制和个体先前因强烈和长时间的压力状况而严重恶化的状况似乎在起作用。甚至接触某些疗法，例如，可的松药物，它可以诱发真正的神经精神障碍”。
 
-新冠病毒痊愈之后的神经和精神障碍也可能部分取决于大脑形态的改变，因为病毒会对受感染患者的大脑关键区域进行体积减少。同时缺乏社交互动也会导致灰质减少，尤其是年轻人和老年人。
 
-原文链接：[https://www.today.it/scienze/covid-coronavirus-brucia-cervello.html](https://www.today.it/scienze/covid-coronavirus-brucia-cervello.html)
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+据[零对冲](https://www.zerohedge.com/markets/ford-and-gm-could-soon-be-getting-semiconductor-production-business)11月19日报道，福特和通用汽车可能将开始垂直整合，通过生产来解决他们的半导体困境。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1466-ford-gm.png)图片来源：零对冲
+
+《华尔街日报》的一份新报告称，两家汽车制造商都在寻求进入半导体行业，事实上，福特已经与格芯（GlobalFoundries）达成开发芯片的战略协议，这一合作的重点是生产高端芯片，用于几年后的汽车，并实现其在美国的生产。
+
+报道称，福特正在考虑开发芯片，帮助改善一些车辆功能。而通用汽车也在与高通和恩智浦半导体等公司合作，并已签订了生产芯片的协议。
+
+汽车制造商预计，由于市场的高需求，芯片短缺将在未来几个月甚至几年内持续。然而，自由市场将为行业的瓶颈找到解决方案，使危机转化为机遇。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

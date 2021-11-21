@@ -2,69 +2,57 @@
 ---
 
 
-## [Michael.Tonny专栏]接种CCP病毒疫苗已在欧盟造成118.1万人产生不良反应
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1681255/)
+## 暴政警报：休斯顿卫生局的上门 COVID-19 疫苗“普查”开始
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1681312/)
 
-加拿大温哥华扬帆农场  Michael.Tonny
-![](https://assets.gnews.org/wp-content/uploads/2021/11/22-100.jpg)
-截止至2021年11月13日，EudraVigilance统计系统共收到四种在欧洲药品管理局所属欧洲经济区（EEA）27国推广的COVID-19（CCP病毒）疫苗已导致 1,163,356 例药物不良反应报告，其中，轻度不良反应665，751例，严重不良反应497,605例，死亡30,551例。而到2021年11月20日，该系统总共收到1,181,121例CCP病毒疫苗不良反应报告（包含死亡的数据）。
+2021 年 11 月 19 日，星期五
 
-这四种疫苗是：BioNTech/ Pfizer的mRNA疫苗Tozinameran，Moderna的mRNA疫苗mRNA-1273，Johnson & Johnson的疫苗JANSSEN，Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA 。
+作者：Zoey Sky
 
-EudraVigilance统计系统是欧洲药品管理局设立的一个旨在收集欧盟 (EU)国家疑似药物副作用报告和用于评估药物开发过程中的益处和风险，并在药品获得授权后监测其安全性的报告统计系统（[EudraVigilance-European database of suspected adverse drug reaction reports](https://www.adrreports.eu/en/search_subst.html)）。民众可以登录ADRreports.eu网站，查看疑似副作用报告的总数（Individual Case Safety Reports或ICSRs）。
+翻译： 沉默老歌
+![](https://assets.gnews.org/wp-content/uploads/2021/11/MODERNA_1-edited.jpg)
+（自然新闻）休斯顿卫生局 (HHD) 的城市工作人员被家庭安全摄像头拍到，他们挨家挨户询问居民是否已经接种了武汉冠状病毒 (COVID-19) 疫苗。
 
-这些数据是由欧盟(EU)各国药品监管机构和持有药品上市许可（执照）的制药公司以网络报告方式（electronically）提交给EudraVigilance的。
+这段由 Twitter 用户 Kukicat7 发布的视频显示，三名城市工作人员走到公寓大楼居民的门口，询问他们是否已经接种了 COVID-19 疫苗。
 
-持有药品上市许可的制药公司以及欧盟国家的药品监管机构，依法必须向EudraVigilance 提交疑似副作用报告。包含从医疗、保健专业人员和患者那里收到的报告，但不包括在欧盟之外发生的非严重副作用，也不包括研究报告（例如临床试验、非干预性研究）或其他类型的报告（仅自发报告）。
+城市工作人员都戴着口罩，拿着剪贴板。 一名被摄像机拍到的城市工作人员称，该组织“只是在社区内四处走动，告诉每个人他们可以获得冠状病毒疫苗”。
 
-必须报告的副作用包括：(i) 导致死亡，(ii) 危及生命，(iii) 需要住院或延长现有住院时间，(iv) 报告者认为会导致持续或严重的残疾/丧失能力，(v)先天性异常/出生缺陷，或 (vi) 导致其他一些重要的医学病症。
+随着视频的继续，可以听到一名城市工作人员询问居民是否他家中的每个人都接种了疫苗。 当房客回答说他和他的妻子都接种了疫苗时，市政工作人员询问这对夫妇接种了哪种疫苗。
 
-必须强调的是，EudraVigilance维护的数据库仅包括属于欧盟27个国家。这意味着，如果我们将欧洲50来个国家都包括在内，CCP病毒疫苗导致的不良反应病例会多得多。
+居民随后回答说他们接种了辉瑞疫苗，卫生部门的工作人员继续询问有多少家庭成员接种了疫苗。
 
-根据EudraVigilance系统统计数据显示，CCP病毒疫苗导致的副作用（死亡或药物不良反应）包括：血液和淋巴系统疾病；心脏疾病；先天性、家族性和遗传性疾病；听力系统疾病；内分泌失调；眼部疾病；胃肠道疾病；一般疾病和给药部位疾病；肝胆疾病；免疫系统疾病；易被感染或侵染；受伤、中毒和手术并发症；代谢和营养障碍；肌肉骨骼和结缔组织疾病；良性、恶性和未指明的肿瘤（包括囊肿和息肉）；神经系统疾病；妊娠、产褥期和围产期疾病；精神疾病；肾脏和泌尿系统疾病；生殖系统和乳房疾病；呼吸、胸部和纵隔疾病；皮肤和皮下组织疾病；；外科和医疗程序；血管疾病，等等。
+提问完毕后，工人们在公寓门口留下了小册子，继续他们的游说。
 
-截至2021年11月13日，四种疫苗导致的不良反应具体数据如下：
+但是，工作人员是简单地询问居民是否已经接种了疫苗，还是他们将地址分为“已接种疫苗”、“未接种疫苗”和“不确定”三类以供未来疫苗使用？  （相关调查：大多数美国人反对强制接种疫苗。）
 
-BioNTech/ Pfizer的mRNA疫苗Tozinameran（代码 BNT162b2，Comirnaty）：14,303 例死亡和562,213 例不良反应
+在拜登政府于 2021 年初提出这一想法后，InfoWars 创始人亚历克斯·琼斯 (Alex Jones) 此前曾向公民发出过关于挨家挨户疫苗大队的警告。
 
-Moderna的mRNA疫苗mRNA-1273(代码CX-024414)：8,385例死亡和155,793例不良反应
+虽然今天休斯顿市政府的员工似乎无害，但琼斯说，有朝一日，国家队可能“来强行为您和您的家人接种疫苗”。
 
-Johnson & Johnson的疫苗JANSSEN（AD26.COV2.S）：1793人死亡和37038不良反应
+HHD 告诉 200 多名公民重复接种冠状病毒疫苗
 
-Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA (CHADOX1 NCOV-19)：6,070 人死亡和408,312例不良反应
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture4.jpg)
-截止到2021年11月20日，EudraVigilance收到的BioNTech/ Pfizer、Moderna、Johnson & Johnson、Oxford/ AstraZeneca四种疫苗不良反应报告（包含死亡）分别为：574,427例、158,401例、410,479例、37,814例。
+HHD 最近宣布，由于两个地点的问题，超过 200 人应接种重复剂量的 COVID-19 疫苗。
 
-11月20日，Moderna的mRNA疫苗mRNA-1273的不良反应报告统计
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-21.jpg)
-11月20日，BioNTech/ Pfizer的mRNA疫苗Tozinameran（代码 BNT162b2，Comirnaty）的不良反应报告统计
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture2-3.jpg)
-# 
+据该部门称，该问题“与使用 Moderna 疫苗在产品到期日期之前接种有关，但在其使用日期之外。”
 
-11月20日，Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA (CHADOX1 NCOV-19) 的不良反应报告统计
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture3-1.jpg)
-11月20日，Johnson & Johnson的疫苗JANSSEN（AD26.COV2.S）的不良反应报告统计
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture5.jpg)
-参考资料：
+该机构在一份声明中解释说，冠状病毒疫苗需要在从冰箱转移到冰箱后 30 天内使用。 但是疫苗盒只标有有效期，这导致了错误。
 
-[EXCLUSIVE: European Medicines Agency Data Shows 1,163,356 Adverse Drug Reactions and 30,551 Fatalities by COVID-19 Vaccinations](https://www.thegatewaypundit.com/2021/11/european-medicines-agency-data-shows-1163356-adverse-drug-reactions-30551-fatalities-covid-19-vaccinations/)
+卫生部门报告说，由于 9 月 29 日至 10 月 28 日期间在 Sharpstown Health Services 和 Hiram Clark Multi-Service Centre 接种疫苗的事件，它正在联系 356 名患者。该机构建议一些患者报名重复 剂量而其他人不必做任何事情。
 
-[EudraVigilance-European database of suspected adverse drug reaction reports](https://www.adrreports.eu/en/data_source.html)
+休斯顿居民杰里米·里迪 (Jeremy Reedy) 目瞪口呆。 他说他于 10 月 27 日在 Sharpstown 拍摄了第二张 Moderna 照片。  11月17日，他接到电话，说疫苗“不好”，需要重新接种。
 
-[Important information to consider before looking at ADR reports for the COVID-19 vaccines](https://www.adrreports.eu/en/covid19_message.html)
+在声明中，HHD 还宣布，一旦发现事件，它会立即丢弃有问题的疫苗。 该机构表示将采取措施防止这种情况再次发生。 该部门还联系了 Moderna 寻求指导。
 
-[Number of individual cases identified in EudraVigilance received over the last 12 months and overall for COVID-19 MRNA VACCINE MODERNA (CX-024414) (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages)
+卫生部门提供以下建议：
 
-[The number of individual cases identified in EudraVigilance for TOZINAMERAN is 574,427 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42325700)
+在 9 月 29 日至 10 月 12 日期间接受了受影响剂量的 142 名患者不需要做任何事情，因为他们接受的剂量在给药时“保持了预防”COVID-19 所需的活动水平。
 
-[The number of individual cases identified in EudraVigilance for COVID-19 VACCINE ASTRAZENECA (CHADOX1 NCOV-19) is 410,479 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40995439)
+建议在 10 月 13 日至 28 日期间接受受影响剂量的 214 名患者接受重复剂量，因为受影响的剂量可能无法提供预防冠状病毒所需的活动水平。
 
-[The number of individual cases identified in EudraVigilance for COVID-19 VACCINE JANSSEN (AD26.COV2.S) is 37,814 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42287887)
+来源链接：https://www.afinalwarning.com/572195.html
 
-（免责声明：本文只代表作者观点，跟GNEWS平台无关）
-
-编审：文敏      发布：文敏
-
+发布：涅
+![This image has an empty alt attribute; its file name is 農場文宣.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/%E8%BE%B2%E5%A0%B4%E6%96%87%E5%AE%A3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,50 +2,109 @@
 ---
 
 
-## 欧盟官方确认疫苗已致三万多人死亡
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1681503/)
+## Facebook等社交媒体无法和GTV盖特比拟
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681507/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+[https://gtv.org/video/id=61992e4ae6900076612d89dc](https://gtv.org/video/id=61992e4ae6900076612d89dc)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/V-11.jpg)truedemocracyparty.net
-《门道专家》11月19日发表文章，题目是，“欧洲药品管理局数据显示，中共（冠状）病毒疫苗不良反应事件有1,163,356例，30,551例死亡。
+**郭文贵**
+**Miles Guo**
 
-全文如下：
+我昨天跟摩根先生说，它是垃圾
+I told Mr. Morgan yesterday that it was garbage
 
-欧盟官方的可疑药物反应数据库网站目前根据提交给其系统的数据，报告了截至2021年11月13日，辉瑞、摩德纳、强生和阿斯利康的中共病毒疫苗，有30,551例死亡和1,163,356例不良药物反应。
+摩根先生讲，你什么意思？
+Mr. Morgan said, “What do you mean?”
 
-根据欧洲药品管理局”（European Medicines Agency）的说法，“不良反应数据报告门户网站”（ADRreports.eu portal）是欧盟的一个官方网站，这个网站“允许用户查看可疑的副作用报告的总数（也称独立的安全病例报告，即ICSRS，Individual Case Safety Reports），中共病毒疫苗不良反应的数据发表在这个网站。
+我说它是垃圾。它是什么垃圾？
+I said it’s garbage. Why?
 
-网站和独立的病案报告表中显示的所有数据均来自“尤德拉警戒”（Eudra Vigilance），“一个旨在收集可疑副作用报告的系统，用于评估药物开发过程中的益处和风险，并在欧洲经济区（EEA）授权后监测其安全性。”
+我说Facebook、Instagram、Youtube都是垃圾
+I said Facebook, Instagram, Youtube are all garbage
 
-这些信息由“国家药品监管机构和持有药品销售许可证（执照）的制药公司”以电子方式提交给“尤德拉警戒”（系统）。
+因为他有时候耳朵不太好，有时候我的英文他又听不太清楚
+Because sometimes his hearing are not good, and sometimes he can’t understand my English very well
 
-来自“不良反应数据报告门户网站”：
+他就说为什么啊？
+He asked why?
 
-持有药品上市许可证的制药公司，以及欧洲经济区的药品监管机构，在法律上被要求向“尤德拉警戒”（系统）提交疑似副作用的报告，这包括从医疗专业人员和患者处收到的报告，这不包括欧洲经济区以外发生的非严重副作用病例。
+因为他们没有支付系统
+Because they don’t have a payment system
 
-网络报告不包括研究报告（如临床试验、非介入性研究）或其他类型的报告（即非勉强要求的报告）。
+它是销售个人数据
+It’s selling personal data
 
-如果（i）导致死亡，（ii）危及生命，（iii）需要住院或延长现有住院时间，（iv）导致持续或严重残疾/丧失能力（根据报告人的意见），（v）是先天性异常/出生缺陷，或（vi）在其他一些重要的医疗条件下的结果等的就被归类为“严重” 副作用。
+盖特最重要的是它有支付系统，还不销售个人数据
+The most important thing about Gettr is that it has a payment system, but it doesn’t sell personal data
 
-《健康影响新闻》（Health Impact News）的一份报告提到，“尤德拉警戒”（系统）维护的数据库仅适用于属于欧盟（EU）的欧洲国家，欧盟由27个国家组成。这意味着，如果我们将欧洲所有国家都包括在内，中共病毒疫苗的不良反应将高得多。
+它有原罪，我们没原罪
+It has the original sin, and we don’t
 
-以下是截至2021年11月13日的数据摘要。
+它们必然被消灭，我们必然是永久生存而且是唯一的
+They’re bound to be wiped out, we’re bound to live forever and be the only ones
 
-“尤德拉警戒”（系统）中所述，来自辉瑞生物技术的吉那美兰（Tozinameran）mRNA疫苗（代码BNT162b2，Comirnaty类）的总反应：14,303例死亡和562,213例不良反应，具体数据如下：
+有道理，是吧？
+Makes sense, doesn’t it?
 
-……
+GTV一定是全世界最好的视频直播平台
+GTV must be the best live video platform in the world
 
-原文列出了各种疫苗、各种不良反应详细的数据。
+唯一的平台
+The only one
 
-（摘译完）
+七哥说的话是吹牛吗？
+Am I bragging?
 
-110多万起不良反应，3万多人死亡，这还不是欧洲的全部，笔者怀疑公布的数据还有可能被“压缩”，面对这种情况，懵懂的人们还不觉醒？还让阴谋集团牵着鼻子走？
+你觉得我一年前说这话，你们肯定不信
+You wouldn’t have believed me when I said that a year ago
 
-原文链接：
+现在你觉得是吹牛吗？
+Do you think it’s bragging now?
 
-[https://www.thegatewaypundit.com/2021/11/european-medicines-agency-data-shows-1163356-adverse-drug-reactions-30551-fatalities-covid-19-vaccinations/](https://www.thegatewaypundit.com/2021/11/european-medicines-agency-data-shows-1163356-adverse-drug-reactions-30551-fatalities-covid-19-vaccinations/)
+就这GTV，就这盖特，你知道，今天战友们记住啊
+Just the GTV and Gettr, you know, my fellow comrades remember
+
+更新你的手机软件，盖特软件，你就可以手机直播了
+Update your cell phone software, Gettr software, you can use your cell phone to go livestream
+
+你可以现在电脑直播，手机直播，而且我们还有同生字幕，中英文
+Now you can broadcast live on your computer, live on your phone, and there are simultaneous subtitles in English and Chinese on the Gettr platform
+
+而且现在的这个可以达到5K推流
+And now the clarity can reach 5K push stream
+
+我告诉兄弟姐妹们，你们就看到这一点功能的增加
+I tell you brothers and sisters, you just see this little increase in functionality
+
+它的价值是多大
+How valuable it is?
+
+昨天盖特和今天的盖特最起码增长50%
+Gettr increases at least 50% in yesterday and today
+
+如果它昨天市值1000亿的话，今天就涨了500亿
+If its market value was $100 billion yesterday, it’s add up $50 billion today
+
+就因为这一个功能
+Just because of this one feature
+
+Date: 11/16/2021
+原视频标题: Facebook等社交媒体无法和GTV 盖特比拟
+Facebook and other social media can’t compete with GTV and Getter
+原视频日期：2021/11/12
+任务编号：KC271（2898）
+视频时间段 : 0:00-1:28
+
+英听校：洛杉矶盘古农场 – Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – Layka
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
