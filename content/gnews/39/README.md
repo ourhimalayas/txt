@@ -2,10 +2,30 @@
 ---
 
 
-## 11/20/2021【11·20王健之死新闻发布会三周年】班农先生：支持着我为中国人争取民主和自由而战的是中国人的意志力、决心、对家庭与传统价值的敬奉和传承；中国老百姓和美国老百姓有着同样的品质，而正是这些品质将最终灭掉中共
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1683129/)
+## GTV新闻访谈简报|2021年11月21日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683321/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2.png)
+
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-22.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：2021.11.21早GTV新闻访谈
+
+[https://gtv.org/video/id=619a4955cbfd016d6378903d](https://gtv.org/video/id=619a4955cbfd016d6378903d)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov.jpg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

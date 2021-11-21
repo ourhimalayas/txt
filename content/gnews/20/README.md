@@ -2,42 +2,29 @@
 ---
 
 
-## 青蒿趣谈
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1683745/)
+## 郭文贵先生对新中国联邦人的期望
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683797/)
 
-2021-11-21
+作者：纽约香草山农场福音部-恩永存
 
-整理总结资料：Elli
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-543-edited.png)图源：网络/筱雅美食
-
-> “青蒿素是中医药送给世界人民的礼物。”
-> — 屠呦呦（因发现青蒿素而获得诺贝尔科学奖）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-4.png)
 
 
-屠呦呦研究的青蒿学名为Artemisinin Annua，而常用的英文名字为wormwood，泛指艾草，艾蒿，青蒿，中亚苦蒿等好几种菊科植物。Wormwood在圣经启示录里被翻译为茵陈，讲述第三位天使吹号后，一颗名叫茵陈（wormwood艾草本身很苦，所以翻译为茵陈，也为苦的意思）的星星坠落到地球上，使三分之一的河流和泉水变成苦涩的，英文原文是：The third Angel trumpeted. A huge Star, blazing like a torch, fell from Heaven, wiping out a third of the rivers and a third of the springs. The Star’s name was **Wormwood**. A third of the water turned bitter, and many people died from the poisoned water.
 
-Artemisia这个词来自古希腊语ἀρτεμισία，词源来自Ἄρτεμις（Artemis）。在希腊文化中，阿尔忒弥斯是狩猎女神、森林和儿童的保护神。
 
-青蒿与艾草同为菊科植物，两者都带有一个“蒿”字，青蒿的学名叫蒌蒿，而艾草学名为艾蒿。而且都喜欢生长在田埂地边、池塘边等土壤水分丰富的地方。青蒿和艾草均为药食兼用植物，有清热祛风和消毒的作用。在实际生活中，人们将青蒿视为春天最受欢迎的野味之一，“烂烝香荠白鱼肥，碎点青蒿凉饼滑”，以青蒿嫩尖制作的粑粑和青团为湖南、江浙等地的特色传统美食。而艾草很少食用，大多时候作为除湿祛寒和驱蚊灭菌的天然药材，尤其是在蒸熏中运用较多。青蒿和艾草都有特殊的香味，一般不会直接散发出来，只有将它们的叶子碾碎后，味道才会释放。同样是香气，但两种香气截然不同，放在鼻子上嗅一嗅，会感到它们明显的差别。青蒿有一种带有清凉的淡淡清香，令人非常舒服；而艾草的香气比较浓郁，虽也有清凉感但伴有辛辣气，气味比较厚重。
 
-参考链接：
+11月17日，郭文贵先生在大直播中谈及家族基金投资成功的经验时，对战友们有以下期望： 首先要找到做人的窍门和法门，以及走向成功的智慧。其次要和高人打交道，核心是你的智慧、谦虚和为人，然后这些高人就会介绍比他们更高层次的人给你。 郭先生说他很早就认识了美国的科技界、生物界，然后是投资界。1999年郭先生在硅谷住了六个月，认识了多国领导人，结交了科技界朋友。他了解了太空文化，启迪了内心智慧，从而释放了内心潜力。郭先生的家族基金投资那么多生物科技、芯片，都跟那时结识的人脉有关。 郭先生最后说：新中国联邦人不要学张高丽、马云。要自己强大，而让自己强大的只有一条，即相信你的世界使命，相信上天有神。新中国联邦受上天指引，处处充满着神秘，一定有来自上天超自然的力量在帮助我们。
 
-[青蒿網站：https://www.artemisiaannua.org](https://www.artemisiaannua.org)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6383d6c383a688bc0ce747d8282e44b3_500x0-3.jpeg)图片来源：喜马拉雅农场联盟委员会
 
-[艾草在聖經啓示錄中的內容](https://www.biblegateway.com/quicksearch/?quicksearch=wormwood&amp;version=MSG)
+**参考阅读：**
 
-[YouTube視頻：University of Kentucky：Cancer, COVID and the Kentucky Economy: How “Sweet Annie” Could Make an Impact](https://www.youtube.com/watch?app=desktop&amp;v=3fSAQorkDqc)
+https://gettr.com/post/ph567f4b1f
 
-[青蒿和艾草的區別](https://3g.163.com/dy/article/G5CD872B0542ROII.html?spss=adap_pc)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-4.jpg)
 
-[中医带你认识艾叶艾绒和艾条](https://zhuanlan.zhihu.com/p/45447799?back=https%3A%2F%2Fwww.google.com%2Fsearch%3Fclient%3Dsafari%26as_qdr%3Dall%26as_occt%3Dany%26safe%3Dactive%26as_q%3D%E8%89%BE%E6%9D%A1%E6%98%AF%E7%94%A8%E8%89%BE%E8%8D%89%E5%81%9A%E5%87%BA%E6%9D%A5%E7%9A%84%E5%90%97%26channel%3Daplab%26source%3Da-app1%26hl%3Dzh_CN)
+编辑/校对/发稿：一烘
 
-[維基百科-中亚苦蒿](https://zh.wikipedia.org/zh-hant/中亚苦蒿)
-
-[維基百科-*Artemisia absinthium*](https://en.wikipedia.org/wiki/Artemisia_absinthium)
-
-校对发布：MQ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
