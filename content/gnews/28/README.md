@@ -2,30 +2,36 @@
 ---
 
 
-## 强制疫苗导致欧盟3万多人死亡和上百万人不良反应
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683048/)
+## 有声|美国国会支持台湾参与国际刑警组织
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1683059/)
 
-撰稿：纽约香草山 – AlexZ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
-近日，欧盟疑似药物反应数据库网站统计，截至 2021 年 11 月 13 日，来自辉瑞、Moderna、强生和阿兹利康的中共病毒疫苗导致 了30,551 人死亡和 1,163,356 人药物不良反应。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11213.png)
-据欧洲药品管理局称，中共病毒疫苗的不良反应数据发布在 ADRreports.eu 门户网站上。该网站允许用户查看个人疑似副作用报告的总数。其所有数据均来自 EudraVigilance。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月18日，美国国会众议员约翰-科蒂斯表示，70多位美国两党议员联合致函国务卿布林肯、司法部长加兰德，以及国际刑警组织驻华盛顿办事处主任休斯，表明国会支持将台湾纳入国际刑警组织的明确意图。
 
-EudraVigilance是一个旨在收集疑似副作用报告的系统，由“国家药品监管机构”和持有药品上市许可执照的制药公司以电子方式提交相关数据。据了解，目前该数据只包含欧盟中的欧洲国家。
+声明提到，台湾在国际刑警组织中的持续缺席给打击国际犯罪的努力留下了真空。另外，国际刑警组织的“红色通缉令”制度会被诸如中共和俄罗斯等独裁政权所利用。因此，台湾理应具备与美国和其他民主伙伴共事的席位，从而根除国际刑警组织的腐败和滥权。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3-6.png)
+声明强调，拜登政府必须落实国会通过法律的意图，用以抗衡中共的影响力。同时，政府应在国际刑警组织大会之前，推动台湾参与该组织。
 
-总编：木白
 
-校正/发稿：浪迹天涯
+原文链接：[美国国会支持台湾参与国际刑警组织](https://gnews.org/zh-hans/1680739/)
+
+
+音频处理：喜山必胜Maverick
+
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
