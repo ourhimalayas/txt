@@ -2,42 +2,38 @@
 ---
 
 
-## 青蒿趣谈
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1683745/)
+## 银河快讯: 日本首相将审查财政重建目标；日中韩领导人会议无望在年内举行
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1683747/)
 
-2021-11-21
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-95.png)[图片来源](https://courrier.jp/news/archives/263823/)
+**1.****日本首相将审查财政重建的目标**
 
-整理总结资料：Elli
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-543-edited.png)图源：网络/筱雅美食
+[据朝日新闻 11月19日报道，岸田文雄首相将对政府在2025年之前实现基本平衡盈余的计划进行必要的审查，这将使政府能够支付政策支出而不需要诉诸新的债务。 根据审查的结果，政府可能会推迟实现目标的时间。他说，“在21年的主要政策中明确指出，将在政年度内审中共病毒对经济和公共财政的影响，并将重新确认目标财政年度… 我们将根据政策重新确认目标年… 我们必须振兴经济，然后再考虑公共财政问题。”](https://www.asahi.com/articles/ASPCM6RT9PCMUTFK01P.html)
 
-> “青蒿素是中医药送给世界人民的礼物。”
-> — 屠呦呦（因发现青蒿素而获得诺贝尔科学奖）
+**2.****厚劳省将从1月起减少休业支援金**
 
+[据时事通讯社11月19日报道，厚生劳动省宣布，将从明年1月起减少为应对中共病毒而实施的就业调整补贴（雇佣补贴）和休业支援金的特别措施。 随着经济活动逐渐开始正常化，将对支付的细节进行审查。从1月起，最高金额将降至8,265日元，同时保持补贴率。 关于就业津贴的特殊情况，每名雇员的最高金额，目前为13,500日元，在1月和2月将降至11,000日元，3月为9,000日元。](https://www.jiji.com/jc/article?k=2021111901246&amp;g=eco)
 
-屠呦呦研究的青蒿学名为Artemisinin Annua，而常用的英文名字为wormwood，泛指艾草，艾蒿，青蒿，中亚苦蒿等好几种菊科植物。Wormwood在圣经启示录里被翻译为茵陈，讲述第三位天使吹号后，一颗名叫茵陈（wormwood艾草本身很苦，所以翻译为茵陈，也为苦的意思）的星星坠落到地球上，使三分之一的河流和泉水变成苦涩的，英文原文是：The third Angel trumpeted. A huge Star, blazing like a torch, fell from Heaven, wiping out a third of the rivers and a third of the springs. The Star’s name was **Wormwood**. A third of the water turned bitter, and many people died from the poisoned water.
+**3.****自民党税调会长意在建立一个能增加全面收入的税收制度**
 
-Artemisia这个词来自古希腊语ἀρτεμισία，词源来自Ἄρτεμις（Artemis）。在希腊文化中，阿尔忒弥斯是狩猎女神、森林和儿童的保护神。
+[据NHK 11月21日报道，自民党税制调查会长强调，需要建立一个“工资增长税制”，使整体工资和薪金稳步增长，而不仅仅是奖金等一次性付款。所谓的 “工资增长税制 “将提高税收抵免，以支持那些愿意提高工资的公司。“安倍经济学导致了许多公司能够盈利的局面，但迄今为止的趋势是提高奖金… 在这次税收改革中，我们必须使税收制度能够让公司愿意大幅提高工资。”他强调，他的目标是实现税收措施，以稳定地导致工资增长。](https://www3.nhk.or.jp/news/html/20211119/k10013355251000.html?utm_int=news-politics_contents_list-items_011)
 
-青蒿与艾草同为菊科植物，两者都带有一个“蒿”字，青蒿的学名叫蒌蒿，而艾草学名为艾蒿。而且都喜欢生长在田埂地边、池塘边等土壤水分丰富的地方。青蒿和艾草均为药食兼用植物，有清热祛风和消毒的作用。在实际生活中，人们将青蒿视为春天最受欢迎的野味之一，“烂烝香荠白鱼肥，碎点青蒿凉饼滑”，以青蒿嫩尖制作的粑粑和青团为湖南、江浙等地的特色传统美食。而艾草很少食用，大多时候作为除湿祛寒和驱蚊灭菌的天然药材，尤其是在蒸熏中运用较多。青蒿和艾草都有特殊的香味，一般不会直接散发出来，只有将它们的叶子碾碎后，味道才会释放。同样是香气，但两种香气截然不同，放在鼻子上嗅一嗅，会感到它们明显的差别。青蒿有一种带有清凉的淡淡清香，令人非常舒服；而艾草的香气比较浓郁，虽也有清凉感但伴有辛辣气，气味比较厚重。
+**4.****日元对美元的汇率即将达到115日元**
 
-参考链接：
+[据共同社 11月19日报道，日本时间16日晚10点30分公布的美国10月零售销售数据引发了日元的走弱。销售额比上个月增长了1.7%。 这超过了市场预测的1.2%。反映公司生产情况的“矿工业生产”也比上个月增加了1.6%。5日发布的美国就业报告也很强劲，证实了美国经济的稳步复苏。人们越来越相信美联储会更快地提高利率，而日本和美国的利率差距不断扩大，导致美元被买入，日元被卖出。](https://www3.nhk.or.jp/news/html/20211119/k10013354391000.html?utm_int=news-business_contents_list-items_001)
 
-[青蒿網站：https://www.artemisiaannua.org](https://www.artemisiaannua.org)
+**5.****日中韩领导人会议无望在年内举行**
 
-[艾草在聖經啓示錄中的內容](https://www.biblegateway.com/quicksearch/?quicksearch=wormwood&amp;version=MSG)
+[据共同社 11月20日报道，日中韩领导人会议基本上将连续2年无望举行。日本和会议主席国韩国围绕原被征劳工和原慰安妇等历史问题对立，年内开会的条件没有成熟。美中两国对立预计也将长期持续，东亚三国合作的势头低迷。日中韩领导人会议力争由三国每年轮流举办，但2019年12月在中共国召开之后，重启尚无眉目。日本外务省表示“完全没做好开会的协调工作”。](https://tchina.kyodonews.net/news/2021/11/cd3b1a5dba05.html)
 
-[YouTube視頻：University of Kentucky：Cancer, COVID and the Kentucky Economy: How “Sweet Annie” Could Make an Impact](https://www.youtube.com/watch?app=desktop&amp;v=3fSAQorkDqc)
+**6.****日本政府新设经济安全保障法制准备室**
 
-[青蒿和艾草的區別](https://3g.163.com/dy/article/G5CD872B0542ROII.html?spss=adap_pc)
+[据共同社 11月20日报道，“经济安全保障法制准备室”配备了来自财务省和经济产业省等的约50人，加速制定向明年例行国会提交的“经济安保推进法案”。法案将写入支援高科技技术开发、强化电子设备不可或缺的半导体等战略物资的供应链。首相要求经济安保担当相加紧探讨法案。法制准备室将与国家安全保障局合作，推进法案具体化。](https://tchina.kyodonews.net/news/2021/11/722247a0b44f.html)
 
-[中医带你认识艾叶艾绒和艾条](https://zhuanlan.zhihu.com/p/45447799?back=https%3A%2F%2Fwww.google.com%2Fsearch%3Fclient%3Dsafari%26as_qdr%3Dall%26as_occt%3Dany%26safe%3Dactive%26as_q%3D%E8%89%BE%E6%9D%A1%E6%98%AF%E7%94%A8%E8%89%BE%E8%8D%89%E5%81%9A%E5%87%BA%E6%9D%A5%E7%9A%84%E5%90%97%26channel%3Daplab%26source%3Da-app1%26hl%3Dzh_CN)
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：Windfish
 
-[維基百科-中亚苦蒿](https://zh.wikipedia.org/zh-hant/中亚苦蒿)
-
-[維基百科-*Artemisia absinthium*](https://en.wikipedia.org/wiki/Artemisia_absinthium)
-
-校对发布：MQ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

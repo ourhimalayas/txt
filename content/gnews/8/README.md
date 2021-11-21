@@ -2,27 +2,25 @@
 ---
 
 
-## 继欧洲议会、德国和美国之后 英国也考虑外交抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683656/)
+## 班农先生和郭先生回顾1120新闻发布会和法治基金法治社会成立
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683657/)
 
-作者：东京樱花团—在远方
+作者：纽约香草山信息部- 诺雅
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-英国媒体11月20日报道，英国首相约翰逊，正在考虑外交抵制北京冬奥会，以抗议中共恶劣的人权纪录。该报道称，五名保守党政客致信约翰逊，敦促他禁止英国任何官方外交代表，出席2月份的北京冬奥。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-22-上午3.02.10.png)
-就在两天前，美国总统拜登证实，美国政府正在考虑对北京冬奥会进行外交抵制。上个月，即将从德国联邦议院体育委员会主席卸任的，弗莱塔克女士也再次呼吁，各国政府要抵制北京冬奥，作为对中共当局严重侵犯人权的抗议。
+11月20日，文贵先生和班农先生共同出席大直播，回顾了1120新闻发布会和法治基金法治社会的成立。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-22-上午3.01.31.png)
+2018年8-9月，文贵先生告诉班农先生要举办王建之死新闻发布会。准备过程中，验证了中共在美国的渗透：林肯中心的场地预定被无故取消，郭先生无数次受到中共随时随地的死亡威胁，欺民贼不断地造谣和攻击。并且，1120当天，中共控制的香港高等法院宣布冻结郭先生在87亿港币的资产。
 
-7月份，欧洲议会也以压倒性票数，通过了一项不具强制力的决议，敦促欧盟及成员国的官员，不要出席北京冬奥会。
+在准备过程中，班农先生建议制作最受关注的失踪名人照片墙，并提议成立法治基金 。法治基金在美国和西方社会合法呼吁，率先告诉世界ccp病毒是中共的生物武器，以及疫苗的阴谋和灾难。
 
-参考链接：
-1）[英国正考虑外交抵制北京冬奥会–泰晤士报](https://www.reuters.com/article/uk-thames-beijing-winter-olympic-1120-idCNKBS2I508P)
-2）[彭帅事件或加剧抵制呼声 美国对北京冬奥的外交抵制意味着什么？](https://www.voachinese.com/a/beijing-olympics-diplomatic-boycott-20211119/6320934.html)
-3）[卸任前登高一呼 德國聯邦議院體委會主席籲抵制北京冬奧](https://news.ltn.com.tw/news/world/breakingnews/3701885)
-4）[欧洲议会通过决议呼吁外交抵制北京冬奥会 北京称不值得关注](https://www.voachinese.com/a/European-parliament-resolution-beijing-olympics-boycott-20210709/5960158.html)
+极为可惜的是，因为中共对全世界金融，媒体，政府的完全渗透，导致了郭先生在1120以生命发出的警告未能被听到。至今，中共病毒已经杀死了世界几百万无辜的人们，导致了几亿人感染。
+
+参考链接：[https://gettr.com/post/phfwwdaf84](https://gettr.com/post/phfwwdaf84)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-总编：文特
-编辑：Kathy文艺
+总编：Zion文恩
+编辑：文特
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
