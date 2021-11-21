@@ -2,34 +2,36 @@
 ---
 
 
-## 到底是谁惹的祸——病毒？疫苗？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1683055/)
+## 有声|美国国会支持台湾参与国际刑警组织
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1683059/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-16.jpg)
-图片来自网络
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月18日，美国国会众议员约翰-科蒂斯表示，70多位美国两党议员联合致函国务卿布林肯、司法部长加兰德，以及国际刑警组织驻华盛顿办事处主任休斯，表明国会支持将台湾纳入国际刑警组织的明确意图。
 
-韩国的感染人数再次上升。危重病人的病床使用率完全超出政府的预定指标，情况已经恶化。
+声明提到，台湾在国际刑警组织中的持续缺席给打击国际犯罪的努力留下了真空。另外，国际刑警组织的“红色通缉令”制度会被诸如中共和俄罗斯等独裁政权所利用。因此，台湾理应具备与美国和其他民主伙伴共事的席位，从而根除国际刑警组织的腐败和滥权。
 
-21日新增感染人数为3120人。人数连续五天突破3000，18日达到3292人，创下历史新高。21日的重症人数为517人，全国重症患者床位使用率为66.6%，而首尔则达到82.9%，这个比例远远超过了政府预想的可控的“75%的基准”。
+声明强调，拜登政府必须落实国会通过法律的意图，用以抗衡中共的影响力。同时，政府应在国际刑警组织大会之前，推动台湾参与该组织。
 
-韩国疫苗接种率，截至21日达到78.9%。86.6%的重症患者年龄在60岁以上，养老院集体感染情况尤为突出。
 
-韩国政府将此次感染扩大的原因归结为以下两条:
+原文链接：[美国国会支持台湾参与国际刑警组织](https://gnews.org/zh-hans/1680739/)
 
-1.在确认疫苗接种比例上升后，韩国政府从1日起称可“与病毒共存”，并放宽了对餐厅人数和营业时间的限制。
 
-2.接种疫苗后因时间过长而降低了疫苗免疫的效果。
+音频处理：喜山必胜Maverick
 
-按照韩国政府的逻辑，接下来的对策是应继续打加强针，增强所谓的免疫效果。与此同时，继续限制出行，限制人数用餐。试问，这真的符合正常逻辑吗？那疫苗作用何在？！在高疫苗接种率的情况下，感染人数竟然能突破历史新高，这打进人体的到底是疫苗，还是高传染率的病毒？听政府的，继续第三针，第四针……下一次，躺倒在病床上的恐怕就是你我了吧。郭文贵先生早提醒世人“病毒与疫苗乃母子弹，中共有意释放病毒，疫苗才是灾难的开始”。所以真相就在眼前，顺从与反抗就是一念之间。
+发稿：Daxia
 
-##### 信息源：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-[韓国「ウィズコロナ」瀬戸際　免疫効果が低下？　緩和で重症者増加](https://news.yahoo.co.jp/articles/ffd7c0344a842a9c48d034818d9c1aa86275c7e4)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

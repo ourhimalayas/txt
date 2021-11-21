@@ -2,38 +2,43 @@
 ---
 
 
-## 法治基金/法治社会三周年 班农先生畅谈感想
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1682946/)
+## 有声|福特和通用汽车可能将很快涉足半导体产业
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1682947/)
 
-撰稿：纽约香草山文艺部 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
-11月20日，在法治基金/法治社会成立三周年之际，作为创始人之一的班农先生接受了本台专访。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11212-1.jpg)
-采访中，班农先生提到，法治基金/法治社会成立于三年前，其目的是为了揭露作为非法政府、黑社会、国际犯罪集团的中共迫害中国老百姓以及祸害全世界的罪行。同时，法治基金/法治社会为爆料革命提供包括公关、解救、庆典与安保等各个方面的活动资金。
+配音：香草山美食部 – 玫瑰园
 
-班农先生表示，这三年时间里发生了太多事情，世界也发生了巨大的变化。更为重要的是，中国人民追求民主法治、自由言论以及保护私有财产等愿景正在逐步实现。 班农先生补充，二战时，中国人民为支援美军献出了鲜血和生命；今天，为中国人民而战是让人非常自豪的事情。
 
-班农先生还提及，尽管郭先生从爆料开始就一直警告世界，但西方国家至今仍然没有充分意识到病毒和疫苗与经济深度勾联造成的严重灾难。
 
-最后，班农先生强调，法治基金/法治社会还有很多工作要做。另外，对于G系列的发展，特别是喜币的成功发行，班农先生给予了高度评价。他赞扬，从GTV、GNews、盖特，还有喜币上市这一系列事件中可以证明，爆料革命的行动力让世界震惊。
+据[零对冲](https://www.zerohedge.com/markets/ford-and-gm-could-soon-be-getting-semiconductor-production-business)11月19日报道，福特和通用汽车可能将开始垂直整合，通过生产来解决他们的半导体困境。
 
-班农先生总结道，历史会评判我们的努力。
+《华尔街日报》的一份新报告称，两家汽车制造商都在寻求进入半导体行业，事实上，福特已经与格芯（GlobalFoundries）达成开发芯片的战略协议，这一合作的重点是生产高端芯片，用于几年后的汽车，并实现其在美国的生产。
 
-新闻链接：&lt;11月20日文贵大直播&gt;
+报道称，福特正在考虑开发芯片，帮助改善一些车辆功能。而通用汽车也在与高通和恩智浦半导体等公司合作，并已签订了生产芯片的协议。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3-1.png)
+汽车制造商预计，由于市场的高需求，芯片短缺将在未来几个月甚至几年内持续。然而，自由市场将为行业的瓶颈找到解决方案，使危机转化为机遇。
 
-编辑：Kathy文艺
 
-校正/发稿：浪迹天涯
+原文链接：[福特和通用汽车可能将很快涉足半导体产业](https://gnews.org/zh-hans/1681127/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+音频处理：喜山必胜Maverick
+发稿：Daxia
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+[![](https://media.discordapp.net/attachments/908033143146172416/909632036548014181/s2.png?width=400&amp;height=54)](https://cdn.discordapp.com/attachments/908033143146172416/909632036548014181/s2.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
