@@ -2,40 +2,28 @@
 ---
 
 
-## 美两党议员联合推动台湾加入国际货币基金组织
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1682054/)
+## 美国官方数据显示疫苗伤害案件量触目惊心
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1682160/)
 
-作者：东京樱花团 – 在远方
+采编：风云小哥     编译撰稿：文明(添草灭共）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-155.png)
-
-
-
-当地时间11月19日，美国共和党众议员安东尼.冈萨雷斯宣布，他与民主党众议员艾尔.格林，共同推出了让台湾在国际货币基金组织拥有席位的法案，以应对中共威胁。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-15.jpg)
-
-据悉，北京于1980年进入国际货币基金组织并取代了台北。多年来，中共用“蓝、金、黄”等手段，通过不断增加其在国际货币基金组织、世界银行和世卫组织等机构中的影响力来打压台湾。
-
-该法案名为《不歧视台湾法案》，期望为台湾在国际金融机构争取更公平的待遇。冈萨雷斯说，台湾作为一个世界主要经济体，将在国际基金组织中起关键作用。同时，这有利于台湾应对中共的威胁。
-
-参考链接：
-
-- [美两党议员推出法案 呼吁让台湾在国际货币基金组织拥有席位](https://www.voachinese.com/a/us-lawmakers-introduced-taiwan-imf-bill-20211119/6320947.html)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-8-edited.png)图片来源：yahoo新闻
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
+美国非盈利组织【儿童健康防卫】11月19日报道，据该国[疾病控制预防中心]当天发布的最新数据显示，在2020年12月至2021年11月期间，总共发生了89万多起“新冠病毒”疫苗接种后的健康伤害案件。
 
-总编：木白
-编辑：木白
-校正/发稿：海阔天空1
+据悉，这些案件是由美国政府资助的【疫苗不良事件报告系统】，针对各国在使用美国制造商提供的疫苗后，所出现的各类不良事件而收录的。但有消息称，经该系统确认的疫苗副作用案例数通常只占实际数据的1%。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+报道还指出：在以上数据中，严重伤害报告约14万起，包括1万8千多件死亡个案；另外，在8千多宗美国死亡病例中，有约10%发生在接种该疫苗后的24小时内，约41%发生在接种后48小时内。
+
+同时，该系统数据还显示，约有2万3千多起该疫苗不良案例发生在美国12至17岁接种儿童组，其中约有1400宗包括了30起死亡报告的严重健康伤害个案。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+原文链接：
+https://childrenshealthdefense.org/defender/vaers-cdc-injuries-covid-vaccines-fda-pfizer-moderna-bosters/
 
  
 

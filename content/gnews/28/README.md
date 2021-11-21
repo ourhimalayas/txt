@@ -2,28 +2,40 @@
 ---
 
 
-## 11名澳大利亚护士对COVID疫苗的副作用爆料：我们被告知不要谈论我们所看到的东西
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682130/)
+## 美加强与印太、日本经贸 向中共施压
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1682167/)
 
-据《thecovidworld.com》，2021年11月20日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-514-e1637468058858.png)图片源自原文
-**在一段令人震惊的视频中，来自澳大利亚昆士兰州的11名护士和护理人员站出来，讲述了他们注射COVID-19疫苗的经历。这些护士的身份被遮住了，因为他们不敢说出来，但他们的身份在拍摄前被检查过并确认。在一系列令人痛心的故事中，护士们讲述了他们如何看到死亡和受伤的人堆积如山，但没有人被允许谈论此事。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-515-e1637468114282.png)图片源自原文
-护士们进一步表示，医院不再在入院病例上标注接种状态，医院的抢救警报器也被禁用，以避免吓到排队等候接种的人。此外，对于严重的不良反应，根本没有报告机制。
+作者：东京樱花团 – 在远方
 
-**疫苗开始推广后，他们开始看到越来越多的中风病例，尤其是年轻人，神经系统疾病、心脏病发作、肺部充满液体、内出血、肠子和鼻子的外部出血以及人们通过大血块。一名护士描述说，超过50%的病人在接受疫苗接种后看起来”严重不适”，其中一些人在接受注射后晕倒在医院。 许多护士描述说，他们宁可失去工作也不愿意打针，有些人承认他们再也不会在医疗保健领域工作了。**
-
-原文连接：[https://thecovidworld.com/11-australian-nurses-blow-the-whistle-on-covid-vaccine-side-effects-we-were-told-not-to-talk-about-what-we-had-seen/](https://thecovidworld.com/11-australian-nurses-blow-the-whistle-on-covid-vaccine-side-effects-we-were-told-not-to-talk-about-what-we-had-seen/)
-
-翻译：洛杉矶盘古农场- TrueSky
-
-校对&编辑：洛杉矶盘古农场 – 小象的奶品
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-155.png)
 
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+11月17日，美国商务部长吉娜·雷蒙多表示，印度-太平洋经济框架可能在明年初启动。美国不会加入“跨太平洋伙伴全面进步协定”，但会寻求与印太地区志同道合的国家，成立一个比传统自由贸易协定更加广泛和自由的经济框架。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-8.png)
+
+另一方面，当日，美国和日本宣布建立新“美日贸易伙伴关系”，加强在劳工、环境和数字贸易问题上的合作，表明重点是对第三国关切，意指中共。
+
+分析人士表示，上述举措是美国为有效应对中共在该地区扩张的对策采取的；华盛顿应当继续保持对北京施压，迫使中共改变其贸易行为。
+
+参考链接：
+
+- [美国打造印太新经济框架 专家：华盛顿向北京施压新工具](https://www.voachinese.com/a/us-asia-trade-20211119/6320176.html)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
+
+总编：木白
+编辑：木白
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
