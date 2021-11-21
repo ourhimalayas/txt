@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/21/2021 6:50 AM (UTC)`
+
+11/20/2021 [3rd Anniversary of 1120] The globalists who are the partners of the CCP want to be more like the CCP.<br/><br/>11/20/2021【1120三周年纪念】 与中共沆瀣一气的全球主义者们更想成为中共
+![img](https://media.gettr.com/group26/getter/2021/11/21/06/49/1a757974-a7a3-5278-ef88-4bf21f969a2f/out.jpg)
+
+---
+
 `@miles 11/21/2021 6:34 AM (UTC)`
 
 11/20/2021 [3rd Anniversary of 1120] Steve Bannon: Your rights as a human being are given by God, but the CCP, which is atheistic and materialistic, attempts to use technology to become God; we must make sure that technology is the service of mankind rather than the master of mankind<br/><br/>11/20/2021【1120三周年纪念】班农先生：你作为人的权利是神赋予的，但信仰无神论和唯物主义的中共却妄图利用科技来当上帝；我们必须确保科技是为人类服务的，而不是人类的主人
@@ -295,13 +302,6 @@ An orthopedic surgeon from Wisconsin described the serious side effects after hi
 
 11月17日：可爱的绅士笨笨…… <br/><br/>
 ![img](https://media.gettr.com/group49/getter/2021/11/18/01/41/5a5068a8-d1bc-04fe-e430-b5493aaa7438/30f4807c5d051542b2d7f968f889d9f9.jpg)
-
----
-
-`@miles 11/18/2021 1:12 AM (UTC)`
-
-11月17号：刚刚理完发的SNOW 欢迎七哥回家……
-![img](https://media.gettr.com/group32/getter/2021/11/18/01/12/1a647453-ccc6-fc65-3e77-af6862fb1a9f/out.jpg)
 
 ---
 

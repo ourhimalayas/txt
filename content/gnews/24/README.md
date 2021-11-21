@@ -2,28 +2,41 @@
 ---
 
 
-## 美国官方数据显示疫苗伤害案件量触目惊心
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1682160/)
+## 白宫要求中共交待彭帅下落
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1682219/)
 
-采编：风云小哥     编译撰稿：文明(添草灭共）
+作者：纽约香草山医疗部 – 云豹
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-8-edited.png)图片来源：yahoo新闻
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-155.png)
 
 
-美国非盈利组织【儿童健康防卫】11月19日报道，据该国[疾病控制预防中心]当天发布的最新数据显示，在2020年12月至2021年11月期间，总共发生了89万多起“新冠病毒”疫苗接种后的健康伤害案件。
 
-据悉，这些案件是由美国政府资助的【疫苗不良事件报告系统】，针对各国在使用美国制造商提供的疫苗后，所出现的各类不良事件而收录的。但有消息称，经该系统确认的疫苗副作用案例数通常只占实际数据的1%。
+11月19日，白宫发言人莎琪（Jen Psaki）在白宫简报会中发表声明，要求中共交代彭帅下落，证明她人身安全。
 
-报道还指出：在以上数据中，严重伤害报告约14万起，包括1万8千多件死亡个案；另外，在8千多宗美国死亡病例中，有约10%发生在接种该疫苗后的24小时内，约41%发生在接种后48小时内。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/10-3.png)
 
-同时，该系统数据还显示，约有2万3千多起该疫苗不良案例发生在美国12至17岁接种儿童组，其中约有1400宗包括了30起死亡报告的严重健康伤害个案。
+11月初，女网选手彭帅在微博上揭露自己多年前遭受中共副总理张高丽性侵。该文在发布半小时后被撤下，彭帅从此失联。
 
-* * *
+莎琪表示，美国支持女性发声及究责的权力，任何性侵的指控都应被调察。 莎琪指出，中共一直控制舆论，迫害自由发声的人民。美国谴责此行为。
+近日，多位知名网球名将、美国国会议员、世界职业女网协会、联合国人权委员会等人士相继声援彭帅。
 
-校对编辑，发稿：硫酸羟氯喹64
+参考链接：
 
-原文链接：
-https://childrenshealthdefense.org/defender/vaers-cdc-injuries-covid-vaccines-fda-pfizer-moderna-bosters/
+- [彭帥安危引國際關注 白宮要求中國交代下落](https://www.cna.com.tw/news/firstnews/202111200010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
+
+总编：文徬
+编辑：木白
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

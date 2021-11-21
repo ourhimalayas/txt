@@ -2,8 +2,8 @@
 ---
 
 
-## 视频| 是时候反击了
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1682284/)
+## 视频| 四年肩并肩
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1682298/)
 
 制作：香草山视频部
 
