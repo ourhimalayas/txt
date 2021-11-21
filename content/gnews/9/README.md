@@ -2,231 +2,30 @@
 ---
 
 
-## 习近平六中全会后的两个重大决策
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681421/)
+## 【小雨专栏】在路上043——风花雪夜篇
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1681442/)
 
-[https://gtv.org/video/id=6198bc6fe6900076612d2959](https://gtv.org/video/id=6198bc6fe6900076612d2959)
+加拿大温哥华扬帆农场 小雨
+![](https://assets.gnews.org/wp-content/uploads/2021/11/专栏图.png)
+穷人家的孩子早当家，这句话好像用在我们一帮死党身上不是太合适，虽然大家都穷，但在我们眼里好像除了吃就是玩，从来没有为自己或家庭生计担心发愁，永远都是没心没肺在一起疯狂起哄。
 
-那么回来我们再看六中全会的时候
-Entonces cuando volvamos a ver la Sexta Sesión Plenaria
+记得我们平时最刺激的活动就是打猎，说是打猎其实就是捕鸟。阿弥陀佛，千万不要滥杀无辜，大家听了也要引以为戒，这里只是就事说事。八十年代初期国内还没有完全禁止枪枝，家里可以拥有气枪、鸟铳（chòng）什么的。我们是充分发挥自己动手丰衣足食，鸟铳基本上是依葫芦画瓢，东拼西凑自己制作，现在想想几个十几岁的小孩在那样简陋的条件下能自己做鸟铳，我都有点佩服自己。看来凡事只要真心喜欢了，并踏实钻进去，没有克服不了的。
 
-共产党的1943年和1981年2个重大的决议
-Las 2 grandes decisiones que hizo el PCCh en el 1943 y 1981
+好不容易我们几个折腾出来一把比较原始的鸟铳，油油的枪托，长长的枪管，幽深的枪口，每次都是从枪口放火药进去，然后倒入铁砂，用一段钢棍来回颠倒着压实火药，最后用轻薄的纸张再压上以防倒流，枪后撞针地方还要准备“引星”，“引星”其实也是火药做的。一套流程下来，小八做的行云流水，他的最大梦想是长大当兵做个神枪手，后来讽刺的是初中没毕业就去当了保安，天天被媳妇儿骂地回不了家。哎，人生无常，挨骂常常；小八小八，快发快发！这里祝福发小们都过上好日子！
 
-到今天的2021年重大决议
-Hasta el de 2021 de hoy en día
+通常我们都是冬天捕鸟，不是在白天，反而是在晚上，晚上鸟儿成群结队落在小树林抱团取暖。我们一般三四个人一起行动，有拿灯的，有拿装备的，小八负责扛枪打鸟；首先深夜悄悄潜入林中，突然用灯强光照着在枝头睡觉的鸟群，鸟群一般都静静不动，也有机敏地马上飞跑；这时小八气定神闲地架着把式，我们所有人屏息凝视，随着一声枪响，我们几个头顶一团白烟浮起，鸟群簌簌落下。阿弥陀佛，造孽啊造孽，罪过罪过！现在想起儿时的无知都是无地自容。
 
-43年81年
-En el año 43 y 81
+记得有一次，还是我们几个扛枪夜游小树林，踩着枯枝败叶沙沙做响，伴着啸啸北风簌簌发抖，尤其树梢在寒风中呜呜作响，搞的人不寒而栗，我是拿灯的还必须胆战心惊走在前面。也不知道什么原因，那天晚上大家几乎找不到鸟群，就开始左顾右盼发牢骚；忽然有白色的东西像个蝴蝶一样飘飘忽忽落在老妖身上（我们另一个小伙伴负责拿装备，足智多谋），我是拿灯的自然第一个发现；老妖半信半疑地去肩膀上摸索，还真摸到一个东西，定睛一看，原来是两个叠在一起的白纸做的冥币，外圆内方那种，一般是做白事送殡才用；所有人吓得顿时目瞪口呆，连扛枪的小八也哆哆嗦嗦故作镇定地再次问老妖，你确定是从你身上拿的？大冬天晚上寒风啸啸，可怜的老妖满头大汗吓得话都说不出来，牙齿哆嗦着点头确定。我们几个看着老妖扔在地上的冥币，面面相觑，小八也扛枪四顾心茫然了。这时候发现开始下雪了，还是很大片那种鹅毛大雪，不知道谁战战兢兢提议说下雪了，我们还是撤了吧，大家都强颜镇定说也只能如此。
 
-https://gtv.org/video/id=6198bc6fe6900076612d2959中国的军队什么样
-Cómo era el ejército de China
+由于要打灯，自然还是我走在前，大家慌不择路往回赶。又是突然，又是我发现，远远望见在要回去的必经之路方向，有一个火苗又是飘飘忽忽，在雪夜里伴着风声忽明忽暗；几个人快被折腾懵了，快被吓傻的老妖都快哭了，呜咽着说‘不会是鬼火吧’，大家泄恶气似地一起看着我，好像是我引来的一样；因为回程只能走那条路，所以小八就胆战心惊地扛着鸟铳指着火苗方向，我们几个亦步亦趋地跟在后面朝着火苗方位挪。互相壮着胆总算到了跟前，才发现原来是个新坟，花圈、供品都是新的，尤其是花圈被风吹得哗哗作响，坟头纸糊的纸人随风一摇一摇的，远远望着很是瘮人，坟前烧了一堆供纸，其中火苗忽隐忽现；后来推测应该是白天办了丧事，有些东西没有烧尽，晚上风吹又复燃，由于白天办丧事吹吹打打，自然没有鸟儿在这里落脚了，至于冥币肯定是风吹的，又好死不死刚好落到倒霉的老妖身上，无巧不成书，这一切都让我们几个倒霉蛋全碰上。好一个风花雪夜，由于太受刺激了，我觉得自己的小心脏都快崩溃了，大家也好长时间都不敢再走那条小路。
 
-当时要没要收回台湾
-En ese momento acaso no dijeron que iban a tomar de regreso a Taiwán
+事出反常必有妖，凡事一定有因果规律，有的是我们有无能力分析辨别；在爆料革命的具体事务中，我们会遇到形形色色的不可理喻，这个时候就更要战友们拥有独立的思考能力，有一个基本事务常识，不人云亦云，更不能乱说添乱；紧跟七哥，紧跟唯真不破，从实际出发，从具体行动出发，在行动中机动调整，在调整中明确自我，也只有这样才是真正爱自己。
 
-大家去看看历史去
-Todos vayan a ver la historia
+喜欢七哥的神游直播，掏心掏肺，娓娓动听，唯真不破。分享一段儿时风花雪夜鬼故事，纪念少时荒唐的如梭岁月，成长的经历更是让人坚定善念，阿弥陀佛！
 
-所有这个决议的时候
-Todos los momentos de esta decisión
+（免责声明：本文只代表作者观点，跟GNEWS平台无关）
 
-就喊着打台湾比啥时候都响
-El grito de atacar a Taiwán era más fuerte que en cualquier momento
-
-那个时候缺啥
-En ese momento había crisis de todo
-
-中国缺粮食
-China carecía de comida
-
-那个时候中国人需要什么
-En ese momento que necesitaban los chinos
-
-要改革开放 这次是什么
-Necesitan una reforma económica y ¿ esta vez que es?
-
-中国人不缺粮食
-A los chinos no les hace falta comida
-
-中国继续这个事实上是坚决不开放
-De hecho, China sigue negándose a abrirse en esta realidad
-
-继续打台湾 对待美帝国主义是什么
-Sigue atacando a Taiwán y cómo le trata al imperialismo estadounidense
-
-我告诉你
-Yo te digo
-
-对美国会越来越软
-Hacia Estado Unidos es cada vez más suave
-
-嘴巴会狠喊
-Por la boca gritará ferozmente
-
-绝对越来越软
-Pero definitivamente será cada vez más suave
-
-第2个
-El segundo
-
-美国人和西方人通过这个六中全会
-Los estadounidenses y los occidentales a través de esta Sexta Sesión Plenaria
-
-绝对会视共产党为更大的威胁
-Seguro verá al PCCh como la mayor amenaza
-
-第3个
-Tercero
-
-习近平和邓小平和毛泽东不一样是他敢干
-A diferencia de Mao Zedong, Xi Jinping y Deng Xiaoping es que se atreven
-
-绝对敢发起第3次世界大战
-Absolutamente se atreve a lanzar la Tercera Guerra Mundial
-
-他绝对敢打台湾
-Definitivamente se atreve a atacar Taiwán
-
-邓小平敢弄印度敢弄这个越南
-Deng Xiaoping se atrevió lidiar con India y Vietnam
-
-毛泽东敢到北朝鲜
-Mao Zedong se atrevió ir hasta Corea del Norte
-
-他绝对敢上台湾
-Él seguro se atreve ir a Taiwán
-
-就是习近平这次的六中全会的对内的所有的实行习皇制
-Es la implementación interna de Xi Jinping sobre el sistema imperial de Xi en esta Sexta Sesión Plenaria
-
-对外的实行 希特勒制
-Hacia el exterior implementa el Sistema de Hitler
-
-你一点都不用怀疑
-No lo necesitas dudar ni un poquito
-
-为什么呀
-Por qué será
-
-他下边的一个个的张万年
-Debajo de él tiene varios Zhang Wannian
-
-一个个的太监
-Varios eunucos
-
-还有今天他的这个战羊秦（刚）
-Y hoy en día su oveja guerrero Qing
-
-都会给他
-Se lo da
-
-还有这个
-También este
-
-特别是杨洁篪和王毅一定会执行下去
-Especialmente Yang Jiechi y Wang Yi seguro lo ejecutarán
-
-现在2个政策
-Ahora las 2 políticas
-
-你记住我今天说的话
-Recuerda lo que dije hoy
-
-这2个政策
-Estas 2 políticas
-
-会对外无限强硬
-Será infinitamente duro para el mundo exterior
-
-一定会再放毒
-Seguro seguirán soltando veneno
-
-然后在南海和东海问题上一定会强硬
-Entonces serán duros con los problemas del Mar de China Meridional y del Mar de China Oriental
-
-第2条记住兄弟姐妹们
-El segundo lo deben recordar hermanos y hermanas
-
-马上会把中国的经济私有企业
-Muy pronto la economía de las empresas privadas de China
-
-所有的人的财富和所有的东西都会收回到中央去
-Toda la riqueza de las personas y todo se devolverá a la central
-
-然后对所有在华的企业
-Y hacia las empresas que están en China
-
-能弄的弄能抢得抢
-Lo que se pueda tomar y hacer lo harán
-
-就是真正的实现
-Quiere decir, cumplir con el verdadero
-
-对内对外的资本的共产制
-El sistema comunista de capital interno y externo
-
-闭关锁国 完全拒绝对外改革开放完全自主 干自主道路
-Cerrar el país y negarse por completo a reformar y abrirse al mundo exterior
-
-自主研发 开拓创新 胸怀天下
-Investigar y desarrollar independientemente, ser pioneros e innovadores, cuidándose del mundo
-
-然后老子来搞你天下
-Entonces yo les hago el mundo
-
-这两件事儿就在发生
-Estos dos asuntos están sucediendo
-
-此时此刻
-En este preciso instante
-
-最后的结局是什么
-Cuál sería el final
-
-告诉体制内的战友们
-Decirles a los luchadores que están dentro del sistema
-
-你们的所有的问题是
-Todos los problemas de ustedes son
-
-你怎么让你活得更好
-Cómo hacerte vivir de una mejor manera
-
-活得你安全
-De una forma más segura
-
-我今天很抱歉的回答你们
-Lo siento mucho por responderles hoy en día
-
-没有一个人是安全的
-No hay una persona segura
-
-没有一个人可以再过得好的
-No habrá ni una persona que pueda pasarla bien
-
-一个都不会有
-No habrá ni uno
-
-**原视频网址**：[https://gettr.com/post/ph9jb973e8](https://gettr.com/post/ph9jb973e8)
-
-日期：11/19/2021
-原视频标题：习近平六中全会后的两个重大决策
-Las dos grandes decisiones de Xi Jinping luego de la Sexta Sesión Plenaria
-原视频日期：11/18/2021
-任务编号：KC268（2932）
-视频时间段：0:00-2:29
-
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场- 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编审：文敏      发布：文敏
 
  
 
