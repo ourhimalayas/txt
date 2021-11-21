@@ -2,12 +2,14 @@
 ---
 
 
-## 拜登在拜习会上再次确认了“一中”政策
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1682861/)
+## 西站出品（之）路大脑袋忏悔记
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1682902/)
 
-11/16/2021杰克·波索别克：习近平在拜习会上以“老朋友”的称呼来羞辱拜登，而拜登则在会面中再次确认了“一中”政策。
+制作：蚂蚁兄弟
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
 
  
 

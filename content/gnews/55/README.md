@@ -2,12 +2,14 @@
 ---
 
 
-## 鲍里斯·爱普施坦在战斗室节目力挺盖特GETTR
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1680293/)
+## 班农先生的政治理念
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1680818/)
 
-11/18/2021 曾任川普总统助理的鲍里斯·爱普施坦在战斗室节目力挺盖特GETTR
+制作：The-world
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
 
  
 
