@@ -2,41 +2,39 @@
 ---
 
 
-## 白宫要求中共交待彭帅下落
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1682219/)
+## 白宫通讯参谋长离职并前往劳工部工作
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1682222/)
 
-作者：纽约香草山医疗部 – 云豹
+翻译：Rosa
+![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-16-1.png)图片链接：
+[https://www.newsmax.com/us/white-house-emma-riley-communications-department-of-labor/2021/11/20/id/1045512/](https://www.newsmax.com/us/white-house-emma-riley-communications-department-of-labor/2021/11/20/id/1045512/)
+[原文链接：](https://www.newsmax.com/us/white-house-emma-riley-communications-department-of-labor/2021/11/20/id/1045512/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-155.png)
+白宫通讯参谋长离职并前往劳工部工作
 
+白宫通讯参谋长艾玛-莱利周五宣布，她将离开白宫，并下个月去劳工部工作，这是一周内第二位离职的乔-拜登政府成员。
 
+“在白宫为总统和美国人民服务是我的荣誉和特权，”莱利周五下午在推特上说。”我很高兴能搬到宾夕法尼亚大道，并与马蒂-沃尔什部长和美国劳工部一起在全国各地旅行。”
 
-11月19日，白宫发言人莎琪（Jen Psaki）在白宫简报会中发表声明，要求中共交代彭帅下落，证明她人身安全。
+莱利的离职是一周内的第二次，副总统卡马拉-哈里斯的通讯主管阿什利-艾蒂安周四刚刚宣布她将离职的消息。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/10-3.png)
+“阿什利是副总统团队的重要成员，她为推进本届政府的目标而不懈努力，”一位白宫官员在一份报告中告诉福克斯新闻。”她将于12月离开办公室，以寻求其他机会。”
 
-11月初，女网选手彭帅在微博上揭露自己多年前遭受中共副总理张高丽性侵。该文在发布半小时后被撤下，彭帅从此失联。
+艾蒂安曾两次担任众议院议长和加州民主党人南希-佩洛西的通信主管和顾问，并在前总统巴拉克-奥巴马的白宫任职。
 
-莎琪表示，美国支持女性发声及究责的权力，任何性侵的指控都应被调察。 莎琪指出，中共一直控制舆论，迫害自由发声的人民。美国谴责此行为。
-近日，多位知名网球名将、美国国会议员、世界职业女网协会、联合国人权委员会等人士相继声援彭帅。
+这些离职伴随着昆尼皮亚克大学周四的一份报告发生，该报告指出拜登的民调数字降至其总统任期内的最低点，只有36%的人认可他作为总统的工作。
 
-参考链接：
+调查显示，46%的受访者 “强烈反对 “拜登的表现，而只有21%的人 “强烈赞同”。
 
-- [彭帥安危引國際關注 白宮要求中國交代下落](https://www.cna.com.tw/news/firstnews/202111200010.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+民意调查的受访者还希望看到共和党在2022年控制众议院和参议院，48%的人倾向于共和党，而38%的人倾向于民主党，16%的人说他们不确定。
 
+“昆尼皮亚克大学民调分析师蒂姆-马洛伊说：”在中期选举不到一年的时间里，对民主党来说是一个不祥的双重打击。”参议院和众议院将被争夺，选民希望共和党在争夺中胜出。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
+据该组织称，11月11日至15日，全国有1378名美国成年人接受了调查，误差率为正负2.6个百分点。
 
-总编：文徬
-编辑：木白
-校正/发稿：海阔天空1
+这些举动也是在CNN关于白宫功能紊乱的报道之后，因为拜登办公室和哈里斯的工作人员之间的关系持续紧张。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+“CNN报道说：”副总统圈子里的许多人认为她没有得到充分的准备或定位，而是被排挤在外。”副总统本人告诉几个她的心腹，她感到自己在政治上能做的事情受到限制。副总统周围的人对暗示未来的政治野心也保持警惕，伴随着拜登的团队开始对不忠诚的迹象高度关注，副总统受到了格外的关注。”
 
  
 

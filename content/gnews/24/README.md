@@ -2,30 +2,28 @@
 ---
 
 
-## 喜币坚挺的原因
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1681737/)
+## 新一批反垄断罚单：阿里、腾讯等又上榜
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1681744/)
 
-没有人卖，还有机构投资者不允许它进来砸盘，大的利好消息没出来，是价格坚挺的最重要原因。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-18.jpg)新一批反垄断罚单：阿里、腾讯等又上榜 网络图片
+据自由亚洲电台11月20日报道，北京对中共国科技巨头的监管力度只增不减。市场监管总局根据《中华人民共和国反垄断法》第四十八条、四十九条规定，对阿里巴巴、百度、苏宁易购、腾讯、京东、滴滴和美团等互联网企业处以50万人民币罚款。
 
-**【郭先生直播摘要】****2021.11.17 ****The Reason for Himalaya Coin Is So Strong**
+名为反垄断，实则伸手抢。强盗和贼的本性除了偷就是抢。这些科技巨头已经被抢过一轮，但只要没死就得继续运行，继续被抢。今天反垄断，明天就违约，随时缺钱随时罚款，罗列罪名是中共的强项。
 
-**郭先生****:**
+新闻参考链接：[https://www.rfa.org/mandarin/Xinwen/6-11202021161905.html](https://www.rfa.org/mandarin/Xinwen/6-11202021161905.html)
 
-所以说现在的没有人卖，它是价格坚挺的最重要原因之一。
+* * *
 
-还有机构投资者不允许它进来砸盘。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-是最重要的核心之二。
 
-第三Hpay没上线。
+编辑：【英国伦敦喜庄园编辑部】
 
-还有这些大的利好消息没出来。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
-这是现在所有机构投资者不进来没抓住时机的。
 
-一个其中投资基本的专业原因之一。
-
-视频剪辑：小腾腾说 |听写：雨山溪桥客 |翻译： Arthur |校对：烟波浩淼 |视频制作+字幕：知行致一（文知）| 编辑& 发布：断播
 
  
 

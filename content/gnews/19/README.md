@@ -2,25 +2,32 @@
 ---
 
 
-## 中共国或即将全面入侵台湾
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1681803/)
+## 奥地利数万民众示威，抗议疫情封闭及强制疫苗新措施
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1681807/)
 
-原文采编：文莱 编译撰稿：文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-19.jpg)奥地利数万民众示威，抗议疫情封闭及强制疫苗新措施 网络图片
+据美国之音11月20日援引美联社报道，包括很多极右翼支持者在内的数万民众20日在奥地利首都维也纳示威，抗议奥地利政府宣布的新冠疫情封闭新措施以及明年强制接种疫苗的规定。奥地利政府19日宣布，22日开始再次实施封闭措施，并在明年2月1日开始强制疫苗接种。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-53.jpg)图片来源：CBC
+大约有3万5000人参加示威活动，很多示威者在霍夫堡皇宫前的英雄广场挥舞奥地利旗帜，高举“不打疫苗”、“够了”和“打到法西斯独裁统治”等标语，抗议政府出台的新措施。极右翼的自由党和其它批评疫苗接种的团体在奥地利政府19日宣布上述新措施之前就已经策划20日在维也纳举行的示威活动。自由党领导人基克尔表示，“今天，奥地利是独裁政府。”
+
+奥地利本星期对未接种疫苗的人实施封闭之后，每日新增新冠病例依然在创纪录。世界各国人民在新中国联邦的影响下，越来越意识到接种疫苗并不能降低感染中共病毒的风险，反而加剧中共病毒的传播，更可怕的是疫苗会给接种者带来生命危险，一个个因为接种疫苗而失去生命的鲜活例子每天都在世界每一个角落上演，疫苗灾难一定会让世界人民更加看清中共丑恶的嘴脸，一定会集结所有正义之士铲除中共这颗毒瘤。
+
+新闻参考链接：[https://www.voachinese.com/a/march-in-vienna-against-covid-lockdown-20211120/6321699.html](https://www.voachinese.com/a/march-in-vienna-against-covid-lockdown-20211120/6321699.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-据英国媒体《每日新闻》11月18日报道，中共军队近期已全面增强了导弹和两栖登陆舰的部署，为全面入侵台湾做好准备。美国国会对此警告称：尽管中共一旦武力攻台，美军将会介入，但习近平可能仍将孤注一掷占领台湾。
+编辑：【英国伦敦喜庄园编辑部】
 
-据国会相关报告显示，由于中共党卫军目前在海上和空中的能力足以支持对台派遣至少25000人的登陆部队。因此，单靠美方常规军事力量是否可以阻止中共攻台将变得不确定。报告同时指出：中共可能会从核威慑政策转向实际使用核武器来实现其侵略目的。
-
-报道还称，美国政府就中共国对台政策表现得近乎混乱。虽然拜登此前曾坚决表示：美方有责任保卫台湾不受攻击，但白宫发言人近期却声称：当局对台政策没有变化，仍然继续遵循《台湾关系法》。据悉，总统的这些模糊战略政策，或将促使中共更加铤而走险地采取军事行动入侵台湾。
-
-原文链接：
-
-[https://www.dailymail.co.uk/news/article-10218333/China-ready-scale-invasion-Taiwan-congressional-report-states.html](https://www.dailymail.co.uk/news/article-10218333/China-ready-scale-invasion-Taiwan-congressional-report-states.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
+
+ 
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 
