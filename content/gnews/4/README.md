@@ -2,60 +2,109 @@
 ---
 
 
-## 被禁止用伊维菌素治疗新冠病毒感染者的医生今天提起诉讼
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1681501/)
+## Facebook等社交媒体无法和GTV盖特比拟
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681507/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/112002.jpg)保罗·马里克博士（图片：来自Youtube视频截屏）
-来自《生活新闻》2021年11月18日报道
+[https://gtv.org/video/id=61992e4ae6900076612d89dc](https://gtv.org/video/id=61992e4ae6900076612d89dc)
 
-摘要翻译：
+**郭文贵**
+**Miles Guo**
 
-保罗·马里克博士提出的恢复使用安全有效的新冠病毒治疗方法的案件，将于美国东部时间11月18日星期四下午1点，在诺福克弗吉尼亚法院审理。
+我昨天跟摩根先生说，它是垃圾
+I told Mr. Morgan yesterday that it was garbage
 
-华盛顿特区《生活新闻》——在11月9日向弗吉尼亚州诺福克市巡回法院提起诉讼后，世界上发表论文最多的重症监护医生之一、圣塔拉·诺福克综合医院ICU主任、医学博士保罗·马里克医生将会出庭。
+摩根先生讲，你什么意思？
+Mr. Morgan said, “What do you mean?”
 
-定于11月18日星期四举行的听证会，可能会恢复目前被圣塔拉医疗保健系统禁止的几种治疗方法。
+我说它是垃圾。它是什么垃圾？
+I said it’s garbage. Why?
 
-“令人震惊的是，不允许医生行医，”儿童健康保护组织(CHD)主席兼总法律顾问玛丽·霍兰德说:“对医生的限制是不道德的，会让人们付出生命的代价。”
+我说Facebook、Instagram、Youtube都是垃圾
+I said Facebook, Instagram, Youtube are all garbage
 
-马里克最近被圣塔拉医疗集团告知，他不能再为重症患者提供一系列高效的新冠肺炎治疗。而他已成功使用这些治疗方法，将重症监护室的新冠肺炎的死亡人数减少了50%。禁令的结果是患者死亡率急剧上升。
+因为他有时候耳朵不太好，有时候我的英文他又听不太清楚
+Because sometimes his hearing are not good, and sometimes he can’t understand my English very well
 
-由于马里克博士不能再眼睁睁地看着患者在没有适当治疗的情况下不必要地死亡，他提起了诉讼，允许他和他的同事使用FDA批准的药物和其它疗法的组合，在过去的18个月里，这些药物和疗法挽救了数千名新冠肺炎危重患者。
+他就说为什么啊？
+He asked why?
 
-11月12日星期五，圣塔拉医院随后提出动议，要求驳回马里克博士对他们的诉讼，因为他们禁止使用几种药物，而他自去年以来一直使用这些药物，安全有效地治疗新冠病毒感染的危重患者。
+因为他们没有支付系统
+Because they don’t have a payment system
 
-根据马里克博士随后提交的回复，圣塔拉医院的驳回动议是一种“苍白无力的借口”，旨在避免医院面临的真正生死问题，声称马里克博士缺乏提起诉讼的“资格”，因为他本人（与他的患者不同）据称没有受到任何伤害。
+它是销售个人数据
+It’s selling personal data
 
-马里克博士的律师弗雷德泰勒说：“圣塔拉诺医院的辩护，剥夺了对患者接受挽救生命治疗的权利，以及对她的医生开具处方的权利的非常真实的伤害，”。
+盖特最重要的是它有支付系统，还不销售个人数据
+The most important thing about Gettr is that it has a payment system, but it doesn’t sell personal data
 
-“这个案例是关于医院管理部门，是否可以合法地禁止重症新冠肺炎患者接受信息和治疗，如果他们和他们的医生这样决定，在医学上对他们来说是合适的，”泰勒继续说道。“弗吉尼亚州的法律很明确，主治医生有权使用他们认为合适的治疗方法，而不是医院。”
+它有原罪，我们没原罪
+It has the original sin, and we don’t
 
-**简评：**
+它们必然被消灭，我们必然是永久生存而且是唯一的
+They’re bound to be wiped out, we’re bound to live forever and be the only ones
 
-200多项研究证明，伊维菌素对治疗新冠病毒感染有效。如果在感染后的7天内服药，治愈率100%。如果7天后服药，治愈率99%。临床上有FDA批准的成品药阿斯匹林、安全使用超过30年的伊维菌素，还有硫酸羟氯喹的临床实验。但是这些药不允许使用，必须接种有很多不良反应、且完全没有经过安全、科学实验，反常规的疫苗。有些12到16的孩子接种疫苗之后出现了心肌炎、心包炎，血栓、甚至死亡等等。
+有道理，是吧？
+Makes sense, doesn’t it?
 
-伊维菌素起源于日本，而且许多科学论文显示伊维菌素是治疗新冠病毒感染安全有效的药物，特别是在中美洲、南美洲、以及印度，医生们使用伊维菌素治疗新冠病毒感染，已经取得巨大的成功。而CDC、FDA以及政客们，在经济以及政治利益驱使下，对此却无视。
+GTV一定是全世界最好的视频直播平台
+GTV must be the best live video platform in the world
 
-新闻链接：[Top doctor banned from treating COVID patients with ivermectin brings lawsuit to court today](https://www.lifesitenews.com/news/top-doctor-banned-from-treating-covid-patients-with-ivermectin-brings-lawsuit-to-court-today/)
+唯一的平台
+The only one
 
-***翻译/简评**：希望*
+七哥说的话是吹牛吗？
+Am I bragging?
 
-***校对**：Julia Win*
+你觉得我一年前说这话，你们肯定不信
+You wouldn’t have believed me when I said that a year ago
 
+现在你觉得是吹牛吗？
+Do you think it’s bragging now?
 
+就这GTV，就这盖特，你知道，今天战友们记住啊
+Just the GTV and Gettr, you know, my fellow comrades remember
 
-* * *
+更新你的手机软件，盖特软件，你就可以手机直播了
+Update your cell phone software, Gettr software, you can use your cell phone to go livestream
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+你可以现在电脑直播，手机直播，而且我们还有同生字幕，中英文
+Now you can broadcast live on your computer, live on your phone, and there are simultaneous subtitles in English and Chinese on the Gettr platform
 
+而且现在的这个可以达到5K推流
+And now the clarity can reach 5K push stream
 
-编辑：【英国伦敦喜庄园编辑部】
+我告诉兄弟姐妹们，你们就看到这一点功能的增加
+I tell you brothers and sisters, you just see this little increase in functionality
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+它的价值是多大
+How valuable it is?
 
+昨天盖特和今天的盖特最起码增长50%
+Gettr increases at least 50% in yesterday and today
 
+如果它昨天市值1000亿的话，今天就涨了500亿
+If its market value was $100 billion yesterday, it’s add up $50 billion today
+
+就因为这一个功能
+Just because of this one feature
+
+Date: 11/16/2021
+原视频标题: Facebook等社交媒体无法和GTV 盖特比拟
+Facebook and other social media can’t compete with GTV and Getter
+原视频日期：2021/11/12
+任务编号：KC271（2898）
+视频时间段 : 0:00-1:28
+
+英听校：洛杉矶盘古农场 – Mike Li
+翻译：洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – Layka
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

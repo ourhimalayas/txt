@@ -2,162 +2,53 @@
 ---
 
 
-## 喜币的优势绝对是现今区块链发展的方向
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681477/)
+## 2021年11月20日文贵先生大直播摘要——银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1681491/)
 
-[https://gtv.org/video/id=61992de2e6900076612d8985](https://gtv.org/video/id=61992de2e6900076612d8985)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/086fa8474a77dda09d819d6b1e8b8cc3.jpg)
+视频连接：[https://gettr.com/streaming/phfwwdaf84](https://gettr.com/streaming/phfwwdaf84)
 
-**郭文贵
-Miles Guo**
+1、11.20王健事件后，谁能想到共产党不但杀了王健，而且通过病毒杀了几百万人，未来疫苗的灾难到达亿人；
 
-(区块链专家 )他说，当区块链技术
-He (blockchain expert）said that when blockchain technology
+2、2017年，CAI从中共内部，得到了中共在UAE建设军事基地的情报，并找文贵先生核实。房峰辉被抓之前一直联系美国，将中共在中东计划报告给美国，以期待美国政府保护他的家人安全；
 
-在2020年年底之后
-after the end of 2020
+3、班农先生谈疫苗，第一他不是反疫苗，他对疫苗持怀疑态度以下3个原因：（1）信息不透明（2）这么短时间出疫苗（3）不可信（接种疫苗感染CCP病毒）；
 
-在逐渐普及之后
-gradually became popular,
+4、班农先生为什么3年前就相信文贵先生呢？听文贵先生说的 文贵先生曾经警告他的，现在都已经成真了，当时VOA段断播事件，海航事件 ！反对文贵先生的人都是与中共有关系；
 
-它基本上不会让人相信银行
-it basically would make no people trust the bank
+5、班农先生：我也来自美国普通家庭，我的父亲教我要一直战斗不放弃，我可以帮助川普总统赢得2016大选，但还会帮助他赢回2022中期、2024总统大选。帮助中国人民获得自由也是同样的难事。能帮川普赢得大选，最终也会消灭中共！
 
-他说如果在区块链得到应用
-He said if the blockchain has been applied
+6、班农先生：法治基金在过去三年中主要以救人为主，包括从中国逃出来的 和给西方传播真相，三年前没有西方人知道中国人在受苦，没有人知道中国人被消失；
 
-记住啊，要得到应用
-Remember, it has to be applied
+7、班农先生：过去一二年游行非常鼓舞人心 西方人好奇问新中国联邦是什么人，非常有礼貌，受过好的教育，付出不索取 每个国家都想要这样的公民 现在已变成很强政治力量，美籍华人75%支持川普
 
-特别是它的流通没有层次、没有阶级
-Especially when its circulation has no hierarchy or class,
+8、班农先生：联邦很重要，从下至上的体制，不同于于现在的中共中央集权、权力是从下到上逐渐变小；
 
-普遍性、支付性达到的时候
-and when its universality and payment availability is reached
+9、班农先生：平民运动绝不是某个阶层运动，是整个社会运动
 
-没有任何人再相信政府和相信银行
-There would be no one to trust the government and the bank anymore
+10、班农先生：平民运动的本质就是一人一票，不可思议是中国人民没有选举！
 
-2021年我们将看到去中心化存储、去中心化金融
-In 2021, we would see decentralized storage and decentralized finance,
+11、班农先生：不是反疫苗，反对强制；
 
-和非政治性货币的飞速发展
-and the rapid development of non-political currencies
+编辑整理：文俊
 
-我认为表现最好的将是加密货币和比特币、以太坊
-In my opinion, the best performers would be cryptocurrencies and Bitcoin and Ethereum
+发布：黎明之前
 
-然而我们希望继续在2022年看到成功
-However, we hoped to continue to see success in 2022
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
 
-以太坊的扩展范围需要在2021年得到解决
-Ethereum’s extended scope needed to be resolved in 2021
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-但是下一个专家说得很清楚
-But the following expert made it very clear
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-不能流通的虚拟货币
-Virtual currencies that could not be circulated
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-几乎都会被淘汰
-would almost always be eliminated
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-在支付普遍性情况下的货币
-In the case of universal payment currency
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-和有稳定性的货币一定是世界的金融之王
-and stable currency must be the king of finance in the world
+推特：[日本银河系农场\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-这就是人类的劳动和时间换来的生产结果
-and those were the results that exchanged from human’s labor and time
-
-不应该被政府垄断
-It should not be monopolized by the government
-
-不应该被一个某个政府所定价
-It should not be priced by a certain government
-
-区块链的到来
-The arrival of the blockchain
-
-把医学、科技、想法、知识全变成了
-has turned medicine, technology, ideology, and knowledge
-
-端到端的、公平的、去第三方去中心化的衡量资产的标准
-into end-to-end, fair, and third-party decentralized standards for measuring assets
-
-这是多么伟大呀
-How great this is
-
-最重要的事情
-The most important thing is that
-
-其中这仨哥们都说到
-among what these three buddy friends have said,
-
-全世界所有区块链的核心要点
-all the key points of all blockchains in the world
-
-全被喜联储给抓到了
-have been in possession of the Himalaya Reserve
-
-没有支付的货币一定没有未来，都得滚蛋
-Currency without a payment system will certainly have no future and would be eliminated
-
-你别忘了
-Please don’t forget
-
-IBM是整个区块链的核心要素
-IBM is the core element of the entire blockchain
-
-IBM的电脑里的有一种语言说得非常清楚
-And there is a language in IBM computers that speak very clearly that
-
-所有的区块链的最终的存在不存在的结果和价值
-the final existence and value of all blockchains
-
-衡量在你是否遵守区块链的去账本化的加密技术
-and the measurement of whether you comply with the de-booking encryption tech-nology of the blockchain
-
-就是保密安全
-is confidentiality and security
-
-咱们喜币牛就牛在这
-This is the extraordinary thing about our HCoin
-
-它能流通，是在全球啥都能买
-It can be circulated, and you can buy anything with it globally
-
-不但如此
-Not just this
-
-我可以稳定欧元
-I can stabilize the euro (with the HCoin)
-
-我想稳定谁稳定谁
-I can stabilize whoever I want (with the HCoin)
-
-所以咱的喜币牛的不是一般了
-Therefore, our HCoin is not just average, its extraordinary
-
-**原视频链接:** [https://gettr.com/post/pgywfk3cdf](https://gettr.com/post/pgywfk3cdf)
-
-Date: 11/14/2021
-原视频标题: 喜币的优势绝对是现今区块链发展的方向
-The advantage of HCoin is definitely the direction of current blockchain develop-ment
-原视频日期：2021/11/14
-任务编号：KC270（2897）
-视频时间段 : 0:00-2:17
-
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译： 洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
