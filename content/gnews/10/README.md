@@ -2,25 +2,46 @@
 ---
 
 
-## 加拿大正式批准儿童新冠病毒疫苗接种
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1681792/)
+## 伊维菌素防治方案的研发者控告医院的处方禁令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1681882/)
 
-采编：文明     编译撰稿：文明(添草灭共)
+作者： 纽约香草山文艺部 – 宁文静
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-52.jpg)图片来源：CTV
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-155.png)
 
 
-据加拿大媒体【CTV新闻】11月19日报道，【加拿大卫生部】当天批准了【辉瑞公司】产“新冠病毒”疫苗在该国5至11岁儿童中接种使用，剂量是12岁以上儿童的三分之一。
 
-在本次授权接种发布会上，卫生部首席医疗顾问夏尔马声称：该疫苗不良反应概率较低，除了被注射部位红肿外，还可能会出现“可自行恢复的疲劳和头痛”等中轻度反应。加拿大首席卫生官谭咏诗也对此表示，将尽快通知家长并鼓励他们同意为其子女接种该疫苗。
+当地时间11月18日，“前线新冠重症监护联盟”的首席医疗专家保罗·马瑞克医生，出席了弗吉尼亚州巡回法庭在诺福克的听证会，为其所发起的诉讼作证。
 
-报道称，该国医学专家夏皮罗博士在回应以上消息时警告，接种“新冠病毒”疫苗所导致的健康危害将远远超过感染该病毒的后果。每个家长都有必要全面了解该疫苗的副作用和感染该病毒的风险程度，并在二者之间做出正确的选择。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-8.png)
 
-* * *
+11月9日，马瑞克医生向弗吉尼亚州巡回法院提交了诉讼，控告他所供职的森塔拉医疗系统——诺福克综合医院——禁止医生为新冠病人提供伊维菌素的行为。
 
-校对编辑，发稿：硫酸羟氯喹64
+马瑞克医生担任诺福克综合医院重症监护科主任一职已逾16年。自新冠疫情爆发以来，马瑞克医生综合大量治疗实例和已发表的临床试验结果，与其他合作者共同提出了基于伊维菌素、氟伏沙明等药物的新冠病毒防治指南——MATH+和I-MASK（编者按：按照字母来读，+读作plus，-不读）。
 
-原文链接：https://www.ctvnews.ca/health/coronavirus/canada-authorizes-first-covid-19-vaccine-for-kids-1.5673038
+然而，当伊维菌素在印度、日本等国成功遏制病毒扩散、挽救千万生命之时，马瑞科医生所在的诺福克综合医院却以行政命令的形式禁止医生向新冠患者提供伊维菌素等药物。马瑞克医生表示，这一禁令妨害了患者在医生的指导下做出医疗决策的权力，患者或因无法获得有效的药物而付出无谓的牺牲。
+
+据悉，弗吉尼亚州法律明确表明，主治医生有权使用他们认为适当的治疗方案。本台将跟踪报导该案件的审理进展。
+
+参考链接：
+
+- [Top doctor banned from treating COVID patients with ivermectin brings lawsuit to court today](https://www.lifesitenews.com/news/top-doctor-banned-from-treating-covid-patients-with-ivermectin-brings-lawsuit-to-court-today/)
+- [The FLCCC Physicians](https://covid19criticalcare.com/about/the-flccc-physicians/)
+- [Norfolk doctor leading charge for controversial COVID-19 treatment faces off against Sentara in court](https://www.wtkr.com/investigations/norfolk-doctor-leading-charge-for-controversial-covid-19-treatment-faces-off-against-sentara-in-court)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-4.jpg)
+
+总编：Zion文恩
+编辑：Zion文恩
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

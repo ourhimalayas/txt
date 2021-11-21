@@ -2,26 +2,28 @@
 ---
 
 
-## 成千上万的奥地利人上街抗议中共病毒疫情下的限制
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1681889/)
+## 11名澳大利亚护士对COVID疫苗的副作用爆料：我们被告知不要谈论我们所看到的东西
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682130/)
 
-翻译：Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-33.png)
-图片来源：
+据《thecovidworld.com》，2021年11月20日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-514-e1637468058858.png)图片源自原文
+**在一段令人震惊的视频中，来自澳大利亚昆士兰州的11名护士和护理人员站出来，讲述了他们注射COVID-19疫苗的经历。这些护士的身份被遮住了，因为他们不敢说出来，但他们的身份在拍摄前被检查过并确认。在一系列令人痛心的故事中，护士们讲述了他们如何看到死亡和受伤的人堆积如山，但没有人被允许谈论此事。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-515-e1637468114282.png)图片源自原文
+护士们进一步表示，医院不再在入院病例上标注接种状态，医院的抢救警报器也被禁用，以避免吓到排队等候接种的人。此外，对于严重的不良反应，根本没有报告机制。
 
-美国合众国际社11月20日报道，有成千上万个奥地利人周六行进在首都维也纳街上抗议政府实施限制措施以防中共病毒疫情扩散。
+**疫苗开始推广后，他们开始看到越来越多的中风病例，尤其是年轻人，神经系统疾病、心脏病发作、肺部充满液体、内出血、肠子和鼻子的外部出血以及人们通过大血块。一名护士描述说，超过50%的病人在接受疫苗接种后看起来”严重不适”，其中一些人在接受注射后晕倒在医院。 许多护士描述说，他们宁可失去工作也不愿意打针，有些人承认他们再也不会在医疗保健领域工作了。**
 
-据科隆新闻报报告，大约有3万8千人参与周六的抗议示威，多数不戴口罩，也不保持社交距离。
+原文连接：[https://thecovidworld.com/11-australian-nurses-blow-the-whistle-on-covid-vaccine-side-effects-we-were-told-not-to-talk-about-what-we-had-seen/](https://thecovidworld.com/11-australian-nurses-blow-the-whistle-on-covid-vaccine-side-effects-we-were-told-not-to-talk-about-what-we-had-seen/)
 
-纽约时报称，通过嘈杂的人群中可听到有歌声，其中包含了“自由”和“限制”的字眼，人群中有家庭成员一起上街，也有被政府的中共病毒疫情下的限制措施和强制疫苗而激怒的“极右组织”。
+翻译：洛杉矶盘古农场- TrueSky
 
-科隆报说在人群中有新纳粹分子和否认大屠杀分子。
+校对&编辑：洛杉矶盘古农场 – 小象的奶品
 
-奥地利政府决定将从下周起实施新一轮的10天封城措施以防止另一波的疫情，并要求所有成年人在三个月内必须注射疫苗，周六的抗议一开始是安静的，但随后抗议者点燃鞭炮，向警察投掷啤酒罐和塑料桶，至少有五人因此而被捕。
 
-目前还有1/3的奥地利人尚未打疫苗，在欧洲中占最高的未打疫苗比例，最近疫情在加重，死亡数从个位数增加至周五的16例。疫情以来，奥地利已有1百多万人染疫，11993例死亡。
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
 
-**新闻来源： **[Tens of thousands in Austria protest COVID-19 restrictions](https://www.upi.com/Top_News/World-News/2021/11/20/Austria-protest-COVID-19-restrictions/6771637431171/)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

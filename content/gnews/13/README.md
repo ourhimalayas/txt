@@ -2,30 +2,25 @@
 ---
 
 
-## 新一批反垄断罚单：阿里、腾讯等又上榜
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1681744/)
+## 中共国或即将全面入侵台湾
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1681803/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-18.jpg)新一批反垄断罚单：阿里、腾讯等又上榜 网络图片
-据自由亚洲电台11月20日报道，北京对中共国科技巨头的监管力度只增不减。市场监管总局根据《中华人民共和国反垄断法》第四十八条、四十九条规定，对阿里巴巴、百度、苏宁易购、腾讯、京东、滴滴和美团等互联网企业处以50万人民币罚款。
+原文采编：文莱 编译撰稿：文所未闻
 
-名为反垄断，实则伸手抢。强盗和贼的本性除了偷就是抢。这些科技巨头已经被抢过一轮，但只要没死就得继续运行，继续被抢。今天反垄断，明天就违约，随时缺钱随时罚款，罗列罪名是中共的强项。
-
-新闻参考链接：[https://www.rfa.org/mandarin/Xinwen/6-11202021161905.html](https://www.rfa.org/mandarin/Xinwen/6-11202021161905.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-53.jpg)图片来源：CBC
 
 
-编辑：【英国伦敦喜庄园编辑部】
+据英国媒体《每日新闻》11月18日报道，中共军队近期已全面增强了导弹和两栖登陆舰的部署，为全面入侵台湾做好准备。美国国会对此警告称：尽管中共一旦武力攻台，美军将会介入，但习近平可能仍将孤注一掷占领台湾。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+据国会相关报告显示，由于中共党卫军目前在海上和空中的能力足以支持对台派遣至少25000人的登陆部队。因此，单靠美方常规军事力量是否可以阻止中共攻台将变得不确定。报告同时指出：中共可能会从核威慑政策转向实际使用核武器来实现其侵略目的。
+
+报道还称，美国政府就中共国对台政策表现得近乎混乱。虽然拜登此前曾坚决表示：美方有责任保卫台湾不受攻击，但白宫发言人近期却声称：当局对台政策没有变化，仍然继续遵循《台湾关系法》。据悉，总统的这些模糊战略政策，或将促使中共更加铤而走险地采取军事行动入侵台湾。
+
+原文链接：
+
+[https://www.dailymail.co.uk/news/article-10218333/China-ready-scale-invasion-Taiwan-congressional-report-states.html](https://www.dailymail.co.uk/news/article-10218333/China-ready-scale-invasion-Taiwan-congressional-report-states.html)
 
 
-
- 
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

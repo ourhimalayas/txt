@@ -2,104 +2,188 @@
 ---
 
 
-## 疫苗受害超过850,000例，又有3名青少年因疫苗死亡
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1681595/)
+## 串珠459:别指望中国人造反！
+` 郭爆料串珠` [轉載自GNews](https://gnews.org/zh-hans/1681617/)
 
-作者：sherryok (水云间)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Covid-vaccine-VAERS-110521-feature-800x417-1.jpg)
-美国保护儿童健康网站11月5日报道，美国疾病预防控制中心疫苗不良副作用报告系统（VAERS）当天发布的数据包括总共 856,919 份中共病毒疫苗后所有年龄组的不良事件报告，其中包括 2020 年 12 月 14 日至 2021 年 10 月 29 日期间的 18,078 人死亡和 131,027 人重伤，共有[856919个疫苗后不良作用事件](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DCAT%26EVENTS%3DON%26VAX%3DCOVID19)发生，3名12-17岁间的青少年注射疫苗后死亡。而历史数据显示，VAERS 仅报告[了实际疫苗不良事件的 1%](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://digital.ahrq.gov/sites/default/files/docs/publication/r18hs017045-lazarus-final-report-2011.pdf)。
+简述：中国人不会反抗的，中国人只会自嗨，只会呼喊。……中国人是很自私的，被共产党训练的。在我老家就告诉你，已经民心坏到如此。山东最最传统的地方，天天弄双氧水给人家城里人吃，叫人家得癌症，然后指望郭七回去解放他们，这是何等的变态？就别说城里边了。……没有人可以真正地造反。中国这个国家已经没有勇气，没有正义，没有善恶，完全不识真假。这是为什么新中国联邦从头到尾，你们不知道七哥的感受，我最想中国人，就开始知道啥叫真，啥叫假，什么叫善，什么叫恶开始，就这个简单的要求。……但是我们能不能成功？一定会成功。现在能看我直播的战友们，能看到直播的战友们，你们就是传播的力量。但是想一日之成，是不可能的，别指望着国内造反。习近平已经看透中国人了，他骨子里边……王岐山让中国人吃三年草，真的是挺善良了。——郭文贵2021年11月17日
+![](https://assets.gnews.org/wp-content/uploads/2021/11/D154F3E3-F40E-4944-B32B-9962CC9F1A34.jpeg)
+封面：共产党要的结果——你杀不完，你不敢杀，你也不敢抓，甚至你不敢为敌。它就是绑架了中国全社会的精英、所有对这个民族国家有贡献有能力的人。郭文贵2021年5月16日
 
-以下是报告给系统（VAERS ）的中共病毒疫苗不良事件。
+（国内）没有人可以真正地造反。中国这个国家已经没有勇气，没有正义，没有善恶，完全不识真假。郭文贵2021年11月17日
 
-数据包括总共[18,078 起死亡报告，](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26VAX%3DCOVID19%26DIED%3DYes)比前一周增加了 459 起。[同期](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26VAX%3DCOVID19%26SERIOUS%3DON)有[127,457 起](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26VAX%3DCOVID19%26SERIOUS%3DON)包括死亡在内的[重伤报告，](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26VAX%3DCOVID19%26SERIOUS%3DON)比前一周增加了 3,570 起。
+**2017年6月30日****   **千万不要以为他们多强大，开枪打死我？打死我，那就成就了我这一生了，成了佛了。未来的子子孙孙谁记不住郭文贵呀？被杀了，多牛啊！来试试啊！这就是光脚的不怕穿鞋的，郭文贵还怕你们么？我一个人跟你们这帮盗国贼斗争。十四亿人民的清醒和振奋，那我太值了！那就是佛祖派我来的！中国人一定会觉醒的，我就是中国人，我具有代表性。我今天的觉醒不代表我过去的二十八年全觉醒了，我一直在准备，但我没觉醒。我跟着他们经常喝屎汤子，经常觉得那臭味也很好，有時候甚至我很怀念那臭味，因为臭味里面，他也有滋有味。但是，我二十八年毕竟醒过来了，现在在这清水里活下来了。
 
-不包括向 VAERS 的“[外国报告](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://wonder.cdc.gov/wonder/help/vaers/VAERS%2520Advisory%2520Guide.htm)” ，2020 年 12 月 14 日至 2021 年 10 月 29 日期间，美国报告了[634,609 起](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26VAX%3DCOVID19%26DIED%3DYes%26STATE%3DNOTFR)[不良事件](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26VAX%3DCOVID19%26STATE%3DNOTFR)，包括[8,284 人死亡](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26VAX%3DCOVID19%26DIED%3DYes%26STATE%3DNOTFR)和[52,685 人重伤](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26VAX%3DCOVID19%26SERIOUS%3DON%26STATE%3DNOTFR)。
+你放心，墙越厚，人民就像这弹簧一样，压力越近，反抗的力量越大。正作用力，反作用力，这个一定要记住。而且，十四亿人民吶……甭说这么多，就一千四百万，一百四十万上天安门，一星期结束了！谁能挡得住啊？上海大街上，一百四十万人走在大街上，谁能怎么样？谁都没办法，有什么办法？谁能怎么着他们？他越强大，他越脆弱。世界上最强大的就是人的生命。每个人都是一个世界，每个人都是一个国家，只要他放弃了幻想，放弃了恐惧，不怕死，不贪婪，他就是一个国家的力量，他就是伟大的。这就是，从来不管多么大的国家，他就是一个人来领导，这就是谁也摆脱不了这个命运。
 
-截至 10 月 29 日，美国报告的 8,284 例死亡病例中，[10% 发生](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26VAX%3DCOVID19%26DIED%3DYes%26STATE%3DNOTFR%26V2DCHECKED%3DON%26V2DHIGH%3D1)在接种疫苗后 24 小时内，[15% 发生](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26VAX%3DCOVID19%26DIED%3DYes%26STATE%3DNOTFR%26V2DCHECKED%3DON%26V2DHIGH%3D2)在接种疫苗后 48 小时内，[26% 发生](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26VAX%3DCOVID19%26DIED%3DYes%26STATE%3DNOTFR%26V2OCHECKED%3DON%26V2OLOW%3D0%26V2OHIGH%3D2)在接种疫苗后 48 小时内出现症状的人群中。
+**2019年10月1日****   **驻港解放军咋了，就别提解放军进港了。就进门了，进你家了，咋地。你觉得这车是香港的嘛，所以上海这朋友讲了一句，上海他们怕谁呀，他真不怕老百姓，上海老百姓不会上街的。他（习）把上海的几个老同志全给看起来了，从两天前，江泽民家老院，朱镕基家老院，曾庆红家的院子，还有几个老革命家的院子，全增加了警卫。
 
-截至 10 月 29 日，美国已接种 4.186 亿剂 COVID 疫苗。其中[包括](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://ourworldindata.org/grapher/covid-vaccine-doses-by-manufacturer?country%3D~USA)：2.46 亿剂[辉瑞](https://childrenshealthdefense-org.translate.goog/defender/cheryl-cohen-dies-rare-brain-disease-second-dose-pfizer-covid-shot/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)、1.57 亿剂莫德纳（[Moderna](https://childrenshealthdefense-org.translate.goog/defender/the-peoples-testaments-polly-tommey-sally-kirkland-moderna-vaccine-constant-pain/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)）和 1500 万剂[强生](https://childrenshealthdefense-org.translate.goog/defender/fda-warning-jj-vaccine-serious-rare-autoimmune-disorder/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)（J&J）。
+说特殊时期，注意安全。怕啥呀，怕这些老革命造反。你说这些领命令的人，一旦说，江泽民家有意见，朱镕基家有意见，你能干啥，你把他抓起来。绝对不是，只有习敢，立马弄死你。这不是开玩笑的，过去还有个四人帮，汪东兴，杨得志，叶家，邓家，还有几派。
 
-数据直接来自提交给 VAERS 的报告，VAERS 是美国政府资助的用于报告不良疫苗反应的主要系统
+今天真的是到了唯我独尊了，严格讲昨天推出的谁呢，就是习和王。所有的镜头所有的感觉告诉你，跟着我的下场就是王岐山，看到没有，吃香的喝辣的。唯我独尊，跪一条腿，不用跪两条腿。所有人都是跪着，因为我站着呢。反正共产党的逻辑是要么你跪着我站着，要么我跪着你站着，反正得有个跪着的。
 
-每个星期五，[VAERS](https://childrenshealthdefense-org.translate.goog/defender/rfk-jr-david-kessler-covid-vaccine-vaers/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)都会公布截至指定日期收到的所有疫苗伤害报告，通常是发布日期前一周左右。提交给 VAERS 的报告需要进一步调查，然后才能确认因果关系。从历史上看，VAERS 仅报告[了实际疫苗不良事件的 1%](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://digital.ahrq.gov/sites/default/files/docs/publication/r18hs017045-lazarus-final-report-2011.pdf)。
+王岐山跪了一条腿，他敢站起来就是死。就非常明显，其他人都是跪着。你见昨天有一个人有表情，有激动，有自我的嘛。表情全是设计好的，假的。这个党已经到了僵尸时代，唯我独尊。
 
-**本周美国**** 12 ****至**** 17 ****岁儿童的数据显示：****  **
+国家被绑架，国家被威胁，同时绑架了国际，也在挑战全人类。我认为昨天这个真的是最后一次了，真的是最后一次国庆了。今天晚上的音乐会，你会看到更疯狂的，所写的歌和出来的演员的表达，还有给的镜头更夸张，尺度更大。
 
-- 总共有[22,584 起](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26VAX%3DCOVID19%26VAXTYPES%3DCOVID-19%26STATE%3DNOTFR%26WhichAge%3Drange%26LOWAGE%3D12%26HIGHAGE%3D18)不良事件，其中[1,383 起被评为严重](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26VAX%3DCOVID19%26VAXTYPES%3DCOVID-19%26SERIOUS%3DON%26STATE%3DNOTFR%26WhichAge%3Drange%26LOWAGE%3D12%26HIGHAGE%3D18)，[28 起已报告死亡](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26VAX%3DCOVID19%26VAXTYPES%3DCOVID-19%26DIED%3DYes%26STATE%3DNOTFR%26WhichAge%3Drange%26LOWAGE%3D12%26HIGHAGE%3D18)。28 人死亡中有两人是自杀。
+老百姓以为脱了内裤，脱了衣服尺度大，在政治上尺度最大的事情就是个人崇拜。一会将进行的晚会，据我所知，最后几分钟还有改动呢。就是把不敢的不能的，你无法想象的，希特勒墨索里尼不敢干的，日本天皇不敢干的，个人崇拜全给整出来了。
+
+而且主要是要超越斯大林希特勒，大家你们一会看到很疯狂，先准备着，别吓傻了。我先说到这Percy，小皮匠。
+
+**2019年11月6日****  **王岐山的骨子里边有三重人格。这不是我说的啊，说王岐山的三种人格是宋平说的，宋平当时说你怎么看王岐山，他说你得看到三个王岐山：
+
+一个生活中的流氓王岐山，他叫痞子，不是流氓，叫痞子——生活中的痞子王岐山。这是一个真实的王岐山。
+
+第二个，王岐山在外国人和企业家面前，那是另外一个王岐山。他大肆的搞民主啊，什么国际视野啊，然后人权啊，他都说得好得很，要展示给外国人。他说当年姚依林就是这样的人。姚依林只要是外国人一见面，第一句话：我是香港出生的，我会讲粤语，我会讲英语。然后呢，我在家里边最爱听的音乐啊，这是这个小斯特劳斯的音乐。要讲英文。诶，王岐山就这样，在外国人面前，马上：咱们有共同的语言，有共同的理想，有共同追求，这是另外一个王岐山。
+
+第三个，在共产党内部的王岐山，极右，或者极左。见极右的，比你还右，见极左，比你还左；左右逢迎，绝对的政治投机。每句话就是“丫挺的”，然后就是“中国老百姓就欠打，中国老百姓就欠收拾”，“中国老百姓你给他过好日子他马上就造反”，“中国老百姓是世界上人类上最杂碎、最糟糕的、最不团结的”，“为什么有商鞅，商鞅把中国人说透了”，“中国人历史上为什么总出太监，为什么出这些人物，就是中国需要这样的人物”。
+
+他永远是这样。你看他开会，他往那儿敲着桌子，一讲就四五个小时不停，他不给人说话的机会。所有北京官员他来北京以后说，在北京城，最痛苦的就是听王岐山开会。他往那儿一坐就讲上了，一讲就没别人说话。
+
+我跟你讲了，在圆桌吃饭时，赵本山，北京春节联欢晚会完了，赵本山、范冰冰，所有的明星全来了，你知道的都来了。就是吃饭的时候说嘛，听说你们现在这个啊，打炮的价格都已经涨了，从过去3万……30万了现在？赵本山说这不本来就是啊。范冰冰说，首长，你免费。大家哄堂大笑。他不吱声。大家就侃上了。诶，听说现在流行3P，3P是怎么玩啊？哇大家就笑，说3P怎么玩。然后说你们去过日本吗？日本那个性工具商店我去看过，那性工具商店好啊，你说那日本公开在卖，还合法，你们去过没有啊？
+
+说这个王岐山他是个什么人啊，这个家伙，绝对是个天才，你不得不服。但是他绝不是……他没有任何你所说、你想定义的两个极端：民主，或者非民主。他不存在民主，他也没有非民主。他就是一流氓。你是妓女的话，看了他你高兴啊，那有的人愿意跟他睡觉啊。公主开窑子，不图赚钱图快活，愿意跟王岐山快活啊,愿意享受他的小手啊，王岐山就觉得很厉害呀。我就是公主，我开窑子，我图快乐，我不图钱你咋的。那么就像张欣，跟王岐山聊着民主自由，他比张欣聊得还多。你从外国回来的吧，讲英文的，那马上就开始。王岐山和所有的，朱镕基和江派，所有的共产党的高官，这点是共同的，崇洋美国，只要讲英文的就在心里高三头，崇拜西方这一点是绝对无庸置疑的，都是一样的。其他就是完全是没道德，没原则，没有信仰，没有理想，更不存在什么主义，那是胡扯，就是现实主义，就是流氓主义。
+
+**2020年9月9日****   **我前天回到曼哈顿时候，我见到美国…对爆料革命最关键地接下来，你们会看到狂风暴雨般的重锤砸向中南坑，你们会看到。我让他（曼哈顿朋友）听着，他一听，就扑腾从椅子站起来。哇，Miles他说这个力量太大了。他的女朋友一直听，然后说句话真的是感动我，她说Miles，中国人太可怜了，我去中国的时候看到中国穷人太可怜了。中国人竟然那么多人没有社保，没有公共厕所，孩子上学还得付钱…共产党说还拯救了全中国人民，共产党还说没有共产党中国人活不了。所有的共产党官员都跟我们说中国人再有一百年也达不到你们美国的水平，中国人需要我们高压维稳，符合你美国利益。说能不能让工人得到更多的福利啊保险啊，所有共产党就告诉她说如果让中国人得到了保险福利和美国一样的这种国家社保系统，说中国人民就造反。中国人民一造反就大量的非法移民就跑你美国去了，你就完啦。你们再想在中国买那么便宜的产品可能吗？她说我们都犯罪了，我们真的这么多年跟中国做生意就是为那点便宜。
+
+现在真的知道他们相信，我说你们今后没有共产党了以后你们会更有更大的市场，就像今天郭文贵一样，啊，这个音乐，共产党还在那呢，中国人就已经给我创造了一个第一！就是中国人的市场可以到美国来，你美国人只要停止给共产党钱，给它技术，中国的三万亿美元的所有的所谓的互联网的网络经济都会加大一两倍和你共享，美国六万亿美元的互联网市场可能马上就到二十万亿美元，这个是中国人要付你知识产权费的时候，中国共产党垄断的所谓中国人民十四亿人贫穷的市场廉价劳动力，那将是你最大的机会。
+
+**2021年1月17日****   **25000里长征距离我们今天看视频的人好像很遥远，和今天美国总统大选有没有异曲同工之妙？现在是多米尼盗取了美国的总统的权力，当年的25000里长征、所谓的25000里长征，8万人剩6000人。这就是为什么当年习近平的父亲习仲勋在西北四军、当时的高岗等，当时他们厉害，当时跟回民马家军对抗，最后是他们把共产党起死回生。他们那叫逃跑，用曾庆红他妈的话说；那叫逃跑、逃窜，走到哪吃到哪、偷鸡摸狗。有一次到一个地主家去偷人家的猪，结果地主带着一帮长工把他们打的落花流水。根本不存在什么卢沟桥什么什么之战，全是用邓小平的话说：我们需要戏剧性，也就是需要这个骗局。
+
+共产党当他要撒谎的时候、要诈骗的时候，那叫戏剧性。我们老百姓连贷款，他要说你是贷款的时候，他把钱放给你，你给他15%的利息，他说你是骗贷。这个世界上共产党信奉的是：他拳头硬就说了算，真理出在拳头里，真理出在枪杆子里，从来没改变过。中国人70年了有反抗吗？从当时的25000里长征到1949年、到今天2021年，中国人有反抗吗？这个骗局比美国总统的骗局大不大？对人类的影响大不大？说美国盗取了总统权力，中国盗取了国家权力！盗了70年了，我们中国人都闭着眼睛、闭着嘴儿。而一次次的被他杀害家人、亲人，有谁说话？战友今天的愤怒和勇敢呢？如果一个美国人说：你看看你们的国家政权被盗去多少年了？你怎么不回去呢？你怎么不解决呢？你咋不给他出招儿啊？所以说我们战友们，千万不要做口炮党啊。
+
+我任何时间、过去的30年怎么过来的，兄弟姐妹们知道吗？当我被眼前的物质生活、被任何东西所诱惑的时候，我就看两样东西，我就看看共产党撒过的谎，特别是杀害200万的地主，和共产党当年一开始的时候、农村包围城市之前，和井冈山还有到延安这一段时间和25000里长征。杀了200万的地主的共产党，最后饿死了4000万人——官方数据，实际上饿死1亿人；最后是计划生育，还给全世界说：我们给你们解决地球上的人口爆生的灾难。没有人想象过，他养不起呀！就像现在一个穷人家里面要生10个孩子，你养不起呀。可摩门教美国人你生了孩子，给你奖励呀！因为人家养得起，因为这个国家需要人民强大。共产党把养不起，说成了人口控制、世界的贡献，他叫人口计划生育。
+
+不要说别人，我的家人、我旁边的人，我所经历几十年、经历的计划生育，在我的老家，我亲自到现场看不多少次。每年搞计划生育多少人被抓、被砍，多少人到现场把孩子从阴道里面，从子宫里面给掏出来，当场摔死，我亲自见过多次。再看看当年被杀害的地主，后来共产党把国民党给引到所谓的抗日战争，又把国民党的内部的这些傻货们给骗回来，让他们投了所谓的共产党，包括北京城的傅作义。最后是什么结局，兄弟姐妹们？共产党比美国今天盗的大、骗的大，盗取了当年人类上三分之一的人民的权利，而且一盗就70年。
+
+**2021年5月16日****   **五、共产党用利益集团控制一切以灭绝民众造反念头
+
+我今天要讲的兄弟姐妹们，共产党在过去这几十年，我曾经面对迟浩田我问过他两句话，跟这有关的话，我和他也是老乡，我们山东老乡。我们都叫他老乡首长、首长老乡。我说这共产党要这么多党员，你们都五六千万了，要那么多党员干什么呢？你们养得起吗？
+
+他说你看看你这个傻子，你懂什么！你这个小鬼呀。他说党员只要是占了中国的江山，3亿到4亿的时候，他说我告诉你老七，中国十几亿人口，中国能有生产力、文明生产力，影响国家命运的也就是两亿多人，当时的他说就两亿多人，能加入党员的人，第一他交党费，第二他受党约束。还不但如此啊，他们都想有希望当个官，更重要的事情他们之间还互相揭发。
+
+他说当这个精英当中80%都是共产党员的时候，和中共政府的职务都是以党员不是党员不让你当副局长、不让你当局长，你是不可能的。99%的人你想当处级，你必须是党员，他说这是什么？这是用党员、用党的系统领导全中国的精英；用党控制的政府资源和职务把中国的精英和共产党这个战车绑在一起。
+
+他说这是谁设计的，是毛泽东、周恩来还有朱德、陈毅都是当时所谓撰写所谓共产党的宣言，还有后来的共产党的修养。还有刘少奇最后还专门写了一本论共产党员的修养，大家都记住那个本儿我很小就看过。
+
+这是一个统治这个国家，全民皆被党绑架社会精英，让你这些绝大多数的傻叉和奴隶们无力、不可能跟这个分享国家资源的一种利益集团的对抗，这是一个体制。当你加入共产党员升成处级的时候，你自我感觉就和所有包括你的穷人的爹妈都不一样。你们见过多少党员愿意他升了处长甭说升了局长还愿意跟爹妈打交道的，还愿意跟老同学打交道的——很少的，他叫特级阶层。
+
+好！第二句话我问，我说这共产党员你们要达到什么样的目的呢？他说基本上，共产党要达到共产党员控制这个数量，就是在全世界和在国内达到两个指标，所有的武力、所有的国家力量要100%在党控制下；第二所有的资源包括财富，所有人都要100%的在党的控制下，这两个100%完了，他说中国任何人都不可能再造反，因为精英都是既得利益者。
+
+我当时我的政治水平和当时对这个共产党的理解，那听说这个就像炸脑子一样，啊~原来你有这个想法。就像你当初一个处男看到了潘金莲和西门庆第一次偷情一样，人家在床上还没热呢，你自己弄得浑身发烧，是不是啊？高烧45度了都，因为你没经历过嘛，是不是啊，你一个小处男你看到一个西门庆和潘金莲在里边，是不是？看着小人书，是不是？俩人在床上这花招那花招的，对不对啊？那你这浑身就发烧了、45度了是不是啊？
+
+那一会儿我估计有个砖缝，你都想抠两下子是不是？甭说是猪了是不是？你碰到九指妖这样的人，你都不知道什么样了。它一定是这个结局，它是个自然反应，我听完这个对我当时就是大得不行了。
+
+后来，我跟更多的共产党高官打交道的时候，我就注意到研究这个人的心理行动。我看到我的同学、我的旁边人从普通人到了党员，到升官——副科级、科级、副处级、处级。包括到我们企业来的共产党员，我告诉你每个人都有他独特的优越感，他们就觉得和你不一样，给共产党员带来的优越感和共产党员这种你这所谓的党员相吸、命运共同体、垄断资源的优越性和傲慢性，共产党这招太厉害了。
+
+六、共产党最想要的就是你灭共产党就灭掉这个族
+
+最后，你再想想今天所谓的14亿人，事实上中国现在是11亿人左右，绝对不是14人，11亿人左右，肯定11亿人左右，只能11亿多不了一千万，只能少不能多。现在是所谓的9000万党员，9000万党员他有一个儿子一个闺女加上爹妈一家乘上4口人——3.6亿，一家乘上三口——2.7、2.8亿。我们爆料革命当中战友包括正在听我直播的很多家人都是党员、很多你朋友都是党员，我们几乎一扭身儿、一转身你几乎旁边都是党员，特别是在京广上深这种地方你一转身几乎都是党员。你去个餐厅、去个厕所，可能是管厕所都是党员。这3亿人咱能不能把他都当成所有共产党员该仇恨的人呢？
+
+兄弟姐妹们，共产党种下的人尸丸、种下的中国的毒，就是共产党全党、全党的党员家属控制着中国100%的资源、100%的权力。就是用这个国家的资源不分享给你这些穷人和这奴隶，它掠夺了、抢夺了所有人应得的利益、权力和机会，它把这所有的东西集中起来给了它的党员。
+
+所以才有些人精英没有选择的，在中国只有一个选择——与共产党为伍，与共产党为伍不一定为共产党作恶，这是另外一个概念。只能在这条路上走下去才可能有机会，人生没有如果。政治上没有如果，如果中国有第二个政权，他们有很多人不会选择共产党。
+
+即使我在清丰看守所期间，警察和检察院里面不是没好人，是有好人的。当时把我提审告诉我八弟已经死亡的时候，其中的这个法官旁边一个检察官，检察官看到我哭昏过去，这个检察官自己也流泪了。
+
+我出来以后专门找过他，他这一抿过去了，他说文贵不要提这个事情了，我们都是人，我们就是混碗饭吃，我也有家人。没抽我一根烟，我要请他，当时我在濮阳开了个石化饭庄，我说去石化饭庄吃顿饭我请你喝个酒，他说文贵我绝对不能去。后来给我写过两封信看到裕达建起来了，恭喜我如何如何的，有好人。
+
+那些在清丰看守所被枪毙的人当中，我就亲眼看过在枪毙那些就是六四人的时候，我看到警察站在旁边抹眼泪，我都是我亲身的经历。上边那些武警也有表示惋惜、佩服、难受的。
+
+那么今天我们当回到这个问题的时候我们有两个选择兄弟姐妹们，我们要现在把这种仇恨变成行动的话，那就是我们不是灭共了，我们就是要灭华，就把华人给灭了。三亿多人嘛，三亿多人基本上是人类过去一百年所有被杀掉的战争和政治所有的总和了，都可能达不到。
+
+你拿什么把这三亿多人都杀了哇？你拿什么能把这三亿多人都杀了？这三亿多人都杀了你觉得是正确的吗？这三亿多人包不包括你的同学、你的家人、你的同事？包不包括我看到的明知枪毙了冤枉的六四的这些英雄们而他自己抹泪的人？这三亿多人，他本身他爸、他妈妈或他姐、他哥哥是党员是警察，他甚至是极坏之人，他没有做过恶事，你觉得应该对他下手吗？
+
+再一个这三亿多人如何来判断未来他是恶人、他杀过人、他有罪，是我们现在用这种方式能做到的吗？是用杀戮能解决的吗？是用仇恨能解决的吗？把三亿人杀完以后这个中国你觉得还存在吗？你杀得完吗？
+
+共产党要的就是你这个结果——你杀不完，你不敢杀，你也不敢抓，甚至你不敢为敌。它就是绑架了中国全社会的精英，全社会的所有的对这个民族国家能有贡献有能力的人，这就是它种下的毒。
+
+它身上绑上了一个几亿人的精英的这么一个定时炸弹，这是共产党最想要的——你灭共产党，你就要灭掉这个族，灭掉这个国家。你灭掉共产党你就要造成社会动乱，人类甚至都要出现彻底灭亡的战争。这就是共产党邪恶的地方，它让我们就是彼此仇恨，让我们就是彼此仇杀。
+
+往回看，斗地主、井冈山、在延安、文化大革命，所有的共产党从李大钊回到中国，哪个革命不是以内部的，包括国民党、共产党都是以挑动我们内部的仇恨、阶级、斗争、仇杀、宗教、族类的各种矛盾才让共产党成了今天这么大的个恶魔。我们还要走这个上这个上当跟共产党一起仇恨我们的同胞、仇恨这个国家。
+
+我不知道很多战友你们是怎么想的，在我那个下面留言的，那个意思是非常反对七哥这个说法。我请问你，你蹲过监狱吗？你戴过脚镣手铐吗？你家人多少人被抓、被杀、被害？你被剥夺了多少钱？你用什么手段来判定共产党是杀人犯、是虐囚犯、是该判的罪人？你有什么样的智商和法律知识和你的道德良知和可控制的情绪在什么样的公平条件下能完成一个公平的审判？全人类的审判都知道，就像美国法院告诉你的一样，审判不能带来真想。一个没有监督的审判，永远不可能有公平和真相。
+
+**2021年11月17日****   **七哥小时的李慧老师说，老家地里挖出来一条龙，她说这是七哥要回去拯救大家
+
+郭文贵先生：对了，我说到这，我开玩笑啊！前天我的慧老师，是我当年小学四年级的老师，一个女老师很漂亮，比我大八岁。因为她爹是副校长，所以她就很早去当老师去了。我们俩的故事很传奇，我们老家都知道，就是都传言跟我很好。那时候我才十二岁，所以说我还是处男呢！
+
+她上厕所，因为大家都知道，在山东老家的厕所，是用砖搭的那种，蹲在那个坑里边就拉。大家都知道，现在中国很多，男老师的厕所，你去拉的时候，坏老师，我就带着我的兄弟姐妹在后面准备好砖头。老师一进去，我们就在后面砸那个茅屎坑。“啪”喷他一屁股，嗷嗷叫，我们就跑了。
+
+女老师进去，我给递那个擦屁股纸。其中就是我们李慧老师，就是说我递擦屁股纸，闻名于学校，郭文贵当时。因为跟我都是比我大的学生嘛，我是小学的，人家都是初中的。老师是……她很高贵，她自己放了一本书，放着掖着，老师擦屁股的。那个时候，中国人不是谁都有纸擦屁股的。真的是，你得自己提前带呀！真不好，就拿“土克拉”蹭了，是吧！
+
+我就发现女老师，这李慧老师进去的时候，我就把那纸给她从外面拽走了。她蹲在地上，发现擦屁股的时候没纸了。我在旁边：“啊！李老师，我给你已经准备好纸了。”“嘎叽”就递过去了。李老师：“唉！文贵你好啊！”就跟我好上了，是吧！然后回家的时候：“郭文贵，我自行车带你一段。”人（家）有自行车，我那时候骑，还是掏裆骑，我跨不上去。我得手挎点，这样的骑，你知道嘛，还用她自行车带我。
+
+我老家叫曹营，在红庙上学，中间路过一个贾庄，一个叫后王庄。她家是住在贾庄，后来搬到后王庄去，没多远。在那个特别是春天的时候，在路上骑自行车。“哎！”她说，“文贵，你给我看点人，我到地里面去方便一下。”老师去玉米地去方便撒尿，我在旁边给她站岗放哨。从此郭文贵传言就多了。
+
+因为那时候我还是处男的，你们知道七哥十三岁才失去了处男，是东北，跟她啥事没发生。包括老师晚上到那旁边的河里边，要去洗澡，知道吗？让我给看着，我也给帮着看着，洗澡去了。所以说，我们俩的关系非常（有）渊源。
+
+最近找到我了,“文贵，最近老家传出了一个故事，”（李慧老师）说：“在西曹营北部，有人在田里挖出了一个黑色的龙，我告诉他们，这就是郭文贵现身了，要拯救全中国了。”我的李慧老师又成了我的广告员了。我说文贵当年为你尿尿，站岗放哨，今天替文贵大肆宣传，有点当年叫朱元璋的感觉，是吧？传说中的什么是刘邦的什么白蛇之剑。
+
+我们慧老师说了个很……特别到位的话：“文贵，咱们山东老家现在穷到啥程度，没到人吃人。咱们老家吃的，从你西曹营到我们贾庄，一路上都是化学的、养鸡的。”我们老家是养鸡出名，养鸡的那个味道。她说咱老家现在那个青菜大棚，是供应了聊城大概百分之三四十。她说青菜大棚用的双氧水，她说文贵原来那个河已经没水了。
+
+我们李老师洗澡的晚上，洗澡那种若隐若现的那个感觉，我趴那块看。我站岗放哨别人，但我绝对不站岗放哨我自己。我在那块看，那种若隐若现的洗澡的河，早就没水。说那个河已经圈起来成了洗青菜双氧水的地方。李老师说，文贵，我看你直播，我哭一次。我看你直播，我不白活一回呀！你所有说的每句话，都在改变着人类，改变着中国。她说咱们老家，就惨到这程度。
+
+●1：57：12七哥的老家穷到银行的钱都取不出来了，但七哥也救不了他们；中国人不会反抗，只会自嗨；中共国这个国家已经没有勇气，没有正义，没有善恶，不识真假；新中国联邦从头到尾最想中国人知道的就是什么是真假善恶
+
+郭文贵先生：战友们，你知道我老家现在到了什么程度吗？我们老家所有买了所谓的当时给老百姓的，所谓医疗保险卡，几乎都不管用。交的保险的人，几乎都不管用了。还有更夸张的，战友们。你们要想到我们现在中国到了什么程度？银行、我们老家的商业银行，过去叫信用社，钱都取不出来了。
+
+我们的李老师告诉我说：“文贵，咱老家就流传这个，郭七会回来救我们的，郭七。”我说李老师，你告诉所有人，郭七救不了这些人。回去只能看你们去洗澡，帮你们站岗放哨去撒尿。其他啥也干不了，别指望我。因为我老家就代表了一个根本的问题，我是山东人——懦弱自私。你制造这种双氧水让人家得癌症死，你指望着郭七回去救你？
+
+中国人不会反抗的，中国人只会自嗨，只会呼喊。我给我们李老师开玩笑，我说李老师，当年郭七，当时饿得半死的时候，你也没给我几斤粮票，是不是？我替你站岗放哨，我从来是无偿的。是不是？从来没给我几斤粮票，让我弄点馍馍吃。中国人是很自私的，被共产党训练的。在我老家就告诉你，已经民心坏到如此。山东最最传统的地方，天天弄双氧水给人家城里人吃，叫人家得癌症，然后指望郭七过去回去解放他们，这是何等的变态？就别说城里边了。
+
+我们李慧老师的孙女、孙子，都在外地开公司。所有的开公司啥？都是P2P。骗了别人的钱，然后自己钱被人家骗了。然后找我来了，当时我告诉他，我说你这钱，你就活该被骗，你就该进监狱。你骗别人的钱，以百分之百的利息；别人骗你的钱，以百分之二百的利息。你不被骗怎么行呢？
+
+这样的国家，这样的民族，你觉得会造反共产党吗？所以QMAY回答你，没有人可以真正地造反。中国这个国家已经没有勇气，没有正义，没有善恶，完全不识真假。这是为什么新中国联邦从头到尾，你们不知道七哥的感受，我最想中国人，就开始知道啥叫真，啥叫假，什么叫善，什么叫恶开始，就这个简单的要求。
+
+你刚才，我说的我们的李老师，她的孙子孙女，她有善恶、有真假之分吗？我的老家都希望，郭七去救你去。我能让……你叫我救你，前提你能别造这双氧水的青菜和养着那些化学的鸡，三天一茬鸡，还两个蛋黄。我们老家是养鸽子全国第一，全国百分之五十以上鸽子肉，是我们老家给养出来的。养的鸽子，全都是化学的。
+
+●2：00：15 虽然很难，但我们一定会成功；别指望国内造反，习近平已经看透了中国人
+
+郭文贵先生：兄弟姐妹们，难了，但是我们能不能成功？一定会成功。现在能看我直播的战友们，能看到直播的战友们，你们就是传播的力量。但是想一日之成，是不可能的，别指望着国内造反。习近平已经看透中国人了，他骨子里边……王岐山让中国人吃三年草，真的是挺善良了。
+
+我2017直播的时候，我跟习近平当时2006年在一起喝酒，那时候喝醉过，他刚到北京奥运会，管奥运组的时候。习近平一说中国老百姓，张嘴就是：“老百姓管他吃饱喝足了，管你的事，你管什么政治？就得往死的整。政府和人民之间是统治、被统治的关系，让你吃饱饭，有觉睡，你不被统治你怎么？不这么我杀你的头！”就这么简单。王岐山让你吃三年草，王岐山真的挺善良的，说实在话，你就不了解共产党。
+
+我跟习是当面而坐，抠着脚指头喝茅台的人。当年的田玉玺给我说：“文贵，去浙江那小船上，习回来老说这个郭文贵不是一般人，你要好好的跟这人多聊。”现在田玉玺也被抓了。我问过田玉玺，如果这家伙当了皇帝的话，你是不是就厉害了？他：“不，从小跟我在一起睡觉，这家伙翻脸不认人的。他被抓过三次，被打过三次，他对人都是咬牙切齿的。”他说：“这个人很讲义气，但这人你别惹他。”这田玉玺的原话，结果田玉玺也被抓了。
+
+你看你七哥，是从认识他二十几年，看到了习近平从一个福建、浙江、上海到北京管奥运会，然后当总书记。所有人都看好习。我私下告诉，我说习当上了皇上，一定先杀江家，最后杀王岐山，最后搞朱家，最后全中国人民都是他裤裆里的奴隶。没人信是吧！现在信了吧！
+
+看着习，现在是习太阳了。习一神好像是昨日的事，今天就变成习太阳了。中国人，因为你允许了他当神，他就会当太阳。中国人反抗了吗？没反抗。你看那帮王八蛋的新闻记者招待会上，那副嘴脸。所以说兄弟姐妹们，惨着呢！别幻想了，谢谢！
+
+\* 2:03:34以前类似袁世凯人都被抓了，还有这样的人在等机会要出手，而且想出手干掉习的人比六中全会以前更多
+
+郭文贵先生：兄弟呀，我可以这么说草根兄弟，看问题草根是跟他年龄不相符的。袁世凯一直以来，我原来说实在我觉得中国是有好几个这样的人物。但是你发现了吗，习这个人啊，很会用内部的人就把袁世凯就给找到了，就给弄起来个球的了。
+
+这家伙你不要小看他，很有可能还会发生的。因为最起码我相信，我也知道，不是我猜的啊，他身边所有这些信臣，所谓的近臣，这些人就像当年大明朝的于谦一样，还有点说真话的。有些人等待机会要出手，是有机会的。但是不幸的事情中国人出这种坏人越来越多，党内发现一个有袁世凯迹象就爆了，爆了就给抓了，爆了就给消灭了，但是未来还是有几个的。
+
+另外一个我觉得党内现在这个运动啊，随着习这次六中全会完，绝对是敲响了他个人随时被干掉的警钟，随时被干掉。而且我相信要干掉他的人远远大于在六中全会之前。
+
+因为内部人都很清楚，他们不干掉习，习就会像斯大林一样一天一天地割。从一开始一个月发一个死亡通知单，让贝尔雅（口误：贝利亚）：这是我要杀的人，你去干掉。一个月俩人，最后是一个月十个人，一个月一百个人。最后是一天一个人，最后是一天几百个人，就这样把整个原所谓的苏维埃共产党全要杀尽了。六大军区司令干掉了三四个，所有军事委员会全灭掉。
+
+\* 2:05:30王岐山、孟建柱、江志成、傅政华等人下属实力强大，找机会会动手，现在目标一致——干习
+
+郭文贵先生：他下一步你放心，什么王岐山呀，孟（建柱），王岐山你看又到布隆伯格什么新加坡论坛啊：中国必须改革开放，中国不改革开放世界就要出大事，不改革开放中国没有前途啊——完全胡扯！就是王岐山这次在美国最好的朋友到了中国整个被隔离三周，又在酒店里住了两周，最后是王岐山没见他面。最后王岐山的下属只跟他说了一句话：“回去以后不要谈这次来中国任何事情，王岐山有个人自由、行动上的不方便。明白了吗？”
+
+那么这时候你就会看到王岐山、孟建柱、所有的江志成、马云系列，所有中国企业家系列，曾庆红，这些哪个人——包括你不要小看傅政华，傅政华知道早晚有这一天，傅政华的下属逮到机会是一定要动手的；孟建柱的兵力和实力绝不亚于习，逮到机会会动手的。
+
+所以说兄弟姐妹们一定要记住啊，共产党六中全会以后反而新中国联邦瞬间都可能得到机会干掉共产党，最重要现在大家都有一个目标：干习去。美国人相信，全世界相信，把习干掉中国得平安。中国党内也相信干掉习中国就解放，党内就解放，大家都自由。
+
+这就是历史以来，这就是为什么在世界上看到这些利比亚啊，原来伊拉克呀，包括前罗马尼亚啊，发生了各种这种事情，包括前苏联。我相信在中国一定会发生，总体这个六中全会最大受益者是新中国联邦，最大受害者是中国在墙内的人民。谢谢草根兄弟！
+
+资料整理：文迅等 / 封面设计：展翅上腾 / 发布：文青
+
+### [**《郭爆料串珠系列》往期文章汇总**](https://gnews.org/zh-hans/888831/)
+
+郭爆料串珠系列文章，都是从1000多篇郭文贵先生直播听写文字版、盖特精选而成，有时也包含部分班农先生直播文字，具有文献价值。由英国伦敦喜庄园文迅等按时间、主题整理。感谢听写组战友！
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-最近的死亡事件包括一名来自南卡罗来纳州的 12 岁女孩 (VAERS ID [1784945](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?IDNUMBER%3D1784945) )，她在接受辉瑞 (Pfizer) 的 COVID 疫苗接种 22 天后出血，一名来自马里兰州的 13 岁女孩 (VAERS ID [1815096](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?IDNUMBER%3D1815096) ) 在接种疫苗后 15 天死亡。她的第一剂辉瑞 COVID 疫苗因心脏病和一名来自德克萨斯州的 17 岁女性（VAERS ID [1815295](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?IDNUMBER%3D1815295)，在接种疫苗 33 天后出现急性[高血糖危象）](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.ncbi.nlm.nih.gov/books/NBK279052/)而接种。
-
-最近的另一起死亡事件涉及一名 12 岁女孩 ( [VAERS ID 1784945](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?IDNUMBER%3D1784945) )，她在接受第一剂辉瑞疫苗 22 天后死于[呼吸道出血](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?EVENTS%3Don%26PAGENO%3D3%26PERPAGE%3D10%26ESORT%3D%26REVERSESORT%3D%26LOWAGE%3D%2812%29%26HIGHAGE%3D%2818%29%26WhichAge%3Drange%26STATE%3D%28NOTFR%29%26VAX%3D%28COVID19%29%26VAXTYPES%3D%28COVID-19%29%26DIED%3DYes%23)。
-
-- [59 份](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DAnaphylactic%2Breaction%2B%252810002198%2529%26SYMPTOMS%5B%5D%3DAnaphylactic%2Bshock%2B%252810002199%2529%26SYMPTOMS%5B%5D%3DAnaphylactoid%2Breaction%2B%252810002216%2529%26SYMPTOMS%5B%5D%3DAnaphylactoid%2Bshock%2B%252810063119%2529%26SYMPTOMS%5B%5D%3DAnaphylaxis%2Bprophylaxis%2B%252810049090%2529%26SYMPTOMS%5B%5D%3DAnaphylaxis%2Btreatment%2B%252810002222%2529%26VAX%3DCOVID19%26STATE%3DNOTFR%26WhichAge%3Drange%26LOWAGE%3D12%26HIGHAGE%3D18)12 至 17 岁的过敏反应[报告](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DAnaphylactic%2Breaction%2B%252810002198%2529%26SYMPTOMS%5B%5D%3DAnaphylactic%2Bshock%2B%252810002199%2529%26SYMPTOMS%5B%5D%3DAnaphylactoid%2Breaction%2B%252810002216%2529%26SYMPTOMS%5B%5D%3DAnaphylactoid%2Bshock%2B%252810063119%2529%26SYMPTOMS%5B%5D%3DAnaphylaxis%2Bprophylaxis%2B%252810049090%2529%26SYMPTOMS%5B%5D%3DAnaphylaxis%2Btreatment%2B%252810002222%2529%26VAX%3DCOVID19%26STATE%3DNOTFR%26WhichAge%3Drange%26LOWAGE%3D12%26HIGHAGE%3D18)危及生命、需要治疗或导致死亡——其中 96% 的病例
-归因于[辉瑞的疫苗](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DAnaphylactic%2Breaction%2B%252810002198%2529%26SYMPTOMS%5B%5D%3DAnaphylactic%2Bshock%2B%252810002199%2529%26SYMPTOMS%5B%5D%3DAnaphylactoid%2Breaction%2B%252810002216%2529%26SYMPTOMS%5B%5D%3DAnaphylactoid%2Bshock%2B%252810063119%2529%26SYMPTOMS%5B%5D%3DAnaphylaxis%2Bprophylaxis%2B%252810049090%2529%26SYMPTOMS%5B%5D%3DAnaphylaxis%2Btreatment%2B%252810002222%2529%26VAX%3DCOVID19%26VAXMAN%3DPFIZER/BIONTECH%26STATE%3DNOTFR%26WhichAge%3Drange%26LOWAGE%3D12%26HIGHAGE%3D18)。
-- [547 份](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DMyocarditis%2B%252810028606%2529%26SYMPTOMS%5B%5D%3DPericarditis%2B%252810034484%2529%26VAX%3DCOVID19%26STATE%3DNOTFR%26WhichAge%3Drange%26LOWAGE%3D12%26HIGHAGE%3D18)心肌炎和心包炎（心脏炎症）[报告](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DMyocarditis%2B%252810028606%2529%26SYMPTOMS%5B%5D%3DPericarditis%2B%252810034484%2529%26VAX%3DCOVID19%26STATE%3DNOTFR%26WhichAge%3Drange%26LOWAGE%3D12%26HIGHAGE%3D18)，其中[539 例](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DMyocarditis%2B%252810028606%2529%26SYMPTOMS%5B%5D%3DPericarditis%2B%252810034484%2529%26VAX%3DCOVID19%26VAXMAN%3DPFIZER/BIONTECH%26STATE%3DNOTFR%26WhichAge%3Drange%26LOWAGE%3D12%26HIGHAGE%3D18)归因于辉瑞的疫苗。
-- [126 份](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DCerebral%2Bvenous%2Bsinus%2Bthrombosis%2B%252810083037%2529%26SYMPTOMS%5B%5D%3DCerebral%2Bvenous%2Bthrombosis%2B%252810008138%2529%26SYMPTOMS%5B%5D%3DCoagulopathy%2B%252810009802%2529%26SYMPTOMS%5B%5D%3DDeep%2Bvein%2Bthrombosis%2B%252810051055%2529%26SYMPTOMS%5B%5D%3DDisseminated%2Bintravascular%2Bcoagulation%2B%252810013442%2529%26SYMPTOMS%5B%5D%3DEmbolism%2B%252810061169%2529%26SYMPTOMS%5B%5D%3DIdiopathic%2Bthrombocytopenic%2Bpurpura%2B%252810021245%2529%26SYMPTOMS%5B%5D%3DImmune%2Bthrombocytopenia%2B%252810083842%2529%26SYMPTOMS%5B%5D%3DImmune%2Bthrombocytopenic%2Bpurpura%2B%252810074667%2529%26SYMPTOMS%5B%5D%3DIschaemic%2Bstroke%2B%252810061256%2529%26SYMPTOMS%5B%5D%3DMyocardial%2Binfarction%2B%252810028596%2529%26SYMPTOMS%5B%5D%3DPetechiae%2B%252810034754%2529%26SYMPTOMS%5B%5D%3DPulmonary%2Bembolism%2B%252810037377%2529%26SYMPTOMS%5B%5D%3DPurpura%2B%252810037549%2529%26SYMPTOMS%5B%5D%3DThrombocytopenia%2B%252810043554%2529%26SYMPTOMS%5B%5D%3DThrombosis%2B%252810043607%2529%26SYMPTOMS%5B%5D%3DVasculitis%2B%252810047115%2529%26VAX%3DCOVID19%26STATE%3DNOTFR%26WhichAge%3Drange%26LOWAGE%3D12%26HIGHAGE%3D18)关于凝血障碍的[报告](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DCerebral%2Bvenous%2Bsinus%2Bthrombosis%2B%252810083037%2529%26SYMPTOMS%5B%5D%3DCerebral%2Bvenous%2Bthrombosis%2B%252810008138%2529%26SYMPTOMS%5B%5D%3DCoagulopathy%2B%252810009802%2529%26SYMPTOMS%5B%5D%3DDeep%2Bvein%2Bthrombosis%2B%252810051055%2529%26SYMPTOMS%5B%5D%3DDisseminated%2Bintravascular%2Bcoagulation%2B%252810013442%2529%26SYMPTOMS%5B%5D%3DEmbolism%2B%252810061169%2529%26SYMPTOMS%5B%5D%3DIdiopathic%2Bthrombocytopenic%2Bpurpura%2B%252810021245%2529%26SYMPTOMS%5B%5D%3DImmune%2Bthrombocytopenia%2B%252810083842%2529%26SYMPTOMS%5B%5D%3DImmune%2Bthrombocytopenic%2Bpurpura%2B%252810074667%2529%26SYMPTOMS%5B%5D%3DIschaemic%2Bstroke%2B%252810061256%2529%26SYMPTOMS%5B%5D%3DMyocardial%2Binfarction%2B%252810028596%2529%26SYMPTOMS%5B%5D%3DPetechiae%2B%252810034754%2529%26SYMPTOMS%5B%5D%3DPulmonary%2Bembolism%2B%252810037377%2529%26SYMPTOMS%5B%5D%3DPurpura%2B%252810037549%2529%26SYMPTOMS%5B%5D%3DThrombocytopenia%2B%252810043554%2529%26SYMPTOMS%5B%5D%3DThrombosis%2B%252810043607%2529%26SYMPTOMS%5B%5D%3DVasculitis%2B%252810047115%2529%26VAX%3DCOVID19%26STATE%3DNOTFR%26WhichAge%3Drange%26LOWAGE%3D12%26HIGHAGE%3D18)，所有病例均归因于辉瑞。
-
-
-**本周美国**** VAERS ****数据（从**** 2020 ****年**** 12 ****月**** 14 ****日到**** 2021 ****年**** 10 ****月**** 29 ****日）所有年龄段的数据显示：**
-
-- 19% 的死亡与心脏疾病有关。
-- 54% 的死者是男性，42% 是女性，其余的死亡报告不包括死者的性别。
-- 在[平均年龄](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26VAX%3DCOVID19%26DIED%3DYes)死亡的为72.7。
-- 截至 10 月 29 日，[4,206 名孕妇](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DDIS%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DAbnormal%2Blabour%2B%252810000153%2529%26SYMPTOMS%5B%5D%3DAbnormal%2Blabour%2Baffecting%2Bfoetus%2B%252810000154%2529%26SYMPTOMS%5B%5D%3DAborted%2Bpregnancy%2B%252810000209%2529%26SYMPTOMS%5B%5D%3DAbortion%2B%252810000210%2529%26SYMPTOMS%5B%5D%3DAbortion%2Bcomplete%2B%252810061614%2529%26SYMPTOMS%5B%5D%3DAbortion%2Bearly%2B%252810052846%2529%26SYMPTOMS%5B%5D%3DAbortion%2Bspontaneous%2B%252810000234%2529%26SYMPTOMS%5B%5D%3DAbortion%2Bspontaneous%2Bcomplete%2B%252810061616%2529%26SYMPTOMS%5B%5D%3DAbortion%2Bspontaneous%2Bincomplete%2B%252810061617%2529%26SYMPTOMS%5B%5D%3DExposure%2Bduring%2Bpregnancy%2B%252810073513%2529%26SYMPTOMS%5B%5D%3DFoetal-maternal%2Bhaemorrhage%2B%252810016871%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bcardiac%2Bdisorder%2B%252810052088%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bdamage%2B%252810016852%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bdeath%2B%252810055690%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bdisorder%2B%252810061157%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bdistress%2Bsyndrome%2B%252810016855%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bexposure%2Bduring%2Bpregnancy%2B%252810071404%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bgrowth%2Babnormality%2B%252810077582%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bheart%2Brate%2Babnormal%2B%252810051139%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bheart%2Brate%2Bdeceleration%2B%252810058322%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bheart%2Brate%2Bdeceleration%2Babnormality%2B%252810074636%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bheart%2Brate%2Bdecreased%2B%252810051136%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bheart%2Brate%2Bdisorder%2B%252810061158%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bheart%2Brate%2Bincreased%2B%252810051138%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bmovement%2Bdisorder%2B%252810077576%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bmovements%2Bdecreased%2B%252810016866%2529%26SYMPTOMS%5B%5D%3DHaemorrhage%2B%252810055798%2529%26SYMPTOMS%5B%5D%3DHaemorrhage%2Bin%2Bpregnancy%2B%252810018981%2529%26SYMPTOMS%5B%5D%3DPlacental%2Bcalcificati)报告了与 COVID 疫苗相关的不良事件，包括 1,320 名[流产或早产](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DAborted%2Bpregnancy%2B%252810000209%2529%26SYMPTOMS%5B%5D%3DAbortion%2B%252810000210%2529%26SYMPTOMS%5B%5D%3DAbortion%2Bspontaneous%2B%252810000234%2529%26SYMPTOMS%5B%5D%3DAbortion%2Bspontaneous%2Bcomplete%2B%252810061616%2529%26SYMPTOMS%5B%5D%3DAbortion%2Bspontaneous%2Bincomplete%2B%252810061617%2529%26SYMPTOMS%5B%5D%3DAbortion%2Bthreatened%2B%252810000242%2529%26SYMPTOMS%5B%5D%3DFoetal-maternal%2Bhaemorrhage%2B%252810016871%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bcardiac%2Bdisorder%2B%252810052088%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bdamage%2B%252810016852%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bdeath%2B%252810055690%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bdisorder%2B%252810061157%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bdistress%2Bsyndrome%2B%252810016855%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bheart%2Brate%2Babnormal%2B%252810051139%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bheart%2Brate%2Bdeceleration%2B%252810058322%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bheart%2Brate%2Bdeceleration%2Babnormality%2B%252810074636%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bheart%2Brate%2Bdecreased%2B%252810051136%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bheart%2Brate%2Bdisorder%2B%252810061158%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bheart%2Brate%2Bincreased%2B%252810051138%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bhypokinesia%2B%252810068461%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bmalformation%2B%252810060919%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bmalpresentation%2B%252810058013%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bmonitoring%2Babnormal%2B%252810071507%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bmovement%2Bdisorder%2B%252810077576%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bmovements%2Bdecreased%2B%252810016866%2529%26SYMPTOMS%5B%5D%3DFoetal%2Bnon-stress%2Btest%2Babnormal%2B%252810071516%2529%26SYMPTOMS%5B%5D%3DPlacental%2Bdisorder%2B%252810035132%2529%26SYMPTOMS%5B%5D%3DPregnancy%2Binduced%2Bhypertension%2B%252810036563%2529%26SYMPTOMS%5B%5D%3DPremature%2Bbaby%2B%252810036590%2529%26SYMPTOMS%5B%5D%3DPremature%2Bbaby%2Bdeath%25)报告。
-- 的[3090箱子贝尔氏麻痹的](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%3DBell%2527s%2Bpalsy%2B%252810004223%2529%26VAX%3DCOVID19%26STATE%3DNOTFR)报道，51％是由于[辉瑞](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%3DBell%2527s%2Bpalsy%2B%252810004223%2529%26VAX%3DCOVID19%26VAXMAN%3DPFIZER/BIONTECH%26STATE%3DNOTFR)接种，41％至[Moderna的](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%3DBell%2527s%2Bpalsy%2B%252810004223%2529%26VAX%3DCOVID19%26VAXMAN%3DMODERNA%26STATE%3DNOTFR)和8％至[强生公司](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%3DBell%2527s%2Bpalsy%2B%252810004223%2529%26VAX%3DCOVID19%26VAXMAN%3DJANSSEN%26STATE%3DNOTFR)。
-- 的705个报告[吉兰-巴雷综合征](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%3DGuillain-Barre%2Bsyndrome%2B%252810018767%2529%26VAX%3DCOVID19%26STATE%3DNOTFR)，与箱子41％[归因于辉瑞](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%3DGuillain-Barre%2Bsyndrome%2B%252810018767%2529%26VAX%3DCOVID19%26VAXMAN%3DPFIZER/BIONTECH%26STATE%3DNOTFR)，31％至[Moderna的](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%3DGuillain-Barre%2Bsyndrome%2B%252810018767%2529%26VAX%3DCOVID19%26VAXMAN%3DMODERNA%26STATE%3DNOTFR)和28％至[强生公司](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%3DGuillain-Barre%2Bsyndrome%2B%252810018767%2529%26VAX%3DCOVID19%26VAXMAN%3DJANSSEN%26STATE%3DNOTFR)。
-- [2,072 份](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DAnaphylactic%2Breaction%2B%252810002198%2529%26SYMPTOMS%5B%5D%3DAnaphylactic%2Bshock%2B%252810002199%2529%26SYMPTOMS%5B%5D%3DAnaphylactoid%2Breaction%2B%252810002216%2529%26SYMPTOMS%5B%5D%3DAnaphylactoid%2Bshock%2B%252810063119%2529%26SYMPTOMS%5B%5D%3DAnaphylaxis%2Bprophylaxis%2B%252810049090%2529%26SYMPTOMS%5B%5D%3DAnaphylaxis%2Btreatment%2B%252810002222%2529%26VAX%3DCOVID19%26STATE%3DNOTFR)过敏反应[报告](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DAnaphylactic%2Breaction%2B%252810002198%2529%26SYMPTOMS%5B%5D%3DAnaphylactic%2Bshock%2B%252810002199%2529%26SYMPTOMS%5B%5D%3DAnaphylactoid%2Breaction%2B%252810002216%2529%26SYMPTOMS%5B%5D%3DAnaphylactoid%2Bshock%2B%252810063119%2529%26SYMPTOMS%5B%5D%3DAnaphylaxis%2Bprophylaxis%2B%252810049090%2529%26SYMPTOMS%5B%5D%3DAnaphylaxis%2Btreatment%2B%252810002222%2529%26VAX%3DCOVID19%26STATE%3DNOTFR)，其中反应危及生命、需要治疗或导致死亡。
-- [10,686 份](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DCerebral%2Bvenous%2Bsinus%2Bthrombosis%2B%252810083037%2529%26SYMPTOMS%5B%5D%3DCerebral%2Bvenous%2Bthrombosis%2B%252810008138%2529%26SYMPTOMS%5B%5D%3DCoagulopathy%2B%252810009802%2529%26SYMPTOMS%5B%5D%3DDeep%2Bvein%2Bthrombosis%2B%252810051055%2529%26SYMPTOMS%5B%5D%3DDisseminated%2Bintravascular%2Bcoagulation%2B%252810013442%2529%26SYMPTOMS%5B%5D%3DEmbolism%2B%252810061169%2529%26SYMPTOMS%5B%5D%3DIdiopathic%2Bthrombocytopenic%2Bpurpura%2B%252810021245%2529%26SYMPTOMS%5B%5D%3DImmune%2Bthrombocytopenia%2B%252810083842%2529%26SYMPTOMS%5B%5D%3DImmune%2Bthrombocytopenic%2Bpurpura%2B%252810074667%2529%26SYMPTOMS%5B%5D%3DIschaemic%2Bstroke%2B%252810061256%2529%26SYMPTOMS%5B%5D%3DMyocardial%2Binfarction%2B%252810028596%2529%26SYMPTOMS%5B%5D%3DPetechiae%2B%252810034754%2529%26SYMPTOMS%5B%5D%3DPulmonary%2Bembolism%2B%252810037377%2529%26SYMPTOMS%5B%5D%3DPurpura%2B%252810037549%2529%26SYMPTOMS%5B%5D%3DThrombocytopenia%2B%252810043554%2529%26SYMPTOMS%5B%5D%3DThrombosis%2B%252810043607%2529%26SYMPTOMS%5B%5D%3DVasculitis%2B%252810047115%2529%26VAX%3DCOVID19%26STATE%3DNOTFR)关于凝血障碍的[报告](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DCerebral%2Bvenous%2Bsinus%2Bthrombosis%2B%252810083037%2529%26SYMPTOMS%5B%5D%3DCerebral%2Bvenous%2Bthrombosis%2B%252810008138%2529%26SYMPTOMS%5B%5D%3DCoagulopathy%2B%252810009802%2529%26SYMPTOMS%5B%5D%3DDeep%2Bvein%2Bthrombosis%2B%252810051055%2529%26SYMPTOMS%5B%5D%3DDisseminated%2Bintravascular%2Bcoagulation%2B%252810013442%2529%26SYMPTOMS%5B%5D%3DEmbolism%2B%252810061169%2529%26SYMPTOMS%5B%5D%3DIdiopathic%2Bthrombocytopenic%2Bpurpura%2B%252810021245%2529%26SYMPTOMS%5B%5D%3DImmune%2Bthrombocytopenia%2B%252810083842%2529%26SYMPTOMS%5B%5D%3DImmune%2Bthrombocytopenic%2Bpurpura%2B%252810074667%2529%26SYMPTOMS%5B%5D%3DIschaemic%2Bstroke%2B%252810061256%2529%26SYMPTOMS%5B%5D%3DMyocardial%2Binfarction%2B%252810028596%2529%26SYMPTOMS%5B%5D%3DPetechiae%2B%252810034754%2529%26SYMPTOMS%5B%5D%3DPulmonary%2Bembolism%2B%252810037377%2529%26SYMPTOMS%5B%5D%3DPurpura%2B%252810037549%2529%26SYMPTOMS%5B%5D%3DThrombocytopenia%2B%252810043554%2529%26SYMPTOMS%5B%5D%3DThrombosis%2B%252810043607%2529%26SYMPTOMS%5B%5D%3DVasculitis%2B%252810047115%2529%26VAX%3DCOVID19%26STATE%3DNOTFR)。其中，[4,698 份报告](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DCerebral%2Bvenous%2Bsinus%2Bthrombosis%2B%252810083037%2529%26SYMPTOMS%5B%5D%3DCerebral%2Bvenous%2Bthrombosis%2B%252810008138%2529%26SYMPTOMS%5B%5D%3DCoagulopathy%2B%252810009802%2529%26SYMPTOMS%5B%5D%3DDeep%2Bvein%2Bthrombosis%2B%252810051055%2529%26SYMPTOMS%5B%5D%3DDisseminated%2Bintravascular%2Bcoagulation%2B%252810013442%2529%26SYMPTOMS%5B%5D%3DEmbolism%2B%252810061169%2529%26SYMPTOMS%5B%5D%3DIdiopathic%2Bthrombocytopenic%2Bpurpura%2B%252810021245%2529%26SYMPTOMS%5B%5D%3DImmune%2Bthrombocytopenia%2B%252810083842%2529%26SYMPTOMS%5B%5D%3DImmune%2Bthrombocytopenic%2Bpurpura%2B%252810074667%2529%26SYMPTOMS%5B%5D%3DIschaemic%2Bstroke%2B%252810061256%2529%26SYMPTOMS%5B%5D%3DMyocardial%2Binfarction%2B%252810028596%2529%26SYMPTOMS%5B%5D%3DPetechiae%2B%252810034754%2529%26SYMPTOMS%5B%5D%3DPulmonary%2Bembolism%2B%252810037377%2529%26SYMPTOMS%5B%5D%3DPurpura%2B%252810037549%2529%26SYMPTOMS%5B%5D%3DThrombocytopenia%2B%252810043554%2529%26SYMPTOMS%5B%5D%3DThrombosis%2B%252810043607%2529%26SYMPTOMS%5B%5D%3DVasculitis%2B%252810047115%2529%26VAX%3DCOVID19%26VAXMAN%3DPFIZER/BIONTECH%26STATE%3DNOTFR)归因于辉瑞，[3,815 份报告](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DCerebral%2Bvenous%2Bsinus%2Bthrombosis%2B%252810083037%2529%26SYMPTOMS%5B%5D%3DCerebral%2Bvenous%2Bthrombosis%2B%252810008138%2529%26SYMPTOMS%5B%5D%3DCoagulopathy%2B%252810009802%2529%26SYMPTOMS%5B%5D%3DDeep%2Bvein%2Bthrombosis%2B%252810051055%2529%26SYMPTOMS%5B%5D%3DDisseminated%2Bintravascular%2Bcoagulation%2B%252810013442%2529%26SYMPTOMS%5B%5D%3DEmbolism%2B%252810061169%2529%26SYMPTOMS%5B%5D%3DIdiopathic%2Bthrombocytopenic%2Bpurpura%2B%252810021245%2529%26SYMPTOMS%5B%5D%3DImmune%2Bthrombocytopenia%2B%252810083842%2529%26SYMPTOMS%5B%5D%3DImmune%2Bthrombocytopenic%2Bpurpura%2B%252810074667%2529%26SYMPTOMS%5B%5D%3DIschaemic%2Bstroke%2B%252810061256%2529%26SYMPTOMS%5B%5D%3DMyocardial%2Binfarction%2B%252810028596%2529%26SYMPTOMS%5B%5D%3DPetechiae%2B%252810034754%2529%26SYMPTOMS%5B%5D%3DPulmonary%2Bembolism%2B%252810037377%2529%26SYMPTOMS%5B%5D%3DPurpura%2B%252810037549%2529%26SYMPTOMS%5B%5D%3DThrombocytopenia%2B%252810043554%2529%26SYMPTOMS%5B%5D%3DThrombosis%2B%252810043607%2529%26SYMPTOMS%5B%5D%3DVasculitis%2B%252810047115%2529%26VAX%3DCOVID19%26VAXMAN%3DMODERNA%26STATE%3DNOTFR)给 Moderna，[2,119 份报告](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DCerebral%2Bvenous%2Bsinus%2Bthrombosis%2B%252810083037%2529%26SYMPTOMS%5B%5D%3DCerebral%2Bvenous%2Bthrombosis%2B%252810008138%2529%26SYMPTOMS%5B%5D%3DCoagulopathy%2B%252810009802%2529%26SYMPTOMS%5B%5D%3DDeep%2Bvein%2Bthrombosis%2B%252810051055%2529%26SYMPTOMS%5B%5D%3DDisseminated%2Bintravascular%2Bcoagulation%2B%252810013442%2529%26SYMPTOMS%5B%5D%3DEmbolism%2B%252810061169%2529%26SYMPTOMS%5B%5D%3DIdiopathic%2Bthrombocytopenic%2Bpurpura%2B%252810021245%2529%26SYMPTOMS%5B%5D%3DImmune%2Bthrombocytopenia%2B%252810083842%2529%26SYMPTOMS%5B%5D%3DImmune%2Bthrombocytopenic%2Bpurpura%2B%252810074667%2529%26SYMPTOMS%5B%5D%3DIschaemic%2Bstroke%2B%252810061256%2529%26SYMPTOMS%5B%5D%3DMyocardial%2Binfarction%2B%252810028596%2529%26SYMPTOMS%5B%5D%3DPetechiae%2B%252810034754%2529%26SYMPTOMS%5B%5D%3DPulmonary%2Bembolism%2B%252810037377%2529%26SYMPTOMS%5B%5D%3DPurpura%2B%252810037549%2529%26SYMPTOMS%5B%5D%3DThrombocytopenia%2B%252810043554%2529%26SYMPTOMS%5B%5D%3DThrombosis%2B%252810043607%2529%26SYMPTOMS%5B%5D%3DVasculitis%2B%252810047115%2529%26VAX%3DCOVID19%26VAXMAN%3DJANSSEN%26STATE%3DNOTFR)给强生。
-- [3,030 例](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DMyocarditis%2B%252810028606%2529%26SYMPTOMS%5B%5D%3DPericarditis%2B%252810034484%2529%26VAX%3DCOVID19%26STATE%3DNOTFR)心肌炎和心包炎，其中[1,899 例](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DMyocarditis%2B%252810028606%2529%26SYMPTOMS%5B%5D%3DPericarditis%2B%252810034484%2529%26VAX%3DCOVID19%26VAXMAN%3DPFIZER/BIONTECH%26STATE%3DNOTFR)归因于辉瑞，[998](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DMyocarditis%2B%252810028606%2529%26SYMPTOMS%5B%5D%3DPericarditis%2B%252810034484%2529%26VAX%3DCOVID19%26VAXMAN%3DMODERNA%26STATE%3DNOTFR)[例](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DMyocarditis%2B%252810028606%2529%26SYMPTOMS%5B%5D%3DPericarditis%2B%252810034484%2529%26VAX%3DCOVID19%26VAXMAN%3DPFIZER/BIONTECH%26STATE%3DNOTFR)归因于 Moderna，[123 例](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://medalerts.org/vaersdb/findfield.php?TABLE%3DON%26GROUP1%3DAGE%26EVENTS%3DON%26SYMPTOMS%5B%5D%3DMyocarditis%2B%252810028606%2529%26SYMPTOMS%5B%5D%3DPericarditis%2B%252810034484%2529%26VAX%3DCOVID19%26VAXMAN%3DJANSSEN%26STATE%3DNOTFR)归因于强生的 COVID 疫苗。
-
-
-**CDC ****签署辉瑞**** COVID ****疫苗供**** 5-11 ****岁儿童使用**
-
-CDC 主任 Rochelle Walensky 博士于 11 月 3 日[批准](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.cdc.gov/media/releases/2021/s1102-PediatricCOVID-19Vaccine.html)了免疫实践咨询委员会 (ACIP) 的建议，即使用辉瑞 (Pfizer) 的儿科 COVID 疫苗对 5 至 11 岁的儿童进行 COVID 疫苗接种。
-
-在[年轻的年龄组](https://childrenshealthdefense-org.translate.goog/defender/cdc-advisors-endorse-pfizers-covid-vaccine-kids-5-11/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)将获得三分之一授权对那些12岁以上的剂量，在给予至少相隔三周两针。剂量将通过较小的针头输送并储存在较小的小瓶中，以避免与成人剂量混淆。
-
-CDC[担心](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.cdc.gov/media/releases/2021/s1102-PediatricCOVID-19Vaccine.html)儿童 COVID 病例可能导致住院、死亡、[多系统炎症综合征](https://childrenshealthdefense-org.translate.goog/defender/teen-multisystem-inflammatory-syndrome-myocarditis-pfizer-vaccine/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)(MIS-C) 和并发症，例如“长期 COVID”，其中症状可能持续数月。
-
-在[ACIP 会议](https://childrenshealthdefense-org.translate.goog/defender/cdc-advisors-endorse-pfizers-covid-vaccine-kids-5-11/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)期间，疾病预防控制中心表示，自大流行开始以来，共有[745 名 18 岁以下儿童死于](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.cnn.com/us/live-news/cdc-covid-vaccine-kids-02-11-21/index.html)COVID-尽管 COVID 小组承认 79% 被确认因 COVID 住院，而其余则因其他原因入院.
-
-CDC 的授权主要基于辉瑞-BioNTech 对全球 4,600 名儿童的研究，其中约 3,100 名儿童接种了低剂量疫苗，约 1,500 名接种了安慰剂。在疫苗组的 3,100 名儿童中，只有 264 名儿童接受了抗体测试，以确定辉瑞疫苗的功效。
-
-**在参议员罗恩约翰逊主持的活动中，疫苗受害者大声疾呼**** **
-
-在美国参议员罗恩·约翰逊 (R-Wis.)[周二主持的](https://childrenshealthdefense-org.translate.goog/defender/ron-johnson-people-injured-covid-vaccine/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)一次[活动中](https://childrenshealthdefense-org.translate.goog/defender/ron-johnson-people-injured-covid-vaccine/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)，生活被中共病毒疫苗毁了的人们表示，他们感到被政府遗弃了，政府告诉他们接种疫苗是他们的爱国义务。
-
-约翰逊与一个专家小组进行了[讨论](https://childrenshealthdefense-org.translate.goog/defender/nov-2-sen-ron-johnson-cdh-covid-vaccine-injuries-federal-mandates/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)，专家小组包括临床医生、科学家、律师和患者[权益](https://childrenshealthdefense-org.translate.goog/defender_category/covid/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)倡导者，以及因[COVID 疫苗](https://childrenshealthdefense-org.translate.goog/defender_category/covid/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)受伤的人，他们就自己的经历提供了有力的证词。
-
-约翰逊和专家小组讨论了[早期治疗中共病毒感染的重要性](https://childrenshealthdefense-org.translate.goog/defender/nebraska-ag-doug-peterson-legal-opinion-ivermectin-hcq-covid/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)、医疗保健自由和[自然免疫力](https://childrenshealthdefense-org.translate.goog/defender/sen-rand-paul-sec-becerra-denying-natural-immunity/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)、命令对美国劳动力和经济的影响、中共病毒疫苗安全问题以及联邦卫生机构在应对中共病毒时缺乏透明度和[监督](https://childrenshealthdefense-org.translate.goog/defender/sen-ron-johnson-questions-fda-pfizer-vaccine-approval/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)的问题。
-
-**“****关于这些疫苗的真相并未被告知，****”****辉瑞疫苗受害的癌症幸存者说**
-
-在[接受](https://childrenshealthdefense-org.translate.goog/defender/diane-ochoa-guillain-barre-pfizer-covid-vaccine-injuries/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)保护儿童网站[The Defender](https://childrenshealthdefense-org.translate.goog/defender/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)的[独家采访时](https://childrenshealthdefense-org.translate.goog/defender/diane-ochoa-guillain-barre-pfizer-covid-vaccine-injuries/?_x_tr_sl=en&amp;_x_tr_tl=zh-CN&amp;_x_tr_hl=en-GB&amp;_x_tr_pto=nui)，来自佐治亚州的 63 岁癌症幸存者黛安·奥乔亚 (Diane Ochoa ) 表示，在接受第二剂注射后，她被诊断出患有罕见的自身免疫性疾病[吉兰-巴雷综合征](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.cdc.gov/campylobacter/guillain-barre.html%23:~:text%3DGuillain%252DBarr%25C3%25A9%2520%28Ghee%252DYAN,some%2520have%2520permanent%2520nerve%2520damage.)(GBS) 和[慢性炎症性脱髓鞘性多发性神经病](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.cedars-sinai.org/health-library/diseases-and-conditions/c/chronic-inflammatory-demyelinating-polyradiculoneuropathy.html%23:~:text%3DChronic%2520inflammatory%2520demyelinating%2520polyradiculoneuropathy%2520%28CIDP,insulate%2520and%2520protect%2520the%2520nerves.)(CIDP)。
-
-4 月 16 日，奥乔亚通过她的雇主获得了她的第二剂辉瑞，并在 45 分钟内感到不适。她的整个身体都经历了恶心、极度腹泻和疼痛，并且逐渐恶化并在她的身体中肆虐。
-
-奥乔亚在被确诊之前看过很多医生，在过去的六个月里一直试图治愈她的病情，这让她处于“可怕的痛苦”中，无法在没有帮助的情况下行走或自给自足。
-
-奥乔亚说，她担心“他们对这种疫苗缺乏研究”，并且担心其他人即使没有像她那样立即受到影响，也有可能遭受长期后果。
-
-“我晚上的噩梦是我们的孩子可能不得不忍受这一切，因为这些疫苗的真相并未被提及，”奥奇亚说。
-
-**学校付钱让孩子们接种**** COVID ****疫苗**
-
-一些学校正在付钱给孩子们接种 COVID 疫苗。[据 TIME 报道](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://time.com/6114092/kids-vaccines-schools/)，凤凰城的学校正在发放 100 美元的礼品卡。在洛杉矶，如果学生中奖，他们可以赢取礼品卡、免费舞会或返校门票。
-
-路易斯安那州[向](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.usatoday.com/story/news/health/2021/11/05/incentives-kids-get-covid-vaccine-include-money-gift-cards/6300733001/)接种疫苗的儿童[提供 100 美元](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.usatoday.com/story/news/health/2021/11/05/incentives-kids-get-covid-vaccine-include-money-gift-cards/6300733001/)，德克萨斯州圣安东尼奥市的官员宣布，父母可以在 HEB 杂货店领取 100 美元的礼品卡。在纽约市，[年仅 5 岁的儿童](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://time.com/6114092/kids-vaccines-schools/) 接种疫苗就可以获得报酬。
-
-纽约市长比尔·德布拉西奥 (Bill de Blasio) 周四表示：“我们真的希望[孩子们能够利用这一点](https://translate.google.com/website?sl=en&amp;tl=zh-CN&amp;nui=1&amp;u=https://www.usatoday.com/story/news/health/2021/11/05/incentives-kids-get-covid-vaccine-include-money-gift-cards/6300733001/)，家庭也能利用这一点。” “每个人都可以在假期前后多花一点钱。但最重要的是，我们希望我们的孩子和家人都安全。”
-
-一些批评人士说，付钱给孩子接种疫苗是贿赂，但鼓励孩子们的学区认为这是有道理的，因为它可以保证学生和教职员工的安全。
-
-[参考链接](https://childrenshealthdefense.org/defender/vaers-cdc-adverse-events-deaths-covid-vaccines/)：
-
-
-
-审核校对：Barry Jack
-上传排版：F
-
+编辑：【英国伦敦喜庄园编辑部】
+![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
