@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/21/2021 9:34 PM (UTC)`
+
+ 11月21日：任何主义．和信仰和宗教．会威胁道人类的安全和生存的时候，都必须被铲除……社会主义和共产主义自始至终都是威胁着个体和社会群体安全！掠夺社会财富的毒瘤。这个家伙讲的相当不错，共产主义和中国共产党彻底完蛋！ <br/><br/>
+![img](https://media.gettr.com/group41/getter/2021/11/21/21/34/4cc349cd-d529-de1b-91e4-2e60b083183e/out.jpg)
+
+---
+
 `@miles 11/21/2021 5:02 PM (UTC)`
 
 <br/>11月21号：时间真是个好东西，能让一切真假和善恶得出最真实的结果！
@@ -295,13 +302,6 @@ The CCP’s Infiltration in Western World : The CCP Agent Bruno Wu<br/><br/>中�
 
 泽连科医生：新冠疫苗对儿童的致命性是病毒的172倍!<br/><br/>Dr. Zelenko: COVID vaccines are 172 times more lethal to children than COVID-19 Virus!<br/><br/>
 ![img](https://media.gettr.com/group17/getter/2021/11/18/12/55/7d4b5c93-9d53-e424-7804-d06c1a6861bc/out.jpg)
-
----
-
-`@miles 11/18/2021 12:09 PM (UTC)`
-
-An orthopedic surgeon from Wisconsin described the serious side effects after his first dose of Moderna COVID vaccine, and he urged the CDC, FDA, NIH and all other involved governmental agencies to listen to dangers, and to maintain open and transparent on COVID vaccine data.<br/><br/>一位来自威斯康星州的骨科医生讲述了他接种第一剂莫德纳新冠疫苗之后的严重副作用，并敦促CDC、FDA、NIH以及其他相关政府机构，倾听存在的危险，保持对于新冠疫苗数据的公开和透明。
-![img](https://media.gettr.com/group48/origin/2021/11/18/12/09/a3e4c18b-8cdd-3f43-fb2a-f05156b8c8a7/out.jpg)
 
 ---
 
