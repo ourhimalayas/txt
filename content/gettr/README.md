@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/21/2021 1:09 PM (UTC)`
+
+Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Touching Moments of the Press Conference for the Establishment of the Rule of Law Foundation on November 20, 2018 +<br/>Liberate Hong Kong, Revolution of Our Time<br/><br/>中共体制下“被消失”的高官和商人 + 2018年11月20日【法治基金成立】新闻发布会震撼瞬间 + 光复香港 时代革命
+![img](https://media.gettr.com/group20/origin/2021/11/21/13/09/131bd791-6ac4-f83f-2460-ec31a75fd6fd/out.jpg)
+
+---
+
+`@miles 11/21/2021 1:01 PM (UTC)`
+
+11/20/2021 [3rd Anniversary of 1120]  Mr. Bannon’s endless fights for saving Chinese people<br/><br/>11/20/2021【1120三周年纪念】<br/>班农先生为解救中国人民付出无尽心血<br/><br/>
+![img](https://media.gettr.com/group47/getter/2021/11/21/13/01/c0c0d5bb-f912-b4eb-aed0-6675cf5c4f94/out.jpg)
+
+---
+
 `@miles 11/21/2021 11:28 AM (UTC)`
 
 11/20/2021 [3rd Anniversary of 1120] Mr. Miles Guo: We shall love Mr. Bannon and he is a real master who can help us NFSC and global Chinese. <br/><br/>11/20/2021【1120三周年纪念】<br/>文贵先生：我们要真心爱班农先生，他是真正的大师可以帮助到新中国联邦和全球所有的华人。
@@ -288,20 +302,6 @@ An orthopedic surgeon from Wisconsin described the serious side effects after hi
 
 11月17日：5个月的多多与2岁的笨笨……
 ![img](https://media.gettr.com/group9/getter/2021/11/18/02/01/1f958da9-0b4b-0016-9854-ecd2b2d02013/out.jpg)
-
----
-
-`@miles 11/18/2021 1:51 AM (UTC)`
-
-11/17/2021 Miles Guo: The CCP’s third major historical resolution is to deny Mao and Deng without mentioning any proposal to reform; the purpose for this historical resolution to be released after the Biden-Xi meeting is to deceive the Chinese that the resolution is backed by the Americans<br/><br/>11/17/2021 文贵直播：中共的第三个重大历史决议是习否定毛和邓，只字未提改革方案；该决议被安排在拜习会后公布的目的是制造美国对其背书的假象从而欺骗中国人<br/>
-![img](https://media.gettr.com/group14/getter/2021/11/18/01/51/9c0b3775-bef2-9617-74f6-8089a83ab73a/out.jpg)
-
----
-
-`@miles 11/18/2021 1:46 AM (UTC)`
-
-11月17日：想笨笨了…… <br/><br/>
-![img](https://media.gettr.com/group10/getter/2021/11/18/01/46/be0d8034-1f65-a09d-0d4b-da0b55921f0f/4ae34c9e4427a9ef0cd7d0b313e77583.jpg)
 
 ---
 

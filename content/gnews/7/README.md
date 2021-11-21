@@ -2,12 +2,14 @@
 ---
 
 
-## 起诉班农的国会调查委员会成员──伊莱恩·路里亚在中共阿里巴巴拥有六位数投资
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1682859/)
+## 西站出品（之）路大脑袋忏悔记
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1682902/)
 
-11/16/2021 拉希姆·哈萨姆揭露了佛吉尼亚州国会议员伊莱恩·路里亚在中共的工具阿里巴巴拥有六位数的投资。这些腐败政客一面假装对中共采取强硬立场，一面寻求对中共的投资带来的回报，实在令人恶心。
+制作：蚂蚁兄弟
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1-3.jpeg)
 
  
 

@@ -2,34 +2,21 @@
 ---
 
 
-## 喜币的未来与威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1682831/)
+## 韩国疫苗受害者家属要求韩国疾控中心主任给个说法
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1682858/)
 
-撰稿：飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
-11月19日，文贵先生在大直播中详细描绘了喜币的未来。11月19日，文贵先生在大直播中详细描绘了喜币的未来。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11211.png)图片来自nitter.domain.glass
-第一，喜币在强大的技术支撑下，将在现有的法币支付体系之外，开辟并完善自己独特的支付体系——先进的区块链技术、严密的KYC系统、中心化的管理系统。目前喜支付已经被迪拜知名房地产公司接受。随着被越来越多的实体和国家认可，喜币将以其便捷、安全、自由的优势迅速形成自己独特的支付体系。
+韩国首尔天池农场
+翻译：zzballack
+上传：追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-21-at-21.12.35.jpeg)图片来源：原新闻
+《The Covid World》网站11月19日报道称，韩国清州市（CHEONGJU）的新冠疫苗受害者家属11月19日聚集在一个疫苗接种中心外，要求在当天拜访清州哈纳医院（Hana Hospital）并接种莫德纳新冠疫苗加强针的韩国疾控中心主任郑银敬（Jeong Eun-kyeong）出来与他们对话。
 
-第二，喜币的发展离不开新中国联邦。喜币是新中国联邦成长的基石，将在新中国联邦的护佑下健康成长。新中国联邦的庞大体系，以及新中国联邦人在全球积累的信用，都是支撑喜币强势成长的源泉。
+郑银敬准备乘车离开时，心烦意乱的亲属们聚集在郑银敬的汽车周围。一些人跪在路上，手里拿着他们死去亲人的照片；而其他人则敲打着她的汽车，大喊大叫，显然十分痛苦。一位悲痛欲绝的家属一边流泪一边高喊：“救救我女儿！（你们必须）道歉！”另一位参加抗议的受害者家属告诉现场的一名警察说：“我的女儿死了，但我甚至不被允许为此提出抗议。”
 
-第三，喜币的强势成长面临三个方面的挑战——传统法币体系中获益的华尔街、推翻并取代美元地位的中共；以及其他实力不如喜币的虚拟币。
+郑银敬不得不下车与他们交流，她说：“我再次表达我最深切的哀悼，我将准备一个机会与受害者家属见面。”短暂的谈话后，郑银敬离开了现场。
 
-新闻链接：[https://gtv.org/video/id=6197a194fcd196126f8cab91](https://gtv.org/video/id=6197a194fcd196126f8cab91)
+[原新闻链接](https://thecovidworld.com/families-of-covid-vaccine-victims-block-car-of-south-korea-cdc-head-demand-answers-and-justice-for-dead-family-members/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-9.jpg)
-
-总编/编辑：文特
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-2.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

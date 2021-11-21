@@ -2,20 +2,20 @@
 ---
 
 
-## 美国陆军将对未接种疫苗的军人采取纪律处分程序
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1682275/)
+## COVID-19 最新情报｜围堵韩国疾控中心主任座驾 家属誓为死者寻找真相和公义
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1682354/)
 
-#### 翻译/撰稿：zzballack
+**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 21/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-13.jpg)图片来源：NPR
-《真正美国之声》（Real America’s Voice）11月20日报道称，随着疫苗强制令的截止日期越来越近，美国陆军将开始对未接种新冠疫苗的军人采取纪律处分程序。拒绝接种的陆军服役人员将很快因不遵守军事部门的疫苗令而受到重大影响，他们将被禁止重新入伍、获奖和其他有利程序。
+【韩国】韩国疾病控制和预防中心 (KDCA) 负责人郑恩京 19 日到访韩国清州的一间医院，并公开接种 COVID-19 加强剂。
 
-美国陆军部长克里斯汀·沃穆思（Christine Wormuth）本周在一份备忘录中说，未接种者将被禁止“重新招募、重新分配、晋升、在半集中晋升委员会前亮相、颁发奖励和勋章等等。”
+同一时间，一个由疫苗受害者的家属组成的 COVID-19 疫苗受害者家庭委员会（Kobaekhoe）聚集在医院外，待郑恩京的座驾驶出医院，他们手举死者遗像和抗议标语上前围堵，迫使郑恩京下车与遇难者家属交谈，承诺会准备与遇难者家属亲自会面的机会，并且会就死亡事件做详细调查。
 
-那些继续拒绝接种疫苗的人最终将面临被军队开除。美国海军和海军陆战队已经实施了类似政策。陆军正在提供数量有限的疫苗豁免名额，获得豁免的士兵可以避免受到影响和被解雇。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-14.jpg)
 
-新闻来源：[Army to begin disciplinary procedures against unvaccinated service members ahead of mandate deadline](https://americasvoice.news/justthenews/army-begins-disciplinary-procedures-against-unvaccinated-servicemembers/)
+来源｜[Daum](https://news.v.daum.net/v/20211119165109527)
 
  
 

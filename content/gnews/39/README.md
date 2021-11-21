@@ -2,157 +2,35 @@
 ---
 
 
-## 文化大革命创新版，坚持皇帝制
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1682514/)
+## 捐款大不同
+` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1682580/)
 
-[https://gtv.org/video/id=619933ade6900076612d8e6e](https://gtv.org/video/id=619933ade6900076612d8e6e)
+By：银河勇气星｜骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/11/777-1.jpg)图：骄子
+是的，同样都是捐款，那区别真的大了去了，今天主要谈论的是政治捐款。有的捐款比如海外的伪类民运们，给你画个自由民主的大饼，画完就是伸手要捐款。前几年互联网上总是能看到有些伪类成立什么海外流亡政府，可能都没有线下的座谈会，社交媒体发点垃圾推文，后面就附上捐款信息。没认识文贵先生，没听爆料革命之前，看着这些伪类的精彩表演，尤其王丹魏京生吾尔开希这样的64大咖，时不时还有这些人和美国某些政府要员的合影，当然就傻傻地给这些人捐款，然而他们都拿来吃吃喝喝了。拿钱养骗子，真是太心塞了。况且这种戏码，总是能够骗来一批又一批的人，好似搞传销拉人头一样，总有人要来上这个当。
 
-你要看到十个坚持每一个字
-Debes ver cada letra de las diez persistencias
+美国是全世界热爱民主自由的人们向往的地方，很多民主进程的推动者都籍靠了美国的支持。孙中山，蒋介石，宋美龄，都多多少少和美国建立过联系。孙中山那个年代，中国在进行着巨大的觉醒，大清瞬间倾覆，之后谁来主导这个东方神秘的国家，革命党人秉承着推翻清朝封建政府，建立一个“三民主义”的国家，把孙中山推上了临时大总统的位子。而孙中山在进行革命的那些年，同样采取了募捐的形势，文贵先生之前推荐的那本书《中国秘密社会史》里有很清晰地写到关于会党募捐来搞革命这方面的内容，以下是此募捐内容简述：
 
-就是两个宣布
-Se realiza dos anuncios
+![](https://assets.gnews.org/wp-content/uploads/2021/10/截屏2021-10-01-下午7.09.57.png)
 
-中国停止任何的经济改革开放
-China cesa cualquier reforma económica y apertura
+孙中山创立了兴中会，兴中会的章程里介绍革命的费用“款项宜筹也”，革命这个事儿很大，用到的钱也多，所以成立了银会来接受社会各界的捐款。这个银会的款项，一用来革命费用“以济公家之急”，二用来投机“股友生财捷径”。大意就是号召大家来认股，一股科银十员，可认购一股到万股不等，收上来的银子存到银行。然后认购股份的人就给你发一个股票凭证，还承诺了“十可报百”、“万可图亿”，机不可失呀。
 
-记住啊, 从那一刻起
-Recuerden, a partir de ese momento
+孙中山成立的这个接收捐款的银会是一个社会公益基金组织，不是一个盈利机构，那么当然这个所谓的认股行为就是违法的，这个银会不具备对外发股的资质。既然不能发股，那么承诺的“十可报百”、“万可图亿”就更加荒唐了。成立一个这样的组织，需要创始股东拿一大笔钱出来，但是书里没有涉及这个内容。甲午中日战争的时候，孙中山都是说服洪门拿钱出来买武器，他自己有没有拿钱出来，不清楚。所以作为兴中会的创始人，他有没有拿钱出来成立这个银会，不清楚。但是，我们必须承认的是，孙中山，成功了，成功推翻了几千年的封建帝制，用合法的民选的方式成为了中华民国大总统。
 
-中国人绝对是回到了文化大革命的时代
-Los chinos definitivamente regresaron a la era de la Revolución Cultural
+1120是爆料革命法治基金成立三周年纪念日。法治基金是一个政治公益基金，本本分分在做着合法的事情，从成立到现在为止三年，帮助了无数个被共产党迫害的中国人，并继续向着消灭共产党这个目标努力着。美国有法律，用法律的方法来消灭共产党，为中国人建立一个“一人一票”的选举制度，这在中国人的历史上，做得这么合理规范合法的，有且只有文贵先生。
 
-但是, 你看它这里面很有意思啊
-Pero mire que dentro de esto tiene su sentido
+法治基金成立是灭共的历史性事件，让中国的老百姓相信，这个世界有法律，中国人可以用法律来终结共产党的百年欺压，可以用合法的捐款来表明自己的态度。又由于法治基金成立的当天，文贵先生对王健死亡讯息的爆料，从而引出的共产党的邪恶一定会把这个世界埋葬，就更可想而之成立这个基金的初衷。卡丽熙战友当时说成立法治基金以后，很多伪类都告诉她说不要去捐款，作为1120会议的亲身参与者，当时她的前后左右坐着的那些人，现在已经都是伪类了。木兰战友讲述，不断有人刷屏式地捐，他似乎并不仅仅只是捐款，他是要借着捐款的名义来给文贵先生给爆料革命写留言，哈哈。共产党到底有多失民心，中国人到底有多痛恨共产党，从这里全都看得出。而且那些被选为做“财务”的角色，像美国小李，他说自己给战友订餐，现金支付要便宜一些，但是较麻烦；而卡支付方便一些，但要一点手续费。他宁愿选择那个省钱的方案，用法治基金的钱比用自己的钱更小心更节省。而作为初创者的文贵先生，不仅从一开始就拿出一亿美金，而且很多需要用到法治基金的款项，文贵先生都是事先垫付的家族基金的钱，如果是此项目成功了，才会算到法治基金里面。平时对一些战友的捐款行为，如果是条件不怎么好还是要去捐款的，往往就会反对此项捐款。
 
-他认为文化大革命是一场过去的一种失败啊, 什么什么的
-Él cree que la Revolución Cultural es un fracaso del pasado
-
-但是他搞了个新的文化大革命
-Sin embargo, él ahora hizo una nueva Revolución Cultural
-
-很多人说习近平没有给文化大革命平反, 他就不搞文化大革命
-Mucha gente dice que, si Xi Jinping no reivindica la Revolución Cultural, no participaría en la Revolución Cultural
-
-这是脑子里进了狗屎了, 吃了我们Snow的狗屎才会说的话
-Esto implica que se le metió el excremento del perro en la cabeza, dijo estas palabras porque comió el excremento de nuestro Snow
-
-坚持坚决不改革开放, 没有任何改革的词语
-Insiste resueltamente a no reformar y abrirse, no hay ninguna palabra de reforma
-
-第二个, 最大的问题大家没有看到
-El segundo, no vieron el mayor problema
-
-坚持一党独裁
-Insiste a una dictadura de partido único
-
-中国搞了皇帝制
-China se ha comprometido con el sistema imperial
-
-习近平在那个新闻发布会已经宣布成神了, 成神话了
-Xi Jinping había declarado en esa conferencia de prensa que se había convertido en un dios, un mito
-
-在这之前, 有习近平跟着我太阳走的感觉
-Antes de esto, se siente que Xi Jinping me estaba siguiendo bajo el sol
-
-北京城搞了音乐会
-En la ciudad de Beijing se hizo un concierto
-
-而且北京几个我们唐平的那些哥们儿
-Y nuestros hermanos de Tang Ping en Beijing
-
-Qmay那个领域里面
-Dentro de ese ámbito de Qmay
-
-叫做乐坛, 音乐吐的痰
-Llamado la escena musical, el escupitajo de la música
-
-内部搞了上百次, 所谓中国音乐家, 艺术家
-Se hizo cientos de veces internamente, los llamados músicos y artistas chinos
-
-都带家
-En mandarín, estas palabras llevan la palabra “casa”
-
-都带家的啊, 音乐家, 艺术家
-Como músicos y artistas
-
-中国共产党所谓过去, 若干决定当中的一些思考
-El llamado pasado del PCCh, en cuanto a sus decisiones y pensamientos
-
-上百起都是主题, 跟着我的太阳走
-Más de cien tópicos son “siguiendo los pasos de mi sol”
-
-太阳啊
-Sol
-
-习近平已经是太阳了
-Xi Jinping ya es un sol
-
-月亮都不当了
-Ya no quiere ni siquiera ser luna
-
-咱最多做了个梦
-Nosotros por más que sea sólo soñamos
-
-咱叫H-coin to the moon
-Nosotros llamamos H-coin a la luna
-
-他是H-coin to the太阳
-Él es H-coin al sol
-
-哇赛, 比我大多了
-¡Wow! Es más grande que yo
-
-我们这词叫Qmay, 唐平整太小了
-Este vocabulario lo decimos Qmay, Tang Ping lo hizo muy pequeño
-
-人家是去太阳, 咱是月亮
-Ellos van a donde está el sol y nosotros es la luna
-
-月亮围着太阳转, 完了吧
-La luna gira alrededor del sol, esto se acabó
-
-你输了吧
-Ya perdiste
-
-这共产党吹牛, 吹太大了
-Este Partido Comunista se jacta, se jacta demasiado
-
-这种结果是什么
-Cuál es su resultado
-
-中国回到了绝对的皇帝制
-China regresó absolutamente al sistema imperial
-
-十个坚持的结果. 坚决不改革开放
-El resultado de diez insistencias, resiste no cambiar a la revolución y la apertura
-
-坚决把私有经济灭掉, 控制中国的一切
-Insiste eliminar a la economía privada y controlar todo de China
-
-坚持绝对的皇帝制
-Se insiste al sistema de emperador absoluto
+法治基金之后，随着G系列，喜联储的正常运行，爆料革命新中国联邦在一步一步脚踏实地盯着脚下的路走着。别忘了孙中山当年那个操作要逊色多了，居然都成功了。我们今天比起那个时候来不知道先进多少倍了，今天的全世界局势虽然也比那个时候要恶劣一些，但也没有超出太多。所以这次，该我们赢了。
 
 * * *
 
-日期：11/20/2021
-原视频标题：文化大革命创新版，坚持皇帝制
-Versión innovadora de la Revolución Cultural, insistir al sistema del emperador
-原视频日期：11/19/2021
-原视频网址：[https://gettr.com/post/phdgzc0535](https://gettr.com/post/phdgzc0535)
-任务编号：KC274(2946)
-视频时间段：0:00-2:19
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 -天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+作者：骄子
+审核：兵嫂
+发布：骄子
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
