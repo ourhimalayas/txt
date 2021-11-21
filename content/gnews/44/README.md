@@ -2,36 +2,34 @@
 ---
 
 
-## 日本外务大臣表达对港台新疆人权的关切
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1680553/)
+## 受核心主控芯片制约！中共5G小基站产业硬不起
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1680699/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月18日，日本新任外务大臣林芳正与中共外长王毅举行了首次电话会谈。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-20-下午10.45.03.png)圖片來源：2017年，石正麗在武漢病毒研究所。CHINATOPIX，VIA ASSOCIATED PRESS
-资料显示，林芳正于11月10日起出任日本外务大臣，并于第二日辞去日中友好议员联盟会长职务。在于王毅的电话会谈中，林芳正主要表达了日方对尖阁诸岛、东中国海及南中国海局势、香港和新疆人权问题的深重担忧。同时，林芳正还强调了台湾海峡和平稳定的重要性。林芳正还提出，希望中共尽早解除对日本食品的进口限制。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-18.png)
+[图片来源](https://wpig-iotsolutionaggregator.wpgholdings.com/zhcn/solution/detail/adlink5gsmallcell)
 
-分析人士指出，此次会谈反映新任日本政府，即使是知华派的外务大臣，依旧延续前政府对中共的强硬态度，未能如中共期望的那样软弱求和。
+近日，中共工信部公布数据称，截至2021年8月底，国内建成5G基站已经超过100万个，占全球的70％以上，5G终端连接数超过了4亿，中共国已是全球最大的5G市场。但由于大量关重芯片仍旧不能国产，导致小基站产业发展滞后，基本被国外企业主导。
 
-参考链接：
-1）[https://www.gettr.com/post/phc2e1a6a8](https://www.gettr.com/post/phc2e1a6a8)
-2）[王毅同日本外相林芳正通电话](http://www3.fmprc.gov.cn/web/wjbzhd/t1919364.shtml)
-3）[日外相林芳正走马上任，他“亲中”还是“知中”?](https://www.voachinese.com/a/Is-Japanese-New-Foreign-Minister-Pro-China-20211112/6309050.html)
-4）[林氏、初の日中外相会談で尖閣・人権「深刻な懸念」](https://news.yahoo.co.jp/articles/436791dec7a846a74520b5d5950ec8de6aeab70f)
+目前，中共5G网络布局规划是“宏基站基础、小基站补充”。近年来，4G基站向5G基站的过渡中，受相关网络建设条件限制，小基站成为必要补充，尤为需要强调的是室内网络建设方面。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+与消费级不同，小基站芯片需要高程度的成熟性和高可靠性。目前，由于FPGA和ASIC的特性拥有不同的使用场景和特性，因此5G小基站的核心主控芯片以FPGA和ASIC芯片的SoC占据主流市场。据悉，5Ｇ小基站芯片仍被国际大厂垄断，博通退出该市场之后，[英特尔](https://ee.ofweek.com/tag-%E8%8B%B1%E7%89%B9%E5%B0%94.HTM)、恩智浦、[高通](https://ee.ofweek.com/tag-%E9%AB%98%E9%80%9A.HTM)成为三大玩家。
 
-总编：文徬
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+英特尔、恩智浦、高通三大巨头分别采用FPGA、Arm多核架构和ASIC芯片，而华为、中兴等国内企业则看重ASIC和RISC－V架构。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+由于中共5G小基站上游芯片起步较晚，与中游众多的通信厂商和下游众多应用场景比较，国产化程度低，参与者少始终是无法破解的问题。
+
+出于加强统治维稳和拓展全球控制力，中共一直青睐5G技术，近年更是从政治、经济和产业多方面不遗余力地推进5G技术的落地。但由于自身的先天不足，中共不管如何折腾永远面临的是其能力无法匹配其野心的尴尬境地，即在5G技术和产业上想硬无法真硬，想自主无法真自主。
+
+信息来源：
+
+[5G小基站芯片等待星光中的赶路人：国产还要多久？ – OFweek电子工程网](https://ee.ofweek.com/2021-11/ART-8320315-8500-30535253.html)
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-3.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

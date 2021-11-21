@@ -15,140 +15,140 @@
 
 ---
 
-### [【小雨专栏】在路上043——风花雪夜篇](/content/gnews/1/README.md)
- ` 温哥华扬帆农场`
+### [2021年11月20日文贵先生大直播摘要——银河系农场](/content/gnews/1/README.md)
+ ` 喜马拉雅日本银河系农场`
 
-### [GTV新闻访谈简报|2021年11月20日早](/content/gnews/2/README.md)
- ` 纽约香草山MOS01`
-
-### [习近平六中全会后的两个重大决策](/content/gnews/3/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [BC宣布大温限油、禁跨区旅行 立即生效](/content/gnews/4/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [11/20/2021【11·20王健之死新闻发布会三周年】班农先生：文贵先生向西方发出的警告都得到了一一验证](/content/gnews/5/README.md)
- ` 秘密翻译组-北美组`
-
-### [恒大集团被香港恒生中国企业指数剔除](/content/gnews/6/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [《我是音雄》第二季第十三期复赛|第四场节目预告](/content/gnews/7/README.md)
- ` 我是音雄`
-
-### [中共对维吾尔人的迫害是在预演更广泛的监视计划](/content/gnews/8/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [有声|【信仰之声】对70多年苦难的反思](/content/gnews/9/README.md)
- ` MOSREC`
-
-### [有声|【信仰之声】生命的意义–从一个石瓶说起](/content/gnews/10/README.md)
- ` MOSREC`
-
-### [暴政警报：休斯顿卫生局的上门 COVID-19 疫苗“普查”开始](/content/gnews/11/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [[Michael.Tonny专栏]接种CCP病毒疫苗已在欧盟造成118.1万人产生不良反应](/content/gnews/12/README.md)
- ` 温哥华扬帆农场`
-
-### [只有纯血种的人才能在因疫苗刺突蛋白导致基因分裂的疫苗及辐射大屠杀中幸存下来](/content/gnews/13/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [银河快讯: 岸田首相对华“立场”令人不安；日本将放宽外国工人“永久居留”](/content/gnews/14/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [独家：RNC将与拜登违宪的疫苗授权作斗争](/content/gnews/15/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [澳洲总理公开表态，反对疫苗护照和疫苗歧视](/content/gnews/16/README.md)
+### [百万西澳人面临强制接种疫苗的选择](/content/gnews/2/README.md)
  ` 走进澳洲`
 
-### [银河快讯: 中共军舰闯入日本领海；日本考虑释放国家石油储备](/content/gnews/17/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [秘翻在线: 香港欲为3岁以上儿童接种疫苗](/content/gnews/18/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [福特和通用汽车可能将很快涉足半导体产业](/content/gnews/19/README.md)
- ` 纽约香草山MOS02`
-
-### [新冠病毒烧伤大脑](/content/gnews/20/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [欧洲汽车销量因缺少微芯片创历史新低](/content/gnews/21/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [欧洲药品管理局统计的新冠疫苗致死和不良反应真实数据](/content/gnews/22/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [比尔盖茨声称两招可使疫情在明年夏天得到控制](/content/gnews/23/README.md)
- ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
-
-### [荷兰警方向上街抗议中共病毒封锁措施的民众开枪](/content/gnews/24/README.md)
- ` 日本东京方舟农场`
-
-### [彭帅失踪引发世界网坛关注](/content/gnews/25/README.md)
- ` 日本东京方舟农场`
-
-### [荷兰鹿特丹爆发反对疲苗护照的暴乱](/content/gnews/26/README.md)
- ` 丁过`
-
-### [2021年11月19日郭文贵先生直播全文字版](/content/gnews/27/README.md)
+### [【小雨专栏】在路上043——风花雪夜篇](/content/gnews/3/README.md)
  ` 温哥华扬帆农场`
 
-### [有声|找到生命真相（一）：我们为什么要来到这个世界，我们要去向何方？](/content/gnews/28/README.md)
+### [GTV新闻访谈简报|2021年11月20日早](/content/gnews/4/README.md)
+ ` 纽约香草山MOS01`
+
+### [习近平六中全会后的两个重大决策](/content/gnews/5/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [BC宣布大温限油、禁跨区旅行 立即生效](/content/gnews/6/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [11/20/2021【11·20王健之死新闻发布会三周年】班农先生：文贵先生向西方发出的警告都得到了一一验证](/content/gnews/7/README.md)
+ ` 秘密翻译组-北美组`
+
+### [恒大集团被香港恒生中国企业指数剔除](/content/gnews/8/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [《我是音雄》第二季第十三期复赛|第四场节目预告](/content/gnews/9/README.md)
+ ` 我是音雄`
+
+### [中共对维吾尔人的迫害是在预演更广泛的监视计划](/content/gnews/10/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [有声|【信仰之声】对70多年苦难的反思](/content/gnews/11/README.md)
  ` MOSREC`
 
-### [因医疗系统禁止对COVID-19患者使用伊维菌素和其他药物，诺福克医生提起诉讼](/content/gnews/29/README.md)
+### [有声|【信仰之声】生命的意义–从一个石瓶说起](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [暴政警报：休斯顿卫生局的上门 COVID-19 疫苗“普查”开始](/content/gnews/13/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [[Michael.Tonny专栏]接种CCP病毒疫苗已在欧盟造成118.1万人产生不良反应](/content/gnews/14/README.md)
+ ` 温哥华扬帆农场`
+
+### [只有纯血种的人才能在因疫苗刺突蛋白导致基因分裂的疫苗及辐射大屠杀中幸存下来](/content/gnews/15/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [银河快讯: 岸田首相对华“立场”令人不安；日本将放宽外国工人“永久居留”](/content/gnews/16/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [独家：RNC将与拜登违宪的疫苗授权作斗争](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [参议院议员blackburn认为应该就CCP-virus 对中共以及大科技公司追责](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [澳洲总理公开表态，反对疫苗护照和疫苗歧视](/content/gnews/18/README.md)
+ ` 走进澳洲`
 
-### [参议院议员marsha认为应该就CCP-virus 对中共以及大科技公司追责](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [银河快讯: 中共军舰闯入日本领海；日本考虑释放国家石油储备](/content/gnews/19/README.md)
+ ` 日本银河系农场-阿尔法星球`
 
-### [班农先生的重点事件](/content/gnews/32/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [秘翻在线: 香港欲为3岁以上儿童接种疫苗](/content/gnews/20/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [文贵爆料 11.20：房峰辉曾警告美国：小心生化武器，中共要在中东建军事基地](/content/gnews/33/README.md)
- ` 秘密翻译组-原创组`
+### [福特和通用汽车可能将很快涉足半导体产业](/content/gnews/21/README.md)
+ ` 纽约香草山MOS02`
 
-### [全球邪恶势力制造疫苗大灾难的动机是什么](/content/gnews/34/README.md)
+### [新冠病毒烧伤大脑](/content/gnews/22/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [欧洲汽车销量因缺少微芯片创历史新低](/content/gnews/23/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [欧洲药品管理局统计的新冠疫苗致死和不良反应真实数据](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [班农先生的政治理念](/content/gnews/35/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共经济倒塌牵动欧美，经济大崩溃习欲趁机攻台湾](/content/gnews/36/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [喜币如日中天，将成为未来的世界货币](/content/gnews/37/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [2021年11月20日文贵先生直播大雨围城速记（第一部分）](/content/gnews/38/README.md)
+### [比尔盖茨声称两招可使疫情在明年夏天得到控制](/content/gnews/25/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [有俄罗斯撑腰胆子越来越大！中共海军测量舰驶入日本领海](/content/gnews/39/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [欧盟组建联合部队应对中共](/content/gnews/40/README.md)
- ` GTV新闻访谈`
-
-### [美国国会支持台湾参与国际刑警组织](/content/gnews/41/README.md)
- ` GTV新闻访谈`
-
-### [球星坎特持续抨击中共人权问题 批詹姆斯“金钱高于道德”](/content/gnews/42/README.md)
+### [荷兰警方向上街抗议中共病毒封锁措施的民众开枪](/content/gnews/26/README.md)
  ` 日本东京方舟农场`
 
-### [受核心主控芯片制约！中共5G小基站产业硬不起](/content/gnews/43/README.md)
+### [彭帅失踪引发世界网坛关注](/content/gnews/27/README.md)
+ ` 日本东京方舟农场`
+
+### [荷兰鹿特丹爆发反对疲苗护照的暴乱](/content/gnews/28/README.md)
+ ` 丁过`
+
+### [2021年11月19日郭文贵先生直播全文字版](/content/gnews/29/README.md)
+ ` 温哥华扬帆农场`
+
+### [有声|找到生命真相（一）：我们为什么要来到这个世界，我们要去向何方？](/content/gnews/30/README.md)
+ ` MOSREC`
+
+### [因医疗系统禁止对COVID-19患者使用伊维菌素和其他药物，诺福克医生提起诉讼](/content/gnews/31/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [参议院议员blackburn认为应该就CCP-virus 对中共以及大科技公司追责](/content/gnews/32/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [参议院议员marsha认为应该就CCP-virus 对中共以及大科技公司追责](/content/gnews/33/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [班农先生的重点事件](/content/gnews/34/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [文贵爆料 11.20：房峰辉曾警告美国：小心生化武器，中共要在中东建军事基地](/content/gnews/35/README.md)
+ ` 秘密翻译组-原创组`
+
+### [全球邪恶势力制造疫苗大灾难的动机是什么](/content/gnews/36/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [班农先生的政治理念](/content/gnews/37/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共经济倒塌牵动欧美，经济大崩溃习欲趁机攻台湾](/content/gnews/38/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [2021年11月20日文贵先生直播大雨围城速记（第一部分）](/content/gnews/39/README.md)
+ ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
+
+### [有俄罗斯撑腰胆子越来越大！中共海军测量舰驶入日本领海](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本外务大臣表达对港台新疆人权的关切](/content/gnews/44/README.md)
+### [欧盟组建联合部队应对中共](/content/gnews/41/README.md)
  ` GTV新闻访谈`
 
-### [中共新能源大跃进，中企争夺美洲锂矿资源](/content/gnews/45/README.md)
+### [美国国会支持台湾参与国际刑警组织](/content/gnews/42/README.md)
+ ` GTV新闻访谈`
+
+### [球星坎特持续抨击中共人权问题 批詹姆斯“金钱高于道德”](/content/gnews/43/README.md)
+ ` 日本东京方舟农场`
+
+### [受核心主控芯片制约！中共5G小基站产业硬不起](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本外务大臣表达对港台新疆人权的关切](/content/gnews/45/README.md)
+ ` GTV新闻访谈`
 
 ### [2021/11/19 墙内世界](/content/gnews/46/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
