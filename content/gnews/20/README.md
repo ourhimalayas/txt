@@ -2,28 +2,25 @@
 ---
 
 
-## 新一批反垄断罚单：阿里、腾讯等又上榜
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1681744/)
+## 加拿大正式批准儿童新冠病毒疫苗接种
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1681792/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-18.jpg)新一批反垄断罚单：阿里、腾讯等又上榜 网络图片
-据自由亚洲电台11月20日报道，北京对中共国科技巨头的监管力度只增不减。市场监管总局根据《中华人民共和国反垄断法》第四十八条、四十九条规定，对阿里巴巴、百度、苏宁易购、腾讯、京东、滴滴和美团等互联网企业处以50万人民币罚款。
+采编：文明     编译撰稿：文明(添草灭共)
 
-名为反垄断，实则伸手抢。强盗和贼的本性除了偷就是抢。这些科技巨头已经被抢过一轮，但只要没死就得继续运行，继续被抢。今天反垄断，明天就违约，随时缺钱随时罚款，罗列罪名是中共的强项。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-52.jpg)图片来源：CTV
 
-新闻参考链接：[https://www.rfa.org/mandarin/Xinwen/6-11202021161905.html](https://www.rfa.org/mandarin/Xinwen/6-11202021161905.html)
+
+据加拿大媒体【CTV新闻】11月19日报道，【加拿大卫生部】当天批准了【辉瑞公司】产“新冠病毒”疫苗在该国5至11岁儿童中接种使用，剂量是12岁以上儿童的三分之一。
+
+在本次授权接种发布会上，卫生部首席医疗顾问夏尔马声称：该疫苗不良反应概率较低，除了被注射部位红肿外，还可能会出现“可自行恢复的疲劳和头痛”等中轻度反应。加拿大首席卫生官谭咏诗也对此表示，将尽快通知家长并鼓励他们同意为其子女接种该疫苗。
+
+报道称，该国医学专家夏皮罗博士在回应以上消息时警告，接种“新冠病毒”疫苗所导致的健康危害将远远超过感染该病毒的后果。每个家长都有必要全面了解该疫苗的副作用和感染该病毒的风险程度，并在二者之间做出正确的选择。
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+校对编辑，发稿：硫酸羟氯喹64
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+原文链接：https://www.ctvnews.ca/health/coronavirus/canada-authorizes-first-covid-19-vaccine-for-kids-1.5673038
 
  
 
