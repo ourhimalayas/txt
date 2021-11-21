@@ -2,110 +2,47 @@
 ---
 
 
-## Facebook等社交媒体无法和GTV盖特比拟
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1681507/)
+## 真流氓·假绅士和满怀希望的人——美洲篇
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1681537/)
 
-[https://gtv.org/video/id=61992e4ae6900076612d89dc](https://gtv.org/video/id=61992e4ae6900076612d89dc)
+撰稿：何处是我家
+![](https://assets.gnews.org/wp-content/uploads/2021/11/211-2.png)图片来自网络
+当你的右眼注视着欧洲的难民潮时，看到的是那些来自利比亚，索马里，叙利亚，伊拉克，伊朗以及阿富汗的难民。难民有时像大海的浪潮一样澎湃，有时像小溪一样涓涓细流，连绵不绝没有停止的迹象。
 
-**郭文贵**
-**Miles Guo**
+他们利用各种方式，使用各种交通工具，徒步行走的，坐汽车，火车，飞机，橡皮艇，渔船真是难民路上各显神通。携儿带女历尽艰辛和各种磨难。最终又有几人是幸运？能到达希望的彼岸呢？
 
-我昨天跟摩根先生说，它是垃圾
-I told Mr. Morgan yesterday that it was garbage
+你的左眼是否也曾看见另一个画面，南美洲的难民。南美难民队伍有多长，人数有多壮观。那些洪都拉斯，委内瑞拉，海地以及哥伦比亚。当他们怀揣着满肚子的希望，走向幸福的国度——美利坚，沿途不断地又有古巴人，墨西哥人加入队伍。规模越来越大，人数越来越多。
 
-摩根先生讲，你什么意思？
-Mr. Morgan said, “What do you mean?”
+这一景象是几年前的事情。南美洲的难民大军，吓坏了当时执政的特朗普，紧急将边境墙加高，加固。几千公里近五米高的边境墙，逐渐伫立在美墨边境上。这是一条独特的风景线。
 
-我说它是垃圾。它是什么垃圾？
-I said it’s garbage. Why?
+有流氓的地方必有难民，有大流氓的国家，每个国民都注定是——难民。
 
-我说Facebook、Instagram、Youtube都是垃圾
-I said Facebook, Instagram, Youtube are all garbage
+委内瑞拉的查韦斯，始终以伟人，强者的形象出现在世人面前。本世纪初委内瑞拉的查韦斯执政时期：汽油便宜的就像是河水，那时40升的汽油是相当于当时一个鸡蛋的价格。医疗免费，住房免费。这是个已经实现共产主义的国家。当我听说委内瑞拉的美女如云，热情妖艳时，我心生向往。
 
-因为他有时候耳朵不太好，有时候我的英文他又听不太清楚
-Because sometimes his hearing are not good, and sometimes he can’t understand my English very well
+可是好景不长，在2008年的金融危机后，石油价格一落千丈。这个往日南美最富有的国家，拥有着世界排前几名的石油储量。查韦斯执政后期，国家的经济和民生却像石油一样——坠入深渊。接下来的几年更是创造了“人间奇迹”。2018年委内瑞拉的通货膨胀达到一万三千倍，这个数字赶超了中共国的另一个非洲好朋友穆加贝的政府——津巴布韦。同时，后查韦斯（查韦斯已经去世）政府为世界输出300万的难民。
 
-他就说为什么啊？
-He asked why?
+在近几年的新闻中我们知道，中共国为查韦斯政府陆续提供了近千亿美金的帮助。但是，曾经是世界上石油出口量第二，开采量居世界第一，又有中共国千亿美金的支持。为什么委内瑞拉的民众，却争先恐后成了难民！
 
-因为他们没有支付系统
-Because they don’t have a payment system
+这时，另一个更牛的人物走进人们的视野，是已去世的卡斯特罗先生。又一个——中国共产党的老朋友。金光闪闪照耀着古巴大地数十年，可怜的古巴人距离天堂般的美利坚，近在咫尺却远如天涯。地域不大，人口不多的古巴共和国，前有苏共的鼎立供养，后有中共国充足资金的拼死支持。古巴却只留下卡斯特罗的传说，而古巴人却同样加入难民大军。
 
-它是销售个人数据
-It’s selling personal data
+我不知道美国的边境墙够不够高，够不够坚固。
 
-盖特最重要的是它有支付系统，还不销售个人数据
-The most important thing about Gettr is that it has a payment system, but it doesn’t sell personal data
+我也曾经天真的想：真流氓和假绅士倒下后，世界就会好起来，可是，今天查韦斯死了，卡斯特罗死了，难民没有减少！
 
-它有原罪，我们没原罪
-It has the original sin, and we don’t
+更早一些的阿根廷的英雄，贝隆夫人和贝隆将军也已仙逝。一曲“阿根廷别为我哭泣”荡气回肠，让多少人心情难过。可世人没有追问：上世纪世界最富有的阿根廷，欧洲人移民美洲的第一选项目的国。为什么在贝隆夫人后，阿根廷国家的货币几经贬值，几度作废。直到今天也没有恢复元气，经济和政治极不稳定。
 
-它们必然被消灭，我们必然是永久生存而且是唯一的
-They’re bound to be wiped out, we’re bound to live forever and be the only ones
+流氓出现的地方，有一个若隐若现的影子——共产党！
 
-有道理，是吧？
-Makes sense, doesn’t it?
+难民涌现的地方，有一个光芒四射的流氓——共产党！
 
-GTV一定是全世界最好的视频直播平台
-GTV must be the best live video platform in the world
+难民的队伍浩浩荡荡，蜿蜒绵长。我不解的是：世界上鲜有人提问，是谁制造了这无穷无尽的难民，是谁故意让数以亿计的人们流离失所。我还想问，南美的难民里为什么有我的同胞，你为何跑到了南美？
 
-唯一的平台
-The only one
+*发稿：mgjxs*
 
-七哥说的话是吹牛吗？
-Am I bragging?
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-你觉得我一年前说这话，你们肯定不信
-You wouldn’t have believed me when I said that a year ago
-
-现在你觉得是吹牛吗？
-Do you think it’s bragging now?
-
-就这GTV，就这盖特，你知道，今天战友们记住啊
-Just the GTV and Gettr, you know, my fellow comrades remember
-
-更新你的手机软件，盖特软件，你就可以手机直播了
-Update your cell phone software, Gettr software, you can use your cell phone to go livestream
-
-你可以现在电脑直播，手机直播，而且我们还有同生字幕，中英文
-Now you can broadcast live on your computer, live on your phone, and there are simultaneous subtitles in English and Chinese on the Gettr platform
-
-而且现在的这个可以达到5K推流
-And now the clarity can reach 5K push stream
-
-我告诉兄弟姐妹们，你们就看到这一点功能的增加
-I tell you brothers and sisters, you just see this little increase in functionality
-
-它的价值是多大
-How valuable it is?
-
-昨天盖特和今天的盖特最起码增长50%
-Gettr increases at least 50% in yesterday and today
-
-如果它昨天市值1000亿的话，今天就涨了500亿
-If its market value was $100 billion yesterday, it’s add up $50 billion today
-
-就因为这一个功能
-Just because of this one feature
-
-Date: 11/16/2021
-原视频标题: Facebook等社交媒体无法和GTV 盖特比拟
-Facebook and other social media can’t compete with GTV and Getter
-原视频日期：2021/11/12
-任务编号：KC271（2898）
-视频时间段 : 0:00-1:28
-
-英听校：洛杉矶盘古农场 – Mike Li
-翻译：洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – Layka
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/016.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
