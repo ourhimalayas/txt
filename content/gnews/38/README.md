@@ -2,30 +2,36 @@
 ---
 
 
-## 日中韩领导人会议今年继续取消，中共问题成为主要障碍
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1683010/)
+## 有声|美国国会支持台湾参与国际刑警组织
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1683059/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-26.png)
-[图片来源](https://www.nbcnews.com/news/world/these-chinese-military-innovations-threaten-u-s-superiority-experts-say-n848596)
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月18日，美国国会众议员约翰-科蒂斯表示，70多位美国两党议员联合致函国务卿布林肯、司法部长加兰德，以及国际刑警组织驻华盛顿办事处主任休斯，表明国会支持将台湾纳入国际刑警组织的明确意图。
 
-据日本共同社11月21日消息，日中韩领导人会议继去年之后，今年也拟不举行。
+声明提到，台湾在国际刑警组织中的持续缺席给打击国际犯罪的努力留下了真空。另外，国际刑警组织的“红色通缉令”制度会被诸如中共和俄罗斯等独裁政权所利用。因此，台湾理应具备与美国和其他民主伙伴共事的席位，从而根除国际刑警组织的腐败和滥权。
 
-报道称，日本对举行始终抱着慎重态度，主席国韩国也缺少热情，通过日中韩合作实现东亚地区和平的这一三国共同目标日渐遥远。
+声明强调，拜登政府必须落实国会通过法律的意图，用以抗衡中共的影响力。同时，政府应在国际刑警组织大会之前，推动台湾参与该组织。
 
-报道还称，对于采用线上方式进行日中韩领导人会议，虽然比各国首脑实际会面的会议更容易实现、参加的门槛较低，但是尽管如此，日本政府高官仍断言称“目前一段时间很困难”。
 
-报道分析称，美中对立造成，日中关系紧张加剧。日本10月参加了在冲绳西南海域举行的多国联合训练，派出了海上自卫队的直升机、护卫舰，与美英等5国共同牵制中共。而同月，中共和俄罗斯海军舰艇联合在日本列岛周边进行巡航。
+原文链接：[美国国会支持台湾参与国际刑警组织](https://gnews.org/zh-hans/1680739/)
 
-近来，中共不断炫耀武力，威胁台日的同时，更是会同俄罗斯以联合舰艇和战机巡航的形势公开挑战美国的亚太秩序。可以说，中共的问题已经成为关乎区域和世界安全的重大问题。
 
-信息来源：
+音频处理：喜山必胜Maverick
 
-[焦点：日中韩领导人会议不具备举行条件](https://china.kyodonews.net/news/2021/11/5cafcd16e0e4.html)
+发稿：Daxia
 
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
