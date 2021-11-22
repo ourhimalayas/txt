@@ -2,27 +2,27 @@
 ---
 
 
-## 中国公民在海外被绑架，中共国政府毫不关心
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684502/)
+## 不打自招！中共官宣抗艾滋病新药可有效抑制中共病毒复制
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684512/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-165.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp2.itc.cn%2Fimages01%2F20210818%2F17addc8dfae74814a0bd8d03953a3758.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F484094438_120110670&amp;tbnid=QTICIxg9n7XFmM&amp;vet=12ahUKEwiYspjukav0AhURLqYKHUeZBK8QMygHegUIARCTAQ..i&amp;docid=cEZ4BDu0TBF-5M&amp;w=1080&amp;h=608&amp;q=%E5%88%9A%E6%9E%9C%E6%B0%91%E4%B8%BB%E5%85%B1%E5%92%8C%E5%9B%BD%20%E7%BB%91%E6%9E%B6%E4%B8%AD%E5%9B%BD%E4%BA%BA&amp;ved=2ahUKEwiYspjukav0AhURLqYKHUeZBK8QMygHegUIARCTAQ)于：中华人民共和国驻刚果民主共和国大使馆-首页（11/22/2021）
-刚果民主共和国布卡武一名当地官员和一名军队发言人11月21日说，武装人员在刚果民主共和国东南部的一个矿区附近杀害了一名警察并绑架五名中国公民。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-42.png)[图片来源](https://www.sohu.com/a/479248352_120545254)
+近日，中共央视新闻专题报道称，抗艾滋病新药“阿兹夫定”可有效抑制中共病毒复制，并详细介绍了其作用机制。
 
-目前还不清楚是谁在南基伍省(South Kivu)的Mukera村附近实施了袭击。中国矿业公司和地方当局之间的关系已经很紧张，后者说一些公司在没有许可的情况下非法经营。
+报道称，阿兹夫定是由河南真实生物科技有限公司和河南师范大学、北京协和药厂等共同研发的具有自主知识产权的抗中共病毒有效候选药物，也是全球首个双靶点抗艾滋病1类新药，曾获得中国专利金奖。
 
-“一个武装组织与警察交火。五名中国公民被绑架了，”该地区的军队发言人Dieudonne Kasereka少校称。
+报道进一步称，科研临床试验证实，阿兹夫定抗中共病毒活性强，对患者展示出良好的治疗效果，能显著缩短病人的核酸转阴时间、治疗时间和住院时间，目前正在国内外开展治疗新冠肺炎的Ⅲ期临床试验。
 
-中国驻刚果大使馆的发言人没有回应评论请求。矿区的名称没有透露。
+通过爆料革命的持续揭露，中共病毒是混合了艾滋病等多种病毒片段的生物武器，这已成为全球的基本共识。为逃避被追责，中共却一直以病毒自然起源说来混淆视听，并极力掩盖病毒真相。此次，中共官宣抗艾滋病新药可有效抑制中共病毒复制，就是“贼不打，三年自招”典型的例子。
 
-消息来源:
+信息来源：
 
-[五名中国公民在刚果民主共和国一矿区附近遇袭后被绑架](https://cn.reuters.com/article/chinese-congo-kidnapped-1121-sun-idCNKBS2I7017?il=0)
+[有效抑制新冠病毒复制！抗艾滋病新药阿兹夫定登上央视-手机大河网](https://4g.dahe.cn/news/20211121927092)
 
 *校对：东京樱花团/知了知了*
 *发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
-#  
+
 
  
 
