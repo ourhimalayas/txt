@@ -15,142 +15,142 @@
 
 ---
 
-### [秘翻在线: 数字人民币钱包限额大幅下降](/content/gnews/1/README.md)
+### [基因采集：Covid 检测公司承认向第三方出售含有客户 DNA 的 Covid 拭子](/content/gnews/1/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [疫苗加强针的效果：将人变成类似艾滋病的患者](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [秘翻在线: 数字人民币钱包限额大幅下降](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新冠病毒“疫苗”使人们更容易感染艾滋病毒、HPV、疱疹](/content/gnews/2/README.md)
+### [新冠病毒“疫苗”使人们更容易感染艾滋病毒、HPV、疱疹](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [越南坐拥可以消灭中共国的经济武器](/content/gnews/3/README.md)
+### [越南坐拥可以消灭中共国的经济武器](/content/gnews/5/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [11/20/2021【1120三周年纪念】班农先生十分了解中共国，并十分热爱中国的老百姓](/content/gnews/4/README.md)
+### [11/20/2021【1120三周年纪念】班农先生十分了解中共国，并十分热爱中国的老百姓](/content/gnews/6/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/20/2021【1120三周年纪念】班农先生：平民运动不是某个阶层的运动，而是整个社会的运动](/content/gnews/5/README.md)
+### [11/20/2021【1120三周年纪念】班农先生：平民运动不是某个阶层的运动，而是整个社会的运动](/content/gnews/7/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [新中国联邦建立的生命之泉与信仰](/content/gnews/6/README.md)
+### [新中国联邦建立的生命之泉与信仰](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [11/20/2021【1120三周年纪念】平民主义，中国人民一人一票行使权力，将摧毁中共](/content/gnews/7/README.md)
+### [11/20/2021【1120三周年纪念】平民主义，中国人民一人一票行使权力，将摧毁中共](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/20/2021【1120三周年纪念】班农先生：人们面临的最大挑战将是如何运用科技创造自由和繁荣，而非将其演变为战争工具或控制手段](/content/gnews/8/README.md)
+### [11/20/2021【1120三周年纪念】班农先生：人们面临的最大挑战将是如何运用科技创造自由和繁荣，而非将其演变为战争工具或控制手段](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [数万人在维也纳举行反对新冠病毒限制措施的游行](/content/gnews/9/README.md)
+### [数万人在维也纳举行反对新冠病毒限制措施的游行](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [被传唤的FDA文件揭辉瑞疫苗不良事件触目惊心](/content/gnews/10/README.md)
+### [被传唤的FDA文件揭辉瑞疫苗不良事件触目惊心](/content/gnews/12/README.md)
  ` HimalayaRussia`
 
-### [11/20/2021【1120三周年纪念】新中国联邦最终会用法治把中国人和全世界连结在一起,并有能力实现异议自由,言论自由和宗教自由](/content/gnews/11/README.md)
+### [11/20/2021【1120三周年纪念】新中国联邦最终会用法治把中国人和全世界连结在一起,并有能力实现异议自由,言论自由和宗教自由](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [《在川普时代》记录2019年G20：残暴习独裁之全副嘴脸](/content/gnews/12/README.md)
+### [《在川普时代》记录2019年G20：残暴习独裁之全副嘴脸](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [不同于欧美，非洲疫苗接种率低于6%，却避免了新冠灾难](/content/gnews/13/README.md)
+### [不同于欧美，非洲疫苗接种率低于6%，却避免了新冠灾难](/content/gnews/15/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文贵先生说：七哥最感兴趣的](/content/gnews/14/README.md)
+### [文贵先生说：七哥最感兴趣的](/content/gnews/16/README.md)
  ` MG FARM`
 
-### [欧洲多国爆发暴力抗议 反强制接种和封城](/content/gnews/15/README.md)
+### [欧洲多国爆发暴力抗议 反强制接种和封城](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [每日快报：萨尔瓦多计划在东部建造一座“比特币城市”](/content/gnews/16/README.md)
+### [每日快报：萨尔瓦多计划在东部建造一座“比特币城市”](/content/gnews/18/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [文贵先生说：灵魂的神交](/content/gnews/17/README.md)
+### [文贵先生说：灵魂的神交](/content/gnews/19/README.md)
  ` MG FARM`
 
-### [怎么看待喜币HCN的涨和跌？](/content/gnews/18/README.md)
+### [怎么看待喜币HCN的涨和跌？](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [在工人威胁辞职后，海军造船承包商暂停了疫苗强制任务](/content/gnews/19/README.md)
+### [在工人威胁辞职后，海军造船承包商暂停了疫苗强制任务](/content/gnews/21/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文贵先生说：我们真正的新中国联邦人未来不需要宗教，但是需要信仰](/content/gnews/20/README.md)
+### [文贵先生说：我们真正的新中国联邦人未来不需要宗教，但是需要信仰](/content/gnews/22/README.md)
  ` MG FARM`
 
-### [喜币上市后爆料革命37天关键增长期日记5](/content/gnews/21/README.md)
+### [喜币上市后爆料革命37天关键增长期日记5](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [宇宙无限大，人类不是一粒沙](/content/gnews/22/README.md)
+### [宇宙无限大，人类不是一粒沙](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [联合国：飙升的运费将全球通胀推高1.5%](/content/gnews/23/README.md)
+### [联合国：飙升的运费将全球通胀推高1.5%](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文贵先生说 “当下教”](/content/gnews/24/README.md)
+### [文贵先生说 “当下教”](/content/gnews/26/README.md)
  ` MG FARM`
 
-### [文贵先生说：正道主义](/content/gnews/25/README.md)
+### [文贵先生说：正道主义](/content/gnews/27/README.md)
  ` MG FARM`
 
-### [西媒头条 — 第114期](/content/gnews/26/README.md)
+### [西媒头条 — 第114期](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [Joe Morgan 先生送给文贵先生的一本书](/content/gnews/27/README.md)
+### [Joe Morgan 先生送给文贵先生的一本书](/content/gnews/29/README.md)
  ` MG FARM`
 
-### [2021/11/22 大卫作战室直播精要](/content/gnews/28/README.md)
+### [2021/11/22 大卫作战室直播精要](/content/gnews/30/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共无法兑现多国借款，多数国家转向欲建交台湾、新中国联邦](/content/gnews/29/README.md)
+### [中共无法兑现多国借款，多数国家转向欲建交台湾、新中国联邦](/content/gnews/31/README.md)
  ` YALUN 亚伦`
 
-### [2021年11月22日文贵先生盖特直播大雨围城速记](/content/gnews/30/README.md)
+### [2021年11月22日文贵先生盖特直播大雨围城速记](/content/gnews/32/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [GTV新闻访谈简报|2021年11月22日早](/content/gnews/31/README.md)
+### [GTV新闻访谈简报|2021年11月22日早](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [纳瓦罗谈拜习视频会：中共正要摧毁、压倒、接管美国](/content/gnews/32/README.md)
+### [纳瓦罗谈拜习视频会：中共正要摧毁、压倒、接管美国](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大联邦政府没有计划强制儿童接种疫苗](/content/gnews/33/README.md)
+### [喜马拉雅币一周分析](/content/gnews/35/README.md)
+ ` GTV新闻访谈`
+
+### [加拿大联邦政府没有计划强制儿童接种疫苗](/content/gnews/36/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [11/20/2021【1120三周年纪念】班农先生为解救中国人民付出无尽心血](/content/gnews/34/README.md)
+### [11/20/2021【1120三周年纪念】班农先生为解救中国人民付出无尽心血](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [习近平再提建设“网络强国”，中国互联网言论环境雪上加霜](/content/gnews/35/README.md)
+### [习近平再提建设“网络强国”，中国互联网言论环境雪上加霜](/content/gnews/38/README.md)
  ` 首尔天池农场`
 
-### [11/20/2021【1120三周年纪念】文贵先生：我们要真心爱班农先生，他是真正的大师可以帮助到新中国联邦和全球所有的华人](/content/gnews/36/README.md)
+### [11/20/2021【1120三周年纪念】文贵先生：我们要真心爱班农先生，他是真正的大师可以帮助到新中国联邦和全球所有的华人](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/20/2021【1120三周年纪念】与中共沆瀣一气的全球主义者们更想成为中共](/content/gnews/37/README.md)
+### [11/20/2021【1120三周年纪念】与中共沆瀣一气的全球主义者们更想成为中共](/content/gnews/40/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [大量心梗，中共国疫苗灾难蔓延](/content/gnews/38/README.md)
+### [大量心梗，中共国疫苗灾难蔓延](/content/gnews/41/README.md)
  ` GTV新闻访谈`
 
-### [11/20/2021【1120三周年纪念】 班农先生：中国是美国在第二次世界大战中最大的盟友，解放中国要靠中国人自己](/content/gnews/39/README.md)
+### [11/20/2021【1120三周年纪念】 班农先生：中国是美国在第二次世界大战中最大的盟友，解放中国要靠中国人自己](/content/gnews/42/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [美国CDC 承认中共病毒疫苗有导致心肌炎和心包炎的风险](/content/gnews/40/README.md)
+### [美国CDC 承认中共病毒疫苗有导致心肌炎和心包炎的风险](/content/gnews/43/README.md)
  ` GTV新闻访谈`
 
-### [东南亚一周新闻回顾（2021年11月13日-20日）](/content/gnews/41/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [震惊！全球首款注射疫苗杀人机器人面世](/content/gnews/42/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新中国联邦需要培养更多人才](/content/gnews/43/README.md)
+### [新中国联邦需要培养更多人才](/content/gnews/44/README.md)
  ` GTV新闻访谈`
 
-### [11/22/21 香港快讯 廉署财汇局搜会计师楼拘九人 涉会计师报告作假](/content/gnews/44/README.md)
+### [11/22/21 香港快讯 廉署财汇局搜会计师楼拘九人 涉会计师报告作假](/content/gnews/45/README.md)
  ` 英喜-粵語組`
 
-### [中国人的优秀品质最终会消灭中共](/content/gnews/45/README.md)
- ` GTV新闻访谈`
-
-### [班农先生谈加密数字货币未来真正的价值](/content/gnews/46/README.md)
+### [中国人的优秀品质最终会消灭中共](/content/gnews/46/README.md)
  ` GTV新闻访谈`
 
 ### [回避与中共领导线下会议之后，日本首相将会晤越南总理](/content/gnews/47/README.md)
