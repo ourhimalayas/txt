@@ -2,10 +2,10 @@
 ---
 
 
-## 前国际刑警组织主席孟宏伟妻子高歌接受美联社独家采访
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1685144/)
+## 澳大利亚联邦银行首席执行官Matt Comyn谈加密货币
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1685148/)
 
-11/18/2021 高歌谈到了她消失和被捏造指控入狱的丈夫。
+11/18/2021 澳大利亚联邦银行首席执行官Matt Comyn谈加密货币：我们看到了参与的风险，但我们看到不参与的风险更大。我们已经与Gemini虚拟货币交易平台建立了合作伙伴关系。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
