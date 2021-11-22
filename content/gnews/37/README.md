@@ -2,40 +2,33 @@
 ---
 
 
-## 打过疫苗死亡的人比没打的人多四倍，主流媒体不报道
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1684417/)
+## 纳瓦罗称，川普第二任期定与中共脱钩
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1684441/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+纳瓦罗先生在11月20日的班农战斗室节目中表示，川普总统第二任期一定会跟中共国脱钩。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-29.jpg)
+此外，纳瓦罗先生还提到，因为担心美方的强硬态度会促使中共取消第一阶段贸易协议，进而引发市场崩溃，甚至导致热战的可能性，时任白宫官员的姆努钦、库德洛等人，不断游说川普总统，不要再对中共国加征关税。他强调，如果现在是川普总统的第二任期，美国将采取更加强硬的措施，一定会跟中共国脱钩，而且不会参加北京冬奥会。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/l_dead-body-free-deliver-from-hospital-rajasthan-1484617778_835x547-700x430-1.jpg)
+参考链接：
+1. [纳瓦罗称，川普第二任期定与中共脱钩](https://www.amazon.com/Trump-Time-Journal-Americas-Plague/dp/1737478501)
+2. [纳瓦罗称，川普第二任期定与中共脱钩](https://www.gettr.com/post/phhva0d149)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
- 
-图片来源：www.pratidintime.com
+总编：文特
+编辑：文特/雪梨
+校对/发稿：Hetangyuese
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-#### 编译：小红帽
-
-英国卫生安全局（UKHSA）中共病毒（COVID-19）疫苗监测报告的最新数据显示，有一个“未接种疫苗 ”而“感染”中共病毒的人死亡，就至少有四个“完全接种疫苗”的人死亡。
-
-据数据显示，绝大多数报告的中共病毒死亡病例（82%）是发生在人们接种中共病毒疫苗之后。这个事实直接违背了疫苗制造商声称的90%的死亡预防率。(注：早在9月，英国国家统计局报告说，当月对中共病毒检测为“阳性”并死亡的人几乎都“完全接种”了中共病毒疫苗）。
-
-中共病毒疫苗正在破坏人们的免疫系统–造成一种免疫缺陷病，类似于艾滋病，但该病却是由疫苗引起的。这种相关性非常明确的，但主流媒体却没有报道。
-
-《曝光报》报道说：“在中共病毒疫苗接种活动启动两个月后，死亡人数急剧增加，高于五年的平均水平”。
-
-任何宣传“疫苗是安全和有效的”口号的人都是不诚实的。任何鼓励、胁迫或强迫他人进行实验性医疗程序的人都是在实施、协助、教唆、故意伤害人。主流媒体正在传播错误信息和虚假信息–关掉电视，神经语言编程节目正在被用来对付你。
-
-**参考新闻：**[FOUR TIMES more vaxxed people are dying than unvaxxed… depopulation effects are kicking in and the bodies are piling up – NaturalNews.com](https://www.naturalnews.com/2021-11-21-4x-more-vaxxed-people-dying-compared-to-unvaxxed.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,47 +2,19 @@
 ---
 
 
-## 法国首家“台湾华语文学习中心”成立
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1684798/)
+## 七哥回想1120
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684886/)
 
-作者：纽约香草山医疗部 – 云豹
+文编：东京樱花团/樱花传媒
+视频:东京樱花团/中文小视频组
 
+11月20日，郭文贵先生在GTV大直播透露：
 
+1120王健之死发布会的筹备遇到了各种恐喝。班农先生亲自审核、部署了每一份资料，与郭先生齐心协力，声东击西，成功地在皮尔酒店召开了发布会。虽然很让班农先生惊心动魄，但通过王健之死和海航的一系列事情，让大师级政治家班农先生，对中共渗透西方和灭共的重要性有了新的认识。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-法国首家推广繁体华文的“台湾华语文学习中心”，于11月20日在巴黎亭林中文学校正式成立，目标在于推广繁体华文的学习，以及促进台法间的文化双向交流学习。
-
-华语学习在世界很多国家都是一种潮流，但近二十年来，中共借此机会，以孔子学院的形式强势输出自己的华语教学体系，在教材中输出共产主义、社会主义思想，并借机收买各国年轻菁英及政治人物，建立中共渗透世界的人脉体系。
-
-近两年，世界各国逐渐认识到中共的不可信任，陆续下令关闭中共在其国内成立的孔子学院，并转向与普世价值观相近的台湾合作，由台湾提供华文学习的教材及师资，方便他们学习传统华文，了解台湾传承的由传统到创新，多层次且富含包容性的华人文化。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.3-6.jpg)
-参考链接：
-[法國首間台灣華語中心揭牌 推動正體中文學習](https://www.cna.com.tw/news/firstnews/202111210006.aspx)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
 
 
  

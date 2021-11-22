@@ -2,39 +2,29 @@
 ---
 
 
-## 病例激增，93%疫苗接种率的爱尔兰进入 “半封锁状态”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1684348/)
+## 加密货币爱好者众筹4700万美元欲购入美国宪法稀有抄本
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1684366/)
 
-####  **【雅典娜快讯】，紧贴时事脉搏**
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Untitled5555555.png)图片来源：THE DAILY HODL
+**翻译：**月映万川
+**编辑：**翼族
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/download.jpg)
+一个叫做“宪法DAO”的去中心化匿名组织，从17000多名捐赠者中筹集资金，共筹集了价值4700万美元的以太币，这些来自于该组织捐赠者的资金将用于购买一份《美国宪法》的稀有原始抄本。目前世界上仅有13份原始抄本。
 
+英国著名拍卖行索斯比将对这一文件进行网上拍卖，同时，拍卖行也接受以太币作为付款选项。
 
+据“宪法DAO”组织宣称，索斯比拍卖行是首次与该类型的去中心化团体合作，并且可能也是以众筹模式购买实物价格最高的一次。
 
-图片来源：www.euromoney.com
+拍卖开始后，当宪法抄本的价格一路飙升到4300万美金时，该组织出于维护经费不够的顾虑放弃了此次拍卖。
 
+“宪法DAO”组织称：“虽然这不是我们希望的结果，但是今晚我们依然创造了历史。无论以法币还是加密货币来计算，这次拍卖是目前已知的使用众筹方式购买实物金额最高的一次。我们非常感激能与你们一起做这件事，并且仍然对我们能走到这一步感到震惊。”
 
-#### 编译：小红帽
+**新闻链接：**[Crypto Enthusiasts Raise $47,000,000 Worth of Ethereum in Effort To Buy Rare Copy of US Constitution](https://dailyhodl.com/2021/11/21/crypto-enthusiasts-raise-47000000-worth-of-ethereum-in-effort-to-buy-rare-copy-of-us-constitution/amp/)
 
-爱尔兰可能是欧洲接种中共病毒(COVID-19)疫苗最多的国家之一，但这还不足以阻止该病毒在那里的传播，现在人们正面临新的宵禁和其他限制。
+***发布：**翼族*
 
-总理迈克尔·马丁（Micheal Martin）宣布该国将采取若干新的 “半封锁 ”措施，以阻止人们社交和传播疾病。新措施的一部分是在全国范围内对餐馆、俱乐部和酒吧实行宵禁。
-
-还将有新的在家工作指导方针，鼓励有能力在家工作的人这样做。此外，现在进入剧院和电影院将需要出示疫苗护照。
-
-在爱尔兰，93%的人口接种了中共病毒疫苗，因此这些极端措施和促使它们采取措施的激增病例，应该在那些对疫苗抱有极大信心的人中引发很多疑问。
-
-爱尔兰的高中共病毒疫苗接种率几乎没有阻止病例在过去一个月内增加275%，但不知为何，他们却得出了需要更多疫苗的结论。
-
-另一个最例子是以色列，它是早期在让其人口接种中共病毒疫苗方面处于世界领先地位的国家。在该国最近的一波新病例中，71%的患重病的以色列人已经完全接种了疫苗。
-
-在新加坡，几乎80%的人口已经接种了中共病毒疫苗，感染人数从6月份的两位数激增到9月份的四位数。
-
-越来越清楚的是，这么多的国家似乎认为欺压人们以接种更多中共病毒疫苗和加强针会让事情变得更好，这是完全没有道理的。
-
-**参考新闻：**[Ireland goes into “semi-lockdown” despite 93% vaccination rate as COVID-19 cases spike – NaturalNews.com](https://www.naturalnews.com/2021-11-21-ireland-vaccination-rate-cases-spike.html)
-
-***发布：小红帽*****更多资讯，请关注：****
+**更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)

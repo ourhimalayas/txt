@@ -2,35 +2,31 @@
 ---
 
 
-## 有声|白宫要求中共交待彭帅下落
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1684789/)
+## 亨特·拜登的公司帮助中国公司收购钴矿
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1684829/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月19日，白宫发言人莎琪（Jen Psaki）在白宫简报会中发表声明，要求中共交代彭帅下落，证明她人身安全。
+撰稿：小湫
 
-11月初，女网选手彭帅在微博上揭露自己多年前遭受中共副总理张高丽性侵。该文在发布半小时后被撤下，彭帅从此失联。
+《纽约时报》报道，以亨特·拜登(Hunter Biden)为创始人的投资公司，帮助中国公司从美国公司收购一座世界上最赚钱的钴矿。
 
-莎琪表示，美国支持女性发声及究责的权力，任何性侵的指控都应被调察。 莎琪指出，中共一直控制舆论，迫害自由发声的人民。美国谴责此行为。
+2013年，拜登同另外两名美国人和中国合伙人，成立了渤海华美（上海）股权投资基金管理公司（Bohai Harvest RST），其中美方占股人控制着渤海华美30%的股份，并担任董事会成员。  
+值得注意的是，该公司在2016年完成了一笔交易，将刚果的一个钴和铜矿从美国Freeport-McMoRan公司转移到中国的钼业集团(China Molybdenum)，交易总额为26.5亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/H拜登.png)
+图片来自网络
 
-近日，多位知名网球名将、美国国会议员、世界职业女网协会、联合国人权委员会等人士相继声援彭帅。
+渤海华美作为小股东，从加拿大伦丁矿业(Lundin Mining of Canada)收购了约11.4亿美元的股份，伦丁矿业拥有刚果金矿的部分股权。  
+根据该公司提交给香港的文件，中国钼业在两年后收购了渤海华美在伦丁矿业的股份。 根据这笔交易，中国钼业集团拥有该矿80%的股份，其余股份由刚果国有矿业企业持有。
+据《纽约时报》报道，拜登通过总部位于华盛顿的Skaneateles有限责任公司控制了渤海华美10%的股份。 
+拜登的律师Chris Clark表示，亨特不再直接或间接的与渤海华美或Skaneateles有任何利益关系，中国的记录显示，截至2020年4月，拜登不再是董事会成员。  
+福克斯新闻(Fox News)在2021年4月查阅中国商业记录显示，亨特·拜登通过自己的公司Skaneateles继续持有渤海华美私募股权10%的股份。
 
+亨特·拜登的商业关系仍然是媒体密切关注的焦点，尤其是他在中国的活动。 拜登总统特别警告说，中国钴的主导地位日益上升，这将成为美国从油气能源转向电动能源产业升级的最大障碍，因为钴是电动汽车电池的关键成分。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/H拜登2-1.png)
+参考信息：
+[Hunter Biden’s firm helped Chinese company purchase rich cobalt mine in $3.8 billion deal: report | Fox News](https://www.foxnews.com/politics/hunter-biden-firm-chinese-purchase-cobalt-mine)
 
-
-文字版原文：[白宫要求中共交待彭帅下落](https://gnews.org/zh-hans/1682219/)
-
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
-
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+发稿：MG4
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

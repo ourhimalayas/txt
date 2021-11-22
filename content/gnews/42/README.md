@@ -2,34 +2,30 @@
 ---
 
 
-## 加密货币爱好者众筹4700万美元欲购入美国宪法稀有抄本
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1684366/)
+## 全球抗议政府的防疫强权：我们不会放弃
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1684371/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Untitled5555555.png)图片来源：THE DAILY HODL
-**翻译：**月映万川
-**编辑：**翼族
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-96.png)
+图片来源： www.dw.com
 
-一个叫做“宪法DAO”的去中心化匿名组织，从17000多名捐赠者中筹集资金，共筹集了价值4700万美元的以太币，这些来自于该组织捐赠者的资金将用于购买一份《美国宪法》的稀有原始抄本。目前世界上仅有13份原始抄本。
+零对冲网11月21日报道，合众国际社称抗议者是“极右分子”，但事实是整个欧洲成千上万的热爱自由的人们走上街头反抗政府新的公共健康权威的强权，例如部分和全部的封城行为和健康护照以及强制疫苗措施。
 
-英国著名拍卖行索斯比将对这一文件进行网上拍卖，同时，拍卖行也接受以太币作为付款选项。
+抗议者反抗在奥地利，克罗地亚，意大利，北爱尔兰，英国，法国，德国和荷兰的新的防疫限制，在欧洲以外的地方，例如在加拿大，澳大利亚，日本甚至美国的一些城市同样有抗议活动，在周六的抗议有些人举着“全球自由”的牌子抗议针对中共病毒疫情的限制和强制疫苗措施。
 
-据“宪法DAO”组织宣称，索斯比拍卖行是首次与该类型的去中心化团体合作，并且可能也是以众筹模式购买实物价格最高的一次。
+有些抗议激烈的城市，如荷兰鹿特丹，周五抗议者与警察发生冲突，变成了暴动，一直延续到周六晚上。
 
-拍卖开始后，当宪法抄本的价格一路飙升到4300万美金时，该组织出于维护经费不够的顾虑放弃了此次拍卖。
+许多欧洲的抗议者们提出相同的口号，即为了人们的生命与自由，政府通过加强中共病毒疫情限制，强制健康护照，强制疫苗等正在剥夺人们的生命权和自由权。在限制措施中最严重的是奥地利，那里要求从周一起完全封城，全国封城至少10天，然后到明年2月1日，政府将强制完成全民疫苗接种，周六在维也纳的抗议中，人们唱着“我的身体，我的选择”“我们要为孩子们而战”“不合作”。
 
-“宪法DAO”组织称：“虽然这不是我们希望的结果，但是今晚我们依然创造了历史。无论以法币还是加密货币来计算，这次拍卖是目前已知的使用众筹方式购买实物金额最高的一次。我们非常感激能与你们一起做这件事，并且仍然对我们能走到这一步感到震惊。”
+在罗马，数千抗议者抗议“绿色通道”证明应用于工作岗位，餐厅，影院，剧院，体育场，健身房和公共交通。
 
-**新闻链接：**[Crypto Enthusiasts Raise $47,000,000 Worth of Ethereum in Effort To Buy Rare Copy of US Constitution](https://dailyhodl.com/2021/11/21/crypto-enthusiasts-raise-47000000-worth-of-ethereum-in-effort-to-buy-rare-copy-of-us-constitution/amp/)
+抗议者说：“人们像我们一样绝不放弃”。
 
-***发布：**翼族*
+全球各地的人们对政府强权以公共健康为名剥夺人们的生命，生活和自由的权利，人们正在醒来，那些世界的精英们和他们的哈巴狗官员们正在变得越来越不受欢迎，公民们对政府的不满已经到了危险程度，这是一个变革的开始。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+##### **新闻来源： **[“We’ll Never Give Up” – Protests Erupt Across World Over Gov’t COVID Tyranny](https://www.zerohedge.com/political/well-never-give-protests-erupt-across-europe-over-govt-covid-tyranny)
+
+
 
  
 

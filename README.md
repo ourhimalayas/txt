@@ -15,133 +15,133 @@
 
 ---
 
-### [杜特尔特用“厌恶”怼习近平的南海霸行](/content/gnews/1/README.md)
+### [全中国90%到95%的人发自内心的想干掉共产党](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共放话：惩罚完立陶宛，再拿掉台湾几个邦交国](/content/gnews/2/README.md)
+### [智慧的运用法币和虚拟货币才能创造出伟大的和创新的政治和经济实体](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日美合作构筑“卫星星座”，监控中俄“高超音速导弹”](/content/gnews/3/README.md)
+### [班农先生的人格魅力是我们中国人最为缺少的](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [法国首家“台湾华语文学习中心”成立](/content/gnews/4/README.md)
- ` GTV新闻访谈`
+### [七哥回想1120](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|洛杉矶对孕妇接种中共病毒疫苗加强针](/content/gnews/5/README.md)
- ` MOSREC`
+### [中共在中东建多个军事基地，这都是解放军自己出卖自己](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|班农先生谈爆料革命的历史意义](/content/gnews/6/README.md)
- ` MOSREC`
-
-### [有声|班农先生谈G系列对灭共的重要性](/content/gnews/7/README.md)
- ` MOSREC`
-
-### [有声|白宫要求中共交待彭帅下落](/content/gnews/8/README.md)
- ` MOSREC`
-
-### [约1万名现役海军陆战队员尚未接种中共病毒疫苗](/content/gnews/9/README.md)
+### [美军正开发摧毁高超音速导弹的拦截系统](/content/gnews/6/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [老百姓又被平均了！2020年中共国人均存款增加约1万元，11个城市人均存款超10万元？](/content/gnews/10/README.md)
+### [最新欧洲医疗数据记录超百万疫苗副作用案例](/content/gnews/7/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [亨特·拜登的公司帮助中国公司收购钴矿](/content/gnews/8/README.md)
+ ` 澳喜农场`
+
+### [杜特尔特用“厌恶”怼习近平的南海霸行](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共和俄罗斯再次联合骚扰日本](/content/gnews/11/README.md)
+### [中共放话：惩罚完立陶宛，再拿掉台湾几个邦交国](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日美合作构筑“卫星星座”，监控中俄“高超音速导弹”](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [法国首家“台湾华语文学习中心”成立](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [迪士尼暂停佛州员工疫苗强制规定](/content/gnews/12/README.md)
+### [有声|喜币的未来与威胁](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [有声|洛杉矶对孕妇接种中共病毒疫苗加强针](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [有声|班农先生谈爆料革命的历史意义](/content/gnews/15/README.md)
+ ` MOSREC`
+
+### [有声|班农先生谈G系列对灭共的重要性](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [有声|白宫要求中共交待彭帅下落](/content/gnews/17/README.md)
+ ` MOSREC`
+
+### [约1万名现役海军陆战队员尚未接种中共病毒疫苗](/content/gnews/18/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [老百姓又被平均了！2020年中共国人均存款增加约1万元，11个城市人均存款超10万元？](/content/gnews/19/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共和俄罗斯再次联合骚扰日本](/content/gnews/20/README.md)
  ` GTV新闻访谈`
 
-### [苏格兰新生儿死亡数量猛增](/content/gnews/13/README.md)
+### [迪士尼暂停佛州员工疫苗强制规定](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [疫苗压力加重 欧美风起云涌 墙内风声鹤唳 中共一路向西](/content/gnews/14/README.md)
+### [苏格兰新生儿死亡数量猛增](/content/gnews/22/README.md)
+ ` GTV新闻访谈`
+
+### [疫苗压力加重 欧美风起云涌 墙内风声鹤唳 中共一路向西](/content/gnews/23/README.md)
  ` 银河勇气之星`
 
-### [中共的老朋友不多了！](/content/gnews/15/README.md)
+### [中共的老朋友不多了！](/content/gnews/24/README.md)
  ` 首尔天池农场`
 
-### [文·贵天成——文贵先生谈“疫苗”（八）](/content/gnews/16/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（八）](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文·贵天成——文贵先生谈“疫苗”（九）](/content/gnews/17/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（九）](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [强制疫苗政策推行者们不得不承认疫苗效果未达预期](/content/gnews/18/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [【小雨专栏 】 在路上044——金钱篇](/content/gnews/19/README.md)
- ` 温哥华扬帆农场`
-
-### [“突然死亡”全球谷歌搜索趋势飙升至历史新高](/content/gnews/20/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [文雍漫谈：他们为什么要让人民比丑](/content/gnews/21/README.md)
- ` 文雍`
-
-### [维州混乱的疫苗限制政策给青少年们带来的困惑](/content/gnews/22/README.md)
+### [维州混乱的疫苗限制政策给青少年们带来的困惑](/content/gnews/27/README.md)
  ` 走进澳洲`
 
-### [疫情之下的北京虚假擀面杖经济](/content/gnews/23/README.md)
+### [疫情之下的北京虚假擀面杖经济](/content/gnews/28/README.md)
  ` 银河勇气之星`
 
-### [比上海调查问卷更有问题的是这个社会](/content/gnews/24/README.md)
- ` 银河勇气之星`
-
-### [币圈新闻动态：喜币（HCN）价格21日实时价格为36.569 HDO](/content/gnews/25/README.md)
+### [币圈新闻动态：喜币（HCN）价格21日实时价格为36.569 HDO](/content/gnews/29/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [女子家人被中共迫害找法院求助，却被法院领导性侵](/content/gnews/26/README.md)
+### [女子家人被中共迫害找法院求助，却被法院领导性侵](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共转移矛盾，对卖菜超市巨额罚款](/content/gnews/27/README.md)
+### [中共转移矛盾，对卖菜超市巨额罚款](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [不打自招！中共官宣抗艾滋病新药可有效抑制中共病毒复制](/content/gnews/28/README.md)
+### [中国公民在海外被绑架，中共国政府毫不关心](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中国公民在海外被绑架，中共国政府毫不关心](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共疫苗枪口瞄准70–80岁的老人](/content/gnews/30/README.md)
- ` 首尔天池农场`
-
-### [有声| 我理解的“万佛万神”](/content/gnews/31/README.md)
- ` MOSREC`
-
-### [婴幼儿恐将于明年年初接种毒疫苗](/content/gnews/32/README.md)
+### [婴幼儿恐将于明年年初接种毒疫苗](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [荷兰爆发反对新冠措施抗议活动](/content/gnews/33/README.md)
+### [荷兰爆发反对新冠措施抗议活动](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [数万人聚集维也纳，抗议奥地利政府防疫新规](/content/gnews/34/README.md)
+### [数万人聚集维也纳，抗议奥地利政府防疫新规](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [纳瓦罗要求中共提供病毒初始序列](/content/gnews/35/README.md)
+### [纳瓦罗要求中共提供病毒初始序列](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [纳瓦罗称，川普第二任期定与中共脱钩](/content/gnews/36/README.md)
+### [纳瓦罗称，川普第二任期定与中共脱钩](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [打过疫苗死亡的人比没打的人多四倍，主流媒体不报道](/content/gnews/37/README.md)
+### [打过疫苗死亡的人比没打的人多四倍，主流媒体不报道](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共病毒防疫的次生灾难，谁来买单？](/content/gnews/38/README.md)
+### [中共病毒防疫的次生灾难，谁来买单？](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [应对中共空中威胁，台湾F16战机大升级](/content/gnews/39/README.md)
+### [应对中共空中威胁，台湾F16战机大升级](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [迪斯尼世界停止执行疫苗任务](/content/gnews/40/README.md)
+### [迪斯尼世界停止执行疫苗任务](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [全球抗议政府的防疫强权：我们不会放弃](/content/gnews/41/README.md)
+### [全球抗议政府的防疫强权：我们不会放弃](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加密货币爱好者众筹4700万美元欲购入美国宪法稀有抄本](/content/gnews/42/README.md)
- ` 墨尔本雅典娜农场`
-
-### [病例激增，93%疫苗接种率的爱尔兰进入 “半封锁状态”](/content/gnews/43/README.md)
+### [加密货币爱好者众筹4700万美元欲购入美国宪法稀有抄本](/content/gnews/43/README.md)
  ` 墨尔本雅典娜农场`
 
 ### [采访喜马拉雅交易所首席执行官杰西-布朗 &#8211; 9月24日第一集的中文翻译](/content/gnews/44/README.md)
