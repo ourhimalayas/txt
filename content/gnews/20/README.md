@@ -2,26 +2,27 @@
 ---
 
 
-## 日美合作构筑“卫星星座”，监控中俄“高超音速导弹”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684799/)
+## 最新欧洲医疗数据记录超百万疫苗副作用案例
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1684840/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-152.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs.secrss.com%2Fanquanneican%2F489ed43ed822e297d221a48dca2ac9b4.jpg&amp;imgrefurl=https%3A%2F%2Fwww.secrss.com%2Farticles%2F3578&amp;tbnid=jCYNLjLdzR1_yM&amp;vet=12ahUKEwiU-Ln9wKv0AhUQZ5QKHfj1AyYQMygEegUIARChAQ..i&amp;docid=OImJFXJSFlnUlM&amp;w=600&amp;h=402&amp;q=%E5%8D%AB%E6%98%9F%E7%9B%91%E8%A7%86%E7%BD%91%E7%BB%9C&amp;ved=2ahUKEwiU-Ln9wKv0AhUQZ5QKHfj1AyYQMygEegUIARChAQ)
-日本《读卖新闻》22日报道，多名日本政府相关人士透露，为了监控、追踪中共与俄罗斯正在研发的“高超音速导弹”，日本计划构筑卫星监视网络，并于2025年前后发射三颗卫星进行实验。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/11/221.jpg)图片来源：Pexels免费照片资料库；摄影：Nataliya Vaitkevich
+最新出炉来自欧洲医疗机构的数据显示，人们怀疑疫苗效用和潜在危害是完全正确的。根据欧盟有关药物反应的数据库显示，截至11月13日，已经有超过30,000疫苗注射死亡案例以及超百万的副作用报告。相关疫苗品类包含辉瑞、莫德纳、强生以及阿斯利康。
 
-据报道，在发射三颗卫星后日本将测试卫星通信和处理情报的能力，根据实验结果，将发射更多颗卫星。由小型卫星构筑的监视网络被称为“卫星星座”，小型卫星单体重约100千克至500千克不等，搭载有摄像头、探测器等装备，具备收集地表情报能力，被发射后将在约400千米高的低空轨道上围绕地球转动。
+欧洲药品机构称，有关新冠疫苗的副作用数据可以直接从[ADReports.eu](https://www.adrreports.eu/en/index.html)这一网站取得，所有用户都能接入查询总数。
 
-至于作用，报道声称，鉴于中共和俄罗斯正在推进“高超音速滑翔飞行器（HGV）”（即高超音速导弹）的研发，日本计划在将来利用“卫星星座”对HGV实施监控与追踪。报道称，地面上的雷达很难发现并追踪以超5倍音速的速度在近乎平行于大气层飞行的HGV，但如果建立了“卫星星座”，则可以从太空捕捉到HGV的动向。
+这些数据均直接来自[EudraVigilance](https://www.adrreports.eu/en/data_source.html)——这是一个获取药物疑似副作用的系统，建立的第一要务是为了更好地评估研发阶段药物可能存在的风险以及疗效。系统中的数据都是由欧盟各国的管理机构和药品公司提交汇报的，考虑到利益和政治因素，整体数据或许还存在被低估的可能。
 
-另一方面，除了对抗HGV，报道称，卫星监视网络还将用于监视海上可疑船只、收集自然灾害信息等方面。此外，报道称，构筑能够涵盖全球的卫星监视网络将需要巨额资金，日本考虑在构筑方面与美国合作。
+以辉瑞疫苗的mRNA成分举例，该报告中出现最多的副作用主要为一般性功能障碍、肌肉骨骼及结缔组织障碍、神经系统障碍以及胃肠道功能障碍，副作用回报的总数均在十万例以上。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/222-2.png)辉瑞疫苗副作用数据截图；来源：ADReports.eu
+同时呼吸道障碍、生育哺乳障碍、皮肤组织障碍、心脏问题、血淋巴系统障碍也都是接种辉瑞之后较为常见的副作用。
 
-信息来源：
+其它品牌的mRNA疫苗，例如阿斯利康和莫德纳，似乎也都遵循着类似模式，报告中出现的主要副作用与辉瑞基本相同——不过阿斯利康疫苗出现神经性障碍的风险似乎还要更大。同时报告显示，三种疫苗的女性副作用案例均多于男性，而且几乎都是超出约一倍左右。
 
-[日媒：为监控中俄“高超音速导弹”，日本计划构筑“卫星星座”，还要与美国合作](https://3g.k.sohu.com/t/n568295241?serialId=6cac23dccfec7006a6780fb3c3895cdf&amp;showType=)
+参考链接：[Red Voice Media](https://www.redvoicemedia.com/2021/11/just-in-over-30000-covid-shot-deaths-1-1-million-adverse-drug-reactions-european-medicines-agency-data-shows/)
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

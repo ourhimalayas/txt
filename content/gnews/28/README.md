@@ -2,30 +2,35 @@
 ---
 
 
-## 老百姓又被平均了！2020年中共国人均存款增加约1万元，11个城市人均存款超10万元？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684772/)
+## 有声|班农先生谈爆料革命的历史意义
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1684791/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-167.png)[图片来源](https://sunnews.cc/zhihu/631401.html)
-根据近期中共国家统计局编写出版的《中国统计年鉴2021》显示，截至2020年年末，45个重点城市中住户存款余额超过10万元的共有11个城市，分别是北京、上海、杭州、沈阳、广州、太原、天津、深圳、大连、南通、南京。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月20日，在“1120”纪念日大直播中，班农先生谈到爆料革命对中国人，对人类世界的重大历史意义。
 
-其中，北京、上海的人均存款金额依然位居前两位，分别为19.6万元和14.8万元。而排行第3至第10的8个城市的人均存款额则差距不大，从11.9万元至10.5万元不等。
+班农先生指出，美国不能给中国人自由，只有中国人才能给中国人自由。爆料革命揭露中共犯罪的证据，让美国和全世界民众认识到，中共不是一个合法政府，它是一个国际的跨国犯罪集团。
 
-根据此前中国人民银行公布的数据，2020年中共国全年人民币存款增加19.65万亿元，其中住户存款增加11.3万亿元。这相当于全国人均年存款增加约1万元。
+班农先生回顾，人类历史的任何一场革命运动，一定会有背叛。但是“背叛”只是杂音，爆料革命传递的是有价值真实的声音。自2020年1月中共病毒爆发，法治基金，爆料革命，将病毒和疫苗的真相和证据公之于世。向世界发出警告，中共将持续释放新的病毒。
 
-根据中共官方今年的另外一个调查统计数据，全国的负债人数已经达到7.8亿，逾期率高达42%，也就是说全国至少3亿人负债已逾期，被执行的“不诚信人员”数量已达570万，相当于每250个中国人中就有一个是老赖，这里的负债包括房贷、网贷、信用卡透支、花呗借呗等。
+班农展望，郭文贵先生引领的爆料革命，将会超越古印度，古希腊文明，超越基督教，建立历史上最优秀，最伟大的文明。
 
-从3个中共官方数据可以得出，老百姓又被增收被平均了！
 
-信息来源：
 
-[12城住户存款超万亿元：北京人均存款近20万元，北方人更爱存钱？](https://3g.k.sohu.com/t/n568259747?serialId=28a4c05176a1f8e8904de3172b1dd406&amp;showType=)
+文字版原文：[班农先生谈爆料革命的历史意义](https://gnews.org/zh-hans/1682507/)
 
-[46万家企业倒闭，7.8亿人负债，99％中国人收入真相，骗了无数国人！](https://www.163.com/dy/article/GF9MHT0O0548EKJ6.html)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

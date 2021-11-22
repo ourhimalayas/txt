@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/22/2021 10:25 AM (UTC)`
+
+11/20/2021 [3rd Anniversary of 1120] Steve Bannon: FayFay's care for her mother who had contracted the CCP virus showed the love of the new Chinese for their families, while the fellow fighters taking care of my family infected by the virus showed the spirit of the New Federal State of China; the power of the new Chinese is their respect for their parents, ancestors, and families, and such a power can help us destroy the CCP more quickly<br/><br/>11/20/2021【1120三周年纪念】班农先生：飞飞对染上中共病毒的母亲的悉心照料展现了新中国人对家庭的爱，而战友们照顾我染上病毒的家人则体现了新中国联邦的精神；新中国人的伟大力量是对父母、祖先和家庭的尊敬，这种力量有助于我们更快地灭掉中共
+![img](https://media.gettr.com/group5/getter/2021/11/22/10/25/2fad439e-15b9-b313-829d-4833b284e0d2/out.jpg)
+
+---
+
+`@miles 11/22/2021 10:18 AM (UTC)`
+
+11/20/2021 [3rd Anniversary of 1120] Steve Bannon: Although Germany may implement vaccine mandate like Austria, the awakened majority of Germans will not kowtow to dictatorship, and democracy will surely prevail because the most powerful things we have are democracy and the ballot box; the Rule of Law Foundation is still young, but the CCP and its accomplices are already freaking out and the New Federal State of China is bound to win<br/><br/>11/20/2021【1120三周年纪念】班农先生：尽管德国可能会仿效奥地利实施强制疫苗接种，但觉醒的大多数德国人不会向独裁屈服，民主一定会胜利，因为我们所拥有的最强大的东西是民主制和投票箱；法治基金虽然还很年轻，但中共及其同伙已魂飞胆丧，新中国联邦注定会赢！
+![img](https://media.gettr.com/group47/getter/2021/11/21/22/47/a4dc1cfd-8ff7-8ffb-5efb-cbed320b309c/out.jpg)
+
+---
+
 `@miles 11/22/2021 2:12 AM (UTC)`
 
 11月21号：这是从2019年买下了盘古的这块土地．到2008年的九年筑城的结果……土地是农民的……企业是百分之百私人的……企业的盈利到目前为止是全中国最高的……负载率是全国最低的……无数个无数个的第一．和唯一，发生在这九年里，最后她却被共产党抢走了！中共和美国最大的不同，就是中共国私人财产不受保护，而且却因为创造的财富和对社会的贡献……会导致有杀身灭家之祸，这就是我们今天新中国联邦人……在美国还有西方法治社会．最要珍惜的私人财产可依法受到保护，每个人都可以。安全的有尊严的享受自己的财富！
@@ -288,20 +302,6 @@ One Southern California Mayor takes a stand against 'totalitarian' vaccine manda
 
 11月18日: 笨笨说，“Snow，出来跟我玩儿嘛……” Snow说, “我不要啦，让我静静的做个美男子好不好啦 ！”😆😆😆😆😆😅😅😅😅😅 
 ![img](https://media.gettr.com/group4/getter/2021/11/18/20/17/dca0bb66-91da-0a0a-e81d-8bf35e06da61/out.jpg)
-
----
-
-`@miles 11/18/2021 8:09 PM (UTC)`
-
-11月18日: 笨笨喜欢啃啃啃… 玩得好开心啊～ 😘😘❤️❤️❤️❤️
-![img](https://media.gettr.com/group45/getter/2021/11/18/20/09/056c8563-1371-f372-006e-b2f571fbb29f/out.jpg)
-
----
-
-`@miles 11/18/2021 8:02 PM (UTC)`
-
-11月18日： 可爱的笨笨和Snow嬉闹的日常生活🥰🥰🥰
-![img](https://media.gettr.com/group8/getter/2021/11/18/20/02/db601031-2e53-9fe5-543a-56e24ca9b7d5/out.jpg)
 
 ---
 

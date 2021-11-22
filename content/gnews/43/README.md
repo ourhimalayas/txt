@@ -2,26 +2,40 @@
 ---
 
 
-## 迪斯尼世界停止执行疫苗任务
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1684394/)
+## 打过疫苗死亡的人比没打的人多四倍，主流媒体不报道
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1684417/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-97.png)
-图片来源：网络截图
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-据合众国际社11月21日报道，  在佛罗里达州州长罗恩·德桑提斯（Ron DeSantis）上周签署了一项禁止此类工作场所限制的法律后，迪斯尼已暂停了对其迪斯尼世界公园工人的中共病毒疫苗的强制要求。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/l_dead-body-free-deliver-from-hospital-rajasthan-1484617778_835x547-700x430-1.jpg)
 
-迪斯尼公司在给《华盛顿邮报》的一份声明中说，虽然它仍然相信其“强制接种疫苗的方法是正确的”，但它将根据法律的发展酌情处理。
 
-迪斯尼此前曾经宣布，它将要求其员工在秋季前完全接种疫苗。
+ 
+图片来源：www.pratidintime.com
 
-根据上周佛罗里达州立法机构特别会议通过的立法，不得对政府和公共教育雇员以及私营企业进行中共病毒疫苗的强制要求。它还禁止公立学校的口罩任务，保护未接种疫苗的员工不会因联邦的疫苗任务而失去工作，并废除了外科医生强制注射疫苗的权力。
 
-当一项要求数百万联邦雇员、政府承包商和医疗工作者接种中共病毒疫苗的联邦任务将于周一生效时，迪斯尼决定停止它的强制疫苗要求。
+#### 编译：小红帽
 
-该联邦任务在被联邦上诉法院搁置后，职业安全与健康管理局的这项影响到拥有100名以上工人的公司的紧急命令仍然处于停滞状态。
+英国卫生安全局（UKHSA）中共病毒（COVID-19）疫苗监测报告的最新数据显示，有一个“未接种疫苗 ”而“感染”中共病毒的人死亡，就至少有四个“完全接种疫苗”的人死亡。
 
-新闻来源：[Disney World halts vaccine mandate; cases, hospitalizations rising in Michigan](https://www.upi.com/Top_News/US/2021/11/21/Disney-World-halts-vaccine-mandate-cases-hospitalizations-rising-Michigan/1601637530108/)
+据数据显示，绝大多数报告的中共病毒死亡病例（82%）是发生在人们接种中共病毒疫苗之后。这个事实直接违背了疫苗制造商声称的90%的死亡预防率。(注：早在9月，英国国家统计局报告说，当月对中共病毒检测为“阳性”并死亡的人几乎都“完全接种”了中共病毒疫苗）。
+
+中共病毒疫苗正在破坏人们的免疫系统–造成一种免疫缺陷病，类似于艾滋病，但该病却是由疫苗引起的。这种相关性非常明确的，但主流媒体却没有报道。
+
+《曝光报》报道说：“在中共病毒疫苗接种活动启动两个月后，死亡人数急剧增加，高于五年的平均水平”。
+
+任何宣传“疫苗是安全和有效的”口号的人都是不诚实的。任何鼓励、胁迫或强迫他人进行实验性医疗程序的人都是在实施、协助、教唆、故意伤害人。主流媒体正在传播错误信息和虚假信息–关掉电视，神经语言编程节目正在被用来对付你。
+
+**参考新闻：**[FOUR TIMES more vaxxed people are dying than unvaxxed… depopulation effects are kicking in and the bodies are piling up – NaturalNews.com](https://www.naturalnews.com/2021-11-21-4x-more-vaxxed-people-dying-compared-to-unvaxxed.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
