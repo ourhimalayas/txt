@@ -2,32 +2,34 @@
 ---
 
 
-## 欧洲各地爆发反对封锁和疫苗抗议活动
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1685659/)
+## 回避与中共领导线下会议之后，日本首相将会晤越南总理
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1685693/)
 
-作者：美东香草山农场 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-随着新冠病毒感染人数的增加，欧洲各国政府实施了新的封锁限制和严厉的强制疫苗措施。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-22-下午10.45.02.png)
-欧洲时间11月20日，欧洲多地爆发了大规模的示威活动，反对封锁，以及强制疫苗政策。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-8.png)
+[图片来源](https://udn.com/news/story/6812/5364108)
 
-约有3.8万人在维也纳游行，反对实施新的封锁限制。在罗马，大约四千人聚集在马克西姆广场，”自由 “的呼声在古老的体育场响起。荷兰也爆发多起大规模抗议示威活动。在瑞士苏黎世，大约两千人进行了抗议。据悉，计划在本月晚些时候举行的，关于疫苗护照的全国公投之前，瑞士各地还将举行其他示威活动。在英国曼彻斯特和伦敦，疫苗护照抗议者举行了游行活动，另外，大规模抗议活动也出现在奥地利大使馆外。
+日本共同社11月22日报道，日本首相岸田文雄24日下午将与越南总理范明政在官邸举行会谈。据外务省介绍，外国首脑访日是10月岸田政府上台以来首次。
 
-参考链接：
+鉴于中共的海洋活动，双方拟围绕推进“自由开放的印度太平洋”构想展开磋商。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+预计岸田与范明政还将在会谈中确认加强中共病毒疫情防控合作。两人计划在会谈后举行联合记者会，岸田还将在公邸举办晚宴。
 
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：呼吸的雾霾（文小呼吸）
+据悉，岸田与欧洲理事会主席米歇尔拟29日在日本举行面对面会谈，正在进行最终协调。日本防卫相岸信夫23日将与越南国防部长潘文江在防卫省举行会谈。日本国内的线下外交开始陆续展开。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+另据共同社11月21日消息，鉴于当前美中对立和日中关系紧张加剧，日中韩领导人会议继去年之后，今年也拟不举行，包括线上会议。
+
+当前，中共在国际上已成众矢之的、人人嫌弃，可以说，各国领导人都怕与其见面粘上晦气。
+
+信息来源：
+
+[岸田24日将与越南总理会谈 开启线下外交](https://china.kyodonews.net/news/2021/11/ae888ee6a415-24-.html)
+
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-4.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
