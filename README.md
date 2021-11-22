@@ -15,107 +15,107 @@
 
 ---
 
-### [中共国将与立陶宛外交关系降级 台湾批北京“蛮横”](/content/gnews/1/README.md)
+### [G时评：还富于民与藏富于民](/content/gnews/1/README.md)
+ ` GISELLE`
+
+### [9架共机扰台 轰6入台湾东南空域](/content/gnews/2/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [喜马拉雅真义初解：新中国联邦人的灵魂是有使命的](/content/gnews/2/README.md)
+### [中共国将与立陶宛外交关系降级 台湾批北京“蛮横”](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [喜马拉雅真义初解：新中国联邦人的灵魂是有使命的](/content/gnews/4/README.md)
  ` 秘密翻译组-原创组`
 
-### [班农：我们不会只是坐在那里，我们要进攻（粤语配音）](/content/gnews/3/README.md)
+### [班农：我们不会只是坐在那里，我们要进攻（粤语配音）](/content/gnews/5/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [中共利用联合国的系统 在全球增加有悖自由的影响](/content/gnews/4/README.md)
+### [中共利用联合国的系统 在全球增加有悖自由的影响](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国以违反反垄断法为由对科技巨头处以罚款](/content/gnews/5/README.md)
+### [中共国以违反反垄断法为由对科技巨头处以罚款](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [雅典娜时报-第120期](/content/gnews/6/README.md)
+### [雅典娜时报-第120期](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [刚果金矿遇袭，8名中国人被绑架](/content/gnews/7/README.md)
+### [刚果金矿遇袭，8名中国人被绑架](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳洲多名议员反对强制疫苗，政府议案难以通过参议院](/content/gnews/8/README.md)
+### [澳洲多名议员反对强制疫苗，政府议案难以通过参议院](/content/gnews/10/README.md)
  ` 走进澳洲`
 
-### [日本公布岸田文雄内阁平均总资产为9440万日元](/content/gnews/9/README.md)
+### [日本公布岸田文雄内阁平均总资产为9440万日元](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [布林肯：在中共国影响力上升之际，美国仍然可以让非洲受益](/content/gnews/10/README.md)
+### [布林肯：在中共国影响力上升之际，美国仍然可以让非洲受益](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [反对强制疫苗的宝琳·汉森议员对政府发出最后通牒](/content/gnews/11/README.md)
+### [反对强制疫苗的宝琳·汉森议员对政府发出最后通牒](/content/gnews/13/README.md)
  ` 走进澳洲`
 
-### [串珠460:天津大爆炸不是人为，是腐败官僚的结果](/content/gnews/12/README.md)
+### [串珠460:天津大爆炸不是人为，是腐败官僚的结果](/content/gnews/14/README.md)
  ` 郭爆料串珠`
 
-### [职业运动员凯尔·华纳哭诉自己因传播疫苗真相被孤立打压几近崩溃](/content/gnews/13/README.md)
+### [职业运动员凯尔·华纳哭诉自己因传播疫苗真相被孤立打压几近崩溃](/content/gnews/15/README.md)
  ` 澳喜农场`
 
-### [德国医院院长因抗拒政府疫苗接种命令而自杀身亡](/content/gnews/14/README.md)
+### [德国医院院长因抗拒政府疫苗接种命令而自杀身亡](/content/gnews/16/README.md)
  ` 日本东京方舟农场`
 
-### [英国也在考虑外交抵制北京冬奥会](/content/gnews/15/README.md)
+### [英国也在考虑外交抵制北京冬奥会](/content/gnews/17/README.md)
  ` 日本东京方舟农场`
 
-### [日本多地民众游行抗议政府以疫情为由实施各项限制措施](/content/gnews/16/README.md)
+### [日本多地民众游行抗议政府以疫情为由实施各项限制措施](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [11/20/2021【1120三周年纪念】班农先生：法治基金虽然还很年轻，但中共及其同伙已魂飞胆丧，新中国联邦注定会赢](/content/gnews/17/README.md)
+### [11/20/2021【1120三周年纪念】班农先生：法治基金虽然还很年轻，但中共及其同伙已魂飞胆丧，新中国联邦注定会赢](/content/gnews/19/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共第三份重要历史决议将如何影响中国人的命运](/content/gnews/18/README.md)
+### [中共第三份重要历史决议将如何影响中国人的命运](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [11/20/2021【1120三周年纪念】班农先生：新中国人的伟大力量是对父母、祖先和家庭的尊敬，这种力量有助于我们更快地灭掉中共](/content/gnews/19/README.md)
+### [11/20/2021【1120三周年纪念】班农先生：新中国人的伟大力量是对父母、祖先和家庭的尊敬，这种力量有助于我们更快地灭掉中共](/content/gnews/21/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共当局对民企发动新一轮“割韭菜运动”](/content/gnews/20/README.md)
+### [中共当局对民企发动新一轮“割韭菜运动”](/content/gnews/22/README.md)
  ` 日本东京方舟农场`
 
-### [奥委会官员称与彭帅进行了30分钟视频通话](/content/gnews/21/README.md)
+### [奥委会官员称与彭帅进行了30分钟视频通话](/content/gnews/23/README.md)
  ` HimalayaRussia`
 
-### [癌症专家：英国非covid死亡人数将继续上升](/content/gnews/22/README.md)
+### [癌症专家：英国非covid死亡人数将继续上升](/content/gnews/24/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [秘翻在线: 中共粮食进口创新高](/content/gnews/23/README.md)
+### [秘翻在线: 中共粮食进口创新高](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本要闻汇编 11月21日](/content/gnews/24/README.md)
+### [日本要闻汇编 11月21日](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [据泄露的数据显示，辉瑞公司与中国共产党沆瀣一气](/content/gnews/25/README.md)
+### [据泄露的数据显示，辉瑞公司与中国共产党沆瀣一气](/content/gnews/27/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [司马南硬杠柳传志 女秘书急设鸿门宴](/content/gnews/26/README.md)
+### [司马南硬杠柳传志 女秘书急设鸿门宴](/content/gnews/28/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [英官方报告显示大部分染疫逝者完全接种了疫苗](/content/gnews/27/README.md)
+### [英官方报告显示大部分染疫逝者完全接种了疫苗](/content/gnews/29/README.md)
  ` HimalayaRussia`
 
-### [11/18/2021：俄罗斯议员猛批社会主义，警告习近平独裁统治，强大的中国会拖俄罗斯下水](/content/gnews/28/README.md)
+### [11/18/2021：俄罗斯议员猛批社会主义，警告习近平独裁统治，强大的中国会拖俄罗斯下水](/content/gnews/30/README.md)
  ` 秘密翻译组-北美组`
 
-### [从李云迪事件联想开去](/content/gnews/29/README.md)
+### [从李云迪事件联想开去](/content/gnews/31/README.md)
  ` 秘密翻译组-原创组`
 
-### [香草山翻译部周刊|2021年11月21日第23期](/content/gnews/30/README.md)
+### [香草山翻译部周刊|2021年11月21日第23期](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [世界上最大的收藏家汽车拍卖行开始接受加密货币付款](/content/gnews/31/README.md)
+### [世界上最大的收藏家汽车拍卖行开始接受加密货币付款](/content/gnews/33/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [斯科特·莫里森抨击各州的疫苗强制令：“退后一步”](/content/gnews/32/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【玫瑰看新闻】 【回魂时刻】- 196期 疫苗受害者专题新闻11#](/content/gnews/33/README.md)
+### [【玫瑰看新闻】 【回魂时刻】- 196期 疫苗受害者专题新闻11#](/content/gnews/34/README.md)
  ` 新西兰新联邦新闻摘要`
-
-### [DC大中华时事： 中方决定将中立两国外交关系降为代办级](/content/gnews/34/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [美国劳工部暂停实施拜登强制接种令](/content/gnews/35/README.md)
  ` 纽约香草山MOS01`
