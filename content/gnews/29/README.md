@@ -2,27 +2,49 @@
 ---
 
 
-## 疫情之下的北京虚假擀面杖经济
-` 银河勇气之星` [轉載自GNews](https://gnews.org/zh-hans/1684593/)
+## 苏格兰新生儿死亡数量猛增
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1684759/)
 
-文：冬立风雪烈
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1111-6.jpg)
-随着北京冬奥会的临近，北京市为加大疫情防控力度，最新出台规定:2021年11月17号开始，所有进（返）京人员，必须持48小时内的核酸检测阴性证明和北京健康宝绿码，14日内有一例及以上本土新冠病毒感染者所在县（市、区、旗）旅居史人员严格限制进（返）京。随着新规的执行，使原本疲软的第三产业愈发雪上加霜，沉疴难起。
+作者：纽约香草山佛教部 – 文一
 
-从习神2017年底开始大规模驱逐清理低端人群出京开始，一直到使用行政手段，强迫那些劳动密集型产业搬迁，（包括那些拥有产权的大型批发市场的强制关闭）从未停止。经过近五年的折腾，加之CCP病毒的影响，更加使帝都经济遍地哀鸿，一片死寂。
 
-仅以笔者熟悉的北京某实体产业为例，从2017年下半年驱逐所谓的外来低端人口开始，造成工厂招工困难，产能下降，随后又以限煤限电来迫使工厂关闭、搬迁离京。随着产业上游的大量工厂关闭离京，以及通过行政手段，经过三轮对成熟的大型相关批发市场的关停迁转，彻底摧毁了改开近三十年发展起来的享誉大半个中国的北京产业基地。曾经摩肩接踵 辉煌无比的动物园批发市场 大红门批发商圈 阜成门天意市场，如今门可罗雀，如这寒冷的严冬一样萧条瑟瑟。也使周边的物流快递餐饮等行业纷纷关门歇业。
 
-从零售业具体业绩来看，更加直观。自2017年下半年开始到目前，呈断崖式下降，特别是CCP病毒爆发以来更是雪上加霜。一系列的封城限行，使得外地及北京周边的消费人群不能进京，客流锐减；更让商家发怵的是，消费力也是直线下降，原来单价三五百元（人民币 下同）的一件商品，普罗大众还能接受，到如今那些超过一百元的少人问津，而那些50元以下特别是30元以下的廉价货品却备受亲睐。这还是墙内一线城市－帝都的消费水平，可想而知墙内的普通百姓的整体消费水平现如今降到何种地步。管中窥豹，也更加佐证了文贵先生提前预警的明年是中共国的经济灾难年这一论断。 失去经济的支撑，随着明年五月份世界疫苗次生灾难的大规模爆发；随着墙内百姓衣食住行的愈发陷入困顿；随着西方文明国家民众的大觉醒以及对CCP邪恶本质的认清；更随着文贵先生领导的爆料革命的蓬勃发展特别是G系列创建兴起，以及对世界越来越大的影响力，CCP的土崩瓦解必将提前到来。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-* * *
 
-作者：冬立风雪烈
-审核：兵嫂
-发布：骄子
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-![](https://assets.gnews.org/wp-content/uploads/2021/09/欢迎战友回家-1.jpeg)
+据苏格兰媒体11月19日报道，9月份，苏格兰有21名婴儿在出生后28天内死亡。为此，苏格兰公共卫生部正在与苏格兰政府，正在调查新生儿死亡激增的原因。
+
+官方数据显示，9月份，每1,000名活产婴儿中有约5名死亡。这是自1980年以后出现的最高死亡率。 此消息经盖特转帖后，网友纷纷留言，质疑这些婴儿的母亲是否已接种了疫苗，甚至有网友认为这就是“疫苗谋杀”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-8.jpg)
+参考链接：
+1. [UK Health Security Agency Releases Data Shows Most COVID-19 Deaths in England are Fully Vaccinated](https://www.thegatewaypundit.com/2021/11/uk-health-security-agency-releases-data-shows-deaths-england-fully-vaccinated/)
+2. [Those poor little souls **🙏🏻**](https://gettr.com/post/phi1es9902)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：文特
+编辑：飞虹，雪梨
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

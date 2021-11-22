@@ -2,35 +2,26 @@
 ---
 
 
-## 有声|白宫要求中共交待彭帅下落
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1684789/)
+## 日美合作构筑“卫星星座”，监控中俄“高超音速导弹”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684799/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月19日，白宫发言人莎琪（Jen Psaki）在白宫简报会中发表声明，要求中共交代彭帅下落，证明她人身安全。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-152.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs.secrss.com%2Fanquanneican%2F489ed43ed822e297d221a48dca2ac9b4.jpg&amp;imgrefurl=https%3A%2F%2Fwww.secrss.com%2Farticles%2F3578&amp;tbnid=jCYNLjLdzR1_yM&amp;vet=12ahUKEwiU-Ln9wKv0AhUQZ5QKHfj1AyYQMygEegUIARChAQ..i&amp;docid=OImJFXJSFlnUlM&amp;w=600&amp;h=402&amp;q=%E5%8D%AB%E6%98%9F%E7%9B%91%E8%A7%86%E7%BD%91%E7%BB%9C&amp;ved=2ahUKEwiU-Ln9wKv0AhUQZ5QKHfj1AyYQMygEegUIARChAQ)
+日本《读卖新闻》22日报道，多名日本政府相关人士透露，为了监控、追踪中共与俄罗斯正在研发的“高超音速导弹”，日本计划构筑卫星监视网络，并于2025年前后发射三颗卫星进行实验。
 
-11月初，女网选手彭帅在微博上揭露自己多年前遭受中共副总理张高丽性侵。该文在发布半小时后被撤下，彭帅从此失联。
+据报道，在发射三颗卫星后日本将测试卫星通信和处理情报的能力，根据实验结果，将发射更多颗卫星。由小型卫星构筑的监视网络被称为“卫星星座”，小型卫星单体重约100千克至500千克不等，搭载有摄像头、探测器等装备，具备收集地表情报能力，被发射后将在约400千米高的低空轨道上围绕地球转动。
 
-莎琪表示，美国支持女性发声及究责的权力，任何性侵的指控都应被调察。 莎琪指出，中共一直控制舆论，迫害自由发声的人民。美国谴责此行为。
+至于作用，报道声称，鉴于中共和俄罗斯正在推进“高超音速滑翔飞行器（HGV）”（即高超音速导弹）的研发，日本计划在将来利用“卫星星座”对HGV实施监控与追踪。报道称，地面上的雷达很难发现并追踪以超5倍音速的速度在近乎平行于大气层飞行的HGV，但如果建立了“卫星星座”，则可以从太空捕捉到HGV的动向。
 
-近日，多位知名网球名将、美国国会议员、世界职业女网协会、联合国人权委员会等人士相继声援彭帅。
+另一方面，除了对抗HGV，报道称，卫星监视网络还将用于监视海上可疑船只、收集自然灾害信息等方面。此外，报道称，构筑能够涵盖全球的卫星监视网络将需要巨额资金，日本考虑在构筑方面与美国合作。
 
+信息来源：
 
+[日媒：为监控中俄“高超音速导弹”，日本计划构筑“卫星星座”，还要与美国合作](https://3g.k.sohu.com/t/n568295241?serialId=6cac23dccfec7006a6780fb3c3895cdf&amp;showType=)
 
-文字版原文：[白宫要求中共交待彭帅下落](https://gnews.org/zh-hans/1682219/)
-
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
-
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

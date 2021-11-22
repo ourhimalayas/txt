@@ -2,33 +2,27 @@
 ---
 
 
-## 有声|喜币的未来与威胁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1684793/)
+## 最新欧洲医疗数据记录超百万疫苗副作用案例
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1684840/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月19日，文贵先生在大直播中详细描绘了喜币的未来。11月19日，文贵先生在大直播中详细描绘了喜币的未来。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/11/221.jpg)图片来源：Pexels免费照片资料库；摄影：Nataliya Vaitkevich
+最新出炉来自欧洲医疗机构的数据显示，人们怀疑疫苗效用和潜在危害是完全正确的。根据欧盟有关药物反应的数据库显示，截至11月13日，已经有超过30,000疫苗注射死亡案例以及超百万的副作用报告。相关疫苗品类包含辉瑞、莫德纳、强生以及阿斯利康。
 
-第一，喜币在强大的技术支撑下，将在现有的法币支付体系之外，开辟并完善自己独特的支付体系——先进的区块链技术、严密的KYC系统、中心化的管理系统。目前喜支付已经被迪拜知名房地产公司接受。随着被越来越多的实体和国家认可，喜币将以其便捷、安全、自由的优势迅速形成自己独特的支付体系。
+欧洲药品机构称，有关新冠疫苗的副作用数据可以直接从[ADReports.eu](https://www.adrreports.eu/en/index.html)这一网站取得，所有用户都能接入查询总数。
 
-第二，喜币的发展离不开新中国联邦。喜币是新中国联邦成长的基石，将在新中国联邦的护佑下健康成长。新中国联邦的庞大体系，以及新中国联邦人在全球积累的信用，都是支撑喜币强势成长的源泉。
+这些数据均直接来自[EudraVigilance](https://www.adrreports.eu/en/data_source.html)——这是一个获取药物疑似副作用的系统，建立的第一要务是为了更好地评估研发阶段药物可能存在的风险以及疗效。系统中的数据都是由欧盟各国的管理机构和药品公司提交汇报的，考虑到利益和政治因素，整体数据或许还存在被低估的可能。
 
-第三，喜币的强势成长面临三个方面的挑战——传统法币体系中获益的华尔街、推翻并取代美元地位的中共；以及其他实力不如喜币的虚拟币。
+以辉瑞疫苗的mRNA成分举例，该报告中出现最多的副作用主要为一般性功能障碍、肌肉骨骼及结缔组织障碍、神经系统障碍以及胃肠道功能障碍，副作用回报的总数均在十万例以上。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/222-2.png)辉瑞疫苗副作用数据截图；来源：ADReports.eu
+同时呼吸道障碍、生育哺乳障碍、皮肤组织障碍、心脏问题、血淋巴系统障碍也都是接种辉瑞之后较为常见的副作用。
 
-文字版原文：[喜币的未来与威胁](https://gnews.org/zh-hans/1682831/)
+其它品牌的mRNA疫苗，例如阿斯利康和莫德纳，似乎也都遵循着类似模式，报告中出现的主要副作用与辉瑞基本相同——不过阿斯利康疫苗出现神经性障碍的风险似乎还要更大。同时报告显示，三种疫苗的女性副作用案例均多于男性，而且几乎都是超出约一倍左右。
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+参考链接：[Red Voice Media](https://www.redvoicemedia.com/2021/11/just-in-over-30000-covid-shot-deaths-1-1-million-adverse-drug-reactions-european-medicines-agency-data-shows/)
 
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

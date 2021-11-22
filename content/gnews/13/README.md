@@ -2,48 +2,24 @@
 ---
 
 
-## 法国首家“台湾华语文学习中心”成立
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1684798/)
+## 美军正开发摧毁高超音速导弹的拦截系统
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1684874/)
 
-作者：纽约香草山医疗部 – 云豹
+#### 撰稿：彩虹   
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-16.jpg)图片来源：国家利益
+在川普总统执政时期，美国太空部队正式成立。面对中共国成功进行的高超音速导弹试验，太空部队作战部副部长戴维·汤普森（David Thompson）将军警告美国“要迅速赶上”，11月21日，《新闻极限》对此做了报道。
 
+文章引用《政客》（Politico）的报道，在哈利法克斯国际安全论坛上，汤普森说：“在高超音速项目方面，我们（美国）不如中国和俄罗斯先进”，但太空部队正计划“找出相应的所需卫星群”。这位将军认为，“这是一个新的挑战，但并不是说我们没有应对这个挑战的答案。我们只是需要了解它，充分地设计规划，然后成功实行”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+根据报道，距离能够拥有和展示高超音速导弹，美国仍然还需要几年的努力。目前，陆军计划2024年配备一枚，海军计划2025年在一艘驱逐舰上配备一枚，2028年在一艘潜艇上配备一枚。
 
+此外，报道指出，导弹防御局已经与雷神公司（Raytheon）、洛克希德·马丁公司（Lockheed Martin）和诺斯罗普·格鲁曼公司（Northrop Grumman）签订了合同，以开发能够摧毁已发射高超音速导弹的系统，这种高超音速滑翔阶段拦截系统将能够在导弹于大气层上滑翔时将其摧毁。
 
+**新闻来源**
 
-法国首家推广繁体华文的“台湾华语文学习中心”，于11月20日在巴黎亭林中文学校正式成立，目标在于推广繁体华文的学习，以及促进台法间的文化双向交流学习。
-
-华语学习在世界很多国家都是一种潮流，但近二十年来，中共借此机会，以孔子学院的形式强势输出自己的华语教学体系，在教材中输出共产主义、社会主义思想，并借机收买各国年轻菁英及政治人物，建立中共渗透世界的人脉体系。
-
-近两年，世界各国逐渐认识到中共的不可信任，陆续下令关闭中共在其国内成立的孔子学院，并转向与普世价值观相近的台湾合作，由台湾提供华文学习的教材及师资，方便他们学习传统华文，了解台湾传承的由传统到创新，多层次且富含包容性的华人文化。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.3-6.jpg)
-参考链接：
-[法國首間台灣華語中心揭牌 推動正體中文學習](https://www.cna.com.tw/news/firstnews/202111210006.aspx)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[Space Force General: US Has to Catch Up With China’s Hypersonic Missiles](https://www.newsmax.com/newsfront/hypersonic-missiles-general-spaceforce/2021/11/21/id/1045591/)
 
  
 
