@@ -2,10 +2,10 @@
 ---
 
 
-## 托尼·布莱尔：对于中国，欧洲需要保持接触并增强实力
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1685287/)
+## 墨尔本人民抗议强制疫苗接种
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1685290/)
 
-11/18/2021 前英国首相托尼·布莱尔：中共在中共国境内加强中共统治的同时，对外展示出更具进攻性和自信的立场。欧洲应在对华政策方面和美国保持相同立场。
+11/20/2021 墨尔本人民抗议强制疫苗接种。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

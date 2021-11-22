@@ -2,10 +2,10 @@
 ---
 
 
-## 墨尔本人民抗议强制疫苗接种
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1685290/)
+## 美国参议院呼吁就病毒实验室泄露向中共追责
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1685292/)
 
-11/20/2021 墨尔本人民抗议强制疫苗接种。
+6/14/2021 美国参议院呼吁就病毒实验室泄露向中共追责；福奇和科技巨头也应为压制病毒真相而被追责。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
