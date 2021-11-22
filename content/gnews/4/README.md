@@ -2,75 +2,49 @@
 ---
 
 
-## 中共国网球明星在对中共高官的性侵指控后在赛现场
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1684436/)
+## 中共转移矛盾，对卖菜超市巨额罚款
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684529/)
 
-据《零对冲》作者泰勒·杜登（TYLER DURDEN）2021 年 11 月 21 日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/ps.png) 图片:彭帅，时代周刊
-本周末，国际女子网球协会 (WTA) 加紧努力寻找和联系中国网球明星彭帅，**她在本月早些时候被西方媒体广泛报道为“失踪了”。**此前她在现已删除的社交媒体帖子中对中共高级政府官员、副总理张高丽提出了令人震惊的指控，称她遭到了**这一中共高官的性侵和虐待**。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-88.jpg)[图片来源](https://www.google.com/search?q=%E5%93%84%E6%8A%AC%E5%B8%82%E4%BB%B7&amp;rlz=1C1YKST_enUS900US901&amp;sxsrf=AOaemvJaBZgpqDyQR0bTVb6vSag3HXdUwQ:1637557032683&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwiuu-2pl6v0AhXuxIsBHYNtCrwQ_AUoAnoECAEQBA&amp;biw=1366&amp;bih=625&amp;dpr=1#imgrc=Wle3xKKA3PiS6M)
+据“庄河发布”微信公众号消息，大连市庄河市市场监督管理局11月21日发布通告称，庄河市昌盛宏远生鲜超市借疫情大幅提高菜价，拟对其作出罚款50万元的行政处罚。通告全文如下：
 
-她的指控于 11 月 2 日发布，此后她就没有公开露面也听不到了她的消息，这给 WTA 敲响了警钟，WTA 无法联系到她。美国有线电视新闻网(CNN)报道了对她的下落和安全问题的担忧：“一名中共国网球明星对前国家领导人的爆炸性指控已被全面审查掩盖，在整个中共国互联网上**当局竞相清除任何提及引起反响的敏感的政治丑闻的内容**。”
+针对近期市民反映庄河市昌盛宏远生鲜超市借疫情之机大幅提高蔬菜售价问题，市场监督管理局对其进行了调查。经查，该超市于11月4日在蔬菜成本未发生明显变化的情况下，大幅提高部分蔬菜品种的零售价格，且部分蔬菜在当日市民大量采购期间对售价进行了连续上调。
 
-“彭帅，35岁，前温布尔登和法网双打冠军。根据彭帅在微博上经过验证的帐户周二发布的现已被删除帖子的截图，她指责前副总理张高丽**强迫她发生性关系**，”报告继续说道。
+庄河市昌盛宏远生鲜超市的上述行为违反了《中华人民共和国价格法》第十四条的规定，构成哄抬价格的违法行为。依据《价格违法行为行政处罚规定》，拟对其作出罚款50万元的行政处罚。
 
-据报道，中国境内有关彭帅的指控的任何新闻或报道都被**国家审查机构屏蔽**，中国社交媒体上的任何讨论似乎也被禁止。
+同时，对于食品配送过程中部分蔬菜、水果存在质量问题和服务态度问题进行严肃批评教育，责令其进行整改。
 
-周五，中国官方媒体出现了一些奇怪的照片，声称她放松在家。中共国官方控制的权威们踊跃传播这些图像之后…西方专家声称这些图像是编造的.
+我局将继续加大执法力度，严肃查处价格违法行为，巡查监管，确保市场价格稳定。
 
-[https://mobile.twitter.com/shen\_shiwei/status/1461715435385020419?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1461715435385020419%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Fmissing-chinese-tennis-star-emerges-beijing-tournament-after-sex-assault-allegations](https://mobile.twitter.com/shen_shiwei/status/1461715435385020419?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1461715435385020419%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Fmissing-chinese-tennis-star-emerges-beijing-tournament-after-sex-assault-allegations)
+庄河市市场监督管理局
 
-*沈诗伟@shen\_shiwei中共国官方媒体*
-*彭帅的微信朋友圈刚刚发布了三张最新照片，并说“周末快乐”。*
-*她的朋友们分享了这三张照片和彭的微信朋友圈截图。*
+2021年11月21日
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-59.jpg)
+据中共国内报道，大连本轮疫情从11月4日发生以来，短短五天破百，十天报告近300例。截至13日，病例主要集中在庄河的科强食品公司、海阔食品公司和庄河大学城。庄河是大连市辖的县级市。
 
+从11月4日通报首例确诊病例至今，庄河市开启居家隔离模式；
 
+11日，隔离再度收紧，街道门脸、小区居户贴起封条；89万居民闭户。
 
-*2021年11月19日*
+11月4日中午11：30左右，大连市新冠肺炎疫情防控总指挥部办公室发布通告：非必要不离连。
 
-例如，环球时报总编辑胡锡进表示，他能够确认照片的真实性，称这些照片就是她的“现状”。他说她在家里自由休息，“不想被打扰”，但很快就会出现在公众面前。
+11月4日中午1点左右，庄河外卖骑手徐东军发了一条短视频，“全城是红灯”。
 
-而这对女子网球协会(WTA)或反北京的批评者来说还不够，全球职业网球组织警告说，如果不能尽快确认这位网球明星的命运，**它将完全退出中国以示抗议**。
+所以根据以上信息中共官方4日通报首例确诊病例开始就已经实施管控措施了，再加上市民得知居家隔离模式消息后，处于对中共政府的不信任，都会抓紧采购生活物资，确保隔离期间的生活，对于超市来说疫情期间的管控造成的成本上升是必然的，提高菜价是正常的市场行为
 
-[https://mobile.twitter.com/SportsInsider/status/1461793024292409344?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1461793024292409344%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Fmissing-chinese-tennis-star-emerges-beijing-tournament-after-sex-assault-allegations](https://mobile.twitter.com/SportsInsider/status/1461793024292409344?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1461793024292409344%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Fmissing-chinese-tennis-star-emerges-beijing-tournament-after-sex-assault-allegations)
+中共政府的腐败无能，无法保障市民正常的物资供应，却又不允许市场行为调节供需，此时发布对超市的巨额罚款，其中一个目的就是转移老百姓对政府的不满，可悲可恨的是中共作恶却要老百姓买单。
 
-*体育内幕  @SportsInsider*
-*回复@SportsInsider*
-*如果没有对彭的失踪和指控进行充分调查，女子网球协会威胁要退出在中共国举行的赛事。*
-*计划于 2022 年举办的赛事包括在深圳市举行的 女子网球协会 总决赛。*
+消息来源:
 
-*2021**年1**1**月1**9**日*
+**[大连庄河：一生鲜超市借疫情大幅提高菜价 拟处50万罚款](https://www.163.com/dy/article/GPC056NT0512D3VJ.html?f=post2020_dy_recommends)**
 
-然而，据国会山报（The Hill）报道：据报在周日，她几周来首次公开露面，出现在北京举办的网球比赛中，
+[疫情困扰下的小城｜庄河“暂停”](https://j.eastday.com/p/1637034318031519)
 
-*据路透社报道，根据中国网球公开赛在微信上发布的照片​​，****彭帅于周日参加了斐乐青少年网球挑战赛总决赛****。据报道，有人看到她身着深蓝色夹克和白色裤子，在球场旁为儿童在超大号网球上签名。*
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
 
-在中共国的西方记者进一步证实了她在比赛场现身，官方媒体也报道了相关镜头…
-
-[https://mobile.twitter.com/DreyerChina/status/1462237862259134466?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1462237862259134466%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Fmissing-chinese-tennis-star-emerges-beijing-tournament-after-sex-assault-allegations](https://mobile.twitter.com/DreyerChina/status/1462237862259134466?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1462237862259134466%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Fmissing-chinese-tennis-star-emerges-beijing-tournament-after-sex-assault-allegations)
-
-*马克·德雷尔*
-*@DreyerChina*
-*周日凌晨，在北京国家网球中心的这张集体照中，彭帅在后排中间位置。*
-*2021年11月19日*
-
-[https://mobile.twitter.com/DreyerChina/status/1462242316207357954?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1462242316207357954%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Fmissing-chinese-tennis-star-emerges-beijing-tournament-after-sex-assault-allegations](https://mobile.twitter.com/DreyerChina/status/1462242316207357954?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1462242316207357954%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zerohedge.com%2Fgeopolitical%2Fmissing-chinese-tennis-star-emerges-beijing-tournament-after-sex-assault-allegations)
-
-*马克·德雷尔@DreyerChina*
-*这是相当重要的，因为（据我所知）这是彭自她最初的微博帖子以来第一次出现在任何形式的\*中文\*媒体上。*
-*目前尚不清楚这是否会阻止有关中共国当局是否已将她软禁在家或监禁起来的疯狂猜测。*
-
-*2021**年1**1**月1**9**日*
-
-还有一个简单的可能性是，巨大的政治压力、公众影响以及她最初详细说明各种指控的帖子所引发的谣言使她想暂时避开聚光灯，以考虑下一步行动。也要考虑到中共国的现实：**在与一个强大的共产党国家官员较量时，她基本上是孤独的**—而中共领导人正在不惜一切代价避免尴尬事件。
-
-
-
-原文链接：
-[https://www.zerohedge.com/geopolitical/missing-chinese-tennis-star-emerges-beijing-tournament-after-sex-assault-allegations](https://www.zerohedge.com/geopolitical/missing-chinese-tennis-star-emerges-beijing-tournament-after-sex-assault-allegations)
-
-
-
-翻译：Nick｜校对：JS709｜编辑&发布：闪电训练
 
  
 

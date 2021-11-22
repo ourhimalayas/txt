@@ -2,37 +2,54 @@
 ---
 
 
-## 喜马拉雅真义初解：新中国联邦人的灵魂是有使命的
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1684261/)
+## 参议员瑞克·斯科特: 彭帅的失踪令人震惊，我对中共 掩盖性虐待指控感到愤怒
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1684289/)
 
-#### 撰稿：柯亭
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-19-at-4.55.04-PM.png)
-11月17日，文贵先生在直播中回答QMay关于喜马拉雅这个名字的由来的问题时，第一次初步解释了喜马拉雅的真义，并指出新中国联邦人的灵魂是有使命的。
+参议员瑞克·斯科特: 彭帅的失踪令人震惊，我对 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 掩盖性虐待指控感到愤怒。 很高兴国际女子网球协会 [@WTA](https://twitter.com/WTA) 表明立场，我敦促该网协现在撤出 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。 这是在中共国所有人都面临的危险，包括参加 2022 年奥运会的美国运动员。【转CNN推文：女子网球协会主席史蒂夫·西蒙曾表示，如果网球运动员彭帅的指控没有得到完全的追究和调查，他愿意放弃在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的数亿美元的业
 
-文贵先生一开始解释说，很多战友都在问这个问题，战友们的好奇心理可以理解，但请战友们别着急，现在还不能详细回答这个问题，因为有两件事还不方便做。第一个是要谈到一个关键的战友，他是我们爆料革命在墙内的支持者，甚至可能是决定着我们新中国联邦什么时候能干掉CCP的关键人物；现在还不方便谈这个战友。第二个是，细说这个事情，文贵先生自己还真的要脱衣服，脱成半光状态，展示一个战友们根本上难以相信的生理上的奇迹。
 
-文贵先生进一步解释说，我们这个肉皮囊来到这个世界上，所有人都被这个肉皮囊所吸引，也就是贪、嗔、痴、慢、疑的核心；人总是容易被这个肉体之身遭遇的生死、恐惧、衰老、得病所绝对控制，很少有人能过得了这一关；人总是怕老、怕病、怕丑。文贵先生告诉大家，这个东西是和人在这个世界上的行为有关系的。
 
-文贵先生继续解释说：我可以让你们看到我生理上的变化，你们看了绝对不会相信；我的身体的这些变化，都是在当年我和这个（神秘战友）有了喜马拉雅（之约）之后，才逐渐发生的；你只有看了你才会知道，你看现在我的这个部位有点痒了；所以说，到时候我需要给战友们展示。文贵先生幽默地补充说：我现在要是脱了那多难看；你们会以为是一青蛙来了，还是一裸体青蛙，只有肚子和两条小腿；所以，到时候（我展示之前）得装饰装饰，多健健身，再给战友们脱一下；所以兄弟姐妹们不要着急，（到时候）你们会知道的。
+> Peng Shuai’s disappearance is horrific & I’m outraged at Communist China's cover up of sexual abuse allegations. Glad [@WTA](https://twitter.com/WTA?ref_src=twsrc%5Etfw) is taking a stand & I urge it pull out of Communist China now. This is the danger all face in Communist China, including U.S. athletes in the 2022 Olympics. [https://t.co/UPNr7Td9sC](https://t.co/UPNr7Td9sC)
+> — Rick Scott (@SenRickScott) [November 20, 2021](https://twitter.com/SenRickScott/status/1462158642048864262?ref_src=twsrc%5Etfw)
 
-文贵先生提示说：战友们先了解了解喜马拉雅山是怎么来的，喜马拉雅山周围发生了些什么故事；当时我看（《喜马拉雅山》）这本书的时候，看到了当年大英帝国派出了英国人到西藏去杀人；当时整个西藏高原还不是藏教呢；西藏的过去不是藏教，是最凶残的民族，也一度信了穆斯林教。
 
-文贵先生介绍说：喜马拉雅山脉是整个亚洲80%的水源，所有的亚洲河流的水都来自于喜马拉雅山，养活了亚洲人民；喜马拉雅山周围共有千座山峰，这千座峰在人类地球变化过程中起到极为核心的作用。
 
-文贵先生继续自述说：七哥用跟战友们一样的肉体之躯亲自考察过、验证过，包括与我们这个（神秘战友）定下了喜马拉雅之约；后来七哥整个人生经历，战友们都是看见的；七哥会给战友们放更多的信息，最后来解开这个谜底之日，战友们会100%坚信，人间是有神的，人类是有主人的。
+参议员玛莎·布莱克本： [#彭帅](https://twitter.com/hashtag/%E5%BD%AD%E5%B8%85?src=hashtag_click) 的失踪是最新的迹象，这表明在 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 政府的监督下，把我们的美国队运动员送到一个充满敌意的环境中是绝对不安全的。[@SenTomCotton](https://twitter.com/SenTomCotton)[@MariaBartiromo](https://twitter.com/MariaBartiromo) 【视频中，玛莎提醒大家 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 犯下了种族灭绝罪，他们根本不在乎人命，你敢发表不同声音，他们就敢让你消失】
 
-文贵先生进一步论证说：我不相信人是猴子变的。猴子是哪来的？猴子是什么时候变成人的？为啥猴子只有男的和女的呢？为啥人和猴子啥也生不出来呢（既生不出人也生不出猴子）？为啥人和人生不出猴子呢？为啥猴子和人的基因基本近似，但猴子从来就没有人的语言？动物和人之间的最大区别是语言。人类经过多年研究发现，无论什么时候猴子的声道发出的声音是动物的语言，而不是人的语言。人类的语言河南话，能演变成今天的维吾尔话，能演变成今天很多东欧国家的语言；但为啥人类的语言没有被猴子所学会呢？而且，人类也没有读懂猴子的语言。人类是性繁殖而且是胎生，怎么能是猴子变的呢？
 
-文贵先生强调说，人类一定是源自上天，包括每个人的长相也是源自上天；（将来）喜马拉雅会告诉战友们，人类是上天整个恩造到地球的；当你知道在地球之外，特别是从速度接近于8.5马赫的飞机上往回看时，地球是弧形的，瞬间阳起阳落，能看得到地球的变化；然后你看到那大气层，大气层就是一个磁场，控制整个人类；飞出大气层就是太空，从太空到月亮、到太阳系、再到银河系。
 
-文贵先生随后提出一个问题：是哪国人发明了牛顿定律、磁场和暗物质？答案是没有一个是中国人发明的。相比之下令人笑话的是，现在CCP却幻想胸怀天下。文贵先生将CCP的这种无知和无耻做了很好的类比，说：这就好像郭宝胜要教我怎么搞政治、夏业良要教我怎么打扑克牌、熊宪民要教我怎么跟富人打交道，简直侮辱死我也。
+> The disappearance of Peng Shuai is the latest indication that sending our Team USA athletes into a hostile environment under the watch of the Communist Chinese government is simply unsafe. [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) [@MariaBartiromo](https://twitter.com/MariaBartiromo?ref_src=twsrc%5Etfw) [pic.twitter.com/wYb2jOXpbs](https://t.co/wYb2jOXpbs)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 21, 2021](https://twitter.com/MarshaBlackburn/status/1462496434188599304?ref_src=twsrc%5Etfw)
 
-文贵先生总结说，当战友们有了喜马拉雅的秘诀，就知道我们不生、不灭，生即是死、死即是生；酒囊饭袋的肉体只是一个表象，所谓万事皆空，都是在相对的条件下（的表象）。文贵先生举例说：水在火的蒸发下就什么都没有了，但不等于它不存在，它只是到了空气中，它还会回来；人放出去的屁，也都在空气中飘着，千年万年都不会消失。
 
-文贵先生提醒战友们说：物质是不会消失的，我们的灵魂是物质的、是有质量的，因此灵魂不会消失；我们新中国联邦人的灵魂一定是最高尚的、是有使命的。
 
-信息来源：[11月17日文贵大直播](https://gtv.org/broadcast/watch/6194fda8e7e7703792363973)
+美前国务卿迈克·蓬佩奥: [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 让报道武汉 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的记者消失,让讲述 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 实验室真相的医生们消失,让专业网球运动员消失,让维吾尔人消失,让香港人以及国际刑警组织的负责人消失. 咱们也让奥运会从 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 手里消失，把它放在一个世界可以引以为豪的地方。 [#抵制北京奥运会](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A?src=hashtag_click) [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hashtag_click)
+
+
+
+> The CCP has disappeared reporters writing about Wuhan virus, docs telling the truth about CCP labs, a prof tennis player, Uighurs, Hong Kongers & the head of Interpol.
+> Let’s disappear the Olympics from them & hold it in a place the world can be proud of. [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Mike Pompeo (@mikepompeo) [November 21, 2021](https://twitter.com/mikepompeo/status/1462524217816195079?ref_src=twsrc%5Etfw)
+
+
+
+参议员汤姆·科顿： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 让其自己敢于发声的奥运会运动员消失了。 他们会对我们的运动员做什么？ 乔·拜登应该立即宣布完全抵制 2022 年奥运会。转美国副国务卿谢尔曼推文：我们对网球运动员彭帅失踪的报道深表关切，我们也呼吁 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 提供独立、可核实的证据证明她的下落。 世界各地的妇女都应该认真对待和调查有关性侵犯的报告。】
+
+
+
+> The CCP disappeared their own Olympic athlete who had the courage to speak out. What will they do to our athletes? Joe Biden should announce a complete boycott of the 2022 Olympic Games immediately. [https://t.co/uiDbNVcOUa](https://t.co/uiDbNVcOUa)
+> — Tom Cotton (@SenTomCotton) [November 20, 2021](https://twitter.com/SenTomCotton/status/1462138367752212486?ref_src=twsrc%5Etfw)
+
+
+
+众议员肯·巴克： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 挟持她为人质，威胁她的生命。 我们无法相信 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的国有媒体。 这是侵犯人权。 【转推为胡锡进推文，声称获得彭帅与教练和朋友吃饭的视频】
+
+
+
+> The CCP is holding her hostage and threatening her life. We can’t trust China’s state owned media. This is a human rights violation. [https://t.co/v9gsLxnwWT](https://t.co/v9gsLxnwWT)
+> — Rep. Ken Buck (@RepKenBuck) [November 20, 2021](https://twitter.com/RepKenBuck/status/1462121868333363206?ref_src=twsrc%5Etfw)
+
+
 
  
 
