@@ -2,42 +2,30 @@
 ---
 
 
-## 加拿大联邦政府没有计划强制儿童接种疫苗
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1685882/)
+## 喜马拉雅币一周分析
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1685883/)
 
-蒙特利尔皇家山战友团 Spirit
-![](https://assets.gnews.org/wp-content/uploads/2021/11/kids.jpg)图片来源: Discover Magazine
-根据《CTV新闻》11月20日报道，加拿大联邦政府没有计划对儿童强制疫苗，但是卫生部为5至11岁儿童的第一种COVID-19疫苗开了绿灯。
+作者： 纽约香草山金融部 – ILOVE战神
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+过去一周喜马拉雅币价格从约$30上涨至最高约$40，目前回落至约$37，一周内最高涨幅突破33%。喜马拉雅币上市以来交易量突破1800万枚 ，占今年总发行量仅约1.8%。目前大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-12.jpg)
+郭文贵先生在直播中透露，喜支付将很快上线，喜币将在全球可以随时自由交换，喜币的抵押贷款功能也会在几个月内推出。美加日地区将很快开通KYC，在此之前喜币价格的上涨都还远远没有开始。
 
-卫生部长杜克洛(Jean-Yves Duclos)说，就目前的情况而言，联邦政府不会对儿童实施与成人出入境一样的行动限制。他说：”对任何年龄的儿童的疫苗接种或测试规则都没有变化。我们现在完全专注于向各省和地区交付辉瑞疫苗的剂量，以便我们能够尽快开始接种辉瑞疫苗”。
+另外本周一阿联酋迪拜的Danube Properties地产开发公司已经签署协议，同意接受喜币喜美元购买该公司开发的任何房产。Danube是阿联酋排名前十的房地产开发商，还是迪拜排名第一的建筑材料供应商。据郭文贵先生直播中透露，随着喜币进入流通领域，以及G-Fashion与G-Club的实体化发展，各类实体店都将接受喜币支付，喜币的价值将达到之前不可想象的高度，并改变人类的生活方式，三年后必将超越比特币。郭先生建议喜币的投资者可以在明年5月份卖出一点应对维持生活的需要，一年后可以考虑拿一部分做抵押，而喜币真正的价值只有在2-3年后才能显现出来。
 
-周五，加拿大卫生部授权使用辉瑞-生物技术公司的两剂儿童疫苗。这些儿科剂量的第一批货物将于周日抵达，总共290万剂将在下周末登陆。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-负责向政府提出疫苗使用建议的国家免疫咨询委员会（NACI）表示，孩子们 “可能 “会得到辉瑞公司的疫苗。
+总编：Irene木木
+编辑：文真
+校正/发稿：Fei797
 
-加拿大首席公共卫生官Theresa Tam博士在周五的新闻发布会上说：”对于NACI的任何疫苗建议，开始时说’可能会被提供给’某一组疫苗接种者，这很正常，是因为摆在他们面前的信息和例如试验的规模。但是我们希望NACI继续评估这些信息，就像一些成人建议一样，可以随着时间的推移而转变”。
-
-**NACI说，由于目前围绕小儿疫苗接种的不确定性，儿童和他们的父母和监护人应该尊重他们是否选择接种疫苗的决定，”不应该被污名化”。**
-
-Moderna公司还提交了他们的COVID-19疫苗，供加拿大卫生部批准用于6至11岁的儿童。
-
-杜克洛说，政府也不打算将COVID-19加强针纳入强制疫苗要求。他说：”根据我们现在掌握的公共卫生指导和知识，没有必要改变关于全面接种疫苗的定义的规则“。
-
-加拿大卫生部已经批准使用Moderna和辉瑞公司的疫苗作为18岁及以上人群的加强针，在完成初级疫苗课程后至少6个月进行。各省和各地区已经实施了自愿申请规则。
-
-在随后的公告中，政府官员宣布，从11月30日起，完全接种疫苗的加拿大人和从国外旅行不到72小时回国的永久居民将不再需要提供阴性分子测试的证明，例如PCR测试。
-
-杜克洛说，较短的旅行相当于较小的风险。他说：”加拿大卫生部、公共卫生局和边境官员将对那些离开不到三天的加拿大人进行随机测试，以了解我们是否确实应该继续执行这一政策，或者我们是否应该在未来对其进行修订。”
-
-加拿大没有对儿童实施疫苗强制，根据前不久的民调，有约70%的家长表示不愿给孩子接种疫苗，这些孩子可以幸免疫苗的伤害。
-
-原文链接：
-[https://www.ctvnews.ca/health/coronavirus/feds-have-no-plans-to-extend-vaccine-mandate-to-kids-duclos-1.5673952](https://www.ctvnews.ca/health/coronavirus/feds-have-no-plans-to-extend-vaccine-mandate-to-kids-duclos-1.5673952)
-
-发稿 Spirit
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
