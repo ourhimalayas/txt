@@ -2,31 +2,25 @@
 ---
 
 
-## 有声|纳瓦罗先生指出每一个美国人都应该成为对中共的鹰派
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1686538/)
+## 澳大利亚国防军参与控制北领地的新冠疫情
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1686608/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-纳瓦罗先生在18日接受FOX斯图尔特采访的时，谈到本周的拜习会晤就像肥皂剧一样是无所事事的一场峰会。
+By：喜国公民
+视频来自网络
+澳大利亚国防军被要求帮助处理北领地的新冠疫情。一项大规模的行动正在进行中，以使尽可能多的人接受测试。
 
-纳瓦罗先生分析道本周的拜习视频会晤，因为没有谈及病毒起源以及在台湾问题上划定界限，更重要的是没有谈论中共到目前只购买了700万美金的美国产品，根本没有履行第一阶段贸易协议的事情。这些事都可以看出中共根本不会履行任何它们所签署的协议。
+北领地州长在对媒体的讲话中说，北领地一夜之间发现了两起新的本地新冠感染病例，并立即采取了紧急行动。
 
-然后在关于是否抵制北京冬奥会的问题上，纳瓦罗先生反问道美国什么时候才能感觉到受够了中共国？并列举了中共的新疆集中营、利用可携带高超音速武器对美国造成的威胁，并强调是中共孵化了病毒并散播给了全世界。
+在曼加里和罗科的居民只能在急诊或在法律要求的情况下出门。已经发现了38名密切接触者，有可能会有更多的居民被转移或隔离。
 
-最后纳瓦罗先生指出每一个美国人都该在对中共问题上成为鹰派，并提醒五角大楼中共是比气候变化更危险的东西。
+有大约20名澳大利亚国防军人以及军车参与协助转移阳性病例和密切接触者。
 
-文字版原文：[纳瓦罗先生指出每一个美国人都应该成为对中共的鹰派](https://gnews.org/zh-hans/1683348/)
+军队的参与不禁使人想起，前不久有[报道说](https://gnews.org/zh-hans/1640461/)，澳大利亚正在训练军人上门挨家挨户强制疫苗接种。北领地政府要求派部队参与转移阳性病例和密切接触者实在令人不安。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+此外，[在脸书上有人爆料称](https://www.facebook.com/100017330051700/posts/960166267904366/)，有军人在昆士兰北部参与了包围一个原住民社区，以阻止任何人逃亡，有土著人被军医强行按倒在地接种疫苗。
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

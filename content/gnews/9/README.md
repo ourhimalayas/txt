@@ -2,29 +2,43 @@
 ---
 
 
-## 有声|盖特新功能“Instagram导入”开始内测
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1686509/)
+## 24 小时内有 13 例死胎 @ 温哥华狮门医院不列颠哥伦比亚省
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1686591/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-11月17日，郭文贵先生发布盖特消息称，盖特新功能——“Instagram导入”已经进入内部测试阶段。
+作者：Breaking-news.ca
+翻译：HimaFAFA
 
-用户在注册盖特新账户时，可以直接选择Instagram同名账号导入。盖特现有用户，如果想将Instagram账号导入盖特，可以将所属Instagram用户名留言给盖特工程师，要求导入账号。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/LionsGateHospital-1.jpg)
 
-Instagram是脸书旗下的社交媒体平台，和脸书使用同样的“言论审查”政策，不允许用户表达与其不同的政治观点。与其相异的政治观点的图片和视频会遭到封禁，甚至会因此被封号。盖特与这些社交媒体平台相反，没有“言论审查”，是一个言论自由的社交媒体平台，用户可以畅所欲言，自由的表达自己，因此吸引大量热爱自由的人进驻。盖特开发这个新功能，为盖特用户提供了更全面的服务，更方便的体验。同时，吸引更多的人加入到盖特的平台中来，成为盖特的用户。
+- 11 月 11 日，1:00 – 3:00 北温哥华狮门医院紧急入口
 
-文字版原文：[盖特新功能“Instagram导入”开始内测](https://gnews.org/zh-hans/1683511/)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- 与梅尔布鲁谢博士和丹尼尔·长濑博士集会。他们与皇家骑警交谈，然后前往紧急入口。医生将感谢我们与他站在一起以提高对这种实验性注射危险的认识。
+
+
+- 平均而言，他们每个月会看到 1 例死产。杜拉斯报告说，在 24 小时内接受实验注射的妇女有 13 例胎死腹中。媒体没有报道这一点。大药厂关照媒体，媒体选择沉默。
+
+
+来源：https://breaking-news.ca/13-stillborn-deaths-in-24-hours-rally-lions-gate-hospital-vancouver-british-columbia/
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
