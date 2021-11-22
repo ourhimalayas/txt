@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/22/2021 1:11 AM (UTC)`
+
+ 11月21日：时间能改变一切……证明一切！当时的摩根中心是全中国的焦点，全世界的焦点，没有人相信摩根中心经历了2006年刘志华的事件后还能建设成功，还能成为中国，最标志性建筑！ <br/><br/>
+![img](https://media.gettr.com/group16/getter/2021/11/22/01/11/cfd8fa39-4994-1bfc-2e0f-74a8bc0d9098/cf61ae87be56528dfb46ca8624fbdc62.jpg)
+
+---
+
 `@miles 11/21/2021 9:34 PM (UTC)`
 
  11月21日：任何主义．和信仰和宗教．会威胁道人类的安全和生存的时候，都必须被铲除……社会主义和共产主义自始至终都是威胁着个体和社会群体安全！掠夺社会财富的毒瘤。这个家伙讲的相当不错，共产主义和中国共产党彻底完蛋！ <br/><br/>
@@ -295,13 +302,6 @@ One Southern California Mayor takes a stand against 'totalitarian' vaccine manda
 
 The CCP’s Infiltration in Western World : The CCP Agent Bruno Wu<br/><br/>中共渗透西方世界：中共间谍吴征
 ![img](https://media.gettr.com/group49/getter/2021/11/18/13/80f887f8-7681-5efd-afaf-ffba91971096/4f8067580d2a3f28a1ec938cc736879f.jpg)
-
----
-
-`@miles 11/18/2021 12:55 PM (UTC)`
-
-泽连科医生：新冠疫苗对儿童的致命性是病毒的172倍!<br/><br/>Dr. Zelenko: COVID vaccines are 172 times more lethal to children than COVID-19 Virus!<br/><br/>
-![img](https://media.gettr.com/group17/getter/2021/11/18/12/55/7d4b5c93-9d53-e424-7804-d06c1a6861bc/out.jpg)
 
 ---
 
