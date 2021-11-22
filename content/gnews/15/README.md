@@ -2,20 +2,25 @@
 ---
 
 
-## “一带一路”是习近平的八年撒币之路
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1684422/)
+## 纽约拟议法案，任何人均可因疫情原因而被强制入院
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1684446/)
 
-韩国首尔天池农场战友 校对/上传：追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-22-at-13.34.28-1.jpeg)图片来源：原新闻
-**中共官媒新华社11月21日报道：11月19日，中共中央总书记、国家主席、中央军委主席习近平在北京出席第三次“一带一路”建设座谈会并发表重要讲话。为新时代继续推动共建“一带一路”高质量发展把脉定向，作出全面部署。**
+#### 听写/翻译：Lish
+校对/编辑：枳实
+剪辑/字幕：文驰
 
-自2013年9、10月份习近平分别提出建设“丝绸之路经济带”和“21世纪海上丝绸之路”即“一带一路”的倡议。8年来，“一带一路”建设从“大写意”步入“工笔画”，正朝着更高质量的发展方向迈进。推动“一带一路”建设造福各国人民，习近平高瞻远瞩。
+纽约州拟议法案，任何人均可能因疫情原因而被强制收入“医疗设施“。该法案规定，在大流行病中，政府将执行行政命令，把任何被认为是疫情传播的原因，传播大流行病或传播疾病的人，以及他们的家人或这些人认为的任何其他人，把他们从家里带走，放在医疗设施中，直到州长和或州长的专员，认为你不再是一个健康风险为止。此外，众议院议员Linda Rosenthal提出法案，该法案将强制要求任何没有获得医生豁免的人接种中共病毒疫苗。
 
-**商务部副部长钱克明说，近年来，中国与“一带一路”沿线国家双向投资不断深化。如今中国企业对沿线国家的投资累计已超过1000亿美元。**
+发布：枳实
 
-**笔者评：习近平为了打造自己的伟大的国际形象，挥霍着中国人民的血汗钱，执政8年多以来，大撒币出去近万亿美元，能绕地球上百圈！“一带一路”上的投资，基本颗粒无收、血本无归。再看看中共国连基本的医疗、教育和保险都没有。自己家里都治理不好谈何“一带一路”，最终用事实证明了自己就是一个败家子！**
+视频链接：[NY Government plans to remove you from your home to a medical facility](https://ourtube.co.uk/watch/DAg8x3Tt3bW3NcH?lang=english)
 
-[参考新闻](https://feeds-drcn.cloud.huawei.com.cn/landingpage/latest?to_app=hwbrowser&amp;dy_scenario=sticky&amp;channel=HW_TRENDING&amp;docid=1051034101002021112100000555&amp;cpid=666&amp;tn=9d82ce7a54aa957495fa9965844040b4d4004e7c6100b4f15163a7845e16a7f7&amp;share_to=qq&amp;r=CN&amp;ctype=news&amp;appid=hwbrowser)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
