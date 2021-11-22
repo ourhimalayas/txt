@@ -15,179 +15,179 @@
 
 ---
 
-### [约1万名现役海军陆战队员尚未接种中共病毒疫苗](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [老百姓又被平均了！2020年中共国人均存款增加约1万元，11个城市人均存款超10万元？](/content/gnews/2/README.md)
+### [杜特尔特用“厌恶”怼习近平的南海霸行](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [迪士尼暂停佛州员工疫苗强制规定](/content/gnews/3/README.md)
+### [中共放话：惩罚完立陶宛，再拿掉台湾几个邦交国](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日美合作构筑“卫星星座”，监控中俄“高超音速导弹”](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [法国首家“台湾华语文学习中心”成立](/content/gnews/4/README.md)
  ` GTV新闻访谈`
 
-### [苏格兰新生儿死亡数量猛增](/content/gnews/4/README.md)
- ` GTV新闻访谈`
-
-### [疫苗压力加重 欧美风起云涌 墙内风声鹤唳 中共一路向西](/content/gnews/5/README.md)
- ` 银河勇气之星`
-
-### [中共的老朋友不多了！](/content/gnews/6/README.md)
- ` 首尔天池农场`
-
-### [文·贵天成——文贵先生谈“疫苗”（八）](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [文·贵天成——文贵先生谈“疫苗”（九）](/content/gnews/8/README.md)
- ` 墨尔本雅典娜农场`
-
-### [强制疫苗政策推行者们不得不承认疫苗效果未达预期](/content/gnews/9/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [【小雨专栏 】 在路上044——金钱篇](/content/gnews/10/README.md)
- ` 温哥华扬帆农场`
-
-### [“突然死亡”全球谷歌搜索趋势飙升至历史新高](/content/gnews/11/README.md)
- ` 加拿大温哥华扬帆农场视频组`
-
-### [文雍漫谈：他们为什么要让人民比丑](/content/gnews/12/README.md)
- ` 文雍`
-
-### [维州混乱的疫苗限制政策给青少年们带来的困惑](/content/gnews/13/README.md)
- ` 走进澳洲`
-
-### [疫情之下的北京虚假擀面杖经济](/content/gnews/14/README.md)
- ` 银河勇气之星`
-
-### [比上海调查问卷更有问题的是这个社会](/content/gnews/15/README.md)
- ` 银河勇气之星`
-
-### [币圈新闻动态：喜币（HCN）价格21日实时价格为36.569 HDO](/content/gnews/16/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [女子家人被中共迫害找法院求助，却被法院领导性侵](/content/gnews/17/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共转移矛盾，对卖菜超市巨额罚款](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [不打自招！中共官宣抗艾滋病新药可有效抑制中共病毒复制](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中国公民在海外被绑架，中共国政府毫不关心](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共疫苗枪口瞄准70–80岁的老人](/content/gnews/21/README.md)
- ` 首尔天池农场`
-
-### [有声| 我理解的“万佛万神”](/content/gnews/22/README.md)
+### [有声|洛杉矶对孕妇接种中共病毒疫苗加强针](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [纽约拟议法案，任何人均可因疫情原因而被强制入院](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
+### [有声|班农先生谈爆料革命的历史意义](/content/gnews/6/README.md)
+ ` MOSREC`
 
-### [婴幼儿恐将于明年年初接种毒疫苗](/content/gnews/24/README.md)
+### [有声|班农先生谈G系列对灭共的重要性](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [有声|白宫要求中共交待彭帅下落](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [约1万名现役海军陆战队员尚未接种中共病毒疫苗](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [老百姓又被平均了！2020年中共国人均存款增加约1万元，11个城市人均存款超10万元？](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共和俄罗斯再次联合骚扰日本](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [荷兰爆发反对新冠措施抗议活动](/content/gnews/25/README.md)
+### [迪士尼暂停佛州员工疫苗强制规定](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [数万人聚集维也纳，抗议奥地利政府防疫新规](/content/gnews/26/README.md)
+### [苏格兰新生儿死亡数量猛增](/content/gnews/13/README.md)
  ` GTV新闻访谈`
 
-### [纳瓦罗要求中共提供病毒初始序列](/content/gnews/27/README.md)
- ` GTV新闻访谈`
+### [疫苗压力加重 欧美风起云涌 墙内风声鹤唳 中共一路向西](/content/gnews/14/README.md)
+ ` 银河勇气之星`
 
-### [纳瓦罗称，川普第二任期定与中共脱钩](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [中共国网球明星在对中共高官的性侵指控后在赛现场](/content/gnews/29/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [“一带一路”是习近平的八年撒币之路](/content/gnews/30/README.md)
+### [中共的老朋友不多了！](/content/gnews/15/README.md)
  ` 首尔天池农场`
 
-### [打过疫苗死亡的人比没打的人多四倍，主流媒体不报道](/content/gnews/31/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（八）](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共病毒防疫的次生灾难，谁来买单？](/content/gnews/32/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（九）](/content/gnews/17/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [强制疫苗政策推行者们不得不承认疫苗效果未达预期](/content/gnews/18/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [【小雨专栏 】 在路上044——金钱篇](/content/gnews/19/README.md)
+ ` 温哥华扬帆农场`
+
+### [“突然死亡”全球谷歌搜索趋势飙升至历史新高](/content/gnews/20/README.md)
+ ` 加拿大温哥华扬帆农场视频组`
+
+### [文雍漫谈：他们为什么要让人民比丑](/content/gnews/21/README.md)
+ ` 文雍`
+
+### [维州混乱的疫苗限制政策给青少年们带来的困惑](/content/gnews/22/README.md)
+ ` 走进澳洲`
+
+### [疫情之下的北京虚假擀面杖经济](/content/gnews/23/README.md)
+ ` 银河勇气之星`
+
+### [比上海调查问卷更有问题的是这个社会](/content/gnews/24/README.md)
+ ` 银河勇气之星`
+
+### [币圈新闻动态：喜币（HCN）价格21日实时价格为36.569 HDO](/content/gnews/25/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [女子家人被中共迫害找法院求助，却被法院领导性侵](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [应对中共空中威胁，台湾F16战机大升级](/content/gnews/33/README.md)
+### [中共转移矛盾，对卖菜超市巨额罚款](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共和全球主义的核心就是谎言、集权、奴役](/content/gnews/34/README.md)
- ` 纽约香草山MOS02`
+### [不打自招！中共官宣抗艾滋病新药可有效抑制中共病毒复制](/content/gnews/28/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [迪斯尼世界停止执行疫苗任务](/content/gnews/35/README.md)
+### [中国公民在海外被绑架，中共国政府毫不关心](/content/gnews/29/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共疫苗枪口瞄准70–80岁的老人](/content/gnews/30/README.md)
+ ` 首尔天池农场`
+
+### [有声| 我理解的“万佛万神”](/content/gnews/31/README.md)
+ ` MOSREC`
+
+### [婴幼儿恐将于明年年初接种毒疫苗](/content/gnews/32/README.md)
+ ` GTV新闻访谈`
+
+### [荷兰爆发反对新冠措施抗议活动](/content/gnews/33/README.md)
+ ` GTV新闻访谈`
+
+### [数万人聚集维也纳，抗议奥地利政府防疫新规](/content/gnews/34/README.md)
+ ` GTV新闻访谈`
+
+### [纳瓦罗要求中共提供病毒初始序列](/content/gnews/35/README.md)
+ ` GTV新闻访谈`
+
+### [纳瓦罗称，川普第二任期定与中共脱钩](/content/gnews/36/README.md)
+ ` GTV新闻访谈`
+
+### [打过疫苗死亡的人比没打的人多四倍，主流媒体不报道](/content/gnews/37/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共病毒防疫的次生灾难，谁来买单？](/content/gnews/38/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [应对中共空中威胁，台湾F16战机大升级](/content/gnews/39/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [迪斯尼世界停止执行疫苗任务](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [全球抗议政府的防疫强权：我们不会放弃](/content/gnews/36/README.md)
+### [全球抗议政府的防疫强权：我们不会放弃](/content/gnews/41/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [加密货币爱好者众筹4700万美元欲购入美国宪法稀有抄本](/content/gnews/37/README.md)
+### [加密货币爱好者众筹4700万美元欲购入美国宪法稀有抄本](/content/gnews/42/README.md)
  ` 墨尔本雅典娜农场`
 
-### [联邦上诉法院重申暂停拜登疫苗授权](/content/gnews/38/README.md)
+### [病例激增，93%疫苗接种率的爱尔兰进入 “半封锁状态”](/content/gnews/43/README.md)
  ` 墨尔本雅典娜农场`
 
-### [病例激增，93%疫苗接种率的爱尔兰进入 “半封锁状态”](/content/gnews/39/README.md)
- ` 墨尔本雅典娜农场`
-
-### [GTV新闻访谈简报|2021年11月21日晚](/content/gnews/40/README.md)
+### [采访喜马拉雅交易所首席执行官杰西-布朗 &#8211; 9月24日第一集的中文翻译](/content/gnews/44/README.md)
  ` 纽约香草山MOS01`
 
-### [采访喜马拉雅交易所首席执行官杰西-布朗 &#8211; 9月24日第一集的中文翻译](/content/gnews/41/README.md)
- ` 纽约香草山MOS01`
-
-### [班农：我们不会只是坐在那里，我们要进攻（粤语配音）](/content/gnews/42/README.md)
+### [班农：我们不会只是坐在那里，我们要进攻（粤语配音）](/content/gnews/45/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [刚果金矿遇袭，8名中国人被绑架](/content/gnews/43/README.md)
+### [刚果金矿遇袭，8名中国人被绑架](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [串珠460:天津大爆炸不是人为，是腐败官僚的结果](/content/gnews/44/README.md)
+### [串珠460:天津大爆炸不是人为，是腐败官僚的结果](/content/gnews/47/README.md)
  ` 郭爆料串珠`
 
-### [德国医院院长因抗拒政府疫苗接种命令而自杀身亡](/content/gnews/45/README.md)
+### [德国医院院长因抗拒政府疫苗接种命令而自杀身亡](/content/gnews/48/README.md)
  ` 日本东京方舟农场`
 
-### [日本多地民众游行抗议政府以疫情为由实施各项限制措施](/content/gnews/46/README.md)
+### [日本多地民众游行抗议政府以疫情为由实施各项限制措施](/content/gnews/49/README.md)
  ` 日本东京方舟农场`
 
-### [11/20/2021【1120三周年纪念】班农先生：法治基金虽然还很年轻，但中共及其同伙已魂飞胆丧，新中国联邦注定会赢](/content/gnews/47/README.md)
+### [11/20/2021【1120三周年纪念】班农先生：法治基金虽然还很年轻，但中共及其同伙已魂飞胆丧，新中国联邦注定会赢](/content/gnews/50/README.md)
  ` 秘密翻译组-北美组`
 
-### [中共当局对民企发动新一轮“割韭菜运动”](/content/gnews/48/README.md)
+### [中共当局对民企发动新一轮“割韭菜运动”](/content/gnews/51/README.md)
  ` 日本东京方舟农场`
 
-### [秘翻在线: 中共粮食进口创新高](/content/gnews/49/README.md)
+### [秘翻在线: 中共粮食进口创新高](/content/gnews/52/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本要闻汇编 11月21日](/content/gnews/50/README.md)
+### [日本要闻汇编 11月21日](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [英官方报告显示大部分染疫逝者完全接种了疫苗](/content/gnews/51/README.md)
+### [英官方报告显示大部分染疫逝者完全接种了疫苗](/content/gnews/54/README.md)
  ` HimalayaRussia`
 
-### [辉瑞与美政府签订53亿美金新冠药物合同](/content/gnews/52/README.md)
+### [辉瑞与美政府签订53亿美金新冠药物合同](/content/gnews/55/README.md)
  ` 纽约香草山MOS01`
 
-### [美国老百姓的3个不允许](/content/gnews/53/README.md)
+### [美国老百姓的3个不允许](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [背叛 betray](/content/gnews/54/README.md)
+### [背叛 betray](/content/gnews/57/README.md)
  ` 骄子`
 
-### [纳瓦罗先生指出每一个美国人都应该成为对中共的鹰派](/content/gnews/55/README.md)
- ` 纽约香草山MOS01`
-
-### [11/21/2021国内经济财经周报：喜币已可在迪拜购买豪宅；阿里巴巴股票大跌](/content/gnews/56/README.md)
+### [11/21/2021国内经济财经周报：喜币已可在迪拜购买豪宅；阿里巴巴股票大跌](/content/gnews/58/README.md)
  ` 秘密翻译组金融团队`
-
-### [拜登在拜习会上再次确认了“一中”政策](/content/gnews/57/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [起诉班农的国会调查委员会成员──伊莱恩·路里亚在中共阿里巴巴拥有六位数投资](/content/gnews/58/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [秘翻在线：永远处在风口浪尖的班农正面临着新的考验](/content/gnews/59/README.md)
  ` 秘密翻譯組G-Translators`

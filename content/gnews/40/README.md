@@ -2,32 +2,26 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月21日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1684270/)
+## 迪斯尼世界停止执行疫苗任务
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1684394/)
 
-作者：香草山翻译部
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-97.png)
+图片来源：网络截图
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-7.png)
+据合众国际社11月21日报道，  在佛罗里达州州长罗恩·德桑提斯（Ron DeSantis）上周签署了一项禁止此类工作场所限制的法律后，迪斯尼已暂停了对其迪斯尼世界公园工人的中共病毒疫苗的强制要求。
 
+迪斯尼公司在给《华盛顿邮报》的一份声明中说，虽然它仍然相信其“强制接种疫苗的方法是正确的”，但它将根据法律的发展酌情处理。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1121text-SC.png)
-校对：Stay文苑
+迪斯尼此前曾经宣布，它将要求其员工在秋季前完全接种疫苗。
 
-编辑：Stay文苑
+根据上周佛罗里达州立法机构特别会议通过的立法，不得对政府和公共教育雇员以及私营企业进行中共病毒疫苗的强制要求。它还禁止公立学校的口罩任务，保护未接种疫苗的员工不会因联邦的疫苗任务而失去工作，并废除了外科医生强制注射疫苗的权力。
 
-发稿：Stay文苑
+当一项要求数百万联邦雇员、政府承包商和医疗工作者接种中共病毒疫苗的联邦任务将于周一生效时，迪斯尼决定停止它的强制疫苗要求。
 
-视频参看：[11.21  晚GTV新闻访谈](https://gtv.org/broadcast/watch/619af26bcbfd016d6378aa2b)
+该联邦任务在被联邦上诉法院搁置后，职业安全与健康管理局的这项影响到拥有100名以上工人的公司的紧急命令仍然处于停滞状态。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-6.jpg)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
+新闻来源：[Disney World halts vaccine mandate; cases, hospitalizations rising in Michigan](https://www.upi.com/Top_News/US/2021/11/21/Disney-World-halts-vaccine-mandate-cases-hospitalizations-rising-Michigan/1601637530108/)
 
  
 

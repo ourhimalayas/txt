@@ -2,26 +2,31 @@
 ---
 
 
-## 迪斯尼世界停止执行疫苗任务
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1684394/)
+## 纳瓦罗要求中共提供病毒初始序列
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1684442/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-97.png)
-图片来源：网络截图
+作者：日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月20日，在战斗室节目中，对上周长达4小时的拜习会中，双方没有谈及病毒，甚至没有谈到武汉，班农先生表示震惊。对此，纳瓦罗先生称，美国除了要向中共索赔外，更应要求中共提供中共病毒溯源真相，以及病毒初始序列。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-19.jpg)
+纳瓦罗先生强调，只有通过了解病毒初始序列，才能研发出“真”疫苗来取代目前的“毒”疫苗。他还表示，现阶段的疫苗，是建立在“被弱化刺突蛋白”上的研究产物，其造成的灾难远大于其效果。他敦促美国应尽快意识中共是整个人类的威胁，否则美国也将被邪恶统治。
 
-据合众国际社11月21日报道，  在佛罗里达州州长罗恩·德桑提斯（Ron DeSantis）上周签署了一项禁止此类工作场所限制的法律后，迪斯尼已暂停了对其迪斯尼世界公园工人的中共病毒疫苗的强制要求。
+参考链接：[纳瓦罗要求中共提供病毒初始序列](http://1.%20https://www.gettr.com/post/phhsiqb0c2)
 
-迪斯尼公司在给《华盛顿邮报》的一份声明中说，虽然它仍然相信其“强制接种疫苗的方法是正确的”，但它将根据法律的发展酌情处理。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-迪斯尼此前曾经宣布，它将要求其员工在秋季前完全接种疫苗。
+总编：文特
+编辑：文特/Kathy文艺/雪梨
+校对/发稿：Hetangyuese
 
-根据上周佛罗里达州立法机构特别会议通过的立法，不得对政府和公共教育雇员以及私营企业进行中共病毒疫苗的强制要求。它还禁止公立学校的口罩任务，保护未接种疫苗的员工不会因联邦的疫苗任务而失去工作，并废除了外科医生强制注射疫苗的权力。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
 
-当一项要求数百万联邦雇员、政府承包商和医疗工作者接种中共病毒疫苗的联邦任务将于周一生效时，迪斯尼决定停止它的强制疫苗要求。
-
-该联邦任务在被联邦上诉法院搁置后，职业安全与健康管理局的这项影响到拥有100名以上工人的公司的紧急命令仍然处于停滞状态。
-
-新闻来源：[Disney World halts vaccine mandate; cases, hospitalizations rising in Michigan](https://www.upi.com/Top_News/US/2021/11/21/Disney-World-halts-vaccine-mandate-cases-hospitalizations-rising-Michigan/1601637530108/)
 
  
 

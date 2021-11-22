@@ -2,32 +2,26 @@
 ---
 
 
-## 纳瓦罗称，川普第二任期定与中共脱钩
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1684441/)
+## 不打自招！中共官宣抗艾滋病新药可有效抑制中共病毒复制
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684512/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-纳瓦罗先生在11月20日的班农战斗室节目中表示，川普总统第二任期一定会跟中共国脱钩。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-29.jpg)
-此外，纳瓦罗先生还提到，因为担心美方的强硬态度会促使中共取消第一阶段贸易协议，进而引发市场崩溃，甚至导致热战的可能性，时任白宫官员的姆努钦、库德洛等人，不断游说川普总统，不要再对中共国加征关税。他强调，如果现在是川普总统的第二任期，美国将采取更加强硬的措施，一定会跟中共国脱钩，而且不会参加北京冬奥会。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-42.png)[图片来源](https://www.sohu.com/a/479248352_120545254)
+近日，中共央视新闻专题报道称，抗艾滋病新药“阿兹夫定”可有效抑制中共病毒复制，并详细介绍了其作用机制。
 
-参考链接：
-1. [纳瓦罗称，川普第二任期定与中共脱钩](https://www.amazon.com/Trump-Time-Journal-Americas-Plague/dp/1737478501)
-2. [纳瓦罗称，川普第二任期定与中共脱钩](https://www.gettr.com/post/phhva0d149)
+报道称，阿兹夫定是由河南真实生物科技有限公司和河南师范大学、北京协和药厂等共同研发的具有自主知识产权的抗中共病毒有效候选药物，也是全球首个双靶点抗艾滋病1类新药，曾获得中国专利金奖。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+报道进一步称，科研临床试验证实，阿兹夫定抗中共病毒活性强，对患者展示出良好的治疗效果，能显著缩短病人的核酸转阴时间、治疗时间和住院时间，目前正在国内外开展治疗新冠肺炎的Ⅲ期临床试验。
 
-总编：文特
-编辑：文特/雪梨
-校对/发稿：Hetangyuese
+通过爆料革命的持续揭露，中共病毒是混合了艾滋病等多种病毒片段的生物武器，这已成为全球的基本共识。为逃避被追责，中共却一直以病毒自然起源说来混淆视听，并极力掩盖病毒真相。此次，中共官宣抗艾滋病新药可有效抑制中共病毒复制，就是“贼不打，三年自招”典型的例子。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+信息来源：
+
+[有效抑制新冠病毒复制！抗艾滋病新药阿兹夫定登上央视-手机大河网](https://4g.dahe.cn/news/20211121927092)
+
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
 
 
  

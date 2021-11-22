@@ -2,54 +2,28 @@
 ---
 
 
-## 纳瓦罗先生指出每一个美国人都应该成为对中共的鹰派
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683348/)
+## 辉瑞与美政府签订53亿美金新冠药物合同
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683799/)
 
-作者：日本方舟农场 Andy5
+作者：MOS 柳是多水土透
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-1.png)
-
-
-
-
-
-纳瓦罗先生在18日接受FOX斯图尔特采访的时，谈到本周的拜习会晤就像肥皂剧一样是无所事事的一场峰会。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-527.png)图片来源：盖特 
-
-纳瓦罗先生分析道本周的拜习视频会晤，因为没有谈及病毒起源以及在台湾问题上划定界限，更重要的是没有谈论中共到目前只购买了700万美金的美国产品，根本没有履行第一阶段贸易协议的事情。这些事都可以看出中共根本不会履行任何它们所签署的协议。
-
-然后在关于是否抵制北京冬奥会的问题上，纳瓦罗先生反问道美国什么时候才能感觉到受够了中共国？并列举了中共的新疆集中营、利用可携带高超音速武器对美国造成的威胁，并强调是中共孵化了病毒并散播给了全世界。
-
-最后纳瓦罗先生指出每一个美国人都该在对中共问题上成为鹰派，并提醒五角大楼中共是比气候变化更危险的东西。
-
-相关链接：[https://www.gettr.com/post/phbtwcb717](https://www.gettr.com/post/phbtwcb717)
-
-新闻采集人：日本方舟农场 Andy5
-
-总编：文徬
-
-校对/发稿：小小安
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-2.png)
 
 
 
 
+
+作为52.9亿美金合约的一部分，辉瑞医药公司周四宣布将于今年开始，向美国联邦政府供应1000万个疗程的抗新冠病毒药物 市场名Paxlovid，这种口服药针对早期症状用于居家治疗，以帮助减少住院和死亡病例 辉瑞周四向监管机构递交申请批准文件，预期将于下月底前生产18万个疗程的剂量，至2022年底前有5000万疗程出厂 其本月早期的报告称，此药将成人重症风险降低89%，超过默沙东药剂Molnupiravir的50%，美政府同时与默沙东有22亿美金购买合约 郭先生曾转述医疗专家的警告，最近上市的新冠药物的毒副作用甚至大于疫苗，请大家谨慎，以NFSC之前公布的预防治疗方案为优先选项。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/CWOKYOTZ3NNFXJY4K4MIWXFGA4.jpg)图片来源：路透社
+
+**参考阅读：**
+
+https://www.reuters.com/business/healthcare-pharmaceuticals/us-govt-buy-10-mln-courses-pfizers-covid-19-pill-529-bln-2021-11-18/
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-6.jpg)
+
+编辑/校对/发稿：一烘
 
  
 

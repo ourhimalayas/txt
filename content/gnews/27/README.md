@@ -2,30 +2,48 @@
 ---
 
 
-## 纳瓦罗要求中共提供病毒初始序列
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1684442/)
+## 中共转移矛盾，对卖菜超市巨额罚款
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684529/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月20日，在战斗室节目中，对上周长达4小时的拜习会中，双方没有谈及病毒，甚至没有谈到武汉，班农先生表示震惊。对此，纳瓦罗先生称，美国除了要向中共索赔外，更应要求中共提供中共病毒溯源真相，以及病毒初始序列。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-19.jpg)
-纳瓦罗先生强调，只有通过了解病毒初始序列，才能研发出“真”疫苗来取代目前的“毒”疫苗。他还表示，现阶段的疫苗，是建立在“被弱化刺突蛋白”上的研究产物，其造成的灾难远大于其效果。他敦促美国应尽快意识中共是整个人类的威胁，否则美国也将被邪恶统治。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-88.jpg)[图片来源](https://www.google.com/search?q=%E5%93%84%E6%8A%AC%E5%B8%82%E4%BB%B7&amp;rlz=1C1YKST_enUS900US901&amp;sxsrf=AOaemvJaBZgpqDyQR0bTVb6vSag3HXdUwQ:1637557032683&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwiuu-2pl6v0AhXuxIsBHYNtCrwQ_AUoAnoECAEQBA&amp;biw=1366&amp;bih=625&amp;dpr=1#imgrc=Wle3xKKA3PiS6M)
+据“庄河发布”微信公众号消息，大连市庄河市市场监督管理局11月21日发布通告称，庄河市昌盛宏远生鲜超市借疫情大幅提高菜价，拟对其作出罚款50万元的行政处罚。通告全文如下：
 
-参考链接：[纳瓦罗要求中共提供病毒初始序列](http://1.%20https://www.gettr.com/post/phhsiqb0c2)
+针对近期市民反映庄河市昌盛宏远生鲜超市借疫情之机大幅提高蔬菜售价问题，市场监督管理局对其进行了调查。经查，该超市于11月4日在蔬菜成本未发生明显变化的情况下，大幅提高部分蔬菜品种的零售价格，且部分蔬菜在当日市民大量采购期间对售价进行了连续上调。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+庄河市昌盛宏远生鲜超市的上述行为违反了《中华人民共和国价格法》第十四条的规定，构成哄抬价格的违法行为。依据《价格违法行为行政处罚规定》，拟对其作出罚款50万元的行政处罚。
 
-总编：文特
-编辑：文特/Kathy文艺/雪梨
-校对/发稿：Hetangyuese
+同时，对于食品配送过程中部分蔬菜、水果存在质量问题和服务态度问题进行严肃批评教育，责令其进行整改。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+我局将继续加大执法力度，严肃查处价格违法行为，巡查监管，确保市场价格稳定。
+
+庄河市市场监督管理局
+
+2021年11月21日
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-59.jpg)
+据中共国内报道，大连本轮疫情从11月4日发生以来，短短五天破百，十天报告近300例。截至13日，病例主要集中在庄河的科强食品公司、海阔食品公司和庄河大学城。庄河是大连市辖的县级市。
+
+从11月4日通报首例确诊病例至今，庄河市开启居家隔离模式；
+
+11日，隔离再度收紧，街道门脸、小区居户贴起封条；89万居民闭户。
+
+11月4日中午11：30左右，大连市新冠肺炎疫情防控总指挥部办公室发布通告：非必要不离连。
+
+11月4日中午1点左右，庄河外卖骑手徐东军发了一条短视频，“全城是红灯”。
+
+所以根据以上信息中共官方4日通报首例确诊病例开始就已经实施管控措施了，再加上市民得知居家隔离模式消息后，处于对中共政府的不信任，都会抓紧采购生活物资，确保隔离期间的生活，对于超市来说疫情期间的管控造成的成本上升是必然的，提高菜价是正常的市场行为
+
+中共政府的腐败无能，无法保障市民正常的物资供应，却又不允许市场行为调节供需，此时发布对超市的巨额罚款，其中一个目的就是转移老百姓对政府的不满，可悲可恨的是中共作恶却要老百姓买单。
+
+消息来源:
+
+**[大连庄河：一生鲜超市借疫情大幅提高菜价 拟处50万罚款](https://www.163.com/dy/article/GPC056NT0512D3VJ.html?f=post2020_dy_recommends)**
+
+[疫情困扰下的小城｜庄河“暂停”](https://j.eastday.com/p/1637034318031519)
+
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
 
 
  
