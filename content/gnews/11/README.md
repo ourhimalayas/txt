@@ -2,26 +2,12 @@
 ---
 
 
-## 奥地利警察与反疫苗人士一起反抗：我们一起为自由而战
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1685790/)
+## 11/20/2021【1120三周年纪念】 班农先生：中国是美国在第二次世界大战中最大的盟友，解放中国要靠中国人自己
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1685799/)
 
-By 意大利罗马达芬奇农场 – 小白鸽
+斯蒂芬·班农：中国是美国在第二次世界大战中最大的盟友。记住，我说过我们不能解放中国人民。只有中国人民才能解放中国人民。在争取自由的斗争中，我们可以帮助他们，就像法国在我们的革命中帮助美国人一样。
 
-在奥地利首都维也纳反封城抗议的示威者中，其中有警察打出横幅 “警察为自由而战”。 这是在最近几天奥地利示威者走上街头，抗议政府采取的严厉措施中出现的一条标语。奥地利的这次封城时长是二十天。从明年二月起，将建议实行强制接种疫苗，为此爆发了民众的抗议。
-
-
-
-参考新闻🔗[Austria, la Polizia si ribella al lockdown insieme ai no-vax: combattiamo per la libertà](https://www.iltempo.it/attualita/2021/11/20/video/polizia-combatte-per-liberta-ribellione-contro-governo-lockdown-tutti-no-vax-chiusure-covid-29520871/)
-
-* * *
-
-视频剪切/ 校对/上传：阿娜意大利
-
-
-
-
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

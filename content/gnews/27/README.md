@@ -2,32 +2,39 @@
 ---
 
 
-## 日本尖端临床医学会议报告称基因疫苗有毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1685660/)
+## DC每日热点1122
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1685674/)
 
-作者：東京櫻花団-Tokyo Sakura Group
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-日本当地时间11月20日，第四次日本尖端临床医学会学术会议在东京召开。21日，大阪市立大学名誉教授井上正康先生发表关于中共病毒和中共病毒疫苗的演讲，引起了与会者的极大关注。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-22-下午10.45.11.png)
-正康教授的研究显示，中共病毒的实质是导致血栓，肺炎是次要症状。S蛋白是一种雪凝块毒素。1233例因接种疫苗死亡的人，大多数是血栓和循环系统障碍。DNA疫苗是转基因的，半永久性的活性疫苗。mRNA疫苗会沉积于肾上腺和卵巢。
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/11/175B3A0B-667D-4CF8-ACB7-5C878263E3A6-scaled.jpeg)
+道琼斯指数 35601.98 ▼0.75%
+纳斯达克指数 16057.44 ▲0.40%
+WTI纽约原油CFD 75.621 ▼3.56%
+布伦特原油CFD 78.599 ▼0.37%
+标普中概股50指数 3,581.09CNY▼-26.82%
+美元兑人民币 1USD=6.381RMB
+美元兑港币 1USD=7.791HKD
+国际黄金 1837.31美元/盎司
+全球CCP病毒感染人数 257,999,537 例
 
-正康教授的报告称，无症状感染后会获得免疫记忆。日本患者呈现ADE抗体。所以，他认为，让不存在中共病毒风险的儿童和育龄人群接种疫苗是疯狂之举。
+1、中共高超音速武器疑似在南中国海上空发射导弹
+2、被中共国海警船射水炮阻止后 菲律宾防长指示补给船再出发
+3、荷兰因新冠病毒规则引发的骚乱进入第三夜
+4、拜登总统在拜习会后说台湾是独立的、自己做决定，随后又澄清美国不鼓励台独
+5、塔利班周日下令阿富汗电视频道停止播放女艺术家出演的电视剧，并表示女记者必须戴头巾
+6、苏丹军方恢复被罢免领导人职务
+7、波兰总理警告边界移民危机是冷战后动摇欧洲的最大企图
+8、白俄罗斯逼将欧盟：坐看德国何时接受2,000名移民
+9、IDEA研究报告: 全球民主状况倒退 美国首度被列入倒退名单
+10、澳美英签署公开了第一个核动力潜艇合作协议
+11、IMF年度报告称中国经济下行风险在加大
+12、委内瑞拉地方选举反对派重返受挫 马杜罗当局大肆庆祝胜利
+13、李克强：中共国经济出现新的下行压力 有评论吁放松监管提信心
+14、日本欧盟将举行高峰会谈 议题涵盖台海局势
+15、彭帅凸显中共国人权劣迹 五眼联盟商讨杯葛北京冬奥
+16、国际奥委会主席与彭帅视频通话 未公布视频
+17、 美交通部长：针对联邦工人的COVID-19疫苗令不会影响感恩节旅行，对于国内旅行来说疫苗令 目前没有必要
 
-参考链接：[https://gnews.org/zh-hans/1682973/](https://gnews.org/zh-hans/1682973/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
-
-总编：文真
-编辑：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
