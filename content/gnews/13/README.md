@@ -2,24 +2,29 @@
 ---
 
 
-## 今年灾害天气多，吃糖都恐受影响
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684939/)
+## CDC 和大药企数据证实：儿童死于疫苗多于病毒
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1684947/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-168.png)[图片来源](https://twgreatdaily.com/jgKpzXIBnkjnB-0z2ihm.html)
-11月19日，针对在投资者互动平台提问关于极端天气对甜菜造成的损失问题，中粮糖业（600737.SH）表示，灾害天气导致糖料作物错过采收窗口期，是给公司带来损失的直接原因。
+翻译 : Jenny ball
 
-中粮糖业发出了受灾害天气影响的公告后，又再从产业背景的角度进一步解释。糖料作物（无论是甘蔗还是甜菜）都有严格的采收窗口期，一旦错过，对原料品质（主要是含糖量）会产生极大影响，这也是此次灾害天气给公司带来损失的直接原因。农业保险这几年在国内发展较快，但还不足以让农业彻底摆脱“靠天吃饭”的天然属性，其中的风险敞口部分，需要产业链的参与者共担。公司作为农业龙头企业，但面对极端天气，仍难免遭受一定损失。灾害发生后，公司发动干部员工昼夜抢收原料，目前仍在抢收过程中。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-550.png)图片来源: thegatewaypundit.com
 
-近年来，特别是中共释放病毒后，更是天怒人怨，国内极端灾害天气不断，主粮连年减产，如今就连糖料作物都已减产。正如郭文贵先生所言，中共不灭，老百姓的苦日子还远没到来。
+世界已经疯了。我们知道，当“专家”决定为儿童接种疫苗时，接种疫苗导致的死亡人数会多于 COVID 导致的死亡人数。现在我们有基于 CDC 和大型制药公司数据的支持这个事实。
 
-信息来源：
+但是，现在想要为儿童提供 COVID 疫苗的授权。问题在于，一开始死于疫苗的儿童多于死于 COVID 的儿童，而且有证据。
 
-[中粮糖业：目前仍在抢收原料过程中](http://www.nbd.com.cn/rss/toutiao/articles/2002288.html)
+托比·罗杰斯（Toby Rogers）把这个分析完全放在了一起。 他分享到：
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+我正在阅读 CDC 的“提交给免疫实践咨询委员会 (ACIP) 的健康经济学研究指南，2019 年更新”，我意识到 ，FDA 对辉瑞（Pfizer）的 EUA 申请，对 5 至 11 岁儿童进行注射的可悲的风险收益分析， **违反了 CDC 指导文件的许多原则**。CDC“指南”**文件描述了每项与疫苗相关的健康经济学研究必须做的 21 件事**，**而 FDA 的风险收益分析至少违反了其中的一半……**
+
+新闻来源 [thegatewaypundit.com] **[The world has gone mad.  We knew when ‘experts’ decided to vaccinate children that there would be more deaths from the vaccination than from COVID.  Now we have support for this based on CDC and Big Pharma data.](https://www.thegatewaypundit.com/2021/11/shockingly-insane-cdc-big-pharma-data-show-save-lives-less-50-children-covid-5000-children-will-die-vaccine/)**
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

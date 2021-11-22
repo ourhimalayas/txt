@@ -2,35 +2,49 @@
 ---
 
 
-## 有声|班农先生谈G系列对灭共的重要性
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1684790/)
+## 法国首家“台湾华语文学习中心”成立
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1684798/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月20日，“1120”大直播中，班农先生阐述了新中国联邦G系列对灭共的重要性。
-
-班农先生直言道，面对网络战，信息战，经济战等一系列挑战，如果没有 Gnews，GTV，Gettr，我们早就完了，我们要让更多的人关注这些平台。班农先生继续指出，War Room 在G平台上的持续曝光，体现了新中国联邦人的正义力量。
-
-谈到喜币， 班农先生评价道，喜币是对中共和华尔街最直接的反击。当下，中共的房地产泡沫即将破裂，而中国人却把财富放在房地产里面，财富会随着房地产崩塌被血洗。目前，数字货币是最安全的，喜币是存储财富的最好选择。未来喜币和喜联储的发展将是非常强劲的。
-
-班农先生呼吁盖特、GTV，Gnews 的观众，历史会审判这些黑暗势力，不要在意杂音，我们的使命是拯救世界人民，推翻邪恶的中共独裁政权。
+作者：纽约香草山医疗部 – 云豹
 
 
 
-文字版原文：[班农先生谈G系列对灭共的重要性](https://gnews.org/zh-hans/1682508/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
 
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+法国首家推广繁体华文的“台湾华语文学习中心”，于11月20日在巴黎亭林中文学校正式成立，目标在于推广繁体华文的学习，以及促进台法间的文化双向交流学习。
+
+华语学习在世界很多国家都是一种潮流，但近二十年来，中共借此机会，以孔子学院的形式强势输出自己的华语教学体系，在教材中输出共产主义、社会主义思想，并借机收买各国年轻菁英及政治人物，建立中共渗透世界的人脉体系。
+
+近两年，世界各国逐渐认识到中共的不可信任，陆续下令关闭中共在其国内成立的孔子学院，并转向与普世价值观相近的台湾合作，由台湾提供华文学习的教材及师资，方便他们学习传统华文，了解台湾传承的由传统到创新，多层次且富含包容性的华人文化。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.3-6.jpg)
+参考链接：
+[法國首間台灣華語中心揭牌 推動正體中文學習](https://www.cna.com.tw/news/firstnews/202111210006.aspx)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

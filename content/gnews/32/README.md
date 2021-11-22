@@ -2,30 +2,31 @@
 ---
 
 
-## 老百姓又被平均了！2020年中共国人均存款增加约1万元，11个城市人均存款超10万元？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684772/)
+## 有声|洛杉矶对孕妇接种中共病毒疫苗加强针
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1684792/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-167.png)[图片来源](https://sunnews.cc/zhihu/631401.html)
-根据近期中共国家统计局编写出版的《中国统计年鉴2021》显示，截至2020年年末，45个重点城市中住户存款余额超过10万元的共有11个城市，分别是北京、上海、杭州、沈阳、广州、太原、天津、深圳、大连、南通、南京。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在美国加州洛杉矶县，公共卫生总监芭芭拉·费雷尔 (Barbara Ferrer) 表示，根据美国疾病控制与预防中心发布的指南，几乎所有的成年人已经有资格获得中共病毒疫苗加强针。同时加州州长要求所有的小学校必须全面执行疫苗接种令，5-12岁的孩子也包含其中，该年龄段的儿童若不接种新冠疫苗，明年1月1日之后将无法入学。
 
-其中，北京、上海的人均存款金额依然位居前两位，分别为19.6万元和14.8万元。而排行第3至第10的8个城市的人均存款额则差距不大，从11.9万元至10.5万元不等。
+洛杉矶县的Altadena 居民 Nicole Fahey 已怀孕六个月，她于 11 月 3 日在加州政府与洛杉矶卫生部门的“全民接种令”的宣传下，到 Eugene A. Obregon 公园接种了来自 RN Veronique Vida 的辉瑞 BioNTech 疫苗加强针。 据专业人士称，这是典型的医药大公司与地方政府卫生部门之间的默契，而联邦与地方的卫生官员更不再乎孕妇怀着6个月大的婴儿在身。为了争夺资本、控制权利，可怜的小生命与妈妈成了大医药公司的试验品。
 
-根据此前中国人民银行公布的数据，2020年中共国全年人民币存款增加19.65万亿元，其中住户存款增加11.3万亿元。这相当于全国人均年存款增加约1万元。
 
-根据中共官方今年的另外一个调查统计数据，全国的负债人数已经达到7.8亿，逾期率高达42%，也就是说全国至少3亿人负债已逾期，被执行的“不诚信人员”数量已达570万，相当于每250个中国人中就有一个是老赖，这里的负债包括房贷、网贷、信用卡透支、花呗借呗等。
 
-从3个中共官方数据可以得出，老百姓又被增收被平均了！
+文字版原文：[洛杉矶对孕妇接种中共病毒疫苗加强针](https://gnews.org/zh-hans/1681256/)
 
-信息来源：
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-[12城住户存款超万亿元：北京人均存款近20万元，北方人更爱存钱？](https://3g.k.sohu.com/t/n568259747?serialId=28a4c05176a1f8e8904de3172b1dd406&amp;showType=)
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-[46万家企业倒闭，7.8亿人负债，99％中国人收入真相，骗了无数国人！](https://www.163.com/dy/article/GF9MHT0O0548EKJ6.html)
-
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
