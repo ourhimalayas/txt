@@ -2,19 +2,34 @@
 ---
 
 
-## 意大利主教团对反新冠疫苗者措辞强硬：“自私，不负责任”
-` xiaobaige` [轉載自GNews](https://gnews.org/zh-hans/1685607/)
+## 维加诺大主教呼吁建立“反全球化联盟”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1685658/)
 
-#### 翻译整理/： 意大利罗马达芬奇农场               小白鸽
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Schermata-2021-11-22-alle-15.07.20.png)图片来源：Gazzettadelsud.it 
-意大利主教团对反绿色护照和反新冠疫苗的抗议活动措辞强硬， 毫不犹豫。他们称反新冠疫苗者是“自私，不负责任的。”这是主教们在“生命之日”活动中发出的声音。意大利主教团从一开始就支持新冠疫苗接种计划，但是这次他们发出的声音是史无前例的强硬。主教团与那些不愿接受新冠疫苗的神父保持距离，也与那些走上街头抗议，跪在街头上，手持玫瑰经祈祷的抗议者， 如特里亚斯特港口抗议活动发言人斯坦法诺•浦泽，还有前教廷驻美国大使卡洛•玛丽亚•维加诺大主教保持距离。意大利主教团对这些言论和活动都持否定态度，他们说“许多人从瘟疫大流行一开始就努力保护每一个生命……但是也不缺乏那些自私的、冷漠的、毫不负责任的示威游行。这些游行的特点是错误地宣扬自由，曲解对权利的定义；这些都常常发生在那些感到恐惧和困惑的人，这些人也是大疫情的受害者， 这说明这些人的言行和视野是远离了圣经和宪法的精神。”
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月16日，维加诺大主教发布视频演讲，呼吁渴望自由、善良和正义的人民联合起来，成立反全球主义联盟，反对集独裁统治和恐怖主义于一身的极权暴政，共同对抗“大重启”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-22-下午10.44.48.png)
+大主教说，在过去的两年，我们目睹了一场全球政变。由不露面的阴谋者资助的超国家金融和意识形态精英控制了政府、媒体、司法机构、宗教领袖等等，剥夺了公民的基本权利。这是世界经济论坛的大重置，是新世界秩序的计划，是联合国2030年议程，目的是奴役每一个人。中共病毒疫情是大重启重要的步骤。反全球化联盟必须将这些反人类罪犯，交由国际法庭审判他们的罪行，并进行彻底的政治改革。
 
-意大利主教团的做法会让许多信徒坚信注射新冠疫苗是正确的，负责任的，从而更加深了新冠疫苗接种者与未接种者之间的矛盾。如今小到个人、家庭上至国家和教会也在新冠疫苗问题上产生了严重的撕裂，无数信徒也因中共病毒疫苗而相互反目为仇。人类正经历着人类史上从来未有过的大危机、大劫难，不打疫苗者会承受越来越多的来自各方的压力和围剿。爆料革命在传播中共病毒和疫苗真相时，已经拯救了无数生命，还会拯救千千万万的生灵。
+一直以来，维加诺大主教作为正义的宗教领袖为民众发声。他呼吁各国民众团结、勇敢，捍卫权利和自由，反对疫苗接种，反对极权统治。
 
-原文链接：[https://gazzettadelsud.it/articoli/cronaca/2021/11/17/i-vescovi-italiani-durissimi-contro-i-no-vax-irresponsabili-ed-egoisti-c1183364-3c80-4c3a-a985-407f88445c87/](https://gazzettadelsud.it/articoli/cronaca/2021/11/17/i-vescovi-italiani-durissimi-contro-i-no-vax-irresponsabili-ed-egoisti-c1183364-3c80-4c3a-a985-407f88445c87/)
+参考链接：
+1）[HUGE EXCLUSIVE: Archbishop Carlo Maria Viganò Calls on People of Faith to Unite in a Worldwide Anti-Globalist Alliance to Free Humanity from the Totalitarian Regime (VIDEO)](https://www.thegatewaypundit.com/2021/11/huge-exclusive-archbishop-carlo-maria-vigano-calls-people-faith-unite-worldwide-anti-globalist-alliance-free-humanity-totalitarian-regime-video/)
+2）[https://gettr.com/post/phkexi5bef](https://gettr.com/post/phkexi5bef)
 
-编辑、发布 ： Xiao  baige
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
+总编：DM
+编辑：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

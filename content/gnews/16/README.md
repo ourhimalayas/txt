@@ -2,34 +2,37 @@
 ---
 
 
-## 维加诺大主教呼吁建立“反全球化联盟”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1685658/)
+## 立陶宛设立台湾代表处或触发多米诺效应
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1685692/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月16日，维加诺大主教发布视频演讲，呼吁渴望自由、善良和正义的人民联合起来，成立反全球主义联盟，反对集独裁统治和恐怖主义于一身的极权暴政，共同对抗“大重启”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-22-下午10.44.48.png)
-大主教说，在过去的两年，我们目睹了一场全球政变。由不露面的阴谋者资助的超国家金融和意识形态精英控制了政府、媒体、司法机构、宗教领袖等等，剥夺了公民的基本权利。这是世界经济论坛的大重置，是新世界秩序的计划，是联合国2030年议程，目的是奴役每一个人。中共病毒疫情是大重启重要的步骤。反全球化联盟必须将这些反人类罪犯，交由国际法庭审判他们的罪行，并进行彻底的政治改革。
+作者：波士顿五月花  跟随战神
+![](https://assets.gnews.org/wp-content/uploads/2021/11/20211122.jpg)
+2021年11月18日，立陶宛允许台湾设立“驻立陶宛台湾代表处”。随后11月21日，中共伪外交部发表声明，将中立两国外交关系降为代办级。
 
-一直以来，维加诺大主教作为正义的宗教领袖为民众发声。他呼吁各国民众团结、勇敢，捍卫权利和自由，反对疫苗接种，反对极权统治。
+中共伪外交部发表的声明中说：“立陶宛不顾中方严正抗议和反复交涉”。从中可以看出，中共已经是气急败坏。早在今年夏秋之季，立陶宛政府在台湾设立了代表处。中共在彼时就已经恼羞成怒，并进行了一系列的抗议和指责，利诱、威胁立陶宛。中共从夏季持续到冬季，一直坚持蓝金黄和威逼恐吓，但立陶宛并没有受到任何影响。
 
-参考链接：
-1）[HUGE EXCLUSIVE: Archbishop Carlo Maria Viganò Calls on People of Faith to Unite in a Worldwide Anti-Globalist Alliance to Free Humanity from the Totalitarian Regime (VIDEO)](https://www.thegatewaypundit.com/2021/11/huge-exclusive-archbishop-carlo-maria-vigano-calls-people-faith-unite-worldwide-anti-globalist-alliance-free-humanity-totalitarian-regime-video/)
-2）[https://gettr.com/post/phkexi5bef](https://gettr.com/post/phkexi5bef)
+中共指责立陶宛在国际上制造“一中一台”。可见，任何国家只要是与台湾设立代表处，就是承认台湾是一个独立的国家。而中共也认可这样的做法就是承认台湾作为一个国家的存在。立陶宛为国际社会与台湾的关系树立了一个标杆，也为新中国联邦的关系提供了借鉴。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+从中共在3天内就将中立关系降为代办级可以看出，一个弹丸之地的立陶宛，中共完全是不放在眼里的。中共的做法是典型的大国沙文主义，高高在上、恣意妄为。
 
-总编：DM
-编辑：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+“在国际上制造恶劣先例”，伪外交部的这句话透露出了中共的痛处。中共最担心的是立陶宛的做法引起蝴蝶效应，其他国家和国际社会纷纷效仿，届时中共真的成了伪政权。而美国早在2020年已经将中共定义为种族灭绝和反人类罪。毕竟，与犯罪集团划清界限是人们的基本良知，是正常国家的应有作为。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+1989年，以立陶宛为首的波罗的海三国爆发了“人墙运动”，200多万人手拉手组成一条650公里长的人链。人们高呼“自由”、“脱离苏联”，极大地震撼了世界，拉开了前苏联解体的序幕。
+
+1990年3月，立陶宛第一个宣布“独立”，如同推到多米诺骨牌一样，一个接一个的国家宣布独立，最终导致苏联解体，苏共被扫进历史的垃圾堆。
+
+立陶宛允许台湾设立代表处不亚于1989年的“人墙运动”。立陶宛是欧盟成员国，立陶宛的做法会影响到欧洲、扩散到世界，所以中共非常恐惧，意识到了对自己的威胁。
+
+一落叶知天下秋，中共已经感觉到了冷冷的寒意，中共的最终宿命已经开始显现出当年苏共的征兆。
+
+* * *
+
+*编辑：文合*
+
+*封面：霹雳鼠年*
+
+*发布：吐纳*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
