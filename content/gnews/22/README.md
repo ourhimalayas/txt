@@ -2,22 +2,25 @@
 ---
 
 
-## 纳瓦罗要求中共提供病毒初始序列
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1684442/)
+## 有声| 我理解的“万佛万神”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1684454/)
 
-作者：日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月20日，在战斗室节目中，对上周长达4小时的拜习会中，双方没有谈及病毒，甚至没有谈到武汉，班农先生表示震惊。对此，纳瓦罗先生称，美国除了要向中共索赔外，更应要求中共提供中共病毒溯源真相，以及病毒初始序列。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-19.jpg)
-纳瓦罗先生强调，只有通过了解病毒初始序列，才能研发出“真”疫苗来取代目前的“毒”疫苗。他还表示，现阶段的疫苗，是建立在“被弱化刺突蛋白”上的研究产物，其造成的灾难远大于其效果。他敦促美国应尽快意识中共是整个人类的威胁，否则美国也将被邪恶统治。
+配音：香草山福音部 – Daxia
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+七哥直播时经常讲万佛万神，为什么坚持一神论基督信仰的基督徒战友仍然如此坚定地追随七哥呢？七哥讲每一个宗教都有对立面，为什么？这些问题的答案有一个前提，就是我们相信：人类和世界万物是被造的，是有主人的，神是这一切的主宰。
 
-参考链接：[纳瓦罗要求中共提供病毒初始序列](http://1.%20https://www.gettr.com/post/phhsiqb0c2)
+人有限的理解和逻辑判断所形成的宗教，能准确和全面地解释万能的神和神所创造的世界吗？人的能力和认知都是有明显局限性的。人没有狗鼻子灵敏，没有豹子跑得快，没有骆驼的耐力，不能像鹰一样飞行。虽然神赋予我们管理地球上生命的能力和智慧，但我们有太多太多的做不到，而且还有人性的诸多罪恶。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：文特
-编辑：文特/Kathy文艺/雪梨
-校对/发稿：Hetangyuese
+
+**原文链接：[【信仰之声】我理解的“万佛万神”](https://gnews.org/zh-hans/1670139/)**
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -25,7 +28,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
 
 
  

@@ -2,38 +2,26 @@
 ---
 
 
-## 联邦上诉法院重申暂停拜登疫苗授权
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1684355/)
+## 应对中共空中威胁，台湾F16战机大升级
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684402/)
 
-**对应英文翻译：ATX1230
-校：Lish
-编辑：李易通
-剪辑/字幕：向上James**
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-151.jpg)[图片来源](https://news.ltn.com.tw/news/politics/paper/1311908)
+11月18日，台湾军方举行F-16V升级战机接装典礼，标志台湾拥有了最先进版的F-16喷气战机。
 
-主持人（Shannon）：第二批纽约医护人员正在向最高法院请愿，要求该州维持他们对强制疫苗的宗教可豁免权。临时禁令的请求基于地理因素交给了Sonia Sotomayor法官，她可以独自将此事提交给全院表决。而早先提出的类似法律救济的请求仍在法院待决。第五巡回法院正在加倍执行之前的命令，在今晚暂时停止执行拜登总统的疫苗强制令。该强制令要求有 100多名工人的雇主接种疫苗或每周进行测试，否则将面临严重罚款，这可能导致他们停业。今晚法院称这些强制的范围实在广泛的惊人，至此，让我们今晚与我们的大律师，前美国检察官 Harry Lippmann 和A3P的总裁Mike Davis一起讨论这一切从何而来以及其他热门法律话题。欢迎您们二位的回归。
+台湾空军耗资1100亿元新台币，由美国洛克希德-马丁公司与汉翔将现有141架F-16A/B升级为F-16V。其中64架18日在嘉义空军基地举行的”性能提升接装典礼”上正式交付。所谓”接装”，是指”接收装备”，也就是空军四联队接收下升级完成的F-16V。F-16 A/B 是1990年代推出的旧机型，全部飞机的升级将于2023年完成。
 
-Harry：嗨，Shannon。
+空军参谋长黄志伟表示，升级后单计空军战机战力，台湾可排在全球前15位之内。
 
-Mike：谢谢你。
+F-16V是这一传奇型号的多功能斗机技术上最先进的版本，配备了能够使其同时追踪20多个目标的高强雷达、尖端的电子战系统、先进的武器、精确的GPS导航和自动避免与地面相撞的功能系统。它是第四代战斗机中最先进的代表。台湾曾有意从美国购买第五代战斗机，但最后的决定认为F-16升级在目前情况下是最有效的做法。台湾空军还拥有法国达索公司的幻影2000和自己设计制造的AIDC F-CK “经国”战斗机，总机队规模约为400架。2023年台湾将完成F-16战机升级，并按计划从美国购买66架新的F-16V战机后，将拥有亚洲最大的F-16机队。
 
-主持人（Shannon）：从第五巡回法院今晚的意见中可以看出，疫苗强制令给雇主造成了财务负担，也就是说，雇主通过授权参与职业安全与健康管理局（OSHA）的监管计划，如果他们拒绝或不遵守，就会面临严重的财务风险。强迫不愿意的雇员接种疫苗、做病毒检测， 不然就辞职，这样做会削弱他们的劳动力和商业前景。Harry, 听起来（第五巡回法院）对这项强制任务会带来的影响不够深刻。
+信息来源：
 
-Harry：他们并没有，这就是为什么他们将其称为强制任务。它确实有一个出口， 你知道，如果不打疫苗，你将一直接受新冠病毒检测。所以这将不得不上诉到最高法院，其他法院已经或多或少地向着另一个方向发展了。这是政府必须为其（强制接种的大项目）争辩的一个大问题。
+[台湾F-16战机接装典礼 蔡英文：战力更强](https://www.dw.com/zh/%E5%8F%B0%E6%B9%BEf-16%E6%88%98%E6%9C%BA%E6%8E%A5%E8%A3%85%E5%85%B8%E7%A4%BC-%E8%94%A1%E8%8B%B1%E6%96%87%E6%88%98%E5%8A%9B%E6%9B%B4%E5%BC%BA/a-59857146)
 
-主持人(Shannon):好的,Mike, 这回我将请你快速发表评论，你认为根据我们在过去一年左右的时间里法院对新冠病毒相关事物的决定，你如何看待这个问题如果走势真到达那一步？
-
-Mike:第五巡回法院的这一决定对政府来说是个大麻烦，因为它表示，联邦机构 OSHA 试图将疫苗强制令强加给雇主存在严重的违宪问题，因此这对大政府来说不是一个好兆头。
-
-**视频链接：**[https://video.foxnews.com/v/6281740400001#sp=show-clips](https://video.foxnews.com/v/6281740400001#sp=show-clips)
-
-发布：文武全才
-
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

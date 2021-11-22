@@ -2,35 +2,26 @@
 ---
 
 
-## 加密货币爱好者众筹4700万美元欲购入美国宪法稀有抄本
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1684366/)
+## 中共病毒防疫的次生灾难，谁来买单？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684410/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Untitled5555555.png)图片来源：THE DAILY HODL
-**翻译：**月映万川
-**编辑：**翼族
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-109.jpg)[图片来源](https://www.rfa.org/mandarin/yataibaodao/huanjing/ql1-10252021073113.html)
+据近日外媒报道，中共在病毒防控方面采取的“清零”政策，耗费极大的社会、经济和民生成本的同时，还导致严重的次生灾难，社会哀鸿一片、经济濒临崩溃。
 
-一个叫做“宪法DAO”的去中心化匿名组织，从17000多名捐赠者中筹集资金，共筹集了价值4700万美元的以太币，这些来自于该组织捐赠者的资金将用于购买一份《美国宪法》的稀有原始抄本。目前世界上仅有13份原始抄本。
+中共防疫的”清零”战术概括起来就是，关闭国界、定点封城、全民检测，有时只因为发现了一个病例。这一策略的造成的成本和伤害，在云南边城瑞丽，人们深有体会。这座21万人口的小城位于中缅边境，近几个月接连经历了三次封城加上全民检测，当地经济的很多领域濒临崩溃。
 
-英国著名拍卖行索斯比将对这一文件进行网上拍卖，同时，拍卖行也接受以太币作为付款选项。
+近几周中共国有40多个城市发现了感染病例，数百万居民被隔离、禁足，更多的人生计受到影响，如婚礼被迫延期、葬礼必须缩短时间、学校停课、航班取消、成百上千的游客被困异地回不了家，等等。
 
-据“宪法DAO”组织宣称，索斯比拍卖行是首次与该类型的去中心化团体合作，并且可能也是以众筹模式购买实物价格最高的一次。
+综上所述，中共所谓的那些防疫措施，实则是不能有效阻止疫情蔓延。病毒是抓手，疫苗才是目的，疫苗不能阻止病毒感染，只能会加重病情，但地方政府不会在乎多少老百姓吃不上饭，经济发展的倒退甚至停滞，疫苗是管控老百姓的一种手段。可以想象，只要中共政权还存在一天，经济绝对没有好转的可能，只能是越来越坏。“清零”的成本和伤害，只能是老百姓来买单，这个是毫无疑问的。
 
-拍卖开始后，当宪法抄本的价格一路飙升到4300万美金时，该组织出于维护经费不够的顾虑放弃了此次拍卖。
+信息来源：
 
-“宪法DAO”组织称：“虽然这不是我们希望的结果，但是今晚我们依然创造了历史。无论以法币还是加密货币来计算，这次拍卖是目前已知的使用众筹方式购买实物金额最高的一次。我们非常感激能与你们一起做这件事，并且仍然对我们能走到这一步感到震惊。”
+[“清零”政策的成本和伤害 谁来买单？](https://www.dw.com/zh/%E6%B8%85%E9%9B%B6%E6%94%BF%E7%AD%96%E7%9A%84%E6%88%90%E6%9C%AC%E5%92%8C%E4%BC%A4%E5%AE%B3-%E8%B0%81%E6%9D%A5%E4%B9%B0%E5%8D%95/a-59854632)
 
-**新闻链接：**[Crypto Enthusiasts Raise $47,000,000 Worth of Ethereum in Effort To Buy Rare Copy of US Constitution](https://dailyhodl.com/2021/11/21/crypto-enthusiasts-raise-47000000-worth-of-ethereum-in-effort-to-buy-rare-copy-of-us-constitution/amp/)
-
-***发布：**翼族*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

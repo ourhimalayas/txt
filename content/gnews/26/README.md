@@ -2,41 +2,32 @@
 ---
 
 
-## 打过疫苗死亡的人比没打的人多四倍，主流媒体不报道
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1684417/)
+## 数万人聚集维也纳，抗议奥地利政府防疫新规
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1684443/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+作者：纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+本周六，就在奥地利政府宣布防疫新规的第二天，数万人聚集维也纳，游行抗议政府关于中共病毒的限制措施。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-16.jpg)
+本周，尽管对未接种疫苗的人实施了封锁，奥地利每日感染人数仍创下新纪录。11月19日，奥地利政府宣布，将于11月22日开始实施更严格的封锁措施，并于明年2月1日起强制民众接种疫苗。据悉，奥地利是西欧疫苗接种率最低的地区之一。尽管约66%奥地利人民已经接种了新冠疫苗，但仍有许多奥地利人对疫苗持怀疑态度。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/l_dead-body-free-deliver-from-hospital-rajasthan-1484617778_835x547-700x430-1.jpg)
+据当地警方称，截至当天下午三点左右，抗议人群已达35,000人。
 
+参考链接：[数万人聚集维也纳，抗议奥地利政府防疫新规](https://www.thestar.com.my/news/world/2021/11/20/thousands-protest-in-vienna-against-covid-restrictions-before-lockdown?utm_source=ground.news&amp;utm_medium=referral)
 
- 
-图片来源：www.pratidintime.com
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
+总编：文特
+编辑：飞虹/雪梨
+校对/发稿：Hetangyuese
 
-#### 编译：小红帽
-
-英国卫生安全局（UKHSA）中共病毒（COVID-19）疫苗监测报告的最新数据显示，有一个“未接种疫苗 ”而“感染”中共病毒的人死亡，就至少有四个“完全接种疫苗”的人死亡。
-
-据数据显示，绝大多数报告的中共病毒死亡病例（82%）是发生在人们接种中共病毒疫苗之后。这个事实直接违背了疫苗制造商声称的90%的死亡预防率。(注：早在9月，英国国家统计局报告说，当月对中共病毒检测为“阳性”并死亡的人几乎都“完全接种”了中共病毒疫苗）。
-
-中共病毒疫苗正在破坏人们的免疫系统–造成一种免疫缺陷病，类似于艾滋病，但该病却是由疫苗引起的。这种相关性非常明确的，但主流媒体却没有报道。
-
-《曝光报》报道说：“在中共病毒疫苗接种活动启动两个月后，死亡人数急剧增加，高于五年的平均水平”。
-
-任何宣传“疫苗是安全和有效的”口号的人都是不诚实的。任何鼓励、胁迫或强迫他人进行实验性医疗程序的人都是在实施、协助、教唆、故意伤害人。主流媒体正在传播错误信息和虚假信息–关掉电视，神经语言编程节目正在被用来对付你。
-
-**参考新闻：**[FOUR TIMES more vaxxed people are dying than unvaxxed… depopulation effects are kicking in and the bodies are piling up – NaturalNews.com](https://www.naturalnews.com/2021-11-21-4x-more-vaxxed-people-dying-compared-to-unvaxxed.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

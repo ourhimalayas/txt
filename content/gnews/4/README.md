@@ -2,58 +2,48 @@
 ---
 
 
-## 强制疫苗政策推行者们不得不承认疫苗效果未达预期
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1684672/)
+## 苏格兰新生儿死亡数量猛增
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1684759/)
 
-那是超过 20:1 的回报
-如果你把这笔钱投入到 标准普尔 500 指数
-将股息再投资
-你会有大约170亿美元的回报
-你认为是 2000 亿美元？是的
-你会没事的
-如果你接种了疫苗 就不会感染 Covid
-这些疫苗非常、非常有效
-接种了疫苗的人不会 携带病毒, 也不会感染
-疫苗对变种病毒非常有效
-每个接种疫苗的人 不仅是在保护你们自己
-而且减少传染给其他人的机会
-并且可以让社会恢复正常
-去接种第一剂疫苗，当轮到 你接种第二针，请准时接种
-我们的主要目标是通过提高免疫力
-来阻止病毒传播，所以 你几乎不会受到任何感染
-当人们接种了疫苗
-他们可以放心，不会感染病毒
-如果你接种了疫苗，你就不会住院
-你不会进ICU病房，也不会死
-如果完全接种了疫苗
-你不再需要戴口罩
-任何已完全接种疫苗的人
-可以参加各类大小的室内外活动
-不需要戴口罩或保持社交距离
-他们不能再阻止病毒的传播
-你知道的，我们没有 可以阻止传播的疫苗
-我们的确有疫苗可以帮你保持健康
-但它们只是略微减少了病毒的传播
-我们需要一种新的疫苗研发办法
-鼻咽部的病毒水平
-在接种过疫苗并感染病毒后的人群
-和没有接种过疫苗 的人群是同一水平的
-来自我们国际同行的报告
-包括以色列
-显示早期接种了疫苗的人 患严重疾病的风险有所增加
-如果你看看以色列,他们总是 比我们提前一个月到一个半月
-导致他们看到了免疫力的下降
-这不仅仅导致感染，还导致了住院
-在某种程度上，甚至是死亡
-但是加强针可能是主要 治疗方案的重要构成
-我们的计划是让每个成年人都打加强针
-这显然是我参与过的 最好的投资之一
+作者：纽约香草山佛教部 – 文一
 
-听写：UCool优酷
-翻译：维京商人
-字幕添加：杰尼龟
 
-发布：风云小哥
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+据苏格兰媒体11月19日报道，9月份，苏格兰有21名婴儿在出生后28天内死亡。为此，苏格兰公共卫生部正在与苏格兰政府，正在调查新生儿死亡激增的原因。
+
+官方数据显示，9月份，每1,000名活产婴儿中有约5名死亡。这是自1980年以后出现的最高死亡率。 此消息经盖特转帖后，网友纷纷留言，质疑这些婴儿的母亲是否已接种了疫苗，甚至有网友认为这就是“疫苗谋杀”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-8.jpg)
+参考链接：
+1. [UK Health Security Agency Releases Data Shows Most COVID-19 Deaths in England are Fully Vaccinated](https://www.thegatewaypundit.com/2021/11/uk-health-security-agency-releases-data-shows-deaths-england-fully-vaccinated/)
+2. [Those poor little souls **🙏🏻**](https://gettr.com/post/phi1es9902)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：文特
+编辑：飞虹，雪梨
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
