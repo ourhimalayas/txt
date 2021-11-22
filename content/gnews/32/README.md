@@ -2,26 +2,26 @@
 ---
 
 
-## 辉瑞与美政府签订53亿美金新冠药物合同
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683799/)
+## 美国劳工部暂停实施拜登强制接种令
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683801/)
 
-作者：MOS 柳是多水土透
+作者：日本樱花团—在远方
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-2.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo.png)
 
 
 
-作为52.9亿美金合约的一部分，辉瑞医药公司周四宣布将于今年开始，向美国联邦政府供应1000万个疗程的抗新冠病毒药物 市场名Paxlovid，这种口服药针对早期症状用于居家治疗，以帮助减少住院和死亡病例 辉瑞周四向监管机构递交申请批准文件，预期将于下月底前生产18万个疗程的剂量，至2022年底前有5000万疗程出厂 其本月早期的报告称，此药将成人重症风险降低89%，超过默沙东药剂Molnupiravir的50%，美政府同时与默沙东有22亿美金购买合约 郭先生曾转述医疗专家的警告，最近上市的新冠药物的毒副作用甚至大于疫苗，请大家谨慎，以NFSC之前公布的预防治疗方案为优先选项。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/CWOKYOTZ3NNFXJY4K4MIWXFGA4.jpg)图片来源：路透社
+
+当地时间18日，美国劳动部职业安全与健康管理局表示，将遵从法院裁定，暂停实施拜登政府的企业疫苗强制令，直到法院下达进一步指令。该机构还表示，对自己在紧急情况下保护工人的权力充满信心。 自本月4日拜登政府发布企业疫苗强制令以来，德克萨斯、路易斯安那、南卡罗来纳、犹他和密西西比州等，由共和党掌舵的州强烈反对并采取了法律行动。在美国联邦第五巡回上诉法院，以严重的违法违宪问题，冻结了拜登疫苗强制令以后，德州州长阿博特表示，联邦法院即将举行紧急听证会，他们将在法庭上打掉拜登滥用职权的违宪之举。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/c8e6-bb2646c2df0eb0aeec4874eb02013e8f.png)图片来源：RT
 
 **参考阅读：**
 
-https://www.reuters.com/business/healthcare-pharmaceuticals/us-govt-buy-10-mln-courses-pfizers-covid-19-pill-529-bln-2021-11-18/
+https://news.sina.com.cn/w/2021-11-18/doc-iktzqtyu8149167.shtml
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-6.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-8.jpg)
 
 编辑/校对/发稿：一烘
 
