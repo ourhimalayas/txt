@@ -2,37 +2,25 @@
 ---
 
 
-## 新中国联邦需要培养更多人才
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1685751/)
+## 美国2021年死于CCP病毒的人数超过2020年
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1685759/)
 
-作者：美东香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在“1120”三周年纪念大直播中，班农先生与多位年轻战友畅谈。班农先生认为，未来新中国联邦最重要的事，是培养更多创业者、科学家和懂得技术的人。因为未来是由技术驱动的，而且中国人非常擅长。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image1-9.jpg)图片制作：澳喜农场©森森
+至少已经有超过七十七万美国人死于CCP病毒，这一数据已经大大超出了美国在二战期间的总伤亡人数（约四十万左右）。而在2020年，所有与CCP病毒相关联的死亡人数则为大约三十八万人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide3-10.jpeg)
+这意味着2021年的CCP病毒死亡数字已经是接近2020年的两倍，而且今年依旧还有一个多月左右才结束。另一方面，根据部分媒体的调查，2021年全球的CCP病毒死亡数字很可能也早就已经超过2020年。
 
-班农先生说，中共所做的一切都是为了榨取价值，摧毁并剥夺中国人的创造力。未来新中国和新中国人需要有创业精神的企业家，熟悉商业、金融、和市场营销的人才，以及懂得利用技术和应用技术创造价值的人才。班农先生从G系列各个团队中，看到新中国联邦人正朝着正确的方向发展。
+约翰霍普金斯大学的这一数据刚好发布于美国第三针加强疫苗已获授权，同时已批准五岁幼儿接种CCP病毒疫苗的时间点上。然而数据用铁证告知我们，尽管完成了两剂疫苗接种的普及，美国因疫情而造成的死亡人数不仅没有出现下降，反而翻倍上升。
 
-班农先生希望，未来有更多接受过高等教育的中国人，有机会到美国和西方国家的公司里工作。
-在法治和知识产权保护下，在自由和民主的环境里，中国人将向世界展示，参与并创建伟大的公司，享有更好的工资待遇和公司所有权。
+这说明疫苗既没有起到防止感染的作用，也没能够有效降低死亡病例——不仅是美国，这一结论在全球也同样适用。于此同时，我们也不能忘记疫苗本身也成为了病毒的重要传播途径以及致死因素之一。
 
-参考链接：
-1）[11/20/2021【1120三周年纪念】班农先生：](https://gettr.com/post/phi6gm5618)
-2）[11/20/2021【11·20王健之死新闻发布会三周年】](https://gnews.org/zh-hans/1683149/)
+这样百害而无一益的毒针竟然还想引进第三剂，同时还要向12岁以下的儿童普及，实在是荒唐而又离奇。在这样的危急关头，我们也看到了世界正义力量走上街头自由集会，表达抗争的决心和勇气。如果我们连自己的身体都无法做主，那么等待着我们的，就是通往奴役之路。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+新闻参考链接：
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[Red Voice Media](https://www.redvoicemedia.com/2021/11/2021-u-s-covid-deaths-surpass-2020-despite-availability-and-adoption-of-the-jab/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
