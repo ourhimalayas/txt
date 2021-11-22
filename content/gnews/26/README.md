@@ -2,37 +2,40 @@
 ---
 
 
-## 联邦上诉法院重申暂停拜登疫苗授权
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1684355/)
+## 打过疫苗死亡的人比没打的人多四倍，主流媒体不报道
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1684417/)
 
-**对应英文翻译：ATX1230
-校：Lish
-编辑：李易通
-剪辑/字幕：向上James**
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-主持人（Shannon）：第二批纽约医护人员正在向最高法院请愿，要求该州维持他们对强制疫苗的宗教可豁免权。临时禁令的请求基于地理因素交给了Sonia Sotomayor法官，她可以独自将此事提交给全院表决。而早先提出的类似法律救济的请求仍在法院待决。第五巡回法院正在加倍执行之前的命令，在今晚暂时停止执行拜登总统的疫苗强制令。该强制令要求有 100多名工人的雇主接种疫苗或每周进行测试，否则将面临严重罚款，这可能导致他们停业。今晚法院称这些强制的范围实在广泛的惊人，至此，让我们今晚与我们的大律师，前美国检察官 Harry Lippmann 和A3P的总裁Mike Davis一起讨论这一切从何而来以及其他热门法律话题。欢迎您们二位的回归。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/l_dead-body-free-deliver-from-hospital-rajasthan-1484617778_835x547-700x430-1.jpg)
 
-Harry：嗨，Shannon。
 
-Mike：谢谢你。
+ 
+图片来源：www.pratidintime.com
 
-主持人（Shannon）：从第五巡回法院今晚的意见中可以看出，疫苗强制令给雇主造成了财务负担，也就是说，雇主通过授权参与职业安全与健康管理局（OSHA）的监管计划，如果他们拒绝或不遵守，就会面临严重的财务风险。强迫不愿意的雇员接种疫苗、做病毒检测， 不然就辞职，这样做会削弱他们的劳动力和商业前景。Harry, 听起来（第五巡回法院）对这项强制任务会带来的影响不够深刻。
 
-Harry：他们并没有，这就是为什么他们将其称为强制任务。它确实有一个出口， 你知道，如果不打疫苗，你将一直接受新冠病毒检测。所以这将不得不上诉到最高法院，其他法院已经或多或少地向着另一个方向发展了。这是政府必须为其（强制接种的大项目）争辩的一个大问题。
+#### 编译：小红帽
 
-主持人(Shannon):好的,Mike, 这回我将请你快速发表评论，你认为根据我们在过去一年左右的时间里法院对新冠病毒相关事物的决定，你如何看待这个问题如果走势真到达那一步？
+英国卫生安全局（UKHSA）中共病毒（COVID-19）疫苗监测报告的最新数据显示，有一个“未接种疫苗 ”而“感染”中共病毒的人死亡，就至少有四个“完全接种疫苗”的人死亡。
 
-Mike:第五巡回法院的这一决定对政府来说是个大麻烦，因为它表示，联邦机构 OSHA 试图将疫苗强制令强加给雇主存在严重的违宪问题，因此这对大政府来说不是一个好兆头。
+据数据显示，绝大多数报告的中共病毒死亡病例（82%）是发生在人们接种中共病毒疫苗之后。这个事实直接违背了疫苗制造商声称的90%的死亡预防率。(注：早在9月，英国国家统计局报告说，当月对中共病毒检测为“阳性”并死亡的人几乎都“完全接种”了中共病毒疫苗）。
 
-**视频链接：**[https://video.foxnews.com/v/6281740400001#sp=show-clips](https://video.foxnews.com/v/6281740400001#sp=show-clips)
+中共病毒疫苗正在破坏人们的免疫系统–造成一种免疫缺陷病，类似于艾滋病，但该病却是由疫苗引起的。这种相关性非常明确的，但主流媒体却没有报道。
 
-发布：文武全才
+《曝光报》报道说：“在中共病毒疫苗接种活动启动两个月后，死亡人数急剧增加，高于五年的平均水平”。
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+任何宣传“疫苗是安全和有效的”口号的人都是不诚实的。任何鼓励、胁迫或强迫他人进行实验性医疗程序的人都是在实施、协助、教唆、故意伤害人。主流媒体正在传播错误信息和虚假信息–关掉电视，神经语言编程节目正在被用来对付你。
+
+**参考新闻：**[FOUR TIMES more vaxxed people are dying than unvaxxed… depopulation effects are kicking in and the bodies are piling up – NaturalNews.com](https://www.naturalnews.com/2021-11-21-4x-more-vaxxed-people-dying-compared-to-unvaxxed.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
