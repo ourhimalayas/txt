@@ -2,16 +2,36 @@
 ---
 
 
-## 中共无法兑现多国借款，多数国家转向欲建交台湾、新中国联邦
-` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1685941/)
+## 文贵先生说：正道主义
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1686057/)
 
-作者：新西兰伊甸农场 亚伦
+文编：Hima
+视频：七哥
 
-据郭文贵先生在11月22日盖特直播中透露，近日中共内部连续收到所谓兄弟国家发来的照会，要求中共兑现当初答应的借款、贷款承诺。但是，中共目前的内外交困的经济现状根本无法兑现，便开始一如既往地耍流氓模式。“兄弟”国家们很强硬，说中共不能兑现借款，就要转向和中国台湾建交，和新中国联邦建交。此行径也打脸习主席关于“一带一路”座谈会声称的“实打实、沉甸甸的成就”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6ba1fa4749047afa0d3edbbe49f527ce-1.png)图片来源FRED DUFOUR/AFP
+我们的正道主义就是一个把国家主义彻底干掉！我们人类上应该无种族，无肤色，不仅仅是地球的一个，完全不需要你奉献的一个，安全的！共同信仰的的主义，我们不是国家！国家在我们这个层面不算啥了！是吧？
 
+什么国家？我们每个人在不同的国家，是因为这些国家我们在一起吗？
 
-中共现在面临的国际形势是全世界80%的国家是他的敌人，20%的是冲着中共的钱和中共暂时站在一起。原来那些国家跟中共做交易的牌只有台湾，现在多了新中国联邦。
+不是！是因为我们共同的信仰！
+
+所以说，我们将走的比国家要远！
+
+校对：HimaFaFA
+发布：HimaBoy
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

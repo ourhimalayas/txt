@@ -2,34 +2,23 @@
 ---
 
 
-## 震惊！全球首款注射疫苗杀人机器人面世
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1685755/)
+## 澳大利亚维州争议法案将使得州长拥有无穷无尽的权力
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1685788/)
 
-撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-5.png)
-（图片来源于本文链接）
+撰稿：苏加诺
 
-11月22日消息，据媒体报道，加拿大初创公司Cobionix宣称，他们研制出了全球首款能注射疫苗的机器人——Cobi，能以自主、无痛且无针头方式注射疫苗。其接种方法如下：
+视频与字幕：苏加诺
 
-1、Cobi由一个带有药瓶储存区的机械臂和一个与患者互动的屏幕组成，屏幕内摄像头会录入登记者的身份证或相关证件，应可辨识登记者是否接种。
+本周一（2021年11月22日），澳洲维多利亚省影子内阁财务主管大卫戴维斯（David Davis）在接受天空新闻（Sky News）采访时提到，维州当前这项极其具争议的疫情法案会给予维州州长以及其政府无穷无尽的权力。
 
-2、Cobi会拿起一个装有药剂的小瓶，并通过激光雷达传感器发射人眼不可见的光脉冲来测量它与接种者之间的距离。
+大卫认为，本项疫情法案在提出前已经有六个月的咨询期，但是维州州长以及其政府在颁布出此项法案前，并没有公开地，广泛地向商界以及其它各个行业进行咨询和探讨。甚至没有咨询过任何维州当地社会群体的意见。他同时提出，以疫情长期封锁人民对于维州州长是一种乐趣。
 
-3、药物被装入带有喷嘴的一次性容器中，当施加电流时，磁场推动活塞，挤压小瓶，通过喷嘴强力喷出药物，并穿过皮肤毛孔，进入身体。
+此项法案还在修改之中，预计将于本月月底前公布。
 
-Cobionix公司表示，Cobi目前还只是一个工作原型，可能需要两年或更长时间才能上市，而疫苗接种只是它可能执行的众多任务之一。
+新闻参考链接：
 
-可以预见，这款注射疫苗机器人或以巡逻或游戏等各种名义出现在世界任意地点，通过面部扫描识别人群的疫苗接种情况，并悄无声息地将特定药物注射进特定人群。这就是款杀人机器人。
-
-信息来源：
-
-[无痛无针头！全球首款注射疫苗机器人面世](https://news.mydrivers.com/1/797/797820.htm)
-
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
-
-
+[Controversial pandemic bill gives ‘trigger happy’ Andrews ‘unrivalled power’ (msn.com)](https://www.msn.com/en-au/news/other/controversial-pandemic-bill-gives-trigger-happy-andrews-unrivalled-power/ar-AAQZ9rM?ocid=msedgntp#image=1)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

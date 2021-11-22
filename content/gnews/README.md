@@ -15,137 +15,137 @@
 
 ---
 
-### [文贵先生说：正道主义](/content/gnews/1/README.md)
+### [文贵先生说：我们真正的新中国联邦人未来不需要宗教，但是需要信仰](/content/gnews/1/README.md)
  ` MG FARM`
 
-### [西媒头条 — 第114期](/content/gnews/2/README.md)
+### [喜币上市后爆料革命37天关键增长期日记5](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [联合国：飙升的运费将全球通胀推高1.5%](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [文贵先生说 “当下教”](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [文贵先生说：正道主义](/content/gnews/5/README.md)
+ ` MG FARM`
+
+### [西媒头条 — 第114期](/content/gnews/6/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [Joe Morgan 先生送给文贵先生的一本书](/content/gnews/3/README.md)
+### [Joe Morgan 先生送给文贵先生的一本书](/content/gnews/7/README.md)
  ` MG FARM`
 
-### [2021/11/22 大卫作战室直播精要](/content/gnews/4/README.md)
+### [2021/11/22 大卫作战室直播精要](/content/gnews/8/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共无法兑现多国借款，多数国家转向欲建交台湾、新中国联邦](/content/gnews/5/README.md)
+### [中共无法兑现多国借款，多数国家转向欲建交台湾、新中国联邦](/content/gnews/9/README.md)
  ` YALUN 亚伦`
 
-### [2021年11月22日文贵先生盖特直播大雨围城速记](/content/gnews/6/README.md)
+### [2021年11月22日文贵先生盖特直播大雨围城速记](/content/gnews/10/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [GTV新闻访谈简报|2021年11月22日早](/content/gnews/7/README.md)
+### [GTV新闻访谈简报|2021年11月22日早](/content/gnews/11/README.md)
  ` 纽约香草山MOS01`
 
-### [纳瓦罗谈拜习视频会：中共正要摧毁、压倒、接管美国](/content/gnews/8/README.md)
+### [纳瓦罗谈拜习视频会：中共正要摧毁、压倒、接管美国](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [加拿大联邦政府没有计划强制儿童接种疫苗](/content/gnews/9/README.md)
+### [加拿大联邦政府没有计划强制儿童接种疫苗](/content/gnews/13/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [11/20/2021【1120三周年纪念】班农先生为解救中国人民付出无尽心血](/content/gnews/10/README.md)
+### [11/20/2021【1120三周年纪念】班农先生为解救中国人民付出无尽心血](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [习近平再提建设“网络强国”，中国互联网言论环境雪上加霜](/content/gnews/11/README.md)
+### [习近平再提建设“网络强国”，中国互联网言论环境雪上加霜](/content/gnews/15/README.md)
  ` 首尔天池农场`
 
-### [11/20/2021【1120三周年纪念】文贵先生：我们要真心爱班农先生，他是真正的大师可以帮助到新中国联邦和全球所有的华人](/content/gnews/12/README.md)
+### [11/20/2021【1120三周年纪念】文贵先生：我们要真心爱班农先生，他是真正的大师可以帮助到新中国联邦和全球所有的华人](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [11/20/2021【1120三周年纪念】与中共沆瀣一气的全球主义者们更想成为中共](/content/gnews/13/README.md)
+### [11/20/2021【1120三周年纪念】与中共沆瀣一气的全球主义者们更想成为中共](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [大量心梗，中共国疫苗灾难蔓延](/content/gnews/14/README.md)
+### [大量心梗，中共国疫苗灾难蔓延](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [11/20/2021【1120三周年纪念】 班农先生：中国是美国在第二次世界大战中最大的盟友，解放中国要靠中国人自己](/content/gnews/15/README.md)
+### [11/20/2021【1120三周年纪念】 班农先生：中国是美国在第二次世界大战中最大的盟友，解放中国要靠中国人自己](/content/gnews/19/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [《中国统计年鉴2021》数据显示，2020年中国人口出生率为8.52 ‰](/content/gnews/16/README.md)
+### [《中国统计年鉴2021》数据显示，2020年中国人口出生率为8.52 ‰](/content/gnews/20/README.md)
  ` 首尔天池农场`
 
-### [奥地利警察与反疫苗人士一起反抗：我们一起为自由而战](/content/gnews/17/README.md)
+### [奥地利警察与反疫苗人士一起反抗：我们一起为自由而战](/content/gnews/21/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [澳大利亚维州争议法案将使得州长拥有无穷无尽的权力](/content/gnews/18/README.md)
+### [澳大利亚维州争议法案将使得州长拥有无穷无尽的权力](/content/gnews/22/README.md)
  ` 澳喜特战旅Gnews`
 
-### [美国CDC 承认中共病毒疫苗有导致心肌炎和心包炎的风险](/content/gnews/19/README.md)
+### [美国CDC 承认中共病毒疫苗有导致心肌炎和心包炎的风险](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [东南亚一周新闻回顾（2021年11月13日-20日）](/content/gnews/20/README.md)
+### [东南亚一周新闻回顾（2021年11月13日-20日）](/content/gnews/24/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [美国2021年死于CCP病毒的人数超过2020年](/content/gnews/21/README.md)
+### [美国2021年死于CCP病毒的人数超过2020年](/content/gnews/25/README.md)
  ` 澳喜特战旅Gnews`
 
-### [震惊！全球首款注射疫苗杀人机器人面世](/content/gnews/22/README.md)
+### [震惊！全球首款注射疫苗杀人机器人面世](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦需要培养更多人才](/content/gnews/23/README.md)
+### [新中国联邦需要培养更多人才](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [阿富汗银行系统将出现“大规模”崩溃](/content/gnews/24/README.md)
+### [阿富汗银行系统将出现“大规模”崩溃](/content/gnews/28/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [11/22/21 香港快讯 廉署财汇局搜会计师楼拘九人 涉会计师报告作假](/content/gnews/25/README.md)
+### [11/22/21 香港快讯 廉署财汇局搜会计师楼拘九人 涉会计师报告作假](/content/gnews/29/README.md)
  ` 英喜-粵語組`
 
-### [2021年11月9-10日 郭先生视频重点内容整理](/content/gnews/26/README.md)
+### [2021年11月9-10日 郭先生视频重点内容整理](/content/gnews/30/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [中国人的优秀品质最终会消灭中共](/content/gnews/27/README.md)
+### [中国人的优秀品质最终会消灭中共](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [班农先生谈加密数字货币未来真正的价值](/content/gnews/28/README.md)
+### [班农先生谈加密数字货币未来真正的价值](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [回避与中共领导线下会议之后，日本首相将会晤越南总理](/content/gnews/29/README.md)
+### [回避与中共领导线下会议之后，日本首相将会晤越南总理](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [立陶宛设立台湾代表处或触发多米诺效应](/content/gnews/30/README.md)
+### [立陶宛设立台湾代表处或触发多米诺效应](/content/gnews/34/README.md)
  ` 波士顿五月花农场`
 
-### [DC每日热点1122](/content/gnews/31/README.md)
+### [DC每日热点1122](/content/gnews/35/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [2021年11月11-12日 郭先生视频重点内容整理](/content/gnews/32/README.md)
+### [2021年11月11-12日 郭先生视频重点内容整理](/content/gnews/36/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [日本尖端临床医学会议报告称基因疫苗有毒](/content/gnews/33/README.md)
+### [日本尖端临床医学会议报告称基因疫苗有毒](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [欧洲各地爆发反对封锁和疫苗抗议活动](/content/gnews/34/README.md)
+### [欧洲各地爆发反对封锁和疫苗抗议活动](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [维加诺大主教呼吁建立“反全球化联盟”](/content/gnews/35/README.md)
- ` GTV新闻访谈`
-
-### [爆料革命——历史的今天11月10日](/content/gnews/36/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [阿富汗人道危机加剧，塔利班喊话日本帮助重建](/content/gnews/37/README.md)
+### [阿富汗人道危机加剧，塔利班喊话日本帮助重建](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [世界各地反北京冬奥，蓬佩奥再次抨击中共暴行](/content/gnews/38/README.md)
+### [世界各地反北京冬奥，蓬佩奥再次抨击中共暴行](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [意大利主教团对反新冠疫苗者措辞强硬：“自私，不负责任”](/content/gnews/39/README.md)
- ` xiaobaige`
-
-### [银河快讯: 欧盟和日本将于29日讨论台湾等问题；加薪公司连续两年减少](/content/gnews/40/README.md)
+### [银河快讯: 欧盟和日本将于29日讨论台湾等问题；加薪公司连续两年减少](/content/gnews/41/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [秘翻在线：中共国新生儿出生率不断创新低,谈何以民为本？](/content/gnews/41/README.md)
+### [秘翻在线：中共国新生儿出生率不断创新低,谈何以民为本？](/content/gnews/42/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [11/22/2021国际财经快讯：社会政策支出方案中的减税措施利于富人；萨尔瓦多将建造“比特币城”](/content/gnews/42/README.md)
+### [11/22/2021国际财经快讯：社会政策支出方案中的减税措施利于富人；萨尔瓦多将建造“比特币城”](/content/gnews/43/README.md)
  ` 秘密翻译组金融团队`
 
-### [数字人民币笑话](/content/gnews/43/README.md)
+### [数字人民币笑话](/content/gnews/44/README.md)
  ` 骄子`
-
-### [2022全球股市大震荡？——日本媒体如是说](/content/gnews/44/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [中共挥舞“共同富裕”镰刀，网红主播被罚款9322.56万](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

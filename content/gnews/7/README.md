@@ -2,30 +2,32 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月22日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1685905/)
+## Joe Morgan 先生送给文贵先生的一本书
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1685998/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-3.png)
+文编：Hima
+视频：七哥Gettr
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-23.png)
-文章仅代表作者本人观点，与Gnews无关
+过两天我经他允许我要把这个书给大家来分享一下！Joe Morgan 先生给我这本书就是：Morgan Stanley, JP Morgan 当年，怎么落魄，怎么到中国去，还在中国生了孩子，然后到美国创建了，美国的金融系统，和美国的JP Morgan,美国的大通银行，他祖父和他的爷爷，他的父亲怎么创造这些年！跟中国的关系，很让人感动的！用我们的Morgan先生他的历史可以验证，人类的历史，每次的一次大的文明和政治格局的变化都是伴随着金融的变革！咱们的喜联储，喜币，喜美元就是一场对人类的政治板局和政治版图和军事力量，经济力量，人类文明的一次大的变革前夜必然诞生的东西，而且他的诞生的力量就是我说金融界的孙悟空！
 
-视频参看：2021.11.22早GTV新闻访谈
+校对：HimaFaFA
+发布：HimaBoy
 
-[https://gtv.org/video/id=619b9ad3cbfd016d6378cffa](https://gtv.org/video/id=619b9ad3cbfd016d6378cffa)
+（文章仅代表作者个人观点）
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-8.jpg)
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
