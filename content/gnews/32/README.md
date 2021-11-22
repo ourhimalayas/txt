@@ -2,31 +2,34 @@
 ---
 
 
-## 爆料革命——历史的今天11月10日
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1685654/)
+## 维加诺大主教呼吁建立“反全球化联盟”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1685658/)
 
-**整理：Pride**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-22-224849.png)
-**2017年11月10日—**盗国贼们现在四处威胁、围剿我们，Livestream也给我们干掉。在推行自由、民主、的美国，三大社交媒体都把文贵封杀。但这挡不住文贵。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月16日，维加诺大主教发布视频演讲，呼吁渴望自由、善良和正义的人民联合起来，成立反全球主义联盟，反对集独裁统治和恐怖主义于一身的极权暴政，共同对抗“大重启”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-22-下午10.44.48.png)
+大主教说，在过去的两年，我们目睹了一场全球政变。由不露面的阴谋者资助的超国家金融和意识形态精英控制了政府、媒体、司法机构、宗教领袖等等，剥夺了公民的基本权利。这是世界经济论坛的大重置，是新世界秩序的计划，是联合国2030年议程，目的是奴役每一个人。中共病毒疫情是大重启重要的步骤。反全球化联盟必须将这些反人类罪犯，交由国际法庭审判他们的罪行，并进行彻底的政治改革。
 
-战友要文贵反习，大家都不了解习。习主席是最讲信用的，说话算话会兑现。孝敬，对家人好。但他的理想、信仰、宗教可能错了。大家希望文贵能带来法治、民主，自由，也尊重我的民主权利。
+一直以来，维加诺大主教作为正义的宗教领袖为民众发声。他呼吁各国民众团结、勇敢，捍卫权利和自由，反对疫苗接种，反对极权统治。
 
-**2019年11月10日—**香港人民又在世界面前，再次展示了勇敢、智慧和坚定意志。但共产党的凶残、假、黑、骗，也超出大家想象。共产党会对香港的镇压，会越来越严厉。许诺林郑月娥、李家超、卢伟聪、郑若骅全家安全；安排好了大肆抓捕，个个击破；威胁四大不要脸让他们闭嘴。人民解放军穿着香港警察服装进入香港，福建帮会穿着红衣服到香港。没有遣返法例，23条立法、国家安全法、香港戒严法，哪个法都要命。
+参考链接：
+1）[HUGE EXCLUSIVE: Archbishop Carlo Maria Viganò Calls on People of Faith to Unite in a Worldwide Anti-Globalist Alliance to Free Humanity from the Totalitarian Regime (VIDEO)](https://www.thegatewaypundit.com/2021/11/huge-exclusive-archbishop-carlo-maria-vigano-calls-people-faith-unite-worldwide-anti-globalist-alliance-free-humanity-totalitarian-regime-video/)
+2）[https://gettr.com/post/phkexi5bef](https://gettr.com/post/phkexi5bef)
 
-大家看到的是香港街头政治运动，事实背后的较量都是看不见的战场—金融、信息、国际外交战。共产党借了香港几千亿美元，不会还。香港人去银行取钱不给，大额不划转；股票、金融票据，卖不出去。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-郭宝胜骗了一位加拿大战友的钱，结果郭宝胜揭发，说战友在国内犯罪。他把钱、帐号交给中国警察国安部。导致这位战友在国内几百亿资产被封，家人被绑架。郭宝胜害了一位有正义的百亿富豪，这仇一定要报。
+总编：DM
+编辑：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-区块链分公开和私密区块链数据，中共搞的区块链，是不公开的区域私块链。知道老百姓每一分钱去那了，所有的钱他一人说了算。把你的钱全部拿走，没人能查。
-
-**2020年11月10日—**很多战友问辉瑞疫苗的事情，疫苗不管用，就是黑暗势力的控制。千万不要染上病，不要相信疫苗。
-
-**2021年11月10日—**战友对喜币要唯真不破，造一次假，所有币、投资都退回。G-Club购买者，法治基金捐款者，G-TV投资者，喜币拥有者，根据不同投资，未来永远拥有所有VVIP的待遇。喜币、喜支付、喜贷款全球流通，越多人用越值钱。因为绝对安全、保密，银行、信用卡、金融系统会被废了。喜币每年30%权利，可以把权利让给别人，你就赚钱。想要未来，要保证这个权利。
-
-新中国联邦人甭说赚多少钱，没打疫苗就是最大礼物。大家要注意病毒，甚至共产党放毒又要来一波。病毒口服药比疫苗还毒，对人的神经、血液、消化系统，是毁灭性的。
-
-中共六中全会，外边包装全是假象。内斗加剧，已经达到内外勾结。习要把中国军权自己一人说了算，总理权几乎剥夺。不只要习家军，还有立女儿进中央。中国获得11个第一，癌症数、房地产海外违约、香港外籍人士撤离、外汇大量减少等。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
