@@ -2,20 +2,30 @@
 ---
 
 
-## 秘翻在线: 数字人民币钱包限额大幅下降
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1686365/)
+## 有声|GTV自动多语言字幕功能在1120大直播中应用
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1686487/)
 
-撰稿：西枫westca
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+11月20日，1120三周年纪念日大直播中，GTV启用自动多语言字幕功能，这是自11月11日正式上线以后的再次应用。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-11.jpg)图片来源：网络照片
-据新浪财经头条11月22日报道，数字人民币App更新后，钱包限额设置发生了变化，额度整体进行了收紧降低。
+目前，此功能仅在网页版的GTV上推出，并且能够支持中文简体，中文繁体，广东话，英文，日语，韩语，法语，西班牙语，阿拉伯语等十二种语言。
 
-数字人民币的个人钱包体系，根据实名程度和认证方式不同，分为5类。在这次更新后，各个银行对额度限制都有了变化，即各类账户的单笔限额和日累计限额整体都有不同程度的下调。日前移动支付网认为，数字人民币一直定位于小额零售行业，钱包内过高的额度设置会给洗钱诈骗的犯罪有机可乘。中共国的数字人民币于2020年4月开始试点测试，现在已经覆盖了11个城市，开设个人钱包2000余万个，对公钱包351万余个。中共国的数字人民币和实物人民币同属法定货币。其发行权属于国家。
+并且，用户在收看GTV网页版直播时，还可以选择高清视频直播、低像素视频直播以及纯语言直播形式。
 
-此次钱包限额设置的调整，明是打着为老百姓好，防止电信诈骗的风险，但实质还是要控制钱袋子，老百姓的钱不能属于自己，你想怎么花，由不得你自己做主。在中共的极权统治下，类似事件将会不断出现，个人意志最终将不复存在。
+文字版原文：[GTV自动多语言字幕功能在1120大直播中应用](https://gnews.org/zh-hans/1683527/)
 
-**新闻来源：** [数字人民币App悄然更新，钱包限额发生重大变化\_\_财经头条 (sina.com.cn)](https://t.cj.sina.com.cn/articles/view/2550216490/9801372a001010rto)
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 
