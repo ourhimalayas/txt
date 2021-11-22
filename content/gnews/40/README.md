@@ -2,26 +2,22 @@
 ---
 
 
-## GTV自动多语言字幕功能在1120大直播中应用
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683527/)
+## 美打造印太新新经济框架向中共施压
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683658/)
 
-作者：波士顿五月花 – 葛朗台太太
+作者：东京樱花团—在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月20日，1120三周年纪念日大直播中，GTV启用自动多语言字幕功能，这是自11月11日正式上线以后的再次应用。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-13.jpeg)
-目前，此功能仅在网页版的GTV上推出，并且能够支持中文简体，中文繁体，广东话，英文，日语，韩语，法语，西班牙语，阿拉伯语等十二种语言。
+11月17日，美国商务部长吉娜.雷蒙多表示，印太经济框架可能于明年初启动。并且表明，美国虽然不会加入“跨太平洋伙伴全面进步协定”，但会寻求印太地区志同道合的国家，成立一个更加广泛和自由的经济框架。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-22-上午3.01.46.png)
+同日，美国和日本同时宣布建立新的“美日贸易伙伴关系”，以加强在劳工、环境和数字贸易问题上的合作，并表明重点是对第三国关切，意指中共推动的经济政策。
 
-并且，用户在收看GTV网页版直播时，还可以选择高清视频直播、低像素视频直播以及纯语言直播形式。
+参考链接：[美国打造印太新经济框架 专家：华盛顿向北京施压新工具](https://www.voachinese.com/a/us-asia-trade-20211119/6320176.html)
 
-参考链接：
-1）[多语言字幕](https://gettr.com/post/pgpenyd355)
-2）[2021年11月20日 “11·20”发布会及法治基金、法治社会成立三周年纪念日大直播](https://gtv.org/video/id=6198f18ccbfd016d6377a4f1)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
-
-总编：Ivy001
+总编：木白
 编辑：文特
-校正/发稿：谐趣园
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

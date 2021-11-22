@@ -2,40 +2,30 @@
 ---
 
 
-## 德国医院院长因抗拒政府疫苗接种命令而自杀身亡
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1684169/)
+## 反对强制疫苗的宝琳·汉森议员对政府发出最后通牒
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1684197/)
 
-**作者：日本东京方舟农场 子辰**
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5826-5.jpg)**图片来源：ABCNews**
+#### 整理报道：月映万川
+编辑：文泓
 
-据德国《新闻资讯》11月17日报道，德国开姆尼茨市立医院院长托马斯·詹吉斯（Thomas jendges）博士近日在其医院内自杀身亡。他生前留下一封遗书，遗书里严厉批评了政府在应对中共病毒疫苗危险性方面的信息政策。詹吉斯博士在遗书中称，他再也无法忍受对病人和接种疫苗者不断撒谎和欺骗。
+如果莫里森总理不对宝琳·汉森议员提出的停止强制疫苗法进行支持，一国党领袖宝林·汉森将停止对联邦政府任何立法法案的支持。
 
-詹吉斯博士在遗书中强烈谴责政府使用中共病毒的实验性和致死性疫苗为人群接种，称此疫苗更像是一种被操纵的生物战剂！
+11月22日，她将在联邦参议院推出此项法案。根据此法案，对于个人原因选择不接种新冠疫苗澳大利亚人的歧视，将会被视为违法行为。推出这一立法的背景，正因当前需要重开经济，各州都在积极推动强制疫苗令。宝林·汉森在私人谈话中告诉总理，如果联邦政府不支持她明天的法案，她也将不会继续支持联邦政府（出台）的任何法案。
 
-詹吉斯博士在2021年4月成为开姆尼茨市立医院的主要负责人，并于10月被任命为该院院长。 他在遗书中提到，他曾遭到该市市长舒尔茨的威胁。舒尔茨威胁他说，如果不遵守政府的命令，不去给人们接种疫苗，他就将被解雇。
+这次谈话是在周四发生的。这意味着联邦政府将在联邦议会重开后的未来两周内无法通过任何法律。现在是今年联邦议会会议的最后两周，目前双方的对话还在进行中。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-150.jpg)图片来自TAG24
+在他们最近的一次沟通中，莫里森总理告诉汉森参议员，他将会考虑她的议案；第二，总理允许他领导的自由党政府议员对她的提案进行自由投票。而且，总理也有意就强制疫苗问题与副总检察长进行讨论。
 
-由于詹吉斯博士不想支持联邦政府及其州政府关于接种中共病毒疫苗的命令，不愿成为中共病毒疫苗接种计划这一种族灭绝行为的同流合污者，他因此选择了自杀，他认为自杀才是他反对的惟一途径。
+新闻来源：[Pauline Hanson gives PM ultimatum over vaccine mandates – YouTube](https://www.youtube.com/watch?v=aQAJit8fx20)
 
-詹吉斯博士的这封遗书尽管已被公布出来，但据称，以舒尔茨为代表的当地政府正在竭力阻止这封遗书的传播。不过，当地各个论坛上已经有无数团体要求市长舒尔茨放弃他的阻挠态度，尊重托马斯的遗愿。
-
-*新闻链接：*
-
-[Großer Wirbel um angeblichen Abschiedsbrief von Chemnitzer Klinik-Chef](https://www.tag24.de/amp/chemnitz/lokales/grosser-wirbel-um-angeblichen-abschiedsbrief-von-chemnitzer-klinik-chef-2205407)
-
-
-
-> [Germany | Dr Thomas Jendges Head of Clinic, Commits Suicide “COVID-19 Vaccine Is a Genocide”](https://stessnews.online/2021/11/17/germany-dr-thomas-jendges-head-of-clinic-commits-suicide-covid-19-vaccine-is-a-genocide/)
-
-
-
-* * *
-
-*素材采编：子辰*
-
-*编辑：青衣青青*
-
-*发布：Ranting*
+发布：文泓
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
