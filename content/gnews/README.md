@@ -15,101 +15,101 @@
 
 ---
 
-### [班农专访5: 构建新中国联邦的国防体系](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [中共国出生率跌破1%创历史新低](/content/gnews/1/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [班农专访3: 喜币未来无限美好，会冲上月亮](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [班农专访1：中共正在发动对美国司法系统的超限战](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [樱花灭共诗——称孤（新韵）](/content/gnews/4/README.md)
+### [营收净利双双下降，格力实行“双休”取消加班](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [觉醒之路](/content/gnews/5/README.md)
+### [币统江湖](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2021/11/19 文贵先生直播精要](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [班农专访5: 构建新中国联邦的国防体系](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [班农专访3: 喜币未来无限美好，会冲上月亮](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [区块链可能永久地改变我们的经济、法律和政治体系](/content/gnews/7/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [班农专访1：中共正在发动对美国司法系统的超限战](/content/gnews/8/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [樱花灭共诗——称孤（新韵）](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德国诊所负责人自杀身亡 称“COVID-19 疫苗种族灭绝”](/content/gnews/6/README.md)
+### [觉醒之路](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [德国诊所负责人自杀身亡 称“COVID-19 疫苗种族灭绝”](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [坎特：为了彭帅抵制北京冬奥会](/content/gnews/7/README.md)
+### [坎特：为了彭帅抵制北京冬奥会](/content/gnews/12/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [喜币前程浩瀚——美国名门大学决定容许加密货币支付学费](/content/gnews/8/README.md)
+### [喜币前程浩瀚——美国名门大学决定容许加密货币支付学费](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国参议院呼吁就病毒实验室泄露向中共追责](/content/gnews/9/README.md)
+### [美国参议院呼吁就病毒实验室泄露向中共追责](/content/gnews/14/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [墨尔本人民抗议强制疫苗接种](/content/gnews/10/README.md)
+### [墨尔本人民抗议强制疫苗接种](/content/gnews/15/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [托尼·布莱尔：对于中国，欧洲需要保持接触并增强实力](/content/gnews/11/README.md)
+### [托尼·布莱尔：对于中国，欧洲需要保持接触并增强实力](/content/gnews/16/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [由于不愿打疫苗和检测，35年教龄的加拿大老师被解雇](/content/gnews/12/README.md)
+### [由于不愿打疫苗和检测，35年教龄的加拿大老师被解雇](/content/gnews/17/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [拜登不鼓励台湾独立，但支持其按照《台湾关系法》行事](/content/gnews/13/README.md)
+### [拜登不鼓励台湾独立，但支持其按照《台湾关系法》行事](/content/gnews/18/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [医学博士大卫·马丁指出疫苗的紧急使用授权才是一切罪恶的根源](/content/gnews/14/README.md)
+### [医学博士大卫·马丁指出疫苗的紧急使用授权才是一切罪恶的根源](/content/gnews/19/README.md)
  ` 澳喜农场`
 
-### [苏格兰新生儿死亡激增的调查](/content/gnews/15/README.md)
+### [苏格兰新生儿死亡激增的调查](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [墙内要闻汇编 11月21日](/content/gnews/16/README.md)
+### [墙内要闻汇编 11月21日](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际要闻汇编 11月22日](/content/gnews/17/README.md)
+### [国际要闻汇编 11月22日](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [数字人民币笑话](/content/gnews/18/README.md)
+### [数字人民币笑话](/content/gnews/23/README.md)
  ` 骄子`
 
-### [拿孩子做研究的邪恶团队](/content/gnews/19/README.md)
+### [拿孩子做研究的邪恶团队](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [DC大中华时事：中共多个国产新冠药物进入临床试验](/content/gnews/20/README.md)
+### [DC大中华时事：中共多个国产新冠药物进入临床试验](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [CDC 和大药企数据证实：儿童死于疫苗多于病毒（2/2）](/content/gnews/21/README.md)
+### [CDC 和大药企数据证实：儿童死于疫苗多于病毒（2/2）](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共已为拒交房地产税的居民准备好了监牢](/content/gnews/22/README.md)
+### [中共已为拒交房地产税的居民准备好了监牢](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [CDC 和大药企数据证实：儿童死于疫苗多于病毒（1/2）](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [“依法”赖账不还，欠债还钱将成历史？](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
-
-### [2022全球股市大震荡？——日本媒体如是说](/content/gnews/25/README.md)
+### [2022全球股市大震荡？——日本媒体如是说](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [菲律宾总统对中共国封锁菲律宾船只的行为感到憎恶](/content/gnews/26/README.md)
+### [菲律宾总统对中共国封锁菲律宾船只的行为感到憎恶](/content/gnews/29/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳大利亚联邦银行首席执行官Matt Comyn谈加密货币](/content/gnews/27/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [新西兰财经G乐部 2021年11月22日](/content/gnews/28/README.md)
+### [新西兰财经G乐部 2021年11月22日](/content/gnews/30/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [日本要闻汇编11月22日](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【玫瑰看新闻】 每日快讯](/content/gnews/30/README.md)
+### [【玫瑰看新闻】 每日快讯](/content/gnews/31/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [秘翻在线：中共缺钱开始向网红开刀](/content/gnews/31/README.md)
+### [秘翻在线：中共缺钱开始向网红开刀](/content/gnews/32/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [2021年11月20日11·20发布会暨法治基金成立三周年纪念大会直播全文字版（一）](/content/gnews/32/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
 
 ### [中共挥舞“共同富裕”镰刀，网红主播被罚款9322.56万](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
