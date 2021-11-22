@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/22/2021 2:12 AM (UTC)`
+
+11月21号：这是从2019年买下了盘古的这块土地．到2008年的九年筑城的结果……土地是农民的……企业是百分之百私人的……企业的盈利到目前为止是全中国最高的……负载率是全国最低的……无数个无数个的第一．和唯一，发生在这九年里，最后她却被共产党抢走了！中共和美国最大的不同，就是中共国私人财产不受保护，而且却因为创造的财富和对社会的贡献……会导致有杀身灭家之祸，这就是我们今天新中国联邦人……在美国还有西方法治社会．最要珍惜的私人财产可依法受到保护，每个人都可以。安全的有尊严的享受自己的财富！
+![img](https://media.gettr.com/group16/getter/2021/11/22/02/12/ced9566e-4540-1a20-adc5-0e861566ab9c/c83a4037ac5d4f549932694a71c8c703.jpg)
+
+---
+
 `@miles 11/22/2021 2:00 AM (UTC)`
 
  11月21日：所有的每一块石头，每一块混泥土都是从纸上规划．变成了现实…… <br/><br/>
@@ -295,13 +302,6 @@ One Southern California Mayor takes a stand against 'totalitarian' vaccine manda
 
 11月18日： 可爱的笨笨和Snow嬉闹的日常生活🥰🥰🥰
 ![img](https://media.gettr.com/group8/getter/2021/11/18/20/02/db601031-2e53-9fe5-543a-56e24ca9b7d5/out.jpg)
-
----
-
-`@miles 11/18/2021 3:50 PM (UTC)`
-
-11/17/2021 Miles Guo: After the Six Plenary Session, the CCP’s attitude towards the US will get softer although it will keep taking tough; the West will regard the CCP as more threatening; Xi is going to be the “emperor” in China, while acting like Hitler internationally; Xi will implement isolation policy and push communist policies for both domestic and foreign businesses in China; no one within the CCP’s system will be safe<br/><br/>11/17/2021 文贵直播：六中全会后，中共虽然会对美国嘴上硬，但实际上将越来越软；西方将把中共视为更大的威胁；习近平将对内实行“习皇制”，对外当“习特勒”；习将闭关锁国并对国内外资本实施共产制；中共体制内无人会是安全的<br/>
-![img](https://media.gettr.com/group30/getter/2021/11/18/15/50/2cb8fd48-2bc5-5dd2-2b2e-8c9f6c64ae88/out.jpg)
 
 ---
 
