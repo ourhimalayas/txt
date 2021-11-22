@@ -2,30 +2,29 @@
 ---
 
 
-## 美打造印太新新经济框架向中共施压
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683658/)
+## 郭文贵先生对新中国联邦人的期望
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683797/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月17日，美国商务部长吉娜.雷蒙多表示，印太经济框架可能于明年初启动。并且表明，美国虽然不会加入“跨太平洋伙伴全面进步协定”，但会寻求印太地区志同道合的国家，成立一个更加广泛和自由的经济框架。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-22-上午3.01.46.png)
-同日，美国和日本同时宣布建立新的“美日贸易伙伴关系”，以加强在劳工、环境和数字贸易问题上的合作，并表明重点是对第三国关切，意指中共推动的经济政策。
+作者：纽约香草山农场福音部-恩永存
 
-参考链接：[美国打造印太新经济框架 专家：华盛顿向北京施压新工具](https://www.voachinese.com/a/us-asia-trade-20211119/6320176.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-4.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-总编：木白
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+11月17日，郭文贵先生在大直播中谈及家族基金投资成功的经验时，对战友们有以下期望： 首先要找到做人的窍门和法门，以及走向成功的智慧。其次要和高人打交道，核心是你的智慧、谦虚和为人，然后这些高人就会介绍比他们更高层次的人给你。 郭先生说他很早就认识了美国的科技界、生物界，然后是投资界。1999年郭先生在硅谷住了六个月，认识了多国领导人，结交了科技界朋友。他了解了太空文化，启迪了内心智慧，从而释放了内心潜力。郭先生的家族基金投资那么多生物科技、芯片，都跟那时结识的人脉有关。 郭先生最后说：新中国联邦人不要学张高丽、马云。要自己强大，而让自己强大的只有一条，即相信你的世界使命，相信上天有神。新中国联邦受上天指引，处处充满着神秘，一定有来自上天超自然的力量在帮助我们。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6383d6c383a688bc0ce747d8282e44b3_500x0-3.jpeg)图片来源：喜马拉雅农场联盟委员会
+
+**参考阅读：**
+
+https://gettr.com/post/ph567f4b1f
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-4.jpg)
+
+编辑/校对/发稿：一烘
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

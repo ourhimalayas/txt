@@ -2,54 +2,54 @@
 ---
 
 
-## 参议员瑞克·斯科特: 彭帅的失踪令人震惊，我对中共 掩盖性虐待指控感到愤怒
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1684289/)
+## 商业游说团体向法院提交了停止疫苗强制令的声明
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1684315/)
 
-参议员瑞克·斯科特: 彭帅的失踪令人震惊，我对 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 掩盖性虐待指控感到愤怒。 很高兴国际女子网球协会 [@WTA](https://twitter.com/WTA) 表明立场，我敦促该网协现在撤出 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。 这是在中共国所有人都面临的危险，包括参加 2022 年奥运会的美国运动员。【转CNN推文：女子网球协会主席史蒂夫·西蒙曾表示，如果网球运动员彭帅的指控没有得到完全的追究和调查，他愿意放弃在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的数亿美元的业
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GettyImages-1352165659-1200x872-700x420-1-e1637551165484.jpg)*2021 年 11 月 8 日，抗议者聚集在市政厅外的大公园举行自由游行，抗议洛杉矶市议会为城市雇员和承包商制定的 COVID-19 疫苗规定。（Mario Tama/Getty Images）*
+来自于《大纪元时报》11月20日的报道，
 
+一个商业游说团体，就业创造者网络(JCN)，已向第六巡回上诉法院提交了一份声明，该法院正在审理对乔·拜登总统的中共病毒疫苗（接种）要求提出的所有法律挑战，并致函总统称该组织希望白宫遵守法院的决定，停止疫苗强制令。
 
+就业创造者网络(JCN)在11月19日给拜登的信中写道：“我们希望白宫尊重和听取司法部门的意见，而不是在这条规定面前一味的强迫企业遵守这条规定，因为这项规定的法律命运面临重大失败。”“我们希望白宫能尊重法治，并遵守最高法院的临时禁令。”
 
-> Peng Shuai’s disappearance is horrific & I’m outraged at Communist China's cover up of sexual abuse allegations. Glad [@WTA](https://twitter.com/WTA?ref_src=twsrc%5Etfw) is taking a stand & I urge it pull out of Communist China now. This is the danger all face in Communist China, including U.S. athletes in the 2022 Olympics. [https://t.co/UPNr7Td9sC](https://t.co/UPNr7Td9sC)
-> — Rick Scott (@SenRickScott) [November 20, 2021](https://twitter.com/SenRickScott/status/1462158642048864262?ref_src=twsrc%5Etfw)
+就在几天前，美国职业安全与健康管理局(OSHA)表示，在上诉法院重申其暂时阻止本月早些时候发布的该规定的决定后，它将暂停执行该强制令。该强制令影响了数千万私营企业员工，引发了来自共和党各州、企业、个人和其它团体的一连串诉讼。
 
+周四，白宫新闻秘书珍·普萨基(Jen Psaki)表示，尽管有临时禁令，但拥有100名或更多员工的企业，仍应继续遵守并执行联邦政府的规定，要求员工接种疫苗或接受定期检测。
 
+她周四在白宫对记者说：“我们目前向企业传达的信息是，继续采取措施，使其工作场所更安全，并保护其员工免受新冠病毒的感染。”“这是我们在第五巡回法院发布第一次禁令后发出的信息。这仍然是我们要传达的信息，没有任何改变。”
 
-参议员玛莎·布莱克本： [#彭帅](https://twitter.com/hashtag/%E5%BD%AD%E5%B8%85?src=hashtag_click) 的失踪是最新的迹象，这表明在 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 政府的监督下，把我们的美国队运动员送到一个充满敌意的环境中是绝对不安全的。[@SenTomCotton](https://twitter.com/SenTomCotton)[@MariaBartiromo](https://twitter.com/MariaBartiromo) 【视频中，玛莎提醒大家 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 犯下了种族灭绝罪，他们根本不在乎人命，你敢发表不同声音，他们就敢让你消失】
+尽管有职业安全与卫生管理局(OSHA)的决定和法律挑战，但普萨基表示，拜登政府相信它有权实施该规定，并确认白宫仍在打着企业将在1月4日之前执行该强制令的幌子工作。
 
+“我们仍在按照同样的时间表工作。”她说。“司法部正在法庭上大力捍卫紧急临时标准(ETS)，我们对职业安全与卫生管理局(OSHA)的权威很有信心。”
 
+本周早些时候，关于职业安全与卫生管理局(OSHA)规则（被称为紧急临时标准-ETS）的争议被移交给美国第六巡回上诉法院，该法院的大多数法官都是得到了共和党总统政府确认的。
 
-> The disappearance of Peng Shuai is the latest indication that sending our Team USA athletes into a hostile environment under the watch of the Communist Chinese government is simply unsafe. [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) [@MariaBartiromo](https://twitter.com/MariaBartiromo?ref_src=twsrc%5Etfw) [pic.twitter.com/wYb2jOXpbs](https://t.co/wYb2jOXpbs)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 21, 2021](https://twitter.com/MarshaBlackburn/status/1462496434188599304?ref_src=twsrc%5Etfw)
+就业创造者网络(JCN)还向第六巡回上诉法院提交了一份声明，敦促法院迅速审理和解决对该强制令的法律挑战。该组织在致白宫的信中辩称，拜登政府的行为相当于“行政越权”、是一种“疫苗强制接种的联邦夺权”，并且“无视法院”，不顾禁令敦促企业继续实施。
 
+就业创造者网络(JCN)总裁兼首席执行官阿尔弗雷多·奥尔蒂斯(Alfredo Ortiz)在一份声明中表示：“今天，就业创造者网络正式将白宫施加的不当压力正式提交法院，并呼吁尽快对疫苗强制令的挑战，做出最终裁决。”“乔·拜登和珍·普萨基必须结束并停止迫使小企业遵守这项非法法令的做法。”
 
+简评：
 
-美前国务卿迈克·蓬佩奥: [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 让报道武汉 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的记者消失,让讲述 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 实验室真相的医生们消失,让专业网球运动员消失,让维吾尔人消失,让香港人以及国际刑警组织的负责人消失. 咱们也让奥运会从 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 手里消失，把它放在一个世界可以引以为豪的地方。 [#抵制北京奥运会](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A?src=hashtag_click) [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hashtag_click)
+尽管有法院的禁令同时面临诸多企业的反对，拜登政府依然要违反美国宪法，强制推行疫苗接种令，对于涉嫌通过窃取选票获得总统位置的拜登政府来说，这样的做法其实并不意外。利益集团能通过非法手段把拜登推向总统这个位置，就说明他们根本无视法律。
 
+强制疫苗接种令不止在美国，世界各国都在推进，其推行速度和力度令人惊叹。但是，随着时间的推移，疫苗的副作用越来越多的表现出来，并且随着疫苗在全球范围内造成的死亡案例逐渐增加并被媒体曝光，民众对于毒疫苗的认知正在不断加深，抵制行动的范围会进一步扩大。可以想见，西方民主国家的民选政府，政客和利益集团为了选票，最终将不得不放弃在利益驱使下的强制疫苗接种政策，而选择更加合理有效的方式方法来对抗中共病毒的威胁。
 
+新闻链接：[https://m.theepochtimes.com/business-lobby-files-court-notice-over-bidens-vaccine-mandate-bullying-of-small-business-owners\_4115102.html](https://m.theepochtimes.com/business-lobby-files-court-notice-over-bidens-vaccine-mandate-bullying-of-small-business-owners_4115102.html)
 
-> The CCP has disappeared reporters writing about Wuhan virus, docs telling the truth about CCP labs, a prof tennis player, Uighurs, Hong Kongers & the head of Interpol.
-> Let’s disappear the Olympics from them & hold it in a place the world can be proud of. [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Mike Pompeo (@mikepompeo) [November 21, 2021](https://twitter.com/mikepompeo/status/1462524217816195079?ref_src=twsrc%5Etfw)
+翻译/简评：Harvey (叶知秋)
 
+PR：Julia Win
 
+* * *
 
-参议员汤姆·科顿： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 让其自己敢于发声的奥运会运动员消失了。 他们会对我们的运动员做什么？ 乔·拜登应该立即宣布完全抵制 2022 年奥运会。转美国副国务卿谢尔曼推文：我们对网球运动员彭帅失踪的报道深表关切，我们也呼吁 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 提供独立、可核实的证据证明她的下落。 世界各地的妇女都应该认真对待和调查有关性侵犯的报告。】
-
-
-
-> The CCP disappeared their own Olympic athlete who had the courage to speak out. What will they do to our athletes? Joe Biden should announce a complete boycott of the 2022 Olympic Games immediately. [https://t.co/uiDbNVcOUa](https://t.co/uiDbNVcOUa)
-> — Tom Cotton (@SenTomCotton) [November 20, 2021](https://twitter.com/SenTomCotton/status/1462138367752212486?ref_src=twsrc%5Etfw)
-
-
-
-众议员肯·巴克： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 挟持她为人质，威胁她的生命。 我们无法相信 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的国有媒体。 这是侵犯人权。 【转推为胡锡进推文，声称获得彭帅与教练和朋友吃饭的视频】
-
-
-
-> The CCP is holding her hostage and threatening her life. We can’t trust China’s state owned media. This is a human rights violation. [https://t.co/v9gsLxnwWT](https://t.co/v9gsLxnwWT)
-> — Rep. Ken Buck (@RepKenBuck) [November 20, 2021](https://twitter.com/RepKenBuck/status/1462121868333363206?ref_src=twsrc%5Etfw)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
