@@ -2,37 +2,23 @@
 ---
 
 
-## 新中国联邦需要培养更多人才
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1685751/)
+## 澳大利亚维州争议法案将使得州长拥有无穷无尽的权力
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1685788/)
 
-作者：美东香草山农场 – 文真
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在“1120”三周年纪念大直播中，班农先生与多位年轻战友畅谈。班农先生认为，未来新中国联邦最重要的事，是培养更多创业者、科学家和懂得技术的人。因为未来是由技术驱动的，而且中国人非常擅长。
+撰稿：苏加诺
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide3-10.jpeg)
+视频与字幕：苏加诺
 
-班农先生说，中共所做的一切都是为了榨取价值，摧毁并剥夺中国人的创造力。未来新中国和新中国人需要有创业精神的企业家，熟悉商业、金融、和市场营销的人才，以及懂得利用技术和应用技术创造价值的人才。班农先生从G系列各个团队中，看到新中国联邦人正朝着正确的方向发展。
+本周一（2021年11月22日），澳洲维多利亚省影子内阁财务主管大卫戴维斯（David Davis）在接受天空新闻（Sky News）采访时提到，维州当前这项极其具争议的疫情法案会给予维州州长以及其政府无穷无尽的权力。
 
-班农先生希望，未来有更多接受过高等教育的中国人，有机会到美国和西方国家的公司里工作。
-在法治和知识产权保护下，在自由和民主的环境里，中国人将向世界展示，参与并创建伟大的公司，享有更好的工资待遇和公司所有权。
+大卫认为，本项疫情法案在提出前已经有六个月的咨询期，但是维州州长以及其政府在颁布出此项法案前，并没有公开地，广泛地向商界以及其它各个行业进行咨询和探讨。甚至没有咨询过任何维州当地社会群体的意见。他同时提出，以疫情长期封锁人民对于维州州长是一种乐趣。
 
-参考链接：
-1）[11/20/2021【1120三周年纪念】班农先生：](https://gettr.com/post/phi6gm5618)
-2）[11/20/2021【11·20王健之死新闻发布会三周年】](https://gnews.org/zh-hans/1683149/)
+此项法案还在修改之中，预计将于本月月底前公布。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+新闻参考链接：
 
-总编：Irene木木
-编辑：Kathy文艺
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[Controversial pandemic bill gives ‘trigger happy’ Andrews ‘unrivalled power’ (msn.com)](https://www.msn.com/en-au/news/other/controversial-pandemic-bill-gives-trigger-happy-andrews-unrivalled-power/ar-AAQZ9rM?ocid=msedgntp#image=1)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

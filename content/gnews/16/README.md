@@ -2,12 +2,30 @@
 ---
 
 
-## 11/20/2021【1120三周年纪念】文贵先生：我们要真心爱班农先生，他是真正的大师可以帮助到新中国联邦和全球所有的华人
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1685856/)
+## GTV新闻访谈简报|2021年11月22日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1685905/)
 
-郭文贵先生盛赞班农先生是大师，我们要爱班农先生，一起在全球范围内救助华人
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-3.png)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-23.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：2021.11.22早GTV新闻访谈
+
+[https://gtv.org/video/id=619b9ad3cbfd016d6378cffa](https://gtv.org/video/id=619b9ad3cbfd016d6378cffa)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-8.jpg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
