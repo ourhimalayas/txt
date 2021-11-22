@@ -2,22 +2,30 @@
 ---
 
 
-## 美国老百姓的3个不允许
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1683519/)
+## 美打造印太新新经济框架向中共施压
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683658/)
 
-文编：东京樱花团/樱花传媒
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月17日，美国商务部长吉娜.雷蒙多表示，印太经济框架可能于明年初启动。并且表明，美国虽然不会加入“跨太平洋伙伴全面进步协定”，但会寻求印太地区志同道合的国家，成立一个更加广泛和自由的经济框架。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-22-上午3.01.46.png)
+同日，美国和日本同时宣布建立新的“美日贸易伙伴关系”，以加强在劳工、环境和数字贸易问题上的合作，并表明重点是对第三国关切，意指中共推动的经济政策。
 
-视频:东京樱花团/中文小视频组
+参考链接：[美国打造印太新经济框架 专家：华盛顿向北京施压新工具](https://www.voachinese.com/a/us-asia-trade-20211119/6320176.html)
 
-11月19日，郭文贵先生在GTV大直播指出：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-美国老百姓绝对不能接受超过四美金一桶的油价，绝对不能忍受一块面包超过4-5美金，绝对不允许气电超过平均价格的20%。这三个不允许决定着美国的政治和经济。
+总编：木白
+编辑：文特
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

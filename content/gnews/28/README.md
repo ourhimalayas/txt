@@ -2,26 +2,26 @@
 ---
 
 
-## 中共未来将对内施行“习皇制”，对外实行“希特勒制”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683795/)
+## 辉瑞与美政府签订53亿美金新冠药物合同
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683799/)
 
-作者：纽约香草山教育部-Noemi
+作者：MOS 柳是多水土透
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-6.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-2.png)
 
 
 
-11月17日，据文贵先生在大直播中爆料，在三中全会结束后，中共未来将对内施行“习皇制”，对外实行“希特勒制”。 在对内政策上，中共将彻底贯彻习的皇权至上原则。将一切的私人经济企业通通收缴，并将财富归于中央。而对于所有在华的外资企业而言，中共将利用一切的法西斯行径去侵占和劫掠。从而真正地实现它对内、对外的资本共产制，最终达到闭关锁国的目的。 文贵先生说，在中共的“暴秦“、“法西斯”式的统治之下，国内同胞无一人是安全的，亦无处可以逃离。所有人都将面临最基本的生存问题。然而，中共越疯狂，也就越快走向灭亡。在未来，新中国联邦将是国人唯一的希望。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6383d6c383a688bc0ce747d8282e44b3_500x0-1.jpeg)图片来源：喜马拉雅农场联盟委员会
+
+作为52.9亿美金合约的一部分，辉瑞医药公司周四宣布将于今年开始，向美国联邦政府供应1000万个疗程的抗新冠病毒药物 市场名Paxlovid，这种口服药针对早期症状用于居家治疗，以帮助减少住院和死亡病例 辉瑞周四向监管机构递交申请批准文件，预期将于下月底前生产18万个疗程的剂量，至2022年底前有5000万疗程出厂 其本月早期的报告称，此药将成人重症风险降低89%，超过默沙东药剂Molnupiravir的50%，美政府同时与默沙东有22亿美金购买合约 郭先生曾转述医疗专家的警告，最近上市的新冠药物的毒副作用甚至大于疫苗，请大家谨慎，以NFSC之前公布的预防治疗方案为优先选项。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/CWOKYOTZ3NNFXJY4K4MIWXFGA4.jpg)图片来源：路透社
 
 **参考阅读：**
 
-https://discord.com/channels/872153398588370944/897935909129973803/910578384722087948
+https://www.reuters.com/business/healthcare-pharmaceuticals/us-govt-buy-10-mln-courses-pfizers-covid-19-pill-529-bln-2021-11-18/
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-6.jpg)
 
 编辑/校对/发稿：一烘
 

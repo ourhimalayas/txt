@@ -2,36 +2,39 @@
 ---
 
 
-## 继欧洲议会、德国和美国之后 英国也考虑外交抵制北京冬奥会
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683656/)
+## 维也纳万人游行反对封锁措施
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1683739/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-英国媒体11月20日报道，英国首相约翰逊，正在考虑外交抵制北京冬奥会，以抗议中共恶劣的人权纪录。该报道称，五名保守党政客致信约翰逊，敦促他禁止英国任何官方外交代表，出席2月份的北京冬奥。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-22-上午3.02.10.png)
-就在两天前，美国总统拜登证实，美国政府正在考虑对北京冬奥会进行外交抵制。上个月，即将从德国联邦议院体育委员会主席卸任的，弗莱塔克女士也再次呼吁，各国政府要抵制北京冬奥，作为对中共当局严重侵犯人权的抗议。
+翻译: 里奇
 
-7月份，欧洲议会也以压倒性票数，通过了一项不具强制力的决议，敦促欧盟及成员国的官员，不要出席北京冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-10-4.jpg)2021 年 11 月 20 日，示威者聚集在奥地利维也纳抗议冠状病毒病 (COVID-19) 措施。REUTERS/Leonhard Foeger
 
-参考链接：
-1）[英国正考虑外交抵制北京冬奥会–泰晤士报](https://www.reuters.com/article/uk-thames-beijing-winter-olympic-1120-idCNKBS2I508P)
-2）[彭帅事件或加剧抵制呼声 美国对北京冬奥的外交抵制意味着什么？](https://www.voachinese.com/a/beijing-olympics-diplomatic-boycott-20211119/6320934.html)
-3）[卸任前登高一呼 德國聯邦議院體委會主席籲抵制北京冬奧](https://news.ltn.com.tw/news/world/breakingnews/3701885)
-4）[欧洲议会通过决议呼吁外交抵制北京冬奥会 北京称不值得关注](https://www.voachinese.com/a/European-parliament-resolution-beijing-olympics-boycott-20210709/5960158.html)
+路透维也纳 11 月 20 日，在奥地利政府宣布新的封锁措施，并表示明年将强制接种疫苗后的第二天，成千上万的人，其中许多是极右翼支持者，周六在维也纳抗议冠状病毒限制措施。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+下午早些时候，人群吹着口哨，吹响喇叭和敲击鼓，涌入霍夫堡宫前的英雄广场，霍夫堡宫是维也纳市中心的前皇宫，这是几个抗议地点之一。
 
-总编：文特
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+许多示威者挥舞着奥地利国旗，举着标语，上面写着“不接种疫苗”、“够了”或“打倒法西斯独裁统治”等标语。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据警方称，到中午时分，人群已经增至大约 35,000 人，他们沿着维也纳的内环路游行，然后返回霍夫堡宫。
+
+警方发言人表示，因违反冠状病毒限制和禁止使用纳粹标志而被捕的人数不到 10 人。
+
+奥地利大约有 66% 的人口完全接种了 COVID-19 疫苗，为西欧疫苗接种比率最低的国家之一。许多奥地利人对疫苗持怀疑态度，极右翼自由党（议会第三大党）鼓励了这种观点。
+
+即使在本周对未接种疫苗的人实施封锁之后，每日感染人数仍创记录。政府周五表示，将在周一重新实施封锁，并强制要求所有人截至 2 月 1 日完成接种疫苗。 自由党 (FPO) 和其他对疫苗持批评态度的团体已经在周五政府公告前，已计划于周六在维也纳展示武力，这促使自由党领导人赫伯特·基克尔 (Herbert Kickl) 回应说“截至今天，奥地利已是一个独裁国家”。
+
+Kickl 无法参加，因为他感染了 COVID-19。
+
+“我们不赞成政府的措施，”一名抗议者说，他是一个头上戴着锡纸并挥舞着马桶刷的团体的一员。像大多数接受媒体采访的抗议者一样，他们拒绝透露姓名，尽管气氛是喜庆的。
+
+**参考资料：**[reuters][Tens of thousands march in Vienna against COVID measures before lockdown](https://www.reuters.com/world/europe/thousands-protest-vienna-against-covid-restrictions-before-lockdown-2021-11-20/)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

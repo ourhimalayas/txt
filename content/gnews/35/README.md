@@ -2,34 +2,40 @@
 ---
 
 
-## GTV自动多语言字幕功能在1120大直播中应用
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683527/)
+## DC每日热点1121
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1683682/)
 
-作者：波士顿五月花 – 葛朗台太太
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月20日，1120三周年纪念日大直播中，GTV启用自动多语言字幕功能，这是自11月11日正式上线以后的再次应用。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-13.jpeg)
-目前，此功能仅在网页版的GTV上推出，并且能够支持中文简体，中文繁体，广东话，英文，日语，韩语，法语，西班牙语，阿拉伯语等十二种语言。
+编辑：楚门门
+![](https://assets.gnews.org/wp-content/uploads/2021/11/AD959BA3-35D6-4464-9DA7-6A763DE7287D-scaled.jpeg)
+道琼斯指数 35601.98 ▼0.75%
+纳斯达克指数 16057.44 ▲0.40%
+WTI纽约原油CFD 75.621 ▼3.56%
+布伦特原油CFD 78.599 ▼0.37%
+标普中概股50指数 3,581.09CNY▼-26.82%
+美元兑人民币 1USD=6.387RMB
+美元兑港币 1USD=7.791HKD
+国际黄金 1845.74 美元/盎司
+全球CCP病毒感染人数 257,577,038 例
 
-并且，用户在收看GTV网页版直播时，还可以选择高清视频直播、低像素视频直播以及纯语言直播形式。
+1、日外相林芳正称王毅邀请其访华
+2、奥地利数万民众示威，抗议疫情封闭新措施
+3、伊朗革命卫队的炮艇星期六（11月20日）在波斯湾拦截了一艘油轮，并拘留了11名船员
+4、美国务卿布林肯在对非洲进行最后一天访问，重申伙伴关系
+5、奥斯汀：美国对中东安全的承诺“有力而肯定”
+6、荷兰爆发反对新冠措施抗议 20多人被逮捕
+7、中共国官媒编辑称彭帅就在家中 将很快回归公众视野
+8、拜登借79岁庆寿明说2024将竞选连任
+9、中共国宣布与立陶宛外交关系降至代办级，以此抗议立陶宛允许台湾在其境内设立代表处的决定
+10、军事政变一月后苏丹总理重返岗位
+11、43年来新低：中共国2020出生率千分之8.52
+12、基辛格表示：中共国10年内不会攻打台湾
+13、英国酝酿是否紧跟美国考虑抵制北京冬奥会
+14、波兰指控白俄罗斯采用新方法：将移民分散突破边境线
+15、法国外交部称关注彭帅下落 敦促中共国实践保护妇女家庭法
+16、俄罗斯近期在乌克兰附近集结军队，美国难断俄真实意图左右为难
+17、 委内瑞拉选民今天被号召投票，选举各市长、市议员以及全国23个州的州长，自2017年以来，这是反对派首次参加投票
+18、刚果(金)BGFI银行文件大泄密，揭示位于非洲中部的刚果（金-RDC）大笔公共资金遭挪用
 
-参考链接：
-1）[多语言字幕](https://gettr.com/post/pgpenyd355)
-2）[2021年11月20日 “11·20”发布会及法治基金、法治社会成立三周年纪念日大直播](https://gtv.org/video/id=6198f18ccbfd016d6377a4f1)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
-
-总编：Ivy001
-编辑：文特
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
