@@ -2,12 +2,32 @@
 ---
 
 
-## 班农：我们不会只是坐在那里，我们要进攻（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1684253/)
+## GTV新闻访谈简报|2021年11月21日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1684270/)
 
-11/15/2021 班农：我们不会只是坐在那里，我们要进攻。言论自由与宗教自由一样都是我们最基本的自由，这就是斗争的主题。
+作者：香草山翻译部
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-7.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1121text-SC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[11.21  晚GTV新闻访谈](https://gtv.org/broadcast/watch/619af26bcbfd016d6378aa2b)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-6.jpg)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
 
  
 
