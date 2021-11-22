@@ -2,25 +2,34 @@
 ---
 
 
-## 纽约拟议法案，任何人均可因疫情原因而被强制入院
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1684446/)
+## 有声| 我理解的“万佛万神”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1684454/)
 
-#### 听写/翻译：Lish
-校对/编辑：枳实
-剪辑/字幕：文驰
+配音：香草山福音部 – Daxia
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+七哥直播时经常讲万佛万神，为什么坚持一神论基督信仰的基督徒战友仍然如此坚定地追随七哥呢？七哥讲每一个宗教都有对立面，为什么？这些问题的答案有一个前提，就是我们相信：人类和世界万物是被造的，是有主人的，神是这一切的主宰。
 
-纽约州拟议法案，任何人均可能因疫情原因而被强制收入“医疗设施“。该法案规定，在大流行病中，政府将执行行政命令，把任何被认为是疫情传播的原因，传播大流行病或传播疾病的人，以及他们的家人或这些人认为的任何其他人，把他们从家里带走，放在医疗设施中，直到州长和或州长的专员，认为你不再是一个健康风险为止。此外，众议院议员Linda Rosenthal提出法案，该法案将强制要求任何没有获得医生豁免的人接种中共病毒疫苗。
+人有限的理解和逻辑判断所形成的宗教，能准确和全面地解释万能的神和神所创造的世界吗？人的能力和认知都是有明显局限性的。人没有狗鼻子灵敏，没有豹子跑得快，没有骆驼的耐力，不能像鹰一样飞行。虽然神赋予我们管理地球上生命的能力和智慧，但我们有太多太多的做不到，而且还有人性的诸多罪恶。
 
-发布：枳实
 
-视频链接：[NY Government plans to remove you from your home to a medical facility](https://ourtube.co.uk/watch/DAg8x3Tt3bW3NcH?lang=english)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**原文链接：[【信仰之声】我理解的“万佛万神”](https://gnews.org/zh-hans/1670139/)**
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
 
  
 

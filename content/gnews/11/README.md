@@ -2,37 +2,30 @@
 ---
 
 
-## 联邦上诉法院重申暂停拜登疫苗授权
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1684355/)
+## 全球抗议政府的防疫强权：我们不会放弃
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1684371/)
 
-**对应英文翻译：ATX1230
-校：Lish
-编辑：李易通
-剪辑/字幕：向上James**
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-96.png)
+图片来源： www.dw.com
 
-主持人（Shannon）：第二批纽约医护人员正在向最高法院请愿，要求该州维持他们对强制疫苗的宗教可豁免权。临时禁令的请求基于地理因素交给了Sonia Sotomayor法官，她可以独自将此事提交给全院表决。而早先提出的类似法律救济的请求仍在法院待决。第五巡回法院正在加倍执行之前的命令，在今晚暂时停止执行拜登总统的疫苗强制令。该强制令要求有 100多名工人的雇主接种疫苗或每周进行测试，否则将面临严重罚款，这可能导致他们停业。今晚法院称这些强制的范围实在广泛的惊人，至此，让我们今晚与我们的大律师，前美国检察官 Harry Lippmann 和A3P的总裁Mike Davis一起讨论这一切从何而来以及其他热门法律话题。欢迎您们二位的回归。
+零对冲网11月21日报道，合众国际社称抗议者是“极右分子”，但事实是整个欧洲成千上万的热爱自由的人们走上街头反抗政府新的公共健康权威的强权，例如部分和全部的封城行为和健康护照以及强制疫苗措施。
 
-Harry：嗨，Shannon。
+抗议者反抗在奥地利，克罗地亚，意大利，北爱尔兰，英国，法国，德国和荷兰的新的防疫限制，在欧洲以外的地方，例如在加拿大，澳大利亚，日本甚至美国的一些城市同样有抗议活动，在周六的抗议有些人举着“全球自由”的牌子抗议针对中共病毒疫情的限制和强制疫苗措施。
 
-Mike：谢谢你。
+有些抗议激烈的城市，如荷兰鹿特丹，周五抗议者与警察发生冲突，变成了暴动，一直延续到周六晚上。
 
-主持人（Shannon）：从第五巡回法院今晚的意见中可以看出，疫苗强制令给雇主造成了财务负担，也就是说，雇主通过授权参与职业安全与健康管理局（OSHA）的监管计划，如果他们拒绝或不遵守，就会面临严重的财务风险。强迫不愿意的雇员接种疫苗、做病毒检测， 不然就辞职，这样做会削弱他们的劳动力和商业前景。Harry, 听起来（第五巡回法院）对这项强制任务会带来的影响不够深刻。
+许多欧洲的抗议者们提出相同的口号，即为了人们的生命与自由，政府通过加强中共病毒疫情限制，强制健康护照，强制疫苗等正在剥夺人们的生命权和自由权。在限制措施中最严重的是奥地利，那里要求从周一起完全封城，全国封城至少10天，然后到明年2月1日，政府将强制完成全民疫苗接种，周六在维也纳的抗议中，人们唱着“我的身体，我的选择”“我们要为孩子们而战”“不合作”。
 
-Harry：他们并没有，这就是为什么他们将其称为强制任务。它确实有一个出口， 你知道，如果不打疫苗，你将一直接受新冠病毒检测。所以这将不得不上诉到最高法院，其他法院已经或多或少地向着另一个方向发展了。这是政府必须为其（强制接种的大项目）争辩的一个大问题。
+在罗马，数千抗议者抗议“绿色通道”证明应用于工作岗位，餐厅，影院，剧院，体育场，健身房和公共交通。
 
-主持人(Shannon):好的,Mike, 这回我将请你快速发表评论，你认为根据我们在过去一年左右的时间里法院对新冠病毒相关事物的决定，你如何看待这个问题如果走势真到达那一步？
+抗议者说：“人们像我们一样绝不放弃”。
 
-Mike:第五巡回法院的这一决定对政府来说是个大麻烦，因为它表示，联邦机构 OSHA 试图将疫苗强制令强加给雇主存在严重的违宪问题，因此这对大政府来说不是一个好兆头。
+全球各地的人们对政府强权以公共健康为名剥夺人们的生命，生活和自由的权利，人们正在醒来，那些世界的精英们和他们的哈巴狗官员们正在变得越来越不受欢迎，公民们对政府的不满已经到了危险程度，这是一个变革的开始。
 
-**视频链接：**[https://video.foxnews.com/v/6281740400001#sp=show-clips](https://video.foxnews.com/v/6281740400001#sp=show-clips)
+##### **新闻来源： **[“We’ll Never Give Up” – Protests Erupt Across World Over Gov’t COVID Tyranny](https://www.zerohedge.com/political/well-never-give-protests-erupt-across-europe-over-govt-covid-tyranny)
 
-发布：文武全才
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场](https://twitter.com/HimalayaAthena1)[Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场](https://www.gettr.com/user/himalayaathena)[Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[GTV](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[直播](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[1](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)[台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
