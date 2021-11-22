@@ -2,36 +2,31 @@
 ---
 
 
-## 杜特尔特用“厌恶”怼习近平的南海霸行
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684810/)
+## 亨特·拜登的公司帮助中国公司收购钴矿
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1684829/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-110.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic.dw.com%2Fimage%2F45087148_303.jpg&amp;imgrefurl=https%3A%2F%2Fwww.dw.com%2Fzh%2F%25E9%259D%259E%25E5%2590%258C%25E5%25AF%25BB%25E5%25B8%25B8-%25E6%259D%259C%25E7%2589%25B9%25E5%25B0%2594%25E7%2589%25B9%25E5%2585%25AC%25E5%25BC%2580%25E6%258A%25A8%25E5%2587%25BB%25E4%25B8%25AD%25E5%259B%25BD%2Fa-45093832&amp;tbnid=ZBCZ7TBDsgd-uM&amp;vet=12ahUKEwi5-oTswqv0AhUWgpQKHWPjAykQMygAegUIARCNAQ..i&amp;docid=-M4TRsiXbY9PkM&amp;w=700&amp;h=394&amp;q=%E6%9D%9C%E7%89%B9%E5%B0%94%E7%89%B9&amp;ved=2ahUKEwi5-oTswqv0AhUWgpQKHWPjAykQMygAegUIARCNAQ)
-菲律宾总统杜特尔特(Rodrigo Duterte)周一在中共国领导人习近平主持的一场区域性峰会上表示，他对最近菲律宾在南海与中共国船只发生的冲突“感到厌恶”，并表示法治是解决问题的唯一途径。“我们对最近的事件感到厌恶，”杜特尔特在这场东盟——中共国特别峰会上表示，“这不利于我们两国之间的关系。”
+撰稿：小湫
 
-2021年11月16日，中共国三艘海警船非法阻止了菲律宾两艘补给船向驻守在阿云金暗沙（中共国称仁爱礁，西方称第二托马斯浅滩）的军人运送物资，并对菲律宾补给船使用了水炮。
+《纽约时报》报道，以亨特·拜登(Hunter Biden)为创始人的投资公司，帮助中国公司从美国公司收购一座世界上最赚钱的钴矿。
 
-菲律宾外交部长洛欣（Teodoro Locsin）星期四（11月18日）在一份声明中说，所幸无人在事件中受伤，但菲律宾方面不得不放弃这次的补给行动。他说，他已经就此“以最强烈的措辞”向在马尼拉的中共国大使黄溪连和在北京的中共国外交部表达了菲律宾方面的“愤怒、谴责和抗议”。“我还提醒了中共国，政府船只受到菲律宾——美国共同防御条约的保护，” 洛欣说。
+2013年，拜登同另外两名美国人和中国合伙人，成立了渤海华美（上海）股权投资基金管理公司（Bohai Harvest RST），其中美方占股人控制着渤海华美30%的股份，并担任董事会成员。  
+值得注意的是，该公司在2016年完成了一笔交易，将刚果的一个钴和铜矿从美国Freeport-McMoRan公司转移到中国的钼业集团(China Molybdenum)，交易总额为26.5亿美元。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/H拜登.png)
+图片来自网络
 
-菲律宾外长的声明还说，中共国海警船的行为是非法的，中共国在这一海域及周边范围毫无执法权，他们必须接受忠告并撤离。声明最后誓言，“菲律宾将继续为阿云金暗沙的士兵们提供补给。我们不需要请求许可在我们的领土上做我们需要做的事情。”
+渤海华美作为小股东，从加拿大伦丁矿业(Lundin Mining of Canada)收购了约11.4亿美元的股份，伦丁矿业拥有刚果金矿的部分股权。  
+根据该公司提交给香港的文件，中国钼业在两年后收购了渤海华美在伦丁矿业的股份。 根据这笔交易，中国钼业集团拥有该矿80%的股份，其余股份由刚果国有矿业企业持有。
+据《纽约时报》报道，拜登通过总部位于华盛顿的Skaneateles有限责任公司控制了渤海华美10%的股份。 
+拜登的律师Chris Clark表示，亨特不再直接或间接的与渤海华美或Skaneateles有任何利益关系，中国的记录显示，截至2020年4月，拜登不再是董事会成员。  
+福克斯新闻(Fox News)在2021年4月查阅中国商业记录显示，亨特·拜登通过自己的公司Skaneateles继续持有渤海华美私募股权10%的股份。
 
-阿云金暗沙位于菲律宾巴拉望省西南方面大约105海里处。1999年，菲律宾方面将一艘退役的军舰在高潮时被水淹没的暗礁上搁浅，以巩固自己对这一海域的主权主张。北京称马尼拉非法占领了主权属于中共国的仁爱礁，并不断阻挠菲律宾方面对这一海域的控制。
+亨特·拜登的商业关系仍然是媒体密切关注的焦点，尤其是他在中国的活动。 拜登总统特别警告说，中国钴的主导地位日益上升，这将成为美国从油气能源转向电动能源产业升级的最大障碍，因为钴是电动汽车电池的关键成分。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/H拜登2-1.png)
+参考信息：
+[Hunter Biden’s firm helped Chinese company purchase rich cobalt mine in $3.8 billion deal: report | Fox News](https://www.foxnews.com/politics/hunter-biden-firm-chinese-purchase-cobalt-mine)
 
-中共国声称对南中共国海大部分海域拥有主权，并以人造岛礁及其军事化、常派海警船和渔船等方式强化其主权主张，引起菲律宾和越南等周边国家的抗议。
-
-2016年7月，在海牙的一个国际仲裁法庭针对菲律宾提出的多项申诉作出裁决，包括认定仁爱礁在高潮时没入水中，因此构成菲律宾专属经济区和大陆架的一部分且不与中共国任何可能的权利主张相重叠。
-
-中共国拒绝接受根据联合国海洋法公约设定的这家国际仲裁庭的判决，并继续以其强大的军力和国力推进其非法主权扩张行为。
-
-消息来源:
-
-**[菲律宾总统称“厌恶”近来在南海与中共国船只的冲突 法治为唯一解决途径](https://cn.reuters.com/article/philippines-duterte-china-ship-1122-idCNKBS2I70C9?il=0)**
-
-[南中共国海再有事 马尼拉“最强烈”谴责中共国海警船射水炮阻挡菲律宾补给船](https://www.voachinese.com/a/philippines-south-china-sea-20211118/6317972.html)
-
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+发稿：MG4
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

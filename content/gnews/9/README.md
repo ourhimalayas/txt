@@ -2,23 +2,29 @@
 ---
 
 
-## 秘翻在线：中共缺钱开始向网红开刀
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1684945/)
+## CDC 和大药企数据证实：儿童死于疫苗多于病毒
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1684947/)
 
-**撰稿：葛大饼**
+翻译 : Jenny ball
 
-**责编：人间四月**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-22-171116.jpg)图片来源：搜狐
-根据2021年11月22日中共党媒《环球时报》大肆宣传报道，浙江省杭州市税务部门通过税收大数据分析，发现朱宸慧（微博ID：雪梨Cherie）、林珊珊（微博ID：林珊珊\_Sunny）两名网络主播涉嫌偷逃税款，依据相关法律法规，对朱宸慧追缴税款、加收滞纳金并拟处1倍罚款共计6555.31万元，对林珊珊追缴税款、加收滞纳金并拟处1倍罚款共计2767.25万元。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-550.png)图片来源: thegatewaypundit.com
 
-税务部门表示基于俩人在税务稽查立案后较为配合，在案情查实前主动补缴部分税款，具有主动减轻违法行为危害后果等情节，因此对两人仅拟处偷税金额1倍的罚款。
+世界已经疯了。我们知道，当“专家”决定为儿童接种疫苗时，接种疫苗导致的死亡人数会多于 COVID 导致的死亡人数。现在我们有基于 CDC 和大型制药公司数据的支持这个事实。
 
-中共真的没钱了，企业家，大明星，网红轮流宰割，郭先生之前提过上海某网红，被抄家，现金一个多亿，各种首饰全被弄了。大家还记得杭州保姆纵火案的“受害者”林生斌先生吗？前段时间主流媒体集体打压他，说他偷税也要被罚款2.5亿元。姑且不说这些网红是否真的作恶偷税，但是能有今天的巨额财富早些年税局都干嘛去了？如今中共财务紧张，没处敛财，内斗加剧，老百姓“抽筋扒骨”也没血可吸了，只能开始向这些“圈养”的宠物们动手了。中共这个丑恶的嘴脸，杀人犯法的事每天干，还要老百姓感谢它，这种非法政权能存在就是侮辱人类的文明。
+但是，现在想要为儿童提供 COVID 疫苗的授权。问题在于，一开始死于疫苗的儿童多于死于 COVID 的儿童，而且有证据。
 
-**[新闻来源](https://mp.weixin.qq.com/s/wDN9_hWyVkx2GRrWX4_MSQ)**
+托比·罗杰斯（Toby Rogers）把这个分析完全放在了一起。 他分享到：
 
-#  
+我正在阅读 CDC 的“提交给免疫实践咨询委员会 (ACIP) 的健康经济学研究指南，2019 年更新”，我意识到 ，FDA 对辉瑞（Pfizer）的 EUA 申请，对 5 至 11 岁儿童进行注射的可悲的风险收益分析， **违反了 CDC 指导文件的许多原则**。CDC“指南”**文件描述了每项与疫苗相关的健康经济学研究必须做的 21 件事**，**而 FDA 的风险收益分析至少违反了其中的一半……**
 
+新闻来源 [thegatewaypundit.com] **[The world has gone mad.  We knew when ‘experts’ decided to vaccinate children that there would be more deaths from the vaccination than from COVID.  Now we have support for this based on CDC and Big Pharma data.](https://www.thegatewaypundit.com/2021/11/shockingly-insane-cdc-big-pharma-data-show-save-lives-less-50-children-covid-5000-children-will-die-vaccine/)**
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

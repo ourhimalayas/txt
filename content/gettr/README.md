@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/22/2021 10:32 AM (UTC)`
+
+11/20/2021 [3rd Anniversary of 1120]  Mr. Bannon: The biggest challenge you're going to have is how to incorporate technology to increase people's freedom & prosperity,  and not let these devolve into tools of war or tools or control.<br/><br/>11/20/2021【1120三周年纪念】<br/>班农先生： 人们面临的最大挑战将是如何运用科技创造自由和繁荣，而非将其演变为战争工具或控制手段。<br/><br/>
+![img](https://media.gettr.com/group31/getter/2021/11/22/10/32/26050681-12a7-ae6a-9470-06dc20df4139/out.jpg)
+
+---
+
 `@miles 11/22/2021 10:25 AM (UTC)`
 
 11/20/2021 [3rd Anniversary of 1120] Steve Bannon: FayFay's care for her mother who had contracted the CCP virus showed the love of the new Chinese for their families, while the fellow fighters taking care of my family infected by the virus showed the spirit of the New Federal State of China; the power of the new Chinese is their respect for their parents, ancestors, and families, and such a power can help us destroy the CCP more quickly<br/><br/>11/20/2021【1120三周年纪念】班农先生：飞飞对染上中共病毒的母亲的悉心照料展现了新中国人对家庭的爱，而战友们照顾我染上病毒的家人则体现了新中国联邦的精神；新中国人的伟大力量是对父母、祖先和家庭的尊敬，这种力量有助于我们更快地灭掉中共
@@ -295,13 +302,6 @@ One Southern California Mayor takes a stand against 'totalitarian' vaccine manda
 
 11月18日: 自娱自乐模式启动🤣🤣🤣🤣🤣
 ![img](https://media.gettr.com/group42/getter/2021/11/18/20/26/f07426d3-fdfd-044d-1adc-06a58846a0d8/out.jpg)
-
----
-
-`@miles 11/18/2021 8:17 PM (UTC)`
-
-11月18日: 笨笨说，“Snow，出来跟我玩儿嘛……” Snow说, “我不要啦，让我静静的做个美男子好不好啦 ！”😆😆😆😆😆😅😅😅😅😅 
-![img](https://media.gettr.com/group4/getter/2021/11/18/20/17/dca0bb66-91da-0a0a-e81d-8bf35e06da61/out.jpg)
 
 ---
 
