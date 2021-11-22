@@ -2,34 +2,27 @@
 ---
 
 
-## 有声| 我理解的“万佛万神”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1684454/)
+## 中国公民在海外被绑架，中共国政府毫不关心
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684502/)
 
-配音：香草山福音部 – Daxia
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-七哥直播时经常讲万佛万神，为什么坚持一神论基督信仰的基督徒战友仍然如此坚定地追随七哥呢？七哥讲每一个宗教都有对立面，为什么？这些问题的答案有一个前提，就是我们相信：人类和世界万物是被造的，是有主人的，神是这一切的主宰。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-165.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp2.itc.cn%2Fimages01%2F20210818%2F17addc8dfae74814a0bd8d03953a3758.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F484094438_120110670&amp;tbnid=QTICIxg9n7XFmM&amp;vet=12ahUKEwiYspjukav0AhURLqYKHUeZBK8QMygHegUIARCTAQ..i&amp;docid=cEZ4BDu0TBF-5M&amp;w=1080&amp;h=608&amp;q=%E5%88%9A%E6%9E%9C%E6%B0%91%E4%B8%BB%E5%85%B1%E5%92%8C%E5%9B%BD%20%E7%BB%91%E6%9E%B6%E4%B8%AD%E5%9B%BD%E4%BA%BA&amp;ved=2ahUKEwiYspjukav0AhURLqYKHUeZBK8QMygHegUIARCTAQ)于：中华人民共和国驻刚果民主共和国大使馆-首页（11/22/2021）
+刚果民主共和国布卡武一名当地官员和一名军队发言人11月21日说，武装人员在刚果民主共和国东南部的一个矿区附近杀害了一名警察并绑架五名中国公民。
 
-人有限的理解和逻辑判断所形成的宗教，能准确和全面地解释万能的神和神所创造的世界吗？人的能力和认知都是有明显局限性的。人没有狗鼻子灵敏，没有豹子跑得快，没有骆驼的耐力，不能像鹰一样飞行。虽然神赋予我们管理地球上生命的能力和智慧，但我们有太多太多的做不到，而且还有人性的诸多罪恶。
+目前还不清楚是谁在南基伍省(South Kivu)的Mukera村附近实施了袭击。中国矿业公司和地方当局之间的关系已经很紧张，后者说一些公司在没有许可的情况下非法经营。
 
+“一个武装组织与警察交火。五名中国公民被绑架了，”该地区的军队发言人Dieudonne Kasereka少校称。
 
+中国驻刚果大使馆的发言人没有回应评论请求。矿区的名称没有透露。
 
-**原文链接：[【信仰之声】我理解的“万佛万神”](https://gnews.org/zh-hans/1670139/)**
+消息来源:
 
+[五名中国公民在刚果民主共和国一矿区附近遇袭后被绑架](https://cn.reuters.com/article/chinese-congo-kidnapped-1121-sun-idCNKBS2I7017?il=0)
 
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+#  
 
  
 

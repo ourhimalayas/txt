@@ -2,64 +2,54 @@
 ---
 
 
-## G时评：还富于民与藏富于民
-` GISELLE` [轉載自GNews](https://gnews.org/zh-hans/1684279/)
+## 参议员瑞克·斯科特: 彭帅的失踪令人震惊，我对中共 掩盖性虐待指控感到愤怒
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1684289/)
 
-**作者/图片设计：Giselle**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/白玫瑰55.png)
-1，**感性和理性，真的是二元对立关系吗？**
+参议员瑞克·斯科特: 彭帅的失踪令人震惊，我对 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 掩盖性虐待指控感到愤怒。 很高兴国际女子网球协会 [@WTA](https://twitter.com/WTA) 表明立场，我敦促该网协现在撤出 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)。 这是在中共国所有人都面临的危险，包括参加 2022 年奥运会的美国运动员。【转CNN推文：女子网球协会主席史蒂夫·西蒙曾表示，如果网球运动员彭帅的指控没有得到完全的追究和调查，他愿意放弃在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的数亿美元的业
 
-不是。
 
-正常情况下，感性的人，必然以理智作为底线，意即：他不会冲动得失去理智。
 
-理性的人，必然以对他人的同情心、同理心作为基础，意即：他不能理性得失去人性。
+> Peng Shuai’s disappearance is horrific & I’m outraged at Communist China's cover up of sexual abuse allegations. Glad [@WTA](https://twitter.com/WTA?ref_src=twsrc%5Etfw) is taking a stand & I urge it pull out of Communist China now. This is the danger all face in Communist China, including U.S. athletes in the 2022 Olympics. [https://t.co/UPNr7Td9sC](https://t.co/UPNr7Td9sC)
+> — Rick Scott (@SenRickScott) [November 20, 2021](https://twitter.com/SenRickScott/status/1462158642048864262?ref_src=twsrc%5Etfw)
 
-感性和理性，是我们既具备常识、控制自己的情绪，又具备同理心、始终寻求智慧的解决方案的基础，使我们在看问题时，既有高度、又有深度，还有人性的温度。
 
-2，**“还富于民”与“藏富于民”是一回事吗？**
 
-不是。
+参议员玛莎·布莱克本： [#彭帅](https://twitter.com/hashtag/%E5%BD%AD%E5%B8%85?src=hashtag_click) 的失踪是最新的迹象，这表明在 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 政府的监督下，把我们的美国队运动员送到一个充满敌意的环境中是绝对不安全的。[@SenTomCotton](https://twitter.com/SenTomCotton)[@MariaBartiromo](https://twitter.com/MariaBartiromo) 【视频中，玛莎提醒大家 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 犯下了种族灭绝罪，他们根本不在乎人命，你敢发表不同声音，他们就敢让你消失】
 
-“还富于民”中的“民”，泛指普罗大众，意即：将统治阶级通过过度税收、超发钞票、金融房地产欺诈等行为，劫掠走的、本来属于普罗大众的财富，还给他们。
 
-手段：减轻税赋、消灭贫困、全面启智，增强他们的话语权、监督权。
 
-“藏富于民”中的“民”，指的是一少部分捍卫以“天赋人权”为核心的正道主义/普世价值、并且德才兼备的群体。让他们掌握财富、掌握话语权，引领着世界走出黑暗泥沼，并且在未来很长一段时间之内，始终引领人类文明的发展方向。
+> The disappearance of Peng Shuai is the latest indication that sending our Team USA athletes into a hostile environment under the watch of the Communist Chinese government is simply unsafe. [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) [@MariaBartiromo](https://twitter.com/MariaBartiromo?ref_src=twsrc%5Etfw) [pic.twitter.com/wYb2jOXpbs](https://t.co/wYb2jOXpbs)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 21, 2021](https://twitter.com/MarshaBlackburn/status/1462496434188599304?ref_src=twsrc%5Etfw)
 
-手段：通过虚拟货币实现财富的重新分配；搭建一个遍及全球的、全新的、健康的、强大的政治、经济、文化教育生态圈。
 
-3，**我们需要理想吗？**
 
-需要。
+美前国务卿迈克·蓬佩奥: [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 让报道武汉 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的记者消失,让讲述 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 实验室真相的医生们消失,让专业网球运动员消失,让维吾尔人消失,让香港人以及国际刑警组织的负责人消失. 咱们也让奥运会从 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 手里消失，把它放在一个世界可以引以为豪的地方。 [#抵制北京奥运会](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A?src=hashtag_click) [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hashtag_click)
 
-理想，看起来很遥远，与现实之间隔着一段很远的距离，甚至遥不可及，然而，这恰恰就是理想的可贵之处。
 
-理想就像一座旗标，时时刻刻提醒着你与它的距离；
 
-理想也像一面镜子，时时刻刻映照着你的不足，提醒你雕刻完善。
+> The CCP has disappeared reporters writing about Wuhan virus, docs telling the truth about CCP labs, a prof tennis player, Uighurs, Hong Kongers & the head of Interpol.
+> Let’s disappear the Olympics from them & hold it in a place the world can be proud of. [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Mike Pompeo (@mikepompeo) [November 21, 2021](https://twitter.com/mikepompeo/status/1462524217816195079?ref_src=twsrc%5Etfw)
 
-4，**什么是道德？**
 
-道，是真理，是宇宙总规则，是共性；
 
-德，是“道”折射到具体事物之上的规律，是个性。
+参议员汤姆·科顿： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 让其自己敢于发声的奥运会运动员消失了。 他们会对我们的运动员做什么？ 乔·拜登应该立即宣布完全抵制 2022 年奥运会。转美国副国务卿谢尔曼推文：我们对网球运动员彭帅失踪的报道深表关切，我们也呼吁 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 提供独立、可核实的证据证明她的下落。 世界各地的妇女都应该认真对待和调查有关性侵犯的报告。】
 
-《道德经》阐述的是老子的哲学思想：
 
-A.生而不有、为而不恃、长而不宰
 
-意即：大自然养育了万物却从来不把万物据为己有；帮助了万物却不要求回报；使万物生长却不做他们的主宰者。
+> The CCP disappeared their own Olympic athlete who had the courage to speak out. What will they do to our athletes? Joe Biden should announce a complete boycott of the 2022 Olympic Games immediately. [https://t.co/uiDbNVcOUa](https://t.co/uiDbNVcOUa)
+> — Tom Cotton (@SenTomCotton) [November 20, 2021](https://twitter.com/SenTomCotton/status/1462138367752212486?ref_src=twsrc%5Etfw)
 
-B.治大国如烹小鲜
 
-小鲜指的是小鱼。意即：治理国家就得像煎小鱼一样小心翼翼，不要使劲折腾（民众），一折腾，小鱼就碎掉了。
 
-老子的《道德经》，绝不是让我们躺平了，避世隐居，什么也不干，不起因不结果，也不是后世“道教”演绎的神神叨叨、炼丹养生、占卜炼金、童男童女……而是倡导我们要顺应宇宙总规则，无论是做人做事、治国安邦，都要符合“道”的要求，只有符合“道”的要求了，才能实现天下的“清净无为”、“无为而治”（意即：理想的社会根本不需要治理，因为人人都达到了少私寡欲、清净无为的境界）。
+众议员肯·巴克： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 挟持她为人质，威胁她的生命。 我们无法相信 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的国有媒体。 这是侵犯人权。 【转推为胡锡进推文，声称获得彭帅与教练和朋友吃饭的视频】
 
-由此可见，老子是一个非常有理想的人，他在2500多年以前，就向我们描绘了一个高度文明的、非常理想的人类社会，至今还是一个我们无法企及的高度。
 
-（文章内容仅代表作者个人观点）
+
+> The CCP is holding her hostage and threatening her life. We can’t trust China’s state owned media. This is a human rights violation. [https://t.co/v9gsLxnwWT](https://t.co/v9gsLxnwWT)
+> — Rep. Ken Buck (@RepKenBuck) [November 20, 2021](https://twitter.com/RepKenBuck/status/1462121868333363206?ref_src=twsrc%5Etfw)
+
+
 
  
 
