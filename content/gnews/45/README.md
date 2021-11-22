@@ -2,24 +2,24 @@
 ---
 
 
-## 大量心梗，中共国疫苗灾难蔓延
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1685819/)
+## 美国CDC 承认中共病毒疫苗有导致心肌炎和心包炎的风险
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1685767/)
 
-作者： 纽约香草山文艺部 – 宁文静
+作者： 纽约香草山健身部 – Ivy001
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月20日是中共国的“心梗救治日”，日前，中共发起一系列活动，加大心梗疾病的宣传，把近期大量心梗和倒地事件，归咎于秋冬导致的心梗疾病的发生，掩盖已经到来的疫苗灾难。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-18.jpg)
-今年9月，中共在各大中城市的人员密集公共场所，陆续配备了AED心脏急救设备，有的医药集团提醒公众随身携带心脏急救药。另外，有网友还在社交平台晒出本单位给员工发放的救心药套装慰问品。近期，中共国医院收治的急性心血管病患者大幅上升，在南京市某医院，竟然比平时增加了50%左右。
-随着中共病毒疫苗接种率的提高，疫苗灾难正在蔓延。
+目前，美国CDC及其合作伙伴正在对接种中共病毒疫苗后，出现心肌炎和心包炎的报告进行监测。通过对数据和医疗记录的审查，评估心肌炎和心包炎与疫苗接种的关系。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-25.jpg)
+CDC的官方网页显示，据多国安全监控系统提供的证据表明：注射mRNA中共病毒疫苗之后，会增加心肌炎和心包炎的风险。另外，风险高发于青少年和年轻人，男性多于女性，完成2针的多于1针，多数患者是在完成疫苗的一周内发病。
+
+虽然有明显证据显示mRNA中共病毒疫苗有导致心肌炎和心包炎的风险，但美国CDC仍然无视疫苗的危害，没有建议停止注射疫苗。
 
 参考链接：
-1) . [ccp开始吹风国内3.3亿心血管疾病，发病场所都是公众场所，看不见发病的其实更多，和郭先生说的3亿很吻合中国人太惨了](https://gettr.com/post/phhunm5e61)
-2) . [近期，南京各大医院收治的心血管病患者明显增多，比平时增加了50%左右](https://gettr.com/post/pasthoae87)
+1) . [CDC admitting vaccines cause myocarditis](https://gettr.com/post/phidjwe93d)
+2) . [Myocarditis and Pericarditis After mRNA COVID-19 Vaccination](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/safety/myocarditis.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-总编：Ivy001
-编辑：Jack Li文阳
+总编/编辑：Jack Li文阳
 校正/发稿：Fei797
 
 **更多资讯，更多关注**
