@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/22/2021 2:00 AM (UTC)`
+
+ 11月21日：所有的每一块石头，每一块混泥土都是从纸上规划．变成了现实…… <br/><br/>
+![img](https://media.gettr.com/group28/getter/2021/11/22/02/00/6aeb6fd5-8c4f-1ffa-07f6-3cbcaa3a64ee/121a7d3118de4c501e3166fe517fa4c7.jpg)
+
+---
+
+`@miles 11/22/2021 1:57 AM (UTC)`
+
+ 11月21号：这是2000年当时的盘古的空地……就是一片农田……和盘古作为摩根中心项目奠基石和地基工程的开始一些照片……，今天看了这些照片实在是太不可思议了……一切都是行动力的结果！ <br/><br/>
+![img](https://media.gettr.com/group13/getter/2021/11/22/01/57/ce795f11-d5ac-3390-7ab0-9ea841ddb849/bb2c2a3dc9b6c362eeeb6f06ca20cf08.jpg)
+
+---
+
 `@miles 11/22/2021 1:11 AM (UTC)`
 
  11月21日：时间能改变一切……证明一切！当时的摩根中心是全中国的焦点，全世界的焦点，没有人相信摩根中心经历了2006年刘志华的事件后还能建设成功，还能成为中国，最标志性建筑！ <br/><br/>
@@ -288,20 +302,6 @@ One Southern California Mayor takes a stand against 'totalitarian' vaccine manda
 
 11/17/2021 Miles Guo: After the Six Plenary Session, the CCP’s attitude towards the US will get softer although it will keep taking tough; the West will regard the CCP as more threatening; Xi is going to be the “emperor” in China, while acting like Hitler internationally; Xi will implement isolation policy and push communist policies for both domestic and foreign businesses in China; no one within the CCP’s system will be safe<br/><br/>11/17/2021 文贵直播：六中全会后，中共虽然会对美国嘴上硬，但实际上将越来越软；西方将把中共视为更大的威胁；习近平将对内实行“习皇制”，对外当“习特勒”；习将闭关锁国并对国内外资本实施共产制；中共体制内无人会是安全的<br/>
 ![img](https://media.gettr.com/group30/getter/2021/11/18/15/50/2cb8fd48-2bc5-5dd2-2b2e-8c9f6c64ae88/out.jpg)
-
----
-
-`@miles 11/18/2021 1:46 PM (UTC)`
-
-11月18号：尊敬的战友们好，……你们健身了吗？传播C C P病毒……疫苗解药的真相了吗？新中国联邦正以．前所未有的速度．和巨大的力量，在推动停止人类正在面对的疫苗灾难！
-![img](https://media.gettr.com/group3/getter/2021/11/18/13/46/06514e76-b9a9-baa3-029f-cd138778f2fc/out.jpg)
-
----
-
-`@miles 11/18/2021 1:29 PM (UTC)`
-
-The CCP’s Infiltration in Western World : The CCP Agent Bruno Wu<br/><br/>中共渗透西方世界：中共间谍吴征
-![img](https://media.gettr.com/group49/getter/2021/11/18/13/80f887f8-7681-5efd-afaf-ffba91971096/4f8067580d2a3f28a1ec938cc736879f.jpg)
 
 ---
 

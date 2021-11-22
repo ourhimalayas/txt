@@ -2,28 +2,36 @@
 ---
 
 
-## 英国也在考虑外交抵制北京冬奥会
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1684157/)
+## 德国医院院长因抗拒政府疫苗接种命令而自杀身亡
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1684169/)
 
-**作者：日本东京方舟农场 幽蘭自得**
+**作者：日本东京方舟农场 子辰**
 
-据《德国之声》11月20日报道，继美国之后，英国首相约翰逊（Boris Johnson）目前也正在考虑对北京冬奥会进行“外交抵制”，以抗议中共对其人民的人权侵犯。
+据德国《新闻资讯》11月17日报道，德国开姆尼茨市立医院院长托马斯·詹吉斯（Thomas jendges）博士近日在其医院内自杀身亡。他生前留下一封遗书，遗书里严厉批评了政府在应对中共病毒疫苗危险性方面的信息政策。詹吉斯博士在遗书中称，他再也无法忍受对病人和接种疫苗者不断撒谎和欺骗。
 
-据报道，英国政府内部目前正在积极讨论，是否仅派出驻中共国大使，而非英国部长们前往中共国参加冬奥会。该提议得到了英国外交大臣特拉斯（Liz Truss）的支持。
+詹吉斯博士在遗书中强烈谴责政府使用中共病毒的实验性和致死性疫苗为人群接种，称此疫苗更像是一种被操纵的生物战剂！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-149.jpg)图片来自路透社
+詹吉斯博士在2021年4月成为开姆尼茨市立医院的主要负责人，并于10月被任命为该院院长。 他在遗书中提到，他曾遭到该市市长舒尔茨的威胁。舒尔茨威胁他说，如果不遵守政府的命令，不去给人们接种疫苗，他就将被解雇。
 
-特拉斯所采取的对华立场一向比其前任拉布（Dominic Raab）更为强硬。她曾指责中共犯下种族灭绝罪。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-150.jpg)图片来自TAG24
 
-此外，《德国之声》援引英国《泰晤士报》的报道称，有五名保守党政客也致信约翰逊，敦促他禁止英国任何官方外交代表出席于明年2月举行的北京冬奥会。 在此之前，美国总统拜登于11月18日证实，美国正在考虑外交抵制北京冬奥会。
+由于詹吉斯博士不想支持联邦政府及其州政府关于接种中共病毒疫苗的命令，不愿成为中共病毒疫苗接种计划这一种族灭绝行为的同流合污者，他因此选择了自杀，他认为自杀才是他反对的惟一途径。
+
+詹吉斯博士的这封遗书尽管已被公布出来，但据称，以舒尔茨为代表的当地政府正在竭力阻止这封遗书的传播。不过，当地各个论坛上已经有无数团体要求市长舒尔茨放弃他的阻挠态度，尊重托马斯的遗愿。
 
 *新闻链接：*
 
-[英媒：英国也考虑对北京冬奥“外交抵制”](https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E8%8B%B1%E5%9B%BD%E4%B9%9F%E8%80%83%E8%99%91%E5%AF%B9%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E5%A4%96%E4%BA%A4%E6%8A%B5%E5%88%B6/a-59888162)
+[Großer Wirbel um angeblichen Abschiedsbrief von Chemnitzer Klinik-Chef](https://www.tag24.de/amp/chemnitz/lokales/grosser-wirbel-um-angeblichen-abschiedsbrief-von-chemnitzer-klinik-chef-2205407)
+
+
+
+> [Germany | Dr Thomas Jendges Head of Clinic, Commits Suicide “COVID-19 Vaccine Is a Genocide”](https://stessnews.online/2021/11/17/germany-dr-thomas-jendges-head-of-clinic-commits-suicide-covid-19-vaccine-is-a-genocide/)
+
+
 
 * * *
 
-*素材采编：幽蘭自得*
+*素材采编：子辰*
 
 *编辑：青衣青青*
 
