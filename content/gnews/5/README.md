@@ -2,50 +2,12 @@
 ---
 
 
-## 文贵先生说：灵魂的神交
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1686133/)
+## 11/20/2021【1120三周年纪念】新中国联邦最终会用法治把中国人和全世界连结在一起,并有能力实现异议自由,言论自由和宗教自由
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1686224/)
 
-文编：Hima
-视频：七哥
+班农先生：新中国联邦成立仅仅一年半就取得了惊人的成就，我坚信新中国联邦最终会以法治为本把中国人民同全世界连结在一起
 
-时间：2021-11-19 11:32:30
-
-人与人之间的最终的信任，
-
-绝对不是通过性活动！
-
-绝对不是通过物质的给予！
-
-绝不是通过一点小恩小惠！
-
-最终是对一个人灵魂的绝对认可！
-
-新中国联邦就是，最终是灵魂的神交结果！大家那种愉悦感！
-
-绝对不是你生理上一个简单的高潮！
-
-是你对生命的认可和尊重！
-
-百分之百的这种无私的这种相互的这种保护！形成的这么一个生命链！
-
-这就是我认为的！
-
-校对：HimaFaFA
-发布：HimaBoy
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

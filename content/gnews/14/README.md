@@ -2,16 +2,43 @@
 ---
 
 
-## 西媒头条 — 第114期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1686036/)
+## 文贵先生说：我们真正的新中国联邦人未来不需要宗教，但是需要信仰
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1686105/)
 
-制作：喜妹
+文编：Hima
+视频：七哥
 
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/XM112ok.001.jpeg)
-发稿：信心的选择
+时间：2021-11-17 11:49:25
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+新中国联邦受上天的指引，
+
+牵引的来自上天的力量！
+
+中国联邦的无处都充满着神秘！
+
+完全非人类的一种超自然力量在帮着我们！包括今天所有的问题！
+
+千万别相信是我们有本事！
+
+绝对不是！
+
+是一种神秘的力量在帮我们！
+
+谢谢！
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

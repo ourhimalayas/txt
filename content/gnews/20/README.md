@@ -2,12 +2,16 @@
 ---
 
 
-## 纳瓦罗谈拜习视频会：中共正要摧毁、压倒、接管美国
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1685901/)
+## 西媒头条 — 第114期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1686036/)
 
-11/20/2021 纳瓦罗博士：如果到现在还没明白，中共正要像征服国内老百姓一样让美国工人屈服，那说明一直是心不在焉。2021年11月20日周六《战斗室》特辑，纳瓦罗博士谈11月15日的拜习视频会。
+制作：喜妹
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/XM112ok.001.jpeg)
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
 
  
 

@@ -2,40 +2,27 @@
 ---
 
 
-## 德国医院院长因抗拒政府疫苗接种命令而自杀身亡
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1684169/)
+## 中国公民在海外被绑架，中共国政府毫不关心
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684502/)
 
-**作者：日本东京方舟农场 子辰**
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-165.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fp2.itc.cn%2Fimages01%2F20210818%2F17addc8dfae74814a0bd8d03953a3758.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F484094438_120110670&amp;tbnid=QTICIxg9n7XFmM&amp;vet=12ahUKEwiYspjukav0AhURLqYKHUeZBK8QMygHegUIARCTAQ..i&amp;docid=cEZ4BDu0TBF-5M&amp;w=1080&amp;h=608&amp;q=%E5%88%9A%E6%9E%9C%E6%B0%91%E4%B8%BB%E5%85%B1%E5%92%8C%E5%9B%BD%20%E7%BB%91%E6%9E%B6%E4%B8%AD%E5%9B%BD%E4%BA%BA&amp;ved=2ahUKEwiYspjukav0AhURLqYKHUeZBK8QMygHegUIARCTAQ)于：中华人民共和国驻刚果民主共和国大使馆-首页（11/22/2021）
+刚果民主共和国布卡武一名当地官员和一名军队发言人11月21日说，武装人员在刚果民主共和国东南部的一个矿区附近杀害了一名警察并绑架五名中国公民。
 
-据德国《新闻资讯》11月17日报道，德国开姆尼茨市立医院院长托马斯·詹吉斯（Thomas jendges）博士近日在其医院内自杀身亡。他生前留下一封遗书，遗书里严厉批评了政府在应对中共病毒疫苗危险性方面的信息政策。詹吉斯博士在遗书中称，他再也无法忍受对病人和接种疫苗者不断撒谎和欺骗。
+目前还不清楚是谁在南基伍省(South Kivu)的Mukera村附近实施了袭击。中国矿业公司和地方当局之间的关系已经很紧张，后者说一些公司在没有许可的情况下非法经营。
 
-詹吉斯博士在遗书中强烈谴责政府使用中共病毒的实验性和致死性疫苗为人群接种，称此疫苗更像是一种被操纵的生物战剂！
+“一个武装组织与警察交火。五名中国公民被绑架了，”该地区的军队发言人Dieudonne Kasereka少校称。
 
-詹吉斯博士在2021年4月成为开姆尼茨市立医院的主要负责人，并于10月被任命为该院院长。 他在遗书中提到，他曾遭到该市市长舒尔茨的威胁。舒尔茨威胁他说，如果不遵守政府的命令，不去给人们接种疫苗，他就将被解雇。
+中国驻刚果大使馆的发言人没有回应评论请求。矿区的名称没有透露。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-150.jpg)图片来自TAG24
+消息来源:
 
-由于詹吉斯博士不想支持联邦政府及其州政府关于接种中共病毒疫苗的命令，不愿成为中共病毒疫苗接种计划这一种族灭绝行为的同流合污者，他因此选择了自杀，他认为自杀才是他反对的惟一途径。
+[五名中国公民在刚果民主共和国一矿区附近遇袭后被绑架](https://cn.reuters.com/article/chinese-congo-kidnapped-1121-sun-idCNKBS2I7017?il=0)
 
-詹吉斯博士的这封遗书尽管已被公布出来，但据称，以舒尔茨为代表的当地政府正在竭力阻止这封遗书的传播。不过，当地各个论坛上已经有无数团体要求市长舒尔茨放弃他的阻挠态度，尊重托马斯的遗愿。
-
-*新闻链接：*
-
-[Großer Wirbel um angeblichen Abschiedsbrief von Chemnitzer Klinik-Chef](https://www.tag24.de/amp/chemnitz/lokales/grosser-wirbel-um-angeblichen-abschiedsbrief-von-chemnitzer-klinik-chef-2205407)
-
-
-
-> [Germany | Dr Thomas Jendges Head of Clinic, Commits Suicide “COVID-19 Vaccine Is a Genocide”](https://stessnews.online/2021/11/17/germany-dr-thomas-jendges-head-of-clinic-commits-suicide-covid-19-vaccine-is-a-genocide/)
-
-
-
-* * *
-
-*素材采编：子辰*
-
-*编辑：青衣青青*
-
-*发布：Ranting*
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+#  
 
  
 
