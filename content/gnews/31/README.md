@@ -2,32 +2,33 @@
 ---
 
 
-## 震惊！全球首款注射疫苗杀人机器人面世
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1685755/)
+## 美国CDC 承认中共病毒疫苗有导致心肌炎和心包炎的风险
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1685767/)
 
-撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-5.png)
-（图片来源于本文链接）
+作者： 纽约香草山健身部 – Ivy001
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+目前，美国CDC及其合作伙伴正在对接种中共病毒疫苗后，出现心肌炎和心包炎的报告进行监测。通过对数据和医疗记录的审查，评估心肌炎和心包炎与疫苗接种的关系。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-25.jpg)
+CDC的官方网页显示，据多国安全监控系统提供的证据表明：注射mRNA中共病毒疫苗之后，会增加心肌炎和心包炎的风险。另外，风险高发于青少年和年轻人，男性多于女性，完成2针的多于1针，多数患者是在完成疫苗的一周内发病。
 
-11月22日消息，据媒体报道，加拿大初创公司Cobionix宣称，他们研制出了全球首款能注射疫苗的机器人——Cobi，能以自主、无痛且无针头方式注射疫苗。其接种方法如下：
+虽然有明显证据显示mRNA中共病毒疫苗有导致心肌炎和心包炎的风险，但美国CDC仍然无视疫苗的危害，没有建议停止注射疫苗。
 
-1、Cobi由一个带有药瓶储存区的机械臂和一个与患者互动的屏幕组成，屏幕内摄像头会录入登记者的身份证或相关证件，应可辨识登记者是否接种。
+参考链接：
+1) . [CDC admitting vaccines cause myocarditis](https://gettr.com/post/phidjwe93d)
+2) . [Myocarditis and Pericarditis After mRNA COVID-19 Vaccination](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/safety/myocarditis.html)
 
-2、Cobi会拿起一个装有药剂的小瓶，并通过激光雷达传感器发射人眼不可见的光脉冲来测量它与接种者之间的距离。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-3、药物被装入带有喷嘴的一次性容器中，当施加电流时，磁场推动活塞，挤压小瓶，通过喷嘴强力喷出药物，并穿过皮肤毛孔，进入身体。
+总编/编辑：Jack Li文阳
+校正/发稿：Fei797
 
-Cobionix公司表示，Cobi目前还只是一个工作原型，可能需要两年或更长时间才能上市，而疫苗接种只是它可能执行的众多任务之一。
-
-可以预见，这款注射疫苗机器人或以巡逻或游戏等各种名义出现在世界任意地点，通过面部扫描识别人群的疫苗接种情况，并悄无声息地将特定药物注射进特定人群。这就是款杀人机器人。
-
-信息来源：
-
-[无痛无针头！全球首款注射疫苗机器人面世](https://news.mydrivers.com/1/797/797820.htm)
-
-校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

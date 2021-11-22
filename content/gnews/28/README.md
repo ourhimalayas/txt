@@ -2,34 +2,23 @@
 ---
 
 
-## 美国CDC 承认中共病毒疫苗有导致心肌炎和心包炎的风险
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1685767/)
+## 《中国统计年鉴2021》数据显示，2020年中国人口出生率为8.52 ‰
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1685794/)
 
-作者： 纽约香草山健身部 – Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-目前，美国CDC及其合作伙伴正在对接种中共病毒疫苗后，出现心肌炎和心包炎的报告进行监测。通过对数据和医疗记录的审查，评估心肌炎和心包炎与疫苗接种的关系。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-25.jpg)
-CDC的官方网页显示，据多国安全监控系统提供的证据表明：注射mRNA中共病毒疫苗之后，会增加心肌炎和心包炎的风险。另外，风险高发于青少年和年轻人，男性多于女性，完成2针的多于1针，多数患者是在完成疫苗的一周内发病。
+韩国首尔天池农场—虎眼　校对/上传—无明逆流
 
-虽然有明显证据显示mRNA中共病毒疫苗有导致心肌炎和心包炎的风险，但美国CDC仍然无视疫苗的危害，没有建议停止注射疫苗。
+人口红利是中共维持经济增长的重要因素，据《中国统计年鉴2021》数据显示，2020年中国全国人口出生率为8.52 ‰，首次跌破10 ‰，这是中共建国以来人口增长率最低的一次。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2333ef0de.jpg)图片来源：BBC
+按照目前人口自然增长率数据分析，到2021年中国人口或将出现负增长，比中共专家预估的2030年中国将出现人口负增长早了整整9年，而2021年中国的出生人口预计也将低于1000万。
 
-参考链接：
-1) . [CDC admitting vaccines cause myocarditis](https://gettr.com/post/phidjwe93d)
-2) . [Myocarditis and Pericarditis After mRNA COVID-19 Vaccination](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/safety/myocarditis.html)
+年鉴数据显示，2020年相比2019年，全国人口净增加了204万人，而前一年人口增量还高达467万，2018年为530万。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+另据中共民政部数据显示，中国结婚人数也在骤降，2020年官方统计的结婚人数为814万对，相较于2019年的947万对减少了113万对。
 
-总编/编辑：Jack Li文阳
-校正/发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/555d72c.jpg)图片来源：知乎移民顾问
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+结婚人数和出生人口的连年下降，2020创下新低，刨除疫情因素抑制了部分婚姻、生育意愿以外，主要原因还在于中国社会的婚姻、生育成本太高，已经大大超出了中国人能承受的范围。仅以中国育儿成本为例，中国一线城市养育一个孩子的成本每年均在10万人民币以上，根据调查样本计算，除了比例极低的月入过万人群，一线城市的真实平均工资仅在6000-7000之间。
+而中国这个人民“零福利，高物价”的社会，普通人养活自己的成本也越来越高，对于婚姻和生育这种能掏空一代、甚至几代中国人的“奢侈品”，更多的中国人选择了观望和退却。
 
  
 

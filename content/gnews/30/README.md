@@ -2,24 +2,22 @@
 ---
 
 
-## 美国2021年死于CCP病毒的人数超过2020年
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1685759/)
+## 澳大利亚维州争议法案将使得州长拥有无穷无尽的权力
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1685788/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image1-9.jpg)图片制作：澳喜农场©森森
-至少已经有超过七十七万美国人死于CCP病毒，这一数据已经大大超出了美国在二战期间的总伤亡人数（约四十万左右）。而在2020年，所有与CCP病毒相关联的死亡人数则为大约三十八万人。
+撰稿：苏加诺
 
-这意味着2021年的CCP病毒死亡数字已经是接近2020年的两倍，而且今年依旧还有一个多月左右才结束。另一方面，根据部分媒体的调查，2021年全球的CCP病毒死亡数字很可能也早就已经超过2020年。
+视频与字幕：苏加诺
 
-约翰霍普金斯大学的这一数据刚好发布于美国第三针加强疫苗已获授权，同时已批准五岁幼儿接种CCP病毒疫苗的时间点上。然而数据用铁证告知我们，尽管完成了两剂疫苗接种的普及，美国因疫情而造成的死亡人数不仅没有出现下降，反而翻倍上升。
+本周一（2021年11月22日），澳洲维多利亚省影子内阁财务主管大卫戴维斯（David Davis）在接受天空新闻（Sky News）采访时提到，维州当前这项极其具争议的疫情法案会给予维州州长以及其政府无穷无尽的权力。
 
-这说明疫苗既没有起到防止感染的作用，也没能够有效降低死亡病例——不仅是美国，这一结论在全球也同样适用。于此同时，我们也不能忘记疫苗本身也成为了病毒的重要传播途径以及致死因素之一。
+大卫认为，本项疫情法案在提出前已经有六个月的咨询期，但是维州州长以及其政府在颁布出此项法案前，并没有公开地，广泛地向商界以及其它各个行业进行咨询和探讨。甚至没有咨询过任何维州当地社会群体的意见。他同时提出，以疫情长期封锁人民对于维州州长是一种乐趣。
 
-这样百害而无一益的毒针竟然还想引进第三剂，同时还要向12岁以下的儿童普及，实在是荒唐而又离奇。在这样的危急关头，我们也看到了世界正义力量走上街头自由集会，表达抗争的决心和勇气。如果我们连自己的身体都无法做主，那么等待着我们的，就是通往奴役之路。
+此项法案还在修改之中，预计将于本月月底前公布。
 
 新闻参考链接：
 
-[Red Voice Media](https://www.redvoicemedia.com/2021/11/2021-u-s-covid-deaths-surpass-2020-despite-availability-and-adoption-of-the-jab/)
+[Controversial pandemic bill gives ‘trigger happy’ Andrews ‘unrivalled power’ (msn.com)](https://www.msn.com/en-au/news/other/controversial-pandemic-bill-gives-trigger-happy-andrews-unrivalled-power/ar-AAQZ9rM?ocid=msedgntp#image=1)
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/TUBIAO-X.jpg)
  
 
