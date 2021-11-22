@@ -2,10 +2,10 @@
 ---
 
 
-## 日本公布岸田文雄内阁平均总资产为9440万日元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684202/)
+## 刚果金矿遇袭，8名中国人被绑架
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684211/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._22-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1122-1-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)

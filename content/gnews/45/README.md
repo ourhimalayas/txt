@@ -2,30 +2,29 @@
 ---
 
 
-## 美打造印太新新经济框架向中共施压
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1683658/)
+## 盖特成功度过“90天受孕期”受投资大佬青睐
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683796/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月17日，美国商务部长吉娜.雷蒙多表示，印太经济框架可能于明年初启动。并且表明，美国虽然不会加入“跨太平洋伙伴全面进步协定”，但会寻求印太地区志同道合的国家，成立一个更加广泛和自由的经济框架。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-22-上午3.01.46.png)
-同日，美国和日本同时宣布建立新的“美日贸易伙伴关系”，以加强在劳工、环境和数字贸易问题上的合作，并表明重点是对第三国关切，意指中共推动的经济政策。
+作者：英国喜庄园-I770775
 
-参考链接：[美国打造印太新经济框架 专家：华盛顿向北京施压新工具](https://www.voachinese.com/a/us-asia-trade-20211119/6320176.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-总编：木白
-编辑：文特
-校正/发稿：呼吸的雾霾（文小呼吸）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
+11月17日的“文贵大直播中”，郭先生谈及盖特的发展时兴奋地说，盖特已经顺利度过最关键的“90天受孕期”，正稳步迈向下一个“90天”。 随着喜币成功上市的影响，最近有不少投资界大佬主动要求投资盖特，因为盖特已经具备相当成熟的投资条件。 他进一步解释说，所有社交媒体的发展，都有三个“90天”的重要时间节点：前90天最关键，是能否诞生的“受孕期”，盖特已经顺利过了这一关；第二个90天是保证不流产的“保胎期”，盖特正稳步走在第二关；等进入第三个90天，盖特就会飞速地爆发式成长。 最后，郭先生还不无遗憾地说，盖特技术团队一开始设定的注册条件，将墙内上千万的用户挡在了门外，不然，盖特的腾飞会更早到来。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6383d6c383a688bc0ce747d8282e44b3_500x0-2.jpeg)图片来源：喜马拉雅农场联盟委员会
+
+**参考阅读：**
+
+https://gettr.com/post/ph567f4b1f
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-3.jpg)
+
+编辑/校对/发稿：一烘
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
