@@ -2,39 +2,22 @@
 ---
 
 
-## NIH 主任要求将 COVID 的“阴谋家”绳之以法
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1683504/)
+## 雅典娜时报-第120期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1684226/)
 
-作者：泰勒·杜登
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/191121collins1-edited.jpg)图片来源：网络
-美国国立卫生研究院 (NIH) 主任弗朗西斯·柯林斯 (Francis Collins) 愤怒地呼吁将任何在网上传播有关 COVID-19 的“错误信息”的人“绳之以法”。
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_15.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_16.png)
+***发布：小红帽***
 
-“阴谋在这里获胜。 真相正在失去。 柯林斯告诉华盛顿邮报，这是对我们社会似乎正在旅行的方式的一个非常严重的控诉。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-这位官僚引用了针对安东尼·福奇博士的大量愤怒信息，柯林斯似乎认为他是无可指责的，他要求查明应对此类行为负责的人并“将其绳之以法”。
-
-文章引用了这样一个“错误信息”的例子，即福奇参与了美国国家过敏和传染病研究所（NIAID）对狗进行的野蛮实验，尽管这种残忍行为实际上是在福奇的领导下发生的。
-
-虽然柯林斯没有具体说明他所说的“绳之以法”是什么意思，但辉瑞首席执行官阿尔伯特·布尔拉此前曾断言，散布有关 COVID 疫苗的虚假信息的个人是“罪犯”，他们“实际上已经夺去了数百万人的生命”。
-
-这是一个有趣的基准，因为曾经认为 COVID 疫苗没有阻止接种疫苗的 COVID 传播被认为是错误的，现在这是一个非常明显的事实。
-
-关于 COVID-19 的“错误信息”的构成是任何人的猜测，因为有几件事被证明是合理的或真实的，例如武汉实验室背后的病毒起源，曾经被认为是“错误信息”。
-
-似乎美国国立卫生研究院、安东尼·福奇或辉瑞认为“错误信息”的任何内容都将成为标准。
-
-正如我们之前强调的那样，英国也在努力为那些质疑制药公司生产的产品的安全性和有效性的人打上品牌，这些公司一直受到无数历史丑闻的困扰。
-
-被描述为“打击互联网上滥用和仇恨的旗舰立法”的在线安全法案显然将包括一项规定，将“散布他们知道不真实的虚假信息的反吸毒者”监禁两年。
-
-来源链接：[https://t.co/0XKZDNK0qe](https://t.co/0XKZDNK0qe)
-
-编辑/发布：LILY
-
-20211121
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
