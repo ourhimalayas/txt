@@ -2,26 +2,26 @@
 ---
 
 
-## 【玫瑰看新闻】 【回魂时刻】- 196期 疫苗受害者专题新闻11#
-` 新西兰新联邦新闻摘要` [轉載自GNews](https://gnews.org/zh-hans/1683825/)
+## 香草山翻译部周刊|2021年11月21日第23期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683996/)
 
-1.好莱坞 23 岁女模特公开哭诉饱受疫苗副作用折磨
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-7.png)
 
-2.新西兰的杰夫菲利普接种疫苗后静脉发现7厘米血块无法正常生活
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/23-7-scaled.jpg)
+文章仅代表作者本人观点，与Gnews无关
 
-3.新西兰的凯西接种辉瑞疫苗后出现间歇性抽搐无法正常行走
+总编： GBWater
+编辑： Lakers
+发稿： Lakers
 
-4.英国59 岁男子因对 Covid 疫苗“极其罕见”的反应而死亡
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-8.jpg)
 
-温馨提示：⚠️爱惜生命 远离疫苗
-
-推出问题，敲出真相，爆料在路上！
-
-
-
-🌹🌹🙏🙏❤️❤️特此鸣谢：
-
-天滅中共战友提供了本专题素材！
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

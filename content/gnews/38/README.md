@@ -2,26 +2,26 @@
 ---
 
 
-## 法院暂停拜登的强制疫苗令，仍有60％的企业继续执行
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683798/)
+## 辉瑞与美政府签订53亿美金新冠药物合同
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683799/)
 
-作者：加拿大杨帆农场 Spirit
+作者：MOS 柳是多水土透
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-3.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-2.png)
 
 
 
-根据《CNN》11月17日报道，联邦上诉法院暂停了拜登政府强制要求100人以上的企业员工接种疫苗或每周测试的疫苗强制计划。咨询公司Gartner公司周二对300家企业进行的一项闪电式调查显示，60%的企业仍愿执行计划，只有约10%的人将退出强制疫苗，有30%的人在权衡如何进行。 卫生政策智库 KFF 上个月接受调查的工人中，约有 25% 表示他们的雇主现在有疫苗强制要求，而 6 月份的调查中这一比例仅为 9%。 这项疫苗强制计划关系到8000万名私企雇员的生命安全，由于大部分雇主受到政府，卫生部门和媒体的蒙骗而无法做出正确的决定，非常让人担忧，只有抵制强制疫苗才能保护自己的员工。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/cnn.png)图片来源：cnn
+
+作为52.9亿美金合约的一部分，辉瑞医药公司周四宣布将于今年开始，向美国联邦政府供应1000万个疗程的抗新冠病毒药物 市场名Paxlovid，这种口服药针对早期症状用于居家治疗，以帮助减少住院和死亡病例 辉瑞周四向监管机构递交申请批准文件，预期将于下月底前生产18万个疗程的剂量，至2022年底前有5000万疗程出厂 其本月早期的报告称，此药将成人重症风险降低89%，超过默沙东药剂Molnupiravir的50%，美政府同时与默沙东有22亿美金购买合约 郭先生曾转述医疗专家的警告，最近上市的新冠药物的毒副作用甚至大于疫苗，请大家谨慎，以NFSC之前公布的预防治疗方案为优先选项。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/CWOKYOTZ3NNFXJY4K4MIWXFGA4.jpg)图片来源：路透社
 
 **参考阅读：**
 
-https://www.cnn.com/2021/11/17/economy/employer-vaccine-mandates/index.html
+https://www.reuters.com/business/healthcare-pharmaceuticals/us-govt-buy-10-mln-courses-pfizers-covid-19-pill-529-bln-2021-11-18/
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-6.jpg)
 
 编辑/校对/发稿：一烘
 
