@@ -2,31 +2,34 @@
 ---
 
 
-## 爆料革命——历史的今天11月12日
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1685643/)
+## 维加诺大主教呼吁建立“反全球化联盟”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1685658/)
 
-**整理：Pride**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-22-224035.jpg)
-**2017年11月12日—**一位上海来的朋友说，对国内影响深远。让老百姓知道了真相，而且正在发酵中。七哥爆料，只说经历过、有证据的事。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月16日，维加诺大主教发布视频演讲，呼吁渴望自由、善良和正义的人民联合起来，成立反全球主义联盟，反对集独裁统治和恐怖主义于一身的极权暴政，共同对抗“大重启”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-22-下午10.44.48.png)
+大主教说，在过去的两年，我们目睹了一场全球政变。由不露面的阴谋者资助的超国家金融和意识形态精英控制了政府、媒体、司法机构、宗教领袖等等，剥夺了公民的基本权利。这是世界经济论坛的大重置，是新世界秩序的计划，是联合国2030年议程，目的是奴役每一个人。中共病毒疫情是大重启重要的步骤。反全球化联盟必须将这些反人类罪犯，交由国际法庭审判他们的罪行，并进行彻底的政治改革。
 
-大连市公安局又要对家人、同事庭审，让我闭嘴。母亲在医院里，由于每天都哭，眼睛基本上看不见。不是因为文贵爆料，同事、家人才抓、被害。是盗国贼集团没有证据，就陷害、非法关押、判你。
+一直以来，维加诺大主教作为正义的宗教领袖为民众发声。他呼吁各国民众团结、勇敢，捍卫权利和自由，反对疫苗接种，反对极权统治。
 
-李友有组织、有计划的犯罪，把各个政治局常委拉下水来。在中国就是金融诈骗，是官方白手套。“方正系”所有上市全造假，大量向海外洗钱。北京大学成了他的后花园，最后他都没罪。
+参考链接：
+1）[HUGE EXCLUSIVE: Archbishop Carlo Maria Viganò Calls on People of Faith to Unite in a Worldwide Anti-Globalist Alliance to Free Humanity from the Totalitarian Regime (VIDEO)](https://www.thegatewaypundit.com/2021/11/huge-exclusive-archbishop-carlo-maria-vigano-calls-people-faith-unite-worldwide-anti-globalist-alliance-free-humanity-totalitarian-regime-video/)
+2）[https://gettr.com/post/phkexi5bef](https://gettr.com/post/phkexi5bef)
 
-**2019年11月12日—**共匪从过去偷偷摸摸地抓、杀，昨天事实上戒严。大陆警察和解放军，穿著香港警服非法执法。明目张胆进入私人住宅，破门而入进行绑架。一些大陆移居到香港战友，在家被直接带回大陆。这些战友家人受到人身、生命威胁，报警没用；敢见媒体，家人就会被抓。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-战友获得内部信息，行动计划就是要对港大、中大几个学校进行定点抓捕。接下来对曾经上过街的勇士们、律师，还有媒体进行抓、捕，还要再搞一些浮尸出来。
+总编：DM
+编辑：文真
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-共匪对香港进行惨无人道的残害、威胁、绑架，会看到美国政府的行动。希望战友们，用手指头，全力以赴向美国、欧洲人们，传播香港危机真相。香港人民，需要在美国得到支持和发声。
-
-**2021年11月12日—**未来只有黄金和有稳定币的虚拟货币，能赚钱。喜币不是被炒作的币，是拥有的币。喜贷款、喜融资、喜存款，是一个战略的金融融资工具。国内战友不方便买喜币，农场未来会成立投资平台。希望战友们和各农场抓住H-Pay的机会，成立自己的基金、资产管理公司。手里的币、财富、投资权利，已经足够这么做了。战友解决生活费用问题，3周后卖一些维持生活。再穷到明年5月份，需要钱再卖。
-
-习的六中全会，让他成为全党公敌。躲过13次谋杀，未来躲不过1次，就结束了。拜登和习通话，是美国求习妥协的结果。为了中期选举，民主党不能输。
-
-七哥和无数国内战友用生命和证据，疫苗是真正杀人工具。共产党的生化武器，是习近平和他的常委、军委下的命令。MRNA—就是身体当中的刺突蛋白。导致心肌炎、心包炎、脑梗、心梗。轻者是癌症，重者立马死。
-
-疫苗灾难之后，排华事件一定会发生。新中国联邦国防系统，是所有战友参与建设。我们跟西方国家，是雇佣军的关系。培训新中国联邦的军队，在海外保护华人资产、战友安全，让后代不受种族歧视和排华灾难，拯救国内精英。我们会有自己的机场、码头，会发展海军、空军、空间部队。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
