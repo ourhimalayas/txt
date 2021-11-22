@@ -2,54 +2,30 @@
 ---
 
 
-## 中共和俄罗斯再次联合骚扰日本
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1684766/)
+## 老百姓又被平均了！2020年中共国人均存款增加约1万元，11个城市人均存款超10万元？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684772/)
 
-作者：日本方舟农场 – Andy5
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-167.png)[图片来源](https://sunnews.cc/zhihu/631401.html)
+根据近期中共国家统计局编写出版的《中国统计年鉴2021》显示，截至2020年年末，45个重点城市中住户存款余额超过10万元的共有11个城市，分别是北京、上海、杭州、沈阳、广州、太原、天津、深圳、大连、南通、南京。
 
+其中，北京、上海的人均存款金额依然位居前两位，分别为19.6万元和14.8万元。而排行第3至第10的8个城市的人均存款额则差距不大，从11.9万元至10.5万元不等。
 
+根据此前中国人民银行公布的数据，2020年中共国全年人民币存款增加19.65万亿元，其中住户存款增加11.3万亿元。这相当于全国人均年存款增加约1万元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+根据中共官方今年的另外一个调查统计数据，全国的负债人数已经达到7.8亿，逾期率高达42%，也就是说全国至少3亿人负债已逾期，被执行的“不诚信人员”数量已达570万，相当于每250个中国人中就有一个是老赖，这里的负债包括房贷、网贷、信用卡透支、花呗借呗等。
 
+从3个中共官方数据可以得出，老百姓又被增收被平均了！
 
+信息来源：
 
-据日本防卫省报道，11月19日，中俄各派出2架轰炸机组成联合编队，在日本海和东海上空进行长途飞行。日本空中自卫队战斗机随即紧急升空，采取警戒措施。
+[12城住户存款超万亿元：北京人均存款近20万元，北方人更爱存钱？](https://3g.k.sohu.com/t/n568259747?serialId=28a4c05176a1f8e8904de3172b1dd406&amp;showType=)
 
-近几个月，中俄联军在日本周边小动作频繁。10月18日，中俄海军十艘舰艇几乎绕日本列岛一周，引发世界关注。11月18日，日本报告称，中俄驱逐舰经过对马海峡驶入东海。19日，又有4艘中共海警局的船只，相继驶入尖阁诸岛附近的日本领海。对此，日本的盟友纷纷表达关切和援助。英国航母、德国护卫舰、加拿大巡防舰于近期陆续停靠日本。
+[46万家企业倒闭，7.8亿人负债，99％中国人收入真相，骗了无数国人！](https://www.163.com/dy/article/GF9MHT0O0548EKJ6.html)
 
-有分析人士称，因在台湾、南中国海问题上的立场，中共对日本表示强烈的不满，而俄罗斯则一直觊觎日本的部分领土。中俄向日本的频繁军事施压，或使日本成为对抗邪恶轴心国的最前沿阵地。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2.2-10.jpg)
-参考链接：
-1.[中俄军机联合飞行 舰艇穿过对马海峡](https://www3.nhk.or.jp/nhkworld/zh/news/333861/)
-2. [加拿大护卫舰停靠冲绳美海军设施](https://china.kyodonews.net/news/2021/11/03ca917edeec.html)
-3. [详讯：防卫省称中国海军测量舰驶入日本领海](https://china.kyodonews.net/news/2021/11/36ccf4891ca8.html)
-4. [英国向日本军方展示“伊丽莎白女王”号旗舰航母](https://www.voachinese.com/a/UK-HMS-Elizabeth-carrier-japan-south-china-sea-Taiwan-20210906/6214528.html)
-5. [德国护卫舰20年首访日，日德防卫官员强调扩大防卫合作](https://www.voachinese.com/a/japan-germany-expand-military-ties-as-german-warship-visits-20211105/6301620.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：文特
-编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
