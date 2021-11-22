@@ -2,32 +2,54 @@
 ---
 
 
-## 英国也在考虑外交抵制北京冬奥会
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1684157/)
+## 纳瓦罗先生指出每一个美国人都应该成为对中共的鹰派
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683348/)
 
-**作者：日本东京方舟农场 幽蘭自得**
+作者：日本方舟农场 Andy5
 
-据《德国之声》11月20日报道，继美国之后，英国首相约翰逊（Boris Johnson）目前也正在考虑对北京冬奥会进行“外交抵制”，以抗议中共对其人民的人权侵犯。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-1.png)
 
-据报道，英国政府内部目前正在积极讨论，是否仅派出驻中共国大使，而非英国部长们前往中共国参加冬奥会。该提议得到了英国外交大臣特拉斯（Liz Truss）的支持。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-149.jpg)图片来自路透社
 
-特拉斯所采取的对华立场一向比其前任拉布（Dominic Raab）更为强硬。她曾指责中共犯下种族灭绝罪。
 
-此外，《德国之声》援引英国《泰晤士报》的报道称，有五名保守党政客也致信约翰逊，敦促他禁止英国任何官方外交代表出席于明年2月举行的北京冬奥会。 在此之前，美国总统拜登于11月18日证实，美国正在考虑外交抵制北京冬奥会。
 
-*新闻链接：*
+纳瓦罗先生在18日接受FOX斯图尔特采访的时，谈到本周的拜习会晤就像肥皂剧一样是无所事事的一场峰会。
 
-[英媒：英国也考虑对北京冬奥“外交抵制”](https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E8%8B%B1%E5%9B%BD%E4%B9%9F%E8%80%83%E8%99%91%E5%AF%B9%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E5%A4%96%E4%BA%A4%E6%8A%B5%E5%88%B6/a-59888162)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-527.png)图片来源：盖特 
 
-* * *
+纳瓦罗先生分析道本周的拜习视频会晤，因为没有谈及病毒起源以及在台湾问题上划定界限，更重要的是没有谈论中共到目前只购买了700万美金的美国产品，根本没有履行第一阶段贸易协议的事情。这些事都可以看出中共根本不会履行任何它们所签署的协议。
 
-*素材采编：幽蘭自得*
+然后在关于是否抵制北京冬奥会的问题上，纳瓦罗先生反问道美国什么时候才能感觉到受够了中共国？并列举了中共的新疆集中营、利用可携带高超音速武器对美国造成的威胁，并强调是中共孵化了病毒并散播给了全世界。
 
-*编辑：青衣青青*
+最后纳瓦罗先生指出每一个美国人都该在对中共问题上成为鹰派，并提醒五角大楼中共是比气候变化更危险的东西。
 
-*发布：Ranting*
+相关链接：[https://www.gettr.com/post/phbtwcb717](https://www.gettr.com/post/phbtwcb717)
+
+新闻采集人：日本方舟农场 Andy5
+
+总编：文徬
+
+校对/发稿：小小安
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2.png)
+
+
+
+
 
  
 

@@ -2,60 +2,55 @@
 ---
 
 
-## 奥委会官员称与彭帅进行了30分钟视频通话
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1684082/)
+## 原来拿到大陆居民身份证的台湾表妹李乔昕是个老戏骨
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1682693/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+据[台灣大牛(台灣寶島農場)@jackson66368924](https://twitter.com/jackson66368924)于[下午3:55 · 2021年11月21日](https://twitter.com/jackson66368924/status/1462328691737120768)发布的推文——
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/P-6.jpg)amedpost.com
-胡叼盘唱罢，奥委会登场，一定要证明彭帅有自由身。想想也是，此番“危机公关”，事关北京冬奥会能否成功举办，得有点大手笔的动作才行啊。
+中共推出了台湾居民身份证………
 
-《福克斯新闻》11月21日发表文章，题目是“彭帅：奥委会说他们在30分钟的视频通话中与中共国网球明星进行了交谈”，文章副标题称，国际奥委会表示，彭“看起来很放松”，并要求他们尊重她的隐私。
 
-全文如下：
 
-国际奥委会（IOC）周日（11月21日）表示，该组织领导层与中共国网球明星彭帅进行了30分钟的通话。
+> 中共推出了台湾居民身份证………🙄 [pic.twitter.com/TiY0s6aZpw](https://t.co/TiY0s6aZpw)
+> — 台灣大牛(台灣寶島農場) (@jackson66368924) [November 21, 2021](https://twitter.com/jackson66368924/status/1462328691737120768?ref_src=twsrc%5Etfw)
 
-35岁的彭帅在中共国社交媒体平台微博上撰文，指控她遭受了中共前副总理张高丽的性侵害，彭称，75岁的张高丽在三年前的一轮网球赛后屡次遭到拒绝，但仍强迫她发生了性行为。
 
-该帖子很快被删除，彭帅在社交媒体和公众视野中消失了两周。由世界女子网球协会（WTA）首席执行官史蒂夫·西蒙（Steve Simon）领导的网球运动员和官员要求对彭帅的指控进行全面调查，并保证彭帅的安全和健康。
 
-北京方面公布了彭帅在过去几天有限公开露面的视频和照片，周日（11月21日）彭帅与国际奥委会主席托马斯·巴赫（Thomas Bach）、国际奥委会运动员委员会主席埃玛·泰尔霍（Emma Terho）和在中共国的国际奥委会委员李玲蔚的对话达到高潮。这是自彭女士最初的指控和失踪以来，她与外国实体的第一次视觉接触。
+对照这条视频可以查到的墙内对应的视频是[*台湾*女孩晒出新办的*身份证*，拿在手中激动不已：看谁还敢欺负我！](https://haokan.baidu.com/v?pd=wisenatural&amp;vid=16796058277692176009)(来源：好看视频 发布时间：2021年11月20日)
 
-彭对奥委会成员的关注表示感谢，并解释说她在北京的家里“安全、健康”，希望她的隐私受到尊重。
+李乔昕究竟何许人也？据[百度百科——李乔昕](https://baike.baidu.com/item/%E6%9D%8E%E4%B9%94%E6%98%95/57989400?fr=aladdin)［2021年7月1日，李乔昕刚好到浙江杭州工作，当晚她在[钱塘江](https://baike.baidu.com/item/%E9%92%B1%E5%A1%98%E6%B1%9F/389131)边，欣赏了一场颇为壮观的灯光表演。那天，她看到广场上绚丽的灯光和欢乐的人群，特别激动，因此有感而发，在[短视频](https://baike.baidu.com/item/%E7%9F%AD%E8%A7%86%E9%A2%91/20596678)平台上激动地赞叹道。她在画面里展示了杭州钱塘江壮观的夜景，讲述了大陆的防疫情况，并对着镜头向祖国表白：“这么好看的夜景，又是这么安全的一个地方，我觉得，此生不悔入[华夏](https://baike.baidu.com/item/%E5%8D%8E%E5%A4%8F/5823)！”
 
-泰尔霍说，委员会成员“松了一口气”，看到彭很好，“看起来很放松”。
+李乔昕表示，起初拍摄视频时，她不是很有信心：毕竟不是专门学表演的，没有出镜经验。结果，通过去各地旅行、品尝各地美食，体验祖国大陆的风俗文化，她[切切实实](https://baike.baidu.com/item/%E5%88%87%E5%88%87%E5%AE%9E%E5%AE%9E/9986014)地感受到了大陆[日新月异](https://baike.baidu.com/item/%E6%97%A5%E6%96%B0%E6%9C%88%E5%BC%82/1540218)的发展，发现根本不需要“表演”，而是发自内心地赞叹祖国的[大好河山](https://baike.baidu.com/item/%E5%A4%A7%E5%A5%BD%E6%B2%B3%E5%B1%B1/53927)和[美味佳肴](https://baike.baidu.com/item/%E7%BE%8E%E5%91%B3%E4%BD%B3%E8%82%B4/1025979)。
 
-“我向她提供了我们的支持，并在她方便的任何时候保持联系，她显然对此表示感谢。”泰尔霍说。
+如今，“台湾表妹”短视频账号仅用半年时间，就收获了160多万粉丝，累计获得网友们2226万多次的点赞。李乔昕表示，未来她想更深入地体验大陆的生活，制作更多正能量的短视频，分享给两岸的年轻人，“我最大的目标是成为两岸交流的一种纽带”。
 
-巴赫邀请彭帅在他1月份访问北京时共进晚餐，彭帅接受了邀请。
+李乔昕已经在[北京](https://baike.baidu.com/item/%E5%8C%97%E4%BA%AC/128981)接种完两剂[新冠疫苗](https://baike.baidu.com/item/%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97/24611354)，只需要出示[台胞证](https://baike.baidu.com/item/%E5%8F%B0%E8%83%9E%E8%AF%81/10584345)就能在当地社区接种，她评价“整个流程非常专业又很迅速”。］
 
-据《新闻周刊》（Newsweek）报道，当美国网球官员对北京采取强硬立场时，国际奥委会因一直保持沉默而受到批评。西蒙（Simon）威胁要将所有世界女子网球协会赛事从中共国撤出，而国际奥委会则与2022年奥运会主办国进行了所谓的“沉默外交”。
+现在李乔昕的新浪微博[@李喬昕兒](https://weibo.com/n/%E6%9D%8E%E5%96%AC%E6%98%95%E5%85%92) 已经404，但是李乔昕的表演还在——[**台湾小哥声音超好听 *****李乔昕*****直言自己“太兴奋”\_腾讯视频**](https://www.baidu.com/link?url=gEapHnVDzhe5tFnAApHakg3n_Jioztt50KR3xtbO4SUrMzz_X0GlAPwZ42Vb4bVobJZag4OPE0IOwMr2tCxA3a&amp;wd=&amp;eqid=dcacb90600146b9f00000002619a1606)（2019年5月18日）
 
-北京冬奥会将于（明年）2月4日开幕。
+当年大清朝灭亡前废尽心机切了小弟弟入宫的太监们在后清时代再也安不上那根小弟弟了，这位精神上已经自宫的台湾表妹在后共时代还能不能挺起胸膛，倒也真的很令人生疑。
 
-国际奥委会将所有问题都转移到其声明中，世界女子网球协会告诉《福克斯新闻》，“很高兴见到彭帅”，但这并未缓解或解决世界女子网球协会的担忧。
+撰稿：喜马拉雅的肉夹馍；
 
-世界女子网球协会强调彭的发言必须“不受审查或胁迫”，并强调北京没有响应该组织的呼吁，即对彭的性侵犯指控进行“全面、公正和透明的调查，（以及彭帅的发声）不受审查”。
+审核：喜马拉雅的馍夹肉；
 
-随着网球官员和西方政府官员施加越来越大的压力，北京方面在过去几天发布了多张照片和视频。
+校对：Maarago；
 
-西蒙威胁说，如果北京不同意对彭帅的指控进行正式、独立的调查，他将取消每年在中共国举行的十几场世界女子网球协会的锦标赛，尽管这一举动可能会损害网球协会本身。
+（文章内容仅代表作者个人观点）
 
-但北京继续坚持认为，它“不知道”彭帅的情况，外交部发言人赵立坚星期五（11月19日）对记者说，这件事“不是外交问题，我也不知道情况”——每当记者问及彭帅时，他都坚持这一立场。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-（全文完）
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-这是继世卫组织与中共合演欺骗世界的剧目后，国际奥委会又步其后尘，进行光天化日之下的合作以蒙骗天下。如果说人权组织、货币基金组织、世界银行等国际机构受到中共渗透和侵蚀后也在为中共谋利、背书，至少还没有这样明目张胆。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-这些疑似把柄握在中共手中的奥委会官员，做贼心虚，担心人们会质疑“张高丽性侵事件”，便采用了“回避隐私”的手法，以搪塞30分钟通话的关键内容。其实只需两个“Yes，or No”的提问，即可辨别出彭帅的真实境况。那篇微博文稿是不是你发出的？CGTN播发的邮件是不是你写的？这不应该是隐私，都是公开的内容，只是进行确认就可以了。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-不可否认，中共、奥委会此举会蒙蔽一大批人，但是像世界女子网球协会史蒂夫·西蒙主席这样富有正义感的人大有人在，他们对中共卑劣的手法深恶痛绝。只有坚决抵制最后消灭中共，世界才能得以安宁。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-原文链接：
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-[https://www.foxnews.com/world/peng-shuai-olympic-committee-tennis-star-video-call](https://www.foxnews.com/world/peng-shuai-olympic-committee-tennis-star-video-call)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
