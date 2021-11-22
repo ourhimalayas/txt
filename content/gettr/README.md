@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/22/2021 3:36 PM (UTC)`
+
+ 1月22號分會健身亂聊直播
+![img](https://media.gettr.com/group4/getter/2021/11/22/15/b327f6f2-fdc4-4929-61ef-54c5ea791538/4e15e67b0ec2d7a6d40bbabd58382435.jpg)
+
+---
+
 `@miles 11/22/2021 10:32 AM (UTC)`
 
 11/20/2021 [3rd Anniversary of 1120]  Mr. Bannon: The biggest challenge you're going to have is how to incorporate technology to increase people's freedom & prosperity,  and not let these devolve into tools of war or tools or control.<br/><br/>11/20/2021【1120三周年纪念】<br/>班农先生： 人们面临的最大挑战将是如何运用科技创造自由和繁荣，而非将其演变为战争工具或控制手段。<br/><br/>
@@ -295,13 +302,6 @@ One Southern California Mayor takes a stand against 'totalitarian' vaccine manda
 
 11月18日: 我们的笨笨有女朋友啦～～～ 他们将过上幸福快乐的日子, 让我们见证他们的成长吧♥️♥️
 ![img](https://media.gettr.com/group34/getter/2021/11/18/20/be3009f6-a3bc-188f-8da0-910bf2f63592/90ebbd9e21329ed9f42fd6b81dfc6314.jpg)
-
----
-
-`@miles 11/18/2021 8:26 PM (UTC)`
-
-11月18日: 自娱自乐模式启动🤣🤣🤣🤣🤣
-![img](https://media.gettr.com/group42/getter/2021/11/18/20/26/f07426d3-fdfd-044d-1adc-06a58846a0d8/out.jpg)
 
 ---
 
