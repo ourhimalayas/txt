@@ -2,40 +2,54 @@
 ---
 
 
-## 菲律宾总统对中共国封锁菲律宾船只的行为感到憎恶
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1685187/)
+## CDC 和大药企数据证实：儿童死于疫苗多于病毒（2/2）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1685222/)
 
-####  **【雅典娜快讯】，紧贴时事脉搏**
+翻译 : Jenny ball
 
-- ![文章配图](https://assets.gnews.org/wp-content/uploads/2021/11/07southchinaseaQandA-web4-superJumbo.jpg)图片来源：www.nytimes.com
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-556.png)图片来源: thegatewaypundit.com
 
+文章前一部分我们了解到FDA如何改白了21条审核疫苗要做的事情，尤其是在关键的NNTV数据上的惊人数据。
 
-#### 编译：小红帽
+罗杰斯随后列出了需要接种疫苗的人数，以挽救一名儿童的生命免受 COVID 死亡的影响：
 
-菲律宾总统罗德里戈·杜特尔特(Rodrigo Duterte)谴责最近在南中共国海发生的菲律宾船只遭到中共国海岸警卫队阻拦的事件，称这对两国关系不利。
+截至 2021 年 10 月 30 日，CDC 表示，自大流行开始以来，已有 170 名 5 至 11 岁的儿童死于 COVID-19 相关疾病。（尽管这个年龄的儿童占美国人口的 8.7%，但在全国所有与冠状病毒相关的死亡人数中，这一数字还不到 0.1%）。
 
-杜特尔特周一发表讲话，对上周菲律宾船只在第二托马斯浅滩（在菲律宾称为阿永金浅滩）遭到中共国海岸警卫队水炮射击的事件作出回应。这些船只当时正在为驻扎在环礁上的海军陆战队提供补给。声称拥有这些岛屿的北京政府表示，这些船只没有申请进入的许可。
+**辉瑞 ****mRNA ****注射仅“有效”约 ****6 ****个月**。因此，任何建模都必须基于与 57 (170/3) 名儿童相关的疫苗有效性，否则这些儿童可能会在 6 个月内死于 COVID 相关疾病。
 
-杜特尔特在东南亚国家联盟和中共国的会议上说：“我们对最近发生在阿永金浅滩的事件感到憎恶，并对其他类似的事态发展表示严重关切”。
+最好的情况是，辉瑞 mRNA 注射液可能对住院和死亡有 80% 的效果。该数字直接来自 FDA 模型（第 32 页）。我仔细一看，对辉瑞有了相当大的怀疑，**因为辉瑞临床试验再次表明，这个年龄段的住院或死亡没有减少**。因此，为所有 28,384,878 名 5 至 11 岁的儿童注射两剂辉瑞（拜登政府想要做的事情），最多可以挽救 45 条生命（0.8 有效性 x 57 人死亡）。
 
-“这对我们国家之间的关系和我们的伙伴关系没有好处，”这位直言不讳的领导人补充说。
+那么，在这个年龄组中防止单次死亡的 NNTV 是 **630,775** (28,384,878 / 45)。但这是一种两剂方案，因此，如果要计算每次注射的 NNTV，该数字会翻倍至 1,261,550。**这实际上是疫苗接种史上最糟糕的 ****NNTV****。**
 
-这位将于2022年卸任的总统在其任期内曾试图改善与中共国邻国的关系。然而，中共国政府对南中共国海的大片地区，包括菲律宾附近的岛屿和环礁的主张，不断挑战外交关系。北京政府的强硬态度也引发了菲律宾人的反华情绪。
+罗杰斯接着提供了对因接种 COVID 疫苗而产生致命副作用的儿童数量的估计。
 
-南中共国海潜在的资源丰富且具有战略意义的水道是中共国、菲律宾、越南、马来西亚、印度尼西亚、台湾和文莱等国提出多项重叠主张的对象。
+基尔希、罗斯和克劳馥（Kirsch、Rose ，Crawford）（2021）估计 **VAERS 将致命反应低估了 41 倍**，这将使该年龄段的致命副作用总数达到 5,248。（Kirsch 等人表示这是保守估计，因为其他人将漏报系数设为 100。）
 
-周五，美国警告中共国，攻击菲律宾的公共船只将促使美国根据其条约义务做出回应。
+罗杰斯总结如下：
 
-**参考新闻：** [Duterte reacts to China blocking Philippines ships — RT World News](https://www.rt.com/news/540929-china-manila-duterte-sea-atoll/)
+因此，简单地说，拜登政府的计划，将通过辉瑞 mRNA 注射杀死 5,248 名儿童，以挽救 45 名儿童免于死于冠状病毒。
 
-***发布：小红帽***
+**疫苗每救活一个孩子，就会有 ****117 ****人被杀害**。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**辉瑞 ****mRNA ****注射剂未能对 ****5 ****至 ****11 ****岁儿童进行任何诚实的风险收益分析。**
+
+还有……本月早些时候，辉瑞前副总裁迈克尔·耶登（Michael Yeadon）博士认为，儿童被 COVID 疫苗杀死的可能性是病毒本身的 50 倍，”
+
+耶登是辉瑞公司的首席科学官和副总裁，在他在公司工作超过 16 年，后于 2011 年离职。
+
+耶登本月早些时候还告诉史蒂夫·班农，“给（儿童）接种疫苗是一件疯狂的事情，实际上，杀死他们的可能性是病毒本身的 50 倍，”
+
+**没有任何理由让孩子接种 COVID 疫苗。 疯了吧。**
+
+新闻来源 : [thegatewaypundit.com][HUGE: CDC and Big Pharma Data Confirm that More Children will Die from COVID Vaccine than from the COVID Virus](https://www.thegatewaypundit.com/2021/11/shockingly-insane-cdc-big-pharma-data-show-save-lives-less-50-children-covid-5000-children-will-die-vaccine/)
+
+* * *
+
+*审核：文乐
+校对: 阿伯塔
+发稿: Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+
 
  
 

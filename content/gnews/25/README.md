@@ -2,27 +2,24 @@
 ---
 
 
-## 最新欧洲医疗数据记录超百万疫苗副作用案例
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1684840/)
+## 今年灾害天气多，吃糖都恐受影响
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684939/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2021/11/221.jpg)图片来源：Pexels免费照片资料库；摄影：Nataliya Vaitkevich
-最新出炉来自欧洲医疗机构的数据显示，人们怀疑疫苗效用和潜在危害是完全正确的。根据欧盟有关药物反应的数据库显示，截至11月13日，已经有超过30,000疫苗注射死亡案例以及超百万的副作用报告。相关疫苗品类包含辉瑞、莫德纳、强生以及阿斯利康。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-168.png)[图片来源](https://twgreatdaily.com/jgKpzXIBnkjnB-0z2ihm.html)
+11月19日，针对在投资者互动平台提问关于极端天气对甜菜造成的损失问题，中粮糖业（600737.SH）表示，灾害天气导致糖料作物错过采收窗口期，是给公司带来损失的直接原因。
 
-欧洲药品机构称，有关新冠疫苗的副作用数据可以直接从[ADReports.eu](https://www.adrreports.eu/en/index.html)这一网站取得，所有用户都能接入查询总数。
+中粮糖业发出了受灾害天气影响的公告后，又再从产业背景的角度进一步解释。糖料作物（无论是甘蔗还是甜菜）都有严格的采收窗口期，一旦错过，对原料品质（主要是含糖量）会产生极大影响，这也是此次灾害天气给公司带来损失的直接原因。农业保险这几年在国内发展较快，但还不足以让农业彻底摆脱“靠天吃饭”的天然属性，其中的风险敞口部分，需要产业链的参与者共担。公司作为农业龙头企业，但面对极端天气，仍难免遭受一定损失。灾害发生后，公司发动干部员工昼夜抢收原料，目前仍在抢收过程中。
 
-这些数据均直接来自[EudraVigilance](https://www.adrreports.eu/en/data_source.html)——这是一个获取药物疑似副作用的系统，建立的第一要务是为了更好地评估研发阶段药物可能存在的风险以及疗效。系统中的数据都是由欧盟各国的管理机构和药品公司提交汇报的，考虑到利益和政治因素，整体数据或许还存在被低估的可能。
+近年来，特别是中共释放病毒后，更是天怒人怨，国内极端灾害天气不断，主粮连年减产，如今就连糖料作物都已减产。正如郭文贵先生所言，中共不灭，老百姓的苦日子还远没到来。
 
-以辉瑞疫苗的mRNA成分举例，该报告中出现最多的副作用主要为一般性功能障碍、肌肉骨骼及结缔组织障碍、神经系统障碍以及胃肠道功能障碍，副作用回报的总数均在十万例以上。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/222-2.png)辉瑞疫苗副作用数据截图；来源：ADReports.eu
-同时呼吸道障碍、生育哺乳障碍、皮肤组织障碍、心脏问题、血淋巴系统障碍也都是接种辉瑞之后较为常见的副作用。
+信息来源：
 
-其它品牌的mRNA疫苗，例如阿斯利康和莫德纳，似乎也都遵循着类似模式，报告中出现的主要副作用与辉瑞基本相同——不过阿斯利康疫苗出现神经性障碍的风险似乎还要更大。同时报告显示，三种疫苗的女性副作用案例均多于男性，而且几乎都是超出约一倍左右。
+[中粮糖业：目前仍在抢收原料过程中](http://www.nbd.com.cn/rss/toutiao/articles/2002288.html)
 
-参考链接：[Red Voice Media](https://www.redvoicemedia.com/2021/11/just-in-over-30000-covid-shot-deaths-1-1-million-adverse-drug-reactions-european-medicines-agency-data-shows/)
-
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/TUBIAO-X.jpg)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

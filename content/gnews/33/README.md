@@ -2,35 +2,49 @@
 ---
 
 
-## 有声|班农先生谈爆料革命的历史意义
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1684791/)
+## 法国首家“台湾华语文学习中心”成立
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1684798/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月20日，在“1120”纪念日大直播中，班农先生谈到爆料革命对中国人，对人类世界的重大历史意义。
-
-班农先生指出，美国不能给中国人自由，只有中国人才能给中国人自由。爆料革命揭露中共犯罪的证据，让美国和全世界民众认识到，中共不是一个合法政府，它是一个国际的跨国犯罪集团。
-
-班农先生回顾，人类历史的任何一场革命运动，一定会有背叛。但是“背叛”只是杂音，爆料革命传递的是有价值真实的声音。自2020年1月中共病毒爆发，法治基金，爆料革命，将病毒和疫苗的真相和证据公之于世。向世界发出警告，中共将持续释放新的病毒。
-
-班农展望，郭文贵先生引领的爆料革命，将会超越古印度，古希腊文明，超越基督教，建立历史上最优秀，最伟大的文明。
+作者：纽约香草山医疗部 – 云豹
 
 
 
-文字版原文：[班农先生谈爆料革命的历史意义](https://gnews.org/zh-hans/1682507/)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
 
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+法国首家推广繁体华文的“台湾华语文学习中心”，于11月20日在巴黎亭林中文学校正式成立，目标在于推广繁体华文的学习，以及促进台法间的文化双向交流学习。
+
+华语学习在世界很多国家都是一种潮流，但近二十年来，中共借此机会，以孔子学院的形式强势输出自己的华语教学体系，在教材中输出共产主义、社会主义思想，并借机收买各国年轻菁英及政治人物，建立中共渗透世界的人脉体系。
+
+近两年，世界各国逐渐认识到中共的不可信任，陆续下令关闭中共在其国内成立的孔子学院，并转向与普世价值观相近的台湾合作，由台湾提供华文学习的教材及师资，方便他们学习传统华文，了解台湾传承的由传统到创新，多层次且富含包容性的华人文化。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.3-6.jpg)
+参考链接：
+[法國首間台灣華語中心揭牌 推動正體中文學習](https://www.cna.com.tw/news/firstnews/202111210006.aspx)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编/编辑：飞虹
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
