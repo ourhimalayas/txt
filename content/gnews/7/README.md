@@ -2,27 +2,25 @@
 ---
 
 
-## 最新欧洲医疗数据记录超百万疫苗副作用案例
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1684840/)
+## 美军正开发摧毁高超音速导弹的拦截系统
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1684874/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2021/11/221.jpg)图片来源：Pexels免费照片资料库；摄影：Nataliya Vaitkevich
-最新出炉来自欧洲医疗机构的数据显示，人们怀疑疫苗效用和潜在危害是完全正确的。根据欧盟有关药物反应的数据库显示，截至11月13日，已经有超过30,000疫苗注射死亡案例以及超百万的副作用报告。相关疫苗品类包含辉瑞、莫德纳、强生以及阿斯利康。
+#### 撰稿：彩虹   
 
-欧洲药品机构称，有关新冠疫苗的副作用数据可以直接从[ADReports.eu](https://www.adrreports.eu/en/index.html)这一网站取得，所有用户都能接入查询总数。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-16.jpg)图片来源：国家利益
+在川普总统执政时期，美国太空部队正式成立。面对中共国成功进行的高超音速导弹试验，太空部队作战部副部长戴维·汤普森（David Thompson）将军警告美国“要迅速赶上”，11月21日，《新闻极限》对此做了报道。
 
-这些数据均直接来自[EudraVigilance](https://www.adrreports.eu/en/data_source.html)——这是一个获取药物疑似副作用的系统，建立的第一要务是为了更好地评估研发阶段药物可能存在的风险以及疗效。系统中的数据都是由欧盟各国的管理机构和药品公司提交汇报的，考虑到利益和政治因素，整体数据或许还存在被低估的可能。
+文章引用《政客》（Politico）的报道，在哈利法克斯国际安全论坛上，汤普森说：“在高超音速项目方面，我们（美国）不如中国和俄罗斯先进”，但太空部队正计划“找出相应的所需卫星群”。这位将军认为，“这是一个新的挑战，但并不是说我们没有应对这个挑战的答案。我们只是需要了解它，充分地设计规划，然后成功实行”。
 
-以辉瑞疫苗的mRNA成分举例，该报告中出现最多的副作用主要为一般性功能障碍、肌肉骨骼及结缔组织障碍、神经系统障碍以及胃肠道功能障碍，副作用回报的总数均在十万例以上。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/222-2.png)辉瑞疫苗副作用数据截图；来源：ADReports.eu
-同时呼吸道障碍、生育哺乳障碍、皮肤组织障碍、心脏问题、血淋巴系统障碍也都是接种辉瑞之后较为常见的副作用。
+根据报道，距离能够拥有和展示高超音速导弹，美国仍然还需要几年的努力。目前，陆军计划2024年配备一枚，海军计划2025年在一艘驱逐舰上配备一枚，2028年在一艘潜艇上配备一枚。
 
-其它品牌的mRNA疫苗，例如阿斯利康和莫德纳，似乎也都遵循着类似模式，报告中出现的主要副作用与辉瑞基本相同——不过阿斯利康疫苗出现神经性障碍的风险似乎还要更大。同时报告显示，三种疫苗的女性副作用案例均多于男性，而且几乎都是超出约一倍左右。
+此外，报道指出，导弹防御局已经与雷神公司（Raytheon）、洛克希德·马丁公司（Lockheed Martin）和诺斯罗普·格鲁曼公司（Northrop Grumman）签订了合同，以开发能够摧毁已发射高超音速导弹的系统，这种高超音速滑翔阶段拦截系统将能够在导弹于大气层上滑翔时将其摧毁。
 
-参考链接：[Red Voice Media](https://www.redvoicemedia.com/2021/11/just-in-over-30000-covid-shot-deaths-1-1-million-adverse-drug-reactions-european-medicines-agency-data-shows/)
+**新闻来源**
 
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/TUBIAO-X.jpg)
+[Space Force General: US Has to Catch Up With China’s Hypersonic Missiles](https://www.newsmax.com/newsfront/hypersonic-missiles-general-spaceforce/2021/11/21/id/1045591/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

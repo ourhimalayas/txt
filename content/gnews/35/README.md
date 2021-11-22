@@ -2,23 +2,23 @@
 ---
 
 
-## 数万人聚集维也纳，抗议奥地利政府防疫新规
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1684443/)
+## 荷兰爆发反对新冠措施抗议活动
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1684444/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：东京樱花团—在远方
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-本周六，就在奥地利政府宣布防疫新规的第二天，数万人聚集维也纳，游行抗议政府关于中共病毒的限制措施。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-16.jpg)
-本周，尽管对未接种疫苗的人实施了封锁，奥地利每日感染人数仍创下新纪录。11月19日，奥地利政府宣布，将于11月22日开始实施更严格的封锁措施，并于明年2月1日起强制民众接种疫苗。据悉，奥地利是西欧疫苗接种率最低的地区之一。尽管约66%奥地利人民已经接种了新冠疫苗，但仍有许多奥地利人对疫苗持怀疑态度。
+当地时间11月19日，反对荷兰政府的“新冠通行证”计划，鹿特丹爆发反对新冠防疫措施的抗议活动。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4-15.jpg)
+据悉，该“新冠通行证”计划规定，只有接种了疫苗、检测成阴性，或者已经痊愈的人，才能获得的“新冠通行证”。人们需出示该通行证，才被允许进入餐厅、酒吧等室内场所。
 
-据当地警方称，截至当天下午三点左右，抗议人群已达35,000人。
+而原定于20日的抗议活动，因19日当天的骚乱被取消。
 
-参考链接：[数万人聚集维也纳，抗议奥地利政府防疫新规](https://www.thestar.com.my/news/world/2021/11/20/thousands-protest-in-vienna-against-covid-restrictions-before-lockdown?utm_source=ground.news&amp;utm_medium=referral)
+参考链接：[荷兰爆发反对新冠措施抗议活动](https://www.voachinese.com/a/rotterdam-mayor-slams-violent-covid-19-protests-more-than-20-arrested-20211120/6321201.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 总编：文特
-编辑：飞虹/雪梨
+编辑：飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

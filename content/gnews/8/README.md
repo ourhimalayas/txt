@@ -2,31 +2,27 @@
 ---
 
 
-## 亨特·拜登的公司帮助中国公司收购钴矿
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1684829/)
+## 最新欧洲医疗数据记录超百万疫苗副作用案例
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1684840/)
 
-撰稿：小湫
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/11/221.jpg)图片来源：Pexels免费照片资料库；摄影：Nataliya Vaitkevich
+最新出炉来自欧洲医疗机构的数据显示，人们怀疑疫苗效用和潜在危害是完全正确的。根据欧盟有关药物反应的数据库显示，截至11月13日，已经有超过30,000疫苗注射死亡案例以及超百万的副作用报告。相关疫苗品类包含辉瑞、莫德纳、强生以及阿斯利康。
 
-《纽约时报》报道，以亨特·拜登(Hunter Biden)为创始人的投资公司，帮助中国公司从美国公司收购一座世界上最赚钱的钴矿。
+欧洲药品机构称，有关新冠疫苗的副作用数据可以直接从[ADReports.eu](https://www.adrreports.eu/en/index.html)这一网站取得，所有用户都能接入查询总数。
 
-2013年，拜登同另外两名美国人和中国合伙人，成立了渤海华美（上海）股权投资基金管理公司（Bohai Harvest RST），其中美方占股人控制着渤海华美30%的股份，并担任董事会成员。  
-值得注意的是，该公司在2016年完成了一笔交易，将刚果的一个钴和铜矿从美国Freeport-McMoRan公司转移到中国的钼业集团(China Molybdenum)，交易总额为26.5亿美元。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/H拜登.png)
-图片来自网络
+这些数据均直接来自[EudraVigilance](https://www.adrreports.eu/en/data_source.html)——这是一个获取药物疑似副作用的系统，建立的第一要务是为了更好地评估研发阶段药物可能存在的风险以及疗效。系统中的数据都是由欧盟各国的管理机构和药品公司提交汇报的，考虑到利益和政治因素，整体数据或许还存在被低估的可能。
 
-渤海华美作为小股东，从加拿大伦丁矿业(Lundin Mining of Canada)收购了约11.4亿美元的股份，伦丁矿业拥有刚果金矿的部分股权。  
-根据该公司提交给香港的文件，中国钼业在两年后收购了渤海华美在伦丁矿业的股份。 根据这笔交易，中国钼业集团拥有该矿80%的股份，其余股份由刚果国有矿业企业持有。
-据《纽约时报》报道，拜登通过总部位于华盛顿的Skaneateles有限责任公司控制了渤海华美10%的股份。 
-拜登的律师Chris Clark表示，亨特不再直接或间接的与渤海华美或Skaneateles有任何利益关系，中国的记录显示，截至2020年4月，拜登不再是董事会成员。  
-福克斯新闻(Fox News)在2021年4月查阅中国商业记录显示，亨特·拜登通过自己的公司Skaneateles继续持有渤海华美私募股权10%的股份。
+以辉瑞疫苗的mRNA成分举例，该报告中出现最多的副作用主要为一般性功能障碍、肌肉骨骼及结缔组织障碍、神经系统障碍以及胃肠道功能障碍，副作用回报的总数均在十万例以上。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/222-2.png)辉瑞疫苗副作用数据截图；来源：ADReports.eu
+同时呼吸道障碍、生育哺乳障碍、皮肤组织障碍、心脏问题、血淋巴系统障碍也都是接种辉瑞之后较为常见的副作用。
 
-亨特·拜登的商业关系仍然是媒体密切关注的焦点，尤其是他在中国的活动。 拜登总统特别警告说，中国钴的主导地位日益上升，这将成为美国从油气能源转向电动能源产业升级的最大障碍，因为钴是电动汽车电池的关键成分。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/H拜登2-1.png)
-参考信息：
-[Hunter Biden’s firm helped Chinese company purchase rich cobalt mine in $3.8 billion deal: report | Fox News](https://www.foxnews.com/politics/hunter-biden-firm-chinese-purchase-cobalt-mine)
+其它品牌的mRNA疫苗，例如阿斯利康和莫德纳，似乎也都遵循着类似模式，报告中出现的主要副作用与辉瑞基本相同——不过阿斯利康疫苗出现神经性障碍的风险似乎还要更大。同时报告显示，三种疫苗的女性副作用案例均多于男性，而且几乎都是超出约一倍左右。
 
-发稿：MG4
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-1.jpg)
+参考链接：[Red Voice Media](https://www.redvoicemedia.com/2021/11/just-in-over-30000-covid-shot-deaths-1-1-million-adverse-drug-reactions-european-medicines-agency-data-shows/)
+
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

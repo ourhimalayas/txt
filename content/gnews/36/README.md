@@ -2,21 +2,23 @@
 ---
 
 
-## 纳瓦罗要求中共提供病毒初始序列
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1684442/)
+## 数万人聚集维也纳，抗议奥地利政府防疫新规
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1684443/)
 
-作者：日本方舟农场 – Andy5
+作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月20日，在战斗室节目中，对上周长达4小时的拜习会中，双方没有谈及病毒，甚至没有谈到武汉，班农先生表示震惊。对此，纳瓦罗先生称，美国除了要向中共索赔外，更应要求中共提供中共病毒溯源真相，以及病毒初始序列。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-19.jpg)
-纳瓦罗先生强调，只有通过了解病毒初始序列，才能研发出“真”疫苗来取代目前的“毒”疫苗。他还表示，现阶段的疫苗，是建立在“被弱化刺突蛋白”上的研究产物，其造成的灾难远大于其效果。他敦促美国应尽快意识中共是整个人类的威胁，否则美国也将被邪恶统治。
+本周六，就在奥地利政府宣布防疫新规的第二天，数万人聚集维也纳，游行抗议政府关于中共病毒的限制措施。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-16.jpg)
+本周，尽管对未接种疫苗的人实施了封锁，奥地利每日感染人数仍创下新纪录。11月19日，奥地利政府宣布，将于11月22日开始实施更严格的封锁措施，并于明年2月1日起强制民众接种疫苗。据悉，奥地利是西欧疫苗接种率最低的地区之一。尽管约66%奥地利人民已经接种了新冠疫苗，但仍有许多奥地利人对疫苗持怀疑态度。
 
-参考链接：[纳瓦罗要求中共提供病毒初始序列](http://1.%20https://www.gettr.com/post/phhsiqb0c2)
+据当地警方称，截至当天下午三点左右，抗议人群已达35,000人。
+
+参考链接：[数万人聚集维也纳，抗议奥地利政府防疫新规](https://www.thestar.com.my/news/world/2021/11/20/thousands-protest-in-vienna-against-covid-restrictions-before-lockdown?utm_source=ground.news&amp;utm_medium=referral)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 总编：文特
-编辑：文特/Kathy文艺/雪梨
+编辑：飞虹/雪梨
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
@@ -26,8 +28,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

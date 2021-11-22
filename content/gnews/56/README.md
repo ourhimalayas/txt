@@ -2,21 +2,28 @@
 ---
 
 
-## 美国老百姓的3个不允许
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1683519/)
+## 辉瑞与美政府签订53亿美金新冠药物合同
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683799/)
 
-文编：东京樱花团/樱花传媒
+作者：MOS 柳是多水土透
 
-视频:东京樱花团/中文小视频组
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-2.png)
 
-11月19日，郭文贵先生在GTV大直播指出：
 
-美国老百姓绝对不能接受超过四美金一桶的油价，绝对不能忍受一块面包超过4-5美金，绝对不允许气电超过平均价格的20%。这三个不允许决定着美国的政治和经济。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
 
+
+作为52.9亿美金合约的一部分，辉瑞医药公司周四宣布将于今年开始，向美国联邦政府供应1000万个疗程的抗新冠病毒药物 市场名Paxlovid，这种口服药针对早期症状用于居家治疗，以帮助减少住院和死亡病例 辉瑞周四向监管机构递交申请批准文件，预期将于下月底前生产18万个疗程的剂量，至2022年底前有5000万疗程出厂 其本月早期的报告称，此药将成人重症风险降低89%，超过默沙东药剂Molnupiravir的50%，美政府同时与默沙东有22亿美金购买合约 郭先生曾转述医疗专家的警告，最近上市的新冠药物的毒副作用甚至大于疫苗，请大家谨慎，以NFSC之前公布的预防治疗方案为优先选项。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/CWOKYOTZ3NNFXJY4K4MIWXFGA4.jpg)图片来源：路透社
+
+**参考阅读：**
+
+https://www.reuters.com/business/healthcare-pharmaceuticals/us-govt-buy-10-mln-courses-pfizers-covid-19-pill-529-bln-2021-11-18/
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-6.jpg)
+
+编辑/校对/发稿：一烘
 
  
 
