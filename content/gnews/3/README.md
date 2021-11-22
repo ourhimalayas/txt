@@ -2,21 +2,12 @@
 ---
 
 
-## 雅典娜时报-第120期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1684226/)
+## 班农：我们不会只是坐在那里，我们要进攻（粤语配音）
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1684253/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+11/15/2021 班农：我们不会只是坐在那里，我们要进攻。言论自由与宗教自由一样都是我们最基本的自由，这就是斗争的主题。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_15.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_16.png)
-***发布：小红帽***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

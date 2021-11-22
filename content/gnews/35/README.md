@@ -2,26 +2,26 @@
 ---
 
 
-## 法院暂停拜登的强制疫苗令，仍有60％的企业继续执行
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683798/)
+## 美国劳工部暂停实施拜登强制接种令
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1683801/)
 
-作者：加拿大杨帆农场 Spirit
+作者：日本樱花团—在远方
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-3.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo.png)
 
 
 
-根据《CNN》11月17日报道，联邦上诉法院暂停了拜登政府强制要求100人以上的企业员工接种疫苗或每周测试的疫苗强制计划。咨询公司Gartner公司周二对300家企业进行的一项闪电式调查显示，60%的企业仍愿执行计划，只有约10%的人将退出强制疫苗，有30%的人在权衡如何进行。 卫生政策智库 KFF 上个月接受调查的工人中，约有 25% 表示他们的雇主现在有疫苗强制要求，而 6 月份的调查中这一比例仅为 9%。 这项疫苗强制计划关系到8000万名私企雇员的生命安全，由于大部分雇主受到政府，卫生部门和媒体的蒙骗而无法做出正确的决定，非常让人担忧，只有抵制强制疫苗才能保护自己的员工。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/cnn.png)图片来源：cnn
+
+当地时间18日，美国劳动部职业安全与健康管理局表示，将遵从法院裁定，暂停实施拜登政府的企业疫苗强制令，直到法院下达进一步指令。该机构还表示，对自己在紧急情况下保护工人的权力充满信心。 自本月4日拜登政府发布企业疫苗强制令以来，德克萨斯、路易斯安那、南卡罗来纳、犹他和密西西比州等，由共和党掌舵的州强烈反对并采取了法律行动。在美国联邦第五巡回上诉法院，以严重的违法违宪问题，冻结了拜登疫苗强制令以后，德州州长阿博特表示，联邦法院即将举行紧急听证会，他们将在法庭上打掉拜登滥用职权的违宪之举。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/c8e6-bb2646c2df0eb0aeec4874eb02013e8f.png)图片来源：RT
 
 **参考阅读：**
 
-https://www.cnn.com/2021/11/17/economy/employer-vaccine-mandates/index.html
+https://news.sina.com.cn/w/2021-11-18/doc-iktzqtyu8149167.shtml
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-8.jpg)
 
 编辑/校对/发稿：一烘
 
