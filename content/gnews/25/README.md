@@ -2,29 +2,35 @@
 ---
 
 
-## 约1万名现役海军陆战队员尚未接种中共病毒疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1684781/)
+## 有声|班农先生谈G系列对灭共的重要性
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1684790/)
 
-#### 撰稿：彩虹
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月20日，“1120”大直播中，班农先生阐述了新中国联邦G系列对灭共的重要性。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-14.jpg)图片来源：Wearthemight
-《新闻极限》11月21日引述《路透社》的文章，报道了美国各军种接种中共病毒（COVID-19）疫苗的进展情况。
+班农先生直言道，面对网络战，信息战，经济战等一系列挑战，如果没有 Gnews，GTV，Gettr，我们早就完了，我们要让更多的人关注这些平台。班农先生继续指出，War Room 在G平台上的持续曝光，体现了新中国联邦人的正义力量。
 
-周日，根据《华盛顿邮报》报道说，至少94%的海军陆战队员已经达到了或者正按照计划达到乔·拜登（Joe Biden）总统要求强制接种中共病毒疫苗的要求。但按照11月28日这个最后期限的要求，尚有约1万名海军陆战队员无法在这个最终期限前完成接种中共病毒疫苗。
+谈到喜币， 班农先生评价道，喜币是对中共和华尔街最直接的反击。当下，中共的房地产泡沫即将破裂，而中国人却把财富放在房地产里面，财富会随着房地产崩塌被血洗。目前，数字货币是最安全的，喜币是存储财富的最好选择。未来喜币和喜联储的发展将是非常强劲的。
 
-文章指，海军陆战队是美国军队中人口最少的单位，由海军部监管，海军部还管理着美国海军和海岸警卫队。截止目前，海军的疫苗接种率是美国军队中最高的，达到了99.7%。
+班农先生呼吁盖特、GTV，Gnews 的观众，历史会审判这些黑暗势力，不要在意杂音，我们的使命是拯救世界人民，推翻邪恶的中共独裁政权。
 
-此外，空军部负责管理美国空军和太空部队，在该部定的11月3日这个最后期限前，至少已经有97%的现役人员接种了中共病毒疫苗。
 
-陆军方面，现役人员接种中共病毒疫苗的最后期限是12月15日，大约95%陆军人员已经接种了至少一剂中共病毒疫苗。
 
-报道说，全国来讲，大约近60%的美国人完全接种了中共病毒疫苗。
+文字版原文：[班农先生谈G系列对灭共的重要性](https://gnews.org/zh-hans/1682508/)
 
-**新闻来源**
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-[Marines on Track for Worst Vaccination Record in US Military](https://www.newsmax.com/newsfront/marines-vaccination-rates-lagging/2021/11/21/id/1045587/)
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,29 +2,43 @@
 ---
 
 
-## CDC 和大药企数据证实：儿童死于疫苗多于病毒
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1684947/)
+## 爆料革命影响力今非昔比 房峰辉曾试图与美国合作揭露中共
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1684988/)
 
-翻译 : Jenny ball
+**By:秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-550.png)图片来源: thegatewaypundit.com
+***2021-11-22***
+[![](https://assets.gnews.org/wp-content/uploads/2021/11/1122-3.jpg)](https://gtv.org/broadcast/watch/619b5dfccbfd016d6378c2a0)点击图片观看视频
+**新闻摘要:**
 
-世界已经疯了。我们知道，当“专家”决定为儿童接种疫苗时，接种疫苗导致的死亡人数会多于 COVID 导致的死亡人数。现在我们有基于 CDC 和大型制药公司数据的支持这个事实。
+1. 彭帅事件持续发酵 国际社会施压中共
 
-但是，现在想要为儿童提供 COVID 疫苗的授权。问题在于，一开始死于疫苗的儿童多于死于 COVID 的儿童，而且有证据。
+2. 中国人口出生率 首次跌破1%
 
-托比·罗杰斯（Toby Rogers）把这个分析完全放在了一起。 他分享到：
+3. 广东男子当街杀女剖尸 目击者吓得发抖
 
-我正在阅读 CDC 的“提交给免疫实践咨询委员会 (ACIP) 的健康经济学研究指南，2019 年更新”，我意识到 ，FDA 对辉瑞（Pfizer）的 EUA 申请，对 5 至 11 岁儿童进行注射的可悲的风险收益分析， **违反了 CDC 指导文件的许多原则**。CDC“指南”**文件描述了每项与疫苗相关的健康经济学研究必须做的 21 件事**，**而 FDA 的风险收益分析至少违反了其中的一半……**
+4. 爆料革命影响力今非昔比 房峰辉曾试图与美国合作揭露中共
 
-新闻来源 [thegatewaypundit.com] **[The world has gone mad.  We knew when ‘experts’ decided to vaccinate children that there would be more deaths from the vaccination than from COVID.  Now we have support for this based on CDC and Big Pharma data.](https://www.thegatewaypundit.com/2021/11/shockingly-insane-cdc-big-pharma-data-show-save-lives-less-50-children-covid-5000-children-will-die-vaccine/)**
+5. 中共报复立陶宛降级外交关系 台湾称中共蛮横不堪
+
+6. 中共惧共同防御 菲律宾将恢复南海补给任务
+
+7. 欧洲各地爆发反对封锁和疫苗强制令的抗议活动
+
+8. FDA文件显示辉瑞疫苗有大量不良事件记录
+
+9. 奥地利全民封锁 疫苗接种率不到6%的非洲却安然无恙
+
+10. 中共掠夺非洲矿产 刚果5名中国人遭绑架
+
+**GTV链接：**[https://gtv.org/broadcast/watch/619b5dfccbfd016d6378c2a0](https://gtv.org/broadcast/watch/619b5dfccbfd016d6378c2a0)
+
+发布: 文橙
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

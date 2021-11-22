@@ -2,33 +2,26 @@
 ---
 
 
-## 有声|喜币的未来与威胁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1684793/)
+## 日美合作构筑“卫星星座”，监控中俄“高超音速导弹”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1684799/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月19日，文贵先生在大直播中详细描绘了喜币的未来。11月19日，文贵先生在大直播中详细描绘了喜币的未来。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-152.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fs.secrss.com%2Fanquanneican%2F489ed43ed822e297d221a48dca2ac9b4.jpg&amp;imgrefurl=https%3A%2F%2Fwww.secrss.com%2Farticles%2F3578&amp;tbnid=jCYNLjLdzR1_yM&amp;vet=12ahUKEwiU-Ln9wKv0AhUQZ5QKHfj1AyYQMygEegUIARChAQ..i&amp;docid=OImJFXJSFlnUlM&amp;w=600&amp;h=402&amp;q=%E5%8D%AB%E6%98%9F%E7%9B%91%E8%A7%86%E7%BD%91%E7%BB%9C&amp;ved=2ahUKEwiU-Ln9wKv0AhUQZ5QKHfj1AyYQMygEegUIARChAQ)
+日本《读卖新闻》22日报道，多名日本政府相关人士透露，为了监控、追踪中共与俄罗斯正在研发的“高超音速导弹”，日本计划构筑卫星监视网络，并于2025年前后发射三颗卫星进行实验。
 
-第一，喜币在强大的技术支撑下，将在现有的法币支付体系之外，开辟并完善自己独特的支付体系——先进的区块链技术、严密的KYC系统、中心化的管理系统。目前喜支付已经被迪拜知名房地产公司接受。随着被越来越多的实体和国家认可，喜币将以其便捷、安全、自由的优势迅速形成自己独特的支付体系。
+据报道，在发射三颗卫星后日本将测试卫星通信和处理情报的能力，根据实验结果，将发射更多颗卫星。由小型卫星构筑的监视网络被称为“卫星星座”，小型卫星单体重约100千克至500千克不等，搭载有摄像头、探测器等装备，具备收集地表情报能力，被发射后将在约400千米高的低空轨道上围绕地球转动。
 
-第二，喜币的发展离不开新中国联邦。喜币是新中国联邦成长的基石，将在新中国联邦的护佑下健康成长。新中国联邦的庞大体系，以及新中国联邦人在全球积累的信用，都是支撑喜币强势成长的源泉。
+至于作用，报道声称，鉴于中共和俄罗斯正在推进“高超音速滑翔飞行器（HGV）”（即高超音速导弹）的研发，日本计划在将来利用“卫星星座”对HGV实施监控与追踪。报道称，地面上的雷达很难发现并追踪以超5倍音速的速度在近乎平行于大气层飞行的HGV，但如果建立了“卫星星座”，则可以从太空捕捉到HGV的动向。
 
-第三，喜币的强势成长面临三个方面的挑战——传统法币体系中获益的华尔街、推翻并取代美元地位的中共；以及其他实力不如喜币的虚拟币。
+另一方面，除了对抗HGV，报道称，卫星监视网络还将用于监视海上可疑船只、收集自然灾害信息等方面。此外，报道称，构筑能够涵盖全球的卫星监视网络将需要巨额资金，日本考虑在构筑方面与美国合作。
 
-文字版原文：[喜币的未来与威胁](https://gnews.org/zh-hans/1682831/)
+信息来源：
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+[日媒：为监控中俄“高超音速导弹”，日本计划构筑“卫星星座”，还要与美国合作](https://3g.k.sohu.com/t/n568295241?serialId=6cac23dccfec7006a6780fb3c3895cdf&amp;showType=)
 
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

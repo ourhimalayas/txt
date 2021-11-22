@@ -2,23 +2,23 @@
 ---
 
 
-## 荷兰爆发反对新冠措施抗议活动
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1684444/)
+## 婴幼儿恐将于明年年初接种毒疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1684445/)
 
-作者：东京樱花团—在远方
+作者：纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间11月19日，反对荷兰政府的“新冠通行证”计划，鹿特丹爆发反对新冠防疫措施的抗议活动。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4-15.jpg)
-据悉，该“新冠通行证”计划规定，只有接种了疫苗、检测成阴性，或者已经痊愈的人，才能获得的“新冠通行证”。人们需出示该通行证，才被允许进入餐厅、酒吧等室内场所。
+11月18日，福奇表示，婴儿和蹒跚学步的孩童将有可能于明年接种新冠毒疫苗，具体接种日程表需要依据临床试验的结果。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture5-5.jpg)
+据悉，辉瑞的儿科疫苗试验已经开始，但迄今为止，辉瑞并未向FDA提交任何5岁以下儿童的临床试验数据。在ABC 新闻10月份的一份报告中，辉瑞表示，预计将在11月向FDA申请批准6个月至5岁儿童的新冠疫苗授权。
 
-而原定于20日的抗议活动，因19日当天的骚乱被取消。
+疫情数据显示，婴幼儿对新冠病毒几乎免疫，而美国政府仍旧向儿童推广疫苗。与此同时，面对大众对辉瑞疫苗的质疑，FDA非但没有正面回应，还表示将等到2076年，再对外界分享其批准辉瑞新冠疫苗的数据。
 
-参考链接：[荷兰爆发反对新冠措施抗议活动](https://www.voachinese.com/a/rotterdam-mayor-slams-violent-covid-19-protests-more-than-20-arrested-20211120/6321201.html)
+参考链接：[婴幼儿恐将于明年年初接种毒疫苗](https://www.breitbart.com/politics/2021/11/20/fauci-says-babies-could-be-eligible-for-coronavirus-vaccine-early-next-year/?utm_source=ground.news&amp;utm_medium=referral)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 总编：文特
-编辑：飞虹
+编辑：飞虹/雪梨
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
