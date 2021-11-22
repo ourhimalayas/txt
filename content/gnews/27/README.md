@@ -2,10 +2,10 @@
 ---
 
 
-## 由于不愿打疫苗和检测，35年教龄的加拿大老师被解雇
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1685285/)
+## 墨尔本人民抗议强制疫苗接种
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1685290/)
 
-11/17/2021 由于不愿打疫苗并且不愿做检测，加拿大一名有35年教龄的老师被学区解雇。
+11/20/2021 墨尔本人民抗议强制疫苗接种。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
