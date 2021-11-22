@@ -2,39 +2,62 @@
 ---
 
 
-## “永不放弃” &#8211; 世界各地爆发针对政府 COVID 暴政的抗议活动
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1683812/)
+## 斯科特·莫里森抨击各州的疫苗强制令：“退后一步”
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1683858/)
 
-翻译：真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/11/protest_4.jpg)图片来源：网络
-来自零对冲（ZERO HEDGE） 星期天十一月二一日的新闻报道：
+**评论：虽然澳洲联邦政府并未强制民众接种疫苗，但州政府及领地政府强制许多行业员工与工人必须接种疫苗，未接种疫苗的人将被诸多活动排除在外。路透社报道，澳大利亚总理莫里森在脸书（Facebook）发布影片说：“澳洲又达成一个重大里程碑，现在达4/5（人口接种疫苗的比例），这是不是很棒？”知道毒疫苗真相的人都会说，一点都不棒，澳大利亚高疫苗接种率反而让人越发担心。**
 
-美联社新闻称他们为“极右翼”，但欧洲各地成千上万热爱自由的人游行，反对新的残暴公共卫生措施，例如部分和全面封锁、健康护照和强制疫苗接种。
+**据《雅虎新闻》记者Emily Lefroy，2021年11月17日报道 ：**
 
-奥地利、克罗地亚、意大利、北爱尔兰、英国、法国、德国和荷兰出现了反对新病毒限制的示威活动。 在欧洲以外，加拿大、澳大利亚、日本甚至美国的几个城市都出现了抗议者。 一些人将周六标记为“全球自由”集会的一部分，以抗议 COVID-19 限制和疫苗规定。
+斯科特·莫里森 (Scott Morrison) 曾表示，州政府是时候“退后一步”，让澳大利亚人“重新开始生活”了。
 
-一些最激烈的集会发生在港口城市鹿特丹，后来演变成了骚乱。抗议者和警察之间的冲突从周五开始，一直持续到周六晚上。
+周四在悉尼的Tooheys 啤酒厂发表讲话时，总理称赞澳大利亚人的辛勤工作“带领我们度过了这场大流行病”。
 
-维持生活、保护生命和自由是抗议者们游行的共同点。 各国政府正试图通过增加 COVID 限制、强制健康护照和强制接种疫苗来掠夺这些。
+莫里森先生呼吁各州州长允许人们“前进”——无论他们是否接种了疫苗——并在80%的符合条件的人口完全接种疫苗后取消疫苗强制令。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/ak8dr-ljk66-1.jpg)斯科特·莫里森说政府应该让澳大利亚人“恢复他们的生活”。资料来源：AAP
+“但现在是政府退后一步，澳大利亚人恢复生活，澳大利亚人能够向前迈进，实现本应如此的自由的时候了。”他说。
 
-最严重的限制，或确切地说，政府对自由的严重掠夺，发生在奥地利，周一开始全面封锁。 全国范围内的封锁预计至少持续十天，但可以延长至两周以上。 然后到 2 月 1 日，政府将强制接种疫苗（奥地利 890 万人中只有 66% 的人完全接种了疫苗），希望最后这一措施能顺利进行。
+总理表示，除“特定情况”外，“我们不赞成政府强制人们接种疫苗”。
 
-周六在维也纳巨大的 Heldenplatz 广场举行的游行中有许多人高呼“我的身体我做主”、“我们为孩子挺身而出！”和“反抗！”
+新南威尔士州将于12月15日放弃疫苗护照，而昆士兰州将在12月17日引入疫苗护照以进入接待场所。
 
-最大的抗议活动之一应是在克罗地亚西北部首府萨格勒布，据《公民自由报》报道，那里有多达 十万民众涌向街道，以抗议政府的疫苗护照和新的 COVID 措施。
+“不赞成政府强制接种疫苗”，总理表示，现在是州政府允许人们做出自己选择的时候了。
 
-在罗马，数千名示威者聚集在首都巨大的马克西姆斯古战车竞技场（Circus Maximus），抗议工作场所、餐厅、电影院、剧院、体育场馆和健身房以及公共交通所需的“绿色通行证”。“永不放弃，”一名抗议者的标语写道。
+“在过去的几年里，政府一直在告诉澳大利亚人该做什么，”莫里森先生说，
 
-对极权主义的抵制正在整个欧洲蔓延。 通常，“在政府命令方面，欧洲人通常比美国人更服从。但即使在那里，公民也抗议政府以公共卫生的名义攫取权力，”美国思想家托马斯·利夫森说。
+“随着我们经历了大流行，现在需要这样做，但现在是时候开始收回所有这些措施了。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/nmo.png)
+总理表示，只有在“特定情况”下才需要强制接种疫苗。
 
-世界人民正在觉醒，意识到政府暴政正在掠夺他们的生命和自由，‘达沃斯人’，世界精英和他们的傀儡政府变得更加视民众如草芥。 公民与政府之间日益增长的不满是危险的——革命就是这样产生。
+“我们现在拥有世界上最高的疫苗接种率之一，我们拥有最强大的经济体之一来度过大流行，我们拥有世界上新冠病毒死亡率最低的国家之一。”
 
-原文链接：[https://www.zerohedge.com/political/well-never-give-protests-erupt-across-europe-over-govt-covid-tyranny](https://www.zerohedge.com/political/well-never-give-protests-erupt-across-europe-over-govt-covid-tyranny)
+莫里森先生表示，企业可以就强制接种疫苗做出自己的选择，但政府“并不是要告诉澳大利亚人该做什么”。
 
-编辑/发布：LILY
+“只有在卫生领域的工作者和与弱势群体一起工作的情况下，疫苗才是强制性的。”他说。
 
-20211121
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
+总理对昆士兰州州长Annastacia Palaszczuk的疫苗强制令进行了讽刺，称每个人“都应该能够在布里斯班喝杯咖啡，无论您是否接种过疫苗”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/bhu.png)抗议者在墨尔本国会大厦露营。资料来源：AAP
+斯科特·莫里森谴责抗议者
+总理表示，在过去一周数千人聚集在墨尔本抗议州政府的流行病法案后，他对最近的抗议活动“没有容忍” 。
+
+示威者连夜在州议会的台阶上扎营，大喊“杀死法案”和“自由”，网上分享的视频和照片显示，人们欢呼时，一个充气的丹尼尔·安德鲁斯（Daniel Andrews）娃娃被吊在绞刑架上。
+
+“那些威胁和恐吓在澳大利亚没有立足之地，我们是一个简单而和平的社会。”他说，“我们有分歧，我们不会用暴力来处理。无论人们多么沮丧，这永远都不是答案，需要在我们进行的那些辩论中表现出尊重，必须有适当的平衡和稳定。”
+
+**文章来源：**[https://au.news.yahoo.com/scott-morrisons-subtle-swipe-states-vaccine-mandates-030107286.html?guce\_referrer=aHR0cDovL20uZmFjZWJvb2suY29tLw&guce\_referrer\_sig=AQAAAHW\_j-l7Lj8AEfEvSpMsU1mYYuX2OmMGlFZU-tjJ0ugjAtBaSb3ysDduZvqXPaK\_TKdNfdoSkh5NyWsIj\_5J-Caks5-tO1cjuUuGfsr7xA4AbarRd7-80E-sQNl4SoCwp0S3OIlqV3KbFN3c6UaECUV3z\_aALtswVy57EgnCWILH&guccounter=2](https://au.news.yahoo.com/scott-morrisons-subtle-swipe-states-vaccine-mandates-030107286.html?guce_referrer=aHR0cDovL20uZmFjZWJvb2suY29tLw&amp;guce_referrer_sig=AQAAAHW_j-l7Lj8AEfEvSpMsU1mYYuX2OmMGlFZU-tjJ0ugjAtBaSb3ysDduZvqXPaK_TKdNfdoSkh5NyWsIj_5J-Caks5-tO1cjuUuGfsr7xA4AbarRd7-80E-sQNl4SoCwp0S3OIlqV3KbFN3c6UaECUV3z_aALtswVy57EgnCWILH&amp;guccounter=2)
+
+**（本文评论仅代表个人观点）**
+
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – Wendy
+编辑：洛杉矶盘古农场 – Wendy
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

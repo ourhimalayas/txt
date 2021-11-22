@@ -15,130 +15,130 @@
 
 ---
 
-### [11/20/2021【1120三周年纪念】班农先生：新中国人的伟大力量是对父母、祖先和家庭的尊敬，这种力量有助于我们更快地灭掉中共](/content/gnews/1/README.md)
- ` 秘密翻译组-北美组`
-
-### [中共当局对民企发动新一轮“割韭菜运动”](/content/gnews/2/README.md)
+### [日本多地民众游行抗议政府以疫情为由实施各项限制措施](/content/gnews/1/README.md)
  ` 日本东京方舟农场`
 
-### [奥委会官员称与彭帅进行了30分钟视频通话](/content/gnews/3/README.md)
- ` HimalayaRussia`
-
-### [癌症专家：英国非covid死亡人数将继续上升](/content/gnews/4/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [秘翻在线: 中共粮食进口创新高](/content/gnews/5/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [日本要闻汇编 11月21日](/content/gnews/6/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [据泄露的数据显示，辉瑞公司与中国共产党沆瀣一气](/content/gnews/7/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [司马南硬杠柳传志 女秘书急设鸿门宴](/content/gnews/8/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [英官方报告显示大部分染疫逝者完全接种了疫苗](/content/gnews/9/README.md)
- ` HimalayaRussia`
-
-### [11/18/2021：俄罗斯议员猛批社会主义，警告习近平独裁统治，强大的中国会拖俄罗斯下水](/content/gnews/10/README.md)
+### [11/20/2021【1120三周年纪念】班农先生：法治基金虽然还很年轻，但中共及其同伙已魂飞胆丧，新中国联邦注定会赢](/content/gnews/2/README.md)
  ` 秘密翻译组-北美组`
 
-### [从李云迪事件联想开去](/content/gnews/11/README.md)
+### [中共第三份重要历史决议将如何影响中国人的命运](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [11/20/2021【1120三周年纪念】班农先生：新中国人的伟大力量是对父母、祖先和家庭的尊敬，这种力量有助于我们更快地灭掉中共](/content/gnews/4/README.md)
+ ` 秘密翻译组-北美组`
+
+### [中共当局对民企发动新一轮“割韭菜运动”](/content/gnews/5/README.md)
+ ` 日本东京方舟农场`
+
+### [奥委会官员称与彭帅进行了30分钟视频通话](/content/gnews/6/README.md)
+ ` HimalayaRussia`
+
+### [癌症专家：英国非covid死亡人数将继续上升](/content/gnews/7/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [秘翻在线: 中共粮食进口创新高](/content/gnews/8/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [日本要闻汇编 11月21日](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [据泄露的数据显示，辉瑞公司与中国共产党沆瀣一气](/content/gnews/10/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [司马南硬杠柳传志 女秘书急设鸿门宴](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [英官方报告显示大部分染疫逝者完全接种了疫苗](/content/gnews/12/README.md)
+ ` HimalayaRussia`
+
+### [11/18/2021：俄罗斯议员猛批社会主义，警告习近平独裁统治，强大的中国会拖俄罗斯下水](/content/gnews/13/README.md)
+ ` 秘密翻译组-北美组`
+
+### [从李云迪事件联想开去](/content/gnews/14/README.md)
  ` 秘密翻译组-原创组`
 
-### [香草山翻译部周刊|2021年11月21日第23期](/content/gnews/12/README.md)
+### [香草山翻译部周刊|2021年11月21日第23期](/content/gnews/15/README.md)
  ` 纽约香草山MOS01`
 
-### [世界上最大的收藏家汽车拍卖行开始接受加密货币付款](/content/gnews/13/README.md)
+### [世界上最大的收藏家汽车拍卖行开始接受加密货币付款](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [斯科特·莫里森抨击各州的疫苗强制令：“退后一步”](/content/gnews/14/README.md)
+### [斯科特·莫里森抨击各州的疫苗强制令：“退后一步”](/content/gnews/17/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [犯罪毒品垄断联盟：FDA 拒绝在 2076 年之前发布辉瑞 Covid 疫苗数据](/content/gnews/15/README.md)
+### [犯罪毒品垄断联盟：FDA 拒绝在 2076 年之前发布辉瑞 Covid 疫苗数据](/content/gnews/18/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [【玫瑰看新闻】 【回魂时刻】- 196期 疫苗受害者专题新闻11#](/content/gnews/16/README.md)
+### [【玫瑰看新闻】 【回魂时刻】- 196期 疫苗受害者专题新闻11#](/content/gnews/19/README.md)
  ` 新西兰新联邦新闻摘要`
 
-### [“永不放弃” &#8211; 世界各地爆发针对政府 COVID 暴政的抗议活动](/content/gnews/17/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [当Hpay可以互相支付的时候](/content/gnews/18/README.md)
+### [当Hpay可以互相支付的时候](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [DC大中华时事： 中方决定将中立两国外交关系降为代办级](/content/gnews/19/README.md)
+### [DC大中华时事： 中方决定将中立两国外交关系降为代办级](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美国劳工部暂停实施拜登强制接种令](/content/gnews/20/README.md)
+### [美国劳工部暂停实施拜登强制接种令](/content/gnews/22/README.md)
  ` 纽约香草山MOS01`
 
-### [中亚国家人民忧中俄输出网路信息管制 民主国家应该反击](/content/gnews/21/README.md)
+### [中亚国家人民忧中俄输出网路信息管制 民主国家应该反击](/content/gnews/23/README.md)
  ` 纽约香草山MOS01`
 
-### [辉瑞与美政府签订53亿美金新冠药物合同](/content/gnews/22/README.md)
+### [辉瑞与美政府签订53亿美金新冠药物合同](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [法院暂停拜登的强制疫苗令，仍有60％的企业继续执行](/content/gnews/23/README.md)
+### [法院暂停拜登的强制疫苗令，仍有60％的企业继续执行](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
 
-### [郭文贵先生对新中国联邦人的期望](/content/gnews/24/README.md)
+### [郭文贵先生对新中国联邦人的期望](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [盖特成功度过“90天受孕期”受投资大佬青睐](/content/gnews/25/README.md)
+### [盖特成功度过“90天受孕期”受投资大佬青睐](/content/gnews/27/README.md)
  ` 纽约香草山MOS01`
 
-### [中共未来将对内施行“习皇制”，对外实行“希特勒制”](/content/gnews/26/README.md)
+### [中共未来将对内施行“习皇制”，对外实行“希特勒制”](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [银河快讯: 日本首相将审查财政重建目标；日中韩领导人会议无望在年内举行](/content/gnews/27/README.md)
+### [银河快讯: 日本首相将审查财政重建目标；日中韩领导人会议无望在年内举行](/content/gnews/29/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [维也纳万人游行反对封锁措施](/content/gnews/28/README.md)
+### [维也纳万人游行反对封锁措施](/content/gnews/30/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [DC每日热点1121](/content/gnews/29/README.md)
+### [DC每日热点1121](/content/gnews/31/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美打造印太新新经济框架向中共施压](/content/gnews/30/README.md)
+### [美打造印太新新经济框架向中共施压](/content/gnews/32/README.md)
  ` GTV新闻访谈`
 
-### [班农先生和郭先生回顾1120新闻发布会和法治基金法治社会成立](/content/gnews/31/README.md)
+### [班农先生和郭先生回顾1120新闻发布会和法治基金法治社会成立](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [继欧洲议会、德国和美国之后 英国也考虑外交抵制北京冬奥会](/content/gnews/32/README.md)
+### [继欧洲议会、德国和美国之后 英国也考虑外交抵制北京冬奥会](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [GTV自动多语言字幕功能在1120大直播中应用](/content/gnews/33/README.md)
+### [GTV自动多语言字幕功能在1120大直播中应用](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [美国老百姓的3个不允许](/content/gnews/34/README.md)
+### [美国老百姓的3个不允许](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [背叛 betray](/content/gnews/35/README.md)
+### [背叛 betray](/content/gnews/37/README.md)
  ` 骄子`
 
-### [美国北部、西部各州出现 COVID-19 病例激增](/content/gnews/36/README.md)
+### [美国北部、西部各州出现 COVID-19 病例激增](/content/gnews/38/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共舰艇军机频繁骚扰日本领海领空](/content/gnews/37/README.md)
+### [中共舰艇军机频繁骚扰日本领海领空](/content/gnews/39/README.md)
  ` 纽约香草山MOS01`
 
-### [纳瓦罗先生指出每一个美国人都应该成为对中共的鹰派](/content/gnews/38/README.md)
+### [纳瓦罗先生指出每一个美国人都应该成为对中共的鹰派](/content/gnews/40/README.md)
  ` 纽约香草山MOS01`
 
-### [欧洲经济区超3万人死于中共病毒疫苗！](/content/gnews/39/README.md)
- ` 军迷wilson`
-
-### [11/20/2021【1120三周年纪念】班农先生：你作为人的权利是神赋予的，但信仰无神论和唯物主义的中共却妄图利用科技来当上帝](/content/gnews/40/README.md)
+### [11/20/2021【1120三周年纪念】班农先生：你作为人的权利是神赋予的，但信仰无神论和唯物主义的中共却妄图利用科技来当上帝](/content/gnews/41/README.md)
  ` 秘密翻译组-北美组`
 
-### [11/20/2021【1120三周年纪念】郭先生：班农先生是个真正有信仰的、高贵的人，他从未有任何性丑闻，也不愿意拿老百姓的钱，相比之下共产党简直太低级了才](/content/gnews/41/README.md)
- ` 秘密翻译组-北美组`
-
-### [11/20/2021【11·20王健之死新闻发布会三周年】班农先生：我们新中国联邦需要培养更多有创业技能、熟谙商业、金融和市场营销等方面的人才](/content/gnews/42/README.md)
+### [11/20/2021【1120三周年纪念】郭先生：班农先生是个真正有信仰的、高贵的人，他从未有任何性丑闻，也不愿意拿老百姓的钱，相比之下共产党简直太低级了才](/content/gnews/42/README.md)
  ` 秘密翻译组-北美组`
 
 ### [11/21/2021国内经济财经周报：喜币已可在迪拜购买豪宅；阿里巴巴股票大跌](/content/gnews/43/README.md)
