@@ -2,38 +2,12 @@
 ---
 
 
-## 文贵先生说：七哥最感兴趣的
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1686152/)
+## 11/20/2021【1120三周年纪念】新中国联邦最终会用法治把中国人和全世界连结在一起,并有能力实现异议自由,言论自由和宗教自由
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1686224/)
 
-文编：Hima
-视频：七哥
+班农先生：新中国联邦成立仅仅一年半就取得了惊人的成就，我坚信新中国联邦最终会以法治为本把中国人民同全世界连结在一起
 
-时间：2021-11-19 11:35:04
-
-七哥最感兴趣的，也最开心的是和战友们一起，创造一个，超越宗教信仰和科学主义，当然社会主义，资本主义都是扯蛋的事儿是吧！那么超越国家主义，一个新的人类共同体！
-
-不仅分享财富，关键我们分享生命的密码！而且绝不是宇宙是无限大，地球是一粒沙这种愚蠢的游戏！
-
-我们要说的事情是真的让你感受到我们生命真的是无限大！
-
-我认为世界上最大的主人就是生命！
-
-校对：HimaFaFA
-发布：HimaBoy
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,18 +2,18 @@
 ---
 
 
-## 有声|GTV自动多语言字幕功能在1120大直播中应用
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1686487/)
+## 有声|盖特新功能“Instagram导入”开始内测
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1686509/)
 
 配音：香草山美食部 – 玫瑰园
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-11月20日，1120三周年纪念日大直播中，GTV启用自动多语言字幕功能，这是自11月11日正式上线以后的再次应用。
+11月17日，郭文贵先生发布盖特消息称，盖特新功能——“Instagram导入”已经进入内部测试阶段。
 
-目前，此功能仅在网页版的GTV上推出，并且能够支持中文简体，中文繁体，广东话，英文，日语，韩语，法语，西班牙语，阿拉伯语等十二种语言。
+用户在注册盖特新账户时，可以直接选择Instagram同名账号导入。盖特现有用户，如果想将Instagram账号导入盖特，可以将所属Instagram用户名留言给盖特工程师，要求导入账号。
 
-并且，用户在收看GTV网页版直播时，还可以选择高清视频直播、低像素视频直播以及纯语言直播形式。
+Instagram是脸书旗下的社交媒体平台，和脸书使用同样的“言论审查”政策，不允许用户表达与其不同的政治观点。与其相异的政治观点的图片和视频会遭到封禁，甚至会因此被封号。盖特与这些社交媒体平台相反，没有“言论审查”，是一个言论自由的社交媒体平台，用户可以畅所欲言，自由的表达自己，因此吸引大量热爱自由的人进驻。盖特开发这个新功能，为盖特用户提供了更全面的服务，更方便的体验。同时，吸引更多的人加入到盖特的平台中来，成为盖特的用户。
 
-文字版原文：[GTV自动多语言字幕功能在1120大直播中应用](https://gnews.org/zh-hans/1683527/)
+文字版原文：[盖特新功能“Instagram导入”开始内测](https://gnews.org/zh-hans/1683511/)
 
 音频处理：喜山必胜Maverick
 发稿：Fei797
@@ -25,8 +25,6 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
