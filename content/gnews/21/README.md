@@ -2,182 +2,72 @@
 ---
 
 
-## 供应链核心环节断裂
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1686868/)
+## 澳洲量子计算的先行者
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1687026/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/a3a4l-koqqt-1.jpg)
-[https://gettr.com/post/ph227wae74](https://gettr.com/post/ph227wae74)
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-**郭文贵**
-**Miles Guo**
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/image011.png)图片来源：Financial  Review
 
-在纽约也是这样的问题，毒品和所谓的这个民主党的救济
-Es el mismo problema en Nueva York. Las drogas y el llamado subsidio del Partido Demócrata
 
-让很多人不愿意工作
-Ha hecho que muchas personas no quieran trabajar
+#### 翻译：Sara9
+编辑：守望黎明
 
-这是核心的原因
-Esta es la razón principal
+在过去的20年里，新南威尔士大学的科学教授兼硅量子计算（SQC）研究所主任西蒙斯，就一直处于量子计算研究的最前沿。现在，轮胎终于触到了路面——更贴切地说，她的硅研究正在走上快车道。
 
-即使没有这个供应链的问题
-Incluso sin este problema de la cadena de suministro
+在澳大利亚证券交易所上市的西莱克斯系统公司（Silex Systems），即将开始建设一个试验工厂，以生产一种非常特殊的硅，这是西蒙斯将其量子算法付诸实施所需的专业计算机芯片的关键成分。
 
-它也是这样就完全这样
-Sigue siendo así
+迈克尔·高兹沃斯（Michael Goldsworthy）和米歇尔·西蒙斯（Michelle Simmons）都是物理学家，他们看到了量子技术在澳大利亚的发展机会。
 
-一直就是这十几年越来越严重
-Ha sido así, y se ha vuelto cada vez peor en los últimos diez años
+在联邦政府宣布为量子技术提供1亿美元的一周里，西蒙斯教授说，这是SQC研究所、Silex公司、学术界和政府之间相互合作的一个典范，说明量子计算不仅可以提升当地的技术实力，也可以促进制造业的发展。
 
-你到加州更夸张
-Es aún más exagerado si llegas a California
+西蒙斯教授告诉《AFR周末》说：“很多人认为，哦，这种东西只能在海外制造，不可能在澳洲生产。但实际上我们正在这里做这项工作——我们一直都在做。我就想在澳大利亚继续制造这个东西。”。
 
-那么这整个的所谓供应链的事情现在发生
-Entonces todo esto de la llamada cadena de suministro está sucediendo ahora
+“我所有的直觉都在告诉我，是加速的时候了。我们已经取得了领先，成果就在眼前显现——让人停不下来。”
 
-大家看的都是什么没人卸货
-Lo que todos ven es que no hay nadie que descargue la mercancía
+西莱克斯公司的首席执行官迈克尔·高兹沃斯（Michael Goldsworthy）也是一名物理学家，他将政府宣布投资的行为，称作澳洲在为量子计算机制造方面领先全球而的首付。
 
-然后那个货这个弄不下来可不是这个原因
-Entonces la razón por la que no se puede descargar no es por eso
+他说：“竞争很激烈，你只要一落后，哪怕只是一两年功夫，就可能永远失去优势。保持和加快发展是非常重要的。”
 
-它根本（原因）完全是冠状病毒和疫苗
-El origen (causa) es completamente el coronavirus y la vacuna
+**内部发展**
 
-人家不敢去冒着命去给你卸这个货
-La gente no se quiere arriesgar la vida para descargarte la mercancía
+西蒙斯教授职业生涯的大部分时间都在关注量子计算背后的软件上，也就是用复杂的算法让超大计算能力以令人难以置信的速度运行。但她说，不能指望所需的硬件随随便便就会出现。SQC已经决定自主开发量子计算技术模块的每一部分。
 
-而且它是完全美国没有应对冠状病毒的这个保险方案
-Además, Estados Unidos no tiene en su totalidad un plan de seguro para enfrentar el coronavirus
+西蒙斯说：“我们意识到，你必须自己把它建造出来，才能弄清它是如何工作的。我真正学到的东西是，搞制造业实在不容易，这是一项艰苦的工作，需要真正的奉献和精确，你必须不断地重来，重来，重来，才能使它运行稳定。”
 
-说我得的时候你给我多少保险它没有
-Decir que si me da positivo cuánto seguro me vas a dar, él no tiene
+SQC的股东包括联邦政府、澳大利亚电信和联邦银行，明年将寻求再筹集1.3亿美元资本。它有三个明确的目标：在2023年之前实现能可靠生产10量子比特的量子集成处理器的能力；在2030年之前（最快在2028年左右）造出基于100量子比特子处理器的可编程设备，并带有纠错功能；最终在2030年代中期开发出通用量子计算机，使其得以广泛的应用。
 
-那我干嘛就为了十美金二十美金去冒这个生命危险
-Entonces para qué voy a arriesgar mi vida por 10- 20 dólares
+但所有这些目标都有赖于合适的芯片开发。高兹沃斯总裁解释说：“这就像今天的计算机一样，没有芯片它就只是一堆没用的零件。如果你能把硬件芯片搞好，那么你就打开了通往其他技术领域的大门。”
 
-他就不去干了
-No lo quiere hacer
+在量子界，对于用什么来制造相应的芯片存在着很大的争论。自2019年12月以来，SQC和Silex一直致力于开发一种纯度极高的硅，称为**零自旋硅**。
 
-所以这个社会的保障和保险没有给这些工人的保障
-Entonces este seguro social de esta sociedad no brinda protección a estos trabajadores
+目前，这种材料只有在乌克兰的唯一的一个生产商，他们在使用过时的离心技术生产。戈德沃思说，使用激光同位素分离技术的Silex工艺效率要高得多，质量更好，价格更便宜。
 
-他就不去上班
-Él no va al trabajo
+**极点位置**
 
-第二个不要忘了
-El segundo no lo olvides
+Silex将在2021年底前进行扩大试点，生产**零自旋硅**。高兹沃斯说：“我们必须把以克计量的生产规模提高到公斤级，以便明年扩大规模并保持效率、纯度和成本。”
 
-美国的所有这些劳苦工人的上面的高层管理层都是白人
-La alta dirección, por encima de todos estos trabajadores en los Estados Unidos, es la raza blanca
+SQC为试验工厂的发展投入了180万澳元，联邦政府也投入了300万澳元。显然，SQC自己就是一个大客户，但高兹沃斯说，随着产量的增长，将有机会实现出口。
 
-这些白人就更怕死
-Y a esta raza blanca más les da miedo morir
+西蒙斯说，随着SQC继续发展其技术模块，有很多其他本地公司可以参与进来。
+“有些人认为可以只做软件，等待硬件最终会出现。但要知道赚大钱的都是搞硬件的，而现在澳大利亚在硬件方面是领先的。”
 
-现在是一半人不想打疫苗
-Ahorita hay una mitad de personas que no se quieren vacunar
+SQC的另一个优先事项是接触终端用户，了解他们会如何部局量子计算。国防和运输部门是两个目标，当然，SQC正在与联邦银行和Telstra通讯公司合作进行应用研究，西蒙斯教授说这个过程很有启发意义。
 
-一半人没了，打了疫苗的
-Esta mitad de personas ya no hay, los que se vacunaron
+“我们了解到，我们最初计划搞的东西并不是他们所需的。因此，我们就随之调整方向”。 西蒙斯说，未来几年，SQC将先制造出她所描述的 “一种试玩算法”，但她强调，最终走向商业算法的应用是确定无疑的。
 
-这些白人人家现在更不愿意去染病毒
-Estos blancos ahora menos quieren contagiarse del virus
+她决心让澳大利亚尽可能多地抓住这个巨大的机会。“我们已经有了竞争优势，你必须现在就开干，这样你就可以充分发挥这个优势。”
 
-又一半没了
-Entonces la otra mitad tampoco hay
+原文链接：[You Just Cannot Stop Quantum Computing Becomes A Reality](https://www.afr.com/chanticleer/you-just-cannot-stop-quantum-computing-becomes-a-reality-20211119-p59ah0)
 
-它不是那个集装箱
-No son los contenedores
+**发布：**文泓
 
-很多人都是乱解释
-Mucha gente lo explican mal
-
-所有供应链的核心在哪里
-¿Dónde está el núcleo de todas las cadenas del suministro?
-
-核心供应链是在运输的船上
-La cadena del suministro principal está en el barco de envío
-
-不管你是中共国的始发地和到美国的这个发货目的地
-No importa si eres de origen del PCCh y el destino es los Estados Unidos
-
-它中间是那个供应船
-En el medio está el barco de suministros
-
-他这个开船的人现在是个大问题了
-El que navega el barco ahora es un gran problema
-
-不是什么人都可以开船的
-No cualquier persona puede navegar
-
-这个运输过程中的船将近60%、70%人
-Casi el 60% y el 70% de las personas de este transporte en el barco
-
-涨了两倍工资的都不冒险
-Así haya aumentado el doble de su salario no quieren correr riesgo
-
-因为当你上过那个大船你就知道了
-Porque lo sabrás si has subido a esos barcos grandes
-
-七哥到非洲去确实坐过很长
-Yo cuando fui a África si estuve un tiempo muy largo
-
-最多坐过30天的船
-Máximo he estado 30 días en el barco
-
-真能吐到你要死的感觉
-Tanto es el vómito que sientes la muerte oportuna
-
-大海一点都不好玩
-El mar no es nada divertido
-
-那种吐那种颠倒的真的把你扔到房子上乱扔的感觉
-Esa vomitadera es como una sensación de tirarte a la casa
-
-特别是大货船
-Especialmente los buques de carga
-
-大家带着方便面带点吃的东西
-Todos llevan pasta instantánea o algo para comer
-
-那难受死了
-Pero eso es tan incómodo
-
-这些人上去得冠状病毒的机会太大了
-Las posibilidades de que estas personas contraigan el coronavirus son demasiado grandes
-
-所以这人就不去了
-Entonces la gente no va
-
-没有中间环节哪有你卸货的环节
-Si no hay esta parte intermedia cómo se puede descargar la mercancía
-
-这些压的货是原来弄货压在那儿
-Estas mercancías son los que ya estaban ahí
-
-就没人给你搬了
-Solo que no hay quien los descargue
-
-**原视频网址：**[https://gettr.com/post/ph227wae74](https://gettr.com/post/ph227wae74)
-
-日期：11/18/2021
-原视频标题：供应链核心环节断裂
-El eslabón central de la cadena de suministro está roto
-原视频日期：11/16/2021
-原视频网址： https://gettr.com/post/ph227wae74
-任务编号：KC266（2913）
-视频时间段：0:00-2:19
-
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 –天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

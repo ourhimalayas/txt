@@ -2,53 +2,183 @@
 ---
 
 
-## 永远不要接种 Covid 加强疫苗的 5 大理由
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1686658/)
+## 供应链核心环节断裂
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1686868/)
 
-作者：S.D. 威尔斯
+![](https://assets.gnews.org/wp-content/uploads/2021/11/a3a4l-koqqt-1.jpg)
+[https://gettr.com/post/ph227wae74](https://gettr.com/post/ph227wae74)
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Child-Think-Kid-Study-Brain-Believe-Classroom.jpg)图片来源：网络
-自然新闻：有些人一头扎进去，有些人则涉足疫苗“黑社会”。 现在，疫苗“助推器”的浪潮正将每个人拖入免疫功能低下的深渊。 数以千万计相信疫苗的美国人以为只是被打了个（斯诺克）障碍球，以为只会有一种疫苗或短系列疫苗，但现在他们都开始看到基因治疗注射的深邃黑暗水域，并且看起来真的很阴森。
+**郭文贵**
+**Miles Guo**
 
-计划是让每个人一针一针，一针一针，而对美国来说，和世界上许多其他国家一样，情节愈演愈烈，对主要体系统的损害已经抬头，包括血管凝块、抗体依赖等。 增强综合症和突然的“无法解释的”死亡。 有很多理由永远不会获得 Covid 的助推器，但我们已将其归结为前五名。
+在纽约也是这样的问题，毒品和所谓的这个民主党的救济
+Es el mismo problema en Nueva York. Las drogas y el llamado subsidio del Partido Demócrata
 
-避免每一次 Fauci 凝块注射的 5 大理由
+让很多人不愿意工作
+Ha hecho que muchas personas no quieran trabajar
 
-#1. 它并不是真正的疫苗，而是一种导致血栓、心肌炎和癌症的基因治疗注射剂。
+这是核心的原因
+Esta es la razón principal
 
-#2. 在您缩短的余生中，您必须每 4 到 6 个月继续打一次疫苗。
+即使没有这个供应链的问题
+Incluso sin este problema de la cadena de suministro
 
-#3. 每一种都会增加从第一剂开始的抗体依赖增强综合征 (ADE)，每次都会越来越弱地削弱您的免疫系统。
+它也是这样就完全这样
+Sigue siendo así
 
-#4. 真正“安全”和“有效”的疫苗需要数年时间来创造、测试并获得真正和完整的批准，因此每个助推器都完全是“在黑暗中射击”，就像玩俄罗斯轮盘赌一样。
+一直就是这十几年越来越严重
+Ha sido así, y se ha vuelto cada vez peor en los últimos diez años
 
-#5.  CDC 不断改变有关 Covid 疫苗的“事实”，包括它们的工作原理、工作时间、它们对哪些病毒有效以及可怕的警告标签。
+你到加州更夸张
+Es aún más exagerado si llegas a California
 
-如果您或一些亲人已接种 Covid 疫苗，您可能仍有机会逃离等待其他人的致命“潮流”。 欺诈性的福奇先生，Covid 先生本人最近在《纽约时报》的播客上承认，疫苗的消耗速度非常快，失去了保护人们免受感染、住院和死亡的能力。 然而，疫苗是新的。 那么是什么原因呢？
+那么这整个的所谓供应链的事情现在发生
+Entonces todo esto de la llamada cadena de suministro está sucediendo ahora
 
-首先，CDC 和 Fauci 表示，这些疫苗的有效性为 95%，安全性为 100%。 然后他们后来说他们不预防感染，他们只是告诉你如果你感染了 Covid 的严重性。
+大家看的都是什么没人卸货
+Lo que todos ven es que no hay nadie que descargue la mercancía
 
-然后，他们指责所有未接种疫苗的人不断将其传播给接种疫苗的人，但随后承认疫苗并不能阻止接种疫苗的人之间的传播。 现在他们说几个月后，他们不会停止收缩、传播、坏病例、住院或死亡。 那么为什么还有人在考虑助推器呢？
+然后那个货这个弄不下来可不是这个原因
+Entonces la razón por la que no se puede descargar no es por eso
 
-传染病“专家”福奇先生用以色列作为他观点的完美例子，他们在民众中拥有超高的疫苗接种率（超过 80%），现在大量接种疫苗的羊已经感染了 Covid，被住院，并遇难。 再次，暗流已充分发挥作用。
+它根本（原因）完全是冠状病毒和疫苗
+El origen (causa) es completamente el coronavirus y la vacuna
 
-福奇承认疫苗已经完全没用了，那是因为现在是他推动致命助推器的时候了：
+人家不敢去冒着命去给你卸这个货
+La gente no se quiere arriesgar la vida para descargarte la mercancía
 
-“他们看到不仅对感染的免疫力下降，而且对住院和某种程度上的死亡的免疫力正在下降，现在开始涉及所有年龄组。 不仅仅是老年人，”他继续最大化他的观点，以便他可以在助推器上向所有人推销：“它正在减弱到你看到越来越多的人获得突破性感染的地步，而且越来越多的人 那些出现突破性感染的人正在住院。”
+而且它是完全美国没有应对冠状病毒的这个保险方案
+Además, Estados Unidos no tiene en su totalidad un plan de seguro para enfrentar el coronavirus
 
-推进是保持大流行持续下去并一劳永逸地削弱美国人的免疫系统的重要组成部分
+说我得的时候你给我多少保险它没有
+Decir que si me da positivo cuánto seguro me vas a dar, él no tiene
 
-大型食品和大型制药公司根本没有用他们的有毒加工食品、致命的处方药和含汞的流感疫苗杀死足够多的人，所以他们不得不发明一个骗局来向每个人推销新的“疫苗”，每 4个月就需要 。 谁知道？ 每四个月准备一次助推器，有数百万“不明原因”的死亡发生在冒失“潜水”的羊群中。
+那我干嘛就为了十美金二十美金去冒这个生命危险
+Entonces para qué voy a arriesgar mi vida por 10- 20 dólares
 
-要获得互联网上最好的真实新闻，请拨打 Pandemic.news，因为不需要科学家或医生就能看到 Covid 疫苗、Remdesivir、口罩、呼吸机和 CDC 的糟糕建议正在造成大流行。
+他就不去干了
+No lo quiere hacer
 
-来源链接：[https://www.afinalwarning.com/571323.html](https://www.afinalwarning.com/571323.html)
+所以这个社会的保障和保险没有给这些工人的保障
+Entonces este seguro social de esta sociedad no brinda protección a estos trabajadores
 
-编辑/发布：LILY
+他就不去上班
+Él no va al trabajo
 
-20211122
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
+第二个不要忘了
+El segundo no lo olvides
+
+美国的所有这些劳苦工人的上面的高层管理层都是白人
+La alta dirección, por encima de todos estos trabajadores en los Estados Unidos, es la raza blanca
+
+这些白人就更怕死
+Y a esta raza blanca más les da miedo morir
+
+现在是一半人不想打疫苗
+Ahorita hay una mitad de personas que no se quieren vacunar
+
+一半人没了，打了疫苗的
+Esta mitad de personas ya no hay, los que se vacunaron
+
+这些白人人家现在更不愿意去染病毒
+Estos blancos ahora menos quieren contagiarse del virus
+
+又一半没了
+Entonces la otra mitad tampoco hay
+
+它不是那个集装箱
+No son los contenedores
+
+很多人都是乱解释
+Mucha gente lo explican mal
+
+所有供应链的核心在哪里
+¿Dónde está el núcleo de todas las cadenas del suministro?
+
+核心供应链是在运输的船上
+La cadena del suministro principal está en el barco de envío
+
+不管你是中共国的始发地和到美国的这个发货目的地
+No importa si eres de origen del PCCh y el destino es los Estados Unidos
+
+它中间是那个供应船
+En el medio está el barco de suministros
+
+他这个开船的人现在是个大问题了
+El que navega el barco ahora es un gran problema
+
+不是什么人都可以开船的
+No cualquier persona puede navegar
+
+这个运输过程中的船将近60%、70%人
+Casi el 60% y el 70% de las personas de este transporte en el barco
+
+涨了两倍工资的都不冒险
+Así haya aumentado el doble de su salario no quieren correr riesgo
+
+因为当你上过那个大船你就知道了
+Porque lo sabrás si has subido a esos barcos grandes
+
+七哥到非洲去确实坐过很长
+Yo cuando fui a África si estuve un tiempo muy largo
+
+最多坐过30天的船
+Máximo he estado 30 días en el barco
+
+真能吐到你要死的感觉
+Tanto es el vómito que sientes la muerte oportuna
+
+大海一点都不好玩
+El mar no es nada divertido
+
+那种吐那种颠倒的真的把你扔到房子上乱扔的感觉
+Esa vomitadera es como una sensación de tirarte a la casa
+
+特别是大货船
+Especialmente los buques de carga
+
+大家带着方便面带点吃的东西
+Todos llevan pasta instantánea o algo para comer
+
+那难受死了
+Pero eso es tan incómodo
+
+这些人上去得冠状病毒的机会太大了
+Las posibilidades de que estas personas contraigan el coronavirus son demasiado grandes
+
+所以这人就不去了
+Entonces la gente no va
+
+没有中间环节哪有你卸货的环节
+Si no hay esta parte intermedia cómo se puede descargar la mercancía
+
+这些压的货是原来弄货压在那儿
+Estas mercancías son los que ya estaban ahí
+
+就没人给你搬了
+Solo que no hay quien los descargue
+
+**原视频网址：**[https://gettr.com/post/ph227wae74](https://gettr.com/post/ph227wae74)
+
+日期：11/18/2021
+原视频标题：供应链核心环节断裂
+El eslabón central de la cadena de suministro está roto
+原视频日期：11/16/2021
+原视频网址： https://gettr.com/post/ph227wae74
+任务编号：KC266（2913）
+视频时间段：0:00-2:19
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 –天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

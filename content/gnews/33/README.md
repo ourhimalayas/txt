@@ -2,74 +2,85 @@
 ---
 
 
-## 犹太法庭裁决：儿童接种新冠疫苗是非强制性的，由此导致的死亡视为谋杀
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1686625/)
+## 美国老百姓的三个不允许
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1686817/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/112206.jpg)@americasfrontlinedoctors.org
-犹太法庭裁决：给儿童接种疫苗并导致死亡的人应“作为谋杀犯”对此负责
+[https://gtv.org/video/id=619c02f6e6900076612e8d2b](https://gtv.org/video/id=619c02f6e6900076612e8d2b)
 
-**摘要翻译：**
+**郭文贵**
+**Miles Guo**
 
-来自《美国前线医生》网站11月21日的报道，
+老百姓绝不允许今天你做的，世界经济即将崩溃通缩前、滞涨和通胀的并发前
+The Laobaixing will never allow you to do what you do today, the world economy is about to collapse before deflation, stagflation, and inflation
 
-一家拉比法庭（犹太法学法庭）就向儿童注射新冠疫苗这一有争议的问题作出了裁决。法庭(犹太教法庭)由位于耶路撒冷郊外的马阿勒阿杜明市(*Ma’ale Adumim)*的三人小组组成，由拉比（犹太教律法专家）阿夫拉姆·耶希尔·多伊奇(Avraham Yechiel Deutsch)领导。这家法庭聚集在一起调查儿童接种中共病毒疫苗的问题，并听取了数小时的专家证词，其中一些证词可以在[**此处查看**](https://www.ravhanistar.net/beitdinen)英文版本。
+并发症给美国人民，带来了三不允许的政治灾难
+Complications have brought three forbidden political disasters to the American people
 
-在长达33页的裁决中，拉比们探讨了一些关键问题，并从具有数百年历史的犹太法律先例中汲取了资料。从医学专业知识的问题开始，该裁决调查在为儿童接种中共病毒疫苗时专家的意见是否具有约束力。根据犹太法律，专家是了解疾病的人；这将排除大多数医生和卫生官员，因为他们没有治疗过此类患者。即使是那些熟悉成人疾病的人也承认，他们所知道的会随着时间的推移而发生变化并相互矛盾。
+谁知道？你不知道七哥告诉你
+Who knows? you didn’t know, let me tell you
 
-此外，由于“专家”之间存在意见分歧，因此根据犹太法律原则，不存在“专家意见”。与大多数专家建议接种天花疫苗不同的是，这里有儿童医院的负责人和许多其他人承认他们没有儿童接种中共病毒疫苗的专业知识或经验；所以根据犹太法律，他们不能被视为专家。另一方面，法庭还听取了生产疫苗的顶级专业人士（可能是罗伯特·马龙博士和迈克尔·耶登博士）的证词，并声称他们“没有遇到过这种疫苗对儿童有潜在危险的情况”。
+第一条，油价，永远不接受超过四美金一桶（口误），永远不接受
+The first, oil price, never accept more than four dollars a gal-lon, never accept
 
-没有足够的依据显示为儿童接种疫苗所带来的好处，因为它是新的，并且仍在研究中，而且儿童感染中共病毒的风险是非常小的。
+只要超过四美金了，你就放心吧，美国这个政治就大变了
+As long as it exceeds four dollars, you wait and see that the politics of the United States will change drastically
 
-该裁决解决了为儿童接种疫苗以保护其他易感染人群的伦理问题。“我们还没有找到允许这样做的原因；在某人身上造成一个危险的风险，可能将其他人从可疑的危险中拯救出来。”但是，人们需要清楚和谨慎地对待这一原则，例如，允许捐赠肾脏给需要的人，因为这是直接挽救生命的需求，而不是遥远的可能性。看来，如果对儿童没有好处，就应该禁止接种这种疫苗。
+大家去看现在是多少了，多少钱一桶了（口误），油价
+Let’s see how much it is now, how much is a gallon? and oil price
 
-假设这对儿童有一些好处，法庭写道：“犹太法律中已经明确规定，一个人没有义务将自己置于可能的危险之中，以拯救他人免受某种危险。”对于中共病毒，危险是不确定的，因此没有义务将自己置于可能的危险之中。这种疫苗是否真的降低了对其他人的风险，这个问题并没有具体解决，尽管假设它会，即使那样，也不能强迫别人接种疫苗——如果它不降低对他人的风险，那更是如此。
+第二个，就是买的面包，不能叫食品，
+The second one is the bread, it can’t be called food
 
-法庭承认，已经接种过疫苗的人有明显的不良反应，并听取证词说许多反应没有被报告出来，包括在当地急诊室亲眼目睹的三个例子，医生承认疫苗是原因，但没有被报出来。
+你不能通称食品，也不能通称什么，就是面包价
+You can’t generically refer to food, nor can you generically re-fer to it, it is the bread price
 
-法庭在其（也翻译成了英文）摘要声明中强调：
+面包价只要超过1.2刀，就是那个块的时候，
+If the bread is over $1.2, which is a loaf of bread
 
-*– 其所有证人都是普遍支持不接种中共病毒疫苗的人；*
+一般一块大面包大概是2.8到3.5美金，你只要超过四美金，五美金时，
+Generally, a loaf of bread is about US$2.8 to US$3.5, once the price over four or five dollars
 
-*– 尚未形成真正的专家共识，因为即使是那些支持为儿童接种中共病毒疫苗的人也有些犹豫；*
+老百姓就反了，从历史可以查去，面包啊，咱说的面包不能叫食品
+Laobaixing will be angry, this is all well documented in history, the bread that we cannot call food
 
-*– 中共病毒对儿童健康的威胁相对较低；*
+这是第二个，第三件事情，什么，气
+This is the second, what is the third one? It’s nature gas
 
-*– 未接种疫苗的儿童对其他人的威胁非常小；*
+美国点的气，美国的气，这个国家很厉害的，
+The natural gas in the United States, people are very smart
 
-*– 发生过严重的不良反应并被漏报；*
+只要这个气超过历史上均价的20%，老百姓就不想做饭了
+As long as this gas is more than 20% of the historical average price, the people don’t want to cook
 
-*– 不同意向儿童推荐中共病毒疫苗的专家分为三组：*
+气和什么连着呢，跟电也连着呢，电价也不能上，就简称气电
+What is the connection with natural gas? It connects with elec-tricity that can’t be increased, so it’s abbreviated as gas and electricity
 
-*1）第一组是不推荐，因为害怕出现在成年人中观察到的潜在风险；*
+所以气电，面包，油价只要超过这价格
+So gas and electricity, bread and oil once exceed this bench mark price
 
-*2) 第二组担心儿童面临的风险可能比成人更严重；*
+不管你哪党，咔，走人，而且经济一定是大崩跌
+No matter which party you are, it must step down quickly, and the economy must be collapsing
 
-*3）第三组担心会发生一场可能只在长期内出现的不可逆转的全球灾难。*
+**原视频链接**[:](https://gettr.com/post/phfjqn3e2c)[https://gettr.com/post/phfjqn3e2c](https://gettr.com/post/phfjqn3e2c)
 
-作为底线，裁决避免给每个人一个建议，而是每个人都必须自己权衡各种专家的意见。然而，法庭警告说，给儿童接种疫苗并导致死亡的人应作为谋杀犯对此伤害负责。他不能说“我同意专家的意见，专家说它是一种保护生命的物质，而不是致命的毒药。”
+Date:11/21/2021
+原视频标题: 美国老百姓的三个不允许
+Three of the deplorable in the U.S. are not allowed
+原视频日期：2021/11/19
+原视频链接https://gettr.com/post/phfjqn3e2c
+任务编号：2960
+视频时间段 : 0:00-1:38
 
-**简评：**
+英听校：洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-以色列曾经一度成为全世界中共病毒疫苗接种速度最快的国家之一，《我们的数据世界》(**Our World In Data)**网站数据显示，截止到2021年11月21日，以色列完整接种中共病毒疫苗人数占人口的百分比为62.5%，高于全世界平均水平42.1%。爆料革命的战友都知道，中共病毒是中共政府制造并释放的生物武器，中共病毒疫苗接种运动更是全世界利益集团及黑暗力量毁灭人类的行动。以色列作为一个高接种率的国家，在儿童接种中共病毒疫苗问题上采取的法律行动，说明中共病毒疫苗的危害性正在受到人们的进一步关注，相信这次裁决在一定范围内对于人们抵制中共病毒疫苗接种，会起到积极的推动作用，希望更多的人了解到这个信息，拒绝接种中共病毒疫苗，特别是要拒绝给我们的孩子接种中共病毒疫苗，最大程度上降低中共病毒次生灾难对人类社会造成的危害。
-
-新闻链接：[Jewish court rules: COVID shots for children not obligatory, while one who vaccinates a child and causes death is responsible ‘as a murderer’](https://americasfrontlinedoctors.org/2/frontlinenews/jewish-court-rules-covid-shots-for-children-not-obligatory-while-one-who-vaccinates-a-child-and-causes-death-is-responsible-as-a-murderer/)
-
-***翻译/简评**：Harvey (叶知秋)*
-
-***校对：****小小妹*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

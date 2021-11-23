@@ -2,19 +2,19 @@
 ---
 
 
-## 美海军陆战队创美军最高疫苗接种率记录
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1687064/)
+## 加拿大取消对来往美国边境居民的病毒测试要求
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1687161/)
 
-采编：青青        编译撰稿：苦尽甜来 (文来）
+采编：青青      编译撰稿：苦尽甜来 (文来）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-55-edited.jpg)图片来源：路透社
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/b-4-edited.jpg)图片来源：CBC
 
 
-据【路透社】11月21日报道，美国海军陆战队当天发表声明称，在目前其现役军人中，约有94%已完全或部分接种了“新冠病毒”疫苗。但同时，仍有数千名现役人员将错过截止日期为11月28日前，必须完全接种该疫苗的规定。
+据【路透社】11月21日报道，加拿大联邦政府官员当天宣称：所有进入美国边境购买燃料及其他生活必需品的加拿大人在返回时无需出示“新冠病毒”疫苗阴性检测结果，以此帮助BC省目前受洪水影响的居民。
 
-据悉，目前美国海军的该疫苗接种率最高，约为 97%；其次是空军，约为 96%；陆军则约为92%。而陆军的必须接种截止日期为 12 月 15 日。为此，陆军部长沃姆斯警告称：所有拒绝接种的军人，包括国民警卫队成员，除非获得豁免批准，否则都将被开除军籍。
+对此，加拿大【应急准备部】负责人布莱尔对媒体表示：虽然加拿大最西部的BC省洪水泛滥仍然严重，但随着水位下降以及道路和高速公路的重新开放，洪水所导致的灾情目前已有所改善。但本周该省预计会有更多潜在的雨，雪和暴风等破坏性天气。
 
-然而，俄克拉荷马州州长、共和党人斯蒂特，则继续无视总统拜登政府有关“疫苗强制接种”的行政命令，表示他将不会要求该州的国民警卫队成员接种“新冠病毒”疫苗。
+报道称，上周因罕见暴风雨所导致的洪水和山体滑坡，冲毁了该省大部分的公路和铁路交通，并将加拿大第三大城市温哥华与低陆平原地区及其他省份隔离开来。同时，洪灾还几乎完全阻断了该市所有通往其他城镇的道路。
 
 * * *
 
@@ -22,7 +22,7 @@
 
 原文链接：
 
-[https://www.reuters.com/world/us/marines-track-worst-vaccination-record-us-military-washington-post-2021-11-21/](https://www.reuters.com/world/us/marines-track-worst-vaccination-record-us-military-washington-post-2021-11-21/)
+[https://www.reuters.com/markets/commodities/canada-drop-covid-19-test-requirement-border-residents-going-us-essential-goods-2021-11-21/](https://www.reuters.com/markets/commodities/canada-drop-covid-19-test-requirement-border-residents-going-us-essential-goods-2021-11-21/)
 
  
 

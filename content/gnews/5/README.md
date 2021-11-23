@@ -2,23 +2,49 @@
 ---
 
 
-## 加拿大政府暂无儿童疫苗强制接种计划
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1687074/)
+## 菲律宾总统对中共非法阻拦菲律宾补给船表示憎恨
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1687163/)
 
-编译撰稿：Spirit        校对编辑：硫酸羟氯喹64
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-52.jpg)图片来源：CBC
+作者：东京樱花团 – 在远方
 
 
-据加拿大媒体《CTV新闻》11月20日报道，尽管卫生部此前已批准了对5至11岁年龄段幼儿的首剂“新冠病毒”疫苗注射，但联邦政府目前尚未制定针对加拿大儿童的该疫苗强制接种计划。
 
-据悉，虽然【加拿大卫生部】日前已授权该国使用【辉瑞公司】产两剂量儿童疫苗，但部长杜克洛表示：当局暂时不会对儿童实施与成人同样的该疫苗接种规定，而且对任何年龄段儿童的接种或测试规则都没有变化。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-报道指出，负责向联邦政府提出该疫苗接种建议的【国家免疫咨询委员会】则声称：由于目前“幼儿疫苗接种政策”的不确定性，当局应尊重儿童及其父母和监护人是否接种该疫苗的决定。同时，最新民调显示，约70%的加拿大家长表示不愿给孩子接种该疫苗，以避免其潜在的健康伤害。
 
-原文链接：
 
-[https://www.ctvnews.ca/health/coronavirus/feds-have-no-plans-to-extend-vaccine-mandate-to-kids-duclos-1.5673952](https://www.ctvnews.ca/health/coronavirus/feds-have-no-plans-to-extend-vaccine-mandate-to-kids-duclos-1.5673952)
+当地时间11月22日，在东盟与中共建立对话关系30周年峰会上，菲律宾总统杜特尔特对中共海警船使用水炮对付菲律宾补给船的事件表示憎恨。他强调，这会对菲律宾与中共的关系造成影响，而法治才是解决问题的唯一途径。
+
+11月16日，中共非法阻拦了菲律宾补给船。次日，美国国务院发言人普赖斯警告说，任何针对菲律宾公共船只的“武装攻击”都会导致1951年美菲条约的启动，即美国有保护盟友菲律宾的义务。
+
+据了解，本周菲律宾军方将恢复向驻守在阿云金暗沙的菲律宾军人运送物资。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3.1-6.jpg)
+参考链接：
+[菲律宾总统“憎恨”中国海警船射水炮 防长指示补给船再出发](https://www.voachinese.com/a/philippines-south-china-sea-resupply-20211122/6322648.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：飞虹
+编辑：木白
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

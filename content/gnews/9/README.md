@@ -2,38 +2,54 @@
 ---
 
 
-## 秘翻在线：《周刊》杂志无耻抹黑、攻击班农先生
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1687034/)
+## 参议员瑞克·斯科特： 美国政府必须促使国际奥委会 和国际社会把2022年冬奥会撤出 共产中国
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1687148/)
 
-#### 撰稿：坤霆
+参议员瑞克·斯科特： 我同意坎特[@EnesKanter](https://twitter.com/EnesKanter)。我已经说了两年了，美国政府必须促使国际奥委会[@IOC](https://twitter.com/ioc) 和国际社会把2022年冬奥会撤出 [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) ，搬到尊重人权的国家去。美国运动员和所有参与者的安全都在危险之中。 【转华尔街日报推，坎特呼吁为了彭帅向奥委会施压把冬奥会搬出中共国】
 
-#### 责编：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-588.png)
-我们来看看所谓主流媒体如何无耻的抹黑班农先生的。
 
-以下是2021年11月21日，本期《周刊》杂志的编辑信：
 
-*嘲笑史蒂夫**–**班农。来吧。嘲笑他灰头土脸、不修边幅的厨房打扮和他的多层**XXL**礼服衬衫。对这个食人魔的虚荣言论翻白眼。**“**我永远不会退缩，**“**班农本周因藐视众议院特别委员会**1**月**6**日的传票而出庭受审后说。**“**我们要打倒拜登政权。**”**我们是谁？十年前，班农通过欣欣向荣的种族主义、厌恶女性和狂热的反移民网站布莱特巴特，帮助发起和塑造了民粹主义、本土主义运动。**2015**年，班农将这一运动与纽约市一位名叫唐纳德**–**川普**的房地产大亨联系起来。他是* *“**我们的一个钝器**“**，班农解释说。*
+> Agreed, [@EnesKanter](https://twitter.com/EnesKanter?ref_src=twsrc%5Etfw). I’ve been saying this for two years: the U.S. gov’t must urge the [@IOC](https://twitter.com/ioc?ref_src=twsrc%5Etfw) & the world to move the 2022 Olympics out of Communist China & to a nation that respects human rights. The safety of U.S. athletes & all in the Games is at stake. [#WhereIsPengShuai](https://twitter.com/hashtag/WhereIsPengShuai?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/i8f054myST](https://t.co/i8f054myST)
+> — Rick Scott (@SenRickScott) [November 22, 2021](https://twitter.com/SenRickScott/status/1462788783565377542?ref_src=twsrc%5Etfw)
 
-*由于他在推动**川普**入主白宫方面的核心作用，**作为奖励，**班农得到了**白宫**西翼首席战略师的工作；**不久**班农因涉嫌失败的边境墙项目**的**欺诈而被起诉，**后**得到**川普**的赦免，**并**在**2020**年选举后回到了**川普**的圈子。他加入了一个由疯子和机会主义者组成的* *“**作战室**“**，他们告诉这位受辱的总统，是的，选举被偷了**，结果是有可能推翻的**。在**1**月**5**日的播客中，班农建议他的民粹主义军队**：**“**系好安全带**。所有的地狱都将崩溃。**”**对于第二天对国会大厦的暴力袭击，他知道什么**——**还有谁知道？众议院委员会希望在宣誓后问他这些问题。自然，班农拒绝作证。有**民众**的支持，他不需要向精英们愚蠢的**法律法规**和传票低头。**“**我们正在接管学校董事会，**“**班农**挑衅**说。**“**我们正在用选区委员会的策略接管共和党。**记住了**！**” 1**月**6**日只是第一场小规模冲突；战争才刚刚开始。**“**做好准备**，**“**班农在法院外进行现场直播时**对民众说：**“**我们要开始**反攻**了。**”*
 
-作者开篇就嘲笑班农先生的衣着和长相，并怂恿读者也去嘲笑班农先生，这是典型的仇恨散播者，是对班农先生恶毒的人身攻击。对个人形象品味肆无忌惮地公开诋毁，就不怕惹官司吗？没有背后黑暗力量的支持，一个杂志的记者何以这么嚣张？
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-589.png)这是作者威廉姆·发克（William Falk）推特上的照片，似乎很享受当狗腿子的感觉
+参议员玛莎·布莱克本： 当涉及到保护被 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 袭击并侵犯的人士时，自由主义活动家们无处可寻。 【视频中玛莎批自由主义者其实是有选择性的，并不会为所有人发声，尤其像 [#彭帅](https://twitter.com/hashtag/%E5%BD%AD%E5%B8%85?src=hashtag_click) 被 [#张高丽](https://twitter.com/hashtag/%E5%BC%A0%E9%AB%98%E4%B8%BD?src=hashtag_click) 性侵这样的大事，他们却一直装傻充愣】
 
-第二段开始作者又强调了对班农先生莫须有的边境墙的起诉，班农并没有被定罪，只有有罪和无罪两个选项，没有中间地带。而且从始至终边境墙就是一个非常成功和对美国有利的项目。 作者只是想误导读者，对班农产生不好的印象。
 
-发克又自己定义“战斗室“是由疯子和机会主义加入的，战斗室在美国的收视率一直名列前茅，已然成为对抗CCP和深层势力最有力的武器，左疯自然对其恨之入骨。
 
-最后发克引用了班农先生在1月6日之前说过的话，这些或许能误导那些从不关注“作战室”的读者，但战友们都知道作者在断章取义，法庭都还没裁决出来的东西发克在这里瞎猜什么？这就不要脸媒体一直抹黑郭先生手法。
+> Liberal activists are nowhere to be seen when it comes to defending someone assaulted by the CCP. [pic.twitter.com/8YXg7PGcHc](https://t.co/8YXg7PGcHc)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 23, 2021](https://twitter.com/MarshaBlackburn/status/1462939815243100162?ref_src=twsrc%5Etfw)
 
-对于这种虚假而且带有仇恨的误导性的文章，每次战友们都要狠狠的反击，戳穿他们的假丑恶，直到下次再要当狗腿子的时候想都不敢想。
 
-让我们一起喊他的名字发克——fuck！fuck！fuck！！
 
-原文链接：
+前国务卿迈克·蓬佩奥： 拜登总统[@POTUS](https://twitter.com/POTUS) 仅仅“考虑”抵制北京奥运会是不够的。 参加比赛将会是对习近平和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 持续进行的人权暴行的奖励。 答案很简单： [#抵制北京奥运会](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A?src=hashtag_click)[#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hashtag_click)。
 
-[Bannon’s radical vision](https://theweek.com/politics/1007243/tk-bill)
+
+
+> It is not enough for [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) to “consider” boycotting the Beijing Olympics. Participating in the games would reward Xi Jinping & the CCP for their ongoing human rights atrocities. The answer is simple: [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw).
+> — Mike Pompeo (@mikepompeo) [November 22, 2021](https://twitter.com/mikepompeo/status/1462899838157307904?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰德·克鲁兹： 厚颜无耻的虐待操控。 正如共产分子一直要求的那样，[#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 告诉你不要相信自己的眼睛和耳朵。 国际女子网球协会 [@WTA](https://twitter.com/WTA) 因其坚定支持和要求真相而应收到巨大赞誉。 [#彭帅在哪里](https://twitter.com/hashtag/%E5%BD%AD%E5%B8%85%E5%9C%A8%E5%93%AA%E9%87%8C?src=hashtag_click) 【转华盛顿监察员：中国网球选手彭帅再次出现在视频中，国际女子网球协会认为不能令人信服】
+
+
+
+> Brazen gaslighting. Like Communists always demand, the Chinese Communist Party is telling you not to believe your own eyes and ears. The [@WTA](https://twitter.com/WTA?ref_src=twsrc%5Etfw) deserves enormous credit for standing strong and demanding the truth. [#WhereIsPengShuai](https://twitter.com/hashtag/WhereIsPengShuai?src=hash&amp;ref_src=twsrc%5Etfw)
+>  [https://t.co/YPYNH8qvZd](https://t.co/YPYNH8qvZd)
+> — Senator Ted Cruz (@SenTedCruz) [November 22, 2021](https://twitter.com/SenTedCruz/status/1462823454382698496?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： [@WTA](https://twitter.com/WTA)真棒！更多的公司应该注意并跟随他们的步伐，勇敢地面对 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的恶劣行为。 【转WTA主席兼首席执行官史蒂夫·西蒙的声明，大意是虽然 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 让彭帅露脸，但仍不能证明她是否自由，是否能够在没有胁迫或外部干扰的情况下自行做出决定和采取行动。】
+
+
+
+> Well done, [@WTA](https://twitter.com/WTA?ref_src=twsrc%5Etfw). More companies should take note and follow their lead in standing up to Communist China’s egregious actions. [https://t.co/wh8UzCVmXK](https://t.co/wh8UzCVmXK)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 21, 2021](https://twitter.com/MarshaBlackburn/status/1462462950623567873?ref_src=twsrc%5Etfw)
+
+
 
  
 

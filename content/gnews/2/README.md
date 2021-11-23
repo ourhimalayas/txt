@@ -2,51 +2,27 @@
 ---
 
 
-## 接种辉瑞疫苗最初两个半个月，美国收到近16万例不良反应报告
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1687120/)
+## 澳大利亚军队强行转移疫区民众至集中隔离营
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1687200/)
 
-作者：纽约香草山医疗部 – 云豹
+原文采编：文莱   编译撰稿：文所未闻
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/b-6-edited.jpg)图片来源：零对冲
 
 
+据知名自媒体《零对冲》11月21日报道，地处澳大利亚北部的本杰里社区，因日前在发现9起“新冠病毒”感染病例而被当局完全封锁之后，澳大利亚军队已开始强行将北领地居民转移到位于达尔文地区的霍华德泉检疫隔离营。
 
-近日，美国律师阿隆·喜利收到FDA提供的部分档案。其中显示，截至2021年2月28日，辉瑞疫苗开始注射的最初两个半个月内，总共收到15万8千893例不良反应。其中有1223例是死亡，520例是后遗症。
+对此，北领地首席部长冈纳称，该社区所有居民除了医疗、紧急情况或法律理由外，均不允许擅自离家。并同时表示，会有更多病毒检测呈阳性者以及与该病毒感染患者曾密切接触的人将被转移到霍华德隔离区。
 
-女性出现不良反应的次数是男性的3.25倍。出现最大量不良反应的人群是在31到50岁。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-9.jpg)
-最常出现不良反应的身体部位，依次是神经系统，肌肉骨骼结缔组织系统，肠胃系统，呼吸系统，皮肤及皮下组织。
+报道称，北领地辖区内居民大多是澳大利亚当地的原著民。由于土著社区人口居住过度拥挤，因此或直接导致了本次严重“新冠病毒”疫情的迅速蔓延。
 
-出现比较多的不良反应症状有淋巴结病变、心跳加速、恶心、发烧、冷颤、呼吸困难、皮肤搔痒红疹等。
+* * *
 
-参考链接：
-[FDA Records Subpoenaed By Attorney Shows Over 158,000 Adverse “Events” In First 2.5 Months of COVID Shot Trials](https://www.redvoicemedia.com/2021/11/fda-records-subpoenaed-by-attorney-shows-over-158000-adverse-events-in-first-2-5-months-of-covid-shot-trials/)
+校对编辑，发稿：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+原文链接：
 
-总编：飞虹
-编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[https://www.zerohedge.com/covid-19/australian-army-begins-transferring-covid-positive-cases-contacts-quarantine-camps](https://www.zerohedge.com/covid-19/australian-army-begins-transferring-covid-positive-cases-contacts-quarantine-camps)
 
  
 
