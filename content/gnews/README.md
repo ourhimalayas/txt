@@ -126,68 +126,68 @@
 ### [《在川普时代》记录2019年G20：残暴习独裁之全副嘴脸](/content/gnews/37/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [联合国：飙升的运费将全球通胀推高1.5%](/content/gnews/38/README.md)
+### [不同于欧美，非洲疫苗接种率低于6%，却避免了新冠灾难](/content/gnews/38/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共无法兑现多国借款，多数国家转向欲建交台湾、新中国联邦](/content/gnews/39/README.md)
+### [联合国：飙升的运费将全球通胀推高1.5%](/content/gnews/39/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共无法兑现多国借款，多数国家转向欲建交台湾、新中国联邦](/content/gnews/40/README.md)
  ` YALUN 亚伦`
 
-### [2021年11月22日文贵先生盖特直播大雨围城速记](/content/gnews/40/README.md)
+### [2021年11月22日文贵先生盖特直播大雨围城速记](/content/gnews/41/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [GTV新闻访谈简报|2021年11月22日早](/content/gnews/41/README.md)
+### [GTV新闻访谈简报|2021年11月22日早](/content/gnews/42/README.md)
  ` 纽约香草山MOS01`
 
-### [纳瓦罗谈拜习视频会：中共正要摧毁、压倒、接管美国](/content/gnews/42/README.md)
+### [纳瓦罗谈拜习视频会：中共正要摧毁、压倒、接管美国](/content/gnews/43/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [喜马拉雅币一周分析](/content/gnews/43/README.md)
+### [喜马拉雅币一周分析](/content/gnews/44/README.md)
  ` GTV新闻访谈`
 
-### [11/20/2021【1120三周年纪念】班农先生为解救中国人民付出无尽心血](/content/gnews/44/README.md)
+### [11/20/2021【1120三周年纪念】班农先生为解救中国人民付出无尽心血](/content/gnews/45/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [大量心梗，中共国疫苗灾难蔓延](/content/gnews/45/README.md)
+### [大量心梗，中共国疫苗灾难蔓延](/content/gnews/46/README.md)
  ` GTV新闻访谈`
 
-### [美国CDC 承认中共病毒疫苗有导致心肌炎和心包炎的风险](/content/gnews/46/README.md)
+### [美国CDC 承认中共病毒疫苗有导致心肌炎和心包炎的风险](/content/gnews/47/README.md)
  ` GTV新闻访谈`
 
-### [新中国联邦需要培养更多人才](/content/gnews/47/README.md)
+### [新中国联邦需要培养更多人才](/content/gnews/48/README.md)
  ` GTV新闻访谈`
 
-### [中国人的优秀品质最终会消灭中共](/content/gnews/48/README.md)
+### [中国人的优秀品质最终会消灭中共](/content/gnews/49/README.md)
  ` GTV新闻访谈`
 
-### [回避与中共领导线下会议之后，日本首相将会晤越南总理](/content/gnews/49/README.md)
+### [回避与中共领导线下会议之后，日本首相将会晤越南总理](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [立陶宛设立台湾代表处或触发多米诺效应](/content/gnews/50/README.md)
+### [立陶宛设立台湾代表处或触发多米诺效应](/content/gnews/51/README.md)
  ` 波士顿五月花农场`
 
-### [11/22/2021国际财经快讯：社会政策支出方案中的减税措施利于富人；萨尔瓦多将建造“比特币城”](/content/gnews/51/README.md)
+### [11/22/2021国际财经快讯：社会政策支出方案中的减税措施利于富人；萨尔瓦多将建造“比特币城”](/content/gnews/52/README.md)
  ` 秘密翻译组金融团队`
 
-### [数字人民币笑话](/content/gnews/52/README.md)
+### [数字人民币笑话](/content/gnews/53/README.md)
  ` 骄子`
 
-### [中共挥舞“共同富裕”镰刀，网红主播被罚款9322.56万](/content/gnews/53/README.md)
+### [中共挥舞“共同富裕”镰刀，网红主播被罚款9322.56万](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [老百姓又被平均了！2020年中共国人均存款增加约1万元，11个城市人均存款超10万元？](/content/gnews/54/README.md)
+### [老百姓又被平均了！2020年中共国人均存款增加约1万元，11个城市人均存款超10万元？](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [女子家人被中共迫害找法院求助，却被法院领导性侵](/content/gnews/55/README.md)
+### [女子家人被中共迫害找法院求助，却被法院领导性侵](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [德国医院院长因抗拒政府疫苗接种命令而自杀身亡](/content/gnews/56/README.md)
+### [德国医院院长因抗拒政府疫苗接种命令而自杀身亡](/content/gnews/57/README.md)
  ` 日本东京方舟农场`
 
-### [日本多地民众游行抗议政府以疫情为由实施各项限制措施](/content/gnews/57/README.md)
+### [日本多地民众游行抗议政府以疫情为由实施各项限制措施](/content/gnews/58/README.md)
  ` 日本东京方舟农场`
-
-### [11/20/2021【1120三周年纪念】班农先生：法治基金虽然还很年轻，但中共及其同伙已魂飞胆丧，新中国联邦注定会赢](/content/gnews/58/README.md)
- ` 秘密翻译组-北美组`
 
 ### [背叛 betray](/content/gnews/59/README.md)
  ` 骄子`
