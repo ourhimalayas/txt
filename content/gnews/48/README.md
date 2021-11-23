@@ -2,49 +2,26 @@
 ---
 
 
-## 菲律宾总统对中共非法阻拦菲律宾补给船表示憎恨
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1687163/)
+## 澳大利亚军队开始将中共病毒阳性病例和接触者转移到隔离营
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1687228/)
 
-作者：东京樱花团 – 在远方
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-102.png)
+图片来源：网络截图
 
+据零对冲11月22日报道，在北领地的宾杰里（Binjari）社区发现9个新的中共病毒病例后，澳大利亚军队已开始将该地区的居民用军用卡车强行转移到位于达尔文的霍华德温泉（Howard Springs）的隔离营。此举是在星期六晚上在宾杰里和附近的罗克洞社区实行严格封锁后进行的。
 
+北领地首席部长迈克尔·冈纳说宾杰里和罗克洞的居民不再有五个理由离开他们的家。他指的是国家允许的五个避免封锁的理由（购买食物和用品、锻炼不超过两个小时、照顾或护理、工作或教育（如果不能在家里完成），以及在最近的地方接种疫苗）。“他们只能因医疗、紧急情况或法律要求而离开。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+他说可能还会有更多的阳性病例的居民或是密切接触者被转移到霍华德温泉，现在已经确定了38名来自宾杰里的密切接触者，但这个数字还会上升，这38人现在正被转移，此次转移得到了20名澳大利亚国防军人员以及军队卡车的支持。联邦政府已经做好准备为北领地提供额外的资源帮助。
 
+北领地地区有很大比例的澳大利亚土著人，据《大纪元时报》报道，根据澳大利亚卫生和福利研究所的数据，在2018-19年度，几乎五分之一的澳大利亚原住民生活在过度拥挤的住宅中（18%），而非澳大利亚原住民的比例为5%。北领地参议员马拉迪里·麦卡锡（Malarndirri McCarthy）告诉ABC，土著社区的过度拥挤是一个巨大的问题。
 
+警察局长Jamie Chalkner告诉NT新闻，他认为这种强制转移可能会对人们的精神健康以及他们的总体福祉产生一些影响。
 
-当地时间11月22日，在东盟与中共建立对话关系30周年峰会上，菲律宾总统杜特尔特对中共海警船使用水炮对付菲律宾补给船的事件表示憎恨。他强调，这会对菲律宾与中共的关系造成影响，而法治才是解决问题的唯一途径。
+在宾杰里的9个新病例中，4个女性，5个男性，包括一个78岁的妇女，她已被送往达尔文医院。
 
-11月16日，中共非法阻拦了菲律宾补给船。次日，美国国务院发言人普赖斯警告说，任何针对菲律宾公共船只的“武装攻击”都会导致1951年美菲条约的启动，即美国有保护盟友菲律宾的义务。
-
-据了解，本周菲律宾军方将恢复向驻守在阿云金暗沙的菲律宾军人运送物资。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3.1-6.jpg)
-参考链接：
-[菲律宾总统“憎恨”中国海警船射水炮 防长指示补给船再出发](https://www.voachinese.com/a/philippines-south-china-sea-resupply-20211122/6322648.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：飞虹
-编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+新闻来源：[Australian Army Begins Transferring COVID-Positive Cases, Contacts To Quarantine Camps](https://www.zerohedge.com/covid-19/australian-army-begins-transferring-covid-positive-cases-contacts-quarantine-camps)
 
  
 

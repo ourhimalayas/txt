@@ -2,35 +2,40 @@
 ---
 
 
-## 助纣为虐！百度参与开发中共病毒疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688210/)
+## 电子礼品卡领先平台GiftChill接受柴犬币作为付款方式
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1688311/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-159.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fplib.aastocks.com%2Faafnnews%2Fimage%2Fmedialib%2F20180608112436030_l.jpg&amp;imgrefurl=http%3A%2F%2Fwww.aastocks.com%2Ftc%2Fstocks%2Fnews%2Faafn-con%2Fnow.1144816%2Flatest-news&amp;tbnid=9vja9m5n85Cw-M&amp;vet=12ahUKEwjwgpTxoq70AhXUGCsKHR5iDPwQMygBegUIARCuAQ..i&amp;docid=7QsGJCcIrT9gGM&amp;w=850&amp;h=478&amp;itg=1&amp;q=%E7%99%BE%E5%BA%A6%E5%90%88%E4%BD%9C%E7%96%AB%E8%8B%97&amp;ved=2ahUKEwjwgpTxoq70AhXUGCsKHR5iDPwQMygBegUIARCuAQ)
-百度周一宣布，已将其信使RNA(mRNA)序列设计算法授权给法国赛诺菲[SASY.PA](https://cn.reuters.com/companies/SASY.PA)，用于疫苗和治疗产品的设计。这是百度首次与全球主要制药商达成此类商业协议。
+【简评】***继比特币、狗狗币之后，柴犬币又于近期突然爆火，柴犬币即加密货币Shib，诞生于2020年8月，其与之前的狗狗币、ELON币、AKITA币一样都属于“山寨货币”，这些货币均将其视为去中心化的自发社区建设的实验。据悉，一位加密货币投资者在去年上市当天，购买了价值8000美元的柴犬币，如今变成了大约 57亿美元。不过比较悲剧的是，该钱包所在的Coinbase平台每天只有50，000美元的提款限额。所以把这些钱提完将需要114，000天，也就是312年。也许，这位投资者若想尽快变现，只能天天泡在GiftChill平台或者去AMC看电影了。***
 
-在中共病毒疫情爆发之前，赛诺菲是世界上最大的疫苗制造商之一，但在针对中共病毒病毒开发mRNA疫苗的竞争中被BioNTech [BNTX.O](https://cn.reuters.com/companies/BNTX.O)/辉瑞[PFE.N](https://cn.reuters.com/companies/PFE.N)和莫德纳(Moderna)[MRNA.O](https://cn.reuters.com/companies/MRNA.O)击败。
+据《环球电讯社》2021年11月20日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-182.png)GiftChill接受柴犬币作为付款方式。图片来源：环球电讯社
+韩国任实郡-2021年11月20日（环球电讯社）—电子礼品卡领先平台GiftChill接受柴犬币作为付款方式，这对柴犬币的投资者来说是个好消息。GiftChill已经宣布未来几天将在其平台上增加柴犬加密货币作为支付方式。这将使柴犬币投资者拥有更多的加密货币购买力。在这一消息宣布之前，柴犬币的竞争对手狗狗币（Dogecoin）也采取了类似的行动。
 
-今年9月，赛诺菲停止了自己的mRNA中共病毒疫苗试验，转而专注于与葛兰素史克(GlaxoSmithKline)[GSK.L](https://cn.reuters.com/companies/GSK.L)的合作，将一款重组蛋白候选中共病毒疫苗推向市场。赛诺菲表示，它将把mRNA资源集中在其他需求严重未得到满足的传染病和治疗方法上。
+柴犬币是一种可以与以太坊兼容的代币，是狗狗币的替代品。自2021年1月下旬站稳脚跟后，这种加密货币的涨幅超过了数千个百分点，今年以来已经获得了诸多人气。市场猜测这种加密货币显示了巨大的市场前景，预计流通量将很快上升。GiftChill期待增加柴犬币作为支付方式，为投资者提供更好的电子礼品卡支付选择。
 
-百度领导该项目的科学家黄亮表示，当赛诺菲使用百度算法发现的任何基于mRNA的疗法或候选疫苗进入临床试验时，百度将获得里程碑付款。“该协议包括里程碑付款的事实表明，[赛诺菲]有很大信心将使用百度算法开发的候选药物投入临床试验和市场，”黄亮告诉路透。他不愿透露该交易的规模。
+为什么在GiftChill平台上使用柴犬币支付方式？
+以太坊区块链为各种代币铺平了道路，每种代币都提供了自己的特定效用。柴犬币是以太坊网络上使用的最引人注目的货币之一。它建立在像狗狗币这样以犬类为灵感的模因币(meme coins)的坚实基础上，成为一种令人垂涎的加密资产。
 
-基于mRNA的疫苗包含mRNA序列，该序列指示人体细胞产生可以刺激免疫系统发挥作用的蛋白质。黄亮说，百度的算法旨在提供大量优化的mRNA序列，并且有早期迹象表明它可能比标准算法更适合疫苗和治疗药物的研发。
+自从引入狗狗币支付后，GiftChill注意到由于这种方式的灵活性，它们的销售量大幅增加。因为投资者对使用更灵活、更便宜的支付方式感兴趣，GiftChill正计划挖掘一个更好的机会（柴犬币）。这种方法与以太坊的兼容性将允许他们的客户使用像ShibaSwap这样的应用程序，在没有中介的情况下进行代币抵押和交易。
 
-特别是在中共候选疫苗方面，根据实验室研究和动物测试，那些包含由百度算法所生成mRNA序列的疫苗更稳定，并且与基于标准算法的基础注射剂量相比，需要的剂量似乎更小。
+在GiftChill中使用柴犬币支付方式的好处
+手续费
+GiftChill期待添加柴犬币作为支付方式的关键优势是降低客户的交易费用。由于柴犬币与以太坊兼容，所以支付是在以太坊上进行的，这大大减少了交易费用。预计在不久的将来，向以太坊2.0的转变，将进一步降低网络上的交易成本，促使更多的人购买和使用柴犬币作为他们的电子礼品的支付方式。
 
-截至美东时间11月22日下午6:39，全球的中共病毒病例总数超过2.58亿例，死亡人数超过515万人。然而中国共产党向全世界释放的这个超限生物武器病毒，其目的就是让全世界接种中共病毒疫苗，这个疫苗不但不能阻止被中共病毒感染，而且随着全球接种率的持续升高，疫苗带来的灾难已经超过病毒本身，无数因中共病毒疫苗副作用造成的死亡和疾病出现在世界各地，疫苗真相被像百度着这样的大科技公司屏蔽禁声。
+无边界交易
+柴犬币交易方式的整合将促进国际转账。大多数公司目前使用银行来支付海外承包商和供应商之间的交易。然而，这种支付方式浪费了大量的时间，并涉及不必要的文书工作。只要有互联网，这种柴犬式支付将在几分钟内完成来自世界各地的交易。GiftChill把这种交易方式作为一个千载难逢的商业机会，他们不敢拒绝柴犬币的投资者和持有者，并保证他们能从GiftChill获得打折礼物。
+可以通过[\[email protected\]](/cdn-cgi/l/email-protection) 与GiftChill联系
 
-百度常年来作为中共言论审查的帮凶和打手，如今又参与到了邪恶的中共病毒疫苗研发中来，必定是再一次助纣为虐，不是为了人类的健康福祉着想，而是帮助中共继续残害和奴役全世界人民。
+原文链接：[https://www.globenewswire.com/news-release/2021/11/21/2338578/0/en/E-Gift-Cards-Leading-Platform-GiftChill-to-Accept-Shiba-Inu-as-Payment.html](https://www.globenewswire.com/news-release/2021/11/21/2338578/0/en/E-Gift-Cards-Leading-Platform-GiftChill-to-Accept-Shiba-Inu-as-Payment.html)
 
-消息来源:
+翻译：洛杉矶盘古农场 – KY
+校对&评论：洛杉矶盘古农场 – 比格渣餐厅老板の娘
+编辑：洛杉矶盘古农场 – 小象の奶瓶
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[百度与法国赛诺菲合作 将其算法用于mRNA疫苗及治疗产品的开发](https://cn.reuters.com/article/baidu-sanofi-cooperation-medical-1122-mo-idCNKBS2I802O?il=0)
-
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
-#  
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
