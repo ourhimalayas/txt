@@ -2,22 +2,34 @@
 ---
 
 
-## 秘翻在线：苏格兰的疫苗护照APP向亚马逊等企业分享用户数据
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1688430/)
+## “拜习会”前中美“互释”公民
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1688602/)
 
-#### 翻译撰稿：zzballack
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/as65d4f65sg56516u5661u523gd23fs23d.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7C1567AA-D769-4C3C-A917-A925DC81D50C.jpeg)（图片来自美联社）
 
-据《The Post Millennial》11月22日报道，英国国民医疗服务体系 (NHS)开发的疫苗护照APP一直备受争议。之前曾揭露过苏格兰政府一直在与许多私营企业分享疫苗护照APP用户的个人数据，下载和使用该APP的人在任何时候都没有被告知他们的数据将被共享。
+《路透社》近日报道称，在美国总统拜登和中共领导人习近平举行视频峰会之前，美国遣返了七名被判有罪的中共国公民，而中共国方面则解除了一名美籍华人的离境限制。
 
-苏格兰《每日纪事报》（Daily Record）今年10月曾报道说：“疫苗护照APP用户以二维码形式储存的个人医疗信息以及其它数据被共享给了亚马逊、微软、ServiceNow、皇家邮政 (Royal Mail) 和一家AI面部识别公司等企业。”
+报道称，在美籍华人丹尼尔·徐（音）被中共解除离境限制的同时，美国也遣返了七名被判有罪的中共国公民，包括中国银行某分行前行长许国俊、被判犯有诈骗罪的两人、因拍摄国防设施而被定罪的两人，以及2019年试图闯入前总统川普的海湖庄园的两名女性。
 
-一个名为“自由（Liberty）”的组织的政策和活动部门负责人山姆·格兰特（Sam Grant）对此评论说：“疫苗护照创造了一个两级社会，在苏格兰已经有许多人被胁迫获得疫苗护照，以便参加活动和获取社会的某些服务。令人深感担忧的是，疫苗护照中的个人数据已经与第三方共享，但是人们没有退出的选择，甚至没有被告知正在发生的这种情况。这只会进一步加深人们对疫苗护照的广泛关注。我们都希望保持彼此的安全，自由组织一直支持采取合理和恰当的措施来遏制新冠疫情，但疫苗护照并不是一个解决方案。”
+获准离开的丹尼尔·徐在中共国未曾被定罪，但四年多来一直被限制离境。徐去年告诉《美联社》，自 2017 年以来，中共当局一直将他扣为人质，以此要挟他的父亲回到中共国并面对挪用公款的指控。《美联社》的报道称，徐先生的父亲徐维铭否认了这些指控。
 
-苏格兰自由民主党（Liberal Democrat party）的领袖亚历克斯·科尔-汉密尔顿 (Alex Cole-Hamilton) 对此表示赞同，他说：“我们已经多次警告政府，这款疫苗护照APP的数据保护几乎形同虚设，一个简单的截图就足以绕过该系统的任何安全措施。每个人都有医疗隐私权，任何人都不应该向保镖或一些私人公司提供他们的部分医疗记录，这实在是太荒谬了。”
+丹尼尔·徐已于11月15日晚回到美国，那时恰逢拜登总统与中共领导人习近平正在举行视频会议。对此，美国的一位政府官员否认这是事关“拜习会”两国条件交换的一部分。而中（共）国驻华盛顿大使馆没有立即发表评论。
 
-新闻来源：[**REVEALED: Scottish Vax passport app has shared user data with post office, Amazon, others**](https://thepostmillennial.com/scottish-vax-app-shared-data)
+*参考链接：*
+
+1. [*https://www.reuters.com/world/exclusive-american-barred-leaving-china-returned-us-before-biden-xi-meeting-2021-11-18/*](https://www.reuters.com/world/exclusive-american-barred-leaving-china-returned-us-before-biden-xi-meeting-2021-11-18/)
+2. [*https://cn.nytimes.com/china/20211122/us-china-exit-ban-deport/?utm\_source=top10-in-article&utm\_medium=articlepage&utm\_campaign=web*](https://cn.nytimes.com/china/20211122/us-china-exit-ban-deport/?utm_source=top10-in-article&amp;utm_medium=articlepage&amp;utm_campaign=web)
+
+
+* * *
+
+*素材采编：幽蘭自得*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
 
  
 

@@ -2,29 +2,29 @@
 ---
 
 
-## 中共国第一家沃尔玛超市即将关闭
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688636/)
+## 中共国出生率降至1978年以来最低水平
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1688732/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-40.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.corporate.walmart.com%2Fdims4%2FWMT%2F5c437f5%2F2147483647%2Fcrop%2F5760x3237%252B0%252B593%2Fresize%2F1000x562%253E%2Fquality%2F90%2F%3Furl%3Dhttps%253A%252F%252Fcdn.corporate.walmart.com%252F80%252Faa%252F3b532f56400d96b21d13f518d076%252Fcfs-2037-walmart-china-lead-28.jpg&amp;imgrefurl=http%3A%2F%2Fwww.walmartfoodsafetychina.com%2Fabout-us%2Fabout-walmart-china&amp;tbnid=hWUuNsBriJvioM&amp;vet=12ahUKEwjt4buuta70AhVZmUsFHVCCBtUQMygEegUIARCpAQ..i&amp;docid=3_hMceD88MyCuM&amp;w=1000&amp;h=562&amp;q=%E6%B2%83%E5%B0%94%E7%8E%9B&amp;ved=2ahUKEwjt4buuta70AhVZmUsFHVCCBtUQMygEegUIARCpAQ)
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
 
-11月23日新京报讯报道，位于深圳的中国大陆第一家沃尔玛即将停业，中国大陆第一家沃尔玛门店即将关闭一事，新京报记者联系沃尔玛相关负责人。对方回应称，因业主即将对物业进行整体升级改造，位于深圳市罗湖区洪湖路湖景花园的沃尔玛门店将于2021年12月7日起停止营业。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/das-ende-der-seit-1979.jpg)
 
-在过去近6年里，沃尔玛在国内的门店已经关闭近80家。其中，今年8月10日，北京沃尔玛朝阳店停止营业。据当时的公告显示沃尔玛此店关闭后，北京还有10家沃尔玛门店，其中包括沃尔玛购物广场7家、山姆会员店3家。
 
-除沃尔玛之外，今年4月，在济南经营17年的家乐福解放桥店悄然闭店。今年5月，沈阳家乐福哈尔滨路店（惠工店）宣布于5月31日起停止经营，家乐福将关闭国内近一半的传统超市。
+图片来源： FAZ
 
-在过去的4年时间沃尔玛关闭80家门店，位于深圳洪湖的这家沃尔玛，诞生于1996年，是深圳乃至中共国内地第一家沃尔玛超市。历经25年，见证了中共国翻腾腹地的变化，从诞生到如今宣布关闭，是一个时代的结束。
+中共国的出生率已降至 1970 年代后期以来的最低水平。北京统计局还含糊地解释了去年因新冠大流行而导致出生人数减少 18% 至 1200 万的情况。但专家们认为，中共国的住房、教育和医疗费用高昂以及结婚意愿下降是令人担忧的发展的主要原因。
 
-信息来源：
+正如统计学家在他们的新年鉴中所报告的那样，这个人口最多的国家的出生率首次回落到个位数范围内，为每 1000 人中有 8.52 个新生儿，这是自 1978 年以来的最低水平。由于出生率下降和死亡人数稳定，数十亿人口正在走向零增长。
 
-[中国大陆第一家沃尔玛12月关门，回应称因业主对物业升级改造](https://ms.mbd.baidu.com/r/wRnmovGRDq?f=cp&amp;rs=3546228816&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=bcf134246174d357)
+北京人民大学宋健教授说：“如果这种趋势继续下去，几年后我们的人口就会减少。” “虽然年轻人口可能萎缩得更快，但老龄化问题会恶化，这将损害经济和社会发展。”
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
+统计局给出的2000年至2010年人口增长率为0.53%，2000年至2010年为0.57%，育龄妇女生育率降至1.3%。这明显低于专家认为稳定人口所需的 2.1。
 
+原文链接：[信息来源： 德国法兰克福报网页版](https://www.faz.net/aktuell/gesellschaft/geburtenrate-in-china-faellt-auf-niedrigsten-stand-seit-1978-17648145.html)
+
+免责声明：本文观点只代表作者， 与Gnews平台无关
+
+编辑发布： Shuizhuyu
 
  
 

@@ -2,34 +2,46 @@
 ---
 
 
-## “拜习会”前中美“互释”公民
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1688602/)
+## 澳大利亚军队开始将新冠阳性病例和接触者转移到隔离营
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1688691/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-22-at-2.41.55-PM-1024x577-1.jpg)网络图片
+宾贾里社区（Binjari）发现9个新的新冠病例后，澳大利亚军队开始将北部地区的居民强行转移到位于达尔文的霍华德斯普林斯隔离营。此举是在宾贾里社区（Binjari）和附近的罗克洞社区（Rockhole）于星期六晚上实行严格封锁后进行的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7C1567AA-D769-4C3C-A917-A925DC81D50C.jpeg)（图片来自美联社）
+北领地首席部长迈克尔·冈纳(Michael Gunner)说: “宾贾里和罗克洞的居民不能再因那五个理由走出家门,”他指的是国家允许的五个避免封锁的理由（购买食物和用品、锻炼不超过两个小时、照顾或护理、工作或教育（如果不能在家里完成），以及在最近的可能地点接种疫苗）。
 
-《路透社》近日报道称，在美国总统拜登和中共领导人习近平举行视频峰会之前，美国遣返了七名被判有罪的中共国公民，而中共国方面则解除了一名美籍华人的离境限制。
+“他们只能因医疗、紧急情况或法律要求下走出家门。”
 
-报道称，在美籍华人丹尼尔·徐（音）被中共解除离境限制的同时，美国也遣返了七名被判有罪的中共国公民，包括中国银行某分行前行长许国俊、被判犯有诈骗罪的两人、因拍摄国防设施而被定罪的两人，以及2019年试图闯入前总统川普的海湖庄园的两名女性。
+“今天极有可能有更多的居民被转移到霍华德斯普林斯隔离营，要么是阳性病例，要么是密切接触者，”他继续说，“我们已经确定了38名来自宾贾里的密切接触者，但这个数字还会上升。这38人现在正被转移。”
 
-获准离开的丹尼尔·徐在中共国未曾被定罪，但四年多来一直被限制离境。徐去年告诉《美联社》，自 2017 年以来，中共当局一直将他扣为人质，以此要挟他的父亲回到中共国并面对挪用公款的指控。《美联社》的报道称，徐先生的父亲徐维铭否认了这些指控。
+“我昨晚联系了总理。我们感谢约20名澳大利亚国防军人员以及军队卡车的支持，以协助转移阳性病例和密切接触者–并支持社区。我们今天正在评估可能需要从联邦调查局获得哪些额外的资源，总理准备进一步帮助–我为此感谢他。”
 
-丹尼尔·徐已于11月15日晚回到美国，那时恰逢拜登总统与中共领导人习近平正在举行视频会议。对此，美国的一位政府官员否认这是事关“拜习会”两国条件交换的一部分。而中（共）国驻华盛顿大使馆没有立即发表评论。
+值得注意的是，北部地区有很大比例的澳大利亚土著人。正如《大纪元时报》的史蒂夫·米尔恩(Steve Milne)所指出的。根据澳大利亚卫生和福利研究所的数据，在2018-19年度，几乎五分之一的澳大利亚原住民生活在过度拥挤的住宅中（18%），而非澳大利亚原住民的比例为5%。
 
-*参考链接：*
+五天前，北区参议员马拉德里里·麦卡锡(Malarndirri McCarthy)告诉澳大利亚广播公司，土著社区的过度拥挤是“一个巨大的问题”。她说：“如果我们现在
 
-1. [*https://www.reuters.com/world/exclusive-american-barred-leaving-china-returned-us-before-biden-xi-meeting-2021-11-18/*](https://www.reuters.com/world/exclusive-american-barred-leaving-china-returned-us-before-biden-xi-meeting-2021-11-18/)
-2. [*https://cn.nytimes.com/china/20211122/us-china-exit-ban-deport/?utm\_source=top10-in-article&utm\_medium=articlepage&utm\_campaign=web*](https://cn.nytimes.com/china/20211122/us-china-exit-ban-deport/?utm_source=top10-in-article&amp;utm_medium=articlepage&amp;utm_campaign=web)
+能在那里得到住房，我会直接向联邦政府和北区政府推动这项工作，但我们显然需要资源来这样做。”
 
+周日没有新的新冠病例报告，但是冈纳部长（Gunner）表示他担心宾贾里社区和罗克洞社区居民“家庭之间的混杂”，这两个地方的人口分别约为220和130。
+
+周日，冈纳说，“是的，这些是强有力的措施，但新冠对生命的威胁是极其严重的。”
+
+简评：动用军队把新冠阳性病例和接触者关进隔离营是黑暗势力利用新冠病毒，既限制人身自由，强制注射疫苗之后的进一步行动。此举堪比二战时期纳粹建立的犹太人集中营，旨在定点消灭人口。
+
+各国政府及其相关利益集团种种邪恶行径再一次让我们更深刻地认识到揭示真相的意义。如果爆料革命，新中国联邦及全世界的正义力量不发声，人们将永远得不到真相，更无法拯救被谎言和阴谋包围的人类， 只能一起走向灭亡。
+
+原文链接：[Australian Army Begins Transferring COVID-Positive Cases, Contacts To Quarantine Camps](https://www.infowars.com/posts/australian-army-begins-transferring-covid-positive-cases-contacts-to-quarantine-camps/)
 
 * * *
 
-*素材采编：幽蘭自得*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-*编辑：青衣青青*
 
-*发布：miumiu*
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
