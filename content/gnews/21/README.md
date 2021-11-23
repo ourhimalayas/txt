@@ -2,30 +2,28 @@
 ---
 
 
-## 有声|数万人聚集维也纳，抗议奥地利政府防疫新规
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1688848/)
+## 老百姓普遍负债，“逃废债”成产业
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688865/)
 
-配音：香草山香港部 – 文凯琳
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-50.png)
+[图片来源](https://zhuanlan.zhihu.com/p/344299870)
 
-本周六，就在奥地利政府宣布防疫新规的第二天，数万人聚集维也纳，游行抗议政府关于中共病毒的限制措施。
+据中共官媒11月23日报道，一些从事“代理投诉”“征信修复”等中介机构，通过互联网平台传播反催收技巧，教授或代理[欠款人](https://news.163.com/news/search?keyword=%E6%AC%A0%E6%AC%BE%E4%BA%BA)恶意投诉，甚至通过伪造虚假征信报告或证明材料的方式，帮助欠款人逃避金融机构债务。这种助推逃废债的“生意”已初具规模，逐步形成产业。
 
-本周，尽管对未接种疫苗的人实施了封锁，奥地利每日感染人数仍创下新纪录。11月19日，奥地利政府宣布，将于11月22日开始实施更严格的封锁措施，并于明年2月1日起强制民众接种疫苗。据悉，奥地利是西欧疫苗接种率最低的地区之一。尽管约66%奥地利人民已经接种了新冠疫苗，但仍有许多奥地利人对疫苗持怀疑态度。
+对此，中共银保监会表示，坚决打击恶意逃废债行为，加强对违法违规网络群组的治理。业内人士建议，建立金融、司法、公安等多部门治理协调机制，提高威慑力和精准度。
 
-据当地警方称，截至当天下午三点左右，抗议人群已达35,000人。
+由于中共经济持续恶化，导致失业率飙升、物价大幅上涨、老百姓普遍负债，有数据统计全国负债人群已高达7.8亿。加之中共对于民生疾苦的漠视，自然会催生“反催收”和“逃废债”产业。
 
-文字版原文：[数万人聚集维也纳，抗议奥地利政府防疫新规](https://gnews.org/zh-hans/1684443/)
+信息来源：
 
-音频处理：喜山必胜Maverick
+[调查：“反催收生意”野蛮生长 逃废债渐成灰黑产业](https://www.163.com/money/article/GPFL7I8R00259DLP.html)
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

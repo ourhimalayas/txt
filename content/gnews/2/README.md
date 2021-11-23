@@ -2,41 +2,36 @@
 ---
 
 
-## 西喜时事新闻简报 — 美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1689129/)
+## 远东新世纪疑似沦为中共迫害台企的牺牲品
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1689144/)
 
-**作者：土饭团**
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月22日，台湾知名企业远东新世纪遭到中共上海、江苏 、四川等五省市的行政处罚，罚款金额高达3650万人民币。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-14.jpg)
+据中共国台办消息，远东新世纪在上述五省市所投资的纺织、化纤、水泥等工业项目，在环保、消防、税务、员工待遇等方面存在“违法违规”的行为。除了上述罚款外，还将追收税款与罚金，一些企业闲置建设用地也将被收回。
 
-1.[Blackburn称美国运动员参加北京奥运会是“不安全的”：“让你消失”](http://%28https://www.foxnews.com/politics/marsha-blackburn-china-us-olympics-disappear-tennis-star%29)
+远东新世纪表示，已对上述“不合规”行为进行了专项整改，预计年底前全部完成，并承诺“罚款不影响财务和业务，也不会影响在内地的投资信心”。台工商协进会理事长林伯丰也发表“洗地”言论，认为此事应只是个案，不会影响台商在大陆的投资意愿。
 
-福克斯新闻11月21日电，田纳西州共和党参议员Marsha Blackburn表示，在一名中国网球运动员因指控一名中共高级领导人对她进行性侵犯后失踪，她担心美国运动员到中共国参加即将到来的北京奥运会将“不安全”。“中国共产党不尊重生命。如果你不愿意服从命令，那么他们就会让你消失。”
+耐人玩味的是，就在同一天，国台办发言人称“台独”分子严重破坏两岸和平稳定，对他们的金主及关联企业必须依法惩戒。据悉，远东集团曾出资支持现任中华民国行政院院长苏贞昌的竞选活动。有分析指出，远东新世纪疑似成为中共迫害在陆台企的牺牲品，这将给早已阴云笼罩的台海局势增加新的变数。
 
-[2.美国收费巨头拟出售给新加坡企业引发安全担忧](http://%28https://nypost.com/2021/11/22/us-toll-giants-prospective-sale-to-singapore-based-biz-revs-up-security-concerns/%29)
+参考链接：
+[台湾远东集团在大陆被罚款 台工商协进会理事长：不影响台商在大陆投资意愿](https://news.sina.cn/gn/2021-11-22/detail-iktzqtyu8841298.d.html?from=wap)
+[国台办回应台湾远东集团在大陆被查处：绝不允许支持“台独”者在大陆赚钱](https://m.guancha.cn/politics/2021_11_22_615779.shtml)
 
-纽约邮报11月22日电，TransCore由总部位于佛罗里达州的Roper Technologies所有，于10月初宣布被新加坡ST Engineering以26.8亿美元收购。其大股东是淡马锡控股，鉴于中共国对新加坡政府和淡马锡的影响，这个共产主义国家有可能最终获得TransCore的数据。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-3.[美国国防部长誓言不让伊朗掌握核武器](http://%28https://nypost.com/2021/11/20/us-defense-secretary-vows-to-keep-nukes-out-of-irans-hands/%29)
+总编：文徬
+编辑：Zion文恩
+校正/发稿：Fei797
 
-纽约邮报11月20日电，美国国防部长Lloyd Austin周六发誓要阻止伊朗获得核武器，并打击其在整个中东地区“危险地使用”自杀式无人机的行为。Austin在巴林举行的年度麦纳麦对话期间说：“我们仍然致力于通过外交途径解决核问题，但如果伊朗不愿认真参与，我们将考虑所有必要的选项来保证美国的安全。”
-
-[4.Biden政府将中共国视为更具风险的竞争对手：报告](http://%28https://www.aninews.in/news/world/asia/biden-administration-views-china-as-more-risky-competitor-report20211122083518/%29)
-
-ANI 11月22日电，据报道，美中之间的紧张关系没有缓解，因为Biden政府正在推进Donald Trump强硬的北京政策，并将其转化为与亚洲国家的一对一竞争。Biden政府将中共国视为一个更有风险的竞争对手，而不是一个遥远的全球对手。
-
-5.[美国设法停止在阿联酋建设中共国秘密港口项目](http://%28https://www.aninews.in/news/world/asia/us-manages-to-halt-construction-of-secret-chinese-port-project-in-uae20211121060528/%29)
-
-ANI 11月21日电，在美国巨大压力下，Biden政府设法停止了在美国最亲密的中东盟友之一阿拉伯联合酋长国（UAE）的一个中共国航运港口内秘密开发项目的建设。华盛顿的情报机构得知北京在一个港口秘密建造疑似军事设施后，Biden政府警告阿联酋政府，中共国在该国的军事存在可能威胁到两国之间的关系。
-
-* * *
-
-***审核：蚂蚁兄弟
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

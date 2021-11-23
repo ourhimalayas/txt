@@ -2,44 +2,42 @@
 ---
 
 
-## 有声|苏格兰新生儿死亡数量猛增
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1688919/)
+## 美国对德国、丹麦发布“请勿旅行”COVID-19警告
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1688962/)
 
-配音：香草山香港部 – 文凯琳
+翻译：里奇
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-46.jpg)图片来自网络
 
+路透华盛顿 11 月 22 日 – 美国疾病控制与预防中心 (CDC) 和国务院周一建议不要前往德国和丹麦，因为这些国家的 COVID-19 病例数量不断增加。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+CDC 将其对这两个欧洲国家的旅行建议提高到“四级：非常高”，告诉美国人他们应该避免去那里旅行，而国务院则对这两个国家发布了平行的“请勿旅行”建议。
 
+CDC 目前在第四级列出了全球约 75 个目的地，名单上的许多欧洲国家包括奥地利、英国、比利时、希腊、挪威、瑞士、罗马尼亚、爱尔兰和捷克共和国。
 
+据路透社周一报道，德国总理安格拉·默克尔 (Angela Merkel) 告诉其所在的保守党领导人，为阻止冠状病毒在欧洲最大经济体中传播而采取的措施是不够的，需要采取更强有力的行动。
 
-据苏格兰媒体11月19日报道，9月份，苏格兰有21名婴儿在出生后28天内死亡。为此，苏格兰公共卫生部正在与苏格兰政府，正在调查新生儿死亡激增的原因。
+德国的病例数一直在飙升，尤其是在年初接种了前两次 COVID-19 疫苗的老年人和不符合接种条件的儿童中。
 
-官方数据显示，9月份，每1,000名活产婴儿中有约5名死亡。这是自1980年以后出现的最高死亡率。 此消息经盖特转帖后，网友纷纷留言，质疑这些婴儿的母亲是否已接种了疫苗，甚至有网友认为这就是“疫苗谋杀”。
+本月早些时候，世界卫生组织（WHO）表示，随着死亡人数和新病例激增，欧洲国家必须更加努力地防止冠状病毒进一步传播。
 
+世卫组织的汉斯·克鲁格警告说，目前 53 个欧洲国家的传播率令人“严重关切”，新病例接近创纪录水平，而病毒的更易传播的 Delta 变体加剧了这种情况。 “我们必须改变我们的策略，从应对 COVID-19 的激增，到首先防止它们发生”他说。
 
-原文链接：[苏格兰新生儿死亡数量猛增](https://gnews.org/zh-hans/1684759/)
+德国已经决定在医院充满 COVID-19 患者的地区限制大部分公共生活。
 
-音频处理：喜山必胜Maverick
-发稿：Daxia
+在上周宣布一些新的限制措施后，邻国奥地利周一实施了全面的 COVID-19 封锁。德国代理卫生部长 Jens Spahn 周五警告说，德国可能会效仿。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+CDC 分别将以色列、阿鲁巴岛、美属维尔京群岛、库拉索岛和瓜德罗普岛的 COVID-19 旅行警告从第四级降至“第三级：低”。
 
-**更多资讯，更多关注**
+**参考资料：**[reuters][U.S. issues ‘Do Not Travel’ COVID-19 warning for Germany, Denmark](https://www.reuters.com/business/healthcare-pharmaceuticals/us-raises-covid-19-travel-warning-germany-denmark-2021-11-22/)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+* * *
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
 
  
 
