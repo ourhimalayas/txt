@@ -2,40 +2,130 @@
 ---
 
 
-## 秘翻在线: 币安与主权基金就寻求投资进行谈判
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1689754/)
+## 比特币为什么会消失, 喜币 喜联储为什么这么牛
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1689798/)
 
-撰稿：西枫westca
+[https://gtv.org/video/id=619cd1b1e6900076612ecb76](https://gtv.org/video/id=619cd1b1e6900076612ecb76)
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-10-1.jpg)图片来源：网络照片
-据金融时报11月23日报道，币安首席执行官赵长鹏说，币安正在与几家主权财富基金就入股这家全球最大的加密货币交易所进行谈判，以寻求加强与政府的关系并抵消激进的监管机构的影响。
+**郭文贵**
+**Miles Guo**
 
-赵长鹏在接受英国《金融时报》采访时还表示，该交易所今年面临来自监管机构的越来越大的压力，并相信主权财富基金的投资将有助于改善其与各国政府的“认知和关系”，“但它也可能将我们与特定国家联系在一起。 我们需要对此稍加小心。”
+他说，你为什么说比特币完蛋，我看了你很多直播
+He said, why did you say that Bitcoin is dead? I watched a lot of your live broadcasts, and you said so a lot
 
-赵长鹏是币安的创始人，也是最大的股东。币安的新加坡业务得到了国家支持的投资公司淡马锡的风险投资部门Vertex Ventures的支持。他说正在进行初步讨论其全球实体，除了在公开上市前为其美国子公司筹集资金外，还将向几个主权财富基金筹集资金。他拒绝透露该公司正在与哪些基金进行讨论。”涉及的票据规模不会小，且不会是一个短暂的过程。”
+他说那个原罪，他说所有全世界的犯罪都跟美元有关系
+He said about the original sin, all crimes in the world have something to do with the U.S. dollar
 
-币安向世界各地的消费者提供加密货币交易，但监管机构批评了其一些高风险的金融产品，包括衍生品交易。
+那美元就没有了吗？我就笑笑没搭理他
+So there is no original sin in the dollar? I just smiled and ignored him
 
-币安一向对其创始人的位置都是保密的，并坚持说它没有固定的总部。该公司本成立于中共国，但在中共国的加密货币交易所被禁止后，于2017年撤出了中共国，并声称它在中国大陆没有办公室或业务，只有 “少数 “员工仍在从事区块链技术和其他 “非平台相关 “的工作，也没有其他数据留在中共国。
+就他是个美国所谓的财政部级别的，还有一个我们的CTO也这么认为
+he is at the so-called Treasury level in the United States, and one of our CTO (Chief Technology Officer) also thinks so
 
-币安越来越倾向于选择该公司可以与监管机构 “更直接 “沟通的政府，除加紧在新加坡和迪拜等城市寻找新的全球总部之际，赵长鹏还在过去两个月里与迪拜、巴黎、卡塔尔和巴林的监管机构会面。
+他这个猪脑袋都不是，你知道吧
+He is a no brainer, you know?
 
-赵长鹏上周在彭博社新经济论坛上说，该平台的日交易量为1700亿美元，而两年前为100亿至300亿美元。收入运行率是”几十亿”。他还透露，币安美国将在1-2个月内完成IPO前融资数亿。
+美国所有的法币参与的，被用作犯罪的是被动的
+All U.S. fiat currencies are involved and used as crimes are passive
 
-中共国最近对加密货币采矿和交易的禁令体现了政府希望阻止外部技术以支持本土版本。同时北京正在广泛推广自己的中央银行数字货币。赵长鹏表示，这种方法在互联网领域对包括阿里巴巴和腾讯在内的公司起到了作用，但这对随心所欲的加密货币行业来说 “可能有所不同”。
+是我被动的，但是比特币是主动化的，你就是去中心的
+It was passive, but Bitcoin is active, it is decentralized
 
-赵长鹏还说有一种看法认为，由于没有传统牌照，交易所正在“疯狂”。 “我是一个非常冷静的人。我不是一个疯狂的人。所以我们实际上希望监管在这个领域更加明确。” 赵还说他并不担心币安平台上的非法活动，因为鉴于该交易所一直受到审查，该公司 “可能比银行更好”，因为它有检查措施，如了解客户和反洗钱技术。币安上周公布了一封加密货币用户的基本权利的信。这份类似宣言的法案解决了包括用户隐私在内的一系列问题，还呼吁加强监管。
+我美元，我有人负责任呐，
+Someone is responsible for the dollar
 
-即便如此，包括英国金融行为监管局在内的监管机构表示，由于币安拒绝提供其全球实体的交易名称和职能等基本信息，他们无法对该业务进行适当监督。巴克莱银行等大银行甚至已经停止了一些客户向币安的资金转移。
+而且我是比特币从第一天的1块钱七哥就买了
+And I invested in Bitcoin from day one at one dollar
 
-郭文贵先生在大直播和盖特里都曾提到赵长鹏不仅在彭博社2021年创新经济论坛（新加坡）上诋毁喜交所，还把客户私人信息提供给了中共。既然他登上了这列魔鬼之车，将来一定会被中共消灭，币安也一定会结束。
+我全程参与了比特币，七哥最早在2018年我就说过
+I participated in the whole process of Bitcoin, Miles had said as early as 2018
 
-**新闻来源：**
+比特币的4%的庄家，拥有96%的比特币
+4% of Bitcoin’s banker owns 96% of Bitcoin
 
-[Binance in talks with sovereign wealth funds as it seeks investments | Financial Times (ft.com)](https://www.ft.com/content/006b727a-cc20-403e-ad53-6a23571e6c1c)
+全世界谁敢说，它是中共情报，伊朗和美国华尔街培养的洗钱工具
+Who dares to say in the world that it is a money laundering tool cultivated by the Chinese Communist Party’s intelligence, Iran and Wall Street in the United States
 
-[Binance US to Close Pre-IPO Funding in 1-2 Months (coindesk.com)](https://www.coindesk.com/business/2021/11/19/binance-us-to-close-pre-ipo-funding-in-1-2-months-founder-cz-says/)
+而且是暗网、深网60%-70%使用的货币
+And it is the currency used by 60%-70% in the dark web and the deep web
+
+那么今天我们大家要看到的一个最重要的问题
+So the most important matter that we all want to see today
+
+今天看我们自己的喜联储的喜币的时候和法币之间最大的区别是什么，
+What is the biggest difference between our own H-coin of Himalaya Reserve and fiat currency
+
+法币，你信不信你都得使用, 为什么呀，
+Fiat currency, you have to use it whether you believe it or not, why?
+
+这叫必须强迫的被动式信任，你信不信你都得用
+This is called passive trust that must be forced. You have to use it whether you believe it or not
+
+但是今天的喜联储牛在哪里，我是什么
+But where is the outstanding point of Himalaya Reserve today, what is it
+
+主动让你自动的信不信取决于你，你不信任，你不要来开户
+The initiative is in your own, believe or not depends on you, if you don’t believe it, don’t open an account
+
+你不信任，不要买喜币，你不信任，不要去拿喜币去交易
+If you don’t believe it, don’t buy H-Coin, if you don’t believe, don’t trade H-Coin
+
+这就完了，我这个币是跟你法币之间最大的不同，是吧
+That’s it, the biggest difference between H-coin and fiat currency is, right?
+
+我是完全自动信任，但是美元说你在美国你不用美元你用什么，用人民币
+It’s fully automatic trust, but you don’t use US dollar in the US，what are you going to use? Use RMB？
+
+说你滚一边儿，没人要你的，而且必须用美元交易
+Go away, nobody wants yours RMB, and you have to use dollars
+
+那这个支付系统更简单了，你这个商家你愿意我愿意，咱俩就愿意嘛
+Then this payment system is even simpler. If a merchant and the consumer are both willing in the system
+
+这是双方你情我愿嘛，那你政府监管我什么
+This is the two sides agreement, then what else can your government regulate me?
+
+告诉我所有资本市场的根本前提下，
+Tell me the fundamental premise of all capital markets
+
+你情我愿的公平经济活动剩余价值的交换，
+The exchange of the surplus value of fair economic activities under the both agreed condition
+
+达到物品交换的目的的被政府监管
+being supervised by the government to achieve the purpose of exchange of goods
+
+我愿意被你监管呐，你监管我什么？
+am I willing to be supervised by you? what are you supervising me for?
+
+所有其它货币能这样吗？全是你不情我不愿，
+Can all other crypto currencies do this? It’s all you don’t want and I am not willing to do
+
+吓唬欺骗，而且没有中心负责任的
+scare and deceive, and there is no central responsible for it
+
+而且没有稳定币的，而且不接受政府监管的，那你就必须被干掉
+And there is no stable currency, and it does not accept government supervi-sion, then it must be taken out
+
+**原视频链接:**[https://gettr.com/post/phiv27450a](https://gettr.com/post/phiv27450a)
+
+Date:11/22/2021
+原视频标题: 比特币为什么会消失, 喜币 喜联储为什么这么牛
+Why will Bitcoin disappear, and why H-Coin, Himalaya Reserve is so outstand-ing
+原视频日期：2021/11/19
+原视频链接https://gettr.com/post/phiv27450a
+任务编号：2971
+视频时间段 : 0:00-2:17
+
+中听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 -天涯行
+审片: 洛杉矶盘古农场 -银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,66 +2,103 @@
 ---
 
 
-## 疫苗报道惹祸 谷歌完全取消了CDMedia的广告收入
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1689760/)
+## 七哥回想1120
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1689819/)
 
-编译： Jenny Ball
+[https://gtv.org/video/id=619cd250e6900076612ecb85](https://gtv.org/video/id=619cd250e6900076612ecb85)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-23-at-7.11.30-AM.png)*截屏*（图片取自原文）
+前面的就是小半年到一年的这个认知
+La anterior es la cognición de medio año a un año
 
-Google Adx 已经完全取消了 CDMedia 在我们网站上投放广告的平台，并结束了我们媒体公司的在线广告收入。
+是班农先生对于消灭共产党, 对中国的文化
+Es el Sr. Bannon de acuerdo a eliminar el Partido Comunista , la cultura china
 
-在我们对“疫苗授权”的报道中，我们显然超出了（Google）目标。
+对共产党的邪恶和西方的渗透
+El mal del Partido Comunista y la penetración en el Occidente
 
-这并不重要，因为我们正在开发替代收入来源。
+都从每一件事上
+Mediante cada asunto
 
-站在自由这边，和其他爱国者站在一起，这里的绿地绝对更惬意！
+包括也体会咱们爆料革命的这种坚持执着
+Incluyendo y viviendo también la perseverancia que tenemos con el Movimiento de Denunciantes
 
-但是，请通过在此处捐赠来尽您所能支持 CDMedia 和言论自由！[donating HERE!](https://creativedestructionmedia.com/support-free-speech-donate/)
+然后我们开会的时候
+Cuando estabamos en la reunión
 
-以下是我们收到的一封电子邮件的摘录……
+之前
+Antes de eso
 
-此消息旨在提醒您，您的一个网站目前不符合我们的 “广告管理” Ad Manager 计划政策，因此您的整个网站上的广告投放已受到限制。
+包括安全部门的警告吧
+Incluyendo la advertencia del Departamento de Seguridad
 
-限制解释——“危险或贬损内容”、“不可靠和有害的声明”。
+有人要杀害呀
+Alguien te matará
 
-违规解释：
+要危害呀
+Te lastimará
 
-危险或贬义内容：
+共产党, 你知道那时候
+Sabes en ese momento, el Partido Comunista
 
-基于种族或民族、宗教、残疾、年龄、国籍、退伍军人身份、性取向、性别、性别认同或其他与系统相关的特征，煽动仇恨、促进歧视或贬低个人或群体歧视或边缘化。
+你们从来不知道的
+Ustedes nunca supieron
 
-骚扰、恐吓或欺凌一个人或一群人。
+我最起码一个小时内接到2个3个电话
+Al menos recibía dos a tres llamadas dentro de una hora
 
-威胁或主张伤害自己或他人。
+莫名其妙的发信息的, 发信息呀
+Enviaban mensajes inexplicablemente
 
-与当前的重大健康危机有关，与权威的科学共识相矛盾。
+你会死掉的
+Diciendo que morirás
 
-通过敲诈勒索剥削他人。
+下一步会杀掉你啊
+El siguiente paso es matarte
 
-在帮助中心查看完整的政策（包括示例）。
+然后我知道你下一步会走哪条街呀, 是吧
+Luego decían: “sé a qué calle irás a continuación”, cierto
 
-不可靠和有害的说法：
+然后把班农你们都会干掉呀
+“Seguidamente los eliminaré a Bannon y a ustedes”
 
-提出明显错误的声明，并可能严重破坏对选举或民主进程的参与或信任。
+放毒啊
+“Descargando virus”
 
-宣扬有害的健康声明或与当前的重大健康危机有关，并且与权威科学共识相矛盾。
+这些事情都是
+Todas estas cosas son
 
-与关于气候变化的权威科学共识相矛盾。
+每时都在发生
+Ocurridas en cada momento
 
-评论：多么讽刺，作恶的**Google**却要用“不作恶”做招牌！在这场人类病毒疫苗大劫难中，社交媒体扮演着邪恶的宣传工具。凸显爆料革命创立的盖特，**GTV**, **Gnews**是多么意义深远，承担着传播真相的历史使命。真相必胜！
+不是每天, 是每时
+No son todos los días sino cada momento
 
-**参考资料：**[creativedestructionmedia][Google De-platforms CDMedia Completely From Ad Revenue Over Vaccine Coverage](https://creativedestructionmedia.com/news/business/2021/11/23/google-de-platforms-cdmedia-completely-from-ad-revenue-over-vaccine-coverage/)
+从来没有1秒钟动摇过我们
+Jamás ni un segundo nos hemos movido
 
-* * *
+最后大家知道皮尔酒店开了那个成功的会
+Finalmente, todos saben que en el Hotel Peel se realizó ese exitoso encuentro
 
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
+**原视频网址：**[https://gettr.com/post/phlh7b9153](https://gettr.com/post/phlh7b9153)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+日期：11/23/2021
+原视频标题：七哥回想1120
+Miles recordando el 20 de noviembre
+原视频日期：11/22/2021
+原视频网址：https://gettr.com/post/phlh7b9153
+任务编号：KC282（2981）
+视频时间段：0:00-0:45
 
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 –青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

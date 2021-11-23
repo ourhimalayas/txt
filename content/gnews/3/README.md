@@ -2,98 +2,119 @@
 ---
 
 
-## 七哥回想1120
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1689819/)
+## 澳大利亚领导人在疫苗强制方面既愚蠢又专制, 一个非常糟糕组合
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1689849/)
 
-[https://gtv.org/video/id=619cd250e6900076612ecb85](https://gtv.org/video/id=619cd250e6900076612ecb85)
+[https://gtv.org/video/id=619cd7dce6900076612eccee](https://gtv.org/video/id=619cd7dce6900076612eccee)
 
-前面的就是小半年到一年的这个认知
-La anterior es la cognición de medio año a un año
+**Reporter**
+**记者**
 
-是班农先生对于消灭共产党, 对中国的文化
-Es el Sr. Bannon de acuerdo a eliminar el Partido Comunista , la cultura china
+Do you think at all that your rhetoric around calling people anti-vaxxers,
+你认为你关于称人们为反疫苗者的言论
 
-对共产党的邪恶和西方的渗透
-El mal del Partido Comunista y la penetración en el Occidente
+some of whom were vaccinated,
+其中一些人已经接种了疫苗
 
-都从每一件事上
-Mediante cada asunto
+has had an impact at all on vaccine take-up in parts of the Territory?
+是否对领土部分地区的疫苗接种产生了任何影响？
 
-包括也体会咱们爆料革命的这种坚持执着
-Incluyendo y viviendo también la perseverancia que tenemos con el Movimiento de Denunciantes
+Australia official
+澳大利亚官员
 
-然后我们开会的时候
-Cuando estabamos en la reunión
+No，I don’t work data
+不，我不研究数据
 
-之前
-Antes de eso
+If you are anti mandate,
+如果你反对强制疫苗接种
 
-包括安全部门的警告吧
-Incluyendo la advertencia del Departamento de Seguridad
+you are absolutely anti-vax on what your personal vaccination status is.
+在你的个人疫苗接种状况你绝对也是疫苗反对者
 
-有人要杀害呀
-Alguien te matará
+If you support campaign, give a green light
+如果你支持抗议，为其开绿灯
 
-要危害呀
-Te lastimará
+give comfort to support anybody who argued against the vaccine,
+安慰支持任何反对疫苗的人
 
-共产党, 你知道那时候
-Sabes en ese momento, el Partido Comunista
+you are an anti Vaxxer absolutely.
+你绝对是一个反疫苗者
 
-你们从来不知道的
-Ustedes nunca supieron
+Your personal vaccination status is utterly irrelevant.
+你的个人疫苗接种状态完全无关紧要
 
-我最起码一个小时内接到2个3个电话
-Al menos recibía dos a tres llamadas dentro de una hora
+If you campaign against the mandate.
+如果你抗议反对这个强制命令
 
-莫名其妙的发信息的, 发信息呀
-Enviaban mensajes inexplicablemente
+If you campaign against people being vaccinated in vulnerable settings,
+如果你反对在脆弱环境中接种疫苗的人
 
-你会死掉的
-Diciendo que morirás
+teachers in classrooms,
+在教室里的老师
 
-下一步会杀掉你啊
-El siguiente paso es matarte
+I’ll be really clear at that point time people were actually sup-porting
+那时我真的很清楚，人们实际上是支持
 
-然后我知道你下一步会走哪条街呀, 是吧
-Luego decían: “sé a qué calle irás a continuación”, cierto
+the idea of a teacher being unvaccinated in a remote community classroom
+教师在偏远社区教室中不用接种疫苗的想法
 
-然后把班农你们都会干掉呀
-“Seguidamente los eliminaré a Bannon y a ustedes”
+with kids who can’t be vaccinated
+与无法接种疫苗的孩子在一起
 
-放毒啊
-“Descargando virus”
+I reject that, I still reject it.
+我反对那个想法，我仍然反对它
 
-这些事情都是
-Todas estas cosas son
+And if you are out there in any way, shape or form
+如果你以任何方式、状况或形式出现在那里
 
-每时都在发生
-Ocurridas en cada momento
+campaigning against this mandate that you are absolutely anti-vax.
+反对强制疫苗接种，那么你绝对是反对疫苗者
 
-不是每天, 是每时
-No son todos los días sino cada momento
+If you say pro persuasion stuffer it, shove it
+如果你想游说我，省省吧
 
-从来没有1秒钟动摇过我们
-Jamás ni un segundo nos hemos movido
+we are absolutely going to make sure as many territories as pos-sible are vaccinated
+我们绝对会确保尽可能多的地区接种疫苗
 
-最后大家知道皮尔酒店开了那个成功的会
-Finalmente, todos saben que en el Hotel Peel se realizó ese exitoso encuentro
+that is our best protection against this thing.
+这是我们对这种病毒最好的保护
 
-**原视频网址：**[https://gettr.com/post/phlh7b9153](https://gettr.com/post/phlh7b9153)
+As you look at the dose volumes coming out since
+当你看到自去年以来出现的剂量时
 
-日期：11/23/2021
-原视频标题：七哥回想1120
-Miles recordando el 20 de noviembre
-原视频日期：11/22/2021
-原视频网址：https://gettr.com/post/phlh7b9153
-任务编号：KC282（2981）
-视频时间段：0:00-0:45
+they said we’ve doubled dose at 80, remote communities five and up
+我们已经将剂量增加了一倍，为80微克，偏远社区的计量为50微克和更高
 
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 –青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
+I think you’ll see our vaccine mandate is absolutely crucial to protecting life,
+我想你会看到我们的疫苗强制对于保护生命绝对至关重要
+
+particularly aboriginal life
+特别是原住民的生活
+
+and I will never back away for supporting vaccines
+我永远不会因为支持疫苗而退缩
+
+and anyone out there who comes for the mandate.
+而且任何人反对强制接种
+
+You are anti-vax
+你是个反疫苗者
+
+**原视频链接**:[https://twitter.com/justin\_hart/status/1462791892219793414?s=24](https://twitter.com/justin_hart/status/1462791892219793414?s=24)
+
+Date:11/22/2021
+原视频标题: Australia’s leaders are dumb and authoritarian in vaccine mandates. A very bad combo
+澳大利亚领导人在疫苗强制方面既愚蠢又专制, 一个非常糟糕的组合
+原视频日期：2021/11/22
+原视频链接: https://twitter.com/justin\_hart/status/1462791892219793414?s=24
+任务编号：KE347(2983）
+视频时间段 : 0:00-1:37
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 –天涯行
+审片：洛杉矶盘古农场 –银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）
