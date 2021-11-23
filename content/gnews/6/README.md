@@ -2,26 +2,34 @@
 ---
 
 
-## 秘翻在线：参议员布莱克本和科顿敦促美国不要参加2022年的北京奥运会
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1688420/)
+## “拜习会”前中美“互释”公民
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1688602/)
 
-#### 翻译：文斗
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/ce446146-98d6-41549_Sen.MarshaBlackburn.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7C1567AA-D769-4C3C-A917-A925DC81D50C.jpeg)（图片来自美联社）
 
-美国数字频道媒体 WCYB 11月23日报道，参议员玛莎·布莱克本（Marsha Blackburn）和参议员汤姆·科顿（Tom Cotton）敦促美国队不要参加2022年北京冬奥会。
+《路透社》近日报道称，在美国总统拜登和中共领导人习近平举行视频峰会之前，美国遣返了七名被判有罪的中共国公民，而中共国方面则解除了一名美籍华人的离境限制。
 
-参议员们周一给美国奥林匹克与残疾人奥林匹克委员会（USOPC）发了一封信。这封信是在对网球明星彭帅的“福祉和自由”感到担忧之后发出的。参议员们说，美国队的安全和安保在奥运会上无法得到保证。
+报道称，在美籍华人丹尼尔·徐（音）被中共解除离境限制的同时，美国也遣返了七名被判有罪的中共国公民，包括中国银行某分行前行长许国俊、被判犯有诈骗罪的两人、因拍摄国防设施而被定罪的两人，以及2019年试图闯入前总统川普的海湖庄园的两名女性。
 
-以下是参议员们信中的部分内容。
+获准离开的丹尼尔·徐在中共国未曾被定罪，但四年多来一直被限制离境。徐去年告诉《美联社》，自 2017 年以来，中共当局一直将他扣为人质，以此要挟他的父亲回到中共国并面对挪用公款的指控。《美联社》的报道称，徐先生的父亲徐维铭否认了这些指控。
 
-“我们写这封信是为了表达我们对美国奥委会在2022年北京冬奥会上保证美国队安康的能力的担忧。距离奥运会还有三个月，美国奥委会必须采取行动，抵制北京奥运会。”
+丹尼尔·徐已于11月15日晚回到美国，那时恰逢拜登总统与中共领导人习近平正在举行视频会议。对此，美国的一位政府官员否认这是事关“拜习会”两国条件交换的一部分。而中（共）国驻华盛顿大使馆没有立即发表评论。
 
-“中华人民共和国（PRC）是一个饱受暴力镇压言论自由、国家支持的压迫和其他侵犯人权行为的国家。由于中国共产党（CCP）当局享有不受约束的权力和零问责制，美国运动员可能面临严重的危险。”
+*参考链接：*
 
-“中共在侵犯人权和宗教自由方面有着卑劣的历史。鉴于中共利用新兴技术压制包括维吾尔人、西藏人、内蒙古人和香港人等群体，这些担忧尤其明显。”
+1. [*https://www.reuters.com/world/exclusive-american-barred-leaving-china-returned-us-before-biden-xi-meeting-2021-11-18/*](https://www.reuters.com/world/exclusive-american-barred-leaving-china-returned-us-before-biden-xi-meeting-2021-11-18/)
+2. [*https://cn.nytimes.com/china/20211122/us-china-exit-ban-deport/?utm\_source=top10-in-article&utm\_medium=articlepage&utm\_campaign=web*](https://cn.nytimes.com/china/20211122/us-china-exit-ban-deport/?utm_source=top10-in-article&amp;utm_medium=articlepage&amp;utm_campaign=web)
 
-原文链接：[**Sen. Blackburn, Sen. Cotton urge Team USA to not compete in 2022 Olympics in Beijing**](https://wcyb.com/news/nation-world/sen-blackburn-sen-cotton-urge-team-usa-to-not-compete-in-2022-olympics-in-beijing)
+
+* * *
+
+*素材采编：幽蘭自得*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
 
  
 
