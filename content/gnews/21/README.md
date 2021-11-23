@@ -2,29 +2,51 @@
 ---
 
 
-## 有声|盖特新功能“Instagram导入”开始内测
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1686509/)
+## 欧洲和澳大利亚有数以万计的抗议者反对新冠限制措施
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1686581/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-11月17日，郭文贵先生发布盖特消息称，盖特新功能——“Instagram导入”已经进入内部测试阶段。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/112205-1.jpg)2021 年 11 月 12 日，在荷兰海牙举行的新闻发布会上，人们抗议即将卸任的总理马克·鲁特和即将卸任的卫生、福利和体育部长雨果·德容格宣布的新的 COVID19 措施。（欧洲新闻图片社）
+欧洲正在与新一波中共新冠病毒感染作斗争。为此，一些国家已经收紧了管控措施。奥地利周五宣布在全国范围内实施部分封锁政策——这是数月来西欧最严厉的限制措施。从明年2月1日起，这个阿尔卑斯山脉的国家将强制接种新冠疫苗。
 
-用户在注册盖特新账户时，可以直接选择Instagram同名账号导入。盖特现有用户，如果想将Instagram账号导入盖特，可以将所属Instagram用户名留言给盖特工程师，要求导入账号。
+荷兰上周六重新进入部分封锁状态，并将持续至少三周。该国还计划禁止未接种疫苗的人进入一些公共场所，即所谓的2G方案。
 
-Instagram是脸书旗下的社交媒体平台，和脸书使用同样的“言论审查”政策，不允许用户表达与其不同的政治观点。与其相异的政治观点的图片和视频会遭到封禁，甚至会因此被封号。盖特与这些社交媒体平台相反，没有“言论审查”，是一个言论自由的社交媒体平台，用户可以畅所欲言，自由的表达自己，因此吸引大量热爱自由的人进驻。盖特开发这个新功能，为盖特用户提供了更全面的服务，更方便的体验。同时，吸引更多的人加入到盖特的平台中来，成为盖特的用户。
+数千名抗议者聚集在阿姆斯特丹对最新的限制措施表达愤怒。另有一千人游行穿过靠近比利时边境的南部城市布雷达，他们举着写有“禁止封锁”等口号的横幅，反对首相马克·吕特（Mark Rutte）将未接种疫苗的人排除在酒吧和餐馆之外的计划。
 
-文字版原文：[盖特新功能“Instagram导入”开始内测](https://gnews.org/zh-hans/1683511/)
+在奥地利，大约4万人在维也纳市中心靠近总理府的地方进行抗议，他们高举横幅谴责“冠状疫情独裁”并抨击“社会分裂”。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“政府剥夺我们的权利是不正常的”，42岁的教师卡特琳娜·吉尔施（Katarina Gierscher）说。她为参加集会花费了六个小时的行程。
+
+克罗地亚首都萨格勒布和丹麦也有数千人游行，大约有1千人抗议政府恢复公务员上班通行证的计划。
+
+在哥本哈根激进派《黑衣人组织》组织的一次集会上，一些游行者高喊，“为了丹麦的自由”。他们认为新冠病毒只是一个“骗局”。
+
+在澳大利亚，约有1万人在悉尼游行，其他主要城市也有抗议活动，抗议州当局对某些行业实施疫苗强制令。
+
+右翼政治家克雷格·凯利（Craig Kelly）对悉尼的抗议人群喊话，“狂热的邪教组织运转着我们澳大利亚的卫生局，他们说可以为儿童接种疫苗”。
+
+**简评：**
+
+中共病毒肆虐全球，疫苗灾难更是接踵而至，甚至已经波及儿童。在高疫苗接种率却伴随新冠病毒的感染人数和死亡人数都再次飙升的今天，各国的政要们不是去反问疫苗到底有没有预防作用，反而变本加厉地出台限制政策，强推疫苗接种。这些不符合常识的举动再次验证郭文贵先生的爆料！其背后隐藏着不可告人的利益输送和邪恶目的。政客们即使知道疫苗无效也不会主动停止疫苗接种政策，因为他们贪图小利、又不敢承担责任。但是，真相是掩藏不了的！正如这则新闻所示，越来越多的人们了解真相，团结一致，反抗伪装在科学的名义下的专权独裁，捍卫自己的天赋人权。相信人们的觉醒和抗争一定会促成早日在世界范围内停止疫苗强制，开放有效治疗药物，终结疫苗灾难，终结中共之邪恶“病毒”。
+
+新闻链接：[Tens of thousands rally against Covid curbs in Europe and Australia](https://www.nst.com.my/world/world/2021/11/747292/tens-thousands-rally-against-covid-curbs-europe-and-australia)
+
+***翻译**: 苹果树*
+
+***校对**: 小小妹*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,43 @@
 ---
 
 
-## 有声|纳瓦罗先生指出每一个美国人都应该成为对中共的鹰派
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1686538/)
+## 24 小时内有 13 例死胎 @ 温哥华狮门医院不列颠哥伦比亚省
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1686591/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-纳瓦罗先生在18日接受FOX斯图尔特采访的时，谈到本周的拜习会晤就像肥皂剧一样是无所事事的一场峰会。
+作者：Breaking-news.ca
+翻译：HimaFAFA
 
-纳瓦罗先生分析道本周的拜习视频会晤，因为没有谈及病毒起源以及在台湾问题上划定界限，更重要的是没有谈论中共到目前只购买了700万美金的美国产品，根本没有履行第一阶段贸易协议的事情。这些事都可以看出中共根本不会履行任何它们所签署的协议。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/LionsGateHospital-1.jpg)
 
-然后在关于是否抵制北京冬奥会的问题上，纳瓦罗先生反问道美国什么时候才能感觉到受够了中共国？并列举了中共的新疆集中营、利用可携带高超音速武器对美国造成的威胁，并强调是中共孵化了病毒并散播给了全世界。
+- 11 月 11 日，1:00 – 3:00 北温哥华狮门医院紧急入口
 
-最后纳瓦罗先生指出每一个美国人都该在对中共问题上成为鹰派，并提醒五角大楼中共是比气候变化更危险的东西。
 
-文字版原文：[纳瓦罗先生指出每一个美国人都应该成为对中共的鹰派](https://gnews.org/zh-hans/1683348/)
+- 与梅尔布鲁谢博士和丹尼尔·长濑博士集会。他们与皇家骑警交谈，然后前往紧急入口。医生将感谢我们与他站在一起以提高对这种实验性注射危险的认识。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+- 平均而言，他们每个月会看到 1 例死产。杜拉斯报告说，在 24 小时内接受实验注射的妇女有 13 例胎死腹中。媒体没有报道这一点。大药厂关照媒体，媒体选择沉默。
+
+
+来源：https://breaking-news.ca/13-stillborn-deaths-in-24-hours-rally-lions-gate-hospital-vancouver-british-columbia/
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
