@@ -2,30 +2,52 @@
 ---
 
 
-## 100多个全球品牌仍在从维吾尔强迫劳动中获利
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1687537/)
+## 海军造船承包商暂停了疫苗接种计划
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1687549/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-24.jpg)100多个全球品牌仍在从维吾尔强迫劳动中获利 网络图片
-据美国之音11月23日报道，一份名为《洗棉，新疆棉如何在国际供应链中黯然失色》的报告发现，仍有一百多个国际品牌销售与新疆地区维吾尔强迫劳动有关的棉制品。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-45.jpg)图片来源：网络图片
+翻译：love miles
+编辑：李易通
 
-今年早些时候，美国以维吾尔人在棉花以及番茄制品等商品生产中的强迫劳动为由，禁止从中共国新疆维吾尔自治区进口棉制品。中共国约85%的棉花产自新疆。五家供应商将新疆棉半成品出口给国际中间商，再由中间商将成品运往包括美国在内的全球国际品牌。
+一家海军造船公司在工人威胁要辞职后终止了其疫苗授权，并且海军证实不要授权了。
 
-新疆维吾尔人的鲜血和生命浸透在供应链的每一根链条上，新疆是二战之后全球最大的种族灭绝集中营所在地，关押着上百万维吾尔人。中共对国际社会的声讨和谴责不予理睬，继续在新疆实施暴行。怎么才能让一个邪恶的犯罪团伙放下杀人的屠刀呢？只有消灭它，才能终止暴行，让新疆维吾尔人获得真正的自由。
+亨廷顿英格尔斯工业公司（HII）是纽波特纽斯造船厂的母公司，是世界唯一一家美国海军核动力航母的制造商。该公司还是弗吉尼亚州和哥伦比亚州潜艇的制造商之一，在弗吉尼亚雇佣了25000多名工人。
 
-新闻参考链接：[https://www.voachinese.com/a/global-brands-still-profiting-from-uyghur-forced-labor-20211122/6323462.html](https://www.voachinese.com/a/global-brands-still-profiting-from-uyghur-forced-labor-20211122/6323462.html)
+该船厂此前曾宣布计划，要求其所有25000名工人在12月8日之前完全接种疫苗。最后的期限推迟到1月4日，以便留出更多时间。
 
-* * *
+随着上面的要求的结束，截止日期目前已“暂停”。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+11月17日，总裁兼首席执行官迈克·佩特斯 (Mike Petters) 在给员工的一封信  中写道：“我们不想因为病毒或疫苗授权的影响而失去任何一名员工。”
 
+“重要的是，关于英格尔斯造船厂和纽波特纽斯造船厂，我们的客户已确认，合同不包括实施疫苗授权的要求。技术解决方案的员工则处于不同的情况，他们要根据特定的合同面临不同的要求。”
 
-编辑：【英国伦敦喜庄园编辑部】
+公司继续鼓励员工接种COVID-19疫苗，但不再强制要求雇员接种疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+一些员工告诉当地媒体WTKR-News3，觉得自己被骗了，因为他们按照疫苗授权计划接种了全部新冠疫苗，但现在不再适用了。
 
+“他们让我必须打疫苗然后又说不适用了”，NII的员工Deshawn Royal告诉媒体。“我不想打疫苗，但他们要求必须打，否则就会被解雇。然后他们又说你们误会了。”
 
+另一名HII的员工Rodney Apop说：“他们很疑惑但没有跳槽的机会。”
+
+“现在当他们取消了疫苗授权时，大家多么希望没有被强迫打疫苗。”
+
+此举是在当地造船工会USW Local 8888公布其关于临时合同协议的调查结果之后发生的。该协议以1312票对684票被否决。
+
+工会在信中写道：“世界上最好的造船商对公司期望更高和所获得的回报也应该越多，并希望谈判者回到谈判席达成交易。”
+
+信中指出，如果需要与公司领导进行谈判，工会仍准备罢工。
+
+工会的官员没有立即回应大纪元时报的相关评论。
+
+文章来源：[https://www.theepochtimes.com/navy-shipbuilding-contractor-suspends-vaccine-mandate-after-workers-threaten-to-leave\_4113793.html](https://www.theepochtimes.com/navy-shipbuilding-contractor-suspends-vaccine-mandate-after-workers-threaten-to-leave_4113793.html)
+
+发布：kk
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -15,101 +15,101 @@
 
 ---
 
-### [任人唯亲，没有福利，是中国的大问题](/content/gnews/1/README.md)
+### [见证奇迹](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【玫瑰看新闻】第201期 病毒疫情新闻](/content/gnews/2/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [郭先生：虚拟币的诞生不会再有任何人相信任何的纸币](/content/gnews/3/README.md)
+ ` MG 澳喜农场多语组`
+
+### [任人唯亲，没有福利，是中国的大问题](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [习近平统治下的百姓为谋生摆摊不行，网销也不行！](/content/gnews/2/README.md)
+### [习近平统治下的百姓为谋生摆摊不行，网销也不行！](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生2021年11月22日盖特直播视频（22分17秒）全文字版](/content/gnews/3/README.md)
+### [郭文贵先生2021年11月22日盖特直播视频（22分17秒）全文字版](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共真要打台湾的时候觉得它很疯狂](/content/gnews/4/README.md)
+### [中共真要打台湾的时候觉得它很疯狂](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [港闻前线｜加速大陆化 自选变官派 香港法援制度被颠覆](/content/gnews/5/README.md)
+### [港闻前线｜加速大陆化 自选变官派 香港法援制度被颠覆](/content/gnews/8/README.md)
  ` G&#124;News TAIWAN`
 
-### [疫苗改变了人类的一切](/content/gnews/6/README.md)
+### [疫苗改变了人类的一切](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [律师公布FDA文件，辉瑞很就早收到大量疫苗不良报告](/content/gnews/7/README.md)
+### [律师公布FDA文件，辉瑞很就早收到大量疫苗不良报告](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [新闻述评：中共借打压远东国际炒作“台独顽固分子”](/content/gnews/8/README.md)
+### [新闻述评：中共借打压远东国际炒作“台独顽固分子”](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [班农先生熬尽心思帮助中国人成立法治基金、法治社会](/content/gnews/9/README.md)
+### [班农先生熬尽心思帮助中国人成立法治基金、法治社会](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [班农先生喜欢并且同情中国老百姓](/content/gnews/10/README.md)
+### [班农先生喜欢并且同情中国老百姓](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一对因政治原因导致离婚的恩爱夫妻大S和汪小菲](/content/gnews/11/README.md)
- ` 走进澳洲`
-
-### [文贵先生盖特直播对战友忠告](/content/gnews/12/README.md)
+### [文贵先生盖特直播对战友忠告](/content/gnews/14/README.md)
  ` 纽约香草山MOS01`
 
-### [日本采用污水分析法预测中共病毒感染](/content/gnews/13/README.md)
+### [日本采用污水分析法预测中共病毒感染](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [数万名未接种联邦雇员本周一失业 众议员抨击白宫强制接种令](/content/gnews/14/README.md)
+### [数万名未接种联邦雇员本周一失业 众议员抨击白宫强制接种令](/content/gnews/16/README.md)
  ` 纽约香草山MOS01`
 
-### [【玫瑰看新闻】第201期 国际热点新闻](/content/gnews/15/README.md)
+### [【玫瑰看新闻】第201期 国际热点新闻](/content/gnews/17/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [中共超限战灭港行动（86）守护孩子行动之志愿者大军](/content/gnews/16/README.md)
+### [中共超限战灭港行动（86）守护孩子行动之志愿者大军](/content/gnews/18/README.md)
  ` 英喜-粵語組`
 
-### [【玫瑰看新闻】第201期 新中国联邦新闻](/content/gnews/17/README.md)
+### [【玫瑰看新闻】第201期 新中国联邦新闻](/content/gnews/19/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [由律师传讯的FDA记录显示，在COVID注射试验的前两个半月中，有超过15.8万起不良“事件”](/content/gnews/18/README.md)
+### [由律师传讯的FDA记录显示，在COVID注射试验的前两个半月中，有超过15.8万起不良“事件”](/content/gnews/20/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [DC大中华时事：中共称绝不允许支持“台独”者在大陆赚钱](/content/gnews/19/README.md)
+### [DC大中华时事：中共称绝不允许支持“台独”者在大陆赚钱](/content/gnews/21/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [每日快报：针对班农的藐视法庭案是对国会权力的滥用](/content/gnews/20/README.md)
+### [每日快报：针对班农的藐视法庭案是对国会权力的滥用](/content/gnews/22/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [维州安德鲁政府强制疫苗政策， 未接种疫苗5-12 岁儿童将停课](/content/gnews/21/README.md)
+### [维州安德鲁政府强制疫苗政策， 未接种疫苗5-12 岁儿童将停课](/content/gnews/23/README.md)
  ` 走进澳洲`
 
-### [COVID-19 最新情报｜德国卫生部长发出威胁式警告：到冬季结束，德国人有三种选择：打针、治愈、死亡](/content/gnews/22/README.md)
+### [COVID-19 最新情报｜德国卫生部长发出威胁式警告：到冬季结束，德国人有三种选择：打针、治愈、死亡](/content/gnews/24/README.md)
  ` G&#124;News TAIWAN`
 
-### [币圈新闻动态：31%的对冲基金经理计划将加密货币加到投资组合中](/content/gnews/23/README.md)
+### [币圈新闻动态：31%的对冲基金经理计划将加密货币加到投资组合中](/content/gnews/25/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [孩子打完新冠疫苗后，各种病痛触目惊心](/content/gnews/24/README.md)
+### [孩子打完新冠疫苗后，各种病痛触目惊心](/content/gnews/26/README.md)
  ` 纽约香草山MOS02`
 
-### [海军造船承包商暂停了疫苗接种计划](/content/gnews/25/README.md)
+### [海军造船承包商暂停了疫苗接种计划](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共党媒警告立陶宛，将对台湾“诉诸军事手段”](/content/gnews/26/README.md)
+### [中共党媒警告立陶宛，将对台湾“诉诸军事手段”](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`
 
-### [100多个全球品牌仍在从维吾尔强迫劳动中获利](/content/gnews/27/README.md)
+### [100多个全球品牌仍在从维吾尔强迫劳动中获利](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新州长面对悉尼大规模反抗示威依然铁心不放宽政策](/content/gnews/28/README.md)
+### [新州长面对悉尼大规模反抗示威依然铁心不放宽政策](/content/gnews/30/README.md)
  ` 澳喜农场`
 
-### [针下亡魂｜德国 15 岁少女接种疫苗三周后死亡](/content/gnews/29/README.md)
+### [针下亡魂｜德国 15 岁少女接种疫苗三周后死亡](/content/gnews/31/README.md)
  ` G&#124;News TAIWAN`
 
-### [前澳州副首席医疗官建议不要对12岁以下儿童接种新冠疫苗](/content/gnews/30/README.md)
+### [前澳州副首席医疗官建议不要对12岁以下儿童接种新冠疫苗](/content/gnews/32/README.md)
  ` 首尔天池农场`
-
-### [恒大价值10亿美元股份进入香港结算系统](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共国阜兴集团因集资诈骗和操纵市场被罚21亿](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [澳洲北领地部长：没有让步，绝对实行强制疫苗政策](/content/gnews/33/README.md)
  ` 澳喜特战旅Gnews`
