@@ -2,45 +2,31 @@
 ---
 
 
-## 北领地公务员拒绝打疫苗被解雇，其他人却获得奖金
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1687425/)
+## 澳洲北领地部长：没有让步，绝对实行强制疫苗政策
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1687464/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+撰稿：Gradient Boost
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/r359_124_1511_764_w1200_h678_fmax.jpg)
+视频与字幕：苏加诺
 
+澳大利亚当地时间11月22日，北领地首席部长迈克尔·贡纳（Michael Gunner）在接受记者采访时表示，自己绝对不会再疫苗问题上做出任何让步，北领地绝对会实行疫苗强制法令。
 
+在这位北领地部长的推动下，从11月13日开始，北领地任何涉及到与人接触的职位都需要至少打过一针疫苗，违反者在失去工作的同时还会被罚款5000澳元。
 
-图片来源：www.katherinetimes.com.au
+在当时的记者会上，迈克尔称：“只要你的工作可能会接触到高风险易感群体——哪怕你不确定，你不知道——那么你都要打疫苗。”
 
+而这一次，迈克尔有发挥起自己将事情完全一竿子打死的特长，把反疫苗者的帽子扣在了所有参与了抗议集会（哪怕只是在集会现场）的头上，甚至包括那些对反疫苗者报以同情或者怜悯心情的人。
 
-#### 编译：小红帽
+哪怕是已经接种疫苗的人，凡是与他个人观点不同的，现在都被他视为反疫苗者——可以说北领地部长现在已经毫不掩饰自己的独裁者气质和CCP作风。至于迈克尔的观点，那就是让越多的州、越多的人打越多的疫苗，他认为疫苗是抗病毒最好的方法。
 
-在北领地，数百名因拒绝接种中共病毒（COVID-19）疫苗而被解雇的公务员的工资可以用来为其他员工支付价值1万美元的 “奖金”。
+迈克尔称当两针疫苗注射普及超过80%之后，大家会看到感染率会下降许多。然而这纯属睁着眼睛说瞎话：目前维多利亚州的疫苗接种率已经快要接近90%，但是疫情依旧以每天1000的速率增长着。新南威尔士州的两针疫苗普及率都超过90%了，依然还有着每日接近两百例左右的新增。
 
-资金紧张的北领地政府正试图实施公务员工资冻结，作为预算措施的一部分，旨在四年内节省4.24亿美元。为了让员工同意这项紧缩措施，政府之前提出了1000美元的年度奖金。
+我们未来会继续关注这位政客的疯狂表演，看看他的下场究竟会如何。
 
-但这一提议最近被北部地区24,000名公务员中的大多数人拒绝，因为四年后雇员仍将保持现有的工资。
+新闻参考链接：
 
-周一，首席部长迈克尔·冈纳（Michael Gunner）向所有员工发送了一封电子邮件，概述了政府的新提案。
-
-根据修订后的计划，员工将在第一年获得4000美元的奖金，并在随后的三年中每年获得2000美元的奖金。新建议的资金将来自于政府的疫苗强制令造成的人员配备减少。
-
-冈纳说，约有400名公务员因未按要求接种中共病毒疫苗而被解雇。其中一些职位将被重新填补，但约300名离职人员的工资将由其他公务员通过奖金分享。
-
-北领地反对派尚未对政府的修订工资政策发表评论。
-
-**参考新闻：**[NT public servants offered new wages deal as 400 staff dismissed for refusing COVID-19 vaccine (msn.com)](https://www.msn.com/en-au/money/markets/nt-public-servants-offered-new-wages-deal-as-400-staff-dismissed-for-refusing-covid-19-vaccine/ar-AAQZ6GY?ocid=msedgntp)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+[澳大利亚广播公司](https://www.abc.net.au/news/2021-11-22/nt-covid-vaccine-mandate-opponents-anti-vaxxers-michael-gunner/100640656)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
