@@ -15,154 +15,154 @@
 
 ---
 
-### [中共超限战灭港行动（86）守护孩子行动之志愿者大军](/content/gnews/1/README.md)
- ` 英喜-粵語組`
+### [中共真要打台湾的时候觉得它很疯狂](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【玫瑰看新闻】第201期 新中国联邦新闻](/content/gnews/2/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [由律师传讯的FDA记录显示，在COVID注射试验的前两个半月中，有超过15.8万起不良“事件”](/content/gnews/3/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [DC大中华时事：中共称绝不允许支持“台独”者在大陆赚钱](/content/gnews/4/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [每日快报：针对班农的藐视法庭案是对国会权力的滥用](/content/gnews/5/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [维州安德鲁政府强制疫苗政策， 未接种疫苗5-12 岁儿童将停课](/content/gnews/6/README.md)
- ` 走进澳洲`
-
-### [COVID-19 最新情报｜德国卫生部长发出威胁式警告：到冬季结束，德国人有三种选择：打针、治愈、死亡](/content/gnews/7/README.md)
+### [港闻前线｜加速大陆化 自选变官派 香港法援制度被颠覆](/content/gnews/2/README.md)
  ` G&#124;News TAIWAN`
 
-### [币圈新闻动态：31%的对冲基金经理计划将加密货币加到投资组合中](/content/gnews/8/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [疫苗改变了人类的一切](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [孩子打完新冠疫苗后，各种病痛触目惊心](/content/gnews/9/README.md)
- ` 纽约香草山MOS02`
+### [新闻述评：中共借打压远东国际炒作“台独顽固分子”](/content/gnews/4/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [海军造船承包商暂停了疫苗接种计划](/content/gnews/10/README.md)
- ` 墨尔本雅典娜农场`
+### [班农先生熬尽心思帮助中国人成立法治基金、法治社会](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共党媒警告立陶宛，将对台湾“诉诸军事手段”](/content/gnews/11/README.md)
- ` 墨尔本雅典娜农场`
+### [班农先生喜欢并且同情中国老百姓](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [100多个全球品牌仍在从维吾尔强迫劳动中获利](/content/gnews/12/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [新州长面对悉尼大规模反抗示威依然铁心不放宽政策](/content/gnews/13/README.md)
- ` 澳喜农场`
-
-### [针下亡魂｜德国 15 岁少女接种疫苗三周后死亡](/content/gnews/14/README.md)
- ` G&#124;News TAIWAN`
-
-### [前澳州副首席医疗官建议不要对12岁以下儿童接种新冠疫苗](/content/gnews/15/README.md)
- ` 首尔天池农场`
-
-### [恒大价值10亿美元股份进入香港结算系统](/content/gnews/16/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共国阜兴集团因集资诈骗和操纵市场被罚21亿](/content/gnews/17/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [澳洲北领地部长：没有让步，绝对实行强制疫苗政策](/content/gnews/18/README.md)
- ` 澳喜特战旅Gnews`
-
-### [从康美重罚看独董生态打破](/content/gnews/19/README.md)
- ` 澳喜农场`
-
-### [北领地公务员拒绝打疫苗被解雇，其他人却获得奖金](/content/gnews/20/README.md)
+### [一对因政治原因导致离婚的恩爱夫妻大S和汪小菲](/content/gnews/7/README.md)
  ` 走进澳洲`
 
-### [短视频：垂直整合供应链是应对供应困境的最佳设置](/content/gnews/21/README.md)
- ` 墨尔本雅典娜农场`
+### [日本采用污水分析法预测中共病毒感染](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳大利亚金融服务部长称，比特币绝不会昙花一现](/content/gnews/22/README.md)
- ` 走进澳洲`
-
-### [港闻前线｜港大医学院院长梁卓伟突请辞 马会履新闲职 港人讥诮“驱逐良币，劣币治港”](/content/gnews/23/README.md)
- ` G&#124;News TAIWAN`
-
-### [文·贵天成——文贵先生谈“董仚生”（一）](/content/gnews/24/README.md)
- ` 墨尔本雅典娜农场`
-
-### [报告建议澳洲应将日本视为应对中共 “最有利的伙伴”](/content/gnews/25/README.md)
- ` 走进澳洲`
-
-### [【Michael.Tonny专栏】FDA第一份辉瑞疫苗报告，前3个月15.9万起副作用事故](/content/gnews/26/README.md)
- ` 温哥华扬帆农场`
-
-### [Eglise医生新冠治疗的观察摘要](/content/gnews/27/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [德国STIKO: 30岁以下不建议接种莫德纳疫苗](/content/gnews/28/README.md)
- ` 澳喜特战旅Gnews`
-
-### [中共被逼债濒临外交绝境，新中国联邦广受各国欢迎](/content/gnews/29/README.md)
- ` 澳喜特战旅Gnews`
-
-### [生命的意义是什么？（第四集）](/content/gnews/30/README.md)
- ` 纽约香草山MOS03`
-
-### [GTV新闻访谈简报|2021年11月22日晚](/content/gnews/31/README.md)
+### [数万名未接种联邦雇员本周一失业 众议员抨击白宫强制接种令](/content/gnews/9/README.md)
  ` 纽约香草山MOS01`
 
-### [澳大利亚军队开始将中共病毒阳性病例和接触者转移到隔离营](/content/gnews/32/README.md)
- ` 秘密翻譯組G-Translators`
+### [【玫瑰看新闻】第201期 国际热点新闻](/content/gnews/10/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [警方说威州游行碾压案嫌犯涉及“内部纠纷”](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
+### [中共超限战灭港行动（86）守护孩子行动之志愿者大军](/content/gnews/11/README.md)
+ ` 英喜-粵語組`
 
-### [菲律宾总统对中共非法阻拦菲律宾补给船表示憎恨](/content/gnews/34/README.md)
- ` GTV新闻访谈`
+### [【玫瑰看新闻】第201期 新中国联邦新闻](/content/gnews/12/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [台湾智库建议：推进台湾版本的“军事质量优势”计划](/content/gnews/35/README.md)
- ` GTV新闻访谈`
+### [由律师传讯的FDA记录显示，在COVID注射试验的前两个半月中，有超过15.8万起不良“事件”](/content/gnews/13/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [11/22/2021 文贵盖特：全球股市和房价疯狂上涨，加密货币动荡的背后是大量洗钱](/content/gnews/36/README.md)
- ` 秘密翻译组-北美组`
+### [DC大中华时事：中共称绝不允许支持“台独”者在大陆赚钱](/content/gnews/14/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [法国总理已接种2剂疫苗，仍感染中共病毒](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [每日快报：针对班农的藐视法庭案是对国会权力的滥用](/content/gnews/15/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [秘翻在线：《周刊》杂志无耻抹黑、攻击班农先生](/content/gnews/38/README.md)
- ` 秘密翻譯組G-Translators`
+### [维州安德鲁政府强制疫苗政策， 未接种疫苗5-12 岁儿童将停课](/content/gnews/16/README.md)
+ ` 走进澳洲`
 
-### [国际刑警组织选举新领导 阿联酋、中共国人选受质疑](/content/gnews/39/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [COVID-19 最新情报｜德国卫生部长发出威胁式警告：到冬季结束，德国人有三种选择：打针、治愈、死亡](/content/gnews/17/README.md)
+ ` G&#124;News TAIWAN`
 
-### [文·贵天成——文贵先生谈“董仚生”（二）](/content/gnews/40/README.md)
+### [币圈新闻动态：31%的对冲基金经理计划将加密货币加到投资组合中](/content/gnews/18/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [孩子打完新冠疫苗后，各种病痛触目惊心](/content/gnews/19/README.md)
+ ` 纽约香草山MOS02`
+
+### [海军造船承包商暂停了疫苗接种计划](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [关于喜美元和喜币税务问题的思考](/content/gnews/41/README.md)
+### [中共党媒警告立陶宛，将对台湾“诉诸军事手段”](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [11/22/2021 文贵盖特：中共要完了！许多兄弟国家要求中共兑现其借款和一带一路的承诺](/content/gnews/42/README.md)
- ` 秘密翻译组-北美组`
-
-### [听听参与墨尔本抗争游行的普通人怎么说](/content/gnews/43/README.md)
- ` 澳喜农场`
-
-### [有声|中共舰艇军机频繁骚扰日本领海领空](/content/gnews/44/README.md)
- ` MOSREC`
-
-### [犹太法庭裁决：儿童接种新冠疫苗是非强制性的，由此导致的死亡视为谋杀](/content/gnews/45/README.md)
+### [100多个全球品牌仍在从维吾尔强迫劳动中获利](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [大宗商品专家：“食品通胀将持续到2022年”](/content/gnews/46/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [澳大利亚国防军参与控制北领地的新冠疫情](/content/gnews/47/README.md)
+### [新州长面对悉尼大规模反抗示威依然铁心不放宽政策](/content/gnews/23/README.md)
  ` 澳喜农场`
 
-### [秘翻在线: 数字人民币钱包限额大幅下降](/content/gnews/48/README.md)
+### [针下亡魂｜德国 15 岁少女接种疫苗三周后死亡](/content/gnews/24/README.md)
+ ` G&#124;News TAIWAN`
+
+### [前澳州副首席医疗官建议不要对12岁以下儿童接种新冠疫苗](/content/gnews/25/README.md)
+ ` 首尔天池农场`
+
+### [恒大价值10亿美元股份进入香港结算系统](/content/gnews/26/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共国阜兴集团因集资诈骗和操纵市场被罚21亿](/content/gnews/27/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [澳洲北领地部长：没有让步，绝对实行强制疫苗政策](/content/gnews/28/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [从康美重罚看独董生态打破](/content/gnews/29/README.md)
+ ` 澳喜农场`
+
+### [北领地公务员拒绝打疫苗被解雇，其他人却获得奖金](/content/gnews/30/README.md)
+ ` 走进澳洲`
+
+### [短视频：垂直整合供应链是应对供应困境的最佳设置](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [澳大利亚金融服务部长称，比特币绝不会昙花一现](/content/gnews/32/README.md)
+ ` 走进澳洲`
+
+### [文·贵天成——文贵先生谈“董仚生”（一）](/content/gnews/33/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [报告建议澳洲应将日本视为应对中共 “最有利的伙伴”](/content/gnews/34/README.md)
+ ` 走进澳洲`
+
+### [中共被逼债濒临外交绝境，新中国联邦广受各国欢迎](/content/gnews/35/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [GTV新闻访谈简报|2021年11月22日晚](/content/gnews/36/README.md)
+ ` 纽约香草山MOS01`
+
+### [澳大利亚军队开始将中共病毒阳性病例和接触者转移到隔离营](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [11/20/2021【1120三周年纪念】班农先生十分了解中共国，并十分热爱中国的老百姓](/content/gnews/49/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [警方说威州游行碾压案嫌犯涉及“内部纠纷”](/content/gnews/38/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [11/20/2021【1120三周年纪念】班农先生：平民运动不是某个阶层的运动，而是整个社会的运动](/content/gnews/50/README.md)
+### [菲律宾总统对中共非法阻拦菲律宾补给船表示憎恨](/content/gnews/39/README.md)
+ ` GTV新闻访谈`
+
+### [台湾智库建议：推进台湾版本的“军事质量优势”计划](/content/gnews/40/README.md)
+ ` GTV新闻访谈`
+
+### [法国总理已接种2剂疫苗，仍感染中共病毒](/content/gnews/41/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [秘翻在线：《周刊》杂志无耻抹黑、攻击班农先生](/content/gnews/42/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [国际刑警组织选举新领导 阿联酋、中共国人选受质疑](/content/gnews/43/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文·贵天成——文贵先生谈“董仚生”（二）](/content/gnews/44/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [关于喜美元和喜币税务问题的思考](/content/gnews/45/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [犹太法庭裁决：儿童接种新冠疫苗是非强制性的，由此导致的死亡视为谋杀](/content/gnews/46/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [大宗商品专家：“食品通胀将持续到2022年”](/content/gnews/47/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [澳大利亚国防军参与控制北领地的新冠疫情](/content/gnews/48/README.md)
+ ` 澳喜农场`
+
+### [秘翻在线: 数字人民币钱包限额大幅下降](/content/gnews/49/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [11/20/2021【1120三周年纪念】班农先生十分了解中共国，并十分热爱中国的老百姓](/content/gnews/50/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [联合国：飙升的运费将全球通胀推高1.5%](/content/gnews/51/README.md)

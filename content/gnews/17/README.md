@@ -2,30 +2,24 @@
 ---
 
 
-## 中共国阜兴集团因集资诈骗和操纵市场被罚21亿
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1687483/)
+## COVID-19 最新情报｜德国卫生部长发出威胁式警告：到冬季结束，德国人有三种选择：打针、治愈、死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1687587/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/640-3.jpg)中共国阜兴集团因集资诈骗和操纵市场被罚21亿 网络图片
-据路透社11月23日报道，曾领中共国证监会2020年“1号罚单”的“阜兴系”私募机构非法集资、操纵证券市场系列案迎来最终结局。上海市第二中级法院公开宣判，阜兴集团犯集资诈骗罪、操纵证券市场罪，被判处罚金21亿元人民币；董事长朱一栋和总裁赵卓权两人被判无期徒刑；其余被告人分别被判处三年至16年不等的有期徒刑。
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜23/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-阜兴集团是一家集商业地产、贸易和文化传媒等产业于一体的大型民营集团，旗下主要控制着上海西尚投资、上海意隆财富、上海郁泰投资、易财行财富等四家私募机构。2014年9月起，被告人朱一栋等人向社会公众非法集资，至2018年6月共计565亿余元，案发时未兑付本金共计218亿余元。2018年6月底，意隆财富公司人去楼空，高管失联，阜兴案由此爆发。
+近期，德国单日 COVID-19 确诊病例数屡破纪录，处于疫情爆发以来最危急的时刻，卫生部长延斯·斯潘（Jens Spahn）周一（22日）召开紧急新闻发布会，表示“到今年冬天结束，正如那些冷嘲热讽的言论一样，几乎所有的德国人，要么接种疫苗、要么治愈或者死亡。”他强调，这是他迄今为止对坚持不接种疫苗者发出的最严厉警告。
 
-中共国的体制就是假骗偷，互相欺骗，互相伤害，最终的受害者就是被中共洗脑梦想一夜暴富的愚昧又无辜的百姓。中共的经济已到山穷水尽的地步，再也没有能力玩转骗局，才会一个个暴雷。这种互害的体质不消灭，资金不安全，拥有资金的人更不安全。
+德国目前的疫苗接种率已接近七成，据罗伯特·科赫研究所 (Robert Koch Institute) 周一的报告指，德国每周每 10 万人仍有 387 例 COVID-19 确诊病例，创历史新高。很明显，斯潘部长将这一现象归咎于未接种疫苗的三成人身上。
 
-新闻参考链接：[https://cn.reuters.com/article/fuxing-penalty-executives-1123-tues-idCNKBS2I803U](https://cn.reuters.com/article/fuxing-penalty-executives-1123-tues-idCNKBS2I803U)
+关于疫苗安全性的问题，斯潘否认了民众对卫生部门有刻意掩盖疫苗伤亡个案的指控，他引述德国疫苗监管机构的负责人 Klaus Cichutek 的评论，“疫苗在安全性方面没有问题，副作用方面更是罕有发生，每 10 万例不到 10 例。”
 
-* * *
+他认为，BioNTech 和 Moderna 疫苗是 COVID-19 疫苗的梅赛德斯和劳斯莱斯，呼吁民众选择时，可考虑优先接受 Moderna，因为大量 Moderna 疫苗将在 2022 年初到期。斯潘又指，到今年年底，德国将有 5000 万剂冠状病毒疫苗可用——其中 2400 万剂来自 BioNTech，其余 2600 万剂来自 Moderna，“这就是为什么我们如此迫切地建议接种疫苗。”
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+**最后，他还补充指，料欧盟将在本周末批准将疫苗用于 5 至 11 岁儿童。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-15.jpg)
+来源｜[Politico](https://www.politico.eu/article/jens-spahn-germany-biontech-pfizer-covid-19-vaccination/)
 
  
 

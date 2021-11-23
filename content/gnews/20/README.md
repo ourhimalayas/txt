@@ -2,43 +2,51 @@
 ---
 
 
-## 北领地公务员拒绝打疫苗被解雇，其他人却获得奖金
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1687425/)
+## 海军造船承包商暂停了疫苗接种计划
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1687549/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-45.jpg)图片来源：网络图片
+翻译：love miles
+编辑：李易通
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/r359_124_1511_764_w1200_h678_fmax.jpg)
+一家海军造船公司在工人威胁要辞职后终止了其疫苗授权，并且海军证实不要授权了。
 
+亨廷顿英格尔斯工业公司（HII）是纽波特纽斯造船厂的母公司，是世界唯一一家美国海军核动力航母的制造商。该公司还是弗吉尼亚州和哥伦比亚州潜艇的制造商之一，在弗吉尼亚雇佣了25000多名工人。
 
+该船厂此前曾宣布计划，要求其所有25000名工人在12月8日之前完全接种疫苗。最后的期限推迟到1月4日，以便留出更多时间。
 
-图片来源：www.katherinetimes.com.au
+随着上面的要求的结束，截止日期目前已“暂停”。
 
+11月17日，总裁兼首席执行官迈克·佩特斯 (Mike Petters) 在给员工的一封信  中写道：“我们不想因为病毒或疫苗授权的影响而失去任何一名员工。”
 
-#### 编译：小红帽
+“重要的是，关于英格尔斯造船厂和纽波特纽斯造船厂，我们的客户已确认，合同不包括实施疫苗授权的要求。技术解决方案的员工则处于不同的情况，他们要根据特定的合同面临不同的要求。”
 
-在北领地，数百名因拒绝接种中共病毒（COVID-19）疫苗而被解雇的公务员的工资可以用来为其他员工支付价值1万美元的 “奖金”。
+公司继续鼓励员工接种COVID-19疫苗，但不再强制要求雇员接种疫苗。
 
-资金紧张的北领地政府正试图实施公务员工资冻结，作为预算措施的一部分，旨在四年内节省4.24亿美元。为了让员工同意这项紧缩措施，政府之前提出了1000美元的年度奖金。
+一些员工告诉当地媒体WTKR-News3，觉得自己被骗了，因为他们按照疫苗授权计划接种了全部新冠疫苗，但现在不再适用了。
 
-但这一提议最近被北部地区24,000名公务员中的大多数人拒绝，因为四年后雇员仍将保持现有的工资。
+“他们让我必须打疫苗然后又说不适用了”，NII的员工Deshawn Royal告诉媒体。“我不想打疫苗，但他们要求必须打，否则就会被解雇。然后他们又说你们误会了。”
 
-周一，首席部长迈克尔·冈纳（Michael Gunner）向所有员工发送了一封电子邮件，概述了政府的新提案。
+另一名HII的员工Rodney Apop说：“他们很疑惑但没有跳槽的机会。”
 
-根据修订后的计划，员工将在第一年获得4000美元的奖金，并在随后的三年中每年获得2000美元的奖金。新建议的资金将来自于政府的疫苗强制令造成的人员配备减少。
+“现在当他们取消了疫苗授权时，大家多么希望没有被强迫打疫苗。”
 
-冈纳说，约有400名公务员因未按要求接种中共病毒疫苗而被解雇。其中一些职位将被重新填补，但约300名离职人员的工资将由其他公务员通过奖金分享。
+此举是在当地造船工会USW Local 8888公布其关于临时合同协议的调查结果之后发生的。该协议以1312票对684票被否决。
 
-北领地反对派尚未对政府的修订工资政策发表评论。
+工会在信中写道：“世界上最好的造船商对公司期望更高和所获得的回报也应该越多，并希望谈判者回到谈判席达成交易。”
 
-**参考新闻：**[NT public servants offered new wages deal as 400 staff dismissed for refusing COVID-19 vaccine (msn.com)](https://www.msn.com/en-au/money/markets/nt-public-servants-offered-new-wages-deal-as-400-staff-dismissed-for-refusing-covid-19-vaccine/ar-AAQZ6GY?ocid=msedgntp)
+信中指出，如果需要与公司领导进行谈判，工会仍准备罢工。
 
-***发布：小红帽***
+工会的官员没有立即回应大纪元时报的相关评论。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+文章来源：[https://www.theepochtimes.com/navy-shipbuilding-contractor-suspends-vaccine-mandate-after-workers-threaten-to-leave\_4113793.html](https://www.theepochtimes.com/navy-shipbuilding-contractor-suspends-vaccine-mandate-after-workers-threaten-to-leave_4113793.html)
+
+发布：kk
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

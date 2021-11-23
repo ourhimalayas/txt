@@ -2,26 +2,37 @@
 ---
 
 
-## 恒大价值10亿美元股份进入香港结算系统
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1687501/)
+## 维州安德鲁政府强制疫苗政策， 未接种疫苗5-12 岁儿童将停课
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1687596/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-22.jpg)恒大价值10亿美元股份进入香港结算系统 网络图片
-据看中国11月23日报导，在香港上市的恒大价值近10亿美元股份出现在香港的中央结算及交收系统，意味着公司创始人许家印可能把他所持股份的一部分作为抵押而获得贷款。
+**【雅典娜快讯】，紧贴时事脉搏**
 
-此前，中共要求许家印动用部分个人财富用于帮助给债券持有人的支付款项。在中共国不存在私人财产不受侵犯的概念，只有党管一切，一切都是党的，党让你干啥就干啥。在一个连私人财产都得不到保护的国家，几乎所有人都是集权者的待宰羔羊。接下来，会有越来越多像许家印这样的企业家被剥夺私人财产，甚至家破人亡。只有认清共产党邪恶的本质，抛弃幻想和新中国联邦站在一起，才是拯救自己和家人最好的出路。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5823-8.jpg)圖片來源：Healthline & Reuters
 
-新闻参考链接： [https://www.secretchina.com/news/gb/2021/11/23/990313.html](https://www.secretchina.com/news/gb/2021/11/23/990313.html)
+**编译：钢豆**
 
-* * *
+批评家们对维洲新引进的漏洞百出的疫苗规定做出了严厉抨击。此规定允许未打疫苗的中学生可以参加毕业典礼和郊游之类的活动，但是不允许到校服店去。12-15岁的学生可以暂时不受疫苗强制令的约束，可以参加野营，毕业典礼和郊游之类的活动。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+此规定受到两个前卫团体的反击：一类团体说此规定做的不够， 另一类说此规定将造成群体分化。
+
+当5-11岁孩子必须打疫苗后， 人们将会看到“不打不可以玩”的政策出台。
+
+新规定引起家长们的愤怒。卫生部长Martin Foley 拒绝否认如果维州儿童的父母对接种新冠疫苗有迟疑，他们的孩子将被排除在集体之外。
+
+然而， Foley先生对记者说直到疫苗被证实对儿童确实安全和有效，才会做出决定让儿童打疫苗。 联邦政府已经呼吁洲政府们要宽松当下的强制疫苗政策。
+
+原文链接：[news.com.au](https://www.news.com.au/national/victoria/news/andrews-government-refuses-to-rule-out-vaccine-mandate-for-children-aged-five-to-11/news-story/8194be19ed48cd5c11244a3f27cd4a1c)
+
+*发布：盘古相聚*
+
+**更多咨讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
 
