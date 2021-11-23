@@ -2,69 +2,55 @@
 ---
 
 
-## CNN在讨论彭帅时被中共国切断现场信号
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1689586/)
+## 日本将拨款52亿美元资助台积电和其他芯片制造商
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1689658/)
 
-翻译：**Lulumi**
+作者：纽约香草山农场 – 四季
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-623.png)图片来源: newsweek.com
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-中共国似乎已经切断了CNN在该国的广播信号，因为它报道了网球明星彭帅的故事。
 
-本月早些时候，35岁的彭帅从公共生活中消失了，人们对她的健康状况表示担忧。
 
-这是在一名中共国高级官员（张高丽）被指控性侵犯后发生的。
 
-此后，彭帅重新出现在公众面前，并在周日出现在北京的一个青年网球比赛中。
 
-然而，CNN新闻主持人约翰·伯曼被迫解释说，中共国在CNN报道彭帅事件的直播中对该频道进行了审查。
+据日经新闻11月23日报道，日本将从其2021财年补充预算中拨款约6000亿日元（52亿美元），以支持包括世界第一大合约芯片制造商台湾积体电路制造有限公司（台积电）在内的先进半导体制造商。
 
-在与记者威尔·里普利交谈时，伯曼说：“我只想向我们的观众解释一下现在屏幕上正在发生的事情。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1490-1-2021-11-23T131428Z_1_LYNXMPEHAM0JC_RTROPTP_0_SONY-TSMC_1.jpg) 摄于台积电台湾新竹总部的台积电公司（TSMC）标志（REUTERS/Ann Wang）
 
-“在你的脸部下方，他们可以看到一个方框，实际上是这次在中共国的直播画面，但都是彩条。”
+作为刺激计划的一部分，日本政府将投资约4000亿日元给台积电在日本西南部熊本县设立的新工厂。
 
-“你一开始说话，它就变成了彩条。这到底是怎么回事？”
+报道称，剩余的2000亿日元将用于建立其他工厂，正在考虑中的项目包括美国内存芯片制造商美光科技公司和日本的铠侠控股株式会社（Japan’s Kioxia Holdings）。
 
-里普利强调了他在中共国多年报道经历所面临的困难。
+日本的芯片制造行业的规模在20世纪80年代为世界之最，尽管其一直在努力保持其竞争优势，但在过去30年里仍持续下降，而与此同时，台湾制造商等竞争对手则获得了发展。
 
-他说，在彭帅的问题上，国际社会对北京的压力持续上升。
+**参考阅读：**
 
-里普利说：“在过去8年的亚洲报道中，我已经数不清CNN因对争议问题的报道而被审查了多少次。”
+[Japan to allocate $5.2 billion to fund chip plants by TSMC, others – Nikkei | One America News Network (oann.com)](https://www.oann.com/japan-to-allocate-5-2-billion-to-fund-chip-plants-by-tsmc-others-nikkei/)
 
-“然而，这是一个正在发生的例子，说明中共国正在发生的审查制度。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
 
-“他们把彭帅从互联网上抹去，他们当然不会在电视甚至在国际网络上谈论此事。”
+编辑/校对/发稿：小鹿
 
-“他们有一支审查员大军，一旦我们开始谈论这个故事，他们就会按下这个按钮。但这并没有使这个故事消失。”
 
-“由于世界各地记者的努力，外界对北京的压力仍在增加。”
 
-彭帅还在周日与国际奥委会（IOC）进行了交谈。
+**更多资讯，更多关注**
 
-国际奥委会在通话后发表了一份声明，并表示彭帅似乎很安全。
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-624.png)图片来源: newsweek.com 2020年5月28日，中国国家主席习近平在中国北京人民大会堂举行的全国人民代表大会闭幕会上听取了关于香港新安全法案草案的表决。Kevin Frayer/Getty Images
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-国际奥委会补充说，这位网球明星“感谢国际奥委会对她健康的关注。”
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-该声明还说：“她解释说，她现在很安全，住在北京的家里，但希望在这个时候尊重她的隐私。”
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-“她现在更愿意把时间花在朋友和家人身上。尽管如此，她将继续参与网球运动”。
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
-一些抗议者最近走上纽约街头，支持这位网球明星。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-活动组织者Crystal Chen（她选择不使用真实姓名）接受了BBC的采访，她说彭帅在中共国“没有真正的自由”。
 
-她补充说，彭帅“不能在安全的环境里说出她想说的话”。
 
-新闻来源： [newsweek.com] [CNN Has Broadcast Cut Live by China Censors While Discussing Peng Shuai](https://www.newsweek.com/china-cnn-censor-peng-shuai-tennis-1651898)
 
-* * *
 
-*审核：文乐 
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
