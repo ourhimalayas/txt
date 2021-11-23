@@ -2,26 +2,51 @@
 ---
 
 
-## 美传媒大亨呼吁CNN回归正确的新闻价值观
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1687094/)
+## 接种辉瑞疫苗最初两个半个月，美国收到近16万例不良反应报告
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1687120/)
 
-采编：文明   编译撰稿：文明(添草灭共)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-56-edited.jpg)图片来源：BILLBORD
+作者：纽约香草山医疗部 – 云豹
 
 
-据美国媒体【newsmax】11月21日报道，美国【自由媒体集团】创始人，著名传媒大亨约翰-马龙在当天接受美国【CNBC】电视台采访时表示，他希望左翼主媒【CNN】不仅能回归到其最初所具备的“自由、独立”新闻价值观，而且还可以拥有真正优秀的新闻记者。 
 
-据悉，美国【AT&T公司】在今年5月已将其所属的【时代华纳】与【探索频道】合并成立了“有望成为全球第三大主流媒体公司”的【华纳兄弟探索频道】，而【CNN】则是其中最主要的新闻媒体平台。 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-报道指出，在此前的美国总统竞选期间，由于CNN连续进行了几年虚假和不准确的“蓄意误导性”报道，而使其收视率在近一年内下降了50%以上。尽管最新民意调查显示，约有47%的注册选民认为CNN在其报道中持有偏见，但该主流媒体高层却始终对此无动于衷的做法无不让马龙深感忧虑。
 
-* * *
 
-校对编辑，发稿：硫酸羟氯喹64
+近日，美国律师阿隆·喜利收到FDA提供的部分档案。其中显示，截至2021年2月28日，辉瑞疫苗开始注射的最初两个半个月内，总共收到15万8千893例不良反应。其中有1223例是死亡，520例是后遗症。
 
-原文链接：
-https://www.newsmax.com/politics/johnmalone-cnn-warnerbros-discovery/2021/11/21/id/1045596/
+女性出现不良反应的次数是男性的3.25倍。出现最大量不良反应的人群是在31到50岁。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-9.jpg)
+最常出现不良反应的身体部位，依次是神经系统，肌肉骨骼结缔组织系统，肠胃系统，呼吸系统，皮肤及皮下组织。
+
+出现比较多的不良反应症状有淋巴结病变、心跳加速、恶心、发烧、冷颤、呼吸困难、皮肤搔痒红疹等。
+
+参考链接：
+[FDA Records Subpoenaed By Attorney Shows Over 158,000 Adverse “Events” In First 2.5 Months of COVID Shot Trials](https://www.redvoicemedia.com/2021/11/fda-records-subpoenaed-by-attorney-shows-over-158000-adverse-events-in-first-2-5-months-of-covid-shot-trials/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：飞虹
+编辑：木白
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

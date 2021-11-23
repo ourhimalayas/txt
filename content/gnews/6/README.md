@@ -2,25 +2,48 @@
 ---
 
 
-## 抗议政府“疫情暴政”的示威浪潮在全球范围内爆发
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1687177/)
+## 中共网球运动员神秘失踪后，汤姆·科顿做出预警
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1687185/)
 
-采编：Ucool优酷     编译撰稿：硫酸羟氯喹64
+![U.S. Sen. Tom Cotton (R-AR) speaks during U.S. Attorney General nominee Merrick Garland's confirmation hearing in the Senate Judiciary Committee on Capitol Hill on February 22, 2021 in Washington, DC. Garland was previously the Chief Judge on the U.S. Court of Appeals for the D.C. Circuit and former President Barack …](https://media.breitbart.com/media/2021/11/GettyImages-1231326590-640x480.jpg)*阿肯色州参议员汤姆·科顿*
+阿肯色州参议员汤姆·科顿抨击 2022 年北京奥运会，警告世界运动员前往中共国有多么危险，起因一名中国网球运动员指控一名政府高官强奸，而后神秘失踪。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/b-5-edited.jpg)图片来源：零对冲
+参议员科顿周四发布推文是对美国网球明星塞雷娜-威廉姆斯（Serena Williams）呼吁在中共国对彭帅失踪一事追究责任的回应。威廉姆斯告诉《今日美国》，她对彭帅突然从公众面前消失的消息感到“震惊和诧异”。 “我希望她是安全的，并尽快找到。必须对此事进行调查，我们不能保持沉默，“威廉姆斯补充道。
+
+科顿对威廉姆斯和所有计划在中共国参加种族灭绝运动的美国运动员发出了更可怕的警告。
+
+科顿警告说：“如果中国共产党人让他们自己的运动员失踪，想想他们在奥运会期间对我们运动员的安全会有多少关心。”
+
+女子网球协会（WTA）也呼吁对彭帅的下落和安全进行全面调查。
+
+与塞雷娜·威廉姆斯一起，美国网球明星大坂直美也谈到了这位中国球员的失踪。
+
+大坂周二在推特上写道：“审查制度在任何情况下都是不可信赖的，我希望彭帅和她的家人平安无事。” “我对目前的情况感到震惊，我正在向她发送爱和照亮她的路。”
+
+克里斯-埃弗特（Chris Evert）是另一位在社交媒体上呼吁对这名中国球员的情况进行调查的网球高手。
+
+最后，网球传奇人物比莉·简·金（Billie Jean King）也在推特上表达了对彭帅安全的担忧，“希望彭帅安全归来，她的指控可以得到全面调查。”金还赞扬了 女子网球协会（WTA） 为彭帅发言。
+
+简评：
+
+这篇文章说明曾经的著名网球运动员彭帅一条微博掀起了中共罪恶丑陋的一角，惹得中共媒体各种洗地，用最流氓的手段让彭帅本人消失在大众的视野中，不允许发声不允许出现任何信息，作为曾经的网坛名将引起国际社会的关注，中共国是一个流氓政府，其手段极其卑劣，在中共国没有自由，民主和法治一旦你触碰了他们的利益就会让你凭空消失西方越来越多的人已经觉醒，看透中共的丑恶嘴脸，中共势必走向灭亡。
+
+News Link:[https://www.breitbart.com/sports/2021/11/19/tom-cotton-issues-ominous-warning-us-olympic-athletes-after-chinese-tennis-players-mysterious-disappearance/](https://www.breitbart.com/sports/2021/11/19/tom-cotton-issues-ominous-warning-us-olympic-athletes-after-chinese-tennis-players-mysterious-disappearance/)
+
+翻译: Johnston2021
+
+简评/PR: 小小妹
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-据欧洲知名自媒体《零对冲》11月22日报道，成千上万名热爱自由的民众日前在欧洲各地集会游行，以此反抗当局最新公布的各种暴虐的公共卫生防疫法规。
+编辑：【英国伦敦喜庄园编辑部】
 
-本次全球自发的反政府示威活动，除了在奥地利、意大利、英国、法国、德国和荷兰等大部分欧洲国家之外，加拿大、澳大利亚、日本，以及美国的一些主要城市也都出现了反对当局疫情限制措施的抗议浪潮。
-
-报道称，在周末发生的集会游行中，欧洲许多城市的抗议者都一致为维护自己的生命安全和健康自由而战斗，并以此对抗各国政府试图通过增加封锁隔离、疫苗护照和强制接种等极权手段对广大公众基本权利的剥夺。
-
-报道最后指出，人们已开始觉醒，并逐渐意识到当局的暴政正在侵犯和剥夺他们的生活和自由。由于全球精英及其政治傀儡官员们正在变得比以往任何时候都更为邪恶，因此，尽管各国人民与其政府之间日益增长的对抗情绪是危险的，但也许这就是革命的开始。
-
-原文链接：
-
-[https://www.zerohedge.com/political/well-never-give-protests-erupt-across-europe-over-govt-covid-tyranny](https://www.zerohedge.com/political/well-never-give-protests-erupt-across-europe-over-govt-covid-tyranny)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
