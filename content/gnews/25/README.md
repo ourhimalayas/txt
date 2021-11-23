@@ -2,32 +2,63 @@
 ---
 
 
-## 捷克民众抗议限制未接种者政策，为“自由”大声疾呼
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1689360/)
+## 白厅安全部门发现其伦敦总部的设备是由海康威视提供
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1689396/)
 
-随着欧盟国家中共病毒感染人数激增，当地时间11月22日，捷克首都布拉格爆发游行，抗议者谴责政府对未接种疫苗者采取限制措施。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/112204-1.jpg)图片：来自美联社资料
+来自《每日邮报》2021年11月21日报道
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-15.jpeg)
+**摘要翻译：**
 
-新措施于游行当天生效。此后，未接种疫苗者即使出示中共病毒检测阴性证明，也不再被允许前往酒吧、餐馆、理发店、酒店等公共场所。而已接种疫苗者，或已从中共病毒中康复者则不受此限制。据报道，这些措施的批准，旨在提高该国目前低于欧盟平均水平的疫苗接种率。
+据《星期日邮报》透露，内政部的老板们发现伦敦总部的闭路电视装置是由一家有争议的中共国公司制造后，面临安全恐慌。
 
-近日，捷克共和国的中共病毒感染率急剧上升，上周两次创下新纪录。捷克全国1070万总人口中，确诊病例已超过2百万，其中3万2千173人死亡。
+此监控摄像机，被认为是安装在其马舍姆街大楼的大厅里，伪装在外面的品牌是霍尼韦尔，正在被更换。
 
-参考链接：[Czech protesters demand ‘freedom’ as new COVID restrictions go into effect for the unvaccinated](https://www.foxnews.com/world/czech-protesters-covid-restrictions-unvaccinated?utm_source=ground.news&amp;utm_medium=referral)
+它是由部分中共国有的大华公司制造的，该公司被美国当局列入黑名单，无法向国家当局出售监控摄像机。该禁令于2019年实施，也适用于另一家中共国监控公司海康威视。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+据称，两家公司的技术都被用于镇压中国的穆斯林维吾尔人。美国当局还担心这些公司会因为与中共国政府的联系而成为国家安全问题，但这些公司的老板否认了这一说法。
 
-总编：文徬
-编辑：小鹿妞妞
-校正/发稿：谐趣园
+内政部的发现是在英国政府未能批准国会议员禁止这些公司的提议之后发生的。上周修订后的摄像头监控代码被提交到了议会，但没有包含一项人权条款，禁止从与侵犯人权行为有关的公司购买设备。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+上周，海康威视的英国负责人贾斯汀·霍利斯向供应商发出了一封标有“机密”字样的幸灾乐祸的信件，大肆宣扬禁令未能通过。他写道：“我们很高兴英国政府在做出这一决定时是由事实而非政治主导的。
+
+“这对全国所有使用海康威视视频监控产品和安全解决方案来保护其财产、员工、客户和亲人的企业来说都是个好消息。”
+
+但英格兰和威尔士的生物识别和监控摄像头专员弗雷泽·桑普森说：“政府已经认识到中共国正在发生的事情，他们也认识到需要指引，此外，明年将有一项关于公共采购的法案将处理这些问题 。
+
+“我不明白这为什么是海康威视的胜利，我发现他们声称要庆祝好消息，但将其这封信标记为机密，这就很不寻常了。
+
+外交事务委员会主席、保守党议员汤姆·图根哈特说：“我很难看出在公共部门继续使用海康威视的监控摄像机如何符合英国的利益。
+
+我们有可靠的证据表明海康威生产的监控摄像机就安装在新疆的拘留营。
+
+闭路电视摄像机在我们的生活中起着至关重要的作用，我们不应该依赖一家由专制国家支持的公司。
+
+昨晚，内政部表示不会就安全问题发表评论。大华没有回应置评请求，而海康威视拒绝置评。
+
+**简评：**
+
+根据2019年《纽约时报》报道，海康威视的监视器已经安裝在新疆的清真寺和拘留营中。在国际商务交往中，它们伪装成民营公司，实际是中共国军方企业，在全世界利用其设备搜集情报和信息，自由世界国政府和人们需要睁大眼睛来防范其罪恶的行径，保障自身国家安全。
+
+新闻链接：[Whitehall security scare after discovering CCTV in London HQ was made by Chinese firm Dahua](https://www.dailymail.co.uk/news/article-10225833/Whitehall-security-scare-discovering-CCTV-London-HQ-controversial-Chinese-firm.html)
+
+***编辑**: 希望*
+
+***校对**: clau*
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
