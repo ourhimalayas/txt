@@ -2,24 +2,25 @@
 ---
 
 
-## 1120纪念大直播班农先生寄语：新中国联邦一定会赢
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1688738/)
+## 有声|喜马拉雅币一周分析
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1688777/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11.20三周年纪念大直播中，班农先生指出法治基金成立仅三年，新中国联邦的成立才18个月，但在短时间内，新中国联邦创造出了盖特、GNEWS，GTV、喜币等媒体及金融平台，爆料革命正一步步走向胜利，一定会大获全胜。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-23-下午9.24.35.png)
-班农表示，中共的谎言已破碎，中共在德国、伦敦、华尔街等世界各地渗透的同伙正在崩溃。中共为民众建立网络防火墙，不给中国人一人一票的选举，都暴露着中共的不自信和脆弱。对比中共，中国联邦人能力卓越、学识丰富、坚强执着，具有奉献精神。新中国联邦的崛起吓坏了中共。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+过去一周喜马拉雅币价格从约$30上涨至最高约$40，目前回落至约$37，一周内最高涨幅突破33%。喜马拉雅币上市以来交易量突破1800万枚 ，占今年总发行量仅约1.8%。目前大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
 
-直播中，郭文贵先生赞同班农，并补充道，新中国联邦人要坚信三个原则：一是上帝永远会赢，二是真理永远会赢，三是新中国联邦永远会赢。
+郭文贵先生在直播中透露，喜支付将很快上线，喜币将在全球可以随时自由交换，喜币的抵押贷款功能也会在几个月内推出。美加日地区将很快开通KYC，在此之前喜币价格的上涨都还远远没有开始。
 
-参考链接：[11/20/2021【1120三周年纪念】班农先生：法治基金虽然还很年轻，但中共及其同伙已魂飞胆丧，新中国联邦注定会赢](https://gnews.org/zh-hans/1684124/)
+另外本周一阿联酋迪拜的Danube Properties地产开发公司已经签署协议，同意接受喜币喜美元购买该公司开发的任何房产。Danube是阿联酋排名前十的房地产开发商，还是迪拜排名第一的建筑材料供应商。据郭文贵先生直播中透露，随着喜币进入流通领域，以及G-Fashion与G-Club的实体化发展，各类实体店都将接受喜币支付，喜币的价值将达到之前不可想象的高度，并改变人类的生活方式，三年后必将超越比特币。郭先生建议喜币的投资者可以在明年5月份卖出一点应对维持生活的需要，一年后可以考虑拿一部分做抵押，而喜币真正的价值只有在2-3年后才能显现出来。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-总编：AN
-编辑：木白
-校正/发稿：呼吸的雾霾（文小呼吸）
+
+文字版原文：[喜马拉雅币一周分析](https://gnews.org/zh-hans/1685883/)
+
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -27,7 +28,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

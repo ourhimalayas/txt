@@ -2,32 +2,45 @@
 ---
 
 
-## 有声|新中国联邦需要培养更多人才
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1688778/)
+## 11/23/2021国际财经快讯：拜登打赌美联储鲍威尔将引领美国经济全面复苏;美元稳定在16个月高点附近
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1688787/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在“1120”三周年纪念大直播中，班农先生与多位年轻战友畅谈。班农先生认为，未来新中国联邦最重要的事，是培养更多创业者、科学家和懂得技术的人。因为未来是由技术驱动的，而且中国人非常擅长。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-104.png)[图片来源](https://list23.com/img/biden-bets-fed-s-powell-can-usher-in-full-u-s-economic-recovery.jpeg)
+**1.****拜登打赌美联储的鲍威尔能够迎来美国经济全面复苏**
 
-班农先生说，中共所做的一切都是为了榨取价值，摧毁并剥夺中国人的创造力。未来新中国和新中国人需要有创业精神的企业家，熟悉商业、金融、和市场营销的人才，以及懂得利用技术和应用技术创造价值的人才。班农先生从G系列各个团队中，看到新中国联邦人正朝着正确的方向发展。
+[华盛顿，11月22日（路透社）–美国总统拜登周一提名美联储主席杰罗姆-鲍威尔担任第二个四年任期，将这位前投资银行家定位为继续进行20世纪70年代以来最具影响的货币政策改革，并完成引导经济走出大流行危机的工作。白宫表示，美联储董事会成员莱尔-布雷纳德(Lael Brainard)将担任副主席，他是该职位的另一个最佳候选人。这两项提名结合在一起，使两位货币政策的老手和最近美联储政策改革的合作者结成一对，将重点从大约四十年前确立的对通货膨胀的首要关注转移到就业上。他们的挑战将是保持美国的就业增长，同时也确保最近的强劲通货膨胀不会变得根深蒂固。](https://www.reuters.com/markets/us/powell-tapped-second-term-fed-chair-2021-11-22/)
 
-班农先生希望，未来有更多接受过高等教育的中国人，有机会到美国和西方国家的公司里工作。
-在法治和知识产权保护下，在自由和民主的环境里，中国人将向世界展示，参与并创建伟大的公司，享有更好的工资待遇和公司所有权。
+**2.****美元稳定在16个月高点附近；新西兰元走弱 **
 
-文字版原文：[新中国联邦需要培养更多人才](https://gnews.org/zh-hans/1685751/)
+[伦敦，11月23日（路透社）–在美联储主席杰罗姆-鲍威尔（Jerome Powell）被选中连任后，美元指数周二持于16个月高点附近，强化了市场对美国将在2022年升息的预期。近几个月来，货币市场主要是由市场对全球央行减少大流行时期的刺激措施和提高利率的不同步伐的看法所推动。Monex Europe的外汇市场分析师Ima Sammani说：”在这种环境下，市场正在接受他们能得到的每一个美元强势故事，这在鲍威尔被广泛预期连任后的走势中可以看到。“Sammani说，美元走强也是由于美国前端收益率上升，这可能是由美联储决策者的评论引起的。其中包括亚特兰大联储主席Raphael Bostic，他在周一表示，加快缩减资产购买的速度可能会给美联储在2022年加息带来更多空间。](https://www.reuters.com/markets/europe/dollar-hits-16-month-high-expectations-2022-us-rate-rise-2021-11-23/)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
+**3.一项英国商业调查为加息“开绿灯**”
 
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+[伦敦（路透社）–根据一项受到密切关注的商业调查，英国企业本月报告的新订单增长速度是6月以来最快的，同时成本压力也创下新高，这可能为英国央行在12月升息铺平道路。周二公布的IHS Markit/CIPS快报综合采购经理人指数（PMI）从10月份的最终读数57.8下降到11月份的57.7。但这仍然表明增长强劲，比路透社调查中经济学家的平均预测值高出一截。金融数据提供商IHS Markit的首席商业经济学家Chris Williamson说：“持续的商业增长、就业市场的进一步增长和创纪录的通货膨胀压力的结合，为12月的利率上升开了绿灯。”](https://www.oann.com/uk-business-survey-gives-green-light-for-rate-rise-ihs-markit/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+**4.****德国11月商业活动回升，价格压力创历史新高**
+
+[柏林（路透社）–周二的一项调查显示，德国私营部门的增长在11月略有加快，但制造业持续的供应瓶颈继续拖累工厂产出，并将通胀压力推升至前所未有的高点。IHS Markit的德国综合采购经理人指数从10月份的52.0上升到52.8，创下两个月来的新高。这比路透社对分析师的调查要强，后者曾预测11月份会下降到51.0。读数高于50标志着活动的增长。IHS Markit经济学家Lewis Cooper说，数据显示，在过去三个月里，德国私营部门的经济增长放缓正在趋于平缓。这个欧洲最大经济体的出口订单显示出更有弹性的趋势，但总体而言，新工作的增长速度是2月以来最弱的。制造业快报PMI从上月的57.8降至57.6，创10个月新低。](https://www.oann.com/german-business-activity-picks-up-in-november-as-price-pressures-hit-record-high-pmi/)
+
+**5.****11月法国商业活动强于预测**
+
+[巴黎（路透社）–一项月度调查的初步估计显示，法国11月商业活动的扩张速度超过预期，欧元区第二大经济体的服务业出现了近四年来的最快增长。数据编制机构IHS Markit周二表示，其11月份法国服务业采购经理人指数（PMI）快报为58.2点，高于10月份的56.6点。服务业的读数超过了预测的56.0点，并使该指数进一步高于标志着活动扩张的50点门槛。法国11月制造业PMI指数从10月的53.6点上升至54.6点，也超过了预测的53.0点。包括服务业和制造业在内的11月速报综合PMI指数从10月的54.7点升至56.3点，高于预测的53.6点。](https://www.oann.com/french-business-activity-stronger-than-forecast-in-nov-flash-pmi/)
+
+**6.****瑞士财富管理公司Julius Baer称客户活动仍在放缓**
+
+[苏黎世（路透社）–瑞士私人银行Julius Baer周一早盘股价下跌近5%，此前该行称今年的客户活动持续放缓。这家瑞士第三大上市银行的财富管理公司还表示，与2021年上半年相比，来自经纪佣金和金融工具的利润率有所下降。财富管理公司在2020年期间享受到了繁荣，因为较低的消费加上政府转移支付的可支配收入增加，使家庭能够储蓄和投资更多。股票和住房价格的飙升也使一些家庭更加富有。2021年前10个月的毛利率为82个基点，低于一年前的88个基点，反映了瑞士宝盛将客户活动从上一年的“异常”高水平“软化”。](https://www.oann.com/swiss-wealth-manager-julius-baer-says-client-activity-still-slowing/)
+
+**7.****百思买预测假日季度销售额低于预期，股价下跌**
+
+[11月23日（路透社）–百思买公司（BBY.N）周二预测第四季度的可比销售额低于分析师的预期，因为这家电子产品零售商准备在关键的假日购物季中应对可能出现的产品短缺的打击。该公司股价在盘前交易中下跌9.4%至125美元。由于航运阻塞、亚洲工厂停工和原材料匮乏，全球供应链受到冲击，导致产品短缺，零售商面临巨大的压力，需要为假日季节保持货架上的库存。电子产品中使用的半导体芯片的短缺影响了一些高需求产品的供应，包括索尼公司（6758.T）、任天堂有限公司（7974.T）和微软公司（MSFT.O）的最新游戏机。](https://www.reuters.com/business/retail-consumer/best-buy-forecasts-holiday-quarter-comparable-sales-below-estimates-2021-11-23/)
+
+**8.****因库存紧张美国****“****黑色星期五****”****期限被迫延长**
+
+[芝加哥，11月23日（路透社）–面对年终库存的稀缺和工人的短缺，零售商正在将 “黑色星期五 “变成一个长达一个月的活动。全球最大的零售商沃尔玛周一表示，它已经开始了 “黑色星期五 “的折扣活动，如AirPods和KidKraft娃娃屋的30美元折扣。沃尔玛的商店将连续第二年在感恩节关闭，它说它只会在星期五在商店里提供同样的折扣。竞争对手大卖场零售商塔吉特(Target)周日开始进行自己的黑色星期五促销，如三星和TCL平板电视最高7折，耳机5折。塔吉特周一表示，从现在开始，它将在感恩节关闭其所有大约1900家商店。](https://www.reuters.com/business/retail-consumer/with-us-inventories-tight-black-friday-drags-through-november-2021-11-23/)
+
+By 【秘密翻译组-金融组】
+作者：千年等一回
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
