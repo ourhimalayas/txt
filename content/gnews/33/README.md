@@ -2,50 +2,42 @@
 ---
 
 
-## 美国媒体批评拜登对台政策虚虚实实含糊不清
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1688912/)
+## 美国对德国、丹麦发布“请勿旅行”COVID-19警告
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1688962/)
 
-作者：东京樱花团—在远方
+翻译：里奇
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-46.jpg)图片来自网络
 
+路透华盛顿 11 月 22 日 – 美国疾病控制与预防中心 (CDC) 和国务院周一建议不要前往德国和丹麦，因为这些国家的 COVID-19 病例数量不断增加。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-2.png)
+CDC 将其对这两个欧洲国家的旅行建议提高到“四级：非常高”，告诉美国人他们应该避免去那里旅行，而国务院则对这两个国家发布了平行的“请勿旅行”建议。
 
+CDC 目前在第四级列出了全球约 75 个目的地，名单上的许多欧洲国家包括奥地利、英国、比利时、希腊、挪威、瑞士、罗马尼亚、爱尔兰和捷克共和国。
 
+据路透社周一报道，德国总理安格拉·默克尔 (Angela Merkel) 告诉其所在的保守党领导人，为阻止冠状病毒在欧洲最大经济体中传播而采取的措施是不够的，需要采取更强有力的行动。
 
+德国的病例数一直在飙升，尤其是在年初接种了前两次 COVID-19 疫苗的老年人和不符合接种条件的儿童中。
 
+本月早些时候，世界卫生组织（WHO）表示，随着死亡人数和新病例激增，欧洲国家必须更加努力地防止冠状病毒进一步传播。
 
-近日，美国《外交政策》杂志表示：在美中紧张关系不断升级之际，拜登却就美国对台政策已经4次说话不一致，让人担忧这可能是触发美国与中共冲突的火花。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/D92438E6-B9DA-4005-97CC-84437EECF911_w1023_n_r1_st.jpg)图片来源：美联社
-报道称，拜登于11月16日对记者表示：美国非常清晰地表明支持台湾关系法，台湾是独立的，台湾做出它自己的决定。之后拜登又澄清说，他不是在鼓励台湾政治独立，对此，美国政策没有变化。但上述言语却戳中了中共的敏感之处，中共随即警告说，如果台独分裂势力挑衅逼迫，中共将采取断然措施。
+世卫组织的汉斯·克鲁格警告说，目前 53 个欧洲国家的传播率令人“严重关切”，新病例接近创纪录水平，而病毒的更易传播的 Delta 变体加剧了这种情况。 “我们必须改变我们的策略，从应对 COVID-19 的激增，到首先防止它们发生”他说。
 
-自1979年美国与中共建交以来，美国不承认台湾是一个主权实体，但却与台湾政府关系密切，并且对台出售武器。美国官方说不支持台湾独立，但是在中共进攻台湾时，美国是否会干预和保卫台湾却刻意保持模糊。
+德国已经决定在医院充满 COVID-19 患者的地区限制大部分公共生活。
 
-参考来源：[美媒：拜登总统在对台政策细节上未能表达精准](https://www.voachinese.com/a/biden-struggles-to-stick-to-the-script-on-taiwan/6321973.html)
+在上周宣布一些新的限制措施后，邻国奥地利周一实施了全面的 COVID-19 封锁。德国代理卫生部长 Jens Spahn 周五警告说，德国可能会效仿。
 
+CDC 分别将以色列、阿鲁巴岛、美属维尔京群岛、库拉索岛和瓜德罗普岛的 COVID-19 旅行警告从第四级降至“第三级：低”。
 
+**参考资料：**[reuters][U.S. issues ‘Do Not Travel’ COVID-19 warning for Germany, Denmark](https://www.reuters.com/business/healthcare-pharmaceuticals/us-raises-covid-19-travel-warning-germany-denmark-2021-11-22/)
 
+* * *
 
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-9.jpg)
-
-总编：飞虹
-
-编辑/校对/发稿：兰兰
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
 
  
 
