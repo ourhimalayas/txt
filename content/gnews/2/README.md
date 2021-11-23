@@ -2,27 +2,27 @@
 ---
 
 
-## 澳大利亚军队强行转移疫区民众至集中隔离营
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1687200/)
+## 警方说威州游行碾压案嫌犯涉及“内部纠纷”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1687214/)
 
-原文采编：文莱   编译撰稿：文所未闻
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-36.png)
+图片来源： www.6parknews.com
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/b-6-edited.jpg)图片来源：零对冲
+美国合众国际社11月22日报道，警方周一说，39岁男性嫌犯在威斯康辛州的节目游行中开着他的车姿意碾压造成5人死亡，48人受伤，就在犯案前，嫌犯还涉及一桩内部纠纷案。
+
+嫌犯名叫达雷尔·布鲁克斯，住在威州沃科夏市，警察局长丹尼尔·汤普森在周日发生惨案一天后更新最近信息，他告诉记者事发时一辆休闲越野车在该市每年的圣诞节游行活动中冲向人群。他说：“我们有信息显示嫌犯在事发前涉及一桩内部争吵，发生在事发前几分钟，就在警方到达前嫌犯离开了吵架地方。”
+
+当布鲁克斯开车冲向人群时一名警察向布鲁克斯开了几枪，但因为生怕伤及旁人，不得不停止。
+
+警方说布鲁克斯面临5次一级故意谋杀指控，伴随其他可能的指控。
+目前还没有迹象显示此次事件与国内或国际恐怖主义有关。5名死亡的受害者年龄52-81岁，其中4名妇女一名男士，
+
+威州儿童医院说有16名儿童年龄3-16岁，目前主街仍然关闭，威州州长下令为此事件降半旗，各界人士也均为此祷告。
+
+##### **新闻来源： **[Police: Suspect in Wisconsin parade crash was involved in ‘domestic disturbance ‘](https://www.upi.com/Top_News/US/2021/11/22/wisconsin-waukesha-parade-suv-crash/1691637588902/)
 
 
-据知名自媒体《零对冲》11月21日报道，地处澳大利亚北部的本杰里社区，因日前在发现9起“新冠病毒”感染病例而被当局完全封锁之后，澳大利亚军队已开始强行将北领地居民转移到位于达尔文地区的霍华德泉检疫隔离营。
-
-对此，北领地首席部长冈纳称，该社区所有居民除了医疗、紧急情况或法律理由外，均不允许擅自离家。并同时表示，会有更多病毒检测呈阳性者以及与该病毒感染患者曾密切接触的人将被转移到霍华德隔离区。
-
-报道称，北领地辖区内居民大多是澳大利亚当地的原著民。由于土著社区人口居住过度拥挤，因此或直接导致了本次严重“新冠病毒”疫情的迅速蔓延。
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-原文链接：
-
-[https://www.zerohedge.com/covid-19/australian-army-begins-transferring-covid-positive-cases-contacts-quarantine-camps](https://www.zerohedge.com/covid-19/australian-army-begins-transferring-covid-positive-cases-contacts-quarantine-camps)
 
  
 

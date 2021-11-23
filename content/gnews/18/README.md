@@ -2,27 +2,23 @@
 ---
 
 
-## 美海军陆战队创美军最高疫苗接种率记录
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1687064/)
+## 加拿大政府暂无儿童疫苗强制接种计划
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1687074/)
 
-采编：青青        编译撰稿：苦尽甜来 (文来）
+编译撰稿：Spirit        校对编辑：硫酸羟氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-55-edited.jpg)图片来源：路透社
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-52.jpg)图片来源：CBC
 
 
-据【路透社】11月21日报道，美国海军陆战队当天发表声明称，在目前其现役军人中，约有94%已完全或部分接种了“新冠病毒”疫苗。但同时，仍有数千名现役人员将错过截止日期为11月28日前，必须完全接种该疫苗的规定。
+据加拿大媒体《CTV新闻》11月20日报道，尽管卫生部此前已批准了对5至11岁年龄段幼儿的首剂“新冠病毒”疫苗注射，但联邦政府目前尚未制定针对加拿大儿童的该疫苗强制接种计划。
 
-据悉，目前美国海军的该疫苗接种率最高，约为 97%；其次是空军，约为 96%；陆军则约为92%。而陆军的必须接种截止日期为 12 月 15 日。为此，陆军部长沃姆斯警告称：所有拒绝接种的军人，包括国民警卫队成员，除非获得豁免批准，否则都将被开除军籍。
+据悉，虽然【加拿大卫生部】日前已授权该国使用【辉瑞公司】产两剂量儿童疫苗，但部长杜克洛表示：当局暂时不会对儿童实施与成人同样的该疫苗接种规定，而且对任何年龄段儿童的接种或测试规则都没有变化。
 
-然而，俄克拉荷马州州长、共和党人斯蒂特，则继续无视总统拜登政府有关“疫苗强制接种”的行政命令，表示他将不会要求该州的国民警卫队成员接种“新冠病毒”疫苗。
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
+报道指出，负责向联邦政府提出该疫苗接种建议的【国家免疫咨询委员会】则声称：由于目前“幼儿疫苗接种政策”的不确定性，当局应尊重儿童及其父母和监护人是否接种该疫苗的决定。同时，最新民调显示，约70%的加拿大家长表示不愿给孩子接种该疫苗，以避免其潜在的健康伤害。
 
 原文链接：
 
-[https://www.reuters.com/world/us/marines-track-worst-vaccination-record-us-military-washington-post-2021-11-21/](https://www.reuters.com/world/us/marines-track-worst-vaccination-record-us-military-washington-post-2021-11-21/)
+[https://www.ctvnews.ca/health/coronavirus/feds-have-no-plans-to-extend-vaccine-mandate-to-kids-duclos-1.5673952](https://www.ctvnews.ca/health/coronavirus/feds-have-no-plans-to-extend-vaccine-mandate-to-kids-duclos-1.5673952)
 
  
 
