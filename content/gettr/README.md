@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/23/2021 8:54 PM (UTC)`
+
+11/23/2021 Miles Guo: Changpeng Zhao has sold out the information of both Chinese and foreign Binance users to the CCP; please contact the Himalaya Farms if you have completed the KYC, traded cryptocurrencies, or made investments through Binance. We will sue Binance globally<br/><br/>11/23/2021 文贵直播：赵长鹏已将币安的国内外用户资料出卖给中共，请在币安做过KYC、有过虚拟币交易或投资的战友联系各农场，我们将在全球起诉币安<br/>
+![img](https://media.gettr.com/group25/getter/2021/11/23/20/54/4532123a-093a-ebc3-336b-6dc9f31f5170/out.jpg)
+
+---
+
+`@miles 11/23/2021 8:49 PM (UTC)`
+
+11/23/2021 Miles Guo:  Will the Beijing Winter Olympics go on as planned?  It’s said that the CCP is soliciting the U.S. to attend the Beijing Olympics by using all its national resources, such as an offer to purchase another 100 billions of U.S. treasury bonds, and the conversion of Evergrande and R&F shares into loans. Can the CCP-style scam, where Zhang Gaoli had been cheating on Peng Shuai by saying the universe is infinite and this planet is just a grain of sand, survive?<br/><br/>11/23/2021 文贵直播：北京冬奥会能照常开吗？据说中共正以一国之力忽悠美国参加冬奥会，什么再买一千亿美国国债，恒大、富力股转债，张高丽忽悠彭帅式的宇宙无限大地球一粒沙的骗局还能继续吗？<br/>
+![img](https://media.gettr.com/group49/getter/2021/11/23/20/49/ed5c3086-7200-33e8-f8fa-83e550663e62/out.jpg)
+
+---
+
 `@miles 11/23/2021 10:16 AM (UTC)`
 
 11/22/2021 Miles Guo’s GETTR: The US is very nervous about the CCP’s real estate crisis; the whole world’s stock markets and housing prices are going up like crazy, and the crypto market’s ups and downs are caused by massive money laundering; the main topics of this Wednesday’s grand live stream are cryptos and the global financial market; this week is very crucial, and the CCP will take a series of crazy actions in the economy after the Winter Olympics<br/><br/>11/22/2021 文贵盖特：中共房地产的雷让美国人很紧张；全球股市和房价疯狂上涨，加密货币动荡的背后是大量洗钱；周三大直播主要谈数字货币和世界金融市场；这周很重要，冬奥会后中共将在经济上有一系列疯狂举动
@@ -286,22 +300,6 @@ Golden State of Mind<br/><br/>@gfashion <br/>@DDNYC
 
 🚨🇺🇸🚨🇺🇸 BOOM!! Kyle #Rittenhouse has been found #NotGulity on all charges #FreedomRings #Justice 
 ![img](https://media.gettr.com/group22/getter/2021/11/19/18/46/9d68c2ec-6afa-65e4-fb41-99d93777fd5a/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@trump_supporter 11/19/2021 7:12 PM (UTC)`
-
-Not going to lie, I almost cried when he broke out. 
-![img](https://media.gettr.com/group20/getter/2021/11/19/19/12/fee01bbe-9868-b610-52bb-83c6971a6d91/out.jpg)
-
----
-
-`@miles 11/19/2021 1:07 PM (UTC)`
-
-2021年11月19日 文贵大直播：阿里巴巴股市暴跌；国际市场资金短缺；数字货币法币共存；“灭疫”战斗将胜利
-![img](https://media.gettr.com/group12/origin/2021/11/19/12/d7ca091b-b3d1-7e6f-da3f-202de71c1e95/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

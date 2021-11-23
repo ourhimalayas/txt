@@ -2,20 +2,18 @@
 ---
 
 
-## 荷兰重症监护陷入困境
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1689683/)
+## 意大利制造的关闭病毒大门的药物
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1689688/)
 
 翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11231-scaled.jpg)图片来自Reuters
-在荷兰，由于新冠病毒患者过多，医院面临压力，以至于其中一些医院被迫放弃治疗一些患有其他疾病的患者，甚至是严重的患者。为此，卫生当局已决定将部分患者转移到邻国德国。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11232.jpg)图片来自Ansa
+一种能够阻断冠状病毒网关的药物，它可能会成为针对新冠病毒的新可能武器，其专利已经被注册，该研究来自米兰国立大学的 Paolo Ciana、比萨高等圣安娜学院的 Vincenzo Lionetti 和意大利研究所的 Angelo Reggiani 共同的一项研究。
 
-最近几周，荷兰医院收治的新冠肺炎患者人数自 5 月以来已见顶，随着感染人数的增加，预计还会进一步增加。NHS 的数据显示，7 天内登记了 153,957 例新病例，比前一周增加了 39%。
+药理学教授 Ciana、麻醉学教授 Lionetti 和药理学高级研究员兼首席研究员 Reggiani 的联合声明解释了该研究的三个主要结构说明 ：通过阻断 Ace2 受体来抑制 Sars-CoV-2 的变体。它基于使用 DNA 适体或短寡核苷酸链，能够特异性结合 Ace2 残基 K353 使其成为任何冠状病毒都无法获得 Spike 蛋白。
 
-在荷兰总共 1,050 张重症监护病床中，有 488 张用于治疗新冠病毒患者。面对这种情况，医院正在缩小其他治疗的规模，包括癌症治疗和心脏手术。
+三位发明人及其团队已经确定了两种抗 K353 适配体，它们能够以剂量依赖性方式抑制病毒 Spike 蛋白与人 Ace2 蛋白的结合，从而有效防止细胞感染。这将有可能开发一种新的精准治疗方法，它不会刺激免疫系统或产生重大副作用。事实上，核酸作为药物的潜在毒性远低于其他创新药物，如单克隆抗体或其他治疗性蛋白质。
 
-由于缺乏处理常规干预的工作人员，全国手术室的容量减少了 29%。尽管 85% 的成年人都接种了疫苗，但据荷兰新闻网报道表示：按照目前感染率的上升速度，住院的冠状病毒患者人数将在几天内与去年冬天的高峰持平。
-
-原文链接：[https://europa.today.it/attualita/coronavirus-pazienti-olanda-germania.html#\_ga=2.127857485.1112600054.1637688744-145009575.1615972944](https://europa.today.it/attualita/coronavirus-pazienti-olanda-germania.html#_ga=2.127857485.1112600054.1637688744-145009575.1615972944)
+原文链接：[https://www.today.it/attualita/farmaco-italiano-covid.html](https://www.today.it/attualita/farmaco-italiano-covid.html)
 
 责任编辑/发布：意大利达芬奇农场   萧亦
 

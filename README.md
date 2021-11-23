@@ -15,154 +15,154 @@
 
 ---
 
-### [澳军队开始将中共病毒患者和接触者转移到隔离营](/content/gnews/1/README.md)
+### [秘翻在线: 币安与主权基金就寻求投资进行谈判](/content/gnews/1/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [澳军队开始将中共病毒患者和接触者转移到隔离营](/content/gnews/2/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [文·贵天成——文贵先生谈“疫苗”（十二）](/content/gnews/2/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（十二）](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [11/23/2021 文贵直播：北京冬奥会能照常开吗？据说中共正以一国之力忽悠美国参加冬奥会](/content/gnews/3/README.md)
+### [11/23/2021 文贵直播：北京冬奥会能照常开吗？据说中共正以一国之力忽悠美国参加冬奥会](/content/gnews/4/README.md)
  ` 秘密翻译组-北美组`
 
-### [意大利制造的关闭病毒大门的药物](/content/gnews/4/README.md)
+### [意大利制造的关闭病毒大门的药物](/content/gnews/5/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [荷兰重症监护陷入困境](/content/gnews/5/README.md)
+### [荷兰重症监护陷入困境](/content/gnews/6/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [Covid-19：玛丽·勒庞希望取消“毫无意义”的健康限制](/content/gnews/6/README.md)
+### [Covid-19：玛丽·勒庞希望取消“毫无意义”的健康限制](/content/gnews/7/README.md)
  ` 纽约香草山MOS02`
 
-### [土耳其法币里拉崩盘](/content/gnews/7/README.md)
+### [土耳其法币里拉崩盘](/content/gnews/8/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [冒犯中共的联合国举报人遭解雇](/content/gnews/8/README.md)
+### [冒犯中共的联合国举报人遭解雇](/content/gnews/9/README.md)
  ` HimalayaRussia`
 
-### [日本将拨款52亿美元资助台积电和其他芯片制造商](/content/gnews/9/README.md)
+### [日本将拨款52亿美元资助台积电和其他芯片制造商](/content/gnews/10/README.md)
  ` 纽约香草山MOS02`
 
-### [文贵与班农先生谈平民运动](/content/gnews/10/README.md)
+### [文贵与班农先生谈平民运动](/content/gnews/11/README.md)
  ` MG FARM`
 
-### [我所看到的中国老百姓的艰难生活](/content/gnews/11/README.md)
+### [我所看到的中国老百姓的艰难生活](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本要闻汇编 11月23日](/content/gnews/12/README.md)
+### [日本要闻汇编 11月23日](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [供应链何时恢复正常？不要期盼](/content/gnews/13/README.md)
+### [供应链何时恢复正常？不要期盼](/content/gnews/14/README.md)
  ` MG FARM`
 
-### [CNN在讨论彭帅时被中共国切断现场信号](/content/gnews/14/README.md)
+### [CNN在讨论彭帅时被中共国切断现场信号](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021/11/23 大卫作战室直播精要](/content/gnews/15/README.md)
+### [2021/11/23 大卫作战室直播精要](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [田纳西州长欢迎未打疫苗的警察来他的州并支付搬家费用](/content/gnews/16/README.md)
+### [田纳西州长欢迎未打疫苗的警察来他的州并支付搬家费用](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [金融时报：多家顶级资管公司证实将投资加密货币](/content/gnews/17/README.md)
+### [金融时报：多家顶级资管公司证实将投资加密货币](/content/gnews/18/README.md)
  ` 丁过`
 
-### [文·贵天成——文贵先生谈“疫苗”（十一）](/content/gnews/18/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（十一）](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [卑诗省男子骗取投资者数百万，法院裁决将不保留其退休账户](/content/gnews/19/README.md)
+### [卑诗省男子骗取投资者数百万，法院裁决将不保留其退休账户](/content/gnews/20/README.md)
  ` MG FARM`
 
-### [美参议员提出教育法案“将控制权交还给父母”](/content/gnews/20/README.md)
+### [美参议员提出教育法案“将控制权交还给父母”](/content/gnews/21/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [白厅安全部门发现其伦敦总部的设备是由海康威视提供](/content/gnews/21/README.md)
+### [白厅安全部门发现其伦敦总部的设备是由海康威视提供](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [捷克民众抗议限制未接种者政策，为“自由”大声疾呼](/content/gnews/22/README.md)
+### [捷克民众抗议限制未接种者政策，为“自由”大声疾呼](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [GTV新闻访谈简报|2021年11月23日早](/content/gnews/23/README.md)
+### [GTV新闻访谈简报|2021年11月23日早](/content/gnews/24/README.md)
  ` 纽约香草山MOS01`
 
-### [欧洲各国上周末爆发反对强制接种疫苗的抗议活动](/content/gnews/24/README.md)
+### [欧洲各国上周末爆发反对强制接种疫苗的抗议活动](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [德国教授：接种疫苗者在传播COVID-19方面具有“相关作用”](/content/gnews/25/README.md)
+### [德国教授：接种疫苗者在传播COVID-19方面具有“相关作用”](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [工厂工人大量流失，中共实体经济持续萎靡](/content/gnews/26/README.md)
+### [工厂工人大量流失，中共实体经济持续萎靡](/content/gnews/27/README.md)
  ` GTV新闻访谈`
 
-### [福奇在隐藏什么？](/content/gnews/27/README.md)
+### [福奇在隐藏什么？](/content/gnews/28/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [国际刑警组织选举引发了对公平警务权利的担忧](/content/gnews/28/README.md)
+### [国际刑警组织选举引发了对公平警务权利的担忧](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [伊维菌素帮助日本突破病毒及疫苗的重围，带来希望](/content/gnews/29/README.md)
+### [伊维菌素帮助日本突破病毒及疫苗的重围，带来希望](/content/gnews/30/README.md)
  ` 日本东京方舟农场`
 
-### [疫苗神速面世，实为病毒后的暗箭](/content/gnews/30/README.md)
+### [疫苗神速面世，实为病毒后的暗箭](/content/gnews/31/README.md)
  ` 波士顿五月花农场`
 
-### [共和党人修改各州的法律对抗联邦疫苗强制令](/content/gnews/31/README.md)
+### [共和党人修改各州的法律对抗联邦疫苗强制令](/content/gnews/32/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [彭帅的勇气重振抵制北京奥运的呼声](/content/gnews/32/README.md)
+### [彭帅的勇气重振抵制北京奥运的呼声](/content/gnews/33/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [远东新世纪疑似沦为中共迫害台企的牺牲品](/content/gnews/33/README.md)
+### [远东新世纪疑似沦为中共迫害台企的牺牲品](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [内蒙乌拉盖水库存废之争，中共人造生态灾难再引关注](/content/gnews/34/README.md)
+### [内蒙乌拉盖水库存废之争，中共人造生态灾难再引关注](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/35/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/36/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [DC每日热点1123](/content/gnews/36/README.md)
+### [DC每日热点1123](/content/gnews/37/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美日澳德加五国在菲律宾海举行联合军演](/content/gnews/37/README.md)
+### [美日澳德加五国在菲律宾海举行联合军演](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
-### [我本将心向你，你待明月如沟渠](/content/gnews/38/README.md)
+### [我本将心向你，你待明月如沟渠](/content/gnews/39/README.md)
  ` 骄子`
 
-### [有声|苏格兰新生儿死亡数量猛增](/content/gnews/39/README.md)
+### [有声|苏格兰新生儿死亡数量猛增](/content/gnews/40/README.md)
  ` MOSREC`
 
-### [11/23/2021国际财经快讯：拜登打赌美联储鲍威尔将引领美国经济全面复苏;美元稳定在16个月高点附近](/content/gnews/40/README.md)
+### [11/23/2021国际财经快讯：拜登打赌美联储鲍威尔将引领美国经济全面复苏;美元稳定在16个月高点附近](/content/gnews/41/README.md)
  ` 秘密翻译组金融团队`
 
-### [有声|纳瓦罗先生未接种疫苗，坚决反对疫苗强制令](/content/gnews/41/README.md)
+### [有声|纳瓦罗先生未接种疫苗，坚决反对疫苗强制令](/content/gnews/42/README.md)
  ` MOSREC`
 
-### [有声|2020年中国人口出生率再创新低](/content/gnews/42/README.md)
+### [有声|2020年中国人口出生率再创新低](/content/gnews/43/README.md)
  ` MOSREC`
 
-### [美联储鲍威尔连任，日元“迎来”又一波贬值](/content/gnews/43/README.md)
+### [美联储鲍威尔连任，日元“迎来”又一波贬值](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国第一家沃尔玛超市即将关闭](/content/gnews/44/README.md)
+### [中共国第一家沃尔玛超市即将关闭](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [为什么不与立陶宛断交？中共官媒回应很尴尬](/content/gnews/45/README.md)
+### [为什么不与立陶宛断交？中共官媒回应很尴尬](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [应对中共威胁，日印外长电话确认紧密合作](/content/gnews/46/README.md)
+### [应对中共威胁，日印外长电话确认紧密合作](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [岸田文雄与泰国总理会谈，强烈反对中共海上霸权](/content/gnews/47/README.md)
+### [岸田文雄与泰国总理会谈，强烈反对中共海上霸权](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [助纣为虐！百度参与开发中共病毒疫苗](/content/gnews/48/README.md)
+### [助纣为虐！百度参与开发中共病毒疫苗](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际要闻汇编 11月23日](/content/gnews/49/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [韩正舍车保帅，上海电气爆完小雷还有大雷](/content/gnews/50/README.md)
+### [国际要闻汇编 11月23日](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [港闻前线｜加速大陆化 自选变官派 香港法援制度被颠覆](/content/gnews/51/README.md)

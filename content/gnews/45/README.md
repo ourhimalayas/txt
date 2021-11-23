@@ -2,28 +2,30 @@
 ---
 
 
-## 为什么不与立陶宛断交？中共官媒回应很尴尬
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688404/)
+## 中共国第一家沃尔玛超市即将关闭
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688636/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/433.png)[图片来源](https://en.rti.org.tw/news/view/id/2005769)
-对于台湾在立陶宛设立办事处，中共国内民间存在诸多质疑，中共为什么不直接以断交的方式来惩罚立陶宛？
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-40.jpg)
+[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.corporate.walmart.com%2Fdims4%2FWMT%2F5c437f5%2F2147483647%2Fcrop%2F5760x3237%252B0%252B593%2Fresize%2F1000x562%253E%2Fquality%2F90%2F%3Furl%3Dhttps%253A%252F%252Fcdn.corporate.walmart.com%252F80%252Faa%252F3b532f56400d96b21d13f518d076%252Fcfs-2037-walmart-china-lead-28.jpg&amp;imgrefurl=http%3A%2F%2Fwww.walmartfoodsafetychina.com%2Fabout-us%2Fabout-walmart-china&amp;tbnid=hWUuNsBriJvioM&amp;vet=12ahUKEwjt4buuta70AhVZmUsFHVCCBtUQMygEegUIARCpAQ..i&amp;docid=3_hMceD88MyCuM&amp;w=1000&amp;h=562&amp;q=%E6%B2%83%E5%B0%94%E7%8E%9B&amp;ved=2ahUKEwjt4buuta70AhVZmUsFHVCCBtUQMygEegUIARCpAQ)
 
-对于这个民间普通民众的广泛质疑，11月22日，中共官媒深圳卫视《直播港澳台》节目，以嘉宾访谈问答的形式来做了回应。
+11月23日新京报讯报道，位于深圳的中国大陆第一家沃尔玛即将停业，中国大陆第一家沃尔玛门店即将关闭一事，新京报记者联系沃尔玛相关负责人。对方回应称，因业主即将对物业进行整体升级改造，位于深圳市罗湖区洪湖路湖景花园的沃尔玛门店将于2021年12月7日起停止营业。
 
-节目问：既然如此，那中方为什么不直接以断交的方式来惩罚立陶宛，而是采取了将两国外交关系降为代办级这样一种方式？
+在过去近6年里，沃尔玛在国内的门店已经关闭近80家。其中，今年8月10日，北京沃尔玛朝阳店停止营业。据当时的公告显示沃尔玛此店关闭后，北京还有10家沃尔玛门店，其中包括沃尔玛购物广场7家、山姆会员店3家。
 
-特约评论员刘和平：中方的行动，既要表明自己的决心，又要防止挑战 “一中”原则的歪风在国际上扩大化。而要达到这一目标，就意味着中方的惩罚措施既不能过轻也不能过重，过轻的话起不到遏制歪风的目标，过重的话，比如直接宣布中立两国断交，那就不仅正中蔡英文当局的下怀，因为他们正好可以渔翁得利跟立陶宛建交，如此一来，中国大陆就将损失一个邦交而蔡英文当局则捡到一个大便宜，而且过重的话，那容易引起其他中东欧小国的反弹，给美国提供煽风点火进一步挑拨离间的机会。在这种情况下，将中立两国关系降为代办级而不是直接断交，就成为了最合适的选择。
+除沃尔玛之外，今年4月，在济南经营17年的家乐福解放桥店悄然闭店。今年5月，沈阳家乐福哈尔滨路店（惠工店）宣布于5月31日起停止经营，家乐福将关闭国内近一半的传统超市。
 
-可见，对于是否直接与立陶宛断交，中共官媒的回应就是中共心理状态的写照——既不敢，又不能直接断交，基于当前中共在国际上极端孤立的形势，一旦与立陶宛断交就会形成外交崩溃。毋庸置疑，在爆料革命、新中国联邦的推动下，中共必将彻底在全球成为过街老鼠。
+在过去的4年时间沃尔玛关闭80家门店，位于深圳洪湖的这家沃尔玛，诞生于1996年，是深圳乃至中共国内地第一家沃尔玛超市。历经25年，见证了中共国翻腾腹地的变化，从诞生到如今宣布关闭，是一个时代的结束。
 
 信息来源：
 
-[中国为什么不直接与立陶宛断交？刘和平：要教育他们，也要给国际社会立规矩划红线](https://3g.k.sohu.com/f/f568460692?serialId=79f11311356fc5322eae238526443a29&amp;from=0)
+[中国大陆第一家沃尔玛12月关门，回应称因业主对物业升级改造](https://ms.mbd.baidu.com/r/wRnmovGRDq?f=cp&amp;rs=3546228816&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=bcf134246174d357)
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
