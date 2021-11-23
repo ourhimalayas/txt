@@ -2,85 +2,26 @@
 ---
 
 
-## 美国老百姓的三个不允许
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1686817/)
+## 文贵爆料11.20.2021 我们第一个告诉世界：中共病毒是生化武器
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1686936/)
 
-[https://gtv.org/video/id=619c02f6e6900076612e8d2b](https://gtv.org/video/id=619c02f6e6900076612e8d2b)
+翻译：Charline
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-22-at-7.55.08-PM.png)图片来源：GETTR & GTV
+在11月20日举行的法治基金和法治社会成立三周年直播中，郭文贵先生说，与三年前相比，新中国联邦与爆料革命有了长足的进步。
 
-**郭文贵**
-**Miles Guo**
+很高兴今天 11 月 20 日来到这里。 2018 年 11 月 20 日是我们的第一场新闻发布会。 今天早上我很高兴见到班农先生。 与班农谈起海航事件，班农很难相信海航事件真的发生了。 他一次次被共产党及其对西方世界的渗透所触动和震惊。 当时我说我要开一个针对海航的发布会，他说不行。 当时班农先生说，如果要召开新闻发布会，必须一一确认网站的设置以及所有文件信息的准确性、可靠性。 我们经历的每件事情无不伴随着泪水、鲜血甚至生命。
 
-老百姓绝不允许今天你做的，世界经济即将崩溃通缩前、滞涨和通胀的并发前
-The Laobaixing will never allow you to do what you do today, the world economy is about to collapse before deflation, stagflation, and inflation
+今天坐在这里，看到了世界正在发生翻天覆地的变化。那时，发生了王健先生的惨案，法治基金和法治社会的建立。谁能想到，三年后，中共会杀死数百万人，感染数亿人。**我们是第一个告诉世界，中共病毒是生化武器。我们是第一个告诉世界病毒不是重点，疫苗才是重点。**班农先生拥有大师的大脑，拥有智慧的大脑。我们的调查和情报执行能力是世界领先的。当时有些人对我们造谣和威胁，今天很难想象这会发生在美国。过去我们用生命向西方传达的声音完全被压制，以至于今天的病毒和疫苗灾难比恐龙的灭绝更可怕。
 
-并发症给美国人民，带来了三不允许的政治灾难
-Complications have brought three forbidden political disasters to the American people
+我们今天的技术和我们的现场团队，我们今天在世界上的影响力，我们的经济能力，我们的团队能力，我们的正义形象和我们的声音与过去相比是无与伦比的。 我们每一分钟都在改变世界。 班农先生和他的家族从爆料革命的一切都是刚刚开始直到今天，在这整个过程中一直坚决地支持我们的新中国联邦，支持我们中国老百姓。 班农先生冒着生命危险和郭文贵先生一起创立了法治基金会和法治社会。
 
-谁知道？你不知道七哥告诉你
-Who knows? you didn’t know, let me tell you
+我们第一次向中国人展示了我们和白人是可以相互尊重、相互帮助的。 我们正在推动一个联邦即新中国联邦。我们没有流一血。 回想三年前的发布会，很多人背叛了我们， 这是正常的，这是新陈代谢的结果。
 
-第一条，油价，永远不接受超过四美金一桶（口误），永远不接受
-The first, oil price, never accept more than four dollars a gal-lon, never accept
+原文链接：[We are the First to Tell the World that the CCP Virus was a Biochemical Weapon](https://gnews.org/1683767/)
 
-只要超过四美金了，你就放心吧，美国这个政治就大变了
-As long as it exceeds four dollars, you wait and see that the politics of the United States will change drastically
+校对发布：Shifter
 
-大家去看现在是多少了，多少钱一桶了（口误），油价
-Let’s see how much it is now, how much is a gallon? and oil price
 
-第二个，就是买的面包，不能叫食品，
-The second one is the bread, it can’t be called food
-
-你不能通称食品，也不能通称什么，就是面包价
-You can’t generically refer to food, nor can you generically re-fer to it, it is the bread price
-
-面包价只要超过1.2刀，就是那个块的时候，
-If the bread is over $1.2, which is a loaf of bread
-
-一般一块大面包大概是2.8到3.5美金，你只要超过四美金，五美金时，
-Generally, a loaf of bread is about US$2.8 to US$3.5, once the price over four or five dollars
-
-老百姓就反了，从历史可以查去，面包啊，咱说的面包不能叫食品
-Laobaixing will be angry, this is all well documented in history, the bread that we cannot call food
-
-这是第二个，第三件事情，什么，气
-This is the second, what is the third one? It’s nature gas
-
-美国点的气，美国的气，这个国家很厉害的，
-The natural gas in the United States, people are very smart
-
-只要这个气超过历史上均价的20%，老百姓就不想做饭了
-As long as this gas is more than 20% of the historical average price, the people don’t want to cook
-
-气和什么连着呢，跟电也连着呢，电价也不能上，就简称气电
-What is the connection with natural gas? It connects with elec-tricity that can’t be increased, so it’s abbreviated as gas and electricity
-
-所以气电，面包，油价只要超过这价格
-So gas and electricity, bread and oil once exceed this bench mark price
-
-不管你哪党，咔，走人，而且经济一定是大崩跌
-No matter which party you are, it must step down quickly, and the economy must be collapsing
-
-**原视频链接**[:](https://gettr.com/post/phfjqn3e2c)[https://gettr.com/post/phfjqn3e2c](https://gettr.com/post/phfjqn3e2c)
-
-Date:11/21/2021
-原视频标题: 美国老百姓的三个不允许
-Three of the deplorable in the U.S. are not allowed
-原视频日期：2021/11/19
-原视频链接https://gettr.com/post/phfjqn3e2c
-任务编号：2960
-视频时间段 : 0:00-1:38
-
-英听校：洛杉矶盘古农场 – Layka
-翻译： 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
