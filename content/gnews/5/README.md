@@ -2,182 +2,50 @@
 ---
 
 
-## 供应链核心环节断裂
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1686868/)
+## G时评：人、做人与灵魂
+` GISELLE` [轉載自GNews](https://gnews.org/zh-hans/1687010/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/a3a4l-koqqt-1.jpg)
-[https://gettr.com/post/ph227wae74](https://gettr.com/post/ph227wae74)
+**作者/图片设计：Giselle**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/粉色22.png)
+**什么是人？**
 
-**郭文贵**
-**Miles Guo**
+**什么是会做人？**
 
-在纽约也是这样的问题，毒品和所谓的这个民主党的救济
-Es el mismo problema en Nueva York. Las drogas y el llamado subsidio del Partido Demócrata
+我们所理解的会做人，通常是：处世圆滑，善于见风使舵、趋利避害，见人说人话，见鬼说鬼话。
 
-让很多人不愿意工作
-Ha hecho que muchas personas no quieran trabajar
+而不懂这些人情世故的，通常被标注为：不会做人。
 
-这是核心的原因
-Esta es la razón principal
+谈及做人，我们得先了解一下，什么是人。
 
-即使没有这个供应链的问题
-Incluso sin este problema de la cadena de suministro
+古希腊哲学家亚里士多德认为，除非我们先搞清楚事物的来源、目的、定义，否则我们不可能真正地了解事物。
 
-它也是这样就完全这样
-Sigue siendo así
+所以，让我们先来定义，什么是“人”。
 
-一直就是这十几年越来越严重
-Ha sido así, y se ha vuelto cada vez peor en los últimos diez años
+人，分为肉体与灵魂，我想这一点很多人都会认同。
 
-你到加州更夸张
-Es aún más exagerado si llegas a California
+2500年前的中国春秋时期，老子在《道德经》里写到了“营魄抱一”（肉体与灵魂合二为一）。
 
-那么这整个的所谓供应链的事情现在发生
-Entonces todo esto de la llamada cadena de suministro está sucediendo ahora
+2400年前的古希腊，哲学家苏格拉底、柏拉图、亚里士多德都相信灵魂的存在。后世无数的哲学家、科学家、文学家都认为，人类是有灵魂的。
 
-大家看的都是什么没人卸货
-Lo que todos ven es que no hay nadie que descargue la mercancía
+灵魂虽然看不见、摸不着，但我们无法否认灵魂的存在。关于灵魂究竟是什么物质？很多科学家也做过实验，试图找到灵魂的质量、构成、能量场，但很遗憾的是，以目前现有的科技，我们无法度量最重要的灵魂。
 
-然后那个货这个弄不下来可不是这个原因
-Entonces la razón por la que no se puede descargar no es por eso
+所以，当我们谈到“人”这个概念时，必然要涉及到灵魂。
 
-它根本（原因）完全是冠状病毒和疫苗
-El origen (causa) es completamente el coronavirus y la vacuna
+那么，当我们说到“做人”的时候，我们是在谈“做肉体人”、“做灵魂人”、还是二者兼顾呢？
 
-人家不敢去冒着命去给你卸这个货
-La gente no se quiere arriesgar la vida para descargarte la mercancía
+如果你认同“人”是有灵魂的，那么，在我们谈及“做人”的时候，必然是做一个“灵肉合一”的人。我们的行为必然不能伤害我们的灵魂，因为肉身会死亡，而灵魂才是不朽的。
 
-而且它是完全美国没有应对冠状病毒的这个保险方案
-Además, Estados Unidos no tiene en su totalidad un plan de seguro para enfrentar el coronavirus
+关于“灵魂不朽说”，我们从柏拉图的著作、佛教等宗教以及无数哲学家的著作里，都能找到类似观点，在此不一一展开。
 
-说我得的时候你给我多少保险它没有
-Decir que si me da positivo cuánto seguro me vas a dar, él no tiene
+苏格拉底也认为，一切恶行皆源于无知，作恶会伤害到我们自身，破坏最有价值的东西——灵魂。
 
-那我干嘛就为了十美金二十美金去冒这个生命危险
-Entonces para qué voy a arriesgar mi vida por 10- 20 dólares
+所以，当我们在选择如何“做人”之时，首先要考虑的是，我们要承认灵魂的存在，并且尽力保持灵魂的纯净。
 
-他就不去干了
-No lo quiere hacer
+当你认为“处世圆滑，善于见风使舵、趋利避害，见人说人话，见鬼说鬼话”就是会做人时，你或许可以为你的肉体获得些许便利，但对于提升你灵魂的纯净度，并没有任何益处。
 
-所以这个社会的保障和保险没有给这些工人的保障
-Entonces este seguro social de esta sociedad no brinda protección a estos trabajadores
+最黑暗的时刻，往往会诞生最伟大的灵魂，就是因为他们在利用困境，不停地挑战黑暗，锤炼自己的灵魂。他们的灵魂坚韧、高贵、通透，散发着仁爱的光芒，充满了人性的光辉。他们是真正的光明之子，是天使，是不朽，是喜马拉雅。
 
-他就不去上班
-Él no va al trabajo
-
-第二个不要忘了
-El segundo no lo olvides
-
-美国的所有这些劳苦工人的上面的高层管理层都是白人
-La alta dirección, por encima de todos estos trabajadores en los Estados Unidos, es la raza blanca
-
-这些白人就更怕死
-Y a esta raza blanca más les da miedo morir
-
-现在是一半人不想打疫苗
-Ahorita hay una mitad de personas que no se quieren vacunar
-
-一半人没了，打了疫苗的
-Esta mitad de personas ya no hay, los que se vacunaron
-
-这些白人人家现在更不愿意去染病毒
-Estos blancos ahora menos quieren contagiarse del virus
-
-又一半没了
-Entonces la otra mitad tampoco hay
-
-它不是那个集装箱
-No son los contenedores
-
-很多人都是乱解释
-Mucha gente lo explican mal
-
-所有供应链的核心在哪里
-¿Dónde está el núcleo de todas las cadenas del suministro?
-
-核心供应链是在运输的船上
-La cadena del suministro principal está en el barco de envío
-
-不管你是中共国的始发地和到美国的这个发货目的地
-No importa si eres de origen del PCCh y el destino es los Estados Unidos
-
-它中间是那个供应船
-En el medio está el barco de suministros
-
-他这个开船的人现在是个大问题了
-El que navega el barco ahora es un gran problema
-
-不是什么人都可以开船的
-No cualquier persona puede navegar
-
-这个运输过程中的船将近60%、70%人
-Casi el 60% y el 70% de las personas de este transporte en el barco
-
-涨了两倍工资的都不冒险
-Así haya aumentado el doble de su salario no quieren correr riesgo
-
-因为当你上过那个大船你就知道了
-Porque lo sabrás si has subido a esos barcos grandes
-
-七哥到非洲去确实坐过很长
-Yo cuando fui a África si estuve un tiempo muy largo
-
-最多坐过30天的船
-Máximo he estado 30 días en el barco
-
-真能吐到你要死的感觉
-Tanto es el vómito que sientes la muerte oportuna
-
-大海一点都不好玩
-El mar no es nada divertido
-
-那种吐那种颠倒的真的把你扔到房子上乱扔的感觉
-Esa vomitadera es como una sensación de tirarte a la casa
-
-特别是大货船
-Especialmente los buques de carga
-
-大家带着方便面带点吃的东西
-Todos llevan pasta instantánea o algo para comer
-
-那难受死了
-Pero eso es tan incómodo
-
-这些人上去得冠状病毒的机会太大了
-Las posibilidades de que estas personas contraigan el coronavirus son demasiado grandes
-
-所以这人就不去了
-Entonces la gente no va
-
-没有中间环节哪有你卸货的环节
-Si no hay esta parte intermedia cómo se puede descargar la mercancía
-
-这些压的货是原来弄货压在那儿
-Estas mercancías son los que ya estaban ahí
-
-就没人给你搬了
-Solo que no hay quien los descargue
-
-**原视频网址：**[https://gettr.com/post/ph227wae74](https://gettr.com/post/ph227wae74)
-
-日期：11/18/2021
-原视频标题：供应链核心环节断裂
-El eslabón central de la cadena de suministro está roto
-原视频日期：11/16/2021
-原视频网址： https://gettr.com/post/ph227wae74
-任务编号：KC266（2913）
-视频时间段：0:00-2:19
-
-西听校：洛杉矶盘古农场- 小文萱
-翻译：洛杉矶盘古农场- 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 –天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（文章内容仅代表作者个人观点）
 
  
 

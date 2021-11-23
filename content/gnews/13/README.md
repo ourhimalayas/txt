@@ -2,50 +2,80 @@
 ---
 
 
-## 美国通货膨胀：哪些类别受到的冲击最大
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1686707/)
+## 美国老百姓的三个不允许
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1686817/)
 
-**据《零对冲》作者：TYLER DURDEN，2021年11月20日报道：**
-最近几个月，经济活动中的一些价格一直在上涨，正如Visual Capitalist的Nick Routley在下面揭露的那样，公众正在注意到这一点。这方面的一个指标是，对“通货膨胀”一词的搜索热度比过去十年的任何时候都高。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/pol-1.jpg)图片源自Visual Capitalist
-劳工统计局最近的数据强调了全面的成本上升，并显示特定行业今年正经历快速的价格上涨。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/as3qt-jqboi.jpg)图片源自Visual Capitalist
-通货膨胀在哪里受到最严重的打击？
-自1996年以来，美联储的货币政策一直围绕着每年保持2%的通货膨胀。在过去几十年里的大多数情况下，美国的通货膨胀率通常徘徊在该目标的一个或两个百分点之内。
-现在，大多数价格类别都超过了这一目标，有些还相当引人注目。以下是过去12个月中各类消费支出的表现。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/125.jpg)图片源自Visual Capitalist
-在这些顶级类别中，燃料和运输显然受到最严重的打击。
-进一步深入研究数据，也会发现更细微的故事。下面，我们审视受到特别严重打击的五个消费支出领域，过去一年的价格上涨了多少，以及为什么价格上涨如此之快。
+[https://gtv.org/video/id=619c02f6e6900076612e8d2b](https://gtv.org/video/id=619c02f6e6900076612e8d2b)
 
-1. 汽油（+50%）
-由于汽油的价格比前一年每加仑上涨了一美元以上，消费者正在感到不安
-简单地说，需求的增加和全球供应的限制导致了价格上涨。即使价格上涨，美国的石油生产也从大流行中缓慢反弹，因为美国石油公司对过度供应市场持谨慎态度。
-同时，拜登总统已将通货膨胀确定为“重中之重”，但政府可用于遏制价格上涨的工具有限。目前，拜登已敦促联邦贸易委员会审查能源公司在油价上涨中扮演了什么角色。
-2. 天然气 (+28%)
-天然气价格上涨的原因与汽油类似。供应恢复得很慢，墨西哥湾的石油和天然气生产在9月受到飓风艾达的不利影响。
-与前一个冬天相比，家庭的取暖费可能会猛增54%。据估计，60%的美国家庭用化石燃料取暖，因此价格上涨几乎肯定会对假日季节的消费支出产生影响。
-3. 二手车（+26%）
-全球半导体紧缩正在给许多行业造成混乱，但汽车行业受到的影响是独一无二的。现代汽车可以包含远远超过1000个芯片，因此供应紧张，仅在美国就阻碍了近一百万辆汽车的生产。这种芯片短缺正在对二手车市场产生连锁反应，二手车市场在一年内跃升了26%。同期，租车行业也增长了近40%。
-4. 肉类 (+15%)
-肉类生产商正面临着一些不利因素，其结果是消费者在收银台前的价格上涨。运输和燃料成本正在成为价格上涨的因素。劳动力供应受限也是该行业的一个问题，COVID-19的限制措施加剧了这个问题。作为一个最高级别的类别，通货膨胀率很高，但在具体的动物产品类别中，如未加工的牛肉和熏肉，在过去12个月中，通货膨胀率达到两位数。
-5. 家具和床上用品(+12%)
-这个类别受到一些因素的影响。今年早些时候，木材价格与其他原材料一起飙升，产生了明显的影响。撇开材料不谈，由于全球供应链的问题，如港口倒闭，实际运输这些笨重的货物一直是一个挑战。
+**郭文贵**
+**Miles Guo**
 
+老百姓绝不允许今天你做的，世界经济即将崩溃通缩前、滞涨和通胀的并发前
+The Laobaixing will never allow you to do what you do today, the world economy is about to collapse before deflation, stagflation, and inflation
 
-通货膨胀如何影响消费者的支出
-随着消费者调整他们的购买习惯，价格上涨不可避免地影响经济。
-根据最近的一项调查，88%的美国人说他们对美国的通货膨胀感到担忧。以下是消费者计划缩减开支的五大领域。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/last.jpg)图片源自Visual Capitalist
-通货膨胀在2022年将继续上升吗？
-许多专家认为，美国的通货膨胀将在2022年减速，尽管他们在这个问题上没有达成共识。
-如果没有出现严重的问题，半导体供应的改善和世界各地港口拥堵的缓解，可能有助于减缓通货膨胀。也就是说，如果说过去几年有什么迹象的话，那么意外事件随时都可能改变局势。
-就近期而言，消费者将需要适应艰难的冲击。
+并发症给美国人民，带来了三不允许的政治灾难
+Complications have brought three forbidden political disasters to the American people
 
-**原文连接：**[https://www.zerohedge.com/personal-finance/us-inflation-which-categories-have-been-hit-hardest](https://www.zerohedge.com/personal-finance/us-inflation-which-categories-have-been-hit-hardest)
+谁知道？你不知道七哥告诉你
+Who knows? you didn’t know, let me tell you
 
-翻译：洛杉矶盘古农场- TrueSky
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场 – 小象の奶瓶 
+第一条，油价，永远不接受超过四美金一桶（口误），永远不接受
+The first, oil price, never accept more than four dollars a gal-lon, never accept
+
+只要超过四美金了，你就放心吧，美国这个政治就大变了
+As long as it exceeds four dollars, you wait and see that the politics of the United States will change drastically
+
+大家去看现在是多少了，多少钱一桶了（口误），油价
+Let’s see how much it is now, how much is a gallon? and oil price
+
+第二个，就是买的面包，不能叫食品，
+The second one is the bread, it can’t be called food
+
+你不能通称食品，也不能通称什么，就是面包价
+You can’t generically refer to food, nor can you generically re-fer to it, it is the bread price
+
+面包价只要超过1.2刀，就是那个块的时候，
+If the bread is over $1.2, which is a loaf of bread
+
+一般一块大面包大概是2.8到3.5美金，你只要超过四美金，五美金时，
+Generally, a loaf of bread is about US$2.8 to US$3.5, once the price over four or five dollars
+
+老百姓就反了，从历史可以查去，面包啊，咱说的面包不能叫食品
+Laobaixing will be angry, this is all well documented in history, the bread that we cannot call food
+
+这是第二个，第三件事情，什么，气
+This is the second, what is the third one? It’s nature gas
+
+美国点的气，美国的气，这个国家很厉害的，
+The natural gas in the United States, people are very smart
+
+只要这个气超过历史上均价的20%，老百姓就不想做饭了
+As long as this gas is more than 20% of the historical average price, the people don’t want to cook
+
+气和什么连着呢，跟电也连着呢，电价也不能上，就简称气电
+What is the connection with natural gas? It connects with elec-tricity that can’t be increased, so it’s abbreviated as gas and electricity
+
+所以气电，面包，油价只要超过这价格
+So gas and electricity, bread and oil once exceed this bench mark price
+
+不管你哪党，咔，走人，而且经济一定是大崩跌
+No matter which party you are, it must step down quickly, and the economy must be collapsing
+
+**原视频链接**[:](https://gettr.com/post/phfjqn3e2c)[https://gettr.com/post/phfjqn3e2c](https://gettr.com/post/phfjqn3e2c)
+
+Date:11/21/2021
+原视频标题: 美国老百姓的三个不允许
+Three of the deplorable in the U.S. are not allowed
+原视频日期：2021/11/19
+原视频链接https://gettr.com/post/phfjqn3e2c
+任务编号：2960
+视频时间段 : 0:00-1:38
+
+英听校：洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

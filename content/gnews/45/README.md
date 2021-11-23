@@ -2,30 +2,17 @@
 ---
 
 
-## 喜马拉雅币一周分析
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1685883/)
+## 中共无法兑现多国借款，多数国家转向欲建交台湾、新中国联邦
+` YALUN 亚伦` [轉載自GNews](https://gnews.org/zh-hans/1685941/)
 
-作者： 纽约香草山金融部 – ILOVE战神
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-过去一周喜马拉雅币价格从约$30上涨至最高约$40，目前回落至约$37，一周内最高涨幅突破33%。喜马拉雅币上市以来交易量突破1800万枚 ，占今年总发行量仅约1.8%。目前大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9-12.jpg)
-郭文贵先生在直播中透露，喜支付将很快上线，喜币将在全球可以随时自由交换，喜币的抵押贷款功能也会在几个月内推出。美加日地区将很快开通KYC，在此之前喜币价格的上涨都还远远没有开始。
+作者：新西兰伊甸农场 亚伦
 
-另外本周一阿联酋迪拜的Danube Properties地产开发公司已经签署协议，同意接受喜币喜美元购买该公司开发的任何房产。Danube是阿联酋排名前十的房地产开发商，还是迪拜排名第一的建筑材料供应商。据郭文贵先生直播中透露，随着喜币进入流通领域，以及G-Fashion与G-Club的实体化发展，各类实体店都将接受喜币支付，喜币的价值将达到之前不可想象的高度，并改变人类的生活方式，三年后必将超越比特币。郭先生建议喜币的投资者可以在明年5月份卖出一点应对维持生活的需要，一年后可以考虑拿一部分做抵押，而喜币真正的价值只有在2-3年后才能显现出来。
+据郭文贵先生在11月22日盖特直播中透露，近日中共内部连续收到所谓兄弟国家发来的照会，要求中共兑现当初答应的借款、贷款承诺。但是，中共目前的内外交困的经济现状根本无法兑现，便开始一如既往地耍流氓模式。“兄弟”国家们很强硬，说中共不能兑现借款，就要转向和中国台湾建交，和新中国联邦建交。此行径也打脸习主席关于“一带一路”座谈会声称的“实打实、沉甸甸的成就”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6ba1fa4749047afa0d3edbbe49f527ce-1.png)图片来源FRED DUFOUR/AFP
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-总编：Irene木木
-编辑：文真
-校正/发稿：Fei797
+中共现在面临的国际形势是全世界80%的国家是他的敌人，20%的是冲着中共的钱和中共暂时站在一起。原来那些国家跟中共做交易的牌只有台湾，现在多了新中国联邦。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

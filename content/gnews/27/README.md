@@ -2,30 +2,42 @@
 ---
 
 
-## 有声|GTV自动多语言字幕功能在1120大直播中应用
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1686487/)
+## 24 小时内有 13 例死胎 @ 温哥华狮门医院不列颠哥伦比亚省
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1686591/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-11月20日，1120三周年纪念日大直播中，GTV启用自动多语言字幕功能，这是自11月11日正式上线以后的再次应用。
+作者：Breaking-news.ca
+翻译：HimaFAFA
 
-目前，此功能仅在网页版的GTV上推出，并且能够支持中文简体，中文繁体，广东话，英文，日语，韩语，法语，西班牙语，阿拉伯语等十二种语言。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/LionsGateHospital-1.jpg)
 
-并且，用户在收看GTV网页版直播时，还可以选择高清视频直播、低像素视频直播以及纯语言直播形式。
+- 11 月 11 日，1:00 – 3:00 北温哥华狮门医院紧急入口
 
-文字版原文：[GTV自动多语言字幕功能在1120大直播中应用](https://gnews.org/zh-hans/1683527/)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+- 与梅尔布鲁谢博士和丹尼尔·长濑博士集会。他们与皇家骑警交谈，然后前往紧急入口。医生将感谢我们与他站在一起以提高对这种实验性注射危险的认识。
 
+
+- 平均而言，他们每个月会看到 1 例死产。杜拉斯报告说，在 24 小时内接受实验注射的妇女有 13 例胎死腹中。媒体没有报道这一点。大药厂关照媒体，媒体选择沉默。
+
+
+来源：https://breaking-news.ca/13-stillborn-deaths-in-24-hours-rally-lions-gate-hospital-vancouver-british-columbia/
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

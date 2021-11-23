@@ -2,56 +2,29 @@
 ---
 
 
-## 新冠病毒“疫苗”使人们更容易感染艾滋病毒、HPV、疱疹
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1686358/)
+## 有声|盖特新功能“Instagram导入”开始内测
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1686509/)
 
-**【评论：】***制造病毒是为了让你去打疫苗，病毒只是道具，疫苗才是真正的生化武器。传播真相，拒绝疫苗，保护家人！*
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+11月17日，郭文贵先生发布盖特消息称，盖特新功能——“Instagram导入”已经进入内部测试阶段。
 
-据《自然新闻网》记者 Ethan Huff 2021年11月19日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-586-e1637612812716.png)图片来源：自然新闻网
-**最近我们警告您有关武汉冠状病毒（Covid-19）“疫苗接种”导致的急性伤害趋势，包括猝死。但要记住的另一件事是，在大多数“完全接种疫苗”的患者中，正在发生一个更微妙的缓慢伤害过程。**
+用户在注册盖特新账户时，可以直接选择Instagram同名账号导入。盖特现有用户，如果想将Instagram账号导入盖特，可以将所属Instagram用户名留言给盖特工程师，要求导入账号。
 
-**这种缓慢杀死过程的影响可能不会立即显现，但随着时间的推移，它们会随着疫苗接种对免疫系统的抑制而变得更加明显，使其更容易感染其他病毒。**
+Instagram是脸书旗下的社交媒体平台，和脸书使用同样的“言论审查”政策，不允许用户表达与其不同的政治观点。与其相异的政治观点的图片和视频会遭到封禁，甚至会因此被封号。盖特与这些社交媒体平台相反，没有“言论审查”，是一个言论自由的社交媒体平台，用户可以畅所欲言，自由的表达自己，因此吸引大量热爱自由的人进驻。盖特开发这个新功能，为盖特用户提供了更全面的服务，更方便的体验。同时，吸引更多的人加入到盖特的平台中来，成为盖特的用户。
 
-瑞安·科尔博士是一名获得董事会认证的病理学家，他经营着爱达荷州最大的独立诊断实验室，他说他观察到接受了COVID-19疫苗注射的人的健康状况正在明显下降。
+文字版原文：[盖特新功能“Instagram导入”开始内测](https://gnews.org/zh-hans/1683511/)
 
-科尔博士在下面的视频中警告说：“在人们接种这些疫苗后，我们担忧地看到这些你想要在你身体里的重要杀手T细胞被抑制在一个很低的水平，”科尔博士在下面的视频中警告说，“这几乎是一种反向艾滋病毒。”
-
-“感染艾滋病毒后，您会失去辅助T细胞，即CD4细胞。在这种疫苗接种后的病毒中，我们看到的是杀伤性T细胞、CD8细胞的下降。CD8细胞有什么作用？他们会控制所有其他病毒。”
-
-科尔博士说，在实验室中，他发现疱疹病毒家族以及女性宫颈活检和宫颈抹片检查中的带状疱疹病毒、单病毒和人乳头瘤病毒 (HPV)急剧上升。（相关：科尔博士还说，自1月以来，子宫内膜癌的发病率上升了2,000%。）
-
-“除此之外，还有一点传染性肿块，孩子们被称为传染性软疣，”科尔说，“你需要什么来控制它？你需要CD8杀伤性T细胞。我看到50岁以上的人出现这种小肿块和皮疹的人数增加了20倍。”
-
-“这是无害的，但它告诉我的是这些接种疫苗的人的免疫状态。我们实际上是在削弱这些人的免疫系统。”
-
-科尔博士在他的实验室观察到的另一趋势是癌症的大量增加。他警告说，自从首次引入“Operation Warp Speed”（译者：Operation Warp Speed ( OWS ) 是由美国政府发起的一项公私合作伙伴关系，旨在促进和加速COVID-19疫苗、治疗方法和诊断方法的开发、制造和分销。）注射以来，现在某些类型癌症的平均值是正常平均值的20倍。
-
-“现在最令人担忧的是，体内有这些类型的免疫细胞是用来控制癌症的。”科尔博士说，“自从1月1日在实验室里，我看到子宫内膜癌的发病率比我每年看到的增加了20倍，我一点也不夸张。”
-
-“我在年轻患者中看到了侵袭性黑色素瘤。通常我们会及早发现它们，它们是薄的黑色素瘤。在过去的一两个月里，我看到厚厚的黑色素瘤猛增。”
-
-科尔博士说正在发生的事情是，完全接种疫苗的人的身体正在被重新调整为衰弱的免疫状态。这种被动重新调整是否是永久性的还有待观察。
-
-**“我已经看到了早期信号，我们正在将免疫系统修改为衰弱的状态。”他警告说，“也许免疫系统会再生，这些比率会回升。但谁在研究它？长期试验在哪里—两个月、四个月，这个配置文件锁定了多长时间？我们不知道。”**
-
-**换句话说，这是一项大规模的免疫系统篡改实验，很可能会对选择参与其中的人产生毁灭性的永久性影响。**
-
-视频链接：[https://help.twitter.com/en/twitter-for-websites-ads-info-and-privacy](https://help.twitter.com/en/twitter-for-websites-ads-info-and-privacy)
-
-原文链接：[https://www.naturalnews.com/2021-11-19-covid-vaccines-suppressed-immunity-hiv-hpv-herpes.html#](https://www.naturalnews.com/2021-11-19-covid-vaccines-suppressed-immunity-hiv-hpv-herpes.html#)
-
-翻译：洛杉矶盘古农场 – 小象の奶瓶
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – Wendy
-编辑：洛杉矶盘古农场 – Wendy
-
-
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

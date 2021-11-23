@@ -2,12 +2,18 @@
 ---
 
 
-## 11/20/2021【1120三周年纪念】班农先生十分了解中共国，并十分热爱中国的老百姓
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1686296/)
+## 运动员因 COVID VAX 而倒下和死亡
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1686507/)
 
-郭先生讲述和班农先生第一次见面的印象。班农先生了解中共国，了解中国历史，热爱中国老百姓。他同意美国的所有问题都是中共造成的
+**作者：日本东京方舟农场 JIHO**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+* * *
+
+*素材采编：JIHO*
+
+*发布：Ranting*
+
+*封面制作：Kotek*
 
  
 
