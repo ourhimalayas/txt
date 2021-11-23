@@ -2,49 +2,25 @@
 ---
 
 
-## 菲律宾总统对中共非法阻拦菲律宾补给船表示憎恨
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1687163/)
+## 抗议政府“疫情暴政”的示威浪潮在全球范围内爆发
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1687177/)
 
-作者：东京樱花团 – 在远方
+采编：Ucool优酷     编译撰稿：硫酸羟氯喹64
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/b-5-edited.jpg)图片来源：零对冲
 
 
+据欧洲知名自媒体《零对冲》11月22日报道，成千上万名热爱自由的民众日前在欧洲各地集会游行，以此反抗当局最新公布的各种暴虐的公共卫生防疫法规。
 
-当地时间11月22日，在东盟与中共建立对话关系30周年峰会上，菲律宾总统杜特尔特对中共海警船使用水炮对付菲律宾补给船的事件表示憎恨。他强调，这会对菲律宾与中共的关系造成影响，而法治才是解决问题的唯一途径。
+本次全球自发的反政府示威活动，除了在奥地利、意大利、英国、法国、德国和荷兰等大部分欧洲国家之外，加拿大、澳大利亚、日本，以及美国的一些主要城市也都出现了反对当局疫情限制措施的抗议浪潮。
 
-11月16日，中共非法阻拦了菲律宾补给船。次日，美国国务院发言人普赖斯警告说，任何针对菲律宾公共船只的“武装攻击”都会导致1951年美菲条约的启动，即美国有保护盟友菲律宾的义务。
+报道称，在周末发生的集会游行中，欧洲许多城市的抗议者都一致为维护自己的生命安全和健康自由而战斗，并以此对抗各国政府试图通过增加封锁隔离、疫苗护照和强制接种等极权手段对广大公众基本权利的剥夺。
 
-据了解，本周菲律宾军方将恢复向驻守在阿云金暗沙的菲律宾军人运送物资。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3.1-6.jpg)
-参考链接：
-[菲律宾总统“憎恨”中国海警船射水炮 防长指示补给船再出发](https://www.voachinese.com/a/philippines-south-china-sea-resupply-20211122/6322648.html)
+报道最后指出，人们已开始觉醒，并逐渐意识到当局的暴政正在侵犯和剥夺他们的生活和自由。由于全球精英及其政治傀儡官员们正在变得比以往任何时候都更为邪恶，因此，尽管各国人民与其政府之间日益增长的对抗情绪是危险的，但也许这就是革命的开始。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+原文链接：
 
-总编：飞虹
-编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[https://www.zerohedge.com/political/well-never-give-protests-erupt-across-europe-over-govt-covid-tyranny](https://www.zerohedge.com/political/well-never-give-protests-erupt-across-europe-over-govt-covid-tyranny)
 
  
 

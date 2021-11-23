@@ -15,86 +15,86 @@
 
 ---
 
-### [奥地利“封锁一切”，“未接种疫苗”的非洲仍未受影响](/content/gnews/1/README.md)
+### [60岁及以下接种疫苗人群的死亡率是未接种人群的两倍](/content/gnews/1/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [这篇报道出现在日文网站将带给日本什么？](/content/gnews/2/README.md)
+### [奥地利“封锁一切”，“未接种疫苗”的非洲仍未受影响](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [这篇报道出现在日文网站将带给日本什么？](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共被逼债濒临外交绝境，新中国联邦广受各国欢迎](/content/gnews/3/README.md)
+### [中共被逼债濒临外交绝境，新中国联邦广受各国欢迎](/content/gnews/4/README.md)
  ` 澳喜特战旅Gnews`
 
-### [[Michael.Tonny专栏]VAERS数据证明疫苗导致死亡、流产、血栓和心脏病](/content/gnews/4/README.md)
+### [[Michael.Tonny专栏]VAERS数据证明疫苗导致死亡、流产、血栓和心脏病](/content/gnews/5/README.md)
  ` 温哥华扬帆农场`
 
-### [习罕见出席东盟峰会迫切建立“伙伴关系”以抗美](/content/gnews/5/README.md)
+### [习罕见出席东盟峰会迫切建立“伙伴关系”以抗美](/content/gnews/6/README.md)
  ` HimalayaRussia`
 
-### [兄弟国家要不到中共的钱提出要跟台湾和新中国联邦建交](/content/gnews/6/README.md)
+### [兄弟国家要不到中共的钱提出要跟台湾和新中国联邦建交](/content/gnews/7/README.md)
  ` NewFOC`
 
-### [重点提示：铸币权、H-Pay代理权、清理骗币者和砸币者](/content/gnews/7/README.md)
+### [重点提示：铸币权、H-Pay代理权、清理骗币者和砸币者](/content/gnews/8/README.md)
  ` NewFOC`
 
-### [GTV新闻访谈简报|2021年11月22日晚](/content/gnews/8/README.md)
+### [GTV新闻访谈简报|2021年11月22日晚](/content/gnews/9/README.md)
  ` 纽约香草山MOS01`
 
-### [医生起诉医院禁止COVID患者服用伊维菌素及其他药物](/content/gnews/9/README.md)
+### [医生起诉医院禁止COVID患者服用伊维菌素及其他药物](/content/gnews/10/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [澳大利亚军队开始将中共病毒阳性病例和接触者转移到隔离营](/content/gnews/10/README.md)
+### [澳大利亚军队开始将中共病毒阳性病例和接触者转移到隔离营](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [警方说威州游行碾压案嫌犯涉及“内部纠纷”](/content/gnews/11/README.md)
+### [警方说威州游行碾压案嫌犯涉及“内部纠纷”](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [雅典娜时报-第121期](/content/gnews/12/README.md)
+### [雅典娜时报-第121期](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳大利亚军队强行转移疫区民众至集中隔离营](/content/gnews/13/README.md)
+### [澳大利亚军队强行转移疫区民众至集中隔离营](/content/gnews/14/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [中共网球运动员神秘失踪后，汤姆·科顿做出预警](/content/gnews/14/README.md)
+### [中共网球运动员神秘失踪后，汤姆·科顿做出预警](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [抗议政府“疫情暴政”的示威浪潮在全球范围内爆发](/content/gnews/15/README.md)
+### [抗议政府“疫情暴政”的示威浪潮在全球范围内爆发](/content/gnews/16/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [菲律宾总统对中共非法阻拦菲律宾补给船表示憎恨](/content/gnews/16/README.md)
+### [菲律宾总统对中共非法阻拦菲律宾补给船表示憎恨](/content/gnews/17/README.md)
  ` GTV新闻访谈`
 
-### [台湾智库建议：推进台湾版本的“军事质量优势”计划](/content/gnews/17/README.md)
+### [台湾智库建议：推进台湾版本的“军事质量优势”计划](/content/gnews/18/README.md)
  ` GTV新闻访谈`
 
-### [加拿大取消对来往美国边境居民的病毒测试要求](/content/gnews/18/README.md)
+### [加拿大取消对来往美国边境居民的病毒测试要求](/content/gnews/19/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [秘翻在线：从对班农先生的起诉中看中共对美国司法产生的负面影响](/content/gnews/19/README.md)
+### [秘翻在线：从对班农先生的起诉中看中共对美国司法产生的负面影响](/content/gnews/20/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [参议员瑞克·斯科特： 美国政府必须促使国际奥委会 和国际社会把2022年冬奥会撤出 共产中国](/content/gnews/20/README.md)
+### [参议员瑞克·斯科特： 美国政府必须促使国际奥委会 和国际社会把2022年冬奥会撤出 共产中国](/content/gnews/21/README.md)
  ` 美国政要直译推`
 
-### [班农先生指出，与中共合作的全球主义者希望像中共一样拥有极权统治](/content/gnews/21/README.md)
+### [班农先生指出，与中共合作的全球主义者希望像中共一样拥有极权统治](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [一天13例死产，医师要求调查“疫苗灾难”](/content/gnews/22/README.md)
+### [一天13例死产，医师要求调查“疫苗灾难”](/content/gnews/23/README.md)
  ` GTV新闻访谈`
 
-### [接种辉瑞疫苗最初两个半个月，美国收到近16万例不良反应报告](/content/gnews/23/README.md)
+### [接种辉瑞疫苗最初两个半个月，美国收到近16万例不良反应报告](/content/gnews/24/README.md)
  ` GTV新闻访谈`
 
-### [美传媒大亨呼吁CNN回归正确的新闻价值观](/content/gnews/24/README.md)
+### [美传媒大亨呼吁CNN回归正确的新闻价值观](/content/gnews/25/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [联盟工作汇报文字版2021.11.21](/content/gnews/25/README.md)
+### [联盟工作汇报文字版2021.11.21](/content/gnews/26/README.md)
  ` 纽约香草山MOS02`
 
-### [11/22/2021 文贵盖特：全球股市和房价疯狂上涨，加密货币动荡的背后是大量洗钱](/content/gnews/26/README.md)
+### [11/22/2021 文贵盖特：全球股市和房价疯狂上涨，加密货币动荡的背后是大量洗钱](/content/gnews/27/README.md)
  ` 秘密翻译组-北美组`
-
-### [加拿大政府暂无儿童疫苗强制接种计划](/content/gnews/27/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
 
 ### [西方专家的困惑：不接种疫苗的非洲摆脱了大流行疫情](/content/gnews/28/README.md)
  ` 墨尔本雅典娜农场`

@@ -2,9 +2,10 @@
 ---
 
 
-## 接种辉瑞疫苗最初两个半个月，美国收到近16万例不良反应报告
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1687120/)
+## 一天13例死产，医师要求调查“疫苗灾难”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1687121/)
 
+新闻采集：Eglisebell
 作者：纽约香草山医疗部 – 云豹
 
 
@@ -13,16 +14,12 @@
 
 
 
-近日，美国律师阿隆·喜利收到FDA提供的部分档案。其中显示，截至2021年2月28日，辉瑞疫苗开始注射的最初两个半个月内，总共收到15万8千893例不良反应。其中有1223例是死亡，520例是后遗症。
+11月11日，在加拿大英属哥伦比亚省的温哥华狮门医院前，有两位医师及支持民众在急诊室前游行，他们诉求调查医院高层是否有从疫苗厂商获取不当利益，而大力推行疫苗接种。
 
-女性出现不良反应的次数是男性的3.25倍。出现最大量不良反应的人群是在31到50岁。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-9.jpg)
-最常出现不良反应的身体部位，依次是神经系统，肌肉骨骼结缔组织系统，肠胃系统，呼吸系统，皮肤及皮下组织。
-
-出现比较多的不良反应症状有淋巴结病变、心跳加速、恶心、发烧、冷颤、呼吸困难、皮肤搔痒红疹等。
-
+近日，该医院发生了一日内出现13例死产病例的异常现象，这些发生死产的孕妇都打过中共病毒疫苗。过去，通常该院一个月只发生一例死产病例。如此差距巨大的数字，让医师不得不提出警告，要求对该院进行调查。 院方同意了两位医师的诉求。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1.2-8.jpg)
 参考链接：
-[FDA Records Subpoenaed By Attorney Shows Over 158,000 Adverse “Events” In First 2.5 Months of COVID Shot Trials](https://www.redvoicemedia.com/2021/11/fda-records-subpoenaed-by-attorney-shows-over-158000-adverse-events-in-first-2-5-months-of-covid-shot-trials/)
+[13 STILLBORN DEATHS IN 24 HOURS – RALLY @ LIONS GATE HOSPITAL](https://www.bitchute.com/video/Tw2CR3kL0ypC/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
