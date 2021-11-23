@@ -2,20 +2,20 @@
 ---
 
 
-## 岸田文雄与泰国总理会谈，强烈反对中共海上霸权
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688298/)
+## 中共要求给房地产放水，银行不情不愿
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688394/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-47.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww3.nhk.or.jp%2Fnhkworld%2Fupld%2Fthumbnails%2Fzh%2Fnews%2F334259_16234_L.JPG&amp;imgrefurl=https%3A%2F%2Fwww3.nhk.or.jp%2Fnhkworld%2Fzh%2Fnews%2F334259%2F&amp;tbnid=vldd1oKnYaMBhM&amp;vet=12ahUKEwi2rpHmpa70AhWcnEsFHQl0BUYQMygAegQIARB2..i&amp;docid=rtOra4742n5QPM&amp;w=640&amp;h=360&amp;q=%E5%B2%B8%E7%94%B0%20%E6%B3%B0%E5%9B%BD&amp;ved=2ahUKEwi2rpHmpa70AhWcnEsFHQl0BUYQMygAegQIARB2)
-日本首相岸田文雄11月22日晚间，与泰国总理巴育举行了就任后的首次电话会谈，并确认与两国加强合作，促进双边关系进一步发展。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7868.png)[图片来源](https://big5.ftchinese.com/story/001088790?archive)
+近日，有投资者在互动平台提问：贵行在最近是否加大了个人住房贷款投放，客户一般要等多久放款？
 
-在与泰国总理巴育的会谈中，岸田表示：“希望进一步发展两国之间的‘战略合作伙伴关系’，为实现‘自由开放的印太地区’而加强合作。”对此，巴育总理回应称：“为了推动双边关系进一步发展，希望密切开展合作。”
+招商银行11月22日在投资者互动平台表示，我行将坚决落实“房住不炒”的政策，继续大力支持自住型刚需，维护房地产市场的健康发展，维护住房消费者的合法权益。同时，我行也将密切关注房地产市场结构性变化，区分区域、区分开发商、区分楼盘，做到“因城施策”、“一盘一策”，做好风险防控。我行根据按揭贷款年度计划，按照审批时间顺序等原则，制定了房贷放款相关规则，在正常时效内有序发放住房贷款。我行目前住房按揭投放整体平稳有序。
 
-围绕地区局势问题，在考虑到中共国相关活动的背景下，岸田指出：“日本强烈反对试图单方面改变东海及南海现状的行为。”两国首脑还就改变缅甸局势问题表示将进一步携手合作。
+从招行官方“三个区分”、“两个政策”的表态，可以看出，中共国银行都清楚房地产已无药可救，放贷就是烂账，因此，嘴上不得不对中共的命令进行服从表态，动作上则是能拖则拖，能不放贷决不放贷。
 
-消息来源:
+信息来源：
 
-[岸田与泰国新加坡首脑举行电话会谈](https://www3.nhk.or.jp/nhkworld/zh/news/334259/)
+[招商银行：我行也将密切关注房地产市场结构性变化，区分区域、区分开发商、区分楼盘，做到“因城施策”、“一盘一策”，做好风险防控](http://www.nbd.com.cn/articles/2021-11-22/2005156.html)
 
 *校对：东京樱花团/知了知了*
 *发布：东京樱花团/tdownc2p*

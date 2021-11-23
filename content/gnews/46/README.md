@@ -2,48 +2,86 @@
 ---
 
 
-## 新州长面对悉尼大规模反抗示威依然铁心不放宽政策
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1687532/)
+## 视频| 回顾11·20爆料革命给世界的警醒
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1688072/)
 
-撰稿/翻译：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_2159.jpg)截图自Sky News
-上周六，澳大利亚各大省会城市如悉尼，墨尔本，布里斯班，珀斯爆发了总数几十几万人的游行和集会。特别是悉尼，是自解除封锁后的第一个合法集会，悉尼警方动用了600名警察和骑警维持秩序。
+## 剪自《2021年11月20日“11·20”发布会及法治基金、法治社会成立三周年纪念日大直播》
 
-新南威尔士州州长宣布，他的政府不会从 12 月 15 日起放宽对未接种疫苗的限制。
-
-新南威尔士州长多米尼克·佩罗特 (Dominic Perrottet)在周日表示：“我将日期定为 12 月 15 日，该日期有一些令人讨厌和令人沮丧的限制，我和其它人一样讨厌戴口罩”。他还说对于政府在大流行期间做出的决定，每个人对这些事情都有自己的看法和意见”。
-
-“如果你看一下死亡率和经济成就，澳大利亚是世界上最好的国家，我们能够在非常具有挑战性的情况下做到这一点”。
-
-周日，该州记录了176个新病例，而疫苗接种率继续向95%的目标上升。
-
-根据新南威尔士州全国COVID-19的统计数据，16岁及以上人口中有94.4%的人接种了一剂疫苗，91.8%的人完全接种。
-
-在12至15岁的人群中，有81%的人至少接种了一剂疫苗，75%的人完全接种。
-
-根据目前的路线图，当该州的双剂量疫苗接种率达到95%或在12月15日，未接种的居民将放宽限制。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_2097-scaled.jpg)图片：Jenny
-回想香港反送中运动，当上街抗议的民众人数不断创新高，不断刷新全世界看瓜群众的眼球时，我们曾经期盼极权政府会顾及一下民众的感受有所收敛，但残酷的现实是香港就此沦陷，同样的事情会在澳大利亚上演吗？
-
-今天的澳大利亚犹如八九六四的北京，犹如反送中时的香港。独裁者们暂时猖狂得胜，但人们不会退缩不会放弃！因为我们不希望被子孙后代埋怨为什么你没有抗争？
-
-看看这个推友的点评精辟：
+制作：香草山视频部，香草山香港部
 
 
 
-> Same snake different head. Every Australian is being played and robbed now in daylight and we give him beer and cheers while we are bleeding out slowly but surely dissipating
-> — SIGMA (@cryptotwat2) [November 22, 2021](https://twitter.com/cryptotwat2/status/1462904905878753281?ref_src=twsrc%5Etfw)
+今天这个11·20的日子
+我们看到今天再坐到这里的时候
+这个世界已经是大变了
+最大的变化是什么？
+刚才班农先生已经讲了
+我想说的是：第一个
+当年我们讲的11·20是王健事件
+还有成立法治基金法制社会
+还有战友们的爆料革命
+谁想到在三年之后
+共产党不仅杀掉了王健
+它杀掉了世界几百万人
+几亿人现在都染上了病毒
+我们成立法治基金法制社会
+在美国在西方合法的呼吁
+我们是第一个告诉世界
+冠状病毒是共产党的生化武器
+我们是最早告诉冠状病毒不是最重要的
+疫苗灾难才是真正最重要的
+我们和班农先生最早告诉世界的
+共产党在你美国影响的是华尔街的金融
+无处不在
+班农先生就能体现出来一次一次的被抓
+是吧？就能体现出来
+而且这个事情再看我们11·20
+11·20班农先生最早提出来
+成立成立法治基金法制社会
+这是他创建出来的
+他是个大师级别的班农先生的脑子
+不是一般的人
+然后再看当时王健先生
+我们在全球的调查和情报
+和立刻执行的能力
+可以说到今天为止，天下无双
+第三个是当时欺民贼
+共产党对我们的造谣和威胁
+也没有人敢相信会发生在美国这种程度
+就是体现了共产党
+在全世界的流氓主义、黑社会主义
+更重要的事情悲哀的全世界
+被完全的共产党的渗透
+媒体渗透、金融渗透、政府渗透
+没有听到我们用生命
+不顾一切的向西方传达的声音
+那就导致了最后的冠状病毒和疫苗
+所以当和班农先生
+我们今天坐在这里的时候
+世界真的是走向
+地球以来最大的灾难
+比恐龙我觉得还恐怖
+恐龙它是没有办法的自然灾害
+我们是让你死不了活不了的恐惧之中
 
 
 
-同蛇不同头。每个澳大利亚人现在都在光天化日之下被玩弄和抢劫，我们给他啤酒和欢呼，而我们正在慢慢流血但肯定会消失。
+发稿：雪梨
 
-悲壮但很真实。
+![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
 
-[译文链接：](https://www.skynews.com.au/australia-news/politics/premier-dominic-perrottet-not-willing-to-bring-easing-of-restrictions-for-unvaccinated-forward-despite-protest-of-thousands/news-story/470d7c85abe89c4c7af3f5ace0e79385)
+**更多资讯，更多关注**
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

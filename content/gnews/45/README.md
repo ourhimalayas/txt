@@ -2,24 +2,24 @@
 ---
 
 
-## COVID-19 最新情报｜德国卫生部长发出威胁式警告：到冬季结束，德国人有三种选择：打针、治愈、死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1687587/)
+## 威尔士的一家电影院因拒绝检查疫苗护照而被勒令关停
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1688090/)
 
-**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜23/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+#### 翻译/撰稿：zzballack
 
-近期，德国单日 COVID-19 确诊病例数屡破纪录，处于疫情爆发以来最危急的时刻，卫生部长延斯·斯潘（Jens Spahn）周一（22日）召开紧急新闻发布会，表示“到今年冬天结束，正如那些冷嘲热讽的言论一样，几乎所有的德国人，要么接种疫苗、要么治愈或者死亡。”他强调，这是他迄今为止对坚持不接种疫苗者发出的最严厉警告。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-17.jpg)图片来源：deadlinenews
+据《布雷特巴特新闻网》（Breitbart News）11月21日报道，位于威尔士斯旺西（Swansea）的一家电影院Cinema & Co.因为拒绝检查疫苗护照，11月18日被当地政府勒令关闭28天，原因是没有遵守一些有关的防疫程序，包括没有执行健康通行证的检查程序。
 
-德国目前的疫苗接种率已接近七成，据罗伯特·科赫研究所 (Robert Koch Institute) 周一的报告指，德国每周每 10 万人仍有 387 例 COVID-19 确诊病例，创历史新高。很明显，斯潘部长将这一现象归咎于未接种疫苗的三成人身上。
+该公司11月16日在脸书发帖说：“我们不会实施健康检查，这毫无意义，也没必要。疫苗护照是对我们人权的侵犯，也是对行使身体自主权的人的歧视。作为我们尊贵的客户，我们相信你会履行这些权利带来的责任。如果你感到不适，就呆在家里。我们不会因年龄、种族、性别、残疾、信仰或个人医疗选择而歧视任何顾客。”
 
-关于疫苗安全性的问题，斯潘否认了民众对卫生部门有刻意掩盖疫苗伤亡个案的指控，他引述德国疫苗监管机构的负责人 Klaus Cichutek 的评论，“疫苗在安全性方面没有问题，副作用方面更是罕有发生，每 10 万例不到 10 例。”
+威尔士当地政府在11月初实施规定，要求进入夜总会、体育场和其他大型场所必须出示疫苗护照。并在11月15日将该规定的适用范围扩大到电影院、音乐厅和剧院。因此，威尔士的电影观众现在必须出示健康通行证，以证明他们接种了新冠疫苗，或过去48小时内的新冠核酸检测为阴性，才能进入影院。
 
-他认为，BioNTech 和 Moderna 疫苗是 COVID-19 疫苗的梅赛德斯和劳斯莱斯，呼吁民众选择时，可考虑优先接受 Moderna，因为大量 Moderna 疫苗将在 2022 年初到期。斯潘又指，到今年年底，德国将有 5000 万剂冠状病毒疫苗可用——其中 2400 万剂来自 BioNTech，其余 2600 万剂来自 Moderna，“这就是为什么我们如此迫切地建议接种疫苗。”
+根据威尔士目前的规定，企业在开业前必须完成新冠风险评估，其中包括执行健康通行证的检查，屡犯不改的将面临最高1万英镑的罚款。
 
-**最后，他还补充指，料欧盟将在本周末批准将疫苗用于 5 至 11 岁儿童。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-15.jpg)
-来源｜[Politico](https://www.politico.eu/article/jens-spahn-germany-biontech-pfizer-covid-19-vaccination/)
+Cinema & Co.的强硬立场得到了广泛的支持。他们发起的为弥补28天停业损失的众筹活动，在活动前两天就募集到了5万多英镑。
+
+新闻来源：[British Cinema Ordered to Close After Refusing to Check COVID Passports](https://www.breitbart.com/europe/2021/11/21/british-cinema-ordered-to-close-after-refusing-to-check-covid-passports/)
 
  
 

@@ -2,25 +2,34 @@
 ---
 
 
-## 中共地方债务违约节节攀升
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688663/)
+## 美议员谴责国际奥委会与中共勾结虐待彭帅
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1688698/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-27.jpg)
-[图片来源](https://www.google.com/search?q=%E5%9C%B0%E6%96%B9%E5%80%BA&amp;tbm=isch&amp;ved=2ahUKEwjt4buuta70AhVZmUsFHVCCBtUQ2-cCegQIABAA&amp;oq=%E5%9C%B0%E6%96%B9%E5%80%BA&amp;gs_lcp=CgNpbWcQAzIFCAAQgAQyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBg6BwgjEO8DECc6CggjEO8DEOoCECc6BwgAEIAEEAxQ0wVYxEpgqExoC3AAeACAAdkEiAHUEJIBCTAuOC4yLjUtMZgBAKABAaoBC2d3cy13aXotaW1nsAEKwAEB&amp;sclient=img&amp;ei=TtWcYe2CJtmyrtoP0ISaqA0&amp;bih=625&amp;biw=1366&amp;rlz=1C1YKST_enUS900US901#imgrc=oEyKDzMebCB0fM)
+#### 撰稿：日本东京方舟农场  幽兰自得
 
-11月23日每日经济报报道，财政部公布2021年10月地方政府债券发行和债务余额情况。2021年10月，全国发行地方政府债券8761亿元。其中，发行一般债券2320亿元，发行专项债券6441亿元；按用途划分，发行新增债券6145亿元，发行再融资债券2616亿元。2021年1—10月，全国发行地方政府债券64916亿元。其中，发行一般债券24705亿元，发行专项债券40211亿元；按用途划分，发行新增债券36625亿元，发行再融资债券28291亿元。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/C3789160-60C6-4124-BF73-0FF630B26FE6.jpeg)美国国会共和党联邦众议员麦考尔（图片来自法新社）
 
-中共国每年存量债务到期额均在4.4万亿元以上，其中，2021年到期额达5.82万亿元，中共国二十年的GDP增长刚好是债务的增长，说明了房企债务违约，地方债违约，面对不断加大的付息压力，违约债务随时可以让地方政府爆发债务危机，让地方政府破产。
+中共国网球名将彭帅失踪多日，引起国际关注。中共官媒近期频繁放出彭帅的照片及影片，但却不仅未能解除人们对于彭帅是否自由和安全的担忧，反倒更加生疑。让人意想不到的是，国际奥委会此时突然站了出来，公然帮中共“洗地”。
 
-信息来源：
+据《自由时报》11月23日报道，11月21日，国际奥委会（IOC）突然发布主席巴赫（Thomas Bach）与彭帅视讯通话的声明，以此证明彭帅“安然无恙”。对此，美国联邦众议院外交事务委员会共和党首席议员麦克·麦考尔（Michael McCaul）发表声明，谴责IOC变成中共虐待彭帅的积极参与者。
 
-[财政部：10月全国发行地方政府债券8761亿元](https://me.mbd.baidu.com/r/wRMXMvgMxi?f=cp&amp;rs=3438845515&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=c8b2cb6f8188055e)
+麦考尔指出，IOC并没有把巴赫与彭帅的视讯通话内容提交给独立媒体。现场除了彭帅与IOC官员以外，唯一一位在场人士是中共国奥委会副主席，而他同时也是中共高官。
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
+麦考尔认为，IOC官员不假思索地全盘接受中共大外宣言论，原本已经够让人不安了。而此次IOC又配合中共进行“公关宣传”，俨然成为了中共虐待彭帅的积极参与者。
 
+麦考尔在声明中表示，现在的IOC并不是注重于保护奥林匹克运动员的福祉，而是更看重于它与中共的经济合作关系。
+
+麦考尔还强调，中共过去就犯下种族灭绝与侵犯人权行为，如今IOC又直接与中（共）国奥委会勾结压制彭帅，拜登政府应对此采取行动，并为那些参加北京冬奥的美国运动员即将“进入敌对环境”做好准备。
+
+*参考链接：[https://news.ltn.com.tw/news/world/breakingnews/3745200](https://news.ltn.com.tw/news/world/breakingnews/3745200)*
+
+* * *
+
+*素材采编：幽兰自得*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
 
  
 

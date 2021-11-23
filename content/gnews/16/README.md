@@ -2,24 +2,29 @@
 ---
 
 
-## 中介倒闭潮吹响了中共彻底瓦解的冲锋号
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1688600/)
+## 中共国第一家沃尔玛超市即将关闭
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688636/)
 
-撰稿：自由战士
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-40.jpg)
+[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.corporate.walmart.com%2Fdims4%2FWMT%2F5c437f5%2F2147483647%2Fcrop%2F5760x3237%252B0%252B593%2Fresize%2F1000x562%253E%2Fquality%2F90%2F%3Furl%3Dhttps%253A%252F%252Fcdn.corporate.walmart.com%252F80%252Faa%252F3b532f56400d96b21d13f518d076%252Fcfs-2037-walmart-china-lead-28.jpg&amp;imgrefurl=http%3A%2F%2Fwww.walmartfoodsafetychina.com%2Fabout-us%2Fabout-walmart-china&amp;tbnid=hWUuNsBriJvioM&amp;vet=12ahUKEwjt4buuta70AhVZmUsFHVCCBtUQMygEegUIARCpAQ..i&amp;docid=3_hMceD88MyCuM&amp;w=1000&amp;h=562&amp;q=%E6%B2%83%E5%B0%94%E7%8E%9B&amp;ved=2ahUKEwjt4buuta70AhVZmUsFHVCCBtUQMygEegUIARCpAQ)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot-2021-11-23-202321-1.png)
+11月23日新京报讯报道，位于深圳的中国大陆第一家沃尔玛即将停业，中国大陆第一家沃尔玛门店即将关闭一事，新京报记者联系沃尔玛相关负责人。对方回应称，因业主即将对物业进行整体升级改造，位于深圳市罗湖区洪湖路湖景花园的沃尔玛门店将于2021年12月7日起停止营业。
 
-图片来自网络
+在过去近6年里，沃尔玛在国内的门店已经关闭近80家。其中，今年8月10日，北京沃尔玛朝阳店停止营业。据当时的公告显示沃尔玛此店关闭后，北京还有10家沃尔玛门店，其中包括沃尔玛购物广场7家、山姆会员店3家。
 
-如果说恒大事件是点燃了中共地产泡沫破裂的开始，那么线下批量中介的关门正式拉响了中共地产行业瓦解的冲锋号。刚刚的一则中共消息报道，据《中国新闻周刊》22日报道，今年前9个月，深圳已有642家中介门店关停。截至10月，深圳二手房成交量连续6个月下跌，9月份成交1635套，创近12年新低。同时也关注了一线其他城市，例如北京，上海，广州、杭州、宁波、成都、厦门等城市房产中介也出现了类似现象。市场的冰冻，成交的低迷，价格频跌，市场已经失去了原来的虚假繁荣，中介几个月接不到一个单，必将引起连锁反应，被逼无奈只能关门。
+除沃尔玛之外，今年4月，在济南经营17年的家乐福解放桥店悄然闭店。今年5月，沈阳家乐福哈尔滨路店（惠工店）宣布于5月31日起停止经营，家乐福将关闭国内近一半的传统超市。
 
-其次，中共吹嘘的三大支柱产业：房地产，教育培训，医药。三大支柱产业，已经在习大神的英明带领下干翻两大产业，目前只剩下医药行业垂死挣扎。随着疫苗副作用的爆发，必将唤醒底层更多的百姓认知。文贵先生说过，中共经济的崩溃就代表着中共邪恶政权的彻底瓦解。看来这个日子即将到来。
+在过去的4年时间沃尔玛关闭80家门店，位于深圳洪湖的这家沃尔玛，诞生于1996年，是深圳乃至中共国内地第一家沃尔玛超市。历经25年，见证了中共国翻腾腹地的变化，从诞生到如今宣布关闭，是一个时代的结束。
 
-最后，无论是地产行业的泡沫破裂，还是培训行业的消失，中共始终认为自己有能力用自残的形式让世界金融海啸席卷全球。通过病毒和金融海啸彻底把西方世界打趴下。给自己的邪恶政权来续命。但是我们新中国联邦的这颗正义之星在全球战友和文贵先生的努力下必将战胜邪恶，带领全人类迎来光明。
+信息来源：
 
-文章仅代表作者本人观点,与GNews无关
+[中国大陆第一家沃尔玛12月关门，回应称因业主对物业升级改造](https://ms.mbd.baidu.com/r/wRnmovGRDq?f=cp&amp;rs=3546228816&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=bcf134246174d357)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
+
 
  
 

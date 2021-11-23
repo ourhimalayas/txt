@@ -2,35 +2,40 @@
 ---
 
 
-## 美议员谴责国际奥委会与中共勾结虐待彭帅
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1688698/)
+## 郭文贵先生就周日喜币价位振荡回复广大战友
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1688739/)
 
-#### 撰稿：日本东京方舟农场  幽兰自得
+作者：纽约香草山农场福音部-恩永存
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月22日，郭文贵先生在GETTR直播中，就周日喜币交易额一度大幅下跌的事宜，向广大爆料革命的战友们进行了回复。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-23-下午9.24.45.png)
+郭先生表示，此次喜币大幅下跌，系有卖家恶意低价抛售的结果，其中不乏居心叵测、刻意砸盘的中共灭爆小组潜伏者。然而，绝大多数持币人的坚持和不断入驻的优质买家，使得喜币在短时间内价格恢复到38美元的价位。此次砸盘行为，并未造成恶劣影响，相反，证实了喜币的真实价值和喜联储的可靠。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/C3789160-60C6-4124-BF73-0FF630B26FE6.jpeg)美国国会共和党联邦众议员麦考尔（图片来自法新社）
+此外，郭先生提醒战友们，不要忘记我们灭共的使命，并希望战友们铭记：
 
-中共国网球名将彭帅失踪多日，引起国际关注。中共官媒近期频繁放出彭帅的照片及影片，但却不仅未能解除人们对于彭帅是否自由和安全的担忧，反倒更加生疑。让人意想不到的是，国际奥委会此时突然站了出来，公然帮中共“洗地”。
+第一，新GTV投资者将是G系列投资的原始股东。只有拥有新GTV股权的战友，才能享有喜联储百分之五的股权，也是未来GETTR百分之五的股东，更享有GFASHION的原始股投资的特权。
 
-据《自由时报》11月23日报道，11月21日，国际奥委会（IOC）突然发布主席巴赫（Thomas Bach）与彭帅视讯通话的声明，以此证明彭帅“安然无恙”。对此，美国联邦众议院外交事务委员会共和党首席议员麦克·麦考尔（Michael McCaul）发表声明，谴责IOC变成中共虐待彭帅的积极参与者。
+第二，拥有Gclub卡的会员，将有Hpay的优先代理权；
 
-麦考尔指出，IOC并没有把巴赫与彭帅的视讯通话内容提交给独立媒体。现场除了彭帅与IOC官员以外，唯一一位在场人士是中共国奥委会副主席，而他同时也是中共高官。
+第三，骗喜币砸喜币者，其喜币必被收回并退款；在任何时间，全球喜马拉雅联盟都有权利将违反《喜币配额承诺协议》的持币人取消喜币持有的资格，因为额度是联盟争取的，《协议》具有法律效力。
 
-麦考尔认为，IOC官员不假思索地全盘接受中共大外宣言论，原本已经够让人不安了。而此次IOC又配合中共进行“公关宣传”，俨然成为了中共虐待彭帅的积极参与者。
+郭先生呼吁战友们务必配合联盟委员会的行动，找出骗币砸币者，共同维护喜联储优质投资者的利益。
 
-麦考尔在声明中表示，现在的IOC并不是注重于保护奥林匹克运动员的福祉，而是更看重于它与中共的经济合作关系。
+参考链接：[https://gettr.com/post/phm51a8243](https://gettr.com/post/phm51a8243)
 
-麦考尔还强调，中共过去就犯下种族灭绝与侵犯人权行为，如今IOC又直接与中（共）国奥委会勾结压制彭帅，拜登政府应对此采取行动，并为那些参加北京冬奥的美国运动员即将“进入敌对环境”做好准备。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-*参考链接：[https://news.ltn.com.tw/news/world/breakingnews/3745200](https://news.ltn.com.tw/news/world/breakingnews/3745200)*
+总编：文特
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-* * *
-
-*素材采编：幽兰自得*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
