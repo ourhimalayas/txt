@@ -2,48 +2,27 @@
 ---
 
 
-## 一天13例死产，医师要求调查“疫苗灾难”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1687121/)
+## 加拿大取消对来往美国边境居民的病毒测试要求
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1687161/)
 
-新闻采集：Eglisebell
-作者：纽约香草山医疗部 – 云豹
+采编：青青      编译撰稿：苦尽甜来 (文来）
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/b-4-edited.jpg)图片来源：CBC
 
 
+据【路透社】11月21日报道，加拿大联邦政府官员当天宣称：所有进入美国边境购买燃料及其他生活必需品的加拿大人在返回时无需出示“新冠病毒”疫苗阴性检测结果，以此帮助BC省目前受洪水影响的居民。
 
-11月11日，在加拿大英属哥伦比亚省的温哥华狮门医院前，有两位医师及支持民众在急诊室前游行，他们诉求调查医院高层是否有从疫苗厂商获取不当利益，而大力推行疫苗接种。
+对此，加拿大【应急准备部】负责人布莱尔对媒体表示：虽然加拿大最西部的BC省洪水泛滥仍然严重，但随着水位下降以及道路和高速公路的重新开放，洪水所导致的灾情目前已有所改善。但本周该省预计会有更多潜在的雨，雪和暴风等破坏性天气。
 
-近日，该医院发生了一日内出现13例死产病例的异常现象，这些发生死产的孕妇都打过中共病毒疫苗。过去，通常该院一个月只发生一例死产病例。如此差距巨大的数字，让医师不得不提出警告，要求对该院进行调查。 院方同意了两位医师的诉求。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.2-8.jpg)
-参考链接：
-[13 STILLBORN DEATHS IN 24 HOURS – RALLY @ LIONS GATE HOSPITAL](https://www.bitchute.com/video/Tw2CR3kL0ypC/)
+报道称，上周因罕见暴风雨所导致的洪水和山体滑坡，冲毁了该省大部分的公路和铁路交通，并将加拿大第三大城市温哥华与低陆平原地区及其他省份隔离开来。同时，洪灾还几乎完全阻断了该市所有通往其他城镇的道路。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+* * *
 
-总编：飞虹
-编辑：木白
-校对/发稿：为真不破20
+校对编辑，发稿：硫酸羟氯喹64
 
-**更多资讯，更多关注**
+原文链接：
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[https://www.reuters.com/markets/commodities/canada-drop-covid-19-test-requirement-border-residents-going-us-essential-goods-2021-11-21/](https://www.reuters.com/markets/commodities/canada-drop-covid-19-test-requirement-border-residents-going-us-essential-goods-2021-11-21/)
 
  
 

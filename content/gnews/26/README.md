@@ -2,13 +2,11 @@
 ---
 
 
-## 法国总理已接种2剂疫苗，仍感染中共病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1687035/)
+## 11/22/2021 文贵盖特：全球股市和房价疯狂上涨，加密货币动荡的背后是大量洗钱
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1687082/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1123-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
