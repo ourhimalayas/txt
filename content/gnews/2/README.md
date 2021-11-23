@@ -2,38 +2,182 @@
 ---
 
 
-## 刚果一涉嫌非法开采的中资矿企遇袭 五名中国人被绑架
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1686810/)
+## 供应链核心环节断裂
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1686868/)
 
-**作者：日本东京方舟农场 子辰**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/a3a4l-koqqt-1.jpg)
+[https://gettr.com/post/ph227wae74](https://gettr.com/post/ph227wae74)
 
-《大纪元》11月22日消息，刚果民主共和国的一名地方官员和一名军方发言人11月21日表示，位于刚果东南部南基伍省（South Kivu）穆克拉（Mukera）村庄附近的一个金矿遭到袭击，武装匪徒一夜之间杀害了一名警察并绑架了5名中国公民。
+**郭文贵**
+**Miles Guo**
 
-据《法新社》报道，该地区军队发言人迪厄多内·卡塞雷卡（Dieudonne Kasereka）表示，周日凌晨2点，一群中国人所在营地遭到武装匪徒袭击。营地里总共有14人，其中5人被袭击者劫持，下落不明，其他9人已安全撤离。袭击中有一名警察遇难，另有一人受伤。
+在纽约也是这样的问题，毒品和所谓的这个民主党的救济
+Es el mismo problema en Nueva York. Las drogas y el llamado subsidio del Partido Demócrata
 
-菲兹地区民间社会负责人卢萨比亚·瓦努姆贝（Lusambya Wanumbe）表示，遭绑架的中（共）国公司在该地区经营金矿有四、五个月的时间。由于当地民众指责其不遵守规则，并进行抗议，该公司平常很难开展开采活动。
+让很多人不愿意工作
+Ha hecho que muchas personas no quieran trabajar
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-157.jpg)2021年11月21日凌晨，刚果一金矿的中国员工所在营地遭到袭击，5人被绑架。图为刚果境内的一座金矿。(GUERCHOM NDEBO/AFP via Getty Images)
+这是核心的原因
+Esta es la razón principal
 
-此前，南基伍省省长西奥·卡西（Theo Kasi）曾暂停了六家中共国小公司的运营，并命令所有本地和外国员工离开当地，理由是这些企业非法开采金矿，不仅伤害民众权益，更造成环境污染。
+即使没有这个供应链的问题
+Incluso sin este problema de la cadena de suministro
 
-据悉，刚果总统费利克斯·齐塞克迪（Felix Tshisekedi）目前正在审查刚果与中共国投资者签署的价值60亿美元的所谓“基础设施交换矿产”协议。该协议是在前总统约瑟夫·卡比拉（Joseph Kabila）的领导下签署的。
+它也是这样就完全这样
+Sigue siendo así
 
-刚果是世界上最大的钴生产国及非洲主要的铜矿生产国。现任总统齐塞克迪表示，他担心一些采矿合同不能使刚果充分受益。
+一直就是这十几年越来越严重
+Ha sido así, y se ha vuelto cada vez peor en los últimos diez años
 
-美国研究机构AidData在2017年发布的一份研究报告指出，中共在不少其援助的非洲国家采取“安哥拉模式”，即对部分资源丰富的国家提供基建所需资金，以换取当地原材料。如今这种模式越来越引人猜疑。一些国家已经警惕地认识到，中共正在非洲开启另一种“新殖民主义”。
+你到加州更夸张
+Es aún más exagerado si llegas a California
 
-*新闻链接：*
+那么这整个的所谓供应链的事情现在发生
+Entonces todo esto de la llamada cadena de suministro está sucediendo ahora
 
-[民主刚果一矿企遇袭 5名中国人遭绑架](https://www.epochtimes.com/gb/21/11/21/n13389794.htm)
+大家看的都是什么没人卸货
+Lo que todos ven es que no hay nadie que descargue la mercancía
 
-* * *
+然后那个货这个弄不下来可不是这个原因
+Entonces la razón por la que no se puede descargar no es por eso
 
-*素材采编：子辰*
+它根本（原因）完全是冠状病毒和疫苗
+El origen (causa) es completamente el coronavirus y la vacuna
 
-*编辑：青衣青青*
+人家不敢去冒着命去给你卸这个货
+La gente no se quiere arriesgar la vida para descargarte la mercancía
 
-*发布：Ranting*
+而且它是完全美国没有应对冠状病毒的这个保险方案
+Además, Estados Unidos no tiene en su totalidad un plan de seguro para enfrentar el coronavirus
+
+说我得的时候你给我多少保险它没有
+Decir que si me da positivo cuánto seguro me vas a dar, él no tiene
+
+那我干嘛就为了十美金二十美金去冒这个生命危险
+Entonces para qué voy a arriesgar mi vida por 10- 20 dólares
+
+他就不去干了
+No lo quiere hacer
+
+所以这个社会的保障和保险没有给这些工人的保障
+Entonces este seguro social de esta sociedad no brinda protección a estos trabajadores
+
+他就不去上班
+Él no va al trabajo
+
+第二个不要忘了
+El segundo no lo olvides
+
+美国的所有这些劳苦工人的上面的高层管理层都是白人
+La alta dirección, por encima de todos estos trabajadores en los Estados Unidos, es la raza blanca
+
+这些白人就更怕死
+Y a esta raza blanca más les da miedo morir
+
+现在是一半人不想打疫苗
+Ahorita hay una mitad de personas que no se quieren vacunar
+
+一半人没了，打了疫苗的
+Esta mitad de personas ya no hay, los que se vacunaron
+
+这些白人人家现在更不愿意去染病毒
+Estos blancos ahora menos quieren contagiarse del virus
+
+又一半没了
+Entonces la otra mitad tampoco hay
+
+它不是那个集装箱
+No son los contenedores
+
+很多人都是乱解释
+Mucha gente lo explican mal
+
+所有供应链的核心在哪里
+¿Dónde está el núcleo de todas las cadenas del suministro?
+
+核心供应链是在运输的船上
+La cadena del suministro principal está en el barco de envío
+
+不管你是中共国的始发地和到美国的这个发货目的地
+No importa si eres de origen del PCCh y el destino es los Estados Unidos
+
+它中间是那个供应船
+En el medio está el barco de suministros
+
+他这个开船的人现在是个大问题了
+El que navega el barco ahora es un gran problema
+
+不是什么人都可以开船的
+No cualquier persona puede navegar
+
+这个运输过程中的船将近60%、70%人
+Casi el 60% y el 70% de las personas de este transporte en el barco
+
+涨了两倍工资的都不冒险
+Así haya aumentado el doble de su salario no quieren correr riesgo
+
+因为当你上过那个大船你就知道了
+Porque lo sabrás si has subido a esos barcos grandes
+
+七哥到非洲去确实坐过很长
+Yo cuando fui a África si estuve un tiempo muy largo
+
+最多坐过30天的船
+Máximo he estado 30 días en el barco
+
+真能吐到你要死的感觉
+Tanto es el vómito que sientes la muerte oportuna
+
+大海一点都不好玩
+El mar no es nada divertido
+
+那种吐那种颠倒的真的把你扔到房子上乱扔的感觉
+Esa vomitadera es como una sensación de tirarte a la casa
+
+特别是大货船
+Especialmente los buques de carga
+
+大家带着方便面带点吃的东西
+Todos llevan pasta instantánea o algo para comer
+
+那难受死了
+Pero eso es tan incómodo
+
+这些人上去得冠状病毒的机会太大了
+Las posibilidades de que estas personas contraigan el coronavirus son demasiado grandes
+
+所以这人就不去了
+Entonces la gente no va
+
+没有中间环节哪有你卸货的环节
+Si no hay esta parte intermedia cómo se puede descargar la mercancía
+
+这些压的货是原来弄货压在那儿
+Estas mercancías son los que ya estaban ahí
+
+就没人给你搬了
+Solo que no hay quien los descargue
+
+**原视频网址：**[https://gettr.com/post/ph227wae74](https://gettr.com/post/ph227wae74)
+
+日期：11/18/2021
+原视频标题：供应链核心环节断裂
+El eslabón central de la cadena de suministro está roto
+原视频日期：11/16/2021
+原视频网址： https://gettr.com/post/ph227wae74
+任务编号：KC266（2913）
+视频时间段：0:00-2:19
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 –天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

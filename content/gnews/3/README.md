@@ -2,28 +2,86 @@
 ---
 
 
-## 有声|中共舰艇军机频繁骚扰日本领海领空
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1686806/)
+## 美国老百姓的三个不允许
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1686817/)
 
-配音：香草山美食部 – 玫瑰园
+[https://gtv.org/video/id=619c02f6e6900076612e8d2b](https://gtv.org/video/id=619c02f6e6900076612e8d2b)
 
-当地时间19日，日本防卫省发布消息称，一艘中共海军测量船于17日晚，在鹿儿岛县屋久岛和口永良部岛附近海域，驶入了日本领海。日本政府已经通过外交渠道，向中共传达了关切，这是日方第4次确认并公布中共海军驶入领海。
+**郭文贵**
+**Miles Guo**
 
-同日，中共和俄罗斯各2架轰炸机，在日本海和东海上空进行长途飞行，日本航空自卫队战机进行了紧急升空应对。另外，19日上午10时前后，4艘中共海警局的船只，相继驶入尖阁诸岛附近的日本领海，其中1艘还搭载了类似机关炮的装置，被日本巡逻船警告后，于11时45分驶入日本领海，进入外侧的毗连区。日本海保总部称，这是包括毗连区在内，连续32天在尖阁诸岛附近发现中共船只。
+老百姓绝不允许今天你做的，世界经济即将崩溃通缩前、滞涨和通胀的并发前
+The Laobaixing will never allow you to do what you do today, the world economy is about to collapse before deflation, stagflation, and inflation
 
-文字版原文：[中共舰艇军机频繁骚扰日本领海领空](https://gnews.org/zh-hans/1683404/)
+并发症给美国人民，带来了三不允许的政治灾难
+Complications have brought three forbidden political disasters to the American people
 
-音频处理：喜山必胜Maverick
+谁知道？你不知道七哥告诉你
+Who knows? you didn’t know, let me tell you
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+第一条，油价，永远不接受超过四美金一桶（口误），永远不接受
+The first, oil price, never accept more than four dollars a gal-lon, never accept
+
+只要超过四美金了，你就放心吧，美国这个政治就大变了
+As long as it exceeds four dollars, you wait and see that the politics of the United States will change drastically
+
+大家去看现在是多少了，多少钱一桶了（口误），油价
+Let’s see how much it is now, how much is a gallon? and oil price
+
+第二个，就是买的面包，不能叫食品，
+The second one is the bread, it can’t be called food
+
+你不能通称食品，也不能通称什么，就是面包价
+You can’t generically refer to food, nor can you generically re-fer to it, it is the bread price
+
+面包价只要超过1.2刀，就是那个块的时候，
+If the bread is over $1.2, which is a loaf of bread
+
+一般一块大面包大概是2.8到3.5美金，你只要超过四美金，五美金时，
+Generally, a loaf of bread is about US$2.8 to US$3.5, once the price over four or five dollars
+
+老百姓就反了，从历史可以查去，面包啊，咱说的面包不能叫食品
+Laobaixing will be angry, this is all well documented in history, the bread that we cannot call food
+
+这是第二个，第三件事情，什么，气
+This is the second, what is the third one? It’s nature gas
+
+美国点的气，美国的气，这个国家很厉害的，
+The natural gas in the United States, people are very smart
+
+只要这个气超过历史上均价的20%，老百姓就不想做饭了
+As long as this gas is more than 20% of the historical average price, the people don’t want to cook
+
+气和什么连着呢，跟电也连着呢，电价也不能上，就简称气电
+What is the connection with natural gas? It connects with elec-tricity that can’t be increased, so it’s abbreviated as gas and electricity
+
+所以气电，面包，油价只要超过这价格
+So gas and electricity, bread and oil once exceed this bench mark price
+
+不管你哪党，咔，走人，而且经济一定是大崩跌
+No matter which party you are, it must step down quickly, and the economy must be collapsing
+
+**原视频链接**[:](https://gettr.com/post/phfjqn3e2c)[https://gettr.com/post/phfjqn3e2c](https://gettr.com/post/phfjqn3e2c)
+
+Date:11/21/2021
+原视频标题: 美国老百姓的三个不允许
+Three of the deplorable in the U.S. are not allowed
+原视频日期：2021/11/19
+原视频链接https://gettr.com/post/phfjqn3e2c
+任务编号：2960
+视频时间段 : 0:00-1:38
+
+英听校：洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

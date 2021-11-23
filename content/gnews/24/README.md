@@ -2,55 +2,31 @@
 ---
 
 
-## 基因采集：Covid 检测公司承认向第三方出售含有客户 DNA 的 Covid 拭子
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1686459/)
+## 有声|GTV自动多语言字幕功能在1120大直播中应用
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1686487/)
 
-作者：Ethan Huff
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+11月20日，1120三周年纪念日大直播中，GTV启用自动多语言字幕功能，这是自11月11日正式上线以后的再次应用。
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Coronavirus-Covid-19-Nurse-Swab-Test-Lab-1-edited.jpg)图片来源：网络
-自然新闻：政府批准的武汉冠状病毒（Covid-19）“快速检测”供应商 Cignpost Diagnostics 宣布，它计划开始向第三方销售含有客户 DNA 的拭子。
+目前，此功能仅在网页版的GTV上推出，并且能够支持中文简体，中文繁体，广东话，英文，日语，韩语，法语，西班牙语，阿拉伯语等十二种语言。
 
-总部位于英国的数据隐私监管组织已对违反多项隐私法的开发活动展开调查。 与此同时，该公司声称需要新的暴利活动来“更多地了解人类健康”，以开发新的药品。
+并且，用户在收看GTV网页版直播时，还可以选择高清视频直播、低像素视频直播以及纯语言直播形式。
 
-所有这一切的一个主要问题是，Cignpost 从未将其意图通知任何接受任何拭子测试的人。 相反，该公司假装它只是在测试中国细菌的存在。  （相关：家庭 DNA 检测试剂盒同样阴暗，被认为是遗传学收获计划的一部分。）
+文字版原文：[GTV自动多语言字幕功能在1120大直播中应用](https://gnews.org/zh-hans/1683527/)
 
-参加测试的客户最初被要求勾选同意 4,876 字隐私政策的方框，据报道，该政策链接到另一份概述公司“研究计划”的文件。
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-“通常情况下，只有在明确知情同意的情况下，才能对敏感的医疗信息进行分析，”伦敦市中心报道。
 
-Cignpost 在英国拥有 71 个步入式地点，据说自 2020 年 6 月以来已进行了多达 300 万次 Fauci Flu 测试。 PCR 种类的每次测试的成本在 35 英镑（约合 47 美元）到 120 英镑之间 （约 162 美元）。
-
-大约有 300 万美元，这意味着 Cignpost 的收入在 1.41 亿美元到 4.86 亿美元之间。
-
-Covid 是否正在测试一项大规模的 DNA 采集、变相的获利计划？
-
-10 月 21 日是 Cignpost 更新其“研究计划信息表”的最后一次。 最新版本表明，该公司保留了客户数据，包括“生物样本”和“从此类样本中获得的 DNA”。
-
-Cignpost 还保留了“从处理您的 DNA 样本中获得的遗传信息”，该文件现在写道，并补充说这是“使用各种技术，如基因分型和全或部分基因组测序”来完成的。
-
-Cignpost 政策文件中还包含一个警告，即客户的 DNA 样本和其他个人信息将如何与与公司合作或独立工作的“合作者”共享。 这些合作者包括大学和私营公司，Cignpost 称它们“可能会收到补偿”以换取他们与该计划的合作。
-
-“目前尚不清楚 Cignpost 存储了多少样本，或者它们是否已被出售或用于任何研究，但政策规定，属于所有提供拭子的人的数据将无限期保留，”伦敦市中心补充说。
-
-需要说明的是，Cignpost 产生的 141 至 4.86 亿美元的利润仅用于正常的测试程序。 这些第三方向第三方出售拭子及其 DNA 是该公司在其隐私政策中隐藏的条款中赚取的额外利润。
-
-“让我给你一个关于这里发生了什么的线索，”Verum Et Inventa 报道。
-
-“家族史公司已经在从人们身上采集 DNA 样本，有传言说他们也可能会出售这些信息。  The Powers That Be 想要获得这些样本，但为什么呢？ 因为他们正在寻找某个人或某个特定的人基因组。”
-
-这个特定的基因组是什么？ 陪审团仍然在这个问题上，但至少有更多的人提出问题，这是朝着正确方向迈出的一步。
-
-“还有哪家生产血液、尿液或其他体液的公司不经过中国？” 自然新闻的一位评论者问道。
-
-“是的，去看医生时请阅读细则，”另一个回答。
-
-来源链接：[https://www.afinalwarning.com/571902.html](https://www.afinalwarning.com/571902.html)
-
-编辑/发布：LILY
-
-20211122
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
