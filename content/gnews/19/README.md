@@ -2,29 +2,50 @@
 ---
 
 
-## 战友，现在不是躺平的时候
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688908/)
+## 美国媒体批评拜登对台政策虚虚实实含糊不清
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1688912/)
 
-撰稿：东京樱花团/小小星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-32.png)
-[图片来源](https://www.gettr.com/post/ph7jwfc7ac)
+作者：东京樱花团—在远方
 
-经过4年多的爆料革命，我们从开始的时候听七哥每天的平安爆料，发展到追随和参与其中。在全世界各个国家建立了农场。战友们用自己的能量，撑起一片天空。是战友们忘我精神和无私奉献，使得我们的农场有了各种机能。
 
-记得有多少个战友，在夜以继日的无我工作中。战友们的心中只有一个信念，传播真相，让世界看清ccp的本质，消灭ccp！
 
-七哥也为战友们准备了一盘丰盛大餐——G系列，让战友们不再为钱发愁，不再为钱向别人低头。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-2.png)
 
-2021年11月1日，我们的Hcoin终于上线啦。这是实力和智慧的结晶！七哥给战友们的喜币都是象征性的0.1美元。开市当天就涨了快100倍。这是七哥的大爱。相信在人类世界里也只有这一次。七哥把这大爱给了成千上万的草根，给了亲爱的战友们。
 
-但是我们有了钱以后，不是要躺平，什么也不做了。七哥是让我们有了钱以后，更加坚定的灭共。因为ccp只要还在，对于任何一个人都是不安全的。他们会抢夺你的财产，剥夺你的一切！
 
-现在是灭共的关键时刻。我们已经把ccp打得体无完肤。我们一定要坚持到底。不能给ccp喘息的机会。战友们，咱们不能躺平，一定要跟随七哥，跟随农场，直到我们一起达到喜马拉雅的那一天！
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
 
+近日，美国《外交政策》杂志表示：在美中紧张关系不断升级之际，拜登却就美国对台政策已经4次说话不一致，让人担忧这可能是触发美国与中共冲突的火花。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/D92438E6-B9DA-4005-97CC-84437EECF911_w1023_n_r1_st.jpg)图片来源：美联社
+报道称，拜登于11月16日对记者表示：美国非常清晰地表明支持台湾关系法，台湾是独立的，台湾做出它自己的决定。之后拜登又澄清说，他不是在鼓励台湾政治独立，对此，美国政策没有变化。但上述言语却戳中了中共的敏感之处，中共随即警告说，如果台独分裂势力挑衅逼迫，中共将采取断然措施。
+
+自1979年美国与中共建交以来，美国不承认台湾是一个主权实体，但却与台湾政府关系密切，并且对台出售武器。美国官方说不支持台湾独立，但是在中共进攻台湾时，美国是否会干预和保卫台湾却刻意保持模糊。
+
+参考来源：[美媒：拜登总统在对台政策细节上未能表达精准](https://www.voachinese.com/a/biden-struggles-to-stick-to-the-script-on-taiwan/6321973.html)
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-9.jpg)
+
+总编：飞虹
+
+编辑/校对/发稿：兰兰
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-2.jpg)
 
  
 

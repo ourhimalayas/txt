@@ -2,50 +2,44 @@
 ---
 
 
-## 美国媒体批评拜登对台政策虚虚实实含糊不清
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1688912/)
+## 有声|苏格兰新生儿死亡数量猛增
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1688919/)
 
-作者：东京樱花团—在远方
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-2.png)
+配音：香草山香港部 – 文凯琳
 
 
 
-
-
-近日，美国《外交政策》杂志表示：在美中紧张关系不断升级之际，拜登却就美国对台政策已经4次说话不一致，让人担忧这可能是触发美国与中共冲突的火花。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/D92438E6-B9DA-4005-97CC-84437EECF911_w1023_n_r1_st.jpg)图片来源：美联社
-报道称，拜登于11月16日对记者表示：美国非常清晰地表明支持台湾关系法，台湾是独立的，台湾做出它自己的决定。之后拜登又澄清说，他不是在鼓励台湾政治独立，对此，美国政策没有变化。但上述言语却戳中了中共的敏感之处，中共随即警告说，如果台独分裂势力挑衅逼迫，中共将采取断然措施。
-
-自1979年美国与中共建交以来，美国不承认台湾是一个主权实体，但却与台湾政府关系密切，并且对台出售武器。美国官方说不支持台湾独立，但是在中共进攻台湾时，美国是否会干预和保卫台湾却刻意保持模糊。
-
-参考来源：[美媒：拜登总统在对台政策细节上未能表达精准](https://www.voachinese.com/a/biden-struggles-to-stick-to-the-script-on-taiwan/6321973.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
 
 
+据苏格兰媒体11月19日报道，9月份，苏格兰有21名婴儿在出生后28天内死亡。为此，苏格兰公共卫生部正在与苏格兰政府，正在调查新生儿死亡激增的原因。
+
+官方数据显示，9月份，每1,000名活产婴儿中有约5名死亡。这是自1980年以后出现的最高死亡率。 此消息经盖特转帖后，网友纷纷留言，质疑这些婴儿的母亲是否已接种了疫苗，甚至有网友认为这就是“疫苗谋杀”。
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-9.jpg)
+原文链接：[苏格兰新生儿死亡数量猛增](https://gnews.org/zh-hans/1684759/)
 
-总编：飞虹
+音频处理：喜山必胜Maverick
+发稿：Daxia
 
-编辑/校对/发稿：兰兰
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-2.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

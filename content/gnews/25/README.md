@@ -2,43 +2,26 @@
 ---
 
 
-## 有声|中共和俄罗斯再次联合骚扰日本
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1688857/)
+## 老百姓普遍负债，“逃废债”成产业
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688865/)
 
-配音：香草山香港部 – 文凯琳
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-50.png)
+[图片来源](https://zhuanlan.zhihu.com/p/344299870)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+据中共官媒11月23日报道，一些从事“代理投诉”“征信修复”等中介机构，通过互联网平台传播反催收技巧，教授或代理[欠款人](https://news.163.com/news/search?keyword=%E6%AC%A0%E6%AC%BE%E4%BA%BA)恶意投诉，甚至通过伪造虚假征信报告或证明材料的方式，帮助欠款人逃避金融机构债务。这种助推逃废债的“生意”已初具规模，逐步形成产业。
 
+对此，中共银保监会表示，坚决打击恶意逃废债行为，加强对违法违规网络群组的治理。业内人士建议，建立金融、司法、公安等多部门治理协调机制，提高威慑力和精准度。
 
+由于中共经济持续恶化，导致失业率飙升、物价大幅上涨、老百姓普遍负债，有数据统计全国负债人群已高达7.8亿。加之中共对于民生疾苦的漠视，自然会催生“反催收”和“逃废债”产业。
 
-据日本防卫省报道，11月19日，中俄各派出2架轰炸机组成联合编队，在日本海和东海上空进行长途飞行。日本空中自卫队战斗机随即紧急升空，采取警戒措施。
+信息来源：
 
-近几个月，中俄联军在日本周边小动作频繁。10月18日，中俄海军十艘舰艇几乎绕日本列岛一周，引发世界关注。11月18日，日本报告称，中俄驱逐舰经过对马海峡驶入东海。19日，又有4艘中共海警局的船只，相继驶入尖阁诸岛附近的日本领海。对此，日本的盟友纷纷表达关切和援助。英国航母、德国护卫舰、加拿大巡防舰于近期陆续停靠日本。
+[调查：“反催收生意”野蛮生长 逃废债渐成灰黑产业](https://www.163.com/money/article/GPFL7I8R00259DLP.html)
 
-有分析人士称，因在台湾、南中国海问题上的立场，中共对日本表示强烈的不满，而俄罗斯则一直觊觎日本的部分领土。中俄向日本的频繁军事施压，或使日本成为对抗邪恶轴心国的最前沿阵地。
-
-原文链接：[中共和俄罗斯再次联合骚扰日本](https://gnews.org/zh-hans/1684766/)
-
-
-音频处理：喜山必胜Maverick
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+编辑：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
 
 
  
