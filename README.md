@@ -111,86 +111,86 @@
 ### [西喜时事新闻简报 — 美国时事篇](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [2021/11/22 文贵先生盖特](/content/gnews/33/README.md)
+### [DC每日热点1123](/content/gnews/33/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [家庭反洗脑序列：第36篇 疫苗接种新花样](/content/gnews/34/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021/11/22 文贵先生盖特](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美日澳德加五国在菲律宾海举行联合军演](/content/gnews/34/README.md)
+### [美日澳德加五国在菲律宾海举行联合军演](/content/gnews/36/README.md)
  ` GTV新闻访谈`
 
-### [我本将心向你，你待明月如沟渠](/content/gnews/35/README.md)
+### [我本将心向你，你待明月如沟渠](/content/gnews/37/README.md)
  ` 骄子`
 
-### [有声|苏格兰新生儿死亡数量猛增](/content/gnews/36/README.md)
+### [有声|苏格兰新生儿死亡数量猛增](/content/gnews/38/README.md)
  ` MOSREC`
 
-### [11/23/2021国际财经快讯：拜登打赌美联储鲍威尔将引领美国经济全面复苏;美元稳定在16个月高点附近](/content/gnews/37/README.md)
+### [11/23/2021国际财经快讯：拜登打赌美联储鲍威尔将引领美国经济全面复苏;美元稳定在16个月高点附近](/content/gnews/39/README.md)
  ` 秘密翻译组金融团队`
 
-### [有声|纳瓦罗先生未接种疫苗，坚决反对疫苗强制令](/content/gnews/38/README.md)
+### [有声|纳瓦罗先生未接种疫苗，坚决反对疫苗强制令](/content/gnews/40/README.md)
  ` MOSREC`
 
-### [有声|2020年中国人口出生率再创新低](/content/gnews/39/README.md)
+### [有声|2020年中国人口出生率再创新低](/content/gnews/41/README.md)
  ` MOSREC`
 
-### [有声|中国人的优秀品质最终会消灭中共](/content/gnews/40/README.md)
+### [有声|中国人的优秀品质最终会消灭中共](/content/gnews/42/README.md)
  ` MOSREC`
 
-### [美联储鲍威尔连任，日元“迎来”又一波贬值](/content/gnews/41/README.md)
+### [美联储鲍威尔连任，日元“迎来”又一波贬值](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国第一家沃尔玛超市即将关闭](/content/gnews/42/README.md)
+### [中共国第一家沃尔玛超市即将关闭](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [为什么不与立陶宛断交？中共官媒回应很尴尬](/content/gnews/43/README.md)
+### [为什么不与立陶宛断交？中共官媒回应很尴尬](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [应对中共威胁，日印外长电话确认紧密合作](/content/gnews/44/README.md)
+### [应对中共威胁，日印外长电话确认紧密合作](/content/gnews/46/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [岸田文雄与泰国总理会谈，强烈反对中共海上霸权](/content/gnews/45/README.md)
+### [岸田文雄与泰国总理会谈，强烈反对中共海上霸权](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [助纣为虐！百度参与开发中共病毒疫苗](/content/gnews/46/README.md)
+### [助纣为虐！百度参与开发中共病毒疫苗](/content/gnews/48/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际要闻汇编 11月23日](/content/gnews/47/README.md)
+### [国际要闻汇编 11月23日](/content/gnews/49/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [韩正舍车保帅，上海电气爆完小雷还有大雷](/content/gnews/48/README.md)
+### [韩正舍车保帅，上海电气爆完小雷还有大雷](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [港闻前线｜加速大陆化 自选变官派 香港法援制度被颠覆](/content/gnews/49/README.md)
+### [港闻前线｜加速大陆化 自选变官派 香港法援制度被颠覆](/content/gnews/51/README.md)
  ` G&#124;News TAIWAN`
 
-### [COVID-19 最新情报｜德国卫生部长发出威胁式警告：到冬季结束，德国人有三种选择：打针、治愈、死亡](/content/gnews/50/README.md)
+### [COVID-19 最新情报｜德国卫生部长发出威胁式警告：到冬季结束，德国人有三种选择：打针、治愈、死亡](/content/gnews/52/README.md)
  ` G&#124;News TAIWAN`
 
-### [针下亡魂｜德国 15 岁少女接种疫苗三周后死亡](/content/gnews/51/README.md)
+### [针下亡魂｜德国 15 岁少女接种疫苗三周后死亡](/content/gnews/53/README.md)
  ` G&#124;News TAIWAN`
 
-### [报告建议澳洲应将日本视为应对中共 “最有利的伙伴”](/content/gnews/52/README.md)
+### [报告建议澳洲应将日本视为应对中共 “最有利的伙伴”](/content/gnews/54/README.md)
  ` 走进澳洲`
 
-### [法国总理已接种2剂疫苗，仍感染中共病毒](/content/gnews/53/README.md)
+### [法国总理已接种2剂疫苗，仍感染中共病毒](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：《周刊》杂志无耻抹黑、攻击班农先生](/content/gnews/54/README.md)
+### [秘翻在线：《周刊》杂志无耻抹黑、攻击班农先生](/content/gnews/56/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [关于喜美元和喜币税务问题的思考](/content/gnews/55/README.md)
+### [关于喜美元和喜币税务问题的思考](/content/gnews/57/README.md)
  ` 墨尔本雅典娜农场`
 
-### [犹太法庭裁决：儿童接种新冠疫苗是非强制性的，由此导致的死亡视为谋杀](/content/gnews/56/README.md)
+### [犹太法庭裁决：儿童接种新冠疫苗是非强制性的，由此导致的死亡视为谋杀](/content/gnews/58/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [大宗商品专家：“食品通胀将持续到2022年”](/content/gnews/57/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [澳大利亚国防军参与控制北领地的新冠疫情](/content/gnews/58/README.md)
+### [澳大利亚国防军参与控制北领地的新冠疫情](/content/gnews/59/README.md)
  ` 澳喜农场`
-
-### [2021年11月22日文贵先生盖特直播大雨围城速记](/content/gnews/59/README.md)
- ` Mr. Miles Guo's News Briefing`
 
 ### [背叛 betray](/content/gnews/60/README.md)
  ` 骄子`
