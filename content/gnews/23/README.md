@@ -2,40 +2,32 @@
 ---
 
 
-## 报告建议澳洲应将日本视为应对中共 “最有利的伙伴”
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1687366/)
+## 港闻前线｜港大医学院院长梁卓伟突请辞 马会履新闲职 港人讥诮“驱逐良币，劣币治港”
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1687394/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**撰文/ 台湾宝岛农场 港台前线关注组｜发布日期/ 23/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Bank-Manager-Banner.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Aus-Japan-Flag_5822.jpg.jpg)
+【香港】香港大学医学院院长梁卓伟日前宣布提早请辞后，周一（22日）首次现身公开活动，提及自己在过去24小时内经历了很多事，现在如同“耶稣复活”，更笑言指“但耶稣要用三天，我只用了24小时就重生了。”
 
+港大校长张翔 21日向全校师生发电邮，证实梁卓伟向校方递交辞职信，将于本学年完结后正式离职，比原定任期整整提早一年。同时，香港赛马会则宣布，委任梁卓伟担任慈善及社区事务执行总监，负责发展慈善政策。
 
+消息一出，立即震惊全港，梁卓伟的专业背景和个人资历相当出色，被誉为香港史上不可多得的顶级医学人才，他不但是公共卫生领域的国际认证级专家，亦是亚洲流行病学领域的世界权威之一，当年他以 40 岁之龄成为港大医学院史上最年轻的院长时，被公认是实至名归。
 
-图片来源：www.defenceconnect.com.au
+不仅如此，他曾经是曾荫权年代的特首办主任，位高权重，后来港府易主，他返回港大从事医学本业，短短几年，他所率领的传染/流行病研究团队就被国际认可为流感研究领域中，最卓越的流行病学实验室之一。
 
+拥有如此履历，今年仅 49 岁的梁卓伟在医学界的发展可谓前途无量，究竟是何原因迫使他选择在盛年激流勇退，外界流传多种猜测。
 
-#### 编译：小红帽
+《明报》引述消息人士指，港大院长的人事任用标准，不再是一位学术及行政能力兼备的人才，反而，上任之初就被质疑“不够资格”的张翔，凭藉着政治正确不但坐拥各种资源，更提早获得续任，令人意兴阑珊，因此萌生去意。
 
-今天，澳大利亚宣布符合条件的日本和韩国公民将能够在没有隔离的情况下来到澳大利亚，而此时澳大利亚与日本的关系从未如此密切。
+立场亲共的《大公报》、《香港01》等则以《梁卓伟辞任港大医学院院长转职马会年薪逾900万》为题，暗示，梁卓伟的离职动机无关其他，仅因马会收入更高。
 
-根据澳大利亚-日本研究中心（Australia-Japan Research Centre）一份重要报告的建议，随着该地区面临崛起的、更加自信的中共国，日本正在成为应对这一挑战最有利的合作伙伴。
+据资料显示，港大近期的人事变动频密，除了梁卓伟，公共卫生学院院长福田敬二的续约申请，被校长张翔一票否决，微生物学系亦有 3 名资深教授先后离职，包括刘嘉珮、胡钊逸及黄世贤。
 
-该中心的主任希罗·阿姆斯特朗（Shiro Armstrong）说，该建议“确实提升了 ”日本的重要性。
-
-“在贸易方面，我们享有最惠国待遇，我们提供同等的最佳待遇，”阿姆斯特朗先生告诉澳大利亚天空新闻。
-
-“但我们提出了一种新的最惠合作伙伴地位，在贸易之外，无论是人员流动还是技术协议–比如通过AUKUS（澳英美联盟）–日本应该自动被视为这些安排的延伸。”
-
-**参考新闻：**[Report reveals Australia should see Japan as ‘most favoured partner’ (msn.com)](https://www.msn.com/en-au/news/other/report-reveals-australia-should-see-japan-as-most-favoured-partner/ar-AAQYVch?ocid=msedgntp)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+有网民评论指，“当全世界争抢抗疫专家的时候，港府就将人才投闲置散，甚至扫地出门。”亦有网友讥讽道，“中共的『爱国者治港』已经顺利驱逐所有『良币』，『劣币治港』的时代来临。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/港台前線-（HK模板）-6.jpg)
+来源｜[明報](https://news.mingpao.com/pns/%E6%B8%AF%E8%81%9E/article/20211122/s00002/1637518424379/2017%E5%B9%B4%E5%82%B3%E8%88%87%E5%BC%B5%E7%BF%94%E7%AB%B6%E9%80%90%E6%A0%A1%E9%95%B7-%E6%98%8E%E5%B9%B4%E9%A6%AC%E6%9C%83%E5%B1%A5%E6%96%B0-%E6%A2%81%E5%8D%93%E5%81%89%E6%8F%90%E6%97%A91%E5%B9%B4%E8%BE%AD%E6%B8%AF%E5%A4%A7%E9%86%AB%E5%AD%B8%E9%99%A2%E9%99%A2%E9%95%B7) / [港大](https://www.facebook.com/393883453958717/posts/5980897621923911/?d=n) / [香港01](https://www.hk01.com/社會新聞/703346/梁卓偉任馬會總監管慈善-年薪大升料逾900萬-高過港大校長張翔)
 
  
 

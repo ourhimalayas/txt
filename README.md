@@ -15,95 +15,95 @@
 
 ---
 
-### [由律师传讯的FDA记录显示，在COVID注射试验的前两个半月中，有超过15.8万起不良“事件”](/content/gnews/1/README.md)
+### [中共超限战灭港行动（86）守护孩子行动之志愿者大军](/content/gnews/1/README.md)
+ ` 英喜-粵語組`
+
+### [【玫瑰看新闻】第201期 新中国联邦新闻](/content/gnews/2/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [DC大中华时事：中共称绝不允许支持“台独”者在大陆赚钱](/content/gnews/2/README.md)
+### [由律师传讯的FDA记录显示，在COVID注射试验的前两个半月中，有超过15.8万起不良“事件”](/content/gnews/3/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [DC大中华时事：中共称绝不允许支持“台独”者在大陆赚钱](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [每日快报：针对班农的藐视法庭案是对国会权力的滥用](/content/gnews/3/README.md)
+### [每日快报：针对班农的藐视法庭案是对国会权力的滥用](/content/gnews/5/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [维州安德鲁政府强制疫苗政策， 未接种疫苗5-12 岁儿童将停课](/content/gnews/4/README.md)
+### [维州安德鲁政府强制疫苗政策， 未接种疫苗5-12 岁儿童将停课](/content/gnews/6/README.md)
  ` 走进澳洲`
 
-### [COVID-19 最新情报｜德国卫生部长发出威胁式警告：到冬季结束，德国人有三种选择：打针、治愈、死亡](/content/gnews/5/README.md)
+### [COVID-19 最新情报｜德国卫生部长发出威胁式警告：到冬季结束，德国人有三种选择：打针、治愈、死亡](/content/gnews/7/README.md)
  ` G&#124;News TAIWAN`
 
-### [币圈新闻动态：31%的对冲基金经理计划将加密货币加到投资组合中](/content/gnews/6/README.md)
+### [币圈新闻动态：31%的对冲基金经理计划将加密货币加到投资组合中](/content/gnews/8/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [孩子打完新冠疫苗后，各种病痛触目惊心](/content/gnews/7/README.md)
+### [孩子打完新冠疫苗后，各种病痛触目惊心](/content/gnews/9/README.md)
  ` 纽约香草山MOS02`
 
-### [海军造船承包商暂停了疫苗接种计划](/content/gnews/8/README.md)
+### [海军造船承包商暂停了疫苗接种计划](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共党媒警告立陶宛，将对台湾“诉诸军事手段”](/content/gnews/9/README.md)
+### [中共党媒警告立陶宛，将对台湾“诉诸军事手段”](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [100多个全球品牌仍在从维吾尔强迫劳动中获利](/content/gnews/10/README.md)
+### [100多个全球品牌仍在从维吾尔强迫劳动中获利](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新州长面对悉尼大规模反抗示威依然铁心不放宽政策](/content/gnews/11/README.md)
+### [新州长面对悉尼大规模反抗示威依然铁心不放宽政策](/content/gnews/13/README.md)
  ` 澳喜农场`
 
-### [针下亡魂｜德国 15 岁少女接种疫苗三周后死亡](/content/gnews/12/README.md)
+### [针下亡魂｜德国 15 岁少女接种疫苗三周后死亡](/content/gnews/14/README.md)
  ` G&#124;News TAIWAN`
 
-### [前澳州副首席医疗官建议不要对12岁以下儿童接种新冠疫苗](/content/gnews/13/README.md)
+### [前澳州副首席医疗官建议不要对12岁以下儿童接种新冠疫苗](/content/gnews/15/README.md)
  ` 首尔天池农场`
 
-### [恒大价值10亿美元股份进入香港结算系统](/content/gnews/14/README.md)
+### [恒大价值10亿美元股份进入香港结算系统](/content/gnews/16/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共国阜兴集团因集资诈骗和操纵市场被罚21亿](/content/gnews/15/README.md)
+### [中共国阜兴集团因集资诈骗和操纵市场被罚21亿](/content/gnews/17/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [澳洲北领地部长：没有让步，绝对实行强制疫苗政策](/content/gnews/16/README.md)
+### [澳洲北领地部长：没有让步，绝对实行强制疫苗政策](/content/gnews/18/README.md)
  ` 澳喜特战旅Gnews`
 
-### [从康美重罚看独董生态打破](/content/gnews/17/README.md)
+### [从康美重罚看独董生态打破](/content/gnews/19/README.md)
  ` 澳喜农场`
 
-### [北领地公务员拒绝打疫苗被解雇，其他人却获得奖金](/content/gnews/18/README.md)
+### [北领地公务员拒绝打疫苗被解雇，其他人却获得奖金](/content/gnews/20/README.md)
  ` 走进澳洲`
 
-### [短视频：垂直整合供应链是应对供应困境的最佳设置](/content/gnews/19/README.md)
+### [短视频：垂直整合供应链是应对供应困境的最佳设置](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [澳大利亚金融服务部长称，比特币绝不会昙花一现](/content/gnews/20/README.md)
+### [澳大利亚金融服务部长称，比特币绝不会昙花一现](/content/gnews/22/README.md)
  ` 走进澳洲`
 
-### [港闻前线｜港大医学院院长梁卓伟突请辞 马会履新闲职 港人讥诮“驱逐良币，劣币治港”](/content/gnews/21/README.md)
+### [港闻前线｜港大医学院院长梁卓伟突请辞 马会履新闲职 港人讥诮“驱逐良币，劣币治港”](/content/gnews/23/README.md)
  ` G&#124;News TAIWAN`
 
-### [文·贵天成——文贵先生谈“董仚生”（一）](/content/gnews/22/README.md)
+### [文·贵天成——文贵先生谈“董仚生”（一）](/content/gnews/24/README.md)
  ` 墨尔本雅典娜农场`
 
-### [报告建议澳洲应将日本视为应对中共 “最有利的伙伴”](/content/gnews/23/README.md)
+### [报告建议澳洲应将日本视为应对中共 “最有利的伙伴”](/content/gnews/25/README.md)
  ` 走进澳洲`
 
-### [【Michael.Tonny专栏】FDA第一份辉瑞疫苗报告，前3个月15.9万起副作用事故](/content/gnews/24/README.md)
+### [【Michael.Tonny专栏】FDA第一份辉瑞疫苗报告，前3个月15.9万起副作用事故](/content/gnews/26/README.md)
  ` 温哥华扬帆农场`
 
-### [60岁及以下接种疫苗人群的死亡率是未接种人群的两倍](/content/gnews/25/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [Eglise医生新冠治疗的观察摘要](/content/gnews/26/README.md)
+### [Eglise医生新冠治疗的观察摘要](/content/gnews/27/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [德国STIKO: 30岁以下不建议接种莫德纳疫苗](/content/gnews/27/README.md)
+### [德国STIKO: 30岁以下不建议接种莫德纳疫苗](/content/gnews/28/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中共被逼债濒临外交绝境，新中国联邦广受各国欢迎](/content/gnews/28/README.md)
+### [中共被逼债濒临外交绝境，新中国联邦广受各国欢迎](/content/gnews/29/README.md)
  ` 澳喜特战旅Gnews`
 
-### [生命的意义是什么？（第四集）](/content/gnews/29/README.md)
+### [生命的意义是什么？（第四集）](/content/gnews/30/README.md)
  ` 纽约香草山MOS03`
-
-### [习罕见出席东盟峰会迫切建立“伙伴关系”以抗美](/content/gnews/30/README.md)
- ` HimalayaRussia`
 
 ### [GTV新闻访谈简报|2021年11月22日晚](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`

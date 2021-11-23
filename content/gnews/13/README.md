@@ -2,23 +2,48 @@
 ---
 
 
-## 前澳州副首席医疗官建议不要对12岁以下儿童接种新冠疫苗
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1687518/)
+## 新州长面对悉尼大规模反抗示威依然铁心不放宽政策
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1687532/)
 
-韩国首尔天池农场
-翻译：zzballack
-上传：追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-23-at-15.28.10.jpeg)前副首席医疗官尼克·科茨沃思 告诫各州不要强制要求儿童接种疫苗。 图片：加里·拉马奇
-据news.com.au 11月22日报道，当澳大利亚疫苗监管机构决定已给予莫德纳新冠疫苗临时授权，将给6岁以上孩子接种该疫苗后，前澳州副首席医疗官、前疫苗推广活动的负责人尼克·科茨沃斯（Nick Coatsworth）博士指出：儿童，特别是小男孩在接种新冠疫苗后患上心肌炎等心脏疾病的风险增加，因此正在敦促各州政府将12岁以下儿童排除在疫苗接种任务之外。
+撰稿/翻译：Jenny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_2159.jpg)截图自Sky News
+上周六，澳大利亚各大省会城市如悉尼，墨尔本，布里斯班，珀斯爆发了总数几十几万人的游行和集会。特别是悉尼，是自解除封锁后的第一个合法集会，悉尼警方动用了600名警察和骑警维持秩序。
 
-科茨沃斯说：“儿童新冠患者发展成重症的风险依然很低，因此父母应有权利等待更多的疫苗数据公布后，再决定是否让他们的孩子接种疫苗。在这样做的时候，孩子不应被区别对待，这实际上是通过监管进行强制。特别是在维多利亚州，首席卫生官在区别对待未接种疫苗的12-15岁儿童方面违反了自主性的基本道德原则。维州官员的这些决定令人深感担忧，维州的大流行病法案需要有更多机会进行议会监督和对这些决定进行行政上诉。当脆弱年龄组的疫苗接种率远远超过90%时，就没必要采取这种政策。”
+新南威尔士州州长宣布，他的政府不会从 12 月 15 日起放宽对未接种疫苗的限制。
 
-维州的一些家长抱怨他们被最近公布的一些规定吓坏了，这些规定要求从11月起，12至15岁孩子需要完全接种新冠疫苗才能进入商店、酒吧、参加家庭晚宴或一些学校活动。
+新南威尔士州长多米尼克·佩罗特 (Dominic Perrottet)在周日表示：“我将日期定为 12 月 15 日，该日期有一些令人讨厌和令人沮丧的限制，我和其它人一样讨厌戴口罩”。他还说对于政府在大流行期间做出的决定，每个人对这些事情都有自己的看法和意见”。
 
-澳大利亚已记录的0至9岁儿童新冠病例有27000多起，其中2.5%的儿童住院治疗。目前，辉瑞和莫德纳疫苗继续被推荐给所有12岁及以上的人。但在获准给6至11岁的孩子接种之前，它需要得到澳大利亚政府药物管理局（TGA）的全面批准。莫德纳现在已经提交了其SPIKEVAX疫苗的数据，TGA正在评估SPIKEVAX在6至11岁儿童中的使用情况。
+“如果你看一下死亡率和经济成就，澳大利亚是世界上最好的国家，我们能够在非常具有挑战性的情况下做到这一点”。
 
-[新闻来源](https://www.news.com.au/world/coronavirus/health/covid-vaccine-for-children-nick-coatsworth-advises-against-strict-vaccine-mandates-for-under-12s/news-story/8929eeec350d1fbb9560cd78982b5690)
+周日，该州记录了176个新病例，而疫苗接种率继续向95%的目标上升。
 
+根据新南威尔士州全国COVID-19的统计数据，16岁及以上人口中有94.4%的人接种了一剂疫苗，91.8%的人完全接种。
+
+在12至15岁的人群中，有81%的人至少接种了一剂疫苗，75%的人完全接种。
+
+根据目前的路线图，当该州的双剂量疫苗接种率达到95%或在12月15日，未接种的居民将放宽限制。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_2097-scaled.jpg)图片：Jenny
+回想香港反送中运动，当上街抗议的民众人数不断创新高，不断刷新全世界看瓜群众的眼球时，我们曾经期盼极权政府会顾及一下民众的感受有所收敛，但残酷的现实是香港就此沦陷，同样的事情会在澳大利亚上演吗？
+
+今天的澳大利亚犹如八九六四的北京，犹如反送中时的香港。独裁者们暂时猖狂得胜，但人们不会退缩不会放弃！因为我们不希望被子孙后代埋怨为什么你没有抗争？
+
+看看这个推友的点评精辟：
+
+
+
+> Same snake different head. Every Australian is being played and robbed now in daylight and we give him beer and cheers while we are bleeding out slowly but surely dissipating
+> — SIGMA (@cryptotwat2) [November 22, 2021](https://twitter.com/cryptotwat2/status/1462904905878753281?ref_src=twsrc%5Etfw)
+
+
+
+同蛇不同头。每个澳大利亚人现在都在光天化日之下被玩弄和抢劫，我们给他啤酒和欢呼，而我们正在慢慢流血但肯定会消失。
+
+悲壮但很真实。
+
+[译文链接：](https://www.skynews.com.au/australia-news/politics/premier-dominic-perrottet-not-willing-to-bring-easing-of-restrictions-for-unvaccinated-forward-despite-protest-of-thousands/news-story/470d7c85abe89c4c7af3f5ace0e79385)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
