@@ -2,30 +2,40 @@
 ---
 
 
-## 中共国出生率降至1978年以来最低水平
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1688732/)
+## 郭文贵先生就周日喜币价位振荡回复广大战友
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1688739/)
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+作者：纽约香草山农场福音部-恩永存
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月22日，郭文贵先生在GETTR直播中，就周日喜币交易额一度大幅下跌的事宜，向广大爆料革命的战友们进行了回复。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-23-下午9.24.45.png)
+郭先生表示，此次喜币大幅下跌，系有卖家恶意低价抛售的结果，其中不乏居心叵测、刻意砸盘的中共灭爆小组潜伏者。然而，绝大多数持币人的坚持和不断入驻的优质买家，使得喜币在短时间内价格恢复到38美元的价位。此次砸盘行为，并未造成恶劣影响，相反，证实了喜币的真实价值和喜联储的可靠。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/das-ende-der-seit-1979.jpg)
+此外，郭先生提醒战友们，不要忘记我们灭共的使命，并希望战友们铭记：
 
+第一，新GTV投资者将是G系列投资的原始股东。只有拥有新GTV股权的战友，才能享有喜联储百分之五的股权，也是未来GETTR百分之五的股东，更享有GFASHION的原始股投资的特权。
 
-图片来源： FAZ
+第二，拥有Gclub卡的会员，将有Hpay的优先代理权；
 
-中共国的出生率已降至 1970 年代后期以来的最低水平。北京统计局还含糊地解释了去年因新冠大流行而导致出生人数减少 18% 至 1200 万的情况。但专家们认为，中共国的住房、教育和医疗费用高昂以及结婚意愿下降是令人担忧的发展的主要原因。
+第三，骗喜币砸喜币者，其喜币必被收回并退款；在任何时间，全球喜马拉雅联盟都有权利将违反《喜币配额承诺协议》的持币人取消喜币持有的资格，因为额度是联盟争取的，《协议》具有法律效力。
 
-正如统计学家在他们的新年鉴中所报告的那样，这个人口最多的国家的出生率首次回落到个位数范围内，为每 1000 人中有 8.52 个新生儿，这是自 1978 年以来的最低水平。由于出生率下降和死亡人数稳定，数十亿人口正在走向零增长。
+郭先生呼吁战友们务必配合联盟委员会的行动，找出骗币砸币者，共同维护喜联储优质投资者的利益。
 
-北京人民大学宋健教授说：“如果这种趋势继续下去，几年后我们的人口就会减少。” “虽然年轻人口可能萎缩得更快，但老龄化问题会恶化，这将损害经济和社会发展。”
+参考链接：[https://gettr.com/post/phm51a8243](https://gettr.com/post/phm51a8243)
 
-统计局给出的2000年至2010年人口增长率为0.53%，2000年至2010年为0.57%，育龄妇女生育率降至1.3%。这明显低于专家认为稳定人口所需的 2.1。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-原文链接：[信息来源： 德国法兰克福报网页版](https://www.faz.net/aktuell/gesellschaft/geburtenrate-in-china-faellt-auf-niedrigsten-stand-seit-1978-17648145.html)
+总编：文特
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-免责声明：本文观点只代表作者， 与Gnews平台无关
-
-编辑发布： Shuizhuyu
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

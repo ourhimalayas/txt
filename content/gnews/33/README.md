@@ -2,24 +2,27 @@
 ---
 
 
-## 1120纪念大直播班农先生寄语：新中国联邦一定会赢
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1688738/)
+## 有声|班农先生谈加密数字货币未来真正的价值
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1688774/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11.20三周年纪念大直播中，班农先生指出法治基金成立仅三年，新中国联邦的成立才18个月，但在短时间内，新中国联邦创造出了盖特、GNEWS，GTV、喜币等媒体及金融平台，爆料革命正一步步走向胜利，一定会大获全胜。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-23-下午9.24.35.png)
-班农表示，中共的谎言已破碎，中共在德国、伦敦、华尔街等世界各地渗透的同伙正在崩溃。中共为民众建立网络防火墙，不给中国人一人一票的选举，都暴露着中共的不自信和脆弱。对比中共，中国联邦人能力卓越、学识丰富、坚强执着，具有奉献精神。新中国联邦的崛起吓坏了中共。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在“1120”三周年纪念大直播中，班农先生接受本台采访，谈到他对加密数字货币的观点。班农先生认为，人们对喜币等加密数字货币趋之若鹜，是对中共犯罪政权、腐败无能的华尔街和跨国利益精英的直接反击。
 
-直播中，郭文贵先生赞同班农，并补充道，新中国联邦人要坚信三个原则：一是上帝永远会赢，二是真理永远会赢，三是新中国联邦永远会赢。
+班农先生告诫人们，每个人都有责任为自己和家人思考未来。对自己的资产，首先应该考虑财富保值，第二，注重投资产品进行交易的能力。中共病毒导致各国政府负债累累，政府和中央银行无限印钞，最终会导致作为储备货币的美元和其它法币的崩塌。腐败当权者的胡作非为和鲁莽，是喜币和其它加密数字货币，未来非常强劲的主要原因。 
 
-参考链接：[11/20/2021【1120三周年纪念】班农先生：法治基金虽然还很年轻，但中共及其同伙已魂飞胆丧，新中国联邦注定会赢](https://gnews.org/zh-hans/1684124/)
+中共政权对经济管理不善，以及其影子银行，造成了整个金融骗局。因为缺乏社会保障体系，中国老百姓辛苦工作，拼命存钱，把财富投入到房产里。中共的房地产泡沫即将破裂，所有人的资产将被洗劫一空。 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+安全的加密数字货币会成为未来交易的货币，并最终具备存储价值。如果不想坐以待毙，被动接受现有世界经济体系的剥削，世界各国公民要尽可能多地了解加密数字货币。
 
-总编：AN
-编辑：木白
-校正/发稿：呼吸的雾霾（文小呼吸）
+
+
+文字版原文：[班农先生谈加密数字货币未来真正的价值](https://gnews.org/zh-hans/1685694/)
+
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -27,7 +30,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
