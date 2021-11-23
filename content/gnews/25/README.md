@@ -2,22 +2,52 @@
 ---
 
 
-## 前澳州副首席医疗官建议不要对12岁以下儿童接种新冠疫苗
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1687518/)
+## 海军造船承包商暂停了疫苗接种计划
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1687549/)
 
-韩国首尔天池农场
-翻译：zzballack
-上传：追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-23-at-15.28.10.jpeg)前副首席医疗官尼克·科茨沃思 告诫各州不要强制要求儿童接种疫苗。 图片：加里·拉马奇
-据news.com.au 11月22日报道，当澳大利亚疫苗监管机构决定已给予莫德纳新冠疫苗临时授权，将给6岁以上孩子接种该疫苗后，前澳州副首席医疗官、前疫苗推广活动的负责人尼克·科茨沃斯（Nick Coatsworth）博士指出：儿童，特别是小男孩在接种新冠疫苗后患上心肌炎等心脏疾病的风险增加，因此正在敦促各州政府将12岁以下儿童排除在疫苗接种任务之外。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-45.jpg)图片来源：网络图片
+翻译：love miles
+编辑：李易通
 
-科茨沃斯说：“儿童新冠患者发展成重症的风险依然很低，因此父母应有权利等待更多的疫苗数据公布后，再决定是否让他们的孩子接种疫苗。在这样做的时候，孩子不应被区别对待，这实际上是通过监管进行强制。特别是在维多利亚州，首席卫生官在区别对待未接种疫苗的12-15岁儿童方面违反了自主性的基本道德原则。维州官员的这些决定令人深感担忧，维州的大流行病法案需要有更多机会进行议会监督和对这些决定进行行政上诉。当脆弱年龄组的疫苗接种率远远超过90%时，就没必要采取这种政策。”
+一家海军造船公司在工人威胁要辞职后终止了其疫苗授权，并且海军证实不要授权了。
 
-维州的一些家长抱怨他们被最近公布的一些规定吓坏了，这些规定要求从11月起，12至15岁孩子需要完全接种新冠疫苗才能进入商店、酒吧、参加家庭晚宴或一些学校活动。
+亨廷顿英格尔斯工业公司（HII）是纽波特纽斯造船厂的母公司，是世界唯一一家美国海军核动力航母的制造商。该公司还是弗吉尼亚州和哥伦比亚州潜艇的制造商之一，在弗吉尼亚雇佣了25000多名工人。
 
-澳大利亚已记录的0至9岁儿童新冠病例有27000多起，其中2.5%的儿童住院治疗。目前，辉瑞和莫德纳疫苗继续被推荐给所有12岁及以上的人。但在获准给6至11岁的孩子接种之前，它需要得到澳大利亚政府药物管理局（TGA）的全面批准。莫德纳现在已经提交了其SPIKEVAX疫苗的数据，TGA正在评估SPIKEVAX在6至11岁儿童中的使用情况。
+该船厂此前曾宣布计划，要求其所有25000名工人在12月8日之前完全接种疫苗。最后的期限推迟到1月4日，以便留出更多时间。
 
-[新闻来源](https://www.news.com.au/world/coronavirus/health/covid-vaccine-for-children-nick-coatsworth-advises-against-strict-vaccine-mandates-for-under-12s/news-story/8929eeec350d1fbb9560cd78982b5690)
+随着上面的要求的结束，截止日期目前已“暂停”。
+
+11月17日，总裁兼首席执行官迈克·佩特斯 (Mike Petters) 在给员工的一封信  中写道：“我们不想因为病毒或疫苗授权的影响而失去任何一名员工。”
+
+“重要的是，关于英格尔斯造船厂和纽波特纽斯造船厂，我们的客户已确认，合同不包括实施疫苗授权的要求。技术解决方案的员工则处于不同的情况，他们要根据特定的合同面临不同的要求。”
+
+公司继续鼓励员工接种COVID-19疫苗，但不再强制要求雇员接种疫苗。
+
+一些员工告诉当地媒体WTKR-News3，觉得自己被骗了，因为他们按照疫苗授权计划接种了全部新冠疫苗，但现在不再适用了。
+
+“他们让我必须打疫苗然后又说不适用了”，NII的员工Deshawn Royal告诉媒体。“我不想打疫苗，但他们要求必须打，否则就会被解雇。然后他们又说你们误会了。”
+
+另一名HII的员工Rodney Apop说：“他们很疑惑但没有跳槽的机会。”
+
+“现在当他们取消了疫苗授权时，大家多么希望没有被强迫打疫苗。”
+
+此举是在当地造船工会USW Local 8888公布其关于临时合同协议的调查结果之后发生的。该协议以1312票对684票被否决。
+
+工会在信中写道：“世界上最好的造船商对公司期望更高和所获得的回报也应该越多，并希望谈判者回到谈判席达成交易。”
+
+信中指出，如果需要与公司领导进行谈判，工会仍准备罢工。
+
+工会的官员没有立即回应大纪元时报的相关评论。
+
+文章来源：[https://www.theepochtimes.com/navy-shipbuilding-contractor-suspends-vaccine-mandate-after-workers-threaten-to-leave\_4113793.html](https://www.theepochtimes.com/navy-shipbuilding-contractor-suspends-vaccine-mandate-after-workers-threaten-to-leave_4113793.html)
+
+发布：kk
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
