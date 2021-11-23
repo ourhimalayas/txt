@@ -2,70 +2,32 @@
 ---
 
 
-## 【Michael.Tonny专栏】FDA第一份辉瑞疫苗报告，前3个月15.9万起副作用事故
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1687365/)
+## 港闻前线｜港大医学院院长梁卓伟突请辞 马会履新闲职 港人讥诮“驱逐良币，劣币治港”
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1687394/)
 
-加拿大温哥华扬帆农场  Michael.Tonny
-![](https://assets.gnews.org/wp-content/uploads/2021/11/22-100.jpg)
+**撰文/ 台湾宝岛农场 港台前线关注组｜发布日期/ 23/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Bank-Manager-Banner.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
 
+【香港】香港大学医学院院长梁卓伟日前宣布提早请辞后，周一（22日）首次现身公开活动，提及自己在过去24小时内经历了很多事，现在如同“耶稣复活”，更笑言指“但耶稣要用三天，我只用了24小时就重生了。”
 
-“事出反常必有妖”，这可能是恒古不变的道理！
+港大校长张翔 21日向全校师生发电邮，证实梁卓伟向校方递交辞职信，将于本学年完结后正式离职，比原定任期整整提早一年。同时，香港赛马会则宣布，委任梁卓伟担任慈善及社区事务执行总监，负责发展慈善政策。
 
-FDA最近在应对要求分享它在许可辉瑞（Pfizer）COVID-19（CCP病毒）疫苗所依赖数据的诉讼时，极其反常的举动，就让人不得不怀疑其中的猫腻！
+消息一出，立即震惊全港，梁卓伟的专业背景和个人资历相当出色，被誉为香港史上不可多得的顶级医学人才，他不但是公共卫生领域的国际认证级专家，亦是亚洲流行病学领域的世界权威之一，当年他以 40 岁之龄成为港大医学院史上最年轻的院长时，被公认是实至名归。
 
-2021年9月16日，来自耶鲁、哈佛、加州大学洛杉矶分校和布朗大学等大学的30多名教授和科学家，向美国德克萨斯州北部地方法院（United States District Court Northern District of Texas ）起诉美国食品和药物管理局（Food and Drug Adminstration，FDA），要求FDA分享它在许可辉瑞CCP病毒疫苗时所依赖的数据。
+不仅如此，他曾经是曾荫权年代的特首办主任，位高权重，后来港府易主，他返回港大从事医学本业，短短几年，他所率领的传染/流行病研究团队就被国际认可为流感研究领域中，最卓越的流行病学实验室之一。
 
-FDA的回应居然是要求法官批准其以每月500页的速度公布辉瑞提供给FDA的329,000多页文件。你没有看错，以FDA的主张推算，最快需要55年时间，即2076年之前，FDA才能完全公布辉瑞提交的CCP病毒疫苗数据。
+拥有如此履历，今年仅 49 岁的梁卓伟在医学界的发展可谓前途无量，究竟是何原因迫使他选择在盛年激流勇退，外界流传多种猜测。
 
-当您阅读完FDA发布的第一份关于辉瑞疫苗报告信息时，您一定不会对FDA给出如此荒谬的回应再感到震惊！
+《明报》引述消息人士指，港大院长的人事任用标准，不再是一位学术及行政能力兼备的人才，反而，上任之初就被质疑“不够资格”的张翔，凭藉着政治正确不但坐拥各种资源，更提早获得续任，令人意兴阑珊，因此萌生去意。
 
-这份报告是由这一案件的代理律师，即纽约SIRI & GLIMSTAD律师事务所合伙人Aaron Siri，一名拥有丰富的复杂民事诉讼经验、尤其是涉及强制医疗民事诉讼的律师在11月20日公布的。
+立场亲共的《大公报》、《香港01》等则以《梁卓伟辞任港大医学院院长转职马会年薪逾900万》为题，暗示，梁卓伟的离职动机无关其他，仅因马会收入更高。
 
-在一份名为《5.3.6 postmarketing experience.pdf》的文件第6页3. RESULTS中，自去年12月1日辉瑞BNT162b2疫苗收到第一份紧急供应临时授权书起至今年 2月28日期间，辉瑞共收到来自世界各地的42,086份疫苗副作用病例报告，包括158,893起疫苗副作用事故！
+据资料显示，港大近期的人事变动频密，除了梁卓伟，公共卫生学院院长福田敬二的续约申请，被校长张翔一票否决，微生物学系亦有 3 名资深教授先后离职，包括刘嘉珮、胡钊逸及黄世贤。
 
-这些病例报告最多的是来自美国13,739份（34,762起疫苗事故）。其它有：英国13,404份、意大利2,578份、德国 1913份、法国 1506份、葡萄牙 866份和西班牙756份；其余7,324 份来自于其他 56 个国家和地区。
-
-报告第7页，所有病例的最终结果中，19,582例康复或正在康复，520例产生了严重后遗症，11,361例到报告截止日期（2021年2月28日）时还没有恢复，1,223例死亡，9,400例不知道结果。
-
-如下图所示，在整个数据集中，最大数量的是系统器官类别 (System Organ ClassesSOC)全身性疾病和给药部位疾病，有51,335例；神经系统疾病25,957例；肌肉骨骼和结缔组织疾病17,283例；胃肠道疾病14,096例；皮肤和皮下组织疾病8,476例；呼吸、胸和纵隔（胸口中间的区域）疾病8,848例；感染和侵染4,610例；损伤、中毒和手术并发症5,590例和还在调查中的3,693例。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-47.png)
-读完这些沉甸甸的数据，笔者查看了VAERS系统收到的疫苗事故报告。
-
-截止至2021年11月12日，VAERS共收到894,143份CCP病毒疫苗美国的不良事件报告。其中，18,853例死亡，94,537例住院治疗，99,470例紧急护理，8,082例过敏反应，11,229例贝尔氏麻痹症（Bell’ Palsy），139,952例需要看医生。
-
-而在结果栏中，有2,296例流产，9,332例心脏病，13,237例心包炎/心肌炎，30,010永久残疾（Permanently Disabled），4,387例血小板减少症/低血小板，21,089例危及生命，33,660例严重过敏反应，10,455例带状疱疹(Shingles)。
-
-如下图所示，根据VAERS的统计结果，做一个简单的数学计算，可以得出结论，2021年，美国因接种CCP病毒疫苗死亡人数是过去30年接种所有其它疫苗死亡人数总和的1.94倍，是过去30年平均每年因接种疫苗死亡人数的58.3倍。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1637639655333_1.png)
-至2021年11月12日，各种COVID-19疫苗杀死人数分别为：Janssen共1,539人，Moderna共4,613人，Pfizer共12,634，其它品牌67人。
-
-必须强调的是，根据VAERS的公开申明(the Lazarus Report)，由于VAERS为自愿报告系统，VAERS统计的数据仅占实际发生事故的1%左右。
-
-难怪Wayne Allyn Root在文章[WAYNE ROOT: The Great Vaccine Mandate Scam](https://www.thegatewaypundit.com/2021/11/wayne-root-great-vaccine-mandate-scam/)说，疫苗授权以及即将到来的疫苗护照就是作为“特洛伊木马”的伟大骗局，是在利用这项疫苗授权作为掩饰，摧毁美国经济、资本主义和伟大的美国中产阶级，CCP病毒疫苗正在瓦解美国这个伟大的国家。
-
-至此，各种披着华丽外衣的政客、FDA和CDA在CCP病毒疫苗中究竟扮演的是天使还是魔鬼，相信您已经有自己的答案。
-
-参考资料：
-
-[Attorney Releases First Pages from Subpoenaed FDA Files – Shows Pfizer Documented 158,893 Adverse Events with 25,957 Nervous System Disorders in First Few Months of Distribution](https://www.thegatewaypundit.com/2021/11/attorney-releases-first-pages-subpoenaed-fda-files-shows-pfizer-documented-158893-adverse-events-25957-nervous-system-disorders/)
-
-[VAERS COVID Vaccine Adverse Event Reports](https://openvaers.com/covid-data)
-
-[FDA Produces the First 91+ pages of Documents from Pfizer’s COVID-19 Vaccine File](https://aaronsiri.substack.com/p/fda-produces-the-first-91-pages-of)
-
-[FDA asks for 55 years to complete FOIA request on Pfizer’s COVID-19 vaccine](https://www.fiercepharma.com/pharma/fda-requests-55-years-to-complete-foia-request-pfizer-s-covid-19-vaccine)
-
-[5.3.6-postmarketing-experience.pdf](https://phmpt.org/wp-content/uploads/2021/11/5.3.6-postmarketing-experience.pdf)
-
-[WAYNE ROOT: The Great Vaccine Mandate Scam](https://www.thegatewaypundit.com/2021/11/wayne-root-great-vaccine-mandate-scam/)
-
-[vaccine foia complaint.pdf](https://fingfx.thomsonreuters.com/gfx/legaldocs/klvykdlryvg/vaccine%20foia%20complaint.pdf)
-
-[FDA Asks Federal Judge to Grant it Until the Year 2076 to Fully Release Pfizer’s COVID-19 Vaccine Data](https://aaronsiri.substack.com/p/fda-asks-federal-judge-to-grant-it)
-
-（免责声明：本文只代表作者观点，跟GNEWS平台无关）
-
-编审：文敏     发布：文敏
+有网民评论指，“当全世界争抢抗疫专家的时候，港府就将人才投闲置散，甚至扫地出门。”亦有网友讥讽道，“中共的『爱国者治港』已经顺利驱逐所有『良币』，『劣币治港』的时代来临。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/港台前線-（HK模板）-6.jpg)
+来源｜[明報](https://news.mingpao.com/pns/%E6%B8%AF%E8%81%9E/article/20211122/s00002/1637518424379/2017%E5%B9%B4%E5%82%B3%E8%88%87%E5%BC%B5%E7%BF%94%E7%AB%B6%E9%80%90%E6%A0%A1%E9%95%B7-%E6%98%8E%E5%B9%B4%E9%A6%AC%E6%9C%83%E5%B1%A5%E6%96%B0-%E6%A2%81%E5%8D%93%E5%81%89%E6%8F%90%E6%97%A91%E5%B9%B4%E8%BE%AD%E6%B8%AF%E5%A4%A7%E9%86%AB%E5%AD%B8%E9%99%A2%E9%99%A2%E9%95%B7) / [港大](https://www.facebook.com/393883453958717/posts/5980897621923911/?d=n) / [香港01](https://www.hk01.com/社會新聞/703346/梁卓偉任馬會總監管慈善-年薪大升料逾900萬-高過港大校長張翔)
 
  
 
