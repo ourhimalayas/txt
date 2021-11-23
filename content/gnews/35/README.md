@@ -2,25 +2,24 @@
 ---
 
 
-## COVID-19 最新情报｜德国卫生部长发出威胁式警告：到冬季结束，德国人有三种选择：打针、治愈、死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1687587/)
+## 日本采用污水分析法预测中共病毒感染
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1687702/)
 
-**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜23/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-179.png)[图片来源](https://www.gesui.metro.tokyo.lg.jp/news/2021/0416_4136.html)
+朝日新闻11月23日报道，东北大学和山形大学研究小组开展了一项新的试验，通过对污水中含有中共病毒的分析，预测一周内的新增感染人数，以便灵活运用医疗服务系统。
 
-近期，德国单日 COVID-19 确诊病例数屡破纪录，处于疫情爆发以来最危急的时刻，卫生部长延斯·斯潘（Jens Spahn）周一（22日）召开紧急新闻发布会，表示“到今年冬天结束，正如那些冷嘲热讽的言论一样，几乎所有的德国人，要么接种疫苗、要么治愈或者死亡。”他强调，这是他迄今为止对坚持不接种疫苗者发出的最严厉警告。
+该方法已经被用于预测诺如病毒。污水中病毒的浓度和感染人数相关，当浓度超过标准值，将给在该网站（https://novinsewage.com/）上注册的用户发送流行病警告的邮件。中共病毒的试验也使用该网站。
 
-德国目前的疫苗接种率已接近七成，据罗伯特·科赫研究所 (Robert Koch Institute) 周一的报告指，德国每周每 10 万人仍有 387 例 COVID-19 确诊病例，创历史新高。很明显，斯潘部长将这一现象归咎于未接种疫苗的三成人身上。
+11月8日至14日，第一次预测2人，实际感染1人；11月15日至21日，第二次预测22人，实际感染0人。东北大学表示，尽管该预测方法处在验证阶段，但医疗机构在考虑今后所需的病床数时，可以活用此方法。
 
-关于疫苗安全性的问题，斯潘否认了民众对卫生部门有刻意掩盖疫苗伤亡个案的指控，他引述德国疫苗监管机构的负责人 Klaus Cichutek 的评论，“疫苗在安全性方面没有问题，副作用方面更是罕有发生，每 10 万例不到 10 例。”
+信息来源：
 
-他认为，BioNTech 和 Moderna 疫苗是 COVID-19 疫苗的梅赛德斯和劳斯莱斯，呼吁民众选择时，可考虑优先接受 Moderna，因为大量 Moderna 疫苗将在 2022 年初到期。斯潘又指，到今年年底，德国将有 5000 万剂冠状病毒疫苗可用——其中 2400 万剂来自 BioNTech，其余 2600 万剂来自 Moderna，“这就是为什么我们如此迫切地建议接种疫苗。”
+[下水中のウイルスの濃度と患者数の推移が連動することが分かっていて](https://www.asahi.com/articles/ASPCQ6SR0PCKUNHB00D.html)
 
-**最后，他还补充指，料欧盟将在本周末批准将疫苗用于 5 至 11 岁儿童。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-15.jpg)
-来源｜[Politico](https://www.politico.eu/article/jens-spahn-germany-biontech-pfizer-covid-19-vaccination/)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
