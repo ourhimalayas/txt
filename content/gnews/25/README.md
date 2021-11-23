@@ -2,29 +2,23 @@
 ---
 
 
-## 欧洲各国上周末爆发反对强制接种疫苗的抗议活动
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1689335/)
+## 捷克民众抗议限制未接种者政策，为“自由”大声疾呼
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1689360/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，反对疫情限制措施的抗议活动震撼了欧洲。11月20日、21日，布鲁塞尔、维也纳、罗马和阿姆斯特丹等地爆发了示威活动，反对强制疫苗接种及疫苗护照。
+随着欧盟国家中共病毒感染人数激增，当地时间11月22日，捷克首都布拉格爆发游行，抗议者谴责政府对未接种疫苗者采取限制措施。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-9.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-15.jpeg)
 
-在奥地利进入第四次全国封锁后，近日，维也纳发生了抗议活动。
+新措施于游行当天生效。此后，未接种疫苗者即使出示中共病毒检测阴性证明，也不再被允许前往酒吧、餐馆、理发店、酒店等公共场所。而已接种疫苗者，或已从中共病毒中康复者则不受此限制。据报道，这些措施的批准，旨在提高该国目前低于欧盟平均水平的疫苗接种率。
 
-在比利时，约35,000人聚集在布鲁塞尔市中心游行。鹿特丹的示威活动持续了数日。
+近日，捷克共和国的中共病毒感染率急剧上升，上周两次创下新纪录。捷克全国1070万总人口中，确诊病例已超过2百万，其中3万2千173人死亡。
 
-在意大利，大批人群聚集在罗马，反对中共病毒疫苗护照。
-
-在克罗地亚，数千人参加了首都萨格勒布的游行，示威反对对工人进行强制性疫苗接种和中共病毒疫苗通行证。
-
-参考链接：[Protests against Covid rules and lockdowns erupt across Europe](https://www.cnbc.com/2021/11/22/photos-of-anti-covid-protests-in-europe.html)
+参考链接：[Czech protesters demand ‘freedom’ as new COVID restrictions go into effect for the unvaccinated](https://www.foxnews.com/world/czech-protesters-covid-restrictions-unvaccinated?utm_source=ground.news&amp;utm_medium=referral)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：AN
-编辑：AN
+总编：文徬
+编辑：小鹿妞妞
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
