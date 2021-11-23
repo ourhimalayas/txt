@@ -15,101 +15,101 @@
 
 ---
 
-### [如何理解墙内热词“社会很简单 复杂的是人”](/content/gnews/1/README.md)
+### [中共空军密集换装新型战机，沈飞、成飞双线满负荷运转保供力](/content/gnews/1/README.md)
+ ` G-NEWS TAIWAN`
+
+### [如何理解墙内热词“社会很简单 复杂的是人”](/content/gnews/2/README.md)
  ` 澳喜农场`
 
-### [谴责中共种族灭绝反人类，日本众多服装公司停用新疆棉](/content/gnews/2/README.md)
+### [西媒头条 — 第115期](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [谴责中共种族灭绝反人类，日本众多服装公司停用新疆棉](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [电子礼品卡领先平台GiftChill接受柴犬币作为付款方式](/content/gnews/3/README.md)
+### [电子礼品卡领先平台GiftChill接受柴犬币作为付款方式](/content/gnews/5/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [受中共病毒与中共武力双重威胁，越南总理访日寻求合作](/content/gnews/4/README.md)
+### [受中共病毒与中共武力双重威胁，越南总理访日寻求合作](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [岸田文雄与泰国总理会谈，强烈反对中共海上霸权](/content/gnews/5/README.md)
+### [岸田文雄与泰国总理会谈，强烈反对中共海上霸权](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [难道又一个珍珠港事件吗？](/content/gnews/6/README.md)
+### [难道又一个珍珠港事件吗？](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [中共国矿业公司“俊安”被格陵兰岛除名](/content/gnews/7/README.md)
+### [中共国矿业公司“俊安”被格陵兰岛除名](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [盖茨敦促各政府使用细菌游戏来应对可能的天花恐怖袭击](/content/gnews/8/README.md)
+### [盖茨敦促各政府使用细菌游戏来应对可能的天花恐怖袭击](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [英国健康安全机构：完全接种疫苗者感染率更高](/content/gnews/9/README.md)
+### [英国健康安全机构：完全接种疫苗者感染率更高](/content/gnews/11/README.md)
  ` 澳喜特战旅Gnews`
 
-### [大五毛司马南怼联想，柳传志勾结卢志强](/content/gnews/10/README.md)
+### [大五毛司马南怼联想，柳传志勾结卢志强](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [助纣为虐！百度参与开发中共病毒疫苗](/content/gnews/11/README.md)
+### [助纣为虐！百度参与开发中共病毒疫苗](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [国际要闻汇编 11月23日](/content/gnews/12/README.md)
+### [国际要闻汇编 11月23日](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [韩正舍车保帅，上海电气爆完小雷还有大雷](/content/gnews/13/README.md)
+### [韩正舍车保帅，上海电气爆完小雷还有大雷](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国营商环境恶劣，沃尔玛关店80多家](/content/gnews/14/README.md)
+### [中共国营商环境恶劣，沃尔玛关店80多家](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【玫瑰看新闻】第200期 【回魂时刻】疫苗受害者专题新闻13#](/content/gnews/15/README.md)
+### [【玫瑰看新闻】第200期 【回魂时刻】疫苗受害者专题新闻13#](/content/gnews/17/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [将悲伤转换成灭共的动力](/content/gnews/16/README.md)
+### [将悲伤转换成灭共的动力](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一对因政治原因导致离婚的恩爱夫妻大S和汪小菲](/content/gnews/17/README.md)
+### [一对因政治原因导致离婚的恩爱夫妻大S和汪小菲](/content/gnews/19/README.md)
  ` 墨尔本雅典娜农场`
 
-### [喜币是美元体系的救星](/content/gnews/18/README.md)
+### [喜币是美元体系的救星](/content/gnews/20/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [死于COVID疫苗的儿童数量多于死于中共病毒本身的人数](/content/gnews/19/README.md)
+### [死于COVID疫苗的儿童数量多于死于中共病毒本身的人数](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [由于政府权力的扩张和违宪，疫苗强制令会使小企业破产](/content/gnews/20/README.md)
+### [由于政府权力的扩张和违宪，疫苗强制令会使小企业破产](/content/gnews/22/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [视频| 每时每刻我们都在改变着人类和世界](/content/gnews/21/README.md)
+### [视频| 每时每刻我们都在改变着人类和世界](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [威尔士的一家电影院因拒绝检查疫苗护照而被勒令关停](/content/gnews/22/README.md)
+### [威尔士的一家电影院因拒绝检查疫苗护照而被勒令关停](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [视频| 回顾11·20爆料革命给世界的警醒](/content/gnews/23/README.md)
+### [视频| 回顾11·20爆料革命给世界的警醒](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [视频| 爆料革命经历的坎坎坷坷，造就了新中国联邦今天的无欲则刚（下）](/content/gnews/24/README.md)
+### [视频| 爆料革命经历的坎坎坷坷，造就了新中国联邦今天的无欲则刚（下）](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [【玫瑰看新闻】第201期 币圈新闻](/content/gnews/25/README.md)
+### [【玫瑰看新闻】第201期 币圈新闻](/content/gnews/27/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [视频| 爆料革命经历的坎坎坷坷，造就了新中国联邦今天的无欲则刚（上）](/content/gnews/26/README.md)
+### [视频| 爆料革命经历的坎坎坷坷，造就了新中国联邦今天的无欲则刚（上）](/content/gnews/28/README.md)
  ` MOSREC`
 
-### [江西赣江新区一栋宿舍楼坍塌是否预示将出现更多楼脆脆](/content/gnews/27/README.md)
+### [江西赣江新区一栋宿舍楼坍塌是否预示将出现更多楼脆脆](/content/gnews/29/README.md)
  ` NewFOC`
 
-### [墙内要闻汇编 11月23日](/content/gnews/28/README.md)
+### [墙内要闻汇编 11月23日](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共“人人影视字幕组”侵权案一审宣判](/content/gnews/29/README.md)
+### [中共“人人影视字幕组”侵权案一审宣判](/content/gnews/31/README.md)
  ` 儒为`
 
-### [见证奇迹](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【玫瑰看新闻】第201期 病毒疫情新闻](/content/gnews/31/README.md)
+### [【玫瑰看新闻】第201期 病毒疫情新闻](/content/gnews/32/README.md)
  ` 喜马拉雅农场新西兰站`
-
-### [郭先生：虚拟币的诞生不会再有任何人相信任何的纸币](/content/gnews/32/README.md)
- ` MG 澳喜农场多语组`
 
 ### [习近平统治下的百姓为谋生摆摊不行，网销也不行！](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

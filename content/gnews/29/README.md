@@ -2,24 +2,44 @@
 ---
 
 
-## 中共“人人影视字幕组”侵权案一审宣判
-` 儒为` [轉載自GNews](https://gnews.org/zh-hans/1687909/)
+## 江西赣江新区一栋宿舍楼坍塌是否预示将出现更多楼脆脆
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1687964/)
 
-作者：意大利达芬奇农场-儒为
-![](https://assets.gnews.org/wp-content/uploads/2021/11/人人影视.jpeg)封面来源：网络图片
-新华社上海2021年11月22日，上海市第三中级人民法院开庭审理被告人梁永平**涉嫌犯侵犯著作权罪**一案，并当庭作出一审判决，以侵犯著作权罪判处被告人梁永平有期徒刑三年六个月，并处罚金人民币一百五十万元；违法所得予以追缴，扣押在案的供犯罪所用的本人财物等予以没收。
+据[HJGalaxyBarnard](https://gettr.com/user/galaxybarnard)@GalaxyBarnard 25 minutes发布的盖特——
 
-中共网络审查不遗余力，不管是大鱼还是小鱼都要抓，这样既可以防止网络互通对中共洗脑教育的侵蚀，又可以依法抢劫老百姓的财富，中共最终目的就是把这些有可能对牢笼里的百姓进行“反洗脑”的渠道抓在自己手中，然后再按照需求进行串改和杜撰。
+Residential building collapse（Ganjiang.Jiangxi) 住宅楼坍塌（江西赣江）
 
-对于喜欢看外国影视而又不懂外语的华人来说，“人人影视”是我们的老朋友了，通过字幕让我们了解更多外国人的生活是什么样子？外国人的“三观”和“三情”是什么样子的？我们也在被潜移默化中产生了对外国的羡慕的向往，虽然懵懂但是种子，虽然无知但那是窗口，这也是“人人影视”被制裁的主要原因之一。
+[https://gettr.com/post/phng81f8c6](https://gettr.com/post/phng81f8c6)
 
-中共审计及鉴定，“人人影视字幕组”网站及相关客户端内共有未授权影视作品32824部，会员数量共计约683万。这只是中共官方公布出来的，实际会员数要远远大于这个数字，最起码我在“人人影视”看翻译影片时是没有注册会员的。也是基于此，中共才会对如“人人影视”这样的网络公司进行清理。
+针对此起事故央视的报道视频为[4人遇难！江西赣江新区一栋宿舍楼坍塌 事发声响巨大](https://haokan.baidu.com/v?pd=wisenatural&amp;vid=4755890695877727958&amp;source=)（来源：好看视频 央视网）
 
-中共审计，自2018年1月至案发，通过上各渠道，被告人梁永平非法经营额总计人民币1200余万元。2021年1月6日，被告人梁永平在其居住地被公安人员抓获归案，到案后如实供述了犯罪事实。这样的一个案子竟然被中共这么郑重其事的放到官媒上大肆报道，涉案金额、涉案人员、涉案理由，对于中共来说都是小的不能再小、奇怪的不能再奇怪，由此可见，其警示目的不言而喻。
+由于全网都只有死亡四人的新闻通稿，我们也无法确知在楼房坍塌时到底有多少人被埋在建筑废墟下获救，对照楼房是在2021年11月22日晚6：45分的上下班高峰时间坍塌，我们只能祈求，当时更多的居民是在上下班的路上或者是在去菜市场买菜的路上。
 
-新闻来源：🔗[“人人影视字幕组”侵权案一审宣判](http://www.news.cn/legal/2021-11/22/c_1128087756.htm)
+根据视频推测坍塌的住宅楼约为六层，坍塌区域与楼房整体的断裂部位不是犬牙交错式裂口，而是像切豆腐一样整体坍塌，根据现场建筑垃圾类型可判断为砖混结构，此类砖混楼住宅楼通常建于上世纪九十年代前后，若以90年代推算，则此楼已建成30年，从断茬形式来看应该是局部基础沉降导致坍塌区域与楼体之间发生撕裂最终坍塌。
 
-*编辑/校对/发稿：意大利达芬奇农场-儒为*
+最关键的问题是，这是一橦正常使用的建筑，它既不是危楼也未到报废年限，这样的砖混结构楼房坍塌给我们敲响了警钟，那就是上世纪以中共的建筑质量来说，在没有任何地震和其他不可抗力作用的情况下，江西赣江新区这栋住宅楼的突然坍塌是否意味着类似砖混楼接下来形成全国四处开花的楼脆脆？关于这一点我们同样不敢妄断。
+
+撰稿：喜马拉雅的肉夹馍；
+
+审核：喜马拉雅的馍夹肉；
+
+校对：Maarago
+
+（文章内容仅代表作者个人观点）
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
