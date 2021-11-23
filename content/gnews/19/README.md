@@ -2,28 +2,21 @@
 ---
 
 
-## 有声|中共舰艇军机频繁骚扰日本领海领空
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1686806/)
+## 前联邦紧急事务管理局工作人员揭露核酸检测是阴谋
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1686925/)
 
-配音：香草山美食部 – 玫瑰园
+翻译：喜国公民
+视频来自网络
+前联邦紧急事务管理局工作人员Celeste Solum爆料称，在核酸检测的过程中，人们可能被放置了一个磁性信标。因此，人们不仅会在生物上被改变，而且会被标记。
 
-当地时间19日，日本防卫省发布消息称，一艘中共海军测量船于17日晚，在鹿儿岛县屋久岛和口永良部岛附近海域，驶入了日本领海。日本政府已经通过外交渠道，向中共传达了关切，这是日方第4次确认并公布中共海军驶入领海。
+这是生命条形码计划的一部分，用于标记和识别所有的生命形式。
 
-同日，中共和俄罗斯各2架轰炸机，在日本海和东海上空进行长途飞行，日本航空自卫队战机进行了紧急升空应对。另外，19日上午10时前后，4艘中共海警局的船只，相继驶入尖阁诸岛附近的日本领海，其中1艘还搭载了类似机关炮的装置，被日本巡逻船警告后，于11时45分驶入日本领海，进入外侧的毗连区。日本海保总部称，这是包括毗连区在内，连续32天在尖阁诸岛附近发现中共船只。
+他们正在对我们的身体进行改造和重新设置。他们想把芯片放在人们的大脑中，但他们不想通过手术来实现。
 
-文字版原文：[中共舰艇军机频繁骚扰日本领海领空](https://gnews.org/zh-hans/1683404/)
+避免它的唯一方法是对新冠测试和疫苗接种说不。
 
-音频处理：喜山必胜Maverick
-
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

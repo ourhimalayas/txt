@@ -2,32 +2,183 @@
 ---
 
 
-## 台湾远东集团在大陆被“共同富裕”剑指苏贞昌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1686771/)
+## 供应链核心环节断裂
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1686868/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-21.png)[*图片来源*](https://gdb.voanews.com/C16A871F-52F0-41E7-8392-E1B7C79034E7_w1597_n_r1_st.jpg)
-**台企在大陆还能如鱼得水，问题已经不言而喻。令人费解的是，坚决反共的行政院长苏贞昌还是远东国际最大的金主。苏曾对台湾大学表示，“共产党要在台湾的大学设分支机构，不被容许。”可见此番打击目标是苏贞昌。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/a3a4l-koqqt-1.jpg)
+[https://gettr.com/post/ph227wae74](https://gettr.com/post/ph227wae74)
 
-据中共国[新华社](http://www.news.cn/2021-11/22/c_1128086331.htm)北京22日消息称，“台湾远东集团在大陆投资企业因违法违规被依法查处”。称“远东集团涉事企业承认存在违法违规事实，已缴纳或正按程序缴纳罚款及税款。”中共司马昭之心不打自招，显然是对台湾在大陆企业执行“共同富裕”。问题真 如此简单吗？
+**郭文贵**
+**Miles Guo**
 
-该消息认为，近期，中共执法部门对上海、江苏、江西、湖北、四川等五省市对台湾企业开展执法检查，“发现台湾远东集团在当地投资的化纤纺织、水泥企业在环保、土地利用、员工职业健康、安全生产及消防、税务、产品质量等方面存在一系列违法违规行为，依据国家法律法规对涉事企业采取罚款、追缴税款、限期整改等措施，并收回该企业闲置建设用地。”[**阅读更多**](http://shanghai.xinmin.cn/xmsq/2021/11/22/32067797.html)
+在纽约也是这样的问题，毒品和所谓的这个民主党的救济
+Es el mismo problema en Nueva York. Las drogas y el llamado subsidio del Partido Demócrata
 
-显然，中共所罗列罪名完全不符合逻辑，基本的常识是，一个被允许在大陆开展业务的合法企业不会有如此多违规违法行为 ，可见对其企业打压的一贯套路和险恶用心。
+让很多人不愿意工作
+Ha hecho que muchas personas no quieran trabajar
 
-- ***延展阅读：***[***中共官媒称统一后台民众年收入多2万  陆委会：夏虫语冰、贻笑大方***](https://www.hk01.com/%E5%8F%B0%E7%81%A3%E6%96%B0%E8%81%9E/703768/%E5%AE%98%E5%AA%92%E7%A8%B1%E7%B5%B1%E4%B8%80%E5%BE%8C%E5%8F%B0%E6%B0%91%E7%9C%BE%E5%B9%B4%E6%94%B6%E5%85%A5%E5%A4%9A2%E8%90%AC-%E9%99%B8%E5%A7%94%E6%9C%83-%E5%A4%8F%E8%9F%B2%E8%AA%9E%E5%86%B0-%E8%B2%BD%E7%AC%91%E5%A4%A7%E6%96%B9)
-- ***延展阅读：***[***苏贞昌：富人消失、女星不见「宁可在台湾自由」，宁自由***](https://tw.news.yahoo.com/%E5%85%A9%E5%B2%B8%E7%B5%B1%E4%B8%80%E6%94%B6%E5%85%A5%E5%A2%9E%EF%BC%9F-%E5%AF%8C%E4%BA%BA%E6%B6%88%E5%A4%B1%E3%80%81%E5%A5%B3%E6%98%9F%E4%B8%8D%E8%A6%8B-%E8%98%87%E8%B2%9E%E6%98%8C%EF%BC%9A%E3%80%8C%E5%AF%A7%E5%8F%AF%E5%9C%A8%E5%8F%B0%E7%81%A3%E8%87%AA%E7%94%B1%E3%80%8D-023404660.html)
+这是核心的原因
+Esta es la razón principal
 
+即使没有这个供应链的问题
+Incluso sin este problema de la cadena de suministro
 
-另据[中新网](https://news.sina.com.cn/c/2010-06-22/162817691733s.shtml)6月22日援引《联合晚报》消息称，“台湾远东新世纪22日召开股东会，董事长徐旭东表示，两岸 ECFA （海峡两岸经济合作协议）一定会签成，集团以期待心情等待这项两岸经济利多的到来，今年集团在两岸投资金额将扩大到10亿美元左右。”
+它也是这样就完全这样
+Sigue siendo así
 
-众所周知，台企在大陆还能如鱼得水，问题已经不言而喻。据说，坚决反共的苏贞昌还是台湾远东国际最大的金主。就在六天前，大纪元报道称，台湾大学校长管中闵称，两地“交流互访是学术自由，政治力不应涉入”。对此，行政院长苏贞昌表示，“[政府尊重学术自由，但共产党要在台湾的大学设分支机构，不被容许](https://www.ntdtv.com/gb/2021/11/16/a103269916.html)。”可见此番打击是命中目标，因为苏贞昌识破了中共在台大设立间谍机构的“中国梦”。
+一直就是这十几年越来越严重
+Ha sido así, y se ha vuelto cada vez peor en los últimos diez años
 
-2021年11月22日
+你到加州更夸张
+Es aún más exagerado si llegas a California
 
-*校对：东京樱花团 / 文小白*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+那么这整个的所谓供应链的事情现在发生
+Entonces todo esto de la llamada cadena de suministro está sucediendo ahora
+
+大家看的都是什么没人卸货
+Lo que todos ven es que no hay nadie que descargue la mercancía
+
+然后那个货这个弄不下来可不是这个原因
+Entonces la razón por la que no se puede descargar no es por eso
+
+它根本（原因）完全是冠状病毒和疫苗
+El origen (causa) es completamente el coronavirus y la vacuna
+
+人家不敢去冒着命去给你卸这个货
+La gente no se quiere arriesgar la vida para descargarte la mercancía
+
+而且它是完全美国没有应对冠状病毒的这个保险方案
+Además, Estados Unidos no tiene en su totalidad un plan de seguro para enfrentar el coronavirus
+
+说我得的时候你给我多少保险它没有
+Decir que si me da positivo cuánto seguro me vas a dar, él no tiene
+
+那我干嘛就为了十美金二十美金去冒这个生命危险
+Entonces para qué voy a arriesgar mi vida por 10- 20 dólares
+
+他就不去干了
+No lo quiere hacer
+
+所以这个社会的保障和保险没有给这些工人的保障
+Entonces este seguro social de esta sociedad no brinda protección a estos trabajadores
+
+他就不去上班
+Él no va al trabajo
+
+第二个不要忘了
+El segundo no lo olvides
+
+美国的所有这些劳苦工人的上面的高层管理层都是白人
+La alta dirección, por encima de todos estos trabajadores en los Estados Unidos, es la raza blanca
+
+这些白人就更怕死
+Y a esta raza blanca más les da miedo morir
+
+现在是一半人不想打疫苗
+Ahorita hay una mitad de personas que no se quieren vacunar
+
+一半人没了，打了疫苗的
+Esta mitad de personas ya no hay, los que se vacunaron
+
+这些白人人家现在更不愿意去染病毒
+Estos blancos ahora menos quieren contagiarse del virus
+
+又一半没了
+Entonces la otra mitad tampoco hay
+
+它不是那个集装箱
+No son los contenedores
+
+很多人都是乱解释
+Mucha gente lo explican mal
+
+所有供应链的核心在哪里
+¿Dónde está el núcleo de todas las cadenas del suministro?
+
+核心供应链是在运输的船上
+La cadena del suministro principal está en el barco de envío
+
+不管你是中共国的始发地和到美国的这个发货目的地
+No importa si eres de origen del PCCh y el destino es los Estados Unidos
+
+它中间是那个供应船
+En el medio está el barco de suministros
+
+他这个开船的人现在是个大问题了
+El que navega el barco ahora es un gran problema
+
+不是什么人都可以开船的
+No cualquier persona puede navegar
+
+这个运输过程中的船将近60%、70%人
+Casi el 60% y el 70% de las personas de este transporte en el barco
+
+涨了两倍工资的都不冒险
+Así haya aumentado el doble de su salario no quieren correr riesgo
+
+因为当你上过那个大船你就知道了
+Porque lo sabrás si has subido a esos barcos grandes
+
+七哥到非洲去确实坐过很长
+Yo cuando fui a África si estuve un tiempo muy largo
+
+最多坐过30天的船
+Máximo he estado 30 días en el barco
+
+真能吐到你要死的感觉
+Tanto es el vómito que sientes la muerte oportuna
+
+大海一点都不好玩
+El mar no es nada divertido
+
+那种吐那种颠倒的真的把你扔到房子上乱扔的感觉
+Esa vomitadera es como una sensación de tirarte a la casa
+
+特别是大货船
+Especialmente los buques de carga
+
+大家带着方便面带点吃的东西
+Todos llevan pasta instantánea o algo para comer
+
+那难受死了
+Pero eso es tan incómodo
+
+这些人上去得冠状病毒的机会太大了
+Las posibilidades de que estas personas contraigan el coronavirus son demasiado grandes
+
+所以这人就不去了
+Entonces la gente no va
+
+没有中间环节哪有你卸货的环节
+Si no hay esta parte intermedia cómo se puede descargar la mercancía
+
+这些压的货是原来弄货压在那儿
+Estas mercancías son los que ya estaban ahí
+
+就没人给你搬了
+Solo que no hay quien los descargue
+
+**原视频网址：**[https://gettr.com/post/ph227wae74](https://gettr.com/post/ph227wae74)
+
+日期：11/18/2021
+原视频标题：供应链核心环节断裂
+El eslabón central de la cadena de suministro está roto
+原视频日期：11/16/2021
+原视频网址： https://gettr.com/post/ph227wae74
+任务编号：KC266（2913）
+视频时间段：0:00-2:19
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 –天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

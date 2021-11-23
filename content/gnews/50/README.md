@@ -2,25 +2,27 @@
 ---
 
 
-## 美国CDC 承认中共病毒疫苗有导致心肌炎和心包炎的风险
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1685767/)
+## 北京再出强制令：快递、外卖小哥必须全程接种中共病毒疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1685911/)
 
-作者： 纽约香草山健身部 – Ivy001
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-目前，美国CDC及其合作伙伴正在对接种中共病毒疫苗后，出现心肌炎和心包炎的报告进行监测。通过对数据和医疗记录的审查，评估心肌炎和心包炎与疫苗接种的关系。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-25.jpg)
-CDC的官方网页显示，据多国安全监控系统提供的证据表明：注射mRNA中共病毒疫苗之后，会增加心肌炎和心包炎的风险。另外，风险高发于青少年和年轻人，男性多于女性，完成2针的多于1针，多数患者是在完成疫苗的一周内发病。
+作者：纽约香草山教育部-Noemi
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间11月20日，北京市疾控中心再次发文，要求本市的快递、外卖配送人员必须全程接种中共病毒疫苗，否则将不得上岗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-20.jpg)
+据了解，北京自从开展加强针接种工作以来，曾先后多次出台疫苗强制令，针对人群主要是从事底层工作的普通民众。10月下旬，有关部门发文，要求厨师、采购、保洁、保安等行业从业人员必须接种疫苗加强针，否则将不得从事相关工作。
 
-虽然有明显证据显示mRNA中共病毒疫苗有导致心肌炎和心包炎的风险，但美国CDC仍然无视疫苗的危害，没有建议停止注射疫苗。
+时隔两周多，市疾控中心再次针对底层人员发出接种强制令，或与加强针接种工作进程缓慢有关。有网友爆料，目前，大多数市民对继续接种中共病毒疫苗所抱有的期待度、热情度都大幅降低，许多接种点都十分冷清。
 
 参考链接：
-1) . [CDC admitting vaccines cause myocarditis](https://gettr.com/post/phidjwe93d)
-2) . [Myocarditis and Pericarditis After mRNA COVID-19 Vaccination](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/safety/myocarditis.html)
+1. [北京再出强制令：快递、外卖小哥必须全程接种中共病毒疫苗](http://bj.people.com.cn/n2/2021/1122/c82840-35015788.html)
+2. [北京再出强制令：快递、外卖小哥必须全程接种中共病毒疫苗](https://m.thepaper.cn/newsDetail_forward_15113693)
+3. [北京再出强制令：快递、外卖小哥必须全程接种中共病毒疫苗](http://news.jcrb.com/shxw/202111/t20211115_2337356.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编/编辑：Jack Li文阳
-校正/发稿：Fei797
+总编：木白
+编辑：飞虹
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -28,9 +30,7 @@ CDC的官方网页显示，据多国安全监控系统提供的证据表明：�
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

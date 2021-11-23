@@ -2,43 +2,30 @@
 ---
 
 
-## 24 小时内有 13 例死胎 @ 温哥华狮门医院不列颠哥伦比亚省
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1686591/)
+## 有声|德国诊所主任不堪疫苗“种族灭绝”跳楼自杀
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1686669/)
 
-作者：Breaking-news.ca
-翻译：HimaFAFA
+配音：香草山教育部 – Rita七号小青蛙
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/LionsGateHospital-1.jpg)
+相关媒体11月16日报道，德国切姆尼茨诊所主任托马斯· 金奇斯自杀了。在现场发现的一封信中，托马斯说疫苗是实验性致命针剂，再也不愿参与“种族灭绝”了。
 
-- 11 月 11 日，1:00 – 3:00 北温哥华狮门医院紧急入口
+遗书中记录了托马斯医生沉重的负罪感和绝望。在信中，他严厉批评了政府隐瞒疫苗危险、不断撒谎和欺骗，并反对强迫民众接种这种实验性的致命针剂。他认为“正在发生全球范围的种族灭绝”，政府犯下了危害人类罪。
 
+当地市长对医生的突然离世表达了遗憾。然而，正是这位市长威胁说，如果医生继续拒绝为患者接种疫苗，他就必须得离开诊所。面对政府的疫苗罪行，托马斯医生用生命表达了不屈和抗争。
 
-- 与梅尔布鲁谢博士和丹尼尔·长濑博士集会。他们与皇家骑警交谈，然后前往紧急入口。医生将感谢我们与他站在一起以提高对这种实验性注射危险的认识。
+文字版原文：[德国诊所主任不堪疫苗“种族灭绝”跳楼自杀](https://gnews.org/zh-hans/1683135/)
 
+音频处理：喜山必胜Maverick
 
-- 平均而言，他们每个月会看到 1 例死产。杜拉斯报告说，在 24 小时内接受实验注射的妇女有 13 例胎死腹中。媒体没有报道这一点。大药厂关照媒体，媒体选择沉默。
-
-
-来源：https://breaking-news.ca/13-stillborn-deaths-in-24-hours-rally-lions-gate-hospital-vancouver-british-columbia/
-
-（文章仅代表作者个人观点）
-
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
-
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
-
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

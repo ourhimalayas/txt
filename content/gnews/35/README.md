@@ -2,29 +2,25 @@
 ---
 
 
-## 有声|盖特新功能“Instagram导入”开始内测
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1686509/)
+## 澳大利亚国防军参与控制北领地的新冠疫情
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1686608/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-11月17日，郭文贵先生发布盖特消息称，盖特新功能——“Instagram导入”已经进入内部测试阶段。
+By：喜国公民
+视频来自网络
+澳大利亚国防军被要求帮助处理北领地的新冠疫情。一项大规模的行动正在进行中，以使尽可能多的人接受测试。
 
-用户在注册盖特新账户时，可以直接选择Instagram同名账号导入。盖特现有用户，如果想将Instagram账号导入盖特，可以将所属Instagram用户名留言给盖特工程师，要求导入账号。
+北领地州长在对媒体的讲话中说，北领地一夜之间发现了两起新的本地新冠感染病例，并立即采取了紧急行动。
 
-Instagram是脸书旗下的社交媒体平台，和脸书使用同样的“言论审查”政策，不允许用户表达与其不同的政治观点。与其相异的政治观点的图片和视频会遭到封禁，甚至会因此被封号。盖特与这些社交媒体平台相反，没有“言论审查”，是一个言论自由的社交媒体平台，用户可以畅所欲言，自由的表达自己，因此吸引大量热爱自由的人进驻。盖特开发这个新功能，为盖特用户提供了更全面的服务，更方便的体验。同时，吸引更多的人加入到盖特的平台中来，成为盖特的用户。
+在曼加里和罗科的居民只能在急诊或在法律要求的情况下出门。已经发现了38名密切接触者，有可能会有更多的居民被转移或隔离。
 
-文字版原文：[盖特新功能“Instagram导入”开始内测](https://gnews.org/zh-hans/1683511/)
+有大约20名澳大利亚国防军人以及军车参与协助转移阳性病例和密切接触者。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+军队的参与不禁使人想起，前不久有[报道说](https://gnews.org/zh-hans/1640461/)，澳大利亚正在训练军人上门挨家挨户强制疫苗接种。北领地政府要求派部队参与转移阳性病例和密切接触者实在令人不安。
+
+此外，[在脸书上有人爆料称](https://www.facebook.com/100017330051700/posts/960166267904366/)，有军人在昆士兰北部参与了包围一个原住民社区，以阻止任何人逃亡，有土著人被军医强行按倒在地接种疫苗。
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

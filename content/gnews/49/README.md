@@ -2,25 +2,24 @@
 ---
 
 
-## 大量心梗，中共国疫苗灾难蔓延
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1685819/)
+## 中共国恶劣天气再现：东北雪台风
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1685912/)
 
-作者： 纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月20日是中共国的“心梗救治日”，日前，中共发起一系列活动，加大心梗疾病的宣传，把近期大量心梗和倒地事件，归咎于秋冬导致的心梗疾病的发生，掩盖已经到来的疫苗灾难。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-18.jpg)
-今年9月，中共在各大中城市的人员密集公共场所，陆续配备了AED心脏急救设备，有的医药集团提醒公众随身携带心脏急救药。另外，有网友还在社交平台晒出本单位给员工发放的救心药套装慰问品。近期，中共国医院收治的急性心血管病患者大幅上升，在南京市某医院，竟然比平时增加了50%左右。
-随着中共病毒疫苗接种率的提高，疫苗灾难正在蔓延。
+作者：银河勇气星—骄子
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据墙内11月21日的气象信息，中共国东北地区今年的第二个“雪台风”正在肆虐中。不仅东北地区将大幅降温、降暴雪，且寒潮将南下，全国大部分地区都将受到此次寒潮的深重影响，八成国土将“速冻”，江浙沪等地一夜之间大风将会使气温降至0度以下，西南等山区如川西高原也会迎来大暴雪。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-17.jpg)
+这是中共国在短短的两周之内的第二次大寒潮，而据气象预测，此次雪台风并不是最后一次，在11月底还会有新一轮的气旋有利于再次形成雪台风。
 
-参考链接：
-1) . [ccp开始吹风国内3.3亿心血管疾病，发病场所都是公众场所，看不见发病的其实更多，和郭先生说的3亿很吻合中国人太惨了](https://gettr.com/post/phhunm5e61)
-2) . [近期，南京各大医院收治的心血管病患者明显增多，比平时增加了50%左右](https://gettr.com/post/pasthoae87)
+气象专家称，今年中共国的寒潮比往年更早也更频繁。一些观察人士则认为，其可能带来的灾难范围、程度，受灾百姓的数量，将不会进入官方的统计数据。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+参考链接:[中共国恶劣天气再现：东北雪台风](http://《https://k.sina.com.cn/article_1763864272_69226ed002700yfsn.html》)
 
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -28,9 +27,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
