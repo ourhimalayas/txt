@@ -2,44 +2,102 @@
 ---
 
 
-## 江西赣江新区一栋宿舍楼坍塌是否预示将出现更多楼脆脆
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1687964/)
+## 视频| 爆料革命经历的坎坎坷坷，造就了新中国联邦今天的无欲则刚（下）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1688039/)
 
-据[HJGalaxyBarnard](https://gettr.com/user/galaxybarnard)@GalaxyBarnard 25 minutes发布的盖特——
+## 剪自2021.11.19郭先生大直播
 
-Residential building collapse（Ganjiang.Jiangxi) 住宅楼坍塌（江西赣江）
+制作：香草山视频部，香草山香港部
 
-[https://gettr.com/post/phng81f8c6](https://gettr.com/post/phng81f8c6)
 
-针对此起事故央视的报道视频为[4人遇难！江西赣江新区一栋宿舍楼坍塌 事发声响巨大](https://haokan.baidu.com/v?pd=wisenatural&amp;vid=4755890695877727958&amp;source=)（来源：好看视频 央视网）
 
-由于全网都只有死亡四人的新闻通稿，我们也无法确知在楼房坍塌时到底有多少人被埋在建筑废墟下获救，对照楼房是在2021年11月22日晚6：45分的上下班高峰时间坍塌，我们只能祈求，当时更多的居民是在上下班的路上或者是在去菜市场买菜的路上。
+今天我穿上当年2015年
+和刘彦平相见的黑白两道
+现在谁是黑道？谁是白道？
+本来他把我当成黑道，他是白道
+最后我把刘彦平变成了黑道
+我成了白道…是吧
+今天咱把共产党变成全世界的黑道
+共产党第一招，我让它进了塔西佗陷阱
+就是全世界都不相信共产党说的话
+我发推特最早就说
+共产党的恐惧就是我们的武器
+用共产党的谎言就是我们的证据
+让共产党在全世界不相信它
+现在你说全世界还相信它吗？
+彭帅的事情一出来
+我绝对怀疑不是彭帅发的
+现在共产党说真说假都没有人相信了
+叫塔西佗陷阱
+它成了黑道，我成了白道
+怎么样？是吧？
+然后从塔西佗直接进入海航
+对全世界的威胁
+我不是全世界的威胁
+你才是全世界的威胁
+然后以假灭共、以法灭共
+以黑灭共、反对以贪反贪
+反对以黑治国、以警治国、以骗治国
+哪一件不兑现？
+现在有人还怀疑这事吗？
+然后告诉全世界
+黑暗即将到来，你们做好准备了吗？
+没准备 是吧？
+现在病毒来了，疫苗又来了
+你别准备啊
+下一个经济危机又来了
+我们会问西方人
+你们在中共得到了什么？
+得到了疫苗？得到了病毒？
+得到了经济危机？
+然后得到了共产主义？
+那么我们新中国联邦给你带来了什么？
+我们告诉了你
+共产党偷、骗、贪
+对你的行贿和灭白行动
+我们有哪里不对的吗？
+要你钱？要你银子了？
+要和你双休了？没有
+我们无欲不刚..
+你想让我们不钢都不行啊
+今天黑白两道加持于一身
+我们重新解读正道主义
+然后再看11·20当时王健的死
+在法国在现场拉的那些人
+孟宏伟当年竟然是给我发红通的人
+说王健的死：在王健身上..
+就是11·20
+兄弟姐妹们三年前啊
+我们改变了中国、改变了共产党
+王岐山还能回到那个时候吗？
+孟建柱还能回到哪个时候吗？
+孙力军？傅政华？Bruno Wu？钥匙“澜”？
+明年的这个时候你会看到共产党
+存不存在都相当值得怀疑
+兄弟姐妹们
+这就是新中国联邦的魅力
+就在你一切观望当中和行动当中
+我们不是一个组织..一个党派..
+一个主义..
+我们要创造一个远远比你想象的要大
 
-根据视频推测坍塌的住宅楼约为六层，坍塌区域与楼房整体的断裂部位不是犬牙交错式裂口，而是像切豆腐一样整体坍塌，根据现场建筑垃圾类型可判断为砖混结构，此类砖混楼住宅楼通常建于上世纪九十年代前后，若以90年代推算，则此楼已建成30年，从断茬形式来看应该是局部基础沉降导致坍塌区域与楼体之间发生撕裂最终坍塌。
 
-最关键的问题是，这是一橦正常使用的建筑，它既不是危楼也未到报废年限，这样的砖混结构楼房坍塌给我们敲响了警钟，那就是上世纪以中共的建筑质量来说，在没有任何地震和其他不可抗力作用的情况下，江西赣江新区这栋住宅楼的突然坍塌是否意味着类似砖混楼接下来形成全国四处开花的楼脆脆？关于这一点我们同样不敢妄断。
 
-撰稿：喜马拉雅的肉夹馍；
+发稿：雪梨
 
-审核：喜马拉雅的馍夹肉；
+![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
 
-校对：Maarago
+**更多资讯，更多关注**
 
-（文章内容仅代表作者个人观点）
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
