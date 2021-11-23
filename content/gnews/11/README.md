@@ -2,45 +2,80 @@
 ---
 
 
-## 重点提示：铸币权、H-Pay代理权、清理骗币者和砸币者
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1687284/)
+## [Michael.Tonny专栏]VAERS数据证明疫苗导致死亡、流产、血栓和心脏病
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1687307/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/FE0G1NMUcAIY5nf_副本.jpg)
-据[MILES GUO 直播 2021-11-22](https://gettr.com/streaming/phm51a8243)时间点14：13——
+加拿大温哥华扬帆农场  Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/22-100.jpg)
+COVID-19（CCP病毒）疫苗究竟是天使还是魔鬼？2021年11月18日跳楼自杀的德国Chemnitz诊所董事总经理Thomas Jendges博士认为，COVID-19（CCP病毒）疫苗是一种种族灭绝。
 
-**郭文贵先生：**我们的G-TV要升级，会有一系列的行动，永远记住，大家一定要记住，我今天跟你说的三句话，不要忘了，你拥有的喜币只有今年10亿的6亿的绝大多数的可以说价格的控制权，但你并没有喜联储的股权，喜联储的股权是新G-TV投资公司有的，那是5%，也就是未来发行一千亿你有5%的权力，然后你只有进入那个系统，你才会真有铸币权，你才会享受终生千秋万代的所有的币的1000个亿的利润和所有的收益，还有，只有新G-TV才是未来盖特5%的股东，还是G-Clubs、G-Fashion的原始股东，一定要记住，这是核心。
+《[Health Impact News](https://healthimpactnews.com/2021/governments-own-data-proves-covid-19-shots-are-causing-blood-clots-heart-disease-and-death/)》编辑Brian Shilhavy采用截至2021年10月22 日美国CDC和FDA共同管理的疫苗不良事件安全监测报告系统VAERS向公众的开放数据证明：注射CCP病毒（COVID-19）疫苗会导致血栓、孕妇流产、心脏病和死亡等严重不良后果曾几十甚至几百倍的增长！
 
-不说这个，刚才我看喜币大王威廉王、Eric还有文空的做得特别好的节目，我看完，但是重点没说清楚，就是这个5%和币的关系、5%和盖特的关系，那才是你的权利，今年你只是十亿个币分之几，——第一个问题；
+VAERS是美国从1990年开始实施的疫苗不良事件报告国家预警系统，由美国疾病控制和预防中心 (CDC，the Centers for Disease Control and Prevention) 和美国卫生与公众服务部 (HHS，the U.S. Department of Health and Human Services) 的代理机构—美国食品和药物管理局 (FDA，the U.S. Food and Drug Administration) 两家机构共同管理，用于检测美国许可疫苗中可能存在的安全问题。
 
-第二个问题：再重申一遍，所有G-Clubs投资者、所有的原来G-TV投资者，你记住，和拥有喜币的投资者，你可以告诉农场，你是每个国家、每个城市、每个地方的优先H-Pay代理权，这是第二个，这是大事儿！
+VAERS接受并分析疫苗接种后的不良事件（副作用）报告，识别异常或意外，表征可能需要仔细研究的安全问题。它是一种自愿报告系统，根据VAERS的公开申明(the Lazarus Report)，VAERS统计的数据仅占疫苗伤害的1%左右。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1637639655333_1.png)
+根据FDA的定义，患者、父母、护理人员和医疗保健提供者可以报告的CCP病毒疫苗伤害分为三类：
 
-第三个，兄弟姐妹们，任何人要记住，有人现在骗了币，骗了币、砸币的这些人在哪个农场登的记、报的名，直接影响你农场的额度，咱原来都签过文件的，骗币、假币、假KYC，任何时间都有权力把你币给你取消，这是联盟委员会给你争取的，联盟委员会有这个绝对的权力，大家要记住，务必要配合联盟委员会接下来的行动，不配合者只有两个理由——你不是战友；第二，你这个币的来源不清楚。
+1、 严重负作用（AEs）：ⅰ.死亡，ⅱ.危及生命的AEs，ⅲ.进行正常生活功能能力的持续或显著丧失或严重中断，ⅳ.造成（遗传性）先天性异常或出生缺陷，ⅴ.基于适当医学判断可能危及个人、可能需要医疗或手术干预以防止上述结果之一的重大医疗事故。
 
-好不好？兄弟姐妹们，绝大多数战友的利益才是核心的利益，千万千万记住，别听他们诈乎，人家说，伪类说，币跌了，你在乎那干啥？他们那些欺民贼伪民运们，他们跌什么了？一跌就跌到马桶里了，一跌就跌到地狱去了。你是跌到哪儿了？你是从有币和没币之间吗？只是价格的互动，你还是有币！别搞错了，他是从地表跌到地下、地狱，跌到马桶里，你怎么跌你都有币，在乎这的人，你不配拥有币，因为你不了解币的价值，好好看看中东迪拜一系列的公布，我就不多说了。
+2、多系统炎症综合征病例
 
-（以下暂略）
+3、导致住院或死亡的CCP病毒（COVID-19）病毒（感染）病例
 
-撰稿：喜马拉雅的肉夹馍；
+Brian Shilhavy得出以下结论：
 
-审核：喜马拉雅的馍夹肉；
+结论一：2021年因接种疫苗死亡的人数是过去30年总和的1.94倍，是过去30年平均数的58.3倍。
 
-校对：Maarago
+在未接种CCP病毒（COVID-19）疫苗前的过去30年里，所有死于接种各种疫苗的人数总和仅为 9,061 人，即平均每年仅有302人死于各种疫苗接种。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+而截至10月22日的2021年，已经有17,619人死于接种疫苗。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+笔者根据上述数据计算，可得出结论，2021年因接种疫苗死亡的人数是过去30年总和的1.94倍，是过去30年平均数的58.3倍。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+结论二：2021年因接种疫苗而失去了婴儿的妈妈是过去30年总和的1.08倍，是过去30年平均数的32.42倍。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+在未接种CCP病毒（COVID-19）疫苗前的过去30年里，接种各种疫苗导致有2,192位妈妈失去了婴儿，即每年约仅有73例。
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+而截至10月22日的2021年，已有2,369位母亲在接受 COVID-19 注射后失去婴儿的案例。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+根据上述数据计算，可得出结论，2021年因接种疫苗失去了婴儿的妈妈是过去30年总和的1.08倍，是过去30年平均数的32.42倍。
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+结论三：2021年因接种疫苗造成的血栓病例是过去30年总和的28.5倍，是过去30年平均数的854.6倍。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+在未接种CCP病毒（COVID-19）疫苗前的过去30年里，接种各种疫苗导致489例血栓形成与血小板减少综合征 (TTS)，或称为血栓病例，仅18人死亡。即每年约仅有16血栓病例。
+
+而截至10月22日的2021年，有接种各种疫苗导致13,930例血栓病例，626人死亡。
+
+根据上述数据计算，可得出结论，2021年因接种疫苗造成的血栓病例是过去30年总和的28.5倍，是过去30年平均数的854.6倍。
+
+结论四：2021年因接种疫苗造成的心肌或心包炎两种心脏病例是过去30年总和的10.8倍，是过去30年平均数的323.96倍
+
+在未接种CCP病毒（COVID-19）疫苗前的过去30年里，接种各种疫苗导致913例心肌或心包炎两种心脏病例，仅95人死亡。
+
+而截至10月22日的2021年，有9,859例心肌或心包炎两种心脏病例（CDC 和 FDA 只承认1,005 份心肌炎或心包炎的报告），136 人死亡和 327 人永久残疾。
+
+根据上述数据计算，可得出结论，2021年因接种疫苗造成的心肌或心包炎两种心脏病例是过去30年总和的10.8倍，是过去30年平均数的323.95倍。
+
+即使按照CDC和 FDA承认的1,005例计算，2021年因接种疫苗造成的心肌或心包炎两种心脏病例也是过去30年总和的1.1倍，是过去30年平均数的33.02倍。
+
+至此，疫苗是不是毒药，强推疫苗是不是“种族灭绝”，相信您已经有自己的答案！
+
+怪不得东德最大的市立医院Chemnitz诊所董事总经理Thomas Jendges博士，在2021年11月18日跳楼自杀前留下的一封信中说，“COVID-19（CCP病毒）疫苗是一种种族灭绝”（德文原文：Ik kan niet meer leven met de leugens naar de burgers en naar de patiënten,dat de vaccins ongevaarlijk zouden zijn,het is volkenmoord!）。
+
+停止杀戮，停止毒疫苗！
+
+参考资料：
+
+[Government’s Own Data Proves COVID-19 Shots Are Causing Blood Clots, Heart Disease, and DEATH](https://healthimpactnews.com/2021/governments-own-data-proves-covid-19-shots-are-causing-blood-clots-heart-disease-and-death/)
+
+[Germany | Dr Thomas Jendges Head of Clinic, Commits Suicide “COVID-19 Vaccine Is a Genocide”](https://stessnews.online/2021/11/17/germany-dr-thomas-jendges-head-of-clinic-commits-suicide-covid-19-vaccine-is-a-genocide/amp/)
+
+[COVID-19 Vaccine Adverse Event Reporting System (VAERS)](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/safety/vaers.html)
+
+（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+
+编审：文敏    发布：文敏
 
  
 

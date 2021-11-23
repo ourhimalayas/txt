@@ -2,32 +2,70 @@
 ---
 
 
-## 德国STIKO: 30岁以下不建议接种莫德纳疫苗
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1687344/)
+## 【Michael.Tonny专栏】FDA第一份辉瑞疫苗报告，前3个月15.9万起副作用事故
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1687365/)
 
-撰稿：文月
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1123Yue.jpg)图片来源于网络   
-德国疫苗接种委员会（STIKO）11月10日发布通知， 不建议30岁以下接种莫德纳疫苗， 为了安全起见，孕妇也不应该再接受Moderna。
+加拿大温哥华扬帆农场  Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/22-100.jpg)
 
-根据目前的报告分析显示，在男孩和年轻的男性以及30岁以下的女孩和年轻的女性接种莫德纳疫苗 （Spikevax）后，很容易或者更频繁的发生 心肌炎和心包炎症。虽然大多数情况下 轻微和容易治疗的，也有个别死亡案例。因此丹麦，瑞典和法国已经暂停为30岁以下的人接种莫德纳疫苗。
 
-法国卫生当局本周表示，在30岁以下的接种疫苗人中， 使用莫德纳疫苗的心肌炎症可能比使用Biontech高5倍，并且年轻的男性受到的影响尤其大。 炎症主要出现发生再第二次注射后，然而，非常重要的是，感染病毒后发生心肌炎更频繁比接种疫苗后。并且成年心肌细胞是不可再生的，一旦受伤，将不会恢复到初始健康状态。
+“事出反常必有妖”，这可能是恒古不变的道理！
 
-根据 PEI （Paul-Ehrlich-Institut 负责监管颁发疫苗许可机构）的报告，统计的不良反应或者并发症的疑似病例的数量 莫得纳疫苗接种后在德国，时间从2020年12月27日到2021年9月30日期间， 接种Moderna疫苗的统计结果， 在25，173疑似不良反应病例中有严重的副作用占的比例为5.8%（1493/25713）。
+FDA最近在应对要求分享它在许可辉瑞（Pfizer）COVID-19（CCP病毒）疫苗所依赖数据的诉讼时，极其反常的举动，就让人不得不怀疑其中的猫腻！
 
-这些数据只是目前收集到的针对接种单一疫苗的不良反应，并没有明确说明是只接种一针还是接种两针，根据法国卫生局的数据和说明心肌炎症 主要频繁发生在第二针接种之后， 并且有些数据还没有统计上来，可想而知后果会多么的严重。这仅仅是大约10个月的时间，并且疫苗接种的人数后期每个月都是倍数递增的，越到后来疫苗接种年轻比例非常高， 并且报告疫苗不良反应也是一直呈直线上升。仅仅大约从4个月的时间疫苗接种重大约10%上升到大约66%，这么短的时间，一部分疫苗的不良反应还在潜伏期。
+2021年9月16日，来自耶鲁、哈佛、加州大学洛杉矶分校和布朗大学等大学的30多名教授和科学家，向美国德克萨斯州北部地方法院（United States District Court Northern District of Texas ）起诉美国食品和药物管理局（Food and Drug Adminstration，FDA），要求FDA分享它在许可辉瑞CCP病毒疫苗时所依赖的数据。
 
-另一方面，这些数据主要来源于电子数字报告系统，局限于医生和疫苗接种中心在该系统输入所进行的疫苗接种，然而许多德国医生并没有输入所有疫苗接种，这也是目前数字低估了真正的疫苗接种率，以及不良反应的报告。因此实际疫苗副作用情况会远比现在看到的还要糟糕。
+FDA的回应居然是要求法官批准其以每月500页的速度公布辉瑞提供给FDA的329,000多页文件。你没有看错，以FDA的主张推算，最快需要55年时间，即2076年之前，FDA才能完全公布辉瑞提交的CCP病毒疫苗数据。
 
-参考文献：
+当您阅读完FDA发布的第一份关于辉瑞疫苗报告信息时，您一定不会对FDA给出如此荒谬的回应再感到震惊！
 
-[https://www.rki.de/DE/Content/Kommissionen/STIKO/Empfehlungen/PM\_2021-11-10.html](https://www.rki.de/DE/Content/Kommissionen/STIKO/Empfehlungen/PM_2021-11-10.html)
+这份报告是由这一案件的代理律师，即纽约SIRI & GLIMSTAD律师事务所合伙人Aaron Siri，一名拥有丰富的复杂民事诉讼经验、尤其是涉及强制医疗民事诉讼的律师在11月20日公布的。
 
-[https://www.pei.de/DE/newsroom/dossier/coronavirus/arzneimittelsicherheit.html](https://www.pei.de/DE/newsroom/dossier/coronavirus/arzneimittelsicherheit.html)
+在一份名为《5.3.6 postmarketing experience.pdf》的文件第6页3. RESULTS中，自去年12月1日辉瑞BNT162b2疫苗收到第一份紧急供应临时授权书起至今年 2月28日期间，辉瑞共收到来自世界各地的42,086份疫苗副作用病例报告，包括158,893起疫苗副作用事故！
 
-[https://www.swr.de/wissen/stiko-aendert-empfehlung-moderna-impfstoff-fuer-unter-30-jaehrige-100.html](https://www.swr.de/wissen/stiko-aendert-empfehlung-moderna-impfstoff-fuer-unter-30-jaehrige-100.html)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/TUBIAO-X.jpg)
+这些病例报告最多的是来自美国13,739份（34,762起疫苗事故）。其它有：英国13,404份、意大利2,578份、德国 1913份、法国 1506份、葡萄牙 866份和西班牙756份；其余7,324 份来自于其他 56 个国家和地区。
 
+报告第7页，所有病例的最终结果中，19,582例康复或正在康复，520例产生了严重后遗症，11,361例到报告截止日期（2021年2月28日）时还没有恢复，1,223例死亡，9,400例不知道结果。
+
+如下图所示，在整个数据集中，最大数量的是系统器官类别 (System Organ ClassesSOC)全身性疾病和给药部位疾病，有51,335例；神经系统疾病25,957例；肌肉骨骼和结缔组织疾病17,283例；胃肠道疾病14,096例；皮肤和皮下组织疾病8,476例；呼吸、胸和纵隔（胸口中间的区域）疾病8,848例；感染和侵染4,610例；损伤、中毒和手术并发症5,590例和还在调查中的3,693例。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-47.png)
+读完这些沉甸甸的数据，笔者查看了VAERS系统收到的疫苗事故报告。
+
+截止至2021年11月12日，VAERS共收到894,143份CCP病毒疫苗美国的不良事件报告。其中，18,853例死亡，94,537例住院治疗，99,470例紧急护理，8,082例过敏反应，11,229例贝尔氏麻痹症（Bell’ Palsy），139,952例需要看医生。
+
+而在结果栏中，有2,296例流产，9,332例心脏病，13,237例心包炎/心肌炎，30,010永久残疾（Permanently Disabled），4,387例血小板减少症/低血小板，21,089例危及生命，33,660例严重过敏反应，10,455例带状疱疹(Shingles)。
+
+如下图所示，根据VAERS的统计结果，做一个简单的数学计算，可以得出结论，2021年，美国因接种CCP病毒疫苗死亡人数是过去30年接种所有其它疫苗死亡人数总和的1.94倍，是过去30年平均每年因接种疫苗死亡人数的58.3倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1637639655333_1.png)
+至2021年11月12日，各种COVID-19疫苗杀死人数分别为：Janssen共1,539人，Moderna共4,613人，Pfizer共12,634，其它品牌67人。
+
+必须强调的是，根据VAERS的公开申明(the Lazarus Report)，由于VAERS为自愿报告系统，VAERS统计的数据仅占实际发生事故的1%左右。
+
+难怪Wayne Allyn Root在文章[WAYNE ROOT: The Great Vaccine Mandate Scam](https://www.thegatewaypundit.com/2021/11/wayne-root-great-vaccine-mandate-scam/)说，疫苗授权以及即将到来的疫苗护照就是作为“特洛伊木马”的伟大骗局，是在利用这项疫苗授权作为掩饰，摧毁美国经济、资本主义和伟大的美国中产阶级，CCP病毒疫苗正在瓦解美国这个伟大的国家。
+
+至此，各种披着华丽外衣的政客、FDA和CDA在CCP病毒疫苗中究竟扮演的是天使还是魔鬼，相信您已经有自己的答案。
+
+参考资料：
+
+[Attorney Releases First Pages from Subpoenaed FDA Files – Shows Pfizer Documented 158,893 Adverse Events with 25,957 Nervous System Disorders in First Few Months of Distribution](https://www.thegatewaypundit.com/2021/11/attorney-releases-first-pages-subpoenaed-fda-files-shows-pfizer-documented-158893-adverse-events-25957-nervous-system-disorders/)
+
+[VAERS COVID Vaccine Adverse Event Reports](https://openvaers.com/covid-data)
+
+[FDA Produces the First 91+ pages of Documents from Pfizer’s COVID-19 Vaccine File](https://aaronsiri.substack.com/p/fda-produces-the-first-91-pages-of)
+
+[FDA asks for 55 years to complete FOIA request on Pfizer’s COVID-19 vaccine](https://www.fiercepharma.com/pharma/fda-requests-55-years-to-complete-foia-request-pfizer-s-covid-19-vaccine)
+
+[5.3.6-postmarketing-experience.pdf](https://phmpt.org/wp-content/uploads/2021/11/5.3.6-postmarketing-experience.pdf)
+
+[WAYNE ROOT: The Great Vaccine Mandate Scam](https://www.thegatewaypundit.com/2021/11/wayne-root-great-vaccine-mandate-scam/)
+
+[vaccine foia complaint.pdf](https://fingfx.thomsonreuters.com/gfx/legaldocs/klvykdlryvg/vaccine%20foia%20complaint.pdf)
+
+[FDA Asks Federal Judge to Grant it Until the Year 2076 to Fully Release Pfizer’s COVID-19 Vaccine Data](https://aaronsiri.substack.com/p/fda-asks-federal-judge-to-grant-it)
+
+（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+
+编审：文敏     发布：文敏
 
  
 
