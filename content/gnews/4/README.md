@@ -2,38 +2,58 @@
 ---
 
 
-## 欧洲各国上周末爆发反对强制接种疫苗的抗议活动
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1689335/)
+## 卑诗省男子骗取投资者数百万，法院裁决将不保留其退休账户
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1689434/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，反对疫情限制措施的抗议活动震撼了欧洲。11月20日、21日，布鲁塞尔、维也纳、罗马和阿姆斯特丹等地爆发了示威活动，反对强制疫苗接种及疫苗护照。
+作者：Ian Holliday
+翻译：HimaCoby
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-9.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-17.jpeg)
 
-在奥地利进入第四次全国封锁后，近日，维也纳发生了抗议活动。
+根据卑诗省最高法院的一项裁决，欠卑诗省证券委员会超过 3600 万元的人将不保留退休账户并将用来偿还债务。
 
-在比利时，约35,000人聚集在布鲁塞尔市中心游行。鹿特丹的示威活动持续了数日。
+BC 上诉法院撤销了委员会对厄尔·道格拉斯·帕斯奎尔 (Earle Douglas Pasquill) 实施的保全令，该令将阻止他从两个“人寿收入基金”账户中提取或转移资金。
 
-在意大利，大批人群聚集在罗马，反对中共病毒疫苗护照。
+该命令的目的是将这些资金保留在账户中，以便它们有可能用于偿还帕斯奎尔案的一些受害者。
 
-在克罗地亚，数千人参加了首都萨格勒布的游行，示威反对对工人进行强制性疫苗接种和中共病毒疫苗通行证。
+帕斯奎尔欠 BCSC 1500 万元的行政罚款，这是因为 2014 年的一项小组决定认定他和他的同事迈克尔·帕特里克·拉蒂吉在 2008 年以欺诈手段从 700 名投资者那里筹集了 2170 万元。
 
-参考链接：[Protests against Covid rules and lockdowns erupt across Europe](https://www.cnbc.com/2021/11/22/photos-of-anti-covid-protests-in-europe.html)
+帕斯奎尔也应对这 2170 万美元负责，BCSC 在一份新闻稿中表示，他“没有支付这些制裁的任何部分，也没有提出支付它们的计划。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+根据 BCSC 的数据，截至 2020 年 4 月，委员会寻求保留的 LIF 账户价值为 644,951 美元。
 
-总编：AN
-编辑：AN
-校正/发稿：谐趣园
+该委员会根据 BC 的《证券法》寻求保全令，该法案于 2020 年进行了修订，以允许其对注册账户发出此类命令。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+帕斯奎尔向委员会的一个小组申请撤销该命令，但该小组拒绝这样做。他向不列颠哥伦比亚省上诉法院提起上诉，认为《养老金福利和标准法》免除在LIF 的保全令外。
+
+“上诉法院同意帕斯奎尔的观点，即 PBSA 免除他的 LIF 账户的保全令，”BCSC 在其发布的声明中说。“尽管（法院命令执行法）在 2020 年进行了修订以反映证券法的修正案，但法院指出，PBSA 并非如此。”
+
+“在我看来，立法意味着委员会无权对来自养老基金的计划执行判决，”玛丽 V.纽伯里法官为三人法庭小组写道。
+
+尽管法院作出裁决，但 BCSC 执行董事彼得布拉迪表示，该委员会仍然“决心将通过不当行为获得的资金返还给投资者”。
+
+布雷迪在新闻稿中说：“我们将继续使用我们可以使用的一切手段来收集我们小组施加给帕斯奎尔的制裁。”
+
+来源：https://bc.ctvnews.ca/b-c-man-who-defrauded-investors-out-of-millions-will-not-have-to-preserve-retirement-accounts-court-rules-1.5676169
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

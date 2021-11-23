@@ -15,133 +15,133 @@
 
 ---
 
-### [美参议员提出教育法案“将控制权交还给父母”](/content/gnews/1/README.md)
+### [田纳西州长欢迎未打疫苗的警察来他的州并支付搬家费用](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [捷克民众抗议限制未接种者政策，为“自由”大声疾呼](/content/gnews/2/README.md)
- ` GTV新闻访谈`
+### [金融时报：多家顶级资管公司证实将投资加密货币](/content/gnews/2/README.md)
+ ` 丁过`
 
-### [GTV新闻访谈简报|2021年11月23日早](/content/gnews/3/README.md)
- ` 纽约香草山MOS01`
-
-### [欧洲各国上周末爆发反对强制接种疫苗的抗议活动](/content/gnews/4/README.md)
- ` GTV新闻访谈`
-
-### [德国教授：接种疫苗者在传播COVID-19方面具有“相关作用”](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [工厂工人大量流失，中共实体经济持续萎靡](/content/gnews/6/README.md)
- ` GTV新闻访谈`
-
-### [福奇在隐藏什么？](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [国际刑警组织选举引发了对公平警务权利的担忧](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [伊维菌素帮助日本突破病毒及疫苗的重围，带来希望](/content/gnews/9/README.md)
- ` 日本东京方舟农场`
-
-### [疫苗神速面世，实为病毒后的暗箭](/content/gnews/10/README.md)
- ` 波士顿五月花农场`
-
-### [共和党人修改各州的法律对抗联邦疫苗强制令](/content/gnews/11/README.md)
- ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
-
-### [彭帅的勇气重振抵制北京奥运的呼声](/content/gnews/12/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [远东新世纪疑似沦为中共迫害台企的牺牲品](/content/gnews/13/README.md)
- ` GTV新闻访谈`
-
-### [内蒙乌拉盖水库存废之争，中共人造生态灾难再引关注](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [西喜时事新闻简报 — 美国时事篇](/content/gnews/15/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [DC每日热点1123](/content/gnews/16/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [家庭反洗脑序列：第36篇 疫苗接种新花样](/content/gnews/17/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [奥地利自由党赫伯特·基尔呼吁大家：以热爱生命追求自由及和平抗议的精神团结](/content/gnews/18/README.md)
- ` MG 澳喜农场多语组`
-
-### [2021/11/22 文贵先生盖特](/content/gnews/19/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [美日澳德加五国在菲律宾海举行联合军演](/content/gnews/20/README.md)
- ` GTV新闻访谈`
-
-### [我本将心向你，你待明月如沟渠](/content/gnews/21/README.md)
- ` 骄子`
-
-### [“MeToo”让中共颤抖](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [11/23/21 香港快讯 唐英杰案换法援「官派律师」 新代表律师合伙人曾是政协](/content/gnews/23/README.md)
- ` 英喜-粵語組`
-
-### [美国对德国、丹麦发布“请勿旅行”COVID-19警告](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中国电信反击美国关停命令](/content/gnews/25/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|苏格兰新生儿死亡数量猛增](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [美国媒体批评拜登对台政策虚虚实实含糊不清](/content/gnews/27/README.md)
- ` 纽约香草山MOS01`
-
-### [战友，现在不是躺平的时候](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美参议员敦促美国队抵制北京2022冬奥会](/content/gnews/29/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|为灭共理想而相聚 不要被财富冲昏了头](/content/gnews/30/README.md)
- ` MOSREC`
-
-### [中共国“惩罚”在病毒事件中撒谎的西班牙官员](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|中共和俄罗斯再次联合骚扰日本](/content/gnews/32/README.md)
- ` MOSREC`
-
-### [11/23/2021国际财经快讯：拜登打赌美联储鲍威尔将引领美国经济全面复苏;美元稳定在16个月高点附近](/content/gnews/33/README.md)
- ` 秘密翻译组金融团队`
-
-### [有声|纳瓦罗先生未接种疫苗，坚决反对疫苗强制令](/content/gnews/34/README.md)
- ` MOSREC`
-
-### [有声|2020年中国人口出生率再创新低](/content/gnews/35/README.md)
- ` MOSREC`
-
-### [有声|中国人的优秀品质最终会消灭中共](/content/gnews/36/README.md)
- ` MOSREC`
-
-### [有声|新中国联邦需要培养更多人才](/content/gnews/37/README.md)
- ` MOSREC`
-
-### [有声|喜马拉雅币一周分析](/content/gnews/38/README.md)
- ` MOSREC`
-
-### [美联储鲍威尔连任，日元“迎来”又一波贬值](/content/gnews/39/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共国第一家沃尔玛超市即将关闭](/content/gnews/40/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文·贵天成——郭文贵先生谈“董仚生”（三）](/content/gnews/41/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（十一）](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [为什么不与立陶宛断交？中共官媒回应很尴尬](/content/gnews/42/README.md)
+### [卑诗省男子骗取投资者数百万，法院裁决将不保留其退休账户](/content/gnews/4/README.md)
+ ` MG FARM`
+
+### [美参议员提出教育法案“将控制权交还给父母”](/content/gnews/5/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [白厅安全部门发现其伦敦总部的设备是由海康威视提供](/content/gnews/6/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [捷克民众抗议限制未接种者政策，为“自由”大声疾呼](/content/gnews/7/README.md)
+ ` GTV新闻访谈`
+
+### [GTV新闻访谈简报|2021年11月23日早](/content/gnews/8/README.md)
+ ` 纽约香草山MOS01`
+
+### [欧洲各国上周末爆发反对强制接种疫苗的抗议活动](/content/gnews/9/README.md)
+ ` GTV新闻访谈`
+
+### [德国教授：接种疫苗者在传播COVID-19方面具有“相关作用”](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [工厂工人大量流失，中共实体经济持续萎靡](/content/gnews/11/README.md)
+ ` GTV新闻访谈`
+
+### [福奇在隐藏什么？](/content/gnews/12/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [国际刑警组织选举引发了对公平警务权利的担忧](/content/gnews/13/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [伊维菌素帮助日本突破病毒及疫苗的重围，带来希望](/content/gnews/14/README.md)
+ ` 日本东京方舟农场`
+
+### [疫苗神速面世，实为病毒后的暗箭](/content/gnews/15/README.md)
+ ` 波士顿五月花农场`
+
+### [共和党人修改各州的法律对抗联邦疫苗强制令](/content/gnews/16/README.md)
+ ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
+
+### [彭帅的勇气重振抵制北京奥运的呼声](/content/gnews/17/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [远东新世纪疑似沦为中共迫害台企的牺牲品](/content/gnews/18/README.md)
+ ` GTV新闻访谈`
+
+### [内蒙乌拉盖水库存废之争，中共人造生态灾难再引关注](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共要求给房地产放水，银行不情不愿](/content/gnews/43/README.md)
+### [西喜时事新闻简报 — 美国时事篇](/content/gnews/20/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [DC每日热点1123](/content/gnews/21/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [家庭反洗脑序列：第36篇 疫苗接种新花样](/content/gnews/22/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [奥地利自由党赫伯特·基尔呼吁大家：以热爱生命追求自由及和平抗议的精神团结](/content/gnews/23/README.md)
+ ` MG 澳喜农场多语组`
+
+### [2021/11/22 文贵先生盖特](/content/gnews/24/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美日澳德加五国在菲律宾海举行联合军演](/content/gnews/25/README.md)
+ ` GTV新闻访谈`
+
+### [我本将心向你，你待明月如沟渠](/content/gnews/26/README.md)
+ ` 骄子`
+
+### [“MeToo”让中共颤抖](/content/gnews/27/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [11/23/21 香港快讯 唐英杰案换法援「官派律师」 新代表律师合伙人曾是政协](/content/gnews/28/README.md)
+ ` 英喜-粵語組`
+
+### [美国对德国、丹麦发布“请勿旅行”COVID-19警告](/content/gnews/29/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中国电信反击美国关停命令](/content/gnews/30/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [有声|苏格兰新生儿死亡数量猛增](/content/gnews/31/README.md)
+ ` MOSREC`
+
+### [美国媒体批评拜登对台政策虚虚实实含糊不清](/content/gnews/32/README.md)
+ ` 纽约香草山MOS01`
+
+### [战友，现在不是躺平的时候](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|为灭共理想而相聚 不要被财富冲昏了头](/content/gnews/34/README.md)
+ ` MOSREC`
+
+### [中共国“惩罚”在病毒事件中撒谎的西班牙官员](/content/gnews/35/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [11/23/2021国际财经快讯：拜登打赌美联储鲍威尔将引领美国经济全面复苏;美元稳定在16个月高点附近](/content/gnews/36/README.md)
+ ` 秘密翻译组金融团队`
+
+### [有声|纳瓦罗先生未接种疫苗，坚决反对疫苗强制令](/content/gnews/37/README.md)
+ ` MOSREC`
+
+### [有声|2020年中国人口出生率再创新低](/content/gnews/38/README.md)
+ ` MOSREC`
+
+### [有声|中国人的优秀品质最终会消灭中共](/content/gnews/39/README.md)
+ ` MOSREC`
+
+### [有声|新中国联邦需要培养更多人才](/content/gnews/40/README.md)
+ ` MOSREC`
+
+### [美联储鲍威尔连任，日元“迎来”又一波贬值](/content/gnews/41/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共国第一家沃尔玛超市即将关闭](/content/gnews/42/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [为什么不与立陶宛断交？中共官媒回应很尴尬](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [应对中共威胁，日印外长电话确认紧密合作](/content/gnews/44/README.md)

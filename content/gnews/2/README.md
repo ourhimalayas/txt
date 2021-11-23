@@ -2,32 +2,29 @@
 ---
 
 
-## 捷克民众抗议限制未接种者政策，为“自由”大声疾呼
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1689360/)
+## 金融时报：多家顶级资管公司证实将投资加密货币
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1689456/)
 
-随着欧盟国家中共病毒感染人数激增，当地时间11月22日，捷克首都布拉格爆发游行，抗议者谴责政府对未接种疫苗者采取限制措施。
+#### 温哥华扬帆农场 丁过
+![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_0294.jpeg)来源：State Street
+金融时报11月23日报道，继贝莱德和景顺等大型资产管理公司早前成立加密货币敞口产品机构，并且已经赚得盆满钵满后，富达、瑞银和道富近日相继宣布将进入加密资产投资市场，而且愿意使用一定比例的杠杆或风险敞口。以上5家公司管理的资产规模约为20万亿美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-15.jpeg)
+数据提供商晨星(Morningstar)最近的报告显示，欧洲交易所的加密货币(ETP)资产已超过105亿欧元。但这仅仅是开始，因为更多的高净值客户和为他们服务的基金经理正在关注并积极投资加密资产。
 
-新措施于游行当天生效。此后，未接种疫苗者即使出示中共病毒检测阴性证明，也不再被允许前往酒吧、餐馆、理发店、酒店等公共场所。而已接种疫苗者，或已从中共病毒中康复者则不受此限制。据报道，这些措施的批准，旨在提高该国目前低于欧盟平均水平的疫苗接种率。
+数据是最有说服力的，晨星提供的数据显示，在截至10月底前的12个月里，持有加密货币敞口的欧洲ETP和基金的平均回报率为461.7%，它们在3年内实现了116.3%的年化回报率。
 
-近日，捷克共和国的中共病毒感染率急剧上升，上周两次创下新纪录。捷克全国1070万总人口中，确诊病例已超过2百万，其中3万2千173人死亡。
+显然，投资加密货币基金的回报率呈现加速增长态势，原因是长期滥发的主权纸币已经到达快速贬值的关键节点，同时也证明了市场在逐利的同时是最聪明的，任何政府的虚伪宣传都欺骗不了市场。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-351.jpeg)来源：咸蛋超人推特
+当更多的人抛弃纸币转而追捧加密货币时，就会出现一种去伪存真的自我强化趋势，象喜玛拉雅币这种不断得到信用补强的良币，将横扫各种伪劣主权纸币和所谓的加密货币，成为构建未来全球性信用社会的超级货币之王和定海神针。
 
-参考链接：[Czech protesters demand ‘freedom’ as new COVID restrictions go into effect for the unvaccinated](https://www.foxnews.com/world/czech-protesters-covid-restrictions-unvaccinated?utm_source=ground.news&amp;utm_medium=referral)
+但是，各种黑暗势力无疑将对喜币进行轮番攻击，即使是比较开明的西方各国政府，在巨大的财政困局面前，可能对加密货币的态度也会反复无常，比如坚决反对市场化加密货币、极力推行国家主权加密货币的布雷德纳刚刚被拜登提名为美联储副主席（差点被提名为主席），或许就是一个不同寻常的信号。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+可以预见，面对风暴式的一波又一波腥风血雨，能自始至终坚定持有喜币的人不会是多数，那些看不到全球性货币信用体系必须重新构建，是人心所向是必然趋势的人，和对喜币信心不足、有较强投机心里的人，将先后选择获利离场，从而永远丧失后续不可限量的增值机会。
 
-总编：文徬
-编辑：小鹿妞妞
-校正/发稿：谐趣园
+参考来源：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[有更多资产管理公司证实对推出加密货币产品感兴趣](http://www.ftchinese.com/interactive/54340?full=y&amp;gift_id=dd32ed337a36a7b3293f438c9f1f9b4bbc9b1b5d&amp;exclusive)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

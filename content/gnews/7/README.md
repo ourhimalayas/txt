@@ -2,29 +2,32 @@
 ---
 
 
-## 福奇在隐藏什么？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1689261/)
+## 捷克民众抗议限制未接种者政策，为“自由”大声疾呼
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1689360/)
 
-编译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-23-172752.jpg)图片来源： judicialwatch.org
-“在这场 COVID 危机中……司法观察比我们的联邦机构、国会和我们所谓的国际卫生界正在做更多,来弄清楚到底发生了什么。”
+随着欧盟国家中共病毒感染人数激增，当地时间11月22日，捷克首都布拉格爆发游行，抗议者谴责政府对未接种疫苗者采取限制措施。
 
-在调查政府腐败方面，司法观察处于最前沿。该组织的一项最新调查着眼于 COVID 危机。它努力发现了福奇博士所在的机构，美国国立卫生研究院（NIH）的工作可能已经或可能正在影响潜在的利益冲突。正如司法观察主席汤姆·菲顿在《司法观察周刊更新》中所讨论的那样，“司法观察代表我们在透明度运动 Openthebooks.com中的盟友——针对美国卫生和公共服务部 (HHS) 提起了 FOIA 诉讼，要求披露雇佣合同、利益冲突和保密文件；和福奇博士的工作描述。此外，我们希望了解外部实体支付给 NIH 员工的版税的详细信息。”正如菲顿提醒观众的那样，“某些政府官员的兼职工作会给他们带来收入……但由于潜在的利益冲突，需要披露这些收入。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-15.jpeg)
 
-正如菲顿所说，“安东尼·福奇在我们的联邦政府中拥有无与伦比的政治权力，因此美国人民迫切需要全面了解他的财务信息。我们不得不就福奇博士的财务披露和其他基本就业信息提起联邦诉讼，这引发了一系列令人担忧的问题。”正如菲顿提醒的那样，司法观察此前揭露了福奇的机构如何“签署了中共国规定的保密条款”，以及福奇如何“亲自批准了一份特意赞扬中共国的新闻稿”。菲顿补充说，司法观察“还揭露了福奇的机构对武汉研究所的全部支出。”司法观察代表 OpentheBooks.com 对福奇的财务和其他就业信息提起的最新诉讼。
+新措施于游行当天生效。此后，未接种疫苗者即使出示中共病毒检测阴性证明，也不再被允许前往酒吧、餐馆、理发店、酒店等公共场所。而已接种疫苗者，或已从中共病毒中康复者则不受此限制。据报道，这些措施的批准，旨在提高该国目前低于欧盟平均水平的疫苗接种率。
 
-“如果你想让福奇博士承担责任，”菲顿总结道，“你就会支持司法观察的工作。”
+近日，捷克共和国的中共病毒感染率急剧上升，上周两次创下新纪录。捷克全国1070万总人口中，确诊病例已超过2百万，其中3万2千173人死亡。
 
-**评论：在这场病毒疫苗摧毁人类生存的决绝中，政府和福奇代表的“科学”界，媒体都和大药企代表的中共和邪恶势力站到了一起。但人民才是决定历史方向的力量，司法观察已经发出了人民的呼声，让我们行动，行动，行动，直至将邪恶势力彻底送到正义的审判台！**
+参考链接：[Czech protesters demand ‘freedom’ as new COVID restrictions go into effect for the unvaccinated](https://www.foxnews.com/world/czech-protesters-covid-restrictions-unvaccinated?utm_source=ground.news&amp;utm_medium=referral)
 
-新闻来源 : [judicialwatch.org] [What is Fauci Hiding?](https://www.judicialwatch.org/what-is-fauci-hiding-2/?utm_source=deployer&amp;utm_medium=email&amp;utm_campaign=tipsheet&amp;utm_term=members)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-* * *
+总编：文徬
+编辑：小鹿妞妞
+校正/发稿：谐趣园
 
-*审核：文乐 
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
