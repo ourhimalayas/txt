@@ -2,41 +2,29 @@
 ---
 
 
-## 中共回应拜登关于可能抵制北京奥运会的说法
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1688767/)
+## 有声|大量心梗，中共国疫苗灾难蔓延
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1688775/)
 
-**编译：蚂蚁兄弟**
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月20日是中共国的“心梗救治日”，日前，中共发起一系列活动，加大心梗疾病的宣传，把近期大量心梗和倒地事件，归咎于秋冬导致的心梗疾病的发生，掩盖已经到来的疫苗灾难。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip45.png)乔拜登和习近平在领导人峰会期间互相问候 张林涛 / 美联社
+今年9月，中共在各大中城市的人员密集公共场所，陆续配备了AED心脏急救设备，有的医药集团提醒公众随身携带心脏急救药。另外，有网友还在社交平台晒出本单位给员工发放的救心药套装慰问品。近期，中共国医院收治的急性心血管病患者大幅上升，在南京市某医院，竟然比平时增加了50%左右。
+随着中共病毒疫苗接种率的提高，疫苗灾难正在蔓延。
 
-中共国外交部周五说：“体育不能被政治化”，因为“它违背了奥林匹克精神，损害了运动员的利益”，以回应美国总统拜登说的“美国政府正在考虑对北京冬奥会进行外交抵制”。
+文字版原文：[大量心梗，中共国疫苗灾难蔓延](https://gnews.org/zh-hans/1685819/)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-“北京2022年冬奥会是来自世界各地的运动员的展示舞台”。外交部发言人赵立坚在周五的新闻发布会上说：“将体育政治化有违奥林匹克精神和运动员的利益。”他补充说：“美国以中共政府在西北地区的人权侵犯行为，作为抵制冬奥会的理由，这只不过是一场诽谤行动。”并说：“中共国永远不会容忍任何国家干涉其内部事务”。
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-在本周的习拜视频会上，拜登向习近平转达了他对新疆、西藏和香港的现状以及对公民人权的关切。
-
-周四，拜登说他的政府正在“考虑”对北京冬奥会进行外交抵制，这意味着拜登或任何美国官员都不会出席这一活动。
-
-据《华盛顿邮报》周三报道，抵制活动将是对中共政府侵犯人权行为的反应。该报称，拜登政府可能在本月底前批准抵制行动。包括众议院议长南希-佩洛西在内的民主党和共和党立法者都主张进行外交抵制，以抗议中国的人权侵犯行为。
-
-**简评：**
-
-**中共的外交部宣称“体育不能被政治化”，这是一个多么无耻的谎言。因为在中共国，几乎所有的东西都被政治化了……**
-
-**中共国所举办的2008年奥运会的背后，不知道有多少的政治勾兑和交易。如果说奥运会在其他国家是一项人类体育运动交流和商业化的盛会，那么在中共国，奥运会绝对是中共为了彰显其实力和国际地位的一种手段。在中共国的体育，完全是由中共把控着的，通过郝海东先生和叶昭颖女士的控诉我们可以看到，中共国的体育充满了血泪和无耻的压迫。**
-
-**无论是否发生新疆的种族大屠杀事件，世界早就应该对中共的奥运年加以抵制。被人们传诵的奥林匹克精神，早已在无耻的政治家之间变得充满了肮脏。**
-
-**新闻来源：**[mundodeportivo.com][China responde a Biden ante el posible boicot a los Juegos de Pekín](https://www.mundodeportivo.com/juegos-olimpicos/20211119/1001714815/china-responde-biden-posible-boicot-juegos-pekin.html)
-
-* * *
-
-***审核：Aries的星
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
