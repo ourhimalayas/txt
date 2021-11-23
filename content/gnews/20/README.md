@@ -2,32 +2,40 @@
 ---
 
 
-## 德国STIKO: 30岁以下不建议接种莫德纳疫苗
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1687344/)
+## 报告建议澳洲应将日本视为应对中共 “最有利的伙伴”
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1687366/)
 
-撰稿：文月
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1123Yue.jpg)图片来源于网络   
-德国疫苗接种委员会（STIKO）11月10日发布通知， 不建议30岁以下接种莫德纳疫苗， 为了安全起见，孕妇也不应该再接受Moderna。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-根据目前的报告分析显示，在男孩和年轻的男性以及30岁以下的女孩和年轻的女性接种莫德纳疫苗 （Spikevax）后，很容易或者更频繁的发生 心肌炎和心包炎症。虽然大多数情况下 轻微和容易治疗的，也有个别死亡案例。因此丹麦，瑞典和法国已经暂停为30岁以下的人接种莫德纳疫苗。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Aus-Japan-Flag_5822.jpg.jpg)
 
-法国卫生当局本周表示，在30岁以下的接种疫苗人中， 使用莫德纳疫苗的心肌炎症可能比使用Biontech高5倍，并且年轻的男性受到的影响尤其大。 炎症主要出现发生再第二次注射后，然而，非常重要的是，感染病毒后发生心肌炎更频繁比接种疫苗后。并且成年心肌细胞是不可再生的，一旦受伤，将不会恢复到初始健康状态。
 
-根据 PEI （Paul-Ehrlich-Institut 负责监管颁发疫苗许可机构）的报告，统计的不良反应或者并发症的疑似病例的数量 莫得纳疫苗接种后在德国，时间从2020年12月27日到2021年9月30日期间， 接种Moderna疫苗的统计结果， 在25，173疑似不良反应病例中有严重的副作用占的比例为5.8%（1493/25713）。
 
-这些数据只是目前收集到的针对接种单一疫苗的不良反应，并没有明确说明是只接种一针还是接种两针，根据法国卫生局的数据和说明心肌炎症 主要频繁发生在第二针接种之后， 并且有些数据还没有统计上来，可想而知后果会多么的严重。这仅仅是大约10个月的时间，并且疫苗接种的人数后期每个月都是倍数递增的，越到后来疫苗接种年轻比例非常高， 并且报告疫苗不良反应也是一直呈直线上升。仅仅大约从4个月的时间疫苗接种重大约10%上升到大约66%，这么短的时间，一部分疫苗的不良反应还在潜伏期。
+图片来源：www.defenceconnect.com.au
 
-另一方面，这些数据主要来源于电子数字报告系统，局限于医生和疫苗接种中心在该系统输入所进行的疫苗接种，然而许多德国医生并没有输入所有疫苗接种，这也是目前数字低估了真正的疫苗接种率，以及不良反应的报告。因此实际疫苗副作用情况会远比现在看到的还要糟糕。
 
-参考文献：
+#### 编译：小红帽
 
-[https://www.rki.de/DE/Content/Kommissionen/STIKO/Empfehlungen/PM\_2021-11-10.html](https://www.rki.de/DE/Content/Kommissionen/STIKO/Empfehlungen/PM_2021-11-10.html)
+今天，澳大利亚宣布符合条件的日本和韩国公民将能够在没有隔离的情况下来到澳大利亚，而此时澳大利亚与日本的关系从未如此密切。
 
-[https://www.pei.de/DE/newsroom/dossier/coronavirus/arzneimittelsicherheit.html](https://www.pei.de/DE/newsroom/dossier/coronavirus/arzneimittelsicherheit.html)
+根据澳大利亚-日本研究中心（Australia-Japan Research Centre）一份重要报告的建议，随着该地区面临崛起的、更加自信的中共国，日本正在成为应对这一挑战最有利的合作伙伴。
 
-[https://www.swr.de/wissen/stiko-aendert-empfehlung-moderna-impfstoff-fuer-unter-30-jaehrige-100.html](https://www.swr.de/wissen/stiko-aendert-empfehlung-moderna-impfstoff-fuer-unter-30-jaehrige-100.html)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/TUBIAO-X.jpg)
+该中心的主任希罗·阿姆斯特朗（Shiro Armstrong）说，该建议“确实提升了 ”日本的重要性。
 
+“在贸易方面，我们享有最惠国待遇，我们提供同等的最佳待遇，”阿姆斯特朗先生告诉澳大利亚天空新闻。
+
+“但我们提出了一种新的最惠合作伙伴地位，在贸易之外，无论是人员流动还是技术协议–比如通过AUKUS（澳英美联盟）–日本应该自动被视为这些安排的延伸。”
+
+**参考新闻：**[Report reveals Australia should see Japan as ‘most favoured partner’ (msn.com)](https://www.msn.com/en-au/news/other/report-reveals-australia-should-see-japan-as-most-favoured-partner/ar-AAQYVch?ocid=msedgntp)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

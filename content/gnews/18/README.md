@@ -2,35 +2,32 @@
 ---
 
 
-## 60岁及以下接种疫苗人群的死亡率是未接种人群的两倍
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1687351/)
+## 港闻前线｜港大医学院院长梁卓伟突请辞 马会履新闲职 港人讥诮“驱逐良币，劣币治港”
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1687394/)
 
-【简评：】辉瑞其实早就知道了其毒疫苗的副作用，却故意向公众隐瞒了*COVID-19*疫苗临床试验*’*的（死亡人数）真实数据。*FDA*一再承诺对*Covid-19*疫苗*“*完全透明*”*，包括在许可辉瑞*(Pfizer)*的*COVID-19*疫苗时重申的*“ FDA*对透明度的承诺*”*。然而，*FDA*做了什么来兑现承诺呢？*FDA*要求法官允许它来完成辉瑞提供的*329,000*多页的文件，*FDA*说它们每个月可以完成*500*页的报告，按这个速度速度，意味着完整的报告不会早于*2076*年完成。*FDA*对透明度的承诺说得客气一点，就是一个幻想。
+**撰文/ 台湾宝岛农场 港台前线关注组｜发布日期/ 23/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Bank-Manager-Banner.jpg)
+**更多资讯请关注官方盖特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
 
-据《网关专家》记者Jim Hoft在2021年11月21日报道：
+【香港】香港大学医学院院长梁卓伟日前宣布提早请辞后，周一（22日）首次现身公开活动，提及自己在过去24小时内经历了很多事，现在如同“耶稣复活”，更笑言指“但耶稣要用三天，我只用了24小时就重生了。”
 
-**拉里****·****约翰逊**（Larry Johnson）早些时候对此事进行了报道。 这则报道值得称为头条新闻：**接种疫苗的****60****岁以下人群的死亡率是未接种疫苗人群的两倍。**原始数据点击这里[**这里**](https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/datasets/deathsbyvaccinationstatusengland)查看。
+港大校长张翔 21日向全校师生发电邮，证实梁卓伟向校方递交辞职信，将于本学年完结后正式离职，比原定任期整整提早一年。同时，香港赛马会则宣布，委任梁卓伟担任慈善及社区事务执行总监，负责发展慈善政策。
 
-下图源自亚历克斯·贝伦森报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/D70BEBFA-E7E9-41C5-936C-86D1D613973E.png)图片来源：[https://alexberenson.substack.com/p/vaccinated-english-adults-under-60](https://alexberenson.substack.com/p/vaccinated-english-adults-under-60)
-**这应该会成为推动强制接种疫苗的丧钟。会吗****?**
+消息一出，立即震惊全港，梁卓伟的专业背景和个人资历相当出色，被誉为香港史上不可多得的顶级医学人才，他不但是公共卫生领域的国际认证级专家，亦是亚洲流行病学领域的世界权威之一，当年他以 40 岁之龄成为港大医学院史上最年轻的院长时，被公认是实至名归。
 
-以下文字来源于 [**亚里克斯****·****贝伦森**](https://alexberenson.substack.com/p/vaccinated-english-adults-under-60)的报道：
+不仅如此，他曾经是曾荫权年代的特首办主任，位高权重，后来港府易主，他返回港大从事医学本业，短短几年，他所率领的传染/流行病研究团队就被国际认可为流感研究领域中，最卓越的流行病学实验室之一。
 
-棕色线代表*10-59*岁接种疫苗人群中每*10*万人中每周因各种原因死亡的人数。蓝线代表同一年龄范围内每*100,000*名未接种疫苗者因各种原因导致的每周死亡人数。
+拥有如此履历，今年仅 49 岁的梁卓伟在医学界的发展可谓前途无量，究竟是何原因迫使他选择在盛年激流勇退，外界流传多种猜测。
 
-我自己检查了基础数据集，这张图是正确的。*60*岁以下接种疫苗人群的死亡率是未接种疫苗人群的两倍。 英国的总体死亡率远高于正常水平。
+《明报》引述消息人士指，港大院长的人事任用标准，不再是一位学术及行政能力兼备的人才，反而，上任之初就被质疑“不够资格”的张翔，凭藉着政治正确不但坐拥各种资源，更提早获得续任，令人意兴阑珊，因此萌生去意。
 
-现在我们知道为什么全球主义者要把辉瑞疫苗的结果隐藏55年了。
+立场亲共的《大公报》、《香港01》等则以《梁卓伟辞任港大医学院院长转职马会年薪逾900万》为题，暗示，梁卓伟的离职动机无关其他，仅因马会收入更高。
 
-原文连接[https://www.thegatewaypundit.com/2021/11/shocking-uk-study-stuns-medical-community-vaccinated-people-60-younger-twice-likely-die-unvaccinated-people/](https://www.thegatewaypundit.com/2021/11/shocking-uk-study-stuns-medical-community-vaccinated-people-60-younger-twice-likely-die-unvaccinated-people/)
+据资料显示，港大近期的人事变动频密，除了梁卓伟，公共卫生学院院长福田敬二的续约申请，被校长张翔一票否决，微生物学系亦有 3 名资深教授先后离职，包括刘嘉珮、胡钊逸及黄世贤。
 
-翻译&评论：洛杉矶盘古农场 – 比格渣餐厅老板の娘
-编辑&校对：洛杉矶盘古农场 – 小象の奶瓶
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+有网民评论指，“当全世界争抢抗疫专家的时候，港府就将人才投闲置散，甚至扫地出门。”亦有网友讥讽道，“中共的『爱国者治港』已经顺利驱逐所有『良币』，『劣币治港』的时代来临。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/港台前線-（HK模板）-6.jpg)
+来源｜[明報](https://news.mingpao.com/pns/%E6%B8%AF%E8%81%9E/article/20211122/s00002/1637518424379/2017%E5%B9%B4%E5%82%B3%E8%88%87%E5%BC%B5%E7%BF%94%E7%AB%B6%E9%80%90%E6%A0%A1%E9%95%B7-%E6%98%8E%E5%B9%B4%E9%A6%AC%E6%9C%83%E5%B1%A5%E6%96%B0-%E6%A2%81%E5%8D%93%E5%81%89%E6%8F%90%E6%97%A91%E5%B9%B4%E8%BE%AD%E6%B8%AF%E5%A4%A7%E9%86%AB%E5%AD%B8%E9%99%A2%E9%99%A2%E9%95%B7) / [港大](https://www.facebook.com/393883453958717/posts/5980897621923911/?d=n) / [香港01](https://www.hk01.com/社會新聞/703346/梁卓偉任馬會總監管慈善-年薪大升料逾900萬-高過港大校長張翔)
 
  
 

@@ -2,24 +2,52 @@
 ---
 
 
-## 针下亡魂｜德国 15 岁少女接种疫苗三周后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1687522/)
+## 海军造船承包商暂停了疫苗接种计划
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1687549/)
 
-**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 23/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-45.jpg)图片来源：网络图片
+翻译：love miles
+编辑：李易通
 
-【德国】一名 15 岁女孩 Cheyenne Braun 在接种辉瑞 COVID-19 疫苗后的一周内发生心脏骤停，紧急送院后进入重症监护室，两周后死亡。据当地媒体报导，医生并未排除 Cheyenne 的死因是疫苗引发的心肌炎，目前警方正就该案件展开调查。
+一家海军造船公司在工人威胁要辞职后终止了其疫苗授权，并且海军证实不要授权了。
 
-Cheyenne 的母亲 Kerstin Braun 在脸书上，以 Cheyenne 姐姐的口吻，公开了女儿的不幸，并表示女儿没有任何健康问题，怀疑是疫苗诱发心肌炎导致猝死。
+亨廷顿英格尔斯工业公司（HII）是纽波特纽斯造船厂的母公司，是世界唯一一家美国海军核动力航母的制造商。该公司还是弗吉尼亚州和哥伦比亚州潜艇的制造商之一，在弗吉尼亚雇佣了25000多名工人。
 
-最后，她呼吁民众谨慎选择疫苗：“我们有必要用自己的孩子做疫苗的试验品吗？”、“越来越多的疫苗不幸事件被公开，这绝不是个例。”、“仔细想清楚……你们不会想要也没有必要经历这地狱般的日子。”
-![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗_0-3.jpg)
-来源｜[个案062](https://www.mainwelle.de/todesursache-unklar-polizei-ermittelt-zum-tod-eines-15-jaehrigen-maedchens-aus-hollfeld-3372800/)
+该船厂此前曾宣布计划，要求其所有25000名工人在12月8日之前完全接种疫苗。最后的期限推迟到1月4日，以便留出更多时间。
 
-* * *
+随着上面的要求的结束，截止日期目前已“暂停”。
 
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//｜//[美国 39 岁女医护接种疫苗4日后死亡](https://gnews.org/zh-hans/1625214/)//｜//[美国 56 岁男医生接种疫苗两周后死亡](https://gnews.org/zh-hans/1629915/)//｜//[德国 32 岁心理学专家接种疫苗12日后死亡](https://gnews.org/zh-hans/1636096/)//｜//[美国 45 岁知名漫画家接种疫苗后死亡](https://gnews.org/zh-hans/1665474/)//
+11月17日，总裁兼首席执行官迈克·佩特斯 (Mike Petters) 在给员工的一封信  中写道：“我们不想因为病毒或疫苗授权的影响而失去任何一名员工。”
+
+“重要的是，关于英格尔斯造船厂和纽波特纽斯造船厂，我们的客户已确认，合同不包括实施疫苗授权的要求。技术解决方案的员工则处于不同的情况，他们要根据特定的合同面临不同的要求。”
+
+公司继续鼓励员工接种COVID-19疫苗，但不再强制要求雇员接种疫苗。
+
+一些员工告诉当地媒体WTKR-News3，觉得自己被骗了，因为他们按照疫苗授权计划接种了全部新冠疫苗，但现在不再适用了。
+
+“他们让我必须打疫苗然后又说不适用了”，NII的员工Deshawn Royal告诉媒体。“我不想打疫苗，但他们要求必须打，否则就会被解雇。然后他们又说你们误会了。”
+
+另一名HII的员工Rodney Apop说：“他们很疑惑但没有跳槽的机会。”
+
+“现在当他们取消了疫苗授权时，大家多么希望没有被强迫打疫苗。”
+
+此举是在当地造船工会USW Local 8888公布其关于临时合同协议的调查结果之后发生的。该协议以1312票对684票被否决。
+
+工会在信中写道：“世界上最好的造船商对公司期望更高和所获得的回报也应该越多，并希望谈判者回到谈判席达成交易。”
+
+信中指出，如果需要与公司领导进行谈判，工会仍准备罢工。
+
+工会的官员没有立即回应大纪元时报的相关评论。
+
+文章来源：[https://www.theepochtimes.com/navy-shipbuilding-contractor-suspends-vaccine-mandate-after-workers-threaten-to-leave\_4113793.html](https://www.theepochtimes.com/navy-shipbuilding-contractor-suspends-vaccine-mandate-after-workers-threaten-to-leave_4113793.html)
+
+发布：kk
+
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

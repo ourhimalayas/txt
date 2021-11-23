@@ -2,44 +2,28 @@
 ---
 
 
-## 北领地公务员拒绝打疫苗被解雇，其他人却获得奖金
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1687425/)
+## 恒大价值10亿美元股份进入香港结算系统
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1687501/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-22.jpg)恒大价值10亿美元股份进入香港结算系统 网络图片
+据看中国11月23日报导，在香港上市的恒大价值近10亿美元股份出现在香港的中央结算及交收系统，意味着公司创始人许家印可能把他所持股份的一部分作为抵押而获得贷款。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/r359_124_1511_764_w1200_h678_fmax.jpg)
+此前，中共要求许家印动用部分个人财富用于帮助给债券持有人的支付款项。在中共国不存在私人财产不受侵犯的概念，只有党管一切，一切都是党的，党让你干啥就干啥。在一个连私人财产都得不到保护的国家，几乎所有人都是集权者的待宰羔羊。接下来，会有越来越多像许家印这样的企业家被剥夺私人财产，甚至家破人亡。只有认清共产党邪恶的本质，抛弃幻想和新中国联邦站在一起，才是拯救自己和家人最好的出路。
+
+新闻参考链接： [https://www.secretchina.com/news/gb/2021/11/23/990313.html](https://www.secretchina.com/news/gb/2021/11/23/990313.html)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-图片来源：www.katherinetimes.com.au
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
 
-#### 编译：小红帽
-
-在北领地，数百名因拒绝接种中共病毒（COVID-19）疫苗而被解雇的公务员的工资可以用来为其他员工支付价值1万美元的 “奖金”。
-
-资金紧张的北领地政府正试图实施公务员工资冻结，作为预算措施的一部分，旨在四年内节省4.24亿美元。为了让员工同意这项紧缩措施，政府之前提出了1000美元的年度奖金。
-
-但这一提议最近被北部地区24,000名公务员中的大多数人拒绝，因为四年后雇员仍将保持现有的工资。
-
-周一，首席部长迈克尔·冈纳（Michael Gunner）向所有员工发送了一封电子邮件，概述了政府的新提案。
-
-根据修订后的计划，员工将在第一年获得4000美元的奖金，并在随后的三年中每年获得2000美元的奖金。新建议的资金将来自于政府的疫苗强制令造成的人员配备减少。
-
-冈纳说，约有400名公务员因未按要求接种中共病毒疫苗而被解雇。其中一些职位将被重新填补，但约300名离职人员的工资将由其他公务员通过奖金分享。
-
-北领地反对派尚未对政府的修订工资政策发表评论。
-
-**参考新闻：**[NT public servants offered new wages deal as 400 staff dismissed for refusing COVID-19 vaccine (msn.com)](https://www.msn.com/en-au/money/markets/nt-public-servants-offered-new-wages-deal-as-400-staff-dismissed-for-refusing-covid-19-vaccine/ar-AAQZ6GY?ocid=msedgntp)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

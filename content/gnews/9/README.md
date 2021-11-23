@@ -2,31 +2,25 @@
 ---
 
 
-## 澳洲北领地部长：没有让步，绝对实行强制疫苗政策
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1687464/)
+## 针下亡魂｜德国 15 岁少女接种疫苗三周后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1687522/)
 
-撰稿：Gradient Boost
+**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 23/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-视频与字幕：苏加诺
+【德国】一名 15 岁女孩 Cheyenne Braun 在接种辉瑞 COVID-19 疫苗后的一周内发生心脏骤停，紧急送院后进入重症监护室，两周后死亡。据当地媒体报导，医生并未排除 Cheyenne 的死因是疫苗引发的心肌炎，目前警方正就该案件展开调查。
 
-澳大利亚当地时间11月22日，北领地首席部长迈克尔·贡纳（Michael Gunner）在接受记者采访时表示，自己绝对不会再疫苗问题上做出任何让步，北领地绝对会实行疫苗强制法令。
+Cheyenne 的母亲 Kerstin Braun 在脸书上，以 Cheyenne 姐姐的口吻，公开了女儿的不幸，并表示女儿没有任何健康问题，怀疑是疫苗诱发心肌炎导致猝死。
 
-在这位北领地部长的推动下，从11月13日开始，北领地任何涉及到与人接触的职位都需要至少打过一针疫苗，违反者在失去工作的同时还会被罚款5000澳元。
+最后，她呼吁民众谨慎选择疫苗：“我们有必要用自己的孩子做疫苗的试验品吗？”、“越来越多的疫苗不幸事件被公开，这绝不是个例。”、“仔细想清楚……你们不会想要也没有必要经历这地狱般的日子。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗_0-3.jpg)
+来源｜[个案062](https://www.mainwelle.de/todesursache-unklar-polizei-ermittelt-zum-tod-eines-15-jaehrigen-maedchens-aus-hollfeld-3372800/)
 
-在当时的记者会上，迈克尔称：“只要你的工作可能会接触到高风险易感群体——哪怕你不确定，你不知道——那么你都要打疫苗。”
+* * *
 
-而这一次，迈克尔有发挥起自己将事情完全一竿子打死的特长，把反疫苗者的帽子扣在了所有参与了抗议集会（哪怕只是在集会现场）的头上，甚至包括那些对反疫苗者报以同情或者怜悯心情的人。
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//｜//[美国 39 岁女医护接种疫苗4日后死亡](https://gnews.org/zh-hans/1625214/)//｜//[美国 56 岁男医生接种疫苗两周后死亡](https://gnews.org/zh-hans/1629915/)//｜//[德国 32 岁心理学专家接种疫苗12日后死亡](https://gnews.org/zh-hans/1636096/)//｜//[美国 45 岁知名漫画家接种疫苗后死亡](https://gnews.org/zh-hans/1665474/)//
 
-哪怕是已经接种疫苗的人，凡是与他个人观点不同的，现在都被他视为反疫苗者——可以说北领地部长现在已经毫不掩饰自己的独裁者气质和CCP作风。至于迈克尔的观点，那就是让越多的州、越多的人打越多的疫苗，他认为疫苗是抗病毒最好的方法。
-
-迈克尔称当两针疫苗注射普及超过80%之后，大家会看到感染率会下降许多。然而这纯属睁着眼睛说瞎话：目前维多利亚州的疫苗接种率已经快要接近90%，但是疫情依旧以每天1000的速率增长着。新南威尔士州的两针疫苗普及率都超过90%了，依然还有着每日接近两百例左右的新增。
-
-我们未来会继续关注这位政客的疯狂表演，看看他的下场究竟会如何。
-
-新闻参考链接：
-
-[澳大利亚广播公司](https://www.abc.net.au/news/2021-11-22/nt-covid-vaccine-mandate-opponents-anti-vaxxers-michael-gunner/100640656)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/TUBIAO-X.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

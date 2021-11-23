@@ -2,50 +2,70 @@
 ---
 
 
-## 奥地利“封锁一切”，“未接种疫苗”的非洲仍未受影响
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1687328/)
+## 【Michael.Tonny专栏】FDA第一份辉瑞疫苗报告，前3个月15.9万起副作用事故
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1687365/)
 
-【简评：】奥地利政府上周五表示，为了应对新一轮的感染，奥地利将成为西欧第一个，在今秋重新实施封锁的国家，而且该政府还将要求其全体人口，从明年的*2*月份开始接种中共病毒疫苗。报道称，奥地利大约有三分之二的人口完全接种了疫苗，奥地利或将成为首个强制疫苗的西方国家。面对被多个国家和地区证实有效的伊维菌素、青蒿素疗法，奥地利、德国、荷兰等欧洲国家政府均选择视而不见。这不禁让我们联想到，这些国家政府封锁和强制的目的仅仅是为了提高疫苗接种率，而绝非为了人民的健康福祉。正如郭文贵先生在直播中指出，黑暗已经来临。新联邦中国人要团结起来，继续传播病毒、疫苗真相。让我们的光柱刺破黑暗，为光明的到来做出自己的努力。
-
-据《零对冲》记者Tyler Durden在2021年11月21日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/E8423582-3D54-4709-8C8D-DEA9DA6F89B7.png)新冠病例的全球热点地区。图片来源：《纽约时报》, 2021年11月19日
-奥地利政府在宣布没有接种疫苗的人将失去所有基本人权的一天之后，又进一步宣布整个国家将失去基本人权。
-
-重新回到全国性封锁，以控制上次全国封锁未能控制的COVID-19疫情。有意义吗? 此外，正如《美联社》报道的那样，**令专家们感到“困惑”的是，****在疫苗接种率非常低且没有实施封锁的非洲，新冠肺炎病例非常少，死亡人数只是欧洲和美国人均的一小部分。**点击链接可以查看最新的[罗恩·保罗自由报告](http://ronpaulinstitute.org/archives/featured-articles/2021/november/19/austria-freak-out-lockdown-everything/)……
-
-《美联社》在周五的一份报告中指出:“当去年冠状病毒首次出现时，卫生官员**担心大流行将席卷非洲，导致数百万人死亡**。虽然目前还不清楚COVID-19的最终死亡人数，但**这种灾难性的****情况****尚未在津巴布韦或非洲大陆的大部分地区出现**”。
-
-《美联社》承认，非洲的情况意义重大，不容忽视，并指出，非洲基本上没有受到疫情的严重影响，这让科学家和卫生专家感到困惑:
-
-哥伦比亚大学全球卫生系主任瓦法阿*·*埃尔*–*萨德尔（Wafaa El-Sadr）说，***“*****非洲正在发生一些*****“*****神秘*****”*****的事情，这让科学家们感到困惑。**非洲没有欧洲和美国那样的疫苗和资源来对抗*COVID-19*，**但不知何故，他们似乎做得更好***”* 。
-
-非洲只有不到*6%*的人接种了疫苗。几个月来，世卫组织在每周大流行病报告中将非洲描述为*“*世界上受影响最小的地区之一*”*。
-
-正如西方官方描述中许多“怀疑论者”长期以来所指出的那样，年轻人面临的风险要小得多，此外，阳光和维生素 D 也对抵抗病毒有帮助。
-
-现在全球大流行已经一年半多了，主流媒体美联社的报道承认以下内容：“一些研究人员说，除了非洲较低的城市化率和**倾向于在户外度过多数时间之外**，**非洲大陆的人口更年轻**（平均年龄为 20 岁，而西欧约为 43 岁），**可能这是导致非洲大陆目前为止还没有受到病毒更致命的影响的原因。**几项研究正在探讨是否可能有其他解释，包括遗传原因或过去感染寄生虫病的历史”。
+加拿大温哥华扬帆农场  Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/22-100.jpg)
 
 
+“事出反常必有妖”，这可能是恒古不变的道理！
 
-> Officer's politely advising the public about the lockdown, some (very few) just kick off sadly,this chap was very upset about being asked not to gather on the beach(x3)when threatened with arrest finally left the beach with a collection of demeaning remarks towards the officers.. [pic.twitter.com/ogCcBe7e19](https://t.co/ogCcBe7e19)
-> — eddie mitchell (@brightonsnapper) [April 10, 2020](https://twitter.com/brightonsnapper/status/1248700370102226944?ref_src=twsrc%5Etfw)
+FDA最近在应对要求分享它在许可辉瑞（Pfizer）COVID-19（CCP病毒）疫苗所依赖数据的诉讼时，极其反常的举动，就让人不得不怀疑其中的猫腻！
 
+2021年9月16日，来自耶鲁、哈佛、加州大学洛杉矶分校和布朗大学等大学的30多名教授和科学家，向美国德克萨斯州北部地方法院（United States District Court Northern District of Texas ）起诉美国食品和药物管理局（Food and Drug Adminstration，FDA），要求FDA分享它在许可辉瑞CCP病毒疫苗时所依赖的数据。
 
+FDA的回应居然是要求法官批准其以每月500页的速度公布辉瑞提供给FDA的329,000多页文件。你没有看错，以FDA的主张推算，最快需要55年时间，即2076年之前，FDA才能完全公布辉瑞提交的CCP病毒疫苗数据。
 
-警察礼貌的建议公众遵守封锁规定，一些人*(*很少*)*只是开始悲伤。图片中这个家伙非常难过，因为其被要求不要聚集在海滩上*(x3)*，当受到逮捕的威胁，小伙最后骂骂咧咧地离开海滩。
+当您阅读完FDA发布的第一份关于辉瑞疫苗报告信息时，您一定不会对FDA给出如此荒谬的回应再感到震惊！
 
-考虑到这一点，请回想一下下面的场景（特别是在大流行的前半年）：在“封锁”期间警察在公共海滩追捕人们、还有父母因让孩子在公园等户外露天场所玩耍而被捕。
+这份报告是由这一案件的代理律师，即纽约SIRI & GLIMSTAD律师事务所合伙人Aaron Siri，一名拥有丰富的复杂民事诉讼经验、尤其是涉及强制医疗民事诉讼的律师在11月20日公布的。
 
-原文连接：[https://www.zerohedge.com/covid-19/austria-freak-out-lockdown-everything-meanwhile-unvaccinated-africa-still-not-impacted](https://www.zerohedge.com/covid-19/austria-freak-out-lockdown-everything-meanwhile-unvaccinated-africa-still-not-impacted)
+在一份名为《5.3.6 postmarketing experience.pdf》的文件第6页3. RESULTS中，自去年12月1日辉瑞BNT162b2疫苗收到第一份紧急供应临时授权书起至今年 2月28日期间，辉瑞共收到来自世界各地的42,086份疫苗副作用病例报告，包括158,893起疫苗副作用事故！
 
+这些病例报告最多的是来自美国13,739份（34,762起疫苗事故）。其它有：英国13,404份、意大利2,578份、德国 1913份、法国 1506份、葡萄牙 866份和西班牙756份；其余7,324 份来自于其他 56 个国家和地区。
 
+报告第7页，所有病例的最终结果中，19,582例康复或正在康复，520例产生了严重后遗症，11,361例到报告截止日期（2021年2月28日）时还没有恢复，1,223例死亡，9,400例不知道结果。
 
-翻译&评论：洛杉矶盘古农场 – 比格渣餐厅老板の娘
-编辑&校对：洛杉矶盘古农场 – 小象の奶瓶
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+如下图所示，在整个数据集中，最大数量的是系统器官类别 (System Organ ClassesSOC)全身性疾病和给药部位疾病，有51,335例；神经系统疾病25,957例；肌肉骨骼和结缔组织疾病17,283例；胃肠道疾病14,096例；皮肤和皮下组织疾病8,476例；呼吸、胸和纵隔（胸口中间的区域）疾病8,848例；感染和侵染4,610例；损伤、中毒和手术并发症5,590例和还在调查中的3,693例。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-47.png)
+读完这些沉甸甸的数据，笔者查看了VAERS系统收到的疫苗事故报告。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+截止至2021年11月12日，VAERS共收到894,143份CCP病毒疫苗美国的不良事件报告。其中，18,853例死亡，94,537例住院治疗，99,470例紧急护理，8,082例过敏反应，11,229例贝尔氏麻痹症（Bell’ Palsy），139,952例需要看医生。
+
+而在结果栏中，有2,296例流产，9,332例心脏病，13,237例心包炎/心肌炎，30,010永久残疾（Permanently Disabled），4,387例血小板减少症/低血小板，21,089例危及生命，33,660例严重过敏反应，10,455例带状疱疹(Shingles)。
+
+如下图所示，根据VAERS的统计结果，做一个简单的数学计算，可以得出结论，2021年，美国因接种CCP病毒疫苗死亡人数是过去30年接种所有其它疫苗死亡人数总和的1.94倍，是过去30年平均每年因接种疫苗死亡人数的58.3倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1637639655333_1.png)
+至2021年11月12日，各种COVID-19疫苗杀死人数分别为：Janssen共1,539人，Moderna共4,613人，Pfizer共12,634，其它品牌67人。
+
+必须强调的是，根据VAERS的公开申明(the Lazarus Report)，由于VAERS为自愿报告系统，VAERS统计的数据仅占实际发生事故的1%左右。
+
+难怪Wayne Allyn Root在文章[WAYNE ROOT: The Great Vaccine Mandate Scam](https://www.thegatewaypundit.com/2021/11/wayne-root-great-vaccine-mandate-scam/)说，疫苗授权以及即将到来的疫苗护照就是作为“特洛伊木马”的伟大骗局，是在利用这项疫苗授权作为掩饰，摧毁美国经济、资本主义和伟大的美国中产阶级，CCP病毒疫苗正在瓦解美国这个伟大的国家。
+
+至此，各种披着华丽外衣的政客、FDA和CDA在CCP病毒疫苗中究竟扮演的是天使还是魔鬼，相信您已经有自己的答案。
+
+参考资料：
+
+[Attorney Releases First Pages from Subpoenaed FDA Files – Shows Pfizer Documented 158,893 Adverse Events with 25,957 Nervous System Disorders in First Few Months of Distribution](https://www.thegatewaypundit.com/2021/11/attorney-releases-first-pages-subpoenaed-fda-files-shows-pfizer-documented-158893-adverse-events-25957-nervous-system-disorders/)
+
+[VAERS COVID Vaccine Adverse Event Reports](https://openvaers.com/covid-data)
+
+[FDA Produces the First 91+ pages of Documents from Pfizer’s COVID-19 Vaccine File](https://aaronsiri.substack.com/p/fda-produces-the-first-91-pages-of)
+
+[FDA asks for 55 years to complete FOIA request on Pfizer’s COVID-19 vaccine](https://www.fiercepharma.com/pharma/fda-requests-55-years-to-complete-foia-request-pfizer-s-covid-19-vaccine)
+
+[5.3.6-postmarketing-experience.pdf](https://phmpt.org/wp-content/uploads/2021/11/5.3.6-postmarketing-experience.pdf)
+
+[WAYNE ROOT: The Great Vaccine Mandate Scam](https://www.thegatewaypundit.com/2021/11/wayne-root-great-vaccine-mandate-scam/)
+
+[vaccine foia complaint.pdf](https://fingfx.thomsonreuters.com/gfx/legaldocs/klvykdlryvg/vaccine%20foia%20complaint.pdf)
+
+[FDA Asks Federal Judge to Grant it Until the Year 2076 to Fully Release Pfizer’s COVID-19 Vaccine Data](https://aaronsiri.substack.com/p/fda-asks-federal-judge-to-grant-it)
+
+（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+
+编审：文敏     发布：文敏
 
  
 

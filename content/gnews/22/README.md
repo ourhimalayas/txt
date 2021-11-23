@@ -2,25 +2,35 @@
 ---
 
 
-## 这篇报道出现在日文网站将带给日本什么？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1687322/)
+## 60岁及以下接种疫苗人群的死亡率是未接种人群的两倍
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1687351/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-178.png)（图片源自本文链接）
-11月23日，日本雅虎网站上出现了路透社发表的这一消息——辉瑞公司22日表示，与德国Biontech公司共同开发的一种中共病毒疫苗的后期临床试验证实，可使12至15岁的儿童产生较强的长期免疫效果。
+【简评：】辉瑞其实早就知道了其毒疫苗的副作用，却故意向公众隐瞒了*COVID-19*疫苗临床试验*’*的（死亡人数）真实数据。*FDA*一再承诺对*Covid-19*疫苗*“*完全透明*”*，包括在许可辉瑞*(Pfizer)*的*COVID-19*疫苗时重申的*“ FDA*对透明度的承诺*”*。然而，*FDA*做了什么来兑现承诺呢？*FDA*要求法官允许它来完成辉瑞提供的*329,000*多页的文件，*FDA*说它们每个月可以完成*500*页的报告，按这个速度速度，意味着完整的报告不会早于*2076*年完成。*FDA*对透明度的承诺说得客气一点，就是一个幻想。
 
-辉瑞公司称，这种疫苗在第二次接种四个多月后，其效率仍为100%。美国食品和药物管理局（FDA）于5月加急批准了辉瑞公司产疫苗的许可，用于12-15岁孩子。
+据《网关专家》记者Jim Hoft在2021年11月21日报道：
 
-辉瑞公司计划为12岁及以上年龄段的30微克容量的疫苗申请常规批准；美国食品和药物管理局已于8月将16岁及以上年龄段的疫苗接种常规化。
+**拉里****·****约翰逊**（Larry Johnson）早些时候对此事进行了报道。 这则报道值得称为头条新闻：**接种疫苗的****60****岁以下人群的死亡率是未接种疫苗人群的两倍。**原始数据点击这里[**这里**](https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/datasets/deathsbyvaccinationstatusengland)查看。
 
-看到此消息，笔者的心情蓦然沉重！跟随爆料革命，让我学会了思考：瑞辉为何如此急迫的生产儿童用疫苗？辉瑞提交的实验结果可信吗？美国食品和药物管理局是否仅仅根据瑞辉提交的申请就给予了16岁及以上年龄段使用其疫苗的许可？美国食品和药物管理局是否还将仅仅根据瑞辉提交的申请就给予了12岁及以上年龄段使用其疫苗的许可？这样的报道出现在日文网站，会起到一定的宣传作用，它将带给日本的是什么？它将带给日本孩子的是什么？这对本来就已进入严重老龄化的日本，无疑是灾难！
+下图源自亚历克斯·贝伦森报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/D70BEBFA-E7E9-41C5-936C-86D1D613973E.png)图片来源：[https://alexberenson.substack.com/p/vaccinated-english-adults-under-60](https://alexberenson.substack.com/p/vaccinated-english-adults-under-60)
+**这应该会成为推动强制接种疫苗的丧钟。会吗****?**
 
-信息来源：[米ファイザー、コロナワクチン12─15歳の強い長期免疫効果確認（ロイター） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/6adc0f9c1bf7faa5b499bca4776ff18cae514ebb)
+以下文字来源于 [**亚里克斯****·****贝伦森**](https://alexberenson.substack.com/p/vaccinated-english-adults-under-60)的报道：
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+棕色线代表*10-59*岁接种疫苗人群中每*10*万人中每周因各种原因死亡的人数。蓝线代表同一年龄范围内每*100,000*名未接种疫苗者因各种原因导致的每周死亡人数。
 
+我自己检查了基础数据集，这张图是正确的。*60*岁以下接种疫苗人群的死亡率是未接种疫苗人群的两倍。 英国的总体死亡率远高于正常水平。
+
+现在我们知道为什么全球主义者要把辉瑞疫苗的结果隐藏55年了。
+
+原文连接[https://www.thegatewaypundit.com/2021/11/shocking-uk-study-stuns-medical-community-vaccinated-people-60-younger-twice-likely-die-unvaccinated-people/](https://www.thegatewaypundit.com/2021/11/shocking-uk-study-stuns-medical-community-vaccinated-people-60-younger-twice-likely-die-unvaccinated-people/)
+
+翻译&评论：洛杉矶盘古农场 – 比格渣餐厅老板の娘
+编辑&校对：洛杉矶盘古农场 – 小象の奶瓶
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

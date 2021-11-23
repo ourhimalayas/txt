@@ -2,27 +2,32 @@
 ---
 
 
-## 澳大利亚军队强行转移疫区民众至集中隔离营
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1687200/)
+## GTV新闻访谈简报|2021年11月22日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1687250/)
 
-原文采编：文莱   编译撰稿：文所未闻
+作者：香草山翻译部
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/b-6-edited.jpg)图片来源：零对冲
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-7.png)
 
 
-据知名自媒体《零对冲》11月21日报道，地处澳大利亚北部的本杰里社区，因日前在发现9起“新冠病毒”感染病例而被当局完全封锁之后，澳大利亚军队已开始强行将北领地居民转移到位于达尔文地区的霍华德泉检疫隔离营。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1122text-SC.png)
+校对：Stay文苑
 
-对此，北领地首席部长冈纳称，该社区所有居民除了医疗、紧急情况或法律理由外，均不允许擅自离家。并同时表示，会有更多病毒检测呈阳性者以及与该病毒感染患者曾密切接触的人将被转移到霍华德隔离区。
+编辑：Stay文苑
 
-报道称，北领地辖区内居民大多是澳大利亚当地的原著民。由于土著社区人口居住过度拥挤，因此或直接导致了本次严重“新冠病毒”疫情的迅速蔓延。
+发稿：Stay文苑
 
-* * *
+视频参看：[11.22  晚GTV新闻访谈](https://gtv.org/broadcast/watch/619c43bbcbfd016d6378e969)
 
-校对编辑，发稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-8.jpg)
 
-原文链接：
+**更多资讯，更多关注**
 
-[https://www.zerohedge.com/covid-19/australian-army-begins-transferring-covid-positive-cases-contacts-quarantine-camps](https://www.zerohedge.com/covid-19/australian-army-begins-transferring-covid-positive-cases-contacts-quarantine-camps)
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://紐約香草山農場%20%20|%20GTV-香草山之聲%20紐約香草山農場GTV-%20|%20MOS%20TALK%20香草山訪談%20紐約香草山農場%20|%20GETTR%20紐約香草山農場%20｜YouTube%20歡迎加入香草山農場%20%20|%20Discord)
 
  
 

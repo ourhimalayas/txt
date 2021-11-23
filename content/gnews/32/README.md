@@ -2,47 +2,25 @@
 ---
 
 
-## 菲律宾总统对中共非法阻拦菲律宾补给船表示憎恨
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1687163/)
+## 警方说威州游行碾压案嫌犯涉及“内部纠纷”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1687214/)
 
-作者：东京樱花团 – 在远方
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-36.png)
+图片来源： www.6parknews.com
 
+美国合众国际社11月22日报道，警方周一说，39岁男性嫌犯在威斯康辛州的节目游行中开着他的车姿意碾压造成5人死亡，48人受伤，就在犯案前，嫌犯还涉及一桩内部纠纷案。
 
+嫌犯名叫达雷尔·布鲁克斯，住在威州沃科夏市，警察局长丹尼尔·汤普森在周日发生惨案一天后更新最近信息，他告诉记者事发时一辆休闲越野车在该市每年的圣诞节游行活动中冲向人群。他说：“我们有信息显示嫌犯在事发前涉及一桩内部争吵，发生在事发前几分钟，就在警方到达前嫌犯离开了吵架地方。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+当布鲁克斯开车冲向人群时一名警察向布鲁克斯开了几枪，但因为生怕伤及旁人，不得不停止。
 
+警方说布鲁克斯面临5次一级故意谋杀指控，伴随其他可能的指控。
+目前还没有迹象显示此次事件与国内或国际恐怖主义有关。5名死亡的受害者年龄52-81岁，其中4名妇女一名男士，
 
+威州儿童医院说有16名儿童年龄3-16岁，目前主街仍然关闭，威州州长下令为此事件降半旗，各界人士也均为此祷告。
 
-当地时间11月22日，在东盟与中共建立对话关系30周年峰会上，菲律宾总统杜特尔特对中共海警船使用水炮对付菲律宾补给船的事件表示憎恨。他强调，这会对菲律宾与中共的关系造成影响，而法治才是解决问题的唯一途径。
-
-11月16日，中共非法阻拦了菲律宾补给船。次日，美国国务院发言人普赖斯警告说，任何针对菲律宾公共船只的“武装攻击”都会导致1951年美菲条约的启动，即美国有保护盟友菲律宾的义务。
-
-据了解，本周菲律宾军方将恢复向驻守在阿云金暗沙的菲律宾军人运送物资。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3.1-6.jpg)
-参考链接：
-[菲律宾总统“憎恨”中国海警船射水炮 防长指示补给船再出发](https://www.voachinese.com/a/philippines-south-china-sea-resupply-20211122/6322648.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：飞虹
-编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+##### **新闻来源： **[Police: Suspect in Wisconsin parade crash was involved in ‘domestic disturbance ‘](https://www.upi.com/Top_News/US/2021/11/22/wisconsin-waukesha-parade-suv-crash/1691637588902/)
 
 
 
