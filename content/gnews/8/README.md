@@ -2,51 +2,43 @@
 ---
 
 
-## 明知mRNA疫苗对孕妇不安全，但CDC和FDA仍然推荐接种
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1688606/)
+## 亨特·拜登协助中共国公司收购刚果钴矿
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1688670/)
 
-翻译：皮特
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-13.jpeg)图片来源：Kernodle Clinic
-现在，美国VAERS（疫苗不良事件报告系统）中已记录了2,433例胎儿死亡，这些死亡病例来自注射了任意一种新冠疫苗的孕妇。其中绝大多数来自辉瑞（Pfizer）疫苗（1,862例死亡）和，莫德纳疫苗（656例死亡）。
+#### 撰稿：日本东京方舟农场  海星
 
-**在过去11个月中，（孕妇）接种****新冠****疫苗导致的胎儿死亡人数，比过去30年中（孕妇）接种****所有****疫苗的胎儿死亡人数都高。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/EC310BC7-E839-470D-8922-AAB88D2F76F2.jpeg)（图片来源：路透社）
 
-2021年10月，《新英格兰医学杂志》承认，**CDC****和****FDA****向孕妇推荐注射疫苗的原始研究是有缺陷的。 **
+11月20日，《纽约时报》揭露美国总统拜登的儿子亨特·拜登（Hunter Biden）旗下的公司在2016年协助中共国公司收购了刚果的钴矿。
 
-此后，新西兰的[专业团队](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://cf5e727d-d02d-4d71-89ff-9fe2d3ad957f.filesusr.com/ugd/adf864_2bd97450072f4364a65e5cf1d7384dd4.pdf)对**原始数据**进行[了新的研究](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://cf5e727d-d02d-4d71-89ff-9fe2d3ad957f.filesusr.com/ugd/adf864_2bd97450072f4364a65e5cf1d7384dd4.pdf)，得出的结论是：
+据《自由时报》报道，一篇于11月20日发表在《纽约时报》的文章，揭露了美国总统拜登的儿子亨特·拜登参与成立的公司，曾在2016年帮助中共国公司收购了位于刚果民主共和国面积达1500平方公里的钴矿矿脉。
 
-**对结果重新分析表明，自然流产的累积发生概率在82%(104/127)到91%(104/114)之间，比原研究人员的结论高7-8倍。**
+报道指出，亨特在2013年与两名美国人及中共国合伙人共同成立了渤海华美（上海）股权投资基金管理有限公司（BHR）。美方三人持股30％，均担任董事；其余股份则由中国银行等中共国投资者持有或控制。
 
-尽管对原始数据的正确分析表明，如果胎儿不到20周时，孕妇注射新冠疫苗会有82%至91%的机会流产，**但****CDC****和****FDA****仍然继续推荐孕妇注射疫苗**。
+2016年，中国洛阳钼业公司（China Molybdenum）欲斥资26.5亿美元买下美国费利浦·麦克莫兰铜金公司（Freeport-McMoRan）持有的刚果Tenke Fungurume钴矿股份。但相关条款规定，若该美企有意出售股权，加拿大矿产公司 Lundin Mining享有优先收购权。
 
-VAERS只是一个被动记录系统，会严重低估结果。CDC和FDA从未进行研究来确定漏报的因素是什么。有科学家已经进行了研究，我们之前也发表了**杰西卡·罗斯博士的分析，他确定保守的估算也要****乘以41（倍）****。**看吧：
+于是，洛阳钼业与亨特的BHR公司达成协议，先由BHR出资11.4亿美元收购Lundin Mining的股份，之后洛阳钼业于2019年再从BHR手中买回股份。至此，洛阳钼业已持Tenke Fungurume钴矿80％的股份。
 
-[政府数据显示，在接种新冠疫苗后，美国至少有150,000人可能死亡](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://healthimpactnews.com/2021/study-governments-own-data-reveals-that-at-least-150000-probably-dead-in-u-s-following-covid-19-vaccines/)。这意味着到目前为止，**在注射****新冠****后可能已经至少有****99,753****名胎儿死亡**。
+该报道进一步揭露，BHR收购股份的资金全部来自中共国国营公司，而洛阳钼业除了向中国建设银行等国营银行融资7亿美元外，其余款项全是由BHR向中国建设银行旗下的离岸公司等隐蔽公司筹措而得。
 
-我们上个月制作的视频报告，其中包含一些非常不幸的可怕例子，说明了新冠疫苗对胎儿的影响。
+据悉，钴是电动汽车所用电池的一个关键组成部分，据估算，地球上钴储量的67%都分布在刚果民主共和国。
 
-同期，我得知了网上流传的一段英国殡仪馆长的采访视频。
+此前，美国政府曾发出警告称，中共正日益占据钴的主导地位，并可能会借此扰乱美国汽车工业更换机械设备的计划，增加美国发展电动车的阻力。
 
-他已经从业3年多，自称是卫斯理（Wesley），并接受了名为自媒体英国抵抗运动的采访。
+*参考链接：*
 
-他指出，去年秋天几乎是死亡人数最少的时期，但是当有了新冠疫苗后，死亡人数开始急剧增加。
+1. [*https://news.ltn.com.tw/news/world/paper/1486000*](https://news.ltn.com.tw/news/world/paper/1486000)
+2. [*https://news.ltn.com.tw/news/world/breakingnews/3743851*](https://news.ltn.com.tw/news/world/breakingnews/3743851)
+3. [*https://gettr.com/post/phjqyh3837*](https://gettr.com/post/phjqyh3837)
 
-**先是从老年人开始，但到了****4****月，有大量****30****到****40****多岁的人（死亡），许多是死于心肌炎。**
 
-**现在，他们看到了前所未有的新生儿死亡，尸体堆积在医院的冰箱里。他说，有的是足月，有的是早产。**
+* * *
 
-英国最初建议孕妇和哺乳期母亲不要接种实验性新冠疫苗，但与美国的CDC一样，他们最终改变了建议，鼓励孕妇接种疫苗。
+*素材采编：海星*
 
-关于mRNA疫苗还有很多的采访。
+*编辑：青衣青青*
 
-**发布：**kk
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*发布：miumiu*
 
  
 

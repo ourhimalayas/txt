@@ -2,34 +2,25 @@
 ---
 
 
-## “拜习会”前中美“互释”公民
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1688602/)
+## 中共地方债务违约节节攀升
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688663/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-27.jpg)
+[图片来源](https://www.google.com/search?q=%E5%9C%B0%E6%96%B9%E5%80%BA&amp;tbm=isch&amp;ved=2ahUKEwjt4buuta70AhVZmUsFHVCCBtUQ2-cCegQIABAA&amp;oq=%E5%9C%B0%E6%96%B9%E5%80%BA&amp;gs_lcp=CgNpbWcQAzIFCAAQgAQyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBg6BwgjEO8DECc6CggjEO8DEOoCECc6BwgAEIAEEAxQ0wVYxEpgqExoC3AAeACAAdkEiAHUEJIBCTAuOC4yLjUtMZgBAKABAaoBC2d3cy13aXotaW1nsAEKwAEB&amp;sclient=img&amp;ei=TtWcYe2CJtmyrtoP0ISaqA0&amp;bih=625&amp;biw=1366&amp;rlz=1C1YKST_enUS900US901#imgrc=oEyKDzMebCB0fM)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7C1567AA-D769-4C3C-A917-A925DC81D50C.jpeg)（图片来自美联社）
+11月23日每日经济报报道，财政部公布2021年10月地方政府债券发行和债务余额情况。2021年10月，全国发行地方政府债券8761亿元。其中，发行一般债券2320亿元，发行专项债券6441亿元；按用途划分，发行新增债券6145亿元，发行再融资债券2616亿元。2021年1—10月，全国发行地方政府债券64916亿元。其中，发行一般债券24705亿元，发行专项债券40211亿元；按用途划分，发行新增债券36625亿元，发行再融资债券28291亿元。
 
-《路透社》近日报道称，在美国总统拜登和中共领导人习近平举行视频峰会之前，美国遣返了七名被判有罪的中共国公民，而中共国方面则解除了一名美籍华人的离境限制。
+中共国每年存量债务到期额均在4.4万亿元以上，其中，2021年到期额达5.82万亿元，中共国二十年的GDP增长刚好是债务的增长，说明了房企债务违约，地方债违约，面对不断加大的付息压力，违约债务随时可以让地方政府爆发债务危机，让地方政府破产。
 
-报道称，在美籍华人丹尼尔·徐（音）被中共解除离境限制的同时，美国也遣返了七名被判有罪的中共国公民，包括中国银行某分行前行长许国俊、被判犯有诈骗罪的两人、因拍摄国防设施而被定罪的两人，以及2019年试图闯入前总统川普的海湖庄园的两名女性。
+信息来源：
 
-获准离开的丹尼尔·徐在中共国未曾被定罪，但四年多来一直被限制离境。徐去年告诉《美联社》，自 2017 年以来，中共当局一直将他扣为人质，以此要挟他的父亲回到中共国并面对挪用公款的指控。《美联社》的报道称，徐先生的父亲徐维铭否认了这些指控。
+[财政部：10月全国发行地方政府债券8761亿元](https://me.mbd.baidu.com/r/wRMXMvgMxi?f=cp&amp;rs=3438845515&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=c8b2cb6f8188055e)
 
-丹尼尔·徐已于11月15日晚回到美国，那时恰逢拜登总统与中共领导人习近平正在举行视频会议。对此，美国的一位政府官员否认这是事关“拜习会”两国条件交换的一部分。而中（共）国驻华盛顿大使馆没有立即发表评论。
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
 
-*参考链接：*
-
-1. [*https://www.reuters.com/world/exclusive-american-barred-leaving-china-returned-us-before-biden-xi-meeting-2021-11-18/*](https://www.reuters.com/world/exclusive-american-barred-leaving-china-returned-us-before-biden-xi-meeting-2021-11-18/)
-2. [*https://cn.nytimes.com/china/20211122/us-china-exit-ban-deport/?utm\_source=top10-in-article&utm\_medium=articlepage&utm\_campaign=web*](https://cn.nytimes.com/china/20211122/us-china-exit-ban-deport/?utm_source=top10-in-article&amp;utm_medium=articlepage&amp;utm_campaign=web)
-
-
-* * *
-
-*素材采编：幽蘭自得*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
 
  
 

@@ -2,29 +2,30 @@
 ---
 
 
-## 美国12月召开民主峰会 台湾受宠中共遭抛弃
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688678/)
+## 欧洲多国民众上街抗议政府强制疫苗政策
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1688733/)
 
-撰稿：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-9.png)
-[图片来源](https://www.news-europe.fr/countries/armenia/2021/11/05/president-joe-biden-has-invited-armenia-to-his-upcoming-summit-for-democracy-turkey-and-azerbaijan-are-no-armenian-news-by-massispost/)
+#### **撰稿：**日本东京方舟农场 Kevin wang
 
-据“看中国新闻网”11月23日消息，12月9日至10日主办拜登政府的第一次民主峰会（Summit for Democracy），这次峰会为视频形式，参加国家预计超过100，不过中共国没有在受邀名单上，而对岸的台湾则确认已经收到邀请。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/F1972889-1247-46C6-B115-488C929B226A.jpeg)（图片来自大纪元）
 
-根据白宫发布的一份声明说：“将于12月9日至10日举行的虚拟（民主）峰会将激发跨越三个主要主题的承诺和倡议：抵御威权主义、打击腐败和促进对人权的尊重。”
+近日，因政府的强制疫苗令和新一轮更严厉的封锁政策侵犯了个人自由，欧洲多国爆发了一系列声势浩大的抗议活动。
 
-获邀参加民主峰会的国家名单还没有正式公布，但是据悉华府的政治新闻网站Politico已经看到了这份国家名单。根据Politico透露出来的消息，美国已经邀请了台湾参加12月民主峰会，而中共国和俄罗斯并没有在受邀名单上。
+据《大纪元》11月22日报道，近日，奥地利、克罗地亚、意大利、北爱尔兰、荷兰和法属瓜德罗普岛（Guadeloupe）等多国，均爆发了大规模抗议强制疫苗政策的游行集会。
 
-近年来，中共投放病毒，控制香港，灭绝新疆，推广疫苗，作恶多端，国际社会逐渐生厌，逐步被国际社会抛弃成为必然。
+据悉，各国抗议集会的起因均是由于政府推出侵犯个人自由的疫苗政策。例如，在北爱尔兰，未接种疫苗的民众无法进入圣诞市场；意大利罗马的工作场所、餐厅、电影院、剧场、体育场馆和健身房都要求出示接种疫苗证明；克罗地亚则是强制公务员接种疫苗。
 
-信息来源：
+各国民众为反抗政府更严厉的疫苗令和封锁措施，纷纷自发组织抗议集会。部分抗议集会声势浩大，有多达数万人参加。
 
-[美国12月召开民主峰会 有请台湾没请中共](https://m.secretchina.com/news/gb/2021/11/23/990316.html)
+*参考链接：[https://www.epochtimes.com/gb/21/11/21/n13389573.htm](https://www.epochtimes.com/gb/21/11/21/n13389573.htm)*
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
+* * *
 
+*素材采编：Kevin wang*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
 
  
 
