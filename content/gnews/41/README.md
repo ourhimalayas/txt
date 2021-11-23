@@ -2,25 +2,48 @@
 ---
 
 
-## 针下亡魂｜德国 15 岁少女接种疫苗三周后死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1687522/)
+## 新州长面对悉尼大规模反抗示威依然铁心不放宽政策
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1687532/)
 
-**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 23/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+撰稿/翻译：Jenny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_2159.jpg)截图自Sky News
+上周六，澳大利亚各大省会城市如悉尼，墨尔本，布里斯班，珀斯爆发了总数几十几万人的游行和集会。特别是悉尼，是自解除封锁后的第一个合法集会，悉尼警方动用了600名警察和骑警维持秩序。
 
-【德国】一名 15 岁女孩 Cheyenne Braun 在接种辉瑞 COVID-19 疫苗后的一周内发生心脏骤停，紧急送院后进入重症监护室，两周后死亡。据当地媒体报导，医生并未排除 Cheyenne 的死因是疫苗引发的心肌炎，目前警方正就该案件展开调查。
+新南威尔士州州长宣布，他的政府不会从 12 月 15 日起放宽对未接种疫苗的限制。
 
-Cheyenne 的母亲 Kerstin Braun 在脸书上，以 Cheyenne 姐姐的口吻，公开了女儿的不幸，并表示女儿没有任何健康问题，怀疑是疫苗诱发心肌炎导致猝死。
+新南威尔士州长多米尼克·佩罗特 (Dominic Perrottet)在周日表示：“我将日期定为 12 月 15 日，该日期有一些令人讨厌和令人沮丧的限制，我和其它人一样讨厌戴口罩”。他还说对于政府在大流行期间做出的决定，每个人对这些事情都有自己的看法和意见”。
 
-最后，她呼吁民众谨慎选择疫苗：“我们有必要用自己的孩子做疫苗的试验品吗？”、“越来越多的疫苗不幸事件被公开，这绝不是个例。”、“仔细想清楚……你们不会想要也没有必要经历这地狱般的日子。”
-![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗_0-3.jpg)
-来源｜[个案062](https://www.mainwelle.de/todesursache-unklar-polizei-ermittelt-zum-tod-eines-15-jaehrigen-maedchens-aus-hollfeld-3372800/)
+“如果你看一下死亡率和经济成就，澳大利亚是世界上最好的国家，我们能够在非常具有挑战性的情况下做到这一点”。
 
-* * *
+周日，该州记录了176个新病例，而疫苗接种率继续向95%的目标上升。
 
-他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//｜//[美国 39 岁女医护接种疫苗4日后死亡](https://gnews.org/zh-hans/1625214/)//｜//[美国 56 岁男医生接种疫苗两周后死亡](https://gnews.org/zh-hans/1629915/)//｜//[德国 32 岁心理学专家接种疫苗12日后死亡](https://gnews.org/zh-hans/1636096/)//｜//[美国 45 岁知名漫画家接种疫苗后死亡](https://gnews.org/zh-hans/1665474/)//
+根据新南威尔士州全国COVID-19的统计数据，16岁及以上人口中有94.4%的人接种了一剂疫苗，91.8%的人完全接种。
 
+在12至15岁的人群中，有81%的人至少接种了一剂疫苗，75%的人完全接种。
+
+根据目前的路线图，当该州的双剂量疫苗接种率达到95%或在12月15日，未接种的居民将放宽限制。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_2097-scaled.jpg)图片：Jenny
+回想香港反送中运动，当上街抗议的民众人数不断创新高，不断刷新全世界看瓜群众的眼球时，我们曾经期盼极权政府会顾及一下民众的感受有所收敛，但残酷的现实是香港就此沦陷，同样的事情会在澳大利亚上演吗？
+
+今天的澳大利亚犹如八九六四的北京，犹如反送中时的香港。独裁者们暂时猖狂得胜，但人们不会退缩不会放弃！因为我们不希望被子孙后代埋怨为什么你没有抗争？
+
+看看这个推友的点评精辟：
+
+
+
+> Same snake different head. Every Australian is being played and robbed now in daylight and we give him beer and cheers while we are bleeding out slowly but surely dissipating
+> — SIGMA (@cryptotwat2) [November 22, 2021](https://twitter.com/cryptotwat2/status/1462904905878753281?ref_src=twsrc%5Etfw)
+
+
+
+同蛇不同头。每个澳大利亚人现在都在光天化日之下被玩弄和抢劫，我们给他啤酒和欢呼，而我们正在慢慢流血但肯定会消失。
+
+悲壮但很真实。
+
+[译文链接：](https://www.skynews.com.au/australia-news/politics/premier-dominic-perrottet-not-willing-to-bring-easing-of-restrictions-for-unvaccinated-forward-despite-protest-of-thousands/news-story/470d7c85abe89c4c7af3f5ace0e79385)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
