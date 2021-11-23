@@ -2,20 +2,30 @@
 ---
 
 
-## 岸田文雄与泰国总理会谈，强烈反对中共海上霸权
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688298/)
+## 谴责中共种族灭绝反人类，日本众多服装公司停用新疆棉
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688312/)
 
 整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-47.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww3.nhk.or.jp%2Fnhkworld%2Fupld%2Fthumbnails%2Fzh%2Fnews%2F334259_16234_L.JPG&amp;imgrefurl=https%3A%2F%2Fwww3.nhk.or.jp%2Fnhkworld%2Fzh%2Fnews%2F334259%2F&amp;tbnid=vldd1oKnYaMBhM&amp;vet=12ahUKEwi2rpHmpa70AhWcnEsFHQl0BUYQMygAegQIARB2..i&amp;docid=rtOra4742n5QPM&amp;w=640&amp;h=360&amp;q=%E5%B2%B8%E7%94%B0%20%E6%B3%B0%E5%9B%BD&amp;ved=2ahUKEwi2rpHmpa70AhWcnEsFHQl0BUYQMygAegQIARB2)
-日本首相岸田文雄11月22日晚间，与泰国总理巴育举行了就任后的首次电话会谈，并确认与两国加强合作，促进双边关系进一步发展。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6666.jpg)[图片来源](https://www.google.com/search?q=%E6%96%B0%E7%96%86%E6%A3%89&amp;tbm=isch&amp;ved=2ahUKEwig9-uzpq70AhU6CbcAHV2xD6EQ2-cCegQIABAA&amp;oq=%E6%96%B0%E7%96%86%E6%A3%89&amp;gs_lcp=CgNpbWcQAzIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQ6CggjEO8DEOoCECdQoAhY0RNg0hVoAXAAeACAAXuIAfQBkgEDMC4ymAEAoAEBqgELZ3dzLXdpei1pbWewAQrAAQE&amp;sclient=img&amp;ei=n8WcYeCrFrqS3LUP3eK-iAo&amp;bih=625&amp;biw=1366&amp;rlz=1C1YKST_enUS900US901#imgrc=fJ0tluMjxp51tM)
+有意见指出，在全球屈指可数的棉花产地、中共国新疆维吾尔自治区，维吾尔族人被强迫劳动生产制造棉制品，国际社会对此的谴责声浪不断高涨。
 
-在与泰国总理巴育的会谈中，岸田表示：“希望进一步发展两国之间的‘战略合作伙伴关系’，为实现‘自由开放的印太地区’而加强合作。”对此，巴育总理回应称：“为了推动双边关系进一步发展，希望密切开展合作。”
+在此情况下，迄今为止在部分服饰中使用新疆产棉制品的日本大型服装公司三阳商会决定，从明年，即2022年的春夏系列服饰开始，将不再使用在新疆生产的棉制品。该公司称：“公司方面认为，只要人权问题的可能性还存在，就无法继续使用相关制品。”
 
-围绕地区局势问题，在考虑到中共国相关活动的背景下，岸田指出：“日本强烈反对试图单方面改变东海及南海现状的行为。”两国首脑还就改变缅甸局势问题表示将进一步携手合作。
+此外，服装品牌nano・universe的母公司TSI Holdings也从今年的秋冬系列服饰起，停止使用新疆产棉制品，并表示在人权问题的嫌疑解除前不会恢复使用。
+
+除此之外，日本企业中，大型运动品牌美津浓（Mizuno）、大型服装公司世界时装（WORLD）也都表示，停止使用确定为新疆产的棉制品。优衣库的母公司迅销集团也成立了专门对棉花种植户等的情况予以确认的团队等，越来越多的公司开始采取行动回应舆论对相关人权问题的批评。
+
+美国国务卿蓬佩奥周二（2021年1月19日）表示，中共国在新疆对维吾尔族及其他穆斯林少数民族犯下种族清洗与反人类罪。蓬佩奥在声明中谴责，中共国在新疆囚禁了超过一百万维族人及其他穆斯林少数族裔，并强制他们劳动、节育，限制其宗教自由等。
+
+声明说，“在仔细研究现有事实之后，我确定中共国在中共的领导和控制之下，对新疆的主要是穆斯林的维吾尔人和其他少数民族、宗教少数群体实施种族清洗。”“我相信这是正在发生的种族清洗，我们正在目睹中共国共产党政权试图对维族人进行系统性摧毁，”蓬佩奥表示。
+
+中共国一向否认在新疆强制囚禁维族及其他少数族裔，表示他们是在接受就业培训，以抗击恐怖主义、分离主义和极端主义。
 
 消息来源:
 
-[岸田与泰国新加坡首脑举行电话会谈](https://www3.nhk.or.jp/nhkworld/zh/news/334259/)
+[日本部分大型服装公司停用新疆产棉制品](https://www3.nhk.or.jp/nhkworld/zh/news/334262/)
+
+[美国国务卿蓬佩奥：中国对维吾尔族“犯下种族清洗和反人类罪”](https://www.bbc.com/zhongwen/simp/world-55727785)
 
 *校对：东京樱花团/知了知了*
 *发布：东京樱花团/tdownc2p*

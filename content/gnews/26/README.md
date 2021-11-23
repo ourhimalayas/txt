@@ -2,36 +2,29 @@
 ---
 
 
-## 助纣为虐！百度参与开发中共病毒疫苗
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688210/)
+## 英国健康安全机构：完全接种疫苗者感染率更高
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1688242/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-159.jpg)[图片来源](https://www.google.com/imgres?imgurl=http%3A%2F%2Fplib.aastocks.com%2Faafnnews%2Fimage%2Fmedialib%2F20180608112436030_l.jpg&amp;imgrefurl=http%3A%2F%2Fwww.aastocks.com%2Ftc%2Fstocks%2Fnews%2Faafn-con%2Fnow.1144816%2Flatest-news&amp;tbnid=9vja9m5n85Cw-M&amp;vet=12ahUKEwjwgpTxoq70AhXUGCsKHR5iDPwQMygBegUIARCuAQ..i&amp;docid=7QsGJCcIrT9gGM&amp;w=850&amp;h=478&amp;itg=1&amp;q=%E7%99%BE%E5%BA%A6%E5%90%88%E4%BD%9C%E7%96%AB%E8%8B%97&amp;ved=2ahUKEwjwgpTxoq70AhXUGCsKHR5iDPwQMygBegUIARCuAQ)
-百度周一宣布，已将其信使RNA(mRNA)序列设计算法授权给法国赛诺菲[SASY.PA](https://cn.reuters.com/companies/SASY.PA)，用于疫苗和治疗产品的设计。这是百度首次与全球主要制药商达成此类商业协议。
+撰稿：Gradient Boost
+![](https://assets.gnews.org/wp-content/uploads/2021/11/231-1.jpg)图片来源于网络
+近日，英国健康安全机构（UK Health Security Agency）公布了最新的CCP病毒疫苗监控报道。该报道显示，目前主要的CCP病毒感染、重症监护以及死亡案例大多都来自完全接种疫苗，及注射两针之后的人群。
 
-在中共病毒疫情爆发之前，赛诺菲是世界上最大的疫苗制造商之一，但在针对中共病毒病毒开发mRNA疫苗的竞争中被BioNTech [BNTX.O](https://cn.reuters.com/companies/BNTX.O)/辉瑞[PFE.N](https://cn.reuters.com/companies/PFE.N)和莫德纳(Moderna)[MRNA.O](https://cn.reuters.com/companies/MRNA.O)击败。
+而这个冬天对于接种疫苗的人来说也将十分艰难，根据报告中的细节，我们发现目前完全接种疫苗人群的病毒感染率要比未接种疫苗群体更高，于此同时死亡率也高出了124%，也就是一倍还要多——这与主流媒体和主要国家政府所说的“疫苗能够帮助避免重症和死亡”完全不同。
 
-今年9月，赛诺菲停止了自己的mRNA中共病毒疫苗试验，转而专注于与葛兰素史克(GlaxoSmithKline)[GSK.L](https://cn.reuters.com/companies/GSK.L)的合作，将一款重组蛋白候选中共病毒疫苗推向市场。赛诺菲表示，它将把mRNA资源集中在其他需求严重未得到满足的传染病和治疗方法上。
+在一组时间窗口为2021年10月18日至2021年11月14日的最新数据中，记录在案的病例总共有大约八十五万被感染者，超过九千七百位重症监护者，以及三千六百五十位死亡案例。而接种疫苗者在感染案例、重症病例和死亡病例中大约分别占据60%、67%和82%的比例。
 
-百度领导该项目的科学家黄亮表示，当赛诺菲使用百度算法发现的任何基于mRNA的疗法或候选疫苗进入临床试验时，百度将获得里程碑付款。“该协议包括里程碑付款的事实表明，[赛诺菲]有很大信心将使用百度算法开发的候选药物投入临床试验和市场，”黄亮告诉路透。他不愿透露该交易的规模。
+主流媒体在没有搞清楚今年冬季的严峻形式之下就贸然对未接种疫苗的群体展开攻击，并且刻意地带节奏带风向，支持对于未接种疫苗者的封锁和限制。然而目前最危险实际上确实已经完全接种了疫苗的群体，他们才是易感人群和最为脆弱的。
 
-基于mRNA的疫苗包含mRNA序列，该序列指示人体细胞产生可以刺激免疫系统发挥作用的蛋白质。黄亮说，百度的算法旨在提供大量优化的mRNA序列，并且有早期迹象表明它可能比标准算法更适合疫苗和治疗药物的研发。
+自从2021年8月份之后，绝大多数感染者都来自完成两剂疫苗注射的群体。于此相反，未接种疫苗群体的病例数目在过去两个月内呈现出下降趋势，——证明了未接种疫苗者不是疫情爆发或者令疫情难以消除的根源。
 
-特别是在中共候选疫苗方面，根据实验室研究和动物测试，那些包含由百度算法所生成mRNA序列的疫苗更稳定，并且与基于标准算法的基础注射剂量相比，需要的剂量似乎更小。
+而在根据预测，在未来接种疫苗者的感染情况还会持续恶化， 尤其是当前许多青少年及儿童也已经开始了第一针疫苗的注射。
 
-截至美东时间11月22日下午6:39，全球的中共病毒病例总数超过2.58亿例，死亡人数超过515万人。然而中国共产党向全世界释放的这个超限生物武器病毒，其目的就是让全世界接种中共病毒疫苗，这个疫苗不但不能阻止被中共病毒感染，而且随着全球接种率的持续升高，疫苗带来的灾难已经超过病毒本身，无数因中共病毒疫苗副作用造成的死亡和疾病出现在世界各地，疫苗真相被像百度着这样的大科技公司屏蔽禁声。
+总体而言，目前英格兰地区持续的疫情并非有未接种疫苗群体为主，相反是以接种疫苗者为主，并且形势存在一定的失控趋势。
 
-百度常年来作为中共言论审查的帮凶和打手，如今又参与到了邪恶的中共病毒疫苗研发中来，必定是再一次助纣为虐，不是为了人类的健康福祉着想，而是帮助中共继续残害和奴役全世界人民。
+参考链接：[Daily Expose](https://dailyexpose.uk/2021/11/19/latest-ukhsa-report-proves-this-is-a-pandemic-of-the-fully-vaccinated/)
 
-消息来源:
-
-[百度与法国赛诺菲合作 将其算法用于mRNA疫苗及治疗产品的开发](https://cn.reuters.com/article/baidu-sanofi-cooperation-medical-1122-mo-idCNKBS2I802O?il=0)
-
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
-#  
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

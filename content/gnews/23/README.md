@@ -2,34 +2,24 @@
 ---
 
 
-## 盖茨敦促各政府使用细菌游戏来应对可能的天花恐怖袭击
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1688249/)
+## 岸田文雄与泰国总理会谈，强烈反对中共海上霸权
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688298/)
 
-【简评】***疫苗一直是盖茨基金会的关注重点，在冠状病毒和疫苗的背后我们经常能看到比尔·盖茨和他的基金会这一只若隐若现的手，比尔·盖茨和他背后的邪恶组织早在2010年就用非常隐晦地方式提出了以疫苗消灭人口的设想。2010年9月25日上午，比尔·盖茨到科兴控股生物技术有限公司参观访问。今年11月份，《国家脉动》揭露了盖茨与中共统战部机构的交往历史……现在，比尔·盖茨又警告世人，可能会发生天花恐怖袭击，而让各国政府投入巨资来研究所谓的“细菌游戏”。我们看到比尔·盖茨在罪恶的道路上越走越远，他的种种恶劣行径也终将大白于天下。***
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-47.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww3.nhk.or.jp%2Fnhkworld%2Fupld%2Fthumbnails%2Fzh%2Fnews%2F334259_16234_L.JPG&amp;imgrefurl=https%3A%2F%2Fwww3.nhk.or.jp%2Fnhkworld%2Fzh%2Fnews%2F334259%2F&amp;tbnid=vldd1oKnYaMBhM&amp;vet=12ahUKEwi2rpHmpa70AhWcnEsFHQl0BUYQMygAegQIARB2..i&amp;docid=rtOra4742n5QPM&amp;w=640&amp;h=360&amp;q=%E5%B2%B8%E7%94%B0%20%E6%B3%B0%E5%9B%BD&amp;ved=2ahUKEwi2rpHmpa70AhWcnEsFHQl0BUYQMygAegQIARB2)
+日本首相岸田文雄11月22日晚间，与泰国总理巴育举行了就任后的首次电话会谈，并确认与两国加强合作，促进双边关系进一步发展。
 
-据《Evening Standard》记者卢克·奥莱利（Luke O’Reilly）于 2021 年 11 月 4 日 报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-181.png)比尔·盖茨对未来疫苗的开发表示欢迎。图片来源： (Jane Barlow/PA) /PA Wire
-比尔·盖茨警告说，各国政府必须投资数十亿美元用于研发，为未来的大流行病和天花恐怖袭击做好准备。盖茨先生是在与健康特别委员会主席杰里米·亨特进行政策交流采访时提出的上述警告。这位微软创始人还呼吁组建一个新的价值数十亿美元的世界卫生组织大流行病特别工作组。虽然这项研究可能很昂贵，但盖茨说它也可能导致其他创新，例如根除流感和普通感冒。
+在与泰国总理巴育的会谈中，岸田表示：“希望进一步发展两国之间的‘战略合作伙伴关系’，为实现‘自由开放的印太地区’而加强合作。”对此，巴育总理回应称：“为了推动双边关系进一步发展，希望密切开展合作。”
 
-盖茨说，像美国和英国这样的国家必须花费“数百亿”美元来资助这项研究。
-“我希望在五年内，我可以写一本书，名为《我们已经准备好应对下一场流行病》，但这将需要数百亿美元的研发资金—美国和英国将参与其中”，他说。
-“世卫组织级别的大流行病特别工作组可能每年需要花费大约 10 亿美元，该组织正在进行监测，并实际进行我所说的‘细菌游戏’来练习”。盖茨先生建议的“细菌游戏”可能包括为生物恐怖主义行为做好准备，例如针对机场的天花袭击。
+围绕地区局势问题，在考虑到中共国相关活动的背景下，岸田指出：“日本强烈反对试图单方面改变东海及南海现状的行为。”两国首脑还就改变缅甸局势问题表示将进一步携手合作。
 
-“你说，好吧，如果一个生物恐怖分子把天花带到 10 个机场怎么办？你知道，世界会如何回应？自然引起的流行病和生物恐怖主义引起的流行病甚至可能比我们今天所经历的还要糟糕”，他说。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-615.png)比尔·盖茨在接受采访时表现出乐观的态度。图片来源： (Jeff J Mitchell/PA)/PA Wire
-尽管发出了可怕的警告，这位世界第四大富豪在接受采访时也表现出乐观的态度，他预计大流行病预防资金增加将带来“非常有益”的医疗创新。“好消息是我们需要做很多研发工作来为下一次大流行病做好准备，比如制造廉价疫苗、拥有大工厂、根除流感、摆脱普通感冒、将疫苗制成一小块贴在手臂上的贴片，即使在我们没有大流行病的年代，这些东西也会非常有益”，他说。他还补充说，作为慈善家工作的一部分，他将继续谈论大流行病的准备工作。“因此，除了气候变化的信息和与穷人疾病的持续斗争之外，大流行病的准备工作是我将经常谈论的话题”。“而且我认为这个话题会遇到广泛的共鸣，因为，你知道，我们失去了数万亿美元和数百万人的生命。公民们希望他们的政府不要让这种情况再次发生”。
+消息来源:
 
-文章来源：[https://www.standard.co.uk/news/uk/bill-gates-microsoft-smallpox-terror-attacks-policy-exchange-jeremy-hunt-b964271.html](https://www.standard.co.uk/news/uk/bill-gates-microsoft-smallpox-terror-attacks-policy-exchange-jeremy-hunt-b964271.html)
+[岸田与泰国新加坡首脑举行电话会谈](https://www3.nhk.or.jp/nhkworld/zh/news/334259/)
 
-翻译：洛杉矶盘古农场 – George2
-校对&评论：洛杉矶盘古农场 – 比格渣餐厅老板の娘
-编辑：洛杉矶盘古农场 – 小象の奶瓶
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

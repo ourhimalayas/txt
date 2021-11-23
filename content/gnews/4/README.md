@@ -2,29 +2,22 @@
 ---
 
 
-## 回应中共，美军导弹驱逐舰本月又过台湾海峡
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688413/)
+## 秘翻在线：苏格兰的疫苗护照APP向亚马逊等企业分享用户数据
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1688430/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-184.png)
-[图片来源](https://navalpost.com/hii-to-build-one-additional-arleigh-burke-class-destroyer-for-the-u-s-navy/)
+#### 翻译撰稿：zzballack
 
-路透社11月23日消息，一艘美国军舰——阿利伯克级导弹驱逐舰“米利厄斯”号23日过航台湾海峡。根据报道，美方表示此次航行依旧是例行活动的一部分。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/as65d4f65sg56516u5661u523gd23fs23d.png)
 
-根据路透社报道，美国海军表示“米利厄斯”号导弹驱逐舰是“依据国际法例行性过航台湾海峡”，“通过国际水域”，并再次重申美国对“自由开放的印太地区的承诺”。
+据《The Post Millennial》11月22日报道，英国国民医疗服务体系 (NHS)开发的疫苗护照APP一直备受争议。之前曾揭露过苏格兰政府一直在与许多私营企业分享疫苗护照APP用户的个人数据，下载和使用该APP的人在任何时候都没有被告知他们的数据将被共享。
 
-上月，美国“杜威”号导弹驱逐舰、加拿大“温尼伯”号护卫舰10月15日过航台湾海峡。
+苏格兰《每日纪事报》（Daily Record）今年10月曾报道说：“疫苗护照APP用户以二维码形式储存的个人医疗信息以及其它数据被共享给了亚马逊、微软、ServiceNow、皇家邮政 (Royal Mail) 和一家AI面部识别公司等企业。”
 
-近期，中共加大对台湾空域的滋扰，同时还与俄罗斯在台日周边海域进行战机和舰船的联合巡航。可以说，此次美方军舰过航台湾海峡，回应中共的意味非常明显。
+一个名为“自由（Liberty）”的组织的政策和活动部门负责人山姆·格兰特（Sam Grant）对此评论说：“疫苗护照创造了一个两级社会，在苏格兰已经有许多人被胁迫获得疫苗护照，以便参加活动和获取社会的某些服务。令人深感担忧的是，疫苗护照中的个人数据已经与第三方共享，但是人们没有退出的选择，甚至没有被告知正在发生的这种情况。这只会进一步加深人们对疫苗护照的广泛关注。我们都希望保持彼此的安全，自由组织一直支持采取合理和恰当的措施来遏制新冠疫情，但疫苗护照并不是一个解决方案。”
 
-信息来源：
+苏格兰自由民主党（Liberal Democrat party）的领袖亚历克斯·科尔-汉密尔顿 (Alex Cole-Hamilton) 对此表示赞同，他说：“我们已经多次警告政府，这款疫苗护照APP的数据保护几乎形同虚设，一个简单的截图就足以绕过该系统的任何安全措施。每个人都有医疗隐私权，任何人都不应该向保镖或一些私人公司提供他们的部分医疗记录，这实在是太荒谬了。”
 
-[美军导弹驱逐舰今天过航台湾海峡](https://news.ifeng.com/c/8BOvCM3zB2B)
-
-编辑：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
-
+新闻来源：[**REVEALED: Scottish Vax passport app has shared user data with post office, Amazon, others**](https://thepostmillennial.com/scottish-vax-app-shared-data)
 
  
 
