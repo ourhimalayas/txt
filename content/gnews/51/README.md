@@ -2,22 +2,27 @@
 ---
 
 
-## 中共国恶劣天气再现：东北雪台风
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1685912/)
+## 犹太法院裁定：儿童接种中共疫苗死亡 相关人员要承担&#8221;谋杀&#8221;罪名
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1685914/)
 
-作者：银河勇气星—骄子
+作者：纽约香草山翻译部 – defiance
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据墙内11月21日的气象信息，中共国东北地区今年的第二个“雪台风”正在肆虐中。不仅东北地区将大幅降温、降暴雪，且寒潮将南下，全国大部分地区都将受到此次寒潮的深重影响，八成国土将“速冻”，江浙沪等地一夜之间大风将会使气温降至0度以下，西南等山区如川西高原也会迎来大暴雪。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-17.jpg)
-这是中共国在短短的两周之内的第二次大寒潮，而据气象预测，此次雪台风并不是最后一次，在11月底还会有新一轮的气旋有利于再次形成雪台风。
+据美国媒体11月21日报道，一个犹太教法庭就“为儿童注射中共疫苗”的议题做出裁决：儿童接种新冠疫苗不应强制，而且，为儿童注射疫苗并导致死亡的人要承担 “谋杀者”的罪名。
 
-气象专家称，今年中共国的寒潮比往年更早也更频繁。一些观察人士则认为，其可能带来的灾难范围、程度，受灾百姓的数量，将不会进入官方的统计数据。
+该法庭是为调查儿童接种中共疫苗问题专门成立的。在开庭前，法庭听取了数小时的专家证词。根据犹太律例，专家是指了解该疾病的人，这将大多数没有治疗过新冠病毒肺炎病人的医生和卫生官员排除了。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4-16.jpg)
+法庭最终的裁决强调：1.目前的证人都是反疫苗人士。2.由于那些支持给孩子打疫苗的人也是带着一些犹豫的，真正的专家共识还没有形成。3.中共病毒对儿童的健康威胁较弱。4.未打疫苗的孩子对其他人的威胁极小。5.打疫苗引发的严重不良反应已经发生，且没有得到充分报道。
 
-参考链接:[中共国恶劣天气再现：东北雪台风](http://《https://k.sina.com.cn/article_1763864272_69226ed002700yfsn.html》)
+法庭还提出了警告，给孩子接种疫苗并导致死亡的人，不能因为自己听从了专家意见说疫苗是一种保护生命的物质，不是一种致命毒药，而逃避罪责，而是要像杀人凶手一样对这种伤害负责。
+
+参考链接：
+1. [犹太法院裁定：儿童接种中共疫苗死亡 相关人员要承担”谋杀”罪名](https://americasfrontlinedoctors.org/2/frontlinenews/jewish-court-rules-covid-shots-for-children-not-obligatory-while-one-who-vaccinates-a-child-and-causes-death-is-responsible-as-a-murderer/)
+2. [犹太法院裁定：儿童接种中共疫苗死亡 相关人员要承担”谋杀”罪名](https://www.ravhanistar.net/halachicrulingme)
+3. [犹太法院裁定：儿童接种中共疫苗死亡 相关人员要承担”谋杀”罪名](https://www.ravhanistar.net/beitdinen)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：飞虹
+总编：木白
 编辑：飞虹
 校对/发稿：Hetangyuese
 

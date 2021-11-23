@@ -2,24 +2,31 @@
 ---
 
 
-## 这篇报道出现在日文网站将带给日本什么？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1687322/)
+## 德国STIKO: 30岁以下不建议接种莫德纳疫苗
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1687344/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-178.png)（图片源自本文链接）
-11月23日，日本雅虎网站上出现了路透社发表的这一消息——辉瑞公司22日表示，与德国Biontech公司共同开发的一种中共病毒疫苗的后期临床试验证实，可使12至15岁的儿童产生较强的长期免疫效果。
+撰稿：文月
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1123Yue.jpg)图片来源于网络   
+德国疫苗接种委员会（STIKO）11月10日发布通知， 不建议30岁以下接种莫德纳疫苗， 为了安全起见，孕妇也不应该再接受Moderna。
 
-辉瑞公司称，这种疫苗在第二次接种四个多月后，其效率仍为100%。美国食品和药物管理局（FDA）于5月加急批准了辉瑞公司产疫苗的许可，用于12-15岁孩子。
+根据目前的报告分析显示，在男孩和年轻的男性以及30岁以下的女孩和年轻的女性接种莫德纳疫苗 （Spikevax）后，很容易或者更频繁的发生 心肌炎和心包炎症。虽然大多数情况下 轻微和容易治疗的，也有个别死亡案例。因此丹麦，瑞典和法国已经暂停为30岁以下的人接种莫德纳疫苗。
 
-辉瑞公司计划为12岁及以上年龄段的30微克容量的疫苗申请常规批准；美国食品和药物管理局已于8月将16岁及以上年龄段的疫苗接种常规化。
+法国卫生当局本周表示，在30岁以下的接种疫苗人中， 使用莫德纳疫苗的心肌炎症可能比使用Biontech高5倍，并且年轻的男性受到的影响尤其大。 炎症主要出现发生再第二次注射后，然而，非常重要的是，感染病毒后发生心肌炎更频繁比接种疫苗后。并且成年心肌细胞是不可再生的，一旦受伤，将不会恢复到初始健康状态。
 
-看到此消息，笔者的心情蓦然沉重！跟随爆料革命，让我学会了思考：瑞辉为何如此急迫的生产儿童用疫苗？辉瑞提交的实验结果可信吗？美国食品和药物管理局是否仅仅根据瑞辉提交的申请就给予了16岁及以上年龄段使用其疫苗的许可？美国食品和药物管理局是否还将仅仅根据瑞辉提交的申请就给予了12岁及以上年龄段使用其疫苗的许可？这样的报道出现在日文网站，会起到一定的宣传作用，它将带给日本的是什么？它将带给日本孩子的是什么？这对本来就已进入严重老龄化的日本，无疑是灾难！
+根据 PEI （Paul-Ehrlich-Institut 负责监管颁发疫苗许可机构）的报告，统计的不良反应或者并发症的疑似病例的数量 莫得纳疫苗接种后在德国，时间从2020年12月27日到2021年9月30日期间， 接种Moderna疫苗的统计结果， 在25，173疑似不良反应病例中有严重的副作用占的比例为5.8%（1493/25713）。
 
-信息来源：[米ファイザー、コロナワクチン12─15歳の強い長期免疫効果確認（ロイター） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/6adc0f9c1bf7faa5b499bca4776ff18cae514ebb)
+这些数据只是目前收集到的针对接种单一疫苗的不良反应，并没有明确说明是只接种一针还是接种两针，根据法国卫生局的数据和说明心肌炎症 主要频繁发生在第二针接种之后， 并且有些数据还没有统计上来，可想而知后果会多么的严重。这仅仅是大约10个月的时间，并且疫苗接种的人数后期每个月都是倍数递增的，越到后来疫苗接种年轻比例非常高， 并且报告疫苗不良反应也是一直呈直线上升。仅仅大约从4个月的时间疫苗接种重大约10%上升到大约66%，这么短的时间，一部分疫苗的不良反应还在潜伏期。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+另一方面，这些数据主要来源于电子数字报告系统，局限于医生和疫苗接种中心在该系统输入所进行的疫苗接种，然而许多德国医生并没有输入所有疫苗接种，这也是目前数字低估了真正的疫苗接种率，以及不良反应的报告。因此实际疫苗副作用情况会远比现在看到的还要糟糕。
+
+参考文献：
+
+[https://www.rki.de/DE/Content/Kommissionen/STIKO/Empfehlungen/PM\_2021-11-10.html](https://www.rki.de/DE/Content/Kommissionen/STIKO/Empfehlungen/PM_2021-11-10.html)
+
+[https://www.pei.de/DE/newsroom/dossier/coronavirus/arzneimittelsicherheit.html](https://www.pei.de/DE/newsroom/dossier/coronavirus/arzneimittelsicherheit.html)
+
+[https://www.swr.de/wissen/stiko-aendert-empfehlung-moderna-impfstoff-fuer-unter-30-jaehrige-100.html](https://www.swr.de/wissen/stiko-aendert-empfehlung-moderna-impfstoff-fuer-unter-30-jaehrige-100.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TUBIAO-X.jpg)
 
 
  
