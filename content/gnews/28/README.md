@@ -2,32 +2,41 @@
 ---
 
 
-## 1120纪念大直播班农先生寄语：新中国联邦一定会赢
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1688738/)
+## 中共回应拜登关于可能抵制北京奥运会的说法
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1688767/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11.20三周年纪念大直播中，班农先生指出法治基金成立仅三年，新中国联邦的成立才18个月，但在短时间内，新中国联邦创造出了盖特、GNEWS，GTV、喜币等媒体及金融平台，爆料革命正一步步走向胜利，一定会大获全胜。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-23-下午9.24.35.png)
-班农表示，中共的谎言已破碎，中共在德国、伦敦、华尔街等世界各地渗透的同伙正在崩溃。中共为民众建立网络防火墙，不给中国人一人一票的选举，都暴露着中共的不自信和脆弱。对比中共，中国联邦人能力卓越、学识丰富、坚强执着，具有奉献精神。新中国联邦的崛起吓坏了中共。
+**编译：蚂蚁兄弟**
 
-直播中，郭文贵先生赞同班农，并补充道，新中国联邦人要坚信三个原则：一是上帝永远会赢，二是真理永远会赢，三是新中国联邦永远会赢。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip45.png)乔拜登和习近平在领导人峰会期间互相问候 张林涛 / 美联社
 
-参考链接：[11/20/2021【1120三周年纪念】班农先生：法治基金虽然还很年轻，但中共及其同伙已魂飞胆丧，新中国联邦注定会赢](https://gnews.org/zh-hans/1684124/)
+中共国外交部周五说：“体育不能被政治化”，因为“它违背了奥林匹克精神，损害了运动员的利益”，以回应美国总统拜登说的“美国政府正在考虑对北京冬奥会进行外交抵制”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+“北京2022年冬奥会是来自世界各地的运动员的展示舞台”。外交部发言人赵立坚在周五的新闻发布会上说：“将体育政治化有违奥林匹克精神和运动员的利益。”他补充说：“美国以中共政府在西北地区的人权侵犯行为，作为抵制冬奥会的理由，这只不过是一场诽谤行动。”并说：“中共国永远不会容忍任何国家干涉其内部事务”。
 
-总编：AN
-编辑：木白
-校正/发稿：呼吸的雾霾（文小呼吸）
+在本周的习拜视频会上，拜登向习近平转达了他对新疆、西藏和香港的现状以及对公民人权的关切。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+周四，拜登说他的政府正在“考虑”对北京冬奥会进行外交抵制，这意味着拜登或任何美国官员都不会出席这一活动。
+
+据《华盛顿邮报》周三报道，抵制活动将是对中共政府侵犯人权行为的反应。该报称，拜登政府可能在本月底前批准抵制行动。包括众议院议长南希-佩洛西在内的民主党和共和党立法者都主张进行外交抵制，以抗议中国的人权侵犯行为。
+
+**简评：**
+
+**中共的外交部宣称“体育不能被政治化”，这是一个多么无耻的谎言。因为在中共国，几乎所有的东西都被政治化了……**
+
+**中共国所举办的2008年奥运会的背后，不知道有多少的政治勾兑和交易。如果说奥运会在其他国家是一项人类体育运动交流和商业化的盛会，那么在中共国，奥运会绝对是中共为了彰显其实力和国际地位的一种手段。在中共国的体育，完全是由中共把控着的，通过郝海东先生和叶昭颖女士的控诉我们可以看到，中共国的体育充满了血泪和无耻的压迫。**
+
+**无论是否发生新疆的种族大屠杀事件，世界早就应该对中共的奥运年加以抵制。被人们传诵的奥林匹克精神，早已在无耻的政治家之间变得充满了肮脏。**
+
+**新闻来源：**[mundodeportivo.com][China responde a Biden ante el posible boicot a los Juegos de Pekín](https://www.mundodeportivo.com/juegos-olimpicos/20211119/1001714815/china-responde-biden-posible-boicot-juegos-pekin.html)
+
+* * *
+
+***审核：Aries的星
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
