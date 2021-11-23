@@ -2,22 +2,24 @@
 ---
 
 
-## 前澳州副首席医疗官建议不要对12岁以下儿童接种新冠疫苗
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1687518/)
+## 针下亡魂｜德国 15 岁少女接种疫苗三周后死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1687522/)
 
-韩国首尔天池农场
-翻译：zzballack
-上传：追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-23-at-15.28.10.jpeg)前副首席医疗官尼克·科茨沃思 告诫各州不要强制要求儿童接种疫苗。 图片：加里·拉马奇
-据news.com.au 11月22日报道，当澳大利亚疫苗监管机构决定已给予莫德纳新冠疫苗临时授权，将给6岁以上孩子接种该疫苗后，前澳州副首席医疗官、前疫苗推广活动的负责人尼克·科茨沃斯（Nick Coatsworth）博士指出：儿童，特别是小男孩在接种新冠疫苗后患上心肌炎等心脏疾病的风险增加，因此正在敦促各州政府将12岁以下儿童排除在疫苗接种任务之外。
+**撰文/ 台湾宝岛农场 疫情关注组｜发布日期/ 23/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2222_1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-科茨沃斯说：“儿童新冠患者发展成重症的风险依然很低，因此父母应有权利等待更多的疫苗数据公布后，再决定是否让他们的孩子接种疫苗。在这样做的时候，孩子不应被区别对待，这实际上是通过监管进行强制。特别是在维多利亚州，首席卫生官在区别对待未接种疫苗的12-15岁儿童方面违反了自主性的基本道德原则。维州官员的这些决定令人深感担忧，维州的大流行病法案需要有更多机会进行议会监督和对这些决定进行行政上诉。当脆弱年龄组的疫苗接种率远远超过90%时，就没必要采取这种政策。”
+【德国】一名 15 岁女孩 Cheyenne Braun 在接种辉瑞 COVID-19 疫苗后的一周内发生心脏骤停，紧急送院后进入重症监护室，两周后死亡。据当地媒体报导，医生并未排除 Cheyenne 的死因是疫苗引发的心肌炎，目前警方正就该案件展开调查。
 
-维州的一些家长抱怨他们被最近公布的一些规定吓坏了，这些规定要求从11月起，12至15岁孩子需要完全接种新冠疫苗才能进入商店、酒吧、参加家庭晚宴或一些学校活动。
+Cheyenne 的母亲 Kerstin Braun 在脸书上，以 Cheyenne 姐姐的口吻，公开了女儿的不幸，并表示女儿没有任何健康问题，怀疑是疫苗诱发心肌炎导致猝死。
 
-澳大利亚已记录的0至9岁儿童新冠病例有27000多起，其中2.5%的儿童住院治疗。目前，辉瑞和莫德纳疫苗继续被推荐给所有12岁及以上的人。但在获准给6至11岁的孩子接种之前，它需要得到澳大利亚政府药物管理局（TGA）的全面批准。莫德纳现在已经提交了其SPIKEVAX疫苗的数据，TGA正在评估SPIKEVAX在6至11岁儿童中的使用情况。
+最后，她呼吁民众谨慎选择疫苗：“我们有必要用自己的孩子做疫苗的试验品吗？”、“越来越多的疫苗不幸事件被公开，这绝不是个例。”、“仔细想清楚……你们不会想要也没有必要经历这地狱般的日子。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/疫苗_0-3.jpg)
+来源｜[个案062](https://www.mainwelle.de/todesursache-unklar-polizei-ermittelt-zum-tod-eines-15-jaehrigen-maedchens-aus-hollfeld-3372800/)
 
-[新闻来源](https://www.news.com.au/world/coronavirus/health/covid-vaccine-for-children-nick-coatsworth-advises-against-strict-vaccine-mandates-for-under-12s/news-story/8929eeec350d1fbb9560cd78982b5690)
+* * *
+
+他们的故事：//[泰国59岁教师接种疫苗10日后去世](https://gnews.org/zh-hans/1568655/)//｜//[斯洛文尼亚 20 岁女学生接种疫苗10日后离世](https://gnews.org/zh-hans/1568651/)//｜//[意大利13 岁女孩接种疫苗1日内死亡](https://gnews.org/zh-hans/1570142/)//｜//[泰国 40 岁男救护员接种加强剂12小时内死亡](https://gnews.org/zh-hans/1570178/)//｜//[印度 31 岁孕妇接种疫苗10日后死亡](https://gnews.org/zh-hans/1572214/)//｜//[科索沃 23 岁女子接种疫苗48小时后死亡](https://gnews.org/zh-hans/1572347/)//｜//[美国 66 岁飞行员接种疫苗当晚发生发行事故 机毁人亡](https://gnews.org/zh-hans/1574200/)//｜//[法国 17 岁女学生接种疫苗7日后死亡](https://gnews.org/zh-hans/1574535/)//｜//[巴西 16 岁女学生接种疫苗8日后死亡](https://gnews.org/zh-hans/1576377/)//｜//[希腊 60 岁男检察官接种疫苗后肺栓塞死亡](https://gnews.org/zh-hans/1576437/)//｜//[加拿大 17 岁曲棍球运动员接种疫苗两周后死亡](https://gnews.org/zh-hans/1578774/)//｜//[美国 16 岁少年接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1581220/)//｜//[韩国 20 岁女学生接种疫苗12日后死亡](https://gnews.org/zh-hans/1582698/)//｜//[意大利 14 岁女孩接种疫苗两日后昏迷 现已离世](https://gnews.org/zh-hans/1582909/)//｜//[法国 24 岁男医科生接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1589503/)//｜//[巴西 13 岁男孩接种疫苗 6 周后死亡](https://gnews.org/zh-hans/1593122/)//｜//[美国 21 岁医科生接种疫苗1日后死亡](https://gnews.org/zh-hans/1596153/)//｜//[科威特 48 岁著名男星接种疫苗两周后死亡](https://gnews.org/zh-hans/1597333/)//｜//[新加坡 44 岁指挥家接种疫苗七周后死亡](https://gnews.org/zh-hans/1597702/)//｜//[法国 16 岁少女接种疫苗 5 日后死亡](https://gnews.org/zh-hans/1598913/)//｜//[意大利 18 岁女学生接种疫苗10日后死亡](https://gnews.org/zh-hans/1599033/)//｜//[希腊 32 岁时尚界翘楚接种疫苗 1 日后死亡](https://gnews.org/zh-hans/1601320/)//｜//[中国 12 岁少女接种疫苗 7 日后死亡](https://gnews.org/zh-hans/1601721/)// ｜//[葡萄牙 18 岁女大学生接种疫苗5日后死亡](https://gnews.org/zh-hans/1603945/)//｜//[意大利 18 岁排球运动员接种疫苗27日后死亡](https://gnews.org/zh-hans/1603893/)//｜//[英国 34 岁妈妈接种疫苗 10 日后死亡](https://gnews.org/zh-hans/1605901/)//｜//[美国 36 岁医学博士接种疫苗后一个月死亡](https://gnews.org/zh-hans/1607440/)//｜//[格鲁吉亚 27 岁女护士接种疫苗一日后死亡](https://gnews.org/zh-hans/1612091/)//｜//[美国 45 岁 FBI 探员接种疫苗24小时内死亡](https://gnews.org/zh-hans/1613769/)//｜//[法国 22 岁男子接种疫苗 10 小时后死亡](https://gnews.org/zh-hans/1613864/)//｜//[英国 35 岁女医护接种疫苗三个月后死亡](https://gnews.org/zh-hans/1618330/)//｜//[澳洲 56 岁电台主持人接种疫苗两个月后死亡](https://gnews.org/zh-hans/1622426/)//｜//[美国 39 岁女医护接种疫苗4日后死亡](https://gnews.org/zh-hans/1625214/)//｜//[美国 56 岁男医生接种疫苗两周后死亡](https://gnews.org/zh-hans/1629915/)//｜//[德国 32 岁心理学专家接种疫苗12日后死亡](https://gnews.org/zh-hans/1636096/)//｜//[美国 45 岁知名漫画家接种疫苗后死亡](https://gnews.org/zh-hans/1665474/)//
 
  
 
