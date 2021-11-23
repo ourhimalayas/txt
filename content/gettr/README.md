@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/23/2021 10:16 AM (UTC)`
+
+11/22/2021 Miles Guo’s GETTR: The US is very nervous about the CCP’s real estate crisis; the whole world’s stock markets and housing prices are going up like crazy, and the crypto market’s ups and downs are caused by massive money laundering; the main topics of this Wednesday’s grand live stream are cryptos and the global financial market; this week is very crucial, and the CCP will take a series of crazy actions in the economy after the Winter Olympics<br/><br/>11/22/2021 文贵盖特：中共房地产的雷让美国人很紧张；全球股市和房价疯狂上涨，加密货币动荡的背后是大量洗钱；周三大直播主要谈数字货币和世界金融市场；这周很重要，冬奥会后中共将在经济上有一系列疯狂举动
+![img](https://media.gettr.com/group29/getter/2021/11/23/10/16/3d6ebbf0-d915-8c48-a18d-53824275de86/out.jpg)
+
+---
+
 `@miles 11/23/2021 10:05 AM (UTC)`
 
 11/22/2021 Miles Guo’s GETTR: The CCP is going to be finished soon! Many “brother countries” are demanding the CCP to fulfill its loan commitment and the promises of the Belt and Road Initiative; if the CCP couldn’t pay these countries, then they would set up diplomatic relations with Taiwan and the New Federal State of China, which is young and has real strength<br/><br/>11/22/2021 文贵盖特：中共要完了！许多兄弟国家要求中共兑现其借款和一带一路的承诺；如果中共不拿钱，这些国家就要跟台湾和既有真实力又年轻的新中国联邦建交
@@ -295,13 +302,6 @@ Not going to lie, I almost cried when he broke out.
 
 2021年11月19日 文贵大直播：阿里巴巴股市暴跌；国际市场资金短缺；数字货币法币共存；“灭疫”战斗将胜利
 ![img](https://media.gettr.com/group12/origin/2021/11/19/12/d7ca091b-b3d1-7e6f-da3f-202de71c1e95/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 11/19/2021 12:45 PM (UTC)`
-
-One Southern California Mayor takes a stand against 'totalitarian' vaccine mandates and restrictions<br/><br/>一位南加州市长反对“极权主义”的疫苗强制和限制
-![img](https://media.gettr.com/group30/origin/2021/11/19/12/44/d0312b5b-3bec-0c25-a2b6-5783ea052271/out.jpg)
 
 ---
 
