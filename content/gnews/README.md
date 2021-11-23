@@ -15,119 +15,119 @@
 
 ---
 
-### [法国总理已接种2剂疫苗，仍感染中共病毒](/content/gnews/1/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [秘翻在线：《周刊》杂志无耻抹黑、攻击班农先生](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [日本外务大臣明确表示关切中共国人权和中日间领土问题](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [国际刑警组织选举新领导 阿联酋、中共国人选受质疑](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [G时评：人、做人与灵魂](/content/gnews/5/README.md)
- ` GISELLE`
-
-### [接种新冠疫苗7个月后抗体浓度下降至1/13](/content/gnews/6/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [加拿大特鲁多政府的《互联网审查法案》遭各界声讨](/content/gnews/7/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [11/22/2021 文贵盖特：中共要完了！许多兄弟国家要求中共兑现其借款和一带一路的承诺](/content/gnews/8/README.md)
+### [11/22/2021 文贵盖特：全球股市和房价疯狂上涨，加密货币动荡的背后是大量洗钱](/content/gnews/1/README.md)
  ` 秘密翻译组-北美组`
 
-### [德国卫生部长暗示实施强制疫苗接种令](/content/gnews/9/README.md)
- ` 纽约香草山MOS02`
+### [加拿大政府暂无儿童疫苗强制接种计划](/content/gnews/2/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
 
-### [文贵爆料11.20.2021 我们第一个告诉世界：中共病毒是生化武器](/content/gnews/10/README.md)
- ` 秘密翻译组-原创组`
+### [美海军陆战队创美军最高疫苗接种率记录](/content/gnews/3/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
 
-### [前联邦紧急事务管理局工作人员揭露核酸检测是阴谋](/content/gnews/11/README.md)
- ` 澳喜农场`
-
-### [供应链核心环节断裂](/content/gnews/12/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [美国老百姓的三个不允许](/content/gnews/13/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [刚果一涉嫌非法开采的中资矿企遇袭 五名中国人被绑架](/content/gnews/14/README.md)
- ` 日本东京方舟农场`
-
-### [有声|中共舰艇军机频繁骚扰日本领海领空](/content/gnews/15/README.md)
- ` MOSREC`
-
-### [有声|战友谈里程碑事件对爆料革命的意义和影响](/content/gnews/16/README.md)
- ` MOSREC`
-
-### [台湾远东集团在大陆被“共同富裕”剑指苏贞昌](/content/gnews/17/README.md)
+### [法国总理已接种2剂疫苗，仍感染中共病毒](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|阳光城美元债置换要约获批](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [有声|法治基金/法治社会三周年 班农先生畅谈感想](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [美国通货膨胀：哪些类别受到的冲击最大](/content/gnews/20/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [CDC等的数据显示儿童因接种疫苗比染疫死亡更多](/content/gnews/21/README.md)
- ` HimalayaRussia`
-
-### [有声|德国诊所主任不堪疫苗“种族灭绝”跳楼自杀](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [永远不要接种 Covid 加强疫苗的 5 大理由](/content/gnews/23/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [犹太法庭裁决：儿童接种新冠疫苗是非强制性的，由此导致的死亡视为谋杀](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [大宗商品专家：“食品通胀将持续到2022年”](/content/gnews/25/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [澳大利亚国防军参与控制北领地的新冠疫情](/content/gnews/26/README.md)
- ` 澳喜农场`
-
-### [24 小时内有 13 例死胎 @ 温哥华狮门医院不列颠哥伦比亚省](/content/gnews/27/README.md)
- ` MG FARM`
-
-### [欧洲和澳大利亚有数以万计的抗议者反对新冠限制措施](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [英国癌症专家指出非中共病毒原因死亡人数将继续上升](/content/gnews/29/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [有声|纳瓦罗先生指出每一个美国人都应该成为对中共的鹰派](/content/gnews/30/README.md)
- ` MOSREC`
-
-### [有声|盖特新功能“Instagram导入”开始内测](/content/gnews/31/README.md)
- ` MOSREC`
-
-### [运动员因 COVID VAX 而倒下和死亡](/content/gnews/32/README.md)
- ` 日本东京方舟农场`
-
-### [参议员布莱克本抨击拜登对中共国态度软弱](/content/gnews/33/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [有声|GTV自动多语言字幕功能在1120大直播中应用](/content/gnews/34/README.md)
- ` MOSREC`
-
-### [疫苗加强针的效果：将人变成类似艾滋病的患者](/content/gnews/35/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [参议员呼吁SEC调查SPAC与DWAC可能违反证券法的交易](/content/gnews/36/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [秘翻在线: 数字人民币钱包限额大幅下降](/content/gnews/37/README.md)
+### [秘翻在线：《周刊》杂志无耻抹黑、攻击班农先生](/content/gnews/5/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [新冠病毒“疫苗”使人们更容易感染艾滋病毒、HPV、疱疹](/content/gnews/38/README.md)
+### [澳洲量子计算的先行者](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [日本外务大臣明确表示关切中共国人权和中日间领土问题](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [国际刑警组织选举新领导 阿联酋、中共国人选受质疑](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [G时评：人、做人与灵魂](/content/gnews/9/README.md)
+ ` GISELLE`
+
+### [接种新冠疫苗7个月后抗体浓度下降至1/13](/content/gnews/10/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [加拿大特鲁多政府的《互联网审查法案》遭各界声讨](/content/gnews/11/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [11/22/2021 文贵盖特：中共要完了！许多兄弟国家要求中共兑现其借款和一带一路的承诺](/content/gnews/12/README.md)
+ ` 秘密翻译组-北美组`
+
+### [德国卫生部长暗示实施强制疫苗接种令](/content/gnews/13/README.md)
+ ` 纽约香草山MOS02`
+
+### [文贵爆料11.20.2021 我们第一个告诉世界：中共病毒是生化武器](/content/gnews/14/README.md)
+ ` 秘密翻译组-原创组`
+
+### [前联邦紧急事务管理局工作人员揭露核酸检测是阴谋](/content/gnews/15/README.md)
+ ` 澳喜农场`
+
+### [供应链核心环节断裂](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [美国老百姓的三个不允许](/content/gnews/17/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [刚果一涉嫌非法开采的中资矿企遇袭 五名中国人被绑架](/content/gnews/18/README.md)
+ ` 日本东京方舟农场`
+
+### [有声|中共舰艇军机频繁骚扰日本领海领空](/content/gnews/19/README.md)
+ ` MOSREC`
+
+### [有声|战友谈里程碑事件对爆料革命的意义和影响](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [台湾远东集团在大陆被“共同富裕”剑指苏贞昌](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|阳光城美元债置换要约获批](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [有声|法治基金/法治社会三周年 班农先生畅谈感想](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [美国通货膨胀：哪些类别受到的冲击最大](/content/gnews/24/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [CDC等的数据显示儿童因接种疫苗比染疫死亡更多](/content/gnews/25/README.md)
+ ` HimalayaRussia`
+
+### [有声|德国诊所主任不堪疫苗“种族灭绝”跳楼自杀](/content/gnews/26/README.md)
+ ` MOSREC`
+
+### [永远不要接种 Covid 加强疫苗的 5 大理由](/content/gnews/27/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [犹太法庭裁决：儿童接种新冠疫苗是非强制性的，由此导致的死亡视为谋杀](/content/gnews/28/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [大宗商品专家：“食品通胀将持续到2022年”](/content/gnews/29/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [澳大利亚国防军参与控制北领地的新冠疫情](/content/gnews/30/README.md)
+ ` 澳喜农场`
+
+### [24 小时内有 13 例死胎 @ 温哥华狮门医院不列颠哥伦比亚省](/content/gnews/31/README.md)
+ ` MG FARM`
+
+### [欧洲和澳大利亚有数以万计的抗议者反对新冠限制措施](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [英国癌症专家指出非中共病毒原因死亡人数将继续上升](/content/gnews/33/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [有声|纳瓦罗先生指出每一个美国人都应该成为对中共的鹰派](/content/gnews/34/README.md)
+ ` MOSREC`
+
+### [有声|盖特新功能“Instagram导入”开始内测](/content/gnews/35/README.md)
+ ` MOSREC`
+
+### [运动员因 COVID VAX 而倒下和死亡](/content/gnews/36/README.md)
+ ` 日本东京方舟农场`
+
+### [参议员呼吁SEC调查SPAC与DWAC可能违反证券法的交易](/content/gnews/37/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [秘翻在线: 数字人民币钱包限额大幅下降](/content/gnews/38/README.md)
+ ` 秘密翻譯組G-Translators`
 
 ### [11/20/2021【1120三周年纪念】班农先生十分了解中共国，并十分热爱中国的老百姓](/content/gnews/39/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`

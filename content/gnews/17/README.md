@@ -2,32 +2,86 @@
 ---
 
 
-## 台湾远东集团在大陆被“共同富裕”剑指苏贞昌
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1686771/)
+## 美国老百姓的三个不允许
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1686817/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2021/11/pasted-image-0-21.png)[*图片来源*](https://gdb.voanews.com/C16A871F-52F0-41E7-8392-E1B7C79034E7_w1597_n_r1_st.jpg)
-**台企在大陆还能如鱼得水，问题已经不言而喻。令人费解的是，坚决反共的行政院长苏贞昌还是远东国际最大的金主。苏曾对台湾大学表示，“共产党要在台湾的大学设分支机构，不被容许。”可见此番打击目标是苏贞昌。**
+[https://gtv.org/video/id=619c02f6e6900076612e8d2b](https://gtv.org/video/id=619c02f6e6900076612e8d2b)
 
-据中共国[新华社](http://www.news.cn/2021-11/22/c_1128086331.htm)北京22日消息称，“台湾远东集团在大陆投资企业因违法违规被依法查处”。称“远东集团涉事企业承认存在违法违规事实，已缴纳或正按程序缴纳罚款及税款。”中共司马昭之心不打自招，显然是对台湾在大陆企业执行“共同富裕”。问题真 如此简单吗？
+**郭文贵**
+**Miles Guo**
 
-该消息认为，近期，中共执法部门对上海、江苏、江西、湖北、四川等五省市对台湾企业开展执法检查，“发现台湾远东集团在当地投资的化纤纺织、水泥企业在环保、土地利用、员工职业健康、安全生产及消防、税务、产品质量等方面存在一系列违法违规行为，依据国家法律法规对涉事企业采取罚款、追缴税款、限期整改等措施，并收回该企业闲置建设用地。”[**阅读更多**](http://shanghai.xinmin.cn/xmsq/2021/11/22/32067797.html)
+老百姓绝不允许今天你做的，世界经济即将崩溃通缩前、滞涨和通胀的并发前
+The Laobaixing will never allow you to do what you do today, the world economy is about to collapse before deflation, stagflation, and inflation
 
-显然，中共所罗列罪名完全不符合逻辑，基本的常识是，一个被允许在大陆开展业务的合法企业不会有如此多违规违法行为 ，可见对其企业打压的一贯套路和险恶用心。
+并发症给美国人民，带来了三不允许的政治灾难
+Complications have brought three forbidden political disasters to the American people
 
-- ***延展阅读：***[***中共官媒称统一后台民众年收入多2万  陆委会：夏虫语冰、贻笑大方***](https://www.hk01.com/%E5%8F%B0%E7%81%A3%E6%96%B0%E8%81%9E/703768/%E5%AE%98%E5%AA%92%E7%A8%B1%E7%B5%B1%E4%B8%80%E5%BE%8C%E5%8F%B0%E6%B0%91%E7%9C%BE%E5%B9%B4%E6%94%B6%E5%85%A5%E5%A4%9A2%E8%90%AC-%E9%99%B8%E5%A7%94%E6%9C%83-%E5%A4%8F%E8%9F%B2%E8%AA%9E%E5%86%B0-%E8%B2%BD%E7%AC%91%E5%A4%A7%E6%96%B9)
-- ***延展阅读：***[***苏贞昌：富人消失、女星不见「宁可在台湾自由」，宁自由***](https://tw.news.yahoo.com/%E5%85%A9%E5%B2%B8%E7%B5%B1%E4%B8%80%E6%94%B6%E5%85%A5%E5%A2%9E%EF%BC%9F-%E5%AF%8C%E4%BA%BA%E6%B6%88%E5%A4%B1%E3%80%81%E5%A5%B3%E6%98%9F%E4%B8%8D%E8%A6%8B-%E8%98%87%E8%B2%9E%E6%98%8C%EF%BC%9A%E3%80%8C%E5%AF%A7%E5%8F%AF%E5%9C%A8%E5%8F%B0%E7%81%A3%E8%87%AA%E7%94%B1%E3%80%8D-023404660.html)
+谁知道？你不知道七哥告诉你
+Who knows? you didn’t know, let me tell you
 
+第一条，油价，永远不接受超过四美金一桶（口误），永远不接受
+The first, oil price, never accept more than four dollars a gal-lon, never accept
 
-另据[中新网](https://news.sina.com.cn/c/2010-06-22/162817691733s.shtml)6月22日援引《联合晚报》消息称，“台湾远东新世纪22日召开股东会，董事长徐旭东表示，两岸 ECFA （海峡两岸经济合作协议）一定会签成，集团以期待心情等待这项两岸经济利多的到来，今年集团在两岸投资金额将扩大到10亿美元左右。”
+只要超过四美金了，你就放心吧，美国这个政治就大变了
+As long as it exceeds four dollars, you wait and see that the politics of the United States will change drastically
 
-众所周知，台企在大陆还能如鱼得水，问题已经不言而喻。据说，坚决反共的苏贞昌还是台湾远东国际最大的金主。就在六天前，大纪元报道称，台湾大学校长管中闵称，两地“交流互访是学术自由，政治力不应涉入”。对此，行政院长苏贞昌表示，“[政府尊重学术自由，但共产党要在台湾的大学设分支机构，不被容许](https://www.ntdtv.com/gb/2021/11/16/a103269916.html)。”可见此番打击是命中目标，因为苏贞昌识破了中共在台大设立间谍机构的“中国梦”。
+大家去看现在是多少了，多少钱一桶了（口误），油价
+Let’s see how much it is now, how much is a gallon? and oil price
 
-2021年11月22日
+第二个，就是买的面包，不能叫食品，
+The second one is the bread, it can’t be called food
 
-*校对：东京樱花团 / 文小白*
-*发布：东京樱花团 / tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+你不能通称食品，也不能通称什么，就是面包价
+You can’t generically refer to food, nor can you generically re-fer to it, it is the bread price
+
+面包价只要超过1.2刀，就是那个块的时候，
+If the bread is over $1.2, which is a loaf of bread
+
+一般一块大面包大概是2.8到3.5美金，你只要超过四美金，五美金时，
+Generally, a loaf of bread is about US$2.8 to US$3.5, once the price over four or five dollars
+
+老百姓就反了，从历史可以查去，面包啊，咱说的面包不能叫食品
+Laobaixing will be angry, this is all well documented in history, the bread that we cannot call food
+
+这是第二个，第三件事情，什么，气
+This is the second, what is the third one? It’s nature gas
+
+美国点的气，美国的气，这个国家很厉害的，
+The natural gas in the United States, people are very smart
+
+只要这个气超过历史上均价的20%，老百姓就不想做饭了
+As long as this gas is more than 20% of the historical average price, the people don’t want to cook
+
+气和什么连着呢，跟电也连着呢，电价也不能上，就简称气电
+What is the connection with natural gas? It connects with elec-tricity that can’t be increased, so it’s abbreviated as gas and electricity
+
+所以气电，面包，油价只要超过这价格
+So gas and electricity, bread and oil once exceed this bench mark price
+
+不管你哪党，咔，走人，而且经济一定是大崩跌
+No matter which party you are, it must step down quickly, and the economy must be collapsing
+
+**原视频链接**[:](https://gettr.com/post/phfjqn3e2c)[https://gettr.com/post/phfjqn3e2c](https://gettr.com/post/phfjqn3e2c)
+
+Date:11/21/2021
+原视频标题: 美国老百姓的三个不允许
+Three of the deplorable in the U.S. are not allowed
+原视频日期：2021/11/19
+原视频链接https://gettr.com/post/phfjqn3e2c
+任务编号：2960
+视频时间段 : 0:00-1:38
+
+英听校：洛杉矶盘古农场 – Layka
+翻译： 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 -青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

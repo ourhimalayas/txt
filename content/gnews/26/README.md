@@ -2,25 +2,30 @@
 ---
 
 
-## 澳大利亚国防军参与控制北领地的新冠疫情
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1686608/)
+## 有声|德国诊所主任不堪疫苗“种族灭绝”跳楼自杀
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1686669/)
 
-By：喜国公民
-视频来自网络
-澳大利亚国防军被要求帮助处理北领地的新冠疫情。一项大规模的行动正在进行中，以使尽可能多的人接受测试。
+配音：香草山教育部 – Rita七号小青蛙
 
-北领地州长在对媒体的讲话中说，北领地一夜之间发现了两起新的本地新冠感染病例，并立即采取了紧急行动。
+相关媒体11月16日报道，德国切姆尼茨诊所主任托马斯· 金奇斯自杀了。在现场发现的一封信中，托马斯说疫苗是实验性致命针剂，再也不愿参与“种族灭绝”了。
 
-在曼加里和罗科的居民只能在急诊或在法律要求的情况下出门。已经发现了38名密切接触者，有可能会有更多的居民被转移或隔离。
+遗书中记录了托马斯医生沉重的负罪感和绝望。在信中，他严厉批评了政府隐瞒疫苗危险、不断撒谎和欺骗，并反对强迫民众接种这种实验性的致命针剂。他认为“正在发生全球范围的种族灭绝”，政府犯下了危害人类罪。
 
-有大约20名澳大利亚国防军人以及军车参与协助转移阳性病例和密切接触者。
+当地市长对医生的突然离世表达了遗憾。然而，正是这位市长威胁说，如果医生继续拒绝为患者接种疫苗，他就必须得离开诊所。面对政府的疫苗罪行，托马斯医生用生命表达了不屈和抗争。
 
-军队的参与不禁使人想起，前不久有[报道说](https://gnews.org/zh-hans/1640461/)，澳大利亚正在训练军人上门挨家挨户强制疫苗接种。北领地政府要求派部队参与转移阳性病例和密切接触者实在令人不安。
+文字版原文：[德国诊所主任不堪疫苗“种族灭绝”跳楼自杀](https://gnews.org/zh-hans/1683135/)
 
-此外，[在脸书上有人爆料称](https://www.facebook.com/100017330051700/posts/960166267904366/)，有军人在昆士兰北部参与了包围一个原住民社区，以阻止任何人逃亡，有土著人被军医强行按倒在地接种疫苗。
+音频处理：喜山必胜Maverick
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

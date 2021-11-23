@@ -2,35 +2,182 @@
 ---
 
 
-## 有声|战友谈里程碑事件对爆料革命的意义和影响
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1686790/)
+## 供应链核心环节断裂
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1686868/)
 
-配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/11/a3a4l-koqqt-1.jpg)
+[https://gettr.com/post/ph227wae74](https://gettr.com/post/ph227wae74)
 
-在11月20日“王建之死”新闻发布会纪念日，暨法治基金/法治社会成立三周年直播的“真人真事”节目中，三位战友畅谈这两件具有里程碑意义的事件，深有感触。
+**郭文贵**
+**Miles Guo**
 
-大卫谈到，爆料革命当时从刑侦、犯罪心理等专业角度聚焦分析“王建之死”，更多地引起了观众对该事件的关注。同时，法治基金的成立就像划破黑暗的亮光，让体制内的战友大受震动，也让他们看到了中共党心、军心、民心的溃散。另一方面，该事件让世界看清了国际刑警组织被中共渗透的事实，对该组织改选有极大的影响。
+在纽约也是这样的问题，毒品和所谓的这个民主党的救济
+Es el mismo problema en Nueva York. Las drogas y el llamado subsidio del Partido Demócrata
 
-卡丽熙则曾经亲临1120发布会现场。她感慨，当时周围坐着的人后来都成了伪类——他们或为名、或为利地接近郭先生，最后都叛变了爆料革命。卡丽熙认为，两个基金的成立就像试金石，筛选出最坚定的战友，也可以使各项活动能够持续地展开。她还中呼吁国内的战友尽快搭上新中国联邦的诺亚方舟。
+让很多人不愿意工作
+Ha hecho que muchas personas no quieran trabajar
 
-木兰战友在节目中回忆道，当时翻译、校对了大量有关“王建之死”的调查资料，感受到文贵先生强大的情报能力和坚定的意志。木兰强调，法治基金的创立富有历史使命，董事会更是有最严格的资金审批程序。因此，国内战友捐的每一分钱都非常珍贵，代表了民意所在。
+这是核心的原因
+Esta es la razón principal
 
-而今，虽然爆料革命大浪淘沙，但仍然有无数勇敢无私的战友默默工作，爆料革命的战斗力和影响力已今非昔比。
+即使没有这个供应链的问题
+Incluso sin este problema de la cadena de suministro
 
-文字版原文：[战友谈里程碑事件对爆料革命的意义和影响](https://gnews.org/zh-hans/1683018/)
+它也是这样就完全这样
+Sigue siendo así
 
-音频处理：喜山必胜Maverick
+一直就是这十几年越来越严重
+Ha sido así, y se ha vuelto cada vez peor en los últimos diez años
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+你到加州更夸张
+Es aún más exagerado si llegas a California
 
+那么这整个的所谓供应链的事情现在发生
+Entonces todo esto de la llamada cadena de suministro está sucediendo ahora
+
+大家看的都是什么没人卸货
+Lo que todos ven es que no hay nadie que descargue la mercancía
+
+然后那个货这个弄不下来可不是这个原因
+Entonces la razón por la que no se puede descargar no es por eso
+
+它根本（原因）完全是冠状病毒和疫苗
+El origen (causa) es completamente el coronavirus y la vacuna
+
+人家不敢去冒着命去给你卸这个货
+La gente no se quiere arriesgar la vida para descargarte la mercancía
+
+而且它是完全美国没有应对冠状病毒的这个保险方案
+Además, Estados Unidos no tiene en su totalidad un plan de seguro para enfrentar el coronavirus
+
+说我得的时候你给我多少保险它没有
+Decir que si me da positivo cuánto seguro me vas a dar, él no tiene
+
+那我干嘛就为了十美金二十美金去冒这个生命危险
+Entonces para qué voy a arriesgar mi vida por 10- 20 dólares
+
+他就不去干了
+No lo quiere hacer
+
+所以这个社会的保障和保险没有给这些工人的保障
+Entonces este seguro social de esta sociedad no brinda protección a estos trabajadores
+
+他就不去上班
+Él no va al trabajo
+
+第二个不要忘了
+El segundo no lo olvides
+
+美国的所有这些劳苦工人的上面的高层管理层都是白人
+La alta dirección, por encima de todos estos trabajadores en los Estados Unidos, es la raza blanca
+
+这些白人就更怕死
+Y a esta raza blanca más les da miedo morir
+
+现在是一半人不想打疫苗
+Ahorita hay una mitad de personas que no se quieren vacunar
+
+一半人没了，打了疫苗的
+Esta mitad de personas ya no hay, los que se vacunaron
+
+这些白人人家现在更不愿意去染病毒
+Estos blancos ahora menos quieren contagiarse del virus
+
+又一半没了
+Entonces la otra mitad tampoco hay
+
+它不是那个集装箱
+No son los contenedores
+
+很多人都是乱解释
+Mucha gente lo explican mal
+
+所有供应链的核心在哪里
+¿Dónde está el núcleo de todas las cadenas del suministro?
+
+核心供应链是在运输的船上
+La cadena del suministro principal está en el barco de envío
+
+不管你是中共国的始发地和到美国的这个发货目的地
+No importa si eres de origen del PCCh y el destino es los Estados Unidos
+
+它中间是那个供应船
+En el medio está el barco de suministros
+
+他这个开船的人现在是个大问题了
+El que navega el barco ahora es un gran problema
+
+不是什么人都可以开船的
+No cualquier persona puede navegar
+
+这个运输过程中的船将近60%、70%人
+Casi el 60% y el 70% de las personas de este transporte en el barco
+
+涨了两倍工资的都不冒险
+Así haya aumentado el doble de su salario no quieren correr riesgo
+
+因为当你上过那个大船你就知道了
+Porque lo sabrás si has subido a esos barcos grandes
+
+七哥到非洲去确实坐过很长
+Yo cuando fui a África si estuve un tiempo muy largo
+
+最多坐过30天的船
+Máximo he estado 30 días en el barco
+
+真能吐到你要死的感觉
+Tanto es el vómito que sientes la muerte oportuna
+
+大海一点都不好玩
+El mar no es nada divertido
+
+那种吐那种颠倒的真的把你扔到房子上乱扔的感觉
+Esa vomitadera es como una sensación de tirarte a la casa
+
+特别是大货船
+Especialmente los buques de carga
+
+大家带着方便面带点吃的东西
+Todos llevan pasta instantánea o algo para comer
+
+那难受死了
+Pero eso es tan incómodo
+
+这些人上去得冠状病毒的机会太大了
+Las posibilidades de que estas personas contraigan el coronavirus son demasiado grandes
+
+所以这人就不去了
+Entonces la gente no va
+
+没有中间环节哪有你卸货的环节
+Si no hay esta parte intermedia cómo se puede descargar la mercancía
+
+这些压的货是原来弄货压在那儿
+Estas mercancías son los que ya estaban ahí
+
+就没人给你搬了
+Solo que no hay quien los descargue
+
+**原视频网址：**[https://gettr.com/post/ph227wae74](https://gettr.com/post/ph227wae74)
+
+日期：11/18/2021
+原视频标题：供应链核心环节断裂
+El eslabón central de la cadena de suministro está roto
+原视频日期：11/16/2021
+原视频网址： https://gettr.com/post/ph227wae74
+任务编号：KC266（2913）
+视频时间段：0:00-2:19
+
+西听校：洛杉矶盘古农场- 小文萱
+翻译：洛杉矶盘古农场- 霙霙（文霙）
+翻译终校：洛杉矶盘古农场 – 小文萱
+字幕+视频制作：洛杉矶盘古农场 –天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

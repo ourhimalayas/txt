@@ -2,21 +2,24 @@
 ---
 
 
-## 前联邦紧急事务管理局工作人员揭露核酸检测是阴谋
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1686925/)
+## 加拿大特鲁多政府的《互联网审查法案》遭各界声讨
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1686977/)
 
-翻译：喜国公民
-视频来自网络
-前联邦紧急事务管理局工作人员Celeste Solum爆料称，在核酸检测的过程中，人们可能被放置了一个磁性信标。因此，人们不仅会在生物上被改变，而且会被标记。
+编译撰稿：文莱        校对编辑，发稿：硫酸羟氯喹64
 
-这是生命条形码计划的一部分，用于标记和识别所有的生命形式。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-54-edited.jpg)图片来源：thepostmillennial
 
-他们正在对我们的身体进行改造和重新设置。他们想把芯片放在人们的大脑中，但他们不想通过手术来实现。
 
-避免它的唯一方法是对新冠测试和疫苗接种说不。
+据加拿大自媒体【后千禧年】11月19日报道，【加拿大广播电视及通讯委员会】前负责人丹顿在当天接受媒体采访时表示，特鲁多自由党政府目前所推行的《互联网审查法案》，或将导致所有加拿大人最终都成为类似于中共国或俄罗斯等极权独裁国家，网络控制以及言论审查制度的受害者。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
+据悉，该《互联网审查法案》包括C-10和C-36两项法案。前者旨在改变“加拿大网络平台传播媒体内容的方式，并将其作为公共信息以接受该委员会的监管。后者旨在使各社交媒体用户因发布 “可能煽动仇恨或中伤”的评论而被当局处罚。
+
+为此，丹顿谴责道：由于该法案在不需要当事人有任何刑事过失的情况下就可将其定罪，因此它完全超出了“反仇恨言论法”的意义范围。这种在“独裁专政”国家中才有的“极权主义”法案，因其彻底违背了本国宪章“保障公民言论自由”的宗旨，因此在加拿大是绝不可行的。
+
+原文链接：
+
+[https://thepostmillennial.com/former-crtc-head-trudeau-internet-bills-akin-to-censorship-in-russia-or-china](https://thepostmillennial.com/former-crtc-head-trudeau-internet-bills-akin-to-censorship-in-russia-or-china)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
