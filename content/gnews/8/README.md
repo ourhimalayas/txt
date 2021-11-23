@@ -2,48 +2,53 @@
 ---
 
 
-## 新州长面对悉尼大规模反抗示威依然铁心不放宽政策
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1687532/)
+## 海军造船承包商暂停了疫苗接种计划
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1687549/)
 
-撰稿/翻译：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_2159.jpg)截图自Sky News
-上周六，澳大利亚各大省会城市如悉尼，墨尔本，布里斯班，珀斯爆发了总数几十几万人的游行和集会。特别是悉尼，是自解除封锁后的第一个合法集会，悉尼警方动用了600名警察和骑警维持秩序。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-45.jpg)图片来源：网络图片
+翻译：love miles
+编辑：李易通
 
-新南威尔士州州长宣布，他的政府不会从 12 月 15 日起放宽对未接种疫苗的限制。
+一家海军造船公司在工人威胁要辞职后终止了其疫苗授权，并且海军证实不要授权了。
 
-新南威尔士州长多米尼克·佩罗特 (Dominic Perrottet)在周日表示：“我将日期定为 12 月 15 日，该日期有一些令人讨厌和令人沮丧的限制，我和其它人一样讨厌戴口罩”。他还说对于政府在大流行期间做出的决定，每个人对这些事情都有自己的看法和意见”。
+亨廷顿英格尔斯工业公司（HII）是纽波特纽斯造船厂的母公司，是世界唯一一家美国海军核动力航母的制造商。该公司还是弗吉尼亚州和哥伦比亚州潜艇的制造商之一，在弗吉尼亚雇佣了25000多名工人。
 
-“如果你看一下死亡率和经济成就，澳大利亚是世界上最好的国家，我们能够在非常具有挑战性的情况下做到这一点”。
+该船厂此前曾宣布计划，要求其所有25000名工人在12月8日之前完全接种疫苗。最后的期限推迟到1月4日，以便留出更多时间。
 
-周日，该州记录了176个新病例，而疫苗接种率继续向95%的目标上升。
+随着上面的要求的结束，截止日期目前已“暂停”。
 
-根据新南威尔士州全国COVID-19的统计数据，16岁及以上人口中有94.4%的人接种了一剂疫苗，91.8%的人完全接种。
+11月17日，总裁兼首席执行官迈克·佩特斯 (Mike Petters) 在给员工的一封信  中写道：“我们不想因为病毒或疫苗授权的影响而失去任何一名员工。”
 
-在12至15岁的人群中，有81%的人至少接种了一剂疫苗，75%的人完全接种。
+“重要的是，关于英格尔斯造船厂和纽波特纽斯造船厂，我们的客户已确认，合同不包括实施疫苗授权的要求。技术解决方案的员工则处于不同的情况，他们要根据特定的合同面临不同的要求。”
 
-根据目前的路线图，当该州的双剂量疫苗接种率达到95%或在12月15日，未接种的居民将放宽限制。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_2097-scaled.jpg)图片：Jenny
-回想香港反送中运动，当上街抗议的民众人数不断创新高，不断刷新全世界看瓜群众的眼球时，我们曾经期盼极权政府会顾及一下民众的感受有所收敛，但残酷的现实是香港就此沦陷，同样的事情会在澳大利亚上演吗？
+公司继续鼓励员工接种COVID-19疫苗，但不再强制要求雇员接种疫苗。
 
-今天的澳大利亚犹如八九六四的北京，犹如反送中时的香港。独裁者们暂时猖狂得胜，但人们不会退缩不会放弃！因为我们不希望被子孙后代埋怨为什么你没有抗争？
+一些员工告诉当地媒体WTKR-News3，觉得自己被骗了，因为他们按照疫苗授权计划接种了全部新冠疫苗，但现在不再适用了。
 
-看看这个推友的点评精辟：
+“他们让我必须打疫苗然后又说不适用了”，NII的员工Deshawn Royal告诉媒体。“我不想打疫苗，但他们要求必须打，否则就会被解雇。然后他们又说你们误会了。”
 
+另一名HII的员工Rodney Apop说：“他们很疑惑但没有跳槽的机会。”
 
+“现在当他们取消了疫苗授权时，大家多么希望没有被强迫打疫苗。”
 
-> Same snake different head. Every Australian is being played and robbed now in daylight and we give him beer and cheers while we are bleeding out slowly but surely dissipating
-> — SIGMA (@cryptotwat2) [November 22, 2021](https://twitter.com/cryptotwat2/status/1462904905878753281?ref_src=twsrc%5Etfw)
+此举是在当地造船工会USW Local 8888公布其关于临时合同协议的调查结果之后发生的。该协议以1312票对684票被否决。
 
+工会在信中写道：“世界上最好的造船商对公司期望更高和所获得的回报也应该越多，并希望谈判者回到谈判席达成交易。”
 
+信中指出，如果需要与公司领导进行谈判，工会仍准备罢工。
 
-同蛇不同头。每个澳大利亚人现在都在光天化日之下被玩弄和抢劫，我们给他啤酒和欢呼，而我们正在慢慢流血但肯定会消失。
+工会的官员没有立即回应大纪元时报的相关评论。
 
-悲壮但很真实。
+文章来源：[https://www.theepochtimes.com/navy-shipbuilding-contractor-suspends-vaccine-mandate-after-workers-threaten-to-leave\_4113793.html](https://www.theepochtimes.com/navy-shipbuilding-contractor-suspends-vaccine-mandate-after-workers-threaten-to-leave_4113793.html)
 
-[译文链接：](https://www.skynews.com.au/australia-news/politics/premier-dominic-perrottet-not-willing-to-bring-easing-of-restrictions-for-unvaccinated-forward-despite-protest-of-thousands/news-story/470d7c85abe89c4c7af3f5ace0e79385)
+发布：kk
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

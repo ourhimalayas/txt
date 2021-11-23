@@ -2,52 +2,24 @@
 ---
 
 
-## 海军造船承包商暂停了疫苗接种计划
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1687549/)
+## COVID-19 最新情报｜德国卫生部长发出威胁式警告：到冬季结束，德国人有三种选择：打针、治愈、死亡
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1687587/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-45.jpg)图片来源：网络图片
-翻译：love miles
-编辑：李易通
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜23/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-一家海军造船公司在工人威胁要辞职后终止了其疫苗授权，并且海军证实不要授权了。
+近期，德国单日 COVID-19 确诊病例数屡破纪录，处于疫情爆发以来最危急的时刻，卫生部长延斯·斯潘（Jens Spahn）周一（22日）召开紧急新闻发布会，表示“到今年冬天结束，正如那些冷嘲热讽的言论一样，几乎所有的德国人，要么接种疫苗、要么治愈或者死亡。”他强调，这是他迄今为止对坚持不接种疫苗者发出的最严厉警告。
 
-亨廷顿英格尔斯工业公司（HII）是纽波特纽斯造船厂的母公司，是世界唯一一家美国海军核动力航母的制造商。该公司还是弗吉尼亚州和哥伦比亚州潜艇的制造商之一，在弗吉尼亚雇佣了25000多名工人。
+德国目前的疫苗接种率已接近七成，据罗伯特·科赫研究所 (Robert Koch Institute) 周一的报告指，德国每周每 10 万人仍有 387 例 COVID-19 确诊病例，创历史新高。很明显，斯潘部长将这一现象归咎于未接种疫苗的三成人身上。
 
-该船厂此前曾宣布计划，要求其所有25000名工人在12月8日之前完全接种疫苗。最后的期限推迟到1月4日，以便留出更多时间。
+关于疫苗安全性的问题，斯潘否认了民众对卫生部门有刻意掩盖疫苗伤亡个案的指控，他引述德国疫苗监管机构的负责人 Klaus Cichutek 的评论，“疫苗在安全性方面没有问题，副作用方面更是罕有发生，每 10 万例不到 10 例。”
 
-随着上面的要求的结束，截止日期目前已“暂停”。
+他认为，BioNTech 和 Moderna 疫苗是 COVID-19 疫苗的梅赛德斯和劳斯莱斯，呼吁民众选择时，可考虑优先接受 Moderna，因为大量 Moderna 疫苗将在 2022 年初到期。斯潘又指，到今年年底，德国将有 5000 万剂冠状病毒疫苗可用——其中 2400 万剂来自 BioNTech，其余 2600 万剂来自 Moderna，“这就是为什么我们如此迫切地建议接种疫苗。”
 
-11月17日，总裁兼首席执行官迈克·佩特斯 (Mike Petters) 在给员工的一封信  中写道：“我们不想因为病毒或疫苗授权的影响而失去任何一名员工。”
-
-“重要的是，关于英格尔斯造船厂和纽波特纽斯造船厂，我们的客户已确认，合同不包括实施疫苗授权的要求。技术解决方案的员工则处于不同的情况，他们要根据特定的合同面临不同的要求。”
-
-公司继续鼓励员工接种COVID-19疫苗，但不再强制要求雇员接种疫苗。
-
-一些员工告诉当地媒体WTKR-News3，觉得自己被骗了，因为他们按照疫苗授权计划接种了全部新冠疫苗，但现在不再适用了。
-
-“他们让我必须打疫苗然后又说不适用了”，NII的员工Deshawn Royal告诉媒体。“我不想打疫苗，但他们要求必须打，否则就会被解雇。然后他们又说你们误会了。”
-
-另一名HII的员工Rodney Apop说：“他们很疑惑但没有跳槽的机会。”
-
-“现在当他们取消了疫苗授权时，大家多么希望没有被强迫打疫苗。”
-
-此举是在当地造船工会USW Local 8888公布其关于临时合同协议的调查结果之后发生的。该协议以1312票对684票被否决。
-
-工会在信中写道：“世界上最好的造船商对公司期望更高和所获得的回报也应该越多，并希望谈判者回到谈判席达成交易。”
-
-信中指出，如果需要与公司领导进行谈判，工会仍准备罢工。
-
-工会的官员没有立即回应大纪元时报的相关评论。
-
-文章来源：[https://www.theepochtimes.com/navy-shipbuilding-contractor-suspends-vaccine-mandate-after-workers-threaten-to-leave\_4113793.html](https://www.theepochtimes.com/navy-shipbuilding-contractor-suspends-vaccine-mandate-after-workers-threaten-to-leave_4113793.html)
-
-发布：kk
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+**最后，他还补充指，料欧盟将在本周末批准将疫苗用于 5 至 11 岁儿童。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-15.jpg)
+来源｜[Politico](https://www.politico.eu/article/jens-spahn-germany-biontech-pfizer-covid-19-vaccination/)
 
  
 

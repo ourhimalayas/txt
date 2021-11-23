@@ -2,30 +2,53 @@
 ---
 
 
-## 100多个全球品牌仍在从维吾尔强迫劳动中获利
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1687537/)
+## 孩子打完新冠疫苗后，各种病痛触目惊心
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1687553/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-24.jpg)100多个全球品牌仍在从维吾尔强迫劳动中获利 网络图片
-据美国之音11月23日报道，一份名为《洗棉，新疆棉如何在国际供应链中黯然失色》的报告发现，仍有一百多个国际品牌销售与新疆地区维吾尔强迫劳动有关的棉制品。
-
-今年早些时候，美国以维吾尔人在棉花以及番茄制品等商品生产中的强迫劳动为由，禁止从中共国新疆维吾尔自治区进口棉制品。中共国约85%的棉花产自新疆。五家供应商将新疆棉半成品出口给国际中间商，再由中间商将成品运往包括美国在内的全球国际品牌。
-
-新疆维吾尔人的鲜血和生命浸透在供应链的每一根链条上，新疆是二战之后全球最大的种族灭绝集中营所在地，关押着上百万维吾尔人。中共对国际社会的声讨和谴责不予理睬，继续在新疆实施暴行。怎么才能让一个邪恶的犯罪团伙放下杀人的屠刀呢？只有消灭它，才能终止暴行，让新疆维吾尔人获得真正的自由。
-
-新闻参考链接：[https://www.voachinese.com/a/global-brands-still-profiting-from-uyghur-forced-labor-20211122/6323462.html](https://www.voachinese.com/a/global-brands-still-profiting-from-uyghur-forced-labor-20211122/6323462.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山福音部 – 凤鸡
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
 
 
+
+最近，中共国开始了给3-11岁的小孩接种毒疫苗。班主任老师都被搞得抑郁症了，怎么突然间逼小孩打疫苗变成老师的政治任务了？听说有的老师无法忍受，已经辞职。家长也被逼得无所适从，由于各种无知和恐惧，大部分小孩还是去打了，打完后各种各样的病痛触目惊心，具体请看以下图组。
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/20211123_1.jpg)
+
+
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/20211123_2.jpg)
+
+
+
+这样下去，消息还能封锁得住吗？对于少数案例的副作用，也许还能封锁，如果副作用越来越多的话，估计再也难以掩盖。正如七哥说到疫苗灾难到来之际，老是死人，病人，一切都将变得难以掩盖。愿创造天地的神快快降灾给ccp，救那些不知道真相的人们脱离死亡。
+
+最后我想再次强调，新冠病毒是来自中共实验室的生化武器，新冠疫苗是中共联合世界黑暗势力的推行的绝种要命毒针。在这样的生死存亡之际，请保护好家人，不要让他们受到伤害。并把青蒿素是新冠病毒和疫苗的解药这个真相传播出去，时刻谨记“相信共产党，走进火葬场”！
+
+![]()
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/calendar_nov-1.jpg)
+
+
+
+编辑/校对/发稿：武裝的羔羊
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
