@@ -2,53 +2,71 @@
 ---
 
 
-## Eglise医生新冠治疗的观察摘要
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1687346/)
+## 【Michael.Tonny专栏】FDA第一份辉瑞疫苗报告，前3个月15.9万起副作用事故
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1687365/)
 
-2021-11-22
-资料整理总结：Elli
+加拿大温哥华扬帆农场  Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/22-100.jpg)
 
-2021年11月19日， GTV文耀时间采访Eglise医生期间有很多宝贵的新冠防治用药的信息，现总结如下：
 
-青蒿素药品要避免和维生素C以及任何抗氧化剂保健品同时吃，但是青蒿素保健品没有这些忌讳。青蒿素药品与维生素C以及任何抗氧化剂保健品，隔几个小时，单独吃比较好，这是为了避免产生氧化还原反应，彼此中和。青蒿素保健品说明书建议使用量是每天500毫克，但是注意很多青蒿素保健品真正有效含量常常低于500毫克，因为有很多添加剂存在。使用者可以根据自己身体的反应状况，适当提高用量。每个人的身体反应是最好的指导者。
+“事出反常必有妖”，这可能是恒古不变的道理！
 
-青蒿素治疗癌症的机理是可以识别含铁量高的癌细胞，与之中和，抑制癌细胞繁殖。
+FDA最近在应对要求分享它在许可辉瑞（Pfizer）COVID-19（CCP病毒）疫苗所依赖数据的诉讼时，极其反常的举动，就让人不得不怀疑其中的猫腻！
 
-对于硫酸羟氯喹和伊维菌素用药，在治疗寄生虫类疾病的时候建议早上空腹吃，因为针对杀灭寄生虫，这样吃效果好。但是在治疗新冠病毒的时候。需要硫酸羟氯喹和伊维菌素尽快融入血液，降低病毒载量，因此最好和脂溶性食物一起吃，比如肉汤等。
+2021年9月16日，来自耶鲁、哈佛、加州大学洛杉矶分校和布朗大学等大学的30多名教授和科学家，向美国德克萨斯州北部地方法院（United States District Court Northern District of Texas ）起诉美国食品和药物管理局（Food and Drug Adminstration，FDA），要求FDA分享它在许可辉瑞CCP病毒疫苗时所依赖的数据。
 
-给动物使用的伊维菌素，虽然从来不被医生推荐给病人，但是目前在北美很难买到给人用的伊维菌素的情况下，很多人都在使用给兽用的伊维菌素，也起到很好的防治效果，尤其救治了很多新冠病毒的患者。在病毒载量最高的初期10-12天以内治疗效果显著。伊维菌素对于给兽用，与给人用的唯一区别就是纯化过程，给人用的纯度更高。
+FDA的回应居然是要求法官批准其以每月500页的速度公布辉瑞提供给FDA的329,000多页文件。你没有看错，以FDA的主张推算，最快需要55年时间，即2076年之前，FDA才能完全公布辉瑞提交的CCP病毒疫苗数据。
 
-硫酸羟氯喹除了寄生虫治疗，还可以治疗类风湿性关节炎，如红斑蓝疮，有战友在使用硫酸羟氯喹的过程中发现自己手指风湿关节炎的疼痛得到极大缓解。伊维菌素同时可以治疗支气管炎引起的咳嗽，也是有战友反馈在使用伊维菌素预防新冠的时候不再犯咳嗽了。这两种药在市面上都已经超过30到40年，都写在WHO常用药，副作用极其轻微，也不会真正伤害人。主流媒体的过度宣传夸大硫酸羟氯喹，伊维菌素的坏处，让很多新冠患者无法得到有效用药和及时治疗。
+当您阅读完FDA发布的第一份关于辉瑞疫苗报告信息时，您一定不会对FDA给出如此荒谬的回应再感到震惊！
 
-另外，有的新冠患者在综合使用硫酸羟氯喹和伊维菌素过程中总共用药剂量过大，以至于超过2-3天后胃肠道不适。这种情况需要减少剂量， 或者用槲皮素代替硫酸羟氯喹，很快胃肠道不适症状会在5-6天内消失。
+这份报告是由这一案件的代理律师，即纽约SIRI & GLIMSTAD律师事务所合伙人Aaron Siri，一名拥有丰富的复杂民事诉讼经验、尤其是涉及强制医疗民事诉讼的律师在11月20日公布的。
 
-抗氧化剂保健品对新冠防治有效的，建议大家适量储存的有乙酰半胱氨酸NAC，褪黑素Melatonin，奶蓟Milk Thistle。
+在一份名为《5.3.6 postmarketing experience.pdf》的文件第6页3. RESULTS中，自去年12月1日辉瑞BNT162b2疫苗收到第一份紧急供应临时授权书起至今年 2月28日期间，辉瑞共收到来自世界各地的42,086份疫苗副作用病例报告，包括158,893起疫苗副作用事故！
 
-乙酰半胱氨酸NAC同时作为处方药和保健品，在网站可以购买，在治疗新冠过程中有非常显著的疗效，建议怀疑自己得了新冠病毒的患者立刻使用。NAC对治疗强迫症、消除炎症和改善皮肤都有很好的疗效。
+这些病例报告最多的是来自美国13,739份（34,762起疫苗事故）。其它有：英国13,404份、意大利2,578份、德国 1913份、法国 1506份、葡萄牙 866份和西班牙756份；其余7,324 份来自于其他 56 个国家和地区。
 
-奶蓟属于水飞蓟属的一种草本植物，又称乳蓟、水飞蓟，花朵呈现红紫色，被作为药用（种子或果实部位）已有2千年以上的历史，有＂肝脏守护神＂的称号。
+报告第7页，所有病例的最终结果中，19,582例康复或正在康复，520例产生了严重后遗症，11,361例到报告截止日期（2021年2月28日）时还没有恢复，1,223例死亡，9,400例不知道结果。
 
-褪黑素只要使用剂量每天不超过15毫克，都不会有任何危险。初期使用褪黑素可能服用5mg每天就足够。对于长期使用褪黑素保健品帮助睡眠的使用者而言，可能身体有一定抗药性，可以适当加量。褪黑素本身也是抗氧化物，可以预防新冠传染。
+如下图所示，在整个数据集中，最大数量的是系统器官类别 (System Organ ClassesSOC)全身性疾病和给药部位疾病，有51,335例；神经系统疾病25,957例；肌肉骨骼和结缔组织疾病17,283例；胃肠道疾病14,096例；皮肤和皮下组织疾病8,476例；呼吸、胸和纵隔（胸口中间的区域）疾病8,848例；感染和侵染4,610例；损伤、中毒和手术并发症5,590例和还在调查中的3,693例。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-47.png)
+读完这些沉甸甸的数据，笔者查看了VAERS系统收到的疫苗事故报告。
 
-虽然预防用药，比如维生素C、槲皮素，硫酸羟氯喹等，在绝大多数情况可以保护人免于感染新冠病毒。可是暴露在高病毒载量的环境中仍然可能会感染，如川普总统感染covid前也在服用硫酸羟氯喹，可还是因为白宫整体感染者太多而中招。这些保健品还可以帮助降低自己传染给身边人的可能性。
+截止至2021年11月12日，VAERS共收到894,143份CCP病毒疫苗美国的不良事件报告。其中，18,853例死亡，94,537例住院治疗，99,470例紧急护理，8,082例过敏反应，11,229例贝尔氏麻痹症（Bell’ Palsy），139,952例需要看医生。
 
-美国前线医生FLCC现在已经将阿司匹林现加入到covid新冠病毒早期用药治疗中，因为不论在病毒大量繁殖，产生刺突蛋白，还是病毒大量死亡的情况下，都有很多病毒碎片或者疫苗注射的刺突蛋白造成微细管的血栓。早期服用阿司匹林可以避免后期血栓的产生，而且阿司匹林用药可以长达90天.。如果等到血栓症状出现，用药就为时过晚。
+而在结果栏中，有2,296例流产，9,332例心脏病，13,237例心包炎/心肌炎，30,010永久残疾（Permanently Disabled），4,387例血小板减少症/低血小板，21,089例危及生命，33,660例严重过敏反应，10,455例带状疱疹(Shingles)。
 
-关于新冠患者的后遗症比如丧失味觉嗅觉，脑雾，头疼，记忆力大不如前应该在4-6周后还不痊愈的情况下立刻使用相关药物，如果按照目前流程等到12周以后，用药的效果会大不如前。
+如下图所示，根据VAERS的统计结果，做一个简单的数学计算，可以得出结论，2021年，美国因接种CCP病毒疫苗死亡人数是过去30年接种所有其它疫苗死亡人数总和的1.94倍，是过去30年平均每年因接种疫苗死亡人数的58.3倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1637639655333_1.png)
+至2021年11月12日，各种COVID-19疫苗杀死人数分别为：Janssen共1,539人，Moderna共4,613人，Pfizer共12,634，其它品牌67人。
 
-有趣的是，抗抑郁症的药物例如氯米帕明（ Clomipramine）和百忧解（在中国很容易买到）对治疗新冠患者的头部神经的不适症状有很好的疗效，氯米帕明 （Clomipramine）被称为脑部的伊维菌素。这是因为硫酸羟氯喹和伊维菌素无法穿越血脑屏障进入脑部治疗，但是刺突蛋白却可以，这时就需要氯米帕明 （Clomipramine）大显身手。而且为了达到治疗效果，用药剂量很高，比如每天50mg两次服用，持续15天。远远高于开给抑郁症患者的用药剂量。最严重的副作用是患者服用氯米帕明（ Clomipramine）期间出现自杀或自残的念头。
+必须强调的是，根据VAERS的公开申明(the Lazarus Report)，由于VAERS为自愿报告系统，VAERS统计的数据仅占实际发生事故的1%左右。
 
-刺突蛋白脱落目前也是观察到的事实。未打疫苗人群与刚刚接种疫苗的人同处一室或者亲密接触时，可能会有皮肤过敏，年轻妇女有月经期不正常，头疼的症状。除了上述提到的保健品，針對刺突蛋白脫落的預防，主要使用伊維菌，其他只能依靠自身免疫力。
+难怪Wayne Allyn Root在文章[WAYNE ROOT: The Great Vaccine Mandate Scam](https://www.thegatewaypundit.com/2021/11/wayne-root-great-vaccine-mandate-scam/)说，疫苗授权以及即将到来的疫苗护照就是作为“特洛伊木马”的伟大骗局，是在利用这项疫苗授权作为掩饰，摧毁美国经济、资本主义和伟大的美国中产阶级，CCP病毒疫苗正在瓦解美国这个伟大的国家。
 
-家庭使用血氧仪测量血氧并不准确，有好多新冠患者战友使用家庭血氧仪测量发现血氧过低，可是到医院测量一切正常。所以血氧过低的家庭测量结果要打一个问号。
+至此，各种披着华丽外衣的政客、FDA和CDA在CCP病毒疫苗中究竟扮演的是天使还是魔鬼，相信您已经有自己的答案。
 
-参考链接：
-[2021-11-19 GTV 文耀时间采访Eglise医生](https://gtv.org/video/id=6197e540fcd196126f8cf1eb)
-[GNews：乙酰半胱氨酸及褪黑色素在新冠防治中的应用](https://gnews.org/zh-hans/1682572/)
-[详谈抑郁症（忧郁症）的药物治疗：种类、原理、副作用与风险](https://fairiesheart.com/2021/05/17/15853/)
+参考资料：
 
-校對發布：MQ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣.jpg)
+[Attorney Releases First Pages from Subpoenaed FDA Files – Shows Pfizer Documented 158,893 Adverse Events with 25,957 Nervous System Disorders in First Few Months of Distribution](https://www.thegatewaypundit.com/2021/11/attorney-releases-first-pages-subpoenaed-fda-files-shows-pfizer-documented-158893-adverse-events-25957-nervous-system-disorders/)
+
+[VAERS COVID Vaccine Adverse Event Reports](https://openvaers.com/covid-data)
+
+[FDA Produces the First 91+ pages of Documents from Pfizer’s COVID-19 Vaccine File](https://aaronsiri.substack.com/p/fda-produces-the-first-91-pages-of)
+
+[FDA asks for 55 years to complete FOIA request on Pfizer’s COVID-19 vaccine](https://www.fiercepharma.com/pharma/fda-requests-55-years-to-complete-foia-request-pfizer-s-covid-19-vaccine)
+
+[5.3.6-postmarketing-experience.pdf](https://phmpt.org/wp-content/uploads/2021/11/5.3.6-postmarketing-experience.pdf)
+
+[WAYNE ROOT: The Great Vaccine Mandate Scam](https://www.thegatewaypundit.com/2021/11/wayne-root-great-vaccine-mandate-scam/)
+
+[vaccine foia complaint.pdf](https://fingfx.thomsonreuters.com/gfx/legaldocs/klvykdlryvg/vaccine%20foia%20complaint.pdf)
+
+[FDA Asks Federal Judge to Grant it Until the Year 2076 to Fully Release Pfizer’s COVID-19 Vaccine Data](https://aaronsiri.substack.com/p/fda-asks-federal-judge-to-grant-it)
+
+（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+
+编审：文敏     发布：文敏
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

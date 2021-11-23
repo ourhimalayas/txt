@@ -2,51 +2,30 @@
 ---
 
 
-## 接种辉瑞疫苗最初两个半个月，美国收到近16万例不良反应报告
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1687120/)
+## 班农先生指出，与中共合作的全球主义者希望像中共一样拥有极权统治
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1687139/)
 
-作者：纽约香草山医疗部 – 云豹
+撰稿：Grace
 
+校对：Grace
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-22-at-8.59.01-PM.jpeg)图片来源：nytimes
+11月20日，是法治基金和法治社会建立的三周年，班农先生在直播的时候指出，与中共合作的全球主义者希望像中共一样拥有极权统治。
 
+在直播中，班农先生提醒数百万在线的观众，1989年6月4日的天安门抗议活动，是发生在柏林墙倒塌之后的。 那段时间，郭文贵先生和其他许多的中国年轻人，都以为他们可以像俄罗斯人民摆脱苏联那样，打败中共极权政权，获得自由。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+然而，这些千千万万为自由而战的年轻人，却遭到了中共的冷血镇压和残酷杀害。 更可悲的是，美国政府并没有为这些受难的中国人发声，或是阻止中共对他们的迫害。 相反，布什政府对中共的天安门屠杀选择视而不见。
 
+班农先生说，布什政府派斯考克罗夫（Scowcroft）特将军访华, 并告诉中共， 他们对中共对的封锁和屠杀没异议，而且，他们会出于经济原因支持中共的极权政权。
 
+另一方面，布什政府却是开始欺骗美国人民，并开始向中共投放大量的金钱，为中共提供更大的开放市场，说是这样做了，中国人民就会变得更像美国人民那样，拥有民主和法制。
 
-近日，美国律师阿隆·喜利收到FDA提供的部分档案。其中显示，截至2021年2月28日，辉瑞疫苗开始注射的最初两个半个月内，总共收到15万8千893例不良反应。其中有1223例是死亡，520例是后遗症。
+“那是谎言，” “事实上，我认为发生的情况完全相反,” 班农先生愤怒地说道。接着，班农先生抨击现在的拜登政府，正在 “模仿中共的集权和专制统治”。
 
-女性出现不良反应的次数是男性的3.25倍。出现最大量不良反应的人群是在31到50岁。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-9.jpg)
-最常出现不良反应的身体部位，依次是神经系统，肌肉骨骼结缔组织系统，肠胃系统，呼吸系统，皮肤及皮下组织。
+班农先生进一步指出，拜登政府现在不顾人权问题，不顾维吾尔人、藏传佛教徒、地下基督徒、天主教会等所有问题，一心只想向习磕头的做法，是不会有好结果的。他相信，中共不会在气候变化和全球变暖问题上与美国合作的，因为班农先生知道，中共根本不关心中国人民。
 
-出现比较多的不良反应症状有淋巴结病变、心跳加速、恶心、发烧、冷颤、呼吸困难、皮肤搔痒红疹等。
+另外，班农先生还特别地对着数百万个正在看直播的民众说：“（你）要记住的一件事-就是全球主义经济体系建立在中国人民的奴隶劳动基础上。 如果你解放中国人民，整个中共系统就会崩溃，只有这样我们才能得到真正和平与繁荣。”
 
-参考链接：
-[FDA Records Subpoenaed By Attorney Shows Over 158,000 Adverse “Events” In First 2.5 Months of COVID Shot Trials](https://www.redvoicemedia.com/2021/11/fda-records-subpoenaed-by-attorney-shows-over-158000-adverse-events-in-first-2-5-months-of-covid-shot-trials/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：飞虹
-编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+**新闻来源： ****https://gtv.org/video/id=6198f18ccbfd016d6377a4f1**
 
  
 
