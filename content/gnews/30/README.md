@@ -2,48 +2,35 @@
 ---
 
 
-## 新州长面对悉尼大规模反抗示威依然铁心不放宽政策
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1687532/)
+## 由律师传讯的FDA记录显示，在COVID注射试验的前两个半月中，有超过15.8万起不良“事件”
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1687611/)
 
-撰稿/翻译：Jenny
-![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_2159.jpg)截图自Sky News
-上周六，澳大利亚各大省会城市如悉尼，墨尔本，布里斯班，珀斯爆发了总数几十几万人的游行和集会。特别是悉尼，是自解除封锁后的第一个合法集会，悉尼警方动用了600名警察和骑警维持秩序。
+作者：利亚·阿纳（LEAH ANAYA）
+发布日期：2021年11月21日
+新闻来源：红声音媒体(RED VOICE MEDIA)
+翻译：文虓Bobby
 
-新南威尔士州州长宣布，他的政府不会从 12 月 15 日起放宽对未接种疫苗的限制。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/112303.png)
 
-新南威尔士州长多米尼克·佩罗特 (Dominic Perrottet)在周日表示：“我将日期定为 12 月 15 日，该日期有一些令人讨厌和令人沮丧的限制，我和其它人一样讨厌戴口罩”。他还说对于政府在大流行期间做出的决定，每个人对这些事情都有自己的看法和意见”。
+红声音媒体此前曾报道了在与大型制药公司斗争和抑制COVID-19疫苗副作用的第一线的律师亚伦·Siri。
 
-“如果你看一下死亡率和经济成就，澳大利亚是世界上最好的国家，我们能够在非常具有挑战性的情况下做到这一点”。
+两个多月前，Siri首次对美国食品和药物管理局(FDA)提起诉讼。现在，他终于开始拿到要求的文件了。本周，他收到了“91个pdf文件，一个xpt文件和一个txt文件。”
 
-周日，该州记录了176个新病例，而疫苗接种率继续向95%的目标上升。
+收到的一份文件是截至2021年2月28日收到的[疫苗]授权后不良事件报告的累积分析。
 
-根据新南威尔士州全国COVID-19的统计数据，16岁及以上人口中有94.4%的人接种了一剂疫苗，91.8%的人完全接种。
+该报告是疫苗获得紧急使用授权后的头两个半月。报告称，在此期间，疫苗不良事件报告系统(VAERS)收到了42086份报告，其中包含158893起“（不良）事件”。此外，25957人被认为是“神经系统障碍”。
 
-在12至15岁的人群中，有81%的人至少接种了一剂疫苗，75%的人完全接种。
+报告还显示，这些“事件”对女性以及31-50岁人群的影响格外大。其中大部分发生在美国。
 
-根据目前的路线图，当该州的双剂量疫苗接种率达到95%或在12月15日，未接种的居民将放宽限制。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_2097-scaled.jpg)图片：Jenny
-回想香港反送中运动，当上街抗议的民众人数不断创新高，不断刷新全世界看瓜群众的眼球时，我们曾经期盼极权政府会顾及一下民众的感受有所收敛，但残酷的现实是香港就此沦陷，同样的事情会在澳大利亚上演吗？
+VAERS约占接种不良事件的1%。
 
-今天的澳大利亚犹如八九六四的北京，犹如反送中时的香港。独裁者们暂时猖狂得胜，但人们不会退缩不会放弃！因为我们不希望被子孙后代埋怨为什么你没有抗争？
+而这只是第一轮发布的数据记录!
 
-看看这个推友的点评精辟：
+[援引原文](https://www.redvoicemedia.com/2021/11/fda-records-subpoenaed-by-attorney-shows-over-158000-adverse-events-in-first-2-5-months-of-covid-shot-trials/)
 
+审核校对：Barry Jack
+上传排版：糖果儿
 
-
-> Same snake different head. Every Australian is being played and robbed now in daylight and we give him beer and cheers while we are bleeding out slowly but surely dissipating
-> — SIGMA (@cryptotwat2) [November 22, 2021](https://twitter.com/cryptotwat2/status/1462904905878753281?ref_src=twsrc%5Etfw)
-
-
-
-同蛇不同头。每个澳大利亚人现在都在光天化日之下被玩弄和抢劫，我们给他啤酒和欢呼，而我们正在慢慢流血但肯定会消失。
-
-悲壮但很真实。
-
-[译文链接：](https://www.skynews.com.au/australia-news/politics/premier-dominic-perrottet-not-willing-to-bring-easing-of-restrictions-for-unvaccinated-forward-despite-protest-of-thousands/news-story/470d7c85abe89c4c7af3f5ace0e79385)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

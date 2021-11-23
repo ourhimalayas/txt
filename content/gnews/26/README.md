@@ -2,53 +2,37 @@
 ---
 
 
-## 孩子打完新冠疫苗后，各种病痛触目惊心
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1687553/)
+## 数万名未接种联邦雇员本周一失业 众议员抨击白宫强制接种令
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1687686/)
 
-作者：纽约香草山福音部 – 凤鸡
+撰稿：纽约香草山文艺部 – 宁文静
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/GNEW-GTV-MOS-LOGO-2-1.jpg)
-
-
-
-最近，中共国开始了给3-11岁的小孩接种毒疫苗。班主任老师都被搞得抑郁症了，怎么突然间逼小孩打疫苗变成老师的政治任务了？听说有的老师无法忍受，已经辞职。家长也被逼得无所适从，由于各种无知和恐惧，大部分小孩还是去打了，打完后各种各样的病痛触目惊心，具体请看以下图组。
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/20211123_1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-6.png)
 
 
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/20211123_2.jpg)
+11月22日是白宫下达联邦雇员疫苗接种令的截止日期。数万名尚未接种的联邦雇员将在本周一失去他们的工作。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-592.png)图片来自Newsmax
+众议员詹姆斯·科默在接受媒体采访时谴责拜登政府，“不能强制接种”。 科默说，决定不接种疫苗是宪法赋予人们的权利。许多工会就联邦项目签订了合同和分包合同，但他们联系我，对拜登政府侵犯了个人的自由感到愤怒。可怕的是，他们无法领取失业救济金。许多联邦雇员来自如邮政、运输、教育等一线行业，人员短缺将会给拜登政府的低效运作带来更大的混乱。 这项行政命令是今年9月初颁布的，立即遭到包括五个军种的军人、联邦雇员、文职承包商等在内发起的大规模集体诉讼。科默最后说，欧洲许多国家正在进行反强制接种抗议活动，很快也会出现在这里。
 
+新闻链接：[Rep. Comer to Newsmax: Biden Won’t Be Able to Force Federal Workers’ Shots](https://www.newsmax.com/newsmax-tv/comer-covid-vaccination-mandates/2021/11/22/id/1045671/)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-8.jpg)
 
-这样下去，消息还能封锁得住吗？对于少数案例的副作用，也许还能封锁，如果副作用越来越多的话，估计再也难以掩盖。正如七哥说到疫苗灾难到来之际，老是死人，病人，一切都将变得难以掩盖。愿创造天地的神快快降灾给ccp，救那些不知道真相的人们脱离死亡。
+总编：文徬
 
-最后我想再次强调，新冠病毒是来自中共实验室的生化武器，新冠疫苗是中共联合世界黑暗势力的推行的绝种要命毒针。在这样的生死存亡之际，请保护好家人，不要让他们受到伤害。并把青蒿素是新冠病毒和疫苗的解药这个真相传播出去，时刻谨记“相信共产党，走进火葬场”！
-
-![]()
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/calendar_nov-1.jpg)
-
-
-
-编辑/校对/发稿：武裝的羔羊
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo.png)
 
  
 

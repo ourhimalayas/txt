@@ -2,34 +2,44 @@
 ---
 
 
-## 由律师传讯的FDA记录显示，在COVID注射试验的前两个半月中，有超过15.8万起不良“事件”
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1687611/)
+## 律师公布FDA文件，辉瑞很就早收到大量疫苗不良报告
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1687737/)
 
-作者：利亚·阿纳（LEAH ANAYA）
-发布日期：2021年11月21日
-新闻来源：红声音媒体(RED VOICE MEDIA)
-翻译：文虓Bobby
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/112020-Pfizer-Vaccine-Authorization-OTS-Plasma.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/112303.png)
 
-红声音媒体此前曾报道了在与大型制药公司斗争和抑制COVID-19疫苗副作用的第一线的律师亚伦·Siri。
+ 
+图片来源：KWWL
 
-两个多月前，Siri首次对美国食品和药物管理局(FDA)提起诉讼。现在，他终于开始拿到要求的文件了。本周，他收到了“91个pdf文件，一个xpt文件和一个txt文件。”
 
-收到的一份文件是截至2021年2月28日收到的[疫苗]授权后不良事件报告的累积分析。
+#### 编译：小红帽
 
-该报告是疫苗获得紧急使用授权后的头两个半月。报告称，在此期间，疫苗不良事件报告系统(VAERS)收到了42086份报告，其中包含158893起“（不良）事件”。此外，25957人被认为是“神经系统障碍”。
+Siri & Glimstad律师事务所的管理合伙人亚伦·西里（Aaron Siri）律师公布了他从美国食品和药物管理局（FDA）收到的第一份报告。亚伦律师拥有丰富且复杂的民事诉讼经验，包括涉及强制医疗的民事权利。
 
-报告还显示，这些“事件”对女性以及31-50岁人群的影响格外大。其中大部分发生在美国。
+亚伦律师长期以来一直代表人们进行疫苗接种伤害方面的诉讼。他最近在参议员罗恩·约翰逊（Ron Johnson）领导的美国小组讨论中表示，在中共病毒（COVID-19）大流行期间，他们收到了大量的电话请求。亚伦律师补充说：“如果我们真的就所有的投诉起诉所有的制药公司，那么全国大约100名律师都不可能处理完所有这些问题”。
 
-VAERS约占接种不良事件的1%。
+亚伦律师最近公布了美国食品和药物管理局关于辉瑞中共病毒疫苗的第一批传唤文件。这些文件显示，在今年前几个月，已经有158,893个不良事件记录，包括25,957个神经系统疾病。
 
-而这只是第一轮发布的数据记录!
+在被起诉的两个月零一天后，距离获得辉瑞中共病毒疫苗接近3个月后，美国食品和药物管理局公布了它在批准该产品前审查的[第一轮文件](https://phmpt.org/pfizers-documents/)。
 
-[援引原文](https://www.redvoicemedia.com/2021/11/fda-records-subpoenaed-by-attorney-shows-over-158000-adverse-events-in-first-2-5-months-of-covid-shot-trials/)
+其中一份文件是截至2021年2月28日-即疫苗获得紧急使用授权（EUA）后仅两个半月里，收到的 （疫苗）授权后不良事件报告的累积分析。这份文件反映了截至2021年2月28日，在美国国内和国外完成辉瑞公司“工作流程周期 ”的疫苗接种后的不良事件。
 
-审核校对：Barry Jack
-上传排版：糖果儿
+辉瑞公司在第6页解释说，“由于收到大量自发的关于产品不良事件报告，（辉瑞）已优先处理严重的病例……”，辉瑞公司 “还采取了多项行动，以帮助缓解不良事件报告的大量增加”，包括 “增加数据输入和病例处理同事的数量”，“已招募约（原文如此）额外全职员工（FTEs）”。
+
+至于报告的数量，在疫苗获得紧急使用授权之后的两个半月里，辉瑞公司总共收到了42,086份报告，其中包含158,893个“事件”。
+
+这些报告大部分来自美国，并且不成比例地涉及女性（29,914份对男性的9,182份）和31至50岁的人（13,886份对所有其他年龄组合计21,325份，另有6,876份的年龄不详）。此外，有25,957起事件被归类为“神经系统疾病”。
+
+**参考新闻：**[Attorney Releases First Pages from Subpoenaed FDA Files: Pfizer Documented 158,893 Adverse Events in First Few Months of Distribution (humansarefree.com)](https://humansarefree.com/2021/11/pfizer-documented-adverse-events.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

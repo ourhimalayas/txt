@@ -2,27 +2,40 @@
 ---
 
 
-## 警方说威州游行碾压案嫌犯涉及“内部纠纷”
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1687214/)
+## 报告建议澳洲应将日本视为应对中共 “最有利的伙伴”
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1687366/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-36.png)
-图片来源： www.6parknews.com
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-美国合众国际社11月22日报道，警方周一说，39岁男性嫌犯在威斯康辛州的节目游行中开着他的车姿意碾压造成5人死亡，48人受伤，就在犯案前，嫌犯还涉及一桩内部纠纷案。
-
-嫌犯名叫达雷尔·布鲁克斯，住在威州沃科夏市，警察局长丹尼尔·汤普森在周日发生惨案一天后更新最近信息，他告诉记者事发时一辆休闲越野车在该市每年的圣诞节游行活动中冲向人群。他说：“我们有信息显示嫌犯在事发前涉及一桩内部争吵，发生在事发前几分钟，就在警方到达前嫌犯离开了吵架地方。”
-
-当布鲁克斯开车冲向人群时一名警察向布鲁克斯开了几枪，但因为生怕伤及旁人，不得不停止。
-
-警方说布鲁克斯面临5次一级故意谋杀指控，伴随其他可能的指控。
-目前还没有迹象显示此次事件与国内或国际恐怖主义有关。5名死亡的受害者年龄52-81岁，其中4名妇女一名男士，
-
-威州儿童医院说有16名儿童年龄3-16岁，目前主街仍然关闭，威州州长下令为此事件降半旗，各界人士也均为此祷告。
-
-##### **新闻来源： **[Police: Suspect in Wisconsin parade crash was involved in ‘domestic disturbance ‘](https://www.upi.com/Top_News/US/2021/11/22/wisconsin-waukesha-parade-suv-crash/1691637588902/)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Aus-Japan-Flag_5822.jpg.jpg)
 
 
+
+图片来源：www.defenceconnect.com.au
+
+
+#### 编译：小红帽
+
+今天，澳大利亚宣布符合条件的日本和韩国公民将能够在没有隔离的情况下来到澳大利亚，而此时澳大利亚与日本的关系从未如此密切。
+
+根据澳大利亚-日本研究中心（Australia-Japan Research Centre）一份重要报告的建议，随着该地区面临崛起的、更加自信的中共国，日本正在成为应对这一挑战最有利的合作伙伴。
+
+该中心的主任希罗·阿姆斯特朗（Shiro Armstrong）说，该建议“确实提升了 ”日本的重要性。
+
+“在贸易方面，我们享有最惠国待遇，我们提供同等的最佳待遇，”阿姆斯特朗先生告诉澳大利亚天空新闻。
+
+“但我们提出了一种新的最惠合作伙伴地位，在贸易之外，无论是人员流动还是技术协议–比如通过AUKUS（澳英美联盟）–日本应该自动被视为这些安排的延伸。”
+
+**参考新闻：**[Report reveals Australia should see Japan as ‘most favoured partner’ (msn.com)](https://www.msn.com/en-au/news/other/report-reveals-australia-should-see-japan-as-most-favoured-partner/ar-AAQYVch?ocid=msedgntp)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

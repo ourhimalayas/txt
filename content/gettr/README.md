@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/23/2021 10:05 AM (UTC)`
+
+11/22/2021 Miles Guo’s GETTR: The CCP is going to be finished soon! Many “brother countries” are demanding the CCP to fulfill its loan commitment and the promises of the Belt and Road Initiative; if the CCP couldn’t pay these countries, then they would set up diplomatic relations with Taiwan and the New Federal State of China, which is young and has real strength<br/><br/>11/22/2021 文贵盖特：中共要完了！许多兄弟国家要求中共兑现其借款和一带一路的承诺；如果中共不拿钱，这些国家就要跟台湾和既有真实力又年轻的新中国联邦建交
+![img](https://media.gettr.com/group47/getter/2021/11/23/10/05/4e507bfb-a087-10db-d4d6-4ae9d2050fc8/out.jpg)
+
+---
+
 `@miles 11/22/2021 3:36 PM (UTC)`
 
  1月22號分會健身亂聊直播
@@ -295,13 +302,6 @@ Not going to lie, I almost cried when he broke out.
 
 One Southern California Mayor takes a stand against 'totalitarian' vaccine mandates and restrictions<br/><br/>一位南加州市长反对“极权主义”的疫苗强制和限制
 ![img](https://media.gettr.com/group30/origin/2021/11/19/12/44/d0312b5b-3bec-0c25-a2b6-5783ea052271/out.jpg)
-
----
-
-`@miles 11/18/2021 8:38 PM (UTC)`
-
-11月18日: 我们的笨笨有女朋友啦～～～ 他们将过上幸福快乐的日子, 让我们见证他们的成长吧♥️♥️
-![img](https://media.gettr.com/group34/getter/2021/11/18/20/be3009f6-a3bc-188f-8da0-910bf2f63592/90ebbd9e21329ed9f42fd6b81dfc6314.jpg)
 
 ---
 
