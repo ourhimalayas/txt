@@ -2,30 +2,35 @@
 ---
 
 
-## 中共国出生率降至1978年以来最低水平
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1688732/)
+## 有声|中国人的优秀品质最终会消灭中共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1688779/)
 
-翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在“1120”三周年纪念大直播中，班农先生坦言，支撑他为中国人争取民主自由而战的动力，源自中国人的意志力、决心、对家庭与传统价值的敬奉和传承，以及尊敬家族祖先和长辈等优秀品质。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/das-ende-der-seit-1979.jpg)
+班农先生说，中国人虽然经历很多苦难，但仍保持幽默感，坚持不懈地努力生活。他看到的中国人敬业、恪尽职守、孜孜不倦的工作，每天都希望自己变得更好。中国人对知识和学习的重视程度感动着他。
+
+班农先生来自美国平民家庭，大多数家庭成员是蓝领阶级。美国和中国的老百姓具备共同的优秀品质，勤奋工作，重视家庭。正是这些优秀的品质，将终结中共的统治。因为中共推崇与老百姓对立的价值观，只关注金钱，权利和物质，信仰缺失，没有精神世界，缺乏同情和感恩之心。 
+
+班农先生说，三年前的“1120”发布会上，爆料革命将中共的罪证公之于众，震惊了世界。中共暴虐无道，视人命如草芥，违背中国人古往今来的价值观和美德。中国人基因里传承的优秀价值观念，最终会推翻中共的反人类独裁统治。
 
 
-图片来源： FAZ
 
-中共国的出生率已降至 1970 年代后期以来的最低水平。北京统计局还含糊地解释了去年因新冠大流行而导致出生人数减少 18% 至 1200 万的情况。但专家们认为，中共国的住房、教育和医疗费用高昂以及结婚意愿下降是令人担忧的发展的主要原因。
+文字版原文：[中国人的优秀品质最终会消灭中共](https://gnews.org/zh-hans/1685737/)
 
-正如统计学家在他们的新年鉴中所报告的那样，这个人口最多的国家的出生率首次回落到个位数范围内，为每 1000 人中有 8.52 个新生儿，这是自 1978 年以来的最低水平。由于出生率下降和死亡人数稳定，数十亿人口正在走向零增长。
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-北京人民大学宋健教授说：“如果这种趋势继续下去，几年后我们的人口就会减少。” “虽然年轻人口可能萎缩得更快，但老龄化问题会恶化，这将损害经济和社会发展。”
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-统计局给出的2000年至2010年人口增长率为0.53%，2000年至2010年为0.57%，育龄妇女生育率降至1.3%。这明显低于专家认为稳定人口所需的 2.1。
-
-原文链接：[信息来源： 德国法兰克福报网页版](https://www.faz.net/aktuell/gesellschaft/geburtenrate-in-china-faellt-auf-niedrigsten-stand-seit-1978-17648145.html)
-
-免责声明：本文观点只代表作者， 与Gnews平台无关
-
-编辑发布： Shuizhuyu
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,30 @@
 ---
 
 
-## 有声|纳瓦罗称，川普第二任期定与中共脱钩
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1688795/)
+## 法国总理测试呈阳性后导致多人隔离
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1688887/)
 
-配音：香草山香港部 – 文凯琳
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
 
-纳瓦罗先生在11月20日的班农战斗室节目中表示，川普总统第二任期一定会跟中共国脱钩。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/erstmal-der-letzte-kontakt-der.jpg)
 
-此外，纳瓦罗先生还提到，因为担心美方的强硬态度会促使中共取消第一阶段贸易协议，进而引发市场崩溃，甚至导致热战的可能性，时任白宫官员的姆努钦、库德洛等人，不断游说川普总统，不要再对中共国加征关税。他强调，如果现在是川普总统的第二任期，美国将采取更加强硬的措施，一定会跟中共国脱钩，而且不会参加北京冬奥会。
 
-文字版原文：[纳瓦罗称，川普第二任期定与中共脱钩](https://gnews.org/zh-hans/1684441/)
+图片来源： FAZ
 
-音频处理：喜山必胜Maverick
+法国总理让·卡斯特克斯 (Jean Castex) 在 PCR 检测结果呈阳性后于周二被隔离。比利时首相亚历山大·德克罗和其他四名比利时部长在周一早上与卡斯特克斯会面后，也不得不将自己作为联系人进行隔离。
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+自我隔离还影响到法国国防部长弗洛伦斯·帕利、内政部长杰拉尔德·达马宁、司法部长埃里克·杜邦-莫雷蒂和欧洲国务卿克莱门特·博恩。卡斯特克斯现在情况良好，他只是轻微咳嗽，他的日程安排正在修改中。
+
+他的 Covid-19 疾病在法国重新引发了关于通过全面接种疫苗的“虚假安全”的辩论。卡斯特克斯接种了两次阿斯利康疫苗。反对接种疫苗的右翼民粹主义者弗洛里安·菲利普波特 (Florian Philippot) 提到了首相 7 月 21 日接受的电视采访，当时他要求他的同胞接种疫苗。卡斯特克斯四个月前说：“疫苗接种有效。谁接种了双重疫苗，就没有生病的风险，”。据总理办公室称，他感染了他最小的 11 岁女儿，她在周日的检测结果呈阳性。
+
+在属于法国的瓜德罗普岛和马提尼克岛的加勒比海岛屿上，反对接种疫苗的人正在设置路障。瓜德罗普岛的局势尤其紧张，夜间的抗议活动已经失控。大多数情况下，他们假设失业者是由于旅游业危机而找不到工作的年轻人。政府已向该岛派遣了特警部队，但到目前为止还没有考虑到抗议活动的社会层面。
+
+原文链接：[信息来源： 德国法兰克福报网页版](https://www.faz.net/aktuell/politik/ausland/franzoesische-regierung-in-quarantaene-trotz-corona-impfung-17648110.html)
+
+免责声明：本文观点只代表作者， 与Gnews平台无关
+
+编辑发布： Shuizhuyu
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

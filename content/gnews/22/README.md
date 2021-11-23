@@ -2,24 +2,30 @@
 ---
 
 
-## 中共外交部称彭帅事件不应被政治化 只字不敢提张高丽
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688686/)
+## 有声|荷兰爆发反对新冠措施抗议活动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1688773/)
 
-撰稿：东京樱花团/Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-19.jpg)
-[图片来源](https://www.cna.com.tw/news/firstnews/202111200097.aspx)
+配音：香草山香港部 – 文凯琳
 
-据路透北京11月23日报道，中共外交部发言人赵立坚周二称，网球运动员彭帅事件不应被政治化。他在例行记者会上并表示，希望某些人停止恶意炒作此事。
+当地时间11月19日，反对荷兰政府的“新冠通行证”计划，鹿特丹爆发反对新冠防疫措施的抗议活动。
 
-彭帅事件牵涉国务院副总理张高丽，本就是一件政治事件，作为国家领导人本应为全国人做出表率。领导人的事不是私事，事关全体中国人的民主自由法治，理应被重视，而中共宣传从来是为当权者服务，视民众为草芥。外交部发言人说出这种霸王式说辞亦不足为怪。
+据悉，该“新冠通行证”计划规定，只有接种了疫苗、检测成阴性，或者已经痊愈的人，才能获得的“新冠通行证”。人们需出示该通行证，才被允许进入餐厅、酒吧等室内场所。
 
-信息来源：[中国外交部称彭帅事件不应被政治化 希望某些人停止恶意炒作](https://cn.reuters.com/article/china-mofa-pengshuai-1123-idCNKBS2I80IL)
+而原定于20日的抗议活动，因19日当天的骚乱被取消。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
+文字版原文：[荷兰爆发反对新冠措施抗议活动](https://gnews.org/zh-hans/1684444/)
 
+音频处理：喜山必胜Maverick
 
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

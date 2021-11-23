@@ -2,44 +2,36 @@
 ---
 
 
-## 亨特·拜登协助中共国公司收购刚果钴矿
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1688670/)
+## 多家足球俱乐部因“烂房烂账”而导致资金链断裂
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1688740/)
 
-#### 撰稿：日本东京方舟农场  海星
+作者：日本方舟农场 Andy5
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月22日，综合网络媒体报道，墙内多家中超俱乐部出现资金短缺，欠薪，球队面临解散，以及球员网上讨薪，退出的现象。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-23-下午9.24.56.png)
+近一段时间以来，中超俱乐部欠薪超过3个月的不在少数，其中有些球队甚至已经长达半年。例如，河北足球俱乐部无力缴纳水电费，要员工自行垫付才能参加足协杯。重庆两江球队的球员在网上通过公开信讨要薪资。广州俱乐部也面临无法负担大牌球员的薪资，球员们要接受事实上解约或降薪的窘境。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/EC310BC7-E839-470D-8922-AAB88D2F76F2.jpeg)（图片来源：路透社）
+据查询，以上三家俱乐部资金链断裂的原因，与近期恒大爆雷事件相关。河北俱乐部的资金方是已爆美债违约的华夏幸福；重庆两江俱乐部背后，则是近期持续清仓股票的武汉当代集团；广州俱乐部背后无疑就是恒大。这些事件从侧面反映出，一方面，引起中共房地产崩溃的绝不只恒大一家，另一方面，房地产的爆雷正在向其他业界蔓延。
 
-11月20日，《纽约时报》揭露美国总统拜登的儿子亨特·拜登（Hunter Biden）旗下的公司在2016年协助中共国公司收购了刚果的钴矿。
+参考链接：
+1）[河北队已停工放假、或解散退出，中超多队运营艰难](https://finance.sina.com.cn/tech/2021-10-27/doc-iktzqtyu3814328.shtml)
+2）[重庆球员公开信：我们正遭受欠薪 望社会各界给予支持](https://www.sohu.com/a/502397853_463728)
+3）[广州两队新投资方仍在商谈中 广药欲接手广州队受困体量太大](https://www.sohu.com/a/502724759_463728) 
+4）[旗下两上市公司拟清仓华泰保险，当代集团能“瘦身”成功吗？](https://finance.sina.com.cn/jjxw/2021-11-21/doc-iktzqtyu8687276.shtml)
 
-据《自由时报》报道，一篇于11月20日发表在《纽约时报》的文章，揭露了美国总统拜登的儿子亨特·拜登参与成立的公司，曾在2016年帮助中共国公司收购了位于刚果民主共和国面积达1500平方公里的钴矿矿脉。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-报道指出，亨特在2013年与两名美国人及中共国合伙人共同成立了渤海华美（上海）股权投资基金管理有限公司（BHR）。美方三人持股30％，均担任董事；其余股份则由中国银行等中共国投资者持有或控制。
+总编：飞虹
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-2016年，中国洛阳钼业公司（China Molybdenum）欲斥资26.5亿美元买下美国费利浦·麦克莫兰铜金公司（Freeport-McMoRan）持有的刚果Tenke Fungurume钴矿股份。但相关条款规定，若该美企有意出售股权，加拿大矿产公司 Lundin Mining享有优先收购权。
-
-于是，洛阳钼业与亨特的BHR公司达成协议，先由BHR出资11.4亿美元收购Lundin Mining的股份，之后洛阳钼业于2019年再从BHR手中买回股份。至此，洛阳钼业已持Tenke Fungurume钴矿80％的股份。
-
-该报道进一步揭露，BHR收购股份的资金全部来自中共国国营公司，而洛阳钼业除了向中国建设银行等国营银行融资7亿美元外，其余款项全是由BHR向中国建设银行旗下的离岸公司等隐蔽公司筹措而得。
-
-据悉，钴是电动汽车所用电池的一个关键组成部分，据估算，地球上钴储量的67%都分布在刚果民主共和国。
-
-此前，美国政府曾发出警告称，中共正日益占据钴的主导地位，并可能会借此扰乱美国汽车工业更换机械设备的计划，增加美国发展电动车的阻力。
-
-*参考链接：*
-
-1. [*https://news.ltn.com.tw/news/world/paper/1486000*](https://news.ltn.com.tw/news/world/paper/1486000)
-2. [*https://news.ltn.com.tw/news/world/breakingnews/3743851*](https://news.ltn.com.tw/news/world/breakingnews/3743851)
-3. [*https://gettr.com/post/phjqyh3837*](https://gettr.com/post/phjqyh3837)
-
-
-* * *
-
-*素材采编：海星*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
