@@ -2,29 +2,26 @@
 ---
 
 
-## 英国健康安全机构：完全接种疫苗者感染率更高
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1688242/)
+## 受中共病毒与中共武力双重威胁，越南总理访日寻求合作
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688306/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2021/11/231-1.jpg)图片来源于网络
-近日，英国健康安全机构（UK Health Security Agency）公布了最新的CCP病毒疫苗监控报道。该报道显示，目前主要的CCP病毒感染、重症监护以及死亡案例大多都来自完全接种疫苗，及注射两针之后的人群。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-26.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Frs1.huanqiucdn.cn%2Fdp%2Fapi%2Ffiles%2FimageDir%2F3a98270572a8b36a0a2dd69336a18ea3u5.jpg&amp;imgrefurl=https%3A%2F%2Fworld.huanqiu.com%2Farticle%2F45hgfEDVEx1&amp;tbnid=oygxocigfPwn1M&amp;vet=12ahUKEwig9-uzpq70AhU6CbcAHV2xD6EQMygAegUIARCdAQ..i&amp;docid=G8N_hSMaRAkCVM&amp;w=450&amp;h=384&amp;itg=1&amp;q=%E8%B6%8A%E5%8D%97%E6%80%BB%E7%90%86%E8%AE%BF%E6%97%A5&amp;ved=2ahUKEwig9-uzpq70AhU6CbcAHV2xD6EQMygAegUIARCdAQ)
+越南总理范明政11月22日晚抵达日本，开启了其为期4天的访问。范明政在接受本台NHK的采访时表示，希望此访能使越南与日本的关系更为紧密。范明政是岸田文雄就任日本首相后首位到访日本的首脑级外宾。
 
-而这个冬天对于接种疫苗的人来说也将十分艰难，根据报告中的细节，我们发现目前完全接种疫苗人群的病毒感染率要比未接种疫苗群体更高，于此同时死亡率也高出了124%，也就是一倍还要多——这与主流媒体和主要国家政府所说的“疫苗能够帮助避免重症和死亡”完全不同。
+范明政此次以书面形式接受了本台NHK的采访，他说：“我非常荣幸成为日本新政府正式邀请赴日访问的首位首脑。”在此之上，范明政还表示，“越南希望为了地区和世界的和平稳定、发展与繁荣，将两国关系推上一个新台阶”，从而表达了希望通过此访加强越日双边关系的意愿。此外，范明政还表示，希望在经济和安保领域与日本进一步开展合作。
 
-在一组时间窗口为2021年10月18日至2021年11月14日的最新数据中，记录在案的病例总共有大约八十五万被感染者，超过九千七百位重症监护者，以及三千六百五十位死亡案例。而接种疫苗者在感染案例、重症病例和死亡病例中大约分别占据60%、67%和82%的比例。
+据分析，越南希望重振受到中共病毒疫情冲击的制造业等产业，在安保方面考虑的则是与中国等存在主权纷争的南海问题。
 
-主流媒体在没有搞清楚今年冬季的严峻形式之下就贸然对未接种疫苗的群体展开攻击，并且刻意地带节奏带风向，支持对于未接种疫苗者的封锁和限制。然而目前最危险实际上确实已经完全接种了疫苗的群体，他们才是易感人群和最为脆弱的。
+范明政将在访日期间与岸田首相等举行会谈，并计划在日本贸易振兴机构（JETRO）举办的活动上发表演讲。
 
-自从2021年8月份之后，绝大多数感染者都来自完成两剂疫苗注射的群体。于此相反，未接种疫苗群体的病例数目在过去两个月内呈现出下降趋势，——证明了未接种疫苗者不是疫情爆发或者令疫情难以消除的根源。
+消息来源:
 
-而在根据预测，在未来接种疫苗者的感染情况还会持续恶化， 尤其是当前许多青少年及儿童也已经开始了第一针疫苗的注射。
+[越南总理范明政访日](https://www3.nhk.or.jp/nhkworld/zh/news/334258/)
 
-总体而言，目前英格兰地区持续的疫情并非有未接种疫苗群体为主，相反是以接种疫苗者为主，并且形势存在一定的失控趋势。
-
-参考链接：[Daily Expose](https://dailyexpose.uk/2021/11/19/latest-ukhsa-report-proves-this-is-a-pandemic-of-the-fully-vaccinated/)
-
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/TA1.jpg)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

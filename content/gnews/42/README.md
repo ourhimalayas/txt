@@ -2,24 +2,41 @@
 ---
 
 
-## COVID-19 最新情报｜德国卫生部长发出威胁式警告：到冬季结束，德国人有三种选择：打针、治愈、死亡
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1687587/)
+## 文贵先生盖特直播对战友忠告
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1687706/)
 
-**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜23/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+撰稿：纽约香草山农场健身部– 文鹰
 
-近期，德国单日 COVID-19 确诊病例数屡破纪录，处于疫情爆发以来最危急的时刻，卫生部长延斯·斯潘（Jens Spahn）周一（22日）召开紧急新闻发布会，表示“到今年冬天结束，正如那些冷嘲热讽的言论一样，几乎所有的德国人，要么接种疫苗、要么治愈或者死亡。”他强调，这是他迄今为止对坚持不接种疫苗者发出的最严厉警告。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo.png)
 
-德国目前的疫苗接种率已接近七成，据罗伯特·科赫研究所 (Robert Koch Institute) 周一的报告指，德国每周每 10 万人仍有 387 例 COVID-19 确诊病例，创历史新高。很明显，斯潘部长将这一现象归咎于未接种疫苗的三成人身上。
 
-关于疫苗安全性的问题，斯潘否认了民众对卫生部门有刻意掩盖疫苗伤亡个案的指控，他引述德国疫苗监管机构的负责人 Klaus Cichutek 的评论，“疫苗在安全性方面没有问题，副作用方面更是罕有发生，每 10 万例不到 10 例。”
 
-他认为，BioNTech 和 Moderna 疫苗是 COVID-19 疫苗的梅赛德斯和劳斯莱斯，呼吁民众选择时，可考虑优先接受 Moderna，因为大量 Moderna 疫苗将在 2022 年初到期。斯潘又指，到今年年底，德国将有 5000 万剂冠状病毒疫苗可用——其中 2400 万剂来自 BioNTech，其余 2600 万剂来自 Moderna，“这就是为什么我们如此迫切地建议接种疫苗。”
 
-**最后，他还补充指，料欧盟将在本周末批准将疫苗用于 5 至 11 岁儿童。**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-15.jpg)
-来源｜[Politico](https://www.politico.eu/article/jens-spahn-germany-biontech-pfizer-covid-19-vaccination/)
+
+美东时间11月22日，郭文贵先生在盖特直播。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-593.png)图片来自盖特
+文贵先生一边健身，一边直播，提醒战友们千万不要忘了健身：“不管您有什么理由，不管您有钱还是有权有名，千万不要有任何侥幸心理。没有了身体健康，什么都完了”！
+
+文贵先生和大家分享，喜币的价格仅仅是其价值的很多分之一。最重要的是它的支付系统，流通系统，去中心化的区块链技术，以及20%的储备黄金。文贵先生告诉战友们，这些都是全世界最核心的技术。但是，如果喜币不流通，不支付，没有喜贷款，没有更多机构接受和进场，所有的数据都不真实的。对于喜币的未来而言，文贵先生做出的判断是一切尚早，甚至可以说一切都没开始。文贵先生最后忠告战友们，尽管你有喜币和投资，只要你忘了灭掉共产党的使命，那是绝对不行的。战友们得到的一切利益，是因为和新中国联邦绑定在一起才有的。灭掉共产党是我们的目标，你做任何和这一个目标违背的事情，那都是不行的。 不消灭共产党的邪恶体制，世界将永无宁日，谁也无法获得安全。
+
+新闻链接：[1月22號分會健身亂聊直播](https://gettr.com/post/phm51a8243)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-2.jpg)
+
+总编：文特
+
+编辑：Ivy001
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-7.png)
 
  
 

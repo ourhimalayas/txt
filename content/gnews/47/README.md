@@ -2,32 +2,40 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月22日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1687250/)
+## 报告建议澳洲应将日本视为应对中共 “最有利的伙伴”
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1687366/)
 
-作者：香草山翻译部
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-7.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Aus-Japan-Flag_5822.jpg.jpg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1122text-SC.png)
-校对：Stay文苑
 
-编辑：Stay文苑
+图片来源：www.defenceconnect.com.au
 
-发稿：Stay文苑
 
-视频参看：[11.22  晚GTV新闻访谈](https://gtv.org/broadcast/watch/619c43bbcbfd016d6378e969)
+#### 编译：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-8.jpg)
+今天，澳大利亚宣布符合条件的日本和韩国公民将能够在没有隔离的情况下来到澳大利亚，而此时澳大利亚与日本的关系从未如此密切。
 
-**更多资讯，更多关注**
+根据澳大利亚-日本研究中心（Australia-Japan Research Centre）一份重要报告的建议，随着该地区面临崛起的、更加自信的中共国，日本正在成为应对这一挑战最有利的合作伙伴。
 
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://紐約香草山農場%20%20|%20GTV-香草山之聲%20紐約香草山農場GTV-%20|%20MOS%20TALK%20香草山訪談%20紐約香草山農場%20|%20GETTR%20紐約香草山農場%20｜YouTube%20歡迎加入香草山農場%20%20|%20Discord)
+该中心的主任希罗·阿姆斯特朗（Shiro Armstrong）说，该建议“确实提升了 ”日本的重要性。
+
+“在贸易方面，我们享有最惠国待遇，我们提供同等的最佳待遇，”阿姆斯特朗先生告诉澳大利亚天空新闻。
+
+“但我们提出了一种新的最惠合作伙伴地位，在贸易之外，无论是人员流动还是技术协议–比如通过AUKUS（澳英美联盟）–日本应该自动被视为这些安排的延伸。”
+
+**参考新闻：**[Report reveals Australia should see Japan as ‘most favoured partner’ (msn.com)](https://www.msn.com/en-au/news/other/report-reveals-australia-should-see-japan-as-most-favoured-partner/ar-AAQYVch?ocid=msedgntp)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
