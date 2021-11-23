@@ -2,29 +2,24 @@
 ---
 
 
-## 英国健康安全机构：完全接种疫苗者感染率更高
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1688242/)
+## 岸田文雄与泰国总理会谈，强烈反对中共海上霸权
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688298/)
 
-撰稿：Gradient Boost
-![](https://assets.gnews.org/wp-content/uploads/2021/11/231-1.jpg)图片来源于网络
-近日，英国健康安全机构（UK Health Security Agency）公布了最新的CCP病毒疫苗监控报道。该报道显示，目前主要的CCP病毒感染、重症监护以及死亡案例大多都来自完全接种疫苗，及注射两针之后的人群。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-47.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww3.nhk.or.jp%2Fnhkworld%2Fupld%2Fthumbnails%2Fzh%2Fnews%2F334259_16234_L.JPG&amp;imgrefurl=https%3A%2F%2Fwww3.nhk.or.jp%2Fnhkworld%2Fzh%2Fnews%2F334259%2F&amp;tbnid=vldd1oKnYaMBhM&amp;vet=12ahUKEwi2rpHmpa70AhWcnEsFHQl0BUYQMygAegQIARB2..i&amp;docid=rtOra4742n5QPM&amp;w=640&amp;h=360&amp;q=%E5%B2%B8%E7%94%B0%20%E6%B3%B0%E5%9B%BD&amp;ved=2ahUKEwi2rpHmpa70AhWcnEsFHQl0BUYQMygAegQIARB2)
+日本首相岸田文雄11月22日晚间，与泰国总理巴育举行了就任后的首次电话会谈，并确认与两国加强合作，促进双边关系进一步发展。
 
-而这个冬天对于接种疫苗的人来说也将十分艰难，根据报告中的细节，我们发现目前完全接种疫苗人群的病毒感染率要比未接种疫苗群体更高，于此同时死亡率也高出了124%，也就是一倍还要多——这与主流媒体和主要国家政府所说的“疫苗能够帮助避免重症和死亡”完全不同。
+在与泰国总理巴育的会谈中，岸田表示：“希望进一步发展两国之间的‘战略合作伙伴关系’，为实现‘自由开放的印太地区’而加强合作。”对此，巴育总理回应称：“为了推动双边关系进一步发展，希望密切开展合作。”
 
-在一组时间窗口为2021年10月18日至2021年11月14日的最新数据中，记录在案的病例总共有大约八十五万被感染者，超过九千七百位重症监护者，以及三千六百五十位死亡案例。而接种疫苗者在感染案例、重症病例和死亡病例中大约分别占据60%、67%和82%的比例。
+围绕地区局势问题，在考虑到中共国相关活动的背景下，岸田指出：“日本强烈反对试图单方面改变东海及南海现状的行为。”两国首脑还就改变缅甸局势问题表示将进一步携手合作。
 
-主流媒体在没有搞清楚今年冬季的严峻形式之下就贸然对未接种疫苗的群体展开攻击，并且刻意地带节奏带风向，支持对于未接种疫苗者的封锁和限制。然而目前最危险实际上确实已经完全接种了疫苗的群体，他们才是易感人群和最为脆弱的。
+消息来源:
 
-自从2021年8月份之后，绝大多数感染者都来自完成两剂疫苗注射的群体。于此相反，未接种疫苗群体的病例数目在过去两个月内呈现出下降趋势，——证明了未接种疫苗者不是疫情爆发或者令疫情难以消除的根源。
+[岸田与泰国新加坡首脑举行电话会谈](https://www3.nhk.or.jp/nhkworld/zh/news/334259/)
 
-而在根据预测，在未来接种疫苗者的感染情况还会持续恶化， 尤其是当前许多青少年及儿童也已经开始了第一针疫苗的注射。
-
-总体而言，目前英格兰地区持续的疫情并非有未接种疫苗群体为主，相反是以接种疫苗者为主，并且形势存在一定的失控趋势。
-
-参考链接：[Daily Expose](https://dailyexpose.uk/2021/11/19/latest-ukhsa-report-proves-this-is-a-pandemic-of-the-fully-vaccinated/)
-
-*发稿：mgjxs*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/TA1.jpg)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

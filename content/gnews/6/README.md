@@ -2,35 +2,43 @@
 ---
 
 
-## “拜习会”前中美“互释”公民
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1688602/)
+## 美田纳西州州长邀未接种疫苗警察入队
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1688619/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+**By:秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7C1567AA-D769-4C3C-A917-A925DC81D50C.jpeg)（图片来自美联社）
+***2021-11-23***
+[![](https://assets.gnews.org/wp-content/uploads/2021/11/1123-2.jpg)](https://gtv.org/broadcast/watch/619cace057529032f6597a1b)点击图片观看视频
+**新闻摘要:**
 
-《路透社》近日报道称，在美国总统拜登和中共领导人习近平举行视频峰会之前，美国遣返了七名被判有罪的中共国公民，而中共国方面则解除了一名美籍华人的离境限制。
+1. 中国地下水污染严重 水利部承认治污难度大
 
-报道称，在美籍华人丹尼尔·徐（音）被中共解除离境限制的同时，美国也遣返了七名被判有罪的中共国公民，包括中国银行某分行前行长许国俊、被判犯有诈骗罪的两人、因拍摄国防设施而被定罪的两人，以及2019年试图闯入前总统川普的海湖庄园的两名女性。
+2. 北电学生抗议防疫封校 制自关铁笼艺术品遭封杀
 
-获准离开的丹尼尔·徐在中共国未曾被定罪，但四年多来一直被限制离境。徐去年告诉《美联社》，自 2017 年以来，中共当局一直将他扣为人质，以此要挟他的父亲回到中共国并面对挪用公款的指控。《美联社》的报道称，徐先生的父亲徐维铭否认了这些指控。
+3. 中共国31省市乡村男女比例失衡 上海北京最严重
 
-丹尼尔·徐已于11月15日晚回到美国，那时恰逢拜登总统与中共领导人习近平正在举行视频会议。对此，美国的一位政府官员否认这是事关“拜习会”两国条件交换的一部分。而中（共）国驻华盛顿大使馆没有立即发表评论。
+4. 班农先生：与中共合作的全球主义者希望像中共一样拥有极权统治
 
-*参考链接：*
+5. 中共拿台企开刀 警告台独问题选边站
 
-1. [*https://www.reuters.com/world/exclusive-american-barred-leaving-china-returned-us-before-biden-xi-meeting-2021-11-18/*](https://www.reuters.com/world/exclusive-american-barred-leaving-china-returned-us-before-biden-xi-meeting-2021-11-18/)
-2. [*https://cn.nytimes.com/china/20211122/us-china-exit-ban-deport/?utm\_source=top10-in-article&utm\_medium=articlepage&utm\_campaign=web*](https://cn.nytimes.com/china/20211122/us-china-exit-ban-deport/?utm_source=top10-in-article&amp;utm_medium=articlepage&amp;utm_campaign=web)
+6. 中共高超音速武器在南海发射一枚导弹
 
+7.  美田纳西州州长邀未接种疫苗警察入队
+
+8. 澳现代版“奥斯维辛”集中营投入使用
+
+9. 智库爆美国首入「民主倒退」名单
+
+10. 法国总理卡斯特克斯被确认感染中共病毒
+
+**GTV链接：**[https://gtv.org/broadcast/watch/619cace057529032f6597a1b](https://gtv.org/broadcast/watch/619cace057529032f6597a1b)
+
+发布: 文橙
 
 * * *
 
-*素材采编：幽蘭自得*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
-
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

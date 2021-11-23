@@ -2,26 +2,26 @@
 ---
 
 
-## 中共国第一家沃尔玛超市即将关闭
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688636/)
+## 美国12月召开民主峰会 台湾受宠中共遭抛弃
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688678/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-40.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fcdn.corporate.walmart.com%2Fdims4%2FWMT%2F5c437f5%2F2147483647%2Fcrop%2F5760x3237%252B0%252B593%2Fresize%2F1000x562%253E%2Fquality%2F90%2F%3Furl%3Dhttps%253A%252F%252Fcdn.corporate.walmart.com%252F80%252Faa%252F3b532f56400d96b21d13f518d076%252Fcfs-2037-walmart-china-lead-28.jpg&amp;imgrefurl=http%3A%2F%2Fwww.walmartfoodsafetychina.com%2Fabout-us%2Fabout-walmart-china&amp;tbnid=hWUuNsBriJvioM&amp;vet=12ahUKEwjt4buuta70AhVZmUsFHVCCBtUQMygEegUIARCpAQ..i&amp;docid=3_hMceD88MyCuM&amp;w=1000&amp;h=562&amp;q=%E6%B2%83%E5%B0%94%E7%8E%9B&amp;ved=2ahUKEwjt4buuta70AhVZmUsFHVCCBtUQMygEegUIARCpAQ)
+撰稿：东京樱花团/Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-9.png)
+[图片来源](https://www.news-europe.fr/countries/armenia/2021/11/05/president-joe-biden-has-invited-armenia-to-his-upcoming-summit-for-democracy-turkey-and-azerbaijan-are-no-armenian-news-by-massispost/)
 
-11月23日新京报讯报道，位于深圳的中国大陆第一家沃尔玛即将停业，中国大陆第一家沃尔玛门店即将关闭一事，新京报记者联系沃尔玛相关负责人。对方回应称，因业主即将对物业进行整体升级改造，位于深圳市罗湖区洪湖路湖景花园的沃尔玛门店将于2021年12月7日起停止营业。
+据“看中国新闻网”11月23日消息，12月9日至10日主办拜登政府的第一次民主峰会（Summit for Democracy），这次峰会为视频形式，参加国家预计超过100，不过中共国没有在受邀名单上，而对岸的台湾则确认已经收到邀请。
 
-在过去近6年里，沃尔玛在国内的门店已经关闭近80家。其中，今年8月10日，北京沃尔玛朝阳店停止营业。据当时的公告显示沃尔玛此店关闭后，北京还有10家沃尔玛门店，其中包括沃尔玛购物广场7家、山姆会员店3家。
+根据白宫发布的一份声明说：“将于12月9日至10日举行的虚拟（民主）峰会将激发跨越三个主要主题的承诺和倡议：抵御威权主义、打击腐败和促进对人权的尊重。”
 
-除沃尔玛之外，今年4月，在济南经营17年的家乐福解放桥店悄然闭店。今年5月，沈阳家乐福哈尔滨路店（惠工店）宣布于5月31日起停止经营，家乐福将关闭国内近一半的传统超市。
+获邀参加民主峰会的国家名单还没有正式公布，但是据悉华府的政治新闻网站Politico已经看到了这份国家名单。根据Politico透露出来的消息，美国已经邀请了台湾参加12月民主峰会，而中共国和俄罗斯并没有在受邀名单上。
 
-在过去的4年时间沃尔玛关闭80家门店，位于深圳洪湖的这家沃尔玛，诞生于1996年，是深圳乃至中共国内地第一家沃尔玛超市。历经25年，见证了中共国翻腾腹地的变化，从诞生到如今宣布关闭，是一个时代的结束。
+近年来，中共投放病毒，控制香港，灭绝新疆，推广疫苗，作恶多端，国际社会逐渐生厌，逐步被国际社会抛弃成为必然。
 
 信息来源：
 
-[中国大陆第一家沃尔玛12月关门，回应称因业主对物业升级改造](https://ms.mbd.baidu.com/r/wRnmovGRDq?f=cp&amp;rs=3546228816&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=bcf134246174d357)
+[美国12月召开民主峰会 有请台湾没请中共](https://m.secretchina.com/news/gb/2021/11/23/990316.html)
 
-校对：东京樱花团/知了知了
+编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/yuxingcao01
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
 

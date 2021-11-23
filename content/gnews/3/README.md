@@ -2,43 +2,26 @@
 ---
 
 
-## 美田纳西州州长邀未接种疫苗警察入队
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1688619/)
+## 中共地方债务违约节节攀升
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688663/)
 
-**By:秘翻新闻**
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-27.jpg)
+[图片来源](https://www.google.com/search?q=%E5%9C%B0%E6%96%B9%E5%80%BA&amp;tbm=isch&amp;ved=2ahUKEwjt4buuta70AhVZmUsFHVCCBtUQ2-cCegQIABAA&amp;oq=%E5%9C%B0%E6%96%B9%E5%80%BA&amp;gs_lcp=CgNpbWcQAzIFCAAQgAQyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBgyBAgAEBg6BwgjEO8DECc6CggjEO8DEOoCECc6BwgAEIAEEAxQ0wVYxEpgqExoC3AAeACAAdkEiAHUEJIBCTAuOC4yLjUtMZgBAKABAaoBC2d3cy13aXotaW1nsAEKwAEB&amp;sclient=img&amp;ei=TtWcYe2CJtmyrtoP0ISaqA0&amp;bih=625&amp;biw=1366&amp;rlz=1C1YKST_enUS900US901#imgrc=oEyKDzMebCB0fM)
 
-***2021-11-23***
-[![](https://assets.gnews.org/wp-content/uploads/2021/11/1123-2.jpg)](https://gtv.org/broadcast/watch/619cace057529032f6597a1b)点击图片观看视频
-**新闻摘要:**
+11月23日每日经济报报道，财政部公布2021年10月地方政府债券发行和债务余额情况。2021年10月，全国发行地方政府债券8761亿元。其中，发行一般债券2320亿元，发行专项债券6441亿元；按用途划分，发行新增债券6145亿元，发行再融资债券2616亿元。2021年1—10月，全国发行地方政府债券64916亿元。其中，发行一般债券24705亿元，发行专项债券40211亿元；按用途划分，发行新增债券36625亿元，发行再融资债券28291亿元。
 
-1. 中国地下水污染严重 水利部承认治污难度大
+中共国每年存量债务到期额均在4.4万亿元以上，其中，2021年到期额达5.82万亿元，中共国二十年的GDP增长刚好是债务的增长，说明了房企债务违约，地方债违约，面对不断加大的付息压力，违约债务随时可以让地方政府爆发债务危机，让地方政府破产。
 
-2. 北电学生抗议防疫封校 制自关铁笼艺术品遭封杀
+信息来源：
 
-3. 中共国31省市乡村男女比例失衡 上海北京最严重
+[财政部：10月全国发行地方政府债券8761亿元](https://me.mbd.baidu.com/r/wRMXMvgMxi?f=cp&amp;rs=3438845515&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=c8b2cb6f8188055e)
 
-4. 班农先生：与中共合作的全球主义者希望像中共一样拥有极权统治
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
 
-5. 中共拿台企开刀 警告台独问题选边站
 
-6. 中共高超音速武器在南海发射一枚导弹
-
-7.  美田纳西州州长邀未接种疫苗警察入队
-
-8. 澳现代版“奥斯维辛”集中营投入使用
-
-9. 智库爆美国首入「民主倒退」名单
-
-10. 法国总理卡斯特克斯被确认感染中共病毒
-
-**GTV链接：**[https://gtv.org/broadcast/watch/619cace057529032f6597a1b](https://gtv.org/broadcast/watch/619cace057529032f6597a1b)
-
-发布: 文橙
-
-* * *
-
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

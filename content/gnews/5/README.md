@@ -2,51 +2,41 @@
 ---
 
 
-## 明知mRNA疫苗对孕妇不安全，但CDC和FDA仍然推荐接种
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1688606/)
+## 美国一地方法院要求FDA提供用于批准辉瑞疫苗的数据
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1688630/)
 
-翻译：皮特
-编辑：文泓
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-13.jpeg)图片来源：Kernodle Clinic
-现在，美国VAERS（疫苗不良事件报告系统）中已记录了2,433例胎儿死亡，这些死亡病例来自注射了任意一种新冠疫苗的孕妇。其中绝大多数来自辉瑞（Pfizer）疫苗（1,862例死亡）和，莫德纳疫苗（656例死亡）。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/FDAFEATURE-810x4421-1.jpg)网络图片
 
-**在过去11个月中，（孕妇）接种****新冠****疫苗导致的胎儿死亡人数，比过去30年中（孕妇）接种****所有****疫苗的胎儿死亡人数都高。**
+2021 年11月15日，美国德克萨斯州北区地方法院要求食品和药物管理局（FDA）出具用于批准辉瑞-生物科技（Pfizer-BioNTech）的mRNA预防疗法的数据。这种治疗法正被错误地宣传为“疫苗”。
 
-2021年10月，《新英格兰医学杂志》承认，**CDC****和****FDA****向孕妇推荐注射疫苗的原始研究是有缺陷的。 **
+原告是一个名为“公共卫生和医疗专业人士捍卫透明度”的组织（Public Health and Medical Professionals for Transparency）。他们在诉讼状中指出，FDA无意公布那些用于药品授权审核的数据，以及用于证明联邦疫苗强制令合理性的数据。公布这些数据要等上半个世纪之久。
 
-此后，新西兰的[专业团队](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://cf5e727d-d02d-4d71-89ff-9fe2d3ad957f.filesusr.com/ugd/adf864_2bd97450072f4364a65e5cf1d7384dd4.pdf)对**原始数据**进行[了新的研究](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://cf5e727d-d02d-4d71-89ff-9fe2d3ad957f.filesusr.com/ugd/adf864_2bd97450072f4364a65e5cf1d7384dd4.pdf)，得出的结论是：
+诉讼状称：“FDA已提议每月提交500页的文件，根据页数的计算，这意味着完成提交全部文件要用近55年的时间（即 2076 年）。”“在辉瑞公司向FDA提交全部文件完成之前，作为原告成员的独立科学家不可能进行有效而恰当的分析。”
 
-**对结果重新分析表明，自然流产的累积发生概率在82%(104/127)到91%(104/114)之间，比原研究人员的结论高7-8倍。**
+“从辉瑞公司于2021年5月7日开始为申请许可证做记录，到2021年8月23日该产品获得许可证，FDA仅用了108天整，” 诉讼状继续说道。
 
-尽管对原始数据的正确分析表明，如果胎儿不到20周时，孕妇注射新冠疫苗会有82%至91%的机会流产，**但****CDC****和****FDA****仍然继续推荐孕妇注射疫苗**。
+“FDA的上级部门，即卫生与公众服务部（HHS），已完全免除辉瑞公司对其产品造成的任何伤害所承担财务责任。这一事实迫使人们更加需要增加对该产品的透明度。
 
-VAERS只是一个被动记录系统，会严重低估结果。CDC和FDA从未进行研究来确定漏报的因素是什么。有科学家已经进行了研究，我们之前也发表了**杰西卡·罗斯博士的分析，他确定保守的估算也要****乘以41（倍）****。**看吧：
+“如果有人受伤——包括那些连联邦卫生当局承认是由辉瑞公司的产品造成的任何一种伤害——受伤的人实际上无追索权，”该法院还指出。“根据HHS的声明，辉瑞公司不能因任何伤害而被起诉，也不能因对其产品有故意不当行为而被起诉，除非一直在推广该产品的HHS同意提出此类索赔。”
 
-[政府数据显示，在接种新冠疫苗后，美国至少有150,000人可能死亡](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://healthimpactnews.com/2021/study-governments-own-data-reveals-that-at-least-150000-probably-dead-in-u-s-following-covid-19-vaccines/)。这意味着到目前为止，**在注射****新冠****后可能已经至少有****99,753****名胎儿死亡**。
+“公众可访问辉瑞公司提交的用于申请产品许可证的文件和数据的权利被剥夺。与此同时，公众却被强制接受该产品，但他们如果遭受任何不良反应，则没有能力起诉辉瑞公司要求赔偿。事情的逻辑不应该是这样的！”诉讼状补充说。
 
-我们上个月制作的视频报告，其中包含一些非常不幸的可怕例子，说明了新冠疫苗对胎儿的影响。
+简评：
 
-同期，我得知了网上流传的一段英国殡仪馆长的采访视频。
+辉瑞疫苗只用了短短108天就拿到FDA的许可证，并对可能出现的一切不良后果概不负责。这种不寻常的审批速度和免责声明促使美国人不得不大声问出“为什么？”是怎样的力量可以使政府部门一边倒地将利益倾向医药厂商而不顾普通民众的生命和权益？又是怎样的力量使得所谓的专家们可以强取人们对政府和对以往成功疫苗信任，在数据不全的情况下，草草为之放行？不仅美国人而且全世界都在目睹历史上最不堪的偷梁换柱的一幕。然而，正如郭文贵先生所指出的那样，即使美国政府里的一些人被贪欲所驱使，但只要美国三权分立的制度还在，就会有正义的声音发出来，通过独立的司法体系遏制联邦政府对美国人的权利的侵犯。这也正是文贵先生引领的爆料革命和新中国联邦所为之奋斗的目标，促使被共产党的谎言洗脑了七十年的中华大地回归正常社会，人心回归正道，真正融入世界文明。
 
-他已经从业3年多，自称是卫斯理（Wesley），并接受了名为自媒体英国抵抗运动的采访。
+新闻链接: [FDA Tells the Courts: Sure, Americans Can See Full Data Used to Justify Vaccine Mandates… in 55 YEARS](https://beckernews.com/44-new-fda-tells-the-courts-sure-americans-see-data-used-to-justify-vaccine-mandates-in-55-years-43074/)
 
-他指出，去年秋天几乎是死亡人数最少的时期，但是当有了新冠疫苗后，死亡人数开始急剧增加。
+* * *
 
-**先是从老年人开始，但到了****4****月，有大量****30****到****40****多岁的人（死亡），许多是死于心肌炎。**
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-**现在，他们看到了前所未有的新生儿死亡，尸体堆积在医院的冰箱里。他说，有的是足月，有的是早产。**
 
-英国最初建议孕妇和哺乳期母亲不要接种实验性新冠疫苗，但与美国的CDC一样，他们最终改变了建议，鼓励孕妇接种疫苗。
+编辑：【英国伦敦喜庄园编辑部】
 
-关于mRNA疫苗还有很多的采访。
-
-**发布：**kk
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
