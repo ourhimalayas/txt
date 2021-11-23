@@ -2,44 +2,29 @@
 ---
 
 
-## 有声|中共和俄罗斯再次联合骚扰日本
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1688857/)
+## 法国总理测试呈阳性后导致多人隔离
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1688887/)
 
-配音：香草山香港部 – 文凯琳
+翻译/整理： 意大利罗马达芬奇农场 Shuizhuyu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
-
-
-
-据日本防卫省报道，11月19日，中俄各派出2架轰炸机组成联合编队，在日本海和东海上空进行长途飞行。日本空中自卫队战斗机随即紧急升空，采取警戒措施。
-
-近几个月，中俄联军在日本周边小动作频繁。10月18日，中俄海军十艘舰艇几乎绕日本列岛一周，引发世界关注。11月18日，日本报告称，中俄驱逐舰经过对马海峡驶入东海。19日，又有4艘中共海警局的船只，相继驶入尖阁诸岛附近的日本领海。对此，日本的盟友纷纷表达关切和援助。英国航母、德国护卫舰、加拿大巡防舰于近期陆续停靠日本。
-
-有分析人士称，因在台湾、南中国海问题上的立场，中共对日本表示强烈的不满，而俄罗斯则一直觊觎日本的部分领土。中俄向日本的频繁军事施压，或使日本成为对抗邪恶轴心国的最前沿阵地。
-
-原文链接：[中共和俄罗斯再次联合骚扰日本](https://gnews.org/zh-hans/1684766/)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/erstmal-der-letzte-kontakt-der.jpg)
 
 
-音频处理：喜山必胜Maverick
-发稿：Daxia
+图片来源： FAZ
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+法国总理让·卡斯特克斯 (Jean Castex) 在 PCR 检测结果呈阳性后于周二被隔离。比利时首相亚历山大·德克罗和其他四名比利时部长在周一早上与卡斯特克斯会面后，也不得不将自己作为联系人进行隔离。
 
-**更多资讯，更多关注**
+自我隔离还影响到法国国防部长弗洛伦斯·帕利、内政部长杰拉尔德·达马宁、司法部长埃里克·杜邦-莫雷蒂和欧洲国务卿克莱门特·博恩。卡斯特克斯现在情况良好，他只是轻微咳嗽，他的日程安排正在修改中。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+他的 Covid-19 疾病在法国重新引发了关于通过全面接种疫苗的“虚假安全”的辩论。卡斯特克斯接种了两次阿斯利康疫苗。反对接种疫苗的右翼民粹主义者弗洛里安·菲利普波特 (Florian Philippot) 提到了首相 7 月 21 日接受的电视采访，当时他要求他的同胞接种疫苗。卡斯特克斯四个月前说：“疫苗接种有效。谁接种了双重疫苗，就没有生病的风险，”。据总理办公室称，他感染了他最小的 11 岁女儿，她在周日的检测结果呈阳性。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+在属于法国的瓜德罗普岛和马提尼克岛的加勒比海岛屿上，反对接种疫苗的人正在设置路障。瓜德罗普岛的局势尤其紧张，夜间的抗议活动已经失控。大多数情况下，他们假设失业者是由于旅游业危机而找不到工作的年轻人。政府已向该岛派遣了特警部队，但到目前为止还没有考虑到抗议活动的社会层面。
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+原文链接：[信息来源： 德国法兰克福报网页版](https://www.faz.net/aktuell/politik/ausland/franzoesische-regierung-in-quarantaene-trotz-corona-impfung-17648110.html)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+免责声明：本文观点只代表作者， 与Gnews平台无关
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+编辑发布： Shuizhuyu
 
  
 
