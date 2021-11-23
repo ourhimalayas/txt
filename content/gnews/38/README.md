@@ -2,28 +2,25 @@
 ---
 
 
-## 多家足球俱乐部因“烂房烂账”而导致资金链断裂
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1688740/)
+## 有声|喜马拉雅币一周分析
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1688777/)
 
-作者：日本方舟农场 Andy5
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月22日，综合网络媒体报道，墙内多家中超俱乐部出现资金短缺，欠薪，球队面临解散，以及球员网上讨薪，退出的现象。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-23-下午9.24.56.png)
-近一段时间以来，中超俱乐部欠薪超过3个月的不在少数，其中有些球队甚至已经长达半年。例如，河北足球俱乐部无力缴纳水电费，要员工自行垫付才能参加足协杯。重庆两江球队的球员在网上通过公开信讨要薪资。广州俱乐部也面临无法负担大牌球员的薪资，球员们要接受事实上解约或降薪的窘境。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+过去一周喜马拉雅币价格从约$30上涨至最高约$40，目前回落至约$37，一周内最高涨幅突破33%。喜马拉雅币上市以来交易量突破1800万枚 ，占今年总发行量仅约1.8%。目前大型机构投资者尚未进场，市场交易量较低，价格仍被严重低估。
 
-据查询，以上三家俱乐部资金链断裂的原因，与近期恒大爆雷事件相关。河北俱乐部的资金方是已爆美债违约的华夏幸福；重庆两江俱乐部背后，则是近期持续清仓股票的武汉当代集团；广州俱乐部背后无疑就是恒大。这些事件从侧面反映出，一方面，引起中共房地产崩溃的绝不只恒大一家，另一方面，房地产的爆雷正在向其他业界蔓延。
+郭文贵先生在直播中透露，喜支付将很快上线，喜币将在全球可以随时自由交换，喜币的抵押贷款功能也会在几个月内推出。美加日地区将很快开通KYC，在此之前喜币价格的上涨都还远远没有开始。
 
-参考链接：
-1）[河北队已停工放假、或解散退出，中超多队运营艰难](https://finance.sina.com.cn/tech/2021-10-27/doc-iktzqtyu3814328.shtml)
-2）[重庆球员公开信：我们正遭受欠薪 望社会各界给予支持](https://www.sohu.com/a/502397853_463728)
-3）[广州两队新投资方仍在商谈中 广药欲接手广州队受困体量太大](https://www.sohu.com/a/502724759_463728) 
-4）[旗下两上市公司拟清仓华泰保险，当代集团能“瘦身”成功吗？](https://finance.sina.com.cn/jjxw/2021-11-21/doc-iktzqtyu8687276.shtml)
+另外本周一阿联酋迪拜的Danube Properties地产开发公司已经签署协议，同意接受喜币喜美元购买该公司开发的任何房产。Danube是阿联酋排名前十的房地产开发商，还是迪拜排名第一的建筑材料供应商。据郭文贵先生直播中透露，随着喜币进入流通领域，以及G-Fashion与G-Club的实体化发展，各类实体店都将接受喜币支付，喜币的价值将达到之前不可想象的高度，并改变人类的生活方式，三年后必将超越比特币。郭先生建议喜币的投资者可以在明年5月份卖出一点应对维持生活的需要，一年后可以考虑拿一部分做抵押，而喜币真正的价值只有在2-3年后才能显现出来。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-总编：飞虹
-编辑：Kathy文艺
-校正/发稿：呼吸的雾霾（文小呼吸）
+
+文字版原文：[喜马拉雅币一周分析](https://gnews.org/zh-hans/1685883/)
+
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -31,7 +28,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

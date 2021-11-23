@@ -2,21 +2,29 @@
 ---
 
 
-## 工厂工人大量流失，中共实体经济持续萎靡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1689322/)
+## 欧洲各国上周末爆发反对强制接种疫苗的抗议活动
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1689335/)
 
-作者：纽约香草山教育部 – Noemi
+作者：纽约香草山教育部 – Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月17日，中国人民大学公开了一份关于互联网平台从业情况的调研报告。该报告显示，在以外卖、快递、网约车为代表的网络服务行业中，其中有1/4的从业人员都曾为制造业的技术工人，网络服务行业平台就业间的职业转换也很频繁。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide4-10.jpeg)
-据悉，在“中共病毒”和“毒疫苗”的双重冲击下，中共国内原材料价格大幅上涨；因能源短缺，各地纷纷推出限电限产的政策；以上种种都使中共的实体制造业遭受到了巨大冲击。多数工厂在经营上举步维艰，纷纷施行降薪政策。工资却较2019年普遍急降1/4，至2021年上半年，这一状况仍无好转。工资的持续低迷和隐蔽性失业，都加剧了工厂员工的流失状况。
+近日，反对疫情限制措施的抗议活动震撼了欧洲。11月20日、21日，布鲁塞尔、维也纳、罗马和阿姆斯特丹等地爆发了示威活动，反对强制疫苗接种及疫苗护照。
 
-參考链接：[人大调研：1/4平台就业者来自工人 工厂涨工资压力大](https://news.sina.com.cn/o/2021-11-19/doc-iktzqtyu8245149.shtml)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-9.jpeg)
+
+在奥地利进入第四次全国封锁后，近日，维也纳发生了抗议活动。
+
+在比利时，约35,000人聚集在布鲁塞尔市中心游行。鹿特丹的示威活动持续了数日。
+
+在意大利，大批人群聚集在罗马，反对中共病毒疫苗护照。
+
+在克罗地亚，数千人参加了首都萨格勒布的游行，示威反对对工人进行强制性疫苗接种和中共病毒疫苗通行证。
+
+参考链接：[Protests against Covid rules and lockdowns erupt across Europe](https://www.cnbc.com/2021/11/22/photos-of-anti-covid-protests-in-europe.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-总编：文特
-编辑：文特
+总编：AN
+编辑：AN
 校正/发稿：谐趣园
 
 **更多资讯，更多关注**
