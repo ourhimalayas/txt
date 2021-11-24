@@ -15,113 +15,113 @@
 
 ---
 
-### [喜币撬动地球飞向宇宙](/content/gnews/1/README.md)
+### [国际要闻汇编11月24日](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [《长津湖》马来公映被拒！中共已为世界所唾弃](/content/gnews/2/README.md)
+### [喜币撬动地球飞向宇宙](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦人与人信任的境界是心悦合一](/content/gnews/3/README.md)
+### [《长津湖》马来公映被拒！中共已为世界所唾弃](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新中国联邦人与人信任的境界是心悦合一](/content/gnews/4/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [郭文贵先生2021年11月23日GTV直播视频（14分29秒）全文字版](/content/gnews/4/README.md)
+### [郭文贵先生2021年11月23日GTV直播视频（14分29秒）全文字版](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳英美三国签署核潜艇联盟的关键协议](/content/gnews/5/README.md)
+### [澳英美三国签署核潜艇联盟的关键协议](/content/gnews/6/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [台湾与美国举行第二届新经济对话会议](/content/gnews/6/README.md)
+### [台湾与美国举行第二届新经济对话会议](/content/gnews/7/README.md)
  ` HimalayaRussia`
 
-### [怎么看中美会晤的选择题和必答题？](/content/gnews/7/README.md)
+### [怎么看中美会晤的选择题和必答题？](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [儿童接种新冠疫苗会破坏先天免疫力，不可逆地阻止了群体免疫](/content/gnews/8/README.md)
+### [儿童接种新冠疫苗会破坏先天免疫力，不可逆地阻止了群体免疫](/content/gnews/9/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [公共卫生专家出面安抚，90%接种率后可解封未接种者](/content/gnews/9/README.md)
+### [公共卫生专家出面安抚，90%接种率后可解封未接种者](/content/gnews/10/README.md)
  ` 走进澳洲`
 
-### [医生在治疗时应该做自己认为对的事情](/content/gnews/10/README.md)
+### [医生在治疗时应该做自己认为对的事情](/content/gnews/11/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [因为可能会遭到大多数国家的抵制，中共国的冬奥会将变成一场防御中共病毒的赛事](/content/gnews/11/README.md)
+### [因为可能会遭到大多数国家的抵制，中共国的冬奥会将变成一场防御中共病毒的赛事](/content/gnews/12/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [荒唐：以色列总理做“表率”，携子打疫苗](/content/gnews/12/README.md)
+### [荒唐：以色列总理做“表率”，携子打疫苗](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [前研究员和副总裁已经入驻盖特并将分享辉瑞的黑暗秘密](/content/gnews/13/README.md)
+### [前研究员和副总裁已经入驻盖特并将分享辉瑞的黑暗秘密](/content/gnews/14/README.md)
  ` NewFOC`
 
-### [这是一场全球政变！](/content/gnews/14/README.md)
+### [这是一场全球政变！](/content/gnews/15/README.md)
  ` 纽约香草山MOS02`
 
-### [有声|中亚国家人民忧中俄输出网路信息管制 民主国家应该反击](/content/gnews/15/README.md)
+### [有声|中亚国家人民忧中俄输出网路信息管制 民主国家应该反击](/content/gnews/16/README.md)
  ` MOSREC`
 
-### [币圈新闻动态：喜币（HCN）价格目前在38 HDO附近震荡](/content/gnews/16/README.md)
+### [币圈新闻动态：喜币（HCN）价格目前在38 HDO附近震荡](/content/gnews/17/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共和他的老朋友拜登有那么亲密吗？](/content/gnews/17/README.md)
+### [中共和他的老朋友拜登有那么亲密吗？](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|原中共解放军总参谋长曾欲揭露中共的秘密军事项目](/content/gnews/18/README.md)
+### [有声|原中共解放军总参谋长曾欲揭露中共的秘密军事项目](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [美参议员布莱克本：中共对国际机构的恶意影响力导致吹哨人被解雇](/content/gnews/19/README.md)
+### [美参议员布莱克本：中共对国际机构的恶意影响力导致吹哨人被解雇](/content/gnews/20/README.md)
  ` 首尔天池农场`
 
-### [拜登政府提交紧急命令，要求立即恢复强制疫苗规定](/content/gnews/20/README.md)
+### [拜登政府提交紧急命令，要求立即恢复强制疫苗规定](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [GTV新闻访谈简报|2021年11月23日晚](/content/gnews/21/README.md)
+### [GTV新闻访谈简报|2021年11月23日晚](/content/gnews/22/README.md)
  ` 纽约香草山MOS01`
 
-### [串珠462:张高丽窥视帝位，习近平非弄死他不可！](/content/gnews/22/README.md)
+### [串珠462:张高丽窥视帝位，习近平非弄死他不可！](/content/gnews/23/README.md)
  ` 郭爆料串珠`
 
-### [众议员吉姆·班克斯：中共每年向华盛顿DC智库支付数百万美元](/content/gnews/23/README.md)
+### [众议员吉姆·班克斯：中共每年向华盛顿DC智库支付数百万美元](/content/gnews/24/README.md)
  ` 美国政要直译推`
 
-### [什么样的绝境将女网红推向末日直播 死后亡魂仍不得安宁](/content/gnews/24/README.md)
+### [什么样的绝境将女网红推向末日直播 死后亡魂仍不得安宁](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共为彭帅事件洗地遭国际强烈质疑](/content/gnews/25/README.md)
+### [中共为彭帅事件洗地遭国际强烈质疑](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [不惧中共施压 日本即将推出《与台湾关系法》](/content/gnews/26/README.md)
+### [不惧中共施压 日本即将推出《与台湾关系法》](/content/gnews/27/README.md)
  ` 纽约香草山MOS01`
 
-### [国际奥委会主席与彭帅视频 以示各方“情绪稳定”](/content/gnews/27/README.md)
+### [国际奥委会主席与彭帅视频 以示各方“情绪稳定”](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [班农先生在11·20大直播谈加密货币及喜币](/content/gnews/28/README.md)
+### [班农先生在11·20大直播谈加密货币及喜币](/content/gnews/29/README.md)
  ` 纽约香草山MOS01`
 
-### [串珠461:张高丽玩彭帅不稀奇，中共老畜牲都玩幼女](/content/gnews/29/README.md)
+### [串珠461:张高丽玩彭帅不稀奇，中共老畜牲都玩幼女](/content/gnews/30/README.md)
  ` 郭爆料串珠`
 
-### [有声|香草山翻译部周刊|2021年11月21日第23期](/content/gnews/30/README.md)
+### [有声|香草山翻译部周刊|2021年11月21日第23期](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [世界共同抵制中共冬奥会的可能性与日俱增](/content/gnews/31/README.md)
+### [世界共同抵制中共冬奥会的可能性与日俱增](/content/gnews/32/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [德教授：接种中共病毒疫苗的人在帮助传播病毒](/content/gnews/32/README.md)
+### [德教授：接种中共病毒疫苗的人在帮助传播病毒](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本三阳商会决定明年停用新疆“血棉”制品](/content/gnews/33/README.md)
+### [日本三阳商会决定明年停用新疆“血棉”制品](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [荷兰众院以压倒性票数通过力挺台湾参与国际刑警组织](/content/gnews/34/README.md)
+### [荷兰众院以压倒性票数通过力挺台湾参与国际刑警组织](/content/gnews/35/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [雅典娜时报-第122期](/content/gnews/35/README.md)
+### [雅典娜时报-第122期](/content/gnews/36/README.md)
  ` 墨尔本雅典娜农场`
-
-### [联合国人权特别报告员敦促中共无条件释放张展](/content/gnews/36/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [美国针对德国和丹麦发出旅行警告](/content/gnews/37/README.md)
  ` 纽约香草山MOS01`

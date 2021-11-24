@@ -2,22 +2,27 @@
 ---
 
 
-## 怎么看中美会晤的选择题和必答题？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690324/)
+## 台湾与美国举行第二届新经济对话会议
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1690328/)
 
-撰稿：东京樱花团/神的带领
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11245.png)[视频截图](https://haokan.hao123.com/v?context=%7B%22nid%22%3A%22sv_1801803647072590705%22%2C%22sourceFrom%22%3A%22bjh%22%7D&amp;isBdboxShare=1&amp;pd=share&amp;vid=1801803647072590705)
-近日，中共央视新闻“大国外交最前线”再次解读11月16日上午（北京时间）拜习视频会议。
+俄罗斯莫斯科喀秋莎农场   银河
 
-报道称，首脑会晤上半场延长了半个小时，并一再强调这次视频会晤是美方主动的寻求，所以中方要求美方拿出诚意，美方要知道到底该怎样定义中美关系，什么是负责任的管控分歧，而且要知道中共在哪些原则底线的问题是绝对不会让步的。报道还进一步称，9月10日习与拜登通话中就指出中美关系不是是否搞好关系的选择题，而是如何搞好关系的必答题，而且这必答题就这次会晤找到答题思路及解题方法。
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/T.png)vinielevators.com
+据日本共同社报道，台湾和美国11月23日举行了新年度经济对话的第二次会议，以建立更紧密的关系。
 
-正如郭文贵先生GTV大直播所讲，拜登为了中期选举，为了保住经济而无条件跪求中共会晤，以求短暂假象与目的。当前，这一轮背后的泥潭效应已经开始了，中共会在泥潭中死得更狰狞，美国及世界将迎来更黑暗时刻。
+台湾代表团团长、经济部部长王美花在美台经济繁荣伙伴关系对话(简称EPPD)结束后举行的新闻发布会上表示，长达5小时的虚拟会议集中讨论了供应链弹性、科技、数字经济和5G网络安全等问题，以及北京的经济胁迫。
 
-信息来源：[中美元首会晤上半场延长近半小时](https://haokan.hao123.com/v?context=%7B%22nid%22%3A%22sv_1801803647072590705%22%2C%22sourceFrom%22%3A%22bjh%22%7D&amp;isBdboxShare=1&amp;pd=share&amp;vid=1801803647072590705)
+台湾经济部长称，“这次会谈是双边经济战略合作的一个很好的方式。”并补充说，在全球芯片危机中，他们同意促进与美方的供应链安全以及在制药、卫生、清洁能源和半导体方面的合作。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+双方同意，台湾和美国将于明年在台北举行首次面对面的科技会议。双方还将于明年年中召开第四届数字经济论坛，并成立一个商业咨询小组，就加强双方经济和商业关系提出建议。
+
+与去年11月举行的首届EPPD会议一样，今年的会议是在台湾美国研究所(American Institute in Taiwan)和台北驻美经济文化代表处(Taipei Economic and Cultural Representative Office)的主持下举行的。台湾美国研究所实际上是华盛顿与台北建立正式外交关系的大使馆。
+
+参考链接：
+
+[https://english.kyodonews.net/news/2021/11/d8948eebd650-taiwan-us-hold-2nd-annual-meeting-of-new-economic-dialogue.html](https://english.kyodonews.net/news/2021/11/d8948eebd650-taiwan-us-hold-2nd-annual-meeting-of-new-economic-dialogue.html)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

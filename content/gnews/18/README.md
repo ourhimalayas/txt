@@ -2,29 +2,19 @@
 ---
 
 
-## 有声|原中共解放军总参谋长曾欲揭露中共的秘密军事项目
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1690214/)
+## 中共和他的老朋友拜登有那么亲密吗？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690218/)
 
-配音：香草山教育部 – 蒙古鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-秘密翻译组消息：11月20日 ，在“11·20”发布会及法治基金、法治社会成立三周年纪念日大直播中，郭文贵先生说，在2017年，前中共上将房峰辉秘密向他爆料，中共计划使用生化武器，而且要在中东建多个军事基地。
+撰稿：东京樱花团/神的带领
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11244.png)[图片来源](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_9094605064592350219%22%7D&amp;n_type=-1&amp;p_from=-1)
+中共官媒近日解读称，美国总统拜登上台已经将近一年的时间，由于拜登总是在一些公共场合出现步履蹒跚、频繁咳嗽甚至语无伦次的行为，外界纷纷猜测拜登身体出现了问题。白宫方面坚持称拜登身体是健康的，没有任何问题，还指出拜登的支持率最低。
+从这些内容不难看出和前几天视频会晤的态度截然不同。那么是不是意味着中共又有了新的“老朋友”，拜登还有利用价值吗？他们还是会晤中的老朋友吗？
 
-房峰辉曾经一直与郭先生保持联系。2017年，他曾向郭先生透露，只要美国能保护他和家人的安全，他愿意完全提供他所掌握的中共内部情报。他爆料称，美国要小心中共的化学武器和生化武器，中共计划要在中东地区建多个军事基地。
+信息来源：[美国将迎来新总统？进医院没多久，79岁拜登再次被曝出“坏”消息](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_9094605064592350219%22%7D&amp;n_type=-1&amp;p_from=-1)
 
-CIA曾从中共军方得到同样情报，并与郭先生核实。郭先生建议CIA联络房峰辉，因为房峰辉也想与美方合作。但那时CIA并不相信，没有认真对待房峰辉与美方合作的意愿。不久后，房峰辉被中共抓捕。美国错失中共生化武器计划的关键人证。
-
-文字版原文：[原中共解放军总参谋长曾欲揭露中共的秘密军事项目](https://gnews.org/zh-hans/1683486/)
-
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

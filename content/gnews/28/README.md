@@ -2,18 +2,16 @@
 ---
 
 
-## 班农先生在11·20大直播谈加密货币及喜币
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1690119/)
+## 国际奥委会主席与彭帅视频 以示各方“情绪稳定”
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1690120/)
 
-作者：纽约香草山 – 晓仙女
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-16-1-1.jpeg)
-2021年11月20日，新中国联邦举办了“11·20”海航王建之死发布会与以及法治基金和法治社会成立三周年纪念日直播，文贵先生和班农先生做为特邀嘉宾参加此次直播！当主持人提问班农先生对喜币的未来有怎样的看法时，班农先生表示：喜币是加密货币的完美例子，未来的发展趋势是对中共政权、华尔街沉重打击。
+作者：纽约香草山 – 宁文静
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/GettyImages-577732188.jpg)图片来自网络
+在“寻找彭帅”的国际呼声日益猛烈之时，国际奥委会主席托马斯·巴赫、奥委会运动员委员会主席等三名官员与彭帅举行了30分钟的视频通话。 视频中，彭帅感谢国际奥委会的关注，表示目前住在北京的家中，“一切安好”！但希望与家人好友更多相处，希望个人隐私得到尊重。
 
-因中共病毒影响，众议院通过了一项五万亿美元的支出。这项严重失控的支出，对美元价值储备货币将是毁灭性打击！中央银行、集权政府、跨国利益集团，以及华尔街和伦敦的资本市场与中共深度勾结，法币踏上了毁灭的不归路！
+最后，彭帅接受了托马斯在明年1月份抵达北京后共进晚餐的邀请！ WTA主席兼CEO史蒂夫·西蒙率先要求调查彭帅事件，否则考虑放弃中国市场！多位体坛明星为彭帅发声，使该事件热度迅速上升，白宫、联合国也表示了关注！大外宣代发的彭帅生活照、带光标的回复邮件、彭帅与友人的聚餐均被指“摆拍”痕迹明显。眼看“抵制冬奥”的声音越来越大，奥委会主席亲自出面暗示各方“情绪稳定”，其中的用意已经不言自明！
 
-每个公民都有责任为自己家庭的未来考虑！面对法币的贬值，人们希望通过某种方式让财产保值，腐败当权者的肆意妄为加大了人们对加密货币的需求，这也是加密货币未来走强的原因！喜币将成为未来交易中使用的货币，交易的媒介，具有储存价值！
-
-参考链接：[https://gettr.com/post/phiixs8e56](https://gettr.com/post/phiixs8e56)
+参考链接：[https://olympics.com/ioc/news/ioc-president-and-ioc-athletes-commission-chair-hold-video-call-with-peng-shuai](https://olympics.com/ioc/news/ioc-president-and-ioc-athletes-commission-chair-hold-video-call-with-peng-shuai)
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-10.jpg)
 编辑/校对/发稿：文留
 
@@ -21,7 +19,7 @@
 
 [**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
 [**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 

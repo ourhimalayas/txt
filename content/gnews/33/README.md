@@ -2,10 +2,10 @@
 ---
 
 
-## 日本三阳商会决定明年停用新疆“血棉”制品
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690062/)
+## 德教授：接种中共病毒疫苗的人在帮助传播病毒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690072/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._24-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1124-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
