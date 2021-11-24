@@ -2,50 +2,33 @@
 ---
 
 
-## 日越防长确认在海洋和网络领域合作 应对中共威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1690543/)
+## 有声|4 亿多人观看郭先生首次爆料，90%多的中国人要消灭中共
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1690579/)
 
-作者：东京樱花团—在远方
+配音：香草山香港部 – 文凯琳
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+在11月20日的大直播中，郭文贵先生指出，他相信从内心想消灭中共的战友人数，要远远多过欺民贼和共产党所说的数量，每次GTV大直播超过千万的在线观看量就是很好的证明。而在背后支持着爆料革命的人更多。
+
+郭先生爆料：2017年郭先生第一次在媒体上爆料。当晚，习近平打电话大骂中共安全部官员刘彦平，因为，有4亿多人观看了这次爆料。
+
+三年前，郭先生突破中共的“围剿”与班农一起成功召开了1120新闻发布会。1120新闻发布会成为爆料革命又一个重大事件而影响深远。回顾过往，郭先生指出，全中国90%到95%的人最终会坚决要消灭中共。
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+文字版原文：[4 亿多人观看郭先生首次爆料，90%多的中国人要消灭中共](https://gnews.org/zh-hans/1685910/)
 
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-
-11月23日，日本防卫相岸信夫，与到访的越南国防部长潘文江举行了会谈。双方就近期东海和南海局势交换了意见，对中共“依靠实力单方面改变现状的尝试”表达了强烈反对，表示要维持基于法治的国际秩序，开展合作。
-
-岸信夫对本月19日俄罗斯和中共各2 架轰炸机，在日本海和东海长途飞行一事表示，不排除中共与俄罗斯进一步深化军事合作的可能。从安全角度出发，日本将深度关切。
-
-据悉，两国还签署了推进网络安全领域防卫合作的备忘录。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-164.jpg)
-参考链接：
-[日越防长确认在海洋和网络领域开展合作](https://china.kyodonews.net/news/2021/11/51fec1db4558.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：文徬
-编辑：Kathy文艺
-校对/发稿：为真不破20
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

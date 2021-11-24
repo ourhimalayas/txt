@@ -2,28 +2,33 @@
 ---
 
 
-## 应拜登要求，日本首次释放国家石油储备
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690547/)
+## 有声|北京再出强制令：快递、外卖小哥必须全程接种中共病毒疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1690580/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-644.png)[图片来源](https://gnews.org/wp-admin/post-new.php#imgrc=IjprFqLUd36dhM&amp;imgdii=cEZWZmon4ROsFM)
-24日上午，岸田首相在首相官邸向记者宣布，应美国的要求，将首次释放国家石油储备。为暂时增加石油供应，遏制汽油等石油产品价格上涨，将与中共国、印度、韩国和英国进行合作。不过，美国原油市场23日上涨，因普遍认为“供需改善效果有限”。
+配音：香草山香港部 – 文凯琳
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间11月20日，北京市疾控中心再次发文，要求本市的快递、外卖配送人员必须全程接种中共病毒疫苗，否则将不得上岗。
 
-首相说：“稳定原油价格是实现经济从中共疫情中复苏的一个非常重要的问题。” 政府计划在明年 3 月底之前举行招标出售释放的石油。我们将释放约420万桶，相当于国内2至3天的需求量，作为指导，必要时考虑增加。
+据了解，北京自从开展加强针接种工作以来，曾先后多次出台疫苗强制令，针对人群主要是从事底层工作的普通民众。10月下旬，有关部门发文，要求厨师、采购、保洁、保安等行业从业人员必须接种疫苗加强针，否则将不得从事相关工作。
 
-库存包括政府拥有的国家库存和石油公司法律要求的私人库存。《石油储备法》规定，国家储备进口90天以上，私人储备70天以上消费。截至9月底，全国库存已保障国内消费145天（2.8亿桶），民间储备已保障90天（1.7亿桶）。
+时隔两周多，市疾控中心再次针对底层人员发出接种强制令，或与加强针接种工作进程缓慢有关。有网友爆料，目前，大多数市民对继续接种中共病毒疫苗所抱有的期待度、热情度都大幅降低，许多接种点都十分冷清。
 
-根据法律，只有在海外供应短缺或灾难导致汽油或煤油短缺时才会释放库存。尽管预计不会释放以抑制价格，但政府已决定可以不受法律约束地处理盈余。由于 1991 年海湾战争和 2011 年东日本大地震，私人库存总共释放了五次，但这是国家库存的第一次。
 
-在首相发表声明之前，美国总统乔拜登23日在讲话中表示，“合作行动将有助于应对供应短缺。汽油价格将很快下跌。” 美国政府将从 12 月中旬开始在未来几个月内从德克萨斯州和其他地方的战略石油储备 (SPR) 中释放总计 5000 万桶石油。“这是有史以来最大的一次发布，”拜登说，大约是美国三天的消费量，或 SPR 存货的 8%。
 
-同时，23日纽约原油期货市场，具有代表性的德州轻油(WTI)收盘价较前一交易日上涨1.75美元(约2.3%)，1桶= 78.50 美元。WTI 价格上周从 80 美元跌至 76 美元，这是考虑到库存释放的因素。
+文字版原文：[北京再出强制令：快递、外卖小哥必须全程接种中共病毒疫苗](https://gnews.org/zh-hans/1685911/)
 
-消息来源：[总理宣布释放石油储备……拜登先生还表示，“汽油价格将很快下降”。](https://www.yomiuri.co.jp/economy/20211124-OYT1T50098/)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

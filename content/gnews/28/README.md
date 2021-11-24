@@ -2,49 +2,34 @@
 ---
 
 
-## 堪萨斯州拟立法放宽疫苗宗教豁免
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1690438/)
+## 郭先生回忆与班农先生在船上的感人谈话
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1690480/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+我们在船上谈家庭谈生活，谈宗教谈历史，谈西方谈法治，班农先生关心最多的，没有一天不关心的就是中国老百姓。
 
+**【郭先生直播摘要】2011.11.20 郭先生和班农先生在船上感人谈话**
 
+**郭先生：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+我们在船上谈家庭谈生活，谈宗教谈历史，谈西方谈法治。他最多关心没有一天不关心就是中国老百姓怎么哇，他就一听到就受不了，一听到就受不了了。然后每天我们都到小船上去抽根雪茄，听中国的音乐，他每次都是很感动的每天。然后共产党就造谣我们俩，同性恋在一起瞎胡干。然后我来吧你上我房间来吧，他也从来没来，我就开着门他也没有开过。共产党永远以为人与人之间都是，裤腰带以下那点破关系。那是人家自然带来跟你个鸟关系，跟你国家没有关系，是吧。
 
+班农先生是一种精神上，他有真正的宗教，来自爱尔兰。他来自他的真的是他是天主教徒，从来没有过男女任何丑闻，一次都没有班农先生，他真的是不一样的，然后他真是关心了。每天24小时，除了一点点睡觉他都是在工作，我从来没有看他休息过。有这就是你可以看到共产党有多 low 。最让我感动的事情，我们这个盖特他要直播，我说你要到GETTR 直播的时候，有那个老百姓。我们谈到你来盖特做直播，我说，很多人会给你赞赏，捐款。班农先生马上（说）Miles我绝对不能要中国老百姓的钱 ，一分都不能要。
 
+我们三年前法治基金捐款的时候，班农先生第一个建议，说我们不能要老百姓钱，这是我最感动的，这有点激动啊，搂不住。今天太多激动了，CCP  only want 老百姓的money。CCP 共产党只要老百姓的钱。班农先生真的是多次不下百次的时候。
 
-11月22日，堪萨斯州共和党议员采取行动挑战该州的疫苗强制接种政策，并要求州长劳拉·凯利召开特别会议，研究应对中共病毒疫苗强制接种政策的措施，并积极推动雇主接受所有宗教豁免的请求。
+**班农先生**：
 
-凯利在声明中说，“我认为拜登这项指令对堪萨斯州来说不是正确或最有效的解决方案。我们已经制定了适合我们具体需求的系统和战略。”
+Laobaixing needs keep their money, make more money.
 
-当日，堪萨斯州参议院投票批准了相关法案，并禁止私人雇主发布疫苗强制接种的要求。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-10.jpg)
-参考链接：
-[Kansas GOP eases religious vaccine exemptions, moves to limit mandates](https://thehill.com/homenews/state-watch/582736-kansas-gop-ease-religious-vaccine-exemptions-move-to-limit-mandates?utm_source=ground.news&amp;utm_medium=referral)
+（老百姓要攒着钱，赚更多钱）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+**郭先生：**
 
-总编：文徬
-编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+他说不能要老百姓的钱。你知道他爸爸过生日，给他爸爸拿了点红包。班农先生三次送回来到现在都没要，这真的是共产党真不知道人性多高贵.
 
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+剪辑：小腾腾说 |听写：烟波浩淼 |翻译：Arthur |校对：烟波浩淼 |编辑&发布：闪电训练
 
  
 
