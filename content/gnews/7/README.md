@@ -2,33 +2,22 @@
 ---
 
 
-## 荒唐：以色列总理做“表率”，携子打疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1690276/)
+## 怎么看中美会晤的选择题和必答题？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690324/)
 
-**【雅典娜快讯】紧贴时事脉搏**
+撰稿：东京樱花团/神的带领
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11245.png)[视频截图](https://haokan.hao123.com/v?context=%7B%22nid%22%3A%22sv_1801803647072590705%22%2C%22sourceFrom%22%3A%22bjh%22%7D&amp;isBdboxShare=1&amp;pd=share&amp;vid=1801803647072590705)
+近日，中共央视新闻“大国外交最前线”再次解读11月16日上午（北京时间）拜习视频会议。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/台湾1-2.jpeg)图片来源：AP
+报道称，首脑会晤上半场延长了半个小时，并一再强调这次视频会晤是美方主动的寻求，所以中方要求美方拿出诚意，美方要知道到底该怎样定义中美关系，什么是负责任的管控分歧，而且要知道中共在哪些原则底线的问题是绝对不会让步的。报道还进一步称，9月10日习与拜登通话中就指出中美关系不是是否搞好关系的选择题，而是如何搞好关系的必答题，而且这必答题就这次会晤找到答题思路及解题方法。
 
+正如郭文贵先生GTV大直播所讲，拜登为了中期选举，为了保住经济而无条件跪求中共会晤，以求短暂假象与目的。当前，这一轮背后的泥潭效应已经开始了，中共会在泥潭中死得更狰狞，美国及世界将迎来更黑暗时刻。
 
-#### 整理报道：美哥
-编辑：守望黎明
+信息来源：[中美元首会晤上半场延长近半小时](https://haokan.hao123.com/v?context=%7B%22nid%22%3A%22sv_1801803647072590705%22%2C%22sourceFrom%22%3A%22bjh%22%7D&amp;isBdboxShare=1&amp;pd=share&amp;vid=1801803647072590705)
 
-以色列官方周二正式批准儿童疫苗。以色列卫生部指出，虽然第四波疫情已日趋稳定，但数据显示儿童和青少年群体中仍存在大规模新增感染案例。由于一半的新增感染与儿童有关，官方寄希望对青少的疫苗接种，能够降低来袭的新一波疫情的威胁。
-
-由于接种开放首日社会反应冷淡，以色列总理贝內特（Naftali Bennett）以身试险，于11月23日带头陪同自己9岁的儿子大卫接种疫苗，以图以此打消公众疑虑，鼓励其他父母为孩子接种疫苗。
-
-以色列目前人口为9百多万，自疫情爆发以来，有过130万人感染，超过8100人死亡。
-
-原文链接：[Israel begins giving COVID shots to children age 5 to 11](https://apnews.com/article/coronavirus-pandemic-health-middle-east-israel-tel-aviv-0ad5635acd76adcac3db96088cbeeca3)
-
-发布：文泓
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

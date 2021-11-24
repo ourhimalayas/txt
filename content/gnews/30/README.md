@@ -2,22 +2,23 @@
 ---
 
 
-## 雅典娜时报-第122期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1690051/)
+## 有声|香草山翻译部周刊|2021年11月21日第23期
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1690101/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+配音：香草山教育部 – 蒙古鸿雁
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/十个坚持.jpg)
+文字版原文：[香草山翻译部周刊|2021年11月21日第23期](https://gnews.org/zh-hans/1683996/)
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_18.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_19.png)
-***发布：小红帽***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

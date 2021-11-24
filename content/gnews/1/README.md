@@ -2,27 +2,20 @@
 ---
 
 
-## 台湾与美国举行第二届新经济对话会议
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1690328/)
+## 喜币撬动地球飞向宇宙
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690360/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+撰稿：东京樱花团/神的带领
+![](https://cdn.discordapp.com/attachments/740156308631584770/909445774386012230/0968FCD0-9630-407E-9730-B77F6101F120.png)
+记得刚接触喜币时战友常说希望您带个披萨来。如今披萨已经不是我们的目标，因为迪拜房产接受喜币支付。您看这房子能装多少个披萨呢？那喜币的价值就比比特币大多少倍，好多少倍！
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/T.png)vinielevators.com
-据日本共同社报道，台湾和美国11月23日举行了新年度经济对话的第二次会议，以建立更紧密的关系。
+这是喜币上市后最具标志性的事情，而且会是将来虚拟币的楷模；这是喜币支付通往全球市场的开始。这个意义太大了，我只能用我浅显的意思进行解读，相信以后的流行语不再是带个披萨来，而是带个喜币来。
 
-台湾代表团团长、经济部部长王美花在美台经济繁荣伙伴关系对话(简称EPPD)结束后举行的新闻发布会上表示，长达5小时的虚拟会议集中讨论了供应链弹性、科技、数字经济和5G网络安全等问题，以及北京的经济胁迫。
+因为喜币不但能买房产还能撬动地球飞到宇宙。
 
-台湾经济部长称，“这次会谈是双边经济战略合作的一个很好的方式。”并补充说，在全球芯片危机中，他们同意促进与美方的供应链安全以及在制药、卫生、清洁能源和半导体方面的合作。
-
-双方同意，台湾和美国将于明年在台北举行首次面对面的科技会议。双方还将于明年年中召开第四届数字经济论坛，并成立一个商业咨询小组，就加强双方经济和商业关系提出建议。
-
-与去年11月举行的首届EPPD会议一样，今年的会议是在台湾美国研究所(American Institute in Taiwan)和台北驻美经济文化代表处(Taipei Economic and Cultural Representative Office)的主持下举行的。台湾美国研究所实际上是华盛顿与台北建立正式外交关系的大使馆。
-
-参考链接：
-
-[https://english.kyodonews.net/news/2021/11/d8948eebd650-taiwan-us-hold-2nd-annual-meeting-of-new-economic-dialogue.html](https://english.kyodonews.net/news/2021/11/d8948eebd650-taiwan-us-hold-2nd-annual-meeting-of-new-economic-dialogue.html)
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
