@@ -75,53 +75,53 @@
 ### [随通货膨胀率上升，美国人为食品和燃料支付的费用飙升](/content/gnews/20/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [参议员汤姆·科顿：国际奥委会是CCP代言人，抵制冬奥会](/content/gnews/21/README.md)
+### [文革罪恶之毁灭家庭](/content/gnews/21/README.md)
+ ` 纽约香草山MOS03`
+
+### [参议员汤姆·科顿：国际奥委会是CCP代言人，抵制冬奥会](/content/gnews/22/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [【文贵先生大直播PPT】全球中共病毒 疫苗灾难现状](/content/gnews/22/README.md)
+### [【文贵先生大直播PPT】全球中共病毒 疫苗灾难现状](/content/gnews/23/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [邪恶中的邪恶](/content/gnews/23/README.md)
+### [邪恶中的邪恶](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [文贵爆料11.24.2021 关于新GTV投资的最新动态](/content/gnews/24/README.md)
+### [文贵爆料11.24.2021 关于新GTV投资的最新动态](/content/gnews/25/README.md)
  ` 秘密翻译组-原创组`
 
-### [有声|中共为彭帅事件洗地遭国际强烈质疑](/content/gnews/25/README.md)
+### [有声|中共为彭帅事件洗地遭国际强烈质疑](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [福奇在90年代用儿童做艾滋病疫苗的恐怖实验！](/content/gnews/26/README.md)
+### [福奇在90年代用儿童做艾滋病疫苗的恐怖实验！](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共利用“健康码”管控社会](/content/gnews/27/README.md)
+### [中共利用“健康码”管控社会](/content/gnews/28/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|喜币是最有价值的加密货币](/content/gnews/28/README.md)
+### [有声|喜币是最有价值的加密货币](/content/gnews/29/README.md)
  ` MOSREC`
 
-### [【文贵先生大直播PPT】沪深股连连破发 北交所尽显疲态](/content/gnews/29/README.md)
+### [【文贵先生大直播PPT】沪深股连连破发 北交所尽显疲态](/content/gnews/30/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [有声|GTV新闻访谈简报|2021年11月23日早](/content/gnews/30/README.md)
+### [有声|GTV新闻访谈简报|2021年11月23日早](/content/gnews/31/README.md)
  ` MOSREC`
 
-### [台美政府计划举行双边科技会晤](/content/gnews/31/README.md)
+### [台美政府计划举行双边科技会晤](/content/gnews/32/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [成千上万的海军陆战队加入我们的雇佣军](/content/gnews/32/README.md)
+### [成千上万的海军陆战队加入我们的雇佣军](/content/gnews/33/README.md)
  ` wenwu`
 
-### [GTV新闻访谈简报|2021年11月24日早](/content/gnews/33/README.md)
+### [GTV新闻访谈简报|2021年11月24日早](/content/gnews/34/README.md)
  ` 纽约香草山MOS01`
 
-### [【文贵先生大直播PPT】六中全会期间左棍司马南公开责难柳传志传递什么信号](/content/gnews/34/README.md)
+### [【文贵先生大直播PPT】六中全会期间左棍司马南公开责难柳传志传递什么信号](/content/gnews/35/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [11/24/21 香港快讯 《大公报》追击民研 斥煽惑不投票 钟剑华：学术研究没理由构成煽动](/content/gnews/35/README.md)
+### [11/24/21 香港快讯 《大公报》追击民研 斥煽惑不投票 钟剑华：学术研究没理由构成煽动](/content/gnews/36/README.md)
  ` 英喜-粵語組`
-
-### [永远不要接种Covid疫苗加强针的5大理由](/content/gnews/36/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
 ### [从中国汉服的演变历史谈谈G-Fashion的意义](/content/gnews/37/README.md)
  ` 温哥华圆成农场🇨🇦`

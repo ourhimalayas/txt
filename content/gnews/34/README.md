@@ -2,18 +2,30 @@
 ---
 
 
-## 【文贵先生大直播PPT】六中全会期间左棍司马南公开责难柳传志传递什么信号
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1691932/)
+## GTV新闻访谈简报|2021年11月24日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1691950/)
 
-撰稿：三票先生
-美工：健身健心，青山
-审核：三票先生，顽童先生
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-4.png)
 
-【2021年11月24日文贵先生大直播PPT：六中全会期间左棍司马南公开责难柳传志传递什么信号】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/211.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/25-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/26-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/27-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/28-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/111-2-4.jpg)
-* * *
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-25.png)
+文章仅代表作者本人观点，与Gnews无关
 
-发稿：云起时
+视频参看：2021.11.24早GTV新闻访谈
+
+[https://gtv.org/video/id=619e3dc838f84e66c64ed2f7](https://gtv.org/video/id=619e3dc838f84e66c64ed2f7)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-10.jpg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
