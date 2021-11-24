@@ -17,6 +17,21 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/24/2021 1:30 AM (UTC)`
+
+是这个吧？
+> `@michaelyeadon 11/23/2021 3:30 PM (UTC)`<br/>Hello GETTR,<br/><br/>Thank you for all of your help and support! It is greatly appreciated.<br/>The truth is upon us, only a few more days left until I share the DARK SECRETS of Pfizer. They are trying to seal all documentation from the public until 2076 but I have the files and I will release them to you.<br/><br/>I NEED your HELP getting verified, it turns out I need more followers to qualify, so PLEASE SHARE this with everyone you know.<br/><br/>It's about your live, it's about your CHILDREN'S LIVES!<br/>@MichaelYeadon 
+![img](https://media.gettr.com/group10/getter/2021/11/23/15/30/1e1824d7-5e2a-0300-1c97-eb2cd91db304/e57e6d82119d85d5ef8342f43e388f5c.jpg)
+
+---
+
+`@miles 11/24/2021 1:27 AM (UTC)`
+
+1月月23号：这是真的吗？我怎么都找不到他本人的GETTR帐号呢？不会又是一个Q组织设的陷阱吧？
+![img](https://media.gettr.com/group46/getter/2021/11/24/01/27/04d397be-9133-957e-1d7f-c5e8a73d5d09/32bd546842310978008d088832c564e1.jpg)
+
+---
+
 `@miles 11/23/2021 11:56 PM (UTC)`
 
 11月23号：A doctor from Belgium revealed all patients in the ICU of GZA Hospital are vaccinated <br/>一位来自比利时的医生揭露GZA医院重症监护室里所有的病人都打了疫苗
@@ -284,20 +299,6 @@ Golden State of Mind<br/><br/>@gfashion <br/>@DDNYC
 
 11/19/2021 Miles Guo: Many rich people died of the COVID vaccines, which will change everything in the world; remember, artemisinin works; the COVID vaccine disaster will kill you as well as rip you off; the Chinese people are completely enslaved by CCP’s real estate; everyone should realize the seriousness of the impending disaster caused by the COVID vaccines and collapse of the economy<br/><br/>11/19/2021 文贵直播：很多有钱人都死于疫苗，世界的一切都将被疫苗彻底改变；请记住，青蒿素管用；疫苗灾难既要你的命，又要你的钱；中国人已被中共房地产彻底奴役；大家务必要认识到这场即将到来的疫苗灾难和经济崩溃的严重性<br/>
 ![img](https://media.gettr.com/group33/getter/2021/11/20/06/05/8c5c02bf-2119-566c-f386-178354622800/out.jpg)
-
----
-
-`@miles 11/20/2021 5:03 AM (UTC)`
-
-11/19/2021 Miles Guo: I was wearing this black blazer when I met with Liu Yanping, and I told him that I would “dominate the sphere”; now everyone knows that the CCP seeks to internationalize RMB and launch the digital RMB (DCEP), while our cryptocurrency has become the king of digital currencies in the world<br/><br/>11/19/2021 文贵直播：文贵在2017年穿着这件黑色西装见了刘彦平 ，我当时告诉他我要“一统江湖”；现在大家可以看到，中共玩是“货币江湖“，而我们的数字货币已经成为了世界之王<br/>
-![img](https://media.gettr.com/group30/getter/2021/11/20/05/7514a1c7-a2f8-d225-7bdf-6d35a9c757e5/out.jpg)
-
----
-
-`@miles 11/20/2021 2:22 AM (UTC)`
-
-11/19/2021 Miles Guo: Bruno Wu is bisexual and has a remarkable talent to make things up; all the fiat currencies are scams; by taking advantage of the disasters caused by the CCP virus and its vaccines, the CCP seeks to take down the US dollar so that it can internationalize RMB and achieve world domination<br/><br/>11/19/2021 文贵直播：吴征是双性恋，他在造假这方面的天赋异禀；所有的法币都是一场骗局；中共想通过病毒和疫苗的灾难干掉美元，从而达到人民币国际化和独霸世界的目的<br/>
-![img](https://media.gettr.com/group26/getter/2021/11/20/02/22/2f04837f-1374-3e0f-ccec-6c3df8811e14/out.jpg)
 
 ---
 
