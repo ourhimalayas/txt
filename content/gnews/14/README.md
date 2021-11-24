@@ -2,47 +2,32 @@
 ---
 
 
-## 前研究员和副总裁已经入驻盖特并将分享辉瑞的黑暗秘密
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1690248/)
+## 荒唐：以色列总理做“表率”，携子打疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1690276/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/001_副本.jpg)
-据[**MILES GUO**](https://gettr.com/user/miles)@Miles[发表于 9:27 上午 · 11月 24日, 2021](https://gettr.com/post/phpeieb9c5)的盖特
+**【雅典娜快讯】紧贴时事脉搏**
 
-1月月23号：这是真的吗？我怎么都找不到他本人的GETTR帐号呢？不会又是一个Q组织设的陷阱吧？
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/001-2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/002-1.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/台湾1-2.jpeg)图片来源：AP
 
 
-以及[**MILES GUO**](https://gettr.com/user/miles)@Miles[发表于 9:30 上午 · 11月 24日, 2021](https://gettr.com/post/phpbd20e5c)是这个吧？
+#### 整理报道：美哥
+编辑：守望黎明
 
-[**MichaelYeadon**](https://gettr.com/user/michaelyeadon)@MichaelYeadon[发表于 11:30 晚上 · 11月 23日, 2021](https://gettr.com/post/phoz9ue019)
+以色列官方周二正式批准儿童疫苗。以色列卫生部指出，虽然第四波疫情已日趋稳定，但数据显示儿童和青少年群体中仍存在大规模新增感染案例。由于一半的新增感染与儿童有关，官方寄希望对青少的疫苗接种，能够降低来袭的新一波疫情的威胁。
 
-Hello GETTR, Thank you for all of your help and support! It is greatly appreciated. The truth is upon us, only a few more days left until I share the DARK SECRETS of Pfizer. They are trying to seal all documentation from the public until 2076 but I have the files and I will release them to you. I NEED your HELP getting verified, it turns out I need more followers to qualify, so PLEASE SHARE this with everyone you know. It’s about your live, it’s about your CHILDREN’S LIVES![@MichaelYeadon](https://gettr.com/user/MichaelYeadon)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/003-2.jpg)
-根据以上信息，辉瑞公司前研究员和副总裁Michael Yeadon已经入驻盖特[@MichaelYeadon](https://gettr.com/user/MichaelYeadon)，让我们一起关注，让真相传递，让黑暗无处躲藏，因为It’s about your live, it’s about your CHILDREN’S LIVES!——因为这关乎我们和我们子孙后代的生活。
+由于接种开放首日社会反应冷淡，以色列总理贝內特（Naftali Bennett）以身试险，于11月23日带头陪同自己9岁的儿子大卫接种疫苗，以图以此打消公众疑虑，鼓励其他父母为孩子接种疫苗。
 
-撰稿：喜马拉雅的肉夹馍
+以色列目前人口为9百多万，自疫情爆发以来，有过130万人感染，超过8100人死亡。
 
-审核：喜马拉雅的馍夹肉
+原文链接：[Israel begins giving COVID shots to children age 5 to 11](https://apnews.com/article/coronavirus-pandemic-health-middle-east-israel-tel-aviv-0ad5635acd76adcac3db96088cbeeca3)
 
-校对：Maarago
+发布：文泓
 
-（文章内容仅代表作者个人观点）
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

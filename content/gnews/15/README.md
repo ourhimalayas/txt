@@ -2,47 +2,48 @@
 ---
 
 
-## 这是一场全球政变！
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1690246/)
+## 前研究员和副总裁已经入驻盖特并将分享辉瑞的黑暗秘密
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1690248/)
 
-整理：纽约香草山农场健身部 – 幸福鸟
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-维加诺大主教指出，这是一场全球政变！他大声疾呼全世界正义力量尽快建立反全球主义联盟，否则这种在各地建立自己的地狱政权将无法阻止！下面是根据11月21日维加诺大主教的英文视频中的中文字幕整理出的内容：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/001_副本.jpg)
+据[**MILES GUO**](https://gettr.com/user/miles)@Miles[发表于 9:27 上午 · 11月 24日, 2021](https://gettr.com/post/phpeieb9c5)的盖特
 
-亲爱的朋友们：
+1月月23号：这是真的吗？我怎么都找不到他本人的GETTR帐号呢？不会又是一个Q组织设的陷阱吧？
 
-两年来，我们目睹了一场全球政变。金融和意识形态精英成功地控制了部分国家政府，公共和私人机构，媒体，司法机构，政治家和宗教领袖。所有这些都毫无区别地被这些新主人所奴役，而这些新主人确保了他们的同伙获得权力，金钱和社会肯定。直到昨天仍被视为不可侵犯的基本权利，以紧急情况的名义被践踏；今天是卫生紧急情况，明天是生态紧急情况，然后是互联网紧急情况。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/001-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/002-1.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-628.png)
 
-这场全球政变剥夺了公民任何辩护的可能性，因为立法，行政和司法权力是违反法律和正义的同谋。这是一场全球政变！因为这种针对公民的犯罪袭击遍及全世界，只有极少数人得以幸免。这是一场世界大战，敌人就在我们所有人中，尽管有些人还处于不知情状态，还没有理解正在发生的事情的重要性。这是一场不用武器而通过非法规则，邪恶的经济政策和令人无法容忍的对天赋人权的限制来进行的战争。
+以及[**MILES GUO**](https://gettr.com/user/miles)@Miles[发表于 9:30 上午 · 11月 24日, 2021](https://gettr.com/post/phpbd20e5c)是这个吧？
 
-在很大程度上，由这场政变的阴谋者资助的超国家组织，正在干预各国政府以及数十亿人的生活，人际关系和健康。他们这样做当然是为了钱，但更重要的是为了集中权力以建立全球独裁统治。它是世界经济论坛的大重启，是联合国2030年议程。这是新世界秩序的计划。在这个计划中，一个全球性共和国奴役着每个人，而一个人类宗教取消了对基督的信仰。面对这场全球性的政变，有必要组建一个国际反全球主义联盟，集结所有想反对独裁统治，不愿做无信仰权力的奴隶的人，不愿取消自己身份，自我个性以及宗教信仰的人。如果攻击是全球性的，那么防御也必须是全球性的。
+[**MichaelYeadon**](https://gettr.com/user/michaelyeadon)@MichaelYeadon[发表于 11:30 晚上 · 11月 23日, 2021](https://gettr.com/post/phoz9ue019)
 
-我呼吁统治者，政治和宗教领袖，知识分子和所有善意的人，邀请他们联合起来，发起反全球主义宣言，彻底揭露和纠正这个令人恐怖的新世界秩序，制定具体政治方案来维护共同利益，基督教道德原则，传统价值观，保护生命和自然家庭，保护商业和工作，促进教育和研究，尊重创造。这个反全球主义联盟必须将那些打算摆脱暴政的地狱枷锁并恢复和平的国家联合起来，与拥有共同原则渴望自由和正义的国家和人民达成相互合作的协议。它将不得不谴责精英的罪行，确定责任人。向国际法庭谴责他们，并限制他们的过度权力和有害影响。它将不得不阻止游说团体的行动，先要打击国家官员和信息产业工作人员的腐败，并冻结用于破坏社会秩序的资金。在政府从属于精英的国家中，他们将能够建立民众抵抗运动和民族解放委员会，包括社会各界的代表。他们在共同利益的鼓舞下提出彻底的政治改革，并坚决反对全球主义下的新马尔萨斯计划。我邀请所有想捍卫传统基督教社会的人尽快在国际论坛上聚在一起，各国代表齐聚一堂，提出一个严肃，具体和明确的建议。
+Hello GETTR, Thank you for all of your help and support! It is greatly appreciated. The truth is upon us, only a few more days left until I share the DARK SECRETS of Pfizer. They are trying to seal all documentation from the public until 2076 but I have the files and I will release them to you. I NEED your HELP getting verified, it turns out I need more followers to qualify, so PLEASE SHARE this with everyone you know. It’s about your live, it’s about your CHILDREN’S LIVES![@MichaelYeadon](https://gettr.com/user/MichaelYeadon)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/003-2.jpg)
+根据以上信息，辉瑞公司前研究员和副总裁Michael Yeadon已经入驻盖特[@MichaelYeadon](https://gettr.com/user/MichaelYeadon)，让我们一起关注，让真相传递，让黑暗无处躲藏，因为It’s about your live, it’s about your CHILDREN’S LIVES!——因为这关乎我们和我们子孙后代的生活。
 
-我呼吁政治领导人和关心公民利益的统治者，抛开旧的政党制度和受权力和金钱奴役的制度强加的逻辑。我把基督教国家从东到西召集在一起，邀请国家元首和机构，经济，劳动力，大学，医疗保健和信息领域的健康力量加入一个共同项目，打破旧制度，放弃敌对行动，因为这些正是人类的敌人以分裂帝国的名义所渴望看到的。我们不接受对手的规则，因为它们的制定正是为了防止我们作出反应并组织有效而尖锐的反抗。
+撰稿：喜马拉雅的肉夹馍
 
-我呼吁各国及其公民在我们的主耶稣基督的十字架下结盟。他是唯一的君王和教主，和平之君，特级签名文斯。让我们找到这个反全球主义联盟，让我们给它一个简单而明确的计划，让我们将人类从一个集有史以来最糟糕的独裁统治的恐怖于一体的极权主义政权中解放出来。如果我们继续拖延，如果我们不了解笼罩在我们所有人头上的威胁，如果我们不组织起来进行坚定而勇敢的反抗，这种在各地建立起来的地狱政权将一发而不可收。愿全能的上帝帮助我们，保护我们！
+审核：喜马拉雅的馍夹肉
 
-视频链接：[https://gettr.com/post/phkexi5bef](https://gettr.com/post/phkexi5bef)
+校对：Maarago
 
-![](https://cdn.discordapp.com/attachments/873743101305430037/904371534930534400/Screen_Shot_2021-10-31_at_10.05.40_PM.png)
+（文章内容仅代表作者个人观点）
 
-**校对/发稿：童谣**
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-**更多资讯，更多关注**
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
