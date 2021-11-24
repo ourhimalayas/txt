@@ -2,25 +2,35 @@
 ---
 
 
-## 文贵爆料 11.24 : 中共国股市是一个大赌场，中共是唯一的庄家和老千
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1692233/)
+## 国际舆论谴责奥委会主席为中共洗地
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1692247/)
 
-撰稿：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-24-at-8.40.54-AM.jpeg)
-中共国的股市就是一台吸血机器！那些跳入逐利大潮的股民们，最终却深陷泥潭，无法自拔，留给他们的只有那难以抹平的伤痛。郭文贵先生在11月24日的大直播中说，中共国的股市就是一个大赌场，它没规则、不透明、不受监管，唯一的庄家就是中共，唯一的老千也是中共。
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月23日的消息显示，为平息舆论，国际奥委会主席托马斯·巴赫于21日与网球选手彭帅进行了30分钟的视频通话。事后，国际对彭帅事件的关注非但没有降低，国际舆论反而强烈地批评巴赫为中共洗地，沦为中共的帮凶。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-25-上午1.18.50.png)
+对此，世界球员协会发表声明称，国际奥委会一直故意限制运动员的言论自由，为了优先考虑与中共的关系，拒绝提及彭帅的性侵指控。同时，球员协会呼吁成立特别代表团与彭帅见面。另有媒体消息评论道， 国际奥委会此次的“静默外交”无非是为了中共进行的“公关特技表演”。 而一直持续为彭帅发声的女子网球协会主席史蒂夫·西蒙在最新的官方声明中表示，仅靠奥委会的这个视频不能够证明彭帅的健康和安全，彭帅的性侵犯指控正在被中共审查和掩盖。
 
-我嫂子刚开始炒股很高兴，每天早上坐那七八个小时看看电脑，经常在家炫耀她能够通过“低买高抛”挣到钱，我一句话没说，她总是问我，你给我说点内部消息？我说你记住，中国玩股票，老百姓挣不到钱。最后她把家里的很多钱都赔了进去。
-
-李克强有一次到我这里喝了点小酒，他说，中国的企业家有了小钱，记住先整点家业，再多一些钱就多交点朋友啊，有了大钱就得跑啊。文贵啊，他说我有发现你高，你结交的很多都是外国人，你把很多钱都放外面去了。胡宝这个傻货都把钱从海外，拿到里边来了，咱有一天能把它一勺汇了。
-
-我给你们讲过一段这故事，就在那个盘古2008年之后，突然间在我们开奥运会前、一半工程师说，郭先生我们可能要辞职了啊，我们玩股票都赚大钱了，有些人要回去专职炒股票了。我说你想好了吗？想好了，我说这样工资给你留啊，一年工资。人生经历了无数这样的事啊，后来我身边好几个人炒股的都是跳楼的跳楼、自杀的自杀。中共国的股市百分之九十几都是小客户，而美国八、九十都是机构客户。
-
-郭先生说，所以说咱们今天看共产党的这个股票市场上，多少人还要背叛家人，把一生的积蓄赔到了股票市场。可悲可恨啊! 你不信郭文贵，可以，你不要不信你的钱呢，你把你钱送到一个完全不能拿回的地方，这太可恨了。我再次告诉大家，共产党的股票市场不是金融市场，它没规则、不透明，不受监管，完全是唯一庄家，唯一的老千。
+消息中还提到，其他社会各界对国际奥委会的批评直接且犀利，认为奥委会太过无耻，只重利益不讲原则，仍在试图挽救中共的冬奥会，并为此成为专制政府的宣传工具。评论人士声讨称，奥委会的主席应该辞职，并且世界必须抵制中共2022冬奥会。
 
 参考链接：
+1)[https://twitter.com/teachjourno/status/1462485736196874246?s=21](https://twitter.com/teachjourno/status/1462485736196874246?s=21)
+2)[World Players: IOC’s call with Peng Shuai exacerbates alarm, special delegation needed](https://www.uniglobalunion.org/news/world-players-iocs-call-peng-shuai-exacerbates-alarm-special-delegation-needed)
+3)[Statement by Steve Simon, WTA Chairman & CEO on recent video posted by China state-run media of Peng Shuai](https://www.wtatennis.com/news/2361225/statement-by-steve-simon-wta-chairman-ceo-on-recent-video-posted-by-china-state-run-media-of-peng-shuai)
 
-[2021年11月24日 文贵大直播](https://gettr.com/streaming/phrbue7aa3)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
+总编：Irene木木
+编辑：Lakeman(文仁)
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,31 +2,33 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月24日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1691950/)
+## 听听疫苗后副作用患者及其家属的心声
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1691996/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-4.png)
+撰稿: 历史铭记
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-25.png)
-文章仅代表作者本人观点，与Gnews无关
+视频：历史铭记
 
-视频参看：2021.11.24早GTV新闻访谈
+字幕：Gradient Boost
 
-[https://gtv.org/video/id=619e3dc838f84e66c64ed2f7](https://gtv.org/video/id=619e3dc838f84e66c64ed2f7)
+上方视频中的这位女士一直在做莫德纳疫苗注射后被伤害情况更新。这是她第二针后的第十天。感谢上帝，这是她第一天没有因头疼而躺在床上。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+视频拍摄前一天夜里她又去了急诊室，这已经是两个星期内的第二次了。她丈夫回忆，他们相识的十二年间，她只去过急诊室一次，是因为流产。昨夜她觉得她是心脏病发作，医生告诉她症状和疫苗相关。这已经是不同的医生第五次这么确认了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-10.jpg)
+她的疫苗后遗症包括心率不齐，血压忽高忽低，几乎晕倒，虚弱，头晕，偏头疼，胸痛等等。这不是焦虑症状，她年轻时有过焦虑症，完全不一样。她只想分享她的故事，她注射了疫苗，得了非常非常严重的疾病。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+另有一位女士的老公因疫苗而被确诊为心肌炎，随后她将自己的故事在TikTok上进行了分享。她的初衷十分简单，只是希望为了能够被更多的人所倾听。
 
+然而当她发布的视频播放量超过了一万六千次的时候，抖音删除了她发布的视频，而给出的理由则是违反了社区规则条例。
+
+这位女士表示大家之所以无法在媒体上找到这些内容，就是因为各大平台都存在审核措施，而受苦的人被完全排挤。女士最后呼吁大家必须站出来反对强制疫苗，人们必须勇敢的发声。
+
+新闻参考链接：
+
+[推特（一）](https://twitter.com/Lsmj3721/status/1463034437059317762)
+
+[推特（二）](https://twitter.com/Lsmj3721/status/1463033416140550147)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
