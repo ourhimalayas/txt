@@ -2,52 +2,135 @@
 ---
 
 
-## 香港允许内地居民参与投票
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1691193/)
+## 什么是通胀通缩
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1691247/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/112405-1-1.jpg)香港特首林郑月娥。图片：彭博社
-香港（美联社）——香港领导人周二表示，香港当局将在与中国大陆交界处设立投票站，允许居住在那里的香港人在即将举行的立法选举中投票。
+[https://gtv.org/video/id=619de677e6900076612f1d38](https://gtv.org/video/id=619de677e6900076612f1d38)
 
-林郑月娥称，在12月19日的立法选举中，居住在大陆的已登记香港永久居民将能够越过边境进入香港，在特别投票站投票。
+**郭文贵
+Miles Guo**
 
-林郑月娥在一次例行新闻发布会上说，投票后，他们必须立即返回，不需要在中国大陆接受新冠隔离的措施。
+刚才你们做这PPT
+Earlier when you were presenting the PPT
 
-“目前，仍有一些人滞留在大陆，他们不能回来工作或学习，他们也不能回来香港投票（如果没有这些措施的话），”她说。
+我看到群里在讲，什么叫通胀，什么叫通滞
+I saw that the group was asking what inflation and deflation is
 
-目前，从香港前往中国大陆的人必须接受至少14天的隔离。从中国大陆到香港的旅行者如果没有到过大陆的任何高风险地区，就可以不经任何隔离措施进入香港。
+简单今天可以说
+I’ll explain it by simplifying it today
 
-立法选举是根据被改造后的香港选举法进行的第一次选举，目的在确保只有忠于北京的“爱国者”才能管理这个城市。直接选举的席位数量已经减少，许多立法者将由一个主要是亲北京的委员会来挑选。
+形容大家最能听得懂的话
+through describing what everyone can understand the most
 
-居住在大陆的香港人被认为更有可能支持亲北京的候选人。这项措施还可以提高选民的投票率，在选举改革之后，人们普遍预计今年的投票率会降低。
+就是本来这个人
+Let say a person
 
-林郑称，希望在特别投票站投票的人必须提前登记。
+这个经济不行
+says this economy doesn’t work
 
-“整个投票过程将被置于一个封闭空间中。前往这些特别投票站的选民不能离开投票站区域，他们不能进入社区，”她说。
+但是它错误的用了一招
+but he made a mistake
 
-另外，林郑称，一个由新冠专家组成的大陆代表团已经访问了香港四天，为可能的边境开放做准备。
+就打了疫苗
+which was getting vaccinated
 
-**简评：**
+还打了5针、10针疫苗
+and took 5 doses, even 10 doses
 
-被置于中共毒手阴霾下的香港已经在风雨飘摇中度过了两年多，在清理了议会民主派人士之后，香港政府再一次在立法选举层面向中共打开一扇大门。不难想象，地点设在边境，选民居住在大陆的这样一次投票，有多容易被中共操纵。只消适量的假身份、假选票就能将选举结果巧妙地扭向亲共势力一边，2020年的美国大选早已为我们埋下先例。可叹的是，香港民主就这样在全世界众目睽睽之下一步步沦陷，本着良心为香港发声的音量却微乎其微。郭文贵先生早有预言，今日香港之惨剧，将发生在世界所有的主要城市身上。果不其然，自疫苗推行以来，西方闻名遐迩的大城市一个个地遭遇强制令，公民的工作受到威胁，身体不由自己支配，言论自由被言论审查所取代。在这场荒诞剧中逐渐清醒的人们是否能够联想到，如果当时为共享同一份民主自由价值观的香港多出一份力，世界会不会变得和今天有所不同？
+由于疫苗打太多，造成眼梗、脑梗、心梗
+because of too many vaccines result in an ocular infarction, cerebral infarction, and myocardial infarction
 
-新闻链接：[Hong Kong to Allow Residents of Mainland to Vote in Election](https://www.newsmax.com/world/globaltalk/hong-kong/2021/11/23/id/1045777/)
+这就是美国和世界的经济
+and this is the US and the world’s economy
 
-***翻译**: 村民彼得潘*
+形容的很准确吧
+This describing is very accurate, correct?
 
-***校对**: 小小妹*
+就是美国给这个本来
+At first place, the US originally
+
+不应该（打疫苗）的人打了是5针、10针的疫苗
+shouldn’t have people vaccinated but the have taken 5 or even 10 doses already
+
+就造成脑梗、心梗、眼梗
+resulting in cerebral infarction, myocardial infarction, or ocular infarction
+
+所以美国叫滞胀、通胀、通缩并发
+Therefore, the US is having a concurrency of stagflation, inflation, and deflation
+
+就是社会的货币M2印的太多导致不流通
+That is because too much money was printed, M2 flooding leads to liquidity problems
+
+为什么呢
+Why?
+
+我想买面包，面包贵了
+I want to buy bread, but the bread turns expensive
+
+结果我不想买房子，房子可能便宜了
+If I don’t want to buy a house, the house may be cheaper
+
+我不想买汽车，可能汽车便宜了
+I don’t want to buy a car, but maybe the car is cheaper
+
+我想买汽车可能汽车贵了
+And when I want to buy a car, maybe the car turns expensive
+
+就完全是非需要和需要产品、生活用品、轻工业用品和重工业产品
+All these non-needed or needed products, daily necessities, light or heavy industrial products,
+
+还有供应链完全是就像你打了疫苗一样
+and the supply chain is exactly like someone who has been COVID-19 vaccinated
+
+到处梗到处阻
+clogging everywhere
+
+它就通胀通缩呀
+it’s inflation or deflation
+
+该给的不给，该要的不要
+What should be given are not given, and what should be taken are not needed
+
+该堵的全堵了
+What should be blocked are all clogged
+
+而且全世界性的
+and it’s worldwide
+
+人类上从来没想像今天全人类并发了一种症
+We have never imagined that all human beings are suffering from one kind of disease today
+
+个人身体叫做疫苗灾难
+For individuals, it’s a vaccine disaster
+
+各种病、各种梗、心包炎、心肌炎
+It has various diseases, various infarctions, pericarditis, myocarditis
+
+经济一模一样
+The economy is exactly the same
+
+简称通胀通缩
+simply called inflation or deflation
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+Date: 11/20/2021
+原视频标题: 什么是通胀通缩
+What is Inflation And Deflation
+原视频日期：2021/11/19
+原视频链接: [https://gettr.com/post/pheu1l1bb3](https://gettr.com/post/pheu1l1bb3)
+任务编号：KC280（2958）
+视频时间段 : 0:00-1:41
+中听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/24/2021 1:05 PM (UTC)`
+
+2021年11月24日 文贵大直播：北京深圳香港交易所；病毒疫苗灾难与解药；喜币喜联储GTV股票；新中国联邦灭共使命
+![img](https://media.gettr.com/group2/origin/2021/11/24/12/8763880f-9b86-9b50-0708-d3cb53a9d467/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 11/24/2021 10:44 AM (UTC)`
 
 🙏🙏🙏
@@ -293,13 +300,6 @@ Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Touch
 
 Golden State of Mind<br/><br/>@gfashion <br/>@DDNYC 
 ![img](https://media.gettr.com/group32/getter/2021/11/20/03/07/355ced94-cb4b-e694-8640-043416168018/111be944925b5eca8a4b9d41d052c786.jpg)
-
----
-
-`@miles 11/20/2021 1:01 PM (UTC)`
-
-2021年11月20日 “11·20”发布会及法治基金、法治社会成立三周年纪念日大直播
-![img](https://media.gettr.com/group6/origin/2021/11/20/12/3caabf07-86eb-78e8-d62d-f3cb94543810/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 

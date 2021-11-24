@@ -2,43 +2,35 @@
 ---
 
 
-## 拜登将从战略石油储备中释放5000万桶
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1691248/)
+## 喜币涨价根本原因是去掉中心化，不再需要银行和信用卡
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1691300/)
 
-编译：西班牙巴塞罗那喜悦农场-wenwu
+**郭文贵先生：**你能想到未来三十八之后，整个支付系统在全球流通的时候，什么概念？郝海东先生和哈恩同时在两个国家，一个欧洲，一个在韩国。你在北美加拿大，文斌，你也找到同一个商店说，我现在希望你能接受我的喜币，还有喜Dollar，记住不能光说喜美元，人家迪拜这家是既接受币也接受美元。这是个牛叉得不能再牛的事了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-678.png) 图片来源： eu.usatoday.com
+找地方就支付的时候，这家说我愿意接受你的支付。那第一步你说，你先在喜美元去开账号——KYC。你只要开了账号了，跟当地政府没有蛋的关系，是吧！你就是上传KYC。你只要有了账号了，你才能接受我的支付。这是什么？我哈恩就可以直接往你那个，文斌找的加拿大的任何卖内裤的、卖饭的，我就可以给你下单买东西，我也可以东弟那块买东西。
 
-白宫周二（23日）宣布，在[天然气价格](https://www.usatoday.com/story/money/2021/11/22/gas-prices-thanksgiving-travel/8665123002/)飙升和通胀飙升的情况下，乔·拜登总统将从国家紧急储备中释放 5000 万桶石油（战略石油储备将在几个月内释放 3200 万桶；1800 万桶在未来几个月里释放），以降低能源成本 。
+你们互相就可以买了，这就是什么？就要去中心化。没有第三方，不需要妈咪，不需要信用卡，不需要银行。这个接受得越来越多的时候，这个支付系统，世界就不需要银行了，不需要这个。你们所有的痛苦，都看不到，都没了。这才是喜币要涨价的根本原因。
 
-美国拜登总统一直承受着越来越大的政治压力，要求美国人从汽油价格上涨中解脱出来，并[抑制](https://www.usatoday.com/story/news/politics/2021/11/13/inflation-what-can-joe-biden-do-tame-soaring-prices/6392686001/)10月份触及 31 年高位的[通胀](https://www.usatoday.com/story/news/politics/2021/11/13/inflation-what-can-joe-biden-do-tame-soaring-prices/6392686001/)；共和党人将包括能源价格在内的消费品成本增加归咎于拜登的政策；民主党人指出了积极的经济指标，[例如失业率下降](https://www.usatoday.com/story/money/2021/11/05/october-jobs-report-531-000-jobs-added-last-month/6291466001/)；经过数月的外交谈判，美国将与包括中共国、印度、日本、韩国和英国在内的其他主要能源消耗国同时释放石油。
+视频制作：小满；
 
-根据 GasBuddy 根据涵盖 150,000 多个加油站的超过 1100 万份个人价格报告汇编的数据，平均汽油价格为每加仑 3.39 美元，平均柴油价格目前为每加仑 3.63 美元；拜登呼吁沙特阿拉伯和阿拉伯联合酋长国等产油国提高产量，以减轻美国消费者的负担，但这些国家拒绝了增加原油产量的要求，使拜登几乎没有办法降低天然气价格；联邦政府本月报告称，随着美国经济从中共病毒大流行中复苏，过去 12 个月[通货膨胀率](https://www.usatoday.com/story/money/2021/11/10/consumer-prices-surge-october-highest-inflation-rate-since-1990/6368816001/)飙升；拜登[上周呼吁联邦监管机构调查](https://www.usatoday.com/story/news/politics/2021/11/17/biden-asks-regulators-examine-conduct-oil-and-gas-companies/8649244002/)石油和天然气公司是否通过从大流行期间飙升的天然气价格中获利而从事“非法行为”。
+字幕来源：[2021年11月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1681917/) ；
 
-什么是战略石油储备？
+发布：黎明之前；
 
-战略石油储备是在发生自然灾害、国家安全问题和其他事件时保护石油供应的储备。该储备由能源部维护，储存在德克萨斯州和路易斯安那州海湾沿岸的盐穹顶中的洞穴中。储备中大约有6.05亿桶石油。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-该储备是在1973年石油危机后由美国国会于1975年建立的，当时石油出口国节制生产，导致能源价格飙升。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-由于全球石油生产的变化使立法者对潜在的石油短缺不那么担心，美国已经动用该储备来增加收入。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-上一次大规模释放石油储备是在2011年，当时巴拉克·欧巴马总统释放了3000万桶石油，以应对利比亚内乱造成的供应中断。乔治·W.布什总统在2005年从储备中释放了1100万桶石油，以应对卡特里娜飓风造成的供应中断，他的父亲乔治·H·W.布什总统在波斯湾战争期间释放了1700万桶石油。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-682.png)图片来源： eu.usatoday.com
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-**简评：**
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-**一则来自《[零对冲](https://cms.zerohedge.com/s3/files/inline-images/bfmCF70.jpg?itok=sh5nqTyY)》的相关报道。**
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-**拜登政府拼命试图阻止其支持率的直线下降，从而“做了一些事情”，但对于每天[消耗两](https://twitter.com/GreekFire23/status/1463127239214702593?s=20)千万桶的美国来说，不起作用；凯尔·巴斯[解释](https://twitter.com/Jkylebass/status/1463128462831636490?s=20)说，更[高](https://www.zerohedge.com/commodities/goldman-spr-release-now-fully-priced-and-will-send-oil-price-even-higher-2022)的油价即将到来，“正是这种幼稚的想法将损害美国的国家安全，并损害穷人和有需要的人”。**
-
-新闻来源：[usatoday.com] [US to release 50M barrels from strategic oil reserve amid soaring](https://www.usatoday.com/story/news/politics/2021/11/23/gas-prices-biden-release-50-m-barrels-strategic-oil-reserve/8722649002/)
-
-* * *
-
-*发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

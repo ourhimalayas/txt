@@ -2,14 +2,15 @@
 ---
 
 
-## 澳联邦银行认识到了错失加密货币市场的损失
-` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1691049/)
+## 中共国养老理财试点产品首发在即
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1691059/)
 
-澳大利亚联邦银行（CBA）首席执行官MattComyn表示，我们意识到了错过加密货币会带来的损失。CBA将成为澳大利亚“四大”银行中第一个提供基于加密货币服务的银行，该银行于11月3日宣布将支持直接通过其银行应用程序进行10种数字资产的交易。
+11月23日，建信理财养老理财产品试点方案获监管机构认可，首批养老理财试点产品已经报备，预计将于近期正式发行。
 
-11月19日周五，Comyn在接受彭博电视采访时被问及CBA对加密货币领域的看法时，这位CEO指出：“我们看到了参与的风险，但我们更看到了不参与会带来的损失更大。”
-![图片](https://media.gettr.com/group36/getter/2021/11/24/03/47/7f55c8c1-3b36-1a23-ce09-3f121907738c/55ae3b73017b28bf0c373076f2c8efe7_500x0.jpg)
-参考链接：[https://fortune.com/2021/11/18/comm…](https://fortune.com/2021/11/18/commonwealth-bank-australia-ceo-matt-comyn-crypto-market-risk-investment/)
+财经G评：
+还记得中共国新华网集中报道的“以房养老”吗？中共奴役人民涵盖人一生的方方面面：生老病死、医疗、教育、住房等。人老之后只有少数人有点积蓄，但这些也被共匪天天惦记！另一方面也表现出中共现在的经济有多差了。
+![图片](https://media.gettr.com/group49/getter/2021/11/24/03/05/214938b5-72d8-204b-2af9-a03cddccb7e4/58adf1af3449d90c26b6ff8ec8e2c31e_500x0.jpg)![图片](https://media.gettr.com/group49/getter/2021/11/24/03/763f9def-8f9d-bd51-e3c5-8dab3493b26a/5451d05eedfd0b23461baef3b0b5b7ca_500x0.jpg)
+参考链接：[http://www.cs.com.cn/lc/202111/t2021…](http://www.cs.com.cn/lc/202111/t20211123_6222358.html)
 
 （文章内容仅代表新西兰-财经G乐部节目观点）
 
