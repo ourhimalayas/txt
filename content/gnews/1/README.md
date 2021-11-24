@@ -2,46 +2,26 @@
 ---
 
 
-## 美国针对德国和丹麦发出旅行警告
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1689973/)
+## 德国良医自我牺牲以反抗疫苗强制接种令
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1689979/)
 
-作者：纽约香草山教育部 Naughty(文行)
+采编：UCool 优酷  编译撰稿：文明(添草灭共)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-2.png)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-59.jpg)图片来源：STESSNEWS
 
 
+据在线新闻【Stessnews】11月17日援引德国媒体《图片报》消息称，现年55岁的诊所负责人，市立医院董事詹德格斯医生日前从位于德国开姆尼茨市的该诊所大厦顶部跳楼自尽。
 
+报道称，詹德格斯医生在其生前留下的遗书中表示，德国政府蓄意欺骗和误导民众去接种实验性的“新冠病毒”疫苗之举，等同于进行着一场种族灭绝和反人类的罪行。外界因此猜测，不愿成为该犯罪团伙成员之一就是其自杀的主要原因。
 
+此外，遗书还透露该医生曾经收到当地市长的威胁警告，指如果他不服从政府命令而拒绝为其病人接种疫苗，则将被医院解雇。据悉，当局曾一直试图阻止公布这份遗书，但在德国各大网络媒体及社交舆论的压力下，最终才在近期被公之于众。
 
-据路透社11月22日报道，美国CDC和国务院周一建议人们不要前往德国和丹麦，因为这两个国家的新冠病例正在不断增加。
+* * *
 
-CDC将其对这两个欧洲国家的旅行建议提升为“四级：非常高”，告诉美国人他们应该避免到那里旅行，而国务院则针对两国发布了“禁止旅行”建议。
+校对编辑，发稿：硫酸羟氯喹64
 
-本月早些时候，世界卫生组织表示，随着死亡人数和确诊病例激增，欧洲国家必须更加努力地防止新冠病毒进一步传播。
-
-世卫组织的汉斯·克鲁格警告说，目前53个欧洲国家的病毒传播率“令人严重关切”，新增病例接近历史最高水平，更易传播的德尔塔病毒变种加剧了这种情况。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-10.png)图片来源：路透社
-参考链接：
-
-https://www.reuters.com/business/healthcare-pharmaceuticals/us-raises-covid-19-travel-warning-germany-denmark-2021-11-22/?utm\_source=ground.news&utm\_medium=referral
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-3.jpg)
-
-编辑/校对/发稿：滚滚长江都是水
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+原文链接：
+https://stessnews.online/2021/11/17/germany-dr-thomas-jendges-head-of-clinic-commits-suicide-covid-19-vaccine-is-a-genocide/
 
  
 
