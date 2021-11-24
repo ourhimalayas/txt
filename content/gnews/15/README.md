@@ -2,24 +2,28 @@
 ---
 
 
-## 《长津湖》马来公映被拒！中共已为世界所唾弃
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690351/)
+## 参议员汤姆·科顿：国际奥委会是CCP代言人，抵制冬奥会
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1690481/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-630.png)[图片来源](https://www.gamerxk.com/news/202108/1411307.shtml)
-据中共“环球时报”11月24日报道，目前以56亿元人民币票房位居2021年全球票房榜首的《长津湖》，在马来西亚上映时却遭遇“电审未通过”。
+【简评：】*35*岁的彭帅是中国颇有名气的体育明星，但她在本月初对中国前副总理张高丽提出性侵指控后，在公众视野中消失了近三周。这是中国高级领导人首次受到这样的指控。彭帅的帖子很快就被屏蔽，她的名字也在多个社交平台遭到屏蔽。在一次刻意安排地与国际奥委会的视频通话后，质疑声仍然不断。*IOC*假装彭帅从未提出性侵指控，也没有失踪了两周多。*IOC*的声明使国际奥委会成为中国当局恶意宣传和缺乏对基本人权和正义关注的同谋。希望科顿的提议能得到广泛支持，坚决抵制*2022*北京冬奥会。
 
-报道称，《长津湖》原定于本月18日在马来西亚上映，然而在当地影院放出海报后却在网络上引发抗议，反对者声称影片宣扬共产主义。
+据《布莱巴特新闻网》记者[IAN HANCHETT](https://www.breitbart.com/author/ian-hanchett/)，2021年11月22日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/0BAFE2CF-CB9F-46E5-BD01-CBFF7C645B93.png)图片来源：Fox News
+在福克斯新闻频道周一播出的《美国新闻编辑室》(America’s Newsroom)节目中，参议员汤姆·科顿 (R-AR) 表示，国际奥委会 (IOC) 在中国网球明星彭帅的案件中扮演着中国共产党的“代言人”角色。并认为美国应该完全抵制2022年冬季奥运会，因为我们无法保证美国参赛者的安全，从“无处不在的电子监控到DNA采集，或者只是人质劫持”。
 
-《长津湖》是中共官方投资拍摄的一部反映“抗美援朝”的电影，上映后又在中共官方的助推下，使其国内票房超过《战狼2》登顶中国电影票房榜。中共通过《长津湖》，篡改美化朝鲜战争的同时，不断鼓噪仇美的“爱国”情绪。
+科顿说(相关言论在2:30左右开始)：“国际奥委会只不过是中国共产党的一个代言人。上周，我呼吁对此次冬奥会进行全面、彻底的抵制，部分原因是，从无处不在的电子监控到DNA采集，或者仅仅是劫持人质，拜登政府无法保证我们的运动员及其教练和工作人员的安全。如果中国共产党带走自己的运动员，然后让他们消失，然后像此次人质视频（彭帅和国际奥委会通话视频）中一样再次让他们出场，他们会对我们的运动员做什么?这是一个对自己人民犯下种族灭绝罪行的政权。我们不应该用奥运会比赛来庆祝或纪念中共国。我们可以重新安排举办此次冬奥会。如果我们现在采取行动，可能有6个欧洲国家可以在2月份举办此次冬奥会。”
 
-马来西亚作为中共渗透影响极深的东南亚国家，此次官民一致地抵制《长津湖》电影公映，就是世界对于中共态度的反映。
+原文连接[https://www.breitbart.com/politics/2021/11/22/cotton-the-ioc-is-acting-as-the-ccps-frontman-and-we-cant-ensure-safety-of-olympic-competitors-in-china/](https://www.breitbart.com/politics/2021/11/22/cotton-the-ioc-is-acting-as-the-ccps-frontman-and-we-cant-ensure-safety-of-olympic-competitors-in-china/)
 
-信息来源：[《长津湖》在马来西亚上映遇阻](https://world.huanqiu.com/article/45i9o5RZOoX)
+翻译：洛杉矶盘古农场 – 比格渣餐厅老板の娘
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – 比格渣餐厅老板の娘
+编辑：洛杉矶盘古农场 – 柯镇恶
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

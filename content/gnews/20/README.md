@@ -2,22 +2,50 @@
 ---
 
 
-## 怎么看中美会晤的选择题和必答题？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690324/)
+## 堪萨斯州拟立法放宽疫苗宗教豁免
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1690438/)
 
-撰稿：东京樱花团/神的带领
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11245.png)[视频截图](https://haokan.hao123.com/v?context=%7B%22nid%22%3A%22sv_1801803647072590705%22%2C%22sourceFrom%22%3A%22bjh%22%7D&amp;isBdboxShare=1&amp;pd=share&amp;vid=1801803647072590705)
-近日，中共央视新闻“大国外交最前线”再次解读11月16日上午（北京时间）拜习视频会议。
+作者：纽约香草山教育部 – Naughty(文行)
 
-报道称，首脑会晤上半场延长了半个小时，并一再强调这次视频会晤是美方主动的寻求，所以中方要求美方拿出诚意，美方要知道到底该怎样定义中美关系，什么是负责任的管控分歧，而且要知道中共在哪些原则底线的问题是绝对不会让步的。报道还进一步称，9月10日习与拜登通话中就指出中美关系不是是否搞好关系的选择题，而是如何搞好关系的必答题，而且这必答题就这次会晤找到答题思路及解题方法。
 
-正如郭文贵先生GTV大直播所讲，拜登为了中期选举，为了保住经济而无条件跪求中共会晤，以求短暂假象与目的。当前，这一轮背后的泥潭效应已经开始了，中共会在泥潭中死得更狰狞，美国及世界将迎来更黑暗时刻。
 
-信息来源：[中美元首会晤上半场延长近半小时](https://haokan.hao123.com/v?context=%7B%22nid%22%3A%22sv_1801803647072590705%22%2C%22sourceFrom%22%3A%22bjh%22%7D&amp;isBdboxShare=1&amp;pd=share&amp;vid=1801803647072590705)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+
+
+11月22日，堪萨斯州共和党议员采取行动挑战该州的疫苗强制接种政策，并要求州长劳拉·凯利召开特别会议，研究应对中共病毒疫苗强制接种政策的措施，并积极推动雇主接受所有宗教豁免的请求。
+
+凯利在声明中说，“我认为拜登这项指令对堪萨斯州来说不是正确或最有效的解决方案。我们已经制定了适合我们具体需求的系统和战略。”
+
+当日，堪萨斯州参议院投票批准了相关法案，并禁止私人雇主发布疫苗强制接种的要求。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-10.jpg)
+参考链接：
+[Kansas GOP eases religious vaccine exemptions, moves to limit mandates](https://thehill.com/homenews/state-watch/582736-kansas-gop-ease-religious-vaccine-exemptions-move-to-limit-mandates?utm_source=ground.news&amp;utm_medium=referral)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：文徬
+编辑：木白
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

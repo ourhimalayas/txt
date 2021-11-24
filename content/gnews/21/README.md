@@ -2,28 +2,30 @@
 ---
 
 
-## 儿童接种新冠疫苗会破坏先天免疫力，不可逆地阻止了群体免疫
-` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1690319/)
+## 有声|GTV新闻访谈简报|2021年11月21日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1690437/)
 
-安全影响，因为他讨论的是安全问题
-这对安全问题的影响将是巨大的
-其数量级甚至无法与我们
-正在谈论的副作用相提并论
-那就是使病毒产生抗药性
-进而剥夺儿童的先天免疫力和疫苗性保护
-并以不可逆转的方式
-阻止人口产生群体免疫力
-因此，我们要做的不是让
-人们对病毒施加选择压力
-而是让病毒对宿主的
-先天免疫力施加选择压力
-因此，这意味着只有那些仍然
-保持先天免疫力的人有机会生存
+配音：香草山教育部 – 蒙古鸿雁
 
-听写/翻译：UCool
-字幕添加： Kent
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-7.png)
 
-发布:风云小哥
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1121text-SC.png)
+原文链接：[GTV新闻访谈简报|2021年11月21日早](https://gnews.org/zh-hans/1684270/)
+
+
+音频处理：喜山必胜Maverick
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-6.jpg)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://xn--%20%7Cgtv%20%20gtv-%20%7Cmos%20talk%20%20%20%7C%20gettr%20%20%20%7Cyoutube%20%20%7C%20discord-kw44l1t1gm8doayup218v624hpazvr1825bzx4emafxdws06012bhtnpta2axu46wua3ayv7960lnaiygzw1416y8vh370k17zmoajzj0ay/)
 
  
 

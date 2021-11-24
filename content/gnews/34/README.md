@@ -2,66 +2,47 @@
 ---
 
 
-## 众议员吉姆·班克斯：中共每年向华盛顿DC智库支付数百万美元
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1690143/)
+## 这是一场全球政变！
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1690246/)
 
-众议员吉姆·班克斯： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 每年向华盛顿DC智库支付数百万美元。 我有一项法案，旨在要求国会证人报告其雇主收到的任何外国政府现金。 国会在坦率直观的情况下会工作得更好。 【转axios报道： 第一眼：针对国会证词背后的外国现金】
+整理：纽约香草山农场健身部 – 幸福鸟
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+维加诺大主教指出，这是一场全球政变！他大声疾呼全世界正义力量尽快建立反全球主义联盟，否则这种在各地建立自己的地狱政权将无法阻止！下面是根据11月21日维加诺大主教的英文视频中的中文字幕整理出的内容：
 
+亲爱的朋友们：
 
+两年来，我们目睹了一场全球政变。金融和意识形态精英成功地控制了部分国家政府，公共和私人机构，媒体，司法机构，政治家和宗教领袖。所有这些都毫无区别地被这些新主人所奴役，而这些新主人确保了他们的同伙获得权力，金钱和社会肯定。直到昨天仍被视为不可侵犯的基本权利，以紧急情况的名义被践踏；今天是卫生紧急情况，明天是生态紧急情况，然后是互联网紧急情况。
 
-> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) pays DC think tanks millions each year. I have a bill that requires Congressional witnesses to report any foreign government cash their employer receives. 
-> 
-> Congress works better with the cards face up on the table.[https://t.co/9pWRKNLI4E](https://t.co/9pWRKNLI4E)
-> — Jim Banks (@RepJimBanks) [November 23, 2021](https://twitter.com/RepJimBanks/status/1463179366288998402?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-628.png)
 
+这场全球政变剥夺了公民任何辩护的可能性，因为立法，行政和司法权力是违反法律和正义的同谋。这是一场全球政变！因为这种针对公民的犯罪袭击遍及全世界，只有极少数人得以幸免。这是一场世界大战，敌人就在我们所有人中，尽管有些人还处于不知情状态，还没有理解正在发生的事情的重要性。这是一场不用武器而通过非法规则，邪恶的经济政策和令人无法容忍的对天赋人权的限制来进行的战争。
 
+在很大程度上，由这场政变的阴谋者资助的超国家组织，正在干预各国政府以及数十亿人的生活，人际关系和健康。他们这样做当然是为了钱，但更重要的是为了集中权力以建立全球独裁统治。它是世界经济论坛的大重启，是联合国2030年议程。这是新世界秩序的计划。在这个计划中，一个全球性共和国奴役着每个人，而一个人类宗教取消了对基督的信仰。面对这场全球性的政变，有必要组建一个国际反全球主义联盟，集结所有想反对独裁统治，不愿做无信仰权力的奴隶的人，不愿取消自己身份，自我个性以及宗教信仰的人。如果攻击是全球性的，那么防御也必须是全球性的。
 
-参议员玛莎·布莱克本：哦，顺便说一句，如果这14亿人中的任何一个反对 #中共 政府，他们就会被消失。问问 #马云 和 #彭帅。#彭帅在哪里 #WhereIsPengShuai
-【转中共大外宣(陈卫华)的推：他厚颜无耻地谎称 #中共 政府在14亿人中得到80-90%的支持率，比任何美国政府想象的都要高。】
+我呼吁统治者，政治和宗教领袖，知识分子和所有善意的人，邀请他们联合起来，发起反全球主义宣言，彻底揭露和纠正这个令人恐怖的新世界秩序，制定具体政治方案来维护共同利益，基督教道德原则，传统价值观，保护生命和自然家庭，保护商业和工作，促进教育和研究，尊重创造。这个反全球主义联盟必须将那些打算摆脱暴政的地狱枷锁并恢复和平的国家联合起来，与拥有共同原则渴望自由和正义的国家和人民达成相互合作的协议。它将不得不谴责精英的罪行，确定责任人。向国际法庭谴责他们，并限制他们的过度权力和有害影响。它将不得不阻止游说团体的行动，先要打击国家官员和信息产业工作人员的腐败，并冻结用于破坏社会秩序的资金。在政府从属于精英的国家中，他们将能够建立民众抵抗运动和民族解放委员会，包括社会各界的代表。他们在共同利益的鼓舞下提出彻底的政治改革，并坚决反对全球主义下的新马尔萨斯计划。我邀请所有想捍卫传统基督教社会的人尽快在国际论坛上聚在一起，各国代表齐聚一堂，提出一个严肃，具体和明确的建议。
 
+我呼吁政治领导人和关心公民利益的统治者，抛开旧的政党制度和受权力和金钱奴役的制度强加的逻辑。我把基督教国家从东到西召集在一起，邀请国家元首和机构，经济，劳动力，大学，医疗保健和信息领域的健康力量加入一个共同项目，打破旧制度，放弃敌对行动，因为这些正是人类的敌人以分裂帝国的名义所渴望看到的。我们不接受对手的规则，因为它们的制定正是为了防止我们作出反应并组织有效而尖锐的反抗。
 
+我呼吁各国及其公民在我们的主耶稣基督的十字架下结盟。他是唯一的君王和教主，和平之君，特级签名文斯。让我们找到这个反全球主义联盟，让我们给它一个简单而明确的计划，让我们将人类从一个集有史以来最糟糕的独裁统治的恐怖于一体的极权主义政权中解放出来。如果我们继续拖延，如果我们不了解笼罩在我们所有人头上的威胁，如果我们不组织起来进行坚定而勇敢的反抗，这种在各地建立起来的地狱政权将一发而不可收。愿全能的上帝帮助我们，保护我们！
 
-> Oh, by the way, if any of the 1.4 billion speak out against the Chinese government, they disappear them. Ask Jack Ma and Peng Shuai. [#WhereIsPengShuai](https://twitter.com/hashtag/WhereIsPengShuai?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/f74WYnxBu0](https://t.co/f74WYnxBu0)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 23, 2021](https://twitter.com/MarshaBlackburn/status/1463264558433329153?ref_src=twsrc%5Etfw)
+视频链接：[https://gettr.com/post/phkexi5bef](https://gettr.com/post/phkexi5bef)
 
+![](https://cdn.discordapp.com/attachments/873743101305430037/904371534930534400/Screen_Shot_2021-10-31_at_10.05.40_PM.png)
 
+**校对/发稿：童谣**
 
-美前国务卿迈克·蓬佩奥： “政治家的挑战在于拥有梦想一个更美好、更安全的世界的愿景，以及将梦想变为现实的勇气、毅力和耐心。” – 罗纳德·里根总统
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-> “The challenge of statesmanship is to have the vision to dream of a better, safer world and the courage, persistence and patience to turn that dream into reality.” – President Ronald Reagan
-> — Mike Pompeo (@mikepompeo) [November 23, 2021](https://twitter.com/mikepompeo/status/1463257403978391553?ref_src=twsrc%5Etfw)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-
-众议员迈克·沃尔茨： 那么，首先联合国允许 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 访问其文件，以便他们可以追捕 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 持不同政见者，现在联合国解雇了举报人？ 真令人作呕。拜登政府再次保持沉默。 【转福克斯新闻：布莱克本抨击 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在世界机构中的“恶意影响力”，联合国举报人因指控中共国犯规而被解雇】
-
-
-
-> So first the UN allows the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) access to its files so they could hunt down Chinese dissidents and now the UN fires the whistleblower? Disgusting. Once again, silence from the Biden admin.[https://t.co/OZnlD7LfxI](https://t.co/OZnlD7LfxI)
-> — Rep. Mike Waltz (@michaelgwaltz) [November 23, 2021](https://twitter.com/michaelgwaltz/status/1463241770507157506?ref_src=twsrc%5Etfw)
-
-
-
-美国国会及行政当局中国委员会： 钟翰林被根据公安法以“分裂国家”和“洗钱”为由判处43个月的长期监禁，尽管在该法律颁布之前解散了他的政治团体，这引起了对国安法用于追溯(过去)的严重担忧。 【转卫报报道：香港活动人士钟翰林因国安法被判入狱 法官以分裂国家和洗钱罪判处20岁的三年零七个月监禁】
-
-
-
-> [#TonyChung](https://twitter.com/hashtag/TonyChung?src=hash&amp;ref_src=twsrc%5Etfw)’s sentence to lengthy 43 month prison term for “secession” and “money laundering” under [#NationalSecurityLaw](https://twitter.com/hashtag/NationalSecurityLaw?src=hash&amp;ref_src=twsrc%5Etfw), despite disbanding his political group before the law’s enactment, raises serious concerns over retroactive application of NSL. [https://t.co/VYc7vlwkGY](https://t.co/VYc7vlwkGY)
-> — China Commission (@CECCgov) [November 23, 2021](https://twitter.com/CECCgov/status/1463234167563558915?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克·蓬佩奥： 世界不能因为其持续不断地侵犯人权行为而奖励 [#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)。 [#抵制北京奥运会](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A?src=hashtag_click) 【转纽约邮报：拜登应该抵制北京奥运会的六大理由】
-
-
-
-> The world cannot reward Xi Jinping and the CCP for their ongoing human rights violations. [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/93MpAHpUsu](https://t.co/93MpAHpUsu)
-> — Mike Pompeo (@mikepompeo) [November 23, 2021](https://twitter.com/mikepompeo/status/1463188658396274696?ref_src=twsrc%5Etfw)
-
-
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
