@@ -2,37 +2,33 @@
 ---
 
 
-## 中共的六大罪行 拜登抵制北京冬奥会
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1690524/)
+## 有声|文贵先生盖特直播对战友忠告
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1690584/)
 
-#### 翻译/撰稿：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/116778582_xxjpsgc007377_20201230_pepfn0a001.jpg)图片来源：BBC
-根据纽约邮报 (New York Post)11月20日的报道，美国总统拜登表示，他正“考虑”对明年在北京举行的冬奥会进行外交抵制。
+配音：香草山香港部 – 文凯琳
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+美东时间11月22日，郭文贵先生在盖特直播。
 
-中共的目的是希望奥运会成为中共的宣传工具，并让莱尼·里芬斯塔尔（Leni Riefenstahl）的奥林匹亚（Olympia）蒙羞。这并不仅是美国官方代表团的工作，而是世界各国都应该蔑视中共的这种行为。
+文贵先生一边健身，一边直播，提醒战友们千万不要忘了健身：“不管您有什么理由，不管您有钱还是有权有名，千万不要有任何侥幸心理。没有了身体健康，什么都完了”！
 
-文章以下列举出中共的六大恶行：
+文贵先生和大家分享，喜币的价格仅仅是其价值的很多分之一。最重要的是它的支付系统，流通系统，去中心化的区块链技术，以及20%的储备黄金。文贵先生告诉战友们，这些都是全世界最核心的技术。但是，如果喜币不流通，不支付，没有喜贷款，没有更多机构接受和进场，所有的数据都不真实的。对于喜币的未来而言，文贵先生做出的判断是一切尚早，甚至可以说一切都没开始。
 
-- 中共违反了联合国《防止及惩治灭绝种族罪公约》 (Genocide Convention) 中的每一条规定。中共对新疆西部的维吾尔族人进行了骇人听闻的虐待，它将大约200万维吾尔人、哈萨克人和其他穆斯林少数民族关押在约260个秘密建造的高度戒备的集中营或拘留中心。据少数逃离出来的人员透露，他们被强制灌输知识思想，受到性虐待，甚至被迫绝育。
+文贵先生最后忠告战友们，尽管你有喜币和投资，只要你忘了灭掉共产党的使命，那是绝对不行的。战友们得到的一切利益，是因为和新中国联邦绑定在一起才有的。灭掉共产党是我们的目标，你做任何和这一个目标违背的事情，那都是不行的。 不消灭共产党的邪恶体制，世界将永无宁日，谁也无法获得安全。
 
+文字版原文：[文贵先生盖特直播对战友忠告](https://gnews.org/zh-hans/1687706/)
 
-- 对于已经夺走超过500万人生命的中共病毒大流行，中共完全拒绝合作。大卫·阿什（David Asher）指出，“科学和间接性证据已经证明中共病毒是武汉实验室事故造成。”中共自病毒爆发的第一天起就尽其所能的搅浑水。从将吹哨人李文亮医生在网络上除名，到指责病毒是美国通过冷冻食品包装带到中国，再到强迫世卫组织支持中共的谎言。
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-- 中共摘取所谓的“犯人”的器官，这种做法持续近二十年之久，被害人主要来自于法轮功学员和维吾尔族穆斯林。中共对外一直声称，所有的器官都是这些死者死后自愿捐赠的，但原始数据表明这根本是不可能的。
-
-
-- 中共对香港自由的镇压，中共现在的行为与当初香港回归时的承诺背道而驰，中共不仅镇压任何形式的民主，而且还逮捕任何阻碍中共发展的人。
-
-
-- 中共对教会发起“战争”，习近平希望在他面前没有其他神明，人们只能遵奉他为神。多年来，他一直镇压中国的基督教，禁止儿童参加礼拜、拆毁教堂、用他自己代替耶稣的形象、监禁牧师、而且改编圣经，使其符合中共的道路。
-
-
-- 最近一位参加过三届奥运会的网球明星彭帅在中共“被消失”。因为她曾指控前国务院副总理张高丽对她有性侵行为。这就是中共的做法，即便世界各国的政府和国际奥委会对此视而不见，但这也足以成为运动员自己抵制冬奥会的理由。
-
-
-新闻来源：[Six massive reasons why Biden should boycott Beijing Olympics](https://nypost.com/2021/11/20/six-massive-reasons-why-biden-should-boycott-beijing-olympics/)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

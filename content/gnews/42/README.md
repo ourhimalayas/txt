@@ -2,50 +2,24 @@
 ---
 
 
-## 美军舰依法穿越台湾海峡
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1690531/)
+## 台湾受邀首届白宫民主峰会 中共未在名单
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690686/)
 
-作者：东京樱花团—在远方
+撰稿：东京樱花团/皓月当空郭
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-186.png)（图片来源于本文链接）
+（华盛顿24日讯）美国总统拜登12月将召开首届虚拟民主峰会，美国国务院当地时间周二公布与会者名单，共有台湾、英国、德国、立陶宛、日本与印尼等110国和地区受邀，中共国、俄罗斯等威权国家未在名单上。
 
+另据台湾中央社报导，拜登12月9日至10日将召开虚拟领袖民主峰会，邀集国家元首、公民社会、慈善事业与私部门成员谈论民主挑战。首届峰会将聚焦3大主题，包括对抗威权、打击贪腐及促进对人权的尊重。
 
+简评：我们可以看到，虽然美国和中共经济利益关系交往大，但是在民主人权方面，美国政府还是有清晰的认识，美国并没有因为中共经济来往多而忽略台湾，反而此次首届白宫民主峰会邀请台湾，而忽略中共！同时我们看到，世界各个国家的眼睛是雪亮的，能够判断出一个国家是民主还是威权极权独裁，民主的国家始终会得到别人的尊重！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+信息来源：
 
+[美國務院公布：台灣受邀白宮民主峰會　中俄未在名單內](https://tw.appledaily.com/international/20211124/KEEX4IZHPFBL5EE4OL5WYP3WZQ/)
 
-
-美国第七舰队发表声明，当地时间11月23日，一艘美军导弹驱逐舰依照国际法，穿越了台湾海峡。
-
-该声明重申了美国长期以来的立场，即美军可以在国际法允许的任何地方行动。
-
-近日来，中共加大了对台湾的军事压力，引发了美国、日本和欧盟对台海局势的忧虑。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.2-9.jpg)
-参考链接：
-[美中首脑正式会谈一周后 美军舰首次“依法”穿越台湾海峡](https://www.voachinese.com/a/us-warship-taiwan-strait-20211123/6324186.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：文特
-编辑：Kathy文艺
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

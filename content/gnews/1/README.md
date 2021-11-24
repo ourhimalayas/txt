@@ -2,34 +2,34 @@
 ---
 
 
-## 联合国解雇“吹哨人”是中共在联合国的恶性影响
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1691181/)
+## 喜币涨价根本原因是去掉中心化，不再需要银行和信用卡
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1691300/)
 
-撰稿： 青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-37.png)
-（图片来自网络）
+**郭文贵先生：**你能想到未来三十八之后，整个支付系统在全球流通的时候，什么概念？郝海东先生和哈恩同时在两个国家，一个欧洲，一个在韩国。你在北美加拿大，文斌，你也找到同一个商店说，我现在希望你能接受我的喜币，还有喜Dollar，记住不能光说喜美元，人家迪拜这家是既接受币也接受美元。这是个牛叉得不能再牛的事了。
 
-近日，联合国的一名“吹哨人”因对中共在联合国的非法行为发出警告而遭到解雇。这是中共对联合国产生恶性影响的又一证明。
+找地方就支付的时候，这家说我愿意接受你的支付。那第一步你说，你先在喜美元去开账号——KYC。你只要开了账号了，跟当地政府没有蛋的关系，是吧！你就是上传KYC。你只要有了账号了，你才能接受我的支付。这是什么？我哈恩就可以直接往你那个，文斌找的加拿大的任何卖内裤的、卖饭的，我就可以给你下单买东西，我也可以东弟那块买东西。
 
-据《希望之声》2021年11月24日报道，联合国“吹哨人”、人权律师、英国及爱尔兰公民艾玛·雷利（Emma Reilly）曾警告她在联合国人权办公室的上司，中共正在获取到该机构发言的持不同政见者的信息。但随后，她就被解雇了。
+你们互相就可以买了，这就是什么？就要去中心化。没有第三方，不需要妈咪，不需要信用卡，不需要银行。这个接受得越来越多的时候，这个支付系统，世界就不需要银行了，不需要这个。你们所有的痛苦，都看不到，都没了。这才是喜币要涨价的根本原因。
 
-雷利是在接受法国主要报纸《世界报》采访后的24小时内就遭解雇。这一事件再次提醒人们，中共在联合国内的影响力非常大。
+视频制作：小满；
 
-据雷利称，当她得知联合国人权事务高级专员办事处（OHCHR）应中共的要求，将前来参加瑞士日内瓦联合国人权理事会（UNHRC）的持不同政见者的名字，交给了她的联合国上司时，她意识到，这使北京（中共）可对持不同政见者施压，并要求他们不要前往。
+字幕来源：[2021年11月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1681917/) ；
 
-雷利指出，中共当局威胁他们的家人，并可能导致逮捕及酷刑。在一个案例中，据说有人在中共的拘留中死亡。
+发布：黎明之前；
 
-雷利还分享了联合国人力资源副秘书长给她的解雇信。信中称，她的“罪行”包括与《福克斯》等媒体机构以及联合国成员国之间的沟通，其中包括美国。信中列举的“罪行”包括，她与联合国驻纽约和日内瓦的代表团、国务院、参议院拨款委员会及其他一些联合国成员国和欧盟进行沟通。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-雷利强调，联合国指控她不服从沉默的命令，但作为一个人，尤其是作为一个人权官员，在种族灭绝面前保持沉默，就是与压迫者站在一起。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-美国共和党参议员玛莎·布莱克本（Marsha Blackburn）在一份发给媒体的声明中表示，中共在联合国内的恶性影响是个公开秘密。中共还不断将与其持不同政见者的生命置于危险中。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-布莱克本指出，国际社会不能再对中共的恶劣侵权行为视而不见，不应该允许因揭露联合国如何帮助中共剥削和虐待穆斯林维吾尔人而解雇举报人。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-布莱克本还表示，她已提出了《联合国透明度和问责制法案》，以加强美国在联合国的领导地位，并揭露中共罪行。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-新闻链接：[https://twitter.com/SoundofHopeSOH/status/1463288677036142594](https://twitter.com/SoundofHopeSOH/status/1463288677036142594)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

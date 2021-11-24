@@ -2,10 +2,10 @@
 ---
 
 
-## 堪萨斯州拟立法放宽疫苗宗教豁免
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1690438/)
+## 日越防长确认在海洋和网络领域合作 应对中共威胁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1690543/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：东京樱花团—在远方
 
 
 
@@ -13,19 +13,19 @@
 
 
 
-11月22日，堪萨斯州共和党议员采取行动挑战该州的疫苗强制接种政策，并要求州长劳拉·凯利召开特别会议，研究应对中共病毒疫苗强制接种政策的措施，并积极推动雇主接受所有宗教豁免的请求。
+11月23日，日本防卫相岸信夫，与到访的越南国防部长潘文江举行了会谈。双方就近期东海和南海局势交换了意见，对中共“依靠实力单方面改变现状的尝试”表达了强烈反对，表示要维持基于法治的国际秩序，开展合作。
 
-凯利在声明中说，“我认为拜登这项指令对堪萨斯州来说不是正确或最有效的解决方案。我们已经制定了适合我们具体需求的系统和战略。”
+岸信夫对本月19日俄罗斯和中共各2 架轰炸机，在日本海和东海长途飞行一事表示，不排除中共与俄罗斯进一步深化军事合作的可能。从安全角度出发，日本将深度关切。
 
-当日，堪萨斯州参议院投票批准了相关法案，并禁止私人雇主发布疫苗强制接种的要求。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-10.jpg)
+据悉，两国还签署了推进网络安全领域防卫合作的备忘录。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-164.jpg)
 参考链接：
-[Kansas GOP eases religious vaccine exemptions, moves to limit mandates](https://thehill.com/homenews/state-watch/582736-kansas-gop-ease-religious-vaccine-exemptions-move-to-limit-mandates?utm_source=ground.news&amp;utm_medium=referral)
+[日越防长确认在海洋和网络领域开展合作](https://china.kyodonews.net/news/2021/11/51fec1db4558.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
 总编：文徬
-编辑：木白
+编辑：Kathy文艺
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

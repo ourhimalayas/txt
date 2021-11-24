@@ -2,32 +2,49 @@
 ---
 
 
-## 拜登政府提交紧急命令，要求立即恢复强制疫苗规定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1690183/)
+## 堪萨斯州拟立法放宽疫苗宗教豁免
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1690438/)
 
-撰稿：Grace
+作者：纽约香草山教育部 – Naughty(文行)
 
-校对：Grace
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-29-at-6.29.22-PM.jpeg)图片来源：en-volve
-据《每日邮报》11月23日报道, 乔.拜登在当日提起紧急诉讼，寻求在其设置的规定面临一系列法律挑战后，立即恢复他对拥有100名或以上工人的私人企业的强制中共疫苗规定。
 
-拜登在本月初，颁布了新的中共病毒疫苗规定，要求工人在2022年1月4日之前接种中共病毒疫苗，否则就要在工作场所戴上口罩，和每周都要接受中共病毒检测， 而对于这些检测的费用，在大多数情况下都要工人自己支付。
 
-在拜登政府提出这条规定后，几个共和党领导的州、雇主、工会和其他组织对拜登政府的命令提起了诉讼。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-在11月6日，位于新奥尔良(New Orleans)的第五巡回法院(the Fifth Circuit Court) 初步暂停了该命令的执行，该暂停命令阻止了职业安全与健康管理局，继续实施其对雇主的强制中共病毒疫苗规定。
 
-第五巡回法院说，职业安全与健康管理局的规定，不适当地主张 “在工作场所法规的幌子下控制个人行为的几乎无限权力”。该法院命令职业安全与健康管理局不得采取任何措施来实施，或执行所谓的 “紧急命令”, 直到法院进一步下命令。
 
-上周三，职业安全与健康管理局已经宣布，在第五巡回上诉法院维持其对该规定的暂缓执行后，它将暂停实施和执行其命令。但是在今天，拜登政府提交紧急命令，要求立即恢复其强制疫苗规定。
+11月22日，堪萨斯州共和党议员采取行动挑战该州的疫苗强制接种政策，并要求州长劳拉·凯利召开特别会议，研究应对中共病毒疫苗强制接种政策的措施，并积极推动雇主接受所有宗教豁免的请求。
 
-据报道，拜登的法庭动议是由司法部，向位于辛辛那提的美国第六巡回上诉法院(the Sixth U.S. Circuit Court of Appeals)提出的，该法院上周被一个跨地区诉讼联邦司法小组, 指定为裁决与拜登的强制疫苗规定有关的法律挑战的法院。所有与拜登该命令有关的案件都被合并到这法院。
+凯利在声明中说，“我认为拜登这项指令对堪萨斯州来说不是正确或最有效的解决方案。我们已经制定了适合我们具体需求的系统和战略。”
 
-报道称，当所有与该疫苗规定相关的案件被转移到辛辛那提时，第五巡回法院失去了对这些案件的管辖权。
+当日，堪萨斯州参议院投票批准了相关法案，并禁止私人雇主发布疫苗强制接种的要求。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-10.jpg)
+参考链接：
+[Kansas GOP eases religious vaccine exemptions, moves to limit mandates](https://thehill.com/homenews/state-watch/582736-kansas-gop-ease-religious-vaccine-exemptions-move-to-limit-mandates?utm_source=ground.news&amp;utm_medium=referral)
 
-拜登政府在其诉讼中要求，第六巡回法院现在解除第五巡回法院的暂停令。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-**新闻来源：****[Biden administration files emergency order to immediately reinstate its sweeping vaccine mandate on private companies after an appeals court knocked it down and its enforcement was suspended](https://www.dailymail.co.uk/news/article-10235075/Biden-files-emergency-order-reinstate-sweeping-vaccine-mandate-private-companies.html)**
+总编：文徬
+编辑：木白
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

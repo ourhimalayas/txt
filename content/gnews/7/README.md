@@ -2,37 +2,22 @@
 ---
 
 
-## 上百个国际品牌从强迫维吾尔人劳动中获利
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1691080/)
+## 美国邀请台湾召开民主峰会，孤立中共
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1691232/)
 
-#### 撰稿：日本东京方舟农场  海星
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-188.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpub.creaders.net%2Fupload_files%2Fimage%2F202111%2F20211123_16377193708295.png&amp;imgrefurl=https%3A%2F%2Fnews.creaders.net%2Fus%2F2021%2F11%2F23%2F2422968.html&amp;tbnid=buuPPnChg04TOM&amp;vet=12ahUKEwjQvrnQ5LD0AhWFNHIKHWHgAx4QMygEegUIARCFAQ..i&amp;docid=Sk3cGyvGcAzMnM&amp;w=617&amp;h=341&amp;q=%E6%B0%91%E4%B8%BB%E5%B3%B0%E4%BC%9A&amp;ved=2ahUKEwjQvrnQ5LD0AhWFNHIKHWHgAx4QMygEegUIARCFAQ)
+11月24日中国台湾网报道，中共国务院台湾事务办公室上午举行例行新闻发布会，美国务院公布将于12月召开“民主峰会”，将“台湾”列入官网，大陆未在名单内，发言人已明确表示，坚决反对美国与中国台湾地区进行任何形式的官方往来，这个立场是一贯的、明确的，并敦促美方切实恪守一个中国原则和中美三个联合公报规定，妥善处理涉台问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/BF8BC861-D5EA-4C1F-881A-CA21E5AB68E7.jpeg)（图片来源：美国之音）
+在一周前11月16日中共国习近平和美国总统拜登时长3个半小时视频会晤，拜登就台湾问题进行了最新表态，拜登称美方不寻求改变中国体制，并且不会支持“台独”。而今天所作出的行动确是告诉中共国，召开民主峰会台湾属于民主政体，是可信赖的朋友，中共属于一党专政独裁体制，排除在世界民主国家之外，并将与民主国家一起围堵孤立中共。
 
-英国谢菲尔德哈勒姆大学近期发表的一份报告揭露，上百个国际品牌正在销售与强迫维吾尔人劳动相关的棉制品。
+信息来源：
 
-据《美国之音》报道，一份名为《洗棉，新疆棉如何在国际供应链中黯然失色》的报告，根据过去两年的国际贸易和海关数据发现，中共国有5家使用新疆棉花的纱线和面料供应商，将其半成品出口给国际中间商。
+[美国务院公布将于12月召开“民主峰会”，将“台湾”列入官网，大陆未在名单内，国台办回应](https://mq.mbd.baidu.com/r/wUtnEquGic?f=cp&amp;rs=4274366899&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=781cdcf4132796a6)
 
-在这些出口的棉花、纱线和面料中，有 52% 被运往孟加拉国、斯里兰卡、越南、菲律宾、香港、印度尼西亚、柬埔寨、印度、巴基斯坦、肯尼亚、埃塞俄比亚和墨西哥等国的 53个中间制造商，再为 103 个全球知名品牌提供棉制成衣。
-
-该报告指出，由于中共国约 85% 的棉花来自中共强迫维吾尔人劳动的新疆，因此许多国际品牌或多或少都会购买到这些原材料。
-
-该报告的主要作者、英国谢菲尔德哈勒姆大学“人权与当代奴役”教授劳拉·墨菲在接受记者采访时表示，虽然复杂的供应链可能会掩盖原材料的来源，有时供应商也可能会隐藏他们的来源，或合并不同的棉花来源，但是，公司没有理由不知道他们的产品来自哪里。这些全球品牌必须将所有供应链追溯到原材料，以确保它们不支持强迫劳动的经济。
-
-墨菲还补充说，如果供应商不能告诉品牌他们从哪里采购，并提供令人信服的采购证据，那么该品牌应该终止与该供应商的关系。
-
-墨菲表示，目前一些公司正在积极调查每一个供应商和次级供应商，尽其所能确保没有新疆棉花进入他们的产品。
-
-*参考链接：[https://www.voachinese.com/a/global-brands-still-profiting-from-uyghur-forced-labor-20211122/6323462.html](https://www.voachinese.com/a/global-brands-still-profiting-from-uyghur-forced-labor-20211122/6323462.html)*
-
-* * *
-
-*素材采编：海星*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
