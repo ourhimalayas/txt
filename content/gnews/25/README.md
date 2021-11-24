@@ -2,36 +2,48 @@
 ---
 
 
-## 2021/11/23 文贵先生直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1690533/)
+## 苏格兰政府将疫苗护照的私人数据共享给亚马逊和微软
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1690538/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/112401-1.jpg)[GTV直播链接](https://gtv.org/video/id=619d0def57529032f659e83f)
-昨天跟联邦委员会开会，讨论了一系列的政策，但是GTV投资委员会暴怒，现在新GTV一股都不接受了，所有1:10的借款增资项目全部停止，延迟到此为止，SEC的钱人家一分都不要。原来抓住机会投资成功的都算幸运，没抓住机会的战友会后悔一辈子的，我们真的要明白什么是机会，怎样把握住机会，光有天真可爱是不够的。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-刚才看到威廉王、政清、 天机的节目谈喜币，币安将所有用户的资料信息，包含外国人的都提供给了共产党，在美国只是要你用户的税，共产党则是要你的命。现在我们已经有战友出境时被抓，还不确定这里面的关系，但是他有200万美元的投资在币安，所以说任何过去投了币安的，这次赵长鹏都给卖了。如果有战友们曾经买过币安的，请与各农场联系，提供资料，我们会全面起诉币安。威廉王说的那段要翻成英文的放在Gettr上，我们承担一切法律责任。光有钱是不够的，要懂得赚钱和懂得花钱，不然的话比没钱还可怕。
-
-你觉得还会有北京冬奥会吗，我们一直跟国际奥委会有联系，咱们的战友Cassy帮助起草的奥利匹克申请信引起了很大反响，现在还在较量中。昨天共产党开出大价钱，只要美国来参加，就会再购买1000亿美债，恒大和融创保证不会突然破产。彭帅被玩了18年，天天是“宇宙无限大，地球是一粒沙”，张高丽搞就是合法合规；李云迪花钱买性，在双方同意的情况下被彻底批斗，为什么会有这样的逻辑？！
-
-再强调一下，新GTV的所有投资到今天就算彻底停止了，详细的信息咱们明天大直播中再谈吧。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-23-at-7.44.28-AM-1024x577-1.png)
 
 
 
-*听写：阿甘*
-
-*校对：** **乐禧禧*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+图片来源：yournews.com
 
 
-编辑：【英国伦敦喜庄园编辑部】
+#### 编译：小红帽
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+**据透露，苏格兰政府已经允许疫苗护照计划的数据与包括亚马逊在内的私人公司共享。**
 
+《每日记录报》报道：“我们了解到，以二维码形式呈现个人医疗信息的NHS手机应用程序与包括亚马逊、微软、ServiceNow、皇家邮政和一家人工智能面部识别公司共享数据。”
 
+报告称，疫苗护照应用程序的用户没有被告知他们的数据将被共享。
+
+隐私倡导者组织“自由”（Liberty）的山姆·格兰特（Sam Grant）警告说：“疫苗护照创造了一个两级社会，苏格兰的许多人已经被迫获得疫苗护照，以便参加活动和进入社会的某些部分。”
+
+格兰特补充说：“令人担忧的是，在这样做的时候，数据已经与第三方共享，而人们无法选择退出，甚至没有被告知这种情况正在发生。这只会加剧人们对疫苗护照的广泛担忧。”
+
+苏格兰自由民主党领袖亚历克斯·科尔·哈米尔顿（Alex Cole-Hamilton）表示 ：“每个人都有医疗隐私的权利；没有人应该向保镖或一系列私人公司提供他们的部分医疗史。这简直是荒谬的。”
+
+另一个隐私倡导者团体“老大哥在看着”（Big Brother Watch）的负责人丝丽·卡罗（Silkie Carlo）周一解释了为什么疫苗护照在苏格兰是完全失败的。
+
+政府数据和同行评审的研究表明，接种疫苗的人和未接种疫苗的人一样有可能传播中共病毒（COVID-19）。
+
+既然如此，实行疫苗护照的理由就被彻底推翻了。
+
+**参考新闻：**[Report: Scottish Government’s Vax Passport Sending People’s Private Data To Amazon, Microsoft – Summit News](https://summit.news/2021/11/23/report-scottish-governments-vax-passport-sending-peoples-private-data-to-amazon-others/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
