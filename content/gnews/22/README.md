@@ -2,31 +2,23 @@
 ---
 
 
-## 美前众议员称 对班农的指控是国会权力滥用
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1691848/)
+## 有声|菲律宾总统对中共非法阻拦菲律宾补给船表示憎恨
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1691887/)
 
-作者：纽约香草山 – 飞虹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月22日，美国前众议员巴尔发布文章称，国会对班农先生发出蔑视国会的起诉书不过是民主党人的党派权力滥用。
+配音：香草山香港部 – 文凯琳
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2-13.jpeg)
+当地时间11月22日，在东盟与中共建立对话关系30周年峰会上，菲律宾总统杜特尔特对中共海警船使用水炮对付菲律宾补给船的事件表示憎恨。他强调，这会对菲律宾与中共的关系造成影响，而法治才是解决问题的唯一途径。
 
-巴尔表示，根据联邦法律和最高法院的法规，一个人被判定为藐视国会罪的先决条件为，此人应该与某项犯罪有关系。
+11月16日，中共非法阻拦了菲律宾补给船。次日，美国国务院发言人普赖斯警告说，任何针对菲律宾公共船只的“武装攻击”都会导致1951年美菲条约的启动，即美国有保护盟友菲律宾的义务。
 
-巴尔还补充道，在1月6日的国会山事件中，一方面，没有一个被抓捕的人受到了任何指控，同时，对于国会起诉书中反复提到的“暴动”和“国家恐怖主义”等煽动性措辞，联邦法律中既没有定义，也没有将其规定为犯罪；另一方面，国会或许正在试图将川普、班农以及其他关系密切的人与国会山事件联系在一起。换言之，没有任何证据表明，班农先生与这个事件有关。
+据了解，本周菲律宾军方将恢复向驻守在阿云金暗沙的菲律宾军人运送物资。
 
-对此，班农先生在战斗室节目中表示，他不会妥协，而且“战斗室”里没有哀嚎，更不会有眼泪。
+文字版原文：[菲律宾总统对中共非法阻拦菲律宾补给船表示憎恨](https://gnews.org/zh-hans/1687163/)
 
-参考链接：
-1）[从对班农先生的起诉中看中共对美国司法产生的负面影响](https://gettr.com/post/phnvaveb0b)
-2）[BARR: Contempt Case Against Bannon Is An Abuse Of Congress’ Power](Contempt%20Case%20Against%20Bannon%20Is%20An%20Abuse%20Of%20Congress’%20Power)
+音频处理：喜山必胜Maverick
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
-
-总编：文徬
-编辑：文特
-校正/发稿：谐趣园
-
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
