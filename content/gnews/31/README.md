@@ -2,31 +2,26 @@
 ---
 
 
-## 国际奥委会主席与彭帅视频 以示各方“情绪稳定”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1690120/)
+## 什么样的绝境将女网红推向末日直播 死后亡魂仍不得安宁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690131/)
 
-作者：纽约香草山 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/GettyImages-577732188.jpg)图片来自网络
-在“寻找彭帅”的国际呼声日益猛烈之时，国际奥委会主席托马斯·巴赫、奥委会运动员委员会主席等三名官员与彭帅举行了30分钟的视频通话。 视频中，彭帅感谢国际奥委会的关注，表示目前住在北京的家中，“一切安好”！但希望与家人好友更多相处，希望个人隐私得到尊重。
+撰稿：东京樱花团/ Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-163.jpg)（图片来源于本文链接）
+据看中国记者黎小葵综合报导湖南女网红“罗小猫猫子”10月在直播中喝下农药自杀送医不治，没想到死后也不得安宁，骨灰遭殡仪馆负责火化人员调包拿去冥婚，在未被买家看上后冥婚才未配对成功。消息传出后引发社会关注。
 
-最后，彭帅接受了托马斯在明年1月份抵达北京后共进晚餐的邀请！ WTA主席兼CEO史蒂夫·西蒙率先要求调查彭帅事件，否则考虑放弃中国市场！多位体坛明星为彭帅发声，使该事件热度迅速上升，白宫、联合国也表示了关注！大外宣代发的彭帅生活照、带光标的回复邮件、彭帅与友人的聚餐均被指“摆拍”痕迹明显。眼看“抵制冬奥”的声音越来越大，奥委会主席亲自出面暗示各方“情绪稳定”，其中的用意已经不言自明！
+拥有近60万粉丝的湖南女网红“罗小猫猫子”，10月15日发布一段视频称，这是她发布的最后一段视频，并称她得抑郁症很久，甚至曾住院2个多月，由于她平时给关注者展现开朗形象，因此网友们以为她开玩笑，但没想到，她其后在直播中真的拿出一瓶褐色的液体，一口气喝下，喝完之后她掐着自己的脖子，最终不行去世。
 
-参考链接：[https://olympics.com/ioc/news/ioc-president-and-ioc-athletes-commission-chair-hold-video-call-with-peng-shuai](https://olympics.com/ioc/news/ioc-president-and-ioc-athletes-commission-chair-hold-video-call-with-peng-shuai)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-10.jpg)
-编辑/校对/发稿：文留
+“罗小猫猫子”去世后，遗体送到山东省济宁市汶上县一处殡仪馆处理，但想不到馆内邵姓工作人员勾结当地殡葬业者，将“罗小猫猫子”骨灰调包拿去寻找冥婚买家，以此获取每笔冥婚交易5万至7万元报酬。
 
-**更多资讯，更多关注**
+这个世界很奇特，看似光鲜的背后隐藏着多少不为人知的不堪？灵魂的扭曲，精神的自我麻痹，在魔鬼的国度，一切走的都是非常道，没有非常人的牺牲和付出料难以成功。每一段成功的背后都有一段血淋淋的辛酸史，在魔子魔孙织就的吸血网络，从生到死，从吃饭到穿衣，从上学到入墓，生生死死的每一个环节都充满着无数只黑手，摆弄的你动弹不得，及乎要窒息！
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+消息来源：
 
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[女网红直播自杀 骨灰调包“配阴婚”3人被抓](https://m.secretchina.com/news/gb/2021/11/24/990415.html。)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
