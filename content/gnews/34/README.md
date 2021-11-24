@@ -2,20 +2,24 @@
 ---
 
 
-## 中共借““共同富裕”，收割台湾企业！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690931/)
+## 日本大财团企业联合推出新数字货币
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690966/)
 
-撰稿：东京樱花团/风翼
-![](https://assets.gnews.org/wp-content/uploads/2021/11/454-1.png)
-【TBS新闻】中共国营新华社报道，台湾公司远东集团的一家中国大陆子公司因在环境保护和税收等领域的违规行为而被罚款和附加费用。据台湾媒体报道，该公司曾向担任台湾总理的行政院院长苏贞昌提供大量政治捐款。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12313.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.xinmin.cn%2Fxmwb%2F2021%2F4%2FNEM1_20210420_C0326326330_A2760534.jpg&amp;imgrefurl=https%3A%2F%2Fwap.xinmin.cn%2Fcontent%2F31941540.html&amp;tbnid=9jZK94F6db1JBM&amp;vet=12ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ..i&amp;docid=C5khSQm7zUjvIM&amp;w=600&amp;h=399&amp;itg=1&amp;q=%E6%97%A5%E6%9C%AC%E6%95%B0%E5%AD%97%E8%B4%A7%E5%B8%81&amp;ved=2ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ)
+日经新闻周三报导，一个由大约70家日本企业组成的财团将开始测试最早在2022年下半年推出的一种数字货币，其中包括三家大型银行。
 
-对于而这次的罚款是否与因给台独势力政治献金有关的提问时，中共政府表示，对于“严重破坏中国大陆和台湾关系”为由制裁苏贞昌和相关公司，这种处罚，是对于“台独势力”的一种制裁。
+该报称，这种数字货币将由银行存款支持，并使用一个共同的平台来加快公司之间的大额转账和结算，降低成本。
 
-中共的国家经济GDP的重要支柱的制造和出口产业，在不断的被制裁、脱钩和外企的纷纷逃离的重创中，以政治立场为借口，以“共同富裕”收割外资企业的行为，无疑是杀鸡取卵。也将加速外企离开的步伐，中共制造业的崩塌指日可待！
+财团成员包括三菱日联金融集团(MUFG)[8306.T](https://cn.reuters.com/companies/8306.T)、瑞穗金融集团[8411.T](https://cn.reuters.com/companies/8411.T)、以及三井住友金融集团[8316.T](https://cn.reuters.com/companies/8316.T)。该财团自去年以来一直定期开会，研究如何为数字支付建立一个共同的结算基础设施。
 
-信息来源：
+这三家银行都推出了自己的数字支付系统，但仍落后于软银集团[9984.T](https://cn.reuters.com/companies/9984.T)旗下的PayPay等科技公司。
 
-**[中国で活動の台湾企業に罰金処分 「台湾独立」支持への制裁措置か](https://news.tbs.co.jp/newseye/tbs_newseye4411151.html)**
+这一举措可能会影响日本央行正在单独进行的央行数字货币(CBDC)测试，政策制定者曾表示，如果央行要发行CBDC，他们将与民间部门密切合作。
+
+消息来源:
+
+[日本约70家企业将联合测试推出数字货币–日经](https://cn.reuters.com/article/japan-digital-currency-test-1124-wedn-idCNKBS2I9056?il=0)
 
 *校对：东京樱花团/知了知了*
 *发布：东京樱花团/tdownc2p*

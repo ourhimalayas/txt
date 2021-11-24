@@ -2,28 +2,43 @@
 ---
 
 
-## 日本大财团企业联合推出新数字货币
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690966/)
+## 欧洲疫情升温 美国务院警告勿前往德国丹麦
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1691044/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12313.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.xinmin.cn%2Fxmwb%2F2021%2F4%2FNEM1_20210420_C0326326330_A2760534.jpg&amp;imgrefurl=https%3A%2F%2Fwap.xinmin.cn%2Fcontent%2F31941540.html&amp;tbnid=9jZK94F6db1JBM&amp;vet=12ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ..i&amp;docid=C5khSQm7zUjvIM&amp;w=600&amp;h=399&amp;itg=1&amp;q=%E6%97%A5%E6%9C%AC%E6%95%B0%E5%AD%97%E8%B4%A7%E5%B8%81&amp;ved=2ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ)
-日经新闻周三报导，一个由大约70家日本企业组成的财团将开始测试最早在2022年下半年推出的一种数字货币，其中包括三家大型银行。
+**By:秘翻新闻**
 
-该报称，这种数字货币将由银行存款支持，并使用一个共同的平台来加快公司之间的大额转账和结算，降低成本。
+***2021-11-24***
+[![](https://assets.gnews.org/wp-content/uploads/2021/11/1124-2.jpg)](https://gtv.org/broadcast/watch/619dfe3257529032f65a6f40)点击图片观看视频
+**新闻摘要:**
 
-财团成员包括三菱日联金融集团(MUFG)[8306.T](https://cn.reuters.com/companies/8306.T)、瑞穗金融集团[8411.T](https://cn.reuters.com/companies/8411.T)、以及三井住友金融集团[8316.T](https://cn.reuters.com/companies/8316.T)。该财团自去年以来一直定期开会，研究如何为数字支付建立一个共同的结算基础设施。
+1. 李克强连续开会谈“经济下行压力”不忘捧习
 
-这三家银行都推出了自己的数字支付系统，但仍落后于软银集团[9984.T](https://cn.reuters.com/companies/9984.T)旗下的PayPay等科技公司。
+2. 中共地方政府债务创新高 近半新债用于还旧债
 
-这一举措可能会影响日本央行正在单独进行的央行数字货币(CBDC)测试，政策制定者曾表示，如果央行要发行CBDC，他们将与民间部门密切合作。
+3. 港片《时代革命》金马影展首映 观众泣不成声
 
-消息来源:
+4. 中国不孕夫妻超五千万人 多省增建辅助生殖机构
 
-[日本约70家企业将联合测试推出数字货币–日经](https://cn.reuters.com/article/japan-digital-currency-test-1124-wedn-idCNKBS2I9056?il=0)
+5. 世卫组织警告称，中共病毒死亡人数将爆发式增长
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+6. 欧洲疫情升温 美国务院警告勿前往德国丹麦
+
+7. 拜登政府提交紧急命令 要求立即恢复强制疫苗规定
+
+8. 荷兰众议院压倒性票数通过 支持台湾参与国际刑警组织
+
+9. 意大利总理动用“黄金权力”推翻中企收购案
+
+10. 国际石油价格的飙升将不可避免
+
+**GTV链接：**[https://gtv.org/broadcast/watch/619dfe3257529032f65a6f40](https://gtv.org/broadcast/watch/619dfe3257529032f65a6f40)
+
+发布: 文橙
+
+* * *
+
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
