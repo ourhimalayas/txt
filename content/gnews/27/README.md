@@ -2,27 +2,36 @@
 ---
 
 
-## 参议员汤姆·科顿：国际奥委会是CCP代言人，抵制冬奥会
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1690481/)
+## 研究发现注射mRNA疫苗后急性冠状动脉综合征的风险显著增加
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1690490/)
 
-【简评：】*35*岁的彭帅是中国颇有名气的体育明星，但她在本月初对中国前副总理张高丽提出性侵指控后，在公众视野中消失了近三周。这是中国高级领导人首次受到这样的指控。彭帅的帖子很快就被屏蔽，她的名字也在多个社交平台遭到屏蔽。在一次刻意安排地与国际奥委会的视频通话后，质疑声仍然不断。*IOC*假装彭帅从未提出性侵指控，也没有失踪了两周多。*IOC*的声明使国际奥委会成为中国当局恶意宣传和缺乏对基本人权和正义关注的同谋。希望科顿的提议能得到广泛支持，坚决抵制*2022*北京冬奥会。
+撰稿：Runaway
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Featured-341111.png)Theexpose
+上周《心脏病学顾问》报告说，根据2021年美国心脏协会科学会议上展示的一项研究，在接受mRNA Covid疫苗注射后，急性冠状动脉综合征（“ACS”）的患者风险显著增加。
 
-据《布莱巴特新闻网》记者[IAN HANCHETT](https://www.breitbart.com/author/ian-hanchett/)，2021年11月22日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/0BAFE2CF-CB9F-46E5-BD01-CBFF7C645B93.png)图片来源：Fox News
-在福克斯新闻频道周一播出的《美国新闻编辑室》(America’s Newsroom)节目中，参议员汤姆·科顿 (R-AR) 表示，国际奥委会 (IOC) 在中国网球明星彭帅的案件中扮演着中国共产党的“代言人”角色。并认为美国应该完全抵制2022年冬季奥运会，因为我们无法保证美国参赛者的安全，从“无处不在的电子监控到DNA采集，或者只是人质劫持”。
+冠状动脉综合征涵盖了一系列疾病，包括心脏病发作（心肌梗塞）和不稳定型心绞痛，这些都是由相同的潜在问题引起的。潜在的问题是流向部分心肌的血流量突然减少。这通常是由血栓引起的。
 
-科顿说(相关言论在2:30左右开始)：“国际奥委会只不过是中国共产党的一个代言人。上周，我呼吁对此次冬奥会进行全面、彻底的抵制，部分原因是，从无处不在的电子监控到DNA采集，或者仅仅是劫持人质，拜登政府无法保证我们的运动员及其教练和工作人员的安全。如果中国共产党带走自己的运动员，然后让他们消失，然后像此次人质视频（彭帅和国际奥委会通话视频）中一样再次让他们出场，他们会对我们的运动员做什么?这是一个对自己人民犯下种族灭绝罪行的政权。我们不应该用奥运会比赛来庆祝或纪念中共国。我们可以重新安排举办此次冬奥会。如果我们现在采取行动，可能有6个欧洲国家可以在2月份举办此次冬奥会。”
+蛋白质不稳定病变特征（PULS）测试，测量从血管壁心脏病变泄漏的蛋白质痕迹。通过识别这些蛋白质以及HDL和HbA1c的存在和水平，为医生提供了有价值的信息，以帮助确定一个人心脏病发作的风险以及需要采取哪些步骤来改善您的心脏健康。
 
-原文连接[https://www.breitbart.com/politics/2021/11/22/cotton-the-ioc-is-acting-as-the-ccps-frontman-and-we-cant-ensure-safety-of-olympic-competitors-in-china/](https://www.breitbart.com/politics/2021/11/22/cotton-the-ioc-is-acting-as-the-ccps-frontman-and-we-cant-ensure-safety-of-olympic-competitors-in-china/)
+共有566名年龄在28至97岁之间（男女比例为 1:1）的患者，他们在8年内每3-5个月接受了一次预防性心脏病学实践的定期检查，使用PULS心脏测试，产生预测新的急性冠状动脉综合征 (ACS)5年风险（机会百分比）的分数。
 
-翻译：洛杉矶盘古农场 – 比格渣餐厅老板の娘
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – 比格渣餐厅老板の娘
-编辑：洛杉矶盘古农场 – 柯镇恶
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+随着mRNA COVID-19疫苗的出现，大多数患者的PULS分数发生了显着变化。在第二次 COVID疫苗注射后2到10周，他们进行了一项新的PULS测试，这些测试结果与疫苗注射前的3到5个月测试的PULS分数进行了比较。结果显示蛋白质生物标志物明显升高，这些变化导致PULS分数从5年ACS风险的11%增加到25%。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+“我们得出结论，mRNA疫苗会显着增加心肌内皮和T细胞的炎症，并且可能解释了疫苗接种后血栓形成、心肌炎和其它血管事件增加的观察结果。”
+
+7月初，Sucharit Bhakdi博士制作了一个通俗易懂的视频，Bhakdi博士在前11分钟解释了免疫反应和自然免疫的不同部分。在最后，他解释了免疫系统的不同部分如何对血管内部疫苗诱导的刺突蛋白做出反应。
+
+
+视频字幕：战鹰团
+发布：Runaway
+
+参考链接：[Risk of Acute Coronary Syndrome dramatically increases after mRNA Covid Injections, a new Study finds](https://dailyexpose.uk/2021/11/22/risk-of-acute-coronary-syndrome-dramatically-increases-after-mrna-covid-injections-a-new-study-finds/)
+
+
+
+
+
+
 
  
 
