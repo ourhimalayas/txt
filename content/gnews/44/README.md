@@ -2,24 +2,20 @@
 ---
 
 
-## 日本大财团企业联合推出新数字货币
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690966/)
+## 深圳9个月关闭642家炒房中介
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1691269/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12313.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.xinmin.cn%2Fxmwb%2F2021%2F4%2FNEM1_20210420_C0326326330_A2760534.jpg&amp;imgrefurl=https%3A%2F%2Fwap.xinmin.cn%2Fcontent%2F31941540.html&amp;tbnid=9jZK94F6db1JBM&amp;vet=12ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ..i&amp;docid=C5khSQm7zUjvIM&amp;w=600&amp;h=399&amp;itg=1&amp;q=%E6%97%A5%E6%9C%AC%E6%95%B0%E5%AD%97%E8%B4%A7%E5%B8%81&amp;ved=2ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ)
-日经新闻周三报导，一个由大约70家日本企业组成的财团将开始测试最早在2022年下半年推出的一种数字货币，其中包括三家大型银行。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-96.jpg)
+11月24日中国新闻周刊报道，深圳9个月有642家房产中介关闭，截至10月，深圳二手房成交量连续6个月下跌，9月份成交1635套，创近12年新低。相似的剧情在广州、东莞、杭州、宁波、成都、厦门、济南等城市上演。中共国房地产市场正迈入存量时代，尤其是在一线城市，二手房已占市场交易量的70％以上。
 
-该报称，这种数字货币将由银行存款支持，并使用一个共同的平台来加快公司之间的大额转账和结算，降低成本。
+2020年中共国的GDP总值大约为103万亿元，深圳2020年地区生产总值突破2.8万亿元。若将深圳所有房屋按市值计算，深圳房地产总值能够买下美国股市的一半，是美国股市总市值的58.5%，是中共股市总市值的103.8%，是中共国民生产总值的147%。
 
-财团成员包括三菱日联金融集团(MUFG)[8306.T](https://cn.reuters.com/companies/8306.T)、瑞穗金融集团[8411.T](https://cn.reuters.com/companies/8411.T)、以及三井住友金融集团[8316.T](https://cn.reuters.com/companies/8316.T)。该财团自去年以来一直定期开会，研究如何为数字支付建立一个共同的结算基础设施。
+深圳高昂房价和消费水平让国人望而却步，买房三个价，市场指导价，银行贷款价，还有业主售卖价。而房地产市场是政府完全垄断，当前业主的挂牌价格看似远高于市场指导价，这是政府做局，中介推波，银行助澜，直接垄断炒房的结果，这只会带来房地产崩盘、全民剩房的结局。
 
-这三家银行都推出了自己的数字支付系统，但仍落后于软银集团[9984.T](https://cn.reuters.com/companies/9984.T)旗下的PayPay等科技公司。
+信息来源：
 
-这一举措可能会影响日本央行正在单独进行的央行数字货币(CBDC)测试，政策制定者曾表示，如果央行要发行CBDC，他们将与民间部门密切合作。
-
-消息来源:
-
-[日本约70家企业将联合测试推出数字货币–日经](https://cn.reuters.com/article/japan-digital-currency-test-1124-wedn-idCNKBS2I9056?il=0)
+[深圳“中介改革”背后：9个月关店642家，不吃差价怎么活下去？](https://ml.mbd.baidu.com/r/wQmdn4BO7e?f=cp&amp;rs=2599944543&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=3090ed0daecd66f5)
 
 *校对：东京樱花团/知了知了*
 *发布：东京樱花团/tdownc2p*

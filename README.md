@@ -15,158 +15,158 @@
 
 ---
 
-### [邪恶中的邪恶](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [文贵爆料11.24.2021 关于新GTV投资的最新动态](/content/gnews/2/README.md)
- ` 秘密翻译组-原创组`
-
-### [有声|中共为彭帅事件洗地遭国际强烈质疑](/content/gnews/3/README.md)
- ` MOSREC`
-
-### [福奇在90年代用儿童做艾滋病疫苗的恐怖实验！](/content/gnews/4/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [中共利用“健康码”管控社会](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [有声|喜币是最有价值的加密货币](/content/gnews/6/README.md)
- ` MOSREC`
-
-### [【文贵先生大直播PPT】沪深股连连破发 北交所尽显疲态](/content/gnews/7/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [有声|GTV新闻访谈简报|2021年11月23日早](/content/gnews/8/README.md)
- ` MOSREC`
-
-### [有声|一天13例死产，医师要求调查“疫苗灾难”](/content/gnews/9/README.md)
- ` MOSREC`
-
-### [台美政府计划举行双边科技会晤](/content/gnews/10/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【文贵先生大直播PPT】透过币安交易所看新中国联邦喜联储的未来](/content/gnews/11/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [强国谎言：防止干预司法](/content/gnews/12/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [听听疫苗后副作用患者及其家属的心声](/content/gnews/13/README.md)
- ` 澳喜特战旅Gnews`
-
-### [习近平忽悠东盟建立全面战略伙伴关系](/content/gnews/14/README.md)
- ` 波士顿五月花农场`
-
-### [成千上万的海军陆战队加入我们的雇佣军](/content/gnews/15/README.md)
- ` wenwu`
-
-### [GTV新闻访谈简报|2021年11月24日早](/content/gnews/16/README.md)
- ` 纽约香草山MOS01`
-
-### [【文贵先生大直播PPT】六中全会期间左棍司马南公开责难柳传志传递什么信号](/content/gnews/17/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [英国：病毒使养老院的老人们成为被歧视的对象](/content/gnews/18/README.md)
- ` 澳喜特战旅Gnews`
-
-### [有声|台湾智库建议：推进台湾版本的“军事质量优势”计划](/content/gnews/19/README.md)
- ` MOSREC`
-
-### [有声|接种辉瑞疫苗最初两个半个月，美国收到近16万例不良反应报告](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [第二届美台经济会议结束 双方达成合作共识](/content/gnews/21/README.md)
- ` GTV新闻访谈`
-
-### [有声|菲律宾总统对中共非法阻拦菲律宾补给船表示憎恨](/content/gnews/22/README.md)
- ` MOSREC`
-
-### [疫苗灾难比病毒还可怕，中共正在准备释放另一波病毒](/content/gnews/23/README.md)
+### [郭先生：中共国因冠状病毒死亡人数为1370万](/content/gnews/1/README.md)
  ` MG 澳喜农场多语组`
 
-### [美前众议员称 对班农的指控是国会权力滥用](/content/gnews/24/README.md)
- ` GTV新闻访谈`
-
-### [11/24/21 香港快讯 《大公报》追击民研 斥煽惑不投票 钟剑华：学术研究没理由构成煽动](/content/gnews/25/README.md)
- ` 英喜-粵語組`
-
-### [永远不要接种Covid疫苗加强针的5大理由](/content/gnews/26/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【G时新闻】加拿大卡尔加里加入全球反“疫情极权”集会](/content/gnews/27/README.md)
- ` G-时新闻`
-
-### [币安不安 客户信息被赵长鹏出卖给中共](/content/gnews/28/README.md)
- ` GTV新闻访谈`
-
-### [爆料革命战友要团结！未来只有抱团生存](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【G时新闻】欧洲各国上周末爆发反对强制接种疫苗的抗议活动](/content/gnews/30/README.md)
- ` G-时新闻`
-
-### [郭文贵先生分析KYC慢的原因以及将来的速度](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [平明运动的本质就是一人一票](/content/gnews/32/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [DC每日热点1124](/content/gnews/33/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [新中国联邦雇佣军如影随形保护战友安全](/content/gnews/34/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [11/24/2021 国际财经快讯：美国联合其他国家释放石油储备试图降低油价；亚马逊和苹果被处以2.25亿美元的意大利反垄断罚金](/content/gnews/35/README.md)
- ` 秘密翻译组金融团队`
-
-### [银河快讯: 日本，泰国和新加坡举行电话会谈；大型服装公司停止使用新疆棉](/content/gnews/36/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [劳动力不够，统计局来凑](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [班农的愿景－川普耳边人正在组织一场平民主义革命](/content/gnews/38/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [班农先生的人格魅力是我们中国人最为缺少的](/content/gnews/39/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [逞能后又阳痿 ，中共10月为澳洲煤炭清关](/content/gnews/40/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [深圳9个月关闭642家炒房中介](/content/gnews/41/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国邀请台湾召开民主峰会，孤立中共](/content/gnews/42/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文贵爆料11.23.2021 中共为让美参加冬奥会将再买1千亿美债](/content/gnews/43/README.md)
+### [文贵爆料 11.24 : 中共国股市是一个大赌场，中共是唯一的庄家和老千](/content/gnews/2/README.md)
  ` 秘密翻译组-原创组`
 
-### [日本大财团企业联合推出新数字货币](/content/gnews/44/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [随通货膨胀率上升，美国人为食品和燃料支付的费用飙升](/content/gnews/3/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [释放油储杯水车薪 拜登政府缘木求鱼](/content/gnews/45/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [参议员汤姆·科顿：国际奥委会是CCP代言人，抵制冬奥会](/content/gnews/4/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [学生食堂出现腐烂食材被爆光 中共官方竟然首先开除拍摄者](/content/gnews/46/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [【文贵先生大直播PPT】全球中共病毒 疫苗灾难现状](/content/gnews/5/README.md)
+ ` Mr. Miles Guo's News Briefing`
 
-### [2021/11/22 墙内世界](/content/gnews/47/README.md)
+### [邪恶中的邪恶](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [文贵爆料11.24.2021 关于新GTV投资的最新动态](/content/gnews/7/README.md)
+ ` 秘密翻译组-原创组`
+
+### [有声|中共为彭帅事件洗地遭国际强烈质疑](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [福奇在90年代用儿童做艾滋病疫苗的恐怖实验！](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [中共利用“健康码”管控社会](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [推广中共病毒疫苗的医生在接种疫苗后陆续死亡](/content/gnews/48/README.md)
- ` 墨尔本雅典娜农场`
+### [有声|喜币是最有价值的加密货币](/content/gnews/11/README.md)
+ ` MOSREC`
 
-### [台湾受邀首届白宫民主峰会 中共未在名单](/content/gnews/49/README.md)
+### [【文贵先生大直播PPT】沪深股连连破发 北交所尽显疲态](/content/gnews/12/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [有声|GTV新闻访谈简报|2021年11月23日早](/content/gnews/13/README.md)
+ ` MOSREC`
+
+### [有声|一天13例死产，医师要求调查“疫苗灾难”](/content/gnews/14/README.md)
+ ` MOSREC`
+
+### [台美政府计划举行双边科技会晤](/content/gnews/15/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【文贵先生大直播PPT】透过币安交易所看新中国联邦喜联储的未来](/content/gnews/16/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [强国谎言：防止干预司法](/content/gnews/17/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [听听疫苗后副作用患者及其家属的心声](/content/gnews/18/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [习近平忽悠东盟建立全面战略伙伴关系](/content/gnews/19/README.md)
+ ` 波士顿五月花农场`
+
+### [成千上万的海军陆战队加入我们的雇佣军](/content/gnews/20/README.md)
+ ` wenwu`
+
+### [GTV新闻访谈简报|2021年11月24日早](/content/gnews/21/README.md)
+ ` 纽约香草山MOS01`
+
+### [【文贵先生大直播PPT】六中全会期间左棍司马南公开责难柳传志传递什么信号](/content/gnews/22/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [英国：病毒使养老院的老人们成为被歧视的对象](/content/gnews/23/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [有声|台湾智库建议：推进台湾版本的“军事质量优势”计划](/content/gnews/24/README.md)
+ ` MOSREC`
+
+### [有声|接种辉瑞疫苗最初两个半个月，美国收到近16万例不良反应报告](/content/gnews/25/README.md)
+ ` MOSREC`
+
+### [第二届美台经济会议结束 双方达成合作共识](/content/gnews/26/README.md)
+ ` GTV新闻访谈`
+
+### [有声|菲律宾总统对中共非法阻拦菲律宾补给船表示憎恨](/content/gnews/27/README.md)
+ ` MOSREC`
+
+### [疫苗灾难比病毒还可怕，中共正在准备释放另一波病毒](/content/gnews/28/README.md)
+ ` MG 澳喜农场多语组`
+
+### [美前众议员称 对班农的指控是国会权力滥用](/content/gnews/29/README.md)
+ ` GTV新闻访谈`
+
+### [11/24/21 香港快讯 《大公报》追击民研 斥煽惑不投票 钟剑华：学术研究没理由构成煽动](/content/gnews/30/README.md)
+ ` 英喜-粵語組`
+
+### [永远不要接种Covid疫苗加强针的5大理由](/content/gnews/31/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [从中国汉服的演变历史谈谈G-Fashion的意义](/content/gnews/32/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [【G时新闻】加拿大卡尔加里加入全球反“疫情极权”集会](/content/gnews/33/README.md)
+ ` G-时新闻`
+
+### [爆料革命战友要团结！未来只有抱团生存](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共和党人修改各州法律对抗联邦疫苗强制令](/content/gnews/50/README.md)
- ` GTV新闻访谈`
+### [郭文贵先生分析KYC慢的原因以及将来的速度](/content/gnews/35/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [加拿大政府否认执行儿童强制疫苗](/content/gnews/51/README.md)
- ` GTV新闻访谈`
+### [平明运动的本质就是一人一票](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [DC每日热点1124](/content/gnews/37/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [新中国联邦雇佣军如影随形保护战友安全](/content/gnews/38/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [11/24/2021 国际财经快讯：美国联合其他国家释放石油储备试图降低油价；亚马逊和苹果被处以2.25亿美元的意大利反垄断罚金](/content/gnews/39/README.md)
+ ` 秘密翻译组金融团队`
+
+### [劳动力不够，统计局来凑](/content/gnews/40/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [班农的愿景－川普耳边人正在组织一场平民主义革命](/content/gnews/41/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [班农先生的人格魅力是我们中国人最为缺少的](/content/gnews/42/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [逞能后又阳痿 ，中共10月为澳洲煤炭清关](/content/gnews/43/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [深圳9个月关闭642家炒房中介](/content/gnews/44/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国邀请台湾召开民主峰会，孤立中共](/content/gnews/45/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文贵爆料11.23.2021 中共为让美参加冬奥会将再买1千亿美债](/content/gnews/46/README.md)
+ ` 秘密翻译组-原创组`
+
+### [日本大财团企业联合推出新数字货币](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [学生食堂出现腐烂食材被爆光 中共官方竟然首先开除拍摄者](/content/gnews/48/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2021/11/22 墙内世界](/content/gnews/49/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [推广中共病毒疫苗的医生在接种疫苗后陆续死亡](/content/gnews/50/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [台湾受邀首届白宫民主峰会 中共未在名单](/content/gnews/51/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [美参议员布莱克本：中共对国际机构的恶意影响力导致吹哨人被解雇](/content/gnews/52/README.md)
  ` 首尔天池农场`

@@ -2,222 +2,44 @@
 ---
 
 
-## 班农先生的人格魅力是我们中国人最为缺少的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1691353/)
+## 11/24/2021 国际财经快讯：美国联合其他国家释放石油储备试图降低油价；亚马逊和苹果被处以2.25亿美元的意大利反垄断罚金
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1691612/)
 
-[https://gtv.org/video/id=619de6cfe6900076612f1d4c](https://gtv.org/video/id=619de6cfe6900076612f1d4c)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/20211124-2.jpg)[图片来源](https://www.iadke.com/a/guanggao/toutiao/2021/1123/7190.html)
+**1.美国联合其他国家释放石油储备试图降低油价**
 
-班农先生不但他支持中国人
-No solo el Sr. Bannon apoya a los chinos
+[华盛顿，11月23日（路透社）–美国总统拜登（Joe Biden）的政府周二宣布，将与中国、印度、韩国、日本和英国协调，从战略储备中释放数百万桶石油，以试图在欧佩克+产油国一再无视增加原油的呼吁后冷却价格。拜登在明年国会选举前通货膨胀率上升的情况下面临着低支持率，他对多次要求石油输出国组织及其盟友（被称为欧佩克+）抽出更多石油而没有任何回应感到沮丧。”我以前告诉过你，我们要对这些问题采取行动。这正是我们正在做的事情，”拜登在白宫播出的讲话中说。”他说：”这需要时间，但在不久之后，你应该看到你加满油的地方油价下降，而且从长远来看，随着我们转向清洁能源，我们将减少对石油的依赖。](https://www.reuters.com/markets/commodities/us-set-unveil-emergency-oil-release-bid-fight-high-prices-2021-11-23/)
 
-他父亲、他兄弟
-Su padre, sus hermanos
+**2.美国国债收益率上升，油价震荡，亚洲股市岌岌可危**
 
-他妹妹、他全家
-Su hermana menor, toda su familia
+[香港，11月24日（路透社）–周三亚洲早盘，股市受到美国国债收益率上升以及油价因美国和其他国家的降价举措而波动的冲击，表现得很不安。MSCI最广泛的日本以外的亚太股票指数下滑0.24%，而日本的基准日经股价指数下跌1.13%，因为它从假期中返回，赶上了前一天的全球下跌。油价在上涨3%至一周高点的一天后企稳，即使在美国表示将与中国、印度、韩国、日本和英国协调，从战略储备中释放数百万桶石油，试图冷却价格之后，反复呼吁增加原油未能动摇OPEC+生产商。](https://www.reuters.com/markets/europe/global-markets-wrapup-1-2021-11-24/)
 
-都支持新中国人老百姓
-Apoyan a los ciudadanos de la Nueva China
+**3.利得尔英国公司的目标是到2025年拥有1100家门店**
 
-而且班农先生冒着生死威胁
-Además, el Sr. Bannon está arriesgando una amenaza de vida y muerte
+[伦敦，11月24日（路透社）–德国折扣超市Lidl的英国分部周三制定了一个新目标，即到2025年底达到1100家门店，在此过程中创造多达4000个新的就业机会。作为德国施瓦茨零售集团的一部分，Lidl GB之前的目标是到2023年底达到1000家商店。”首席执行官Christian Härtnagel说：”我们继续看到市场的巨大机会。在过去的十年里，英国的食品零售业因Lidl和同为德国人的折扣商Aldi的崛起而发生了变化，这使得四大零售商–市场领导者Tesco（TSCO.L）、Sainsbury’s（SBRY.L）、Morrisons和Asda的回报率下降。Lidl在英国食品杂货市场占有6.2%的份额，但不进行在线交易，该公司表示，截至2021年2月28日的一年中，收入增长了12%，达到77亿英镑（103亿美元），导致税前利润为980万英镑，而2019-20年度的亏损为2520万英镑。它说，在这一年里，它投资了4.98亿英磅。](https://www.reuters.com/markets/europe/lidl-gb-targets-1100-stores-by-2025-2021-11-24/)
 
-创建法治基金、法治社会
-Para crear el Fondo y la Sociedad de Estado de Derecho
+**4.日本首相确认释放石油储备以回应美国的要求**
 
-然后一起创建一切
-Y crear todo en conjunto
+[东京，11月24日（路透社）–日本首相岸田文雄周三表示，日本政府将应美国的要求释放石油储备，其方式不违反日本法律，即只有在存在供应中断的风险时才允许释放库存。”岸田告诉记者：”我们一直在与美国合作以稳定国际石油市场，我们已经决定与美国一起以不违反现有（日本）石油储备法的方式出售我们的部分国家石油储备。工业部长萩田光一周三告诉记者，日本将从其国家储备中释放 “几十万升 “的石油，但出售的时间还没有决定。](https://www.reuters.com/markets/commodities/japan-pm-confirms-oil-reserve-release-response-us-request-2021-11-23/)
 
-我们新中国联邦人可以说第一次
-En la Federación de la Nueva China podemos decir que por primera vez
+**5.油价走高，因投资者对联合储备发布的有效性持怀疑态度**
 
-向中国人展示了我们不是说白人
-Le demostramos a los chinos que hablamos de la raza blanca
+[东京，11月24日（路透社）–油价周三走高，延续了前一天的涨势，因为投资者对美国主导的释放战略储备石油的效果仍持怀疑态度，并将注意力转向石油生产商的下一步行动。截至0742GMT，布伦特原油期货上涨13美分，或0.2%，至每桶82.44美元，周二曾上涨3.3%。美国西德克萨斯中质原油（WTI）期货上涨20美分，或0.3%，至每桶78.70美元，前一日上涨2.3%。”投资者对美国和其他国家联合放出的石油规模较小感到失望，”美国大宗商品公司Satoru Yoshida说。乐天证券(Rakuten Securities)的商品分析师Satoru Yoshida。”另外，石油消费国的协调努力引发了人们对OPEC+可能放缓增产步伐的担忧，”他说，并补充说市场的注意力现在转向了12月2日的下一次OPEC+产油国集团会议。](https://www.reuters.com/markets/commodities/oil-prices-drop-coordinated-reserve-release-eases-some-supply-fears-2021-11-24/)
 
-要不就是我们的敌人
-Como nuestros enemigos
+**6.美国通胀率创31年新高，银行评估风险和机遇**
 
-要么就是我们的奴隶
-O como nuestros esclavos
+[纽约，11月23日（路透社）–华尔街的银行正在为持续的高通胀期做准备，进行内部健康检查，监测受影响行业的客户是否能够偿还贷款，制定对冲策略，并在交易时劝说谨慎。在汽油和其他商品成本激增的推动下，美国消费者价格本月公布了31年来的最大年度增幅。央行高管们已经不再相信央行官员的论点，即价格飙升是供应链中断造成的暂时性突发事件，他们正在加强风险管理。较高的通货膨胀率通常被视为银行的一个积极因素，它提高了净利息收入并提高了利润率。但是，顶级银行家们警告说，如果通胀率过快地跳高，通胀可能会成为一个逆风。](https://www.reuters.com/markets/europe/us-inflation-hits-31-year-high-banks-assess-risks-opportunities-2021-11-23/)
 
-要不就是奴隶我们的主人
-O como esclavo de nuestro amo
+**7.铜价上涨，因对中国需求的忧虑缓解，库存低迷**
 
-不是这个关系
-No es esta relación
+[11月24日（路透社）–伦敦铜价周三上扬，因供应紧张和对中国需求的担忧缓解给金属带来一些支撑，但美元走强限制了涨幅。截至0735GMT，伦敦金属交易所的三个月期铜上涨0.3%，至每吨9,736美元。上海期货交易所交易量最大的1月期铜合约上涨0.4%，报每吨71,220元。进入美国感恩节假期后，交易量预计会很低。美元指数在周二触及逾16个月高位后持稳，因美联储主席鲍威尔被提名连任，助长了对尽快加息的预期。美元走强使得以美元定价的商品对使用其他货币的买家来说更加昂贵。”中国电力供应的改善正在缓解一些下游需求的担忧（对铜）。澳新银行分析师Soni Kumari表示：”我们预计下行空间仍将受到保护，因为短期内供应紧张可能会持续下去。](https://www.reuters.com/markets/europe/london-copper-subdued-dollar-strength-2021-11-24/)
 
-我们平等相处
-Nosotros nos llevamos bien en igualdad
+**8.亚马逊和苹果被处以2.25亿美元的意大利反垄断罚金**
 
-我们可以互敬互爱互尊
-Podemos respetarnos y amarnos mutuamente
+[路透米兰11月23日 – 意大利反垄断机构对美国科技巨头亚马逊公司（AMZN.O）和苹果公司（AAPL.O）涉嫌在销售苹果和Beats产品方面进行反竞争合作，共罚款2亿多欧元（2.25亿美元）。监督机构说，这两家公司在2018年达成的协议中的合同条款意味着只有选定的经销商才可以在Amazon.it上销售苹果和Beats产品，并补充说这违反了欧盟规则，影响了价格竞争。苹果和亚马逊都表示，他们计划对这些罚款提出上诉。监管机构对亚马逊处以6870万欧元的罚款，对苹果处以1.345亿欧元的罚款，命令这两家公司停止限制，让苹果和Beats的正版产品的零售商以非歧视的方式进入Amazon.it。](https://www.reuters.com/technology/italys-antitrust-fines-amazon-apple-more-than-200-mln-euros-alleged-collusion-2021-11-23/)
 
-而且完全没有种族观念的
-Además, sin ningún concepto racial en lo absoluto
-
-和班农先生在推行全球的
-Para promover junto al Sr. Bannon
-
-整个全球的平民主义
-El populismo en todo el mundo
-
-包括推行我们的新中国联邦
-Incluyendo promover nuestro Nuevo Estado Federal de China
-
-新中国联邦
-Nuevo Estado Federal de China
-
-这是一个前所未有的
-Esto nunca antes había sucedido
-
-而且我们没流一滴血
-Además, nosotros no derramamos ni una gota de sangre
-
-没有死一个人
-No se ha muerto una persona
-
-所以说今天在这个时候
-Por eso hoy en este momento
-
-我们跟班农先生再坐在一起的时候
-Cuando estamos sentados junto al Sr. Bannon
-
-这个世界最重要的就是
-Lo más importante de este mundo es que
-
-用今天你来看过去发生的历史
-A través de hoy vemos las historias que sucedió en el pasado
-
-来对比过去的历史
-Haciendo una comparación con las historias del pasado
-
-再看到你看我们今天当时新闻发布会出现的那些人当中
-Vemos de nuevo, entre esas personas que se presentaron en la rueda de prensa en aquel momento
-
-现在很多人已经都背叛了
-Ahora hay mucha gente que ha traicionado
-
-这是很正常的
-Esto es normal
-
-人类大自然优胜劣汰的
-La naturaleza humana sobrevive a los más aptos
-
-这是一个正常的自然现象
-Este es un fenómeno natural normal
-
-但是要看到
-Pero hay que ver
-
-为什么班农先生还能跟我坐在一起
-Por qué el Sr. Bannon aún puede estar sentado a mi lado
-
-为什么班农先生
-Por qué el Sr. Bannon
-
-今天还能有这样的激情
-Hoy en día aún puede tener esta pasión
-
-还有这样的影响力
-Y este tipo de influencia
-
-就当时 FBI 的人给我说
-En ese momento los de FBI me dijeron
-
-说你们中国人就是要脸要面子
-“ustedes los chinos sólo quieren el prestigio y la reputación
-
-全世界只有美国一个 Steve K. Bannon
-En todo el mundo sólo hay un Estados Unidos, un Steve K. Bannon
-
-他说被人家给打到地上 It’s shit
-Dijo que alguien lo golpeó en el suelo diciéndole: “es una mierda”
-
-然后班农到 Europe
-Y cuando Bannon se fue a Europa
-
-You know the FBI said
-“Sabes qué dijo el FBI”
-
-然后欧洲回来以后 Number one hero
-Y luego cuando regresó de Europa, “héroe número uno”
-
-FBI 说他从来没要面子
-El FBI dijo que él nunca quiso reputación
-
-Steve Bannon never wants to say give my face
-“Steve Bannon nunca dijo: dame mi reputación”
-
-I don’t care face, just want to win
-“No me interesa la reputación, sólo quiero ganar”
-
-Chinese say give my face
-“Los chinos dicen dame mi prestigio”
-
-Face so fake, nothing 所以说班农先生人家赢
-“El prestigio es falso, no es nada” Por eso el Sr. Bannon ganó
-
-FBI 说人家班农就是英雄啊
-El FBI dice que Bannon es un héroe
-
-那么班农先生即使经历这么多事情
-Así el Sr. Bannon haya pasado por tantas cosas
-
-从来没有见他有一点点犹豫
-Pero nunca se le ve ni un poquito de indecisión
-
-这是我们一个学习的一个人格的好榜样
-Este es un buen ejemplo de una personalidad para aprender
-
-说他是种族主义
-Dicen que él es racista
-
-Racialism
-Racismo
-
-班农先生是
-El Sr. Bannon es
-
-American only one
-El único americano
-
-White people 100% support Chinese
-Persona blanca que apoya a los chinos al 100%
-
-I never get feeling you are racialism
-“Yo nunca logré sentir que eres racista”
-
-Never never never
-Nunca nunca nuca
-
-One hundred twenty days with you together
-120 días contigo juntos
-
-One boat one life twenty-four hours sleep together
-En un barco, una vida, 24 horas durmiendo juntos
-
-I never get feeling your racialism
-Yo nunca te sentí que eras racista
-
-* * *
-
-日期：11/23/2021
-原视频标题：班农先生的人格魅力是我们中国人最为缺少的
-El encanto de la personalidad del Sr. Bannon es lo que más nos falta a los chinos
-原视频日期：11/22/2021
-原视频网址：https://gettr.com/post/phlgeuab7b
-任务编号：KC283（2982）
-视频时间段：0:00-2:21
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+By 【秘密翻译组-金融法律组】
+作者：千年等一回
 
  
 

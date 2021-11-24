@@ -2,35 +2,28 @@
 ---
 
 
-## 2021/11/22 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1690725/)
+## 日本大财团企业联合推出新数字货币
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690966/)
 
-1. 11月20日，河南郑州。城市深夜的隧道里，席地而睡的人们。
-2. 露宿地下通道人们，这些是反应中共国现状的真实画面。
-3. 大部分中国人，无法感受到中共宣传的强大福利制度。老无所依、老无所养！
-4. 小女孩在车站前翻垃圾桶，只为给精神病妈妈讨饭吃。
-5. 11月19日，内蒙古赤峰市。疑因感情纠纷？男子点燃行驶中的汽车，车内男女都被烧伤。
-6. 11月18日，四川绵阳一女子跳楼轻生，坠落在未完全打开的气垫上身亡。
-7. 低着头被学校数落的孩子。在中共应试教育体制下，成绩差就意味着会被否定一切。
-8. 11月21日，江苏常州。公交车上的乘客突然晕厥倒地。
-9. 11月20日，四川绵阳。一女子驾驶电动车在路口等待红绿灯时，突然倒地。
-10. 11月19日，湖北武汉凯德西广场，一女子逛商场突然倒地！
-11. 11月18日，随地倒。辽宁省抚顺市望花区七百门前，一女子突然昏迷倒地。
-12. 11月17日，浙江金华。地下停车场男子突发心梗倒地。
-13. 11月16日，江苏苏州。一女子老公死后的头七当天，其父亲在自家副食店内倒地猝死。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12313.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.xinmin.cn%2Fxmwb%2F2021%2F4%2FNEM1_20210420_C0326326330_A2760534.jpg&amp;imgrefurl=https%3A%2F%2Fwap.xinmin.cn%2Fcontent%2F31941540.html&amp;tbnid=9jZK94F6db1JBM&amp;vet=12ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ..i&amp;docid=C5khSQm7zUjvIM&amp;w=600&amp;h=399&amp;itg=1&amp;q=%E6%97%A5%E6%9C%AC%E6%95%B0%E5%AD%97%E8%B4%A7%E5%B8%81&amp;ved=2ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ)
+日经新闻周三报导，一个由大约70家日本企业组成的财团将开始测试最早在2022年下半年推出的一种数字货币，其中包括三家大型银行。
 
+该报称，这种数字货币将由银行存款支持，并使用一个共同的平台来加快公司之间的大额转账和结算，降低成本。
 
-* * *
+财团成员包括三菱日联金融集团(MUFG)[8306.T](https://cn.reuters.com/companies/8306.T)、瑞穗金融集团[8411.T](https://cn.reuters.com/companies/8411.T)、以及三井住友金融集团[8316.T](https://cn.reuters.com/companies/8316.T)。该财团自去年以来一直定期开会，研究如何为数字支付建立一个共同的结算基础设施。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+这三家银行都推出了自己的数字支付系统，但仍落后于软银集团[9984.T](https://cn.reuters.com/companies/9984.T)旗下的PayPay等科技公司。
 
+这一举措可能会影响日本央行正在单独进行的央行数字货币(CBDC)测试，政策制定者曾表示，如果央行要发行CBDC，他们将与民间部门密切合作。
 
-编辑：【英国伦敦喜庄园编辑部】
+消息来源:
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[日本约70家企业将联合测试推出数字货币–日经](https://cn.reuters.com/article/japan-digital-currency-test-1124-wedn-idCNKBS2I9056?il=0)
 
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
