@@ -2,41 +2,40 @@
 ---
 
 
-## 喜币全球流通和巨大升值空间让迪拜抢先机,接着是全球
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1690857/)
+## 中共威胁台企“吃饭砸锅”要拉清单，台湾远东集团被重罚4.74亿
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690915/)
 
-**郭文贵先生：**我再给大家重申一遍，很多人不懂一个道理。不谈喜美元，喜美元是什么？它叫法币。它叫跟各国的货币，它叫token，这是连在一起的。但HCN、喜币是在任何国家购买，是不受任何法律监管的。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-94.jpg)[图片来源](https://www.google.com/search?q=%E5%8F%B0%E6%B9%BE%E8%BF%9C%E4%B8%9C%E9%9B%86%E5%9B%A2&amp;tbm=isch&amp;ved=2ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQ2-cCegQIABAA&amp;oq=%E5%8F%B0%E6%B9%BE%E8%BF%9C%E4%B8%9C%E9%9B%86%E5%9B%A2&amp;gs_lcp=CgNpbWcQAzIECAAQGFCSBFiSBGDYCmgAcAB4AIABlwSIAZAFkgEHMC4xLjUtMZgBAKABAaoBC2d3cy13aXotaW1nwAEB&amp;sclient=img&amp;ei=DAGeYbDaEJe43LUPxfefoA8&amp;bih=568&amp;biw=1366&amp;rlz=1C1YKST_enUS900US901#imgrc=o3Ml2qYsLp4PGM)
+中共国国务院台湾事务办公室24日举行例行新闻发布会，国台办发言人朱凤莲答记者问。
 
-我再重申一遍，全人类没有一个国家有专业的所谓数字货币的律师；没有任何国家有对数字货币监管的法律和制度；没有任何国家机构明确，他是把数字货币的监管部门，从来没有，任何国，只有共产党现在说的要搞数字……数字币法。他跟咱没球蛋的关系，咱也不去。是吧！
+记者问：此前，大陆方面公布第一批“台独”顽固分子清单，苏贞昌、游锡堃、吴钊燮三人在列。有舆论分析认为，这只是第一批，之后可能会陆续公布其他“台独”顽固分子。请问发言人是否可以予以证实？
 
-那么这样的话，就是说HCN在各国，币与币之间交流是合法的。只是你把它变换成H-Dollar的时候，你要受当地审批。还有一个你关键交易所，就赵长鹏搞的叫币安，叫什么交易所，交易所属于金融机构，因为你是跟法币连在一起的，你要申请执照。HCN分分钟可以在美国只要任何交易所，随时可以上去，美国任何地方不受任何限制。
+朱凤莲：苏贞昌、游锡堃、吴钊燮等极少数“台独”顽固分子挑动两岸对立、破坏两岸关系、图谋分裂国家、危害台海和平，我们依法对其实施惩戒。可以明确的是，“台独”顽固分子清单上绝不止这3人。我们也注意到，近期有个别“台独”分子跳得挺高，甚至声称对未被列入“台独”顽固分子清单感到“遗憾”。别着急，有他们真正遗憾的时候。
 
-再下一步，咱战友之间和有币到币之间互相沟通的时候。就是叶钊颖妹妹在卧室一，给卧室二的海东兄弟“啪”，他俩有账号，先开了喜币账号。我直接就给你发喜币和喜美元。跟他们屁的关系，没任何关系。
+**“台独”关联企业和金主被依法惩戒**
 
-那么这就是迪拜，他看到良机了。迪拜就明白了，哎呦！第一这个币升值，我看定了。第二，我可以接受很多来自全球的客户，直接给我账上打钱。因为最大的问题，有人买房子，往迪拜付钱都是个大问题。你买个两千万美金的房子，哇塞，真的扒你祖宗八辈的坟。你钱哪来的？纳税了没有？资产证明，把你祖宗挖出来。这个直接就过了，就他有了一个通道。
+据中共党媒喉舌新华社11月22日报道，上海、江苏等省市执法部门对台湾远东集团在当地投资企业存在违法违规行为进行了查处。近日国台办公布“台独”顽固分子清单并表示依法对“台独”顽固分子及其关联企业和金主实施惩戒。
 
-第三个，他知道，迪拜很聪明的，接下来他不但能在喜美元、喜联储做抵押，他也可以在迪拜做金融产品。就你买了我房子，我给你安排贷款。这个事就大了去了，他就宣布了，这事太大了，这件事情，迪拜这件事情的发生，接下来就在全球会发生。
+**国台办发言人朱凤莲也就此事于前日回答了记者的相关提问：**
 
-视频制作：撒骄的男宝好性感；
+台湾远东集团在上海、江苏、江西、湖北、四川等地的化纤纺织、水泥企业存在一系列违法违规行为，有关部门依据国家法律法规对其采取罚款、追缴税款、限期整改等措施，并收回该企业闲置建设用地。查处行动仍在继续。
 
-字幕来源：[2021年11月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1681917/) ；
+**“台独”顽固分子谋“独”言行恶劣，严重破坏两岸关系，严重危害台海和平稳定，严重损害两岸同胞共同利益和中华民族根本利益。对他们及其关联企业和金主必须依法惩戒。**
 
-发布：黎明之前；
+11月24日，朱凤莲在回答记者提问时进一步表示，据初步了解，**现对台湾远东集团已处以罚款及追缴税款约****4.74****亿元人民币，**并收回其中一家企业的闲置建设用地。查处工作仍在进行中。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+**“吃饭砸锅”要拉清单**
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+国台办也指出，欢迎支持广大台胞台企来大陆投资发展，将继续依法保障台胞台企的合法权益，但绝不允许支持“台独”、破坏两岸关系的人在大陆赚钱，干“吃饭砸锅”的事。广大台商台企要明辨是非，站稳立场，与“台独”分裂势力划清界限，以实际行动维护两岸关系和平发展。
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+消息来源:
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+**[国台办：“台独”顽固分子清单绝不止3人，台湾远东集团已被罚款](https://www.sohu.com/a/503111823_639898)**
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,8 +2,8 @@
 ---
 
 
-## 西喜时事新闻简报 — 中共国国际时事篇
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1690825/)
+## 西喜时事新闻简报 — 中共病毒时事篇
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1690898/)
 
 **编译：西班牙喜悦农场–wenwu**
 
@@ -11,68 +11,62 @@
 
 （爱惜生命 远离疫苗）
 
-1. [中共国拟开征数据税剑指阿里巴巴腾讯税率占收益三成](https://www.aboluowang.com/2021/1124/1675224.html)
+1. [澳大利亚军队用疫苗射杀人民](https://www.thegatewaypundit.com/2021/11/killing-us-killing-people-aboriginal-elder-screams-facebook-rant-australian-military-reportedly-holds-people-shoots-vaccine-video/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-649.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-662.png)
 
-据《阿波罗新闻网》2021年11月24日电，10月上海外滩金融峰会上，原重庆市市长黄奇帆透露，互联网企业的大量个人数据的管辖权和交易权归共产党所有，将被其伪政权征收数据税。《日经新闻》认为，中共国希望透过开征数据税，达成“共同富裕”的目标。
+据《门户网》2021年11月23日电，澳大利亚北部的土著长老 June Mills 在 Facebook 上分享了一段视频：“世界需要知道发生了什么，我们的人民正在发生什么。我听说人们在社区中被击倒，显然是被军队击倒，并强制接种疫苗的故事。还有我们的兄弟姐妹们看着它。他们受到了创伤！我们都是！”
 
-数据税浪潮席卷全球。最近两年，有30多个国家先后宣布对跨国互联网企业征收数据税。谷歌和脸书等跨国互联网企业即使无须实体营运，也要向用户所在地交税。台湾大学电机系教授林宗男人为：“在虚拟世界里很多征税的机制其实并不明确。这些不明确不会在中国政府的思维里面。它要收取数据税，受影响的不止于腾讯和阿里巴巴这些中共国的网路企业，一些外国企业其实也会受到影响。中共国政府用什么方式来作为课税的依据。底下的这些公司也一定会想尽各种方式尽量减少被中国政府课税。”
+Mills 声称，澳大利亚军队强行压制土著人并违背他们的意愿为他们接种中共疫苗。她在六月的视频中对澳大利亚政府对其土著人民的虐待，感到愤怒。
 
-台湾两岸政策协会研究员吴瑟致则认为：“国外是要解决垄断的问题，让更多企业可以有平等竞争的市场。按照中国的思维，这个垄断是由政府来进行，对国有企业进行宏观调控的措施。政府具备钳制市场的手段。这些过去被共中国视为创新产业最重要的动力，如今却透过制度的钳制来符合[习近平](https://www.aboluowang.com/tag/%E4%B9%A0%E8%BF%91%E5%B9%B3-1.html)所提到的‘共同富裕’也好，或者所谓的保障个人资料也好，其实某程度上回到头来面对的还是目前中共国内部经济失去动能，以及缺乏资金的问题。透过钳制企业来征税所增加的是政府的财政能力，而不是回馈到社会。如要回馈社会的话，应当建立在如何让民众获得公平正义的工作或者生活，而不是透过征税。毕竟我们知道目前中共国内部的资金流动是出现问题的。透过征税动会让更多的人认为，这是提升中共在资本流动上的控制。”
+2. [南非医生：中共疫苗旨在通过毒害“数十亿人”来减少世界人口](https://www.lifesitenews.com/news/jab-will-poison/)
 
-2. [军方将台湾北部和南部海域列为“决定性防御区”](https://www.taiwannews.com.tw/en/news/4354011)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-664.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-651.png)
+据《生活网》2021年11月23日电，Shankara Chetty 博士是南非的一名家庭医生，根据他的[网站](https://wonderland.org.za/)，他曾“治疗了七千名中共病毒（Covid-19）患者，并且没有一次住院或死亡”，结合了他医学知识的见解以及他对政府政策和媒体审查的观察，他得出结论：“中共病毒大流行和中共疫苗运动的目的是，控制和杀死我们人口中的一大部分，而没有人怀疑我们被疫苗毒死了。”
 
-据《台湾英文新闻》2021年11月23日电，台湾国防部近日向立法院提交了关于提高军队和士兵训练质量的报告。据《自由时报》[报道](https://news.ltn.com.tw/news/politics/breakingnews/3745449)，军方在台湾东南空域定期进行飞行训练，并举行海空战备演练和战备演习；台湾军方已将国家南部和北部水域列为发生战争冲突的决定性防御区（执行海上和空中联合拦截任务）。
+刺突蛋白是人类历史上最精心设计的武 器级别毒素，它是有目的的——杀死数十亿人；政府机构设计死亡和损害，从而激起所需要的社会恐慌，从而达到对地球人进行疫苗接种的合理性。
 
-台湾国防部训练部主任刘慎模周二（23日）表示，军方通常会进行此类行动，以让部队熟悉战斗情况。他补充说，各部队继续应对敌人威胁，适当调整训练领域和训练方式，以适应实战要求。
+3. [加拿大所有士兵都接种中共疫苗，但加拿大军队基地仍爆发了中共病毒](https://www.lifesitenews.com/news/covid-outbreak-hits-canadian-army-base-even-though-all-soldiers-are-fully-vaccinated/?utm_source=top_news&amp;utm_campaign=usa)
 
-3. [如何让钱包与中共国脱钩](https://descargitas.com/%E5%A6%82%E4%BD%95%E9%81%BF%E5%85%8D%E9%92%B1%E5%8C%85%E9%87%8C%E7%9A%84%E4%B8%AD%E5%9B%BD/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-666.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-24-102245.jpg)
+据《生活网》2021年11月23日电，加拿大安大略省军队基地 (CFB) Petawawa 爆发了中共病毒（COVID19）疫情，导致参加培训课程后的数百名完全接种疫苗的加拿大士兵，全部被迫隔离。
 
-据《DESCARGITAS》2021年11月23日电，内阁赞助人伯思·托尔 (Berth Tolle) 告诉 CNN Business：“投资者低估了专制的风险。”Tolle 并不是唯一一个检查中共国新兴市场基金的人。 iShares 和 Columbia Threadneedle 等大型基金公司也有新兴市场（[FRDM](https://money.cnn.com/quote/etf/etf.html?symb=FRDM&amp;source=story_quote_link)，Freedom 100 Emerging Markets）ETF，这些 ETF 将中共国公司排除在外。
+在总理贾斯汀·特鲁多 (Justin Trudeau)[宣布](https://www.lifesitenews.com/news/canada-to-mandate-covid-19-jabs-for-domestic-travel-as-well-as-for-all-federal-workers/?utm_source=featured&amp;utm_campaign=canada)对所有联邦公共服务工作者进行授权后，加拿大武装部队 (CAF) [授权](https://www.lifesitenews.com/news/canadian-military-will-mandate-coronavirus-vaccines-for-all-its-members/)所有成员进行 COVID-19 疫苗接种 ，拒绝疫苗的人将面临潜在的“职业影响”；一个由加拿大皇家骑警 (RCMP) 和加拿大军队的现役和退休成员组成的名为 Mounties for Freedom 的组织[最近联合起来](https://www.lifesitenews.com/news/active-and-retired-canadian-police-officers-warn-head-of-mounted-police-about-forced-vaccines/)表示，他们拒绝“自愿与执行”CAF 的疫苗授权。
 
-FRDM ETF，以及 iShares MSCI 新兴市场不包括中国 ETF ([EMXC](https://money.cnn.com/quote/etf/etf.html?symb=EMXC&amp;source=story_quote_link)) 和哥伦比亚基金会新兴市场核心（中共国除外）ETF ([西安电子科技有限公司](https://money.cnn.com/quote/etf/etf.html?symb=XCEM&amp;source=story_quote_link))，到 2021 年均上涨 6% 至 8%；相比之下，更广泛的下降了 2% iShares MSCI 新兴市场 ETF ([电磁场](https://money.cnn.com/quote/etf/etf.html?symb=EEM&amp;source=story_quote_link))，它拥有腾讯、阿里巴巴和中共国外卖服务美团作为顶级收藏品。
+4. [加拿大医生：COVID mRNA 注射是一种“旨在毒害人的技术](https://www.lifesitenews.com/news/covid-mrna-shots-are-a-technology-designed-to-poison-people-canadian-doctor/?utm_source=top_news&amp;utm_campaign=usa)
 
-Seafarer Capital Partners 的投资组合经理保罗·埃斯皮诺萨 (Paul Espinosa) 表示：“中共国投资者的风险意识有所提高，这是有原因的（中共国以外有更多选择）。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-668.png)
 
-4. [瑞典插画师描绘北京对彭帅的“不道德”行为](https://www.taiwannews.com.tw/en/news/4354170)
+据《生活网》2021年11月23日电，加拿大委员会认证医生、医学微生物学家、滑铁卢大学药理学和毒理学教授 Michael Palmer 博士  在上个月在线发布的视频中[简要解释](https://www.youtube.com/watch?v=-N9EDHMtkUg)了新型 mRNA COVID-19 疫苗中的机制如何发挥作用：脂质纳米颗粒包裹着信使 RNA 进入人体细胞。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-657.png)
+这些脂质纳米颗粒的成分之一，即“阳离子”或“带正电的脂质”，作为“一般特性”“已知毒性很大”。也就是说，一旦这些有毒脂质进入细胞，“它们往往会破坏线粒体呼吸，细胞呼吸”，这是人类“产生能量”所需的过程；如果这个过程被打乱，呼吸产生的氧气就不会适当地“还原成水”，而是还原成“活性氧”，可以“与任何东西发生反应”，包括“我们的 DNA”，从而造成“损害”（这种机制的结果与癌症患者的放射治疗产生的结果相同）。
 
-据《台湾英文新闻》2021年11月23日电，11月2日，彭在她的官方微博上称，她在成为情妇之前曾被前国务院副总理张高丽[胁迫](https://www.taiwannews.com.tw/en/news/4333678)发生性关系；中共官方媒体于17日发布了一封据称由她撰写的可疑电子邮件，但很快被女子网球协会 (WTA) 驳回，[要求](https://www.taiwannews.com.tw/en/news/4348923)“提供独立且可验证的证据证明她是安全的”；国际奥委会主席托马斯·巴赫于20日晚些时候出面帮助中共伪政权发布了一张他声称与彭帅的[视频聊天](https://www.taiwannews.com.tw/en/news/4352461)的静止图像。
+“这就是这些疫苗的最大丑闻之一，就是没有进行适当的毒性研究……但是……我们可以确定，原则上，我们可以很确定，在你死亡之前，你能容忍的这些疫苗的总剂量是有限的，”Palmer 补充说。“因此，这确实是一项旨在毒害人们的技术，这一点真的没有什么两样。这是我作为一名医生深思熟虑的意见。”尽管中共疫苗获得了加拿大卫生部等机构的批准，但目前所有可用的 COVID-19 疫苗都是实验性的， [临床试验要](https://clinicaltrials.gov/ct2/show/NCT04368728?term=NCT04368728&amp;draw=2&amp;rank=1)到 2023 年[才能完成](https://clinicaltrials.gov/ct2/show/NCT04368728?term=NCT04368728&amp;draw=2&amp;rank=1)。此外，来自[世界卫生组织](https://www.lifesitenews.com/news/who-database-reports-over-2-million-potential-covid-jab-injuries-in-2021-vast-majority-in-women/)、 [欧盟](https://www.lifesitenews.com/news/covid-shots-linked-to-2-million-injuries-21766-deaths-in-europe-eu-reports/)和美国 [疫苗不良事件报告系统](https://vaersanalysis.info/2021/11/19/vaers-summary-for-covid-19-vaccines-through-11-12-2021/) (VAERS) 的数据显示，有数百万人受伤和数万人死亡的报告与注射有关，这比 1990 年以来所有疫苗的总和还要多。
 
-WTA 发言人周一（23日）[回应](https://www.taiwannews.com.tw/en/news/4352920)说，看到彭的照片和视频是件好事，尽管“它们并没有减轻或解决 WTA 对她的健康和不受审查或胁迫的沟通能力的担忧。” 该发言人补充说，与国际奥委会的视频通话“并没有改变我们要求对她的性侵犯指控进行全面、公平和透明的调查，不受审查的呼吁，这是引起我们最初关注的问题。”
+5. [拜登政府要求美国上诉法院恢复OSHA 疫苗规定](https://www.zerohedge.com/political/biden-administration-asks-us-appeals-court-reinstate-osha-vaccine-rule)
 
-5. [马云到彭帅北京让这些名人被消失后复出](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E6%B3%95%E5%9B%BD%E6%8A%A5%E7%BA%B8%E6%91%98%E8%A6%81/20211123-%E9%A9%AC%E4%BA%91%E5%88%B0%E5%BD%AD%E5%B8%85-%E5%8C%97%E4%BA%AC%E8%AE%A9%E8%BF%99%E4%BA%9B%E5%90%8D%E4%BA%BA%E8%A2%AB%E6%B6%88%E5%A4%B1%E5%90%8E%E5%A4%8D%E5%87%BA)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-670.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-658.png)
+据《零对冲》2021年11月23日电，拜登政府周二（23日）早些时候提交了法庭文件 ( [pdf](https://www.dropbox.com/s/w9c2e54doyqm82e/20211123_GovtMotDissolveStay.pdf?dl=0) )，称联邦第五巡回上诉法院错误地解释了 OSHA 的授权，并要求美国第六上诉法院驳该上诉法院的命令，并恢复其对拥有 100 名或更多工人的私营企业的职业安全与健康管理局（OSHA）的疫苗授权。
 
-据《法广网》2021年11月23日电，法国报纸周二（23日）关注的中国消息有澳英美三国海军合作协议，加强应对中国在印太地区的实力上升（中共国认为美国、英国和澳大利亚展开核潜艇合作严重破坏该地区稳定，加剧军备竞赛 ）；《回声报》报道从马云到彭帅，北京整治这些名人。
+本月第 5 巡回法院的裁决将该指令描述为“存在致命缺陷”，并告诉 OSHA 在“等待充分的司法审查”之前不要执行该要求；疾病控制与预防中心 (CDC)[提供的](https://covid.cdc.gov/covid-data-tracker/#trends_dailydeaths)数据显示，自去年早些时候大流行开始以来，美国已报告了大约 4700 万例 COVID-19 病例，而大约 77 万人已经死亡；约翰霍普金斯大学对美国病死率的 [分析](https://coronavirus.jhu.edu/data/mortality)表明，COVID-19 患者的存活率接近 99%。 [许多研究](https://www.theepochtimes.com/professor-vaccinated-people-have-relevant-role-in-spreading-covid-19_4118444.html)表明，完全接种疫苗的个人在传播 COVID-19 方面发挥了相关作用，而不仅仅是未接种疫苗的人。
 
-近期中共国名人从网络突然消失被禁声，甚至失联后一段时间，重新复出后特别低调，显示他们受到过威胁，承受巨大压力。如马云在批评中共国经济模式后被消失2个月后复出，他开始赞扬习近平领导的中共国消除了极端的贫困。两年前中共国女星范冰冰也因为税务问题被消失了数月。该报指出不是所有被消失后的名人能够复出，如女影星赵薇从去年8月被消失后，她出演的影片也被下架，目前她本人去向不明。
+挑战[OSHA](https://www.theepochtimes.com/t-osha) 规则（称为紧急临时标准）的几起诉讼被合并为一个案件，并发送给位于俄亥俄州辛辛那提的第六巡回法院，其中 16 名法官中有 11 名是共和党 [任命的](https://ballotpedia.org/United_States_Court_of_Appeals_for_the_Sixth_Circuit)。
 
-瑞典斯德哥尔摩的国际民主及选举协助研究所公布最新的人权报告，该报告指出[全球民主状况正在倒退](https://www.lefigaro.fr/flash-actu/les-etats-unis-democratie-en-recul-pour-la-premiere-fois-selon-un-rapport-20211122)，美国在川普当政期间民主后退，首度位列陷入 “倒退 ”的民主国家名单，还有更多国家走向专制，仅在5年的时间里民主国家数量从 104 个减少到 98 个，中共国、沙特阿拉伯和伊朗等47国名列独裁政权国家。目前全球有1/4的居民生活在民主倒退的国家中。
+6. [美国汽车制造商工会同意不要求工人接种中共病毒疫苗](https://thehill.com/policy/healthcare/582895-us-automakers-union-agree-to-not-require-coronavirus-vaccines-for-workers?rl=1)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-671.png)
+据《国会山》2021年11月23日电，美国汽车工人联合会 (UAW)与通用汽车、福特和克莱斯勒的母公司 Stellantis在周二发表了[联合声明](https://uaw.org/statement-covid-19-joint-task-regarding-voluntary-vaccination-status-disclosure-task-force-continues-strongly-recommend-vaccinations-boosters/amp/)宣布：未曾强制要求他们数千名工人接种疫苗，但需要戴口罩和自愿报告他们的疫苗接种情况。
 
-6. [彭帅案：国际奥委会遭批危险玩火](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211123-%E5%BD%AD%E5%B8%85%E6%A1%88-%E5%9B%BD%E9%99%85%E5%A5%A5%E5%A7%94%E4%BC%9A%E9%81%AD%E6%89%B9%E5%8D%B1%E9%99%A9%E7%8E%A9%E7%81%AB)
+据《[门户网](https://www.thegatewaypundit.com/2021/11/california-county-imposes-indoor-mask-mandate-includes-private-homes/)》2021年11月23日电，“（加州）圣克鲁斯县现已实施室内强制戴口罩规定，它涵盖了家庭等私人环境。如果您与不住在同一家庭的其他人聚在一起，县政府表示无论疫苗接种情况如何，您都应该戴口罩。企业也必须遵守这些准则。你可以在吃饭或喝水时摘下口罩，”——KGO 报道。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-655.png)
-
-据《法广网》2021年11月23日电，在两周没有这位指控中共国前副总理张高丽强迫她发生性关系的网球冠军彭帅的消息后，总部设在洛桑的奥林匹克机构（国际奥委会）是第一个获得证明彭帅“在北京的家中安然无恙”的外国组织；人权观察中国专家王亚秋在推特上表示，国际奥委会现在在中共国伪政府的强迫失踪、胁迫和宣传机器中，扮演着积极的角色。
-
-根据洛桑大学的奥运专家Jean-Loup Chappelet的分析，“国际奥委会无法控制中共警察层面对彭帅想要进行发生的事情，也没有办法让彭帅离开中共国。”可见。西方媒体到非政府组织指责国际奥委会与中共国当局“共谋”封杀彭帅的言论，因此也确信其的确参与了谋杀了中共国的#metoo。
-
-7. [普京要来中共国，习神总算不用视频外交了](https://news.creaders.net/china/2021/11/23/2422686.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-655.png)
-
-据《万维网》2021年11月23日电，两国元首的冬奥之约将再次诠释中俄亲望亲好、邻望邻好的伙伴关係；俄罗斯总统普京（Vladimir Putin）愉快地接受中共习神邀请，他将出席北京冬季奥运会的开幕礼。中共国和俄罗斯正就普京到访中共国的具体事项，保持密切沟通。
+* * *
 
 *发稿: Nuevo唐人*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
+
+
 
 
  
