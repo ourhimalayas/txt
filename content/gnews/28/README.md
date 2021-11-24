@@ -2,24 +2,48 @@
 ---
 
 
-## 美学校诱导小学生性行为 上海学校诱导小学生自杀
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690482/)
+## 有声|生命的意义是什么？（第一集）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1690497/)
 
-撰稿：东京樱花团/ Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-643.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.sjzyzjt.net%2Fuploadfile%2F2021%2F1118%2F20211118062950182.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.cciahzw.com%2Fhtml%2F2021%2Ffangtan_1118%2F18324.html&amp;tbnid=q6CRNGWda9s10M&amp;vet=12ahUKEwj-07rzpbD0AhU_nUsFHRgwCfsQMygOegUIARDVAQ..i&amp;docid=KVa5pY4soD-_4M&amp;w=640&amp;h=329&amp;itg=1&amp;q=%E5%B0%8F%E5%AD%A6%E7%94%9F%E8%87%AA%E6%9D%80%E6%95%99%E8%82%B2&amp;ved=2ahUKEwj-07rzpbD0AhU_nUsFHRgwCfsQMygOegUIARDVAQ)
-据看中国报道美国参议院保守党基金的执行董事瓦奥（Mary Vought）近日在福克斯新闻网撰写观点文章，批评美国公立学校的性教育误导青少年，这方面只有家长才有权决定如何教育自己的孩子。
+配音：香草山教育部 – 蒙古鸿雁
 
-文章写道，“上次发生性行为时，你或你的伴侣是否使用了安全套？”这是一个弗吉尼亚州公立学区问12岁孩子的问题。
 
-无独有偶近日中共国上海多所小学调查问卷涉及自杀准备情况，整个问卷120多题，其中58—94与自杀相关。问卷中问道“你最近一周希望外力结束自己生命，即有被动自杀愿望的程度如何？（如，希望一直睡下去不再醒来、意外地死去等）”
 
-这是一个什么样的世道，本是培养人才的学校竟搞出这样的乌龙，这不像是偶然的失误，也不像是某些人为的过失，这显然是有意为之。是一张什么样的黑手，染指了医疗，染指了科学，染指了媒体，现在又要把这只黑手伸向不谙世事的娃娃。仿佛一张无名的黑色网络在不断延伸，不断地延伸，伸向向我们生活的方方面面，企图控制一切，企图扼杀一切。这是多么无奈的现实，却又真实存在。
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
 
-消息来源：[评论：美公校性教育太离谱 家长应做主(图)](https://m.secretchina.com/news/gb/2021/11/24/990428.html)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+
+**什么是生命？**
+
+你知道你的人生目标吗？你知道如何享受生活吗？你在正确的人生道路上吗？你在生活中寻找的是什么？大多数人从未想过这些问题。现在是审视这些问题的时候了，以便过上有价值和幸福的生活。那么，什么是生命？生命是一个简单的词，但它有非常复杂和全面的含义。让我们从不同的角度，多层次，多维度的举措，多元化的价值观，社会原则和文化协议来探讨生命的意义。
+
+**生命是关于对未知的探索。**
+
+一个年轻健康的人可能会心脏病发作；一个富有的商人可能会在破产后出现焦虑和抑郁；一个著名的歌手可能在某一天失声痛哭；一个NBA球员可能在没有任何预兆的情况下突然死于事故。一切都可以在几秒钟内化为灰烬。没有人知道谁会是下一个受苦或死亡的人。从富人到穷人或从穷人到富人的过渡可以在眨眼间发生。因此，生命的意义在于活在当下，而不是过去，也不是未来，通过无条件地珍惜现在所爱的人。昨天已经过去了，明天是不可预测的，只有今天、现在是真实的。
+
+
+原文链接：[生命的意义是什么？（第一集）](https://gnews.org/zh-hans/1674136/)
+
+
+音频处理：喜山必胜Maverick
+发稿：Daxia
+
+![](https://cdn.discordapp.com/attachments/873743101305430037/904371534930534400/Screen_Shot_2021-10-31_at_10.05.40_PM.png)
+
+**更多資訊，更多關注**
+
+[**紐約香草山農場GTV-香草山之聲**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**紐約香草山農場GTV-MOS TALK 香草山訪談**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**紐約香草山農場Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**紐約香草山農場 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**歡迎加入紐約香草山農場 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

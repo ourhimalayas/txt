@@ -2,37 +2,26 @@
 ---
 
 
-## 中共为彭帅事件洗地遭国际强烈质疑
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1690122/)
+## 什么样的绝境将女网红推向末日直播 死后亡魂仍不得安宁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690131/)
 
-作者：东京樱花团 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/8CD75D52-66F6-499F-AA37-EFDA76424BF7_w1023_r1_s.png)
-北京时间11月21日，中共喉舌《环球时报》总编胡锡进，在其英文推特上发出网球名将彭帅，当日参加北京青少年网球决赛开幕式的部分照片及视频。这是在全世界对彭帅事件愈发关注之际，中共当局对墙内严密控制消息的同时，却极力向海外发出试图证明彭帅“安好”的表演片段，遭到国际社会强烈质疑！ 有网民讽刺共产党竟然为个人报平安，能在短短几天内就把彭帅培养成演员。
+撰稿：东京樱花团/ Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-163.jpg)（图片来源于本文链接）
+据看中国记者黎小葵综合报导湖南女网红“罗小猫猫子”10月在直播中喝下农药自杀送医不治，没想到死后也不得安宁，骨灰遭殡仪馆负责火化人员调包拿去冥婚，在未被买家看上后冥婚才未配对成功。消息传出后引发社会关注。
 
-国际女子网球协会主席赛门表示，中共发出彭帅的视频并不足以证明她的人身自由！彭帅是否能在没有胁迫，或者外力干预下自己做出决定和采取行动，仍是未知数！同时，该协会再次发声，称过去两天中共发出的视像，不能消除对彭帅现状的担忧。
+拥有近60万粉丝的湖南女网红“罗小猫猫子”，10月15日发布一段视频称，这是她发布的最后一段视频，并称她得抑郁症很久，甚至曾住院2个多月，由于她平时给关注者展现开朗形象，因此网友们以为她开玩笑，但没想到，她其后在直播中真的拿出一瓶褐色的液体，一口气喝下，喝完之后她掐着自己的脖子，最终不行去世。
 
-有评论指出，彭帅事件已经变得有爆炸性，冲击了北京的政治圈。而该事件，正是检验中共是否符合举办冬奥会的最好标准。
+“罗小猫猫子”去世后，遗体送到山东省济宁市汶上县一处殡仪馆处理，但想不到馆内邵姓工作人员勾结当地殡葬业者，将“罗小猫猫子”骨灰调包拿去寻找冥婚买家，以此获取每笔冥婚交易5万至7万元报酬。
 
-参考链接：
-1:[https://www.voachinese.com/a/missing-chinese-tennis-star-reappears-in-public-in-beijing-20211121/6321914.html](https://www.voachinese.com/a/missing-chinese-tennis-star-reappears-in-public-in-beijing-20211121/6321914.html) 
-2:[https://www.voachinese.com/a/beijing-olympics-diplomatic-boycott-20211119/6320934.html](https://www.voachinese.com/a/beijing-olympics-diplomatic-boycott-20211119/6320934.html)
-3:[https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E8%8B%B1%E5%9B%BD%E4%B9%9F%E8%80%83%E8%99%91%E5%AF%B9%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E5%A4%96%E4%BA%A4%E6%8A%B5%E5%88%B6/a-59888162](https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E8%8B%B1%E5%9B%BD%E4%B9%9F%E8%80%83%E8%99%91%E5%AF%B9%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E5%A4%96%E4%BA%A4%E6%8A%B5%E5%88%B6/a-59888162) 
-4:[https://world.huanqiu.com/article/45gpbMvOPGb](https://world.huanqiu.com/article/45gpbMvOPGb) 5:[https://www.voachinese.com/a/Calls-to-Boycott-Beijing-Winter-Games-Grow-20211119/6318313.html](https://www.voachinese.com/a/Calls-to-Boycott-Beijing-Winter-Games-Grow-20211119/6318313.html) 6:[https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/al-10252021112409.html](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/al-10252021112409.html)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-10.jpg)
-编辑/校对/发稿：文留
+这个世界很奇特，看似光鲜的背后隐藏着多少不为人知的不堪？灵魂的扭曲，精神的自我麻痹，在魔鬼的国度，一切走的都是非常道，没有非常人的牺牲和付出料难以成功。每一段成功的背后都有一段血淋淋的辛酸史，在魔子魔孙织就的吸血网络，从生到死，从吃饭到穿衣，从上学到入墓，生生死死的每一个环节都充满着无数只黑手，摆弄的你动弹不得，及乎要窒息！
 
-**更多资讯，更多关注**
+消息来源：
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[女网红直播自杀 骨灰调包“配阴婚”3人被抓](https://m.secretchina.com/news/gb/2021/11/24/990415.html。)
 
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
