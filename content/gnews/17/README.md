@@ -2,223 +2,38 @@
 ---
 
 
-## 班农先生的人格魅力是我们中国人最为缺少的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1691353/)
+## 墙内要闻汇编 11月24日
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1691470/)
 
-[https://gtv.org/video/id=619de6cfe6900076612f1d4c](https://gtv.org/video/id=619de6cfe6900076612f1d4c)
+素材：东京樱花团｜GNEWS组
+![](https://lh4.googleusercontent.com/KaINJyco3RAdiJQuTbw1_jXN-xBq5Qf1zBTfL3-kE1UUulQChKc4bn_oDTjxx3VerjIWCJtRJ67x3VjJcVhQ3vFOmQcmX2cqu3P643TuYe1SFY7nFOgKnZIPXe8q-srweMJf6rkz)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1124/20211124121507718.jpg)
+1、[**网信办再下令整顿娱乐圈 “失德”明星艺人难再复出**](https://www.aboluowang.com/2021/1124/1675225.html)
 
-班农先生不但他支持中国人
-No solo el Sr. Bannon apoya a los chinos
+中国网信办发出《通知》，要求各部门规范娱乐明星网上信息，关注明星艺人的动态，并对其粉丝数量进行信用评级，将被官方定性为“失德”的明星艺人纳入“负面清单”，进行实时监测和动态预警并严防其“曲线复出”
 
-他父亲、他兄弟
-Su padre, sus hermanos
+2、[**服务三孩政策 中国多省计划增设辅助生殖机构**](https://www.aboluowang.com/2021/1124/1675230.html)
 
-他妹妹、他全家
-Su hermana menor, toda su familia
+中国媒体报道，继中国政府近期宣布三孩政策后，已有上海、天津、河南、陕西、贵州等12个省市近日发布了下一个五年计划《人类辅助生殖技术应用规划（2021-2025年）》，表示会增加辅助生殖服务机构的数量。其中，四川省未来五年计划增加多达20家辅助生殖服务机构，安徽、陕西等地计划新增十家。截至去年六月，中国共有500多家合法的“人类生殖辅助医疗机构”，但它们的地理分布明显不均。
 
-都支持新中国人老百姓
-Apoyan a los ciudadanos de la Nueva China
+3、[**中共新规触发外企纷纷取消在华项目**](https://www.aboluowang.com/2021/1124/1675517.html)
 
-而且班农先生冒着生死威胁
-Además, el Sr. Bannon está arriesgando una amenaza de vida y muerte
+中国英国商会周二（11月23日）发布的一份报告显示，中国有关数据传输和本地化方面的政策正导致企业因担心合规问题而取消在中国的项目。该商会写道：“这种不确定性正在引发相当大的焦虑，因为它可能对来自中国的数据产生不可逾越的障碍。”该商会补充说，这些法律的其他部分仍然过于模糊，进行安全评估的确切行政要求也使英国公司感到困惑。
 
-创建法治基金、法治社会
-Para crear el Fondo y la Sociedad de Estado de Derecho
+4、[**台企远东集团遭重罚 专家：引发外资撤离中国**](https://www.aboluowang.com/2021/1124/1675508.html)
 
-然后一起创建一切
-Y crear todo en conjunto
+台湾远东集团中国投资遭中共以环保为由重罚人民币8,862万元（约1,394万美金），国台办暗示背后有政治因素。多位专家指出，会引发外资撤离中国。有财经专家认为会进一步加速台商回台投资。陆委会表示，对中共此举将研议采取必要反制与防范措施。
 
-我们新中国联邦人可以说第一次
-En la Federación de la Nueva China podemos decir que por primera vez
+5、[**向现实低头！缺煤限电后 中共国10月首次清关放行澳洲煤碳**](https://www.aboluowang.com/2021/1124/1675257.html)
 
-向中国人展示了我们不是说白人
-Le demostramos a los chinos que hablamos de la raza blanca
+随着和澳洲政治关系恶化，中共国从去年底就没有放行澳洲煤炭进口。上月首次为进口澳大利亚煤炭办理了清关。中国多地在9月爆发限电危机，暴露出煤炭短缺及价格飙涨的情况。中国海关资料显示，10月份中国进口了279万吨澳洲煤炭。彭博社指出，这些煤炭可能是之前未获清关而滞留中国港口的货物。这些煤炭中大部分是用于取暖的动力煤，但也包括钢铁厂使用的77.8万吨焦煤。
 
-要不就是我们的敌人
-Como nuestros enemigos
+6、[**中国11城人均存款超10万元 惟扣除通胀和债务后所剩无几**](https://www.aboluowang.com/2021/1124/1675246.html)
 
-要么就是我们的奴隶
-O como nuestros esclavos
+中国人民银行公布，截至去年底，中国居民存款余额为93万多亿元，其中人民币存款为92万多亿元，增长13.9%。人均住户存款金额为6.62万元。其中11个城市居民人均存款超过10万元。学者认为，仅从上述数字不能反映居民生活提高，相反受经济下滑影响，居民消费能力正逐步下降。又指由于政治需要，官方公布的数据往往为了宣传社会繁荣，因此与现实差异较大，数据亦只能说明财富高度集中在少数人手中。
 
-要不就是奴隶我们的主人
-O como esclavo de nuestro amo
-
-不是这个关系
-No es esta relación
-
-我们平等相处
-Nosotros nos llevamos bien en igualdad
-
-我们可以互敬互爱互尊
-Podemos respetarnos y amarnos mutuamente
-
-而且完全没有种族观念的
-Además, sin ningún concepto racial en lo absoluto
-
-和班农先生在推行全球的
-Para promover junto al Sr. Bannon
-
-整个全球的平民主义
-El populismo en todo el mundo
-
-包括推行我们的新中国联邦
-Incluyendo promover nuestro Nuevo Estado Federal de China
-
-新中国联邦
-Nuevo Estado Federal de China
-
-这是一个前所未有的
-Esto nunca antes había sucedido
-
-而且我们没流一滴血
-Además, nosotros no derramamos ni una gota de sangre
-
-没有死一个人
-No se ha muerto una persona
-
-所以说今天在这个时候
-Por eso hoy en este momento
-
-我们跟班农先生再坐在一起的时候
-Cuando estamos sentados junto al Sr. Bannon
-
-这个世界最重要的就是
-Lo más importante de este mundo es que
-
-用今天你来看过去发生的历史
-A través de hoy vemos las historias que sucedió en el pasado
-
-来对比过去的历史
-Haciendo una comparación con las historias del pasado
-
-再看到你看我们今天当时新闻发布会出现的那些人当中
-Vemos de nuevo, entre esas personas que se presentaron en la rueda de prensa en aquel momento
-
-现在很多人已经都背叛了
-Ahora hay mucha gente que ha traicionado
-
-这是很正常的
-Esto es normal
-
-人类大自然优胜劣汰的
-La naturaleza humana sobrevive a los más aptos
-
-这是一个正常的自然现象
-Este es un fenómeno natural normal
-
-但是要看到
-Pero hay que ver
-
-为什么班农先生还能跟我坐在一起
-Por qué el Sr. Bannon aún puede estar sentado a mi lado
-
-为什么班农先生
-Por qué el Sr. Bannon
-
-今天还能有这样的激情
-Hoy en día aún puede tener esta pasión
-
-还有这样的影响力
-Y este tipo de influencia
-
-就当时 FBI 的人给我说
-En ese momento los de FBI me dijeron
-
-说你们中国人就是要脸要面子
-“ustedes los chinos sólo quieren el prestigio y la reputación
-
-全世界只有美国一个 Steve K. Bannon
-En todo el mundo sólo hay un Estados Unidos, un Steve K. Bannon
-
-他说被人家给打到地上 It’s shit
-Dijo que alguien lo golpeó en el suelo diciéndole: “es una mierda”
-
-然后班农到 Europe
-Y cuando Bannon se fue a Europa
-
-You know the FBI said
-“Sabes qué dijo el FBI”
-
-然后欧洲回来以后 Number one hero
-Y luego cuando regresó de Europa, “héroe número uno”
-
-FBI 说他从来没要面子
-El FBI dijo que él nunca quiso reputación
-
-Steve Bannon never wants to say give my face
-“Steve Bannon nunca dijo: dame mi reputación”
-
-I don’t care face, just want to win
-“No me interesa la reputación, sólo quiero ganar”
-
-Chinese say give my face
-“Los chinos dicen dame mi prestigio”
-
-Face so fake, nothing 所以说班农先生人家赢
-“El prestigio es falso, no es nada” Por eso el Sr. Bannon ganó
-
-FBI 说人家班农就是英雄啊
-El FBI dice que Bannon es un héroe
-
-那么班农先生即使经历这么多事情
-Así el Sr. Bannon haya pasado por tantas cosas
-
-从来没有见他有一点点犹豫
-Pero nunca se le ve ni un poquito de indecisión
-
-这是我们一个学习的一个人格的好榜样
-Este es un buen ejemplo de una personalidad para aprender
-
-说他是种族主义
-Dicen que él es racista
-
-Racialism
-Racismo
-
-班农先生是
-El Sr. Bannon es
-
-American only one
-El único americano
-
-White people 100% support Chinese
-Persona blanca que apoya a los chinos al 100%
-
-I never get feeling you are racialism
-“Yo nunca logré sentir que eres racista”
-
-Never never never
-Nunca nunca nuca
-
-One hundred twenty days with you together
-120 días contigo juntos
-
-One boat one life twenty-four hours sleep together
-En un barco, una vida, 24 horas durmiendo juntos
-
-I never get feeling your racialism
-Yo nunca te sentí que eras racista
-
-* * *
-
-日期：11/23/2021
-原视频标题：班农先生的人格魅力是我们中国人最为缺少的
-El encanto de la personalidad del Sr. Bannon es lo que más nos falta a los chinos
-原视频日期：11/22/2021
-原视频网址：https://gettr.com/post/phlgeuab7b
-任务编号：KC283（2982）
-视频时间段：0:00-2:21
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*编辑：东京樱花团 /東洋武士
+发布：东京樱花团 /平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

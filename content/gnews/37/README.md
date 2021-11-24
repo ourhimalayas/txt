@@ -2,25 +2,28 @@
 ---
 
 
-## 新证据显示新冠病毒来自于武汉病毒研究所
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1690944/)
+## 日本大财团企业联合推出新数字货币
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690966/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Wuhan1.png)图片来自网络
-[据报道](https://www.telegraph.co.uk/news/2021/11/20/bat-virus-shipped-wuhan-laboratory-covid-outbreak-emails-show/)，最新发布出来的Peter Daszak所在的生态健康联盟与美国政府资助者之间的电子邮件表明，武汉病毒研究所在2017年6月至2019年5月期间收集并研究了生活在老挝的高危蝙蝠物种的病毒样本。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12313.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.xinmin.cn%2Fxmwb%2F2021%2F4%2FNEM1_20210420_C0326326330_A2760534.jpg&amp;imgrefurl=https%3A%2F%2Fwap.xinmin.cn%2Fcontent%2F31941540.html&amp;tbnid=9jZK94F6db1JBM&amp;vet=12ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ..i&amp;docid=C5khSQm7zUjvIM&amp;w=600&amp;h=399&amp;itg=1&amp;q=%E6%97%A5%E6%9C%AC%E6%95%B0%E5%AD%97%E8%B4%A7%E5%B8%81&amp;ved=2ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ)
+日经新闻周三报导，一个由大约70家日本企业组成的财团将开始测试最早在2022年下半年推出的一种数字货币，其中包括三家大型银行。
 
-今年9月，研究人员在老挝发现了一种名为Banal-52的毒株，其基因组的96.8%与Sars-CoV-2相同。当时，使研究人员感到疑惑的是来自老挝的蝙蝠传播的病毒是如何在1000多英里外的武汉引发疫情的。
+该报称，这种数字货币将由银行存款支持，并使用一个共同的平台来加快公司之间的大额转账和结算，降低成本。
 
-泄露的生态健康联盟的电子邮件显示，病毒样本是从老挝的蝙蝠身上采集的，并被送到武汉病毒研究所进行研究。这个发现解开了调查人员的疑惑，使他们更加确认，新冠病毒来自于武汉实验室。
+财团成员包括三菱日联金融集团(MUFG)[8306.T](https://cn.reuters.com/companies/8306.T)、瑞穗金融集团[8411.T](https://cn.reuters.com/companies/8411.T)、以及三井住友金融集团[8316.T](https://cn.reuters.com/companies/8316.T)。该财团自去年以来一直定期开会，研究如何为数字支付建立一个共同的结算基础设施。
 
-在Banal-52被发现之前，与Covid-19最接近的亲属是在中国云南的洞穴蝙蝠中发现的，生态健康联盟也在那里寻找过病毒，并将样本送到武汉病毒学研究所。
+这三家银行都推出了自己的数字支付系统，但仍落后于软银集团[9984.T](https://cn.reuters.com/companies/9984.T)旗下的PayPay等科技公司。
 
-从云南和老挝收集的基因序列被保存在武汉研究所的一个在线数据库中。然而，这些数据在2019年9月被删除，使专家们无法确定该实验室究竟研究了哪些毒株。
+这一举措可能会影响日本央行正在单独进行的央行数字货币(CBDC)测试，政策制定者曾表示，如果央行要发行CBDC，他们将与民间部门密切合作。
 
-武汉病毒研究所在新冠大流行爆发前期删除研究数据，以及大流行在武汉爆发后，中共阻止武汉到国内其它城市的航班，而开放武汉到世界各地的航班，不难推断中共故意释放病毒，毁灭人类的邪恶用心！
+消息来源:
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
+[日本约70家企业将联合测试推出数字货币–日经](https://cn.reuters.com/article/japan-digital-currency-test-1124-wedn-idCNKBS2I9056?il=0)
+
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

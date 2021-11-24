@@ -2,45 +2,92 @@
 ---
 
 
-## 为何总是容忍左派暴动？而右翼的自卫却被视为“种族主义”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1691446/)
+## 与美国疫苗受伤者的对话
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1691537/)
 
-**编译：Jenny Ball**
+翻译： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip49.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-23-at-9.36.07-PM-1024x555-1.png)图片取自原文
 
-在川普竞选总统之前，他从未被称为种族主义者，或白人至上主义者，因为他不是。 然而，**左派的大众媒体立即开始给他打上这样的标签，**如果他以某种方式取得胜利，就会制造一场虚假的种族战争和动荡。在川普获胜后的几年里，**美国目睹了 “按体罚”(Antifa)和黑命贵(Black Lives Matter)的抗议活动，这些抗议活动是真正全面的骚乱，几乎在每个大都市都发生过，几乎没有人因袭击、纵火、入室盗窃、破坏财产甚至谋杀而被捕。**大众媒体将所有这一切称为“和平抗议”，即使在现场报道中的新闻播音员身后是一片混乱。
+你以为你知道……关于Covid“疫苗”的真相？
 
-现在，我们正在目睹美国爱国者为这些左翼暴徒辩护，并因袭击和谋杀而受到指控。 **如果你碰巧是白人，那么你会自动被贴上种族主义者**、**白人至上主义者的标签**，即使暴力对抗只发生在白人之间。
+被遗忘的人——克里斯汀·多兰采访受疫苗伤害者
 
-国内恐怖分子因里顿豪斯被判无罪而在波特兰袭击警察，会不会像 1 月 6 日所谓的“叛乱分子”一样被关押，不得保释？
+8 月 24 日上午，备受尊敬的记者 克里斯汀·多兰（Christine Dolan）将联合 CDM.press 发布一系列对疫苗受伤患者的情感采访。其中一些人是实验化合物临床试验的一部分。其他人在获得 FDA 紧急使用授权后接受“疫苗接种”后受伤。
 
-凯尔·里顿豪斯 (Kyle Rittenhouse) 是一名 17 岁的白人男性，他不是种族主义者或白人至上主义者，他只是为自己免受多名袭击者的攻击而辩护，被指控犯有多项罪行，包括谋杀。他的所有指控都被判无罪，大众媒体继续假装他有罪，称他为凶手，并继续散布关于凯尔是白人至上主义者的谎言。一切都与枪支管制有关，**任何拥有枪支的人都知道左派（共产主义拜登政权）想拿下他们，所有人，而且很快。**
+访谈将以播客格式每天在 cdm.press 上发布。多兰和 CDM 致力于公开“疫苗头条背后的信息”。
 
-这次审判和无罪释放的抗议者（以及其他类似的人）是否由阴险的共产主义者乔治·索罗斯付钱在地铁城市的街道上骚乱，袭击警察，烧毁东西？好吧，我们可能永远不会知道。尽管如此，**大众媒体仍将这种暴力美化为正义和适当的**，并捍卫黑人，或惩罚（假）“法西斯分子”并拿走他们的枪。
+后续采访将包括医疗保健专业人员，及其在政府没有关于长期和短期后果的科学数据，强制为全体人口接种疫苗的经历。
 
-1月6日，在总统选举被假选票和被操纵的投票机盗窃后，许多美国爱国者在华盛顿警察的指挥下和平地走进首都大楼（并以联邦调查局为首实施暴力），**随后被以“国内恐怖分子”的名义逮捕。**”说他们密谋推翻即将到来的拜登政权。**他们今天仍然在监狱里，受苦受虐待，没有保释，没有审判，没有权利。**这都是由于右翼的和平抗议。
+克里斯汀·多兰是一位经验丰富的调查记者、电视制作人、作家和摄影师。她是《美国人对话》（American Conversations）的联合创始人，其形式侧重于对有关**“**头条新闻背后的故事**”**的关键问题的深入分析。它的附属机构《对话》（Conversations With…）与 CDMedia 的主编托德·伍德（L Todd Wood）合作，正在研究** Covid **的所有不同事实。她最近担任《真实新闻》（Just the News）的高级记者，报道 2020 年总统竞选和新冠病毒大流行。
 
-波特兰的国内恐怖分子可以自由地继续试图活活烧死那里的警察
+在四个美国网络（ABC、CNN、PBS、NBC）报道国内和国际政治、三场战争、人道主义危机后，她在过去21年里在六大洲的街头和互联网上调查了跨国和跨犯罪的人口贩运领域，包括器官和药物贩运。
 
-在波特兰，左翼极端分子向警察投掷燃烧瓶，试图将他们活活烧死，这就是所谓的和平抗议。就在两个月前，暴力骚乱者占领了波特兰市，以回应大陪审团的审判结果（关于布伦娜·泰勒的死），他们认为陪审团站错了一边。**国内恐怖分子向与犯罪无关的黑人、白人和西班牙裔警察开火，并向他们投掷致命的弹丸和燃烧弹。**这主要是（如果不是全部）精心策划的骚乱，以使整个国家看起来都处于种族战争之中，但事实并非如此。
+在法学院接受刑事调查员培训后，ABC 新闻聘请了她，多兰女士在那里成为 ABC 新闻传奇政治总监哈尔·布鲁诺（Hal Bruno）的门徒。后来，在 CNN，她成为哈尔的竞争对手，成为 1980 年代任何美国网络的第一位女性政治总监。当《今日》报道非洲时，她担任 NBC 新闻的制片人，并共同拥有 PBS 的国际关系联合系列节目。在调查班加西袭击事件时，她的故事登上了《华盛顿时报》的头版，其中有美国国务院无法否认的证据。
 
-美国大众媒体“全力以赴”，通过两极分化的观点来分裂这个国家，**并且只对他们选择的新闻进行加剧、扭曲和耸人听闻**。这就是为什么它们被称为“假新闻”，而且看不到尽头。请继续关注任何其他涉及枪支的审判，在这些审判中，白人将因谋杀而受到指责，而白人至上肯定会成为主题， 顺便说一下，**据称开着他的 SUV 穿过一群和平抗议者，包括祖母在内的逆向种族主义者**，目前已被保释。为什么？
+2021 年 7 月 22 日，她在佐治亚州亚特兰大宣布，她现在专注于大药企内部的欺诈行为，该欺诈行为将人类变成了医疗贩运的受害者。
 
-**点评：对邪恶的容忍就是对邪恶的放纵！我们的世界已经完全被邪恶势力控制的媒体操纵着！**
+“地球上的每个成年人都需要了解真相，并站出来保护儿童，他们不是科技的数据数字，也不是大药企的豚鼠。我已经调查了硅谷二十多年，了解他们的平台如何被用于 人口贩卖。大科技公司增加了其药企广告，甚至审查那些在互联网上的疫苗受伤者，而 大药企则把目标盯向儿童，“多兰说。
 
-文章信息来源：
-[TheGatewayPundit.com](https://www.thegatewaypundit.com/2021/11/riot-declared-portland-domestic-terrorists-throw-explosives-police-rittenhouse-verdict/)
-[ZeroHedge.com](https://www.zerohedge.com/political/rittenhouse-acquitted-all-charges)
-[NaturalNews.com](https://www.naturalnews.com/2020-09-25-antifa-throws-molotov-cocktails-at-police-in-portland.html)
+主持人多兰与因疫苗受伤的肖恩·维迪拉 (Shawn Vidiella)[谈论她在莫德纳接种前后的生活巨变](https://creativedestructionmedia.com/video/2021/11/15/episode-22-american-conversations-with-vaccine-injured-shawn-vidiella/)。
 
-**新闻来源**：[newstarget.com][Why are LEFTIST riots always tolerated? Violence from the Left is “good” but self-defense from the Right is deemed “racist”](https://www.newstarget.com/2021-11-22-violence-from-the-left-is-good-self-defense-from-the-right-deemed-racist.html)
+“不要相信医学界，他们不为你着想……”
+
+主持人多兰与米歇尔·萨基希安 (Michele Sarkisian) 谈论她的母亲，她在“接种”之前很活跃，充满活力，[现在她死了](https://creativedestructionmedia.com/video/2021/11/10/episode-21-american-conversations-with-vaccine-injured-michele-sarkisians-mom/)。
+
+“她是一个积极、外向的人，出去和朋友们玩得很开心……”
+
+[多兰与疫苗受伤的患者安吉莉亚·德塞尔（Angelia Desselle）和肖恩·维迪拉（Shawn Vidiella）交谈](https://creativedestructionmedia.com/news/2021/11/03/breaking-early-rollout-vax-injured-claim-ivermectin-successfully-treated-their-paralysis/)。两人描述了服用伊维菌素如何帮助缓解疫苗引起的麻痹以及其他严重症状。然而，伊维菌素的使用仍然受到限制。两位女性都要求与安东尼·福奇博士会面。
+
+[主持人多兰与因疫苗受伤的克里斯蒂·多布斯 (Kristi Dobbs) 谈论了](https://creativedestructionmedia.com/investigations/2021/10/20/breaking-nih-warned-vaccine-injured-mom-not-to-vaccinate-her-children-in-march/)她今年 3 月接受 NIH 的检查，以及他们如何警告她不要给孩子接种疫苗。
+
+“我这样做是因为我想保护孩子……”
+
+[多兰与因疫苗受伤的马特·哈德森 (Marte Hudson) 交谈](https://cdm.press/UM)，谈到她很难在政府或大型制药公司中找到任何人来承认疫苗受伤的责任，或为其提供帮助。
+
+“绝对不给孩子接种疫苗……”
+
+[多兰与因疫苗受伤的马特·哈德森 (Marte Hudson) 交谈](https://creativedestructionmedia.com/video/2021/09/19/episode-17-american-conversations-with-vaccine-injured-interview-with-nicole-boltz/)就她的疫苗受伤以及她对没有人（包括政府或大型制药公司）会帮助她感到震惊进行了交谈。
+
+“确保你在打完针后有人带你去急诊室……”
+
+“你无法调查，因为那里没有关于疫苗的真实信息……”
+
+主持人多兰就她可怕的疫苗伤害以及缺乏政府或大型制药公司的任何帮助，[多兰与因疫苗受伤的马特·哈德森 (Marte Hudson) 交谈](https://cdm.press/TV)。
+
+“你的神经末梢被破坏了**……**你的身体已经告诉你皮肤中的神经死亡了**……**你自己的身体被彻底攻击了**……”**
+
+**“**他们制造了一种新的疾病**……**我失去了我的整个生命**……”**
+
+主持人多兰与苏珊娜·纽厄尔 (Suzannah Newell) 谈论了她可怕的疫苗伤害，以及医学界和大型制药公司将她的健康问题归类为“焦虑症”的企图。
+
+**“**我希望医学界承认我们是伤害是真实的**……”**
+
+主持人多兰和 托德·伍德 与疫苗受伤的患者詹妮弗·伯特 (Jennifer Burt) ，就政府或大型制药公司在她与疫苗相关的严重健康问题上缺乏帮助进行了交谈。
+
+**“**你得帮帮我们，不能就这么无视我们**……”**
+
+主持人多兰和托德·伍德与接种疫苗的受伤患者安德里亚·罗西塔 (Andrea Rosita) 讨论了她可怕的健康问题，以及医学界拒绝承认她的症状是真实的。
+
+**“**没有人愿意承认这些疫苗反应**……”**
+
+[主持人多兰和托德·伍德与蒂姆·哈灵顿 (Tim Harrington)](https://creativedestructionmedia.com/news/2021/09/09/episode-12-american-conversations-with-vaccine-injured-interview-with-tim-justin-harrington/)，以及他接种疫苗的病人儿子贾斯汀 (Justin) ，就贾斯汀因接种疫苗反复出现的健康问题进行了交谈。
+
+**“**中国人要把我们都买下来了**……****”**
+
+主持人多兰和托德·伍德与接种疫苗的患者艾琳·罗德 (Erin Rhodes) 讨论了她因疫苗而造成的可怕健康问题，以及围绕疫苗要求的“集体思考”。
+
+**“**仅仅因为你不知道，并不意味着它不会发生**……”**
+
+如果你有关于疫苗受伤的信息并且可以去记录电子邮件[\[email protected\]](/cdn-cgi/l/email-protection#92d3fff7e0fbf1f3fcd1fdfce4f7e0e1f3e6fbfdfce1d2e2e0fde6fdfcfff3fbfebcf1fdff)
+
+**参考资料：**[creativedestructionmedia][American Conversations With Vaccine Injured](https://creativedestructionmedia.com/american-conversations/)
 
 * * *
 
-***审核：文乐
+*审核：文乐
 校对：阿伯塔
-发布：信心满满***
+发布：信心的选择*
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
 

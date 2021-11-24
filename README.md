@@ -15,128 +15,128 @@
 
 ---
 
-### [有声|美国媒体批评拜登对台政策虚虚实实含糊不清](/content/gnews/1/README.md)
+### [比特币为什么会消失？喜币喜联储为什么这么牛？](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|美日澳德加五国在菲律宾海举行联合军演](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [默克尔表示，德国可能从一开始就对中国过于天真了](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [银河快讯：日越同意加强合作应对中共；日元汇率跌至4年来最低](/content/gnews/3/README.md)
+### [银河快讯: 日本，泰国和新加坡举行电话会谈；大型服装公司停止使用新疆棉](/content/gnews/3/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [中共10个月发了6.49万亿元地方债](/content/gnews/4/README.md)
+### [劳动力不够，统计局来凑](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|数万名未接种联邦雇员本周一失业 众议员抨击白宫强制接种令](/content/gnews/5/README.md)
+### [有声|美国针对德国和丹麦发出旅行警告](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [与美国疫苗受伤者的对话](/content/gnews/6/README.md)
+### [50亿！港共政府首次发行人民币债券](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [默克尔称德国起初对中共国的态度可能很天真](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [企业家挑战卫生官员就疫苗展开辩论但无人接受](/content/gnews/7/README.md)
+### [有声|美国媒体批评拜登对台政策虚虚实实含糊不清](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [默克尔表示，德国可能从一开始就对中国过于天真了](/content/gnews/9/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [银河快讯：日越同意加强合作应对中共；日元汇率跌至4年来最低](/content/gnews/10/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [中共10个月发了6.49万亿元地方债](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [有声|数万名未接种联邦雇员本周一失业 众议员抨击白宫强制接种令](/content/gnews/12/README.md)
+ ` MOSREC`
+
+### [与美国疫苗受伤者的对话](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳洲税局不信加密货币投资者会自己保存交易记录](/content/gnews/8/README.md)
+### [企业家挑战卫生官员就疫苗展开辩论但无人接受](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [澳洲税局不信加密货币投资者会自己保存交易记录](/content/gnews/15/README.md)
  ` 走进澳洲`
 
-### [爆炸消息：60岁以下接种成年人死亡率是未接种的两倍](/content/gnews/9/README.md)
+### [爆炸消息：60岁以下接种成年人死亡率是未接种的两倍](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [墙内要闻汇编 11月24日](/content/gnews/10/README.md)
+### [墙内要闻汇编 11月24日](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [维加诺大主教：关于反对所谓“世界新秩序”的全球呼吁](/content/gnews/11/README.md)
+### [维加诺大主教：关于反对所谓“世界新秩序”的全球呼吁](/content/gnews/18/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [举报人揭露医院一天内因新冠“疫苗”导致13例死婴产儿](/content/gnews/12/README.md)
+### [举报人揭露医院一天内因新冠“疫苗”导致13例死婴产儿](/content/gnews/19/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [为何总是容忍左派暴动？而右翼的自卫却被视为“种族主义”](/content/gnews/13/README.md)
+### [为何总是容忍左派暴动？而右翼的自卫却被视为“种族主义”](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [科学家们困惑 非洲只有6%接种率新冠病毒几乎消失了](/content/gnews/14/README.md)
+### [【G时新闻】已完全接种疫苗的法国总理仍感染新冠病毒](/content/gnews/21/README.md)
+ ` G-时新闻`
+
+### [科学家们困惑 非洲只有6%接种率新冠病毒几乎消失了](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [科学家们不清楚为何非洲成功的躲过了中共病毒？](/content/gnews/15/README.md)
+### [科学家们不清楚为何非洲成功的躲过了中共病毒？](/content/gnews/23/README.md)
  ` 澳喜农场`
 
-### [班农的愿景－川普耳边人正在组织一场平民主义革命](/content/gnews/16/README.md)
+### [班农的愿景－川普耳边人正在组织一场平民主义革命](/content/gnews/24/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [班农先生的人格魅力是我们中国人最为缺少的](/content/gnews/17/README.md)
+### [班农先生的人格魅力是我们中国人最为缺少的](/content/gnews/25/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [逞能后又阳痿 ，中共10月为澳洲煤炭清关](/content/gnews/18/README.md)
+### [逞能后又阳痿 ，中共10月为澳洲煤炭清关](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：在中共国做一名合格游戏玩家的标配是入党](/content/gnews/19/README.md)
+### [秘翻在线：在中共国做一名合格游戏玩家的标配是入党](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [喜币涨价根本原因是去掉中心化，不再需要银行和信用卡](/content/gnews/20/README.md)
+### [喜币涨价根本原因是去掉中心化，不再需要银行和信用卡](/content/gnews/28/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [深圳9个月关闭642家炒房中介](/content/gnews/21/README.md)
+### [深圳9个月关闭642家炒房中介](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾参加美国民主峰会 中共疯狂叫嚣“坚决反对”](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [拜登将从战略石油储备中释放5000万桶](/content/gnews/23/README.md)
+### [拜登将从战略石油储备中释放5000万桶](/content/gnews/30/README.md)
  ` wenwu`
 
-### [什么是通胀通缩](/content/gnews/24/README.md)
+### [什么是通胀通缩](/content/gnews/31/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [小球打大球，现如今还能能否撬动中美关系？](/content/gnews/25/README.md)
+### [美国邀请台湾召开民主峰会，孤立中共](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国邀请台湾召开民主峰会，孤立中共](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [香港允许内地居民参与投票](/content/gnews/27/README.md)
+### [香港允许内地居民参与投票](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [人民军队为人民](/content/gnews/28/README.md)
- ` 骄子`
-
-### [联合国解雇“吹哨人”是中共在联合国的恶性影响](/content/gnews/29/README.md)
+### [联合国解雇“吹哨人”是中共在联合国的恶性影响](/content/gnews/34/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共在非洲的信用枯竭](/content/gnews/30/README.md)
- ` 澳喜农场`
-
-### [疫苗每挽救14名儿童就会杀死800人](/content/gnews/31/README.md)
+### [疫苗每挽救14名儿童就会杀死800人](/content/gnews/35/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国教育之乱象：变相引导孩子自杀](/content/gnews/32/README.md)
+### [中共国教育之乱象：变相引导孩子自杀](/content/gnews/36/README.md)
  ` 日本东京方舟农场`
 
-### [监管机构2022年将界定加密货币相关银行活动 加密货币创盘中新高](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [COVID-19 最新情报｜美国爱达荷州病理学博士揭露：“数据显示，疫苗导致患癌机率增加 20 倍”](/content/gnews/34/README.md)
- ` G&#124;News TAIWAN`
-
-### [欧洲疫情升温 美国务院警告勿前往德国丹麦](/content/gnews/35/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [日本大财团企业联合推出新数字货币](/content/gnews/36/README.md)
+### [日本大财团企业联合推出新数字货币](/content/gnews/37/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新证据显示新冠病毒来自于武汉病毒研究所](/content/gnews/37/README.md)
+### [新证据显示新冠病毒来自于武汉病毒研究所](/content/gnews/38/README.md)
  ` 澳喜农场`
 
-### [释放油储杯水车薪 拜登政府缘木求鱼](/content/gnews/38/README.md)
+### [释放油储杯水车薪 拜登政府缘木求鱼](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共借““共同富裕”，收割台湾企业！](/content/gnews/39/README.md)
+### [中共借““共同富裕”，收割台湾企业！](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [学生食堂出现腐烂食材被爆光 中共官方竟然首先开除拍摄者](/content/gnews/40/README.md)
+### [学生食堂出现腐烂食材被爆光 中共官方竟然首先开除拍摄者](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2021年11月5日郭文贵先生18楼家宴直播全文字版](/content/gnews/41/README.md)
- ` 温哥华扬帆农场七哥直播全文听写组`
 
 ### [韩国首例死胎确诊感染中共病毒](/content/gnews/42/README.md)
  ` 首尔天池农场`
