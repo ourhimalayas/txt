@@ -2,34 +2,28 @@
 ---
 
 
-## 企业家挑战卫生官员就疫苗展开辩论但无人接受
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1691523/)
+## 默克尔表示，德国可能从一开始就对中国过于天真了
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1691561/)
 
-**翻译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip51.png)Image by [Steve Kirsch](https://creativecommons.org/licenses/by-sa/3.0/)
-企业家史蒂夫·基尔施（Steve Kirsch）挑战卫生官员就疫苗展开辩论，但无人接受。
+#### 翻译： Steven Hu
 
-以下是专家团队的部分名单，他们对 COVID 疫苗的安全性和/或早期治疗的有效性有共同的看法。我们是传统思维，无论白宫怎么说，我们都遵循数据所说的事实。
+#### 责编：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-687.png)
+路透社柏林 11 月 17 日 – 德国总理默克尔最近对路透表示，德国起初在与中国的某些领域的合作可能很幼稚，却同时表示不应因紧张局势加剧而切断所有联系。在接受采访时她表示：“也许最初我们对趋向于在某些领域的合作伙伴关系的态度太天真了。近来我们通过更密切的观察显示这个观点是正确的。”
 
-并非我们所有人就所有问题都达成一致，因为我们都是不同领域的专家。
+默克尔的接触战略使中国在她执政的16年里成为德国最大的贸易伙伴，并影响了欧洲对这个亚洲崛起的超级大国的立场，尽管人们担心不公平竞争和工业间谍活动。
 
-主流专家认为我们在传播错误信息，但我们没有兴趣这样做，我们只看数据，就会得出不同的结论。我们愿意被说服我们犯了一个错误。但到目前为止，推动主流叙事的人，都不敢就数据实际显示的内容进行科学讨论。我们听到的都是噪音，即使《试验现场新闻》（TrialSiteNews）提议主持辩论时，也没有人出现。
+看守总理默克尔认为德国和欧盟应该继续与中国更为广泛地合作，相互学习，她认为完全脱钩是不对的，对德国不利。
 
-想结束**“**错误信息**”**的最快方法是向我们表明我们错了，为什么没有人愿意这样做？
+虽然中国在 2016 年成为德国最大的贸易伙伴从而在她的任期内推动了德国经济的增长。 但批评人士表示，德国现在过于依赖中国，并在一些诸如侵犯人权等尴尬问题上对北京过于软弱。默克尔辩解说她在对北京进行正式访问时总是处理人权问题——其中不少于 12 次并寻求在亚洲实现贸易多元化。同时德国一直在与北京就知识产权和专利保护进行讨论。她还认为，试图为新技术制定道德标准的西方民主国家必须与创新保持同步，才能掌握其影响。
 
-更多信息，请访问史蒂夫·基尔施的《子锥栈》[https://stevekirsch.substack.com/p/my-team-of-vaccine-safety-experts](https://stevekirsch.substack.com/p/my-team-of-vaccine-safety-experts)
+默克尔表示，国家仍必须保护其关键基础设施，并指出德国一项新的 IT 安全法为下一代电信网络设备制造商设置了很高的障碍，例如中国的华为。
 
-**新闻来源**：[creativedestructionmedia.com][Entrepreneur Steve Kirsch Challenges Health Officials To Debate Over Vaccines But No One Will Accept](https://creativedestructionmedia.com/news/2021/11/23/entrepreneur-steve-kirsch-challenges-health-officials-to-debate-over-vaccines-but-no-one-will-accept/)
+默克尔是在以看守总理的身份，而正在组建的联合政府中一些潜在成员主张对中国采取更强硬的立场情况下发表这些言论的。
 
-* * *
+作为欧盟大国之一的德国总理，一向标榜政治正确的默克尔在釆访中对其任内纵容中共的政策并无真正的反省，仍坚持其一贯的立场，所谓的“天真”之说只是轻描淡写的泛泛之谈！而正是过去三十多年来西方的靖绥政策，才造成了今天中共成为一个危害世界的恶魔！
 
-***审核：文乐
-校对：信心满满
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
-
-
+[原文链接](https://www.reuters.com/world/europe/exclusive-germany-may-have-been-naive-china-first-merkel-says-2021-11-17/)
 
  
 

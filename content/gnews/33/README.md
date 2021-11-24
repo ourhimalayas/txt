@@ -2,52 +2,34 @@
 ---
 
 
-## 香港允许内地居民参与投票
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1691193/)
+## 喜币涨价根本原因是去掉中心化，不再需要银行和信用卡
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1691300/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/112405-1-1.jpg)香港特首林郑月娥。图片：彭博社
-香港（美联社）——香港领导人周二表示，香港当局将在与中国大陆交界处设立投票站，允许居住在那里的香港人在即将举行的立法选举中投票。
+**郭文贵先生：**你能想到未来三十八之后，整个支付系统在全球流通的时候，什么概念？郝海东先生和哈恩同时在两个国家，一个欧洲，一个在韩国。你在北美加拿大，文斌，你也找到同一个商店说，我现在希望你能接受我的喜币，还有喜Dollar，记住不能光说喜美元，人家迪拜这家是既接受币也接受美元。这是个牛叉得不能再牛的事了。
 
-林郑月娥称，在12月19日的立法选举中，居住在大陆的已登记香港永久居民将能够越过边境进入香港，在特别投票站投票。
+找地方就支付的时候，这家说我愿意接受你的支付。那第一步你说，你先在喜美元去开账号——KYC。你只要开了账号了，跟当地政府没有蛋的关系，是吧！你就是上传KYC。你只要有了账号了，你才能接受我的支付。这是什么？我哈恩就可以直接往你那个，文斌找的加拿大的任何卖内裤的、卖饭的，我就可以给你下单买东西，我也可以东弟那块买东西。
 
-林郑月娥在一次例行新闻发布会上说，投票后，他们必须立即返回，不需要在中国大陆接受新冠隔离的措施。
+你们互相就可以买了，这就是什么？就要去中心化。没有第三方，不需要妈咪，不需要信用卡，不需要银行。这个接受得越来越多的时候，这个支付系统，世界就不需要银行了，不需要这个。你们所有的痛苦，都看不到，都没了。这才是喜币要涨价的根本原因。
 
-“目前，仍有一些人滞留在大陆，他们不能回来工作或学习，他们也不能回来香港投票（如果没有这些措施的话），”她说。
+视频制作：小满；
 
-目前，从香港前往中国大陆的人必须接受至少14天的隔离。从中国大陆到香港的旅行者如果没有到过大陆的任何高风险地区，就可以不经任何隔离措施进入香港。
+字幕来源：[2021年11月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1681917/) ；
 
-立法选举是根据被改造后的香港选举法进行的第一次选举，目的在确保只有忠于北京的“爱国者”才能管理这个城市。直接选举的席位数量已经减少，许多立法者将由一个主要是亲北京的委员会来挑选。
+发布：黎明之前；
 
-居住在大陆的香港人被认为更有可能支持亲北京的候选人。这项措施还可以提高选民的投票率，在选举改革之后，人们普遍预计今年的投票率会降低。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-林郑称，希望在特别投票站投票的人必须提前登记。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-“整个投票过程将被置于一个封闭空间中。前往这些特别投票站的选民不能离开投票站区域，他们不能进入社区，”她说。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-另外，林郑称，一个由新冠专家组成的大陆代表团已经访问了香港四天，为可能的边境开放做准备。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-**简评：**
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-被置于中共毒手阴霾下的香港已经在风雨飘摇中度过了两年多，在清理了议会民主派人士之后，香港政府再一次在立法选举层面向中共打开一扇大门。不难想象，地点设在边境，选民居住在大陆的这样一次投票，有多容易被中共操纵。只消适量的假身份、假选票就能将选举结果巧妙地扭向亲共势力一边，2020年的美国大选早已为我们埋下先例。可叹的是，香港民主就这样在全世界众目睽睽之下一步步沦陷，本着良心为香港发声的音量却微乎其微。郭文贵先生早有预言，今日香港之惨剧，将发生在世界所有的主要城市身上。果不其然，自疫苗推行以来，西方闻名遐迩的大城市一个个地遭遇强制令，公民的工作受到威胁，身体不由自己支配，言论自由被言论审查所取代。在这场荒诞剧中逐渐清醒的人们是否能够联想到，如果当时为共享同一份民主自由价值观的香港多出一份力，世界会不会变得和今天有所不同？
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-新闻链接：[Hong Kong to Allow Residents of Mainland to Vote in Election](https://www.newsmax.com/world/globaltalk/hong-kong/2021/11/23/id/1045777/)
-
-***翻译**: 村民彼得潘*
-
-***校对**: 小小妹*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

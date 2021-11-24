@@ -2,50 +2,24 @@
 ---
 
 
-## 日越防长确认在海洋和网络领域合作 应对中共威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1690543/)
+## 台湾受邀首届白宫民主峰会 中共未在名单
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690686/)
 
-作者：东京樱花团—在远方
+撰稿：东京樱花团/皓月当空郭
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-186.png)（图片来源于本文链接）
+（华盛顿24日讯）美国总统拜登12月将召开首届虚拟民主峰会，美国国务院当地时间周二公布与会者名单，共有台湾、英国、德国、立陶宛、日本与印尼等110国和地区受邀，中共国、俄罗斯等威权国家未在名单上。
 
+另据台湾中央社报导，拜登12月9日至10日将召开虚拟领袖民主峰会，邀集国家元首、公民社会、慈善事业与私部门成员谈论民主挑战。首届峰会将聚焦3大主题，包括对抗威权、打击贪腐及促进对人权的尊重。
 
+简评：我们可以看到，虽然美国和中共经济利益关系交往大，但是在民主人权方面，美国政府还是有清晰的认识，美国并没有因为中共经济来往多而忽略台湾，反而此次首届白宫民主峰会邀请台湾，而忽略中共！同时我们看到，世界各个国家的眼睛是雪亮的，能够判断出一个国家是民主还是威权极权独裁，民主的国家始终会得到别人的尊重！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+信息来源：
 
+[美國務院公布：台灣受邀白宮民主峰會　中俄未在名單內](https://tw.appledaily.com/international/20211124/KEEX4IZHPFBL5EE4OL5WYP3WZQ/)
 
-
-11月23日，日本防卫相岸信夫，与到访的越南国防部长潘文江举行了会谈。双方就近期东海和南海局势交换了意见，对中共“依靠实力单方面改变现状的尝试”表达了强烈反对，表示要维持基于法治的国际秩序，开展合作。
-
-岸信夫对本月19日俄罗斯和中共各2 架轰炸机，在日本海和东海长途飞行一事表示，不排除中共与俄罗斯进一步深化军事合作的可能。从安全角度出发，日本将深度关切。
-
-据悉，两国还签署了推进网络安全领域防卫合作的备忘录。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-164.jpg)
-参考链接：
-[日越防长确认在海洋和网络领域开展合作](https://china.kyodonews.net/news/2021/11/51fec1db4558.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：文徬
-编辑：Kathy文艺
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

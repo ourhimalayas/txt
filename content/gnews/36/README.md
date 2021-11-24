@@ -2,50 +2,135 @@
 ---
 
 
-## 中共国教育之乱象：变相引导孩子自杀
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1691164/)
+## 什么是通胀通缩
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1691247/)
 
-#### 作者：日本东京方舟农场 知心姐姐
+[https://gtv.org/video/id=619de677e6900076612f1d38](https://gtv.org/video/id=619de677e6900076612f1d38)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/DA26D6AD-4EA0-4B07-BE34-E0CC7A868EB0.png)（照片来自网络）
+**郭文贵
+Miles Guo**
 
-近日看到一则墙内新闻，上海包玉刚实验学校的学生接受了一份颇有争议的心理调查问卷，被家长们问责。学校所属长宁区教育局很快发出情况通报，并撤回此调查问卷。
+刚才你们做这PPT
+Earlier when you were presenting the PPT
 
-笔者对此进行了搜索，新闻条目不多，估计有黑手已将此事件按下不表，但这背后的影响是细思极恐的。让我们先了解一下这所学校：
+我看到群里在讲，什么叫通胀，什么叫通滞
+I saw that the group was asking what inflation and deflation is
 
-上海市民办包玉刚实验学校建于2007年，是由包氏家族，为纪念包玉刚先生对中国教育的无私奉献以及在香港回归中所起的重要作用，而捐资创建的一所私立双语国际学校。志在将世界先进教育引介到中国，创办一所世界级的优秀学校。
+简单今天可以说
+I’ll explain it by simplifying it today
 
-办学理念：价值观仁、义、平；使命：发展全人教育、传承中华文化、拓展国际视野；
+形容大家最能听得懂的话
+through describing what everyone can understand the most
 
-宗旨培养孩子热爱学习、教授中英文、鼓励独立分析、激发创新联想力、播种社会责任心、增强领导力和团队精神；强调全人教育，注重孩子人生的完整发展，不光是学业优秀，同时也追求学生在人格上、心理上、体格上的均衡发展，以及道德、价值观的优秀。得到全面和充分的发展的孩子，才能面对学业和人生的挑战，以积极的态度迎接挫折和阻碍，做出正确的选择，更愿意为社会和公众服务。
+就是本来这个人
+Let say a person
 
-可以看出学校无论从办学理念、使命、宗旨等都很高大尚，从学校背景上看，估计入学门槛很高，合理推测学生家长也应该是有一定背景或财务自由的人士，所以对此次调查问卷比较敏感，并且达到了问责的目的，也就不意外了。因为此前已有多所学校进行了此问卷调查，并没有报出任何新闻。
+这个经济不行
+says this economy doesn’t work
 
-也许教育局和学校的初衷是好的，是本着关心孩子的心理健康为出发点的，但仔细看看调查问卷的内容却恰恰适得其反！
+但是它错误的用了一招
+but he made a mistake
 
-该问卷共有120余道题目，其中有近40道与自杀相关的问题完全背离了对孩子心理问题的关切。如：“想怎么死”、“自杀行动准备的怎样”、“你确实会尝试自杀吗？”“遗书写没写”等。其中的暗示性、诱导性，简直可以用“触目惊心”四个字来形容！更加让人不可思议的是这样的调查问卷是在家长完全不知情的情况下完成的！
+就打了疫苗
+which was getting vaccinated
 
-网上有媒体采访专业人士指出，此问卷题目涉及“贝克自杀意念量表”（BSS），而这个量表主要是用于心理疾病患者中高自杀风险的自杀可能性评估。换句话说这不是为普通人更不是为未成年的孩子设计的调查问卷！这些问题都是需要在专业医生的指导下完成的！
+还打了5针、10针疫苗
+and took 5 doses, even 10 doses
 
-事发过后，长宁区教育局发了一个官气十足道歉信：除表示诚恳歉意外，表示要进一步调查，并吸取教训、举一反三、严格管理，密切家校沟通，共同守护好学生的身心健康云云。
+由于疫苗打太多，造成眼梗、脑梗、心梗
+because of too many vaccines result in an ocular infarction, cerebral infarction, and myocardial infarction
 
-笔者认为这个事件绝对不是偶然，在中共国的教育体系里，鲜有关注学生心理的内容，即使有些机构开始关注，但无论是学生、家长还是老师以及校方多未予以重视，对学习成绩的关注永远是第一主题。但不关注不等同于没有问题的存在，只从媒体的相关报道上就可以看出未成年孩子的自杀案例层出不穷。
+这就是美国和世界的经济
+and this is the US and the world’s economy
 
-做为家长和校方在教育孩子的问题上，应该更多地关注、发现和引导孩子的兴趣点，而不是一味地关注学习成绩。与中共国的孩子相比，美国的孩子真是活在天堂里，几乎各个孩子都有自己的兴趣爱好，业余时间基本上没见过他们写作业，除了玩儿还是玩儿，那些小脸蛋儿上时时都挂着无邪的纯真的笑容，反观中共国的孩子小小年龄的脸上已然有了些许的成人的愁容。
+形容的很准确吧
+This describing is very accurate, correct?
 
-整个社会价值观的扭曲，使得家长、老师和学校都变得拔苗助长、急功近利，这些情绪是躲不过孩子的感知的，很多敏感的孩子会产生一些心理问题也不出意料。如何彻底解决孩子的心理问题，必须找到根源。寻根溯源，离不开中共这个恶体制已经让中华文化里的精髓消失殆尽，几乎人人都只剩下了两个方向：当官儿和发财。
+就是美国给这个本来
+At first place, the US originally
 
-社会上的这些怪象，浓缩到以上谈的这次事件，可以看出教育管理者严重的不专业和不负责任。对此次问卷波及到的调查对象会产生严重的心理阴影，要知道很多孩子还不懂什么是自杀，这会引起他们的好奇心，去上网自学或相互探讨。当遇到不顺心的事情时，很可能一时冲动就去尝试。
+不应该（打疫苗）的人打了是5针、10针的疫苗
+shouldn’t have people vaccinated but the have taken 5 or even 10 doses already
 
-从笔者目前看到的报道里还没有一篇谈到事件发生之后的应急预案，这绝对不是一两声道歉和写个情况通报，也不是处理几个当事人那么简单，而是应该有心理专业人士对孩子们给予真正的专业介入，消除此次调查的负面情绪，对孩子有专业心理评估之后才算告一段落。
+就造成脑梗、心梗、眼梗
+resulting in cerebral infarction, myocardial infarction, or ocular infarction
 
-中共的毒无处不在，尤其在现在疫情此起彼伏，强迫接打疫苗的情况下，家长们除了关注孩子们的健康、学业之外，更要关注孩子们的心理健康。而这一切的前提就是一点：无论是大人还是孩子千万不要接种疫苗！
+所以美国叫滞胀、通胀、通缩并发
+Therefore, the US is having a concurrency of stagflation, inflation, and deflation
 
-*参考链接：[https://baike.baidu.com/item/%E5%8C%85%E7%8E%89%E5%88%9A%E5%AE%9E%E9%AA%8C%E5%AD%A6%E6%A0%A1/3019481](https://baike.baidu.com/item/%E5%8C%85%E7%8E%89%E5%88%9A%E5%AE%9E%E9%AA%8C%E5%AD%A6%E6%A0%A1/3019481)*
+就是社会的货币M2印的太多导致不流通
+That is because too much money was printed, M2 flooding leads to liquidity problems
+
+为什么呢
+Why?
+
+我想买面包，面包贵了
+I want to buy bread, but the bread turns expensive
+
+结果我不想买房子，房子可能便宜了
+If I don’t want to buy a house, the house may be cheaper
+
+我不想买汽车，可能汽车便宜了
+I don’t want to buy a car, but maybe the car is cheaper
+
+我想买汽车可能汽车贵了
+And when I want to buy a car, maybe the car turns expensive
+
+就完全是非需要和需要产品、生活用品、轻工业用品和重工业产品
+All these non-needed or needed products, daily necessities, light or heavy industrial products,
+
+还有供应链完全是就像你打了疫苗一样
+and the supply chain is exactly like someone who has been COVID-19 vaccinated
+
+到处梗到处阻
+clogging everywhere
+
+它就通胀通缩呀
+it’s inflation or deflation
+
+该给的不给，该要的不要
+What should be given are not given, and what should be taken are not needed
+
+该堵的全堵了
+What should be blocked are all clogged
+
+而且全世界性的
+and it’s worldwide
+
+人类上从来没想像今天全人类并发了一种症
+We have never imagined that all human beings are suffering from one kind of disease today
+
+个人身体叫做疫苗灾难
+For individuals, it’s a vaccine disaster
+
+各种病、各种梗、心包炎、心肌炎
+It has various diseases, various infarctions, pericarditis, myocarditis
+
+经济一模一样
+The economy is exactly the same
+
+简称通胀通缩
+simply called inflation or deflation
 
 * * *
 
-*发布：miumiu*
+Date: 11/20/2021
+原视频标题: 什么是通胀通缩
+What is Inflation And Deflation
+原视频日期：2021/11/19
+原视频链接: [https://gettr.com/post/pheu1l1bb3](https://gettr.com/post/pheu1l1bb3)
+任务编号：KC280（2958）
+视频时间段 : 0:00-1:41
+中听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布：洛杉矶盘古农场 – 恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 堪萨斯州拟立法放宽疫苗宗教豁免
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1690438/)
+## 美军舰依法穿越台湾海峡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1690531/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+作者：东京樱花团—在远方
 
 
 
@@ -13,19 +13,19 @@
 
 
 
-11月22日，堪萨斯州共和党议员采取行动挑战该州的疫苗强制接种政策，并要求州长劳拉·凯利召开特别会议，研究应对中共病毒疫苗强制接种政策的措施，并积极推动雇主接受所有宗教豁免的请求。
+美国第七舰队发表声明，当地时间11月23日，一艘美军导弹驱逐舰依照国际法，穿越了台湾海峡。
 
-凯利在声明中说，“我认为拜登这项指令对堪萨斯州来说不是正确或最有效的解决方案。我们已经制定了适合我们具体需求的系统和战略。”
+该声明重申了美国长期以来的立场，即美军可以在国际法允许的任何地方行动。
 
-当日，堪萨斯州参议院投票批准了相关法案，并禁止私人雇主发布疫苗强制接种的要求。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-10.jpg)
+近日来，中共加大了对台湾的军事压力，引发了美国、日本和欧盟对台海局势的忧虑。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1.2-9.jpg)
 参考链接：
-[Kansas GOP eases religious vaccine exemptions, moves to limit mandates](https://thehill.com/homenews/state-watch/582736-kansas-gop-ease-religious-vaccine-exemptions-move-to-limit-mandates?utm_source=ground.news&amp;utm_medium=referral)
+[美中首脑正式会谈一周后 美军舰首次“依法”穿越台湾海峡](https://www.voachinese.com/a/us-warship-taiwan-strait-20211123/6324186.html)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-总编：文徬
-编辑：木白
+总编：文特
+编辑：Kathy文艺
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**

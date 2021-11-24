@@ -2,32 +2,33 @@
 ---
 
 
-## 劳动力不够，统计局来凑
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1691605/)
+## 有声|欧洲各国上周末爆发反对强制接种疫苗的抗议活动
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1691643/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-64.jpg)
-[图片来源](https://www.cnn.co.jp/world/35170533.html)
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+近日，反对疫情限制措施的抗议活动震撼了欧洲。11月20日、21日，布鲁塞尔、维也纳、罗马和阿姆斯特丹等地爆发了示威活动，反对强制疫苗接种及疫苗护照。
 
-彭博社24日报道称，在中共国2000年代出生的1000多万人被遗漏登记。
+在奥地利进入第四次全国封锁后，近日，维也纳发生了抗议活动。
 
-根据中共国家统计局最近公布的年度统计数据，2000 年至 2010 年间出生的人口估计为 1.725 亿。这比之前的人口普查结果增加了 1160 万。
+在比利时，约35,000人聚集在布鲁塞尔市中心游行。鹿特丹的示威活动持续了数日。
 
-中国的人口普查每10年进行一次，在2010年11月发布的第6次人口普查中，数据显示同期新生儿数量为1.609亿。
+在意大利，大批人群聚集在罗马，反对中共病毒疫苗护照。
 
-对于这多出来的1160万“人口红利”，中共方面的解释是:2010年的人口普查是在11月1日进行的，该年11月和12月的出生人口可能被遗漏在统计中。据悉，统计局还表示:“2011年至2017年的出生率也会被向上调整，因为2010年以后出生的婴儿人数计算存在问题。”
+在克罗地亚，数千人参加了首都萨格勒布的游行，示威反对对工人进行强制性疫苗接种和中共病毒疫苗通行证。
 
-真不知在中共国还有什么可信，中共邪恶体制下，各行各业都得造假。如今，人口统计都出问题了。人口基数是影响政府决策的重中之重啊。在外资企业纷纷撤离之际，是什么让中共国家统计局出面来澄清统计疏漏。这样的错按中共的一惯作风应该是藏着掖着啊。这无非就像一位专横跋扈，行骗多年的老鸨，站在街上吆喝:“你们都别走啊，我楼上还有好多年轻的呢，别走啊。”中共，你的“子宫经济”已行将就木了！
+文字版原文：[欧洲各国上周末爆发反对强制接种疫苗的抗议活动](https://gnews.org/zh-hans/1689335/)
 
-信息源：
-
-[出生届出せなかったか…1000万人余りの人口が大量に発見＝中国](https://news.yahoo.co.jp/articles/bb1b2c397ac2c5e1a11bd7b15589d63c389d3dab)
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
-
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
