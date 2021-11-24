@@ -2,103 +2,32 @@
 ---
 
 
-## 七哥回想1120
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1689819/)
+## 拜登释放5千万桶战略石油平抑物价
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1689863/)
 
-[https://gtv.org/video/id=619cd250e6900076612ecb85](https://gtv.org/video/id=619cd250e6900076612ecb85)
+#### 温哥华扬帆农场 丁过
+![](https://assets.gnews.org/wp-content/uploads/2021/11/148371609137959700_a640x364.jpg)来源：视觉中国
+据红声传媒11月23日报道，由于能源价格大幅上涨同时带动物价走高，美国消费者需要比以往支出更多的生活成本，因此美国总统乔·拜登今天宣布释放5千万桶战略石油储备以平抑物价。
 
-前面的就是小半年到一年的这个认知
-La anterior es la cognición de medio año a un año
+来自福克斯的报告显示，在计划释放的5千万桶原油中，3200万桶进入原油交易系统，此后将用几年时间来回补这部分储备；另外1800万桶国会已经授权政府直接向市场出售。
 
-是班农先生对于消灭共产党, 对中国的文化
-Es el Sr. Bannon de acuerdo a eliminar el Partido Comunista , la cultura china
+拜登政府此举是为了在 2022 年中期选举之前躲避信任危机，但作用相当有限：全世界每天的原油产量近一亿桶，美国每天的原油产量约1250万桶，释放的5千万桶约相当于美国4天的产量，而美国的总战略储备为6.06亿桶，仅能满足美国一个多月的原油需求。
 
-对共产党的邪恶和西方的渗透
-El mal del Partido Comunista y la penetración en el Occidente
+如果在明年的中期选举之前通货膨胀得不到控制，民主党将失去参众两院，拜登就会成为一个摆设，甚至有可能被弹劾下台。这是拜登极力联合中共国、日本释放战略石油储备对抗欧佩克+减产的首要原因。
+![能源战争开始，产油国之间的爱恨情仇！ - 财经资讯(游戏新闻)](https://image.uc.cn/s/wemedia/s/upload/2021/aae07cf1745ea86e606abdf5c14f486a.jpg)来源：游戏新闻
+显然，拜登政府要控制由中共病毒、长期滥发货币和供应短缺等结构性因素造成的全球性通胀，避免美国的输入性通胀，是一项不可能的任务。
 
-都从每一件事上
-Mediante cada asunto
+已经经历长时间低油价之苦的欧佩克+不会放过这次发财的机会，如果不出意外，以俄罗斯和沙特为首的欧佩克为了保护自己的根本利益，将针锋相对地宣布减产以维持油价的上涨趋势，双方的激烈博弈将陆续展开。
 
-包括也体会咱们爆料革命的这种坚持执着
-Incluyendo y viviendo también la perseverancia que tenemos con el Movimiento de Denunciantes
+由于川普大力扶持传统能源产业，将能源自足作为其执政的战略支点，在2019年四季度到2020年第一季度短暂的时间里，美国实现了能源自足，但由于拜登政府对传统能源产业的严厉打压和中共病毒的肆虐，导致美国的油气产能遭到严重破坏，已经很难恢复到2019年底的产量。
 
-然后我们开会的时候
-Cuando estabamos en la reunión
+对于能源价格的飚涨，美国现任能源部长珍妮弗·格兰霍姆道出了原委，她说，为了环境保护，我们需要摆脱石油和天然气以完成清洁能源转型，但我们的过渡将很艰难。当油气价格飚升引起民怨时拜登又呼吁美企多产油气，难怪他的支持率不断走低。参议员克鲁兹批评拜登不惜一切代价强推能源过渡，而美国必须为此经历一场前途未卜的危机。
 
-之前
-Antes de eso
+参考：
 
-包括安全部门的警告吧
-Incluyendo la advertencia del Departamento de Seguridad
+[白宫宣布计划耗尽战略储备的 50 百万桶石油](http://usstock.jrj.com.cn/2021/11/24013833911716.shtml)
 
-有人要杀害呀
-Alguien te matará
-
-要危害呀
-Te lastimará
-
-共产党, 你知道那时候
-Sabes en ese momento, el Partido Comunista
-
-你们从来不知道的
-Ustedes nunca supieron
-
-我最起码一个小时内接到2个3个电话
-Al menos recibía dos a tres llamadas dentro de una hora
-
-莫名其妙的发信息的, 发信息呀
-Enviaban mensajes inexplicablemente
-
-你会死掉的
-Diciendo que morirás
-
-下一步会杀掉你啊
-El siguiente paso es matarte
-
-然后我知道你下一步会走哪条街呀, 是吧
-Luego decían: “sé a qué calle irás a continuación”, cierto
-
-然后把班农你们都会干掉呀
-“Seguidamente los eliminaré a Bannon y a ustedes”
-
-放毒啊
-“Descargando virus”
-
-这些事情都是
-Todas estas cosas son
-
-每时都在发生
-Ocurridas en cada momento
-
-不是每天, 是每时
-No son todos los días sino cada momento
-
-从来没有1秒钟动摇过我们
-Jamás ni un segundo nos hemos movido
-
-最后大家知道皮尔酒店开了那个成功的会
-Finalmente, todos saben que en el Hotel Peel se realizó ese exitoso encuentro
-
-**原视频网址：**[https://gettr.com/post/phlh7b9153](https://gettr.com/post/phlh7b9153)
-
-日期：11/23/2021
-原视频标题：七哥回想1120
-Miles recordando el 20 de noviembre
-原视频日期：11/22/2021
-原视频网址：https://gettr.com/post/phlh7b9153
-任务编号：KC282（2981）
-视频时间段：0:00-0:45
-
-西听校：洛杉矶盘古农场 – 霙霙（文霙）
-翻译：洛杉矶盘古农场 – 小文萱
-翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 –青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[拜登的能源部长刚刚大声说安静的部分，泰德·克鲁兹让她拥有它](https://world.huanqiu.com/article/45EXAuSVXPM)
 
  
 

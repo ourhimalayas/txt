@@ -2,24 +2,47 @@
 ---
 
 
-## 美参议员布莱克本：中共对国际机构的恶意影响力导致吹哨人被解雇
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1690212/)
+## 前研究员和副总裁已经入驻盖特并将分享辉瑞的黑暗秘密
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1690248/)
 
-韩国首尔天池农场
-翻译：zzballack
-上传：追着曙光跑
+![](https://assets.gnews.org/wp-content/uploads/2021/11/001_副本.jpg)
+据[**MILES GUO**](https://gettr.com/user/miles)@Miles[发表于 9:27 上午 · 11月 24日, 2021](https://gettr.com/post/phpeieb9c5)的盖特
 
-据 《福克斯新闻网》 （Fox News）11月23日报道，曾在联合国人权事务高级专员办事处（OHCHR）担任律师的吹哨人、英国-爱尔兰公民艾玛·雷利（Emma Reilly）曾警告她在联合国人权办公室的上司，中共正在获取准备到联合国发言的异议人士信息。她在接受法国第二大报纸《世界报》（Le Monde）采访后不到24小时就被解雇。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-24-at-12.13.17.jpeg)图片来源：原新闻
-当雷利得知联合国人权事务高级专员办事处应中共的要求，将前来瑞士日内瓦参加联合国人权理事会（UNHRC）的异议人士名单交给了中共后，她将这一情况告知了她在联合国的上司。雷利说：“中共在获得异议人士名单后，会对其施压，要求他们不要前往联合国。中共当局会威胁并可能逮捕他们的家人，甚至实施酷刑。在一个案例中，据说有人在被中共拘留期间死亡。”
+1月月23号：这是真的吗？我怎么都找不到他本人的GETTR帐号呢？不会又是一个Q组织设的陷阱吧？
 
-雷利还分享了联合国人力资源副秘书长给她的解雇信，信中说，雷利的罪行包括擅自与福克斯等媒体机构、美国等联合国成员国、联合国驻纽约和日内瓦的代表团、美国国务院和参议院拨款委员会以及欧盟沟通。雷利告诉福克斯：“联合国只是指控我不服从沉默的命令，但没有指控我撒谎。作为一个人，更不用说作为一个人权官员，在看到向上司和政府通报没有任何作用的情况下，我有责任通过媒体告知世界真相。在种族灭绝暴行面前保持沉默就是与压迫者站在一起。”
-
-美国参议员玛莎·布莱克本 (Marsha Blackburn)对此回应说：“中共在联合国内部的恶性影响活动是一个公开秘密，这不断地将中共政权异议人士的生命置于危险之中。国际社会不能再对北京的恶劣侵权行为视而不见，不应因为吹哨人揭露联合国如何帮助中共剥削和虐待维吾尔人而将其解雇。我在今年年初提出了《联合国透明与问责法案》（United Nations Transparency and Accountability Act），以加强美国在联合国的领导地位，并揭露中共罪行。”
-
-[新闻来源](https://www.foxnews.com/world/un-whistleblower-fired-china-blackburn)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/001-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/002-1.jpg)
 
 
+以及[**MILES GUO**](https://gettr.com/user/miles)@Miles[发表于 9:30 上午 · 11月 24日, 2021](https://gettr.com/post/phpbd20e5c)是这个吧？
+
+[**MichaelYeadon**](https://gettr.com/user/michaelyeadon)@MichaelYeadon[发表于 11:30 晚上 · 11月 23日, 2021](https://gettr.com/post/phoz9ue019)
+
+Hello GETTR, Thank you for all of your help and support! It is greatly appreciated. The truth is upon us, only a few more days left until I share the DARK SECRETS of Pfizer. They are trying to seal all documentation from the public until 2076 but I have the files and I will release them to you. I NEED your HELP getting verified, it turns out I need more followers to qualify, so PLEASE SHARE this with everyone you know. It’s about your live, it’s about your CHILDREN’S LIVES![@MichaelYeadon](https://gettr.com/user/MichaelYeadon)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/003-2.jpg)
+根据以上信息，辉瑞公司前研究员和副总裁Michael Yeadon已经入驻盖特[@MichaelYeadon](https://gettr.com/user/MichaelYeadon)，让我们一起关注，让真相传递，让黑暗无处躲藏，因为It’s about your live, it’s about your CHILDREN’S LIVES!——因为这关乎我们和我们子孙后代的生活。
+
+撰稿：喜马拉雅的肉夹馍
+
+审核：喜马拉雅的馍夹肉
+
+校对：Maarago
+
+（文章内容仅代表作者个人观点）
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

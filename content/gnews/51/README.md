@@ -2,38 +2,31 @@
 ---
 
 
-## 欧洲各国上周末爆发反对强制接种疫苗的抗议活动
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1689335/)
+## GTV新闻访谈简报|2021年11月23日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1689359/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，反对疫情限制措施的抗议活动震撼了欧洲。11月20日、21日，布鲁塞尔、维也纳、罗马和阿姆斯特丹等地爆发了示威活动，反对强制疫苗接种及疫苗护照。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-2.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-9.jpeg)
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-24.png)
+文章仅代表作者本人观点，与Gnews无关
 
-在奥地利进入第四次全国封锁后，近日，维也纳发生了抗议活动。
+视频参看：2021.11.23早GTV新闻访谈
 
-在比利时，约35,000人聚集在布鲁塞尔市中心游行。鹿特丹的示威活动持续了数日。
+[https://gtv.org/broadcast/watch/619cec8857529032f659c099](https://gtv.org/broadcast/watch/619cec8857529032f659c099)
 
-在意大利，大批人群聚集在罗马，反对中共病毒疫苗护照。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-在克罗地亚，数千人参加了首都萨格勒布的游行，示威反对对工人进行强制性疫苗接种和中共病毒疫苗通行证。
-
-参考链接：[Protests against Covid rules and lockdowns erupt across Europe](https://www.cnbc.com/2021/11/22/photos-of-anti-covid-protests-in-europe.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
-
-总编：AN
-编辑：AN
-校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-9.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

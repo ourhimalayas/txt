@@ -2,30 +2,33 @@
 ---
 
 
-## 中共无法兑现多国借款，多数国家转向,欲建交台湾、新中国联邦
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1689971/)
+## 联合国人权特别报告员敦促中共无条件释放张展
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1690022/)
 
-作者：新西兰伊甸农场 —亚伦
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月22日，文贵先生盖特直播中爆料，近日中共持续收到兄弟国家发来的照会，要求中共兑现当初答应的借款、贷款承诺。但是，由于当前内外交困的经济现状，中共根本无法兑现承诺。“兄弟国家”们很强硬，指明若中共不能兑现承诺，便将转向与台湾或新中国联邦建交。这是对习总加速师，在“一带一路”座谈会中声称的“实打实、沉甸甸的关系”巨大讽刺。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-18.jpg)
-文贵先生指出，当下，中共面临着严峻的国际形势：全世界80%的国家都是中共的敌人，剩下的国家是冲着中共的钱暂时与中共站在一起的。那些中共的“兄弟国家”，以前威胁中共的“牌”只有台湾，现在多了新中国联邦。
+![中国公民记者张展 (照片来源：无国界记者网站)](https://gdb.voanews.com/D498E340-D840-4E3E-983D-4B16D3F7E3A7_w1023_r1_s.jpg)*人权卫士张展女士（资料照）*
+据美国之音11月24日报道，由联合国任命的独立人权专家们22日敦促中共当局出于人道主义立即无条件释放被监禁的公民记者、人权卫士张展，并向她提供医疗援助。
 
-参考链接：[中共无法兑现多国借款，多数国家转向,欲建交台湾、新中国联邦](https://gnews.org/zh-hans/1685941/)
+现年38岁的张展曾是一名律师，因参加维权活动被注销律师执照。2019年底中共国武汉爆发新冠病毒疫情，张展于2020年2月作为公民记者进入武汉进行实地报道。她通过油管、微信和推特向外界传递了大量有关武汉疫情的视频报道，成为当时反映武汉疫情的主要独立信息来源之一。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+张展在2020年5月被当局抓捕，随后绝食抗议长达一年半。身高1米77的她体重掉到40公斤以下。医生警告说张展有生命危险。2020年12月上海浦东法院以“寻衅滋事罪”判处张展4年徒刑，张展成为中共国因报道武汉疫情而被判刑的首例。张展目前被关押在上海。
 
-总编：文特
-编辑：文特
-校对/发稿：Hetangyuese
+全球维护新闻自由的人权团体无国界记者提名张展获得新闻自由奖，以表彰她的勇气。包括美国政府在内的一些国家政府以及无国界记者组织、人权观察等数十个国际人权组织多次呼吁中共当局立即释放张展。中共国记者只有两条出路，要么昧着良心说假话，要么说了实话进监狱，甚至丢掉生命。中共国也没有真实的新闻，只是传达领导的意思，那些说谎成性的骗子自己都不相信的话。张展，用生命说实话的记者，不应该被中共迫害致死。希望灭共的进程再快一些，多拯救这样的勇士的生命。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+新闻参考链接：[https://www.voachinese.com/a/un-human-rights-experts-urge-chinese-authorities-to-immediately-release-citizen-journalist-zhang-zhan-20211123/6324764.html](https://www.voachinese.com/a/un-human-rights-experts-urge-chinese-authorities-to-immediately-release-citizen-journalist-zhang-zhan-20211123/6324764.html)
+
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

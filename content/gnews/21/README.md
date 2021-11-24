@@ -2,31 +2,33 @@
 ---
 
 
-## 荷兰众院以压倒性票数通过力挺台湾参与国际刑警组织
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1690061/)
+## 班农先生在11·20大直播谈加密货币及喜币
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1690119/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3745251_1_1.jpg)（图片来自网络）
-据台湾新头条11月24日报道，第89届国际刑警组织（INTERPOL）大会11月23日至25日正在土耳其举行。荷兰众议院以149票对1票的压倒性票数通过动议，呼吁荷兰政府与理念相近的国家共同支持台湾参与国际刑警组织。这是荷兰国会继2019年通过支持台湾参与国际组织的历史性动议案后，再次发声力挺台湾参与国际事务。
+作者：纽约香草山 – 晓仙女
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-16-1-1.jpeg)
+2021年11月20日，新中国联邦举办了“11·20”海航王建之死发布会与以及法治基金和法治社会成立三周年纪念日直播，文贵先生和班农先生做为特邀嘉宾参加此次直播！当主持人提问班农先生对喜币的未来有怎样的看法时，班农先生表示：喜币是加密货币的完美例子，未来的发展趋势是对中共政权、华尔街沉重打击。
 
-动议案指出，台湾不仅是荷兰和欧盟的重要商业伙伴，也是打击国际犯罪的盟友。在中共国武力威胁及以各种方式打压台湾国际生存空间下，理念相近国家的相关支持格外重要。对于荷兰政府及国会公开声援，台湾深表感谢。
+因中共病毒影响，众议院通过了一项五万亿美元的支出。这项严重失控的支出，对美元价值储备货币将是毁灭性打击！中央银行、集权政府、跨国利益集团，以及华尔街和伦敦的资本市场与中共深度勾结，法币踏上了毁灭的不归路！
 
-人与人相处，志同道合才能友谊长远。国与国之间也是一样。中共与台湾、与西方民主国家永远不可能有相同的理念，也绝对不可能和平相处。中共越嚣张、越打压台湾，中共在邪恶的道路上就走得越远，最终疯狂无底线地全球释放病毒成为世界公敌。与世界为敌，最终全世界一定会联合起来消灭中共！
+每个公民都有责任为自己家庭的未来考虑！面对法币的贬值，人们希望通过某种方式让财产保值，腐败当权者的肆意妄为加大了人们对加密货币的需求，这也是加密货币未来走强的原因！喜币将成为未来交易中使用的货币，交易的媒介，具有储存价值！
 
-新闻参考链接：[https://newtalk.tw/news/view/2021-11-24/671061](https://newtalk.tw/news/view/2021-11-24/671061)
+参考链接：[https://gettr.com/post/phiixs8e56](https://gettr.com/post/phiixs8e56)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-10.jpg)
+编辑/校对/发稿：文留
 
-编辑：胖丁
+**更多资讯，更多关注**
 
-* * *
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-编辑：【英国伦敦喜庄园编辑部】
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
