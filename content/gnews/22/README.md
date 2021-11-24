@@ -2,32 +2,27 @@
 ---
 
 
-## 喜币是最有价值的加密货币
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1689969/)
+## 已完全接种疫苗的法国总理仍感染新冠病毒
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1690009/)
 
-作者：纽约香草山教育部 – Noemi
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月22日，文贵先生在盖特直播中爆料：喜币的当下市值仅是其真正价值的极少占比。在喜支付、喜贷款的推出和更多大金融机构进场之后，喜币的真实价值才开始体现。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-33.jpg)
-对于喜币来说，最重要的是它的支付和流通系统，这是喜币的核心竞争力之一。其次，喜币采用了最安全的去中心化区块链技术，有效保障了喜币拥有者的持有和使用安全。再者，喜币以20%的黄金储备作为发行之锚，在应对金融风险的稳定性上必将会超越传统法币和其他的加密货币。
+采编：UCool 优酷      编译撰稿：文明(添草灭共)
 
-文贵先生指出，短期内的价格波动和个别砸盘现象依旧会发生，这更体现出了喜币交易市场的真实性。喜币依靠自身优势必将成为全球最具价值的加密货币。长期持有喜币的人才能真正享受到财富的安全与自由。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-60-edited.jpg)图片来源：washingtonpost
 
-参考链接：[喜币是最有价值的加密货币](https://discord.com/channels/872153398588370944/897935909129973803/912390044294184972)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+据【华盛顿邮报】11月22日报道，由于法国总理卡斯特斯当天的“新冠病毒”检测结果呈阳性，而导致曾与其同日会面的比利时总理德克罗及其他几名部长全部进入被隔离状态。
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+卡斯特斯对此表示：他目前只有轻微感染症状，并可在隔离状态下继续工作。据悉，该总理曾因多次与“新冠病毒”感染患者包括其妻女以及总统马克龙等接触后而被数度隔离。此外，他还分别在今年的3月和6月接种了两剂【阿斯利康公司】的“新冠病毒”疫苗，并且在日前的检测中未发现该病毒感染。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+报道称，法国是今年首批执行“新冠病毒”疫苗强制接种政策的欧洲国家之一，其第二剂疫苗接种率已达70%，并超过了许多周边国家。为此，该国政府似乎更有信心应对“新冠病毒”疫情泛滥的风险。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+原文链接：
+https://www.washingtonpost.com/world/europe/french-prime-minister-jean-castex-tests-positive-for-coronavirus/2021/11/22/8c677e16-4bed-11ec-b73b-a00d6e559a6e\_story.html
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

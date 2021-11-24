@@ -2,38 +2,29 @@
 ---
 
 
-## 欧洲各国上周末爆发反对强制接种疫苗的抗议活动
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1689335/)
+## 金融时报：多家顶级资管公司证实将投资加密货币
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1689456/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，反对疫情限制措施的抗议活动震撼了欧洲。11月20日、21日，布鲁塞尔、维也纳、罗马和阿姆斯特丹等地爆发了示威活动，反对强制疫苗接种及疫苗护照。
+#### 温哥华扬帆农场 丁过
+![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_0294.jpeg)来源：State Street
+金融时报11月23日报道，继贝莱德和景顺等大型资产管理公司早前成立加密货币敞口产品机构，并且已经赚得盆满钵满后，富达、瑞银和道富近日相继宣布将进入加密资产投资市场，而且愿意使用一定比例的杠杆或风险敞口。以上5家公司管理的资产规模约为20万亿美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-9.jpeg)
+数据提供商晨星(Morningstar)最近的报告显示，欧洲交易所的加密货币(ETP)资产已超过105亿欧元。但这仅仅是开始，因为更多的高净值客户和为他们服务的基金经理正在关注并积极投资加密资产。
 
-在奥地利进入第四次全国封锁后，近日，维也纳发生了抗议活动。
+数据是最有说服力的，晨星提供的数据显示，在截至10月底前的12个月里，持有加密货币敞口的欧洲ETP和基金的平均回报率为461.7%，它们在3年内实现了116.3%的年化回报率。
 
-在比利时，约35,000人聚集在布鲁塞尔市中心游行。鹿特丹的示威活动持续了数日。
+显然，投资加密货币基金的回报率呈现加速增长态势，原因是长期滥发的主权纸币已经到达快速贬值的关键节点，同时也证明了市场在逐利的同时是最聪明的，任何政府的虚伪宣传都欺骗不了市场。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-351.jpeg)来源：咸蛋超人推特
+当更多的人抛弃纸币转而追捧加密货币时，就会出现一种去伪存真的自我强化趋势，象喜玛拉雅币这种不断得到信用补强的良币，将横扫各种伪劣主权纸币和所谓的加密货币，成为构建未来全球性信用社会的超级货币之王和定海神针。
 
-在意大利，大批人群聚集在罗马，反对中共病毒疫苗护照。
+但是，各种黑暗势力无疑将对喜币进行轮番攻击，即使是比较开明的西方各国政府，在巨大的财政困局面前，可能对加密货币的态度也会反复无常，比如坚决反对市场化加密货币、极力推行国家主权加密货币的布雷德纳刚刚被拜登提名为美联储副主席（差点被提名为主席），或许就是一个不同寻常的信号。
 
-在克罗地亚，数千人参加了首都萨格勒布的游行，示威反对对工人进行强制性疫苗接种和中共病毒疫苗通行证。
+可以预见，面对风暴式的一波又一波腥风血雨，能自始至终坚定持有喜币的人不会是多数，那些看不到全球性货币信用体系必须重新构建，是人心所向是必然趋势的人，和对喜币信心不足、有较强投机心里的人，将先后选择获利离场，从而永远丧失后续不可限量的增值机会。
 
-参考链接：[Protests against Covid rules and lockdowns erupt across Europe](https://www.cnbc.com/2021/11/22/photos-of-anti-covid-protests-in-europe.html)
+参考来源：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+[有更多资产管理公司证实对推出加密货币产品感兴趣](http://www.ftchinese.com/interactive/54340?full=y&amp;gift_id=dd32ed337a36a7b3293f438c9f1f9b4bbc9b1b5d&amp;exclusive)
 
-总编：AN
-编辑：AN
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
