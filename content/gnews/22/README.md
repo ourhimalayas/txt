@@ -2,32 +2,24 @@
 ---
 
 
-## 有声|中共国恶劣天气再现：东北雪台风
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1690583/)
+## 担忧冲击半导体业 意大利总理三度阻挡中资收购案
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690692/)
 
-配音：香草山香港部 – 文凯琳
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据墙内11月21日的气象信息，中共国东北地区今年的第二个“雪台风”正在肆虐中。不仅东北地区将大幅降温、降暴雪，且寒潮将南下，全国大部分地区都将受到此次寒潮的深重影响，八成国土将“速冻”，江浙沪等地一夜之间大风将会使气温降至0度以下，西南等山区如川西高原也会迎来大暴雪。
+撰稿：东京樱花团/上善若水
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-117.jpg)（图片来源于本文链接）
+意大利继今年阻止了两笔中资收购案后，总理马里奥·德拉吉（Mario Draghi）为保护战略性行业，再次否决另一起中资收购案。路透社报导称，中共国浙江晶盛机电股份有限公司发布通告指，该公司试图与半导体设备厂应用材料（Applied Materials）香港公司成立合资公司，收购应用材料在意大利的萤幕印刷设备事业，但遭到意大利政府出手阻挡。两位政府人士告诉路透社，该决定是在11月18日的一次内阁会议上做出，并补充称工业部长乔杰Giancarlo Giorgetti）建议予以否决，认为该笔收购可能会对意大利战略性的半导体行业产生影响。报导称，这间合资公司也打算收购应用材料在新加坡的晶圆设备事业和在中共国的资产。
 
-这是中共国在短短的两周之内的第二次大寒潮，而据气象预测，此次雪台风并不是最后一次，在11月底还会有新一轮的气旋有利于再次形成雪台风。
+意大利保留使用其反收购立法或所谓“黄金权力”的权利，以抵制被认为具有战略意义的行业遭外资收购，例如银行、能源、电信和卫生等。自2012年引入“黄金权力”法案以来，罗马迄今已经5度动用“黄金权力”阻挡外资收购案，其中有4次涉及中共企业。
 
-气象专家称，今年中共国的寒潮比往年更早也更频繁。一些观察人士则认为，其可能带来的灾难范围、程度，受灾百姓的数量，将不会进入官方的统计数据。
+德拉吉上个月阻止中共国企业所有的先正达集团（Syngenta）收购蔬菜种子生产商Verisem。路透社当时称，此举强化了德拉吉保护关键资产遭不受欢迎的外国企业竞购的承诺。路透社指出，意大利政府正在对大量的合并和供应设备交易进行审查。在大多数情况下，这些涉及供应设备的交易通常会被批准，官方同时也会提出旨在维护国家利益的建议。此前，意大利一家中共政府控制的公司于2018年收购了意大利军用无人机制造商Alpi Aviation，而政府于9月就此笔交易进行调查后，正式提出投诉。若之后政府动用“黄金权力”，此交易最终可能会遭到废除。
 
+信息来源：
 
+[担忧冲击半导体业 意大利总理三度阻挡中资收购案](https://www.dw.com/zh/%E6%8B%85%E5%BF%A7%E5%86%B2%E5%87%BB%E5%8D%8A%E5%AF%BC%E4%BD%93%E4%B8%9A-%E6%84%8F%E5%A4%A7%E5%88%A9%E6%80%BB%E7%90%86%E4%B8%89%E5%BA%A6%E9%98%BB%E6%8C%A1%E4%B8%AD%E8%B5%84%E6%94%B6%E8%B4%AD%E6%A1%88/a-59914733)
 
-文字版原文：[中共国恶劣天气再现：东北雪台风](https://gnews.org/zh-hans/1685912/)
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
-
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

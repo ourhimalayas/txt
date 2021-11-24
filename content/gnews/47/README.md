@@ -2,34 +2,37 @@
 ---
 
 
-## CDC 和大药企数据证实：儿童死于疫苗多于死于病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1689972/)
+## 中共为彭帅事件洗地遭国际强烈质疑
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1690122/)
 
-作者：纽约香草山 —飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月21日，汤姆·罗杰斯医生展示了，针对美国疾病预防控制中心和辉瑞等公司公布数据的研究结果。研究表明，根据拜登政府的疫苗注射计划，辉瑞疫苗需要杀死5248名儿童，才能挽救45名死于冠状病毒的儿童。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4-17.jpg)
-罗杰斯医生强调，辉瑞公司没有对5-11岁的儿童进行任何风险收益分析，并且他们在计算某些指标时，为了掩盖疫苗的危害，对一些参数做了修改。
+作者：东京樱花团 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/8CD75D52-66F6-499F-AA37-EFDA76424BF7_w1023_r1_s.png)
+北京时间11月21日，中共喉舌《环球时报》总编胡锡进，在其英文推特上发出网球名将彭帅，当日参加北京青少年网球决赛开幕式的部分照片及视频。这是在全世界对彭帅事件愈发关注之际，中共当局对墙内严密控制消息的同时，却极力向海外发出试图证明彭帅“安好”的表演片段，遭到国际社会强烈质疑！ 有网民讽刺共产党竟然为个人报平安，能在短短几天内就把彭帅培养成演员。
 
-据悉，辉瑞前副总裁迈克尔·耶登博士在本月早些时候揭露，儿童被新冠病毒疫苗杀死的可能性是病毒本身的50倍。
+国际女子网球协会主席赛门表示，中共发出彭帅的视频并不足以证明她的人身自由！彭帅是否能在没有胁迫，或者外力干预下自己做出决定和采取行动，仍是未知数！同时，该协会再次发声，称过去两天中共发出的视像，不能消除对彭帅现状的担忧。
+
+有评论指出，彭帅事件已经变得有爆炸性，冲击了北京的政治圈。而该事件，正是检验中共是否符合举办冬奥会的最好标准。
 
 参考链接：
-1. [CDC 和大药企数据证实：儿童死于疫苗多于死于病毒](https://gettr.com/post/phnpihb2c7)
-2. [CDC 和大药企数据证实：儿童死于疫苗多于死于病毒](https://www.thegatewaypundit.com/2021/11/shockingly-insane-cdc-big-pharma-data-show-save-lives-less-50-children-covid-5000-children-will-die-vaccine/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-
-总编：文特
-编辑：文特
-校对/发稿：Hetangyuese
+1:[https://www.voachinese.com/a/missing-chinese-tennis-star-reappears-in-public-in-beijing-20211121/6321914.html](https://www.voachinese.com/a/missing-chinese-tennis-star-reappears-in-public-in-beijing-20211121/6321914.html) 
+2:[https://www.voachinese.com/a/beijing-olympics-diplomatic-boycott-20211119/6320934.html](https://www.voachinese.com/a/beijing-olympics-diplomatic-boycott-20211119/6320934.html)
+3:[https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E8%8B%B1%E5%9B%BD%E4%B9%9F%E8%80%83%E8%99%91%E5%AF%B9%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E5%A4%96%E4%BA%A4%E6%8A%B5%E5%88%B6/a-59888162](https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E8%8B%B1%E5%9B%BD%E4%B9%9F%E8%80%83%E8%99%91%E5%AF%B9%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E5%A4%96%E4%BA%A4%E6%8A%B5%E5%88%B6/a-59888162) 
+4:[https://world.huanqiu.com/article/45gpbMvOPGb](https://world.huanqiu.com/article/45gpbMvOPGb) 5:[https://www.voachinese.com/a/Calls-to-Boycott-Beijing-Winter-Games-Grow-20211119/6318313.html](https://www.voachinese.com/a/Calls-to-Boycott-Beijing-Winter-Games-Grow-20211119/6318313.html) 6:[https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/al-10252021112409.html](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/al-10252021112409.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-10.jpg)
+编辑/校对/发稿：文留
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

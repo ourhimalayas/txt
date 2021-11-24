@@ -2,35 +2,24 @@
 ---
 
 
-## 有声|犹太法院裁定：儿童接种中共疫苗死亡 相关人员要承担”谋杀”罪名
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1690582/)
+## 台湾受邀首届白宫民主峰会 中共未在名单
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690686/)
 
-配音：香草山香港部 – 文凯琳
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据美国媒体11月21日报道，一个犹太教法庭就“为儿童注射中共疫苗”的议题做出裁决：儿童接种新冠疫苗不应强制，而且，为儿童注射疫苗并导致死亡的人要承担 “谋杀者”的罪名。
+撰稿：东京樱花团/皓月当空郭
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-186.png)（图片来源于本文链接）
+（华盛顿24日讯）美国总统拜登12月将召开首届虚拟民主峰会，美国国务院当地时间周二公布与会者名单，共有台湾、英国、德国、立陶宛、日本与印尼等110国和地区受邀，中共国、俄罗斯等威权国家未在名单上。
 
-该法庭是为调查儿童接种中共疫苗问题专门成立的。在开庭前，法庭听取了数小时的专家证词。根据犹太律例，专家是指了解该疾病的人，这将大多数没有治疗过新冠病毒肺炎病人的医生和卫生官员排除了。
+另据台湾中央社报导，拜登12月9日至10日将召开虚拟领袖民主峰会，邀集国家元首、公民社会、慈善事业与私部门成员谈论民主挑战。首届峰会将聚焦3大主题，包括对抗威权、打击贪腐及促进对人权的尊重。
 
-法庭最终的裁决强调：1.目前的证人都是反疫苗人士。2.由于那些支持给孩子打疫苗的人也是带着一些犹豫的，真正的专家共识还没有形成。3.中共病毒对儿童的健康威胁较弱。4.未打疫苗的孩子对其他人的威胁极小。5.打疫苗引发的严重不良反应已经发生，且没有得到充分报道。
+简评：我们可以看到，虽然美国和中共经济利益关系交往大，但是在民主人权方面，美国政府还是有清晰的认识，美国并没有因为中共经济来往多而忽略台湾，反而此次首届白宫民主峰会邀请台湾，而忽略中共！同时我们看到，世界各个国家的眼睛是雪亮的，能够判断出一个国家是民主还是威权极权独裁，民主的国家始终会得到别人的尊重！
 
-法庭还提出了警告，给孩子接种疫苗并导致死亡的人，不能因为自己听从了专家意见说疫苗是一种保护生命的物质，不是一种致命毒药，而逃避罪责，而是要像杀人凶手一样对这种伤害负责。
+信息来源：
 
+[美國務院公布：台灣受邀白宮民主峰會　中俄未在名單內](https://tw.appledaily.com/international/20211124/KEEX4IZHPFBL5EE4OL5WYP3WZQ/)
 
-
-文字版原文：[犹太法院裁定：儿童接种中共疫苗死亡 相关人员要承担”谋杀”罪名](https://gnews.org/zh-hans/1685914/)
-
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
-
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

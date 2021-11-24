@@ -2,34 +2,41 @@
 ---
 
 
-## 日本要闻汇编 11月24日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690732/)
+## 喜币全球流通和巨大升值空间让迪拜抢先机,接着是全球
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1690857/)
 
-素材：东京樱花团丨GNEWS组
-![](https://lh4.googleusercontent.com/G3peDhkNPvoR0rwETO_ZTy18iAjjK8zOhFRW6Nprj0vf69zYjUdLorU128F59ArX4yXAAcgK3mJMHjIrVX4yoXMui-XbVXkOAK8okgK2T1J-oBAOfVoQmHV5_cgA6e5k4O4zYep5)[*图片来源*](https://www3.nhk.or.jp/nhkworld/upld/thumbnails/zh/news/334127_16225_L.JPG)
-1、[**中俄轰炸机联合巡航 日本防相称是对日示威**](https://www.aboluowang.com/2021/1124/1675323.html)
+**郭文贵先生：**我再给大家重申一遍，很多人不懂一个道理。不谈喜美元，喜美元是什么？它叫法币。它叫跟各国的货币，它叫token，这是连在一起的。但HCN、喜币是在任何国家购买，是不受任何法律监管的。
 
-据中央社今天（24日）报道称，就中俄轰炸机联合巡航，日本防卫大臣岸信夫指是对日示威。岸信夫还说，“拥有强大军事力量的（中俄）两国联合采取的军事行动，被理解为升高各国的忧虑”。此前有报道称，在日本周边，中共和俄罗斯各2架轰炸机19日在日本海和东海上空长途飞行，航空自卫队战机紧急升空应对。18日以后，日方发现中俄驱逐舰等共3艘经对马海峡驶入了东海。防卫省认为中国也与俄罗斯携手、活动趋于频繁，已加强警惕。
+我再重申一遍，全人类没有一个国家有专业的所谓数字货币的律师；没有任何国家有对数字货币监管的法律和制度；没有任何国家机构明确，他是把数字货币的监管部门，从来没有，任何国，只有共产党现在说的要搞数字……数字币法。他跟咱没球蛋的关系，咱也不去。是吧！
 
-2、[**日本首相岸田表示将释放石油储备**](https://china.kyodonews.net/news/2021/11/fc63dfa2df40.html)
+那么这样的话，就是说HCN在各国，币与币之间交流是合法的。只是你把它变换成H-Dollar的时候，你要受当地审批。还有一个你关键交易所，就赵长鹏搞的叫币安，叫什么交易所，交易所属于金融机构，因为你是跟法币连在一起的，你要申请执照。HCN分分钟可以在美国只要任何交易所，随时可以上去，美国任何地方不受任何限制。
 
-日本首相岸田文雄24日在官邸回答记者采访称，为抑制原油价格高涨，将与美国等协调并释放一部分国家储备。日本计划出售国家储备的数天储量，临时增加流通量。这将是首次为压低价格而释放储备。鉴于美国的要求，预计主要消费国中国、英国、韩国和印度也会统一步调。
+再下一步，咱战友之间和有币到币之间互相沟通的时候。就是叶钊颖妹妹在卧室一，给卧室二的海东兄弟“啪”，他俩有账号，先开了喜币账号。我直接就给你发喜币和喜美元。跟他们屁的关系，没任何关系。
 
-3、[**岸田与泰国新加坡首脑举行电话会谈**](https://www3.nhk.or.jp/nhkworld/zh/news/334259/)
+那么这就是迪拜，他看到良机了。迪拜就明白了，哎呦！第一这个币升值，我看定了。第二，我可以接受很多来自全球的客户，直接给我账上打钱。因为最大的问题，有人买房子，往迪拜付钱都是个大问题。你买个两千万美金的房子，哇塞，真的扒你祖宗八辈的坟。你钱哪来的？纳税了没有？资产证明，把你祖宗挖出来。这个直接就过了，就他有了一个通道。
 
-日本首相岸田文雄22日晚间，分别与泰国总理巴育及新加坡总理李显龙举行了就任后的首次电话会谈，并确认与两国加强合作，促进双边关系进一步发展。围绕地区局势问题，在考虑到中共国相关活动的背景下，岸田指出：“日本强烈反对试图单方面改变东海及南海现状的行为。”
+第三个，他知道，迪拜很聪明的，接下来他不但能在喜美元、喜联储做抵押，他也可以在迪拜做金融产品。就你买了我房子，我给你安排贷款。这个事就大了去了，他就宣布了，这事太大了，这件事情，迪拜这件事情的发生，接下来就在全球会发生。
 
-4、[**政府决定下调2021年度国家公务员奖金**](https://china.kyodonews.net/news/2021/11/a5efb75ea8be-2021.html)
+视频制作：撒骄的男宝好性感；
 
-日本政府24日在阁僚会议上，决定采纳人事院的建议，把国家公务员2021年度奖金发放额下调0.15个月。这是连续两年下调。目的是与受新冠疫情扩大而业绩恶化的民间企业水平看齐。
+字幕来源：[2021年11月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1681917/) ；
 
-5、[**东京警视厅等实施联合演习防备直下型地震**](https://www3.nhk.or.jp/nhkworld/zh/news/334127/)
+发布：黎明之前；
 
-为防备首都直下型地震，东京警视厅、自卫队、东京消防厅等9个相关部门21日在封锁首都高速公路的部分路段后，举行了地震发生后消防车等紧急车辆顺利通行的联合演习。21日9时起演习开始，相关部门在东京都内首都高速公路约7公里长的路段实施了封锁。演习预设的情况是首都直下型地震导致高速公路上发生事故，卡车的货物凌乱地散落在路面上。演习中，迅速赶来的警官等将货物搬离，通过目视确认公路上是否出现损伤情况等。在确定安全后，消防车等12辆车辆相继驶向市中心。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-*编辑：东京樱花团 / 文小白*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

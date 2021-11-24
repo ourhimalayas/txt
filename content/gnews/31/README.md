@@ -2,49 +2,32 @@
 ---
 
 
-## 苏格兰政府将疫苗护照的私人数据共享给亚马逊和微软
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1690538/)
+## 有声|中共国恶劣天气再现：东北雪台风
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1690583/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+配音：香草山香港部 – 文凯琳
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据墙内11月21日的气象信息，中共国东北地区今年的第二个“雪台风”正在肆虐中。不仅东北地区将大幅降温、降暴雪，且寒潮将南下，全国大部分地区都将受到此次寒潮的深重影响，八成国土将“速冻”，江浙沪等地一夜之间大风将会使气温降至0度以下，西南等山区如川西高原也会迎来大暴雪。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-23-at-7.44.28-AM-1024x577-1.png)
+这是中共国在短短的两周之内的第二次大寒潮，而据气象预测，此次雪台风并不是最后一次，在11月底还会有新一轮的气旋有利于再次形成雪台风。
+
+气象专家称，今年中共国的寒潮比往年更早也更频繁。一些观察人士则认为，其可能带来的灾难范围、程度，受灾百姓的数量，将不会进入官方的统计数据。
 
 
 
-图片来源：yournews.com
+文字版原文：[中共国恶劣天气再现：东北雪台风](https://gnews.org/zh-hans/1685912/)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-#### 编译：小红帽
-
-**据透露，苏格兰政府已经允许疫苗护照计划的数据与包括亚马逊在内的私人公司共享。**
-
-《每日记录报》报道：“我们了解到，以二维码形式呈现个人医疗信息的NHS手机应用程序与包括亚马逊、微软、ServiceNow、皇家邮政和一家人工智能面部识别公司共享数据。”
-
-报告称，疫苗护照应用程序的用户没有被告知他们的数据将被共享。
-
-隐私倡导者组织“自由”（Liberty）的山姆·格兰特（Sam Grant）警告说：“疫苗护照创造了一个两级社会，苏格兰的许多人已经被迫获得疫苗护照，以便参加活动和进入社会的某些部分。”
-
-格兰特补充说：“令人担忧的是，在这样做的时候，数据已经与第三方共享，而人们无法选择退出，甚至没有被告知这种情况正在发生。这只会加剧人们对疫苗护照的广泛担忧。”
-
-苏格兰自由民主党领袖亚历克斯·科尔·哈米尔顿（Alex Cole-Hamilton）表示 ：“每个人都有医疗隐私的权利；没有人应该向保镖或一系列私人公司提供他们的部分医疗史。这简直是荒谬的。”
-
-另一个隐私倡导者团体“老大哥在看着”（Big Brother Watch）的负责人丝丽·卡罗（Silkie Carlo）周一解释了为什么疫苗护照在苏格兰是完全失败的。
-
-政府数据和同行评审的研究表明，接种疫苗的人和未接种疫苗的人一样有可能传播中共病毒（COVID-19）。
-
-既然如此，实行疫苗护照的理由就被彻底推翻了。
-
-**参考新闻：**[Report: Scottish Government’s Vax Passport Sending People’s Private Data To Amazon, Microsoft – Summit News](https://summit.news/2021/11/23/report-scottish-governments-vax-passport-sending-peoples-private-data-to-amazon-others/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

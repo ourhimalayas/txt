@@ -2,24 +2,50 @@
 ---
 
 
-## 美学校诱导小学生性行为 上海学校诱导小学生自杀
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690482/)
+## 日越防长确认在海洋和网络领域合作 应对中共威胁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1690543/)
 
-撰稿：东京樱花团/ Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-643.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.sjzyzjt.net%2Fuploadfile%2F2021%2F1118%2F20211118062950182.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.cciahzw.com%2Fhtml%2F2021%2Ffangtan_1118%2F18324.html&amp;tbnid=q6CRNGWda9s10M&amp;vet=12ahUKEwj-07rzpbD0AhU_nUsFHRgwCfsQMygOegUIARDVAQ..i&amp;docid=KVa5pY4soD-_4M&amp;w=640&amp;h=329&amp;itg=1&amp;q=%E5%B0%8F%E5%AD%A6%E7%94%9F%E8%87%AA%E6%9D%80%E6%95%99%E8%82%B2&amp;ved=2ahUKEwj-07rzpbD0AhU_nUsFHRgwCfsQMygOegUIARDVAQ)
-据看中国报道美国参议院保守党基金的执行董事瓦奥（Mary Vought）近日在福克斯新闻网撰写观点文章，批评美国公立学校的性教育误导青少年，这方面只有家长才有权决定如何教育自己的孩子。
+作者：东京樱花团—在远方
 
-文章写道，“上次发生性行为时，你或你的伴侣是否使用了安全套？”这是一个弗吉尼亚州公立学区问12岁孩子的问题。
 
-无独有偶近日中共国上海多所小学调查问卷涉及自杀准备情况，整个问卷120多题，其中58—94与自杀相关。问卷中问道“你最近一周希望外力结束自己生命，即有被动自杀愿望的程度如何？（如，希望一直睡下去不再醒来、意外地死去等）”
 
-这是一个什么样的世道，本是培养人才的学校竟搞出这样的乌龙，这不像是偶然的失误，也不像是某些人为的过失，这显然是有意为之。是一张什么样的黑手，染指了医疗，染指了科学，染指了媒体，现在又要把这只黑手伸向不谙世事的娃娃。仿佛一张无名的黑色网络在不断延伸，不断地延伸，伸向向我们生活的方方面面，企图控制一切，企图扼杀一切。这是多么无奈的现实，却又真实存在。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-消息来源：[评论：美公校性教育太离谱 家长应做主(图)](https://m.secretchina.com/news/gb/2021/11/24/990428.html)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+
+11月23日，日本防卫相岸信夫，与到访的越南国防部长潘文江举行了会谈。双方就近期东海和南海局势交换了意见，对中共“依靠实力单方面改变现状的尝试”表达了强烈反对，表示要维持基于法治的国际秩序，开展合作。
+
+岸信夫对本月19日俄罗斯和中共各2 架轰炸机，在日本海和东海长途飞行一事表示，不排除中共与俄罗斯进一步深化军事合作的可能。从安全角度出发，日本将深度关切。
+
+据悉，两国还签署了推进网络安全领域防卫合作的备忘录。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-164.jpg)
+参考链接：
+[日越防长确认在海洋和网络领域开展合作](https://china.kyodonews.net/news/2021/11/51fec1db4558.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：文徬
+编辑：Kathy文艺
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

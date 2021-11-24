@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/24/2021 9:53 AM (UTC)`
+
+11月25日：【共产党的病毒．和邪恶的役苗．成功的传播了极权国家主义】<br/><br/>CCP病毒和对人类的危害是历史以来前所未有的……无数的人命将换来一个非常简单的答案．共产党用蓝金黄．BGY成功的传播极权主义……
+![img](https://media.gettr.com/group22/getter/2021/11/24/09/53/4a9d91c1-17ec-1a8b-c49e-fb6a7d1f3fd7/out.jpg)
+
+---
+
 `@miles 11/24/2021 1:30 AM (UTC)`
 
 是这个吧？
@@ -292,13 +299,6 @@ Golden State of Mind<br/><br/>@gfashion <br/>@DDNYC
 
 11/19/2021 Miles Guo: Any government that approves the purchase of weapons and training for the defense forces of the New Federal State of China is tantamount to recognizing our sovereign status; the world’s best mercenary troops are all our friends, and they can be dispatched to protect our fellow fighters on the ground at any time<br/><br/>11/19/2021 文贵直播：任何一个国家政府批准新中国联邦国防军购买武器和参加培训等同于认可了我们的主权资格；世界上最牛的雇佣军都是咱的人，他们可被随时派去在陆上保护咱战友<br/>
 ![img](https://media.gettr.com/group30/getter/2021/11/20/06/54/3b47845a-40ef-aa30-c658-d7ce8ba7305d/out.jpg)
-
----
-
-`@miles 11/20/2021 6:05 AM (UTC)`
-
-11/19/2021 Miles Guo: Many rich people died of the COVID vaccines, which will change everything in the world; remember, artemisinin works; the COVID vaccine disaster will kill you as well as rip you off; the Chinese people are completely enslaved by CCP’s real estate; everyone should realize the seriousness of the impending disaster caused by the COVID vaccines and collapse of the economy<br/><br/>11/19/2021 文贵直播：很多有钱人都死于疫苗，世界的一切都将被疫苗彻底改变；请记住，青蒿素管用；疫苗灾难既要你的命，又要你的钱；中国人已被中共房地产彻底奴役；大家务必要认识到这场即将到来的疫苗灾难和经济崩溃的严重性<br/>
-![img](https://media.gettr.com/group33/getter/2021/11/20/06/05/8c5c02bf-2119-566c-f386-178354622800/out.jpg)
 
 ---
 

@@ -2,32 +2,49 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月23日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1690150/)
+## 堪萨斯州拟立法放宽疫苗宗教豁免
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1690438/)
 
-作者：香草山翻译部
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-2.jpg)
+作者：纽约香草山教育部 – Naughty(文行)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1123text-SC.png)
-校对：Stay文苑
 
-编辑：Stay文苑
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-发稿：Stay文苑
 
-视频参看：[11.23  晚GTV新闻访谈](https://gtv.org/broadcast/watch/619d954e57529032f65a4aa0)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-10.jpg)
+11月22日，堪萨斯州共和党议员采取行动挑战该州的疫苗强制接种政策，并要求州长劳拉·凯利召开特别会议，研究应对中共病毒疫苗强制接种政策的措施，并积极推动雇主接受所有宗教豁免的请求。
+
+凯利在声明中说，“我认为拜登这项指令对堪萨斯州来说不是正确或最有效的解决方案。我们已经制定了适合我们具体需求的系统和战略。”
+
+当日，堪萨斯州参议院投票批准了相关法案，并禁止私人雇主发布疫苗强制接种的要求。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-10.jpg)
+参考链接：
+[Kansas GOP eases religious vaccine exemptions, moves to limit mandates](https://thehill.com/homenews/state-watch/582736-kansas-gop-ease-religious-vaccine-exemptions-move-to-limit-mandates?utm_source=ground.news&amp;utm_medium=referral)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：文徬
+编辑：木白
+校对/发稿：为真不破20
 
 **更多资讯，更多关注**
 
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 
