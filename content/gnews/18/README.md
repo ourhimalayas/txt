@@ -2,28 +2,33 @@
 ---
 
 
-## 中共因电力短缺 &#8220;亮白旗&#8221;&#8230;&#8230;10月恢复进口澳大利亚煤炭
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690559/)
+## 有声|北京再出强制令：快递、外卖小哥必须全程接种中共病毒疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1690580/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-645.png)[图片来源](https://news.yahoo.co.jp/articles/e51aa12193fbdae7df0a9d4efef58c1b6e300e5d/images/000)
-11月24日日本雅虎网站消息：正面临严重电力短缺的中共国，从澳大利亚进口煤炭用于发电。 这是自两国关系恶化，造成煤炭进口终止11个月来的首次煤炭进口。
+配音：香草山香港部 – 文凯琳
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+当地时间11月20日，北京市疾控中心再次发文，要求本市的快递、外卖配送人员必须全程接种中共病毒疫苗，否则将不得上岗。
 
-香港《明报》今天报道，根据中共国海关总署（海关）的数据，中共国上个月进口了279万吨澳大利亚煤炭。从澳大利亚进口的大部分煤炭用于发电，但其中的77.8万吨是用于炼钢的焦炭。
+据了解，北京自从开展加强针接种工作以来，曾先后多次出台疫苗强制令，针对人群主要是从事底层工作的普通民众。10月下旬，有关部门发文，要求厨师、采购、保洁、保安等行业从业人员必须接种疫苗加强针，否则将不得从事相关工作。
 
-新加坡华文报纸《联合早报》报道称：中共国最近恢复了从澳大利亚进口煤炭，以缓解电力短缺并弥补本国煤炭供应的缺口。
+时隔两周多，市疾控中心再次针对底层人员发出接种强制令，或与加强针接种工作进程缓慢有关。有网友爆料，目前，大多数市民对继续接种中共病毒疫苗所抱有的期待度、热情度都大幅降低，许多接种点都十分冷清。
 
-自从去年4月澳大利亚要求对中共病毒感染源进行国际调查以来，中共国一直对澳大利亚采取全方位的 “报复措施”。限制了多种产品对中国的出口，包括煤炭和澳大利亚牛肉、小麦、葡萄酒和龙虾。虽然没有正式禁止进口，但中共国通过征收高额关税和延迟清关，有效地阻止了一系列澳大利亚产品的进口。但此后，中共国又根据自己的需要恢复了对澳大利亚产品的进口。
 
-中共国在今年4月恢复了对澳大利亚棉花的进口，在6月恢复了对澳大利亚铜的进口。这些也是自去年11月以来的首次进口。
 
-近年，笔者所见是这样的。只要哪个国家对中共提出异议，不管你说的对还是错，中共外交部发言人马上开骂，以至于因此得名“中共战狼”。甚至不管自己能力有多大，先把狠话扔出去、把架子摆出来。本事耗尽，挺不住时，再豁出脸皮吞回喊出去的话。对澳大利亚产品进口的限制，就是典型的例子。
+文字版原文：[北京再出强制令：快递、外卖小哥必须全程接种中共病毒疫苗](https://gnews.org/zh-hans/1685911/)
 
-信息来源：[中国、“電力難”に「白旗あげる」…10月に「オーストラリア産石炭」の輸入を再開 (WoW!Korea) – Yahoo!ニュース](https://news.yahoo.co.jp/articles/e51aa12193fbdae7df0a9d4efef58c1b6e300e5d/images/000)
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

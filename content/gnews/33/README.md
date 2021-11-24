@@ -2,33 +2,24 @@
 ---
 
 
-## 有声|做喜币战士将灭共进行到底
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1690472/)
+## 美学校诱导小学生性行为 上海学校诱导小学生自杀
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690482/)
 
-配音：香草山教育部 – 蒙古鸿雁
+撰稿：东京樱花团/ Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-643.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww.sjzyzjt.net%2Fuploadfile%2F2021%2F1118%2F20211118062950182.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.cciahzw.com%2Fhtml%2F2021%2Ffangtan_1118%2F18324.html&amp;tbnid=q6CRNGWda9s10M&amp;vet=12ahUKEwj-07rzpbD0AhU_nUsFHRgwCfsQMygOegUIARDVAQ..i&amp;docid=KVa5pY4soD-_4M&amp;w=640&amp;h=329&amp;itg=1&amp;q=%E5%B0%8F%E5%AD%A6%E7%94%9F%E8%87%AA%E6%9D%80%E6%95%99%E8%82%B2&amp;ved=2ahUKEwj-07rzpbD0AhU_nUsFHRgwCfsQMygOegUIARDVAQ)
+据看中国报道美国参议院保守党基金的执行董事瓦奥（Mary Vought）近日在福克斯新闻网撰写观点文章，批评美国公立学校的性教育误导青少年，这方面只有家长才有权决定如何教育自己的孩子。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2.png)
+文章写道，“上次发生性行为时，你或你的伴侣是否使用了安全套？”这是一个弗吉尼亚州公立学区问12岁孩子的问题。
 
+无独有偶近日中共国上海多所小学调查问卷涉及自杀准备情况，整个问卷120多题，其中58—94与自杀相关。问卷中问道“你最近一周希望外力结束自己生命，即有被动自杀愿望的程度如何？（如，希望一直睡下去不再醒来、意外地死去等）”
 
+这是一个什么样的世道，本是培养人才的学校竟搞出这样的乌龙，这不像是偶然的失误，也不像是某些人为的过失，这显然是有意为之。是一张什么样的黑手，染指了医疗，染指了科学，染指了媒体，现在又要把这只黑手伸向不谙世事的娃娃。仿佛一张无名的黑色网络在不断延伸，不断地延伸，伸向向我们生活的方方面面，企图控制一切，企图扼杀一切。这是多么无奈的现实，却又真实存在。
 
-1. 23:43*]*在这里输入要转换的内容强身，强心，强脑，开智，明智，开眼。这是加入爆料革命战友四年来每时每刻的经历与体验，经过四年的磨砺，相信很多的战友早已是宠辱不惊，处变不惊。
-2. 23:44*]*喜幣上市16天一路上揚，對於擁有配額的戰友三百多倍回報可喜可見，對財富未來亦是滿滿的憧憬。喜幣才剛剛出生，真正的旺盛期還沒有到來，同時也面臨複雜而殘酷的世界環境，首先CCP還沒有真正的出手，以CCP的邪惡和滲透力絕不會坐視喜幣一帆風順的成長，其次還有那些與CCP勾結的世界黑暗勢力，可謂虎狼環伺，那麼在你為喜幣的漲勢欣喜若狂時，有沒有做好CCP與世界黑暗勢力勾結在一起砸盤喜幣，而導致喜幣狂跌的心理準備呢？
+消息来源：[评论：美公校性教育太离谱 家长应做主(图)](https://m.secretchina.com/news/gb/2021/11/24/990428.html)
 
-
-原文链接：[做喜币战士将灭共进行到底](https://gnews.org/zh-hant/1672333/)
-
-音频处理：喜山必胜Maverick
-
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov.jpg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

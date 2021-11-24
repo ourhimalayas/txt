@@ -2,27 +2,47 @@
 ---
 
 
-## 参议员汤姆·科顿：国际奥委会是CCP代言人，抵制冬奥会
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1690481/)
+## 有声|生命的意义是什么？（第一集）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1690497/)
 
-【简评：】*35*岁的彭帅是中国颇有名气的体育明星，但她在本月初对中国前副总理张高丽提出性侵指控后，在公众视野中消失了近三周。这是中国高级领导人首次受到这样的指控。彭帅的帖子很快就被屏蔽，她的名字也在多个社交平台遭到屏蔽。在一次刻意安排地与国际奥委会的视频通话后，质疑声仍然不断。*IOC*假装彭帅从未提出性侵指控，也没有失踪了两周多。*IOC*的声明使国际奥委会成为中国当局恶意宣传和缺乏对基本人权和正义关注的同谋。希望科顿的提议能得到广泛支持，坚决抵制*2022*北京冬奥会。
+配音：香草山教育部 – 蒙古鸿雁
 
-据《布莱巴特新闻网》记者[IAN HANCHETT](https://www.breitbart.com/author/ian-hanchett/)，2021年11月22日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/0BAFE2CF-CB9F-46E5-BD01-CBFF7C645B93.png)图片来源：Fox News
-在福克斯新闻频道周一播出的《美国新闻编辑室》(America’s Newsroom)节目中，参议员汤姆·科顿 (R-AR) 表示，国际奥委会 (IOC) 在中国网球明星彭帅的案件中扮演着中国共产党的“代言人”角色。并认为美国应该完全抵制2022年冬季奥运会，因为我们无法保证美国参赛者的安全，从“无处不在的电子监控到DNA采集，或者只是人质劫持”。
 
-科顿说(相关言论在2:30左右开始)：“国际奥委会只不过是中国共产党的一个代言人。上周，我呼吁对此次冬奥会进行全面、彻底的抵制，部分原因是，从无处不在的电子监控到DNA采集，或者仅仅是劫持人质，拜登政府无法保证我们的运动员及其教练和工作人员的安全。如果中国共产党带走自己的运动员，然后让他们消失，然后像此次人质视频（彭帅和国际奥委会通话视频）中一样再次让他们出场，他们会对我们的运动员做什么?这是一个对自己人民犯下种族灭绝罪行的政权。我们不应该用奥运会比赛来庆祝或纪念中共国。我们可以重新安排举办此次冬奥会。如果我们现在采取行动，可能有6个欧洲国家可以在2月份举办此次冬奥会。”
 
-原文连接[https://www.breitbart.com/politics/2021/11/22/cotton-the-ioc-is-acting-as-the-ccps-frontman-and-we-cant-ensure-safety-of-olympic-competitors-in-china/](https://www.breitbart.com/politics/2021/11/22/cotton-the-ioc-is-acting-as-the-ccps-frontman-and-we-cant-ensure-safety-of-olympic-competitors-in-china/)
+![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
 
-翻译：洛杉矶盘古农场 – 比格渣餐厅老板の娘
-校对：洛杉矶盘古农场 – Mike Li
-评论：洛杉矶盘古农场 – 比格渣餐厅老板の娘
-编辑：洛杉矶盘古农场 – 柯镇恶
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+**什么是生命？**
+
+你知道你的人生目标吗？你知道如何享受生活吗？你在正确的人生道路上吗？你在生活中寻找的是什么？大多数人从未想过这些问题。现在是审视这些问题的时候了，以便过上有价值和幸福的生活。那么，什么是生命？生命是一个简单的词，但它有非常复杂和全面的含义。让我们从不同的角度，多层次，多维度的举措，多元化的价值观，社会原则和文化协议来探讨生命的意义。
+
+**生命是关于对未知的探索。**
+
+一个年轻健康的人可能会心脏病发作；一个富有的商人可能会在破产后出现焦虑和抑郁；一个著名的歌手可能在某一天失声痛哭；一个NBA球员可能在没有任何预兆的情况下突然死于事故。一切都可以在几秒钟内化为灰烬。没有人知道谁会是下一个受苦或死亡的人。从富人到穷人或从穷人到富人的过渡可以在眨眼间发生。因此，生命的意义在于活在当下，而不是过去，也不是未来，通过无条件地珍惜现在所爱的人。昨天已经过去了，明天是不可预测的，只有今天、现在是真实的。
+
+
+原文链接：[生命的意义是什么？（第一集）](https://gnews.org/zh-hans/1674136/)
+
+
+音频处理：喜山必胜Maverick
+发稿：Daxia
+
+![](https://cdn.discordapp.com/attachments/873743101305430037/904371534930534400/Screen_Shot_2021-10-31_at_10.05.40_PM.png)
+
+**更多資訊，更多關注**
+
+[**紐約香草山農場GTV-香草山之聲**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**紐約香草山農場GTV-MOS TALK 香草山訪談**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**紐約香草山農場Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**紐約香草山農場 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**歡迎加入紐約香草山農場 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 

@@ -2,49 +2,28 @@
 ---
 
 
-## 苏格兰政府将疫苗护照的私人数据共享给亚马逊和微软
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1690538/)
+## 中共因电力短缺 &#8220;亮白旗&#8221;&#8230;&#8230;10月恢复进口澳大利亚煤炭
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690559/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-645.png)[图片来源](https://news.yahoo.co.jp/articles/e51aa12193fbdae7df0a9d4efef58c1b6e300e5d/images/000)
+11月24日日本雅虎网站消息：正面临严重电力短缺的中共国，从澳大利亚进口煤炭用于发电。 这是自两国关系恶化，造成煤炭进口终止11个月来的首次煤炭进口。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-23-at-7.44.28-AM-1024x577-1.png)
+香港《明报》今天报道，根据中共国海关总署（海关）的数据，中共国上个月进口了279万吨澳大利亚煤炭。从澳大利亚进口的大部分煤炭用于发电，但其中的77.8万吨是用于炼钢的焦炭。
 
+新加坡华文报纸《联合早报》报道称：中共国最近恢复了从澳大利亚进口煤炭，以缓解电力短缺并弥补本国煤炭供应的缺口。
 
+自从去年4月澳大利亚要求对中共病毒感染源进行国际调查以来，中共国一直对澳大利亚采取全方位的 “报复措施”。限制了多种产品对中国的出口，包括煤炭和澳大利亚牛肉、小麦、葡萄酒和龙虾。虽然没有正式禁止进口，但中共国通过征收高额关税和延迟清关，有效地阻止了一系列澳大利亚产品的进口。但此后，中共国又根据自己的需要恢复了对澳大利亚产品的进口。
 
-图片来源：yournews.com
+中共国在今年4月恢复了对澳大利亚棉花的进口，在6月恢复了对澳大利亚铜的进口。这些也是自去年11月以来的首次进口。
 
+近年，笔者所见是这样的。只要哪个国家对中共提出异议，不管你说的对还是错，中共外交部发言人马上开骂，以至于因此得名“中共战狼”。甚至不管自己能力有多大，先把狠话扔出去、把架子摆出来。本事耗尽，挺不住时，再豁出脸皮吞回喊出去的话。对澳大利亚产品进口的限制，就是典型的例子。
 
-#### 编译：小红帽
+信息来源：[中国、“電力難”に「白旗あげる」…10月に「オーストラリア産石炭」の輸入を再開 (WoW!Korea) – Yahoo!ニュース](https://news.yahoo.co.jp/articles/e51aa12193fbdae7df0a9d4efef58c1b6e300e5d/images/000)
 
-**据透露，苏格兰政府已经允许疫苗护照计划的数据与包括亚马逊在内的私人公司共享。**
-
-《每日记录报》报道：“我们了解到，以二维码形式呈现个人医疗信息的NHS手机应用程序与包括亚马逊、微软、ServiceNow、皇家邮政和一家人工智能面部识别公司共享数据。”
-
-报告称，疫苗护照应用程序的用户没有被告知他们的数据将被共享。
-
-隐私倡导者组织“自由”（Liberty）的山姆·格兰特（Sam Grant）警告说：“疫苗护照创造了一个两级社会，苏格兰的许多人已经被迫获得疫苗护照，以便参加活动和进入社会的某些部分。”
-
-格兰特补充说：“令人担忧的是，在这样做的时候，数据已经与第三方共享，而人们无法选择退出，甚至没有被告知这种情况正在发生。这只会加剧人们对疫苗护照的广泛担忧。”
-
-苏格兰自由民主党领袖亚历克斯·科尔·哈米尔顿（Alex Cole-Hamilton）表示 ：“每个人都有医疗隐私的权利；没有人应该向保镖或一系列私人公司提供他们的部分医疗史。这简直是荒谬的。”
-
-另一个隐私倡导者团体“老大哥在看着”（Big Brother Watch）的负责人丝丽·卡罗（Silkie Carlo）周一解释了为什么疫苗护照在苏格兰是完全失败的。
-
-政府数据和同行评审的研究表明，接种疫苗的人和未接种疫苗的人一样有可能传播中共病毒（COVID-19）。
-
-既然如此，实行疫苗护照的理由就被彻底推翻了。
-
-**参考新闻：**[Report: Scottish Government’s Vax Passport Sending People’s Private Data To Amazon, Microsoft – Summit News](https://summit.news/2021/11/23/report-scottish-governments-vax-passport-sending-peoples-private-data-to-amazon-others/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

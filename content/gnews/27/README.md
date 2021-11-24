@@ -2,34 +2,50 @@
 ---
 
 
-## “正能量”是个啥？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690504/)
+## 美军舰依法穿越台湾海峡
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1690531/)
 
-撰稿：东京樱花团/tdownc2p
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-641.png)[图片来源](https://baike.baidu.com/item/%E4%BA%94%E4%B8%AA%E4%B8%80%E7%99%BE/18909991?fr=aladdin)
-事情对错有法律，消息真假看事实，而满屏的“正能量”是个啥呢？百度百科这么说：把消息分成正面的和负面的，这个本身和阶级立场是有决定关系的。所有符合社会主义核心价值观的就是“正能量”。于是我明白了，正能量其实就是块遮羞布，哪里需要遮哪里。
+作者：东京樱花团—在远方
 
-它红肿之处，要说艳若桃花，溃烂之时，也美如乳酸，“饥者歌其食，劳者歌其事”，百姓说句心里大实话，那是不行的，造谣惑众，寻衅滋事，泄露机密，直到让你乖乖闭上嘴。
 
-正能量就是文字狱，百姓不服，它们会随时“焚书坑儒”。
 
-正能量是它们不会少食肉糜，而百姓要吃糠咽菜。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-正能量是它们不会为你而变的公正廉洁，而百姓却要为它们鞠躬尽瘁，死而后已。
 
-正能量是它们可以不劳而获，而百姓要忍受劳而不获，并无怨无悔。
 
-正能量是它们可以指鹿为马，谈空说有，而百姓要随波逐流，望梅止渴。
+美国第七舰队发表声明，当地时间11月23日，一艘美军导弹驱逐舰依照国际法，穿越了台湾海峡。
 
-正能量是被强奸蹂躏时，若有呻吟，也必须要悦耳动听。
+该声明重申了美国长期以来的立场，即美军可以在国际法允许的任何地方行动。
 
-正能量是墙外不精彩，炮火连天，民不聊生很残酷，而墙内真安定，官民鱼水，岁月静好太幸福。
+近日来，中共加大了对台湾的军事压力，引发了美国、日本和欧盟对台海局势的忧虑。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1.2-9.jpg)
+参考链接：
+[美中首脑正式会谈一周后 美军舰首次“依法”穿越台湾海峡](https://www.voachinese.com/a/us-warship-taiwan-strait-20211123/6324186.html)
 
-正能量是画皮，是皇帝的新衣，是唱颂歌做舔狗，是尔之饴糖，我之砒霜，呸！我去你的正能量！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-642.png)图片来自网络
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：文特
+编辑：Kathy文艺
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
