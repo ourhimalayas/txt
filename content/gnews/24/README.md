@@ -2,32 +2,21 @@
 ---
 
 
-## 保护战略产业 意大利三度否决中共收购案
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1692249/)
+## 11月24日文贵大直播快讯——中共国GDP在过去三年内下行
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1692268/)
 
-作者：纽约香草山 医疗部 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月18日，意大利政府作出决定，根据2012年制定的《黄金权力法案》，以保护“对国家利益具有重要战略意义的资产”为由，否决具有中共背景的合资公司意图收购“应用材料”公司在意大利的屏幕印刷设备企业的申请案。据了解，该合资公司由中共浙江晶盛机电股份有限公司与半导体设备厂应用材料香港公司共同成立。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-25-上午1.19.01.png)
-上个月，意大利总理德拉吉已经否决了中共企业先正达集团对蔬菜种子生产商Verisem的收购案。而在今年4月，他还否决了中共深圳创疆投资控股公司收购米兰一家半导体设备生产商的申请。
+撰稿：Gradient Boost
 
-另外，对于三年前中共企业试图隐瞒资金来源收购意大利军用无人机制造厂商的案件，相关部门正在调察中。若调查后证实该公司确为中共在背后控制的企业，该收购案也必定被否决。
+视频：benshen
 
-参考链接：[義大利護戰略資產 總理德拉吉三度否決中資收購企業](https://www.cna.com.tw/news/firstnews/202111240005.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+美东当地时间11月24日，文贵先生在大直播中聊北京、深圳及香港交易所。在谈到中共国的经济情况时，文贵先生十分肯定在过去三年中，中共国的GDP只可能是下降而不可能是出于增长状态的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+虽然表面上看股票有所上涨，但其根源就是来自钞票的印发。仅仅今年和去年，中共国就放水四十多万亿。如此的降准和放水，股市的涨幅也就百分之二三十的样子——还有很多资金事实上是没有进入到股票市场当中起效的。
 
-总编：Irene木木
-编辑：文真
-校正/发稿：呼吸的雾霾（文小呼吸）
+人民币的本质是本币，也就是在家自己玩的货币。而美元则是国际流通货币，全世界认可——这是人民币做不到的。在海外的流通的人民币，即非本币，事实上大概只有三万多亿美元。也就是全世界只认这三万亿美元的资产，而现在很可能已经变成两万亿了。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+综合来看墙内老百姓目前面对的经济形势和通胀通缩指数：除了对外贸易出口，通过压榨劳动力赚取的血汗钱之外，其它领域，例如高科技产品、铁矿金属乃至农作物青菜，基本没有任何创造价值的能力。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

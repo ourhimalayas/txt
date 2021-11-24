@@ -2,31 +2,26 @@
 ---
 
 
-## 中共国出生率跌至43年来最低
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1692246/)
+## 国际舆论谴责奥委会主席为中共洗地
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1692247/)
 
-作者：纽约香草山信息部- 诺雅
+作者：纽约香草山文艺部 – 宁文静
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月23日，相关媒体发布报道称，根据最新发布的《中国统计年鉴2021》显示，2020年度，中共国内的全国人口出生率仅为千分之8.52，创下了自1978年以来的新低；而中共国内同期人口的自然增长率只有千分之1.45，同样创下了43年以来的历史新低。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-25-上午1.18.38.png)
-据早先中共的官方数据表明，2020年中共国内的出生人口约为一千两百万人，比2019年减少了18%。另外，2019年全国的死亡人口为998万，数据预计称，2020年的死亡人口数字会维持稳定或上升。
+11月23日的消息显示，为平息舆论，国际奥委会主席托马斯·巴赫于21日与网球选手彭帅进行了30分钟的视频通话。事后，国际对彭帅事件的关注非但没有降低，国际舆论反而强烈地批评巴赫为中共洗地，沦为中共的帮凶。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-25-上午1.18.50.png)
+对此，世界球员协会发表声明称，国际奥委会一直故意限制运动员的言论自由，为了优先考虑与中共的关系，拒绝提及彭帅的性侵指控。同时，球员协会呼吁成立特别代表团与彭帅见面。另有媒体消息评论道， 国际奥委会此次的“静默外交”无非是为了中共进行的“公关特技表演”。 而一直持续为彭帅发声的女子网球协会主席史蒂夫·西蒙在最新的官方声明中表示，仅靠奥委会的这个视频不能够证明彭帅的健康和安全，彭帅的性侵犯指控正在被中共审查和掩盖。
 
-媒体分析表示，短期角度看，人口出生率下降或受疫情影响；而长期角度看，大概率受育龄女性人口和婚育成本的影响。
-
-另据爆料革命战友分析，中共国内的人口下降也跟新冠疫苗的接种政策有关。郭文贵先生在 11月5日和10日的大直播中披露，经中共北京卫生局的战友爆料，中共国内接种过新冠疫苗的女性怀孕生子的畸胎很多，这些孩子会被医院直接处死。
-
-评论人士指出，如果今明两年人口难以增长的话，中共国内的人口负增长将提前至这两年间发生。
+消息中还提到，其他社会各界对国际奥委会的批评直接且犀利，认为奥委会太过无耻，只重利益不讲原则，仍在试图挽救中共的冬奥会，并为此成为专制政府的宣传工具。评论人士声讨称，奥委会的主席应该辞职，并且世界必须抵制中共2022冬奥会。
 
 参考链接：
-1)[中国出生率跌至43年来最低 疫情影响生娃？](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E5%87%BA%E7%94%9F%E7%8E%87%E8%B7%8C%E8%87%B343%E5%B9%B4%E6%9D%A5%E6%9C%80%E4%BD%8E-%E7%96%AB%E6%83%85%E5%BD%B1%E5%93%8D%E7%94%9F%E5%A8%83/a-59908628)
-2)[2021年11月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1644889/)
-3)[2021年11月10日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1656705/)
-4)[https://gettr.com/post/phpnkq666c](https://gettr.com/post/phpnkq666c)
+1)[https://twitter.com/teachjourno/status/1462485736196874246?s=21](https://twitter.com/teachjourno/status/1462485736196874246?s=21)
+2)[World Players: IOC’s call with Peng Shuai exacerbates alarm, special delegation needed](https://www.uniglobalunion.org/news/world-players-iocs-call-peng-shuai-exacerbates-alarm-special-delegation-needed)
+3)[Statement by Steve Simon, WTA Chairman & CEO on recent video posted by China state-run media of Peng Shuai](https://www.wtatennis.com/news/2361225/statement-by-steve-simon-wta-chairman-ceo-on-recent-video-posted-by-china-state-run-media-of-peng-shuai)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-总编：文真
-编辑：AN
+总编：Irene木木
+编辑：Lakeman(文仁)
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
