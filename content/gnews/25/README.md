@@ -2,34 +2,28 @@
 ---
 
 
-## CDC 和大药企数据证实：儿童死于疫苗多于死于病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1689972/)
+## 加拿大安省法院裁定疫苗强制接种合法
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1690021/)
 
-作者：纽约香草山 —飞虹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月21日，汤姆·罗杰斯医生展示了，针对美国疾病预防控制中心和辉瑞等公司公布数据的研究结果。研究表明，根据拜登政府的疫苗注射计划，辉瑞疫苗需要杀死5248名儿童，才能挽救45名死于冠状病毒的儿童。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture4-17.jpg)
-罗杰斯医生强调，辉瑞公司没有对5-11岁的儿童进行任何风险收益分析，并且他们在计算某些指标时，为了掩盖疫苗的危害，对一些参数做了修改。
+原文采编：UCool优酷 编译撰稿：文所未闻
 
-据悉，辉瑞前副总裁迈克尔·耶登博士在本月早些时候揭露，儿童被新冠病毒疫苗杀死的可能性是病毒本身的50倍。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-61-edited.jpg)图片来源：financialpost
 
-参考链接：
-1. [CDC 和大药企数据证实：儿童死于疫苗多于死于病毒](https://gettr.com/post/phnpihb2c7)
-2. [CDC 和大药企数据证实：儿童死于疫苗多于死于病毒](https://www.thegatewaypundit.com/2021/11/shockingly-insane-cdc-big-pharma-data-show-save-lives-less-50-children-covid-5000-children-will-die-vaccine/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+据加拿大《金融邮报》11月23日报道，安大略省法院在11月20日做出裁决，驳回了原告方：【多伦多交通委员会】和【西奈山医院工会】，就保护其未接种“新冠病毒”疫苗成员而提出的“禁止强制接种令”的申请。
 
-总编：文特
-编辑：文特
-校对/发稿：Hetangyuese
+报道指出，原告方以违反《加拿大权利和自由宪章》为主要理由，反对当局正在推行的接种政策。并认为强迫医务工作者注射该疫苗，将使其遭受“不可挽回的伤害”和“巨大的经济损失”。但法院以雇员可以在“接种并继续工作”或“拒绝接种则失业”这两种情况下自行选择为由，驳回了原告方的请求。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+据悉，以上裁决将对今后类似的诉讼案件有指导性作用。但因本案仍可最终上诉至最高法院，所以在此之前，该如何具体执行和操作本次裁决结果，还有待各方进一步的确认。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+原文链接：
+
+[https://financialpost.com/fp-work/ontario-court-deals-another-blow-to-unions-efforts-to-protect-their-unvaccinated-members?utm\_term=Autofeed&utm\_medium=Social&utm\_source=Twitter#Echobox=1637664850](https://financialpost.com/fp-work/ontario-court-deals-another-blow-to-unions-efforts-to-protect-their-unvaccinated-members?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter#Echobox=1637664850)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

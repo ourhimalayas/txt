@@ -2,26 +2,32 @@
 ---
 
 
-## 加拿大卡尔加里加入全球反“疫情极权”集会
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1689893/)
+## 喜币是最有价值的加密货币
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1689969/)
 
-采编：风云小哥     编译撰稿：苦尽甜来 (文来）
+作者：纽约香草山教育部 – Noemi
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月22日，文贵先生在盖特直播中爆料：喜币的当下市值仅是其真正价值的极少占比。在喜支付、喜贷款的推出和更多大金融机构进场之后，喜币的真实价值才开始体现。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-33.jpg)
+对于喜币来说，最重要的是它的支付和流通系统，这是喜币的核心竞争力之一。其次，喜币采用了最安全的去中心化区块链技术，有效保障了喜币拥有者的持有和使用安全。再者，喜币以20%的黄金储备作为发行之锚，在应对金融风险的稳定性上必将会超越传统法币和其他的加密货币。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-57-edited.jpg)图片来源：CTV
+文贵先生指出，短期内的价格波动和个别砸盘现象依旧会发生，这更体现出了喜币交易市场的真实性。喜币依靠自身优势必将成为全球最具价值的加密货币。长期持有喜币的人才能真正享受到财富的安全与自由。
 
+参考链接：[喜币是最有价值的加密货币](https://discord.com/channels/872153398588370944/897935909129973803/912390044294184972)
 
-据加拿大自媒体【反叛新闻】11月22日报道，在世界各地，在卡尔加里，反极权政府的自由集会已将人们团结起来，以对抗当局针对“新冠病毒”疫情所实行的各种意在剥夺基本人权的最新隔离强制措施。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-报道称，这些抗议集会已在全球经持续了一年多，虽然活动的最初目的是为了反对政府实施的各项强制性防疫政策，但随着当局相关法规的严厉度与日俱增，越来越多的人发现其基本人权，特别是自由权利，逐渐被当局剥夺殆尽。
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-据悉，上周末的卡尔加里市，在万众聚集的抗议示威现场，当地诸多的名人政要都发表了旨在反对政府目前推行的“隔离封锁，疫苗护照以及强制接种”等剥夺人民自由的违宪法规。其中，知名牧师帕沃夫斯基还宣布了【加拿大团结运动】倡议，以此号召和唤醒公众共同起来反抗日益极权独裁的统治。
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-原文链接：[https://www.rebelnews.com/worldwide\_freedom\_rally\_continues\_to\_draw\_crowds\_in\_calgary](https://www.rebelnews.com/worldwide_freedom_rally_continues_to_draw_crowds_in_calgary)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

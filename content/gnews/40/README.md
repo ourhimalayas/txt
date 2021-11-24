@@ -2,125 +2,119 @@
 ---
 
 
-## 比特币为什么会消失, 喜币 喜联储为什么这么牛
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1689798/)
+## 澳大利亚领导人在疫苗强制方面既愚蠢又专制, 一个非常糟糕组合
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1689849/)
 
-[https://gtv.org/video/id=619cd1b1e6900076612ecb76](https://gtv.org/video/id=619cd1b1e6900076612ecb76)
+[https://gtv.org/video/id=619cd7dce6900076612eccee](https://gtv.org/video/id=619cd7dce6900076612eccee)
 
-**郭文贵**
-**Miles Guo**
+**Reporter**
+**记者**
 
-他说，你为什么说比特币完蛋，我看了你很多直播
-He said, why did you say that Bitcoin is dead? I watched a lot of your live broadcasts, and you said so a lot
+Do you think at all that your rhetoric around calling people anti-vaxxers,
+你认为你关于称人们为反疫苗者的言论
 
-他说那个原罪，他说所有全世界的犯罪都跟美元有关系
-He said about the original sin, all crimes in the world have something to do with the U.S. dollar
+some of whom were vaccinated,
+其中一些人已经接种了疫苗
 
-那美元就没有了吗？我就笑笑没搭理他
-So there is no original sin in the dollar? I just smiled and ignored him
+has had an impact at all on vaccine take-up in parts of the Territory?
+是否对领土部分地区的疫苗接种产生了任何影响？
 
-就他是个美国所谓的财政部级别的，还有一个我们的CTO也这么认为
-he is at the so-called Treasury level in the United States, and one of our CTO (Chief Technology Officer) also thinks so
+Australia official
+澳大利亚官员
 
-他这个猪脑袋都不是，你知道吧
-He is a no brainer, you know?
+No，I don’t work data
+不，我不研究数据
 
-美国所有的法币参与的，被用作犯罪的是被动的
-All U.S. fiat currencies are involved and used as crimes are passive
+If you are anti mandate,
+如果你反对强制疫苗接种
 
-是我被动的，但是比特币是主动化的，你就是去中心的
-It was passive, but Bitcoin is active, it is decentralized
+you are absolutely anti-vax on what your personal vaccination status is.
+在你的个人疫苗接种状况你绝对也是疫苗反对者
 
-我美元，我有人负责任呐，
-Someone is responsible for the dollar
+If you support campaign, give a green light
+如果你支持抗议，为其开绿灯
 
-而且我是比特币从第一天的1块钱七哥就买了
-And I invested in Bitcoin from day one at one dollar
+give comfort to support anybody who argued against the vaccine,
+安慰支持任何反对疫苗的人
 
-我全程参与了比特币，七哥最早在2018年我就说过
-I participated in the whole process of Bitcoin, Miles had said as early as 2018
+you are an anti Vaxxer absolutely.
+你绝对是一个反疫苗者
 
-比特币的4%的庄家，拥有96%的比特币
-4% of Bitcoin’s banker owns 96% of Bitcoin
+Your personal vaccination status is utterly irrelevant.
+你的个人疫苗接种状态完全无关紧要
 
-全世界谁敢说，它是中共情报，伊朗和美国华尔街培养的洗钱工具
-Who dares to say in the world that it is a money laundering tool cultivated by the Chinese Communist Party’s intelligence, Iran and Wall Street in the United States
+If you campaign against the mandate.
+如果你抗议反对这个强制命令
 
-而且是暗网、深网60%-70%使用的货币
-And it is the currency used by 60%-70% in the dark web and the deep web
+If you campaign against people being vaccinated in vulnerable settings,
+如果你反对在脆弱环境中接种疫苗的人
 
-那么今天我们大家要看到的一个最重要的问题
-So the most important matter that we all want to see today
+teachers in classrooms,
+在教室里的老师
 
-今天看我们自己的喜联储的喜币的时候和法币之间最大的区别是什么，
-What is the biggest difference between our own H-coin of Himalaya Reserve and fiat currency
+I’ll be really clear at that point time people were actually sup-porting
+那时我真的很清楚，人们实际上是支持
 
-法币，你信不信你都得使用, 为什么呀，
-Fiat currency, you have to use it whether you believe it or not, why?
+the idea of a teacher being unvaccinated in a remote community classroom
+教师在偏远社区教室中不用接种疫苗的想法
 
-这叫必须强迫的被动式信任，你信不信你都得用
-This is called passive trust that must be forced. You have to use it whether you believe it or not
+with kids who can’t be vaccinated
+与无法接种疫苗的孩子在一起
 
-但是今天的喜联储牛在哪里，我是什么
-But where is the outstanding point of Himalaya Reserve today, what is it
+I reject that, I still reject it.
+我反对那个想法，我仍然反对它
 
-主动让你自动的信不信取决于你，你不信任，你不要来开户
-The initiative is in your own, believe or not depends on you, if you don’t believe it, don’t open an account
+And if you are out there in any way, shape or form
+如果你以任何方式、状况或形式出现在那里
 
-你不信任，不要买喜币，你不信任，不要去拿喜币去交易
-If you don’t believe it, don’t buy H-Coin, if you don’t believe, don’t trade H-Coin
+campaigning against this mandate that you are absolutely anti-vax.
+反对强制疫苗接种，那么你绝对是反对疫苗者
 
-这就完了，我这个币是跟你法币之间最大的不同，是吧
-That’s it, the biggest difference between H-coin and fiat currency is, right?
+If you say pro persuasion stuffer it, shove it
+如果你想游说我，省省吧
 
-我是完全自动信任，但是美元说你在美国你不用美元你用什么，用人民币
-It’s fully automatic trust, but you don’t use US dollar in the US，what are you going to use? Use RMB？
+we are absolutely going to make sure as many territories as pos-sible are vaccinated
+我们绝对会确保尽可能多的地区接种疫苗
 
-说你滚一边儿，没人要你的，而且必须用美元交易
-Go away, nobody wants yours RMB, and you have to use dollars
+that is our best protection against this thing.
+这是我们对这种病毒最好的保护
 
-那这个支付系统更简单了，你这个商家你愿意我愿意，咱俩就愿意嘛
-Then this payment system is even simpler. If a merchant and the consumer are both willing in the system
+As you look at the dose volumes coming out since
+当你看到自去年以来出现的剂量时
 
-这是双方你情我愿嘛，那你政府监管我什么
-This is the two sides agreement, then what else can your government regulate me?
+they said we’ve doubled dose at 80, remote communities five and up
+我们已经将剂量增加了一倍，为80微克，偏远社区的计量为50微克和更高
 
-告诉我所有资本市场的根本前提下，
-Tell me the fundamental premise of all capital markets
+I think you’ll see our vaccine mandate is absolutely crucial to protecting life,
+我想你会看到我们的疫苗强制对于保护生命绝对至关重要
 
-你情我愿的公平经济活动剩余价值的交换，
-The exchange of the surplus value of fair economic activities under the both agreed condition
+particularly aboriginal life
+特别是原住民的生活
 
-达到物品交换的目的的被政府监管
-being supervised by the government to achieve the purpose of exchange of goods
+and I will never back away for supporting vaccines
+我永远不会因为支持疫苗而退缩
 
-我愿意被你监管呐，你监管我什么？
-am I willing to be supervised by you? what are you supervising me for?
+and anyone out there who comes for the mandate.
+而且任何人反对强制接种
 
-所有其它货币能这样吗？全是你不情我不愿，
-Can all other crypto currencies do this? It’s all you don’t want and I am not willing to do
+You are anti-vax
+你是个反疫苗者
 
-吓唬欺骗，而且没有中心负责任的
-scare and deceive, and there is no central responsible for it
-
-而且没有稳定币的，而且不接受政府监管的，那你就必须被干掉
-And there is no stable currency, and it does not accept government supervi-sion, then it must be taken out
-
-**原视频链接:**[https://gettr.com/post/phiv27450a](https://gettr.com/post/phiv27450a)
+**原视频链接**:[https://twitter.com/justin\_hart/status/1462791892219793414?s=24](https://twitter.com/justin_hart/status/1462791892219793414?s=24)
 
 Date:11/22/2021
-原视频标题: 比特币为什么会消失, 喜币 喜联储为什么这么牛
-Why will Bitcoin disappear, and why H-Coin, Himalaya Reserve is so outstand-ing
-原视频日期：2021/11/19
-原视频链接https://gettr.com/post/phiv27450a
-任务编号：2971
-视频时间段 : 0:00-2:17
+原视频标题: Australia’s leaders are dumb and authoritarian in vaccine mandates. A very bad combo
+澳大利亚领导人在疫苗强制方面既愚蠢又专制, 一个非常糟糕的组合
+原视频日期：2021/11/22
+原视频链接: https://twitter.com/justin\_hart/status/1462791892219793414?s=24
+任务编号：KE347(2983）
+视频时间段 : 0:00-1:37
 
-中听校: 洛杉矶盘古农场 – Layka
+英听校: 洛杉矶盘古农场 – Layka
 翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 -天涯行
-审片: 洛杉矶盘古农场 -银龙
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 –天涯行
+审片：洛杉矶盘古农场 –银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

@@ -2,63 +2,22 @@
 ---
 
 
-## 众议员吉姆·班克斯：中共每年向华盛顿DC智库支付数百万美元
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1690143/)
+## 美参议员布莱克本：中共对国际机构的恶意影响力导致吹哨人被解雇
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1690212/)
 
-众议员吉姆·班克斯： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 每年向华盛顿DC智库支付数百万美元。 我有一项法案，旨在要求国会证人报告其雇主收到的任何外国政府现金。 国会在坦率直观的情况下会工作得更好。 【转axios报道： 第一眼：针对国会证词背后的外国现金】
+韩国首尔天池农场
+翻译：zzballack
+上传：追着曙光跑
 
+据 《福克斯新闻网》 （Fox News）11月23日报道，曾在联合国人权事务高级专员办事处（OHCHR）担任律师的吹哨人、英国-爱尔兰公民艾玛·雷利（Emma Reilly）曾警告她在联合国人权办公室的上司，中共正在获取准备到联合国发言的异议人士信息。她在接受法国第二大报纸《世界报》（Le Monde）采访后不到24小时就被解雇。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-24-at-12.13.17.jpeg)图片来源：原新闻
+当雷利得知联合国人权事务高级专员办事处应中共的要求，将前来瑞士日内瓦参加联合国人权理事会（UNHRC）的异议人士名单交给了中共后，她将这一情况告知了她在联合国的上司。雷利说：“中共在获得异议人士名单后，会对其施压，要求他们不要前往联合国。中共当局会威胁并可能逮捕他们的家人，甚至实施酷刑。在一个案例中，据说有人在被中共拘留期间死亡。”
 
+雷利还分享了联合国人力资源副秘书长给她的解雇信，信中说，雷利的罪行包括擅自与福克斯等媒体机构、美国等联合国成员国、联合国驻纽约和日内瓦的代表团、美国国务院和参议院拨款委员会以及欧盟沟通。雷利告诉福克斯：“联合国只是指控我不服从沉默的命令，但没有指控我撒谎。作为一个人，更不用说作为一个人权官员，在看到向上司和政府通报没有任何作用的情况下，我有责任通过媒体告知世界真相。在种族灭绝暴行面前保持沉默就是与压迫者站在一起。”
 
-> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) pays DC think tanks millions each year. I have a bill that requires Congressional witnesses to report any foreign government cash their employer receives. 
-> 
-> Congress works better with the cards face up on the table.[https://t.co/9pWRKNLI4E](https://t.co/9pWRKNLI4E)
-> — Jim Banks (@RepJimBanks) [November 23, 2021](https://twitter.com/RepJimBanks/status/1463179366288998402?ref_src=twsrc%5Etfw)
+美国参议员玛莎·布莱克本 (Marsha Blackburn)对此回应说：“中共在联合国内部的恶性影响活动是一个公开秘密，这不断地将中共政权异议人士的生命置于危险之中。国际社会不能再对北京的恶劣侵权行为视而不见，不应因为吹哨人揭露联合国如何帮助中共剥削和虐待维吾尔人而将其解雇。我在今年年初提出了《联合国透明与问责法案》（United Nations Transparency and Accountability Act），以加强美国在联合国的领导地位，并揭露中共罪行。”
 
-
-
-参议员玛莎·布莱克本：哦，顺便说一句，如果这14亿人中的任何一个反对 #中共 政府，他们就会被消失。问问 #马云 和 #彭帅。#彭帅在哪里 #WhereIsPengShuai
-【转中共大外宣(陈卫华)的推：他厚颜无耻地谎称 #中共 政府在14亿人中得到80-90%的支持率，比任何美国政府想象的都要高。】
-
-
-
-> Oh, by the way, if any of the 1.4 billion speak out against the Chinese government, they disappear them. Ask Jack Ma and Peng Shuai. [#WhereIsPengShuai](https://twitter.com/hashtag/WhereIsPengShuai?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/f74WYnxBu0](https://t.co/f74WYnxBu0)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 23, 2021](https://twitter.com/MarshaBlackburn/status/1463264558433329153?ref_src=twsrc%5Etfw)
-
-
-
-美前国务卿迈克·蓬佩奥： “政治家的挑战在于拥有梦想一个更美好、更安全的世界的愿景，以及将梦想变为现实的勇气、毅力和耐心。” – 罗纳德·里根总统
-
-
-
-> “The challenge of statesmanship is to have the vision to dream of a better, safer world and the courage, persistence and patience to turn that dream into reality.” – President Ronald Reagan
-> — Mike Pompeo (@mikepompeo) [November 23, 2021](https://twitter.com/mikepompeo/status/1463257403978391553?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·沃尔茨： 那么，首先联合国允许 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 访问其文件，以便他们可以追捕 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 持不同政见者，现在联合国解雇了举报人？ 真令人作呕。拜登政府再次保持沉默。 【转福克斯新闻：布莱克本抨击 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 在世界机构中的“恶意影响力”，联合国举报人因指控中共国犯规而被解雇】
-
-
-
-> So first the UN allows the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) access to its files so they could hunt down Chinese dissidents and now the UN fires the whistleblower? Disgusting. Once again, silence from the Biden admin.[https://t.co/OZnlD7LfxI](https://t.co/OZnlD7LfxI)
-> — Rep. Mike Waltz (@michaelgwaltz) [November 23, 2021](https://twitter.com/michaelgwaltz/status/1463241770507157506?ref_src=twsrc%5Etfw)
-
-
-
-美国国会及行政当局中国委员会： 钟翰林被根据公安法以“分裂国家”和“洗钱”为由判处43个月的长期监禁，尽管在该法律颁布之前解散了他的政治团体，这引起了对国安法用于追溯(过去)的严重担忧。 【转卫报报道：香港活动人士钟翰林因国安法被判入狱 法官以分裂国家和洗钱罪判处20岁的三年零七个月监禁】
-
-
-
-> [#TonyChung](https://twitter.com/hashtag/TonyChung?src=hash&amp;ref_src=twsrc%5Etfw)’s sentence to lengthy 43 month prison term for “secession” and “money laundering” under [#NationalSecurityLaw](https://twitter.com/hashtag/NationalSecurityLaw?src=hash&amp;ref_src=twsrc%5Etfw), despite disbanding his political group before the law’s enactment, raises serious concerns over retroactive application of NSL. [https://t.co/VYc7vlwkGY](https://t.co/VYc7vlwkGY)
-> — China Commission (@CECCgov) [November 23, 2021](https://twitter.com/CECCgov/status/1463234167563558915?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿迈克·蓬佩奥： 世界不能因为其持续不断地侵犯人权行为而奖励 [#习近平](https://twitter.com/hashtag/%E4%B9%A0%E8%BF%91%E5%B9%B3?src=hashtag_click) 和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)。 [#抵制北京奥运会](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A?src=hashtag_click) 【转纽约邮报：拜登应该抵制北京奥运会的六大理由】
-
-
-
-> The world cannot reward Xi Jinping and the CCP for their ongoing human rights violations. [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/93MpAHpUsu](https://t.co/93MpAHpUsu)
-> — Mike Pompeo (@mikepompeo) [November 23, 2021](https://twitter.com/mikepompeo/status/1463188658396274696?ref_src=twsrc%5Etfw)
+[新闻来源](https://www.foxnews.com/world/un-whistleblower-fired-china-blackburn)
 
 
 
