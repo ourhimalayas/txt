@@ -2,31 +2,22 @@
 ---
 
 
-## 有声|日本将拨款52亿美元资助台积电和其他芯片制造商
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1691675/)
+## 爆料革命战友要团结！未来只有抱团生存
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1691728/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-据日经新闻11月23日报道，日本将从其2021财年补充预算中拨款约6000亿日元（52亿美元），以支持包括世界第一大合约芯片制造商台湾积体电路制造有限公司（台积电）在内的先进半导体制造商。
+文编：东京樱花团/樱花传媒
 
-作为刺激计划的一部分，日本政府将投资约4000亿日元给台积电在日本西南部熊本县设立的新工厂。
+视频:东京樱花团/中文小视频组
 
-报道称，剩余的2000亿日元将用于建立其他工厂，正在考虑中的项目包括美国内存芯片制造商美光科技公司和日本的铠侠控股株式会社（Japan’s Kioxia Holdings）。
+11月7日，郭文贵先生在GTV大直播指出：
 
-日本的芯片制造行业的规模在20世纪80年代为世界之最，尽管其一直在努力保持其竞争优势，但在过去30年里仍持续下降，而与此同时，台湾制造商等竞争对手则获得了发展。
+目前我们正处在危难之中。在这场空前的病毒和疫苗的大灾难中，任何财富都不能拯救你。只有新中国联邦能告诉你真相并且牵着你走出黑暗，失去了新中国联邦你将永远在黑暗中徘徊。所以说爆料革命的战友是最幸运的一群人，要团结起来抱团生存！
 
-文字版原文：[日本将拨款52亿美元资助台积电和其他芯片制造商](https://gnews.org/zh-hans/1689658/)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-4.png)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

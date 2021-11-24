@@ -2,42 +2,37 @@
 ---
 
 
-## 澳洲税局不信加密货币投资者会自己保存交易记录
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1691515/)
+## 中共10个月发了6.49万亿元地方债
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1691552/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/bitcoin-tax-image.jpg)
+撰稿：东京樱花团/peterwong
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-119.jpg)
+[图片来源](http://www.acnw.com.au/article-22320-1.html)
 
-图片来源：www.chiangraitimes.com
+中共财政部23日数据显示，2021年10月，全国发行地方政府债券8761亿元。其中，发行一般债券2320亿元，发行专项债券6441亿元；按用途划分，发行新增债券6145亿元，发行再融资债券2616亿元。
 
+数据显示，2021年1至10月，全国发行地方政府债券64916亿元。其中，发行一般债券24705亿元，发行专项债券40211亿元；按用途划分，发行新增债券36625亿元，发行再融资债券28291亿元。
 
-#### 编译：小红帽
+经第十三届全国人民代表大会第四次会议审议批准，2021年全国地方政府债务限额为332774.3亿元，其中一般债务限额151089.22亿元，专项债务限额181685.08亿元。
 
-随着首次投资者继续热衷于加密货币，澳大利亚税务局（ATO）表示，不能再依靠纳税人独立应对所得税、资本收益和区块链记录的复杂世界。
+截至2021年10月末，全国地方政府债务余额296549亿元，控制在全国人大批准的限额之内。其中，一般债务137549亿元，专项债务159000亿元；政府债券294802亿元，非政府债券形式存量政府债务1747亿元。
 
-澳大利亚在加密货币采用方面处于世界领先地位，Finder数据显示，10月份有近18%的人口拥有比特币、以太坊或卡尔达诺等加密货币的股份，高于3月份的13%。
+截至2021年10月末，地方政府债券剩余平均年限7.7年，其中一般债券6.4年，专项债券8.8年；平均利率3.51%，其中一般债券3.51%，专项债券3.51%。
 
-**澳大利亚税务局表示，加密货币的广泛采用伴随着独特的税收义务，因为根据澳大利亚法律，加密货币投资的利润需要缴纳资本利得税（CGT）。**
+财政部有关负责人表示，截至10月末，全国地方政府新增债券发行35130亿元，其中专项债券27578亿元，发行进度为76%，今年以来，地方债发行整体呈现前慢后快的节奏。业内指出，在财政部“新增专项债尽量在11月底前发行完”的要求下，专项债发行将在本月迎来高峰，并将以更大力度聚焦重点领域及重大项目建设。
 
-周二在悉尼举行的国际税收管理会议上，澳大利亚税务局专员克里斯·乔丹(Chris Jordan)表示，许多新移民无法自行解析这些要求。
+# 消息来源:
 
-**“在一个拥有新投资者的快速增长行业中，我们不能依靠纳税人自己保留投资收入和资本收益的记录，并把这些记录披露在他们的纳税申报中。”乔丹表示。**
+##### [前10月我国发行地方债6.49万亿元](https://finance.sina.com.cn/tech/2021-11-24/doc-iktzscyy7422164.shtml)
 
-“相反，澳大利亚税务局已经转向交易所和经纪人来获取这些数据，允许政府机构在2020-2021财政年度预先填写8950万条数据。”
+##### [2021年10月地方政府债券发行和债务余额情况](http://yss.mof.gov.cn/zhuantilanmu/dfzgl/sjtj/202111/t20211123_3767948.htm)
 
-**参考新闻：**[Australian cryptocurrency investors can’t be trusted to keep transaction records themselves, the ATO says (msn.com)](https://www.msn.com/en-au/money/news/australian-cryptocurrency-investors-can-t-be-trusted-to-keep-transaction-records-themselves-the-ato-says/ar-AAR40Zx?ocid=msedgdhp&amp;pc=U531)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
 
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

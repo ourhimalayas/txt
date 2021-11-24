@@ -2,48 +2,39 @@
 ---
 
 
-## 日越防长确认在海洋和网络领域合作 应对中共威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1690543/)
+## 共和党人修改各州法律对抗联邦疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1690318/)
 
-作者：东京樱花团—在远方
+作者： 加拿大扬帆农场 – Spirit
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据媒体11月22 日的报道，美国各州的共和党立法者正在坚决对抗拜登政府的新冠疫苗强制令。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-15.jpg)
+消息显示，堪萨斯州立法机构中占主导地位的共和党人表示，应该给该州工作者以自由去规避强制新冠疫苗政策。为此，堪萨斯州已经暂停执行之前职业安全与健康管理局推行的临时紧急标准。
 
+同时，爱荷华州也通过了一项新法律，当中扩大了个人拒绝接种疫苗，但仍能保留工作或是获得失业福利的权利。
 
+而佛罗里达州的立法者则是通过了一项法案，要求企业如若不向其雇员提供一些疫苗豁免，将对企业的每项违规行为罚款1万美元。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+至于怀俄明州，该州州长已经签署了特别会议期间编写的20项法案中的一项，即提供400万美元的资金以挑战联邦的强制新冠疫苗令。
 
+迄今为止，佛罗里达州、爱荷华州、肯塔基州、田纳西州、怀俄明州和北达科他州的保守派立法者已经完成了针对新冠疫苗强制令的特别会议，并通过了旨在使联邦新冠疫苗强制令无效的法案。
 
-
-11月23日，日本防卫相岸信夫，与到访的越南国防部长潘文江举行了会谈。双方就近期东海和南海局势交换了意见，对中共“依靠实力单方面改变现状的尝试”表达了强烈反对，表示要维持基于法治的国际秩序，开展合作。
-
-岸信夫对本月19日俄罗斯和中共各2 架轰炸机，在日本海和东海长途飞行一事表示，不排除中共与俄罗斯进一步深化军事合作的可能。从安全角度出发，日本将深度关切。
-
-据悉，两国还签署了推进网络安全领域防卫合作的备忘录。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-164.jpg)
 参考链接：
-[日越防长确认在海洋和网络领域开展合作](https://china.kyodonews.net/news/2021/11/51fec1db4558.html)
+[Republicans are changing state laws to try to get out of federal vaccine mandates](https://www.npr.org/2021/11/22/1057427047/republicans-are-changing-state-laws-to-try-and-get-out-of-federal-vaccine-mandat)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-总编：文徬
-编辑：Kathy文艺
-校对/发稿：为真不破20
+总编：文特
+编辑：Ivy001
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

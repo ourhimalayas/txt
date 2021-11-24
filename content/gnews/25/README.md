@@ -2,44 +2,62 @@
 ---
 
 
-## 为何总是容忍左派暴动？而右翼的自卫却被视为“种族主义”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1691446/)
+## 爆炸消息：60岁以下接种成年人死亡率是未接种的两倍
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1691499/)
 
 **编译：Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip50.png)
+英国政府报告机构国家统计局 (ONS) 公布的新数据显示，60 岁以下“完全接种”的英国成年人的死亡率，是未接种疫苗的成年人的两倍。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip49.png)
+亚历克斯·贝伦森（Alex Berenson）在子堆栈（Substack） 上发布了一张图表，显示了两组之间的差异。未接种疫苗的死亡人数实际上随着时间的推移而减少，但完全接种疫苗的死亡人数正在上升。
 
-在川普竞选总统之前，他从未被称为种族主义者，或白人至上主义者，因为他不是。 然而，**左派的大众媒体立即开始给他打上这样的标签，**如果他以某种方式取得胜利，就会制造一场虚假的种族战争和动荡。在川普获胜后的几年里，**美国目睹了 “按体罚”(Antifa)和黑命贵(Black Lives Matter)的抗议活动，这些抗议活动是真正全面的骚乱，几乎在每个大都市都发生过，几乎没有人因袭击、纵火、入室盗窃、破坏财产甚至谋杀而被捕。**大众媒体将所有这一切称为“和平抗议”，即使在现场报道中的新闻播音员身后是一片混乱。
+来自 ONS 的原始数据集，清楚地向任何愿意诚实看待它的人展示了这一点——因为我们都知道，主流媒体永远不会报道它。
 
-现在，我们正在目睹美国爱国者为这些左翼暴徒辩护，并因袭击和谋杀而受到指控。 **如果你碰巧是白人，那么你会自动被贴上种族主义者**、**白人至上主义者的标签**，即使暴力对抗只发生在白人之间。
+“我自己检查了基础数据集，这张图是正确的，” 贝伦森写道。“**60 岁以下接种疫苗的人死亡的可能性是未接种疫苗的人的两倍。英国的总体死亡人数远高于正常水平。”**
 
-国内恐怖分子因里顿豪斯被判无罪而在波特兰袭击警察，会不会像 1 月 6 日所谓的“叛乱分子”一样被关押，不得保释？
+“除了疫苗引起的死亡率，我不知道如何解释这一点，”他补充道。
 
-凯尔·里顿豪斯 (Kyle Rittenhouse) 是一名 17 岁的白人男性，他不是种族主义者或白人至上主义者，他只是为自己免受多名袭击者的攻击而辩护，被指控犯有多项罪行，包括谋杀。他的所有指控都被判无罪，大众媒体继续假装他有罪，称他为凶手，并继续散布关于凯尔是白人至上主义者的谎言。一切都与枪支管制有关，**任何拥有枪支的人都知道左派（共产主义拜登政权）想拿下他们，所有人，而且很快。**
+由于 mRNA 疫苗，心脏问题急剧上升
 
-这次审判和无罪释放的抗议者（以及其他类似的人）是否由阴险的共产主义者乔治·索罗斯付钱在地铁城市的街道上骚乱，袭击警察，烧毁东西？好吧，我们可能永远不会知道。尽管如此，**大众媒体仍将这种暴力美化为正义和适当的**，并捍卫黑人，或惩罚（假）“法西斯分子”并拿走他们的枪。
+这些疫苗疯狂地杀死人的原因之一是，**它们破坏了细胞组织，尤其是心脏内和周围的细胞组织。**
 
-1月6日，在总统选举被假选票和被操纵的投票机盗窃后，许多美国爱国者在华盛顿警察的指挥下和平地走进首都大楼（并以联邦调查局为首实施暴力），**随后被以“国内恐怖分子”的名义逮捕。**”说他们密谋推翻即将到来的拜登政权。**他们今天仍然在监狱里，受苦受虐待，没有保释，没有审判，没有权利。**这都是由于右翼的和平抗议。
+贝伦森指出，在这方面，mRNA疫苗尤其令人反感。**注射几个月后，一个人患心脏病或其他严重冠状动脉疾病的风险会增加一倍以上。**
 
-波特兰的国内恐怖分子可以自由地继续试图活活烧死那里的警察
+“接种疫苗后，患者出现严重问题的风险为四分之一，而之前为九分之一，”贝伦森写道。
 
-在波特兰，左翼极端分子向警察投掷燃烧瓶，试图将他们活活烧死，这就是所谓的和平抗议。就在两个月前，暴力骚乱者占领了波特兰市，以回应大陪审团的审判结果（关于布伦娜·泰勒的死），他们认为陪审团站错了一边。**国内恐怖分子向与犯罪无关的黑人、白人和西班牙裔警察开火，并向他们投掷致命的弹丸和燃烧弹。**这主要是（如果不是全部）精心策划的骚乱，以使整个国家看起来都处于种族战争之中，但事实并非如此。
+听起来有点熟？接种疫苗与未接种疫苗相比，死亡风险增加一倍也适用于心脏问题。似乎接种是一种快速简便的方法，**可以快速追踪一个人过早死亡的风险**。
 
-美国大众媒体“全力以赴”，通过两极分化的观点来分裂这个国家，**并且只对他们选择的新闻进行加剧、扭曲和耸人听闻**。这就是为什么它们被称为“假新闻”，而且看不到尽头。请继续关注任何其他涉及枪支的审判，在这些审判中，白人将因谋杀而受到指责，而白人至上肯定会成为主题， 顺便说一下，**据称开着他的 SUV 穿过一群和平抗议者，包括祖母在内的逆向种族主义者**，目前已被保释。为什么？
+在最近举行的美国心脏协会 (AHA) 年会上，内布拉斯加州医生兼退休心脏外科医生 史蒂文·冈德里（Steven Gundry）博士介绍了一项研究，表明注射后心脏问题的风险大大增加。
 
-**点评：对邪恶的容忍就是对邪恶的放纵！我们的世界已经完全被邪恶势力控制的媒体操纵着！**
+他解释说，**这些注射大大增加了内皮炎症标志物**。根据这些标记，患者会被分配一个评分，该评分对他或她在未来五年内发展为急性冠状动脉综合症的可能性进行排名。
 
-文章信息来源：
-[TheGatewayPundit.com](https://www.thegatewaypundit.com/2021/11/riot-declared-portland-domestic-terrorists-throw-explosives-police-rittenhouse-verdict/)
-[ZeroHedge.com](https://www.zerohedge.com/political/rittenhouse-acquitted-all-charges)
-[NaturalNews.com](https://www.naturalnews.com/2020-09-25-antifa-throws-molotov-cocktails-at-police-in-portland.html)
+“急性冠状动脉综合症是一个术语，用于描述与心脏血流量突然减少的一系列相关疾病，”梅奥诊所解释了这一分类。
 
-**新闻来源**：[newstarget.com][Why are LEFTIST riots always tolerated? Violence from the Left is “good” but self-defense from the Right is deemed “racist”](https://www.newstarget.com/2021-11-22-violence-from-the-left-is-good-self-defense-from-the-right-deemed-racist.html)
+“**其中一种情况是心脏病发作（心肌梗塞**）——当细胞死亡导致心脏组织受损或破坏时。”
+
+在冈德里自己的患者中，他观察到急性冠状动脉综合征量表的风险从 11% 增加到 25%。他说，这种增加在患者接受第二剂后持续了至少 2.5 个月。
+
+“我们得出结论，mRNA [疫苗] 会显著增加心肌的内皮炎症和 T 细胞浸润，这可能是疫苗接种后血栓形成、心肌病和其他血管事件增加的原因，”他解释说。
+
+“很明显，在本研究中显示的急性冠状动脉综合症风险加倍，与你昨天在帖子中讨论的显示英格兰整体死亡人数加倍的数据图表之间，**存在着令人不寒而栗的同步性**，”一位评论者的两篇文章写道。
+
+另一位写道：“在 FDA 和 CDC 的医学纳粹分子因为‘轻度心肌炎’而退缩之前，需要更多的这些研究和故事，”另一位写道，指的是 CDC 主任罗谢尔·瓦伦斯基 (Rochelle Walensky) 关于“轻度心肌炎”病例发布的虚假声明是“罕见的”。
+
+“**他们的目标是减少人口**，他们现在正在遭受结果，因为没有任何阻力。他们的生计没有受到威胁，他们在政治圈内受到保护。除非完全不遵守任何新冠病毒指令，**否则不会改变这种暴政。”**
+
+**点评：当真相公布于众，就会改变这种暴政！**
+
+文章来源包括：[AlexBerenson.substack.com](https://alexberenson.substack.com/p/vaccinated-english-adults-under-60)
+[ONS.gov.uk](https://www.ons.gov.uk/peoplepopulationandcommunity/birthsdeathsandmarriages/deaths/datasets/deathsbyvaccinationstatusengland)
+[AlexBerenson.substack.com](https://alexberenson.substack.com/p/if-you-like-heart-problems-youll)
+[NaturalNews.com](https://www.naturalnews.com/2021-11-10-pfizer-heart-attack-drug-children-covid-vaccines.html)
+
+**新闻来源**：[newstarget.com][BOMBSHELL: Vaccinated adults under age 60 are dying at TWICE the rate of unvaccinated… the vaccine DOUBLES the deaths from all causes](https://www.newstarget.com/2021-11-23-vaccinated-english-adults-dying-twice-rate-unvaccinated.html)
 
 * * *
 
 ***审核：文乐
-校对：阿伯塔
+校对：信心满满
 发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)

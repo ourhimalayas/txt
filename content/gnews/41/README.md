@@ -2,24 +2,24 @@
 ---
 
 
-## 释放油储杯水车薪 拜登政府缘木求鱼
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690940/)
+## 日本大财团企业联合推出新数字货币
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690966/)
 
-撰稿:东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2323.jpg)[图片源](https://kahoku.news/articles/20211124khn000029.html?format=slide&amp;page=2)
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12313.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.xinmin.cn%2Fxmwb%2F2021%2F4%2FNEM1_20210420_C0326326330_A2760534.jpg&amp;imgrefurl=https%3A%2F%2Fwap.xinmin.cn%2Fcontent%2F31941540.html&amp;tbnid=9jZK94F6db1JBM&amp;vet=12ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ..i&amp;docid=C5khSQm7zUjvIM&amp;w=600&amp;h=399&amp;itg=1&amp;q=%E6%97%A5%E6%9C%AC%E6%95%B0%E5%AD%97%E8%B4%A7%E5%B8%81&amp;ved=2ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ)
+日经新闻周三报导，一个由大约70家日本企业组成的财团将开始测试最早在2022年下半年推出的一种数字货币，其中包括三家大型银行。
 
+该报称，这种数字货币将由银行存款支持，并使用一个共同的平台来加快公司之间的大额转账和结算，降低成本。
 
-由于政府释放过剩库存的政策而有所下跌的原油期货价格，又反弹了，价格转而上涨。
+财团成员包括三菱日联金融集团(MUFG)[8306.T](https://cn.reuters.com/companies/8306.T)、瑞穗金融集团[8411.T](https://cn.reuters.com/companies/8411.T)、以及三井住友金融集团[8316.T](https://cn.reuters.com/companies/8316.T)。该财团自去年以来一直定期开会，研究如何为数字支付建立一个共同的结算基础设施。
 
-由于美日宣布合作，一致释放国家储备石油的政策，东京商品交易所22日显示收盘价大幅下跌，收于每千升51,960日元。不过，今天假期过后，价格暂时在每公升55,000日元区间，达到两周左右的最高水平。
+这三家银行都推出了自己的数字支付系统，但仍落后于软银集团[9984.T](https://cn.reuters.com/companies/9984.T)旗下的PayPay等科技公司。
 
-一位市场人士表示，“原油价格因库存释放而有所下跌，但释放规模有限，因此出现大范围回购。”
+这一举措可能会影响日本央行正在单独进行的央行数字货币(CBDC)测试，政策制定者曾表示，如果央行要发行CBDC，他们将与民间部门密切合作。
 
-这是美国首次与日本等主要消费国合作释放石油库存。但目前来看真的是杯水车薪。拜登大总统是不是真的年事已高，为了中期选举，开始缘木求鱼了？
+消息来源:
 
-信息源:
-
-[原油先物価格が再び高値水準 石油備蓄放出の効果は限定的との見方](https://news.yahoo.co.jp/articles/552805ad358d04194b153e32d2ddf38497942dd3)
+[日本约70家企业将联合测试推出数字货币–日经](https://cn.reuters.com/article/japan-digital-currency-test-1124-wedn-idCNKBS2I9056?il=0)
 
 *校对：东京樱花团/知了知了*
 *发布：东京樱花团/tdownc2p*

@@ -2,33 +2,22 @@
 ---
 
 
-## 有声|欧洲各国上周末爆发反对强制接种疫苗的抗议活动
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1691643/)
+## 平明运动的本质就是一人一票
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1691689/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-近日，反对疫情限制措施的抗议活动震撼了欧洲。11月20日、21日，布鲁塞尔、维也纳、罗马和阿姆斯特丹等地爆发了示威活动，反对强制疫苗接种及疫苗护照。
+文编：东京樱花团/樱花传媒
 
-在奥地利进入第四次全国封锁后，近日，维也纳发生了抗议活动。
+视频:东京樱花团/中文小视频组
 
-在比利时，约35,000人聚集在布鲁塞尔市中心游行。鹿特丹的示威活动持续了数日。
+11月20日，郭文贵先生在GTV大直播指出：
 
-在意大利，大批人群聚集在罗马，反对中共病毒疫苗护照。
+班农先生坚定不移地支持中国老百姓。他指出，当有街头抗议时，这个社会一定是法治的是有未来的，而当政治被家族化时一定是独裁的，它是国家的灾难不可能有民主。班农先生还教导我们，平民运动不是某个阶层的运动而是整个社会的运动，它的本质就是一人一票，它追求宗教自由信仰自由和独立的法治。
 
-在克罗地亚，数千人参加了首都萨格勒布的游行，示威反对对工人进行强制性疫苗接种和中共病毒疫苗通行证。
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-3.png)
 
-文字版原文：[欧洲各国上周末爆发反对强制接种疫苗的抗议活动](https://gnews.org/zh-hans/1689335/)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

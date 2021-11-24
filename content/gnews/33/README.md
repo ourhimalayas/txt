@@ -2,34 +2,30 @@
 ---
 
 
-## 喜币涨价根本原因是去掉中心化，不再需要银行和信用卡
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1691300/)
+## 班农的愿景－川普耳边人正在组织一场平民主义革命
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1691365/)
 
-**郭文贵先生：**你能想到未来三十八之后，整个支付系统在全球流通的时候，什么概念？郝海东先生和哈恩同时在两个国家，一个欧洲，一个在韩国。你在北美加拿大，文斌，你也找到同一个商店说，我现在希望你能接受我的喜币，还有喜Dollar，记住不能光说喜美元，人家迪拜这家是既接受币也接受美元。这是个牛叉得不能再牛的事了。
+编译： Jenny Ball
 
-找地方就支付的时候，这家说我愿意接受你的支付。那第一步你说，你先在喜美元去开账号——KYC。你只要开了账号了，跟当地政府没有蛋的关系，是吧！你就是上传KYC。你只要有了账号了，你才能接受我的支付。这是什么？我哈恩就可以直接往你那个，文斌找的加拿大的任何卖内裤的、卖饭的，我就可以给你下单买东西，我也可以东弟那块买东西。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-2-7.jpg)盖特视频截图
 
-你们互相就可以买了，这就是什么？就要去中心化。没有第三方，不需要妈咪，不需要信用卡，不需要银行。这个接受得越来越多的时候，这个支付系统，世界就不需要银行了，不需要这个。你们所有的痛苦，都看不到，都没了。这才是喜币要涨价的根本原因。
+嘲笑史蒂夫·班农。继续嘲笑。嘲笑他头发花白、蓬头垢面、像厨房一样的风度和多层超大号正装衬衫。对食人魔虚荣的言辞翻白眼。“我从不退缩，”班农在本周出庭后说，他因藐视众议院 1 月 6 日特别委员会的传票而被控藐视法庭。“我们正在推翻拜登政权。”
 
-视频制作：小满；
+我们是谁？平民主义！十年前，班农通过兴高采烈在布莱巴特网站（Breitbart）帮助发起和塑造了平民主义、本土主义运动。2015 年，班农利用这一运动影响了一位名叫唐纳德·川普的纽约市房地产大亨。班农解释说，他是“我们的重磅利器”。
 
-字幕来源：[2021年11月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1681917/) ；
+班农在 2020 年大选后回到了川普的圈子里。他的“作战室”告诉受辱的总统，是的，选举被盗了，结果可能会被推翻。在 1 月 5 日的播客中，班农建议他的平民主义军队：“系好安全带，所有的地狱都会被打破。”他对第二天对国会大厦的暴力袭击了解多少——还有谁知道呢？
 
-发布：黎明之前；
+当然，班农有大众在他身后，他不需要屈服于“精英们”愚蠢的传票。“我们正在接管学校董事会，”挑战者班农说。“我们正在以选区委员会的策略接管共和党。就这样吧！” 1 月 6 日只是第一次小规模冲突； 战争才刚刚开始。“做好准备，”班农在法庭外直播时建议民众。“我们要开始反击了。”
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+**参考资料：**[theweek][Bannon’s radical vision](https://theweek.com/politics/1007243/tk-bill)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+* * *
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
 
  
 

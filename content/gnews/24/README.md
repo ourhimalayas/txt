@@ -2,64 +2,42 @@
 ---
 
 
-## 举报人揭露医院一天内因新冠“疫苗”导致13例死婴产儿
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1691447/)
+## 澳洲税局不信加密货币投资者会自己保存交易记录
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1691515/)
 
-编译： Jenny Ball
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Woman-Giving-Birth-Delivering-Baby-Nurses-Doctors-Hospital.jpg)由于武汉冠状病毒（Covid-19）“疫苗”，正在发生种族灭绝，但医疗机构拒绝承认。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/bitcoin-tax-image.jpg)
 
-在加拿大不列颠哥伦比亚省（B.C.），最近举行了一场集会，以提醒注意这一事实，以及狮门医院在 24 小时内，发生约 13 例死产婴儿。
 
-所有这些死亡都发生在接受福奇流感疫苗注射的妇女所生的婴儿中，但公众没有被告知其中任何一个。作为回应，梅尔.布鲁切特(Mel Bruchet )和丹尼尔·长濑（Daniel Nagase）医生，以及其他有关公众聚集在一起，在北温哥华的加拿大皇家骑警 (RCMP) 办公室前提出投诉。
 
-由于主要媒体完全无视这个事实，布鲁切特和长濑要将事情掌握在自己手中，向皇家骑警投诉公共卫生官员，据说，他们因经济利益冲突而将这一切都掩盖了。
+图片来源：www.chiangraitimes.com
 
-“我们站在上帝一边，”布鲁切特对集会上进行采访的人说。“我们站在正义的一边。”
 
-布鲁切特还谈到了许多其他事情，包括伊维菌素，阻止人们使用它的腐败政府官员，以及他认为随着越来越多的人了解此事的真相，大流行骗局逐渐瓦解——请点击文章链接观看视频
+#### 编译：小红帽
 
-**不要袖手旁观：如果你有办法和能力，就采取行动反对****covid****疫苗法西斯主义**
+随着首次投资者继续热衷于加密货币，澳大利亚税务局（ATO）表示，不能再依靠纳税人独立应对所得税、资本收益和区块链记录的复杂世界。
 
-长濑在 RCMP 采取的步骤中解释说，他将代表在场的每个人以及其他人，提交个人投诉。布鲁切特和其他人想知道的是，省卫生官员邦妮·亨利 (Bonnie Henry) 和其他卫生领导人，是否在推动大规模注射运动方面得到了回报，或有其他某种经济利益。
+澳大利亚在加密货币采用方面处于世界领先地位，Finder数据显示，10月份有近18%的人口拥有比特币、以太坊或卡尔达诺等加密货币的股份，高于3月份的13%。
 
-您可能还记得，亨利为 BC 省卡顿伍兹护理中心疗养院发生的由疫苗引起的疫情进行了掩饰。
+**澳大利亚税务局表示，加密货币的广泛采用伴随着独特的税收义务，因为根据澳大利亚法律，加密货币投资的利润需要缴纳资本利得税（CGT）。**
 
-“这是一个机会，”长濑告诉集会参加者。
+周二在悉尼举行的国际税收管理会议上，澳大利亚税务局专员克里斯·乔丹(Chris Jordan)表示，许多新移民无法自行解析这些要求。
 
-“皇家骑警……通常你会去这里提交有关刑事诉讼的警方报告……**我怀疑这些政策是针对卑诗省公民制定的，不是出于公共健康的利益，而是出于经济利益。****”**
+**“在一个拥有新投资者的快速增长行业中，我们不能依靠纳税人自己保留投资收入和资本收益的记录，并把这些记录披露在他们的纳税申报中。”乔丹表示。**
 
-另一位集会参加者表示，不仅死产死亡人数在增加，中风也在增加。所有这一切都被医疗系统隐藏了起来，除了一些勇敢的人们冒着自己的职业生涯，冒着很大的风险站出来说出真相。
+“相反，澳大利亚税务局已经转向交易所和经纪人来获取这些数据，允许政府机构在2020-2021财政年度预先填写8950万条数据。”
 
-“我们需要要求皇家骑警进行调查，**进行法医调查**，以发现是否存在影响我们卫生部长的利益冲突，导致她制定对不列颠哥伦比亚省人民有害的政策，” 长濑说。
+**参考新闻：**[Australian cryptocurrency investors can’t be trusted to keep transaction records themselves, the ATO says (msn.com)](https://www.msn.com/en-au/money/news/australian-cryptocurrency-investors-can-t-be-trusted-to-keep-transaction-records-themselves-the-ato-says/ar-AAR40Zx?ocid=msedgdhp&amp;pc=U531)
 
-在发布福奇流感疫苗之前，狮子门每个月可能有一个死胎，现在一天内发生了 13 倍的数量，这代表了飞速上升。
+***发布：小红帽***
 
-在视频快要结束的部分，可以看到长濑从皇家骑警大楼出来，并成功提交了所有投诉。当他解释说这只是开始时，他得到了人群的欢呼。
-
-“准备好听到越来越多的这种事情，”伊斯顿观众的一位评论者写道。“那些为这些根本就不是疫苗发声反抗的医生和医学科学家，过去不是，现在也不是阴谋论者。”
-
-有关武汉冠状病毒（Covid-19）“疫苗”法西斯主义的更多最新消息，请访问[ChemicalViolence.com](https://chemicalviolence.com/).
-
-**评论：“准备好听到越来越多的这种事情”疫苗灾难真的还没开始，文贵先生根据情报警告：真正的疫苗灾难将在明年的五月份。**
-
-**文章内容来源如下****:**
-
-[EastonSpectator.com](https://www.eastonspectator.com/2021/11/18/15-stillborn-deaths-in-24-hours-rallylions-gate-hospital/)
-
-[Bitchute.com](https://www.bitchute.com/video/Q0EX21dY5Z78/)
-
-[NaturalNews.com](https://www.naturalnews.com/2021-03-09-outbreak-death-canadian-nursing-home-mass-vaccination.html)
-
-**参考资料：**[newstarget][Whistleblowers expose 13 stillborn deaths in 24 hours at Lions Gates Hospital caused by covid “vaccines”](https://www.newstarget.com/2021-11-23-whistleblower-exposes-stillborn-deaths-babies-hospital-covid-vaccines.html)
-
-* * *
-
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,35 +2,43 @@
 ---
 
 
-## 联合国解雇“吹哨人”是中共在联合国的恶性影响
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1691181/)
+## 拜登将从战略石油储备中释放5000万桶
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1691248/)
 
-撰稿： 青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-37.png)
-（图片来自网络）
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-近日，联合国的一名“吹哨人”因对中共在联合国的非法行为发出警告而遭到解雇。这是中共对联合国产生恶性影响的又一证明。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-678.png) 图片来源： eu.usatoday.com
 
-据《希望之声》2021年11月24日报道，联合国“吹哨人”、人权律师、英国及爱尔兰公民艾玛·雷利（Emma Reilly）曾警告她在联合国人权办公室的上司，中共正在获取到该机构发言的持不同政见者的信息。但随后，她就被解雇了。
+白宫周二（23日）宣布，在[天然气价格](https://www.usatoday.com/story/money/2021/11/22/gas-prices-thanksgiving-travel/8665123002/)飙升和通胀飙升的情况下，乔·拜登总统将从国家紧急储备中释放 5000 万桶石油（战略石油储备将在几个月内释放 3200 万桶；1800 万桶在未来几个月里释放），以降低能源成本 。
 
-雷利是在接受法国主要报纸《世界报》采访后的24小时内就遭解雇。这一事件再次提醒人们，中共在联合国内的影响力非常大。
+美国拜登总统一直承受着越来越大的政治压力，要求美国人从汽油价格上涨中解脱出来，并[抑制](https://www.usatoday.com/story/news/politics/2021/11/13/inflation-what-can-joe-biden-do-tame-soaring-prices/6392686001/)10月份触及 31 年高位的[通胀](https://www.usatoday.com/story/news/politics/2021/11/13/inflation-what-can-joe-biden-do-tame-soaring-prices/6392686001/)；共和党人将包括能源价格在内的消费品成本增加归咎于拜登的政策；民主党人指出了积极的经济指标，[例如失业率下降](https://www.usatoday.com/story/money/2021/11/05/october-jobs-report-531-000-jobs-added-last-month/6291466001/)；经过数月的外交谈判，美国将与包括中共国、印度、日本、韩国和英国在内的其他主要能源消耗国同时释放石油。
 
-据雷利称，当她得知联合国人权事务高级专员办事处（OHCHR）应中共的要求，将前来参加瑞士日内瓦联合国人权理事会（UNHRC）的持不同政见者的名字，交给了她的联合国上司时，她意识到，这使北京（中共）可对持不同政见者施压，并要求他们不要前往。
+根据 GasBuddy 根据涵盖 150,000 多个加油站的超过 1100 万份个人价格报告汇编的数据，平均汽油价格为每加仑 3.39 美元，平均柴油价格目前为每加仑 3.63 美元；拜登呼吁沙特阿拉伯和阿拉伯联合酋长国等产油国提高产量，以减轻美国消费者的负担，但这些国家拒绝了增加原油产量的要求，使拜登几乎没有办法降低天然气价格；联邦政府本月报告称，随着美国经济从中共病毒大流行中复苏，过去 12 个月[通货膨胀率](https://www.usatoday.com/story/money/2021/11/10/consumer-prices-surge-october-highest-inflation-rate-since-1990/6368816001/)飙升；拜登[上周呼吁联邦监管机构调查](https://www.usatoday.com/story/news/politics/2021/11/17/biden-asks-regulators-examine-conduct-oil-and-gas-companies/8649244002/)石油和天然气公司是否通过从大流行期间飙升的天然气价格中获利而从事“非法行为”。
 
-雷利指出，中共当局威胁他们的家人，并可能导致逮捕及酷刑。在一个案例中，据说有人在中共的拘留中死亡。
+什么是战略石油储备？
 
-雷利还分享了联合国人力资源副秘书长给她的解雇信。信中称，她的“罪行”包括与《福克斯》等媒体机构以及联合国成员国之间的沟通，其中包括美国。信中列举的“罪行”包括，她与联合国驻纽约和日内瓦的代表团、国务院、参议院拨款委员会及其他一些联合国成员国和欧盟进行沟通。
+战略石油储备是在发生自然灾害、国家安全问题和其他事件时保护石油供应的储备。该储备由能源部维护，储存在德克萨斯州和路易斯安那州海湾沿岸的盐穹顶中的洞穴中。储备中大约有6.05亿桶石油。
 
-雷利强调，联合国指控她不服从沉默的命令，但作为一个人，尤其是作为一个人权官员，在种族灭绝面前保持沉默，就是与压迫者站在一起。
+该储备是在1973年石油危机后由美国国会于1975年建立的，当时石油出口国节制生产，导致能源价格飙升。
 
-美国共和党参议员玛莎·布莱克本（Marsha Blackburn）在一份发给媒体的声明中表示，中共在联合国内的恶性影响是个公开秘密。中共还不断将与其持不同政见者的生命置于危险中。
+由于全球石油生产的变化使立法者对潜在的石油短缺不那么担心，美国已经动用该储备来增加收入。
 
-布莱克本指出，国际社会不能再对中共的恶劣侵权行为视而不见，不应该允许因揭露联合国如何帮助中共剥削和虐待穆斯林维吾尔人而解雇举报人。
+上一次大规模释放石油储备是在2011年，当时巴拉克·欧巴马总统释放了3000万桶石油，以应对利比亚内乱造成的供应中断。乔治·W.布什总统在2005年从储备中释放了1100万桶石油，以应对卡特里娜飓风造成的供应中断，他的父亲乔治·H·W.布什总统在波斯湾战争期间释放了1700万桶石油。
 
-布莱克本还表示，她已提出了《联合国透明度和问责制法案》，以加强美国在联合国的领导地位，并揭露中共罪行。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-682.png)图片来源： eu.usatoday.com
 
-新闻链接：[https://twitter.com/SoundofHopeSOH/status/1463288677036142594](https://twitter.com/SoundofHopeSOH/status/1463288677036142594)
+**简评：**
 
+**一则来自《[零对冲](https://cms.zerohedge.com/s3/files/inline-images/bfmCF70.jpg?itok=sh5nqTyY)》的相关报道。**
+
+**拜登政府拼命试图阻止其支持率的直线下降，从而“做了一些事情”，但对于每天[消耗两](https://twitter.com/GreekFire23/status/1463127239214702593?s=20)千万桶的美国来说，不起作用；凯尔·巴斯[解释](https://twitter.com/Jkylebass/status/1463128462831636490?s=20)说，更[高](https://www.zerohedge.com/commodities/goldman-spr-release-now-fully-priced-and-will-send-oil-price-even-higher-2022)的油价即将到来，“正是这种幼稚的想法将损害美国的国家安全，并损害穷人和有需要的人”。**
+
+新闻来源：[usatoday.com] [US to release 50M barrels from strategic oil reserve amid soaring](https://www.usatoday.com/story/news/politics/2021/11/23/gas-prices-biden-release-50-m-barrels-strategic-oil-reserve/8722649002/)
+
+* * *
+
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
