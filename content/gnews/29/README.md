@@ -2,71 +2,40 @@
 ---
 
 
-## Covid-19：玛丽·勒庞希望取消“毫无意义”的健康限制
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1689681/)
+## 秘翻在线: 币安与主权基金就寻求投资进行谈判
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1689754/)
 
-翻译：香草山商业部 – 文锤
+撰稿：西枫westca
 
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-10-1.jpg)图片来源：网络照片
+据金融时报11月23日报道，币安首席执行官赵长鹏说，币安正在与几家主权财富基金就入股这家全球最大的加密货币交易所进行谈判，以寻求加强与政府的关系并抵消激进的监管机构的影响。
 
+赵长鹏在接受英国《金融时报》采访时还表示，该交易所今年面临来自监管机构的越来越大的压力，并相信主权财富基金的投资将有助于改善其与各国政府的“认知和关系”，“但它也可能将我们与特定国家联系在一起。 我们需要对此稍加小心。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+赵长鹏是币安的创始人，也是最大的股东。币安的新加坡业务得到了国家支持的投资公司淡马锡的风险投资部门Vertex Ventures的支持。他说正在进行初步讨论其全球实体，除了在公开上市前为其美国子公司筹集资金外，还将向几个主权财富基金筹集资金。他拒绝透露该公司正在与哪些基金进行讨论。”涉及的票据规模不会小，且不会是一个短暂的过程。”
 
+币安向世界各地的消费者提供加密货币交易，但监管机构批评了其一些高风险的金融产品，包括衍生品交易。
 
+币安一向对其创始人的位置都是保密的，并坚持说它没有固定的总部。该公司本成立于中共国，但在中共国的加密货币交易所被禁止后，于2017年撤出了中共国，并声称它在中国大陆没有办公室或业务，只有 “少数 “员工仍在从事区块链技术和其他 “非平台相关 “的工作，也没有其他数据留在中共国。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1491-1.png)[图片来源](https://francais.rt.com/france/92918-covid-19-marine-pen-veut-lever-restrictions-pas-sens)
+币安越来越倾向于选择该公司可以与监管机构 “更直接 “沟通的政府，除加紧在新加坡和迪拜等城市寻找新的全球总部之际，赵长鹏还在过去两个月里与迪拜、巴黎、卡塔尔和巴林的监管机构会面。
 
-11月23日在法国国际米兰接受采访时，勒庞认为某些健康措施无效，尤其是疫苗护照。据她说，她恳求取消这些“毫无意义”的限制。
+赵长鹏上周在彭博社新经济论坛上说，该平台的日交易量为1700亿美元，而两年前为100亿至300亿美元。收入运行率是”几十亿”。他还透露，币安美国将在1-2个月内完成IPO前融资数亿。
 
-RN 总统候选人玛丽·勒庞 (Marine Le Pen) 于 11 月 23 日希望“解除”护理人员针对 Covid-19 疫苗护照的疫苗接种义务，“这种接种疫苗的义务没有意义”，并认为有必要“学会与这种病毒共存”。
+中共国最近对加密货币采矿和交易的禁令体现了政府希望阻止外部技术以支持本土版本。同时北京正在广泛推广自己的中央银行数字货币。赵长鹏表示，这种方法在互联网领域对包括阿里巴巴和腾讯在内的公司起到了作用，但这对随心所欲的加密货币行业来说 “可能有所不同”。
 
-当被问及法国海外省在瓜德罗普岛的情况时，在那里反对强制接种疫苗和疫苗护照的运动已经蜕变为暴力事件，她说：“反对护理人员被强制接种疫苗，无论是谁。”
+赵长鹏还说有一种看法认为，由于没有传统牌照，交易所正在“疯狂”。 “我是一个非常冷静的人。我不是一个疯狂的人。所以我们实际上希望监管在这个领域更加明确。” 赵还说他并不担心币安平台上的非法活动，因为鉴于该交易所一直受到审查，该公司 “可能比银行更好”，因为它有检查措施，如了解客户和反洗钱技术。币安上周公布了一封加密货币用户的基本权利的信。这份类似宣言的法案解决了包括用户隐私在内的一系列问题，还呼吁加强监管。
 
-“除了让民众处于不必要和不成比例的胁迫下之外，疫苗护照还有什么作用？ ”
+即便如此，包括英国金融行为监管局在内的监管机构表示，由于币安拒绝提供其全球实体的交易名称和职能等基本信息，他们无法对该业务进行适当监督。巴克莱银行等大银行甚至已经停止了一些客户向币安的资金转移。
 
-“接种疫苗有助于预防严重形式的 Covid，但真正的问题是‘它能否阻止病毒的传播？’。今天的答案是否定的，那么过去的疫苗护照除了让人们处于一种不必要和不成比例的约束之下之外还有什么用？”她还问道。 至于第三剂疫苗，她认为“每个人都应该自由地接种或不接种”，并且“由每个人决定他们接种疫苗的利益和风险”。 “我们将学会与这种病毒共存，”她说，而影响法国的第 5 波感染目前并未伴随大量患者涌入医院。她敦促说：“但让我们消除所有这些开始变得非常严重的限制措施”，因为“显然没有什么可以阻止病毒的传播，因此所有接种疫苗的义务都没有意义”。
+郭文贵先生在大直播和盖特里都曾提到赵长鹏不仅在彭博社2021年创新经济论坛（新加坡）上诋毁喜交所，还把客户私人信息提供给了中共。既然他登上了这列魔鬼之车，将来一定会被中共消灭，币安也一定会结束。
 
+**新闻来源：**
 
+[Binance in talks with sovereign wealth funds as it seeks investments | Financial Times (ft.com)](https://www.ft.com/content/006b727a-cc20-403e-ad53-6a23571e6c1c)
 
-> .[@MLP\_officiel](https://twitter.com/MLP_officiel?ref_src=twsrc%5Etfw) : “Rien, manifestement, ne peut empêcher la circulation du virus. Toutes ces obligations n’ont pas de sens.” [#le79Inter](https://twitter.com/hashtag/le79Inter?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/DTHONPco5G](https://t.co/DTHONPco5G)
-> — France Inter (@franceinter) [November 23, 2021](https://twitter.com/franceinter/status/1463050931306704898?ref_src=twsrc%5Etfw)
-
-
-
-如果她当选，她宣称将会结束“对未接种疫苗护理人员的停职行为，因为这是完全无用的，我们需要护工”
-
-“其他的措施，我们勤洗手，已经非常完美，我们在有人的地方戴上口罩，而不是在户外，我们要消除其余的这些实际上毫无用处的限制措施” 她坚持说。 她还评价了 11 月 22 日对 Covid-19 检测呈阳性的总理让·卡斯特克斯（Jean Castex），“他握手、去餐馆，比没有感染 Covid 的未接种疫苗的人危险得多”。
-
-当被问及Mediapart 对 Didier Raoult 医生的调查时，后者被指责为推广使用羟氯喹的治疗方法而伪造其有效性，玛丽娜·勒庞 (Marine Le Pen) 遗憾的表示：“这绝对是一个令人难以置信的阴谋，而Didier Raoult医生只是要求为医生提供处方的自由”。
-
-译者评论：虽然玛丽勒庞的对疫苗的观点还有所保留，但是可以看出法国民众已经意识到疫苗的无效性，勒庞看到了这样的民意，利用这种民意为自己的竞选助力，这样的转变将会随着越来越多的疫苗灾难的显现而加快，一切都是刚刚开始，天佑新中国联邦，天佑法兰西！
-
-**原文阅读：**
-
-[Covid-19 : Marine Le Pen veut lever les restrictions sanitaires qui «n’ont pas de sens» — RT en français](https://francais.rt.com/france/92918-covid-19-marine-pen-veut-lever-restrictions-pas-sens)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+[Binance US to Close Pre-IPO Funding in 1-2 Months (coindesk.com)](https://www.coindesk.com/business/2021/11/19/binance-us-to-close-pre-ipo-funding-in-1-2-months-founder-cz-says/)
 
  
 

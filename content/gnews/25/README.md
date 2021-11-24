@@ -2,55 +2,103 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“疫苗”（十二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1689743/)
+## 七哥回想1120
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1689819/)
 
-**整理：BENJ1**
-**编辑：守望黎明**
+[https://gtv.org/video/id=619cd250e6900076612ecb85](https://gtv.org/video/id=619cd250e6900076612ecb85)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/文贵-天秤.png)图片来源：墨尔本雅典娜农场设计组
+前面的就是小半年到一年的这个认知
+La anterior es la cognición de medio año a un año
 
-**郭文贵****先生****2021年5月30日直播**
+是班农先生对于消灭共产党, 对中国的文化
+Es el Sr. Bannon de acuerdo a eliminar el Partido Comunista , la cultura china
 
-这个背后还有一个更重要的故事， 我想给战友们分享的就是这位科学家的故事，他的家人已经全部被救出来了，现在在日本。我告诉大家，还有一个更重要的事实，让大家无法想象的事情，他要告诉所有的人:印度、澳大利亚、日本、台湾，新西兰，是中共的下一个核心目标，包括巴西！ 而且他严重警告说，美国如果再次爆发，绝对不是死五十万、一百万，美国可能三分之一的人都有生命的危险，这不是开玩笑的，不是开玩笑。
+对共产党的邪恶和西方的渗透
+El mal del Partido Comunista y la penetración en el Occidente
 
-这就是为什么昨天蓬佩奥国务卿说如果再次爆发，可能要死三千万人，他保守了。据我们和各个科学家的分析，如果再次爆发，世界上可能死几亿人，最低几亿人，甚至更多。这和2019年12月份到2020年的1月16号、1月17号、18号、19号到1月25号的班农先生的大疫情战斗室节目和我们当时和科学家所得出论证的结果都是一模一样的。
+都从每一件事上
+Mediante cada asunto
 
-我们不希望它发生，但是现在它已经确确实实。疫苗对年轻人的心脏和七十岁以后老年人的生命的威胁，是有无数个科学家已经站出来讲的，是致命的。包括癌症、不明的心脏毛病，以及人的免疫力系统的超级活跃。它超级活跃，像一个人一样，你极度兴奋一直跳、一直跳，到一定的时候，啪的一声就死掉了。就是免疫力整个失去控制的时候，最后你只有沿着一条道累死，就是自己的身体内过度活跃，它一直在抵抗，抵抗，抵抗，抵抗到没力气抵抗，最后就死了，细胞什么的就累死了。还有就是心肌炎，心脏病，还有脑血管病。
+包括也体会咱们爆料革命的这种坚持执着
+Incluyendo y viviendo también la perseverancia que tenemos con el Movimiento de Denunciantes
 
-兄弟姐妹们，只有爆料革命是世界上唯一的一家告诉大家不要打疫苗的，不要打疫苗，现在证明给你们看了吧？唯一的一家讲羟氯喹的，让吃羟氯喹，羟氯喹现在已经证明绝对是有效的。唯一的一个告诉大家一定要戴口罩，一定要注意手、要洗手，要呆在家里，我们都是正确的。在欧洲的整个情报委员会听证，还有欧洲整个欧中协议的听证会上，我们这些都是拿来当听证的。
+然后我们开会的时候
+Cuando estabamos en la reunión
 
-我们爆料革命的战友们，你们想一想，在疫苗这个问题上你们竟然有人还在犹豫，这比那些落后贫穷的人还可悲、还可怕，啥都不说了，行动！行动！共产党快完球蛋了，啥都不说了，干活去吧！兄弟姐妹们，哎呀，不佛（说）了，不佛（说）了！
+之前
+Antes de eso
 
-**郭文贵****先生****2021年6月8日盖特 **
+包括安全部门的警告吧
+Incluyendo la advertencia del Departamento de Seguridad
 
-战友们，我感触太多了！现在共产党被全世界各个国家和政府捧着一堆的问号在问: “病毒是不是共产党故意放的？为什么放？它想杀多少人？它为什么买光PPE口罩、医疗设施？到底武汉死了多少人？为什么美国、印度、阿根廷、英国、意大利、台湾这些地方有这么多的死亡？为什么共产党要那样卖疫苗？卖疫苗的目的是什么？” 这些问题大家都能懂的，这些问号的背后除了怀疑，共产党想再回到三年以前，两年以前，甚至一年以前还可能吗？它还能玩“四个自信”吗？对吧！ 不可能了吧？中共还能到处买、买、买，到处大撒币吗？不可能了吧！
+有人要杀害呀
+Alguien te matará
 
-**郭文贵****先生****2021年6月10日盖特**
+要危害呀
+Te lastimará
 
-大家千万记住: 高教育、高知识不等于高道德; 高权位、高影响力更不等于高道德。有再高的权力就等于你有道德了吗？你说你受过高等教育你就道德了吗？我今天早上跟一个德国的女战友通信，她说她身边一个人是研究E蛋白的，也打了疫苗了，打完后浑身肿得不得了，她觉得简直太可惜了。我说高教育、高知识不等于高道德、高智商，完全不是！ 包括冠状病毒在内的所有这些的杀人的东西都是高级教育分子研制出来的。拎锄头的农民，挖地垄沟的人是搞不出冠状病毒的。而且好多高级知识分子、高级科学家缺乏人性，干坏事还能讲出一堆的道理。
+共产党, 你知道那时候
+Sabes en ese momento, el Partido Comunista
 
-**郭文贵****先生****2021年6月12日直播**
+你们从来不知道的
+Ustedes nunca supieron
 
-我再告诉大家，病毒的事情现在你都已经不用着急了，你能做的事情就是你自己别被新来的一波病毒给弄死、别打疫苗、别上他们当——这才是你要做的。千千万万记住，你只要活着。出了病毒的事情，共产党就一定会死在病毒手里，死在香港运动手里，死在爆料革命、新中国联邦手里。没有新中国联邦，没有爆料革命，那就是不可能的，一切都是不可能的。
+我最起码一个小时内接到2个3个电话
+Al menos recibía dos a tres llamadas dentro de una hora
 
-**郭文贵****先生****2021年6月14日直播**
+莫名其妙的发信息的, 发信息呀
+Enviaban mensajes inexplicablemente
 
-当初把杨澜捧大发的就是泰国正大集团，你看泰国正大集团是平安的股东，还是大家所熟知的肖建华背后的代持者老板，还有也是汇丰的股东，现在它是中国所有疫苗受益者中最大的一个。
+你会死掉的
+Diciendo que morirás
 
-正大绝对是曾家势力的、江家势力的。咱有战友说的，正大是科兴疫苗的股东。没错啊！
+下一步会杀掉你啊
+El siguiente paso es matarte
 
-以毒灭共的事业在5月份已经结束了，以后谁都挡不住了。谁现在敢说这个事没事啦？不是共产党弄的。你说是蝙蝠、穿山甲，或者美国大兵干的，你就说呗，你尽管说，是吧？咱着什么急，全世界都死那么多人了，会没人管？着什么急？对不对？
+然后我知道你下一步会走哪条街呀, 是吧
+Luego decían: “sé a qué calle irás a continuación”, cierto
 
-另外一个就是疫苗这一块，反正我们的战友要是相信的话，你就不打疫苗！你不相信你就去打，大家都是自由的，是不是？一个疫苗，然后就是羟氯喹，不用证明我们伟大——我们的伟大不需要证明，不用证明我们的善良——我们的善良不需要任何认可，我们的实力和智慧不需要任何人否定和肯定——咱不在乎！
+然后把班农你们都会干掉呀
+“Seguidamente los eliminaré a Bannon y a ustedes”
 
-*发布：盘古相聚*
+放毒啊
+“Descargando virus”
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+这些事情都是
+Todas estas cosas son
+
+每时都在发生
+Ocurridas en cada momento
+
+不是每天, 是每时
+No son todos los días sino cada momento
+
+从来没有1秒钟动摇过我们
+Jamás ni un segundo nos hemos movido
+
+最后大家知道皮尔酒店开了那个成功的会
+Finalmente, todos saben que en el Hotel Peel se realizó ese exitoso encuentro
+
+**原视频网址：**[https://gettr.com/post/phlh7b9153](https://gettr.com/post/phlh7b9153)
+
+日期：11/23/2021
+原视频标题：七哥回想1120
+Miles recordando el 20 de noviembre
+原视频日期：11/22/2021
+原视频网址：https://gettr.com/post/phlh7b9153
+任务编号：KC282（2981）
+视频时间段：0:00-0:45
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 –青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

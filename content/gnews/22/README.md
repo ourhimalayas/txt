@@ -2,66 +2,124 @@
 ---
 
 
-## 疫苗报道惹祸 谷歌完全取消了CDMedia的广告收入
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1689760/)
+## 澳大利亚领导人在疫苗强制方面既愚蠢又专制, 一个非常糟糕组合
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1689849/)
 
-编译： Jenny Ball
+[https://gtv.org/video/id=619cd7dce6900076612eccee](https://gtv.org/video/id=619cd7dce6900076612eccee)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-23-at-7.11.30-AM.png)*截屏*（图片取自原文）
+**Reporter**
+**记者**
 
-Google Adx 已经完全取消了 CDMedia 在我们网站上投放广告的平台，并结束了我们媒体公司的在线广告收入。
+Do you think at all that your rhetoric around calling people anti-vaxxers,
+你认为你关于称人们为反疫苗者的言论
 
-在我们对“疫苗授权”的报道中，我们显然超出了（Google）目标。
+some of whom were vaccinated,
+其中一些人已经接种了疫苗
 
-这并不重要，因为我们正在开发替代收入来源。
+has had an impact at all on vaccine take-up in parts of the Territory?
+是否对领土部分地区的疫苗接种产生了任何影响？
 
-站在自由这边，和其他爱国者站在一起，这里的绿地绝对更惬意！
+Australia official
+澳大利亚官员
 
-但是，请通过在此处捐赠来尽您所能支持 CDMedia 和言论自由！[donating HERE!](https://creativedestructionmedia.com/support-free-speech-donate/)
+No，I don’t work data
+不，我不研究数据
 
-以下是我们收到的一封电子邮件的摘录……
+If you are anti mandate,
+如果你反对强制疫苗接种
 
-此消息旨在提醒您，您的一个网站目前不符合我们的 “广告管理” Ad Manager 计划政策，因此您的整个网站上的广告投放已受到限制。
+you are absolutely anti-vax on what your personal vaccination status is.
+在你的个人疫苗接种状况你绝对也是疫苗反对者
 
-限制解释——“危险或贬损内容”、“不可靠和有害的声明”。
+If you support campaign, give a green light
+如果你支持抗议，为其开绿灯
 
-违规解释：
+give comfort to support anybody who argued against the vaccine,
+安慰支持任何反对疫苗的人
 
-危险或贬义内容：
+you are an anti Vaxxer absolutely.
+你绝对是一个反疫苗者
 
-基于种族或民族、宗教、残疾、年龄、国籍、退伍军人身份、性取向、性别、性别认同或其他与系统相关的特征，煽动仇恨、促进歧视或贬低个人或群体歧视或边缘化。
+Your personal vaccination status is utterly irrelevant.
+你的个人疫苗接种状态完全无关紧要
 
-骚扰、恐吓或欺凌一个人或一群人。
+If you campaign against the mandate.
+如果你抗议反对这个强制命令
 
-威胁或主张伤害自己或他人。
+If you campaign against people being vaccinated in vulnerable settings,
+如果你反对在脆弱环境中接种疫苗的人
 
-与当前的重大健康危机有关，与权威的科学共识相矛盾。
+teachers in classrooms,
+在教室里的老师
 
-通过敲诈勒索剥削他人。
+I’ll be really clear at that point time people were actually sup-porting
+那时我真的很清楚，人们实际上是支持
 
-在帮助中心查看完整的政策（包括示例）。
+the idea of a teacher being unvaccinated in a remote community classroom
+教师在偏远社区教室中不用接种疫苗的想法
 
-不可靠和有害的说法：
+with kids who can’t be vaccinated
+与无法接种疫苗的孩子在一起
 
-提出明显错误的声明，并可能严重破坏对选举或民主进程的参与或信任。
+I reject that, I still reject it.
+我反对那个想法，我仍然反对它
 
-宣扬有害的健康声明或与当前的重大健康危机有关，并且与权威科学共识相矛盾。
+And if you are out there in any way, shape or form
+如果你以任何方式、状况或形式出现在那里
 
-与关于气候变化的权威科学共识相矛盾。
+campaigning against this mandate that you are absolutely anti-vax.
+反对强制疫苗接种，那么你绝对是反对疫苗者
 
-评论：多么讽刺，作恶的**Google**却要用“不作恶”做招牌！在这场人类病毒疫苗大劫难中，社交媒体扮演着邪恶的宣传工具。凸显爆料革命创立的盖特，**GTV**, **Gnews**是多么意义深远，承担着传播真相的历史使命。真相必胜！
+If you say pro persuasion stuffer it, shove it
+如果你想游说我，省省吧
 
-**参考资料：**[creativedestructionmedia][Google De-platforms CDMedia Completely From Ad Revenue Over Vaccine Coverage](https://creativedestructionmedia.com/news/business/2021/11/23/google-de-platforms-cdmedia-completely-from-ad-revenue-over-vaccine-coverage/)
+we are absolutely going to make sure as many territories as pos-sible are vaccinated
+我们绝对会确保尽可能多的地区接种疫苗
 
-* * *
+that is our best protection against this thing.
+这是我们对这种病毒最好的保护
 
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
+As you look at the dose volumes coming out since
+当你看到自去年以来出现的剂量时
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+they said we’ve doubled dose at 80, remote communities five and up
+我们已经将剂量增加了一倍，为80微克，偏远社区的计量为50微克和更高
 
+I think you’ll see our vaccine mandate is absolutely crucial to protecting life,
+我想你会看到我们的疫苗强制对于保护生命绝对至关重要
 
+particularly aboriginal life
+特别是原住民的生活
+
+and I will never back away for supporting vaccines
+我永远不会因为支持疫苗而退缩
+
+and anyone out there who comes for the mandate.
+而且任何人反对强制接种
+
+You are anti-vax
+你是个反疫苗者
+
+**原视频链接**:[https://twitter.com/justin\_hart/status/1462791892219793414?s=24](https://twitter.com/justin_hart/status/1462791892219793414?s=24)
+
+Date:11/22/2021
+原视频标题: Australia’s leaders are dumb and authoritarian in vaccine mandates. A very bad combo
+澳大利亚领导人在疫苗强制方面既愚蠢又专制, 一个非常糟糕的组合
+原视频日期：2021/11/22
+原视频链接: https://twitter.com/justin\_hart/status/1462791892219793414?s=24
+任务编号：KE347(2983）
+视频时间段 : 0:00-1:37
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 –天涯行
+审片：洛杉矶盘古农场 –银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

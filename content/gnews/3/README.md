@@ -2,27 +2,30 @@
 ---
 
 
-## 加拿大安省法院裁定疫苗强制接种合法
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1690021/)
+## 荷兰众院以压倒性票数通过力挺台湾参与国际刑警组织
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1690061/)
 
-原文采编：UCool优酷 编译撰稿：文所未闻
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3745251_1_1.jpg)（图片来自网络）
+据台湾新头条11月24日报道，第89届国际刑警组织（INTERPOL）大会11月23日至25日正在土耳其举行。荷兰众议院以149票对1票的压倒性票数通过动议，呼吁荷兰政府与理念相近的国家共同支持台湾参与国际刑警组织。这是荷兰国会继2019年通过支持台湾参与国际组织的历史性动议案后，再次发声力挺台湾参与国际事务。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-61-edited.jpg)图片来源：financialpost
+动议案指出，台湾不仅是荷兰和欧盟的重要商业伙伴，也是打击国际犯罪的盟友。在中共国武力威胁及以各种方式打压台湾国际生存空间下，理念相近国家的相关支持格外重要。对于荷兰政府及国会公开声援，台湾深表感谢。
 
+人与人相处，志同道合才能友谊长远。国与国之间也是一样。中共与台湾、与西方民主国家永远不可能有相同的理念，也绝对不可能和平相处。中共越嚣张、越打压台湾，中共在邪恶的道路上就走得越远，最终疯狂无底线地全球释放病毒成为世界公敌。与世界为敌，最终全世界一定会联合起来消灭中共！
 
-据加拿大《金融邮报》11月23日报道，安大略省法院在11月20日做出裁决，驳回了原告方：【多伦多交通委员会】和【西奈山医院工会】，就保护其未接种“新冠病毒”疫苗成员而提出的“禁止强制接种令”的申请。
+新闻参考链接：[https://newtalk.tw/news/view/2021-11-24/671061](https://newtalk.tw/news/view/2021-11-24/671061)
 
-报道指出，原告方以违反《加拿大权利和自由宪章》为主要理由，反对当局正在推行的接种政策。并认为强迫医务工作者注射该疫苗，将使其遭受“不可挽回的伤害”和“巨大的经济损失”。但法院以雇员可以在“接种并继续工作”或“拒绝接种则失业”这两种情况下自行选择为由，驳回了原告方的请求。
-
-据悉，以上裁决将对今后类似的诉讼案件有指导性作用。但因本案仍可最终上诉至最高法院，所以在此之前，该如何具体执行和操作本次裁决结果，还有待各方进一步的确认。
+编辑：胖丁
 
 * * *
 
-校对编辑，发稿：硫酸羟氯喹64
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-原文链接：
 
-[https://financialpost.com/fp-work/ontario-court-deals-another-blow-to-unions-efforts-to-protect-their-unvaccinated-members?utm\_term=Autofeed&utm\_medium=Social&utm\_source=Twitter#Echobox=1637664850](https://financialpost.com/fp-work/ontario-court-deals-another-blow-to-unions-efforts-to-protect-their-unvaccinated-members?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter#Echobox=1637664850)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

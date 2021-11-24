@@ -2,28 +2,30 @@
 ---
 
 
-## 远东新世纪疑似沦为中共迫害台企的牺牲品
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1689144/)
+## 欧洲各国上周末爆发反对强制接种疫苗的抗议活动
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1689335/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山教育部 – Naughty(文行)
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月22日，台湾知名企业远东新世纪遭到中共上海、江苏 、四川等五省市的行政处罚，罚款金额高达3650万人民币。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9-14.jpg)
-据中共国台办消息，远东新世纪在上述五省市所投资的纺织、化纤、水泥等工业项目，在环保、消防、税务、员工待遇等方面存在“违法违规”的行为。除了上述罚款外，还将追收税款与罚金，一些企业闲置建设用地也将被收回。
+近日，反对疫情限制措施的抗议活动震撼了欧洲。11月20日、21日，布鲁塞尔、维也纳、罗马和阿姆斯特丹等地爆发了示威活动，反对强制疫苗接种及疫苗护照。
 
-远东新世纪表示，已对上述“不合规”行为进行了专项整改，预计年底前全部完成，并承诺“罚款不影响财务和业务，也不会影响在内地的投资信心”。台工商协进会理事长林伯丰也发表“洗地”言论，认为此事应只是个案，不会影响台商在大陆的投资意愿。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-9.jpeg)
 
-耐人玩味的是，就在同一天，国台办发言人称“台独”分子严重破坏两岸和平稳定，对他们的金主及关联企业必须依法惩戒。据悉，远东集团曾出资支持现任中华民国行政院院长苏贞昌的竞选活动。有分析指出，远东新世纪疑似成为中共迫害在陆台企的牺牲品，这将给早已阴云笼罩的台海局势增加新的变数。
+在奥地利进入第四次全国封锁后，近日，维也纳发生了抗议活动。
 
-参考链接：
-[台湾远东集团在大陆被罚款 台工商协进会理事长：不影响台商在大陆投资意愿](https://news.sina.cn/gn/2021-11-22/detail-iktzqtyu8841298.d.html?from=wap)
-[国台办回应台湾远东集团在大陆被查处：绝不允许支持“台独”者在大陆赚钱](https://m.guancha.cn/politics/2021_11_22_615779.shtml)
+在比利时，约35,000人聚集在布鲁塞尔市中心游行。鹿特丹的示威活动持续了数日。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+在意大利，大批人群聚集在罗马，反对中共病毒疫苗护照。
 
-总编：文徬
-编辑：Zion文恩
-校正/发稿：Fei797
+在克罗地亚，数千人参加了首都萨格勒布的游行，示威反对对工人进行强制性疫苗接种和中共病毒疫苗通行证。
+
+参考链接：[Protests against Covid rules and lockdowns erupt across Europe](https://www.cnbc.com/2021/11/22/photos-of-anti-covid-protests-in-europe.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：AN
+编辑：AN
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

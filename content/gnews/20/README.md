@@ -2,130 +2,37 @@
 ---
 
 
-## 比特币为什么会消失, 喜币 喜联储为什么这么牛
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1689798/)
+## 郭文贵先生为什么要建立G-Club？
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1689871/)
 
-[https://gtv.org/video/id=619cd1b1e6900076612ecb76](https://gtv.org/video/id=619cd1b1e6900076612ecb76)
+**【雅典娜观察】与您一起洞察世界**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/未标题-1-5.jpg)
+**作者：**文明明来了
+**编辑：**翼族
 
-**郭文贵**
-**Miles Guo**
+通过四年多来的爆料，郭文贵先生通过他个人的经历，用一件件身边发生的事例给所有的关注者们展现出了当今世界真实的社会形态。
 
-他说，你为什么说比特币完蛋，我看了你很多直播
-He said, why did you say that Bitcoin is dead? I watched a lot of your live broadcasts, and you said so a lot
+所谓的不公平、不正义，不仅仅是发生在身边每个具体的鲜活案例，更是整个世界、乃至每个人之间扭曲的关系，不同的群体之间扭曲的利益分配，少数人对多数人在经济上不公平的榨取、控制和统治，以及人群中多数人对少数人的歧视和压迫。
 
-他说那个原罪，他说所有全世界的犯罪都跟美元有关系
-He said about the original sin, all crimes in the world have something to do with the U.S. dollar
+这是一个养蛊的绞肉机结构，将每一个正常的、有血有肉的人放在经济超压环境里，用群体压力逐渐同化。每个人都被置身于这种只能埋头于眼前、通过相互倾轧、互相争夺仅有的生存资源，进而竞相服从统治阶层的控制，直至成为绞肉机内的一部分。
 
-那美元就没有了吗？我就笑笑没搭理他
-So there is no original sin in the dollar? I just smiled and ignored him
+**事实上在这部绞肉机里，没有人会是真正的刀，每一个人既是刀也是肉**，包括误以为自己是统治阶层，把握着资源分配权力的人。每个人、每个群体、每个阶层都在这个绞肉机中努力的想做那把刀，并且把刀把递给上层，让下层做肉。更寄希望于自己有一天也能从刀变成握刀之人。然而，既荒诞又真实的是所有人都只不过是长在不同位置的肉而已。
 
-就他是个美国所谓的财政部级别的，还有一个我们的CTO也这么认为
-he is at the so-called Treasury level in the United States, and one of our CTO (Chief Technology Officer) also thinks so
+**中国的问题不仅仅是出自中国本身，更是整个世界统治结构的延伸。**体现在中国，呈现的是少数家族从政治权力到经济权力的垄断，事实上整个世界也是如此。即使是存在于民主制度之下的西方国家，也是由经济寡头和大的家族势力所控制，用金钱来实现权力，再用权力来巩固金钱。民主制度是个好东西，一切晒在阳光下，不断淘汰德不配位的领导者，让其金钱和权力只能占一样，不断敲打权力，不断通过制衡和更迭来削弱权力的集中。只有人民不被掌握权力的人所控制，权力才能真正的属于人民。权力的集中倾向性与金融寡头对政治的控制具有天生的契合性，互为需要，又必须达到某种平衡。事实上这种失衡的本身并不符合包括当前统治者在内的任何人的根本利益。
 
-他这个猪脑袋都不是，你知道吧
-He is a no brainer, you know?
+一战和二战极大的震撼了整个人类社会，人们试图重整社会秩序。在之后的几十年里，和平与动荡的交互更迭就是这种力量平衡与再平衡的过程。然而，在过去相对和平的几十年里，寡头们的贪婪和与政客们的无知和懦弱及不择手段，共同促进了金钱与权力的混合生长。这些贪婪的资本家和政客为了自身利益，在面对肆意欺压人民的他国邪恶力量面前，采取放任甚至合作的态度，逐步形成民主主义与专制主义的勾结，自由主义和道德正义的自我放逐。贪得无厌的金融寡头与玩弄权力的野心家相互利用、相互合作，在民主制度下掌权集团与暴力集权统治者相互勾结，共同统治、压榨和愚弄世界人民。本应相互制约且对立的两方，是用来推动人类不断进步的力量，却逐渐演变为更加邪恶的力量。更加可怕的是，科技的高速发展在造福人类的同时，无限放大了统治阶层改变世界的力量，也将人类推向随时都可能自我毁灭的深渊。黑暗势力的存在并不是因为黑暗，而是因为没有光明阻挡他们成长为黑暗势力。**而真相就是划破黑暗的那道光，这就是唯真不破的意义。**
 
-美国所有的法币参与的，被用作犯罪的是被动的
-All U.S. fiat currencies are involved and used as crimes are passive
+如果人类足够幸运，这次疫情以及疫苗的大灾难，也许会将人类社会结构的再次重建推上台面。人类社会由暴力社会到权力社会，再到宗教社会，最后到制度社会，其核心就是人与人之间的伦理关系、经济关系和政治关系。每次人类社会大重构的背后，就是人与人关系的认知变化。所谓资本主义、共产主义、民主主义都是一套对人与人关系的重新解读。原有的关系体系之所以不断堕落，不是因为贪婪，而是因为虚伪，因为人类对假的纵容才给了金钱和权力勾结的机会，才让专制主义利用每个人的无知，懦弱和贪婪趁虚而入。
 
-是我被动的，但是比特币是主动化的，你就是去中心的
-It was passive, but Bitcoin is active, it is decentralized
+G-Club出现在一个特殊的时代，**G-Club的门槛就是挑选了那些在黑暗力量的巅峰时刻里，依然坚定选择与现有的利益分配结构决裂的人群**。这群新人就是要打破金钱与权力、贪婪与威吓的束缚。重建人与人的关系，重新构建全新的人类社会秩序，不会再让少数人因为贪欲和权欲在科技发展的推动下将整个人类带入地狱。爆料革命正道主义的目标不仅仅是改变中国的社会结构，更是尝试对世界现有秩序的一次修正。
 
-我美元，我有人负责任呐，
-Someone is responsible for the dollar
+*发布：翼族*
 
-而且我是比特币从第一天的1块钱七哥就买了
-And I invested in Bitcoin from day one at one dollar
-
-我全程参与了比特币，七哥最早在2018年我就说过
-I participated in the whole process of Bitcoin, Miles had said as early as 2018
-
-比特币的4%的庄家，拥有96%的比特币
-4% of Bitcoin’s banker owns 96% of Bitcoin
-
-全世界谁敢说，它是中共情报，伊朗和美国华尔街培养的洗钱工具
-Who dares to say in the world that it is a money laundering tool cultivated by the Chinese Communist Party’s intelligence, Iran and Wall Street in the United States
-
-而且是暗网、深网60%-70%使用的货币
-And it is the currency used by 60%-70% in the dark web and the deep web
-
-那么今天我们大家要看到的一个最重要的问题
-So the most important matter that we all want to see today
-
-今天看我们自己的喜联储的喜币的时候和法币之间最大的区别是什么，
-What is the biggest difference between our own H-coin of Himalaya Reserve and fiat currency
-
-法币，你信不信你都得使用, 为什么呀，
-Fiat currency, you have to use it whether you believe it or not, why?
-
-这叫必须强迫的被动式信任，你信不信你都得用
-This is called passive trust that must be forced. You have to use it whether you believe it or not
-
-但是今天的喜联储牛在哪里，我是什么
-But where is the outstanding point of Himalaya Reserve today, what is it
-
-主动让你自动的信不信取决于你，你不信任，你不要来开户
-The initiative is in your own, believe or not depends on you, if you don’t believe it, don’t open an account
-
-你不信任，不要买喜币，你不信任，不要去拿喜币去交易
-If you don’t believe it, don’t buy H-Coin, if you don’t believe, don’t trade H-Coin
-
-这就完了，我这个币是跟你法币之间最大的不同，是吧
-That’s it, the biggest difference between H-coin and fiat currency is, right?
-
-我是完全自动信任，但是美元说你在美国你不用美元你用什么，用人民币
-It’s fully automatic trust, but you don’t use US dollar in the US，what are you going to use? Use RMB？
-
-说你滚一边儿，没人要你的，而且必须用美元交易
-Go away, nobody wants yours RMB, and you have to use dollars
-
-那这个支付系统更简单了，你这个商家你愿意我愿意，咱俩就愿意嘛
-Then this payment system is even simpler. If a merchant and the consumer are both willing in the system
-
-这是双方你情我愿嘛，那你政府监管我什么
-This is the two sides agreement, then what else can your government regulate me?
-
-告诉我所有资本市场的根本前提下，
-Tell me the fundamental premise of all capital markets
-
-你情我愿的公平经济活动剩余价值的交换，
-The exchange of the surplus value of fair economic activities under the both agreed condition
-
-达到物品交换的目的的被政府监管
-being supervised by the government to achieve the purpose of exchange of goods
-
-我愿意被你监管呐，你监管我什么？
-am I willing to be supervised by you? what are you supervising me for?
-
-所有其它货币能这样吗？全是你不情我不愿，
-Can all other crypto currencies do this? It’s all you don’t want and I am not willing to do
-
-吓唬欺骗，而且没有中心负责任的
-scare and deceive, and there is no central responsible for it
-
-而且没有稳定币的，而且不接受政府监管的，那你就必须被干掉
-And there is no stable currency, and it does not accept government supervi-sion, then it must be taken out
-
-**原视频链接:**[https://gettr.com/post/phiv27450a](https://gettr.com/post/phiv27450a)
-
-Date:11/22/2021
-原视频标题: 比特币为什么会消失, 喜币 喜联储为什么这么牛
-Why will Bitcoin disappear, and why H-Coin, Himalaya Reserve is so outstand-ing
-原视频日期：2021/11/19
-原视频链接https://gettr.com/post/phiv27450a
-任务编号：2971
-视频时间段 : 0:00-2:17
-
-中听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 -天涯行
-审片: 洛杉矶盘古农场 -银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

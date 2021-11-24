@@ -2,32 +2,28 @@
 ---
 
 
-## 班农先生寄语新中国联邦人
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1689970/)
+## 加拿大安省法院裁定疫苗强制接种合法
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1690021/)
 
-作者：东京樱花团—在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-在1120三周年纪念大直播中，班农先生说，当前人类所面临的巨大威胁之一就是，确保科技不会压倒我们。喜币、喜交所、盖特，区块链、人工智能等都是先进的科技，但应当在人类的掌控之下。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-22.jpg)
-中共最严重的威胁就是利用科技——例如防火墙和社会信用评分系统——控制人民，榨取人民的剩余价值。人们反对强制疫苗接种，就是意识到科技走得太远了，对人们的自由形成了压制。我们不可以在摆脱了中共的控制之后，转而被科技所奴役。人类作为上帝的代表，有责任确保不仅能创造科技，而且不被科技所奴役和控制。
+原文采编：UCool优酷 编译撰稿：文所未闻
 
-班农先生说，民主制度虽然历经千年但仍不完美，人们每天都在为自由、民主和法治而战。他寄语新中国联邦人，尤其是20多岁的年轻人，面对这些难题要学会自我思考，这会让自己变得更为强大，会对自己的判断更有信心，会对自己的能力充满自信。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-61-edited.jpg)图片来源：financialpost
 
-参考链接：[班农先生寄语新中国联邦人](https://www.gettr.com/post/phlu59730f)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+据加拿大《金融邮报》11月23日报道，安大略省法院在11月20日做出裁决，驳回了原告方：【多伦多交通委员会】和【西奈山医院工会】，就保护其未接种“新冠病毒”疫苗成员而提出的“禁止强制接种令”的申请。
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+报道指出，原告方以违反《加拿大权利和自由宪章》为主要理由，反对当局正在推行的接种政策。并认为强迫医务工作者注射该疫苗，将使其遭受“不可挽回的伤害”和“巨大的经济损失”。但法院以雇员可以在“接种并继续工作”或“拒绝接种则失业”这两种情况下自行选择为由，驳回了原告方的请求。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+据悉，以上裁决将对今后类似的诉讼案件有指导性作用。但因本案仍可最终上诉至最高法院，所以在此之前，该如何具体执行和操作本次裁决结果，还有待各方进一步的确认。
+
+* * *
+
+校对编辑，发稿：硫酸羟氯喹64
+
+原文链接：
+
+[https://financialpost.com/fp-work/ontario-court-deals-another-blow-to-unions-efforts-to-protect-their-unvaccinated-members?utm\_term=Autofeed&utm\_medium=Social&utm\_source=Twitter#Echobox=1637664850](https://financialpost.com/fp-work/ontario-court-deals-another-blow-to-unions-efforts-to-protect-their-unvaccinated-members?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter#Echobox=1637664850)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

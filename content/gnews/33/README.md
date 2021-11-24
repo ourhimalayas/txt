@@ -2,28 +2,20 @@
 ---
 
 
-## 文贵与班农先生谈平民运动
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1689644/)
+## 意大利制造的关闭病毒大门的药物
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1689688/)
 
-文编：Hima
-视频：七哥
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11232.jpg)图片来自Ansa
+一种能够阻断冠状病毒网关的药物，它可能会成为针对新冠病毒的新可能武器，其专利已经被注册，该研究来自米兰国立大学的 Paolo Ciana、比萨高等圣安娜学院的 Vincenzo Lionetti 和意大利研究所的 Angelo Reggiani 共同的一项研究。
 
-当政治被家族化的时候这个国家一定是独裁的，不可能有民主。有街头政治的时候，就是走上街头抗议时，这个国家一定是有法治的，一定会有未来的。而且班农先生和我谈到这个世界上平民运动的本质就是一人一票，他不可思议中国人没有选举，没有土地。班农先生看到了这些后他坚信不疑的支持中国老百姓，这是一切事实的结果，这是我们第一天就谈到的。特别是郝海东先生和叶钊颖妹妹刚出来的时候，很多人没意识到班农先生说过一句话我们都忽略掉了。他说：平民运动他绝不是某个阶层的运动，它是整个社会的运动。这才是最重要的，他说：郝海东和他的夫人代表了某种阶层，特别是运动员。班农先生对我们实在是太重要了，他为我们提供了平民运动的本质，还有宗教自由，信仰自由；有独立的法治的，这是一个鬼佬白人站在这里非常有代表性的。
+药理学教授 Ciana、麻醉学教授 Lionetti 和药理学高级研究员兼首席研究员 Reggiani 的联合声明解释了该研究的三个主要结构说明 ：通过阻断 Ace2 受体来抑制 Sars-CoV-2 的变体。它基于使用 DNA 适体或短寡核苷酸链，能够特异性结合 Ace2 残基 K353 使其成为任何冠状病毒都无法获得 Spike 蛋白。
 
-校对：HimaFaFA
-发布：HimaBoy
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+三位发明人及其团队已经确定了两种抗 K353 适配体，它们能够以剂量依赖性方式抑制病毒 Spike 蛋白与人 Ace2 蛋白的结合，从而有效防止细胞感染。这将有可能开发一种新的精准治疗方法，它不会刺激免疫系统或产生重大副作用。事实上，核酸作为药物的潜在毒性远低于其他创新药物，如单克隆抗体或其他治疗性蛋白质。
 
-**关注我们**
+原文链接：[https://www.today.it/attualita/farmaco-italiano-covid.html](https://www.today.it/attualita/farmaco-italiano-covid.html)
 
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 
