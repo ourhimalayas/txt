@@ -2,38 +2,95 @@
 ---
 
 
-## 墙内要闻汇编 11月24日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1691470/)
+## 与美国疫苗受伤者的对话
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1691537/)
 
-素材：东京樱花团｜GNEWS组
-![](https://lh4.googleusercontent.com/KaINJyco3RAdiJQuTbw1_jXN-xBq5Qf1zBTfL3-kE1UUulQChKc4bn_oDTjxx3VerjIWCJtRJ67x3VjJcVhQ3vFOmQcmX2cqu3P643TuYe1SFY7nFOgKnZIPXe8q-srweMJf6rkz)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1124/20211124121507718.jpg)
-1、[**网信办再下令整顿娱乐圈 “失德”明星艺人难再复出**](https://www.aboluowang.com/2021/1124/1675225.html)
+翻译： Jenny Ball
 
-中国网信办发出《通知》，要求各部门规范娱乐明星网上信息，关注明星艺人的动态，并对其粉丝数量进行信用评级，将被官方定性为“失德”的明星艺人纳入“负面清单”，进行实时监测和动态预警并严防其“曲线复出”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-08-23-at-9.36.07-PM-1024x555-1.png)图片取自原文
 
-2、[**服务三孩政策 中国多省计划增设辅助生殖机构**](https://www.aboluowang.com/2021/1124/1675230.html)
+你以为你知道……关于Covid“疫苗”的真相？
 
-中国媒体报道，继中国政府近期宣布三孩政策后，已有上海、天津、河南、陕西、贵州等12个省市近日发布了下一个五年计划《人类辅助生殖技术应用规划（2021-2025年）》，表示会增加辅助生殖服务机构的数量。其中，四川省未来五年计划增加多达20家辅助生殖服务机构，安徽、陕西等地计划新增十家。截至去年六月，中国共有500多家合法的“人类生殖辅助医疗机构”，但它们的地理分布明显不均。
+被遗忘的人——克里斯汀·多兰采访受疫苗伤害者
 
-3、[**中共新规触发外企纷纷取消在华项目**](https://www.aboluowang.com/2021/1124/1675517.html)
+8 月 24 日上午，备受尊敬的记者 克里斯汀·多兰（Christine Dolan）将联合 CDM.press 发布一系列对疫苗受伤患者的情感采访。其中一些人是实验化合物临床试验的一部分。其他人在获得 FDA 紧急使用授权后接受“疫苗接种”后受伤。
 
-中国英国商会周二（11月23日）发布的一份报告显示，中国有关数据传输和本地化方面的政策正导致企业因担心合规问题而取消在中国的项目。该商会写道：“这种不确定性正在引发相当大的焦虑，因为它可能对来自中国的数据产生不可逾越的障碍。”该商会补充说，这些法律的其他部分仍然过于模糊，进行安全评估的确切行政要求也使英国公司感到困惑。
+访谈将以播客格式每天在 cdm.press 上发布。多兰和 CDM 致力于公开“疫苗头条背后的信息”。
 
-4、[**台企远东集团遭重罚 专家：引发外资撤离中国**](https://www.aboluowang.com/2021/1124/1675508.html)
+后续采访将包括医疗保健专业人员，及其在政府没有关于长期和短期后果的科学数据，强制为全体人口接种疫苗的经历。
 
-台湾远东集团中国投资遭中共以环保为由重罚人民币8,862万元（约1,394万美金），国台办暗示背后有政治因素。多位专家指出，会引发外资撤离中国。有财经专家认为会进一步加速台商回台投资。陆委会表示，对中共此举将研议采取必要反制与防范措施。
+克里斯汀·多兰是一位经验丰富的调查记者、电视制作人、作家和摄影师。她是《美国人对话》（American Conversations）的联合创始人，其形式侧重于对有关**“**头条新闻背后的故事**”**的关键问题的深入分析。它的附属机构《对话》（Conversations With…）与 CDMedia 的主编托德·伍德（L Todd Wood）合作，正在研究** Covid **的所有不同事实。她最近担任《真实新闻》（Just the News）的高级记者，报道 2020 年总统竞选和新冠病毒大流行。
 
-5、[**向现实低头！缺煤限电后 中共国10月首次清关放行澳洲煤碳**](https://www.aboluowang.com/2021/1124/1675257.html)
+在四个美国网络（ABC、CNN、PBS、NBC）报道国内和国际政治、三场战争、人道主义危机后，她在过去21年里在六大洲的街头和互联网上调查了跨国和跨犯罪的人口贩运领域，包括器官和药物贩运。
 
-随着和澳洲政治关系恶化，中共国从去年底就没有放行澳洲煤炭进口。上月首次为进口澳大利亚煤炭办理了清关。中国多地在9月爆发限电危机，暴露出煤炭短缺及价格飙涨的情况。中国海关资料显示，10月份中国进口了279万吨澳洲煤炭。彭博社指出，这些煤炭可能是之前未获清关而滞留中国港口的货物。这些煤炭中大部分是用于取暖的动力煤，但也包括钢铁厂使用的77.8万吨焦煤。
+在法学院接受刑事调查员培训后，ABC 新闻聘请了她，多兰女士在那里成为 ABC 新闻传奇政治总监哈尔·布鲁诺（Hal Bruno）的门徒。后来，在 CNN，她成为哈尔的竞争对手，成为 1980 年代任何美国网络的第一位女性政治总监。当《今日》报道非洲时，她担任 NBC 新闻的制片人，并共同拥有 PBS 的国际关系联合系列节目。在调查班加西袭击事件时，她的故事登上了《华盛顿时报》的头版，其中有美国国务院无法否认的证据。
 
-6、[**中国11城人均存款超10万元 惟扣除通胀和债务后所剩无几**](https://www.aboluowang.com/2021/1124/1675246.html)
+2021 年 7 月 22 日，她在佐治亚州亚特兰大宣布，她现在专注于大药企内部的欺诈行为，该欺诈行为将人类变成了医疗贩运的受害者。
 
-中国人民银行公布，截至去年底，中国居民存款余额为93万多亿元，其中人民币存款为92万多亿元，增长13.9%。人均住户存款金额为6.62万元。其中11个城市居民人均存款超过10万元。学者认为，仅从上述数字不能反映居民生活提高，相反受经济下滑影响，居民消费能力正逐步下降。又指由于政治需要，官方公布的数据往往为了宣传社会繁荣，因此与现实差异较大，数据亦只能说明财富高度集中在少数人手中。
+“地球上的每个成年人都需要了解真相，并站出来保护儿童，他们不是科技的数据数字，也不是大药企的豚鼠。我已经调查了硅谷二十多年，了解他们的平台如何被用于 人口贩卖。大科技公司增加了其药企广告，甚至审查那些在互联网上的疫苗受伤者，而 大药企则把目标盯向儿童，“多兰说。
 
-*编辑：东京樱花团 /東洋武士
-发布：东京樱花团 /平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+主持人多兰与因疫苗受伤的肖恩·维迪拉 (Shawn Vidiella)[谈论她在莫德纳接种前后的生活巨变](https://creativedestructionmedia.com/video/2021/11/15/episode-22-american-conversations-with-vaccine-injured-shawn-vidiella/)。
+
+“不要相信医学界，他们不为你着想……”
+
+主持人多兰与米歇尔·萨基希安 (Michele Sarkisian) 谈论她的母亲，她在“接种”之前很活跃，充满活力，[现在她死了](https://creativedestructionmedia.com/video/2021/11/10/episode-21-american-conversations-with-vaccine-injured-michele-sarkisians-mom/)。
+
+“她是一个积极、外向的人，出去和朋友们玩得很开心……”
+
+[多兰与疫苗受伤的患者安吉莉亚·德塞尔（Angelia Desselle）和肖恩·维迪拉（Shawn Vidiella）交谈](https://creativedestructionmedia.com/news/2021/11/03/breaking-early-rollout-vax-injured-claim-ivermectin-successfully-treated-their-paralysis/)。两人描述了服用伊维菌素如何帮助缓解疫苗引起的麻痹以及其他严重症状。然而，伊维菌素的使用仍然受到限制。两位女性都要求与安东尼·福奇博士会面。
+
+[主持人多兰与因疫苗受伤的克里斯蒂·多布斯 (Kristi Dobbs) 谈论了](https://creativedestructionmedia.com/investigations/2021/10/20/breaking-nih-warned-vaccine-injured-mom-not-to-vaccinate-her-children-in-march/)她今年 3 月接受 NIH 的检查，以及他们如何警告她不要给孩子接种疫苗。
+
+“我这样做是因为我想保护孩子……”
+
+[多兰与因疫苗受伤的马特·哈德森 (Marte Hudson) 交谈](https://cdm.press/UM)，谈到她很难在政府或大型制药公司中找到任何人来承认疫苗受伤的责任，或为其提供帮助。
+
+“绝对不给孩子接种疫苗……”
+
+[多兰与因疫苗受伤的马特·哈德森 (Marte Hudson) 交谈](https://creativedestructionmedia.com/video/2021/09/19/episode-17-american-conversations-with-vaccine-injured-interview-with-nicole-boltz/)就她的疫苗受伤以及她对没有人（包括政府或大型制药公司）会帮助她感到震惊进行了交谈。
+
+“确保你在打完针后有人带你去急诊室……”
+
+“你无法调查，因为那里没有关于疫苗的真实信息……”
+
+主持人多兰就她可怕的疫苗伤害以及缺乏政府或大型制药公司的任何帮助，[多兰与因疫苗受伤的马特·哈德森 (Marte Hudson) 交谈](https://cdm.press/TV)。
+
+“你的神经末梢被破坏了**……**你的身体已经告诉你皮肤中的神经死亡了**……**你自己的身体被彻底攻击了**……”**
+
+**“**他们制造了一种新的疾病**……**我失去了我的整个生命**……”**
+
+主持人多兰与苏珊娜·纽厄尔 (Suzannah Newell) 谈论了她可怕的疫苗伤害，以及医学界和大型制药公司将她的健康问题归类为“焦虑症”的企图。
+
+**“**我希望医学界承认我们是伤害是真实的**……”**
+
+主持人多兰和 托德·伍德 与疫苗受伤的患者詹妮弗·伯特 (Jennifer Burt) ，就政府或大型制药公司在她与疫苗相关的严重健康问题上缺乏帮助进行了交谈。
+
+**“**你得帮帮我们，不能就这么无视我们**……”**
+
+主持人多兰和托德·伍德与接种疫苗的受伤患者安德里亚·罗西塔 (Andrea Rosita) 讨论了她可怕的健康问题，以及医学界拒绝承认她的症状是真实的。
+
+**“**没有人愿意承认这些疫苗反应**……”**
+
+[主持人多兰和托德·伍德与蒂姆·哈灵顿 (Tim Harrington)](https://creativedestructionmedia.com/news/2021/09/09/episode-12-american-conversations-with-vaccine-injured-interview-with-tim-justin-harrington/)，以及他接种疫苗的病人儿子贾斯汀 (Justin) ，就贾斯汀因接种疫苗反复出现的健康问题进行了交谈。
+
+**“**中国人要把我们都买下来了**……****”**
+
+主持人多兰和托德·伍德与接种疫苗的患者艾琳·罗德 (Erin Rhodes) 讨论了她因疫苗而造成的可怕健康问题，以及围绕疫苗要求的“集体思考”。
+
+**“**仅仅因为你不知道，并不意味着它不会发生**……”**
+
+如果你有关于疫苗受伤的信息并且可以去记录电子邮件[\[email protected\]](/cdn-cgi/l/email-protection#92d3fff7e0fbf1f3fcd1fdfce4f7e0e1f3e6fbfdfce1d2e2e0fde6fdfcfff3fbfebcf1fdff)
+
+**参考资料：**[creativedestructionmedia][American Conversations With Vaccine Injured](https://creativedestructionmedia.com/american-conversations/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,107 +15,107 @@
 
 ---
 
-### [有声|菲律宾总统对中共非法阻拦菲律宾补给船表示憎恨](/content/gnews/1/README.md)
+### [有声|台湾智库建议：推进台湾版本的“军事质量优势”计划](/content/gnews/1/README.md)
  ` MOSREC`
 
-### [美前众议员称 对班农的指控是国会权力滥用](/content/gnews/2/README.md)
+### [有声|接种辉瑞疫苗最初两个半个月，美国收到近16万例不良反应报告](/content/gnews/2/README.md)
+ ` MOSREC`
+
+### [第二届美台经济会议结束 双方达成合作共识](/content/gnews/3/README.md)
  ` GTV新闻访谈`
 
-### [【G时新闻】加拿大卡尔加里加入全球反“疫情极权”集会](/content/gnews/3/README.md)
- ` G-时新闻`
+### [有声|菲律宾总统对中共非法阻拦菲律宾补给船表示憎恨](/content/gnews/4/README.md)
+ ` MOSREC`
 
-### [币安不安 客户信息被赵长鹏出卖给中共](/content/gnews/4/README.md)
+### [美前众议员称 对班农的指控是国会权力滥用](/content/gnews/5/README.md)
  ` GTV新闻访谈`
 
-### [爆料革命战友要团结！未来只有抱团生存](/content/gnews/5/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [11/24/21 香港快讯 《大公报》追击民研 斥煽惑不投票 钟剑华：学术研究没理由构成煽动](/content/gnews/6/README.md)
+ ` 英喜-粵語組`
 
-### [【G时新闻】欧洲各国上周末爆发反对强制接种疫苗的抗议活动](/content/gnews/6/README.md)
+### [【G时新闻】加拿大卡尔加里加入全球反“疫情极权”集会](/content/gnews/7/README.md)
  ` G-时新闻`
 
-### [郭文贵先生分析KYC慢的原因以及将来的速度](/content/gnews/7/README.md)
+### [币安不安 客户信息被赵长鹏出卖给中共](/content/gnews/8/README.md)
+ ` GTV新闻访谈`
+
+### [爆料革命战友要团结！未来只有抱团生存](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵焦点（ 11/24）： 持有喜币的战友要行动起来](/content/gnews/8/README.md)
+### [【G时新闻】欧洲各国上周末爆发反对强制接种疫苗的抗议活动](/content/gnews/10/README.md)
+ ` G-时新闻`
+
+### [郭文贵先生分析KYC慢的原因以及将来的速度](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文贵焦点（ 11/24）： 持有喜币的战友要行动起来](/content/gnews/12/README.md)
  ` 秘密翻译组-原创组`
 
-### [平明运动的本质就是一人一票](/content/gnews/9/README.md)
+### [平明运动的本质就是一人一票](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|日本将拨款52亿美元资助台积电和其他芯片制造商](/content/gnews/10/README.md)
+### [有声|日本将拨款52亿美元资助台积电和其他芯片制造商](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [DC每日热点1124](/content/gnews/11/README.md)
+### [DC每日热点1124](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [新中国联邦雇佣军如影随形保护战友安全](/content/gnews/12/README.md)
+### [新中国联邦雇佣军如影随形保护战友安全](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|欧洲各国上周末爆发反对强制接种疫苗的抗议活动](/content/gnews/13/README.md)
+### [有声|欧洲各国上周末爆发反对强制接种疫苗的抗议活动](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [比特币为什么会消失？喜币喜联储为什么这么牛？](/content/gnews/14/README.md)
+### [比特币为什么会消失？喜币喜联储为什么这么牛？](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|美日澳德加五国在菲律宾海举行联合军演](/content/gnews/15/README.md)
+### [有声|美日澳德加五国在菲律宾海举行联合军演](/content/gnews/19/README.md)
  ` MOSREC`
 
-### [11/24/2021 国际财经快讯：美国联合其他国家释放石油储备试图降低油价；亚马逊和苹果被处以2.25亿美元的意大利反垄断罚金](/content/gnews/16/README.md)
+### [11/24/2021 国际财经快讯：美国联合其他国家释放石油储备试图降低油价；亚马逊和苹果被处以2.25亿美元的意大利反垄断罚金](/content/gnews/20/README.md)
  ` 秘密翻译组金融团队`
 
-### [银河快讯: 日本，泰国和新加坡举行电话会谈；大型服装公司停止使用新疆棉](/content/gnews/17/README.md)
+### [银河快讯: 日本，泰国和新加坡举行电话会谈；大型服装公司停止使用新疆棉](/content/gnews/21/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [劳动力不够，统计局来凑](/content/gnews/18/README.md)
+### [劳动力不够，统计局来凑](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|美国针对德国和丹麦发出旅行警告](/content/gnews/19/README.md)
+### [有声|美国针对德国和丹麦发出旅行警告](/content/gnews/23/README.md)
  ` MOSREC`
 
-### [50亿！港共政府首次发行人民币债券](/content/gnews/20/README.md)
+### [50亿！港共政府首次发行人民币债券](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [默克尔称德国起初对中共国的态度可能很天真](/content/gnews/21/README.md)
+### [默克尔称德国起初对中共国的态度可能很天真](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|美国媒体批评拜登对台政策虚虚实实含糊不清](/content/gnews/22/README.md)
+### [有声|美国媒体批评拜登对台政策虚虚实实含糊不清](/content/gnews/26/README.md)
  ` MOSREC`
 
-### [默克尔表示，德国可能从一开始就对中国过于天真了](/content/gnews/23/README.md)
+### [默克尔表示，德国可能从一开始就对中国过于天真了](/content/gnews/27/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [银河快讯：日越同意加强合作应对中共；日元汇率跌至4年来最低](/content/gnews/24/README.md)
+### [银河快讯：日越同意加强合作应对中共；日元汇率跌至4年来最低](/content/gnews/28/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [中共10个月发了6.49万亿元地方债](/content/gnews/25/README.md)
+### [中共10个月发了6.49万亿元地方债](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|数万名未接种联邦雇员本周一失业 众议员抨击白宫强制接种令](/content/gnews/26/README.md)
+### [有声|数万名未接种联邦雇员本周一失业 众议员抨击白宫强制接种令](/content/gnews/30/README.md)
  ` MOSREC`
 
-### [与美国疫苗受伤者的对话](/content/gnews/27/README.md)
+### [与美国疫苗受伤者的对话](/content/gnews/31/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [企业家挑战卫生官员就疫苗展开辩论但无人接受](/content/gnews/28/README.md)
+### [企业家挑战卫生官员就疫苗展开辩论但无人接受](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [澳洲税局不信加密货币投资者会自己保存交易记录](/content/gnews/29/README.md)
+### [澳洲税局不信加密货币投资者会自己保存交易记录](/content/gnews/33/README.md)
  ` 走进澳洲`
 
-### [爆炸消息：60岁以下接种成年人死亡率是未接种的两倍](/content/gnews/30/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [墙内要闻汇编 11月24日](/content/gnews/31/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [维加诺大主教：关于反对所谓“世界新秩序”的全球呼吁](/content/gnews/32/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【G时新闻】已完全接种疫苗的法国总理仍感染新冠病毒](/content/gnews/33/README.md)
+### [【G时新闻】已完全接种疫苗的法国总理仍感染新冠病毒](/content/gnews/34/README.md)
  ` G-时新闻`
-
-### [科学家们不清楚为何非洲成功的躲过了中共病毒？](/content/gnews/34/README.md)
- ` 澳喜农场`
 
 ### [班农的愿景－川普耳边人正在组织一场平民主义革命](/content/gnews/35/README.md)
  ` 西班牙巴塞罗那喜悦农场`
