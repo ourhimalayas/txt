@@ -2,124 +2,32 @@
 ---
 
 
-## 澳大利亚领导人在疫苗强制方面既愚蠢又专制, 一个非常糟糕组合
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1689849/)
+## 拜登释放5千万桶战略石油平抑物价
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1689863/)
 
-[https://gtv.org/video/id=619cd7dce6900076612eccee](https://gtv.org/video/id=619cd7dce6900076612eccee)
+#### 温哥华扬帆农场 丁过
+![](https://assets.gnews.org/wp-content/uploads/2021/11/148371609137959700_a640x364.jpg)来源：视觉中国
+据红声传媒11月23日报道，由于能源价格大幅上涨同时带动物价走高，美国消费者需要比以往支出更多的生活成本，因此美国总统乔·拜登今天宣布释放5千万桶战略石油储备以平抑物价。
 
-**Reporter**
-**记者**
+来自福克斯的报告显示，在计划释放的5千万桶原油中，3200万桶进入原油交易系统，此后将用几年时间来回补这部分储备；另外1800万桶国会已经授权政府直接向市场出售。
 
-Do you think at all that your rhetoric around calling people anti-vaxxers,
-你认为你关于称人们为反疫苗者的言论
+拜登政府此举是为了在 2022 年中期选举之前躲避信任危机，但作用相当有限：全世界每天的原油产量近一亿桶，美国每天的原油产量约1250万桶，释放的5千万桶约相当于美国4天的产量，而美国的总战略储备为6.06亿桶，仅能满足美国一个多月的原油需求。
 
-some of whom were vaccinated,
-其中一些人已经接种了疫苗
+如果在明年的中期选举之前通货膨胀得不到控制，民主党将失去参众两院，拜登就会成为一个摆设，甚至有可能被弹劾下台。这是拜登极力联合中共国、日本释放战略石油储备对抗欧佩克+减产的首要原因。
+![能源战争开始，产油国之间的爱恨情仇！ - 财经资讯(游戏新闻)](https://image.uc.cn/s/wemedia/s/upload/2021/aae07cf1745ea86e606abdf5c14f486a.jpg)来源：游戏新闻
+显然，拜登政府要控制由中共病毒、长期滥发货币和供应短缺等结构性因素造成的全球性通胀，避免美国的输入性通胀，是一项不可能的任务。
 
-has had an impact at all on vaccine take-up in parts of the Territory?
-是否对领土部分地区的疫苗接种产生了任何影响？
+已经经历长时间低油价之苦的欧佩克+不会放过这次发财的机会，如果不出意外，以俄罗斯和沙特为首的欧佩克为了保护自己的根本利益，将针锋相对地宣布减产以维持油价的上涨趋势，双方的激烈博弈将陆续展开。
 
-Australia official
-澳大利亚官员
+由于川普大力扶持传统能源产业，将能源自足作为其执政的战略支点，在2019年四季度到2020年第一季度短暂的时间里，美国实现了能源自足，但由于拜登政府对传统能源产业的严厉打压和中共病毒的肆虐，导致美国的油气产能遭到严重破坏，已经很难恢复到2019年底的产量。
 
-No，I don’t work data
-不，我不研究数据
+对于能源价格的飚涨，美国现任能源部长珍妮弗·格兰霍姆道出了原委，她说，为了环境保护，我们需要摆脱石油和天然气以完成清洁能源转型，但我们的过渡将很艰难。当油气价格飚升引起民怨时拜登又呼吁美企多产油气，难怪他的支持率不断走低。参议员克鲁兹批评拜登不惜一切代价强推能源过渡，而美国必须为此经历一场前途未卜的危机。
 
-If you are anti mandate,
-如果你反对强制疫苗接种
+参考：
 
-you are absolutely anti-vax on what your personal vaccination status is.
-在你的个人疫苗接种状况你绝对也是疫苗反对者
+[白宫宣布计划耗尽战略储备的 50 百万桶石油](http://usstock.jrj.com.cn/2021/11/24013833911716.shtml)
 
-If you support campaign, give a green light
-如果你支持抗议，为其开绿灯
-
-give comfort to support anybody who argued against the vaccine,
-安慰支持任何反对疫苗的人
-
-you are an anti Vaxxer absolutely.
-你绝对是一个反疫苗者
-
-Your personal vaccination status is utterly irrelevant.
-你的个人疫苗接种状态完全无关紧要
-
-If you campaign against the mandate.
-如果你抗议反对这个强制命令
-
-If you campaign against people being vaccinated in vulnerable settings,
-如果你反对在脆弱环境中接种疫苗的人
-
-teachers in classrooms,
-在教室里的老师
-
-I’ll be really clear at that point time people were actually sup-porting
-那时我真的很清楚，人们实际上是支持
-
-the idea of a teacher being unvaccinated in a remote community classroom
-教师在偏远社区教室中不用接种疫苗的想法
-
-with kids who can’t be vaccinated
-与无法接种疫苗的孩子在一起
-
-I reject that, I still reject it.
-我反对那个想法，我仍然反对它
-
-And if you are out there in any way, shape or form
-如果你以任何方式、状况或形式出现在那里
-
-campaigning against this mandate that you are absolutely anti-vax.
-反对强制疫苗接种，那么你绝对是反对疫苗者
-
-If you say pro persuasion stuffer it, shove it
-如果你想游说我，省省吧
-
-we are absolutely going to make sure as many territories as pos-sible are vaccinated
-我们绝对会确保尽可能多的地区接种疫苗
-
-that is our best protection against this thing.
-这是我们对这种病毒最好的保护
-
-As you look at the dose volumes coming out since
-当你看到自去年以来出现的剂量时
-
-they said we’ve doubled dose at 80, remote communities five and up
-我们已经将剂量增加了一倍，为80微克，偏远社区的计量为50微克和更高
-
-I think you’ll see our vaccine mandate is absolutely crucial to protecting life,
-我想你会看到我们的疫苗强制对于保护生命绝对至关重要
-
-particularly aboriginal life
-特别是原住民的生活
-
-and I will never back away for supporting vaccines
-我永远不会因为支持疫苗而退缩
-
-and anyone out there who comes for the mandate.
-而且任何人反对强制接种
-
-You are anti-vax
-你是个反疫苗者
-
-**原视频链接**:[https://twitter.com/justin\_hart/status/1462791892219793414?s=24](https://twitter.com/justin_hart/status/1462791892219793414?s=24)
-
-Date:11/22/2021
-原视频标题: Australia’s leaders are dumb and authoritarian in vaccine mandates. A very bad combo
-澳大利亚领导人在疫苗强制方面既愚蠢又专制, 一个非常糟糕的组合
-原视频日期：2021/11/22
-原视频链接: https://twitter.com/justin\_hart/status/1462791892219793414?s=24
-任务编号：KE347(2983）
-视频时间段 : 0:00-1:37
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 –天涯行
-审片：洛杉矶盘古农场 –银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[拜登的能源部长刚刚大声说安静的部分，泰德·克鲁兹让她拥有它](https://world.huanqiu.com/article/45EXAuSVXPM)
 
  
 
