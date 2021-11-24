@@ -2,28 +2,27 @@
 ---
 
 
-## 日本大财团企业联合推出新数字货币
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690966/)
+## 文贵爆料11.23.2021 中共为让美参加冬奥会将再买1千亿美债
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1691118/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12313.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.xinmin.cn%2Fxmwb%2F2021%2F4%2FNEM1_20210420_C0326326330_A2760534.jpg&amp;imgrefurl=https%3A%2F%2Fwap.xinmin.cn%2Fcontent%2F31941540.html&amp;tbnid=9jZK94F6db1JBM&amp;vet=12ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ..i&amp;docid=C5khSQm7zUjvIM&amp;w=600&amp;h=399&amp;itg=1&amp;q=%E6%97%A5%E6%9C%AC%E6%95%B0%E5%AD%97%E8%B4%A7%E5%B8%81&amp;ved=2ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ)
-日经新闻周三报导，一个由大约70家日本企业组成的财团将开始测试最早在2022年下半年推出的一种数字货币，其中包括三家大型银行。
+撰稿：Shifter
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-24-at-7.59.26-AM.png)图片来源：GTV
+11月23号郭文贵先生健身直播中提到，中共为了让美国参加奥运会要再买一千亿美国债，而且恒大等房地产对外违约资金转成债。郭先生同时指出，爆料革命战友没有跟上GTV投资这班车的，后悔一百万倍都不拉倒！
 
-该报称，这种数字货币将由银行存款支持，并使用一个共同的平台来加快公司之间的大额转账和结算，降低成本。
+郭先生说中共的冬奥会现在还在较量中。两天前共产党开出大价钱，只要美国来参加奥运会，再买一千亿美债。而且恒大、融创保证不会突然破产，会循序破产。甚至考虑恒大、富力、融创（违约债务）可以转成（国）债，以让美国参加中共国冬季奥运会。郭文贵先生强调，是他说的这个信息，是独家爆料，而且新中国联邦不是吃素的，不是吃白菜长大的。
 
-财团成员包括三菱日联金融集团(MUFG)[8306.T](https://cn.reuters.com/companies/8306.T)、瑞穗金融集团[8411.T](https://cn.reuters.com/companies/8411.T)、以及三井住友金融集团[8316.T](https://cn.reuters.com/companies/8316.T)。该财团自去年以来一直定期开会，研究如何为数字支付建立一个共同的结算基础设施。
+郭先生说前一天跟联盟委员会开了半天会研究GTV投资的一系列政策。后来联盟委员会和GTV投资委员会开会时，GTB投资委员会暴怒、暴怒！新GTV一股都不接受了，所有的卡项目都要停，一概不接受。到是彻底停止了。GTV投资委员会说，“你（郭文贵）心里边只有战友了，那你就跟你们战友去玩去吧，别跟我们投资者玩了。”
 
-这三家银行都推出了自己的数字支付系统，但仍落后于软银集团[9984.T](https://cn.reuters.com/companies/9984.T)旗下的PayPay等科技公司。
+郭文贵先生感叹：没办法了。原来大家占的便宜的，一比十的，你就一比十了，以后没了。SEC的钱人家不要，一分都不要。战友们永远不知道什么叫机会，有时候叫七哥着急。你们永远不知道什么是肉，什么是金枪鱼那块肉。包括铁血组都不懂。墨迹、墨迹、墨迹，所有的机会都墨迹走了，哎，未来你们会懂的。没有跟上GTV这班车的，后悔一百万倍都不拉倒。没办法，没有再延迟这一说了，哎，到此为止了，GTV没有任何延迟一说了，所有的事情GTV都到此为止了。
 
-这一举措可能会影响日本央行正在单独进行的央行数字货币(CBDC)测试，政策制定者曾表示，如果央行要发行CBDC，他们将与民间部门密切合作。
+来源链接：[郭文贵先生23日GTV健身直播](https://gtv.org/video/id=619d0def57529032f659e83f)
 
-消息来源:
+发布：Shifter
 
-[日本约70家企业将联合测试推出数字货币–日经](https://cn.reuters.com/article/japan-digital-currency-test-1124-wedn-idCNKBS2I9056?il=0)
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

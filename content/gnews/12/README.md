@@ -2,22 +2,32 @@
 ---
 
 
-## 文贵焦点（ 11/24）： 持有喜币的战友要行动起来
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1691694/)
+## 有声|接种辉瑞疫苗最初两个半个月，美国收到近16万例不良反应报告
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1691907/)
 
-#### 撰稿：回响
-校对：萌萌的朋克
-![](https://assets.gnews.org/wp-content/uploads/2021/11/a-63.jpg)
-新中国联邦创始人、喜联储架构师郭文贵先生，在11月24日大直播中，严肃地告诫所有持有喜币的战友，必须行动起来保护自己的财富和生命。
+配音：香草山香港部 – 文凯琳
 
-郭先生明确地倡议全球币安用户，要行使自己的法律权利，起诉把客户隐私信息出卖给中共的赵长鹏。如果不行动，就会坐等中共的掠夺甚至杀戮。
+近日，美国律师阿隆·喜利收到FDA提供的部分档案。其中显示，截至2021年2月28日，辉瑞疫苗开始注射的最初两个半个月内，总共收到15万8千893例不良反应。其中有1223例是死亡，520例是后遗症。
 
-文贵先生提醒所有持有喜币的战友首先要把自己的相关私密信息进行所重保护；其次要高度注重电子设备的清零和安全保护；最后是要积极和农场联系与配合对福利币进行锁定封闭期设置。
+女性出现不良反应的次数是男性的3.25倍。出现最大量不良反应的人群是在31到50岁。
 
-郭先生认真地提醒战友：喜币可能引来杀身之祸！必须高度重视并采取富有成效的行动，保护新中国联邦人的财富。
+最常出现不良反应的身体部位，依次是神经系统，肌肉骨骼结缔组织系统，肠胃系统，呼吸系统，皮肤及皮下组织。
 
-信息来源：[文贵大直播（2021/11/24）](https://gtv.org/broadcast/watch/619e389338f84e66c64ec66c)
+出现比较多的不良反应症状有淋巴结病变、心跳加速、恶心、发烧、冷颤、呼吸困难、皮肤搔痒红疹等。
 
+文字版原文：[接种辉瑞疫苗最初两个半个月，美国收到近16万例不良反应报告](https://gnews.org/zh-hans/1687120/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

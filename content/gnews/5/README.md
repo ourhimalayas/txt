@@ -2,38 +2,33 @@
 ---
 
 
-## 美前众议员称 对班农的指控是国会权力滥用
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1691848/)
+## 听听疫苗后副作用患者及其家属的心声
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1691996/)
 
-作者：纽约香草山 – 飞虹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月22日，美国前众议员巴尔发布文章称，国会对班农先生发出蔑视国会的起诉书不过是民主党人的党派权力滥用。
+撰稿: 历史铭记
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2-13.jpeg)
+视频：历史铭记
 
-巴尔表示，根据联邦法律和最高法院的法规，一个人被判定为藐视国会罪的先决条件为，此人应该与某项犯罪有关系。
+字幕：Gradient Boost
 
-巴尔还补充道，在1月6日的国会山事件中，一方面，没有一个被抓捕的人受到了任何指控，同时，对于国会起诉书中反复提到的“暴动”和“国家恐怖主义”等煽动性措辞，联邦法律中既没有定义，也没有将其规定为犯罪；另一方面，国会或许正在试图将川普、班农以及其他关系密切的人与国会山事件联系在一起。换言之，没有任何证据表明，班农先生与这个事件有关。
+上方视频中的这位女士一直在做莫德纳疫苗注射后被伤害情况更新。这是她第二针后的第十天。感谢上帝，这是她第一天没有因头疼而躺在床上。
 
-对此，班农先生在战斗室节目中表示，他不会妥协，而且“战斗室”里没有哀嚎，更不会有眼泪。
+视频拍摄前一天夜里她又去了急诊室，这已经是两个星期内的第二次了。她丈夫回忆，他们相识的十二年间，她只去过急诊室一次，是因为流产。昨夜她觉得她是心脏病发作，医生告诉她症状和疫苗相关。这已经是不同的医生第五次这么确认了。
 
-参考链接：
-1）[从对班农先生的起诉中看中共对美国司法产生的负面影响](https://gettr.com/post/phnvaveb0b)
-2）[BARR: Contempt Case Against Bannon Is An Abuse Of Congress’ Power](Contempt%20Case%20Against%20Bannon%20Is%20An%20Abuse%20Of%20Congress’%20Power)
+她的疫苗后遗症包括心率不齐，血压忽高忽低，几乎晕倒，虚弱，头晕，偏头疼，胸痛等等。这不是焦虑症状，她年轻时有过焦虑症，完全不一样。她只想分享她的故事，她注射了疫苗，得了非常非常严重的疾病。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+另有一位女士的老公因疫苗而被确诊为心肌炎，随后她将自己的故事在TikTok上进行了分享。她的初衷十分简单，只是希望为了能够被更多的人所倾听。
 
-总编：文徬
-编辑：文特
-校正/发稿：谐趣园
+然而当她发布的视频播放量超过了一万六千次的时候，抖音删除了她发布的视频，而给出的理由则是违反了社区规则条例。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这位女士表示大家之所以无法在媒体上找到这些内容，就是因为各大平台都存在审核措施，而受苦的人被完全排挤。女士最后呼吁大家必须站出来反对强制疫苗，人们必须勇敢的发声。
+
+新闻参考链接：
+
+[推特（一）](https://twitter.com/Lsmj3721/status/1463034437059317762)
+
+[推特（二）](https://twitter.com/Lsmj3721/status/1463033416140550147)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

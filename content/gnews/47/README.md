@@ -2,41 +2,24 @@
 ---
 
 
-## 共和党人修改各州法律对抗联邦疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1690318/)
+## 台湾受邀首届白宫民主峰会 中共未在名单
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690686/)
 
-作者： 加拿大扬帆农场 – Spirit
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据媒体11月22 日的报道，美国各州的共和党立法者正在坚决对抗拜登政府的新冠疫苗强制令。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9-15.jpg)
-消息显示，堪萨斯州立法机构中占主导地位的共和党人表示，应该给该州工作者以自由去规避强制新冠疫苗政策。为此，堪萨斯州已经暂停执行之前职业安全与健康管理局推行的临时紧急标准。
+撰稿：东京樱花团/皓月当空郭
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-186.png)（图片来源于本文链接）
+（华盛顿24日讯）美国总统拜登12月将召开首届虚拟民主峰会，美国国务院当地时间周二公布与会者名单，共有台湾、英国、德国、立陶宛、日本与印尼等110国和地区受邀，中共国、俄罗斯等威权国家未在名单上。
 
-同时，爱荷华州也通过了一项新法律，当中扩大了个人拒绝接种疫苗，但仍能保留工作或是获得失业福利的权利。
+另据台湾中央社报导，拜登12月9日至10日将召开虚拟领袖民主峰会，邀集国家元首、公民社会、慈善事业与私部门成员谈论民主挑战。首届峰会将聚焦3大主题，包括对抗威权、打击贪腐及促进对人权的尊重。
 
-而佛罗里达州的立法者则是通过了一项法案，要求企业如若不向其雇员提供一些疫苗豁免，将对企业的每项违规行为罚款1万美元。
+简评：我们可以看到，虽然美国和中共经济利益关系交往大，但是在民主人权方面，美国政府还是有清晰的认识，美国并没有因为中共经济来往多而忽略台湾，反而此次首届白宫民主峰会邀请台湾，而忽略中共！同时我们看到，世界各个国家的眼睛是雪亮的，能够判断出一个国家是民主还是威权极权独裁，民主的国家始终会得到别人的尊重！
 
-至于怀俄明州，该州州长已经签署了特别会议期间编写的20项法案中的一项，即提供400万美元的资金以挑战联邦的强制新冠疫苗令。
+信息来源：
 
-迄今为止，佛罗里达州、爱荷华州、肯塔基州、田纳西州、怀俄明州和北达科他州的保守派立法者已经完成了针对新冠疫苗强制令的特别会议，并通过了旨在使联邦新冠疫苗强制令无效的法案。
+[美國務院公布：台灣受邀白宮民主峰會　中俄未在名單內](https://tw.appledaily.com/international/20211124/KEEX4IZHPFBL5EE4OL5WYP3WZQ/)
 
-参考链接：
-[Republicans are changing state laws to try to get out of federal vaccine mandates](https://www.npr.org/2021/11/22/1057427047/republicans-are-changing-state-laws-to-try-and-get-out-of-federal-vaccine-mandat)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
-
-总编：文特
-编辑：Ivy001
-校正/发稿：Fei797
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

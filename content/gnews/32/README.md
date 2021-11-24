@@ -2,34 +2,37 @@
 ---
 
 
-## 企业家挑战卫生官员就疫苗展开辩论但无人接受
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1691523/)
+## 银河快讯: 日本，泰国和新加坡举行电话会谈；大型服装公司停止使用新疆棉
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1691610/)
 
-**翻译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip51.png)Image by [Steve Kirsch](https://creativecommons.org/licenses/by-sa/3.0/)
-企业家史蒂夫·基尔施（Steve Kirsch）挑战卫生官员就疫苗展开辩论，但无人接受。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-106.png)[图片来源](https://sn-jp.com/) 
+**1.****日本首相与泰国和新加坡总理举行电话会谈**
 
-以下是专家团队的部分名单，他们对 COVID 疫苗的安全性和/或早期治疗的有效性有共同的看法。我们是传统思维，无论白宫怎么说，我们都遵循数据所说的事实。
+[据NHK 11月22日报道，岸田首相与泰国总理和新加坡总理进行了一系列电话交谈，并确认了与每个国家紧密合作以发展关系的政策。岸田总理在与泰国总理的通话中说：“我们希望进一步发展我们两国的‘战略伙伴关系’，并加强合作，实现‘自由和开放的印度洋-太平洋’。”泰国总理表示：“我们希望密切合作，进一步发展我们的双边关系。”关于地区局势，岸田首相说他“强烈反对任何单方面改变东中国海和南中国海现状的企图”。两位领导人同意更紧密地合作以解决缅甸局势。](https://www3.nhk.or.jp/news/html/20211122/k10013358181000.html)
 
-并非我们所有人就所有问题都达成一致，因为我们都是不同领域的专家。
+**2.****印度和日本外长确认岸田首相访问印度的安排**
 
-主流专家认为我们在传播错误信息，但我们没有兴趣这样做，我们只看数据，就会得出不同的结论。我们愿意被说服我们犯了一个错误。但到目前为止，推动主流叙事的人，都不敢就数据实际显示的内容进行科学讨论。我们听到的都是噪音，即使《试验现场新闻》（TrialSiteNews）提议主持辩论时，也没有人出现。
+[据NHK 11月21日报道，林外长在上任后首次与印度外长进行了电话交谈，并确认他将为岸田首相访问印度作出安排，他说恢复两国领导人之间的年度访问极为重要。在电话中，两位外长同意密切合作，加强双边关系，因为印度和日本将在明年庆祝建交70周年。他们还一致认为，两位领导人恢复对印度的年度访问极为重要，除了岸田首相访问印度之外，还将努力举行外交和防务问题二加二部长级会谈。](https://www3.nhk.or.jp/news/html/20211122/k10013357881000.html?utm_int=news-politics_contents_list-items_003)
 
-想结束**“**错误信息**”**的最快方法是向我们表明我们错了，为什么没有人愿意这样做？
+**3.****日本将在企业人权风险管理方面寻求国际劳工组织的支持**
 
-更多信息，请访问史蒂夫·基尔施的《子锥栈》[https://stevekirsch.substack.com/p/my-team-of-vaccine-safety-experts](https://stevekirsch.substack.com/p/my-team-of-vaccine-safety-experts)
+[据共同社 11月22日报道，日本政府计划与联合国工人权利机构国际劳工组织合作，帮助经营全球供应链的公司加大保护人权的力度。其目的是确保日本公司了解情况，并让员工接受培训，通过采取所谓的人权尽职调查，识别和处理其全球供应链中的风险和侵犯人权行为。岸田首相更加重视人权问题。在为公司制定规则以确保其供应链不存在强迫劳动和童工等侵犯人权行为方面，日本被认为落后于欧洲和美国。](https://english.kyodonews.net/news/2021/11/c0ef9a5772e9-japan-to-seek-ilo-support-in-firms-human-rights-risk-management.html)
 
-**新闻来源**：[creativedestructionmedia.com][Entrepreneur Steve Kirsch Challenges Health Officials To Debate Over Vaccines But No One Will Accept](https://creativedestructionmedia.com/news/2021/11/23/entrepreneur-steve-kirsch-challenges-health-officials-to-debate-over-vaccines-but-no-one-will-accept/)
+**4.****十月份便利店销售额同比下降超过1%**
 
-* * *
+[据NHK 11月22日报道，上个月日本各地便利店的销售总额为8734亿日元，比去年同月下降了1%以上，这是两个月来的首次下降，这是对去年因刺激旅游和食品饮料需求的 “Go To 活动”而导致的度假胜地销售强劲的反应。尽管由于平均气温高，酒精饮料和软饮料的销售量有所增加，但与去年相比有明显下降。](https://www3.nhk.or.jp/news/html/20211122/k10013357871000.html?utm_int=news-business_contents_list-items_004)
 
-***审核：文乐
-校对：信心满满
-发布：信心满满***
+**5.****大型服装公司决定停止使用来自新疆维吾尔自治区的棉花产品**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+[据NHK 11月22日报道，主要服装公司三洋商社和TSI控股公司已决定停止使用在新疆维吾尔自治区生产的棉花产品。三洋商社曾在其部分产品中使用这种棉花，但该公司表示，由于怀疑这种棉花会造成人权问题，因此决定不能继续使用。经营Nano Universe等品牌的TSI控股公司也决定今年停止在秋冬服装中使用该标签，直到人权问题得到解决。](https://www3.nhk.or.jp/news/html/20211122/k10013357331000.html?utm_int=news-business_contents_list-items_011)
 
+**6.****七国集团(****G7)****外长会议将于下月在利物浦举行**
 
+[据共同社 11月22日报道，英国政府表示，下个月将在利物浦举行七大工业国集团外长的面对面会议。英国将首次邀请由10个成员组成的东南亚国家联盟的国家参加七国集团外长会议。英国政府在一份新闻稿中说，这次会议将从12月10日开始举行，为期三天，表明英国 “日益向印太地区倾斜”。日本内阁官房长官在周一的东京新闻发布会上对这一决定表示欢迎。](https://english.kyodonews.net/news/2021/11/ed606d566d1b-g-7-foreign-ministers-meeting-to-be-held-in-liverpool-next-month.html)
+
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：帆間知津
 
  
 

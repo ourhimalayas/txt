@@ -2,42 +2,31 @@
 ---
 
 
-## 澳洲税局不信加密货币投资者会自己保存交易记录
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1691515/)
+## 劳动力不够，统计局来凑
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1691605/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-64.jpg)
+[图片来源](https://www.cnn.co.jp/world/35170533.html)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/bitcoin-tax-image.jpg)
+彭博社24日报道称，在中共国2000年代出生的1000多万人被遗漏登记。
 
+根据中共国家统计局最近公布的年度统计数据，2000 年至 2010 年间出生的人口估计为 1.725 亿。这比之前的人口普查结果增加了 1160 万。
 
+中国的人口普查每10年进行一次，在2010年11月发布的第6次人口普查中，数据显示同期新生儿数量为1.609亿。
 
-图片来源：www.chiangraitimes.com
+对于这多出来的1160万“人口红利”，中共方面的解释是:2010年的人口普查是在11月1日进行的，该年11月和12月的出生人口可能被遗漏在统计中。据悉，统计局还表示:“2011年至2017年的出生率也会被向上调整，因为2010年以后出生的婴儿人数计算存在问题。”
 
+真不知在中共国还有什么可信，中共邪恶体制下，各行各业都得造假。如今，人口统计都出问题了。人口基数是影响政府决策的重中之重啊。在外资企业纷纷撤离之际，是什么让中共国家统计局出面来澄清统计疏漏。这样的错按中共的一惯作风应该是藏着掖着啊。这无非就像一位专横跋扈，行骗多年的老鸨，站在街上吆喝:“你们都别走啊，我楼上还有好多年轻的呢，别走啊。”中共，你的“子宫经济”已行将就木了！
 
-#### 编译：小红帽
+信息源：
 
-随着首次投资者继续热衷于加密货币，澳大利亚税务局（ATO）表示，不能再依靠纳税人独立应对所得税、资本收益和区块链记录的复杂世界。
+[出生届出せなかったか…1000万人余りの人口が大量に発見＝中国](https://news.yahoo.co.jp/articles/bb1b2c397ac2c5e1a11bd7b15589d63c389d3dab)
 
-澳大利亚在加密货币采用方面处于世界领先地位，Finder数据显示，10月份有近18%的人口拥有比特币、以太坊或卡尔达诺等加密货币的股份，高于3月份的13%。
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
 
-**澳大利亚税务局表示，加密货币的广泛采用伴随着独特的税收义务，因为根据澳大利亚法律，加密货币投资的利润需要缴纳资本利得税（CGT）。**
-
-周二在悉尼举行的国际税收管理会议上，澳大利亚税务局专员克里斯·乔丹(Chris Jordan)表示，许多新移民无法自行解析这些要求。
-
-**“在一个拥有新投资者的快速增长行业中，我们不能依靠纳税人自己保留投资收入和资本收益的记录，并把这些记录披露在他们的纳税申报中。”乔丹表示。**
-
-“相反，澳大利亚税务局已经转向交易所和经纪人来获取这些数据，允许政府机构在2020-2021财政年度预先填写8950万条数据。”
-
-**参考新闻：**[Australian cryptocurrency investors can’t be trusted to keep transaction records themselves, the ATO says (msn.com)](https://www.msn.com/en-au/money/news/australian-cryptocurrency-investors-can-t-be-trusted-to-keep-transaction-records-themselves-the-ato-says/ar-AAR40Zx?ocid=msedgdhp&amp;pc=U531)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

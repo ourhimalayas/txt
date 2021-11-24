@@ -2,37 +2,33 @@
 ---
 
 
-## 中共为彭帅事件洗地遭国际强烈质疑
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1690122/)
+## 拜登政府提交紧急命令，要求立即恢复强制疫苗规定
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1690183/)
 
-作者：东京樱花团 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/8CD75D52-66F6-499F-AA37-EFDA76424BF7_w1023_r1_s.png)
-北京时间11月21日，中共喉舌《环球时报》总编胡锡进，在其英文推特上发出网球名将彭帅，当日参加北京青少年网球决赛开幕式的部分照片及视频。这是在全世界对彭帅事件愈发关注之际，中共当局对墙内严密控制消息的同时，却极力向海外发出试图证明彭帅“安好”的表演片段，遭到国际社会强烈质疑！ 有网民讽刺共产党竟然为个人报平安，能在短短几天内就把彭帅培养成演员。
+撰稿：Grace
 
-国际女子网球协会主席赛门表示，中共发出彭帅的视频并不足以证明她的人身自由！彭帅是否能在没有胁迫，或者外力干预下自己做出决定和采取行动，仍是未知数！同时，该协会再次发声，称过去两天中共发出的视像，不能消除对彭帅现状的担忧。
+校对：Grace
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-29-at-6.29.22-PM.jpeg)图片来源：en-volve
+据《每日邮报》11月23日报道, 乔.拜登在当日提起紧急诉讼，寻求在其设置的规定面临一系列法律挑战后，立即恢复他对拥有100名或以上工人的私人企业的强制中共疫苗规定。
 
-有评论指出，彭帅事件已经变得有爆炸性，冲击了北京的政治圈。而该事件，正是检验中共是否符合举办冬奥会的最好标准。
+拜登在本月初，颁布了新的中共病毒疫苗规定，要求工人在2022年1月4日之前接种中共病毒疫苗，否则就要在工作场所戴上口罩，和每周都要接受中共病毒检测， 而对于这些检测的费用，在大多数情况下都要工人自己支付。
 
-参考链接：
-1:[https://www.voachinese.com/a/missing-chinese-tennis-star-reappears-in-public-in-beijing-20211121/6321914.html](https://www.voachinese.com/a/missing-chinese-tennis-star-reappears-in-public-in-beijing-20211121/6321914.html) 
-2:[https://www.voachinese.com/a/beijing-olympics-diplomatic-boycott-20211119/6320934.html](https://www.voachinese.com/a/beijing-olympics-diplomatic-boycott-20211119/6320934.html)
-3:[https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E8%8B%B1%E5%9B%BD%E4%B9%9F%E8%80%83%E8%99%91%E5%AF%B9%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E5%A4%96%E4%BA%A4%E6%8A%B5%E5%88%B6/a-59888162](https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E8%8B%B1%E5%9B%BD%E4%B9%9F%E8%80%83%E8%99%91%E5%AF%B9%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E5%A4%96%E4%BA%A4%E6%8A%B5%E5%88%B6/a-59888162) 
-4:[https://world.huanqiu.com/article/45gpbMvOPGb](https://world.huanqiu.com/article/45gpbMvOPGb) 5:[https://www.voachinese.com/a/Calls-to-Boycott-Beijing-Winter-Games-Grow-20211119/6318313.html](https://www.voachinese.com/a/Calls-to-Boycott-Beijing-Winter-Games-Grow-20211119/6318313.html) 6:[https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/al-10252021112409.html](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/al-10252021112409.html)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-10.jpg)
-编辑/校对/发稿：文留
+在拜登政府提出这条规定后，几个共和党领导的州、雇主、工会和其他组织对拜登政府的命令提起了诉讼。
 
-**更多资讯，更多关注**
+在11月6日，位于新奥尔良(New Orleans)的第五巡回法院(the Fifth Circuit Court) 初步暂停了该命令的执行，该暂停命令阻止了职业安全与健康管理局，继续实施其对雇主的强制中共病毒疫苗规定。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+第五巡回法院说，职业安全与健康管理局的规定，不适当地主张 “在工作场所法规的幌子下控制个人行为的几乎无限权力”。该法院命令职业安全与健康管理局不得采取任何措施来实施，或执行所谓的 “紧急命令”, 直到法院进一步下命令。
 
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+上周三，职业安全与健康管理局已经宣布，在第五巡回上诉法院维持其对该规定的暂缓执行后，它将暂停实施和执行其命令。但是在今天，拜登政府提交紧急命令，要求立即恢复其强制疫苗规定。
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+据报道，拜登的法庭动议是由司法部，向位于辛辛那提的美国第六巡回上诉法院(the Sixth U.S. Circuit Court of Appeals)提出的，该法院上周被一个跨地区诉讼联邦司法小组, 指定为裁决与拜登的强制疫苗规定有关的法律挑战的法院。所有与拜登该命令有关的案件都被合并到这法院。
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+报道称，当所有与该疫苗规定相关的案件被转移到辛辛那提时，第五巡回法院失去了对这些案件的管辖权。
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
+拜登政府在其诉讼中要求，第六巡回法院现在解除第五巡回法院的暂停令。
+
+**新闻来源：****[Biden administration files emergency order to immediately reinstate its sweeping vaccine mandate on private companies after an appeals court knocked it down and its enforcement was suspended](https://www.dailymail.co.uk/news/article-10235075/Biden-files-emergency-order-reinstate-sweeping-vaccine-mandate-private-companies.html)**
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

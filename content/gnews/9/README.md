@@ -2,21 +2,18 @@
 ---
 
 
-## 爆料革命战友要团结！未来只有抱团生存
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1691728/)
+## 【文贵先生大直播PPT】六中全会期间左棍司马南公开责难柳传志传递什么信号
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1691932/)
 
-文编：东京樱花团/樱花传媒
+撰稿：三票先生
+美工：健身健心，青山
+审核：三票先生，顽童先生
 
-视频:东京樱花团/中文小视频组
+【2021年11月24日文贵先生大直播PPT：六中全会期间左棍司马南公开责难柳传志传递什么信号】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/211.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/25-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/26-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/27-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/28-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/111-2-4.jpg)
+* * *
 
-11月7日，郭文贵先生在GTV大直播指出：
-
-目前我们正处在危难之中。在这场空前的病毒和疫苗的大灾难中，任何财富都不能拯救你。只有新中国联邦能告诉你真相并且牵着你走出黑暗，失去了新中国联邦你将永远在黑暗中徘徊。所以说爆料革命的战友是最幸运的一群人，要团结起来抱团生存！
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-4.png)
-
+发稿：云起时
 
  
 
