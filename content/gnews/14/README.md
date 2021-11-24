@@ -2,27 +2,32 @@
 ---
 
 
-## 加拿大安省法院裁定疫苗强制接种合法
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1690021/)
+## 联合国人权特别报告员敦促中共无条件释放张展
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1690022/)
 
-原文采编：UCool优酷 编译撰稿：文所未闻
+![中国公民记者张展 (照片来源：无国界记者网站)](https://gdb.voanews.com/D498E340-D840-4E3E-983D-4B16D3F7E3A7_w1023_r1_s.jpg)*人权卫士张展女士（资料照）*
+据美国之音11月24日报道，由联合国任命的独立人权专家们22日敦促中共当局出于人道主义立即无条件释放被监禁的公民记者、人权卫士张展，并向她提供医疗援助。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-61-edited.jpg)图片来源：financialpost
+现年38岁的张展曾是一名律师，因参加维权活动被注销律师执照。2019年底中共国武汉爆发新冠病毒疫情，张展于2020年2月作为公民记者进入武汉进行实地报道。她通过油管、微信和推特向外界传递了大量有关武汉疫情的视频报道，成为当时反映武汉疫情的主要独立信息来源之一。
 
+张展在2020年5月被当局抓捕，随后绝食抗议长达一年半。身高1米77的她体重掉到40公斤以下。医生警告说张展有生命危险。2020年12月上海浦东法院以“寻衅滋事罪”判处张展4年徒刑，张展成为中共国因报道武汉疫情而被判刑的首例。张展目前被关押在上海。
 
-据加拿大《金融邮报》11月23日报道，安大略省法院在11月20日做出裁决，驳回了原告方：【多伦多交通委员会】和【西奈山医院工会】，就保护其未接种“新冠病毒”疫苗成员而提出的“禁止强制接种令”的申请。
+全球维护新闻自由的人权团体无国界记者提名张展获得新闻自由奖，以表彰她的勇气。包括美国政府在内的一些国家政府以及无国界记者组织、人权观察等数十个国际人权组织多次呼吁中共当局立即释放张展。中共国记者只有两条出路，要么昧着良心说假话，要么说了实话进监狱，甚至丢掉生命。中共国也没有真实的新闻，只是传达领导的意思，那些说谎成性的骗子自己都不相信的话。张展，用生命说实话的记者，不应该被中共迫害致死。希望灭共的进程再快一些，多拯救这样的勇士的生命。
 
-报道指出，原告方以违反《加拿大权利和自由宪章》为主要理由，反对当局正在推行的接种政策。并认为强迫医务工作者注射该疫苗，将使其遭受“不可挽回的伤害”和“巨大的经济损失”。但法院以雇员可以在“接种并继续工作”或“拒绝接种则失业”这两种情况下自行选择为由，驳回了原告方的请求。
+新闻参考链接：[https://www.voachinese.com/a/un-human-rights-experts-urge-chinese-authorities-to-immediately-release-citizen-journalist-zhang-zhan-20211123/6324764.html](https://www.voachinese.com/a/un-human-rights-experts-urge-chinese-authorities-to-immediately-release-citizen-journalist-zhang-zhan-20211123/6324764.html)
 
-据悉，以上裁决将对今后类似的诉讼案件有指导性作用。但因本案仍可最终上诉至最高法院，所以在此之前，该如何具体执行和操作本次裁决结果，还有待各方进一步的确认。
+编辑：胖丁
 
 * * *
 
-校对编辑，发稿：硫酸羟氯喹64
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-原文链接：
 
-[https://financialpost.com/fp-work/ontario-court-deals-another-blow-to-unions-efforts-to-protect-their-unvaccinated-members?utm\_term=Autofeed&utm\_medium=Social&utm\_source=Twitter#Echobox=1637664850](https://financialpost.com/fp-work/ontario-court-deals-another-blow-to-unions-efforts-to-protect-their-unvaccinated-members?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter#Echobox=1637664850)
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

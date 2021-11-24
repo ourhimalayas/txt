@@ -2,31 +2,21 @@
 ---
 
 
-## 加拿大司法界联名反对疫苗护照和强制接种
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1690030/)
+## 雅典娜时报-第122期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1690051/)
 
-原文采编：UCool优酷 编译撰稿：文所未闻
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-62-edited.jpg)图片来源: TNH
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_18.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_19.png)
+***发布：小红帽***
 
-
-据加拿大自媒体《真北方》11月22日报道，来自加拿大各地245名法律界专业人士和2万多位公民当天联名签署了一份旨在结束目前“新冠病毒”疫苗强制接种和疫苗护照的宣言。
-
-在该名为《自由北方宣言》的公告中写道：加拿大人的基本权利正在被当局践踏，公民自由正遭受侵害并因此处在前所未有的危机之中。同时，由于严厉打压关于“新冠病毒”疫情及该病毒疫苗的不同意见，加拿大政府及其医疗监管机构因此变得更加独断专行。
-
-据悉，另外一份名为《大巴灵顿宣言》的类似公告，自去年10月发布至今，也已获得超过87万名来自该国不同领域和专业的众多人士签名，并以此敦促各级政府结束针对疫情所推行的封锁隔离措施。
-
-原文链接：
-
-
-
-> [Over 200 lawyers sign declaration to end vaccine mandates and passports](https://tnc.news/2021/11/22/over-200-lawyers-sign-declaration-to-end-vaccine-mandates-and-passports/)
-
-
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
