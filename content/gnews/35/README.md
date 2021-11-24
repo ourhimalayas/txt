@@ -2,22 +2,66 @@
 ---
 
 
-## 荷兰重症监护陷入困境
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1689683/)
+## 疫苗报道惹祸 谷歌完全取消了CDMedia的广告收入
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1689760/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11231-scaled.jpg)图片来自Reuters
-在荷兰，由于新冠病毒患者过多，医院面临压力，以至于其中一些医院被迫放弃治疗一些患有其他疾病的患者，甚至是严重的患者。为此，卫生当局已决定将部分患者转移到邻国德国。
+编译： Jenny Ball
 
-最近几周，荷兰医院收治的新冠肺炎患者人数自 5 月以来已见顶，随着感染人数的增加，预计还会进一步增加。NHS 的数据显示，7 天内登记了 153,957 例新病例，比前一周增加了 39%。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-23-at-7.11.30-AM.png)*截屏*（图片取自原文）
 
-在荷兰总共 1,050 张重症监护病床中，有 488 张用于治疗新冠病毒患者。面对这种情况，医院正在缩小其他治疗的规模，包括癌症治疗和心脏手术。
+Google Adx 已经完全取消了 CDMedia 在我们网站上投放广告的平台，并结束了我们媒体公司的在线广告收入。
 
-由于缺乏处理常规干预的工作人员，全国手术室的容量减少了 29%。尽管 85% 的成年人都接种了疫苗，但据荷兰新闻网报道表示：按照目前感染率的上升速度，住院的冠状病毒患者人数将在几天内与去年冬天的高峰持平。
+在我们对“疫苗授权”的报道中，我们显然超出了（Google）目标。
 
-原文链接：[https://europa.today.it/attualita/coronavirus-pazienti-olanda-germania.html#\_ga=2.127857485.1112600054.1637688744-145009575.1615972944](https://europa.today.it/attualita/coronavirus-pazienti-olanda-germania.html#_ga=2.127857485.1112600054.1637688744-145009575.1615972944)
+这并不重要，因为我们正在开发替代收入来源。
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+站在自由这边，和其他爱国者站在一起，这里的绿地绝对更惬意！
+
+但是，请通过在此处捐赠来尽您所能支持 CDMedia 和言论自由！[donating HERE!](https://creativedestructionmedia.com/support-free-speech-donate/)
+
+以下是我们收到的一封电子邮件的摘录……
+
+此消息旨在提醒您，您的一个网站目前不符合我们的 “广告管理” Ad Manager 计划政策，因此您的整个网站上的广告投放已受到限制。
+
+限制解释——“危险或贬损内容”、“不可靠和有害的声明”。
+
+违规解释：
+
+危险或贬义内容：
+
+基于种族或民族、宗教、残疾、年龄、国籍、退伍军人身份、性取向、性别、性别认同或其他与系统相关的特征，煽动仇恨、促进歧视或贬低个人或群体歧视或边缘化。
+
+骚扰、恐吓或欺凌一个人或一群人。
+
+威胁或主张伤害自己或他人。
+
+与当前的重大健康危机有关，与权威的科学共识相矛盾。
+
+通过敲诈勒索剥削他人。
+
+在帮助中心查看完整的政策（包括示例）。
+
+不可靠和有害的说法：
+
+提出明显错误的声明，并可能严重破坏对选举或民主进程的参与或信任。
+
+宣扬有害的健康声明或与当前的重大健康危机有关，并且与权威科学共识相矛盾。
+
+与关于气候变化的权威科学共识相矛盾。
+
+评论：多么讽刺，作恶的**Google**却要用“不作恶”做招牌！在这场人类病毒疫苗大劫难中，社交媒体扮演着邪恶的宣传工具。凸显爆料革命创立的盖特，**GTV**, **Gnews**是多么意义深远，承担着传播真相的历史使命。真相必胜！
+
+**参考资料：**[creativedestructionmedia][Google De-platforms CDMedia Completely From Ad Revenue Over Vaccine Coverage](https://creativedestructionmedia.com/news/business/2021/11/23/google-de-platforms-cdmedia-completely-from-ad-revenue-over-vaccine-coverage/)
+
+* * *
+
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+
+
 
  
 

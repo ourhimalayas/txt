@@ -2,20 +2,30 @@
 ---
 
 
-## 伊维菌素帮助日本突破病毒及疫苗的重围，带来希望
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1689183/)
+## GTV新闻访谈简报|2021年11月23日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1689359/)
 
-**作者：日本东京方舟农场 JIHO**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-2.jpg)
 
-迄今为止，伊维菌素一直被各种大型制药公司及其利益集团打压和妖魔化，但日本已经证明该药物可以作为更有效的治疗方法，我们其实不需要疫苗。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-24.png)
+文章仅代表作者本人观点，与Gnews无关
 
-* * *
+视频参看：2021.11.23早GTV新闻访谈
 
-*素材采编：JIHO*
+[https://gtv.org/broadcast/watch/619cec8857529032f659c099](https://gtv.org/broadcast/watch/619cec8857529032f659c099)
 
-*发布：Ranting*
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-*封面制作：S战友*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-9.jpg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
