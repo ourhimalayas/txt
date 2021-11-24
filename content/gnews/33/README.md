@@ -2,10 +2,30 @@
 ---
 
 
-## 疫苗灾难比病毒还可怕，中共正在准备释放另一波病毒
-` MG 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1691849/)
+## GTV新闻访谈简报|2021年11月24日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1691950/)
 
-郭先生盖特：已有更多的国家意识到爆料革命爆的料、提供的信息和正在发生的情况，都证明了疫苗灾难比病毒还可怕，共产党正在准备另外一波的放毒，新中国联邦正以前所未有的速度和巨大的力量，在推动停止人类正在面对的疫苗灾难！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-4.png)
+
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-25.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：2021.11.24早GTV新闻访谈
+
+[https://gtv.org/video/id=619e3dc838f84e66c64ed2f7](https://gtv.org/video/id=619e3dc838f84e66c64ed2f7)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-10.jpg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

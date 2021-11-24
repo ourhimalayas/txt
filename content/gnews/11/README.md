@@ -2,35 +2,66 @@
 ---
 
 
-## 国际舆论谴责奥委会主席为中共洗地
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1692247/)
+## 拜登政府宣布所有穿越加美边境的商业卡车司机都需要接种疫苗
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1692296/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月23日的消息显示，为平息舆论，国际奥委会主席托马斯·巴赫于21日与网球选手彭帅进行了30分钟的视频通话。事后，国际对彭帅事件的关注非但没有降低，国际舆论反而强烈地批评巴赫为中共洗地，沦为中共的帮凶。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-25-上午1.18.50.png)
-对此，世界球员协会发表声明称，国际奥委会一直故意限制运动员的言论自由，为了优先考虑与中共的关系，拒绝提及彭帅的性侵指控。同时，球员协会呼吁成立特别代表团与彭帅见面。另有媒体消息评论道， 国际奥委会此次的“静默外交”无非是为了中共进行的“公关特技表演”。 而一直持续为彭帅发声的女子网球协会主席史蒂夫·西蒙在最新的官方声明中表示，仅靠奥委会的这个视频不能够证明彭帅的健康和安全，彭帅的性侵犯指控正在被中共审查和掩盖。
+作者：Ian Miles Cheong
+翻译：Himasally
 
-消息中还提到，其他社会各界对国际奥委会的批评直接且犀利，认为奥委会太过无耻，只重利益不讲原则，仍在试图挽救中共的冬奥会，并为此成为专制政府的宣传工具。评论人士声讨称，奥委会的主席应该辞职，并且世界必须抵制中共2022冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-195.png)
 
-参考链接：
-1)[https://twitter.com/teachjourno/status/1462485736196874246?s=21](https://twitter.com/teachjourno/status/1462485736196874246?s=21)
-2)[World Players: IOC’s call with Peng Shuai exacerbates alarm, special delegation needed](https://www.uniglobalunion.org/news/world-players-iocs-call-peng-shuai-exacerbates-alarm-special-delegation-needed)
-3)[Statement by Steve Simon, WTA Chairman & CEO on recent video posted by China state-run media of Peng Shuai](https://www.wtatennis.com/news/2361225/statement-by-steve-simon-wta-chairman-ceo-on-recent-video-posted-by-china-state-run-media-of-peng-shuai)
+拜登政府已宣布计划要求穿越加美边境的加拿大卡车司机接种疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+由于美国消费者因商品和服务价格飙升而受到伤害，拜登政府几乎没有采取任何措施来纠正持续的供应链危机。从 1 月 22 日开始，美国政府将要求所有非居民卡车司机以及政府和应急响应官员全面接种疫苗，以便穿越美国边境。
 
-总编：Irene木木
-编辑：Lakeman(文仁)
-校正/发稿：呼吸的雾霾（文小呼吸）
+一位高级政府官员表示，白宫在 10 月预演的疫苗要求将强加给基本旅客。据《星际论坛报》 报道，该规定拟在重新开放边境以接受完全接种疫苗的个人为休闲而进入美国的游客。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+该授权定于 1 月 22 日生效，但此前原定于 11 月 8 日生效，因为当时它面临强烈反对并被推迟。
+
+10 月 29 日，美国国土安全部宣布：
+
+从 11 月 8 日开始，当抵达美国陆路 POE 或渡轮码头时，非公民旅客应准备好 (1) 提供新冠疫苗接种证明，如疾病控制中心 (CDC)网站所述；(2) 在边境检查期间口头证明他们的旅行原因和新冠疫苗接种状态。
+
+任何试图通过非法方式或没有适当证件进入美国的非公民都可能被驱逐。抵达美国陆路 POE 或渡轮码头的旅客应准备好按照 CBP 官员的要求出示任何其他相关文件。
+
+在全国范围内，独立的卡车司机猛烈抨击了这一决定。发言人诺丽塔·泰勒代表卡车运输组织业主经营者独立司机协会表示，拜登的决定表明“不必要的政府强制要求是如何迫使有经验的业主经营者和独立卡车司机倒闭。”
+
+泰勒补充说：“这些要求是不切实际的法规将如何使安全驾驶员远离道路的另一个例子。”
+
+拜登政府要求基本旅客接种疫苗之前，加拿大宣布将要求卡车司机（无论是美国人还是加拿大人）在 1 月 15 日进入加拿大时接种双重新冠疫苗。
+
+根据加拿大卡车运输联盟的数据，美国和加拿大之间 6480 亿美元的贸易中，约有 70% 是通过卡车运输的。
+
+“有 120,000 名加拿大人从事跨境业务，40,000 名美国执照司机从事南北贸易，”重型卡车运输公司报道。
+
+“我们非常担心正在酝酿一场完美的风暴，”CTA 主席斯蒂芬·拉斯科夫斯基表示，他抨击了这一决定。“鉴于全球供应链中断和延误，目前尚不清楚供应链和卡车运输行业如何能够承受进一步的动荡并保持交付加拿大人和美国人需要的关键产品所需的服务水平。”
+
+《每日电讯报》 报道：
+
+CTA 表示，他们的估计是保守的估计，声称 10-20% 的加拿大卡车司机（12,000-22,000）和前往加拿大的美国卡车司机（16,000）中有 40% 将因疫苗要求而辞职。
+
+拉斯科夫斯基指出：“目前尚不清楚行业和供应链如何补偿数千名一夜之间突然退出系统的司机。” “毫无疑问，如果这项任务按计划推进，将对跨境经济带来重大影响，加拿大和美国公众都会感受到这种影响。”
+
+来源: https://www.rebelnews.com/biden\_admin\_announces\_vaccine\_requirement\_for\_all\_commercial\_truck\_drivers\_crossing\_canada\_us\_border
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
