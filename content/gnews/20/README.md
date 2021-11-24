@@ -2,19 +2,60 @@
 ---
 
 
-## 【文贵先生大直播PPT】透过币安交易所看新中国联邦喜联储的未来
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1692025/)
+## 台美政府计划举行双边科技会晤
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1692051/)
 
-撰稿：Halley哈雷，政清
-素材提供：文唐，Agape爱，Now小哥，Benj1，WEI，卡丽煕
-美工：青山
-审核：三票先生，顽童先生，政清
+![](https://assets.gnews.org/wp-content/uploads/2021/11/112408-1.jpg)官员通过视频会议在台北出席第二届台美经济繁荣伙伴关系对话。照片由台湾经济部提供
+来自《焦点台湾》2021年11月23日报道
 
-【2021年11月24日文贵先生大直播PPT：透过币安交易所看新中国联邦喜联储的未来】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-13.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/12-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/13-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/14-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/15-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/16-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/16-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/17-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/18-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/19-2.jpg)
+**摘要翻译：**
+
+台北，11月23日(中新社)台湾和美国官员周二在高级别经济对话结束时宣布，台湾和美国明年将举行首届政府层面双边科技会议，以加强半导体领域的研究和交流。
+
+根据两国政府发布的新闻稿，作为台北和华盛顿去年签署的双边科技协议的一部分，该会议将于2022年的某个时候在台北举行。
+
+该公告是在周二举行第二届经济繁荣伙伴关系对话（EPPD）之后宣布的，这是迄今为止台美最高级别的经济交流与合作。
+
+在今年的经济繁荣伙伴关系会议期间，双方重点关注供应链、经济胁迫、数字经济和5G网络安全以及科技等方面。
+
+根据台湾外交部和美国在台协会发表的声明，双方决心继续深化在经济和商业领域的全方位合作。
+
+在没有正式外交关系的情况下，美国在台协会代表美国在台湾的利益。
+
+同时，双方还同意在数字经济工作流程下于2022年召开第四届数字经济论坛。
+
+一个由台湾和美国共同选出的成员组成的商业顾问团也将很快成立，以提供根据外交部和美国在台协会，就加强经济和商业联系的方式向双方提出建议。
+
+周二的虚拟会议由美国负责经济增长、能源和环境的副国务卿何塞·费尔南德斯和台湾经济部长王美花及科技部长吴政忠共同主持。
+
+关于经济胁迫，王美花告诉记者，双方代表团都以立陶宛为例，一致认为任何国家都不应成为外部经济胁迫的目标。
+
+立陶宛因上周在该国首都维尔纽斯开设的台湾代表处，使用“台湾人”而受到来自中共国的经济压力。
+
+经济繁荣伙伴关系于去年年底成立，首轮环保会议于2020年11月在华盛顿举行，旨在推动两国高层直接对话，加强经贸关系。
+
+**简评：**
+
+美台加强合作是在民主体制下的正常运作，从新中国联邦、爆料革命的角度看来，如果美国内部不能形成对中共脱离的明确态度，那么这样的合作是非常必要的，中共也许随时会脑子一发热就造成战争，因此，美国对中共的态度不仅影响台湾，也影响美国自己，影响中共国，并波及世界。
+
+新闻链接：[Taiwan, U.S. governments plan bilateral science and technology meet](https://focustaiwan.tw/politics/202111230021)
+
+***编辑**: 希望*
+
+***校对**: 小小妹*
+
 * * *
 
-发稿：云起时
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
