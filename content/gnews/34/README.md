@@ -2,32 +2,26 @@
 ---
 
 
-## 荒唐：以色列总理做“表率”，携子打疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1690276/)
+## 台湾与美国举行第二届新经济对话会议
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1690328/)
 
-**【雅典娜快讯】紧贴时事脉搏**
+俄罗斯莫斯科喀秋莎农场   银河
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/台湾1-2.jpeg)图片来源：AP
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/T.png)vinielevators.com
+据日本共同社报道，台湾和美国11月23日举行了新年度经济对话的第二次会议，以建立更紧密的关系。
 
+台湾代表团团长、经济部部长王美花在美台经济繁荣伙伴关系对话(简称EPPD)结束后举行的新闻发布会上表示，长达5小时的虚拟会议集中讨论了供应链弹性、科技、数字经济和5G网络安全等问题，以及北京的经济胁迫。
 
-#### 整理报道：美哥
-编辑：守望黎明
+台湾经济部长称，“这次会谈是双边经济战略合作的一个很好的方式。”并补充说，在全球芯片危机中，他们同意促进与美方的供应链安全以及在制药、卫生、清洁能源和半导体方面的合作。
 
-以色列官方周二正式批准儿童疫苗。以色列卫生部指出，虽然第四波疫情已日趋稳定，但数据显示儿童和青少年群体中仍存在大规模新增感染案例。由于一半的新增感染与儿童有关，官方寄希望对青少的疫苗接种，能够降低来袭的新一波疫情的威胁。
+双方同意，台湾和美国将于明年在台北举行首次面对面的科技会议。双方还将于明年年中召开第四届数字经济论坛，并成立一个商业咨询小组，就加强双方经济和商业关系提出建议。
 
-由于接种开放首日社会反应冷淡，以色列总理贝內特（Naftali Bennett）以身试险，于11月23日带头陪同自己9岁的儿子大卫接种疫苗，以图以此打消公众疑虑，鼓励其他父母为孩子接种疫苗。
+与去年11月举行的首届EPPD会议一样，今年的会议是在台湾美国研究所(American Institute in Taiwan)和台北驻美经济文化代表处(Taipei Economic and Cultural Representative Office)的主持下举行的。台湾美国研究所实际上是华盛顿与台北建立正式外交关系的大使馆。
 
-以色列目前人口为9百多万，自疫情爆发以来，有过130万人感染，超过8100人死亡。
+参考链接：
 
-原文链接：[Israel begins giving COVID shots to children age 5 to 11](https://apnews.com/article/coronavirus-pandemic-health-middle-east-israel-tel-aviv-0ad5635acd76adcac3db96088cbeeca3)
-
-发布：文泓
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://english.kyodonews.net/news/2021/11/d8948eebd650-taiwan-us-hold-2nd-annual-meeting-of-new-economic-dialogue.html](https://english.kyodonews.net/news/2021/11/d8948eebd650-taiwan-us-hold-2nd-annual-meeting-of-new-economic-dialogue.html)
 
  
 

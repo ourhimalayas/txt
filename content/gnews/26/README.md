@@ -2,50 +2,28 @@
 ---
 
 
-## 堪萨斯州拟立法放宽疫苗宗教豁免
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1690438/)
+## 服务中共工业4.0战略！美的将全面私有化德国库卡
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690451/)
 
-作者：纽约香草山教育部 – Naughty(文行)
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-639.png)[图片来源](https://www.aplerobot.com/new/new-24-856.html)
+据中新社11月23日报道，美的集团当天发布公告称，其拟通过全资子公司全面收购公司控股的德国法兰克福交易所上市公司德国库卡的股权并私有化。
 
+总部位于奥格斯堡的德国库卡是一家在机器人应用和系统解决方案领域技术创新领域具有全球领先地位的企业，尤其擅长汽车制造领域的工业机器人生产，被视作德国“工业4.0”代表企业之一。美的集团2016年收购了库卡近95%股份，成为其最大单一股东。
 
+美的当天在深圳证券交易所发布的上市公司公告中表示，本次收购完成后，库卡将成为美的全资控制的境外子公司，并从法兰克福交易所退市。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+美的在公告中同时表示，由于本次收购事项尚须根据国内外相关法律法规履行一定的报备和审批程序，存在不确定性。
 
+对于德国“工业4.0”技术，中共垂涎已久。围绕实现制造强国战略，中共国务院2015年5月印发《中国制造2025》，并以“中国制造2025”与德国“工业4.0”进行合作对。中德双方还签署了《中德合作行动纲要》，其中有关工业4.0合作的内容共有4条。
 
+当前，中共面临全球在科技和供应链上的脱钩，此时全面收购德国库卡，恐又多了在产业和科技上应急和自保的意图。
 
-11月22日，堪萨斯州共和党议员采取行动挑战该州的疫苗强制接种政策，并要求州长劳拉·凯利召开特别会议，研究应对中共病毒疫苗强制接种政策的措施，并积极推动雇主接受所有宗教豁免的请求。
+信息来源：[中国美的宣布全面收购德国库卡股权](https://finance.sina.com.cn/tech/2021-11-23/doc-iktzqtyu9104135.shtml)
 
-凯利在声明中说，“我认为拜登这项指令对堪萨斯州来说不是正确或最有效的解决方案。我们已经制定了适合我们具体需求的系统和战略。”
-
-当日，堪萨斯州参议院投票批准了相关法案，并禁止私人雇主发布疫苗强制接种的要求。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-10.jpg)
-参考链接：
-[Kansas GOP eases religious vaccine exemptions, moves to limit mandates](https://thehill.com/homenews/state-watch/582736-kansas-gop-ease-religious-vaccine-exemptions-move-to-limit-mandates?utm_source=ground.news&amp;utm_medium=referral)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：文徬
-编辑：木白
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+*编辑：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -15,110 +15,110 @@
 
 ---
 
-### [有声|文贵先生盖特直播对战友忠告](/content/gnews/1/README.md)
- ` MOSREC`
-
-### [有声|中共国恶劣天气再现：东北雪台风](/content/gnews/2/README.md)
- ` MOSREC`
-
-### [有声|犹太法院裁定：儿童接种中共疫苗死亡 相关人员要承担”谋杀”罪名](/content/gnews/3/README.md)
- ` MOSREC`
-
-### [有声|德国卫生部长暗示实施强制疫苗接种令](/content/gnews/4/README.md)
- ` MOSREC`
-
-### [有声|北京再出强制令：快递、外卖小哥必须全程接种中共病毒疫苗](/content/gnews/5/README.md)
- ` MOSREC`
-
-### [有声|4 亿多人观看郭先生首次爆料，90%多的中国人要消灭中共](/content/gnews/6/README.md)
- ` MOSREC`
-
-### [DC大中华时事：疫苗的灾难还远没有开始](/content/gnews/7/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共因电力短缺 &#8220;亮白旗&#8221;&#8230;&#8230;10月恢复进口澳大利亚煤炭](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [应拜登要求，日本首次释放国家石油储备](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日越防长确认在海洋和网络领域合作 应对中共威胁](/content/gnews/10/README.md)
- ` GTV新闻访谈`
-
-### [苏格兰政府将疫苗护照的私人数据共享给亚马逊和微软](/content/gnews/11/README.md)
+### [彭帅被绑架事件使得北京冬奥会变得不确定](/content/gnews/1/README.md)
  ` 墨尔本雅典娜农场`
 
-### [2021/11/23 文贵先生直播精要](/content/gnews/12/README.md)
+### [苹果起诉飞马间谍软件背后的以色列公司](/content/gnews/2/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [有声|文贵先生盖特直播对战友忠告](/content/gnews/3/README.md)
+ ` MOSREC`
+
+### [有声|中共国恶劣天气再现：东北雪台风](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [有声|犹太法院裁定：儿童接种中共疫苗死亡 相关人员要承担”谋杀”罪名](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [有声|德国卫生部长暗示实施强制疫苗接种令](/content/gnews/6/README.md)
+ ` MOSREC`
+
+### [有声|北京再出强制令：快递、外卖小哥必须全程接种中共病毒疫苗](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [有声|4 亿多人观看郭先生首次爆料，90%多的中国人要消灭中共](/content/gnews/8/README.md)
+ ` MOSREC`
+
+### [DC大中华时事：疫苗的灾难还远没有开始](/content/gnews/9/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共因电力短缺 &#8220;亮白旗&#8221;&#8230;&#8230;10月恢复进口澳大利亚煤炭](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [应拜登要求，日本首次释放国家石油储备](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日越防长确认在海洋和网络领域合作 应对中共威胁](/content/gnews/12/README.md)
+ ` GTV新闻访谈`
+
+### [苏格兰政府将疫苗护照的私人数据共享给亚马逊和微软](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [2021/11/23 文贵先生直播精要](/content/gnews/14/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [每日快报：三星将在德克萨斯州斥资170亿美元建造芯片工厂](/content/gnews/13/README.md)
+### [每日快报：三星将在德克萨斯州斥资170亿美元建造芯片工厂](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [美军舰依法穿越台湾海峡](/content/gnews/14/README.md)
+### [美军舰依法穿越台湾海峡](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [有声|生命的意义是什么？（第四集）](/content/gnews/15/README.md)
+### [有声|生命的意义是什么？（第四集）](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [中共的六大罪行 拜登抵制北京冬奥会](/content/gnews/16/README.md)
+### [中共的六大罪行 拜登抵制北京冬奥会](/content/gnews/18/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [“正能量”是个啥？](/content/gnews/17/README.md)
+### [“正能量”是个啥？](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有声|生命的意义是什么？（第一集）](/content/gnews/18/README.md)
+### [有声|生命的意义是什么？（第一集）](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [研究发现注射mRNA疫苗后急性冠状动脉综合征的风险显著增加](/content/gnews/19/README.md)
+### [研究发现注射mRNA疫苗后急性冠状动脉综合征的风险显著增加](/content/gnews/21/README.md)
  ` 澳喜农场`
 
-### [美学校诱导小学生性行为 上海学校诱导小学生自杀](/content/gnews/20/README.md)
+### [美学校诱导小学生性行为 上海学校诱导小学生自杀](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [参议员汤姆·科顿：国际奥委会是CCP代言人，抵制冬奥会](/content/gnews/21/README.md)
+### [参议员汤姆·科顿：国际奥委会是CCP代言人，抵制冬奥会](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [郭先生回忆与班农先生在船上的感人谈话](/content/gnews/22/README.md)
+### [郭先生回忆与班农先生在船上的感人谈话](/content/gnews/24/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [有声|做喜币战士将灭共进行到底](/content/gnews/23/README.md)
+### [有声|做喜币战士将灭共进行到底](/content/gnews/25/README.md)
  ` MOSREC`
 
-### [服务中共工业4.0战略！美的将全面私有化德国库卡](/content/gnews/24/README.md)
+### [服务中共工业4.0战略！美的将全面私有化德国库卡](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
-
-### [有声|GTV新闻访谈简报|2021年11月21日早](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [堪萨斯州拟立法放宽疫苗宗教豁免](/content/gnews/26/README.md)
- ` GTV新闻访谈`
 
 ### [有声|GTV新闻访谈简报|2021年11月21日早](/content/gnews/27/README.md)
  ` MOSREC`
 
-### [国际要闻汇编11月24日](/content/gnews/28/README.md)
+### [堪萨斯州拟立法放宽疫苗宗教豁免](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [有声|GTV新闻访谈简报|2021年11月21日早](/content/gnews/29/README.md)
+ ` MOSREC`
+
+### [国际要闻汇编11月24日](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共病毒及其疫苗全球超限战中的典型案例（二十六）](/content/gnews/29/README.md)
+### [中共病毒及其疫苗全球超限战中的典型案例（二十六）](/content/gnews/31/README.md)
  ` 纽约香草山MOS01`
 
-### [新中国联邦人与人信任的境界是心悦合一](/content/gnews/30/README.md)
+### [新中国联邦人与人信任的境界是心悦合一](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [澳英美三国签署核潜艇联盟的关键协议](/content/gnews/31/README.md)
+### [澳英美三国签署核潜艇联盟的关键协议](/content/gnews/33/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [台湾与美国举行第二届新经济对话会议](/content/gnews/32/README.md)
+### [台湾与美国举行第二届新经济对话会议](/content/gnews/34/README.md)
  ` HimalayaRussia`
 
-### [公共卫生专家出面安抚，90%接种率后可解封未接种者](/content/gnews/33/README.md)
+### [公共卫生专家出面安抚，90%接种率后可解封未接种者](/content/gnews/35/README.md)
  ` 走进澳洲`
-
-### [荒唐：以色列总理做“表率”，携子打疫苗](/content/gnews/34/README.md)
- ` 墨尔本雅典娜农场`
-
-### [这是一场全球政变！](/content/gnews/35/README.md)
- ` 纽约香草山MOS02`
 
 ### [美参议员布莱克本：中共对国际机构的恶意影响力导致吹哨人被解雇](/content/gnews/36/README.md)
  ` 首尔天池农场`

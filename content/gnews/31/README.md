@@ -2,46 +2,68 @@
 ---
 
 
-## 澳英美三国签署核潜艇联盟的关键协议
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1690337/)
+## 中共病毒及其疫苗全球超限战中的典型案例（二十六）
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1690366/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16377272931-1.png)*根据 AUKUS 协议，澳大利亚将获得八艘能够执行隐形远程任务的最先进的核动力潜艇。 它还提供共享网络、人工智能、量子和未指定的海底能力。 – EPA Pic*
-澳大利亚周一正式启动了一项争论激烈的计划，在与英国和美国的新防御联盟中为其海军配备核动力潜艇。
+作者：香草山信息部 6zero4
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
+**加州法官临时禁止对该州监狱工作人员强制接种****COVID-19****疫苗**
 
-国防部长彼得·达顿与美国和英国外交官一起签署了一项协议，允许他们国家之间交换敏感的“海军核动力信息”。
+2021年10月13日，加州克恩（Kern）县法官巴曼（Bernard Barmann）发布了一项临时禁令，以阻止针对该州监狱工作人员执行COVID-19疫苗强制接种令，并于两天后的10月15日正式生效。加州政府计划对巴曼法官的这一裁决提出上诉。此举的背景是，加州公共卫生部（CDPH）于2021年8月19日发布了一项命令，要求定期被派去为被拘留者、被监禁者或囚犯提供医疗保健服务的职工和义工完全接种COVID-19疫苗的截至日期是2021年10月14日，除非获得宗教或医疗豁免。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-631.png)
+代表全州约2.8万名监狱工作人员的工会即加州惩教和平官员协会（CCPOA）反对在全州强制接种COVID-19疫苗，CCPOA在其向法院提交的初步诉讼文件中表示，法院应拒绝针对监狱工作人员执行COVID-19疫苗强制接种令，且目前要求监狱工作人员普遍接种新冠疫苗，与近几个月来监狱内以及全州COVID-19病毒感染率的大幅下降相悖。
 
-这是自这三个国家9月宣布成立防务联盟（澳英美联盟，AUKUS）以来公开签署的第一份关于该技术的协议，以应对中美竞争日益激烈的太平洋地区的战略紧张局势。
+加州惩教和康复部（CDCR）的一份报告指出，截至2021年9月10日，在加州的囚犯和监狱工作人员中，共确诊了50991例COVID-19病例，其中有240名囚犯和39名监狱工作人员死于COVID-19疫情。随着加州COVID-19疫苗接种人群数量的持续增加，COVID-19病例数却反其道在增加。
 
-“该协议将允许合作，这将进一步改善我们的共同防御态势”美国总统乔·拜登周五在达顿与美国代办迈克尔·戈德曼和英国高级专员（大使）维多利亚·特雷德尔在堪培拉签署仪式前发表声明说。
+**由于数百万人的储蓄在疫情期间耗尽，美国贫困人员仍在使用粮食银行**
 
-根据澳英美联盟协议，澳大利亚将获得8艘最先进的核动力潜艇，能够执行隐蔽的远程任务。它还提供网络共享、人工智能、量子和未指明的海底能力。
+2021年10月16日零对冲报道，自COVID-19疫情开始至今的18个月里，饥饿和粮食短缺问题继续困扰着全美各地数百万家庭，其中一些家庭已耗尽了他们的毕生积蓄而没有余钱应对下一次危机了。非营利组织“喂饱美国”（Feeding America）的COO菲茨杰拉德（Katie Fitzgerald）表示，尽管依赖于“喂饱美国”的家庭数量在减少，但“喂饱美国”监管的全国200个粮食银行网络仍然为4600多万人提供食品，这个数字比疫情以前高出了55%，粮食短缺问题将会越来越严重。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-632.png)
+美国国家公共电台（NPR）的一项最新调查发现，近20%的美国家庭的储蓄在COVID-19疫情期间一扫而空；家庭收入不超过5万美元的受访者约为30%，其中66%的家庭难以支付房租、养家糊口和支付医药费。罗伯特·伍德·约翰逊基金会（Robert Wood Johnson Foundation）副总裁约瑟夫（Avenel Joseph）表示，由于数千万人在疫情期间失业，许多人用自己的储蓄来支付基本生活开支和解决生存问题，当孩子生病等非正常事情发生时将很快耗尽其工资。
 
-该协议激怒了中共国，中共国称其是对该地区稳定的“极其不负责任”的威胁。
+在美联储（Federal Reserve）向金融市场注入数万亿美元流动性以推高股票、债券、住宅、艺术品、名车、葡萄酒和加密货币等资产价格之后，疫情前就已处于贫富差距紧急状态的美国个人收入差距进一步扩大，在穷人越来越贫穷的同时，富人却越来越富裕，那些一无所有的人更是面临绝望的境地。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-633.png)
+雪上加霜的是，粮食短缺问题和家庭财务状况恶化正在同时发生，看来贫困人口几乎不可能从COVID-19疫情的经济衰退中恢复过来，除非拜登政府将继续向他们免费发放资金以防止社会动荡。虽然拜登政府几个月前就将美国营养补充援助计划（SNAP）补贴提高了四分之一，但如何彻底拯救那些陷入贫困的人们才是长久之计。
 
-这也激怒了法国，它在最后一刻发现自己与澳大利亚签订的柴电潜艇合同–最近估计价值900亿澳元（650亿美元）–已被取消。
+**纽约法官禁止没有接种****COVID-19****疫苗的父亲探望女儿**
 
-澳大利亚总理斯科特·莫里森对他对协议的处理毫无歉意，坚称这符合澳大利亚的国家利益，并且他知道这会“激怒一些人”。——法新社
+2021年10月16日，在上月初纽约市的一对离婚案中，男方曾感染过COVID-19病毒，且曾对流感疫苗有不良反应而对COVID-19疫苗的副作用感到担忧而没有进行接种，女方律师沙因（Evan Schein）对男方拒绝接种COVID-19疫苗的状况提出了担忧，导致知名法官库珀（Matthew Cooper）暂停了他对三岁女儿的探视权。沙因随即称赞了法官库珀的这一裁决：“这非常重要，突显了在COVID-19疫情非常时期孩子的利益是至高无上的”。
 
-简评：简单的说，澳大利亚在最后一刻选择美英核动力潜艇而不是法国柴电潜艇，并与此同时能够参与获得美英海军核动力信息。
-纯从军事意义上说，核动力就在补给、续航、自身噪音上远远优于柴电潜艇。并且由于使用美系潜艇，其所需的武器配给通用性也远远高于法系，在紧急状况下可以直接通过日本，韩国，或者第二岛链中的一系列基地获得补充，而不是需要返回澳大利亚基地补充法系装备。从这两点就可以看出澳大利亚核动力潜艇做为能够长期巡航亚太海域的新兴力量，对中共造成了可预见的实质性威胁。会咬人的狗不叫，相对比中共感觉到真正威胁后不停的各种抗议威胁叫嚣，澳大利亚在受到中共一系列的经济打压，外贸限制后，原本以平衡亚太海域海军力量为考量选择柴电潜艇转而购买以压制中共海军力量为考量的核动力潜艇，充分显示出澳大利亚政府对中共的直接反抗，这也从某方面看到了中南坑所谓下一盘大棋的水平。以美国为主的国家在集结，正在对中共国的海上势力形成系统性的围剿和遏制，中共灭亡拭目以待！
+库珀表示，接种疫苗已成为“有意义地参与日常社会活动”的先决条件，在COVID-19病毒仍然对儿童健康和安全构成威胁的情况下，与儿童接触期间不接种疫苗的危险不可低估。父亲的选择因此就只剩下支付昂贵的费用，进行每周PCR病毒检测，以及在每隔一周的周末探望女儿前24小时内进行每两周一次的抗原检测。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-634.png)
+然而，男方律师罗森（Lloyd Rosen）则称这项裁决开创了一个可怕的先例。罗森还表示，这位法官肯定认为8000万没有接种新冠疫苗的美国人正在将自己的孩子置于迫在眉睫的危险或伤害之中，因此法院应该干预以将这些孩子从其父母身边带走，这是一种何等荒谬的判决！
 
-新闻链接：[https://www.nst.com.my/world/world/2021/11/747465/us-australia-uk-sign-key-deal-nuclear-sub-alliance](https://www.nst.com.my/world/world/2021/11/747465/us-australia-uk-sign-key-deal-nuclear-sub-alliance)
+曾感染过COVID-19病毒的男方体内其抗体比疫苗提供的保护大得多，但这种强大的自然免疫力却没有被考虑。正如拒绝接种疫苗而又迫切需要器官移植救命的病人被拒绝提供医疗服务一样，这种强制性新冠疫苗接种计划就是中共国式的社会信用评分系统，其背后目的是让那些选择行使身体自主权而拒绝接种新冠疫苗者犹如生活在地狱里，让其无法享受基本的生活和医疗服务，而当局却继续宣称新冠疫苗接种是“自愿的”而不是“强制的”。
 
-翻译/简评：Brianchow
+**面对即将到来的“第五波”****COVID-19****疫情，福奇发起了一场针对未接种疫苗人群的指责运动**
 
-PR：clau
+2021年10月17日，福奇（Anthony Fauci）试图让人们相信并记住他的又一个疯狂的言论：当下一场COVID-19疫情浪潮袭击美国时，应该责怪那些没有接种新冠疫苗的人。福奇此举显然拟将下一波COVID-19疫情的责任归咎于未接种疫苗的人。有意思的是，福奇博士的“科学”，不包括先前感染COVID-19病毒后获得的极其优越的自然免疫，更不包括疫苗根本不能有效预防新冠病毒传播的基本事实，却“科学地”认定“接种的人越多，当我们进入冬天引发另一波新冠疫情的可能性就越少”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-635.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/image-636.png)
+根据CDC的数据，刚刚超过67%的美国人完全接种了COVID-9疫苗。难道美国也像86.1%的人已经完全接种了新冠疫苗的新加坡一样，对COVID-19感染人数继续飙升视而不见？如果每个家庭的药箱里都有伊维菌素等廉价且高效的预防和早期治疗药物，在感染COVID-9病毒的第一时间就可以服用了，何须强制接种副作用普遍而巨大的COVID-9疫苗？
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-637.png)
+福奇今天还建议，人们在接种J&J疫苗加强针剂问题上不但不要犹豫，反而应该对此感到高兴，因为COVID-19疫苗接种可能本应分成两剂，而不是一剂。福奇表示，一些J&J疫苗接种者可能会很好地接受混合疫苗品牌，譬如接种Pfizer或Moderna疫苗作为其加强针剂，这样诱导的抗体水平远远高于最初的J&J疫苗。
 
-* * *
+当然，我们并不指望福奇会说出接种疫苗最少人群的真实COVID-19病毒感染情况，因为那样会轻易揭穿这种精心策划的COVID-19疫苗强制接种的宣传伎俩。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+图片和新闻源于:
 
+[Judge Temporarily Blocks Vaccine Mandate Requirement For California Prison Workers](https://www.zerohedge.com/covid-19/judge-temporarily-blocks-vaccine-mandate-requirement-tor-california-prison-workers)
 
-编辑：【英国伦敦喜庄园编辑部】
+[Working-Poor Still Use Food Banks As Millions Had Their Savings Wiped Out During COVID](https://www.zerohedge.com/markets/working-poor-still-use-food-banks-millions-had-their-savings-wiped-out-during-covid)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+[https://www.zerohedge.com/political/nyc-judge-prevents-father-visiting-his-daughter-unless-he-gets-vaccinatedhttps://www.zerohedge.com/covid-19/fauci-tees-unvaccinated-blame-campaign-over-potential-fifth-wave-covid](https://www.zerohedge.com/political/nyc-judge-prevents-father-visiting-his-daughter-unless-he-gets-vaccinatedhttps://www.zerohedge.com/covid-19/fauci-tees-unvaccinated-blame-campaign-over-potential-fifth-wave-covid)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-10.jpg)
+
+发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
