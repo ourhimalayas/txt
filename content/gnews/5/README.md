@@ -2,124 +2,37 @@
 ---
 
 
-## 澳大利亚领导人在疫苗强制方面既愚蠢又专制, 一个非常糟糕组合
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1689849/)
+## 郭文贵先生为什么要建立G-Club？
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1689871/)
 
-[https://gtv.org/video/id=619cd7dce6900076612eccee](https://gtv.org/video/id=619cd7dce6900076612eccee)
+**【雅典娜观察】与您一起洞察世界**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/未标题-1-5.jpg)
+**作者：**文明明来了
+**编辑：**翼族
 
-**Reporter**
-**记者**
+通过四年多来的爆料，郭文贵先生通过他个人的经历，用一件件身边发生的事例给所有的关注者们展现出了当今世界真实的社会形态。
 
-Do you think at all that your rhetoric around calling people anti-vaxxers,
-你认为你关于称人们为反疫苗者的言论
+所谓的不公平、不正义，不仅仅是发生在身边每个具体的鲜活案例，更是整个世界、乃至每个人之间扭曲的关系，不同的群体之间扭曲的利益分配，少数人对多数人在经济上不公平的榨取、控制和统治，以及人群中多数人对少数人的歧视和压迫。
 
-some of whom were vaccinated,
-其中一些人已经接种了疫苗
+这是一个养蛊的绞肉机结构，将每一个正常的、有血有肉的人放在经济超压环境里，用群体压力逐渐同化。每个人都被置身于这种只能埋头于眼前、通过相互倾轧、互相争夺仅有的生存资源，进而竞相服从统治阶层的控制，直至成为绞肉机内的一部分。
 
-has had an impact at all on vaccine take-up in parts of the Territory?
-是否对领土部分地区的疫苗接种产生了任何影响？
+**事实上在这部绞肉机里，没有人会是真正的刀，每一个人既是刀也是肉**，包括误以为自己是统治阶层，把握着资源分配权力的人。每个人、每个群体、每个阶层都在这个绞肉机中努力的想做那把刀，并且把刀把递给上层，让下层做肉。更寄希望于自己有一天也能从刀变成握刀之人。然而，既荒诞又真实的是所有人都只不过是长在不同位置的肉而已。
 
-Australia official
-澳大利亚官员
+**中国的问题不仅仅是出自中国本身，更是整个世界统治结构的延伸。**体现在中国，呈现的是少数家族从政治权力到经济权力的垄断，事实上整个世界也是如此。即使是存在于民主制度之下的西方国家，也是由经济寡头和大的家族势力所控制，用金钱来实现权力，再用权力来巩固金钱。民主制度是个好东西，一切晒在阳光下，不断淘汰德不配位的领导者，让其金钱和权力只能占一样，不断敲打权力，不断通过制衡和更迭来削弱权力的集中。只有人民不被掌握权力的人所控制，权力才能真正的属于人民。权力的集中倾向性与金融寡头对政治的控制具有天生的契合性，互为需要，又必须达到某种平衡。事实上这种失衡的本身并不符合包括当前统治者在内的任何人的根本利益。
 
-No，I don’t work data
-不，我不研究数据
+一战和二战极大的震撼了整个人类社会，人们试图重整社会秩序。在之后的几十年里，和平与动荡的交互更迭就是这种力量平衡与再平衡的过程。然而，在过去相对和平的几十年里，寡头们的贪婪和与政客们的无知和懦弱及不择手段，共同促进了金钱与权力的混合生长。这些贪婪的资本家和政客为了自身利益，在面对肆意欺压人民的他国邪恶力量面前，采取放任甚至合作的态度，逐步形成民主主义与专制主义的勾结，自由主义和道德正义的自我放逐。贪得无厌的金融寡头与玩弄权力的野心家相互利用、相互合作，在民主制度下掌权集团与暴力集权统治者相互勾结，共同统治、压榨和愚弄世界人民。本应相互制约且对立的两方，是用来推动人类不断进步的力量，却逐渐演变为更加邪恶的力量。更加可怕的是，科技的高速发展在造福人类的同时，无限放大了统治阶层改变世界的力量，也将人类推向随时都可能自我毁灭的深渊。黑暗势力的存在并不是因为黑暗，而是因为没有光明阻挡他们成长为黑暗势力。**而真相就是划破黑暗的那道光，这就是唯真不破的意义。**
 
-If you are anti mandate,
-如果你反对强制疫苗接种
+如果人类足够幸运，这次疫情以及疫苗的大灾难，也许会将人类社会结构的再次重建推上台面。人类社会由暴力社会到权力社会，再到宗教社会，最后到制度社会，其核心就是人与人之间的伦理关系、经济关系和政治关系。每次人类社会大重构的背后，就是人与人关系的认知变化。所谓资本主义、共产主义、民主主义都是一套对人与人关系的重新解读。原有的关系体系之所以不断堕落，不是因为贪婪，而是因为虚伪，因为人类对假的纵容才给了金钱和权力勾结的机会，才让专制主义利用每个人的无知，懦弱和贪婪趁虚而入。
 
-you are absolutely anti-vax on what your personal vaccination status is.
-在你的个人疫苗接种状况你绝对也是疫苗反对者
+G-Club出现在一个特殊的时代，**G-Club的门槛就是挑选了那些在黑暗力量的巅峰时刻里，依然坚定选择与现有的利益分配结构决裂的人群**。这群新人就是要打破金钱与权力、贪婪与威吓的束缚。重建人与人的关系，重新构建全新的人类社会秩序，不会再让少数人因为贪欲和权欲在科技发展的推动下将整个人类带入地狱。爆料革命正道主义的目标不仅仅是改变中国的社会结构，更是尝试对世界现有秩序的一次修正。
 
-If you support campaign, give a green light
-如果你支持抗议，为其开绿灯
+*发布：翼族*
 
-give comfort to support anybody who argued against the vaccine,
-安慰支持任何反对疫苗的人
-
-you are an anti Vaxxer absolutely.
-你绝对是一个反疫苗者
-
-Your personal vaccination status is utterly irrelevant.
-你的个人疫苗接种状态完全无关紧要
-
-If you campaign against the mandate.
-如果你抗议反对这个强制命令
-
-If you campaign against people being vaccinated in vulnerable settings,
-如果你反对在脆弱环境中接种疫苗的人
-
-teachers in classrooms,
-在教室里的老师
-
-I’ll be really clear at that point time people were actually sup-porting
-那时我真的很清楚，人们实际上是支持
-
-the idea of a teacher being unvaccinated in a remote community classroom
-教师在偏远社区教室中不用接种疫苗的想法
-
-with kids who can’t be vaccinated
-与无法接种疫苗的孩子在一起
-
-I reject that, I still reject it.
-我反对那个想法，我仍然反对它
-
-And if you are out there in any way, shape or form
-如果你以任何方式、状况或形式出现在那里
-
-campaigning against this mandate that you are absolutely anti-vax.
-反对强制疫苗接种，那么你绝对是反对疫苗者
-
-If you say pro persuasion stuffer it, shove it
-如果你想游说我，省省吧
-
-we are absolutely going to make sure as many territories as pos-sible are vaccinated
-我们绝对会确保尽可能多的地区接种疫苗
-
-that is our best protection against this thing.
-这是我们对这种病毒最好的保护
-
-As you look at the dose volumes coming out since
-当你看到自去年以来出现的剂量时
-
-they said we’ve doubled dose at 80, remote communities five and up
-我们已经将剂量增加了一倍，为80微克，偏远社区的计量为50微克和更高
-
-I think you’ll see our vaccine mandate is absolutely crucial to protecting life,
-我想你会看到我们的疫苗强制对于保护生命绝对至关重要
-
-particularly aboriginal life
-特别是原住民的生活
-
-and I will never back away for supporting vaccines
-我永远不会因为支持疫苗而退缩
-
-and anyone out there who comes for the mandate.
-而且任何人反对强制接种
-
-You are anti-vax
-你是个反疫苗者
-
-**原视频链接**:[https://twitter.com/justin\_hart/status/1462791892219793414?s=24](https://twitter.com/justin_hart/status/1462791892219793414?s=24)
-
-Date:11/22/2021
-原视频标题: Australia’s leaders are dumb and authoritarian in vaccine mandates. A very bad combo
-澳大利亚领导人在疫苗强制方面既愚蠢又专制, 一个非常糟糕的组合
-原视频日期：2021/11/22
-原视频链接: https://twitter.com/justin\_hart/status/1462791892219793414?s=24
-任务编号：KE347(2983）
-视频时间段 : 0:00-1:37
-
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 –天涯行
-审片：洛杉矶盘古农场 –银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
