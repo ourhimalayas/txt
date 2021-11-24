@@ -2,16 +2,22 @@
 ---
 
 
-## 国际奥委会主席与彭帅视频 以示各方“情绪稳定”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1690120/)
+## 中共为彭帅事件洗地遭国际强烈质疑
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1690122/)
 
-作者：纽约香草山 – 宁文静
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/GettyImages-577732188.jpg)图片来自网络
-在“寻找彭帅”的国际呼声日益猛烈之时，国际奥委会主席托马斯·巴赫、奥委会运动员委员会主席等三名官员与彭帅举行了30分钟的视频通话。 视频中，彭帅感谢国际奥委会的关注，表示目前住在北京的家中，“一切安好”！但希望与家人好友更多相处，希望个人隐私得到尊重。
+作者：东京樱花团 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/8CD75D52-66F6-499F-AA37-EFDA76424BF7_w1023_r1_s.png)
+北京时间11月21日，中共喉舌《环球时报》总编胡锡进，在其英文推特上发出网球名将彭帅，当日参加北京青少年网球决赛开幕式的部分照片及视频。这是在全世界对彭帅事件愈发关注之际，中共当局对墙内严密控制消息的同时，却极力向海外发出试图证明彭帅“安好”的表演片段，遭到国际社会强烈质疑！ 有网民讽刺共产党竟然为个人报平安，能在短短几天内就把彭帅培养成演员。
 
-最后，彭帅接受了托马斯在明年1月份抵达北京后共进晚餐的邀请！ WTA主席兼CEO史蒂夫·西蒙率先要求调查彭帅事件，否则考虑放弃中国市场！多位体坛明星为彭帅发声，使该事件热度迅速上升，白宫、联合国也表示了关注！大外宣代发的彭帅生活照、带光标的回复邮件、彭帅与友人的聚餐均被指“摆拍”痕迹明显。眼看“抵制冬奥”的声音越来越大，奥委会主席亲自出面暗示各方“情绪稳定”，其中的用意已经不言自明！
+国际女子网球协会主席赛门表示，中共发出彭帅的视频并不足以证明她的人身自由！彭帅是否能在没有胁迫，或者外力干预下自己做出决定和采取行动，仍是未知数！同时，该协会再次发声，称过去两天中共发出的视像，不能消除对彭帅现状的担忧。
 
-参考链接：[https://olympics.com/ioc/news/ioc-president-and-ioc-athletes-commission-chair-hold-video-call-with-peng-shuai](https://olympics.com/ioc/news/ioc-president-and-ioc-athletes-commission-chair-hold-video-call-with-peng-shuai)
+有评论指出，彭帅事件已经变得有爆炸性，冲击了北京的政治圈。而该事件，正是检验中共是否符合举办冬奥会的最好标准。
+
+参考链接：
+1:[https://www.voachinese.com/a/missing-chinese-tennis-star-reappears-in-public-in-beijing-20211121/6321914.html](https://www.voachinese.com/a/missing-chinese-tennis-star-reappears-in-public-in-beijing-20211121/6321914.html) 
+2:[https://www.voachinese.com/a/beijing-olympics-diplomatic-boycott-20211119/6320934.html](https://www.voachinese.com/a/beijing-olympics-diplomatic-boycott-20211119/6320934.html)
+3:[https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E8%8B%B1%E5%9B%BD%E4%B9%9F%E8%80%83%E8%99%91%E5%AF%B9%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E5%A4%96%E4%BA%A4%E6%8A%B5%E5%88%B6/a-59888162](https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E8%8B%B1%E5%9B%BD%E4%B9%9F%E8%80%83%E8%99%91%E5%AF%B9%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E5%A4%96%E4%BA%A4%E6%8A%B5%E5%88%B6/a-59888162) 
+4:[https://world.huanqiu.com/article/45gpbMvOPGb](https://world.huanqiu.com/article/45gpbMvOPGb) 5:[https://www.voachinese.com/a/Calls-to-Boycott-Beijing-Winter-Games-Grow-20211119/6318313.html](https://www.voachinese.com/a/Calls-to-Boycott-Beijing-Winter-Games-Grow-20211119/6318313.html) 6:[https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/al-10252021112409.html](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/al-10252021112409.html)
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-10.jpg)
 编辑/校对/发稿：文留
 

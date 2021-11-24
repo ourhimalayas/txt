@@ -2,47 +2,52 @@
 ---
 
 
-## 前研究员和副总裁已经入驻盖特并将分享辉瑞的黑暗秘密
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1690248/)
+## 因为可能会遭到大多数国家的抵制，中共国的冬奥会将变成一场防御中共病毒的赛事
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1690277/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/001_副本.jpg)
-据[**MILES GUO**](https://gettr.com/user/miles)@Miles[发表于 9:27 上午 · 11月 24日, 2021](https://gettr.com/post/phpeieb9c5)的盖特
+作者：维克兰特·萨达克（Vikrant Thardak）
+发布日期：2021年11月21日
+新闻来源：TFIGlobal
+翻译：文虓Bobby
 
-1月月23号：这是真的吗？我怎么都找不到他本人的GETTR帐号呢？不会又是一个Q组织设的陷阱吧？
+摘要：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/001-2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/002-1.jpg)
+中共国正期待着明年2月举办冬奥会，但是遭到美国、英国、日本、加拿大、印度和欧洲等多个国家的抵制。本应是中共国展示软实力的最佳机会，最终将变成中共国最大的尴尬!这是民主世界对中共国“战狼”式外交的有力回击。一切都是刚刚开始!
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/112401.jpg)
 
-以及[**MILES GUO**](https://gettr.com/user/miles)@Miles[发表于 9:30 上午 · 11月 24日, 2021](https://gettr.com/post/phpbd20e5c)是这个吧？
+中共国制造的东西不会持久，但新冠肺炎是个例外。今年，日本在全球疫情肆虐的情况下，成功举办了2020年东京奥运会。日本让世界相信，它已经做好了最好的准备来应对日益严重的危机，并在不损害运动员安全的情况下组织体育赛事。
 
-[**MichaelYeadon**](https://gettr.com/user/michaelyeadon)@MichaelYeadon[发表于 11:30 晚上 · 11月 23日, 2021](https://gettr.com/post/phoz9ue019)
+**民主世界武装起来回击北京**
 
-Hello GETTR, Thank you for all of your help and support! It is greatly appreciated. The truth is upon us, only a few more days left until I share the DARK SECRETS of Pfizer. They are trying to seal all documentation from the public until 2076 but I have the files and I will release them to you. I NEED your HELP getting verified, it turns out I need more followers to qualify, so PLEASE SHARE this with everyone you know. It’s about your live, it’s about your CHILDREN’S LIVES![@MichaelYeadon](https://gettr.com/user/MichaelYeadon)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/003-2.jpg)
-根据以上信息，辉瑞公司前研究员和副总裁Michael Yeadon已经入驻盖特[@MichaelYeadon](https://gettr.com/user/MichaelYeadon)，让我们一起关注，让真相传递，让黑暗无处躲藏，因为It’s about your live, it’s about your CHILDREN’S LIVES!——因为这关乎我们和我们子孙后代的生活。
+现在，轮到中共国了。中共国希望明年举办北京冬奥会。但这里有个问题!外交国家正在抵制它!美国、英国、加拿大和日本都已暗示要退出。这可能会让北京感到沮丧，但预计会有越来越多的国家效仿。
 
-撰稿：喜马拉雅的肉夹馍
+在中共国被指控侵犯人权的情况下，美国总统乔•拜登(Joe Biden)周四表示，他正在考虑抵制北京冬奥会。在回答一名记者关于可能进行外交抵制的问题时，拜登说，这是“他正在考虑的事情”。
 
-审核：喜马拉雅的馍夹肉
+如果媒体报道可信，英国鲍里斯·约翰逊(Boris johnson)领导的政府也已决定不参加冬奥会，英国国会议员敦促首相宣布正式抵制冬奥会。英国主要报纸《泰晤士报》报道称，约翰逊的外交部长不会参加奥运会，但一些英国驻华外交官将会参加。
 
-校对：Maarago
+加拿大也在名单上。加拿大最近表示，它正在就这个问题与盟国进行会谈。媒体报道援引外交部长梅勒妮·乔利（Melanie Joly）新闻秘书的话说，“加拿大仍然对中共国侵犯人权的令人不安的报道深感不安。”彭帅（Peng Shuai）的失踪加剧了北京方面的局势，各国现在都在强调要对中共国发动新的攻击。
 
-（文章内容仅代表作者个人观点）
+日本怎么能不加入呢?日本也在考虑官方的抵制。毫无疑问，日本是世界上第一个报道中共国在新疆地区公然侵犯维吾尔族穆斯林人权的国家。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+日本首相岸田文雄(Fumio Kishida)周五表示，“日本会从自己的角度考虑问题。” 面对日本尖阁诸岛附近的日本海上边界一再遭到非法入侵，一些日本保守派议员强烈敦促岸田政府不要派政府官员前往北京。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+**印度、欧洲可能也会加入进来**
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+但在世界舞台上让中共国难堪的特权并非这四个国家所独有。一些欧洲国家也在讨论抵制。澳大利亚也不会眨眼皮!一个面临中共国核攻击威胁的国家，选择参加还是不参加，不会是一个难题!
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+同样，人们也可以期待印度采取类似的立场。印度在其边境上与中共国的侵略作战已经快两年了。因此，通过抵制中共国奥运会，印度可能寻求让中共国尝尝它的毒药!在CCP的统治下，中共国是印度最讨厌的国家。抵制北京奥运不会招致本国运动员的反对。
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+**北京冬奥会——中共国最大的尴尬**
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+中共国政府已经对彭帅事件中不断增加的压力感到沮丧，而现在民主国家联合宣布抵制北京奥运会，将在中共国伤口上的撒了一剂盐。中共国正期待着明年2月举办冬奥会，由于主要民主国家缺席这场角逐，这是中共国在各大洲展示软实力的最佳机会，而这最终将变成中共国最大的尴尬。
 
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+中共国正在努力支撑其日益下降的地缘政治声望，抵制这一盛事只会加剧中共国的苦难。本应是缓解中共国软实力危机的这一重大事件，最终将成为中共国最大的尴尬!这是民主世界对好战的“战狼”式外交的（有力）回击。最激动人心的是，一切都是刚刚开始!
+
+[援引原文](https://tfiglobalnews.com/2021/11/21/chinas-winter-olympics-is-going-to-be-a-covid-safe-event-as-most-countries-could-boycott-it/)
+
+审核校对：玫瑰天空
+上传排版：糖果儿
 
  
 
