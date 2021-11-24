@@ -15,97 +15,97 @@
 
 ---
 
-### [澳洲税局不信加密货币投资者会自己保存交易记录](/content/gnews/1/README.md)
+### [与美国疫苗受伤者的对话](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [企业家挑战卫生官员就疫苗展开辩论但无人接受](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [澳洲税局不信加密货币投资者会自己保存交易记录](/content/gnews/3/README.md)
  ` 走进澳洲`
 
-### [爆炸消息：60岁以下接种成年人死亡率是未接种的两倍](/content/gnews/2/README.md)
+### [爆炸消息：60岁以下接种成年人死亡率是未接种的两倍](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [墙内要闻汇编 11月24日](/content/gnews/3/README.md)
+### [墙内要闻汇编 11月24日](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [维加诺大主教：关于反对所谓“世界新秩序”的全球呼吁](/content/gnews/4/README.md)
+### [维加诺大主教：关于反对所谓“世界新秩序”的全球呼吁](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [举报人揭露医院一天内因新冠“疫苗”导致13例死婴产儿](/content/gnews/5/README.md)
+### [举报人揭露医院一天内因新冠“疫苗”导致13例死婴产儿](/content/gnews/7/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [为何总是容忍左派暴动？而右翼的自卫却被视为“种族主义”](/content/gnews/6/README.md)
+### [为何总是容忍左派暴动？而右翼的自卫却被视为“种族主义”](/content/gnews/8/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [科学家们困惑 非洲只有6%接种率新冠病毒几乎消失了](/content/gnews/7/README.md)
+### [科学家们困惑 非洲只有6%接种率新冠病毒几乎消失了](/content/gnews/9/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [科学家们不清楚为何非洲成功的躲过了中共病毒？](/content/gnews/8/README.md)
+### [科学家们不清楚为何非洲成功的躲过了中共病毒？](/content/gnews/10/README.md)
  ` 澳喜农场`
 
-### [班农的愿景－川普耳边人正在组织一场平民主义革命](/content/gnews/9/README.md)
+### [班农的愿景－川普耳边人正在组织一场平民主义革命](/content/gnews/11/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [班农先生的人格魅力是我们中国人最为缺少的](/content/gnews/10/README.md)
+### [班农先生的人格魅力是我们中国人最为缺少的](/content/gnews/12/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [逞能后又阳痿 ，中共10月为澳洲煤炭清关](/content/gnews/11/README.md)
+### [逞能后又阳痿 ，中共10月为澳洲煤炭清关](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：在中共国做一名合格游戏玩家的标配是入党](/content/gnews/12/README.md)
+### [秘翻在线：在中共国做一名合格游戏玩家的标配是入党](/content/gnews/14/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [喜币涨价根本原因是去掉中心化，不再需要银行和信用卡](/content/gnews/13/README.md)
+### [喜币涨价根本原因是去掉中心化，不再需要银行和信用卡](/content/gnews/15/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [深圳9个月关闭642家炒房中介](/content/gnews/14/README.md)
+### [深圳9个月关闭642家炒房中介](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾参加美国民主峰会 中共疯狂叫嚣“坚决反对”](/content/gnews/15/README.md)
+### [台湾参加美国民主峰会 中共疯狂叫嚣“坚决反对”](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [拜登将从战略石油储备中释放5000万桶](/content/gnews/16/README.md)
+### [拜登将从战略石油储备中释放5000万桶](/content/gnews/18/README.md)
  ` wenwu`
 
-### [什么是通胀通缩](/content/gnews/17/README.md)
+### [什么是通胀通缩](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [小球打大球，现如今还能能否撬动中美关系？](/content/gnews/18/README.md)
+### [小球打大球，现如今还能能否撬动中美关系？](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国邀请台湾召开民主峰会，孤立中共](/content/gnews/19/README.md)
+### [美国邀请台湾召开民主峰会，孤立中共](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [香港允许内地居民参与投票](/content/gnews/20/README.md)
+### [香港允许内地居民参与投票](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [人民军队为人民](/content/gnews/21/README.md)
+### [人民军队为人民](/content/gnews/23/README.md)
  ` 骄子`
 
-### [联合国解雇“吹哨人”是中共在联合国的恶性影响](/content/gnews/22/README.md)
+### [联合国解雇“吹哨人”是中共在联合国的恶性影响](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共在非洲的信用枯竭](/content/gnews/23/README.md)
+### [中共在非洲的信用枯竭](/content/gnews/25/README.md)
  ` 澳喜农场`
 
-### [疫苗每挽救14名儿童就会杀死800人](/content/gnews/24/README.md)
+### [疫苗每挽救14名儿童就会杀死800人](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共国教育之乱象：变相引导孩子自杀](/content/gnews/25/README.md)
+### [中共国教育之乱象：变相引导孩子自杀](/content/gnews/27/README.md)
  ` 日本东京方舟农场`
 
-### [拜登政府邀请台湾参加下月民主峰会](/content/gnews/26/README.md)
+### [拜登政府邀请台湾参加下月民主峰会](/content/gnews/28/README.md)
  ` 日本东京方舟农场`
 
-### [监管机构2022年将界定加密货币相关银行活动 加密货币创盘中新高](/content/gnews/27/README.md)
+### [监管机构2022年将界定加密货币相关银行活动 加密货币创盘中新高](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [COVID-19 最新情报｜美国爱达荷州病理学博士揭露：“数据显示，疫苗导致患癌机率增加 20 倍”](/content/gnews/28/README.md)
+### [COVID-19 最新情报｜美国爱达荷州病理学博士揭露：“数据显示，疫苗导致患癌机率增加 20 倍”](/content/gnews/30/README.md)
  ` G&#124;News TAIWAN`
 
-### [上百个国际品牌从强迫维吾尔人劳动中获利](/content/gnews/29/README.md)
- ` 日本东京方舟农场`
-
-### [中共国养老理财试点产品首发在即](/content/gnews/30/README.md)
- ` Finance-GCLUB【新西兰财经G乐部】`
-
-### [中共第一家沃尔玛撤场](/content/gnews/31/README.md)
+### [中共国养老理财试点产品首发在即](/content/gnews/31/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
 ### [基辛格认为中共国“不会入侵台湾”的背后蹊跷](/content/gnews/32/README.md)
