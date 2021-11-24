@@ -2,35 +2,33 @@
 ---
 
 
-## 有声|中亚国家人民忧中俄输出网路信息管制 民主国家应该反击
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1690237/)
+## 荒唐：以色列总理做“表率”，携子打疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1690276/)
 
-配音：香草山教育部 – 蒙古鸿雁
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-中亚五国均为前苏联的加盟国。该地区倾的人民于希望以西方民主国家模式来发展自己网路空间，但受碍于这些国家的政府和地缘政治的原因。
+**【雅典娜快讯】紧贴时事脉搏**
 
-哈萨克斯坦位于首都阿拉木图的数位权利中心负责人鲁斯兰．代尔别科夫(Ruslan Dairbekov)近日向美国华盛顿邮报表示，『我们位处于两个老大哥之间』。中亚五国位处中俄势力和利益地带，因此这两个极权国家必会想限制这些国家的网路信息自由。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/台湾1-2.jpeg)图片来源：AP
 
-中亚国家的政府正在采用中共国提供的科技和俄罗斯的监管模式来限制信息的自由流通。这两个国家都在这方面恶名昭彰。中共国的网路管制依靠卓越的技术能力来支撑，因而得而发挥出高度系统化和中央化的追踪能力。它在国际上所输出的网路打压模式也能看到这些特点，尤其是它提供监控摄像头与生物特征识别注册给与它看中的企业和国家；而俄罗斯则依靠政府鼓励的自我审查式的监管制度。
 
-尽管中亚国家的政府仍极力打压信息自由，但民众的力量还是能令政府让步的。例如，乌兹别克斯坦的政府试图封杀Telegram，Facebook，Instagram，YouTube等西方媒体，但政府在公众强烈抗议下最终让步。
+#### 整理报道：美哥
+编辑：守望黎明
 
-西方民主国家应该像与极权国家同等打压信息自由一样的努力去引导这些新生并有潜在网路市场价值的国家，来采用他们的模式。
+以色列官方周二正式批准儿童疫苗。以色列卫生部指出，虽然第四波疫情已日趋稳定，但数据显示儿童和青少年群体中仍存在大规模新增感染案例。由于一半的新增感染与儿童有关，官方寄希望对青少的疫苗接种，能够降低来袭的新一波疫情的威胁。
 
-尽管中亚国家的人民大多并不知道上述的西方媒体已被中共深度蓝金黄及正在拼命打压疫苗真相，但他们勇于站出来对政府说 “不”的精神，值得学习。他们的政府也是因为看见民众的抗争精神而让步。就像文贵先生曾说过，民主和自由需要我们用我们的生命每天每分每刻的捍卫着！
+由于接种开放首日社会反应冷淡，以色列总理贝內特（Naftali Bennett）以身试险，于11月23日带头陪同自己9岁的儿子大卫接种疫苗，以图以此打消公众疑虑，鼓励其他父母为孩子接种疫苗。
 
-文字版原文：[中亚国家人民忧中俄输出网路信息管制 民主国家应该反击](https://gnews.org/zh-hans/1683800/)
+以色列目前人口为9百多万，自疫情爆发以来，有过130万人感染，超过8100人死亡。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+原文链接：[Israel begins giving COVID shots to children age 5 to 11](https://apnews.com/article/coronavirus-pandemic-health-middle-east-israel-tel-aviv-0ad5635acd76adcac3db96088cbeeca3)
+
+发布：文泓
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

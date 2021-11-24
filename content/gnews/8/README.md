@@ -2,20 +2,31 @@
 ---
 
 
-## 喜币撬动地球飞向宇宙
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690360/)
+## 有声|GTV新闻访谈简报|2021年11月21日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1690437/)
 
-撰稿：东京樱花团/神的带领
-![](https://cdn.discordapp.com/attachments/740156308631584770/909445774386012230/0968FCD0-9630-407E-9730-B77F6101F120.png)
-记得刚接触喜币时战友常说希望您带个披萨来。如今披萨已经不是我们的目标，因为迪拜房产接受喜币支付。您看这房子能装多少个披萨呢？那喜币的价值就比比特币大多少倍，好多少倍！
+配音：香草山教育部 – 蒙古鸿雁
 
-这是喜币上市后最具标志性的事情，而且会是将来虚拟币的楷模；这是喜币支付通往全球市场的开始。这个意义太大了，我只能用我浅显的意思进行解读，相信以后的流行语不再是带个披萨来，而是带个喜币来。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-7.png)
 
-因为喜币不但能买房产还能撬动地球飞到宇宙。
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1121text-SC.png)
+原文链接：[GTV新闻访谈简报|2021年11月21日早](https://gnews.org/zh-hans/1684270/)
+
+
+音频处理：喜山必胜Maverick
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-6.jpg)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://xn--%20%7Cgtv%20%20gtv-%20%7Cmos%20talk%20%20%20%7C%20gettr%20%20%20%7Cyoutube%20%20%7C%20discord-kw44l1t1gm8doayup218v624hpazvr1825bzx4emafxdws06012bhtnpta2axu46wua3ayv7960lnaiygzw1416y8vh370k17zmoajzj0ay/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

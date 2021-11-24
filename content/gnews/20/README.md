@@ -2,47 +2,53 @@
 ---
 
 
-## 前研究员和副总裁已经入驻盖特并将分享辉瑞的黑暗秘密
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1690248/)
+## 医生在治疗时应该做自己认为对的事情
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1690290/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/001_副本.jpg)
-据[**MILES GUO**](https://gettr.com/user/miles)@Miles[发表于 9:27 上午 · 11月 24日, 2021](https://gettr.com/post/phpeieb9c5)的盖特
+我在几年前就预测到了这一点
+很遗憾的是它还是发生了 这就是我们今天在这里的原因
+这是我与与加勒比海地区 的一位年轻的同事的谈话
+我正在加勒比海地区 的圣乔治大学教授医学
+当疫情来袭时
+随后，我回到美国
+2020 年 4 月 在大流行最严重的时候
+我志愿在 Belleview 担任肾脏科医生
+并在那里帮助治疗肾功能 衰竭并进行透析等
+那是一次非常棒的经历
+当我看到病例开始下降 急救病房开始清空ICU时
+我曾天真地认为这一切都结束了
+流行病过去了 病例达到了顶峰然后消失了
+恰恰相反！病毒一直都在 一样的肆虐
+为什么像 Zelenko、Richard Erso Ryan Cole、Brian Tyson 这样的前线医生
+发表的令人欣喜的结果 和相关展示被忽略了呢?
+为什么对伊维菌素的 有效临床结果视而不见呢?
+Pierre Cory，我们今天会听他的讲解
+他是我的一位老朋友
+我们曾在纽约的 Beth-Israel 医疗中心一起工作
+当他出来支持伊维菌素时
+我 100% 知道它有效
+为什么？因为我信任他
+他是一位值得信赖的同事
+他有这方面的经验
+这就是医学方面一直以来 的普遍实践方式
+所以，我的这位年轻同事说
+他们严重依赖世界卫生组织的指导方针
+在加勒比地区 他们确实如此
+没有任何东西支持在 Covid-19 中 使用这些药物，例如伊维菌素
+我说好，这就是问题所在
+指导方针总是错误的
+世卫组织从制药产业获得超过 50% 的赞助资金
+他们和 CDC 和 FDA 一样腐败
+她说，所以你说这些提供医学最佳实践指南的机构都腐败了？
+我们该相信谁呢？
+我们还不如在治疗病人的时候 做我们自己想做的
+你意识到了吗？
 
-1月月23号：这是真的吗？我怎么都找不到他本人的GETTR帐号呢？不会又是一个Q组织设的陷阱吧？
+听写：UCool优酷
+翻译：维京商人
+字幕添加：杰尼龟
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/001-2.jpg)
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/002-1.jpg)
-
-
-以及[**MILES GUO**](https://gettr.com/user/miles)@Miles[发表于 9:30 上午 · 11月 24日, 2021](https://gettr.com/post/phpbd20e5c)是这个吧？
-
-[**MichaelYeadon**](https://gettr.com/user/michaelyeadon)@MichaelYeadon[发表于 11:30 晚上 · 11月 23日, 2021](https://gettr.com/post/phoz9ue019)
-
-Hello GETTR, Thank you for all of your help and support! It is greatly appreciated. The truth is upon us, only a few more days left until I share the DARK SECRETS of Pfizer. They are trying to seal all documentation from the public until 2076 but I have the files and I will release them to you. I NEED your HELP getting verified, it turns out I need more followers to qualify, so PLEASE SHARE this with everyone you know. It’s about your live, it’s about your CHILDREN’S LIVES![@MichaelYeadon](https://gettr.com/user/MichaelYeadon)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/003-2.jpg)
-根据以上信息，辉瑞公司前研究员和副总裁Michael Yeadon已经入驻盖特[@MichaelYeadon](https://gettr.com/user/MichaelYeadon)，让我们一起关注，让真相传递，让黑暗无处躲藏，因为It’s about your live, it’s about your CHILDREN’S LIVES!——因为这关乎我们和我们子孙后代的生活。
-
-撰稿：喜马拉雅的肉夹馍
-
-审核：喜马拉雅的馍夹肉
-
-校对：Maarago
-
-（文章内容仅代表作者个人观点）
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+发布：风云小哥
 
  
 

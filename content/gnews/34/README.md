@@ -2,18 +2,22 @@
 ---
 
 
-## 班农先生在11·20大直播谈加密货币及喜币
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1690119/)
+## 中共为彭帅事件洗地遭国际强烈质疑
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1690122/)
 
-作者：纽约香草山 – 晓仙女
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-16-1-1.jpeg)
-2021年11月20日，新中国联邦举办了“11·20”海航王建之死发布会与以及法治基金和法治社会成立三周年纪念日直播，文贵先生和班农先生做为特邀嘉宾参加此次直播！当主持人提问班农先生对喜币的未来有怎样的看法时，班农先生表示：喜币是加密货币的完美例子，未来的发展趋势是对中共政权、华尔街沉重打击。
+作者：东京樱花团 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/8CD75D52-66F6-499F-AA37-EFDA76424BF7_w1023_r1_s.png)
+北京时间11月21日，中共喉舌《环球时报》总编胡锡进，在其英文推特上发出网球名将彭帅，当日参加北京青少年网球决赛开幕式的部分照片及视频。这是在全世界对彭帅事件愈发关注之际，中共当局对墙内严密控制消息的同时，却极力向海外发出试图证明彭帅“安好”的表演片段，遭到国际社会强烈质疑！ 有网民讽刺共产党竟然为个人报平安，能在短短几天内就把彭帅培养成演员。
 
-因中共病毒影响，众议院通过了一项五万亿美元的支出。这项严重失控的支出，对美元价值储备货币将是毁灭性打击！中央银行、集权政府、跨国利益集团，以及华尔街和伦敦的资本市场与中共深度勾结，法币踏上了毁灭的不归路！
+国际女子网球协会主席赛门表示，中共发出彭帅的视频并不足以证明她的人身自由！彭帅是否能在没有胁迫，或者外力干预下自己做出决定和采取行动，仍是未知数！同时，该协会再次发声，称过去两天中共发出的视像，不能消除对彭帅现状的担忧。
 
-每个公民都有责任为自己家庭的未来考虑！面对法币的贬值，人们希望通过某种方式让财产保值，腐败当权者的肆意妄为加大了人们对加密货币的需求，这也是加密货币未来走强的原因！喜币将成为未来交易中使用的货币，交易的媒介，具有储存价值！
+有评论指出，彭帅事件已经变得有爆炸性，冲击了北京的政治圈。而该事件，正是检验中共是否符合举办冬奥会的最好标准。
 
-参考链接：[https://gettr.com/post/phiixs8e56](https://gettr.com/post/phiixs8e56)
+参考链接：
+1:[https://www.voachinese.com/a/missing-chinese-tennis-star-reappears-in-public-in-beijing-20211121/6321914.html](https://www.voachinese.com/a/missing-chinese-tennis-star-reappears-in-public-in-beijing-20211121/6321914.html) 
+2:[https://www.voachinese.com/a/beijing-olympics-diplomatic-boycott-20211119/6320934.html](https://www.voachinese.com/a/beijing-olympics-diplomatic-boycott-20211119/6320934.html)
+3:[https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E8%8B%B1%E5%9B%BD%E4%B9%9F%E8%80%83%E8%99%91%E5%AF%B9%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E5%A4%96%E4%BA%A4%E6%8A%B5%E5%88%B6/a-59888162](https://www.dw.com/zh/%E8%8B%B1%E5%AA%92%E8%8B%B1%E5%9B%BD%E4%B9%9F%E8%80%83%E8%99%91%E5%AF%B9%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E5%A4%96%E4%BA%A4%E6%8A%B5%E5%88%B6/a-59888162) 
+4:[https://world.huanqiu.com/article/45gpbMvOPGb](https://world.huanqiu.com/article/45gpbMvOPGb) 5:[https://www.voachinese.com/a/Calls-to-Boycott-Beijing-Winter-Games-Grow-20211119/6318313.html](https://www.voachinese.com/a/Calls-to-Boycott-Beijing-Winter-Games-Grow-20211119/6318313.html) 6:[https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/al-10252021112409.html](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/al-10252021112409.html)
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-10.jpg)
 编辑/校对/发稿：文留
 
@@ -21,7 +25,7 @@
 
 [**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
 [**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
