@@ -2,33 +2,19 @@
 ---
 
 
-## 拜登政府提交紧急命令，要求立即恢复强制疫苗规定
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1690183/)
+## 中共和他的老朋友拜登有那么亲密吗？
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690218/)
 
-撰稿：Grace
+撰稿：东京樱花团/神的带领
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11244.png)[图片来源](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_9094605064592350219%22%7D&amp;n_type=-1&amp;p_from=-1)
+中共官媒近日解读称，美国总统拜登上台已经将近一年的时间，由于拜登总是在一些公共场合出现步履蹒跚、频繁咳嗽甚至语无伦次的行为，外界纷纷猜测拜登身体出现了问题。白宫方面坚持称拜登身体是健康的，没有任何问题，还指出拜登的支持率最低。
+从这些内容不难看出和前几天视频会晤的态度截然不同。那么是不是意味着中共又有了新的“老朋友”，拜登还有利用价值吗？他们还是会晤中的老朋友吗？
 
-校对：Grace
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-29-at-6.29.22-PM.jpeg)图片来源：en-volve
-据《每日邮报》11月23日报道, 乔.拜登在当日提起紧急诉讼，寻求在其设置的规定面临一系列法律挑战后，立即恢复他对拥有100名或以上工人的私人企业的强制中共疫苗规定。
+信息来源：[美国将迎来新总统？进医院没多久，79岁拜登再次被曝出“坏”消息](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_9094605064592350219%22%7D&amp;n_type=-1&amp;p_from=-1)
 
-拜登在本月初，颁布了新的中共病毒疫苗规定，要求工人在2022年1月4日之前接种中共病毒疫苗，否则就要在工作场所戴上口罩，和每周都要接受中共病毒检测， 而对于这些检测的费用，在大多数情况下都要工人自己支付。
-
-在拜登政府提出这条规定后，几个共和党领导的州、雇主、工会和其他组织对拜登政府的命令提起了诉讼。
-
-在11月6日，位于新奥尔良(New Orleans)的第五巡回法院(the Fifth Circuit Court) 初步暂停了该命令的执行，该暂停命令阻止了职业安全与健康管理局，继续实施其对雇主的强制中共病毒疫苗规定。
-
-第五巡回法院说，职业安全与健康管理局的规定，不适当地主张 “在工作场所法规的幌子下控制个人行为的几乎无限权力”。该法院命令职业安全与健康管理局不得采取任何措施来实施，或执行所谓的 “紧急命令”, 直到法院进一步下命令。
-
-上周三，职业安全与健康管理局已经宣布，在第五巡回上诉法院维持其对该规定的暂缓执行后，它将暂停实施和执行其命令。但是在今天，拜登政府提交紧急命令，要求立即恢复其强制疫苗规定。
-
-据报道，拜登的法庭动议是由司法部，向位于辛辛那提的美国第六巡回上诉法院(the Sixth U.S. Circuit Court of Appeals)提出的，该法院上周被一个跨地区诉讼联邦司法小组, 指定为裁决与拜登的强制疫苗规定有关的法律挑战的法院。所有与拜登该命令有关的案件都被合并到这法院。
-
-报道称，当所有与该疫苗规定相关的案件被转移到辛辛那提时，第五巡回法院失去了对这些案件的管辖权。
-
-拜登政府在其诉讼中要求，第六巡回法院现在解除第五巡回法院的暂停令。
-
-**新闻来源：****[Biden administration files emergency order to immediately reinstate its sweeping vaccine mandate on private companies after an appeals court knocked it down and its enforcement was suspended](https://www.dailymail.co.uk/news/article-10235075/Biden-files-emergency-order-reinstate-sweeping-vaccine-mandate-private-companies.html)**
-
+*编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
