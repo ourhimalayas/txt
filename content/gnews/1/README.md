@@ -2,161 +2,51 @@
 ---
 
 
-## 中共在中东要建多个军事基地这都是中共解放军自己出卖自己
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1692636/)
+## 谁敢吃螃蟹？澳洲退休基金对加密货币跃跃欲试
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1692697/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/a3a4l-koqqt-2.jpg)
-[https://gtv.org/video/id=619e3d57abc44c39e083f4e8](https://gtv.org/video/id=619e3d57abc44c39e083f4e8)
+**【雅典娜快讯】紧贴时事脉搏**
 
-**郭文贵**
-**Miles Guo**
+翻译整理/编辑：守望黎明
+![](https://assets.gnews.org/wp-content/uploads/2021/11/digit_C-scaled.jpg)
+图片来源：COINTELEGRAPH
+澳大利亚养老基金Rest Super将成为该国第一个投资于加密货币的退休基金。
 
-当时是CIA问我
-At that time, it was the CIA asking me
+该基金管理着价值超过468亿美元的资产，有大约180万名会员。澳洲的这种Super超级年金相当于美国的401K或个人退休账户，对所有就业者来说是强制性缴费的。直到现在，退休基金这个全球价值24万亿美元的行业对加密货币一直非常谨慎小心。
 
-还有情报部门问我
-and also the intelligence department
+在11月23日举行的Rest Super基金年度大会上，该公司的首席投资官安德鲁˖里尔告诉会员，该公司将数字资产视为其投资组合未来发展的 “重要部分”，但将”审慎 “地开展这项业务。他指出：
 
-问我一天问我这个东西
-They asked me about this (the CCP builds military bases in the Middle East) for the whole day
+“加密货币投资目前仍然不稳定，所以我们只能把它作为多元化投资组合的一部分加以配置。最初只是相当小规模的配置，随着时间的推移，再逐步增加。”
 
-我说我不知道
-I said I don’t know
+里尔补充说，他认为向会员提供加密货币和区块链技术的投资渠道，可以提供一个”稳定的增值渠道”，因为有大量投资者正在涌向加密货币，以冲抵基于法币的通货膨胀。
 
-但是你知道他们讲了个很关键的话
-But you need to know that they (the intel agents) said something very pivotal
+他说：”我确实认为，在一个通货膨胀的时代，这可能是一个潜在的投资沃土。”
 
-我们从中共方得到消息
-They said they got the information from the Chinese Communist Party
+在首席投资官做了这番讲话之后，Rest Super基金的发言人在一份声明中澄清说，他们 “当然在考虑将加密货币投资作为拓展会员的退休金增值的一种方式，但不会在近期马上进行。在做出投资之前，还要对该类别资产进行广泛研究。同时也在考虑投资这类资产的安全监管问题。”
 
-（中共）在那建那个基地
-that the CCP is building military bases there
+这些评论与澳大利亚超级基金（Australian Super）的看法形成鲜明对比，这个价值1670亿美元的基金的首席执行官保罗˖施罗德（Paul Schroder）11月22日明确表示：”我们不认为养老基金应该投资加密货币。”
 
-我说那你们自己可以去核实去呀
-I said you can verify it yourself
+上个月，有报道称国有投资基金昆士兰投资公司(QIC)正在评估投资加密货币的风险。然而，该公司本周告诉《商业内幕》，称这些报道 “表达不当”，并回避了投资任何数字资产的可能。
 
-他们问我的时候，我说我不知道
-When they asked me, I said I didn’t know
+QIC的资金主管斯图尔特˖西蒙斯(Stuart Simmons)也表示，虽然他预计养老基金在未来会涉足加密货币，但这个过程 “可能是小河流水，而不是大江奔腾。”
 
-但是他们，你看第一次今天班农把我给爆料了
-But you see, for the first time, Bannon has broken the news on me today
+澳洲参议院委员会于10月制定了广泛的监管意见，推动澳大利亚发展成为下一个加密货币的中心。澳大利亚联邦银行（CBA）在本月早些时候推出银行应用程序，提供加密货币的交易平台。在这个时候又出现的这次退休养老基金投资加密数字货币的讨论，无疑让澳洲的加密货币市场进一步升温。
 
-这是个很大的误会
-This is a big misunderstanding
+相关的， 有澳大利亚参议员称去中心化金融（DeFi）不会是昙花一现。
 
-当时是所有的CIA问的问题是来自中共内部的
-At that time, all the questions asked by the CIA came from internal of the CCP
+当全澳洲都在伸着脖子，等着看哪家大传统金融企业第一个拥抱加密货币的时候，联邦银行CBA的首席执行官马特·科曼（Matt Comyn）本周表示，该银行的错失焦虑（FOMO）大过了对数字资产风险的担心。
 
-我跟班农先生第一次见面
-I met Mr. Bannon for the first time
+他说：”因为参与有风险，但不参与的风险更大！”
 
-我就说班农先生
-I already told Mr. Bannon
+原文链接: [Australia’s Rest Super retirement fund to invest in crypto for its 1.8M members](https://cointelegraph.com/news/australia-s-rest-super-retirement-fund-to-invest-in-crypto-for-its-1-8m-members)
 
-我跟CIA见面
-I had met the CIA
+发布：Peter Xin
 
-我说还有跟FBI见面
-and also the FBI
-
-我说你们要想办法把房峰辉给搞定
-I said you need to find a way to unite Fang Fenghui (a former top general in the PLA)
-
-他说怎么可能房峰辉会跟我们合作呢
-Mr. Bannon said how could it possible that Fang Fenghui cooperating with them,
-
-不可能, 最后房峰辉被抓了
-it’s impossible, but Fang Fenghui was arrested in the end
-
-房峰辉被抓之前一直跟我有联系
-Before being arrested, Fang Fenghui had been in contact with me,
-
-说只要美国人只要能保我家人性命
-saying that as long as the Americans can save his family’s life
-
-我把所有的这些东西都给出去（美国）
-he would provide all information (the CCP builds military bases in the Middle East) to the US
-
-记住啊，当时他就说
-Keep that in mind, at that time he said
-
-美国要小心的是Chemical Weapon、Biology Weapon, Do you remember？
-the United States needed to pay close attention to chemical weapons and biological weapons
-
-当时就说这话
-He said those at that time
-
-而且房峰辉当时就跟美国说
-And Fang Fenghui said to the U.S. during that time
-
-中共的计划要在中东建多个军事基地
-the CCP’s plan was to build multiple military bases in the Middle East
-
-这都是2017年发生的事情
-These are all that happened in 2017
-
-今天班农先生把我的料给爆了
-Today, Mr. Bannon has broken my information
-
-他说我跟CIA
-He has said that the CIA and I…
-
-今天我可以对着镜头前这么说
-But, I can say this in front of the camera today
-
-这都是当时房峰辉还有军队的人告诉我的
-All these are what Fang Fenghui and people in the military told me
-
-今天看直播 很多中共高官（看）
-Many senior CCP officials are watching the live broadcast today
-
-你们都别搞错了
-Please don’t get that mixed
-
-是你们的人卖掉了你们
-It’s your people who betrayed you all
-
-不是UAE（阿联酋）也不是郭文贵
-instead of UAE, nor Miles Guo
-
-木兰你们要抓紧把这段翻译字幕加出来了
-Mulan, you need to hurry up and translate this video clip, push it out with subtitles
-
-要不然要搞老大的误会
-Otherwise, it would be a huge misunderstand
-
-人家UAE（阿联酋）以为我把UAE（阿联酋）给爆了
-UAE would think that I had pointed them out
-
-可不是我把UAE（阿联酋）给爆的
-It was not me to point out UAE
-
-是解放军的跟他们（合作）的（人）把他们给卖了
-It was the people who cooperate with the People’s Liberation Army have betrayed them
-
-所以你可以看那个报道就可以看得出来
-So you realize that by watching the report
-
-**原视频链接:**[https://gettr.com/post/phj0gz46a8](https://gettr.com/post/phj0gz46a8)
-
-Date: 11/21/2021
-原视频标题: 中共在中东要建多个军事基地这都是中共解放军自己出卖了自己
-The PLA Betrayed Themself by Revealing The CCP Building Military Bases in the Middle East
-原视频日期：2021/11/20
-原视频链接: https://gettr.com/post/phj0gz46a8
-任务编号：2973
-视频时间段 : 0:00-1:47
-
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
