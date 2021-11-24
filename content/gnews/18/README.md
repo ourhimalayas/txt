@@ -2,33 +2,24 @@
 ---
 
 
-## 有声|德国卫生部长暗示实施强制疫苗接种令
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1690581/)
+## 中俄军事合作威胁日本安全
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690660/)
 
-配音：香草山香港部 – 文凯琳
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-据[零对冲](https://www.zerohedge.com/political/vaxxd-cured-or-dead-german-health-minister-hints-jab-mandate-merkel-fears-highly-dramatic)11月22日报道，即将离任的德国总理安格拉·默克尔周一表示，欧洲中共病毒感染的最新激增“比德国迄今为止经历的任何事情都要糟糕”，并呼吁采取更严格的限制措施，以阻止病毒在假期再次传播。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-646.png)[图片来源](https://sunnews.cc/military/205258.html)
+中共国和俄罗斯军方的轰炸机11月19日共同飞越日本周边空域，日本防卫大臣岸信夫23日就此对记者表示，这切实反映了日本所处的安全环境正在恶化，日方对此表示严重关切，并将继续进行警戒监控。
 
-同时，德国卫生部长延斯·斯潘周一警告说，大多数德国人将在未来几个月内，即可能到今年冬天结束时，“接种疫苗”或从中共病毒中“痊愈或死亡”，暗示了潜在疫苗强制接种令的实施。
+据日本防卫省公布，19日中共国和俄罗斯军方分别派出2架轰炸机飞越日本海到东海一带的空域，4架军机之后穿过冲绳本岛和宫古岛之间进入太平洋。这是防卫省自2020年12月以来第3次公布中俄军机在日本周边进行联合飞行的消息。
 
-在德国，许多著名的户外圣诞市场已经连续第二年被取消，没有接种疫苗的人可能面临宵禁及其他限制。
+对此，岸信夫表示，中俄双方多次举行军事演习可以认为是针对日本的示威，不能否认双方有进一步加深军事合作的可能。
 
-当包括德国的邻国奥地利在内的许多欧盟成员国，在许多人描述的 “第四波”感染中收紧限制的时候，本周末，欧洲和全球爆发了，旨在反对强制疫苗政策和疫苗接种令的，更广泛的示威活动。
+他还表示：“这切实反映了日本所处的安全环境正在恶化，日方对此表示严重关切，将继续进行全方位警戒监控，并竭尽全力大幅提高我国的防卫能力。”
 
-文字版原文：[德国卫生部长暗示实施强制疫苗接种令](https://gnews.org/zh-hans/1686949/)
+消息来源：[日防卫大臣严重关切中俄轰炸机联合飞行](https://www3.nhk.or.jp/nhkworld/zh/news/334463/)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
-
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

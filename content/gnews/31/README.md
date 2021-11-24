@@ -2,34 +2,49 @@
 ---
 
 
-## “正能量”是个啥？
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690504/)
+## 苏格兰政府将疫苗护照的私人数据共享给亚马逊和微软
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1690538/)
 
-撰稿：东京樱花团/tdownc2p
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-641.png)[图片来源](https://baike.baidu.com/item/%E4%BA%94%E4%B8%AA%E4%B8%80%E7%99%BE/18909991?fr=aladdin)
-事情对错有法律，消息真假看事实，而满屏的“正能量”是个啥呢？百度百科这么说：把消息分成正面的和负面的，这个本身和阶级立场是有决定关系的。所有符合社会主义核心价值观的就是“正能量”。于是我明白了，正能量其实就是块遮羞布，哪里需要遮哪里。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-它红肿之处，要说艳若桃花，溃烂之时，也美如乳酸，“饥者歌其食，劳者歌其事”，百姓说句心里大实话，那是不行的，造谣惑众，寻衅滋事，泄露机密，直到让你乖乖闭上嘴。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-23-at-7.44.28-AM-1024x577-1.png)
 
-正能量就是文字狱，百姓不服，它们会随时“焚书坑儒”。
 
-正能量是它们不会少食肉糜，而百姓要吃糠咽菜。
 
-正能量是它们不会为你而变的公正廉洁，而百姓却要为它们鞠躬尽瘁，死而后已。
+图片来源：yournews.com
 
-正能量是它们可以不劳而获，而百姓要忍受劳而不获，并无怨无悔。
 
-正能量是它们可以指鹿为马，谈空说有，而百姓要随波逐流，望梅止渴。
+#### 编译：小红帽
 
-正能量是被强奸蹂躏时，若有呻吟，也必须要悦耳动听。
+**据透露，苏格兰政府已经允许疫苗护照计划的数据与包括亚马逊在内的私人公司共享。**
 
-正能量是墙外不精彩，炮火连天，民不聊生很残酷，而墙内真安定，官民鱼水，岁月静好太幸福。
+《每日记录报》报道：“我们了解到，以二维码形式呈现个人医疗信息的NHS手机应用程序与包括亚马逊、微软、ServiceNow、皇家邮政和一家人工智能面部识别公司共享数据。”
 
-正能量是画皮，是皇帝的新衣，是唱颂歌做舔狗，是尔之饴糖，我之砒霜，呸！我去你的正能量！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-642.png)图片来自网络
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+报告称，疫苗护照应用程序的用户没有被告知他们的数据将被共享。
+
+隐私倡导者组织“自由”（Liberty）的山姆·格兰特（Sam Grant）警告说：“疫苗护照创造了一个两级社会，苏格兰的许多人已经被迫获得疫苗护照，以便参加活动和进入社会的某些部分。”
+
+格兰特补充说：“令人担忧的是，在这样做的时候，数据已经与第三方共享，而人们无法选择退出，甚至没有被告知这种情况正在发生。这只会加剧人们对疫苗护照的广泛担忧。”
+
+苏格兰自由民主党领袖亚历克斯·科尔·哈米尔顿（Alex Cole-Hamilton）表示 ：“每个人都有医疗隐私的权利；没有人应该向保镖或一系列私人公司提供他们的部分医疗史。这简直是荒谬的。”
+
+另一个隐私倡导者团体“老大哥在看着”（Big Brother Watch）的负责人丝丽·卡罗（Silkie Carlo）周一解释了为什么疫苗护照在苏格兰是完全失败的。
+
+政府数据和同行评审的研究表明，接种疫苗的人和未接种疫苗的人一样有可能传播中共病毒（COVID-19）。
+
+既然如此，实行疫苗护照的理由就被彻底推翻了。
+
+**参考新闻：**[Report: Scottish Government’s Vax Passport Sending People’s Private Data To Amazon, Microsoft – Summit News](https://summit.news/2021/11/23/report-scottish-governments-vax-passport-sending-peoples-private-data-to-amazon-others/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

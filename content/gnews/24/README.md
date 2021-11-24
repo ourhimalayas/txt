@@ -2,50 +2,33 @@
 ---
 
 
-## 日越防长确认在海洋和网络领域合作 应对中共威胁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1690543/)
+## 有声|德国卫生部长暗示实施强制疫苗接种令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1690581/)
 
-作者：东京樱花团—在远方
+配音：香草山香港部 – 文凯琳
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+据[零对冲](https://www.zerohedge.com/political/vaxxd-cured-or-dead-german-health-minister-hints-jab-mandate-merkel-fears-highly-dramatic)11月22日报道，即将离任的德国总理安格拉·默克尔周一表示，欧洲中共病毒感染的最新激增“比德国迄今为止经历的任何事情都要糟糕”，并呼吁采取更严格的限制措施，以阻止病毒在假期再次传播。
 
+同时，德国卫生部长延斯·斯潘周一警告说，大多数德国人将在未来几个月内，即可能到今年冬天结束时，“接种疫苗”或从中共病毒中“痊愈或死亡”，暗示了潜在疫苗强制接种令的实施。
 
+在德国，许多著名的户外圣诞市场已经连续第二年被取消，没有接种疫苗的人可能面临宵禁及其他限制。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+当包括德国的邻国奥地利在内的许多欧盟成员国，在许多人描述的 “第四波”感染中收紧限制的时候，本周末，欧洲和全球爆发了，旨在反对强制疫苗政策和疫苗接种令的，更广泛的示威活动。
 
+文字版原文：[德国卫生部长暗示实施强制疫苗接种令](https://gnews.org/zh-hans/1686949/)
 
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-11月23日，日本防卫相岸信夫，与到访的越南国防部长潘文江举行了会谈。双方就近期东海和南海局势交换了意见，对中共“依靠实力单方面改变现状的尝试”表达了强烈反对，表示要维持基于法治的国际秩序，开展合作。
-
-岸信夫对本月19日俄罗斯和中共各2 架轰炸机，在日本海和东海长途飞行一事表示，不排除中共与俄罗斯进一步深化军事合作的可能。从安全角度出发，日本将深度关切。
-
-据悉，两国还签署了推进网络安全领域防卫合作的备忘录。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-164.jpg)
-参考链接：
-[日越防长确认在海洋和网络领域开展合作](https://china.kyodonews.net/news/2021/11/51fec1db4558.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：文徬
-编辑：Kathy文艺
-校对/发稿：为真不破20
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 **更多资讯，更多关注**
-
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
-
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

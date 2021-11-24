@@ -2,45 +2,49 @@
 ---
 
 
-## 澳英美三国签署核潜艇联盟的关键协议
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1690337/)
+## 堪萨斯州拟立法放宽疫苗宗教豁免
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1690438/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16377272931-1.png)*根据 AUKUS 协议，澳大利亚将获得八艘能够执行隐形远程任务的最先进的核动力潜艇。 它还提供共享网络、人工智能、量子和未指定的海底能力。 – EPA Pic*
-澳大利亚周一正式启动了一项争论激烈的计划，在与英国和美国的新防御联盟中为其海军配备核动力潜艇。
-
-国防部长彼得·达顿与美国和英国外交官一起签署了一项协议，允许他们国家之间交换敏感的“海军核动力信息”。
-
-这是自这三个国家9月宣布成立防务联盟（澳英美联盟，AUKUS）以来公开签署的第一份关于该技术的协议，以应对中美竞争日益激烈的太平洋地区的战略紧张局势。
-
-“该协议将允许合作，这将进一步改善我们的共同防御态势”美国总统乔·拜登周五在达顿与美国代办迈克尔·戈德曼和英国高级专员（大使）维多利亚·特雷德尔在堪培拉签署仪式前发表声明说。
-
-根据澳英美联盟协议，澳大利亚将获得8艘最先进的核动力潜艇，能够执行隐蔽的远程任务。它还提供网络共享、人工智能、量子和未指明的海底能力。
-
-该协议激怒了中共国，中共国称其是对该地区稳定的“极其不负责任”的威胁。
-
-这也激怒了法国，它在最后一刻发现自己与澳大利亚签订的柴电潜艇合同–最近估计价值900亿澳元（650亿美元）–已被取消。
-
-澳大利亚总理斯科特·莫里森对他对协议的处理毫无歉意，坚称这符合澳大利亚的国家利益，并且他知道这会“激怒一些人”。——法新社
-
-简评：简单的说，澳大利亚在最后一刻选择美英核动力潜艇而不是法国柴电潜艇，并与此同时能够参与获得美英海军核动力信息。
-纯从军事意义上说，核动力就在补给、续航、自身噪音上远远优于柴电潜艇。并且由于使用美系潜艇，其所需的武器配给通用性也远远高于法系，在紧急状况下可以直接通过日本，韩国，或者第二岛链中的一系列基地获得补充，而不是需要返回澳大利亚基地补充法系装备。从这两点就可以看出澳大利亚核动力潜艇做为能够长期巡航亚太海域的新兴力量，对中共造成了可预见的实质性威胁。会咬人的狗不叫，相对比中共感觉到真正威胁后不停的各种抗议威胁叫嚣，澳大利亚在受到中共一系列的经济打压，外贸限制后，原本以平衡亚太海域海军力量为考量选择柴电潜艇转而购买以压制中共海军力量为考量的核动力潜艇，充分显示出澳大利亚政府对中共的直接反抗，这也从某方面看到了中南坑所谓下一盘大棋的水平。以美国为主的国家在集结，正在对中共国的海上势力形成系统性的围剿和遏制，中共灭亡拭目以待！
-
-新闻链接：[https://www.nst.com.my/world/world/2021/11/747465/us-australia-uk-sign-key-deal-nuclear-sub-alliance](https://www.nst.com.my/world/world/2021/11/747465/us-australia-uk-sign-key-deal-nuclear-sub-alliance)
-
-翻译/简评：Brianchow
-
-PR：clau
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者：纽约香草山教育部 – Naughty(文行)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+
+
+
+11月22日，堪萨斯州共和党议员采取行动挑战该州的疫苗强制接种政策，并要求州长劳拉·凯利召开特别会议，研究应对中共病毒疫苗强制接种政策的措施，并积极推动雇主接受所有宗教豁免的请求。
+
+凯利在声明中说，“我认为拜登这项指令对堪萨斯州来说不是正确或最有效的解决方案。我们已经制定了适合我们具体需求的系统和战略。”
+
+当日，堪萨斯州参议院投票批准了相关法案，并禁止私人雇主发布疫苗强制接种的要求。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-10.jpg)
+参考链接：
+[Kansas GOP eases religious vaccine exemptions, moves to limit mandates](https://thehill.com/homenews/state-watch/582736-kansas-gop-ease-religious-vaccine-exemptions-move-to-limit-mandates?utm_source=ground.news&amp;utm_medium=referral)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
+
+总编：文徬
+编辑：木白
+校对/发稿：为真不破20
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
 
  
 

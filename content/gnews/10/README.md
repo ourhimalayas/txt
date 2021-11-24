@@ -2,38 +2,40 @@
 ---
 
 
-## 小米市值蒸发3400多亿元，雷军成2021中共国第三惨富豪
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1690666/)
+## 郭文贵先生临时直播爆料 本周三件大事
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1690721/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/112402.jpg.jpg)小米集团董事长雷军。图片：来自网络
-**编辑摘要：**
-
-据AI财经社11月24日报道，今日港股盘中，小米集团罕见大跌超8%，报19.02港元/股，总市值报4760亿港元。从年初股价创新高的35.9港元/股后，小米集团便陷入震荡回调行情，至今股价跌去47%，市值蒸发超4200亿港元（约合3400亿元人民币）。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-647.png)
-随着小米股价持续走跌，也让创始人雷军年内身价缩水129亿美元，仅次于恒大许家印（其身家2021年缩水152亿美元），拼多多创始人黄峥（其身家2021年缩水347亿美元），成2021年中共国第三惨富豪。
-
-身在中共国的企业家，最惨的并不是财富的缩水或是一贫如洗，而是中共这个恶魔在掠夺你所有财富之后，要你家破人亡，让你族人消失。尽管悲惨的例子周而复始上演了70年，但依然有很多人仍抱有侥幸和幻想，以为一味的妥协和让步就有生存下来的机会。我们现在必须抛弃幻想，团结一致消灭中共，才能让自己和家人过上平安健康的生活。
-
-新闻参考链接：[做空才能救小米？市值蒸发3400多亿元，雷军成2021中国第三惨富豪](https://c.m.163.com/news/a/GPIM0GRK0519D3BI.html?spss=newsapp)
-
-***编辑：【英国伦敦喜庄园编辑部】***
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+作者: 香草山农场-晓仙女
 
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-4.png)
 
 
 
+2021年11月22日，郭文贵先生盖特直播，透露了本周的三件大事。 首先，GTV要升级，会有一系列的行动，提醒拥有喜币的战友，虽然有6成的控制权，但没有喜联储的股权。进入GTV系统，才是gclub, gfahion,喜联储的股东，才有铸币权，享受千秋万代的利益。 其次，所有gclub投资者，拥有每个国家和地区HPay的优先代理权。 第三，有人冒充战友骗了币，影响到农场喜币的额度，农场有权把币取消，所有不配合联盟行动的，都不是战友。中东迪拜，一系列的公布，证明着喜币的价值，战友更应该了解喜币价值！
+
+文贵先生表示：疫苗灾难2022年5月真正开始，爆料革命要停止疫苗对全世界人类的迫害，病毒真相和新冠疫苗解药，都来自新中国联邦。无论发生什么，灭共是使命，违背灭共目标是不行的。
+
+参考链接:
+
+[https://gettr.com/post/phm51a8243](https://gettr.com/post/phm51a8243)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-10.jpg)
+总编: 飞虹
+
+校对/发稿: 卡夫卡的甲壳虫
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
