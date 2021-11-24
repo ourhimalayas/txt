@@ -2,223 +2,55 @@
 ---
 
 
-## 班农先生的人格魅力是我们中国人最为缺少的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1691353/)
-
-[https://gtv.org/video/id=619de6cfe6900076612f1d4c](https://gtv.org/video/id=619de6cfe6900076612f1d4c)
-
-班农先生不但他支持中国人
-No solo el Sr. Bannon apoya a los chinos
-
-他父亲、他兄弟
-Su padre, sus hermanos
-
-他妹妹、他全家
-Su hermana menor, toda su familia
-
-都支持新中国人老百姓
-Apoyan a los ciudadanos de la Nueva China
-
-而且班农先生冒着生死威胁
-Además, el Sr. Bannon está arriesgando una amenaza de vida y muerte
-
-创建法治基金、法治社会
-Para crear el Fondo y la Sociedad de Estado de Derecho
-
-然后一起创建一切
-Y crear todo en conjunto
-
-我们新中国联邦人可以说第一次
-En la Federación de la Nueva China podemos decir que por primera vez
-
-向中国人展示了我们不是说白人
-Le demostramos a los chinos que hablamos de la raza blanca
-
-要不就是我们的敌人
-Como nuestros enemigos
-
-要么就是我们的奴隶
-O como nuestros esclavos
-
-要不就是奴隶我们的主人
-O como esclavo de nuestro amo
-
-不是这个关系
-No es esta relación
-
-我们平等相处
-Nosotros nos llevamos bien en igualdad
-
-我们可以互敬互爱互尊
-Podemos respetarnos y amarnos mutuamente
-
-而且完全没有种族观念的
-Además, sin ningún concepto racial en lo absoluto
-
-和班农先生在推行全球的
-Para promover junto al Sr. Bannon
-
-整个全球的平民主义
-El populismo en todo el mundo
-
-包括推行我们的新中国联邦
-Incluyendo promover nuestro Nuevo Estado Federal de China
-
-新中国联邦
-Nuevo Estado Federal de China
-
-这是一个前所未有的
-Esto nunca antes había sucedido
-
-而且我们没流一滴血
-Además, nosotros no derramamos ni una gota de sangre
-
-没有死一个人
-No se ha muerto una persona
-
-所以说今天在这个时候
-Por eso hoy en este momento
-
-我们跟班农先生再坐在一起的时候
-Cuando estamos sentados junto al Sr. Bannon
-
-这个世界最重要的就是
-Lo más importante de este mundo es que
-
-用今天你来看过去发生的历史
-A través de hoy vemos las historias que sucedió en el pasado
-
-来对比过去的历史
-Haciendo una comparación con las historias del pasado
-
-再看到你看我们今天当时新闻发布会出现的那些人当中
-Vemos de nuevo, entre esas personas que se presentaron en la rueda de prensa en aquel momento
-
-现在很多人已经都背叛了
-Ahora hay mucha gente que ha traicionado
-
-这是很正常的
-Esto es normal
-
-人类大自然优胜劣汰的
-La naturaleza humana sobrevive a los más aptos
-
-这是一个正常的自然现象
-Este es un fenómeno natural normal
-
-但是要看到
-Pero hay que ver
-
-为什么班农先生还能跟我坐在一起
-Por qué el Sr. Bannon aún puede estar sentado a mi lado
-
-为什么班农先生
-Por qué el Sr. Bannon
-
-今天还能有这样的激情
-Hoy en día aún puede tener esta pasión
-
-还有这样的影响力
-Y este tipo de influencia
-
-就当时 FBI 的人给我说
-En ese momento los de FBI me dijeron
-
-说你们中国人就是要脸要面子
-“ustedes los chinos sólo quieren el prestigio y la reputación
-
-全世界只有美国一个 Steve K. Bannon
-En todo el mundo sólo hay un Estados Unidos, un Steve K. Bannon
-
-他说被人家给打到地上 It’s shit
-Dijo que alguien lo golpeó en el suelo diciéndole: “es una mierda”
-
-然后班农到 Europe
-Y cuando Bannon se fue a Europa
-
-You know the FBI said
-“Sabes qué dijo el FBI”
-
-然后欧洲回来以后 Number one hero
-Y luego cuando regresó de Europa, “héroe número uno”
-
-FBI 说他从来没要面子
-El FBI dijo que él nunca quiso reputación
-
-Steve Bannon never wants to say give my face
-“Steve Bannon nunca dijo: dame mi reputación”
-
-I don’t care face, just want to win
-“No me interesa la reputación, sólo quiero ganar”
-
-Chinese say give my face
-“Los chinos dicen dame mi prestigio”
-
-Face so fake, nothing 所以说班农先生人家赢
-“El prestigio es falso, no es nada” Por eso el Sr. Bannon ganó
-
-FBI 说人家班农就是英雄啊
-El FBI dice que Bannon es un héroe
-
-那么班农先生即使经历这么多事情
-Así el Sr. Bannon haya pasado por tantas cosas
-
-从来没有见他有一点点犹豫
-Pero nunca se le ve ni un poquito de indecisión
-
-这是我们一个学习的一个人格的好榜样
-Este es un buen ejemplo de una personalidad para aprender
-
-说他是种族主义
-Dicen que él es racista
-
-Racialism
-Racismo
-
-班农先生是
-El Sr. Bannon es
-
-American only one
-El único americano
-
-White people 100% support Chinese
-Persona blanca que apoya a los chinos al 100%
-
-I never get feeling you are racialism
-“Yo nunca logré sentir que eres racista”
-
-Never never never
-Nunca nunca nuca
-
-One hundred twenty days with you together
-120 días contigo juntos
-
-One boat one life twenty-four hours sleep together
-En un barco, una vida, 24 horas durmiendo juntos
-
-I never get feeling your racialism
-Yo nunca te sentí que eras racista
-
-* * *
-
-日期：11/23/2021
-原视频标题：班农先生的人格魅力是我们中国人最为缺少的
-El encanto de la personalidad del Sr. Bannon es lo que más nos falta a los chinos
-原视频日期：11/22/2021
-原视频网址：https://gettr.com/post/phlgeuab7b
-任务编号：KC283（2982）
-视频时间段：0:00-2:21
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+## 从中国汉服的演变历史谈谈G-Fashion的意义
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1691806/)
+
+作者：推推党宣传部长
+![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-24-at-10.22.28-AM.jpeg)
+我们常常看直播的就知道郭文贵先生最喜欢在直播搞时装秀。郭先生对穿着品味非常的讲究，也常常批评一些国人的穿着，特别是那些伪类。简直是丢尽海外中国人的脸。在直播中也尽力推荐G-fashion. 衣服好看真的那么重要吗？从历史宏观角度看衣服穿的好看还真的非常重要。
+
+服装除了最基本的蔽体、御寒等作用之外，还有一个重要的功能就是装饰美化人体.所以 服装的穿着又和社会的政治、道德、风尚、文化艺术修养等联系在一起，能够反映着一个民族的文化水平和物质文明发展的程度.服装是社会意识形态的组成内容之一，体现了人类文明和文化。从中国服装历史的演变的来看，也证实了这一点。当一个朝代越强大，越开放，服装就越华丽，越美丽，比如汉唐宋明。**反之亦然，比如 “解放后”**** 全中国十亿人就只能穿两种颜色的工农装时期是中国政治经济文化最黑暗的时期**。排在第二就是全中国男人都剃辫子头的清朝。
+
+因为传统知识断代，大部分国人对中国传统服装知之甚少。首先不要被中国古装剧误导，古装剧中汉服百分之八十的都是错的。那些流水线古装剧中的汉服装都极其缺乏历史考证。造成影视中的汉服经常各种朝代乱穿越：唐朝人穿宋朝人衣服，汉朝人戴明朝人帽子等都是司空常见的事情。由于影视剧的不严谨造成了很多观众产生清朝前古人们都穿同一类型服装的错误印象。但实际上每个朝代汉的服都有很大的不同，每一朝代的服饰都根据当时经济政治文化而会产生重大的变化。
+
+中国的传统服饰的种类和其演变及其复杂。几千的年汉服演变史几本书都说不完.下面只能非常简单的概况每一朝代的据有代表性的 汉服. 汉服的形制粗略的可以基本分为秦汉，魏晋，南北朝唐，宋，明。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1457-1.png)
+秦汉服饰制度基本承袭周朝制度。西汉代代表性的服装是深衣。深衣是直筒式的长衫，把衣、裳连在一起包住身子. 就是上衣和下裳相连在一起，用不同色彩的布料作为边缘，其特点是使身体深藏不露。深衣 又分为 曲裾和直裾。虽然都是起源于周朝，但西汉时候是流行穿曲裾，而到了东汉时候因为直裾简单穿戴成为了主流而且影响到了后代的汉服。从汉朝汉服演变可以明显看出是从汉服从汉初的朴素到后期的华丽。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1754.png)
+汉末魏晋开始讲究玄学风气，汉服的风格变得潇洒飘逸，也开始追求繁华、奢丽的风格.风流名士们崇尚自然、超然物外，率真任诞而风流自赏。姿容飘逸的魏晋风度也反映到了汉服上，这一时期的男子一般都穿大袖衫，上自王公名士，下及黎庶百姓，都以宽衫大袖，褒衣博带为尚。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片142414.png)
+然后就是南北朝。当时大环境就是，五胡乱华，佛教在中国兴盛。在这时期汉服吸收非常多外族的元素，风格变的更多样更华丽。颜色也变的更鲜艳。 这个时期的汉服既承接了魏晋时期的飘逸，洒脱的汉服风格，又凸显了唐朝时期的汉服多元化雏形。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1678.png)
+南北朝那时候连男的贵族也喜欢盛装打扮，化妆穿裙子，比女子穿更华丽.南北朝出现很多帅哥，比如南陵王，独孤信，慕容垂等。那时候在选继承人或者封官的时候都会考虑候选人的长相是否俊美。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片158757.png)
+隋唐的汉服集南北朝的大成，因为国家强盛经济发达，思想开放，把汉服发展推到一个巅峰.这个时期汉服的种类更多，更华丽。随着大唐对西方扩张，服装也融入非常多的西域中亚的元素。唐朝人除了穿自己汉服，还流行穿胡服（西域和北方少数民族的服装）。很多女性也喜欢穿男性服装出门上街，这是一千年后在明清两朝都是无法想象的。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片177.png)
+说到唐装不得不提到我们常常在以唐朝为背景影视剧中看到的袒胸装呢 （比如张艺谋导演的满城都是黄金甲中宫女的穿着）. 虽然唐朝风气开放，是存在袒胸裝。它是在武則天時期才開始流行的，而這個袒胸裝也不是什麼場合，什麼人都能穿的一般，只有在宮廷贵族女子，和妓女才穿。最重要的是它根本没有像电影电视那么“露“。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片132.png)
+唐朝灭亡后，经过几十年的战乱，到宋处时候，国家十分的穷，开始提倡节俭 ，虽然大体沿袭唐制。汉服不再艳丽奢华，而是简洁质朴。 直到宋中期，国家有钱，才又开始奢华起来 宋朝汉服历史中最接近现代服饰的，褙子，宋抹，宋裤和宋垮，比甲也是在这时出现。如果说如果说唐代衣服追求雍容华丽，宋朝的风格就是风流儒雅。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片164.png)
+人们印象中宋朝开始流行理学，女性穿着开始保守，其实不然。程朱理学论始于南宋，只流行小部分知识分子中，甚至程朱理学创始人朱熹本人都很开放，多次劝守寡的儿媳改嫁。女性地位虽然比不上唐朝，但远胜于明清。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片18754.png)
+然后就是元朝的，虽然蒙古人入主中原，大搞种族歧视。但蒙古人治理国家，很佛系，搞放牧式管理， 不才干涉人民穿着。所以汉服得到延续。这时期汉服也吸收很多蒙古和中亚的元素，对后来的明朝的汉服影响巨大。（据蒙古朋友说，元明的时候，蒙古服也吸收汉服的很多元素，直到明末，蒙古臣服于满清后，满清也对蒙古人进行“易服”汉元素全部消失，现代的蒙古服和元明时期是完全不同）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片167867.png)
+然后是明朝，又是一个汉服发展的巅峰。朱元璋建立明朝后力主恢复唐宋汉服，而民间的汉服又吸收元朝的蒙古人和色目人的服装的元素。受程朱理学影响，明初的服装制度是很非常严格的，什么阶层穿什么款式、服色都是规定好了的，不能僭越， 非常保守.但后来皇帝（嘉靖万历）不管事，也随着心学的流行，大航海时代的到来，城市经济的发展，民间开始放飞自我.虽然那时明朝上层十分腐败，官场死气层层，但民间却十分富裕和自由，连普通的市井小民都能穿的起华服。史料记载即使到了崇祯的末年，明朝的国家财政破产，住在北京的小民甚至借钱的也要给自己置办漂亮的服装。明朝汉服是所有朝代中最多样化的。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片16868.png)
+明朝女性汉服变的保守，唐宋流行于女性中袒胸装消失呢，一方面是程朱理学的流行。更重要原因是明朝那是时候，处于小冰河时期，天气冷呢.大家都穿多呢。现代的很多年轻人说明初的服装比较像韩服，但其实是反过来，是韩服像汉服.。那时候朝鲜是大明的属国 （朝鲜名字也是朱元璋起的） 所以服饰全部以大明为准 （当然韩服后来自己慢慢发展，自成一系） 明服也影响到东南亚，比如越南。直到20初，越南皇室和贵族也是穿着明朝的汉服制式。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片13457.png)
+然后就是 。。。清朝的 断发易服。汉服就没了。 满洲人吸取蒙古人的教训，要征服一个民族，先要灭了他的服装。 剃发令在明末清初引起强烈反抗 很多早已投降清朝汉人，为了保护自己服装起兵反抗 然后就是一次次屠杀，烈性男都人死光了。留下就是奴才。传说汉人 和满清达成协议“ 降男不女降 生降死不降”. 意思是人活着的时候必须穿满族服装，但死了之后，可以穿明朝的衣服和冠服出殡。男的换满族的服装，妇女则不需要更换服饰。 就为了服饰死了那么多人。 还补充一下，不要被电视骗了。 清朝人是留着金鼠辫子头，而不是电视上常见的阴阳头。那种 阴阳头是直到清末才流行起来的。**当时日本人看到了中国人留起了金鼠辫子头，不穿汉服。认为中华正统在中国已经完了。开始认为自己的才是中华正统，史称“华夷变态”。清朝的士大夫心理是十分扭曲，一边留着金鼠辫子头，一边读着儒家经典中“衣冠上国、礼仪之邦”。这种扭曲的心态是创造不出任何文明文化的。中国也全面进入的奴才文化的时代。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1687.png)
+然后就是民国，虽然民国外交内困，年年战争不断，但那时思想自由，也包容开放。中国服装 又是迎来发展一个小高潮。 中山装，旗袍，改良旗袍，民国学生制服不仅实用而且 也非常好看。中山装，旗袍现代基本上就是代表了国服。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1357.png)
+然后就是 1949年“解放后 ”，全中国十亿人就只能穿两个颜色的工农装。除了土，就是土。
+
+那时候什么状况，就不多述呢。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片14573.png)
+总结一下，通过汉服的演化历史。可以看出中华民族是十分爱美的，注重礼仪的民族。汉服绝不是狭义上汉族人穿的服装，更不是宣传民族主义的工具。汉服演化历史看出中华文化有极大的包容性，吸收大量的外族的元素。当汉服越漂亮越华丽的时代，就是中国最强大，文化最包容的时代，**反之亦然，比如满清和文革时期**。最可惜的是，历史文化传承断代。现在中国人对自己祖先文化了解甚少。十年前，还发生汉服爱好者穿汉服上街被反日小愤青当作和服强行扒下来的荒唐事。也希望G-Fashion 以后在服装设计中融入更多中华元素。
+
+编辑/发布：LILY
+
+20211124
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

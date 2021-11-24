@@ -2,30 +2,18 @@
 ---
 
 
-## 班农的愿景－川普耳边人正在组织一场平民主义革命
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1691365/)
+## 【文贵先生大直播PPT】六中全会期间左棍司马南公开责难柳传志传递什么信号
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1691932/)
 
-编译： Jenny Ball
+撰稿：三票先生
+美工：健身健心，青山
+审核：三票先生，顽童先生
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-2-7.jpg)盖特视频截图
-
-嘲笑史蒂夫·班农。继续嘲笑。嘲笑他头发花白、蓬头垢面、像厨房一样的风度和多层超大号正装衬衫。对食人魔虚荣的言辞翻白眼。“我从不退缩，”班农在本周出庭后说，他因藐视众议院 1 月 6 日特别委员会的传票而被控藐视法庭。“我们正在推翻拜登政权。”
-
-我们是谁？平民主义！十年前，班农通过兴高采烈在布莱巴特网站（Breitbart）帮助发起和塑造了平民主义、本土主义运动。2015 年，班农利用这一运动影响了一位名叫唐纳德·川普的纽约市房地产大亨。班农解释说，他是“我们的重磅利器”。
-
-班农在 2020 年大选后回到了川普的圈子里。他的“作战室”告诉受辱的总统，是的，选举被盗了，结果可能会被推翻。在 1 月 5 日的播客中，班农建议他的平民主义军队：“系好安全带，所有的地狱都会被打破。”他对第二天对国会大厦的暴力袭击了解多少——还有谁知道呢？
-
-当然，班农有大众在他身后，他不需要屈服于“精英们”愚蠢的传票。“我们正在接管学校董事会，”挑战者班农说。“我们正在以选区委员会的策略接管共和党。就这样吧！” 1 月 6 日只是第一次小规模冲突； 战争才刚刚开始。“做好准备，”班农在法庭外直播时建议民众。“我们要开始反击了。”
-
-**参考资料：**[theweek][Bannon’s radical vision](https://theweek.com/politics/1007243/tk-bill)
-
+【2021年11月24日文贵先生大直播PPT：六中全会期间左棍司马南公开责难柳传志传递什么信号】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/211.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/25-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/26-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/27-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/28-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/111-2-4.jpg)
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+发稿：云起时
 
  
 

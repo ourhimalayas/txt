@@ -2,25 +2,22 @@
 ---
 
 
-## 美参议员布莱克本：中共对国际机构的恶意影响力导致吹哨人被解雇
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1690212/)
+## 美国邀请台湾召开民主峰会，孤立中共
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1691232/)
 
-韩国首尔天池农场
-翻译：zzballack
-上传：追着曙光跑
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-188.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpub.creaders.net%2Fupload_files%2Fimage%2F202111%2F20211123_16377193708295.png&amp;imgrefurl=https%3A%2F%2Fnews.creaders.net%2Fus%2F2021%2F11%2F23%2F2422968.html&amp;tbnid=buuPPnChg04TOM&amp;vet=12ahUKEwjQvrnQ5LD0AhWFNHIKHWHgAx4QMygEegUIARCFAQ..i&amp;docid=Sk3cGyvGcAzMnM&amp;w=617&amp;h=341&amp;q=%E6%B0%91%E4%B8%BB%E5%B3%B0%E4%BC%9A&amp;ved=2ahUKEwjQvrnQ5LD0AhWFNHIKHWHgAx4QMygEegUIARCFAQ)
+11月24日中国台湾网报道，中共国务院台湾事务办公室上午举行例行新闻发布会，美国务院公布将于12月召开“民主峰会”，将“台湾”列入官网，大陆未在名单内，发言人已明确表示，坚决反对美国与中国台湾地区进行任何形式的官方往来，这个立场是一贯的、明确的，并敦促美方切实恪守一个中国原则和中美三个联合公报规定，妥善处理涉台问题。
 
-据 《福克斯新闻网》 （Fox News）11月23日报道，曾在联合国人权事务高级专员办事处（OHCHR）担任律师的吹哨人、英国-爱尔兰公民艾玛·雷利（Emma Reilly）曾警告她在联合国人权办公室的上司，中共正在获取准备到联合国发言的异议人士信息。她在接受法国第二大报纸《世界报》（Le Monde）采访后不到24小时就被解雇。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-24-at-12.13.17.jpeg)图片来源：原新闻
-当雷利得知联合国人权事务高级专员办事处应中共的要求，将前来瑞士日内瓦参加联合国人权理事会（UNHRC）的异议人士名单交给了中共后，她将这一情况告知了她在联合国的上司。雷利说：“中共在获得异议人士名单后，会对其施压，要求他们不要前往联合国。中共当局会威胁并可能逮捕他们的家人，甚至实施酷刑。在一个案例中，据说有人在被中共拘留期间死亡。”
+在一周前11月16日中共国习近平和美国总统拜登时长3个半小时视频会晤，拜登就台湾问题进行了最新表态，拜登称美方不寻求改变中国体制，并且不会支持“台独”。而今天所作出的行动确是告诉中共国，召开民主峰会台湾属于民主政体，是可信赖的朋友，中共属于一党专政独裁体制，排除在世界民主国家之外，并将与民主国家一起围堵孤立中共。
 
-雷利还分享了联合国人力资源副秘书长给她的解雇信，信中说，雷利的罪行包括擅自与福克斯等媒体机构、美国等联合国成员国、联合国驻纽约和日内瓦的代表团、美国国务院和参议院拨款委员会以及欧盟沟通。雷利告诉福克斯：“联合国只是指控我不服从沉默的命令，但没有指控我撒谎。作为一个人，更不用说作为一个人权官员，在看到向上司和政府通报没有任何作用的情况下，我有责任通过媒体告知世界真相。在种族灭绝暴行面前保持沉默就是与压迫者站在一起。”
+信息来源：
 
-美国参议员玛莎·布莱克本 (Marsha Blackburn)对此回应说：“中共在联合国内部的恶性影响活动是一个公开秘密，这不断地将中共政权异议人士的生命置于危险之中。国际社会不能再对北京的恶劣侵权行为视而不见，不应因为吹哨人揭露联合国如何帮助中共剥削和虐待维吾尔人而将其解雇。我在今年年初提出了《联合国透明与问责法案》（United Nations Transparency and Accountability Act），以加强美国在联合国的领导地位，并揭露中共罪行。”
+[美国务院公布将于12月召开“民主峰会”，将“台湾”列入官网，大陆未在名单内，国台办回应](https://mq.mbd.baidu.com/r/wUtnEquGic?f=cp&amp;rs=4274366899&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=781cdcf4132796a6)
 
-[新闻来源](https://www.foxnews.com/world/un-whistleblower-fired-china-blackburn)
-
-
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
