@@ -2,38 +2,27 @@
 ---
 
 
-## 美前众议员称 对班农的指控是国会权力滥用
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1691848/)
+## 英国：病毒使养老院的老人们成为被歧视的对象
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1691929/)
 
-作者：纽约香草山 – 飞虹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月22日，美国前众议员巴尔发布文章称，国会对班农先生发出蔑视国会的起诉书不过是民主党人的党派权力滥用。
+撰稿：蓝李子
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1125A.jpg)图片来源：Pexels免费照片资料库；摄影：Matthias
+根据卫报上周末的最新消息，虽然英国政府的统计数据显示92%的老人院允许访问者，然而实际情况似乎并不乐观。即使老人院可能拒绝主要探访者，或者只允许家人探访每周半个小时，他们也算为其中。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2-13.jpeg)
+我们并不知道到底多少家人被拒绝成为家庭主要探访者，或者多少人们只有每周30分钟的探视时间。这是一种针对老年人人权的蓄意攻击，并且它令老人们及其家人陷入非常绝望的境地。
 
-巴尔表示，根据联邦法律和最高法院的法规，一个人被判定为藐视国会罪的先决条件为，此人应该与某项犯罪有关系。
+求助热线的记录显示，当其他人群逐渐走出疫情困境时，而老人院的人们却被仍然处于被隔离状态-——这是种歧视。这些老人仍处于严格的限制之下，例如他们可以见谁，而其他人已经可以在世界上旅游或者去夜总会。
 
-巴尔还补充道，在1月6日的国会山事件中，一方面，没有一个被抓捕的人受到了任何指控，同时，对于国会起诉书中反复提到的“暴动”和“国家恐怖主义”等煽动性措辞，联邦法律中既没有定义，也没有将其规定为犯罪；另一方面，国会或许正在试图将川普、班农以及其他关系密切的人与国会山事件联系在一起。换言之，没有任何证据表明，班农先生与这个事件有关。
+一位来自已解禁老人院的工作人员说，有大量证据显示老人们根本没有任何的探访者。但是他们被告知，他们可以有每周30分钟的探视时间。
 
-对此，班农先生在战斗室节目中表示，他不会妥协，而且“战斗室”里没有哀嚎，更不会有眼泪。
+上周五，国会的人权联合委员会写信询问相关部门为什么没有根据建议允许老人院的老人们接见探访者。这封信上写道：非常明显，许多老人院在执行非常严格的来访者规定，与政府的倡导背道而驰。很多人担忧老人们和他们的亲属正遭受不公平的对待，而且他们所面临相关的风险评估也没有任何的进展。
 
-参考链接：
-1）[从对班农先生的起诉中看中共对美国司法产生的负面影响](https://gettr.com/post/phnvaveb0b)
-2）[BARR: Contempt Case Against Bannon Is An Abuse Of Congress’ Power](Contempt%20Case%20Against%20Bannon%20Is%20An%20Abuse%20Of%20Congress’%20Power)
+在本周五，英国护理质量委员会回应称，他们没有权利反对那些在国会通过的法案，让老人院来告知我们关于他们是否愿意对探访者开放。与此同时，他们也无权要求老人院来汇报他们的关于探访者水平的数据。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+新闻参考链接：
 
-总编：文徬
-编辑：文特
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+[卫报](https://www.theguardian.com/society/2021/nov/20/uk-care-homes-deny-family-visits-human-rights)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

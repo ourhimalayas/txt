@@ -2,10 +2,18 @@
 ---
 
 
-## 疫苗灾难比病毒还可怕，中共正在准备释放另一波病毒
-` MG 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1691849/)
+## 【文贵先生大直播PPT】六中全会期间左棍司马南公开责难柳传志传递什么信号
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1691932/)
 
-郭先生盖特：已有更多的国家意识到爆料革命爆的料、提供的信息和正在发生的情况，都证明了疫苗灾难比病毒还可怕，共产党正在准备另外一波的放毒，新中国联邦正以前所未有的速度和巨大的力量，在推动停止人类正在面对的疫苗灾难！
+撰稿：三票先生
+美工：健身健心，青山
+审核：三票先生，顽童先生
+
+【2021年11月24日文贵先生大直播PPT：六中全会期间左棍司马南公开责难柳传志传递什么信号】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/211.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/25-8.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/26-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/27-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/28-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/111-2-4.jpg)
+* * *
+
+发稿：云起时
 
  
 

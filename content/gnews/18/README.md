@@ -2,16 +2,32 @@
 ---
 
 
-## 【G时新闻】加拿大卡尔加里加入全球反“疫情极权”集会
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1691799/)
+## 有声|接种辉瑞疫苗最初两个半个月，美国收到近16万例不良反应报告
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1691907/)
 
-**加拿大温哥华扬帆农场** 主播：悠然 制作：文所未闻
+配音：香草山香港部 – 文凯琳
 
-加拿大自媒体【反叛新闻】11月22日报道，在世界各地，在卡尔加里，反极权政府的自由集会已将人们团结起来，以对抗当局针对“新冠病毒”疫情所实行的各种意在剥夺基本人权的最新隔离强制措施。
+近日，美国律师阿隆·喜利收到FDA提供的部分档案。其中显示，截至2021年2月28日，辉瑞疫苗开始注射的最初两个半个月内，总共收到15万8千893例不良反应。其中有1223例是死亡，520例是后遗症。
 
-盖特链接：[https://gettr.com/post/phpr8h75f1](https://gettr.com/post/phpr8h75f1)
-编辑/上传：七觉花
+女性出现不良反应的次数是男性的3.25倍。出现最大量不良反应的人群是在31到50岁。
 
+最常出现不良反应的身体部位，依次是神经系统，肌肉骨骼结缔组织系统，肠胃系统，呼吸系统，皮肤及皮下组织。
+
+出现比较多的不良反应症状有淋巴结病变、心跳加速、恶心、发烧、冷颤、呼吸困难、皮肤搔痒红疹等。
+
+文字版原文：[接种辉瑞疫苗最初两个半个月，美国收到近16万例不良反应报告](https://gnews.org/zh-hans/1687120/)
+
+音频处理：喜山必胜Maverick
+
+发稿：Tom Li
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

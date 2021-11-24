@@ -2,36 +2,31 @@
 ---
 
 
-## 第二届美台经济会议结束 双方达成合作共识
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1691894/)
+## 成千上万的海军陆战队加入我们的雇佣军
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1691951/)
 
-作者：纽约香草山 医疗部 – 云豹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月23日，第二届美台经济繁荣伙伴对话分别在美台两地以视频会议的方式顺利召开。会议中，双方就供应链稳定性、外来经济胁迫、数字经济、5G网路安全，以及科学与技术等五大类议题进行广泛讨论。
+编译：西班牙巴塞罗那喜悦农场-wenwu
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide3-12.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-689.png)图片来源： washingtonpost.com
 
-会后，双方共同发出声明表示，欢迎双边加强深化经济合作的关系。 同时，此次会议中，双方除却着重讨论了维护半导体电子晶片、公共卫生用品等供应链的安全性及稳定性外，还特别提到了任何经济体都不应受到外来势力的胁迫，以及美台应与理念相近的国家加强合作。
+数以千计的现役海军陆战队员将违反美国三军总司令拜登的 11 月 28 日最后期限命令，也就是完全接种疫苗的军事疫苗任务的命令；截至上周三，约 91% 的现役海军陆战队员和 66% 的海军陆战队预备役人员已完全接种疫苗；美军不遵守疫苗任务对拜登政府构成了挑战–拜登政府威胁要不遵守规定的美军服役人员承担后果，其中包括从军队离职。
 
-美国还在会上表示，美国及欧盟对于立陶宛支持台湾做为一个自由民主国家的行动表示支持。
+[据《华盛顿邮报》报道](https://www.washingtonpost.com/national-security/2021/11/21/vacine-mandate-marine-corps/)，仍有多达 1 万名现役海军陆战队员没有完全接种疫苗；新增几千名海军陆战队员将加入这近 1 万名没有在最后期限前遵守疫苗任务的空军人员行列；随着陆军的最后期限在 12 月 15 日逼近，可能还会有成千上万的人加入这一万名“无苗族”空军的行列。
 
-另外， 此次会议中也决定了，双方将在2022年度召开第四届美台数字经济论坛以及首届美台双边科学技术会议。
+上周，俄克拉荷马州州长凯文·斯蒂特（Kevin Stitt）命令俄克拉荷马州国民警卫队成员在不执行联邦任务时不理会五角大楼的授权，更多州长可能会采取类似措施；俄克拉荷马州参议员吉姆·英霍夫（Jim Inhofe）是参议院军事委员会的最高共和党人，他呼吁拜登的国防部长劳埃德·奥斯汀暂停五角大楼“出于政治动机”的疫苗接种任务。
 
-参考链接：[台美經濟對話二度召開 美國務院歡迎深化合作機會](https://www.cna.com.tw/news/aipl/202111230374.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+**简评：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+**郭文贵先生在近期的大直播中表示，将会在全球各地华人的地方派驻雇佣军，以此预防出现在明年5月后的排华事件发生；如果有想参加军训的也可以进入农场报名协调。**
 
-总编：文特
-编辑：Lakeman(文仁) 
-校正/发稿：谐趣园
+**另外，希望海外华人尽快加入全球喜马拉雅农场，特别是有才能的华人，这里是华人灭共和赚钱的最佳场所，我们等待您的加入；新中国联邦是为保护华人成立的邦国，并有自己的铸币权和军事力量，还有中共疫苗的解药来预防来自中共病毒的生命威胁。**
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+**在还未有更致命的新的中共病毒被故意投放在世界之前，多一分犹豫，多一份凶险。**
+
+新闻来源：[breitbart.com] [Thousands of Marines Defying Biden’s Military Vaccine Mandate](https://www.breitbart.com/politics/2021/11/22/thousands-of-marines-defying-bidens-military-vaccine-mandate/) |发布时间：2021年11月22日
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
