@@ -2,23 +2,46 @@
 ---
 
 
-## 美国各共和党州立法对抗拜登的强制接种令
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1689935/)
+## 美国针对德国和丹麦发出旅行警告
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1689973/)
 
-编译撰稿：Spirit        校对编辑：硫酸羟氯喹64
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-58.jpg)图片来源：ABC
+作者：纽约香草山教育部 Naughty(文行)
 
 
-据美国媒体《国家公共广播电台》11月22 日报道，全国各地的共和党议员们，正在通过积极立法以坚决对抗总统拜登目前施行的“新冠病毒”疫苗强制接种令。
 
-报道称，堪萨斯州立法机构当天召开了特别会议，意图与联邦政府就疫苗接种规定展开斗争，以防止其逐步削弱该州应对公共卫生危机的能力，同时也避免使企业雇主陷入法律困境的可能性。而联邦法院将对这些规定是否合法有着最终的决定权。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-2.png)
 
-据悉，由于该州立法机构中占主导地位的共和党议员都极力反对拜登的强制接种政策，并以此保障本州公民的基本自由权利。因此，目前总统的该行政法规正处于法律上举步维艰的困境。迄今为止，已有包括佛罗里达和爱荷华等十几个州的保守派立法机构已通过了旨在使该强制接种令无效的州政府法案。
 
-原文链接：
 
-[https://www.npr.org/2021/11/22/1057427047/republicans-are-changing-state-laws-to-try-and-get-out-of-federal-vaccine-mandat](https://www.npr.org/2021/11/22/1057427047/republicans-are-changing-state-laws-to-try-and-get-out-of-federal-vaccine-mandat)
+
+
+据路透社11月22日报道，美国CDC和国务院周一建议人们不要前往德国和丹麦，因为这两个国家的新冠病例正在不断增加。
+
+CDC将其对这两个欧洲国家的旅行建议提升为“四级：非常高”，告诉美国人他们应该避免到那里旅行，而国务院则针对两国发布了“禁止旅行”建议。
+
+本月早些时候，世界卫生组织表示，随着死亡人数和确诊病例激增，欧洲国家必须更加努力地防止新冠病毒进一步传播。
+
+世卫组织的汉斯·克鲁格警告说，目前53个欧洲国家的病毒传播率“令人严重关切”，新增病例接近历史最高水平，更易传播的德尔塔病毒变种加剧了这种情况。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-10.png)图片来源：路透社
+参考链接：
+
+https://www.reuters.com/business/healthcare-pharmaceuticals/us-raises-covid-19-travel-warning-germany-denmark-2021-11-22/?utm\_source=ground.news&utm\_medium=referral
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-3.jpg)
+
+编辑/校对/发稿：滚滚长江都是水
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,40 +2,103 @@
 ---
 
 
-## 秘翻在线: 币安与主权基金就寻求投资进行谈判
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1689754/)
+## 七哥回想1120
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1689819/)
 
-撰稿：西枫westca
+[https://gtv.org/video/id=619cd250e6900076612ecb85](https://gtv.org/video/id=619cd250e6900076612ecb85)
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-10-1.jpg)图片来源：网络照片
-据金融时报11月23日报道，币安首席执行官赵长鹏说，币安正在与几家主权财富基金就入股这家全球最大的加密货币交易所进行谈判，以寻求加强与政府的关系并抵消激进的监管机构的影响。
+前面的就是小半年到一年的这个认知
+La anterior es la cognición de medio año a un año
 
-赵长鹏在接受英国《金融时报》采访时还表示，该交易所今年面临来自监管机构的越来越大的压力，并相信主权财富基金的投资将有助于改善其与各国政府的“认知和关系”，“但它也可能将我们与特定国家联系在一起。 我们需要对此稍加小心。”
+是班农先生对于消灭共产党, 对中国的文化
+Es el Sr. Bannon de acuerdo a eliminar el Partido Comunista , la cultura china
 
-赵长鹏是币安的创始人，也是最大的股东。币安的新加坡业务得到了国家支持的投资公司淡马锡的风险投资部门Vertex Ventures的支持。他说正在进行初步讨论其全球实体，除了在公开上市前为其美国子公司筹集资金外，还将向几个主权财富基金筹集资金。他拒绝透露该公司正在与哪些基金进行讨论。”涉及的票据规模不会小，且不会是一个短暂的过程。”
+对共产党的邪恶和西方的渗透
+El mal del Partido Comunista y la penetración en el Occidente
 
-币安向世界各地的消费者提供加密货币交易，但监管机构批评了其一些高风险的金融产品，包括衍生品交易。
+都从每一件事上
+Mediante cada asunto
 
-币安一向对其创始人的位置都是保密的，并坚持说它没有固定的总部。该公司本成立于中共国，但在中共国的加密货币交易所被禁止后，于2017年撤出了中共国，并声称它在中国大陆没有办公室或业务，只有 “少数 “员工仍在从事区块链技术和其他 “非平台相关 “的工作，也没有其他数据留在中共国。
+包括也体会咱们爆料革命的这种坚持执着
+Incluyendo y viviendo también la perseverancia que tenemos con el Movimiento de Denunciantes
 
-币安越来越倾向于选择该公司可以与监管机构 “更直接 “沟通的政府，除加紧在新加坡和迪拜等城市寻找新的全球总部之际，赵长鹏还在过去两个月里与迪拜、巴黎、卡塔尔和巴林的监管机构会面。
+然后我们开会的时候
+Cuando estabamos en la reunión
 
-赵长鹏上周在彭博社新经济论坛上说，该平台的日交易量为1700亿美元，而两年前为100亿至300亿美元。收入运行率是”几十亿”。他还透露，币安美国将在1-2个月内完成IPO前融资数亿。
+之前
+Antes de eso
 
-中共国最近对加密货币采矿和交易的禁令体现了政府希望阻止外部技术以支持本土版本。同时北京正在广泛推广自己的中央银行数字货币。赵长鹏表示，这种方法在互联网领域对包括阿里巴巴和腾讯在内的公司起到了作用，但这对随心所欲的加密货币行业来说 “可能有所不同”。
+包括安全部门的警告吧
+Incluyendo la advertencia del Departamento de Seguridad
 
-赵长鹏还说有一种看法认为，由于没有传统牌照，交易所正在“疯狂”。 “我是一个非常冷静的人。我不是一个疯狂的人。所以我们实际上希望监管在这个领域更加明确。” 赵还说他并不担心币安平台上的非法活动，因为鉴于该交易所一直受到审查，该公司 “可能比银行更好”，因为它有检查措施，如了解客户和反洗钱技术。币安上周公布了一封加密货币用户的基本权利的信。这份类似宣言的法案解决了包括用户隐私在内的一系列问题，还呼吁加强监管。
+有人要杀害呀
+Alguien te matará
 
-即便如此，包括英国金融行为监管局在内的监管机构表示，由于币安拒绝提供其全球实体的交易名称和职能等基本信息，他们无法对该业务进行适当监督。巴克莱银行等大银行甚至已经停止了一些客户向币安的资金转移。
+要危害呀
+Te lastimará
 
-郭文贵先生在大直播和盖特里都曾提到赵长鹏不仅在彭博社2021年创新经济论坛（新加坡）上诋毁喜交所，还把客户私人信息提供给了中共。既然他登上了这列魔鬼之车，将来一定会被中共消灭，币安也一定会结束。
+共产党, 你知道那时候
+Sabes en ese momento, el Partido Comunista
 
-**新闻来源：**
+你们从来不知道的
+Ustedes nunca supieron
 
-[Binance in talks with sovereign wealth funds as it seeks investments | Financial Times (ft.com)](https://www.ft.com/content/006b727a-cc20-403e-ad53-6a23571e6c1c)
+我最起码一个小时内接到2个3个电话
+Al menos recibía dos a tres llamadas dentro de una hora
 
-[Binance US to Close Pre-IPO Funding in 1-2 Months (coindesk.com)](https://www.coindesk.com/business/2021/11/19/binance-us-to-close-pre-ipo-funding-in-1-2-months-founder-cz-says/)
+莫名其妙的发信息的, 发信息呀
+Enviaban mensajes inexplicablemente
+
+你会死掉的
+Diciendo que morirás
+
+下一步会杀掉你啊
+El siguiente paso es matarte
+
+然后我知道你下一步会走哪条街呀, 是吧
+Luego decían: “sé a qué calle irás a continuación”, cierto
+
+然后把班农你们都会干掉呀
+“Seguidamente los eliminaré a Bannon y a ustedes”
+
+放毒啊
+“Descargando virus”
+
+这些事情都是
+Todas estas cosas son
+
+每时都在发生
+Ocurridas en cada momento
+
+不是每天, 是每时
+No son todos los días sino cada momento
+
+从来没有1秒钟动摇过我们
+Jamás ni un segundo nos hemos movido
+
+最后大家知道皮尔酒店开了那个成功的会
+Finalmente, todos saben que en el Hotel Peel se realizó ese exitoso encuentro
+
+**原视频网址：**[https://gettr.com/post/phlh7b9153](https://gettr.com/post/phlh7b9153)
+
+日期：11/23/2021
+原视频标题：七哥回想1120
+Miles recordando el 20 de noviembre
+原视频日期：11/22/2021
+原视频网址：https://gettr.com/post/phlh7b9153
+任务编号：KC282（2981）
+视频时间段：0:00-0:45
+
+西听校：洛杉矶盘古农场 – 霙霙（文霙）
+翻译：洛杉矶盘古农场 – 小文萱
+翻译终校：洛杉矶盘古农场 – 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 –青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

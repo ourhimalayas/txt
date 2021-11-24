@@ -2,52 +2,130 @@
 ---
 
 
-## 澳军队开始将中共病毒患者和接触者转移到隔离营
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1689747/)
+## 比特币为什么会消失, 喜币 喜联储为什么这么牛
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1689798/)
 
-翻译：**Lulumi**
+[https://gtv.org/video/id=619cd1b1e6900076612ecb76](https://gtv.org/video/id=619cd1b1e6900076612ecb76)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/howard-springs1a.jpg)霍华德泉检疫设施可容纳2000名海外入境者和约1000名国内旅客。(AAP: Glenn Campbell)
+**郭文贵**
+**Miles Guo**
 
-在Binjari社区发现9个新增中共病毒Covid-19病例后，澳大利亚军队已开始将北部地区的居民强行转移到位于达尔文的霍华德泉隔离营。此举是在本杰里社区和附近的Rockhole社区于周六晚上实行严格封锁后进行的。
+他说，你为什么说比特币完蛋，我看了你很多直播
+He said, why did you say that Bitcoin is dead? I watched a lot of your live broadcasts, and you said so a lot
 
-北领地首席部长迈克尔·冈纳说：“Binjari和Rockhole的居民不再有五个离开他们家的理由”。他指的是国家允许的五个避免封锁的理由：购买食物和用品、锻炼不超过两个小时、照顾或护理、工作或教育（如果不能在家里完成），以及在最近的可能的地方接种疫苗。
+他说那个原罪，他说所有全世界的犯罪都跟美元有关系
+He said about the original sin, all crimes in the world have something to do with the U.S. dollar
 
-“他们只能因医疗、紧急情况或法律要求而离开。”
+那美元就没有了吗？我就笑笑没搭理他
+So there is no original sin in the dollar? I just smiled and ignored him
 
-“今天极有可能有更多的居民被转移到霍华德泉隔离营，要么是阳性病例，要么是密切接触者，”他继续说，“我们已经确定了38名来自宾杰里的密切接触者，但这个数字还会上升。这38人现在正被转移。”
+就他是个美国所谓的财政部级别的，还有一个我们的CTO也这么认为
+he is at the so-called Treasury level in the United States, and one of our CTO (Chief Technology Officer) also thinks so
 
-“我昨晚联系了总理。我们感谢约20名澳大利亚国防军人员以及军队卡车的支持，协助转移阳性病例和密切接触者并支持社区。”
+他这个猪脑袋都不是，你知道吧
+He is a no brainer, you know?
 
-“我们今天正在做一个评估，看看我们可能需要联邦政府提供哪些额外的资源，总理已经准备好提供进一步帮助，我为此感谢他。”
+美国所有的法币参与的，被用作犯罪的是被动的
+All U.S. fiat currencies are involved and used as crimes are passive
 
-“我们意识到，这可能会对人们的心理健康以及他们的总体健康产生一些影响，”警察局长杰米·查克纳告诉NT新闻说。
+是我被动的，但是比特币是主动化的，你就是去中心的
+It was passive, but Bitcoin is active, it is decentralized
 
-正如《大纪元时报》的斯蒂夫·密尔奈所指出的：值得注意的是，北部地区有很大比例的澳大利亚原住民。
+我美元，我有人负责任呐，
+Someone is responsible for the dollar
 
-根据澳大利亚卫生和福利研究所的数据，在2018-19年度，几乎五分之一的澳大利亚原住民生活在过度拥挤的住宅中（18%），而非澳大利亚原住民的比例为5%。虽然这一比例比2004年的27%有所下降，但这仍然意味着2018-19年估计有145,340名澳大利亚原住民生活在过度拥挤的住所中。
+而且我是比特币从第一天的1块钱七哥就买了
+And I invested in Bitcoin from day one at one dollar
 
-此外，越是偏远的地区，居住在过度拥挤住所的澳大利亚原住民比例越高（偏远地区为26%，非常偏远地区为51%），而非偏远地区的比例为8%和22%。
+我全程参与了比特币，七哥最早在2018年我就说过
+I participated in the whole process of Bitcoin, Miles had said as early as 2018
 
-五天前，北区参议员马兰迪尔里·麦卡锡告诉ABC，原住民社区的过度拥挤是一个 “巨大的问题”，他指出该地区的第二个新感染群——包括麦卡锡的九个直系亲属，包括她的姐姐从凯瑟琳飞往罗宾逊河的工程中不知不觉中感染了COVID-19中共病毒。
+比特币的4%的庄家，拥有96%的比特币
+4% of Bitcoin’s banker owns 96% of Bitcoin
 
-她说：“如果我们现在能在那里有住房，我会直接向联邦政府和北区政府推动这项工作，但我们显然需要资源来这样做。”
+全世界谁敢说，它是中共情报，伊朗和美国华尔街培养的洗钱工具
+Who dares to say in the world that it is a money laundering tool cultivated by the Chinese Communist Party’s intelligence, Iran and Wall Street in the United States
 
-在Binjari的9个新增病例中，4个是女性，5个是男性，包括一个78岁的妇女，她已被送往达尔文医院。
+而且是暗网、深网60%-70%使用的货币
+And it is the currency used by 60%-70% in the dark web and the deep web
 
-周日没有新增中共病毒病例报告，但是冈纳部长说他担心Binjari和Rockhole的 “家庭之间的混合”，这两个地方的人口分别为约220和130人。
+那么今天我们大家要看到的一个最重要的问题
+So the most important matter that we all want to see today
 
-周日冈纳说：“是的，这些是强有力的措施，但对生命的威胁是极端的。”
+今天看我们自己的喜联储的喜币的时候和法币之间最大的区别是什么，
+What is the biggest difference between our own H-coin of Himalaya Reserve and fiat currency
 
-**参考资料：**[zerohedge][Australian Army Begins Transferring COVID-Positive Cases, Contacts To Quarantine Camps](https://www.zerohedge.com/covid-19/australian-army-begins-transferring-covid-positive-cases-contacts-quarantine-camps)
+法币，你信不信你都得使用, 为什么呀，
+Fiat currency, you have to use it whether you believe it or not, why?
 
-* * *
+这叫必须强迫的被动式信任，你信不信你都得用
+This is called passive trust that must be forced. You have to use it whether you believe it or not
 
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
+但是今天的喜联储牛在哪里，我是什么
+But where is the outstanding point of Himalaya Reserve today, what is it
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+主动让你自动的信不信取决于你，你不信任，你不要来开户
+The initiative is in your own, believe or not depends on you, if you don’t believe it, don’t open an account
+
+你不信任，不要买喜币，你不信任，不要去拿喜币去交易
+If you don’t believe it, don’t buy H-Coin, if you don’t believe, don’t trade H-Coin
+
+这就完了，我这个币是跟你法币之间最大的不同，是吧
+That’s it, the biggest difference between H-coin and fiat currency is, right?
+
+我是完全自动信任，但是美元说你在美国你不用美元你用什么，用人民币
+It’s fully automatic trust, but you don’t use US dollar in the US，what are you going to use? Use RMB？
+
+说你滚一边儿，没人要你的，而且必须用美元交易
+Go away, nobody wants yours RMB, and you have to use dollars
+
+那这个支付系统更简单了，你这个商家你愿意我愿意，咱俩就愿意嘛
+Then this payment system is even simpler. If a merchant and the consumer are both willing in the system
+
+这是双方你情我愿嘛，那你政府监管我什么
+This is the two sides agreement, then what else can your government regulate me?
+
+告诉我所有资本市场的根本前提下，
+Tell me the fundamental premise of all capital markets
+
+你情我愿的公平经济活动剩余价值的交换，
+The exchange of the surplus value of fair economic activities under the both agreed condition
+
+达到物品交换的目的的被政府监管
+being supervised by the government to achieve the purpose of exchange of goods
+
+我愿意被你监管呐，你监管我什么？
+am I willing to be supervised by you? what are you supervising me for?
+
+所有其它货币能这样吗？全是你不情我不愿，
+Can all other crypto currencies do this? It’s all you don’t want and I am not willing to do
+
+吓唬欺骗，而且没有中心负责任的
+scare and deceive, and there is no central responsible for it
+
+而且没有稳定币的，而且不接受政府监管的，那你就必须被干掉
+And there is no stable currency, and it does not accept government supervi-sion, then it must be taken out
+
+**原视频链接:**[https://gettr.com/post/phiv27450a](https://gettr.com/post/phiv27450a)
+
+Date:11/22/2021
+原视频标题: 比特币为什么会消失, 喜币 喜联储为什么这么牛
+Why will Bitcoin disappear, and why H-Coin, Himalaya Reserve is so outstand-ing
+原视频日期：2021/11/19
+原视频链接https://gettr.com/post/phiv27450a
+任务编号：2971
+视频时间段 : 0:00-2:17
+
+中听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 -天涯行
+审片: 洛杉矶盘古农场 -银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

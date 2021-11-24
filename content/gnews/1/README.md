@@ -2,27 +2,31 @@
 ---
 
 
-## 加拿大安省法院裁定疫苗强制接种合法
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1690021/)
+## 加拿大司法界联名反对疫苗护照和强制接种
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1690030/)
 
 原文采编：UCool优酷 编译撰稿：文所未闻
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-61-edited.jpg)图片来源：financialpost
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-62-edited.jpg)图片来源: TNH
 
 
-据加拿大《金融邮报》11月23日报道，安大略省法院在11月20日做出裁决，驳回了原告方：【多伦多交通委员会】和【西奈山医院工会】，就保护其未接种“新冠病毒”疫苗成员而提出的“禁止强制接种令”的申请。
+据加拿大自媒体《真北方》11月22日报道，来自加拿大各地245名法律界专业人士和2万多位公民当天联名签署了一份旨在结束目前“新冠病毒”疫苗强制接种和疫苗护照的宣言。
 
-报道指出，原告方以违反《加拿大权利和自由宪章》为主要理由，反对当局正在推行的接种政策。并认为强迫医务工作者注射该疫苗，将使其遭受“不可挽回的伤害”和“巨大的经济损失”。但法院以雇员可以在“接种并继续工作”或“拒绝接种则失业”这两种情况下自行选择为由，驳回了原告方的请求。
+在该名为《自由北方宣言》的公告中写道：加拿大人的基本权利正在被当局践踏，公民自由正遭受侵害并因此处在前所未有的危机之中。同时，由于严厉打压关于“新冠病毒”疫情及该病毒疫苗的不同意见，加拿大政府及其医疗监管机构因此变得更加独断专行。
 
-据悉，以上裁决将对今后类似的诉讼案件有指导性作用。但因本案仍可最终上诉至最高法院，所以在此之前，该如何具体执行和操作本次裁决结果，还有待各方进一步的确认。
+据悉，另外一份名为《大巴灵顿宣言》的类似公告，自去年10月发布至今，也已获得超过87万名来自该国不同领域和专业的众多人士签名，并以此敦促各级政府结束针对疫情所推行的封锁隔离措施。
+
+原文链接：
+
+
+
+> [Over 200 lawyers sign declaration to end vaccine mandates and passports](https://tnc.news/2021/11/22/over-200-lawyers-sign-declaration-to-end-vaccine-mandates-and-passports/)
+
+
 
 * * *
 
 校对编辑，发稿：硫酸羟氯喹64
-
-原文链接：
-
-[https://financialpost.com/fp-work/ontario-court-deals-another-blow-to-unions-efforts-to-protect-their-unvaccinated-members?utm\_term=Autofeed&utm\_medium=Social&utm\_source=Twitter#Echobox=1637664850](https://financialpost.com/fp-work/ontario-court-deals-another-blow-to-unions-efforts-to-protect-their-unvaccinated-members?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter#Echobox=1637664850)
 
  
 
