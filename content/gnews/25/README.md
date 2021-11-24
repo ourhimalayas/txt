@@ -2,33 +2,36 @@
 ---
 
 
-## 企业家挑战卫生官员就疫苗展开辩论但无人接受
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1691523/)
+## 中共10个月发了6.49万亿元地方债
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1691552/)
 
-**翻译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip51.png)Image by [Steve Kirsch](https://creativecommons.org/licenses/by-sa/3.0/)
-企业家史蒂夫·基尔施（Steve Kirsch）挑战卫生官员就疫苗展开辩论，但无人接受。
+撰稿：东京樱花团/peterwong
 
-以下是专家团队的部分名单，他们对 COVID 疫苗的安全性和/或早期治疗的有效性有共同的看法。我们是传统思维，无论白宫怎么说，我们都遵循数据所说的事实。
 
-并非我们所有人就所有问题都达成一致，因为我们都是不同领域的专家。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-119.jpg)
+[图片来源](http://www.acnw.com.au/article-22320-1.html)
 
-主流专家认为我们在传播错误信息，但我们没有兴趣这样做，我们只看数据，就会得出不同的结论。我们愿意被说服我们犯了一个错误。但到目前为止，推动主流叙事的人，都不敢就数据实际显示的内容进行科学讨论。我们听到的都是噪音，即使《试验现场新闻》（TrialSiteNews）提议主持辩论时，也没有人出现。
+中共财政部23日数据显示，2021年10月，全国发行地方政府债券8761亿元。其中，发行一般债券2320亿元，发行专项债券6441亿元；按用途划分，发行新增债券6145亿元，发行再融资债券2616亿元。
 
-想结束**“**错误信息**”**的最快方法是向我们表明我们错了，为什么没有人愿意这样做？
+数据显示，2021年1至10月，全国发行地方政府债券64916亿元。其中，发行一般债券24705亿元，发行专项债券40211亿元；按用途划分，发行新增债券36625亿元，发行再融资债券28291亿元。
 
-更多信息，请访问史蒂夫·基尔施的《子锥栈》[https://stevekirsch.substack.com/p/my-team-of-vaccine-safety-experts](https://stevekirsch.substack.com/p/my-team-of-vaccine-safety-experts)
+经第十三届全国人民代表大会第四次会议审议批准，2021年全国地方政府债务限额为332774.3亿元，其中一般债务限额151089.22亿元，专项债务限额181685.08亿元。
 
-**新闻来源**：[creativedestructionmedia.com][Entrepreneur Steve Kirsch Challenges Health Officials To Debate Over Vaccines But No One Will Accept](https://creativedestructionmedia.com/news/2021/11/23/entrepreneur-steve-kirsch-challenges-health-officials-to-debate-over-vaccines-but-no-one-will-accept/)
+截至2021年10月末，全国地方政府债务余额296549亿元，控制在全国人大批准的限额之内。其中，一般债务137549亿元，专项债务159000亿元；政府债券294802亿元，非政府债券形式存量政府债务1747亿元。
 
-* * *
+截至2021年10月末，地方政府债券剩余平均年限7.7年，其中一般债券6.4年，专项债券8.8年；平均利率3.51%，其中一般债券3.51%，专项债券3.51%。
 
-***审核：文乐
-校对：信心满满
-发布：信心满满***
+财政部有关负责人表示，截至10月末，全国地方政府新增债券发行35130亿元，其中专项债券27578亿元，发行进度为76%，今年以来，地方债发行整体呈现前慢后快的节奏。业内指出，在财政部“新增专项债尽量在11月底前发行完”的要求下，专项债发行将在本月迎来高峰，并将以更大力度聚焦重点领域及重大项目建设。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+# 消息来源:
 
+##### [前10月我国发行地方债6.49万亿元](https://finance.sina.com.cn/tech/2021-11-24/doc-iktzscyy7422164.shtml)
+
+##### [2021年10月地方政府债券发行和债务余额情况](http://yss.mof.gov.cn/zhuantilanmu/dfzgl/sjtj/202111/t20211123_3767948.htm)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
 
 
  
