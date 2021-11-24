@@ -2,46 +2,124 @@
 ---
 
 
-## 蓬佩奥继续呼吁抵制北京冬奥会
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1689820/)
+## 澳大利亚领导人在疫苗强制方面既愚蠢又专制, 一个非常糟糕组合
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1689849/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+[https://gtv.org/video/id=619cd7dce6900076612eccee](https://gtv.org/video/id=619cd7dce6900076612eccee)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/O-1.jpg)24newshd.tv
-蓬佩奥先生11月23日再次发推，呼吁抵制北京冬奥会，“世界不能奖赏习近平和中国共产党，因为他们在不断地侵犯人权”。【1】
+**Reporter**
+**记者**
 
-推文链接了《纽约邮报》（NY Post）的文章，题目是，“拜登抵制北京奥运会的六大理由”。【2】
+Do you think at all that your rhetoric around calling people anti-vaxxers,
+你认为你关于称人们为反疫苗者的言论
 
-全文如下：
+some of whom were vaccinated,
+其中一些人已经接种了疫苗
 
-拜登总统说，他正在“考虑”对明年北京冬奥会进行外交抵制，事实上，这是最起码的要求。
+has had an impact at all on vaccine take-up in parts of the Territory?
+是否对领土部分地区的疫苗接种产生了任何影响？
 
-中国共产党的目标是让奥运会成为其宣传上的胜利，这让莱尼·里芬斯塔尔（Leni Riefenstah）的“奥林匹亚”蒙羞。事实上，它值得全世界的蔑视，而远远不止是不派出美国政府官方代表团。
+Australia official
+澳大利亚官员
 
-一、中国共产党在遥远西部地区的新疆，对维吾尔人进行了骇人听闻的虐待，违反了《联合国灭绝种族公约》（the UN Genocide Convention）的每一项规定。它在大约260个秘密建造的高度安全的集中营，以及其他拘留中心关押着大约200万维吾尔人、哈萨克人和其他穆斯林少数民族。少数逃出监狱的人说，他们受到了灌输、性虐待，甚至被迫绝育。
+No，I don’t work data
+不，我不研究数据
 
-二、北京完全拒绝合作，拒绝对夺走500多万人生命的中共病毒疫情的起源进行任何真正的调查，事实上就像大卫·阿舍（David Asher）指出的那样，“科学和间接证据表明，中共病毒疫情由武汉病毒研究所的偶然事故导致，这个结论几乎是决定性的。”
+If you are anti mandate,
+如果你反对强制疫苗接种
 
-中国共产党已经尽其所能，从疫情的头几天起就把水弄混了。从在互联网上抹掉揭发者李文亮医生的名字，到指责美国通过冷冻食品包装将其带到中共国海岸，再到迫使世界卫生组织支持其谎言。
+you are absolutely anti-vax on what your personal vaccination status is.
+在你的个人疫苗接种状况你绝对也是疫苗反对者
 
-三、中共国近20年来，主要从法轮功练习者和维吾尔穆斯林人那里活摘被关押者的器官。北京方面坚称，所有器官都来自于死后的“自愿”捐赠者，但原始数据表明这是不可能的。
+If you support campaign, give a green light
+如果你支持抗议，为其开绿灯
 
-四、打击香港的自由，这违背了北京在移交该城市时的承诺，中共不仅损毁了任何民主的象征，还在逮捕阻碍它行进的任何人，以及排除妨碍它的任何事情。
+give comfort to support anybody who argued against the vaccine,
+安慰支持任何反对疫苗的人
 
-五、北京将战火引向了教会，在习近平主席面前不需要别的神，他多年来一直在打击中共国的基督徒，拒绝让孩子们参加礼拜，拆毁教堂，用他替换了耶稣的形象，监禁牧师并篡改圣经，以坚持共产党的路线。
+you are an anti Vaxxer absolutely.
+你绝对是一个反疫苗者
 
-六、在最近的一次臭名昭著的暴政中，该政权“消失”了自己的三届奥运网球明星选手彭帅，她指控了前副总理张高丽的性侵行为。这就是中国共产党的做派，如果世界各国政府和国际奥委会对此视而不见，运动员们自己也该有此足够的理由来抵制了。
+Your personal vaccination status is utterly irrelevant.
+你的个人疫苗接种状态完全无关紧要
 
-（全文完）
+If you campaign against the mandate.
+如果你抗议反对这个强制命令
 
-给力！尤其是对释放中共病毒、恶意掩盖、活摘器官的揭露。不过，不止六大罪状，还应该包括，对台湾的威胁，对南海的强占，以及对国际组织、各国政府的渗透。
+If you campaign against people being vaccinated in vulnerable settings,
+如果你反对在脆弱环境中接种疫苗的人
 
-有关链接：
+teachers in classrooms,
+在教室里的老师
 
-【1】[https://twitter.com/mikepompeo/status/1463188658396274696](https://twitter.com/mikepompeo/status/1463188658396274696)
+I’ll be really clear at that point time people were actually sup-porting
+那时我真的很清楚，人们实际上是支持
 
-【2】[https://nypost.com/2021/11/20/six-massive-reasons-why-biden-should-boycott-beijing-olympics/](https://nypost.com/2021/11/20/six-massive-reasons-why-biden-should-boycott-beijing-olympics/)
+the idea of a teacher being unvaccinated in a remote community classroom
+教师在偏远社区教室中不用接种疫苗的想法
+
+with kids who can’t be vaccinated
+与无法接种疫苗的孩子在一起
+
+I reject that, I still reject it.
+我反对那个想法，我仍然反对它
+
+And if you are out there in any way, shape or form
+如果你以任何方式、状况或形式出现在那里
+
+campaigning against this mandate that you are absolutely anti-vax.
+反对强制疫苗接种，那么你绝对是反对疫苗者
+
+If you say pro persuasion stuffer it, shove it
+如果你想游说我，省省吧
+
+we are absolutely going to make sure as many territories as pos-sible are vaccinated
+我们绝对会确保尽可能多的地区接种疫苗
+
+that is our best protection against this thing.
+这是我们对这种病毒最好的保护
+
+As you look at the dose volumes coming out since
+当你看到自去年以来出现的剂量时
+
+they said we’ve doubled dose at 80, remote communities five and up
+我们已经将剂量增加了一倍，为80微克，偏远社区的计量为50微克和更高
+
+I think you’ll see our vaccine mandate is absolutely crucial to protecting life,
+我想你会看到我们的疫苗强制对于保护生命绝对至关重要
+
+particularly aboriginal life
+特别是原住民的生活
+
+and I will never back away for supporting vaccines
+我永远不会因为支持疫苗而退缩
+
+and anyone out there who comes for the mandate.
+而且任何人反对强制接种
+
+You are anti-vax
+你是个反疫苗者
+
+**原视频链接**:[https://twitter.com/justin\_hart/status/1462791892219793414?s=24](https://twitter.com/justin_hart/status/1462791892219793414?s=24)
+
+Date:11/22/2021
+原视频标题: Australia’s leaders are dumb and authoritarian in vaccine mandates. A very bad combo
+澳大利亚领导人在疫苗强制方面既愚蠢又专制, 一个非常糟糕的组合
+原视频日期：2021/11/22
+原视频链接: https://twitter.com/justin\_hart/status/1462791892219793414?s=24
+任务编号：KE347(2983）
+视频时间段 : 0:00-1:37
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 –天涯行
+审片：洛杉矶盘古农场 –银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

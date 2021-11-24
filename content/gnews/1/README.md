@@ -2,26 +2,27 @@
 ---
 
 
-## 德国良医自我牺牲以反抗疫苗强制接种令
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1689979/)
+## 加拿大安省法院裁定疫苗强制接种合法
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1690021/)
 
-采编：UCool 优酷  编译撰稿：文明(添草灭共)
+原文采编：UCool优酷 编译撰稿：文所未闻
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-59.jpg)图片来源：STESSNEWS
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-61-edited.jpg)图片来源：financialpost
 
 
-据在线新闻【Stessnews】11月17日援引德国媒体《图片报》消息称，现年55岁的诊所负责人，市立医院董事詹德格斯医生日前从位于德国开姆尼茨市的该诊所大厦顶部跳楼自尽。
+据加拿大《金融邮报》11月23日报道，安大略省法院在11月20日做出裁决，驳回了原告方：【多伦多交通委员会】和【西奈山医院工会】，就保护其未接种“新冠病毒”疫苗成员而提出的“禁止强制接种令”的申请。
 
-报道称，詹德格斯医生在其生前留下的遗书中表示，德国政府蓄意欺骗和误导民众去接种实验性的“新冠病毒”疫苗之举，等同于进行着一场种族灭绝和反人类的罪行。外界因此猜测，不愿成为该犯罪团伙成员之一就是其自杀的主要原因。
+报道指出，原告方以违反《加拿大权利和自由宪章》为主要理由，反对当局正在推行的接种政策。并认为强迫医务工作者注射该疫苗，将使其遭受“不可挽回的伤害”和“巨大的经济损失”。但法院以雇员可以在“接种并继续工作”或“拒绝接种则失业”这两种情况下自行选择为由，驳回了原告方的请求。
 
-此外，遗书还透露该医生曾经收到当地市长的威胁警告，指如果他不服从政府命令而拒绝为其病人接种疫苗，则将被医院解雇。据悉，当局曾一直试图阻止公布这份遗书，但在德国各大网络媒体及社交舆论的压力下，最终才在近期被公之于众。
+据悉，以上裁决将对今后类似的诉讼案件有指导性作用。但因本案仍可最终上诉至最高法院，所以在此之前，该如何具体执行和操作本次裁决结果，还有待各方进一步的确认。
 
 * * *
 
 校对编辑，发稿：硫酸羟氯喹64
 
 原文链接：
-https://stessnews.online/2021/11/17/germany-dr-thomas-jendges-head-of-clinic-commits-suicide-covid-19-vaccine-is-a-genocide/
+
+[https://financialpost.com/fp-work/ontario-court-deals-another-blow-to-unions-efforts-to-protect-their-unvaccinated-members?utm\_term=Autofeed&utm\_medium=Social&utm\_source=Twitter#Echobox=1637664850](https://financialpost.com/fp-work/ontario-court-deals-another-blow-to-unions-efforts-to-protect-their-unvaccinated-members?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_source=Twitter#Echobox=1637664850)
 
  
 

@@ -2,130 +2,46 @@
 ---
 
 
-## 比特币为什么会消失, 喜币 喜联储为什么这么牛
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1689798/)
+## 蓬佩奥继续呼吁抵制北京冬奥会
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1689820/)
 
-[https://gtv.org/video/id=619cd1b1e6900076612ecb76](https://gtv.org/video/id=619cd1b1e6900076612ecb76)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**郭文贵**
-**Miles Guo**
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/O-1.jpg)24newshd.tv
+蓬佩奥先生11月23日再次发推，呼吁抵制北京冬奥会，“世界不能奖赏习近平和中国共产党，因为他们在不断地侵犯人权”。【1】
 
-他说，你为什么说比特币完蛋，我看了你很多直播
-He said, why did you say that Bitcoin is dead? I watched a lot of your live broadcasts, and you said so a lot
+推文链接了《纽约邮报》（NY Post）的文章，题目是，“拜登抵制北京奥运会的六大理由”。【2】
 
-他说那个原罪，他说所有全世界的犯罪都跟美元有关系
-He said about the original sin, all crimes in the world have something to do with the U.S. dollar
+全文如下：
 
-那美元就没有了吗？我就笑笑没搭理他
-So there is no original sin in the dollar? I just smiled and ignored him
+拜登总统说，他正在“考虑”对明年北京冬奥会进行外交抵制，事实上，这是最起码的要求。
 
-就他是个美国所谓的财政部级别的，还有一个我们的CTO也这么认为
-he is at the so-called Treasury level in the United States, and one of our CTO (Chief Technology Officer) also thinks so
+中国共产党的目标是让奥运会成为其宣传上的胜利，这让莱尼·里芬斯塔尔（Leni Riefenstah）的“奥林匹亚”蒙羞。事实上，它值得全世界的蔑视，而远远不止是不派出美国政府官方代表团。
 
-他这个猪脑袋都不是，你知道吧
-He is a no brainer, you know?
+一、中国共产党在遥远西部地区的新疆，对维吾尔人进行了骇人听闻的虐待，违反了《联合国灭绝种族公约》（the UN Genocide Convention）的每一项规定。它在大约260个秘密建造的高度安全的集中营，以及其他拘留中心关押着大约200万维吾尔人、哈萨克人和其他穆斯林少数民族。少数逃出监狱的人说，他们受到了灌输、性虐待，甚至被迫绝育。
 
-美国所有的法币参与的，被用作犯罪的是被动的
-All U.S. fiat currencies are involved and used as crimes are passive
+二、北京完全拒绝合作，拒绝对夺走500多万人生命的中共病毒疫情的起源进行任何真正的调查，事实上就像大卫·阿舍（David Asher）指出的那样，“科学和间接证据表明，中共病毒疫情由武汉病毒研究所的偶然事故导致，这个结论几乎是决定性的。”
 
-是我被动的，但是比特币是主动化的，你就是去中心的
-It was passive, but Bitcoin is active, it is decentralized
+中国共产党已经尽其所能，从疫情的头几天起就把水弄混了。从在互联网上抹掉揭发者李文亮医生的名字，到指责美国通过冷冻食品包装将其带到中共国海岸，再到迫使世界卫生组织支持其谎言。
 
-我美元，我有人负责任呐，
-Someone is responsible for the dollar
+三、中共国近20年来，主要从法轮功练习者和维吾尔穆斯林人那里活摘被关押者的器官。北京方面坚称，所有器官都来自于死后的“自愿”捐赠者，但原始数据表明这是不可能的。
 
-而且我是比特币从第一天的1块钱七哥就买了
-And I invested in Bitcoin from day one at one dollar
+四、打击香港的自由，这违背了北京在移交该城市时的承诺，中共不仅损毁了任何民主的象征，还在逮捕阻碍它行进的任何人，以及排除妨碍它的任何事情。
 
-我全程参与了比特币，七哥最早在2018年我就说过
-I participated in the whole process of Bitcoin, Miles had said as early as 2018
+五、北京将战火引向了教会，在习近平主席面前不需要别的神，他多年来一直在打击中共国的基督徒，拒绝让孩子们参加礼拜，拆毁教堂，用他替换了耶稣的形象，监禁牧师并篡改圣经，以坚持共产党的路线。
 
-比特币的4%的庄家，拥有96%的比特币
-4% of Bitcoin’s banker owns 96% of Bitcoin
+六、在最近的一次臭名昭著的暴政中，该政权“消失”了自己的三届奥运网球明星选手彭帅，她指控了前副总理张高丽的性侵行为。这就是中国共产党的做派，如果世界各国政府和国际奥委会对此视而不见，运动员们自己也该有此足够的理由来抵制了。
 
-全世界谁敢说，它是中共情报，伊朗和美国华尔街培养的洗钱工具
-Who dares to say in the world that it is a money laundering tool cultivated by the Chinese Communist Party’s intelligence, Iran and Wall Street in the United States
+（全文完）
 
-而且是暗网、深网60%-70%使用的货币
-And it is the currency used by 60%-70% in the dark web and the deep web
+给力！尤其是对释放中共病毒、恶意掩盖、活摘器官的揭露。不过，不止六大罪状，还应该包括，对台湾的威胁，对南海的强占，以及对国际组织、各国政府的渗透。
 
-那么今天我们大家要看到的一个最重要的问题
-So the most important matter that we all want to see today
+有关链接：
 
-今天看我们自己的喜联储的喜币的时候和法币之间最大的区别是什么，
-What is the biggest difference between our own H-coin of Himalaya Reserve and fiat currency
+【1】[https://twitter.com/mikepompeo/status/1463188658396274696](https://twitter.com/mikepompeo/status/1463188658396274696)
 
-法币，你信不信你都得使用, 为什么呀，
-Fiat currency, you have to use it whether you believe it or not, why?
-
-这叫必须强迫的被动式信任，你信不信你都得用
-This is called passive trust that must be forced. You have to use it whether you believe it or not
-
-但是今天的喜联储牛在哪里，我是什么
-But where is the outstanding point of Himalaya Reserve today, what is it
-
-主动让你自动的信不信取决于你，你不信任，你不要来开户
-The initiative is in your own, believe or not depends on you, if you don’t believe it, don’t open an account
-
-你不信任，不要买喜币，你不信任，不要去拿喜币去交易
-If you don’t believe it, don’t buy H-Coin, if you don’t believe, don’t trade H-Coin
-
-这就完了，我这个币是跟你法币之间最大的不同，是吧
-That’s it, the biggest difference between H-coin and fiat currency is, right?
-
-我是完全自动信任，但是美元说你在美国你不用美元你用什么，用人民币
-It’s fully automatic trust, but you don’t use US dollar in the US，what are you going to use? Use RMB？
-
-说你滚一边儿，没人要你的，而且必须用美元交易
-Go away, nobody wants yours RMB, and you have to use dollars
-
-那这个支付系统更简单了，你这个商家你愿意我愿意，咱俩就愿意嘛
-Then this payment system is even simpler. If a merchant and the consumer are both willing in the system
-
-这是双方你情我愿嘛，那你政府监管我什么
-This is the two sides agreement, then what else can your government regulate me?
-
-告诉我所有资本市场的根本前提下，
-Tell me the fundamental premise of all capital markets
-
-你情我愿的公平经济活动剩余价值的交换，
-The exchange of the surplus value of fair economic activities under the both agreed condition
-
-达到物品交换的目的的被政府监管
-being supervised by the government to achieve the purpose of exchange of goods
-
-我愿意被你监管呐，你监管我什么？
-am I willing to be supervised by you? what are you supervising me for?
-
-所有其它货币能这样吗？全是你不情我不愿，
-Can all other crypto currencies do this? It’s all you don’t want and I am not willing to do
-
-吓唬欺骗，而且没有中心负责任的
-scare and deceive, and there is no central responsible for it
-
-而且没有稳定币的，而且不接受政府监管的，那你就必须被干掉
-And there is no stable currency, and it does not accept government supervi-sion, then it must be taken out
-
-**原视频链接:**[https://gettr.com/post/phiv27450a](https://gettr.com/post/phiv27450a)
-
-Date:11/22/2021
-原视频标题: 比特币为什么会消失, 喜币 喜联储为什么这么牛
-Why will Bitcoin disappear, and why H-Coin, Himalaya Reserve is so outstand-ing
-原视频日期：2021/11/19
-原视频链接https://gettr.com/post/phiv27450a
-任务编号：2971
-视频时间段 : 0:00-2:17
-
-中听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 -天涯行
-审片: 洛杉矶盘古农场 -银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+【2】[https://nypost.com/2021/11/20/six-massive-reasons-why-biden-should-boycott-beijing-olympics/](https://nypost.com/2021/11/20/six-massive-reasons-why-biden-should-boycott-beijing-olympics/)
 
  
 
