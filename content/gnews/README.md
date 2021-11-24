@@ -15,122 +15,122 @@
 
 ---
 
-### [释放油储杯水车薪 拜登政府缘木求鱼](/content/gnews/1/README.md)
+### [日本大财团企业联合推出新数字货币](/content/gnews/1/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共借““共同富裕”，收割台湾企业！](/content/gnews/2/README.md)
+### [日本政府补贴，使医院利润率由“负”转“正”](/content/gnews/2/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [学生食堂出现腐烂食材被爆光 中共官方竟然首先开除拍摄者](/content/gnews/3/README.md)
+### [美邀台参加民主峰会，国际社会试问习的底线何在？](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共威胁台企“吃饭砸锅”要拉清单，台湾远东集团被重罚4.74亿](/content/gnews/4/README.md)
+### [释放油储杯水车薪 拜登政府缘木求鱼](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [所罗门学习中共国足球经验？能学点啥？](/content/gnews/5/README.md)
+### [中共借““共同富裕”，收割台湾企业！](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [数字日元来了，喜支付离日本还远吗？](/content/gnews/6/README.md)
+### [中共开展史上最大规模农业种质资源普查](/content/gnews/6/README.md)
+ ` 儒为`
+
+### [学生食堂出现腐烂食材被爆光 中共官方竟然首先开除拍摄者](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [刘銮雄血亏110亿清仓恒大](/content/gnews/7/README.md)
+### [中共威胁台企“吃饭砸锅”要拉清单，台湾远东集团被重罚4.74亿](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [喜币全球流通和巨大升值空间让迪拜抢先机,接着是全球](/content/gnews/8/README.md)
+### [所罗门学习中共国足球经验？能学点啥？](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [数字日元来了，喜支付离日本还远吗？](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [刘銮雄血亏110亿清仓恒大](/content/gnews/11/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [喜币全球流通和巨大升值空间让迪拜抢先机,接着是全球](/content/gnews/12/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [不知道参选人的投票](/content/gnews/9/README.md)
+### [不知道参选人的投票](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/10/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/14/README.md)
  ` wenwu`
 
-### [恒大大股东清仓，倒亏一百亿](/content/gnews/11/README.md)
+### [恒大大股东清仓，倒亏一百亿](/content/gnews/15/README.md)
  ` 澳喜农场`
 
-### [2021年11月5日郭文贵先生18楼家宴直播全文字版](/content/gnews/12/README.md)
+### [2021年11月5日郭文贵先生18楼家宴直播全文字版](/content/gnews/16/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [西媒头条 — 第116期](/content/gnews/13/README.md)
+### [西媒头条 — 第116期](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [迪拜的事情把数字货币变成了比法币还有权威的交易币](/content/gnews/14/README.md)
+### [迪拜的事情把数字货币变成了比法币还有权威的交易币](/content/gnews/18/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [世卫组织的警报：到春季欧洲将有超过 220 万人死亡](/content/gnews/15/README.md)
+### [世卫组织的警报：到春季欧洲将有超过 220 万人死亡](/content/gnews/19/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [美国总统邀请约 110 个国家参加虚拟民主峰会](/content/gnews/16/README.md)
+### [美国总统邀请约 110 个国家参加虚拟民主峰会](/content/gnews/20/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [日本要闻汇编 11月24日](/content/gnews/17/README.md)
+### [日本要闻汇编 11月24日](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021/11/22 墙内世界](/content/gnews/18/README.md)
+### [2021/11/22 墙内世界](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [郭文贵先生临时直播爆料 本周三件大事](/content/gnews/19/README.md)
+### [郭文贵先生临时直播爆料 本周三件大事](/content/gnews/23/README.md)
  ` 纽约香草山MOS01`
 
-### [2018年05月24日 郭文贵先生直播全文字版](/content/gnews/20/README.md)
+### [2018年05月24日 郭文贵先生直播全文字版](/content/gnews/24/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
 
-### [推广中共病毒疫苗的医生在接种疫苗后陆续死亡](/content/gnews/21/README.md)
+### [推广中共病毒疫苗的医生在接种疫苗后陆续死亡](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [担忧冲击半导体业 意大利总理三度阻挡中资收购案](/content/gnews/22/README.md)
+### [担忧冲击半导体业 意大利总理三度阻挡中资收购案](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [台湾受邀首届白宫民主峰会 中共未在名单](/content/gnews/23/README.md)
+### [台湾受邀首届白宫民主峰会 中共未在名单](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [解读《墙国给美国的四个必答题》](/content/gnews/24/README.md)
+### [解读《墙国给美国的四个必答题》](/content/gnews/28/README.md)
  ` 澳喜特战旅Gnews`
 
-### [小米市值蒸发3400多亿元，雷军成2021中共国第三惨富豪](/content/gnews/25/README.md)
+### [小米市值蒸发3400多亿元，雷军成2021中共国第三惨富豪](/content/gnews/29/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [2021年11月24日 澳喜要闻摘要](/content/gnews/26/README.md)
+### [2021年11月24日 澳喜要闻摘要](/content/gnews/30/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中俄军事合作威胁日本安全](/content/gnews/27/README.md)
+### [中俄军事合作威胁日本安全](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [彭帅被绑架事件使得北京冬奥会变得不确定](/content/gnews/28/README.md)
+### [彭帅被绑架事件使得北京冬奥会变得不确定](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [苹果起诉飞马间谍软件背后的以色列公司](/content/gnews/29/README.md)
+### [苹果起诉飞马间谍软件背后的以色列公司](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [有声|文贵先生盖特直播对战友忠告](/content/gnews/30/README.md)
+### [有声|文贵先生盖特直播对战友忠告](/content/gnews/34/README.md)
  ` MOSREC`
 
-### [有声|中共国恶劣天气再现：东北雪台风](/content/gnews/31/README.md)
+### [有声|中共国恶劣天气再现：东北雪台风](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [有声|犹太法院裁定：儿童接种中共疫苗死亡 相关人员要承担”谋杀”罪名](/content/gnews/32/README.md)
+### [有声|犹太法院裁定：儿童接种中共疫苗死亡 相关人员要承担”谋杀”罪名](/content/gnews/36/README.md)
  ` MOSREC`
 
-### [有声|德国卫生部长暗示实施强制疫苗接种令](/content/gnews/33/README.md)
+### [有声|德国卫生部长暗示实施强制疫苗接种令](/content/gnews/37/README.md)
  ` MOSREC`
 
-### [有声|北京再出强制令：快递、外卖小哥必须全程接种中共病毒疫苗](/content/gnews/34/README.md)
+### [有声|北京再出强制令：快递、外卖小哥必须全程接种中共病毒疫苗](/content/gnews/38/README.md)
  ` MOSREC`
 
-### [有声|4 亿多人观看郭先生首次爆料，90%多的中国人要消灭中共](/content/gnews/35/README.md)
- ` MOSREC`
-
-### [DC大中华时事：疫苗的灾难还远没有开始](/content/gnews/36/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共因电力短缺 &#8220;亮白旗&#8221;&#8230;&#8230;10月恢复进口澳大利亚煤炭](/content/gnews/37/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日越防长确认在海洋和网络领域合作 应对中共威胁](/content/gnews/38/README.md)
+### [日越防长确认在海洋和网络领域合作 应对中共威胁](/content/gnews/39/README.md)
  ` GTV新闻访谈`
-
-### [苏格兰政府将疫苗护照的私人数据共享给亚马逊和微软](/content/gnews/39/README.md)
- ` 墨尔本雅典娜农场`
 
 ### [美军舰依法穿越台湾海峡](/content/gnews/40/README.md)
  ` GTV新闻访谈`
