@@ -2,30 +2,31 @@
 ---
 
 
-## 有声|美国媒体批评拜登对台政策虚虚实实含糊不清
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1691568/)
+## 50亿！港共政府首次发行人民币债券
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1691588/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-近日，美国《外交政策》杂志表示：在美中紧张关系不断升级之际，拜登却就美国对台政策已经4次说话不一致，让人担忧这可能是触发美国与中共冲突的火花。
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-97.jpg)
+[图片来源](https://udn.com/news/story/7333/5736199)
 
-报道称，拜登于11月16日对记者表示：美国非常清晰地表明支持台湾关系法，台湾是独立的，台湾做出它自己的决定。之后拜登又澄清说，他不是在鼓励台湾政治独立，对此，美国政策没有变化。但上述言语却戳中了中共的敏感之处，中共随即警告说，如果台独分裂势力挑衅逼迫，中共将采取断然措施。
+港共政府周三（11月24日） 宣布成功发售50亿元离岸人民币绿色债券，其中三年期及五年期的收益率分别为2.80%及3.00%。这是港共政府首次发行人民币债券，为人民币离岸市场提供重要的新基准。
 
-自1979年美国与中共建交以来，美国不承认台湾是一个主权实体，但却与台湾政府关系密切，并且对台出售武器。美国官方说不支持台湾独立，但是在中共进攻台湾时，美国是否会干预和保卫台湾却刻意保持模糊。
+据金管局的声明，本次绿色债券发行分两个年期，三年期发行金额为25亿元，五年期为25亿元。
 
-文字版原文：[美国媒体批评拜登对台政策虚虚实实含糊不清](https://gnews.org/zh-hans/1688912/)
+金管局并指，两期人民币债券共吸引逾142亿元认购金额。54%分配予银行、35%予基金经理、私人银行及保险公司，以及11%予国际组织、官方机构及私营企业。
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-近日，美国《外交政策》杂志表示：在美中紧张关系不断升级之际，拜登却就美国对台政策已经4次说话不一致，让人担忧这可能是触发美国与中共冲突的火花。
+该批离岸人民币绿债预期于下周二（30日）交收，并于香港交易所和伦敦证券交易所上市。
+
+消息来源:
+
+[香港政府发售50亿元离岸人民币绿色债券，三年及五年期收益率2.8%及3%](https://cn.reuters.com/article/%E9%A6%99%E6%B8%AF%E6%94%BF%E5%BA%9C%E5%8F%91%E5%94%AE50%E4%BA%BF%E5%85%83%E7%A6%BB%E5%B2%B8%E4%BA%BA%E6%B0%91%E5%B8%81%E7%BB%BF%E8%89%B2%E5%80%BA%E5%88%B8%EF%BC%8C%E4%B8%89%E5%B9%B4%E5%8F%8A%E4%BA%94%E5%B9%B4%E6%9C%9F%E6%94%25)
+
+[香港特區政府發售綠色債券](https://www.hkma.gov.hk/chi/news-and-media/press-releases/2021/11/20211124-3)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
+
 
  
 

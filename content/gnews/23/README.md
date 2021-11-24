@@ -2,35 +2,27 @@
 ---
 
 
-## 企业家挑战卫生官员就疫苗展开辩论但无人接受
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1691523/)
+## 有声|数万名未接种联邦雇员本周一失业 众议员抨击白宫强制接种令
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1691546/)
 
-**翻译： Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip51.png)Image by [Steve Kirsch](https://creativecommons.org/licenses/by-sa/3.0/)
-企业家史蒂夫·基尔施（Steve Kirsch）挑战卫生官员就疫苗展开辩论，但无人接受。
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+11月22日是白宫下达联邦雇员疫苗接种令的截止日期。数万名尚未接种的联邦雇员将在本周一失去他们的工作。
 
-以下是专家团队的部分名单，他们对 COVID 疫苗的安全性和/或早期治疗的有效性有共同的看法。我们是传统思维，无论白宫怎么说，我们都遵循数据所说的事实。
+众议员詹姆斯·科默在接受媒体采访时谴责拜登政府，“不能强制接种”。 科默说，决定不接种疫苗是宪法赋予人们的权利。许多工会就联邦项目签订了合同和分包合同，但他们联系我，对拜登政府侵犯了个人的自由感到愤怒。可怕的是，他们无法领取失业救济金。许多联邦雇员来自如邮政、运输、教育等一线行业，人员短缺将会给拜登政府的低效运作带来更大的混乱。 这项行政命令是今年9月初颁布的，立即遭到包括五个军种的军人、联邦雇员、文职承包商等在内发起的大规模集体诉讼。科默最后说，欧洲许多国家正在进行反强制接种抗议活动，很快也会出现在这里。
 
-并非我们所有人就所有问题都达成一致，因为我们都是不同领域的专家。
+文字版原文：[数万名未接种联邦雇员本周一失业 众议员抨击白宫强制接种令](https://gnews.org/zh-hans/1687686/)
 
-主流专家认为我们在传播错误信息，但我们没有兴趣这样做，我们只看数据，就会得出不同的结论。我们愿意被说服我们犯了一个错误。但到目前为止，推动主流叙事的人，都不敢就数据实际显示的内容进行科学讨论。我们听到的都是噪音，即使《试验现场新闻》（TrialSiteNews）提议主持辩论时，也没有人出现。
-
-想结束**“**错误信息**”**的最快方法是向我们表明我们错了，为什么没有人愿意这样做？
-
-更多信息，请访问史蒂夫·基尔施的《子锥栈》[https://stevekirsch.substack.com/p/my-team-of-vaccine-safety-experts](https://stevekirsch.substack.com/p/my-team-of-vaccine-safety-experts)
-
-**新闻来源**：[creativedestructionmedia.com][Entrepreneur Steve Kirsch Challenges Health Officials To Debate Over Vaccines But No One Will Accept](https://creativedestructionmedia.com/news/2021/11/23/entrepreneur-steve-kirsch-challenges-health-officials-to-debate-over-vaccines-but-no-one-will-accept/)
-
-* * *
-
-***审核：文乐
-校对：信心满满
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
-
-
-
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

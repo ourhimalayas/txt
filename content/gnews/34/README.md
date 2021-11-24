@@ -2,223 +2,93 @@
 ---
 
 
-## 班农先生的人格魅力是我们中国人最为缺少的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1691353/)
+## 科学家们不清楚为何非洲成功的躲过了中共病毒？
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1691384/)
 
-[https://gtv.org/video/id=619de6cfe6900076612f1d4c](https://gtv.org/video/id=619de6cfe6900076612f1d4c)
+拟稿：金生水
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-27.jpg)图片来自网络
+澳媒《9 News》近日报道，本周早些时候，津巴布韦仅记录了 33 例新的中共病毒病例和零死亡，这与最近整个非洲大陆的疾病下降趋势一致，世界卫生组织的数据显示，自 今年7月以来，该地区的感染率一直在下降。
 
-班农先生不但他支持中国人
-No solo el Sr. Bannon apoya a los chinos
+去年中共病毒首次出现时，卫生官员担心这种流行病会席卷非洲，造成数百万人死亡。尽管目前尚不清楚该病毒的最终死亡人数是多少，但这种灾难性的情况尚未在津巴布韦或非洲大陆的大部分地区实现。
 
-他父亲、他兄弟
-Su padre, sus hermanos
+科学家们强调，获得准确的中共病毒数据极其困难，特别是在监测不完整的非洲国家，并警告说感染趋势下降的趋势很容易逆转。
 
-他妹妹、他全家
-Su hermana menor, toda su familia
+但哥伦比亚大学全球卫生系主任瓦法阿·埃尔-萨德尔说，非洲正在发生一些“神秘”的事情，这让科学家们感到困惑。
 
-都支持新中国人老百姓
-Apoyan a los ciudadanos de la Nueva China
+“非洲没有欧洲和美国那样的疫苗和资源来对抗中共病毒，但不知何故，他们似乎做得更好，”她说。
 
-而且班农先生冒着生死威胁
-Además, el Sr. Bannon está arriesgando una amenaza de vida y muerte
+非洲只有不到 6% 的人接种了中共病毒疫苗。几个月来，世卫组织在其每周的大流行报告中将非洲描述为“世界上受影响最小的地区之一”。
 
-创建法治基金、法治社会
-Para crear el Fondo y la Sociedad de Estado de Derecho
+一些研究人员表示，非洲大陆的年轻人口，平均年龄为 20 岁，而西欧约为 43 岁。除了他们较低的城市化率和在户外度过时间的倾向之外，到目前为止可能没有受到病毒更致命的影响。几项研究正在探讨是否还有其他解释，包括遗传原因或过去感染寄生虫病。
 
-然后一起创建一切
-Y crear todo en conjunto
+周五，在乌干达工作的研究人员表示，他们发现，与几乎没有疟疾病史的人相比，感染疟疾的中共病毒患者患严重疾病或死亡的可能性较小。
 
-我们新中国联邦人可以说第一次
-En la Federación de la Nueva China podemos decir que por primera vez
+“我们进入这个项目时认为我们会在有疟疾感染史的人身上看到更高的负面结果，因为这就是在同时感染疟疾和埃博拉病毒的患者身上看到的情况，”高级研究顾问简·阿坎说。疟疾联盟和该研究的合著者。
 
-向中国人展示了我们不是说白人
-Le demostramos a los chinos que hablamos de la raza blanca
+“实际上，我们看到相反的情况感到非常惊讶，疟疾可能具有保护作用。”
 
-要不就是我们的敌人
-Como nuestros enemigos
+阿坎说，这可能表明过去感染过疟疾可能会“减弱”人们在感染中共病毒时免疫系统进入超速运转的趋势。该研究于周五在美国热带医学与卫生学会的一次会议上提出。
 
-要么就是我们的奴隶
-O como nuestros esclavos
+尼日利亚救世主大学非洲传染病基因组学卓越中心主任克里斯蒂安·哈皮说，即使没有疫苗，当局也习惯于控制疫情，并归功于社区卫生工作者的广泛网络。
 
-要不就是奴隶我们的主人
-O como esclavo de nuestro amo
+“这并不总是关于你有多少钱或你的医院有多先进，”他说。
 
-不是这个关系
-No es esta relación
+爱丁堡大学全球公共卫生主席德维·斯里达表示，非洲领导人没有因迅速采取行动而得到应有的赞誉，理由是马里决定在中共病毒到达之前关闭边境。
 
-我们平等相处
-Nosotros nos llevamos bien en igualdad
+“我认为非洲有一种不同的文化方法，这些国家以谦逊的态度对待中共病毒，因为他们经历过埃博拉、脊髓灰质炎和疟疾等疾病，”斯里达尔说。
 
-我们可以互敬互爱互尊
-Podemos respetarnos y amarnos mutuamente
+在过去的几个月中，中共病毒席卷了南非，据估计，那里已造成 89,000 多人死亡，是非洲大陆迄今为止死亡人数最多的国家。但就目前而言，非洲当局虽然承认可能存在差距，但并未报告可能与中共病毒相关的大量意外死亡人数。
 
-而且完全没有种族观念的
-Además, sin ningún concepto racial en lo absoluto
+世卫组织的数据显示，非洲的死亡人数仅占全球总数的 3%。相比之下，美洲和欧洲的死亡人数分别为 46% 和 29%。
 
-和班农先生在推行全球的
-Para promover junto al Sr. Bannon
+在非洲人口最多的国家尼日利亚，政府迄今已记录其 2 亿人口中有近 3000 人死亡。美国每两三天就有很多人死亡。
 
-整个全球的平民主义
-El populismo en todo el mundo
+数量少的尼日利亚人，比如阿布贾 23 岁的奥佩米波，感到如释重负。
 
-包括推行我们的新中国联邦
-Incluyendo promover nuestro Nuevo Estado Federal de China
+“他们说街上会有尸体等等，但没有发生过这样的事情，”她说。
 
-新中国联邦
-Nuevo Estado Federal de China
+周五，尼日利亚当局开始开展一项运动，以大幅扩大这个西非国家的中共病毒免疫接种。官员们的目标是在2月之前为一半的人口接种疫苗，他们认为这一目标将有助于他们实现群体免疫。
 
-这是一个前所未有的
-Esto nunca antes había sucedido
+尼日利亚病毒学家奥耶瓦勒·托莫里是几个世卫组织咨询小组的成员，他建议非洲甚至可能不需要像西方那样多的疫苗。这个想法虽然有争议，但他说非洲科学家正在认真讨论这个想法，这让人想起英国官员去年 3 月提出的让中共病毒自由感染人群以建立免疫力的提议。
 
-而且我们没流一滴血
-Además, nosotros no derramamos ni una gota de sangre
+然而，这并不意味着非洲不需要疫苗。
 
-没有死一个人
-No se ha muerto una persona
+南非夸祖鲁-纳塔尔大学的流行病学家萨利姆·阿卜杜勒·卡里姆曾就中共病毒向南非政府提供建议，他说：“我们需要全力以赴接种疫苗，为下一波疫情做好准备。”
 
-所以说今天在这个时候
-Por eso hoy en este momento
+“看看欧洲正在发生的事情，更多病例蔓延到这里的可能性非常高。”
 
-我们跟班农先生再坐在一起的时候
-Cuando estamos sentados junto al Sr. Bannon
+在阿富汗等贫穷国家，中共病毒的影响在非洲以外的地区也相对较弱，专家预测，在这些地区，持续冲突中的爆发将是灾难性的。
 
-这个世界最重要的就是
-Lo más importante de este mundo es que
+喀布尔一名 23 岁的学生哈希马特·阿里菲说，他已经几个月没有看到任何人戴口罩了，包括最近在他与数百名客人一起参加的婚礼上。在他的大学课堂上，20 多名学生经常不戴口罩坐在近距离。
 
-用今天你来看过去发生的历史
-A través de hoy vemos las historias que sucedió en el pasado
+“我最近没有看到任何中共病毒病例，”阿里菲说。
 
-来对比过去的历史
-Haciendo una comparación con las historias del pasado
+到目前为止，阿富汗在其 3900 万人口中记录了约 7200 人死亡，尽管在冲突期间几乎没有进行过检测，而且实际病例和死亡人数尚不清楚。
 
-再看到你看我们今天当时新闻发布会出现的那些人当中
-Vemos de nuevo, entre esas personas que se presentaron en la rueda de prensa en aquel momento
+回到津巴布韦，医生们对中共病毒的喘息感到感激——但担心这只是暂时的。
 
-现在很多人已经都背叛了
-Ahora hay mucha gente que ha traicionado
+“人们应该保持高度警惕，”津巴布韦私人医疗和牙医协会主席约翰内斯·玛丽莎博士警告说。
 
-这是很正常的
-Esto es normal
+他担心下个月还会有另一波中共病毒浪潮袭击津巴布韦。
 
-人类大自然优胜劣汰的
-La naturaleza humana sobrevive a los más aptos
+本周在哈拉雷郊外一个贫穷小镇的一个繁忙的市场上，格蕾丝·恩杜把他的口罩放在口袋里，而其他数百人，大部分都没有戴口罩，争先恐后地买卖展示在木桌和塑料布上的水果和蔬菜。
 
-这是一个正常的自然现象
-Este es un fenómeno natural normal
+与津巴布韦的大部分地区一样，随着政治集会、音乐会和家庭聚会的回归，这里的中共病毒正在迅速成为过去。
 
-但是要看到
-Pero hay que ver
+“中共病毒消失了，您最后一次听说有人死于中共病毒是什么时候？” 恩杜先生说。
 
-为什么班农先生还能跟我坐在一起
-Por qué el Sr. Bannon aún puede estar sentado a mi lado
+“口罩是为了保护我的钱包。 警察会索要贿赂，所以如果我不戴口罩走动，我就会赔钱。”
 
-为什么班农先生
-Por qué el Sr. Bannon
+非洲的抗击中共病毒成功的案例已经说明了解决病毒流行的工具绝不是疫苗，仅仅不到6%的接种率却也成功抑制住了病毒的蔓延。非洲大陆因为疟疾横行，羟氯喹作为抗疟疾的传统药品，无需处方就可以购买，在一些当地售卖的饮料中也有添加，这才是解局的关键，实在不清楚为何科学家们对此视而不见。
 
-今天还能有这样的激情
-Hoy en día aún puede tener esta pasión
+马达加斯加总统推出含有艾蒿和特有的植物有机饮料免费分发给该国的弱势群体，并以低价出售给其他人，从而使该国的中共病毒基本处于零感染。这再一次验证了药物治疗对于抗击中共病毒的有效性，希望科学界和主流媒体可以借鉴非洲抗疫的经验，摒弃疫苗，推广药物治疗，让这个世界少一些苦难。
 
-还有这样的影响力
-Y este tipo de influencia
+参考链接：
 
-就当时 FBI 的人给我说
-En ese momento los de FBI me dijeron
+[https://www.9news.com.au/world/coronavirus-africa-update-scientists-mystified-wary-as-african-countries-zimbabwe-nigeria-avoid-covid-19-disaster/5f00b59a-3548-4cba-b88b-b13bd1287cdc](https://www.9news.com.au/world/coronavirus-africa-update-scientists-mystified-wary-as-african-countries-zimbabwe-nigeria-avoid-covid-19-disaster/5f00b59a-3548-4cba-b88b-b13bd1287cdc)
 
-说你们中国人就是要脸要面子
-“ustedes los chinos sólo quieren el prestigio y la reputación
-
-全世界只有美国一个 Steve K. Bannon
-En todo el mundo sólo hay un Estados Unidos, un Steve K. Bannon
-
-他说被人家给打到地上 It’s shit
-Dijo que alguien lo golpeó en el suelo diciéndole: “es una mierda”
-
-然后班农到 Europe
-Y cuando Bannon se fue a Europa
-
-You know the FBI said
-“Sabes qué dijo el FBI”
-
-然后欧洲回来以后 Number one hero
-Y luego cuando regresó de Europa, “héroe número uno”
-
-FBI 说他从来没要面子
-El FBI dijo que él nunca quiso reputación
-
-Steve Bannon never wants to say give my face
-“Steve Bannon nunca dijo: dame mi reputación”
-
-I don’t care face, just want to win
-“No me interesa la reputación, sólo quiero ganar”
-
-Chinese say give my face
-“Los chinos dicen dame mi prestigio”
-
-Face so fake, nothing 所以说班农先生人家赢
-“El prestigio es falso, no es nada” Por eso el Sr. Bannon ganó
-
-FBI 说人家班农就是英雄啊
-El FBI dice que Bannon es un héroe
-
-那么班农先生即使经历这么多事情
-Así el Sr. Bannon haya pasado por tantas cosas
-
-从来没有见他有一点点犹豫
-Pero nunca se le ve ni un poquito de indecisión
-
-这是我们一个学习的一个人格的好榜样
-Este es un buen ejemplo de una personalidad para aprender
-
-说他是种族主义
-Dicen que él es racista
-
-Racialism
-Racismo
-
-班农先生是
-El Sr. Bannon es
-
-American only one
-El único americano
-
-White people 100% support Chinese
-Persona blanca que apoya a los chinos al 100%
-
-I never get feeling you are racialism
-“Yo nunca logré sentir que eres racista”
-
-Never never never
-Nunca nunca nuca
-
-One hundred twenty days with you together
-120 días contigo juntos
-
-One boat one life twenty-four hours sleep together
-En un barco, una vida, 24 horas durmiendo juntos
-
-I never get feeling your racialism
-Yo nunca te sentí que eras racista
-
-* * *
-
-日期：11/23/2021
-原视频标题：班农先生的人格魅力是我们中国人最为缺少的
-El encanto de la personalidad del Sr. Bannon es lo que más nos falta a los chinos
-原视频日期：11/22/2021
-原视频网址：https://gettr.com/post/phlgeuab7b
-任务编号：KC283（2982）
-视频时间段：0:00-2:21
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+[https://info.taiwantrade.com/biznews/%E9%A6%AC%E9%81%94%E5%8A%A0%E6%96%AF%E5%8A%A0%E6%8E%A8%E5%BB%A3%E9%BB%83%E8%8A%B1%E8%92%BF-artemisia-annua-%E8%8D%89%E8%97%A5%E5%85%B7covid-19%E7%99%82%E6%95%88-2009244.html#.YZO\_dfTPzIg.twitter](https://info.taiwantrade.com/biznews/%E9%A6%AC%E9%81%94%E5%8A%A0%E6%96%AF%E5%8A%A0%E6%8E%A8%E5%BB%A3%E9%BB%83%E8%8A%B1%E8%92%BF-artemisia-annua-%E8%8D%89%E8%97%A5%E5%85%B7covid-19%E7%99%82%E6%95%88-2009244.html#.YZO_dfTPzIg.twitter)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
