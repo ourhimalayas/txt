@@ -2,25 +2,28 @@
 ---
 
 
-## 中国政府抗议美国海军驱逐舰通过台湾海峡
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1690947/)
+## 日本大财团企业联合推出新数字货币
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690966/)
 
-撰稿：小湫
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/12313.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.xinmin.cn%2Fxmwb%2F2021%2F4%2FNEM1_20210420_C0326326330_A2760534.jpg&amp;imgrefurl=https%3A%2F%2Fwap.xinmin.cn%2Fcontent%2F31941540.html&amp;tbnid=9jZK94F6db1JBM&amp;vet=12ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ..i&amp;docid=C5khSQm7zUjvIM&amp;w=600&amp;h=399&amp;itg=1&amp;q=%E6%97%A5%E6%9C%AC%E6%95%B0%E5%AD%97%E8%B4%A7%E5%B8%81&amp;ved=2ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ)
+日经新闻周三报导，一个由大约70家日本企业组成的财团将开始测试最早在2022年下半年推出的一种数字货币，其中包括三家大型银行。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture1-24.jpg)图片来自网络
+该报称，这种数字货币将由银行存款支持，并使用一个共同的平台来加快公司之间的大额转账和结算，降低成本。
 
+财团成员包括三菱日联金融集团(MUFG)[8306.T](https://cn.reuters.com/companies/8306.T)、瑞穗金融集团[8411.T](https://cn.reuters.com/companies/8411.T)、以及三井住友金融集团[8316.T](https://cn.reuters.com/companies/8316.T)。该财团自去年以来一直定期开会，研究如何为数字支付建立一个共同的结算基础设施。
 
+这三家银行都推出了自己的数字支付系统，但仍落后于软银集团[9984.T](https://cn.reuters.com/companies/9984.T)旗下的PayPay等科技公司。
 
-中国政府抗议美国海军驱逐舰通过台湾海峡，称这是蓄意破坏该地区稳定的举动，本周二（2021.11.23）。 美国海军第七舰队在网站上发了一份声明，声明中说，阿利·伯克级(Arleigh burke)导弹驱逐舰米利厄斯号(USS Milius)本周二按照国际法进行了一次例行的台湾海峡过境。  声明称，该船通过台湾海峡表明了美国对自由开放的印太地区的承诺，美国军队可以在国际法允许的任何地方飞行、航行和行动。
+这一举措可能会影响日本央行正在单独进行的央行数字货币(CBDC)测试，政策制定者曾表示，如果央行要发行CBDC，他们将与民间部门密切合作。
 
-中国外交部发言人赵立坚，在每日新闻发布会上表示，美国军舰打着航行自由的旗号，在台湾海峡不断施展武力，挑起事端。这不是对自由和开放的承诺，而是蓄意破坏地区和平与稳定的企图。
+消息来源:
 
-在北京方面提出抗议之前，台湾向其空军引进了升级版的F-16V战斗机，以帮助应对大陆战机越来越多地侵入台湾周边空域所带来的威胁。
+[日本约70家企业将联合测试推出数字货币–日经](https://cn.reuters.com/article/japan-digital-currency-test-1124-wedn-idCNKBS2I9056?il=0)
 
-中国政府声称自治的台湾岛是其不可分割的领土，如有必要将武力收复台湾。美国只可以与台湾有非官方关系，但向台湾提供防御性武器，这是受法律限制的，同时也威胁到了台湾岛的安全，中国政府将严重关切此问题。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Picture2-4.jpg)图片来自网络
-翻译：https://www.foxnews.com/world/china-protests-us-navy-destroyers-taiwan-strait
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

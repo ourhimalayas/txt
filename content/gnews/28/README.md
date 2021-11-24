@@ -2,28 +2,25 @@
 ---
 
 
-## 日本大财团企业联合推出新数字货币
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690966/)
+## 秘翻在线：新西兰医护人员诱骗一对12岁双胞胎接种疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1690992/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12313.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.xinmin.cn%2Fxmwb%2F2021%2F4%2FNEM1_20210420_C0326326330_A2760534.jpg&amp;imgrefurl=https%3A%2F%2Fwap.xinmin.cn%2Fcontent%2F31941540.html&amp;tbnid=9jZK94F6db1JBM&amp;vet=12ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ..i&amp;docid=C5khSQm7zUjvIM&amp;w=600&amp;h=399&amp;itg=1&amp;q=%E6%97%A5%E6%9C%AC%E6%95%B0%E5%AD%97%E8%B4%A7%E5%B8%81&amp;ved=2ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ)
-日经新闻周三报导，一个由大约70家日本企业组成的财团将开始测试最早在2022年下半年推出的一种数字货币，其中包括三家大型银行。
+#### 翻译/撰稿：zzballack
 
-该报称，这种数字货币将由银行存款支持，并使用一个共同的平台来加快公司之间的大额转账和结算，降低成本。
+#### 校对：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-82.png)    图片来源：The Covid World
+网站The Covid World 11月23日刊文称，新西兰旺阿雷市（WHANGAREI）的某医护人员用100美元的礼品卡诱骗一对12岁双胞胎接种辉瑞疫苗，但是没有提前告知孩子的父母。孩子父亲皮塔·比蒂（Pita Beatty）在得知此事后，大为恼火。虽然新西兰的法律允许12岁以上的未成年人在未经父母同意的情况下接种疫苗，但许多人认为这是非常不道德的，尤其是在涉及金钱和孩子的问题时。
 
-财团成员包括三菱日联金融集团(MUFG)[8306.T](https://cn.reuters.com/companies/8306.T)、瑞穗金融集团[8411.T](https://cn.reuters.com/companies/8411.T)、以及三井住友金融集团[8316.T](https://cn.reuters.com/companies/8316.T)。该财团自去年以来一直定期开会，研究如何为数字支付建立一个共同的结算基础设施。
+皮塔·比蒂录制了一段与医护人员对峙的视频，11月16日将其发布到了脸书上。视频中，这位激动的父亲大喊：“我现在为我的孩子们感到害怕！”其中一名医护人员回答说：“我理解。”
 
-这三家银行都推出了自己的数字支付系统，但仍落后于软银集团[9984.T](https://cn.reuters.com/companies/9984.T)旗下的PayPay等科技公司。
+“不，你他妈的不理解。你不明白！（为了诱骗我的孩子接种新冠疫苗），竟用一百美元的礼品卡贿赂他们！”比蒂越来越激动，但医护人员没有表现出任何同情或者理解。
 
-这一举措可能会影响日本央行正在单独进行的央行数字货币(CBDC)测试，政策制定者曾表示，如果央行要发行CBDC，他们将与民间部门密切合作。
+该疫苗接种中心后来发表声明说：“在这个事例中，疫苗接种员与这两个年轻人（12岁的男孩）进行了很好的讨论，让他们充分了解了这个过程和他们的权利，他们随后同意接种疫苗。这符合卫生部关于向人们提供知情同意的政策指导意见。”这种模板式的回答是政府医护人员侵犯儿童权利的常见做法。这样他们就不需要为因服从命令而导致的任何并发症等健康问题而负责了。
 
-消息来源:
+即使在辩解声明中，接种中心仍然有意模糊孩子的年龄，将12岁的男孩称为（有独立责任能力的）年轻人，其心虚程度可见一斑。如果疫苗的效果是积极的，他们心虚什么？
 
-[日本约70家企业将联合测试推出数字货币–日经](https://cn.reuters.com/article/japan-digital-currency-test-1124-wedn-idCNKBS2I9056?il=0)
+新闻来源：[Father Left Furious After Twin Sons Given $100 Bribe To Get Vaccine Without His Consent: “I’m Now Scared For My Boys!”](https://thecovidworld.com/father-left-furious-after-twin-sons-given-100-bribe-to-get-vaccine-without-his-consent-im-now-scared-for-my-boys/)
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

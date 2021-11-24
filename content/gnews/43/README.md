@@ -2,33 +2,24 @@
 ---
 
 
-## 有声|文贵先生盖特直播对战友忠告
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1690584/)
+## 台湾受邀首届白宫民主峰会 中共未在名单
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690686/)
 
-配音：香草山香港部 – 文凯琳
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-美东时间11月22日，郭文贵先生在盖特直播。
+撰稿：东京樱花团/皓月当空郭
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-186.png)（图片来源于本文链接）
+（华盛顿24日讯）美国总统拜登12月将召开首届虚拟民主峰会，美国国务院当地时间周二公布与会者名单，共有台湾、英国、德国、立陶宛、日本与印尼等110国和地区受邀，中共国、俄罗斯等威权国家未在名单上。
 
-文贵先生一边健身，一边直播，提醒战友们千万不要忘了健身：“不管您有什么理由，不管您有钱还是有权有名，千万不要有任何侥幸心理。没有了身体健康，什么都完了”！
+另据台湾中央社报导，拜登12月9日至10日将召开虚拟领袖民主峰会，邀集国家元首、公民社会、慈善事业与私部门成员谈论民主挑战。首届峰会将聚焦3大主题，包括对抗威权、打击贪腐及促进对人权的尊重。
 
-文贵先生和大家分享，喜币的价格仅仅是其价值的很多分之一。最重要的是它的支付系统，流通系统，去中心化的区块链技术，以及20%的储备黄金。文贵先生告诉战友们，这些都是全世界最核心的技术。但是，如果喜币不流通，不支付，没有喜贷款，没有更多机构接受和进场，所有的数据都不真实的。对于喜币的未来而言，文贵先生做出的判断是一切尚早，甚至可以说一切都没开始。
+简评：我们可以看到，虽然美国和中共经济利益关系交往大，但是在民主人权方面，美国政府还是有清晰的认识，美国并没有因为中共经济来往多而忽略台湾，反而此次首届白宫民主峰会邀请台湾，而忽略中共！同时我们看到，世界各个国家的眼睛是雪亮的，能够判断出一个国家是民主还是威权极权独裁，民主的国家始终会得到别人的尊重！
 
-文贵先生最后忠告战友们，尽管你有喜币和投资，只要你忘了灭掉共产党的使命，那是绝对不行的。战友们得到的一切利益，是因为和新中国联邦绑定在一起才有的。灭掉共产党是我们的目标，你做任何和这一个目标违背的事情，那都是不行的。 不消灭共产党的邪恶体制，世界将永无宁日，谁也无法获得安全。
+信息来源：
 
-文字版原文：[文贵先生盖特直播对战友忠告](https://gnews.org/zh-hans/1687706/)
+[美國務院公布：台灣受邀白宮民主峰會　中俄未在名單內](https://tw.appledaily.com/international/20211124/KEEX4IZHPFBL5EE4OL5WYP3WZQ/)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
-
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
