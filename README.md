@@ -15,95 +15,95 @@
 
 ---
 
-### [COVID-19 最新情报｜美国爱达荷州病理学博士揭露：“数据显示，疫苗导致患癌机率增加 20 倍”](/content/gnews/1/README.md)
+### [拜登政府邀请台湾参加下月民主峰会](/content/gnews/1/README.md)
+ ` 日本东京方舟农场`
+
+### [COVID-19 最新情报｜美国爱达荷州病理学博士揭露：“数据显示，疫苗导致患癌机率增加 20 倍”](/content/gnews/2/README.md)
  ` G&#124;News TAIWAN`
 
-### [上百个国际品牌从强迫维吾尔人劳动中获利](/content/gnews/2/README.md)
+### [上百个国际品牌从强迫维吾尔人劳动中获利](/content/gnews/3/README.md)
  ` 日本东京方舟农场`
 
-### [格陵兰岛撤销中共国矿业公司铁矿开采许可证](/content/gnews/3/README.md)
+### [格陵兰岛撤销中共国矿业公司铁矿开采许可证](/content/gnews/4/README.md)
  ` 日本东京方舟农场`
 
-### [中共国养老理财试点产品首发在即](/content/gnews/4/README.md)
+### [中共国养老理财试点产品首发在即](/content/gnews/5/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [中共第一家沃尔玛撤场](/content/gnews/5/README.md)
+### [中共第一家沃尔玛撤场](/content/gnews/6/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [基辛格认为中共国“不会入侵台湾”的背后蹊跷](/content/gnews/6/README.md)
+### [基辛格认为中共国“不会入侵台湾”的背后蹊跷](/content/gnews/7/README.md)
  ` 澳喜农场`
 
-### [澳联邦银行认识到了错失加密货币市场的损失](/content/gnews/7/README.md)
+### [澳联邦银行认识到了错失加密货币市场的损失](/content/gnews/8/README.md)
  ` Finance-GCLUB【新西兰财经G乐部】`
 
-### [欧洲疫情升温 美国务院警告勿前往德国丹麦](/content/gnews/8/README.md)
+### [欧洲疫情升温 美国务院警告勿前往德国丹麦](/content/gnews/9/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [强制新冠疫苗背后的独裁思维](/content/gnews/9/README.md)
+### [强制新冠疫苗背后的独裁思维](/content/gnews/10/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [秘翻在线：对班农先生等人虚假指控的背后浮现中共庞大的黑影](/content/gnews/10/README.md)
+### [秘翻在线：对班农先生等人虚假指控的背后浮现中共庞大的黑影](/content/gnews/11/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [秘翻在线：新西兰医护人员诱骗一对12岁双胞胎接种疫苗](/content/gnews/11/README.md)
+### [秘翻在线：新西兰医护人员诱骗一对12岁双胞胎接种疫苗](/content/gnews/12/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [烤猪头吃包子](/content/gnews/12/README.md)
+### [烤猪头吃包子](/content/gnews/13/README.md)
  ` 首尔天池农场`
 
-### [日本大财团企业联合推出新数字货币](/content/gnews/13/README.md)
+### [日本大财团企业联合推出新数字货币](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本政府补贴，使医院利润率由“负”转“正”](/content/gnews/14/README.md)
+### [日本政府补贴，使医院利润率由“负”转“正”](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中国政府抗议美国海军驱逐舰通过台湾海峡](/content/gnews/15/README.md)
+### [中国政府抗议美国海军驱逐舰通过台湾海峡](/content/gnews/16/README.md)
  ` 澳喜农场`
 
-### [美邀台参加民主峰会，国际社会试问习的底线何在？](/content/gnews/16/README.md)
+### [美邀台参加民主峰会，国际社会试问习的底线何在？](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新证据显示新冠病毒来自于武汉病毒研究所](/content/gnews/17/README.md)
+### [新证据显示新冠病毒来自于武汉病毒研究所](/content/gnews/18/README.md)
  ` 澳喜农场`
 
-### [释放油储杯水车薪 拜登政府缘木求鱼](/content/gnews/18/README.md)
+### [释放油储杯水车薪 拜登政府缘木求鱼](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共借““共同富裕”，收割台湾企业！](/content/gnews/19/README.md)
+### [中共借““共同富裕”，收割台湾企业！](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共开展史上最大规模农业种质资源普查](/content/gnews/20/README.md)
+### [中共开展史上最大规模农业种质资源普查](/content/gnews/21/README.md)
  ` 儒为`
 
-### [学生食堂出现腐烂食材被爆光 中共官方竟然首先开除拍摄者](/content/gnews/21/README.md)
+### [学生食堂出现腐烂食材被爆光 中共官方竟然首先开除拍摄者](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共威胁台企“吃饭砸锅”要拉清单，台湾远东集团被重罚4.74亿](/content/gnews/22/README.md)
+### [中共威胁台企“吃饭砸锅”要拉清单，台湾远东集团被重罚4.74亿](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [所罗门学习中共国足球经验？能学点啥？](/content/gnews/23/README.md)
+### [所罗门学习中共国足球经验？能学点啥？](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/24/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/25/README.md)
  ` wenwu`
 
-### [数字日元来了，喜支付离日本还远吗？](/content/gnews/25/README.md)
+### [数字日元来了，喜支付离日本还远吗？](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [刘銮雄血亏110亿清仓恒大](/content/gnews/26/README.md)
+### [刘銮雄血亏110亿清仓恒大](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [喜币全球流通和巨大升值空间让迪拜抢先机,接着是全球](/content/gnews/27/README.md)
+### [喜币全球流通和巨大升值空间让迪拜抢先机,接着是全球](/content/gnews/28/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [不知道参选人的投票](/content/gnews/28/README.md)
+### [不知道参选人的投票](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/29/README.md)
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/30/README.md)
  ` wenwu`
-
-### [恒大大股东清仓，倒亏一百亿](/content/gnews/30/README.md)
- ` 澳喜农场`
 
 ### [2021年11月5日郭文贵先生18楼家宴直播全文字版](/content/gnews/31/README.md)
  ` 温哥华扬帆农场七哥直播全文听写组`
