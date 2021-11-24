@@ -2,28 +2,29 @@
 ---
 
 
-## 日本大财团企业联合推出新数字货币
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690966/)
+## COVID-19 最新情报｜美国爱达荷州病理学博士揭露：“数据显示，疫苗导致患癌机率增加 20 倍”
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1691081/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12313.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.xinmin.cn%2Fxmwb%2F2021%2F4%2FNEM1_20210420_C0326326330_A2760534.jpg&amp;imgrefurl=https%3A%2F%2Fwap.xinmin.cn%2Fcontent%2F31941540.html&amp;tbnid=9jZK94F6db1JBM&amp;vet=12ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ..i&amp;docid=C5khSQm7zUjvIM&amp;w=600&amp;h=399&amp;itg=1&amp;q=%E6%97%A5%E6%9C%AC%E6%95%B0%E5%AD%97%E8%B4%A7%E5%B8%81&amp;ved=2ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ)
-日经新闻周三报导，一个由大约70家日本企业组成的财团将开始测试最早在2022年下半年推出的一种数字货币，其中包括三家大型银行。
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜24/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-该报称，这种数字货币将由银行存款支持，并使用一个共同的平台来加快公司之间的大额转账和结算，降低成本。
+美国爱达荷州规模最大的独立诊断实验室的病理学家兼经营者 Dr. Ryan Cole，早前在一个旨在面向公众的视讯报告中指出，**他发现了大量的已接种疫苗者正陷入各种自身免疫性疾病和癌症中。  **
+中文譯文僅作參考
+“当人们打完疫苗后，我们发现，人体所需的，重要的杀手T细胞持续固定在一个让人非常担忧的低活跃状态。这几乎就是一种反向爱滋病毒反应。”他解释指，当感染艾滋病毒后，人就会失去辅助 T 细胞，即 CD4 细胞，接种疫苗后，杀手T细胞，即 CD8 细胞就会减少，而 CD8 细胞的作用就是抑制病毒。
 
-财团成员包括三菱日联金融集团(MUFG)[8306.T](https://cn.reuters.com/companies/8306.T)、瑞穗金融集团[8411.T](https://cn.reuters.com/companies/8411.T)、以及三井住友金融集团[8316.T](https://cn.reuters.com/companies/8316.T)。该财团自去年以来一直定期开会，研究如何为数字支付建立一个共同的结算基础设施。
+由于疫苗会抑制“杀手 T 细胞”的活跃程度，他不仅发现子宫内膜癌的病发率上升，恶性黑色素瘤、带状疱疹病毒、单病毒和人乳头瘤病毒 (HPV) 的病例数均在急剧上升。
 
-这三家银行都推出了自己的数字支付系统，但仍落后于软银集团[9984.T](https://cn.reuters.com/companies/9984.T)旗下的PayPay等科技公司。
+“现在最令人担忧的是，人体的这类免疫细胞可以抑制癌症，自从 1 月 1 日我在实验室看到，子宫内膜癌的发病率比我每年看到的增加了 20 倍—增加了 20 倍，我一点也不夸张。”Cole博士说，“因为我逐年地翻查这些数字，我在想“天哪，我以前从未见过这么多子宫内膜癌。”
 
-这一举措可能会影响日本央行正在单独进行的央行数字货币(CBDC)测试，政策制定者曾表示，如果央行要发行CBDC，他们将与民间部门密切合作。
+“我在年轻患者身上看到了侵袭性黑色素瘤。通常，它们在早期就能被发现，都是较薄的黑色素瘤。但在过去的一两个月里，我看到厚的黑色素瘤猛增。”
 
-消息来源:
+他警告指，“我已经看到了这些早期信号，我们的免疫系统正在趋向虚弱。也许免疫系统会再恢复，这些比率会回升。但谁会去研究？长期试验在哪里——两个月、四个月，但低活跃状态会持续  多长时间？我们不知道。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-18.jpg)
+* * *
 
-[日本约70家企业将联合测试推出数字货币–日经](https://cn.reuters.com/article/japan-digital-currency-test-1124-wedn-idCNKBS2I9056?il=0)
+来源｜[Twitter](https://twitter.com/ToTheLifeboats/status/1430589141344034816)
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

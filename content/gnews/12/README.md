@@ -2,222 +2,64 @@
 ---
 
 
-## 班农先生的人格魅力是我们中国人最为缺少的
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1691353/)
+## 举报人揭露医院一天内因新冠“疫苗”导致13例死婴产儿
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1691447/)
 
-[https://gtv.org/video/id=619de6cfe6900076612f1d4c](https://gtv.org/video/id=619de6cfe6900076612f1d4c)
+编译： Jenny Ball
 
-班农先生不但他支持中国人
-No solo el Sr. Bannon apoya a los chinos
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Woman-Giving-Birth-Delivering-Baby-Nurses-Doctors-Hospital.jpg)由于武汉冠状病毒（Covid-19）“疫苗”，正在发生种族灭绝，但医疗机构拒绝承认。
 
-他父亲、他兄弟
-Su padre, sus hermanos
+在加拿大不列颠哥伦比亚省（B.C.），最近举行了一场集会，以提醒注意这一事实，以及狮门医院在 24 小时内，发生约 13 例死产婴儿。
 
-他妹妹、他全家
-Su hermana menor, toda su familia
+所有这些死亡都发生在接受福奇流感疫苗注射的妇女所生的婴儿中，但公众没有被告知其中任何一个。作为回应，梅尔.布鲁切特(Mel Bruchet )和丹尼尔·长濑（Daniel Nagase）医生，以及其他有关公众聚集在一起，在北温哥华的加拿大皇家骑警 (RCMP) 办公室前提出投诉。
 
-都支持新中国人老百姓
-Apoyan a los ciudadanos de la Nueva China
+由于主要媒体完全无视这个事实，布鲁切特和长濑要将事情掌握在自己手中，向皇家骑警投诉公共卫生官员，据说，他们因经济利益冲突而将这一切都掩盖了。
 
-而且班农先生冒着生死威胁
-Además, el Sr. Bannon está arriesgando una amenaza de vida y muerte
+“我们站在上帝一边，”布鲁切特对集会上进行采访的人说。“我们站在正义的一边。”
 
-创建法治基金、法治社会
-Para crear el Fondo y la Sociedad de Estado de Derecho
+布鲁切特还谈到了许多其他事情，包括伊维菌素，阻止人们使用它的腐败政府官员，以及他认为随着越来越多的人了解此事的真相，大流行骗局逐渐瓦解——请点击文章链接观看视频
 
-然后一起创建一切
-Y crear todo en conjunto
+**不要袖手旁观：如果你有办法和能力，就采取行动反对****covid****疫苗法西斯主义**
 
-我们新中国联邦人可以说第一次
-En la Federación de la Nueva China podemos decir que por primera vez
+长濑在 RCMP 采取的步骤中解释说，他将代表在场的每个人以及其他人，提交个人投诉。布鲁切特和其他人想知道的是，省卫生官员邦妮·亨利 (Bonnie Henry) 和其他卫生领导人，是否在推动大规模注射运动方面得到了回报，或有其他某种经济利益。
 
-向中国人展示了我们不是说白人
-Le demostramos a los chinos que hablamos de la raza blanca
+您可能还记得，亨利为 BC 省卡顿伍兹护理中心疗养院发生的由疫苗引起的疫情进行了掩饰。
 
-要不就是我们的敌人
-Como nuestros enemigos
+“这是一个机会，”长濑告诉集会参加者。
 
-要么就是我们的奴隶
-O como nuestros esclavos
+“皇家骑警……通常你会去这里提交有关刑事诉讼的警方报告……**我怀疑这些政策是针对卑诗省公民制定的，不是出于公共健康的利益，而是出于经济利益。****”**
 
-要不就是奴隶我们的主人
-O como esclavo de nuestro amo
+另一位集会参加者表示，不仅死产死亡人数在增加，中风也在增加。所有这一切都被医疗系统隐藏了起来，除了一些勇敢的人们冒着自己的职业生涯，冒着很大的风险站出来说出真相。
 
-不是这个关系
-No es esta relación
+“我们需要要求皇家骑警进行调查，**进行法医调查**，以发现是否存在影响我们卫生部长的利益冲突，导致她制定对不列颠哥伦比亚省人民有害的政策，” 长濑说。
 
-我们平等相处
-Nosotros nos llevamos bien en igualdad
+在发布福奇流感疫苗之前，狮子门每个月可能有一个死胎，现在一天内发生了 13 倍的数量，这代表了飞速上升。
 
-我们可以互敬互爱互尊
-Podemos respetarnos y amarnos mutuamente
+在视频快要结束的部分，可以看到长濑从皇家骑警大楼出来，并成功提交了所有投诉。当他解释说这只是开始时，他得到了人群的欢呼。
 
-而且完全没有种族观念的
-Además, sin ningún concepto racial en lo absoluto
+“准备好听到越来越多的这种事情，”伊斯顿观众的一位评论者写道。“那些为这些根本就不是疫苗发声反抗的医生和医学科学家，过去不是，现在也不是阴谋论者。”
 
-和班农先生在推行全球的
-Para promover junto al Sr. Bannon
+有关武汉冠状病毒（Covid-19）“疫苗”法西斯主义的更多最新消息，请访问[ChemicalViolence.com](https://chemicalviolence.com/).
 
-整个全球的平民主义
-El populismo en todo el mundo
+**评论：“准备好听到越来越多的这种事情”疫苗灾难真的还没开始，文贵先生根据情报警告：真正的疫苗灾难将在明年的五月份。**
 
-包括推行我们的新中国联邦
-Incluyendo promover nuestro Nuevo Estado Federal de China
+**文章内容来源如下****:**
 
-新中国联邦
-Nuevo Estado Federal de China
+[EastonSpectator.com](https://www.eastonspectator.com/2021/11/18/15-stillborn-deaths-in-24-hours-rallylions-gate-hospital/)
 
-这是一个前所未有的
-Esto nunca antes había sucedido
+[Bitchute.com](https://www.bitchute.com/video/Q0EX21dY5Z78/)
 
-而且我们没流一滴血
-Además, nosotros no derramamos ni una gota de sangre
+[NaturalNews.com](https://www.naturalnews.com/2021-03-09-outbreak-death-canadian-nursing-home-mass-vaccination.html)
 
-没有死一个人
-No se ha muerto una persona
-
-所以说今天在这个时候
-Por eso hoy en este momento
-
-我们跟班农先生再坐在一起的时候
-Cuando estamos sentados junto al Sr. Bannon
-
-这个世界最重要的就是
-Lo más importante de este mundo es que
-
-用今天你来看过去发生的历史
-A través de hoy vemos las historias que sucedió en el pasado
-
-来对比过去的历史
-Haciendo una comparación con las historias del pasado
-
-再看到你看我们今天当时新闻发布会出现的那些人当中
-Vemos de nuevo, entre esas personas que se presentaron en la rueda de prensa en aquel momento
-
-现在很多人已经都背叛了
-Ahora hay mucha gente que ha traicionado
-
-这是很正常的
-Esto es normal
-
-人类大自然优胜劣汰的
-La naturaleza humana sobrevive a los más aptos
-
-这是一个正常的自然现象
-Este es un fenómeno natural normal
-
-但是要看到
-Pero hay que ver
-
-为什么班农先生还能跟我坐在一起
-Por qué el Sr. Bannon aún puede estar sentado a mi lado
-
-为什么班农先生
-Por qué el Sr. Bannon
-
-今天还能有这样的激情
-Hoy en día aún puede tener esta pasión
-
-还有这样的影响力
-Y este tipo de influencia
-
-就当时 FBI 的人给我说
-En ese momento los de FBI me dijeron
-
-说你们中国人就是要脸要面子
-“ustedes los chinos sólo quieren el prestigio y la reputación
-
-全世界只有美国一个 Steve K. Bannon
-En todo el mundo sólo hay un Estados Unidos, un Steve K. Bannon
-
-他说被人家给打到地上 It’s shit
-Dijo que alguien lo golpeó en el suelo diciéndole: “es una mierda”
-
-然后班农到 Europe
-Y cuando Bannon se fue a Europa
-
-You know the FBI said
-“Sabes qué dijo el FBI”
-
-然后欧洲回来以后 Number one hero
-Y luego cuando regresó de Europa, “héroe número uno”
-
-FBI 说他从来没要面子
-El FBI dijo que él nunca quiso reputación
-
-Steve Bannon never wants to say give my face
-“Steve Bannon nunca dijo: dame mi reputación”
-
-I don’t care face, just want to win
-“No me interesa la reputación, sólo quiero ganar”
-
-Chinese say give my face
-“Los chinos dicen dame mi prestigio”
-
-Face so fake, nothing 所以说班农先生人家赢
-“El prestigio es falso, no es nada” Por eso el Sr. Bannon ganó
-
-FBI 说人家班农就是英雄啊
-El FBI dice que Bannon es un héroe
-
-那么班农先生即使经历这么多事情
-Así el Sr. Bannon haya pasado por tantas cosas
-
-从来没有见他有一点点犹豫
-Pero nunca se le ve ni un poquito de indecisión
-
-这是我们一个学习的一个人格的好榜样
-Este es un buen ejemplo de una personalidad para aprender
-
-说他是种族主义
-Dicen que él es racista
-
-Racialism
-Racismo
-
-班农先生是
-El Sr. Bannon es
-
-American only one
-El único americano
-
-White people 100% support Chinese
-Persona blanca que apoya a los chinos al 100%
-
-I never get feeling you are racialism
-“Yo nunca logré sentir que eres racista”
-
-Never never never
-Nunca nunca nuca
-
-One hundred twenty days with you together
-120 días contigo juntos
-
-One boat one life twenty-four hours sleep together
-En un barco, una vida, 24 horas durmiendo juntos
-
-I never get feeling your racialism
-Yo nunca te sentí que eras racista
+**参考资料：**[newstarget][Whistleblowers expose 13 stillborn deaths in 24 hours at Lions Gates Hospital caused by covid “vaccines”](https://www.newstarget.com/2021-11-23-whistleblower-exposes-stillborn-deaths-babies-hospital-covid-vaccines.html)
 
 * * *
 
-日期：11/23/2021
-原视频标题：班农先生的人格魅力是我们中国人最为缺少的
-El encanto de la personalidad del Sr. Bannon es lo que más nos falta a los chinos
-原视频日期：11/22/2021
-原视频网址：https://gettr.com/post/phlgeuab7b
-任务编号：KC283（2982）
-视频时间段：0:00-2:21
-西听校：洛杉矶盘古农场 – 小文萱
-翻译：洛杉矶盘古农场 – 霙霙（文霙）
-翻译终校：洛杉矶盘古农场 – 小文萱
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布：洛杉矶盘古农场 – 恩典
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
 
  
 
