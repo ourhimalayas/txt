@@ -2,28 +2,27 @@
 ---
 
 
-## 日本大财团企业联合推出新数字货币
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1690966/)
+## 秘翻在线：对班农先生等人虚假指控的背后浮现中共庞大的黑影
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1691008/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12313.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fimg.xinmin.cn%2Fxmwb%2F2021%2F4%2FNEM1_20210420_C0326326330_A2760534.jpg&amp;imgrefurl=https%3A%2F%2Fwap.xinmin.cn%2Fcontent%2F31941540.html&amp;tbnid=9jZK94F6db1JBM&amp;vet=12ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ..i&amp;docid=C5khSQm7zUjvIM&amp;w=600&amp;h=399&amp;itg=1&amp;q=%E6%97%A5%E6%9C%AC%E6%95%B0%E5%AD%97%E8%B4%A7%E5%B8%81&amp;ved=2ahUKEwiwkPab07D0AhUXHLcAHcX7B_QQMygDegUIARCuAQ)
-日经新闻周三报导，一个由大约70家日本企业组成的财团将开始测试最早在2022年下半年推出的一种数字货币，其中包括三家大型银行。
+#### 撰稿翻译：Hakunamatata
 
-该报称，这种数字货币将由银行存款支持，并使用一个共同的平台来加快公司之间的大额转账和结算，降低成本。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/156asd4f564sdg5645456y1532df1s23fg.jpg)
 
-财团成员包括三菱日联金融集团(MUFG)[8306.T](https://cn.reuters.com/companies/8306.T)、瑞穗金融集团[8411.T](https://cn.reuters.com/companies/8411.T)、以及三井住友金融集团[8316.T](https://cn.reuters.com/companies/8316.T)。该财团自去年以来一直定期开会，研究如何为数字支付建立一个共同的结算基础设施。
+《国家脉搏》看到的一封法律信函，指责众议员伯尼·汤普森的委员会捏造了证据。
 
-这三家银行都推出了自己的数字支付系统，但仍落后于软银集团[9984.T](https://cn.reuters.com/companies/9984.T)旗下的PayPay等科技公司。
+汤普森1月6日国会骚乱的委员会调查组在起诉班农先生的同时最近传唤了克里克先生（Kerik），他是前纽约市长鲁迪·朱利安尼（Rudy Giuliani）的助手。他们的传唤信断言：特别委员会的调查和公众账户已经披露了可信的证据，证明克里克参与了特别委员会调查范围内的事件。据悉，他于2021年1月5日在华盛顿威拉德酒店参加了鲁迪·朱利安尼、斯蒂芬·班农、约翰·伊士曼等人参与的会议，会议“讨论推翻2020年11月大选结果的方案等。向副总统彭斯施压，要求他不要证实选举人团投票的结果。”暂且不谈是否有此会议和此内容，但凡有一例凭空捏造的不实证据就是完全不可接受的！
 
-这一举措可能会影响日本央行正在单独进行的央行数字货币(CBDC)测试，政策制定者曾表示，如果央行要发行CBDC，他们将与民间部门密切合作。
+克里克在帕拉托雷法律集团的律师周二进行了反击，坚称澄清：从收到传票时就知道，这是一项错误的指控，因为克里克先生那天甚至都不在华盛顿特区，因为他在纽约处理一个家庭紧急医疗的事故。虽然当时知道这个说法是错误的，但后来才发现实际上是他们刻意捏造的谎言。
 
-消息来源:
+1月6日委员会的成员声称有“可信的证据”证明克里克1月5日在华盛顿的威拉德酒店。事实上，没有这样的证据存在，这进一步证实了该委员会的滑稽性质及其故意针对右翼领导人物的捕鱼行动。上周，《国家脉搏》杂志透露，1月6日的委员会主席与暴力、分裂主义团体有着数十年的联系，而伊莱恩·卢里亚（Elaine luria）和亚当·希夫（adam Schiff）等人与中国共产党有着实质性的联系。克里克在一份声明中说：美国国会发布了一份新闻稿，说我将被调查，我将被传唤，原因是1月5日我与史蒂夫·班农先生、朱利安尼市长、伊士曼博士以及可能其他一些人参加了一次会议，没有此时发生，本尼·汤普森做了彻底虚假的陈述！
 
-[日本约70家企业将联合测试推出数字货币–日经](https://cn.reuters.com/article/japan-digital-currency-test-1124-wedn-idCNKBS2I9056?il=0)
+事实上，克里克先生车上的EZPASS收费系统显示，他在1月4日晚上从华盛顿特区沿I-95公路向北行驶，当晚7点13分左右进入特拉华州。晚上8点36分，他从新泽西收费高速公路的最后一个出口进入他居住的纽约市郊区。第二天，1月5日，过路费记录显示他两次穿过乔治华盛顿大桥进入曼哈顿：一次是在早上5点39分，另一次是在下午2点24分。克里克于1月5日深夜离开纽约。晚上11点51分，他在马里兰州北部缴纳了过路费，1月6日凌晨12点40分，他从马里兰州前往华盛顿。因此被杜撰捏造的控诉是完全不存在的。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+对班农先生等人的无端指控，透露着中共以骗以假陷害栽赃他人的作风，这让无数的官员和企业家遭受政治迫害，家破人亡悲剧不断。这种违背依法治国理念的行径已经渗透到了美国的权利中心，是中共的邪恶手段在破坏世界上这座曾经爱好自由，民主，和平与法制的灯塔——美国！消灭中共才能拯救美国，拯救世界。
+
+原文链接：[**REVEALED: Jan 6 Commission FABRICATED Whereabouts of Willard Hotel ‘War Room’ Attendee in Subpoena, Evidence Shows.**](https://thenationalpulse.com/news/revealed-jan-6-commission-fabricated-whereabouts-of-willard-hotel-war-room-attendee-in-subpoena-evidence-shows/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

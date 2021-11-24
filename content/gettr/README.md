@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/24/2021 10:44 AM (UTC)`
+
+🙏🙏🙏
+> `@globalhimalaya 11/24/2021 2:04 AM (UTC)`<br/>On average they would see 1 stillborn death a month. 3 dulas have reported that there were 13 stillborn deaths in a 24 hour period. Dr. Mel Bruchet and Dr. Daniel Nagase rally at Lions Gate Hospital.<br/>助产士爆料加拿大的一个医院24小时内出现13名死胎，通常情况下一个月才有一例。Bruchet医生和Nagase医生在医院门前集会
+![img](https://media.gettr.com/group33/origin/2021/11/24/02/04/9d725990-7e23-8f30-878f-dbb7684be0da/out.jpg)
+
+---
+
 `@miles 11/24/2021 9:53 AM (UTC)`
 
 11月25日：【共产党的病毒．和邪恶的役苗．成功的传播了极权国家主义】<br/><br/>CCP病毒和对人类的危害是历史以来前所未有的……无数的人命将换来一个非常简单的答案．共产党用蓝金黄．BGY成功的传播极权主义……
@@ -292,13 +300,6 @@ Golden State of Mind<br/><br/>@gfashion <br/>@DDNYC
 
 2021年11月20日 “11·20”发布会及法治基金、法治社会成立三周年纪念日大直播
 ![img](https://media.gettr.com/group6/origin/2021/11/20/12/3caabf07-86eb-78e8-d62d-f3cb94543810/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 11/20/2021 6:54 AM (UTC)`
-
-11/19/2021 Miles Guo: Any government that approves the purchase of weapons and training for the defense forces of the New Federal State of China is tantamount to recognizing our sovereign status; the world’s best mercenary troops are all our friends, and they can be dispatched to protect our fellow fighters on the ground at any time<br/><br/>11/19/2021 文贵直播：任何一个国家政府批准新中国联邦国防军购买武器和参加培训等同于认可了我们的主权资格；世界上最牛的雇佣军都是咱的人，他们可被随时派去在陆上保护咱战友<br/>
-![img](https://media.gettr.com/group30/getter/2021/11/20/06/54/3b47845a-40ef-aa30-c658-d7ce8ba7305d/out.jpg)
 
 ---
 
