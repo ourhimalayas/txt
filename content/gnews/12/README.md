@@ -2,24 +2,16 @@
 ---
 
 
-## 秘翻在线：新西兰医护人员诱骗一对12岁双胞胎接种疫苗
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1690992/)
+## 澳联邦银行认识到了错失加密货币市场的损失
+` Finance-GCLUB【新西兰财经G乐部】` [轉載自GNews](https://gnews.org/zh-hans/1691049/)
 
-#### 翻译/撰稿：zzballack
+澳大利亚联邦银行（CBA）首席执行官MattComyn表示，我们意识到了错过加密货币会带来的损失。CBA将成为澳大利亚“四大”银行中第一个提供基于加密货币服务的银行，该银行于11月3日宣布将支持直接通过其银行应用程序进行10种数字资产的交易。
 
-#### 校对：胡天
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-82.png)    图片来源：The Covid World
-网站The Covid World 11月23日刊文称，新西兰旺阿雷市（WHANGAREI）的某医护人员用100美元的礼品卡诱骗一对12岁双胞胎接种辉瑞疫苗，但是没有提前告知孩子的父母。孩子父亲皮塔·比蒂（Pita Beatty）在得知此事后，大为恼火。虽然新西兰的法律允许12岁以上的未成年人在未经父母同意的情况下接种疫苗，但许多人认为这是非常不道德的，尤其是在涉及金钱和孩子的问题时。
+11月19日周五，Comyn在接受彭博电视采访时被问及CBA对加密货币领域的看法时，这位CEO指出：“我们看到了参与的风险，但我们更看到了不参与会带来的损失更大。”
+![图片](https://media.gettr.com/group36/getter/2021/11/24/03/47/7f55c8c1-3b36-1a23-ce09-3f121907738c/55ae3b73017b28bf0c373076f2c8efe7_500x0.jpg)
+参考链接：[https://fortune.com/2021/11/18/comm…](https://fortune.com/2021/11/18/commonwealth-bank-australia-ceo-matt-comyn-crypto-market-risk-investment/)
 
-皮塔·比蒂录制了一段与医护人员对峙的视频，11月16日将其发布到了脸书上。视频中，这位激动的父亲大喊：“我现在为我的孩子们感到害怕！”其中一名医护人员回答说：“我理解。”
-
-“不，你他妈的不理解。你不明白！（为了诱骗我的孩子接种新冠疫苗），竟用一百美元的礼品卡贿赂他们！”比蒂越来越激动，但医护人员没有表现出任何同情或者理解。
-
-该疫苗接种中心后来发表声明说：“在这个事例中，疫苗接种员与这两个年轻人（12岁的男孩）进行了很好的讨论，让他们充分了解了这个过程和他们的权利，他们随后同意接种疫苗。这符合卫生部关于向人们提供知情同意的政策指导意见。”这种模板式的回答是政府医护人员侵犯儿童权利的常见做法。这样他们就不需要为因服从命令而导致的任何并发症等健康问题而负责了。
-
-即使在辩解声明中，接种中心仍然有意模糊孩子的年龄，将12岁的男孩称为（有独立责任能力的）年轻人，其心虚程度可见一斑。如果疫苗的效果是积极的，他们心虚什么？
-
-新闻来源：[Father Left Furious After Twin Sons Given $100 Bribe To Get Vaccine Without His Consent: “I’m Now Scared For My Boys!”](https://thecovidworld.com/father-left-furious-after-twin-sons-given-100-bribe-to-get-vaccine-without-his-consent-im-now-scared-for-my-boys/)
+（文章内容仅代表新西兰-财经G乐部节目观点）
 
  
 
