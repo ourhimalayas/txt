@@ -2,32 +2,12 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月24日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1693393/)
+## 欧洲各地因强制接种疫苗爆发大规模抗议活动
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1693355/)
 
-作者：香草山翻译部
+11/22/2021 黛博拉·布雷克在战斗室表示，目前，欧洲各地因强制接种疫苗爆发大规模抗议活动，德国卫生部长斯潘甚至发表了令人震惊的言论，他说：“在今年冬季结束的时候，所有德国人要么接种疫苗，要么新冠被治愈，要么死亡。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-5.png)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1124text-SC.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[11.24  晚GTV新闻访谈](https://gtv.org/broadcast/watch/619ee67638f84e66c64f877d)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-10.jpg)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 
