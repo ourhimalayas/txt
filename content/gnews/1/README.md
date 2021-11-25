@@ -2,30 +2,40 @@
 ---
 
 
-## 中共拿拜习电话会当令牌，指责美对其再增制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1694070/)
+## 12家中资背景机构被美商务部列入国防军事终端黑名单
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1694122/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh5.googleusercontent.com/LwrVyYY8mzTVdyvfuGwD92WyO1o8NpwUOlmDv1hQqNQ1N1yUahSAAOMxC_ZH8d_JPBFt5msV9C4Ty20S1AARfLoiU-EKGN0lRN6ZpUqA_jm-vAnh6aqMjPsJJfHj_XioOaZecc8r)[*图片来源*](https://news-pctr.c.yimg.jp/t/news-topics/images/tpc/2021/11/25/6350fe86471c07cf2446da7464063610523cc5dc7de902554d831dc6bb6cc160.jpg)
-**中共国大量公司在美再被制裁，中共驻华盛顿大使馆发言人批评说，美国应该“与中国和解”，认为“美国违反拜习在线会谈的精神”，中共无耻地认为，美国官员违背了拜登总统对习近平友好的原则。**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-368.jpeg)
+撰文：台湾宝岛农场 快慢机
 
-据[路透社](https://jp.reuters.com/article/usa-china-entity-list-idJPKBN2I92KW)华盛顿24日消息称， 24日美国政府针对中共国禁运名单中又增加了几家中共国公司。美国认为，出于国家安全和外交政策考虑，不仅有来自中国，还包括中共国与日本、巴基斯坦和新加坡有关联的的27家公司被列入实体名单。其指控理由是，中共国公司目的是“获取或试图获取美国技术和产品用于军事目的”。
+当地时间11月24日，美国商务部对外发布公告，将27个位于中共国与巴基斯坦，以及日本和新加坡境内的，具有中资背景相关机构企业，列入其国防军事终端用户管制黑名单。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-369.jpeg)
+这次被列入美国国家安全防御军事终端用户出口管制实体名单内的这27家企业，全部统一具备中资背景，并分布于亚洲的4个国家，其中12家位于中共国，13家位于巴基斯坦，另外两家分设于日本及新加坡。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-728.png)
+这其中有八家位于中共国的中资背景科技实体机构，因支持中共军方的现代化改进，以及涉嫌试图非法秘密获取，源于美国的高度敏感技术与相关物资等，用以支持中共军事应用，尤其是军用量子计算领域和包括反潜与反逆踪、以及军用级加密破解等相关敏感机密技术。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-729.png)
+上述这八家中资背景机构分别为：杭州中科微电子有限公司（Hangzhou Zhongke Microelectronics Co Ltd）、湖南国科微电子有限公司（Hunan Goke Microelectronics Co Ltd）、新华三半导体技术有限公司（New H3C Semiconductor Technologies Co Ltd）、先航天华讯科技有限公司（Xian Aerospace Huaxun Technology）、苏州云芯微电子科技有限公司（Yunchip Microelectronics）、合肥微尺度物质科学国家研究中心（Hefei National Laboratory for Physical Sciences at Microscale）、科大国盾量子（QuantumCTek）、上海国盾量子技术股份有限公司（Shanghai QuantumCTeck Co Ltd）。
 
-消息称，随着美国和中共国之间的关系在台湾和贸易问题上变得越来越紧张之际，[美国联邦通信委员会( FCC ) 周三要求联邦上诉法院驳回中国电信公司继续在美国提供服务的申请，此前电信监管机构上个月撤销了其运营授权](https://www.reuters.com/article/fcc-request-court-china-telecom-1124-wed-idCNKBS2IA02W)。
+而另外16个分别位于中共国境内和巴基斯坦境内的中资背景机构与个人，则因深度参与支持巴基斯坦的无安全保障性核活动，以及军用弹道导弹计划而被列入国防军事终端黑名单。其中早在2019年便被列入该项黑名单内的，中共国嘉兆科技有限公司（Corad Technology Limited），旗下的另外三个子公司，也在这次被一并列入出口管制名单内。理由是其非法向中共军方所属的国防军工企业以及伊朗军方，秘密出售源自于美国及其他西方盟友的军事和太空相关机敏技术。
 
-中国电信美洲公司于10月26日被FCC以国家安全为由、于1月初停止在美国提供服务。[FCC表示](https://voi.id/zh/technology-zh/98450/read)，“中国电信受到中国政府的剥削、影响和控制，极有可能被迫遵守中国政府的要求，而没有经过独立司法监督的充分法律程序。”
+这次遭受重创的这27家中资背景机构，至此将会受到美国政府的严格出口管制审查，意味着全美的所有企业及个人，若在没有获取美国政府的官方正式许可前提下，是绝对禁止一切与上述27家机构的任何贸易往来的。这也基本宣告了上述拥有中资背景机构的企业，将被彻底隔离在美国及其西方盟友的防火墙之外。
 
-对此，中共国驻华盛顿大使馆发言人批评说，“中方坚决反对。”中共驻美国大使把习拜电话峰会扯上关系说，“本着上周美中峰会在线会谈的精神，美国应该与中国和解，而不是在错误的道路上走得更远。”言外之意，似乎是在指责美国政府官员违背了你们的总统对习近平友好的旨意，拜登总统在中共国官员眼里似乎就是中共敕封的美国皇帝。
+此举势必对中共军方试图持续性，窃取美军的关键性机敏军事技术计划造成严重打击。在技术上对遏制中共军方的进一步疯狂军备扩张起到的关键性作用。
 
-中共官员的嘴脸像个异常丑陋的小偷，他们似乎在告诉美国，“你们不允许我偷窃，违背了我们之间的友谊”。
+此文仅代表笔者个人观点！
 
-对此，美国商务部长莱蒙德在一份声明中表示，“加入该清单是为了防止美国技术支持中共国和俄罗斯的军事发展以及巴基斯坦的核活动和弹道导弹计划。”显而易见，中共国的湖南商务部等多家公司被列入该名单是因为“**支持解放军的军事力量现代化**”。
+资料链接：[https://finance.sina.com.cn/tech/2021-11-25/doc-ikyamrmy4949304.shtml](https://finance.sina.com.cn/tech/2021-11-25/doc-ikyamrmy4949304.shtml)
 
-2021年11月25日
+* * *
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
