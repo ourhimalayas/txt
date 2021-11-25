@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/25/2021 4:53 AM (UTC)`
+
+11/24/2021 Miles Guo: It is a tragedy for the Chinese that Hu Shuli, a criminal, is considered as an intellectualist; Fang Zhouzi, Sima Nan, and Hu Xijin are the scum of the Chinese people, causing the Chinese to be excluded and hated, and they are attacking Liu Chuanzhi; the New Federal State of China will let the people try these scumbags<br/><br/>11/24/2021 文贵直播：犯罪分子胡舒立却被成为”公知”是中国人的悲哀；方舟子、司马南、胡锡进是民族的败类，他们导致了中国人被排华和仇视，并攻击柳传志；新中国联邦未来将让人民对这些败类进行公审
+![img](https://media.gettr.com/group5/getter/2021/11/25/04/53/cc3b1800-8356-c3d6-0d0f-fc8bf91fcf16/out.jpg)
+
+---
+
+`@miles 11/25/2021 4:48 AM (UTC)`
+
+11/24/2021 Miles Guo: Wang Qishan arranged for Changpeng Zhao to attend the Bloomberg New Economy Forum to smear the Himalaya Coin; Zhao hides himself in Dubai to collude with the CCP’s intel agency; after the CCP brings down Binance, Zhao can take the users’ money for himself without having to be responsible for selling out their information to the CCP; Zhao’s ending will be the same as that of HNA’s Wang Jian<br/><br/>11/24/2021 文贵直播：王岐山安排赵长鹏参加彭博创新经济论坛来抹黑喜币；他藏身迪拜和中共情报机构勾兑；中共干掉币安后，他可将用户的钱据为己有且无需对出卖用户信息负责；他的结局将跟海航王健一样<br/><br/>
+![img](https://media.gettr.com/group35/getter/2021/11/25/04/48/c0ac041d-09f2-08d7-7a8f-c86ca23c7e39/out.jpg)
+
+---
+
 `@miles 11/25/2021 3:24 AM (UTC)`
 
 11/24/2021 Miles Guo: The COVID vaccine disaster has caused the recent frequent explosion, traffic accidents, the rising number of sick people, and the overloaded hospitals in Communist China; one person's accident due to the COVID vaccine side effects destroys the whole family, while it takes the entire social system to serve one person’s illness, and the secondary disaster of COVID vaccines will be more frightening than the vaccines<br/><br/>11/24/2021 文贵直播：疫苗灾难导致中共国近期爆炸和交通事故频发、染病人数攀升、医院爆满；一人出事毁全家，一人生病则要整个社会系统为之服务，疫苗的次生灾难将比疫苗更可怕<br/>
@@ -282,20 +296,6 @@ Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Touch
 
 11/20/2021 [3rd Anniversary of 1120] Steve Bannon: By working closely with the Whistleblowers’ Movement, the most importantly work of the Rule of Law Foundation (ROLF) is to help get more people out of Communist China to help the West understand the evilness of the CCP and show the world why the Chinese need rule of law<br/><br/>11/20/2021【1120三周年纪念】班农先生：法治基金最重要的工作是通过爆料革命紧密合作，从中共国解救更多的人出来，从而让西方认清中共的邪恶并告诉世界中国人为什么需要法治<br/>
 ![img](https://media.gettr.com/group41/getter/2021/11/21/03/4923a262-19eb-48cc-6415-76e34c619a9f/out.jpg)
-
----
-
-`@miles 11/21/2021 2:59 AM (UTC)`
-
-11/20/2021 [3rd Anniversary of 1120] Steve Bannon: I come from American Lao Baixing, and my father instilled in me the value of keeping fighting. So, I will never stop fighting, and I will help President Trump rewin the presidential election and assist the Chinese people in their fight for freedom!<br/><br/>11/20/2021 【1120三周年纪念】班农先生：我是来自美国的老百姓，我父亲教给我的价值观就是坚持战斗， 所以我不会停止战斗，而且我将帮助川普总统再次赢得总统大选并将协助中国人为自由而战！<br/>
-![img](https://media.gettr.com/group12/getter/2021/11/21/02/59/6e3bdc28-1127-c571-5e75-6d2d8e8cb249/out.jpg)
-
----
-
-`@miles 11/21/2021 2:51 AM (UTC)`
-
-11/20/2021 [3rd Anniversary of 1120] Steve Bannon: People are attracted to cryptos such as the Himalaya Coin due to the collusion between the Western corrupt elites and the CCP and their mismanagement of the economy; the CCP’s real estate is about to collapse, and I hope everyone to learn more about cryptos, which are our future<br/><br/>11/20/2021【1120三周年纪念】班农先生：人们对喜币等加密货币趋之若鹜是因为西方腐败的精英跟中共勾结以及他们在经济上的胡作非为；面临即将崩溃的中共房地产，希望大家多去了解加密货币，它是我们的未来<br/>
-![img](https://media.gettr.com/group40/getter/2021/11/21/02/51/787e1133-b78c-50cf-54fe-fb68bb6cc931/out.jpg)
 
 ---
 

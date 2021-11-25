@@ -2,47 +2,30 @@
 ---
 
 
-## 华为-中共的特洛伊木马
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1692744/)
+## 中共北极“一带一路”再遭重击，格陵兰撤销中共铁矿石开采许可
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1692828/)
 
-作者：香草山翻译部 – Eleutheria
+作者：纽约香草山农场 – 007
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月23日，格陵兰政府宣布，撤销中共国俊安集团在当地开采铁矿石的许可。煤炭和铁矿石进口商俊安集团，是第一家在格陵兰获得矿业开采许可的中共国公司，它于2015年获得格陵兰首府努克附近伊苏矿业项目的控制权。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-23.jpg)
+在资源丰富的格陵兰加大投资，是中共所谓“一带一路”在北极的战略性标志，但这个扩张企图屡屡碰壁。除这次铁矿石开采梦碎之外，11月9日，格陵兰国会通过禁止开采铀矿和停止开发稀土的新法案，让中共在宽纳思特的稀土开采计划遭受重击。2018年，格陵兰拒绝了中共在格陵兰资助并修建两个机场的建议。2016年，俊安集团试图购买格陵兰一个废弃的丹麦海军基地，被丹麦政府以安全理由否决。
 
+参考链接：[中共北极“一带一路”再遭重击，格陵兰撤销中共铁矿石开采许可](https://www.voachinese.com/a/greenland-chinese-firm-delicensed-20211123/6325150.html)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-1.jpg)
-
-
-
-据BeepingComputer报道，华为的应用商店发现空前规模的含木马程序应用。并已有超过900万安卓设备遭到感染。
-
-该木马程序“Android.Cynos.7.origin”由Dr.Web发现，是Cynos木马的一个变种。主要目标是收集用户的敏感个人信息。目前已发展华为应用商店中有超过190个应用携带此木马。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-34.jpg)
-据Dr.Web测试，此木马普遍存在于游戏类应用，并指向俄语、中文及英文用户。更有甚者包含监听、拦截及发送短信，加载附加程序或下载其他应用等功能。如果用户授予权限，该木马可以将以下数据泄露到远程服务器：
-
-- 用户手机号
-- 基于 GPS 坐标或移动网络和 Wi-Fi 接入点数据的设备位置
-- 各种移动网络参数，如网络代码和移动国家代码；此外，GSM 小区 ID 和国际 GSM 位置区号
-- 设备的各种技术规格
-- 来自木马应用程序元数据的各种参数
-
-
-众所周知，华为是中共国解放军的下属企业。而华为手机监控窃取用户信息的丑闻已屡见不鲜，这次仅在华为应用商店出现如此规模的大量木马程序极大可能为中共幕后操纵的结果。但全球仍未引起重视继续允许华为设备的海外销售无疑将成为现代版的特洛伊木马。
-
-参考来源：[华为-中共的特洛伊木马](https://www.bleepingcomputer.com/news/security/over-nine-million-android-devices-infected-by-info-stealing-trojan/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：Hetangyuese
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

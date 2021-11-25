@@ -2,8 +2,10 @@
 ---
 
 
-## 卡罗：政客在危机中攫取权力，欧洲威权主义抬头
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1693311/)
+## 澳洲国防军将中共病毒患者及密切接触者送往隔离中心
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1693346/)
+
+11/22/2021 澳大利亚国防军被命令将38名阳性中共病毒患者及密切接触者送往隔离中心。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

@@ -2,25 +2,32 @@
 ---
 
 
-## 【盖茨基金】仍不遗余力资助中共政府科研机构
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1693478/)
+## 有声|远东新世纪疑似沦为中共迫害台企的牺牲品
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1693548/)
 
-原文采编：UCool优酷 编译撰稿：文所未闻
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+11月22日，台湾知名企业远东新世纪遭到中共上海、江苏 、四川等五省市的行政处罚，罚款金额高达3650万人民币。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/c-edited.jpg)图片来源：ZXW
+据中共国台办消息，远东新世纪在上述五省市所投资的纺织、化纤、水泥等工业项目，在环保、消防、税务、员工待遇等方面存在“违法违规”的行为。除了上述罚款外，还将追收税款与罚金，一些企业闲置建设用地也将被收回。
 
+远东新世纪表示，已对上述“不合规”行为进行了专项整改，预计年底前全部完成，并承诺“罚款不影响财务和业务，也不会影响在内地的投资信心”。台工商协进会理事长林伯丰也发表“洗地”言论，认为此事应只是个案，不会影响台商在大陆的投资意愿。
 
-据美国自由媒体《国家脉搏》独家披露，自2019年12月“新冠病毒”疫情发生以来，【盖茨基金会】对中共国所谓的“全球健康”项目捐助达93笔，总金额超过5400万美元。
+耐人玩味的是，就在同一天，国台办发言人称“台独”分子严重破坏两岸和平稳定，对他们的金主及关联企业必须依法惩戒。据悉，远东集团曾出资支持现任中华民国行政院院长苏贞昌的竞选活动。有分析指出，远东新世纪疑似成为中共迫害在陆台企的牺牲品，这将给早已阴云笼罩的台海局势增加新的变数。
 
-报道称，这些捐助对象包括各大高校以及政府机构。但适得其反的是，曾接受过捐赠的中共【疾病防控中心】，不仅未追溯“新冠病毒”武汉实验室起源，反而宣称该病毒来自蝙蝠。同样，【武汉大学】于今年初收到【盖茨基金】13万美元经费，但最终被用于与【武汉病毒研究所】合作研究致命性生物病毒武器。
+文字版原文：[远东新世纪疑似沦为中共迫害台企的牺牲品](https://gnews.org/zh-hans/1689144/)
 
-此外，【盖茨基金】还资助了中国农业大学，不仅帮助其建立“能支持中共影响全球医疗邻域”的卫生系统，还通过实施“中共国在非洲发挥作用的垄断项目”，来全面控制非洲各国的农业生产和技术开发。
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-原文链接：https://thenationalpulse.com/exclusive/exc-gates-foundation-sent-over-54-million-to-china-since-covid-including-to-wuhan-collaborators/
 
  
 
