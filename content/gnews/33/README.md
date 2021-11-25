@@ -2,44 +2,33 @@
 ---
 
 
-## 2006年王沪宁即建议依法抢劫，习近平开干柳传志、马云
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1694795/)
+## 韩国单日新增新冠确诊数与重症数同创新高
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694846/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/20200327103249498_副本.jpg)
-据[2021年11月24日 文贵大直播：北京深圳香港交易所；病毒疫苗灾难与解药；喜币喜联储GTV股票；新中国联邦灭共使命](https://gtv.org/video/id=619e389338f84e66c64ec66b)时间点1：57：07——
+作者： 纽约香草山翻译部 – defiance
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+当地时间11月24日，韩国中央防疫本部公布，截至当天凌晨零时，韩国境内单日新增新冠病毒感染确诊病例达4087例——这是韩国首次单日确诊病例数突破四千例。另据数据显示，韩国单日新增的重症新冠病毒感染患者为586人，也创下了韩国自新冠疫情以来的历史新高。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-16.jpg)
+资料显示，截止当地时间11月22日，韩国完成两剂完整新冠疫苗接种的民众比率已经达到78.4%，而至少接种了一剂新冠疫苗的民众比率是81.7%，另有3.8%的韩国民众已经接种了第三剂新冠疫苗。
 
-**郭文贵先生：**它为什么要把现在马云这帮人要干掉？我今天给你们一会儿，说一个我的观点，柳传志的事件咱今天可能都准备了。兄弟姐妹们，你让我发自内心的说，马云绝不应该是如此，马云怎么罪该如此？柳传志也不罪该如此，他女儿滴滴也不应该罪该如此。
+鉴于韩国境内新冠疫苗注射率持续走高，但境内新增新冠病毒确诊人数及新冠重症患者数也随之增高的情况，相关评论表示，突破性感染与重症患者人数的率破新高让“新冠疫苗有效”成为了一句名副其实的谎言。
 
-那么这本质和这交易所什么关系？它是一场大掠夺的开始，它是共产党的杀富济贫。你什么叫做共享财富？就是杀富济贫。它关键是是不是杀富济了贫？贫的会更贫，富的会没有，只有共产党会富有。
+参考链接：
+[韓國單日新增確診首度破4000例 重症人數也創高](https://www.cna.com.tw/news/aopl/202111240271.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-就像杀掉两百万多个地主，中国人最后文化大革命、大跃进死了将近8000万到一亿人，而且土地尽归共产党，到今天都是共产党的。然后现在让你还拿没有土地产权的让你拿房地产税。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-这一场革命，所谓的杀富豪分土地。从所有的开始这叫依法抢劫。这话是谁先说的？我告诉你，这是最早的是王沪宁给习说的，我们不能再杀地主分田地了，但我们可以通过市场行为合法的将财富给来个均贫富，这是王沪宁的原话。啥时候说的？2006年。
+总编：Irene木木
+编辑：Lakeman(文仁)
+校正/发稿：Fei797
 
-（以下暂略）
-
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

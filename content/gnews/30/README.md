@@ -2,10 +2,10 @@
 ---
 
 
-## 台湾通过巨额国防特别预算以提升自我防卫能力
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694851/)
+## 克罗地亚总统抨击奥地利政府的中共病毒暴政
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694853/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：纽约香草山信息部 – 诺雅
 
 
 
@@ -13,17 +13,19 @@
 
 
 
-11月23日，台湾立法院通过2400亿新台币《海空战力提升计划采购特别条例》。 条例中明定的8项采购项目为：岸置反舰飞弹系统、野战防空系统、陆基防空系统、无人攻击载具系统、万剑飞弹系统、雄升飞弹系统、海军高效能舰艇、海巡舰艇加装战时武器系统等。
+11月20日，克罗地亚总统佐兰·米拉诺维奇在一次新闻发布会上，抨击奥地利政府最新的封锁政策和强制疫苗计划是一场 “灾难”，并表示正在发生的事件，让他想起了上世纪30年代的 “法西斯主义”。
 
-台湾国防部表示，为了因应迫在眉睫的中共威胁及安全挑战，这次通过的2400亿元特别预算将能及时弥补战备的急需。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-170.jpg)
+从本周一开始，整个奥地利都处于严厉的封锁令之下，明年2月1日起，奥地利所有人口都将被强制要求接种中共病毒疫苗。
+
+米拉诺维奇认为奥地利政府的强制措施是不符合科学的，政府旨在恐吓人民，而瑞典和克罗地亚的宽松做法则更为明智。他曾多次对主流媒体和全球主义者推动的医疗专制主义和极端的中共病毒政策表示失望。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.2-11.jpg)
 参考链接：
-[立院三讀海空戰力提升條例 2400億元採購8軍備系統](https://www.cna.com.tw/news/firstnews/202111235007.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+[‘Reminiscent of Fascism’ – Croatian President Slams COVID Tyranny in Austria](https://europe.infowars.com/reminiscent-of-fascism-croatian-president-slams-covid-tyranny-in-austria/)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-总编：飞虹
-编辑：Lakeman(文仁)
+总编：Irene木木
+编辑：Jack Li文阳
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
