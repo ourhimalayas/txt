@@ -2,18 +2,22 @@
 ---
 
 
-## 美国邀请台湾召开民主峰会，孤立中共
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1691232/)
+## 逞能后又阳痿 ，中共10月为澳洲煤炭清关
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1691328/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-188.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpub.creaders.net%2Fupload_files%2Fimage%2F202111%2F20211123_16377193708295.png&amp;imgrefurl=https%3A%2F%2Fnews.creaders.net%2Fus%2F2021%2F11%2F23%2F2422968.html&amp;tbnid=buuPPnChg04TOM&amp;vet=12ahUKEwjQvrnQ5LD0AhWFNHIKHWHgAx4QMygEegUIARCFAQ..i&amp;docid=Sk3cGyvGcAzMnM&amp;w=617&amp;h=341&amp;q=%E6%B0%91%E4%B8%BB%E5%B3%B0%E4%BC%9A&amp;ved=2ahUKEwjQvrnQ5LD0AhWFNHIKHWHgAx4QMygEegUIARCFAQ)
-11月24日中国台湾网报道，中共国务院台湾事务办公室上午举行例行新闻发布会，美国务院公布将于12月召开“民主峰会”，将“台湾”列入官网，大陆未在名单内，发言人已明确表示，坚决反对美国与中国台湾地区进行任何形式的官方往来，这个立场是一贯的、明确的，并敦促美方切实恪守一个中国原则和中美三个联合公报规定，妥善处理涉台问题。
+撰稿/配图：东京樱花团/ Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-54.png)
+据大纪元记者高邈综合报导，随着冬季到来，中共国境内对煤炭需求的大幅增加，10月份中共国首次为澳洲煤炭办理了清关手续。约一年前，中共对澳洲煤炭祭出非正式进口禁令。
 
-在一周前11月16日中共国习近平和美国总统拜登时长3个半小时视频会晤，拜登就台湾问题进行了最新表态，拜登称美方不寻求改变中国体制，并且不会支持“台独”。而今天所作出的行动确是告诉中共国，召开民主峰会台湾属于民主政体，是可信赖的朋友，中共属于一党专政独裁体制，排除在世界民主国家之外，并将与民主国家一起围堵孤立中共。
+据《联合早报》11月23日报导，中共国海关资料显示，10月份中共国大陆进口了279万吨澳洲煤炭。彭博社报导认为，这些煤炭可能是之前未获清关而滞留中共国港口的货物，这些煤炭大部分是用于取暖的动力煤，但也包括钢铁厂使用的77.8万吨焦煤。
 
-信息来源：
+澳洲一直是中共国进口煤炭的主要来源，去年澳洲政府呼吁对中共病毒的起源进行独立调查后，中共从去年10月开始就停止进口澳洲煤炭。而中共当局已在今年10月允许在禁令前抵达的澳洲货物卸货。目的是提高冬季供暖的动力煤供应。
 
-[美国务院公布将于12月召开“民主峰会”，将“台湾”列入官网，大陆未在名单内，国台办回应](https://mq.mbd.baidu.com/r/wUtnEquGic?f=cp&amp;rs=4274366899&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=781cdcf4132796a6)
+搬起石头砸自己的脚向来是共匪狗官的拿手好戏；拉大旗做虎皮，虚张声势，吓唬人，怎奈往往自己武艺不够高，时常偷鸡不成蚀把米。自己酿的苦酒，忍着痛也得喝。不过在共匪国度，遭殃的总是老百姓。
+
+消息来源：
+
+[中共10月为澳洲煤炭清关 近一年来首次](https://www.epochtimes.com/gb/21/11/24/n13395238.htm)
 
 *校对：东京樱花团/知了知了*
 *发布：东京樱花团/tdownc2p*
