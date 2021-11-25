@@ -2,52 +2,98 @@
 ---
 
 
-## 中共病毒爆发以来盖茨向中共国输送超5400万美元
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1692457/)
+## 超发货币将使数字货币代替法币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1692532/)
 
-翻译：Lulumi
+![](https://assets.gnews.org/wp-content/uploads/2021/11/hh-a3a4l-koqqt.jpg)
+[https://gtv.org/video/id=619e3cbfabc44c39e083f4d6](https://gtv.org/video/id=619e3cbfabc44c39e083f4d6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-9-8.jpg)图片取自原文
+**郭文贵**
+**Miles Guo**
 
-据《国家脉搏》披露，自中共病毒COVID-19爆发以来，比尔和梅林达-盖茨基金会已输送超过5400万美元来资助中共国的“全球健康”项目，包括由中共国共产党控制的机构和武汉病毒研究所的合作者。
+现在由于超发货币，给世界带来了什么样的结果呢
+What kind of results have been brought to the world due to over printed cur-rency?
 
-自2019年12月以来，基金会共向中共国的项目发送了93笔赠款，总额达54,573,428美元。
+一定会世界经济大崩溃，但是它触发了两种事件的发生
+It must be a major collapse of the world economy, but it triggered two events
 
-资助对象包括北京师范大学、北京大学、清华大学等几个中共管理的教育机构，以及农业部、中国疾病预防控制中心（CDC）和科技部等官方政权机构。
+第一，2020年到现在，让世界上有了数字货币，
+First, from 2020 to now, the world have crypto currency
 
-中共CDC发挥了关键作用，带头宣称中共病毒COVID-19是源自自然，而不是追溯到武汉病毒研究所；自然起源说是全球卫生当局、企业媒体和世界各地的政治左派传播的阴谋论，现已被推翻。
+就像二战，搞出了灭掉英镑和美元的布雷顿森林体系
+Just like World War II, it occurred the Bretton Woods system in American dol-lars that wiped out the British pound
 
-武汉大学在2021年1月收到了该基金会的127,650美元资助，尽管该校经常与武汉病毒研究所合作进行研究，包括由安东尼·福奇资助的专注于蝙蝠冠状病毒的研究。
+一战当时搞出了欧洲的大英帝国，几大家族，罗斯柴尔德，
+World War I created the British Empire in Europe, there are several big fami-lies, like Rothschild
 
-尽管中共政权对揭开COVID-19起源的努力进行极大的阻挠，但盖茨基金会的几笔拨款却在推动中共国在全球卫生和治理方面发挥更大的作用。
+罗斯柴尔德就是借给战争黄金， 就是金币的，
+Rothschild lent gold to the war which is gold coins
 
-10月，该基金会向中共国科学技术交流中心提供了15万美元，用于资助一个项目，“通过加强与政府、行业和学术界的合作，提高中共国对全球健康和发展的研究和开发贡献。”
+给人家一个王国agent的，就是今天说Hpay代表啊
+Rothschild was the agent for a kingdom, that is like Hpay today
 
-9月，盖茨基金会又向中共控制的中国农业大学提供了30万美元，用于“建立一个支持中共国参与全球卫生事业的有利环境”。
+就出了罗斯柴尔德呀，一战后，然后美国催生出来的
+It just come out Rothschild after World War I, then the United States spawned
 
-有几笔款项也侧重于扩大中国共产党在疫苗开发和分配方面的作用，包括2020年8月向清华大学提供30万美元赠款，”建立一个智囊团，为疫苗生态系统建设建议提供监管科学研究和技术支持”。
+就是当时的洛克菲勒，是不是，就这几大家族啊
+It was Rockefeller at the time, right? It was just these big families
 
-作为中共领导人习近平的母校，清华大学有对美国政府发动网络攻击的历史。
+然后就是摩根斯坦利就出来了，就是因为二战以后的布雷顿森林体系废掉了英镑
+Then Morgan Stanley came out because the Bretton Woods system after World War II abolished the British pound
 
-前国防情报局高级情报官和国务院官员尼古拉斯·埃夫蒂米亚斯表示，清华大学也“与国家科技和工业管理部门之间有明确的联系，他们讨论清华大学可以做什么来帮助巩固国家安全”。
+都是战争和经济灾难，1913年到1919年的一战、西班牙大流行病和经济灾难，大萧条
+because wars and economic disasters, the World War I from 1913 to 1919, the Spanish flu pandemic and economic disaster, the Great Depression
 
-2020年5月，12万美元被捐给了中共控制的浙江大学，以“让中共国在全球治理中发挥更大的作用，并为全球疫苗和免疫联盟（GAVI）做出更多贡献”。
+到了胡佛总统时期，吧唧上来了，美国诞生了
+Then to the period of President Hoover and the United States was born
 
-全球疫苗和免疫联盟，将自己描述为“公共和私营部门组织的全球卫生伙伴关系，致力于为所有人提供免疫”。
+二战过去了，是吧，英国完蛋了，英镑结束了，美元起来了搞了美联储，
+World War II is over, right? Britain is over, the pound is over, the dollar is stable and set up the Federal Reserve
 
-2020年5月，盖茨基金会向中共国的CDC捐款60万美元，“以支持应急反应和评估，并使中共国为潜在的大流行病做好准备，这不仅有助于疾病控制和遏制，而且为全球健康贡献中共国的经验”。在2020年4月，另外40万美元被捐给康希诺生物制品公司。以“支持国际合作开发抗冠状病毒疫苗，这将增加安全和有效的疫苗供应，以实现可持续的全球分配和使用”。
+美联储上千个个人股东，到现在控制了美国印发美元
+Thousands of individual shareholders of the Federal Reserve now control the U.S. printing and distribution of U.S. dollars
 
-盖茨基金会还资助了旨在扩大中共国在非洲的作用的项目，包括向中共国农业科学院提供170,410美元的资助，“以支持为起草中非农业现代化计划而进行的有针对性的研究和建立共识的活动，目的是更好地利用中共国的专业知识来促进非洲国家的农业转型。”
+本来美元要和黄金挂钩的，最后不挂钩了，变成了信用美元，变成了法币
+The U.S. dollar was originally pegged to gold, but in the end it was not pegged, it became the credit U.S. dollar and became fiat currency
 
-**参考资料：**[thenationalpulse][EXC: Gates Foundation Sent Over $54 Million To China Since COVID, Including To Wuhan Collaborators.](https://thenationalpulse.com/exclusive/exc-gates-foundation-sent-over-54-million-to-china-since-covid-including-to-wuhan-collaborators/)
+这次就是彻底地把过去的金本位和所有的最后的和金本位挂钩的唯一全球货币，美元
+This time it’s the complete removal of the old gold standard and all the last and only global currency tied to the gold standard, the US dollar
 
-* * *
+从过去的中心化币，变成了完全虚假的中心化币
+From the past centralized currency to a completely fake centralized currency
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
+完全变成了废币，纸币，这就是到了什么时代催生了数字货币
+It has completely become waste money, paper money, this is what spawned to the arrival of the crypto currency era
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+数字货币的目的达到什么，结束了真正的人类历史上法币
+What is the purpose of crypto currency? it’s ending the fiat currency in human history
+
+法币的整个虚假时代，包括金本位都是假的
+The entire fake era of fiat currency, including the gold standard is fake
+
+法币将逐渐退出历史舞台，未来就是数字货币
+fiat currency will gradually exit the stage of history, and the future is crypto currency era
+
+**原视频链接:**[https://gettr.com/post/phiqrf6537](https://gettr.com/post/phiqrf6537)
+
+Date:11/23/2021
+原视频标题: 超发货币 将使数字货币代替法币
+Over printed currency will enable cryptocurrency to replace fiat currency
+原视频日期：2021/11/19
+原视频链接https://gettr.com/post/phiqrf6537
+任务编号：KC284（2972）
+视频时间段 : 0:00-2:10
+
+中听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike LI
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

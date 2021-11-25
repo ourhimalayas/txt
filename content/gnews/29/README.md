@@ -2,98 +2,46 @@
 ---
 
 
-## 超发货币将使数字货币代替法币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1692532/)
+## 华为-中共的特洛伊木马
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1692744/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/hh-a3a4l-koqqt.jpg)
-[https://gtv.org/video/id=619e3cbfabc44c39e083f4d6](https://gtv.org/video/id=619e3cbfabc44c39e083f4d6)
+作者：香草山翻译部 – Eleutheria
 
-**郭文贵**
-**Miles Guo**
 
-现在由于超发货币，给世界带来了什么样的结果呢
-What kind of results have been brought to the world due to over printed cur-rency?
 
-一定会世界经济大崩溃，但是它触发了两种事件的发生
-It must be a major collapse of the world economy, but it triggered two events
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-1.jpg)
 
-第一，2020年到现在，让世界上有了数字货币，
-First, from 2020 to now, the world have crypto currency
 
-就像二战，搞出了灭掉英镑和美元的布雷顿森林体系
-Just like World War II, it occurred the Bretton Woods system in American dol-lars that wiped out the British pound
 
-一战当时搞出了欧洲的大英帝国，几大家族，罗斯柴尔德，
-World War I created the British Empire in Europe, there are several big fami-lies, like Rothschild
+据BeepingComputer报道，华为的应用商店发现空前规模的含木马程序应用。并已有超过900万安卓设备遭到感染。
 
-罗斯柴尔德就是借给战争黄金， 就是金币的，
-Rothschild lent gold to the war which is gold coins
+该木马程序“Android.Cynos.7.origin”由Dr.Web发现，是Cynos木马的一个变种。主要目标是收集用户的敏感个人信息。目前已发展华为应用商店中有超过190个应用携带此木马。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-34.jpg)
+据Dr.Web测试，此木马普遍存在于游戏类应用，并指向俄语、中文及英文用户。更有甚者包含监听、拦截及发送短信，加载附加程序或下载其他应用等功能。如果用户授予权限，该木马可以将以下数据泄露到远程服务器：
 
-给人家一个王国agent的，就是今天说Hpay代表啊
-Rothschild was the agent for a kingdom, that is like Hpay today
+- 用户手机号
+- 基于 GPS 坐标或移动网络和 Wi-Fi 接入点数据的设备位置
+- 各种移动网络参数，如网络代码和移动国家代码；此外，GSM 小区 ID 和国际 GSM 位置区号
+- 设备的各种技术规格
+- 来自木马应用程序元数据的各种参数
 
-就出了罗斯柴尔德呀，一战后，然后美国催生出来的
-It just come out Rothschild after World War I, then the United States spawned
 
-就是当时的洛克菲勒，是不是，就这几大家族啊
-It was Rockefeller at the time, right? It was just these big families
+众所周知，华为是中共国解放军的下属企业。而华为手机监控窃取用户信息的丑闻已屡见不鲜，这次仅在华为应用商店出现如此规模的大量木马程序极大可能为中共幕后操纵的结果。但全球仍未引起重视继续允许华为设备的海外销售无疑将成为现代版的特洛伊木马。
 
-然后就是摩根斯坦利就出来了，就是因为二战以后的布雷顿森林体系废掉了英镑
-Then Morgan Stanley came out because the Bretton Woods system after World War II abolished the British pound
+参考来源：[华为-中共的特洛伊木马](https://www.bleepingcomputer.com/news/security/over-nine-million-android-devices-infected-by-info-stealing-trojan/)
 
-都是战争和经济灾难，1913年到1919年的一战、西班牙大流行病和经济灾难，大萧条
-because wars and economic disasters, the World War I from 1913 to 1919, the Spanish flu pandemic and economic disaster, the Great Depression
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 
-到了胡佛总统时期，吧唧上来了，美国诞生了
-Then to the period of President Hoover and the United States was born
+编辑/校对/发稿：Hetangyuese
 
-二战过去了，是吧，英国完蛋了，英镑结束了，美元起来了搞了美联储，
-World War II is over, right? Britain is over, the pound is over, the dollar is stable and set up the Federal Reserve
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-美联储上千个个人股东，到现在控制了美国印发美元
-Thousands of individual shareholders of the Federal Reserve now control the U.S. printing and distribution of U.S. dollars
-
-本来美元要和黄金挂钩的，最后不挂钩了，变成了信用美元，变成了法币
-The U.S. dollar was originally pegged to gold, but in the end it was not pegged, it became the credit U.S. dollar and became fiat currency
-
-这次就是彻底地把过去的金本位和所有的最后的和金本位挂钩的唯一全球货币，美元
-This time it’s the complete removal of the old gold standard and all the last and only global currency tied to the gold standard, the US dollar
-
-从过去的中心化币，变成了完全虚假的中心化币
-From the past centralized currency to a completely fake centralized currency
-
-完全变成了废币，纸币，这就是到了什么时代催生了数字货币
-It has completely become waste money, paper money, this is what spawned to the arrival of the crypto currency era
-
-数字货币的目的达到什么，结束了真正的人类历史上法币
-What is the purpose of crypto currency? it’s ending the fiat currency in human history
-
-法币的整个虚假时代，包括金本位都是假的
-The entire fake era of fiat currency, including the gold standard is fake
-
-法币将逐渐退出历史舞台，未来就是数字货币
-fiat currency will gradually exit the stage of history, and the future is crypto currency era
-
-**原视频链接:**[https://gettr.com/post/phiqrf6537](https://gettr.com/post/phiqrf6537)
-
-Date:11/23/2021
-原视频标题: 超发货币 将使数字货币代替法币
-Over printed currency will enable cryptocurrency to replace fiat currency
-原视频日期：2021/11/19
-原视频链接https://gettr.com/post/phiqrf6537
-任务编号：KC284（2972）
-视频时间段 : 0:00-2:10
-
-中听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike LI
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

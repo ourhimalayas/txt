@@ -2,50 +2,161 @@
 ---
 
 
-## 医生警告多数接种者永久性心脏损伤 有些会在三年内死亡
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1692498/)
+## 中共在中东要建多个军事基地这都是中共解放军自己出卖自己
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1692636/)
 
-**翻译：Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip52.png)by Adan Salazar
-一位加拿大医生要求进一步研究 Covid-19 疫苗与血栓之间的联系，因为他的研究发现，大多数接种疫苗的患者都有血栓，他说其中一些患者可能会在三年内死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/a3a4l-koqqt-2.jpg)
+[https://gtv.org/video/id=619e3d57abc44c39e083f4e8](https://gtv.org/video/id=619e3d57abc44c39e083f4e8)
 
-在 Zoom 与其他医疗专业人士的会面中，查尔斯·霍夫博士解释说，他一直在对最近接种疫苗的患者进行一项研究，让他们进行 D-二聚体血液检测，以确定他们是否有血栓。
+**郭文贵**
+**Miles Guo**
 
-“到目前为止，我有 62% 的阳性升高的 D-二聚体，这意味着血栓并不罕见，”霍夫告诉其他医生。“这就是所谓的专家一直告诉我们的：‘血块很少见。’大的很少，但小的明显发生在大多数人身上，高达62%。”
+当时是CIA问我
+At that time, it was the CIA asking me
 
-霍夫博士说，这些凝块可能有数千个，并且由于它们的微观尺寸而难以检测，**它们是由疫苗中的信使 RNA 分子引起的，这些分子导致形成刺突蛋白，进而附着在细胞壁上， 细胞阻碍血液流动并破坏血管。**
+还有情报部门问我
+and also the intelligence department
 
-所以通常情况下，血管周围的细胞必须非常非常光滑，才能使血液畅通无阻地流动，**但是一旦你有这些成为细胞壁一部分的小刺突蛋白，它就会变成一个粗糙的表面**，它会像一张非常粗糙的砂纸。现在，血小板将其解释为受损的血管， 已经不流畅了。 这很粗糙， 所以凝血是不可避免的，因为从血管上下来的血小板会碰到一个粗糙的地方，并假设这一定是一个受损的血管， 需要阻塞该血管以止血，这就是我们凝血的工作原理。所以……正因为如此，也正因为如此，凝块是不可避免的，因为毛细血管网络中的这些刺突蛋白。
+问我一天问我这个东西
+They asked me about this (the CCP builds military bases in the Middle East) for the whole day
 
-**受损的血管不会像其他组织和器官一样再生，而是永久受损**，而且，**由于凝块非常细小和分散，它们绕过了典型的医学检测方法**。
+我说我不知道
+I said I don’t know
 
-霍夫在警告有关危险发展趋势后，被加拿大政府下达禁言令，他说这个过程可能是几乎所有接种疫苗的人都会经历类似负面副作用的原因。
+但是你知道他们讲了个很关键的话
+But you need to know that they (the intel agents) said something very pivotal
 
-“事实上，注射疫苗的所有常见副作用，包括头痛、恶心、头晕、疲劳，**都可能是毛细血管水平上脑血栓形成的迹象。**我的意思是……从字面上看，**你的大脑中可能有成千上万个不会在扫描中显示的微小的小凝块，**它们会给你那些确切的症状，”霍夫说。
+我们从中共方得到消息
+They said they got the information from the Chinese Communist Party
 
-医生还详细说明了他的六名接种疫苗的患者如何都遭受了“**耐受性降低**”，这意味着他们在进行正常的日常活动时会更快地感到疲倦。
+（中共）在那建那个基地
+that the CCP is building military bases there
 
-“所以，我相信这六个人的肺部阻塞了成千上万的毛细血管。所以，我相信这些人现在的肺部已经永久性受损，因为……我的意思是，这就是他们上气不接下气的原因，”霍夫博士说道。
+我说那你们自己可以去核实去呀
+I said you can verify it yourself
 
-霍夫说，受损的血管和受损的肺组织是一个大问题，会导致“**肺动脉高压”或肺部高血压，并在三年内因血管阻力增加而死亡**。
+他们问我的时候，我说我不知道
+When they asked me, I said I didn’t know
 
-“令人担忧的是：因为这些血管现在在一个人的肺部造成永久受损，当心脏试图将血液泵入这些受损的血管时，试图将血液泵入这些肺部的阻力会增加。”
+但是他们，你看第一次今天班农把我给爆料了
+But you see, for the first time, Bannon has broken the news on me today
 
-“所以这些人会患上一种叫做‘肺动脉高压’的疾病——肺中的高血压，令人担忧的是，**这些人可能会在三年内全部患上右侧心力衰竭并死亡**，因为他们现在有通过肺部增加血管阻力。”
+这是个很大的误会
+This is a big misunderstanding
 
-在虚拟会议期间，Zoom 通话中的其他医生对 霍夫博士的惨痛消息感到震惊和忧郁。如果霍夫的研究结果证明是正确的，那么 Covid 疫苗可能会成为全球主义者一直在等待的大规模灭绝人口事件。
+当时是所有的CIA问的问题是来自中共内部的
+At that time, all the questions asked by the CIA came from internal of the CCP
 
-**新闻来源**：[infowars.com][Shock: Doctor Warns That Majority Of Vaccinated Patients Could Have Permanent Heart Damage, Some May Die Within Three Years](https://www.infowars.com/posts/shock-doctor-warns-that-majority-of-vaccinated-patients-could-have-%20permanent-heart-damage-some-may-die-within-three-years/)
+我跟班农先生第一次见面
+I met Mr. Bannon for the first time
 
-* * *
+我就说班农先生
+I already told Mr. Bannon
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+我跟CIA见面
+I had met the CIA
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+我说还有跟FBI见面
+and also the FBI
 
+我说你们要想办法把房峰辉给搞定
+I said you need to find a way to unite Fang Fenghui (a former top general in the PLA)
 
+他说怎么可能房峰辉会跟我们合作呢
+Mr. Bannon said how could it possible that Fang Fenghui cooperating with them,
+
+不可能, 最后房峰辉被抓了
+it’s impossible, but Fang Fenghui was arrested in the end
+
+房峰辉被抓之前一直跟我有联系
+Before being arrested, Fang Fenghui had been in contact with me,
+
+说只要美国人只要能保我家人性命
+saying that as long as the Americans can save his family’s life
+
+我把所有的这些东西都给出去（美国）
+he would provide all information (the CCP builds military bases in the Middle East) to the US
+
+记住啊，当时他就说
+Keep that in mind, at that time he said
+
+美国要小心的是Chemical Weapon、Biology Weapon, Do you remember？
+the United States needed to pay close attention to chemical weapons and biological weapons
+
+当时就说这话
+He said those at that time
+
+而且房峰辉当时就跟美国说
+And Fang Fenghui said to the U.S. during that time
+
+中共的计划要在中东建多个军事基地
+the CCP’s plan was to build multiple military bases in the Middle East
+
+这都是2017年发生的事情
+These are all that happened in 2017
+
+今天班农先生把我的料给爆了
+Today, Mr. Bannon has broken my information
+
+他说我跟CIA
+He has said that the CIA and I…
+
+今天我可以对着镜头前这么说
+But, I can say this in front of the camera today
+
+这都是当时房峰辉还有军队的人告诉我的
+All these are what Fang Fenghui and people in the military told me
+
+今天看直播 很多中共高官（看）
+Many senior CCP officials are watching the live broadcast today
+
+你们都别搞错了
+Please don’t get that mixed
+
+是你们的人卖掉了你们
+It’s your people who betrayed you all
+
+不是UAE（阿联酋）也不是郭文贵
+instead of UAE, nor Miles Guo
+
+木兰你们要抓紧把这段翻译字幕加出来了
+Mulan, you need to hurry up and translate this video clip, push it out with subtitles
+
+要不然要搞老大的误会
+Otherwise, it would be a huge misunderstand
+
+人家UAE（阿联酋）以为我把UAE（阿联酋）给爆了
+UAE would think that I had pointed them out
+
+可不是我把UAE（阿联酋）给爆的
+It was not me to point out UAE
+
+是解放军的跟他们（合作）的（人）把他们给卖了
+It was the people who cooperate with the People’s Liberation Army have betrayed them
+
+所以你可以看那个报道就可以看得出来
+So you realize that by watching the report
+
+**原视频链接:**[https://gettr.com/post/phj0gz46a8](https://gettr.com/post/phj0gz46a8)
+
+Date: 11/21/2021
+原视频标题: 中共在中东要建多个军事基地这都是中共解放军自己出卖了自己
+The PLA Betrayed Themself by Revealing The CCP Building Military Bases in the Middle East
+原视频日期：2021/11/20
+原视频链接: https://gettr.com/post/phj0gz46a8
+任务编号：2973
+视频时间段 : 0:00-1:47
+
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

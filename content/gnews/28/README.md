@@ -2,27 +2,55 @@
 ---
 
 
-## 共和党人警告 ATF “向联邦枪支登记处迈进了一大步”。 共和党国会议员说，拜登行政人员“利用政治影响力侵犯宪法权利”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1692544/)
+## 美国邀请台湾参加其民主峰会
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1692746/)
 
-作者：休斯顿基恩
+作者：纽约香草山农场 – 四季
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-24-155616-edited.png)图片来源：网络
-据福克斯新闻报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-一群众议院共和党人警告说，酒精、烟草、火器和爆炸物管理局 (ATF) 可能正在为联邦枪支登记的后门奠定基础。
 
-周一，德克萨斯州共和党众议员迈克尔克劳德带领他的 51 名同事致函代理 ATF 主任马文理查森，表达了他们对该机构拟议规则的担忧，共和党人担心该规则最终可能导致围绕国会禁令的后门枪支登记。
 
-最近提议的规则基本上取消了联邦枪支许可证持有者必须遵守的 20 年使用数据，要求他们保留超过 20 年的枪支购买记录。
 
-来源链接：[https://www.foxnews.com/politics/republicans-atf-groundwork-backdoor-federal-gun-registry.amp](https://www.foxnews.com/politics/republicans-atf-groundwork-backdoor-federal-gun-registry.amp)
 
-编辑/发布：LILY
+根据美国国务院11月23日公布的与会者名单，拜登政府已邀请台湾参加其下个月举行的“民主峰会”。
 
-20211124
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-1.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1499-2021-11-24T024438Z_1_LYNXMPEHAN02G_RTROPTP_0_USA-BIDEN-DEMOCRACY-TAIWAN_1.jpg)2021年11月16日，一名男子在台湾台北骑车经过台湾国旗。（REUTERS/Ann Wang）
+
+在国务院的邀请名单中，将有110名与会者参加12月9日和10日的虚拟会议。该活动旨在帮助阻止世界各地的民主倒退和对人权与自由的侵蚀。该名单不包括中共国或俄罗斯。
+
+台湾外交部表示，台湾受邀参加“民主峰会”是对台湾多年来努力促进民主和人权价值的肯定。台湾数字部长唐凤和台湾事实上的驻华盛顿大使萧美琴将代表台湾政府出席峰会。中共国对此表示“坚决反对”。
+
+国务院的名单显示，这次活动将汇集法国和瑞典等成熟的民主国家，但也有菲律宾、印度和波兰等国家，这些国家的活动家称民主受到威胁。
+
+2月份，拜登总统在其上任后的首次外交政策讲话中宣布，他将使美国重返全球领导地位，以对抗以中共国和俄罗斯为首的独裁主义势力，这次聚会是对这一主张的一次检验。
+
+**参考阅读：**
+
+[U.S. invites Taiwan to its democracy summit; China angered | One America News Network (oann.com)](https://www.oann.com/biden-administration-invites-taiwan-to-its-summit-for-democracy/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
 
 
  

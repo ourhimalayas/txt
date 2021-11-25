@@ -2,161 +2,48 @@
 ---
 
 
-## 中共在中东要建多个军事基地这都是中共解放军自己出卖自己
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1692636/)
+## 美国将数十家中共国科技公司列入黑名单
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1692857/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/a3a4l-koqqt-2.jpg)
-[https://gtv.org/video/id=619e3d57abc44c39e083f4e8](https://gtv.org/video/id=619e3d57abc44c39e083f4e8)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**郭文贵**
-**Miles Guo**
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/W-2.jpg)article.wn.com
+继美国邀请台湾出席民主峰会后【1】，拜登政府又有反共举动，还是来自MSN11月24日转发的报道称，“以国家安全为由，美国将数十家中共国科技公司列入黑名单”。【2】
 
-当时是CIA问我
-At that time, it was the CIA asking me
+文章开头摘要：
 
-还有情报部门问我
-and also the intelligence department
+周三（11月24日），拜登政府将十几家中共国公司列入其贸易黑名单。
 
-问我一天问我这个东西
-They asked me about this (the CCP builds military bases in the Middle East) for the whole day
+在这些被列入黑名单的公司中，有八家中共国技术实体因涉嫌协助中共军方的量子计算工作而被列入黑名单。
 
-我说我不知道
-I said I don’t know
+美国官员长期以来一直抱怨，中共国公司受国家支配，代表中共军方收集敏感信息。
 
-但是你知道他们讲了个很关键的话
-But you need to know that they (the intel agents) said something very pivotal
+全文如下：
 
-我们从中共方得到消息
-They said they got the information from the Chinese Communist Party
+拜登政府周三（11月24日）以国家安全和外交政策为理由，将十几家中共国公司列入贸易黑名单。
 
-（中共）在那建那个基地
-that the CCP is building military bases there
+八家总部位于中共国的科技实体，因涉嫌协助中共军方的量子计算工作，以及获取或试图“获取原产于美国的、支持军事应用的产品”而被列入名单。
 
-我说那你们自己可以去核实去呀
-I said you can verify it yourself
+美国官员长期以来一直抱怨，中共国公司受国家支配，代表中共军方收集敏感信息。中国共产党此前曾表示，它不从事工业间谍活动。
 
-他们问我的时候，我说我不知道
-When they asked me, I said I didn’t know
+美商务部还列出了16家在中共国与巴基斯坦从事伊斯兰堡核项目，以及弹道导弹项目工作的实体和个人。拜登政府总共增加了包括中共国、巴基斯坦、俄罗斯、日本和新加坡在内的27个实体和个人。
 
-但是他们，你看第一次今天班农把我给爆料了
-But you see, for the first time, Bannon has broken the news on me today
+美国商务部长吉娜·雷蒙多（Gina Raimondo）在一份声明中写道：“全球贸易和商业应该支持和平、繁荣和优禄的工作，而不是带给国家安全风险，商务部致力于通过有效的出口管制来保护我们的国家安全。”
 
-这是个很大的误会
-This is a big misunderstanding
+中共驻华盛顿大使馆没有立即回应有关置评请求。
 
-当时是所有的CIA问的问题是来自中共内部的
-At that time, all the questions asked by the CIA came from internal of the CCP
+商务部的实体清单对被认为从事不良或不道德活动的个人和实体规定了贸易限制。
 
-我跟班农先生第一次见面
-I met Mr. Bannon for the first time
+（全文完）
 
-我就说班农先生
-I already told Mr. Bannon
+防火、防盗、防中共应该成为西方乃至整个世界民众的普遍意识，中共恶制下的企业行为与文明世界信奉的正道主义越来越格格不入，只有将中共消灭，才能还世界以安宁。
 
-我跟CIA见面
-I had met the CIA
+有关链接：
 
-我说还有跟FBI见面
-and also the FBI
+【1】[https://gnews.org/zh-hans/1692470/](https://gnews.org/zh-hans/1692470/)
 
-我说你们要想办法把房峰辉给搞定
-I said you need to find a way to unite Fang Fenghui (a former top general in the PLA)
-
-他说怎么可能房峰辉会跟我们合作呢
-Mr. Bannon said how could it possible that Fang Fenghui cooperating with them,
-
-不可能, 最后房峰辉被抓了
-it’s impossible, but Fang Fenghui was arrested in the end
-
-房峰辉被抓之前一直跟我有联系
-Before being arrested, Fang Fenghui had been in contact with me,
-
-说只要美国人只要能保我家人性命
-saying that as long as the Americans can save his family’s life
-
-我把所有的这些东西都给出去（美国）
-he would provide all information (the CCP builds military bases in the Middle East) to the US
-
-记住啊，当时他就说
-Keep that in mind, at that time he said
-
-美国要小心的是Chemical Weapon、Biology Weapon, Do you remember？
-the United States needed to pay close attention to chemical weapons and biological weapons
-
-当时就说这话
-He said those at that time
-
-而且房峰辉当时就跟美国说
-And Fang Fenghui said to the U.S. during that time
-
-中共的计划要在中东建多个军事基地
-the CCP’s plan was to build multiple military bases in the Middle East
-
-这都是2017年发生的事情
-These are all that happened in 2017
-
-今天班农先生把我的料给爆了
-Today, Mr. Bannon has broken my information
-
-他说我跟CIA
-He has said that the CIA and I…
-
-今天我可以对着镜头前这么说
-But, I can say this in front of the camera today
-
-这都是当时房峰辉还有军队的人告诉我的
-All these are what Fang Fenghui and people in the military told me
-
-今天看直播 很多中共高官（看）
-Many senior CCP officials are watching the live broadcast today
-
-你们都别搞错了
-Please don’t get that mixed
-
-是你们的人卖掉了你们
-It’s your people who betrayed you all
-
-不是UAE（阿联酋）也不是郭文贵
-instead of UAE, nor Miles Guo
-
-木兰你们要抓紧把这段翻译字幕加出来了
-Mulan, you need to hurry up and translate this video clip, push it out with subtitles
-
-要不然要搞老大的误会
-Otherwise, it would be a huge misunderstand
-
-人家UAE（阿联酋）以为我把UAE（阿联酋）给爆了
-UAE would think that I had pointed them out
-
-可不是我把UAE（阿联酋）给爆的
-It was not me to point out UAE
-
-是解放军的跟他们（合作）的（人）把他们给卖了
-It was the people who cooperate with the People’s Liberation Army have betrayed them
-
-所以你可以看那个报道就可以看得出来
-So you realize that by watching the report
-
-**原视频链接:**[https://gettr.com/post/phj0gz46a8](https://gettr.com/post/phj0gz46a8)
-
-Date: 11/21/2021
-原视频标题: 中共在中东要建多个军事基地这都是中共解放军自己出卖了自己
-The PLA Betrayed Themself by Revealing The CCP Building Military Bases in the Middle East
-原视频日期：2021/11/20
-原视频链接: https://gettr.com/post/phj0gz46a8
-任务编号：2973
-视频时间段 : 0:00-1:47
-
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+【2】[https://www.msn.com/en-ca/money/markets/u-s-blacklists-dozens-of-chinese-tech-firms-citing-national-security-concerns/ar-AAR5Uio?ocid=msedgntp&pfr=1](https://www.msn.com/en-ca/money/markets/u-s-blacklists-dozens-of-chinese-tech-firms-citing-national-security-concerns/ar-AAR5Uio?ocid=msedgntp&amp;pfr=1)
 
  
 

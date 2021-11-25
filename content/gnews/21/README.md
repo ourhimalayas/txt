@@ -2,48 +2,34 @@
 ---
 
 
-## 美国将数十家中共国科技公司列入黑名单
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1692857/)
+## 新中国联邦最终目的是创造一个全球化的经济和政治实体
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1692917/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**郭文贵先生：**全球的信用系统和综合实力下的拥有全球可通行的数字货币，和——大家要记住啊！和——大家要记住啊！从来没听说过，你现在看到的我们是中心化的喜币，我们一秒钟内就可以去发通行去中心化的币，我们一秒钟内就可以把私链发成公链。
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/W-2.jpg)article.wn.com
-继美国邀请台湾出席民主峰会后【1】，拜登政府又有反共举动，还是来自MSN11月24日转发的报道称，“以国家安全为由，美国将数十家中共国科技公司列入黑名单”。【2】
+你们不知道喜联储你等了几个月的意义是什么，那大了去了，一秒钟内咱说，摁个Code就可以做到，设计就这么牛！你像那赵长鹏那个小屁孩，那个叫妈咪，他以为他就……七哥关键是咱，咱这个夜总会里面，后面有这个上亿个上万个小姐，不同的人等着呢。
 
-文章开头摘要：
+是不是啊！还有嫖客咱都安排好了，他懂个屁啊！是不是啊！而且我们还合法地可以发警察牌照，是吧，还发夜总会牌照，咱都准备好了。即可以发公币也可以发私币，即可以去中心化，也可以非去中心化，这都是分分钟一秒钟做到的事情。这才是你今天问到的问题，去中心化和未来法币相通存在，它最终的结果是此消彼长，然后分辨出能人和笨人，同时是你在这儿能用其两边儿，让你强大，最后创造一个全球化的一个巨大的经济和政治实体。这才是我们新中国联邦最终的目的。
 
-周三（11月24日），拜登政府将十几家中共国公司列入其贸易黑名单。
+视频制作：小满；
 
-在这些被列入黑名单的公司中，有八家中共国技术实体因涉嫌协助中共军方的量子计算工作而被列入黑名单。
+字幕来源：[2021年11月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1681917/) ；
 
-美国官员长期以来一直抱怨，中共国公司受国家支配，代表中共军方收集敏感信息。
+发布：黎明之前；
 
-全文如下：
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-拜登政府周三（11月24日）以国家安全和外交政策为理由，将十几家中共国公司列入贸易黑名单。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-八家总部位于中共国的科技实体，因涉嫌协助中共军方的量子计算工作，以及获取或试图“获取原产于美国的、支持军事应用的产品”而被列入名单。
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-美国官员长期以来一直抱怨，中共国公司受国家支配，代表中共军方收集敏感信息。中国共产党此前曾表示，它不从事工业间谍活动。
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-美商务部还列出了16家在中共国与巴基斯坦从事伊斯兰堡核项目，以及弹道导弹项目工作的实体和个人。拜登政府总共增加了包括中共国、巴基斯坦、俄罗斯、日本和新加坡在内的27个实体和个人。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-美国商务部长吉娜·雷蒙多（Gina Raimondo）在一份声明中写道：“全球贸易和商业应该支持和平、繁荣和优禄的工作，而不是带给国家安全风险，商务部致力于通过有效的出口管制来保护我们的国家安全。”
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-中共驻华盛顿大使馆没有立即回应有关置评请求。
-
-商务部的实体清单对被认为从事不良或不道德活动的个人和实体规定了贸易限制。
-
-（全文完）
-
-防火、防盗、防中共应该成为西方乃至整个世界民众的普遍意识，中共恶制下的企业行为与文明世界信奉的正道主义越来越格格不入，只有将中共消灭，才能还世界以安宁。
-
-有关链接：
-
-【1】[https://gnews.org/zh-hans/1692470/](https://gnews.org/zh-hans/1692470/)
-
-【2】[https://www.msn.com/en-ca/money/markets/u-s-blacklists-dozens-of-chinese-tech-firms-citing-national-security-concerns/ar-AAR5Uio?ocid=msedgntp&pfr=1](https://www.msn.com/en-ca/money/markets/u-s-blacklists-dozens-of-chinese-tech-firms-citing-national-security-concerns/ar-AAR5Uio?ocid=msedgntp&amp;pfr=1)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
