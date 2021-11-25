@@ -2,50 +2,36 @@
 ---
 
 
-## 辉瑞胁迫政府接受霸王合同以利润最大化
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1694997/)
+## SLOVENIA危机：吹哨人称政治家合伙骗人民打疫苗
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1695021/)
 
-**编译：Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip63.png)图片来源：lifesitenews.com
-《生活新闻》（LifeSiteNews）——一家非营利性消费者权益保护组织发布的一份综合报告，详细介绍了辉瑞对世界各国政府的巨大影响，揭示了这家大型制药巨头隐藏关键信息以保护自己免受追责，同时最大化利润的能力。
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip64.png)图片来源：dailytelegraph.co.nz
+东欧国家斯洛文尼亚（**SLOVENIA**）发生了一场危机，一名吹哨人（护士）告诉公众，政客合伙其他高级公民（富人）接受的是**“3**号**”**生理盐水，而不是** mRNA **实验药物（也就是说，疫苗制药厂合伙政府和富豪屠杀人民）。
 
-“公民”（Public Citizen）是一个致力于保护公共利益免受过度公司权力影响的非政治倡导组织，它在 10 月 19 日的一份报告中表示，它已经“确定了几份未经编辑的辉瑞合同，这些合同描述了该公司与政府就其 COVID －19疫苗进行谈判的结果 。
+在（已被 YouTube 删除的）[Facebook 上的一段视频中](https://www.facebook.com/stoplaznivimmedijem/videos/190515176301913/)，这名自称是在卢布尔雅那（Ljubljana）大学医学中心（负责接收和管理政客注射瓶的）女护士长已经辞职，并就此政治丑闻召开了新闻发布会。她说，她亲自见证了所有政治家和富豪的打针过程，所有收到“1号”瓶的人，都声称他们收到的是生理盐水，是安慰剂。这就解释了为什么政客们通过主流媒体拍照时，是由同一个人给他们打针。
 
-该报告是在辉瑞去年与德国生物技术公司 (BioNTech)合作生产开发 mRNA COVID-19 疫苗之后发布的，**该公司被指控在 2 月份就合同“欺负”政府实体。**
+在会议期间，她展示了瓶子上的代码，其中每一个都包含1、2或3位数字，然后解释这些数字的含义。
 
-根据“公民”的说法，“这些合同，提供了一个罕见的视角，一家制药公司在一个世纪以来最严重的公共卫生危机中，获得了让政府保持沉默、供应勒索、转移风险和最大化利润的权力。”
+注：《每日电讯报》从我们在斯洛文尼亚的消息来源了解到，原始视频现在已经从Facebook上删除。
 
-“**当疫苗制造商开始欺凌时会发生什么**？” 帕尔基·夏尔马 (Palki Sharma) 在 10 月份就印度媒体公司 WION 的《公众公民》(Public Citizen) 报告提出了关注。
+“1号”是安慰剂，盐水；“2号”是mRNA；“3号”是一个 mRNA stick，包含 onco 基因，与导致癌症发展的腺病毒有关。她说那些接受“3号”瓶的人（美国红州）将在接受疫苗注射后的两年内，患上软组织癌症。
 
-“**政府沉默，供应停止，利润优先于拯救生命**，”她继续说道。“我不是在这里描述假设的情况。 **我在描述辉瑞正在做什么，这家美国制药巨头， 它正在做这一切**。它是在欺负各国屈从于它的要求。”
+补充：
 
-在《公共公民》报告和 WION 的报道一些最严重的罪行后，辉瑞公司似乎采取的立场是，将其转移为未能向低收入国家廉价地发放实验性疫苗——那些反对注射命令的人不一定会担心这一点，**而是争论注射剂的有效性和必要性**，并指出，**仅在美国，这些药物就导致了数十万起不良事件和近 19,000 人死亡**——尽管如此，该报告强调了辉瑞利用巨大的垄断实力攫取利润的事实，并通过全球正在进行的大规模免疫计划，发挥其力量。
+来自推友（[@deNutruents](https://twitter.com/deNutrients/status/1463369583323189250?s=20)）于2021年11月23日分享：编码中带有“01”的疫苗批号是生理盐水溶液类型（附两图），这是由一名女护士长说的。
 
-夏尔马解释说，从辉瑞获得并编入《公众公民》报告的与九个国家和地区签订“机密合同”，表明该公司有能力迫使政府接受严格的条款，同时免除辉瑞的责任，因为它提高了自己的利润。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip65.png)
 
-“其细节令人震惊，”她说，并认为“绝望的国家，正被迫向辉瑞做出令人羞辱的让步。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip66.png)
 
-“辉瑞控制关键决策的能力，反映了疫苗谈判中的权力不平衡，”《公众公民》建议。 “在绝大多数合同中，辉瑞的利益是第一位的。”
-
-辉瑞对遭受大规模刑事和民事责任索赔的打击并不陌生，这可能解释了它渴望在未来的诉讼中为自己辩护的原因。
-
-2009 年，在当时美国司法部历史上最大的医药和解案中，辉瑞被迫支付 23 亿美元的和解金，“以解决因非法促销某些医药产品而引起的刑事和民事责任”。
-
-根据美国司法部的说法，辉瑞将一种已从市场上撤下的抗炎药贴上新标签，以促进其销售，“用于 FDA 出于安全考虑而明确拒绝批准的多种用途和剂量”。
-
-**辉瑞 (Pfizer) 的子公司承认犯有“意图欺诈或误导”药物贴错标签的重罪**，该公司被勒令支付总计 13 亿美元的刑事罚款，这是“美国有史以来对任何事项处以的最大刑事罚款”。辉瑞又支付了 10 亿美元“以解决与非法推广其他三种药物有关的指控”。
-
-**评论：即使是“美国有史以来对任何事项处以的最大刑事罚款”，在这场让全球人充当试验老鼠的霸王条款，不仅让已经赚到盆满钵满的辉瑞不足挂齿，而且，还不会让辉瑞有任何追究疫苗造成死亡和伤害的责任！这是什么世道啊！**
-
-**新闻来源**：[lifesitenews.com][Pfizer bullied governments into accepting bad contracts to maximize its own profits: report](https://www.lifesitenews.com/news/pfizer-bullied-governments-into-accepting-bad-contracts-to-maximize-its-own-profits-report/)
+**新闻来源**：[dailytelegraph.co.nz] [CRISIS IN SLOVENIA: WHISTLEBLOWER NURSESAYS POLITICIANS RECEIVE SALINE INSTEAD OF MRNA JAB](https://dailytelegraph.co.nz/covid-19/crisis-in-slovenia-whistleblower-nurse-says-politicians-receive-saline-instead-of-mrna-jab/) | 发布时间：2021年11月24日
 
 * * *
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+***发稿：信心满满***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
 
  
 

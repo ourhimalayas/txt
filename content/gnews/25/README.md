@@ -2,34 +2,67 @@
 ---
 
 
-## SEC公布有关GTV、SARACA和VOG投资的命令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694941/)
+## 媒体完全封锁 小肯尼迪新书仍居亚马逊畅销榜首
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1694961/)
 
-作者：波士顿五月花 – 葛朗台太太
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月23日，美国证券交易委员会SEC的官方网站上发布了一条最新命令称，用于GTV、SARACA和VOG公司退款令专有的公平基金已经收到了由相关公司负责人支付的四亿五千五百四十三万九千一百九十四点四九美元。
+**翻译：Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip62.png)塔克·卡尔森说，这是一本“非常严肃的书”，“我读过，一点也不疯狂。”
+《生活新闻》([LifeSiteNews](https://www.lifesitenews.com/)) — 小罗伯特·肯尼迪(Robert F. Kennedy, Jr.)的书《真正的安东尼·福奇：比尔·盖茨、大型制药公司和全球民主与公共卫生战争》([*The Real Anthony Fauci: Bill Gates, Big Pharma, and the Global War on Democracy and Public Health*](https://childrenshealthdefense.org/fauci_info/))， 目前是亚马逊上排名第一的畅销书，尽管“媒体完全封锁”， 这本书的出版商周二晚上告诉塔克·卡尔森。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2-15.jpeg)
+“这是美国最畅销的书，你不会在任何报纸上读到它，”天马出版社的托尼·里昂斯(Tony Lyons of Skyhorse Publishing)告诉福克斯新闻的流行主持人。“如果您尝试在……任何在线平台上做广告，他们都会向您发送通知，告知您不能在那里做广告。 **这真的发生在美国，真是太疯狂了。”**
 
-根据该命令，从相关负责人处收集到的资金都将被保存至这个公平基金中。同时，该公平基金已被存入美国国务院财政部财政局的一个计息账户中，其后所获得的任何应计利息都将归该公平基金所有。 另外，执法部门已任命 JND 法律管理公司作为该基金的管理人，为此，JND现已被列入SEC批准的基金管理人名单中。但是，SEC此条命令仍未明确地给出具体的退款日期。
+“这个国家必须有对话和辩论的空间，”里昂补充道。
 
-据悉，自10月4日起，GTV和SARACA的投资人一直在SEC位于美国华盛顿的总部办公室前进行抗议。其中，投资人对SEC提出了五大诉求，包括：1. 立即归还属于投资者的资金；2. 立即停止和中国共产党的勾兑；3. 立即停止针对华裔投资者的种族歧视；4. 赔偿投资者的一切损失；5. 要求负责的人出来对话。
+“是的，尤其是在这方面，这是一本非常严肃的书，”卡尔森同意道。“我读过，一点也不疯狂。它实际上远没有我在 NBC 新闻上看到的很多事情那么疯狂。还有，这是做过精心研究的书。”
 
-参考链接：[https://www.sec.gov/litigation/admin/2021/34-93666.pdf](https://www.sec.gov/litigation/admin/2021/34-93666.pdf)
+卡尔森指出，“YouTube 关闭了一个图书签名录像，因为‘它违反了社区准则并传播了错误信息。’亚马逊限制了这本书的广告，”并且“许多书商只是拒绝出售它。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+“尽管如此，人们还是在购买它。”
 
-总编：文特
-编辑：Lakeman (文仁) 
-校正/发稿：谐趣园
+里昂斯说，主流媒体“没有对书做任何评论”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“这是一本有 2,194 次引用的书，”他指出。“它经过了医生、科学家和律师的审查。这是一位获得诺贝尔奖的医生的介绍。”
+
+卡尔森说这“太棒了”，“你担心出版这本书吗？”
+
+“我担心不出版这本书，”里昂回答道。“我的意思是，每个故事都有两个方面，《真正的安东尼·福奇》是一本做了精心研究的书。”
+
+“**鲍比·肯尼迪每天工作 16 小时，每周 7 天，为这本书工作了九个月。你知道，他为此付出了全部的心血。**”
+
+肯尼迪本人出现在本月早些时候与卡尔森晚间新闻节目不同的塔克·卡尔森今日节目中，深入讨论了疫苗安全性、福奇和支持堕胎的亿万富翁比尔·盖茨对全球“健康”努力的影响，以及灾难性的《国家 1986 年儿童疫苗伤害法》。
+
+根据肯尼迪倡导组织儿童健康防御的书的摘要，真正的安东尼·福奇是美国的封锁沙皇
+
+- 他在国家过敏和传染病研究所 (NIAID) 的 50 年职业生涯中惨败，以解决过敏和慢性病爆发性流行病的原因、预防和治疗；
+
+
+- 破坏了针对艾滋病的安全有效的非专利治疗方法；
+
+
+- 违反联邦法律，允许他的制药合作伙伴使用贫困和黑皮肤的儿童作为实验室老鼠，进行有毒艾滋病和癌症化学疗法的致命实验；
+
+
+- 他个人将从莫德纳和 NIAID 共同开发的莫德纳COVID疫苗的销售中获利；
+
+
+- 提倡“机构俘获”——制药业对民主和公共卫生的颠覆；(机构俘获意味着机构受到其监管的行业的过度影响。如CDC， FDA这些监管机构成为大药企的推手。)
+
+
+- 与五角大楼合作，批准了纳税人资助的“功能获得”实验，在中共武汉和其他地方监管不力的实验室中繁殖大流行性超级细菌，几乎可以肯定地保证武器化微生物，如 SARS-CoV-2 的实验室逃逸。
+
+
+**新闻来源**：[lifesitenews.com][RFK Jr.’s book exposing Fauci is #1 bestseller on Amazon despite ‘total media blackout’](https://www.lifesitenews.com/news/rfk-jr-s-book-covered-on-tucker/)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
