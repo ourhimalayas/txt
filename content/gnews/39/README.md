@@ -2,43 +2,27 @@
 ---
 
 
-## 福建黑心团伙走私生锈胃肠镜 流向15省上百家医院
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1694106/)
+## 樱花灭共诗——盘古大观（新韵）
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1694153/)
 
-**By:秘翻新闻**
+作者：东京樱花团/曲非烟
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-167.jpg)
+风环神女庙，龙仰大观宅。
 
-***2021-11-25***
-[![](https://assets.gnews.org/wp-content/uploads/2021/11/1125-2.jpg)](https://gtv.org/broadcast/watch/619f4fdde85d226ebcb3ef6f)点击图片观看视频
-**新闻摘要:**
+南下海夺气，东邻水聚财。
 
-1. 北京冬奥遭多方抵制 张高丽曾主导筹备工作
+始开盘古业，继鼎玉琮台。
 
-2. 福建黑心团伙走私生锈胃肠镜 流向15省上百家医院
+卅载昭功竟，弥足慰老怀。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-121.jpg)
+插图：东京樱花团/闪闪
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
 
-3. 中共国股市是赌场，中共庄家、老千一身兼
 
-4. 一人犯罪全村连坐 云南官方惩戒公告引激烈争议
 
-5. 文贵直播：保护喜币安全 跟随GTV敲开喜联储大门
 
-6. 共军花莲外海模拟登陆战
-
-7. 无视中共反对 拜登政府邀请台湾参加民主峰会
-
-8. 格陵兰撤销中共国公司在当地的铁矿石开采许可
-
-9. 阿富汗经济大崩溃　20天大女婴被迫换聘金救全家
-
-10. 默克尔表示，德国可能从一开始就对中国过于天真
-
-**GTV链接：**[https://gtv.org/broadcast/watch/619f4fdde85d226ebcb3ef6f](https://gtv.org/broadcast/watch/619f4fdde85d226ebcb3ef6f)
-
-发布: 文橙
-
-* * *
-
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
