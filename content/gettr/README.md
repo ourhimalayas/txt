@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/25/2021 10:13 PM (UTC)`
+
+11/25/2021 Miles Guo’s GETTR: Changpeng Zhao of Binance has been fully colluding with the Chinese Communist Party to rob your money and take you out; if you cannot get your money out of Communist China, that money doesn’t belong to you, and it will drag you into disaster instead<br/><br/>11/25/2021 文贵盖特：币安赵长鹏已和中共全面配合图财害命，不离开中共国的钱不是你的钱，反而会要了你的命<br/>
+![img](https://media.gettr.com/group38/getter/2021/11/25/22/31a7a623-39f0-deb9-1991-5e6433131a40/out.jpg)
+
+---
+
 `@miles 11/25/2021 10:08 PM (UTC)`
 
 11/25/2021 Miles Guo’s GETTR: Don't give your kids COVID jabs. There have been more and more cases of dropping dead, falling, and car accidents due to the COVID vaccines. Artemisinin is the antidote and has saved many people<br/><br/>11/25/2021文贵盖特：千万不要给孩子打疫苗，身边已经有太多疫苗倒、随地倒、车祸倒，一定记住青蒿素是解药, 很多人因吃青蒿素病情好转<br/>
@@ -289,13 +296,6 @@ Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Touch
 
 11/20/2021 [3rd Anniversary of 1120] The globalists who are the partners of the CCP want to be more like the CCP.<br/><br/>11/20/2021【1120三周年纪念】 与中共沆瀣一气的全球主义者们更想成为中共
 ![img](https://media.gettr.com/group26/getter/2021/11/21/06/49/1a757974-a7a3-5278-ef88-4bf21f969a2f/out.jpg)
-
----
-
-`@miles 11/21/2021 6:34 AM (UTC)`
-
-11/20/2021 [3rd Anniversary of 1120] Steve Bannon: Your rights as a human being are given by God, but the CCP, which is atheistic and materialistic, attempts to use technology to become God; we must make sure that technology is the service of mankind rather than the master of mankind<br/><br/>11/20/2021【1120三周年纪念】班农先生：你作为人的权利是神赋予的，但信仰无神论和唯物主义的中共却妄图利用科技来当上帝；我们必须确保科技是为人类服务的，而不是人类的主人
-![img](https://media.gettr.com/group32/getter/2021/11/21/06/3d62db0d-7aa8-0961-6e29-10227b664849/out.jpg)
 
 ---
 

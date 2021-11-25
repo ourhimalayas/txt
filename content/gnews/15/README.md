@@ -2,52 +2,57 @@
 ---
 
 
-## 中共打压报复曝光中学食堂使用腐烂食材者
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1695417/)
+## 菲律宾拒绝中国要求拆除搁浅军舰
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1695466/)
 
-作者: 东京樱花团—在远方
+作者： Reuters
+翻译：HimaCoby
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-1.png)
 
+菲律宾国防部长周四表示，菲律宾不会拆除一艘搁浅在南海环礁上的破旧海军舰艇，在中国阻止了为该舰船员补给的任务后，它拒绝了中国的要求。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-4.png)
+国防部长德尔芬·洛伦扎纳 (Delfin Lorenzana) 周三驳斥了中国的说法，即菲律宾已承诺拆除 BRP塞拉马德雷，该 BRP塞拉马德雷于 1999 年有意停泊在仁爱礁，以加强马尼拉在南沙群岛的主权主张。
 
+这艘100 米长（330 英尺）的坦克登陆舰是在第二次世界大战期间为美国海军建造的。
 
+“那艘船自 1999 年就在那里。如果有承诺，它早就被拆除了，”洛伦扎纳告诉记者。
 
-当地时间11月23日，中共湖南汨罗官方对外回应宣称，关于22日，湖南某公司员工在网上曝光，该公司给当地中学和小学食堂使用腐烂食材一事，视频中所拍摄的腐烂食材均未进入分拣和清洗程序，否认有食品进入学生餐桌，也否认有食品安全事故发生，并且目前已将该员工开除。 据悉，中共打压报复曝光不良事件当事人，已经成为惯用的套路。上个月22日，中共河北省邯郸市临漳县实验中学5名家长，因在微信中揭露该学校学生食堂食物发黑、发臭，而被中共警方以所谓涉嫌寻衅滋事刑事拘留，其中4人被取保候审，1人被批捕，该事件引发了社会广泛关注，和网络舆情强烈不满。
+中国外交部发言人赵立坚周三表示，北京“要求菲方信守承诺，拆除非法搁浅船只”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2021-11-25-1-2.jpg)图片来源:网络
+位于巴拉望岛 105 海里（195 公里）外的仁爱礁是这艘卡在礁石上的生锈船只上是一小支军队的临时住所。
 
-参考阅读:
+洛伦扎纳指责中国在其海岸警卫队中断部队补给任务时“擅自闯入”。
 
-[湖南汨罗城北中学和高泉小学食堂使用劣质食材](https://www.163.com/dy/article/GPI5OD400552ES0E.html)
+中国声称南中国海的大部分是自己的，在地图上使用“九段线”，2016 年的国际仲裁裁决称其没有法律依据。
 
-[湖南汨罗教育部门回应“中学食堂使用腐烂蔬菜”：未进入餐桌](https://finance.sina.com.cn/jjxw/2021-11-23/doc-iktzscyy7331478.shtml)
+正如中国签署的《联合国海洋法公约》（UNCLOS）所概述的那样，仁爱礁位于菲律宾 200 海里专属经济区内。
 
-[邯郸市5名学生家长涉嫌寻衅滋事被立案侦查](https://baijiahao.baidu.com/s?id=1714469292194116963&amp;wfr=spider&amp;for=pc)
+“我们有两份文件证明我们拥有专属经济区的主权，而他们没有，他们的主张没有根据，”洛伦扎纳说。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-10.jpg)
+“中国应该遵守它所承担的国际义务。”
 
-编辑: Irene木木
+总统罗德里戈·杜特尔特周一在中国国家主席习近平主持的峰会上表示，他“痛恨”中国最近在该浅滩采取的行动。
 
-校对/发稿：Petite abeille
+来源：https://www.taiwannews.com.tw/en/news/4356219
 
-**更多资讯，更多关注**
+（文章仅代表作者个人观点）
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**关注我们**
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+Discord 账号
 
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
 
+Gettr 账号
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-1.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

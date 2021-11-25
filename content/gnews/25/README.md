@@ -2,33 +2,74 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2021年11月23日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1695240/)
+## 新斯科舍省发布新冠疫苗不良反应死亡数据
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1695271/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-2.jpg)
-配音：香草山教育部 – 蒙古鸿雁
+作者：反叛新闻
+翻译：HimaCoby
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-172.jpg)
+
+新斯科舍省政府发布了个人接种第一剂或第二剂新冠疫苗后不久登记的死亡信息，但声称信息系统无法追踪疫苗是否导致了这些死亡。
+
+10 月， 向政府提出的信息自由请求要求提供以下两组的信息，按年龄段划分，时间范围为 2020 年 12 月 19 日至 2021 年 10 月 3 日：
+
+- 新斯科舍省在接种新冠疫苗后 14 天内（第一次或第二次接种后 14 天内，差异较小）死亡的人数
+- 以及新斯科舍省因新冠疫苗而死亡的人数
 
 
+卫生和健康部副部长克雷格·比顿 (Craig Beaton) 回复了请求，政府文件澄清说，数据仅包括“报告为新冠疫苗接种后不良事件 (AEFI) 的死亡人数”，并补充说，虽然报告的死亡人数是“与接受新冠疫苗（在 14 天内）有时间关联”，但“并不意味着个人因接受疫苗而死亡。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-2.jpg)
+### 政府回应：接种新冠疫苗后六人死亡
+
+为了响应有关第一组信息的请求，按年龄组划分的新冠14 天内 AEFI 死亡人数。新斯科舍省记录了 6 例死亡：
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1123text-SC.png)
-原文链接：[GTV新闻访谈简报|2021年11月23日晚](https://gnews.org/zh-hans/1690150/)
+| 年龄阶层 | 死亡人数 |
+| --- | --- |
+| 12-19 | 0 |
+| 20-29 | 0 |
+| 30-39 | 0 |
+| 40-49 | 0 |
+| 50-59 | &lt;5 |
+| 60-69 | 0 |
+| 70-70 | &lt;5 |
+| 80-89 | &lt;5 |
+| 90+ | 0 |
+| 全部的 | 6 |
 
-音频处理：喜山必胜Maverick
 
-发稿：Daxia
+为响应有关第二组信息的请求，新斯科舍省因新冠疫苗而死亡的人数政府回应解释说，他们的“信息系统”无法追踪因果关系：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-10.jpg)
+信息系统捕获在接种新冠疫苗后死亡的人，但不捕获因果关系（即与疫苗时间相关的死亡而不是与疫苗死亡的因果相关）。
 
-**更多资讯，更多关注**
+### 用于医疗保健和教育的强制性疫苗即将推出
 
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://xn--%20%7Cgtv%20%20gtv-%20%7Cmos%20talk%20%20%20%7C%20gettr%20%20%20%7Cyoutube%20%20%7C%20discord-kw44l1t1gm8doayup218v624hpazvr1825bzx4emafxdws06012bhtnpta2axu46wua3ayv7960lnaiygzw1416y8vh370k17zmoajzj0ay/)
+从11 月 30日开始，包括公务员、卫生保健工作者、长期护理和家庭护理工作者、教育工作者和日托工作者在内的某些部门的工人将被要求至少接种一剂新冠疫苗或面临无薪休假.
+
+州长蒂姆休斯顿和卫生首席医疗官罗伯特斯特朗博士本周将重点放在强制法官接种新冠疫苗上，他们的职位不是公务员，因此不受与联邦和联邦相同的政策或监督的约束。
+
+根据政府追踪软件，近 80% 的新斯科舍人被认为已完全接种疫苗。
+
+来源：https://www.rebelnews.com/ns\_releases\_data\_on\_covid\_vaccine\_adverse\_reaction\_deaths
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 

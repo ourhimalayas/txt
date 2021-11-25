@@ -2,52 +2,26 @@
 ---
 
 
-## 美国驳回中国电信继续在美国运营的申请
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1695103/)
+## 为什么文贵先生称战友们为兄弟姐妹？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1695247/)
 
-作者：纽约香草山农场 – 四季
+作者： Jenny Ball
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2020/11/PHOTO-2020-11-08-02-34-23.jpg)
 
+这是文贵先生2021年11月24日大直播中很严肃地问的问题。2017年文贵先生开始在推特 和facebook报平安的时候，他称听众为“推友”。推特和facebook 封杀文贵先生之后，文贵先生改称听他直播并愿意跟随一同灭共的人们为“战友们”。现在，这位“灭共战神”，像亲人一样的七哥一声亲切的“兄弟姐妹们”，就会立刻让战友有种回归家庭的感觉。其实对战友们不同的称号都是文贵先生仔细斟酌选用的。文贵先生解释说，因为一个国家、一个社会最基础的根本因素就是家庭，一个家庭的平安、安逸、幸福。一个家庭传承的理念和伦理道德，铸成了社会整体的理念。
 
+但是，在共产党70年的统治下，用一个又一个的运动颠覆了中华民族一切家庭的观念。犹如今天美国所谓的CRT（批判种族理论）和打破一切的文化大革命，中共煽动血气方刚的学生，破除一切封、资、修，在学校里反师道尊严，在家里边告诉人们“爹亲娘亲不如党亲”，所以才造成了今天中共国社会这样极度的人性扭曲和道德沦丧的悲哀。
 
+那么构成家庭成员的兄弟姐妹，在我们爆料革命新中国联邦这个大家庭中，我们就像是亲如手足的姐妹兄弟，虽然我们许多都未曾谋面，但是我们的心心相印，在理念和信仰追求上，比自己的手足还要亲。所以，兄弟姐妹这个称呼不是文贵先生信手拈来的，而是有着沉甸甸的意义。灭掉了邪恶政权中共国共产党之后，我们就要让我们的社会从最基本的家庭开始——重塑正道主义！
 
+* * *
 
-11月24日，美国联邦通信委员会（FCC）要求联邦上诉法院驳回中国电信公司要求继续在美国提供服务的申请。此前，美国电信监管机构于10月26日下令中国电信在1月初停止其在美国的服务，并撤销了其运营授权。
+*审核：Aries的星
+校对：信心满满
+发布：信心的选择*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1519-1.jpg)2009年3月24日，香港。展示于新闻发布会上的中国电信公司标志。（REUTERS/Bobby Yip）
-
-联邦通信委员会说，中国电信“受到中共国政府的剥削、影响和控制，极有可能在没有充分的法律程序、接受独立司法监督的情况下，被迫遵守中共国政府的要求。”
-
-处于国家安全考虑，美国联邦通信委员会在3月，先后撤销了中共国联通美洲公司、太平洋网络公司及其全资子公司ComNet在美国提供电信服务的授权。2019年5月，委员会一致投票否决中共国国有电信公司——中国移动有限公司提供美国服务的权利。并在去年认定华为技术公司和中兴通讯公司为对美国通信网络的国家安全威胁。
-
-**参考阅读：**
-
-[U.S. opposes China Telecom’s bid to continue U.S. operations | One America News Network (oann.com)](https://www.oann.com/u-s-opposes-china-telecoms-court-bid-seeking-to-block-fcc-action/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
 
  
 
