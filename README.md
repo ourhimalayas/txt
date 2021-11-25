@@ -15,143 +15,143 @@
 
 ---
 
-### [加拿大举报人揭露狮门医院24小时内因新冠疫苗接种发生13例死婴](/content/gnews/1/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [澳洲政府致信并诱导澳洲国民接种加强针](/content/gnews/2/README.md)
- ` 澳喜农场`
-
-### [2021年11月24日文贵大直播概要](/content/gnews/3/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国将释放5000万桶石油以缓解能源成本](/content/gnews/4/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [文·贵天成——文贵先生谈“疫苗”（十六）](/content/gnews/5/README.md)
- ` 墨尔本雅典娜农场`
-
-### [Vittorio Sgarbi 对阵 Myrta Merlino：“你和 Gruber 已经失去理智了，别再烦没接种疫苗的人了”](/content/gnews/6/README.md)
+### [美国堪萨斯州通过法案，保护工人不受拜登的强制疫苗政策的影响](/content/gnews/1/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [文·贵天成——文贵先生谈“疫苗”（十四）](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [行业分析师爆接种辉瑞疫苗后更可能染疫](/content/gnews/8/README.md)
- ` HimalayaRussia`
-
-### [美国将帮助中共军方的中共国公司列入贸易黑名单](/content/gnews/9/README.md)
+### [美国汽车制造商和工会同意不强制要求工人接种冠状病毒疫苗](/content/gnews/2/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文·贵天成——文贵先生谈“疫苗”（十五）](/content/gnews/10/README.md)
+### [云南发放一亿消费卷，擀面杖经济还能撑多久？](/content/gnews/3/README.md)
  ` 墨尔本雅典娜农场`
 
-### [11/25/2021文贵盖特：币安赵长鹏已和中共全面配合图财害命，不离开中共国的钱不是你的钱，反而会要了你的命](/content/gnews/11/README.md)
- ` 秘密翻译组-北美组`
+### [【信仰之声】约瑟的启示（一）：顺服神的爱可以化解仇恨](/content/gnews/4/README.md)
+ ` 纽约香草山MOS03`
 
-### [11/25/2021文贵盖特：千万不要给孩子打疫苗，身边已经有太多疫苗倒、随地倒、车祸倒，一定记住青蒿素是解药](/content/gnews/12/README.md)
- ` 秘密翻译组-北美组`
+### [美国会议员在韩国与美军共度感恩节后前往台湾](/content/gnews/5/README.md)
+ ` HimalayaRussia`
 
-### [不列颠哥伦比亚省大西洋暴雨，加拿大未来气候缩写](/content/gnews/13/README.md)
- ` MG FARM`
+### [意大利包机公司Fast Private Jet高达33%的交易目前以加密货币进行](/content/gnews/6/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [2021/11/20 文贵先生直播精要](/content/gnews/14/README.md)
+### [中共国宣布对试管婴儿进行重大投资扭转出生率下降趋势](/content/gnews/7/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [美国必须准备在台湾问题上与中共开战](/content/gnews/15/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [焦点：南非发现新变种中共病毒](/content/gnews/16/README.md)
- ` 丁过`
-
-### [意大利一民事保护官员称给孩子打新冠疫苗是最好的圣诞礼物](/content/gnews/17/README.md)
- ` xiaobaige`
-
-### [2021/11/25 文贵先生盖特精要](/content/gnews/18/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [零售业劳动力短缺问题不会解决](/content/gnews/19/README.md)
- ` MG FARM`
-
-### [2021/11/25 大卫作战室直播精要](/content/gnews/20/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [德国作家格哈德·维斯纽斯基（ Gerhard Wisnewski）指出矛盾的防疫措施背后的真相](/content/gnews/21/README.md)
- ` MG 澳喜农场多语组`
-
-### [美国顶尖心脏医生&#8212;彼得·麦卡洛博士（Dr. Peter McCullough）：加强针比前 2 剂更糟糕](/content/gnews/22/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [意大利总理德拉吉今年第三次否决了中共国的收购案](/content/gnews/23/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [维加诺大主教呼吁建立反全球主义联盟，对抗新世界秩序](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [12家中企列入美国新“黑名单“，中共称“保留反制权”](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [菲律宾拒绝中国要求拆除搁浅军舰](/content/gnews/26/README.md)
- ` MG FARM`
-
-### [疫苗强制接种政策导致了对受害儿童救治的延误](/content/gnews/27/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [拜登将对穿越美加边境的卡车司机实行强制接种政策](/content/gnews/28/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [安大略省将延长疫情紧急状态命令的期限](/content/gnews/29/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [加拿大“无疫苗歧视招聘网站”成立](/content/gnews/30/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [文贵爆料11.24.2021 中共国疯狂印钞难掩经济急剧下滑，崩溃成为必然](/content/gnews/31/README.md)
- ` 秘密翻译组-原创组`
-
-### [有声|GTV新闻访谈简报|2021年11月23日晚](/content/gnews/32/README.md)
- ` MOSREC`
-
-### [有声|每日读经：创世纪(1:1-31；2:1-3)](/content/gnews/33/README.md)
- ` MOSREC`
-
-### [有声|日越防长确认在海洋和网络领域合作 应对中共威胁](/content/gnews/34/README.md)
- ` MOSREC`
-
-### [中共的“劫富济豪”－中共是富可敌地球的土豪](/content/gnews/35/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [SLOVENIA危机：吹哨人称政治家合伙骗人民打疫苗](/content/gnews/36/README.md)
- ` wenwu`
-
-### [GTV新闻访谈简报|2021年11月25日早](/content/gnews/37/README.md)
- ` 纽约香草山MOS01`
-
-### [钟翰林因中共《国安法》被判入狱43个月](/content/gnews/38/README.md)
- ` GTV新闻访谈`
-
-### [如何看待爆料革命中扒上井沿又掉下去的不坚定者？](/content/gnews/39/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [从文贵先生的待人接物说起](/content/gnews/40/README.md)
- ` 骄子`
-
-### [立陶宛外长向世界展示如何抵抗中共](/content/gnews/41/README.md)
+### [欧盟大使同意延长对华制裁 双边投资协定几乎无望](/content/gnews/8/README.md)
  ` 日本东京方舟农场`
 
-### [11/25/2021 国际财经快讯：美国又把8家中共国企业列入禁运清单；美联储11月会议纪要：通胀压力消退所需时间或长于此前预期](/content/gnews/42/README.md)
- ` 秘密翻译组金融团队`
+### [中共国现在可能会窃取加密的政府数据，以后用量子电脑解密](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [赵长鹏真把自己当赵家人了](/content/gnews/43/README.md)
- ` 银河勇气之星`
-
-### [中共拿拜习电话会当令牌，指责美对其再增制裁](/content/gnews/44/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2021/11/24 墙内世界](/content/gnews/45/README.md)
+### [美国又对另外十几家中共国公司实行出口限制](/content/gnews/10/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中国电信还想赖在美国不走](/content/gnews/46/README.md)
+### [加拿大举报人揭露狮门医院24小时内因新冠疫苗接种发生13例死婴](/content/gnews/11/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [澳洲政府致信并诱导澳洲国民接种加强针](/content/gnews/12/README.md)
+ ` 澳喜农场`
+
+### [2021年11月24日文贵大直播概要](/content/gnews/13/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [美国将释放5000万桶石油以缓解能源成本](/content/gnews/14/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [文·贵天成——文贵先生谈“疫苗”（十六）](/content/gnews/15/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [Vittorio Sgarbi 对阵 Myrta Merlino：“你和 Gruber 已经失去理智了，别再烦没接种疫苗的人了”](/content/gnews/16/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [文·贵天成——文贵先生谈“疫苗”（十四）](/content/gnews/17/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [行业分析师爆接种辉瑞疫苗后更可能染疫](/content/gnews/18/README.md)
+ ` HimalayaRussia`
+
+### [美国将帮助中共军方的中共国公司列入贸易黑名单](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [文·贵天成——文贵先生谈“疫苗”（十五）](/content/gnews/20/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [11/25/2021文贵盖特：币安赵长鹏已和中共全面配合图财害命，不离开中共国的钱不是你的钱，反而会要了你的命](/content/gnews/21/README.md)
+ ` 秘密翻译组-北美组`
+
+### [11/25/2021文贵盖特：千万不要给孩子打疫苗，身边已经有太多疫苗倒、随地倒、车祸倒，一定记住青蒿素是解药](/content/gnews/22/README.md)
+ ` 秘密翻译组-北美组`
+
+### [不列颠哥伦比亚省大西洋暴雨，加拿大未来气候缩写](/content/gnews/23/README.md)
+ ` MG FARM`
+
+### [2021/11/20 文贵先生直播精要](/content/gnews/24/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国必须准备在台湾问题上与中共开战](/content/gnews/25/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [焦点：南非发现新变种中共病毒](/content/gnews/26/README.md)
+ ` 丁过`
+
+### [意大利一民事保护官员称给孩子打新冠疫苗是最好的圣诞礼物](/content/gnews/27/README.md)
+ ` xiaobaige`
+
+### [2021/11/25 大卫作战室直播精要](/content/gnews/28/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [意大利总理德拉吉今年第三次否决了中共国的收购案](/content/gnews/29/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [维加诺大主教呼吁建立反全球主义联盟，对抗新世界秩序](/content/gnews/30/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [12家中企列入美国新“黑名单“，中共称“保留反制权”](/content/gnews/31/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [文贵爆料11.24.2021 中共国疯狂印钞难掩经济急剧下滑，崩溃成为必然](/content/gnews/32/README.md)
+ ` 秘密翻译组-原创组`
+
+### [有声|GTV新闻访谈简报|2021年11月23日晚](/content/gnews/33/README.md)
+ ` MOSREC`
+
+### [有声|每日读经：创世纪(1:1-31；2:1-3)](/content/gnews/34/README.md)
+ ` MOSREC`
+
+### [有声|日越防长确认在海洋和网络领域合作 应对中共威胁](/content/gnews/35/README.md)
+ ` MOSREC`
+
+### [中共的“劫富济豪”－中共是富可敌地球的土豪](/content/gnews/36/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [SLOVENIA危机：吹哨人称政治家合伙骗人民打疫苗](/content/gnews/37/README.md)
+ ` wenwu`
+
+### [GTV新闻访谈简报|2021年11月25日早](/content/gnews/38/README.md)
+ ` 纽约香草山MOS01`
+
+### [钟翰林因中共《国安法》被判入狱43个月](/content/gnews/39/README.md)
+ ` GTV新闻访谈`
+
+### [如何看待爆料革命中扒上井沿又掉下去的不坚定者？](/content/gnews/40/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [从文贵先生的待人接物说起](/content/gnews/41/README.md)
+ ` 骄子`
+
+### [立陶宛外长向世界展示如何抵抗中共](/content/gnews/42/README.md)
+ ` 日本东京方舟农场`
+
+### [11/25/2021 国际财经快讯：美国又把8家中共国企业列入禁运清单；美联储11月会议纪要：通胀压力消退所需时间或长于此前预期](/content/gnews/43/README.md)
+ ` 秘密翻译组金融团队`
+
+### [赵长鹏真把自己当赵家人了](/content/gnews/44/README.md)
+ ` 银河勇气之星`
+
+### [中共拿拜习电话会当令牌，指责美对其再增制裁](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2021/11/24 墙内世界](/content/gnews/46/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
 ### [蔡英文正告中共停止对台商的政治迫害](/content/gnews/47/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
