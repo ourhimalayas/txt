@@ -2,26 +2,40 @@
 ---
 
 
-## ICU顶级医生起诉医院禁止COVID治疗后被停职
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1694969/)
+## 专家警告：辉瑞和莫德纳的疫苗显着增加心脏病发作风险
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1694984/)
 
-编译： Jenny Ball
+翻译： Jenny Ball
 
-*在接受《捍卫者》(The Defender)的独家采访时，保罗·马里克（Paul Marik）医生表示，患者正在“不必要地和非法地”死亡，因为他担任 ICU 主任的医院优先考虑使用像瑞德西韦这样的昂贵药物，同时禁止更有效和更便宜的治疗方法。*
+*在美国心脏协会会议期间提出的一项分析中，婴儿心脏移植手术先驱史蒂文·冈德里（Steven Gundry）博士表示，mRNA COVID 疫苗使许多患者面临更高的新急性冠状动脉综合征风险，例如心脏病发作。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-10-6.jpg)图片来源：childrenshealthdefense.org
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-11-6.jpg)图片来源：childrenshealthdefense.org
 
-森塔拉诺福克综合医院（Sentara Norfolk General Hospital）一位高级重症监护医生，因对医院禁止[使用救生药物](https://www.pilotonline.com/news/health/vp-nw-marik-court-hearing-20211118-hgzw523phfedfkar4kb6ddshuq-story.html)治疗 COVID 患者而对其提起诉讼，他的医院[福利被暂停](https://childrenshealthdefense.org/wp-content/uploads/FLCCC-Marik-Suspension-Advisory-FINAL-11_22_21.pdf)。
+COVID-19 辉瑞(Pfizer)和莫德纳(Moderna) mRNA 疫苗“显着增加”了人们心脏病风险的常见指标。
 
-东弗吉尼亚医学院肺部和重症监护医学主任兼森塔拉诺福克综合医院 ICU 主任保罗·马里克医生([Dr. Paul Marik](https://www.evms.edu/directory/profiles/paul-e-marik.php))，在周六上班时得知被[停职 14 天](https://www.pilotonline.com/news/health/vp-nw-sentara-doctor-suspended-20211123-5y7uhc6n5rffticae2a47zqjiu-story.html)，并在他的办公桌上发现了一封信。
+这是根据心脏病学家史蒂文·冈德里博士最近在《循环》杂志上发表的“警告”得出的结论，他被称为婴儿心脏移植手术的先驱。
 
-这封信的日期是 11 月 18 日——马里克的律师说，就在同一天，马里克出现在诺福克巡回法院的一名法官面前，要求发出临时禁令以解除禁令。
+该分析是在美国心脏协会最近的会议上提出的。
 
-大卫·兰内蒂（David Lannetti）法官没有授予临时禁令，但确实确定马利克有资格提起诉讼，允许案件继续进行，这将使马利克有机会“确立他对患者有挽救生命治疗的权利，”前线 COVID-19 重症监护联盟 (FLCCC) 在一份声明中说。
+冈德里表示，“大多数患者的显着变化”意味着他们患新的急性冠状动脉综合征的风险更高，例如心脏病发作。
 
-**评论：这是什么世道，医院明目张胆图财害命！愿正义的保罗医生救人被解职的实例，能够唤醒更多的人们起来抵抗医疗暴政、政府暴政！**
+部分分析指出：
 
-**参考资料：**[childrenshealthdefense.org][Top ICU Doctor Suspended After Suing Hospital for Banning Life-Saving COVID Treatments](https://childrenshealthdefense.org/defender/paul-marik-lawsuit-hospital-remdesivir-ban-life-saving-drugs/)
+“我们得出结论，mRNA疫苗会显着增加心肌的**内皮炎症**和 **T ****细胞浸润**，并且可能解释了疫苗接种后**血栓形成**、心肌病和其他血管事件增加的观察结果。”
+
+冈德里解释说：
+
+“最近，随着莫德纳和辉瑞的 mRNA COVID-19 疫苗的出现，大多数患者的蛋白质不稳定病变特征（PULS）评分发生了显着变化。”
+
+据报道，在接种 COVID mRNA 疫苗后，已有数千例与心脏相关的损伤。这些损伤导致心脏损伤的形成和进展，这些损伤可能变得不稳定和破裂，从而导致心脏事件。
+
+**PULS****测试测量从血管壁心脏病变渗出的最具临床意义的蛋白质生物标志物，提供身体免疫系统对动脉损伤的反应的测量**。
+
+科学家们已经确定了 COVID-19 疫苗，对包括年轻人在内的一些患者的无数心脏和血液相关影响。**与疫苗相关的不良事件包括，血栓形成血块，和称为心肌炎和心包炎的心脏炎症。**
+
+CDC和FDA表示，这些疫苗对推荐给他们的每个人都是安全有效的，而且好处大于已知风险，随着越来越多的人接种疫苗，这种风险将在几年内出现。
+
+**参考资料：**[childrenshealthdefense.org][Pfizer, Moderna Vaccines ‘Dramatically Increase’ Heart Attack Risk, Renowned Cardiologist Warns](https://childrenshealthdefense.org/defender/sharyl-attkisson-steven-gundry-pfizer-moderna-vaccines-heart-attack-risk/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=c0028f89-9469-4ab6-a35c-0758294153b3)
 
 * * *
 

@@ -2,31 +2,44 @@
 ---
 
 
-## 福奇将要杀死我们的孩子
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1694779/)
+## 2006年王沪宁即建议依法抢劫，习近平开干柳传志、马云
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1694795/)
 
-翻译：武松(Sam)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片18774-edited.png)图片来源：网络
-邪恶的种族灭绝狂人托尼·福奇 (Tony Fauci) 宣布，2022年春季所有婴幼儿都可以注射中共病毒“疫苗”，同时美国国家过敏症和传染病研究所 (NIAID) 主任表示，2022 年第一季度将专为6个月至5 岁的婴儿进行疫苗注射。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/20200327103249498_副本.jpg)
+据[2021年11月24日 文贵大直播：北京深圳香港交易所；病毒疫苗灾难与解药；喜币喜联储GTV股票；新中国联邦灭共使命](https://gtv.org/video/id=619e389338f84e66c64ec66b)时间点1：57：07——
 
-辉瑞公司表示已准备好开始向婴幼儿注射儿科疫苗试验，Moderna 仍在为其临床试验招募婴儿。今年早些时候，辉瑞宣布可能会在今年11月底之前向美国食品和药物管理局 (FDA) 提交一份针对六个月至两岁年龄段儿童的紧急使用授权 (EUA)。该公司最初表示，其针对2至5岁儿童的EUA将与9月份针对5至11岁儿童的EUA一起提交。辉瑞公司还表示其对接种过疫苗的母亲的脐带和母乳的研究表明，接种过疫苗的母亲所生的新生儿在出生后的头几个月对中共病毒有一定的保护作用。
+**郭文贵先生：**它为什么要把现在马云这帮人要干掉？我今天给你们一会儿，说一个我的观点，柳传志的事件咱今天可能都准备了。兄弟姐妹们，你让我发自内心的说，马云绝不应该是如此，马云怎么罪该如此？柳传志也不罪该如此，他女儿滴滴也不应该罪该如此。
 
-与此同时，随着注射继续破坏人们的免疫系统，“完全接种”的成年人正在大批量的死去。英格兰的最新数据显示，60 岁以下完全接种的成年人现在的死亡率是同一人口中未接种的成年人的两倍。
+那么这本质和这交易所什么关系？它是一场大掠夺的开始，它是共产党的杀富济贫。你什么叫做共享财富？就是杀富济贫。它关键是是不是杀富济了贫？贫的会更贫，富的会没有，只有共产党会富有。
 
-所谓的“疫苗”会逐渐破坏心脏组织，随着时间的推移会导致心脏病发作和其他心血管疾病，并最终导致死亡。
+就像杀掉两百万多个地主，中国人最后文化大革命、大跃进死了将近8000万到一亿人，而且土地尽归共产党，到今天都是共产党的。然后现在让你还拿没有土地产权的让你拿房地产税。
 
-有人认为，中共病毒大流行是一个骗局，疫苗是假的，因为它们不起作用。这个骗局背后的人是那些意图结束现有秩序并用一个直接来自地狱的政府取而代之的力量，称为大重置。无论政府、大媒体、医院告诉你什么，反过来听，那么你就会站在真理的一边。有专家表示，一旦冬天完全来临，疫苗中的刺突蛋白造成的死亡人数将呈指数级增加，2022年将会更加恐怖。
+这一场革命，所谓的杀富豪分土地。从所有的开始这叫依法抢劫。这话是谁先说的？我告诉你，这是最早的是王沪宁给习说的，我们不能再杀地主分田地了，但我们可以通过市场行为合法的将财富给来个均贫富，这是王沪宁的原话。啥时候说的？2006年。
 
-评：邪恶势力的大重置已经计划进行了十多年了，目前正在全力推进当中，目的是要杀死地球上的大部分人并结束现有的社会秩序，用一个更加邪恶的政府来奴役人类。随着新中国联邦在全球范围揭示“疫苗”真相后，人类已经逐步醒来，最终推翻背后邪恶势力的时刻指日可待。
+（以下暂略）
 
-原文链接：
+撰稿：喜马拉雅的肉夹馍；
 
-[https://www.naturalnews.com/2021-11-24-fauci-wants-kids-babies-vaccinated-covid-spring.html#](https://www.naturalnews.com/2021-11-24-fauci-wants-kids-babies-vaccinated-covid-spring.html#)
+审核：喜马拉雅的馍夹肉；
 
-编辑/发布：LILY
+校对：Maarago
 
-20211125
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-2.jpg)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
