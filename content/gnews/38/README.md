@@ -2,20 +2,18 @@
 ---
 
 
-## 辉瑞指控员工盗取大量内部及涉密文件
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1693652/)
+## 加拿大成为第一个完全批准强生中共病毒疫苗的国家
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1693656/)
 
-编译：致敬香港！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-38.png)
-图片来源： https://www.thequint.com/
+编译：沙子最怕你不理它
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-109.png)
+据合众国际社11月24日报道，强生公司生产的一剂型中共病毒疫苗已在加拿大获得完全授权，加拿大是第一个完全批准强生疫苗的国家。![]()
 
-“零对冲”网11月24日报道，辉瑞公司23日向南加州的地方法院提诉，指控一名即将离职的高级员工在其个人谷歌网盘及存储设备上保存了12000多份公司文件，其中包含大量机密内容。
+该疫苗由强生子公司Janssen生产，此前仅在加拿大获得紧急授权。强生公司表示，批准是基于一项最后阶段的研究表明，疫苗在单剂疫苗28天后起生效85%。此项批准适用于所有18岁以上的成年人：18岁以下人群中的安全和有效性尚未确定。
 
-辉瑞指控其统计部门的副总监李春晓（音译）及另外5名嫌疑人的商业间谍行为，称其盗存的文件涉及公司及商业机密，其中包括对新冠疫苗的内部评估、辉瑞跟合作伙伴的关系等，并称李离开辉瑞后可能将于29日跳槽到对手的临床阶段生物制药公司Xenocor。李于2006 年加入辉瑞位于中国的产品开发团队，2016 年调到美国加州的园区。她转存文件的行为在公司例行的电脑追迹排查中被发现，辉瑞称李在调查中向公司上交的个人电脑为调包货，相信真正用于转存文件的电脑仍在李或另外几名嫌疑人的手中。
+据约翰·霍普金斯大学（Johns Hopkins University）称，到目前为止，加拿大已有170万例COVID-19病例，近30,000人死亡。略多于76%的加拿大人口已经完全接种了疫苗。本月，加拿大紧急授权了辉瑞5-11岁的儿童疫苗和18岁以上人群的加强针。
 
-当日，地方法官临时限制李使用、披露、传输相关文件，并将在12月9日听证以决定是否延长该禁令。
-
-**新闻来源：** [Pfizer Employee Stole 12,000 Files Including COVID-19 Vaccine Secrets, Lawsuit Claims](https://www.zerohedge.com/covid-19/pfizer-employee-stole-12000-files-including-covid-19-vaccine-secrets-lawsuit-claims)；[Pfizer sues departing employee it says stole COVID-19 vaccine secrets](https://www.reuters.com/article/us-pfizer-lawsuit-employee-idUSKBN2I92FW)
+来源：[Canada becomes 1st nation to fully approve Johnson & Johnson COVID-19 vaccine](https://www.upi.com/Top_News/World-News/2021/11/24/canada-approval-johnson-covid-vaccine/9321637780375/)
 
  
 

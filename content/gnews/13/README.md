@@ -2,23 +2,20 @@
 ---
 
 
-## 疫苗无效！拥有6千万粉丝的韩国女团成员确诊中共病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1693871/)
+## 中共国关闭其货船跟踪系统
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1693902/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-705.png)[图片来源](https://www.hk01.com/%E7%9F%A5%E6%80%A7%E5%A5%B3%E7%94%9F/554656/blackpink-jisoo%E6%88%90%E7%82%BA%E6%A8%A1%E7%AF%84%E6%9C%80%E4%BD%B3%E9%96%A8%E5%AF%86-12%E5%80%8B%E8%A6%81%E9%BB%9E%E5%88%86%E8%BE%A8%E8%BA%AB%E9%82%8A%E7%9C%9F%E5%81%87%E9%96%A8%E5%AF%86)
-韩国超强女团BLACKPINK成员Lisa周三证实“突破感染”确诊中共病毒，所属经纪公司YG娱乐表示，其他3名成员进PCR检测结果全都是阴性，让歌迷松了一口气。包括Lisa在内，BLACKPINK4名成员都已经完整接种2剂中共病毒疫苗。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11251-1.jpg)图片来自ormeggiatori Trapani
+在中共国海域作业的货船船队已经看不到他们的行踪了，还有在中共国港口和领海的大部分集装箱船已经从“全球追踪器”的屏幕上消失了。“全球追踪器”是一种海上交通定位器，它为船舶的导航和分类提供地图。分析人士称，从10 月下旬开始看到数据下滑：从那时起，船只在中共国水域发出的信号从每天 1500 万条下降到只有 100 万条。
 
-YG娱乐表示，Lisa目前没有感到任何异常，身体状态良好，原订拍摄工作暂停，专心休养。Lisa上周二（16日）刚从美国LA搭机返回仁川机场，不排除是在韩国境外感染，由于BLACKPINK4人前天还在IG开心上传聚会照片，Lisa传出确诊后，粉丝一度很担心其它成员健康。
+国际监测系统被称为自动识别系统 (AIS)，旨在促进航行安全、避免大型船舶之间的碰撞以及在海上发生事故时协调救援行动。AIS 也已经成为最重要的工具，用于改善供应链、商业供应链、港口附近的交通信号以及停靠和装卸集装箱的等待时间。然而，现在在中共国水域的船只在 AIS 上几乎看不到，在世界第二大经济体，现在AIS 几乎已经停止工作。
 
-来自泰国的Lisa，是YG第一位外国人艺人，不论是唱歌或舞蹈实力坚强，粉丝遍及全球，IG超过6781万人追踪，被称为韩国IG女王。
+11 月 1 日，《个人信息保护法》在中共国生效，要求处理数据的公司在将其移出中共国领土之前必须获得政府批准。新法律反映了中共国对大数据可能最终落入外国政府手中的担忧。然而中共国的隐私法未提及船舶交通，这可能是一个精确的指示：那就是这些中共国水域船舶数据中获得的情报可能会损害国家的经济安全，必须对问题进行评估。
 
-消息来源：[Lisa「突破感染」确诊韩国BLACKPINK成员现况曝](https://tw.news.yahoo.com/lisa-%E7%AA%81%E7%A0%B4%E6%84%9F%E6%9F%93-%E7%A2%BA%E8%A8%BA-%E9%9F%93%E5%9C%8Bblackpink%E6%88%90%E5%93%A1%E7%8F%BE%E6%B3%81%E6%9B%9D-040506865.html)
+原文链接：[https://www.corriere.it/esteri/21\_novembre\_24/cina-spegne-sistema-localizzazione-navi-carico-eabacae8-4d16-11ec-8b01-c023696b7b18.shtml](https://www.corriere.it/esteri/21_novembre_24/cina-spegne-sistema-localizzazione-navi-carico-eabacae8-4d16-11ec-8b01-c023696b7b18.shtml)
 
-*编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
-
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 
