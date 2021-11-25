@@ -2,27 +2,23 @@
 ---
 
 
-## 墙内民生：女主播抑郁自杀，骨灰被调包配阴婚
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1692830/)
+## 台湾受邀参与美民主峰会，中共未入受邀名单
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1692831/)
 
-作者：纽约香草山教育部 – Noemi
+作者：纽约香草山医疗部 – 云豹
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间11月23日，墙内媒体报道，中共国内一位女主播在自杀身亡后，其骨灰被火化工偷偷调包去配阴婚。
+11月23日，美国国务院公布了12月白宫虚拟民主峰会受邀名单，台湾已受邀参加该峰会。 中共及俄罗斯则未在受邀名单中。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture5-6.jpg)
+刚公布的受邀名单中有110个国家，立陶宛、日本、英国、德国等国家都在受邀之列。
 
-据了解，这位女主播是一名抑郁症患者，在直播期间因不堪直播间内观众的网暴和怂恿愤而喝药自杀。悲剧发生后，此事件曾在网络上一度发酵。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-19.jpg)
-舆论还未平息，近日又有人爆料称，该女主播遗体被火化后，火化工并未将骨灰移交给家属，而是借机调包，卖给了需要配阴婚的人，以此牟利。而据知情人透漏，这一现象在墙内的殡仪行业中并不稀奇，这次事件被曝光是由于同行竞争，有人眼红。
+美国总统拜登将在12月9日至10日召开此次虚拟领袖民主峰会，邀集国家元首、公民社会、慈善事业与私人部门成员，谈论当前民主制度遭遇到的挑战。 此次峰会聚焦3大主题，包括对抗威权、打击贪腐及促进对人权的尊重等。
 
-目前，女主播的骨灰已被接回。
-
-参考链接：
-1. [墙内民生：女主播抑郁自杀，骨灰被调包配阴婚](https://m.thepaper.cn/newsDetail_forward_15514493)
-2. [墙内民生：女主播抑郁自杀，骨灰被调包配阴婚](https://www.163.com/dy/article/GPJ2PKHH0525WL9Q.html)
+参考链接：[台湾受邀参与美民主峰会，中共未入受邀名单](https://www.cna.com.tw/news/firstnews/202111245002.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
 总编：飞虹
-编辑：飞虹
+编辑：木白
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

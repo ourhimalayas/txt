@@ -15,169 +15,169 @@
 
 ---
 
-### [2021年11月15-17日 郭先生视频重点内容整理](/content/gnews/1/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
+### [煤票死灰复燃 中共经济遭打脸](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [灭共过程是锻炼我们自己,能之所及都是新中国联邦的空间](/content/gnews/2/README.md)
- ` NewFOC`
-
-### [美国贸易黑名单再添十几家与中共军方有关的中共国公司](/content/gnews/3/README.md)
+### [摩根大通CEO调侃中共后又屈于在华利益被迫道歉](/content/gnews/2/README.md)
  ` 日本东京方舟农场`
 
-### [2021年11月13-14日 郭先生视频重点内容整理](/content/gnews/4/README.md)
+### [世卫组织总干事谭德塞难圆其说](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [维多利亚州零售业员工被袭击后呼吁取消疫苗接种检查](/content/gnews/4/README.md)
+ ` 走进澳洲`
+
+### [立陶宛外长向世界展示如何抵抗中共](/content/gnews/5/README.md)
+ ` 日本东京方舟农场`
+
+### [56.95亿元票房！《长津湖》是这个国家的悲哀](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [司马南疯咬联想为哪般？](/content/gnews/7/README.md)
+ ` 波士顿五月花农场`
+
+### [2021年11月15-17日 郭先生视频重点内容整理](/content/gnews/8/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [加拿大生活美谈 2021-11-18第三十期](/content/gnews/5/README.md)
+### [灭共过程是锻炼我们自己,能之所及都是新中国联邦的空间](/content/gnews/9/README.md)
+ ` NewFOC`
+
+### [美国贸易黑名单再添十几家与中共军方有关的中共国公司](/content/gnews/10/README.md)
+ ` 日本东京方舟农场`
+
+### [2021年11月13-14日 郭先生视频重点内容整理](/content/gnews/11/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [墙内民生：女主播抑郁自杀，骨灰被调包配阴婚](/content/gnews/12/README.md)
+ ` GTV新闻访谈`
+
+### [加拿大生活美谈 2021-11-18第三十期](/content/gnews/13/README.md)
  ` canadalifetalk`
 
-### [神秘组织初探，盘点世界最强雇佣军](/content/gnews/6/README.md)
+### [神秘组织初探，盘点世界最强雇佣军](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [DC大中华时事：港府重启“网络23条”《版权条例》咨询](/content/gnews/7/README.md)
+### [DC大中华时事：港府重启“网络23条”《版权条例》咨询](/content/gnews/15/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [看透生死你会发现人类最高灵魂和界,当下都是你的工具](/content/gnews/8/README.md)
+### [看透生死你会发现人类最高灵魂和界,当下都是你的工具](/content/gnews/16/README.md)
  ` NewFOC`
 
-### [台湾问题：美国必须准备与中共国开战](/content/gnews/9/README.md)
+### [台湾问题：美国必须准备与中共国开战](/content/gnews/17/README.md)
  ` wenwu`
 
-### [是时候真的排干外国影响的沼泽了](/content/gnews/10/README.md)
+### [是时候真的排干外国影响的沼泽了](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [接受你的货币金融系统捍卫你安全和信仰之处就是你的国](/content/gnews/11/README.md)
+### [接受你的货币金融系统捍卫你安全和信仰之处就是你的国](/content/gnews/19/README.md)
  ` NewFOC`
 
-### [《柳叶刀》罕见发表关于COVID-19疫苗的不同意见](/content/gnews/12/README.md)
+### [《柳叶刀》罕见发表关于COVID-19疫苗的不同意见](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [因电力短缺，中共不得不恢复对澳煤的进口](/content/gnews/13/README.md)
+### [因电力短缺，中共不得不恢复对澳煤的进口](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [尽管高度接种 美国Covid死亡人数2021年仍超 2020 年](/content/gnews/14/README.md)
+### [尽管高度接种 美国Covid死亡人数2021年仍超 2020 年](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [规管假新闻 贼喊捉贼的闹剧](/content/gnews/15/README.md)
+### [规管假新闻 贼喊捉贼的闹剧](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内要闻汇编 11月25日](/content/gnews/16/README.md)
+### [墙内要闻汇编 11月25日](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [法国总统候选人抨击强制接种 称疫苗护照“毫无用处”](/content/gnews/17/README.md)
+### [法国总统候选人抨击强制接种 称疫苗护照“毫无用处”](/content/gnews/25/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [威州游行杀手被控5项杀人罪 据称保释金500万美金](/content/gnews/18/README.md)
+### [威州游行杀手被控5项杀人罪 据称保释金500万美金](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [航空界寻找行业颠覆者，谁将成为“埃隆·马斯克”？](/content/gnews/19/README.md)
+### [航空界寻找行业颠覆者，谁将成为“埃隆·马斯克”？](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共北极“一带一路”再遭重击，格陵兰撤销中共铁矿石开采许可](/content/gnews/20/README.md)
+### [中共北极“一带一路”再遭重击，格陵兰撤销中共铁矿石开采许可](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [祝战友们感恩节快乐](/content/gnews/21/README.md)
+### [祝战友们感恩节快乐](/content/gnews/29/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [加拿大医生说COVID mRNA疫苗是一种“旨在毒害人的技术”](/content/gnews/22/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [为了让美国参加冬奥会，中共愿花“大价钱”](/content/gnews/23/README.md)
+### [为了让美国参加冬奥会，中共愿花“大价钱”](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [丹麦政府建议重新引入强制使用口罩](/content/gnews/24/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [佳兆业深陷债务危机 计划将4亿美元债券延期一年半](/content/gnews/25/README.md)
- ` 日本东京方舟农场`
-
-### [以色列恐迎来第五波CCP病毒疫情爆发](/content/gnews/26/README.md)
- ` 澳喜特战旅Gnews`
-
-### [生命的意义是什么？（第五集）](/content/gnews/27/README.md)
- ` 纽约香草山MOS03`
-
-### [11/25/2021 国际财经快讯：美国又把8家中共国企业列入禁运清单；美联储11月会议纪要：通胀压力消退所需时间或长于此前预期](/content/gnews/28/README.md)
+### [11/25/2021 国际财经快讯：美国又把8家中共国企业列入禁运清单；美联储11月会议纪要：通胀压力消退所需时间或长于此前预期](/content/gnews/31/README.md)
  ` 秘密翻译组金融团队`
 
-### [赵长鹏真把自己当赵家人了](/content/gnews/29/README.md)
+### [赵长鹏真把自己当赵家人了](/content/gnews/32/README.md)
  ` 银河勇气之星`
 
-### [樱花灭共诗——盘古大观（新韵）](/content/gnews/30/README.md)
+### [樱花灭共诗——盘古大观（新韵）](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [福建黑心团伙走私生锈胃肠镜 流向15省上百家医院](/content/gnews/31/README.md)
+### [福建黑心团伙走私生锈胃肠镜 流向15省上百家医院](/content/gnews/34/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [中共拿拜习电话会当令牌，指责美对其再增制裁](/content/gnews/32/README.md)
+### [中共拿拜习电话会当令牌，指责美对其再增制裁](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021/11/24 墙内世界](/content/gnews/33/README.md)
+### [2021/11/24 墙内世界](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [相信共产党，走进火葬场](/content/gnews/34/README.md)
+### [相信共产党，走进火葬场](/content/gnews/37/README.md)
  ` 澳喜特战旅Gnews`
 
-### [中国电信还想赖在美国不走](/content/gnews/35/README.md)
+### [中国电信还想赖在美国不走](/content/gnews/38/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美要求释放石油储备，中共国存变数，OPEC不确定](/content/gnews/36/README.md)
+### [美要求释放石油储备，中共国存变数，OPEC不确定](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [蔡英文正告中共停止对台商的政治迫害](/content/gnews/37/README.md)
+### [蔡英文正告中共停止对台商的政治迫害](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [7·24系列——“反美工作者”司马南](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
-
-### [视频| 为什么郭先生称战友们为兄弟姐妹](/content/gnews/39/README.md)
+### [视频| 为什么郭先生称战友们为兄弟姐妹](/content/gnews/41/README.md)
  ` MOSREC`
 
-### [欧盟对参与种族灭绝的中共官员和实体延长制裁](/content/gnews/40/README.md)
+### [欧盟对参与种族灭绝的中共官员和实体延长制裁](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频| 喜币的价值和价格的区别](/content/gnews/41/README.md)
+### [视频| 喜币的价值和价格的区别](/content/gnews/43/README.md)
  ` MOSREC`
 
-### [视频| 赵长鹏最终的结局](/content/gnews/42/README.md)
+### [视频| 赵长鹏最终的结局](/content/gnews/44/README.md)
  ` MOSREC`
 
-### [美国再出手，中共多家企业被列入黑名单！](/content/gnews/43/README.md)
+### [美国再出手，中共多家企业被列入黑名单！](/content/gnews/45/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/24/2021 文贵直播：疫苗灾难导致中共国近期爆炸和交通事故频发、染病人数攀升、医院爆满](/content/gnews/44/README.md)
+### [11/24/2021 文贵直播：疫苗灾难导致中共国近期爆炸和交通事故频发、染病人数攀升、医院爆满](/content/gnews/46/README.md)
  ` 秘密翻译组-北美组`
 
-### [COVID-19 最新情报｜不忍了！前英超球员直播质疑疫苗遭断播 前国脚声援](/content/gnews/45/README.md)
+### [COVID-19 最新情报｜不忍了！前英超球员直播质疑疫苗遭断播 前国脚声援](/content/gnews/47/README.md)
  ` G&#124;News TAIWAN`
 
-### [柳传志号召联想同仁团结起来同仇敌忾捍卫联想荣誉](/content/gnews/46/README.md)
+### [柳传志号召联想同仁团结起来同仇敌忾捍卫联想荣誉](/content/gnews/48/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [欧洲各地因强制接种疫苗爆发大规模抗议活动](/content/gnews/47/README.md)
+### [欧洲各地因强制接种疫苗爆发大规模抗议活动](/content/gnews/49/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [班农：政府中的马克思主义、共产主义者给我们带来战争](/content/gnews/48/README.md)
+### [班农：政府中的马克思主义、共产主义者给我们带来战争](/content/gnews/50/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [波索别克：对中共病毒，习拜会的政客就像没发生过似的](/content/gnews/49/README.md)
+### [波索别克：对中共病毒，习拜会的政客就像没发生过似的](/content/gnews/51/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [伊维菌素使中共病毒病例大降，疫苗使病例大增](/content/gnews/50/README.md)
+### [是高瞻远瞩还是早有预谋？ 中共不孕夫妻超5000万猛建“辅助生殖机构”](/content/gnews/52/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [是高瞻远瞩还是早有预谋？ 中共不孕夫妻超5000万猛建“辅助生殖机构”](/content/gnews/51/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2021年11月24日郭文贵先生直播摘要——银河系农场](/content/gnews/52/README.md)
+### [2021年11月24日郭文贵先生直播摘要——银河系农场](/content/gnews/53/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [美国意图打破战略模糊 增加驻台兵力](/content/gnews/53/README.md)
+### [美国意图打破战略模糊 增加驻台兵力](/content/gnews/54/README.md)
  ` GTV新闻访谈`
 
-### [台湾受邀参与美民主峰会，中共未入受邀名单](/content/gnews/54/README.md)
- ` GTV新闻访谈`
-
-### [墙内民生：女主播抑郁自杀，骨灰被调包配阴婚](/content/gnews/55/README.md)
+### [台湾受邀参与美民主峰会，中共未入受邀名单](/content/gnews/55/README.md)
  ` GTV新闻访谈`
 
 ### [超发货币将使数字货币代替法币](/content/gnews/56/README.md)
