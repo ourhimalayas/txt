@@ -15,110 +15,110 @@
 
 ---
 
-### [12家中资背景机构被美商务部列入国防军事终端黑名单](/content/gnews/1/README.md)
- ` G-NEWS TAIWAN`
-
-### [福建黑心团伙走私生锈胃肠镜 流向15省上百家医院](/content/gnews/2/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [国际奥委会和彭帅视频通话能否证明双方都平安无事](/content/gnews/3/README.md)
- ` G-NEWS TAIWAN`
-
-### [中共拿拜习电话会当令牌，指责美对其再增制裁](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [东部战区衢州空军基地已悄然进驻歼-20航空中队展开部署](/content/gnews/5/README.md)
- ` G-NEWS TAIWAN`
-
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/6/README.md)
- ` wenwu`
-
-### [2021/11/24 墙内世界](/content/gnews/7/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [相信共产党，走进火葬场](/content/gnews/8/README.md)
- ` 澳喜特战旅Gnews`
-
-### [西媒头条 — 第117期](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [日本要闻汇编 11月25日](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [康美巨额罚款是中共国“反腐败运动的一部分”吗？](/content/gnews/11/README.md)
- ` 澳喜农场`
-
-### [新疆人权问题持续发酵 欧盟延长制裁措施](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [德国冠状病毒受害者超过10万](/content/gnews/13/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [通向法西斯之路：由疫苗授权和公司勾结来铺平](/content/gnews/14/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共国房子卖不出去，公安局耍无赖以房抵债](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共国关闭其货船跟踪系统](/content/gnews/16/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [苏格兰政府的疫苗护照将人们的私人数据发送给了亚马逊、微软](/content/gnews/17/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [中国电信还想赖在美国不走](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [疫苗无效！拥有6千万粉丝的韩国女团成员确诊中共病毒](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美要求释放石油储备，中共国存变数，OPEC不确定](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [十几家中共军方背景公司被美国加入黑名单](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [蔡英文正告中共停止对台商的政治迫害](/content/gnews/22/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [每日快报：美国要求在1月份为所有过境者接种疫苗](/content/gnews/23/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [币圈新闻动态：ConsenSys编程课程中删除50名伊朗学生](/content/gnews/24/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [视频| 为什么郭先生称战友们为兄弟姐妹](/content/gnews/25/README.md)
- ` MOSREC`
-
-### [欧盟对参与种族灭绝的中共官员和实体延长制裁](/content/gnews/26/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [视频| 喜币的价值和价格的区别](/content/gnews/27/README.md)
- ` MOSREC`
-
-### [视频| 赵长鹏最终的结局](/content/gnews/28/README.md)
- ` MOSREC`
-
-### [世贸组织因主张 “疫苗种族隔离”被指责](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
-
-### [灵魂挎问：你是战友还是敌人？](/content/gnews/30/README.md)
- ` 澳喜农场`
-
-### [秘翻在线：护士举报称政客接受生理盐水而不是mRNA疫苗](/content/gnews/31/README.md)
+### [秘翻在线：八家与量子计算有关的中共国公司被美列入贸易黑名单](/content/gnews/1/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [前世卫组织总干事警告，强制接种疫苗会引起骚乱](/content/gnews/32/README.md)
+### [12家中资背景机构被美商务部列入国防军事终端黑名单](/content/gnews/2/README.md)
+ ` G-NEWS TAIWAN`
+
+### [中共甩锅养老责任，鼓励子女与父母同住](/content/gnews/3/README.md)
+ ` 澳喜农场`
+
+### [福建黑心团伙走私生锈胃肠镜 流向15省上百家医院](/content/gnews/4/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [国际奥委会和彭帅视频通话能否证明双方都平安无事](/content/gnews/5/README.md)
+ ` G-NEWS TAIWAN`
+
+### [中共拿拜习电话会当令牌，指责美对其再增制裁](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [东部战区衢州空军基地已悄然进驻歼-20航空中队展开部署](/content/gnews/7/README.md)
+ ` G-NEWS TAIWAN`
+
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/8/README.md)
+ ` wenwu`
+
+### [2021/11/24 墙内世界](/content/gnews/9/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [相信共产党，走进火葬场](/content/gnews/10/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [西媒头条 — 第117期](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [日本要闻汇编 11月25日](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [康美巨额罚款是中共国“反腐败运动的一部分”吗？](/content/gnews/13/README.md)
+ ` 澳喜农场`
+
+### [新疆人权问题持续发酵 欧盟延长制裁措施](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [德国冠状病毒受害者超过10万](/content/gnews/15/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [通向法西斯之路：由疫苗授权和公司勾结来铺平](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共国房子卖不出去，公安局耍无赖以房抵债](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共国关闭其货船跟踪系统](/content/gnews/18/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [苏格兰政府的疫苗护照将人们的私人数据发送给了亚马逊、微软](/content/gnews/19/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [中国电信还想赖在美国不走](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美要求释放石油储备，中共国存变数，OPEC不确定](/content/gnews/21/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [十几家中共军方背景公司被美国加入黑名单](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [蔡英文正告中共停止对台商的政治迫害](/content/gnews/23/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [每日快报：美国要求在1月份为所有过境者接种疫苗](/content/gnews/24/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [币圈新闻动态：ConsenSys编程课程中删除50名伊朗学生](/content/gnews/25/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [视频| 为什么郭先生称战友们为兄弟姐妹](/content/gnews/26/README.md)
+ ` MOSREC`
+
+### [欧盟对参与种族灭绝的中共官员和实体延长制裁](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [视频| 喜币的价值和价格的区别](/content/gnews/28/README.md)
+ ` MOSREC`
+
+### [视频| 赵长鹏最终的结局](/content/gnews/29/README.md)
+ ` MOSREC`
+
+### [世贸组织因主张 “疫苗种族隔离”被指责](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [非洲博茨瓦纳发现新的致命病株](/content/gnews/33/README.md)
+### [灵魂挎问：你是战友还是敌人？](/content/gnews/31/README.md)
+ ` 澳喜农场`
+
+### [秘翻在线：护士举报称政客接受生理盐水而不是mRNA疫苗](/content/gnews/32/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [前世卫组织总干事警告，强制接种疫苗会引起骚乱](/content/gnews/33/README.md)
  ` 墨尔本雅典娜农场`
 
-### [11/24/2021 文贵直播：胡舒立和司马南是“小号的王岐山”](/content/gnews/34/README.md)
+### [非洲博茨瓦纳发现新的致命病株](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [11/24/2021 文贵直播：胡舒立和司马南是“小号的王岐山”](/content/gnews/35/README.md)
  ` 秘密翻译组-北美组`
-
-### [悉尼房价预计将在明年达到顶峰](/content/gnews/35/README.md)
- ` 走进澳洲`
 
 ### [11/24/2021 文贵直播：犯罪分子胡舒立却被成为”公知”是中国人的悲哀](/content/gnews/36/README.md)
  ` 秘密翻译组-北美组`
