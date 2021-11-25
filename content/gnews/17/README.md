@@ -2,19 +2,17 @@
 ---
 
 
-## 德国冠状病毒受害者超过10万
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1693915/)
+## 西媒头条 — 第117期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1693965/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11252-1.jpg)图片来自Reuters
-11 月 25 日-德国公共卫生机构宣布称：自大流行开始以来，德国的 Covid 死亡人数已超过 10万人。
+制作：蚂蚁兄弟
 
-根据罗伯特科赫研究所的数据，德国这个欧洲最大的经济体正在与新一波的冠状病毒病例作斗争，在过去 24 小时内已有 351 人死亡，使总死亡人数达到 10万零119 人。随着感染人数创历史新高，重症监护室人满为患，健康危机正对即将接替安格拉·默克尔内阁的新联合政府构成直接挑战。
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
 
-原文链接：[https://www.ansa.it/sito/notizie/mondo/europa/2021/11/25/vittime-covid-in-germania-superano-le-100-mila\_a2f19f39-8448-47fc-9b10-44496eeb0311.html](https://www.ansa.it/sito/notizie/mondo/europa/2021/11/25/vittime-covid-in-germania-superano-le-100-mila_a2f19f39-8448-47fc-9b10-44496eeb0311.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/xm1125.001.jpeg)
 
-责任编辑/发布：意大利达芬奇农场   萧亦
-
+*发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
