@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/25/2021 9:39 PM (UTC)`
+
+11月25号：感恩伟大的美国，愿美国永远强大和安全……
+![img](https://media.gettr.com/group24/getter/2021/11/25/21/38/92224470-bc84-feb2-1682-93231baaa608/23db39423c24805e7cd20d90c057f453.jpg)
+
+---
+
 `@miles 11/25/2021 3:22 PM (UTC)`
 
 11月25号：祝愿感恩天下的所有人……和感恩所有的战友们和家人……感恩新中国联邦人……感恩节快乐……
@@ -289,13 +296,6 @@ Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Touch
 
 11/20/2021 [3rd Anniversary of 1120] Steve Bannon: Our New Federal State of China needs to cultivate more talents with entrepreneurial skills and those who understand business, finance and marketing. We can send them to the companies worldwide, where they will set up a good example of the Chinese people under the protection of rule of law, freedom, and democracy<br/><br/>11/20/2021【1120三周年纪念】班农先生：我们新中国联邦需要培养更多有创业技能、熟谙商业、金融和市场营销等方面的人才，我们可以把他们派到世界各地的公司里，他们将向世人树立中国人在法治、自由和民主保护下的好榜样
 ![img](https://media.gettr.com/group45/getter/2021/11/21/06/25/9f2ad651-f450-e070-a73a-558468b95f6a/out.jpg)
-
----
-
-`@miles 11/21/2021 3:23 AM (UTC)`
-
-11/20/2021 [3rd Anniversary of 1120] Mr. Bannon: China is the greatest ally of the United States in World War II. Only the Chinese people can free the Chinese people.<br/><br/>11/20/2021【1120三周年纪念】 班农先生：中国是美国在第二次世界大战中最大的盟友，解放中国要靠中国人自己。<br/>
-![img](https://media.gettr.com/group23/getter/2021/11/21/03/23/e71b3173-d492-7aa2-4003-b5933b6b294c/out.jpg)
 
 ---
 
