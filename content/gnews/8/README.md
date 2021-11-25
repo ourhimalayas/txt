@@ -2,32 +2,30 @@
 ---
 
 
-## 疫苗灾难继续 韩国著名女团成员Lisa确诊
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1694998/)
+## GTV新闻访谈简报|2021年11月25日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1694999/)
 
-**作者：日本东京方舟农场 老孙**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-5.png)
 
-11月24日，韩国YG娱乐公布，旗下女团BLACKPINK成员Lisa确认感染中共病毒，此前该女团成员都已完成疫苗接种。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-26.png)
+文章仅代表作者本人观点，与Gnews无关
 
-据韩媒报道，其所属公司YG娱乐相关负责人对外证实了这一消息。YG还透露，LISA在已完成全部疫苗接种。
+视频参看：2021.11.25早GTV新闻访谈
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1000-1.png)图片来自腾讯网
+[https://gtv.org/broadcast/watch/619f8fbae85d226ebcb42699](https://gtv.org/broadcast/watch/619f8fbae85d226ebcb42699)
 
-BLACKPINK组合成员Lisa确诊后，组合其他成员为密切接触者，进行自我隔离，并停止了一切商业活动，接受核酸检测。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-据了解，Lisa曾担任中共国综艺节目《青春有你》的节目导师，收获了不少中共国粉丝。当日，Lisa感染中共病毒的消息冲上中共国微博热搜。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-10.jpg)
 
-*参考链接：*
-
-[Lisa确诊新冠 同组合成员核酸结果公布！韩国娱乐圈成疫情“重灾区”](https://new.qq.com/omn/20211125/20211125A05L0Z00.html)
-
-* * *
-
-*素材采编：老孙*
-
-*编辑：文顺*
-
-*发布：Ranting*
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
