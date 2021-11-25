@@ -2,49 +2,34 @@
 ---
 
 
-## 墙内民生：女主播抑郁自杀，骨灰被调包配阴婚
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694482/)
+## 立陶宛外长向世界展示如何抵抗中共
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1694527/)
 
-撰稿：纽约香草山教育部-Noemi
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7E1C4AC3-A68F-4A24-B43B-ADAD930158F3.jpeg)立陶宛外交部长蓝斯柏吉斯（Gabrielius Landsbergis）（图片来自自由时报）
 
+据《自由时报》11月25日报道，立陶宛外交部长蓝斯柏吉斯（Gabrielius Landsbergis）在24日访问华府时表示，立陶宛正在透过分散供应链并与其他民主国家联合，向世界展示如何抵抗中共国日益强硬的施压。
 
+《自由时报》援引《法新社》的报道称，蓝斯柏吉斯在访问华盛顿时表示，针对立陶宛努力减少对中（共）国供应链依赖的问题，他与资深美国官员进行了交谈。他呼吁采取更长期的措施，帮助其他面临中共施压的国家。
 
+蓝斯柏吉斯表示，立陶宛对抗中共的经验是，受到经济胁迫并非绝对意味着国家需要放弃外交政策上的独立决定。在中（共）国媒体的头条新闻上可能会受到威胁，可能会受到咆哮，但无论如何都可以承受得住。
 
+蓝斯柏吉斯指出，中共的报复行为显示出，它并非透过外交渠道去解决事情，而是以“强国”形象施压他国。蓝斯柏吉斯说，民主国家的唯一弱点是缺少互相帮助。如果让中共不高兴，各国会感觉头上悬着一把无形的“达摩克里斯之剑”。
 
-当地时间11月23日，墙内媒体报道，中共国内一位女主播在自杀身亡后，其骨灰被火化工偷偷调包去配阴婚。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11258-1.png)
-据了解，这位女主播是一名抑郁症患者，在直播期间因不堪直播间内观众的网暴和怂恿愤而喝药自杀。悲剧发生后，此事件曾在网络上一度发酵。
+蓝斯柏吉斯称，其他国家正在与立陶宛联系，汲取对抗中共的经验。这些国家都希望有百分百的空间，在自身外交政策上做出独立决定。
 
-舆论还未平息，近日又有人爆料称，该女主播遗体被火化后，火化工并未将骨灰移交给家属，而是借机调包，卖给了需要配阴婚的人，以此牟利。而据知情人透漏，这一现象在墙内的殡仪行业中并不稀奇，这次事件被曝光是由于同行竞争，有人眼红。
+在此之前，“驻立陶宛台湾代表处”11月18日正式挂牌运作。中共为了报复，将与立陶宛的外交关系降级为“代办级”，并且对其进行经济施压。
 
-目前，女主播的骨灰已被接回。
+*参考链接：[https://news.ltn.com.tw/news/world/breakingnews/3747616](https://news.ltn.com.tw/news/world/breakingnews/3747616)*
 
-新闻链接:
+* * *
 
-[女主播自杀后骨灰被火化工调包“配阴婚”，3人被刑拘](https://m.thepaper.cn/newsDetail_forward_15514493)
+*素材采编：幽蘭自得*
 
-[三观震碎！女主播喝农药自杀后骨灰被调包“配阴婚”！](https://www.163.com/dy/article/GPJ2PKHH0525WL9Q.html)
+*编辑：青衣青青*
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3-6.png)
-
-总编: 飞虹
-
-编辑: 飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
+*发布：miumiu*
 
  
 

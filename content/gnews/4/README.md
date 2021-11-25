@@ -2,33 +2,51 @@
 ---
 
 
-## 韩国单日新增新冠确诊数与重症数同创新高
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694846/)
+## 1月6日委员会在传票中捏造虚假证据
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1694865/)
 
-作者： 纽约香草山翻译部 – defiance
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月24日，韩国中央防疫本部公布，截至当天凌晨零时，韩国境内单日新增新冠病毒感染确诊病例达4087例——这是韩国首次单日确诊病例数突破四千例。另据数据显示，韩国单日新增的重症新冠病毒感染患者为586人，也创下了韩国自新冠疫情以来的历史新高。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9-16.jpg)
-资料显示，截止当地时间11月22日，韩国完成两剂完整新冠疫苗接种的民众比率已经达到78.4%，而至少接种了一剂新冠疫苗的民众比率是81.7%，另有3.8%的韩国民众已经接种了第三剂新冠疫苗。
+翻译：**Lulumi**
 
-鉴于韩国境内新冠疫苗注射率持续走高，但境内新增新冠病毒确诊人数及新冠重症患者数也随之增高的情况，相关评论表示，突破性感染与重症患者人数的率破新高让“新冠疫苗有效”成为了一句名副其实的谎言。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-9-9.jpg)图片来源：thenationalpulse.com
 
-参考链接：
-[韓國單日新增確診首度破4000例 重症人數也創高](https://www.cna.com.tw/news/aopl/202111240271.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+**证据显示，1月6日委员会在传唤主要右翼人物时说谎。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+前纽约警察局长伯纳德·凯里克的收费记录证明他离1月5日在华盛顿威拉德酒店举行的臭名昭著的会议300英里之外，《国家脉动》看到的如下一封法律信函指责伯尼·汤普森议员的委员会捏造证据。
 
-总编：Irene木木
-编辑：Lakeman(文仁)
-校正/发稿：Fei797
+汤普森1月6日的委员会最近传唤了前纽约市长鲁迪·朱利安尼的亲密伙伴凯里克。他们在信中断言：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+特别委员会的调查和公开陈述显示，有可靠的证据表明你参与了特别委员会调查范围内的事件。据报道，你参加了2021年1月5日在华盛顿特区威拉德酒店举行的会议，其中鲁道夫·朱利安尼、斯蒂芬·班农、约翰·伊斯特曼和其他人讨论了推翻2020年11月选举结果的方案，例如，向副总统彭斯施压，要求他不要认证选举团的结果……
+
+然而，凯里克在帕拉托法律团的律师周二进行了坚定的反击：
+
+我们从收到传票时就知道这是一个错误的指控，因为凯里克先生从未参加过任何此类会议。他甚至不在华盛顿特区，因为他在纽约处理一个家庭医疗紧急情况。虽然我们当时知道这个说法是错误的，但后来我们发现这实际上是一种捏造。
+
+你信中的这段话有一个脚注，引用了这一指控的两个来源，即鲍勃·伍德沃德的书《危险境地》，以及《华盛顿邮报》的一篇文章。然而，对这两个引文的审查很快表明，从来没有提出过这样的指控。《华盛顿邮报》的文章确实讨论了凯里克先生参与调查欺诈案的情况，但没有提到这次所谓的会议，而伍德沃德的书也没有声称凯里克先生参加了这次会议。事实上，对伍德沃德的书进行文本搜索后发现，“凯里克”这个词甚至一次都没有提到。
+
+1月6日委员会成员声称有“可靠的证据”证明凯里克1月5日在华盛顿的威拉德酒店。事实上，不存在这样的证据，这进一步突出了该委员会的闹剧性质及其对主要右翼人物的钓鱼行为。
+
+上周《国家脉动》披露，1月6日委员会主席与暴力、分裂主义团体有几十年的关系，而其他人如伊莱恩·卢里亚和亚当·希夫则与中共有大量联系。
+
+“美国国会发布新闻稿，说我将被调查，我被传唤，依据是我在1月5日与史蒂芬·班农、朱利安尼市长和伊斯特曼博士，也许还有其他一些人参加的会议，”凯里克在一份声明中说。
+
+“我没有参加1月5日的会议。（伯尼·汤普森）做了一个错误的声明。”他继续说。
+
+事实上，凯里克车上的EZPASS收费系统显示，他在1月4日晚从华盛顿特区沿I-95公路向北行驶。他在当晚7点13分左右进入特拉华州。晚上8点36分，克里克在进入他居住的纽约市郊区之前，从新泽西州高速公路的最后一个出口出来。
+
+第二天，即1月5日，当凯里克据称在白宫附近的威拉德酒店时，收费记录显示他两次穿过乔治·华盛顿大桥进入曼哈顿：一次在早上5点39分，另一次在下午2点24分。
+
+克里克于1月5日晚离开纽约。他于晚上11点51分在马里兰州北部支付了一笔通行费，而他在马里兰州和华盛顿之间的最后一笔通行费是在1月6日凌晨12点40分。
+
+**参考资料：**[thenationalpulse][REVEALED: Jan 6 Commission FABRICATED Whereabouts of Willard Hotel ‘War Room’ Attendee in Subpoena, Evidence Shows.](https://thenationalpulse.com/news/revealed-jan-6-commission-fabricated-whereabouts-of-willard-hotel-war-room-attendee-in-subpoena-evidence-shows/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
