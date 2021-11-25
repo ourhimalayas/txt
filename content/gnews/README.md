@@ -15,95 +15,95 @@
 
 ---
 
-### [神秘组织初探，盘点世界最强雇佣军](/content/gnews/1/README.md)
- ` 墨尔本雅典娜农场`
+### [2021年11月15-17日 郭先生视频重点内容整理](/content/gnews/1/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
 
-### [DC大中华时事：港府重启“网络23条”《版权条例》咨询](/content/gnews/2/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [看透生死你会发现人类最高灵魂和界,当下都是你的工具](/content/gnews/3/README.md)
+### [灭共过程是锻炼我们自己,能之所及都是新中国联邦的空间](/content/gnews/2/README.md)
  ` NewFOC`
 
-### [台湾问题：美国必须准备与中共国开战](/content/gnews/4/README.md)
- ` wenwu`
-
-### [是时候真的排干外国影响的沼泽了](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [接受你的货币金融系统捍卫你安全和信仰之处就是你的国](/content/gnews/6/README.md)
- ` NewFOC`
-
-### [《柳叶刀》罕见发表关于COVID-19疫苗的不同意见](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [因电力短缺，中共不得不恢复对澳煤的进口](/content/gnews/8/README.md)
- ` GTV新闻访谈`
-
-### [尽管高度接种 美国Covid死亡人数2021年仍超 2020 年](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [规管假新闻 贼喊捉贼的闹剧](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [墙内要闻汇编 11月25日](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [法国总统候选人抨击强制接种 称疫苗护照“毫无用处”](/content/gnews/12/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [威州游行杀手被控5项杀人罪 据称保释金500万美金](/content/gnews/13/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [航空界寻找行业颠覆者，谁将成为“埃隆·马斯克”？](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [祝战友们感恩节快乐](/content/gnews/15/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [加拿大医生说COVID mRNA疫苗是一种“旨在毒害人的技术”](/content/gnews/16/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [为了让美国参加冬奥会，中共愿花“大价钱”](/content/gnews/17/README.md)
- ` GTV新闻访谈`
-
-### [丹麦政府建议重新引入强制使用口罩](/content/gnews/18/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [佳兆业深陷债务危机 计划将4亿美元债券延期一年半](/content/gnews/19/README.md)
+### [美国贸易黑名单再添十几家与中共军方有关的中共国公司](/content/gnews/3/README.md)
  ` 日本东京方舟农场`
 
-### [以色列恐迎来第五波CCP病毒疫情爆发](/content/gnews/20/README.md)
- ` 澳喜特战旅Gnews`
+### [2021年11月13-14日 郭先生视频重点内容整理](/content/gnews/4/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
 
-### [生命的意义是什么？（第五集）](/content/gnews/21/README.md)
- ` 纽约香草山MOS03`
+### [加拿大生活美谈 2021-11-18第三十期](/content/gnews/5/README.md)
+ ` canadalifetalk`
 
-### [中共最高检发出“七号检察建议”推进寄递安全问题治理](/content/gnews/22/README.md)
- ` 儒为`
+### [神秘组织初探，盘点世界最强雇佣军](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [德克萨斯州一名医生被停职，被禁止给重症COVID-19患者服用伊维菌素](/content/gnews/23/README.md)
- ` 喜马拉雅农场新西兰站`
+### [DC大中华时事：港府重启“网络23条”《版权条例》咨询](/content/gnews/7/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/24/README.md)
+### [看透生死你会发现人类最高灵魂和界,当下都是你的工具](/content/gnews/8/README.md)
+ ` NewFOC`
+
+### [台湾问题：美国必须准备与中共国开战](/content/gnews/9/README.md)
  ` wenwu`
 
-### [11/25/2021 国际财经快讯：美国又把8家中共国企业列入禁运清单；美联储11月会议纪要：通胀压力消退所需时间或长于此前预期](/content/gnews/25/README.md)
- ` 秘密翻译组金融团队`
+### [是时候真的排干外国影响的沼泽了](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [赵长鹏真把自己当赵家人了](/content/gnews/26/README.md)
- ` 银河勇气之星`
+### [接受你的货币金融系统捍卫你安全和信仰之处就是你的国](/content/gnews/11/README.md)
+ ` NewFOC`
 
-### [秘翻在线：高失业率的中共国青年是因为“不差钱”？！](/content/gnews/27/README.md)
- ` 秘密翻譯組G-Translators`
+### [《柳叶刀》罕见发表关于COVID-19疫苗的不同意见](/content/gnews/12/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [找到生命真相：（二）我认为人类不需要宗教，但人类需要有信仰](/content/gnews/28/README.md)
- ` 纽约香草山MOS03`
+### [因电力短缺，中共不得不恢复对澳煤的进口](/content/gnews/13/README.md)
+ ` GTV新闻访谈`
 
-### [樱花灭共诗——盘古大观（新韵）](/content/gnews/29/README.md)
+### [尽管高度接种 美国Covid死亡人数2021年仍超 2020 年](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [规管假新闻 贼喊捉贼的闹剧](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年11月25日 澳喜要闻摘要](/content/gnews/30/README.md)
+### [墙内要闻汇编 11月25日](/content/gnews/16/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [法国总统候选人抨击强制接种 称疫苗护照“毫无用处”](/content/gnews/17/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [威州游行杀手被控5项杀人罪 据称保释金500万美金](/content/gnews/18/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [航空界寻找行业颠覆者，谁将成为“埃隆·马斯克”？](/content/gnews/19/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [中共北极“一带一路”再遭重击，格陵兰撤销中共铁矿石开采许可](/content/gnews/20/README.md)
+ ` GTV新闻访谈`
+
+### [祝战友们感恩节快乐](/content/gnews/21/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [加拿大医生说COVID mRNA疫苗是一种“旨在毒害人的技术”](/content/gnews/22/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [为了让美国参加冬奥会，中共愿花“大价钱”](/content/gnews/23/README.md)
+ ` GTV新闻访谈`
+
+### [丹麦政府建议重新引入强制使用口罩](/content/gnews/24/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [佳兆业深陷债务危机 计划将4亿美元债券延期一年半](/content/gnews/25/README.md)
+ ` 日本东京方舟农场`
+
+### [以色列恐迎来第五波CCP病毒疫情爆发](/content/gnews/26/README.md)
  ` 澳喜特战旅Gnews`
+
+### [生命的意义是什么？（第五集）](/content/gnews/27/README.md)
+ ` 纽约香草山MOS03`
+
+### [11/25/2021 国际财经快讯：美国又把8家中共国企业列入禁运清单；美联储11月会议纪要：通胀压力消退所需时间或长于此前预期](/content/gnews/28/README.md)
+ ` 秘密翻译组金融团队`
+
+### [赵长鹏真把自己当赵家人了](/content/gnews/29/README.md)
+ ` 银河勇气之星`
+
+### [樱花灭共诗——盘古大观（新韵）](/content/gnews/30/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [福建黑心团伙走私生锈胃肠镜 流向15省上百家医院](/content/gnews/31/README.md)
  ` 秘密翻译组-即时新闻播报组`
