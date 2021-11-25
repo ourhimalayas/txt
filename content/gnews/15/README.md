@@ -2,29 +2,50 @@
 ---
 
 
-## 加拿大官方承认幼童疫苗接种计划难以推行
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1695305/)
+## 中共打压报复曝光中学食堂使用腐烂食材者
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1695417/)
 
-采编： 文莱， 编译撰稿：文明(添草灭共)
-
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-6-edited.jpg)图片来源：TNH
-
-
-据加拿大自媒体《真北方》11月22日报道，【加拿大公共卫生局】负责人当天表示，尽管该国已批准了【辉瑞公司】产“新冠病毒”疫苗用于5-11岁儿童的接种计划，但说服父母为他们的孩子接种该疫苗可能会相当困难。
-
-据官方最新公布的“新冠病毒”疫情统计数据显示：从2020年初至今，加拿大已有168万人感染该病毒，死亡近3万人，其中14岁以下儿童死亡6人；尽管数据显示受感染最多的是20岁以下群体，约35万人，占所有病例的21%，但其住院比率仅为2%，大大低于其他年龄组患者。
-
-为此，《真北方》媒体创始人马尔科姆女士表示，以上这些官方数据并不支持联邦政府目前所制定的儿童疫苗接种政策，因为“新冠病毒”对儿童来说或许并不是致命的。
-
-* * *
-
-校对编辑，发稿：硫酸羟氯喹64
-
-原文链接：
+作者: 东京樱花团—在远方
 
 
 
-> [Six COVID-19 deaths among kids under 15 in Canada](https://tnc.news/2021/11/22/six-covid-19-deaths-among-kids-under-15-in-canada/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-4.png)
+
+
+
+当地时间11月23日，中共湖南汨罗官方对外回应宣称，关于22日，湖南某公司员工在网上曝光，该公司给当地中学和小学食堂使用腐烂食材一事，视频中所拍摄的腐烂食材均未进入分拣和清洗程序，否认有食品进入学生餐桌，也否认有食品安全事故发生，并且目前已将该员工开除。 据悉，中共打压报复曝光不良事件当事人，已经成为惯用的套路。上个月22日，中共河北省邯郸市临漳县实验中学5名家长，因在微信中揭露该学校学生食堂食物发黑、发臭，而被中共警方以所谓涉嫌寻衅滋事刑事拘留，其中4人被取保候审，1人被批捕，该事件引发了社会广泛关注，和网络舆情强烈不满。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2021-11-25-1-2.jpg)图片来源:网络
+
+参考阅读:
+
+[湖南汨罗城北中学和高泉小学食堂使用劣质食材](https://www.163.com/dy/article/GPI5OD400552ES0E.html)
+
+[湖南汨罗教育部门回应“中学食堂使用腐烂蔬菜”：未进入餐桌](https://finance.sina.com.cn/jjxw/2021-11-23/doc-iktzscyy7331478.shtml)
+
+[邯郸市5名学生家长涉嫌寻衅滋事被立案侦查](https://baijiahao.baidu.com/s?id=1714469292194116963&amp;wfr=spider&amp;for=pc)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-10.jpg)
+
+编辑: Irene木木
+
+校对/发稿：Petite abeille
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-1.png)
 
 
 

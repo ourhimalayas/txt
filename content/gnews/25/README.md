@@ -2,33 +2,34 @@
 ---
 
 
-## 有声|日越防长确认在海洋和网络领域合作 应对中共威胁
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1695067/)
+## 有声|GTV新闻访谈简报|2021年11月23日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1695240/)
 
-配音：香草山美食部 – 玫瑰园
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月23日，日本防卫相岸信夫，与到访的越南国防部长潘文江举行了会谈。双方就近期东海和南海局势交换了意见，对中共“依靠实力单方面改变现状的尝试”表达了强烈反对，表示要维持基于法治的国际秩序，开展合作。
-
-岸信夫对本月19日俄罗斯和中共各2 架轰炸机，在日本海和东海长途飞行一事表示，不排除中共与俄罗斯进一步深化军事合作的可能。从安全角度出发，日本将深度关切。
-
-据悉，两国还签署了推进网络安全领域防卫合作的备忘录。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-2.jpg)
+配音：香草山教育部 – 蒙古鸿雁
 
 
 
-文字版原文：[日越防长确认在海洋和网络领域合作 应对中共威胁](https://gnews.org/zh-hans/1690543/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-2.jpg)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1123text-SC.png)
+原文链接：[GTV新闻访谈简报|2021年11月23日晚](https://gnews.org/zh-hans/1690150/)
 
 音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
 
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-10.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://xn--%20%7Cgtv%20%20gtv-%20%7Cmos%20talk%20%20%20%7C%20gettr%20%20%20%7Cyoutube%20%20%7C%20discord-kw44l1t1gm8doayup218v624hpazvr1825bzx4emafxdws06012bhtnpta2axu46wua3ayv7960lnaiygzw1416y8vh370k17zmoajzj0ay/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,33 +2,31 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2021年11月23日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1695240/)
+## 加拿大官方承认幼童疫苗接种计划难以推行
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1695305/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-2.jpg)
-配音：香草山教育部 – 蒙古鸿雁
+采编： 文莱， 编译撰稿：文明(添草灭共)
 
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-2.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-6-edited.jpg)图片来源：TNH
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1123text-SC.png)
-原文链接：[GTV新闻访谈简报|2021年11月23日晚](https://gnews.org/zh-hans/1690150/)
+据加拿大自媒体《真北方》11月22日报道，【加拿大公共卫生局】负责人当天表示，尽管该国已批准了【辉瑞公司】产“新冠病毒”疫苗用于5-11岁儿童的接种计划，但说服父母为他们的孩子接种该疫苗可能会相当困难。
 
-音频处理：喜山必胜Maverick
+据官方最新公布的“新冠病毒”疫情统计数据显示：从2020年初至今，加拿大已有168万人感染该病毒，死亡近3万人，其中14岁以下儿童死亡6人；尽管数据显示受感染最多的是20岁以下群体，约35万人，占所有病例的21%，但其住院比率仅为2%，大大低于其他年龄组患者。
 
-发稿：Daxia
+为此，《真北方》媒体创始人马尔科姆女士表示，以上这些官方数据并不支持联邦政府目前所制定的儿童疫苗接种政策，因为“新冠病毒”对儿童来说或许并不是致命的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-10.jpg)
+* * *
 
-**更多资讯，更多关注**
+校对编辑，发稿：硫酸羟氯喹64
 
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://xn--%20%7Cgtv%20%20gtv-%20%7Cmos%20talk%20%20%20%7C%20gettr%20%20%20%7Cyoutube%20%20%7C%20discord-kw44l1t1gm8doayup218v624hpazvr1825bzx4emafxdws06012bhtnpta2axu46wua3ayv7960lnaiygzw1416y8vh370k17zmoajzj0ay/)
+原文链接：
+
+
+
+> [Six COVID-19 deaths among kids under 15 in Canada](https://tnc.news/2021/11/22/six-covid-19-deaths-among-kids-under-15-in-canada/)
+
+
 
  
 

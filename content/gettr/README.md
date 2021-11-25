@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/25/2021 10:08 PM (UTC)`
+
+11/25/2021 Miles Guo’s GETTR: Don't give your kids COVID jabs. There have been more and more cases of dropping dead, falling, and car accidents due to the COVID vaccines. Artemisinin is the antidote and has saved many people<br/><br/>11/25/2021文贵盖特：千万不要给孩子打疫苗，身边已经有太多疫苗倒、随地倒、车祸倒，一定记住青蒿素是解药, 很多人因吃青蒿素病情好转<br/>
+![img](https://media.gettr.com/group44/getter/2021/11/25/22/08/d66cb802-d320-6b93-f53a-d0bc880d4dce/out.jpg)
+
+---
+
+`@miles 11/25/2021 10:04 PM (UTC)`
+
+11/24/2021 Miles Guo: Xi Jinping’s regime is an absolute dictatorship, and Xi is living under illusion of being the CCP’s Gorbachev. The combination of Mao Zedong, Stalin, and Hitler is not even as crazy as Xi. It is the devilish system of the CCP that produced such a maniac!<br/><br/>11/24/2021 文贵直播：习近平政权是绝对独裁政府，习意淫自己是中共的戈尔巴乔夫。毛泽东、斯大林和希特勒的集合体都不及现在的习疯狂。只有中共这个魔鬼的体制才能培养出这样的狂人！<br/>
+![img](https://media.gettr.com/group39/getter/2021/11/25/22/04/947072fd-3c51-930c-d679-1bbfc327ed08/out.jpg)
+
+---
+
 `@miles 11/25/2021 9:39 PM (UTC)`
 
 11月25号：感恩伟大的美国，愿美国永远强大和安全……
@@ -282,20 +296,6 @@ Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Touch
 
 11/20/2021 [3rd Anniversary of 1120] Steve Bannon: Your rights as a human being are given by God, but the CCP, which is atheistic and materialistic, attempts to use technology to become God; we must make sure that technology is the service of mankind rather than the master of mankind<br/><br/>11/20/2021【1120三周年纪念】班农先生：你作为人的权利是神赋予的，但信仰无神论和唯物主义的中共却妄图利用科技来当上帝；我们必须确保科技是为人类服务的，而不是人类的主人
 ![img](https://media.gettr.com/group32/getter/2021/11/21/06/3d62db0d-7aa8-0961-6e29-10227b664849/out.jpg)
-
----
-
-`@miles 11/21/2021 6:28 AM (UTC)`
-
-11/20/2021 [3rd Anniversary of 1120] Miles Guo: Mr. Bannon is a truly faithful and noble person, who has never had any sex scandal and does not want to take Lao Baixing’s money. In contrast, the CCP is just so despicable<br/><br/>11/20/2021【1120三周年纪念】郭先生：班农先生是个真正有信仰的、高贵的人，他从未有任何性丑闻，也不愿意拿老百姓的钱，相比之下共产党简直太低级了<br/>
-![img](https://media.gettr.com/group38/getter/2021/11/21/06/28/2fb6c47e-098f-b3bb-138e-b2210dfc91fd/out.jpg)
-
----
-
-`@miles 11/21/2021 6:25 AM (UTC)`
-
-11/20/2021 [3rd Anniversary of 1120] Steve Bannon: Our New Federal State of China needs to cultivate more talents with entrepreneurial skills and those who understand business, finance and marketing. We can send them to the companies worldwide, where they will set up a good example of the Chinese people under the protection of rule of law, freedom, and democracy<br/><br/>11/20/2021【1120三周年纪念】班农先生：我们新中国联邦需要培养更多有创业技能、熟谙商业、金融和市场营销等方面的人才，我们可以把他们派到世界各地的公司里，他们将向世人树立中国人在法治、自由和民主保护下的好榜样
-![img](https://media.gettr.com/group45/getter/2021/11/21/06/25/9f2ad651-f450-e070-a73a-558468b95f6a/out.jpg)
 
 ---
 

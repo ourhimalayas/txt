@@ -2,52 +2,74 @@
 ---
 
 
-## 美国驳回中国电信继续在美国运营的申请
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1695103/)
+## 新斯科舍省发布新冠疫苗不良反应死亡数据
+` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1695271/)
 
-作者：纽约香草山农场 – 四季
+作者：反叛新闻
+翻译：HimaCoby
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-172.jpg)
 
+新斯科舍省政府发布了个人接种第一剂或第二剂新冠疫苗后不久登记的死亡信息，但声称信息系统无法追踪疫苗是否导致了这些死亡。
 
+10 月， 向政府提出的信息自由请求要求提供以下两组的信息，按年龄段划分，时间范围为 2020 年 12 月 19 日至 2021 年 10 月 3 日：
 
-
-
-11月24日，美国联邦通信委员会（FCC）要求联邦上诉法院驳回中国电信公司要求继续在美国提供服务的申请。此前，美国电信监管机构于10月26日下令中国电信在1月初停止其在美国的服务，并撤销了其运营授权。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1519-1.jpg)2009年3月24日，香港。展示于新闻发布会上的中国电信公司标志。（REUTERS/Bobby Yip）
-
-联邦通信委员会说，中国电信“受到中共国政府的剥削、影响和控制，极有可能在没有充分的法律程序、接受独立司法监督的情况下，被迫遵守中共国政府的要求。”
-
-处于国家安全考虑，美国联邦通信委员会在3月，先后撤销了中共国联通美洲公司、太平洋网络公司及其全资子公司ComNet在美国提供电信服务的授权。2019年5月，委员会一致投票否决中共国国有电信公司——中国移动有限公司提供美国服务的权利。并在去年认定华为技术公司和中兴通讯公司为对美国通信网络的国家安全威胁。
-
-**参考阅读：**
-
-[U.S. opposes China Telecom’s bid to continue U.S. operations | One America News Network (oann.com)](https://www.oann.com/u-s-opposes-china-telecoms-court-bid-seeking-to-block-fcc-action/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
+- 新斯科舍省在接种新冠疫苗后 14 天内（第一次或第二次接种后 14 天内，差异较小）死亡的人数
+- 以及新斯科舍省因新冠疫苗而死亡的人数
 
 
+卫生和健康部副部长克雷格·比顿 (Craig Beaton) 回复了请求，政府文件澄清说，数据仅包括“报告为新冠疫苗接种后不良事件 (AEFI) 的死亡人数”，并补充说，虽然报告的死亡人数是“与接受新冠疫苗（在 14 天内）有时间关联”，但“并不意味着个人因接受疫苗而死亡。”
 
-**更多资讯，更多关注**
+### 政府回应：接种新冠疫苗后六人死亡
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+为了响应有关第一组信息的请求，按年龄组划分的新冠14 天内 AEFI 死亡人数。新斯科舍省记录了 6 例死亡：
 
 
+| 年龄阶层 | 死亡人数 |
+| --- | --- |
+| 12-19 | 0 |
+| 20-29 | 0 |
+| 30-39 | 0 |
+| 40-49 | 0 |
+| 50-59 | &lt;5 |
+| 60-69 | 0 |
+| 70-70 | &lt;5 |
+| 80-89 | &lt;5 |
+| 90+ | 0 |
+| 全部的 | 6 |
 
 
+为响应有关第二组信息的请求，新斯科舍省因新冠疫苗而死亡的人数政府回应解释说，他们的“信息系统”无法追踪因果关系：
+
+信息系统捕获在接种新冠疫苗后死亡的人，但不捕获因果关系（即与疫苗时间相关的死亡而不是与疫苗死亡的因果相关）。
+
+### 用于医疗保健和教育的强制性疫苗即将推出
+
+从11 月 30日开始，包括公务员、卫生保健工作者、长期护理和家庭护理工作者、教育工作者和日托工作者在内的某些部门的工人将被要求至少接种一剂新冠疫苗或面临无薪休假.
+
+州长蒂姆休斯顿和卫生首席医疗官罗伯特斯特朗博士本周将重点放在强制法官接种新冠疫苗上，他们的职位不是公务员，因此不受与联邦和联邦相同的政策或监督的约束。
+
+根据政府追踪软件，近 80% 的新斯科舍人被认为已完全接种疫苗。
+
+来源：https://www.rebelnews.com/ns\_releases\_data\_on\_covid\_vaccine\_adverse\_reaction\_deaths
+
+（文章仅代表作者个人观点）
+
+**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+
+欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+
+**关注我们**
+
+Discord 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+
+Gettr 账号
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
 
  
 
