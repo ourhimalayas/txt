@@ -2,98 +2,53 @@
 ---
 
 
-## 超发货币将使数字货币代替法币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1692532/)
+## 2021年11月24日郭文贵先生直播摘要——银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1692908/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/hh-a3a4l-koqqt.jpg)
-[https://gtv.org/video/id=619e3cbfabc44c39e083f4d6](https://gtv.org/video/id=619e3cbfabc44c39e083f4d6)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/snapshot_副本-5.jpg)
+视频连接：[2021年11月24日 文贵大直播：北京深圳香港交易所；病毒疫苗灾难与解药；喜币喜联储GTV股票；新中国联邦灭共使命](https://gtv.org/video/id=619e389338f84e66c64ec66b)
 
-**郭文贵**
-**Miles Guo**
+1、美国股市崩盘还没有到，崩盘肯定是断崖式下跌；
 
-现在由于超发货币，给世界带来了什么样的结果呢
-What kind of results have been brought to the world due to over printed cur-rency?
+2、新GTV 已经投资的和承诺投资截至到12月30日，新的资金一律不在接受了，已经进来的喜美元可以接受；
 
-一定会世界经济大崩溃，但是它触发了两种事件的发生
-It must be a major collapse of the world economy, but it triggered two events
+3、币安 已经无法提现，币安把所有人KYC资料交给了共产党，买了“币安”战友找英喜大卫或者各农场主，有币安账户的人一定要联合发起诉讼；
 
-第一，2020年到现在，让世界上有了数字货币，
-First, from 2020 to now, the world have crypto currency
+4、为了维护战友的共同利益，有“福利币”的战友接受三年封闭期，联盟会统一安排操作；
 
-就像二战，搞出了灭掉英镑和美元的布雷顿森林体系
-Just like World War II, it occurred the Bretton Woods system in American dol-lars that wiped out the British pound
+5、七哥说三周震撼消息，只能透露一点点，喜联储会有惊天并购；
 
-一战当时搞出了欧洲的大英帝国，几大家族，罗斯柴尔德，
-World War I created the British Empire in Europe, there are several big fami-lies, like Rothschild
+6、疫苗灾难：国内儿童死亡，死胎率，畸胎率，心包炎，心肌炎，交通事故，数不胜数，医院爆满；
 
-罗斯柴尔德就是借给战争黄金， 就是金币的，
-Rothschild lent gold to the war which is gold coins
+7、什么是疫苗灾难？每一个人背后都是一个家庭，都是一份工作。一个病人，都会导致家庭的撕裂。如果不是死亡，而是瘫痪，会对家庭更大的灾难。当这些家庭都是医务工作者，社会如何承担这些灾难？当金融系统无法运作时，有钱和没钱是一个结局，法律系统无法工作，如何维护社会公正？
 
-给人家一个王国agent的，就是今天说Hpay代表啊
-Rothschild was the agent for a kingdom, that is like Hpay today
+8、疫苗的灾难绝对是人为的设计，是共产党和西方这些贪婪的王八蛋们制造的现代化灾难；
 
-就出了罗斯柴尔德呀，一战后，然后美国催生出来的
-It just come out Rothschild after World War I, then the United States spawned
+9、共产党的股市就是赌局，不是金钱也不是金融市场，没规则、不透明、不受监管、唯一的一个股东和老千就是共产党，你怎么可能赢？
 
-就是当时的洛克菲勒，是不是，就这几大家族啊
-It was Rockefeller at the time, right? It was just these big families
+10、收集胡锡进、司马南、方舟子等畜生的反人类言论，以种族歧视等罪名起诉它们。这事很大，它们的言论会让华人处于极大危险之中；
 
-然后就是摩根斯坦利就出来了，就是因为二战以后的布雷顿森林体系废掉了英镑
-Then Morgan Stanley came out because the Bretton Woods system after World War II abolished the British pound
+11、只关注喜币价格的，不接受联盟统一管理的，一律出局。
 
-都是战争和经济灾难，1913年到1919年的一战、西班牙大流行病和经济灾难，大萧条
-because wars and economic disasters, the World War I from 1913 to 1919, the Spanish flu pandemic and economic disaster, the Great Depression
+编辑整理：文俊；
 
-到了胡佛总统时期，吧唧上来了，美国诞生了
-Then to the period of President Hoover and the United States was born
+发布：黎明之前
 
-二战过去了，是吧，英国完蛋了，英镑结束了，美元起来了搞了美联储，
-World War II is over, right? Britain is over, the pound is over, the dollar is stable and set up the Federal Reserve
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
 
-美联储上千个个人股东，到现在控制了美国印发美元
-Thousands of individual shareholders of the Federal Reserve now control the U.S. printing and distribution of U.S. dollars
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-本来美元要和黄金挂钩的，最后不挂钩了，变成了信用美元，变成了法币
-The U.S. dollar was originally pegged to gold, but in the end it was not pegged, it became the credit U.S. dollar and became fiat currency
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-这次就是彻底地把过去的金本位和所有的最后的和金本位挂钩的唯一全球货币，美元
-This time it’s the complete removal of the old gold standard and all the last and only global currency tied to the gold standard, the US dollar
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-从过去的中心化币，变成了完全虚假的中心化币
-From the past centralized currency to a completely fake centralized currency
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-完全变成了废币，纸币，这就是到了什么时代催生了数字货币
-It has completely become waste money, paper money, this is what spawned to the arrival of the crypto currency era
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-数字货币的目的达到什么，结束了真正的人类历史上法币
-What is the purpose of crypto currency? it’s ending the fiat currency in human history
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-法币的整个虚假时代，包括金本位都是假的
-The entire fake era of fiat currency, including the gold standard is fake
-
-法币将逐渐退出历史舞台，未来就是数字货币
-fiat currency will gradually exit the stage of history, and the future is crypto currency era
-
-**原视频链接:**[https://gettr.com/post/phiqrf6537](https://gettr.com/post/phiqrf6537)
-
-Date:11/23/2021
-原视频标题: 超发货币 将使数字货币代替法币
-Over printed currency will enable cryptocurrency to replace fiat currency
-原视频日期：2021/11/19
-原视频链接https://gettr.com/post/phiqrf6537
-任务编号：KC284（2972）
-视频时间段 : 0:00-2:10
-
-中听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike LI
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

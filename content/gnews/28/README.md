@@ -2,36 +2,55 @@
 ---
 
 
-## 大重置会给你$12,000买辆电动车 但不能是特斯拉
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1695011/)
+## 【Michael Tonny 专栏】如何预防和治疗中共病毒
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1695039/)
 
-编译： Jenny Ball
+加拿大温哥华扬帆农场 Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/michael-2.jpg)
+自从CCP利用中共病毒（COVID-19）向全世界发动生化武器战争以来，截止到美东时间2021年11月24日，不包含中共刻意隐瞒的中共国内数据，全世界共有2.59亿人被中共病毒感染，5,17万人被戮杀！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/zumaamericasthirtytwo925260-800x450-1.png)（多米尼克·索科托夫/ZUMAPRESS/Newscom）
+如何治疗中共病毒感染者，如何防治中共病毒，是全世界必须面对的话题。
+疫苗是全世界政客热衷的话题，下图分别是疫苗接种率和病毒感染率的统计结果。
 
-周五，众议院通过了乔·拜登总统的签名立法《大重置法案》。尽管比最初提出的要小得多，但该法案仍然充斥着民主党的愿望清单项目，包括气候变化、儿童保育、探亲假和移民政策。预计该法案在到达参议院时将面临反对，并可能会受到一些修剪。一项明显要放到砧板竞争而出的法案。
+北美有54.08%的疫苗完全接种率，中共病毒感染率为9.5%；欧洲疫苗完全接种率为57.1%，病毒感染率为9.53%；南美疫苗完全接种率为56.02%，病毒感染率为8.93%。非洲仅有6.94%的疫苗完全接种率，但感染率却不到0.62%。
 
-作为拜登控制碳排放计划的一部分，该法案包含一项条款，该条款将为任何购买电动汽车 (EV) 的消费者提供 7,500 美元的退税，包括全电动和插电式混合动力汽车。但是，如果汽车是在有工会的美国工厂制造的，则该金额增加 4,500 美元，如果车辆包含美国制造的电池，则增加 500 美元。
+说明注射疫苗对预防中共病毒毫无帮助，很多数据分析结果和资料甚至说明，接种疫苗，有助于中共病毒传播。
 
-从表面上看，这项规定是拜登“购买美国货”政策的一部分，该政策鼓励或强制要求在国内进行购买。实际上只是延续了川普贸易政策的保护主义，增加了纳税人的成本。然而，**电动汽车信贷提议更加令人震惊，因为它不仅激励特定类型的产品，而且激励特定品牌。**
+所以，不要打疫苗，就是对付中共病毒的重要预防措施。
 
-如果按书面规定颁布，4,500 美元的 EV 积分奖励仅适用于福特、通用汽车和 Stellantis（前身为菲亚特克莱斯勒）制造的汽车。换句话说，想要购买混合动力丰田凯美瑞的司机没有资格获得额外的钱，**即使这辆车是在肯塔基州制造的**，美国新闻与世界报道将其评为具有“极好的”可靠性。但是，如果该购物者选择购买最近因电池着火而停止生产的雪佛兰Bolt，他们将获得额外的折扣。事实上，在目前市场上的 50 多辆电动汽车中，目前唯一有资格获得额外收入的车辆是 Bolt 的两种变体。
+在感染中共病毒患者的治疗方案中，《[COVID-19 treatment studies for Hydroxychloroquine》](https://hcqmeta.com/)对羟氯喹治疗中共病毒患者做了非常深入的研究，Zelenko博士（大胡子医生）在视频节目中，根据自己的数千名患者临床实践经验，对羟氯喹方案、伊维菌素非常推崇。
 
-这是这项政策最有害的地方：它不仅是美国公司的全面优势（这已经够糟糕了），而且是对美国汽车工人联合会 (UAW) 的明显赠品。10 月，当拜登访问 UAW 职业培训中心时，他吹嘘 EV 提案说“我想要密歇根州的这些工作”——而不是像田纳西州或肯塔基州那些州的工作，在这些州，UAW 的成员资格不太确定。
+2021年11月18日，第161期《COVID-19 treatment studies for Hydroxychloroquine》发布的《HCQ for COVID-19: real-time meta analysis of 298 studies》结论中，对中共病毒的患者早期实施羟氯喹治疗方案，给出了非常肯定的结论。
 
-**事实上，很明显，工会方面的政策比实际的消费者激励更重要。**正如《华尔街日报》上周报道的那样，该条款的合著者、众议员丹·基尔迪 (Dan Kildee) 表示，“在通用汽车和美国汽车工人工会建议“包括明确支持工会的重要性”后，他将奖金包括在法案内。“
+对共有413,756名患者参与的298项羟氯喹治疗Covid-19临床研究的实时元分析结果表明，对感染中共病毒的患者早期应用羟氯喹治疗方案，有64%的患者有效；而羟氯喹用于晚期治疗则仅有19%的患者取得了积极的效果，不太成功；应用于非常晚期的，无效且可能有害，尤其是在使用过量剂量时。
 
-作为一种不仅减少碳排放而且减少废气污染的手段，转向电动汽车是一个非常值得称赞的步骤（尽管绝不是灵丹妙药）。但是，当转型是通过行政命令，而不是消费者选择，或市场激励来完成时，就有可能破坏整个目标。在这种情况下，客户因政治原因而受到推动：给拜登党的一个关键选区的回扣。
+Zelenko博士（大胡子医生）是COVID 临床治疗的杰出专家之一，他是使用羟氯喹的早期倡导者。
 
-**参考资料：**[reason][The Build Back Better Bill Will Give You $12,000 for Buying an Electric Car. Unless It’s a Tesla.](https://reason.com/2021/11/24/build-back-better-includes-expensive-giveaway-to-auto-unions/)
+2021年11月23日，Zelenko博士在接受Gateway Pundit访谈中说，羟氯喹是最强大和最有效的锌离子载体之一（或锌传递系统），可以通过它让锌进入细胞以抑制病毒复制的机制。
+
+他已经在孕妇、儿童、哺乳期妇女身上使用过它……，根据他治疗数千名患者的临床经验，认为羟氯喹方案是绝对可以挽救生命、是安全的。
+
+在谈到伊维菌素时，大胡子医生认为伊维菌素是一种廉价，非常好的药物和有效解决中共病毒危机方案。
+
+最后，笔者也提出一种或许是预防和治疗中共病毒的最佳方案，那就是，要消灭中共病毒，必须先消灭CCP！
+
+参考资料：
+
+[HCQ for COVID-19: real-time meta analysis of 298 studies](https://hcqmeta.com/)
+
+[EXCLUSIVE VIDEO: Dr. Zelenko to The Gateway Pundit: CDC’s Response to COVID-19 “A Crime Against Humanity. Mass Murder. And Genocide…”](https://www.thegatewaypundit.com/2021/11/exclusive-video-dr-zelenko-gateway-pundit-cdcs-response-covid-19-crime-humanity-mass-murder-genocide/)
+
+[Scientists “Mystified” Over Africa’s Low Vax Rate and Low COVID Numbers](https://www.thegatewaypundit.com/2021/11/scientists-mystified-africas-low-vax-rate-low-covid-numbers/)
+
+[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
+
+[Data on COVID-19 (coronavirus) by Our World in Data](https://github.com/owid/covid-19-data/tree/master/public/data)
+
+[COVID-19 situation update worldwide, as of week 45, updated 18 November 2021](https://www.ecdc.europa.eu/en/geographical-distribution-2019-ncov-cases)
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+编辑/发稿：云起时
 
  
 

@@ -2,37 +2,29 @@
 ---
 
 
-## SLOVENIA危机：吹哨人称政治家合伙骗人民打疫苗
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1695021/)
+## 有声|郭文贵先生临时直播爆料 本周三件大事
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1695065/)
 
-**编译：西班牙巴塞罗那喜悦农场-wenwu**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip64.png)图片来源：dailytelegraph.co.nz
-东欧国家斯洛文尼亚（**SLOVENIA**）发生了一场危机，一名吹哨人（护士）告诉公众，政客合伙其他高级公民（富人）接受的是**“3**号**”**生理盐水，而不是** mRNA **实验药物（也就是说，疫苗制药厂合伙政府和富豪屠杀人民）。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+2021年11月22日，郭文贵先生盖特直播，透露了本周的三件大事。 首先，GTV要升级，会有一系列的行动，提醒拥有喜币的战友，虽然有6成的控制权，但没有喜联储的股权。进入GTV系统，才是gclub, gfahion,喜联储的股东，才有铸币权，享受千秋万代的利益。 其次，所有gclub投资者，拥有每个国家和地区HPay的优先代理权。 第三，有人冒充战友骗了币，影响到农场喜币的额度，农场有权把币取消，所有不配合联盟行动的，都不是战友。中东迪拜，一系列的公布，证明着喜币的价值，战友更应该了解喜币价值！
 
-在（已被 YouTube 删除的）[Facebook 上的一段视频中](https://www.facebook.com/stoplaznivimmedijem/videos/190515176301913/)，这名自称是在卢布尔雅那（Ljubljana）大学医学中心（负责接收和管理政客注射瓶的）女护士长已经辞职，并就此政治丑闻召开了新闻发布会。她说，她亲自见证了所有政治家和富豪的打针过程，所有收到“1号”瓶的人，都声称他们收到的是生理盐水，是安慰剂。这就解释了为什么政客们通过主流媒体拍照时，是由同一个人给他们打针。
+文贵先生表示：疫苗灾难2022年5月真正开始，爆料革命要停止疫苗对全世界人类的迫害，病毒真相和新冠疫苗解药，都来自新中国联邦。无论发生什么，灭共是使命，违背灭共目标是不行的。
 
-在会议期间，她展示了瓶子上的代码，其中每一个都包含1、2或3位数字，然后解释这些数字的含义。
+文字版原文：[郭文贵先生临时直播爆料 本周三件大事](https://gnews.org/zh-hans/1690721/)
 
-注：《每日电讯报》从我们在斯洛文尼亚的消息来源了解到，原始视频现在已经从Facebook上删除。
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-“1号”是安慰剂，盐水；“2号”是mRNA；“3号”是一个 mRNA stick，包含 onco 基因，与导致癌症发展的腺病毒有关。她说那些接受“3号”瓶的人（美国红州）将在接受疫苗注射后的两年内，患上软组织癌症。
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-补充：
-
-来自推友（[@deNutruents](https://twitter.com/deNutrients/status/1463369583323189250?s=20)）于2021年11月23日分享：编码中带有“01”的疫苗批号是生理盐水溶液类型（附两图），这是由一名女护士长说的。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip65.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip66.png)
-
-**新闻来源**：[dailytelegraph.co.nz] [CRISIS IN SLOVENIA: WHISTLEBLOWER NURSESAYS POLITICIANS RECEIVE SALINE INSTEAD OF MRNA JAB](https://dailytelegraph.co.nz/covid-19/crisis-in-slovenia-whistleblower-nurse-says-politicians-receive-saline-instead-of-mrna-jab/) | 发布时间：2021年11月24日
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

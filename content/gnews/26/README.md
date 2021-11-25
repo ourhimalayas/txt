@@ -2,25 +2,31 @@
 ---
 
 
-## 中共的“劫富济豪”－中共是富可敌地球的土豪
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1695022/)
+## 有声|美军舰依法穿越台湾海峡
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1695066/)
 
-作者： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-25-183140.jpg)图片来源 ：G-TV
-今天（11月24日）文贵先生在5个多小时的大直播中，用很大一段声讨中共犬儒司马南，这个王岐山豢养的狗，狂咬中华民族少有的成功私人企业家、实业家、联想集团创始人柳传志先生。柳传志先生不仅为中共国的IT产业培养了一大批精英人才，而且是中共国现在仅有不多的在世界上受到同行认可的实业家。但是，随着中共新一波“打土豪分田地”收割韭菜的开始，所剩无几的“肥壮韭菜”几乎无一幸免，如阿里巴巴的马云、腾讯的马化腾等，包括联想的柳传志。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+美国第七舰队发表声明，当地时间11月23日，一艘美军导弹驱逐舰依照国际法，穿越了台湾海峡。
 
-为了给老百姓打鸡血，美其名曰“杀富济贫”，而实质是劫持了这些富有的企业家的财富，不仅一分钱没有济贫，而抢劫的财富如数进到了中共高层这几个“富可敌一个地球”的盗国贼的腰包，而贫困的阶层将更加贫困，因为这些企业不能再为他们提供就业，与企业相关的上下生产链全都面临破产，中共根本不在乎老百姓死活，需要时百姓用来充当打土豪的枪手，之后，哪怕“人们3年吃草”，中共都认为是对人民很恩惠了。
+该声明重申了美国长期以来的立场，即美军可以在国际法允许的任何地方行动。
 
-永远不要听信中共说什么，连中共自己的《人民日报》前主编都在自己自传中写道：人民日报连标点符号都不能信！
+近日来，中共加大了对台湾的军事压力，引发了美国、日本和欧盟对台海局势的忧虑。
 
-多亏爆料革命引领人文贵先生30年卧薪尝胆，没有文贵先生第一手中共高层和各界的真相揭露，别说西方人被中共所迷惑，连像我这样在中共国长大的战友，也没能认识到一直被灌输的“比爹亲、比娘亲”的中共不代表中共国人，不代表中共国，而中共国人民的一切灾难，都是因为这个邪恶的流氓共产党。今天世界人民从病毒和疫苗的灾难中也认识到，中共是灭绝人类的恶魔！中共国共产党不仅要在中共国“劫富济豪”，也不会放过全世界的财富！
+文字版原文：[美军舰依法穿越台湾海峡](https://gnews.org/zh-hans/1690531/)
 
-* * *
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-*审核：Aries的星
-校对：信心满满
-发布：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
