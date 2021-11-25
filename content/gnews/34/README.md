@@ -2,26 +2,23 @@
 ---
 
 
-## 国际舆论谴责奥委会主席为中共洗地
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1692247/)
+## 保护战略产业 意大利三度否决中共收购案
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1692249/)
 
-作者：纽约香草山文艺部 – 宁文静
+作者：纽约香草山 医疗部 云豹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月23日的消息显示，为平息舆论，国际奥委会主席托马斯·巴赫于21日与网球选手彭帅进行了30分钟的视频通话。事后，国际对彭帅事件的关注非但没有降低，国际舆论反而强烈地批评巴赫为中共洗地，沦为中共的帮凶。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-25-上午1.18.50.png)
-对此，世界球员协会发表声明称，国际奥委会一直故意限制运动员的言论自由，为了优先考虑与中共的关系，拒绝提及彭帅的性侵指控。同时，球员协会呼吁成立特别代表团与彭帅见面。另有媒体消息评论道， 国际奥委会此次的“静默外交”无非是为了中共进行的“公关特技表演”。 而一直持续为彭帅发声的女子网球协会主席史蒂夫·西蒙在最新的官方声明中表示，仅靠奥委会的这个视频不能够证明彭帅的健康和安全，彭帅的性侵犯指控正在被中共审查和掩盖。
+当地时间11月18日，意大利政府作出决定，根据2012年制定的《黄金权力法案》，以保护“对国家利益具有重要战略意义的资产”为由，否决具有中共背景的合资公司意图收购“应用材料”公司在意大利的屏幕印刷设备企业的申请案。据了解，该合资公司由中共浙江晶盛机电股份有限公司与半导体设备厂应用材料香港公司共同成立。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-25-上午1.19.01.png)
+上个月，意大利总理德拉吉已经否决了中共企业先正达集团对蔬菜种子生产商Verisem的收购案。而在今年4月，他还否决了中共深圳创疆投资控股公司收购米兰一家半导体设备生产商的申请。
 
-消息中还提到，其他社会各界对国际奥委会的批评直接且犀利，认为奥委会太过无耻，只重利益不讲原则，仍在试图挽救中共的冬奥会，并为此成为专制政府的宣传工具。评论人士声讨称，奥委会的主席应该辞职，并且世界必须抵制中共2022冬奥会。
+另外，对于三年前中共企业试图隐瞒资金来源收购意大利军用无人机制造厂商的案件，相关部门正在调察中。若调查后证实该公司确为中共在背后控制的企业，该收购案也必定被否决。
 
-参考链接：
-1)[https://twitter.com/teachjourno/status/1462485736196874246?s=21](https://twitter.com/teachjourno/status/1462485736196874246?s=21)
-2)[World Players: IOC’s call with Peng Shuai exacerbates alarm, special delegation needed](https://www.uniglobalunion.org/news/world-players-iocs-call-peng-shuai-exacerbates-alarm-special-delegation-needed)
-3)[Statement by Steve Simon, WTA Chairman & CEO on recent video posted by China state-run media of Peng Shuai](https://www.wtatennis.com/news/2361225/statement-by-steve-simon-wta-chairman-ceo-on-recent-video-posted-by-china-state-run-media-of-peng-shuai)
+参考链接：[義大利護戰略資產 總理德拉吉三度否決中資收購企業](https://www.cna.com.tw/news/firstnews/202111240005.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
 总编：Irene木木
-编辑：Lakeman(文仁)
+编辑：文真
 校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
