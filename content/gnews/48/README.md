@@ -2,22 +2,23 @@
 ---
 
 
-## 墙内民生：女主播抑郁自杀，骨灰被调包配阴婚
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1692830/)
+## 美国意图打破战略模糊 增加驻台兵力
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1692832/)
 
-作者：纽约香草山教育部 – Noemi
+作者：东京樱花团 – 在远方
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-当地时间11月23日，墙内媒体报道，中共国内一位女主播在自杀身亡后，其骨灰被火化工偷偷调包去配阴婚。
+11月24日，台湾媒体引述美国方面的消息说，美国国防部正悄悄向台湾增派兵力，以保护美国大使馆并训练台湾军队。
 
-据了解，这位女主播是一名抑郁症患者，在直播期间因不堪直播间内观众的网暴和怂恿愤而喝药自杀。悲剧发生后，此事件曾在网络上一度发酵。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture3-19.jpg)
-舆论还未平息，近日又有人爆料称，该女主播遗体被火化后，火化工并未将骨灰移交给家属，而是借机调包，卖给了需要配阴婚的人，以此牟利。而据知情人透漏，这一现象在墙内的殡仪行业中并不稀奇，这次事件被曝光是由于同行竞争，有人眼红。
+目前，驻台美军已经达到39人，其中29名陆战队员、5名空军，3名海军2名陆军官兵。尽管数量仍不多，但增幅明显，几乎已达到去年的两倍。并且在过去两年中，美军开始训练台军进行陆上武装抵抗，以帮助台军击溃中共的两栖攻击。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture6-5.jpg)
+美国方面称，驻台美军人数稳定增长，代表华盛顿对台海形势的担忧。更多国防专家开始怀疑美国的战略模糊政策，认为并不利于吓阻中共犯台，他们希望拜登政府在公开支持台湾方面采取更强硬的立场。
 
-目前，女主播的骨灰已被接回。
+与此相关，美国另有杂志10月披露，美国陆军绿色贝雷帽特种部队，正在就高强度战斗轮番训练台军。而形成对中共的封锁与包围，正是美国重要的考量之一。
 
 参考链接：
-1. [墙内民生：女主播抑郁自杀，骨灰被调包配阴婚](https://m.thepaper.cn/newsDetail_forward_15514493)
-2. [墙内民生：女主播抑郁自杀，骨灰被调包配阴婚](https://www.163.com/dy/article/GPJ2PKHH0525WL9Q.html)
+1. [美国意图打破战略模糊 增加驻台兵力](https://news.ltn.com.tw/news/world/breakingnews/3746916)
+2. [美国意图打破战略模糊 增加驻台兵力](https://foreignpolicy.com/2021/11/18/pentagon-biden-troops-taiwan-china/)
+3. [美国意图打破战略模糊 增加驻台兵力](https://africa.businessinsider.com/military-and-defense/us-green-berets-whove-trained-taiwanese-troops-explain-how-they-could-fight-china-and/z0xq29m)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 

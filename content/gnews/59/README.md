@@ -2,22 +2,31 @@
 ---
 
 
-## 美国邀请台湾召开民主峰会，孤立中共
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1691232/)
+## 班农的愿景－川普耳边人正在组织一场平民主义革命
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1691365/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-188.png)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fpub.creaders.net%2Fupload_files%2Fimage%2F202111%2F20211123_16377193708295.png&amp;imgrefurl=https%3A%2F%2Fnews.creaders.net%2Fus%2F2021%2F11%2F23%2F2422968.html&amp;tbnid=buuPPnChg04TOM&amp;vet=12ahUKEwjQvrnQ5LD0AhWFNHIKHWHgAx4QMygEegUIARCFAQ..i&amp;docid=Sk3cGyvGcAzMnM&amp;w=617&amp;h=341&amp;q=%E6%B0%91%E4%B8%BB%E5%B3%B0%E4%BC%9A&amp;ved=2ahUKEwjQvrnQ5LD0AhWFNHIKHWHgAx4QMygEegUIARCFAQ)
-11月24日中国台湾网报道，中共国务院台湾事务办公室上午举行例行新闻发布会，美国务院公布将于12月召开“民主峰会”，将“台湾”列入官网，大陆未在名单内，发言人已明确表示，坚决反对美国与中国台湾地区进行任何形式的官方往来，这个立场是一贯的、明确的，并敦促美方切实恪守一个中国原则和中美三个联合公报规定，妥善处理涉台问题。
+编译： Jenny Ball
 
-在一周前11月16日中共国习近平和美国总统拜登时长3个半小时视频会晤，拜登就台湾问题进行了最新表态，拜登称美方不寻求改变中国体制，并且不会支持“台独”。而今天所作出的行动确是告诉中共国，召开民主峰会台湾属于民主政体，是可信赖的朋友，中共属于一党专政独裁体制，排除在世界民主国家之外，并将与民主国家一起围堵孤立中共。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-2-7.jpg)盖特视频截图
 
-信息来源：
+嘲笑史蒂夫·班农。继续嘲笑。嘲笑他头发花白、蓬头垢面、像厨房一样的风度和多层超大号正装衬衫。对食人魔虚荣的言辞翻白眼。“我从不退缩，”班农在本周出庭后说，他因藐视众议院 1 月 6 日特别委员会的传票而被控藐视法庭。“我们正在推翻拜登政权。”
 
-[美国务院公布将于12月召开“民主峰会”，将“台湾”列入官网，大陆未在名单内，国台办回应](https://mq.mbd.baidu.com/r/wUtnEquGic?f=cp&amp;rs=4274366899&amp;ruk=fAjvTKDNA9tzZXQ7Zje4kQ&amp;u=781cdcf4132796a6)
+我们是谁？平民主义！十年前，班农通过兴高采烈在布莱巴特网站（Breitbart）帮助发起和塑造了平民主义、本土主义运动。2015 年，班农利用这一运动影响了一位名叫唐纳德·川普的纽约市房地产大亨。班农解释说，他是“我们的重磅利器”。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+班农在 2020 年大选后回到了川普的圈子里。他的“作战室”告诉受辱的总统，是的，选举被盗了，结果可能会被推翻。在 1 月 5 日的播客中，班农建议他的平民主义军队：“系好安全带，所有的地狱都会被打破。”他对第二天对国会大厦的暴力袭击了解多少——还有谁知道呢？
+
+当然，班农有大众在他身后，他不需要屈服于“精英们”愚蠢的传票。“我们正在接管学校董事会，”挑战者班农说。“我们正在以选区委员会的策略接管共和党。就这样吧！” 1 月 6 日只是第一次小规模冲突； 战争才刚刚开始。“做好准备，”班农在法庭外直播时建议民众。“我们要开始反击了。”
+
+**参考资料：**[theweek][Bannon’s radical vision](https://theweek.com/politics/1007243/tk-bill)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
