@@ -2,34 +2,32 @@
 ---
 
 
-## ICU顶级医生起诉医院禁止COVID治疗后被停职
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1694969/)
+## 疫苗灾难继续 韩国著名女团成员Lisa确诊
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1694998/)
 
-编译： Jenny Ball
+**作者：日本东京方舟农场 老孙**
 
-*在接受《捍卫者》(The Defender)的独家采访时，保罗·马里克（Paul Marik）医生表示，患者正在“不必要地和非法地”死亡，因为他担任 ICU 主任的医院优先考虑使用像瑞德西韦这样的昂贵药物，同时禁止更有效和更便宜的治疗方法。*
+11月24日，韩国YG娱乐公布，旗下女团BLACKPINK成员Lisa确认感染中共病毒，此前该女团成员都已完成疫苗接种。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-10-6.jpg)图片来源：childrenshealthdefense.org
+据韩媒报道，其所属公司YG娱乐相关负责人对外证实了这一消息。YG还透露，LISA在已完成全部疫苗接种。
 
-森塔拉诺福克综合医院（Sentara Norfolk General Hospital）一位高级重症监护医生，因对医院禁止[使用救生药物](https://www.pilotonline.com/news/health/vp-nw-marik-court-hearing-20211118-hgzw523phfedfkar4kb6ddshuq-story.html)治疗 COVID 患者而对其提起诉讼，他的医院[福利被暂停](https://childrenshealthdefense.org/wp-content/uploads/FLCCC-Marik-Suspension-Advisory-FINAL-11_22_21.pdf)。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1000-1.png)图片来自腾讯网
 
-东弗吉尼亚医学院肺部和重症监护医学主任兼森塔拉诺福克综合医院 ICU 主任保罗·马里克医生([Dr. Paul Marik](https://www.evms.edu/directory/profiles/paul-e-marik.php))，在周六上班时得知被[停职 14 天](https://www.pilotonline.com/news/health/vp-nw-sentara-doctor-suspended-20211123-5y7uhc6n5rffticae2a47zqjiu-story.html)，并在他的办公桌上发现了一封信。
+BLACKPINK组合成员Lisa确诊后，组合其他成员为密切接触者，进行自我隔离，并停止了一切商业活动，接受核酸检测。
 
-这封信的日期是 11 月 18 日——马里克的律师说，就在同一天，马里克出现在诺福克巡回法院的一名法官面前，要求发出临时禁令以解除禁令。
+据了解，Lisa曾担任中共国综艺节目《青春有你》的节目导师，收获了不少中共国粉丝。当日，Lisa感染中共病毒的消息冲上中共国微博热搜。
 
-大卫·兰内蒂（David Lannetti）法官没有授予临时禁令，但确实确定马利克有资格提起诉讼，允许案件继续进行，这将使马利克有机会“确立他对患者有挽救生命治疗的权利，”前线 COVID-19 重症监护联盟 (FLCCC) 在一份声明中说。
+*参考链接：*
 
-**评论：这是什么世道，医院明目张胆图财害命！愿正义的保罗医生救人被解职的实例，能够唤醒更多的人们起来抵抗医疗暴政、政府暴政！**
-
-**参考资料：**[childrenshealthdefense.org][Top ICU Doctor Suspended After Suing Hospital for Banning Life-Saving COVID Treatments](https://childrenshealthdefense.org/defender/paul-marik-lawsuit-hospital-remdesivir-ban-life-saving-drugs/)
+[Lisa确诊新冠 同组合成员核酸结果公布！韩国娱乐圈成疫情“重灾区”](https://new.qq.com/omn/20211125/20211125A05L0Z00.html)
 
 * * *
 
-*审核：文乐
-校对：阿伯塔
-发布：信心的选择*
+*素材采编：老孙*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+*编辑：文顺*
+
+*发布：Ranting*
 
  
 

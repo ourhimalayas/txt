@@ -2,32 +2,35 @@
 ---
 
 
-## 蔡英文正告中共停止对台商选择性执法恫吓
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694958/)
+## ICU顶级医生起诉医院禁止COVID治疗后被停职
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1694969/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月24日，就中共五省市执法部门以所谓“不允许支持台独”为由，对远东集团等台湾部分企业实行重罚一事，台湾总统蔡英文发表声明，呼吁朝野各界正告中共当局，要求中共立刻停止此种行为，不要继续伤害两岸及双边经贸关系。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-26-上午12.39.04.png)圖片來源：中央社檔案照
-蔡英文指出，中共通过政治献金，意图干预台湾的民主政治发展，但这类举动无助于两岸经贸的正常交流，反而对两岸关系造成了严重的伤害。另一方面，台商长期以来对大陆的经济发展、社会就业以及两岸交流做出了很大的贡献。因此，中共对台商进行选择性的执法恫吓，只会加速两岸分裂，同时恶化中共国内的投资环境，加速外商企业的投资转向。
+编译： Jenny Ball
 
-蔡英文强调，台湾是民主自由的国家，台湾人民有自由选择的权利去支持任何政党或议题。
+*在接受《捍卫者》(The Defender)的独家采访时，保罗·马里克（Paul Marik）医生表示，患者正在“不必要地和非法地”死亡，因为他担任 ICU 主任的医院优先考虑使用像瑞德西韦这样的昂贵药物，同时禁止更有效和更便宜的治疗方法。*
 
-参考链接：[批選擇性執法恫嚇台商 蔡英文正告北京當局「立刻停止」](https://video.ltn.com.tw/article/GGN9mlw9eds/PLI7xntdRxhw3Qcbd70QE2FRWgpOQ-hBHO)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-10-6.jpg)图片来源：childrenshealthdefense.org
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+森塔拉诺福克综合医院（Sentara Norfolk General Hospital）一位高级重症监护医生，因对医院禁止[使用救生药物](https://www.pilotonline.com/news/health/vp-nw-marik-court-hearing-20211118-hgzw523phfedfkar4kb6ddshuq-story.html)治疗 COVID 患者而对其提起诉讼，他的医院[福利被暂停](https://childrenshealthdefense.org/wp-content/uploads/FLCCC-Marik-Suspension-Advisory-FINAL-11_22_21.pdf)。
 
-总编：Irene木木
-编辑：Lakeman (文仁)
-校正/发稿：呼吸的雾霾（文小呼吸）
+东弗吉尼亚医学院肺部和重症监护医学主任兼森塔拉诺福克综合医院 ICU 主任保罗·马里克医生([Dr. Paul Marik](https://www.evms.edu/directory/profiles/paul-e-marik.php))，在周六上班时得知被[停职 14 天](https://www.pilotonline.com/news/health/vp-nw-sentara-doctor-suspended-20211123-5y7uhc6n5rffticae2a47zqjiu-story.html)，并在他的办公桌上发现了一封信。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+这封信的日期是 11 月 18 日——马里克的律师说，就在同一天，马里克出现在诺福克巡回法院的一名法官面前，要求发出临时禁令以解除禁令。
+
+大卫·兰内蒂（David Lannetti）法官没有授予临时禁令，但确实确定马利克有资格提起诉讼，允许案件继续进行，这将使马利克有机会“确立他对患者有挽救生命治疗的权利，”前线 COVID-19 重症监护联盟 (FLCCC) 在一份声明中说。
+
+**评论：这是什么世道，医院明目张胆图财害命！愿正义的保罗医生救人被解职的实例，能够唤醒更多的人们起来抵抗医疗暴政、政府暴政！**
+
+**参考资料：**[childrenshealthdefense.org][Top ICU Doctor Suspended After Suing Hospital for Banning Life-Saving COVID Treatments](https://childrenshealthdefense.org/defender/paul-marik-lawsuit-hospital-remdesivir-ban-life-saving-drugs/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
