@@ -2,56 +2,93 @@
 ---
 
 
-## 【Michael Tonny 专栏】如何预防和治疗中共病毒
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1695039/)
+## 有声|每日读经：创世纪(1:1-31；2:1-3)
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1695068/)
 
-加拿大温哥华扬帆农场 Michael.Tonny
-![](https://assets.gnews.org/wp-content/uploads/2021/11/michael-2.jpg)
-自从CCP利用中共病毒（COVID-19）向全世界发动生化武器战争以来，截止到美东时间2021年11月24日，不包含中共刻意隐瞒的中共国内数据，全世界共有2.59亿人被中共病毒感染，5,17万人被戮杀！
+**配音：香草山福音部 – Daxia**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-749.png)
+**神的创造**
 
-如何治疗中共病毒感染者，如何防治中共病毒，是全世界必须面对的话题。
-疫苗是全世界政客热衷的话题，下图分别是疫苗接种率和病毒感染率的统计结果。
+**1** 起初　神创造天地。
 
-北美有54.08%的疫苗完全接种率，中共病毒感染率为9.5%；欧洲疫苗完全接种率为57.1%，病毒感染率为9.53%；南美疫苗完全接种率为56.02%，病毒感染率为8.93%。非洲仅有6.94%的疫苗完全接种率，但感染率却不到0.62%。
+**2** 地是空虚混沌，渊面黑暗；　神的灵运行在水面上。
 
-说明注射疫苗对预防中共病毒毫无帮助，很多数据分析结果和资料甚至说明，接种疫苗，有助于中共病毒传播。
+**3**　神说：“要有光”，就有了光。
 
-所以，不要打疫苗，就是对付中共病毒的重要预防措施。
+**4**　神看光是好的，就把光暗分开了。
 
-在感染中共病毒患者的治疗方案中，《[COVID-19 treatment studies for Hydroxychloroquine》](https://hcqmeta.com/)对羟氯喹治疗中共病毒患者做了非常深入的研究，Zelenko博士（大胡子医生）在视频节目中，根据自己的数千名患者临床实践经验，对羟氯喹方案、伊维菌素非常推崇。
+**5**　神称光为昼，称暗为夜。有晚上，有早晨，这是头一日。
 
-2021年11月18日，第161期《COVID-19 treatment studies for Hydroxychloroquine》发布的《HCQ for COVID-19: real-time meta analysis of 298 studies》结论中，对中共病毒的患者早期实施羟氯喹治疗方案，给出了非常肯定的结论。
+**6**　神说：“诸水之间要有空气，将水分为上下。”
 
-对共有413,756名患者参与的298项羟氯喹治疗Covid-19临床研究的实时元分析结果表明，对感染中共病毒的患者早期应用羟氯喹治疗方案，有64%的患者有效；而羟氯喹用于晚期治疗则仅有19%的患者取得了积极的效果，不太成功；应用于非常晚期的，无效且可能有害，尤其是在使用过量剂量时。
+**7**　神就造出空气，将空气以下的水、空气以上的水分开了。事就这样成了。
 
-Zelenko博士（大胡子医生）是COVID 临床治疗的杰出专家之一，他是使用羟氯喹的早期倡导者。
+**8**　神称空气为天。有晚上，有早晨，是第二日。
 
-2021年11月23日，Zelenko博士在接受Gateway Pundit访谈中说，羟氯喹是最强大和最有效的锌离子载体之一（或锌传递系统），可以通过它让锌进入细胞以抑制病毒复制的机制。
+**9**　神说：“天下的水要聚在一处，使旱地露出来。”事就这样成了。
 
-他已经在孕妇、儿童、哺乳期妇女身上使用过它……，根据他治疗数千名患者的临床经验，认为羟氯喹方案是绝对可以挽救生命、是安全的。
+**10**　神称旱地为地，称水的聚处为海。　神看着是好的。
 
-在谈到伊维菌素时，大胡子医生认为伊维菌素是一种廉价，非常好的药物和有效解决中共病毒危机方案。
+**11**　 神说：“地要发生青草和结种子的菜蔬，并结果子的树木，各从其类，果子都包着核。”事就这样成了。
 
-最后，笔者也提出一种或许是预防和治疗中共病毒的最佳方案，那就是，要消灭中共病毒，必须先消灭CCP！
+**12** 于是地发生了青草和结种子的菜蔬，各从其类；并结果子的树木，各从其类，果子都包着核。　神看着是好的。
 
-参考资料：
+**13** 有晚上，有早晨，是第三日。
 
-[HCQ for COVID-19: real-time meta analysis of 298 studies](https://hcqmeta.com/)
+**14**　神说：“天上要有光体，可以分昼夜，作记号，定节令、日子、年岁，
 
-[EXCLUSIVE VIDEO: Dr. Zelenko to The Gateway Pundit: CDC’s Response to COVID-19 “A Crime Against Humanity. Mass Murder. And Genocide…”](https://www.thegatewaypundit.com/2021/11/exclusive-video-dr-zelenko-gateway-pundit-cdcs-response-covid-19-crime-humanity-mass-murder-genocide/)
+**15** 并要发光在天空，普照在地上。”事就这样成了。
 
-[Scientists “Mystified” Over Africa’s Low Vax Rate and Low COVID Numbers](https://www.thegatewaypundit.com/2021/11/scientists-mystified-africas-low-vax-rate-low-covid-numbers/)
+**16** 于是　神造了两个大光，大的管昼，小的管夜，又造众星，
 
-[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
+**17** 就把这些光摆列在天空，普照在地上，
 
-[Data on COVID-19 (coronavirus) by Our World in Data](https://github.com/owid/covid-19-data/tree/master/public/data)
+**18** 管理昼夜，分别明暗。　神看着是好的。
 
-[COVID-19 situation update worldwide, as of week 45, updated 18 November 2021](https://www.ecdc.europa.eu/en/geographical-distribution-2019-ncov-cases)
+**19** 有晚上，有早晨，是第四日。
 
-* * *
+**20**　神说：“水要多多滋生有生命的物，要有雀鸟飞在地面以上，天空之中。”
 
-编辑/发稿：云起时
+**21**　神就造出大鱼和水中所滋生各样有生命的动物，各从其类；又造出各样飞鸟，各从其类。　神看着是好的。
 
+**22**　神就赐福给这一切，说：“滋生繁多，充满海中的水，雀鸟也要多生在地上。”
+
+**23** 有晚上，有早晨，是第五日。
+
+**24**　神说：“地要生出活物来，各从其类；牲畜、昆虫、野兽，各从其类。”事就这样成了。
+
+**25** 于是　神造出野兽，各从其类；牲畜，各从其类；地上一切昆虫，各从其类。　神看着是好的。
+
+**26**　神说：“我们要照着我们的形像，按着我们的样式造人，使他们管理海里的鱼、空中的鸟、地上的牲畜和全地，并地上所爬的一切昆虫。”
+
+**27**　神就照着自己的形像造人，乃是照着他的形像造男造女。
+
+**28**　神就赐福给他们，又对他们说：“要生养众多，遍满地面，治理这地；也要管理海里的鱼、空中的鸟，和地上各样行动的活物。”
+
+**29**　神说：“看哪，我将遍地上一切结种子的菜蔬，和一切树上所结有核的果子，全赐给你们作食物。
+
+**30** 至于地上的走兽和空中的飞鸟，并各样爬在地上有生命的物，我将青草赐给它们作食物。”事就这样成了。
+
+**31**　神看着一切所造的都甚好。有晚上，有早晨，是第六日。
+
+**1** 天地万物都造齐了。
+
+**2** 到第七日，　神造物的工已经完毕，就在第七日歇了他一切的工，安息了。
+
+**3**　神赐福给第七日，定为圣日，因为在这日　神歇了他一切创造的工，就安息了。
+
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
