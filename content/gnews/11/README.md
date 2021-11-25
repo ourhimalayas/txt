@@ -2,34 +2,20 @@
 ---
 
 
-## 中共国出生率跌至数十年来最低水平
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1693629/)
+## 辉瑞指控员工盗取大量内部及涉密文件
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1693652/)
 
-#### 作者：日本东京方舟农场 子辰
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-38.png)
+图片来源： https://www.thequint.com/
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5902412F-A70E-4B1F-84F8-8E24B254BB20.jpeg)图片来自《法新社》
+“零对冲”网11月24日报道，辉瑞公司23日向南加州的地方法院提诉，指控一名即将离职的高级员工在其个人谷歌网盘及存储设备上保存了12000多份公司文件，其中包含大量机密内容。
 
-据CNA11月24日报道，中共国的出生率去年暴跌至数十年来最低水平，创下历史新低，凸显出迫在眉睫的人口危机。中共称，其原因是劳动力迅速老龄化、经济放缓以及几十年来最疲软的人口增长所致。
+辉瑞指控其统计部门的副总监李春晓（音译）及另外5名嫌疑人的商业间谍行为，称其盗存的文件涉及公司及商业机密，其中包括对新冠疫苗的内部评估、辉瑞跟合作伙伴的关系等，并称李离开辉瑞后可能将于29日跳槽到对手的临床阶段生物制药公司Xenocor。李于2006 年加入辉瑞位于中国的产品开发团队，2016 年调到美国加州的园区。她转存文件的行为在公司例行的电脑追迹排查中被发现，辉瑞称李在调查中向公司上交的个人电脑为调包货，相信真正用于转存文件的电脑仍在李或另外几名嫌疑人的手中。
 
-此前，中共为了鼓励生育，在 2016 年放宽了世界上最严格的计划生育法规之一——“一孩政策”，允许每对夫妇生育两个孩子。而在今年早些时候，又将这一政策扩展到三个孩子。
+当日，地方法官临时限制李使用、披露、传输相关文件，并将在12月9日听证以决定是否延长该禁令。
 
-据 2021 年发布的统计年鉴显示，中共国去年每1000人记录了8.52 名新生儿，这是自 1978 年年鉴统计数据开始以来的最低数字。对照中共国国家统计局的数据，这比上一年的 10.41 有着显著下降，也是自 1949 年中共建立政权以来的最低数字。
-
-此外，年鉴还显示，2020年中共国的登记结婚数量只有814万对，也创下了17年以来的新低。
-
-上述数据尽管已经触目惊心，但外界仍对中共国的真实数据持有怀疑态度。
-
-在中共治下，老百姓的生活成本越来越高，高房价、低收入，加上经济低迷等等，都是导致中共国年轻人不愿生育的直接原因。
-
-*新闻链接： [https://www.channelnewsasia.com/china-birth-rate-record-low-population-marriage-divorce-2334976](https://www.channelnewsasia.com/china-birth-rate-record-low-population-marriage-divorce-2334976)*
-
-* * *
-
-*素材采编：子辰*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
+**新闻来源：** [Pfizer Employee Stole 12,000 Files Including COVID-19 Vaccine Secrets, Lawsuit Claims](https://www.zerohedge.com/covid-19/pfizer-employee-stole-12000-files-including-covid-19-vaccine-secrets-lawsuit-claims)；[Pfizer sues departing employee it says stole COVID-19 vaccine secrets](https://www.reuters.com/article/us-pfizer-lawsuit-employee-idUSKBN2I92FW)
 
  
 
