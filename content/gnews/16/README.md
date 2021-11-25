@@ -2,33 +2,26 @@
 ---
 
 
-## 有声|GTV新闻访谈简报|2021年11月23日晚
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1695240/)
+## 为什么文贵先生称战友们为兄弟姐妹？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1695247/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-2.jpg)
-配音：香草山教育部 – 蒙古鸿雁
+作者： Jenny Ball
 
+![](https://assets.gnews.org/wp-content/uploads/2020/11/PHOTO-2020-11-08-02-34-23.jpg)
 
+这是文贵先生2021年11月24日大直播中很严肃地问的问题。2017年文贵先生开始在推特 和facebook报平安的时候，他称听众为“推友”。推特和facebook 封杀文贵先生之后，文贵先生改称听他直播并愿意跟随一同灭共的人们为“战友们”。现在，这位“灭共战神”，像亲人一样的七哥一声亲切的“兄弟姐妹们”，就会立刻让战友有种回归家庭的感觉。其实对战友们不同的称号都是文贵先生仔细斟酌选用的。文贵先生解释说，因为一个国家、一个社会最基础的根本因素就是家庭，一个家庭的平安、安逸、幸福。一个家庭传承的理念和伦理道德，铸成了社会整体的理念。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-2.jpg)
+但是，在共产党70年的统治下，用一个又一个的运动颠覆了中华民族一切家庭的观念。犹如今天美国所谓的CRT（批判种族理论）和打破一切的文化大革命，中共煽动血气方刚的学生，破除一切封、资、修，在学校里反师道尊严，在家里边告诉人们“爹亲娘亲不如党亲”，所以才造成了今天中共国社会这样极度的人性扭曲和道德沦丧的悲哀。
 
+那么构成家庭成员的兄弟姐妹，在我们爆料革命新中国联邦这个大家庭中，我们就像是亲如手足的姐妹兄弟，虽然我们许多都未曾谋面，但是我们的心心相印，在理念和信仰追求上，比自己的手足还要亲。所以，兄弟姐妹这个称呼不是文贵先生信手拈来的，而是有着沉甸甸的意义。灭掉了邪恶政权中共国共产党之后，我们就要让我们的社会从最基本的家庭开始——重塑正道主义！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1123text-SC.png)
-原文链接：[GTV新闻访谈简报|2021年11月23日晚](https://gnews.org/zh-hans/1690150/)
+* * *
 
-音频处理：喜山必胜Maverick
+*审核：Aries的星
+校对：信心满满
+发布：信心的选择*
 
-发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-10.jpg)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://xn--%20%7Cgtv%20%20gtv-%20%7Cmos%20talk%20%20%20%7C%20gettr%20%20%20%7Cyoutube%20%20%7C%20discord-kw44l1t1gm8doayup218v624hpazvr1825bzx4emafxdws06012bhtnpta2axu46wua3ayv7960lnaiygzw1416y8vh370k17zmoajzj0ay/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
 
  
 
