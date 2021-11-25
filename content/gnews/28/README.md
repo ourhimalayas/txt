@@ -2,38 +2,51 @@
 ---
 
 
-## 钟翰林因中共《国安法》被判入狱43个月
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694970/)
+## 辉瑞胁迫政府接受霸王合同以利润最大化
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1694997/)
 
-作者：纽约香草山农场 – 007
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-当地时间11月23日，香港前青年学生组织“学生动源”召集人钟翰林被香港区域法院以中共《国安法》定义的“分裂国家罪”和“洗钱罪”判处监禁43个月。
+**编译：Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip63.png)图片来源：lifesitenews.com
+《生活新闻》（LifeSiteNews）——一家非营利性消费者权益保护组织发布的一份综合报告，详细介绍了辉瑞对世界各国政府的巨大影响，揭示了这家大型制药巨头隐藏关键信息以保护自己免受追责，同时最大化利润的能力。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide3-14.jpeg)
+“公民”（Public Citizen）是一个致力于保护公共利益免受过度公司权力影响的非政治倡导组织，它在 10 月 19 日的一份报告中表示，它已经“确定了几份未经编辑的辉瑞合同，这些合同描述了该公司与政府就其 COVID －19疫苗进行谈判的结果 。
 
-在2019年的“反送中”运动中，众多香港年轻人勇敢地站出来，对中共独裁说“不”，而年仅20岁的钟翰林便是个中代表。
+该报告是在辉瑞去年与德国生物技术公司 (BioNTech)合作生产开发 mRNA COVID-19 疫苗之后发布的，**该公司被指控在 2 月份就合同“欺负”政府实体。**
 
-资料显示，中共于2020年6月在香港实施《国安法》，将独裁专制和白色恐怖全面引入香港。自此，香港的民主自由环境便受到了严重侵害：十几个社会民主组织被迫解散，相关的民主抗议人士也被秋后算账。
+根据“公民”的说法，“这些合同，提供了一个罕见的视角，一家制药公司在一个世纪以来最严重的公共卫生危机中，获得了让政府保持沉默、供应勒索、转移风险和最大化利润的权力。”
 
-至于钟翰林，先是于2020年12月被香港东区法院裁定犯下所谓的“侮辱国旗”及“非法集结”罪，被判入狱四个月；而今，他又成为被依照中共《国安法》定罪的最年轻被告。
+“**当疫苗制造商开始欺凌时会发生什么**？” 帕尔基·夏尔马 (Palki Sharma) 在 10 月份就印度媒体公司 WION 的《公众公民》(Public Citizen) 报告提出了关注。
 
-本月初，钟翰林在法庭认罪时曾表示，“我问心无愧”。
+“**政府沉默，供应停止，利润优先于拯救生命**，”她继续说道。“我不是在这里描述假设的情况。 **我在描述辉瑞正在做什么，这家美国制药巨头， 它正在做这一切**。它是在欺负各国屈从于它的要求。”
 
-参考链接：[国安法发威，前港独组织召集人钟翰林被判入狱43个月](https://www.voachinese.com/a/former-hong-kong-independence-group-leader-gets-43-months-under-security-law-20211123/6324441.html)
+在《公共公民》报告和 WION 的报道一些最严重的罪行后，辉瑞公司似乎采取的立场是，将其转移为未能向低收入国家廉价地发放实验性疫苗——那些反对注射命令的人不一定会担心这一点，**而是争论注射剂的有效性和必要性**，并指出，**仅在美国，这些药物就导致了数十万起不良事件和近 19,000 人死亡**——尽管如此，该报告强调了辉瑞利用巨大的垄断实力攫取利润的事实，并通过全球正在进行的大规模免疫计划，发挥其力量。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+夏尔马解释说，从辉瑞获得并编入《公众公民》报告的与九个国家和地区签订“机密合同”，表明该公司有能力迫使政府接受严格的条款，同时免除辉瑞的责任，因为它提高了自己的利润。
 
-总编：飞虹
-编辑：Kathy文艺
-校正/发稿：谐趣园
+“其细节令人震惊，”她说，并认为“绝望的国家，正被迫向辉瑞做出令人羞辱的让步。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+“辉瑞控制关键决策的能力，反映了疫苗谈判中的权力不平衡，”《公众公民》建议。 “在绝大多数合同中，辉瑞的利益是第一位的。”
+
+辉瑞对遭受大规模刑事和民事责任索赔的打击并不陌生，这可能解释了它渴望在未来的诉讼中为自己辩护的原因。
+
+2009 年，在当时美国司法部历史上最大的医药和解案中，辉瑞被迫支付 23 亿美元的和解金，“以解决因非法促销某些医药产品而引起的刑事和民事责任”。
+
+根据美国司法部的说法，辉瑞将一种已从市场上撤下的抗炎药贴上新标签，以促进其销售，“用于 FDA 出于安全考虑而明确拒绝批准的多种用途和剂量”。
+
+**辉瑞 (Pfizer) 的子公司承认犯有“意图欺诈或误导”药物贴错标签的重罪**，该公司被勒令支付总计 13 亿美元的刑事罚款，这是“美国有史以来对任何事项处以的最大刑事罚款”。辉瑞又支付了 10 亿美元“以解决与非法推广其他三种药物有关的指控”。
+
+**评论：即使是“美国有史以来对任何事项处以的最大刑事罚款”，在这场让全球人充当试验老鼠的霸王条款，不仅让已经赚到盆满钵满的辉瑞不足挂齿，而且，还不会让辉瑞有任何追究疫苗造成死亡和伤害的责任！这是什么世道啊！**
+
+**新闻来源**：[lifesitenews.com][Pfizer bullied governments into accepting bad contracts to maximize its own profits: report](https://www.lifesitenews.com/news/pfizer-bullied-governments-into-accepting-bad-contracts-to-maximize-its-own-profits-report/)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
