@@ -2,10 +2,10 @@
 ---
 
 
-## 班农：政府中的马克思主义、共产主义者给我们带来战争
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1693321/)
+## 近期有关‘猝死’的新闻汇总
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1693344/)
 
-11/16/2021 班农：美国政府中的马克思主义者和共产主义者允许了中共在1940年代窃取中国并在最近几年渗透美国。这是他们给我们带来的战争，我们每天都要与之抗争。
+近期有关‘猝死’的新闻汇总，这些是否都与中共病毒疫苗有关？
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

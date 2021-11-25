@@ -2,13 +2,11 @@
 ---
 
 
-## 日本政府首次决定释放国家石油储备
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1693248/)
+## 卡罗：政客在危机中攫取权力，欧洲威权主义抬头
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1693311/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._25-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

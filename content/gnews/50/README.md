@@ -2,35 +2,53 @@
 ---
 
 
-## 国际舆论谴责奥委会主席为中共洗地
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1692247/)
+## 中共病毒爆发以来盖茨向中共国输送超5400万美元
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1692457/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月23日的消息显示，为平息舆论，国际奥委会主席托马斯·巴赫于21日与网球选手彭帅进行了30分钟的视频通话。事后，国际对彭帅事件的关注非但没有降低，国际舆论反而强烈地批评巴赫为中共洗地，沦为中共的帮凶。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-25-上午1.18.50.png)
-对此，世界球员协会发表声明称，国际奥委会一直故意限制运动员的言论自由，为了优先考虑与中共的关系，拒绝提及彭帅的性侵指控。同时，球员协会呼吁成立特别代表团与彭帅见面。另有媒体消息评论道， 国际奥委会此次的“静默外交”无非是为了中共进行的“公关特技表演”。 而一直持续为彭帅发声的女子网球协会主席史蒂夫·西蒙在最新的官方声明中表示，仅靠奥委会的这个视频不能够证明彭帅的健康和安全，彭帅的性侵犯指控正在被中共审查和掩盖。
+翻译：Lulumi
 
-消息中还提到，其他社会各界对国际奥委会的批评直接且犀利，认为奥委会太过无耻，只重利益不讲原则，仍在试图挽救中共的冬奥会，并为此成为专制政府的宣传工具。评论人士声讨称，奥委会的主席应该辞职，并且世界必须抵制中共2022冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-9-8.jpg)图片取自原文
 
-参考链接：
-1)[https://twitter.com/teachjourno/status/1462485736196874246?s=21](https://twitter.com/teachjourno/status/1462485736196874246?s=21)
-2)[World Players: IOC’s call with Peng Shuai exacerbates alarm, special delegation needed](https://www.uniglobalunion.org/news/world-players-iocs-call-peng-shuai-exacerbates-alarm-special-delegation-needed)
-3)[Statement by Steve Simon, WTA Chairman & CEO on recent video posted by China state-run media of Peng Shuai](https://www.wtatennis.com/news/2361225/statement-by-steve-simon-wta-chairman-ceo-on-recent-video-posted-by-china-state-run-media-of-peng-shuai)
+据《国家脉搏》披露，自中共病毒COVID-19爆发以来，比尔和梅林达-盖茨基金会已输送超过5400万美元来资助中共国的“全球健康”项目，包括由中共国共产党控制的机构和武汉病毒研究所的合作者。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+自2019年12月以来，基金会共向中共国的项目发送了93笔赠款，总额达54,573,428美元。
 
-总编：Irene木木
-编辑：Lakeman(文仁)
-校正/发稿：呼吸的雾霾（文小呼吸）
+资助对象包括北京师范大学、北京大学、清华大学等几个中共管理的教育机构，以及农业部、中国疾病预防控制中心（CDC）和科技部等官方政权机构。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+中共CDC发挥了关键作用，带头宣称中共病毒COVID-19是源自自然，而不是追溯到武汉病毒研究所；自然起源说是全球卫生当局、企业媒体和世界各地的政治左派传播的阴谋论，现已被推翻。
+
+武汉大学在2021年1月收到了该基金会的127,650美元资助，尽管该校经常与武汉病毒研究所合作进行研究，包括由安东尼·福奇资助的专注于蝙蝠冠状病毒的研究。
+
+尽管中共政权对揭开COVID-19起源的努力进行极大的阻挠，但盖茨基金会的几笔拨款却在推动中共国在全球卫生和治理方面发挥更大的作用。
+
+10月，该基金会向中共国科学技术交流中心提供了15万美元，用于资助一个项目，“通过加强与政府、行业和学术界的合作，提高中共国对全球健康和发展的研究和开发贡献。”
+
+9月，盖茨基金会又向中共控制的中国农业大学提供了30万美元，用于“建立一个支持中共国参与全球卫生事业的有利环境”。
+
+有几笔款项也侧重于扩大中国共产党在疫苗开发和分配方面的作用，包括2020年8月向清华大学提供30万美元赠款，”建立一个智囊团，为疫苗生态系统建设建议提供监管科学研究和技术支持”。
+
+作为中共领导人习近平的母校，清华大学有对美国政府发动网络攻击的历史。
+
+前国防情报局高级情报官和国务院官员尼古拉斯·埃夫蒂米亚斯表示，清华大学也“与国家科技和工业管理部门之间有明确的联系，他们讨论清华大学可以做什么来帮助巩固国家安全”。
+
+2020年5月，12万美元被捐给了中共控制的浙江大学，以“让中共国在全球治理中发挥更大的作用，并为全球疫苗和免疫联盟（GAVI）做出更多贡献”。
+
+全球疫苗和免疫联盟，将自己描述为“公共和私营部门组织的全球卫生伙伴关系，致力于为所有人提供免疫”。
+
+2020年5月，盖茨基金会向中共国的CDC捐款60万美元，“以支持应急反应和评估，并使中共国为潜在的大流行病做好准备，这不仅有助于疾病控制和遏制，而且为全球健康贡献中共国的经验”。在2020年4月，另外40万美元被捐给康希诺生物制品公司。以“支持国际合作开发抗冠状病毒疫苗，这将增加安全和有效的疫苗供应，以实现可持续的全球分配和使用”。
+
+盖茨基金会还资助了旨在扩大中共国在非洲的作用的项目，包括向中共国农业科学院提供170,410美元的资助，“以支持为起草中非农业现代化计划而进行的有针对性的研究和建立共识的活动，目的是更好地利用中共国的专业知识来促进非洲国家的农业转型。”
+
+**参考资料：**[thenationalpulse][EXC: Gates Foundation Sent Over $54 Million To China Since COVID, Including To Wuhan Collaborators.](https://thenationalpulse.com/exclusive/exc-gates-foundation-sent-over-54-million-to-china-since-covid-including-to-wuhan-collaborators/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

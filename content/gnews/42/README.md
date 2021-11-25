@@ -2,57 +2,30 @@
 ---
 
 
-## 美国邀请台湾参加其民主峰会
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1692746/)
+## 中共北极“一带一路”再遭重击，格陵兰撤销中共铁矿石开采许可
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1692828/)
 
-作者：纽约香草山农场 – 四季
+作者：纽约香草山农场 – 007
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月23日，格陵兰政府宣布，撤销中共国俊安集团在当地开采铁矿石的许可。煤炭和铁矿石进口商俊安集团，是第一家在格陵兰获得矿业开采许可的中共国公司，它于2015年获得格陵兰首府努克附近伊苏矿业项目的控制权。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-23.jpg)
+在资源丰富的格陵兰加大投资，是中共所谓“一带一路”在北极的战略性标志，但这个扩张企图屡屡碰壁。除这次铁矿石开采梦碎之外，11月9日，格陵兰国会通过禁止开采铀矿和停止开发稀土的新法案，让中共在宽纳思特的稀土开采计划遭受重击。2018年，格陵兰拒绝了中共在格陵兰资助并修建两个机场的建议。2016年，俊安集团试图购买格陵兰一个废弃的丹麦海军基地，被丹麦政府以安全理由否决。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+参考链接：[中共北极“一带一路”再遭重击，格陵兰撤销中共铁矿石开采许可](https://www.voachinese.com/a/greenland-chinese-firm-delicensed-20211123/6325150.html)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-
-
-
-根据美国国务院11月23日公布的与会者名单，拜登政府已邀请台湾参加其下个月举行的“民主峰会”。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1499-2021-11-24T024438Z_1_LYNXMPEHAN02G_RTROPTP_0_USA-BIDEN-DEMOCRACY-TAIWAN_1.jpg)2021年11月16日，一名男子在台湾台北骑车经过台湾国旗。（REUTERS/Ann Wang）
-
-在国务院的邀请名单中，将有110名与会者参加12月9日和10日的虚拟会议。该活动旨在帮助阻止世界各地的民主倒退和对人权与自由的侵蚀。该名单不包括中共国或俄罗斯。
-
-台湾外交部表示，台湾受邀参加“民主峰会”是对台湾多年来努力促进民主和人权价值的肯定。台湾数字部长唐凤和台湾事实上的驻华盛顿大使萧美琴将代表台湾政府出席峰会。中共国对此表示“坚决反对”。
-
-国务院的名单显示，这次活动将汇集法国和瑞典等成熟的民主国家，但也有菲律宾、印度和波兰等国家，这些国家的活动家称民主受到威胁。
-
-2月份，拜登总统在其上任后的首次外交政策讲话中宣布，他将使美国重返全球领导地位，以对抗以中共国和俄罗斯为首的独裁主义势力，这次聚会是对这一主张的一次检验。
-
-**参考阅读：**
-
-[U.S. invites Taiwan to its democracy summit; China angered | One America News Network (oann.com)](https://www.oann.com/biden-administration-invites-taiwan-to-its-summit-for-democracy/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
