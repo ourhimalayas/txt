@@ -2,32 +2,48 @@
 ---
 
 
-## ICU顶级医生起诉医院禁止COVID治疗后被停职
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1694969/)
+## 辉瑞胁迫政府接受霸王合同以利润最大化
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1694997/)
 
-编译： Jenny Ball
+**编译：Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip63.png)图片来源：lifesitenews.com
+《生活新闻》（LifeSiteNews）——一家非营利性消费者权益保护组织发布的一份综合报告，详细介绍了辉瑞对世界各国政府的巨大影响，揭示了这家大型制药巨头隐藏关键信息以保护自己免受追责，同时最大化利润的能力。
 
-*在接受《捍卫者》(The Defender)的独家采访时，保罗·马里克（Paul Marik）医生表示，患者正在“不必要地和非法地”死亡，因为他担任 ICU 主任的医院优先考虑使用像瑞德西韦这样的昂贵药物，同时禁止更有效和更便宜的治疗方法。*
+“公民”（Public Citizen）是一个致力于保护公共利益免受过度公司权力影响的非政治倡导组织，它在 10 月 19 日的一份报告中表示，它已经“确定了几份未经编辑的辉瑞合同，这些合同描述了该公司与政府就其 COVID －19疫苗进行谈判的结果 。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-10-6.jpg)图片来源：childrenshealthdefense.org
+该报告是在辉瑞去年与德国生物技术公司 (BioNTech)合作生产开发 mRNA COVID-19 疫苗之后发布的，**该公司被指控在 2 月份就合同“欺负”政府实体。**
 
-森塔拉诺福克综合医院（Sentara Norfolk General Hospital）一位高级重症监护医生，因对医院禁止[使用救生药物](https://www.pilotonline.com/news/health/vp-nw-marik-court-hearing-20211118-hgzw523phfedfkar4kb6ddshuq-story.html)治疗 COVID 患者而对其提起诉讼，他的医院[福利被暂停](https://childrenshealthdefense.org/wp-content/uploads/FLCCC-Marik-Suspension-Advisory-FINAL-11_22_21.pdf)。
+根据“公民”的说法，“这些合同，提供了一个罕见的视角，一家制药公司在一个世纪以来最严重的公共卫生危机中，获得了让政府保持沉默、供应勒索、转移风险和最大化利润的权力。”
 
-东弗吉尼亚医学院肺部和重症监护医学主任兼森塔拉诺福克综合医院 ICU 主任保罗·马里克医生([Dr. Paul Marik](https://www.evms.edu/directory/profiles/paul-e-marik.php))，在周六上班时得知被[停职 14 天](https://www.pilotonline.com/news/health/vp-nw-sentara-doctor-suspended-20211123-5y7uhc6n5rffticae2a47zqjiu-story.html)，并在他的办公桌上发现了一封信。
+“**当疫苗制造商开始欺凌时会发生什么**？” 帕尔基·夏尔马 (Palki Sharma) 在 10 月份就印度媒体公司 WION 的《公众公民》(Public Citizen) 报告提出了关注。
 
-这封信的日期是 11 月 18 日——马里克的律师说，就在同一天，马里克出现在诺福克巡回法院的一名法官面前，要求发出临时禁令以解除禁令。
+“**政府沉默，供应停止，利润优先于拯救生命**，”她继续说道。“我不是在这里描述假设的情况。 **我在描述辉瑞正在做什么，这家美国制药巨头， 它正在做这一切**。它是在欺负各国屈从于它的要求。”
 
-大卫·兰内蒂（David Lannetti）法官没有授予临时禁令，但确实确定马利克有资格提起诉讼，允许案件继续进行，这将使马利克有机会“确立他对患者有挽救生命治疗的权利，”前线 COVID-19 重症监护联盟 (FLCCC) 在一份声明中说。
+在《公共公民》报告和 WION 的报道一些最严重的罪行后，辉瑞公司似乎采取的立场是，将其转移为未能向低收入国家廉价地发放实验性疫苗——那些反对注射命令的人不一定会担心这一点，**而是争论注射剂的有效性和必要性**，并指出，**仅在美国，这些药物就导致了数十万起不良事件和近 19,000 人死亡**——尽管如此，该报告强调了辉瑞利用巨大的垄断实力攫取利润的事实，并通过全球正在进行的大规模免疫计划，发挥其力量。
 
-**评论：这是什么世道，医院明目张胆图财害命！愿正义的保罗医生救人被解职的实例，能够唤醒更多的人们起来抵抗医疗暴政、政府暴政！**
+夏尔马解释说，从辉瑞获得并编入《公众公民》报告的与九个国家和地区签订“机密合同”，表明该公司有能力迫使政府接受严格的条款，同时免除辉瑞的责任，因为它提高了自己的利润。
 
-**参考资料：**[childrenshealthdefense.org][Top ICU Doctor Suspended After Suing Hospital for Banning Life-Saving COVID Treatments](https://childrenshealthdefense.org/defender/paul-marik-lawsuit-hospital-remdesivir-ban-life-saving-drugs/)
+“其细节令人震惊，”她说，并认为“绝望的国家，正被迫向辉瑞做出令人羞辱的让步。”
+
+“辉瑞控制关键决策的能力，反映了疫苗谈判中的权力不平衡，”《公众公民》建议。 “在绝大多数合同中，辉瑞的利益是第一位的。”
+
+辉瑞对遭受大规模刑事和民事责任索赔的打击并不陌生，这可能解释了它渴望在未来的诉讼中为自己辩护的原因。
+
+2009 年，在当时美国司法部历史上最大的医药和解案中，辉瑞被迫支付 23 亿美元的和解金，“以解决因非法促销某些医药产品而引起的刑事和民事责任”。
+
+根据美国司法部的说法，辉瑞将一种已从市场上撤下的抗炎药贴上新标签，以促进其销售，“用于 FDA 出于安全考虑而明确拒绝批准的多种用途和剂量”。
+
+**辉瑞 (Pfizer) 的子公司承认犯有“意图欺诈或误导”药物贴错标签的重罪**，该公司被勒令支付总计 13 亿美元的刑事罚款，这是“美国有史以来对任何事项处以的最大刑事罚款”。辉瑞又支付了 10 亿美元“以解决与非法推广其他三种药物有关的指控”。
+
+**评论：即使是“美国有史以来对任何事项处以的最大刑事罚款”，在这场让全球人充当试验老鼠的霸王条款，不仅让已经赚到盆满钵满的辉瑞不足挂齿，而且，还不会让辉瑞有任何追究疫苗造成死亡和伤害的责任！这是什么世道啊！**
+
+**新闻来源**：[lifesitenews.com][Pfizer bullied governments into accepting bad contracts to maximize its own profits: report](https://www.lifesitenews.com/news/pfizer-bullied-governments-into-accepting-bad-contracts-to-maximize-its-own-profits-report/)
 
 * * *
 
-*审核：文乐
+***审核：文乐
 校对：阿伯塔
-发布：信心的选择*
+发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
 

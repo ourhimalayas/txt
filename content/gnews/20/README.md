@@ -2,10 +2,10 @@
 ---
 
 
-## 拜习会后美台无视中共警告举行高层政军防务会谈
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694786/)
+## 台湾通过巨额国防特别预算以提升自我防卫能力
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694851/)
 
-作者：东京樱花团—在远方
+作者：纽约香草山医疗部 – 云豹
 
 
 
@@ -13,18 +13,17 @@
 
 
 
-美国媒体11月24日披露，尽管在拜习会前后，中共一再警告美国不要在台湾问题上“玩火”，但美台高层依然在会后第二天，就在华盛顿举行了为期两天的政治军事及防务会谈。
+11月23日，台湾立法院通过2400亿新台币《海空战力提升计划采购特别条例》。 条例中明定的8项采购项目为：岸置反舰飞弹系统、野战防空系统、陆基防空系统、无人攻击载具系统、万剑飞弹系统、雄升飞弹系统、海军高效能舰艇、海巡舰艇加装战时武器系统等。
 
-前五角大楼官员说，此次会谈是要确保双方在共同应对中共的武力威胁时步调一致。军事专家称，此会谈除了军售事项，还包括一些保密的防务与安全合作议题。
-
-台湾外交部发言人表示，美台官员互动密切，有多层次和多管道对话机制。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-12.jpg)
+台湾国防部表示，为了因应迫在眉睫的中共威胁及安全挑战，这次通过的2400亿元特别预算将能及时弥补战备的急需。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-170.jpg)
 参考链接：
-[无视北京警告，拜习会后美台举行高层政军防务会谈](https://www.voachinese.com/a/us-taiwan-held-high-level-defense-and-pol-mil-talks-in-washington-20211123/6325159.html)
+[立院三讀海空戰力提升條例 2400億元採購8軍備系統](https://www.cna.com.tw/news/firstnews/202111235007.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-总编/编辑：飞虹
+总编：飞虹
+编辑：Lakeman(文仁)
 校对/发稿：为真不破20
 
 **更多资讯，更多关注**
