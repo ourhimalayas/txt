@@ -2,73 +2,98 @@
 ---
 
 
-## 7.24——赵长鹏的最终结局一定和王健一样
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1692521/)
+## 超发货币将使数字货币代替法币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1692532/)
 
-整理：BENJ1、WEI
-编辑：Kelly
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1920_x_1080_px_1.png)图片来源：雅典娜农场设计组小蚂蚁614
-2021年11月17日至19日第四届彭博创新经济论坛在新加坡举行。2021年11月19日，郭文贵先生在GTV大直播指出（摘要）：此次论坛，中方派了币安的创始人赵长鹏参加，而且要接受布隆伯格的采访，去声明喜币就是一个骗局。王岐山在那里讲话，要私下里跟每个人说小心喜联储、小心喜币。所以说赵长鹏这个小屁孩儿，不知道天高地厚，我们从不认识他，但是只要他启动了这个魔鬼之车，不是咱们会怎么着他，是他自己会被王岐山、共产党消灭掉，一定的！币安会彻底结束！币安90%的客户是中国人，币安已将客户资料提供给了中共，赵长鹏的下场一定比王健还惨。和中共沆瀣一气，只有两个结局：一是继续为它所用，二是被它消灭。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/hh-a3a4l-koqqt.jpg)
+[https://gtv.org/video/id=619e3cbfabc44c39e083f4d6](https://gtv.org/video/id=619e3cbfabc44c39e083f4d6)
 
-赵长鹏（1977年－），加拿大华人企业家，加密货币交易平台币安的创始人，英文名“CZ”。
+**郭文贵**
+**Miles Guo**
 
-祖籍江苏，父母是老师，1987年随父母移民到加拿大温哥华，后考入麦吉尔大学主修计算机科学，大学毕业后进入东京证券交易所，开发匹配交易订单的系统，还曾在彭博有限合伙企业从事期货交易软件开发。2005年，他回到上海创立富讯信息技术有限公司，开发为经纪人打造的高频交易系统。
+现在由于超发货币，给世界带来了什么样的结果呢
+What kind of results have been brought to the world due to over printed cur-rency?
 
-2013年，开始瞄准密码货币，在Blockchain.info工作。
+一定会世界经济大崩溃，但是它触发了两种事件的发生
+It must be a major collapse of the world economy, but it triggered two events
 
-2014年，担任OKCoin的首席技术官CTO。
+第一，2020年到现在，让世界上有了数字货币，
+First, from 2020 to now, the world have crypto currency
 
-2015年，从OKCoin离职，离职争议闹得沸沸扬扬。
+就像二战，搞出了灭掉英镑和美元的布雷顿森林体系
+Just like World War II, it occurred the Bretton Woods system in American dol-lars that wiped out the British pound
 
-赵长鹏被OkCoin的何一挖去，于2014年6月10日正式宣布加入OKCoin（币行）担任CTO。
+一战当时搞出了欧洲的大英帝国，几大家族，罗斯柴尔德，
+World War I created the British Empire in Europe, there are several big fami-lies, like Rothschild
 
-在任职OKCoin之前，赵长鹏在Blockchai.info担任技术总监，2014年12月，赵长鹏和前东家Blockchain.info签订了一份协议（不是合同）。根据协议，OKCoin将负责Bitcoin.com域名5年时间的运营，Bitcoin.com网站所产出的广告收入归OKCoin。但由于运营效果不佳，OKCoin希望停止这个合作。而Blockchain.info的创始人Roger Ver认为，OKCoin应该每月支付1万美元作为补偿，或者支付按广告收入的百分比。由此，OKCoin和Roger Ver的经济纠纷爆发，并持续长达数月。在这场纠纷中，赵长鹏“强势站队”Roger Ver。他虽然承认将“简单的君子协议”作为合同是个错误，但在文章中他还直指OKCoin违反职业道德、伪造其签名进行银行转账、拒绝支付其薪资、员工炒币等问题。之后OKCoin方面又释出宣告，称赵长鹏不仅伪造合同，还拒绝道歉，又编造谎言攻击OKCoin。双方的这场“骂战”最终以OKCoin开除赵长鹏告终，最终不欢而散。
+罗斯柴尔德就是借给战争黄金， 就是金币的，
+Rothschild lent gold to the war which is gold coins
 
-2017年，离开OKCoin，创立币安，担任币安CEO与比捷科技CEO。
+给人家一个王国agent的，就是今天说Hpay代表啊
+Rothschild was the agent for a kingdom, that is like Hpay today
 
-币安创立于中国，2017年9月，中国政府下令禁止加密货币交易，币安便将伺服器及总部迁移至日本。
+就出了罗斯柴尔德呀，一战后，然后美国催生出来的
+It just come out Rothschild after World War I, then the United States spawned
 
-2018年，币安于台湾设立了办事处。
+就是当时的洛克菲勒，是不是，就这几大家族啊
+It was Rockefeller at the time, right? It was just these big families
 
-2018年2月，币安宣布退出中国市场，币安官网对外发布公告称，根据相关法规，币安不为中国大陆地区用户提供服务。
+然后就是摩根斯坦利就出来了，就是因为二战以后的布雷顿森林体系废掉了英镑
+Then Morgan Stanley came out because the Bretton Woods system after World War II abolished the British pound
 
-2018年3月，日本金融厅（FSA）责令币安停止在本国业务，称该公司没有在日本注册。币安将总部迁至于马耳他。在日本，加密货币交易所可以在金融管理局的监管许可下运营。无注册的企业禁止进行虚拟货币交易。
+都是战争和经济灾难，1913年到1919年的一战、西班牙大流行病和经济灾难，大萧条
+because wars and economic disasters, the World War I from 1913 to 1919, the Spanish flu pandemic and economic disaster, the Great Depression
 
-2019年12月9日《区块》报道了币安上海办事处遭到了当局的突击检查，随后关闭。币安不仅否认他们遭到了“突击检查”，同时还称自己在上海并没有办事处。币安的创始人及首席执行官赵长鹏声称《区块》是“假新闻”，并威胁要起诉该杂志。
+到了胡佛总统时期，吧唧上来了，美国诞生了
+Then to the period of President Hoover and the United States was born
 
-Castle Island Ventures专注于加密货币的投资者尼克·卡特称：“真正的故事在于，这个昧着良心向散户兜售无价值代币的离岸交易所，认为自己可以通过上诉的威胁，逼迫一个媒体刊物三缄其口。在他们试图博取美国监管方的欢心之际，这种做法对于他们来说没有任何好处。”
+二战过去了，是吧，英国完蛋了，英镑结束了，美元起来了搞了美联储，
+World War II is over, right? Britain is over, the pound is over, the dollar is stable and set up the Federal Reserve
 
-更有甚者，赵长鹏随后还称加密货币初创企业应该“分配一些资金用于抵御FUD（恐惧、不确定性和怀疑）”在加密货币界看来，FUD几乎等同于“虚假新闻”。或者就像《区块》的首席执行官迈克·杜达斯说的那样：“它相当于与其商业兴趣相反的事实。”
+美联储上千个个人股东，到现在控制了美国印发美元
+Thousands of individual shareholders of the Federal Reserve now control the U.S. printing and distribution of U.S. dollars
 
-“FUD防范基金”这一理念迅速得到了孙宇晨这类人的附和，后者是智能合约平台波场的创始人。然而孙宇晨的支持便很能说明问题，因为有人不断地用确凿的证据指控孙宇晨开展各种形式的欺诈活动，包括波场白皮书和代码抄袭，这些事件最终都被记者和研究人员曝光。尽管存在明显的公开证据，但孙宇晨一直在否认这些报道。然而希望澄清自己的赵长鹏对孙宇晨的支持感到十分高兴。赵长鹏自己此前似乎曾经威胁过《区块》，同时也曾经表示，在谈到中国的加密货币行业时，“有些事情还是不说为妙。”
+本来美元要和黄金挂钩的，最后不挂钩了，变成了信用美元，变成了法币
+The U.S. dollar was originally pegged to gold, but in the end it was not pegged, it became the credit U.S. dollar and became fiat currency
 
-2020年3月8日，币安赵长鹏私自挪用用户资金参与Steem投票，发推文就币安参与Steem投票并道歉。
+这次就是彻底地把过去的金本位和所有的最后的和金本位挂钩的唯一全球货币，美元
+This time it’s the complete removal of the old gold standard and all the last and only global currency tied to the gold standard, the US dollar
 
-孙宇晨拉着赵长鹏动用币安用户的币去投票罢免见证人的事件极其恶劣，这一系列操作严重违背了区块链的社区自治，以太坊的V神也站出来吐槽这种不道德的行为，直接指出，这个事件是孙宇晨在行贿赵长鹏交易所作恶！
+从过去的中心化币，变成了完全虚假的中心化币
+From the past centralized currency to a completely fake centralized currency
 
-这个事件已经在提醒人们：币安这样的大交易所值得信赖吗？随意挪用客户的币，与项目方狼狈为奸，何为尊重用户？
+完全变成了废币，纸币，这就是到了什么时代催生了数字货币
+It has completely become waste money, paper money, this is what spawned to the arrival of the crypto currency era
 
-2020年、2021年3月，2021年6月，币安已经多次收到过日本金融厅的警告，币安未在日本注册，也没有获得日本数字货币交易行业牌照，通过网络对日本居民提供相关服务属于不合法行为。如果不停止营业的话，日本警察当局将会进行刑事审查。言外之意是，日本要封杀币安！
+数字货币的目的达到什么，结束了真正的人类历史上法币
+What is the purpose of crypto currency? it’s ending the fiat currency in human history
 
-2021年6月26日，英国金融行为监管局（FCA）宣布币安在英国不得开展与受监管金融活动有关的业务。FCA称，币安集团旗下实体均未持有任何形式的英国授权、注册或许可以在英国开展受监管的活动，FCA还表示，币安需确认移除所有广告和财务推介，还必须在网站、社交媒体和其他传媒平台上说明其已经没有在英国运营的许可。
+法币的整个虚假时代，包括金本位都是假的
+The entire fake era of fiat currency, including the gold standard is fake
 
-英国巴克莱银行、TSB银行集团、Monzo Bank和Starling Bank相继采取行动，阻止客户将现金转移到币安等加密货币交易平台。TSB银行集团计划禁止超过500万客户购买加密货币，该行还表示，其客户遭遇的所有加密货币欺诈中，约有三分之二与币安平台有关。
+法币将逐渐退出历史舞台，未来就是数字货币
+fiat currency will gradually exit the stage of history, and the future is crypto currency era
 
-据报道，币安在美国也受到多个机构的调查，截至目前，中共国、美国和土耳其的使用者无法交易股票代币。
+**原视频链接:**[https://gettr.com/post/phiqrf6537](https://gettr.com/post/phiqrf6537)
 
-据路透北京10月13日消息： 中共国监管最新一轮针对虚拟货币的打击影响继续扩大，中国最大虚拟货币交易所–币安（Binance）宣布，为响应当地政府监管政策要求，币安C2C将于2021年12月31日24:00（东八区时间）下架CNY交易区。
+Date:11/23/2021
+原视频标题: 超发货币 将使数字货币代替法币
+Over printed currency will enable cryptocurrency to replace fiat currency
+原视频日期：2021/11/19
+原视频链接https://gettr.com/post/phiqrf6537
+任务编号：KC284（2972）
+视频时间段 : 0:00-2:10
 
-币安发布在官网上的公告并称：币安将对平台用户进行清查，平台若发现中国大陆地区用户，则其对应账户将切换至“只允许提现”模式，用户将只能进行提现、撤单、赎回、平仓操作。
+中听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike LI
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-2021年11月23日文贵先生在直播中说（摘要）：赵长鹏已将币安的国内外用户资料出卖给中共，中共拿到这些客户信息不仅会劫财更会要命！在币安做过KYC、有过虚拟币交易或投资的战友请尽快联系各农场，我们将在全球起诉币安。
-
-发布：Peter Xin
-
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

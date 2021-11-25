@@ -2,32 +2,47 @@
 ---
 
 
-## 有声|远东新世纪疑似沦为中共迫害台企的牺牲品
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1693548/)
+## 2021年11月24日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1693583/)
 
-配音：香草山美食部 – 玫瑰园
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
-11月22日，台湾知名企业远东新世纪遭到中共上海、江苏 、四川等五省市的行政处罚，罚款金额高达3650万人民币。
+撰稿人：文远Bruce
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-7.jpg)
+七哥2021.11.19：“七哥告诉你，第一条油价，永远不接受超过4美金一桶，永远不接受。只要超过4美金了，你就放心吧，美国这个政治就大变。”
 
-据中共国台办消息，远东新世纪在上述五省市所投资的纺织、化纤、水泥等工业项目，在环保、消防、税务、员工待遇等方面存在“违法违规”的行为。除了上述罚款外，还将追收税款与罚金，一些企业闲置建设用地也将被收回。
+1. 美国汽油平均售价已达3.41美金
 
-远东新世纪表示，已对上述“不合规”行为进行了专项整改，预计年底前全部完成，并承诺“罚款不影响财务和业务，也不会影响在内地的投资信心”。台工商协进会理事长林伯丰也发表“洗地”言论，认为此事应只是个案，不会影响台商在大陆的投资意愿。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2-1.jpg)
+2. 美国释放5000万桶石油储备，仍然未能压低油价
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide3-1.jpg)
+3. 石油(绿线)美元指数(红线)周线对比图
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide4-1.jpg)
+4. 石油(绿线)日元(红线)周线对比图
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-1.jpg)
 
-耐人玩味的是，就在同一天，国台办发言人称“台独”分子严重破坏两岸和平稳定，对他们的金主及关联企业必须依法惩戒。据悉，远东集团曾出资支持现任中华民国行政院院长苏贞昌的竞选活动。有分析指出，远东新世纪疑似成为中共迫害在陆台企的牺牲品，这将给早已阴云笼罩的台海局势增加新的变数。
 
-文字版原文：[远东新世纪疑似沦为中共迫害台企的牺牲品](https://gnews.org/zh-hans/1689144/)
+5. 土耳其里拉继续贬值
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-1.jpg)
 
-音频处理：喜山必胜Maverick
-发稿：Fei797
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
+6. 美国黑色星期五购物节延长为一个月
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-1.jpg)
+**七哥2021.11.17****：**“阿富汗的事情，记住我今天说的话，七哥是世界上最早在直播中说的，将近五千万人口，过去的一千多万不到两千万人口迅速的在这几年在美国军的管制下，没有塔利班的情况下，搞成了五千万人。五千万人一年要一亿吨的粮食，最低最低它也得六千万吨。
+
+现在阿富汗是什么？两千三百万人面临着今年冻死。共产党现在是树了塔利班了，吓唬了美国了，但是塔利班是活不下去的。不但活不下去，大家记住我今天说的话，你会亲身跟七哥鉴定人类上最伟大的新中国联邦，在整个全球地缘政治最后证明给你看的，咱们的智慧和咱们的情报的伟大。
+
+现在此时此刻，阿富汗最起码死掉已经是几万人了，就在我们这直播当中，都有人在死去。而且在未来的80天以内，预估80天以内，最起码死两百万到三百万人，这不是我说的，你记住我今天的直播，阿富汗今年一定在一百万到三百万之间被饿死，两千三百万人在挨饿，而且是因为共产党所谓树立的塔利班。”
+
+7. 图中的阿富汗母亲说她的丈夫残疾在家，她急缺食物，很多人卖儿卖女只是希望不被饿死。阿富汗2300万人面临食物短缺及寒冬，8百万人性命岌岌可危
+
+审核：云彩
+
+编辑：云彩
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
  
 
