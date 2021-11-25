@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/25/2021 3:24 AM (UTC)`
+
+11/24/2021 Miles Guo: The COVID vaccine disaster has caused the recent frequent explosion, traffic accidents, the rising number of sick people, and the overloaded hospitals in Communist China; one person's accident due to the COVID vaccine side effects destroys the whole family, while it takes the entire social system to serve one person’s illness, and the secondary disaster of COVID vaccines will be more frightening than the vaccines<br/><br/>11/24/2021 文贵直播：疫苗灾难导致中共国近期爆炸和交通事故频发、染病人数攀升、医院爆满；一人出事毁全家，一人生病则要整个社会系统为之服务，疫苗的次生灾难将比疫苗更可怕<br/>
+![img](https://media.gettr.com/group35/getter/2021/11/25/03/53a72954-e455-4600-2977-b37f290800d3/out.jpg)
+
+---
+
 `@miles 11/24/2021 11:59 PM (UTC)`
 
 11/24/2021 Miles Guo: Changpeng Zhao is hiding in Dubai to collude with the CCP, and he won’t be repatriated to Communist China, with his new task being sabotaging the Himalaya Coin; people around the world who have opened accounts at Binance, come forward and take a class action against Changpeng Zhao; we will work with the US and European governments to bring him to justice<br/><br/>11/24/2021 文贵直播：赵长鹏藏身迪拜便于和中共勾兑且不会被遣返，他的新任务是打压喜币；请全世界在币安开过账号的人站出来并集体起诉赵长鹏；我们会和美欧政府合作将其绳之以法<br/>
@@ -289,13 +296,6 @@ Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Touch
 
 11/20/2021 [3rd Anniversary of 1120] Steve Bannon: People are attracted to cryptos such as the Himalaya Coin due to the collusion between the Western corrupt elites and the CCP and their mismanagement of the economy; the CCP’s real estate is about to collapse, and I hope everyone to learn more about cryptos, which are our future<br/><br/>11/20/2021【1120三周年纪念】班农先生：人们对喜币等加密货币趋之若鹜是因为西方腐败的精英跟中共勾结以及他们在经济上的胡作非为；面临即将崩溃的中共房地产，希望大家多去了解加密货币，它是我们的未来<br/>
 ![img](https://media.gettr.com/group40/getter/2021/11/21/02/51/787e1133-b78c-50cf-54fe-fb68bb6cc931/out.jpg)
-
----
-
-`@miles 11/20/2021 10:30 PM (UTC)`
-
-11/20/2021 [3rd Anniversary of 1120] Steve Bannon: All the warnings sent by Mr. Miles Guo to the West have been verified; the CCP doesn’t care about the life and death of the Chinese people, while the Biden regime is kowtowing to the CCP; we are in a very dangerous time right now, and the Rule of the Law Foundation and Rule of the Law Society should work diligently to help more defectors from the Communist China to bring the evidence about the truth of the COVID vaccines<br/><br/>11/20/2021【1120三周年纪念】班农先生：文贵先生向西方发出的警告都得到了一一验证；中共不在乎中国人的死活，而拜登政府却向中共俯首称臣；我们正处在非常危险的时刻，法治基金和法治社会要努力帮助更多从中共国逃出来的人带来有关疫情真相的证据<br/>
-![img](https://media.gettr.com/group35/getter/2021/11/20/22/30/420f4917-9b5e-a9b7-b652-4350c4c0fbab/out.jpg)
 
 ---
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 近期有关‘猝死’的新闻汇总
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1693344/)
+## 澳洲国防军将中共病毒患者及密切接触者送往隔离中心
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1693346/)
 
-近期有关‘猝死’的新闻汇总，这些是否都与中共病毒疫苗有关？
+11/22/2021 澳大利亚国防军被命令将38名阳性中共病毒患者及密切接触者送往隔离中心。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
