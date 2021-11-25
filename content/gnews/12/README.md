@@ -2,10 +2,8 @@
 ---
 
 
-## 澳洲国防军将中共病毒患者及密切接触者送往隔离中心
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1693346/)
-
-11/22/2021 澳大利亚国防军被命令将38名阳性中共病毒患者及密切接触者送往隔离中心。
+## 杰森·米勒：限制言论自由与极权甚至共产主义没有两样
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1693354/)
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

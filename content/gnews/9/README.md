@@ -2,32 +2,12 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月24日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1693393/)
+## 布莱克本议员：不应让运动员参加2022年北京冬奥会
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1693426/)
 
-作者：香草山翻译部
+11/21/2021 参议员玛莎·布莱克本指出中共对生命没有丝毫尊重，他们会让不服从命令的人销声匿迹，类似事件已发生在彭帅、马云身上，且愈加频繁。因此美国奥委会和残奥会委员会不应让美国运动员去参加2022年北京冬奥会
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-5.png)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1124text-SC.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[11.24  晚GTV新闻访谈](https://gtv.org/broadcast/watch/619ee67638f84e66c64f877d)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-10.jpg)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

@@ -2,13 +2,13 @@
 ---
 
 
-## 休斯顿健康卫生部门挨家挨户敲门检查人们是否接种疫苗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1693243/)
+## 伊维菌素使中共病毒病例大降，疫苗使病例大增
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1693274/)
 
-11/16/2021 几位休斯顿健康卫生部门工作人员挨家挨户敲门检查人们是否打疫苗。在得知一名男性住户及其太太已经注射辉瑞疫苗后，工作人员把资料放在各户门口后离去
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1125-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
