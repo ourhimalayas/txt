@@ -2,27 +2,27 @@
 ---
 
 
-## 日本外相称尚未决定是否接受邀请访华
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1692819/)
+## 罗伯特·马龙博士：如果给感染 了COVID 的儿童接种疫苗，出现不良反应的风险更高
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1692864/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+翻译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/11/fauci-lizard-eyes-edited.jpg)图片来源：网络
+来自GATEWAY PUNDIT 星期三11月24日的新闻报道：
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/j-2.jpg)cleanbowled.in
-日本外相林芳正11月24日称，还没有决定是否接受中共国外长王毅邀其对中共国进行正式访问的邀请。
+彼得·纳瓦罗博士和 mRNA 疫苗的发明者罗伯特·马龙博士于周三加入了班农作战室节目与史蒂夫·班农对话。昨天晚上福奇公开攻击彼得·纳瓦罗和福克斯新闻金牌主持塔克·卡尔森散布有关冠状病毒的虚假信息。
 
-林芳正18日在与中共国务委员兼外长王毅通电话时，王毅邀请他访华。由于两国在领土和人权问题上存在分歧，日本执政党自民党对这一要求采取了谨慎的态度。林芳正表示尚未决定是否接受访华邀请，同时指出日本也尚未决定其对明年2月开幕的北京冬奥会的政策。
+马龙博士指责福奇有失偏颇和撒谎，“他因说谎而成名星……出于某种原因，他所做的所有虚假陈述都为大型制药公司的利益服务”。
 
-自民党外交部长佐藤正久(Masahisa Sato)表示，尽管明年日本和中共国将迎来两国邦交正常化50周年，但这是一个“非常敏感的时刻”。佐藤称，应该谨慎处理这一邀请，以免向国外发出“错误的信息”。他指出，美国总统拜登正在考虑通过外交手段抵制北京冬奥会，以抗议中共国在新疆维吾尔族的严重侵犯人权事件。
+罗伯特·马龙博士还指责福奇博士和 COVID 小组自大流行开始以来至少杀死了 50 万美国人。马龙博士警告儿童父母，为已经感染 COVID-19 并具有天然免疫力的儿童接种疫苗是极具危险。
 
-佐藤还批评中共国船只多次进入中共国声称拥有主权的尖阁列岛（Senkaku Islands，中共国称钓鱼岛）附近的日本水域。
+Malone 博士：“如果对以前有过感染而具有很强免疫力的人使用 RNA 疫苗，那么向他们提供这种尖锐的刺突蛋白是一个坏主意。 它会造成损坏。 令人恶心与悲伤的是，据估计，很多孩子已经自然感染了。 现在，托尼说我们 50% 的孩子都有症状。 嗯，这是真的。 他们的症状包括流鼻涕，他们的症状包括喉咙痛。 那完全是误导。 这是典型的托尼，他选择他的事实并不代表正在发生的事情。 但看起来超过一半的孩子已经自然感染了。 这意味着，既使他们被排除在临床试验之外，如果你同意为他们接种疫苗，他们发生不良事件的风险会更高”*。*
 
-在周三的新闻发布会上，当被问及对中共国网球明星彭帅的看法，彭帅自指控中共国前副总理张高丽性侵后就一直未在公开场合露面，林芳正说政府正在关注事态发展，“强烈希望人们的担忧能被尽快消除。” 他补充道，“重要的是，国际社会的普世价值，如自由、对基本人权的尊重和法治能在中共国得到保障，”
+原文链接：[https://www.thegatewaypundit.com/2021/11/dr-robert-malone-children-covid-higher-risk-adverse-effects-vaccinate-video/](https://www.thegatewaypundit.com/2021/11/dr-robert-malone-children-covid-higher-risk-adverse-effects-vaccinate-video/)
 
-参考链接：
+编辑/发布：LILY
 
-[https://english.kyodonews.net/news/2021/11/8557cfaa94c6-japan-foreign-minister-says-no-decision-made-on-china-visit.html](https://english.kyodonews.net/news/2021/11/8557cfaa94c6-japan-foreign-minister-says-no-decision-made-on-china-visit.html)
-
+20211124
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

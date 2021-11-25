@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/24/2021 11:59 PM (UTC)`
+
+11/24/2021 Miles Guo: Changpeng Zhao is hiding in Dubai to collude with the CCP, and he won’t be repatriated to Communist China, with his new task being sabotaging the Himalaya Coin; people around the world who have opened accounts at Binance, come forward and take a class action against Changpeng Zhao; we will work with the US and European governments to bring him to justice<br/><br/>11/24/2021 文贵直播：赵长鹏藏身迪拜便于和中共勾兑且不会被遣返，他的新任务是打压喜币；请全世界在币安开过账号的人站出来并集体起诉赵长鹏；我们会和美欧政府合作将其绳之以法<br/>
+![img](https://media.gettr.com/group32/getter/2021/11/24/23/59/7f41cd27-af3a-e462-eb2b-a6ef682ff446/out.jpg)
+
+---
+
 `@miles 11/24/2021 11:25 PM (UTC)`
 
 11/24/2021 Miles Guo: We must sue Binance to make sure the CCP has no access to the personal information of our fellow fighters; the CCP handed over a fellow fighter’s Binance account information to the IRS and accused him of tax evasion, which led to his arrest; the CCP can harm fellow fighters by posting their personal information on the dark web<br/><br/>11/24/2021 文贵直播：我们要起诉币安以确保中共不能掌握战友的个人信息；中共将战友在币安的账号信息给美国税务局并污蔑其偷税漏税，导致其被捕；中共把个人信息公布在暗网来害战友<br/>
@@ -289,15 +296,6 @@ Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Touch
 
 11/20/2021 [3rd Anniversary of 1120] Steve Bannon: All the warnings sent by Mr. Miles Guo to the West have been verified; the CCP doesn’t care about the life and death of the Chinese people, while the Biden regime is kowtowing to the CCP; we are in a very dangerous time right now, and the Rule of the Law Foundation and Rule of the Law Society should work diligently to help more defectors from the Communist China to bring the evidence about the truth of the COVID vaccines<br/><br/>11/20/2021【1120三周年纪念】班农先生：文贵先生向西方发出的警告都得到了一一验证；中共不在乎中国人的死活，而拜登政府却向中共俯首称臣；我们正处在非常危险的时刻，法治基金和法治社会要努力帮助更多从中共国逃出来的人带来有关疫情真相的证据<br/>
 ![img](https://media.gettr.com/group35/getter/2021/11/20/22/30/420f4917-9b5e-a9b7-b652-4350c4c0fbab/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@rolfoundation 11/20/2021 7:22 PM (UTC)`
-
-【法治基金/法治社会捐款者留言11/20/2021】法治基金/法治社会成立三周年！衷心感谢每一位捐款者的支持与信任🙏<br/><br/>尊敬的法治基金、法治社会捐款者大家好，<br/><br/>2018年11月20日，我们因共同的信仰聚集在这里，为了建立一个民主、自由、法治的社会，为了中国同胞们不再受共产党的迫害，在美国法律的监管保护下成立了法治基金与法治社会。<br/><br/>在法治基金、法治社会成立三周年之际，法治基金、法治社会工作团队向所有捐款者表示诚挚的谢意。每位捐款者的慷慨，救出了受到中共体制迫害的同胞们，给中国人予希望。每一次的捐款者留言，都令更多中国人体会到了信仰、勇气、坚定的巨大力量。<br/><br/>我们还要向法治基金、法治社会的全体客服组义工致以衷心的感谢。三年中，您们不仅自己也是长期的捐款者，更是顶住共产党的威胁，认真负责、耐心专业、24小时全年无休地代表法治基金与社会帮助了无数捐款者们。<br/><br/>再次，我们感谢所有的捐款者与义工们所带来的鼓舞与感动。因您们，中国人正在坚实地迈向一个法治自由的社会！<br/><br/>2021.11.20<br/>— 法治基金/法治社会全体工作团队敬上
-![img](https://media.gettr.com/group11/origin/2021/11/20/19/22/5efe6db3-86f9-18cf-1a44-2d472770b462/out.jpg)
 
 ---
 

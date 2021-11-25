@@ -2,50 +2,98 @@
 ---
 
 
-## 医生警告多数接种者永久性心脏损伤 有些会在三年内死亡
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1692498/)
+## 超发货币将使数字货币代替法币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1692532/)
 
-**翻译：Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip52.png)by Adan Salazar
-一位加拿大医生要求进一步研究 Covid-19 疫苗与血栓之间的联系，因为他的研究发现，大多数接种疫苗的患者都有血栓，他说其中一些患者可能会在三年内死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/hh-a3a4l-koqqt.jpg)
+[https://gtv.org/video/id=619e3cbfabc44c39e083f4d6](https://gtv.org/video/id=619e3cbfabc44c39e083f4d6)
 
-在 Zoom 与其他医疗专业人士的会面中，查尔斯·霍夫博士解释说，他一直在对最近接种疫苗的患者进行一项研究，让他们进行 D-二聚体血液检测，以确定他们是否有血栓。
+**郭文贵**
+**Miles Guo**
 
-“到目前为止，我有 62% 的阳性升高的 D-二聚体，这意味着血栓并不罕见，”霍夫告诉其他医生。“这就是所谓的专家一直告诉我们的：‘血块很少见。’大的很少，但小的明显发生在大多数人身上，高达62%。”
+现在由于超发货币，给世界带来了什么样的结果呢
+What kind of results have been brought to the world due to over printed cur-rency?
 
-霍夫博士说，这些凝块可能有数千个，并且由于它们的微观尺寸而难以检测，**它们是由疫苗中的信使 RNA 分子引起的，这些分子导致形成刺突蛋白，进而附着在细胞壁上， 细胞阻碍血液流动并破坏血管。**
+一定会世界经济大崩溃，但是它触发了两种事件的发生
+It must be a major collapse of the world economy, but it triggered two events
 
-所以通常情况下，血管周围的细胞必须非常非常光滑，才能使血液畅通无阻地流动，**但是一旦你有这些成为细胞壁一部分的小刺突蛋白，它就会变成一个粗糙的表面**，它会像一张非常粗糙的砂纸。现在，血小板将其解释为受损的血管， 已经不流畅了。 这很粗糙， 所以凝血是不可避免的，因为从血管上下来的血小板会碰到一个粗糙的地方，并假设这一定是一个受损的血管， 需要阻塞该血管以止血，这就是我们凝血的工作原理。所以……正因为如此，也正因为如此，凝块是不可避免的，因为毛细血管网络中的这些刺突蛋白。
+第一，2020年到现在，让世界上有了数字货币，
+First, from 2020 to now, the world have crypto currency
 
-**受损的血管不会像其他组织和器官一样再生，而是永久受损**，而且，**由于凝块非常细小和分散，它们绕过了典型的医学检测方法**。
+就像二战，搞出了灭掉英镑和美元的布雷顿森林体系
+Just like World War II, it occurred the Bretton Woods system in American dol-lars that wiped out the British pound
 
-霍夫在警告有关危险发展趋势后，被加拿大政府下达禁言令，他说这个过程可能是几乎所有接种疫苗的人都会经历类似负面副作用的原因。
+一战当时搞出了欧洲的大英帝国，几大家族，罗斯柴尔德，
+World War I created the British Empire in Europe, there are several big fami-lies, like Rothschild
 
-“事实上，注射疫苗的所有常见副作用，包括头痛、恶心、头晕、疲劳，**都可能是毛细血管水平上脑血栓形成的迹象。**我的意思是……从字面上看，**你的大脑中可能有成千上万个不会在扫描中显示的微小的小凝块，**它们会给你那些确切的症状，”霍夫说。
+罗斯柴尔德就是借给战争黄金， 就是金币的，
+Rothschild lent gold to the war which is gold coins
 
-医生还详细说明了他的六名接种疫苗的患者如何都遭受了“**耐受性降低**”，这意味着他们在进行正常的日常活动时会更快地感到疲倦。
+给人家一个王国agent的，就是今天说Hpay代表啊
+Rothschild was the agent for a kingdom, that is like Hpay today
 
-“所以，我相信这六个人的肺部阻塞了成千上万的毛细血管。所以，我相信这些人现在的肺部已经永久性受损，因为……我的意思是，这就是他们上气不接下气的原因，”霍夫博士说道。
+就出了罗斯柴尔德呀，一战后，然后美国催生出来的
+It just come out Rothschild after World War I, then the United States spawned
 
-霍夫说，受损的血管和受损的肺组织是一个大问题，会导致“**肺动脉高压”或肺部高血压，并在三年内因血管阻力增加而死亡**。
+就是当时的洛克菲勒，是不是，就这几大家族啊
+It was Rockefeller at the time, right? It was just these big families
 
-“令人担忧的是：因为这些血管现在在一个人的肺部造成永久受损，当心脏试图将血液泵入这些受损的血管时，试图将血液泵入这些肺部的阻力会增加。”
+然后就是摩根斯坦利就出来了，就是因为二战以后的布雷顿森林体系废掉了英镑
+Then Morgan Stanley came out because the Bretton Woods system after World War II abolished the British pound
 
-“所以这些人会患上一种叫做‘肺动脉高压’的疾病——肺中的高血压，令人担忧的是，**这些人可能会在三年内全部患上右侧心力衰竭并死亡**，因为他们现在有通过肺部增加血管阻力。”
+都是战争和经济灾难，1913年到1919年的一战、西班牙大流行病和经济灾难，大萧条
+because wars and economic disasters, the World War I from 1913 to 1919, the Spanish flu pandemic and economic disaster, the Great Depression
 
-在虚拟会议期间，Zoom 通话中的其他医生对 霍夫博士的惨痛消息感到震惊和忧郁。如果霍夫的研究结果证明是正确的，那么 Covid 疫苗可能会成为全球主义者一直在等待的大规模灭绝人口事件。
+到了胡佛总统时期，吧唧上来了，美国诞生了
+Then to the period of President Hoover and the United States was born
 
-**新闻来源**：[infowars.com][Shock: Doctor Warns That Majority Of Vaccinated Patients Could Have Permanent Heart Damage, Some May Die Within Three Years](https://www.infowars.com/posts/shock-doctor-warns-that-majority-of-vaccinated-patients-could-have-%20permanent-heart-damage-some-may-die-within-three-years/)
+二战过去了，是吧，英国完蛋了，英镑结束了，美元起来了搞了美联储，
+World War II is over, right? Britain is over, the pound is over, the dollar is stable and set up the Federal Reserve
 
-* * *
+美联储上千个个人股东，到现在控制了美国印发美元
+Thousands of individual shareholders of the Federal Reserve now control the U.S. printing and distribution of U.S. dollars
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
+本来美元要和黄金挂钩的，最后不挂钩了，变成了信用美元，变成了法币
+The U.S. dollar was originally pegged to gold, but in the end it was not pegged, it became the credit U.S. dollar and became fiat currency
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+这次就是彻底地把过去的金本位和所有的最后的和金本位挂钩的唯一全球货币，美元
+This time it’s the complete removal of the old gold standard and all the last and only global currency tied to the gold standard, the US dollar
 
+从过去的中心化币，变成了完全虚假的中心化币
+From the past centralized currency to a completely fake centralized currency
 
+完全变成了废币，纸币，这就是到了什么时代催生了数字货币
+It has completely become waste money, paper money, this is what spawned to the arrival of the crypto currency era
+
+数字货币的目的达到什么，结束了真正的人类历史上法币
+What is the purpose of crypto currency? it’s ending the fiat currency in human history
+
+法币的整个虚假时代，包括金本位都是假的
+The entire fake era of fiat currency, including the gold standard is fake
+
+法币将逐渐退出历史舞台，未来就是数字货币
+fiat currency will gradually exit the stage of history, and the future is crypto currency era
+
+**原视频链接:**[https://gettr.com/post/phiqrf6537](https://gettr.com/post/phiqrf6537)
+
+Date:11/23/2021
+原视频标题: 超发货币 将使数字货币代替法币
+Over printed currency will enable cryptocurrency to replace fiat currency
+原视频日期：2021/11/19
+原视频链接https://gettr.com/post/phiqrf6537
+任务编号：KC284（2972）
+视频时间段 : 0:00-2:10
+
+中听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike LI
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
