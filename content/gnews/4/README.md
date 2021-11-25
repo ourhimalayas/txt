@@ -2,8 +2,8 @@
 ---
 
 
-## 卡罗：政客在危机中攫取权力，欧洲威权主义抬头
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1693311/)
+## 杰森·米勒：限制言论自由与极权甚至共产主义没有两样
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1693354/)
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

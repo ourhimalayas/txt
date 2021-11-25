@@ -2,53 +2,99 @@
 ---
 
 
-## 美国政府准备释放“死亡天使”天花生物武器制造永久危机？
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1692456/)
+## 超发货币将使数字货币代替法币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1692532/)
 
-作者：Ethan Huff
+![](https://assets.gnews.org/wp-content/uploads/2021/11/hh-a3a4l-koqqt.jpg)
+[https://gtv.org/video/id=619e3cbfabc44c39e083f4d6](https://gtv.org/video/id=619e3cbfabc44c39e083f4d6)
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Grim-Reaper-Road.jpg)图片来源：网络
-自然新闻：亿万富翁优生学家比尔盖茨已经发出信号，他的下一次大流行即将到来，这似乎涉及有意释放天花生物武器。
+**郭文贵**
+**Miles Guo**
 
-近来，主流媒体充斥着有关神秘天花“小瓶”和其他与天花有关的事物的故事。 大约八年前，我们还报道过联邦政府出于某种原因储备了天花“疫苗”。
+现在由于超发货币，给世界带来了什么样的结果呢
+What kind of results have been brought to the world due to over printed cur-rency?
 
-就在前几天，据说费城郊外实验室的一名工作人员在冰箱里偶然发现了大约 15 瓶天花……某种东西。 据报道，联邦调查局和其他联邦机构进行了干预并正在进行“调查”。
+一定会世界经济大崩溃，但是它触发了两种事件的发生
+It must be a major collapse of the world economy, but it triggered two events
 
-然后，《每日邮报》（英国）报道了盖茨的警告，他声称“恐怖分子”（他自己？）正计划释放天花生物武器。 根据盖茨的说法，这要求政府花费数十亿美元来“预防未来的流行病”。
+第一，2020年到现在，让世界上有了数字货币，
+First, from 2020 to now, the world have crypto currency
 
-碰巧的是，盖茨在他的“Event 201”倡议中解决了所有这些问题，该倡议恰好发生在主流媒体首次宣布武汉冠状病毒（Covid-19）之前。
+就像二战，搞出了灭掉英镑和美元的布雷顿森林体系
+Just like World War II, it occurred the Bretton Woods system in American dol-lars that wiped out the British pound
 
-这场发生在 2019 年 10 月的大流行性演习为中国病毒奠定了基础。 现在，盖茨正在为天花大流行奠定基础，我们推测这将很快传播开来（双关语）。
+一战当时搞出了欧洲的大英帝国，几大家族，罗斯柴尔德，
+World War I created the British Empire in Europe, there are several big fami-lies, like Rothschild
 
-拜登在 9 月份购买了价值数百万美元的天花药物——为什么？
+罗斯柴尔德就是借给战争黄金， 就是金币的，
+Rothschild lent gold to the war which is gold coins
 
-多年来，政府和媒体告诉我们天花已被根除。 据推测，这发生在 1980 年。然而，现在，它正在重新成为头条新闻，至少，并且可能很快就会出现在人类身上。
+给人家一个王国agent的，就是今天说Hpay代表啊
+Rothschild was the agent for a kingdom, that is like Hpay today
 
-早在 9 月，Pedo Joe Biden 领导下的卫生与公众服务部 (HHS) 就安排运送价值 1.125 亿美元的一种名为 TPOXX 的药物，这种药物恰好是一种用于治疗天花的药物。
+就出了罗斯柴尔德呀，一战后，然后美国催生出来的
+It just come out Rothschild after World War I, then the United States spawned
 
-为什么下这个订单？ 拜登政权知道我们其他人不知道的事情吗？ 天花很快会成为下一个流行病吗？ 他们会称它为天花 21 吗？
+就是当时的洛克菲勒，是不是，就这几大家族啊
+It was Rockefeller at the time, right? It was just these big families
 
-“……虽然这三个看似无关的故事有可能实际上彼此‘无关’，但也有可能将这三个故事缝合在一起，就像一个完美缝合的‘阴谋’，一个用来进一步 打击地球上的自由人民，”All News Pipeline 警告说，指的是关于天花小瓶的个别故事、盖茨的天花生物武器警告以及 HHS 购买 TPOXX。
+然后就是摩根斯坦利就出来了，就是因为二战以后的布雷顿森林体系废掉了英镑
+Then Morgan Stanley came out because the Bretton Woods system after World War II abolished the British pound
 
-许多人想知道，当全世界只有两个实验室被授权储存天花样本时，“神秘”小瓶是如何出现在费城的？
+都是战争和经济灾难，1913年到1919年的一战、西班牙大流行病和经济灾难，大萧条
+because wars and economic disasters, the World War I from 1913 to 1919, the Spanish flu pandemic and economic disaster, the Great Depression
 
-顺便说一下，这个费城实验室的所有者正是默克公司。这是否意味着默克正在开发某种药物混合物，以便在天花生物武器发布后立即进行战略性发布？
+到了胡佛总统时期，吧唧上来了，美国诞生了
+Then to the period of President Hoover and the United States was born
 
-盖茨最近还谈到了“细菌游戏”，他将其比作军队在冲突期间使用的“战争游戏”。 深层国家是否计划很快对人民发动一场生物战争？
+二战过去了，是吧，英国完蛋了，英镑结束了，美元起来了搞了美联储，
+World War II is over, right? Britain is over, the pound is over, the dollar is stable and set up the Federal Reserve
 
-“……虽然流感或普通感冒被‘根除’（正如盖茨所说）会很棒，但这些‘细菌游戏’盖茨说的听起来像是假旗练习，以将‘细菌’推向世界，并以 当我们知道全球主义者需要（在他们疯狂的头脑中）‘消灭’世界上很大一部分人口的时候，”所有新闻管道进一步报道。
+美联储上千个个人股东，到现在控制了美国印发美元
+Thousands of individual shareholders of the Federal Reserve now control the U.S. printing and distribution of U.S. dollars
 
-如果您不熟悉天花，据说天花是“一种传染性、毁容性且往往致命的疾病，已经影响了人类数千年。”
+本来美元要和黄金挂钩的，最后不挂钩了，变成了信用美元，变成了法币
+The U.S. dollar was originally pegged to gold, but in the end it was not pegged, it became the credit U.S. dollar and became fiat currency
 
-关于比尔盖茨和生物恐怖主义的最新消息可以在 [Pandemic.news](http://Pandemic.news)上找到。
+这次就是彻底地把过去的金本位和所有的最后的和金本位挂钩的唯一全球货币，美元
+This time it’s the complete removal of the old gold standard and all the last and only global currency tied to the gold standard, the US dollar
 
-来源链接：[https://www.afinalwarning.com/562208.html](https://www.afinalwarning.com/562208.html)
+从过去的中心化币，变成了完全虚假的中心化币
+From the past centralized currency to a completely fake centralized currency
 
-编辑/发布：LILY
+完全变成了废币，纸币，这就是到了什么时代催生了数字货币
+It has completely become waste money, paper money, this is what spawned to the arrival of the crypto currency era
 
-20211124
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-1.jpg)
+数字货币的目的达到什么，结束了真正的人类历史上法币
+What is the purpose of crypto currency? it’s ending the fiat currency in human history
+
+法币的整个虚假时代，包括金本位都是假的
+The entire fake era of fiat currency, including the gold standard is fake
+
+法币将逐渐退出历史舞台，未来就是数字货币
+fiat currency will gradually exit the stage of history, and the future is crypto currency era
+
+**原视频链接:**[https://gettr.com/post/phiqrf6537](https://gettr.com/post/phiqrf6537)
+
+Date:11/23/2021
+原视频标题: 超发货币 将使数字货币代替法币
+Over printed currency will enable cryptocurrency to replace fiat currency
+原视频日期：2021/11/19
+原视频链接https://gettr.com/post/phiqrf6537
+任务编号：KC284（2972）
+视频时间段 : 0:00-2:10
+
+中听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike LI
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

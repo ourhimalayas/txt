@@ -2,46 +2,34 @@
 ---
 
 
-## 华为-中共的特洛伊木马
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1692744/)
+## 新中国联邦最终目的是创造一个全球化的经济和政治实体
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1692917/)
 
-作者：香草山翻译部 – Eleutheria
+**郭文贵先生：**全球的信用系统和综合实力下的拥有全球可通行的数字货币，和——大家要记住啊！和——大家要记住啊！从来没听说过，你现在看到的我们是中心化的喜币，我们一秒钟内就可以去发通行去中心化的币，我们一秒钟内就可以把私链发成公链。
 
+你们不知道喜联储你等了几个月的意义是什么，那大了去了，一秒钟内咱说，摁个Code就可以做到，设计就这么牛！你像那赵长鹏那个小屁孩，那个叫妈咪，他以为他就……七哥关键是咱，咱这个夜总会里面，后面有这个上亿个上万个小姐，不同的人等着呢。
 
+是不是啊！还有嫖客咱都安排好了，他懂个屁啊！是不是啊！而且我们还合法地可以发警察牌照，是吧，还发夜总会牌照，咱都准备好了。即可以发公币也可以发私币，即可以去中心化，也可以非去中心化，这都是分分钟一秒钟做到的事情。这才是你今天问到的问题，去中心化和未来法币相通存在，它最终的结果是此消彼长，然后分辨出能人和笨人，同时是你在这儿能用其两边儿，让你强大，最后创造一个全球化的一个巨大的经济和政治实体。这才是我们新中国联邦最终的目的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-1.jpg)
+视频制作：小满；
 
+字幕来源：[2021年11月19日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1681917/) ；
 
+发布：黎明之前；
 
-据BeepingComputer报道，华为的应用商店发现空前规模的含木马程序应用。并已有超过900万安卓设备遭到感染。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-该木马程序“Android.Cynos.7.origin”由Dr.Web发现，是Cynos木马的一个变种。主要目标是收集用户的敏感个人信息。目前已发展华为应用商店中有超过190个应用携带此木马。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-34.jpg)
-据Dr.Web测试，此木马普遍存在于游戏类应用，并指向俄语、中文及英文用户。更有甚者包含监听、拦截及发送短信，加载附加程序或下载其他应用等功能。如果用户授予权限，该木马可以将以下数据泄露到远程服务器：
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-- 用户手机号
-- 基于 GPS 坐标或移动网络和 Wi-Fi 接入点数据的设备位置
-- 各种移动网络参数，如网络代码和移动国家代码；此外，GSM 小区 ID 和国际 GSM 位置区号
-- 设备的各种技术规格
-- 来自木马应用程序元数据的各种参数
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-众所周知，华为是中共国解放军的下属企业。而华为手机监控窃取用户信息的丑闻已屡见不鲜，这次仅在华为应用商店出现如此规模的大量木马程序极大可能为中共幕后操纵的结果。但全球仍未引起重视继续允许华为设备的海外销售无疑将成为现代版的特洛伊木马。
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-参考来源：[华为-中共的特洛伊木马](https://www.bleepingcomputer.com/news/security/over-nine-million-android-devices-infected-by-info-stealing-trojan/)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
