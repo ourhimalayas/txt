@@ -2,51 +2,66 @@
 ---
 
 
-## 中共国利用大数据加快推行数字货币妄图控制全球金融
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1693582/)
+## [Michael.Tonny专栏]接种CCP病毒疫苗已在欧盟造成118.1万人产生不良反应
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1693624/)
 
-撰稿：三只松鼠
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1DE16D4A-62C3-47BD-97AF-A9AE0A526382.jpeg)
-来自网络截图
+加拿大温哥华扬帆农场 Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/michael-3.jpg)
+截止至2021年11月13日，EudraVigilance统计系统共收到四种在欧洲药品管理局所属欧洲经济区（EEA）27国推广的COVID-19（CCP病毒）疫苗已导致 1,163,356 例药物不良反应报告，其中，轻度不良反应665，751例，严重不良反应497,605例，死亡30,551例。而到2021年11月20日，该系统总共收到1,181,121例CCP病毒疫苗不良反应报告（包含死亡的数据）。
 
-10月13日，国内最大的虚拟币交易平台币安发布通知：为响应国家政策要求，将从2021年12月31日下架CNY交易区，同时清查平台用户，退出中国大陆市场。
+这四种疫苗是：BioNTech/ Pfizer的mRNA疫苗Tozinameran，Moderna的mRNA疫苗mRNA-1273，Johnson & Johnson的疫苗JANSSEN，Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA 。
 
-更早之前的9月26日，国内第二大虚拟币平台OK币发布声明称，已停止大陆用户注册，目前中国大陆用户已无法访问网站，所有APP也均从大陆市场下架，年底前完成用户清退。
+EudraVigilance统计系统是欧洲药品管理局设立的一个旨在收集欧盟 (EU)国家疑似药物副作用报告和用于评估药物开发过程中的益处和风险，并在药品获得授权后监测其安全性的报告统计系统（EudraVigilance-European database of suspected adverse drug reaction reports）。民众可以登录ADRreports.eu网站，查看疑似副作用报告的总数（Individual Case Safety Reports或ICSRs）。
 
-而第三大平台火币，同样在9月26日宣布退出，停止中国大陆用户注册，并在年底前有序退出。
+这些数据是由欧盟(EU)各国药品监管机构和持有药品上市许可（执照）的制药公司以网络报告方式（electronically）提交给EudraVigilance的。
 
-至此，国内最大的三家虚拟币交易平台，全部都将退出中国，其余一众迷你平台，也几乎在同时遭到清理。
+持有药品上市许可的制药公司以及欧盟国家的药品监管机构，依法必须向EudraVigilance 提交疑似副作用报告。包含从医疗、保健专业人员和患者那裡收到的报告，但不包括在欧盟之外发生的非严重副作用，也不包括研究报告（例如临床试验、非干预性研究）或其他类型的报告（仅自发报告）。
 
-中共国这样做的真实目的是中共国央行自己要发行人民币的数字货币，中共国要发展自己的所谓区块链技术，首先就必须为自己的“伪技术”正名，那就必须要把其余的所有虚拟货币搞掉，不然怎么为自己的法定数字货币正名、清道、立威？
+必须报告的副作用包括：(i) 导致死亡，(ii) 危及生命，(iii) 需要住院或延长现有住院时间，(iv) 报告者认为会导致持续或严重的残疾/丧失能力，(v)先天性异常/出生缺陷，或 (vi) 导致其他一些重要的医学病症。
 
-再看看中共的国有银行不久前强行收编民营科技企业蚂蚁、腾讯、京东等等，将支付宝、微信支付等国有化，直接就是为整合、抢夺、确立中共政府在中国数字支付领域的垄断地位做的准备。以前是“打土豪，分田地”，现在是“打科技，分[数据](https://m.soundofhope.org/term/4065)”。
+必须强调的是，EudraVigilance维护的数据库仅包括属于欧盟27个国家。这意味著，如果我们将欧洲50来个国家都包括在内，CCP病毒疫苗导致的不良反应病例会多得多。
 
-中国央行在内的金融监管部门，也正在制定规范互联网平台公司金融数据的新政策，要求互联网巨头将它们内部掌握的庞大贷款数据全部导入国家控制的信用中心。
+根据EudraVigilance系统统计数据显示，CCP病毒疫苗导致的副作用（死亡或药物不良反应）包括：血液和淋巴系统疾病；心脏疾病；先天性、家族性和遗传性疾病；听力系统疾病；内分泌失调；眼部疾病；胃肠道疾病；一般疾病和给药部位疾病；肝胆疾病；免疫系统疾病；易被感染或侵染；受伤、中毒和手术并发症；代谢和营养障碍；肌肉骨骼和结缔组织疾病；良性、恶性和未指明的肿瘤（包括囊肿和息肉）；神经系统疾病；妊娠、产褥期和围产期疾病；精神疾病；肾脏和泌尿系统疾病；生殖系统和乳房疾病；呼吸、胸部和纵隔疾病；皮肤和皮下组织疾病；；外科和医疗程序；血管疾病，等等。
 
-中共数字人民币并不是一种真正的加密货币，是受中共政府严密控制的。其加密至多是针对用户和商家，不是针对中共政府和银行，而是有利于中共央行、国有银行。中国普通百姓会失去更多隐私和权利，政府和银行可以随时、方便地查询。
+截至2021年11月13日，四种疫苗导致的不良反应具体数据如下：
 
-[中共](https://m.soundofhope.org/term/1059)政府真正的目标首先是对中国社会全面的垄断控制，他们所谓“最先进”、最关键的手段就是大数据和数字人民币。数字化人民币，不只是区块链技术而已，它还包括一系列的流通和监管的手段，这就需要掌握几乎所有的数据，尤其是与金融有关的数据，只有掌握这些数据，才能用AI人工智能自动进行监控。这一套，就是现在中共对大陆互联网的手段和方法，也就是习近平十九大说的“政府治理现代化”。
+- BioNTech/ Pfizer的mRNA疫苗Tozinameran（代码 BNT162b2，Comirnaty）：14,303 例死亡和562,213 例不良反应
 
-当然中共国的野心还不仅在此。中共国虚拟货币和数字货币领域专家、复星集团联合创始人梁信军，在今年4月30日的一个讲话中表示，“实现更多国家的主权数字货币（Digital Currency Electronic Payment, DCEP）和社区数字货币的无缝兑换，进而实现全球支付流通，是应对‘一球二制’的金融解决方案。”
 
-梁所说的“一球二制”，是中共的一种说法，是指以中共为代表的共产极权制度与以美国为代表的西方民主制度在地球上共存。
+- Moderna的mRNA疫苗mRNA-1273(代码CX-024414)：8,385例死亡和155,793例不良反应
 
-中共利用全球化中的互联网法规空白，以商业化的外壳抢占区块链资源，试图在SWIFT结算体系中，伺机与美国争夺全球货币结算话语权。此项操作不仅使中共能够开发更快、更好的金融支付系统，以及可能在国际间流通使用的中央银行数字货币，还将直接挑战美元作为世界主要储备货币的地位。
 
-文贵先生也曾多次谈到中共国要控制全球金融、“干掉美元”的野心，并指其手段之一，就是利用比特币等加密货币，搞乱美元主导的国际支付系统SWIFT，最终用人民币来取代美元。
+- Johnson & Johnson的疫苗JANSSEN（AD26.COV2.S）：1793人死亡和37038不良反应
 
-中共强推数字货币目的是想通过发行数字货币来应对目前出现的中共人为制造的通货膨胀，消化投入房市的天量资金，控制货币流通，并可监控老百姓、异议人士，从而达到墙内维稳目的。然后再利用“一带一路”逐渐将数字人民币全球化，达到控制全球金融的目的。但我们爆料革命战友都知道：这不仅救不了中共，而且必将加速中共垮台。
 
-参考消息：
+- Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA (CHADOX1 NCOV-19)：6,070 人死亡和408,312例不良反应
 
-[https://m.soundofhope.org/post/567956](https://m.soundofhope.org/post/567956)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-166.jpg)
+截止到2021年11月20日，EudraVigilance收到的BioNTech/ Pfizer、Moderna、Johnson & Johnson、Oxford/ AstraZeneca四种疫苗不良反应报告（包含死亡）分别为：574,427例、158,401例、410,479例、37,814例。
 
-[https://www.epochtimes.com/gb/21/5/25/n12974568.htm](https://www.epochtimes.com/gb/21/5/25/n12974568.htm)
+11月20日，Moderna的mRNA疫苗mRNA-1273的不良反应报告统计
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-120.jpg)
+11月20日，BioNTech/ Pfizer的mRNA疫苗Tozinameran（代码 BNT162b2，Comirnaty）的不良反应报告统计
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-98.jpg)
+11月20日，Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA (CHADOX1 NCOV-19) 的不良反应报告统计
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-65.jpg)
+11月20日，Johnson & Johnson的疫苗JANSSEN（AD26.COV2.S）的不良反应报告统计
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-49.jpg)
+参考资料：
 
-[https://posts.careerengine.us/p/6196e3c8d47bc93b0993ac4e?from=latestPostSidePanel](https://posts.careerengine.us/p/6196e3c8d47bc93b0993ac4e?from=latestPostSidePanel)
+1. [EXCLUSIVE: European Medicines Agency Data Shows 1,163,356 Adverse Drug Reactions and 30,551 Fatalities by COVID-19 Vaccinations](https://www.thegatewaypundit.com/2021/11/european-medicines-agency-data-shows-1163356-adverse-drug-reactions-30551-fatalities-covid-19-vaccinations/)
+2. [EudraVigilance-European database of suspected adverse drug reaction reports](https://www.adrreports.eu/en/data_source.html)
+3. [Important information to consider before looking at ADR reports for the COVID-19 vaccines](https://www.adrreports.eu/en/covid19_message.html)
+4. [Number of individual cases identified in EudraVigilance received over the last 12 months and overall for COVID-19 MRNA VACCINE MODERNA (CX-024414) (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages)
+5. [The number of individual cases identified in EudraVigilance for TOZINAMERAN is 574,427 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42325700)
+6. [The number of individual cases identified in EudraVigilance for COVID-19 VACCINE ASTRAZENECA (CHADOX1 NCOV-19) is 410,479 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40995439)
+7. [The number of individual cases identified in EudraVigilance for COVID-19 VACCINE JANSSEN (AD26.COV2.S) is 37,814 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42287887)
 
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
+
+* * *
+
+编审：文敏 发布：文敏
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,65 +2,34 @@
 ---
 
 
-## [Michael.Tonny专栏]接种CCP病毒疫苗已在欧盟造成118.1万人产生不良反应
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1693624/)
+## 中共国出生率跌至数十年来最低水平
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1693629/)
 
-加拿大温哥华扬帆农场 Michael.Tonny
-![](https://assets.gnews.org/wp-content/uploads/2021/11/michael-3.jpg)
-截止至2021年11月13日，EudraVigilance统计系统共收到四种在欧洲药品管理局所属欧洲经济区（EEA）27国推广的COVID-19（CCP病毒）疫苗已导致 1,163,356 例药物不良反应报告，其中，轻度不良反应665，751例，严重不良反应497,605例，死亡30,551例。而到2021年11月20日，该系统总共收到1,181,121例CCP病毒疫苗不良反应报告（包含死亡的数据）。
+#### 作者：日本东京方舟农场 子辰
 
-这四种疫苗是：BioNTech/ Pfizer的mRNA疫苗Tozinameran，Moderna的mRNA疫苗mRNA-1273，Johnson & Johnson的疫苗JANSSEN，Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA 。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5902412F-A70E-4B1F-84F8-8E24B254BB20.jpeg)图片来自《法新社》
 
-EudraVigilance统计系统是欧洲药品管理局设立的一个旨在收集欧盟 (EU)国家疑似药物副作用报告和用于评估药物开发过程中的益处和风险，并在药品获得授权后监测其安全性的报告统计系统（EudraVigilance-European database of suspected adverse drug reaction reports）。民众可以登录ADRreports.eu网站，查看疑似副作用报告的总数（Individual Case Safety Reports或ICSRs）。
+据CNA11月24日报道，中共国的出生率去年暴跌至数十年来最低水平，创下历史新低，凸显出迫在眉睫的人口危机。中共称，其原因是劳动力迅速老龄化、经济放缓以及几十年来最疲软的人口增长所致。
 
-这些数据是由欧盟(EU)各国药品监管机构和持有药品上市许可（执照）的制药公司以网络报告方式（electronically）提交给EudraVigilance的。
+此前，中共为了鼓励生育，在 2016 年放宽了世界上最严格的计划生育法规之一——“一孩政策”，允许每对夫妇生育两个孩子。而在今年早些时候，又将这一政策扩展到三个孩子。
 
-持有药品上市许可的制药公司以及欧盟国家的药品监管机构，依法必须向EudraVigilance 提交疑似副作用报告。包含从医疗、保健专业人员和患者那裡收到的报告，但不包括在欧盟之外发生的非严重副作用，也不包括研究报告（例如临床试验、非干预性研究）或其他类型的报告（仅自发报告）。
+据 2021 年发布的统计年鉴显示，中共国去年每1000人记录了8.52 名新生儿，这是自 1978 年年鉴统计数据开始以来的最低数字。对照中共国国家统计局的数据，这比上一年的 10.41 有着显著下降，也是自 1949 年中共建立政权以来的最低数字。
 
-必须报告的副作用包括：(i) 导致死亡，(ii) 危及生命，(iii) 需要住院或延长现有住院时间，(iv) 报告者认为会导致持续或严重的残疾/丧失能力，(v)先天性异常/出生缺陷，或 (vi) 导致其他一些重要的医学病症。
+此外，年鉴还显示，2020年中共国的登记结婚数量只有814万对，也创下了17年以来的新低。
 
-必须强调的是，EudraVigilance维护的数据库仅包括属于欧盟27个国家。这意味著，如果我们将欧洲50来个国家都包括在内，CCP病毒疫苗导致的不良反应病例会多得多。
+上述数据尽管已经触目惊心，但外界仍对中共国的真实数据持有怀疑态度。
 
-根据EudraVigilance系统统计数据显示，CCP病毒疫苗导致的副作用（死亡或药物不良反应）包括：血液和淋巴系统疾病；心脏疾病；先天性、家族性和遗传性疾病；听力系统疾病；内分泌失调；眼部疾病；胃肠道疾病；一般疾病和给药部位疾病；肝胆疾病；免疫系统疾病；易被感染或侵染；受伤、中毒和手术并发症；代谢和营养障碍；肌肉骨骼和结缔组织疾病；良性、恶性和未指明的肿瘤（包括囊肿和息肉）；神经系统疾病；妊娠、产褥期和围产期疾病；精神疾病；肾脏和泌尿系统疾病；生殖系统和乳房疾病；呼吸、胸部和纵隔疾病；皮肤和皮下组织疾病；；外科和医疗程序；血管疾病，等等。
+在中共治下，老百姓的生活成本越来越高，高房价、低收入，加上经济低迷等等，都是导致中共国年轻人不愿生育的直接原因。
 
-截至2021年11月13日，四种疫苗导致的不良反应具体数据如下：
-
-- BioNTech/ Pfizer的mRNA疫苗Tozinameran（代码 BNT162b2，Comirnaty）：14,303 例死亡和562,213 例不良反应
-
-
-- Moderna的mRNA疫苗mRNA-1273(代码CX-024414)：8,385例死亡和155,793例不良反应
-
-
-- Johnson & Johnson的疫苗JANSSEN（AD26.COV2.S）：1793人死亡和37038不良反应
-
-
-- Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA (CHADOX1 NCOV-19)：6,070 人死亡和408,312例不良反应
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-166.jpg)
-截止到2021年11月20日，EudraVigilance收到的BioNTech/ Pfizer、Moderna、Johnson & Johnson、Oxford/ AstraZeneca四种疫苗不良反应报告（包含死亡）分别为：574,427例、158,401例、410,479例、37,814例。
-
-11月20日，Moderna的mRNA疫苗mRNA-1273的不良反应报告统计
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-120.jpg)
-11月20日，BioNTech/ Pfizer的mRNA疫苗Tozinameran（代码 BNT162b2，Comirnaty）的不良反应报告统计
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-98.jpg)
-11月20日，Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA (CHADOX1 NCOV-19) 的不良反应报告统计
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-65.jpg)
-11月20日，Johnson & Johnson的疫苗JANSSEN（AD26.COV2.S）的不良反应报告统计
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-49.jpg)
-参考资料：
-
-1. [EXCLUSIVE: European Medicines Agency Data Shows 1,163,356 Adverse Drug Reactions and 30,551 Fatalities by COVID-19 Vaccinations](https://www.thegatewaypundit.com/2021/11/european-medicines-agency-data-shows-1163356-adverse-drug-reactions-30551-fatalities-covid-19-vaccinations/)
-2. [EudraVigilance-European database of suspected adverse drug reaction reports](https://www.adrreports.eu/en/data_source.html)
-3. [Important information to consider before looking at ADR reports for the COVID-19 vaccines](https://www.adrreports.eu/en/covid19_message.html)
-4. [Number of individual cases identified in EudraVigilance received over the last 12 months and overall for COVID-19 MRNA VACCINE MODERNA (CX-024414) (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages)
-5. [The number of individual cases identified in EudraVigilance for TOZINAMERAN is 574,427 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42325700)
-6. [The number of individual cases identified in EudraVigilance for COVID-19 VACCINE ASTRAZENECA (CHADOX1 NCOV-19) is 410,479 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40995439)
-7. [The number of individual cases identified in EudraVigilance for COVID-19 VACCINE JANSSEN (AD26.COV2.S) is 37,814 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42287887)
-
+*新闻链接： [https://www.channelnewsasia.com/china-birth-rate-record-low-population-marriage-divorce-2334976](https://www.channelnewsasia.com/china-birth-rate-record-low-population-marriage-divorce-2334976)*
 
 * * *
 
-编审：文敏 发布：文敏
+*素材采编：子辰*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
 
  
 

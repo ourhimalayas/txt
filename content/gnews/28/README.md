@@ -2,24 +2,35 @@
 ---
 
 
-## 美国再出手，中共多家企业被列入黑名单！
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1693682/)
+## 悉尼房价预计将在明年达到顶峰
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1693695/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-200.png)**（图片源自本文链接）**
-11月25日日本雅虎网站发表路透社华盛顿1月24日消息：美国政府24日以国家安全和外交政策为由，将多家中共国公司列入禁运名单上的实体名单。此外，一些中共国和巴基斯坦的公司和个人，因对巴基斯坦的核计划和弹道导弹计划有贡献也被列入该实体名单。美国和中共国之间的关系在台湾和贸易问题上已变得越来越紧张。
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/capi_721a1d8bcd173ba6f50b15309a04986e_ce100ece3c115e7ae3badda530927685.jpeg)图片来源：Realestate
+**整理报道：**翼族
 
-本次共有27家中国、日本、巴基斯坦和新加坡的公司被列入了该实体名单。商务部长莱蒙德在一份声明中解释说，将这些公司和个人列入名单是为了防止美国技术支持到中共国和俄罗斯的军事发展，以及巴基斯坦的核活动和弹道导弹计划。
+今年悉尼的房价平均上涨了25%，但是卖家急于从当前的房地产繁荣中获利。随着市场转向有利于买家，悉尼房价预计将在明年达到顶峰，然后下跌。
 
-商务部表示，包括湖南国科微电子在内的几家中共国公司被列入名单，是因为它们 “支持人民解放军的军事力量走向现代化”。包括国盾电子在内的几家公司是因获得或试图获得美国的技术或产品用于军事目的而被列入名单。
+专家认为，房地产繁荣即将结束，这促使卖家会在年底前从高价中获利。
 
-向这些公司出口美国的零部件和技术需要得到当局的许可，而申请几乎不会被批准。
+本周末悉尼有1100场拍卖会，这是今年的又一个纪录。上周末的拍卖清盘率为71%，为五个月以来的最低水平，这意味着买家有更多选择。
 
-信息来源：[米政府、中国企業など27社を禁輸対象リストに追加（ロイター） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/b78c2b921f154b1943257a49ce73cbf356917669)
+对于希望投资而不是居住的人，ME Bank的一项研究表明，澳大利亚排名前20的郊区，其中有8个都在悉尼。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+AMP Capital的首席经济学家谢恩·奥利弗（Shane Oliver）表示：“悉尼房价在2023年可能会下跌。特别是，如果储备银行开始像我们预期的那样提高利率。”
+
+奥利弗先生说：“我认为舞会正在接近尾声，明年我们可能仍会看到更多的进展。”
+
+**原文链接：**[Sydney property prices could fall by 10 per cent by 2023](https://www.msn.com/en-au/news/australia/sydney-property-prices-could-fall-by-10-per-cent-by-2023/ar-AAR4j0T?ocid=msedgntp)
+
+*编辑/发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
