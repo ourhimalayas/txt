@@ -2,21 +2,21 @@
 ---
 
 
-## 加拿大“无疫苗歧视招聘网站”成立
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1695343/)
+## 拜登将对穿越美加边境的卡车司机实行强制接种政策
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1695391/)
 
-采编， 编译撰稿：文莱      校对编辑：硫酸羟氯喹64
+采编：文莱      编译撰稿：硫酸羟氯喹64
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-62-edited.jpg)图片来源：THN
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-58.jpg)图片来源：REBELNEWS
 
 
-据加拿大自媒体《真北方》11月24日报道：目前，该国一个致力于协助未接种“新冠病毒”疫苗者寻找“不需要提供其接种状况”工作的招聘网站[Jabless Jobs]已经建立。
+据加拿大自媒体《反叛新闻》11月24日报道，拜登政府当天宣布即将推出针对所有穿越美加边境的加拿大货运卡车司机的“新冠病毒”疫苗强制接种规定。
 
-据悉，该网站同时为那些“不介意该疫苗接种状况的雇主”和“未接种该疫苗的求职者”双方提供了平台。目前，联邦政府推行的强制接种规定已导致无数加拿大人因未接种该疫苗而被当局解雇或放无薪假。这不仅造成了该国劳动力的严重匮乏，还将引发今后“大规模劳工诉讼”的潜在风险。
+据悉，从明年1月22日开始，美国政府将要求所有非该国居民的货物运输卡车司机以及加拿大政府的应急官员在入境美国前，都必须完全接种该疫苗。报道为此指出：当美国消费者因商品和服务价格飙升而受到影响时，拜登政府却对正在发生的供应链危机无动于衷。而这项规定如果被按计划执行，它或将给美加跨境经济带来重大负面后果。
 
-报道称，总理特鲁多因在之前的竞选活动期间，曾向公众承诺要将“疫苗强制接种计划”作为其政令的核心部分，而开创了加拿大从联邦政府公共部门到私营企业的全面强制接种先例。
+报道还称，拜登政府此举是在加拿大宣布将要求所有卡车司机，在明年1月15日之前进入加拿大时都必须完全接种“新冠病毒”疫苗的政策之后才推出的。根据【加拿大卡车联盟】提供的统计数据，在美国和加拿大之间每年6480亿美元的贸易中，大约有70%是通过卡车运输方式完成的。
 
-原文链接：[Employment service launches for Canadians who do not wish to provide vaccine status | True North (tnc.news)](https://tnc.news/2021/11/24/employment-service-launches-for-canadians-who-do-not-wish-to-provide-vaccine-status/)
+原文链接：https://www.rebelnews.com/biden\_admin\_announces\_vaccine\_requirement\_for\_all\_commercial\_truck\_drivers\_crossing\_canada\_us\_border
 
  
 

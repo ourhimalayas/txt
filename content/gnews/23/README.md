@@ -2,25 +2,29 @@
 ---
 
 
-## 中共的“劫富济豪”－中共是富可敌地球的土豪
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1695022/)
+## 有声|郭文贵先生临时直播爆料 本周三件大事
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1695065/)
 
-作者： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-25-183140.jpg)图片来源 ：G-TV
-今天（11月24日）文贵先生在5个多小时的大直播中，用很大一段声讨中共犬儒司马南，这个王岐山豢养的狗，狂咬中华民族少有的成功私人企业家、实业家、联想集团创始人柳传志先生。柳传志先生不仅为中共国的IT产业培养了一大批精英人才，而且是中共国现在仅有不多的在世界上受到同行认可的实业家。但是，随着中共新一波“打土豪分田地”收割韭菜的开始，所剩无几的“肥壮韭菜”几乎无一幸免，如阿里巴巴的马云、腾讯的马化腾等，包括联想的柳传志。
+配音：香草山美食部 – 玫瑰园
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+2021年11月22日，郭文贵先生盖特直播，透露了本周的三件大事。 首先，GTV要升级，会有一系列的行动，提醒拥有喜币的战友，虽然有6成的控制权，但没有喜联储的股权。进入GTV系统，才是gclub, gfahion,喜联储的股东，才有铸币权，享受千秋万代的利益。 其次，所有gclub投资者，拥有每个国家和地区HPay的优先代理权。 第三，有人冒充战友骗了币，影响到农场喜币的额度，农场有权把币取消，所有不配合联盟行动的，都不是战友。中东迪拜，一系列的公布，证明着喜币的价值，战友更应该了解喜币价值！
 
-为了给老百姓打鸡血，美其名曰“杀富济贫”，而实质是劫持了这些富有的企业家的财富，不仅一分钱没有济贫，而抢劫的财富如数进到了中共高层这几个“富可敌一个地球”的盗国贼的腰包，而贫困的阶层将更加贫困，因为这些企业不能再为他们提供就业，与企业相关的上下生产链全都面临破产，中共根本不在乎老百姓死活，需要时百姓用来充当打土豪的枪手，之后，哪怕“人们3年吃草”，中共都认为是对人民很恩惠了。
+文贵先生表示：疫苗灾难2022年5月真正开始，爆料革命要停止疫苗对全世界人类的迫害，病毒真相和新冠疫苗解药，都来自新中国联邦。无论发生什么，灭共是使命，违背灭共目标是不行的。
 
-永远不要听信中共说什么，连中共自己的《人民日报》前主编都在自己自传中写道：人民日报连标点符号都不能信！
+文字版原文：[郭文贵先生临时直播爆料 本周三件大事](https://gnews.org/zh-hans/1690721/)
 
-多亏爆料革命引领人文贵先生30年卧薪尝胆，没有文贵先生第一手中共高层和各界的真相揭露，别说西方人被中共所迷惑，连像我这样在中共国长大的战友，也没能认识到一直被灌输的“比爹亲、比娘亲”的中共不代表中共国人，不代表中共国，而中共国人民的一切灾难，都是因为这个邪恶的流氓共产党。今天世界人民从病毒和疫苗的灾难中也认识到，中共是灭绝人类的恶魔！中共国共产党不仅要在中共国“劫富济豪”，也不会放过全世界的财富！
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-* * *
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-*审核：Aries的星
-校对：信心满满
-发布：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
