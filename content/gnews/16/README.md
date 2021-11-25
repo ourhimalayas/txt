@@ -2,26 +2,24 @@
 ---
 
 
-## SEC公布有关GTV、SARACA和VOG投资的命令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694941/)
+## 沃尔玛累计关闭80多家中共国门店
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694960/)
 
-作者：波士顿五月花 – 葛朗台太太
+作者：飞虹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月23日，美国证券交易委员会SEC的官方网站上发布了一条最新命令称，用于GTV、SARACA和VOG公司退款令专有的公平基金已经收到了由相关公司负责人支付的四亿五千五百四十三万九千一百九十四点四九美元。
+当地时间11月23日，据中共媒体消息透漏，中共国首家开设的沃尔玛门店——深圳洪湖店将于本月底关闭。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-26-上午12.39.46.png)圖片來源：香港01
+据了解，沃尔玛是较早在中共国境内开设门店的外资超市之一。1996年，沃尔玛首家门店入驻深圳市罗湖区。然而，在20年的平稳发展后，自2016年起，中共国内外资商超的发展开始每况愈下：一些外资企业逐渐抛售在华股权，沃尔玛也开始频繁关店。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2-15.jpeg)
+相关资料显示， 仅2021年上半年，沃尔玛关闭的门店数量多达11家，而最近6年间，沃尔玛的关店总数高达80多家。
 
-根据该命令，从相关负责人处收集到的资金都将被保存至这个公平基金中。同时，该公平基金已被存入美国国务院财政部财政局的一个计息账户中，其后所获得的任何应计利息都将归该公平基金所有。 另外，执法部门已任命 JND 法律管理公司作为该基金的管理人，为此，JND现已被列入SEC批准的基金管理人名单中。但是，SEC此条命令仍未明确地给出具体的退款日期。
+参考链接：[https://gettr.com/post/phoflk885b](https://gettr.com/post/phoflk885b)
 
-据悉，自10月4日起，GTV和SARACA的投资人一直在SEC位于美国华盛顿的总部办公室前进行抗议。其中，投资人对SEC提出了五大诉求，包括：1. 立即归还属于投资者的资金；2. 立即停止和中国共产党的勾兑；3. 立即停止针对华裔投资者的种族歧视；4. 赔偿投资者的一切损失；5. 要求负责的人出来对话。
-
-参考链接：[https://www.sec.gov/litigation/admin/2021/34-93666.pdf](https://www.sec.gov/litigation/admin/2021/34-93666.pdf)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
 总编：文特
-编辑：Lakeman (文仁) 
-校正/发稿：谐趣园
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

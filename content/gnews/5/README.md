@@ -2,32 +2,36 @@
 ---
 
 
-## 疫苗灾难继续 韩国著名女团成员Lisa确诊
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1694998/)
+## SLOVENIA危机：吹哨人称政治家合伙骗人民打疫苗
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1695021/)
 
-**作者：日本东京方舟农场 老孙**
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip64.png)图片来源：dailytelegraph.co.nz
+东欧国家斯洛文尼亚（**SLOVENIA**）发生了一场危机，一名吹哨人（护士）告诉公众，政客合伙其他高级公民（富人）接受的是**“3**号**”**生理盐水，而不是** mRNA **实验药物（也就是说，疫苗制药厂合伙政府和富豪屠杀人民）。
 
-11月24日，韩国YG娱乐公布，旗下女团BLACKPINK成员Lisa确认感染中共病毒，此前该女团成员都已完成疫苗接种。
+在（已被 YouTube 删除的）[Facebook 上的一段视频中](https://www.facebook.com/stoplaznivimmedijem/videos/190515176301913/)，这名自称是在卢布尔雅那（Ljubljana）大学医学中心（负责接收和管理政客注射瓶的）女护士长已经辞职，并就此政治丑闻召开了新闻发布会。她说，她亲自见证了所有政治家和富豪的打针过程，所有收到“1号”瓶的人，都声称他们收到的是生理盐水，是安慰剂。这就解释了为什么政客们通过主流媒体拍照时，是由同一个人给他们打针。
 
-据韩媒报道，其所属公司YG娱乐相关负责人对外证实了这一消息。YG还透露，LISA在已完成全部疫苗接种。
+在会议期间，她展示了瓶子上的代码，其中每一个都包含1、2或3位数字，然后解释这些数字的含义。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1000-1.png)图片来自腾讯网
+注：《每日电讯报》从我们在斯洛文尼亚的消息来源了解到，原始视频现在已经从Facebook上删除。
 
-BLACKPINK组合成员Lisa确诊后，组合其他成员为密切接触者，进行自我隔离，并停止了一切商业活动，接受核酸检测。
+“1号”是安慰剂，盐水；“2号”是mRNA；“3号”是一个 mRNA stick，包含 onco 基因，与导致癌症发展的腺病毒有关。她说那些接受“3号”瓶的人（美国红州）将在接受疫苗注射后的两年内，患上软组织癌症。
 
-据了解，Lisa曾担任中共国综艺节目《青春有你》的节目导师，收获了不少中共国粉丝。当日，Lisa感染中共病毒的消息冲上中共国微博热搜。
+补充：
 
-*参考链接：*
+来自推友（[@deNutruents](https://twitter.com/deNutrients/status/1463369583323189250?s=20)）于2021年11月23日分享：编码中带有“01”的疫苗批号是生理盐水溶液类型（附两图），这是由一名女护士长说的。
 
-[Lisa确诊新冠 同组合成员核酸结果公布！韩国娱乐圈成疫情“重灾区”](https://new.qq.com/omn/20211125/20211125A05L0Z00.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip65.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip66.png)
+
+**新闻来源**：[dailytelegraph.co.nz] [CRISIS IN SLOVENIA: WHISTLEBLOWER NURSESAYS POLITICIANS RECEIVE SALINE INSTEAD OF MRNA JAB](https://dailytelegraph.co.nz/covid-19/crisis-in-slovenia-whistleblower-nurse-says-politicians-receive-saline-instead-of-mrna-jab/) | 发布时间：2021年11月24日
 
 * * *
 
-*素材采编：老孙*
+***发稿：信心满满***
 
-*编辑：文顺*
-
-*发布：Ranting*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
 
  
 
