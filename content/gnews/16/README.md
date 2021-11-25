@@ -2,43 +2,29 @@
 ---
 
 
-## 台湾受邀参与美民主峰会，中共未入受邀名单
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694530/)
+## 煤票死灰复燃 中共经济遭打脸
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1694565/)
 
-撰稿：纽约香草山 医疗部 云豹
+撰稿：东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-66.jpg)
+[图片来源](https://4g.dahe.cn/news/20211125928958)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
+在位于中国煤矿区的山西省朔州市，毛时期的时代产物——煤票又开始盛行了。据说是为了确保在严寒的冬天将取暖煤分发给所有居民。
 
+中国青年报24日报道，朔州市已为4.7万户家庭发放煤票。说一张票可以买两吨煤，够一户供暖到明年春天。
 
+此举在社交媒体上引发热议，让人联想到毛泽东时代的计划经济，当时政府为家庭购买日用品设定了配额，以应对短缺。
 
+拒绝澳洲煤炭进口，再加上今年山西人为的大水灾，导致的“断煤潮”还是不可阻挡地袭来了。至于这计划经济时代的“煤票”的再次问世，会不会带来“粮票”、“肉票”、”布票”的死灰复燃，就要看中共的“擀面杖子”经济可以撑多久了。中国梦奋斗了几十年，尚还不能解决民众最基本的温饱取暖问题，口口声声还要为世界把脉，开药方，真是滑稽之极！
 
+信息来源：
 
-11月23日，美国国务院公布了12月白宫虚拟民主峰会受邀名单，台湾已受邀参加该峰会。 中共及俄罗斯则未在受邀名单中。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11259-1.png)
-刚公布的受邀名单中有110个国家，立陶宛、日本、英国、德国等国家都在受邀之列。
+[中国で配給切符復活、石炭危機終わらず－毛時代連想とネットざわつく](https://news.yahoo.co.jp/articles/7e4b3c8ba0d20dfa6dbaf3d81b4842e5306f8e67)
 
-美国总统拜登将在12月9日至10日召开此次虚拟领袖民主峰会，邀集国家元首、公民社会、慈善事业与私人部门成员，谈论当前民主制度遭遇到的挑战。 此次峰会聚焦3大主题，包括对抗威权、打击贪腐及促进对人权的尊重等。
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-3.png)
 
-
-
-新闻连接：[白宮民主峰會邀台灣立陶宛等110國 中俄未入名單](https://www.cna.com.tw/news/firstnews/202111245002.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3-6.png)
-
-总编：飞虹
-
-编辑：木白
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
 
  
 
