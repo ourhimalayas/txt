@@ -2,38 +2,30 @@
 ---
 
 
-## 2021/11/23 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1692611/)
+## 为了让美国参加冬奥会，中共愿花“大价钱”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1692827/)
 
-1. 11月22日，内蒙古呼和浩特发生燃爆。中共官方称已致1死14伤，事故因管道燃气泄漏所致。
-2. 11月22日，江西南昌一宿舍居民楼坍塌，官方称事故造成3个家庭共4人遇难。
-3. 11月22日，由于官方通报新增新冠确诊病例，辽宁大连甘井子区居民半夜被贴封条。
-4. 市民拍下中共医院夜晚人们席地而睡的一幕，感叹世间的艰难。
-5. 湖北武汉，一女子因与不拴绳遛狗主人冲突后愤恨跳楼。上百邻居19日在事发地悼念。
-6. 11月22日，浙江温州一民房因家中办丧事失火，2人遇难。
-7. 河南乡村灾后3个月现状，政府难言保障，村民自主生死。
-8. 11月19日，广东广州。市民民房被强拆，住户欲相继跳楼抗议。
-9. 11月21日，广东茂名信宜市。疑因情感纠纷，一男子当街杀害二人后原地等待警察抓捕，凶手伤害手段极其残忍。
-10. 11月20日，辽宁大连。被欺骗的爱心，居民捐给贫困山区的衣服，被装进运输垃圾的垃圾车。
-11. 11月20日，河南周口。儿子推着瘫痪6年的爸爸，给邻居家摘辣椒打零工来补贴家用。
-12. 11月21日，广西南宁。一白色小车在大桥上失控撞倒多辆电动车，现场多人受伤。
+作者：纽约香草山农场福音部 – 恩永存
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月23日，郭文贵先生在GTV直播中透露，几个月前，新中国联邦向国际奥委会寄去了一封抵制北京冬奥会的请求信，一石激起千层浪。22日，中共找美方沟通：为了让美国参加北京冬奥会，中共给予了美方再购买一千亿美元美债，让恒大、融创“循序”破产等“大价钱”的承诺。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-35.jpg)
+中共冬奥会能否办成，或者，中共需要付出多大的代价办？郭先生再次强调了新中国联邦在国际社会的影响力和重要性。博弈正在进行中。
 
+参考链接：[为了让美国参加冬奥会，中共愿花“大价钱”](https://gettr.com/post/phpnc7b875)
 
-封面图片来源于网络
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-* * *
+总编：AN
+编辑：木白
+校对/发稿：Hetangyuese
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

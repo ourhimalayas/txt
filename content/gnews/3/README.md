@@ -2,24 +2,20 @@
 ---
 
 
-## 拜登政府因国家安全问题将27家公司列入黑名单
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1693626/)
+## 辉瑞指控员工盗取大量内部及涉密文件
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1693652/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-20.png)
-图片来源：网络截图
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-38.png)
+图片来源： https://www.thequint.com/
 
-据合众国际社11月24日报道，拜登政府周三以国家安全和外交政策利益为由，将来自中共国、日本、巴基斯坦和新加坡的另外27家公司和个人列入黑名单。
+“零对冲”网11月24日报道，辉瑞公司23日向南加州的地方法院提诉，指控一名即将离职的高级员工在其个人谷歌网盘及存储设备上保存了12000多份公司文件，其中包含大量机密内容。
 
-商务部工业和安全局将这些组织列入其实体名单，该名单要求对不道德行为或威胁美国国家安全的一些项目的出口或转让提供许可执照。
+辉瑞指控其统计部门的副总监李春晓（音译）及另外5名嫌疑人的商业间谍行为，称其盗存的文件涉及公司及商业机密，其中包括对新冠疫苗的内部评估、辉瑞跟合作伙伴的关系等，并称李离开辉瑞后可能将于29日跳槽到对手的临床阶段生物制药公司Xenocor。李于2006 年加入辉瑞位于中国的产品开发团队，2016 年调到美国加州的园区。她转存文件的行为在公司例行的电脑追迹排查中被发现，辉瑞称李在调查中向公司上交的个人电脑为调包货，相信真正用于转存文件的电脑仍在李或另外几名嫌疑人的手中。
 
-美商务部长吉娜·雷蒙多说，该行动将有助于防止美国的技术被转移到中华人民共和国和俄罗斯，用于提高其军事能力，以及被巴基斯坦用于其没有保护措施的核活动或弹道导弹计划。她说商务部致力于有效利用出口管制来保护我们的国家安全。
+当日，地方法官临时限制李使用、披露、传输相关文件，并将在12月9日听证以决定是否延长该禁令。
 
-被列入黑名单的公司包括八个技术实体，它们将被阻止使用美国的技术来支持中共国的某些军事应用，如反隐形和反潜行动，以及破解加密或开发不可破解的加密的能力。中共国和巴基斯坦的16个实体和个人因帮助巴基斯坦的核活动或弹道导弹计划而被点名。而科瑞德科技有限公司，一家已经在实体名单上的中共国公司的三家附属公司因参与向伊朗的军事和太空项目、朝鲜的幌子公司和中共国的国防工业出售美国技术也被列入黑名单。
-
-商务部说，除了这些黑名单之外，它还将俄罗斯的一个组织，莫斯科物理技术研究所列入军事终端用户名单，因为它生产军用产品。该名单要求某些出口必须获得工业和安全局的许可。
-
-新闻来源：[Biden administration blacklists 27 companies over national security concerns](https://www.upi.com/Top_News/US/2021/11/24/blacklist-Commerce-Department/8891637786157/)
+**新闻来源：** [Pfizer Employee Stole 12,000 Files Including COVID-19 Vaccine Secrets, Lawsuit Claims](https://www.zerohedge.com/covid-19/pfizer-employee-stole-12000-files-including-covid-19-vaccine-secrets-lawsuit-claims)；[Pfizer sues departing employee it says stole COVID-19 vaccine secrets](https://www.reuters.com/article/us-pfizer-lawsuit-employee-idUSKBN2I92FW)
 
  
 

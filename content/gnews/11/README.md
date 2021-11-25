@@ -2,32 +2,32 @@
 ---
 
 
-## ASIC向澳大利亚60万加密货币投资者发出警告
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1693529/)
+## 有声|远东新世纪疑似沦为中共迫害台企的牺牲品
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1693548/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/328e9f5eaa145346a9903a1c9ffb71ae.jpg)图片来源：Daily Advent
-两天前，澳大利亚证券与投资委员会（ASIC）主席乔·隆戈警告称，政府监管机构只能保护购买特定“金融产品”的投资者，加密货币的投资者在保护投资方面只能“靠自己”。
+配音：香草山美食部 – 玫瑰园
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-105.png)
+11月22日，台湾知名企业远东新世纪遭到中共上海、江苏 、四川等五省市的行政处罚，罚款金额高达3650万人民币。
 
-在澳大利亚，许多加密货币和其它数字资产不被视为“金融产品”，因为它们不受ASIC的监管，也不属于现行法律概述的定义。这意味着如果加密货币失败或平台被黑客入侵，投资者很可能会失去他们投资的所有资金。
+据中共国台办消息，远东新世纪在上述五省市所投资的纺织、化纤、水泥等工业项目，在环保、消防、税务、员工待遇等方面存在“违法违规”的行为。除了上述罚款外，还将追收税款与罚金，一些企业闲置建设用地也将被收回。
 
-隆戈先生在澳大利亚金融评论（AFR）的养老金与财富峰会上发表讲话时表示，事实证明，金融顾问很难为客户提供咨询服务。
+远东新世纪表示，已对上述“不合规”行为进行了专项整改，预计年底前全部完成，并承诺“罚款不影响财务和业务，也不会影响在内地的投资信心”。台工商协进会理事长林伯丰也发表“洗地”言论，认为此事应只是个案，不会影响台商在大陆的投资意愿。
 
-隆戈说：“ASIC已经就与加密资产相关的交易所和交易基金提供了一些指导——它们至少应该是金融产品，并是在获得许可的交易所里进行的交易，这样才会有一些保护措施。但在大多数情况下，至少是现在，投资者只能靠自己。”
+耐人玩味的是，就在同一天，国台办发言人称“台独”分子严重破坏两岸和平稳定，对他们的金主及关联企业必须依法惩戒。据悉，远东集团曾出资支持现任中华民国行政院院长苏贞昌的竞选活动。有分析指出，远东新世纪疑似成为中共迫害在陆台企的牺牲品，这将给早已阴云笼罩的台海局势增加新的变数。
 
-隆戈先生还表示，由于缺乏对新兴技术的认证，投资者应该“非常谨慎”地看待加密货币。
+文字版原文：[远东新世纪疑似沦为中共迫害台企的牺牲品](https://gnews.org/zh-hans/1689144/)
 
-尽管发出了警告，但隆戈先生也承认，在澳大利亚联邦银行（CBA）宣布将试行比特币和其它数字资产的交易后，加密货币可能不仅仅是一场在线赌博。
+音频处理：喜山必胜Maverick
+发稿：Fei797
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-**原文链接：**[Urgent warning issued to Australia’s 600,000 cryptocurrency investors](https://www.msn.com/en-au/news/australia/urgent-warning-issued-to-australia-s-600-000-cryptocurrency-investors/ar-AAR3Zfp?ocid=msedgntp)
-
-发布：翼族
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
