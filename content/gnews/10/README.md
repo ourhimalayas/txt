@@ -2,36 +2,20 @@
 ---
 
 
-## 洪都拉斯总统候选人之幕僚否认胜选后立即与台湾断交
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1693596/)
+## 辉瑞指控员工盗取大量内部及涉密文件
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1693652/)
 
-#### 撰稿：日本东京方舟农场 北极
+编译：致敬香港！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-38.png)
+图片来源： https://www.thequint.com/
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/A39B1915-A3DB-4112-97BC-EE2FD60C6E99.jpeg)（图片来自VOA中文网）
+“零对冲”网11月24日报道，辉瑞公司23日向南加州的地方法院提诉，指控一名即将离职的高级员工在其个人谷歌网盘及存储设备上保存了12000多份公司文件，其中包含大量机密内容。
 
-据《美国之音》11月24日报道，民意领先的洪都拉斯总统候选人希奥玛拉·卡斯特罗（Xiomara Castro）的幕僚周二发表声明，否认了早前卡斯特罗关于“当选后与台湾断交”的言论，并表示尚未对此做出最后决定。
+辉瑞指控其统计部门的副总监李春晓（音译）及另外5名嫌疑人的商业间谍行为，称其盗存的文件涉及公司及商业机密，其中包括对新冠疫苗的内部评估、辉瑞跟合作伙伴的关系等，并称李离开辉瑞后可能将于29日跳槽到对手的临床阶段生物制药公司Xenocor。李于2006 年加入辉瑞位于中国的产品开发团队，2016 年调到美国加州的园区。她转存文件的行为在公司例行的电脑追迹排查中被发现，辉瑞称李在调查中向公司上交的个人电脑为调包货，相信真正用于转存文件的电脑仍在李或另外几名嫌疑人的手中。
 
-卡斯特罗的亲密助手、洪都拉斯前央行行长诺埃（Hugo Noe）表示，目前尚未做出与台湾关系的最终决定，这将取决于对各方面利益的权衡，包括考虑美国的态度，以及可能出现的对双边关系的影响。
+当日，地方法官临时限制李使用、披露、传输相关文件，并将在12月9日听证以决定是否延长该禁令。
 
-洪都拉斯是目前与台湾有正式外交关系的仅有的15个国家之一。自2016年蔡英文上任以来，中共被指在过去几年中不择手段地挖墙脚，通过利诱和威胁等多种方式，从被称为美国后院的拉丁美洲连续挖走了巴拿马、多米尼加、萨尔瓦多三个台湾邦交国，并因此招致美国的忧虑和抨击。
-
-洪都拉斯左派自由重建党（LIBRE）候选人卡斯特罗目前在民调中领先对手两位数。她早前扬言，如果在下星期天（11月28日）举行的大选中胜选，她会与台湾断交，转而同中共建立外交关系。
-
-本月稍早时候，即将卸任的洪都拉斯总统埃尔南德斯（Juan Orlando Hernández Alvarado）曾率团访台，并表达希望洪都拉斯持续深化与台湾的邦交友谊。
-
-*参考链接：*
-
-1. [*https://www.voachinese.com/a/honduras-election-china-taiwan-20211124/6325753.html*](https://www.voachinese.com/a/honduras-election-china-taiwan-20211124/6325753.html)
-2. [*https://www.cna.com.tw/news/firstnews/202111240112.aspx*](https://www.cna.com.tw/news/firstnews/202111240112.aspx)
-
-
-* * *
-
-*素材采编：北极*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
+**新闻来源：** [Pfizer Employee Stole 12,000 Files Including COVID-19 Vaccine Secrets, Lawsuit Claims](https://www.zerohedge.com/covid-19/pfizer-employee-stole-12000-files-including-covid-19-vaccine-secrets-lawsuit-claims)；[Pfizer sues departing employee it says stole COVID-19 vaccine secrets](https://www.reuters.com/article/us-pfizer-lawsuit-employee-idUSKBN2I92FW)
 
  
 

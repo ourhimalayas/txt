@@ -2,39 +2,66 @@
 ---
 
 
-## 墙内在亚马逊购买青蒿素经验和使用后效果分享
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1693570/)
+## [Michael.Tonny专栏]接种CCP病毒疫苗已在欧盟造成118.1万人产生不良反应
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1693624/)
 
-撰稿：台永续军功五品
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9B0A8A63-0F68-4A85-AC21-4EBD9F2668D4.jpeg)
-图片来自网络
+加拿大温哥华扬帆农场 Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/michael-3.jpg)
+截止至2021年11月13日，EudraVigilance统计系统共收到四种在欧洲药品管理局所属欧洲经济区（EEA）27国推广的COVID-19（CCP病毒）疫苗已导致 1,163,356 例药物不良反应报告，其中，轻度不良反应665，751例，严重不良反应497,605例，死亡30,551例。而到2021年11月20日，该系统总共收到1,181,121例CCP病毒疫苗不良反应报告（包含死亡的数据）。
 
-首先笔者先分享一段在墙内购买青蒿素的血泪史，当笔者在直播中听到郭先生说青蒿素是中共病毒的解药时，当时就有要到药店去买药的冲动，因为笔者的家人不相信疫苗有毒，都要去打毒疫苗，笔者心想能第一时间买到药就可以救人。 但笔者没有一时冲动，冷静下来后想了一下，一来怕是否有国安人员马上就在药店门口蹲守抓人，那不就是自投罗网了，于是耐着性子等到第二天一早心惊胆颤的去药店试探，可惜销售人员告诉笔者店里没有销售青蒿素及相关的药品，回到家里静下心来想一想到底要从哪里弄到青蒿素呢，笔者知道京东天猫都有在卖，但有大数据在，怕自己暴露，被国安找到。左思右想只能暂时先放弃这些购买渠道。
+这四种疫苗是：BioNTech/ Pfizer的mRNA疫苗Tozinameran，Moderna的mRNA疫苗mRNA-1273，Johnson & Johnson的疫苗JANSSEN，Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA 。
 
-几天后想起一个朋友，去年笔者有找过这个朋友帮忙要买一箱赛能的硫酸羟氯喹，起初说有货，最终说受托的人也没有要到货，最后只能退回药款， 笔者去年已经被他骗了6万多人民币的口罩款，至今还没有收回这笔退款。为了自己的安全，也为了要救他人，只能再次冒险，再次找这个朋友问是否可以帮笔者买青蒿素哌喹片。对方回复说，而且也立即报了价格，所报价格比天猫店上的价格稍便宜一点，笔者当场就付款购买，付款后等了两三天，对方说还没有弄到货可以发，这时笔者已经觉得不妙，于是又再等了两三天，对方就告之说人家里有丧事了，暂时不处理发货之事，这下笔者心想：坏了，肯定又被骗了。忍了好几天后，不得不以威胁的方式，要求对方24小时内退款，倘若24小时不收到退款，就要马上报警欺诈，事隔两天后，笔者最终收到了退回的购药款。
+EudraVigilance统计系统是欧洲药品管理局设立的一个旨在收集欧盟 (EU)国家疑似药物副作用报告和用于评估药物开发过程中的益处和风险，并在药品获得授权后监测其安全性的报告统计系统（EudraVigilance-European database of suspected adverse drug reaction reports）。民众可以登录ADRreports.eu网站，查看疑似副作用报告的总数（Individual Case Safety Reports或ICSRs）。
 
-这事后，万般无奈，笔者也只能去京东和天猫再试试，祈祷恰巧碰到战友，跳过处方单，卖几盒给笔者。结果还是失败的，下了几次单，都被要求要有处方单，所有订单被取消。
+这些数据是由欧盟(EU)各国药品监管机构和持有药品上市许可（执照）的制药公司以网络报告方式（electronically）提交给EudraVigilance的。
 
-笔者就这样等待了一段时间，听直播了解到青蒿素有很多用途，这时笔者更加感到必须买到青蒿素急迫感，而就在这时郭先生在直播中说到中共国产的青蒿素可能被共产党动动了手脚，战友吃了反应特别大，建议大家暂停服用国产青蒿素哌喹片。这下点醒了笔者应该要买国外产的青蒿素才安全，于是开始从亚马逊购买，之前之所以没有上亚马逊去购买是笔者有了解共产党会在海关堵截青蒿素，现在只能抱着试试看的心态在亚马逊陆续下了几个单，3瓶一单，6瓶一单。亚马逊发货的物流有不同种，笔者的经验是感觉到国内走顺丰的渠道比较方便，走DHL的麻烦，DHL通关要求收货人要去网上填写所购买物品的资料和金额。还易被抽查，最后笔者有一单，买了6瓶高含量那款的青蒿素，海关只放行1瓶，其它5瓶被退回亚马逊。
+持有药品上市许可的制药公司以及欧盟国家的药品监管机构，依法必须向EudraVigilance 提交疑似副作用报告。包含从医疗、保健专业人员和患者那裡收到的报告，但不包括在欧盟之外发生的非严重副作用，也不包括研究报告（例如临床试验、非干预性研究）或其他类型的报告（仅自发报告）。
 
-在亚马逊注册一个账户，再用信用卡绑定，就可以下单，下单的时候信用卡上的金额只是先预受权，等收到货后才真正扣款。所以要亚马逊购买青蒿素是有可能收到的，建议单次购买数量不要太多，不要图运费便宜，单个订单2-3瓶，应该更容易通关。
+必须报告的副作用包括：(i) 导致死亡，(ii) 危及生命，(iii) 需要住院或延长现有住院时间，(iv) 报告者认为会导致持续或严重的残疾/丧失能力，(v)先天性异常/出生缺陷，或 (vi) 导致其他一些重要的医学病症。
 
-笔者分享一下自用了20几天青蒿素（以上面图片这款，产自乌克兰）个人身体的变化。
+必须强调的是，EudraVigilance维护的数据库仅包括属于欧盟27个国家。这意味著，如果我们将欧洲50来个国家都包括在内，CCP病毒疫苗导致的不良反应病例会多得多。
 
-第一，笔者一直有刷牙流血的问题，神奇的是吃了青蒿素几天后，就发现刷牙不再流血；
+根据EudraVigilance系统统计数据显示，CCP病毒疫苗导致的副作用（死亡或药物不良反应）包括：血液和淋巴系统疾病；心脏疾病；先天性、家族性和遗传性疾病；听力系统疾病；内分泌失调；眼部疾病；胃肠道疾病；一般疾病和给药部位疾病；肝胆疾病；免疫系统疾病；易被感染或侵染；受伤、中毒和手术并发症；代谢和营养障碍；肌肉骨骼和结缔组织疾病；良性、恶性和未指明的肿瘤（包括囊肿和息肉）；神经系统疾病；妊娠、产褥期和围产期疾病；精神疾病；肾脏和泌尿系统疾病；生殖系统和乳房疾病；呼吸、胸部和纵隔疾病；皮肤和皮下组织疾病；；外科和医疗程序；血管疾病，等等。
 
-第二，笔者已经有7-8年的手指及手指夹缝过敏问题，只要饮酒和吃鸡肉隔两三天后手指及手指夹缝上就会起小水泡，脱皮，康复，然后继续起小水泡，脱皮，康复不断的周期循环，但自从吃青蒿素后至今有20多天，发现皮肤问题改善80%，大部分面积康复只剩下一小部分的面积还在康复中，至今没有发现再起小水泡。
+截至2021年11月13日，四种疫苗导致的不良反应具体数据如下：
 
-第三，之前每次只要熬夜睡得晚，第二天起床后皮肤发黑且粗糙。自从吃了青蒿素后面部皮肤变光滑，秋冬季也不太需要做防护。
+- BioNTech/ Pfizer的mRNA疫苗Tozinameran（代码 BNT162b2，Comirnaty）：14,303 例死亡和562,213 例不良反应
 
-以下图片上这款青蒿素产自美国，根据介绍是有加入花椒素有利于吸收，品质比较好，所以笔者就优先给自己的母亲使用，因笔者的母亲有多年轻度高血压病症，听说青蒿素可以改善高血压问题，笔者一拿到青蒿素立即就给母亲服用，因为是轻度高血压，所以在血压问题上没有发现太大的变化，但笔者的母亲发现原来脚小腿上有一块皮肤已经反复痒一段时间了，经常有在涂药，但最近发现这块皮肤不痒了。
 
-笔者还把青蒿素分发给三位打过疫苗的亲人服用，其中两个亲人是注射两针疫苗，一个亲人是注射一针疫苗，都在观察变化中，有新消息将第一时间来分享给大家。谢谢！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/DDE2CEFA-F655-47C7-9852-A23C50357374.jpeg)
-图片来自网络
+- Moderna的mRNA疫苗mRNA-1273(代码CX-024414)：8,385例死亡和155,793例不良反应
 
-*编辑：cindy*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
+
+- Johnson & Johnson的疫苗JANSSEN（AD26.COV2.S）：1793人死亡和37038不良反应
+
+
+- Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA (CHADOX1 NCOV-19)：6,070 人死亡和408,312例不良反应
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-166.jpg)
+截止到2021年11月20日，EudraVigilance收到的BioNTech/ Pfizer、Moderna、Johnson & Johnson、Oxford/ AstraZeneca四种疫苗不良反应报告（包含死亡）分别为：574,427例、158,401例、410,479例、37,814例。
+
+11月20日，Moderna的mRNA疫苗mRNA-1273的不良反应报告统计
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-120.jpg)
+11月20日，BioNTech/ Pfizer的mRNA疫苗Tozinameran（代码 BNT162b2，Comirnaty）的不良反应报告统计
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-98.jpg)
+11月20日，Oxford/ AstraZeneca的疫苗AZD1222/VAXZEVRIA (CHADOX1 NCOV-19) 的不良反应报告统计
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-65.jpg)
+11月20日，Johnson & Johnson的疫苗JANSSEN（AD26.COV2.S）的不良反应报告统计
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-49.jpg)
+参考资料：
+
+1. [EXCLUSIVE: European Medicines Agency Data Shows 1,163,356 Adverse Drug Reactions and 30,551 Fatalities by COVID-19 Vaccinations](https://www.thegatewaypundit.com/2021/11/european-medicines-agency-data-shows-1163356-adverse-drug-reactions-30551-fatalities-covid-19-vaccinations/)
+2. [EudraVigilance-European database of suspected adverse drug reaction reports](https://www.adrreports.eu/en/data_source.html)
+3. [Important information to consider before looking at ADR reports for the COVID-19 vaccines](https://www.adrreports.eu/en/covid19_message.html)
+4. [Number of individual cases identified in EudraVigilance received over the last 12 months and overall for COVID-19 MRNA VACCINE MODERNA (CX-024414) (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages)
+5. [The number of individual cases identified in EudraVigilance for TOZINAMERAN is 574,427 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42325700)
+6. [The number of individual cases identified in EudraVigilance for COVID-19 VACCINE ASTRAZENECA (CHADOX1 NCOV-19) is 410,479 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+40995439)
+7. [The number of individual cases identified in EudraVigilance for COVID-19 VACCINE JANSSEN (AD26.COV2.S) is 37,814 (up to 20/11/2021)](https://dap.ema.europa.eu/analytics/saw.dll?PortalPages&amp;PortalPath=%2Fshared%2FPHV%20DAP%2F_portal%2FDAP&amp;Action=Navigate&amp;P0=1&amp;P1=eq&amp;P2=%22Line%20Listing%20Objects%22.%22Substance%20High%20Level%20Code%22&amp;P3=1+42287887)
+
+
+* * *
+
+编审：文敏 发布：文敏
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
