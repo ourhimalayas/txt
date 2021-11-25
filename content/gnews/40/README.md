@@ -2,21 +2,24 @@
 ---
 
 
-## 辉瑞指控员工盗取大量内部及涉密文件
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1693652/)
+## 美国再出手，中共多家企业被列入黑名单！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1693682/)
 
-编译：致敬香港！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-38.png)
-图片来源： https://www.thequint.com/
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-200.png)**（图片源自本文链接）**
+11月25日日本雅虎网站发表路透社华盛顿1月24日消息：美国政府24日以国家安全和外交政策为由，将多家中共国公司列入禁运名单上的实体名单。此外，一些中共国和巴基斯坦的公司和个人，因对巴基斯坦的核计划和弹道导弹计划有贡献也被列入该实体名单。美国和中共国之间的关系在台湾和贸易问题上已变得越来越紧张。
 
-“零对冲”网11月24日报道，辉瑞公司23日向南加州的地方法院提诉，指控一名即将离职的高级员工在其个人谷歌网盘及存储设备上保存了12000多份公司文件，其中包含大量机密内容。
+本次共有27家中国、日本、巴基斯坦和新加坡的公司被列入了该实体名单。商务部长莱蒙德在一份声明中解释说，将这些公司和个人列入名单是为了防止美国技术支持到中共国和俄罗斯的军事发展，以及巴基斯坦的核活动和弹道导弹计划。
 
-辉瑞指控其统计部门的副总监李春晓（音译）及另外5名嫌疑人的商业间谍行为，称其盗存的文件涉及公司及商业机密，其中包括对新冠疫苗的内部评估、辉瑞跟合作伙伴的关系等，并称李离开辉瑞后可能将于29日跳槽到对手的临床阶段生物制药公司Xenocor。李于2006 年加入辉瑞位于中国的产品开发团队，2016 年调到美国加州的园区。她转存文件的行为在公司例行的电脑追迹排查中被发现，辉瑞称李在调查中向公司上交的个人电脑为调包货，相信真正用于转存文件的电脑仍在李或另外几名嫌疑人的手中。
+商务部表示，包括湖南国科微电子在内的几家中共国公司被列入名单，是因为它们 “支持人民解放军的军事力量走向现代化”。包括国盾电子在内的几家公司是因获得或试图获得美国的技术或产品用于军事目的而被列入名单。
 
-当日，地方法官临时限制李使用、披露、传输相关文件，并将在12月9日听证以决定是否延长该禁令。
+向这些公司出口美国的零部件和技术需要得到当局的许可，而申请几乎不会被批准。
 
-**新闻来源：** [Pfizer Employee Stole 12,000 Files Including COVID-19 Vaccine Secrets, Lawsuit Claims](https://www.zerohedge.com/covid-19/pfizer-employee-stole-12000-files-including-covid-19-vaccine-secrets-lawsuit-claims)；[Pfizer sues departing employee it says stole COVID-19 vaccine secrets](https://www.reuters.com/article/us-pfizer-lawsuit-employee-idUSKBN2I92FW)
+信息来源：[米政府、中国企業など27社を禁輸対象リストに追加（ロイター） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/b78c2b921f154b1943257a49ce73cbf356917669)
 
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
