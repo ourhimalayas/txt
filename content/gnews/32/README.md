@@ -2,32 +2,24 @@
 ---
 
 
-## ASIC向澳大利亚60万加密货币投资者发出警告
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1693529/)
+## 拜登政府因国家安全问题将27家公司列入黑名单
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1693626/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/328e9f5eaa145346a9903a1c9ffb71ae.jpg)图片来源：Daily Advent
-两天前，澳大利亚证券与投资委员会（ASIC）主席乔·隆戈警告称，政府监管机构只能保护购买特定“金融产品”的投资者，加密货币的投资者在保护投资方面只能“靠自己”。
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-20.png)
+图片来源：网络截图
 
-在澳大利亚，许多加密货币和其它数字资产不被视为“金融产品”，因为它们不受ASIC的监管，也不属于现行法律概述的定义。这意味着如果加密货币失败或平台被黑客入侵，投资者很可能会失去他们投资的所有资金。
+据合众国际社11月24日报道，拜登政府周三以国家安全和外交政策利益为由，将来自中共国、日本、巴基斯坦和新加坡的另外27家公司和个人列入黑名单。
 
-隆戈先生在澳大利亚金融评论（AFR）的养老金与财富峰会上发表讲话时表示，事实证明，金融顾问很难为客户提供咨询服务。
+商务部工业和安全局将这些组织列入其实体名单，该名单要求对不道德行为或威胁美国国家安全的一些项目的出口或转让提供许可执照。
 
-隆戈说：“ASIC已经就与加密资产相关的交易所和交易基金提供了一些指导——它们至少应该是金融产品，并是在获得许可的交易所里进行的交易，这样才会有一些保护措施。但在大多数情况下，至少是现在，投资者只能靠自己。”
+美商务部长吉娜·雷蒙多说，该行动将有助于防止美国的技术被转移到中华人民共和国和俄罗斯，用于提高其军事能力，以及被巴基斯坦用于其没有保护措施的核活动或弹道导弹计划。她说商务部致力于有效利用出口管制来保护我们的国家安全。
 
-隆戈先生还表示，由于缺乏对新兴技术的认证，投资者应该“非常谨慎”地看待加密货币。
+被列入黑名单的公司包括八个技术实体，它们将被阻止使用美国的技术来支持中共国的某些军事应用，如反隐形和反潜行动，以及破解加密或开发不可破解的加密的能力。中共国和巴基斯坦的16个实体和个人因帮助巴基斯坦的核活动或弹道导弹计划而被点名。而科瑞德科技有限公司，一家已经在实体名单上的中共国公司的三家附属公司因参与向伊朗的军事和太空项目、朝鲜的幌子公司和中共国的国防工业出售美国技术也被列入黑名单。
 
-尽管发出了警告，但隆戈先生也承认，在澳大利亚联邦银行（CBA）宣布将试行比特币和其它数字资产的交易后，加密货币可能不仅仅是一场在线赌博。
+商务部说，除了这些黑名单之外，它还将俄罗斯的一个组织，莫斯科物理技术研究所列入军事终端用户名单，因为它生产军用产品。该名单要求某些出口必须获得工业和安全局的许可。
 
-**原文链接：**[Urgent warning issued to Australia’s 600,000 cryptocurrency investors](https://www.msn.com/en-au/news/australia/urgent-warning-issued-to-australia-s-600-000-cryptocurrency-investors/ar-AAR3Zfp?ocid=msedgntp)
-
-发布：翼族
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[Biden administration blacklists 27 companies over national security concerns](https://www.upi.com/Top_News/US/2021/11/24/blacklist-Commerce-Department/8891637786157/)
 
  
 

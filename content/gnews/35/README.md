@@ -2,45 +2,47 @@
 ---
 
 
-## COVID-19 最新情报｜不忍了！前英超球员直播质疑疫苗遭断播 前国脚声援
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1693443/)
+## 2021年11月24日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1693583/)
 
-**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜25/11/2021**
+撰稿人：文远Bruce
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-7.jpg)
+七哥2021.11.19：“七哥告诉你，第一条油价，永远不接受超过4美金一桶，永远不接受。只要超过4美金了，你就放心吧，美国这个政治就大变。”
 
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-19.jpg)
-雪菲尔德联队（Sheffield United）周二（23日）客场对战雷丁队，比赛期间，中场球员，30 岁的苏格兰国脚约翰·弗莱克（John Fleck）突然倒地不起，紧急治疗后，他被担架抬离了赛场。
+1. 美国汽油平均售价已达3.41美金
 
-当时，英国广播电台 TalkSPORT 节目正直播这场赛事，参与主持的前英超球员特瑞佛·辛克莱 （Trevor Sinclair）在看到弗莱克倒地后，紧锁眉头，低头思考片刻后，问到“我想每个人都想知道他是否接种了 COVID-19 疫苗？”话音未落，直播就遭突然切断。
-
-根据早前一篇报导显示，所有雪菲尔德联队的球员都在 8 月接种了第二剂 COVID-19 疫苗。
-
-事件发生后，辛克莱（24日）在个人推特上发表了自己的看法，“我和所有人都谈论过足球运动员遭受的这些心脏问题（令人担忧的是，这些问题似乎发生得很频繁），它们是否与新冠病毒疫苗有关？？”
-
-
-
-> Everyone I speak to about these heart problems suffered by footballers (which worryingly seem to be happening more regularly) are they linked to covid vaccines or not??
-> — Trevor Sinclair (@trevor8sinclair) [November 24, 2021](https://twitter.com/trevor8sinclair/status/1463506882568638464?ref_src=twsrc%5Etfw)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2-1.jpg)
+2. 美国释放5000万桶石油储备，仍然未能压低油价
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide3-1.jpg)
+3. 石油(绿线)美元指数(红线)周线对比图
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide4-1.jpg)
+4. 石油(绿线)日元(红线)周线对比图
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide5-1.jpg)
 
 
-
-同时，英超传奇人物、前英格兰国脚马修·莱提希尔 （Matt Le Tissier）亦在推特发贴文质问，“到底还要多少运动员倒在球场上，才会启动调查？”
-
-
-
-> How many more more sports people need to collapse on the pitch before an investigation takes place 🤷🏼‍♂️
-> — Matt Le Tissier🌸 (@mattletiss7) [November 23, 2021](https://twitter.com/mattletiss7/status/1463293327030247426?ref_src=twsrc%5Etfw)
+5. 土耳其里拉继续贬值
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide6-1.jpg)
 
 
+6. 美国黑色星期五购物节延长为一个月
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide7-1.jpg)
+**七哥2021.11.17****：**“阿富汗的事情，记住我今天说的话，七哥是世界上最早在直播中说的，将近五千万人口，过去的一千多万不到两千万人口迅速的在这几年在美国军的管制下，没有塔利班的情况下，搞成了五千万人。五千万人一年要一亿吨的粮食，最低最低它也得六千万吨。
 
-就在不到一个月前，巴塞罗纳前锋，顶级球星阿奎罗（Sergio Aguero）因突然呼吸困难，而被送院确诊患有心脏损伤，这位曾经是曼城史上最佳射手的职业生涯恐怕就此终结。
+现在阿富汗是什么？两千三百万人面临着今年冻死。共产党现在是树了塔利班了，吓唬了美国了，但是塔利班是活不下去的。不但活不下去，大家记住我今天说的话，你会亲身跟七哥鉴定人类上最伟大的新中国联邦，在整个全球地缘政治最后证明给你看的，咱们的智慧和咱们的情报的伟大。
 
-- 延伸阅读：[COVID-19 最新情报｜那些最健壮的运动员们正在“倒下”](https://gnews.org/zh-hant/1673831/)
+现在此时此刻，阿富汗最起码死掉已经是几万人了，就在我们这直播当中，都有人在死去。而且在未来的80天以内，预估80天以内，最起码死两百万到三百万人，这不是我说的，你记住我今天的直播，阿富汗今年一定在一百万到三百万之间被饿死，两千三百万人在挨饿，而且是因为共产党所谓树立的塔利班。”
 
+7. 图中的阿富汗母亲说她的丈夫残疾在家，她急缺食物，很多人卖儿卖女只是希望不被饿死。阿富汗2300万人面临食物短缺及寒冬，8百万人性命岌岌可危
 
-* * *
+审核：云彩
 
-来源｜[TheSTAR](https://www.thestar.co.uk/health/coronavirus/sheffield-united-players-get-their-second-jab-as-new-vaccination-centre-opens-in-city-3342580) / [Twitter](https://twitter.com/trevor8sinclair/status/1463506882568638464)
+编辑：云彩
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
  
 

@@ -2,34 +2,34 @@
 ---
 
 
-## 中共国出生率跌至数十年来最低水平
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1693629/)
+## 悉尼房价预计将在明年达到顶峰
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1693695/)
 
-#### 作者：日本东京方舟农场 子辰
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/capi_721a1d8bcd173ba6f50b15309a04986e_ce100ece3c115e7ae3badda530927685.jpeg)图片来源：Realestate
+**整理报道：**翼族
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5902412F-A70E-4B1F-84F8-8E24B254BB20.jpeg)图片来自《法新社》
+今年悉尼的房价平均上涨了25%，但是卖家急于从当前的房地产繁荣中获利。随着市场转向有利于买家，悉尼房价预计将在明年达到顶峰，然后下跌。
 
-据CNA11月24日报道，中共国的出生率去年暴跌至数十年来最低水平，创下历史新低，凸显出迫在眉睫的人口危机。中共称，其原因是劳动力迅速老龄化、经济放缓以及几十年来最疲软的人口增长所致。
+专家认为，房地产繁荣即将结束，这促使卖家会在年底前从高价中获利。
 
-此前，中共为了鼓励生育，在 2016 年放宽了世界上最严格的计划生育法规之一——“一孩政策”，允许每对夫妇生育两个孩子。而在今年早些时候，又将这一政策扩展到三个孩子。
+本周末悉尼有1100场拍卖会，这是今年的又一个纪录。上周末的拍卖清盘率为71%，为五个月以来的最低水平，这意味着买家有更多选择。
 
-据 2021 年发布的统计年鉴显示，中共国去年每1000人记录了8.52 名新生儿，这是自 1978 年年鉴统计数据开始以来的最低数字。对照中共国国家统计局的数据，这比上一年的 10.41 有着显著下降，也是自 1949 年中共建立政权以来的最低数字。
+对于希望投资而不是居住的人，ME Bank的一项研究表明，澳大利亚排名前20的郊区，其中有8个都在悉尼。
 
-此外，年鉴还显示，2020年中共国的登记结婚数量只有814万对，也创下了17年以来的新低。
+AMP Capital的首席经济学家谢恩·奥利弗（Shane Oliver）表示：“悉尼房价在2023年可能会下跌。特别是，如果储备银行开始像我们预期的那样提高利率。”
 
-上述数据尽管已经触目惊心，但外界仍对中共国的真实数据持有怀疑态度。
+奥利弗先生说：“我认为舞会正在接近尾声，明年我们可能仍会看到更多的进展。”
 
-在中共治下，老百姓的生活成本越来越高，高房价、低收入，加上经济低迷等等，都是导致中共国年轻人不愿生育的直接原因。
+**原文链接：**[Sydney property prices could fall by 10 per cent by 2023](https://www.msn.com/en-au/news/australia/sydney-property-prices-could-fall-by-10-per-cent-by-2023/ar-AAR4j0T?ocid=msedgntp)
 
-*新闻链接： [https://www.channelnewsasia.com/china-birth-rate-record-low-population-marriage-divorce-2334976](https://www.channelnewsasia.com/china-birth-rate-record-low-population-marriage-divorce-2334976)*
+*编辑/发布：翼族*
 
-* * *
-
-*素材采编：子辰*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
