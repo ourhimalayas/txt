@@ -2,34 +2,36 @@
 ---
 
 
-## 悉尼房价预计将在明年达到顶峰
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1693695/)
+## 秘翻在线：护士举报称政客接受生理盐水而不是mRNA疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1693715/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/capi_721a1d8bcd173ba6f50b15309a04986e_ce100ece3c115e7ae3badda530927685.jpeg)图片来源：Realestate
-**整理报道：**翼族
+翻译：文字燒
+![](https://assets.gnews.org/wp-content/uploads/2021/11/16378183261.png)图片来源：原文链接
+东欧国家斯洛文尼亚发生了一场危机，一名护士告诉公众，政治家和其他高级公民接受的是生理盐水，而不是mRNA实验性药物。
 
-今年悉尼的房价平均上涨了25%，但是卖家急于从当前的房地产繁荣中获利。随着市场转向有利于买家，悉尼房价预计将在明年达到顶峰，然后下跌。
+在Facebook上的一段视频中（已被YouTube删除），这位自称是卢布尔雅那大学医学中心护士长（负责接收和管理政治家的注射瓶）辞职并就这一丑闻召开了新闻发布会。
 
-专家认为，房地产繁荣即将结束，这促使卖家会在年底前从高价中获利。
+发布会视频链接：
 
-本周末悉尼有1100场拍卖会，这是今年的又一个纪录。上周末的拍卖清盘率为71%，为五个月以来的最低水平，这意味着买家有更多选择。
+[https://www.facebook.com/stoplaznivimmedijem/videos/190515176301913/](https://www.facebook.com/stoplaznivimmedijem/videos/190515176301913/)
 
-对于希望投资而不是居住的人，ME Bank的一项研究表明，澳大利亚排名前20的郊区，其中有8个都在悉尼。
+在新闻发布会上，她展示了瓶子上的编号，分别标注为1、2或3，然后解释了这些数字的含义：
 
-AMP Capital的首席经济学家谢恩·奥利弗（Shane Oliver）表示：“悉尼房价在2023年可能会下跌。特别是，如果储备银行开始像我们预期的那样提高利率。”
+1号瓶：安慰剂，生理盐水
 
-奥利弗先生说：“我认为舞会正在接近尾声，明年我们可能仍会看到更多的进展。”
+2号瓶：mRNA
 
-**原文链接：**[Sydney property prices could fall by 10 per cent by 2023](https://www.msn.com/en-au/news/australia/sydney-property-prices-could-fall-by-10-per-cent-by-2023/ar-AAR4j0T?ocid=msedgntp)
+3号瓶：含有致癌基因的mRNA疫苗
 
-*编辑/发布：翼族*
+她说，那些注射3号瓶的人，将在接受注射后的两年内患上软组织癌症。
 
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+她还说，她亲自见证了所有政治家和富豪以及所有接受1号瓶的人的打针过程，声称他们注射的是生理盐水，是一种安慰剂。
+
+这就解释了为什么媒体为政客们拍照时，由同一个人给他们打针。
+
+信息来源：[https://dailytelegraph.co.nz/covid-19/crisis-in-slovenia-whistleblower-nurse-says-politicians-receive-saline-instead-of-mrna-jab/](https://dailytelegraph.co.nz/covid-19/crisis-in-slovenia-whistleblower-nurse-says-politicians-receive-saline-instead-of-mrna-jab/)
+
+责编：待命（文晓）
 
  
 

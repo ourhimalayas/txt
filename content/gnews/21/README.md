@@ -2,38 +2,57 @@
 ---
 
 
-## 世贸组织因主张 “疫苗种族隔离”被指责
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1693755/)
+## 视频| 喜币的价值和价格的区别
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1693804/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+## 摘自郭先生2021.11.24大直播
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/GettyImages-1232712976.jpg)图片来源：www.teenvogue.com
+制作：香草山视频部
 
 
-#### 编译：小红帽
 
-数十个激进组织和民间社会组织呼吁世界贸易组织（WTO）停止即将举行的会议，并认为该机构应停止执行助长全球 “疫苗种族隔离 ”的知识产权法。
+千万不要说喜币的价格
+是喜币的价值
+今天你看的价格是10币里6亿币的价格
+单币价格
+我们的战友要的是喜币的价值
+就是拥有喜联储1000个亿币的发行权
+所有的利益
+那叫价值
+如果你关注今天价格的
+你一定不会拥有未来的价值
+就今天现在你不接受代持
+那一定让你出局
+给了你福利 那是未来共同要的是价值
+这个价值的背后是基于什么的基础呢
+叫信仰 我们要灭共
+你不能任何一个人独自的来独吃独食
+你不能任何一个人你把在战友身上刮肉
+必须有饭一起吃 有肉一起吃
+不能达到均贫富 必须是100%同一个起跑线
+绝对不会落下一个人
+所以它今天的喜币叫价格
+但我们要理解的是喜币的价值
+喜币的价值就是喜币的发行权和喜联储
+GTV的拥有的5%
 
-一个由130多个团体组成的联盟，于周三致函国际贸易集团，称定于下周举行的世贸组织部长级会议不应继续举行，除非该组织批准豁免被称为《与贸易有关的知识产权协议》（TRIPS）的知识产权。
 
-信中说：“令人难以置信的是，这个机构的规则强制实行疫苗种族隔离，它试图在疫苗种族隔离的条件下举行会议，而没有首先通过同意《与贸易有关的知识产权协议》的豁免来解决这种种族隔离问题。”
 
-世界贸易组织还声称，为豁免开绿灯不需要正式的部长级会议来批准，该决定可以由日内瓦的世贸组织总理事会单方面做出。
+发稿：雪梨
 
-“由于世界各地持续的大流行病限制，一些成员国将无法派代表参加会议。在这个情况下，继续进行这项活动所做出的决定 “将缺乏任何合法性的伪装”，信中补充道。
+![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
 
-世贸组织本身最初在去年审议了知识产权豁免提案，这个想法首先由印度和南非提出。然而，尽管美国政府在口头上给予了一些支持，但此后并没有在国际上暂停与新冠有关的医药专利。
+**更多资讯，更多关注**
 
-**参考新闻：** [WTO accused of ‘vaccine apartheid’ — RT World News](https://www.rt.com/news/541255-wto-vaccine-waiver-letter/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-***发布：小红帽***
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

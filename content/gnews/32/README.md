@@ -2,18 +2,34 @@
 ---
 
 
-## 加拿大成为第一个完全批准强生中共病毒疫苗的国家
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1693656/)
+## 悉尼房价预计将在明年达到顶峰
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1693695/)
 
-编译：沙子最怕你不理它
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-109.png)
-据合众国际社11月24日报道，强生公司生产的一剂型中共病毒疫苗已在加拿大获得完全授权，加拿大是第一个完全批准强生疫苗的国家。![]()
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/capi_721a1d8bcd173ba6f50b15309a04986e_ce100ece3c115e7ae3badda530927685.jpeg)图片来源：Realestate
+**整理报道：**翼族
 
-该疫苗由强生子公司Janssen生产，此前仅在加拿大获得紧急授权。强生公司表示，批准是基于一项最后阶段的研究表明，疫苗在单剂疫苗28天后起生效85%。此项批准适用于所有18岁以上的成年人：18岁以下人群中的安全和有效性尚未确定。
+今年悉尼的房价平均上涨了25%，但是卖家急于从当前的房地产繁荣中获利。随着市场转向有利于买家，悉尼房价预计将在明年达到顶峰，然后下跌。
 
-据约翰·霍普金斯大学（Johns Hopkins University）称，到目前为止，加拿大已有170万例COVID-19病例，近30,000人死亡。略多于76%的加拿大人口已经完全接种了疫苗。本月，加拿大紧急授权了辉瑞5-11岁的儿童疫苗和18岁以上人群的加强针。
+专家认为，房地产繁荣即将结束，这促使卖家会在年底前从高价中获利。
 
-来源：[Canada becomes 1st nation to fully approve Johnson & Johnson COVID-19 vaccine](https://www.upi.com/Top_News/World-News/2021/11/24/canada-approval-johnson-covid-vaccine/9321637780375/)
+本周末悉尼有1100场拍卖会，这是今年的又一个纪录。上周末的拍卖清盘率为71%，为五个月以来的最低水平，这意味着买家有更多选择。
+
+对于希望投资而不是居住的人，ME Bank的一项研究表明，澳大利亚排名前20的郊区，其中有8个都在悉尼。
+
+AMP Capital的首席经济学家谢恩·奥利弗（Shane Oliver）表示：“悉尼房价在2023年可能会下跌。特别是，如果储备银行开始像我们预期的那样提高利率。”
+
+奥利弗先生说：“我认为舞会正在接近尾声，明年我们可能仍会看到更多的进展。”
+
+**原文链接：**[Sydney property prices could fall by 10 per cent by 2023](https://www.msn.com/en-au/news/australia/sydney-property-prices-could-fall-by-10-per-cent-by-2023/ar-AAR4j0T?ocid=msedgntp)
+
+*编辑/发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
