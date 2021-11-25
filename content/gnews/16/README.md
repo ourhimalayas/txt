@@ -2,26 +2,24 @@
 ---
 
 
-## 美国通货膨胀加剧 日常食材价格上涨
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694723/)
+## 韩国单日新增新冠确诊数与重症数同创新高
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694846/)
 
-作者： 香草山健身部 – 童谣
+作者： 纽约香草山翻译部 – defiance
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月20日的媒体消息称，据美国农业局联合会第36次年度感恩节晚餐成本调查显示，2021年的感恩节晚餐费用比往年大幅增加。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-32.jpg)
-调查解释，因通货膨胀和供应链中断的冲击，美国市场中几乎每一种节日食材的价格都在上涨。据估算，今年传统感恩节十人宴的平均费用为53.31美元，将是美国有史以来最贵的一次感恩节晚餐，比2020年增长了14%。
+当地时间11月24日，韩国中央防疫本部公布，截至当天凌晨零时，韩国境内单日新增新冠病毒感染确诊病例达4087例——这是韩国首次单日确诊病例数突破四千例。另据数据显示，韩国单日新增的重症新冠病毒感染患者为586人，也创下了韩国自新冠疫情以来的历史新高。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-16.jpg)
+资料显示，截止当地时间11月22日，韩国完成两剂完整新冠疫苗接种的民众比率已经达到78.4%，而至少接种了一剂新冠疫苗的民众比率是81.7%，另有3.8%的韩国民众已经接种了第三剂新冠疫苗。
 
-美国劳工统计局于11月10日报告说，美国当今的通货膨胀率处于31年中的高位。另据最新的消费者价格指数显示，美国市场上肉类、禽类、鱼类和蛋类的价格合计增长了11.9%。
-
-农业经济学家对此表示，食品价格上涨有多种原因，除通货膨胀、供应链中断等因素外，还有工人短缺造成的影响。
+鉴于韩国境内新冠疫苗注射率持续走高，但境内新增新冠病毒确诊人数及新冠重症患者数也随之增高的情况，相关评论表示，突破性感染与重症患者人数的率破新高让“新冠疫苗有效”成为了一句名副其实的谎言。
 
 参考链接：
-[Thanksgiving dinner 2021 has been hit by inflation: What you can expect to pay for turkey, potatoes](https://www.usatoday.com/in-depth/money/food/2021/11/19/thanksgiving-turkey-2021-prices-inflation/8625624002/)
+[韓國單日新增確診首度破4000例 重症人數也創高](https://www.cna.com.tw/news/aopl/202111240271.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-总编：Ivy001
-编辑：Kathy文艺
+总编：Irene木木
+编辑：Lakeman(文仁)
 校正/发稿：Fei797
 
 **更多资讯，更多关注**

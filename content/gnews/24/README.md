@@ -2,25 +2,35 @@
 ---
 
 
-## 感恩，随想&#8230;&#8230;
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1694579/)
+## 美国通货膨胀加剧 日常食材价格上涨
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694723/)
 
-撰稿：心声
-![](https://assets.gnews.org/wp-content/uploads/2021/11/c0feccaa29d4fd7ef0b1f288d4ab2b1b.jpg)
-感恩节快乐！感谢原创组每一位战友的才华、付出和辛劳。我们参与写稿、翻译、专题文案、校对发布等等细碎的工作，就像战友柯亭在《喜马拉雅真义》的文章里引用七哥的话：都是在灭共过程中锻炼我们自己。感恩七哥、木兰创立的秘翻组让大家有机缘在这里相遇。
+作者： 香草山健身部 – 童谣
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月20日的媒体消息称，据美国农业局联合会第36次年度感恩节晚餐成本调查显示，2021年的感恩节晚餐费用比往年大幅增加。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-32.jpg)
+调查解释，因通货膨胀和供应链中断的冲击，美国市场中几乎每一种节日食材的价格都在上涨。据估算，今年传统感恩节十人宴的平均费用为53.31美元，将是美国有史以来最贵的一次感恩节晚餐，比2020年增长了14%。
 
-回想我们当初加入秘翻组或原创组的时候，和现在相比，我们每个人都能感觉到自己在锻炼中成长，每一天都在提升。
+美国劳工统计局于11月10日报告说，美国当今的通货膨胀率处于31年中的高位。另据最新的消费者价格指数显示，美国市场上肉类、禽类、鱼类和蛋类的价格合计增长了11.9%。
 
-七哥说，灭共已经不是一件难事，再过两三年连G系列都是过去时了，未来在等待着我们。更多的事情更新的挑战需要我们在现在就快速提升，直到每一位战友都能达到在某一方面、某一专业、某一领域里真正的行家里手。同时不断悟道升华，在信仰、认知、行动和专业各方面成为跨星际文明的新中国联邦人。
+农业经济学家对此表示，食品价格上涨有多种原因，除通货膨胀、供应链中断等因素外，还有工人短缺造成的影响。
 
-我们在这个锻炼和成长过程中，行动越得力，鉴别与品位越提高，就更能找到自我，跟上爆料革命与新中国联邦成长的节奏与步伐。
+参考链接：
+[Thanksgiving dinner 2021 has been hit by inflation: What you can expect to pay for turkey, potatoes](https://www.usatoday.com/in-depth/money/food/2021/11/19/thanksgiving-turkey-2021-prices-inflation/8625624002/)
 
-宇宙有主人、信仰由自己、行动向前、人格独立，每一个战友和爆料革命、新中国联邦、七哥之间建立直接的神交体验，面朝大海、心暖花开！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-祝尊敬的战友们感恩节快乐！
+总编：Ivy001
+编辑：Kathy文艺
+校正/发稿：Fei797
 
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

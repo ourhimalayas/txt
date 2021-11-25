@@ -2,43 +2,24 @@
 ---
 
 
-## 台湾受邀参与美民主峰会，中共未入受邀名单
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694530/)
+## 感恩，随想&#8230;&#8230;
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1694579/)
 
-撰稿：纽约香草山 医疗部 云豹
+撰稿：心声
+![](https://assets.gnews.org/wp-content/uploads/2021/11/c0feccaa29d4fd7ef0b1f288d4ab2b1b.jpg)
+感恩节快乐！感谢原创组每一位战友的才华、付出和辛劳。我们参与写稿、翻译、专题文案、校对发布等等细碎的工作，就像战友柯亭在《喜马拉雅真义》的文章里引用七哥的话：都是在灭共过程中锻炼我们自己。感恩七哥、木兰创立的秘翻组让大家有机缘在这里相遇。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
+回想我们当初加入秘翻组或原创组的时候，和现在相比，我们每个人都能感觉到自己在锻炼中成长，每一天都在提升。
+
+七哥说，灭共已经不是一件难事，再过两三年连G系列都是过去时了，未来在等待着我们。更多的事情更新的挑战需要我们在现在就快速提升，直到每一位战友都能达到在某一方面、某一专业、某一领域里真正的行家里手。同时不断悟道升华，在信仰、认知、行动和专业各方面成为跨星际文明的新中国联邦人。
+
+我们在这个锻炼和成长过程中，行动越得力，鉴别与品位越提高，就更能找到自我，跟上爆料革命与新中国联邦成长的节奏与步伐。
+
+宇宙有主人、信仰由自己、行动向前、人格独立，每一个战友和爆料革命、新中国联邦、七哥之间建立直接的神交体验，面朝大海、心暖花开！
+
+祝尊敬的战友们感恩节快乐！
 
 
-
-
-
-11月23日，美国国务院公布了12月白宫虚拟民主峰会受邀名单，台湾已受邀参加该峰会。 中共及俄罗斯则未在受邀名单中。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11259-1.png)
-刚公布的受邀名单中有110个国家，立陶宛、日本、英国、德国等国家都在受邀之列。
-
-美国总统拜登将在12月9日至10日召开此次虚拟领袖民主峰会，邀集国家元首、公民社会、慈善事业与私人部门成员，谈论当前民主制度遭遇到的挑战。 此次峰会聚焦3大主题，包括对抗威权、打击贪腐及促进对人权的尊重等。
-
-
-
-新闻连接：[白宮民主峰會邀台灣立陶宛等110國 中俄未入名單](https://www.cna.com.tw/news/firstnews/202111245002.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3-6.png)
-
-总编：飞虹
-
-编辑：木白
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
 
  
 

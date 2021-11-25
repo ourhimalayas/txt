@@ -2,35 +2,50 @@
 ---
 
 
-## 澳洲新南威尔士将放宽口罩及二维码登记等疫情限制
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1694762/)
+## 澳大利亚动用军队转移核酸阳性者及密接者至隔离营
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694852/)
 
-撰稿：Gradient Boost
+作者：纽约香草山文艺部 – 宁文静
 
-视频与字幕：祉臻
 
-随着政府宣布对CCP病毒防疫路线图进行全面改革，澳大利亚新南威尔士州将对口罩和二维码登记规则进行更改。
 
-对于口罩的佩戴要求，将仅限于公共交通工具、机场，以及未接种疫苗的室内护理从业人员。二维码及出入登记将仅用于“高风险”环境，例如医院、老年人和残疾人护理设施、健身房、礼拜场所和葬礼。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
 
-不过美容院、理发店、小酒吧和夜总会等一些娱乐性场所，以及室内音乐节可能仍然需要二维码登记。
 
-当新南威尔士州的疫苗接种率达到 95% 或 12 月 15 日（以先到者为准）时，这些政策变化就将生效。
 
-截至目前，新南威尔士州 16 岁以上的人中有 92% 已全面接种 COVID-19 疫苗，同时加强针措施也在布局当中。
+据媒体11月23日报道，自11月20日开始，澳大利亚派出军队，强行将北部地区核酸检测阳性的居民，以及他们的密接者，驱逐到霍华德·斯普林斯隔离营。同时，宾贾里和附近的社区都实施了严酷的封锁。
 
-州政府领导人表示：放宽这些限制将使人们能够出去享受夏天，​​这为一些处境艰难的行业提供了动力，因此人们将尽一切努力确保人们在学习与 COVID 共存的过程中保持安全。
+北部地区州长说，只有五个理由被允许出门：购买食物和用品，2小时之内的锻炼，必须外出进行的工作和学习，无法居家完成的护理，以及在最近的地点接种疫苗。有更多的居民将被转移到霍华德·斯普林斯，无论是阳性病例本人，还是与其密切接触者。他们大约动用了20名军人以及军用卡车来协助转移。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2.1-12.jpg)
+参考链接：
+1. [Australian Army Begins Transferring COVID-Positive Cases, Contacts To Quarantine Camps](https://www.zerohedge.com/covid-19/australian-army-begins-transferring-covid-positive-cases-contacts-quarantine-camps)
+2. [AUSTRALIA – The army is now transferring positive Covid cases and contacts in the Northern Territories to ‘Quarantine Camps’ by army truck.](https://twitter.com/berniespofforth/status/1462740215571918849?s=21)
+3. [Australia’s leaders are dumb and authoritarian. A very bad combo.](https://twitter.com/justin_hart/status/1462791892219793414?s=21)
 
-除了以上变化之外，公共卫生令将不再要求大多数活动提供疫苗接种证明，同时密度要求和社交距离规定接下来也会被撤销。但是，企业仍然可以自行决定要求提供疫苗证据。另外参加超过 1000 人的室内音乐活动中也仍然需要提供相关接种凭据。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
 
-不过笔者认为，当前新州的开放措施实际上依然有所保留，例如企业可以视情况决定是否需要员工进行疫苗注射。同时从相关报道中我们也不难发现，政府或媒体依然还在拘泥于疫苗接种率以及接下来的加强针注射。
+总编：Irene木木
+编辑：Kathy文艺
+校对/发稿：为真不破20
 
-因此政府的当前决策更多是出于经济方面的因素，想要拉动疲软的消费行情，而并非是出于对疫苗和封锁潜在伤害的反省——主要还是为了短期政绩。
+**更多资讯，更多关注**
 
-新闻参考链接：
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[9 News](https://www.9news.com.au/national/coronavirus-nsw-restriction-update-changes-to-masks-qr-codes-at-95-per-cent-december-15/ff6627c9-59b2-4c1a-a17b-5e03535fdfeb)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/TA1.jpg)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
