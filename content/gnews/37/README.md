@@ -2,13 +2,13 @@
 ---
 
 
-## 伊维菌素使中共病毒病例大降，疫苗使病例大增
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1693274/)
+## 中共因台湾在立陶宛设立实质上的大使馆指责立陶宛干涉内政
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1693350/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1125-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+11/22/2021 中共由于台湾在立陶宛设立办事处而指责立陶宛干涉内政，该代表处实质上是台湾驻立陶宛大使馆。中共同时降低了与立陶宛的外交关系，立陶宛对此表达遗憾。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

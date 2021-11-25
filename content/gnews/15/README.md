@@ -2,24 +2,34 @@
 ---
 
 
-## 拜登政府因国家安全问题将27家公司列入黑名单
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1693626/)
+## 悉尼房价预计将在明年达到顶峰
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1693695/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-20.png)
-图片来源：网络截图
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/capi_721a1d8bcd173ba6f50b15309a04986e_ce100ece3c115e7ae3badda530927685.jpeg)图片来源：Realestate
+**整理报道：**翼族
 
-据合众国际社11月24日报道，拜登政府周三以国家安全和外交政策利益为由，将来自中共国、日本、巴基斯坦和新加坡的另外27家公司和个人列入黑名单。
+今年悉尼的房价平均上涨了25%，但是卖家急于从当前的房地产繁荣中获利。随着市场转向有利于买家，悉尼房价预计将在明年达到顶峰，然后下跌。
 
-商务部工业和安全局将这些组织列入其实体名单，该名单要求对不道德行为或威胁美国国家安全的一些项目的出口或转让提供许可执照。
+专家认为，房地产繁荣即将结束，这促使卖家会在年底前从高价中获利。
 
-美商务部长吉娜·雷蒙多说，该行动将有助于防止美国的技术被转移到中华人民共和国和俄罗斯，用于提高其军事能力，以及被巴基斯坦用于其没有保护措施的核活动或弹道导弹计划。她说商务部致力于有效利用出口管制来保护我们的国家安全。
+本周末悉尼有1100场拍卖会，这是今年的又一个纪录。上周末的拍卖清盘率为71%，为五个月以来的最低水平，这意味着买家有更多选择。
 
-被列入黑名单的公司包括八个技术实体，它们将被阻止使用美国的技术来支持中共国的某些军事应用，如反隐形和反潜行动，以及破解加密或开发不可破解的加密的能力。中共国和巴基斯坦的16个实体和个人因帮助巴基斯坦的核活动或弹道导弹计划而被点名。而科瑞德科技有限公司，一家已经在实体名单上的中共国公司的三家附属公司因参与向伊朗的军事和太空项目、朝鲜的幌子公司和中共国的国防工业出售美国技术也被列入黑名单。
+对于希望投资而不是居住的人，ME Bank的一项研究表明，澳大利亚排名前20的郊区，其中有8个都在悉尼。
 
-商务部说，除了这些黑名单之外，它还将俄罗斯的一个组织，莫斯科物理技术研究所列入军事终端用户名单，因为它生产军用产品。该名单要求某些出口必须获得工业和安全局的许可。
+AMP Capital的首席经济学家谢恩·奥利弗（Shane Oliver）表示：“悉尼房价在2023年可能会下跌。特别是，如果储备银行开始像我们预期的那样提高利率。”
 
-新闻来源：[Biden administration blacklists 27 companies over national security concerns](https://www.upi.com/Top_News/US/2021/11/24/blacklist-Commerce-Department/8891637786157/)
+奥利弗先生说：“我认为舞会正在接近尾声，明年我们可能仍会看到更多的进展。”
+
+**原文链接：**[Sydney property prices could fall by 10 per cent by 2023](https://www.msn.com/en-au/news/australia/sydney-property-prices-could-fall-by-10-per-cent-by-2023/ar-AAR4j0T?ocid=msedgntp)
+
+*编辑/发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

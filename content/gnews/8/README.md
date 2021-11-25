@@ -2,33 +2,37 @@
 ---
 
 
-## 悉尼房价预计将在明年达到顶峰
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1693695/)
+## 世贸组织因主张 “疫苗种族隔离”被指责
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1693755/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/capi_721a1d8bcd173ba6f50b15309a04986e_ce100ece3c115e7ae3badda530927685.jpeg)图片来源：Realestate
-**整理报道：**翼族
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-今年悉尼的房价平均上涨了25%，但是卖家急于从当前的房地产繁荣中获利。随着市场转向有利于买家，悉尼房价预计将在明年达到顶峰，然后下跌。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/GettyImages-1232712976.jpg)图片来源：www.teenvogue.com
 
-专家认为，房地产繁荣即将结束，这促使卖家会在年底前从高价中获利。
 
-本周末悉尼有1100场拍卖会，这是今年的又一个纪录。上周末的拍卖清盘率为71%，为五个月以来的最低水平，这意味着买家有更多选择。
+#### 编译：小红帽
 
-对于希望投资而不是居住的人，ME Bank的一项研究表明，澳大利亚排名前20的郊区，其中有8个都在悉尼。
+数十个激进组织和民间社会组织呼吁世界贸易组织（WTO）停止即将举行的会议，并认为该机构应停止执行助长全球 “疫苗种族隔离 ”的知识产权法。
 
-AMP Capital的首席经济学家谢恩·奥利弗（Shane Oliver）表示：“悉尼房价在2023年可能会下跌。特别是，如果储备银行开始像我们预期的那样提高利率。”
+一个由130多个团体组成的联盟，于周三致函国际贸易集团，称定于下周举行的世贸组织部长级会议不应继续举行，除非该组织批准豁免被称为《与贸易有关的知识产权协议》（TRIPS）的知识产权。
 
-奥利弗先生说：“我认为舞会正在接近尾声，明年我们可能仍会看到更多的进展。”
+信中说：“令人难以置信的是，这个机构的规则强制实行疫苗种族隔离，它试图在疫苗种族隔离的条件下举行会议，而没有首先通过同意《与贸易有关的知识产权协议》的豁免来解决这种种族隔离问题。”
 
-**原文链接：**[Sydney property prices could fall by 10 per cent by 2023](https://www.msn.com/en-au/news/australia/sydney-property-prices-could-fall-by-10-per-cent-by-2023/ar-AAR4j0T?ocid=msedgntp)
+世界贸易组织还声称，为豁免开绿灯不需要正式的部长级会议来批准，该决定可以由日内瓦的世贸组织总理事会单方面做出。
 
-*编辑/发布：翼族*
+“由于世界各地持续的大流行病限制，一些成员国将无法派代表参加会议。在这个情况下，继续进行这项活动所做出的决定 “将缺乏任何合法性的伪装”，信中补充道。
 
-**更多资讯，请关注：
+世贸组织本身最初在去年审议了知识产权豁免提案，这个想法首先由印度和南非提出。然而，尽管美国政府在口头上给予了一些支持，但此后并没有在国际上暂停与新冠有关的医药专利。
+
+**参考新闻：** [WTO accused of ‘vaccine apartheid’ — RT World News](https://www.rt.com/news/541255-wto-vaccine-waiver-letter/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
 [澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  

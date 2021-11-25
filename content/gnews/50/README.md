@@ -2,38 +2,30 @@
 ---
 
 
-## 2021/11/23 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1692611/)
+## 中共北极“一带一路”再遭重击，格陵兰撤销中共铁矿石开采许可
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1692828/)
 
-1. 11月22日，内蒙古呼和浩特发生燃爆。中共官方称已致1死14伤，事故因管道燃气泄漏所致。
-2. 11月22日，江西南昌一宿舍居民楼坍塌，官方称事故造成3个家庭共4人遇难。
-3. 11月22日，由于官方通报新增新冠确诊病例，辽宁大连甘井子区居民半夜被贴封条。
-4. 市民拍下中共医院夜晚人们席地而睡的一幕，感叹世间的艰难。
-5. 湖北武汉，一女子因与不拴绳遛狗主人冲突后愤恨跳楼。上百邻居19日在事发地悼念。
-6. 11月22日，浙江温州一民房因家中办丧事失火，2人遇难。
-7. 河南乡村灾后3个月现状，政府难言保障，村民自主生死。
-8. 11月19日，广东广州。市民民房被强拆，住户欲相继跳楼抗议。
-9. 11月21日，广东茂名信宜市。疑因情感纠纷，一男子当街杀害二人后原地等待警察抓捕，凶手伤害手段极其残忍。
-10. 11月20日，辽宁大连。被欺骗的爱心，居民捐给贫困山区的衣服，被装进运输垃圾的垃圾车。
-11. 11月20日，河南周口。儿子推着瘫痪6年的爸爸，给邻居家摘辣椒打零工来补贴家用。
-12. 11月21日，广西南宁。一白色小车在大桥上失控撞倒多辆电动车，现场多人受伤。
+作者：纽约香草山农场 – 007
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月23日，格陵兰政府宣布，撤销中共国俊安集团在当地开采铁矿石的许可。煤炭和铁矿石进口商俊安集团，是第一家在格陵兰获得矿业开采许可的中共国公司，它于2015年获得格陵兰首府努克附近伊苏矿业项目的控制权。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture2-23.jpg)
+在资源丰富的格陵兰加大投资，是中共所谓“一带一路”在北极的战略性标志，但这个扩张企图屡屡碰壁。除这次铁矿石开采梦碎之外，11月9日，格陵兰国会通过禁止开采铀矿和停止开发稀土的新法案，让中共在宽纳思特的稀土开采计划遭受重击。2018年，格陵兰拒绝了中共在格陵兰资助并修建两个机场的建议。2016年，俊安集团试图购买格陵兰一个废弃的丹麦海军基地，被丹麦政府以安全理由否决。
 
+参考链接：[中共北极“一带一路”再遭重击，格陵兰撤销中共铁矿石开采许可](https://www.voachinese.com/a/greenland-chinese-firm-delicensed-20211123/6325150.html)
 
-封面图片来源于网络
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-* * *
+总编：飞虹
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

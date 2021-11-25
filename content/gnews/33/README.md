@@ -2,12 +2,32 @@
 ---
 
 
-## 政府正通过实施封锁和疫苗强制践踏每个公民的各项人权
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1693352/)
+## GTV新闻访谈简报|2021年11月24日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1693393/)
 
-11/21/2021 道格拉斯·默里：我们以前从未见过，人们被告知他们基本上会被分为两类公民，接种疫苗和未接种疫苗的，负责任的和不负责任的。政府正在通过实施封锁和疫苗强制践踏每个公民的每一项人权。
+作者：香草山翻译部
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-5.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1124text-SC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[11.24  晚GTV新闻访谈](https://gtv.org/broadcast/watch/619ee67638f84e66c64f877d)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-10.jpg)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
 
  
 
