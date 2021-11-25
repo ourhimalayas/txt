@@ -2,31 +2,33 @@
 ---
 
 
-## 澳大利亚向动乱后岛国派遣维和部队
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1695194/)
+## 有声|GTV新闻访谈简报|2021年11月23日晚
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1695240/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-2.jpg)
+配音：香草山教育部 – 蒙古鸿雁
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/in-der-stadt-honiara-ziehen.jpg)
 
 
-资料来源：FAZ
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-2.jpg)
 
-在所罗门群岛发生暴力骚乱后，澳大利亚派遣数十名士兵和警察前往太平洋岛国执行维和任务。澳大利亚总理斯科特·莫里森说，士兵应该帮助创造“稳定和安全”。澳大利亚政府无意以任何方式干涉该国的内政。
 
-据《澳大利亚人报》周四报道，最初的 23 名警察和 43 名士兵的派遣是应总理马纳西·索加瓦雷 (Manasseh Sogavare) 的要求进行的。周三示威者试图袭击首都议会但未成功，几座建筑物起火后，政府实施了 36 小时的封锁。尽管如此，骚乱在周四仍在继续。首都霍尼亚拉的中国区有几家商店和建筑物被烧毁。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1123text-SC.png)
+原文链接：[GTV新闻访谈简报|2021年11月23日晚](https://gnews.org/zh-hans/1690150/)
 
-据澳大利亚媒体报道，抗议者呼吁总理索加瓦雷辞职。专家认为，所罗门中央政府与人口最多、经济最不发达的马莱塔岛的政治领导层之间的紧张关系是引发骚乱的导火索。据说，最初和平抗议的许多参与者都来自该岛。据专家称，长期以来一直对中央政府的资源分配不公感到不满，中央政府位于首都霍尼亚拉的瓜达尔卡纳尔岛。政府与省之间的争端也有外交政策层面。两年前，所罗门群岛决定终止自1983年以来与台湾的关系，转而承认中华人民共和国。马莱塔地区总理丹尼尔·苏达尼当时与台湾保持着关系。该省获得了台湾的多个援助项目。
+音频处理：喜山必胜Maverick
 
-多年来，南太平洋的北京和台北一直在争夺那里的小岛国的承认。南太平洋岛国在中美地缘政治竞争中也越来越受到关注。总部与北京建立关系后，华盛顿承诺向马莱塔省提供总额为2500万美元的援助，这是它在正常年份获得的援助的数倍。
+发稿：Daxia
 
-在议会旁边的一间小屋起火后，当前的抗议活动在周三升级为暴力事件。警方对示威者使用催泪瓦斯和橡皮子弹。后来一个警察局和其他几座建筑物被烧毁。骚乱让人想起早先的不稳定时期，那时，澳大利亚和新西兰也曾向这个岛国派遣军队以恢复平静。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1-10.jpg)
 
-原文链接： [新闻来源：德国法兰克福报网络版](https://www.faz.net/aktuell/politik/ausland/australien-schickt-nach-unruhen-friedenstruppen-auf-die-salomonen-17652001.html)
+**更多资讯，更多关注**
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-
-责任编辑/发布： Shuizhuyu
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://xn--%20%7Cgtv%20%20gtv-%20%7Cmos%20talk%20%20%20%7C%20gettr%20%20%20%7Cyoutube%20%20%7C%20discord-kw44l1t1gm8doayup218v624hpazvr1825bzx4emafxdws06012bhtnpta2axu46wua3ayv7960lnaiygzw1416y8vh370k17zmoajzj0ay/)
 
  
 

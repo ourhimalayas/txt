@@ -2,51 +2,52 @@
 ---
 
 
-## 美国将软木木材关税提高一倍；拜登“甚至没有警告”特鲁多
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1695087/)
+## 美国驳回中国电信继续在美国运营的申请
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1695103/)
 
-作者：反叛新闻
-翻译：HimaCoby
+作者：纽约香草山农场 – 四季
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-171.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-总理贾斯汀·特鲁多 (Justin Trudeau) 政府对拜登政府对加拿大软木出口到美国的关税几乎翻倍的消息感到“失望”。
 
-保守党议员 兰迪霍贝克和迈克尔·钟在最近的三个朋友峰会后发表声明说，“很明显，在特鲁多先生的领导下，加拿大与美国的关系已经恶化，损害了跨境企业和威胁到加拿大的工作。”
 
-根据布莱克洛克的记者的报道，霍贝克表示：
 
-“美国总统甚至没有警告总理美国将对软木木材加倍关税。
 
-要么是特鲁多总理在华盛顿与拜登总统会面时没有提到软木，要么是总统对总理所说的话没有太多放心上。”
+11月24日，美国联邦通信委员会（FCC）要求联邦上诉法院驳回中国电信公司要求继续在美国提供服务的申请。此前，美国电信监管机构于10月26日下令中国电信在1月初停止其在美国的服务，并撤销了其运营授权。
 
-特鲁多的国际贸易部长玛丽·吴在推特上表示，政府对增加“不合理关税”的决定“非常失望”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1519-1.jpg)2009年3月24日，香港。展示于新闻发布会上的中国电信公司标志。（REUTERS/Bobby Yip）
 
-新税率 17.9%预计将于下周生效，高于目前的 9%。
+联邦通信委员会说，中国电信“受到中共国政府的剥削、影响和控制，极有可能在没有充分的法律程序、接受独立司法监督的情况下，被迫遵守中共国政府的要求。”
 
-加拿大是最大的针叶材生产国和出口国之一，占加拿大林产品出口价值的 20%。
+处于国家安全考虑，美国联邦通信委员会在3月，先后撤销了中共国联通美洲公司、太平洋网络公司及其全资子公司ComNet在美国提供电信服务的授权。2019年5月，委员会一致投票否决中共国国有电信公司——中国移动有限公司提供美国服务的权利。并在去年认定华为技术公司和中兴通讯公司为对美国通信网络的国家安全威胁。
 
-2019 年，加拿大出口了价值 80 亿美元的软木木材。
+**参考阅读：**
 
-来源：https://www.rebelnews.com/us\_doubles\_softwood\_lumber\_tariffs\_biden\_didn\_t\_even\_warn\_trudeau
+[U.S. opposes China Telecom’s bid to continue U.S. operations | One America News Network (oann.com)](https://www.oann.com/u-s-opposes-china-telecoms-court-bid-seeking-to-block-fcc-action/)
 
-（文章仅代表作者个人观点）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+编辑/校对/发稿：小鹿
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
 
-**关注我们**
+**更多资讯，更多关注**
 
-Discord 账号
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-Gettr 账号
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

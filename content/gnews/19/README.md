@@ -2,25 +2,56 @@
 ---
 
 
-## 中共的“劫富济豪”－中共是富可敌地球的土豪
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1695022/)
+## 【Michael Tonny 专栏】如何预防和治疗中共病毒
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1695039/)
 
-作者： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-25-183140.jpg)图片来源 ：G-TV
-今天（11月24日）文贵先生在5个多小时的大直播中，用很大一段声讨中共犬儒司马南，这个王岐山豢养的狗，狂咬中华民族少有的成功私人企业家、实业家、联想集团创始人柳传志先生。柳传志先生不仅为中共国的IT产业培养了一大批精英人才，而且是中共国现在仅有不多的在世界上受到同行认可的实业家。但是，随着中共新一波“打土豪分田地”收割韭菜的开始，所剩无几的“肥壮韭菜”几乎无一幸免，如阿里巴巴的马云、腾讯的马化腾等，包括联想的柳传志。
+加拿大温哥华扬帆农场 Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/michael-2.jpg)
+自从CCP利用中共病毒（COVID-19）向全世界发动生化武器战争以来，截止到美东时间2021年11月24日，不包含中共刻意隐瞒的中共国内数据，全世界共有2.59亿人被中共病毒感染，5,17万人被戮杀！
 
-为了给老百姓打鸡血，美其名曰“杀富济贫”，而实质是劫持了这些富有的企业家的财富，不仅一分钱没有济贫，而抢劫的财富如数进到了中共高层这几个“富可敌一个地球”的盗国贼的腰包，而贫困的阶层将更加贫困，因为这些企业不能再为他们提供就业，与企业相关的上下生产链全都面临破产，中共根本不在乎老百姓死活，需要时百姓用来充当打土豪的枪手，之后，哪怕“人们3年吃草”，中共都认为是对人民很恩惠了。
+如何治疗中共病毒感染者，如何防治中共病毒，是全世界必须面对的话题。
+疫苗是全世界政客热衷的话题，下图分别是疫苗接种率和病毒感染率的统计结果。
 
-永远不要听信中共说什么，连中共自己的《人民日报》前主编都在自己自传中写道：人民日报连标点符号都不能信！
+北美有54.08%的疫苗完全接种率，中共病毒感染率为9.5%；欧洲疫苗完全接种率为57.1%，病毒感染率为9.53%；南美疫苗完全接种率为56.02%，病毒感染率为8.93%。非洲仅有6.94%的疫苗完全接种率，但感染率却不到0.62%。
 
-多亏爆料革命引领人文贵先生30年卧薪尝胆，没有文贵先生第一手中共高层和各界的真相揭露，别说西方人被中共所迷惑，连像我这样在中共国长大的战友，也没能认识到一直被灌输的“比爹亲、比娘亲”的中共不代表中共国人，不代表中共国，而中共国人民的一切灾难，都是因为这个邪恶的流氓共产党。今天世界人民从病毒和疫苗的灾难中也认识到，中共是灭绝人类的恶魔！中共国共产党不仅要在中共国“劫富济豪”，也不会放过全世界的财富！
+说明注射疫苗对预防中共病毒毫无帮助，很多数据分析结果和资料甚至说明，接种疫苗，有助于中共病毒传播。
+
+所以，不要打疫苗，就是对付中共病毒的重要预防措施。
+
+在感染中共病毒患者的治疗方案中，《[COVID-19 treatment studies for Hydroxychloroquine》](https://hcqmeta.com/)对羟氯喹治疗中共病毒患者做了非常深入的研究，Zelenko博士（大胡子医生）在视频节目中，根据自己的数千名患者临床实践经验，对羟氯喹方案、伊维菌素非常推崇。
+
+2021年11月18日，第161期《COVID-19 treatment studies for Hydroxychloroquine》发布的《HCQ for COVID-19: real-time meta analysis of 298 studies》结论中，对中共病毒的患者早期实施羟氯喹治疗方案，给出了非常肯定的结论。
+
+对共有413,756名患者参与的298项羟氯喹治疗Covid-19临床研究的实时元分析结果表明，对感染中共病毒的患者早期应用羟氯喹治疗方案，有64%的患者有效；而羟氯喹用于晚期治疗则仅有19%的患者取得了积极的效果，不太成功；应用于非常晚期的，无效且可能有害，尤其是在使用过量剂量时。
+
+Zelenko博士（大胡子医生）是COVID 临床治疗的杰出专家之一，他是使用羟氯喹的早期倡导者。
+
+2021年11月23日，Zelenko博士在接受Gateway Pundit访谈中说，羟氯喹是最强大和最有效的锌离子载体之一（或锌传递系统），可以通过它让锌进入细胞以抑制病毒复制的机制。
+
+他已经在孕妇、儿童、哺乳期妇女身上使用过它……，根据他治疗数千名患者的临床经验，认为羟氯喹方案是绝对可以挽救生命、是安全的。
+
+在谈到伊维菌素时，大胡子医生认为伊维菌素是一种廉价，非常好的药物和有效解决中共病毒危机方案。
+
+最后，笔者也提出一种或许是预防和治疗中共病毒的最佳方案，那就是，要消灭中共病毒，必须先消灭CCP！
+
+参考资料：
+
+[HCQ for COVID-19: real-time meta analysis of 298 studies](https://hcqmeta.com/)
+
+[EXCLUSIVE VIDEO: Dr. Zelenko to The Gateway Pundit: CDC’s Response to COVID-19 “A Crime Against Humanity. Mass Murder. And Genocide…”](https://www.thegatewaypundit.com/2021/11/exclusive-video-dr-zelenko-gateway-pundit-cdcs-response-covid-19-crime-humanity-mass-murder-genocide/)
+
+[Scientists “Mystified” Over Africa’s Low Vax Rate and Low COVID Numbers](https://www.thegatewaypundit.com/2021/11/scientists-mystified-africas-low-vax-rate-low-covid-numbers/)
+
+[COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU)](https://www.arcgis.com/apps/dashboards/bda7594740fd40299423467b48e9ecf6)
+
+[Data on COVID-19 (coronavirus) by Our World in Data](https://github.com/owid/covid-19-data/tree/master/public/data)
+
+[COVID-19 situation update worldwide, as of week 45, updated 18 November 2021](https://www.ecdc.europa.eu/en/geographical-distribution-2019-ncov-cases)
 
 * * *
 
-*审核：Aries的星
-校对：信心满满
-发布：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+编辑/发稿：云起时
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
