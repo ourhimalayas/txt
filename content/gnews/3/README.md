@@ -2,49 +2,27 @@
 ---
 
 
-## 美国将数十家中共国科技公司列入黑名单
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1692857/)
+## 罗伯特·马龙博士：如果给感染 了COVID 的儿童接种疫苗，出现不良反应的风险更高
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1692864/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+翻译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/11/fauci-lizard-eyes-edited.jpg)图片来源：网络
+来自GATEWAY PUNDIT 星期三11月24日的新闻报道：
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/W-2.jpg)article.wn.com
-继美国邀请台湾出席民主峰会后【1】，拜登政府又有反共举动，还是来自MSN11月24日转发的报道称，“以国家安全为由，美国将数十家中共国科技公司列入黑名单”。【2】
+彼得·纳瓦罗博士和 mRNA 疫苗的发明者罗伯特·马龙博士于周三加入了班农作战室节目与史蒂夫·班农对话。昨天晚上福奇公开攻击彼得·纳瓦罗和福克斯新闻金牌主持塔克·卡尔森散布有关冠状病毒的虚假信息。
 
-文章开头摘要：
+马龙博士指责福奇有失偏颇和撒谎，“他因说谎而成名星……出于某种原因，他所做的所有虚假陈述都为大型制药公司的利益服务”。
 
-周三（11月24日），拜登政府将十几家中共国公司列入其贸易黑名单。
+罗伯特·马龙博士还指责福奇博士和 COVID 小组自大流行开始以来至少杀死了 50 万美国人。马龙博士警告儿童父母，为已经感染 COVID-19 并具有天然免疫力的儿童接种疫苗是极具危险。
 
-在这些被列入黑名单的公司中，有八家中共国技术实体因涉嫌协助中共军方的量子计算工作而被列入黑名单。
+Malone 博士：“如果对以前有过感染而具有很强免疫力的人使用 RNA 疫苗，那么向他们提供这种尖锐的刺突蛋白是一个坏主意。 它会造成损坏。 令人恶心与悲伤的是，据估计，很多孩子已经自然感染了。 现在，托尼说我们 50% 的孩子都有症状。 嗯，这是真的。 他们的症状包括流鼻涕，他们的症状包括喉咙痛。 那完全是误导。 这是典型的托尼，他选择他的事实并不代表正在发生的事情。 但看起来超过一半的孩子已经自然感染了。 这意味着，既使他们被排除在临床试验之外，如果你同意为他们接种疫苗，他们发生不良事件的风险会更高”*。*
 
-美国官员长期以来一直抱怨，中共国公司受国家支配，代表中共军方收集敏感信息。
+原文链接：[https://www.thegatewaypundit.com/2021/11/dr-robert-malone-children-covid-higher-risk-adverse-effects-vaccinate-video/](https://www.thegatewaypundit.com/2021/11/dr-robert-malone-children-covid-higher-risk-adverse-effects-vaccinate-video/)
 
-全文如下：
+编辑/发布：LILY
 
-拜登政府周三（11月24日）以国家安全和外交政策为理由，将十几家中共国公司列入贸易黑名单。
-
-八家总部位于中共国的科技实体，因涉嫌协助中共军方的量子计算工作，以及获取或试图“获取原产于美国的、支持军事应用的产品”而被列入名单。
-
-美国官员长期以来一直抱怨，中共国公司受国家支配，代表中共军方收集敏感信息。中国共产党此前曾表示，它不从事工业间谍活动。
-
-美商务部还列出了16家在中共国与巴基斯坦从事伊斯兰堡核项目，以及弹道导弹项目工作的实体和个人。拜登政府总共增加了包括中共国、巴基斯坦、俄罗斯、日本和新加坡在内的27个实体和个人。
-
-美国商务部长吉娜·雷蒙多（Gina Raimondo）在一份声明中写道：“全球贸易和商业应该支持和平、繁荣和优禄的工作，而不是带给国家安全风险，商务部致力于通过有效的出口管制来保护我们的国家安全。”
-
-中共驻华盛顿大使馆没有立即回应有关置评请求。
-
-商务部的实体清单对被认为从事不良或不道德活动的个人和实体规定了贸易限制。
-
-（全文完）
-
-防火、防盗、防中共应该成为西方乃至整个世界民众的普遍意识，中共恶制下的企业行为与文明世界信奉的正道主义越来越格格不入，只有将中共消灭，才能还世界以安宁。
-
-有关链接：
-
-【1】[https://gnews.org/zh-hans/1692470/](https://gnews.org/zh-hans/1692470/)
-
-【2】[https://www.msn.com/en-ca/money/markets/u-s-blacklists-dozens-of-chinese-tech-firms-citing-national-security-concerns/ar-AAR5Uio?ocid=msedgntp&pfr=1](https://www.msn.com/en-ca/money/markets/u-s-blacklists-dozens-of-chinese-tech-firms-citing-national-security-concerns/ar-AAR5Uio?ocid=msedgntp&amp;pfr=1)
-
+20211124
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
