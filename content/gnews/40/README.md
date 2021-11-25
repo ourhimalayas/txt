@@ -2,10 +2,57 @@
 ---
 
 
-## 11/24/2021 文贵直播：胡舒立和司马南是“小号的王岐山”
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1693708/)
+## 视频| 喜币的价值和价格的区别
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1693804/)
 
-秘密翻译组-北美组
+## 摘自郭先生2021.11.24大直播
+
+制作：香草山视频部
+
+
+
+千万不要说喜币的价格
+是喜币的价值
+今天你看的价格是10币里6亿币的价格
+单币价格
+我们的战友要的是喜币的价值
+就是拥有喜联储1000个亿币的发行权
+所有的利益
+那叫价值
+如果你关注今天价格的
+你一定不会拥有未来的价值
+就今天现在你不接受代持
+那一定让你出局
+给了你福利 那是未来共同要的是价值
+这个价值的背后是基于什么的基础呢
+叫信仰 我们要灭共
+你不能任何一个人独自的来独吃独食
+你不能任何一个人你把在战友身上刮肉
+必须有饭一起吃 有肉一起吃
+不能达到均贫富 必须是100%同一个起跑线
+绝对不会落下一个人
+所以它今天的喜币叫价格
+但我们要理解的是喜币的价值
+喜币的价值就是喜币的发行权和喜联储
+GTV的拥有的5%
+
+
+
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
