@@ -2,21 +2,19 @@
 ---
 
 
-## 平明运动的本质就是一人一票
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1691689/)
+## 【文贵先生大直播PPT】全球中共病毒 疫苗灾难现状
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1692180/)
 
-文编：东京樱花团/樱花传媒
+撰稿：舒平风，坐看云起时，莲心不染，李昂纳多，大废墙（文非），Now小哥
+素材提供：白子，来福福，电流声，TCC幸福堂
+美工：小黑兔，健身健心，雷蒙
+审核：三票先生，顽童先生，舒平风
 
-视频:东京樱花团/中文小视频组
+【2021年11月24日文贵先生大直播PPT：全球中共病毒 疫苗灾难现状】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/41-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/42-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/43-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/44-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/45-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/46.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/47.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/48.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/49.jpg)
+* * *
 
-11月20日，郭文贵先生在GTV大直播指出：
-
-班农先生坚定不移地支持中国老百姓。他指出，当有街头抗议时，这个社会一定是法治的是有未来的，而当政治被家族化时一定是独裁的，它是国家的灾难不可能有民主。班农先生还教导我们，平民运动不是某个阶层的运动而是整个社会的运动，它的本质就是一人一票，它追求宗教自由信仰自由和独立的法治。
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/最新版-3.png)
-
+发稿：云起时
 
  
 

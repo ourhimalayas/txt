@@ -2,20 +2,22 @@
 ---
 
 
-## 岸田文雄与泰国总理会谈，强烈反对中共海上霸权
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688298/)
+## 应对中共威胁，日印外长电话确认紧密合作
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1688387/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-47.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fwww3.nhk.or.jp%2Fnhkworld%2Fupld%2Fthumbnails%2Fzh%2Fnews%2F334259_16234_L.JPG&amp;imgrefurl=https%3A%2F%2Fwww3.nhk.or.jp%2Fnhkworld%2Fzh%2Fnews%2F334259%2F&amp;tbnid=vldd1oKnYaMBhM&amp;vet=12ahUKEwi2rpHmpa70AhWcnEsFHQl0BUYQMygAegQIARB2..i&amp;docid=rtOra4742n5QPM&amp;w=640&amp;h=360&amp;q=%E5%B2%B8%E7%94%B0%20%E6%B3%B0%E5%9B%BD&amp;ved=2ahUKEwi2rpHmpa70AhWcnEsFHQl0BUYQMygAegQIARB2)
-日本首相岸田文雄11月22日晚间，与泰国总理巴育举行了就任后的首次电话会谈，并确认与两国加强合作，促进双边关系进一步发展。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-183.png)[图片来源](https://gbsrc.dpu.edu.in/blogs/old-japan-young-india-and-tremendous-opportunities)
+11月22日，日本新任外相林芳正与印度外长苏杰生举行电话会谈，确认将在包括美国和澳大利亚在内的“四边机制”（Quad）下紧密合作，确保“自由开放的印度太平洋”。
 
-在与泰国总理巴育的会谈中，岸田表示：“希望进一步发展两国之间的‘战略合作伙伴关系’，为实现‘自由开放的印太地区’而加强合作。”对此，巴育总理回应称：“为了推动双边关系进一步发展，希望密切开展合作。”
+鉴于中共不断加强海洋活动，双方就反对在东海和南海依靠实力单方面改变现状的问题达成共识。
 
-围绕地区局势问题，在考虑到中共国相关活动的背景下，岸田指出：“日本强烈反对试图单方面改变东海及南海现状的行为。”两国首脑还就改变缅甸局势问题表示将进一步携手合作。
+双方一致同意将在适当时候实现首相岸田文雄访问印度，重启因中共病毒疫情而暂停的首脑往来。两人还商定将协调推进外长防长磋商（2+2）的日程安排工作。
 
-消息来源:
+围绕防务和经济安全，双方确认了在网络和太空等新领域的合作，并就在强化供应链等经济安全方面也加深合作达成共识。
 
-[岸田与泰国新加坡首脑举行电话会谈](https://www3.nhk.or.jp/nhkworld/zh/news/334259/)
+信息来源：
+
+[日印外长通电话确认四边机制紧密合作](https://china.kyodonews.net/news/2021/11/c2bac834b9bd.html)
 
 *校对：东京樱花团/知了知了*
 *发布：东京樱花团/tdownc2p*

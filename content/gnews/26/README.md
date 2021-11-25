@@ -2,44 +2,161 @@
 ---
 
 
-## 美国邀请台湾参加民主峰会激怒了中共
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1692470/)
+## 中共在中东要建多个军事基地这都是中共解放军自己出卖自己
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1692636/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/a3a4l-koqqt-2.jpg)
+[https://gtv.org/video/id=619e3d57abc44c39e083f4e8](https://gtv.org/video/id=619e3d57abc44c39e083f4e8)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/T-4.jpg)lessdaily.com
-左媒MSN 11月24日转载报道了《美联社》（Associated Press）的消息，文章题目“美国邀请台湾参加民主峰会激怒了中共”。
+**郭文贵**
+**Miles Guo**
 
-全文如下：
+当时是CIA问我
+At that time, it was the CIA asking me
 
-美联社华盛顿讯，美国国务院宣布，拜登政府已邀请台湾参加下个月的民主峰会，这引发了中共的尖锐批评，中共认为这个自治岛屿是它的领土。
+还有情报部门问我
+and also the intelligence department
 
-这次峰会兑现了乔·拜登总统在竞选期间所作的承诺，也反映了他对让美国重新回到世界民主国家的全球领导地位的重视。该活动旨在聚集政府、民间社会和私营部门领导人，共同打击独裁主义和全球腐败，捍卫人权。
+问我一天问我这个东西
+They asked me about this (the CCP builds military bases in the Middle East) for the whole day
 
-邀请名单有110个国家，包括台湾，但不包括中共国或俄罗斯等。将台湾包括在内之际，美国与中共国之间的紧张关系因美国对这个岛国的态度而加剧。
+我说我不知道
+I said I don’t know
 
-美国的“一个中国”政策承认北京是中共政府，但允许与台北建立非正式关系和防务关系。
+但是你知道他们讲了个很关键的话
+But you need to know that they (the intel agents) said something very pivotal
 
-但在10月下旬，拜登向北京敲响了警钟，他说，美国坚定地承诺在中共发动袭击时帮助台湾自卫。
+我们从中共方得到消息
+They said they got the information from the Chinese Communist Party
 
-在本月早些时候拜登和中共主席举行的三小时虚拟会议期间，拜登重申美国支持“一个中国”政策，但据白宫报道，他也表示他强烈反对“单方面努力改变现状或破坏整个台湾海峡地区的和平与稳定”。
+（中共）在那建那个基地
+that the CCP is building military bases there
 
-民主峰会邀请名单引发了北京新一轮的批评。
+我说那你们自己可以去核实去呀
+I said you can verify it yourself
 
-中共外交部发言人赵立坚说：“美国的所作所为证明，所谓的民主只是它追求地缘政治目标、压制其他国家、分裂世界、为自己利益服务、维护世界霸权的借口和工具。”
+他们问我的时候，我说我不知道
+When they asked me, I said I didn’t know
 
-中共国台办发言人朱凤莲星期三（11月24日）说，“我们坚决反对美国和台湾地区之间任何形式的官方接触。”
+但是他们，你看第一次今天班农把我给爆料了
+But you see, for the first time, Bannon has broken the news on me today
 
-邀请名单突显了拜登在峰会上必须面对的挑战性地缘政治，虽然日本和韩国等美国盟友受到邀请，但越南、埃及和北约成员国土耳其等其他国家没有受到邀请。
+这是个很大的误会
+This is a big misunderstanding
 
-（全文完）
+当时是所有的CIA问的问题是来自中共内部的
+At that time, all the questions asked by the CIA came from internal of the CCP
 
-不管拜登政府是不是在演戏，这算是对其在竞选期间作出承诺的兑现。重要的是要向全球表明，一旦独裁专制政府向民主伙伴动武时，民主联盟要有真实的行动，而不只是“谴责”、“制裁”之类空洞的叫喊，这样台湾人民才会有真正的安全。
+我跟班农先生第一次见面
+I met Mr. Bannon for the first time
 
-原文链接：
+我就说班农先生
+I already told Mr. Bannon
 
-[https://www.msn.com/en-us/news/world/us-invitation-of-taiwan-to-democracy-summit-angers-china/ar-AAR5qFN](https://www.msn.com/en-us/news/world/us-invitation-of-taiwan-to-democracy-summit-angers-china/ar-AAR5qFN)
+我跟CIA见面
+I had met the CIA
+
+我说还有跟FBI见面
+and also the FBI
+
+我说你们要想办法把房峰辉给搞定
+I said you need to find a way to unite Fang Fenghui (a former top general in the PLA)
+
+他说怎么可能房峰辉会跟我们合作呢
+Mr. Bannon said how could it possible that Fang Fenghui cooperating with them,
+
+不可能, 最后房峰辉被抓了
+it’s impossible, but Fang Fenghui was arrested in the end
+
+房峰辉被抓之前一直跟我有联系
+Before being arrested, Fang Fenghui had been in contact with me,
+
+说只要美国人只要能保我家人性命
+saying that as long as the Americans can save his family’s life
+
+我把所有的这些东西都给出去（美国）
+he would provide all information (the CCP builds military bases in the Middle East) to the US
+
+记住啊，当时他就说
+Keep that in mind, at that time he said
+
+美国要小心的是Chemical Weapon、Biology Weapon, Do you remember？
+the United States needed to pay close attention to chemical weapons and biological weapons
+
+当时就说这话
+He said those at that time
+
+而且房峰辉当时就跟美国说
+And Fang Fenghui said to the U.S. during that time
+
+中共的计划要在中东建多个军事基地
+the CCP’s plan was to build multiple military bases in the Middle East
+
+这都是2017年发生的事情
+These are all that happened in 2017
+
+今天班农先生把我的料给爆了
+Today, Mr. Bannon has broken my information
+
+他说我跟CIA
+He has said that the CIA and I…
+
+今天我可以对着镜头前这么说
+But, I can say this in front of the camera today
+
+这都是当时房峰辉还有军队的人告诉我的
+All these are what Fang Fenghui and people in the military told me
+
+今天看直播 很多中共高官（看）
+Many senior CCP officials are watching the live broadcast today
+
+你们都别搞错了
+Please don’t get that mixed
+
+是你们的人卖掉了你们
+It’s your people who betrayed you all
+
+不是UAE（阿联酋）也不是郭文贵
+instead of UAE, nor Miles Guo
+
+木兰你们要抓紧把这段翻译字幕加出来了
+Mulan, you need to hurry up and translate this video clip, push it out with subtitles
+
+要不然要搞老大的误会
+Otherwise, it would be a huge misunderstand
+
+人家UAE（阿联酋）以为我把UAE（阿联酋）给爆了
+UAE would think that I had pointed them out
+
+可不是我把UAE（阿联酋）给爆的
+It was not me to point out UAE
+
+是解放军的跟他们（合作）的（人）把他们给卖了
+It was the people who cooperate with the People’s Liberation Army have betrayed them
+
+所以你可以看那个报道就可以看得出来
+So you realize that by watching the report
+
+**原视频链接:**[https://gettr.com/post/phj0gz46a8](https://gettr.com/post/phj0gz46a8)
+
+Date: 11/21/2021
+原视频标题: 中共在中东要建多个军事基地这都是中共解放军自己出卖了自己
+The PLA Betrayed Themself by Revealing The CCP Building Military Bases in the Middle East
+原视频日期：2021/11/20
+原视频链接: https://gettr.com/post/phj0gz46a8
+任务编号：2973
+视频时间段 : 0:00-1:47
+
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

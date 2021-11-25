@@ -2,59 +2,98 @@
 ---
 
 
-## 迪士尼世界放弃强制疫苗后，白宫批判德桑蒂斯
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1692441/)
+## 超发货币将使数字货币代替法币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1692532/)
 
-作者：Ian Miles Cheong
-翻译：Himasally
+![](https://assets.gnews.org/wp-content/uploads/2021/11/hh-a3a4l-koqqt.jpg)
+[https://gtv.org/video/id=619e3cbfabc44c39e083f4d6](https://gtv.org/video/id=619e3cbfabc44c39e083f4d6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-197.png)
+**郭文贵**
+**Miles Guo**
 
-白宫周一批判了佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis），几天前，迪士尼世界宣布暂停员工强制接种疫苗，搁置了一项要求佛罗里达主题公园员工接种疫苗的政策。
+现在由于超发货币，给世界带来了什么样的结果呢
+What kind of results have been brought to the world due to over printed cur-rency?
 
-在白宫新闻发布会上，白宫新闻秘书。珍·普萨基猛烈抨击德桑蒂斯禁止佛罗里达州雇主实施强制疫苗规定的决定。
+一定会世界经济大崩溃，但是它触发了两种事件的发生
+It must be a major collapse of the world economy, but it triggered two events
 
-“我认为迪士尼很重要，因为它们位于佛罗里达州，而且显然，那里的州长一直在采取后退的措施抗击大流行，而不是前进。……这里就是他们的基地，“新闻周刊的普萨基说 。
+第一，2020年到现在，让世界上有了数字货币，
+First, from 2020 to now, the world have crypto currency
 
-普萨基引用了一项民意调查，该民意调查发现“60% 的商界领袖希望自行推进疫苗要求”，并补充说“我们已经看到它们在很多公司中得到实施，它们一直有效，总体而言让很多企业对他们的劳动力有了确定性，让人们对重返工作岗位更有信心。”
+就像二战，搞出了灭掉英镑和美元的布雷顿森林体系
+Just like World War II, it occurred the Bretton Woods system in American dol-lars that wiped out the British pound
 
-据反叛新闻周五报道，在州长德桑蒂斯上周 签署了四项与强制新冠 疫苗相关的法案之后，白宫做出了回应。
+一战当时搞出了欧洲的大英帝国，几大家族，罗斯柴尔德，
+World War I created the British Empire in Europe, there are several big fami-lies, like Rothschild
 
-“今天，在布兰登，州长德桑蒂斯正在签署立法，以保护佛罗里达州的工作和父母的权利，”德桑蒂斯的新闻秘书克里斯蒂娜普肖告诉反叛新闻。
+罗斯柴尔德就是借给战争黄金， 就是金币的，
+Rothschild lent gold to the war which is gold coins
 
-她补充说：“拜登政府对我们的宪法和个人自由发起了攻击，但德桑蒂斯州长正在为佛罗里达人挺身而出，反对政府的过度干预。”
+给人家一个王国agent的，就是今天说Hpay代表啊
+Rothschild was the agent for a kingdom, that is like Hpay today
 
-在签署过程中，德桑蒂斯说：“我们真的很高兴来到这里，特别是因为当我今天签署这项立法时，我们听到了很多关于所有这些事情的消息：授权、限制、拆散人们。今天，我们为人们站出来。我们为人们提供保护：没有护士、没有消防员、没有警察、没有卡车司机，没有任何人应该因为这些强制新冠疫苗而失业。”
+就出了罗斯柴尔德呀，一战后，然后美国催生出来的
+It just come out Rothschild after World War I, then the United States spawned
 
-“其中一项称为 HB 1B 的法案规定，佛罗里达州的私营部门雇员如果有医疗或宗教原因，或者可以对新冠具有免疫力，则可以选择退出疫苗接种任务。如果员工愿意接受定期测试或穿戴个人防护设备 (PPE)，它还提供豁免，”新闻周刊报道，并指出，“HB 1B 还可以看到小型雇主因未正确遵守法律而每次违规罚款高达 10,000 美元，而大型企业可能会被罚款 50,000 美元。”
+就是当时的洛克菲勒，是不是，就这几大家族啊
+It was Rockefeller at the time, right? It was just these big families
 
-迪士尼的一位发言人为其根据规定为其员工推广疫苗的方法进行了辩护。
+然后就是摩根斯坦利就出来了，就是因为二战以后的布雷顿森林体系废掉了英镑
+Then Morgan Stanley came out because the Bretton Woods system after World War II abolished the British pound
 
-“我们相信，我们对强制接种疫苗的方法是正确的，因为我们继续关注演职人员和客人的安全和福祉，并且在这一点上，超过 90% 的活跃的佛罗里达州居民演职人员已经确认他们已完全接种疫苗。我们将酌情处理法律方面的发展。”
+都是战争和经济灾难，1913年到1919年的一战、西班牙大流行病和经济灾难，大萧条
+because wars and economic disasters, the World War I from 1913 to 1919, the Spanish flu pandemic and economic disaster, the Great Depression
 
-德桑蒂斯的女发言人克里斯蒂娜·普肖在推特上写道：“任何人都不应因这些任务而失去工作，我们感谢立法领导人在兑现保持佛罗里达自由的承诺方面所做的贡献。”
+到了胡佛总统时期，吧唧上来了，美国诞生了
+Then to the period of President Hoover and the United States was born
 
-“迪士尼是佛罗里达州的主要雇主，我们为地球上最幸福的地方就在我们州而感到自豪，” 普肖补充道。“我们希望迪士尼和任何其他因疫苗规定而停职或解雇员工的公司将考虑重新雇用他们。”
+二战过去了，是吧，英国完蛋了，英镑结束了，美元起来了搞了美联储，
+World War II is over, right? Britain is over, the pound is over, the dollar is stable and set up the Federal Reserve
 
-来源：https://www.rebelnews.com/white\_house\_attacks\_desantis\_after\_disney\_world\_drops\_vaxx\_mandate
+美联储上千个个人股东，到现在控制了美国印发美元
+Thousands of individual shareholders of the Federal Reserve now control the U.S. printing and distribution of U.S. dollars
 
-（文章仅代表作者个人观点）
+本来美元要和黄金挂钩的，最后不挂钩了，变成了信用美元，变成了法币
+The U.S. dollar was originally pegged to gold, but in the end it was not pegged, it became the credit U.S. dollar and became fiat currency
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+这次就是彻底地把过去的金本位和所有的最后的和金本位挂钩的唯一全球货币，美元
+This time it’s the complete removal of the old gold standard and all the last and only global currency tied to the gold standard, the US dollar
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+从过去的中心化币，变成了完全虚假的中心化币
+From the past centralized currency to a completely fake centralized currency
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+完全变成了废币，纸币，这就是到了什么时代催生了数字货币
+It has completely become waste money, paper money, this is what spawned to the arrival of the crypto currency era
 
-**关注我们**
+数字货币的目的达到什么，结束了真正的人类历史上法币
+What is the purpose of crypto currency? it’s ending the fiat currency in human history
 
-Discord 账号
+法币的整个虚假时代，包括金本位都是假的
+The entire fake era of fiat currency, including the gold standard is fake
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
+法币将逐渐退出历史舞台，未来就是数字货币
+fiat currency will gradually exit the stage of history, and the future is crypto currency era
 
-Gettr 账号
+**原视频链接:**[https://gettr.com/post/phiqrf6537](https://gettr.com/post/phiqrf6537)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+Date:11/23/2021
+原视频标题: 超发货币 将使数字货币代替法币
+Over printed currency will enable cryptocurrency to replace fiat currency
+原视频日期：2021/11/19
+原视频链接https://gettr.com/post/phiqrf6537
+任务编号：KC284（2972）
+视频时间段 : 0:00-2:10
+
+中听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike LI
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
