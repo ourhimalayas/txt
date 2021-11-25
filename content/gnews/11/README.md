@@ -2,44 +2,27 @@
 ---
 
 
-## 维多利亚州零售业员工被袭击后呼吁取消疫苗接种检查
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1694529/)
+## 世卫组织总干事谭德塞难圆其说
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1694546/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-25.png)
+（图片源自本文链接）
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/5472-4.jpg)
+11月25日，日本雅虎网站发表法新社报道的消息：世界卫生组织（WHO）24日，针对中共病毒delta株的疫苗在预防感染方面只有大约40%的效果，警告人们不要对疫苗过于自信。
 
+世卫组织总干事谭德塞说：许多接种过疫苗的人认为不再需要采取其它感染预防措施。 然而，高度传染性的德尔塔菌株的扩散使疫苗的有效性从约60%降至约40%，即使那些已经接种过疫苗的人也必须继续采取预防措施。虽然疫苗是用于挽救生命的，但它并不能完全防止感染。接种疫苗后，严重疾病或死亡的风险要低得多，但仍然存在感染疾病或传染给他人的风险。大家要戴上口罩，与其他人保持距离，避免拥挤，与人见面时,要选择在户外或通风良好的房间。
 
+疫苗，是世卫组织推广、并批准使用的。推广时抬高疫苗的效果，现在又说即使接种了疫苗也还是需要采取防护措施。动那么大的干戈，全球动员、甚至多国强迫国民接种疫苗，难道就是为了这样的结果吗？很想知道，接下来谭德塞将如何自圆其说？
 
-图片来源：www.theguardian.com
+信息来源：
 
+[コロナワクチン、感染予防効果は40％ WHOが警告（ＡＦＰ＝時事） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/c6656bce4dfc3c957809b35c418656878fc214af)
 
-#### 编译：小红帽
+校对：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
 
-自澳大利亚维多利亚州的新冠疫苗强制令对非必需品商店生效以来，该零售业的工作人员遭到了顾客的严重袭击。
-
-澳大利亚零售商协会首席执行官保罗·扎赫拉（Paul Zahra）在给总理丹尼尔·安德鲁斯（Daniel Andrews）的公开信中谈到了暴力事件，他透露有数千名员工因遵守新冠（COVID-19）协议（疫苗接种检查）而被愤怒的顾客袭击。
-
-扎赫拉先生说，由于受到袭击，一些员工仍然害怕来上班。
-
-关于顾客袭击行为的报告来自广泛的零售商，包括百货公司和五金商店，以及小企业甚至慈善商店。
-
-袭击行为已经升级到极端的地步，以至于一些商店被迫雇佣保安。由于缺少工作人员，一些零售商和酒店被迫关闭。
-
-扎赫拉先生呼吁维州与新南威尔士州的零售限制保持一致，该限制将于12月15日取消，并取消疫苗接种检查。
-
-当被问及零售业因疫苗强制令而发生的暴力事件时，安德鲁斯先生谴责了这种行为。但是并没有计划像新南威尔士州那样取消疫苗接种检查。
-
-**参考新闻：**[Calls for vaccine rule change after Victorian retail staff abused (msn.com)](https://www.msn.com/en-au/news/australia/calls-for-vaccine-rule-change-after-victorian-retail-staff-abused/ar-AAR6ORy?ocid=msedgntp)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,34 +2,43 @@
 ---
 
 
-## 立陶宛外长向世界展示如何抵抗中共
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1694527/)
+## 台湾受邀参与美民主峰会，中共未入受邀名单
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694530/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+撰稿：纽约香草山 医疗部 云豹
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7E1C4AC3-A68F-4A24-B43B-ADAD930158F3.jpeg)立陶宛外交部长蓝斯柏吉斯（Gabrielius Landsbergis）（图片来自自由时报）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
 
-据《自由时报》11月25日报道，立陶宛外交部长蓝斯柏吉斯（Gabrielius Landsbergis）在24日访问华府时表示，立陶宛正在透过分散供应链并与其他民主国家联合，向世界展示如何抵抗中共国日益强硬的施压。
 
-《自由时报》援引《法新社》的报道称，蓝斯柏吉斯在访问华盛顿时表示，针对立陶宛努力减少对中（共）国供应链依赖的问题，他与资深美国官员进行了交谈。他呼吁采取更长期的措施，帮助其他面临中共施压的国家。
 
-蓝斯柏吉斯表示，立陶宛对抗中共的经验是，受到经济胁迫并非绝对意味着国家需要放弃外交政策上的独立决定。在中（共）国媒体的头条新闻上可能会受到威胁，可能会受到咆哮，但无论如何都可以承受得住。
 
-蓝斯柏吉斯指出，中共的报复行为显示出，它并非透过外交渠道去解决事情，而是以“强国”形象施压他国。蓝斯柏吉斯说，民主国家的唯一弱点是缺少互相帮助。如果让中共不高兴，各国会感觉头上悬着一把无形的“达摩克里斯之剑”。
 
-蓝斯柏吉斯称，其他国家正在与立陶宛联系，汲取对抗中共的经验。这些国家都希望有百分百的空间，在自身外交政策上做出独立决定。
+11月23日，美国国务院公布了12月白宫虚拟民主峰会受邀名单，台湾已受邀参加该峰会。 中共及俄罗斯则未在受邀名单中。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11259-1.png)
+刚公布的受邀名单中有110个国家，立陶宛、日本、英国、德国等国家都在受邀之列。
 
-在此之前，“驻立陶宛台湾代表处”11月18日正式挂牌运作。中共为了报复，将与立陶宛的外交关系降级为“代办级”，并且对其进行经济施压。
+美国总统拜登将在12月9日至10日召开此次虚拟领袖民主峰会，邀集国家元首、公民社会、慈善事业与私人部门成员，谈论当前民主制度遭遇到的挑战。 此次峰会聚焦3大主题，包括对抗威权、打击贪腐及促进对人权的尊重等。
 
-*参考链接：[https://news.ltn.com.tw/news/world/breakingnews/3747616](https://news.ltn.com.tw/news/world/breakingnews/3747616)*
 
-* * *
 
-*素材采编：幽蘭自得*
+新闻连接：[白宮民主峰會邀台灣立陶宛等110國 中俄未入名單](https://www.cna.com.tw/news/firstnews/202111245002.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-*编辑：青衣青青*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3-6.png)
 
-*发布：miumiu*
+总编：飞虹
+
+编辑：木白
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
 
  
 

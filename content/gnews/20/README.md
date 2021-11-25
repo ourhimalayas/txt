@@ -2,49 +2,38 @@
 ---
 
 
-## 墙内民生：女主播抑郁自杀，骨灰被调包配阴婚
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694482/)
+## 美国贸易黑名单再添十几家与中共军方有关的中共国公司
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1694495/)
 
-撰稿：纽约香草山教育部-Noemi
+#### 作者：日本东京方舟农场 子辰
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/911A78EF-1315-4E27-A0F1-C368F508C271.jpeg)（图片来自路透社）
 
+据CNA11月24日报道，美国政府再将十几家中共国公司列入贸易黑名单，理由是出于国家安全和外交政策的考虑。
 
+据悉，此次共有来自中共国、日本、巴基斯坦和新加坡的 27 个新实体被添加到黑名单中。
 
+美国商务部长吉娜·雷蒙多在一份声明中表示，这份新的黑名单将有助于防止美国技术支持中（共）国和俄罗斯的军事进步，以及诸如巴基斯坦不受保障的核活动或弹道导弹计划等不扩散问题的活动。
 
+美国商务部表示，杭州中科微电子、湖南国科微电子、新华三半导体、西安航天华讯科技和云芯微电子等企业是因“支持解放军军事现代化”而被列入实体黑名单。
 
-当地时间11月23日，墙内媒体报道，中共国内一位女主播在自杀身亡后，其骨灰被火化工偷偷调包去配阴婚。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11258-1.png)
-据了解，这位女主播是一名抑郁症患者，在直播期间因不堪直播间内观众的网暴和怂恿愤而喝药自杀。悲剧发生后，此事件曾在网络上一度发酵。
+此外，合肥微尺度物理科学国家实验室、国盾量子以及上海国盾量子信息技术有限公司此次也被美国商务部列入了黑名单，理由是它们“获取并企图获取美国产品用于支持军事用途”。
 
-舆论还未平息，近日又有人爆料称，该女主播遗体被火化后，火化工并未将骨灰移交给家属，而是借机调包，卖给了需要配阴婚的人，以此牟利。而据知情人透漏，这一现象在墙内的殡仪行业中并不稀奇，这次事件被曝光是由于同行竞争，有人眼红。
+美国商务部表示，将上述八家中共国实体加入黑名单，是为了防止美国技术被用来帮助中共军方开发量子计算应用程序。
 
-目前，女主播的骨灰已被接回。
+除此之外，新的贸易黑名单还为了阻止中共国的这些公司帮助中共军方开发其反隐形技术，包括先进雷达等设备，以及海底传感器等反潜应用；同时阻止美国材料被用于帮助中共破解加密或开发不可破解的加密。
 
-新闻链接:
+据了解，被列入实体黑名单的供应商需要在被出售产品之前申请许可证，且申请很可能会被拒绝。
 
-[女主播自杀后骨灰被火化工调包“配阴婚”，3人被刑拘](https://m.thepaper.cn/newsDetail_forward_15514493)
+*新闻链接： [https://www.channelnewsasia.com/business/us-china-military-firms-trade-blacklist-2336341](https://www.channelnewsasia.com/business/us-china-military-firms-trade-blacklist-2336341)*
 
-[三观震碎！女主播喝农药自杀后骨灰被调包“配阴婚”！](https://www.163.com/dy/article/GPJ2PKHH0525WL9Q.html)
+* * *
 
+*素材采编：子辰*
 
+*编辑：青衣青青*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3-6.png)
-
-总编: 飞虹
-
-编辑: 飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
+*发布：miumiu*
 
  
 

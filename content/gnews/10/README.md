@@ -2,43 +2,32 @@
 ---
 
 
-## 台湾受邀参与美民主峰会，中共未入受邀名单
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1694530/)
+## 摩根大通CEO调侃中共后又屈于在华利益被迫道歉
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1694550/)
 
-撰稿：纽约香草山 医疗部 云豹
+#### 撰稿：日本东京方舟农场 北极
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4E027806-10CF-4495-B6B7-2C84A6BB9E1D.jpeg)（图片来自VOA中文网）
 
+据《美国之音》中文网11月25日报道，摩根大通CEO杰米·戴蒙(Jamie Dimon)本周三（11月24日）发表一份声明，对此前调侃中共的言论表示道歉。他同时还表示，不希望此事对其公司在华业务产生不良影响。
 
+事件起源于本周二，戴蒙在波士顿学院举办的CEO（首席执行官）访谈系列活动中透露，他曾在中共庆祝百年生日那天，调侃中共寿命不敌摩根大通银行。
 
+戴蒙随后在摩根大通发布的一份声明中称：“我感到遗憾，而且不应发表那番评论。”他还补充说：“如果我在中（共）国，绝对不会说这种话。”
 
+摩根大通今年终于通过中共监管部门的批准，成为了进入中共国的第一家外商独资券商。
 
-11月23日，美国国务院公布了12月白宫虚拟民主峰会受邀名单，台湾已受邀参加该峰会。 中共及俄罗斯则未在受邀名单中。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11259-1.png)
-刚公布的受邀名单中有110个国家，立陶宛、日本、英国、德国等国家都在受邀之列。
+康奈尔大学教授埃斯瓦尔·普拉萨德（Eswar Prasad）针对此事做出评论称，戴蒙的被迫道歉显示了中共的傲慢。外国公司想要获得中共的市场准入，不得不对中共政府表达谦卑的态度，以维护中共政府的颜面。
 
-美国总统拜登将在12月9日至10日召开此次虚拟领袖民主峰会，邀集国家元首、公民社会、慈善事业与私人部门成员，谈论当前民主制度遭遇到的挑战。 此次峰会聚焦3大主题，包括对抗威权、打击贪腐及促进对人权的尊重等。
+*参考链接：[https://www.voachinese.com/a/jpmorgan-dimon-says-he-regrets-ccp-comments-20211124/6326636.html](https://www.voachinese.com/a/jpmorgan-dimon-says-he-regrets-ccp-comments-20211124/6326636.html)*
 
+* * *
 
+*素材采编：北极*
 
-新闻连接：[白宮民主峰會邀台灣立陶宛等110國 中俄未入名單](https://www.cna.com.tw/news/firstnews/202111245002.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+*编辑：青衣青青*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3-6.png)
-
-总编：飞虹
-
-编辑：木白
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
+*发布：miumiu*
 
  
 

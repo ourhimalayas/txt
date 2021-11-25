@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/25/2021 3:03 PM (UTC)`
+
+11月25日:尊敬的战友们好，你们健身了吗？这是我昨天健身的视频忘了发了!
+![img](https://media.gettr.com/group20/getter/2021/11/25/15/03/fbf283a9-baef-df6b-b9be-efc26c8454ee/out.jpg)
+
+---
+
 `@miles 11/25/2021 4:53 AM (UTC)`
 
 11/24/2021 Miles Guo: It is a tragedy for the Chinese that Hu Shuli, a criminal, is considered as an intellectualist; Fang Zhouzi, Sima Nan, and Hu Xijin are the scum of the Chinese people, causing the Chinese to be excluded and hated, and they are attacking Liu Chuanzhi; the New Federal State of China will let the people try these scumbags<br/><br/>11/24/2021 文贵直播：犯罪分子胡舒立却被成为”公知”是中国人的悲哀；方舟子、司马南、胡锡进是民族的败类，他们导致了中国人被排华和仇视，并攻击柳传志；新中国联邦未来将让人民对这些败类进行公审
@@ -289,13 +296,6 @@ Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Touch
 
 11/20/2021 [3rd Anniversary of 1120] Steve Bannon: It is the Chinese people’s grit, determination, and belief in family values and tradition that support me to fight for democracy and freedom on behalf of them; the Chinese Lao Baixing and the American Lao Baixing share the same qualities, which will eventually take down the CCP<br/><br/>11/20/2021【1120三周年纪念】班农先生：支持着我为中国人争取民主和自由而战的是中国人的意志力、决心、对家庭与传统价值的敬奉和传承；中国老百姓和美国老百姓有着同样的品质，而正是这些品质将最终灭掉中共<br/>
 ![img](https://media.gettr.com/group1/getter/2021/11/21/03/18/74fea1b1-7bb9-698c-db23-5e991a47be20/out.jpg)
-
----
-
-`@miles 11/21/2021 3:06 AM (UTC)`
-
-11/20/2021 [3rd Anniversary of 1120] Steve Bannon: By working closely with the Whistleblowers’ Movement, the most importantly work of the Rule of Law Foundation (ROLF) is to help get more people out of Communist China to help the West understand the evilness of the CCP and show the world why the Chinese need rule of law<br/><br/>11/20/2021【1120三周年纪念】班农先生：法治基金最重要的工作是通过爆料革命紧密合作，从中共国解救更多的人出来，从而让西方认清中共的邪恶并告诉世界中国人为什么需要法治<br/>
-![img](https://media.gettr.com/group41/getter/2021/11/21/03/4923a262-19eb-48cc-6415-76e34c619a9f/out.jpg)
 
 ---
 
