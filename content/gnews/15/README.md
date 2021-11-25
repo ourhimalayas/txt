@@ -2,69 +2,98 @@
 ---
 
 
-## 拜登政府取消了对极左叛乱组织 FARC 的恐怖分子称号
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1692478/)
+## 超发货币将使数字货币代替法币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1692532/)
 
-作者：Ian Miles Cheong
-翻译：Himasally
+![](https://assets.gnews.org/wp-content/uploads/2021/11/hh-a3a4l-koqqt.jpg)
+[https://gtv.org/video/id=619e3cbfabc44c39e083f4d6](https://gtv.org/video/id=619e3cbfabc44c39e083f4d6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-198.png)
+**郭文贵**
+**Miles Guo**
 
-拜登政府正在终止将哥伦比亚极左叛乱组织 FARC 指定为恐怖组织的做法。
+现在由于超发货币，给世界带来了什么样的结果呢
+What kind of results have been brought to the world due to over printed cur-rency?
 
-据一位首次与美联社交谈的国会助手称，国务院打算从美国联邦政府的恐怖实体名单中删除哥伦比亚革命武装力量。该名称包含一系列制裁措施，以阻碍恐怖组织的活动。
+一定会世界经济大崩溃，但是它触发了两种事件的发生
+It must be a major collapse of the world economy, but it triggered two events
 
-哥伦比亚革命武装力量的资金主要来自非法毒品和人口贩运、绑架勒索以及勒索农民、当地企业和跨国公司。根据洞察犯罪的数据，在该组织的鼎盛时期，他们的活动平均每年为该组织带来约 3 亿美元的收入。
+第一，2020年到现在，让世界上有了数字货币，
+First, from 2020 to now, the world have crypto currency
 
-据美联社报道，国务院发言人内德·普赖斯证实，美国政府已将其打算对毒品恐怖组织采取的行动通知国会，但没有具体说明是什么。
+就像二战，搞出了灭掉英镑和美元的布雷顿森林体系
+Just like World War II, it occurred the Bretton Woods system in American dol-lars that wiped out the British pound
 
-半个世纪以来，哥伦比亚革命武装力量进行了大量的哥伦比亚政治动机的攻击，发动声称涉及超过22万人的生命，2016年在华盛顿波什一个长达数十年的游击战。
+一战当时搞出了欧洲的大英帝国，几大家族，罗斯柴尔德，
+World War I created the British Empire in Europe, there are several big fami-lies, like Rothschild
 
-死亡和流离失所：根据政府统计，过去 50 年哥伦比亚的战斗已造成 220,000 多人死亡。近 700 万哥伦比亚人被赶出家园。这是联合国认为的世界上“国内流离失所者”（IDP）人数最多的国家。在战争结束后很长一段时间内，哥伦比亚人仍将继续被地雷致残 ，自 1990 年以来，地雷已造成 11,000 多人死亡或受伤。这是仅次于阿富汗的世界第二大地雷数量 。
+罗斯柴尔德就是借给战争黄金， 就是金币的，
+Rothschild lent gold to the war which is gold coins
 
-武装叛军：随着可卡因利润的涌现，到 1990 年代后期，哥伦比亚革命武装力量达到了顶峰，拥有近 20,000 名战士。它通过绑架、爆炸和无耻袭击来恐吓哥伦比亚人，这些袭击对政府构成了重大威胁，控制了多达四分之一的哥伦比亚领土。但哥伦比亚革命武装力量的策略及其犯罪名声在普通哥伦比亚人中几乎没有得到支持，据他们认为它代表哥伦比亚人进行战斗。随着国家的反击和哥伦比亚革命武装力量士兵对越来越有效的军事空袭感到害怕，叛军队伍变少了，许多人叛逃或逃跑。据哥伦比亚军事情报部门称，如今哥伦比亚革命武装力量的士兵不到 7,000 人。
+给人家一个王国agent的，就是今天说Hpay代表啊
+Rothschild was the agent for a kingdom, that is like Hpay today
 
-武装分子于 2016 年与哥伦比亚政府签署了和平协议，并承诺到 2018 年解除武装。该组织的一个派别，称为 33 阵线，恢复了在哥伦比亚和委内瑞拉卡塔通博地区的武装活动。冲突影响了该地区约 300,000 人。
+就出了罗斯柴尔德呀，一战后，然后美国催生出来的
+It just come out Rothschild after World War I, then the United States spawned
 
-该AP报告：
+就是当时的洛克菲勒，是不是，就这几大家族啊
+It was Rockefeller at the time, right? It was just these big families
 
-普莱斯称和平协议是“哥伦比亚长期冲突在某些方面是开创性转折点”。
+然后就是摩根斯坦利就出来了，就是因为二战以后的布雷顿森林体系废掉了英镑
+Then Morgan Stanley came out because the Bretton Woods system after World War II abolished the British pound
 
-该团体今天被指定为一个政党，在哥伦比亚立法机构中拥有保证的席位。
+都是战争和经济灾难，1913年到1919年的一战、西班牙大流行病和经济灾难，大萧条
+because wars and economic disasters, the World War I from 1913 to 1919, the Spanish flu pandemic and economic disaster, the Great Depression
 
-普莱斯指出，政府官员几周前在波哥大，在那里他们与哥伦比亚总统、外交部长和其他人就实施和维护与哥伦比亚革命武装力量的和平协议进行了交谈。
+到了胡佛总统时期，吧唧上来了，美国诞生了
+Then to the period of President Hoover and the United States was born
 
-为回应解除恐怖指控，参议员特德克鲁兹（R-TX）发表声明谴责拜登政府的举动。
+二战过去了，是吧，英国完蛋了，英镑结束了，美元起来了搞了美联储，
+World War II is over, right? Britain is over, the pound is over, the dollar is stable and set up the Federal Reserve
 
-克鲁兹说：“拜登总统的外交政策很久以前就变得前后不一，但他在解除对威胁我们和我们盟友国家安全的暴力团体的恐怖主义制裁方面表现出了非凡的承诺和目的。”
+美联储上千个个人股东，到现在控制了美国印发美元
+Thousands of individual shareholders of the Federal Reserve now control the U.S. printing and distribution of U.S. dollars
 
-克鲁兹说：“拜登、哈里斯官员将伊朗控制的胡塞武装从恐怖主义名单中删除作为第一周的优先事项，胡塞武装的回应是升级侵略并进一步阻碍人道主义援助。” “现在政府正在采取措施为哥伦比亚革命武装力量（FARC）做同样的事情。这种鲁莽的、意识形态驱动的决定的结果也将是一样的。”
+本来美元要和黄金挂钩的，最后不挂钩了，变成了信用美元，变成了法币
+The U.S. dollar was originally pegged to gold, but in the end it was not pegged, it became the credit U.S. dollar and became fiat currency
 
-“哥伦比亚革命武装力量是一个由马克思列宁主义毒品恐怖分子组成的组织，”克鲁兹说。“几十年来，他们杀害、绑架和勒索哥伦比亚人，他们谋杀并逮捕美国公民。它们继续对哥伦比亚的安全和美国在该地区的利益构成严重威胁。”
+这次就是彻底地把过去的金本位和所有的最后的和金本位挂钩的唯一全球货币，美元
+This time it’s the complete removal of the old gold standard and all the last and only global currency tied to the gold standard, the US dollar
 
-“在我们的哥伦比亚盟友与哥伦比亚革命武装力量作战并试图将哥伦比亚革命武装力量成员绳之以法时，他们没有支持我们，而是再次准备放弃我们并安抚恐怖分子。将哥伦比亚革命武装力量从恐怖主义组织名单中删除，将使他们更有胆量扩大暴力并干涉平民活动，”他补充说。
+从过去的中心化币，变成了完全虚假的中心化币
+From the past centralized currency to a completely fake centralized currency
 
-“国会早就应该采取行动并恢复对本届政府外交政策的监督，并向我们的盟友发出信号，如果他们和恐怖组织站在一起，他们将被追究责任。”
+完全变成了废币，纸币，这就是到了什么时代催生了数字货币
+It has completely become waste money, paper money, this is what spawned to the arrival of the crypto currency era
 
-来源：https://www.rebelnews.com/biden\_admin\_removes\_terrorist\_designation\_for\_far\_left\_insurgent\_group\_farc
+数字货币的目的达到什么，结束了真正的人类历史上法币
+What is the purpose of crypto currency? it’s ending the fiat currency in human history
 
-（文章仅代表作者个人观点）
+法币的整个虚假时代，包括金本位都是假的
+The entire fake era of fiat currency, including the gold standard is fake
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+法币将逐渐退出历史舞台，未来就是数字货币
+fiat currency will gradually exit the stage of history, and the future is crypto currency era
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+**原视频链接:**[https://gettr.com/post/phiqrf6537](https://gettr.com/post/phiqrf6537)
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+Date:11/23/2021
+原视频标题: 超发货币 将使数字货币代替法币
+Over printed currency will enable cryptocurrency to replace fiat currency
+原视频日期：2021/11/19
+原视频链接https://gettr.com/post/phiqrf6537
+任务编号：KC284（2972）
+视频时间段 : 0:00-2:10
 
-**关注我们**
+中听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike LI
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

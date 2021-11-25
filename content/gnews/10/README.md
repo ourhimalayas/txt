@@ -2,37 +2,46 @@
 ---
 
 
-## 2021/11/23 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1692611/)
+## 华为-中共的特洛伊木马
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1692744/)
 
-1. 11月22日，内蒙古呼和浩特发生燃爆。中共官方称已致1死14伤，事故因管道燃气泄漏所致。
-2. 11月22日，江西南昌一宿舍居民楼坍塌，官方称事故造成3个家庭共4人遇难。
-3. 11月22日，由于官方通报新增新冠确诊病例，辽宁大连甘井子区居民半夜被贴封条。
-4. 市民拍下中共医院夜晚人们席地而睡的一幕，感叹世间的艰难。
-5. 湖北武汉，一女子因与不拴绳遛狗主人冲突后愤恨跳楼。上百邻居19日在事发地悼念。
-6. 11月22日，浙江温州一民房因家中办丧事失火，2人遇难。
-7. 河南乡村灾后3个月现状，政府难言保障，村民自主生死。
-8. 11月19日，广东广州。市民民房被强拆，住户欲相继跳楼抗议。
-9. 11月21日，广东茂名信宜市。疑因情感纠纷，一男子当街杀害二人后原地等待警察抓捕，凶手伤害手段极其残忍。
-10. 11月20日，辽宁大连。被欺骗的爱心，居民捐给贫困山区的衣服，被装进运输垃圾的垃圾车。
-11. 11月20日，河南周口。儿子推着瘫痪6年的爸爸，给邻居家摘辣椒打零工来补贴家用。
-12. 11月21日，广西南宁。一白色小车在大桥上失控撞倒多辆电动车，现场多人受伤。
+作者：香草山翻译部 – Eleutheria
 
 
-封面图片来源于网络
 
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-1.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+据BeepingComputer报道，华为的应用商店发现空前规模的含木马程序应用。并已有超过900万安卓设备遭到感染。
+
+该木马程序“Android.Cynos.7.origin”由Dr.Web发现，是Cynos木马的一个变种。主要目标是收集用户的敏感个人信息。目前已发展华为应用商店中有超过190个应用携带此木马。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-34.jpg)
+据Dr.Web测试，此木马普遍存在于游戏类应用，并指向俄语、中文及英文用户。更有甚者包含监听、拦截及发送短信，加载附加程序或下载其他应用等功能。如果用户授予权限，该木马可以将以下数据泄露到远程服务器：
+
+- 用户手机号
+- 基于 GPS 坐标或移动网络和 Wi-Fi 接入点数据的设备位置
+- 各种移动网络参数，如网络代码和移动国家代码；此外，GSM 小区 ID 和国际 GSM 位置区号
+- 设备的各种技术规格
+- 来自木马应用程序元数据的各种参数
 
 
+众所周知，华为是中共国解放军的下属企业。而华为手机监控窃取用户信息的丑闻已屡见不鲜，这次仅在华为应用商店出现如此规模的大量木马程序极大可能为中共幕后操纵的结果。但全球仍未引起重视继续允许华为设备的海外销售无疑将成为现代版的特洛伊木马。
+
+参考来源：[华为-中共的特洛伊木马](https://www.bleepingcomputer.com/news/security/over-nine-million-android-devices-infected-by-info-stealing-trojan/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

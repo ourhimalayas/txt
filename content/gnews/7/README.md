@@ -2,46 +2,48 @@
 ---
 
 
-## 华为-中共的特洛伊木马
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1692744/)
+## 美国将数十家中共国科技公司列入黑名单
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1692857/)
 
-作者：香草山翻译部 – Eleutheria
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/W-2.jpg)article.wn.com
+继美国邀请台湾出席民主峰会后【1】，拜登政府又有反共举动，还是来自MSN11月24日转发的报道称，“以国家安全为由，美国将数十家中共国科技公司列入黑名单”。【2】
 
+文章开头摘要：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-1.jpg)
+周三（11月24日），拜登政府将十几家中共国公司列入其贸易黑名单。
 
+在这些被列入黑名单的公司中，有八家中共国技术实体因涉嫌协助中共军方的量子计算工作而被列入黑名单。
 
+美国官员长期以来一直抱怨，中共国公司受国家支配，代表中共军方收集敏感信息。
 
-据BeepingComputer报道，华为的应用商店发现空前规模的含木马程序应用。并已有超过900万安卓设备遭到感染。
+全文如下：
 
-该木马程序“Android.Cynos.7.origin”由Dr.Web发现，是Cynos木马的一个变种。主要目标是收集用户的敏感个人信息。目前已发展华为应用商店中有超过190个应用携带此木马。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-34.jpg)
-据Dr.Web测试，此木马普遍存在于游戏类应用，并指向俄语、中文及英文用户。更有甚者包含监听、拦截及发送短信，加载附加程序或下载其他应用等功能。如果用户授予权限，该木马可以将以下数据泄露到远程服务器：
+拜登政府周三（11月24日）以国家安全和外交政策为理由，将十几家中共国公司列入贸易黑名单。
 
-- 用户手机号
-- 基于 GPS 坐标或移动网络和 Wi-Fi 接入点数据的设备位置
-- 各种移动网络参数，如网络代码和移动国家代码；此外，GSM 小区 ID 和国际 GSM 位置区号
-- 设备的各种技术规格
-- 来自木马应用程序元数据的各种参数
+八家总部位于中共国的科技实体，因涉嫌协助中共军方的量子计算工作，以及获取或试图“获取原产于美国的、支持军事应用的产品”而被列入名单。
 
+美国官员长期以来一直抱怨，中共国公司受国家支配，代表中共军方收集敏感信息。中国共产党此前曾表示，它不从事工业间谍活动。
 
-众所周知，华为是中共国解放军的下属企业。而华为手机监控窃取用户信息的丑闻已屡见不鲜，这次仅在华为应用商店出现如此规模的大量木马程序极大可能为中共幕后操纵的结果。但全球仍未引起重视继续允许华为设备的海外销售无疑将成为现代版的特洛伊木马。
+美商务部还列出了16家在中共国与巴基斯坦从事伊斯兰堡核项目，以及弹道导弹项目工作的实体和个人。拜登政府总共增加了包括中共国、巴基斯坦、俄罗斯、日本和新加坡在内的27个实体和个人。
 
-参考来源：[华为-中共的特洛伊木马](https://www.bleepingcomputer.com/news/security/over-nine-million-android-devices-infected-by-info-stealing-trojan/)
+美国商务部长吉娜·雷蒙多（Gina Raimondo）在一份声明中写道：“全球贸易和商业应该支持和平、繁荣和优禄的工作，而不是带给国家安全风险，商务部致力于通过有效的出口管制来保护我们的国家安全。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+中共驻华盛顿大使馆没有立即回应有关置评请求。
 
-编辑/校对/发稿：Hetangyuese
+商务部的实体清单对被认为从事不良或不道德活动的个人和实体规定了贸易限制。
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+（全文完）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
+防火、防盗、防中共应该成为西方乃至整个世界民众的普遍意识，中共恶制下的企业行为与文明世界信奉的正道主义越来越格格不入，只有将中共消灭，才能还世界以安宁。
+
+有关链接：
+
+【1】[https://gnews.org/zh-hans/1692470/](https://gnews.org/zh-hans/1692470/)
+
+【2】[https://www.msn.com/en-ca/money/markets/u-s-blacklists-dozens-of-chinese-tech-firms-citing-national-security-concerns/ar-AAR5Uio?ocid=msedgntp&pfr=1](https://www.msn.com/en-ca/money/markets/u-s-blacklists-dozens-of-chinese-tech-firms-citing-national-security-concerns/ar-AAR5Uio?ocid=msedgntp&amp;pfr=1)
 
  
 

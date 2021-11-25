@@ -2,92 +2,155 @@
 ---
 
 
-## 超发货币将使数字货币代替法币
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1692532/)
+## 中共在中东要建多个军事基地这都是中共解放军自己出卖自己
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1692636/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/hh-a3a4l-koqqt.jpg)
-[https://gtv.org/video/id=619e3cbfabc44c39e083f4d6](https://gtv.org/video/id=619e3cbfabc44c39e083f4d6)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/a3a4l-koqqt-2.jpg)
+[https://gtv.org/video/id=619e3d57abc44c39e083f4e8](https://gtv.org/video/id=619e3d57abc44c39e083f4e8)
 
 **郭文贵**
 **Miles Guo**
 
-现在由于超发货币，给世界带来了什么样的结果呢
-What kind of results have been brought to the world due to over printed cur-rency?
+当时是CIA问我
+At that time, it was the CIA asking me
 
-一定会世界经济大崩溃，但是它触发了两种事件的发生
-It must be a major collapse of the world economy, but it triggered two events
+还有情报部门问我
+and also the intelligence department
 
-第一，2020年到现在，让世界上有了数字货币，
-First, from 2020 to now, the world have crypto currency
+问我一天问我这个东西
+They asked me about this (the CCP builds military bases in the Middle East) for the whole day
 
-就像二战，搞出了灭掉英镑和美元的布雷顿森林体系
-Just like World War II, it occurred the Bretton Woods system in American dol-lars that wiped out the British pound
+我说我不知道
+I said I don’t know
 
-一战当时搞出了欧洲的大英帝国，几大家族，罗斯柴尔德，
-World War I created the British Empire in Europe, there are several big fami-lies, like Rothschild
+但是你知道他们讲了个很关键的话
+But you need to know that they (the intel agents) said something very pivotal
 
-罗斯柴尔德就是借给战争黄金， 就是金币的，
-Rothschild lent gold to the war which is gold coins
+我们从中共方得到消息
+They said they got the information from the Chinese Communist Party
 
-给人家一个王国agent的，就是今天说Hpay代表啊
-Rothschild was the agent for a kingdom, that is like Hpay today
+（中共）在那建那个基地
+that the CCP is building military bases there
 
-就出了罗斯柴尔德呀，一战后，然后美国催生出来的
-It just come out Rothschild after World War I, then the United States spawned
+我说那你们自己可以去核实去呀
+I said you can verify it yourself
 
-就是当时的洛克菲勒，是不是，就这几大家族啊
-It was Rockefeller at the time, right? It was just these big families
+他们问我的时候，我说我不知道
+When they asked me, I said I didn’t know
 
-然后就是摩根斯坦利就出来了，就是因为二战以后的布雷顿森林体系废掉了英镑
-Then Morgan Stanley came out because the Bretton Woods system after World War II abolished the British pound
+但是他们，你看第一次今天班农把我给爆料了
+But you see, for the first time, Bannon has broken the news on me today
 
-都是战争和经济灾难，1913年到1919年的一战、西班牙大流行病和经济灾难，大萧条
-because wars and economic disasters, the World War I from 1913 to 1919, the Spanish flu pandemic and economic disaster, the Great Depression
+这是个很大的误会
+This is a big misunderstanding
 
-到了胡佛总统时期，吧唧上来了，美国诞生了
-Then to the period of President Hoover and the United States was born
+当时是所有的CIA问的问题是来自中共内部的
+At that time, all the questions asked by the CIA came from internal of the CCP
 
-二战过去了，是吧，英国完蛋了，英镑结束了，美元起来了搞了美联储，
-World War II is over, right? Britain is over, the pound is over, the dollar is stable and set up the Federal Reserve
+我跟班农先生第一次见面
+I met Mr. Bannon for the first time
 
-美联储上千个个人股东，到现在控制了美国印发美元
-Thousands of individual shareholders of the Federal Reserve now control the U.S. printing and distribution of U.S. dollars
+我就说班农先生
+I already told Mr. Bannon
 
-本来美元要和黄金挂钩的，最后不挂钩了，变成了信用美元，变成了法币
-The U.S. dollar was originally pegged to gold, but in the end it was not pegged, it became the credit U.S. dollar and became fiat currency
+我跟CIA见面
+I had met the CIA
 
-这次就是彻底地把过去的金本位和所有的最后的和金本位挂钩的唯一全球货币，美元
-This time it’s the complete removal of the old gold standard and all the last and only global currency tied to the gold standard, the US dollar
+我说还有跟FBI见面
+and also the FBI
 
-从过去的中心化币，变成了完全虚假的中心化币
-From the past centralized currency to a completely fake centralized currency
+我说你们要想办法把房峰辉给搞定
+I said you need to find a way to unite Fang Fenghui (a former top general in the PLA)
 
-完全变成了废币，纸币，这就是到了什么时代催生了数字货币
-It has completely become waste money, paper money, this is what spawned to the arrival of the crypto currency era
+他说怎么可能房峰辉会跟我们合作呢
+Mr. Bannon said how could it possible that Fang Fenghui cooperating with them,
 
-数字货币的目的达到什么，结束了真正的人类历史上法币
-What is the purpose of crypto currency? it’s ending the fiat currency in human history
+不可能, 最后房峰辉被抓了
+it’s impossible, but Fang Fenghui was arrested in the end
 
-法币的整个虚假时代，包括金本位都是假的
-The entire fake era of fiat currency, including the gold standard is fake
+房峰辉被抓之前一直跟我有联系
+Before being arrested, Fang Fenghui had been in contact with me,
 
-法币将逐渐退出历史舞台，未来就是数字货币
-fiat currency will gradually exit the stage of history, and the future is crypto currency era
+说只要美国人只要能保我家人性命
+saying that as long as the Americans can save his family’s life
 
-**原视频链接:**[https://gettr.com/post/phiqrf6537](https://gettr.com/post/phiqrf6537)
+我把所有的这些东西都给出去（美国）
+he would provide all information (the CCP builds military bases in the Middle East) to the US
 
-Date:11/23/2021
-原视频标题: 超发货币 将使数字货币代替法币
-Over printed currency will enable cryptocurrency to replace fiat currency
-原视频日期：2021/11/19
-原视频链接https://gettr.com/post/phiqrf6537
-任务编号：KC284（2972）
-视频时间段 : 0:00-2:10
+记住啊，当时他就说
+Keep that in mind, at that time he said
 
-中听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校：洛杉矶盘古农场 – Mike LI
-字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+美国要小心的是Chemical Weapon、Biology Weapon, Do you remember？
+the United States needed to pay close attention to chemical weapons and biological weapons
+
+当时就说这话
+He said those at that time
+
+而且房峰辉当时就跟美国说
+And Fang Fenghui said to the U.S. during that time
+
+中共的计划要在中东建多个军事基地
+the CCP’s plan was to build multiple military bases in the Middle East
+
+这都是2017年发生的事情
+These are all that happened in 2017
+
+今天班农先生把我的料给爆了
+Today, Mr. Bannon has broken my information
+
+他说我跟CIA
+He has said that the CIA and I…
+
+今天我可以对着镜头前这么说
+But, I can say this in front of the camera today
+
+这都是当时房峰辉还有军队的人告诉我的
+All these are what Fang Fenghui and people in the military told me
+
+今天看直播 很多中共高官（看）
+Many senior CCP officials are watching the live broadcast today
+
+你们都别搞错了
+Please don’t get that mixed
+
+是你们的人卖掉了你们
+It’s your people who betrayed you all
+
+不是UAE（阿联酋）也不是郭文贵
+instead of UAE, nor Miles Guo
+
+木兰你们要抓紧把这段翻译字幕加出来了
+Mulan, you need to hurry up and translate this video clip, push it out with subtitles
+
+要不然要搞老大的误会
+Otherwise, it would be a huge misunderstand
+
+人家UAE（阿联酋）以为我把UAE（阿联酋）给爆了
+UAE would think that I had pointed them out
+
+可不是我把UAE（阿联酋）给爆的
+It was not me to point out UAE
+
+是解放军的跟他们（合作）的（人）把他们给卖了
+It was the people who cooperate with the People’s Liberation Army have betrayed them
+
+所以你可以看那个报道就可以看得出来
+So you realize that by watching the report
+
+**原视频链接:**[https://gettr.com/post/phj0gz46a8](https://gettr.com/post/phj0gz46a8)
+
+Date: 11/21/2021
+原视频标题: 中共在中东要建多个军事基地这都是中共解放军自己出卖了自己
+The PLA Betrayed Themself by Revealing The CCP Building Military Bases in the Middle East
+原视频日期：2021/11/20
+原视频链接: https://gettr.com/post/phj0gz46a8
+任务编号：2973
+视频时间段 : 0:00-1:47
+
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)

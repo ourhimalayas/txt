@@ -2,161 +2,56 @@
 ---
 
 
-## 中共在中东要建多个军事基地这都是中共解放军自己出卖自己
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1692636/)
+## 美国邀请台湾参加其民主峰会
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1692746/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/a3a4l-koqqt-2.jpg)
-[https://gtv.org/video/id=619e3d57abc44c39e083f4e8](https://gtv.org/video/id=619e3d57abc44c39e083f4e8)
+作者：纽约香草山农场 – 四季
 
-**郭文贵**
-**Miles Guo**
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-当时是CIA问我
-At that time, it was the CIA asking me
 
-还有情报部门问我
-and also the intelligence department
 
-问我一天问我这个东西
-They asked me about this (the CCP builds military bases in the Middle East) for the whole day
 
-我说我不知道
-I said I don’t know
 
-但是你知道他们讲了个很关键的话
-But you need to know that they (the intel agents) said something very pivotal
+根据美国国务院11月23日公布的与会者名单，拜登政府已邀请台湾参加其下个月举行的“民主峰会”。
 
-我们从中共方得到消息
-They said they got the information from the Chinese Communist Party
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1499-2021-11-24T024438Z_1_LYNXMPEHAN02G_RTROPTP_0_USA-BIDEN-DEMOCRACY-TAIWAN_1.jpg)2021年11月16日，一名男子在台湾台北骑车经过台湾国旗。（REUTERS/Ann Wang）
 
-（中共）在那建那个基地
-that the CCP is building military bases there
+在国务院的邀请名单中，将有110名与会者参加12月9日和10日的虚拟会议。该活动旨在帮助阻止世界各地的民主倒退和对人权与自由的侵蚀。该名单不包括中共国或俄罗斯。
 
-我说那你们自己可以去核实去呀
-I said you can verify it yourself
+台湾外交部表示，台湾受邀参加“民主峰会”是对台湾多年来努力促进民主和人权价值的肯定。台湾数字部长唐凤和台湾事实上的驻华盛顿大使萧美琴将代表台湾政府出席峰会。中共国对此表示“坚决反对”。
 
-他们问我的时候，我说我不知道
-When they asked me, I said I didn’t know
+国务院的名单显示，这次活动将汇集法国和瑞典等成熟的民主国家，但也有菲律宾、印度和波兰等国家，这些国家的活动家称民主受到威胁。
 
-但是他们，你看第一次今天班农把我给爆料了
-But you see, for the first time, Bannon has broken the news on me today
+2月份，拜登总统在其上任后的首次外交政策讲话中宣布，他将使美国重返全球领导地位，以对抗以中共国和俄罗斯为首的独裁主义势力，这次聚会是对这一主张的一次检验。
 
-这是个很大的误会
-This is a big misunderstanding
+**参考阅读：**
 
-当时是所有的CIA问的问题是来自中共内部的
-At that time, all the questions asked by the CIA came from internal of the CCP
+[U.S. invites Taiwan to its democracy summit; China angered | One America News Network (oann.com)](https://www.oann.com/biden-administration-invites-taiwan-to-its-summit-for-democracy/)
 
-我跟班农先生第一次见面
-I met Mr. Bannon for the first time
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
 
-我就说班农先生
-I already told Mr. Bannon
+编辑/校对/发稿：小鹿
 
-我跟CIA见面
-I had met the CIA
 
-我说还有跟FBI见面
-and also the FBI
 
-我说你们要想办法把房峰辉给搞定
-I said you need to find a way to unite Fang Fenghui (a former top general in the PLA)
+**更多资讯，更多关注**
 
-他说怎么可能房峰辉会跟我们合作呢
-Mr. Bannon said how could it possible that Fang Fenghui cooperating with them,
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-不可能, 最后房峰辉被抓了
-it’s impossible, but Fang Fenghui was arrested in the end
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-房峰辉被抓之前一直跟我有联系
-Before being arrested, Fang Fenghui had been in contact with me,
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-说只要美国人只要能保我家人性命
-saying that as long as the Americans can save his family’s life
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-我把所有的这些东西都给出去（美国）
-he would provide all information (the CCP builds military bases in the Middle East) to the US
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
 
-记住啊，当时他就说
-Keep that in mind, at that time he said
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-美国要小心的是Chemical Weapon、Biology Weapon, Do you remember？
-the United States needed to pay close attention to chemical weapons and biological weapons
 
-当时就说这话
-He said those at that time
 
-而且房峰辉当时就跟美国说
-And Fang Fenghui said to the U.S. during that time
 
-中共的计划要在中东建多个军事基地
-the CCP’s plan was to build multiple military bases in the Middle East
-
-这都是2017年发生的事情
-These are all that happened in 2017
-
-今天班农先生把我的料给爆了
-Today, Mr. Bannon has broken my information
-
-他说我跟CIA
-He has said that the CIA and I…
-
-今天我可以对着镜头前这么说
-But, I can say this in front of the camera today
-
-这都是当时房峰辉还有军队的人告诉我的
-All these are what Fang Fenghui and people in the military told me
-
-今天看直播 很多中共高官（看）
-Many senior CCP officials are watching the live broadcast today
-
-你们都别搞错了
-Please don’t get that mixed
-
-是你们的人卖掉了你们
-It’s your people who betrayed you all
-
-不是UAE（阿联酋）也不是郭文贵
-instead of UAE, nor Miles Guo
-
-木兰你们要抓紧把这段翻译字幕加出来了
-Mulan, you need to hurry up and translate this video clip, push it out with subtitles
-
-要不然要搞老大的误会
-Otherwise, it would be a huge misunderstand
-
-人家UAE（阿联酋）以为我把UAE（阿联酋）给爆了
-UAE would think that I had pointed them out
-
-可不是我把UAE（阿联酋）给爆的
-It was not me to point out UAE
-
-是解放军的跟他们（合作）的（人）把他们给卖了
-It was the people who cooperate with the People’s Liberation Army have betrayed them
-
-所以你可以看那个报道就可以看得出来
-So you realize that by watching the report
-
-**原视频链接:**[https://gettr.com/post/phj0gz46a8](https://gettr.com/post/phj0gz46a8)
-
-Date: 11/21/2021
-原视频标题: 中共在中东要建多个军事基地这都是中共解放军自己出卖了自己
-The PLA Betrayed Themself by Revealing The CCP Building Military Bases in the Middle East
-原视频日期：2021/11/20
-原视频链接: https://gettr.com/post/phj0gz46a8
-任务编号：2973
-视频时间段 : 0:00-1:47
-
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

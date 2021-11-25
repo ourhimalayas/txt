@@ -2,95 +2,122 @@
 ---
 
 
-## 抗议政府COVID暴政的活动在世界各地爆发
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1692344/)
+## 疫苗安全专家团队希望进行辩论 但主导疫苗方没人接受
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1692419/)
 
-据《零对冲》作者泰勒·杜登(TYLER DURDEN) 2021年11月22日
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image002-1.jpg)图片来自视频截图
-美联社新闻称他们为“极右翼”，但欧洲各地成千上万热爱自由的人游行反对新的残暴公共卫生措施，如部分和全面限制活动、健康护照和强制接种疫苗。
+翻译： Jenny Ball
 
-奥地利、克罗地亚、意大利、北爱尔兰、英国、法国、德国和荷兰可以看到反对新病毒限制的示威活动。在欧洲以外，在加拿大、澳大利亚、日本甚至美国的几个城市都看见抗议者。一些人将周六标记为“全球自由”集会的一部分，以抗议中共病毒疫情限制和强制接种疫苗规定。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-693.png)图片来源: stevekirsch.substack.com
 
-在港口城市**[鹿特丹](https://www.zerohedge.com/political/rotterdam-transformed-war-zone-amid-new-covid-lockdown-protests)**，一些最激烈的集会演变成了骚乱。抗议者和警察之间的冲突从周五开始，一直持续到周六晚上。
+我们认为我们正确地分析了数据。 我们已经请主流叙事专家纠正我们，如果他们认为我们错了，但他们都拒绝让我们参与科学讨论以辨真伪。
 
+以下是专家团队的部分名单，他们对 COVID 疫苗的安全性和/或早期治疗的有效性有共同的看法。 我们是传统思维，无论白宫怎么说，我们都遵循数据所说的事实。
 
+并非我们所有人都同意就所有问题达成一致，因为我们都是不同领域的专家。
 
-> "COVID-19 protests in Rotterdam, Netherlands turn violent as demonstrators clash with police" [https://t.co/x6nGwBwr8r](https://t.co/x6nGwBwr8r)
-> — alphonse (@ItalJami) [November 21, 2021](https://twitter.com/ItalJami/status/1462438817139408897?ref_src=twsrc%5Etfw)
+1. 罗伯特·马龙（Robert Malone）博士，被广泛认为是 mRNA 疫苗的发明者。当根据 FOIA 要求披露生物分布数据时，他立即意识到了当前疫苗的危险性。**他是第一批有记录地警告世界****：“ ****疫苗增强感染和复制****”****的人之一**， [后来证实了他的观点。](https://www.biorxiv.org/content/10.1101/2021.08.22.457114v1.full.pdf)
 
+2. 海尔特·范登·博舍（Geert Vanden Bossche）博士，是世界上为数不多的病毒学家之一，他警告世界不要接种非灭菌疫苗，以对抗能够在大流行期间发生突变的病毒。 NIH 没有人关注， 他们现在仍然不理会他。**为什么我们要倾听那些不知道他们在说什么的人？并继续忽视那些做对的人？**这仍然是个谜。
 
-*阿尔方斯@ItalJami
-“随着示威者与警察发生冲突，荷兰鹿特丹的 COVID-19 抗议活动变得暴力”*
-*2021年11月21日*
-大约 30 分钟后，抗议活动在海牙演变成了骚乱。
+3. 圭尔夫大学备受尊敬的病毒免疫学家拜拉姆·布里德尔（Byram Bridle）博士，按照 FOIA 的要求公开了生物分布数据，显示疫苗并没有像人们想象的那样停留在注射部位，**而是会导致全身各处产生毒素，包括大脑**。
 
+4. 医学教授彼得·麦卡洛（Peter McCullough）博士，**是1,000 多篇同行评审出版物的作者**，他担任两个期刊的编辑，并担任多个专业期刊的编委。
 
+5. 瑞安·科尔（Ryan Cole）博士是**为数不多的勇于直言的病理学家之一**，他的视频包含在本文中。
 
-> The Hague burns🔥, home of international court of justice, the seat of Dutch cabinet and 3rd largest city in Netherlands [pic.twitter.com/8gjqu2sE60](https://t.co/8gjqu2sE60)
-> — 1e9petrichor (@1e9petrichor) [November 20, 2021](https://twitter.com/1e9petrichor/status/1462203177512624132?ref_src=twsrc%5Etfw)
+6. 布雷特·温斯坦(Bret Weinstein )博士是黑马“DarkHorse”播客的主持人，**进化生物学专家**，与希瑟·和英（Heather Heying）博士共同撰写了即将出版的《21 世纪狩猎采集指南》一书。
 
+7. 克里斯·马腾森（Chris Martenson）博士，**病理学家**和 YouTube 上的《繁荣高峰》 Peak Prosperity 的主持人。克里斯在 YouTube 上的视频是关于病毒和疫苗的最有见地的视频。
 
-*[\[email protected\]](/cdn-cgi/l/email-protection)
-海牙燃烧🔥，国际法院所在地，荷兰内阁所在地，荷兰第三大城市
-2021年11月20日*
+8. 皮埃尔·科里（Pierre Kory）博士是我们的**伊维菌素专家**，**也是我们早期治疗的专家之一。**
 
+9. 保罗·亚历山大（Paul Alexander）博士，**在流行病学（临床流行病学）、循证医学和研究方法学的教学方面拥有专业知识**。他曾任麦克马斯特大学循证医学教授； 华盛顿特区世卫组织-泛美卫生组织的前 COVID 大流行顾问（2020 年）； 以及华盛顿特区美国政府卫生与公众服务部 (HHS) 的 COVID 大流行政策前高级顾问。
 
-> The Hague riots live [#TheHague](https://twitter.com/hashtag/TheHague?src=hash&amp;ref_src=twsrc%5Etfw) [#Holland](https://twitter.com/hashtag/Holland?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/d0ko9YmZFn](https://t.co/d0ko9YmZFn)
-> — Pierre Crom (@PierreCrom) [November 20, 2021](https://twitter.com/PierreCrom/status/1462172293963128833?ref_src=twsrc%5Etfw)
+10. 艾拉·伯恩斯坦(Ira Bernstein )博士是加拿大的一名医生，她观察了 700 名接种疫苗的患者和工作人员中的两起死亡事件，**很容易证明可归因于疫苗，****那是****350 ****分之一的死亡率。**其中一名死者，是先前健康的 24 岁男子，他在睡梦中死去。 伯恩斯坦大夫复制了霍夫大夫的 D-二聚体测试。
 
+11. 杰西卡·罗斯（Jessica Rose）**博士是****VAERS ****系统的专家**。她在 VAERS 上的视频从未受到挑战。她发表了一篇关于 VAERS 的论文，还有几篇即将发表。
 
-*皮埃尔·克罗姆@皮埃尔克罗姆*
-*海牙骚乱现场#TheHague #Holland*
-*2021年11月20日*
-许多欧洲城市的抗议者在游行以保护自己的生命和自由时有着共同点。 各国政府正试图通过增加中共病毒疫情限制、强制性健康护照和强制接种疫苗来掠夺这一点。
+12. 梅丽尔·纳斯（Meryl Nass）**博士是一名医生和VAERS 专家**。
 
-最糟糕的限制，或者更确切地说是政府对自由的掠夺，发生在奥地利，那里周一开始全面限制活动。全国范围内的封锁预计至少持续十天，但可以延长至两周以上。 然后到2月1日， 政府将强制接种疫苗（奥地利890万人中只有66%的人完全接种了疫苗）。祝你好运。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image004.png)资料来源：彭博社
-注：疫苗护照/证书通常意味着进入某些场馆需要接种疫苗/康复/测试，具体措施因国家而异。
-周六在维也纳巨大的赫尔登普拉茨(Heldenplatz)广场举行的游行中有许多人高呼“我的身体，我选择”，“我们为我们的孩子挺身而出！”和“抵抗！”
+13. 李新恒（Sin Hang Lee）博士是[DNA](http://dnalymetest.com/references.html)[测序专家](http://dnalymetest.com/references.html)。
 
+14. 马修·克劳福德 (Mathew Crawford) 是一位**数学家和统计学家**，他[经常撰写](https://roundingtheearth.substack.com/)有关大流行的文章，其中包括两篇关于其他人没有注意到的严重 **CDC ****数学错误的文章**（[第一部分](https://roundingtheearth.substack.com/p/defining-away-vaccine-safety-signals)和[第二部分](https://roundingtheearth.substack.com/p/the-chloroquine-wars-part-xlix)）。
 
+15. 查尔斯·霍夫博士(Charles Hoffe)是加拿大的医生：**他在****900****名患者中有****1****例疫苗死亡，**然后对D-二聚体进行了研究，**发现疫苗使大多数患者的****D-****二聚体升高**，这是一种不良的疫苗效应， 几乎所有其他患者的 D-二聚体通常都是正常的。
 
-> AUSTRALIA FINALLY SAYS NO [pic.twitter.com/4Winq1Ov6f](https://t.co/4Winq1Ov6f)
-> — Avi Yemini 🇦🇺🇮🇱 (@OzraeliAvi) [November 20, 2021](https://twitter.com/OzraeliAvi/status/1462197719192145921?ref_src=twsrc%5Etfw)
+16. 马克·吉拉尔多 (Marc Girardot) 是 [PANDA](https://www.pandata.org/team/) 的成员。PANDA 是一个政治和经济独立的组织，**专注于基于科学的解释并根据国际数据对其进行测试。**马克发表了大量关于大流行的文章。
 
+17. 乔治·法里德（George Fareed）博士是南加州的一名医生，**他开发了一种极其有效的治疗 ****COVID-19 ****感染的方案，风险降低了**[99.76%](https://roundingtheearth.substack.com/p/the-chloroquine-wars-part-xx)**，**比任何疫苗都更有效、更安全。
 
-*阿维耶米尼@OzraeliAvi*
-*澳大利亚最终说不*
-*2021年11月20日*
-最大的抗议活动之一可能是发生在克罗地亚西北部首府萨格勒布(Zagreb)，那里的**《**[**公民自由报**](https://citizenfreepress.com/breaking/100000-citizens-rise-up-in-zagreb/)**》**报道多达10万人涌上街头，抗议政府的健康护照和新的针对中共病毒疫情措施。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image005-1.jpg)
+18. 泰森·加布里埃尔（Tyson Gabriel）是我们的**口罩专家**。他制作了这个 1 小时的教学视频， 没有人想向他挑战戴口罩的辩论。
 
+19. 麻省理工学院高级研究科学家 斯蒂芬妮·塞内夫 (Stephanie Seneff)。**尽管她的领域是计算机科学，但她在生物学方面拥有惊人的广博知识**。
 
-> Zagreb, Croatia – People are chanting "We are not giving you our children!" [pic.twitter.com/rjrWfmLh7B](https://t.co/rjrWfmLh7B)
-> — Deleuze (@Kukicat7) [November 20, 2021](https://twitter.com/Kukicat7/status/1462140466833633284?ref_src=twsrc%5Etfw)
+20. 阿迪提·巴尔加瓦（Aditi Bhargava），加州大学旧金山分校妇产科和心肾综合征CRS 教授。
 
+21. 维努和维奈朱拉帕利（Vinu, Vinay Julapalli）是兄弟。Vinu**是胃肠病学家**，Vinay是休斯顿卫理公会的**心脏病专家**，**并参与了针对医院医生主权的诉讼**。他们都对自己的职业所发生的事情感到震惊，尤其是未接种疫苗的患者（作为二等公民）的治疗方式。他们在 6 月至 8 月看到的 STEMI 数量是历史上任何时候的 2 到 3 倍。
 
-*德勒兹@Kukicat7*
-*克罗地亚萨格勒布——人们高呼“我们没有给你我们的孩子！”*
-*2021年11月20日*
-在罗马，数千名示威者聚集在首都马克西姆斯广场（Circus Maximus），抗议工作场所、餐馆、电影院、剧院、体育场馆、健身房，以及公共交通所需的“绿色通行证”。
+22. 詹姆斯·莱昂斯-韦勒（James Lyons-Weiler）博士是一位**学术生物医学研究科学家和政策分析师**，专注于追求知识以减少人类的痛苦和苦难，没有利润动机。
 
-一名抗议者的标语上写道：“像我们这样的人永远不会放弃”。
+23. 迈克·耶登（Mike Yeadon）博士，前 CSO 和副总裁，**过敏与呼吸研究主管**。据报道，他对呼吸科学和药物发现有所了解， 影响并提供了从探索性研究到临床资产的多样化[股权风险溢价A&R 投资组合。](http://abcexchange.io/terms/e/equityriskpremium.asp)
 
+24. 托比·罗杰斯博士(Dr. Toby Rogers)
 
+25. 凯西·多普(Kathy Dopp)
 
-> Protest against vaccine mandates in Rome: [pic.twitter.com/q3HZSJ9Wiq](https://t.co/q3HZSJ9Wiq)
-> — Alex Salvi (@alexsalvinews) [November 21, 2021](https://twitter.com/alexsalvinews/status/1462425709645688835?ref_src=twsrc%5Etfw)
+26. 约翰·博杜安(John Beaudoin)
 
+27. 凯文·麦克南(Kevin McKernan)，**医学基因组**公司公民社会组织。
 
-*亚历克斯·萨尔维@alexsalvinews*
-*罗马抗议疫苗强制令*
-*2021年11月21日*
-对极权主义的反击正在整个欧洲蔓延。 通常情况下，正如[美国思想家的托马斯·利夫森](https://www.americanthinker.com/blog/2021/11/violent_demonstrations_of_tens_of_thousands_protest_mandatory_vax_law_in_vienna.html)所说：“在涉及政府命令方面，欧洲人通常比美国人更顺从。但即使在那里，公民也在以公共卫生的名义抗议政府夺权”。
+28. 罗伯特.肯尼迪（Robert F. Kennedy, Jr.），**美国环境律师、作家和反疫苗倡导者**。 20 年来，他一直试图找人就疫苗安全问题与他进行辩论，但没有人（除了艾伦·德肖维茨，但艾伦的结局很糟糕）。
 
-随着达沃斯人、世界精英和他们的政治傀儡官员变得比以往任何时候都更加不利，世界人民正在意识到政府暴政正在掠夺他们的生命和自由。 公民及其各自政府之间日益增长的不满是危险的，这就是革命的开始。
+29. 扎娜·卡佛（Zana A. Carver）博士，**生物学副教授，在毒理学和药代动力学方面具有研究专长**。
 
-原文链接：
+我们将在公开的公平辩论中与任何具有同等资历的合格专家进行辩论，以捍卫我们关于疫苗安全性的任何观点，疫苗是否是一个好主意，早期治疗的功效，伊维菌素是否真的有效，为什么应该使用氟伏沙明，口罩是否有效等。
 
-[https://www.zerohedge.com/political/well-never-give-protests-erupt-across-europe-over-govt-covid-tyranny](https://www.zerohedge.com/political/well-never-give-protests-erupt-across-europe-over-govt-covid-tyranny)
+**唯一的问题是，没有人会与我们辩论**。他们会私下声称我们所说的一切都是假的，但他们拒绝在公开辩论中与我们辩论。
 
-翻译：飞利普 |校对： 烟波浩淼 |编辑&发表：断播
+我们已经询问了 CDC、FDA、NIH、主流媒体谈话负责人、国会议员、医学界成员等，没有人接受。
+
+所以我增加了奖励，并在 2021 年 11 月 18 日发出了这封电子邮件：
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-695.png)图片来源: stevekirsch.substack.com
+
+邮件内容：
+
+谁想一夜成百万富翁？
+
+我提供 100 万美元与 VRBPAC 和所有 ACIP 委员会的投票成员进行辩论。
+
+如果只有一个人回应，100 万美元全归你；如果两个人回应，你就分享 100 万美元。 我会接受前五位成员的回应，所以你每个人至少有 20 万。我相信这足以补偿您几个小时的时间。您必须在太平洋标准时间 11 月 19 日星期五午夜之前做出回应。
+
+如果您担心利益冲突，请不要担心，我会将您的份额捐赠给您选择的慈善机构，例如您的机构。
+
+此外，您将为我在此处列出的疫苗专家团队在打击错误信息方面，提供出色的公共服务，这将减少疫苗犹豫，这是 FDA 和 CDC 的一个关键目标，因为您永远不会感到烦恼。
+
+我知道你会同意我的观点，这非常重要，让每个美国人在接种之前了解事实。
+
+辩论视频将使他们能够听取就关键问题双方专家的意见。它将有一个双方都同意的中立主持人进行辩论。
+
+我期待着收到你们每个人的来信。
+
+史蒂夫。
+
+我的一位推特粉丝写道：一生都没有见过这种事情，如果他们说的是事实，这百万美元不是很容易赚到手吗？
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-697.png)图片来源: stevekirsch.substack.com
+
+他们想结束“错误信息”的最快方法是证明我们错了。为什么没有人愿意这样做？
+
+新闻来源 : [stevekirsch.substack.com ] [Our team of vaccine safety experts wants a debate but nobody pushing the narrative will accept](https://stevekirsch.substack.com/p/my-team-of-vaccine-safety-experts)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+
 
  
 

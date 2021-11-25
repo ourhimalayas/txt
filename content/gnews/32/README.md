@@ -2,40 +2,21 @@
 ---
 
 
-## 中共国出生率跌至43年来最低
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1692246/)
+## 11月24日文贵大直播快讯——中共国GDP在过去三年内下行
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1692268/)
 
-作者：纽约香草山信息部- 诺雅
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月23日，相关媒体发布报道称，根据最新发布的《中国统计年鉴2021》显示，2020年度，中共国内的全国人口出生率仅为千分之8.52，创下了自1978年以来的新低；而中共国内同期人口的自然增长率只有千分之1.45，同样创下了43年以来的历史新低。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-25-上午1.18.38.png)
-据早先中共的官方数据表明，2020年中共国内的出生人口约为一千两百万人，比2019年减少了18%。另外，2019年全国的死亡人口为998万，数据预计称，2020年的死亡人口数字会维持稳定或上升。
+撰稿：Gradient Boost
 
-媒体分析表示，短期角度看，人口出生率下降或受疫情影响；而长期角度看，大概率受育龄女性人口和婚育成本的影响。
+视频：benshen
 
-另据爆料革命战友分析，中共国内的人口下降也跟新冠疫苗的接种政策有关。郭文贵先生在 11月5日和10日的大直播中披露，经中共北京卫生局的战友爆料，中共国内接种过新冠疫苗的女性怀孕生子的畸胎很多，这些孩子会被医院直接处死。
+美东当地时间11月24日，文贵先生在大直播中聊北京、深圳及香港交易所。在谈到中共国的经济情况时，文贵先生十分肯定在过去三年中，中共国的GDP只可能是下降而不可能是出于增长状态的。
 
-评论人士指出，如果今明两年人口难以增长的话，中共国内的人口负增长将提前至这两年间发生。
+虽然表面上看股票有所上涨，但其根源就是来自钞票的印发。仅仅今年和去年，中共国就放水四十多万亿。如此的降准和放水，股市的涨幅也就百分之二三十的样子——还有很多资金事实上是没有进入到股票市场当中起效的。
 
-参考链接：
-1)[中国出生率跌至43年来最低 疫情影响生娃？](https://www.dw.com/zh/%E4%B8%AD%E5%9B%BD%E5%87%BA%E7%94%9F%E7%8E%87%E8%B7%8C%E8%87%B343%E5%B9%B4%E6%9D%A5%E6%9C%80%E4%BD%8E-%E7%96%AB%E6%83%85%E5%BD%B1%E5%93%8D%E7%94%9F%E5%A8%83/a-59908628)
-2)[2021年11月5日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1644889/)
-3)[2021年11月10日郭文贵先生直播全文字版](https://gnews.org/zh-hans/1656705/)
-4)[https://gettr.com/post/phpnkq666c](https://gettr.com/post/phpnkq666c)
+人民币的本质是本币，也就是在家自己玩的货币。而美元则是国际流通货币，全世界认可——这是人民币做不到的。在海外的流通的人民币，即非本币，事实上大概只有三万多亿美元。也就是全世界只认这三万亿美元的资产，而现在很可能已经变成两万亿了。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
-
-总编：文真
-编辑：AN
-校正/发稿：呼吸的雾霾（文小呼吸）
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+综合来看墙内老百姓目前面对的经济形势和通胀通缩指数：除了对外贸易出口，通过压榨劳动力赚取的血汗钱之外，其它领域，例如高科技产品、铁矿金属乃至农作物青菜，基本没有任何创造价值的能力。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

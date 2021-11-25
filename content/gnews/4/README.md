@@ -2,48 +2,53 @@
 ---
 
 
-## 美国将数十家中共国科技公司列入黑名单
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1692857/)
+## 2021年11月24日郭文贵先生直播摘要——银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1692908/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/snapshot_副本-5.jpg)
+视频连接：[2021年11月24日 文贵大直播：北京深圳香港交易所；病毒疫苗灾难与解药；喜币喜联储GTV股票；新中国联邦灭共使命](https://gtv.org/video/id=619e389338f84e66c64ec66b)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/W-2.jpg)article.wn.com
-继美国邀请台湾出席民主峰会后【1】，拜登政府又有反共举动，还是来自MSN11月24日转发的报道称，“以国家安全为由，美国将数十家中共国科技公司列入黑名单”。【2】
+1、美国股市崩盘还没有到，崩盘肯定是断崖式下跌；
 
-文章开头摘要：
+2、新GTV 已经投资的和承诺投资截至到12月30日，新的资金一律不在接受了，已经进来的喜美元可以接受；
 
-周三（11月24日），拜登政府将十几家中共国公司列入其贸易黑名单。
+3、币安 已经无法提现，币安把所有人KYC资料交给了共产党，买了“币安”战友找英喜大卫或者各农场主，有币安账户的人一定要联合发起诉讼；
 
-在这些被列入黑名单的公司中，有八家中共国技术实体因涉嫌协助中共军方的量子计算工作而被列入黑名单。
+4、为了维护战友的共同利益，有“福利币”的战友接受三年封闭期，联盟会统一安排操作；
 
-美国官员长期以来一直抱怨，中共国公司受国家支配，代表中共军方收集敏感信息。
+5、七哥说三周震撼消息，只能透露一点点，喜联储会有惊天并购；
 
-全文如下：
+6、疫苗灾难：国内儿童死亡，死胎率，畸胎率，心包炎，心肌炎，交通事故，数不胜数，医院爆满；
 
-拜登政府周三（11月24日）以国家安全和外交政策为理由，将十几家中共国公司列入贸易黑名单。
+7、什么是疫苗灾难？每一个人背后都是一个家庭，都是一份工作。一个病人，都会导致家庭的撕裂。如果不是死亡，而是瘫痪，会对家庭更大的灾难。当这些家庭都是医务工作者，社会如何承担这些灾难？当金融系统无法运作时，有钱和没钱是一个结局，法律系统无法工作，如何维护社会公正？
 
-八家总部位于中共国的科技实体，因涉嫌协助中共军方的量子计算工作，以及获取或试图“获取原产于美国的、支持军事应用的产品”而被列入名单。
+8、疫苗的灾难绝对是人为的设计，是共产党和西方这些贪婪的王八蛋们制造的现代化灾难；
 
-美国官员长期以来一直抱怨，中共国公司受国家支配，代表中共军方收集敏感信息。中国共产党此前曾表示，它不从事工业间谍活动。
+9、共产党的股市就是赌局，不是金钱也不是金融市场，没规则、不透明、不受监管、唯一的一个股东和老千就是共产党，你怎么可能赢？
 
-美商务部还列出了16家在中共国与巴基斯坦从事伊斯兰堡核项目，以及弹道导弹项目工作的实体和个人。拜登政府总共增加了包括中共国、巴基斯坦、俄罗斯、日本和新加坡在内的27个实体和个人。
+10、收集胡锡进、司马南、方舟子等畜生的反人类言论，以种族歧视等罪名起诉它们。这事很大，它们的言论会让华人处于极大危险之中；
 
-美国商务部长吉娜·雷蒙多（Gina Raimondo）在一份声明中写道：“全球贸易和商业应该支持和平、繁荣和优禄的工作，而不是带给国家安全风险，商务部致力于通过有效的出口管制来保护我们的国家安全。”
+11、只关注喜币价格的，不接受联盟统一管理的，一律出局。
 
-中共驻华盛顿大使馆没有立即回应有关置评请求。
+编辑整理：文俊；
 
-商务部的实体清单对被认为从事不良或不道德活动的个人和实体规定了贸易限制。
+发布：黎明之前
 
-（全文完）
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
 
-防火、防盗、防中共应该成为西方乃至整个世界民众的普遍意识，中共恶制下的企业行为与文明世界信奉的正道主义越来越格格不入，只有将中共消灭，才能还世界以安宁。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-有关链接：
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-【1】[https://gnews.org/zh-hans/1692470/](https://gnews.org/zh-hans/1692470/)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
-【2】[https://www.msn.com/en-ca/money/markets/u-s-blacklists-dozens-of-chinese-tech-firms-citing-national-security-concerns/ar-AAR5Uio?ocid=msedgntp&pfr=1](https://www.msn.com/en-ca/money/markets/u-s-blacklists-dozens-of-chinese-tech-firms-citing-national-security-concerns/ar-AAR5Uio?ocid=msedgntp&amp;pfr=1)
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

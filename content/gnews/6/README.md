@@ -2,57 +2,27 @@
 ---
 
 
-## 美国邀请台湾参加其民主峰会
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1692746/)
+## 罗伯特·马龙博士：如果给感染 了COVID 的儿童接种疫苗，出现不良反应的风险更高
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1692864/)
 
-作者：纽约香草山农场 – 四季
+翻译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/11/fauci-lizard-eyes-edited.jpg)图片来源：网络
+来自GATEWAY PUNDIT 星期三11月24日的新闻报道：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+彼得·纳瓦罗博士和 mRNA 疫苗的发明者罗伯特·马龙博士于周三加入了班农作战室节目与史蒂夫·班农对话。昨天晚上福奇公开攻击彼得·纳瓦罗和福克斯新闻金牌主持塔克·卡尔森散布有关冠状病毒的虚假信息。
 
+马龙博士指责福奇有失偏颇和撒谎，“他因说谎而成名星……出于某种原因，他所做的所有虚假陈述都为大型制药公司的利益服务”。
 
+罗伯特·马龙博士还指责福奇博士和 COVID 小组自大流行开始以来至少杀死了 50 万美国人。马龙博士警告儿童父母，为已经感染 COVID-19 并具有天然免疫力的儿童接种疫苗是极具危险。
 
+Malone 博士：“如果对以前有过感染而具有很强免疫力的人使用 RNA 疫苗，那么向他们提供这种尖锐的刺突蛋白是一个坏主意。 它会造成损坏。 令人恶心与悲伤的是，据估计，很多孩子已经自然感染了。 现在，托尼说我们 50% 的孩子都有症状。 嗯，这是真的。 他们的症状包括流鼻涕，他们的症状包括喉咙痛。 那完全是误导。 这是典型的托尼，他选择他的事实并不代表正在发生的事情。 但看起来超过一半的孩子已经自然感染了。 这意味着，既使他们被排除在临床试验之外，如果你同意为他们接种疫苗，他们发生不良事件的风险会更高”*。*
 
+原文链接：[https://www.thegatewaypundit.com/2021/11/dr-robert-malone-children-covid-higher-risk-adverse-effects-vaccinate-video/](https://www.thegatewaypundit.com/2021/11/dr-robert-malone-children-covid-higher-risk-adverse-effects-vaccinate-video/)
 
-根据美国国务院11月23日公布的与会者名单，拜登政府已邀请台湾参加其下个月举行的“民主峰会”。
+编辑/发布：LILY
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1499-2021-11-24T024438Z_1_LYNXMPEHAN02G_RTROPTP_0_USA-BIDEN-DEMOCRACY-TAIWAN_1.jpg)2021年11月16日，一名男子在台湾台北骑车经过台湾国旗。（REUTERS/Ann Wang）
-
-在国务院的邀请名单中，将有110名与会者参加12月9日和10日的虚拟会议。该活动旨在帮助阻止世界各地的民主倒退和对人权与自由的侵蚀。该名单不包括中共国或俄罗斯。
-
-台湾外交部表示，台湾受邀参加“民主峰会”是对台湾多年来努力促进民主和人权价值的肯定。台湾数字部长唐凤和台湾事实上的驻华盛顿大使萧美琴将代表台湾政府出席峰会。中共国对此表示“坚决反对”。
-
-国务院的名单显示，这次活动将汇集法国和瑞典等成熟的民主国家，但也有菲律宾、印度和波兰等国家，这些国家的活动家称民主受到威胁。
-
-2月份，拜登总统在其上任后的首次外交政策讲话中宣布，他将使美国重返全球领导地位，以对抗以中共国和俄罗斯为首的独裁主义势力，这次聚会是对这一主张的一次检验。
-
-**参考阅读：**
-
-[U.S. invites Taiwan to its democracy summit; China angered | One America News Network (oann.com)](https://www.oann.com/biden-administration-invites-taiwan-to-its-summit-for-democracy/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+20211124
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
