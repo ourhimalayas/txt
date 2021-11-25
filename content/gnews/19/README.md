@@ -2,73 +2,161 @@
 ---
 
 
-## 7.24——赵长鹏的最终结局一定和王健一样
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1692521/)
+## 中共在中东要建多个军事基地这都是中共解放军自己出卖自己
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1692636/)
 
-整理：BENJ1、WEI
-编辑：Kelly
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1920_x_1080_px_1.png)图片来源：雅典娜农场设计组小蚂蚁614
-2021年11月17日至19日第四届彭博创新经济论坛在新加坡举行。2021年11月19日，郭文贵先生在GTV大直播指出（摘要）：此次论坛，中方派了币安的创始人赵长鹏参加，而且要接受布隆伯格的采访，去声明喜币就是一个骗局。王岐山在那里讲话，要私下里跟每个人说小心喜联储、小心喜币。所以说赵长鹏这个小屁孩儿，不知道天高地厚，我们从不认识他，但是只要他启动了这个魔鬼之车，不是咱们会怎么着他，是他自己会被王岐山、共产党消灭掉，一定的！币安会彻底结束！币安90%的客户是中国人，币安已将客户资料提供给了中共，赵长鹏的下场一定比王健还惨。和中共沆瀣一气，只有两个结局：一是继续为它所用，二是被它消灭。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/a3a4l-koqqt-2.jpg)
+[https://gtv.org/video/id=619e3d57abc44c39e083f4e8](https://gtv.org/video/id=619e3d57abc44c39e083f4e8)
 
-赵长鹏（1977年－），加拿大华人企业家，加密货币交易平台币安的创始人，英文名“CZ”。
+**郭文贵**
+**Miles Guo**
 
-祖籍江苏，父母是老师，1987年随父母移民到加拿大温哥华，后考入麦吉尔大学主修计算机科学，大学毕业后进入东京证券交易所，开发匹配交易订单的系统，还曾在彭博有限合伙企业从事期货交易软件开发。2005年，他回到上海创立富讯信息技术有限公司，开发为经纪人打造的高频交易系统。
+当时是CIA问我
+At that time, it was the CIA asking me
 
-2013年，开始瞄准密码货币，在Blockchain.info工作。
+还有情报部门问我
+and also the intelligence department
 
-2014年，担任OKCoin的首席技术官CTO。
+问我一天问我这个东西
+They asked me about this (the CCP builds military bases in the Middle East) for the whole day
 
-2015年，从OKCoin离职，离职争议闹得沸沸扬扬。
+我说我不知道
+I said I don’t know
 
-赵长鹏被OkCoin的何一挖去，于2014年6月10日正式宣布加入OKCoin（币行）担任CTO。
+但是你知道他们讲了个很关键的话
+But you need to know that they (the intel agents) said something very pivotal
 
-在任职OKCoin之前，赵长鹏在Blockchai.info担任技术总监，2014年12月，赵长鹏和前东家Blockchain.info签订了一份协议（不是合同）。根据协议，OKCoin将负责Bitcoin.com域名5年时间的运营，Bitcoin.com网站所产出的广告收入归OKCoin。但由于运营效果不佳，OKCoin希望停止这个合作。而Blockchain.info的创始人Roger Ver认为，OKCoin应该每月支付1万美元作为补偿，或者支付按广告收入的百分比。由此，OKCoin和Roger Ver的经济纠纷爆发，并持续长达数月。在这场纠纷中，赵长鹏“强势站队”Roger Ver。他虽然承认将“简单的君子协议”作为合同是个错误，但在文章中他还直指OKCoin违反职业道德、伪造其签名进行银行转账、拒绝支付其薪资、员工炒币等问题。之后OKCoin方面又释出宣告，称赵长鹏不仅伪造合同，还拒绝道歉，又编造谎言攻击OKCoin。双方的这场“骂战”最终以OKCoin开除赵长鹏告终，最终不欢而散。
+我们从中共方得到消息
+They said they got the information from the Chinese Communist Party
 
-2017年，离开OKCoin，创立币安，担任币安CEO与比捷科技CEO。
+（中共）在那建那个基地
+that the CCP is building military bases there
 
-币安创立于中国，2017年9月，中国政府下令禁止加密货币交易，币安便将伺服器及总部迁移至日本。
+我说那你们自己可以去核实去呀
+I said you can verify it yourself
 
-2018年，币安于台湾设立了办事处。
+他们问我的时候，我说我不知道
+When they asked me, I said I didn’t know
 
-2018年2月，币安宣布退出中国市场，币安官网对外发布公告称，根据相关法规，币安不为中国大陆地区用户提供服务。
+但是他们，你看第一次今天班农把我给爆料了
+But you see, for the first time, Bannon has broken the news on me today
 
-2018年3月，日本金融厅（FSA）责令币安停止在本国业务，称该公司没有在日本注册。币安将总部迁至于马耳他。在日本，加密货币交易所可以在金融管理局的监管许可下运营。无注册的企业禁止进行虚拟货币交易。
+这是个很大的误会
+This is a big misunderstanding
 
-2019年12月9日《区块》报道了币安上海办事处遭到了当局的突击检查，随后关闭。币安不仅否认他们遭到了“突击检查”，同时还称自己在上海并没有办事处。币安的创始人及首席执行官赵长鹏声称《区块》是“假新闻”，并威胁要起诉该杂志。
+当时是所有的CIA问的问题是来自中共内部的
+At that time, all the questions asked by the CIA came from internal of the CCP
 
-Castle Island Ventures专注于加密货币的投资者尼克·卡特称：“真正的故事在于，这个昧着良心向散户兜售无价值代币的离岸交易所，认为自己可以通过上诉的威胁，逼迫一个媒体刊物三缄其口。在他们试图博取美国监管方的欢心之际，这种做法对于他们来说没有任何好处。”
+我跟班农先生第一次见面
+I met Mr. Bannon for the first time
 
-更有甚者，赵长鹏随后还称加密货币初创企业应该“分配一些资金用于抵御FUD（恐惧、不确定性和怀疑）”在加密货币界看来，FUD几乎等同于“虚假新闻”。或者就像《区块》的首席执行官迈克·杜达斯说的那样：“它相当于与其商业兴趣相反的事实。”
+我就说班农先生
+I already told Mr. Bannon
 
-“FUD防范基金”这一理念迅速得到了孙宇晨这类人的附和，后者是智能合约平台波场的创始人。然而孙宇晨的支持便很能说明问题，因为有人不断地用确凿的证据指控孙宇晨开展各种形式的欺诈活动，包括波场白皮书和代码抄袭，这些事件最终都被记者和研究人员曝光。尽管存在明显的公开证据，但孙宇晨一直在否认这些报道。然而希望澄清自己的赵长鹏对孙宇晨的支持感到十分高兴。赵长鹏自己此前似乎曾经威胁过《区块》，同时也曾经表示，在谈到中国的加密货币行业时，“有些事情还是不说为妙。”
+我跟CIA见面
+I had met the CIA
 
-2020年3月8日，币安赵长鹏私自挪用用户资金参与Steem投票，发推文就币安参与Steem投票并道歉。
+我说还有跟FBI见面
+and also the FBI
 
-孙宇晨拉着赵长鹏动用币安用户的币去投票罢免见证人的事件极其恶劣，这一系列操作严重违背了区块链的社区自治，以太坊的V神也站出来吐槽这种不道德的行为，直接指出，这个事件是孙宇晨在行贿赵长鹏交易所作恶！
+我说你们要想办法把房峰辉给搞定
+I said you need to find a way to unite Fang Fenghui (a former top general in the PLA)
 
-这个事件已经在提醒人们：币安这样的大交易所值得信赖吗？随意挪用客户的币，与项目方狼狈为奸，何为尊重用户？
+他说怎么可能房峰辉会跟我们合作呢
+Mr. Bannon said how could it possible that Fang Fenghui cooperating with them,
 
-2020年、2021年3月，2021年6月，币安已经多次收到过日本金融厅的警告，币安未在日本注册，也没有获得日本数字货币交易行业牌照，通过网络对日本居民提供相关服务属于不合法行为。如果不停止营业的话，日本警察当局将会进行刑事审查。言外之意是，日本要封杀币安！
+不可能, 最后房峰辉被抓了
+it’s impossible, but Fang Fenghui was arrested in the end
 
-2021年6月26日，英国金融行为监管局（FCA）宣布币安在英国不得开展与受监管金融活动有关的业务。FCA称，币安集团旗下实体均未持有任何形式的英国授权、注册或许可以在英国开展受监管的活动，FCA还表示，币安需确认移除所有广告和财务推介，还必须在网站、社交媒体和其他传媒平台上说明其已经没有在英国运营的许可。
+房峰辉被抓之前一直跟我有联系
+Before being arrested, Fang Fenghui had been in contact with me,
 
-英国巴克莱银行、TSB银行集团、Monzo Bank和Starling Bank相继采取行动，阻止客户将现金转移到币安等加密货币交易平台。TSB银行集团计划禁止超过500万客户购买加密货币，该行还表示，其客户遭遇的所有加密货币欺诈中，约有三分之二与币安平台有关。
+说只要美国人只要能保我家人性命
+saying that as long as the Americans can save his family’s life
 
-据报道，币安在美国也受到多个机构的调查，截至目前，中共国、美国和土耳其的使用者无法交易股票代币。
+我把所有的这些东西都给出去（美国）
+he would provide all information (the CCP builds military bases in the Middle East) to the US
 
-据路透北京10月13日消息： 中共国监管最新一轮针对虚拟货币的打击影响继续扩大，中国最大虚拟货币交易所–币安（Binance）宣布，为响应当地政府监管政策要求，币安C2C将于2021年12月31日24:00（东八区时间）下架CNY交易区。
+记住啊，当时他就说
+Keep that in mind, at that time he said
 
-币安发布在官网上的公告并称：币安将对平台用户进行清查，平台若发现中国大陆地区用户，则其对应账户将切换至“只允许提现”模式，用户将只能进行提现、撤单、赎回、平仓操作。
+美国要小心的是Chemical Weapon、Biology Weapon, Do you remember？
+the United States needed to pay close attention to chemical weapons and biological weapons
 
-2021年11月23日文贵先生在直播中说（摘要）：赵长鹏已将币安的国内外用户资料出卖给中共，中共拿到这些客户信息不仅会劫财更会要命！在币安做过KYC、有过虚拟币交易或投资的战友请尽快联系各农场，我们将在全球起诉币安。
+当时就说这话
+He said those at that time
 
-发布：Peter Xin
+而且房峰辉当时就跟美国说
+And Fang Fenghui said to the U.S. during that time
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+中共的计划要在中东建多个军事基地
+the CCP’s plan was to build multiple military bases in the Middle East
+
+这都是2017年发生的事情
+These are all that happened in 2017
+
+今天班农先生把我的料给爆了
+Today, Mr. Bannon has broken my information
+
+他说我跟CIA
+He has said that the CIA and I…
+
+今天我可以对着镜头前这么说
+But, I can say this in front of the camera today
+
+这都是当时房峰辉还有军队的人告诉我的
+All these are what Fang Fenghui and people in the military told me
+
+今天看直播 很多中共高官（看）
+Many senior CCP officials are watching the live broadcast today
+
+你们都别搞错了
+Please don’t get that mixed
+
+是你们的人卖掉了你们
+It’s your people who betrayed you all
+
+不是UAE（阿联酋）也不是郭文贵
+instead of UAE, nor Miles Guo
+
+木兰你们要抓紧把这段翻译字幕加出来了
+Mulan, you need to hurry up and translate this video clip, push it out with subtitles
+
+要不然要搞老大的误会
+Otherwise, it would be a huge misunderstand
+
+人家UAE（阿联酋）以为我把UAE（阿联酋）给爆了
+UAE would think that I had pointed them out
+
+可不是我把UAE（阿联酋）给爆的
+It was not me to point out UAE
+
+是解放军的跟他们（合作）的（人）把他们给卖了
+It was the people who cooperate with the People’s Liberation Army have betrayed them
+
+所以你可以看那个报道就可以看得出来
+So you realize that by watching the report
+
+**原视频链接:**[https://gettr.com/post/phj0gz46a8](https://gettr.com/post/phj0gz46a8)
+
+Date: 11/21/2021
+原视频标题: 中共在中东要建多个军事基地这都是中共解放军自己出卖了自己
+The PLA Betrayed Themself by Revealing The CCP Building Military Bases in the Middle East
+原视频日期：2021/11/20
+原视频链接: https://gettr.com/post/phj0gz46a8
+任务编号：2973
+视频时间段 : 0:00-1:47
+
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

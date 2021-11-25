@@ -2,44 +2,98 @@
 ---
 
 
-## 美国邀请台湾参加民主峰会激怒了中共
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1692470/)
+## 超发货币将使数字货币代替法币
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1692532/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/hh-a3a4l-koqqt.jpg)
+[https://gtv.org/video/id=619e3cbfabc44c39e083f4d6](https://gtv.org/video/id=619e3cbfabc44c39e083f4d6)
 
-编辑上传  水星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/T-4.jpg)lessdaily.com
-左媒MSN 11月24日转载报道了《美联社》（Associated Press）的消息，文章题目“美国邀请台湾参加民主峰会激怒了中共”。
+**郭文贵**
+**Miles Guo**
 
-全文如下：
+现在由于超发货币，给世界带来了什么样的结果呢
+What kind of results have been brought to the world due to over printed cur-rency?
 
-美联社华盛顿讯，美国国务院宣布，拜登政府已邀请台湾参加下个月的民主峰会，这引发了中共的尖锐批评，中共认为这个自治岛屿是它的领土。
+一定会世界经济大崩溃，但是它触发了两种事件的发生
+It must be a major collapse of the world economy, but it triggered two events
 
-这次峰会兑现了乔·拜登总统在竞选期间所作的承诺，也反映了他对让美国重新回到世界民主国家的全球领导地位的重视。该活动旨在聚集政府、民间社会和私营部门领导人，共同打击独裁主义和全球腐败，捍卫人权。
+第一，2020年到现在，让世界上有了数字货币，
+First, from 2020 to now, the world have crypto currency
 
-邀请名单有110个国家，包括台湾，但不包括中共国或俄罗斯等。将台湾包括在内之际，美国与中共国之间的紧张关系因美国对这个岛国的态度而加剧。
+就像二战，搞出了灭掉英镑和美元的布雷顿森林体系
+Just like World War II, it occurred the Bretton Woods system in American dol-lars that wiped out the British pound
 
-美国的“一个中国”政策承认北京是中共政府，但允许与台北建立非正式关系和防务关系。
+一战当时搞出了欧洲的大英帝国，几大家族，罗斯柴尔德，
+World War I created the British Empire in Europe, there are several big fami-lies, like Rothschild
 
-但在10月下旬，拜登向北京敲响了警钟，他说，美国坚定地承诺在中共发动袭击时帮助台湾自卫。
+罗斯柴尔德就是借给战争黄金， 就是金币的，
+Rothschild lent gold to the war which is gold coins
 
-在本月早些时候拜登和中共主席举行的三小时虚拟会议期间，拜登重申美国支持“一个中国”政策，但据白宫报道，他也表示他强烈反对“单方面努力改变现状或破坏整个台湾海峡地区的和平与稳定”。
+给人家一个王国agent的，就是今天说Hpay代表啊
+Rothschild was the agent for a kingdom, that is like Hpay today
 
-民主峰会邀请名单引发了北京新一轮的批评。
+就出了罗斯柴尔德呀，一战后，然后美国催生出来的
+It just come out Rothschild after World War I, then the United States spawned
 
-中共外交部发言人赵立坚说：“美国的所作所为证明，所谓的民主只是它追求地缘政治目标、压制其他国家、分裂世界、为自己利益服务、维护世界霸权的借口和工具。”
+就是当时的洛克菲勒，是不是，就这几大家族啊
+It was Rockefeller at the time, right? It was just these big families
 
-中共国台办发言人朱凤莲星期三（11月24日）说，“我们坚决反对美国和台湾地区之间任何形式的官方接触。”
+然后就是摩根斯坦利就出来了，就是因为二战以后的布雷顿森林体系废掉了英镑
+Then Morgan Stanley came out because the Bretton Woods system after World War II abolished the British pound
 
-邀请名单突显了拜登在峰会上必须面对的挑战性地缘政治，虽然日本和韩国等美国盟友受到邀请，但越南、埃及和北约成员国土耳其等其他国家没有受到邀请。
+都是战争和经济灾难，1913年到1919年的一战、西班牙大流行病和经济灾难，大萧条
+because wars and economic disasters, the World War I from 1913 to 1919, the Spanish flu pandemic and economic disaster, the Great Depression
 
-（全文完）
+到了胡佛总统时期，吧唧上来了，美国诞生了
+Then to the period of President Hoover and the United States was born
 
-不管拜登政府是不是在演戏，这算是对其在竞选期间作出承诺的兑现。重要的是要向全球表明，一旦独裁专制政府向民主伙伴动武时，民主联盟要有真实的行动，而不只是“谴责”、“制裁”之类空洞的叫喊，这样台湾人民才会有真正的安全。
+二战过去了，是吧，英国完蛋了，英镑结束了，美元起来了搞了美联储，
+World War II is over, right? Britain is over, the pound is over, the dollar is stable and set up the Federal Reserve
 
-原文链接：
+美联储上千个个人股东，到现在控制了美国印发美元
+Thousands of individual shareholders of the Federal Reserve now control the U.S. printing and distribution of U.S. dollars
 
-[https://www.msn.com/en-us/news/world/us-invitation-of-taiwan-to-democracy-summit-angers-china/ar-AAR5qFN](https://www.msn.com/en-us/news/world/us-invitation-of-taiwan-to-democracy-summit-angers-china/ar-AAR5qFN)
+本来美元要和黄金挂钩的，最后不挂钩了，变成了信用美元，变成了法币
+The U.S. dollar was originally pegged to gold, but in the end it was not pegged, it became the credit U.S. dollar and became fiat currency
+
+这次就是彻底地把过去的金本位和所有的最后的和金本位挂钩的唯一全球货币，美元
+This time it’s the complete removal of the old gold standard and all the last and only global currency tied to the gold standard, the US dollar
+
+从过去的中心化币，变成了完全虚假的中心化币
+From the past centralized currency to a completely fake centralized currency
+
+完全变成了废币，纸币，这就是到了什么时代催生了数字货币
+It has completely become waste money, paper money, this is what spawned to the arrival of the crypto currency era
+
+数字货币的目的达到什么，结束了真正的人类历史上法币
+What is the purpose of crypto currency? it’s ending the fiat currency in human history
+
+法币的整个虚假时代，包括金本位都是假的
+The entire fake era of fiat currency, including the gold standard is fake
+
+法币将逐渐退出历史舞台，未来就是数字货币
+fiat currency will gradually exit the stage of history, and the future is crypto currency era
+
+**原视频链接:**[https://gettr.com/post/phiqrf6537](https://gettr.com/post/phiqrf6537)
+
+Date:11/23/2021
+原视频标题: 超发货币 将使数字货币代替法币
+Over printed currency will enable cryptocurrency to replace fiat currency
+原视频日期：2021/11/19
+原视频链接https://gettr.com/post/phiqrf6537
+任务编号：KC284（2972）
+视频时间段 : 0:00-2:10
+
+中听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校：洛杉矶盘古农场 – Mike LI
+字幕+视频制作: 洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,47 +2,27 @@
 ---
 
 
-## 华为-中共的特洛伊木马
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1692744/)
+## 罗伯特·马龙博士：如果给感染 了COVID 的儿童接种疫苗，出现不良反应的风险更高
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1692864/)
 
-作者：香草山翻译部 – Eleutheria
+翻译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/11/fauci-lizard-eyes-edited.jpg)图片来源：网络
+来自GATEWAY PUNDIT 星期三11月24日的新闻报道：
 
+彼得·纳瓦罗博士和 mRNA 疫苗的发明者罗伯特·马龙博士于周三加入了班农作战室节目与史蒂夫·班农对话。昨天晚上福奇公开攻击彼得·纳瓦罗和福克斯新闻金牌主持塔克·卡尔森散布有关冠状病毒的虚假信息。
 
+马龙博士指责福奇有失偏颇和撒谎，“他因说谎而成名星……出于某种原因，他所做的所有虚假陈述都为大型制药公司的利益服务”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-1.jpg)
+罗伯特·马龙博士还指责福奇博士和 COVID 小组自大流行开始以来至少杀死了 50 万美国人。马龙博士警告儿童父母，为已经感染 COVID-19 并具有天然免疫力的儿童接种疫苗是极具危险。
 
+Malone 博士：“如果对以前有过感染而具有很强免疫力的人使用 RNA 疫苗，那么向他们提供这种尖锐的刺突蛋白是一个坏主意。 它会造成损坏。 令人恶心与悲伤的是，据估计，很多孩子已经自然感染了。 现在，托尼说我们 50% 的孩子都有症状。 嗯，这是真的。 他们的症状包括流鼻涕，他们的症状包括喉咙痛。 那完全是误导。 这是典型的托尼，他选择他的事实并不代表正在发生的事情。 但看起来超过一半的孩子已经自然感染了。 这意味着，既使他们被排除在临床试验之外，如果你同意为他们接种疫苗，他们发生不良事件的风险会更高”*。*
 
+原文链接：[https://www.thegatewaypundit.com/2021/11/dr-robert-malone-children-covid-higher-risk-adverse-effects-vaccinate-video/](https://www.thegatewaypundit.com/2021/11/dr-robert-malone-children-covid-higher-risk-adverse-effects-vaccinate-video/)
 
-据BeepingComputer报道，华为的应用商店发现空前规模的含木马程序应用。并已有超过900万安卓设备遭到感染。
+编辑/发布：LILY
 
-该木马程序“Android.Cynos.7.origin”由Dr.Web发现，是Cynos木马的一个变种。主要目标是收集用户的敏感个人信息。目前已发展华为应用商店中有超过190个应用携带此木马。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-34.jpg)
-据Dr.Web测试，此木马普遍存在于游戏类应用，并指向俄语、中文及英文用户。更有甚者包含监听、拦截及发送短信，加载附加程序或下载其他应用等功能。如果用户授予权限，该木马可以将以下数据泄露到远程服务器：
-
-- 用户手机号
-- 基于 GPS 坐标或移动网络和 Wi-Fi 接入点数据的设备位置
-- 各种移动网络参数，如网络代码和移动国家代码；此外，GSM 小区 ID 和国际 GSM 位置区号
-- 设备的各种技术规格
-- 来自木马应用程序元数据的各种参数
-
-
-众所周知，华为是中共国解放军的下属企业。而华为手机监控窃取用户信息的丑闻已屡见不鲜，这次仅在华为应用商店出现如此规模的大量木马程序极大可能为中共幕后操纵的结果。但全球仍未引起重视继续允许华为设备的海外销售无疑将成为现代版的特洛伊木马。
-
-参考来源：[华为-中共的特洛伊木马](https://www.bleepingcomputer.com/news/security/over-nine-million-android-devices-infected-by-info-stealing-trojan/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
-
+20211124
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

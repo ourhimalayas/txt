@@ -2,28 +2,46 @@
 ---
 
 
-## 共和党人警告 ATF “向联邦枪支登记处迈进了一大步”。 共和党国会议员说，拜登行政人员“利用政治影响力侵犯宪法权利”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1692544/)
+## 华为-中共的特洛伊木马
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1692744/)
 
-作者：休斯顿基恩
+作者：香草山翻译部 – Eleutheria
 
-翻译：沉默老歌
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-24-155616-edited.png)图片来源：网络
-据福克斯新闻报道：
 
-一群众议院共和党人警告说，酒精、烟草、火器和爆炸物管理局 (ATF) 可能正在为联邦枪支登记的后门奠定基础。
 
-周一，德克萨斯州共和党众议员迈克尔克劳德带领他的 51 名同事致函代理 ATF 主任马文理查森，表达了他们对该机构拟议规则的担忧，共和党人担心该规则最终可能导致围绕国会禁令的后门枪支登记。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-1.jpg)
 
-最近提议的规则基本上取消了联邦枪支许可证持有者必须遵守的 20 年使用数据，要求他们保留超过 20 年的枪支购买记录。
 
-来源链接：[https://www.foxnews.com/politics/republicans-atf-groundwork-backdoor-federal-gun-registry.amp](https://www.foxnews.com/politics/republicans-atf-groundwork-backdoor-federal-gun-registry.amp)
 
-编辑/发布：LILY
+据BeepingComputer报道，华为的应用商店发现空前规模的含木马程序应用。并已有超过900万安卓设备遭到感染。
 
-20211124
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-1.jpg)
+该木马程序“Android.Cynos.7.origin”由Dr.Web发现，是Cynos木马的一个变种。主要目标是收集用户的敏感个人信息。目前已发展华为应用商店中有超过190个应用携带此木马。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-34.jpg)
+据Dr.Web测试，此木马普遍存在于游戏类应用，并指向俄语、中文及英文用户。更有甚者包含监听、拦截及发送短信，加载附加程序或下载其他应用等功能。如果用户授予权限，该木马可以将以下数据泄露到远程服务器：
 
+- 用户手机号
+- 基于 GPS 坐标或移动网络和 Wi-Fi 接入点数据的设备位置
+- 各种移动网络参数，如网络代码和移动国家代码；此外，GSM 小区 ID 和国际 GSM 位置区号
+- 设备的各种技术规格
+- 来自木马应用程序元数据的各种参数
+
+
+众所周知，华为是中共国解放军的下属企业。而华为手机监控窃取用户信息的丑闻已屡见不鲜，这次仅在华为应用商店出现如此规模的大量木马程序极大可能为中共幕后操纵的结果。但全球仍未引起重视继续允许华为设备的海外销售无疑将成为现代版的特洛伊木马。
+
+参考来源：[华为-中共的特洛伊木马](https://www.bleepingcomputer.com/news/security/over-nine-million-android-devices-infected-by-info-stealing-trojan/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-1.png)
 
  
 

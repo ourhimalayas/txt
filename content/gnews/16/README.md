@@ -2,35 +2,54 @@
 ---
 
 
-## 2021/11/23 墙内世界
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1692611/)
+## 美国邀请台湾参加其民主峰会
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1692746/)
 
-1. 11月22日，内蒙古呼和浩特发生燃爆。中共官方称已致1死14伤，事故因管道燃气泄漏所致。
-2. 11月22日，江西南昌一宿舍居民楼坍塌，官方称事故造成3个家庭共4人遇难。
-3. 11月22日，由于官方通报新增新冠确诊病例，辽宁大连甘井子区居民半夜被贴封条。
-4. 市民拍下中共医院夜晚人们席地而睡的一幕，感叹世间的艰难。
-5. 湖北武汉，一女子因与不拴绳遛狗主人冲突后愤恨跳楼。上百邻居19日在事发地悼念。
-6. 11月22日，浙江温州一民房因家中办丧事失火，2人遇难。
-7. 河南乡村灾后3个月现状，政府难言保障，村民自主生死。
-8. 11月19日，广东广州。市民民房被强拆，住户欲相继跳楼抗议。
-9. 11月21日，广东茂名信宜市。疑因情感纠纷，一男子当街杀害二人后原地等待警察抓捕，凶手伤害手段极其残忍。
-10. 11月20日，辽宁大连。被欺骗的爱心，居民捐给贫困山区的衣服，被装进运输垃圾的垃圾车。
-11. 11月20日，河南周口。儿子推着瘫痪6年的爸爸，给邻居家摘辣椒打零工来补贴家用。
-12. 11月21日，广西南宁。一白色小车在大桥上失控撞倒多辆电动车，现场多人受伤。
+作者：纽约香草山农场 – 四季
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-封面图片来源于网络
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+根据美国国务院11月23日公布的与会者名单，拜登政府已邀请台湾参加其下个月举行的“民主峰会”。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1499-2021-11-24T024438Z_1_LYNXMPEHAN02G_RTROPTP_0_USA-BIDEN-DEMOCRACY-TAIWAN_1.jpg)2021年11月16日，一名男子在台湾台北骑车经过台湾国旗。（REUTERS/Ann Wang）
+
+在国务院的邀请名单中，将有110名与会者参加12月9日和10日的虚拟会议。该活动旨在帮助阻止世界各地的民主倒退和对人权与自由的侵蚀。该名单不包括中共国或俄罗斯。
+
+台湾外交部表示，台湾受邀参加“民主峰会”是对台湾多年来努力促进民主和人权价值的肯定。台湾数字部长唐凤和台湾事实上的驻华盛顿大使萧美琴将代表台湾政府出席峰会。中共国对此表示“坚决反对”。
+
+国务院的名单显示，这次活动将汇集法国和瑞典等成熟的民主国家，但也有菲律宾、印度和波兰等国家，这些国家的活动家称民主受到威胁。
+
+2月份，拜登总统在其上任后的首次外交政策讲话中宣布，他将使美国重返全球领导地位，以对抗以中共国和俄罗斯为首的独裁主义势力，这次聚会是对这一主张的一次检验。
+
+**参考阅读：**
+
+[U.S. invites Taiwan to its democracy summit; China angered | One America News Network (oann.com)](https://www.oann.com/biden-administration-invites-taiwan-to-its-summit-for-democracy/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
 
 
 
