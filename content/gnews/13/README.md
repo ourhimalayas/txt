@@ -2,45 +2,36 @@
 ---
 
 
-## 非洲博茨瓦纳发现新的致命病株
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1693712/)
+## 秘翻在线：护士举报称政客接受生理盐水而不是mRNA疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1693715/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-44.jpg)
-**翻译：**小鱼儿
-**编辑：**翼族
+翻译：文字燒
+![](https://assets.gnews.org/wp-content/uploads/2021/11/16378183261.png)图片来源：原文链接
+东欧国家斯洛文尼亚发生了一场危机，一名护士告诉公众，政治家和其他高级公民接受的是生理盐水，而不是mRNA实验性药物。
 
-11月11日在非洲博茨瓦纳首次被发现的B.1.1529病毒变体，预计将被称为Nu病株。该变体内的32个尖峰突变让病毒学家高度警惕。
+在Facebook上的一段视频中（已被YouTube删除），这位自称是卢布尔雅那大学医学中心护士长（负责接收和管理政治家的注射瓶）辞职并就这一丑闻召开了新闻发布会。
 
-三天后，该变体已经扩散到了南非。一名最近访问过南非的36岁香港男子，11月13日回港后在检疫中检测出阳性。
+发布会视频链接：
 
-科学家们检测到的这个全新的Covid-19菌株，使得人们的担心正在增加，这种新的变体首先被伦敦帝国学院病毒学家汤姆·皮科克博士发现，他在一个基因组共享网站上分享了细节。
+[https://www.facebook.com/stoplaznivimmedijem/videos/190515176301913/](https://www.facebook.com/stoplaznivimmedijem/videos/190515176301913/)
 
-皮科克博士对其发出令人不寒而栗的警告，他说：“令人难以置信的是，大量尖峰突变表明这可能是真正令人担忧的病毒株”。迄今为止已经在三个国家发现相关病例。
+在新闻发布会上，她展示了瓶子上的编号，分别标注为1、2或3，然后解释了这些数字的含义：
 
-皮科克博士称，该菌株已经传播到亚洲，他还预测该菌株可以“逃避大多数已知的单克隆抗体”，这表明它有可能通过躲避身体的防御，在全球范围内引起新的爆发。
+1号瓶：安慰剂，生理盐水
 
-在一连串的推文中，皮科克博士加倍强调了他的警告，坚持认为该变体超过所有的病毒抗原，包括在全世界造成严重破坏的致命德尔塔变体。
+2号瓶：mRNA
 
-皮科克博士的警告引起了全球专家的注意，伦敦大学学院遗传学研究所所长弗朗索瓦·巴鲁教授指出，新的B.1.1529变体“带有不寻常的突变群”。
+3号瓶：含有致癌基因的mRNA疫苗
 
-巴鲁教授说：“相对于阿尔法或德尔塔毒株，我期望它能被中和抗体识别得很差。在这个阶段，很难预测它的传播性如何。到目前为止，在撒哈拉以南的一个有监控的地区已经测序了四个菌株。它可能存在于非洲的其它地区。”
+她说，那些注射3号瓶的人，将在接受注射后的两年内患上软组织癌症。
 
-这一潜在危险的新变种的出现，正值世界大部分地区在推出疫苗后开始向国际旅行者重新开放边境，也正值欧洲在临近冬季时受到毁灭性的第四波冲击。
+她还说，她亲自见证了所有政治家和富豪以及所有接受1号瓶的人的打针过程，声称他们注射的是生理盐水，是一种安慰剂。
 
-世界卫生组织本周警告说，欧洲大陆仍然“被大流行病牢牢控制着”。
+这就解释了为什么媒体为政客们拍照时，由同一个人给他们打针。
 
-世卫组织声称欧洲因中共病毒（COVID）的死亡人数在今年冬天可能达到220万，在迄今为止已经记录的150万死亡人数的基础上，预计到3月1日还会增加约70万死亡人数。
+信息来源：[https://dailytelegraph.co.nz/covid-19/crisis-in-slovenia-whistleblower-nurse-says-politicians-receive-saline-instead-of-mrna-jab/](https://dailytelegraph.co.nz/covid-19/crisis-in-slovenia-whistleblower-nurse-says-politicians-receive-saline-instead-of-mrna-jab/)
 
-**参考新闻：**[Doctors warn of new Covid strain found in Botswana with ‘incredibly high’ number of mutations](https://www.news.com.au/world/coronavirus/global/doctors-warn-of-new-covid-strain-found-in-botswana-with-incredibly-high-number-of-mutations/news-story/300eb6aafe983ae4656a020f6f85f7b8)
-
-*发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+责编：待命（文晓）
 
  
 

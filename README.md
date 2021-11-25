@@ -15,104 +15,104 @@
 
 ---
 
-### [视频| 为什么郭先生称战友们为兄弟姐妹](/content/gnews/1/README.md)
+### [每日快报：美国要求在1月份为所有过境者接种疫苗](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [币圈新闻动态：ConsenSys编程课程中删除50名伊朗学生](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [视频| 为什么郭先生称战友们为兄弟姐妹](/content/gnews/3/README.md)
  ` MOSREC`
 
-### [欧盟对参与种族灭绝的中共官员和实体延长制裁](/content/gnews/2/README.md)
+### [欧盟对参与种族灭绝的中共官员和实体延长制裁](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频| 喜币的价值和价格的区别](/content/gnews/3/README.md)
+### [视频| 喜币的价值和价格的区别](/content/gnews/5/README.md)
  ` MOSREC`
 
-### [澳大利亚拟联合西方国家外交抵制北京冬奥会](/content/gnews/4/README.md)
+### [澳大利亚拟联合西方国家外交抵制北京冬奥会](/content/gnews/6/README.md)
  ` 走进澳洲`
 
-### [迫于中共淫威，摩根大通CEO为玩笑话道歉](/content/gnews/5/README.md)
+### [迫于中共淫威，摩根大通CEO为玩笑话道歉](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [视频| 赵长鹏最终的结局](/content/gnews/6/README.md)
+### [视频| 赵长鹏最终的结局](/content/gnews/8/README.md)
  ` MOSREC`
 
-### [视频| 币安已全面和中共合作](/content/gnews/7/README.md)
+### [视频| 币安已全面和中共合作](/content/gnews/9/README.md)
  ` MOSREC`
 
-### [世贸组织因主张 “疫苗种族隔离”被指责](/content/gnews/8/README.md)
+### [世贸组织因主张 “疫苗种族隔离”被指责](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [灵魂挎问：你是战友还是敌人？](/content/gnews/9/README.md)
+### [灵魂挎问：你是战友还是敌人？](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [国际要闻汇编11月25日](/content/gnews/10/README.md)
+### [国际要闻汇编11月25日](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秘翻在线：护士举报称政客接受生理盐水而不是mRNA疫苗](/content/gnews/11/README.md)
+### [秘翻在线：护士举报称政客接受生理盐水而不是mRNA疫苗](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [前世卫组织总干事警告，强制接种疫苗会引起骚乱](/content/gnews/12/README.md)
+### [前世卫组织总干事警告，强制接种疫苗会引起骚乱](/content/gnews/14/README.md)
  ` 墨尔本雅典娜农场`
 
-### [非洲博茨瓦纳发现新的致命病株](/content/gnews/13/README.md)
+### [非洲博茨瓦纳发现新的致命病株](/content/gnews/15/README.md)
  ` 墨尔本雅典娜农场`
 
-### [11/24/2021 文贵直播：胡舒立和司马南是“小号的王岐山”](/content/gnews/14/README.md)
+### [11/24/2021 文贵直播：胡舒立和司马南是“小号的王岐山”](/content/gnews/16/README.md)
  ` 秘密翻译组-北美组`
 
-### [悉尼房价预计将在明年达到顶峰](/content/gnews/15/README.md)
+### [悉尼房价预计将在明年达到顶峰](/content/gnews/17/README.md)
  ` 走进澳洲`
 
-### [11/24/2021 文贵直播：犯罪分子胡舒立却被成为”公知”是中国人的悲哀](/content/gnews/16/README.md)
+### [11/24/2021 文贵直播：犯罪分子胡舒立却被成为”公知”是中国人的悲哀](/content/gnews/18/README.md)
  ` 秘密翻译组-北美组`
 
-### [美国再出手，中共多家企业被列入黑名单！](/content/gnews/17/README.md)
+### [美国再出手，中共多家企业被列入黑名单！](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/24/2021 文贵直播：王岐山安排赵长鹏参加彭博创新经济论坛来抹黑喜币](/content/gnews/18/README.md)
+### [11/24/2021 文贵直播：王岐山安排赵长鹏参加彭博创新经济论坛来抹黑喜币](/content/gnews/20/README.md)
  ` 秘密翻译组-北美组`
 
-### [加拿大成为第一个完全批准强生中共病毒疫苗的国家](/content/gnews/19/README.md)
+### [加拿大成为第一个完全批准强生中共病毒疫苗的国家](/content/gnews/21/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [辉瑞指控员工盗取大量内部及涉密文件](/content/gnews/20/README.md)
+### [辉瑞指控员工盗取大量内部及涉密文件](/content/gnews/22/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共国出生率跌至数十年来最低水平](/content/gnews/21/README.md)
+### [中共国出生率跌至数十年来最低水平](/content/gnews/23/README.md)
  ` 日本东京方舟农场`
 
-### [拜登政府因国家安全问题将27家公司列入黑名单](/content/gnews/22/README.md)
+### [拜登政府因国家安全问题将27家公司列入黑名单](/content/gnews/24/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [[Michael.Tonny专栏]接种CCP病毒疫苗已在欧盟造成118.1万人产生不良反应](/content/gnews/23/README.md)
+### [[Michael.Tonny专栏]接种CCP病毒疫苗已在欧盟造成118.1万人产生不良反应](/content/gnews/25/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [洪都拉斯总统候选人之幕僚否认胜选后立即与台湾断交](/content/gnews/24/README.md)
+### [洪都拉斯总统候选人之幕僚否认胜选后立即与台湾断交](/content/gnews/26/README.md)
  ` 日本东京方舟农场`
 
-### [2021年11月24日新闻集](/content/gnews/25/README.md)
+### [2021年11月24日新闻集](/content/gnews/27/README.md)
  ` 澳喜农场`
 
-### [中共国利用大数据加快推行数字货币妄图控制全球金融](/content/gnews/26/README.md)
+### [中共国利用大数据加快推行数字货币妄图控制全球金融](/content/gnews/28/README.md)
  ` 澳喜农场`
 
-### [墙内在亚马逊购买青蒿素经验和使用后效果分享](/content/gnews/27/README.md)
+### [墙内在亚马逊购买青蒿素经验和使用后效果分享](/content/gnews/29/README.md)
  ` 澳喜农场`
 
-### [ASIC向澳大利亚60万加密货币投资者发出警告](/content/gnews/28/README.md)
+### [ASIC向澳大利亚60万加密货币投资者发出警告](/content/gnews/30/README.md)
  ` 走进澳洲`
 
-### [11/24/2021 文贵直播：疫苗灾难导致中共国近期爆炸和交通事故频发、染病人数攀升、医院爆满](/content/gnews/29/README.md)
+### [11/24/2021 文贵直播：疫苗灾难导致中共国近期爆炸和交通事故频发、染病人数攀升、医院爆满](/content/gnews/31/README.md)
  ` 秘密翻译组-北美组`
 
-### [【盖茨基金】仍不遗余力资助中共政府科研机构](/content/gnews/30/README.md)
+### [【盖茨基金】仍不遗余力资助中共政府科研机构](/content/gnews/32/README.md)
  ` 加拿大扬帆农场《枫叶快讯》`
 
-### [美前国务卿迈克·蓬佩奥： 奥运会在北京举办是完全不合适的](/content/gnews/31/README.md)
- ` 美国政要直译推`
-
-### [COVID-19 最新情报｜不忍了！前英超球员直播质疑疫苗遭断播 前国脚声援](/content/gnews/32/README.md)
+### [COVID-19 最新情报｜不忍了！前英超球员直播质疑疫苗遭断播 前国脚声援](/content/gnews/33/README.md)
  ` G&#124;News TAIWAN`
-
-### [GTV新闻访谈简报|2021年11月24日晚](/content/gnews/33/README.md)
- ` 纽约香草山MOS01`
 
 ### [柳传志号召联想同仁团结起来同仇敌忾捍卫联想荣誉](/content/gnews/34/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
