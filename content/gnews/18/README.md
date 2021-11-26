@@ -2,24 +2,43 @@
 ---
 
 
-## 欠债不还，花样年被申请清盘
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1696938/)
+## 六百名谷歌员工签署宣言推翻公司的疫苗强制接种政策
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1696948/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-777.png)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fp4.itc.cn%2Fimages01%2F20200624%2F2cbda82f5ad44e82a147e49b04c9bc18.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F403933823_100001551&amp;tbnid=3zCznJSVWlmjYM&amp;vet=12ahUKEwiH9cv9irX0AhVOnksFHQRlCXMQMygEegUIARCgAQ..i&amp;docid=4-bxEbM-y7drfM&amp;w=1440&amp;h=1080&amp;itg=1&amp;q=%E8%8A%B1%E6%A0%B7%E5%B9%B4&amp;ved=2ahUKEwiH9cv9irX0AhVOnksFHQRlCXMQMygEegUIARCgAQ)
-中共国房地产企业——花样年控股集团有限公司称，其主要附属公司香港花样年投资控股集团有限公司周三（24日）被申请清盘呈请，内容有关据称未偿还本金为1.49亿美元之贷款融资，花样年投资为担保人。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-据周四晚间的公告，花样年控股将寻求法律意见以维护其合法权益，并采取一切必要措施解决此事，包括与呈请人进行建设性的对话。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/google-employees-1.jpg) 
 
-因美元债违约陷入债务旋涡的花样年控股此前表示，公司正与相关债权人积极磋商，以就与债权人重续或延长其借款或其他安排达成协议；并称集团面临流动资金问题。
 
-该公司间接全资控股的花样年集团（中国）周三公告，将于周四（25日）开始支付所发公司债“20花样02”年度债券利息，其中20%于25日按期支付，方式为场外支付；剩余80%于2022年11月25日延期兑付。
 
-消息来源：[中国房企花样年子公司被申请清盘 涉未偿还本金1.49亿美元贷款融资](https://cn.reuters.com/article/fantasia-hk-liquidation-1126-idCNKBS2IB03P?il=0)
+图片来源：nypost.com
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+
+#### 编译：小红帽
+
+在美国拥有约15万名员工的谷歌（Google）公司规定，所有与政府承包商打交道的员工都必须全面接种新冠疫苗，即使他们在家办公，其他员工也被要求报告他们的疫苗接种情况。
+
+然而，这项新措施在公司内部遭到了反对，约有600名员工签署了一份宣言，要求谷歌“包容所有谷歌员工”并推翻这项政策，同时呼吁其他员工“反对疫苗强制接种”政策。
+
+据CNBC首先报道，这份宣言至少有600人签署，要求公司高管放弃“包括所有谷歌员工”的疫苗强制接种政策。
+
+该宣言敦促员工“在原则上反对强制接种疫苗”，并鼓励他们不要让强制接种疫苗的政策影响他们接受疫苗的意愿。
+
+谷歌已将员工申请疫苗豁免的截止日期设为11月12日，从1月10日起，员工将被要求每周在办公室工作三天。
+
+谷歌首席执行官桑达尔·皮查伊(Sundar Pichai)在7月的一篇博文中宣布，该公司要求员工全面接种新冠疫苗后才能返回工作岗位。
+
+**参考新闻：**[600 Google Employees Sign Manifesto to Overturn the Company’s Vax Mandate (humansarefree.com)](https://humansarefree.com/2021/11/600-google-employees-to-overturn-vaccine-mandate.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
