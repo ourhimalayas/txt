@@ -2,33 +2,42 @@
 ---
 
 
-## 为勇敢校长鼓掌
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1697370/)
+## 新中国联邦人能力所及之处，都是我们的国土
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1697409/)
 
-撰稿：Patty
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1126B.jpg)网络图片
-来自珀斯 Divine Mercy College 的校长 Adam Zydek 因政府强行要求接种疫苗宣布将在2022年暂停幼儿园班的运营。
+撰稿：东京樱花团—在远方
 
-当地政府要求从2022年第一学期开始，所有员工必须接种疫苗。如果发现雇主雇佣了未接种疫苗的员工将被罚款10万澳元，未接种疫苗的员工将面临2万元的罚款。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
 
-Adam Zydek告诉学校工作人员 : 为避免强制接种疫苗，他正考虑关闭学校。因为他认为，疫苗比感染病毒更糟糕。而用于开发疫苗的技术可能造成胎儿流产。而且他相信，那些没有接种疫苗的人会被从家里带走，强行接种疫苗，然后被关进集中营。
 
-但是，Adam Zydek不能单方面关闭学校，因为这取决于懂事会。周三Zydek 在给家长的信中已经通知了将在2022年暂停幼儿园的营运。
 
-教育厅长Sue Ellery 告诉《西澳洲报》她对学校的决定感到困扰。她表示 :“如果Divine Mercy College 的管理机构回应了教育厅关于明年计划 ( 接种疫苗 ) 的正式要求，那将非常有帮助。我真的很有信心，绝大多数的教育工作者都会接种疫苗，这将有助于确保西澳学校明年的安全”。
 
-在政府疫苗暴政的当下，有勇敢的人站出来和强权说不，就是英雄。这才是在自由国度里应该有的声音。随着疫苗接种率的不断攀升，接踵而至的是更多健康的人的因疫苗导致了疾病，如血栓，心肌炎，心包炎，癌症，流产，畸胎等等。更还有数不尽的因接种疫苗而死亡的人。但是那些贪婪的政客置若罔闻，掩盖疫苗危害真相，根本不理会科学家拿出的相关证据和数据。
 
-昨天Paul Marik医生向强制疫苗说不，而今天Adam Zydek 校长也站了出来，还有每时每刻都在揭露疫苗真相的大胡子医生Dr Zelenko，以及世界各地的勇敢民众，他们走在街上和平抗争疫苗暴政。
+在11月24日的大直播中，郭文贵先生谈到他对国家的独到观点。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11261-1.png)
+郭先生称，中共每年的维稳经费高达一万亿美元，其中4成用于海外蓝金黄。因为中共认为，国家这个概念一家不适合21世纪，中共企图通过全球维稳，将国家的边界最大化。
 
-同时我们当然也不能忘记新中国联邦的所有战友，每个人都在默默的为自由舔砖加瓦。
+郭先生表示 ，国家绝不等同于国土。哪里有人相信你，接受你的金融货币系统，哪里就是你的国家。未来，凡新中国联邦人能力所及之处，都是我们的国土，甚至地球之外的生存空间。GTV、GNews、盖特，以及喜联储，打造了实现这一愿景的基础。经过新中国联邦人的共同努力，G系列生态的不断发展、壮大、成熟，将承载新中国联邦走向更光明的未来。
 
-众神会眷顾我们善良的人，神与我们同在。
+新闻链接: [2021年11月24日文贵先生直播小飞象大雨围城速记](https://gnews.org/zh-hans/1677917/)
 
-新闻参考链接：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-5.jpg)
 
-[Daily Mail](https://www.dailymail.co.uk/news/article-10241383/Anti-vax-principal-closes-Perth-kindergarten-avoid-Western-Australias-vaccine-mandate.html)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/TA1.jpg)
+总编: 文特
+
+编辑: 飞虹/雪梨
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

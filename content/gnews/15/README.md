@@ -2,40 +2,48 @@
 ---
 
 
-## 郭文贵先生谈习近平的独裁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1697555/)
+## 台湾对美国总统拜登邀请台湾参加下个月举行的民主峰会表示感谢
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1697680/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在11月24日的大直播中，郭文贵先生谈到了共产党的统治。
+作者：银河勇气星—骄子
 
-郭先生提到，当初，苏联共产党认为，一个弱化的中国才符合世界利益；现在，中国共产党正在挑战美国并发动第三次世界大战——虽然中共国家非常富强，但中国人却在四处奔逃、躲藏。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-8.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-20.jpeg)
 
-郭先生补充，早在1989年，王岐山等人便开始利用家族信托掠夺国内的财富，并在海外建立了自己的帝国；其后，孟建柱也曾有野心当中共的领导人，但这二人目前都已经被习近平控制。而这些现状都是共产党魔鬼、独裁的体制造成的。
 
-郭先生还解释，在中共盗国的这几十年间，中共完全就是劫匪——不仅不会给老百姓留下财富，还会根据需要拿走百姓的性命。但在习近平的眼中，中共和中国人都只是工具。
 
-至于习近平，郭先生透露，在把独裁工具用完之后，习近平最担心的是，在自己下台之后，中国的戈尔巴乔夫会找他清算——在独裁的体制之下，这也是必然的。
 
-郭先生提到，习的疯狂远甚于毛泽东、希特勒和斯大林的总和，但如今，他已恐惧到了极点。为此，自2020年1月起，习既不敢走出国门，在国内也居无定所、四处流窜——其目的只为掩人耳目，装神弄鬼。
+台湾对美国总统拜登邀请台湾参加下个月举行的民主峰会表示感谢，此次民主峰会将于12月9日和10日以视频方式举办，峰会的受邀国家与地区有110个，参与的有全球100多个民主国家的领袖与代表，中共、俄罗斯和越南都不在受邀名单中。拜登总统今年2月在他的首次外交政策讲话中宣布了举办民主峰会的计划。他说，他将让美国重返国际领导地位，对抗中共和俄罗斯主导的威权主义力量。此次民主峰会的主题包括防范威权主义、处理和打击腐败以及推动尊重人权。
 
-参考链接：[2021年11月24日文贵先生直播小飞象大雨围城速记](https://gnews.org/zh-hans/1677917/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/FBA8A864-141C-4DA1-8D4F-B8BE4D6C1F8E_w1023_r1_s.jpg)图片来源: VOA
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+参考阅读: 
+[https://www.voachinese.com/a/Taiwan-Appreciates-Being-Invited-To-Democracy-Summit/6326005.html](https://www.voachinese.com/a/Taiwan-Appreciates-Being-Invited-To-Democracy-Summit/6326005.html)
 
-总编：木白
-编辑：飞虹
-校正/发稿：谐趣园
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-8.jpg)
+
+编辑: Irene木木
+
+校对/发稿：一烘
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-8.png)
+
+
+
+
+
 
 
  

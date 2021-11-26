@@ -2,41 +2,24 @@
 ---
 
 
-## 新中国联邦人能力所及之处，都是我们的国土
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1697409/)
+## 文贵大直播11.26.2021 喜币面前见人心!
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1697446/)
 
-撰稿：东京樱花团—在远方
+撰稿：回响
+![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-26-at-8.47.09-AM.jpeg)图片来源：GTV & GETTR
+2021年11月26日感恩节结束的第二天，新中国联邦创始人郭文贵先生在文贵大直播中，谈到不同人面对喜币的种种故事见证了人心与人性。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
+郭先生分享了海外战友因为喜币的买卖和日本、美国、英国友人的意见交换，并且深刻剖析了背后反映出来的文化差异。
+
+有趣的问题会引发智慧的思考和答案。如果像九指妖、王腚缸、蛇妖闫这样的伪类们今天还在爆料革命中，它们会如何对待喜币？现场的嘉宾如果随时把喜币卖掉，会如何去使用手中的财富？
+
+文贵先生和现场嘉宾们充分地交流之后，很认真地指出：喜币前、喜币后，一个人的不同反应一定会证明，爆料革命面前，没有任何人不暴露出一个真实的自己。喜币面前见人心、见人性。
+
+【原文链接】https://gtv.org/broadcast/watch/61a0daac44c1fe7a6c39814e
+
+校对发布: Shifter
 
 
-
-
-
-在11月24日的大直播中，郭文贵先生谈到他对国家的独到观点。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11261-1.png)
-郭先生称，中共每年的维稳经费高达一万亿美元，其中4成用于海外蓝金黄。因为中共认为，国家这个概念一家不适合21世纪，中共企图通过全球维稳，将国家的边界最大化。
-
-郭先生表示 ，国家绝不等同于国土。哪里有人相信你，接受你的金融货币系统，哪里就是你的国家。未来，凡新中国联邦人能力所及之处，都是我们的国土，甚至地球之外的生存空间。GTV、GNews、盖特，以及喜联储，打造了实现这一愿景的基础。经过新中国联邦人的共同努力，G系列生态的不断发展、壮大、成熟，将承载新中国联邦走向更光明的未来。
-
-新闻链接: [2021年11月24日文贵先生直播小飞象大雨围城速记](https://gnews.org/zh-hans/1677917/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-5.jpg)
-
-总编: 文特
-
-编辑: 飞虹/雪梨
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
 
  
 

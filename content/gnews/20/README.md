@@ -2,27 +2,30 @@
 ---
 
 
-## 美国250万卡车司机绝不接受疫苗强制令
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1697526/)
+## 柳传志在中共体制下毫无立身之地
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1697586/)
 
 作者：纽约香草山文艺部 – 宁文静
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月24日，郭文贵先生在大直播中谈到，柳传志代表了中国企业家的良心。
 
-11月24日，美国卡车协会在众议院举行的听证会上声明，如果拜登政府不改变强制新冠疫苗接种政策，250万的卡车司机将会离职。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9-18.jpg)
-卡车协会的CEO克里斯·斯皮尔表示，通过该协会的调查显示，37%的司机绝对不接受白宫的新冠疫苗授权政策，为此，超过250万的卡车司机将停止工作。斯皮尔补充说，安全与卫生署并不拥有执行强制新冠疫苗接种令的法律授权。另一方面，虽然该署暂时遵从了第五巡回法院关于疫苗的停止令，但来自新冠疫苗的威胁并没有消除。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2-16.jpeg)
 
-资料显示，该卡车协会负责美国超过80%的陆路运输。但目前，全美多个港口已经出现了严重的货物拥堵情况。对此，卡车协会警告，如果拜登政府的新冠疫苗强制接种令不立即转向，将会导致数百万的卡车司机因此离职，从而加剧目前的供应链危机，甚至对经济和通货膨胀也将产生灾难性的后果。
+郭先生表示，柳传志没有政治野心，只是埋头钻研电子科技和互联网技术。然而，偌大的中共却容不下这位IT行业的领军人物。
 
-参考链接：
-[2.5 MILLION TRUCKERS WILL QUIT OVER VACCINE MANDATE IF BIDEN DOESN’T REVERSE COURSE](https://rsbnetwork.com/news/2-5-million-truckers-will-quit-over-vaccine-mandate-if-biden-doesnt-reverse-course/)
+据郭先生回忆，上世纪八十年代，贺龄乐先生带领柳传志等一批企业家打开了中共电子行业的大门。其中，作为联想集团创始人的柳传志则专注技术，壮大了行业，更扶植了无数中共企业家，且从不计利益和回报。彼时，在鼓励私营企业发展壮大的时代风口，以柳传志为代表的电子与互联网行业飞速发展。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+郭先生补充，柳传志作为一位行事低调、品行高尚的企业家，即使是日本人在谈到柳先生时也恭敬有加，赞誉他诚实、谦虚、自信地维护中国人的尊严。然而，在习近平和王岐山以国企当道、私企收归党的政策转向中，柳传志却备受打压——柳青的滴滴公司在合法上市后被紧急叫停，柳传志自己也被司马南之流疯狂撕咬。
 
-总编：Ivy001
-编辑：Jack Li文阳
-校正/发稿：Fei797
+郭先生感叹，在自称是世界第二经济体的中共国里，柳传志这样的人物竟然难有其立身之地，这是所有良心企业家的悲哀。
+
+参考链接：[2021年11月24日 文贵大直播：北京深圳香港交易所；病毒疫苗灾难与解药；喜币喜联储GTV股票；新中国联邦灭共使命](https://gtv.org/video/id=619e389338f84e66c64ec66b)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：文特
+编辑：文特
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -30,9 +33,7 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

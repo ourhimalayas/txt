@@ -15,119 +15,119 @@
 
 ---
 
-### [中共国禁止名人在网上炫富，且须遵守社会主义核心价值观](/content/gnews/1/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [涨声一片，通胀加剧零售业掀起涨价潮](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/2/README.md)
- ` wenwu`
-
-### [SARS-CoV-2 刺突蛋白损害 DNA 损伤修复并抑制体外 V(D)J 重组](/content/gnews/3/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [【文贵先生大直播PPT】币安与加密货币行业现状](/content/gnews/4/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [英广播主持人因暗示足球运动员猝倒或与疫苗有关而被停播](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [台湾对美国总统拜登邀请台湾参加下个月举行的民主峰会表示感谢](/content/gnews/6/README.md)
- ` 纽约香草山MOS01`
-
-### [银河快讯：东芝大股东对分拆方案“不支持”；纪文将鱼肉制品价格提高](/content/gnews/7/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [红色资本下的黑赌场：中共股市](/content/gnews/8/README.md)
- ` GTV新闻访谈`
-
-### [11/26/21 香港快讯 阻港版国安法入台 民团：拒港府接管台湾苹果](/content/gnews/9/README.md)
- ` 英喜-粵語組`
-
-### [美国必须为中共国与台湾战争做好准备](/content/gnews/10/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [柳传志在中共体制下毫无立身之地](/content/gnews/11/README.md)
- ` GTV新闻访谈`
-
-### [NBA凯尔特人队球星坎特如愿加入美国籍](/content/gnews/12/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [中国共产党不等于中国人民](/content/gnews/13/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [秘翻在线：中共利用比特币洗钱却用反洗钱名义禁止老百姓购买虚拟货币](/content/gnews/14/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [郭文贵先生谈习近平的独裁](/content/gnews/15/README.md)
- ` GTV新闻访谈`
-
-### [美国释放战略原油以遏制油价失控飙升](/content/gnews/16/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [银河快讯: 日本呼吁俄罗斯进行和平条约谈判；日本交易所讨论金融所得税](/content/gnews/17/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [【文贵先生大直播PPT】青蒿素功效 疫苗灾难](/content/gnews/18/README.md)
- ` Mr. Miles Guo's News Briefing`
-
-### [欧议员呼吁尊重个体的完整性和反对强制疫苗](/content/gnews/19/README.md)
- ` 日本东京方舟农场`
-
-### [美国250万卡车司机绝不接受疫苗强制令](/content/gnews/20/README.md)
- ` GTV新闻访谈`
-
-### [灭共“护芯”战：美国议员再访台湾遭中共国驻美大使馆威胁](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [郭文贵先生呼吁战友集体起诉币安公司](/content/gnews/22/README.md)
- ` GTV新闻访谈`
-
-### [2021/11/22班农专访6: 北京证劵交易所启动交易，加速经济危机](/content/gnews/23/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [文贵爆料11.24.2021 CCP病毒疫苗次生灾难惨烈程度超出想象 执迷之人却视而不见](/content/gnews/24/README.md)
- ` 秘密翻译组-原创组`
-
-### [GTV新闻访谈简报|2021年11月26日早](/content/gnews/25/README.md)
- ` 纽约香草山MOS01`
-
-### [各国政府或将对币安实行更严格金融监管](/content/gnews/26/README.md)
- ` 加拿大扬帆农场《枫叶快讯》`
-
-### [赵长鹏受中共掌控 藏身迪拜](/content/gnews/27/README.md)
- ` GTV新闻访谈`
-
-### [将人民带入最低需求的中共政权](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [英国科学家发现新冠病毒新变种](/content/gnews/29/README.md)
- ` GTV新闻访谈`
-
-### [文贵大直播11.26.2021 喜币面前见人心!](/content/gnews/30/README.md)
- ` 秘密翻译组-原创组`
-
-### [司马南之流是华人之耻](/content/gnews/31/README.md)
- ` GTV新闻访谈`
-
-### [11/26/2021国际财经快讯：罗氏股东批准收购诺华股份；大众汽车认为Europcar交易具有吸引力](/content/gnews/32/README.md)
- ` 秘密翻译组金融团队`
-
-### [新中国联邦人能力所及之处，都是我们的国土](/content/gnews/33/README.md)
- ` GTV新闻访谈`
-
-### [文贵大直播：CCP病毒疫苗灾难及其次生灾难的惨烈程度或超乎想象](/content/gnews/34/README.md)
- ` 秘密翻译组-即时新闻播报组`
-
-### [美参议员谈彭帅被性侵及失踪，强调中共国不安全](/content/gnews/35/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [为勇敢校长鼓掌](/content/gnews/36/README.md)
+### [11月26日文贵大直播快讯——邪恶势力企图大量减少人口](/content/gnews/2/README.md)
  ` 澳喜特战旅Gnews`
 
-### [七哥说—第31期](/content/gnews/37/README.md)
+### [数百名Google员工签署了反对公司疫苗授权的宣言](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|美国邀请台湾参加其民主峰会](/content/gnews/38/README.md)
- ` MOSREC`
+### [凭证买煤重启计划经济，鞍钢本钢再现下岗大潮](/content/gnews/4/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [11月26日文贵大直播快讯——警惕中共感恩节放毒](/content/gnews/5/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [刘峦雄抛弃恒大许家印，亏钱走人](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [格陵兰剥夺了中共国矿业公司的铁矿床许可证](/content/gnews/7/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [霍兹医生报告：COVID 疫苗是一种险恶的“特洛伊木马”](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共国禁止名人在网上炫富，且须遵守社会主义核心价值观](/content/gnews/9/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [西喜时事新闻简报 — 中共国国际时事篇](/content/gnews/10/README.md)
+ ` wenwu`
+
+### [SEC任命JND为基金管理人 处理GTV投资款返还事宜](/content/gnews/11/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [SARS-CoV-2 刺突蛋白损害 DNA 损伤修复并抑制体外 V(D)J 重组](/content/gnews/12/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [【文贵先生大直播PPT】币安与加密货币行业现状](/content/gnews/13/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [英广播主持人因暗示足球运动员猝倒或与疫苗有关而被停播](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [台湾对美国总统拜登邀请台湾参加下个月举行的民主峰会表示感谢](/content/gnews/15/README.md)
+ ` 纽约香草山MOS01`
+
+### [银河快讯：东芝大股东对分拆方案“不支持”；纪文将鱼肉制品价格提高](/content/gnews/16/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [红色资本下的黑赌场：中共股市](/content/gnews/17/README.md)
+ ` GTV新闻访谈`
+
+### [11/26/21 香港快讯 阻港版国安法入台 民团：拒港府接管台湾苹果](/content/gnews/18/README.md)
+ ` 英喜-粵語組`
+
+### [美国必须为中共国与台湾战争做好准备](/content/gnews/19/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [柳传志在中共体制下毫无立身之地](/content/gnews/20/README.md)
+ ` GTV新闻访谈`
+
+### [NBA凯尔特人队球星坎特如愿加入美国籍](/content/gnews/21/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [中国共产党不等于中国人民](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [秘翻在线：中共利用比特币洗钱却用反洗钱名义禁止老百姓购买虚拟货币](/content/gnews/23/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国释放战略原油以遏制油价失控飙升](/content/gnews/24/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [银河快讯: 日本呼吁俄罗斯进行和平条约谈判；日本交易所讨论金融所得税](/content/gnews/25/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [【文贵先生大直播PPT】青蒿素功效 疫苗灾难](/content/gnews/26/README.md)
+ ` Mr. Miles Guo's News Briefing`
+
+### [欧议员呼吁尊重个体的完整性和反对强制疫苗](/content/gnews/27/README.md)
+ ` 日本东京方舟农场`
+
+### [郭文贵先生呼吁战友集体起诉币安公司](/content/gnews/28/README.md)
+ ` GTV新闻访谈`
+
+### [2021/11/22班农专访6: 北京证劵交易所启动交易，加速经济危机](/content/gnews/29/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [文贵爆料11.24.2021 CCP病毒疫苗次生灾难惨烈程度超出想象 执迷之人却视而不见](/content/gnews/30/README.md)
+ ` 秘密翻译组-原创组`
+
+### [各国政府或将对币安实行更严格金融监管](/content/gnews/31/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [赵长鹏受中共掌控 藏身迪拜](/content/gnews/32/README.md)
+ ` GTV新闻访谈`
+
+### [文贵大直播11.26.2021 喜币面前见人心!](/content/gnews/33/README.md)
+ ` 秘密翻译组-原创组`
+
+### [司马南之流是华人之耻](/content/gnews/34/README.md)
+ ` GTV新闻访谈`
+
+### [11/26/2021国际财经快讯：罗氏股东批准收购诺华股份；大众汽车认为Europcar交易具有吸引力](/content/gnews/35/README.md)
+ ` 秘密翻译组金融团队`
+
+### [新中国联邦人能力所及之处，都是我们的国土](/content/gnews/36/README.md)
+ ` GTV新闻访谈`
+
+### [文贵大直播：CCP病毒疫苗灾难及其次生灾难的惨烈程度或超乎想象](/content/gnews/37/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [七哥说—第31期](/content/gnews/38/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
 ### [美国出台制裁清单 中共战狼再跳脚](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

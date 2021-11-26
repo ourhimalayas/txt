@@ -2,43 +2,46 @@
 ---
 
 
-## 文贵大直播：CCP病毒疫苗灾难及其次生灾难的惨烈程度或超乎想象
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1697406/)
+## 司马南之流是华人之耻
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1697426/)
 
-**By:秘翻新闻**
+撰稿：纽约香草山文艺部 – 宁文静
 
-***2021-11-26***
-[![](https://assets.gnews.org/wp-content/uploads/2021/11/1126.png)](https://gtv.org/broadcast/watch/61a0a01944c1fe7a6c394a20)点击图片观看视频
-**新闻摘要:**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
 
-1. 再爆本土疫情 上海三小区列为中风险区
 
-2. 浙江大學被封校檢測
 
-3. 为自己孩子跳楼发声 微博大V被封号
 
-4. 中共掏空人民养老金
 
-5. 文贵大直播：CCP病毒疫苗灾难及其次生灾难的惨烈程度或超乎想象
+在11月24日大直播中，郭先生严辞斥责司马南、方舟子、胡锡进等人的恶略行径，已严重破坏华人的国际形象。新中国联邦要依法严惩中共的帮凶。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11262.png)
+郭先生爆料，受习近平指使，司马南连续污蔑柳传志先生，把联想集团逼到风口浪尖，以帮助华为搞垮联想手机业务。这实际是一场针对良心企业家柳传志先生的阴谋。
 
-6.  告密者护士说政客接受生理盐水而不是 MRNA 注射
+司马南、方舟子、胡锡进等人不但没有为社会创造价值，反而以“公知”的身份，充当中共的宣传机器，用谎言误导民众。更可恶的是，他们极端言论，严重影响了华人的整体国际形象，为可能发生的排华情绪，埋下了祸根。
 
-7.  警惕！所罗门群岛爆发抗议活动 唐人街商铺成攻击目标
+郭先生说，新中国联邦有责任制止这些人作恶。并已安排工作小组收集司马南等反人类、反西方、种族歧视的极端言论。法治基金和法治社会将依法对其发起诉讼。
 
-8. 国际立法者联盟反对中共公安任职国际刑警
 
-9. 捷克总统全程接种疫苗被确认感染中共病毒
 
-10. 中共开采刚果矿产发财　中国人再遭绑架 2人遇害
+新闻链接: [2021年11月24日 文贵大直播：北京深圳香港交易所；病毒疫苗灾难与解药；喜币喜联储GTV股票；新中国联邦灭共使命](https://gtv.org/video/id=619e389338f84e66c64ec66b)
 
-**GTV链接：**[https://gtv.org/broadcast/watch/61a0a01944c1fe7a6c394a20](https://gtv.org/broadcast/watch/61a0a01944c1fe7a6c394a20)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-5.jpg)
 
-发布: 文橙
+总编: 文特
 
-* * *
+编辑: 文真
 
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
