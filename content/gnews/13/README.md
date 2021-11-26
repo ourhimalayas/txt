@@ -2,39 +2,43 @@
 ---
 
 
-## 法国计划对成年人接种疫苗加强针
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696428/)
+## 彼得·达顿在NPC讲话中表示中共国的活动“越来越令人担忧”
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1696533/)
 
-作者： 纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-212.png)
-周四，法国卫生部长宣布，计划向所有成年人提供新冠疫苗加强针，并制定更严格的佩戴口罩规则及健康通行证检查，以遏制新一波病毒感染。
+撰稿：亭湖来客
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1126A.jpg)图片来源于网络
+澳大利亚国防部长彼得·达顿 (Peter Dutton) 警告说，澳大利亚正面临着自二战以来最重大的战略环境变化，同时指出每个主要城市都在中共国导弹的射程之内。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9-17.jpg)
+达顿先生在担任现职后首次在堪培拉全国新闻俱乐部发表讲话时表示，中共国希望和平的主张与其行动之间存在重大背离。
 
-此前，马克龙政府已表示，为避免像其他欧洲国家一样再次实施封锁，法国将执行更严格的社交距离规则，并尽快制定加强针接种计划。
+他说，仅在过去的二十年里，中共国的海军作战力量就增加了两倍多，成为世界上最大的海军。
 
-据悉，法国政府预计，将全面疫苗接种至加强针注射的间隔时间，从六个月减少到五个月，并将PCR测试有效期缩短到一天。
+“今天，我们面临着自二战以来战略环境最重大的变化。”
 
-此外，法国人进入餐馆、咖啡馆、电影院和博物馆等公共场所，都需要接种新冠疫苗加强针。
+“再一次，澳大利亚发现自己处于全球战略竞争的中心地带……见证了规模化和野心的军事集结，而这在历史上很少有和平的结果。”
 
-参考链接：
+“在Covid-19大流行下，（中共国）加剧了地区的紧张局势。”
 
-- [France extends COVID-19 booster shots to all adults](https://www.reuters.com/world/europe/france-announce-covid-19-booster-shots-all-adults-media-2021-11-24/?utm_source=ground.news&amp;utm_medium=referral)
+达顿先生表示，中共政府曾表示致力于和平、合作与发展，但其行为变得越来越令人担忧。
 
+“然而，我们见证了言行之间、言辞与众所周知的现实之间的严重背离。”他说，“澳大利亚人与印太地区及世界人民，一直在密切地关注中共政府所从事越来越令人震惊的行动。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
+达顿认为，澳大利亚的每个主要城市都在中共国导弹的射程之内，预计这些导弹的弹头可达700至1000枚。
 
-总编：飞虹
-编辑：文特
-校正/发稿：海阔天空1
+“现在，澳大利亚人希政府能够坦率地谈论国家所面临的挑战。不让他们回避困难的问题或侮辱他们的智商。”
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+达顿先生说，他曾多次与总理莫里森谈过“我们如何生活在 1930 年代的回声中”。
 
+“世界如果重蹈 1930 年代的覆辙，将是愚蠢的。”
+
+“我们生活在高度紧张的时期，但该地区并非不可避免地走向冲突……只有所有善意国家共同确保，我们才能尽最大努力避开悬崖。”
+
+“如果冲突是由于误解、误判或敌意而发生的，那对我们所有人来说都是灾难性的……澳大利亚的立场非常明确——必须避免冲突。”
+
+新闻参考资料：
+
+[Peter Dutton says China’s activities ‘increasingly alarming’ during National Press Club address](https://travelguides.buzz/peter-dutton-says-chinas-activities-increasingly-alarming-during-national-press-club-address/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

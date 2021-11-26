@@ -2,26 +2,45 @@
 ---
 
 
-## 日本外相首次与俄外长通电话，严重关切中俄联合军事活动
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1696320/)
+## 德国新政府公布四条对中政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696415/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-211.png)
-据日本共同社11月25日报道，日本外相林芳正25日，在就任后首次与俄罗斯外长拉夫罗夫举行电话会谈，就俄罗斯与中共在日本周边的军事活动趋于活跃，表示了严重关切。
+作者： 纽约香草山医疗部 – 云豹
 
-两人还围绕包括北方四岛领土问题在内的和平条约缔结谈判，确认将基于日俄之间迄今的各种共识来展开磋商。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-212.png)
 
-中俄海军舰艇10月同时绕日本列岛航行了几乎一周。本月，中俄轰炸机在日本海和东海上空长途飞行等，加强了军事合作。
+11月24日，即将正式上任的德国新政府，向民众公布四条与中共相关的政策。
 
-日俄外长在会谈中，讨论了力争在北方四岛实施的共同经济活动以及原岛民等扫墓事宜。两人还谈及朝鲜的核与导弹开发。林芳正就朝鲜绑架日本人问题寻求了理解与合作。他还表示期待与拉夫罗夫举行面对面会谈。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-33.jpg)
 
-信息来源：
+一、在贸易上，与中共公平竞争；
 
-[日本外相与俄外长通电话就军事动向表示关切](https://china.kyodonews.net/news/2021/11/a0c7473607cd--.html)
+二、在人权和国际法的基础上，与中共合作。新政府还表示，欧盟需共同制定应对中共的政策，悍卫欧盟的利益和价值观。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+三、新政府将与美国及其它理念相同的国家合作，减少对中共的战略依赖，并表示在遵守国际海洋法的基础上，解决南海和东海的领土争议。
+
+四、声明在欧盟“一中政策”的前提下，支持台湾参与国际组织，并认为必须在和平及双方都同意的情况下，才能改变台海现状。
+
+此外，德国新政府还批评中共在新疆、香港的人权问题。
+
+参考链接：
+
+- [德國新政府將挺台參與國際 指兩岸同意才能改變現狀](https://www.cna.com.tw/news/firstnews/202111250005.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
+
+总编：文特
+编辑：文特/雪梨
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

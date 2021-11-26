@@ -2,36 +2,42 @@
 ---
 
 
-## 因帮助中共军方获取技术，美国“实体名单”再添27家
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696396/)
+## 澳洲前医疗官员警告新冠“疫苗”强制令对儿童有害
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1696427/)
 
-作者： 纽约香草山农场 – 007
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-212.png)
-11月24日，因从事违背美国国家安全和外交政策利益的活动，美国商务部宣布，将27个位于中共国和巴基斯坦的公司和实体列入“实体名单”。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-10.png)
-
-其中包括：帮助中共军方获取量子计算技术的杭州中科、新华三、 国盾量子等八家中共国公司，支持巴基斯坦无安全保障核活动和弹道导弹计划、在中共国和巴基斯坦经营的16个实体和个人，参与了从西方向伊朗、朝鲜、中共国军事项目出售技术的嘉兆科技的三个子公司。此外，俄罗斯的莫斯科物理与技术研究所被列入“军事终端用户”名单。
-
-一家公司或实体被美国商务部列为“实体名单”，意味着美国公司必须获得特别许可，才能向该公司出售产品，而这个特别许可的申请很可能被拒绝。
-
-参考链接：
-
-- [美商务部将帮助中国军方的中国公司列入贸易黑名单](https://www.voachinese.com/a/US-commerce-entity-list-chinese-companies-20211124/6326652.html)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/106972926-16364849812021-11-09t013129z_786024702_rc2kqq9xi22v_rtrmadp_0_health-coronavirus-usa-children.jpeg)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
+ 
+图片来源：www.cnbc.com
 
-总编：文特
-编辑：文特/雪梨
-校正/发稿：海阔天空1
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+#### 编译：小红帽
+
+澳大利亚的一位前首席医官挺身而出为儿童辩护，他说不应该强迫儿童注射新冠病毒（Covid-19）的 “疫苗”。
+
+出于某种原因，尼克·科茨沃思（Nick Coatsworth）并不关心12岁以上的儿童，他们和澳大利亚的所有成年人一样被要求注射新冠疫苗。然而，12岁以下的儿童应该得到豁免，科茨沃思说。
+
+除非儿童的父母希望他们接受注射，否则澳大利亚政府不应强迫12岁以下的儿童注射疫苗。在科茨沃思的声明发表之际，治疗用品管理局（TGA）正在考虑强制要12岁以下的儿童和婴儿注射莫德纳（Moderna）的Spikevax疫苗 。
+
+截至目前，莫德纳疫苗仍处于儿童mRNA（信使RNA）疫苗的试验阶段，它称之为 “KidCOVE”。该研究涉及年仅6个月大的儿童，一直到12岁。
+
+莫德纳声称，迄今为止的结果显示，在注射第一剂疫苗后两周，疗效达到了100%。
+
+“特别是在维多利亚州，首席卫生官在区别对待未接种疫苗的12至15岁儿童实行差别待遇，这违反了基本的自主道德原则。”科茨沃思补充说。
+
+**参考新闻：**[Covid “vaccine” mandates dangerous for children, warns former Australian medical official – NaturalNews.com](https://www.naturalnews.com/2021-11-25-covid-vaccine-mandates-dangerous-for-children.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
