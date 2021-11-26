@@ -2,13 +2,13 @@
 ---
 
 
-## 【1120三周年纪念】班农：与中共沆瀣一气的全球主义者们更想成为中共（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1696056/)
+## 世卫组织承认中共病毒疫苗不妨感染中共病毒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1696150/)
 
-【1120三周年纪念】班农先生：与中共沆瀣一气的全球主义者们更想成为中共。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1126-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

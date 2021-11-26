@@ -2,12 +2,28 @@
 ---
 
 
-## 【1120三周年纪念】班农：中国老百姓和美国老百姓有同样的品质，而正是这样的品质将最终消灭中共（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1696054/)
+## 中共国网信办严控明星粉丝管理
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1696137/)
 
-【1120三周年纪念】班农先生：支持着我为中国人争取民主和自由而战的是中国人的意志力、决心、对家庭与传统价值的敬奉和传承；中国老百姓和美国老百姓有着同样的品质，而正是这些品质将最终灭掉中共。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-e1637891198998.jpeg)
+据自由亚洲电台11月25日报道，中共国国家网信办表示将根据粉丝数量，对明星社交媒体账号进行分级管理，强调明星和粉丝团不得宣扬不良的价值观。微信、微博、快手、抖音等平台纷纷表示，将对娱乐明星的内容进行规范和整治，坚持健康格调。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+中共国网信办今年以来数次出手钳制网络言论。只是在要求明星的同时，中共自己的言论和行为呢？网球运动员彭帅实名举报前国家副总理张高丽之后就消失在公众视野，引发国际舆论，中共至今没有正面回复。中共国是世界上唯一一个实行严格的网络管制的独裁国家，所有媒体完全由国家掌控。中共国民众只能接受洗脑教育，党媒的言论就是方向。
+
+新闻参考链接：[https://www.rfa.org/mandarin/Xinwen/10-11252021164806.html](https://www.rfa.org/mandarin/Xinwen/10-11252021164806.html)
+
+编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
