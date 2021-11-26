@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/26/2021 1:01 PM (UTC)`
+
+2021年11月26日 文贵大直播：再谈青蒿素病毒疫苗解药；感恩节五千万人旅行后果；近日币安数字货币大变；喜币价值新中国联邦实力
+![img](https://media.gettr.com/group17/origin/2021/11/26/12/e6b78c20-a84f-f427-d981-98565dd555c4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
+
+---
+
 `@miles 11/26/2021 9:41 AM (UTC)`
 
 11月26号：昨天发出这个视频没有声音，这是怎么回事呢？在发发试试……
@@ -149,13 +156,6 @@
 是这个吧？
 > `@michaelyeadon 11/23/2021 3:30 PM (UTC)`<br/>Hello GETTR,<br/><br/>Thank you for all of your help and support! It is greatly appreciated.<br/>The truth is upon us, only a few more days left until I share the DARK SECRETS of Pfizer. They are trying to seal all documentation from the public until 2076 but I have the files and I will release them to you.<br/><br/>I NEED your HELP getting verified, it turns out I need more followers to qualify, so PLEASE SHARE this with everyone you know.<br/><br/>It's about your live, it's about your CHILDREN'S LIVES!<br/>@MichaelYeadon 
 ![img](https://media.gettr.com/group10/getter/2021/11/23/15/30/1e1824d7-5e2a-0300-1c97-eb2cd91db304/e57e6d82119d85d5ef8342f43e388f5c.jpg)
-
----
-
-`@miles 11/24/2021 1:27 AM (UTC)`
-
-1月月23号：这是真的吗？我怎么都找不到他本人的GETTR帐号呢？不会又是一个Q组织设的陷阱吧？
-![img](https://media.gettr.com/group46/getter/2021/11/24/01/27/04d397be-9133-957e-1d7f-c5e8a73d5d09/32bd546842310978008d088832c564e1.jpg)
 
 ---
 
