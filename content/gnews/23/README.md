@@ -2,35 +2,40 @@
 ---
 
 
-## 澳洲前医疗官员警告新冠“疫苗”强制令对儿童有害
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1696427/)
+## 所罗门群岛发生骚乱，澳大利亚派遣维和部队
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1696512/)
 
 #### **【雅典娜快讯】，紧贴时事脉搏**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/106972926-16364849812021-11-09t013129z_786024702_rc2kqq9xi22v_rtrmadp_0_health-coronavirus-usa-children.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Untitled125.png)图片来源：The Australia
 
 
- 
-图片来源：www.cnbc.com
+#### 整理报道：月映万川
+编辑：文泓
 
+在所罗门群岛连续第二天的暴乱后，澳大利亚总理斯科特·莫里森宣布，由23名成员组成的联邦警务特别应对小组已经赶赴该地区，并将提供相应支援。
 
-#### 编译：小红帽
+莫里森总理称，在本周五43名澳大利亚国防人员将部署在该地区，来加强对“关键基础设施”即全国机场的保护，另外50名澳大利亚联邦警察也会在未来几天继续增援。
 
-澳大利亚的一位前首席医官挺身而出为儿童辩护，他说不应该强迫儿童注射新冠病毒（Covid-19）的 “疫苗”。
+他已经收到了关于所罗门群岛首都霍尼亚拉市中心地区主路上许多建筑物被纵火的报告。这些建筑包括，大型商业建筑和银行网点。
 
-出于某种原因，尼克·科茨沃思（Nick Coatsworth）并不关心12岁以上的儿童，他们和澳大利亚的所有成年人一样被要求注射新冠疫苗。然而，12岁以下的儿童应该得到豁免，科茨沃思说。
+周四下午在与所罗门群岛总理玛拿西·索加瓦雷的危机会谈后，澳大利亚已经正式同意所罗门群岛的紧急援助要求。
 
-除非儿童的父母希望他们接受注射，否则澳大利亚政府不应强迫12岁以下的儿童注射疫苗。在科茨沃思的声明发表之际，治疗用品管理局（TGA）正在考虑强制要12岁以下的儿童和婴儿注射莫德纳（Moderna）的Spikevax疫苗 。
+而澳大利亚的维和部队将会在该地区部署“数周”。
 
-截至目前，莫德纳疫苗仍处于儿童mRNA（信使RNA）疫苗的试验阶段，它称之为 “KidCOVE”。该研究涉及年仅6个月大的儿童，一直到12岁。
+同时，莫里森总理也确认了驻该地的大使馆官员和家庭，以及所雇佣的当地雇员都是安全的。
 
-莫德纳声称，迄今为止的结果显示，在注射第一剂疫苗后两周，疗效达到了100%。
+此次所罗门群岛国内暴乱是由于抗议者反对其总理宣布的36小时紧急全国封锁引起的。抗议者们在议会大楼前要求总理辞职，随后一些抗议人群冲入了议会大厦。
 
-“特别是在维多利亚州，首席卫生官在区别对待未接种疫苗的12至15岁儿童实行差别待遇，这违反了基本的自主道德原则。”科茨沃思补充说。
+警察使用催泪瓦斯和橡皮子弹试图控制抗议活动，继而演变成骚乱，位于议会旁的一个警察局也被点燃。
 
-**参考新闻：**[Covid “vaccine” mandates dangerous for children, warns former Australian medical official – NaturalNews.com](https://www.naturalnews.com/2021-11-25-covid-vaccine-mandates-dangerous-for-children.html)
+抗议活动主要是针对这个太平洋岛国与中共国日益的紧密关系。同时，抗议人群也不满不断减少的就业机会与政府的不作为。
 
-***发布：小红帽***
+据本周四报告，目前其国内形势进一步恶化，并有数起打劫中国城商铺的报告。而目击者称，位于中国城的许多建筑燃起大火，并且周围集聚着大批示威人群。
+
+新闻：[Australia to send ADF and AFP to Solomon Islands amid mounting unrest](https://www.news.com.au/world/pacific/australia-to-send-adf-and-afp-to-solomon-islands-amid-mounting-unrest/news-story/b6e309bf20c88f91bc957726f0f04783)
+
+**发布：**文泓
 
 **更多资讯，请关注：****
 **[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
@@ -38,6 +43,10 @@
 [澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
 [澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
 [澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+
+
 
  
 

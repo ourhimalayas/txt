@@ -2,30 +2,45 @@
 ---
 
 
-## 两中国人在刚果被杀，八人被绑架，中共政府毫不关心
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1696325/)
+## 德国新政府公布四条对中政策
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696415/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-102.jpg)
-刚果民主共和国(简称“刚果(金)”)军方发言人周四（11月25日）表示，武装组织CODECO袭击了该国东部一个矿区，造成两名中国公民身亡，另有数目不详的人遭绑架。
+作者： 纽约香草山医疗部 – 云豹
 
-一位当地酋长和一位公民社会领袖证实，周三发生袭击事件后，有两人身亡，还有八名中国公民失踪。他们指责CODECO。这是活跃在该地区的一个武装组织。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-212.png)
 
-袭击事件发生在刚果(金)伊图里省的朱古(Djugu)。中国公民在该地区有非正式的金矿开采业务。
+11月24日，即将正式上任的德国新政府，向民众公布四条与中共相关的政策。
 
-“我们确认CODECO武装分子袭击了我们在朱古地区的一个阵地。他们还袭击了我们中国兄弟的一个基地，不幸的是，两人被杀，其他人被绑架，”伊图里军队的发言人Jules Ngongo中尉称。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-33.jpg)
 
-无法联系到CODECO武装组织置评。亦尚未联系到中共国驻刚果(金)大使馆发表评论。
+一、在贸易上，与中共公平竞争；
 
-周三的袭击是一周内在刚果(金)东部发生的第二起针对中国采矿业务的袭击事件。刚果(金)当局周日表示，武装人员在南基伍省一个矿区附近杀害了一名警察并绑架了五名中国公民。
+二、在人权和国际法的基础上，与中共合作。新政府还表示，欧盟需共同制定应对中共的政策，悍卫欧盟的利益和价值观。
 
-消息来源:
+三、新政府将与美国及其它理念相同的国家合作，减少对中共的战略依赖，并表示在遵守国际海洋法的基础上，解决南海和东海的领土争议。
 
-[刚果民主共和国军方：矿区遇袭两名中国公民身亡 数人遭绑架](https://cn.reuters.com/article/congo-chinese-killed-1126-idCNKBS2IB02N?il=0)
+四、声明在欧盟“一中政策”的前提下，支持台湾参与国际组织，并认为必须在和平及双方都同意的情况下，才能改变台海现状。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+此外，德国新政府还批评中共在新疆、香港的人权问题。
+
+参考链接：
+
+- [德國新政府將挺台參與國際 指兩岸同意才能改變現狀](https://www.cna.com.tw/news/firstnews/202111250005.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
+
+总编：文特
+编辑：文特/雪梨
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

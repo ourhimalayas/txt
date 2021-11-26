@@ -2,36 +2,30 @@
 ---
 
 
-## 德国新政府公布四条对中政策
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696415/)
+## 法国计划对成年人接种疫苗加强针
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696428/)
 
-作者： 纽约香草山医疗部 – 云豹
-
+作者： 纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/1-212.png)
+周四，法国卫生部长宣布，计划向所有成年人提供新冠疫苗加强针，并制定更严格的佩戴口罩规则及健康通行证检查，以遏制新一波病毒感染。
 
-11月24日，即将正式上任的德国新政府，向民众公布四条与中共相关的政策。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-17.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-33.jpg)
+此前，马克龙政府已表示，为避免像其他欧洲国家一样再次实施封锁，法国将执行更严格的社交距离规则，并尽快制定加强针接种计划。
 
-一、在贸易上，与中共公平竞争；
+据悉，法国政府预计，将全面疫苗接种至加强针注射的间隔时间，从六个月减少到五个月，并将PCR测试有效期缩短到一天。
 
-二、在人权和国际法的基础上，与中共合作。新政府还表示，欧盟需共同制定应对中共的政策，悍卫欧盟的利益和价值观。
-
-三、新政府将与美国及其它理念相同的国家合作，减少对中共的战略依赖，并表示在遵守国际海洋法的基础上，解决南海和东海的领土争议。
-
-四、声明在欧盟“一中政策”的前提下，支持台湾参与国际组织，并认为必须在和平及双方都同意的情况下，才能改变台海现状。
-
-此外，德国新政府还批评中共在新疆、香港的人权问题。
+此外，法国人进入餐馆、咖啡馆、电影院和博物馆等公共场所，都需要接种新冠疫苗加强针。
 
 参考链接：
 
-- [德國新政府將挺台參與國際 指兩岸同意才能改變現狀](https://www.cna.com.tw/news/firstnews/202111250005.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+- [France extends COVID-19 booster shots to all adults](https://www.reuters.com/world/europe/france-announce-covid-19-booster-shots-all-adults-media-2021-11-24/?utm_source=ground.news&amp;utm_medium=referral)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
 
-总编：文特
-编辑：文特/雪梨
+总编：飞虹
+编辑：文特
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
