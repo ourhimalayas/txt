@@ -2,41 +2,65 @@
 ---
 
 
-## 郭文贵先生谈中共经济现状
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1696671/)
+## 又一名英超球员突然晕倒，前职业球员呼吁调查
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1696715/)
 
-作者：东京樱花团 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-213.png)
-在1124大直播中，郭先生谈到共产党的经济现状，他说抽老千就是红色资本，出老千就是红色资本的权力，共匪所谓的股票市场就是骗老百姓钱的地方。喜币有一个透明的、受多个国家法律监管的制度，而共产党谁来监管？七哥当年就告诉七嫂，在墙内炒股不可能挣钱。2008年奥运前后，郭先生公司的工程师和酒店经理等多人辞职继续炒股，后来这些人几乎都是倾家荡产而自杀。
+#### 【雅典娜快讯】紧贴时代脉搏
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5955-3.jpg)**图片来源：Summit.news**
+#### 翻译：皮特
+编辑：MSGZ
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1124-3-1.jpg)
+谢菲尔德联队中场球员在雷丁的比赛中昏倒在地，经过长时间的治疗和输氧，还是被抬上担架。最近几个月有很多突然倒地的足球运动员和其他职业运动员，他成为又一个。
 
-中国人对股票市场的赌博性与参与性，90%都是小客户，美国80%—90%都是机构客户，而中共的股市就是个赌场。共产党杀富不济贫，贫会更贫，而共产党会更富有。文革、大跃进死了将近8000万到1亿人。土地都归共产党所有，而打土豪分田地又叫做依法抢劫，最早是王沪宁给习近平说的。说中共不能再杀土豪分田地了，但中共可以通过市场行为，“合法”将财富均贫富。
+据BBC 报道，这位 30 岁的苏格兰国脚在比赛中昏倒在地，队友快速的叫来医疗团队。弗莱克被送往医院，据说他身体状况良好。
 
-共产党的赌局股市，导致无数人倾家荡产，包括在中国的德国汽车代理商。中国人是世界上最可悲、最可恨，最无知的民族。从过去一百年到我们这代中国人，可能要接受未来人们的大审判，中国人的无知、贪婪、无信仰、没人性，对地球的毁坏，人类的伤害，对宗教信仰的打击，对全人类文明进步的影响，已经到了无法想象的程度。
+正如我们之前强调的那样，德国主要报纸柏林报最近发表了一份报告，试图解释为什么“最近出现了大量的职业和业余足球运动员在赛场昏倒”。
 
-对有良知的袁腾飞、崔永元都不能容忍，对女性未成年体育运动员的持续性侵，这样的国家民族，如何面对未来？
+文章列举了近期大量足球运动员在场上出现心脏问题或昏倒，甚至导致死亡的案例。
 
-冠状病毒来自中共的事实没人敢说、敢问，没有人问疫苗从何而来，为何不公布疫苗信息。共匪对人类伤害之深，远比对中国的空气和土地污染严重的多。中共的体制最坏就在于是劣币要把良币也变成劣币，坏人统治好人，坏人还要把好人变成比他更恶的坏人。恒大、融创、富力可以转换票据不破产，但等北京冬奥会开完就会破产。不破产就是中共控制的结果，就是经济超限战的结果。能控制企业生死就根本不是自由市场和经济市场。
+- 在德国俱乐部Lauber SV，比赛因裁判心脏骤停而被取消。
+- 在汉诺威蒙登的比赛期间，来自 JSG Hoher Hagen 俱乐部的 17 岁足球运动员被进行了紧急抢救。
+- 来自Gifhorn的业余运动员Marvin Schumann因心脏骤停接受了紧急抢救。
+- 在Kresliga Augsburg, 一名助理裁判因心脏问题而晕倒。
+- SpVgg地区联赛球员 Oelde II接受了紧急抢救。
+- 来自比拉提俱乐部的一名球员在与 FC Nordkirchen II 的区域联赛比赛中昏倒。
+- 在英格兰，一位17岁足球运动员Dylan Rich因心梗而死亡。
+- 一位SV Niederporing的守门员教练在一场训练后心脏停搏。
+- 24岁的BFC Chemie Leipzig俱乐部的Lucas surek因疑似心脏疾病而退出。
+- 25岁的Kingsley Coman因心率不齐而接受了心脏手术。
+- 来自 SG Traktor Divitz 的教练 Dirk Splitsteser 在场边倒地死亡.
+- 比利时俱乐部 Eendracht Hoglede 18岁的 Rune Coghe 在一场比赛中心脏病发作。
+- 在开姆尼茨举行的德国和塞尔维亚女足世界杯预选赛上，一名英格兰裁判因心脏问题不得不离开赛场。
+- 来自 THALHEIM 的队长迪特马尔·格拉多 (Dietmar Gladow) 在比赛前致命的心脏病发作。
+- 在西西里，53岁的足球教练Antonello Campus在训练他的球队时昏倒在地。
+- 来自VfB Schwelm的Anil Usta 因心脏问题昏倒在球场。
+- 来自 FC Strasbourg 的 Dimitri Lienard 在 Ligue 1 比赛中因心脏问题昏倒。
+- 16岁的Diego Ferchaud在一场U-18联赛中，心脏停搏。
+- 25岁的比利时足球运动员Jente Van Genechten在一场比赛中心脏停搏。
+- 27岁比利时业余球员Jens De Smet在一场比赛中心脏停搏，后死在医院。
+- 一位13岁的意大利Janus Nova俱乐部球员在赛场上因心脏停搏而晕倒。
+- 45岁意大利的运动经理Calcio Orsago在运动后心脏病发而死亡。
+- 在丹麦，22岁的Abou Ali在比赛中因心脏停搏而晕倒。
+- 31岁的Fabrice N’Sakala在赛场晕倒，后被送到医院。
 
-美国在中共国投了七万亿，甚至十万亿票据，金融市场必然无力支撑下去。世界70年的和平导致了如今的黑暗，导致了共产党邪恶势力坐大，把世界变成了大地狱，而人类必须要清醒过来。未来疫灾难将导致有房无人住，没水，没电。
 
-参考链接：
+该名单包括巴塞罗那的塞尔吉奥·阿奎罗，他在上个月巴萨与阿拉维斯的西甲比赛中出现呼吸困难。尽管俱乐部否认了阿圭罗将退役的传闻，但他肯定会缺席数月之久。
 
-- [2021年11月24日文贵先生直播小飞象大雨围城速记](https://gnews.org/zh-hans/1677917/)
+其他职业运动员最近也出现了类似的健康问题，包括 24 岁的斯洛伐克冰球运动员鲍里斯·萨德基（Boris Sádecky），他在上个月的一场比赛中在冰上摔倒后[不幸身亡](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=auto&amp;tl=zh-CN&amp;u=https://summit.news/2021/11/04/24-year-old-hockey-player-dies-after-suffering-cardiac-arrest-during-game/)。
 
+前英格兰和南安普顿球员马特·勒蒂西耶回应了弗莱克昏倒的事件，呼吁进行充分调查。这位前英超球星在推特上写道：“还要有多少运动员倒在球场上，才能进行调查。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-8.jpg)
+目前尚不清楚约翰·弗莱克是否接种了 COVID-19 疫苗。
 
-编辑：Irene木木
-校正/发稿：海阔天空1
+同时， Yaffa Shir-Raz 博士的一份报告显示，“2021 年国际足联球员的心脏猝死增加了 5 倍”。  他问道，“是什么导致了这突如其来的变化？” 。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**发**布：**文泓**
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

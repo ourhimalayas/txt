@@ -2,28 +2,26 @@
 ---
 
 
-## 因帮助中共军方获取技术，美国“实体名单”再添27家
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696396/)
+## 西南航空员工反疫苗斗争获巨大胜利
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696422/)
 
-作者： 纽约香草山农场 – 007
+作者： 纽约香草山福音部 – lilian89
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/1-212.png)
-11月24日，因从事违背美国国家安全和外交政策利益的活动，美国商务部宣布，将27个位于中共国和巴基斯坦的公司和实体列入“实体名单”。
+11月24日，据trending politics消息，在反击疫苗强制政策的抵抗运动中，西南航空公司员工的豁免权全部获得批准。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/8-25.jpg)
+该消息由导演兼制片人罗比·斯塔巴克首先发布。他表示，这个消息是从一名西南航空的飞行员处得知。另外，汽车制造商也与工会达成协议，不再强制要求雇员注射新冠疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-10.png)
-
-其中包括：帮助中共军方获取量子计算技术的杭州中科、新华三、 国盾量子等八家中共国公司，支持巴基斯坦无安全保障核活动和弹道导弹计划、在中共国和巴基斯坦经营的16个实体和个人，参与了从西方向伊朗、朝鲜、中共国军事项目出售技术的嘉兆科技的三个子公司。此外，俄罗斯的莫斯科物理与技术研究所被列入“军事终端用户”名单。
-
-一家公司或实体被美国商务部列为“实体名单”，意味着美国公司必须获得特别许可，才能向该公司出售产品，而这个特别许可的申请很可能被拒绝。
+拜登政府的疫苗强制令正在被瓦解。本月，联邦上诉法院对拜登政府的非法联邦疫苗授权，给予沉重的打击。第五区上诉法院坚定地维持暂停疫苗强制令的决定。此外，11个州的总检察长也已经提起诉讼，阻止联邦政府执行这项违反宪法的疫苗政策。
 
 参考链接：
 
-- [美商务部将帮助中国军方的中国公司列入贸易黑名单](https://www.voachinese.com/a/US-commerce-entity-list-chinese-companies-20211124/6326652.html)
+- [‘Winning’: Southwest Employees Get Wind of a Huge Victory in Their Fight Against Vaccine Mandates](https://trendingpolitics.com/winning-southwest-employees-get-wind-of-a-huge-victory-in-their-fight-against-vaccine-mandates-knab/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
 
-总编：文特
-编辑：文特/雪梨
+总编：Irene木木
+编辑：Ivy001/雪梨
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
