@@ -2,23 +2,38 @@
 ---
 
 
-## 又一总统及政客感染中共病毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1696269/)
+## 中共推出养老新政，“政府养老”沦为空话
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696308/)
 
-撰稿：东京樱花团/待命（文晓）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-57.png)（图片源自本文链接）
-11月26日日本雅虎网站发表来自路透社的消息：捷克总统府25日表示，77岁的泽曼总统中共病毒检测呈阳性。
+作者： 日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-155.png)
+11月24日，中共国务院出台了《加强新时代老龄工作的意见》。
 
-总统已接种了三针中共病毒疫苗。据当地媒体报道，总统目前没有任何症状，但已经住院，在接受治疗期间将暂时停止总统职务。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-17.png)
 
-捷克共和国于11月25日推出了遏制中共病毒传播的措施，规定酒吧和夜总会晚上10点关闭，并禁止举办圣诞活动。
+该《意见》仅笼统地表示政府要“发挥主导作用”、“加强组织和监督工作”，没有提及政府在养老上的资金和政策支持。对于承载养老的主体，则明确表示要“向社区、家庭延伸”，探索“社区+物业+养老服务”的模式。
 
-信息来源：[チェコ大統領がコロナ感染で入院、職務一時休止（ロイター） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/e72dfef9713d13537fd924333996ae5ea2081b49)
+特别值得注意的是，在该《意见》的第二十项中提出，鼓励成年子女与父母就近居住或者共同生活，履行赡养义务，承担照料责任。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+40年前，中共推出计划生育政策，宣称“只生一个好，政府来养老”。而此《意见》的出台，意味着中共曾经承诺的责任沦为空谈。
 
+新闻链接：
+
+- [中共中央国务院：鼓励成年子女与老年父母就近居住或共同生活](https://www.guancha.cn/politics/2021_11_24_616085.shtml)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

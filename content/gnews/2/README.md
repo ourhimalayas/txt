@@ -2,34 +2,90 @@
 ---
 
 
-## 西南航空员工反疫苗斗争获巨大胜利
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696422/)
+## 视频| 股市离崩盘还有距离
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1696475/)
 
-作者： 纽约香草山福音部 – lilian89
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-212.png)
-11月24日，据trending politics消息，在反击疫苗强制政策的抵抗运动中，西南航空公司员工的豁免权全部获得批准。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-25.jpg)
-该消息由导演兼制片人罗比·斯塔巴克首先发布。他表示，这个消息是从一名西南航空的飞行员处得知。另外，汽车制造商也与工会达成协议，不再强制要求雇员注射新冠疫苗。
+## 摘自郭先生2021.11.24大直播
 
-拜登政府的疫苗强制令正在被瓦解。本月，联邦上诉法院对拜登政府的非法联邦疫苗授权，给予沉重的打击。第五区上诉法院坚定地维持暂停疫苗强制令的决定。此外，11个州的总检察长也已经提起诉讼，阻止联邦政府执行这项违反宪法的疫苗政策。
-
-参考链接：
-
-- [‘Winning’: Southwest Employees Get Wind of a Huge Victory in Their Fight Against Vaccine Mandates](https://trendingpolitics.com/winning-southwest-employees-get-wind-of-a-huge-victory-in-their-fight-against-vaccine-mandates-knab/)
+制作：香草山视频部
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
 
-总编：Irene木木
-编辑：Ivy001/雪梨
-校正/发稿：海阔天空1
+300年的飞飞提问：
+这两天这个股市非常的不好
+就是北交所也开出来以后情况都不太好
+那美国股市呢这两天也是开始
+就是连续跌了 今天应该是连跌了第三天
+那么郭先生是一直说到今年年底
+这个股票市场会往下走 然后经济会出问题
+那是不是现在已经开始了？
+还是说这个时间点还没到？谢谢！
+郭先生：
+肯定是没到 还早着呢 早着呢
+这个一个最简单的逻辑啊
+就是咱们家里过日子里面
+就是说溢桶效应
+当你桶里面放满了水的时候
+你往里面扔东西 水就会溢出来
+你扔一个石头 它漾出来是一滴水
+两个石头漾出来水
+它不等同于你石头的体积
+因为你觉得漾出来那个水的这个量
+你不等同于说你正常中应该不漾水的量
+为什么呢？
+你看到的都是那些将是溅出来的花
+真正的水是什么？
+它多出来的水要想被挤出来的时候
+可能是 那就不是几滴了
+它是整个的一个倾倒式的
+现在的这个所有的市场
+你可以看到一个最可怕的现象是前所未有
+就是最大的问题是什么？
+人类历史上没有过
+就是这个水桶的水溢出的大的水滴
+比原来的水桶还大
+你看这几天道琼斯的交易量 没人注意到
+这个量是海量
+你敢放到一年前两年前 那股市就崩盘了
+你想想那一天几百个亿上千亿的交易
+怎么可能啊
+它就是一个 搞出来一个
+20多万亿多出的市场
+你原来的马桶的水叫25万亿
+现在叫50万亿
+大家别错了 你以为涨了一半 是吗？
+它不是那概念
+原来马桶的水是一个锥形的
+它的25万亿是这么高
+它在上面是一个喇叭形的了
+你看着马桶就涨这么多
+它量 实质的量多出来25万亿
+哇塞 这个 你看这个量交易的时候吓死人了
+所以你今天看到这个量出量出几百亿
+早着呢
+崩盘的时候是什么呢？
+一定是欻下来 一定不是这样子的
+七哥在几年前就说了
+一定不是这样子的 一定是直线式下坠
+谢谢
+
+
+
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
