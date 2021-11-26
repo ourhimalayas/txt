@@ -2,30 +2,20 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月25日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1694999/)
+## 12家中企列入美国新“黑名单“，中共称“保留反制权”
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1695482/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-5.png)
+撰稿：西枫westca
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-26.png)
-文章仅代表作者本人观点，与Gnews无关
+校对：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-14.jpg)图片来源：美国商务部网站
+据多家媒体11月25日报道，周三美国商务部以危害美国的安全利益或外交政策为由，把27个主要位于中共国和巴基斯坦的公司和实体列入“军事最终用户清单”，其中包括了中共国的12家企业。美国商业部称原因是它们“从事了违背美国国家安全和外交政策利益的活动”，“获取并企图获取美国产品用于支持军事用途”，包括支持中共军事量子计算应用等。
 
-视频参看：2021.11.25早GTV新闻访谈
+对此，中共国外交部发言人赵立坚表示，美方屡屡泛化国家安全概念，滥用国家力量，无理打压中国企业，肆意破坏了国际秩序、经贸秩序和自由贸易规则，严重威胁了全球产业链供应链。美国可以说是已经到了歇斯底里、不择手段的地步。他还说，保留对美方采取必要反制措施的权利，将采取一切必要措施，坚决维护中国企业的合法权益。
 
-[https://gtv.org/broadcast/watch/619f8fbae85d226ebcb42699](https://gtv.org/broadcast/watch/619f8fbae85d226ebcb42699)
+中共国一向利用军民融合项目，以民营公司出现，实质行使军事目的，盗取西方先进技术为超限战做准备。在美方进行实质抵抗时，却又恼羞成怒，暴露了其邪恶本性。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-10.jpg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**新闻来源：**[美方再将12家中企列入“黑名单” 外交部：保留反制权利\_凤凰网 (ifeng.com)](https://finance.ifeng.com/c/8BSc9C4SCRd)
 
  
 
