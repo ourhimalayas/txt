@@ -2,38 +2,27 @@
 ---
 
 
-## 中共推出养老新政，“政府养老”沦为空话
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696308/)
+## 秘翻在线 :美国养老金债务炸弹将在伊利诺伊州引爆？
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1696319/)
 
-作者： 日本方舟农场 – Andy5
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-155.png)
-11月24日，中共国务院出台了《加强新时代老龄工作的意见》。
+撰稿：William
+校对：牛小妹
+![](https://assets.gnews.org/wp-content/uploads/2021/11/biden-1.jpg)
+图片来源：网路
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-17.png)
+**伊利诺伊州面临退休债务危机**
 
-该《意见》仅笼统地表示政府要“发挥主导作用”、“加强组织和监督工作”，没有提及政府在养老上的资金和政策支持。对于承载养老的主体，则明确表示要“向社区、家庭延伸”，探索“社区+物业+养老服务”的模式。
+根据《零对冲》(Zero Hedge) 的报导, 2019 年，伊利诺伊州每个家庭的负担只有 90,000 美元，如今伊利诺伊州的每个家庭平均要背负高达 110,000 美元的政府雇员退休债务。截至 2020 年 6 月 30 日，美国最大的养老基金缺口是在伊利诺伊州，缺口总额达 3130 亿美元。伊利诺伊州在退休债务方面也是全美最高的，已增加到 50 亿美元。不断增长的债务表示，超过 100 万伊利诺伊州政府工作人员和退休人员将失去退休保障。根据皮尤慈善信托基金的数据，伊利诺伊州的州级养老金只有 39% 的资金到位，是全国最低的。
 
-特别值得注意的是，在该《意见》的第二十项中提出，鼓励成年子女与父母就近居住或者共同生活，履行赡养义务，承担照料责任。
+这些巨额债务直接导致伊利诺伊州的其他危机，譬如伊利诺伊州成为全国最差的信用评级，实际房房价值下降排名全美第五，养老金危机也间接导致了创纪录的外迁率和自 2010 年以来全国第二大人口流失的州。
 
-40年前，中共推出计划生育政策，宣称“只生一个好，政府来养老”。而此《意见》的出台，意味着中共曾经承诺的责任沦为空谈。
+**伊利诺伊州债台高筑，暗示即将到来的美国退休债务危机**
 
-新闻链接：
+伊利诺伊州自1992年开始到2020年，连续8次的总统大选都是民主党胜出的州，可以说是民主党深耕的州，不难想像中共在此州蓝金黄的深度。
 
-- [中共中央国务院：鼓励成年子女与老年父母就近居住或共同生活](https://www.guancha.cn/politics/2021_11_24_616085.shtml)
+郭文贵先生多次提及中共国恒大房地产一旦暴雷，再加上全世界各国超发货币、疫苗灾害、美国房地产、华尔街、养老基金崩盘，一系列的危机将如骨牌效应般，造成难以想像的全球海啸级金融风暴。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
-
-总编：飞虹
-编辑：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+新闻来源：[Illinois Pension Shortfall Surpasses $500 Billion, Average Debt Burden Now $110,000 Per Household](http://Illinois%20Pension%20Shortfall%20Surpasses%20$500%20Billion,%20Average%20Debt%20Burden%20Now%20$110,000%20Per%20Household)
 
  
 

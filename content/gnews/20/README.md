@@ -2,39 +2,36 @@
 ---
 
 
-## 超过 600 名谷歌员工签署宣言反对疫苗强制令
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1696368/)
+## 因帮助中共军方获取技术，美国“实体名单”再添27家
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696396/)
 
-据《零对冲》作者泰勒·杜登（TYLER DURDEN）2021 年 11 月 24 日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image002-2.jpg)图片来自网络
-据 CNBC （美国全国广播公司财经频道）援引内部文件称，至少有 600 名谷歌员工签署了一份内部宣言，要求这家硅谷科技巨头取消其中共病毒疫苗令。
+作者： 纽约香草山农场 – 007
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-212.png)
+11月24日，因从事违背美国国家安全和外交政策利益的活动，美国商务部宣布，将27个位于中共国和巴基斯坦的公司和实体列入“实体名单”。
 
-谷歌内部的宣言已由至少 600 名谷歌员工签署，要求公司领导人撤销疫苗令，并创建一个“包括所有谷歌员工”的新令，并认为领导层的决定将对美国企业产生巨大影响。它还呼吁员工“作为原则问题反对这项强制令”，并告诉员工如果他们已经选择不接种中共病毒疫苗，不要让谷歌这一政策改变了他们的决定。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-10.png)
 
-尽管签署了该文件的员工只占谷歌全体员工的一小部分，但随着复工截止日期的临近，这种势头可能会增强。从 1 月 10 日开始，该公司的大多数员工预计将每周返回实体办公室工作三天。
+其中包括：帮助中共军方获取量子计算技术的杭州中科、新华三、 国盾量子等八家中共国公司，支持巴基斯坦无安全保障核活动和弹道导弹计划、在中共国和巴基斯坦经营的16个实体和个人，参与了从西方向伊朗、朝鲜、中共国军事项目出售技术的嘉兆科技的三个子公司。此外，俄罗斯的莫斯科物理与技术研究所被列入“军事终端用户”名单。
 
-该公司已让其 150,000 多名美国员工在 12 月 3 日前报告他们的疫苗接种情况，以及他们是否愿意在家工作。
+一家公司或实体被美国商务部列为“实体名单”，意味着美国公司必须获得特别许可，才能向该公司出售产品，而这个特别许可的申请很可能被拒绝。
 
-谷歌的强制令遵循拜登政府对拥有 100 名以上员工的公司的“接种或检测”命令。此外，该公司表示，所有与政府合同直接或间接相关的员工，即使在家工作，也必须接种疫苗。
+参考链接：
 
-谷歌安全副总裁在上月底发送的一封电子邮件中写道：“疫苗是我们能够让每个人安全返回办公室，并最大程度地减少中共病毒在我们社区中传播的能力的关键。”他补充说，（我们的做法）对拜登的行政命令的改变是“最小的”。他的电子邮件还让员工在 11 月 12 日之前请求基于宗教信仰或医疗状况的豁免，这将根据具体情况予以批准。
-
-谷歌发言人表示，该公司支持其政策。
-
-“正如我们对所有员工和本文件作者所说的那样，我们的疫苗接种要求是我们确保员工安全和服务正常运行的最重要方法之一。我们坚决支持我们的疫苗接种政策。”
+- [美商务部将帮助中国军方的中国公司列入贸易黑名单](https://www.voachinese.com/a/US-commerce-entity-list-chinese-companies-20211124/6326652.html)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
 
-> Maybe some of these employees saw the "died suddenly" spike in google trends.
-> — Zr1Trader (@ZR1Trader) [November 23, 2021](https://twitter.com/ZR1Trader/status/1463247621598892038?ref_src=twsrc%5Etfw)
+总编：文特
+编辑：文特/雪梨
+校正/发稿：海阔天空1
 
-
-*Zr1 Trader @ZR1Trader*
-*也许其中一些员工看到了谷歌趋势的“突然死亡”飙升。*
-*2021年11月23日*
-原文链接：[https://www.zerohedge.com/political/over-600-google-employees-sign-manifesto-against-covid-vaccine-mandate](https://www.zerohedge.com/political/over-600-google-employees-sign-manifesto-against-covid-vaccine-mandate)
-
-翻译：Nick｜校对：JS709｜编辑&发布：断播
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
