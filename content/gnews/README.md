@@ -15,80 +15,80 @@
 
 ---
 
-### [就算将来人口負增長中国仍会走向发达国家](/content/gnews/1/README.md)
+### [谈谈我在墙内汇钱到喜联储被中共银行阻止的经历](/content/gnews/1/README.md)
  ` 澳喜农场`
 
-### [民调低迷的拜登过感恩节](/content/gnews/2/README.md)
+### [就算将来人口負增長中国仍会走向发达国家](/content/gnews/2/README.md)
+ ` 澳喜农场`
+
+### [民调低迷的拜登过感恩节](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [日本将于 2022 年推出基于银行存款支持的数字货币](/content/gnews/3/README.md)
+### [日本将于 2022 年推出基于银行存款支持的数字货币](/content/gnews/4/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国堪萨斯州通过法案，保护工人不受拜登的强制疫苗政策的影响](/content/gnews/4/README.md)
+### [美国堪萨斯州通过法案，保护工人不受拜登的强制疫苗政策的影响](/content/gnews/5/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [美国汽车制造商和工会同意不强制要求工人接种冠状病毒疫苗](/content/gnews/5/README.md)
+### [美国汽车制造商和工会同意不强制要求工人接种冠状病毒疫苗](/content/gnews/6/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [云南发放一亿消费卷，擀面杖经济还能撑多久？](/content/gnews/6/README.md)
+### [云南发放一亿消费卷，擀面杖经济还能撑多久？](/content/gnews/7/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【信仰之声】约瑟的启示（一）：顺服神的爱可以化解仇恨](/content/gnews/7/README.md)
+### [【信仰之声】约瑟的启示（一）：顺服神的爱可以化解仇恨](/content/gnews/8/README.md)
  ` 纽约香草山MOS03`
 
-### [美国电动汽车税收抵免对加拿大意味着什么](/content/gnews/8/README.md)
+### [美国电动汽车税收抵免对加拿大意味着什么](/content/gnews/9/README.md)
  ` MG FARM`
 
-### [美国会议员在韩国与美军共度感恩节后前往台湾](/content/gnews/9/README.md)
+### [美国会议员在韩国与美军共度感恩节后前往台湾](/content/gnews/10/README.md)
  ` HimalayaRussia`
 
-### [意大利包机公司Fast Private Jet高达33%的交易目前以加密货币进行](/content/gnews/10/README.md)
+### [意大利包机公司Fast Private Jet高达33%的交易目前以加密货币进行](/content/gnews/11/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共国宣布对试管婴儿进行重大投资扭转出生率下降趋势](/content/gnews/11/README.md)
+### [中共国宣布对试管婴儿进行重大投资扭转出生率下降趋势](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [欧盟大使同意延长对华制裁 双边投资协定几乎无望](/content/gnews/12/README.md)
+### [欧盟大使同意延长对华制裁 双边投资协定几乎无望](/content/gnews/13/README.md)
  ` 日本东京方舟农场`
 
-### [中共国现在可能会窃取加密的政府数据，以后用量子电脑解密](/content/gnews/13/README.md)
+### [中共国现在可能会窃取加密的政府数据，以后用量子电脑解密](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [美国又对另外十几家中共国公司实行出口限制](/content/gnews/14/README.md)
+### [美国又对另外十几家中共国公司实行出口限制](/content/gnews/15/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [加拿大举报人揭露狮门医院24小时内因新冠疫苗接种发生13例死婴](/content/gnews/15/README.md)
+### [加拿大举报人揭露狮门医院24小时内因新冠疫苗接种发生13例死婴](/content/gnews/16/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [澳洲政府致信并诱导澳洲国民接种加强针](/content/gnews/16/README.md)
+### [澳洲政府致信并诱导澳洲国民接种加强针](/content/gnews/17/README.md)
  ` 澳喜农场`
 
-### [2021年11月24日文贵大直播概要](/content/gnews/17/README.md)
+### [2021年11月24日文贵大直播概要](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [美国将释放5000万桶石油以缓解能源成本](/content/gnews/18/README.md)
+### [美国将释放5000万桶石油以缓解能源成本](/content/gnews/19/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [文·贵天成——文贵先生谈“疫苗”（十六）](/content/gnews/19/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（十六）](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [文·贵天成——文贵先生谈“疫苗”（十四）](/content/gnews/20/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（十四）](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [行业分析师爆接种辉瑞疫苗后更可能染疫](/content/gnews/21/README.md)
+### [行业分析师爆接种辉瑞疫苗后更可能染疫](/content/gnews/22/README.md)
  ` HimalayaRussia`
 
-### [美国将帮助中共军方的中共国公司列入贸易黑名单](/content/gnews/22/README.md)
+### [美国将帮助中共军方的中共国公司列入贸易黑名单](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [11/25/2021文贵盖特：币安赵长鹏已和中共全面配合图财害命，不离开中共国的钱不是你的钱，反而会要了你的命](/content/gnews/23/README.md)
+### [11/25/2021文贵盖特：币安赵长鹏已和中共全面配合图财害命，不离开中共国的钱不是你的钱，反而会要了你的命](/content/gnews/24/README.md)
  ` 秘密翻译组-北美组`
 
-### [11/25/2021文贵盖特：千万不要给孩子打疫苗，身边已经有太多疫苗倒、随地倒、车祸倒，一定记住青蒿素是解药](/content/gnews/24/README.md)
+### [11/25/2021文贵盖特：千万不要给孩子打疫苗，身边已经有太多疫苗倒、随地倒、车祸倒，一定记住青蒿素是解药](/content/gnews/25/README.md)
  ` 秘密翻译组-北美组`
-
-### [不列颠哥伦比亚省大西洋暴雨，加拿大未来气候缩写](/content/gnews/25/README.md)
- ` MG FARM`
 
 ### [2021/11/20 文贵先生直播精要](/content/gnews/26/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

@@ -2,25 +2,44 @@
 ---
 
 
-## 澳洲政府致信并诱导澳洲国民接种加强针
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1695720/)
+## 加拿大举报人揭露狮门医院24小时内因新冠疫苗接种发生13例死婴
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1695727/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Booster.png)图片来自网络
-澳洲政府最近给每个澳洲家庭发了一封由总理莫里森，健康部长亨特和医疗卫生官凯利签名的信，诱导国民接种新冠加强针。
+**评论：补充资料说，通常情况下，这种死婴的医疗案例一个月才会发生一例**
 
-澳洲政府准备了1.51亿剂加强针，给已经完全接种了两针疫苗的澳洲人使用。目前澳洲两针的接种率已超过80%，但对于只有2千5百万人口的澳洲，即便每人都打加强针，也不需要上亿的针剂。
+**据《The Expose》记者 CAPTAINDARETOFLY 2021 年 11 月23日报道**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/a7rbi-k1jsd.jpg)**图片源自The Expose**
+据举报人称，由于 Covid-19 疫苗而发生了大规模种族灭绝，世界各地的主流媒体和政府对此都视而不见。
 
-信中说，打过两针疫苗会很好地保护你不得重病。加强针会让接种过的两针保护性更强，持续时间更长，还不会把病毒传染给别人。
+在加拿大不列颠哥伦比亚省 (BC)，举报人聚集在一次集会上，提请人们对这一普遍问题的关注，并揭露狮门医院在24小时内发生了约13起死婴。
 
-澳洲政府给居民传达的讯息完全是基于新冠疫苗有效的推断，缺乏试验和统计数据。这种加强针的推出，实际上已经证明了头两针的无效。而且接种者还承受了巨大的疫苗副作用的危害。
+所有的死亡都发生在完全接种疫苗的母亲所生的婴儿中，尽管许多公众仍然不知道发生了这种情况。作为回应，梅尔-布鲁切特（Mel Bruchet）博士和丹尼尔-长濑（Daniel Nagase） 以及其他关注此事的公众，聚集在北温哥华的加拿大皇家骑警 (RCMP) 办公室前提出投诉。
 
-[有证据显示](https://www.thegatewaypundit.com/2021/11/uk-health-security-agency-releases-data-shows-deaths-england-fully-vaccinated/)，大多数新冠死亡病例都已经接种过两针疫苗。而澳洲政府完全不顾事实，仍然诱导国民接种加强针，并鼓励雇主实施强制疫苗政策，必定会给澳洲带来无法估量的损失。
+由于主流媒体对这一事件视而不见，布鲁切特和长濑正在向加拿大皇家骑警提出投诉，针对由于经济利益冲突和偏见而将这一切掩盖起来的公共卫生官员。
 
-另外，澳洲卫生部门对羟氯喹和伊维菌素等新冠治疗药物的疯狂打压，也不能不让人怀疑澳洲政府强推疫苗背后的险恶用心。
+布鲁切特在集会上告诉正在接受采访的人：“我们站在上帝一边。我们站在好的一边。”
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
+在集会上的一次采访中，布鲁切特还谈到了伊维菌素，腐败的政府官员阻止人们使用它，以及他认为官方编织的有关Covid的叙述逐渐瓦解，因为越来越多的人开始了解真相。
+在皇家骑警大楼前的台阶上，长濑解释说，他将代表在场的每个人以及其他人提交个人投诉。
+
+参加集会的人想知道省卫生官员邦妮·亨利 (Bonnie Henry) 和其他卫生领导人是否在推动Covid-19疫苗接种计划方面得到了回报或其他某种经济利益。
+
+长濑告诉集会参加者：“这是一个机会。我们在皇家骑警……这通常是您就刑事索赔向警方报案的地方……我怀疑针对卑诗省公民制定的政策并非出于公共卫生利益，而是出于经济利益的动机。
+
+“我们需要要求皇家骑警进行调查，进行法医式调查，发现是否存在影响我们卫生部长的利益冲突，导致她制定对不列颠哥伦比亚省人民有害的政策，” 长濑说。
+在视频的最后，可以看到长濑成功地提出了所有投诉，并离开了皇家骑警大楼。当他解释说这一切只是刚刚开始时，他得到了人群的欢呼。
+
+**文章来源：**[https://dailyexpose.uk/2021/11/23/canadian-whistleblowers-expose-13-stillborn-deaths-in-24-hours-at-lions-gate-hospital-caused-by-covid-19-vaccines/](https://dailyexpose.uk/2021/11/23/canadian-whistleblowers-expose-13-stillborn-deaths-in-24-hours-at-lions-gate-hospital-caused-by-covid-19-vaccines/)
+
+翻译：洛杉矶盘古农场 – Raul
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – Mike Li
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
