@@ -2,26 +2,22 @@
 ---
 
 
-## 旧的未去新又来，中共病毒何时休
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1696853/)
+## 欠债不还，花样年被申请清盘
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1696938/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-770.png)[图片来源](https://news.yahoo.co.jp/articles/f3c8da8c35049a5aa262b2266eccc8a66809902d)
-英国专家警告称，最近在非洲博茨瓦纳发现的中共病毒变异株“Nu（B.1.1.259）”可能比Delta毒株传染性更强。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-777.png)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fp4.itc.cn%2Fimages01%2F20200624%2F2cbda82f5ad44e82a147e49b04c9bc18.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F403933823_100001551&amp;tbnid=3zCznJSVWlmjYM&amp;vet=12ahUKEwiH9cv9irX0AhVOnksFHQRlCXMQMygEegUIARCgAQ..i&amp;docid=4-bxEbM-y7drfM&amp;w=1440&amp;h=1080&amp;itg=1&amp;q=%E8%8A%B1%E6%A0%B7%E5%B9%B4&amp;ved=2ahUKEwiH9cv9irX0AhVOnksFHQRlCXMQMygEegUIARCgAQ)
+中共国房地产企业——花样年控股集团有限公司称，其主要附属公司香港花样年投资控股集团有限公司周三（24日）被申请清盘呈请，内容有关据称未偿还本金为1.49亿美元之贷款融资，花样年投资为担保人。
 
-据英国媒体《每日邮报》24日（当地时间）报道，突变病毒“Nu”于本月11日在博茨瓦纳首次发现。
+据周四晚间的公告，花样年控股将寻求法律意见以维护其合法权益，并采取一切必要措施解决此事，包括与呈请人进行建设性的对话。
 
-截至目前，累计确诊“Nu”病毒感染病例10例，其中博茨瓦纳3例、南非6例、香港1例男性，据《每日邮报》报道，专家们诊断说，这种病毒可能已经广泛传播，因为到目前为止已经在三个国家发现了它。
+因美元债违约陷入债务旋涡的花样年控股此前表示，公司正与相关债权人积极磋商，以就与债权人重续或延长其借款或其他安排达成协议；并称集团面临流动资金问题。
 
-专家特别强调，这种“Nu”变异毒株比其他突变体更具传染性和对疫苗的抵抗力。“Nu”在刺突蛋白中有32个突变，其中许多已被发现具有高度传染性和疫苗抗性。
+该公司间接全资控股的花样年集团（中国）周三公告，将于周四（25日）开始支付所发公司债“20花样02”年度债券利息，其中20%于25日按期支付，方式为场外支付；剩余80%于2022年11月25日延期兑付。
 
-中共病毒通过将其刺突蛋白与人体细胞表面的ACE2受体结合来进行渗透。如果病毒突变改变刺突蛋白的形状，抗体可能无法阻止病毒进入细胞，这可能会进一步促进感染和传播。
+消息来源：[中国房企花样年子公司被申请清盘 涉未偿还本金1.49亿美元贷款融资](https://cn.reuters.com/article/fantasia-hk-liquidation-1126-idCNKBS2IB03P?il=0)
 
-在全世界都在广泛推广疫苗加强针之际，在世卫组织谭德塞宣布目前疫苗只有40%效果之时，新的变异病毒又突然造访人间了。不知在新的具有高传播性，对疫苗有高抵抗力的“Nu”变异株面前，这些所谓的疫苗又有多大威力？与邪恶势力勾结的政治家们，被中共操控的媒体大外宣蒙蔽了双眼的各国政要们，不去追溯病毒来源，反而利用无辜百姓证明中共病毒载体——疫苗的有效性，真是舍本逐末，本末倒置啊！中共不灭，疫苗不止，病毒无休！清醒吧！
-
-信息源：[来自非洲的“Nu”病毒，比Delta强……“艾滋病患者的冠状病毒突变”](https://news.yahoo.co.jp/articles/f3c8da8c35049a5aa262b2266eccc8a66809902d)
-
-*编辑：东京樱花团/知了知了
+*校对：东京樱花团/知了知了
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  

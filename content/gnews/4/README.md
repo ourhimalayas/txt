@@ -2,53 +2,42 @@
 ---
 
 
-## 路边的行李箱
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1696881/)
+## 六百名谷歌员工签署宣言推翻公司的疫苗强制接种政策
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1696948/)
 
-作者：修罗闻道 (英国伦敦喜庄园）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/20181216095529809.jpg)网络图片
-十字路口的车来车往
-右转的刹那
-侧头看了一眼
-只一眼
-一位佝偻的老太
-模糊的出现
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-击中心灵的瞬间
-不是她瘦小的身体
-不是蹒跚的步伐
-是手里拖着一个
-彩色行李箱
-廉价而巨大
-仿佛能装下她的整个身体
-还有些多余
-
-只那一眼
-仿佛整个世界
-都是满心伤感
-不敢问她来自哪里
-只希望是路过而已
-终有一个温暖的去处
-
-在寒冷的初冬
-不忍猜是谁
-这暗黑的国度里
-那些挨饿受冻的人
-她可能是你或我
-亦或是我们的母亲‧‧‧‧‧‧
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/google-employees-1.jpg) 
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+图片来源：nypost.com
 
 
+#### 编译：小红帽
+
+在美国拥有约15万名员工的谷歌（Google）公司规定，所有与政府承包商打交道的员工都必须全面接种新冠疫苗，即使他们在家办公，其他员工也被要求报告他们的疫苗接种情况。
+
+然而，这项新措施在公司内部遭到了反对，约有600名员工签署了一份宣言，要求谷歌“包容所有谷歌员工”并推翻这项政策，同时呼吁其他员工“反对疫苗强制接种”政策。
+
+据CNBC首先报道，这份宣言至少有600人签署，要求公司高管放弃“包括所有谷歌员工”的疫苗强制接种政策。
+
+该宣言敦促员工“在原则上反对强制接种疫苗”，并鼓励他们不要让强制接种疫苗的政策影响他们接受疫苗的意愿。
+
+谷歌已将员工申请疫苗豁免的截止日期设为11月12日，从1月10日起，员工将被要求每周在办公室工作三天。
+
+谷歌首席执行官桑达尔·皮查伊(Sundar Pichai)在7月的一篇博文中宣布，该公司要求员工全面接种新冠疫苗后才能返回工作岗位。
+
+**参考新闻：**[600 Google Employees Sign Manifesto to Overturn the Company’s Vax Mandate (humansarefree.com)](https://humansarefree.com/2021/11/600-google-employees-to-overturn-vaccine-mandate.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
