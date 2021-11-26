@@ -2,35 +2,291 @@
 ---
 
 
-## 美国需要为中共台海战争做准备
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1696639/)
+## 每日快报：600名谷歌员工要求公司终止疫苗接种任务
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1696688/)
 
-翻译&撰稿：文远Bruce
+*作者：*映兰轩
 
-1.七哥：中美必有一战！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16379030611.png)
-2.台湾在地缘政治上对美国有着至关重要的意义。二战时任美国舰队总司令的五星上将欧尼斯特•金Onest Joseph King把台湾比作“瓶塞”，控制日本、韩国的咽喉要道。而今重要性还增加了半导体龙头企业台积电TSMC。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16379030721.png)网络截图
-3.  为了举办冬运会，习近平暂缓了侵占台湾的“双龙计划”。习极有可能在2022年秋季连任控权，之后台海危机便会升级。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16379030831.png)网络截图
-4.  战争方式：中共将会大规模使用网络电子超限战，使台湾陷入瘫痪。结合导弹打击主要军事和政府中心，加上定点斩首台湾领导层。 中共解放军还将使用特种部队海陆空抢滩登陆，迅速控制台湾。 所以在美军到达之前延长台湾的有效抵抗应该是美国安全政策的一个关键目标。  拜登总统三次在公开场合表示台湾受到攻击时，美军不会袖手旁观。时间不在美方这边，美国应该捉紧行动！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16379030981.png)网络截图
-5.  台湾应对：台湾需要让民众做好应对战争的准备，确保有足够的应急物资在中共侵略袭击中幸存下来。另外要加强军备、情报收集、防止卖台贼同中共里应外合。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16379031091.png)网络截图
-英文文章作者David Sauer简介：大卫•绍尔是一名退休的中央情报局高级官员，曾在东亚和南亚的多个海外指挥职位担任职务。
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/每日快报.png)
 
-6.中共1000亿美元蓝金黄美国参加冬运会
-![](https://assets.gnews.org/wp-content/uploads/2021/11/16379031231.png)网络截图
-原文链接：[America must prepare for war with China over Taiwan](https://thehill.com/opinion/national-security/582767-america-must-prepare-for-war-with-china-over-taiwan.)
+# ***今日摘要***
 
-编辑：五饼二鱼
+1. [600名谷歌员工要求公司终止疫苗接种任务](https://www.breitbart.com/tech/2021/11/24/600-google-employees-ask-company-to-end-vaccine-mandate/)
+2. [《纽约时报》承认乔-拜登领导下的冠状病毒死亡人数更多，尽管有疫苗](https://www.breitbart.com/politics/2021/11/24/new-york-times-admits-more-coronavirus-deaths-under-joe-biden-despite-vaccines/)
+3. [奥巴马前医生:”白宫正竭尽全力掩盖拜登明显的认知能力下降”](https://www.zerohedge.com/political/former-obama-doctor-white-house-doing-everything-they-can-hide-bidens-obvious-cognitive)
+4. [布蒂吉格称国内航班 “没有必要 “接种疫苗的规定](https://www.zerohedge.com/political/vaccine-mandates-not-necessary-domestic-flights-buttigieg-claims)
+5. [立陶宛体育部长表态不出席北京冬奥](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211125-%E7%AB%8B%E9%99%B6%E5%AE%9B%E4%BD%93%E8%82%B2%E9%83%A8%E9%95%BF%E8%A1%A8%E6%80%81%E4%B8%8D%E5%87%BA%E5%B8%AD%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5)
 
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
+# 重要事件
 
+- [** 11.25. Breitbart.：**600名谷歌员工要求公司终止疫苗接种任务600 Google Employees Ask Company to End Vaccine Mandate](https://www.breitbart.com/tech/2021/11/24/600-google-employees-ask-company-to-end-vaccine-mandate/)
+
+
+据报道，至少有600名谷歌的员工向公司管理层发出了一封信，要求这家科技巨头结束对员工的疫苗任务。此前，谷歌命令员工在12月3日前将他们的疫苗状况上传到公司的内部系统，无论他们是打算进入公司的办公室还是远程工作。这封信敦促谷歌的同事们 “作为一个原则问题反对这项任务”。
+
+美国总统乔-拜登提出一项任务，要求所有雇员超过100人的公司在2022年1月4日之前为雇员接种疫苗或引入定期冠状病毒测试。然而，第五巡回法院在11月阻止了拜登的任务，这一决定在本月晚些时候得到了联邦上诉法院的支持。
+
+尽管如此，谷歌还是坚持了自己的决定，现在已经引起了这家科技巨头的数百名员工的抵制。虽然谷歌以其极端进步的员工而闻名，包括最近被联邦贸易委员会聘用的批判性种族理论发起人梅雷迪斯-惠特克，但该公司也有许多保守派和非进步人士。在2016年川普当选后，公司向左倾斜，这些员工中有许多人站出来抗议公司的政治不容忍。
+
+- [** **](https://www.voachinese.com/a/china-chip-shortage-20211125/6327795.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)[**11.25. Breitbart：**《纽约时报》承认乔-拜登领导下的冠状病毒死亡人数更多，尽管有疫苗 New York Times Admits More Coronavirus Deaths Under Joe Biden ‘Despite Vaccines’](https://www.breitbart.com/politics/2021/11/24/new-york-times-admits-more-coronavirus-deaths-under-joe-biden-despite-vaccines/)
+
+
+《纽约时报》在感恩节前一天发布了一个可怕的统计数据，承认今年在乔-拜登总统的领导下，美国死于中共国冠状病毒的人数比去年更多，尽管疫苗已经广泛普及。
+
+《泰晤士报》援引美国疾病控制和预防中心(CDC)周二的数据，报告称2021年美国有386,233例冠状病毒相关死亡。在2020年全年，美国记录了385,343起死亡事件。前一个数字预计只会上升，因为今年还剩下一个多月的时间。《泰晤士报》援引 “专家 “的话，将今年死亡人数的增加归因于 “各种因素的汇合”，主要集中在它所描述的 “至关重要的低于所需的疫苗接种率，但也放松了日常预防措施，如口罩和社会距离，以及高度传染性的三角洲变体的崛起。”
+
+按《泰晤士报》的说法。公共卫生专家说，从本质上讲，许多美国人的行为就好像Covid-19现在是一种可控的地方性疾病，而不是一场危机–这种转变最终会发生，但目前还没有发生。
+
+然而，许多人也拒绝接种所需数量的疫苗，以实现科学家所说的 “地方性 “的过渡，这意味着病毒仍将在较低的水平上循环，定期增加和减少，但不会出现大流行病所特有的破坏性周期的尖峰。只有59%的美国人完全接种了疫苗，是任何7国集团国家中最低的比率。然而，将责任归咎于 “低于需要的疫苗接种率 “似乎违背了逻辑，因为在今年的大部分时间里，疫苗已经被广泛使用。
+
+2020年的情况并非如此，当时世界刚刚开始发现这种病毒是什么以及它来自哪里。虽然川普政府通过 “经速行动 “使疫苗生产得以进行，但直到今年，疫苗才广泛提供给所有符合条件的人口。即便如此，推广工作表明，接种疫苗的人仍然可以传播和感染这种病毒。
+
+《泰晤士报》还将死亡人数的增加归因于 “日常预防措施的放松”–这是官员们在疫苗推广期间向美国人兜售的主要激励措施之一，他们中的许多人承诺，疫苗将为美国人恢复到大流行前的正常状态铺平道路。然而，事实证明这是不正确的，因为许多地方和蓝州都重新实行了限制，包括口罩规定，而不考虑疫苗接种情况。
+
+撇开这一点不谈，单单是佛罗里达州就挑战了这样的断言：宽松的缓解措施是造成传播和死亡人数增加的原因。阳光之州的州长罗恩-德桑蒂斯（R）在整个大流行期间受到了大量的持续审查，因为他把个人自由放在首位，并拒绝将该州封锁起来，该州的人均冠状病毒病例率仍然是全国最低的。即使在大流行的高峰期，该州也从未有全州性的口罩授权。
+
+《泰晤士报》自己的冠状病毒追踪器，最后一次更新是在周三，显示佛罗里达州每天平均报告1397个病例，或每10万人中有7人–这是全国最低的人均比率。佛罗里达州的最新数字反映出在过去14天里病例下降了5%。
+
+恢复授权的州，如伊利诺伊州，情况并不理想，报告说每天平均有4,599起案件，或人均36起。这意味着在同一时期内增加了73%。其他蓝色州，包括密歇根州、纽约州和宾夕法尼亚州，也出现了类似的趋势。
+
+- [** 11.25.Zerohedge ：**奥巴马前医生:”白宫正竭尽全力掩盖拜登明显的认知能力下降”Former Obama Doctor: “White House Is Doing Everything They Can To Hide Biden’s Obvious Cognitive Decline”](https://www.zerohedge.com/political/former-obama-doctor-white-house-doing-everything-they-can-hide-bidens-obvious-cognitive)
+
+
+国会议员罗尼-杰克逊是奥巴马和川普总统时期的前白宫医生，他周三宣称，乔-拜登之所以回避认知检查，是因为他会 “惨遭失败”，而他的团队 “没有这样做，因为他们知道，如果他们这样做，你不会问那些你不想知道答案的问题。”
+
+杰克逊在参加Newsmax节目时，将拜登的最新健康报告描述为 “六页肤浅的废话”。”老实说，有六页的内容是大多数人都不关心的，”杰克逊说，”我的意思是，你知道，奥康纳医生花了六页的时间来处理像偶尔的咳嗽和一些僵硬之类的事情，而房间里的大象是总统的认知能力。”
+
+杰克逊继续说：”这个国家50%以上的人认为他的认知能力不适合做我们的总司令和国家元首，但这一点在那里没有得到解决。”
+
+“当我们为川普总统做体检时，我们开创了先例。我做到了，”杰克逊解释说，并进一步指出，”极左派和主流媒体不遗余力地追求我做一些事情，不仅解决他的身体能力，而且解决他的心理能力，我们做到了–我们做了一个认知测试。就我而言，我们开创了先例。而他也应该做一个。”
+
+杰克逊补充说，”如果有人需要进行认知测试，那就是我们现在的这位总统。我真的很惊讶地看到，里面没有提到任何类似的东西。”
+
+这位德克萨斯州议员强调，拜登的团队知道，如果他们给他做认知测试，他将会惨遭失败，然后他们将不得不以某种方式解释。
+
+杰克逊敦促拜登的处理者 “这样做只是为了检查一个盒子，”他补充说，”奥康纳博士应该像我每次向特川普总统介绍身体状况时必须做的那样，站在新闻简报室的记者面前，介绍身体状况。我在那里站了1小时15分钟，回答了媒体对他身体状况的每一个问题。而我们得到的是什么？我们只得到了一份六页的报告，这就结束了。我们应该继续前进，像一切都很好一样打球。”
+
+- [** 11.25. Zerohedge：**布蒂吉格称国内航班 “没有必要 “接种疫苗的规定Vaccine Mandates “Not Necessary” For Domestic Flights, Buttigieg Claims](https://www.zerohedge.com/political/vaccine-mandates-not-necessary-domestic-flights-buttigieg-claims)
+
+
+尽管主要是民主党立法者对美国国内航班旅客的疫苗强制需求发出呼吁，但交通部长皮特-布提吉格在周末接受采访时表示，强制需求的前景看起来越来越渺茫。
+
+拜登交通部长皮特-布蒂吉格周日在NBC的 “会见新闻界 “节目中说，除强制要求旅客接种疫苗外，其他要求–包括要求在航班上戴口罩–在防止COVID传播方面 “非常有效”（尽管有证据表明口罩对保护乘客没有什么作用，而且航空公司实际上将其视为他们可以用来鼓励一些乘客支付更多费用的又一项 “优惠”）。
+
+主持人查克-托德（Chuck Todd）在这个问题上向布蒂吉格发难，质疑这位前小城市市长和麦肯锡顾问是否对实施一项政治上有分歧的政策感到紧张。
+
+这场反反复复的争论正值繁忙的感恩节假期旅游旺季的开始，TSA预计将对约2千万人进行检查。与此同时，在过去的一周里，美国每天新报告的COVID病例增加了12%。
+
+最近，Anthony Fauci博士说，他不期望在短期内对国内航空旅行进行疫苗强制接种，这从侧面说明了政治问题。布蒂吉格说，目前的做法已经在发挥作用。
+
+他说：”在掩蔽和其他缓解措施之间，我们对航空旅行和这个国家的一般旅行的安全非常有信心。“
+
+尽管如此，立法者在本月早些时候给总统乔-拜登的一封信中继续推动对国内航空旅行的更多限制。签名者包括来自加利福尼亚的参议员戴安娜-范斯坦和来自弗吉尼亚的众议员唐-拜尔。范斯坦特别推动了对国内航班的更多限制。
+
+[** 11.25. Rfi：**立陶宛体育部长表态不出席北京冬奥](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211125-%E7%AB%8B%E9%99%B6%E5%AE%9B%E4%BD%93%E8%82%B2%E9%83%A8%E9%95%BF%E8%A1%A8%E6%80%81%E4%B8%8D%E5%87%BA%E5%B8%AD%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5)
+
+立陶宛因强化与台湾关系而遭到中国一再威迫，法国外交部周四在例行记者会应询表示，会员国间的团结是基本原则，法国和欧盟全力支持立陶宛，并将强化欧盟反胁迫措施。另据立陶宛媒体称，立陶宛体育部长表态不出席北京冬奥。
+
+据中央社报道，立陶宛是欧盟最小国家之一，但不畏中国的威胁及施压，允许台湾以”台湾”名义在立陶宛首都维尔纽斯设立代表处。此后中国宣布将与立陶宛关系降为”代办级”，并多次在官媒中威胁立陶宛，表示将让他”付出代价”。
+
+法国外交部在周四例行记者会中，有记者针对立陶宛与中国近日外交纷争进行提问：”维尔纽斯决定加强与台湾关系后，遭到北京降级外交关系。你们希望看到欧洲做出何种反应，以协助立陶宛对抗中国的施压？”
+
+对此，法国外交部回覆：”会员国间的团结是欧盟的基本原则，针对任何会员国的伤害都将伤害欧盟本身。我们和欧洲伙伴，齐声表达对立陶宛的全力支持。欧盟正全面动员，以强化打击不道德或胁迫行径的措施。”
+
+消息称，法国外交部所指的措施，为欧盟委员会目前正在协商的”反胁迫措施”，目的是打造新司法架构以阻止和对抗非欧盟国家的胁迫行径，以使欧盟可以向不适当干涉欧盟或其会员国政策决定的非欧盟国，祭出贸易、投资或限制措施。
+
+中央社并援引立陶宛媒体15min周四报导，教育、科学暨体育部长舒格日迪尼聂已表态不会出席即将于明年2月在北京举行的2022冬季奥运。
+
+根据报导，舒格日迪尼聂（Jurgita Šiugždinienė）说，据她所知，其他官员目前也不计划出席北京冬奥。
+
+包括外交委员会主席帕维里欧尼斯（Žygimantas Pavilionis）等共17名绝大多数隶属执政联盟的立陶宛国会议员上周发布联名信，呼吁总统、政府官员、所有政治人物、立陶宛奥林匹克委员会及运动员集体抵制北京冬奥，不要派遣任何官方代表团。
+
+议员指出，国际重要运动赛事不应在集权国家举行、为集权体制”洗白”；体育不应成为政治宣传工具。
+
+不过，立陶宛奥林匹克委员会周二发布声明，表态不支持抵制北京冬奥。声明提到，为政治因素要求运动员放弃难得的重要国际赛事，对他们不公平。
+
+立陶宛奥委会强调，奥运属于全世界，而不是主办国。此外，国际奥委会一向遵循”政治中立”原则。
+
+# 每日文贵说
+![img](https://media.gettr.com/group38/origin/2021/10/16/16/483375e9-22b0-78b3-56b8-2871007d56bb/23bdad462f9fbc18cbd19c91a443600a.jpg)
+# 更多要闻链接
+
+1. [欧盟监管机构授权辉瑞公司为五岁儿童注射疫苗European Union Regulator Authorises Pfizer Vaccine For Five-Year-Olds](https://www.breitbart.com/europe/2021/11/25/european-union-regulator-authorises-pfizer-vaccine-for-five-year-olds/)
+2. [未免疫税:专家建议对未接种疫苗的人每月进行罚款Unvax Tax: Expert Proposes Monthly Fines for the Unvaccinated](https://www.breitbart.com/europe/2021/11/25/unvax-tax-expert-proposes-monthly-fines-for-the-unvaccinated/)
+3. [摇滚歌手布莱恩-亚当斯一个月内第二次检测出COVID阳性Rocker Bryan Adams Tests Positive for COVID for Second Time in a Month](https://www.breitbart.com/entertainment/2021/11/25/bryan-adams-tests-positive-for-covid-for-second-time-in-a-month/)
+4. [英国力阻COVID-19新变异株 暂拒非洲6国班机](https://www.rfi.fr/cn/%E8%8B%B1%E5%9B%BD%E5%8A%9B%E9%98%BBcovid-19%E6%96%B0%E5%8F%98%E5%BC%82%E6%A0%AA-%E6%9A%82%E6%8B%92%E9%9D%9E%E6%B4%B26%E5%9B%BD%E7%8F%AD%E6%9C%BA)
+5. [俄罗斯西伯利亚煤矿发生重大矿难 逾50人丧生](https://www.voachinese.com/a/death-toll-in-russian-mine-tragedy-jumps-past-50-20211125/6328146.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+6. [印中对峙：帕什米纳羊毛产业的生存危机](https://www.voachinese.com/a/kashmir-pashmina-20211125/6328645.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+
+
+# 每日推特文摘
+
+
+
+大胡子医生说: “疫苗不仅不起作用，而且弊大于利。根据CDC 和罗伯特•马龙 博士的说法，疫苗接种后的人，抗体依赖性更强，感染时病毒量会更高。现在医院的病房里打过疫苗的人群，除了被病毒感染外，还有因疫苗引起的更多疾病”。
+
+
+
+
+
+> 大胡子医生说: "疫苗不仅不起作用，而且弊大于利。根据CDC 和罗伯特•马龙 博士的说法，疫苗接种后的人，抗体依赖性更强，感染时病毒量会更高。现在医院的病房里打过疫苗的人群，除了被病毒感染外，还有因疫苗引起的更多疾病"。 [pic.twitter.com/Y7Ro2BLkUq](https://t.co/Y7Ro2BLkUq)
+> — Pancho(澳喜特战旅) (@Pancho66196600) [November 25, 2021](https://twitter.com/Pancho66196600/status/1463721565871230980?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+2021/11/24文贵先生大直播：币安把所有客户的KYC信息都给了共产党，共产党现在宣布购买海外数字货币等同于经济犯罪。买了币安的人请和我们联系，我们集体起诉他。你的信息要保管好。昨天有两个战友出境时被抓，电子设备被拿走。战友买的福利币一定要定期，请与农场联系，如果不定期就收回福利币…..
+
+
+
+
+
+> 2021/11/24文贵先生大直播：币安把所有客户的KYC信息都给了共产党，共产党现在宣布购买海外数字货币等同于经济犯罪。买了币安的人请和我们联系，我们集体起诉他。你的信息要保管好。昨天有两个战友出境时被抓，电子设备被拿走。战友买的福利币一定要定期，请与农场联系，如果不定期就收回福利币….. [pic.twitter.com/6bcnJTsSHv](https://t.co/6bcnJTsSHv)
+> — wendy（澳喜特战旅） (@Wendyy2009Wendy) [November 25, 2021](https://twitter.com/Wendyy2009Wendy/status/1463984624330162193?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+2021/11/24文贵先生大直播：币安把所有客户的KYC信息都给了共产党，共产党现在宣布购买海外数字货币等同于经济犯罪。买了币安的人请和我们联系，我们集体起诉他。你的信息要保管好。昨天有两个战友出境时被抓，电子设备被拿走。战友买的福利币一定要定期，请与农场联系，如果不定期就收回福利币…..
+
+
+
+
+
+> 2021/11/24文贵先生大直播：币安把所有客户的KYC信息都给了共产党，共产党现在宣布购买海外数字货币等同于经济犯罪。买了币安的人请和我们联系，我们集体起诉他。你的信息要保管好。昨天有两个战友出境时被抓，电子设备被拿走。战友买的福利币一定要定期，请与农场联系，如果不定期就收回福利币….. [pic.twitter.com/6bcnJTsSHv](https://t.co/6bcnJTsSHv)
+> — wendy（澳喜特战旅） (@Wendyy2009Wendy) [November 25, 2021](https://twitter.com/Wendyy2009Wendy/status/1463984624330162193?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+拥有6千万粉的韩国最强女团BLACKPINK成员Lisa週三证实“突破性感染”确诊感染病毒,包括Lisa在内，BLACKPINK4名成员都已经完整接种2剂疫苗。
+
+
+
+
+
+> 擁有6千萬粉的韓國最強女團BLACKPINK成員Lisa週三證實“突破性感染”確診感染病毒,包括Lisa在內，BLACKPINK4名成員都已經完整接種2劑疫苗。 [pic.twitter.com/Ie2Wx9OL7I](https://t.co/Ie2Wx9OL7I)
+> — 三文鱼 (@Salmon\_Ten) [November 25, 2021](https://twitter.com/Salmon_Ten/status/1463895136081903618?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+包括国盾电子在内的几家公司是因获得或试图获得美国的技术或产品用于军事目的而被列入名单。
+
+
+
+
+
+> 包括国盾电子在内的几家公司是因获得或试图获得美国的技术或产品用于军事目的而被列入名单。 [https://t.co/NE2DaCoqXb](https://t.co/NE2DaCoqXb)
+> — 田野香 (@tianyexiang) [November 26, 2021](https://twitter.com/tianyexiang/status/1464021460456902660?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+作战中心：对谁作战？毫无疑问 当然是对手无寸铁和毫无还手之力的中国人民进行作战。
+
+
+
+
+
+> 作战中心：对谁作战？毫无疑问 当然是对手无寸铁和毫无还手之力的中国人民进行作战。 [pic.twitter.com/hVTSHYgC5r](https://t.co/hVTSHYgC5r)
+> — TAKE DOWN CCP (@ccpisgarbage) [November 26, 2021](https://twitter.com/ccpisgarbage/status/1464033321667682309?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+一月内两次 美国又一议员访问团本週抵台湾 消息称，这些议员计划在 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E7%81%A3?src=hashtag_click) 停留二至三天，将拜会中华民国国防部，就国防相关议题交换意见。总统蔡英文也将接见访问团成员。
+
+
+
+
+
+> 一月內兩次 美國又一議員訪問團本週抵台灣
+> 
+> 消息稱，這些議員計劃在 [#台灣](https://twitter.com/hashtag/%E5%8F%B0%E7%81%A3?src=hash&amp;ref_src=twsrc%5Etfw) 停留二至三天，將拜會中華民國國防部，就國防相關議題交換意見。總統蔡英文也將接見訪問團成員。[https://t.co/BmwznnM6PV](https://t.co/BmwznnM6PV)
+> — 新唐人電視台 (@NTDChinese) [November 26, 2021](https://twitter.com/NTDChinese/status/1464029389805469704?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+当然有效，医生的职责是救人，能救人的药就是好药；无论是 HCQ 还是伊维菌素，都是便宜又安全的应对新冠的药，这当然触碰了某些利益集团，影响到了他们推广疫苗和新药！挡了他们的发财路！
+
+
+
+
+
+> 當然有效，醫生的職責是救人，能救人的藥就是好藥；無論是 HCQ 還是伊維菌素，都是便宜又安全的應對新冠的藥，這當然觸碰了某些利益集團，影響到了他們推廣疫苗和新藥！擋了他們的發財路！ [pic.twitter.com/bRhJLXbpwP](https://t.co/bRhJLXbpwP)
+> — DC 文德 – GETTR @dching (@DCAtomy) [November 25, 2021](https://twitter.com/DCAtomy/status/1463760894895087622?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+为不畏强权的勇敢校长Adam Zydek 鼓掌
+
+西澳 珀斯 Divine Mercy College 校长拒绝接受强制接种疫苗，而计划在2022年暂停幼儿园班的运营。由于政府强制规定从2022年第一学期开始，所有工作人员都必须接种疫苗。如果被发现雇主雇佣了未接种疫苗的员工，雇主将被罚款10万澳元，未接种疫苗的员工罚款2万。
+
+
+
+
+
+> 为不畏强权的勇敢校长Adam Zydek 鼓掌👏
+> 西澳 珀斯 Divine Mercy College 校长拒绝接受强制接种疫苗，而计划在2022年暂停幼儿园班的运营。由于政府强制规定从2022年第一学期开始，所有工作人员都必须接种疫苗。如果被发现雇主雇佣了未接种疫苗的员工，雇主将被罚款10万澳元，未接种疫苗的员工罚款2万。 [pic.twitter.com/sb3uYeRXlF](https://t.co/sb3uYeRXlF)
+> — Pancho(澳喜特战旅) (@Pancho66196600) [November 25, 2021](https://twitter.com/Pancho66196600/status/1463799891222691845?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+台湾预防医学学会理事长陈宜民肯定了伊维菌素在临床经验和印度北方邦的作用，同时也提到日本东京医学会会长对伊维菌素的推荐，认为台湾应该重新评估伊维菌素的作用。 在CDC的领导下，羟氯喹和伊维菌素的临床试验很多是“以失败为目的的设计”，加大剂量以造成副作用过大的假象。 印度的经验让人无可推诿
+
+
+
+
+
+> 台湾预防医学学会理事长陈宜民肯定了伊维菌素在临床经验和印度北方邦的作用，同时也提到日本东京医学会会长对伊维菌素的推荐，认为台湾应该重新评估伊维菌素的作用。
+> 在CDC的领导下，羟氯喹和伊维菌素的临床试验很多是“以失败为目的的设计”，加大剂量以造成副作用过大的假象。
+> 印度的经验让人无可推诿 [pic.twitter.com/cx9aAToi9T](https://t.co/cx9aAToi9T)
+> — 文婕 文婕播报 (@wenjiebc) [November 25, 2021](https://twitter.com/wenjiebc/status/1463753548882231298?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+*编辑：映兰轩
+审核发布：文顾*
+
+ 
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
 

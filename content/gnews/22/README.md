@@ -2,30 +2,38 @@
 ---
 
 
-## 再有十余家中企因协助中共军方被美国列入贸易黑名单
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1696421/)
+## 法国计划对成年人接种疫苗加强针
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696428/)
 
-#### 撰稿：日本东京方舟农场  海星
+作者： 纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-212.png)
+周四，法国卫生部长宣布，计划向所有成年人提供新冠疫苗加强针，并制定更严格的佩戴口罩规则及健康通行证检查，以遏制新一波病毒感染。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/D40B6D8C-2C00-4A54-9904-65B6F7CD1945.jpeg)（图片来源：路透社）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-17.jpg)
 
-11月24日，美国商务部宣布，由于12家中共国公司涉及协助中共军方，威胁到美国国家安全，因此将相关企业列入制裁黑名单。
+此前，马克龙政府已表示，为避免像其他欧洲国家一样再次实施封锁，法国将执行更严格的社交距离规则，并尽快制定加强针接种计划。
 
-据《立场新闻》报道，美国商务部为确保国家安全，在11月24日宣布将27个实体和个人列入制裁黑名单。其中，有12家是中共国企业，包括杭州中科微电子、湖南国科微電子、新华三半导体技术有限公司、西安航天华讯科技、江苏云芯微电子 、合肥微尺度物质科学国家实验室，科大国盾量子、上海国盾量子，以及中国嘉兆科技的三家附属公司。
+据悉，法国政府预计，将全面疫苗接种至加强针注射的间隔时间，从六个月减少到五个月，并将PCR测试有效期缩短到一天。
 
-该报道指出，由于上述公司支持中共军事现代化，尝试偷窃美国原版项目以支持中共军方开发量子电脑应用程序，甚至还将窃取的美国先进技术卖给伊朗用于军事和太空计划、卖给朝鲜掩饰不法交易的实体机构，以及军方旗下的国防工业附属公司，因此，美国商务部必须做出行动，阻止美国技术被用于协助中共破解加密或开发不可破解的加密技术；同时阻止中共开发反隐形技术，包括先进雷达设备以及海底传感器等反潜应用。
+此外，法国人进入餐馆、咖啡馆、电影院和博物馆等公共场所，都需要接种新冠疫苗加强针。
 
-根据商务部制裁企业的规定，供应商必须申请许可证才可向黑名单上的公司出售产品，而申请许可证很大程度上会被拒绝。
+参考链接：
 
-*参考链接：[美國將十多家中國企業列黑名單　稱助解放軍建量子電腦、參與巴基斯坦核計劃](https://www.thestandnews.com/international/%E7%BE%8E%E5%9C%8B%E5%B0%87%E5%8D%81%E5%A4%9A%E5%AE%B6%E4%B8%AD%E5%9C%8B%E4%BC%81%E6%A5%AD%E5%88%97%E9%BB%91%E5%90%8D%E5%96%AE-%E7%A8%B1%E5%8A%A9%E8%A7%A3%E6%94%BE%E8%BB%8D%E5%BB%BA%E9%87%8F%E5%AD%90%E9%9B%BB%E8%85%A6%E5%8F%83%E8%88%87%E5%B7%B4%E5%9F%BA%E6%96%AF%E5%9D%A6%E6%A0%B8%E8%A8%88%E5%8A%83)*
+- [France extends COVID-19 booster shots to all adults](https://www.reuters.com/world/europe/france-announce-covid-19-booster-shots-all-adults-media-2021-11-24/?utm_source=ground.news&amp;utm_medium=referral)
 
-* * *
 
-*素材采编：海星*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
 
-*编辑：青衣青青*
+总编：飞虹
+编辑：文特
+校正/发稿：海阔天空1
 
-*发布：miumiu*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
