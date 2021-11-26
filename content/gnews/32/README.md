@@ -2,25 +2,49 @@
 ---
 
 
-## NBA凯尔特人队球星坎特如愿加入美国籍
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1697578/)
+## 台湾对美国总统拜登邀请台湾参加下个月举行的民主峰会表示感谢
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1697680/)
 
-采编：风云小哥   编译撰稿：文所未闻
+作者：银河勇气星—骄子
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/10/kanter-nike-edited.jpg)图片来源：THN
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-8.png)
 
 
-据美国《每日电讯报》11月24日报道，土耳其裔的现NBA【波士顿凯尔特人队】中锋球员坎特日前表示，他已通过了美国政府的公民测试，并将在本月底成为一名美国公民。
 
-报道称，由于持续强烈抨击中共暴政和一些附和该邪恶政权的NBA职业球员，坎特至今都不能返回土耳其。对此，该球员表示，美国因重视和保障公民言论自由而成为世界上最伟大的国家。他极力反对中共当局的根本目的并非因为政治，而是基于人权。
 
-同时，坎特还谴责了现役NBA球星詹姆斯无耻献媚中共，并将“金钱置于道德之上”。此外，他还批评了某些美国公司包括耐克等，因为只图谋眼前利益而对“中共国侵犯人权和种族灭绝罪行”视而不见。
 
-* * *
+台湾对美国总统拜登邀请台湾参加下个月举行的民主峰会表示感谢，此次民主峰会将于12月9日和10日以视频方式举办，峰会的受邀国家与地区有110个，参与的有全球100多个民主国家的领袖与代表，中共、俄罗斯和越南都不在受邀名单中。拜登总统今年2月在他的首次外交政策讲话中宣布了举办民主峰会的计划。他说，他将让美国重返国际领导地位，对抗中共和俄罗斯主导的威权主义力量。此次民主峰会的主题包括防范威权主义、处理和打击腐败以及推动尊重人权。
 
-校对编辑，发稿：硫酸羟氯喹64
+![](https://assets.gnews.org/wp-content/uploads/2021/11/FBA8A864-141C-4DA1-8D4F-B8BE4D6C1F8E_w1023_r1_s.jpg)图片来源: VOA
 
-原文链接[：](\thepostmillennial.com\former-crtc-head-trudeau-internet-bills-akin-to-censorship-in-russia-or-china) https://dailycaller.com/2021/11/24/nba-enes-kanter-us-citizen-china-lebron-james/
+参考阅读: 
+[https://www.voachinese.com/a/Taiwan-Appreciates-Being-Invited-To-Democracy-Summit/6326005.html](https://www.voachinese.com/a/Taiwan-Appreciates-Being-Invited-To-Democracy-Summit/6326005.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-8.jpg)
+
+编辑: Irene木木
+
+校对/发稿：一烘
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-8.png)
+
+
+
+
+
+
 
  
 
