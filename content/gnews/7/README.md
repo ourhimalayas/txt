@@ -2,49 +2,47 @@
 ---
 
 
-## 格陵兰剥夺了中共国矿业公司的铁矿床许可证
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1697846/)
+## 数百名Google员工签署了反对公司疫苗授权的宣言
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1697915/)
 
-**据《路透社》记者：Jacob Gronholt-Pedersen，2021年11月22日报道**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/a3a4l-koqqt-3.jpg)2**021 年 9 月 17 日，在靠近格陵兰塔西拉克的西海岸可以看到冰山和冰盖的边缘。REUTERS/Hannibal Hanschke/文件照片**
-路透哥本哈根11月22日 – 格陵兰周一表示，已剥夺一家中共国矿业公司在首都努克附近铁矿床的许可证，打击了中共国公司试图在资源丰富的北极岛屿立足的企图。
+**编译： Jenny Ball**
 
-中国煤炭和铁矿石进口商General Nice于2015年控制了Isua矿项目，取代了破产的前所有者伦敦矿业。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip79.png)字母(Alphabet )首席执行官桑达尔·皮查伊( Sundar Pichai )于 2020 年 1 月 22 日在瑞士达沃斯举行的世界经济论坛年会上发表讲话。 (Fabrice Coffrini/AFP via Getty Images)
+ 
 
-它是第一家有权在格陵兰开采矿产的中共国公司，随着气候变化开辟了水道并开辟了广阔的北极岛屿矿产资源，这引起了国际关注。
+至少有 600 名谷歌员工签署了一份宣言，反对该公司的 COVID-19 疫苗接种授权，据说白宫提出的要求，适用于所有 **150,000 名员工**，包括办公室和远程员工。
 
-政府在一份声明中表示，由于该地点的闲置，许可证被撤销，并补充说，一旦正式交还，它将提供给新的感兴趣的公司。
+拜登政府已将 1 月 4 日设为该国所有拥有 100 多名员工的公司，全面接种疫苗或定期接受 COVID-19 检测的最后期限。作为回应，谷歌要求员工，在 12 月 3 日前将他们的疫苗接种情况上传到谷歌的“环境健康与安全”团队。在大流行限制放宽后，许多员工已经返回办公室。
 
-它说，该公司也未能支付约定的担保款项。
+该宣言要求管理层制定一项“包括所有谷歌员工”的新授权，并要求同事“原则上反对该授权”。
 
-格陵兰资源部长Naaja Nathanielsen说：“我们不能接受许可证持有者一再未能在商定的最后期限前完成项目。”
+据 CNBC 报道，宣言的作者说：“我相信桑达尔的疫苗授权存在严重缺陷。”“这样的话，谷歌员工可能永远不会舒服地表达他们对公司健康政策和其他不相关的敏感话题的真实看法。这导致了表达观点的沉默，并加剧了谷歌内外人们多年来观察到的内部意识形态。”
 
-政府要求归还所有地质资料，存入剩余款项150万丹麦克朗，并清理矿区。
+对于员工个人疫苗详细信息的上传，文件称，“我认为谷歌不应了解谷歌员工的健康和病史，疫苗接种情况也不例外。”
 
-伦敦矿业于2013年获得开采许可证，最初计划雇用约2,000名中国工人建设该项目，目标是每年向中国供应约1,500万吨铁矿石。
+**谷歌一直保持立场，并表示所有与政府合同工作的员工，无论是否在办公室工作，都必须接种疫苗。**
 
-然而，它未能获得足够的资金。
+宣言作者称，谷歌的领导层具有“强制性”，还向谷歌首席卫生官、医学博士凯伦·德萨尔沃 (Karen DeSalvo) 发出了一封公开信称，如果像谷歌这样的市场领导者要实施疫苗规定，对全球公司的“影响令人不寒而栗” 。
 
-四月当选的格陵兰新政府表示，它支持对环境负责的采矿。
+该文件说：“**它不仅使 COVID-19 疫苗接种的医疗干预强制正常化**，而且，在未来甚至可能扩展到非疫苗干预的医疗干预措施正常化。”“**它证明了，基于个人信仰和决定对 Google 员工进行划分和不平等待遇的原则。**”
 
-今年它禁止了铀矿开采，有效地停止了Kuannersuit矿的开发，该矿是世界上最大的稀土矿床之一，该矿由一家中共国公司部分拥有。
+工人的反对正值谷歌争相进入医疗保健行业以及其他企业之际。
 
-消息人士当时告诉路透社，General Nice也在2016年试图从丹麦购买格陵兰岛一座废弃的海军基地，但出于安全考虑，哥本哈根否决了这一提议。
+根据 CDC 的数据，至少82.2% 的美国成年人部分接种了 COVID-19 疫苗。
 
-无法联系到General Nice发表评论。
+**点评：在当今网络时代，像Google 这样的大科技对世界的影响，何止是“不寒而栗”，简直就是毁灭性的！**
 
-2018 年，格陵兰拒绝了一家中共国国有银行和一家国有建筑公司提出的在格陵兰融资和建设两个机场的提议。
+**新闻来源：**[theepochtimes.com][Hundreds of Google Employees Sign Manifesto Opposing Company’s Vaccine Mandate](https://www.theepochtimes.com/hundreds-of-google-employees-sign-manifesto-opposing-companys-vaccine-mandate_4123813.html?utm_source=CCPVirusNewsletter&amp;utm_medium=email&amp;utm_campaign=2021-11-26)
 
-**文章来源：**[https://www.reuters.com/markets/commodities/greenland-strips-chinese-mining-firm-licence-iron-ore-deposit-2021-11-22/](https://www.reuters.com/markets/commodities/greenland-strips-chinese-mining-firm-licence-iron-ore-deposit-2021-11-22/)
+* * *
 
-翻译：洛杉矶盘古农场 – Raul
-校对：洛杉矶盘古农场 – Mike Li
-编辑：洛杉矶盘古农场-小象の奶瓶
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+
+
 
  
 

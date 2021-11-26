@@ -2,38 +2,50 @@
 ---
 
 
-## 柳传志在中共体制下毫无立身之地
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1697586/)
+## 台湾对美国总统拜登邀请台湾参加下个月举行的民主峰会表示感谢
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1697680/)
 
-作者：纽约香草山文艺部 – 宁文静
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月24日，郭文贵先生在大直播中谈到，柳传志代表了中国企业家的良心。
+作者：银河勇气星—骄子
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide2-16.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-8.png)
 
-郭先生表示，柳传志没有政治野心，只是埋头钻研电子科技和互联网技术。然而，偌大的中共却容不下这位IT行业的领军人物。
 
-据郭先生回忆，上世纪八十年代，贺龄乐先生带领柳传志等一批企业家打开了中共电子行业的大门。其中，作为联想集团创始人的柳传志则专注技术，壮大了行业，更扶植了无数中共企业家，且从不计利益和回报。彼时，在鼓励私营企业发展壮大的时代风口，以柳传志为代表的电子与互联网行业飞速发展。
 
-郭先生补充，柳传志作为一位行事低调、品行高尚的企业家，即使是日本人在谈到柳先生时也恭敬有加，赞誉他诚实、谦虚、自信地维护中国人的尊严。然而，在习近平和王岐山以国企当道、私企收归党的政策转向中，柳传志却备受打压——柳青的滴滴公司在合法上市后被紧急叫停，柳传志自己也被司马南之流疯狂撕咬。
 
-郭先生感叹，在自称是世界第二经济体的中共国里，柳传志这样的人物竟然难有其立身之地，这是所有良心企业家的悲哀。
 
-参考链接：[2021年11月24日 文贵大直播：北京深圳香港交易所；病毒疫苗灾难与解药；喜币喜联储GTV股票；新中国联邦灭共使命](https://gtv.org/video/id=619e389338f84e66c64ec66b)
+台湾对美国总统拜登邀请台湾参加下个月举行的民主峰会表示感谢，此次民主峰会将于12月9日和10日以视频方式举办，峰会的受邀国家与地区有110个，参与的有全球100多个民主国家的领袖与代表，中共、俄罗斯和越南都不在受邀名单中。拜登总统今年2月在他的首次外交政策讲话中宣布了举办民主峰会的计划。他说，他将让美国重返国际领导地位，对抗中共和俄罗斯主导的威权主义力量。此次民主峰会的主题包括防范威权主义、处理和打击腐败以及推动尊重人权。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/FBA8A864-141C-4DA1-8D4F-B8BE4D6C1F8E_w1023_r1_s.jpg)图片来源: VOA
 
-总编：文特
-编辑：文特
-校正/发稿：谐趣园
+参考阅读: 
+[https://www.voachinese.com/a/Taiwan-Appreciates-Being-Invited-To-Democracy-Summit/6326005.html](https://www.voachinese.com/a/Taiwan-Appreciates-Being-Invited-To-Democracy-Summit/6326005.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-8.jpg)
+
+编辑: Irene木木
+
+校对/发稿：一烘
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-8.png)
+
+
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
