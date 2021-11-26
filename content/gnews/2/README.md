@@ -2,10 +2,10 @@
 ---
 
 
-## 日本政府追加预算，拯救中共病毒导致的地方节日危机
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1696138/)
+## 世卫组织承认中共病毒疫苗不妨感染中共病毒
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1696150/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._26-scaled.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1126-scaled.jpg)
 *编辑：东京樱花团/简报小组
 发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
