@@ -2,22 +2,18 @@
 ---
 
 
-## 欠债不还，花样年被申请清盘
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1696938/)
+## 中共将禁止个人码经营收款，意在推行数字人民币
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1696947/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-777.png)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fp4.itc.cn%2Fimages01%2F20200624%2F2cbda82f5ad44e82a147e49b04c9bc18.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F403933823_100001551&amp;tbnid=3zCznJSVWlmjYM&amp;vet=12ahUKEwiH9cv9irX0AhVOnksFHQRlCXMQMygEegUIARCgAQ..i&amp;docid=4-bxEbM-y7drfM&amp;w=1440&amp;h=1080&amp;itg=1&amp;q=%E8%8A%B1%E6%A0%B7%E5%B9%B4&amp;ved=2ahUKEwiH9cv9irX0AhVOnksFHQRlCXMQMygEegUIARCgAQ)
-中共国房地产企业——花样年控股集团有限公司称，其主要附属公司香港花样年投资控股集团有限公司周三（24日）被申请清盘呈请，内容有关据称未偿还本金为1.49亿美元之贷款融资，花样年投资为担保人。
+撰稿：东京樱花团/天路天道
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-779.png)[图片来源](https://www.lfwin.com/Home/News/detail/id/938)
+近期，中共央行发布条码支付监管新通知。《通知》要求，“2022年3月1日起个人收款码禁用于经营性服务”及“禁止个人静态收款条码被用于远程非面对面收款”。
 
-据周四晚间的公告，花样年控股将寻求法律意见以维护其合法权益，并采取一切必要措施解决此事，包括与呈请人进行建设性的对话。
+使用微信、支付宝个人码进行收款，给众多小微商户和个体摊贩带来了极大便利，也提高了收款效率。而中共突然禁止，可能为全面对小微商户和个体摊贩征税做铺垫，更有可能是为全面推行数字人民币打基础、做预热。
 
-因美元债违约陷入债务旋涡的花样年控股此前表示，公司正与相关债权人积极磋商，以就与债权人重续或延长其借款或其他安排达成协议；并称集团面临流动资金问题。
+信息来源：[明年3月1日起，微信、支付宝个人收款码不能用于经营收款](https://www.toutiao.com/a7034707852300370444/?tt_from=android_share&amp;utm_campaign=client_share&amp;app=news_article&amp;iid=2560110237849416&amp;utm_medium=toutiao_android&amp;share_token=07a4f9df-846f-440d-875e-37a4393207ce)
 
-该公司间接全资控股的花样年集团（中国）周三公告，将于周四（25日）开始支付所发公司债“20花样02”年度债券利息，其中20%于25日按期支付，方式为场外支付；剩余80%于2022年11月25日延期兑付。
-
-消息来源：[中国房企花样年子公司被申请清盘 涉未偿还本金1.49亿美元贷款融资](https://cn.reuters.com/article/fantasia-hk-liquidation-1126-idCNKBS2IB03P?il=0)
-
-*校对：东京樱花团/知了知了
+*编辑：东京樱花团/喜马拉雅的微尘
 发布：东京樱花团/平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  

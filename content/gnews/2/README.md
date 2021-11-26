@@ -2,39 +2,32 @@
 ---
 
 
-## 中共国法院把法律当儿戏，一份判决书10处错误
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1696963/)
+## 福奇希望看到压倒性的大多数接种疫苗，否则将面临“被教育”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1697000/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-781.png)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.zhi10.com%2Ffiles%2Fcourse%2F2019%2F12-13%2F1550019bdd26953246.jpg&amp;imgrefurl=https%3A%2F%2Fwww.zhi10.com%2Fclassroom%2F1410&amp;tbnid=RuwI-0ASDbgCvM&amp;vet=12ahUKEwj-jobotLX0AhUmHHIKHW0RB9QQMygOegUIARC1AQ..i&amp;docid=yW24oq13_pUjLM&amp;w=525&amp;h=350&amp;itg=1&amp;q=%E6%B3%95%E5%BE%8B%E6%96%87%E4%B9%A6&amp;ved=2ahUKEwj-jobotLX0AhUmHHIKHW0RB9QQMygOegUIARC1AQ)
-10月17日，中共国内媒体报道了“河北一法院判决书出现10处错误，下发补正裁定书仍有错，法官被停职”一事。目前相关案件有了最新进展，11月26日，案件当事人吴先生告诉记者，目前案件经过上诉后，保定市中级人民法院本月作出裁定，撤销了一审河北省阜平县人民法院作出的民事判决，将案件发回河北省阜平县人民法院重审。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-782.png)
-“北京市中闻律师事务所”误写为“北京市中闯律师事务所”
+作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11266.png)[图片来源](https://www.startribune.com/covid-19-hospitalizations-set-2021-record-once-again-in-minnesota/600120021/)
+**美疫苗暴政规定联邦政府在拜登总统75 天疫苗规定即将到期的时间内完成劳动力的96.5%注射率 。 拒绝接受疫苗的白宫雇员工将“面临再教育”。顶级杀手福奇说： “希望看到压倒性的大多数获得加强注射。” 但不要取消口罩。**
 
-一个月前，吴先生向记者展示了一份判决书。今年5月，他作为罗山县祥生建筑劳务服务有限公司法定代表人，与河北保定市景晟装饰有限公司和阜平县垚鑫土地整治工程有限公司在河北省阜平县法院有一起诉讼。吴先生说，当时收到判决书时发现判决书上有多处文字和数据错误。通过律师向法院反映，他又收到了法院发来的一份“补正的民事裁定书”，可是上面仍然有错误。
+据美国新数据显示，“[联邦调查局和军队的疫苗接种率最高 90%。](https://thehill.com/policy/healthcare/583104-health-care)”消息显示，“超过 90% 的联邦工作人员和军人至少接种了一剂冠状病毒疫苗。”“截至周二，是联邦工作人员遵守拜登总统 75 天前宣布冠状病毒疫苗规定的最后期限。 ” 这意味着遵守该规定的劳动力的总百分比为 96.5%。
 
-记者仔细对照了吴先生提供的判决书和补正的民事裁定书发现，判决书的错误有10处。其中两位诉讼代理人的律所“北京市中闻律师事务所”误写为“北京市中闯律师事务所”；原告诉讼请求第2项拖欠工程款的利息“115.7万元”误写为“115700万元”，多了3位数；将“垚鑫公司”误写为“毒鑫公司”；“景晟公司”误写为“景展公司”；“种植保证金”误写为“种植保金”；将“祥生劳务公司”误写为“罗山公”；将反诉的案件受理费计算为18518元，实际应为8259元。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-783.png)
-补正民事裁定书中将“115700万元”更改为“1157万元”，实际为115.7万元
+- *延展阅读：*[*明尼苏达州的 COVID-19 住院人数再次创下 2021 年的记录*](https://www.startribune.com/covid-19-hospitalizations-set-2021-record-once-again-in-minnesota/600120021/)*。*
 
-吴先生通过律师向法院反映以后，法院做出了补正民事裁定书。吴先生发现，在补正民事裁定书中将上述“115700万元”又更改为“1157万元”。而且补正民事裁定书仅对4处错误做了补正，剩余几处没有做出补正。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-784.png)
-原告诉讼请求第2项拖欠工程款的利息“115.7万元”误写为“115700万元”
 
-此前，记者收到了阜平县人民法院对于此案的回复。阜平县人民法院表示，在审理罗山县祥生建筑劳动服务有限公司与保定市景晟装饰有限公司、阜平县垚鑫土地整治工程有限公司建设工程施工合同纠纷一案中，由于工作人员责任心不强、审核把关不严，导致案件判决书及补正裁定书中出现多处错误。对此，法院当即启动责任倒查和追责机制，对办案法官、法官助理及主管院领导分别作出停职、提醒谈话、向院党组做出深刻检查、在全院通报批评的处理。阜平县人民法院称，将举一反三，以此为戒，认真改进工作作风，坚决杜绝此类情况发生。
+据管理和预算办公室（OMB）在一份声明中表示，拒绝接受疫苗的白宫雇员工将“[面临一段时间的教育](https://thehill.com/policy/healthcare/583104-health-care)”。文章没有透露什么样的“教育”，最好不是效仿中国共产党的集中营制度，这样会在华盛顿建一个白宫集中营，以此来教育拒绝疫苗的人，就更加纳粹化。
 
-吴先生告诉记者，9月28日该案在保定市中级人民法院进行了开庭审理，11月2日，保定市中级人民法院本月作出裁定，撤销一审河北省阜平县人民法院作出的民事判决，将本案发回河北省阜平县人民法院重审。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-785.png)
-保定市中级人民法院本月做出裁定，撤销了一审河北省阜平县人民法院做出的民事判决，将案件发回河北省阜平县人民法院重审
+根据顶级传染病杀手安东尼·福奇 说，“[改变一个人的定义就是完全接种疫苗，包括加强针](https://thehill.com/policy/healthcare/583104-health-care)”认为，这是“摆在桌面上的”跑不掉的礼物。
 
-该案二审代理律师、北京市中闻律师事务所合伙人王维维向记者确认他已收到了二审对案件发回重审的裁定，但未对案情做评论，表示一切以法院判决裁定为准。
+- *延展阅读：*[*未接种疫苗的现役飞行员将很快被禁止执行新任务*](https://www.airforcetimes.com/news/your-air-force/2021/11/24/unvaccinated-active-duty-airmen-will-soon-be-barred-from-moving-to-new-assignments/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_campaign=Air%20Force%20DNR:%20Recurring%20Campaign%202021%202021-11-24&amp;utm_term=Editorial%20-%20Air%20Force%20-%20Daily%20News%20Roundup)*。*
+- *延展阅读：*[*明尼苏达州的 COVID：森林湖在爆发期间关闭市政府*](https://minnesota.cbslocal.com/2021/11/22/forest-lake-covid-outbreak-city-offices-closed/)*。*
 
-吴先生提供的二审判决书显示，保定市中级人民法院认为，一审法院对两家公司利益分成基数认定欠妥。一审法院对于被上诉人景晟公司持有的保证金数额、双方款项往来事实及利息的认定等方面有事实未查清之处。重审时应对上诉人祥生公司与被上诉人景晟公司之间的关系、双方款项往来及性质、借款数额及借款利率的认定、被上诉人景晟公司持有保证金数额等事实予以查明，在查明事实基础上再依法裁判。
 
-消息来源：[“河北一法院判决书10处错误，下发补正裁定书仍有错”追踪：判决被撤销，发回重审](https://www.163.com/dy/article/GPM2M2N3051492T3.html)
+该消息援引路透社报道称，福奇在路透社即将举行的下一次会议上接受采访时说： “[希望看到压倒性的大多数获得加强注射](https://thehill.com/policy/healthcare/583104-health-care)。” 顶级杀手福奇最后警告说：[为了应对美国的 COVID-19 病例又开始再次上升之际](http://www.news.cn/video/2021-11/26/c_1211462428.htm)，“[不要过早取消口罩](https://thehill.com/policy/healthcare/583104-health-care)”规定。
 
-*编辑：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
+2021年11月26日
+
+*校对：东京樱花团 / 文小白
+发布：东京樱花团 / 平安卿卿*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 

@@ -2,22 +2,20 @@
 ---
 
 
-## 美国出台制裁清单 中共战狼再跳脚
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1696920/)
+## 欠债不还，花样年被申请清盘
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1696938/)
 
-撰稿/配图：东京樱花团/ Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-774.png)
-路透北京11月25日，美国商务部出台新的制裁清单，中共国商务部新闻发言人束珏婷周四称，不符合中美两国元首共识，不利于全球产业链、供应链安全和世界经济复苏。“中方表示强烈抗议，将向美方进行严正交涉。”她在商务部例行新闻发布会上称，美方泛化国家安全概念，随意出台制裁措施，严重缺乏事实依据，程序非常不透明，表示强烈抗议。
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-777.png)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fp4.itc.cn%2Fimages01%2F20200624%2F2cbda82f5ad44e82a147e49b04c9bc18.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F403933823_100001551&amp;tbnid=3zCznJSVWlmjYM&amp;vet=12ahUKEwiH9cv9irX0AhVOnksFHQRlCXMQMygEegUIARCgAQ..i&amp;docid=4-bxEbM-y7drfM&amp;w=1440&amp;h=1080&amp;itg=1&amp;q=%E8%8A%B1%E6%A0%B7%E5%B9%B4&amp;ved=2ahUKEwiH9cv9irX0AhVOnksFHQRlCXMQMygEegUIARCgAQ)
+中共国房地产企业——花样年控股集团有限公司称，其主要附属公司香港花样年投资控股集团有限公司周三（24日）被申请清盘呈请，内容有关据称未偿还本金为1.49亿美元之贷款融资，花样年投资为担保人。
 
-美国商务部周三表示，已将十几家中共国实体列入其贸易黑名单，称这是出于国家安全和外交政策方面的考虑，并表示在某些情况下，这些实体还帮助中共国军方进行量子计算。
+据周四晚间的公告，花样年控股将寻求法律意见以维护其合法权益，并采取一切必要措施解决此事，包括与呈请人进行建设性的对话。
 
-美国商务部还表示，来自中共国和巴基斯坦的一些实体和个人因参与巴基斯坦的核活动或弹道导弹计划而被列入黑名单。
+因美元债违约陷入债务旋涡的花样年控股此前表示，公司正与相关债权人积极磋商，以就与债权人重续或延长其借款或其他安排达成协议；并称集团面临流动资金问题。
 
-嘴炮是共匪的拿手好戏，集谎言，威逼利诱和恐吓于一体；好话说尽，坏事做绝往往多半都能得逞。谎言欺骗是共匪的手段，竟能让大多数人一而再上当受骗；威逼利诱是共匪的绝活，竟让许多人心不甘情不愿扭扭捏捏地屈从之；恐吓是共匪的杀手锏，让多少铮铮铁汉悄然消声。共匪这三板斧几乎让他拿下全天下。
+该公司间接全资控股的花样年集团（中国）周三公告，将于周四（25日）开始支付所发公司债“20花样02”年度债券利息，其中20%于25日按期支付，方式为场外支付；剩余80%于2022年11月25日延期兑付。
 
-与共匪斗，过不了这三板斧一切都是白瞎。在这场与共匪的正邪大战中，必须提高正义人士的勇气，行动力，智慧力，决断力，才能真正战胜邪恶，这是对正义人士真正意义上的大考。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-775.png)
-消息来源：[美国出台制裁清单 中国商务部表示强烈抗议并将向美方进行严正交涉](https://cn.reuters.com/article/china-mofa-us-entities-sanctions-1125-idCNKBS2IA0HS)
+消息来源：[中国房企花样年子公司被申请清盘 涉未偿还本金1.49亿美元贷款融资](https://cn.reuters.com/article/fantasia-hk-liquidation-1126-idCNKBS2IB03P?il=0)
 
 *校对：东京樱花团/知了知了
 发布：东京樱花团/平安卿卿*

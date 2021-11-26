@@ -2,18 +2,43 @@
 ---
 
 
-## 红袖标重出江湖，文革2.0拉开序幕
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1696940/)
+## 六百名谷歌员工签署宣言推翻公司的疫苗强制接种政策
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1696948/)
 
-2021年11月25日
-作者：班粉小哥
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-778.png)
-最近国内网络流传出中共国广州市越秀区委政法委员会红头文件通知，通知显示为“关于全面发动全区干部职工佩戴红袖标的通知”，要求区属个单位、各街道在做群防共治工作中，贯彻区常委会议精神，在社会面或到社区调研、督导、检查、巡查等相关工作时，应佩戴“广州街坊、群防共治”红袖标。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-780.png)
-中共陆续放风推广”枫桥经验“以后，中共司法部网站发表“各地深入学习贯彻习近平法治思想，推动新时代‘枫桥经验’历史弥新大放异彩”的文章。地方开始以”枫桥经验“为主要法制思路，政府下放最终审判权，县级政政府甚至镇政府层面有权利核准死刑。以群众举报群众，以群众斗群众。在可预见的未来内，中国底层必将举报成风，进入相互伤害的模式，中国社会必然会遍地冤假错案。此举也代表习近平新时代文革2.0正式拉开帷幕。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-校对发布：MQ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/google-employees-1.jpg) 
+
+
+
+图片来源：nypost.com
+
+
+#### 编译：小红帽
+
+在美国拥有约15万名员工的谷歌（Google）公司规定，所有与政府承包商打交道的员工都必须全面接种新冠疫苗，即使他们在家办公，其他员工也被要求报告他们的疫苗接种情况。
+
+然而，这项新措施在公司内部遭到了反对，约有600名员工签署了一份宣言，要求谷歌“包容所有谷歌员工”并推翻这项政策，同时呼吁其他员工“反对疫苗强制接种”政策。
+
+据CNBC首先报道，这份宣言至少有600人签署，要求公司高管放弃“包括所有谷歌员工”的疫苗强制接种政策。
+
+该宣言敦促员工“在原则上反对强制接种疫苗”，并鼓励他们不要让强制接种疫苗的政策影响他们接受疫苗的意愿。
+
+谷歌已将员工申请疫苗豁免的截止日期设为11月12日，从1月10日起，员工将被要求每周在办公室工作三天。
+
+谷歌首席执行官桑达尔·皮查伊(Sundar Pichai)在7月的一篇博文中宣布，该公司要求员工全面接种新冠疫苗后才能返回工作岗位。
+
+**参考新闻：**[600 Google Employees Sign Manifesto to Overturn the Company’s Vax Mandate (humansarefree.com)](https://humansarefree.com/2021/11/600-google-employees-to-overturn-vaccine-mandate.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
