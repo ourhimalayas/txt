@@ -2,25 +2,18 @@
 ---
 
 
-## 加拿大科学机构称近期不可能取消疫苗护照
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1697423/)
+## 【文贵先生大直播PPT】青蒿素功效 疫苗灾难
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1697543/)
 
-采编， 编译撰稿：Spirit      校对编辑：硫酸羟氯喹64
+撰稿：Eglise，莲心不染，文紫，舒平风，坐看云起时
+美工：青山
+审核：三票先生，顽童先生，舒平风
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-66-edited.jpg)图片来源：THN
-
-
-据加拿大媒体《CTV新闻》11月24 日报道，安大略省政府当天宣布，将可能在今年底或明年初，逐步分阶段解除开各类“新冠病毒”疫情卫生限制措施。
-
-报道称，大部分非必要公共场所如餐馆、体育馆和赌场等地的疫苗护照要求或将在明年1月17日前后开始逐步被取消。但当局同时表示，以上开放计划将在圣诞节和学校重新开学之后，基于当时疫情的发展趋势再最终确定。
-
-尽管如此，【安省科学咨询委员会】负责人朱尼博士则对政府明年初将取消疫苗护照的计划并不乐观。并同时呼吁：由于最近在欧洲“新冠病毒”感染病例的激增，以及面对圣诞节期间疫情有可能恶化的挑战，因此，更多人应该接种疫苗甚至注射加强针以防止该病毒传播。
-
+【2021年11月26日文贵先生大直播PPT：青蒿素功效 疫苗灾难】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-176.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-123.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-103.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-69.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-51.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-44.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/7-36.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/8-27.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/9-19.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/10-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/11-14.jpg)
 * * *
 
-校对编辑，发稿：硫酸羟氯喹64
-
-原文链接： https://ottawa.ctvnews.ca/chance-of-vaccine-mandates-ending-in-january-next-to-zero-ontario-science-table-head-says-1.5679932
+发稿：云起时
 
  
 

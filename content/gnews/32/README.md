@@ -2,12 +2,21 @@
 ---
 
 
-## 11/19郭文贵直播：任何国家政府批准新中国联邦国防军购买武器和培训等同于认可我们的主权资格（粤语配音）
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1697021/)
+## 七哥说—第31期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1697347/)
 
-11/19/2021 郭文贵直播：任何一个国家政府批准新中国联邦国防军购买武器和参加培训等同于认可了我们的主权资格；世界上最牛的雇佣军都是咱的人，他们可被随时派去在陆上保护咱战友。
+制作：Inzaghi
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+天怒人怨即将使中共灭亡！唤醒会凝聚更多的力量。
+不抛弃，不放弃的正是你心中那一份对信念的坚定。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/a1111.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/a2222.png)
+
+发稿：信心的选择
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
 
  
 
