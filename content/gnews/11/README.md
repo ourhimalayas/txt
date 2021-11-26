@@ -2,28 +2,30 @@
 ---
 
 
-## 因帮助中共军方获取技术，美国“实体名单”再添27家
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696396/)
+## 法国计划对成年人接种疫苗加强针
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696428/)
 
-作者： 纽约香草山农场 – 007
+作者： 纽约香草山教育部 – Naughty(文行)
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/1-212.png)
-11月24日，因从事违背美国国家安全和外交政策利益的活动，美国商务部宣布，将27个位于中共国和巴基斯坦的公司和实体列入“实体名单”。
+周四，法国卫生部长宣布，计划向所有成年人提供新冠疫苗加强针，并制定更严格的佩戴口罩规则及健康通行证检查，以遏制新一波病毒感染。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-10.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-17.jpg)
 
-其中包括：帮助中共军方获取量子计算技术的杭州中科、新华三、 国盾量子等八家中共国公司，支持巴基斯坦无安全保障核活动和弹道导弹计划、在中共国和巴基斯坦经营的16个实体和个人，参与了从西方向伊朗、朝鲜、中共国军事项目出售技术的嘉兆科技的三个子公司。此外，俄罗斯的莫斯科物理与技术研究所被列入“军事终端用户”名单。
+此前，马克龙政府已表示，为避免像其他欧洲国家一样再次实施封锁，法国将执行更严格的社交距离规则，并尽快制定加强针接种计划。
 
-一家公司或实体被美国商务部列为“实体名单”，意味着美国公司必须获得特别许可，才能向该公司出售产品，而这个特别许可的申请很可能被拒绝。
+据悉，法国政府预计，将全面疫苗接种至加强针注射的间隔时间，从六个月减少到五个月，并将PCR测试有效期缩短到一天。
+
+此外，法国人进入餐馆、咖啡馆、电影院和博物馆等公共场所，都需要接种新冠疫苗加强针。
 
 参考链接：
 
-- [美商务部将帮助中国军方的中国公司列入贸易黑名单](https://www.voachinese.com/a/US-commerce-entity-list-chinese-companies-20211124/6326652.html)
+- [France extends COVID-19 booster shots to all adults](https://www.reuters.com/world/europe/france-announce-covid-19-booster-shots-all-adults-media-2021-11-24/?utm_source=ground.news&amp;utm_medium=referral)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
 
-总编：文特
-编辑：文特/雪梨
+总编：飞虹
+编辑：文特
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

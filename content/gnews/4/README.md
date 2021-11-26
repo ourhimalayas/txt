@@ -2,38 +2,39 @@
 ---
 
 
-## 法国计划对成年人接种疫苗加强针
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696428/)
+## 奥地利总理就过激的封锁措施向接种疫苗者道歉
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1696537/)
 
-作者： 纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-212.png)
-周四，法国卫生部长宣布，计划向所有成年人提供新冠疫苗加强针，并制定更严格的佩戴口罩规则及健康通行证检查，以遏制新一波病毒感染。
+#### **【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5955-1.jpg)**图片来源：The Conversation**
+#### 翻译：ATX1230
+编辑：文泓
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9-17.jpg)
+近日，奥地利总理向已接种疫苗的公民道歉，为竭力遏制可能使医疗保健系统不堪重负的第四波新冠的螺旋式上升，该国周一再次陷入全面封锁状态。
 
-此前，马克龙政府已表示，为避免像其他欧洲国家一样再次实施封锁，法国将执行更严格的社交距离规则，并尽快制定加强针接种计划。
+总理亚历山大·沙伦伯格(Alexander Schallenberg)告诉媒体，在国家开始新的封锁之际，他对数百万接种了新冠疫苗的同胞表示感同身受。
 
-据悉，法国政府预计，将全面疫苗接种至加强针注射的间隔时间，从六个月减少到五个月，并将PCR测试有效期缩短到一天。
+据媒体报道，沙伦伯格说：“我很抱歉采取这种激烈的措施。从周一开始的封锁将持续至少10天，如果新冠指标没有改善，可能会再延长10天。”
 
-此外，法国人进入餐馆、咖啡馆、电影院和博物馆等公共场所，都需要接种新冠疫苗加强针。
+新的禁闭措施是针对奥地利全国人口。政府早已对未接种疫苗的人实施了部分禁闭，以努力减少因新冠病例飙升而导致的住院率。
 
-参考链接：
+当为期10天的全国性封锁结束时，未接种疫苗的公民仍将被禁止进入某些公共场所。
 
-- [France extends COVID-19 booster shots to all adults](https://www.reuters.com/world/europe/france-announce-covid-19-booster-shots-all-adults-media-2021-11-24/?utm_source=ground.news&amp;utm_medium=referral)
+上周，沙伦伯格宣布，从2月1日起，疫苗接种将成为强制性的。“我们一直没能说服足够的人接种疫苗。长期以来，我和其他人都认为我们可以说服人们去接种疫苗，”他说。
 
+在奥地利的890万人口中，约有66%的人已经完全接种了新冠疫苗，这是西欧接种率最低的地区之一。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
+周五，邻国德国在新增病例数量飙升的情况下进入了“全国紧急状态”。德国卫生部长延斯·斯帕恩（Jens Spahn）周一说：“可能到今年冬天结束时，就像人们有时冷嘲热讽地说的那样，德国几乎每个人都将接种疫苗——治愈或死亡。”他重申了情况的严重性。
 
-总编：飞虹
-编辑：文特
-校正/发稿：海阔天空1
+新闻链接：[Austrian chancellor apologizes to vaccinated over ‘drastic’ lockdown — RT World News](https://www.rt.com/news/540962-austria-lockdown-begins-apology/)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**发布：文泓**
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

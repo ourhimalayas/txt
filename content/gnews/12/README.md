@@ -2,39 +2,42 @@
 ---
 
 
-## 超过 600 名谷歌员工签署宣言反对疫苗强制令
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1696368/)
+## 澳洲前医疗官员警告新冠“疫苗”强制令对儿童有害
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1696427/)
 
-据《零对冲》作者泰勒·杜登（TYLER DURDEN）2021 年 11 月 24 日报道
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image002-2.jpg)图片来自网络
-据 CNBC （美国全国广播公司财经频道）援引内部文件称，至少有 600 名谷歌员工签署了一份内部宣言，要求这家硅谷科技巨头取消其中共病毒疫苗令。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-谷歌内部的宣言已由至少 600 名谷歌员工签署，要求公司领导人撤销疫苗令，并创建一个“包括所有谷歌员工”的新令，并认为领导层的决定将对美国企业产生巨大影响。它还呼吁员工“作为原则问题反对这项强制令”，并告诉员工如果他们已经选择不接种中共病毒疫苗，不要让谷歌这一政策改变了他们的决定。
-
-尽管签署了该文件的员工只占谷歌全体员工的一小部分，但随着复工截止日期的临近，这种势头可能会增强。从 1 月 10 日开始，该公司的大多数员工预计将每周返回实体办公室工作三天。
-
-该公司已让其 150,000 多名美国员工在 12 月 3 日前报告他们的疫苗接种情况，以及他们是否愿意在家工作。
-
-谷歌的强制令遵循拜登政府对拥有 100 名以上员工的公司的“接种或检测”命令。此外，该公司表示，所有与政府合同直接或间接相关的员工，即使在家工作，也必须接种疫苗。
-
-谷歌安全副总裁在上月底发送的一封电子邮件中写道：“疫苗是我们能够让每个人安全返回办公室，并最大程度地减少中共病毒在我们社区中传播的能力的关键。”他补充说，（我们的做法）对拜登的行政命令的改变是“最小的”。他的电子邮件还让员工在 11 月 12 日之前请求基于宗教信仰或医疗状况的豁免，这将根据具体情况予以批准。
-
-谷歌发言人表示，该公司支持其政策。
-
-“正如我们对所有员工和本文件作者所说的那样，我们的疫苗接种要求是我们确保员工安全和服务正常运行的最重要方法之一。我们坚决支持我们的疫苗接种政策。”
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/106972926-16364849812021-11-09t013129z_786024702_rc2kqq9xi22v_rtrmadp_0_health-coronavirus-usa-children.jpeg)
 
 
+ 
+图片来源：www.cnbc.com
 
-> Maybe some of these employees saw the "died suddenly" spike in google trends.
-> — Zr1Trader (@ZR1Trader) [November 23, 2021](https://twitter.com/ZR1Trader/status/1463247621598892038?ref_src=twsrc%5Etfw)
 
+#### 编译：小红帽
 
-*Zr1 Trader @ZR1Trader*
-*也许其中一些员工看到了谷歌趋势的“突然死亡”飙升。*
-*2021年11月23日*
-原文链接：[https://www.zerohedge.com/political/over-600-google-employees-sign-manifesto-against-covid-vaccine-mandate](https://www.zerohedge.com/political/over-600-google-employees-sign-manifesto-against-covid-vaccine-mandate)
+澳大利亚的一位前首席医官挺身而出为儿童辩护，他说不应该强迫儿童注射新冠病毒（Covid-19）的 “疫苗”。
 
-翻译：Nick｜校对：JS709｜编辑&发布：断播
+出于某种原因，尼克·科茨沃思（Nick Coatsworth）并不关心12岁以上的儿童，他们和澳大利亚的所有成年人一样被要求注射新冠疫苗。然而，12岁以下的儿童应该得到豁免，科茨沃思说。
+
+除非儿童的父母希望他们接受注射，否则澳大利亚政府不应强迫12岁以下的儿童注射疫苗。在科茨沃思的声明发表之际，治疗用品管理局（TGA）正在考虑强制要12岁以下的儿童和婴儿注射莫德纳（Moderna）的Spikevax疫苗 。
+
+截至目前，莫德纳疫苗仍处于儿童mRNA（信使RNA）疫苗的试验阶段，它称之为 “KidCOVE”。该研究涉及年仅6个月大的儿童，一直到12岁。
+
+莫德纳声称，迄今为止的结果显示，在注射第一剂疫苗后两周，疗效达到了100%。
+
+“特别是在维多利亚州，首席卫生官在区别对待未接种疫苗的12至15岁儿童实行差别待遇，这违反了基本的自主道德原则。”科茨沃思补充说。
+
+**参考新闻：**[Covid “vaccine” mandates dangerous for children, warns former Australian medical official – NaturalNews.com](https://www.naturalnews.com/2021-11-25-covid-vaccine-mandates-dangerous-for-children.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

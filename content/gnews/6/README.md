@@ -2,34 +2,49 @@
 ---
 
 
-## 西南航空员工反疫苗斗争获巨大胜利
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696422/)
+## 美国长滩市唯一急诊室被迫关闭，72名员工因为强制疫苗被辞退
+` 加拿大温哥华扬帆农场视频组` [轉載自GNews](https://gnews.org/zh-hans/1696513/)
 
-作者： 纽约香草山福音部 – lilian89
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-212.png)
-11月24日，据trending politics消息，在反击疫苗强制政策的抵抗运动中，西南航空公司员工的豁免权全部获得批准。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-25.jpg)
-该消息由导演兼制片人罗比·斯塔巴克首先发布。他表示，这个消息是从一名西南航空的飞行员处得知。另外，汽车制造商也与工会达成协议，不再强制要求雇员注射新冠疫苗。
+一家急诊室关闭了
+因为它没有足够的工作人员
+看起来他们没有其他选择
+这是纽约强制疫苗措施的余波
+但现在长滩没有急诊室了
+Greg Cergol一直在调查此事
+David这个城市的居民 因失去急诊室而被刺痛
+但这个急诊室的医院说它没有选择
+西奈山南拿索医院的官员早些时候告诉我
+他们今天失去了72名员工
+他们都是未接种疫苗的员工
+国家卫生部决定他们不能再为病人服务
+因为他们没有接种疫苗
+长滩唯一的急诊室今天下午关闭 了大门，这将持续至少一个月
+在西奈山南拿索医院向这个社区发出 关闭警报后仅数小时，该医院就关闭了
+我认为这很可耻, 我真的认为这很可耻
+一位当地的公民领袖说
+这一决定使5万名长滩居民在 城市范围内没有紧急护理设施
+他们不能得到需要的护理质量 并无法在可接受的时间内得到帮助
+这又是一个令人深感不安的问题
+这位长滩市女议员强忍着泪水敦促 西奈山南拿索医院改变这一决定
+这家医院每年接待约7万名病人
+但医院将其所谓的暂时 关闭归咎于护士的短缺
+这种短缺与纽约要求所有医护人员 接种COVID疫苗的规定有关
+这是非常令人沮丧的理论
+萨尔沃是这里最后一位接受治疗的人
+他说现在他担心的是
+要开15到20分钟的车去 5英里外的海山市的主要医院
+长滩的许多居民没有汽车，也不开车
+他们是社区里的稳定居民
+所以我认为这很荒谬
+让我澄清一下今天离职的 南拿索西奈山的72名员工
+他们都有宗教豁免权
+但州卫生部撤销了这些豁免权
+这就是为什么他们不能再为病人服务
 
-拜登政府的疫苗强制令正在被瓦解。本月，联邦上诉法院对拜登政府的非法联邦疫苗授权，给予沉重的打击。第五区上诉法院坚定地维持暂停疫苗强制令的决定。此外，11个州的总检察长也已经提起诉讼，阻止联邦政府执行这项违反宪法的疫苗政策。
+听写翻译：米小乐
+字幕添加：杰尼龟
 
-参考链接：
-
-- [‘Winning’: Southwest Employees Get Wind of a Huge Victory in Their Fight Against Vaccine Mandates](https://trendingpolitics.com/winning-southwest-employees-get-wind-of-a-huge-victory-in-their-fight-against-vaccine-mandates-knab/)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
-
-总编：Irene木木
-编辑：Ivy001/雪梨
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+发布：风云小哥
 
  
 
