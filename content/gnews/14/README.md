@@ -2,30 +2,34 @@
 ---
 
 
-## 再有十余家中企因协助中共军方被美国列入贸易黑名单
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1696421/)
+## 西南航空员工反疫苗斗争获巨大胜利
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696422/)
 
-#### 撰稿：日本东京方舟农场  海星
+作者： 纽约香草山福音部 – lilian89
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-212.png)
+11月24日，据trending politics消息，在反击疫苗强制政策的抵抗运动中，西南航空公司员工的豁免权全部获得批准。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/8-25.jpg)
+该消息由导演兼制片人罗比·斯塔巴克首先发布。他表示，这个消息是从一名西南航空的飞行员处得知。另外，汽车制造商也与工会达成协议，不再强制要求雇员注射新冠疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/D40B6D8C-2C00-4A54-9904-65B6F7CD1945.jpeg)（图片来源：路透社）
+拜登政府的疫苗强制令正在被瓦解。本月，联邦上诉法院对拜登政府的非法联邦疫苗授权，给予沉重的打击。第五区上诉法院坚定地维持暂停疫苗强制令的决定。此外，11个州的总检察长也已经提起诉讼，阻止联邦政府执行这项违反宪法的疫苗政策。
 
-11月24日，美国商务部宣布，由于12家中共国公司涉及协助中共军方，威胁到美国国家安全，因此将相关企业列入制裁黑名单。
+参考链接：
 
-据《立场新闻》报道，美国商务部为确保国家安全，在11月24日宣布将27个实体和个人列入制裁黑名单。其中，有12家是中共国企业，包括杭州中科微电子、湖南国科微電子、新华三半导体技术有限公司、西安航天华讯科技、江苏云芯微电子 、合肥微尺度物质科学国家实验室，科大国盾量子、上海国盾量子，以及中国嘉兆科技的三家附属公司。
+- [‘Winning’: Southwest Employees Get Wind of a Huge Victory in Their Fight Against Vaccine Mandates](https://trendingpolitics.com/winning-southwest-employees-get-wind-of-a-huge-victory-in-their-fight-against-vaccine-mandates-knab/)
 
-该报道指出，由于上述公司支持中共军事现代化，尝试偷窃美国原版项目以支持中共军方开发量子电脑应用程序，甚至还将窃取的美国先进技术卖给伊朗用于军事和太空计划、卖给朝鲜掩饰不法交易的实体机构，以及军方旗下的国防工业附属公司，因此，美国商务部必须做出行动，阻止美国技术被用于协助中共破解加密或开发不可破解的加密技术；同时阻止中共开发反隐形技术，包括先进雷达设备以及海底传感器等反潜应用。
 
-根据商务部制裁企业的规定，供应商必须申请许可证才可向黑名单上的公司出售产品，而申请许可证很大程度上会被拒绝。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
 
-*参考链接：[美國將十多家中國企業列黑名單　稱助解放軍建量子電腦、參與巴基斯坦核計劃](https://www.thestandnews.com/international/%E7%BE%8E%E5%9C%8B%E5%B0%87%E5%8D%81%E5%A4%9A%E5%AE%B6%E4%B8%AD%E5%9C%8B%E4%BC%81%E6%A5%AD%E5%88%97%E9%BB%91%E5%90%8D%E5%96%AE-%E7%A8%B1%E5%8A%A9%E8%A7%A3%E6%94%BE%E8%BB%8D%E5%BB%BA%E9%87%8F%E5%AD%90%E9%9B%BB%E8%85%A6%E5%8F%83%E8%88%87%E5%B7%B4%E5%9F%BA%E6%96%AF%E5%9D%A6%E6%A0%B8%E8%A8%88%E5%8A%83)*
+总编：Irene木木
+编辑：Ivy001/雪梨
+校正/发稿：海阔天空1
 
-* * *
-
-*素材采编：海星*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

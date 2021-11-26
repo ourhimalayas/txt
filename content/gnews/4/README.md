@@ -2,39 +2,46 @@
 ---
 
 
-## 奥地利总理就过激的封锁措施向接种疫苗者道歉
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1696537/)
+## 有声|文革罪恶之毁灭家庭
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1696555/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5955-1.jpg)**图片来源：The Conversation**
-#### 翻译：ATX1230
-编辑：文泓
+配音：香草山香港部 – 文凯琳
 
-近日，奥地利总理向已接种疫苗的公民道歉，为竭力遏制可能使医疗保健系统不堪重负的第四波新冠的螺旋式上升，该国周一再次陷入全面封锁状态。
 
-总理亚历山大·沙伦伯格(Alexander Schallenberg)告诉媒体，在国家开始新的封锁之际，他对数百万接种了新冠疫苗的同胞表示感同身受。
 
-据媒体报道，沙伦伯格说：“我很抱歉采取这种激烈的措施。从周一开始的封锁将持续至少10天，如果新冠指标没有改善，可能会再延长10天。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
 
-新的禁闭措施是针对奥地利全国人口。政府早已对未接种疫苗的人实施了部分禁闭，以努力减少因新冠病例飙升而导致的住院率。
 
-当为期10天的全国性封锁结束时，未接种疫苗的公民仍将被禁止进入某些公共场所。
 
-上周，沙伦伯格宣布，从2月1日起，疫苗接种将成为强制性的。“我们一直没能说服足够的人接种疫苗。长期以来，我和其他人都认为我们可以说服人们去接种疫苗，”他说。
+今天早上，无意间看到一篇报道，讲述的是文革期间儿子举报亲生母亲导致其母被杀的悲惨事件。看完后心情久久不能平静!
 
-在奥地利的890万人口中，约有66%的人已经完全接种了新冠疫苗，这是西欧接种率最低的地区之一。
+悲剧发生在1970年2月13日，张红兵一家人在一起辩论文化大革命的事情。母亲说领导人不该搞个人崇拜，她要为刘少奇翻案。他当时非常震惊，觉得他母亲已经不是他心目中的可爱母亲，而是他的阶级敌人。这时候父亲表态要和母亲划清界限，要举报他母亲。当时，16岁的张红兵写了封检举信，与红卫兵胸章一起，塞进了军代表的门缝。他检举的是自己的母亲方忠谋。1970年4月11日，在万人宣判大会之后，方忠谋以“现行反革命”罪名被枪决！
 
-周五，邻国德国在新增病例数量飙升的情况下进入了“全国紧急状态”。德国卫生部长延斯·斯帕恩（Jens Spahn）周一说：“可能到今年冬天结束时，就像人们有时冷嘲热讽地说的那样，德国几乎每个人都将接种疫苗——治愈或死亡。”他重申了情况的严重性。
+文中的张红兵是那个文革年代的典型人物，他有个充满温情的家，在荒唐时代他的父亲被挨批斗时(其父张月升曾在固镇县任卫生科科长，“文革”之初便被“打倒”)，其母亲站到其父亲身边，高喊“要文斗不要武斗”，还替父亲遮挡拳头保护父亲。张红兵在父亲被划为革命造反派遭受人们拳打脚踢批斗时，为了划清界限，还贴了批斗父亲的大字报。他说：放在现在看，会觉得不可思议，但当时的舆论导向和社会思潮在那个年代稀松寻常。他的父亲和母亲并没有责怪他。贴大字报后，其父亲反而把他当作大人来看待。
 
-新闻链接：[Austrian chancellor apologizes to vaccinated over ‘drastic’ lockdown — RT World News](https://www.rt.com/news/540962-austria-lockdown-begins-apology/)
 
-**发布：文泓**
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+原文链接：[文革罪恶之毁灭家庭](https://gnews.org/zh-hans/1692223/)
+
+音频处理：喜山必胜Maverick
+发稿：Daxia
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-3.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-2.jpg)
+
+
 
  
 

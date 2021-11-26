@@ -2,28 +2,38 @@
 ---
 
 
-## 德国因中共病毒死亡达10万，默克尔说这是悲哀的一天
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1696304/)
+## 中共推出养老新政，“政府养老”沦为空话
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696308/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-39.png)
-图片来源： www.dw.com
+作者： 日本方舟农场 – Andy5
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-155.png)
+11月24日，中共国务院出台了《加强新时代老龄工作的意见》。
 
-美联社11月25日报道，德国总理安琪拉·默克尔把周四称作“非常悲伤的一天”，要求更多的限制，因为德国自疫情全球爆发以来，因中共病毒死亡人数最新已达10万人。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-17.png)
 
-德国疾控中心说过去24小时又有351例死于中共病毒感染，使得总死亡人数达100,119，在欧洲，德国是第五个国家达到这个数字，紧跟俄罗斯，英国，意大利，法国之后。
+该《意见》仅笼统地表示政府要“发挥主导作用”、“加强组织和监督工作”，没有提及政府在养老上的资金和政策支持。对于承载养老的主体，则明确表示要“向社区、家庭延伸”，探索“社区+物业+养老服务”的模式。
 
-默克尔在柏林新闻发布会上说：“这当然是非常悲哀，我们对这10万多名受害者而哭泣，很不幸的是，此时此刻，每天又有300多人死亡。”
+特别值得注意的是，在该《意见》的第二十项中提出，鼓励成年子女与父母就近居住或者共同生活，履行赡养义务，承担照料责任。
 
-一家德国联邦机构罗伯特·科氏研究所从全国400家地区健康办公室收集数据，说德国一天确诊病例达75961例，自从中共病毒疫情爆发以来，德国已有557万人感染了中共病毒。
+40年前，中共推出计划生育政策，宣称“只生一个好，政府来养老”。而此《意见》的出台，意味着中共曾经承诺的责任沦为空谈。
 
-默克尔周三称德国政府正在建立一个永久的专家团队，为政府提出如何应对疫情的措施。
+新闻链接：
 
-很多医院警告称重症监护室病床都在爆满，东南部的一些医院正在把病人转移到其他地区。巴伐利亚医院总监罗兰德·恩格森说，新感染病例必须快速下降，否则在感恩节和圣诞节期间的情形将达到我们从未想像到的状况。
-
-##### **新闻来源： **[Merkel: ‘Sad day’ as Germany marks 100,000 deaths from COVID](https://apnews.com/article/coronavirus-pandemic-health-europe-germany-54b1aecc3cd04973bdb99e92cd36214f)
+- [中共中央国务院：鼓励成年子女与老年父母就近居住或共同生活](https://www.guancha.cn/politics/2021_11_24_616085.shtml)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
+
+总编：飞虹
+编辑：飞虹
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
