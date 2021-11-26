@@ -2,33 +2,21 @@
 ---
 
 
-## 福奇希望看到压倒性的大多数接种疫苗，否则将面临“被教育”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1697000/)
+## 南非现变异毒株中共开启二次投毒
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1697022/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11266.png)[图片来源](https://www.startribune.com/covid-19-hospitalizations-set-2021-record-once-again-in-minnesota/600120021/)
-**美疫苗暴政规定联邦政府在拜登总统75 天疫苗规定即将到期的时间内完成劳动力的96.5%注射率 。 拒绝接受疫苗的白宫雇员工将“面临再教育”。顶级杀手福奇说： “希望看到压倒性的大多数获得加强注射。” 但不要取消口罩。**
+撰稿：自由战士
 
-据美国新数据显示，“[联邦调查局和军队的疫苗接种率最高 90%。](https://thehill.com/policy/healthcare/583104-health-care)”消息显示，“超过 90% 的联邦工作人员和军人至少接种了一剂冠状病毒疫苗。”“截至周二，是联邦工作人员遵守拜登总统 75 天前宣布冠状病毒疫苗规定的最后期限。 ” 这意味着遵守该规定的劳动力的总百分比为 96.5%。
+据中共官方媒体消息，南非发现了新冠病毒新毒株。另据南非广播公司消息，南非政府定于当地时间25日发布这种新毒株的相关声明。据报道，36岁男性病例10月23日离开香港前往南非，曾于10月22日在香港进行检测，结果呈阴性。他乘搭航班QR818于11月11日返抵香港，抵港时于机场检测结果呈阴性。他于指定检疫酒店进行检疫期间的样本结果呈阳性，并带有变异病毒株。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1637915488.png)（图片来自网络）
+首先，我们要先了解一下此次变异毒株的特性，官方公布的详情：1.降低疫苗免疫力，2.传播速度快。根据这个描述特性来看，中共和世界的邪恶势力，明白疫苗的次生灾害即将来临，为疫苗无效做甩锅准备的新的舆论导向布局宣传。同时也被逼加快了第二次投毒的计划。文贵先生几个月前就呼吁世界防治中共的第二次投毒。此次的大范围的报道信息来看。这是一次蓄谋已久，有计划安排的袭击。
 
-- *延展阅读：*[*明尼苏达州的 COVID-19 住院人数再次创下 2021 年的记录*](https://www.startribune.com/covid-19-hospitalizations-set-2021-record-once-again-in-minnesota/600120021/)*。*
+再次，目前世界的反对疫苗的游行已经遍布全球各个国家，大家看到的疫苗灾难已经在吞噬着人们的生命，寻求真相，百万人上街的游行比比皆是。邪恶势力为了再次把苏醒的民众再次打压封锁到家里，必须要进行第二次放毒来达到局面的控制。我们可以看到中共每次袭击全球同时会同步残害墙内百姓来达到信息掩盖，在南非新闻发布后几乎同一时间，中共媒体也发布了上海的疫情同步确诊3例。第一，表达中共国跟全世界一样，都是病毒受害地区；第二，继续强压百姓钱吗疫苗大概率失效，需要紧急推广加强针接种，继续屠杀百姓。
 
+最后，中共的每一次疯狂，都是对于我们爆料革命新中国联邦的恩赐机会。这样会让人们更加信任我们传播的真相，就像文贵先生说的，不仅仅我们在建立一个联盟的体制，更加在这次人类大灾难中，我们肩负起了拯救人类的重任，传播真相，推广解药，灭共的路上救人无数。
 
-据管理和预算办公室（OMB）在一份声明中表示，拒绝接受疫苗的白宫雇员工将“[面临一段时间的教育](https://thehill.com/policy/healthcare/583104-health-care)”。文章没有透露什么样的“教育”，最好不是效仿中国共产党的集中营制度，这样会在华盛顿建一个白宫集中营，以此来教育拒绝疫苗的人，就更加纳粹化。
-
-根据顶级传染病杀手安东尼·福奇 说，“[改变一个人的定义就是完全接种疫苗，包括加强针](https://thehill.com/policy/healthcare/583104-health-care)”认为，这是“摆在桌面上的”跑不掉的礼物。
-
-- *延展阅读：*[*未接种疫苗的现役飞行员将很快被禁止执行新任务*](https://www.airforcetimes.com/news/your-air-force/2021/11/24/unvaccinated-active-duty-airmen-will-soon-be-barred-from-moving-to-new-assignments/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_campaign=Air%20Force%20DNR:%20Recurring%20Campaign%202021%202021-11-24&amp;utm_term=Editorial%20-%20Air%20Force%20-%20Daily%20News%20Roundup)*。*
-- *延展阅读：*[*明尼苏达州的 COVID：森林湖在爆发期间关闭市政府*](https://minnesota.cbslocal.com/2021/11/22/forest-lake-covid-outbreak-city-offices-closed/)*。*
-
-
-该消息援引路透社报道称，福奇在路透社即将举行的下一次会议上接受采访时说： “[希望看到压倒性的大多数获得加强注射](https://thehill.com/policy/healthcare/583104-health-care)。” 顶级杀手福奇最后警告说：[为了应对美国的 COVID-19 病例又开始再次上升之际](http://www.news.cn/video/2021-11/26/c_1211462428.htm)，“[不要过早取消口罩](https://thehill.com/policy/healthcare/583104-health-care)”规定。
-
-2021年11月26日
-
-*校对：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+编辑：五饼二鱼
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
