@@ -2,18 +2,25 @@
 ---
 
 
-## 【文贵先生大直播PPT】青蒿素功效 疫苗灾难
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1697543/)
+## 美国释放战略原油以遏制油价失控飙升
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1697551/)
 
-撰稿：Eglise，莲心不染，文紫，舒平风，坐看云起时
-美工：青山
-审核：三票先生，顽童先生，舒平风
+采编：文明     编译撰稿：文明(添草灭共)
 
-【2021年11月26日文贵先生大直播PPT：青蒿素功效 疫苗灾难】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-176.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-123.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-103.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-69.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-51.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-44.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/7-36.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/8-27.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/9-19.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/10-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/11-14.jpg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-68.jpg)图片来源：ONEAME
+
+
+据自由媒体【美国新闻网】11月24日报道，美国政府日前宣布将通过“动用该国5千万桶石油储备”的计划来应对当前不断上涨的汽油和其他商品价格所造成的负面影响。
+
+据悉，当局对本次释放战略储备油的行动已酝酿了数周，其中1800万桶已经被国会批准出售。美国政府高级官员为此表示：该举措应该很快会对油价产生影响。同时，拜登试图以此解决近期以来，从能源到食物等各种生活必需品价格都在持续上涨的经济危机。
+
+报道称，国际原油价格在以上消息公布后应声下挫，西德克萨斯州轻原油价格23日盘中下跌1.6%，至每桶75.39美元；英国布兰特原油价格下降1.3%，至每桶78.63美元。
+
 * * *
 
-发稿：云起时
+校对编辑，发稿：硫酸羟氯喹64
+
+原文链接：https://www.oann.com/white-house-announces-plan-to-release-50m-barrels-of-oil-from-reserves/
 
  
 

@@ -2,43 +2,29 @@
 ---
 
 
-## 赵长鹏受中共掌控 藏身迪拜
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1697501/)
+## 各国政府或将对币安实行更严格金融监管
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1697502/)
 
-撰稿：美东香草山农场 文真
+编译撰稿：薇文    校对编辑，发稿：硫酸羟氯喹64
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
-
-
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/a-11-edited.png)图片来源： WLW
 
 
+据英国《金融时报》11月24日报道，每天交易量达760亿美元的全球最大加密货币交易所【币安公司】，其总裁赵长鹏日前向媒体透露：【币安】新加坡分部最近已获该国淡马锡旗下【祥峰基金】的投资支持。目前赵长鹏正与数家主权财富基金商谈寻求更多投资机会。
 
-11月24日，郭文贵先生在大直播中，继续爆料币安创始人与CEO赵长鹏和中共勾兑的更多内幕。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11263-1.png)
-郭先生说，币安交易所涉嫌非法交易，拒绝客户提现，而且赵长鹏已经将所有客户信息出卖给中共。此外，赵长鹏还受中共指使，诋毁喜联储和喜币，并企图以破产为由，逃避一切法律追责，将所有资金据为己有。赵长鹏已无处藏身，只能藏匿在中共的情报基地—迪拜。
+据悉，【币安公司】自其成立以来既无地址也无总部，现试图争取各大基金的巨额投资之举，势必将被当局严密监管。但每当该公司面对全球各地金融监管机构的审查时，往往都采取逃避的方式。因此，指望通过投资机构迫使其业务操作变得透明将不切实际。
 
-郭先生还谈到，赵长鹏深谙虚拟货币的藏钱方式，是最多比特币的持有者之一，并有暗网账号等交易方式。
+同时，相关媒体已发出警告，称【币安】这种极具风险的商业模式，不仅会使投资者失利，它还存在着犯罪和洗钱的可能性。为此，本台记者报道：在当天的GTV直播节目中，郭文贵先生根据其确凿情报来源，及时揭露了赵长鹏或已将币安所有客户信息都非法交给了中共当局。而新中国联邦将对其涉嫌违法及欺诈犯罪行为进行全面法律诉讼。
 
-郭先生感叹，赵长鹏知道太多中共的内幕信息，按照中共一贯的手法，赵长鹏也终将惨遭灭口。
+* * *
 
-新闻链接：[2021年11月24日 文贵大直播：北京深圳香港交易所；病毒疫苗灾难与解药；喜币喜联储GTV股票；新中国联邦灭共使命](https://gtv.org/video/id=619e389338f84e66c64ec66b)
+原文链接：https://www.ft.com/content/95dd5639-674a-440b-9b0b-4cea4045b6f8
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-5.jpg)
+相关链接：
 
-总编：Irene木木
+[https://cointelegraphcn.com/news/govt-owned-holding-company-subsidiary-invests-in-binances-singapore-expansion](https://cointelegraphcn.com/news/govt-owned-holding-company-subsidiary-invests-in-binances-singapore-expansion)
 
-编辑：Lakeman(文仁)/雪梨
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
+[https://www.wsj.com/articles/binance-became-the-biggest-cryptocurrency-exchange-without-licenses-or-headquarters-thats-coming-to-an-end-11636640029](https://www.wsj.com/articles/binance-became-the-biggest-cryptocurrency-exchange-without-licenses-or-headquarters-thats-coming-to-an-end-11636640029)
 
  
 
