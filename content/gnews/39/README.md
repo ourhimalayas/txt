@@ -2,28 +2,35 @@
 ---
 
 
-## “有情人难成眷属”，时空隔望张高丽
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1696232/)
+## 西南航空员工反疫苗斗争获巨大胜利
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696422/)
 
-撰稿/配图：东京樱花团/ Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Ob微视角图片-e1637811078206.jpg)
-看中国2021年11月26日讯，中国网球女将彭帅本月初指控中国前国务院副总理张高丽性侵后，一度“人间蒸发”受到各界高度关注。为此，国际奥委会主席巴赫（Thomas Bach）与彭帅进行视讯向外界“报平安”，令外界不禁质疑奥委会在帮中共背书，充当大外宣角色。结果日前再传出，张高丽曾负责筹办北京冬奥会，并与2016年就认识巴赫，这让整起事件添加更多疑点。
+作者： 纽约香草山福音部 – lilian89
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-212.png)
+11月24日，据trending politics消息，在反击疫苗强制政策的抵抗运动中，西南航空公司员工的豁免权全部获得批准。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/8-25.jpg)
+该消息由导演兼制片人罗比·斯塔巴克首先发布。他表示，这个消息是从一名西南航空的飞行员处得知。另外，汽车制造商也与工会达成协议，不再强制要求雇员注射新冠疫苗。
 
-张高丽于2015年出任第24届冬奥会工作领导小组组长，分管北京冬奥筹办工作。据美国《华尔街日报》、英国路透社等外媒报导，张高丽担任国务院副总理期间，曾主责经济事务，同时组织监督、指导冬奥会的“领导小组”，直至2018年才将该业务移交予现任副总理韩正。
+拜登政府的疫苗强制令正在被瓦解。本月，联邦上诉法院对拜登政府的非法联邦疫苗授权，给予沉重的打击。第五区上诉法院坚定地维持暂停疫苗强制令的决定。此外，11个州的总检察长也已经提起诉讼，阻止联邦政府执行这项违反宪法的疫苗政策。
 
-新华社也有报导，张高丽2016年6月12日在中南海紫光阁与IOC主席巴赫见面。除感谢巴赫和国际奥委会对北京申办2022冬奥给予支持外，也强调中共政府高度重视北京冬奥筹办工作，两人还握手拍照留念。
+参考链接：
 
-彭帅指控张高丽性侵后“人间蒸发”，为应对舆论质问，中共推出国际奥委会主席巴赫（Thomas Bach）与彭帅进行视讯向外界“报平安”。但是有关国务院副总理张高丽始终不敢露面。近日有媒体终于推出旧闻张高丽，一张照片疯传网络，“有情人终难成眷属”，大玩时空穿越。
+- [‘Winning’: Southwest Employees Get Wind of a Huge Victory in Their Fight Against Vaccine Mandates](https://trendingpolitics.com/winning-southwest-employees-get-wind-of-a-huge-victory-in-their-fight-against-vaccine-mandates-knab/)
 
-一切都是演戏，背后都是有导演的。在中共国无论大人物还是小人物，都是木偶，背后都有一只无形的手在操弄，一言一行，一个露面都有专门的体系去审核度量。区别在于当官的受益多，老百姓灾难多，最终结局无一善终。
 
-消息来源：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
 
-[奥委会与彭帅视讯后 张高丽“现身”网络疯传(图)](https://m.secretchina.com/news/gb/2021/11/26/990605.html)
+总编：Irene木木
+编辑：Ivy001/雪梨
+校正/发稿：海阔天空1
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
