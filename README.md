@@ -15,118 +15,118 @@
 
 ---
 
-### [所罗门群岛首都霍尼亚拉暴力抗议的背后原因](/content/gnews/1/README.md)
+### [朋友，你不愤怒吗：“边排队边看书！浙大核酸检测现场”](/content/gnews/1/README.md)
+ ` 秘密翻译组-原创组`
+
+### [美国国会两党代表团访问台湾](/content/gnews/2/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/3/README.md)
+ ` wenwu`
+
+### [所罗门群岛首都霍尼亚拉暴力抗议的背后原因](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [完全接种疫苗的加拿大参议员死于Covid](/content/gnews/2/README.md)
+### [完全接种疫苗的加拿大参议员死于Covid](/content/gnews/5/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [所罗门群岛抗议活动的幕后黑手](/content/gnews/3/README.md)
+### [所罗门群岛抗议活动的幕后黑手](/content/gnews/6/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [司馬南、方舟子、胡錫進和中共洗腦百姓，激起種族對立](/content/gnews/4/README.md)
+### [司馬南、方舟子、胡錫進和中共洗腦百姓，激起種族對立](/content/gnews/7/README.md)
  ` G-NEWS TAIWAN`
 
-### [中共国的住房危机不会是一代人的危机，它将是一个家庭的危机](/content/gnews/5/README.md)
+### [中共国的住房危机不会是一代人的危机，它将是一个家庭的危机](/content/gnews/8/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新的“超级南非”变种有许多以前从未见过的突变](/content/gnews/6/README.md)
+### [新的“超级南非”变种有许多以前从未见过的突变](/content/gnews/9/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [英国禁止来自非洲 6 个国家的旅行](/content/gnews/7/README.md)
+### [英国禁止来自非洲 6 个国家的旅行](/content/gnews/10/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [南非现变异毒株中共开启二次投毒](/content/gnews/8/README.md)
+### [南非现变异毒株中共开启二次投毒](/content/gnews/11/README.md)
  ` 澳喜农场`
 
-### [11/19郭文贵直播：任何国家政府批准新中国联邦国防军购买武器和培训等同于认可我们的主权资格（粤语配音）](/content/gnews/9/README.md)
+### [11/19郭文贵直播：任何国家政府批准新中国联邦国防军购买武器和培训等同于认可我们的主权资格（粤语配音）](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [泽连科医生：新冠疫苗对儿童的致命性是病毒的172倍（粤语配音）](/content/gnews/10/README.md)
+### [泽连科医生：新冠疫苗对儿童的致命性是病毒的172倍（粤语配音）](/content/gnews/13/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [数据显示：新冠毒疫苗灾难的最坏时刻还没有到来](/content/gnews/11/README.md)
+### [数据显示：新冠毒疫苗灾难的最坏时刻还没有到来](/content/gnews/14/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [荒唐！男子偷菜获利8元被中共判刑半年](/content/gnews/12/README.md)
+### [荒唐！男子偷菜获利8元被中共判刑半年](/content/gnews/15/README.md)
  ` 澳喜农场`
 
-### [秘翻在线：全斗焕疫苗接种后患血液癌死亡？](/content/gnews/13/README.md)
+### [秘翻在线：全斗焕疫苗接种后患血液癌死亡？](/content/gnews/16/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [福奇希望看到压倒性的大多数接种疫苗，否则将面临“被教育”](/content/gnews/14/README.md)
+### [福奇希望看到压倒性的大多数接种疫苗，否则将面临“被教育”](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国警察酒驾到现场暴力执法](/content/gnews/15/README.md)
+### [中共国警察酒驾到现场暴力执法](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国法院把法律当儿戏，一份判决书10处错误](/content/gnews/16/README.md)
+### [中共国法院把法律当儿戏，一份判决书10处错误](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [这个市场的脆弱，只需要蝴蝶振翅](/content/gnews/17/README.md)
+### [这个市场的脆弱，只需要蝴蝶振翅](/content/gnews/20/README.md)
  ` 澳喜农场`
 
-### [六百名谷歌员工签署宣言推翻公司的疫苗强制接种政策](/content/gnews/18/README.md)
+### [六百名谷歌员工签署宣言推翻公司的疫苗强制接种政策](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共将禁止个人码经营收款，意在推行数字人民币](/content/gnews/19/README.md)
+### [中共将禁止个人码经营收款，意在推行数字人民币](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [红袖标重出江湖，文革2.0拉开序幕](/content/gnews/20/README.md)
+### [红袖标重出江湖，文革2.0拉开序幕](/content/gnews/23/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [欠债不还，花样年被申请清盘](/content/gnews/21/README.md)
+### [欠债不还，花样年被申请清盘](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共以数据安全为由，强迫滴滴退市](/content/gnews/22/README.md)
+### [美国出台制裁清单 中共战狼再跳脚](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国出台制裁清单 中共战狼再跳脚](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共病毒“最猛烈变种”现踪香港](/content/gnews/24/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [中共拿下国际刑警组织执委 IPAC呼吁撤销与中港引渡条](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [南非发现中共病毒新变体](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [所罗门群岛发生骚乱的背后](/content/gnews/27/README.md)
+### [护士、医院官员：强制疫苗阻碍了在 沃科夏市汽车袭击中受伤的儿童的治疗](/content/gnews/26/README.md)
  ` 走进澳洲`
 
-### [北京当局要求网约车巨头滴滴从美国退市](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
+### [中共病毒“最猛烈变种”现踪香港](/content/gnews/27/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [欧盟将禁止未接种疫苗者进入其成员国](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
+### [中共拿下国际刑警组织执委 IPAC呼吁撤销与中港引渡条](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [立陶宛体育部长宣称不会出席北京冬奥会](/content/gnews/30/README.md)
+### [南非发现中共病毒新变体](/content/gnews/29/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [所罗门群岛发生骚乱的背后](/content/gnews/30/README.md)
+ ` 走进澳洲`
+
+### [立陶宛体育部长宣称不会出席北京冬奥会](/content/gnews/31/README.md)
  ` 首尔天池农场`
 
-### [新中国联邦国防军展望](/content/gnews/31/README.md)
+### [新中国联邦国防军展望](/content/gnews/32/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭文贵先生谈中共经济现状](/content/gnews/32/README.md)
+### [郭文贵先生谈中共经济现状](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [美国需要为中共台海战争做准备](/content/gnews/33/README.md)
+### [美国需要为中共台海战争做准备](/content/gnews/34/README.md)
  ` 澳喜农场`
 
-### [有声|文革罪恶之毁灭家庭](/content/gnews/34/README.md)
+### [有声|文革罪恶之毁灭家庭](/content/gnews/35/README.md)
  ` MOSREC`
 
-### [美国长滩市唯一急诊室被迫关闭，72名员工因为强制疫苗被辞退](/content/gnews/35/README.md)
+### [美国长滩市唯一急诊室被迫关闭，72名员工因为强制疫苗被辞退](/content/gnews/36/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [法国计划对成年人接种疫苗加强针](/content/gnews/36/README.md)
+### [法国计划对成年人接种疫苗加强针](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [西南航空员工反疫苗斗争获巨大胜利](/content/gnews/37/README.md)
- ` GTV新闻访谈`
-
-### [德国新政府公布四条对中政策](/content/gnews/38/README.md)
+### [西南航空员工反疫苗斗争获巨大胜利](/content/gnews/38/README.md)
  ` GTV新闻访谈`
 
 ### [“有情人难成眷属”，时空隔望张高丽](/content/gnews/39/README.md)

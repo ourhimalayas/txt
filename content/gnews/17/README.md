@@ -2,43 +2,33 @@
 ---
 
 
-## 这个市场的脆弱，只需要蝴蝶振翅
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1696954/)
+## 福奇希望看到压倒性的大多数接种疫苗，否则将面临“被教育”
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1697000/)
 
-撰稿：童媚
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-34.jpg)（图片来自网络）
-又变种了！！
+作者：东京樱花团｜捆绑CCP一千年
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11266.png)[图片来源](https://www.startribune.com/covid-19-hospitalizations-set-2021-record-once-again-in-minnesota/600120021/)
+**美疫苗暴政规定联邦政府在拜登总统75 天疫苗规定即将到期的时间内完成劳动力的96.5%注射率 。 拒绝接受疫苗的白宫雇员工将“面临再教育”。顶级杀手福奇说： “希望看到压倒性的大多数获得加强注射。” 但不要取消口罩。**
 
-周四，英国发布了最新发现的一种在南非传播的新冠病毒变种病毒。卫生局官员称这次的变种是“迄今为止最糟糕的变种”，因为其突变数量是Delta变种的两倍。
+据美国新数据显示，“[联邦调查局和军队的疫苗接种率最高 90%。](https://thehill.com/policy/healthcare/583104-health-care)”消息显示，“超过 90% 的联邦工作人员和军人至少接种了一剂冠状病毒疫苗。”“截至周二，是联邦工作人员遵守拜登总统 75 天前宣布冠状病毒疫苗规定的最后期限。 ” 这意味着遵守该规定的劳动力的总百分比为 96.5%。
 
-但话锋一转，该新闻最终的落脚点回到病毒与疫苗的关系。报道称，该变种可能降低疫苗效力，危及全球在抗击疫情方面取得的进展。
+- *延展阅读：*[*明尼苏达州的 COVID-19 住院人数再次创下 2021 年的记录*](https://www.startribune.com/covid-19-hospitalizations-set-2021-record-once-again-in-minnesota/600120021/)*。*
 
-病毒溯源未清晰，人类的无力只能在徒劳的事情上奔波。关于疫苗的真相已经用一条条鲜活生命的倒下，让更多的人醒来，但主流媒体和科学界不仅不质疑现存疫苗的安全性和有效性，相反，我们看到的是各地政府更加疯狂的强制接种，和这条将“疫苗不力”责任推给“新变种”病毒上。
 
-同样的现象还出现在了资本市场。
+据管理和预算办公室（OMB）在一份声明中表示，拒绝接受疫苗的白宫雇员工将“[面临一段时间的教育](https://thehill.com/policy/healthcare/583104-health-care)”。文章没有透露什么样的“教育”，最好不是效仿中国共产党的集中营制度，这样会在华盛顿建一个白宫集中营，以此来教育拒绝疫苗的人，就更加纳粹化。
 
-亚洲股市周五创出两个月来的最大跌幅，MSCI明晟亚太地区(除日本)指数下跌1.3%，创出9月以来的最大跌幅；日股日经指数下挫2.5%。亚股下跌拖累全球股市，恐怕将成为10月初以来最大单周跌幅。
+根据顶级传染病杀手安东尼·福奇 说，“[改变一个人的定义就是完全接种疫苗，包括加强针](https://thehill.com/policy/healthcare/583104-health-care)”认为，这是“摆在桌面上的”跑不掉的礼物。
 
-道琼斯指数期货下跌1%，富时指数期货和欧洲STOXX 50指数期货各下跌约1.4%。澳洲股市AXJO下跌0.6%。南非兰特早盘下跌1%至一年来的最低点；对风险敏感的澳元和新西兰元跌至三个月低点，除此以为，美国原油期货也下跌了近2%。
+- *延展阅读：*[*未接种疫苗的现役飞行员将很快被禁止执行新任务*](https://www.airforcetimes.com/news/your-air-force/2021/11/24/unvaccinated-active-duty-airmen-will-soon-be-barred-from-moving-to-new-assignments/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_campaign=Air%20Force%20DNR:%20Recurring%20Campaign%202021%202021-11-24&amp;utm_term=Editorial%20-%20Air%20Force%20-%20Daily%20News%20Roundup)*。*
+- *延展阅读：*[*明尼苏达州的 COVID：森林湖在爆发期间关闭市政府*](https://minnesota.cbslocal.com/2021/11/22/forest-lake-covid-outbreak-city-offices-closed/)*。*
 
-为了避险，市场上的资金大量涌入债券、日圆和美元，而为了逃避真正戳破资本市场泡沫的真相，大家纷纷将这波下跌与“变种病毒”联系紧密。
 
-市场上所谓的专家，纷纷恐慌变种病毒对疫苗效力的挑战会引发全市场的金融风险。殊不知，真正的风险早已在这几年全球金融市场与中共市场的无缝连接中，埋下了深深的祸根。
+该消息援引路透社报道称，福奇在路透社即将举行的下一次会议上接受采访时说： “[希望看到压倒性的大多数获得加强注射](https://thehill.com/policy/healthcare/583104-health-care)。” 顶级杀手福奇最后警告说：[为了应对美国的 COVID-19 病例又开始再次上升之际](http://www.news.cn/video/2021-11/26/c_1211462428.htm)，“[不要过早取消口罩](https://thehill.com/policy/healthcare/583104-health-care)”规定。
 
-这就像“穿着新衣”的皇帝，对着全世界撒谎，但实际这个皇帝的内心却是那个早已知道答案的小男孩。
+2021年11月26日
 
-文贵先生早在2017年的那句“黑夜已经来临”，对今天发生的一切做了提早的告诫，但彼时，没有多少人听懂，笑他痴，笑他狂。如今，当灾难一步步应验，来到我们每个人身边的时候，还有很多人试图掩盖和转移，但这一次，我们每个人都是这场死局中的棋子，无处逃脱。
-
-在周三的大直播中，郭先生评论这个月以来资本市场的异象时，直截了当地指出，金融灾难还没开始，一定是急速下降，没有任何缓解的余地。
-
-的确，在这场中共处心积虑编织的统一世界的梦里，脆弱的只需要一只蝴蝶的振翅，而这一刻，很快就会到来。
-
-资料参考：
-
-[英国警告发现新冠病毒最新变种 可能降低现有疫苗保护效力 | 路透 (reuters.com)](https://cn.reuters.com/article/uk-south-africa-covid-variant-1126-idCNKBS2IB03J?il=0)
-
-发稿：MG5
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
+*校对：东京樱花团 / 文小白
+发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

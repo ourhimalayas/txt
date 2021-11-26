@@ -2,33 +2,66 @@
 ---
 
 
-## 福奇希望看到压倒性的大多数接种疫苗，否则将面临“被教育”
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1697000/)
+## 数据显示：新冠毒疫苗灾难的最坏时刻还没有到来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1697019/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11266.png)[图片来源](https://www.startribune.com/covid-19-hospitalizations-set-2021-record-once-again-in-minnesota/600120021/)
-**美疫苗暴政规定联邦政府在拜登总统75 天疫苗规定即将到期的时间内完成劳动力的96.5%注射率 。 拒绝接受疫苗的白宫雇员工将“面临再教育”。顶级杀手福奇说： “希望看到压倒性的大多数获得加强注射。” 但不要取消口罩。**
-
-据美国新数据显示，“[联邦调查局和军队的疫苗接种率最高 90%。](https://thehill.com/policy/healthcare/583104-health-care)”消息显示，“超过 90% 的联邦工作人员和军人至少接种了一剂冠状病毒疫苗。”“截至周二，是联邦工作人员遵守拜登总统 75 天前宣布冠状病毒疫苗规定的最后期限。 ” 这意味着遵守该规定的劳动力的总百分比为 96.5%。
-
-- *延展阅读：*[*明尼苏达州的 COVID-19 住院人数再次创下 2021 年的记录*](https://www.startribune.com/covid-19-hospitalizations-set-2021-record-once-again-in-minnesota/600120021/)*。*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-788.png)
+根据网站dailyexpose 2021年11月22日引用ONS(英国国家统计办公室)发布的数据，英国接种新冠疫苗后年龄组死亡率上升，数据如下表：
 
 
-据管理和预算办公室（OMB）在一份声明中表示，拒绝接受疫苗的白宫雇员工将“[面临一段时间的教育](https://thehill.com/policy/healthcare/583104-health-care)”。文章没有透露什么样的“教育”，最好不是效仿中国共产党的集中营制度，这样会在华盛顿建一个白宫集中营，以此来教育拒绝疫苗的人，就更加纳粹化。
+| 年龄组 | 接种开始日期 | 与去年同期比死亡率增长（%） | 与5年同期比死亡率增长（%） |
+| --- | --- | --- | --- |
+| 12-15 | 20/9/21 | 47 | 26 |
+| 16-18 | 1/8/2021 | 39 | 16 |
+| 20-24 | 18/6/21 | 27 | 10 |
+| 25-29 | 8/6/2021 | 15 | 6 |
+| 30-34 | 26/5/21 | 20 | 12 |
+| 35-39 | 20/5/21 | 11 | 13 |
+| 40-44 | 30/4/21 | 10 | 17 |
+| 45-49 |  13/4/21 | 1 | 5 |
+| 50-54 | 17/3/21 | 2 | 7 |
+| 55-59 |  06/3/21 | 3 | 11 |
+| 60-64 | 1/3/2021 | 2 | 11 |
+| 65-69 | 15/2/21 | 4 | 0 |
+| 70-74 | 18/1/21 | 2 | 10 |
+| 75-79 | 18/1/21 |  2 | 11 |
+| 80-84 |  18/1/21 | 7 | 4 |
+| 85-89 | 18/1/21 | 8 | 1 |
+| 90+ | 18/1/21 | 8 | 3 |
 
-根据顶级传染病杀手安东尼·福奇 说，“[改变一个人的定义就是完全接种疫苗，包括加强针](https://thehill.com/policy/healthcare/583104-health-care)”认为，这是“摆在桌面上的”跑不掉的礼物。
 
-- *延展阅读：*[*未接种疫苗的现役飞行员将很快被禁止执行新任务*](https://www.airforcetimes.com/news/your-air-force/2021/11/24/unvaccinated-active-duty-airmen-will-soon-be-barred-from-moving-to-new-assignments/?utm_source=Sailthru&amp;utm_medium=email&amp;utm_campaign=Air%20Force%20DNR:%20Recurring%20Campaign%202021%202021-11-24&amp;utm_term=Editorial%20-%20Air%20Force%20-%20Daily%20News%20Roundup)*。*
-- *延展阅读：*[*明尼苏达州的 COVID：森林湖在爆发期间关闭市政府*](https://minnesota.cbslocal.com/2021/11/22/forest-lake-covid-outbreak-city-offices-closed/)*。*
+从上表可以看出，青少年接种新冠疫苗后，12-24岁的死亡率相比去年同期大幅增加，分别达到47%、39%、27%，与5年同期比分别达到了26%、16%、10%，均高于其他年龄组，成人24岁-90岁以上各年龄组也有不同程度增加。与死亡率大幅上升相比，2021年优势毒株Delta毒株病死率为0.1%（0.1-0.2%），仅为2020年Alpha毒株病死率1.9%（1.8-2.0%）的1/19。
 
+此外，根据网站CITIZEN FREE PRESS的报道，截止2021年9月19日，ONS数据显示，10-60岁以下人群接种疫苗后，每10万人死亡人数上升至2.2，比去年同期的0.9增加了2倍。
 
-该消息援引路透社报道称，福奇在路透社即将举行的下一次会议上接受采访时说： “[希望看到压倒性的大多数获得加强注射](https://thehill.com/policy/healthcare/583104-health-care)。” 顶级杀手福奇最后警告说：[为了应对美国的 COVID-19 病例又开始再次上升之际](http://www.news.cn/video/2021-11/26/c_1211462428.htm)，“[不要过早取消口罩](https://thehill.com/policy/healthcare/583104-health-care)”规定。
+德国的数据显示，人群新冠疫苗接种率和死亡率呈现正相关，相关系数为0.31，显示为疫苗接种率越高，死亡率越高。
 
-2021年11月26日
+根据谷歌资料显示，截止11月23日，美国新冠疫苗全人群一剂次、二剂次、三剂次接种率分别达到70.2%、59.1%、11.4%，英国新冠疫苗全人群一剂次、二剂次、三剂次接种率分别达到75.6%、68.7%、22.5%，其他欧美发达国家一剂次接种率均高于70%。根据中国国家卫生健康委员会11月21日发布的数据，中国大陆一剂次、二剂次接种率达到86.9%和76.3%。
 
-*校对：东京樱花团 / 文小白
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+根据中共国一份编号为CN112220919A的专利文件显示，2020年9月27日“上海纳米技术及应用国家工程研究中心有限公司”向中华人民共和国国家知识产权局提交一份了名为“以氧化石墨烯为载体的纳米冠状病毒重组疫苗”的专利申请，内容为用氧化石墨烯的表面带有COOH、羟基等基团的特点，利用π-π键之间的相互作用，把筛选出的RBD的重组蛋白（刺突蛋白RBD区域）与CpG分子和肌肽组装在一起，制备成基于氧化石墨烯为骨架的纳米重组蛋白疫苗。
+
+然而，根据谷歌学术“氧化石墨烯”搜索结果显示，氧化石墨烯具有细胞毒性，会造成DNA损伤。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-790.png)
+根据gnews文章《新冠疫苗的断子绝孙针到底有多毒》，新冠疫苗的刺突蛋白可与肾上腺、心脏、肝脏、肾脏、肺、卵巢、胰腺、脑垂体、前列腺、唾液腺、肠、脊髓、脾、胃、睾丸、胸腺和子宫多个器官的ACE2受体结合，破坏人体细胞的线粒体，引发血栓、死胎、生殖系统毒性，严重还会引发心肌炎和心包炎。
+
+郭文贵先生在2021年11月24日GTV直播中提到，因为世界各国大量注射中共毒疫苗，将会引发大量健康人口死亡或发病，导致劳动力短缺，物流中断，从而导致经济危机和人道灾难。灾难开始于2022年5月，一直持续到2022年12月。
+
+如果西方各国政府不立即停止强制注射毒疫苗，开放使用青蒿素、伊维菌素、羟氯喹、土霉素、地塞米松、锌等有效新冠治疗药物给公众使用，公开疫苗副作用和异常反应信息，查清病毒来源和疫苗真相，人类面临比西班牙大流感还可怕的巨大灾难。接种疫苗的人群主要是社会的精英人群，如教师、医生、律师、会计师、IT工程师、公职人员、军人、政府官员及青少年，这些人类的精英和未来一旦死亡或发病，西方的经济、民主机构将土崩瓦解，中共及幕后黑暗势力扶持的代理人将上台接管政权，在西方复制中共的高科技独裁管理模式，世界将进入到1984电影描述的黑暗时代，人类离灭亡为时不远。
+参考资料：
+1，[https://dailyexpose.uk/2021/11/22/analysis-of-ons-data-on-deaths-suggests-the-covid-19-vaccination-campaign-has-been-an-unmitigated-disaster/](https://dailyexpose.uk/2021/11/22/analysis-of-ons-data-on-deaths-suggests-the-covid-19-vaccination-campaign-has-been-an-unmitigated-disaster/)
+2，[https://citizenfreepress.com/breaking/uk-study-vaccinated-adults-under-60-are-dying-at-2x-times-the-rate-of-the-unvaccinated/](https://citizenfreepress.com/breaking/uk-study-vaccinated-adults-under-60-are-dying-at-2x-times-the-rate-of-the-unvaccinated/)
+3，[https://gnews.org/zh-hans/1587988/](https://gnews.org/zh-hans/1587988/)
+
+【文章仅代表作者观点，与 gnews 无关】
+
+作者：洛杉矶盘古农场- 73stolencountry
+编辑：洛杉矶盘古农场-柯镇恶
+发布：洛杉矶盘古农场-恩典
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

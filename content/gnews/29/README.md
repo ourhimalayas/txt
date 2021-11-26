@@ -2,42 +2,28 @@
 ---
 
 
-## 欧盟将禁止未接种疫苗者进入其成员国
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1696791/)
+## 南非发现中共病毒新变体
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1696828/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/https___specials-images.forbesimg.com_imageserve_60c5da92b87cb091f4b4012e_0x0-1.jpg)图片来源：Forbes
-**翻译：**Lish
-**编辑：**翼族
+#### 翻译/撰稿：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/000_9ng3fa.jpg)图片来源：channelnewsasia
+根据福克斯新闻（Fox News）11月26日的报道，WHO在周五举行会议，讨论关于南非中共病毒病例激增，并把在南非肆虐的病毒认定为中共病毒的新变体。
 
-欧盟正在研究新的规则，来自欧盟国家以外的旅行者只有接种过中共病毒（Covid-19）疫苗或已经康复的情况下才允许进入。根据拟议的规则，旅行者需要每九个月进行一次加强注射。
+南非卫生部长乔·法拉（Joe Phaahla）将这种新变体定为B.1.1.529，该变体在年轻人中似乎有很强的传染性。
 
-在周四发布的一项提案中，欧盟委员会建议，从2022年3月起，欧盟的27个成员国只允许来自联盟外的已接种疫苗、已康复或必要的旅行者（如卡车司机）进入。未来的旅行者必需证明他们最后一次接种疫苗的时间与入境时间相隔不超过九个月，此举表明大多数的欧盟旅行者必须接受强制的疫苗注射。
+据英国广播公司（BBC）的报道，该变体是目前为止变异最严重的病毒。而且该变体可能会与Delta变体一样获得一个希腊语代号。
 
-此前，欧盟建议成员国允许来自20多个“疫情情况良好”国家的旅客入境，其中包括加拿大、新西兰和阿联酋等。来自这些国家的旅客可以凭疫苗证书、康复证明或Covid-19测试阴性证明进入欧盟国。
+南非斯泰伦博斯的研究所（Centre for South Africa’s Epidemic Response and Innovation）主任图里奥·德·奥利维拉（Tulio de Oliveira）表示，新变种含有的突变数量比预想的要多出很多，出现了“进化上的大跳跃”。
 
-根据新的规则，这个名单可以取消，旅客们只能凭他们的疫苗接种证书或康复状况才可以获准入境。
+据《自然杂志》的报道，本月月初就有该变体的首次报告，现在科学家们正试图研究该变体是否会以某种方式逃避免疫反应（immune response）。
 
-目前，欧洲药品管理局（EMA）已经批准了辉瑞、莫德纳、阿斯利康和强生疫苗。俄罗斯的卫星V(Sputnik-V) 疫苗正在接受该机构的审查，赛诺菲GSK（Sanofi-GSK）疫苗和中共国药集团的疫苗也在审查之中。
+牛津大学的病毒进化专家阿里斯·卡祖拉基斯（Aris Katzourakis）提出了一个关键问题 ，“考虑到该病毒变体有这么多的突变，疫苗对它是否有效”。英国卫生部长萨吉德·贾维德（Sajid Javid）表示，人们担心新变体会比Delta病毒变体具有“更强的传播性”而且“目前的疫苗也可能对其不太奏效”。
 
-根据新的提案，欧盟将允许接种了世界卫生组织（WHO）批准疫苗的旅客入境，而不仅限于欧洲药品管理局批准的疫苗。这将使任何接种过国药疫苗、科兴疫苗以及其他两种印度产疫苗的人都可以入境，只要他们提供阴性测试结果以及疫苗接种证明。
+目前英国政府宣布，从周五的中午起，将禁飞南非和五个非州南部国家的航班，任何最近抵达过这些国家的旅客都将被要求做中共病毒检测。
 
-欧盟委员会的提案需要得到欧洲理事会的批准，一旦获得通过，它将适用于所有欧盟国家，但爱尔兰除外，因为它还不是无边界申根区的成员。
+评论：疫苗无效肯定是毋庸置疑的，而且整篇文章并没有说到重点，新变体是怎么来的。会不会是因为打了无效疫苗后导致病毒变异，而且病毒会因此对人体免疫产生抗性？
 
-目前约有67%的欧盟公民已接种了各种疫苗，尽管各个国家的接种率不同。然而，即使是在疫苗接种率最高的爱尔兰（接种率为93%），自10月初以来，每周新增的病毒病例依然增加了两倍，爱尔兰政府正在考虑对日常生活进行新的限制。
-
-欧盟专员迪迪埃·雷恩德斯（Didier Reynders）周四说：“很明显，大流行病还没有结束”，他补充说，“旅行规则需要考虑到这种不稳定的情况”。
-
-**原文链接：**[EU to tighten travel rules, bar unvaxxed from bloc](https://www.rt.com/news/541356-new-eu-vaccine-travel-rules/)
-
-***发布：**翼族*
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+新闻来源：[WHO meets to discuss new, ‘heavily mutated’ COVID-19 variant](https://www.foxnews.com/health/who-meets-to-discuss-new-heavily-mutated-covid-19-variant)
 
  
 
