@@ -2,49 +2,30 @@
 ---
 
 
-## 台湾对美国总统拜登邀请台湾参加下个月举行的民主峰会表示感谢
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1697680/)
+## SEC任命JND为基金管理人 处理GTV投资款返还事宜
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1697774/)
 
-作者：银河勇气星—骄子
+1934 年证券交易法第 93666 号发布 / 2021 年 11 月 23 日
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-8.png)
+行政诉讼文件编号 3-20537
 
+** 针对GTV 传媒集团公司Saraca 传媒集团公司和 Voice of Guo 传媒公司**
 
+**指定基金管理人及设定管理人保证金额**
 
+2021 年 9 月 13 日，委员会发布了一项指令，根据 1933 年《证券法》第 8A 节的规定，制定针对 GTV 的实施终止和停止程序，作出调查结果，并对 GTV 传媒集团公司，Saraca 传媒集团公司和 Voice of Guo 传媒公司（统称为“应诉方”）实施终止和停止令（“指令”）。 在该指令中，委员会发现，从大约 2020 年 4 月到 2020 年 6 月，应诉方通过吸纳数千人投资 GTV 普通股的发行而违反了联邦证券法的注册规定。 委员会还发现，在同一时期，GTV Media 和 Saraca Media 征求个人投资他们提供的数字资产证券，称为 G-Coins 或 G-Dollars。 根据该指令，由于这两次未注册的证券发行，其收益混合在一起，截至 2020 年 7 月，应诉者共从 5,000 多名投资者筹集了约 4.87 亿美元。委员会命令被告人共同支付486,745,063.00 美元的非法所得、17,688,365.00 美元的判决前利息和 35,000,000.00 美元的民事罚款，共计 539,433,428.00 美元给委员会。 委员会还根据 2002 年《萨班斯-奥克斯利法案》第 308(a) 条设立了一个公平基金，因此所支付的罚款以及所得款项和利息可以分配给受到损害的投资者（“公平基金”）。
 
+公平基金包括应诉方支付的 455,439,194.49 美元，根据指令从应诉方收取的任何额外资金都将添加到公平基金中。 公平基金已存入美国财政部财政局的一个计息账户，任何应计利息都将用于公平基金的利益。
 
-台湾对美国总统拜登邀请台湾参加下个月举行的民主峰会表示感谢，此次民主峰会将于12月9日和10日以视频方式举办，峰会的受邀国家与地区有110个，参与的有全球100多个民主国家的领袖与代表，中共、俄罗斯和越南都不在受邀名单中。拜登总统今年2月在他的首次外交政策讲话中宣布了举办民主峰会的计划。他说，他将让美国重返国际领导地位，对抗中共和俄罗斯主导的威权主义力量。此次民主峰会的主题包括防范威权主义、处理和打击腐败以及推动尊重人权。
+执法部门现在任命 JND Legal Administration (“JND”) 作为基金管理人，并要求将管理人的保证金定为 455,439,194.49 美元。  JND 包含在委员会批准的管理员库中。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/FBA8A864-141C-4DA1-8D4F-B8BE4D6C1F8E_w1023_r1_s.jpg)图片来源: VOA
+因此，特颁发本指令任命JND 为基金管理人，根据委员会关于公平基金和提取计划的规则（“委员会规则”）第 1105(a) 条，并应根据规则 1105 获得保证金 (c) 委员会规则3金额为 455,439,194.49 美元。
 
-参考阅读: 
-[https://www.voachinese.com/a/Taiwan-Appreciates-Being-Invited-To-Democracy-Summit/6326005.html](https://www.voachinese.com/a/Taiwan-Appreciates-Being-Invited-To-Democracy-Summit/6326005.html)
+对于委员会，由执法部门根据授权进行。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-8.jpg)
+Vanessa A.Countryman
 
-编辑: Irene木木
-
-校对/发稿：一烘
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-8.png)
-
-
-
-
-
-
+秘书
 
  
 

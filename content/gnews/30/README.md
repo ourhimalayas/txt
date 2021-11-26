@@ -2,18 +2,48 @@
 ---
 
 
-## 【文贵先生大直播PPT】币安与加密货币行业现状
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1697757/)
+## 中共国禁止名人在网上炫富，且须遵守社会主义核心价值观
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1697794/)
 
-撰稿：ILOVE战神（文凡），BENJ1，WEI，Now小哥
-美工：雷蒙
-审核：三票先生，顽童先生，政清
+**【简评：】***笔者对娱乐圈向来不感冒，但是周围朋友孩子却花费大笔钱用于支持所谓的明星，还听闻有种“不运回”的支持方式。更有甚至，舍弃家庭放弃学业、追随明星到处跑，我真是难以理解。尤其对于充斥各荧屏的娘炮们以及最近出现的吴亦凡之流…此类乱象必须坚决抵制，而且早就应该将这种乱象扼杀在摇篮之中。中国放纵上述乱象至今，现在推出这些所谓的政策，其葫芦里卖的什么药想必大家也都清楚。*
 
-【2021年11月26日文贵先生大直播PPT：币安与加密货币行业现状】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/21-13.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/25-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/26-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/27-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/28-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/29-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/49-1.jpg)
-* * *
+据《日经新闻》记者Hannah Towey，2021年11月24日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-801-e1637944697346.png)中国国家主席习近平。 图片来源：新华社/ Rao Aimin via Getty Images
+**中共网信办周二宣布，中国名人不能再在社交媒体上“炫富”或展示“奢侈享乐”画面。**
 
-发稿：云起时
+中共互联网监管机构在一份声明中表示，名人和粉丝俱乐部账号都必须“遵循公共秩序和良好习惯，坚持正确的舆论导向和价值取向，弘扬社会主义核心价值观，保持健康的作风和品味”。
+
+宣布这一消息之前，中国共产党对中国不断发展的娱乐业进行了镇压，官员们对名人丑闻和网络粉丝群体进行了反击，称其会导致社会混乱。
+
+周二的通知还禁止名人散布谣言，发布虚假或私人信息，煽动粉丝群“互相口头攻击”，鼓励粉丝参与“非法集资或非理性投资”。
+
+同日，中国演艺协会禁止88人进行直播，其中包括加拿大华裔流行歌手吴亦凡(Kris Wu)，他最近被指控性侵。
+
+该组织表示，该名单旨在“加强行业自律”，“防止非法和不道德的艺术家”重新进入该行业。
+
+今年8月，中国娱乐监管机构从所有社交媒体和流媒体平台上删除了中国最受欢迎女演员之一赵薇的信息。虽然官员们没有公布赵薇被封杀的原因，但官方媒体援引了“多年来的各种丑闻”，比如一桩价值745万美元的投资者诉讼。
+
+通知称，为执行新规定，中共国社交网络必须监控并向当局报告“涉嫌曝光明星的违法犯罪行为以及涉及粉丝的群体冲突事件”，同时对可能引发社会混乱的内容进行审核。
+
+在中国，Twitter、Facebook 和YouTube等全球应用程序的访问权限被阻止，因此用户依赖于受审查的国内网站，例如微博、人人网和优酷。
+
+网球明星彭帅最近在微博上指责一名前中共高级官员性侵，这条微博后来被删除。直到周日，当她通过视频通话与国际奥委会进行了交谈时，她已将近一个月都没有露面。
+
+“彭帅，以及所有女性的遭遇和心声应该被倾听，而不是被审查”。女子网球协会主席兼首席执行官史蒂夫·西蒙在一份声明中表示: “必须严肃对待她对中国前领导人性侵犯行为的指控。我们希望这个问题能得到妥善处理，这意味着这些指控必须得到全面、公平、透明且没有中共审查的调查”。
+
+原文连接[：https://www.businessinsider.com/china-bans-celebs-from-showing-off-wealth-on-social-media-2021-11](https://www.businessinsider.com/china-bans-celebs-from-showing-off-wealth-on-social-media-2021-11)
+
+翻译&评论：洛杉矶盘古农场 – 比格渣餐厅老板の娘
+
+校对：洛杉矶盘古农场 – Mike Li
+
+编辑：洛杉矶盘古农场 – 小象の奶瓶
+
+
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
