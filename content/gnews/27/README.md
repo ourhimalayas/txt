@@ -2,43 +2,55 @@
 ---
 
 
-## 这个市场的脆弱，只需要蝴蝶振翅
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1696954/)
+## 完全接种疫苗的加拿大参议员死于Covid
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1697136/)
 
-撰稿：童媚
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-34.jpg)（图片来自网络）
-又变种了！！
+翻译： Jenny Ball
 
-周四，英国发布了最新发现的一种在南非传播的新冠病毒变种病毒。卫生局官员称这次的变种是“迄今为止最糟糕的变种”，因为其突变数量是Delta变种的两倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-794.png)图片来源： naturalnews.com
 
-但话锋一转，该新闻最终的落脚点回到病毒与疫苗的关系。报道称，该变种可能降低疫苗效力，危及全球在抗击疫情方面取得的进展。
+自然新闻([Natural News](https://www.naturalnews.com/)) – 据政府官员称，一位注射了两针Covid疫苗的著名加拿大政治家已经[死于“](https://www.lifesitenews.com/news/fully-vaccinated-canadian-senator-dies-shorty-after-a-long-struggle-with-covid/)[Covid”](https://www.lifesitenews.com/news/fully-vaccinated-canadian-senator-dies-shorty-after-a-long-struggle-with-covid/)。
 
-病毒溯源未清晰，人类的无力只能在徒劳的事情上奔波。关于疫苗的真相已经用一条条鲜活生命的倒下，让更多的人醒来，但主流媒体和科学界不仅不质疑现存疫苗的安全性和有效性，相反，我们看到的是各地政府更加疯狂的强制接种，和这条将“疫苗不力”责任推给“新变种”病毒上。
+56 岁的何塞·福里斯特-涅辛（ Josée Forest-Niesing）患有自身免疫性疾病，据报道她的肺部受到了影响。被疫苗伤后，她病得很重，不得不被送往医院，在那里她待了整整一个月接受治疗。
 
-同样的现象还出现在了资本市场。
+涅辛最终于 11 月 14 日被送回家，结果她的病情进一步恶化。大约一周后，由于注射引起的疾病去世了。
 
-亚洲股市周五创出两个月来的最大跌幅，MSCI明晟亚太地区(除日本)指数下跌1.3%，创出9月以来的最大跌幅；日股日经指数下挫2.5%。亚股下跌拖累全球股市，恐怕将成为10月初以来最大单周跌幅。
+即使在她去世的情况下，涅辛的办公室却发表了一份声明，赞扬了她的注射疫苗光荣。 她的办公室没有尊重她的生命，而是借此机会传播更多支持疫苗的宣传。
 
-道琼斯指数期货下跌1%，富时指数期货和欧洲STOXX 50指数期货各下跌约1.4%。澳洲股市AXJO下跌0.6%。南非兰特早盘下跌1%至一年来的最低点；对风险敏感的澳元和新西兰元跌至三个月低点，除此以为，美国原油期货也下跌了近2%。
+**mRNA ****不是治愈方法，而只会让事情变得更糟**
 
-为了避险，市场上的资金大量涌入债券、日圆和美元，而为了逃避真正戳破资本市场泡沫的真相，大家纷纷将这波下跌与“变种病毒”联系紧密。
+与此同时，加拿大政府甚至还没有获得任何证据表明，注射对人们的健康有益。
 
-市场上所谓的专家，纷纷恐慌变种病毒对疫苗效力的挑战会引发全市场的金融风险。殊不知，真正的风险早已在这几年全球金融市场与中共市场的无缝连接中，埋下了深深的祸根。
+没有试验表明注射可以阻止感染或传播。事实上，甚至没有证据支持政府普遍声称注射疫苗有助于预防严重症状，涅辛英年早逝就证明了这一点。
 
-这就像“穿着新衣”的皇帝，对着全世界撒谎，但实际这个皇帝的内心却是那个早已知道答案的小男孩。
+来自艾伯塔省的一位名叫克里斯·戈迪洛（Chris Gordillo） 的加拿大医生，实际上在他的完全接种疫苗的患者身上看到了相反的情况，**其中许多人在注射后患上了严重的疾病**。
 
-文贵先生早在2017年的那句“黑夜已经来临”，对今天发生的一切做了提早的告诫，但彼时，没有多少人听懂，笑他痴，笑他狂。如今，当灾难一步步应验，来到我们每个人身边的时候，还有很多人试图掩盖和转移，但这一次，我们每个人都是这场死局中的棋子，无处逃脱。
+“我见过中风，我见过贝尔麻痹，我见过心脏病发作，血栓，我见过呼吸障碍，人们在接种这些疫苗后无法呼吸，”戈迪洛医生最近在埃德蒙顿举行的集会解释说。
 
-在周三的大直播中，郭先生评论这个月以来资本市场的异象时，直截了当地指出，金融灾难还没开始，一定是急速下降，没有任何缓解的余地。
+[调查记者乔丹•沙赫特尔](https://naturalnews.com/2021-05-28-moderna-ceo-wuhan-lab-covid-escaped.html)也站出来谴责这些疫苗事件，他解释说，mRNA“治疗”没有达到公认达到的标准。
 
-的确，在这场中共处心积虑编织的统一世界的梦里，脆弱的只需要一只蝴蝶的振翅，而这一刻，很快就会到来。
+“今天我们知道，**这些仅有****6 ****到 ****9 ****个月的预防作用的注射**，具有未知的长期副作用，”沙赫特尔补充道。
 
-资料参考：
+“通过以色列和爱尔兰等先行国家的情况，可见“即将到期的效力，又要来一波加强注射制度，但世界各国政府并未认识到，这些疫苗似乎失去了效用。”
 
-[英国警告发现新冠病毒最新变种 可能降低现有疫苗保护效力 | 路透 (reuters.com)](https://cn.reuters.com/article/uk-south-africa-covid-variant-1126-idCNKBS2IB03J?il=0)
+沙赫特尔继续解释说，政府卫生官员和主要制药公司，一直在利用有关注射剂的“半真半假”来为辉瑞、莫德纳，以及“那些想给 5 岁儿童注射过期实验性注射剂的人”谋取巨额资金。
 
-发稿：MG5
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
+即便如此，加拿大卫生部上周还批准这些[注射剂用于年仅](http://vaccines.news/)[5](http://vaccines.news/)[岁的儿童](http://vaccines.news/)。就像在美国一样，这些疫苗只具有“紧急使用授权”，这意味着，它们在技术上并未“获得批准”。
+
+“非常悲伤的故事，”自然新闻的一位评论者写道，“我不认为她的死亡让战斗变得更容易了，我怀疑情况[变得更糟了](https://www.lifesitenews.com/opinion/dont-expect-any-end-to-the-pandemic-mass-vaccination-fails/)。”
+
+“如果我接种了所有疫苗，但我仍然感染了病毒，然后我在医院呆了一个多月，然后对未来感觉不太好，或者永远不会出院，那我绝对不会用这种方式向人们推销疫苗。”另一位写道。
+
+新闻来源: [naturalnews.com][Fully vaccinated Canadian senator dies of “covid”](https://www.naturalnews.com/2021-11-24-fully-vaccinated-canadian-senator-dies-of-covid.html) / [LifeSiteNews.com](https://www.lifesitenews.com/news/fully-vaccinated-canadian-senator-dies-shorty-after-a-long-struggle-with-covid/) / [NaturalNews.com](https://naturalnews.com/2021-05-28-moderna-ceo-wuhan-lab-covid-escaped.html) / [LifeSiteNews.com](https://www.lifesitenews.com/opinion/dont-expect-any-end-to-the-pandemic-mass-vaccination-fails/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

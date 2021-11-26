@@ -2,55 +2,33 @@
 ---
 
 
-## 完全接种疫苗的加拿大参议员死于Covid
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1697136/)
+## 为勇敢校长鼓掌
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1697370/)
 
-翻译： Jenny Ball
+撰稿：Patty
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1126B.jpg)网络图片
+来自珀斯 Divine Mercy College 的校长 Adam Zydek 因政府强行要求接种疫苗宣布将在2022年暂停幼儿园班的运营。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-794.png)图片来源： naturalnews.com
+当地政府要求从2022年第一学期开始，所有员工必须接种疫苗。如果发现雇主雇佣了未接种疫苗的员工将被罚款10万澳元，未接种疫苗的员工将面临2万元的罚款。
 
-自然新闻([Natural News](https://www.naturalnews.com/)) – 据政府官员称，一位注射了两针Covid疫苗的著名加拿大政治家已经[死于“](https://www.lifesitenews.com/news/fully-vaccinated-canadian-senator-dies-shorty-after-a-long-struggle-with-covid/)[Covid”](https://www.lifesitenews.com/news/fully-vaccinated-canadian-senator-dies-shorty-after-a-long-struggle-with-covid/)。
+Adam Zydek告诉学校工作人员 : 为避免强制接种疫苗，他正考虑关闭学校。因为他认为，疫苗比感染病毒更糟糕。而用于开发疫苗的技术可能造成胎儿流产。而且他相信，那些没有接种疫苗的人会被从家里带走，强行接种疫苗，然后被关进集中营。
 
-56 岁的何塞·福里斯特-涅辛（ Josée Forest-Niesing）患有自身免疫性疾病，据报道她的肺部受到了影响。被疫苗伤后，她病得很重，不得不被送往医院，在那里她待了整整一个月接受治疗。
+但是，Adam Zydek不能单方面关闭学校，因为这取决于懂事会。周三Zydek 在给家长的信中已经通知了将在2022年暂停幼儿园的营运。
 
-涅辛最终于 11 月 14 日被送回家，结果她的病情进一步恶化。大约一周后，由于注射引起的疾病去世了。
+教育厅长Sue Ellery 告诉《西澳洲报》她对学校的决定感到困扰。她表示 :“如果Divine Mercy College 的管理机构回应了教育厅关于明年计划 ( 接种疫苗 ) 的正式要求，那将非常有帮助。我真的很有信心，绝大多数的教育工作者都会接种疫苗，这将有助于确保西澳学校明年的安全”。
 
-即使在她去世的情况下，涅辛的办公室却发表了一份声明，赞扬了她的注射疫苗光荣。 她的办公室没有尊重她的生命，而是借此机会传播更多支持疫苗的宣传。
+在政府疫苗暴政的当下，有勇敢的人站出来和强权说不，就是英雄。这才是在自由国度里应该有的声音。随着疫苗接种率的不断攀升，接踵而至的是更多健康的人的因疫苗导致了疾病，如血栓，心肌炎，心包炎，癌症，流产，畸胎等等。更还有数不尽的因接种疫苗而死亡的人。但是那些贪婪的政客置若罔闻，掩盖疫苗危害真相，根本不理会科学家拿出的相关证据和数据。
 
-**mRNA ****不是治愈方法，而只会让事情变得更糟**
+昨天Paul Marik医生向强制疫苗说不，而今天Adam Zydek 校长也站了出来，还有每时每刻都在揭露疫苗真相的大胡子医生Dr Zelenko，以及世界各地的勇敢民众，他们走在街上和平抗争疫苗暴政。
 
-与此同时，加拿大政府甚至还没有获得任何证据表明，注射对人们的健康有益。
+同时我们当然也不能忘记新中国联邦的所有战友，每个人都在默默的为自由舔砖加瓦。
 
-没有试验表明注射可以阻止感染或传播。事实上，甚至没有证据支持政府普遍声称注射疫苗有助于预防严重症状，涅辛英年早逝就证明了这一点。
+众神会眷顾我们善良的人，神与我们同在。
 
-来自艾伯塔省的一位名叫克里斯·戈迪洛（Chris Gordillo） 的加拿大医生，实际上在他的完全接种疫苗的患者身上看到了相反的情况，**其中许多人在注射后患上了严重的疾病**。
+新闻参考链接：
 
-“我见过中风，我见过贝尔麻痹，我见过心脏病发作，血栓，我见过呼吸障碍，人们在接种这些疫苗后无法呼吸，”戈迪洛医生最近在埃德蒙顿举行的集会解释说。
-
-[调查记者乔丹•沙赫特尔](https://naturalnews.com/2021-05-28-moderna-ceo-wuhan-lab-covid-escaped.html)也站出来谴责这些疫苗事件，他解释说，mRNA“治疗”没有达到公认达到的标准。
-
-“今天我们知道，**这些仅有****6 ****到 ****9 ****个月的预防作用的注射**，具有未知的长期副作用，”沙赫特尔补充道。
-
-“通过以色列和爱尔兰等先行国家的情况，可见“即将到期的效力，又要来一波加强注射制度，但世界各国政府并未认识到，这些疫苗似乎失去了效用。”
-
-沙赫特尔继续解释说，政府卫生官员和主要制药公司，一直在利用有关注射剂的“半真半假”来为辉瑞、莫德纳，以及“那些想给 5 岁儿童注射过期实验性注射剂的人”谋取巨额资金。
-
-即便如此，加拿大卫生部上周还批准这些[注射剂用于年仅](http://vaccines.news/)[5](http://vaccines.news/)[岁的儿童](http://vaccines.news/)。就像在美国一样，这些疫苗只具有“紧急使用授权”，这意味着，它们在技术上并未“获得批准”。
-
-“非常悲伤的故事，”自然新闻的一位评论者写道，“我不认为她的死亡让战斗变得更容易了，我怀疑情况[变得更糟了](https://www.lifesitenews.com/opinion/dont-expect-any-end-to-the-pandemic-mass-vaccination-fails/)。”
-
-“如果我接种了所有疫苗，但我仍然感染了病毒，然后我在医院呆了一个多月，然后对未来感觉不太好，或者永远不会出院，那我绝对不会用这种方式向人们推销疫苗。”另一位写道。
-
-新闻来源: [naturalnews.com][Fully vaccinated Canadian senator dies of “covid”](https://www.naturalnews.com/2021-11-24-fully-vaccinated-canadian-senator-dies-of-covid.html) / [LifeSiteNews.com](https://www.lifesitenews.com/news/fully-vaccinated-canadian-senator-dies-shorty-after-a-long-struggle-with-covid/) / [NaturalNews.com](https://naturalnews.com/2021-05-28-moderna-ceo-wuhan-lab-covid-escaped.html) / [LifeSiteNews.com](https://www.lifesitenews.com/opinion/dont-expect-any-end-to-the-pandemic-mass-vaccination-fails/)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
-
-
+[Daily Mail](https://www.dailymail.co.uk/news/article-10241383/Anti-vax-principal-closes-Perth-kindergarten-avoid-Western-Australias-vaccine-mandate.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

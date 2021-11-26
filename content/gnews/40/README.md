@@ -2,28 +2,39 @@
 ---
 
 
-## “有情人难成眷属”，时空隔望张高丽
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1696232/)
+## 法国计划对成年人接种疫苗加强针
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696428/)
 
-撰稿/配图：东京樱花团/ Ob
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Ob微视角图片-e1637811078206.jpg)
-看中国2021年11月26日讯，中国网球女将彭帅本月初指控中国前国务院副总理张高丽性侵后，一度“人间蒸发”受到各界高度关注。为此，国际奥委会主席巴赫（Thomas Bach）与彭帅进行视讯向外界“报平安”，令外界不禁质疑奥委会在帮中共背书，充当大外宣角色。结果日前再传出，张高丽曾负责筹办北京冬奥会，并与2016年就认识巴赫，这让整起事件添加更多疑点。
+作者： 纽约香草山教育部 – Naughty(文行)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-212.png)
+周四，法国卫生部长宣布，计划向所有成年人提供新冠疫苗加强针，并制定更严格的佩戴口罩规则及健康通行证检查，以遏制新一波病毒感染。
 
-张高丽于2015年出任第24届冬奥会工作领导小组组长，分管北京冬奥筹办工作。据美国《华尔街日报》、英国路透社等外媒报导，张高丽担任国务院副总理期间，曾主责经济事务，同时组织监督、指导冬奥会的“领导小组”，直至2018年才将该业务移交予现任副总理韩正。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-17.jpg)
 
-新华社也有报导，张高丽2016年6月12日在中南海紫光阁与IOC主席巴赫见面。除感谢巴赫和国际奥委会对北京申办2022冬奥给予支持外，也强调中共政府高度重视北京冬奥筹办工作，两人还握手拍照留念。
+此前，马克龙政府已表示，为避免像其他欧洲国家一样再次实施封锁，法国将执行更严格的社交距离规则，并尽快制定加强针接种计划。
 
-彭帅指控张高丽性侵后“人间蒸发”，为应对舆论质问，中共推出国际奥委会主席巴赫（Thomas Bach）与彭帅进行视讯向外界“报平安”。但是有关国务院副总理张高丽始终不敢露面。近日有媒体终于推出旧闻张高丽，一张照片疯传网络，“有情人终难成眷属”，大玩时空穿越。
+据悉，法国政府预计，将全面疫苗接种至加强针注射的间隔时间，从六个月减少到五个月，并将PCR测试有效期缩短到一天。
 
-一切都是演戏，背后都是有导演的。在中共国无论大人物还是小人物，都是木偶，背后都有一只无形的手在操弄，一言一行，一个露面都有专门的体系去审核度量。区别在于当官的受益多，老百姓灾难多，最终结局无一善终。
+此外，法国人进入餐馆、咖啡馆、电影院和博物馆等公共场所，都需要接种新冠疫苗加强针。
 
-消息来源：
+参考链接：
 
-[奥委会与彭帅视讯后 张高丽“现身”网络疯传(图)](https://m.secretchina.com/news/gb/2021/11/26/990605.html)
+- [France extends COVID-19 booster shots to all adults](https://www.reuters.com/world/europe/france-announce-covid-19-booster-shots-all-adults-media-2021-11-24/?utm_source=ground.news&amp;utm_medium=referral)
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
+
+总编：飞虹
+编辑：文特
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

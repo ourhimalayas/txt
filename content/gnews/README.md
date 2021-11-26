@@ -15,136 +15,136 @@
 
 ---
 
-### [美参议员谈彭帅被性侵及失踪，强调中共国不安全](/content/gnews/1/README.md)
+### [钟南山撒谎称“中共病毒”患病率中共国为美国的1/1678](/content/gnews/1/README.md)
+ ` 儒为`
+
+### [秘翻在线：美国议员突访台湾并会见蔡英文总统](/content/gnews/2/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [墙内要闻汇编 11月26日](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [加拿大疫苗接种政策引发民意分裂](/content/gnews/4/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [11/26/2021国际财经快讯：罗氏股东批准收购诺华股份；大众汽车认为Europcar交易具有吸引力](/content/gnews/5/README.md)
+ ` 秘密翻译组金融团队`
+
+### [加拿大科学机构称近期不可能取消疫苗护照](/content/gnews/6/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [DC大中华时事：波兰总理喊话俄共同应对“中国挑战”](/content/gnews/7/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [日本要闻汇编11月26日](/content/gnews/8/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文贵大直播：CCP病毒疫苗灾难及其次生灾难的惨烈程度或超乎想象](/content/gnews/9/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [加拿大阿尔伯塔省初现房屋租赁疫苗护照](/content/gnews/10/README.md)
+ ` 加拿大扬帆农场《枫叶快讯》`
+
+### [美参议员谈彭帅被性侵及失踪，强调中共国不安全](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [为勇敢校长鼓掌](/content/gnews/2/README.md)
+### [费尔蒙特饭店会议的大计划](/content/gnews/12/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [中共国及其寻找的盟友](/content/gnews/13/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [为勇敢校长鼓掌](/content/gnews/14/README.md)
  ` 澳喜特战旅Gnews`
 
-### [七哥说—第31期](/content/gnews/3/README.md)
+### [七哥说—第31期](/content/gnews/15/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [有声|美国邀请台湾参加其民主峰会](/content/gnews/4/README.md)
+### [美跨党派众议员抵达台湾访问](/content/gnews/16/README.md)
+ ` GTV新闻访谈`
+
+### [有声|美国邀请台湾参加其民主峰会](/content/gnews/17/README.md)
  ` MOSREC`
 
-### [西媒头条 — 第118期](/content/gnews/5/README.md)
+### [西媒头条 — 第118期](/content/gnews/18/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [皮特纳瓦罗：健康人不需要接种疫苗](/content/gnews/6/README.md)
+### [皮特纳瓦罗：健康人不需要接种疫苗](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [有声|币安不安 客户信息被赵长鹏出卖给中共](/content/gnews/7/README.md)
+### [有声|币安不安 客户信息被赵长鹏出卖给中共](/content/gnews/20/README.md)
  ` MOSREC`
 
-### [有声|GTV新闻访谈简报|2021年11月24日晚](/content/gnews/8/README.md)
+### [有声|GTV新闻访谈简报|2021年11月24日晚](/content/gnews/21/README.md)
  ` MOSREC`
 
-### [2021年11月26日 澳喜要闻摘要](/content/gnews/9/README.md)
+### [2021年11月26日 澳喜要闻摘要](/content/gnews/22/README.md)
  ` 澳喜特战旅Gnews`
 
-### [朋友，你不愤怒吗：“边排队边看书！浙大核酸检测现场”](/content/gnews/10/README.md)
+### [朋友，你不愤怒吗：“边排队边看书！浙大核酸检测现场”](/content/gnews/23/README.md)
  ` 秘密翻译组-原创组`
 
-### [美国国会两党代表团访问台湾](/content/gnews/11/README.md)
+### [美国国会两党代表团访问台湾](/content/gnews/24/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/12/README.md)
+### [西喜时事新闻简报 — 中共病毒时事篇](/content/gnews/25/README.md)
  ` wenwu`
 
-### [所罗门群岛首都霍尼亚拉暴力抗议的背后原因](/content/gnews/13/README.md)
+### [所罗门群岛首都霍尼亚拉暴力抗议的背后原因](/content/gnews/26/README.md)
  ` 墨尔本雅典娜农场`
 
-### [完全接种疫苗的加拿大参议员死于Covid](/content/gnews/14/README.md)
+### [完全接种疫苗的加拿大参议员死于Covid](/content/gnews/27/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [所罗门群岛抗议活动的幕后黑手](/content/gnews/15/README.md)
+### [所罗门群岛抗议活动的幕后黑手](/content/gnews/28/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [司馬南、方舟子、胡錫進和中共洗腦百姓，激起種族對立](/content/gnews/16/README.md)
+### [司馬南、方舟子、胡錫進和中共洗腦百姓，激起種族對立](/content/gnews/29/README.md)
  ` G-NEWS TAIWAN`
 
-### [中共国的住房危机不会是一代人的危机，它将是一个家庭的危机](/content/gnews/17/README.md)
+### [中共国的住房危机不会是一代人的危机，它将是一个家庭的危机](/content/gnews/30/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [新的“超级南非”变种有许多以前从未见过的突变](/content/gnews/18/README.md)
+### [英国禁止来自非洲 6 个国家的旅行](/content/gnews/31/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [英国禁止来自非洲 6 个国家的旅行](/content/gnews/19/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [南非现变异毒株中共开启二次投毒](/content/gnews/20/README.md)
- ` 澳喜农场`
-
-### [11/19郭文贵直播：任何国家政府批准新中国联邦国防军购买武器和培训等同于认可我们的主权资格（粤语配音）](/content/gnews/21/README.md)
+### [11/19郭文贵直播：任何国家政府批准新中国联邦国防军购买武器和培训等同于认可我们的主权资格（粤语配音）](/content/gnews/32/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [泽连科医生：新冠疫苗对儿童的致命性是病毒的172倍（粤语配音）](/content/gnews/22/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [数据显示：新冠毒疫苗灾难的最坏时刻还没有到来](/content/gnews/23/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
-
-### [荒唐！男子偷菜获利8元被中共判刑半年](/content/gnews/24/README.md)
- ` 澳喜农场`
-
-### [秘翻在线：全斗焕疫苗接种后患血液癌死亡？](/content/gnews/25/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [福奇希望看到压倒性的大多数接种疫苗，否则将面临“被教育”](/content/gnews/26/README.md)
+### [美国出台制裁清单 中共战狼再跳脚](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [这个市场的脆弱，只需要蝴蝶振翅](/content/gnews/27/README.md)
- ` 澳喜农场`
-
-### [六百名谷歌员工签署宣言推翻公司的疫苗强制接种政策](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
-
-### [红袖标重出江湖，文革2.0拉开序幕](/content/gnews/29/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [美国出台制裁清单 中共战狼再跳脚](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [护士、医院官员：强制疫苗阻碍了在 沃科夏市汽车袭击中受伤的儿童的治疗](/content/gnews/31/README.md)
+### [护士、医院官员：强制疫苗阻碍了在 沃科夏市汽车袭击中受伤的儿童的治疗](/content/gnews/34/README.md)
  ` 走进澳洲`
 
-### [中共病毒“最猛烈变种”现踪香港](/content/gnews/32/README.md)
+### [中共病毒“最猛烈变种”现踪香港](/content/gnews/35/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共拿下国际刑警组织执委 IPAC呼吁撤销与中港引渡条](/content/gnews/33/README.md)
+### [中共拿下国际刑警组织执委 IPAC呼吁撤销与中港引渡条](/content/gnews/36/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [南非发现中共病毒新变体](/content/gnews/34/README.md)
+### [南非发现中共病毒新变体](/content/gnews/37/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [立陶宛体育部长宣称不会出席北京冬奥会](/content/gnews/35/README.md)
+### [立陶宛体育部长宣称不会出席北京冬奥会](/content/gnews/38/README.md)
  ` 首尔天池农场`
 
-### [新中国联邦国防军展望](/content/gnews/36/README.md)
+### [新中国联邦国防军展望](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
 
-### [郭文贵先生谈中共经济现状](/content/gnews/37/README.md)
- ` 纽约香草山MOS01`
-
-### [法国计划对成年人接种疫苗加强针](/content/gnews/38/README.md)
+### [法国计划对成年人接种疫苗加强针](/content/gnews/40/README.md)
  ` GTV新闻访谈`
 
-### [西南航空员工反疫苗斗争获巨大胜利](/content/gnews/39/README.md)
- ` GTV新闻访谈`
-
-### [“有情人难成眷属”，时空隔望张高丽](/content/gnews/40/README.md)
+### [“有情人难成眷属”，时空隔望张高丽](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [上海数据交易所挂牌，妄图引领全球数字经济](/content/gnews/41/README.md)
+### [上海数据交易所挂牌，妄图引领全球数字经济](/content/gnews/42/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [世卫组织承认中共病毒疫苗不妨感染中共病毒](/content/gnews/42/README.md)
+### [世卫组织承认中共病毒疫苗不妨感染中共病毒](/content/gnews/43/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本外相：采取万全措施应对台湾事态！强化日美同盟对抗中共！](/content/gnews/43/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [资本金告急！招商银行将发行430亿元无固定期限债券](/content/gnews/44/README.md)
+### [日本外相：采取万全措施应对台湾事态！强化日美同盟对抗中共！](/content/gnews/44/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [松下关停苏州半导体元器件工厂](/content/gnews/45/README.md)

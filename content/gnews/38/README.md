@@ -2,38 +2,24 @@
 ---
 
 
-## 法国计划对成年人接种疫苗加强针
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696428/)
+## 立陶宛体育部长宣称不会出席北京冬奥会
+` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1696731/)
 
-作者： 纽约香草山教育部 – Naughty(文行)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-212.png)
-周四，法国卫生部长宣布，计划向所有成年人提供新冠疫苗加强针，并制定更严格的佩戴口罩规则及健康通行证检查，以遏制新一波病毒感染。
+韩国首尔天池农场—虎眼　校对/上传—无明逆流
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9-17.jpg)
+继设立“台湾代表处”之后，立陶宛体育部长宣布将不出席中共北京2022年冬奥会。
 
-此前，马克龙政府已表示，为避免像其他欧洲国家一样再次实施封锁，法国将执行更严格的社交距离规则，并尽快制定加强针接种计划。
+立陶宛媒体“15min”25日消息，立陶宛教育科学与体育部长尤尔吉塔·舒格日迪尼埃内(Jurgita Šiugždinienė)已表态宣称，不会出席2022年北京冬奥会。
 
-据悉，法国政府预计，将全面疫苗接种至加强针注射的间隔时间，从六个月减少到五个月，并将PCR测试有效期缩短到一天。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/SD345ETD4.jpg)“15min”报道截图(Jurgita Šiugždinienė)
 
-此外，法国人进入餐馆、咖啡馆、电影院和博物馆等公共场所，都需要接种新冠疫苗加强针。
+舒格日迪尼埃内称，据她所知，立陶宛其他官员目前也不计划出席北京冬奥会。
 
-参考链接：
+此前，17名立陶宛议员签署了一份请愿书，呼吁立陶宛政界人士、运动员和奥委会成员不要前往北京参加2022年冬奥会。不过，立陶宛国家奥委会在一项声明中表示，没有必要将政治和体育混为一谈，国际奥委会基本原则之一是政治中立，奥运会是全世界、全体奥林匹克运动的盛会。
 
-- [France extends COVID-19 booster shots to all adults](https://www.reuters.com/world/europe/france-announce-covid-19-booster-shots-all-adults-media-2021-11-24/?utm_source=ground.news&amp;utm_medium=referral)
+中共外交部以此为由称，北京2022年冬奥会是各国运动员超越自我、追求卓越的舞台，也是国际社会增进团结、加深友谊的盛会。将体育运动政治化，只会同所有冬奥运动员和冬季运动爱好者的热切期待相违背，只会损害各国运动员利益和国际奥林匹克事业。
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
-
-总编：飞虹
-编辑：文特
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+众所周知，国际项目从来只是中共达成政治目地的工具。中共多年来挟“奥林匹克运动精神、国际奥委会自重”，屡屡将体育运动赛场变成政治运动秀场，通过举办大型国际赛事活动，对自己的独裁体制粉饰贴金，裹挟民主国家为其独裁统治背书站台，塑造虚假的合法性。中共才是真正玩弄体育精神、将体育运动彻底政治化的国家。
 
  
 

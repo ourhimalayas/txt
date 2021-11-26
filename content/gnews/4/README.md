@@ -2,34 +2,26 @@
 ---
 
 
-## 有声|美国邀请台湾参加其民主峰会
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1697334/)
+## 加拿大疫苗接种政策引发民意分裂
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1697447/)
 
-配音：香草山香港部 – 文凯琳
+采编，编译撰稿：文明(添草灭共)     校对编辑：硫酸羟氯喹64
 
-根据美国国务院11月23日公布的与会者名单，拜登政府已邀请台湾参加其下个月举行的“民主峰会”。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/b-edited.png)图片来源：THN
 
-在国务院的邀请名单中，将有110名与会者参加12月9日和10日的虚拟会议。该活动旨在帮助阻止世界各地的民主倒退和对人权与自由的侵蚀。该名单不包括中共国或俄罗斯。
 
-台湾外交部表示，台湾受邀参加“民主峰会”是对台湾多年来努力促进民主和人权价值的肯定。台湾数字部长唐凤和台湾事实上的驻华盛顿大使萧美琴将代表台湾政府出席峰会。中共国对此表示“坚决反对”。
+据《多伦多太阳报》11月24日报道，由于目前安大略省医护人员严重短缺而导致对大量病患的医疗积压和延误，当局因此作出决定：该省未接种“新冠病毒”疫苗的医护人员只要能定期接受该病毒检测就可以继续工作。
 
-国务院的名单显示，这次活动将汇集法国和瑞典等成熟的民主国家，但也有菲律宾、印度和波兰等国家，这些国家的活动家称民主受到威胁。
+报道称，安省政府以上决定现已招致当地部分民众的反对。据最新民意调查结果显示：约56%的受访者认为，对定期接受病毒测试的医护人员应保留其工作；而44%的人则表示，未接种者应该被当局开除或禁止进入工作场所。
 
-2月份，拜登总统在其上任后的首次外交政策讲话中宣布，他将使美国重返全球领导地位，以对抗以中共国和俄罗斯为首的独裁主义势力，这次聚会是对这一主张的一次检验。
+据悉，以上结果除了多伦多市的不同意见各占一半之外，其他地区的大多数民众都支持政府的相关立场。
 
-文字版原文：[美国邀请台湾参加其民主峰会](https://gnews.org/zh-hans/1692746/)
+* * *
 
-音频处理：喜山必胜Maverick
+发稿：硫酸羟氯喹64
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+原文链接：https://torontosun.com/news/provincial/majority-back-ford-governments-position-on-unvaxxed-health-workers-poll
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
