@@ -2,30 +2,33 @@
 ---
 
 
-## 有声|币安不安 客户信息被赵长鹏出卖给中共
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1697310/)
+## 为勇敢校长鼓掌
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1697370/)
 
-配音：香草山香港部 – 文凯琳
+撰稿：Patty
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1126B.jpg)网络图片
+来自珀斯 Divine Mercy College 的校长 Adam Zydek 因政府强行要求接种疫苗宣布将在2022年暂停幼儿园班的运营。
 
-11月23日，郭文贵先生在直播中透露，币安CEO赵长鹏已将所有币安客户的隐私资料主动提供给中共。郭先生提到，这些资料中不仅有中国客户，还包括所有的外国客户——赵长鹏这一举动将给投资人带来无法预料的人身和财产损失。
+当地政府要求从2022年第一学期开始，所有员工必须接种疫苗。如果发现雇主雇佣了未接种疫苗的员工将被罚款10万澳元，未接种疫苗的员工将面临2万元的罚款。
 
-郭先生补充，一位在币安投资了约200万美元的客户在出境时被中共方抓捕。虽然目前尚不能确定此投资人的被捕是否与信息泄密有关，但可以确认的是，任何在币安注册账户并拥有投资的人，现在已经彻底被赵长鹏出卖。
+Adam Zydek告诉学校工作人员 : 为避免强制接种疫苗，他正考虑关闭学校。因为他认为，疫苗比感染病毒更糟糕。而用于开发疫苗的技术可能造成胎儿流产。而且他相信，那些没有接种疫苗的人会被从家里带走，强行接种疫苗，然后被关进集中营。
 
-另据消息显示，币安的官方网站发布了关于政府和执法机构信息请求的页面，当中明面显示政府执法官员可以通过该系统提交信息查询申请，其本质则是让中共可以看似“合法”地进入币安系统非法查看客户信息。
+但是，Adam Zydek不能单方面关闭学校，因为这取决于懂事会。周三Zydek 在给家长的信中已经通知了将在2022年暂停幼儿园的营运。
 
-文字版原文：[币安不安 客户信息被赵长鹏出卖给中共](https://gnews.org/zh-hans/1691788/)
+教育厅长Sue Ellery 告诉《西澳洲报》她对学校的决定感到困扰。她表示 :“如果Divine Mercy College 的管理机构回应了教育厅关于明年计划 ( 接种疫苗 ) 的正式要求，那将非常有帮助。我真的很有信心，绝大多数的教育工作者都会接种疫苗，这将有助于确保西澳学校明年的安全”。
 
-音频处理：喜山必胜Maverick
+在政府疫苗暴政的当下，有勇敢的人站出来和强权说不，就是英雄。这才是在自由国度里应该有的声音。随着疫苗接种率的不断攀升，接踵而至的是更多健康的人的因疫苗导致了疾病，如血栓，心肌炎，心包炎，癌症，流产，畸胎等等。更还有数不尽的因接种疫苗而死亡的人。但是那些贪婪的政客置若罔闻，掩盖疫苗危害真相，根本不理会科学家拿出的相关证据和数据。
 
-发稿：Tom Li
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+昨天Paul Marik医生向强制疫苗说不，而今天Adam Zydek 校长也站了出来，还有每时每刻都在揭露疫苗真相的大胡子医生Dr Zelenko，以及世界各地的勇敢民众，他们走在街上和平抗争疫苗暴政。
+
+同时我们当然也不能忘记新中国联邦的所有战友，每个人都在默默的为自由舔砖加瓦。
+
+众神会眷顾我们善良的人，神与我们同在。
+
+新闻参考链接：
+
+[Daily Mail](https://www.dailymail.co.uk/news/article-10241383/Anti-vax-principal-closes-Perth-kindergarten-avoid-Western-Australias-vaccine-mandate.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

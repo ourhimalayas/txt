@@ -2,33 +2,46 @@
 ---
 
 
-## 为勇敢校长鼓掌
-` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1697370/)
+## 司马南之流是华人之耻
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1697426/)
 
-撰稿：Patty
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1126B.jpg)网络图片
-来自珀斯 Divine Mercy College 的校长 Adam Zydek 因政府强行要求接种疫苗宣布将在2022年暂停幼儿园班的运营。
+撰稿：纽约香草山文艺部 – 宁文静
 
-当地政府要求从2022年第一学期开始，所有员工必须接种疫苗。如果发现雇主雇佣了未接种疫苗的员工将被罚款10万澳元，未接种疫苗的员工将面临2万元的罚款。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
 
-Adam Zydek告诉学校工作人员 : 为避免强制接种疫苗，他正考虑关闭学校。因为他认为，疫苗比感染病毒更糟糕。而用于开发疫苗的技术可能造成胎儿流产。而且他相信，那些没有接种疫苗的人会被从家里带走，强行接种疫苗，然后被关进集中营。
 
-但是，Adam Zydek不能单方面关闭学校，因为这取决于懂事会。周三Zydek 在给家长的信中已经通知了将在2022年暂停幼儿园的营运。
 
-教育厅长Sue Ellery 告诉《西澳洲报》她对学校的决定感到困扰。她表示 :“如果Divine Mercy College 的管理机构回应了教育厅关于明年计划 ( 接种疫苗 ) 的正式要求，那将非常有帮助。我真的很有信心，绝大多数的教育工作者都会接种疫苗，这将有助于确保西澳学校明年的安全”。
 
-在政府疫苗暴政的当下，有勇敢的人站出来和强权说不，就是英雄。这才是在自由国度里应该有的声音。随着疫苗接种率的不断攀升，接踵而至的是更多健康的人的因疫苗导致了疾病，如血栓，心肌炎，心包炎，癌症，流产，畸胎等等。更还有数不尽的因接种疫苗而死亡的人。但是那些贪婪的政客置若罔闻，掩盖疫苗危害真相，根本不理会科学家拿出的相关证据和数据。
 
-昨天Paul Marik医生向强制疫苗说不，而今天Adam Zydek 校长也站了出来，还有每时每刻都在揭露疫苗真相的大胡子医生Dr Zelenko，以及世界各地的勇敢民众，他们走在街上和平抗争疫苗暴政。
+在11月24日大直播中，郭先生严辞斥责司马南、方舟子、胡锡进等人的恶略行径，已严重破坏华人的国际形象。新中国联邦要依法严惩中共的帮凶。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11262.png)
+郭先生爆料，受习近平指使，司马南连续污蔑柳传志先生，把联想集团逼到风口浪尖，以帮助华为搞垮联想手机业务。这实际是一场针对良心企业家柳传志先生的阴谋。
 
-同时我们当然也不能忘记新中国联邦的所有战友，每个人都在默默的为自由舔砖加瓦。
+司马南、方舟子、胡锡进等人不但没有为社会创造价值，反而以“公知”的身份，充当中共的宣传机器，用谎言误导民众。更可恶的是，他们极端言论，严重影响了华人的整体国际形象，为可能发生的排华情绪，埋下了祸根。
 
-众神会眷顾我们善良的人，神与我们同在。
+郭先生说，新中国联邦有责任制止这些人作恶。并已安排工作小组收集司马南等反人类、反西方、种族歧视的极端言论。法治基金和法治社会将依法对其发起诉讼。
 
-新闻参考链接：
 
-[Daily Mail](https://www.dailymail.co.uk/news/article-10241383/Anti-vax-principal-closes-Perth-kindergarten-avoid-Western-Australias-vaccine-mandate.html)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/TA1.jpg)
+
+新闻链接: [2021年11月24日 文贵大直播：北京深圳香港交易所；病毒疫苗灾难与解药；喜币喜联储GTV股票；新中国联邦灭共使命](https://gtv.org/video/id=619e389338f84e66c64ec66b)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-5.jpg)
+
+总编: 文特
+
+编辑: 文真
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

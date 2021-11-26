@@ -2,43 +2,44 @@
 ---
 
 
-## 文贵大直播：CCP病毒疫苗灾难及其次生灾难的惨烈程度或超乎想象
-` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1697406/)
+## 赵长鹏受中共掌控 藏身迪拜
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1697501/)
 
-**By:秘翻新闻**
+撰稿：美东香草山农场 文真
 
-***2021-11-26***
-[![](https://assets.gnews.org/wp-content/uploads/2021/11/1126.png)](https://gtv.org/broadcast/watch/61a0a01944c1fe7a6c394a20)点击图片观看视频
-**新闻摘要:**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
 
-1. 再爆本土疫情 上海三小区列为中风险区
 
-2. 浙江大學被封校檢測
 
-3. 为自己孩子跳楼发声 微博大V被封号
 
-4. 中共掏空人民养老金
 
-5. 文贵大直播：CCP病毒疫苗灾难及其次生灾难的惨烈程度或超乎想象
+11月24日，郭文贵先生在大直播中，继续爆料币安创始人与CEO赵长鹏和中共勾兑的更多内幕。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11263-1.png)
+郭先生说，币安交易所涉嫌非法交易，拒绝客户提现，而且赵长鹏已经将所有客户信息出卖给中共。此外，赵长鹏还受中共指使，诋毁喜联储和喜币，并企图以破产为由，逃避一切法律追责，将所有资金据为己有。赵长鹏已无处藏身，只能藏匿在中共的情报基地—迪拜。
 
-6.  告密者护士说政客接受生理盐水而不是 MRNA 注射
+郭先生还谈到，赵长鹏深谙虚拟货币的藏钱方式，是最多比特币的持有者之一，并有暗网账号等交易方式。
 
-7.  警惕！所罗门群岛爆发抗议活动 唐人街商铺成攻击目标
+郭先生感叹，赵长鹏知道太多中共的内幕信息，按照中共一贯的手法，赵长鹏也终将惨遭灭口。
 
-8. 国际立法者联盟反对中共公安任职国际刑警
+新闻链接：[2021年11月24日 文贵大直播：北京深圳香港交易所；病毒疫苗灾难与解药；喜币喜联储GTV股票；新中国联邦灭共使命](https://gtv.org/video/id=619e389338f84e66c64ec66b)
 
-9. 捷克总统全程接种疫苗被确认感染中共病毒
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-5.jpg)
 
-10. 中共开采刚果矿产发财　中国人再遭绑架 2人遇害
+总编：Irene木木
 
-**GTV链接：**[https://gtv.org/broadcast/watch/61a0a01944c1fe7a6c394a20](https://gtv.org/broadcast/watch/61a0a01944c1fe7a6c394a20)
+编辑：Lakeman(文仁)/雪梨
 
-发布: 文橙
+校正/发稿：浪迹天涯
 
-* * *
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-**更多资讯,敬请关注**
-![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,24 +2,36 @@
 ---
 
 
-## 文贵大直播11.26.2021 喜币面前见人心!
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1697446/)
+## 美国250万卡车司机绝不接受疫苗强制令
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1697526/)
 
-撰稿：回响
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-26-at-8.47.09-AM.jpeg)图片来源：GTV & GETTR
-2021年11月26日感恩节结束的第二天，新中国联邦创始人郭文贵先生在文贵大直播中，谈到不同人面对喜币的种种故事见证了人心与人性。
+作者：纽约香草山文艺部 – 宁文静
 
-郭先生分享了海外战友因为喜币的买卖和日本、美国、英国友人的意见交换，并且深刻剖析了背后反映出来的文化差异。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-有趣的问题会引发智慧的思考和答案。如果像九指妖、王腚缸、蛇妖闫这样的伪类们今天还在爆料革命中，它们会如何对待喜币？现场的嘉宾如果随时把喜币卖掉，会如何去使用手中的财富？
+11月24日，美国卡车协会在众议院举行的听证会上声明，如果拜登政府不改变强制新冠疫苗接种政策，250万的卡车司机将会离职。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-18.jpg)
+卡车协会的CEO克里斯·斯皮尔表示，通过该协会的调查显示，37%的司机绝对不接受白宫的新冠疫苗授权政策，为此，超过250万的卡车司机将停止工作。斯皮尔补充说，安全与卫生署并不拥有执行强制新冠疫苗接种令的法律授权。另一方面，虽然该署暂时遵从了第五巡回法院关于疫苗的停止令，但来自新冠疫苗的威胁并没有消除。
 
-文贵先生和现场嘉宾们充分地交流之后，很认真地指出：喜币前、喜币后，一个人的不同反应一定会证明，爆料革命面前，没有任何人不暴露出一个真实的自己。喜币面前见人心、见人性。
+资料显示，该卡车协会负责美国超过80%的陆路运输。但目前，全美多个港口已经出现了严重的货物拥堵情况。对此，卡车协会警告，如果拜登政府的新冠疫苗强制接种令不立即转向，将会导致数百万的卡车司机因此离职，从而加剧目前的供应链危机，甚至对经济和通货膨胀也将产生灾难性的后果。
 
-【原文链接】https://gtv.org/broadcast/watch/61a0daac44c1fe7a6c39814e
+参考链接：
+[2.5 MILLION TRUCKERS WILL QUIT OVER VACCINE MANDATE IF BIDEN DOESN’T REVERSE COURSE](https://rsbnetwork.com/news/2-5-million-truckers-will-quit-over-vaccine-mandate-if-biden-doesnt-reverse-course/)
 
-校对发布: Shifter
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
+总编：Ivy001
+编辑：Jack Li文阳
+校正/发稿：Fei797
 
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
  
 

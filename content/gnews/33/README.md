@@ -2,31 +2,32 @@
 ---
 
 
-## 美跨党派众议员抵达台湾访问
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1697339/)
+## 新中国联邦人能力所及之处，都是我们的国土
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1697409/)
 
-作者： 纽约香草山医疗部 – 云豹
+撰稿：东京樱花团—在远方
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
 
-当地时间11月25日，据台湾方面的消息，美国联邦众议院退伍军人事务委员会主席高野率跨党派众议员访问团，搭乘美军C-40C行政专机，于当地时间25日晚间抵达台湾松山机场。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-35.jpg)
-据悉，访问团成员包括民主党及共和党的众议员，他们分别属于众议院退伍军人事务委员会、军事委员会，以及外交委员会。
 
-消息称，该访问团预计将在台湾停留两天，并于26日先拜访台湾退辅会及国防部，双方将就美台关系、区域安全和国防相关议题交换意见。
 
-另外，蔡英文总统也将安排时间，在总统府接见访问团的成员。
 
-资料显示，美国共和党联邦参议员柯宁曾率领的参、众议员访问团于本月9日刚刚完成对台湾的访问。此次则是在今年11月份中第2个抵达台湾访问的美国议员团体。
 
-参考链接：
-[美跨黨派議員團抵台 26日拜會國防部退輔會](https://www.cna.com.tw/news/firstnews/202111255006.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+在11月24日的大直播中，郭文贵先生谈到他对国家的独到观点。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11261-1.png)
+郭先生称，中共每年的维稳经费高达一万亿美元，其中4成用于海外蓝金黄。因为中共认为，国家这个概念一家不适合21世纪，中共企图通过全球维稳，将国家的边界最大化。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+郭先生表示 ，国家绝不等同于国土。哪里有人相信你，接受你的金融货币系统，哪里就是你的国家。未来，凡新中国联邦人能力所及之处，都是我们的国土，甚至地球之外的生存空间。GTV、GNews、盖特，以及喜联储，打造了实现这一愿景的基础。经过新中国联邦人的共同努力，G系列生态的不断发展、壮大、成熟，将承载新中国联邦走向更光明的未来。
 
-总编：文特
-编辑：Lakeman(文仁)
-校正/发稿：Fei797
+新闻链接: [2021年11月24日文贵先生直播小飞象大雨围城速记](https://gnews.org/zh-hans/1677917/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-5.jpg)
+
+总编: 文特
+
+编辑: 飞虹/雪梨
+
+校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -35,9 +36,7 @@
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
 
  
 

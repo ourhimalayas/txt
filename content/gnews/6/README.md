@@ -2,18 +2,49 @@
 ---
 
 
-## 【文贵先生大直播PPT】青蒿素功效 疫苗灾难
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1697543/)
+## 台湾对美国总统拜登邀请台湾参加下个月举行的民主峰会表示感谢
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1697680/)
 
-撰稿：Eglise，莲心不染，文紫，舒平风，坐看云起时
-美工：青山
-审核：三票先生，顽童先生，舒平风
+作者：银河勇气星—骄子
 
-【2021年11月26日文贵先生大直播PPT：青蒿素功效 疫苗灾难】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-176.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-123.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-103.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-69.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-51.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-44.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/7-36.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/8-27.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/9-19.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/10-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/11-14.jpg)
-* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-8.png)
 
-发稿：云起时
+
+
+
+
+台湾对美国总统拜登邀请台湾参加下个月举行的民主峰会表示感谢，此次民主峰会将于12月9日和10日以视频方式举办，峰会的受邀国家与地区有110个，参与的有全球100多个民主国家的领袖与代表，中共、俄罗斯和越南都不在受邀名单中。拜登总统今年2月在他的首次外交政策讲话中宣布了举办民主峰会的计划。他说，他将让美国重返国际领导地位，对抗中共和俄罗斯主导的威权主义力量。此次民主峰会的主题包括防范威权主义、处理和打击腐败以及推动尊重人权。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/FBA8A864-141C-4DA1-8D4F-B8BE4D6C1F8E_w1023_r1_s.jpg)图片来源: VOA
+
+参考阅读: 
+[https://www.voachinese.com/a/Taiwan-Appreciates-Being-Invited-To-Democracy-Summit/6326005.html](https://www.voachinese.com/a/Taiwan-Appreciates-Being-Invited-To-Democracy-Summit/6326005.html)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-8.jpg)
+
+编辑: Irene木木
+
+校对/发稿：一烘
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-8.png)
+
+
+
+
+
+
 
  
 

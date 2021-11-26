@@ -2,41 +2,33 @@
 ---
 
 
-## 郭文贵先生谈习近平的独裁
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1697555/)
+## SARS-CoV-2 刺突蛋白损害 DNA 损伤修复并抑制体外 V(D)J 重组
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1697764/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在11月24日的大直播中，郭文贵先生谈到了共产党的统治。
+【**简评：**】**11月14日，郭文贵先生在大直播强调，比中共病毒更恐怖的是它的疫苗，每一针疫苗包含40万亿个刺突蛋白，它首先破坏人体自身的免疫系统，这40万亿刺突蛋白进入毛细血管后，身体重要器官的血液循环会遇到障碍，引发死亡率极高的的心肌炎、心包炎、脑梗等！本文研究工作直接指出，刺突蛋白损害DNA损伤修复机制。而该修复机制出现缺陷时，会增加机体发生多种疾病和肿瘤的风险**。
 
-郭先生提到，当初，苏联共产党认为，一个弱化的中国才符合世界利益；现在，中国共产党正在挑战美国并发动第三次世界大战——虽然中共国家非常富强，但中国人却在四处奔逃、躲藏。
+**据病毒学期刊《Viruses 》 ，2021年10月13日发表文章摘要报道：**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-20.jpeg)
+严重急性呼吸综合征冠状病毒2 (SARS-CoV-2)已导致2019冠状病毒病(COVID-19)大流行，严重影响公共卫生和全球经济。适应性免疫在对抗SARS-CoV-2感染中起着至关重要的作用，并直接影响患者的临床结果。临床研究表明，重症COVID-19患者表现出延迟和微弱的适应性免疫反应；然而，SARS-CoV-2阻碍适应性免疫的机制尚不清楚。在这里，我们利用体外细胞系的研究显示，SARS-CoV-2刺突蛋白显着抑制DNA损伤修复，这是适应免疫中有效的V(D)J重组所必需的。从机制上讲，我们发现刺突蛋白定位于细胞核，通过阻碍关键的DNA修复蛋白BRCA1和53BP1募集到损伤部位来抑制DNA损伤修复。我们的研究结果揭示了刺突蛋白可能阻碍适应性免疫的潜在分子机制，并强调了基于全场刺突蛋白所开发的疫苗的潜在副作用。
 
-郭先生补充，早在1989年，王岐山等人便开始利用家族信托掠夺国内的财富，并在海外建立了自己的帝国；其后，孟建柱也曾有野心当中共的领导人，但这二人目前都已经被习近平控制。而这些现状都是共产党魔鬼、独裁的体制造成的。
+**该研究工作于2021年10月13日，**
+发表在病毒学期刊《Viruses 》“SARS-CoV-2宿主细胞相互作用（SARS-CoV-2 Host Cell Interactions）”特刊中。
 
-郭先生还解释，在中共盗国的这几十年间，中共完全就是劫匪——不仅不会给老百姓留下财富，还会根据需要拿走百姓的性命。但在习近平的眼中，中共和中国人都只是工具。
+文章作者为来自瑞典斯德哥尔摩大学的Hui Jiang 和瑞典于默奥大学的Ya-Fang Mei 。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/hmk.jpg)图片来源：Viruses 2021, 13(10), 2056; [https://doi.org/10.3390/v13102056](https://doi.org/10.3390/v13102056)
+点击“View Full-Text”可以查看文章全文。
 
-至于习近平，郭先生透露，在把独裁工具用完之后，习近平最担心的是，在自己下台之后，中国的戈尔巴乔夫会找他清算——在独裁的体制之下，这也是必然的。
+**原文连接**[:https://www.mdpi.com/1999-4915/13/10/2056](https://www.mdpi.com/1999-4915/13/10/2056)
 
-郭先生提到，习的疯狂远甚于毛泽东、希特勒和斯大林的总和，但如今，他已恐惧到了极点。为此，自2020年1月起，习既不敢走出国门，在国内也居无定所、四处流窜——其目的只为掩人耳目，装神弄鬼。
+翻译：洛杉矶盘古农场 – 比格渣餐厅老板の娘
+校对：洛杉矶盘古农场 – Mike Li
+评论：洛杉矶盘古农场 – 比格渣餐厅老板の娘
+编辑：洛杉矶盘古农场 – 小象の奶瓶
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-参考链接：[2021年11月24日文贵先生直播小飞象大雨围城速记](https://gnews.org/zh-hans/1677917/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
-
-总编：木白
-编辑：飞虹
-校正/发稿：谐趣园
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

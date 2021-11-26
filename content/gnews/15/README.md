@@ -2,27 +2,32 @@
 ---
 
 
-## 英国科学家发现新冠病毒新变种
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1697476/)
+## 郭文贵先生谈习近平的独裁
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1697555/)
 
-作者：纽约香草山教育部 – Naughty(文行)
-
+作者：东京樱花团—在远方
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在11月24日的大直播中，郭文贵先生谈到了共产党的统治。
 
-当地时间11月24日，英国专家警告世界称，近期，在非洲博茨瓦纳出现了一种新型新冠肺炎变种，堪称迄今为止该病毒最有变异性的版本。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-26.jpg)
-据相关科学家分析，此种被称为“Nu”的新冠变异菌种包括32种突变，可能由免疫系统受损的患者长期感染所致。科学家补充，该变种的突变组合非常可怕，或具有高度传染性和耐药性，甚至可能比几乎所有其余新冠病毒变种都糟糕，包括目前占主导地位的Delta变种——因为该变种可能比Delta更易躲避抗体。
+郭先生提到，当初，苏联共产党认为，一个弱化的中国才符合世界利益；现在，中国共产党正在挑战美国并发动第三次世界大战——虽然中共国家非常富强，但中国人却在四处奔逃、躲藏。
 
-相关报道显示，到目前为止，全球范围内已发现了10例该变异菌株。但科学家表示，还没有迹象表明该变种正在迅速传播，不过科学界正在对其密切关注。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-20.jpeg)
 
-参考链接：
-[British scientists warn of ‘horrific’ new COVID-19 variant; only 10 cases so far](https://torontosun.com/news/world/british-scientists-warn-of-new-covid-19-variant-only-10-cases-so-far?utm_source=ground.news&amp;utm_medium=referral)
+郭先生补充，早在1989年，王岐山等人便开始利用家族信托掠夺国内的财富，并在海外建立了自己的帝国；其后，孟建柱也曾有野心当中共的领导人，但这二人目前都已经被习近平控制。而这些现状都是共产党魔鬼、独裁的体制造成的。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+郭先生还解释，在中共盗国的这几十年间，中共完全就是劫匪——不仅不会给老百姓留下财富，还会根据需要拿走百姓的性命。但在习近平的眼中，中共和中国人都只是工具。
 
-总编：Irene木木
-编辑：Lakeman(文仁)
-校正/发稿：Fei797
+至于习近平，郭先生透露，在把独裁工具用完之后，习近平最担心的是，在自己下台之后，中国的戈尔巴乔夫会找他清算——在独裁的体制之下，这也是必然的。
+
+郭先生提到，习的疯狂远甚于毛泽东、希特勒和斯大林的总和，但如今，他已恐惧到了极点。为此，自2020年1月起，习既不敢走出国门，在国内也居无定所、四处流窜——其目的只为掩人耳目，装神弄鬼。
+
+参考链接：[2021年11月24日文贵先生直播小飞象大雨围城速记](https://gnews.org/zh-hans/1677917/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：木白
+编辑：飞虹
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -30,8 +35,8 @@
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
 
  
 
