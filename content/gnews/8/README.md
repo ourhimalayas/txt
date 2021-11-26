@@ -2,31 +2,26 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月25日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1696252/)
+## 日本外相首次与俄外长通电话，严重关切中俄联合军事活动
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1696320/)
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/1125text-SC.png)
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-211.png)
+据日本共同社11月25日报道，日本外相林芳正25日，在就任后首次与俄罗斯外长拉夫罗夫举行电话会谈，就俄罗斯与中共在日本周边的军事活动趋于活跃，表示了严重关切。
 
+两人还围绕包括北方四岛领土问题在内的和平条约缔结谈判，确认将基于日俄之间迄今的各种共识来展开磋商。
 
-校对：Stay文苑
+中俄海军舰艇10月同时绕日本列岛航行了几乎一周。本月，中俄轰炸机在日本海和东海上空长途飞行等，加强了军事合作。
 
-编辑：Stay文苑
+日俄外长在会谈中，讨论了力争在北方四岛实施的共同经济活动以及原岛民等扫墓事宜。两人还谈及朝鲜的核与导弹开发。林芳正就朝鲜绑架日本人问题寻求了理解与合作。他还表示期待与拉夫罗夫举行面对面会谈。
 
-发稿：Stay文苑
+信息来源：
 
-视频参看：[11.25  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61a03814e85d226ebcb4ad7e)
+[日本外相与俄外长通电话就军事动向表示关切](https://china.kyodonews.net/news/2021/11/a0c7473607cd--.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-10.jpg)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,28 +2,36 @@
 ---
 
 
-## 德国因中共病毒死亡达10万，默克尔说这是悲哀的一天
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1696304/)
+## 因帮助中共军方获取技术，美国“实体名单”再添27家
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1696396/)
 
-翻译：  Evalu
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-39.png)
-图片来源： www.dw.com
+作者： 纽约香草山农场 – 007
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-212.png)
+11月24日，因从事违背美国国家安全和外交政策利益的活动，美国商务部宣布，将27个位于中共国和巴基斯坦的公司和实体列入“实体名单”。
 
-美联社11月25日报道，德国总理安琪拉·默克尔把周四称作“非常悲伤的一天”，要求更多的限制，因为德国自疫情全球爆发以来，因中共病毒死亡人数最新已达10万人。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-10.png)
 
-德国疾控中心说过去24小时又有351例死于中共病毒感染，使得总死亡人数达100,119，在欧洲，德国是第五个国家达到这个数字，紧跟俄罗斯，英国，意大利，法国之后。
+其中包括：帮助中共军方获取量子计算技术的杭州中科、新华三、 国盾量子等八家中共国公司，支持巴基斯坦无安全保障核活动和弹道导弹计划、在中共国和巴基斯坦经营的16个实体和个人，参与了从西方向伊朗、朝鲜、中共国军事项目出售技术的嘉兆科技的三个子公司。此外，俄罗斯的莫斯科物理与技术研究所被列入“军事终端用户”名单。
 
-默克尔在柏林新闻发布会上说：“这当然是非常悲哀，我们对这10万多名受害者而哭泣，很不幸的是，此时此刻，每天又有300多人死亡。”
+一家公司或实体被美国商务部列为“实体名单”，意味着美国公司必须获得特别许可，才能向该公司出售产品，而这个特别许可的申请很可能被拒绝。
 
-一家德国联邦机构罗伯特·科氏研究所从全国400家地区健康办公室收集数据，说德国一天确诊病例达75961例，自从中共病毒疫情爆发以来，德国已有557万人感染了中共病毒。
+参考链接：
 
-默克尔周三称德国政府正在建立一个永久的专家团队，为政府提出如何应对疫情的措施。
-
-很多医院警告称重症监护室病床都在爆满，东南部的一些医院正在把病人转移到其他地区。巴伐利亚医院总监罗兰德·恩格森说，新感染病例必须快速下降，否则在感恩节和圣诞节期间的情形将达到我们从未想像到的状况。
-
-##### **新闻来源： **[Merkel: ‘Sad day’ as Germany marks 100,000 deaths from COVID](https://apnews.com/article/coronavirus-pandemic-health-europe-germany-54b1aecc3cd04973bdb99e92cd36214f)
+- [美商务部将帮助中国军方的中国公司列入贸易黑名单](https://www.voachinese.com/a/US-commerce-entity-list-chinese-companies-20211124/6326652.html)
 
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
+
+总编：文特
+编辑：文特/雪梨
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
