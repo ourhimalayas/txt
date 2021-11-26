@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/26/2021 12:17 AM (UTC)`
+
+11月25日：纽约自由号之船等待着战友们的到来…… <br/><br/>
+![img](https://media.gettr.com/group21/getter/2021/11/26/00/17/3292729e-4688-20c9-4065-de272bca4f65/4ffcada956cd4859dc6fbb3afab232a3.jpg)
+
+---
+
+`@miles 11/26/2021 12:12 AM (UTC)`
+
+11月25号：伟大的美国对保护大自然得长远的观点和全社会尊重法律．依法保护大自然…所带来的利益，是长期的，是金钱无法.恒量的……只有身在其中才能感受到美国这个国家的伟大……上天赐给了美国最好的自然条件，千年的锤炼来自欧洲的民主政治体制！还给美国这个有信仰的国家，带来了世界上目前最好的法律系统，这才是强大的美国最根本的基础，自然环境能体现出人心，国家和社会的末来！
+![img](https://media.gettr.com/group8/getter/2021/11/26/00/12/88032be6-eef8-dc3d-5f97-1cb5a0feae31/out.jpg)
+
+---
+
 `@miles 11/26/2021 12:05 AM (UTC)`
 
 11月25号：感恩节的快乐……
@@ -282,20 +296,6 @@ Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Clip 
 
 Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Touching Moments of the Press Conference for the Establishment of the Rule of Law Foundation on November 20, 2018 +<br/>Liberate Hong Kong, Revolution of Our Time<br/><br/>中共体制下“被消失”的高官和商人 + 2018年11月20日【法治基金成立】新闻发布会震撼瞬间 + 光复香港 时代革命
 ![img](https://media.gettr.com/group20/origin/2021/11/21/13/09/131bd791-6ac4-f83f-2460-ec31a75fd6fd/out.jpg)
-
----
-
-`@miles 11/21/2021 1:01 PM (UTC)`
-
-11/20/2021 [3rd Anniversary of 1120]  Mr. Bannon’s endless fights for saving Chinese people<br/><br/>11/20/2021【1120三周年纪念】<br/>班农先生为解救中国人民付出无尽心血<br/><br/>
-![img](https://media.gettr.com/group47/getter/2021/11/21/13/01/c0c0d5bb-f912-b4eb-aed0-6675cf5c4f94/out.jpg)
-
----
-
-`@miles 11/21/2021 11:28 AM (UTC)`
-
-11/20/2021 [3rd Anniversary of 1120] Mr. Miles Guo: We shall love Mr. Bannon and he is a real master who can help us NFSC and global Chinese. <br/><br/>11/20/2021【1120三周年纪念】<br/>文贵先生：我们要真心爱班农先生，他是真正的大师可以帮助到新中国联邦和全球所有的华人。
-![img](https://media.gettr.com/group13/getter/2021/11/21/11/28/73bacd0d-2646-5494-1627-f4d5a912a519/out.jpg)
 
 ---
 
