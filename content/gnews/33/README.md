@@ -2,39 +2,32 @@
 ---
 
 
-## 美国电动汽车税收抵免对加拿大意味着什么
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1695798/)
+## 民调低迷的拜登过感恩节
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1695909/)
 
-作者：Gabriel Friedman 
-翻译：HimaCoby
+撰稿：Grace
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-2.png)
+校对：Grace
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-05-at-9.58.53-PM.jpeg)图片来源：re-pre
+据《每日邮报》11月24日报道，拜登在楠塔基特（Nantucket）与家人一起庆祝感恩节，但对于他的工作表现，以及其对经济和外交政策等问题的处理，超过大半的美国民众觉得没什么可感激的。
 
-上周，随着总理贾斯汀·特鲁多访问华盛顿特区，美国众议院通过了一项近 2 万亿美元的庞大基础设施法案，该法案解决了许多问题，但让一些加拿大人感到担忧：法案中的一项条款，在目前的草案中，如果美国消费者购买由工会工人在美国制造的电动汽车，则可给予他们最高 12,500 美元的税收抵免。
+根据《真实明白的政治学》（RealClearPolitics）的数据，拜登的平均工作支持率为41.6%，比其在5月底享有的54.7%的平均支持率大幅下降。
 
-本周，加拿大汽车零部件制造商协会主席弗拉维奥·沃尔佩谈到了税收抵免对这个国家的意义。许多全球汽车制造商组装的汽车最终在美国销售。
+民调专家约翰.佐格比（John Zogby）周三告诉《邮报》，拜登的平均支持率在41左右, 至少有三个民调显示他的支持率在30左右. 佐格比说: “因此，我们看到在大约五个月左右的时间里，他的支持率大幅下降了两位数。而且几乎在每个方面他都做得不好。”
 
-沃尔佩表示，税收抵免将激励汽车制造商在美国建立电动汽车装配厂，但与加拿大-美国-墨西哥贸易协定背道而驰，该协定设想了一个完整的北美汽车供应链。事实上，这三个国家的汽车行业已经整合了几十年。
+佐格比还补充说，在处理中共病毒方面，拜登的支持率低于50%，在移民方面和外交政策方面，他的数字都很低。
 
-来源：https://financialpost.com/transportation/autos/what-the-u-s-ev-tax-credit-means-for-canada/wcm/380ce7c5-1dc6-4f6f-aee2-b73e160c23c0/amp/
+据报道，11月1日至17日进行的盖洛普民意调查显示，拜登在移民问题上的支持率为31%，在外交事务和经济问题上的支持率为38%，在犯罪问题上的支持率为39%。在中共病毒调查中，受访者对总统的表现意见不一，49%赞成，49%不赞成。
 
-（文章仅代表作者个人观点）
+拜登的一些最残酷的评价，来自于11月7日至10日进行的ABC新闻/华盛顿邮报民调，该民调发现只有38%的登记选民认可他的表现，57%的人不认可。11月3日至5日进行的《今日美国》/萨福克大学民调(Suffolk University poll)也发现，38%的人认可拜登的工作，而59%的人不认可。
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+与此同时，昆尼皮亚克大学(Quinnipiac University)上周公布的一项调查显示，拜登的支持率仅为36%。
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+根据《真实明白的政治学》的数据，相比之下，前总统唐纳德-特朗普的平均支持率从未低于37%。
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+佐格比认为，虽然拜登 “前面有一些困难”，但除非出现经济崩溃，否则他的支持率很可能不会再低了。
 
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+**新闻来源：****[Tanking polls give Biden few reasons to be thankful this year](https://nypost.com/2021/11/24/tanking-polls-give-biden-few-reasons-to-be-thankful-this-year/?preview_id=20262070)**
 
  
 
