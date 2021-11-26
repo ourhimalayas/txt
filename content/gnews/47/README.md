@@ -2,37 +2,28 @@
 ---
 
 
-## SLOVENIA危机：吹哨人称政治家合伙骗人民打疫苗
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1695021/)
+## 日本外相：采取万全措施应对台湾事态！强化日美同盟对抗中共！
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1696115/)
 
-**编译：西班牙巴塞罗那喜悦农场-wenwu**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip64.png)图片来源：dailytelegraph.co.nz
-东欧国家斯洛文尼亚（**SLOVENIA**）发生了一场危机，一名吹哨人（护士）告诉公众，政客合伙其他高级公民（富人）接受的是**“3**号**”**生理盐水，而不是** mRNA **实验药物（也就是说，疫苗制药厂合伙政府和富豪屠杀人民）。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-33.png)[图片来源](https://news.ltn.com.tw/news/world/paper/1483771)
+日本共同社11月25日报道，日本外相林芳正接受采访时表示，若台湾出现突发事态，将采取万全措施，以应对任何情况。
 
-在（已被 YouTube 删除的）[Facebook 上的一段视频中](https://www.facebook.com/stoplaznivimmedijem/videos/190515176301913/)，这名自称是在卢布尔雅那（Ljubljana）大学医学中心（负责接收和管理政客注射瓶的）女护士长已经辞职，并就此政治丑闻召开了新闻发布会。她说，她亲自见证了所有政治家和富豪的打针过程，所有收到“1号”瓶的人，都声称他们收到的是生理盐水，是安慰剂。这就解释了为什么政客们通过主流媒体拍照时，是由同一个人给他们打针。
+林外相说，“一般而言，当然是包括撤离日本人在内，为了能应对任何事态采取万全措施”。他还称“鉴于此事的性质，就具体内容不作说明”。
 
-在会议期间，她展示了瓶子上的代码，其中每一个都包含1、2或3位数字，然后解释这些数字的含义。
+他就台湾局势称：“台湾海峡的和平与稳定对我国和国际社会而言很重要。期待台湾问题通过对话得以和平解决。”
 
-注：《每日电讯报》从我们在斯洛文尼亚的消息来源了解到，原始视频现在已经从Facebook上删除。
+关于中国大陆，他称“将推进与同盟国美国的合作，呼吁中方履行作为大国的责任”。
 
-“1号”是安慰剂，盐水；“2号”是mRNA；“3号”是一个 mRNA stick，包含 onco 基因，与导致癌症发展的腺病毒有关。她说那些接受“3号”瓶的人（美国红州）将在接受疫苗注射后的两年内，患上软组织癌症。
+关于中共国家主席习近平访日事宜，林芳正称“不处于协调具体日程的阶段”。关于“外交抵制”北京冬奥会，他称“将在合适的时期综合考虑各项情况作出判断，现阶段什么也没有决定”。
 
-补充：
+信息来源：
 
-来自推友（[@deNutruents](https://twitter.com/deNutrients/status/1463369583323189250?s=20)）于2021年11月23日分享：编码中带有“01”的疫苗批号是生理盐水溶液类型（附两图），这是由一名女护士长说的。
+[日外相称若台湾出现突发事态将采取万全措施](https://china.kyodonews.net/news/2021/11/16558e03fea4.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip65.png)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip66.png)
-
-**新闻来源**：[dailytelegraph.co.nz] [CRISIS IN SLOVENIA: WHISTLEBLOWER NURSESAYS POLITICIANS RECEIVE SALINE INSTEAD OF MRNA JAB](https://dailytelegraph.co.nz/covid-19/crisis-in-slovenia-whistleblower-nurse-says-politicians-receive-saline-instead-of-mrna-jab/) | 发布时间：2021年11月24日
-
-* * *
-
-***发稿：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
