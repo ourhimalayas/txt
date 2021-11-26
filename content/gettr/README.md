@@ -17,6 +17,14 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+**:arrows_clockwise: miles 已轉發**
+
+`@drzevzelenko 11/26/2021 4:03 PM (UTC)`
+
+Dr. Vladimir Zev Zelenko, a Ukrainian born, Zionist, Chasidic JEW has been arrested for a multitude of felonies:<br/><br/>1. Offering hope to innocent people<br/>2. For Zelenko Protocol which has reduced hospitalization and death up to 85%<br/>3. Calling Covid-19 a man-made bioweapon<br/>4.  His work has caused severe damage to the fear and isolation Psy-op<br/>5. His work has severely damaged the totalitarian globalist agenda of devolved pagans<br/>6. His work threatens the profit margins of big-pharma with his irresponsible use of safe and generic drugs. <br/>7. For encouraging poison death shot hesitancy <br/>8.  Calling President Biden a demented puppet<br/>9.  Calling FDA, CDC, NIH enemies of the people <br/>10. Calling the media a whore that is complicit in crimes against humanity and mass murder
+
+---
+
 `@miles 11/26/2021 1:01 PM (UTC)`
 
 2021年11月26日 文贵大直播：再谈青蒿素病毒疫苗解药；感恩节五千万人旅行后果；近日币安数字货币大变；喜币价值新中国联邦实力
@@ -148,14 +156,6 @@
 
 11月25日：【共产党的病毒．和邪恶的役苗．成功的传播了极权国家主义】<br/><br/>CCP病毒和对人类的危害是历史以来前所未有的……无数的人命将换来一个非常简单的答案．共产党用蓝金黄．BGY成功的传播极权主义……
 ![img](https://media.gettr.com/group22/getter/2021/11/24/09/53/4a9d91c1-17ec-1a8b-c49e-fb6a7d1f3fd7/out.jpg)
-
----
-
-`@miles 11/24/2021 1:30 AM (UTC)`
-
-是这个吧？
-> `@michaelyeadon 11/23/2021 3:30 PM (UTC)`<br/>Hello GETTR,<br/><br/>Thank you for all of your help and support! It is greatly appreciated.<br/>The truth is upon us, only a few more days left until I share the DARK SECRETS of Pfizer. They are trying to seal all documentation from the public until 2076 but I have the files and I will release them to you.<br/><br/>I NEED your HELP getting verified, it turns out I need more followers to qualify, so PLEASE SHARE this with everyone you know.<br/><br/>It's about your live, it's about your CHILDREN'S LIVES!<br/>@MichaelYeadon 
-![img](https://media.gettr.com/group10/getter/2021/11/23/15/30/1e1824d7-5e2a-0300-1c97-eb2cd91db304/e57e6d82119d85d5ef8342f43e388f5c.jpg)
 
 ---
 
