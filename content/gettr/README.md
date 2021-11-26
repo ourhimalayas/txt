@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/26/2021 1:18 AM (UTC)`
+
+11月25号：很多战友们在问我洗眼情的洗眼药水是什么品牌的，我在这里一并回答。不在单独回复……感恩节快乐！
+![img](https://media.gettr.com/group27/getter/2021/11/26/01/18/8dffb59d-8aa9-d29f-fbdf-3359531a1667/9ee812a7c38db446df1c19e55da2a34d.jpg)
+
+---
+
 `@miles 11/26/2021 12:17 AM (UTC)`
 
 11月25日：纽约自由号之船等待着战友们的到来…… <br/><br/>
@@ -289,13 +296,6 @@ Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Clip 
 
 Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Clip of the First Anniversary of the Establishment of the Rule of Law Foundation on November 20, 2019 +<br/>Foundation of the New Federal State of China (NFSC) + The Whistleblower Movement Exposes the Truth about the CCP Virus<br/><br/>中共体制下“被消失”的高官和商人 + 2019年11月20日【王健之死新闻发布会和法治基金成立】一周年纪念日直播片段 + 新中国联邦成立 + 爆料革命预警中共病毒时间线
 ![img](https://media.gettr.com/group17/origin/2021/11/21/13/35/6befacb4-3bad-0ddd-bae6-762ed739deeb/out.jpg)
-
----
-
-`@miles 11/21/2021 1:09 PM (UTC)`
-
-Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Touching Moments of the Press Conference for the Establishment of the Rule of Law Foundation on November 20, 2018 +<br/>Liberate Hong Kong, Revolution of Our Time<br/><br/>中共体制下“被消失”的高官和商人 + 2018年11月20日【法治基金成立】新闻发布会震撼瞬间 + 光复香港 时代革命
-![img](https://media.gettr.com/group20/origin/2021/11/21/13/09/131bd791-6ac4-f83f-2460-ec31a75fd6fd/out.jpg)
 
 ---
 
