@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/26/2021 12:05 AM (UTC)`
+
+11月25号：感恩节的快乐……
+![img](https://media.gettr.com/group33/getter/2021/11/26/00/05/e1e6b743-2424-5028-81e0-2cac35f4d4da/out.jpg)
+
+---
+
 `@miles 11/25/2021 10:13 PM (UTC)`
 
 11/25/2021 Miles Guo’s GETTR: Changpeng Zhao of Binance has been fully colluding with the Chinese Communist Party to rob your money and take you out; if you cannot get your money out of Communist China, that money doesn’t belong to you, and it will drag you into disaster instead<br/><br/>11/25/2021 文贵盖特：币安赵长鹏已和中共全面配合图财害命，不离开中共国的钱不是你的钱，反而会要了你的命<br/>
@@ -289,13 +296,6 @@ Top Officials and Businessmen Who "Disappeared" Under The CCP Regime +<br/>Touch
 
 11/20/2021 [3rd Anniversary of 1120] Mr. Miles Guo: We shall love Mr. Bannon and he is a real master who can help us NFSC and global Chinese. <br/><br/>11/20/2021【1120三周年纪念】<br/>文贵先生：我们要真心爱班农先生，他是真正的大师可以帮助到新中国联邦和全球所有的华人。
 ![img](https://media.gettr.com/group13/getter/2021/11/21/11/28/73bacd0d-2646-5494-1627-f4d5a912a519/out.jpg)
-
----
-
-`@miles 11/21/2021 6:50 AM (UTC)`
-
-11/20/2021 [3rd Anniversary of 1120] The globalists who are the partners of the CCP want to be more like the CCP.<br/><br/>11/20/2021【1120三周年纪念】 与中共沆瀣一气的全球主义者们更想成为中共
-![img](https://media.gettr.com/group26/getter/2021/11/21/06/49/1a757974-a7a3-5278-ef88-4bf21f969a2f/out.jpg)
 
 ---
 
