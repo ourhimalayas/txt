@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/27/2021 3:53 AM (UTC)`
+
+11/26/2021 Miles Guo: The smallpox virus is a biochemical weapon, which is easy to make, and the CCP dares to and will surely release it. The only question is, on what scale the CCP will drop the virus; the whole world is silent when it comes to the truth about the origins of the CCP virus and its vaccines, with the Whistleblowers’ Movement being the only one spreading the truth - We are taking down both the CCP and the whole world’s dark forces<br/><br/>11/26/2021 文贵直播：天花病毒是生化武器，易制造，共产党敢放且一定会放，只是规模多大的问题；全世界在病毒和疫苗上噤声，唯有爆料革命在传播真相 - 我们灭的是中共和全球黑暗力量!<br/>
+![img](https://media.gettr.com/group24/getter/2021/11/27/03/53/ac2fbe49-45cd-174f-f124-9c4d46bebb4a/out.jpg)
+
+---
+
 `@miles 11/27/2021 3:24 AM (UTC)`
 
 11/26/2021 Miles Guo: The CCP established an organization in the UN to oppose the anti-Winter Olympics; where are Yang Jiechi and Xu Qiliang? Whoever wants to attack Taiwan gets ill - “cuckold” Wang Hongguang contracted the virus; top secret intelligence shows that CCP troops participating in recent exercises think they can't defeat Taiwan<br/><br/>11/26/2021 文贵直播：中共在联合国成立了“反对反冬奥会的组织”；杨洁篪和许其亮去哪儿了? 谁喊打台湾谁染病 - 绿帽子王染病了；绝密情报：中共近期参加演习的部队自认为打不赢台湾<br/>
@@ -148,13 +155,6 @@ Dr. Vladimir Zev Zelenko, a Ukrainian born, Zionist, Chasidic JEW has been arres
 
 11/24/2021 Miles Guo: We must sue Binance to make sure the CCP has no access to the personal information of our fellow fighters; the CCP handed over a fellow fighter’s Binance account information to the IRS and accused him of tax evasion, which led to his arrest; the CCP can harm fellow fighters by posting their personal information on the dark web<br/><br/>11/24/2021 文贵直播：我们要起诉币安以确保中共不能掌握战友的个人信息；中共将战友在币安的账号信息给美国税务局并污蔑其偷税漏税，导致其被捕；中共把个人信息公布在暗网来害战友<br/>
 ![img](https://media.gettr.com/group19/getter/2021/11/24/23/25/64d6dc2e-28c6-3590-a1f0-e20c75394856/out.jpg)
-
----
-
-`@miles 11/24/2021 1:05 PM (UTC)`
-
-2021年11月24日 文贵大直播：北京深圳香港交易所；病毒疫苗灾难与解药；喜币喜联储GTV股票；新中国联邦灭共使命
-![img](https://media.gettr.com/group2/origin/2021/11/24/12/8763880f-9b86-9b50-0708-d3cb53a9d467/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
