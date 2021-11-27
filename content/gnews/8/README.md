@@ -2,40 +2,31 @@
 ---
 
 
-## 《时代革命》荣获金马奖最佳纪录片 给香港人的拥抱
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1700199/)
+## 有声|荷兰众院压倒性通过动议 力挺台湾参与国际刑警组织
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1700374/)
 
-**作者:****  **青衣
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-120.png)
-（图片来自：）
+配音：香草山教育部 – 蒙古鸿雁
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+第89届国际刑警组织大会11月23日至25日在土耳其举行。
 
-第58届“金马奖”颁奖典礼11月27日在台湾台北国父纪念馆举行。无法在香港上映的“反送中”题材纪录片《时代革命》荣获最佳纪录片奖。
+就在开会的第一天，11月23日，在荷兰，众议院以149票对1票，压倒性通过动议，呼吁荷兰政府与理念相近的国家，共同支持台湾参与国际刑警组织；并指出，台湾不仅是荷兰和欧盟的重要商业伙伴，也是打击国际犯罪的盟友，台湾参与该组织是合理的。
 
-据港媒《立场新闻》11月27日报道， 获得本届金马奖最佳纪录片的《时代革命》的导演周冠威没有赴台出席颁奖典礼。大会播放了周冠威两分钟的获奖感言。周在感言中感谢了台湾及“金马奖”，尤其特别感谢了所有在这部片子里接受他采访和拍摄的人。
+这是继2019年，荷兰国会通过支持台湾参与国际组织的历史性动议案后，再次力挺台湾。
 
-周冠威表示，《时代革命》这部纪录片最后的字幕（ credits ）写的是‘香港人作品’，他是希望借此表达，这部作品是属于每一个有良知、有公义、为香港流过眼泪的香港人。
+文字版原文：[荷兰众院压倒性通过动议 力挺台湾参与国际刑警组织](https://gnews.org/zh-hans/1694789/)
 
-周冠威特别提到片中一个 16 岁的中学生——一个“勇武手足”。他忆述自己和那位中学生在理工大学一起被困了好几天，之后该学生回到了他的中学。因其身份已经被很多人知道，所以他战战兢兢地走入教室。结果，每一个同学，包括老师，都给了他拥抱，整个教室里哭声一片……
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
-周说，他很想将这个画面放在《时代革命》这部片子里，然而却无法做到。不过，他希望《时代革命》这部影片就像是这样的一份拥抱。
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-周冠威还提到，他在制作这部片子的过程中哭过很多次。他说：“我就像是靠这部电影去自我安慰，去宣泄我的愤怒和仇恨，去面对我的恐惧和创伤”。
-
-周最后表示，仍然留在香港的、以及很多流亡海外的、又或是现在在监狱里的香港人，纵使尚未有机会看到这部影片，但是他祈求天父，单单是这套影片的存在，都可以给他们一份安慰、一份拥抱……
-
-《时代革命》这部影片在金马影展首映时，当片尾《愿荣光归香港》这首歌响起时，现场观众全体起立，高呼“光复香港、时代革命”的口号，那一场面让所有人为之动容。
-
-由于香港最新电影检查修例的限制，这部影片已放弃申请在港公映。该片的简介写道：“不是时代选中了我们，是我们选择改变时代”。
-
-新闻链接：
-
-
-
-> 【金馬獎】《時代革命》奪最佳紀錄片　周冠威：作品屬每個有良知公義、為香港流過淚的港人[https://t.co/baArARu3ec](https://t.co/baArARu3ec)
-> — Stand News 立場新聞 (@StandNewsHK) [November 27, 2021](https://twitter.com/StandNewsHK/status/1464565133850472449?ref_src=twsrc%5Etfw)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

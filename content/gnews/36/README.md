@@ -2,41 +2,37 @@
 ---
 
 
-## 山西惊见“煤票”再现 百姓需做挨冻准备
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1699748/)
+## 澳人权委员会专员对政府强制推行疫苗接种发出警告
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1699779/)
 
-**作者:****  **青衣
+**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Untitled555555.png)图片来源：Corporate Cultural Diversity
+**整理报道：**月映万川
+**编辑：**翼族
 
+作为颇受争议的人权委员会新任领导洛林·芬利，她在周三首次打破沉默，并向制定新冠疫苗规则的澳大利亚立法者们传递了一个震惊的信息。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-119.png)
-（图片来自网络）
+在与6PR电台的访谈中，新任专员向政府警告称，当政府在全国推出更为广泛的疫苗强制令时，一定要“更加小心”。
 
-“煤票”，当代年轻人或许都不曾见过，它是中共计划经济时期众多被用于定量购物的票证之一。如今，“煤票”在时隔几十年后，竟然又再次出现在中共国。
+“一方面，政府绝对可以限制个人权利来保护公共卫生安全，但是，这些都是要权衡更多的方面，不能歧视并且要适度，”芬利女士说，“这真的是一条精密的界限，并且，一直保持平衡也很重要。”
 
-据《希望之声》11月27日援引中共国多家媒体消息报道称，由于煤炭供应紧张，中共国山西省朔州市近日出现了煤炭凭票供应的现象。有分析人士指出，这是百姓要挨冻的信号。
+芬利女士强调，虽然在Covid-19大流行之前，澳大利亚就有针对性的疫苗任务，但对全体人口进行疫苗接种一直是未被提及的。
 
-中共国官媒《中国青年报》11月24日公布了一张“煤票”照片。这张“煤票”正面中央位置写有“民用煤票”、“贰吨”等字样，下方则写着“朔州市平鲁区能源局”，注明的有效期是今年7月到明年6月。此外，煤票上还印有“遗失不补、过期作废”，并盖有“平鲁区民用煤票”字样的红色公章。
+她说，“强制令对于我们不是一个新概念。但是，需要确保强制令以风险为考量，而不是简单一刀切的行政命令，这是非常重要的。”
 
-票证，是中共闭关锁国、实行计划经济时期的产物。由于计划经济下生产力落后，商品供应不足，政府便向百姓发放票证，以此作为限制供应和限制消费的一种调控手段。
+“你需要平衡个人自主决定的权力，与广泛的公共卫生权力之间的冲突。”
 
-当年中共发给百姓的票证可谓五花八门：粮票、煤票、布票、肉票、油票、豆腐票、糖票等等，数不胜数。更加令人感到荒唐的是，竟然还有粪票、月经带票……
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-41.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-21.png)
-谁曾想，在21世纪的今天，中共在政治和经济等方面快速开倒车，导致该国已到了再次启用票证的程度。
+芬利女士做出的这番言论，正值联邦政府与州政府在疫苗问题上紧张对立时。
 
-山西是煤炭大省，朔州更是以煤建市，山西的四个富煤区，朔州独占其二。那么为何在当地会出现限制供应的“煤票”呢？
+**原文链接：** [Controversial new human rights boss warns government about vaccine mandates](https://www.news.com.au/national/politics/controversial-new-human-rights-boss-warns-government-about-vaccine-mandates/news-story/1da23f582124ec8abf46081e43e20edf)
 
-《自由亚洲电台》11月26日致电朔州市平鲁区政府，询问相关情况。接线人员表示自己“不太清楚”，并称当地城区都是集中供暖，没有推行煤票。不过他同时也透露，目前平鲁区农村是需要使用煤票购买所谓“清洁煤”。
+*发布：翼族*
 
-山西“煤票”的再次出现，不禁让人联想起几十年前那段不堪回首的历史。有分析人士认为，当百姓手里拿着煤票时，那是要准备挨冻了！而当百姓手里拿着“粮票时”，那就是要准备挨饿了！
-
-新闻链接：
-
-
-
-> 【山西再现「煤票」 学者警告：百姓准备挨冻！】多家 [#中国媒体](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%AA%92%E4%BD%93?src=hash&amp;ref_src=twsrc%5Etfw) 报道，由于煤炭供应紧张， [#山西朔州](https://twitter.com/hashtag/%E5%B1%B1%E8%A5%BF%E6%9C%94%E5%B7%9E?src=hash&amp;ref_src=twsrc%5Etfw) 近日出现了 [#煤炭](https://twitter.com/hashtag/%E7%85%A4%E7%82%AD?src=hash&amp;ref_src=twsrc%5Etfw) [#凭票](https://twitter.com/hashtag/%E5%87%AD%E7%A5%A8?src=hash&amp;ref_src=twsrc%5Etfw) 供应的现象。有学者警告，这是百姓要挨冻的信号。[https://t.co/ttji6MZdlv](https://t.co/ttji6MZdlv) [pic.twitter.com/XtbC0zYprq](https://t.co/XtbC0zYprq)
-> — 希望之聲 – 中國時局 (@SoundOfHope\_SOH) [November 27, 2021](https://twitter.com/SoundOfHope_SOH/status/1464463781732536322?ref_src=twsrc%5Etfw)
-
-
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

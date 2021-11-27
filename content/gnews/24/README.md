@@ -2,38 +2,42 @@
 ---
 
 
-## 墙内要闻汇编 11月27日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699898/)
+## 福奇妄图在2022年春推行婴幼儿疫苗
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1700153/)
 
-素材：东京樱花团｜GNEWS组
-![](https://lh5.googleusercontent.com/PC97XcTXsVUb1xGzXGng3BiAZFCgi0W7D4vNtgwpEfCVeEUcp9eLyB1pM_3wmdD9UpeVE2UP7Q1STmg3GGrT7hdfllvpV9HUQaAvUmopku7Pv81-XgTBvQxACEOdVdOehIVtn4gd)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1127/20211127044940276.jpg)
-1、[**青海首富股权流拍 曾因堵车开直升机回家上热搜**](https://www.aboluowang.com/2021/1127/1676804.html)
+作者： 纽约香草山翻译部 defiance
 
-藏格控股在11月15日公告称，公司股东所持有5700万股股票在法拍平台拍卖。按当日收盘价26.20元/股计算，该部分股权相当于七折甩卖，但仍无人接盘，最后流拍。肖永明是藏格控股实际控制人，在青海格尔木当地家喻户晓。20世纪90年代，肖永明来到格尔木，靠餐饮业起家，借国企改制契机将盐湖资源纳入囊中，并逐步壮大，一度被誉为“钾肥大王”。2016年，藏格控股借壳金谷源上市，肖永明当年就以265亿元身家位列胡润百富榜第64位，问鼎青海首富。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-2、[**中国大陆女教授再被捕 校友海外吁中共放人**](https://www.aboluowang.com/2021/1127/1676800.html)
+11月24日，据美国媒体消息，安东尼-福奇近期再度提出，到2022年春季，美国所有的婴幼儿或将被纳入新冠疫苗的接种范围。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Pic7，8.002.jpeg)
+据悉，各个疫苗公司正在试图推出专门为6个月到5岁的婴幼儿接种的新冠疫苗。但有消息称，由于有太多的试验参与者在接种过实验性新冠疫苗后患病，因此福奇和疫苗公司的这个企图推进的并不顺利。
 
-原云南文理学院大学外语教学部主任、副教授刘艳，因坚持修炼法轮功再次被中共当局抓捕。日前，正在加拿大留学的刘铭园告诉新唐人，刘艳9月30号被云南昆明警方非法抓捕，11月3号，案子被送往检察院。刘艳的多名校友也在海外发声，呼吁国际社会关注刘艳，要求中共无条件放人。
+相关数据显示，60岁以下完全接种新冠疫苗的成年人的死亡率是同一人口群体中未接种疫苗的成年人的两倍。对此，专业人士分析到，新冠疫苗会逐渐破坏接种者的心脏组织，且随着时间的推移，疫苗会引发接种者患有心脏病或其他心血管疾病，更甚者，这些疾病会导致患者死亡。
 
-3、[**“清零”闭关阻碍工商 符合中共“自力更生”目标**](https://www.aboluowang.com/2021/1127/1676782.html)
+评论人士指出，新冠疫苗完全是一个骗局，它们根本没有防护作用，同时，疫苗带来的副作用会导致成倍的死亡人数，为此，任何人都不应该接种新冠疫苗。
 
-中共在新冠病毒病例方面追求“清零”，而不是像很多西方国家那样试图把病例数字管控在稳定状态下，因此，自从2020年3月以来，外国旅客一直被拒门外。一些有长期居留许可的人也被禁止返回中国，海上航运也被改道。边境限制意味驻中国的外国人请假回乡后就有可能回不来了。一些担任这些管理职务的外侨有的为了留在中国，放弃了与海外家人见面的机会，有的则彻底搬出了中国。
+参考链接：
 
-4、[**接种过疫苗者仍感染 上海取消数百航班**](https://www.aboluowang.com/2021/1127/1676535.html)
+1. [Fauci wants all little kids, babies “vaccinated” for covid by Spring 2022](https://vaccines.news/2021-11-24-fauci-wants-kids-babies-vaccinated-covid-spring.html)
+2. [Dr. Fauci says he expects babies and toddlers will have a COVID-19 vaccine by spring 2022](https://www.businessinsider.com/fauci-babies-toddlers-should-get-covid-19-vaccines-by-spring-2021-11)
 
-上海发现几名接种过疫苗的人感染了中共病毒后，周五11月26日取消了数百个航班，关闭了学校，并暂停了旅游活动。距明年2月4日北京冬奥会开幕还有几个月，北京不惜一切代价限制病毒传染的风险，并正在实施一项旨在实现”零感染”的卫生政策。这政策体现在严格限制入境，强制隔离，封闭和一旦出现少数病例就进行大规模筛查。旅行和移动也通过移动应用程序进行严格监控，这使得接触案件能够被迅速识别。
 
-5、[**悬赏涨至70万元！吉林男酷似朝鲜越狱逃犯 3天被抓5次**](https://www.aboluowang.com/2021/1127/1676741.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-吉林白城一名男子因长相酷似越狱的朝鲜逃犯朱贤健，3天内被中共警方连续抓了5次。朱贤健出逃已经一个多月，为了尽快将朱贤健抓捕，中共警方的悬赏金额已涨至70万元中共警方将悬赏金从最初的10万元一路猛涨至70万元。但一个多月过去了，朱贤健依然下落不明。
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：我不在这里
 
-6、[**拼多多第三季营收远低于预期 股价暴跌**](https://www.aboluowang.com/2021/1127/1676805.html)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
-大陆移动互联网电商拼多多11月26日发布第三季度财务业绩报告，其三季度营收、业绩远低于预期。财报发布后，拼多多美股盘前一度跌超18%。截至26日收盘，拼多多报68.46美元／每股，下跌15.86%。
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-*编辑：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

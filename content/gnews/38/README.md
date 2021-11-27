@@ -2,38 +2,39 @@
 ---
 
 
-## 班农提出动议 要求公开法庭案件中的所有文件
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1699695/)
+## 山西惊见“煤票”再现 百姓需做挨冻准备
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1699748/)
 
-**编译：Jenny Ball**
+**作者:****  **青衣
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip81.png)调查 1 月 6 日在国会大厦发生的未遂叛乱的众议院特别委员会面临着与前特朗普政府官员的艰苦战斗。 （布莱尔公会/华盛顿邮报）
 
-前川普白宫顾问斯蒂夫·班农 (Stephen K. Bannon) , 已向美国地方法院提出反对标准的发现保护令，该命令禁止任何一方公开发布文件或证据。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-119.png)
+（图片来自网络）
 
-67 岁的班农上周对藐视国会的指控表示不认罪，他的法律团队此前争辩道，如果同意检方的发现保护令，案件会更加复杂。
+“煤票”，当代年轻人或许都不曾见过，它是中共计划经济时期众多被用于定量购物的票证之一。如今，“煤票”在时隔几十年后，竟然又再次出现在中共国。
 
-律师代表班农向《华盛顿邮报》提供的一份声明说：“公众应该根据所有事实，才能对美国司法部是否致力于公正做出他们自己的独立判断。”“在今天提出的反对意见中，班农先生要求法官遵循正常程序，并允许不受限制地访问和使用文件。”
+据《希望之声》11月27日援引中共国多家媒体消息报道称，由于煤炭供应紧张，中共国山西省朔州市近日出现了煤炭凭票供应的现象。有分析人士指出，这是百姓要挨冻的信号。
 
-美国助理检察官阿曼达·沃恩（Amanda R. Vaughn）表示，将提供“少于 20 份文件”，但班农律师埃文·科克兰（Evan Corcoran）告诉记者，辩方可能需要找到更多文件和证人。
+中共国官媒《中国青年报》11月24日公布了一张“煤票”照片。这张“煤票”正面中央位置写有“民用煤票”、“贰吨”等字样，下方则写着“朔州市平鲁区能源局”，注明的有效期是今年7月到明年6月。此外，煤票上还印有“遗失不补、过期作废”，并盖有“平鲁区民用煤票”字样的红色公章。
 
-班农的法律团队称，政府没有提供任何理由不让公众看到这些文件，并补充说，在本案中，许多受拟议保护令限制的文件已经公开。
+票证，是中共闭关锁国、实行计划经济时期的产物。由于计划经济下生产力落后，商品供应不足，政府便向百姓发放票证，以此作为限制供应和限制消费的一种调控手段。
 
-“政府没有提供任何理由限制班农先生的律师使用这些文件准备辩护，”班农的声明说。
+当年中共发给百姓的票证可谓五花八门：粮票、煤票、布票、肉票、油票、豆腐票、糖票等等，数不胜数。更加令人感到荒唐的是，竟然还有粪票、月经带票……
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-41.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-21.png)
+谁曾想，在21世纪的今天，中共在政治和经济等方面快速开倒车，导致该国已到了再次启用票证的程度。
 
-班农拒绝遵守调查 1 月 6 日国会大厦袭击事件的众议院特别委员会的命令，以提供有关他在袭击前的行为的记录和证词。委员会有兴趣就 1 月 6 日之前一周内，班农在威拉德酒店的活动向他提问。
+山西是煤炭大省，朔州更是以煤建市，山西的四个富煤区，朔州独占其二。那么为何在当地会出现限制供应的“煤票”呢？
 
-**评论：所有伟人都是经历的巨大的磨难，如果班农先生没有在中共渗透和控制的美国司法走一遭，他永远不会真切地认识到中共对美国影响的灾难到了什么程度！不在痛苦中生，必将在痛苦中亡！**
+《自由亚洲电台》11月26日致电朔州市平鲁区政府，询问相关情况。接线人员表示自己“不太清楚”，并称当地城区都是集中供暖，没有推行煤票。不过他同时也透露，目前平鲁区农村是需要使用煤票购买所谓“清洁煤”。
 
-**新闻来源**：[washingtonpost.com][Stephen K. Bannon files motion to request all documents in court case be made public](https://www.washingtonpost.com/politics/stephen-k-bannons-lawyers-file-opposition-to-keeping-documents-from-being-released/2021/11/25/29889174-4e3e-11ec-b73b-a00d6e559a6e_story.html?utm_campaign=wp_post_most&amp;utm_medium=email&amp;utm_source=newsletter&amp;wpisrc=nl_most&amp;carta-url=https%3A%2F%2Fs2.washingtonpost.com%2Fcar-ln-tr%2F3561315%2F61a114979d2fdab56ba15957%2F5e2dde419bbc0f6326309bfd%2F39%2F72%2F61a114979d2fdab56ba15957)
+山西“煤票”的再次出现，不禁让人联想起几十年前那段不堪回首的历史。有分析人士认为，当百姓手里拿着煤票时，那是要准备挨冻了！而当百姓手里拿着“粮票时”，那就是要准备挨饿了！
 
-* * *
+新闻链接：
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+
+> 【山西再现「煤票」 学者警告：百姓准备挨冻！】多家 [#中国媒体](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%AA%92%E4%BD%93?src=hash&amp;ref_src=twsrc%5Etfw) 报道，由于煤炭供应紧张， [#山西朔州](https://twitter.com/hashtag/%E5%B1%B1%E8%A5%BF%E6%9C%94%E5%B7%9E?src=hash&amp;ref_src=twsrc%5Etfw) 近日出现了 [#煤炭](https://twitter.com/hashtag/%E7%85%A4%E7%82%AD?src=hash&amp;ref_src=twsrc%5Etfw) [#凭票](https://twitter.com/hashtag/%E5%87%AD%E7%A5%A8?src=hash&amp;ref_src=twsrc%5Etfw) 供应的现象。有学者警告，这是百姓要挨冻的信号。[https://t.co/ttji6MZdlv](https://t.co/ttji6MZdlv) [pic.twitter.com/XtbC0zYprq](https://t.co/XtbC0zYprq)
+> — 希望之聲 – 中國時局 (@SoundOfHope\_SOH) [November 27, 2021](https://twitter.com/SoundOfHope_SOH/status/1464463781732536322?ref_src=twsrc%5Etfw)
 
 
 
