@@ -2,28 +2,35 @@
 ---
 
 
-## 斯托尔滕贝格警告莫斯科
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1698275/)
+## 昨天的阴谋论， 今天的医学期刊头条——《新英格兰医学杂志》NEJM 解释了 COVID 疫苗如何产生导致心肌炎的刺突蛋白
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1698401/)
 
-翻译/整理： 意大利罗马达芬奇农场  Shuizhuyu
+翻译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/11/covid-vaccine-study-nejm.jpg)图片来源：网络
+来自GATEWAY PUNDIT 星期五11月26日的新闻报道：
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/genug-ist-genug-nato.jpg)
+几个星期以来，“边缘”医生一直认为，由 COVID-19 疫苗产生的刺突蛋白可能会导致今年冬季大量死亡。
 
+几周后，《新英格兰医学杂志》提出了类似的情况，COVID-19 疫苗产生的刺突蛋白可能会导致心肌炎和神经系统问题。
 
-资料来源：FAZ
+亚历克斯·贝伦森报道：
 
-北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）周五警告俄罗斯，不要对乌克兰发动袭击， 否则会有严重后果。斯托尔滕贝格强化了北约的基调。他第一次不仅谈到了“该地区大量和不同寻常的军队集中”，而且还具体说明了包括坦克、大炮、装甲部队、无人机和电子战系统等能力，以及处于战备状态的部队。尽管不知道俄罗斯的意图，但它已经袭击了乌克兰，占领了克里米亚并破坏了东方的稳定。同时还进行了网络攻击。 这些都是非常值得关注的理由。
+两位资深医学研究人员在美国顶级医学杂志上写道，针对冠状病毒刺突蛋白产生的抗体的下游效应可能导致心肌炎甚至神经系统问题。
 
-北约外长下周将在里加举行会议，讨论乌克兰边界局势。斯托尔滕贝格明确表示，虽然乌克兰不受安联援助义务的保护，但盟国可能会对莫斯科实施进一步制裁。前一天，在访问北约总部期间，波兰总统安杰伊·杜达 (Andrzej Duda) 表示支持该联盟加强其在该地区的“战略监视”。
+我们的免疫系统会由于接种疫苗或感染COVID而产生这些抗体。然而——尽管研究人员没有这么明确地说，可能是因为这样做在政治上站不住脚——接种疫苗后的刺突蛋白抗体水平比感染高得多。因此，对疫苗的下游反应可能更为严重。
 
-具体而言，杜达提到了盟国自 2014 年以来一直在波罗的海国家加强空中警务的愿望，并“加强东翼北约部队的作战准备”。这指的是驻扎在波罗的海国家和波兰的战斗群。 “我们希望北约能够考虑这一点，”杜达说。外交官随后明确表示，波兰尚未向负责机构提出任何军事支持请求。
+NEJM 周三在其《临床观察基本含义》系列中发表了这篇短文。其中一位作家是哈佛医学院的肿瘤学家和教授；另一个是癌症研究人员，他在加州大学戴维斯分校拥有自己的实验室。
 
-原文链接：[新闻来源：德国法兰克福报网络版](https://www.faz.net/aktuell/politik/ausland/aggressionen-gegen-ukraine-stoltenberg-warnt-moskau-17654819.html)
+NEJM 报告的题目是A Possible Role for Anti-idiotype Antibodies in SARS-CoV-2 Infection and Vaccination
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+点评：疫苗有害？疫苗杀人？结合诸如球员教练比以往多20倍的倒地猝死以及大量其他的各种猝死的事实， 您还不相信吗？
 
-责任编辑/发布： Shuizhuyu
+原文链接：[https://www.thegatewaypundit.com/2021/11/yesterdays-conspiracy-todays-medical-journal-headline-nejm-explains-covid-vaccines-may-produce-spike-proteins-lead-myocarditis/](https://www.thegatewaypundit.com/2021/11/yesterdays-conspiracy-todays-medical-journal-headline-nejm-explains-covid-vaccines-may-produce-spike-proteins-lead-myocarditis/)
 
+编辑/发布：LILY
+
+20211126
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

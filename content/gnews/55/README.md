@@ -2,30 +2,37 @@
 ---
 
 
-## 中共拿拜习电话会当令牌，指责美对其再增制裁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1694070/)
+## SLOVENIA危机：吹哨人称政治家合伙骗人民打疫苗
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1695021/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh5.googleusercontent.com/LwrVyYY8mzTVdyvfuGwD92WyO1o8NpwUOlmDv1hQqNQ1N1yUahSAAOMxC_ZH8d_JPBFt5msV9C4Ty20S1AARfLoiU-EKGN0lRN6ZpUqA_jm-vAnh6aqMjPsJJfHj_XioOaZecc8r)[*图片来源*](https://news-pctr.c.yimg.jp/t/news-topics/images/tpc/2021/11/25/6350fe86471c07cf2446da7464063610523cc5dc7de902554d831dc6bb6cc160.jpg)
-**中共国大量公司在美再被制裁，中共驻华盛顿大使馆发言人批评说，美国应该“与中国和解”，认为“美国违反拜习在线会谈的精神”，中共无耻地认为，美国官员违背了拜登总统对习近平友好的原则。**
+**编译：西班牙巴塞罗那喜悦农场-wenwu**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip64.png)图片来源：dailytelegraph.co.nz
+东欧国家斯洛文尼亚（**SLOVENIA**）发生了一场危机，一名吹哨人（护士）告诉公众，政客合伙其他高级公民（富人）接受的是**“3**号**”**生理盐水，而不是** mRNA **实验药物（也就是说，疫苗制药厂合伙政府和富豪屠杀人民）。
 
-据[路透社](https://jp.reuters.com/article/usa-china-entity-list-idJPKBN2I92KW)华盛顿24日消息称， 24日美国政府针对中共国禁运名单中又增加了几家中共国公司。美国认为，出于国家安全和外交政策考虑，不仅有来自中国，还包括中共国与日本、巴基斯坦和新加坡有关联的的27家公司被列入实体名单。其指控理由是，中共国公司目的是“获取或试图获取美国技术和产品用于军事目的”。
+在（已被 YouTube 删除的）[Facebook 上的一段视频中](https://www.facebook.com/stoplaznivimmedijem/videos/190515176301913/)，这名自称是在卢布尔雅那（Ljubljana）大学医学中心（负责接收和管理政客注射瓶的）女护士长已经辞职，并就此政治丑闻召开了新闻发布会。她说，她亲自见证了所有政治家和富豪的打针过程，所有收到“1号”瓶的人，都声称他们收到的是生理盐水，是安慰剂。这就解释了为什么政客们通过主流媒体拍照时，是由同一个人给他们打针。
 
-消息称，随着美国和中共国之间的关系在台湾和贸易问题上变得越来越紧张之际，[美国联邦通信委员会( FCC ) 周三要求联邦上诉法院驳回中国电信公司继续在美国提供服务的申请，此前电信监管机构上个月撤销了其运营授权](https://www.reuters.com/article/fcc-request-court-china-telecom-1124-wed-idCNKBS2IA02W)。
+在会议期间，她展示了瓶子上的代码，其中每一个都包含1、2或3位数字，然后解释这些数字的含义。
 
-中国电信美洲公司于10月26日被FCC以国家安全为由、于1月初停止在美国提供服务。[FCC表示](https://voi.id/zh/technology-zh/98450/read)，“中国电信受到中国政府的剥削、影响和控制，极有可能被迫遵守中国政府的要求，而没有经过独立司法监督的充分法律程序。”
+注：《每日电讯报》从我们在斯洛文尼亚的消息来源了解到，原始视频现在已经从Facebook上删除。
 
-对此，中共国驻华盛顿大使馆发言人批评说，“中方坚决反对。”中共驻美国大使把习拜电话峰会扯上关系说，“本着上周美中峰会在线会谈的精神，美国应该与中国和解，而不是在错误的道路上走得更远。”言外之意，似乎是在指责美国政府官员违背了你们的总统对习近平友好的旨意，拜登总统在中共国官员眼里似乎就是中共敕封的美国皇帝。
+“1号”是安慰剂，盐水；“2号”是mRNA；“3号”是一个 mRNA stick，包含 onco 基因，与导致癌症发展的腺病毒有关。她说那些接受“3号”瓶的人（美国红州）将在接受疫苗注射后的两年内，患上软组织癌症。
 
-中共官员的嘴脸像个异常丑陋的小偷，他们似乎在告诉美国，“你们不允许我偷窃，违背了我们之间的友谊”。
+补充：
 
-对此，美国商务部长莱蒙德在一份声明中表示，“加入该清单是为了防止美国技术支持中共国和俄罗斯的军事发展以及巴基斯坦的核活动和弹道导弹计划。”显而易见，中共国的湖南商务部等多家公司被列入该名单是因为“**支持解放军的军事力量现代化**”。
+来自推友（[@deNutruents](https://twitter.com/deNutrients/status/1463369583323189250?s=20)）于2021年11月23日分享：编码中带有“01”的疫苗批号是生理盐水溶液类型（附两图），这是由一名女护士长说的。
 
-2021年11月25日
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip65.png)
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip66.png)
+
+**新闻来源**：[dailytelegraph.co.nz] [CRISIS IN SLOVENIA: WHISTLEBLOWER NURSESAYS POLITICIANS RECEIVE SALINE INSTEAD OF MRNA JAB](https://dailytelegraph.co.nz/covid-19/crisis-in-slovenia-whistleblower-nurse-says-politicians-receive-saline-instead-of-mrna-jab/) | 发布时间：2021年11月24日
+
+* * *
+
+***发稿：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip132.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
