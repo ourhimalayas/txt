@@ -2,42 +2,70 @@
 ---
 
 
-## 被扣“辱华”帽子，摄影师陈漫被迫道歉
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699176/)
+## 【Michael.Tonny专栏】图表分析中共国的房地产巨大泡沫
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1699256/)
 
-整理编辑：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-53.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fmedia.dwnews.net%2Fhk01%2FSo_F50NBkCZqLFhFgV63SVC1yOs%3D%2F320*0%2Fmedia%2Fimages%2Fdw%2F20211123%2F539875749037871104063257.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.dwnews.com%2F%25E4%25B8%25AD%25E5%259B%25BD%2F60269613%2F%25E8%25A2%25AB%25E6%258C%2587%25E5%2588%25BB%25E7%2594%25BB%25E4%25B8%2591%25E9%2599%258B%25E7%259A%2584%25E4%25B8%25AD%25E5%259B%25BD%25E4%25BA%25BA%25E6%2597%25B6%25E5%25B0%259A%25E6%2591%2584%25E5%25BD%25B1%25E4%25B8%2580%25E5%25A7%2590%25E9%2599%2588%25E6%25BC%25AB%25E5%258F%2591%25E6%2596%2587%25E8%2587%25B4%25E6%25AD%2589%25E5%259B%25BE&amp;tbnid=c1gHPL9xhYdPkM&amp;vet=12ahUKEwjc9oPzxLf0AhUTUysKHfIMDrQQMygBegUIARCoAQ..i&amp;docid=LBL2iajelj_leM&amp;w=1920&amp;h=1379&amp;q=%E9%99%88%E6%BC%AB&amp;hl=zh-CN&amp;ved=2ahUKEwjc9oPzxLf0AhUTUysKHfIMDrQQMygBegUIARCoAQ)
-著名的中国时尚摄影师陈漫为她过去的作品道歉。此前网上有批评称，她的作品是“辱华”。迪奥时装公司从其在上海的一场艺术展上删除了她的一幅摄影作品。
+加拿大温哥华扬帆农场 Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/michael-3.jpg)
+本文摘自危地马弗朗西斯科马罗金大学拉经济学教授、[UFM Market Trends](https://trends.ufm.edu/)创始人Daniel Fernández于2021年10月7 日发表的文章[《The Case of Evergrande: Is There a Housing Bubble in China?》](https://trends.ufm.edu/en/article/case-evergrande-china/)，分析中共国房地产泡沫与空城。
+Daniel Fernández（中文：丹尼尔·费尔南德斯），危地马拉（República de Guatemala）米塞斯研究所（Mises Institute）研究员，弗朗西斯科马罗金大学Francisco Marroquín University经济学教授，UFM Market Trends创始人。曾获得奥地利Rey Juan Carlos大学经济学和西班牙University of Alcalá（阿尔卡拉大学）应用经济学硕士学位，西班牙Francisco Marroquín University应用经济学博士学位。
 
-陈漫表示接受对她之前的作品、包括2008年的《少先队员》的批评。这是一系列年轻模特的照片，背景是像三峡大坝这样的重大地标，或是中国首个月球探测器“嫦娥一号”从模特的裙下飞出的画面。
+Fernández教授采用多个方面的详实数据，论证中共国巨大的房地产泡沫。尽管Fernández教授采用的有些数据是2017年的，但他的分析方法仍然值得借鉴。
+第一、[中共国二线城市的空置率持续增长](https://www.datawrapper.de/_/ZJfJ7/)（在一些大城市，如北京，空置率已达到20%）。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-182.jpg)
+与其他国家相比，中共国的住房空置率较高，但在2017年低于西班牙和意大利。
+2017年世界各国房屋空置率对比（Housing Vacancy Rates by Country）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-128.jpg)
+补充：
+根据《华夏时报》2021年8月11日[《惊！中国有1.3亿套房屋空置无人住！空置税呼之欲出？》](https://finance.sina.com.cn/china/2021-08-12/doc-ikqciyzm0882420.shtml)一文，中共国现在的住房足够34亿人居住。
 
-中共喉舌《环球时报》报道了对陈漫批评，称社交媒体上的评论称她的作品是打擦边球的儿童色情和侮辱少先队员。
+2018年12月21日西南财经大学中国家庭金融调查与研究中心(CHFS) 发布的《2017中共国城镇住房空置分析》报告，中共国城镇地区住房空置率是21.4%。
 
-“我深深反思，为当时的稚拙无知而自责。我想我还是一定要正式向大家道歉，”陈漫11月23日在其个人微博上发布的道歉声明说。“我是一个土生土长的中国人，我深深地热爱着我们的祖国，”她写道。“我也深知作为一名文艺工作者，应当肩负起记录和传递中华民族文化的使命。”
+2019年的潘石屹在一场论坛上提到，全国空置房屋至少有1.3亿套。
 
-她是众多中外名人、品牌和艺术家在作品遭到官媒批判后公开道歉的一员。一些人因为拒绝道歉或其道歉被认为不充分而遭到抵制。与此同时，中共国政府正在驯服包括文化艺术界在内的各方名人，要求他们成为忠诚于共产党的“正能量”传播者。
+中国人民银行调查统计司城镇居民家庭资产负债调查课题组于2020年4月24日发表在《中国金融》2020年第9期发表的[《2019年中国城镇居民家庭资产负债情况调查》](https://finance.sina.com.cn/china/2021-08-12/doc-ikqciyzm0882420.shtml)一文中说，到2019年，中共国城镇居民住房拥有率是96%，超过30%的家庭拥有2套住房，超过10%的家庭拥有3套住房，户均拥有住房1.5套。
 
-在陈漫道歉前的一个多星期，迪奥因在上海的一个展览上发布的她的一幅摄影照而受到攻击。照片上是一名脸色暗沉、带有雀斑、眼影厚重的亚裔模特，手里拿着迪奥的手袋。批评者认为，这张照片违反了白皙皮肤的东方美人审美标准，并说这幅作品延续了西方对亚洲人面孔的刻板印象，比如咪咪眼。
+第二、房价/租金年数
+Years of Rent Needed to Pay for Housing
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-106.jpg)
+中共国房地产市场的房价/租金比高得离谱；在中共国买房出租是一个非常糟糕的商业计划，收回投资需要长达四十八年的时间。
 
-过去，至少有一位官媒的图片编辑因陈漫创造了一种既不模仿西方杂志，也不模仿日本和韩国杂志审美观而称赞过她的作品。2019年，《环球时报》曾称陈漫是中国板的美国摄影师安妮·莱博维茨(Annie Leibovitz)，称她是一颗有着独特视角的“耀眼的明星”。
+第三、购房投资回报率
 
-迪奥撤下了陈漫的这幅摄影作品，并补充说，这是一个艺术项目的一部分，而不是商业广告。在其中国社交媒体账户上的一份声明中，迪奥表示它“尊重中国人民情感”，并“严格遵守中国法律法规”。
+中共国城市的房地产投资利润几乎低于其他任何地方的城市，投资中共国房地产市场的回报远低于该国现行的抵押贷款利率，所以在中共国买房没有经济意义。
+Profitability of Housing Investments by City
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-71.jpg)
+第四、房屋购买价格与公民收入中位数
 
-此前，其他奢侈品牌也曾在中国卷入争议。2018年，杜嘉班纳（Dolce & Gabbana ）的一则广告引发了抗议“辱华”的声浪，因为广告中的亚洲模特被要求用一双筷子吃意大利面、奶油卷和披萨。这些视频随后被删除。
+如果将所有收入都用于住房，普通中共国公民需要146 年才能买房。中国的房价与人均收入的比率位居世界第二（仅次于印度）。
+Housing Price/Annual Per Capita Income
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-54.jpg)
+第五、相对于中共国居民的收入，房价过高
+Housing Price/Annual Per Capita Income
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-45.jpg)
+第六、中共国近三分之一的经济活动与砖块有关
+（2016年）中共国住房部门对其 GDP 的贡献大于 2000 年代爱尔兰和西班牙巨大的房地产泡沫中的相应贡献。
+Real Estate Sector’s Contribution to GDP
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-37.jpg)
+第七、中共国家庭投资的资产几乎完全是房地产。
+2018 年，中共国家庭财富的 76% 投资于住房（日本为 41%，美国为 27.7%）
+Household Wealth by Asset Type
+![](https://assets.gnews.org/wp-content/uploads/2021/11/8-29.jpg)
+第八、2018 年88%的新房是由已经拥有至少一套房屋的人购买。
+正如Rogoff和Yang（2021）指出的那样，尽管中国的 GDP 比美国低 25%，但今天中国房地产市场的估值是美国房地产市场估值的两倍。2008 年，只有30%的新房是由已经拥有至少一套房屋的人购买的；2018年，这个数字是88%。
+Housing Buyers in China
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-20.jpg)
+参考资料：
 
-陈漫在社交媒体上发文称，她接受对自己作品的批评，包括为某个品牌所创造的作品，但没有具体提到迪奥。这张从上海艺术展上撤下的照片拍摄风格与陈漫为英国时尚杂志《i-D》拍摄的一系列封面相似，这些封面上有12位来自不同少数民族的中国年轻女性。其中的许多女性并不符合中国人对美女的一般定义——有的眼睛小，有的脸上有雀斑。
+- [The Case of Evergrande: Is There a Housing Bubble in China?](https://trends.ufm.edu/en/article/case-evergrande-china/)
+- [CHFS：2017中国城镇住房空置分析（附下载）](http://www.199it.com/archives/856292.html)
+- [《2019年中国城镇居民家庭资产负债情况调查》](https://finance.sina.com.cn/china/2020-04-24/doc-iircuyvh9570653.shtml)
 
-中共上海市委督管下的英语网络杂志《第六声》的图片编辑丁依宁曾在2018撰写的一篇文章中称赞过陈漫的工作。丁依宁写道：“从她的作品中可以看出，陈漫更喜欢单眼皮、细长眼睛以及具有传统东亚优雅感的女模特。”
 
-陈漫当时在接受《第六声》采访时表示:“作为一名专业的视觉艺术家，我认为我应该帮助更多的人以更大的信心来识别现代中国美的面孔。”
+* * *
 
-消息来源:
+编辑/发稿：云起时
 
-[又“辱华”了：中国摄影师陈漫为当年作品道歉 迪奥撤走其参展作品](https://www.voachinese.com/a/Chinese-photographer-controversy-dior-20211125/6328641.html)
-
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,20 @@
 ---
 
 
-## 有声| 约瑟的启示（一）：顺服神的爱可以化解仇恨
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1699327/)
+## 纽约州紧急状态应对 Omicron 变体威胁
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1699454/)
 
-配音：香草山福音部 – Daxia
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11271.png)图片来自The New York Times
+11 月 26 日-纽约州州长凯西·霍赫尔（Kathy Hochul）已宣布纽约州进入紧急状态，以应对新的冠病毒变种Omicron ，该变种也有可能已经到达美国。
 
+Hochul 还解释说，这一决定与纽约州的一些感染病例有关，随着病例的增加现在已恢复到自去年 4 月以来从未有过的增长水平。
 
+该公告是在拜登政府禁止八个非洲国家进入美国之后发布的，目的是希望增加纽约医院的床位容量并解决医院人员短缺的问题。
 
-（圣经不只记录古老的历史和人物，更是启示我们与神，与人，与神造的世界如何相处。）
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/27/stato-di-emergenza-a-ny-contro-minaccia-variante-omicron\_1e93b14a-b671-467b-a94a-9bca1c235776.html](https://www.ansa.it/sito/notizie/topnews/2021/11/27/stato-di-emergenza-a-ny-contro-minaccia-variante-omicron_1e93b14a-b671-467b-a94a-9bca1c235776.html)
 
-约瑟的人生，跌宕精彩。他信靠神的所言所行对我很有启发：用爱化解和哥哥们的恩怨；平衡统治者和平民在饥荒之年的利益；对神的信靠得来长子的名分。神启示我们，神选的是属灵的长子，不是肉体的长子。
-
-约瑟带着与神同行的慈悲和因慈悲而来的神的智慧，对我们化解共产党制造的同胞间的各种仇恨、与世界和平相处、坚定与神同行的使命都非常有帮助。
-
-
-
-**文字版原文：[【信仰之声】约瑟的启示（一）：顺服神的爱可以化解仇恨](https://gnews.org/zh-hans/1695800/)**
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

@@ -2,39 +2,45 @@
 ---
 
 
-## 美国会议员团访问台湾，中共8军机扰台
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699171/)
+## 共产党通过疫苗放毒实现按需淘汰人口建立地球政府目的
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1699241/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-105.jpg)[图片来源](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD5%E8%AE%AE%E5%91%98%E8%AE%BF%E9%97%AE%E5%8F%B0%E6%B9%BE-%E4%B8%AD%E5%9B%BD%E5%A4%A7%E4%BD%BF%E9%A6%86%E8%A6%81%E6%B1%82%E5%8F%96%E6%B6%88%E8%A1%8C%E7%A8%8B/a-59941635)
-五名美国国会议员星期五上午在一次出人意料的访问中会见了台湾总统蔡英文，通过这次访问重申美国对台湾“坚如磐石”的支持。拜登政府还邀请台湾参加下个月的民主峰会。美国议员访问台湾之际，中国军方出动8架次军机侵扰台湾西南的防空识别区。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/FDW3yjAUUAsul3R_副本.jpg)
+据[2021年11月26日 文贵大直播：再谈青蒿素病毒疫苗解药；感恩节五千万人旅行后果；近日币安数字货币大变；喜币价值新中国联邦实力](https://gtv.org/video/id=61a0daac44c1fe7a6c39814d)时间点2：17：25——
 
-美国在台协会表示，美国国会众议院的两党议员于周四晚抵达台湾。访问团成员之一、密歇根州民主党籍国会众议员斯洛特金（Elissa Slotkin）星期五在推特上写道：“我们此行的消息昨天一传出，我的办公室就收到了中国大使馆的一条直白的信息，要求我取消行程。”
+**郭文贵先生：**很多人说到它放毒的目的是？共产党跟谁在勾兑？共产党以及勾兑的所有人，它的追求就两点，第一，把世界的人类人口大量减少，大量减少，然后实现一个所谓全球主义。
 
-访问团其他成员包括民主党籍众议员高野（Mark Takano）、奥尔雷德（Colin Allred）和雅各布斯（Sara Jacobs），以及共和党籍众议员梅斯（Nancy Mace）。
+啥叫全球主义呢？就是全球是一家说了算，这一家是谁呢？就是各国的政府成为它的所谓的各种县级单位、分支机构，有一个地球政府，这个地球政府就是共产党和这些邪恶势力搞的。
 
-担任众议院退伍军人事务委员会主席的高野说：“我们本周来到台湾，是为了提醒我们的伙伴和盟友，在经历了两年的艰难时期后，我们对自由和安全的印太地区的承诺和共同责任比以往任何时候都更加坚定。”
+那以后就以你的基因，它控制你的基因了，控制你的思维了，控制你的老弱病死了，没有优胜劣汰这个词了，只有一个它他以需淘汰，我需要淘汰谁就淘汰谁，是吧？它就要实现这个。
 
-高野还说，美国与台湾的关系“坚如磐石，并随着我们之间关系的加深而保持稳定”。
+然后他再也没有被威胁了。这是我认为是可怕的，很多人类上不相信这事儿。75亿人口吧，全人类不超过10亿人是受过最高等教育，脑子是清楚的，就是每75个人里边只有10个是冷静的。这75个人里边儿的60个人、65个人，包括咱们家人——你们的家人、我的家人，  都是一个存在一个所谓跟动物不一样的在社会上，有吃有喝就满足的人，被这些人理解为这就是我们的奴隶——全球主义化的必需。
 
-蔡英文在总统府欢迎美国议员和美国在台协会台北办事处处长孙晓雅（Sandra Oudkirk）。她指出美台双方在退伍军人事务、经济贸易方面的合作，同时重申台湾与美国的紧密联系。蔡英文说：“台湾会持续与美国加强合作，共同捍卫双边共享的民主自由价值，确保区域的和平稳定发展。”
+我以后不是优胜劣汰，以需淘汰。那么接下来在放毒是干嘛呢？它再放毒就很简单，就是促进你打疫苗。绝对所有的毒，它不是目的，疫苗才是目的。你们一定要记住爆料革命给这个人类带来最伟大的贡献，就是提前2020年2月8号七哥就告诉你了，疫苗才是目的，疫苗才是灾难。而且绝对这不是病毒，不是来自自然，是共产党的生化武器。
 
-蔡英文说，在退伍军人事务上台美合作非常密切。她说，从明年1月开始，台湾的国军退除役官兵辅导委员会将会派员常驻华盛顿，可以针对退伍军人的健康保险、优质医疗、就业辅导，以及长期招护等方面增加更多的交流。
+（以下暂略）
 
-这是美国国会议员今年第三次访问台湾。就在几周前，由六名共和党国会议员组成的代表团访问了台湾。代表团在访问期间会见了蔡英文、台湾国家安全会议秘书长顾立雄和外交部长吴钊燮等。
+撰稿：喜马拉雅的肉夹馍；
 
-在5位美国两党众议员星期五（11月26日）访问台湾之际，中共军方出动8架次军机侵扰台湾西南的防空识别区。台湾空军证实，侵扰台湾西南防空识别区的解放军军机包括1架“空警500”预警机、1架“运-8”反潜机、2架“轰-6”轰炸机和4架“歼-16”战机。台湾空军也依惯例派遣空中巡逻兵力应对、广播驱离，同时以防空导弹追监。
+审核：喜马拉雅的馍夹肉；
 
-消息来源:
+校对：Maarago；
 
-[美国国会跨党派议员访台会见蔡英文 强调对台支持“坚如磐石”](https://www.voachinese.com/a/us-taiwan-visit-20211126/6328781.html)
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-[美国会议员访台期间，8架解放军军机侵扰台湾防空识别区](https://www.voachinese.com/a/china-sends-8-aircraft-into-taiwan-s-adiz-during-visit-by-us-congressmen-20211126/6329341.html)
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
-#  
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

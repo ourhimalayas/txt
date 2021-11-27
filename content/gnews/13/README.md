@@ -2,44 +2,48 @@
 ---
 
 
-## 郭先生爆料赵长鹏将币安的用户资料出卖给中共
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1699316/)
+## 视频|什么叫红色资本？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1699438/)
 
-作者：东京樱花团—在远方
+## 摘自郭先生2021.11.24大直播
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-8.png)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/赵长鹏.jpeg)
-
-当地时间11月23日，郭文贵先生爆料说，币安的CEO赵长鹏，已经把币安的所有用户资料，都出卖给了中共。假如美国政府让你给它提供客户资料，它的目的只是为了收税，不会要你的命。 而赵长鹏给中共提供客户信息之后，共产党就会要客户的命。而且赵长鹏交给中共的，不仅是中国客户的信息，也包括外国人的。这将造成非常可怕的后果。目前新中国联邦已经收到信息，有战友在出境时被抓，这个战友在币安有大约200万美元的投资，但还不清楚是否跟赵长鹏出卖资料有关。 郭先生告诉战友们，任何过去投了币安的，都被赵长鹏给出卖了。新中国联邦将在世界各地起诉赵长鹏，如果有战友提供过个人信息、做过KYC的，要做好准备跟各农场联系。如果战友有被抓的，以及被抢走币安数字货币的，或造成财产损失的，将会获得巨额赔偿。
-
-参考链接：
+制作：香草山视频部
 
 
 
-> [11/23/2021 Miles Guo:Changpeng Zhao has sold out the information of both Chinese and foreign Binance users to the CCP](https://gnews.org/1689787/)
+啥叫红色资本，就是出老千，就叫红色资本
+出老千的权利就是红色资本的权利
+现在共产党的所谓股票市场，纯扯淡，就是玩老千
+他玩的是谁，就玩的老百姓，就是骗老百姓钱的地方
+像喜币，一个最简单的道理
+喜币在那搁着呢，交易所在那搁着呢，大家拿的一亿美元进去在那搁着呢
+市场认可的价格在那搁着呢，有没有机构投这，你可以看得着摸得见
+它有一个透明，它有一个受澳大利亚法律，巴哈马法律， 大英帝国、美国法律，
+全球法律监管
+共产党是谁监管的，我看看你的数据，他不让你看
+我看看你的钱，他不让你看，我投进去多了，不行
+我拿走，也不行
+你这是属啥的呀
+所以战友今天谈到共产党的资本的时候
+你要知道红色资本，它就是出老千的，它就是个赌局
 
 
 
-校对/发稿：有莫举名
+发稿：雪梨
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-7.jpg)
+![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-s2-1.png)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

@@ -2,28 +2,21 @@
 ---
 
 
-## 日本政府批准创纪录军费开支以应对中共军事威胁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699163/)
+## 在博茨瓦纳发现新冠变种病毒其感染者都完全接种了新冠疫苗
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1699239/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-127.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fs3.six-degrees.io%2Fupload%2Fmedia%2F20211126%2F480%2Fwsj-f3199106ceca273b2954d2b9d01b682c-1.jpeg&amp;imgrefurl=https%3A%2F%2F6do.news%2Farticle%2F5328032-10&amp;tbnid=yz3u9_S0z0sfNM&amp;vet=12ahUKEwj5grnjwLf0AhXRbX0KHeYaBhIQMygDegUIARCeAQ..i&amp;docid=i1NJNsXXNicwlM&amp;w=480&amp;h=240&amp;q=%E6%97%A5%E6%9C%AC%E6%94%BF%E5%BA%9C%E5%BC%80%E6%94%AF&amp;ved=2ahUKEwj5grnjwLf0AhXRbX0KHeYaBhIQMygDegUIARCeAQ#imgrc=yz3u9_S0z0sfNM&amp;imgdii=8qpsOmQUUBKrlM)
-日本计划在其已经创纪录的年度军费开支的基础上增加67.5亿美元支出，急于加强空中和海上防御，因其越来越担心中共国和朝鲜(北韩)构成的威胁。
+By：喜国公民
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Botswana.jpg)图片来自网络
+与南非毗邻的博茨瓦纳11月22日[报告了](http://www.news.cn/english/2021-11/26/c_1310333106.htm)4例新冠变种病毒的感染者。初步报告显示，所有这4人都已经完全接种了新冠疫苗，表明现有的新冠疫苗对这种变种病毒不起作用。
 
-首相岸田文雄领导的政府周五（11月26日)批准了这项支出，作为追加预算的一部分。虽然这种增加国防开支的做法很常见，但据日本防卫省称，7,740亿日圆的规模创史上最高。这笔支出需要获得国会批准。
+这个变种病毒被称为B.1.1.529。对该病毒的初步调查显示，与当地占主导地位的Delta变种病毒相比，新的变种病毒有大量的突变。博茨瓦纳卫生当局驳斥了将新变种病毒与感染者的艾滋病阳性状态联系起来的推断。
 
-防卫省在其支出提案中表示：“由于日本周边的安全环境以前所未有的速度恶化，我们的紧迫任务是加速执行各种项目。”
+同时，在[南非检测到的](http://www.21jingji.com/article/20211127/herald/8398739b66bd90bcdcda43b5a7ef761d.html)感染该变种病毒的的人数在迅速增加。
 
-注入的资金将让日本比计划提前三个月升级东海边缘岛屿上的地对空导弹发射装置、以及其他地方的爱国者PAC-3导弹电池，这是防止任何朝鲜弹头来袭的最后一道防线。
+英国已将这一变种称为“迄今为止最糟糕的变种”。英国宣布，从26日中午起，暂停南非、博茨瓦纳等6个非洲国家入境英国的航班。
 
-防卫省表示，这笔额外的开支还将使日本更迅速地获得反潜导弹、海上巡逻机和军用货运飞机。
-
-消息来源:
-
-**[日本将增加军费开支加强海空防御 以应对来自中国和朝鲜的威胁](https://cn.reuters.com/article/japan-defence-expenditures-1126-idCNKBS2IB0V5?il=0)**
-
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,53 +2,24 @@
 ---
 
 
-## 立陶宛反击中共外交惩罚
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1699172/)
+## 美国代表团本月“意外”二次访台，中共国仓促应对进行 “战备 ”演习
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1699249/)
 
-撰稿/新闻采集：日本方舟农场-Andy5
+编译：花岗岩
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-118.png)
+图片来源：网络截图
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-4.png)
+据零对冲11月26日报道，美国众议院的五名议员周四晚间抵达台湾，与台北官员进行为期两天的高级别访问。美国代表团包括众议员艾丽莎·斯洛特金（Elissa Slotkin）、马克·塔卡诺（Mark Takano）、科林·阿雷德（Colin Allred）、萨拉·雅各布（Sara Jacobs）和南希·梅斯（Nancy Mace）。他们乘坐一架美国军用C40-C运输机在台北着陆，这是自11月9日以来第二次这样的美国高级别的突击性访问。
 
+中共国对这次 “意外 ”访问的回应是，周五在台湾海峡方向进行了 “战备 ”演习，中国人民解放军东部战区司令部宣布 “组织海军和空军部队继续在台湾海峡方向进行战备警戒巡逻”
 
+中共国国防部证实，它向台湾派出了8架飞机，包括一对具有核能力的H-6轰炸机，靠近台湾控制的普拉塔斯群岛并通过台湾的防空识别区。几天前，美国派出一艘军舰通过有争议的台湾海峡，这是今年第11次，这已成为每月一次的 “航行自由 ”演习，尽管北京谴责这是破坏稳定的 “挑衅”。
 
+代表团在星期五的会议上告诉台湾总统蔡英文，美国对对台湾的承诺坚如磐石，并且随着两国之间关系的加深而一直坚定不移。声明还说：“台湾是一个民主管理的成功故事，是一个可靠的伙伴，是世界上的一股和善的力量。”
 
+尽管围绕台湾和其他问题的紧张局势仍然很高，例如华盛顿一再谴责中共国侵犯人权的行为，包括在香港和新疆的镇压，但解放军军方正在呼吁与美国军方开放 “良好关系”，以使沟通足够频繁，从而避免步入战争。
 
-11月24日，立陶宛外交部长兰茨贝尔吉斯表示，在中共因台湾问题而宣布将两国的外交关系由大使级降为代办级后，立陶宛将做出一系列反击措施。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-814.png)
-他在访问美国的行程中指出，受到经济压迫并不意味着要放弃外交政策上的独立决定。中共胁使立陶宛企业在中国的利益受损，立陶宛也借此努力减少在供应链方面对中共的依赖。
-
-立陶宛外长、副外长等官员和议员也在日前会晤前香港众志主席、前立法会议员罗冠聪，表达对香港自由和民主的支持。立陶宛议会的17名成员签署了一份请愿书，不仅为立陶宛政界人士，也为运动员提出抵制奥运会的倡议。立陶宛体育部长称，不会出席北京冬奥会。
-
-新闻链接：
-
-1. [立陶宛外长：面对中国胁迫，欧洲应加强与印太地区的关系](https://www.voachinese.com/a/lithuania-urges-europe-to-increase-indo-pacific-ties-in-face-of-chinese-coercion-20211124/6327164.html)
-
-2. [立陶宛外长在华盛顿叫苦：每隔几天就有一家立陶宛企业表示，在中国的生意停滞了](https://world.huanqiu.com/article/45jgQyppnBq)
-
-3. [将体育运动政治化 立陶宛体育部长说“不来冬奥”](https://mil.news.sina.com.cn/2021-11-26/doc-ikyakumx0374215.shtml)
-
-4.[赵立坚谈立方为反中乱港分子撑腰张目：玩火者必自焚](https://finance.sina.com.cn/tech/2021-11-26/doc-ikyakumx0429825.shtml)
-
-5.[https://m.facebook.com/NathanLawKC/photos/pcb.2705021482982501/2705019266316056/?type=3&source=49](https://m.facebook.com/NathanLawKC/photos/pcb.2705021482982501/2705019266316056/?type=3&amp;source=49)
-
-6.[立陶宛允台灣設代表處遭中國威脅 法國外長：全力支持立陶宛](https://www.cna.com.tw/news/firstnews/202111260006.aspx)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-5.jpg)
-
-总编：文徬
-
-编辑：文徬
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-4.png)
+新闻来源：[China Launches “Combat Readiness” Drill Near Taiwan As US Delegation Arrives To Island For 2nd Time This Month](https://www.zerohedge.com/geopolitical/china-launches-combat-readiness-drill-near-taiwan-us-leaders-arrive-island-2nd-time)
 
  
 

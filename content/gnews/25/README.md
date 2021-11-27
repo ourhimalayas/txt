@@ -2,44 +2,47 @@
 ---
 
 
-## 堪萨斯州通过立法反对联邦政府疫苗强制
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1699193/)
+## 澳大利亚对南非等九国关闭国境
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1699299/)
 
-撰稿：银河勇气星—骄子
+拟稿：金生水
+![](https://assets.gnews.org/wp-content/uploads/2021/11/关闭.png)
+图片来自网络
+澳媒《ABC News》近日报道，由于担心在非洲南部流行的新Omicron中共病毒变种，澳大利亚联邦政府宣布了旅行禁令和新的检疫规则。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-4.png)
+南非等九国检测出了 Omicron ，去过那些国家的非澳洲公民，即刻起不能进入澳洲。
 
+这九个国家是南非、纳米比亚、津巴布韦、博茨瓦纳、莱索托、埃斯瓦蒂尼、塞舌尔、马拉维和莫桑比克。
 
+在过去 14 天内去过这些国家的澳大利亚公民及其家属将需要进行为期两周的监督隔离。
 
+此外，任何已经从其中一个国家抵达澳大利亚的人都必须隔离 14 天。
 
+澳大利亚还暂停了所有往返受影响国家的航班。
 
-11月22日，堪萨斯州众议院和参议院通过法案，保护工人免受拜登强制接种新冠疫苗的影响。反对拜登总统的联邦疫苗授权的民主党人堪萨斯州州长劳拉凯利承诺，一旦该法案获得批准，就会签署该法案。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-815.png)
-该法案旨在迫使雇主允许广泛的疫苗豁免，包括宗教豁免，以及向因没有注射新冠疫苗而导致失业的堪萨斯州人提供失业救济金。
+卫生部长格雷格·亨特表示，目前澳大利亚没有已知的 Omicron 病例。
 
-堪萨斯州为美国最新一个通过反对拜登强制疫苗的立法的州，佛罗里达州州长罗恩·德桑蒂斯在上一周签署了一项反对联邦疫苗授权的法案州。
+但他警告说，如果情况发生变化，这些措施可能会得到加强。
 
+首席医疗官保罗·凯利说：“与这种特定变体有关的情况仍在监测中。”
 
+“我们确实知道它确实包含大量突变。它与我们一直在观察的以前的变种病毒完全不同。
 
-新闻链接：[Kansas passes bill to protect workers from Biden’s COVID shot mandate](https://www.lifesitenews.com/news/kansas-passes-bill-to-protect-workers-from-bidens-covid-mandate/)
+“但在这一点上，除了理解它可以在人与人之间传播并且特别是在南非和周边国家传播之外，我们目前没有任何明确迹象表明它更严重，或任何明确的表明其与疫苗相关的问题。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
+“说实话，我们对此知之甚少，”他补充道。
 
-总编：文徬
+数十个国家已经关闭了与首次发现该变种的南非及其邻国的边界。
 
-编辑：文徬
+一夜之间，世界卫生组织呼吁保持冷静，因为科学家表示可能需要数周时间才能完全了解该变体的突变以及现有疫苗和治疗方法是否会对其产生影响。
 
-校正/发稿：浪迹天涯
+如同电脑病毒和杀毒软件的关系，一味的追求更新杀毒软件而不是从根本上解决问题就显得舍本逐末了，永远是病毒在前，杀毒软件在后。只有解决问题的根源中共才能使世界恢复疫情之前的样子，中共不除，世界永无宁日。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+参考链接：
+[Travel bans, new quarantine rules as Australia reacts to spread of Omicron variant in South Africa and neighbouring countries – ABC News](https://www.abc.net.au/news/2021-11-27/new-quarantine-rules-omicron-covid-variant-australia/100656016)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-4.png)
-
+发稿：MG4
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

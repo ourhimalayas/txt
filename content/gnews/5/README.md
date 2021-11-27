@@ -2,77 +2,28 @@
 ---
 
 
-## 视频|加拿大护士辞职后爆料：目睹多起因疫苗导致的流产和心脏病
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1699411/)
+## 病毒超级变体成为中共持续强制疫苗的借口
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699479/)
 
-制作：香草山视频部
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-46.jpg)[图片来源：图虫](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F13708%2Fproduction%2F_118742697_gettyimages-1232835602.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fscience-57529842&amp;tbnid=ATLRiC2L67UXhM&amp;vet=1)
+11月26日，世界卫生组织（WHO）召开紧急会议，评估中共病毒变体Omicron，变体Spike（S蛋白）拥有有30多种变化，与传染性增强和逃避感染阻断抗体的能力有关。
 
+中共官媒第一财经立即抛砖引玉：“每种病毒突变体的出现，大家关注的重点便是：疫苗是否有效？诊断试剂能否准确？药物研发方向是否需要改变？”
 
+当然，打配合的世卫组织在声明中已经明确的是，通过比较评估，已证明Omicron变体在一定程度上会影响全球多项疫情防控：传染性增加或有害变化；临床疾病表现改变；公共卫生和社会措施或可用诊断、疫苗、疗法有效性降低。
 
-我离开了在魁省做了十一年的护士岗位
+第一财经随即提出疫苗解决办法，“一位流行病毒学专家表示，中共国使用范围最广的灭活疫苗，可以通过替换疫苗毒株来应对中共病毒的变体。一旦Omicron变体流行势头抬起，随时可以替换新冠疫苗毒株。”
 
-我喜爱我的工作以及那里的人
+完美的双簧，都是为了持续强制疫苗。中共病毒变体的出现，按逻辑必问，病毒和变体是什么，从何处来，会带来何种后果，才能谈到如何应对。而不是第一财经将舆论焦点人为转移至，疫苗是否有效等话题。但正是舆论的反智，表达了中共的真实意图，即替换疫苗毒株来应对中共病毒的变体。可以预见，继第三针之后，加强第四针，以变体之名，已在路上。
 
-我亲眼看到有人强行给老人打疫苗
+信息来源：
 
-违背他们的意愿，在他们呼喊“不要”的时候
+[新冠病毒“超级变体”出现？疫苗、药物和检测将有哪些影响](https://www.yicai.com/news/101242419.html)
 
-我见过“自杀症”病人被送来医院
-
-医院会在他们死后做检测
-
-他们死后会马上被检测是否得了新冠
-
-为什么？
-
-我们为什么要给他们测新冠？
-
-我见过很多人在接种疫苗后短时间内
-
-因突发心脏病奄奄一息
-
-我目睹了多起足月时的流产
-
-接种疫苗后仅仅4、5天
-
-而这发生在仅仅一个小镇小社区
-
-因为我就在一个小医院工作
-
-在每层楼我都干过
-
-长期护理、普通护理、急诊、外诊
-
-我都见过
-
-这个社区有多大？
-
-大概三千人 在魁省 庞蒂亚克地区
-
-我没什么可失去的，也没必要隐瞒什么
-
-他们想强制我打疫苗
-
-我拒绝了
-
-
-
-发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

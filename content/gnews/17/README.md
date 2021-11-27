@@ -2,69 +2,20 @@
 ---
 
 
-## 【Michael.Tonny专栏】图表分析中共国的房地产巨大泡沫
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1699256/)
+## 习近平的共同富裕大刀，挥向江泽民家族的代持富豪
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1699364/)
 
-加拿大温哥华扬帆农场 Michael.Tonny
-![](https://assets.gnews.org/wp-content/uploads/2021/11/michael-3.jpg)
-本文摘自危地马弗朗西斯科马罗金大学拉经济学教授、[UFM Market Trends](https://trends.ufm.edu/)创始人Daniel Fernández于2021年10月7 日发表的文章[《The Case of Evergrande: Is There a Housing Bubble in China?》](https://trends.ufm.edu/en/article/case-evergrande-china/)，分析中共国房地产泡沫与空城。
-Daniel Fernández（中文：丹尼尔·费尔南德斯），危地马拉（República de Guatemala）米塞斯研究所（Mises Institute）研究员，弗朗西斯科马罗金大学Francisco Marroquín University经济学教授，UFM Market Trends创始人。曾获得奥地利Rey Juan Carlos大学经济学和西班牙University of Alcalá（阿尔卡拉大学）应用经济学硕士学位，西班牙Francisco Marroquín University应用经济学博士学位。
+台湾宝岛农场 Amitofu
 
-Fernández教授采用多个方面的详实数据，论证中共国巨大的房地产泡沫。尽管Fernández教授采用的有些数据是2017年的，但他的分析方法仍然值得借鉴。
-第一、[中共国二线城市的空置率持续增长](https://www.datawrapper.de/_/ZJfJ7/)（在一些大城市，如北京，空置率已达到20%）。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-182.jpg)
-与其他国家相比，中共国的住房空置率较高，但在2017年低于西班牙和意大利。
-2017年世界各国房屋空置率对比（Housing Vacancy Rates by Country）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-128.jpg)
-补充：
-根据《华夏时报》2021年8月11日[《惊！中国有1.3亿套房屋空置无人住！空置税呼之欲出？》](https://finance.sina.com.cn/china/2021-08-12/doc-ikqciyzm0882420.shtml)一文，中共国现在的住房足够34亿人居住。
+澳门赌场太阳城集团董事周焯华「洗米华」，11月26日因涉嫌在中国境内实施开设赌场的犯罪行为，日前被温州市人民检察院依法对疑犯周焯华批准逮捕。周焯华控制先机企业集团、帝国集团环球控股、深圳旗立等多家上市公司，2019年周焯华也是中信旗下中安信邦的第二大股东，中信集团是中共太子党家族所控制。报导指称太阳城集团为赌客提供用资产换取赌博筹码、追讨赌债、协助客户进行跨境资金兑付、利用地下钱庄等非法渠道提供资金结算的服务，说白了就是长期为中共太子党贪官洗黑钱，但为何选在这个时间被抓呢?
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Boyu-Capital-400x225-1.png)
+习近平调查蚂蚁金服时，因马云和赵薇的关系，赵薇蚂蚁金服的股权由赵薇母亲魏启颖持有，魏启颖选择清退上海经颐和上海麒鸿两支隶属于云锋基金的私募，其中上海经颐2445万的份额，由云锋基金承接了，而在上海麒鸿高达1亿元的份额，转给周焯华的深圳市旗立，这就是周焯华被逮捕的原因。
 
-2018年12月21日西南财经大学中国家庭金融调查与研究中心(CHFS) 发布的《2017中共国城镇住房空置分析》报告，中共国城镇地区住房空置率是21.4%。
+**文贵先生曾爆料蚂蚁金服IPO上市前，专案组把马云从香港被骗回中国，说出所有替江家代持的经过， 再加上2021年3月底习近平对江志成的抓捕、对马明哲、史玉柱、柳传董文标等6万人进行边控，从习近平对江泽民家族的代持富豪进行资产掠夺，可以看出习江的政治内斗，说明中共政权70年，所有的经济利益都被中南坑5大家族所瓜分，只有内斗后的利益换手，大型企业也只有富豪代持，完全没有老百姓的发展机会，才会造成优秀人才的大量流失，让有能力有良知的好人在中国无法生存，让王岐山、孟建柱、傅政华这种更坏的人来统治社会，使14亿老百姓处于随时被收割的命运。**
 
-2019年的潘石屹在一场论坛上提到，全国空置房屋至少有1.3亿套。
-
-中国人民银行调查统计司城镇居民家庭资产负债调查课题组于2020年4月24日发表在《中国金融》2020年第9期发表的[《2019年中国城镇居民家庭资产负债情况调查》](https://finance.sina.com.cn/china/2021-08-12/doc-ikqciyzm0882420.shtml)一文中说，到2019年，中共国城镇居民住房拥有率是96%，超过30%的家庭拥有2套住房，超过10%的家庭拥有3套住房，户均拥有住房1.5套。
-
-第二、房价/租金年数
-Years of Rent Needed to Pay for Housing
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-106.jpg)
-中共国房地产市场的房价/租金比高得离谱；在中共国买房出租是一个非常糟糕的商业计划，收回投资需要长达四十八年的时间。
-
-第三、购房投资回报率
-
-中共国城市的房地产投资利润几乎低于其他任何地方的城市，投资中共国房地产市场的回报远低于该国现行的抵押贷款利率，所以在中共国买房没有经济意义。
-Profitability of Housing Investments by City
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-71.jpg)
-第四、房屋购买价格与公民收入中位数
-
-如果将所有收入都用于住房，普通中共国公民需要146 年才能买房。中国的房价与人均收入的比率位居世界第二（仅次于印度）。
-Housing Price/Annual Per Capita Income
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-54.jpg)
-第五、相对于中共国居民的收入，房价过高
-Housing Price/Annual Per Capita Income
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-45.jpg)
-第六、中共国近三分之一的经济活动与砖块有关
-（2016年）中共国住房部门对其 GDP 的贡献大于 2000 年代爱尔兰和西班牙巨大的房地产泡沫中的相应贡献。
-Real Estate Sector’s Contribution to GDP
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-37.jpg)
-第七、中共国家庭投资的资产几乎完全是房地产。
-2018 年，中共国家庭财富的 76% 投资于住房（日本为 41%，美国为 27.7%）
-Household Wealth by Asset Type
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-29.jpg)
-第八、2018 年88%的新房是由已经拥有至少一套房屋的人购买。
-正如Rogoff和Yang（2021）指出的那样，尽管中国的 GDP 比美国低 25%，但今天中国房地产市场的估值是美国房地产市场估值的两倍。2008 年，只有30%的新房是由已经拥有至少一套房屋的人购买的；2018年，这个数字是88%。
-Housing Buyers in China
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9-20.jpg)
-参考资料：
-
-- [The Case of Evergrande: Is There a Housing Bubble in China?](https://trends.ufm.edu/en/article/case-evergrande-china/)
-- [CHFS：2017中国城镇住房空置分析（附下载）](http://www.199it.com/archives/856292.html)
-- [《2019年中国城镇居民家庭资产负债情况调查》](https://finance.sina.com.cn/china/2020-04-24/doc-iircuyvh9570653.shtml)
-
-
-* * *
-
-编辑/发稿：云起时
+本文仅代表个人立场
+祈祷万佛万神加持文贵先生与新中国联邦战友
+审核:Athena雅典娜 发布:Amitofu
 
  
 

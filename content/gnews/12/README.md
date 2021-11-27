@@ -2,56 +2,36 @@
 ---
 
 
-## 澳洲可能已经出现了南非新变体病例
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1699326/)
+## 继上周后，澳洲人为抗议新冠疫苗强制令再次走上街头
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1699449/)
 
-拟稿：金生水
-![](https://assets.gnews.org/wp-content/uploads/2021/11/变体.png)
-图片来自网络
-澳媒《Perth now》近日报道，澳洲当局正在等待从南非返回的阳性病例的检测结果，以确定最新的中共病毒变种是否已抵达澳大利亚。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-虽然南非和澳大利亚之间没有直飞航班，但上周有 20 人从南非回来并在位于北领地达尔文市的霍华德·斯普林斯隔离区隔离。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/5369-1.jpg)图片来源：www.theguardian.com
 
-迄今为止，已有一人检测呈阳性。
 
-当局尚未排除此人是否患有 Omicron 变种，这对澳大利亚来说非常重要，边界对所有航班关闭，所有来自南非、纳米比亚、津巴布韦、博茨瓦纳、莱索托、埃斯瓦蒂尼、塞舌尔的非居民 、马拉维和莫桑比克。
+#### 编译：小红帽
 
-卫生部长格雷格亨特表示，他已与北领地同行交谈，当局正试图确定案件的具体情况，预计周六晚些时候会有更新。
+周六，大批人群挤满了墨尔本中央商务区，以反对新冠疫苗强制令。同时，澳大利亚全国各地的抗议活动也在进行中。
 
-亨特先生说，就目前而言，澳大利亚没有 Omicron 的案例。
+大批的抗议者挤满了伯克街和春街，从议会大厦开始延伸出几个街区。大部分抗议活动是由强制接种疫苗引发的。
 
-但是，还有至少100名澳洲人是最近从南非等非洲九国抵达澳洲的，而且没有隔离，包括新南威尔士州、维多利亚州和首都领地的新规范也都是如此。
+维多利亚州政府声称，没有要求所有维州人强制接种新冠疫苗，尽管人们在进入许多场所、零售商店和参加活动时被要求先接种疫苗。
 
-这些人需要接受检测，并立即隔离 14 天。
+同一时间，在悉尼和黄金海岸也发生了疫苗强制令抗议活动。抗议者聚集在昆士兰州的布罗德海滩，参加有组织的自由集会。参议员宝琳-汉森(Pauline Hanson)出席了集会并向人群发表了讲话。
 
-首席医疗官保罗·凯利表示，他已与州同行保持联系，以寻求他们的帮助，以减轻任何爆发的风险。
+周六上午，数千人还聚集在悉尼的海德公园，并在街上游行。在这些抗议活动之前，上周末在澳大利亚各大城市也举行了类似的大型集会。
 
-“我现在无法给出准确的数字，但我们正在与司法管辖区和其他方面合作，以确保情况确实如此，”他说。
+**参考新闻：**[Australia protests: Anti-vax protesters take to streets for yet another week over vaccine mandates (9news.com.au)](https://www.9news.com.au/national/melbourne-protests-protesters-pack-melbourne-cbd-streets-outside-state-parliament-over-vaccine-mandates/5656f98e-a048-460a-8a52-aa815f4db7b4)
 
-亨特先生表示，对来自南部非洲的非居民关闭澳大利亚边境，并隔离最近抵达的任何人，是“早期的、谨慎的”行动。
+***发布：小红帽***
 
-周五被世界卫生组织称为“关注变种”的 Omicron 变体具有许多突变，可能使其比Delta变种更具传染性。
-
-澳洲当局正在竞相了解该变种，并正在考虑是否会降低该变种的疫苗效力。
-
-凯利教授目前表示，全世界对这个变种的理解是，它与之前关注的变体“完全不同”。
-
-“但在这一点上，除了了解它可以在人与人之间传播并且特别是在南非和周边国家传播之外，”他说。
-
-“在这一点上，我们没有任何明确的迹象表明情况更严重，也没有任何与疫苗有关的明确迹象。
-
-“这就是我们采取这种与风险相称的预防措施的原因，并采取部长概述的措施。”
-
-“……我们将在未来几天获得更多信息。”
-
-现在正是圣诞前购物探亲访友，人流量最大的几周，如果放进来一个Omicron就可能有灾难性后果。希望澳洲可以躲过这次灾难，让善良无辜的老百姓少受一些苦难。
-
-参考链接：
-[NT authorities awaiting COVID-19 sequence to rule out positive case has Omicron variant | PerthNow](https://www.perthnow.com.au/news/nt-authorities-awaiting-covid-19-sequence-to-rule-out-positive-case-has-omicron-variant-c-4724104)
-
-发稿：MG4
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
-
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
