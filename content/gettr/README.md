@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/27/2021 12:59 AM (UTC)`
+
+11/26/2021 Miles Guo: Changpeng Zhao handed over the Binance users’ personal information to the CCP, the US, Japan, and some countries in Europe and Middle East; many of Binance’s bank accounts were closed due to the US dollar’s long arm jurisdiction; the CCP is threatening Dubai to turn in Changpeng Zhao’s money<br/><br/>11/26/2021 文贵直播：赵长鹏将币安用户的个人信息交给了中共、美国、日本、欧洲和中东等国；币安的多个银行账号因美元长臂管辖而遭关闭；中共正在威胁迪拜交出赵长鹏的钱<br/>
+![img](https://media.gettr.com/group17/getter/2021/11/27/00/59/b9a8342b-64da-0217-f218-5449dec3eee4/out.jpg)
+
+---
+
 **:arrows_clockwise: miles 已轉發**
 
 `@drzevzelenko 11/26/2021 4:03 PM (UTC)`
@@ -149,13 +156,6 @@ Dr. Vladimir Zev Zelenko, a Ukrainian born, Zionist, Chasidic JEW has been arres
 🙏🙏🙏
 > `@globalhimalaya 11/24/2021 2:04 AM (UTC)`<br/>On average they would see 1 stillborn death a month. 3 dulas have reported that there were 13 stillborn deaths in a 24 hour period. Dr. Mel Bruchet and Dr. Daniel Nagase rally at Lions Gate Hospital.<br/>助产士爆料加拿大的一个医院24小时内出现13名死胎，通常情况下一个月才有一例。Bruchet医生和Nagase医生在医院门前集会
 ![img](https://media.gettr.com/group33/origin/2021/11/24/02/04/9d725990-7e23-8f30-878f-dbb7684be0da/out.jpg)
-
----
-
-`@miles 11/24/2021 9:53 AM (UTC)`
-
-11月25日：【共产党的病毒．和邪恶的役苗．成功的传播了极权国家主义】<br/><br/>CCP病毒和对人类的危害是历史以来前所未有的……无数的人命将换来一个非常简单的答案．共产党用蓝金黄．BGY成功的传播极权主义……
-![img](https://media.gettr.com/group22/getter/2021/11/24/09/53/4a9d91c1-17ec-1a8b-c49e-fb6a7d1f3fd7/out.jpg)
 
 ---
 
