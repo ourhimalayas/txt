@@ -2,16 +2,12 @@
 ---
 
 
-## 新中国联邦把共产党打入塔西佗陷阱
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1698639/)
+## 南非出现强传染性中共病毒新变种，引发全球恐慌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1698692/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
-
-11月24日，郭文贵先生在GTV大直播指出，他与中共的较量，虽以一人抵一国确已分出胜负。但新中国联邦秉承唯真不破，永远兑现承诺，已发展得越来越强大。中国共产党被打入塔西佗陷阱，失去了国际社会的信任，在世界上更加臭名昭著。西方逐渐看清了善恶是非。
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1127-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 

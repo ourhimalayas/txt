@@ -2,36 +2,28 @@
 ---
 
 
-## 一本新书揭露美国公共卫生沙皇福奇就是黑暗势力
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1699038/)
+## 日本与加拿大外长一致强烈反对中共擅自改变现状
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1699086/)
 
-加拿大温哥华扬帆农场：空山新雨8298
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2021050516590180101.jpg)
-图片来源：news.cctv.com
+#### 撰稿：日本东京方舟农场  海星
 
-小罗伯特·弗朗西斯·肯尼迪 (Robert Francis Kennedy Jr.) 最近出版了一本书： “The Real Anthony Fauci: Bill Gates, Big Pharma, and the Global War on Democracy and Public Health”， 翻译：《真正的安东尼·福奇：比尔·盖茨、大型制药公司以及全球民主和公共卫生战争》
+![](https://assets.gnews.org/wp-content/uploads/2021/11/82D29B32-F770-4953-94A0-1CA643AA54F4.jpeg)（日本外长林芳正  图片来自路透社）
 
-在这本书中，罗伯特对安东尼·福奇进行了深入的分析，揭露了他统治美国 50 年的灾难性后果。
+11月26日，日本与加拿大外交部长在举行视频会议时一致表示，强烈反对中共通过武力和经济胁迫的手段擅自改变现状。
 
-小罗伯特·弗朗西斯·肯尼迪 (Robert Francis Kennedy Jr.) ：
+据《产经新闻》报道，日本外交部长林芳正11月26日上午与加拿大外长乔利举行了视频会议。会上，双方一致强烈反对中共在东海和南海试图以武力和经济胁迫的手段擅自改变现状。
 
-他是美国环境律师、作家和反疫苗倡导者。肯尼迪是美国参议员罗伯特·肯尼迪的儿子，也是约翰·肯尼迪总统的侄子。他于 1999 年帮助成立了非营利性环保组织 Waterkeeper Alliance，并担任其董事会主席。他推出了一本新书，在新书中，罗伯特揭示了福奇每年巨额支出如何让他能够决定全球科学健康研究的主题、内容和结果。
+双方外长还表示，他们将在朝鲜的绑架问题以及核武器和导弹的开发问题上进行合作。
 
-作为美国国家过敏症和传染病研究所 (NIAID) 的主任，安东尼·福奇博士每年从纳税人提供的科学研究资金中拨出 61 亿美元。
+*参考链接：[https://www.sankei.com/article/20211126-CT4WLXPX2BIDRHQCBU3DZV42WM/](https://www.sankei.com/article/20211126-CT4WLXPX2BIDRHQCBU3DZV42WM/)*
 
-这些年度支出还允许福奇对“知识和创新”领导者大军进行独裁控制，这些领导者组成了批准和授权药物和疫苗的“独立”联邦小组——包括允许紧急使用 COVID- 19种疫苗。
+* * *
 
-福奇利用他掌握的金融影响力对医院、大学、期刊以及数以千计有影响力的医生和科学家施加了非凡的影响——他有能力毁掉、提升或奖励他们的事业和机构。
+*素材采编：海星*
 
-在这些利益或威胁之下，一些医生出现在社交媒体和电视新闻节目中，在有影响力的媒体专栏发表文章，为福奇的思想和政策提供理论或实践支持，为美国制药业的实际领导者福奇辩护。
+*编辑：青衣青青*
 
-该书于 11 月 16 日发行，现在可以订购。
-
-英文书名：”The Real Anthony Fauci: Bill Gates, Big Pharma, and the Global War on Democracy and Public Health” 中文翻译《真正的安东尼·福奇：比尔·盖茨、大型制药公司以及全球民主和公共卫生战争》
-
-订购商店或网站：Barnes & Noble、IndieBound、Bookshop.org、Target、Walmart 和 Books-A-Million。
-
-编审：文敏 发布： 文敏
+*发布：miumiu*
 
  
 
