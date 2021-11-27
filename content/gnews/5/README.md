@@ -2,18 +2,12 @@
 ---
 
 
-## 一个现代社会因现代而灾难化
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1698610/)
+## 日本股市现5个月来最大跌幅，日经指数跌破29000日元
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1698684/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
-
-11月24日，郭文贵先生在GTV大直播指出：
-
-越是有钱人、宗教人士、名人、律师、会计师，越打疫苗，这样下去就是股票、房地产爆盘，银行关门，供应链断裂，世界金融、经济必然崩溃，这就是现代化的社会，因为现代而灾难化，灾难中的人道灾难化，而且不可救药。
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11._27-scaled.jpg)
+*编辑：东京樱花团/简报小组
+发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
