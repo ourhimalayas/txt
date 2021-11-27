@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/27/2021 4:05 AM (UTC)`
+
+11/26/2021 Miles Guo: Four indicators showing the CCP is bound to be over: 1) the US military deployment in the Asia-Pacific; 2) Bipartisan legislators arrived in Taiwan on a U.S. diplomatic jet; 3) the US is divesting from Communist China; 3) the US government’s the actual deeds; the New Federal State of China will protect Taiwan to keep it intact<br/><br/>11/26/2021 文贵直播: 四个指标说明中共必灭：1) 美国在亚太的军事部署；2) 两党议员乘美国外交专机抵台；3) 美国从中共国撤资；4) 美国政府的实质行动；新中国联邦会保护台湾完好无损！<br/>
+![img](https://media.gettr.com/group12/getter/2021/11/27/04/05/d3e0cd2a-c0e6-3bbf-a6ed-8600a015de0c/out.jpg)
+
+---
+
 `@miles 11/27/2021 3:53 AM (UTC)`
 
 11/26/2021 Miles Guo: The smallpox virus is a biochemical weapon, which is easy to make, and the CCP dares to and will surely release it. The only question is, on what scale the CCP will drop the virus; the whole world is silent when it comes to the truth about the origins of the CCP virus and its vaccines, with the Whistleblowers’ Movement being the only one spreading the truth - We are taking down both the CCP and the whole world’s dark forces<br/><br/>11/26/2021 文贵直播：天花病毒是生化武器，易制造，共产党敢放且一定会放，只是规模多大的问题；全世界在病毒和疫苗上噤声，唯有爆料革命在传播真相 - 我们灭的是中共和全球黑暗力量!<br/>
@@ -148,13 +155,6 @@ Dr. Vladimir Zev Zelenko, a Ukrainian born, Zionist, Chasidic JEW has been arres
 
 11/24/2021 Miles Guo: Changpeng Zhao is hiding in Dubai to collude with the CCP, and he won’t be repatriated to Communist China, with his new task being sabotaging the Himalaya Coin; people around the world who have opened accounts at Binance, come forward and take a class action against Changpeng Zhao; we will work with the US and European governments to bring him to justice<br/><br/>11/24/2021 文贵直播：赵长鹏藏身迪拜便于和中共勾兑且不会被遣返，他的新任务是打压喜币；请全世界在币安开过账号的人站出来并集体起诉赵长鹏；我们会和美欧政府合作将其绳之以法<br/>
 ![img](https://media.gettr.com/group32/getter/2021/11/24/23/59/7f41cd27-af3a-e462-eb2b-a6ef682ff446/out.jpg)
-
----
-
-`@miles 11/24/2021 11:25 PM (UTC)`
-
-11/24/2021 Miles Guo: We must sue Binance to make sure the CCP has no access to the personal information of our fellow fighters; the CCP handed over a fellow fighter’s Binance account information to the IRS and accused him of tax evasion, which led to his arrest; the CCP can harm fellow fighters by posting their personal information on the dark web<br/><br/>11/24/2021 文贵直播：我们要起诉币安以确保中共不能掌握战友的个人信息；中共将战友在币安的账号信息给美国税务局并污蔑其偷税漏税，导致其被捕；中共把个人信息公布在暗网来害战友<br/>
-![img](https://media.gettr.com/group19/getter/2021/11/24/23/25/64d6dc2e-28c6-3590-a1f0-e20c75394856/out.jpg)
 
 ---
 
