@@ -2,34 +2,38 @@
 ---
 
 
-## 世卫组织命名新变异株时竟因习近平姓氏跳过了Nu和Xi
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1700845/)
+## 英政府表示没有计划让部长参加北京冬奥会
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1700915/)
 
-#### **撰稿：日本东京方舟农场 Kevin wang**
+翻译：Lulumi
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2DC2E85C-2FA6-478D-9070-16FC54DEBAC8.jpeg)（图片来自中央社）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-5-10.jpg)北京2022年冬奥会照片。路透社
 
-11月27日，英国《每日电讯报》的一名编辑在其推特上披露，世界卫生组织（WHO）在为COVID-19（中共病毒）新变异毒株命名时，因顾及中共总书记习近平的姓氏，故未按照希腊字母顺序，而是跳过了Nu和Xi。WHO的此举引起美国共和党参议员克鲁兹（Ted Cruz）的质疑。
+英国下议院领袖雅各布·里斯-莫格(Jacob Rees-Mogg)周四证实，没有预订英国政府部长参加北京2022年冬奥会的门票。
 
-世界卫生组织27日将中共病毒新变异毒株B.1.1.529命名为Omicron。这一命名并未按照希腊字母顺序，而是跳过了Nu和Xi。
+这一声明是在回答跨党派议会间中共国问题联盟（IPAC）联合主席、议员伊恩·邓肯·史密斯爵士(Sir Iain Duncan Smith)关于英国政府是否会宣布对北京冬奥会进行外交抵制的问题时作出的。
 
-英国《每日电讯报》的一名编辑27日在其推特上称，据世卫组织的一位消息人士透露，世卫在命名新变异毒株时，刻意避开了希腊字母中的 Nu 和 Xi 。跳过Nu是为了避免与“new”一词混淆；而跳过Xi（习近平的英文姓氏）则是为了“避免对一个地区进行污名化”。
+雅各布·里斯-莫格回答说：“……运动员去不去是由英国奥委会决定的。至于政府部长们，他们是否愿意去中华人民共和国，我可以告诉这位尊敬的先生，一张票都还没有订。”
 
-这名编辑最后强调，所有流行病本质上都是政治性的！
+IPAC在一份声明中说，这一宣布是在国际上对奥运会进行外交抵制的势头越来越强，以及据报道拜登政府将宣布美国政府官员将不会参加奥运会之后作出的。
 
-美国共和党参议员克鲁兹（Ted Cruz）在回帖中质疑：“如果世卫如此害怕中国共产党，要怎么相信世卫会在他们下次试图隐瞒灾难性全球大流行病时指责他们？”
+此举正值全球关注中共国网球明星彭帅，自从她因指控被一名中共高官性虐待而失踪后，她只出现在一系列中共国国家媒体上演的公告中。
 
-截至目前，WHO尚未就新变异毒株命名为何跳过Nu和Xi一事做出解释。
+IPAC是一个由国际上约200名立法者组成的跨党派网络，已经在10多个国家领导了议会行动，呼吁对奥运会进行外交抵制，以回应中共国政府在维吾尔地区和香港的人权侵犯行为。
 
-*参考链接：[https://twitter.com/tedcruz/status/1464340689655844869?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1464340689655844869%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.cna.com.tw%2Fnews%2Ffirstnews%2F202111270020.aspx](https://twitter.com/tedcruz/status/1464340689655844869?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1464340689655844869%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.cna.com.tw%2Fnews%2Ffirstnews%2F202111270020.aspx)*
+英国的伊恩·邓肯-史密斯爵士议员说。“今天，政府部长们宣布不打算参加北京冬奥会，虽然欢迎这么做，但这还不是一个明确的公开声明。奥运会举行的同时，中共国政府在维吾尔族地区和西藏实施了大规模的人权侵犯，并几乎每天都对台湾的领空进行军事入侵。再加上他们在香港逮捕和平的民主示威者，侵犯人权的清单数不胜数。”
+
+“这就是为什么英国政府现在必须更进一步，公开确认没有部长、外交官或其他英国官员将参加运动会。我们不能给中共国的专制政权提供任何合法性。”
+
+**参考资料：**[business-standard][UK government says no plans for ministers to attend Beijing Winter Olympics](https://www.business-standard.com/article/sports/uk-government-says-no-plans-for-ministers-to-attend-beijing-winter-olympics-121112600053_1.html)
 
 * * *
 
-*素材采编：Kevin wang*
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
 
-*编辑：青衣青青*
-
-*发布：miumiu*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
 
  
 

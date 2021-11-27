@@ -2,37 +2,31 @@
 ---
 
 
-## DC每日热点1127
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1700293/)
+## 有声|荷兰众院压倒性通过动议 力挺台湾参与国际刑警组织
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1700374/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8A1E3619-C1F5-442B-B621-DABF421F696A-scaled.jpeg)
-道琼斯指数 34899.34 ▼2.53%
-纳斯达克指数 15491.66 ▼2.23%
-WTI纽约原油CFD 68.093 ▼13.14%
-布伦特原油CFD 71.719 ▼11.37%
-标普中概股50指数 3,469.53CNY▼-30.44%
-美元兑人民币 1USD=6.393 RMB
-美元兑港币 1USD=7.798HKD
-国际黄金 1792.93美元/盎司
-全球CCP病毒感染人数 261,070,875 例
+配音：香草山教育部 – 蒙古鸿雁
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+第89届国际刑警组织大会11月23日至25日在土耳其举行。
 
-1、世卫命名病毒新变种为Omicron，没有按照希腊字母表的顺序，跳过了“Nu”和“Xi”两个字母
-2、乌克兰边境俄军集结 美称会考虑所有应对选项
-3、美国负责东亚事务的首席外交官出访东南亚四国
-4、藏人到国际奥委会总部抗议，彭帅事件把抵制北京冬奥会推向新高
-5、新冠病毒新毒株令人关注 美国将对八个南部非洲国家实施旅行限制
-6、美国会议员访台期间，8架解放军军机侵扰台湾防空识别区
-7、英国内政部最新数据，由年初BNO签证计划开始申请至今，已经有接近9万人申请，76,000人已获批
-8、为套现还债，恒大集团主席许家印在港交所出售9%公司持股
-9、应对日益升高中朝威胁，日本寻求额外军费强化海空防御
-10、上海几位接种过疫苗者感染 取消数百航班
-11、美国前驻联合国大使促拜登抵制北京冬奥会:“中共比纳粹更危险”
-12、所罗门群岛骚乱减退，中共金钱控制该国政圈激发民怨
-13、负责管理女子网球赛事的国际女网协会（WTA）主席仍深切关注彭帅：在确认无审查前 不恢复电邮联系
-14、对天主教徒做姿态，法国总统马克龙再次前往罗马会见教皇
-15、一份报告指出漏洞：北京正吸引外国资本和基金经理在华市场增仓，使其成为资助中共技术发展
+就在开会的第一天，11月23日，在荷兰，众议院以149票对1票，压倒性通过动议，呼吁荷兰政府与理念相近的国家，共同支持台湾参与国际刑警组织；并指出，台湾不仅是荷兰和欧盟的重要商业伙伴，也是打击国际犯罪的盟友，台湾参与该组织是合理的。
 
+这是继2019年，荷兰国会通过支持台湾参与国际组织的历史性动议案后，再次力挺台湾。
+
+文字版原文：[荷兰众院压倒性通过动议 力挺台湾参与国际刑警组织](https://gnews.org/zh-hans/1694789/)
+
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
+
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
