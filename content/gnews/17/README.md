@@ -2,34 +2,42 @@
 ---
 
 
-## 三星将在德克萨斯州建造价值170亿美元的半导体工厂
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1698923/)
+## 迄今最强新冠变种出现，疫苗公司称可快速提供疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1699099/)
 
-**撰稿：Grace**
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-26-at-10.10.33-PM.jpeg)图片来源：Pandaily
-据Bear Witness Central 在11月25日报道，三星周三宣布，它已选择在德克萨斯州的泰勒市 (Taylor) 建立其价值170亿美元的先进芯片制造厂，预计将创造2000个直接的高科技就业机会。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/https___d1e00ek4ebabms.cloudfront.net_production_2370d5eb-2dc8-407a-849a-c83dd8fbae10.jpg)
 
-德克萨斯州州长格雷格.阿博特(Greg Abbott)在一份新闻稿中说: “新的制造厂将生产先进的逻辑芯片，为移动、5G、高性能计算（HPC）和人工智能（AI）等应用的下一代设备提供动力。”
 
-据报道，预计2022年上半年开始施工建厂，2024年投产，至少有6500个建筑相关的就业岗位。
+ 
+图片来源：www.ft.com/content
 
-该项目将是三星在美国最大的投资，也是德克萨斯州有记录以来最大的外国直接投资。
 
-除了2000个工作岗位外，该工厂还将支持成千上万的相关间接就业。德州企业基金已向三星提供了2700万美元的赠款，以支持其创造当地就业机会。
+#### 编译：小红帽
 
-作为对选择泰勒的奖励，当地政府将在十年内免除90%的房产税，并在未来十年内给予85%的折扣。由于该工厂位于联邦机会区，三星的投资有望获得进一步的减税。
+美洲最常用的几大疫苗制造商表示，他们可以迅速应对南非Nu变种带来的挑战。
 
-据报道，三星公司的声明是在德州仪器公司（Texas Instruments）宣布投资决定之后发表的，该公司计划在德州谢尔曼（Sherman）投资300亿美元建设半导体晶圆制造芯片厂，创造3000个新的就业机会。
+据悉，最近出现的新冠病毒变种被认为是迄今为止最具传染性的变种，一些人担心它可能会避开目前的新冠（COVID-19）疫苗所提供的保护。
 
-除此之外，跨国半导体合同制造商GlobalFoundries正在增加对纽约州北部的投资，而台积电则计划在三年内投资约1000亿美元以升级其全球制造能力，包括在亚利桑那州投资120亿美元。
+辉瑞生物科技（Pfizer BioNTech）公司和莫德纳（Moderna）公司负责生产美国两种最常见疫苗，他们都表示，如果有必要，可以快速更新疫苗以提供针对新变种的保护。
 
-目前，全球最大的三家芯片制造商是英特尔、三星和台湾的台积电(TSMC)。台积电居于领先地位。与三星一起，英特尔和台积电正在大力投资全球生产设施，以满足大流行之后的需求激增。
+虽然该变种尚未在美国被发现，但它已经出现在非洲和欧洲的多个国家，使美国官员保持高度警惕。
 
-分析师预测，除了先进的逻辑芯片外，三星将在新工厂生产5纳米以下的尖端芯片。这些芯片将为高通公司(Qualcomm)等客户生产，并将能够比目前在奥斯汀生产的14和28纳米的芯片在每一面积上处理更多的数据。
+CNBC报道说，莫德纳公司可以在60天内开始进行对潜在抗性变体有效的疫苗的临床试验。如果有必要，辉瑞公司可以在6周内调整其mRNA疫苗，并在需要时，在100天内发货。
 
-**新闻来源：****[SAMSUNG PICKS TEXAS CITY FOR $17 BILLION SEMICONDUCTOR FACTORY, TO CREATE 2,000+ JOBS](https://bwcentral.org/2021/11/samsung-picks-texas-city-for-17-billion-semiconductor-factory-to-create-2000-jobs/)**
+美国第三种疫苗的制造商强生公司也表示，它正在测试其疫苗对这种新变种的有效性。
+
+**参考新闻：**[Pfizer, Moderna say they can quickly update vaccines ‘if they need to’ (msn.com)](https://www.msn.com/en-au/health/medical/pfizer-moderna-say-they-can-quickly-update-vaccines-if-they-need-to/ar-AARaKA4?ocid=msedgntp)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

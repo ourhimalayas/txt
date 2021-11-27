@@ -2,26 +2,25 @@
 ---
 
 
-## 中国的孩子何时才能不吃垃圾腐烂食品
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1698534/)
+## 疫苗接种造成 2620 例婴儿死亡
+` 英国伦敦喜庄园德语 Himalaya London Club UK-DE` [轉載自GNews](https://gnews.org/zh-hans/1698763/)
 
-撰稿：东京樱花团/小小星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-52.jpg)[图片来源](https://www.esp-4u.com/shenghuo/323388.html)
-近日，河南一中学三十多名学生用餐后出现呕吐、拉肚子现象。学生表示菜有异味。送餐的是北京志宏餐饮公司。
+新闻概括： 瞌睡猫
 
-据河南电视台《都市报道》微博11月26日消息，23日，新乡封丘县赵岗镇戚城中学30多名学生吃过学校的营养午餐后，出现呕吐、拉肚子现象，学生们纷纷反映，当天吃的饭菜里“豆腐有点馊，烩菜有点腥”。
+英国伦敦喜庄园
 
-另据九派新闻26日报导，事件发生后，学生家长们堵住学校门口，不让餐车进学校，有家长喊著“把门堵著，不让送！”，还有家长说“学生全都撤走，不让在这上（学）！”
+2021-11-26
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Unbenannt-1.png)
+据奥地利媒体Wochenblick报道，截至 11 月 12 日，美国疫苗不良事件报告系统VAERS已经收到了CCP病毒 疫苗接种后所造成的 2,620 婴儿死亡报道。这个数字超过了30年来所有疫苗造成的婴儿死亡的总和。记录同时显示，美国瑞辉和德国BioNTech 联合生产的 mRNA疫苗 造成了最多的死亡，共 2,015 例，其次是 Moderna，造成了 689 例婴儿死亡。其次强生公司和英国AZ疫苗与 100 次流产有关。 除死亡之外，VAERS还记录了孕妇接种疫苗后造成婴儿畸形和其他可怕事故的报告。这些惨不忍睹的案例令人发指，政府和主流媒体在哪里，为何对疫苗灾难视而不见？
 
-其实这种现象遍布全国，所有的学校午餐都是教育部门的关系户承包。为赚取暴利，他们无视孩子的生命，吃腐烂变质食品到处都见。只有灭掉ccp我们才能有真正的法治，我们的孩子才能真正健康的成长！
+德语新闻链接：
 
-信息来源：
 
-[河南三十多名学生中毒送餐公司饭菜变质](https://www.epochtimes.com/gb/21/11/26/n13399428.htm)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+> [2.620 tote Babys nach Impfung und Berichte schrecklicher Nebenwirkungen](https://www.wochenblick.at/2-620-tote-babys-nach-impfung-und-berichte-schrecklicher-nebenwirkungen/)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/09/战鹰团新logo2021-07-01.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

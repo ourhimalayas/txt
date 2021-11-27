@@ -2,43 +2,42 @@
 ---
 
 
-## 迄今最强新冠变种出现，疫苗公司称可快速提供疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1699099/)
+## 被扣“辱华”帽子，摄影师陈漫被迫道歉
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699176/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-53.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fmedia.dwnews.net%2Fhk01%2FSo_F50NBkCZqLFhFgV63SVC1yOs%3D%2F320*0%2Fmedia%2Fimages%2Fdw%2F20211123%2F539875749037871104063257.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.dwnews.com%2F%25E4%25B8%25AD%25E5%259B%25BD%2F60269613%2F%25E8%25A2%25AB%25E6%258C%2587%25E5%2588%25BB%25E7%2594%25BB%25E4%25B8%2591%25E9%2599%258B%25E7%259A%2584%25E4%25B8%25AD%25E5%259B%25BD%25E4%25BA%25BA%25E6%2597%25B6%25E5%25B0%259A%25E6%2591%2584%25E5%25BD%25B1%25E4%25B8%2580%25E5%25A7%2590%25E9%2599%2588%25E6%25BC%25AB%25E5%258F%2591%25E6%2596%2587%25E8%2587%25B4%25E6%25AD%2589%25E5%259B%25BE&amp;tbnid=c1gHPL9xhYdPkM&amp;vet=12ahUKEwjc9oPzxLf0AhUTUysKHfIMDrQQMygBegUIARCoAQ..i&amp;docid=LBL2iajelj_leM&amp;w=1920&amp;h=1379&amp;q=%E9%99%88%E6%BC%AB&amp;hl=zh-CN&amp;ved=2ahUKEwjc9oPzxLf0AhUTUysKHfIMDrQQMygBegUIARCoAQ)
+著名的中国时尚摄影师陈漫为她过去的作品道歉。此前网上有批评称，她的作品是“辱华”。迪奥时装公司从其在上海的一场艺术展上删除了她的一幅摄影作品。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/https___d1e00ek4ebabms.cloudfront.net_production_2370d5eb-2dc8-407a-849a-c83dd8fbae10.jpg)
+陈漫表示接受对她之前的作品、包括2008年的《少先队员》的批评。这是一系列年轻模特的照片，背景是像三峡大坝这样的重大地标，或是中国首个月球探测器“嫦娥一号”从模特的裙下飞出的画面。
 
+中共喉舌《环球时报》报道了对陈漫批评，称社交媒体上的评论称她的作品是打擦边球的儿童色情和侮辱少先队员。
 
- 
-图片来源：www.ft.com/content
+“我深深反思，为当时的稚拙无知而自责。我想我还是一定要正式向大家道歉，”陈漫11月23日在其个人微博上发布的道歉声明说。“我是一个土生土长的中国人，我深深地热爱着我们的祖国，”她写道。“我也深知作为一名文艺工作者，应当肩负起记录和传递中华民族文化的使命。”
 
+她是众多中外名人、品牌和艺术家在作品遭到官媒批判后公开道歉的一员。一些人因为拒绝道歉或其道歉被认为不充分而遭到抵制。与此同时，中共国政府正在驯服包括文化艺术界在内的各方名人，要求他们成为忠诚于共产党的“正能量”传播者。
 
-#### 编译：小红帽
+在陈漫道歉前的一个多星期，迪奥因在上海的一个展览上发布的她的一幅摄影照而受到攻击。照片上是一名脸色暗沉、带有雀斑、眼影厚重的亚裔模特，手里拿着迪奥的手袋。批评者认为，这张照片违反了白皙皮肤的东方美人审美标准，并说这幅作品延续了西方对亚洲人面孔的刻板印象，比如咪咪眼。
 
-美洲最常用的几大疫苗制造商表示，他们可以迅速应对南非Nu变种带来的挑战。
+过去，至少有一位官媒的图片编辑因陈漫创造了一种既不模仿西方杂志，也不模仿日本和韩国杂志审美观而称赞过她的作品。2019年，《环球时报》曾称陈漫是中国板的美国摄影师安妮·莱博维茨(Annie Leibovitz)，称她是一颗有着独特视角的“耀眼的明星”。
 
-据悉，最近出现的新冠病毒变种被认为是迄今为止最具传染性的变种，一些人担心它可能会避开目前的新冠（COVID-19）疫苗所提供的保护。
+迪奥撤下了陈漫的这幅摄影作品，并补充说，这是一个艺术项目的一部分，而不是商业广告。在其中国社交媒体账户上的一份声明中，迪奥表示它“尊重中国人民情感”，并“严格遵守中国法律法规”。
 
-辉瑞生物科技（Pfizer BioNTech）公司和莫德纳（Moderna）公司负责生产美国两种最常见疫苗，他们都表示，如果有必要，可以快速更新疫苗以提供针对新变种的保护。
+此前，其他奢侈品牌也曾在中国卷入争议。2018年，杜嘉班纳（Dolce & Gabbana ）的一则广告引发了抗议“辱华”的声浪，因为广告中的亚洲模特被要求用一双筷子吃意大利面、奶油卷和披萨。这些视频随后被删除。
 
-虽然该变种尚未在美国被发现，但它已经出现在非洲和欧洲的多个国家，使美国官员保持高度警惕。
+陈漫在社交媒体上发文称，她接受对自己作品的批评，包括为某个品牌所创造的作品，但没有具体提到迪奥。这张从上海艺术展上撤下的照片拍摄风格与陈漫为英国时尚杂志《i-D》拍摄的一系列封面相似，这些封面上有12位来自不同少数民族的中国年轻女性。其中的许多女性并不符合中国人对美女的一般定义——有的眼睛小，有的脸上有雀斑。
 
-CNBC报道说，莫德纳公司可以在60天内开始进行对潜在抗性变体有效的疫苗的临床试验。如果有必要，辉瑞公司可以在6周内调整其mRNA疫苗，并在需要时，在100天内发货。
+中共上海市委督管下的英语网络杂志《第六声》的图片编辑丁依宁曾在2018撰写的一篇文章中称赞过陈漫的工作。丁依宁写道：“从她的作品中可以看出，陈漫更喜欢单眼皮、细长眼睛以及具有传统东亚优雅感的女模特。”
 
-美国第三种疫苗的制造商强生公司也表示，它正在测试其疫苗对这种新变种的有效性。
+陈漫当时在接受《第六声》采访时表示:“作为一名专业的视觉艺术家，我认为我应该帮助更多的人以更大的信心来识别现代中国美的面孔。”
 
-**参考新闻：**[Pfizer, Moderna say they can quickly update vaccines ‘if they need to’ (msn.com)](https://www.msn.com/en-au/health/medical/pfizer-moderna-say-they-can-quickly-update-vaccines-if-they-need-to/ar-AARaKA4?ocid=msedgntp)
+消息来源:
 
-***发布：小红帽***
+[又“辱华”了：中国摄影师陈漫为当年作品道歉 迪奥撤走其参展作品](https://www.voachinese.com/a/Chinese-photographer-controversy-dior-20211125/6328641.html)
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

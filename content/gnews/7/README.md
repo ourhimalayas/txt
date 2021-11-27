@@ -2,53 +2,28 @@
 ---
 
 
-## 郭文贵先生再谈即将爆发的疫苗灾难
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1699070/)
+## 日本政府批准创纪录军费开支以应对中共军事威胁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699163/)
 
-作者：东京樱花团—在远方
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-127.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fs3.six-degrees.io%2Fupload%2Fmedia%2F20211126%2F480%2Fwsj-f3199106ceca273b2954d2b9d01b682c-1.jpeg&amp;imgrefurl=https%3A%2F%2F6do.news%2Farticle%2F5328032-10&amp;tbnid=yz3u9_S0z0sfNM&amp;vet=12ahUKEwj5grnjwLf0AhXRbX0KHeYaBhIQMygDegUIARCeAQ..i&amp;docid=i1NJNsXXNicwlM&amp;w=480&amp;h=240&amp;q=%E6%97%A5%E6%9C%AC%E6%94%BF%E5%BA%9C%E5%BC%80%E6%94%AF&amp;ved=2ahUKEwj5grnjwLf0AhXRbX0KHeYaBhIQMygDegUIARCeAQ#imgrc=yz3u9_S0z0sfNM&amp;imgdii=8qpsOmQUUBKrlM)
+日本计划在其已经创纪录的年度军费开支的基础上增加67.5亿美元支出，急于加强空中和海上防御，因其越来越担心中共国和朝鲜(北韩)构成的威胁。
 
+首相岸田文雄领导的政府周五（11月26日)批准了这项支出，作为追加预算的一部分。虽然这种增加国防开支的做法很常见，但据日本防卫省称，7,740亿日圆的规模创史上最高。这笔支出需要获得国会批准。
 
+防卫省在其支出提案中表示：“由于日本周边的安全环境以前所未有的速度恶化，我们的紧迫任务是加速执行各种项目。”
 
+注入的资金将让日本比计划提前三个月升级东海边缘岛屿上的地对空导弹发射装置、以及其他地方的爱国者PAC-3导弹电池，这是防止任何朝鲜弹头来袭的最后一道防线。
 
+防卫省表示，这笔额外的开支还将使日本更迅速地获得反潜导弹、海上巡逻机和军用货运飞机。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1-16.jpg)
+消息来源:
 
-在1124的大直播中，郭文贵先生透露，现在墙内到处天然气管道爆炸、楼宇爆炸、交通事故，已经有上百起。国内医院病人爆满，儿童死亡率、婴儿死胎率、畸胎率极高，心包炎、心肌炎高发，这些悲惨的事实都有一个核心问题，那就是每一个不幸的人背后，都链接着一个家庭，每个人能都链接着一份工作。最惨是的郑州街头两个孩子，目睹母亲突然倒地而手足无措。如果他们的母亲不幸去世，将会导致整个家庭撕裂，这两个孩子以后该如何成长？跟他们的爷爷奶奶又是什么关系？
+**[日本将增加军费开支加强海空防御 以应对来自中国和朝鲜的威胁](https://cn.reuters.com/article/japan-defence-expenditures-1126-idCNKBS2IB0V5?il=0)**
 
- 国内还有很多人突然得了中风，但能有多少钱去治病？家里有几个人能照顾病人？而一个人的得病则会拖垮两到三个家庭。郭先生在非洲直布罗陀的一个朋友，一家人死了四个，两个因为注射了疫苗，其它两个因为绝望而跳水自杀。
-
- 下一步一定是股票崩盘，房地产金融报爆盘。今天的人类30%到60%生活在城市里，食品、用电、金融，一切都是一体化。而更严重的是，越是有钱人、宗教人士、律师等，却都注射了疫苗，人类社会因为现代化而不能话与灾难化，并且不可救药。疫苗灾难绝对是共产党和西方社会的资本大鳄，以及黑暗势力人为的设计，否则绝不可能看到全人类的社交媒体一致让人噤声。但疫苗灾难一定会被停止。
-
- 现在凡是决定让人们打疫苗的，都不是好东西，都是私下跟共产党勾兑的，就像比尔盖茨和特鲁多，郭先生见过太多这样的坏人。前几天国防官员告诉他，说千万别用Wi-Fi，别用网络，所有你打印出来的都可能在暗网出现，只要你用过就不安全。
-
- 当年郭先生在国内将刘志华送进监狱，后来负责保护郭先生的安全部的人告诉他，有人出600万让其用枪杀害郭先生，所以郭先生很清楚的知道邪恶力量在背后能干什么。现在面对坚持要打疫苗的人，都是被贪嗔痴慢疑的执着心迷住了双眼，如果再坚持劝他们就是自己的无知。战友们一定要用心活着，没有了生命一切都无从谈起。新中国联邦救人无数，最关键的是，相信爆料革命的战友们没有注射疫苗就是人生最大的赢家，所以要特别珍惜和感恩新中国联邦，全世界只有新中国联邦最牛。
-
-新闻链接：[https://gnews.org/zh-hans/1677917/](https://gnews.org/zh-hans/1677917/)
-
-
-总编：Irene木木/文特
-校对/发稿：Daxia
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-5.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
-
-
-
-
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

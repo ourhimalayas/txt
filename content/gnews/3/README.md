@@ -2,40 +2,22 @@
 ---
 
 
-## 赵长鹏卖资料风波已现，币安大客户遭逮捕
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1699100/)
+## 美议员访台，中共战狼惯例式狂吠
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699180/)
 
-撰稿：新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-11.png)（图片源自本文链接）
+11月27日朝日新闻驻台湾记者石田耕一郎发表的消息：11月26日，美国众议院的五位两党议员访问台湾，并与总统蔡英文会面。蔡英文感谢美国国会对台湾的支持，并表示希望两国加强军事和经济联系。这是本月美国参议员对台湾的第二次访问。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-4.png)
+代表团由包括日裔民主党人马克-高野议员在内的四名民主党，和一名共和党人组成。代表团在访问台湾之前刚刚访问了日本和韩国。高野先生说，在中共病毒疫情得到控制后，美国官员对台湾的访问将恢复正常。他说：现在台湾和美国之间的关系是十年来最好的。
 
+对此，中共外交部副新闻秘书赵立坚在11月26日的例行记者会上说：中国已经向美国提出了严厉的要求，14亿人民对支持台独立势力的举动感到不安。但是，这只是中国统一进程中的一个小小的噪音而已。这种不知量力的行动，注定会失败。
 
+信息来源：[米の議員団が訪台、蔡総統と会談　中国外務省「かすかな雑音」（朝日新聞デジタル） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/9a3015529af399c0b258f48fe4b4c19afbe4b3d5)
 
-
-
-自23日郭文贵先生爆出币安CEO赵长鹏把所有币安客户的隐私资料都主动提供给了中共的消息后，赵长鹏出卖资料风波已现。11月25日盖特郭先生再次透露，投资了4千多万美元币安币的某青岛地产商，在看了GTV关于币安不安全的直播后就开始抛币，在成功抛掉几百万美元的币后发现，币安平台并不允许他提现。即便如此，这位地产商还是还半信半疑地说，“如果币安客户的信息都被卖掉的话，中共早就找到我了，我可是币安很大的客户”。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-811.png)
-结果就在昨天，他在自己的家中被逮捕。所以任何投资币安的人，一定要尽快对赵长鹏进行起诉，把这个谋财害命躲在迪拜的赵长鹏绳之以法。
-
-新闻链接: [郭文贵先生2021年11月25日盖特](https://gettr.com/post/phtb6m59e0)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
-
-总编:文特
-
-编辑: Lakeman(文仁)
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
