@@ -2,34 +2,40 @@
 ---
 
 
-## 中共教育局赚黑钱，致30多名学生食物中毒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1698420/)
+## 南非出现新变种病毒，澳洲政府力推加强针
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1698556/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12-13.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fpic3.zhimg.com%2Fv2-4986c694e1fe1904fb09ec9514ad207a_b.jpg&amp;imgrefurl=https%3A%2F%2Fzhuanlan.zhihu.com%2Fp%2F51447582&amp;tbnid=4GPbQQZSM4kP-M&amp;vet=12ahUKEwj0mI3_2LX0AhXVXn0KHa6-BzoQMygHegQIARAd..i&amp;docid=0jn3TgI2CzItcM&amp;w=573&amp;h=298&amp;q=%E9%A3%9F%E5%A0%82%E6%8B%9B%E6%A0%87%E8%B4%AA%E8%85%90&amp;ved=2ahUKEwj0mI3_2LX0AhXVXn0KHa6-BzoQMygHegQIARAd)
-中共国内一所中学学生吃饭后集体上吐下泻紧急送院，校长受访时掩脸痛哭，称没办法换掉送餐公司，因为是教育局所招标的。
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-中共国河南新乡封丘县赵岗镇戚城中学星期二（23日）出现集体食物中毒事件，全校学生吃过营养午餐后，30多名学生呕吐腹泻，被送往医院接受救治。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Untitled4567.png)图片来源：BBC
 
-学生们纷纷反映，当天吃的饭菜里“豆腐有点馊，烩菜有点腥”。家长隔天就来到学校围堵送餐车，不让对方进入校园，希望撤换送餐公司。
 
-戚城中学王姓校长受访时，先是发出长长的一声叹息，接着掩面痛哭，哽咽表示当地教育局11月15日通过招标，将学校的送餐公司换成了现在的这家，没想到才一周时间就出现学生上吐下泻的情况。
+#### 整理报道：月映万川
+编辑：文泓
 
-“我的学生都在医院了，我不是个好校长！”
+专家们警告，最新的变种病毒可能随时登陆澳大利亚，而澳大利亚联邦卫生部长坚称已经为抵御这种变种病毒做好了准备。
+南非的科学家已在本国发现了这一新型变种病毒。这一病毒被命名为Nu毒株，是因为该病毒的变种数量是德尔塔病毒的一倍。海外卫生专家们警告，Nu变种病毒更可能对疫苗免疫防御出现逃避现象。
 
-“不行不让他（送餐公司）继续送，因为这是教育局招标的。”
+目前，尽管南非发现新的变种病毒，但是澳大利亚与南非之间航班安排没有改变。相反，为了控制传播风险，英国与以色列已经开始执行相关旅行禁令。
+卫生部长格瑞特·亨特强调，新变种的出现并不意味马上调整国家重开计划，但是，如果新的医疗建议发生变化的话，我们的应对措施也会随之改变。
 
-事情曝光后，封丘县委县政府25日发布消息称，目前已成立联合调查组，连夜开展调查工作。同时，负责为戚城中学配餐的北京志宏餐饮公司也被叫停供餐，待情况查明后再做处理。
+同时，卫生部长也对澳大利亚的高疫苗接种率在“抵制新病毒”方面表现出了强烈信心。
+目前，全国16岁以上人口已经有86%完全接种了疫苗，而92.1%的人口接种了至少一剂疫苗。
+总理莫里森也称，未来会有更多的变种病毒会被发现，我们会密切关注形式。同时，总理也会在圣诞节期间向澳人发信，**并呼吁他们接种疫苗加强针。
+**目前，370,000人已经接种了他们的加强针，而500,000人是有接种资格的。
 
-中共政府以贪治国，各级单位上行下效，教育局本来应该是关心各学校如何教书育人的，但是正如新闻中的教育局，通过所谓的招标，实际上是通过暗箱操作指定送餐公司，教育局领导以此与送餐公司勾兑牟利，然后用行政权利强迫各学校接受，学生用高价换来的却是这种变质食物。只要腐败的中共还在执政，这种事情一定不会断绝。
+**联邦卫生部长称，“南非变种病毒的变异程度很高，但是，我们会加快加强针推广的力度来抵御这一病毒”。**
+依照本周五的数据，维多利亚州报告了1362例新增感染与7例死亡。新南威尔士州报告了261例新增病例，无死亡。
 
-消息来源:
+新闻链接：[Australia ‘prepared’ for new COVID-19 variant as other nations impose travel bans to contain risk](https://www.sbs.com.au/news/australia-prepared-for-new-covid-19-variant-as-other-nations-impose-travel-bans-to-contain-risk/3e1d9eff-7ab2-4562-b793-98d92bbe2339)
 
-[中教育局招标送餐公司饭菜臭酸学生腹泻急送院](https://guangming.com.my/%E4%B8%AD%E6%95%99%E8%82%B2%E5%B1%80%E6%8B%9B%E6%A8%99%E9%80%81%E9%A4%90%E5%85%AC%E5%8F%B8-%E9%A3%AF%E8%8F%9C%E8%87%AD%E9%85%B8-%E5%AD%B8%E7%94%9F%E8%85%B9%E7%80%89%E6%80%A5%E9%80%81%E9%99%A2)
+**发布： 文泓**
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,55 +2,35 @@
 ---
 
 
-## 近200名州立法者致信拜登要求立即停止疫苗强制令
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1698235/)
+## 昨天的阴谋论， 今天的医学期刊头条——《新英格兰医学杂志》NEJM 解释了 COVID 疫苗如何产生导致心肌炎的刺突蛋白
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1698401/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/112608.jpg)图片：Joe Raedle摄/盖蒂图片社
-来自30个州的近200名州议员周四致函美国总统拜登，要求他撤销其疫苗强制令，称其“违宪”。
+翻译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/11/covid-vaccine-study-nejm.jpg)图片来源：网络
+来自GATEWAY PUNDIT 星期五11月26日的新闻报道：
 
-Newsmax获得的这封信是由南卡罗来纳州众议员斯图尔特·琼斯（Stewart Jones）、堪萨斯州众议员塔图姆·李（Tatum Lee）和南卡罗来纳州众议员乔赛亚·马格努森（R-Josiah Magnuson）撰写的。
+几个星期以来，“边缘”医生一直认为，由 COVID-19 疫苗产生的刺突蛋白可能会导致今年冬季大量死亡。
 
-琼斯表示，“作为州立法者，我们宣誓捍卫我们州和我们国家的宪法。我们感激自己生活在世界上最自由的国家，我们要保持这种状态”。
+几周后，《新英格兰医学杂志》提出了类似的情况，COVID-19 疫苗产生的刺突蛋白可能会导致心肌炎和神经系统问题。
 
-立法者们表示“我们要求拜登和联邦政府不要打扰人民”并补充说，“当美国人被迫在接种疫苗和工作之间做出选择时，我们不能也不会袖手旁观。没有人应该被迫违背自己的意愿接种新冠疫苗。也没有哪个总统有权力要求美国公民接受他心血来潮制定的医疗程序”。
+亚历克斯·贝伦森报道：
 
-他们称拜登的行动是“对我们自由的无耻攻击”，“要求[拜登]立即停止和终止强制接种新冠疫苗的所有努力”。
+两位资深医学研究人员在美国顶级医学杂志上写道，针对冠状病毒刺突蛋白产生的抗体的下游效应可能导致心肌炎甚至神经系统问题。
 
-信中指出，立法者认为拜登的“疫苗接种强制令是无效的”，他们“让你注意到，各州正在联邦政府和美国人民之间重新介入，以捍卫所有美国人的自由和工作”。
+我们的免疫系统会由于接种疫苗或感染COVID而产生这些抗体。然而——尽管研究人员没有这么明确地说，可能是因为这样做在政治上站不住脚——接种疫苗后的刺突蛋白抗体水平比感染高得多。因此，对疫苗的下游反应可能更为严重。
 
-他们说，他们将 “使用我们所掌握的一切合法手段来阻挠、挫败和拒绝（拜登的）非法强制接种”。
+NEJM 周三在其《临床观察基本含义》系列中发表了这篇短文。其中一位作家是哈佛医学院的肿瘤学家和教授；另一个是癌症研究人员，他在加州大学戴维斯分校拥有自己的实验室。
 
-塔图姆·李表示，“自由正处于危险之中。我们生活在暴政的风口浪尖上，我们必须作为各州的联合体，通过我们在第十修正案中所拥有的宪法权力来限制联邦政府的权力。
+NEJM 报告的题目是A Possible Role for Anti-idiotype Antibodies in SARS-CoV-2 Infection and Vaccination
 
-她补充说：“各州赋予联邦政府权力，而不是反过来。我们不会被嘲弄，也不会被打败。失去的代价太大。今天，我们作为第57个签署者站在这里，我们承诺用我们的生命、财富和荣誉来反对每一个违宪的法令。今天，我们在战斗。”
+点评：疫苗有害？疫苗杀人？结合诸如球员教练比以往多20倍的倒地猝死以及大量其他的各种猝死的事实， 您还不相信吗？
 
-**简评：**
+原文链接：[https://www.thegatewaypundit.com/2021/11/yesterdays-conspiracy-todays-medical-journal-headline-nejm-explains-covid-vaccines-may-produce-spike-proteins-lead-myocarditis/](https://www.thegatewaypundit.com/2021/11/yesterdays-conspiracy-todays-medical-journal-headline-nejm-explains-covid-vaccines-may-produce-spike-proteins-lead-myocarditis/)
 
-拜登的疫苗强制令被美国第五巡回上诉法院阻止后目前被搁置。联邦政府本周要求美国第六巡回上诉法院推翻这一裁决，并允许对100人以上的公司的所有雇员，联邦雇员及军队进行强制接种。
+编辑/发布：LILY
 
-美国现任政府推出的强制疫苗令是否有法律效力，是否严重超越了联邦政府的权力无疑是这场疫苗战争的焦点。令人欣喜的是，我们看到这一非法强制命令遭到来自30个州的近200名州议员的反对。州立法者致信要求拜登撤销其疫苗强制令，称其违宪并通过各州在第十修正案中所拥有的宪法权力来限制联邦政府的权力。这充分体现了美国基本的自由和平等的价值观 —— 没有人应该被迫违背自己的意愿接种新冠疫苗。也没有哪个总统有权力要求美国公民接受他的强制疫苗接种令。
-
-原文链接：[Nearly 200 State Lawmakers Tell Biden to Put Immediate Halt to Mandate](https://www.newsmax.com/politics/vaccine-mandates-states-legislators/2021/11/25/id/1046223/)
-
-***翻译**: Ying2064*
-
-***校对**: clau*
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
-
-
+20211126
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
