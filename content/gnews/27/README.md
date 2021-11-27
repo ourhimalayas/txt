@@ -2,45 +2,32 @@
 ---
 
 
-## 停止疫苗灾难和没让战友们打疫苗新中国联邦的最大资产
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1699437/)
+## 新冠病毒新变种Omicron在博茨瓦纳现身
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1699570/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/media_E2G7QPTWQAcOGIB_副本.jpg)
-据[2021年11月26日 文贵大直播：再谈青蒿素病毒疫苗解药；感恩节五千万人旅行后果；近日币安数字货币大变；喜币价值新中国联邦实力](https://gtv.org/video/id=61a0daac44c1fe7a6c39814d)时间点2：41：12——
+#### **【雅典娜快讯】紧贴时事脉搏**
 
-**郭文贵先生：**兄弟姐妹们，这就是疫苗灾难即将到来的一切，你把这四个问题搞明白了，兄弟姐妹们，你就活明白了，所以说世界的疫苗一定会被停止，而且它把世界一分为二。最后现在是三分之二的人会反他们，另外一个一半的人，三分之二的人被打了疫苗将是一个绝对的力量找他们算账。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/台湾11-1.jpeg)图片来源：Newscenter
 
-你担心啥？咱是这两边都不是。我们也不是被打疫苗的，我们也不是让你打疫苗了，我们新中国联邦是在完全的第三派。两边都得爱我们，你觉得新中国联邦的力量有多大？
 
-我再重申一遍，如果你加入爆料革命、新中国联邦，你最感恩的绝对不是什么币，就是币今天变成四万个亿，你也不要感激，你一定要感激新中国联邦、感恩新中国联邦让你没打疫苗，你一定记住这话。新中国联邦在人类历史上最牛的就是没让大家打疫苗。（大家鼓掌），其他的都可以忘记，什么海航、1120你都忘记，比灭共还大。
+#### 翻译：Lish
+编辑：守望黎明
 
-如果你死了，你灭共有什么用对你？你没用。别跟我说你伟大，能灭共我宁可死，你为了灭共宁可死，和你现在说你死了以后灭共重要，这是完全不同的概念，兄弟姐妹们。对待每个人你活着比灭共重要，它是绝对的，它是一，它是绝对的一。它不存在相对关系，不存在因果关系。现在让大家能活下来那比你灭共重要，要不然你灭共干什么？
+博茨瓦纳政府就一种新的变异毒株发表声明。根据这份声明，这个排序为Omicron的新冠变种是首次被发现，它是在四个完全接种过疫苗的人身上被检测出来的。这种新的变体据称其传染性是原来的三倍，最初是在博茨瓦纳发现的，然后蔓延到南非。
 
-所以说今天你这个问题之好，疫苗灾难一定被停止，它是我们新中国联邦最大的资产，新中国联邦人最要感恩的是新中国联邦没让你打疫苗，而且给了你解药。这就是我们天助新中国联邦。
+这一消息引起了全球的震惊，导致金融市场暴跌，新的旅行禁令也被付诸实施。四起新变种的案例于11月22日被报告并记录。而且博茨瓦纳当局称：“初步报告显示，这四人都已完全接种了新冠疫苗。”
+在随后的一份声明中透露，新的变种“是在执行外交任务的四名外国公民身上检测出来的。他们2021年11月7日进入博茨瓦纳，11月11日准备回国时新冠检测呈阳性”。
 
-（以下暂略）
+好的消息是，这几位感染者的密切接触者没有出现被传染的现象，新冠检测结果也都呈阴性。正如我们早些时候报道的那样，比利时的首相认定Omicron变种病毒具有潜在的巨大危险性，应该被称为 全新的“COVID-21”病毒。与此相反，南非的医疗主管安吉利克·库切 （Angelique Coetzee）博士则认为这种恐慌性说法是“夸大其词”，并坚持认为到目前为止“变种病毒的病例表现温和”。
 
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+参考链接：[Omicron Variant First Detected in Four People Who Were Fully Vaccinated – Summit News](https://summit.news/2021/11/26/omicron-variant-first-detected-in-four-people-who-were-fully-vaccinated/)
+**发布：文泓**
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

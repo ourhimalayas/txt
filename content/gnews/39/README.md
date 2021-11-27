@@ -2,24 +2,58 @@
 ---
 
 
-## 美国代表团本月“意外”二次访台，中共国仓促应对进行 “战备 ”演习
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1699249/)
+## 视频| 什么叫国家，什么叫金融？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1699426/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-118.png)
-图片来源：网络截图
+## 摘自郭先生2021.11.24大直播
 
-据零对冲11月26日报道，美国众议院的五名议员周四晚间抵达台湾，与台北官员进行为期两天的高级别访问。美国代表团包括众议员艾丽莎·斯洛特金（Elissa Slotkin）、马克·塔卡诺（Mark Takano）、科林·阿雷德（Colin Allred）、萨拉·雅各布（Sara Jacobs）和南希·梅斯（Nancy Mace）。他们乘坐一架美国军用C40-C运输机在台北着陆，这是自11月9日以来第二次这样的美国高级别的突击性访问。
+制作：香草山视频部
 
-中共国对这次 “意外 ”访问的回应是，周五在台湾海峡方向进行了 “战备 ”演习，中国人民解放军东部战区司令部宣布 “组织海军和空军部队继续在台湾海峡方向进行战备警戒巡逻”
 
-中共国国防部证实，它向台湾派出了8架飞机，包括一对具有核能力的H-6轰炸机，靠近台湾控制的普拉塔斯群岛并通过台湾的防空识别区。几天前，美国派出一艘军舰通过有争议的台湾海峡，这是今年第11次，这已成为每月一次的 “航行自由 ”演习，尽管北京谴责这是破坏稳定的 “挑衅”。
 
-代表团在星期五的会议上告诉台湾总统蔡英文，美国对对台湾的承诺坚如磐石，并且随着两国之间关系的加深而一直坚定不移。声明还说：“台湾是一个民主管理的成功故事，是一个可靠的伙伴，是世界上的一股和善的力量。”
+所有的货币 还什么抵押 还什么国家
+它都基于两个原则
+就是 人口 由于人口 某种人群
+被集中以后的管理和行动的能力
+或行动力的结果的一个变化
+它就这么简单嘛
+就是生产力 生产力之间的交换
+和这些生产力被谁说了算 被谁定义 就是国家
+国家是什么
+某一个领域内所有人
+一个群体的认可的一个代表性的权力叫国家
+记住啊 不管你是6万人 6百万人 6亿人
+就是我认为这是国家
+人家西方国家呢是一人一票选出来的
+象北朝鲜和咱们是被大家打跪下
+带上脚镣手铐 精神手链 是被威胁的
+就这两种体制
+但不管如何 就在某个区域范围内
+被代表的 政治 经济 安全的利益
+和生产方式和生产交换的
+这么一个权力机构叫国家
+什么叫金融？
+国家金融 国家法币都知道
+是这个国家印出来的
+所谓给人民生产力之间交换的工具
 
-尽管围绕台湾和其他问题的紧张局势仍然很高，例如华盛顿一再谴责中共国侵犯人权的行为，包括在香港和新疆的镇压，但解放军军方正在呼吁与美国军方开放 “良好关系”，以使沟通足够频繁，从而避免步入战争。
 
-新闻来源：[China Launches “Combat Readiness” Drill Near Taiwan As US Delegation Arrives To Island For 2nd Time This Month](https://www.zerohedge.com/geopolitical/china-launches-combat-readiness-drill-near-taiwan-us-leaders-arrive-island-2nd-time)
+
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

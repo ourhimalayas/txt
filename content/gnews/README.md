@@ -15,167 +15,167 @@
 
 ---
 
-### [医生吹哨Covid“疫苗”造成伤害和死亡](/content/gnews/1/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [北领地高官宣称，反对政府强制疫苗令就是反疫苗者](/content/gnews/2/README.md)
- ` 走进澳洲`
-
-### [币安 被爆出“泄漏用户隐私”给中共](/content/gnews/3/README.md)
- ` G&#124;News TAIWAN`
-
-### [英国殡仪馆馆长谈大流行初期的恐惧宣传和Covid疫苗死亡](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [上海数家医院出现突发性感染严重症状，杭州现天花病毒](/content/gnews/5/README.md)
- ` NewFOC`
-
-### [中共编织“鸡笼”里的安全还叫安全吗？](/content/gnews/6/README.md)
- ` 儒为`
-
-### [币圈新闻动态：喜币将有7种功能11个版本](/content/gnews/7/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共国新冠疫苗灾难已逐步显现](/content/gnews/8/README.md)
- ` 澳喜特战旅Gnews`
-
-### [奥地利部分警察呼吁政府终止强制疫苗政策 但阻力重重](/content/gnews/9/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [简析中共国猪肉供应情况及与外汇储备的关系](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [非洲猪瘟肆虐！华东人只吃华东猪？](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新冠病毒新变种Omicron在博茨瓦纳现身](/content/gnews/12/README.md)
- ` 墨尔本雅典娜农场`
-
-### [不惧中共国警告 美代表团感恩节访台](/content/gnews/13/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [比尔·盖茨的疯狂计划：向大气层注入硫磺颗粒遮挡阳光](/content/gnews/14/README.md)
- ` 墨尔本雅典娜农场`
-
-### [央企搬离北京，又是一场劳民伤财的折腾秀](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [不惧北京施压立陶宛持续抗中挺台，中共诡异删帖续演“澳煤”败笔？](/content/gnews/16/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [隐私保护的界限很清楚](/content/gnews/17/README.md)
- ` 银河勇气之星`
-
-### [病毒超级变体成为中共持续强制疫苗的借口](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共在海南全面模拟试验数字人民币国际化使用场景](/content/gnews/19/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [台湾获邀“民主峰会”，酸葡萄继续发做](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [反制中共海洋威胁，印度海军鲉鱼级最新潜艇列装](/content/gnews/21/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [限制重新回到欧洲接种疫苗最多的国家](/content/gnews/22/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [中共政府无视百姓疾苦，“大撒币”免除他国贷款](/content/gnews/23/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [纽约州紧急状态应对 Omicron 变体威胁](/content/gnews/24/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [继上周后，澳洲人为抗议新冠疫苗强制令再次走上街头](/content/gnews/25/README.md)
- ` 走进澳洲`
-
-### [视频|什么叫红色资本？](/content/gnews/26/README.md)
- ` MOSREC`
-
-### [停止疫苗灾难和没让战友们打疫苗新中国联邦的最大资产](/content/gnews/27/README.md)
- ` NewFOC`
-
-### [视频| 什么叫国家，什么叫金融？](/content/gnews/28/README.md)
- ` MOSREC`
-
-### [视频|加拿大护士辞职后爆料：目睹多起因疫苗导致的流产和心脏病](/content/gnews/29/README.md)
- ` MOSREC`
-
-### [习近平的共同富裕大刀，挥向江泽民家族的代持富豪](/content/gnews/30/README.md)
+### [刚与中共建交不久的所罗门群岛再次发生严重暴力排华事件](/content/gnews/1/README.md)
  ` G-NEWS TAIWAN`
 
-### [视频|共产党花大钱到海外维稳是为什么？](/content/gnews/31/README.md)
- ` MOSREC`
+### [DC大中华时事：上海昨日新增本土确诊病例3例](/content/gnews/2/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [澳大利亚新州公校教师下月进行全州罢工](/content/gnews/32/README.md)
- ` 澳喜农场`
+### [半个中共国为北京冬奥会停工停产](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫苗灾难将导致清除共产党、审判、动荡和幸存者的审视](/content/gnews/33/README.md)
- ` NewFOC`
+### [硫酸羟氯喹EUA仅用于住院病人而不能试用，导致数百万人死亡](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [恶性循环 新病毒刚出现辉瑞已经着手研发新疫苗](/content/gnews/34/README.md)
+### [恐怖！日本中共病毒无症状感染者后遗症长期化](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【速报】岸田首相宣布隔离对象再增加三个国家](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [樱花灭共诗——化龙（新韵）](/content/gnews/7/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共病毒新变种来势凶猛 引发全球恐慌](/content/gnews/8/README.md)
+ ` 秘密翻译组-即时新闻播报组`
+
+### [每日快报：美第二个国会代表团访问台湾](/content/gnews/9/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [由于疫情爆发，上海医院停止收治急诊病人](/content/gnews/10/README.md)
+ ` 首尔天池农场`
+
+### [FDA报告发现接种疫苗的全因死亡率更高](/content/gnews/11/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [医疗业拒谈论Covid 疫苗伤害和死亡的主因](/content/gnews/12/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [山西惊见“煤票”再现 百姓需做挨冻准备](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [有声| 约瑟的启示（一）：顺服神的爱可以化解仇恨](/content/gnews/35/README.md)
- ` MOSREC`
+### [医生吹哨Covid“疫苗”造成伤害和死亡](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [澳洲可能已经出现了南非新变体病例](/content/gnews/36/README.md)
- ` 澳喜农场`
+### [班农提出动议 要求公开法庭案件中的所有文件](/content/gnews/15/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [郭先生爆料赵长鹏将币安的用户资料出卖给中共](/content/gnews/37/README.md)
- ` 纽约香草山MOS01`
+### [澳大利亚本周末再次举行反强制疫苗自由集会](/content/gnews/16/README.md)
+ ` 澳喜特战旅Gnews`
 
-### [疫苗强制和封锁：历史不会重覆，但总会惊人地相似](/content/gnews/38/README.md)
- ` 墨尔本雅典娜农场`
+### [北领地高官宣称，反对政府强制疫苗令就是反疫苗者](/content/gnews/17/README.md)
+ ` 走进澳洲`
 
-### [美国代表团本月“意外”二次访台，中共国仓促应对进行 “战备 ”演习](/content/gnews/39/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [2021/11/25 墙内世界](/content/gnews/40/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [堪萨斯州通过立法反对联邦政府疫苗强制](/content/gnews/41/README.md)
- ` GTV新闻访谈`
-
-### [中共喊话日本支持北京冬奥会](/content/gnews/42/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [立陶宛反击中共外交惩罚](/content/gnews/43/README.md)
- ` GTV新闻访谈`
-
-### [美国会议员团访问台湾，中共8军机扰台](/content/gnews/44/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本政府批准创纪录军费开支以应对中共军事威胁](/content/gnews/45/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [南非变种病毒突现 全球投资市场闪崩](/content/gnews/46/README.md)
- ` 纽约香草山MOS01`
-
-### [在三个国家发现 “比德尔塔（Delta）更糟糕 ”的新冠病毒菌株](/content/gnews/47/README.md)
- ` 墨尔本雅典娜农场`
-
-### [日本与加拿大外长一致强烈反对中共擅自改变现状](/content/gnews/48/README.md)
- ` 日本东京方舟农场`
-
-### [中共早在2004年已图谋用细菌病毒消灭基督教天主教徒](/content/gnews/49/README.md)
- ` NewFOC`
-
-### [做一枚坚定的“币加锁”](/content/gnews/50/README.md)
- ` 新加坡狮城农场 Himalaya Singapore`
-
-### [COVID-19 最新情报｜为儿童疫苗造势 以色列总理携 9 岁儿子上阵接种第一针](/content/gnews/51/README.md)
+### [币安 被爆出“泄漏用户隐私”给中共](/content/gnews/18/README.md)
  ` G&#124;News TAIWAN`
 
-### [南非出现强传染性中共病毒新变种，引发全球恐慌](/content/gnews/52/README.md)
+### [英国殡仪馆馆长谈大流行初期的恐惧宣传和Covid疫苗死亡](/content/gnews/19/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [上海数家医院出现突发性感染严重症状，杭州现天花病毒](/content/gnews/20/README.md)
+ ` NewFOC`
+
+### [中共编织“鸡笼”里的安全还叫安全吗？](/content/gnews/21/README.md)
+ ` 儒为`
+
+### [币圈新闻动态：喜币将有7种功能11个版本](/content/gnews/22/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中共国新冠疫苗灾难已逐步显现](/content/gnews/23/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [奥地利部分警察呼吁政府终止强制疫苗政策 但阻力重重](/content/gnews/24/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [简析中共国猪肉供应情况及与外汇储备的关系](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [纽约急诊室因员工拒绝遵守疫苗规定而关闭](/content/gnews/53/README.md)
+### [非洲猪瘟肆虐！华东人只吃华东猪？](/content/gnews/26/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新冠病毒新变种Omicron在博茨瓦纳现身](/content/gnews/27/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [不惧中共国警告 美代表团感恩节访台](/content/gnews/28/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [比尔·盖茨的疯狂计划：向大气层注入硫磺颗粒遮挡阳光](/content/gnews/29/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [央企搬离北京，又是一场劳民伤财的折腾秀](/content/gnews/30/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [不惧北京施压立陶宛持续抗中挺台，中共诡异删帖续演“澳煤”败笔？](/content/gnews/31/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [隐私保护的界限很清楚](/content/gnews/32/README.md)
+ ` 银河勇气之星`
+
+### [病毒超级变体成为中共持续强制疫苗的借口](/content/gnews/33/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共在海南全面模拟试验数字人民币国际化使用场景](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [反制中共海洋威胁，印度海军鲉鱼级最新潜艇列装](/content/gnews/35/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共政府无视百姓疾苦，“大撒币”免除他国贷款](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [视频|什么叫红色资本？](/content/gnews/37/README.md)
+ ` MOSREC`
+
+### [停止疫苗灾难和没让战友们打疫苗新中国联邦的最大资产](/content/gnews/38/README.md)
+ ` NewFOC`
+
+### [视频| 什么叫国家，什么叫金融？](/content/gnews/39/README.md)
+ ` MOSREC`
+
+### [视频|加拿大护士辞职后爆料：目睹多起因疫苗导致的流产和心脏病](/content/gnews/40/README.md)
+ ` MOSREC`
+
+### [视频|共产党花大钱到海外维稳是为什么？](/content/gnews/41/README.md)
+ ` MOSREC`
+
+### [恶性循环 新病毒刚出现辉瑞已经着手研发新疫苗](/content/gnews/42/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [美国代表团本月“意外”二次访台，中共国仓促应对进行 “战备 ”演习](/content/gnews/43/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [2021/11/25 墙内世界](/content/gnews/44/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [堪萨斯州通过立法反对联邦政府疫苗强制](/content/gnews/45/README.md)
+ ` GTV新闻访谈`
+
+### [美国会议员团访问台湾，中共8军机扰台](/content/gnews/46/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本政府批准创纪录军费开支以应对中共军事威胁](/content/gnews/47/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [南非变种病毒突现 全球投资市场闪崩](/content/gnews/48/README.md)
+ ` 纽约香草山MOS01`
+
+### [日本与加拿大外长一致强烈反对中共擅自改变现状](/content/gnews/49/README.md)
+ ` 日本东京方舟农场`
+
+### [中共早在2004年已图谋用细菌病毒消灭基督教天主教徒](/content/gnews/50/README.md)
+ ` NewFOC`
+
+### [做一枚坚定的“币加锁”](/content/gnews/51/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
+
+### [COVID-19 最新情报｜为儿童疫苗造势 以色列总理携 9 岁儿子上阵接种第一针](/content/gnews/52/README.md)
+ ` G&#124;News TAIWAN`
+
+### [南非出现强传染性中共病毒新变种，引发全球恐慌](/content/gnews/53/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [纽约急诊室因员工拒绝遵守疫苗规定而关闭](/content/gnews/54/README.md)
  ` 温哥华圆成农场🇨🇦`
-
-### [“脱碳化”背后——日本专家如是说](/content/gnews/54/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [2021年产值将创新高达4.1万亿！台湾半导体产业亟需日本企业投资助力](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

@@ -2,34 +2,28 @@
 ---
 
 
-## 在三个国家发现 “比德尔塔（Delta）更糟糕 ”的新冠病毒菌株
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1699102/)
+## 日本政府批准创纪录军费开支以应对中共军事威胁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699163/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/新毒.png)图片来源：世界新闻网
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-127.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fs3.six-degrees.io%2Fupload%2Fmedia%2F20211126%2F480%2Fwsj-f3199106ceca273b2954d2b9d01b682c-1.jpeg&amp;imgrefurl=https%3A%2F%2F6do.news%2Farticle%2F5328032-10&amp;tbnid=yz3u9_S0z0sfNM&amp;vet=12ahUKEwj5grnjwLf0AhXRbX0KHeYaBhIQMygDegUIARCeAQ..i&amp;docid=i1NJNsXXNicwlM&amp;w=480&amp;h=240&amp;q=%E6%97%A5%E6%9C%AC%E6%94%BF%E5%BA%9C%E5%BC%80%E6%94%AF&amp;ved=2ahUKEwj5grnjwLf0AhXRbX0KHeYaBhIQMygDegUIARCeAQ#imgrc=yz3u9_S0z0sfNM&amp;imgdii=8qpsOmQUUBKrlM)
+日本计划在其已经创纪录的年度军费开支的基础上增加67.5亿美元支出，急于加强空中和海上防御，因其越来越担心中共国和朝鲜(北韩)构成的威胁。
 
+首相岸田文雄领导的政府周五（11月26日)批准了这项支出，作为追加预算的一部分。虽然这种增加国防开支的做法很常见，但据日本防卫省称，7,740亿日圆的规模创史上最高。这笔支出需要获得国会批准。
 
-**翻译：文杨
-编辑：Candy**
+防卫省在其支出提案中表示：“由于日本周边的安全环境以前所未有的速度恶化，我们的紧迫任务是加速执行各种项目。”
 
-科学家们正在敲响警钟：在世界不同地区的患者中，已经发现了可能是最为高度变种的冠状病毒毒株。 它对疫苗的抵抗力增加了人们的担忧。
+注入的资金将让日本比计划提前三个月升级东海边缘岛屿上的地对空导弹发射装置、以及其他地方的爱国者PAC-3导弹电池，这是防止任何朝鲜弹头来袭的最后一道防线。
 
-最新已知的Covid-19 变种在其刺凸上发生了显著变化，这可能使其躲过疫苗的防护。 它可能是迄今为止变种程度最高的冠状病毒株，因为已经检测到了 32 个突变。 目前占主导地位、高度传播的 Delta 菌株至少有 11 个刺凸突变，它导致了今年全球病例的激增。
+防卫省表示，这笔额外的开支还将使日本更迅速地获得反潜导弹、海上巡逻机和军用货运飞机。
 
-最初是在博茨瓦纳（Botswana）的三名患者身上发现的，因此被称为“博茨瓦纳变体”。自11月11日首次感染以来，已经在三个国家发现了它。据英国媒体报道，在南非已经发现了六个病例，后来又有一个病例在香港登记。
+消息来源:
 
-这名香港患者最近从南非前往中国，这让科学家们处于高度戒备状态，因为这个新变种可能通过国际旅行传播到任何地方。 据说该患者还接种了两剂疫苗。
+**[日本将增加军费开支加强海空防御 以应对来自中国和朝鲜的威胁](https://cn.reuters.com/article/japan-defence-expenditures-1126-idCNKBS2IB0V5?il=0)**
 
-新闻链接[Covid strain ‘worse than Delta’ found in 3 countries — RT World News](https://www.rt.com/news/541279-botswana-variant-covid-mutation/)
-
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
