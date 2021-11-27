@@ -2,19 +2,17 @@
 ---
 
 
-## 联盟代持有保障，个人不要非法代持
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1698627/)
+## COVID-19 最新情报｜护士爆料004：北京市今年心脑血管疾病发生率较去年超逾五成
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1698791/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜27/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/COVID-19之護士系列.jpg)
+中国大陆地区一名护士日前在微信群组中爆料指，虽然自己所属的医院规模较小，至今都已收治了许多因疫苗副作用导致的心脑血管疾病的患者，可想而知其他大医院的情况。据她所知，仅北京市，今年心脑血管疾病的发生率，较去年同期相比，高出52%。
 
-11月24日，郭文贵先生在GTV大直播强调：
+来源｜weibo（详见影片）
 
-凡是涉及钱的，必须和认可的农场主本人及语音确认！国内战友的喜马拉雅币由联盟代持会更安全，如果少一个币，文贵先生会负全部责任！战友不要非法的、未经公告、未经证明的代持，否则联盟将会给予取消！因为KYC的严格，任何骗取和偷走的币转走的钱，一定会被追回。
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

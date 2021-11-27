@@ -2,24 +2,40 @@
 ---
 
 
-## 中共国年内有2171家银行网点关停
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1698511/)
+## 南非出现新变种病毒，澳洲政府力推加强针
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1698556/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-179.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fwww.01caijing.com%2FUploadFiles%2F2014%2F285%2F2014012115220499303.jpg&amp;imgrefurl=https%3A%2F%2Fwww.01caijing.com%2Fhtml%2Fzl%2F1446_2084.html&amp;tbnid=3SkDz8c_XxtHwM&amp;vet=12ahUKEwjJ9LjV47X0AhXOBysKHUiHA4IQMygKegUIARCtAQ..i&amp;docid=jKvGknpTSqZ7zM&amp;w=1193&amp;h=550&amp;itg=1&amp;q=%E9%93%B6%E8%A1%8C%E7%BD%91%E7%82%B9&amp;hl=zh-CN&amp;ved=2ahUKEwjJ9LjV47X0AhXOBysKHUiHA4IQMygKegUIARCtAQ)
-11月26日证劵日报报道，今年以来，截至11月25日，商业银行机构合计共有2171家银行网点终止营业。据《证券日报》记者统计的数据显示，多家上市银行工作人员总数在2018年到2020年期间出现明显下滑。其中，农行出现连续下降趋势，从2018年的47.4万人下降至2020年的45.9万人，减少约1.5万人。不同的网点根据所在区域、面积不同，成本会有所不同，而要覆盖约1000万元的成本，需要拉到10亿元存款才能保证不赔本。
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-银行盈利难的主要原因在于净息差收窄压力下，吸收存款的能力下降，业务收入有限，与场地租金、人力开支等成本难以平衡。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Untitled4567.png)图片来源：BBC
 
-2021年截至7月末，全国负债人数已经达到7.8亿，逾期率高达42%，中国家庭的偿债负担为137.9％，每个国人负债7万元人民币的情况下，哪里还有钱存入银行？
 
-信息来源：
+#### 整理报道：月映万川
+编辑：文泓
 
-[年内逾2000家银行网点关停背后：一线城市银行网点年揽存10亿元才达收支平衡](https://mr.baidu.com/r/x1oMq4hxVS?f=cp&amp;u=c14a96485f64b35e)
+专家们警告，最新的变种病毒可能随时登陆澳大利亚，而澳大利亚联邦卫生部长坚称已经为抵御这种变种病毒做好了准备。
+南非的科学家已在本国发现了这一新型变种病毒。这一病毒被命名为Nu毒株，是因为该病毒的变种数量是德尔塔病毒的一倍。海外卫生专家们警告，Nu变种病毒更可能对疫苗免疫防御出现逃避现象。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+目前，尽管南非发现新的变种病毒，但是澳大利亚与南非之间航班安排没有改变。相反，为了控制传播风险，英国与以色列已经开始执行相关旅行禁令。
+卫生部长格瑞特·亨特强调，新变种的出现并不意味马上调整国家重开计划，但是，如果新的医疗建议发生变化的话，我们的应对措施也会随之改变。
+
+同时，卫生部长也对澳大利亚的高疫苗接种率在“抵制新病毒”方面表现出了强烈信心。
+目前，全国16岁以上人口已经有86%完全接种了疫苗，而92.1%的人口接种了至少一剂疫苗。
+总理莫里森也称，未来会有更多的变种病毒会被发现，我们会密切关注形式。同时，总理也会在圣诞节期间向澳人发信，**并呼吁他们接种疫苗加强针。
+**目前，370,000人已经接种了他们的加强针，而500,000人是有接种资格的。
+
+**联邦卫生部长称，“南非变种病毒的变异程度很高，但是，我们会加快加强针推广的力度来抵御这一病毒”。**
+依照本周五的数据，维多利亚州报告了1362例新增感染与7例死亡。新南威尔士州报告了261例新增病例，无死亡。
+
+新闻链接：[Australia ‘prepared’ for new COVID-19 variant as other nations impose travel bans to contain risk](https://www.sbs.com.au/news/australia-prepared-for-new-covid-19-variant-as-other-nations-impose-travel-bans-to-contain-risk/3e1d9eff-7ab2-4562-b793-98d92bbe2339)
+
+**发布： 文泓**
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
