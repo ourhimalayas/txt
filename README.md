@@ -15,97 +15,97 @@
 
 ---
 
-### [11/26/2021 文贵直播：中共在联合国成立了“反对反冬奥会的组织”](/content/gnews/1/README.md)
+### [COVID-19 最新情报｜为儿童疫苗造势 以色列总理携 9 岁儿子上阵接种第一针](/content/gnews/1/README.md)
+ ` G&#124;News TAIWAN`
+
+### [COVID-19 最新情报｜护士爆料004：北京市今年心脑血管疾病发生率较去年超逾五成](/content/gnews/2/README.md)
+ ` G&#124;News TAIWAN`
+
+### [疫苗接种造成 2620 例婴儿死亡](/content/gnews/3/README.md)
+ ` 英国伦敦喜庄园德语 Himalaya London Club UK-DE`
+
+### [11/26/2021 文贵直播：中共在联合国成立了“反对反冬奥会的组织”](/content/gnews/4/README.md)
  ` 秘密翻译组-北美组`
 
-### [雅典娜时报-第125期](/content/gnews/2/README.md)
+### [雅典娜时报-第125期](/content/gnews/5/README.md)
  ` 墨尔本雅典娜农场`
 
-### [南非出现强传染性中共病毒新变种，引发全球恐慌](/content/gnews/3/README.md)
+### [南非出现强传染性中共病毒新变种，引发全球恐慌](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [纽约急诊室因员工拒绝遵守疫苗规定而关闭](/content/gnews/4/README.md)
+### [纽约急诊室因员工拒绝遵守疫苗规定而关闭](/content/gnews/7/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [日本股市现5个月来最大跌幅，日经指数跌破29000日元](/content/gnews/5/README.md)
+### [日本股市现5个月来最大跌幅，日经指数跌破29000日元](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年11月26日郭文贵先生直播摘要——银河系农场](/content/gnews/6/README.md)
+### [2021年11月26日郭文贵先生直播摘要——银河系农场](/content/gnews/9/README.md)
  ` 喜马拉雅日本银河系农场`
 
-### [新中国联邦把共产党打入塔西佗陷阱](/content/gnews/7/README.md)
+### [新中国联邦把共产党打入塔西佗陷阱](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [联盟代持有保障，个人不要非法代持](/content/gnews/8/README.md)
+### [联盟代持有保障，个人不要非法代持](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫苗次生危机还没有到来](/content/gnews/9/README.md)
+### [疫苗次生危机还没有到来](/content/gnews/12/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [一个现代社会因现代而灾难化](/content/gnews/10/README.md)
+### [一个现代社会因现代而灾难化](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [疫苗灾难是人为设计的，是中共和西方勾兑的结果](/content/gnews/11/README.md)
+### [疫苗灾难是人为设计的，是中共和西方勾兑的结果](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [何为数字化货币](/content/gnews/12/README.md)
+### [何为数字化货币](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共经济就是房地产经济，庞氏骗局](/content/gnews/13/README.md)
+### [中共经济就是房地产经济，庞氏骗局](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [社会的边际效应比疫苗本身还可怕](/content/gnews/14/README.md)
+### [社会的边际效应比疫苗本身还可怕](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [唯真不破，遵循法律，团结一心，是新中国联邦的核心](/content/gnews/15/README.md)
+### [唯真不破，遵循法律，团结一心，是新中国联邦的核心](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [农场代持币全部转移至基金，全力协助战友KYC](/content/gnews/16/README.md)
+### [农场代持币全部转移至基金，全力协助战友KYC](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [跟着共产党走进火葬场，是七哥对中共的点穴之语](/content/gnews/17/README.md)
+### [跟着共产党走进火葬场，是七哥对中共的点穴之语](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [南非出现新变种病毒，澳洲政府力推加强针](/content/gnews/18/README.md)
+### [南非出现新变种病毒，澳洲政府力推加强针](/content/gnews/21/README.md)
  ` 走进澳洲`
 
-### [中共李克强总理金句：小钱整家业，中钱交朋友，大钱往外跑](/content/gnews/19/README.md)
+### [中共李克强总理金句：小钱整家业，中钱交朋友，大钱往外跑](/content/gnews/22/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [有币安账号的战友与大卫联系对币安提出诉讼](/content/gnews/20/README.md)
+### [有币安账号的战友与大卫联系对币安提出诉讼](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中国的孩子何时才能不吃垃圾腐烂食品](/content/gnews/21/README.md)
+### [中国的孩子何时才能不吃垃圾腐烂食品](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文雍漫谈：在选择与努力之间](/content/gnews/22/README.md)
+### [文雍漫谈：在选择与努力之间](/content/gnews/25/README.md)
  ` 文雍`
 
-### [“脱碳化”背后——日本专家如是说](/content/gnews/23/README.md)
+### [“脱碳化”背后——日本专家如是说](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共科技被踢回原型 美禁止向中共出口量子计算技术](/content/gnews/24/README.md)
+### [中共科技被踢回原型 美禁止向中共出口量子计算技术](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国年内有2171家银行网点关停](/content/gnews/25/README.md)
+### [中共国年内有2171家银行网点关停](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [“4毛钱”雨衣搞勘探 大陆4年轻地质队员殒命](/content/gnews/26/README.md)
+### [“4毛钱”雨衣搞勘探 大陆4年轻地质队员殒命](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [外媒报道：中共对人民币快速升值不安](/content/gnews/27/README.md)
- ` 澳喜农场`
-
-### [英媒报道：中美放宽彼此对记者的旅行和签证限制](/content/gnews/28/README.md)
- ` 澳喜农场`
-
-### [聚焦：南非新病毒或将全球打入灾难深渊](/content/gnews/29/README.md)
+### [聚焦：南非新病毒或将全球打入灾难深渊](/content/gnews/30/README.md)
  ` 丁过`
 
-### [贾跃亭造车骗局被识破，“FF”将被退市](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [日本尚未得到有关南非变异菌株的确认结果](/content/gnews/31/README.md)
+### [贾跃亭造车骗局被识破，“FF”将被退市](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [11/26/2021 文贵直播：币安的多个银行账号因美元长臂管辖而遭关闭；中共正在威胁迪拜交出赵长鹏的钱](/content/gnews/32/README.md)
@@ -180,13 +180,13 @@
 ### [立陶宛体育部长表态不出席北京冬奥](/content/gnews/55/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [SLOVENIA危机：吹哨人称政治家合伙骗人民打疫苗](/content/gnews/56/README.md)
- ` wenwu`
-
-### [立陶宛外长向世界展示如何抵抗中共](/content/gnews/57/README.md)
+### [立陶宛外长向世界展示如何抵抗中共](/content/gnews/56/README.md)
  ` 日本东京方舟农场`
 
-### [中共拿拜习电话会当令牌，指责美对其再增制裁](/content/gnews/58/README.md)
+### [中共拿拜习电话会当令牌，指责美对其再增制裁](/content/gnews/57/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [蔡英文正告中共停止对台商的政治迫害](/content/gnews/58/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [平明运动的本质就是一人一票](/content/gnews/59/README.md)

@@ -2,26 +2,40 @@
 ---
 
 
-## 中国的孩子何时才能不吃垃圾腐烂食品
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1698534/)
+## 南非出现新变种病毒，澳洲政府力推加强针
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1698556/)
 
-撰稿：东京樱花团/小小星
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-52.jpg)[图片来源](https://www.esp-4u.com/shenghuo/323388.html)
-近日，河南一中学三十多名学生用餐后出现呕吐、拉肚子现象。学生表示菜有异味。送餐的是北京志宏餐饮公司。
+#### **【雅典娜快讯】，紧贴时代脉搏**
 
-据河南电视台《都市报道》微博11月26日消息，23日，新乡封丘县赵岗镇戚城中学30多名学生吃过学校的营养午餐后，出现呕吐、拉肚子现象，学生们纷纷反映，当天吃的饭菜里“豆腐有点馊，烩菜有点腥”。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Untitled4567.png)图片来源：BBC
 
-另据九派新闻26日报导，事件发生后，学生家长们堵住学校门口，不让餐车进学校，有家长喊著“把门堵著，不让送！”，还有家长说“学生全都撤走，不让在这上（学）！”
 
-其实这种现象遍布全国，所有的学校午餐都是教育部门的关系户承包。为赚取暴利，他们无视孩子的生命，吃腐烂变质食品到处都见。只有灭掉ccp我们才能有真正的法治，我们的孩子才能真正健康的成长！
+#### 整理报道：月映万川
+编辑：文泓
 
-信息来源：
+专家们警告，最新的变种病毒可能随时登陆澳大利亚，而澳大利亚联邦卫生部长坚称已经为抵御这种变种病毒做好了准备。
+南非的科学家已在本国发现了这一新型变种病毒。这一病毒被命名为Nu毒株，是因为该病毒的变种数量是德尔塔病毒的一倍。海外卫生专家们警告，Nu变种病毒更可能对疫苗免疫防御出现逃避现象。
 
-[河南三十多名学生中毒送餐公司饭菜变质](https://www.epochtimes.com/gb/21/11/26/n13399428.htm)
+目前，尽管南非发现新的变种病毒，但是澳大利亚与南非之间航班安排没有改变。相反，为了控制传播风险，英国与以色列已经开始执行相关旅行禁令。
+卫生部长格瑞特·亨特强调，新变种的出现并不意味马上调整国家重开计划，但是，如果新的医疗建议发生变化的话，我们的应对措施也会随之改变。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+同时，卫生部长也对澳大利亚的高疫苗接种率在“抵制新病毒”方面表现出了强烈信心。
+目前，全国16岁以上人口已经有86%完全接种了疫苗，而92.1%的人口接种了至少一剂疫苗。
+总理莫里森也称，未来会有更多的变种病毒会被发现，我们会密切关注形式。同时，总理也会在圣诞节期间向澳人发信，**并呼吁他们接种疫苗加强针。
+**目前，370,000人已经接种了他们的加强针，而500,000人是有接种资格的。
+
+**联邦卫生部长称，“南非变种病毒的变异程度很高，但是，我们会加快加强针推广的力度来抵御这一病毒”。**
+依照本周五的数据，维多利亚州报告了1362例新增感染与7例死亡。新南威尔士州报告了261例新增病例，无死亡。
+
+新闻链接：[Australia ‘prepared’ for new COVID-19 variant as other nations impose travel bans to contain risk](https://www.sbs.com.au/news/australia-prepared-for-new-covid-19-variant-as-other-nations-impose-travel-bans-to-contain-risk/3e1d9eff-7ab2-4562-b793-98d92bbe2339)
+
+**发布： 文泓**
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
