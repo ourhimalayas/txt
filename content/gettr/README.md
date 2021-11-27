@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/27/2021 1:21 PM (UTC)`
+
+澳国防部长达顿警告：为避免在印太地区发生冲突，澳大利亚必须警惕中共的军事规模和野心<br/><br/>Minister for Defence of Australia Peter Dutton warns: To avoid conflict in the Indo-Pacific region, Australia must stay alert for the CCP’s military scale and ambition<br/>
+![img](https://media.gettr.com/group18/getter/2021/11/27/13/21/7c8e423f-4094-bf3a-74bc-f622feef9446/out.jpg)
+
+---
+
 `@miles 11/27/2021 4:05 AM (UTC)`
 
 11/26/2021 Miles Guo: Four indicators showing the CCP is bound to be over: 1) the US military deployment in the Asia-Pacific; 2) Bipartisan legislators arrived in Taiwan on a U.S. diplomatic jet; 3) the US is divesting from Communist China; 3) the US government’s the actual deeds; the New Federal State of China will protect Taiwan to keep it intact<br/><br/>11/26/2021 文贵直播: 四个指标说明中共必灭：1) 美国在亚太的军事部署；2) 两党议员乘美国外交专机抵台；3) 美国从中共国撤资；4) 美国政府的实质行动；新中国联邦会保护台湾完好无损！<br/>
@@ -148,13 +155,6 @@ Dr. Vladimir Zev Zelenko, a Ukrainian born, Zionist, Chasidic JEW has been arres
 
 11/24/2021 Miles Guo: The COVID vaccine disaster has caused the recent frequent explosion, traffic accidents, the rising number of sick people, and the overloaded hospitals in Communist China; one person's accident due to the COVID vaccine side effects destroys the whole family, while it takes the entire social system to serve one person’s illness, and the secondary disaster of COVID vaccines will be more frightening than the vaccines<br/><br/>11/24/2021 文贵直播：疫苗灾难导致中共国近期爆炸和交通事故频发、染病人数攀升、医院爆满；一人出事毁全家，一人生病则要整个社会系统为之服务，疫苗的次生灾难将比疫苗更可怕<br/>
 ![img](https://media.gettr.com/group35/getter/2021/11/25/03/53a72954-e455-4600-2977-b37f290800d3/out.jpg)
-
----
-
-`@miles 11/24/2021 11:59 PM (UTC)`
-
-11/24/2021 Miles Guo: Changpeng Zhao is hiding in Dubai to collude with the CCP, and he won’t be repatriated to Communist China, with his new task being sabotaging the Himalaya Coin; people around the world who have opened accounts at Binance, come forward and take a class action against Changpeng Zhao; we will work with the US and European governments to bring him to justice<br/><br/>11/24/2021 文贵直播：赵长鹏藏身迪拜便于和中共勾兑且不会被遣返，他的新任务是打压喜币；请全世界在币安开过账号的人站出来并集体起诉赵长鹏；我们会和美欧政府合作将其绳之以法<br/>
-![img](https://media.gettr.com/group32/getter/2021/11/24/23/59/7f41cd27-af3a-e462-eb2b-a6ef682ff446/out.jpg)
 
 ---
 
