@@ -2,10 +2,10 @@
 ---
 
 
-## 又一美国众议院代表团于11月26日星期五抵达台湾
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1700419/)
+## 11/26/2021 文贵直播：文贵为什么在2017年告诉世界黑暗即将到来？
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1700684/)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+秘密翻译组-北美组
 
  
 

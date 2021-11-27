@@ -2,47 +2,27 @@
 ---
 
 
-## 郭文贵直播摘要和音频 2021.11.19
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1700247/)
+## 有声|GTV新闻访谈简报|2021年11月25日早
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1700373/)
 
-摘要撰稿人：文俊
-
-音频提供者：左媛
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2021.11.19.jpg)
+配音：香草山教育部 – 蒙古鸿雁
+![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-26.png)
 
 
-**视频链接：**
+文字版原文：[GTV新闻访谈简报|2021年11月25日早](https://gnews.org/zh-hans/1694999/)
 
-https://gtv.org/video/id=6197a194fcd196126f8cab91
+音频处理：喜山必胜Maverick
+发稿：呼吸的雾霾（文小呼吸）
 
+![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-
-**音频链接：**
-
-
-
-**摘要：**
-
-- 吴征是双性恋 这小子是当女性那种
-- CCP病毒目的是摧毁世界经济和美元，中共一门心思想把美元干掉
-- 美国3个百姓绝不允许: （1）油价，永远不超过4美金一桶的油价。超过了，政治大变（2）面包价格，只要超过1.2美元，老百姓就反了（3）天然气和电，超过历史均价的20%，经济大变
-- 币安 赵长鹏 在新加坡到处敲门诋毁喜币 结局一定和王健一样
-- 区块链技术 任何政府都管不了 它是一种记账的方式 互相就可以买东西了 去中心化 没有第三方 不需要”妈咪”、不需要”银行”、不需要”信用卡”
-- 迪拜房地产公司接受喜币 也接受喜美元 是喜币上市后最具标志性的事情 把数字货币变成比法币还有信用的货币
-- 在加拿大用加币、在韩国用韩币，世界上的法币都是地域强迫的被动式使用，而喜联储是用户主动信任的货币
-- 未来喜币一定会超过比特币 而且比特币绝对不是2100万个 比特币你看到的信息都是真实的 有没有可能有同样的第2套系统?
-- 疫苗灾难改变了一切，世界发生的一切改变都会是因为疫苗，打了疫苗青蒿素管用
-- 科学就是某种范围内在某种条件下对某种事物可认知的 科学就被否定的 被怀疑的 而且它是一定条件下对物质世界的一种定义 对精神它没法定义
-- 为什么七哥对精子卵子感兴趣 一个小小精子卵子能带着先祖的基金 人死了 精子卵子所传递信息(通过后代)还在 精子卵子都是带微电波的 当初咱们就是精子卵子中最强的相遇 才得到生命 微电波是啥 那就是灵魂
-- 明天[11.20](http://11.0.0.20/)还有大直播
-
-
-
-
-
-
-编辑发布：闪电训练
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
