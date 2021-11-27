@@ -2,19 +2,22 @@
 ---
 
 
-## 何为数字化货币
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1698596/)
+## 雅典娜时报-第125期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1698726/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-11月24日，郭文贵先生在GTV大直播指出：
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_24.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_25.png)
+***发布：小红帽***
 
-数字化货币没有国界，可以跨越国界，或者说地球是他一个界，数字化货币和纸币、曾经的金币银币一样，作为劳动力交换的工具，任何货币之间的替代，曾经的货币就没有价值，就像纸币替换金币银币一样。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

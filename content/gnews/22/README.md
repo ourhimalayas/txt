@@ -2,17 +2,35 @@
 ---
 
 
-## 新中国联邦把共产党打入塔西佗陷阱
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1698639/)
+## GTV新闻访谈简报|2021年11月26日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1698836/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+作者：香草山翻译部
 
-11月24日，郭文贵先生在GTV大直播指出，他与中共的较量，虽以一人抵一国确已分出胜负。但新中国联邦秉承唯真不破，永远兑现承诺，已发展得越来越强大。中国共产党被打入塔西佗陷阱，失去了国际社会的信任，在世界上更加臭名昭著。西方逐渐看清了善恶是非。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-8.png)
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1126text-SC.png)
+
+
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[11.26  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61a189be44c1fe7a6c3a0565)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-7.jpg)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

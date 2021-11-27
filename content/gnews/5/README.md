@@ -2,22 +2,50 @@
 ---
 
 
-## 立陶宛议员：中共是民主社会最迫在眉睫的威胁
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1698964/)
+## 600多名谷歌员工签署宣言反对疫苗强制令
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1699092/)
 
-韩国首尔天池农场
-翻译：zzballack
-上传：追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-27-at-12.46.59.jpeg)图片来自：原新闻
-据《布雷特巴特新闻网》（Breitbart News）11月26日报道，立陶宛官方11月18日允许台湾设立驻立陶宛台湾代表处，中共随后做出报复行动。11月21日中共宣布降级与立陶宛的外交关系，中共官媒《环球时报》威胁说，立陶宛得罪了中共和俄罗斯，其安全环境将面临更多的危险。立陶宛议员多维勒·萨卡利埃内 (Dovilė Šakalienė)在接受《布雷特巴特伦敦》（Breitbart London）的独家采访时，对中共的威胁回应说：“任何地方的共产主义者都不是好人。”
+作者：纽约香草山农场 – 四季
 
-萨卡利埃内说：“立陶宛有过被斯大林的苏联镇压和恐怖统治的历史。共产主义是一种瘟疫，它的目标是消除个人的自由意志、基本权利和自由。我们不喜欢它，我想我们将来也不会喜欢它！作为一个共产主义国家，中共从根本上就不理解民主国家有自己的自由意志，可以自己做出决定。中共正在威胁世界秩序和二战后世界商定的全球标准，北京正在成为对立陶宛在内的民主社会最迫在眉睫的威胁之一。”
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-萨卡利埃内说，立陶宛自脱离苏联独立以来，其外交政策一贯地坚定支持全世界的自由和民主，立陶宛与谁做生意并不关中共的事。开设台湾代表处没有违反任何国际法，立陶宛和台湾都有权自行决定与谁建立经济关系。萨卡利埃内议员今年3月曾推动立法，谴责中共在新疆地区的种族灭绝暴行，因此被中共制裁。
 
-萨卡利埃内警告说，虽然立陶宛在地理上与中共国相距甚远，但是北京可能会试图与立陶宛的邻国俄罗斯和白俄罗斯结盟，并试图利用移民危机等情况来破坏立陶宛的稳定。但被苏联多年镇压以及后来获得的独立和自由使立陶宛获得了必要的经验，以抵御共产主义国家的“愤怒和敌意”。
 
-新闻来源：[‘Communism Is a Plague’ Says Lithuanian MP, as China Threatens War Over Taiwan Embassy](https://www.breitbart.com/europe/2021/11/26/communism-is-a-plague-says-lithuanian-mp-as-china-threatens-war/)
+
+
+据[零对冲](https://www.zerohedge.com/political/over-600-google-employees-sign-manifesto-against-covid-vaccine-mandate)11月24日报道，全国广播公司商业频道 (CNBC) 援引内部文件称，至少有600名谷歌员工签署了一份内部宣言，呼吁公司撤销其疫苗强制令,并创建一个“包容所有谷歌人”的新授权。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1529-covid-vax.jpg)图片来源：零对冲
+
+宣言认为公司领导层的决定将在美国企业中产生巨大的影响。它还呼吁员工“作为一个原则问题反对这项任务”，并告诉员工，如果他们已经选择不接种Covid疫苗，不要让这项政策改变他们的决定。
+
+尽管谷歌员工中只有一小部分人签署了这份文件，但随着复工期限的临近，这种势头可能会越来越大。该公司的大多数员工预计将从1月10日开始每周三天返回实体办公室工作。
+
+谷歌的强制疫苗接种令是在拜登政府对员工人数超过100人的公司下达“不打疫苗就测试”的命令之后制定的。谷歌要求其超过15万名美国员工在12月3日前报告他们的疫苗接种情况。此外，该公司表示，所有直接或间接为政府合同工作的员工必须接种疫苗，即使他们是在家中工作。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

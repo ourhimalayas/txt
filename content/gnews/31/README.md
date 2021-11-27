@@ -2,39 +2,53 @@
 ---
 
 
-## 南非出现新变种病毒，澳洲政府力推加强针
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1698556/)
+## 2021年11月26日郭文贵先生直播摘要——银河系农场
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1698655/)
 
-#### **【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/snapshot-1.jpg)
+视频连接：[2021年11月26日 文贵大直播：再谈青蒿素病毒疫苗解药；感恩节五千万人旅行后果；近日币安数字货币大变；喜币价值新中国联邦实力](https://gtv.org/video/id=61a0daac44c1fe7a6c39814d)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Untitled4567.png)图片来源：BBC
+1、多数是关于喜币卖与不卖的问题，99%战友发信息给七哥 表示绝对不卖，这让七哥很感动，感动之余也让七哥更加保护真战友；
 
+2、今天我们一定要揭发司马南、方舟子、李毅等这些侮辱中国人的左棍；
 
-#### 整理报道：月映万川
-编辑：文泓
+3、感恩节5000万美国人出游，中共一定会借这个机会放毒，这场5000万的大聚会结束一周之后，疫苗灾难绝对又是一个小高峰；
 
-专家们警告，最新的变种病毒可能随时登陆澳大利亚，而澳大利亚联邦卫生部长坚称已经为抵御这种变种病毒做好了准备。
-南非的科学家已在本国发现了这一新型变种病毒。这一病毒被命名为Nu毒株，是因为该病毒的变种数量是德尔塔病毒的一倍。海外卫生专家们警告，Nu变种病毒更可能对疫苗免疫防御出现逃避现象。
+4、打了疫苗的一定要吃青蒿素，青蒿素不仅是解药还壮阳、女性美容、治癌症；
 
-目前，尽管南非发现新的变种病毒，但是澳大利亚与南非之间航班安排没有改变。相反，为了控制传播风险，英国与以色列已经开始执行相关旅行禁令。
-卫生部长格瑞特·亨特强调，新变种的出现并不意味马上调整国家重开计划，但是，如果新的医疗建议发生变化的话，我们的应对措施也会随之改变。
+5、中共跟西方邪恶势力勾兑目的就是为了将世界人口大量减少，然后实现他们想要的全球主义，并实现对世界的严密控制；
 
-同时，卫生部长也对澳大利亚的高疫苗接种率在“抵制新病毒”方面表现出了强烈信心。
-目前，全国16岁以上人口已经有86%完全接种了疫苗，而92.1%的人口接种了至少一剂疫苗。
-总理莫里森也称，未来会有更多的变种病毒会被发现，我们会密切关注形式。同时，总理也会在圣诞节期间向澳人发信，**并呼吁他们接种疫苗加强针。
-**目前，370,000人已经接种了他们的加强针，而500,000人是有接种资格的。
+6、常州和上海北边的应山医院出现问题，绝大多数都是突发的感染极为严重，杭州也有类似的病例，有天花病毒的症状 。王岐山、孟建柱、孙力军的势力也掌握着病毒武器，很多势力手里都有病毒，国内会有大事，病毒战会成为人类各种势力较量的武器；
 
-**联邦卫生部长称，“南非变种病毒的变异程度很高，但是，我们会加快加强针推广的力度来抵御这一病毒”。**
-依照本周五的数据，维多利亚州报告了1362例新增感染与7例死亡。新南威尔士州报告了261例新增病例，无死亡。
+7、赵长鹏币安账上的钱60%被中共弄走了，你在币安的钱已经没有了，有币安账户的战友赶快提现，采取法律行动；
 
-新闻链接：[Australia ‘prepared’ for new COVID-19 variant as other nations impose travel bans to contain risk](https://www.sbs.com.au/news/australia-prepared-for-new-covid-19-variant-as-other-nations-impose-travel-bans-to-contain-risk/3e1d9eff-7ab2-4562-b793-98d92bbe2339)
+8、最值钱的是数字银行牌照，各国现在都不批数字银行牌照，若有了数字银行就不需要第三方银行来中转资金了；
 
-**发布： 文泓**
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+9、家族基金、信托基金最好国家：荷兰、巴拿马、加勒比海；
+
+10、习近平只要知道冬奥会开不成了，一定打台湾 ，只要他动台湾那一刻，共产党就结束了
+
+11、GETTR、GTV认证意义深远，战友们抓紧与各农场联系；
+
+编辑整理：文俊；
+
+发布：黎明之前；
+
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
+
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
+
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 
