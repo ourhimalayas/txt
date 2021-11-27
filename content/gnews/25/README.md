@@ -2,28 +2,30 @@
 ---
 
 
-## 继孟宏伟之后又一中共公安部高官当选国际刑警组织要员
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1700776/)
+## 世卫组织命名新变异株时竟因习近平姓氏跳过了Nu和Xi
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1700845/)
 
-#### 撰稿：日本东京方舟农场 北极
+#### **撰稿：日本东京方舟农场 Kevin wang**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/B83590FC-0101-49E4-93C9-98393473B91E.jpeg)（图片来自美国之音中文网）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2DC2E85C-2FA6-478D-9070-16FC54DEBAC8.jpeg)（图片来自中央社）
 
-据《美国之音》中文网11月26日报道，国际刑警组织本周四宣布，中共公安部高官胡彬郴当选新一届执委会委员。这是继已落马的前国际刑警组织主席孟宏伟之后，又一带有人权污点的中共公安部官员当选国际刑警组织要员。
+11月27日，英国《每日电讯报》的一名编辑在其推特上披露，世界卫生组织（WHO）在为COVID-19（中共病毒）新变异毒株命名时，因顾及中共总书记习近平的姓氏，故未按照希腊字母顺序，而是跳过了Nu和Xi。WHO的此举引起美国共和党参议员克鲁兹（Ted Cruz）的质疑。
 
-胡彬郴是中共公安部的一级督察和国际合作局副局长。公安部在国内承担着维稳的主要任务，也是侵犯人权行为、镇压不同政见人士的主要实施者。在国际上，中共公安部曾多次滥用国际刑警组织职权，抓捕流亡的异议人士和失踪的中国公民，引起国际舆论强烈谴责。
+世界卫生组织27日将中共病毒新变异毒株B.1.1.529命名为Omicron。这一命名并未按照希腊字母顺序，而是跳过了Nu和Xi。
 
-2016年，时任中共公安部副部长的孟宏伟当选国际刑警组织主席。但两年后，他在中共国突然失踪。直至去年1月，他才被中共当局以受贿罪判处有期徒刑13年半。此事曾在国际上引起高度关注。
+英国《每日电讯报》的一名编辑27日在其推特上称，据世卫组织的一位消息人士透露，世卫在命名新变异毒株时，刻意避开了希腊字母中的 Nu 和 Xi 。跳过Nu是为了避免与“new”一词混淆；而跳过Xi（习近平的英文姓氏）则是为了“避免对一个地区进行污名化”。
 
-另据《美联社》消息，滞留法国并在法国申请政治庇护获批的孟宏伟的妻子高歌，不久前在接受采访时公开指责中共政权是“魔鬼”。
+这名编辑最后强调，所有流行病本质上都是政治性的！
 
-国际人权组织 “对华跨国议会联盟”日前严厉质询国际刑警组织，指出让胡彬郴进入（国际刑警组织）执委会，就是为中共独裁政权继续滥用国际刑警组织职权的行为大开绿灯，并让成千上万生活在国外的香港、维吾尔、西藏、台湾和中国异议人士身处更大的危险之中。
+美国共和党参议员克鲁兹（Ted Cruz）在回帖中质疑：“如果世卫如此害怕中国共产党，要怎么相信世卫会在他们下次试图隐瞒灾难性全球大流行病时指责他们？”
 
-*参考链接：[https://www.voachinese.com/a/Chinese-official-wins-key-interpol-post-despite-backlash-from-MPS-across-globe-20211125/6327780.html](https://www.voachinese.com/a/Chinese-official-wins-key-interpol-post-despite-backlash-from-MPS-across-globe-20211125/6327780.html)*
+截至目前，WHO尚未就新变异毒株命名为何跳过Nu和Xi一事做出解释。
+
+*参考链接：[https://twitter.com/tedcruz/status/1464340689655844869?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1464340689655844869%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.cna.com.tw%2Fnews%2Ffirstnews%2F202111270020.aspx](https://twitter.com/tedcruz/status/1464340689655844869?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1464340689655844869%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.cna.com.tw%2Fnews%2Ffirstnews%2F202111270020.aspx)*
 
 * * *
 
-*素材采编：北极*
+*素材采编：Kevin wang*
 
 *编辑：青衣青青*
 

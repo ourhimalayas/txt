@@ -2,38 +2,48 @@
 ---
 
 
-## 英政府表示没有计划让部长参加北京冬奥会
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1700915/)
+## 美国将限制来自8个南部非洲国家的旅行
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1700985/)
 
-翻译：Lulumi
+作者：纽约香草山教育部 —-Naughty(文行)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-5-10.jpg)北京2022年冬奥会照片。路透社
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-421.jpeg)
 
-英国下议院领袖雅各布·里斯-莫格(Jacob Rees-Mogg)周四证实，没有预订英国政府部长参加北京2022年冬奥会的门票。
 
-这一声明是在回答跨党派议会间中共国问题联盟（IPAC）联合主席、议员伊恩·邓肯·史密斯爵士(Sir Iain Duncan Smith)关于英国政府是否会宣布对北京冬奥会进行外交抵制的问题时作出的。
 
-雅各布·里斯-莫格回答说：“……运动员去不去是由英国奥委会决定的。至于政府部长们，他们是否愿意去中华人民共和国，我可以告诉这位尊敬的先生，一张票都还没有订。”
+美国政府高层官员表示，美国将从周一开始限制来自南非和其他七个国家的旅行，原因是担心“严重变异”的新冠病毒欧米茄变体。该变体在年轻人中似乎具有高度传染性。
 
-IPAC在一份声明中说，这一宣布是在国际上对奥运会进行外交抵制的势头越来越强，以及据报道拜登政府将宣布美国政府官员将不会参加奥运会之后作出的。
+旅行限制不适用于美国公民和合法永久居民，但所有国际旅行者在旅行前都必须检测呈阴性。
 
-此举正值全球关注中共国网球明星彭帅，自从她因指控被一名中共高官性虐待而失踪后，她只出现在一系列中共国国家媒体上演的公告中。
+WHO 指出，欧米茄变种有大量突变，“其中一些令人担忧”。除南非外，在博茨瓦纳、津巴布韦、纳米比亚、莱索托、埃斯瓦蒂尼、莫桑比克和马拉维也发现了该变种。
 
-IPAC是一个由国际上约200名立法者组成的跨党派网络，已经在10多个国家领导了议会行动，呼吁对奥运会进行外交抵制，以回应中共国政府在维吾尔地区和香港的人权侵犯行为。
+大约十几个其他国家包括英国、法国、德国、意大利、印度、日本、以色列、土耳其、瑞士和阿拉伯联合酋长国等也将设置类似的旅行限制。欧盟委员会建议各国对来自南部非洲的旅行进行“紧急刹车”，以应对新冠病毒新变种的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-418.jpeg)
+图片：美国之音
 
-英国的伊恩·邓肯-史密斯爵士议员说。“今天，政府部长们宣布不打算参加北京冬奥会，虽然欢迎这么做，但这还不是一个明确的公开声明。奥运会举行的同时，中共国政府在维吾尔族地区和西藏实施了大规模的人权侵犯，并几乎每天都对台湾的领空进行军事入侵。再加上他们在香港逮捕和平的民主示威者，侵犯人权的清单数不胜数。”
+2021.11.26
 
-“这就是为什么英国政府现在必须更进一步，公开确认没有部长、外交官或其他英国官员将参加运动会。我们不能给中共国的专制政权提供任何合法性。”
+参考链接：[https://www.foxnews.com/us/omicron-variant-us-restrict-travel-southern-africa-nations?utm\_source=ground.news&utm\_medium=referral](https://www.foxnews.com/us/omicron-variant-us-restrict-travel-southern-africa-nations?utm_source=ground.news&amp;utm_medium=referral)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-419.jpeg)
+总编：飞虹
 
-**参考资料：**[business-standard][UK government says no plans for ministers to attend Beijing Winter Olympics](https://www.business-standard.com/article/sports/uk-government-says-no-plans-for-ministers-to-attend-beijing-winter-olympics-121112600053_1.html)
+编辑/校对/发稿：文敬
 
-* * *
+**更多资讯，更多关注**
 
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+[**纽约香草山农场**** ****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
 
  
 

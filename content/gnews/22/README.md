@@ -2,34 +2,51 @@
 ---
 
 
-## 世卫组织命名新变异株时竟因习近平姓氏跳过了Nu和Xi
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1700845/)
+## 所有四名博茨瓦纳Nu变种病毒患者均已接种疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1700883/)
 
-#### **撰稿：日本东京方舟农场 Kevin wang**
+翻译： Jenny Ball
+![](https://assets.gnews.org/wp-content/uploads/2021/11/https___bucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com_public_images_352a2710-b65b-48ec-9473-2097d1ae84a8_800x450.jpeg)图片来源：[比尔轩尼诗](https://www.hennessysview.com/p/nu-covid-variant-found-only-in-fully)
+更新：WHO给它起了一个新名字，叫做欧米茄“Omicron”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2DC2E85C-2FA6-478D-9070-16FC54DEBAC8.jpeg)（图片来自中央社）
+COVID 的“Omicron”变种及时到来，毁了圣诞节。（谁还没看到这一点吗？）“有着更多刺突蛋白的突变”的变体，首先在博茨瓦纳被发现，并迅速成为南非最流行的变体。 但在你屈服于“未接种疫苗的大流行”之前，请考虑一下：
 
-11月27日，英国《每日电讯报》的一名编辑在其推特上披露，世界卫生组织（WHO）在为COVID-19（中共病毒）新变异毒株命名时，因顾及中共总书记习近平的姓氏，故未按照希腊字母顺序，而是跳过了Nu和Xi。WHO的此举引起美国共和党参议员克鲁兹（Ted Cruz）的质疑。
+来自博茨瓦纳总统，首次发现该变种的地方：
 
-世界卫生组织27日将中共病毒新变异毒株B.1.1.529命名为Omicron。这一命名并未按照希腊字母顺序，而是跳过了Nu和Xi。
+初步报告显示，所有四名 [患者] 之前都接种了 COVID-19 疫苗。
 
-英国《每日电讯报》的一名编辑27日在其推特上称，据世卫组织的一位消息人士透露，世卫在命名新变异毒株时，刻意避开了希腊字母中的 Nu 和 Xi 。跳过Nu是为了避免与“new”一词混淆；而跳过Xi（习近平的英文姓氏）则是为了“避免对一个地区进行污名化”。
+总统在媒体发布的信内容：
 
-这名编辑最后强调，所有流行病本质上都是政治性的！
+在博茨瓦纳检测到新的 Covid-19 变种
 
-美国共和党参议员克鲁兹（Ted Cruz）在回帖中质疑：“如果世卫如此害怕中国共产党，要怎么相信世卫会在他们下次试图隐瞒灾难性全球大流行病时指责他们？”
+总统 Covid-19 工作组通知公众，2021 年 11 月 21 日星期一报告，4人感染了称为 B1.1.529 的新变种，这四例是在例行旅行前测试旅行者中发现的 SARS-COV-2 检测呈阳性。按照我们的 Covid-19 应对计划的规定，变异测试是作为 SARS-COV-2 常规基因组监测的一部分进行的。
 
-截至目前，WHO尚未就新变异毒株命名为何跳过Nu和Xi一事做出解释。
+初步报告显示，所有 4 人都已接种了 Covid-19 疫苗。作为对该病毒进行持续调查以建立和遏制其本地传播的一部分，接触者追踪已审查了密切接触者，他们目前正在等待结果，届时将向公众通报调查结果。
 
-*参考链接：[https://twitter.com/tedcruz/status/1464340689655844869?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1464340689655844869%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.cna.com.tw%2Fnews%2Ffirstnews%2F202111270020.aspx](https://twitter.com/tedcruz/status/1464340689655844869?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1464340689655844869%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.cna.com.tw%2Fnews%2Ffirstnews%2F202111270020.aspx)*
+对该病毒的初步调查已经确定，与当地主要的 Delta 变体相比，新变体具有大量突变。 这意味着什么尚不清楚，正在调查中。新变体有可能影响疾病的严重程度，任务组如何有效地检测该病毒，以及此时潜在的疫苗功效，变体的实际影响尚未确定，非药物干预（戴口罩，社交距离，并避免不必要的旅行等）仍然有效，因此，建议公众继续遵守这些。
+
+总统 Covid-19 工作组希望进一步消除一些流传的社交媒体报道，将这些病例与参与者的 HIV + 状态联系起来，其中一家报纸声称一个病例为 HIV 阳性是完全错误的 ，因为客户的 HIV 状态与此结果无关。这些媒体报道是不幸的，且存在事实上的缺陷。该变体仍在研究和调查中，因此现在下结论性地做出这些类型的断言还为时过早。
+
+在此敦促公众，采取必要的预防措施来保护自己免受 Covid-19 的侵害。
+
+谢谢。
+
+马苏普博士
+总统 Covid-19 工作组协调员
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/letter-doctor.jpeg)
+
+请收藏这个重要的故事，与那些将 Omicron 变种归咎于未接种疫苗的朋友分享。
+
+**参考资料：**[thegatewaypundit][All Four Botswana “Omicron” Variant Patients Were Fully Vaccinated](https://www.thegatewaypundit.com/2021/11/four-botswana-nu-variant-patients-fully-vaccinated/)
 
 * * *
 
-*素材采编：Kevin wang*
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
 
-*编辑：青衣青青*
-
-*发布：miumiu*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
 
  
 

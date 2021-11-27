@@ -2,8 +2,10 @@
 ---
 
 
-## 又一美国众议院代表团于11月26日星期五抵达台湾
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1700419/)
+## 中共通过胁迫手段使得美国公司及名人不敢站出来反对它
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1700449/)
+
+11/24/2021 参议员玛莎·布莱克本：中共对美国公司、名人的胁迫，使他们不敢站出来反对中共。许多美国企业因中共窃取其知识产权而撤离中共国。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
