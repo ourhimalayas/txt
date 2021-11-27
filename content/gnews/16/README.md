@@ -2,18 +2,22 @@
 ---
 
 
-## 纽约州紧急状态应对 Omicron 变体威胁
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1699454/)
+## 限制重新回到欧洲接种疫苗最多的国家
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1699462/)
 
 翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11271.png)图片来自The New York Times
-11 月 26 日-纽约州州长凯西·霍赫尔（Kathy Hochul）已宣布纽约州进入紧急状态，以应对新的冠病毒变种Omicron ，该变种也有可能已经到达美国。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11272.jpg)图片来自POLITICO Europe
+葡萄牙是欧盟疫苗接种率最高的国家，但这不足以使葡萄牙免于恢复限制。总理安东尼奥·科斯塔昨天在新闻发布称：”无论疫苗接种多么成功，都必须意识到我们正在进入一个更大风险的阶段。同时我们看到欧盟的病例显着增加，葡萄牙的情况恶化导致住院和死亡人数增加”。
 
-Hochul 还解释说，这一决定与纽约州的一些感染病例有关，随着病例的增加现在已恢复到自去年 4 月以来从未有过的增长水平。
+因此，从 12 月 1 日起，进入夜总会、酒吧、重大活动和养老院都将接受冠病毒测试阴性结果的影响，即使是那些已接种疫苗的人。入住酒店、去健身房或在室内餐厅用餐，将再次需要普通的绿色通行证。
 
-该公告是在拜登政府禁止八个非洲国家进入美国之后发布的，目的是希望增加纽约医院的床位容量并解决医院人员短缺的问题。
+远程办公在 1 月 2 日至 9 日的一周内再次强制执行，同时将再次强制在范围内的所有封闭空间使用口罩。
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/27/stato-di-emergenza-a-ny-contro-minaccia-variante-omicron\_1e93b14a-b671-467b-a94a-9bca1c235776.html](https://www.ansa.it/sito/notizie/topnews/2021/11/27/stato-di-emergenza-a-ny-contro-minaccia-variante-omicron_1e93b14a-b671-467b-a94a-9bca1c235776.html)
+入境前必须分别在出发前 72 小时或 48 小时进行 PCR 检测或快速抗原检测，即使是已接种疫苗的人，否则将面临被罚款 20,000 欧元。
+
+该国超过 1000 万的居民中，约有 87% 已完全接种了冠状病毒疫苗，到目前为止，由于大流行而取消了大部分限制。科斯塔强调，该国必须继续押注于接种疫苗来控制大流行。
+
+原文链接：[https://europa.today.it/attualita/portogallo-vaccinazioni-coronavirus.html#\_ga=2.224523289.2019019097.1638000618-145009575.1615972944](https://europa.today.it/attualita/portogallo-vaccinazioni-coronavirus.html#_ga=2.224523289.2019019097.1638000618-145009575.1615972944)
 
 责任编辑/发布：意大利达芬奇农场   萧亦
 

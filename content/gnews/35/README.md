@@ -2,45 +2,69 @@
 ---
 
 
-## 共产党通过疫苗放毒实现按需淘汰人口建立地球政府目的
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1699241/)
+## 【Michael.Tonny专栏】图表分析中共国的房地产巨大泡沫
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1699256/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/FDW3yjAUUAsul3R_副本.jpg)
-据[2021年11月26日 文贵大直播：再谈青蒿素病毒疫苗解药；感恩节五千万人旅行后果；近日币安数字货币大变；喜币价值新中国联邦实力](https://gtv.org/video/id=61a0daac44c1fe7a6c39814d)时间点2：17：25——
+加拿大温哥华扬帆农场 Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/michael-3.jpg)
+本文摘自危地马弗朗西斯科马罗金大学拉经济学教授、[UFM Market Trends](https://trends.ufm.edu/)创始人Daniel Fernández于2021年10月7 日发表的文章[《The Case of Evergrande: Is There a Housing Bubble in China?》](https://trends.ufm.edu/en/article/case-evergrande-china/)，分析中共国房地产泡沫与空城。
+Daniel Fernández（中文：丹尼尔·费尔南德斯），危地马拉（República de Guatemala）米塞斯研究所（Mises Institute）研究员，弗朗西斯科马罗金大学Francisco Marroquín University经济学教授，UFM Market Trends创始人。曾获得奥地利Rey Juan Carlos大学经济学和西班牙University of Alcalá（阿尔卡拉大学）应用经济学硕士学位，西班牙Francisco Marroquín University应用经济学博士学位。
 
-**郭文贵先生：**很多人说到它放毒的目的是？共产党跟谁在勾兑？共产党以及勾兑的所有人，它的追求就两点，第一，把世界的人类人口大量减少，大量减少，然后实现一个所谓全球主义。
+Fernández教授采用多个方面的详实数据，论证中共国巨大的房地产泡沫。尽管Fernández教授采用的有些数据是2017年的，但他的分析方法仍然值得借鉴。
+第一、[中共国二线城市的空置率持续增长](https://www.datawrapper.de/_/ZJfJ7/)（在一些大城市，如北京，空置率已达到20%）。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-182.jpg)
+与其他国家相比，中共国的住房空置率较高，但在2017年低于西班牙和意大利。
+2017年世界各国房屋空置率对比（Housing Vacancy Rates by Country）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-128.jpg)
+补充：
+根据《华夏时报》2021年8月11日[《惊！中国有1.3亿套房屋空置无人住！空置税呼之欲出？》](https://finance.sina.com.cn/china/2021-08-12/doc-ikqciyzm0882420.shtml)一文，中共国现在的住房足够34亿人居住。
 
-啥叫全球主义呢？就是全球是一家说了算，这一家是谁呢？就是各国的政府成为它的所谓的各种县级单位、分支机构，有一个地球政府，这个地球政府就是共产党和这些邪恶势力搞的。
+2018年12月21日西南财经大学中国家庭金融调查与研究中心(CHFS) 发布的《2017中共国城镇住房空置分析》报告，中共国城镇地区住房空置率是21.4%。
 
-那以后就以你的基因，它控制你的基因了，控制你的思维了，控制你的老弱病死了，没有优胜劣汰这个词了，只有一个它他以需淘汰，我需要淘汰谁就淘汰谁，是吧？它就要实现这个。
+2019年的潘石屹在一场论坛上提到，全国空置房屋至少有1.3亿套。
 
-然后他再也没有被威胁了。这是我认为是可怕的，很多人类上不相信这事儿。75亿人口吧，全人类不超过10亿人是受过最高等教育，脑子是清楚的，就是每75个人里边只有10个是冷静的。这75个人里边儿的60个人、65个人，包括咱们家人——你们的家人、我的家人，  都是一个存在一个所谓跟动物不一样的在社会上，有吃有喝就满足的人，被这些人理解为这就是我们的奴隶——全球主义化的必需。
+中国人民银行调查统计司城镇居民家庭资产负债调查课题组于2020年4月24日发表在《中国金融》2020年第9期发表的[《2019年中国城镇居民家庭资产负债情况调查》](https://finance.sina.com.cn/china/2021-08-12/doc-ikqciyzm0882420.shtml)一文中说，到2019年，中共国城镇居民住房拥有率是96%，超过30%的家庭拥有2套住房，超过10%的家庭拥有3套住房，户均拥有住房1.5套。
 
-我以后不是优胜劣汰，以需淘汰。那么接下来在放毒是干嘛呢？它再放毒就很简单，就是促进你打疫苗。绝对所有的毒，它不是目的，疫苗才是目的。你们一定要记住爆料革命给这个人类带来最伟大的贡献，就是提前2020年2月8号七哥就告诉你了，疫苗才是目的，疫苗才是灾难。而且绝对这不是病毒，不是来自自然，是共产党的生化武器。
+第二、房价/租金年数
+Years of Rent Needed to Pay for Housing
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-106.jpg)
+中共国房地产市场的房价/租金比高得离谱；在中共国买房出租是一个非常糟糕的商业计划，收回投资需要长达四十八年的时间。
 
-（以下暂略）
+第三、购房投资回报率
 
-撰稿：喜马拉雅的肉夹馍；
+中共国城市的房地产投资利润几乎低于其他任何地方的城市，投资中共国房地产市场的回报远低于该国现行的抵押贷款利率，所以在中共国买房没有经济意义。
+Profitability of Housing Investments by City
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-71.jpg)
+第四、房屋购买价格与公民收入中位数
 
-审核：喜马拉雅的馍夹肉；
+如果将所有收入都用于住房，普通中共国公民需要146 年才能买房。中国的房价与人均收入的比率位居世界第二（仅次于印度）。
+Housing Price/Annual Per Capita Income
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-54.jpg)
+第五、相对于中共国居民的收入，房价过高
+Housing Price/Annual Per Capita Income
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-45.jpg)
+第六、中共国近三分之一的经济活动与砖块有关
+（2016年）中共国住房部门对其 GDP 的贡献大于 2000 年代爱尔兰和西班牙巨大的房地产泡沫中的相应贡献。
+Real Estate Sector’s Contribution to GDP
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-37.jpg)
+第七、中共国家庭投资的资产几乎完全是房地产。
+2018 年，中共国家庭财富的 76% 投资于住房（日本为 41%，美国为 27.7%）
+Household Wealth by Asset Type
+![](https://assets.gnews.org/wp-content/uploads/2021/11/8-29.jpg)
+第八、2018 年88%的新房是由已经拥有至少一套房屋的人购买。
+正如Rogoff和Yang（2021）指出的那样，尽管中国的 GDP 比美国低 25%，但今天中国房地产市场的估值是美国房地产市场估值的两倍。2008 年，只有30%的新房是由已经拥有至少一套房屋的人购买的；2018年，这个数字是88%。
+Housing Buyers in China
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-20.jpg)
+参考资料：
 
-校对：Maarago；
+- [The Case of Evergrande: Is There a Housing Bubble in China?](https://trends.ufm.edu/en/article/case-evergrande-china/)
+- [CHFS：2017中国城镇住房空置分析（附下载）](http://www.199it.com/archives/856292.html)
+- [《2019年中国城镇居民家庭资产负债情况调查》](https://finance.sina.com.cn/china/2020-04-24/doc-iircuyvh9570653.shtml)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+* * *
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+编辑/发稿：云起时
 
  
 

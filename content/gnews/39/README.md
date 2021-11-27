@@ -2,43 +2,33 @@
 ---
 
 
-## 堪萨斯州通过立法反对联邦政府疫苗强制
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1699193/)
+## 2021/11/25 墙内世界
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1699230/)
 
-撰稿：银河勇气星—骄子
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-4.png)
-
-
-
-
-
-11月22日，堪萨斯州众议院和参议院通过法案，保护工人免受拜登强制接种新冠疫苗的影响。反对拜登总统的联邦疫苗授权的民主党人堪萨斯州州长劳拉凯利承诺，一旦该法案获得批准，就会签署该法案。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-815.png)
-该法案旨在迫使雇主允许广泛的疫苗豁免，包括宗教豁免，以及向因没有注射新冠疫苗而导致失业的堪萨斯州人提供失业救济金。
-
-堪萨斯州为美国最新一个通过反对拜登强制疫苗的立法的州，佛罗里达州州长罗恩·德桑蒂斯在上一周签署了一项反对联邦疫苗授权的法案州。
-
+1. 11月24日，辽宁朝阳。一辆轿车在高速收费站失控撞飞前车。
+2. 11月23日，北京。驾驶员非毒驾和酒驾，是操作不当？还是车辆失控？为何各地如此频发？
+3. 11月21日，河南郑州。高新区一女子晕厥倒地在路边!
+4. 11月21日，宁夏银川。大风天高楼外墙保温层瞬间脱落。
+5. 11月22日，广东揭阳。偷狗产业猖狂，没有信仰对生命非常漠视。未来新中国人不会这样。（⚠️此视频不能代表全体国人形象！）
+6. 11月23日，福建福州。小学家长吐槽自家孩子的劣质校服。孩子们都是被学校“绑架”的敛财工具。
+7. 11月17日，河南开封。直播群体深夜在桥上的低俗直播。愚民下的低俗文化，来自共产主义意识形态的愚民统治。
+8. 疫苗绝对是21世纪奴役人的新型手段。北京出台疾病控制政策：快递和外卖配送人员，未全程接种新冠
+9. 疫苗不得上岗！
+10. 江苏徐州，工地外的快餐摊上，农民工大哥为了省钱，一顿吃六个馒头，一天只吃一顿。
+11. 11月24日，《中共中央国务院关于加强新时代老龄工作的意见》发布。鼓励老年人继续发挥作用。
+12. 没有法律惩罚流氓，诈骗就会十分嚣张。1600万人排队退押金，共享单车ofo小黄车无耻地推出拉好友退押金功能。
 
 
-新闻链接：[Kansas passes bill to protect workers from Biden’s COVID shot mandate](https://www.lifesitenews.com/news/kansas-passes-bill-to-protect-workers-from-bidens-covid-mandate/)
+* * *
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-总编：文徬
 
-编辑：文徬
+编辑：【英国伦敦喜庄园编辑部】
 
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-4.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

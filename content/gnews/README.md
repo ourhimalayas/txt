@@ -15,127 +15,127 @@
 
 ---
 
-### [奥地利部分警察呼吁政府终止强制疫苗政策 但阻力重重](/content/gnews/1/README.md)
- ` 秘密翻譯組G-Translators`
+### [币圈新闻动态：喜币将有7种功能11个版本](/content/gnews/1/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [简析中共国猪肉供应情况及与外汇储备的关系](/content/gnews/2/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [非洲猪瘟肆虐！华东人只吃华东猪？](/content/gnews/3/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [新冠病毒新变种Omicron在博茨瓦纳现身](/content/gnews/4/README.md)
- ` 墨尔本雅典娜农场`
-
-### [不惧中共国警告 美代表团感恩节访台](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [比尔·盖茨的疯狂计划：向大气层注入硫磺颗粒遮挡阳光](/content/gnews/6/README.md)
- ` 墨尔本雅典娜农场`
-
-### [央企搬离北京，又是一场劳民伤财的折腾秀](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [不惧北京施压立陶宛持续抗中挺台，中共诡异删帖续演“澳煤”败笔？](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [隐私保护的界限很清楚](/content/gnews/9/README.md)
- ` 银河勇气之星`
-
-### [病毒超级变体成为中共持续强制疫苗的借口](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [中共在海南全面模拟试验数字人民币国际化使用场景](/content/gnews/11/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [台湾获邀“民主峰会”，酸葡萄继续发做](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [反制中共海洋威胁，印度海军鲉鱼级最新潜艇列装](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [限制重新回到欧洲接种疫苗最多的国家](/content/gnews/14/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [中共政府无视百姓疾苦，“大撒币”免除他国贷款](/content/gnews/15/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [纽约州紧急状态应对 Omicron 变体威胁](/content/gnews/16/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [继上周后，澳洲人为抗议新冠疫苗强制令再次走上街头](/content/gnews/17/README.md)
- ` 走进澳洲`
-
-### [视频|什么叫红色资本？](/content/gnews/18/README.md)
- ` MOSREC`
-
-### [停止疫苗灾难和没让战友们打疫苗新中国联邦的最大资产](/content/gnews/19/README.md)
- ` NewFOC`
-
-### [视频| 什么叫国家，什么叫金融？](/content/gnews/20/README.md)
- ` MOSREC`
-
-### [视频|加拿大护士辞职后爆料：目睹多起因疫苗导致的流产和心脏病](/content/gnews/21/README.md)
- ` MOSREC`
-
-### [习近平的共同富裕大刀，挥向江泽民家族的代持富豪](/content/gnews/22/README.md)
- ` G-NEWS TAIWAN`
-
-### [视频|共产党花大钱到海外维稳是为什么？](/content/gnews/23/README.md)
- ` MOSREC`
-
-### [澳大利亚新州公校教师下月进行全州罢工](/content/gnews/24/README.md)
- ` 澳喜农场`
-
-### [疫苗灾难将导致清除共产党、审判、动荡和幸存者的审视](/content/gnews/25/README.md)
- ` NewFOC`
-
-### [恶性循环 新病毒刚出现辉瑞已经着手研发新疫苗](/content/gnews/26/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声| 约瑟的启示（一）：顺服神的爱可以化解仇恨](/content/gnews/27/README.md)
- ` MOSREC`
-
-### [澳洲可能已经出现了南非新变体病例](/content/gnews/28/README.md)
- ` 澳喜农场`
-
-### [郭先生爆料赵长鹏将币安的用户资料出卖给中共](/content/gnews/29/README.md)
- ` 纽约香草山MOS01`
-
-### [澳大利亚对南非等九国关闭国境](/content/gnews/30/README.md)
- ` 澳喜农场`
-
-### [国际社会各界持续发声抵制2022年北京冬奥会](/content/gnews/31/README.md)
- ` 澳喜农场`
-
-### [疫苗强制和封锁：历史不会重覆，但总会惊人地相似](/content/gnews/32/README.md)
- ` 墨尔本雅典娜农场`
-
-### [【Michael.Tonny专栏】图表分析中共国的房地产巨大泡沫](/content/gnews/33/README.md)
- ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
-
-### [美国代表团本月“意外”二次访台，中共国仓促应对进行 “战备 ”演习](/content/gnews/34/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [共产党通过疫苗放毒实现按需淘汰人口建立地球政府目的](/content/gnews/35/README.md)
- ` NewFOC`
-
-### [在博茨瓦纳发现新冠变种病毒其感染者都完全接种了新冠疫苗](/content/gnews/36/README.md)
- ` 澳喜农场`
-
-### [2021/11/25 墙内世界](/content/gnews/37/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [文贵先生警告世界：中共一定利用天花病毒对抗西方](/content/gnews/38/README.md)
+### [中共国新冠疫苗灾难已逐步显现](/content/gnews/2/README.md)
  ` 澳喜特战旅Gnews`
 
-### [堪萨斯州通过立法反对联邦政府疫苗强制](/content/gnews/39/README.md)
- ` GTV新闻访谈`
+### [奥地利部分警察呼吁政府终止强制疫苗政策 但阻力重重](/content/gnews/3/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [中共喊话日本支持北京冬奥会](/content/gnews/40/README.md)
+### [简析中共国猪肉供应情况及与外汇储备的关系](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美议员访台，中共战狼惯例式狂吠](/content/gnews/41/README.md)
+### [非洲猪瘟肆虐！华东人只吃华东猪？](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新冠病毒新变种Omicron在博茨瓦纳现身](/content/gnews/6/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [不惧中共国警告 美代表团感恩节访台](/content/gnews/7/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [比尔·盖茨的疯狂计划：向大气层注入硫磺颗粒遮挡阳光](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [央企搬离北京，又是一场劳民伤财的折腾秀](/content/gnews/9/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [不惧北京施压立陶宛持续抗中挺台，中共诡异删帖续演“澳煤”败笔？](/content/gnews/10/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [隐私保护的界限很清楚](/content/gnews/11/README.md)
+ ` 银河勇气之星`
+
+### [病毒超级变体成为中共持续强制疫苗的借口](/content/gnews/12/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共在海南全面模拟试验数字人民币国际化使用场景](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [台湾获邀“民主峰会”，酸葡萄继续发做](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [反制中共海洋威胁，印度海军鲉鱼级最新潜艇列装](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [限制重新回到欧洲接种疫苗最多的国家](/content/gnews/16/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [中共政府无视百姓疾苦，“大撒币”免除他国贷款](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [纽约州紧急状态应对 Omicron 变体威胁](/content/gnews/18/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [继上周后，澳洲人为抗议新冠疫苗强制令再次走上街头](/content/gnews/19/README.md)
+ ` 走进澳洲`
+
+### [视频|什么叫红色资本？](/content/gnews/20/README.md)
+ ` MOSREC`
+
+### [停止疫苗灾难和没让战友们打疫苗新中国联邦的最大资产](/content/gnews/21/README.md)
+ ` NewFOC`
+
+### [视频| 什么叫国家，什么叫金融？](/content/gnews/22/README.md)
+ ` MOSREC`
+
+### [视频|加拿大护士辞职后爆料：目睹多起因疫苗导致的流产和心脏病](/content/gnews/23/README.md)
+ ` MOSREC`
+
+### [习近平的共同富裕大刀，挥向江泽民家族的代持富豪](/content/gnews/24/README.md)
+ ` G-NEWS TAIWAN`
+
+### [视频|共产党花大钱到海外维稳是为什么？](/content/gnews/25/README.md)
+ ` MOSREC`
+
+### [澳大利亚新州公校教师下月进行全州罢工](/content/gnews/26/README.md)
+ ` 澳喜农场`
+
+### [疫苗灾难将导致清除共产党、审判、动荡和幸存者的审视](/content/gnews/27/README.md)
+ ` NewFOC`
+
+### [恶性循环 新病毒刚出现辉瑞已经着手研发新疫苗](/content/gnews/28/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [有声| 约瑟的启示（一）：顺服神的爱可以化解仇恨](/content/gnews/29/README.md)
+ ` MOSREC`
+
+### [澳洲可能已经出现了南非新变体病例](/content/gnews/30/README.md)
+ ` 澳喜农场`
+
+### [郭先生爆料赵长鹏将币安的用户资料出卖给中共](/content/gnews/31/README.md)
+ ` 纽约香草山MOS01`
+
+### [澳大利亚对南非等九国关闭国境](/content/gnews/32/README.md)
+ ` 澳喜农场`
+
+### [国际社会各界持续发声抵制2022年北京冬奥会](/content/gnews/33/README.md)
+ ` 澳喜农场`
+
+### [疫苗强制和封锁：历史不会重覆，但总会惊人地相似](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【Michael.Tonny专栏】图表分析中共国的房地产巨大泡沫](/content/gnews/35/README.md)
+ ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
+
+### [美国代表团本月“意外”二次访台，中共国仓促应对进行 “战备 ”演习](/content/gnews/36/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [共产党通过疫苗放毒实现按需淘汰人口建立地球政府目的](/content/gnews/37/README.md)
+ ` NewFOC`
+
+### [在博茨瓦纳发现新冠变种病毒其感染者都完全接种了新冠疫苗](/content/gnews/38/README.md)
+ ` 澳喜农场`
+
+### [2021/11/25 墙内世界](/content/gnews/39/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [堪萨斯州通过立法反对联邦政府疫苗强制](/content/gnews/40/README.md)
+ ` GTV新闻访谈`
+
+### [中共喊话日本支持北京冬奥会](/content/gnews/41/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [立陶宛反击中共外交惩罚](/content/gnews/42/README.md)
