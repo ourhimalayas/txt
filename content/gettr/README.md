@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/27/2021 6:43 PM (UTC)`
+
+11月27号：共产党的放毒战略……要想成功，现有自宫！【昨天上海被封的醫院】
+![img](https://media.gettr.com/group7/getter/2021/11/27/18/43/ba031565-e81f-bc77-1ce1-21d053404b62/259f20e3a1ab23b217b9fd94a19be037.jpg)
+
+---
+
 `@miles 11/27/2021 2:53 PM (UTC)`
 
 11月27号：尊敬的战友们好……你们建身了吗？你们传播CCP病毒和疫苗解药的真相了吗？一切都已经开始!
@@ -148,13 +155,6 @@ Dr. Vladimir Zev Zelenko, a Ukrainian born, Zionist, Chasidic JEW has been arres
 
 11月25号：感恩伟大的美国，愿美国永远强大和安全……
 ![img](https://media.gettr.com/group24/getter/2021/11/25/21/38/92224470-bc84-feb2-1682-93231baaa608/23db39423c24805e7cd20d90c057f453.jpg)
-
----
-
-`@miles 11/25/2021 3:22 PM (UTC)`
-
-11月25号：祝愿感恩天下的所有人……和感恩所有的战友们和家人……感恩新中国联邦人……感恩节快乐……
-![img](https://media.gettr.com/group14/getter/2021/11/25/15/22/241e59e7-aa0f-25d5-c0f2-0d34b89ba7ad/out.jpg)
 
 ---
 
