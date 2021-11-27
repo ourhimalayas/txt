@@ -2,39 +2,53 @@
 ---
 
 
-## 美国会议员团访问台湾，中共8军机扰台
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699171/)
+## 立陶宛反击中共外交惩罚
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1699172/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-105.jpg)[图片来源](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD5%E8%AE%AE%E5%91%98%E8%AE%BF%E9%97%AE%E5%8F%B0%E6%B9%BE-%E4%B8%AD%E5%9B%BD%E5%A4%A7%E4%BD%BF%E9%A6%86%E8%A6%81%E6%B1%82%E5%8F%96%E6%B6%88%E8%A1%8C%E7%A8%8B/a-59941635)
-五名美国国会议员星期五上午在一次出人意料的访问中会见了台湾总统蔡英文，通过这次访问重申美国对台湾“坚如磐石”的支持。拜登政府还邀请台湾参加下个月的民主峰会。美国议员访问台湾之际，中国军方出动8架次军机侵扰台湾西南的防空识别区。
+撰稿/新闻采集：日本方舟农场-Andy5
 
-美国在台协会表示，美国国会众议院的两党议员于周四晚抵达台湾。访问团成员之一、密歇根州民主党籍国会众议员斯洛特金（Elissa Slotkin）星期五在推特上写道：“我们此行的消息昨天一传出，我的办公室就收到了中国大使馆的一条直白的信息，要求我取消行程。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-4.png)
 
-访问团其他成员包括民主党籍众议员高野（Mark Takano）、奥尔雷德（Colin Allred）和雅各布斯（Sara Jacobs），以及共和党籍众议员梅斯（Nancy Mace）。
 
-担任众议院退伍军人事务委员会主席的高野说：“我们本周来到台湾，是为了提醒我们的伙伴和盟友，在经历了两年的艰难时期后，我们对自由和安全的印太地区的承诺和共同责任比以往任何时候都更加坚定。”
 
-高野还说，美国与台湾的关系“坚如磐石，并随着我们之间关系的加深而保持稳定”。
 
-蔡英文在总统府欢迎美国议员和美国在台协会台北办事处处长孙晓雅（Sandra Oudkirk）。她指出美台双方在退伍军人事务、经济贸易方面的合作，同时重申台湾与美国的紧密联系。蔡英文说：“台湾会持续与美国加强合作，共同捍卫双边共享的民主自由价值，确保区域的和平稳定发展。”
 
-蔡英文说，在退伍军人事务上台美合作非常密切。她说，从明年1月开始，台湾的国军退除役官兵辅导委员会将会派员常驻华盛顿，可以针对退伍军人的健康保险、优质医疗、就业辅导，以及长期招护等方面增加更多的交流。
+11月24日，立陶宛外交部长兰茨贝尔吉斯表示，在中共因台湾问题而宣布将两国的外交关系由大使级降为代办级后，立陶宛将做出一系列反击措施。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-814.png)
+他在访问美国的行程中指出，受到经济压迫并不意味着要放弃外交政策上的独立决定。中共胁使立陶宛企业在中国的利益受损，立陶宛也借此努力减少在供应链方面对中共的依赖。
 
-这是美国国会议员今年第三次访问台湾。就在几周前，由六名共和党国会议员组成的代表团访问了台湾。代表团在访问期间会见了蔡英文、台湾国家安全会议秘书长顾立雄和外交部长吴钊燮等。
+立陶宛外长、副外长等官员和议员也在日前会晤前香港众志主席、前立法会议员罗冠聪，表达对香港自由和民主的支持。立陶宛议会的17名成员签署了一份请愿书，不仅为立陶宛政界人士，也为运动员提出抵制奥运会的倡议。立陶宛体育部长称，不会出席北京冬奥会。
 
-在5位美国两党众议员星期五（11月26日）访问台湾之际，中共军方出动8架次军机侵扰台湾西南的防空识别区。台湾空军证实，侵扰台湾西南防空识别区的解放军军机包括1架“空警500”预警机、1架“运-8”反潜机、2架“轰-6”轰炸机和4架“歼-16”战机。台湾空军也依惯例派遣空中巡逻兵力应对、广播驱离，同时以防空导弹追监。
+新闻链接：
 
-消息来源:
+1. [立陶宛外长：面对中国胁迫，欧洲应加强与印太地区的关系](https://www.voachinese.com/a/lithuania-urges-europe-to-increase-indo-pacific-ties-in-face-of-chinese-coercion-20211124/6327164.html)
 
-[美国国会跨党派议员访台会见蔡英文 强调对台支持“坚如磐石”](https://www.voachinese.com/a/us-taiwan-visit-20211126/6328781.html)
+2. [立陶宛外长在华盛顿叫苦：每隔几天就有一家立陶宛企业表示，在中国的生意停滞了](https://world.huanqiu.com/article/45jgQyppnBq)
 
-[美国会议员访台期间，8架解放军军机侵扰台湾防空识别区](https://www.voachinese.com/a/china-sends-8-aircraft-into-taiwan-s-adiz-during-visit-by-us-congressmen-20211126/6329341.html)
+3. [将体育运动政治化 立陶宛体育部长说“不来冬奥”](https://mil.news.sina.com.cn/2021-11-26/doc-ikyakumx0374215.shtml)
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
-#  
+4.[赵立坚谈立方为反中乱港分子撑腰张目：玩火者必自焚](https://finance.sina.com.cn/tech/2021-11-26/doc-ikyakumx0429825.shtml)
+
+5.[https://m.facebook.com/NathanLawKC/photos/pcb.2705021482982501/2705019266316056/?type=3&source=49](https://m.facebook.com/NathanLawKC/photos/pcb.2705021482982501/2705019266316056/?type=3&amp;source=49)
+
+6.[立陶宛允台灣設代表處遭中國威脅 法國外長：全力支持立陶宛](https://www.cna.com.tw/news/firstnews/202111260006.aspx)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-5.jpg)
+
+总编：文徬
+
+编辑：文徬
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-4.png)
 
  
 

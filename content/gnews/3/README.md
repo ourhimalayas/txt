@@ -2,25 +2,29 @@
 ---
 
 
-## 奥地利部分警察呼吁政府终止强制疫苗政策 但阻力重重
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1699618/)
+## 币安 被爆出“泄漏用户隐私”给中共
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1699684/)
 
-#### 翻译/撰稿：zzballack
+**台灣寶島農場 港台前線關注組｜發佈日期/ 27/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-07-14.32.38.jpeg)
+**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-18.jpg)图片来源：卫报
-据《布雷特巴特新闻网》（Breitbart News）11月26日报道，奥地利福拉尔贝格（Vorarlberg）地区的警察本周早些时候写了一封信，抨击奥地利政府的疫苗强制政策，并指控他们违背了其誓言，呼吁政府“恢复社会和平，停止分裂人群，并将个人权利交还给奥地利人民”。
+币安- Binance，是世界上交易量最大的加密货币交易所。近日被爆出“泄漏用户KYC资讯”给中国共产党及他国政府。KYC（Know your customer），是企业确认客户身份的程序，为符合所在地的金融法规范。
 
-信件作者还要求政府终止拟议的疫苗强制令。该命令定于2022年2月开始，未接种新冠疫苗的奥地利居民可能会因不接种疫苗而被罚款甚至监禁。但是福拉尔贝格州警察局新闻办公室的苏姗妮·迪尔普（Susanne Dilp）告诉奥地利最大报纸《王冠报》 (Kronen Zeitung)，她所在地区的警察领导层正式与这封信的内容保持距离，“这只是作者的个人意见，不代表警察总局”。
+## 币安泄个资 害用户被冠上“颠覆国家政权”罪名
 
-奥地利国家警察局（State Police Directorate）11月25日则直接指责写这封信的官员不支持政府的措施，违反了他们的誓言。“在建立雇佣关系时，我们都发誓要遵守奥地利共和国的法律，并忠实和认真地履行与该职位有关的所有职责。”据《王冠报》报道，该信的作者尚未确认。奥地利部分地区的警察部队的情况也“极其紧张”，他们被威胁如果不执行新冠有关法律将面临严重后果。
+据郭文贵于[直播](https://gettr.com/post/phpx9paffd)中公开表示有币安用户（化名：乐乐），共投资币安约2700万美元，乐乐于前段时间发现无法从币安提现，且当初与乐乐一同投资的人突然无法联系上，经询问后得知被（中共）警察以“非法购买海外数字货币”罪名逮捕 。
 
-奥地利11月22日开始对所有人实施封锁，无论其是否接种了疫苗。同时官方为了迫使人们接种疫苗，将对未接种者每月处以最高100欧元的罚款。
+据[新闻](https://www.upmedia.mg/news_info.php?SerialNo=125355)报导，中国共产党于9月发布新规范，对加密货币实施全面严格禁令，虚拟货币等相关业务都被算在“非法的金融活动”，这包括了交易、转帐、挖矿等所游行为。
 
-并非所有人都愿意成为作恶机器中的一环，但强推疫苗接种的黑暗势力太大了，实在是势单力薄。就像维迦诺大主教所说的那样，全球不配合疫苗暴政的良心人士应团结起来，组成反极权主义联盟，终结人类这一大灾难。
+郭文贵爆料，币安已经将所有的用户资料全部交给中国共产党，在中国三个月以前购买加密货币是合法的，但是中共发布了新规范导致购买加密货币属于经济犯罪，不仅是洗钱，更被定义为“涉嫌颠覆国家政权”。他呼吁曾经在币安拥有过个人帐户的使用者在所在地诉诸法律行动，特别是在中国境内的用户。
 
-新闻来源：[Austrian Police Officers Rebel Against Proposed Mandatory Vaccines: Claim](https://www.breitbart.com/europe/2021/11/26/austrian-police-officers-rebel-against-proposed-mandatory-vaccines/)
-
+## 爆料：币安是个大骗局
+[https://gettr.com/post/pi1zv55630](https://gettr.com/post/pi1zv55630)
+郭文贵爆料，在过去一个月以来，约20家银行机构因美国政府的要求，关闭了对币安的服务。且有大陆用户欲使用币安兑现，发现无法提现成功。他进一步表示，原因是中国共产党要求多国政府将大陆用户在币安帐户中的财产转移给中共。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/截圖-2021-11-27-下午5.30.49.png)[https://gettr.com/post/pi1zv55630](https://gettr.com/post/pi1zv55630)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Yellow-Black-Year-End-Report-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

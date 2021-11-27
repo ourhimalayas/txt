@@ -2,21 +2,28 @@
 ---
 
 
-## 纽约州紧急状态应对 Omicron 变体威胁
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1699454/)
+## 病毒超级变体成为中共持续强制疫苗的借口
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699479/)
 
-翻译/简评：意大利达芬奇农场    萧亦
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11271.png)图片来自The New York Times
-11 月 26 日-纽约州州长凯西·霍赫尔（Kathy Hochul）已宣布纽约州进入紧急状态，以应对新的冠病毒变种Omicron ，该变种也有可能已经到达美国。
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-46.jpg)[图片来源：图虫](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F13708%2Fproduction%2F_118742697_gettyimages-1232835602.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fscience-57529842&amp;tbnid=ATLRiC2L67UXhM&amp;vet=1)
+11月26日，世界卫生组织（WHO）召开紧急会议，评估中共病毒变体Omicron，变体Spike（S蛋白）拥有有30多种变化，与传染性增强和逃避感染阻断抗体的能力有关。
 
-Hochul 还解释说，这一决定与纽约州的一些感染病例有关，随着病例的增加现在已恢复到自去年 4 月以来从未有过的增长水平。
+中共官媒第一财经立即抛砖引玉：“每种病毒突变体的出现，大家关注的重点便是：疫苗是否有效？诊断试剂能否准确？药物研发方向是否需要改变？”
 
-该公告是在拜登政府禁止八个非洲国家进入美国之后发布的，目的是希望增加纽约医院的床位容量并解决医院人员短缺的问题。
+当然，打配合的世卫组织在声明中已经明确的是，通过比较评估，已证明Omicron变体在一定程度上会影响全球多项疫情防控：传染性增加或有害变化；临床疾病表现改变；公共卫生和社会措施或可用诊断、疫苗、疗法有效性降低。
 
-原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/27/stato-di-emergenza-a-ny-contro-minaccia-variante-omicron\_1e93b14a-b671-467b-a94a-9bca1c235776.html](https://www.ansa.it/sito/notizie/topnews/2021/11/27/stato-di-emergenza-a-ny-contro-minaccia-variante-omicron_1e93b14a-b671-467b-a94a-9bca1c235776.html)
+第一财经随即提出疫苗解决办法，“一位流行病毒学专家表示，中共国使用范围最广的灭活疫苗，可以通过替换疫苗毒株来应对中共病毒的变体。一旦Omicron变体流行势头抬起，随时可以替换新冠疫苗毒株。”
 
-责任编辑/发布：意大利达芬奇农场   萧亦
+完美的双簧，都是为了持续强制疫苗。中共病毒变体的出现，按逻辑必问，病毒和变体是什么，从何处来，会带来何种后果，才能谈到如何应对。而不是第一财经将舆论焦点人为转移至，疫苗是否有效等话题。但正是舆论的反智，表达了中共的真实意图，即替换疫苗毒株来应对中共病毒的变体。可以预见，继第三针之后，加强第四针，以变体之名，已在路上。
 
+信息来源：
+
+[新冠病毒“超级变体”出现？疫苗、药物和检测将有哪些影响](https://www.yicai.com/news/101242419.html)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,27 @@
 ---
 
 
-## 继上周后，澳洲人为抗议新冠疫苗强制令再次走上街头
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1699449/)
+## 中共在海南全面模拟试验数字人民币国际化使用场景
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699474/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/4-28.png)[图片来源](https://global.chinadaily.com.cn/a/202107/29/WS610201faa310efa1bd66528b.html)
+中共“参考消息网”11月25日报道，中共海南省政府近日印发的《海南省金融业“十四五”发展规划》称，将在全岛全域开展数字人民币试点，探索具有海南自由贸易港特色的数字人民币应用场景。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/5369-1.jpg)图片来源：www.theguardian.com
+规划称，依法依规加快建设海南国际清算所，建设国际知识产权交易所，规范探索知识产权证券化；推进国际能源、航运、产权、股权和大宗商品等交易场所国际化发展。
 
+报道称，加快落实海南自由贸易港法关于海南自由贸易港内经批准的金融机构可以通过指定账户或者在特定区域经营离岸金融业务的规定。允许已取得离岸银行业务资格的中资商业银行总行授权海南自由贸易港内分行开展离岸银行业务。
 
-#### 编译：小红帽
+从规划可知，中共已将海南这个离岛作为数字人民币国际化的试验场，全面模拟数字人民币国际清算，以及在能源、航运、产权、股权和大宗商品等交易场景的使用。可见，中共通过数字人民币国际化来狙击美元、掌控全球经济命脉的野心和行动，正在按步骤推进。
 
-周六，大批人群挤满了墨尔本中央商务区，以反对新冠疫苗强制令。同时，澳大利亚全国各地的抗议活动也在进行中。
+信息来源：
 
-大批的抗议者挤满了伯克街和春街，从议会大厦开始延伸出几个街区。大部分抗议活动是由强制接种疫苗引发的。
+[外媒关注：海南试点数字人民币支付](https://c.m.163.com/news/a/GPL2NH5O0514BQ68.html?spss=newsapp)
 
-维多利亚州政府声称，没有要求所有维州人强制接种新冠疫苗，尽管人们在进入许多场所、零售商店和参加活动时被要求先接种疫苗。
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
 
-同一时间，在悉尼和黄金海岸也发生了疫苗强制令抗议活动。抗议者聚集在昆士兰州的布罗德海滩，参加有组织的自由集会。参议员宝琳-汉森(Pauline Hanson)出席了集会并向人群发表了讲话。
-
-周六上午，数千人还聚集在悉尼的海德公园，并在街上游行。在这些抗议活动之前，上周末在澳大利亚各大城市也举行了类似的大型集会。
-
-**参考新闻：**[Australia protests: Anti-vax protesters take to streets for yet another week over vaccine mandates (9news.com.au)](https://www.9news.com.au/national/melbourne-protests-protesters-pack-melbourne-cbd-streets-outside-state-parliament-over-vaccine-mandates/5656f98e-a048-460a-8a52-aa815f4db7b4)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

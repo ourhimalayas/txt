@@ -2,28 +2,33 @@
 ---
 
 
-## 病毒超级变体成为中共持续强制疫苗的借口
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699479/)
+## 新冠病毒新变种Omicron在博茨瓦纳现身
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1699570/)
 
-撰稿：东京樱花团/知了知了
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-46.jpg)[图片来源：图虫](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F13708%2Fproduction%2F_118742697_gettyimages-1232835602.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fscience-57529842&amp;tbnid=ATLRiC2L67UXhM&amp;vet=1)
-11月26日，世界卫生组织（WHO）召开紧急会议，评估中共病毒变体Omicron，变体Spike（S蛋白）拥有有30多种变化，与传染性增强和逃避感染阻断抗体的能力有关。
+#### **【雅典娜快讯】紧贴时事脉搏**
 
-中共官媒第一财经立即抛砖引玉：“每种病毒突变体的出现，大家关注的重点便是：疫苗是否有效？诊断试剂能否准确？药物研发方向是否需要改变？”
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/台湾11-1.jpeg)图片来源：Newscenter
 
-当然，打配合的世卫组织在声明中已经明确的是，通过比较评估，已证明Omicron变体在一定程度上会影响全球多项疫情防控：传染性增加或有害变化；临床疾病表现改变；公共卫生和社会措施或可用诊断、疫苗、疗法有效性降低。
 
-第一财经随即提出疫苗解决办法，“一位流行病毒学专家表示，中共国使用范围最广的灭活疫苗，可以通过替换疫苗毒株来应对中共病毒的变体。一旦Omicron变体流行势头抬起，随时可以替换新冠疫苗毒株。”
+#### 翻译：Lish
+编辑：守望黎明
 
-完美的双簧，都是为了持续强制疫苗。中共病毒变体的出现，按逻辑必问，病毒和变体是什么，从何处来，会带来何种后果，才能谈到如何应对。而不是第一财经将舆论焦点人为转移至，疫苗是否有效等话题。但正是舆论的反智，表达了中共的真实意图，即替换疫苗毒株来应对中共病毒的变体。可以预见，继第三针之后，加强第四针，以变体之名，已在路上。
+博茨瓦纳政府就一种新的变异毒株发表声明。根据这份声明，这个排序为Omicron的新冠变种是首次被发现，它是在四个完全接种过疫苗的人身上被检测出来的。这种新的变体据称其传染性是原来的三倍，最初是在博茨瓦纳发现的，然后蔓延到南非。
 
-信息来源：
+这一消息引起了全球的震惊，导致金融市场暴跌，新的旅行禁令也被付诸实施。四起新变种的案例于11月22日被报告并记录。而且博茨瓦纳当局称：“初步报告显示，这四人都已完全接种了新冠疫苗。”
+在随后的一份声明中透露，新的变种“是在执行外交任务的四名外国公民身上检测出来的。他们2021年11月7日进入博茨瓦纳，11月11日准备回国时新冠检测呈阳性”。
 
-[新冠病毒“超级变体”出现？疫苗、药物和检测将有哪些影响](https://www.yicai.com/news/101242419.html)
+好的消息是，这几位感染者的密切接触者没有出现被传染的现象，新冠检测结果也都呈阴性。正如我们早些时候报道的那样，比利时的首相认定Omicron变种病毒具有潜在的巨大危险性，应该被称为 全新的“COVID-21”病毒。与此相反，南非的医疗主管安吉利克·库切 （Angelique Coetzee）博士则认为这种恐慌性说法是“夸大其词”，并坚持认为到目前为止“变种病毒的病例表现温和”。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+参考链接：[Omicron Variant First Detected in Four People Who Were Fully Vaccinated – Summit News](https://summit.news/2021/11/26/omicron-variant-first-detected-in-four-people-who-were-fully-vaccinated/)
+**发布：文泓**
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

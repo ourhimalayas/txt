@@ -2,28 +2,33 @@
 ---
 
 
-## 日本与加拿大外长一致强烈反对中共擅自改变现状
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1699086/)
+## 在三个国家发现 “比德尔塔（Delta）更糟糕 ”的新冠病毒菌株
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1699102/)
 
-#### 撰稿：日本东京方舟农场  海星
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/新毒.png)图片来源：世界新闻网
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/82D29B32-F770-4953-94A0-1CA643AA54F4.jpeg)（日本外长林芳正  图片来自路透社）
 
-11月26日，日本与加拿大外交部长在举行视频会议时一致表示，强烈反对中共通过武力和经济胁迫的手段擅自改变现状。
+**翻译：文杨
+编辑：Candy**
 
-据《产经新闻》报道，日本外交部长林芳正11月26日上午与加拿大外长乔利举行了视频会议。会上，双方一致强烈反对中共在东海和南海试图以武力和经济胁迫的手段擅自改变现状。
+科学家们正在敲响警钟：在世界不同地区的患者中，已经发现了可能是最为高度变种的冠状病毒毒株。 它对疫苗的抵抗力增加了人们的担忧。
 
-双方外长还表示，他们将在朝鲜的绑架问题以及核武器和导弹的开发问题上进行合作。
+最新已知的Covid-19 变种在其刺凸上发生了显著变化，这可能使其躲过疫苗的防护。 它可能是迄今为止变种程度最高的冠状病毒株，因为已经检测到了 32 个突变。 目前占主导地位、高度传播的 Delta 菌株至少有 11 个刺凸突变，它导致了今年全球病例的激增。
 
-*参考链接：[https://www.sankei.com/article/20211126-CT4WLXPX2BIDRHQCBU3DZV42WM/](https://www.sankei.com/article/20211126-CT4WLXPX2BIDRHQCBU3DZV42WM/)*
+最初是在博茨瓦纳（Botswana）的三名患者身上发现的，因此被称为“博茨瓦纳变体”。自11月11日首次感染以来，已经在三个国家发现了它。据英国媒体报道，在南非已经发现了六个病例，后来又有一个病例在香港登记。
 
-* * *
+这名香港患者最近从南非前往中国，这让科学家们处于高度戒备状态，因为这个新变种可能通过国际旅行传播到任何地方。 据说该患者还接种了两剂疫苗。
 
-*素材采编：海星*
+新闻链接[Covid strain ‘worse than Delta’ found in 3 countries — RT World News](https://www.rt.com/news/541279-botswana-variant-covid-mutation/)
 
-*编辑：青衣青青*
+***发布：Candy***
 
-*发布：miumiu*
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
