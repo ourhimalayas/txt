@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/27/2021 1:36 PM (UTC)`
+
+加拿大BC省24小时内出现了13个婴儿胎死腹中的情况；医院里80%-90%的死者都是接种过疫苗的<br/><br/>13 stillborn deaths within 24 hours in BC Canada；80%-90% of people who died in hospital were vax people 
+![img](https://media.gettr.com/group2/getter/2021/11/27/13/36/f783c939-4fff-dfda-a941-1b39a4d0c2aa/out.jpg)
+
+---
+
 `@miles 11/27/2021 1:21 PM (UTC)`
 
 澳国防部长达顿警告：为避免在印太地区发生冲突，澳大利亚必须警惕中共的军事规模和野心<br/><br/>Minister for Defence of Australia Peter Dutton warns: To avoid conflict in the Indo-Pacific region, Australia must stay alert for the CCP’s military scale and ambition<br/>
@@ -148,13 +155,6 @@ Dr. Vladimir Zev Zelenko, a Ukrainian born, Zionist, Chasidic JEW has been arres
 
 11/24/2021 Miles Guo: Wang Qishan arranged for Changpeng Zhao to attend the Bloomberg New Economy Forum to smear the Himalaya Coin; Zhao hides himself in Dubai to collude with the CCP’s intel agency; after the CCP brings down Binance, Zhao can take the users’ money for himself without having to be responsible for selling out their information to the CCP; Zhao’s ending will be the same as that of HNA’s Wang Jian<br/><br/>11/24/2021 文贵直播：王岐山安排赵长鹏参加彭博创新经济论坛来抹黑喜币；他藏身迪拜和中共情报机构勾兑；中共干掉币安后，他可将用户的钱据为己有且无需对出卖用户信息负责；他的结局将跟海航王健一样<br/><br/>
 ![img](https://media.gettr.com/group35/getter/2021/11/25/04/48/c0ac041d-09f2-08d7-7a8f-c86ca23c7e39/out.jpg)
-
----
-
-`@miles 11/25/2021 3:24 AM (UTC)`
-
-11/24/2021 Miles Guo: The COVID vaccine disaster has caused the recent frequent explosion, traffic accidents, the rising number of sick people, and the overloaded hospitals in Communist China; one person's accident due to the COVID vaccine side effects destroys the whole family, while it takes the entire social system to serve one person’s illness, and the secondary disaster of COVID vaccines will be more frightening than the vaccines<br/><br/>11/24/2021 文贵直播：疫苗灾难导致中共国近期爆炸和交通事故频发、染病人数攀升、医院爆满；一人出事毁全家，一人生病则要整个社会系统为之服务，疫苗的次生灾难将比疫苗更可怕<br/>
-![img](https://media.gettr.com/group35/getter/2021/11/25/03/53a72954-e455-4600-2977-b37f290800d3/out.jpg)
 
 ---
 

@@ -2,27 +2,37 @@
 ---
 
 
-## 由于疫情爆发，上海医院停止收治急诊病人
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1699767/)
+## 澳人权委员会专员对政府强制推行疫苗接种发出警告
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1699779/)
 
-韩国首尔天池农场
-翻译：brandnew
-校对：zzballack
-上传：追着曙光跑
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-27-at-20.44.21.jpeg)图片来源：原新闻
-据《布雷特巴特新闻网》11月26日援引中共官媒《环球时报》报道，11月25日在上海医疗服务人员中发现了三例新冠病例后，上海 20 多家医院于11月26日被要求“暂停门诊和紧急医疗服务”，以“进行防疫和筛查”。
+**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Untitled555555.png)图片来源：Corporate Cultural Diversity
+**整理报道：**月映万川
+**编辑：**翼族
 
-当地卫生官员说：“医院将每隔24小时进行两轮核酸检测。如果核酸检测结果全部为阴性，预计相关医院将从11月27日上午开始恢复医疗服务。”
+作为颇受争议的人权委员会新任领导洛林·芬利，她在周三首次打破沉默，并向制定新冠疫苗规则的澳大利亚立法者们传递了一个震惊的信息。
 
-上海市卫健委副主任陆韬宏11月26日告诉记者：“多家医院将实行闭环管理，主要是因为三个确诊病例的密切接触者众多，涉及工作场所、生活居所、文化活动以及各种交通工具。”
+在与6PR电台的访谈中，新任专员向政府警告称，当政府在全国推出更为广泛的疫苗强制令时，一定要“更加小心”。
 
-“闭环管理”一词是中共政府在新冠大流行之初创造的。省级卫生官员使用该术语来描述他们在新冠爆发后实施强制隔离的地点或者希望防止病毒传播的设施。根据微博信息，在隔离期间，所有与“闭环管理”所处地点有关联的员工和人员必须“严格限定在指定区域内活动”。如果当局在某个地点建立了“闭环管理系统”以防止病毒传播，那么该设施将被视为“生物安全泡沫”，进出活动将受到严密监控。
+“一方面，政府绝对可以限制个人权利来保护公共卫生安全，但是，这些都是要权衡更多的方面，不能歧视并且要适度，”芬利女士说，“这真的是一条精密的界限，并且，一直保持平衡也很重要。”
 
-“除了医院关闭之外，部分交通受到了影响。根据航空信息查询平台飞常准的数据，截至11月26日上午10点，上海浦东国际机场超过30%的航班被取消。”
+芬利女士强调，虽然在Covid-19大流行之前，澳大利亚就有针对性的疫苗任务，但对全体人口进行疫苗接种一直是未被提及的。
 
-中共国最新一轮的新冠疫情始于10月17日，并很快蔓延至全国。中共官方的说法是，10 月中上旬，一个上海旅行团前往内蒙古自治区的港口城市额济纳旗时，该旅行团的一些成员感染了新冠病毒，随后爆发了疫情。尽管中共官员尚未拿出任何证据，但北京方面坚持声称，不明来源的境外输入渠道导致旅行团感染。
+她说，“强制令对于我们不是一个新概念。但是，需要确保强制令以风险为考量，而不是简单一刀切的行政命令，这是非常重要的。”
 
-新闻来源：[Coronavirus: Shanghai Hospitals Stop Taking Emergency Patients](Shanghai%20Hospitals%20Stop%20Taking%20Emergency%20Patients)
+“你需要平衡个人自主决定的权力，与广泛的公共卫生权力之间的冲突。”
+
+芬利女士做出的这番言论，正值联邦政府与州政府在疫苗问题上紧张对立时。
+
+**原文链接：** [Controversial new human rights boss warns government about vaccine mandates](https://www.news.com.au/national/politics/controversial-new-human-rights-boss-warns-government-about-vaccine-mandates/news-story/1da23f582124ec8abf46081e43e20edf)
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

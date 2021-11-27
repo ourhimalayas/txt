@@ -2,37 +2,35 @@
 ---
 
 
-## 澳人权委员会专员对政府强制推行疫苗接种发出警告
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1699779/)
+## 刚与中共建交不久的所罗门群岛再次发生严重暴力排华事件
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1699812/)
 
-**澳洲新闻时事动态，尽在雅典娜【澳洲热点】**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Untitled555555.png)图片来源：Corporate Cultural Diversity
-**整理报道：**月映万川
-**编辑：**翼族
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-401.jpeg)
+撰文：台湾宝岛农场 快慢机
 
-作为颇受争议的人权委员会新任领导洛林·芬利，她在周三首次打破沉默，并向制定新冠疫苗规则的澳大利亚立法者们传递了一个震惊的信息。
+所罗门群岛当地时间11月24日，在首都霍尼亚拉爆发了大规模反政府抗争活动，此后的数小时内，局势便开始急剧升温失控，随即演变成了一场指向当地中国城为目标的暴力排华事件！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-402.jpeg)
+据悉，引发这次所罗门群岛首都霍尼亚拉大规模暴力抗争排华事件的导火索，是有关于该国新任政府在2019年与中共国建立正式外交关系，并随即与台湾断交的决议所引发。自当地时间11月24是爆发大规模反政府抗争活动的数小时内，在该国首都已经聚集了数千名抗议人群，愤怒的民众试图冲击国会大厦，并在此过程中焚毁了警局及其周边的数所建筑。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-403.jpeg)
+当地政府随即在24日宣布的首都封城及宵禁的紧急状态戒严令，期望以此可以控制并缓和已濒临失控的危机形势。但在该戒严令发布后的36小时内，首都的大规模抗争活动并未得到有效控制，反而进一步演变成了一场，针对当地唐人街的严重暴力排华性事件。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-404.jpeg)
+数以千计愤怒的示威人群，根本无视当地政府所颁布的紧急状态戒严令，在试图冲击国会大厦未果后，便把怒火倾泻向了，首都华人最为集中的唐人街区域，至此，原本的反政府抗议活动，随即便演变成了一场针对性极强的暴力排华事件。当地唐人街的主要街区及警局与商超等，全部成为了暴力袭击的目标。大量该区域内的建筑物被不同程度的损毁破坏，甚至部分已经被纵火焚烧毁坏殆尽。滚滚浓烟弥漫开来，大量暴徒四处游荡，情势十分危急。
 
-在与6PR电台的访谈中，新任专员向政府警告称，当政府在全国推出更为广泛的疫苗强制令时，一定要“更加小心”。
+然而，这并非是所罗门群岛所发生的首次大规模排华事件。2006年，当地政府刚刚选举后不久，因涉及台中两岸关系等问题，就曾爆发过一场严重的大规模暴力排华骚乱事件，过程中的首都霍尼亚拉当地中国城的大部分建筑设施，都在暴力袭击骚乱中被夷为平地。那次大规模暴力排华事件的导火索被认为是怀疑，具有深厚中资背景的当地企业，利用非法手段暗中操控了当地政府的选举过程所引发。
 
-“一方面，政府绝对可以限制个人权利来保护公共卫生安全，但是，这些都是要权衡更多的方面，不能歧视并且要适度，”芬利女士说，“这真的是一条精密的界限，并且，一直保持平衡也很重要。”
+“郭先生”此前曾在直播视频中不只一次强调过，中共病毒疫苗的灾难还没有大规模开始，全球严峻的排华浪潮正在不断加剧，我们新中国联邦及爆料革命，仅仅把中国人与中共区分开，是远远不够的。当年印尼的血腥暴力排华惨境，要时刻警醒着我们每一位华人，尤其是身在海外的同胞们，抱团取暖，自助互救，传播灭共真相，是我们唯一可以有效避开，成为暴力排华攻击目标的最佳选择。灭共不仅是你我的使命，更是我们获得安全、自由、民主、法制的必经之路。
 
-芬利女士强调，虽然在Covid-19大流行之前，澳大利亚就有针对性的疫苗任务，但对全体人口进行疫苗接种一直是未被提及的。
+此文仅代表笔者个人观点！
 
-她说，“强制令对于我们不是一个新概念。但是，需要确保强制令以风险为考量，而不是简单一刀切的行政命令，这是非常重要的。”
+资料链接：[https://www.dw.com/zh/%E6%89%80%E7%BD%97%E9%97%A8%E7%88%86%E6%BF%80%E7%83%88%E6%8A%97%E4%BA%89-%E4%B8%BA%E4%BD%95%E4%B8%A4%E5%B2%B8%E8%AE%AE%E9%A2%98%E6%88%90%E5%AF%BC%E7%81%AB%E7%BA%BF/a-59927994](https://www.dw.com/zh/%E6%89%80%E7%BD%97%E9%97%A8%E7%88%86%E6%BF%80%E7%83%88%E6%8A%97%E4%BA%89-%E4%B8%BA%E4%BD%95%E4%B8%A4%E5%B2%B8%E8%AE%AE%E9%A2%98%E6%88%90%E5%AF%BC%E7%81%AB%E7%BA%BF/a-59927994)
 
-“你需要平衡个人自主决定的权力，与广泛的公共卫生权力之间的冲突。”
+* * *
 
-芬利女士做出的这番言论，正值联邦政府与州政府在疫苗问题上紧张对立时。
-
-**原文链接：** [Controversial new human rights boss warns government about vaccine mandates](https://www.news.com.au/national/politics/controversial-new-human-rights-boss-warns-government-about-vaccine-mandates/news-story/1da23f582124ec8abf46081e43e20edf)
-
-*发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+***更多资讯***
+[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
  
 

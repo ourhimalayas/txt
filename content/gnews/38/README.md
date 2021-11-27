@@ -2,46 +2,28 @@
 ---
 
 
-## 停止疫苗灾难和没让战友们打疫苗新中国联邦的最大资产
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1699437/)
+## 中共政府无视百姓疾苦，“大撒币”免除他国贷款
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699461/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/media_E2G7QPTWQAcOGIB_副本.jpg)
-据[2021年11月26日 文贵大直播：再谈青蒿素病毒疫苗解药；感恩节五千万人旅行后果；近日币安数字货币大变；喜币价值新中国联邦实力](https://gtv.org/video/id=61a0daac44c1fe7a6c39814d)时间点2：41：12——
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-183.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fimg.sputniknews.cn%2Fimages%2F103015%2F27%2F1030152792.jpg&amp;imgrefurl=http%3A%2F%2Fhanfeng1918.com%2Fnews%2F21449.html&amp;tbnid=REIlUWSv6pHuLM&amp;vet=12ahUKEwjj16PF77f0AhVxnksFHYSdBPkQMygNegUIARDIAQ..i&amp;docid=UOw2Qv5XmOoBEM&amp;w=1000&amp;h=541&amp;q=%E5%A4%96%E4%BA%A4%E9%83%A8&amp;ved=2ahUKEwjj16PF77f0AhVxnksFHYSdBPkQMygNegUIARDIAQ#imgrc=REIlUWSv6pHuLM&amp;imgdii=gtiu1lPqRbA7VM)
+11月26日，中共国国务院新闻办公室发布《新时代的中非合作》白皮书，并举行新闻发布会。
 
-**郭文贵先生：**兄弟姐妹们，这就是疫苗灾难即将到来的一切，你把这四个问题搞明白了，兄弟姐妹们，你就活明白了，所以说世界的疫苗一定会被停止，而且它把世界一分为二。最后现在是三分之二的人会反他们，另外一个一半的人，三分之二的人被打了疫苗将是一个绝对的力量找他们算账。
+外交部非洲司司长吴鹏介绍，近年来非洲积极致力于促进社会发展，但资金不足成为制约非洲振兴的一个主要瓶颈。作为非洲真诚友好的伙伴，中方高度重视非洲在资金方面的需求，同时也非常重视他们的债务可持续性，坚持集约发展的理念，尊重非洲人民的意愿，立足非洲的实际，同非方开展务实高效的融投资合作，得到了非洲国家一致欢迎。
 
-你担心啥？咱是这两边都不是。我们也不是被打疫苗的，我们也不是让你打疫苗了，我们新中国联邦是在完全的第三派。两边都得爱我们，你觉得新中国联邦的力量有多大？
+由于中共病毒疫情的暴发，非洲一些国家陷入了一些临时、暂时的困难。中共国支持减轻非洲国家的债务负担，积极落实20国集团暂缓最贫困国家债务偿付的倡议，在G20成员中，中共国是缓债金额最大的，已经同19个非洲国家签署了缓债协议和共识。中共国支持G20缓债倡议延期到2021年底，并同有关国家一道落实缓债倡议后续债务处理的共同框架。
 
-我再重申一遍，如果你加入爆料革命、新中国联邦，你最感恩的绝对不是什么币，就是币今天变成四万个亿，你也不要感激，你一定要感激新中国联邦、感恩新中国联邦让你没打疫苗，你一定记住这话。新中国联邦在人类历史上最牛的就是没让大家打疫苗。（大家鼓掌），其他的都可以忘记，什么海航、1120你都忘记，比灭共还大。
+吴鹏介绍，对于疫情特别重、压力特别大的国家，中共国同有关方一道通过个案处理的方式，提供了很多债务减缓方面的支持。中共国已宣布免除与中共国有外交关系的非洲最不发达国家、重债穷国、内陆发展中共国家、小岛屿国家，截止到2018年底到期未偿付的政府间的无息贷款。中共病毒疫情暴发以后，中共国宣布免除15个非洲国家到2020年底的无息贷款。
 
-如果你死了，你灭共有什么用对你？你没用。别跟我说你伟大，能灭共我宁可死，你为了灭共宁可死，和你现在说你死了以后灭共重要，这是完全不同的概念，兄弟姐妹们。对待每个人你活着比灭共重要，它是绝对的，它是一，它是绝对的一。它不存在相对关系，不存在因果关系。现在让大家能活下来那比你灭共重要，要不然你灭共干什么？
+在中共国内的老百姓，因中共病毒疫情严重影响收入，同时又要背负各种贷款，看到这条新闻，内心都是几万只羊驼在飞奔，老百姓去银行贷款都是高利息的，无息贷款更不可能，不管遭受多大的灾害都没有被免除过利息，更不要说连贷款都被免除了， “宁与外邦，不予家奴”在中共国内老百姓活的连家奴都不如。
 
-所以说今天你这个问题之好，疫苗灾难一定被停止，它是我们新中国联邦最大的资产，新中国联邦人最要感恩的是新中国联邦没让你打疫苗，而且给了你解药。这就是我们天助新中国联邦。
+消息来源:
 
-（以下暂略）
+**[外交部：新冠肺炎疫情暴发以后，中国宣布免除15个非洲国家到2020年底无息贷款](https://finance.sina.com.cn/jjxw/2021-11-26/doc-ikyamrmy5182797.shtml)**
 
-撰稿：喜马拉雅的肉夹馍；
-
-审核：喜马拉雅的馍夹肉；
-
-校对：Maarago；
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,30 @@
 ---
 
 
-## 英国殡仪馆馆长谈大流行初期的恐惧宣传和Covid疫苗死亡
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1699682/)
+## 班农提出动议 要求公开法庭案件中的所有文件
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1699695/)
 
-**翻译： Jenny Ball**
+**编译：Jenny Ball**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip80.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip81.png)调查 1 月 6 日在国会大厦发生的未遂叛乱的众议院特别委员会面临着与前特朗普政府官员的艰苦战斗。 （布莱尔公会/华盛顿邮报）
 
-在“捍卫者”播客的最新一集中，英国殡仪馆馆长约翰·奥鲁尼 (John O’Looney) 与儿童健康保护主席小罗伯特·肯尼迪 (Robert F. Kennedy, Jr.) 谈论了他在英国 COVID 大流行前线工作时所目睹的情况。
+前川普白宫顾问斯蒂夫·班农 (Stephen K. Bannon) , 已向美国地方法院提出反对标准的发现保护令，该命令禁止任何一方公开发布文件或证据。
 
-奥鲁尼告诉肯尼迪，英国媒体如何歪曲 COVID 以吓唬公众，如何在养老院过度使用强效镇静剂，**以及如何在未经同意的情况下给患者下不复苏 (DNR) 命令**。
+67 岁的班农上周对藐视国会的指控表示不认罪，他的法律团队此前争辩道，如果同意检方的发现保护令，案件会更加复杂。
 
-奥鲁尼描述了在大流行的早期，BBC 联系他进行采访，然后将采访变成了传播恐惧的宣传片。他说这位 BBC 记者花了 20 分钟考虑她“想让 [他] 说的话。”
+律师代表班农向《华盛顿邮报》提供的一份声明说：“公众应该根据所有事实，才能对美国司法部是否致力于公正做出他们自己的独立判断。”“在今天提出的反对意见中，班农先生要求法官遵循正常程序，并允许不受限制地访问和使用文件。”
 
-“[BBC] 让我穿上全套个人防护装备和口罩，**这不是我通常会做的事情**，”他说。
+美国助理检察官阿曼达·沃恩（Amanda R. Vaughn）表示，将提供“少于 20 份文件”，但班农律师埃文·科克兰（Evan Corcoran）告诉记者，辩方可能需要找到更多文件和证人。
 
-奥鲁尼告诉肯尼迪，作为一名葬礼承办人，他目睹了许多被错误标记为 COVID 死亡的死亡事件。例如，他回忆起一名男子“被汽车撞倒并[死亡]，从头到肩有轮胎痕迹”的案例。 奥鲁尼说，把这名男子的死亡归因于 COVID。
+班农的法律团队称，政府没有提供任何理由不让公众看到这些文件，并补充说，在本案中，许多受拟议保护令限制的文件已经公开。
 
-奥鲁尼说，养老院将强效镇静剂咪达唑仑用于老年人。通过英国相当于《信息自由法》的要求，奥鲁尼发现，在大流行期间，英国政府购买的咪达唑仑增加了 300% 至 1,000%。
+“政府没有提供任何理由限制班农先生的律师使用这些文件准备辩护，”班农的声明说。
 
-**在美国，该药物用于国家批准的致命注射**。
+班农拒绝遵守调查 1 月 6 日国会大厦袭击事件的众议院特别委员会的命令，以提供有关他在袭击前的行为的记录和证词。委员会有兴趣就 1 月 6 日之前一周内，班农在威拉德酒店的活动向他提问。
 
-**奥鲁尼讨论了在英国 COVID 高峰期，DNR 命令在未经患者同意或患者家属同意的情况下发给 COVID 患者**。
+**评论：所有伟人都是经历的巨大的磨难，如果班农先生没有在中共渗透和控制的美国司法走一遭，他永远不会真切地认识到中共对美国影响的灾难到了什么程度！不在痛苦中生，必将在痛苦中亡！**
 
-英国媒体报道称，这些 DNR 命令，主要发给那些有学习障碍和其他障碍的人。
-
-奥鲁尼驳斥了他“反疫苗”的说法，称他“一生都接种过所有疫苗，但 COVID 疫苗除外，因为我亲眼目睹了它造成的损害。”
-
-奥鲁尼还告诉肯尼迪**，他看到了 COVID 疫苗接种后“前所未有”的死亡人数**。
-
-**新闻来源**：[childrenshealthdefense.org][British Funeral Director Tells RFK, Jr. About Fear, Propaganda and COVID Vaccine Deaths During Early Days of Pandemic](https://childrenshealthdefense.org/defender/rfk-jr-podcast-john-olooney-fear-propaganda-covid-vaccine-deaths/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=6af43039-1a83-42cc-9e99-e3b547ebc88f)
+**新闻来源**：[washingtonpost.com][Stephen K. Bannon files motion to request all documents in court case be made public](https://www.washingtonpost.com/politics/stephen-k-bannons-lawyers-file-opposition-to-keeping-documents-from-being-released/2021/11/25/29889174-4e3e-11ec-b73b-a00d6e559a6e_story.html?utm_campaign=wp_post_most&amp;utm_medium=email&amp;utm_source=newsletter&amp;wpisrc=nl_most&amp;carta-url=https%3A%2F%2Fs2.washingtonpost.com%2Fcar-ln-tr%2F3561315%2F61a114979d2fdab56ba15957%2F5e2dde419bbc0f6326309bfd%2F39%2F72%2F61a114979d2fdab56ba15957)
 
 * * *
 
@@ -40,6 +34,8 @@
 发布：信心满满***
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+
+
 
  
 

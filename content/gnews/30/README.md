@@ -2,24 +2,44 @@
 ---
 
 
-## 奥地利部分警察呼吁政府终止强制疫苗政策 但阻力重重
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1699618/)
+## 英国殡仪馆馆长谈大流行初期的恐惧宣传和Covid疫苗死亡
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1699682/)
 
-#### 翻译/撰稿：zzballack
+**翻译： Jenny Ball**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-18.jpg)图片来源：卫报
-据《布雷特巴特新闻网》（Breitbart News）11月26日报道，奥地利福拉尔贝格（Vorarlberg）地区的警察本周早些时候写了一封信，抨击奥地利政府的疫苗强制政策，并指控他们违背了其誓言，呼吁政府“恢复社会和平，停止分裂人群，并将个人权利交还给奥地利人民”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip80.png)
 
-信件作者还要求政府终止拟议的疫苗强制令。该命令定于2022年2月开始，未接种新冠疫苗的奥地利居民可能会因不接种疫苗而被罚款甚至监禁。但是福拉尔贝格州警察局新闻办公室的苏姗妮·迪尔普（Susanne Dilp）告诉奥地利最大报纸《王冠报》 (Kronen Zeitung)，她所在地区的警察领导层正式与这封信的内容保持距离，“这只是作者的个人意见，不代表警察总局”。
+在“捍卫者”播客的最新一集中，英国殡仪馆馆长约翰·奥鲁尼 (John O’Looney) 与儿童健康保护主席小罗伯特·肯尼迪 (Robert F. Kennedy, Jr.) 谈论了他在英国 COVID 大流行前线工作时所目睹的情况。
 
-奥地利国家警察局（State Police Directorate）11月25日则直接指责写这封信的官员不支持政府的措施，违反了他们的誓言。“在建立雇佣关系时，我们都发誓要遵守奥地利共和国的法律，并忠实和认真地履行与该职位有关的所有职责。”据《王冠报》报道，该信的作者尚未确认。奥地利部分地区的警察部队的情况也“极其紧张”，他们被威胁如果不执行新冠有关法律将面临严重后果。
+奥鲁尼告诉肯尼迪，英国媒体如何歪曲 COVID 以吓唬公众，如何在养老院过度使用强效镇静剂，**以及如何在未经同意的情况下给患者下不复苏 (DNR) 命令**。
 
-奥地利11月22日开始对所有人实施封锁，无论其是否接种了疫苗。同时官方为了迫使人们接种疫苗，将对未接种者每月处以最高100欧元的罚款。
+奥鲁尼描述了在大流行的早期，BBC 联系他进行采访，然后将采访变成了传播恐惧的宣传片。他说这位 BBC 记者花了 20 分钟考虑她“想让 [他] 说的话。”
 
-并非所有人都愿意成为作恶机器中的一环，但强推疫苗接种的黑暗势力太大了，实在是势单力薄。就像维迦诺大主教所说的那样，全球不配合疫苗暴政的良心人士应团结起来，组成反极权主义联盟，终结人类这一大灾难。
+“[BBC] 让我穿上全套个人防护装备和口罩，**这不是我通常会做的事情**，”他说。
 
-新闻来源：[Austrian Police Officers Rebel Against Proposed Mandatory Vaccines: Claim](https://www.breitbart.com/europe/2021/11/26/austrian-police-officers-rebel-against-proposed-mandatory-vaccines/)
+奥鲁尼告诉肯尼迪，作为一名葬礼承办人，他目睹了许多被错误标记为 COVID 死亡的死亡事件。例如，他回忆起一名男子“被汽车撞倒并[死亡]，从头到肩有轮胎痕迹”的案例。 奥鲁尼说，把这名男子的死亡归因于 COVID。
+
+奥鲁尼说，养老院将强效镇静剂咪达唑仑用于老年人。通过英国相当于《信息自由法》的要求，奥鲁尼发现，在大流行期间，英国政府购买的咪达唑仑增加了 300% 至 1,000%。
+
+**在美国，该药物用于国家批准的致命注射**。
+
+**奥鲁尼讨论了在英国 COVID 高峰期，DNR 命令在未经患者同意或患者家属同意的情况下发给 COVID 患者**。
+
+英国媒体报道称，这些 DNR 命令，主要发给那些有学习障碍和其他障碍的人。
+
+奥鲁尼驳斥了他“反疫苗”的说法，称他“一生都接种过所有疫苗，但 COVID 疫苗除外，因为我亲眼目睹了它造成的损害。”
+
+奥鲁尼还告诉肯尼迪**，他看到了 COVID 疫苗接种后“前所未有”的死亡人数**。
+
+**新闻来源**：[childrenshealthdefense.org][British Funeral Director Tells RFK, Jr. About Fear, Propaganda and COVID Vaccine Deaths During Early Days of Pandemic](https://childrenshealthdefense.org/defender/rfk-jr-podcast-john-olooney-fear-propaganda-covid-vaccine-deaths/?utm_source=salsa&amp;eType=EmailBlastContent&amp;eId=6af43039-1a83-42cc-9e99-e3b547ebc88f)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
 
  
 
