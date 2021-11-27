@@ -2,30 +2,28 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月27日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1700740/)
+## 日本为防范新变异株Omicron对非洲9国实行强化入境管制
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1700826/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-8.png)
+#### **撰稿：**日本东京方舟农场 Kevin wang
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-28.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2021/11/0B676247-4AF3-4018-97C5-CF1B3607EB0A.jpeg)（图片来自Unsplash图库）
 
-视频参看：2021.11.27早GTV新闻访谈
+11月27日，日本政府紧急宣布，从27日零时起，强化对非洲南部6国的入境管制。随后，日本政府又宣布于28日零时起，再新增莫桑比克等3个非洲国家。
 
-[https://gtv.org/broadcast/watch/61a2325044c1fe7a6c3a355b](https://gtv.org/broadcast/watch/61a2325044c1fe7a6c3a355b)
+据《中央社》报道，日本为防范可能对疫苗具有抗药性的中共病毒新变异株Omicron，紧急宣布从27日零时起，针对南非、纳米比亚、津巴布韦、博茨瓦纳、莱索托王国以及史瓦帝尼王国等非洲南部6国，实行强化入境管制措施。从这6国入境或返日人士，须在指定场所隔离10天。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+随后，日本政府又宣布，自28日零时起，再新增莫桑比克等3国。至此，日本实行强化管制入境措施的对象国总计为9国。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-7.jpg)
+*参考链接： [https://www.cna.com.tw/news/aopl/202111270151.aspx](https://www.cna.com.tw/news/aopl/202111270151.aspx)*
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+* * *
+
+*素材采编：Kevin wang*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
 
  
 

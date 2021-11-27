@@ -2,29 +2,34 @@
 ---
 
 
-## 有声|美国驳回中国电信继续在美国运营的申请
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1700376/)
+## 各界质疑中共人权劣迹官员任国际刑警执委
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1700458/)
 
-配音：香草山教育部 – 蒙古鸿雁
-![This image has an empty alt attribute; its file name is image-40-1-11.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月24日，美国联邦通信委员会（FCC）要求联邦上诉法院驳回中国电信公司要求继续在美国提供服务的申请。此前，美国电信监管机构于10月26日下令中国电信在1月初停止其在美国的服务，并撤销了其运营授权。
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月25日，据国际刑警组织宣布的消息显示，中共公安部副局长胡彬郴当选该组织执委会委员。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-27-下午11.20.36.png)
+据了解，在侵犯人权以及镇压不同政见者方面，胡彬郴存在很大污点。为此，胡彬郴此次的任职受到国际社会的强烈质疑。
 
-联邦通信委员会说，中国电信“受到中共国政府的剥削、影响和控制，极有可能在没有充分的法律程序、接受独立司法监督的情况下，被迫遵守中共国政府的要求。”
+由多个国家和党派组成的“对华跨国议会联盟”致函国际刑警组织表示，允许胡彬郴进入执委会就是向中共政府继续滥用国际刑警组织的行为大开绿灯。同时，此举会让成千上万生活在海外的香港、维吾尔、西藏、台湾和中共国异议人士身处更大的危险之中。
 
-处于国家安全考虑，美国联邦通信委员会在3月，先后撤销了中共国联通美洲公司、太平洋网络公司及其全资子公司ComNet在美国提供电信服务的授权。2019年5月，委员会一致投票否决中共国国有电信公司——中国移动有限公司提供美国服务的权利。并在去年认定华为技术公司和中兴通讯公司为对美国通信网络的国家安全威胁。
+该联盟警告国际刑警组织，倘若继续作为中共压迫政策的工具，将对其国际地位造成严重损害。
 
-文字版原文：[美国驳回中国电信继续在美国运营的申请](https://gnews.org/zh-hans/1695103/)
+参考链接：[两名存在人权污点的官员当选国际刑警组织主席和执委](https://www.voachinese.com/a/Chinese-official-wins-key-interpol-post-despite-backlash-from-MPS-across-globe-20211125/6327780.html)
 
-音频处理：喜山必胜Maverick
-发稿：呼吸的雾霾（文小呼吸）
-![This image has an empty alt attribute; its file name is image-10.png](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+
+总编：Irene木木
+编辑：Kathy文艺
+校正/发稿：呼吸的雾霾（文小呼吸）
+
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
