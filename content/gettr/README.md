@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/27/2021 1:46 PM (UTC)`
+
+NBA球员埃内斯·坎特：我需要成为那些无法发声的无辜者的代言人；派运动员参加中共冬奥会是一种耻辱，发生在中共国的事情100%是种族灭绝。<br/>NBA player Enes Kanter: I need to be the voice of all those innocent people out there who don't have a voice. It is a shame to send athletes to Beijing Olympics, what has happened over there in China, it is 100% genocide.
+![img](https://media.gettr.com/group13/getter/2021/11/27/13/46/0adcd99e-6b10-536d-8abc-a64dc3e3015c/out.jpg)
+
+---
+
 `@miles 11/27/2021 1:36 PM (UTC)`
 
 加拿大BC省24小时内出现了13个婴儿胎死腹中的情况；医院里80%-90%的死者都是接种过疫苗的<br/><br/>13 stillborn deaths within 24 hours in BC Canada；80%-90% of people who died in hospital were vax people 
@@ -148,13 +155,6 @@ Dr. Vladimir Zev Zelenko, a Ukrainian born, Zionist, Chasidic JEW has been arres
 
 11/24/2021 Miles Guo: It is a tragedy for the Chinese that Hu Shuli, a criminal, is considered as an intellectualist; Fang Zhouzi, Sima Nan, and Hu Xijin are the scum of the Chinese people, causing the Chinese to be excluded and hated, and they are attacking Liu Chuanzhi; the New Federal State of China will let the people try these scumbags<br/><br/>11/24/2021 文贵直播：犯罪分子胡舒立却被成为”公知”是中国人的悲哀；方舟子、司马南、胡锡进是民族的败类，他们导致了中国人被排华和仇视，并攻击柳传志；新中国联邦未来将让人民对这些败类进行公审
 ![img](https://media.gettr.com/group5/getter/2021/11/25/04/53/cc3b1800-8356-c3d6-0d0f-fc8bf91fcf16/out.jpg)
-
----
-
-`@miles 11/25/2021 4:48 AM (UTC)`
-
-11/24/2021 Miles Guo: Wang Qishan arranged for Changpeng Zhao to attend the Bloomberg New Economy Forum to smear the Himalaya Coin; Zhao hides himself in Dubai to collude with the CCP’s intel agency; after the CCP brings down Binance, Zhao can take the users’ money for himself without having to be responsible for selling out their information to the CCP; Zhao’s ending will be the same as that of HNA’s Wang Jian<br/><br/>11/24/2021 文贵直播：王岐山安排赵长鹏参加彭博创新经济论坛来抹黑喜币；他藏身迪拜和中共情报机构勾兑；中共干掉币安后，他可将用户的钱据为己有且无需对出卖用户信息负责；他的结局将跟海航王健一样<br/><br/>
-![img](https://media.gettr.com/group35/getter/2021/11/25/04/48/c0ac041d-09f2-08d7-7a8f-c86ca23c7e39/out.jpg)
 
 ---
 
