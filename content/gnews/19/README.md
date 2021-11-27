@@ -2,23 +2,15 @@
 ---
 
 
-## 樱花灭共诗——化龙（新韵）
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699773/)
+## 硫酸羟氯喹EUA仅用于住院病人而不能试用，导致数百万人死亡
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1699802/)
 
-#### 作者：东京樱花团/曲非烟
-![](https://assets.gnews.org/wp-content/uploads/2021/07/%E5%9B%BE%E7%89%871-7-scaled.jpg)
-大泽鱼腹绢，芒砀白蛇踪。
+制作：peacelv
 
-斩木为兵起，揭竿作影从。
+发稿：信心的选择
 
-天机凭势造，人怨怒潮汹。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
 
-盘古乘时运，随风即化龙。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-185.jpg)
-*插图：东京樱花团/闪闪*
-*校对：东京樱花团/知了知了
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
