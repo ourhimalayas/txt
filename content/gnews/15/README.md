@@ -2,41 +2,45 @@
 ---
 
 
-## 班农提出动议 要求公开法庭案件中的所有文件
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1699695/)
+## 中共病毒新变种来势凶猛 引发全球恐慌
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1699772/)
 
-**编译：Jenny Ball**
+**By:秘翻新闻**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip81.png)调查 1 月 6 日在国会大厦发生的未遂叛乱的众议院特别委员会面临着与前特朗普政府官员的艰苦战斗。 （布莱尔公会/华盛顿邮报）
+***2021-11-27***
+[![](https://assets.gnews.org/wp-content/uploads/2021/11/1127.png)](https://gtv.org/broadcast/watch/61a1f3f444c1fe7a6c3a28de)点击图片观看视频
+**新闻摘要:**
 
-前川普白宫顾问斯蒂夫·班农 (Stephen K. Bannon) , 已向美国地方法院提出反对标准的发现保护令，该命令禁止任何一方公开发布文件或证据。
+1. 上海疫情升温 23家医院紧急停诊 涉江苏浙江厦门
 
-67 岁的班农上周对藐视国会的指控表示不认罪，他的法律团队此前争辩道，如果同意检方的发现保护令，案件会更加复杂。
+2. 中共保险业者疑因疫苗停售儿童白血病保险
 
-律师代表班农向《华盛顿邮报》提供的一份声明说：“公众应该根据所有事实，才能对美国司法部是否致力于公正做出他们自己的独立判断。”“在今天提出的反对意见中，班农先生要求法官遵循正常程序，并允许不受限制地访问和使用文件。”
+3. 煤炭供应紧张 山西朔州出现“煤票”
 
-美国助理检察官阿曼达·沃恩（Amanda R. Vaughn）表示，将提供“少于 20 份文件”，但班农律师埃文·科克兰（Evan Corcoran）告诉记者，辩方可能需要找到更多文件和证人。
+4. 江泽民老家江苏官场动荡 江派党羽近遭“血洗”
 
-班农的法律团队称，政府没有提供任何理由不让公众看到这些文件，并补充说，在本案中，许多受拟议保护令限制的文件已经公开。
+5. 内蒙第一贪涉案30亿 被查前试图转移2亿
 
-“政府没有提供任何理由限制班农先生的律师使用这些文件准备辩护，”班农的声明说。
+6. 中共病毒新变种来势凶猛 引发全球恐慌
 
-班农拒绝遵守调查 1 月 6 日国会大厦袭击事件的众议院特别委员会的命令，以提供有关他在袭击前的行为的记录和证词。委员会有兴趣就 1 月 6 日之前一周内，班农在威拉德酒店的活动向他提问。
+7. 法国爆发反对中共病毒疫苗封锁强烈抗议
 
-**评论：所有伟人都是经历的巨大的磨难，如果班农先生没有在中共渗透和控制的美国司法走一遭，他永远不会真切地认识到中共对美国影响的灾难到了什么程度！不在痛苦中生，必将在痛苦中亡！**
+8. 美医生助理被告知不报告疫苗不良事件
 
-**新闻来源**：[washingtonpost.com][Stephen K. Bannon files motion to request all documents in court case be made public](https://www.washingtonpost.com/politics/stephen-k-bannons-lawyers-file-opposition-to-keeping-documents-from-being-released/2021/11/25/29889174-4e3e-11ec-b73b-a00d6e559a6e_story.html?utm_campaign=wp_post_most&amp;utm_medium=email&amp;utm_source=newsletter&amp;wpisrc=nl_most&amp;carta-url=https%3A%2F%2Fs2.washingtonpost.com%2Fcar-ln-tr%2F3561315%2F61a114979d2fdab56ba15957%2F5e2dde419bbc0f6326309bfd%2F39%2F72%2F61a114979d2fdab56ba15957)
+9.一文看懂：所罗门冲突为何与中共有关
+
+10. 立陶宛议员回应中共威胁：共产主义是一种瘟疫
+
+11. 郭先生谈币安事件的危害性
+
+**GTV链接：**[https://gtv.org/broadcast/watch/61a1f3f444c1fe7a6c3a28de](https://gtv.org/broadcast/watch/61a1f3f444c1fe7a6c3a28de)
+
+发布: 文橙
 
 * * *
 
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
-
-
-
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
