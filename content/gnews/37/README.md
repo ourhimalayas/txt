@@ -2,16 +2,34 @@
 ---
 
 
-## COVID-19 最新情报｜护士爆料004：北京市今年心脑血管疾病发生率较去年超逾五成
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1698791/)
+## GTV新闻访谈简报|2021年11月26日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1698836/)
 
-**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜27/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
-**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/COVID-19之護士系列.jpg)
-中国大陆地区一名护士日前在微信群组中爆料指，虽然自己所属的医院规模较小，至今都已收治了许多因疫苗副作用导致的心脑血管疾病的患者，可想而知其他大医院的情况。据她所知，仅北京市，今年心脑血管疾病的发生率，较去年同期相比，高出52%。
+作者：香草山翻译部
 
-来源｜weibo（详见影片）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-8.png)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1126text-SC.png)
+
+
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[11.26  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61a189be44c1fe7a6c3a0565)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-7.jpg)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
 
  
 

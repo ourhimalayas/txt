@@ -2,44 +2,43 @@
 ---
 
 
-## 堪萨斯州通过立法反对联邦政府疫苗强制
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1699193/)
+## 各大疫苗生产商对南非新变种病毒做出回应
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1699217/)
 
-撰稿：银河勇气星—骄子
+撰稿：金生水
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1127Y.png)图片来自网络
+澳媒《SBS News》近日报道，制药公司正争先恐后地分析出现在南非被命名为 Omicron 的新型中共病毒的数据，以了解它可能对疫苗会产生何种影响。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-4.png)
+疫苗制造商BioNTech表示，预计两周内将有更多关于在南非检测到的令人担忧的新型中共病毒变种的数据，以帮助确定其与合作伙伴辉瑞生产的疫苗是否需要重新加工。
 
+辉瑞和 BioNTech 周五表示，如果认为有必要，他们预计能够在大约 100 天内推出针对新型变体量身定制的新疫苗。
 
+“我们理解专家的担忧，并立即开始对变种 B.1.1.529 进行调查，”BioNTech 在一份声明中说。
 
+“我们预计最迟在两周内会从实验室测试中获得更多数据。这些数据将提供更多信息，说明 B.1.1.529 是否可能是一种逃逸变种，如果该变种在全球传播，可能需要调整我们的疫苗。”
 
+莫德纳在一份声明中表示，它正在努力推进一种针对新变体量身定制的加强针，并且还一直在测试现有疫苗的高剂量，并研究旨在防止多种变体的其他候选加强针。
 
-11月22日，堪萨斯州众议院和参议院通过法案，保护工人免受拜登强制接种新冠疫苗的影响。反对拜登总统的联邦疫苗授权的民主党人堪萨斯州州长劳拉凯利承诺，一旦该法案获得批准，就会签署该法案。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-815.png)
-该法案旨在迫使雇主允许广泛的疫苗豁免，包括宗教豁免，以及向因没有注射新冠疫苗而导致失业的堪萨斯州人提供失业救济金。
+“一种已经被批准的疫苗的加强针是目前加强减退的免疫力的唯一有效的办法，”莫德纳在声明中说。
 
-堪萨斯州为美国最新一个通过反对拜登强制疫苗的立法的州，佛罗里达州州长罗恩·德桑蒂斯在上一周签署了一项反对联邦疫苗授权的法案州。
+逃逸变体是那些逃避疫苗接种带来的靶向免疫反应的变体。
 
+周五，全球当局对这种新变种做出了警告，美国、加拿大、欧盟和英国都在加强边境管制，因为科学家们竞相查明这种突变是否具有疫苗抗性。
 
+辉瑞和 BioNTech 已经创建了基于 mRNA 的疫苗的版本 – 基于在中国武汉发现的原始病毒 – 以针对所谓的 Alpha 和 Delta 变体，临床试验正在进行中。
 
-新闻链接：[Kansas passes bill to protect workers from Biden’s COVID shot mandate](https://www.lifesitenews.com/news/kansas-passes-bill-to-protect-workers-from-bidens-covid-mandate/)
+这些努力并不意味着要把疫苗商业化；开展这项工作是为了与监管机构建立例行程序，这将有助于加快未来疫苗研发工作的重新启动。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
+投资公司Evercore ISI 的分析师表示，来自卡塔尔的另一个最近变种的数据显示，当前疫苗的初始效力水平很高，但在注射后四个月后显著减弱。
 
-总编：文徬
+强生公司表示，它还在密切监测新出现的中共病毒毒株，并正在测试其针对新变种的注射的有效性。
 
-编辑：文徬
+说了一堆冠冕堂皇的话，还不是要骗善良无辜的人们去打加强针，黑暗势力不把全世界的老百姓们打死打残决不罢休。可以预见到在人口清除计划未达到目标之前会有一波接一波的新变种与加强针，善良正义的人们应当勇于揭露真相，遏制这场人道大灾难，拯救全球的老百姓与水火之中。
 
-校正/发稿：浪迹天涯
+参考链接：
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-4.png)
-
+[https://www.abc.net.au/news/2021-11-27/new-quarantine-rules-omicron-covid-variant-australia/100656016](https://www.abc.net.au/news/2021-11-27/new-quarantine-rules-omicron-covid-variant-australia/100656016)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

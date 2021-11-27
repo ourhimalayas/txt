@@ -2,49 +2,38 @@
 ---
 
 
-## 索罗门爆发反对亲中政府的示威 殃及当地华人
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1699134/)
+## 许家印再卖恒大股份，套现27亿
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699159/)
 
-撰稿：日本方舟农场-Andy5
+撰稿：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-181.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fthumbor.ftacademy.cn%2Funsafe%2F900x506%2Fpicture%2F5%2F000125555_piclink.jpg&amp;imgrefurl=http%3A%2F%2Fwww.ftchinese.com%2Fstory%2F001094018%3Ffull%3Dy&amp;tbnid=BjhdA_zABjGgyM&amp;vet=12ahUKEwjUhcjcwbf0AhWym0sFHdU3C8gQMygTegUIARDSAQ..i&amp;docid=PRdV3Xi0ZvR3iM&amp;w=900&amp;h=506&amp;q=%E6%81%92%E5%A4%A7&amp;hl=zh-CN&amp;ved=2ahUKEwjUhcjcwbf0AhWym0sFHdU3C8gQMygTegUIARDSAQ)
+近日市场传出中国恒大集团股东配股筹资，消息尚未得到证实，但根据香港联交所周五的资料显示，公司主席许家印在场外减持约27亿港元股份，持股比例下降至不足七成。
 
-新闻采集：日本方舟农场-Andy5
+资料显示，许家印实益拥有的Xin Xin (BVI) Limited 周四（25日）在场外完成出售12亿股恒大集团股份，每股现金代价为2.23港元；本次减持后，持股比例由70.97%下降至61.88%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-4.png)
+而许家印的妻子丁玉梅透过其全资拥有公司Yaohua/均荣控股而持有的恒大集团约7.91亿股股份，则没有任何变化。
 
+因此，许家印夫妇在恒大集团的持股由101.62亿股或76.96%，下降至89.62亿股或67.87%。
 
+恒大集团今天收跌10.39%，报2.5港元。
 
+此前本地传媒报导，有恒大集团股东提出按每股2.23港元配售约3亿股股份，套现约6.6亿港元，配股价较周三收市价折让近两成。
 
+两位知情人士上个月告诉路透社，中共当局要求63岁的许家印动用部分个人财富用于帮助深陷财困的恒大集团给债券持有人的支付款项。这位创始人因而正在设法出售艺术品、书法作品以及两处高档住宅等奢侈品资产。
 
-11月24日，太平洋岛国索罗门首都爆发了反对亲共政府的示威。25日、26日，示威一直持续，并演变成了对当地唐人街的骚乱。示威者要求亲中共的总理索加瓦雷下台，并在首都的唐人街放火焚烧了警察局和数个建筑物，一些华人商店被砸。有媒体报道称，大多数示威者来自索罗门人口第一大省马莱塔岛，示威者反对其政府在2019年跟台湾断交，转而跟中共建交。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-813.png)图片来自https://dynaimage.cdn.cnn.com
+第一财经此前亦援引知情人士称，从7月1日至今，为了维持集团流动性，许家印已透过变卖个人资产或质押股权等方式筹集资金，累计已向集团注入超70亿元人民币现金。
 
+不过即使他着手卖掉一些个人资产，筹到的钱与恒大超过3,000亿美元的债务相比仍然微不足道。恒大债务规模大致等同于南非的国内生产总值。
 
-新闻链接：
+按今天收市价计，许家印夫妇现时持有的恒大集团股份市值约224亿港元，较今年初缩水近1,300亿港元。
 
-1. [所罗门群岛发生骚乱 中国城遭殃 或涉对华政策](https://www.voachinese.com/a/Australia-sends-police-and-troops-to-Honiara-as-violent-protests-continue-in-solomon-islands-20211125/6327883.html)
+消息来源:
 
+**[许家印在场外减持中国恒大集团股份套现约27亿港元 持股比例降至七成以下（更新版）](https://cn.reuters.com/article/hui-china-evergrande-stocks-1126-idCNKBS2IB0V2?il=0)**
 
-2.[https://baijiahao.baidu.com/s?id=1717391620410126392&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1717391620410126392&amp;wfr=spider&amp;for=pc)
-
-3.[https://www.nytimes.com/2021/11/25/world/asia/solomon-islands-riot.html](https://www.nytimes.com/2021/11/25/world/asia/solomon-islands-riot.html)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
-
-总编：飞虹
-
-编辑：飞虹
-
-校正/发稿：浪迹天涯
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-4.png)
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
