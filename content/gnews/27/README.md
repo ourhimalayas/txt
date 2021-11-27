@@ -2,52 +2,41 @@
 ---
 
 
-## 郭文贵先生再谈即将爆发的疫苗灾难
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1699070/)
+## 秦刚纽约见华人为应对中共社团将被铲除和安排华人选举
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1699119/)
 
-作者：东京樱花团—在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/11/D1oW3meUkAAg9t4_副本.jpg)
+据[2021年11月26日 文贵大直播：再谈青蒿素病毒疫苗解药；感恩节五千万人旅行后果；近日币安数字货币大变；喜币价值新中国联邦实力](https://gtv.org/video/id=61a0daac44c1fe7a6c39814d)时间点2：30：18——
 
+**郭文贵先生：**当时秦刚到纽约来见了十三个华人，两个原因他要见他们，大家都上次没说清楚，第一个，他真正地意识到，这些华人在美国要被排华了，梁冠军刚才我给你说的那个事情，美国政府，记住七哥说的话，不仅孔子学院，在全世界的华人所有的海外华人组织是共产党安排的、是跟共产党勾兑的，我会告诉你一个都不会留下。
 
+日本政府一个官员在两年前告诉我，郭先生我们会很慢，但是我会保证的是日本绝不会再有China Town、任何华人组织跟共产党的一个都不会，澳大利亚的下一个肯定几乎百分之九十他是总理上去的，他说，郭先生，我们会在澳大利亚把所有共产党的华人组织全给它灭掉，就是跟共产党联系的。
 
+还有一个秦刚为啥到China Town去，去干那个事儿去，大家没有意识到，包括芬太尼这个毒品供应，包括海外即将要排华导致的共产党的这种完全的对它来讲是个毁灭性的打击，更重要的事情，他为啥来纽约呢？因为华人的选举，法拉盛的选举75%投给了共和党，他要找他们一定要影响美国选举，不投共和党投民主党，这回美国这纽约州州长一定共产党再说了算。
 
+（以下暂略）
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-1-16.jpg)
+撰稿：喜马拉雅的肉夹馍；
 
-在1124的大直播中，郭文贵先生透露，现在墙内到处天然气管道爆炸、楼宇爆炸、交通事故，已经有上百起。国内医院病人爆满，儿童死亡率、婴儿死胎率、畸胎率极高，心包炎、心肌炎高发，这些悲惨的事实都有一个核心问题，那就是每一个不幸的人背后，都链接着一个家庭，每个人能都链接着一份工作。最惨是的郑州街头两个孩子，目睹母亲突然倒地而手足无措。如果他们的母亲不幸去世，将会导致整个家庭撕裂，这两个孩子以后该如何成长？跟他们的爷爷奶奶又是什么关系？
+审核：喜马拉雅的馍夹肉；
 
- 国内还有很多人突然得了中风，但能有多少钱去治病？家里有几个人能照顾病人？而一个人的得病则会拖垮两到三个家庭。郭先生在非洲直布罗陀的一个朋友，一家人死了四个，两个因为注射了疫苗，其它两个因为绝望而跳水自杀。
+校对：Maarago；
 
- 下一步一定是股票崩盘，房地产金融报爆盘。今天的人类30%到60%生活在城市里，食品、用电、金融，一切都是一体化。而更严重的是，越是有钱人、宗教人士、律师等，却都注射了疫苗，人类社会因为现代化而不能话与灾难化，并且不可救药。疫苗灾难绝对是共产党和西方社会的资本大鳄，以及黑暗势力人为的设计，否则绝不可能看到全人类的社交媒体一致让人噤声。但疫苗灾难一定会被停止。
+声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
- 现在凡是决定让人们打疫苗的，都不是好东西，都是私下跟共产党勾兑的，就像比尔盖茨和特鲁多，郭先生见过太多这样的坏人。前几天国防官员告诉他，说千万别用Wi-Fi，别用网络，所有你打印出来的都可能在暗网出现，只要你用过就不安全。
+欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
 
- 当年郭先生在国内将刘志华送进监狱，后来负责保护郭先生的安全部的人告诉他，有人出600万让其用枪杀害郭先生，所以郭先生很清楚的知道邪恶力量在背后能干什么。现在面对坚持要打疫苗的人，都是被贪嗔痴慢疑的执着心迷住了双眼，如果再坚持劝他们就是自己的无知。战友们一定要用心活着，没有了生命一切都无从谈起。新中国联邦救人无数，最关键的是，相信爆料革命的战友们没有注射疫苗就是人生最大的赢家，所以要特别珍惜和感恩新中国联邦，全世界只有新中国联邦最牛。
+Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
 
-新闻链接：[https://gnews.org/zh-hans/1677917/](https://gnews.org/zh-hans/1677917/)
+YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
 
+G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
 
-总编：Irene木木/文特
-校对/发稿：Daxia
+盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-5.jpg)
+推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/09/GNEW-GTV-MOS-LOGO-2-2-1-1-400x54-1.jpeg)
-
-
-
-
+G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
  
 

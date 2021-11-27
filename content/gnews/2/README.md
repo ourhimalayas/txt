@@ -2,24 +2,22 @@
 ---
 
 
-## 美国代表团本月“意外”二次访台，中共国仓促应对进行 “战备 ”演习
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1699249/)
+## 恶性循环 新病毒刚出现辉瑞已经着手研发新疫苗
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1699334/)
 
-编译：花岗岩
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-118.png)
-图片来源：网络截图
+#### 翻译/撰稿：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-2-2.jpg)图片来源：uniindia
+根据零对冲（Zero Hedge）11月26日的报道，中共病毒的新变体被世卫组织命名为“Omicron”。目前为止，Omicron是中共病毒突变最严重的变体。五天前在博茨瓦纳发现Omicron变体，截至今早已在南非、以色列、香港和比利时发现该变体的病例。Omicron虽然与Delta等变体有一些共同的突变，但它的进化途径与之前的变体不同。
 
-据零对冲11月26日报道，美国众议院的五名议员周四晚间抵达台湾，与台北官员进行为期两天的高级别访问。美国代表团包括众议员艾丽莎·斯洛特金（Elissa Slotkin）、马克·塔卡诺（Mark Takano）、科林·阿雷德（Colin Allred）、萨拉·雅各布（Sara Jacobs）和南希·梅斯（Nancy Mace）。他们乘坐一架美国军用C40-C运输机在台北着陆，这是自11月9日以来第二次这样的美国高级别的突击性访问。
+目前还不能确定Omicron变体是否有更高的死亡率，南非的病例是在11月19日才激增，所以相关的死亡案例现在还未出现。南非流行病应对与创新中心（CERI）主任图里奥·德·奥利维拉（Tulio de Oliveria）表示，该变体仍然可以通过正常的核酸检测（PCR）进行追踪。据瑞士信贷集团 (Crédit suisse)的说法，前线正希望通过即时核酸检测（qPCR）的方法识别出Omicron变体，因为该变体在s基因中有一个缺失，一旦实施这将有助于追踪Omicron变体在非洲和全球的传播。
 
-中共国对这次 “意外 ”访问的回应是，周五在台湾海峡方向进行了 “战备 ”演习，中国人民解放军东部战区司令部宣布 “组织海军和空军部队继续在台湾海峡方向进行战备警戒巡逻”
+Omicron变体已经成为中共病毒的主要毒株。周三包括约翰内斯堡在内的南非报告，在1100例新病例其中90%是由新变体引起的。南非邻国博茨瓦纳发现了四名完全接种疫苗后感染Omicron的病例。新变体的传播速度很快，目前香港和比利时已经发现两例携带者，以色列还发现一名最近前往过马拉维的患者。英国、以色列、印度、日本和新加坡已将非洲南部的大部分国家列入禁飞名单，欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen）也开始采取行动，停止非洲南部的旅行。
 
-中共国国防部证实，它向台湾派出了8架飞机，包括一对具有核能力的H-6轰炸机，靠近台湾控制的普拉塔斯群岛并通过台湾的防空识别区。几天前，美国派出一艘军舰通过有争议的台湾海峡，这是今年第11次，这已成为每月一次的 “航行自由 ”演习，尽管北京谴责这是破坏稳定的 “挑衅”。
+关于疫苗方面，辉瑞公司表示如果出现疫苗逃逸（vaccine-escape）现象，辉瑞公司将在100天内推出新疫苗。
 
-代表团在星期五的会议上告诉台湾总统蔡英文，美国对对台湾的承诺坚如磐石，并且随着两国之间关系的加深而一直坚定不移。声明还说：“台湾是一个民主管理的成功故事，是一个可靠的伙伴，是世界上的一股和善的力量。”
+评论：每次出现新变体辉瑞就推出新疫苗或加强针，这样一直打下去还有完吗？非要把人都打死才算完？病毒不断变异，为什么不想一下会不会是这些疫苗导致的病毒突变？病毒和疫苗已经陷入恶性循环！
 
-尽管围绕台湾和其他问题的紧张局势仍然很高，例如华盛顿一再谴责中共国侵犯人权的行为，包括在香港和新疆的镇压，但解放军军方正在呼吁与美国军方开放 “良好关系”，以使沟通足够频繁，从而避免步入战争。
-
-新闻来源：[China Launches “Combat Readiness” Drill Near Taiwan As US Delegation Arrives To Island For 2nd Time This Month](https://www.zerohedge.com/geopolitical/china-launches-combat-readiness-drill-near-taiwan-us-leaders-arrive-island-2nd-time)
+新闻来源：[A Scared Nu World: Here’s What We Know About The COVID “Omicron” Strain](https://www.zerohedge.com/markets/scared-nu-world-heres-what-we-know-about-new-covid-strain)
 
  
 

@@ -2,10 +2,10 @@
 ---
 
 
-## 郭文贵先生分享真实故事 再次强调“不要打疫苗”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1699115/)
+## 立陶宛反击中共外交惩罚
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1699172/)
 
-撰写：香草山农场-晓仙女
+撰稿/新闻采集：日本方舟农场-Andy5
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-4.png)
 
@@ -13,28 +13,40 @@
 
 
 
-郭先生分享了几个朋友的故事：一，郭先生去了摩根先生家，告诉了他疫苗真相。摩根先生没有打疫苗，而其邻居发小，则在打疫苗后病危，对此，摩根先生表示感慨。二，郭先生在洛杉矶有一位朋友，当郭先生跟他说不要打疫苗时，他已经打了两针，其夫人打了三针，夫人现在已经离世。三，有一位战友的父亲，脖子下方有个瘤，做了手术后吃各种药，越吃身体越不好。后来逐渐减掉吃的药换成吃青蒿素，现在完全好了，非常感恩。四，另一战友的母亲病重，吃了青蒿素后，身体好转。五，还有一位比利时的朋友，问郭先生为什么不能打疫苗？得知真相后没打疫苗，但其家人都打了，结果家人出了事，而他的弟弟相信爆料革命，吃了青蒿素，结果病好了。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-812.png)
-郭先生说：在日本、在国内还有很多例子，无法一一列举。新冠疫苗是共产党和世界恐怖组织制造的生化武器，是有计划、有预谋的一场生化战争。只有爆料革命在传播真相，保护人类！
+11月24日，立陶宛外交部长兰茨贝尔吉斯表示，在中共因台湾问题而宣布将两国的外交关系由大使级降为代办级后，立陶宛将做出一系列反击措施。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-814.png)
+他在访问美国的行程中指出，受到经济压迫并不意味着要放弃外交政策上的独立决定。中共胁使立陶宛企业在中国的利益受损，立陶宛也借此努力减少在供应链方面对中共的依赖。
 
+立陶宛外长、副外长等官员和议员也在日前会晤前香港众志主席、前立法会议员罗冠聪，表达对香港自由和民主的支持。立陶宛议会的17名成员签署了一份请愿书，不仅为立陶宛政界人士，也为运动员提出抵制奥运会的倡议。立陶宛体育部长称，不会出席北京冬奥会。
 
+新闻链接：
 
-新闻链接：[郭文贵先生2021年11月25日盖特](https://gettr.com/post/phtb6m59e0)
+1. [立陶宛外长：面对中国胁迫，欧洲应加强与印太地区的关系](https://www.voachinese.com/a/lithuania-urges-europe-to-increase-indo-pacific-ties-in-face-of-chinese-coercion-20211124/6327164.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
+2. [立陶宛外长在华盛顿叫苦：每隔几天就有一家立陶宛企业表示，在中国的生意停滞了](https://world.huanqiu.com/article/45jgQyppnBq)
 
-总编：童谣
+3. [将体育运动政治化 立陶宛体育部长说“不来冬奥”](https://mil.news.sina.com.cn/2021-11-26/doc-ikyakumx0374215.shtml)
 
-编辑：飞虹
+4.[赵立坚谈立方为反中乱港分子撑腰张目：玩火者必自焚](https://finance.sina.com.cn/tech/2021-11-26/doc-ikyakumx0429825.shtml)
+
+5.[https://m.facebook.com/NathanLawKC/photos/pcb.2705021482982501/2705019266316056/?type=3&source=49](https://m.facebook.com/NathanLawKC/photos/pcb.2705021482982501/2705019266316056/?type=3&amp;source=49)
+
+6.[立陶宛允台灣設代表處遭中國威脅 法國外長：全力支持立陶宛](https://www.cna.com.tw/news/firstnews/202111260006.aspx)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-5.jpg)
+
+总编：文徬
+
+编辑：文徬
 
 校正/发稿：浪迹天涯
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-MOS TALK ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场**** Discord**](https://discord.gg/ChqXAHd)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-4.png)
 

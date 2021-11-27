@@ -2,42 +2,42 @@
 ---
 
 
-## 秦刚纽约见华人为应对中共社团将被铲除和安排华人选举
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1699119/)
+## 被扣“辱华”帽子，摄影师陈漫被迫道歉
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699176/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/D1oW3meUkAAg9t4_副本.jpg)
-据[2021年11月26日 文贵大直播：再谈青蒿素病毒疫苗解药；感恩节五千万人旅行后果；近日币安数字货币大变；喜币价值新中国联邦实力](https://gtv.org/video/id=61a0daac44c1fe7a6c39814d)时间点2：30：18——
+整理编辑：东京樱花团/peterwong
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5-53.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fmedia.dwnews.net%2Fhk01%2FSo_F50NBkCZqLFhFgV63SVC1yOs%3D%2F320*0%2Fmedia%2Fimages%2Fdw%2F20211123%2F539875749037871104063257.jpeg&amp;imgrefurl=https%3A%2F%2Fwww.dwnews.com%2F%25E4%25B8%25AD%25E5%259B%25BD%2F60269613%2F%25E8%25A2%25AB%25E6%258C%2587%25E5%2588%25BB%25E7%2594%25BB%25E4%25B8%2591%25E9%2599%258B%25E7%259A%2584%25E4%25B8%25AD%25E5%259B%25BD%25E4%25BA%25BA%25E6%2597%25B6%25E5%25B0%259A%25E6%2591%2584%25E5%25BD%25B1%25E4%25B8%2580%25E5%25A7%2590%25E9%2599%2588%25E6%25BC%25AB%25E5%258F%2591%25E6%2596%2587%25E8%2587%25B4%25E6%25AD%2589%25E5%259B%25BE&amp;tbnid=c1gHPL9xhYdPkM&amp;vet=12ahUKEwjc9oPzxLf0AhUTUysKHfIMDrQQMygBegUIARCoAQ..i&amp;docid=LBL2iajelj_leM&amp;w=1920&amp;h=1379&amp;q=%E9%99%88%E6%BC%AB&amp;hl=zh-CN&amp;ved=2ahUKEwjc9oPzxLf0AhUTUysKHfIMDrQQMygBegUIARCoAQ)
+著名的中国时尚摄影师陈漫为她过去的作品道歉。此前网上有批评称，她的作品是“辱华”。迪奥时装公司从其在上海的一场艺术展上删除了她的一幅摄影作品。
 
-**郭文贵先生：**当时秦刚到纽约来见了十三个华人，两个原因他要见他们，大家都上次没说清楚，第一个，他真正地意识到，这些华人在美国要被排华了，梁冠军刚才我给你说的那个事情，美国政府，记住七哥说的话，不仅孔子学院，在全世界的华人所有的海外华人组织是共产党安排的、是跟共产党勾兑的，我会告诉你一个都不会留下。
+陈漫表示接受对她之前的作品、包括2008年的《少先队员》的批评。这是一系列年轻模特的照片，背景是像三峡大坝这样的重大地标，或是中国首个月球探测器“嫦娥一号”从模特的裙下飞出的画面。
 
-日本政府一个官员在两年前告诉我，郭先生我们会很慢，但是我会保证的是日本绝不会再有China Town、任何华人组织跟共产党的一个都不会，澳大利亚的下一个肯定几乎百分之九十他是总理上去的，他说，郭先生，我们会在澳大利亚把所有共产党的华人组织全给它灭掉，就是跟共产党联系的。
+中共喉舌《环球时报》报道了对陈漫批评，称社交媒体上的评论称她的作品是打擦边球的儿童色情和侮辱少先队员。
 
-还有一个秦刚为啥到China Town去，去干那个事儿去，大家没有意识到，包括芬太尼这个毒品供应，包括海外即将要排华导致的共产党的这种完全的对它来讲是个毁灭性的打击，更重要的事情，他为啥来纽约呢？因为华人的选举，法拉盛的选举75%投给了共和党，他要找他们一定要影响美国选举，不投共和党投民主党，这回美国这纽约州州长一定共产党再说了算。
+“我深深反思，为当时的稚拙无知而自责。我想我还是一定要正式向大家道歉，”陈漫11月23日在其个人微博上发布的道歉声明说。“我是一个土生土长的中国人，我深深地热爱着我们的祖国，”她写道。“我也深知作为一名文艺工作者，应当肩负起记录和传递中华民族文化的使命。”
 
-（以下暂略）
+她是众多中外名人、品牌和艺术家在作品遭到官媒批判后公开道歉的一员。一些人因为拒绝道歉或其道歉被认为不充分而遭到抵制。与此同时，中共国政府正在驯服包括文化艺术界在内的各方名人，要求他们成为忠诚于共产党的“正能量”传播者。
 
-撰稿：喜马拉雅的肉夹馍；
+在陈漫道歉前的一个多星期，迪奥因在上海的一个展览上发布的她的一幅摄影照而受到攻击。照片上是一名脸色暗沉、带有雀斑、眼影厚重的亚裔模特，手里拿着迪奥的手袋。批评者认为，这张照片违反了白皙皮肤的东方美人审美标准，并说这幅作品延续了西方对亚洲人面孔的刻板印象，比如咪咪眼。
 
-审核：喜马拉雅的馍夹肉；
+过去，至少有一位官媒的图片编辑因陈漫创造了一种既不模仿西方杂志，也不模仿日本和韩国杂志审美观而称赞过她的作品。2019年，《环球时报》曾称陈漫是中国板的美国摄影师安妮·莱博维茨(Annie Leibovitz)，称她是一颗有着独特视角的“耀眼的明星”。
 
-校对：Maarago；
+迪奥撤下了陈漫的这幅摄影作品，并补充说，这是一个艺术项目的一部分，而不是商业广告。在其中国社交媒体账户上的一份声明中，迪奥表示它“尊重中国人民情感”，并“严格遵守中国法律法规”。
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+此前，其他奢侈品牌也曾在中国卷入争议。2018年，杜嘉班纳（Dolce & Gabbana ）的一则广告引发了抗议“辱华”的声浪，因为广告中的亚洲模特被要求用一双筷子吃意大利面、奶油卷和披萨。这些视频随后被删除。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+陈漫在社交媒体上发文称，她接受对自己作品的批评，包括为某个品牌所创造的作品，但没有具体提到迪奥。这张从上海艺术展上撤下的照片拍摄风格与陈漫为英国时尚杂志《i-D》拍摄的一系列封面相似，这些封面上有12位来自不同少数民族的中国年轻女性。其中的许多女性并不符合中国人对美女的一般定义——有的眼睛小，有的脸上有雀斑。
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+中共上海市委督管下的英语网络杂志《第六声》的图片编辑丁依宁曾在2018撰写的一篇文章中称赞过陈漫的工作。丁依宁写道：“从她的作品中可以看出，陈漫更喜欢单眼皮、细长眼睛以及具有传统东亚优雅感的女模特。”
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
+陈漫当时在接受《第六声》采访时表示:“作为一名专业的视觉艺术家，我认为我应该帮助更多的人以更大的信心来识别现代中国美的面孔。”
 
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
+消息来源:
 
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
+[又“辱华”了：中国摄影师陈漫为当年作品道歉 迪奥撤走其参展作品](https://www.voachinese.com/a/Chinese-photographer-controversy-dior-20211125/6328641.html)
 
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

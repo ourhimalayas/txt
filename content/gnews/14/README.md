@@ -2,28 +2,43 @@
 ---
 
 
-## 日本政府批准创纪录军费开支以应对中共军事威胁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699163/)
+## 各大疫苗生产商对南非新变种病毒做出回应
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1699217/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-127.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fs3.six-degrees.io%2Fupload%2Fmedia%2F20211126%2F480%2Fwsj-f3199106ceca273b2954d2b9d01b682c-1.jpeg&amp;imgrefurl=https%3A%2F%2F6do.news%2Farticle%2F5328032-10&amp;tbnid=yz3u9_S0z0sfNM&amp;vet=12ahUKEwj5grnjwLf0AhXRbX0KHeYaBhIQMygDegUIARCeAQ..i&amp;docid=i1NJNsXXNicwlM&amp;w=480&amp;h=240&amp;q=%E6%97%A5%E6%9C%AC%E6%94%BF%E5%BA%9C%E5%BC%80%E6%94%AF&amp;ved=2ahUKEwj5grnjwLf0AhXRbX0KHeYaBhIQMygDegUIARCeAQ#imgrc=yz3u9_S0z0sfNM&amp;imgdii=8qpsOmQUUBKrlM)
-日本计划在其已经创纪录的年度军费开支的基础上增加67.5亿美元支出，急于加强空中和海上防御，因其越来越担心中共国和朝鲜(北韩)构成的威胁。
+撰稿：金生水
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1127Y.png)图片来自网络
+澳媒《SBS News》近日报道，制药公司正争先恐后地分析出现在南非被命名为 Omicron 的新型中共病毒的数据，以了解它可能对疫苗会产生何种影响。
 
-首相岸田文雄领导的政府周五（11月26日)批准了这项支出，作为追加预算的一部分。虽然这种增加国防开支的做法很常见，但据日本防卫省称，7,740亿日圆的规模创史上最高。这笔支出需要获得国会批准。
+疫苗制造商BioNTech表示，预计两周内将有更多关于在南非检测到的令人担忧的新型中共病毒变种的数据，以帮助确定其与合作伙伴辉瑞生产的疫苗是否需要重新加工。
 
-防卫省在其支出提案中表示：“由于日本周边的安全环境以前所未有的速度恶化，我们的紧迫任务是加速执行各种项目。”
+辉瑞和 BioNTech 周五表示，如果认为有必要，他们预计能够在大约 100 天内推出针对新型变体量身定制的新疫苗。
 
-注入的资金将让日本比计划提前三个月升级东海边缘岛屿上的地对空导弹发射装置、以及其他地方的爱国者PAC-3导弹电池，这是防止任何朝鲜弹头来袭的最后一道防线。
+“我们理解专家的担忧，并立即开始对变种 B.1.1.529 进行调查，”BioNTech 在一份声明中说。
 
-防卫省表示，这笔额外的开支还将使日本更迅速地获得反潜导弹、海上巡逻机和军用货运飞机。
+“我们预计最迟在两周内会从实验室测试中获得更多数据。这些数据将提供更多信息，说明 B.1.1.529 是否可能是一种逃逸变种，如果该变种在全球传播，可能需要调整我们的疫苗。”
 
-消息来源:
+莫德纳在一份声明中表示，它正在努力推进一种针对新变体量身定制的加强针，并且还一直在测试现有疫苗的高剂量，并研究旨在防止多种变体的其他候选加强针。
 
-**[日本将增加军费开支加强海空防御 以应对来自中国和朝鲜的威胁](https://cn.reuters.com/article/japan-defence-expenditures-1126-idCNKBS2IB0V5?il=0)**
+“一种已经被批准的疫苗的加强针是目前加强减退的免疫力的唯一有效的办法，”莫德纳在声明中说。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+逃逸变体是那些逃避疫苗接种带来的靶向免疫反应的变体。
+
+周五，全球当局对这种新变种做出了警告，美国、加拿大、欧盟和英国都在加强边境管制，因为科学家们竞相查明这种突变是否具有疫苗抗性。
+
+辉瑞和 BioNTech 已经创建了基于 mRNA 的疫苗的版本 – 基于在中国武汉发现的原始病毒 – 以针对所谓的 Alpha 和 Delta 变体，临床试验正在进行中。
+
+这些努力并不意味着要把疫苗商业化；开展这项工作是为了与监管机构建立例行程序，这将有助于加快未来疫苗研发工作的重新启动。
+
+投资公司Evercore ISI 的分析师表示，来自卡塔尔的另一个最近变种的数据显示，当前疫苗的初始效力水平很高，但在注射后四个月后显著减弱。
+
+强生公司表示，它还在密切监测新出现的中共病毒毒株，并正在测试其针对新变种的注射的有效性。
+
+说了一堆冠冕堂皇的话，还不是要骗善良无辜的人们去打加强针，黑暗势力不把全世界的老百姓们打死打残决不罢休。可以预见到在人口清除计划未达到目标之前会有一波接一波的新变种与加强针，善良正义的人们应当勇于揭露真相，遏制这场人道大灾难，拯救全球的老百姓与水火之中。
+
+参考链接：
+
+[https://www.abc.net.au/news/2021-11-27/new-quarantine-rules-omicron-covid-variant-australia/100656016](https://www.abc.net.au/news/2021-11-27/new-quarantine-rules-omicron-covid-variant-australia/100656016)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

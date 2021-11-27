@@ -2,30 +2,42 @@
 ---
 
 
-## 为套现还债，恒大许家印在港交所出售9%公司持股
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1699027/)
+## 迄今最强新冠变种出现，疫苗公司称可快速提供疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1699099/)
 
-![中国恒大中心在香港办公楼外的标识 （2021年9月23日）](https://gdb.voanews.com/8E516E9E-CDEE-4BE8-A587-96DE914D5A6D_w1023_r1_s.jpg)*中国恒大中心在香港办公楼外的标识 （2021年9月23日）*
-据美国之音11月27日报道，深陷债务危机的中国恒大集团董事局主席许家印和妻子丁玉梅以及旗下有限公司25日在港交所出售36亿股恒大股份，变现约80亿港元(约合10.26亿美元)用于公司纾困。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-恒大是由许家印创办的中共国首屈一指的房地产巨头，今年以来深陷债务危机，公司所欠债务超过3000亿美元。许家印曾将他位于香港的两处豪宅抵押，出售一些艺术品和书法收藏，并两架湾流私人飞机，筹措5000多万美元现金。但是与它3000多亿美元的债务相比，仍然杯水车薪。
-
-恒大持续的债务危机和违约风险曾多次引发中共国金融市场和房地产业的震荡，以及国际金融市场的紧张，但是中共国政府至今没有出手救助的迹象。中共经济濒临崩溃，救助恒大已经是心有余而力不足。恒大最终必将倒塌并引发全球经济危机。
-
-新闻参考链接：[http://dlvr.it/SDFqhN](https://dlvr.it/SDFqhN)
-
-编辑:胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/https___d1e00ek4ebabms.cloudfront.net_production_2370d5eb-2dc8-407a-849a-c83dd8fbae10.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+ 
+图片来源：www.ft.com/content
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+#### 编译：小红帽
+
+美洲最常用的几大疫苗制造商表示，他们可以迅速应对南非Nu变种带来的挑战。
+
+据悉，最近出现的新冠病毒变种被认为是迄今为止最具传染性的变种，一些人担心它可能会避开目前的新冠（COVID-19）疫苗所提供的保护。
+
+辉瑞生物科技（Pfizer BioNTech）公司和莫德纳（Moderna）公司负责生产美国两种最常见疫苗，他们都表示，如果有必要，可以快速更新疫苗以提供针对新变种的保护。
+
+虽然该变种尚未在美国被发现，但它已经出现在非洲和欧洲的多个国家，使美国官员保持高度警惕。
+
+CNBC报道说，莫德纳公司可以在60天内开始进行对潜在抗性变体有效的疫苗的临床试验。如果有必要，辉瑞公司可以在6周内调整其mRNA疫苗，并在需要时，在100天内发货。
+
+美国第三种疫苗的制造商强生公司也表示，它正在测试其疫苗对这种新变种的有效性。
+
+**参考新闻：**[Pfizer, Moderna say they can quickly update vaccines ‘if they need to’ (msn.com)](https://www.msn.com/en-au/health/medical/pfizer-moderna-say-they-can-quickly-update-vaccines-if-they-need-to/ar-AARaKA4?ocid=msedgntp)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

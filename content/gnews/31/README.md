@@ -2,36 +2,39 @@
 ---
 
 
-## 一本新书揭露美国公共卫生沙皇福奇就是黑暗势力
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1699038/)
+## 赵长鹏卖资料风波已现，币安大客户遭逮捕
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1699100/)
 
-加拿大温哥华扬帆农场：空山新雨8298
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2021050516590180101.jpg)
-图片来源：news.cctv.com
+撰稿：新西兰伊甸农场Gnews组 财经G乐部 – 亚伦
 
-小罗伯特·弗朗西斯·肯尼迪 (Robert Francis Kennedy Jr.) 最近出版了一本书： “The Real Anthony Fauci: Bill Gates, Big Pharma, and the Global War on Democracy and Public Health”， 翻译：《真正的安东尼·福奇：比尔·盖茨、大型制药公司以及全球民主和公共卫生战争》
+![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-4.png)
 
-在这本书中，罗伯特对安东尼·福奇进行了深入的分析，揭露了他统治美国 50 年的灾难性后果。
 
-小罗伯特·弗朗西斯·肯尼迪 (Robert Francis Kennedy Jr.) ：
 
-他是美国环境律师、作家和反疫苗倡导者。肯尼迪是美国参议员罗伯特·肯尼迪的儿子，也是约翰·肯尼迪总统的侄子。他于 1999 年帮助成立了非营利性环保组织 Waterkeeper Alliance，并担任其董事会主席。他推出了一本新书，在新书中，罗伯特揭示了福奇每年巨额支出如何让他能够决定全球科学健康研究的主题、内容和结果。
 
-作为美国国家过敏症和传染病研究所 (NIAID) 的主任，安东尼·福奇博士每年从纳税人提供的科学研究资金中拨出 61 亿美元。
 
-这些年度支出还允许福奇对“知识和创新”领导者大军进行独裁控制，这些领导者组成了批准和授权药物和疫苗的“独立”联邦小组——包括允许紧急使用 COVID- 19种疫苗。
+自23日郭文贵先生爆出币安CEO赵长鹏把所有币安客户的隐私资料都主动提供给了中共的消息后，赵长鹏出卖资料风波已现。11月25日盖特郭先生再次透露，投资了4千多万美元币安币的某青岛地产商，在看了GTV关于币安不安全的直播后就开始抛币，在成功抛掉几百万美元的币后发现，币安平台并不允许他提现。即便如此，这位地产商还是还半信半疑地说，“如果币安客户的信息都被卖掉的话，中共早就找到我了，我可是币安很大的客户”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-811.png)
+结果就在昨天，他在自己的家中被逮捕。所以任何投资币安的人，一定要尽快对赵长鹏进行起诉，把这个谋财害命躲在迪拜的赵长鹏绳之以法。
 
-福奇利用他掌握的金融影响力对医院、大学、期刊以及数以千计有影响力的医生和科学家施加了非凡的影响——他有能力毁掉、提升或奖励他们的事业和机构。
+新闻链接: [郭文贵先生2021年11月25日盖特](https://gettr.com/post/phtb6m59e0)
 
-在这些利益或威胁之下，一些医生出现在社交媒体和电视新闻节目中，在有影响力的媒体专栏发表文章，为福奇的思想和政策提供理论或实践支持，为美国制药业的实际领导者福奇辩护。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
 
-该书于 11 月 16 日发行，现在可以订购。
+总编:文特
 
-英文书名：”The Real Anthony Fauci: Bill Gates, Big Pharma, and the Global War on Democracy and Public Health” 中文翻译《真正的安东尼·福奇：比尔·盖茨、大型制药公司以及全球民主和公共卫生战争》
+编辑: Lakeman(文仁)
 
-订购商店或网站：Barnes & Noble、IndieBound、Bookshop.org、Target、Walmart 和 Books-A-Million。
+校正/发稿：浪迹天涯
 
-编审：文敏 发布： 文敏
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-6.jpg)
 
  
 

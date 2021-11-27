@@ -2,34 +2,41 @@
 ---
 
 
-## 日本计划再增加军费加强海空防御应对中朝威胁
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1699059/)
+## 郭文贵先生分享真实故事 再次强调“不要打疫苗”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1699115/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+撰写：香草山农场-晓仙女
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9A42298C-344F-41E1-A947-B16800406C0C.jpeg)日本防卫省（图片来自维基百科）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-4.png)
 
-据《路透社》11月26日报道，日本因日益担心中共国和朝鲜所构成的威胁，计划在其已创纪录的年度军费开支基础上，再增加67.5亿美元的支出，用于加强空中和海上防御。
 
-据报道，首相岸田文雄领导的政府已于26日批准了这项新增军费开支，作为追加预算的一部分。不过，这笔支出还需获得国会批准。
 
-虽然这种增加国防开支的做法很常见，但日本防卫省表示，7740亿日元（67.5亿美元）的规模已创下历史新高。
 
-日本防卫省在其支出提案中称：“由于日本周边的安全环境以前所未有的速度恶化，我们的紧迫任务是加速执行各种项目。”
 
-防卫省还表示，这笔额外开支将使日本更迅速地获得反潜导弹、海上巡逻机和军用货运飞机。
+郭先生分享了几个朋友的故事：一，郭先生去了摩根先生家，告诉了他疫苗真相。摩根先生没有打疫苗，而其邻居发小，则在打疫苗后病危，对此，摩根先生表示感慨。二，郭先生在洛杉矶有一位朋友，当郭先生跟他说不要打疫苗时，他已经打了两针，其夫人打了三针，夫人现在已经离世。三，有一位战友的父亲，脖子下方有个瘤，做了手术后吃各种药，越吃身体越不好。后来逐渐减掉吃的药换成吃青蒿素，现在完全好了，非常感恩。四，另一战友的母亲病重，吃了青蒿素后，身体好转。五，还有一位比利时的朋友，问郭先生为什么不能打疫苗？得知真相后没打疫苗，但其家人都打了，结果家人出了事，而他的弟弟相信爆料革命，吃了青蒿素，结果病好了。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-812.png)
+郭先生说：在日本、在国内还有很多例子，无法一一列举。新冠疫苗是共产党和世界恐怖组织制造的生化武器，是有计划、有预谋的一场生化战争。只有爆料革命在传播真相，保护人类！
 
-据悉，注入的资金将使日本比原计划提前三个月，升级东海边缘岛屿上的地对空导弹发射装置，以及其他地方的爱国者PAC-3导弹电池，而这些是防止任何朝鲜弹头来袭的最后一道防线。
 
-*参考链接：[https://cn.reuters.com/article/japan-defence-expenditures-1126-idCNKBS2IB0V5?il=0](https://cn.reuters.com/article/japan-defence-expenditures-1126-idCNKBS2IB0V5?il=0)*
 
-* * *
+新闻链接：[郭文贵先生2021年11月25日盖特](https://gettr.com/post/phtb6m59e0)
 
-*素材采编：幽蘭自得*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
 
-*编辑：青衣青青*
+总编：童谣
 
-*发布：miumiu*
+编辑：飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/MOS_LOGO_publish-4.png)
 
  
 
