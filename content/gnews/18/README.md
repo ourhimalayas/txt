@@ -2,10 +2,10 @@
 ---
 
 
-## 新西兰医疗工作者未经父母同意为孩子接种疫苗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1700223/)
+## 护士：疫苗瓶贴有标签以区分安慰剂或疫苗，被用来耍花招
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1700346/)
 
-11/24/2021 新西兰医疗卫生工作者在父母不在场的情况下为12岁的双胞胎男孩接种中共病毒疫苗
+08/01/2021 斯洛文尼亚一名护士揭露疫苗瓶上贴有标签，表明它是安慰剂还是疫苗，这意味着有人可以用它耍花招。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

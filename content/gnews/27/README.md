@@ -2,31 +2,12 @@
 ---
 
 
-## 樱花灭共诗——临慈恩亭
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1700111/)
+## 阿里巴巴股价较去年高点下跌57%，目标价格连续下调
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1700185/)
 
-撰稿：东京樱花团/小小杜
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-167.jpg)
-临亭如画值春阑，
+11/24/2021 阿里巴巴股价较去年10月27日高点下跌57%，华尔街连续18周下调其12个月的目标价格
 
-不尽飞花独自看。
-
-满目晴光时闪亮，
-
-连年劫祸世艰难。
-
-胸中觅鬼争求死，
-
-路上逢人怯问安。
-
-层树急风来十面，
-
-愁思危局久凭栏。
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

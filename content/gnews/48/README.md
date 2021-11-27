@@ -2,40 +2,28 @@
 ---
 
 
-## 美国会议员团访问台湾，中共8军机扰台
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699171/)
+## 日本政府批准创纪录军费开支以应对中共军事威胁
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699163/)
 
 撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-105.jpg)[图片来源](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD5%E8%AE%AE%E5%91%98%E8%AE%BF%E9%97%AE%E5%8F%B0%E6%B9%BE-%E4%B8%AD%E5%9B%BD%E5%A4%A7%E4%BD%BF%E9%A6%86%E8%A6%81%E6%B1%82%E5%8F%96%E6%B6%88%E8%A1%8C%E7%A8%8B/a-59941635)
-五名美国国会议员星期五上午在一次出人意料的访问中会见了台湾总统蔡英文，通过这次访问重申美国对台湾“坚如磐石”的支持。拜登政府还邀请台湾参加下个月的民主峰会。美国议员访问台湾之际，中国军方出动8架次军机侵扰台湾西南的防空识别区。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-127.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fs3.six-degrees.io%2Fupload%2Fmedia%2F20211126%2F480%2Fwsj-f3199106ceca273b2954d2b9d01b682c-1.jpeg&amp;imgrefurl=https%3A%2F%2F6do.news%2Farticle%2F5328032-10&amp;tbnid=yz3u9_S0z0sfNM&amp;vet=12ahUKEwj5grnjwLf0AhXRbX0KHeYaBhIQMygDegUIARCeAQ..i&amp;docid=i1NJNsXXNicwlM&amp;w=480&amp;h=240&amp;q=%E6%97%A5%E6%9C%AC%E6%94%BF%E5%BA%9C%E5%BC%80%E6%94%AF&amp;ved=2ahUKEwj5grnjwLf0AhXRbX0KHeYaBhIQMygDegUIARCeAQ#imgrc=yz3u9_S0z0sfNM&amp;imgdii=8qpsOmQUUBKrlM)
+日本计划在其已经创纪录的年度军费开支的基础上增加67.5亿美元支出，急于加强空中和海上防御，因其越来越担心中共国和朝鲜(北韩)构成的威胁。
 
-美国在台协会表示，美国国会众议院的两党议员于周四晚抵达台湾。访问团成员之一、密歇根州民主党籍国会众议员斯洛特金（Elissa Slotkin）星期五在推特上写道：“我们此行的消息昨天一传出，我的办公室就收到了中国大使馆的一条直白的信息，要求我取消行程。”
+首相岸田文雄领导的政府周五（11月26日)批准了这项支出，作为追加预算的一部分。虽然这种增加国防开支的做法很常见，但据日本防卫省称，7,740亿日圆的规模创史上最高。这笔支出需要获得国会批准。
 
-访问团其他成员包括民主党籍众议员高野（Mark Takano）、奥尔雷德（Colin Allred）和雅各布斯（Sara Jacobs），以及共和党籍众议员梅斯（Nancy Mace）。
+防卫省在其支出提案中表示：“由于日本周边的安全环境以前所未有的速度恶化，我们的紧迫任务是加速执行各种项目。”
 
-担任众议院退伍军人事务委员会主席的高野说：“我们本周来到台湾，是为了提醒我们的伙伴和盟友，在经历了两年的艰难时期后，我们对自由和安全的印太地区的承诺和共同责任比以往任何时候都更加坚定。”
+注入的资金将让日本比计划提前三个月升级东海边缘岛屿上的地对空导弹发射装置、以及其他地方的爱国者PAC-3导弹电池，这是防止任何朝鲜弹头来袭的最后一道防线。
 
-高野还说，美国与台湾的关系“坚如磐石，并随着我们之间关系的加深而保持稳定”。
-
-蔡英文在总统府欢迎美国议员和美国在台协会台北办事处处长孙晓雅（Sandra Oudkirk）。她指出美台双方在退伍军人事务、经济贸易方面的合作，同时重申台湾与美国的紧密联系。蔡英文说：“台湾会持续与美国加强合作，共同捍卫双边共享的民主自由价值，确保区域的和平稳定发展。”
-
-蔡英文说，在退伍军人事务上台美合作非常密切。她说，从明年1月开始，台湾的国军退除役官兵辅导委员会将会派员常驻华盛顿，可以针对退伍军人的健康保险、优质医疗、就业辅导，以及长期招护等方面增加更多的交流。
-
-这是美国国会议员今年第三次访问台湾。就在几周前，由六名共和党国会议员组成的代表团访问了台湾。代表团在访问期间会见了蔡英文、台湾国家安全会议秘书长顾立雄和外交部长吴钊燮等。
-
-在5位美国两党众议员星期五（11月26日）访问台湾之际，中共军方出动8架次军机侵扰台湾西南的防空识别区。台湾空军证实，侵扰台湾西南防空识别区的解放军军机包括1架“空警500”预警机、1架“运-8”反潜机、2架“轰-6”轰炸机和4架“歼-16”战机。台湾空军也依惯例派遣空中巡逻兵力应对、广播驱离，同时以防空导弹追监。
+防卫省表示，这笔额外的开支还将使日本更迅速地获得反潜导弹、海上巡逻机和军用货运飞机。
 
 消息来源:
 
-[美国国会跨党派议员访台会见蔡英文 强调对台支持“坚如磐石”](https://www.voachinese.com/a/us-taiwan-visit-20211126/6328781.html)
-
-[美国会议员访台期间，8架解放军军机侵扰台湾防空识别区](https://www.voachinese.com/a/china-sends-8-aircraft-into-taiwan-s-adiz-during-visit-by-us-congressmen-20211126/6329341.html)
+**[日本将增加军费开支加强海空防御 以应对来自中国和朝鲜的威胁](https://cn.reuters.com/article/japan-defence-expenditures-1126-idCNKBS2IB0V5?il=0)**
 
 *校对：东京樱花团/知了知了*
 *发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
-#  
-
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
