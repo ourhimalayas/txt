@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/27/2021 3:24 AM (UTC)`
+
+11/26/2021 Miles Guo: The CCP established an organization in the UN to oppose the anti-Winter Olympics; where are Yang Jiechi and Xu Qiliang? Whoever wants to attack Taiwan gets ill - “cuckold” Wang Hongguang contracted the virus; top secret intelligence shows that CCP troops participating in recent exercises think they can't defeat Taiwan<br/><br/>11/26/2021 文贵直播：中共在联合国成立了“反对反冬奥会的组织”；杨洁篪和许其亮去哪儿了? 谁喊打台湾谁染病 - 绿帽子王染病了；绝密情报：中共近期参加演习的部队自认为打不赢台湾<br/>
+![img](https://media.gettr.com/group17/getter/2021/11/27/03/24/f4f417e4-2653-9f09-f8b6-38239efcfd12/out.jpg)
+
+---
+
 `@miles 11/27/2021 12:59 AM (UTC)`
 
 11/26/2021 Miles Guo: Changpeng Zhao handed over the Binance users’ personal information to the CCP, the US, Japan, and some countries in Europe and Middle East; many of Binance’s bank accounts were closed due to the US dollar’s long arm jurisdiction; the CCP is threatening Dubai to turn in Changpeng Zhao’s money<br/><br/>11/26/2021 文贵直播：赵长鹏将币安用户的个人信息交给了中共、美国、日本、欧洲和中东等国；币安的多个银行账号因美元长臂管辖而遭关闭；中共正在威胁迪拜交出赵长鹏的钱<br/>
@@ -148,14 +155,6 @@ Dr. Vladimir Zev Zelenko, a Ukrainian born, Zionist, Chasidic JEW has been arres
 
 2021年11月24日 文贵大直播：北京深圳香港交易所；病毒疫苗灾难与解药；喜币喜联储GTV股票；新中国联邦灭共使命
 ![img](https://media.gettr.com/group2/origin/2021/11/24/12/8763880f-9b86-9b50-0708-d3cb53a9d467/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 11/24/2021 10:44 AM (UTC)`
-
-🙏🙏🙏
-> `@globalhimalaya 11/24/2021 2:04 AM (UTC)`<br/>On average they would see 1 stillborn death a month. 3 dulas have reported that there were 13 stillborn deaths in a 24 hour period. Dr. Mel Bruchet and Dr. Daniel Nagase rally at Lions Gate Hospital.<br/>助产士爆料加拿大的一个医院24小时内出现13名死胎，通常情况下一个月才有一例。Bruchet医生和Nagase医生在医院门前集会
-![img](https://media.gettr.com/group33/origin/2021/11/24/02/04/9d725990-7e23-8f30-878f-dbb7684be0da/out.jpg)
 
 ---
 
