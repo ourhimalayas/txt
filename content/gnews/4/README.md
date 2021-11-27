@@ -2,32 +2,208 @@
 ---
 
 
-## 中共的武器库—类似天花的病毒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1701178/)
+## 疫苗次生危机还没到来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1701227/)
 
-撰稿：billwilliam
+[https://gtv.org/video/id=61a23d773ff6481adce527aa](https://gtv.org/video/id=61a23d773ff6481adce527aa)
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-26-at-10.03.16-AM-1.jpeg)
-郭文贵先生2021年11月26日大直播爆料称，中国共产党储存有天花病毒，并且企图释放这种生物武器来征服西方基督教世界或者杀死政治对手。
+**郭文贵**
+**Miles Guo**
 
-中共很早就有计划用天花这样的生物武器消灭西方基督教世界。2020年，国安部的某些墙上挂着地图标记美国所有的水源，这样中共在任何时候都能释放化学或生物试剂污染水源。郭先生回忆，一位中共的智囊耿惠昌曾将基督教定为共产党的首要敌人。在耿的眼中，基督教是西方持久统治世界的工具。所以中共打算用天花这样的生物武器屠杀基督徒。
+任何人在这时候
+Anyone at this time
 
-郭先生爆料说，中国的常州和杭州已经出现有类似天花症状的病人。这两个城市某些医院的医生被带走隔离。甚至上海的某些医院也被关闭。郭先生猜测中共的政治内斗导致病毒爆发。被抓的孙立军和孟建柱不会感到内疚，即便是他们投放生物武器报复政治对手习近平。根据郭先生的爆料，中共国许多县级的实验室储存或研究天花疫苗病毒，如果有人出于邪恶目的把这些病毒投放出来，可能会导致大规模感染。
-![](https://lh6.googleusercontent.com/zmBdJ0yc7bIUEC07ta_7hRk9QSFGuHd4P33uKtTuzNQRA0B_mj5b4I4KqQjzwgZ2I13DO1DuN--ut-U3yq4F2Fr36BlsEd2ASb1dbm_AGvVjwQZDj-M1alZbwPL7hiqpcBbiiJ6ZlHIFSyKtDF4)
-一篇中共科学家发表的论文显示，武汉病毒所确实在研究类似天花的病毒。2020年，这些科学家从小鼠脑中分离出一种新型的鼠痘病毒，这种病毒类似天花病毒。痘病毒科病毒（包括天花，鼠痘，猴痘，牛痘）能产生A型包涵蛋白（A-type inclusion protein，或ATI），这种蛋白会把有传染性的病毒颗粒包裹在胶质的内涵体中“提供长期保护使病毒免受环境因素影响”。新型鼠痘病毒的一个显著特征是ATI蛋白链N端出现变异，蛋白链长度大幅缩短。论文作者认为，缩短的ATI蛋白链可能导致病毒“在体内更高的复制率以及在小鼠中更高的效率造成呼吸道感染”。换句话说，武汉病毒所的科学家发现，缩短或删除ATI基因可以增强类似天花的病毒通过呼吸道途径的传染率。这种新型鼠痘病毒在成年小鼠中死亡率高达70%，在乳鼠中死亡率为100%。其它烈性痘科病毒比如天花或猴痘病毒都有缩短的ATI基因，可能不会形成大块的内涵体。如果武汉实验室的科学家故意对痘科病毒进行基因改造，缩短或删除ATI基因，他们可能制造出更具感染力的病毒。
+还想说服别人来证明自己的正确
+still wants to persuade others to prove yourself correct
 
-问题不在于中共是否敢释放类似天花的病毒，而是什么时候以及多大规模。郭先生提醒大家不要打疫苗，即使出现天花疫情。就像新冠病毒和新冠疫苗，病毒和疫苗是一对子母弹生物武器，可以造成二次伤害。疫苗就是故意设计的生物武器，对预防疾病无效，但是会造成严重副作用。不要相信致命毒针。
+为了说服别人能证明自己积德行善
+and to prove that you are doing good deeds,
 
-我们有责任推翻邪恶的中共，否则未来会投放比新冠更致命的病毒。也许天花已经从潘多拉盒子里释放出来了。
+你就是太无知了
+then you are too ignorant
 
-参考资料：
+这真的说不清道不明的这种
+It’s really hard to tell this
 
-1. [郭文贵先生11月26日GTV大直播](https://gtv.org/video/id=61a0daac44c1fe7a6c39814d)
+贪嗔痴慢疑的这个“痴”字
+word “foolishness” from the five minds of greed, hatred, foolishness, arrogance, and suspicion
 
-2. [Wang, J. and et al. “Identification, Isolation, and Characterization of an Ectromelia Virus New Strain from an Experimental Mouse.” *Virologica Sinica.* (2021) 36:155-158](https://doi.org/10.1007/s12250-020-00263-w)
+在每个人身上体现得淋漓尽致
+It is vividly reflected in everyone
 
+这个执着心已经把很多人完全给迷了双眼
+This attached mindset has completed blinded many people
 
+没了智慧
+and lost their wisdom
+
+在这个问题疫苗灾难问题面前
+When we facing this problem of vaccine disaster,
+
+刚才谈的喜币
+the HCoin that we just talked about
+
+什么币安都是鸟事了
+and whatever the Binance is nothing
+
+你活着这些有你的
+You will have a share when you are alive
+
+不活着啥都不是你的
+otherwise nothing would be yours
+
+你没了就没了，有了就有了
+Everything will be useless if you are gone, you will have them if you are here
+
+就这么简单
+It’s just that simple
+
+只有新中国联邦，全人类就咱这么牛
+In the mankind, only us, the New Federal State of China is that awesome
+
+从第一天到现在
+Since the first day till now,
+
+更重要的事情
+the more important thing is that
+
+你永远不知道感谢新中国联邦
+you never know how to thank the New Federal State of China,
+
+真正的该如何感谢
+how to really thank by heart
+
+就是我们能让战友不打疫苗这件事
+Just by the fact that we can prevent our comrades from being vaccinated
+
+我可以说我们荣耀一万辈子都不夸张
+I can say that we are not an exaggeration of our glory
+
+因为让你存在
+Because it allows you to survive
+
+就我越看这么多人无知
+The more I see so many ignorant people
+
+我越尊重新中国联邦
+the more I respect the New Federal State of China
+
+我每天看着这（新中国联邦）旗的时候
+when every day I look at this New Federal State of China flag
+
+救（了）这么多人
+We have saved many lives
+
+咱救太多人了
+We have saved so many lives
+
+可是我希望你们真的懂得
+But I hope you really understand
+
+兄弟姐妹们
+brothers and sisters
+
+疫苗灾难还没开始
+The vaccine disaster has not yet begun
+
+那比你想象的要差得多
+It is much worse than you think
+
+因为你在阳光下
+because you are in the daylight
+
+当你在黑夜中没有电灯的时候
+When you are in the dark without electricity,
+
+你就知道黑暗真的来了
+then you’ll know the darkness is really coming
+
+不是你两天能藏点饭吃
+It’s not just two days while you still have food left
+
+后天能藏点饭吃
+or three days that you still can eat what you have saved
+
+是很多天的时候
+When that situation last many day,
+
+到处像洛杉矶像旧金山拿枪抢劫LV店一样
+like Los Angeles and San Francisco people robbed an LV store with a gun
+
+到处抢劫的
+There would be robbery everywhere
+
+很恐怖的
+It’s very scary
+
+还有一个，你们真不知道
+Also, there is another one that you really don’t understand
+
+新中国联邦让你不打疫苗意味着什么
+that what does it mean for the New Federal State of China preventing you from vaccinated
+
+太伟大了，太伟大了
+It’s so extraordinary
+
+不但让你不打疫苗，还救这么多人
+because not only prevents you from getting vaccinated, but also saves so many people
+
+珍惜我们新中国联邦吧，兄弟姐妹们
+Brothers and sisters, let’s cherish our New Federal State of China
+
+你喝什么以后
+What would you drink in that situation?
+
+绝对不会让你买得到水
+You are absolutely not able to buy the drinking water,
+
+买到你也花不起这钱
+and it’ll be too expensive to buy if it is available
+
+（有人说）我要烧水，你有电吗？你有气吗？
+You may say that I can boil the water, but where is the electricity or gas?
+
+三天水只要你喝不好
+It only takes three days if you keep drinking non-drinkable water,
+
+你就开始拉肚子得疟疾
+you would start to have diarrhea and malaria
+
+你会看到像大卫三天（就会）拉疟疾
+You would have diarrhea in three days as David had
+
+像飞飞、卡丽熙，你脸都变形
+and your facial would be changed as Feifei and Kalixi had experienced
+
+我不是跟你们开半点玩笑
+I’m not joking with you at all
+
+你不准备好这一刻那走着看吧
+You will see when that moment comes if you are not ready
+
+灾难在后边呢
+The disaster has yet to come
+
+**原视频链接:** [https://gettr.com/post/phtknu1333](https://gettr.com/post/phtknu1333)
+
+Date: 11/26/2021
+原视频标题: 疫苗次生危机还没到来
+The Vaccine Crisis Has Not Yet Arrived
+原视频日期：2021/11/24
+原视频链接: https://gettr.com/post/phtknu1333
+任务编号：3016
+视频时间段 : 0:00-2:06
+
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

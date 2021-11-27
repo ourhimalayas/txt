@@ -2,32 +2,48 @@
 ---
 
 
-## 澳大利亚30座城市数十万民众上街抗议政府强制疫苗令
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1700907/)
+## 美国将限制来自8个南部非洲国家的旅行
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1700985/)
 
-#### 撰稿：日本东京方舟农场  海星
+作者：纽约香草山教育部 —-Naughty(文行)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/BF998B96-E60F-4D55-81E9-745DCB281E8D.jpeg)（图片来源：Getty Images）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-421.jpeg)
 
-11月27日，澳大利亚的30座城市共有数十万民众同时上街游行，抗议政府的强制疫苗接种令。
 
-据《Rebel News》报道，澳大利亚30个城市的民众于27日走上街头，抗议政府的强制疫苗接种令。该活动是由”反对强制接种疫苗百万游行 “团队组织，参与抗议游行的民众达数十万之多。
 
-据悉，参与当日抗议活动的除墨尔本、悉尼两大城市的民众之外，还包括阿德莱德、达尔文、爱丽丝泉、珀斯、堪培拉、纽卡斯尔、巴利纳、英弗莱尔、塔姆沃思、瓦加瓦加、伯马吉、朗塞斯顿、班伯里、奥尔巴尼、埃斯佩兰斯、卡尔古利、杰拉尔顿、卡纳文、海德兰港、布鲁姆、库努纳拉等中小城市的民众。
+美国政府高层官员表示，美国将从周一开始限制来自南非和其他七个国家的旅行，原因是担心“严重变异”的新冠病毒欧米茄变体。该变体在年轻人中似乎具有高度传染性。
 
-在墨尔本，规模庞大的抗议人群再次游行到了维多利亚州议会大楼前的台阶上。抗议者们不仅反对政府的强制接种疫苗令和疫苗通行证，还强烈要求解雇州长丹尼尔·安德鲁斯（Daniel Andrews）。
+旅行限制不适用于美国公民和合法永久居民，但所有国际旅行者在旅行前都必须检测呈阴性。
 
-据报道，抗议者们还高举代表全世界各国的各式各样的旗帜，和平支持和声援全球受强制疫苗接种令影响的人民。
+WHO 指出，欧米茄变种有大量突变，“其中一些令人担忧”。除南非外，在博茨瓦纳、津巴布韦、纳米比亚、莱索托、埃斯瓦蒂尼、莫桑比克和马拉维也发现了该变种。
 
-*参考链接：[https://www.rebelnews.com/huge\_freedom\_protests\_again\_bring\_australian\_cities\_to\_a\_standstill](https://www.rebelnews.com/huge_freedom_protests_again_bring_australian_cities_to_a_standstill)*
+大约十几个其他国家包括英国、法国、德国、意大利、印度、日本、以色列、土耳其、瑞士和阿拉伯联合酋长国等也将设置类似的旅行限制。欧盟委员会建议各国对来自南部非洲的旅行进行“紧急刹车”，以应对新冠病毒新变种的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-418.jpeg)
+图片：美国之音
 
-* * *
+2021.11.26
 
-*素材采编：海星*
+参考链接：[https://www.foxnews.com/us/omicron-variant-us-restrict-travel-southern-africa-nations?utm\_source=ground.news&utm\_medium=referral](https://www.foxnews.com/us/omicron-variant-us-restrict-travel-southern-africa-nations?utm_source=ground.news&amp;utm_medium=referral)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-419.jpeg)
+总编：飞虹
 
-*编辑：青衣青青*
+编辑/校对/发稿：文敬
 
-*发布：miumiu*
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
 
  
 

@@ -2,202 +2,100 @@
 ---
 
 
-## 社会的边际效应比疫苗本身还可怕
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1701200/)
+## 班农先生熬尽心思帮助中国人成立法治基金、法治社会
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1701269/)
 
-[https://gtv.org/video/id=61a238ef3ff6481adce525d2](https://gtv.org/video/id=61a238ef3ff6481adce525d2)
+[https://gtv.org/video/id=61a241343ff6481adce5291e](https://gtv.org/video/id=61a241343ff6481adce5291e)
 
-你看
-Mira
+**郭文贵**
+**Miles Guo**
 
-现在在中国大陆
-Ahora en China Continental
+班农先生给我留下最深的印象，班农先生对中国人的了解
+I was most impressed by Mr. Bannon’s knowledge of the Chinese people
 
-它有一样东西
-Tiene una cosa
+就是你没有听到一个外国人对中国的了解
+You haven’t heard any one foreigner’s understanding of China
 
-它是盖不住
-Que no puede ser cubierta
+我给你们讲过，我在班农先生之前，
+I told you that, before I met Mr. Bannon
 
-就是到处这个天然气管爆炸
-Son las explosiones de tuberías de gas natural por todas partes
+我见了CIA的什么领导啊，FBI的领导啊, 什么国会的，
+I met CIA’s officials, FBI’s officials, and some officials in Congress
 
-到处楼宇爆炸, 交通事故
-Accidentes vehiculares y explosiones de edificios
+我见了多了去了，没有一个人能说
+I met a lot of America’s officials, but none of them can say clearly
 
-现在中共国是最厉害的
-Ahora lo más poderoso del PCCh
+他们都以为中国所有人都是共产党员, 也不知道中国的历史
+They all think that everyone in China is a Communist Party member, and they don’t know the history of China.
 
-国内得病的人
-Las personas que se enfermaron
+班农先生讲，明朝、唐朝、汉朝，我说这哥们行啊
+Mr. Bannon talked about Ming Dynasty, Tang Dynasty, Han Dynasty, I said this guy is awesome
 
-儿童死亡率, 死胎率
-La tasa de mortalidad infantil, la tasa de la muerte fetal
+俺俩，这个越聊越多，而且班农先生最多关注就是老百姓
+We talked more and more, and Mr. Bannon was most concerned of the Laobaixing
 
-畸胎率, 心包炎, 心肌炎
-La tasa teratogénica, pericarditis, miocarditis
+他说中国老百姓太苦了，他真的觉得中国老百姓是非常棒的
+He said that the Chinese Laobaixing are too miserable, and he really thinks that the Chinese people are very good people
 
-交通事故, 医院爆满
-Accidentes de vehículos, los hospitales llenos
+他喜欢，他讲了各种例子，看到老百姓，香港啊，上海啊，
+He likes them and he told various examples, like he saw the Laobaixing in Hong Kong, Shanghai,
 
-每一个人的背后
-Detrás de cada persona
+他到了北京啊, 然后他见到了王岐山的感觉呀，他说中国王岐山简直就是个魔鬼
+and when he arrived in Beijing, then he met Wang Qishan, and he said that the China’s Wang Qishan is simply a devil
 
-他都连接着一个家庭
-Está vinculada a una familia
+然后他就觉得王岐山很怕他的平民运动，再一个他就听到我讲这些东西
+Then he felt that Wang Qishan was very afraid of his populism, and then he heard me talking about these things
 
-每一个人都可能连接着一份工作
-Cada quien puede estar conectada de un trabajo
+班农先生一个字不落，他没有任何应付,
+Mr. Bannon catches every single word that I said, he hasn’t done any perfunc-tory
 
-这些事情持续下去就是
-Y si todas estas cosas siguen sucediendo
+我从没见过班农先生跟谁说话，去应付这个事儿，这个是让我对他绝对的尊重
+I’ve never seen it before when Mr. Bannon talk to someone very perfunctorily, this is something that gives me absolute respect for him
 
-管天然气的, 天然气爆炸
-Los que se encargan del gas natural, se explotará la tubería
+他是一个真正的大师，而且他真是博学
+He is a real master, and he is really knowledgeable
 
-管拧管的, 结果管没有人拧了
-Los que se encargan de atornillar la tubería no lo hizo
+而且从中东、霍尔木兹海峡、高尔夫，然后整个红海到死海、俄罗斯、东欧、西欧
+And from the Middle East, the Strait of Hormuz, gulf, and then the entire Red Sea to the Dead Sea, Russia, Eastern Europe, Western Europe
 
-最惨的事情
-Y lo peor es
+然后从非洲到美国的这个整个的内部战争和南北的整个战争
+Then from Africa to the civil war of the United States between North and South
 
-你看到郑州街头那俩孩子
-Ves a esos dos niños en las calles de Zhengzhou
+然后美国从华盛顿到这的历史，
+Then the history of the United States from Washington to now
 
-他妈妈倒在街头的时候
-Cuando su mamá se cayó en la calle
+我们谈的就是，哗, 就过去了六七个小时啊，就是班农先生，你真的跟他的生活中了解他的时候
+We have been talking for six or seven hours，when you really got to know Mr. Bannon in his life
 
-那俩孩子完全是不知道怎回事了
-Estos dos niños no saben totalmente lo que estaba pasando
+他完全和你在屏幕上时不一样的，这是我们第一次见面
+He is completely different from when you see him on the screen, this is the first time we met
 
-你告诉我这妈不在了
-Dime tú, si esta mamá ya no está
+很多很多事情发生，他完全同意美国的所有的问题
+Many, many things happen, and he totally agrees of all the problems in the United States
 
-这俩孩子是怎么成长
-Cómo crecerán estos niños
+很多都是共产党造成的，而且在非常的危险之中
+And many of them are caused by the Communist Party, and they are in great danger
 
-中国人一个人毁掉的时候
-Cuando una persona es destruida en China
+这是很重要的，小新，你翻译一下给班农先生
+This is very important, Xiaoxin, can you translate these to Mr. Bannon
 
-这一个家庭就是撕裂
-Esta familia está rota
+我说的观点也让西方观众听一听
+Let the western audiences hear my point of view
 
-这整个社会现象
-Y el fenómeno de toda esta sociedad
+**原视频链接:**[https://gettr.com/post/phnq2r1bcb](https://gettr.com/post/phnq2r1bcb)
 
-就不是你今天能用语言
-Ya no puede ser descrito con palabras
+Date:11/26/2021
+原视频标题: 班农先生熬尽心思帮助中国人成立法治基金、法治社会
+Mr. Bannon worked so hard to help the Chinese people establish the rule of law foundation and the rule of law society
+原视频日期：2021/11/20
+原视频链接https://gettr.com/post/phnq2r1bcb
+任务编号：KC289（2994）
+视频时间段 : 0:00-1:56
 
-任何形容的了
-Ninguna descripción
-
-拖垮了2到3个家庭
-2 a 3 familias fueron derribadas
-
-然后再想想
-Y luego piensan
-
-现在贫穷的发病率少的非洲
-Ahora hasta el país pobre de África donde tiene baja la morbilidad
-
-他也打了很多针
-También se ha vacunado varias dosis
-
-包括直罗陀我那个哥们
-Incluyendo Gibraltar, mi hermano
-
-后来给我打电话
-Luego me llamó
-
-他说他小姨子的
-Diciendo que su cuñada
-
-一家人就死了四个人
-Murieron cuatro personas en la familia
-
-俩自杀, 俩个打了疫苗
-Dos se suicidaron y dos por haberse vacunado
-
-你想想, 这样的现象
-Piensa, este tipo de fenómeno
-
-那么, 在我们身边不会发生吗
-¿No sucederá en nuestro alrededor?
-
-想想加拿大, 美国, 英国
-Piensa en Canadá, EE. UU, Reino Unido
-
-大卫兄弟
-Hermano David
-
-英国的医疗是全欧洲最烂的医疗
-La atención médica británica es la peor atención médica en Europa
-
-英国最烂的就是它那个
-Lo peor del Reino Unido
-
-电厂发电站
-Es la Planta de energía
-
-所以大家一个社会的边际效应
-Entonces, el efecto marginal de todos como sociedad
-
-一个人有事儿
-Si a una persona le pasa algo
-
-一个家毁了, 几个家毁了
-Una casa o unas cuantas casas serán destruidas
-
-一个人有了病
-Una persona enferma
-
-整个社会系统都要为他服务
-Todo el sistema social debe prestarle servicio
-
-你们真的没想过
-Ustedes realmente no han pensado
-
-七哥现在就跟我的家人
-Ahora mi familia y yo
-
-我的生活, 我的朋友
-Mi vida, mis amigos
-
-我跟每个人聊
-Hablo con cada persona
-
-我没有觉得任何人
-Y no siento que alguien
-
-包括你们4个
-Incluyendo ustedes 4
-
-我也不认为
-Tampoco lo creo
-
-你严肃认真地
-Estás enfrentando estrictamente
-
-真的面对这一刻的到来
-La llegada de este momento
-
-这比疫苗的本身还可怕
-Esto es más aterrador que la vacuna en sí
-
-**原视频网址**：[https://gettr.com/post/pht37r0ebf](https://gettr.com/post/pht37r0ebf)
-
-日期：11/26/2021
-原视频标题：社会的边际效应比疫苗本身还可怕
-El efecto marginal de la sociedad es más aterrador que la vacuna en sí
-原视频日期：11/25/2021
-原视频网址：https://gettr.com/post/pht37r0ebf
-任务编号：KC287（3015）
-视频时间段：0:00-1:45
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
+中听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 –天涯行
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
