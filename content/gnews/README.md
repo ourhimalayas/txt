@@ -15,142 +15,142 @@
 
 ---
 
-### [疫苗灾难将导致清除共产党、审判、动荡和幸存者的审视](/content/gnews/1/README.md)
- ` NewFOC`
+### [继上周后，澳洲人为抗议新冠疫苗强制令再次走上街头](/content/gnews/1/README.md)
+ ` 走进澳洲`
 
-### [恶性循环 新病毒刚出现辉瑞已经着手研发新疫苗](/content/gnews/2/README.md)
- ` 秘密翻譯組G-Translators`
-
-### [有声| 约瑟的启示（一）：顺服神的爱可以化解仇恨](/content/gnews/3/README.md)
+### [视频|什么叫红色资本？](/content/gnews/2/README.md)
  ` MOSREC`
 
-### [澳洲可能已经出现了南非新变体病例](/content/gnews/4/README.md)
+### [停止疫苗灾难和没让战友们打疫苗新中国联邦的最大资产](/content/gnews/3/README.md)
+ ` NewFOC`
+
+### [视频| 什么叫国家，什么叫金融？](/content/gnews/4/README.md)
+ ` MOSREC`
+
+### [视频|加拿大护士辞职后爆料：目睹多起因疫苗导致的流产和心脏病](/content/gnews/5/README.md)
+ ` MOSREC`
+
+### [习近平的共同富裕大刀，挥向江泽民家族的代持富豪](/content/gnews/6/README.md)
+ ` G-NEWS TAIWAN`
+
+### [视频|共产党花大钱到海外维稳是为什么？](/content/gnews/7/README.md)
+ ` MOSREC`
+
+### [澳大利亚新州公校教师下月进行全州罢工](/content/gnews/8/README.md)
  ` 澳喜农场`
 
-### [澳大利亚对南非等九国关闭国境](/content/gnews/5/README.md)
- ` 澳喜农场`
+### [疫苗灾难将导致清除共产党、审判、动荡和幸存者的审视](/content/gnews/9/README.md)
+ ` NewFOC`
 
-### [国际社会各界持续发声抵制2022年北京冬奥会](/content/gnews/6/README.md)
- ` 澳喜农场`
-
-### [疫苗强制和封锁：历史不会重覆，但总会惊人地相似](/content/gnews/7/README.md)
- ` 墨尔本雅典娜农场`
-
-### [【Michael.Tonny专栏】图表分析中共国的房地产巨大泡沫](/content/gnews/8/README.md)
- ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
-
-### [美国代表团本月“意外”二次访台，中共国仓促应对进行 “战备 ”演习](/content/gnews/9/README.md)
+### [恶性循环 新病毒刚出现辉瑞已经着手研发新疫苗](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [共产党通过疫苗放毒实现按需淘汰人口建立地球政府目的](/content/gnews/10/README.md)
- ` NewFOC`
+### [有声| 约瑟的启示（一）：顺服神的爱可以化解仇恨](/content/gnews/11/README.md)
+ ` MOSREC`
 
-### [在博茨瓦纳发现新冠变种病毒其感染者都完全接种了新冠疫苗](/content/gnews/11/README.md)
+### [澳洲可能已经出现了南非新变体病例](/content/gnews/12/README.md)
  ` 澳喜农场`
 
-### [2021/11/25 墙内世界](/content/gnews/12/README.md)
+### [郭先生爆料赵长鹏将币安的用户资料出卖给中共](/content/gnews/13/README.md)
+ ` 纽约香草山MOS01`
+
+### [澳大利亚对南非等九国关闭国境](/content/gnews/14/README.md)
+ ` 澳喜农场`
+
+### [国际社会各界持续发声抵制2022年北京冬奥会](/content/gnews/15/README.md)
+ ` 澳喜农场`
+
+### [疫苗强制和封锁：历史不会重覆，但总会惊人地相似](/content/gnews/16/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【Michael.Tonny专栏】图表分析中共国的房地产巨大泡沫](/content/gnews/17/README.md)
+ ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
+
+### [美国代表团本月“意外”二次访台，中共国仓促应对进行 “战备 ”演习](/content/gnews/18/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [共产党通过疫苗放毒实现按需淘汰人口建立地球政府目的](/content/gnews/19/README.md)
+ ` NewFOC`
+
+### [在博茨瓦纳发现新冠变种病毒其感染者都完全接种了新冠疫苗](/content/gnews/20/README.md)
+ ` 澳喜农场`
+
+### [2021/11/25 墙内世界](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [文贵先生警告世界：中共一定利用天花病毒对抗西方](/content/gnews/13/README.md)
+### [文贵先生警告世界：中共一定利用天花病毒对抗西方](/content/gnews/22/README.md)
  ` 澳喜特战旅Gnews`
 
-### [各大疫苗生产商对南非新变种病毒做出回应](/content/gnews/14/README.md)
+### [各大疫苗生产商对南非新变种病毒做出回应](/content/gnews/23/README.md)
  ` 澳喜特战旅Gnews`
 
-### [永不屈服 针对雇主疫苗强制令发出的责任通知书](/content/gnews/15/README.md)
+### [永不屈服 针对雇主疫苗强制令发出的责任通知书](/content/gnews/24/README.md)
  ` Mr. Miles Guo's News Briefing`
 
-### [堪萨斯州通过立法反对联邦政府疫苗强制](/content/gnews/16/README.md)
+### [堪萨斯州通过立法反对联邦政府疫苗强制](/content/gnews/25/README.md)
  ` GTV新闻访谈`
 
-### [中共喊话日本支持北京冬奥会](/content/gnews/17/README.md)
+### [中共喊话日本支持北京冬奥会](/content/gnews/26/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美议员访台，中共战狼惯例式狂吠](/content/gnews/18/README.md)
+### [美议员访台，中共战狼惯例式狂吠](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [被扣“辱华”帽子，摄影师陈漫被迫道歉](/content/gnews/19/README.md)
+### [被扣“辱华”帽子，摄影师陈漫被迫道歉](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [立陶宛反击中共外交惩罚](/content/gnews/20/README.md)
+### [立陶宛反击中共外交惩罚](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [美国会议员团访问台湾，中共8军机扰台](/content/gnews/21/README.md)
+### [美国会议员团访问台湾，中共8军机扰台](/content/gnews/30/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [日本政府批准创纪录军费开支以应对中共军事威胁](/content/gnews/22/README.md)
+### [日本政府批准创纪录军费开支以应对中共军事威胁](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [许家印再卖恒大股份，套现27亿](/content/gnews/23/README.md)
+### [许家印再卖恒大股份，套现27亿](/content/gnews/32/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [南非变种病毒突现 全球投资市场闪崩](/content/gnews/24/README.md)
+### [南非变种病毒突现 全球投资市场闪崩](/content/gnews/33/README.md)
  ` 纽约香草山MOS01`
 
-### [索罗门爆发反对亲中政府的示威 殃及当地华人](/content/gnews/25/README.md)
+### [索罗门爆发反对亲中政府的示威 殃及当地华人](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [华夏视角系列之三：共匪对日本政界的蓝金“黄”触目惊心](/content/gnews/26/README.md)
+### [华夏视角系列之三：共匪对日本政界的蓝金“黄”触目惊心](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秦刚纽约见华人为应对中共社团将被铲除和安排华人选举](/content/gnews/27/README.md)
+### [秦刚纽约见华人为应对中共社团将被铲除和安排华人选举](/content/gnews/36/README.md)
  ` NewFOC`
 
-### [郭文贵先生分享真实故事 再次强调“不要打疫苗”](/content/gnews/28/README.md)
+### [郭文贵先生分享真实故事 再次强调“不要打疫苗”](/content/gnews/37/README.md)
  ` GTV新闻访谈`
 
-### [在三个国家发现 “比德尔塔（Delta）更糟糕 ”的新冠病毒菌株](/content/gnews/29/README.md)
+### [在三个国家发现 “比德尔塔（Delta）更糟糕 ”的新冠病毒菌株](/content/gnews/38/README.md)
  ` 墨尔本雅典娜农场`
 
-### [中共病毒最新变种的突变数量远超Delta和Beta](/content/gnews/30/README.md)
- ` 日本东京方舟农场`
-
-### [赵长鹏卖资料风波已现，币安大客户遭逮捕](/content/gnews/31/README.md)
- ` GTV新闻访谈`
-
-### [迄今最强新冠变种出现，疫苗公司称可快速提供疫苗](/content/gnews/32/README.md)
+### [迄今最强新冠变种出现，疫苗公司称可快速提供疫苗](/content/gnews/39/README.md)
  ` 墨尔本雅典娜农场`
 
-### [600多名谷歌员工签署宣言反对疫苗强制令](/content/gnews/33/README.md)
+### [600多名谷歌员工签署宣言反对疫苗强制令](/content/gnews/40/README.md)
  ` 纽约香草山MOS02`
 
-### [日本与加拿大外长一致强烈反对中共擅自改变现状](/content/gnews/34/README.md)
+### [日本与加拿大外长一致强烈反对中共擅自改变现状](/content/gnews/41/README.md)
  ` 日本东京方舟农场`
 
-### [郭文贵先生再谈即将爆发的疫苗灾难](/content/gnews/35/README.md)
- ` 纽约香草山MOS01`
-
-### [日本计划再增加军费加强海空防御应对中朝威胁](/content/gnews/36/README.md)
- ` 日本东京方舟农场`
-
-### [11/26/2021 文贵直播：四个指标说明中共必灭](/content/gnews/37/README.md)
- ` 秘密翻译组-北美组`
-
-### [新中国联邦是一个共同目标的联邦](/content/gnews/38/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [一本新书揭露美国公共卫生沙皇福奇就是黑暗势力](/content/gnews/39/README.md)
- ` 温哥华扬帆农场`
-
-### [为套现还债，恒大许家印在港交所出售9%公司持股](/content/gnews/40/README.md)
+### [为套现还债，恒大许家印在港交所出售9%公司持股](/content/gnews/42/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [中共早在2004年已图谋用细菌病毒消灭基督教天主教徒](/content/gnews/41/README.md)
+### [中共早在2004年已图谋用细菌病毒消灭基督教天主教徒](/content/gnews/43/README.md)
  ` NewFOC`
 
-### [11/26/2021 文贵直播：天花病毒是生化武器，易制造](/content/gnews/42/README.md)
- ` 秘密翻译组-北美组`
-
-### [英国护士因参加集会而面临指控](/content/gnews/43/README.md)
+### [英国护士因参加集会而面临指控](/content/gnews/44/README.md)
  ` 墨尔本雅典娜农场`
 
-### [做一枚坚定的“币加锁”](/content/gnews/44/README.md)
+### [做一枚坚定的“币加锁”](/content/gnews/45/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [COVID-19 最新情报｜为儿童疫苗造势 以色列总理携 9 岁儿子上阵接种第一针](/content/gnews/45/README.md)
- ` G&#124;News TAIWAN`
-
-### [COVID-19 最新情报｜护士爆料004：北京市今年心脑血管疾病发生率较去年超逾五成](/content/gnews/46/README.md)
+### [COVID-19 最新情报｜为儿童疫苗造势 以色列总理携 9 岁儿子上阵接种第一针](/content/gnews/46/README.md)
  ` G&#124;News TAIWAN`
 
 ### [南非出现强传染性中共病毒新变种，引发全球恐慌](/content/gnews/47/README.md)

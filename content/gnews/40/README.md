@@ -2,30 +2,50 @@
 ---
 
 
-## 为套现还债，恒大许家印在港交所出售9%公司持股
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1699027/)
+## 600多名谷歌员工签署宣言反对疫苗强制令
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1699092/)
 
-![中国恒大中心在香港办公楼外的标识 （2021年9月23日）](https://gdb.voanews.com/8E516E9E-CDEE-4BE8-A587-96DE914D5A6D_w1023_r1_s.jpg)*中国恒大中心在香港办公楼外的标识 （2021年9月23日）*
-据美国之音11月27日报道，深陷债务危机的中国恒大集团董事局主席许家印和妻子丁玉梅以及旗下有限公司25日在港交所出售36亿股恒大股份，变现约80亿港元(约合10.26亿美元)用于公司纾困。
+作者：纽约香草山农场 – 四季
 
-恒大是由许家印创办的中共国首屈一指的房地产巨头，今年以来深陷债务危机，公司所欠债务超过3000亿美元。许家印曾将他位于香港的两处豪宅抵押，出售一些艺术品和书法收藏，并两架湾流私人飞机，筹措5000多万美元现金。但是与它3000多亿美元的债务相比，仍然杯水车薪。
-
-恒大持续的债务危机和违约风险曾多次引发中共国金融市场和房地产业的震荡，以及国际金融市场的紧张，但是中共国政府至今没有出手救助的迹象。中共经济濒临崩溃，救助恒大已经是心有余而力不足。恒大最终必将倒塌并引发全球经济危机。
-
-新闻参考链接：[http://dlvr.it/SDFqhN](https://dlvr.it/SDFqhN)
-
-编辑:胖丁
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+据[零对冲](https://www.zerohedge.com/political/over-600-google-employees-sign-manifesto-against-covid-vaccine-mandate)11月24日报道，全国广播公司商业频道 (CNBC) 援引内部文件称，至少有600名谷歌员工签署了一份内部宣言，呼吁公司撤销其疫苗强制令,并创建一个“包容所有谷歌人”的新授权。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1529-covid-vax.jpg)图片来源：零对冲
+
+宣言认为公司领导层的决定将在美国企业中产生巨大的影响。它还呼吁员工“作为一个原则问题反对这项任务”，并告诉员工，如果他们已经选择不接种Covid疫苗，不要让这项政策改变他们的决定。
+
+尽管谷歌员工中只有一小部分人签署了这份文件，但随着复工期限的临近，这种势头可能会越来越大。该公司的大多数员工预计将从1月10日开始每周三天返回实体办公室工作。
+
+谷歌的强制疫苗接种令是在拜登政府对员工人数超过100人的公司下达“不打疫苗就测试”的命令之后制定的。谷歌要求其超过15万名美国员工在12月3日前报告他们的疫苗接种情况。此外，该公司表示，所有直接或间接为政府合同工作的员工必须接种疫苗，即使他们是在家中工作。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

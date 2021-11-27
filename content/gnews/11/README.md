@@ -2,21 +2,37 @@
 ---
 
 
-## 在博茨瓦纳发现新冠变种病毒其感染者都完全接种了新冠疫苗
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1699239/)
+## 有声| 约瑟的启示（一）：顺服神的爱可以化解仇恨
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1699327/)
 
-By：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Botswana.jpg)图片来自网络
-与南非毗邻的博茨瓦纳11月22日[报告了](http://www.news.cn/english/2021-11/26/c_1310333106.htm)4例新冠变种病毒的感染者。初步报告显示，所有这4人都已经完全接种了新冠疫苗，表明现有的新冠疫苗对这种变种病毒不起作用。
+配音：香草山福音部 – Daxia
 
-这个变种病毒被称为B.1.1.529。对该病毒的初步调查显示，与当地占主导地位的Delta变种病毒相比，新的变种病毒有大量的突变。博茨瓦纳卫生当局驳斥了将新变种病毒与感染者的艾滋病阳性状态联系起来的推断。
 
-同时，在[南非检测到的](http://www.21jingji.com/article/20211127/herald/8398739b66bd90bcdcda43b5a7ef761d.html)感染该变种病毒的的人数在迅速增加。
 
-英国已将这一变种称为“迄今为止最糟糕的变种”。英国宣布，从26日中午起，暂停南非、博茨瓦纳等6个非洲国家入境英国的航班。
+（圣经不只记录古老的历史和人物，更是启示我们与神，与人，与神造的世界如何相处。）
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
+约瑟的人生，跌宕精彩。他信靠神的所言所行对我很有启发：用爱化解和哥哥们的恩怨；平衡统治者和平民在饥荒之年的利益；对神的信靠得来长子的名分。神启示我们，神选的是属灵的长子，不是肉体的长子。
+
+约瑟带着与神同行的慈悲和因慈悲而来的神的智慧，对我们化解共产党制造的同胞间的各种仇恨、与世界和平相处、坚定与神同行的使命都非常有帮助。
+
+
+
+**文字版原文：[【信仰之声】约瑟的启示（一）：顺服神的爱可以化解仇恨](https://gnews.org/zh-hans/1695800/)**
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar-1.jpg)
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,36 +2,42 @@
 ---
 
 
-## 一本新书揭露美国公共卫生沙皇福奇就是黑暗势力
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1699038/)
+## 迄今最强新冠变种出现，疫苗公司称可快速提供疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1699099/)
 
-加拿大温哥华扬帆农场：空山新雨8298
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2021050516590180101.jpg)
-图片来源：news.cctv.com
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-小罗伯特·弗朗西斯·肯尼迪 (Robert Francis Kennedy Jr.) 最近出版了一本书： “The Real Anthony Fauci: Bill Gates, Big Pharma, and the Global War on Democracy and Public Health”， 翻译：《真正的安东尼·福奇：比尔·盖茨、大型制药公司以及全球民主和公共卫生战争》
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/https___d1e00ek4ebabms.cloudfront.net_production_2370d5eb-2dc8-407a-849a-c83dd8fbae10.jpg)
 
-在这本书中，罗伯特对安东尼·福奇进行了深入的分析，揭露了他统治美国 50 年的灾难性后果。
 
-小罗伯特·弗朗西斯·肯尼迪 (Robert Francis Kennedy Jr.) ：
+ 
+图片来源：www.ft.com/content
 
-他是美国环境律师、作家和反疫苗倡导者。肯尼迪是美国参议员罗伯特·肯尼迪的儿子，也是约翰·肯尼迪总统的侄子。他于 1999 年帮助成立了非营利性环保组织 Waterkeeper Alliance，并担任其董事会主席。他推出了一本新书，在新书中，罗伯特揭示了福奇每年巨额支出如何让他能够决定全球科学健康研究的主题、内容和结果。
 
-作为美国国家过敏症和传染病研究所 (NIAID) 的主任，安东尼·福奇博士每年从纳税人提供的科学研究资金中拨出 61 亿美元。
+#### 编译：小红帽
 
-这些年度支出还允许福奇对“知识和创新”领导者大军进行独裁控制，这些领导者组成了批准和授权药物和疫苗的“独立”联邦小组——包括允许紧急使用 COVID- 19种疫苗。
+美洲最常用的几大疫苗制造商表示，他们可以迅速应对南非Nu变种带来的挑战。
 
-福奇利用他掌握的金融影响力对医院、大学、期刊以及数以千计有影响力的医生和科学家施加了非凡的影响——他有能力毁掉、提升或奖励他们的事业和机构。
+据悉，最近出现的新冠病毒变种被认为是迄今为止最具传染性的变种，一些人担心它可能会避开目前的新冠（COVID-19）疫苗所提供的保护。
 
-在这些利益或威胁之下，一些医生出现在社交媒体和电视新闻节目中，在有影响力的媒体专栏发表文章，为福奇的思想和政策提供理论或实践支持，为美国制药业的实际领导者福奇辩护。
+辉瑞生物科技（Pfizer BioNTech）公司和莫德纳（Moderna）公司负责生产美国两种最常见疫苗，他们都表示，如果有必要，可以快速更新疫苗以提供针对新变种的保护。
 
-该书于 11 月 16 日发行，现在可以订购。
+虽然该变种尚未在美国被发现，但它已经出现在非洲和欧洲的多个国家，使美国官员保持高度警惕。
 
-英文书名：”The Real Anthony Fauci: Bill Gates, Big Pharma, and the Global War on Democracy and Public Health” 中文翻译《真正的安东尼·福奇：比尔·盖茨、大型制药公司以及全球民主和公共卫生战争》
+CNBC报道说，莫德纳公司可以在60天内开始进行对潜在抗性变体有效的疫苗的临床试验。如果有必要，辉瑞公司可以在6周内调整其mRNA疫苗，并在需要时，在100天内发货。
 
-订购商店或网站：Barnes & Noble、IndieBound、Bookshop.org、Target、Walmart 和 Books-A-Million。
+美国第三种疫苗的制造商强生公司也表示，它正在测试其疫苗对这种新变种的有效性。
 
-编审：文敏 发布： 文敏
+**参考新闻：**[Pfizer, Moderna say they can quickly update vaccines ‘if they need to’ (msn.com)](https://www.msn.com/en-au/health/medical/pfizer-moderna-say-they-can-quickly-update-vaccines-if-they-need-to/ar-AARaKA4?ocid=msedgntp)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

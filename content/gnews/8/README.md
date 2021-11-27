@@ -2,70 +2,66 @@
 ---
 
 
-## 【Michael.Tonny专栏】图表分析中共国的房地产巨大泡沫
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1699256/)
+## 澳大利亚新州公校教师下月进行全州罢工
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1699347/)
 
-加拿大温哥华扬帆农场 Michael.Tonny
-![](https://assets.gnews.org/wp-content/uploads/2021/11/michael-3.jpg)
-本文摘自危地马弗朗西斯科马罗金大学拉经济学教授、[UFM Market Trends](https://trends.ufm.edu/)创始人Daniel Fernández于2021年10月7 日发表的文章[《The Case of Evergrande: Is There a Housing Bubble in China?》](https://trends.ufm.edu/en/article/case-evergrande-china/)，分析中共国房地产泡沫与空城。
-Daniel Fernández（中文：丹尼尔·费尔南德斯），危地马拉（República de Guatemala）米塞斯研究所（Mises Institute）研究员，弗朗西斯科马罗金大学Francisco Marroquín University经济学教授，UFM Market Trends创始人。曾获得奥地利Rey Juan Carlos大学经济学和西班牙University of Alcalá（阿尔卡拉大学）应用经济学硕士学位，西班牙Francisco Marroquín University应用经济学博士学位。
+拟稿：金生水
+![](https://assets.gnews.org/wp-content/uploads/2021/11/罢工.png)
+图片来自网络
+澳媒《ABC News》近日报道，新南威尔士州的公立学校教师已投票决定下个月因工资问题和人员短缺而举行罢工。
 
-Fernández教授采用多个方面的详实数据，论证中共国巨大的房地产泡沫。尽管Fernández教授采用的有些数据是2017年的，但他的分析方法仍然值得借鉴。
-第一、[中共国二线城市的空置率持续增长](https://www.datawrapper.de/_/ZJfJ7/)（在一些大城市，如北京，空置率已达到20%）。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-182.jpg)
-与其他国家相比，中共国的住房空置率较高，但在2017年低于西班牙和意大利。
-2017年世界各国房屋空置率对比（Housing Vacancy Rates by Country）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-128.jpg)
-补充：
-根据《华夏时报》2021年8月11日[《惊！中国有1.3亿套房屋空置无人住！空置税呼之欲出？》](https://finance.sina.com.cn/china/2021-08-12/doc-ikqciyzm0882420.shtml)一文，中共国现在的住房足够34亿人居住。
+教师联合会委员会今天一致投票决定于 12 月 7 日星期二停止工作，这将是过去 10 年来第一次在全州范围内采取此类行动。
 
-2018年12月21日西南财经大学中国家庭金融调查与研究中心(CHFS) 发布的《2017中共国城镇住房空置分析》报告，中共国城镇地区住房空置率是21.4%。
+工会还将通过电视、广播和印刷广告在全州范围内发起广告活动，以引起人们对人手短缺问题的关注。
 
-2019年的潘石屹在一场论坛上提到，全国空置房屋至少有1.3亿套。
+联合会主席安吉洛·加夫列拉托斯表示，新南威尔士州政府拒绝听取教育部门关于“不可持续”的工作量和“缺乏竞争力”的工资的警告。
 
-中国人民银行调查统计司城镇居民家庭资产负债调查课题组于2020年4月24日发表在《中国金融》2020年第9期发表的[《2019年中国城镇居民家庭资产负债情况调查》](https://finance.sina.com.cn/china/2021-08-12/doc-ikqciyzm0882420.shtml)一文中说，到2019年，中共国城镇居民住房拥有率是96%，超过30%的家庭拥有2套住房，超过10%的家庭拥有3套住房，户均拥有住房1.5套。
+“校长和教师不会轻易做出这个决定。在过去的 18 个月里，我们已经用尽了所有可用的选择，以与政府达成协商解决方案，”他说。
 
-第二、房价/租金年数
-Years of Rent Needed to Pay for Housing
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-106.jpg)
-中共国房地产市场的房价/租金比高得离谱；在中共国买房出租是一个非常糟糕的商业计划，收回投资需要长达四十八年的时间。
+去年，教育部的一份报告警告政府，新南威尔士州的公立学校将在未来五年内面临教师人手短缺的问题。
 
-第三、购房投资回报率
+在今年的政府雇员调查中，只有 35% 的公立学校教师表示他们有时间做好自己的工作，38% 的教师表示他们的工作得到了公平的报酬。
 
-中共国城市的房地产投资利润几乎低于其他任何地方的城市，投资中共国房地产市场的回报远低于该国现行的抵押贷款利率，所以在中共国买房没有经济意义。
-Profitability of Housing Investments by City
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-71.jpg)
-第四、房屋购买价格与公民收入中位数
+悉尼Concord高中的校长爱丽丝·梁说，由于教师短缺，课堂上一直无人监督。
 
-如果将所有收入都用于住房，普通中共国公民需要146 年才能买房。中国的房价与人均收入的比率位居世界第二（仅次于印度）。
-Housing Price/Annual Per Capita Income
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-54.jpg)
-第五、相对于中共国居民的收入，房价过高
-Housing Price/Annual Per Capita Income
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-45.jpg)
-第六、中共国近三分之一的经济活动与砖块有关
-（2016年）中共国住房部门对其 GDP 的贡献大于 2000 年代爱尔兰和西班牙巨大的房地产泡沫中的相应贡献。
-Real Estate Sector’s Contribution to GDP
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-37.jpg)
-第七、中共国家庭投资的资产几乎完全是房地产。
-2018 年，中共国家庭财富的 76% 投资于住房（日本为 41%，美国为 27.7%）
-Household Wealth by Asset Type
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-29.jpg)
-第八、2018 年88%的新房是由已经拥有至少一套房屋的人购买。
-正如Rogoff和Yang（2021）指出的那样，尽管中国的 GDP 比美国低 25%，但今天中国房地产市场的估值是美国房地产市场估值的两倍。2008 年，只有30%的新房是由已经拥有至少一套房屋的人购买的；2018年，这个数字是88%。
-Housing Buyers in China
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9-20.jpg)
-参考资料：
+“到目前为止，我的学校今年已经发生了 250 次我们找不到老师来上课的情况，”她说。
 
-- [The Case of Evergrande: Is There a Housing Bubble in China?](https://trends.ufm.edu/en/article/case-evergrande-china/)
-- [CHFS：2017中国城镇住房空置分析（附下载）](http://www.199it.com/archives/856292.html)
-- [《2019年中国城镇居民家庭资产负债情况调查》](https://finance.sina.com.cn/china/2020-04-24/doc-iircuyvh9570653.shtml)
+“就在昨天，我们有 11 个班级必须合并或置于最低限度的监督之下，其中包括开始高中第一学期的班级。”
 
+悉尼Kogarah高中校长朱莉·罗斯表示，由于巨大的压力，每周都有更多教师辞职。
 
-* * *
+她说：“工作量在增加，工作与生活的平衡正在减少，他们的健康正在受到影响。”
 
-编辑/发稿：云起时
+亨特学校的老师娜塔莉·哈德森说，学生们看到老师们“衣衫褴褛”，这让他们在考虑从事教学工作时拒绝了。
 
+“他们看到我们没有午餐或休息时间，我们在晚上和周末工作，孩子们不想报名参加，”她说。
+
+教师联合会表示，自 6 月以来，学校空缺的永久职位数量增加了 80%。
+
+“佩罗特政府（新南威尔士州州长）似乎并不关心教师短缺如此严重，以至于五分之一的教师在他们的学科领域之外教学，”加夫列拉托斯先生说。
+
+“但政府的立场从第一天起就已经确定。尽管他们自己的部门警告说存在教师短缺，因为其他职业支付更具竞争力的薪水，但他们不会改变一刀切的 2.5% 工资上限。”
+
+根据教师协会独立调查的专家小组的建议，教师和校长正在寻求每年5% 至7.5% 的加薪。
+
+州长多米尼克·佩罗特表示，他已经“非常明确地”向教师联合会表示，政府的立场仍然是新南威尔士州的公务员加薪 2.5%。
+
+“我昨天就这些问题与安吉洛进行了非常有建设性的对话……我说我会接受他们，但最终这将被提交给劳资关系委员会，问题就是这样得到解决，”佩罗特先生说。
+
+“我们需要采取公平和平衡的方法；我理解他们的一些具体担忧，我对他们的承诺是，我将在接下来的 12 个月内解决这些问题。”
+
+根据澳大利亚学校资源工作组前经理亚当·罗里斯的一份报告，到 2031 年，新南威尔士州需要至少招聘 11,000 名教师，才能实现创纪录的入学人数增长。
+新州公共卫生令强制要求教师接种疫苗，未能完全接种疫苗的教师将从11月9日开始停止工作。新州有5000名教师没有披露自己的疫苗接种状态，这才是导致新州教师人手短缺最重要的原因，但本篇报导对此问题却选择避而不谈。
+
+现在把退休的临时的都招回来，也不够补缺的，疫苗带来的一系列次生灾难给社会带来的影响已经严重的影响了每一个人的正常生活。请立刻停止施打毒疫苗，推动药物治疗结束中共病毒大流行，让老师们安全的，没有顾虑的回到学校给孩子们上课。
+
+参考链接：
+[NSW teachers vote for December strike over pay and staff shortages – ABC News](https://www.abc.net.au/news/2021-11-27/nsw-teachers-to-go-on-strike/100655842)
+
+[新州近5000名教师未更新疫苗状态　可能面临停职风险 (sbs.com.au)](https://www.sbs.com.au/chinese/mandarin/zh-hans/nearly-5-000-nsw-teachers-risk-being-sidelined-under-looming-covid-vaccine-mandate)
+
+发稿：MG4
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
