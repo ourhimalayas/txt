@@ -2,26 +2,26 @@
 ---
 
 
-## 中共政府无视百姓疾苦，“大撒币”免除他国贷款
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699461/)
+## 病毒超级变体成为中共持续强制疫苗的借口
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699479/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-183.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fimg.sputniknews.cn%2Fimages%2F103015%2F27%2F1030152792.jpg&amp;imgrefurl=http%3A%2F%2Fhanfeng1918.com%2Fnews%2F21449.html&amp;tbnid=REIlUWSv6pHuLM&amp;vet=12ahUKEwjj16PF77f0AhVxnksFHYSdBPkQMygNegUIARDIAQ..i&amp;docid=UOw2Qv5XmOoBEM&amp;w=1000&amp;h=541&amp;q=%E5%A4%96%E4%BA%A4%E9%83%A8&amp;ved=2ahUKEwjj16PF77f0AhVxnksFHYSdBPkQMygNegUIARDIAQ#imgrc=REIlUWSv6pHuLM&amp;imgdii=gtiu1lPqRbA7VM)
-11月26日，中共国国务院新闻办公室发布《新时代的中非合作》白皮书，并举行新闻发布会。
+撰稿：东京樱花团/知了知了
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-46.jpg)[图片来源：图虫](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F13708%2Fproduction%2F_118742697_gettyimages-1232835602.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fscience-57529842&amp;tbnid=ATLRiC2L67UXhM&amp;vet=1)
+11月26日，世界卫生组织（WHO）召开紧急会议，评估中共病毒变体Omicron，变体Spike（S蛋白）拥有有30多种变化，与传染性增强和逃避感染阻断抗体的能力有关。
 
-外交部非洲司司长吴鹏介绍，近年来非洲积极致力于促进社会发展，但资金不足成为制约非洲振兴的一个主要瓶颈。作为非洲真诚友好的伙伴，中方高度重视非洲在资金方面的需求，同时也非常重视他们的债务可持续性，坚持集约发展的理念，尊重非洲人民的意愿，立足非洲的实际，同非方开展务实高效的融投资合作，得到了非洲国家一致欢迎。
+中共官媒第一财经立即抛砖引玉：“每种病毒突变体的出现，大家关注的重点便是：疫苗是否有效？诊断试剂能否准确？药物研发方向是否需要改变？”
 
-由于中共病毒疫情的暴发，非洲一些国家陷入了一些临时、暂时的困难。中共国支持减轻非洲国家的债务负担，积极落实20国集团暂缓最贫困国家债务偿付的倡议，在G20成员中，中共国是缓债金额最大的，已经同19个非洲国家签署了缓债协议和共识。中共国支持G20缓债倡议延期到2021年底，并同有关国家一道落实缓债倡议后续债务处理的共同框架。
+当然，打配合的世卫组织在声明中已经明确的是，通过比较评估，已证明Omicron变体在一定程度上会影响全球多项疫情防控：传染性增加或有害变化；临床疾病表现改变；公共卫生和社会措施或可用诊断、疫苗、疗法有效性降低。
 
-吴鹏介绍，对于疫情特别重、压力特别大的国家，中共国同有关方一道通过个案处理的方式，提供了很多债务减缓方面的支持。中共国已宣布免除与中共国有外交关系的非洲最不发达国家、重债穷国、内陆发展中共国家、小岛屿国家，截止到2018年底到期未偿付的政府间的无息贷款。中共病毒疫情暴发以后，中共国宣布免除15个非洲国家到2020年底的无息贷款。
+第一财经随即提出疫苗解决办法，“一位流行病毒学专家表示，中共国使用范围最广的灭活疫苗，可以通过替换疫苗毒株来应对中共病毒的变体。一旦Omicron变体流行势头抬起，随时可以替换新冠疫苗毒株。”
 
-在中共国内的老百姓，因中共病毒疫情严重影响收入，同时又要背负各种贷款，看到这条新闻，内心都是几万只羊驼在飞奔，老百姓去银行贷款都是高利息的，无息贷款更不可能，不管遭受多大的灾害都没有被免除过利息，更不要说连贷款都被免除了， “宁与外邦，不予家奴”在中共国内老百姓活的连家奴都不如。
+完美的双簧，都是为了持续强制疫苗。中共病毒变体的出现，按逻辑必问，病毒和变体是什么，从何处来，会带来何种后果，才能谈到如何应对。而不是第一财经将舆论焦点人为转移至，疫苗是否有效等话题。但正是舆论的反智，表达了中共的真实意图，即替换疫苗毒株来应对中共病毒的变体。可以预见，继第三针之后，加强第四针，以变体之名，已在路上。
 
-消息来源:
+信息来源：
 
-**[外交部：新冠肺炎疫情暴发以后，中国宣布免除15个非洲国家到2020年底无息贷款](https://finance.sina.com.cn/jjxw/2021-11-26/doc-ikyamrmy5182797.shtml)**
+[新冠病毒“超级变体”出现？疫苗、药物和检测将有哪些影响](https://www.yicai.com/news/101242419.html)
 
-*校对：东京樱花团/知了知了*
+*校对：东京樱花团/喜马拉雅的微尘*
 *发布：东京樱花团/tdownc2p*
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  

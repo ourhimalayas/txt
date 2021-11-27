@@ -2,76 +2,20 @@
 ---
 
 
-## 视频|加拿大护士辞职后爆料：目睹多起因疫苗导致的流产和心脏病
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1699411/)
+## 纽约州紧急状态应对 Omicron 变体威胁
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1699454/)
 
-制作：香草山视频部
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11271.png)图片来自The New York Times
+11 月 26 日-纽约州州长凯西·霍赫尔（Kathy Hochul）已宣布纽约州进入紧急状态，以应对新的冠病毒变种Omicron ，该变种也有可能已经到达美国。
 
+Hochul 还解释说，这一决定与纽约州的一些感染病例有关，随着病例的增加现在已恢复到自去年 4 月以来从未有过的增长水平。
 
+该公告是在拜登政府禁止八个非洲国家进入美国之后发布的，目的是希望增加纽约医院的床位容量并解决医院人员短缺的问题。
 
-我离开了在魁省做了十一年的护士岗位
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/27/stato-di-emergenza-a-ny-contro-minaccia-variante-omicron\_1e93b14a-b671-467b-a94a-9bca1c235776.html](https://www.ansa.it/sito/notizie/topnews/2021/11/27/stato-di-emergenza-a-ny-contro-minaccia-variante-omicron_1e93b14a-b671-467b-a94a-9bca1c235776.html)
 
-我喜爱我的工作以及那里的人
-
-我亲眼看到有人强行给老人打疫苗
-
-违背他们的意愿，在他们呼喊“不要”的时候
-
-我见过“自杀症”病人被送来医院
-
-医院会在他们死后做检测
-
-他们死后会马上被检测是否得了新冠
-
-为什么？
-
-我们为什么要给他们测新冠？
-
-我见过很多人在接种疫苗后短时间内
-
-因突发心脏病奄奄一息
-
-我目睹了多起足月时的流产
-
-接种疫苗后仅仅4、5天
-
-而这发生在仅仅一个小镇小社区
-
-因为我就在一个小医院工作
-
-在每层楼我都干过
-
-长期护理、普通护理、急诊、外诊
-
-我都见过
-
-这个社区有多大？
-
-大概三千人 在魁省 庞蒂亚克地区
-
-我没什么可失去的，也没必要隐瞒什么
-
-他们想强制我打疫苗
-
-我拒绝了
-
-
-
-发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

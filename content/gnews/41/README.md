@@ -2,24 +2,18 @@
 ---
 
 
-## 日本政府批准创纪录军费开支以应对中共军事威胁
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699163/)
+## 美议员访台，中共战狼惯例式狂吠
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699180/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-127.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fs3.six-degrees.io%2Fupload%2Fmedia%2F20211126%2F480%2Fwsj-f3199106ceca273b2954d2b9d01b682c-1.jpeg&amp;imgrefurl=https%3A%2F%2F6do.news%2Farticle%2F5328032-10&amp;tbnid=yz3u9_S0z0sfNM&amp;vet=12ahUKEwj5grnjwLf0AhXRbX0KHeYaBhIQMygDegUIARCeAQ..i&amp;docid=i1NJNsXXNicwlM&amp;w=480&amp;h=240&amp;q=%E6%97%A5%E6%9C%AC%E6%94%BF%E5%BA%9C%E5%BC%80%E6%94%AF&amp;ved=2ahUKEwj5grnjwLf0AhXRbX0KHeYaBhIQMygDegUIARCeAQ#imgrc=yz3u9_S0z0sfNM&amp;imgdii=8qpsOmQUUBKrlM)
-日本计划在其已经创纪录的年度军费开支的基础上增加67.5亿美元支出，急于加强空中和海上防御，因其越来越担心中共国和朝鲜(北韩)构成的威胁。
+撰稿：东京樱花团/待命（文晓）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-11.png)（图片源自本文链接）
+11月27日朝日新闻驻台湾记者石田耕一郎发表的消息：11月26日，美国众议院的五位两党议员访问台湾，并与总统蔡英文会面。蔡英文感谢美国国会对台湾的支持，并表示希望两国加强军事和经济联系。这是本月美国参议员对台湾的第二次访问。
 
-首相岸田文雄领导的政府周五（11月26日)批准了这项支出，作为追加预算的一部分。虽然这种增加国防开支的做法很常见，但据日本防卫省称，7,740亿日圆的规模创史上最高。这笔支出需要获得国会批准。
+代表团由包括日裔民主党人马克-高野议员在内的四名民主党，和一名共和党人组成。代表团在访问台湾之前刚刚访问了日本和韩国。高野先生说，在中共病毒疫情得到控制后，美国官员对台湾的访问将恢复正常。他说：现在台湾和美国之间的关系是十年来最好的。
 
-防卫省在其支出提案中表示：“由于日本周边的安全环境以前所未有的速度恶化，我们的紧迫任务是加速执行各种项目。”
+对此，中共外交部副新闻秘书赵立坚在11月26日的例行记者会上说：中国已经向美国提出了严厉的要求，14亿人民对支持台独立势力的举动感到不安。但是，这只是中国统一进程中的一个小小的噪音而已。这种不知量力的行动，注定会失败。
 
-注入的资金将让日本比计划提前三个月升级东海边缘岛屿上的地对空导弹发射装置、以及其他地方的爱国者PAC-3导弹电池，这是防止任何朝鲜弹头来袭的最后一道防线。
-
-防卫省表示，这笔额外的开支还将使日本更迅速地获得反潜导弹、海上巡逻机和军用货运飞机。
-
-消息来源:
-
-**[日本将增加军费开支加强海空防御 以应对来自中国和朝鲜的威胁](https://cn.reuters.com/article/japan-defence-expenditures-1126-idCNKBS2IB0V5?il=0)**
+信息来源：[米の議員団が訪台、蔡総統と会談　中国外務省「かすかな雑音」（朝日新聞デジタル） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/9a3015529af399c0b258f48fe4b4c19afbe4b3d5)
 
 *校对：东京樱花团/知了知了*
 *发布：东京樱花团/tdownc2p*

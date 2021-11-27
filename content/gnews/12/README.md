@@ -2,37 +2,26 @@
 ---
 
 
-## 继上周后，澳洲人为抗议新冠疫苗强制令再次走上街头
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1699449/)
+## 台湾获邀“民主峰会”，酸葡萄继续发做
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699473/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+撰稿/配图：东京樱花团/ Ob
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Ob微视角图片-e1637811078206.jpg)
+路透北京11月26日，针对美国邀台湾参加“民主峰会”，中共国国务委员王毅周四表示，台湾是中共国神圣领土的一部分，不是美国手中可以利用的棋子；民主是各国追求的共同价值，不是美国任意操弄的政治工具。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/5369-1.jpg)图片来源：www.theguardian.com
+外交部官网周五刊登他在同匈牙利外长西雅尔多视频会晤时的讲话，美方声称不支持“台独”，却又堂而皇之为“台独”势力提供国际舞台，只能证明自身的言而无信。
 
+“世界需要团结，而不是分裂；需要合作，而不是对抗。大国尤其需要在这方面发挥表率作用，而不是做反面教员。”王毅称。
 
-#### 编译：小红帽
+台湾获邀“民主峰会”传出后中共一连多次发声。继周三赵立坚称，“中方对此坚决反对，并敦促美国遵守中美三个联合公报和一个中国原则”；周四，中共国防部新闻发言人吴谦强调“在台湾问题上，中方没有任何妥协的空间，美方不应抱有任何幻想。”之后，王毅做出上述表示。
 
-周六，大批人群挤满了墨尔本中央商务区，以反对新冠疫苗强制令。同时，澳大利亚全国各地的抗议活动也在进行中。
+一个民意尽失，国际社会信誉扫地，对全人类做出“释放病毒”这一邪恶举动的流氓国家，竟然大谈民主。这好比流氓大谈道德，妓女大讲贞操，废话一堆；干就完了。流氓是决然听不懂人话的，对待流氓唯一的办法就是拳头，台湾是不是美国可以利用的棋子，可不是中共说了算。
 
-大批的抗议者挤满了伯克街和春街，从议会大厦开始延伸出几个街区。大部分抗议活动是由强制接种疫苗引发的。
+消息来源： [https://cn.reuters.com/article/china-wangyi-us-summit-tw-1126-idCNKBS2IB06N](https://cn.reuters.com/article/china-wangyi-us-summit-tw-1126-idCNKBS2IB06N)
 
-维多利亚州政府声称，没有要求所有维州人强制接种新冠疫苗，尽管人们在进入许多场所、零售商店和参加活动时被要求先接种疫苗。
-
-同一时间，在悉尼和黄金海岸也发生了疫苗强制令抗议活动。抗议者聚集在昆士兰州的布罗德海滩，参加有组织的自由集会。参议员宝琳-汉森(Pauline Hanson)出席了集会并向人群发表了讲话。
-
-周六上午，数千人还聚集在悉尼的海德公园，并在街上游行。在这些抗议活动之前，上周末在澳大利亚各大城市也举行了类似的大型集会。
-
-**参考新闻：**[Australia protests: Anti-vax protesters take to streets for yet another week over vaccine mandates (9news.com.au)](https://www.9news.com.au/national/melbourne-protests-protesters-pack-melbourne-cbd-streets-outside-state-parliament-over-vaccine-mandates/5656f98e-a048-460a-8a52-aa815f4db7b4)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
