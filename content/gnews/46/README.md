@@ -2,18 +2,28 @@
 ---
 
 
-## 【文贵先生大直播PPT】币安与加密货币行业现状
-` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1697757/)
+## 文贵爆料11.26.2021 贫血者吃青蒿素要补充铁元素
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1697971/)
 
-撰稿：ILOVE战神（文凡），BENJ1，WEI，Now小哥
-美工：雷蒙
-审核：三票先生，顽童先生，政清
+撰稿：文罡
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-11-26-at-10.03.16-AM.jpeg](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-26-at-10.03.16-AM.jpeg)图片来源：GTV & GETTR
+2021年11月26日郭文贵先生在大直播中分享了他一位家人使用疫苗解药青蒿素的效果与相关用药问题。青蒿素确实有效，但不能乱吃，对于缺铁人群要结合铁一起吃。
 
-【2021年11月26日文贵先生大直播PPT：币安与加密货币行业现状】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/21-13.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/25-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/26-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/27-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/28-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/29-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/49-1.jpg)
-* * *
+郭先生说他的一位嫂子前一段时间拉肚子，极不舒服，非常严重，以为自己出大事儿了。后来她身边人建议她吃了青蒿素，两天吃了三粒。然后就做了肠镜、胃镜，发现什么也没有，就是有一点点小炎症。就是在她最严重的时候吃了三粒青蒿素，她人整个就缓过来了，不再拉肚子了。但问题在于她浑身无力、头晕、头痛，她以为这个青蒿素害了她。
 
-发稿：云起时
+这种乏力是由缺铁造成的。所以青蒿素不能天天吃，而且要根据每个人的身体状况不同加补铁等元素。郭文贵先生说，Eglisebell战友在Gettr发的对于贫血战友青蒿素要补充铁的建议非常好，这个太重要了。郭先生希望医疗部能把这些广泛的传播。越来越发现青蒿素不仅是病毒的解药，它还治癌症、还壮阳、还壮阴。下面这篇文章是Eglisebell圣母院钟声战友的用药建议：
+
+拥有足量的铁蛋白，血红蛋白和转铁蛋白对于青蒿衍生物能否发挥最佳功效至关重要， 这与青蒿素的亲铁性关系有关。 青蒿素的过氧桥会被细胞内的铁所吸引， 它们反应后所产氧自由基再与病毒或含高铁的细胞发生氧化反应， 造成的破坏可致细胞死亡， 起到杀灭作用。癌症治疗中的所谓“铁死亡”由此而来，因为氧化自由基只认铁元素浓度高的细胞， 使得含铁量偏高的癌细胞和疟原虫成为靶向性明确的被攻击目标。
+
+其实，人体内的血液循环系统的铁元素含量最高，都集中在红细胞的血红素里。 在健康情况下，它们都紧密地结合在血红素上，不会招来青蒿素的聚集。但当有外伤，炎症，病毒等造成了血红素的泄漏时，青蒿素就像狼群嗅到腥味，立即靶向聚集到问题部位。由此原理，青蒿素可被用于治疗疟疾，炎症，甚至癌症。
+
+所以，对于有缺铁性贫血的人， 甚至是处于生理周期的健康女性， 如服用青蒿素， 需提前考虑补充缺失的铁剂。人体吸收率最高， 副作用最低的铁产品是亚铁血红素， 因它与所有青蒿衍生物结合。 同时，维生素C与铁同服可以增加铁元素的吸收。同时，用橙汁服用铁剂是合理的，尽管违反了清水送服药物的普遍规则。但铁不宜与锌， 钙，镁和茶一起服用，会降低其他吸收。
+
+参考来源：
+[11.26日文贵大直播](https://gtv.org/broadcast/watch/61a0daac44c1fe7a6c39814e)
+[Eglisebell医生：青蒿衍生物与铁元素](https://gettr.com/post/phw0q11cfa)
+
+校对发布：Shifter
 
  
 

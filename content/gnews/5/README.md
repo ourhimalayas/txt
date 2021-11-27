@@ -2,21 +2,16 @@
 ---
 
 
-## 雅典娜时报-第125期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1698726/)
+## COVID-19 最新情报｜护士爆料004：北京市今年心脑血管疾病发生率较去年超逾五成
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1698791/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+**撰文｜ 台湾宝岛农场 疫情关注组 / 发布时间｜27/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1.jpg)
+**更多资讯请关注官方盖特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/COVID-19之護士系列.jpg)
+中国大陆地区一名护士日前在微信群组中爆料指，虽然自己所属的医院规模较小，至今都已收治了许多因疫苗副作用导致的心脑血管疾病的患者，可想而知其他大医院的情况。据她所知，仅北京市，今年心脑血管疾病的发生率，较去年同期相比，高出52%。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_24.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_25.png)
-***发布：小红帽***
-
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+来源｜weibo（详见影片）
 
  
 

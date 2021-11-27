@@ -2,24 +2,18 @@
 ---
 
 
-## 立陶宛体育部长宣称不会出席北京冬奥会
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1696731/)
+## 【文贵先生大直播PPT】币安与加密货币行业现状
+` Mr. Miles Guo's News Briefing` [轉載自GNews](https://gnews.org/zh-hans/1697757/)
 
-韩国首尔天池农场—虎眼　校对/上传—无明逆流
+撰稿：ILOVE战神（文凡），BENJ1，WEI，Now小哥
+美工：雷蒙
+审核：三票先生，顽童先生，政清
 
-继设立“台湾代表处”之后，立陶宛体育部长宣布将不出席中共北京2022年冬奥会。
+【2021年11月26日文贵先生大直播PPT：币安与加密货币行业现状】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/21-13.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/25-9.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/26-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/27-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/28-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/29-1.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/49-1.jpg)
+* * *
 
-立陶宛媒体“15min”25日消息，立陶宛教育科学与体育部长尤尔吉塔·舒格日迪尼埃内(Jurgita Šiugždinienė)已表态宣称，不会出席2022年北京冬奥会。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/SD345ETD4.jpg)“15min”报道截图(Jurgita Šiugždinienė)
-
-舒格日迪尼埃内称，据她所知，立陶宛其他官员目前也不计划出席北京冬奥会。
-
-此前，17名立陶宛议员签署了一份请愿书，呼吁立陶宛政界人士、运动员和奥委会成员不要前往北京参加2022年冬奥会。不过，立陶宛国家奥委会在一项声明中表示，没有必要将政治和体育混为一谈，国际奥委会基本原则之一是政治中立，奥运会是全世界、全体奥林匹克运动的盛会。
-
-中共外交部以此为由称，北京2022年冬奥会是各国运动员超越自我、追求卓越的舞台，也是国际社会增进团结、加深友谊的盛会。将体育运动政治化，只会同所有冬奥运动员和冬季运动爱好者的热切期待相违背，只会损害各国运动员利益和国际奥林匹克事业。
-
-众所周知，国际项目从来只是中共达成政治目地的工具。中共多年来挟“奥林匹克运动精神、国际奥委会自重”，屡屡将体育运动赛场变成政治运动秀场，通过举办大型国际赛事活动，对自己的独裁体制粉饰贴金，裹挟民主国家为其独裁统治背书站台，塑造虚假的合法性。中共才是真正玩弄体育精神、将体育运动彻底政治化的国家。
+发稿：云起时
 
  
 
