@@ -2,32 +2,28 @@
 ---
 
 
-## 郭文贵先生提醒战友，在GETTR加V意义深远
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1702968/)
+## 212万人竞争3.12万个岗位！中共2022年国考人数再创新高
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1703053/)
 
-撰稿：纽约香草山农场福音部-恩永存
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-12.png)
-11月26日文贵大直播，郭文贵先生回答GETT相关问题时强调GETTR加V的意义深远。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-878.png)
-郭先生指出，未来和盖特相关金融政策是优先给GETTR认证大V的用户。这些用户可以获得GETTR支付等权利。
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-131.jpg)
+[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Fspider20211128%2F185%2Fw2048h1337%2F20211128%2F4395-7d9c7c6dfb425ca9b2f873a12727c030.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.sina.com.cn%2Fjjxw%2F2021-11-28%2Fdoc-ikyakumx0759505.shtml&amp;tbnid=h7-)
 
-郭先生强调，现在最要紧的事是爆料革命战友及时找到农场，按照相关要求操作，尽快完成GETTR加V认证。
+网易新闻11月28报道，中共2022年度国考公共科目笔试拉开帷幕，本次国考计划招录3.12万人，而报名过审人数首次突破200万，达到212.3万人。本次国考招考共有75个部门、23个直属机构参加，通过资格审查人数与录用计划数之比约为68:1。自2009年起，国考报名人数已经连续14年超百万，今年报名人数更是突破200万，近三年来，国考平均竞争比在60:1左右，今年达到了68:1。
 
-新闻链接: [2021年11月26日 文贵大直播](https://gettr.com/post/pi15oub266)
+国考，是指国家公务员考试，公务员，全称为国家公务员，是各中共国负责统筹管理经济社会秩序和国家公共资源，维护国家法律规定贯彻执行的公职人员。指依法履行公职、纳入国家行政编制、由国家财政负担工资福利的工作人员。公务员招考如今已超过高考、考研，成为当今中共国竞争最激烈的考试，从这组数字后面可以看到家长、考生是多么迫切需要一份稳定的工作。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
+在中共国一个只是承担社会管理服务职能的机构，不创造财富、不发明专利、不研究科技，竟然如此热门？是因为公务员是铁饭碗，进入公务员队伍，就等于永不失业，独裁者统治的国度里争做公务员就是要混水摸鱼发财。
 
-总编/编辑：木白
+信息来源
 
-校正/发稿：浪迹天涯
+[国考今日开考！报考首破200万人，报录比达68:1](https://3g.163.com/dy/article/GPTOFKOM05502PRR.html?spss=adap_pc)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-12.png)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,18 +2,36 @@
 ---
 
 
-## 2021年11月27日郭先生盖特 — 视频盖特「1分48秒」
-` 喜联盟七哥盖特组 Miles Guo’s Gettr` [轉載自GNews](https://gnews.org/zh-hans/1702644/)
+## 纽约医生助理说她被告知停止报告 COVID疫苗伤亡
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1702804/)
 
-听写：洛杉矶盘古农场 — 盘古小蚂蚁
+翻译：Jenny Ball
 
-Video link: [https://gettr.com/post/pi3o4i86e0](https://gettr.com/post/pi3o4i86e0)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/B5E96CDE-9402-490C-9A5F-7FC260FE3A2E.jpeg)
-兄弟姐妹们好，今天26号了。7哥刚刚运动，我还运动过了时间了，我一会还跟日本的团队要开会。太多事情给大家报告了：疫苗灾难以每小时在突变；新病毒又诞生 — 7哥准确说了10月到12月的放毒；中共经济正在崩塌中 — 大家信不信？香港一塌糊涂；国内房地产一塌糊涂；剩下还有啥，兄弟姐妹告诉我？
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-10-7.jpg)图片来源：lifesitenews
 
-现在不仅欧洲，不仅美国，不仅日本，澳大利亚，连非洲都在和中共要翻脸。新的病毒变种对世界造成了很多国家绝对的恐惧。新中国联邦正在拯救世界的同时，喜联储 — 大家看到了发展吧？！赵长鹏这个孙子，小屁孩，现在很多国家给他发通缉令。「战友们」赶快能套现的套现，联合起来和大卫联系赶快行动。
+生活新闻(LifeSiteNews)——助理医师黛博拉·康拉德(Deborah Conrad)在播客中说，当她在她工作的急诊室看到大量 COVID-19 疫苗不良事件时，她被告知，不要向美国政府官方疫苗不良事件报告机构 （VAERS）系统报告。
 
-兄弟姐妹们，我今天上午不给大家发视频了。我得马上冲个凉得开会，下午抽时间我可能发个视频，好不好？姆盖嗮了。别忘了健身，兄弟姐妹们。
+黛博拉·康拉德是一名医师助理，曾在纽约联合纪念医疗中心工作了大约 17 年。
+
+康拉德出现在谢丽尔·阿特基森播客上( [The Sharyl Attkisson Podcast](https://sharylattkisson.com/2021/11/physician-assistant-my-bosses-didnt-want-me-to-report-covid-19-vaccine-side-effects-podcast-2/) )，并分享了她工作了十多年的医院推出 COVID 疫苗时所经历的故事。
+
+康拉德说， 1 月和 2 月她在接种疫苗的患者身上看到了“心脏病发作、心肌病、心律失常、血栓和肺栓塞”。
+
+作为医生助理，康拉德将向 VAERS 报告这些事件。起初，她看到“只有少数患者”可能出现与 COVID 疫苗相关的不良事件。然后她注意到，“所有这些人都进来报告”，所以她开始通知她的“行政领导人正在发生的事情”。
+
+她告诉播客主持人，政府“并不真的觉得有很多事情需要担心”。最终，“急诊室”接种疫苗后的患者人数开始增加，她的同事们开始“让 [她的] 患者自己去报告”。
+
+这位医疗保健资深人士却给她的行政主管带来了进一步的担忧，主管说她“多报了”病例，因为他们的印象是，**看起来疫苗的伤害实际上并不是由疫苗引起的**。
+
+**参考资料：**[lifesitenews][New York physician assistant says she was told to stop reporting COVID shot injuries](https://www.lifesitenews.com/news/physician-assistant-says-she-was-told-to-stop-reporting-covid-vaccine-injuries/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发布：信心的选择*
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-2.jpeg)
 
  
 
