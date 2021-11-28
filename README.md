@@ -15,125 +15,125 @@
 
 ---
 
-### [美国提前两年交付台湾重型鱼雷吓阻中共](/content/gnews/1/README.md)
+### [蓝州在过去两周中共病毒病例大规模激增](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [GETTR与GTV 请战友们加紧时间认证](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [感恩是赢家的游戏，是输家精神上的自慰](/content/gnews/3/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [香草山翻译部周刊|2021年11月28日第24期](/content/gnews/4/README.md)
+ ` 纽约香草山MOS01`
+
+### [喜币涨跌的背后是什么](/content/gnews/5/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [感恩节后，共产党会乘机放毒，疫情会大爆发](/content/gnews/6/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [天价罚款后，美团发布3年来最差季报](/content/gnews/7/README.md)
  ` GTV新闻访谈`
 
-### [中共国的经济是家天下党天下](/content/gnews/2/README.md)
+### [中共早已计划使用细菌战](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共产主义的虚伪本质](/content/gnews/3/README.md)
+### [世界为何在病毒疫苗上如此步调一致](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [所谓国家是什么](/content/gnews/4/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
+### [澳国防部长警告 必须警惕中共的军事规模和野心](/content/gnews/10/README.md)
+ ` GTV新闻访谈`
 
-### [文贵视角:早在1500年以前人类就用病毒杀人](/content/gnews/5/README.md)
- ` 秘密翻译组-原创组`
-
-### [【G时新闻】文贵爆料：让更多银行和币安用户知道你在币安的钱没了](/content/gnews/6/README.md)
- ` G-时新闻`
-
-### [喜币面前，谁是灭共者一目了然](/content/gnews/7/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [司马南方舟子等人对华人是巨大的威胁](/content/gnews/8/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [文贵先生建议大家今后怎样保护和使用喜币](/content/gnews/9/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [感谢新中国联邦引导人们躲过疫苗灾难](/content/gnews/10/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [悉尼两例感染南非新变种的病例都完全接种了疫苗](/content/gnews/11/README.md)
- ` 澳喜农场`
-
-### [11/28/21 香港快讯 伦敦华人办集会批评西方反华 港人到场「和你 lunch」](/content/gnews/12/README.md)
- ` 英喜-粵語組`
-
-### [你拥有喜币是因为你要灭共，这是个承诺](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [美国颁布优惠政策帮助香港留学生](/content/gnews/14/README.md)
- ` 日本东京方舟农场`
-
-### [墙内初婚率七连跌的背后](/content/gnews/15/README.md)
- ` 澳喜农场`
-
-### [多个国家发现“奥米克戎”新型变异病毒病例](/content/gnews/16/README.md)
- ` 日本东京方舟农场`
-
-### [中共抓紧拉拢非洲国家用意何在？](/content/gnews/17/README.md)
- ` 澳喜农场`
-
-### [顶级心脏学专家：接种疫苗患心脏病风险激增](/content/gnews/18/README.md)
- ` 澳喜特战旅Gnews`
-
-### [灾难让人民觉醒系列：没有流动资金的公司怎么办？（3）](/content/gnews/19/README.md)
- ` 澳喜农场`
-
-### [七哥列举反面示例来回答该不该卖福利喜币](/content/gnews/20/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [银河快讯: 拜登希望日本增加国防开支；日本收紧另外三个非洲国家入境规定](/content/gnews/21/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [灾难让人民觉醒系列：没有健康还能继续岁月静好吗？（2）](/content/gnews/22/README.md)
- ` 澳喜农场`
-
-### [习近平人生经历使其成为以共灭共最佳加速师](/content/gnews/23/README.md)
- ` 波士顿五月花农场`
-
-### [DC每日热点1128](/content/gnews/24/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [灾难让人民觉醒系列：没工作在即还会相信中共吗？（1）](/content/gnews/25/README.md)
- ` 澳喜农场`
-
-### [【G时新闻】文贵先生警告世界—中共一定利用天花病毒对抗西方](/content/gnews/26/README.md)
- ` G-时新闻`
-
-### [【G时新闻】中国的孩子何时才能不吃垃圾腐烂食品](/content/gnews/27/README.md)
- ` G-时新闻`
-
-### [中共政经形势急剧恶化引发外企普遍担忧](/content/gnews/28/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [212万人竞争3.12万个岗位！中共2022年国考人数再创新高](/content/gnews/29/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [水上风力发电，日本也是认真的](/content/gnews/30/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [上海20多家医院紧急停诊，背后是否习江暗战？](/content/gnews/31/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（十九）](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [也说说感恩呢](/content/gnews/32/README.md)
- ` 骄子`
+### [GTV新闻访谈简报|2021年11月28日早](/content/gnews/12/README.md)
+ ` 纽约香草山MOS01`
 
-### [秘翻在线：柳传志的独一无二，又触动了中共狗的哪根神经！](/content/gnews/33/README.md)
- ` 秘密翻譯組G-Translators`
+### [中共的股票完全是擀面杖经济，是假的](/content/gnews/13/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
 
-### [吴尊友让所有人打疫苗而且都要打加强针就是要群体灭绝](/content/gnews/34/README.md)
+### [美国提前两年交付台湾重型鱼雷吓阻中共](/content/gnews/14/README.md)
+ ` GTV新闻访谈`
+
+### [中共国的经济是家天下党天下](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文贵大直播 11/28 病毒变种意在天下大乱CCP乱中取胜](/content/gnews/16/README.md)
+ ` 秘密翻译组-原创组`
+
+### [共产主义的虚伪本质](/content/gnews/17/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [所谓国家是什么](/content/gnews/18/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [文贵视角:早在1500年以前人类就用病毒杀人](/content/gnews/19/README.md)
+ ` 秘密翻译组-原创组`
+
+### [在一个关键合作伙伴终止协议后，币安(Binance) 第二次阻止其英国客户提取英镑](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【G时新闻】文贵爆料：让更多银行和币安用户知道你在币安的钱没了](/content/gnews/21/README.md)
+ ` G-时新闻`
+
+### [喜币面前，谁是灭共者一目了然](/content/gnews/22/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2021年11月28日文贵先生直播小飞象大雨围城速记](/content/gnews/23/README.md)
+ ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
+
+### [司马南方舟子等人对华人是巨大的威胁](/content/gnews/24/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [2021年11月28日文贵先生直播大雨围城速记](/content/gnews/25/README.md)
+ ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
+
+### [11/28/21 香港快讯 伦敦华人办集会批评西方反华 港人到场「和你 lunch」](/content/gnews/26/README.md)
+ ` 英喜-粵語組`
+
+### [你拥有喜币是因为你要灭共，这是个承诺](/content/gnews/27/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [美国颁布优惠政策帮助香港留学生](/content/gnews/28/README.md)
+ ` 日本东京方舟农场`
+
+### [顶级心脏学专家：接种疫苗患心脏病风险激增](/content/gnews/29/README.md)
+ ` 澳喜特战旅Gnews`
+
+### [银河快讯: 拜登希望日本增加国防开支；日本收紧另外三个非洲国家入境规定](/content/gnews/30/README.md)
+ ` 日本银河系农场-阿尔法星球`
+
+### [DC每日热点1128](/content/gnews/31/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【G时新闻】文贵先生警告世界—中共一定利用天花病毒对抗西方](/content/gnews/32/README.md)
+ ` G-时新闻`
+
+### [【G时新闻】中国的孩子何时才能不吃垃圾腐烂食品](/content/gnews/33/README.md)
+ ` G-时新闻`
+
+### [中共政经形势急剧恶化引发外企普遍担忧](/content/gnews/34/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [212万人竞争3.12万个岗位！中共2022年国考人数再创新高](/content/gnews/35/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [水上风力发电，日本也是认真的](/content/gnews/36/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [吴尊友让所有人打疫苗而且都要打加强针就是要群体灭绝](/content/gnews/37/README.md)
  ` NewFOC`
 
-### [11/28/2021国内经济财经周报：币安泄漏个人信息，无法提现；微信，支付宝明年起无法用于经营收款](/content/gnews/35/README.md)
+### [11/28/2021国内经济财经周报：币安泄漏个人信息，无法提现；微信，支付宝明年起无法用于经营收款](/content/gnews/38/README.md)
  ` 秘密翻译组金融团队`
 
-### [澳大利亚原住民向国际社会发出求救信号](/content/gnews/36/README.md)
+### [澳大利亚原住民向国际社会发出求救信号](/content/gnews/39/README.md)
  ` 澳喜农场`
 
-### [秘翻在线：卡塔尔的一项研究发现，新冠康复者再次感染和患上重症的风险非常低](/content/gnews/37/README.md)
+### [秘翻在线：卡塔尔的一项研究发现，新冠康复者再次感染和患上重症的风险非常低](/content/gnews/40/README.md)
  ` 秘密翻譯組G-Translators`
-
-### [坎特称：派出运动员参加中共冬奥会 是一种耻辱](/content/gnews/38/README.md)
- ` GTV新闻访谈`
-
-### [西藏活动人士到国际奥委会总部抗议](/content/gnews/39/README.md)
- ` GTV新闻访谈`
-
-### [香港「时代革命」夺金马奖最佳纪录片](/content/gnews/40/README.md)
- ` GTV新闻访谈`
 
 ### [2021/11/24 班农专访4: 福奇会在明年中期选举后被追责](/content/gnews/41/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`

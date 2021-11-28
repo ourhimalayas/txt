@@ -2,28 +2,25 @@
 ---
 
 
-## 212万人竞争3.12万个岗位！中共2022年国考人数再创新高
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1703053/)
+## 顶级心脏学专家：接种疫苗患心脏病风险激增
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1703178/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-131.jpg)
-[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fn.sinaimg.cn%2Fspider20211128%2F185%2Fw2048h1337%2F20211128%2F4395-7d9c7c6dfb425ca9b2f873a12727c030.jpg&amp;imgrefurl=https%3A%2F%2Ffinance.sina.com.cn%2Fjjxw%2F2021-11-28%2Fdoc-ikyakumx0759505.shtml&amp;tbnid=h7-)
+撰稿：小小的张麻子
 
-网易新闻11月28报道，中共2022年度国考公共科目笔试拉开帷幕，本次国考计划招录3.12万人，而报名过审人数首次突破200万，达到212.3万人。本次国考招考共有75个部门、23个直属机构参加，通过资格审查人数与录用计划数之比约为68:1。自2009年起，国考报名人数已经连续14年超百万，今年报名人数更是突破200万，近三年来，国考平均竞争比在60:1左右，今年达到了68:1。
+图片来源：Pexels免费照片资料库；摄影：Nataliya Vaitkevich
 
-国考，是指国家公务员考试，公务员，全称为国家公务员，是各中共国负责统筹管理经济社会秩序和国家公共资源，维护国家法律规定贯彻执行的公职人员。指依法履行公职、纳入国家行政编制、由国家财政负担工资福利的工作人员。公务员招考如今已超过高考、考研，成为当今中共国竞争最激烈的考试，从这组数字后面可以看到家长、考生是多么迫切需要一份稳定的工作。
+全世界政府都不愿意承认——接种COVID-19疫苗的副作用并未受到讨论。然而几乎每天，都有视频上传到网络上，讲述很多之前完全健康的人接种了COVID-19疫苗后身体健康情况每况愈下。
 
-在中共国一个只是承担社会管理服务职能的机构，不创造财富、不发明专利、不研究科技，竟然如此热门？是因为公务员是铁饭碗，进入公务员队伍，就等于永不失业，独裁者统治的国度里争做公务员就是要混水摸鱼发财。
+尽管COVID-19疫苗的进展和批准的速度极快，但各国政府对于相关疫苗的过度依赖和对冠状病毒替代疗法药物伊维菌素的打压都是显而易见的。
 
-信息来源
+但是当各国政府开始推广强制疫苗时，一些医生们站了出来，爆料了一些COVID-19疫苗潜在的副作用。
 
-[国考今日开考！报考首破200万人，报录比达68:1](https://3g.163.com/dy/article/GPTOFKOM05502PRR.html?spss=adap_pc)
+在上面的视频中，阿西姆-马洛特拉（Aseem Malhotra)引用了一名心脏学专家爆料人的调查，谈到诸如辉瑞和莫德纳等公司生产的mRNA新冠疫苗会使罹患心脏病风险激增
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
+新闻参考链接：
 
-
+[Red Voice Media](https://www.redvoicemedia.com/2021/11/whistleblower-heart-attack-risks-to-jab-being-suppressed-for-profit-top-cardiologist-video/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
