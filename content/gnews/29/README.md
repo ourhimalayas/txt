@@ -2,17 +2,21 @@
 ---
 
 
-## 【文贵先生大直播PPT】青蒿素功效
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1703384/)
+## 中共早已计划使用细菌战
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1703496/)
 
-撰稿：飞飞及团队
-审核：三票先生，顽童先生，舒平风
+文编：东京樱花团/樱花传媒
 
-【2021年11月28日文贵先生大直播PPT：青蒿素功效】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-196.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-132.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-110.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-73.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-56.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-48.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/7-41.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/8-32.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/9-24.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/10-13.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/11-17.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/12-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/13-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/14-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/15-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/16-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/17-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/18-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/19-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/21-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-8.jpg)
-* * *
+视频:东京樱花团/中文小视频组
 
-上传：云起时
+11月26日，郭文贵先生在GTV大直播指出：
+
+你怎么知道天花病毒不是人类培育出来的？在中国西晋时就有了病毒杀人，细菌战已经发展二三千年了，各种宗教对异教徒的杀戮就使用过细菌战。为什么会告诉西方黑暗即将到来，西方人真是脑子不清楚，因为在那个时候已经有用细菌战灭掉恨的天主和基督教徒了。
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1-1.png)
+
 
  
 
