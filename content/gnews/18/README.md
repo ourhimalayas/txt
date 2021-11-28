@@ -2,20 +2,21 @@
 ---
 
 
-## 赵长鹏会终身待在大牢里
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1701483/)
+## 雅典娜时报-第126期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1701586/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-11月26日，郭文贵先生在GTV大直播指出：
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_26.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_27.png)
+***发布：小红帽***
 
-赵长鹏在币安交易数据背后进行了非法操纵，完全是诈骗行为，所以他到了许多国家都会被终身禁锢。从赵长鹏攻击诬蔑喜马拉雅币到屯集迪拜，都和中共息息相关。他把币安情报全交给了中共，并不给客户退款，想吞为己有。其结果要么被中共或黑社会干掉，要么卷财逃跑，要么命财两飞。
-
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

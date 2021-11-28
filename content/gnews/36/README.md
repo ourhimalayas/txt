@@ -2,32 +2,72 @@
 ---
 
 
-## 自中共病毒疫情爆发以来，盖茨基金会向中共输送了超过5400万美元
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1701250/)
+## 面对伊维菌素和羟氯喹治疗新冠肺炎的疗效,福奇和医学精英们的欺骗行为会受到质询吗？
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1701321/)
 
-**撰稿：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/其.png)图片来源：人类自由网
+**翻译：不要代表我 Kari
+编辑、校对：Candy**
 
-**校对：Grace**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-27-at-5.27.48-PM.jpeg)图片来源：TeamTuckerCarlson
-郭文贵先生在11月26日的直播中提到，有位国内的退休干部认为，这次全球人类遭遇的中共病毒大灾难，可能不仅仅是由中共阴谋策划的，其背后更可能是有世界级的黑手在推动这一切的发生。有些人可能会抨击说这是阴谋论，但是不能否定的事实却是一件一件地被披露出来。
+有**365项研究证明了伊维菌素（Ivermectin）和羟氯喹（HCQ）在治疗新冠肺炎方面的疗效——有人会反对福奇（Fauci）和医学精英们的欺骗行为吗？**
 
-据《国家脉搏》11月23日报道，自中共病毒爆发以来，比尔和梅林达.盖茨基金会(Bill & Melinda Gates Foundation)已向中共的 “全球健康” 项目，发送了超过5400万美元的资助，其中包括由中共控制的机构，和与武汉病毒学研究所有合作的机构。
+目前已有67项伊维菌素治疗新冠肺炎的对照研究显示：67%新冠肺炎患者病情有所改善。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-842.png)
+已经有298项对羟氯喹治疗新冠的研究显示，64% 的新冠肺炎患者的病情有改善。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-843.png)
+尽管有科学依据，福奇博士和医学精英们还是阻止了新冠肺炎病毒患者使用这些有效的疗法。
 
-资助对象中包括北京师范大学、北京大学、清华大学等多个中共办学机构，以及农业部、中共国疾病预防控制中心、科技部等官方政权机构。
+mRNA疫苗的发明者罗伯特·马龙（Robert Malone）博士指责福奇博士和其他人撒谎，他们通过阻止羟氯喹和伊维菌素以及其他治疗新冠肺炎患者而导致超过50万美国人死亡。
 
-据报道，在2020年4月，40万美元被寄给康希诺生物制品公司，以”支持国际合作开发抗冠状病毒疫苗，增加安全和有效的疫苗供应，以实现可持续的全球分配和使用”。
+马龙博士（Robert Malone）是对的。有资料证实：福奇（Fauci）博士和美国顶级医生合谋，禁止并谴责使用羟氯喹治疗COVID-19。
 
-在2020年5月，12万美元被送到国营浙江大学，以 “让中共国在全球治理中发挥更大的作用，并为全球疫苗和免疫联盟(Global Alliance for Vaccines and Immunization)做出更多贡献”。
+**数百万人因此而死亡。**
 
-报道称，全球疫苗和免疫联盟,将自己描述为一个 “由公共和私营部门组织组成的全球卫生伙伴关系，致力于为所有人提供免疫接种服务”。
+爆炸性的新闻! 自印度政府推广伊维菌素后，有2.41亿人口的印度被宣布为零病例感染。
 
-另外，在2020年5月，该基金会还向中共国疾病预防控制中心发送了60万美元，“以支持应急响应和评估，并使中共国为潜在的大流行病做好准备，这不仅有助于疾病控制和遏制，而且为全球健康贡献中共国的经验”。
+正如thegatewaypundit.com （TGP）早些时候所报道的：不仅仅是福奇（Fauci），所有的美国顶级医学领袖都参与了羟氯喹的谎言。
 
-据披露，还有几笔赠款也侧重于扩大中共在疫苗开发和分配方面的作用，包括2020年8月该基金会向清华大学赠款30万美元, “建立一个智囊团，为疫苗生态系统建设提出建议，提供监管科学研究和技术支持”。
+医学博士梅丽尔·纳斯（Meryl Nass）在《卫报》上爆料了这件事。据纳斯医生说，高层卫生官员都参与了反对羟氯喹的阴谋。
 
-报道指出，自2019年12月以来，盖茨基金会已向设在中共国的项目发送了总计93笔赠款，金额达54,573,428美元。
+福奇（Fauci）负责美国国家过敏和传染病研究所（NIAID），柯林斯（Collins）是美国国立卫生研究院（NIH）主任（名义上是福奇Fauci的老板），法拉尔（Farra）是维尔康基金会（Wellcome Trust）的主任。法拉尔也签署了《柳叶刀》这封信，而且他是世卫组织研发蓝图科学顾问小组的主席，该小组让他成为世卫组织团结试验的主导者。在该试验中，1000名不知情的受试者被过量服用羟氯喹，以减少该药物在新冠肺炎治疗中的使用。
 
-**新闻来源：****[Gates Foundation Sent Over $54 Million To China Since COVID, Including To Wuhan Collaborators.](https://thenationalpulse.com/exclusive/exc-gates-foundation-sent-over-54-million-to-china-since-covid-including-to-wuhan-collaborators/)**
+法拉尔（Farrar）曾在越南工作，那里有很多疟疾病患者，他还参与了那里的严重急性呼吸系统综合症SARS-1的治疗工作。此外，他还在建立英国恢复试验方面发挥了核心作用。在该试验中，有1600名受试者被过量使用羟氯喹。
+
+即使法拉尔（Farrar）从他在越南治疗的经历中不知道氯喹药物的正确剂量，但在巴西向全世界通报，他们如何在羟氯喹试验治疗新冠肺炎中错误地给患者过量服用氯喹后，他、福奇（Fauci）和柯林斯（Collins）也会了解过量使用这种药物情况。这是在2020年4月中旬，发表在《美国医学会杂志》上的一篇文章中被揭露出来的。在巴西，39%的受试者被注射了大剂量的羟氯喹后死亡，平均年龄50岁。
+
+然而，“团结和恢复”组织的羟氯喹人体试验一直持续到6月份，只是在其极端剂量暴露后才停止。
+
+由福奇（Fauci） 控制的美国国家过敏和传染病研究所（NIAID）出的新冠肺炎治疗指南，建议不要使用羟氯喹药物和伊维菌素。 福奇（Fauci）的美国国家过敏和传染病研究所（NIAID）还取消了第一次在早期疾病中使用羟氯喹治疗的大规模试验，此前预计的 2,000 名受试者中只有 20 名被招募。
+
+*这究竟意味着什么呢？*
+
+1.来自《自然》杂志论文的五位作者与NIH、NIAID和惠康信托基金的负责人，他们阴谋掩盖新冠肺炎的实验室来源。
+
+2. 有一个由彼得·达萨克（Peter Daszac)、福奇(Fauci)和其他人参与的阴谋，就是要推动自然起源理论。(见最近释放的其他电子邮件)。
+
+3. 一个达萨克（Daszac）参与的阴谋，即撰写《柳叶刀》信件并隐藏其出处，推动自然起源理论，并将任何其他想法描绘为阴谋论。柯林斯（*Collin*s）的博文也从中证明这一点。
+
+4. 法拉尔（Farrar）密切参与了两次大型的过量使用羟氯喹试验，其中共有约500名受试者死亡。
+
+5. 法拉尔（Farrar）、福奇（Fauci）和柯林斯（Collins）扣留了研究资金，而这些资金本可以支持使用羟氯喹药物、伊维菌素以及其他重新利用的药物的高质量试验，这些药物可能会扭转传染病大流行的局面。
+
+6. 这里提到的四个人——福奇（Fauci）、达萨克（Daszak）、柯林斯（Collins）和法拉尔（Farrar）——是否密切参与了创造此次大流行病，以及大大流行病期间使用的延误和不适当的治疗？
+
+更多新闻请在以下网址阅读：[https://childrenshealthdefense.org/defender/fauci-emails-top-public-health-officials-lies-covid-origin-treatments/?itm\_term=home](https://childrenshealthdefense.org/defender/fauci-emails-top-public-health-officials-lies-covid-origin-treatments/?itm_term=home)
+
+那么，面对数百万人的死亡，福奇（Fauci）博士的连篇谎言何时会面临质询？
+
+*参考链接:*
+[*TheGatewayPundit.com*](https://www.thegatewaypundit.com/2021/11/now-365-studies-prove-efficacy-ivermectin-hcq-treating-covid-19-will-anyone-confront-fauci-medical-elites-deception/)
+原文链接：[https://humansarefree.com/2021/11/365-studies-prove-the-efficacy-of-ivermectin-and-hcq-in-treating-covid-19.html](https://humansarefree.com/2021/11/365-studies-prove-the-efficacy-of-ivermectin-and-hcq-in-treating-covid-19.html)
+
+***发布：Candy***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

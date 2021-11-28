@@ -2,41 +2,29 @@
 ---
 
 
-## 班农提出动议 要求公开法庭案件中的所有文件
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1699695/)
+## 币安 被爆出“泄漏用户隐私”给中共
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1699684/)
 
-**编译：Jenny Ball**
+**台灣寶島農場 港台前線關注組｜發佈日期/ 27/11/2021**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-07-14.32.38.jpeg)
+**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip81.png)调查 1 月 6 日在国会大厦发生的未遂叛乱的众议院特别委员会面临着与前特朗普政府官员的艰苦战斗。 （布莱尔公会/华盛顿邮报）
+币安- Binance，是世界上交易量最大的加密货币交易所。近日被爆出“泄漏用户KYC资讯”给中国共产党及他国政府。KYC（Know your customer），是企业确认客户身份的程序，为符合所在地的金融法规范。
 
-前川普白宫顾问斯蒂夫·班农 (Stephen K. Bannon) , 已向美国地方法院提出反对标准的发现保护令，该命令禁止任何一方公开发布文件或证据。
+## 币安泄个资 害用户被冠上“颠覆国家政权”罪名
 
-67 岁的班农上周对藐视国会的指控表示不认罪，他的法律团队此前争辩道，如果同意检方的发现保护令，案件会更加复杂。
+据郭文贵于[直播](https://gettr.com/post/phpx9paffd)中公开表示有币安用户（化名：乐乐），共投资币安约2700万美元，乐乐于前段时间发现无法从币安提现，且当初与乐乐一同投资的人突然无法联系上，经询问后得知被（中共）警察以“非法购买海外数字货币”罪名逮捕 。
 
-律师代表班农向《华盛顿邮报》提供的一份声明说：“公众应该根据所有事实，才能对美国司法部是否致力于公正做出他们自己的独立判断。”“在今天提出的反对意见中，班农先生要求法官遵循正常程序，并允许不受限制地访问和使用文件。”
+据[新闻](https://www.upmedia.mg/news_info.php?SerialNo=125355)报导，中国共产党于9月发布新规范，对加密货币实施全面严格禁令，虚拟货币等相关业务都被算在“非法的金融活动”，这包括了交易、转帐、挖矿等所游行为。
 
-美国助理检察官阿曼达·沃恩（Amanda R. Vaughn）表示，将提供“少于 20 份文件”，但班农律师埃文·科克兰（Evan Corcoran）告诉记者，辩方可能需要找到更多文件和证人。
+郭文贵爆料，币安已经将所有的用户资料全部交给中国共产党，在中国三个月以前购买加密货币是合法的，但是中共发布了新规范导致购买加密货币属于经济犯罪，不仅是洗钱，更被定义为“涉嫌颠覆国家政权”。他呼吁曾经在币安拥有过个人帐户的使用者在所在地诉诸法律行动，特别是在中国境内的用户。
 
-班农的法律团队称，政府没有提供任何理由不让公众看到这些文件，并补充说，在本案中，许多受拟议保护令限制的文件已经公开。
-
-“政府没有提供任何理由限制班农先生的律师使用这些文件准备辩护，”班农的声明说。
-
-班农拒绝遵守调查 1 月 6 日国会大厦袭击事件的众议院特别委员会的命令，以提供有关他在袭击前的行为的记录和证词。委员会有兴趣就 1 月 6 日之前一周内，班农在威拉德酒店的活动向他提问。
-
-**评论：所有伟人都是经历的巨大的磨难，如果班农先生没有在中共渗透和控制的美国司法走一遭，他永远不会真切地认识到中共对美国影响的灾难到了什么程度！不在痛苦中生，必将在痛苦中亡！**
-
-**新闻来源**：[washingtonpost.com][Stephen K. Bannon files motion to request all documents in court case be made public](https://www.washingtonpost.com/politics/stephen-k-bannons-lawyers-file-opposition-to-keeping-documents-from-being-released/2021/11/25/29889174-4e3e-11ec-b73b-a00d6e559a6e_story.html?utm_campaign=wp_post_most&amp;utm_medium=email&amp;utm_source=newsletter&amp;wpisrc=nl_most&amp;carta-url=https%3A%2F%2Fs2.washingtonpost.com%2Fcar-ln-tr%2F3561315%2F61a114979d2fdab56ba15957%2F5e2dde419bbc0f6326309bfd%2F39%2F72%2F61a114979d2fdab56ba15957)
-
+## 爆料：币安是个大骗局
+[https://gettr.com/post/pi1zv55630](https://gettr.com/post/pi1zv55630)
+郭文贵爆料，在过去一个月以来，约20家银行机构因美国政府的要求，关闭了对币安的服务。且有大陆用户欲使用币安兑现，发现无法提现成功。他进一步表示，原因是中国共产党要求多国政府将大陆用户在币安帐户中的财产转移给中共。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/截圖-2021-11-27-下午5.30.49.png)[https://gettr.com/post/pi1zv55630](https://gettr.com/post/pi1zv55630)
 * * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
-
-
-
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Yellow-Black-Year-End-Report-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

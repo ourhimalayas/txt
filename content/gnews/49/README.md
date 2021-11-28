@@ -2,24 +2,41 @@
 ---
 
 
-## 半个中共国为北京冬奥会停工停产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699803/)
+## 班农提出动议 要求公开法庭案件中的所有文件
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1699695/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/223-1.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F6FAB%2Fproduction%2F_116778582_xxjpsgc007377_20201230_pepfn0a001.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fsports-56661963&amp;tbnid=Tb03yBTEh3noyM&amp;vet=12ahUKEwjvuL-Qsrj0AhVN4GEKHXDvDhkQMygFegUIARC2AQ..i&amp;docid=ZT7LpLnUMBomVM&amp;w=640&amp;h=360&amp;itg=1&amp;q=%E5%86%AC%E5%A5%A5%E4%BC%9A&amp;ved=2ahUKEwjvuL-Qsrj0AhVN4GEKHXDvDhkQMygFegUIARC2AQ)
-11月27日财经网报道，由于2022年初北京将承办两项重要奥运赛事（冬奥会将在2月4日—20日举行，残奥会将在3月4日举行），据中共国家环保部统计，华北、淮北、华西等多地空气严重污染，为实现碳中和达标，中央政府决定：2022年1月1日前关停华北、淮北、华西等重污染地区所有重工企业，重点河北唐山、天津、石家庄、张家口，承德、山东济南、威海，潍坊，山西太原、大同、长治，河南洛阳、郑州等地区，关停期限自2022年1月1日至2022年3月8日。
+**编译：Jenny Ball**
 
-北方区域大半被覆盖，工业企业被严格控制重污染减排、实行交通管制，必要时停产减产。水泥、制造业、煤化工、石油化工等多个行业以及涉voc工序的生产制造环节，生产线开工、错峰运行，面源、移动源减排方面，以及港口、物流运输等方面都有着严格的管控措施，也就意味着化工、重工业企业都将面临环保管制加严的局面。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip81.png)调查 1 月 6 日在国会大厦发生的未遂叛乱的众议院特别委员会面临着与前特朗普政府官员的艰苦战斗。 （布莱尔公会/华盛顿邮报）
 
-中共国对6省65市发布了“停工令”，为所谓的冬奥会胜利召开，保证蓝天白云，晴空万里，半个中共国企业也将会面临停工停产，相应的工业民生产品供应将会出现短缺，继而引起涨价。
+前川普白宫顾问斯蒂夫·班农 (Stephen K. Bannon) , 已向美国地方法院提出反对标准的发现保护令，该命令禁止任何一方公开发布文件或证据。
 
-信息来源：
+67 岁的班农上周对藐视国会的指控表示不认罪，他的法律团队此前争辩道，如果同意检方的发现保护令，案件会更加复杂。
 
-[【紧急！冬奥会“管控”来了！停工停产到2022年3月！】](https://page.om.qq.com/page/OI21m9iCM4VJ1nByOq-k3b4Q0)
+律师代表班农向《华盛顿邮报》提供的一份声明说：“公众应该根据所有事实，才能对美国司法部是否致力于公正做出他们自己的独立判断。”“在今天提出的反对意见中，班农先生要求法官遵循正常程序，并允许不受限制地访问和使用文件。”
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+美国助理检察官阿曼达·沃恩（Amanda R. Vaughn）表示，将提供“少于 20 份文件”，但班农律师埃文·科克兰（Evan Corcoran）告诉记者，辩方可能需要找到更多文件和证人。
+
+班农的法律团队称，政府没有提供任何理由不让公众看到这些文件，并补充说，在本案中，许多受拟议保护令限制的文件已经公开。
+
+“政府没有提供任何理由限制班农先生的律师使用这些文件准备辩护，”班农的声明说。
+
+班农拒绝遵守调查 1 月 6 日国会大厦袭击事件的众议院特别委员会的命令，以提供有关他在袭击前的行为的记录和证词。委员会有兴趣就 1 月 6 日之前一周内，班农在威拉德酒店的活动向他提问。
+
+**评论：所有伟人都是经历的巨大的磨难，如果班农先生没有在中共渗透和控制的美国司法走一遭，他永远不会真切地认识到中共对美国影响的灾难到了什么程度！不在痛苦中生，必将在痛苦中亡！**
+
+**新闻来源**：[washingtonpost.com][Stephen K. Bannon files motion to request all documents in court case be made public](https://www.washingtonpost.com/politics/stephen-k-bannons-lawyers-file-opposition-to-keeping-documents-from-being-released/2021/11/25/29889174-4e3e-11ec-b73b-a00d6e559a6e_story.html?utm_campaign=wp_post_most&amp;utm_medium=email&amp;utm_source=newsletter&amp;wpisrc=nl_most&amp;carta-url=https%3A%2F%2Fs2.washingtonpost.com%2Fcar-ln-tr%2F3561315%2F61a114979d2fdab56ba15957%2F5e2dde419bbc0f6326309bfd%2F39%2F72%2F61a114979d2fdab56ba15957)
+
+* * *
+
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
