@@ -2,41 +2,41 @@
 ---
 
 
-## 国际社会抵制北京冬奥会将激动习近平的暴怒
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1702555/)
+## 纽约希望保险公司拒向未接种者提供 COVID 保险
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1702653/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11287-1.jpg)[*图片来源*](https://static.independent.co.uk/2021/11/20/16/PRI209653932.jpg?width=990&amp;auto=webp&amp;quality=75&amp;crop=982:726,smart)
-**美国明星参议员克鲁兹对是否抵制冬奥会发表惊人之语，称美国运动员应有勇气去北京战胜共产主义并揭露中共政府的谋杀、种族灭绝和Covid-19生物武器的共谋。加上中共对彭帅的粗暴处理，加大了国际社会的抵制决心，但这很可能会触及对台湾战争问题。**
+**编译：Jenny Ball**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip85.png)纽约布法罗Buffalo, NY
+纽约州布法罗《生活新闻》（[LifeSiteNews](https://www.lifesitenews.com/))——一位民主党州议员表示，他将提出一项法案，允许保险公司拒绝向未接种疫苗的客户提供与 COVID 相关的保险。
 
-美国当时间27日，德克萨斯州参议员泰德·克鲁兹接受哥伦比亚广播公司新闻采访时就主持人提问“拜登正在考虑对北京冬奥会进行外交抵制的问题，你认为他应该更进一步吗？”克鲁兹说，“我希望我们的奥运代表队前往中国并‘踢出他们的共产主义’！”
+周二，纽约州议员帕特里克·伯克（Patrick Burke）在推特上发布了他的计划，即提出一项法案，该法案将允许保险公司在涉及 COVID 相关医疗费用的承保范围时，根据其客户的疫苗接种情况来歧视他们。
 
-克鲁兹本周就即将在中国举办的奥运会发表了激烈的声明说：“我一直坚信我们应该将奥运会从中国移走。但我认为完全抵制奥运会是错误的。”他进一步表示，“我认为我们的运动员在中国奥运会上至少要很重要的做两件事：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip86.png)
 
-第一点，我们有勇气揭露共产主义政府的谋杀、种族灭绝、酷刑、谎言和中共政府在 Covid-19生物武器的共谋。我们实际上向勇气展示了谋杀、种族灭绝、它说出了真相和数字‘’。
+伯克写道：“我正在提出一项法案，允许保险公司拒绝为未接种疫苗的人提供与 Covid 相关治疗的保险。”
 
-第二点，我希望我们的年轻男男女女能够克服困难并‘踢出他们的共产主义’。我们需要在奥运会上获胜，”他补充道。
+“他们自己按自己的方式付费，自由不是免费的。”
 
-- ***延展阅读：***[***西方权衡抵制中国冬奥会的成本***](https://www.theguardian.com/world/2021/nov/22/west-weighs-up-costs-of-boycotting-china-beijing-winter-olympics)
+伯克对医疗种族隔离制度的倡导，遭到社交媒体的强烈反对，因为多个用户让他想起了他之前为每个公民倡导免费医疗的推文。
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip88.png)
 
-- ***延展阅读：***[***英国首相约翰逊和美国总统拜登考虑抵制中国冬奥会***](https://www.thetimes.co.uk/article/boris-johnson-ponders-boycott-of-chinas-winter-olympics-5f9lntxkd)
+“一个小女孩不得不卖柠檬水来支付她的脑部手术费用，这真是太悲惨了。这不是一个让人感觉良好的故事，这是一个民族耻辱的故事。每个美国人都应该有获得优质医疗保健的权利，”伯克在 3 月份回应了一个关于阿拉巴马州一名 7 岁女孩筹集资金支付医疗费用的故事时说。
 
+著名记者格伦·格林沃尔德 (Glenn Greenwald) 嘲笑伯克的近 200 万追随者，写道：“**纽约民主党州议员提出的一项法案**，授权保险公司基于进步的同情心和同理心，拒绝向人们提供保险。”
 
-此轮抵制北京冬奥会，国际社会对此有太多的理由，特别是COVID19大流行后的疫苗灾难发生，加上中共国政府对世界网球冠军彭帅的粗暴处理，澳大利亚政府因此考虑非正式抵制，不派遣官方代表参加。
+**评论：共产主义中共和左派最大的共同点就是：冠冕堂皇打着正义的幌子干坏事！他们制造社会矛盾，强制人们接受试验疫苗充当白老鼠，但试验出了问题他们不负责，而是告诉你“自由不是免费的”，多么讽刺滑稽！正因为“自由不是免费的”，我们才要行动起来保护我们的健康自由，人身自由！**
 
-据《[悉尼先驱晨报](https://www.independent.co.uk/news/world/australasia/australia-boycott-beijing-winter-olympics-b1964184.html)》报道，澳大利亚执政党自由-国家联盟和反对党工党的立法者敦促斯科特·莫里森政府抵制明年2月举行的北京冬奥的请求，联邦政府正在考虑。
+**新闻来源**：[lifesitenews.com][New York Democrat wants insurance companies to deny COVID coverage to the unvaccinated](https://www.lifesitenews.com/news/ny-democrat/)
 
-- ***延展阅读：***[***释放危险信号！拜登对北京冬奥会做最新表态，岸田文雄举动很反常***](https://3g.163.com/dy/article/GPT3ILH40542ONYY.html)
+* * *
 
+***审核：文乐
+校对：阿伯塔
+发布：信心满满***
 
-不过，国际社会若成功抵制冬奥会，将会有大事发生，这同时也取决于新中国联邦。据郭文贵（MILES GUO）先生透露，“习近平要知道奥运会开不下去了，他一定会打台湾。不是台湾死于共产党手里，而是共产党一定会死在台湾手里。但有新中国联邦在，一定会让台湾完好无损。”（[03:55.27](https://gettr.com/post/pi15oub266)）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-2.jpeg)
 
-2021年11月28日
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
