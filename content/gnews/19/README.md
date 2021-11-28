@@ -2,26 +2,21 @@
 ---
 
 
-## 香草山翻译部周刊|2021年11月28日第24期
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1703536/)
+## GETTR与GTV 请战友们加紧时间认证
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1703547/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-421.jpeg)
+文编：东京樱花团/樱花传媒
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/text-CN-3.png)
-文章仅代表作者本人观点，与Gnews无关
+视频:东京樱花团/中文小视频组
 
-总编： GBWater
-编辑： Lakers
-发稿： Lakers
+11月26日，郭文贵先生在GTV大直播提醒：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-419.jpeg)
+为了配合盖特支付、盖特pay和一些金融政策上线，保证反馈时不出误差，请大家认真填写GETTR加V申请表，由农场集体提交给联盟。未来拿到大V资格的人会有优先待遇。手机、Email都可以认证，但必须是本人的真实信息。希望大家认真对待，抓紧行动。GTV更新后，也即将开始认证。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1-1.png)
+
 
  
 
