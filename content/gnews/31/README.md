@@ -2,35 +2,38 @@
 ---
 
 
-## 中国网民关观提供中共镇压新疆维吾尔人新证据
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1702120/)
+## 9月24日采访喜马拉雅交易所首席执行官杰西·布朗-关于未来节目
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1702130/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-27.jpg)中国网民关观提供中共镇压新疆维吾尔人新证据 网络图片
-据自由亚洲电台11月27日报道，一个名为“关观”（Guanguan）的中国年轻人依靠2017年的Mapbox卫星地图和中共国的百度搜索引擎来获取中等分辨率的卫星图像，实地探访了新疆的几个城市，拍摄了一段20分钟的纪录片，提供了中共国镇压维吾尔人的新证据，证实了中共国建有庞大的再教育集中营并散布在不同的地区，但在地图上并没有标志。他提供了18个不同的拘留设施和一个以前的设施证据和镜头。
-
-由于中共政府限制，外国记者很难进入新疆进行采访。Buzzfeed新闻网站和澳大利亚战略政策研究所 (ASPI) 此前根据卫星图像发布了有关再教育营的报告。建筑师和地理空间分析师艾莉森·基林帮助Buzzfeed新闻网站绘制了一张用卫星图像制作的地图，用于报道新疆再教育营的情况。艾莉森·基林、Buzzfeed新闻网站记者梅加·拉贾戈帕兰和程序员兼数字安全培训师克里斯多·布谢克的系列报道赢得了今年普利策国际报道奖。
-
-中共国使用人工智能、区块链和云计算等技术，建成世界上最广泛的网络监视系统，该系统由一个无处不在的数字化系统执行，从手机、个人电脑和安全摄像头收集了大量数据，通过监视无人机、面部识别摄像头、手机扫描和大批警察对目标人群实施政治和社会控制。
-
-世界维吾尔代表大会主席多里坤•艾沙对拜登总统在与习近平的视频峰会期间提到中共国对维吾尔人的暴行表示感谢，“如果不是美国谴责中共国对维吾尔人进行种族灭绝，今天的情况可能会更糟。拜登政府必须抵制北京冬奥会，否则，只会助长中共国继续犯下种族灭绝罪行。”
-
-中共当局多年来任意逮捕新疆维吾尔人和其他突厥少数民族，并限制他们的宗教活动和文化影响。美国政府在特朗普任职时宣布，中共国在新疆虐待维吾尔人的行为构成危害人类罪和种族灭绝罪。中共拒不承认其罪行，在新疆继续进行犯罪活动。如果国际社会继续容忍中共的罪行，这种独裁、扩张的专制政权可以毁掉西方的民主制度。现在全球统一实施的强制疫苗政策就是种族灭绝的延伸。在强制令面前，没有任何豁免，每个人必须接种毒针。可喜的是，全球一直在抗争，为着自由和民主，为着尊严和生命。虽然形势依然严峻，但全球觉醒的人越来越多。随着抗争的持续和加剧，最终民主自由必将战胜邪恶独裁，中共必然会被全球联合势力绞杀。
-
-新闻参考链接：[https://www.rfa.org/mandarin/zhuanlan/jieduxinjiang/xj-11272021024137.html](https://www.rfa.org/mandarin/zhuanlan/jieduxinjiang/xj-11272021024137.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
 
 
+托尼：我们的粉丝在未来的节目中可以期待什么？
 
+杰西：首先我要感谢大家对我们的产品、服务，以及最重要的是对我们的使命感兴趣，未来的节目将邀请我们许多优秀的高管，他们将更深入地探讨我们的技术、我们的安全和我们的监管能力。因此，我认为在未来的一些节目中，你将会见到这些利益相关者，你将会听到他们对我们如何走向未来的看法。
+
+我真的很期待再次见到大家，我认为这真的很棒，我希望我已经回答了你们可能有很多问题，在未来，我愿意随时接受大家采访，和你们所有人讲话，这对我来说是太棒了！
+
+参考来源：
+1. [https://gtv.org/video/id=614dd0ef42a8af3151a47b8e](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+2. [Interview with Himalaya Exchange CEO Jesse Brown- English Transcript of First Episode, September 24th](https://gnews.org/1593083/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+校对：文唐
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

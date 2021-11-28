@@ -2,30 +2,44 @@
 ---
 
 
-## 澳洲总理表示新变种病毒的出现不会带来2020年初的挑战
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1701843/)
+## 丹麦成为第一个为5岁儿童接种新冠疫苗的欧盟国家
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1701883/)
 
-#### 翻译/撰稿：黃金精神
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-47.jpg)图片来源：DW
-据澳联社 （Australian Associated Press）11月28日的报道，澳大利亚总理斯科特·莫里森（Scott Morrison）向人们保证，随着新变种的出现，该国不会面临与2020年初中共病毒首次到来时一样的挑战。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/106972926-16364849812021-11-09t013129z_786024702_rc2kqq9xi22v_rtrmadp_0_health-coronavirus-usa-children.jpeg)
 
-莫里森说，Omicron的出现是一个快速发展的问题，但政府将继续以最佳医疗建议为指导。莫里森周日在堪培拉对记者时说：“这与（今年）2月、3月和2020年时的情况不一样。我们现在有很好的知识，很好的建议，不确定性不像过去那样，我们有很好的系统，这一点已被证明。”
 
-对新变种Omicron的担忧已经使得澳大利亚对九个非洲南部国家关闭边境，各州对国际入境者实行新的规定。
+图片来源：CNBC
 
-维多利亚首席卫生官布雷特·萨顿（Brett Sutton）说，对Omicron的了解还不够，但它似乎是一个非常容易传播的变体。萨顿在墨尔本面对记者时说：“Omicron似乎在非洲南部，特别是在南非共和国传播得非常快。在很短的时间内，感染人数显著增加，俨然成为该国的主要病毒变体。”
 
-即便如此，反对党领袖安东尼·艾班尼斯（Anthony Albanese）对各州政府的迅速行动表示祝贺。他在墨尔本对记者表示，这种毒株可能造成真正的问题，它的传播速度很快，需要采取任何必要的措施（防止传播）。
+#### 翻译：不要代表我Kari
+编辑：小红帽
 
-新南威尔士州州长多米尼克·普罗特（Dominic Perrottet）表示正在进行紧急基因组测序，以确定Omicron是否已经到达悉尼。
+丹麦国家卫生委员会建议，可以为5至11岁的儿童接种新冠肺炎（COVID-19）疫苗，成为第一个做出此举的欧盟国家。
 
-两人连夜从非洲抵达时检测出中共病毒阳性，目前正在调查他们是否携带Omicron变体。
+周五，国家卫生委员会副主任海伦·普罗斯特（Helene Probst）告诉媒体，这一决定是基于北欧国家新冠肺炎病例持续上升的情况所作出的。
 
-新南威尔士州、维多利亚州和澳大利亚首都地区已经对国际入境者实行了为期三天的家庭隔离要求。
+在董事会提出建议之前，欧洲药品管理局（EMA）于周四建议，辉瑞-生物技术公司的新冠疫苗可以安全地用于5岁以上的儿童。
 
-**新闻来源：[https://www.aap.com.au/news/australia-ready-for-omicron-covid-variant/](https://www.aap.com.au/news/australia-ready-for-omicron-covid-variant/)**
+普罗普斯表示，虽然该年龄段的儿童没有患上严重的新冠肺炎的风险，但为他们接种疫苗可以帮助保护家人和朋友。
+
+国家卫生委员会还没有为5至11岁的年龄段儿童设定具体接种目标。“但如果我们达到70%的目标，那就再好不过了，”普罗普斯告诉媒体。
+
+政府甚至已经为家长们制作宣传手册，告诉他们为幼儿接种新冠疫苗的相关信息。
+
+原文链接：[First EU country backs Covid jabs for 5-year-olds — RT World News](https://www.rt.com/news/541456-denmark-vaccine-children-covid19-pfizer/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
 
  
 

@@ -2,21 +2,43 @@
 ---
 
 
-## 澳洲新南威尔士确认了两名Omicron新冠变种病毒感染者
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1702340/)
+## 打脸：拜登抨击川普旅行禁令 自己却另外颁布一个
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1702378/)
 
-翻译：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Sydney.png)图片来自网络
-澳大利亚已发现了首例Omicron新冠变种病毒感染者，患者是周六抵达悉尼的乘客。
+**翻译：Lulumi**
 
-[新南威尔士州卫生部确认](https://www.theaustralian.com.au/nation/coronavirus-news-australia-victoria-nsw-issue-new-isolation-order/live-coverage/4c325c5d215924fedb7fcda3b12d678d?utm_source=TheAustralian&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=TA_BREAKING_CUR_04&amp;net_sub_id=@@@@@%25@@@@&amp;type=curated&amp;position=1&amp;overallPos=1&amp;utm_source=TheAustralian&amp;utm_medium=Email&amp;utm_campaign=Editorial&amp;utm_content=emailname_)，两名于11月27日星期六晚从南非抵达悉尼的旅客感染了Omicron B.1.1.529 新冠变种病毒。两人都已完全接种疫苗。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-851.png)图片来源: breitbart.com
 
-这两名乘客是乘坐卡塔尔航空公司航班从多哈抵达悉尼。同机抵达的其余12名来自南非的乘客正在进行14天的酒店检疫隔离。该航班上约260名乘客和机组人员被认为是密切接触者，也被指示进行隔离。
+2021年11月6日，美国总统乔·拜登在华盛顿白宫的国宴厅就两党基础设施协议的通过和允许通过《重建更好法案》的规则发表讲话时做出的反应。(ROBERTO SCHMIDT/AFP via Getty Images)
 
-目前，所有抵达新州的旅客，如果在抵达之前的14天内曾在南非、莱索托、博茨瓦纳、津巴布韦、莫桑比克、纳米比亚、埃斯瓦蒂尼、马拉维和塞舌尔待过，无论其疫苗接种情况如何，都必须进入酒店隔离14天。
+在称前总统川普在2020年颁布的中共病毒旅行限制为种族主义和排外主义之后，美国总统乔·拜登周五因为新的中共病毒变种而对八个国家颁布旅行限制而遭到抨击。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
+2020年中国冠状病毒大流行登陆美国后，川普对全球各国发布了旅行限制。拜登很快给这些保护主义措施贴上了种族主义和仇外的标签，比如2020年2月1日宣布旅行禁令后的这条推特。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-853.png)图片来源: breitbart.com
+
+上周五，世界被一种来自非洲国家的快速传播的冠状病毒变种惊醒。
+
+拜登周五发布了对非洲国家的旅行禁令，让许多人看清他的虚伪：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-854.png)图片来源: breitbart.com![](https://assets.gnews.org/wp-content/uploads/2021/11/image-855.png)图片来源: breitbart.com
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-857.png)图片来源: breitbart.com
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-859.png)图片来源: breitbart.com
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-861.png)图片来源: breitbart.com
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-863.png)图片来源: breitbart.com
+
+新闻来源 : [ breitbart.com ] [Joe Biden Slammed for Calling Trump’s Travel Restrictions Racist, Xenophobic, Then Enacting His Own](https://www.breitbart.com/politics/2021/11/26/joe-biden-slammed-for-calling-trumps-travel-restrictions-racist-xenophobic-after-enacting-his-own/)
+
+* * *
+
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-2.jpeg)
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
