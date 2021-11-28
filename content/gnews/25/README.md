@@ -2,17 +2,18 @@
 ---
 
 
-## 【文贵先生大直播PPT】青蒿素功效
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1703384/)
+## 文贵大直播 11/28 病毒变种意在天下大乱CCP乱中取胜
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1703405/)
 
-撰稿：飞飞及团队
-审核：三票先生，顽童先生，舒平风
+作者：回响 【秘翻Gnews原创组】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot.png)图片来源：GTV
+近日有关南非病毒新变种Omicron各种消息，已经造成世界的恐慌。面对现场嘉宾关于此次变种真相的疑问，爆料革命发起人郭文贵先生毫不含糊地给了公众明确的来龙去脉。
 
-【2021年11月28日文贵先生大直播PPT：青蒿素功效】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-196.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-132.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-110.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-73.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-56.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-48.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/7-41.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/8-32.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/9-24.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/10-13.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/11-17.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/12-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/13-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/14-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/15-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/16-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/17-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/18-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/19-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/21-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-8.jpg)
-* * *
+病毒是解放军的生化武器，看近期中共外交部王毅、杨洁篪的行踪，看中共军方有关飞机的轨迹，爆料革命不是推测更不是猜测，是情报。是基于郭先生对CCP的了解。此次冬季病毒，主要在打了两针疫苗者人群中相互传染。其目的在于引发相关国家内部动乱，从而意在实现夺台，通过胁迫完成冬奥会。
 
-上传：云起时
+文贵先生从对当代人类专制独裁事实的独到研究和总结中，异常清晰、精准地分析了中共邪恶的缘由和行为轨迹。令现场学者、医生叹为观止。
+
+【参考链接】https://gtv.org/broadcast/watch/61a3828b44c1fe7a6c3aaf2a
 
  
 
