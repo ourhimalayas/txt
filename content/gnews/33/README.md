@@ -2,37 +2,24 @@
 ---
 
 
-## 坎特称：派出运动员参加中共冬奥会 是一种耻辱
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1702499/)
+## 秘翻在线：卡塔尔的一项研究发现，新冠康复者再次感染和患上重症的风险非常低
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1702543/)
 
-作者：纽约香草山文艺部 – 宁文静
+#### 翻译/撰稿：zzballack
 
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+#### 校对：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-866.png)图片来源：CNN
+据《新唐人》11月27日报道，《新英格兰医学杂志》（New England Journal of Medicine）11月24日发表的一项研究发现，新冠康复者再次感染新冠病毒的风险很低，患上重症的概率也微乎其微。如果一个人在第一次感染后至少90天内检测出阳性，则算作再次感染。
 
+卡塔尔的研究人员对国家数据库中收录的35.3万名经核酸测试后确认感染新冠的患者进行研究，这些患者在2020 年 2 月28日至 2021 年 4 月28期间感染了新冠病毒。在拥有自然免疫力且没有接种疫苗的人中，仅有1304名再次感染者，只占0.4%；另有4位重症患者，占总人数的0.1%。这意味着那些具有自然免疫力的新冠康复者再次感染新冠和患上重症的风险几乎没有。再次感染的人中，没有死亡病例记录。本次统计没有计入大约8万7500名接种过新冠疫苗的人。
 
+卡塔尔威尔康奈尔医学院（Weill Cornell Medicine–Qatar）的研究员莱斯·J·阿布-拉达德 (Laith J. Abu-Raddad)和卡塔尔公共卫生部的罗伯托·贝托里尼 (Roberto Bertolini)博士，之前评估自然免疫对预防再感染的有效性为85%或更高。 他们说：“相对来说，新冠康复者比没感染过新冠的人低，前者发生严重再感染的风险只有后者的大概1%。”
 
-波士顿凯尔特人队中锋埃内斯·坎特，24日在接受媒体采访时说，如果各国无视中共对维吾尔族人“种族灭绝”的反人类罪行，仍然派出运动员参加中共冬奥会，那将是奥运史上的巨大耻辱。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1128AM（1-9）視頻備用.003-1.jpeg)
-坎特说，维族穆斯林在中共的集中营遭受难以想象的酷刑，被洗脑，被强摘器官，许多政治家抨击这种“种族灭绝”的犯罪行为。看中共如何对待彭帅事件，我们不能放心地把运动员派到残酷的极权国家去。
+加利福尼亚大学旧金山分校（University of California, San Francisco）的传染病学教授莫妮卡·甘地 (Monica Gandhi)表示，这项研究和其它越来越多的研究表明，新冠康复者有很高的免疫力水平，甚至对重症和死亡有更高的保护力。
 
-坎特作为最著名的NBA球星，一直为香港，维吾尔族人权问题发声，抨击中共对台湾主权的侵犯。家人遭受土耳其政府迫害，自己被限制比赛，不能出国，甚至收到死亡威胁。坎特认为，有比篮球等运动事业更重要的事情。他呼吁各国抵制中共冬奥会，避免奥林匹克圣火蒙羞。
+自然免疫是强大的，之前辉瑞的科学家在接受记者暗访时也承认自然免疫强过疫苗。人们不要再被媒体、政客、制药寡头和所谓学术权威炮制的恐慌和科学数据欺骗，合理使用硫酸羟氯喹、伊维菌素等廉价有效药物做好预防，安全地渡过这场人类大劫难。
 
-参考链接：[NBA球员埃内斯·坎特：我需要成为那些无法发声的无辜者的代言人](https://gettr.com/post/pi4aqc33eb)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
-
-总编：正义的小新
-编辑：Kathy文艺
-校正/发稿：我不在这里
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+新闻来源：[Naturally Immune People at Little Risk of Reinfection, Severe Disease From COVID-19: Study](https://www.ntd.com/naturally-immune-people-at-little-risk-of-reinfection-severe-disease-from-covid-19-study_707080.html)
 
  
 
