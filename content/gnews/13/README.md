@@ -2,31 +2,32 @@
 ---
 
 
-## 韩国人首次在韩国辉瑞总公司前举行反对疫苗通行证示威
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1701645/)
+## 美国三大汽车制造商同意不强制要求UAW工会成员接种疫苗
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1701714/)
 
-韩国首尔天池农场
-翻译：小甜心
-校对：鱼子酱
-上传：追着曙光跑
+#### 翻译：Lish
+编辑：MSGZ
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-188.jpg)
+图片来源：comedonchisciotte
 
-据韩国ourtoday网站11月24日的一篇新闻报道，在反对接种新冠病毒疫苗和疫苗通行证示威扩散到全世界的情况下，韩国国内首次在韩国辉瑞总部前举行了“疫苗通行证反对示威“，今后舆论将如何发展，备受关注。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-28-at-11.46.46.jpeg)图为，在韩国辉瑞总公司前举行反对疫苗通行证示威
+福特汽车公司、通用汽车公司和斯泰兰蒂斯公司已经同意，不会强迫汽车工人联合会的成员将强制接种疫苗作为就业的条件。此外，工人的疫苗接种状况将遵循私密性和自愿披露的政策。这是对医疗隐私和自由原则的一大胜利。
 
-在国外，宣布实行疫苗强制措施的奥地利维也纳市民们正在举行大规模示威，荷兰，比利时等地也因大规模示威发生了大大小小的事故。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-28-at-11.52.11.jpeg)图为，在韩国辉瑞总公司前举行反对疫苗通行证示威
-在韩国反对疫苗通行证的舆论成为主流的情况下，网上已经出现了反对强制接种疫苗和疫苗通行证的舆论。
+在周一晚上的会议上，由汽车工人联合会(UAW)、福特、通用汽车和斯泰兰蒂斯（Stellantis）集团组成的COVID-19联合工作组就UAW成员自愿和保密披露疫苗接种情况的政策达成一致。关于如何、在何处以及何时报告他们的疫苗接种状况，每家公司都将向员工进行额外的沟通。
 
-特别之处在于参与“疫苗通行证，示威” 的大部分人已经是接种疫苗了。
+除了鼓励成员披露他们的疫苗接种情况外，工作组继续敦促所有成员、同事及其家人接种疫苗并接受COVID-19的加强针，同时理解有一些个人原因可能使一些成员无法接种疫苗，如健康问题或宗教信仰。
 
-他们明确的表示：疫苗通行证压制自由，蹂躏人权，表示反对。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-28-at-11.52.12.jpeg)图为，在韩国辉瑞总公司前举行反对疫苗通行证示威
-另外，虽然接种了2次疫苗，但防疫当局总是改口说“突破感染”，“加强针”等，令人失望。
+在审阅了疾病预防控制中心和职业安全与健康管理局的指南方针后，工作组还决定，目前在所有工作场所继续佩戴口罩符合工人安全的最佳利益。这有助于将利益转向美国工人。
 
-在这种情况下，此次在韩国辉瑞总部前举行的“反疫苗通行证示威”有望在2022年大选，地方选举及文再演政府剩下的6个月任期内成为社会问题。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-28-at-11.52.12-1.jpeg)图为，“疫苗通行证，反对示威”会员们的集体照
+参考链接：[Big Three US Automakers Agree To Not Mandate Vaccines For UAW Union Members | ZeroHedge](https://www.zerohedge.com/political/big-three-us-automakers-agree-not-mandate-vaccines-uaw-union-members)
 
-新闻来源：[백신패스 반대시위,국내 최초 한국화이자 본사앞에서 가져](http://www.ourtoday.co.kr/mobile/article.html?no=24829)
+**发布：**枳实
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

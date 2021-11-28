@@ -2,20 +2,41 @@
 ---
 
 
-## 新变种“奥米克戎”首现于2剂疫苗接种者、症状非常轻微
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1701763/)
+## 9月24日采访喜马拉雅交易所首席执行官杰西·布朗-是什么推动了喜马拉雅交流中心的使命？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1701821/)
 
-编译：致敬香港！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-42.png)
-图片来源： https://www.dw.com/
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
 
-近日又一种被宣传得如洪水猛兽般的新冠病毒变种——“奥米克戎”（Omicron）——被发现于博茨瓦纳和南非等非洲国家。据“零对冲”网11月27日报道，博茨瓦纳政府25日在一份公开声明中透露，这个新变种最早发现于4名接种了2剂新冠疫苗的人身上。
 
-当局的声明表示，被检测到该变种病毒的为4名外国公民，他们11月7日入境，11日离境时被测出病毒阳性，而跟他们密切接触的其他人则没有检测到感染。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+椰子: 是什么推动了喜马拉雅交流中心的使命？
 
-因有消息称这个新变种的传染性增强了3倍之多，触发了一轮各地金融市场的暴跌、和实施又一波旅行禁令等恐慌。但南非医学协会主席安吉丽克·库切（Angelique Coetzee）博士表示，迄今为止这个新变种引发的病症都“非常、非常地轻微”，没必要小题大做、煽动恐慌。
+杰西: 在认真评估了加密领域的当前市场和机会后，我们意识到建立一个真正的加密生态系统的重要性。这个生态系统不仅鼓励而且能夠使我们获得金融自由和主权。
 
-**新闻来源：** [Omicron Variant First Detected In Four “Fully Vaxx’d” People, SA Medical Chief Only Seen “Very, Very Mild Cases”](https://www.zerohedge.com/covid-19/omicron-variant-first-detected-four-people-who-were-fully-vaccinated)
+加密货币有潜力赋予世界上每个人权力，无论他们来自哪里，也无论他们是谁。我们的目标是为每个人实现无国界和包容性，我们真正鼓励财务自由，这也是我们使命的主要驱动力。
+
+参考来源：
+1. [https://gtv.org/video/id=614dd0ef42a8af3151a47b8e](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+2. [Interview with Himalaya Exchange CEO Jesse Brown- English Transcript of First Episode, September 24th](https://gnews.org/1593083/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+校对：文唐
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+
+
+
+
+
 
  
 

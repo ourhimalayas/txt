@@ -2,45 +2,23 @@
 ---
 
 
-## 9月24日采访喜马拉雅交易所首席执行官杰西·布朗-谁是喜马拉雅交易所的幕后推手？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1701712/)
+## 官僚们的假诺言：打过两针疫苗就再开放
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1701736/)
 
-翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-125.png)
+图片来源： www.bbc.com
+零对冲网11月27日报道，《经济学家》写道，欧洲致命性的中共病毒感染病例数的飙升同时也引发公众对封城的愤怒。
 
+最近几天4万多未接种疫苗的奥地利人在首都维也纳的抗议游行引起双重麻烦，抗议者们的近距离接触将加剧病毒的传播，同时也使得政治形势更加严峻，奥地利内务部长卡尔·纳哈默警告说，阿尔派共和党的反疫苗者变得越来越激进，他称抗议者的情绪是“激怒状态““有攻击性”。有些抗议者非常有煽动性，举着橱柜比喻亚历山大·沙伦贝格，新任奥地利总理，是约瑟夫·门格勒，这人是纳粹奥斯威辛集中营的虐待狂医生。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
+抗议者们游行抗议针对反对接种疫苗者的封堵措施，11月22日政府发布了再次封城要求，至少10天，让900万奥地利人关在家里，除非工作，或必需的购物或健身，奥地利也是第一个西方国家要求所有人在2月1日前必须接种疫苗。
 
+欧洲近一周的病例占全球67%，奥地利总理说封城将至少要达到20天。斯洛伐克周三宣布至少二周的封城，荷兰要求酒吧和饭店必须在晚上8点以前关门，比利时要求除特殊情况，工作人员一周在家工作4天，默克尔要求德国封城，因为死亡人数已达10万，英国推迟六个国家的航班，新加坡禁止来自南非的航班，日本海关也严控某些国家的游客。
 
-椰子: 你们真的是一个很棒的团队。你能和我们分享一下谁是喜马拉雅交易所的幕后推手以及你们的团队有多出色吗？
+各国政客们曾经许诺打了两针疫苗后就可以再开放了，但是这显然是骗人的，然后一个谎言接着一个谎言，当人们对政府失去信任，抗议就是必然的。
 
-杰西: 我很乐意分享。如你所知团队合作让梦想成真，
-
-我们非常成功地聘请了区块链， 加密技术领域的一些领先专家以及来自金融科技世界各个角落的部门主管。我们组建了一个独特的团队来满足我们独特产品的需求。
-
-在很短的时间内，我们从少数几个专家发展到现在近200名员工。我看到了这种增长，非常令人印象深刻。
-
-他们是致力于提供这种产品的专业人员， 而且他们是在非常具有挑战性的病毒大流行时期这么做的。你知道这很困难，但我们确实在努力克服，我们有很多值得骄傲的地方。
-
-最重要的是每个人都对我们的使命充满热情。那就是让每个人每个地方都享有财务自由，我认为我们在处理大流行病的问题上做了令人难以置信的工作。我们组建了一个非常伟大的团队，我非常自豪。
-
-参考来源：
-1. [https://gtv.org/video/id=614dd0ef42a8af3151a47b8e](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
-2. [Interview with Himalaya Exchange CEO Jesse Brown- English Transcript of First Episode, September 24th](https://gnews.org/1593083/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-校对：文唐
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
-
+##### **新闻来源： **[Bureaucrat’s False Promise: Take Two COVID Shots And We Will Reopen](https://www.zerohedge.com/political/bureaucrats-false-promise-take-two-covid-shots-and-we-will-reopen)
 
  
 
