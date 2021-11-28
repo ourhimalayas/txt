@@ -2,26 +2,35 @@
 ---
 
 
-## 又一与中共有千丝万缕联系的美国官员可能会被任重职
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1703825/)
+## 加州小镇宣布独立，反对独裁权力和联邦的中共病毒强制令
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1703834/)
 
-撰稿：西枫westca
+**据《零对冲》记者：泰勒·德登 (Tyler Durden) 2021年11月26日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/a6wsw-b5v15.jpg)图片源自FOXNews
+加利福尼亚州的一个市宣布自己为“立宪共和国”，独立于联邦政府或州政府发布的行政命令，以抗议封锁、强制戴口罩和强制接种疫苗。
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-17.jpg)图片来源：网络截屏
-《国家脉动》近日又挖出了被拜登政府提名的美联储副主席莱尔·布雷纳德（Lael Brainard） 与中共的裙带关系。在布雷纳德被提名后，所有媒体都忽视了一个问题，即她与中共团体有着长期的联系。
+加利福尼亚州奥罗维尔（Oroville）副市长斯科特·汤姆森（Scott Thomson）出现在福克斯（FOX）新闻上，概述了这一举动，并指出“我当时坐在市政厅，强制令持续地发到我的办公桌上。 正如你所知，它开始是“要在两周停止——减缓（感染病毒）曲线”，而且就像胡萝卜一直在我们面前晃来晃去……而且，似乎每一项强制令下来了，都令自由丧失。”
 
-布雷纳德是一位经济学家，作为2010年至2013年财政部的最高外交官，她监督过八份报告，这些报告都清除了中共有据可查的货币操纵做法，而从未批评过这些决定。在奥巴马政府任职期间她有争议地拒绝将中共国列为汇率操纵国。自2014年以来布雷纳德一直在美联储理事会任职。
+汤姆森将奥罗维尔市的举动与旧金山宣布自己为“庇护城市”的举动进行了比较。
 
-除了未能让中共对其财政滥用行为负责之外，布雷纳德还嫁给了库尔特·坎贝尔，其被称为拜登的“亚洲沙皇”，并且他是国家安全委员会的高级官员。坎贝尔与中共的外联部门和宣传机构关系密切，在何厚铧的华信中国能源公司主办的一次会议，他说：“美国在努力建立美中之间持久和稳定的关系方面有郑重的承诺，”而该会议的领导层被美国司法部起诉，其罪名是“贿赂高级官员以获得商业利益”。
+汤姆森敦促说：“我们是一个立宪共和国，并想宣布这一点，”他澄清说，“我们并没有与加利福尼亚州分离，但我们只是提醒其他城市的高层，我们需要为我们的权利挺身而出。我们仍然是一个立宪共和国，这意味着我们拥有‘上帝’赋予的权利，而我们的先贤们创造了一个天才的共和国来分权。”
 
-坎贝尔还是由孔子学院总部主办的全国汉语大会的荣誉嘉宾，而孔子学院被中共认为是“中共国海外宣传机构的重要组成部分”。
+副市长进一步解释说：“我相信在全世界，尤其是在加利福尼亚，我们国家的结构正处于我们将让政府拥有多少权力的十字路口。”
 
-在私营部门，坎贝尔曾担任亚洲集团的主席和首席执行官，该集团帮助企业在中共国经营，包括由中国共产党资助的项目。
+汤姆森强调说：“我不相信当政府拥有更多权力时，任何人会赢。”并补充道，“每次失去自由，通常都需要流血牺牲，才能把自由拿回来。”
 
-我们看到在拜登政府中，与中共有密切联系的官员很多，上至国会议长、议员、下至各个部门的负责官员。在与中共国的这场战争中，来自美国政府内部的压力也是与日俱增。
+汤姆森进一步强调说：“我们的城市收到了失去拨款的威胁，但对我们来说，尤其是对我来说，他们可以留着他们应该用于拨款的钱；而我们想要加利福尼亚的自由，我们想要奥罗维尔的自由，这就是我们所坚持的。”
 
-**新闻来源：**[Biden’s New Federal Reserve Vice Chair is Married to his ‘Asia Tsar’ who Headlined a Conference For a Hunter Biden-Linked Chinese Foreign Influence Group. (thenationalpulse.com)](https://thenationalpulse.com/news/biden-fed-chair-ties-to-ccp/)
+**原文连接：**[https://www.zerohedge.com/political/watch-california-town-declares-independence-dictatorship-powers-state-federal-covid](https://www.zerohedge.com/political/watch-california-town-declares-independence-dictatorship-powers-state-federal-covid)
+
+翻译：洛杉矶盘古农场–WH
+校对：洛杉矶盘古农场–Mike Li
+编辑：洛杉矶盘古农场–心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
