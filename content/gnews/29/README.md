@@ -2,21 +2,42 @@
 ---
 
 
-## 澳洲新南威尔士确认了两名Omicron新冠变种病毒感染者
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1702340/)
+## 卡尔巴斯：西方是法治和规则的基础，中共国是威胁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1702370/)
 
-翻译：喜国公民
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Sydney.png)图片来自网络
-澳大利亚已发现了首例Omicron新冠变种病毒感染者，患者是周六抵达悉尼的乘客。
+**简评：**
 
-[新南威尔士州卫生部确认](https://www.theaustralian.com.au/nation/coronavirus-news-australia-victoria-nsw-issue-new-isolation-order/live-coverage/4c325c5d215924fedb7fcda3b12d678d?utm_source=TheAustralian&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=TA_BREAKING_CUR_04&amp;net_sub_id=@@@@@%25@@@@&amp;type=curated&amp;position=1&amp;overallPos=1&amp;utm_source=TheAustralian&amp;utm_medium=Email&amp;utm_campaign=Editorial&amp;utm_content=emailname_)，两名于11月27日星期六晚从南非抵达悉尼的旅客感染了Omicron B.1.1.529 新冠变种病毒。两人都已完全接种疫苗。
+华尔街知道中共是美国的敌人，意图颠覆全世界各国政府，也明白中共是西方法治和规则的威胁，但华尔街贪婪于每年从中共获得丰厚的回报。除非总统和国会动用力量限制华尔街对中共的投资和承包，否则华尔街为了利益会一如既往。如果华尔街能决定美国的未来，中文就会成为官方语言。
 
-这两名乘客是乘坐卡塔尔航空公司航班从多哈抵达悉尼。同机抵达的其余12名来自南非的乘客正在进行14天的酒店检疫隔离。该航班上约260名乘客和机组人员被认为是密切接触者，也被指示进行隔离。
+YouTube视频链接：
 
-目前，所有抵达新州的旅客，如果在抵达之前的14天内曾在南非、莱索托、博茨瓦纳、津巴布韦、莫桑比克、纳米比亚、埃斯瓦蒂尼、马拉维和塞舌尔待过，无论其疫苗接种情况如何，都必须进入酒店隔离14天。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
+
+[GTV视频链接](https://gtv.org/video/id=619f2cf19bb2d31319dc6dd2)
+
+**视频字幕：**
+
+**主持人：**现在有些报导称，华尔街已经意识到中共国的状况。 首先，这是真的吗？如果是真的，会对美国人产生什么影响？
+
+**Kyle Bass：**他们都明白中共国是敌人。他们都明白中共政府对全世界各国政府所做的颠覆性的事情。他们都明白中共国是法治和规则的威胁，而法治和规则是西方的基础。所有这一切，全世界的政府也开始明白，但是华尔街从与中共国的交易中获得12%的收入，而且这些华尔街的家伙沉醉于每年丰厚的薪水。
+
+所以直到总统和国会这一层级领导力量开始限制华尔街对中共的投资和承包，否则华尔街会一如既往。我总是开玩笑说，如果美国的安全由华尔街来决定，我们明天全都要说中文了。
+
+字幕：Vekap | 听写；云岭 |  翻译：Roberts |  PR：Dasy | 简评/文字整理/编辑：胖丁
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
