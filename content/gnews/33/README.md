@@ -2,41 +2,31 @@
 ---
 
 
-## 比尔·盖茨发出下一场瘟疫的信号：“死亡天使”天花
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1702057/)
+## 废水被检出新冠病毒后，北领地偏远城镇被封锁
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1702166/)
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Bill-gates-bioterrorism-attack-794355-1.jpg)
+#### **【雅典娜快讯】，紧贴时事脉搏**
+
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/98cda68e1d730525291345edabd1d99e.jpg)
 
 
  
-图片来源：www.express.co.uk
+图片来源： ABC Kimberley / By Matt Bamford and Sophia O’Rourke
 
 
 #### 编译：小红帽
 
-亿万富翁优生学家比尔·盖茨（Bill Gates）已经在发出他的下一个大流行病到来的信号，这似乎涉及人为释放[天花生物武器](https://www.express.co.uk/news/science/794355/Bill-Gates-bioterrorism-weaponise-smallpox-virus-terrorists-wipe-out-30-million)。
+另一个澳大利亚北领地的一个偏远社区已被封锁，原因是北领地发现了三个新的新冠病毒（COVID-19）病例。
 
-主流媒体最近一直充斥着关于神秘的天花 “小瓶 ”和其他与天花有关的故事。大约八年前，我们还报道了联邦政府出于某种原因正在储存天花 “疫苗”。
+凯瑟琳（Katherine）西南约560公里处的拉贾马努镇（Lajamanu）的废水中被检测出新冠病毒。鉴于该镇的疫苗接种率偏低，昨天晚上当局把该镇封锁了。
 
-**拜登早在****9****月就购买了价值数百万美元的天花药物****—****为什么？**
+北部省首席部长迈克尔·冈纳（Michael Gunner）表示，虽然该社区（约有500人）没有人报告有新冠肺炎症状，但采取这一预防措施是因为只有约60%的居民接种了第一剂新冠病毒疫苗。
 
-多年来，政府和媒体告诉我们，天花已被根除。据称这发生在1980年。然而，现在，天花正在头条新闻中重新出现，至少，可能很快会出现在人类身上。
+冈纳先生补充说，卫生当局已向该镇紧急调拨资源，希望所有居民在未来48小时内接受新冠病毒检测。
 
-早在9月，由乔·拜登（Joe Biden）总统领导的卫生与公众服务部（HHS）安排运送价值1.125亿美元的一种名为TPOXX的药物，这种药物恰好是一种用于治疗天花的药物。
+据悉，拉贾马努镇的封锁将持续到12月11日下午6点。
 
-为什么会下这个订单？拜登政府是否知道一些我们其他人所不知道的事情？天花是否很快会成为下一个大流行病？他们会不会称其为21型天花？
-
-“虽然有可能这三个故事看起来毫无关联，也有可能这三个故事像一个完美的‘阴谋’一样被缝合在一起，就像一个用来进一步镇压地球上的自由人民的阴谋。”《所有新闻管道》（All News Pipeline）警告：关于天花小药瓶、盖茨的天花生物武器警告和卫生与公众服务部购买TPOXX的个别故事。
-
-许多人想知道的是，全世界只有两个实验室被授权储存天花样本，而 “神秘”小瓶是如何出现在费城的？
-
-顺便说一下，这个费城实验室的主人不是别人，正是默克公司。这是否意味着默克公司正在开发某种药物混合物，以便在天花生物武器发布后，立即进行战略性地发布？
-
-盖茨最近还谈到了“细菌游戏”，他把其比作军队在冲突期间使用的 “战争游戏”。深层政府（黑暗势力）是否计划很快对人民发动一场生物战争？
-
-“虽然流感或普通感冒被‘根除’（正如盖茨所说）是件好事，但盖茨所说的这些‘’细菌游戏’听起来像是把‘细菌’推向世界的演习，而且是在我们知道全球主义者需要（在他们疯狂的头脑中）‘消除’世界上很大一部分人口的时候到来，”所有新闻媒体进一步报道。
-
-**参考新闻：**[Eugenicist Bill Gates is Signalling the Arrival of a Next Plandemic: ‘Angel of Death’ Smallpox (humansarefree.com)](https://humansarefree.com/2021/11/eugenicist-bill-gates-next-plandemic-smallpox.html)
+**参考新闻：**[Northern Territory coronavirus outbreak: Another NT town enters lockdown as three new local COVID19 cases are recorded (9news.com.au)](https://www.9news.com.au/national/northern-territory-coronavirus-outbreak-another-nt-town-enters-lockdown-as-three-new-local-covid19-cases-are-recorded/8f5d1245-bc14-4c20-af06-48e670e20a9d)
 
 ***发布：小红帽***
 

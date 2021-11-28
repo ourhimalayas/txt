@@ -2,32 +2,10 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月27日晚
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1701584/)
+## 11/26/2021 文贵直播：上海数家医院出大事了，中共各派通过放毒报复对方
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1701613/)
 
-作者：香草山翻译部
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-422.jpeg)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1127text-SC.png)
-校对：Stay文苑
-
-编辑：Stay文苑
-
-发稿：Stay文苑
-
-视频参看：[11.27  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61a2db2f44c1fe7a6c3a6331)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-416.jpeg)
-
-**更多资讯，更多关注**
-
-[纽约香草山农场 ｜GTV 香草山之声
-纽约香草山农场GTV- ｜MOS TALK 香草山访谈
-纽约香草山农场 | GETTR
- 纽约香草山农场 ｜YouTube
-欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
+秘密翻译组-北美组
 
  
 
