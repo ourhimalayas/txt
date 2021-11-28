@@ -15,112 +15,112 @@
 
 ---
 
-### [蓝州在过去两周中共病毒病例大规模激增](/content/gnews/1/README.md)
+### [自然免疫者再感染COVID导致重疾的风险很小](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [GETTR与GTV 请战友们加紧时间认证](/content/gnews/2/README.md)
+### [文贵爆料 11.28 : 习近平会让中共站在绞肉机上狂欢](/content/gnews/2/README.md)
+ ` 秘密翻译组-原创组`
+
+### [蓝州在过去两周中共病毒病例大规模激增](/content/gnews/3/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [GETTR与GTV 请战友们加紧时间认证](/content/gnews/4/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [感恩是赢家的游戏，是输家精神上的自慰](/content/gnews/3/README.md)
+### [感恩是赢家的游戏，是输家精神上的自慰](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [香草山翻译部周刊|2021年11月28日第24期](/content/gnews/4/README.md)
+### [香草山翻译部周刊|2021年11月28日第24期](/content/gnews/6/README.md)
  ` 纽约香草山MOS01`
 
-### [喜币涨跌的背后是什么](/content/gnews/5/README.md)
+### [喜币涨跌的背后是什么](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [感恩节后，共产党会乘机放毒，疫情会大爆发](/content/gnews/6/README.md)
+### [感恩节后，共产党会乘机放毒，疫情会大爆发](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [天价罚款后，美团发布3年来最差季报](/content/gnews/7/README.md)
+### [天价罚款后，美团发布3年来最差季报](/content/gnews/9/README.md)
  ` GTV新闻访谈`
 
-### [中共早已计划使用细菌战](/content/gnews/8/README.md)
+### [中共早已计划使用细菌战](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [世界为何在病毒疫苗上如此步调一致](/content/gnews/9/README.md)
+### [世界为何在病毒疫苗上如此步调一致](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳国防部长警告 必须警惕中共的军事规模和野心](/content/gnews/10/README.md)
+### [澳国防部长警告 必须警惕中共的军事规模和野心](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [文·贵天成——文贵先生谈“疫苗”（十九）](/content/gnews/11/README.md)
+### [文·贵天成——文贵先生谈“疫苗”（十九）](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [GTV新闻访谈简报|2021年11月28日早](/content/gnews/12/README.md)
+### [GTV新闻访谈简报|2021年11月28日早](/content/gnews/14/README.md)
  ` 纽约香草山MOS01`
 
-### [中共的股票完全是擀面杖经济，是假的](/content/gnews/13/README.md)
+### [中共的股票完全是擀面杖经济，是假的](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国提前两年交付台湾重型鱼雷吓阻中共](/content/gnews/14/README.md)
+### [美国提前两年交付台湾重型鱼雷吓阻中共](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [中共国的经济是家天下党天下](/content/gnews/15/README.md)
+### [中共国的经济是家天下党天下](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵大直播 11/28 病毒变种意在天下大乱CCP乱中取胜](/content/gnews/16/README.md)
+### [文贵大直播 11/28 病毒变种意在天下大乱CCP乱中取胜](/content/gnews/18/README.md)
  ` 秘密翻译组-原创组`
 
-### [共产主义的虚伪本质](/content/gnews/17/README.md)
+### [共产主义的虚伪本质](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [所谓国家是什么](/content/gnews/18/README.md)
+### [所谓国家是什么](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [文贵视角:早在1500年以前人类就用病毒杀人](/content/gnews/19/README.md)
+### [文贵视角:早在1500年以前人类就用病毒杀人](/content/gnews/21/README.md)
  ` 秘密翻译组-原创组`
 
-### [在一个关键合作伙伴终止协议后，币安(Binance) 第二次阻止其英国客户提取英镑](/content/gnews/20/README.md)
+### [在一个关键合作伙伴终止协议后，币安(Binance) 第二次阻止其英国客户提取英镑](/content/gnews/22/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【G时新闻】文贵爆料：让更多银行和币安用户知道你在币安的钱没了](/content/gnews/21/README.md)
+### [【G时新闻】文贵爆料：让更多银行和币安用户知道你在币安的钱没了](/content/gnews/23/README.md)
  ` G-时新闻`
 
-### [喜币面前，谁是灭共者一目了然](/content/gnews/22/README.md)
+### [喜币面前，谁是灭共者一目了然](/content/gnews/24/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021年11月28日文贵先生直播小飞象大雨围城速记](/content/gnews/23/README.md)
+### [2021年11月28日文贵先生直播小飞象大雨围城速记](/content/gnews/25/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [司马南方舟子等人对华人是巨大的威胁](/content/gnews/24/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [2021年11月28日文贵先生直播大雨围城速记](/content/gnews/25/README.md)
+### [2021年11月28日文贵先生直播大雨围城速记](/content/gnews/26/README.md)
  ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [11/28/21 香港快讯 伦敦华人办集会批评西方反华 港人到场「和你 lunch」](/content/gnews/26/README.md)
+### [11/28/21 香港快讯 伦敦华人办集会批评西方反华 港人到场「和你 lunch」](/content/gnews/27/README.md)
  ` 英喜-粵語組`
 
-### [你拥有喜币是因为你要灭共，这是个承诺](/content/gnews/27/README.md)
+### [你拥有喜币是因为你要灭共，这是个承诺](/content/gnews/28/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国颁布优惠政策帮助香港留学生](/content/gnews/28/README.md)
+### [美国颁布优惠政策帮助香港留学生](/content/gnews/29/README.md)
  ` 日本东京方舟农场`
 
-### [顶级心脏学专家：接种疫苗患心脏病风险激增](/content/gnews/29/README.md)
+### [顶级心脏学专家：接种疫苗患心脏病风险激增](/content/gnews/30/README.md)
  ` 澳喜特战旅Gnews`
 
-### [银河快讯: 拜登希望日本增加国防开支；日本收紧另外三个非洲国家入境规定](/content/gnews/30/README.md)
+### [银河快讯: 拜登希望日本增加国防开支；日本收紧另外三个非洲国家入境规定](/content/gnews/31/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [DC每日热点1128](/content/gnews/31/README.md)
+### [DC每日热点1128](/content/gnews/32/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【G时新闻】文贵先生警告世界—中共一定利用天花病毒对抗西方](/content/gnews/32/README.md)
+### [【G时新闻】文贵先生警告世界—中共一定利用天花病毒对抗西方](/content/gnews/33/README.md)
  ` G-时新闻`
 
-### [【G时新闻】中国的孩子何时才能不吃垃圾腐烂食品](/content/gnews/33/README.md)
+### [【G时新闻】中国的孩子何时才能不吃垃圾腐烂食品](/content/gnews/34/README.md)
  ` G-时新闻`
 
-### [中共政经形势急剧恶化引发外企普遍担忧](/content/gnews/34/README.md)
+### [中共政经形势急剧恶化引发外企普遍担忧](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [212万人竞争3.12万个岗位！中共2022年国考人数再创新高](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [水上风力发电，日本也是认真的](/content/gnews/36/README.md)
+### [212万人竞争3.12万个岗位！中共2022年国考人数再创新高](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
 ### [吴尊友让所有人打疫苗而且都要打加强针就是要群体灭绝](/content/gnews/37/README.md)

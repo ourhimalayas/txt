@@ -2,22 +2,34 @@
 ---
 
 
-## 世界为何在病毒疫苗上如此步调一致
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1703469/)
+## 天价罚款后，美团发布3年来最差季报
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1703497/)
 
-文编：东京樱花团/樱花传媒
+作者：MOS – 柳是多水土透
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据外媒11月26日消息，从今年4月开始，腾讯投资的美团受到中国市场监管机构反垄断调查，并在上个月以2020年3%营收，即34亿元罚款结束。 本周五提交的季报显示，罚单带来了近三年最大单季亏损，同时美团下调2022年展望。
 
-视频:东京樱花团/中文小视频组
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide3-18.jpeg)
 
-11月26日，郭文贵先生在GTV大直播指出：
+美团业务包含餐饮评价，单车共享，现在正面对大陆经济减速带来的挑战。公司CEO王兴告诉分析师，由于中原洪灾和新冠封城对餐饮业的冲击，7-9月核心业务食品快递增速减至29.5% “我们预期今年Q4，而且可能明年前几季度都将受到负面影响”
 
-为什么全世界所有的科学家、医院，媒体在疫苗问题上如此安静，病毒溯源上如此异口同声。人类对待二次大战都没有这么一致过，当全世界90%声音统一的时候：一是真的发生灾难。二是有一个超出大家想象力量在操控，两件事没有一件是好事。只有爆料革命一家说出真相，这不仅是灭共，是灭全世界的黑暗力量。
+美团第三季度报亏100亿元人民币，作为对比，去年第三季度则有63亿利润。 美团之前因快递员待遇过低受到批评，其大多数骑手没有基本医疗和社会保障。
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1-1.png)
+参考链接：[China’s Meituan lowers outlook for its food delivery business](https://www.reuters.com/technology/chinas-food-delivery-giant-meituan-posts-third-quarter-loss-2021-11-26/)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
+总编：AN
+编辑：Lakeman(文仁)
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

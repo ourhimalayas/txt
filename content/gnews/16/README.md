@@ -2,19 +2,34 @@
 ---
 
 
-## 文贵大直播 11/28 病毒变种意在天下大乱CCP乱中取胜
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1703405/)
+## 美国提前两年交付台湾重型鱼雷吓阻中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1703423/)
 
-作者：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot.png)图片来源：GTV
-近日有关南非病毒新变种Omicron各种消息，已经造成世界的恐慌。面对现场嘉宾关于此次变种真相的疑问，爆料革命发起人郭文贵先生毫不含糊地给了公众明确的来龙去脉。
+作者：东京樱花团 — 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据台湾媒体11月27日报道，美国为强化台湾潜艇的打击战力，准备向台湾出售46枚重型鱼雷，由于当前台海局势紧张，美方将至少提前2年完成交付，并将该鱼雷型号升级为Mk-48 Mod 7。
 
-病毒是解放军的生化武器，看近期中共外交部王毅、杨洁篪的行踪，看中共军方有关飞机的轨迹，爆料革命不是推测更不是猜测，是情报。是基于郭先生对CCP的了解。此次冬季病毒，主要在打了两针疫苗者人群中相互传染。其目的在于引发相关国家内部动乱，从而意在实现夺台，通过胁迫完成冬奥会。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-22.jpeg)
 
-文贵先生从对当代人类专制独裁事实的独到研究和总结中，异常清晰、精准地分析了中共邪恶的缘由和行为轨迹。令现场学者、医生叹为观止。
+根据台湾军方称，由于目前中共威胁日增，台军方计划与美方协商，将以每年数枚重型鱼雷交货日期提前，且交货数量也增加，预计在2026年前全部完成。
 
-【参考链接】https://gtv.org/broadcast/watch/61a3828b44c1fe7a6c3aaf2a
+据悉，使用该鱼雷的潜艇由台船公司建造，原定2025年交付海军，但基于中共持续不断的武力威胁，台湾政府高层希望2024年投入使用。台军方官员指出，该潜艇交付后，配备重型鱼雷和潜射导弹，战力极为强大，对共军海面和水下威胁都将极具威吓能力。
 
+参考链接：[嚇阻共軍威脅！ 我國採購重型魚雷再升級 且提前交貨](https://news.ltn.com.tw/news/politics/breakingnews/3750383)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
+
+总编：正义的小新
+编辑：文特
+校正/发稿：谐趣园
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
