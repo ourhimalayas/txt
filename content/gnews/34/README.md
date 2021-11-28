@@ -2,32 +2,72 @@
 ---
 
 
-## 中共的武器库—类似天花的病毒
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1701178/)
+## 面对伊维菌素和羟氯喹治疗新冠肺炎的疗效,福奇和医学精英们的欺骗行为会受到质询吗？
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1701321/)
 
-撰稿：billwilliam
+![](https://assets.gnews.org/wp-content/uploads/2021/11/其.png)图片来源：人类自由网
+**翻译：不要代表我 Kari
+编辑、校对：Candy**
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-26-at-10.03.16-AM-1.jpeg)
-郭文贵先生2021年11月26日大直播爆料称，中国共产党储存有天花病毒，并且企图释放这种生物武器来征服西方基督教世界或者杀死政治对手。
+有**365项研究证明了伊维菌素（Ivermectin）和羟氯喹（HCQ）在治疗新冠肺炎方面的疗效——有人会反对福奇（Fauci）和医学精英们的欺骗行为吗？**
 
-中共很早就有计划用天花这样的生物武器消灭西方基督教世界。2020年，国安部的某些墙上挂着地图标记美国所有的水源，这样中共在任何时候都能释放化学或生物试剂污染水源。郭先生回忆，一位中共的智囊耿惠昌曾将基督教定为共产党的首要敌人。在耿的眼中，基督教是西方持久统治世界的工具。所以中共打算用天花这样的生物武器屠杀基督徒。
+目前已有67项伊维菌素治疗新冠肺炎的对照研究显示：67%新冠肺炎患者病情有所改善。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-842.png)
+已经有298项对羟氯喹治疗新冠的研究显示，64% 的新冠肺炎患者的病情有改善。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-843.png)
+尽管有科学依据，福奇博士和医学精英们还是阻止了新冠肺炎病毒患者使用这些有效的疗法。
 
-郭先生爆料说，中国的常州和杭州已经出现有类似天花症状的病人。这两个城市某些医院的医生被带走隔离。甚至上海的某些医院也被关闭。郭先生猜测中共的政治内斗导致病毒爆发。被抓的孙立军和孟建柱不会感到内疚，即便是他们投放生物武器报复政治对手习近平。根据郭先生的爆料，中共国许多县级的实验室储存或研究天花疫苗病毒，如果有人出于邪恶目的把这些病毒投放出来，可能会导致大规模感染。
-![](https://lh6.googleusercontent.com/zmBdJ0yc7bIUEC07ta_7hRk9QSFGuHd4P33uKtTuzNQRA0B_mj5b4I4KqQjzwgZ2I13DO1DuN--ut-U3yq4F2Fr36BlsEd2ASb1dbm_AGvVjwQZDj-M1alZbwPL7hiqpcBbiiJ6ZlHIFSyKtDF4)
-一篇中共科学家发表的论文显示，武汉病毒所确实在研究类似天花的病毒。2020年，这些科学家从小鼠脑中分离出一种新型的鼠痘病毒，这种病毒类似天花病毒。痘病毒科病毒（包括天花，鼠痘，猴痘，牛痘）能产生A型包涵蛋白（A-type inclusion protein，或ATI），这种蛋白会把有传染性的病毒颗粒包裹在胶质的内涵体中“提供长期保护使病毒免受环境因素影响”。新型鼠痘病毒的一个显著特征是ATI蛋白链N端出现变异，蛋白链长度大幅缩短。论文作者认为，缩短的ATI蛋白链可能导致病毒“在体内更高的复制率以及在小鼠中更高的效率造成呼吸道感染”。换句话说，武汉病毒所的科学家发现，缩短或删除ATI基因可以增强类似天花的病毒通过呼吸道途径的传染率。这种新型鼠痘病毒在成年小鼠中死亡率高达70%，在乳鼠中死亡率为100%。其它烈性痘科病毒比如天花或猴痘病毒都有缩短的ATI基因，可能不会形成大块的内涵体。如果武汉实验室的科学家故意对痘科病毒进行基因改造，缩短或删除ATI基因，他们可能制造出更具感染力的病毒。
+mRNA疫苗的发明者罗伯特·马龙（Robert Malone）博士指责福奇博士和其他人撒谎，他们通过阻止羟氯喹和伊维菌素以及其他治疗新冠肺炎患者而导致超过50万美国人死亡。
 
-问题不在于中共是否敢释放类似天花的病毒，而是什么时候以及多大规模。郭先生提醒大家不要打疫苗，即使出现天花疫情。就像新冠病毒和新冠疫苗，病毒和疫苗是一对子母弹生物武器，可以造成二次伤害。疫苗就是故意设计的生物武器，对预防疾病无效，但是会造成严重副作用。不要相信致命毒针。
+马龙博士（Robert Malone）是对的。有资料证实：福奇（Fauci）博士和美国顶级医生合谋，禁止并谴责使用羟氯喹治疗COVID-19。
 
-我们有责任推翻邪恶的中共，否则未来会投放比新冠更致命的病毒。也许天花已经从潘多拉盒子里释放出来了。
+**数百万人因此而死亡。**
 
-参考资料：
+爆炸性的新闻! 自印度政府推广伊维菌素后，有2.41亿人口的印度被宣布为零病例感染。
 
-1. [郭文贵先生11月26日GTV大直播](https://gtv.org/video/id=61a0daac44c1fe7a6c39814d)
+正如thegatewaypundit.com （TGP）早些时候所报道的：不仅仅是福奇（Fauci），所有的美国顶级医学领袖都参与了羟氯喹的谎言。
 
-2. [Wang, J. and et al. “Identification, Isolation, and Characterization of an Ectromelia Virus New Strain from an Experimental Mouse.” *Virologica Sinica.* (2021) 36:155-158](https://doi.org/10.1007/s12250-020-00263-w)
+医学博士梅丽尔·纳斯（Meryl Nass）在《卫报》上爆料了这件事。据纳斯医生说，高层卫生官员都参与了反对羟氯喹的阴谋。
 
+福奇（Fauci）负责美国国家过敏和传染病研究所（NIAID），柯林斯（Collins）是美国国立卫生研究院（NIH）主任（名义上是福奇Fauci的老板），法拉尔（Farra）是维尔康基金会（Wellcome Trust）的主任。法拉尔也签署了《柳叶刀》这封信，而且他是世卫组织研发蓝图科学顾问小组的主席，该小组让他成为世卫组织团结试验的主导者。在该试验中，1000名不知情的受试者被过量服用羟氯喹，以减少该药物在新冠肺炎治疗中的使用。
 
+法拉尔（Farrar）曾在越南工作，那里有很多疟疾病患者，他还参与了那里的严重急性呼吸系统综合症SARS-1的治疗工作。此外，他还在建立英国恢复试验方面发挥了核心作用。在该试验中，有1600名受试者被过量使用羟氯喹。
+
+即使法拉尔（Farrar）从他在越南治疗的经历中不知道氯喹药物的正确剂量，但在巴西向全世界通报，他们如何在羟氯喹试验治疗新冠肺炎中错误地给患者过量服用氯喹后，他、福奇（Fauci）和柯林斯（Collins）也会了解过量使用这种药物情况。这是在2020年4月中旬，发表在《美国医学会杂志》上的一篇文章中被揭露出来的。在巴西，39%的受试者被注射了大剂量的羟氯喹后死亡，平均年龄50岁。
+
+然而，“团结和恢复”组织的羟氯喹人体试验一直持续到6月份，只是在其极端剂量暴露后才停止。
+
+由福奇（Fauci） 控制的美国国家过敏和传染病研究所（NIAID）出的新冠肺炎治疗指南，建议不要使用羟氯喹药物和伊维菌素。 福奇（Fauci）的美国国家过敏和传染病研究所（NIAID）还取消了第一次在早期疾病中使用羟氯喹治疗的大规模试验，此前预计的 2,000 名受试者中只有 20 名被招募。
+
+*这究竟意味着什么呢？*
+
+1.来自《自然》杂志论文的五位作者与NIH、NIAID和惠康信托基金的负责人，他们阴谋掩盖新冠肺炎的实验室来源。
+
+2. 有一个由彼得·达萨克（Peter Daszac)、福奇(Fauci)和其他人参与的阴谋，就是要推动自然起源理论。(见最近释放的其他电子邮件)。
+
+3. 一个达萨克（Daszac）参与的阴谋，即撰写《柳叶刀》信件并隐藏其出处，推动自然起源理论，并将任何其他想法描绘为阴谋论。柯林斯（*Collin*s）的博文也从中证明这一点。
+
+4. 法拉尔（Farrar）密切参与了两次大型的过量使用羟氯喹试验，其中共有约500名受试者死亡。
+
+5. 法拉尔（Farrar）、福奇（Fauci）和柯林斯（Collins）扣留了研究资金，而这些资金本可以支持使用羟氯喹药物、伊维菌素以及其他重新利用的药物的高质量试验，这些药物可能会扭转传染病大流行的局面。
+
+6. 这里提到的四个人——福奇（Fauci）、达萨克（Daszak）、柯林斯（Collins）和法拉尔（Farrar）——是否密切参与了创造此次大流行病，以及大大流行病期间使用的延误和不适当的治疗？
+
+更多新闻请在以下网址阅读：[https://childrenshealthdefense.org/defender/fauci-emails-top-public-health-officials-lies-covid-origin-treatments/?itm\_term=home](https://childrenshealthdefense.org/defender/fauci-emails-top-public-health-officials-lies-covid-origin-treatments/?itm_term=home)
+
+那么，面对数百万人的死亡，福奇（Fauci）博士的连篇谎言何时会面临质询？
+
+*参考链接:*
+[*TheGatewayPundit.com*](https://www.thegatewaypundit.com/2021/11/now-365-studies-prove-efficacy-ivermectin-hcq-treating-covid-19-will-anyone-confront-fauci-medical-elites-deception/)
+原文链接：[https://humansarefree.com/2021/11/365-studies-prove-the-efficacy-of-ivermectin-and-hcq-in-treating-covid-19.html](https://humansarefree.com/2021/11/365-studies-prove-the-efficacy-of-ivermectin-and-hcq-in-treating-covid-19.html)
+
+***发布：Candy***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

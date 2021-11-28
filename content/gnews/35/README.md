@@ -2,65 +2,107 @@
 ---
 
 
-## Omicron变体刚被发现 药企宣称已有对应疫苗（2/2）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1701136/)
+## 班农先生熬尽心思帮助中国人成立法治基金、法治社会
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1701269/)
 
-编译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-2-16.jpg)图片来源： beckernews.com
-《华尔街日报》早前报道称，科研人员认为 SARS-CoV-2 病毒中的 RNA 序列几乎可以肯定是非自然起源的。
+[https://gtv.org/video/id=61a241343ff6481adce5291e](https://gtv.org/video/id=61a241343ff6481adce5291e)
 
-“CGG-CGG 组合从未被自然发现过。这意味着，病毒获得新技能的常见方法，称为重组，不能在自然进化中运作，”科学家在《华尔街日报》中写道。
+**郭文贵**
+**Miles Guo**
 
-**他们补充说：“如果该序列不存在于任何其他病毒中，则该病毒根本无法从另一种病毒中提取该序列。”**
+班农先生给我留下最深的印象，班农先生对中国人的了解
+I was most impressed by Mr. Bannon’s knowledge of the Chinese people
 
-一位一直在研究 Omicron 变体的科学家将其描述为“可怕的”。 它还具有在其他 Covid 变体中未曾见过的不寻常特性。
+就是你没有听到一个外国人对中国的了解
+You haven’t heard any one foreigner’s understanding of China
 
-英国帝国理工学院传染病系病毒学家汤姆·皮考克( Tom Peacock) 介绍了 Omicron 变体的最新科学研究状态。
+我给你们讲过，我在班农先生之前，
+I told you that, before I met Mr. Bannon
 
-“刚刚发现：与南部非洲相关的非常小的变异簇，具有非常长的分支长度，和非常糟糕的**刺突变谱**，包括 RBD – K417N、N440K、G446S、S477N、T478K、E484A、Q493K、G496S、Q498R、N501Y、Y505H（[github .com/cov-lineages/p…](https://github.com/cov-lineages/pango-designation/issues/343) )
+我见了CIA的什么领导啊，FBI的领导啊, 什么国会的，
+I met CIA’s officials, FBI’s officials, and some officials in Congress
 
-**完整的刺突轮廓**：A67V、Δ69-70、T95I、G142D/Δ143-145、Δ211/L212I、ins214EPE、G339D、S371L、S373P、S375F、K417N、N440K、G47S、G47S、G47S、Q47S、Q47S、Q47S、 N501Y、Y505H、T547K、D614G、H655Y、N679K、P681H、N764K、D796Y、N856K、Q954H、N969K、L981F。”
+我见了多了去了，没有一个人能说
+I met a lot of America’s officials, but none of them can say clearly
 
-“对于那些感兴趣的人来说，这在 NTD 插入热点（aa214）有一个 NTD 插入，这表明，**很有可能是宿主衍生的**（来自宿主 TMEM245 mRNA），”他继续说道。
+他们都以为中国所有人都是共产党员, 也不知道中国的历史
+They all think that everyone in China is a Communist Party member, and they don’t know the history of China.
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-841.png)图片来源： beckernews.com
+班农先生讲，明朝、唐朝、汉朝，我说这哥们行啊
+Mr. Bannon talked about Ming Dynasty, Tang Dynasty, Han Dynasty, I said this guy is awesome
 
-“值得强调的是，目前，在非洲一个采样率相当高的地区，这一数字非常低，但是由于可怕的刺突分布，应该对其进行监测（可以猜测，这在抗原性上，比几乎任何东西都要糟糕），”他补充道。
+俺俩，这个越聊越多，而且班农先生最多关注就是老百姓
+We talked more and more, and Mr. Bannon was most concerned of the Laobaixing
 
-“最后的观察结果——该变体包含的不是一个，而是两个**弗林蛋白酶**裂解位点突变——P681H（见于 Alpha、Mu、一些 Gamma、B.1.1.318）与 N679K（见于 C.1.2 等）——这是我第一次在一个变体中看到其中两个突变，”他指出。
+他说中国老百姓太苦了，他真的觉得中国老百姓是非常棒的
+He said that the Chinese Laobaixing are too miserable, and he really thinks that the Chinese people are very good people
 
-然后他提供了一些更新：“[T]他的血统现在已被分配为 B.1.1.529：[(github.com/cov-lineages/p…)](https://github.com/cov-lineages/pango-designation/issues/343)
+他喜欢，他讲了各种例子，看到老百姓，香港啊，上海啊，
+He likes them and he told various examples, like he saw the Laobaixing in Hong Kong, Shanghai,
 
-“来自[@Tuliodna](https://twitter.com/Tuliodna)的南非局势最新消息（绝对是更新此消息的最佳人选）—— 事实是，B.1.1.529 可能已经在南非非常普遍，”他补充道。
+他到了北京啊, 然后他见到了王岐山的感觉呀，他说中国王岐山简直就是个魔鬼
+and when he arrived in Beijing, then he met Wang Qishan, and he said that the China’s Wang Qishan is simply a devil
 
-南非流行病应对和创新中心主任图利奥·德奥利维拉（Tulio de Oliveira）告诉 BBC，该变种具有“异常的突变群”， 例如，**Delta ****变体的受体结合域有两个突变**； 他说，**这个变种有****10 ****个**。
+然后他就觉得王岐山很怕他的平民运动，再一个他就听到我讲这些东西
+Then he felt that Wang Qishan was very afraid of his populism, and then he heard me talking about these things
 
-据《自然》杂志报道，也有关于接种疫苗者再感染病例的传闻，但卫生官员表示需要进行更多调查。研究人员正试图衡量该变体在全球传播的潜力，以及它是否会被证明比 Beta 和 Delta 变体更温和。
+班农先生一个字不落，他没有任何应付,
+Mr. Bannon catches every single word that I said, he hasn’t done any perfunc-tory
 
-“一个紧迫的问题是，‘它是否会降低疫苗的有效性，因为它有很多变化？’”在牛津大学研究病毒进化的阿里斯·卡祖拉基斯（ Aris Katzourakis）说。
+我从没见过班农先生跟谁说话，去应付这个事儿，这个是让我对他绝对的尊重
+I’ve never seen it before when Mr. Bannon talk to someone very perfunctorily, this is something that gives me absolute respect for him
 
-摩尔告诉《自然》杂志，南非报告了在接种三种疫苗的人群中发生了突破性感染：强生、辉瑞-生物科技和牛津-阿斯利康。
+他是一个真正的大师，而且他真是博学
+He is a real master, and he is really knowledgeable
 
-剑桥大学临床微生物学教授拉文德拉·古普塔 (Ravindra Gupta) 表示，**这种新变种，具有大量的刺突突变，可能会影响传染性和免疫反应。**
+而且从中东、霍尔木兹海峡、高尔夫，然后整个红海到死海、俄罗斯、东欧、西欧
+And from the Middle East, the Strait of Hormuz, gulf, and then the entire Red Sea to the Dead Sea, Russia, Eastern Europe, Western Europe
 
-南非德班夸祖鲁-纳塔尔大学的传染病医生理查德·莱塞尔斯 (Richard Lessells) 在新闻发布会上说：“对这种变异，我们有很多不了解。” “**突变谱**让我们感到担忧，但现在我们需要开展工作，以了解这种变异的重要性，以及它对应对大流行的意义。”
+然后从非洲到美国的这个整个的内部战争和南北的整个战争
+Then from Africa to the civil war of the United States between North and South
 
-南非约翰内斯堡威特沃特斯兰德大学的病毒学家彭尼·摩尔（Penny Moore）告诉《自然》杂志说：“我们正在以**曲速飞行**。” 摩尔补充说，“在这个阶段，关于再感染和接种疫苗个体病例的传闻报道还为时过早”。
+然后美国从华盛顿到这的历史，
+Then the history of the United States from Washington to now
 
-辉瑞-生物科技疫苗，因其 mRNA 预防疗法的疗效减弱而受到审查，**该疗法已作为****Covid-19 ****的****“****疫苗****”****销售**。这家制药公司的Comirnaty疫苗，被FDA“完全授权”用于 Covid-19，并获得了拜登政府的完全责任保护。**所谓的****“****疫苗****”****作用消退如此之快，以至于****CDC****已经在推荐****“****加强剂****”****。**
+我们谈的就是，哗, 就过去了六七个小时啊，就是班农先生，你真的跟他的生活中了解他的时候
+We have been talking for six or seven hours，when you really got to know Mr. Bannon in his life
 
-诺瓦克斯可能很快就会成为下一家利用 Covid 牟取暴利的制药公司。如果它能够在数周内生产出疫苗，它可能会发现其产品能够**被强制用于全球数百万人**——没有人知道副作用，甚至没有人知道人们是否会在接下来的六个月内需要更多的加强剂。
+他完全和你在屏幕上时不一样的，这是我们第一次见面
+He is completely different from when you see him on the screen, this is the first time we met
 
-**评论：人们将要成为另一个大药企的白老鼠！**
+很多很多事情发生，他完全同意美国的所有的问题
+Many, many things happen, and he totally agrees of all the problems in the United States
 
-新闻来源 **：**[beckernews.com] [As Omicron Variant Throws World Into Chaos, One Pharmaceutical Company Says It Already Has a ‘Vaccine’ in Testing for It](https://beckernews.com/as-omicron-variant-throws-world-into-chaos-one-pharmaceutical-company-suddenly-says-it-already-has-a-vaccine-in-testing-for-it-43215/)
+很多都是共产党造成的，而且在非常的危险之中
+And many of them are caused by the Communist Party, and they are in great danger
 
-* * *
+这是很重要的，小新，你翻译一下给班农先生
+This is very important, Xiaoxin, can you translate these to Mr. Bannon
 
-*审核：文乐
-校对: 阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+我说的观点也让西方观众听一听
+Let the western audiences hear my point of view
+
+**原视频链接:**[https://gettr.com/post/phnq2r1bcb](https://gettr.com/post/phnq2r1bcb)
+
+Date:11/26/2021
+原视频标题: 班农先生熬尽心思帮助中国人成立法治基金、法治社会
+Mr. Bannon worked so hard to help the Chinese people establish the rule of law foundation and the rule of law society
+原视频日期：2021/11/20
+原视频链接https://gettr.com/post/phnq2r1bcb
+任务编号：KC289（2994）
+视频时间段 : 0:00-1:56
+
+中听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 –天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

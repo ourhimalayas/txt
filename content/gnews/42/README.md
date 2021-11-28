@@ -2,38 +2,59 @@
 ---
 
 
-## 英政府表示没有计划让部长参加北京冬奥会
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1700915/)
+## 病毒新变种Omicron引发全球关注
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1701099/)
 
-翻译：Lulumi
+**【雅典娜快讯】紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-5-10.jpg)北京2022年冬奥会照片。路透社
+翻译：小鱼儿
+编辑：守望黎明
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-124.png)图片来源： picture alliance via Getty Images
+BioNTech正在辉瑞疫苗，以确定它是否能抵御在南非的新冠状病毒Omicron变体，同时莫德纳公司也在研究针对新毒株的疫苗强化剂。
 
-英国下议院领袖雅各布·里斯-莫格(Jacob Rees-Mogg)周四证实，没有预订英国政府部长参加北京2022年冬奥会的门票。
+据报道，与辉瑞公司合作研发疫苗的生物技术公司BioNTech，正在加紧分析辉瑞疫苗，以判断它是否对已经开始蔓延的新冠Omicron变体有效。这家德国公司正在测试编号为B.1.1.259的Omicron毒株，以确定是否需要改进疫苗，因为一位发言人指出南非的这一新变体 “与以前观察到的变种有很大不同”。
 
-这一声明是在回答跨党派议会间中共国问题联盟（IPAC）联合主席、议员伊恩·邓肯·史密斯爵士(Sir Iain Duncan Smith)关于英国政府是否会宣布对北京冬奥会进行外交抵制的问题时作出的。
+BioNTech的一位女发言人告诉路透社：”我们期望在两周内得到更多的实验室测试数据。这些数据将提供更多关于Omicron是否是一个可逃逸现有疫苗的新变体。如果该变体在全球蔓延，就需要对我们的疫苗进行调整。”
 
-雅各布·里斯-莫格回答说：“……运动员去不去是由英国奥委会决定的。至于政府部长们，他们是否愿意去中华人民共和国，我可以告诉这位尊敬的先生，一张票都还没有订。”
+她补充说，他们在几个月前就制定了计划，能够在六周内调整出疫苗，并在需要时在100天内发往世界各地。
 
-IPAC在一份声明中说，这一宣布是在国际上对奥运会进行外交抵制的势头越来越强，以及据报道拜登政府将宣布美国政府官员将不会参加奥运会之后作出的。
+莫德纳公司也在一份声明中说，他们正在加班加点地针对这一新变体研制疫苗加强剂。目前已经在进行测试，以提高其现有强化剂的剂量，可防治更多毒株。
 
-此举正值全球关注中共国网球明星彭帅，自从她因指控被一名中共高官性虐待而失踪后，她只出现在一系列中共国国家媒体上演的公告中。
+莫德纳在一份声明中说：”授权生产疫苗加强剂是目前唯一可行的提高免疫力的策略。”
 
-IPAC是一个由国际上约200名立法者组成的跨党派网络，已经在10多个国家领导了议会行动，呼吁对奥运会进行外交抵制，以回应中共国政府在维吾尔地区和香港的人权侵犯行为。
+世界卫生组织已确定Omicron是一个 “令人担忧 “的变体，它有 “大量的突变”，可能更具传播性。
 
-英国的伊恩·邓肯-史密斯爵士议员说。“今天，政府部长们宣布不打算参加北京冬奥会，虽然欢迎这么做，但这还不是一个明确的公开声明。奥运会举行的同时，中共国政府在维吾尔族地区和西藏实施了大规模的人权侵犯，并几乎每天都对台湾的领空进行军事入侵。再加上他们在香港逮捕和平的民主示威者，侵犯人权的清单数不胜数。”
+早期的证据表明，与过去的其他毒株相比，新变体的感染风险有所增加。
 
-“这就是为什么英国政府现在必须更进一步，公开确认没有部长、外交官或其他英国官员将参加运动会。我们不能给中共国的专制政权提供任何合法性。”
+在卫生官员发现该变体之前，南非各省的冠状病毒病例在最近几天有所增加。
 
-**参考资料：**[business-standard][UK government says no plans for ministers to attend Beijing Winter Olympics](https://www.business-standard.com/article/sports/uk-government-says-no-plans-for-ministers-to-attend-beijing-winter-olympics-121112600053_1.html)
+第一例确诊的Omicron感染是在11月9日收集的标本中发现的。它于11月24日首次报告给世卫组织。
 
-* * *
+紧随十几个国家之后，澳大利亚也对九个非洲国家实施旅行禁令和限制，因为新的冠状病毒现在已经在欧洲和亚洲被发现。
 
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
+澳洲卫生部长格雷格·亨特说，政府将毫不犹豫地采取 “早期行动”，但这次的不同之处在于澳大利亚各地的疫苗接种率已经很高。他在11月27日下午的新闻发布会上说：”我们是世界上疫苗覆盖率最高的国家之一，我们有强大的公共卫生和社会措施，而且最重要的是，我们还有一个准备充分的医院系统。”
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+首席卫生官员保罗·凯利教授说，Omicron是被世界卫生组织宣布为 “关注 “的第13个变种。
+
+目前没有迹象表明最新的变种更加严重或影响冠状病毒疫苗的效力，值得注意是南非存在 “严重的传播”。
+
+美国、加拿大和欧洲部分地区与英国一样，在过去24-48小时内围绕从非洲部分地区返回的公民加强了边境限制，并暂时禁止外国旅客入境。
+
+比利时现在已经发现了病例，一名未接种疫苗的旅行者在星期五下午被检测为阳性，他到埃及旅行后途经土耳其回国。
+
+以色列证实记录到了一个新的病例，在一名从马拉维回来的接种过疫苗的旅客身上发现的这一变异体。该国的另外两个人也被怀疑感染了该变种，但仍在等待检测结果。
+
+参考新闻：
+
+[https://www.skynews.com.au/world-news/biontech-analysing-pfizer-vaccine-to-determine-if-it-is-effective-against-omicron-variant-spreading-in-south-africa/news-story/def93cfa7143d6d3e74af9ae6d57ed55](https://www.skynews.com.au/world-news/biontech-analysing-pfizer-vaccine-to-determine-if-it-is-effective-against-omicron-variant-spreading-in-south-africa/news-story/def93cfa7143d6d3e74af9ae6d57ed55)
+
+发布：Peter Xin
+
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

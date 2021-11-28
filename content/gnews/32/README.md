@@ -2,209 +2,26 @@
 ---
 
 
-## 社会的边际效应比疫苗本身还可怕
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1701200/)
+## 美共和党华尔兹议员表示：中共长期以来对异议者实行失踪
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1701334/)
 
-[https://gtv.org/video/id=61a238ef3ff6481adce525d2](https://gtv.org/video/id=61a238ef3ff6481adce525d2)
+编译：东京樱花团/Orange文橘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/hdu9zr4p6ui61.png)[图片来源](https://www.reddit.com/r/4832/comments/loxkkr/%E4%B8%93%E8%AE%BF%E5%85%B1%E5%92%8C%E5%85%9A%E8%81%94%E9%82%A6%E4%BC%97%E8%AE%AE%E5%91%98%E5%8D%8E%E5%B0%94%E5%85%B9%E4%B8%AD%E5%85%B1%E4%B8%8D%E5%BA%94%E4%BA%AB%E6%9C%89%E4%B8%BE%E5%8A%9E%E5%A5%A5%E8%BF%90%E7%9A%84%E6%AE%8A%E8%8D%A3%E5%92%8C%E5%88%A9%E7%9B%8A/)
+佛罗里达州众议员迈克尔-华尔兹(Michael Waltz)日前在Newsmax媒体上分享了他对中国网球明星彭帅失踪缺乏问责制，以及被指参与此事的担忧。
 
-你看
-Mira
+华尔兹说，这就好像我们网球球星塞雷娜-威廉姆斯被美国副总统性侵了一样，彭帅所描述的事情就是发生在她本身上的，在过去的三周她销声匿迹，而现在她又重新出现，这种情况令人难以置信。中国共产党长期以来一直让任何敢于批评它或持不同意见的人失踪。其中包括记者、任何对武汉提出警告的医生以及一些运动员等一系列的失踪事件，就连亿万富翁商人马云，他就是中国的杰夫-贝佐斯(亚马逊首席执行官)，当他敢于批评这个中共政权时，他就被失踪了。
 
-现在在中国大陆
-Ahora en China Continental
+中国官员拒绝对彭帅的失踪发表任何评论，在彭帅失踪后，《华尔街日报》报道说，她参加了与国际奥委会主席和其他官员的视频通话，他们说她很安全，并要求给予隐私。这一事件引发了对中国在北京举办冬奥会前的批评，因为彭女士的失踪与中共的一位前高级成员、前副总理张高丽有关。
 
-它有一样东西
-Tiene una cosa
+华尔兹还说道，他们真正需要的是抵制精神或者要有起码的企业爱国主义。许多奥运赞助商，如可口可乐、耐克和宝洁，他们要抵制佐治亚州的投票改革以及美国职业棒球大联盟改革，但是对中国的严重侵犯人权行为、军事集结以及狐假虎威的姿态却视而不见，认为这些他们都可以接受。
 
-它是盖不住
-Que no puede ser cubierta
+华尔兹议员对中共的所作所为非常了解，中共对待中国维吾尔少数民族的人口问题以及少数民族被奴役、被强迫劳动及被关押在集中营等，在2021年他是第一个呼吁美国全面抵制2022年中国奥运会的国会议员。
 
-就是到处这个天然气管爆炸
-Son las explosiones de tuberías de gas natural por todas partes
+[信息源](https://www.newsmax.com/newsmax-tv/china-olympics-pengshuai/2021/11/22/id/1045764/)
 
-到处楼宇爆炸, 交通事故
-Accidentes vehiculares y explosiones de edificios
-
-现在中共国是最厉害的
-Ahora lo más poderoso del PCCh
-
-国内得病的人
-Las personas que se enfermaron
-
-儿童死亡率, 死胎率
-La tasa de mortalidad infantil, la tasa de la muerte fetal
-
-畸胎率, 心包炎, 心肌炎
-La tasa teratogénica, pericarditis, miocarditis
-
-交通事故, 医院爆满
-Accidentes de vehículos, los hospitales llenos
-
-每一个人的背后
-Detrás de cada persona
-
-他都连接着一个家庭
-Está vinculada a una familia
-
-每一个人都可能连接着一份工作
-Cada quien puede estar conectada de un trabajo
-
-这些事情持续下去就是
-Y si todas estas cosas siguen sucediendo
-
-管天然气的, 天然气爆炸
-Los que se encargan del gas natural, se explotará la tubería
-
-管拧管的, 结果管没有人拧了
-Los que se encargan de atornillar la tubería no lo hizo
-
-最惨的事情
-Y lo peor es
-
-你看到郑州街头那俩孩子
-Ves a esos dos niños en las calles de Zhengzhou
-
-他妈妈倒在街头的时候
-Cuando su mamá se cayó en la calle
-
-那俩孩子完全是不知道怎回事了
-Estos dos niños no saben totalmente lo que estaba pasando
-
-你告诉我这妈不在了
-Dime tú, si esta mamá ya no está
-
-这俩孩子是怎么成长
-Cómo crecerán estos niños
-
-中国人一个人毁掉的时候
-Cuando una persona es destruida en China
-
-这一个家庭就是撕裂
-Esta familia está rota
-
-这整个社会现象
-Y el fenómeno de toda esta sociedad
-
-就不是你今天能用语言
-Ya no puede ser descrito con palabras
-
-任何形容的了
-Ninguna descripción
-
-拖垮了2到3个家庭
-2 a 3 familias fueron derribadas
-
-然后再想想
-Y luego piensan
-
-现在贫穷的发病率少的非洲
-Ahora hasta el país pobre de África donde tiene baja la morbilidad
-
-他也打了很多针
-También se ha vacunado varias dosis
-
-包括直罗陀我那个哥们
-Incluyendo Gibraltar, mi hermano
-
-后来给我打电话
-Luego me llamó
-
-他说他小姨子的
-Diciendo que su cuñada
-
-一家人就死了四个人
-Murieron cuatro personas en la familia
-
-俩自杀, 俩个打了疫苗
-Dos se suicidaron y dos por haberse vacunado
-
-你想想, 这样的现象
-Piensa, este tipo de fenómeno
-
-那么, 在我们身边不会发生吗
-¿No sucederá en nuestro alrededor?
-
-想想加拿大, 美国, 英国
-Piensa en Canadá, EE. UU, Reino Unido
-
-大卫兄弟
-Hermano David
-
-英国的医疗是全欧洲最烂的医疗
-La atención médica británica es la peor atención médica en Europa
-
-英国最烂的就是它那个
-Lo peor del Reino Unido
-
-电厂发电站
-Es la Planta de energía
-
-所以大家一个社会的边际效应
-Entonces, el efecto marginal de todos como sociedad
-
-一个人有事儿
-Si a una persona le pasa algo
-
-一个家毁了, 几个家毁了
-Una casa o unas cuantas casas serán destruidas
-
-一个人有了病
-Una persona enferma
-
-整个社会系统都要为他服务
-Todo el sistema social debe prestarle servicio
-
-你们真的没想过
-Ustedes realmente no han pensado
-
-七哥现在就跟我的家人
-Ahora mi familia y yo
-
-我的生活, 我的朋友
-Mi vida, mis amigos
-
-我跟每个人聊
-Hablo con cada persona
-
-我没有觉得任何人
-Y no siento que alguien
-
-包括你们4个
-Incluyendo ustedes 4
-
-我也不认为
-Tampoco lo creo
-
-你严肃认真地
-Estás enfrentando estrictamente
-
-真的面对这一刻的到来
-La llegada de este momento
-
-这比疫苗的本身还可怕
-Esto es más aterrador que la vacuna en sí
-
-**原视频网址**：[https://gettr.com/post/pht37r0ebf](https://gettr.com/post/pht37r0ebf)
-
-日期：11/26/2021
-原视频标题：社会的边际效应比疫苗本身还可怕
-El efecto marginal de la sociedad es más aterrador que la vacuna en sí
-原视频日期：11/25/2021
-原视频网址：https://gettr.com/post/pht37r0ebf
-任务编号：KC287（3015）
-视频时间段：0:00-1:45
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
