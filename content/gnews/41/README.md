@@ -2,10 +2,30 @@
 ---
 
 
-## 11/26/2021 文贵直播：中共放毒是为了推疫苗；跟中共勾兑的邪恶势力要大量减少世界人口并建立地球政府来控制全球
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1700670/)
+## GTV新闻访谈简报|2021年11月27日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1700740/)
 
-秘密翻译组-北美组
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-8.png)
+
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-28.png)
+文章仅代表作者本人观点，与Gnews无关
+
+视频参看：2021.11.27早GTV新闻访谈
+
+[https://gtv.org/broadcast/watch/61a2325044c1fe7a6c3a355b](https://gtv.org/broadcast/watch/61a2325044c1fe7a6c3a355b)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-7.jpg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

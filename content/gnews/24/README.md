@@ -2,59 +2,208 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“疫苗”（十八）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1701046/)
+## 社会的边际效应比疫苗本身还可怕
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1701200/)
 
-整理：BENJ1
-编辑：守望黎明
-![](https://assets.gnews.org/wp-content/uploads/2021/11/文贵-天秤.png)图片来源：墨尔本雅典娜农场设计组
-**郭文贵****先生****2021年8月13日直播 **
+[https://gtv.org/video/id=61a238ef3ff6481adce525d2](https://gtv.org/video/id=61a238ef3ff6481adce525d2)
 
-郭文贵先生: 你看那大胡子医生，人家直接说给以色列的拉比法院听，就是宗教最高法院，就相当于中国共产党的党委和常委会。因为以色列是一个神圣的宗教国家，大拉比就相当是书记。听了大胡子讲完话，你知道以色列的哥们告诉我什么？他说以色列现在的男男女女感到从来没有过的恐惧，他们相信这是继二战希特勒大屠杀以后再没有过的恐惧。你们想想，最聪明的犹太人竟然现在对打疫苗恐惧到了如此的地步。
+你看
+Mira
 
-除了最早提共产党病毒，它的疫苗战争也是我最早说的，是你七哥第一个说疫苗战争。你去查查七哥的直播，我是人类上第一个说疫苗不能打，疫苗是假的，打疫苗比病毒还可怕的。
+现在在中国大陆
+Ahora en China Continental
 
-九指妖这半年来带给我最大的快乐是什么你知道吗？九指妖打疫苗了。你记得吧？她说我打疫苗了，疫苗管用。这是最让我快乐的事儿。但我希望在进监狱大门之前她能好好的，她别横着进去，她儿子也打疫苗了，陈其生、PJ潘也都打疫苗了，这就是上天的惩罚。你不相信是正义的力量在惩罚么？
+它有一样东西
+Tiene una cosa
 
-上海过去的某政法委书记全家人感谢七哥。我说感谢啥呀？他说，七哥，感谢你救了一命啊！ 我说你别忽悠我呀？是不是就想多买点喜币呀？他就说，七哥，我们全家都没打疫苗。然后他告诉我上海的领导们没有真打疫苗的。他说你见过上海人有打疫苗的吗？上海没有多少人打疫苗。他说你别看公布的数字，上海人想得到一个打疫苗的证书多少钱呢？——150块人民币。我给你150块钱，你拿着针往那儿一戳，喷到地上了。绿证书150块钱，他说太容易了，只有傻x才真打呢！
+它是盖不住
+Que no puede ser cubierta
 
-小福利、Seven，只有中国人、中国共产党能造假造到全世界。然后它把唯一说真话的G系列说成是骗子，如此之荒唐。中国老百姓多可怜，要不打疫苗要你的命; 要不你拿150块钱弄假证书买你的命，悲剧啊！
+就是到处这个天然气管爆炸
+Son las explosiones de tuberías de gas natural por todas partes
 
-小福利: 我们两个没有办法，现在在德国真的到处都很难。但是，战友们，我们一定要自己努力搞定，不能指望任何人。
+到处楼宇爆炸, 交通事故
+Accidentes vehiculares y explosiones de edificios
 
-郭文贵先生: 我给你保证，很快德国、欧洲会公开不让打疫苗。我给你保证。
+现在中共国是最厉害的
+Ahora lo más poderoso del PCCh
 
-小福利: 我们两口子着急死了，我们两个天天都在想能往哪躲。
+国内得病的人
+Las personas que se enfermaron
 
-郭文贵先生: 稍后我跟德国哥们还得说，我说你们要想赢得选举一定要在德国公开不让打疫苗。
+儿童死亡率, 死胎率
+La tasa de mortalidad infantil, la tasa de la muerte fetal
 
-Seven: 您说的那哥们、姐们，的确他们是在议会上公开说，但是媒体被邪恶势力控制得太厉害。
+畸胎率, 心包炎, 心肌炎
+La tasa teratogénica, pericarditis, miocarditis
 
-郭文贵先生: 我们已经安排了。他这回要赢得选举的三条政策: 灭共、不打疫苗、然后德国绝对要独立崛起，跟紧美国。一定是这样啊！就是离共随美，这是我给他定的战略。
+交通事故, 医院爆满
+Accidentes de vehículos, los hospitales llenos
 
-**郭文贵****先生****2021年8月14日盖特**
+每一个人的背后
+Detrás de cada persona
 
-国内的疫情绝不是你知道的那样，疫苗的灾难更大更大更大，务必小心啊！兄弟姐妹们。我给大家报告一下，昨天的晚上了来自国内的各种消息，特别是国家统计局，还有一个财政部，人民银行，政监委员会，还有国家安全委员会，在紧急联合召开所谓的特殊形势下的应对大会，除了防水灾和次生灾害，也防疫情。
+他都连接着一个家庭
+Está vinculada a una familia
 
-**郭文贵****先生****2021年8月18日直播**
+每一个人都可能连接着一份工作
+Cada quien puede estar conectada de un trabajo
 
-只有让美国人感受到真正的痛他才会醒，美国这个国家从来是不见血不动手的，不见血不动手。当他们看到血的时候，病毒上死了六十几万人，还有打完了疫苗现在马上这个疫苗后遗症状要大量出现，这个疫苗伤害远远要大于阿富汗战争大于台湾战争一百倍一千倍一万倍。
+这些事情持续下去就是
+Y si todas estas cosas siguen sucediendo
 
-接下来世界的经济一定会崩溃，共产党的经济一定崩溃，它哪有钱养得起塔利班这些魔鬼啊？——它养不下去。那么接下来最惨的是谁呀？——是中国人。不是你想抱飞机轱辘逃跑就有的抱，你连飞机都看不着，你将死在疫苗，你将死在病毒，你将死在你不知不觉的天空中飞来的导弹，你会和最亲最近的身边的同胞，因为抢夺粮食、因为抢夺你家的妻子女儿，被人干死。这才是真正的恐惧。你不用相信，你可以试试; 相信的是你有福报，不相信，那就算了。
+管天然气的, 天然气爆炸
+Los que se encargan del gas natural, se explotará la tubería
 
-**郭文贵****先生****2021年8月20日直播**
+管拧管的, 结果管没有人拧了
+Los que se encargan de atornillar la tubería no lo hizo
 
-我说到这儿的时候，兄弟姐妹们一定记住你们每个人的理想和梦想，可能你已经忘了，但是在你心里边儿在你的行动里边你永远不会忘的。这些东西有很多来源，你看我受影响最深的都是我13岁以前，就是做处男的时候。自从13岁玉米地里破了身以后，这种伟大的理想就没了。直到进了清丰看守所，有了灭掉共产党的理想，才捡回这些东西。在这之前，小时候的有很多梦想都睡在我骨子里边儿了。真的，破处这个事儿让我现在很纳闷，为什么以前的事儿都那么果决，自从破处以后就不务正业好几年。一直到了清丰看守所才找回了自己的人生方向。这可真是的！所以说人生13岁以前对你是最重要的，对你的孩子也同样重要。
+最惨的事情
+Y lo peor es
 
-你再看飞飞的孩子，对他这一辈子跟妈妈的感情、跟这个家的感情影响，不会再有这次病毒的影响大了。飞飞的孩子跟飞飞的感情，会超过正常母子感情的多少倍。除了母亲养育之恩，又给了救命之恩，这个事儿大了去了！我们的Angela她一生对家人的感情，一定在她老公和孩子。一定是她小儿子打了疫苗后以为自己没事了，到处去瞎逛结果被传染了，于是成了最大的携毒传染者，把全家都传染了。这孩子对妈妈的感情和家庭最深的认识一定来自这次病毒。
+你看到郑州街头那俩孩子
+Ves a esos dos niños en las calles de Zhengzhou
 
-发布：Peter Xin
+他妈妈倒在街头的时候
+Cuando su mamá se cayó en la calle
 
-**更多****资讯****，****请关****注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+那俩孩子完全是不知道怎回事了
+Estos dos niños no saben totalmente lo que estaba pasando
+
+你告诉我这妈不在了
+Dime tú, si esta mamá ya no está
+
+这俩孩子是怎么成长
+Cómo crecerán estos niños
+
+中国人一个人毁掉的时候
+Cuando una persona es destruida en China
+
+这一个家庭就是撕裂
+Esta familia está rota
+
+这整个社会现象
+Y el fenómeno de toda esta sociedad
+
+就不是你今天能用语言
+Ya no puede ser descrito con palabras
+
+任何形容的了
+Ninguna descripción
+
+拖垮了2到3个家庭
+2 a 3 familias fueron derribadas
+
+然后再想想
+Y luego piensan
+
+现在贫穷的发病率少的非洲
+Ahora hasta el país pobre de África donde tiene baja la morbilidad
+
+他也打了很多针
+También se ha vacunado varias dosis
+
+包括直罗陀我那个哥们
+Incluyendo Gibraltar, mi hermano
+
+后来给我打电话
+Luego me llamó
+
+他说他小姨子的
+Diciendo que su cuñada
+
+一家人就死了四个人
+Murieron cuatro personas en la familia
+
+俩自杀, 俩个打了疫苗
+Dos se suicidaron y dos por haberse vacunado
+
+你想想, 这样的现象
+Piensa, este tipo de fenómeno
+
+那么, 在我们身边不会发生吗
+¿No sucederá en nuestro alrededor?
+
+想想加拿大, 美国, 英国
+Piensa en Canadá, EE. UU, Reino Unido
+
+大卫兄弟
+Hermano David
+
+英国的医疗是全欧洲最烂的医疗
+La atención médica británica es la peor atención médica en Europa
+
+英国最烂的就是它那个
+Lo peor del Reino Unido
+
+电厂发电站
+Es la Planta de energía
+
+所以大家一个社会的边际效应
+Entonces, el efecto marginal de todos como sociedad
+
+一个人有事儿
+Si a una persona le pasa algo
+
+一个家毁了, 几个家毁了
+Una casa o unas cuantas casas serán destruidas
+
+一个人有了病
+Una persona enferma
+
+整个社会系统都要为他服务
+Todo el sistema social debe prestarle servicio
+
+你们真的没想过
+Ustedes realmente no han pensado
+
+七哥现在就跟我的家人
+Ahora mi familia y yo
+
+我的生活, 我的朋友
+Mi vida, mis amigos
+
+我跟每个人聊
+Hablo con cada persona
+
+我没有觉得任何人
+Y no siento que alguien
+
+包括你们4个
+Incluyendo ustedes 4
+
+我也不认为
+Tampoco lo creo
+
+你严肃认真地
+Estás enfrentando estrictamente
+
+真的面对这一刻的到来
+La llegada de este momento
+
+这比疫苗的本身还可怕
+Esto es más aterrador que la vacuna en sí
+
+**原视频网址**：[https://gettr.com/post/pht37r0ebf](https://gettr.com/post/pht37r0ebf)
+
+日期：11/26/2021
+原视频标题：社会的边际效应比疫苗本身还可怕
+El efecto marginal de la sociedad es más aterrador que la vacuna en sí
+原视频日期：11/25/2021
+原视频网址：https://gettr.com/post/pht37r0ebf
+任务编号：KC287（3015）
+视频时间段：0:00-1:45
+
+西听校：洛杉矶盘古农场- 霙霙（文霙）
+翻译：洛杉矶盘古农场- 小文萱
+翻译终校：洛杉矶盘古农场- 霙霙（文霙）
+字幕+视频制作：洛杉矶盘古农场 – 天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

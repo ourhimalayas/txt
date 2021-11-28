@@ -2,51 +2,42 @@
 ---
 
 
-## 所有四名博茨瓦纳Nu变种病毒患者均已接种疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1700883/)
+## 纽约一家医院的急诊室因员工拒绝遵守疫苗规定而关闭
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1700947/)
 
-翻译： Jenny Ball
-![](https://assets.gnews.org/wp-content/uploads/2021/11/https___bucketeer-e05bbc84-baa3-437e-9518-adb32be77984.s3.amazonaws.com_public_images_352a2710-b65b-48ec-9473-2097d1ae84a8_800x450.jpeg)图片来源：[比尔轩尼诗](https://www.hennessysview.com/p/nu-covid-variant-found-only-in-fully)
-更新：WHO给它起了一个新名字，叫做欧米茄“Omicron”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/great-wall-china-1202382-2.jpg)杰弗里贝辛格/新闻日报通过盖蒂图片社
+声明宣布：“由于护理人员短缺，由西奈山南拿骚（Mount Sinai South Nassau）运营的长滩急诊室将于今天下午3点开始暂时关闭。”
 
-COVID 的“Omicron”变种及时到来，毁了圣诞节。（谁还没看到这一点吗？）“有着更多刺突蛋白的突变”的变体，首先在博茨瓦纳被发现，并迅速成为南非最流行的变体。 但在你屈服于“未接种疫苗的大流行”之前，请考虑一下：
+他继续说，“长滩急诊室的人员短缺和关闭是医院遵守纽约州卫生部授权的结果，要求暂停所有在临时宗教豁免下工作的员工，由于他们今天无法出示已经接种第一剂新冠疫苗或者可以提供有效医疗豁免的证明。”
 
-来自博茨瓦纳总统，首次发现该变种的地方：
+“我们很遗憾不得不采取这一措施，但我们患者的安全始终是我们的第一要务”，声明继续说道，“此次关闭不应被解释为超出实际情况的任何事情，旨在减轻现有人员配备的临时措施 是我们急诊科面临的挑战。”
 
-初步报告显示，所有四名 [患者] 之前都接种了 COVID-19 疫苗。
+有报道称，急诊室将在解决短缺问题后将重新开放，但这一事件凸显了强制接种疫苗对卫生服务方面的影响。
 
-总统在媒体发布的信内容：
+据推测，那些继续拒绝遵守命令的人员将被愿意遵守纽约州卫生部授权的新人员所取代。
 
-在博茨瓦纳检测到新的 Covid-19 变种
+纽约州卫生部于8月宣布了对卫生工作者的疫苗授权，但总体上并未授予宗教豁免权。
 
-总统 Covid-19 工作组通知公众，2021 年 11 月 21 日星期一报告，4人感染了称为 B1.1.529 的新变种，这四例是在例行旅行前测试旅行者中发现的 SARS-COV-2 检测呈阳性。按照我们的 Covid-19 应对计划的规定，变异测试是作为 SARS-COV-2 常规基因组监测的一部分进行的。
+导致最近这家急诊室关闭的原因，据儿童医院的护士和官员透露，是因为在可怕的沃科夏汽车袭击中受伤的所有孩子都被送到了这里，因为新冠病毒疫苗授权导致人员短缺，治疗受到阻碍。
 
-初步报告显示，所有 4 人都已接种了 Covid-19 疫苗。作为对该病毒进行持续调查以建立和遏制其本地传播的一部分，接触者追踪已审查了密切接触者，他们目前正在等待结果，届时将向公众通报调查结果。
+简评：病情不进行紧急处理就会造成严重后果的才是真的急诊，另外，急诊其实是危急重症科的分支。它的主要职能还是接诊危重的、急需处理的，不处理可能马上就会休克、甚至死亡的病人。像心梗，农药中毒，活动性出血，中风，脑出血等等。
 
-对该病毒的初步调查已经确定，与当地主要的 Delta 变体相比，新变体具有大量突变。 这意味着什么尚不清楚，正在调查中。新变体有可能影响疾病的严重程度，任务组如何有效地检测该病毒，以及此时潜在的疫苗功效，变体的实际影响尚未确定，非药物干预（戴口罩，社交距离，并避免不必要的旅行等）仍然有效，因此，建议公众继续遵守这些。
+长滩急诊室的人员短缺和关闭会造成多么严重的后果。政府官员并不把人命当回事，不管付出多大的代价都要强制疫苗的接种，其背后的势力可想而知。爆料革命新中国联邦是唯一一个向世界发声提供真相的团体，希望越来越多的人们了解真相，不要蒙蔽双眼。
 
-总统 Covid-19 工作组希望进一步消除一些流传的社交媒体报道，将这些病例与参与者的 HIV + 状态联系起来，其中一家报纸声称一个病例为 HIV 阳性是完全错误的 ，因为客户的 HIV 状态与此结果无关。这些媒体报道是不幸的，且存在事实上的缺陷。该变体仍在研究和调查中，因此现在下结论性地做出这些类型的断言还为时过早。
+新闻链接：
 
-在此敦促公众，采取必要的预防措施来保护自己免受 Covid-19 的侵害。
-
-谢谢。
-
-马苏普博士
-总统 Covid-19 工作组协调员
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/letter-doctor.jpeg)
-
-请收藏这个重要的故事，与那些将 Omicron 变种归咎于未接种疫苗的朋友分享。
-
-**参考资料：**[thegatewaypundit][All Four Botswana “Omicron” Variant Patients Were Fully Vaccinated](https://www.thegatewaypundit.com/2021/11/four-botswana-nu-variant-patients-fully-vaccinated/)
+[New York ER Closes As Employees Refuse To Comply With Vaccine Mandate](https://summit.news/2021/11/26/new-york-er-closes-as-employees-refuse-to-comply-with-vaccine-mandate/)
 
 * * *
 
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
