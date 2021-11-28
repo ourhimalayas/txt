@@ -2,208 +2,32 @@
 ---
 
 
-## 社会的边际效应比疫苗本身还可怕
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1701200/)
+## 自中共病毒疫情爆发以来，盖茨基金会向中共输送了超过5400万美元
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1701250/)
 
-[https://gtv.org/video/id=61a238ef3ff6481adce525d2](https://gtv.org/video/id=61a238ef3ff6481adce525d2)
+**撰稿：Grace**
 
-你看
-Mira
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-27-at-5.27.48-PM.jpeg)图片来源：TeamTuckerCarlson
+郭文贵先生在11月26日的直播中提到，有位国内的退休干部认为，这次全球人类遭遇的中共病毒大灾难，可能不仅仅是由中共阴谋策划的，其背后更可能是有世界级的黑手在推动这一切的发生。有些人可能会抨击说这是阴谋论，但是不能否定的事实却是一件一件地被披露出来。
 
-现在在中国大陆
-Ahora en China Continental
+据《国家脉搏》11月23日报道，自中共病毒爆发以来，比尔和梅林达.盖茨基金会(Bill & Melinda Gates Foundation)已向中共的 “全球健康” 项目，发送了超过5400万美元的资助，其中包括由中共控制的机构，和与武汉病毒学研究所有合作的机构。
 
-它有一样东西
-Tiene una cosa
+资助对象中包括北京师范大学、北京大学、清华大学等多个中共办学机构，以及农业部、中共国疾病预防控制中心、科技部等官方政权机构。
 
-它是盖不住
-Que no puede ser cubierta
+据报道，在2020年4月，40万美元被寄给康希诺生物制品公司，以”支持国际合作开发抗冠状病毒疫苗，增加安全和有效的疫苗供应，以实现可持续的全球分配和使用”。
 
-就是到处这个天然气管爆炸
-Son las explosiones de tuberías de gas natural por todas partes
+在2020年5月，12万美元被送到国营浙江大学，以 “让中共国在全球治理中发挥更大的作用，并为全球疫苗和免疫联盟(Global Alliance for Vaccines and Immunization)做出更多贡献”。
 
-到处楼宇爆炸, 交通事故
-Accidentes vehiculares y explosiones de edificios
+报道称，全球疫苗和免疫联盟,将自己描述为一个 “由公共和私营部门组织组成的全球卫生伙伴关系，致力于为所有人提供免疫接种服务”。
 
-现在中共国是最厉害的
-Ahora lo más poderoso del PCCh
+另外，在2020年5月，该基金会还向中共国疾病预防控制中心发送了60万美元，“以支持应急响应和评估，并使中共国为潜在的大流行病做好准备，这不仅有助于疾病控制和遏制，而且为全球健康贡献中共国的经验”。
 
-国内得病的人
-Las personas que se enfermaron
+据披露，还有几笔赠款也侧重于扩大中共在疫苗开发和分配方面的作用，包括2020年8月该基金会向清华大学赠款30万美元, “建立一个智囊团，为疫苗生态系统建设提出建议，提供监管科学研究和技术支持”。
 
-儿童死亡率, 死胎率
-La tasa de mortalidad infantil, la tasa de la muerte fetal
+报道指出，自2019年12月以来，盖茨基金会已向设在中共国的项目发送了总计93笔赠款，金额达54,573,428美元。
 
-畸胎率, 心包炎, 心肌炎
-La tasa teratogénica, pericarditis, miocarditis
-
-交通事故, 医院爆满
-Accidentes de vehículos, los hospitales llenos
-
-每一个人的背后
-Detrás de cada persona
-
-他都连接着一个家庭
-Está vinculada a una familia
-
-每一个人都可能连接着一份工作
-Cada quien puede estar conectada de un trabajo
-
-这些事情持续下去就是
-Y si todas estas cosas siguen sucediendo
-
-管天然气的, 天然气爆炸
-Los que se encargan del gas natural, se explotará la tubería
-
-管拧管的, 结果管没有人拧了
-Los que se encargan de atornillar la tubería no lo hizo
-
-最惨的事情
-Y lo peor es
-
-你看到郑州街头那俩孩子
-Ves a esos dos niños en las calles de Zhengzhou
-
-他妈妈倒在街头的时候
-Cuando su mamá se cayó en la calle
-
-那俩孩子完全是不知道怎回事了
-Estos dos niños no saben totalmente lo que estaba pasando
-
-你告诉我这妈不在了
-Dime tú, si esta mamá ya no está
-
-这俩孩子是怎么成长
-Cómo crecerán estos niños
-
-中国人一个人毁掉的时候
-Cuando una persona es destruida en China
-
-这一个家庭就是撕裂
-Esta familia está rota
-
-这整个社会现象
-Y el fenómeno de toda esta sociedad
-
-就不是你今天能用语言
-Ya no puede ser descrito con palabras
-
-任何形容的了
-Ninguna descripción
-
-拖垮了2到3个家庭
-2 a 3 familias fueron derribadas
-
-然后再想想
-Y luego piensan
-
-现在贫穷的发病率少的非洲
-Ahora hasta el país pobre de África donde tiene baja la morbilidad
-
-他也打了很多针
-También se ha vacunado varias dosis
-
-包括直罗陀我那个哥们
-Incluyendo Gibraltar, mi hermano
-
-后来给我打电话
-Luego me llamó
-
-他说他小姨子的
-Diciendo que su cuñada
-
-一家人就死了四个人
-Murieron cuatro personas en la familia
-
-俩自杀, 俩个打了疫苗
-Dos se suicidaron y dos por haberse vacunado
-
-你想想, 这样的现象
-Piensa, este tipo de fenómeno
-
-那么, 在我们身边不会发生吗
-¿No sucederá en nuestro alrededor?
-
-想想加拿大, 美国, 英国
-Piensa en Canadá, EE. UU, Reino Unido
-
-大卫兄弟
-Hermano David
-
-英国的医疗是全欧洲最烂的医疗
-La atención médica británica es la peor atención médica en Europa
-
-英国最烂的就是它那个
-Lo peor del Reino Unido
-
-电厂发电站
-Es la Planta de energía
-
-所以大家一个社会的边际效应
-Entonces, el efecto marginal de todos como sociedad
-
-一个人有事儿
-Si a una persona le pasa algo
-
-一个家毁了, 几个家毁了
-Una casa o unas cuantas casas serán destruidas
-
-一个人有了病
-Una persona enferma
-
-整个社会系统都要为他服务
-Todo el sistema social debe prestarle servicio
-
-你们真的没想过
-Ustedes realmente no han pensado
-
-七哥现在就跟我的家人
-Ahora mi familia y yo
-
-我的生活, 我的朋友
-Mi vida, mis amigos
-
-我跟每个人聊
-Hablo con cada persona
-
-我没有觉得任何人
-Y no siento que alguien
-
-包括你们4个
-Incluyendo ustedes 4
-
-我也不认为
-Tampoco lo creo
-
-你严肃认真地
-Estás enfrentando estrictamente
-
-真的面对这一刻的到来
-La llegada de este momento
-
-这比疫苗的本身还可怕
-Esto es más aterrador que la vacuna en sí
-
-**原视频网址**：[https://gettr.com/post/pht37r0ebf](https://gettr.com/post/pht37r0ebf)
-
-日期：11/26/2021
-原视频标题：社会的边际效应比疫苗本身还可怕
-El efecto marginal de la sociedad es más aterrador que la vacuna en sí
-原视频日期：11/25/2021
-原视频网址：https://gettr.com/post/pht37r0ebf
-任务编号：KC287（3015）
-视频时间段：0:00-1:45
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**新闻来源：****[Gates Foundation Sent Over $54 Million To China Since COVID, Including To Wuhan Collaborators.](https://thenationalpulse.com/exclusive/exc-gates-foundation-sent-over-54-million-to-china-since-covid-including-to-wuhan-collaborators/)**
 
  
 

@@ -2,20 +2,39 @@
 ---
 
 
-## 澳门娱乐业大亨周焯华被中共警方批准逮捕
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1701198/)
+## 9月24日采访喜马拉雅交易所首席执行官杰西·布朗-首席执行官的介绍
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1701232/)
 
-撰稿：西枫westca
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-16.jpg)图片来源：星岛日报
-据新浪11月27日消息，澳门娱乐大亨周焯华因涉嫌开设赌场罪被温州市人民检察院批准逮捕。澳门政府表示已于27日晨将周焯华带回警局调查。
 
-周焯华在2007年创立太阳城集团，投资娱乐博彩、影视、餐饮、旅游、房地产、金融服务等行业。持有多家上市公司股份，其名下的网络赌博平台每年盈利逾百亿，近年来被称为“小赌王”。他还曾任中共广东省政协委员。中共警方称，周焯华在大陆涉嫌成立跨境赌博犯罪集团、非法组织中国公民赴其承包赌厅赌博，为赌客用资产换取赌资，协助客户进行跨境资金兑付，发展中国境内赌客会员逾8万人，涉案金额巨大，严重妨害了国家社会管理秩序。
 
-在周焯华被捕前两个月，他已出售了所有太阳国际的股份，套现七千万。在中共国高层内斗日益加剧的形势下，周焯华的被捕是代表何方势力的抬头？他出售股份的套现是否能属于他自己所有？这是不是又一“共同富裕”的案例？
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEW-GTV-MOS-LOGO-2-768x103-1.jpg)
 
-**新闻来源：**[澳门特区政府：周焯华被带回警局调查|澳门|澳门特区|跨境赌博\_新浪新闻 (sina.com.cn)](https://news.sina.com.cn/c/2021-11-27/doc-ikyakumx0594478.shtml)
+
+
+椰子: 在我们采访之前我先简单介绍一下杰西布朗先生。杰西真的有一个精彩的背景，令人惊叹的简历。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture1-37.jpg)
+杰西是一位非常有成就的金融科技领导者和高管，并在加密领域具有丰富的创新经验。他有多年的技术经验，是几个区块链项目的领导者，特别是他在初创公司工作，并获奖华尔街区块链项目。他所领导的一个项目被《福布斯》评为2020年区块链50强。
+
+杰西: 你好,谢谢你们邀请我。我很开心谈一谈喜马拉雅交易所，我们的金融产品以及我们现在所作的一切。
+
+参考来源：
+1. [https://gtv.org/video/id=614dd0ef42a8af3151a47b8e](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+2. [Interview with Himalaya Exchange CEO Jesse Brown- English Transcript of First Episode, September 24th](https://gnews.org/1593083/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+校对：文唐
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

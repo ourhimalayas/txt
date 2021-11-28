@@ -2,208 +2,205 @@
 ---
 
 
-## 疫苗次生危机还没到来
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1701227/)
+## 从“日不落帝国”看今天“中国梦“的结局
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1701268/)
 
-[https://gtv.org/video/id=61a23d773ff6481adce527aa](https://gtv.org/video/id=61a23d773ff6481adce527aa)
+**他山之石可以攻玉—榜样国家系列之英国（十一）**
 
-**郭文贵**
-**Miles Guo**
+分享者：兴国
+![](https://assets.gnews.org/wp-content/uploads/2021/11/112709-1.jpg)
 
-任何人在这时候
-Anyone at this time
 
-还想说服别人来证明自己的正确
-still wants to persuade others to prove yourself correct
+为什么德国、日本能够从集权国家变成富裕文明的自由、民主、法治社会到今天？
 
-为了说服别人能证明自己积德行善
-and to prove that you are doing good deeds,
+为什么实行自由、民主、法治联邦制的阿根廷和巴西却进入所谓“中等收入陷阱”的泥潭难以自拔？
 
-你就是太无知了
-then you are too ignorant
+为什么苏共倒台后，俄罗斯却又回到强人集权社会？
 
-这真的说不清道不明的这种
-It’s really hard to tell this
+太阳底下没有“新鲜事” ，虽然历史不会“简单”重复。
 
-贪嗔痴慢疑的这个“痴”字
-word “foolishness” from the five minds of greed, hatred, foolishness, arrogance, and suspicion
+因为时代在变迁，人性却没变，所以这些问题，历史可以给我们提供答案。
 
-在每个人身上体现得淋漓尽致
-It is vividly reflected in everyone
+人类社会通过无数血与火的实践证明：“自由民主法治联邦社会”和“自由资本主义制度”虽不完美，却仍是至今为止，世界上最能保护大多数人的自由和利益，纠错能力最强的政治、经济制度，是最先进的文明。但它们不会从天而落，也不会在没有一定社会基础，尤其没有“制度精神”的条件下，依靠抄袭模仿可以真正实现的。
 
-这个执着心已经把很多人完全给迷了双眼
-This attached mindset has completed blinded many people
+英国、德国、美国因为各种机缘，成为现代自由民主法治联邦国家的三个标杆，它们都具有“制度精神”这个基本条件，又各有特色地代表了三种社会精神：制度精神、科学精神、自由包容创新精神。
 
-没了智慧
-and lost their wisdom
+我们普通人通过学习和拥有这些基本特质，不仅可以更好地成为压倒中共的稻草，还可以成为实现自由、民主、法治的“新中国联邦”的星星之火，紧紧抓住郭先生为我们创造的风云际遇的历史机会，在中华大地上，以星火燎原之势践行着真正的自由、民主、法治观念。
 
-在这个问题疫苗灾难问题面前
-When we facing this problem of vaccine disaster,
+取法其上，得乎其中；取法其中，得乎其下。希望我们能一起学习榜样，使命必达。
 
-刚才谈的喜币
-the HCoin that we just talked about
+建设新中国联邦的路上需要您我的基本共识。
 
-什么币安都是鸟事了
-and whatever the Binance is nothing
+———————————————————————————-
 
-你活着这些有你的
-You will have a share when you are alive
+英国曾经被称为“日不落帝国”，它是目前为止唯一得此称号的国家。
 
-不活着啥都不是你的
-otherwise nothing would be yours
+中共的“一带一路”，与英国几百年前的海外扩张性质相似，都有开拓市场，获取更多原材料和资源，扩大控制力的目标。
 
-你没了就没了，有了就有了
-Everything will be useless if you are gone, you will have them if you are here
+以史为鉴，中共国的海外扩张之路能走多远呢？
 
-就这么简单
-It’s just that simple
+上一章我们说过，英国海外扩张远远晚于西班牙和葡萄牙等国家，但是独特的国家禀赋：底层的制度精神孕育出的大局观，通过制度打造出的商业民族和航海民族的素质等无形资产，都为英国未来的厚积薄发，后来居上打下基础。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/112708.png-1.jpg)
+我们可以从英国海外扩张的第一桶金——著名的“大三角贸易”来了解英国是如何建立起全球贸易的格局，从而，进一步看清制度建设在这个过程中的作用。
 
-只有新中国联邦，全人类就咱这么牛
-In the mankind, only us, the New Federal State of China is that awesome
+“大三角贸易”是世界经济史上的一个重要概念，是指16－19世纪，欧洲商人在美洲、非洲和欧洲三个地区之间做贸易，三地连起来，正好是一个大三角。其标准的贸易路线为：
 
-从第一天到现在
-Since the first day till now,
+第一步，欧洲商人把工业品、朗姆酒、枪支从欧洲卖到非洲，再换成黑人奴隶；
 
-更重要的事情
-the more important thing is that
+第二步，把黑人奴隶从非洲运到美洲，卖掉后购买美洲的糖、烟草和白银；
 
-你永远不知道感谢新中国联邦
-you never know how to thank the New Federal State of China,
+第三步，把美洲的东西运回欧洲卖掉，再采购欧洲产品。
 
-真正的该如何感谢
-how to really thank by heart
+这样一个贸易循环圈就是“大三角贸易”。
 
-就是我们能让战友不打疫苗这件事
-Just by the fact that we can prevent our comrades from being vaccinated
+“大三角贸易”把黑奴当作交易品，也被称为“黑奴贸易”，充满大量的血腥和罪恶。这种罪恶无可辩驳，但是黑奴贸易并不是大三角贸易的主要内容。
 
-我可以说我们荣耀一万辈子都不夸张
-I can say that we are not an exaggeration of our glory
+“大三角贸易”的真正重点是通过向美洲运送黑奴，用非洲的劳动力开发美洲，然后把美洲的产品运到欧洲，实际上打造了近代史上第一个跨洋国际经济圈。其中英国扮演了绝对的主角，并挣得了第一桶金。
 
-因为让你存在
-Because it allows you to survive
+反观中共国用中国的廉价劳动力和别国的专利技术生产出廉价商品，倾销到全世界，为自己赚得经济利益并用以加强科技发展，加强对国人的控制，海外渗透和加强军事力量来削弱世界自由民主的力量。
 
-就我越看这么多人无知
-The more I see so many ignorant people
+据统计，到18世纪末，“大三角贸易”的出口已占英国总出口额的60%，利润均额超过50%，年均获利近200万英镑，这在当时不是小数字。更重要的是，“大三角贸易”不仅给英国带来金钱，即资本的原始积累，还带来了人。
 
-我越尊重新中国联邦
-the more I respect the New Federal State of China
+这里不单指非洲的黑奴，更多的是英国自己的人口。研究发现，正是“大三角贸易”的繁荣，导致英国出现了新一轮的婴儿潮。这为后来的工业革命打下了劳动力的基础。
 
-我每天看着这（新中国联邦）旗的时候
-when every day I look at this New Federal State of China flag
+对比中共国，中共国近年人口出生率持续下降。这不仅仅是经济发展后国富民穷的结果，更是中共多年罪恶的计划生育制度带来的恶果。为中国未来发展埋下更多隐患。
 
-救（了）这么多人
-We have saved many lives
+为什么全欧洲都在做的“大三角贸易”，英国能拥有压倒性的优势？史学家徐其玉老师总结的非常有说服力：英国的制度精神延伸出来的大局观是绝对优势。
 
-咱救太多人了
-We have saved so many lives
+单说大局观很抽象，徐老师以同在美洲殖民的英、法、西三国为例，给出下面的具体表现，帮助我们理解和消化。
 
-可是我希望你们真的懂得
-But I hope you really understand
+一，蔗糖贸易，英国与法国相比：
 
-兄弟姐妹们
-brothers and sisters
+1，蔗糖贸易的关键是甘蔗种植。法国人看到蔗糖好卖就在自己的殖民地遍地种甘蔗，结果交了大量学费，成功的却很少。
 
-疫苗灾难还没开始
-The vaccine disaster has not yet begun
+而英国商人先搞试点。在一个小岛试种甘蔗。5年以后，再把总结出的成功做法快速复制到其它地方。结果是爆发式发展。
 
-那比你想象的要差得多
-It is much worse than you think
+这种稳健务实，不急功近利，系统发展的眼光就是大局观。
 
-因为你在阳光下
-because you are in the daylight
+试种20年后，蔗糖成为英国进口数量和价值都最多的商品，远超法国。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/112710-2.jpg)
+2，甘蔗园的经营。甘蔗园建好后，英国甘蔗园的利润率比法国的几乎高一倍，法国甘蔗园到18世纪更是因为资金链断裂，出现大量倒闭，而英国甘蔗园安然无恙。
 
-当你在黑夜中没有电灯的时候
-When you are in the dark without electricity,
+究其原因，法国人只想种甘蔗、炼蔗糖，后期常面临蔗糖的市场销售和资金回笼等问题。而英国人从开始就把甘蔗种植、运输、资金、市场这些环节都放在一起考虑，各个环节的衔接相对顺利很多。这种统筹，还是大局观。
 
-你就知道黑暗真的来了
-then you’ll know the darkness is really coming
+3，在“大三角贸易”中，英国人的大局观还有更宏观层面的体现。
 
-不是你两天能藏点饭吃
-It’s not just two days while you still have food left
+比如，绝大多数欧洲国家，在“大三角贸易”最后一步都是从美洲到欧洲的单向贸易流。
 
-后天能藏点饭吃
-or three days that you still can eat what you have saved
+而英国不仅把把美洲看成是糖、烟草、小麦这些农产品的来源地，更让原来的贸易向美洲回流。出口美洲的产品里面，除了英国本土产品，还有印度的棉布、染料等，相当于对全球贸易资源进行了再分配。最后美洲成了英国的一个重要出口市场。
 
-是很多天的时候
-When that situation last many day,
+这种不断扩大的市场需求为英国后来的工业革命提供了必要的动力。
 
-到处像洛杉矶像旧金山拿枪抢劫LV店一样
-like Los Angeles and San Francisco people robbed an LV store with a gun
+所以英国在“大三角贸易”中胜在大局观。
 
-到处抢劫的
-There would be robbery everywhere
+反观中共国，没有制度精神，一味通过给其他不发达国家贷款，收购当地资源，利用国际规则漏洞赚便宜，这种急功近利方式使中共国积习难改，根本没有真正的“大局观”。
 
-很恐怖的
-It’s very scary
+二．英国海外殖民扩张。
 
-还有一个，你们真不知道
-Also, there is another one that you really don’t understand
+英国海外扩张的第一阶段也叫第一帝国阶段，最重要的殖民地是北美。
 
-新中国联邦让你不打疫苗意味着什么
-that what does it mean for the New Federal State of China preventing you from vaccinated
+历史书上写的弗吉尼亚，并非英国在北美的第一块殖民地，而是第一块成功的殖民地。1607年第一批到达的144个殖民者，因饥寒交迫第二年仅剩一半；两年后又来的500人也在一年后只剩60人；直到第三批人，通过加运粮食，才算站稳脚跟。
 
-太伟大了，太伟大了
-It’s so extraordinary
+如此代价，英国政府却分文未投，只发了一张纸，叫作“特许状”。当时，伦敦的21名商人从国王那里领了特许状，集资成立了弗吉尼亚公司，自行运人、运粮、开发北美。
 
-不但让你不打疫苗，还救这么多人
-because not only prevents you from getting vaccinated, but also saves so many people
+所谓特许状就是殖民经营许可证，英国国王或者政府鼓励海外殖民，但不出人，也不出钱，只给一些商人和探险家发一张“皇家特许状”，授权他们成立私人殖民公司，到海外去开拓。如果能生存下来，就享有那块殖民地开发、经营、贸易的垄断权利。
 
-珍惜我们新中国联邦吧，兄弟姐妹们
-Brothers and sisters, let’s cherish our New Federal State of China
+试想殖民地如果经营成功，就有由国家来保证的长远利益。特许状从法律本质上是对海外殖民利益的一种产权保护制度。它鼓励了成千上万的英国人去冒险尝试。
 
-你喝什么以后
-What would you drink in that situation?
+据统计，弗吉尼亚殖民地初建的16年中，总共去了6000人，但只有2000人，近30%的人活下来，但是，极高的死亡率依然挡不住来美洲的英国人。又过了10年，在弗吉尼亚定居的英国人已达5000人，这里面不光有另寻出路的穷人，还有不少生活相对富裕的乡绅。这就是制度的激励作用。
 
-绝对不会让你买得到水
-You are absolutely not able to buy the drinking water,
+![](https://assets.gnews.org/wp-content/uploads/2021/11/VirginiaColonyArmsRetouch.png)
 
-买到你也花不起这钱
-and it’ll be too expensive to buy if it is available
+英国在北美的13个殖民地，就这样快速发展起来。
 
-（有人说）我要烧水，你有电吗？你有气吗？
-You may say that I can boil the water, but where is the electricity or gas?
+在北美殖民的除英国外，还有法、西、葡等国，但只有实力和经验都不占优势的英国最成功，甚至是完胜他国。
 
-三天水只要你喝不好
-It only takes three days if you keep drinking non-drinkable water,
+根本原因还是制度精神。
 
-你就开始拉肚子得疟疾
-you would start to have diarrhea and malaria
+西班牙在美洲的殖民最早，占地最多。但是西班牙的殖民完全由国王和政府控制，普通人不许随便移民，去了也没有权利。在管理方面，西班牙是把大贵族派过去进行集权统治。这些大贵族，当然会不计后果地掠夺。西班牙的殖民地不管开始条件多好，后来都会贫穷。
 
-你会看到像大卫三天（就会）拉疟疾
-You would have diarrhea in three days as David had
+法国比西班牙好一点，但也是直接的集权式统治，没有殖民地产权制度。所以去美洲殖民的法国人因为没有产权保护，不愿做长期艰苦的开垦殖民，主要做收购木材和毛皮的中间商，虽然能挣到钱，却留不下人。法国的殖民人口开始是英国的三倍，但真正在殖民地扎根的人很少。
 
-像飞飞、卡丽熙，你脸都变形
-and your facial would be changed as Feifei and Kalixi had experienced
+英国除了通过特许状制度解决了殖民地的产权问题，还因为受到底层制度精神和苏格兰启蒙运动影响，形成了尊重人性、尊重自由、宽松的自治式管理。
 
-我不是跟你们开半点玩笑
-I’m not joking with you at all
+在移民上，英国政府不设限制，来去自由，其他国家的人也可以到英国殖民地来定居；
 
-你不准备好这一刻那走着看吧
-You will see when that moment comes if you are not ready
+在政治上，英国殖民地一般实行自治，可以自己建立与英国本土近似的民主管理机构；
 
-灾难在后边呢
-The disaster has yet to come
+在宗教上，非常宽容。
 
-**原视频链接:** [https://gettr.com/post/phtknu1333](https://gettr.com/post/phtknu1333)
+这样，自然条件虽然艰苦，但社会环境宽松自由，甚至比英国本国还要好。更多英国人被吸引过来，并准备长期经营，扎根于此。
 
-Date: 11/26/2021
-原视频标题: 疫苗次生危机还没到来
-The Vaccine Crisis Has Not Yet Arrived
-原视频日期：2021/11/24
-原视频链接: https://gettr.com/post/phtknu1333
-任务编号：3016
-视频时间段 : 0:00-2:06
+英国殖民者主要从事艰苦的农业、开荒、捕鱼行业，不像西班牙直接抢到黄金，也不像法国殖民者那样收购皮货挣快钱。从长远来看，恰恰是这种艰苦的、持续不断的开垦才有前途。
 
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+这种优势除了在长期发展方面有显著成效，在类似打仗这样的关键时候其作用也会显现出来。后来，英法之间的北美殖民竞争越来越激烈，最终两国开战。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+而那时双方力量对比已经非常悬殊：法国殖民地只有10多万人，英国殖民地却有200多万人。更重要的是，200多万人里，90%以上都是有土地产权的农民。这些人为了保卫自己的家园，会拼命的。
+
+开战后，英国人不但保卫了自己的土地，还不断夺走法国的殖民地，进入了第一个鼎盛期。
+
+可以说，英国在北美殖民中完胜对手的核心原因，是它的制度力量，再加上英国的长远规划、长期经营，还有持之以恒的大局观，最终碾压对手。
+
+不论历史还是今天的现实生活这种“大局观”就是相信时间可以累积的力量。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/112711.jpg)
+中共国的海外扩张，本质上是与当年西班牙和法国相似的集权式管理，加上利用大外宣与“蓝、金、黄”实行跨境执法和腐败渗透。
+
+这样一个没有自由、法治、民主，缺乏宗教包容、大局观和制度精神的中共国，不但不能给世界带来任何文明和进步，反而使中共所到之处狼藉一片。试问，如此腐朽的中共怎会不落败于追求自由、民主、法治，坚持正道主义的新中国联邦呢？
+
+*本文仅代表作者观点。*
+
+**资料来源：**
+
+1.《英国简史》徐弃郁
+
+2.《英国简史》—玛丽普拉特帕米莉
+
+3.《一本书读懂英国史》崔毅
+
+4. 《英国通史》
+
+5.  维基百科
+
+6. 郭文贵先生视频
+
+***编辑：【英国伦敦喜庄园编辑部】***
+
+***校对**：仙女儿-文善*
+
+***审核**：文明明*
+
+往期链接：
+
+[舍王权一时诱惑，取制度精神世代惠泽：他山之石可以攻玉–榜样国家英国（一）](https://gnews.org/zh-hans/1384333/)
+
+[制度精神与“大宪章”：他山之石可以攻玉–榜样国家英国（二）](https://gnews.org/zh-hans/1384333/)
+
+[制度精神与“宗教改革”：他山之石可以攻玉–榜样国家英国（三）](https://gnews.org/zh-hans/1423563/)
+
+[制度精神与“英国革命”：他山之石可以攻玉–榜样国家英国（四）](https://gnews.org/zh-hans/1441211/)
+
+[彪炳千秋的“光荣革命”：他山之石可以攻玉（五）](https://gnews.org/zh-hans/1469363/)[现代自由民主社会的开始-《权利法案》：他山之石可以攻玉–榜样国家英国（六）](https://gnews.org/zh-hans/1486282/)
+
+[为什么中央银行应该是私人银行？–他山之石可以攻玉— ——榜样国家系列之英国（七）](https://gnews.org/zh-hans/1499621/)
+
+[苏格兰启蒙运动对英国民族性格的影响：他山之石可以攻玉–榜样国家系列之英国（八）](https://gnews.org/zh-hans/?s=%E4%BB%96%E5%B1%B1%E4%B9%8B%E7%9F%B3%E5%8F%AF%E4%BB%A5%E6%94%BB%E7%8E%89)
+
+[苏格兰启蒙运动对现代世界的影响：他山之石可以攻玉— 榜样国家系列之英国（九）](https://gnews.org/zh-hans/1552779/)
+
+[日不落全球帝国的形成 他山之石可以攻玉——榜样国家系列之英国（十）](https://gnews.org/zh-hans/1622758/)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 
