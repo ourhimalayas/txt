@@ -2,40 +2,20 @@
 ---
 
 
-## 西班牙警察在马德里游行抗议“禁言法”改革
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1702547/)
+## 以色列禁止外国人乘飞机入境
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1702724/)
 
-翻译: 里奇
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-28-111641.jpg)图片来源: reuters.com
-马德里11 月 27 日（路透社）——周六，数千名西班牙警察在马德里游行，抗议拟议的安全法改革，他们说这将妨碍他们开展工作。
+翻译/简评：意大利达芬奇农场    萧亦
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11283-1.jpg)图片来自straitstimes.com
+11 月 28 日-以色列在接下来的两周内禁止乘坐国际航班的外国人入境，以防止新冠病毒Omicron 变体的传播。
 
-西班牙三个主要保守党派的政客与警察一起抗议对 2015 年《公民安全法》的拟议修改，批评人士称该法侵犯了抗议权并限制了言论自由。
+决定的其他措施是对从国外抵达的以色列公民至少隔离三天。来自红区国家的人必须在当局指定的酒店隔离，直到他们的抗新冠病毒检测结果呈阴性。Shin Bet 内部安全服务将用于定位受感染的人。
 
-该法案被反对者称为“禁言法”，该法案允许当局对传播未经授权的警察图片的媒体机构进行罚款，严格限制示威活动并对违法者处以高额罚款。
+总理纳夫塔利·贝内特 (Naftali Bennett) 担心病毒新变种传播造成的不确定性情况以及需要谨慎行事并将风险降至最低。他强调现在的首要任务是必须严格控制国家边界以保持经济运转和学校系统活跃，让学生上学。
 
-西班牙左翼政府提出了改革建议，包括不再将在示威活动中拍摄警察的照片或录音列为严重罪行。
+原文链接：[https://www.ansa.it/sito/notizie/topnews/2021/11/28/israele-vieta-ingresso-stranieri-via-aerea-per-2-settimane\_83d55dd9-a5e3-4b2f-b5db-911bd933de24.html](https://www.ansa.it/sito/notizie/topnews/2021/11/28/israele-vieta-ingresso-stranieri-via-aerea-per-2-settimane_83d55dd9-a5e3-4b2f-b5db-911bd933de24.html)
 
-若实施这些变革，在一些人被警察发射的橡皮子弹重伤之后，警察也将不得不在抗议活动中使用危害性较小的材料。
-
-在抗议活动中被捕的嫌疑人被拘留的时间将从六个小时减少到两个小时，罚款将与嫌犯的收入成正比。
-
-国民警卫队官员瓦内萨·冈萨雷斯 (Vanessa Gonzalez) 告诉路透社：“他们要么保持现行法律不变，要么让它对警察和公民更好。”
-
-极右翼 Vox 党的伊万·埃斯皮诺萨·德洛斯·蒙特罗斯说：“这项法律的（改革）遭到强烈反对。这是针对我们的警察，我们不会让它发生。”
-
-然而，极左的 Unidas Podemos 党发言人伊萨·塞拉(Isa Serra)在西班牙北部坎塔布里亚的一次集会上表示，该法律“对西班牙民主造成了很大损害”。
-
-组织者表示，有 15 万人参加了马德里示威，但政府将这一数字定为 2 万人。
-
-新闻来源: [reuters.com] [Spanish police march in Madrid to protest against ‘Gag Law’ reform](https://www.reuters.com/world/europe/spanish-police-march-madrid-protest-against-gag-law-reform-2021-11-27/)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-2.jpeg)
-
+责任编辑/发布：意大利达芬奇农场   萧亦
 
  
 

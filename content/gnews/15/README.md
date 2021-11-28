@@ -2,41 +2,36 @@
 ---
 
 
-## 纽约希望保险公司拒向未接种者提供 COVID 保险
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1702653/)
+## 全球各国将清除中共的海外组织
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1702863/)
 
-**编译：Jenny Ball**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip85.png)纽约布法罗Buffalo, NY
-纽约州布法罗《生活新闻》（[LifeSiteNews](https://www.lifesitenews.com/))——一位民主党州议员表示，他将提出一项法案，允许保险公司拒绝向未接种疫苗的客户提供与 COVID 相关的保险。
+撰稿:飞虹
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-12.png)
+11月26日郭文大直播中，郭先生爆料，中共驻美大使秦刚与13名华人会面，其背后的原因是意识到美国正在排斥中共。并指出，如今全世界正在清理孔子学院等中共的海外组织，以及与中共勾兑的海外华人组织。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-875.png)
+2017年以来，郭先生领导的爆料革命一直在揭露共产党用“蓝金黄”的方式在全世界渗透的卑劣行为。尤其是2020年以来中共对全世界发动生化战，威胁人类生存。
 
-周二，纽约州议员帕特里克·伯克（Patrick Burke）在推特上发布了他的计划，即提出一项法案，该法案将允许保险公司在涉及 COVID 相关医疗费用的承保范围时，根据其客户的疫苗接种情况来歧视他们。
+郭先生谈爆料，两年前，一个日本官员曾告诉郭先生，日本一定不会让China Town以及跟随共产党的华人组织存在。而在澳大利亚的重要官员也有类似表态。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip86.png)
+同时，郭先生爆料，在全世界各地都有爆料革命坚定的支持者。这些支持者在本国有很大的影响力。他们一直在坚定推动灭共行动，形成如今的全球灭共之势。
 
-伯克写道：“我正在提出一项法案，允许保险公司拒绝为未接种疫苗的人提供与 Covid 相关治疗的保险。”
+新闻链接：[2021年11月26日 文贵大直播](https://gtv.org/video/id=61a0daac44c1fe7a6c39814d)
 
-“他们自己按自己的方式付费，自由不是免费的。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
 
-伯克对医疗种族隔离制度的倡导，遭到社交媒体的强烈反对，因为多个用户让他想起了他之前为每个公民倡导免费医疗的推文。
+總編:文徬
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip88.png)
+编辑:木白
 
-“一个小女孩不得不卖柠檬水来支付她的脑部手术费用，这真是太悲惨了。这不是一个让人感觉良好的故事，这是一个民族耻辱的故事。每个美国人都应该有获得优质医疗保健的权利，”伯克在 3 月份回应了一个关于阿拉巴马州一名 7 岁女孩筹集资金支付医疗费用的故事时说。
+校正/发稿：浪迹天涯
 
-著名记者格伦·格林沃尔德 (Glenn Greenwald) 嘲笑伯克的近 200 万追随者，写道：“**纽约民主党州议员提出的一项法案**，授权保险公司基于进步的同情心和同理心，拒绝向人们提供保险。”
-
-**评论：共产主义中共和左派最大的共同点就是：冠冕堂皇打着正义的幌子干坏事！他们制造社会矛盾，强制人们接受试验疫苗充当白老鼠，但试验出了问题他们不负责，而是告诉你“自由不是免费的”，多么讽刺滑稽！正因为“自由不是免费的”，我们才要行动起来保护我们的健康自由，人身自由！**
-
-**新闻来源**：[lifesitenews.com][New York Democrat wants insurance companies to deny COVID coverage to the unvaccinated](https://www.lifesitenews.com/news/ny-democrat/)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-2.jpeg)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-12.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,115 +2,82 @@
 ---
 
 
-## 【玫瑰看新闻】第203期 币圈新闻
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1702736/)
+## 【玫瑰看新闻】第205期 国际热点新闻
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1702916/)
 
-2021年11月25日（新西兰时间）
+2021年11月28日（新西兰时间）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/IMG_0988.jpg)
+国际热点新闻
 
-🌟11月25日Hcoin盘中震荡
+1. [美商务部将帮助中共国军方的中共国公司列入贸易黑名单](https://www.voachinese.com/a/US-commerce-entity-list-chinese-companies-20211124/6326652.html)
 
-🌟BTC突破58000美元
+2. [欧盟将延续对中共国官员制裁 可能危及双边投资协定](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211124-%E6%AC%A7%E7%9B%9F%E5%B0%86%E5%BB%B6%E7%BB%AD%E5%AF%B9%E4%B8%AD%E5%9B%BD%E5%AE%98%E5%91%98%E5%88%B6%E8%A3%81-%E5%8F%AF%E8%83%BD%E5%8D%B1%E5%8F%8A%E5%8F%8C%E8%BE%B9%E6%8A%95%E8%B5%84%E5%8D%8F%E5%AE%9A)
 
-🌟Coinbase收购加密钱包提供商BRD的团队价格飙升500%
+3. [德国三党就组建新政府达成协议 阐明中共国及印太政策](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20211124-%E5%BE%B7%E5%9B%BD%E4%B8%89%E5%85%9A%E5%B0%B1%E7%BB%84%E5%BB%BA%E6%96%B0%E6%94%BF%E5%BA%9C%E8%BE%BE%E6%88%90%E5%8D%8F%E8%AE%AE-%E9%98%90%E6%98%8E%E4%B8%AD%E5%9B%BD%E5%8F%8A%E5%8D%B0%E5%A4%AA%E6%94%BF%E7%AD%96?ref=tw_i)
 
-🌟日本约70家企业将联合测试推出数字货币
+4.[全斗焕打完辉瑞疫苗患白血病身亡韩国展开调查](https://news.creaders.net/world/2021/11/24/2423298.html)
 
-🌟比特币挖矿电力紧缩：哈萨克斯坦寻求核解决方案
+5. [美国将在一月份要求所有过境者接种疫苗](https://www.newsmax.com/us/border-crossers-vaccination-mandate/2021/11/23/id/1045934/)
 
-🌟比特币价格的大幅波动影响加密市场
+6. [美国CDC对COVID-19的回应是危害人类的罪行](https://www.thegatewaypundit.com/2021/11/exclusive-video-dr-zelenko-gateway-pundit-cdcs-response-covid-19-crime-humanity-mass-murder-genocide/)
 
-🌟摩根士丹利增加对比特币的敞口，持有 3 亿美元的灰度股票
+7. [有自然免疫的儿童接种疫苗后，出现疫苗不良反应的风险更高](https://www.thegatewaypundit.com/2021/11/dr-robert-malone-children-covid-higher-risk-adverse-effects-vaccinate-video/)
 
-🌟中共国成都警方批捕多人：GUCS、麒麟矿机虚拟币涉案35人被采取刑事强制措施
-
-🌟小摩执行长开玩笑；摩根大通将比中共更长寿
-
-🌟印度或禁止大部分加密货币引发恐慌性抛售，比特币折价超3%
-
-🌟韩国政府拟为“虚拟货币”立法加密货币内幕交易将被定性为刑事犯罪
+8. [法官拒绝关于伊维菌素作为 COVID-19 的治疗方法的诉讼](https://www.thegatewaypundit.com/2021/11/norfolk-doctor-filed-lawsuit-hospital-ban-life-saving-ivermectin-treatment-covid-19-judge-denies-doctors-request-video/)
 
 
 
-🌟11月25日Hcoin盘中震荡
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-1-25.jpg)
-2021年11月25日截止发稿前，喜币价格为35.848美元。喜币在今日出现盘中震荡，最高38.798美元，最低成交价下探至31.046美元。截止今日发稿前盘中成交321050.179HCN，24小时内盘中下跌📉-7.03%，目前价格为35.848美元。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-10.jpg)
-[https://himalaya.exchange/User/Trading](https://himalaya.exchange/User/Trading)
+1.[美商务部将制裁中共国军方的中共国公司列入贸易黑名单](https://www.voachinese.com/a/US-commerce-entity-list-chinese-companies-20211124/6326652.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-1-26.jpg)
+美国政府11月24日把27个位于中共国和巴基斯坦等国家的公司和实体列入“实体名单”，原因是它们“从事了违背美国国家安全和外交政策利益的活动”，包括帮助中共军方的量子计算努力。另外，一家位于俄罗斯的研究机构也被列入“军事终端用户”(MEU)名单。
 
-🌟BTC突破58000美元
+自川普政府以来，实体清单和军事终端用户名单越来越多地被用于国家安全和外交政策目的。很多中共国知名企业，包括电讯巨头华为，都被列入美国商务部的实体名单或国防部的中共军事企业。
 
-11月25日，据蜜蜂查行情显示，BTC突破58000美元，现报58005.26美元，日内涨幅达到2.24%，行情波动较大，请做好风险控制。
+2.[欧盟将延续对中共国官员制裁 可能危及双边投资协定](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20211124-%E6%AC%A7%E7%9B%9F%E5%B0%86%E5%BB%B6%E7%BB%AD%E5%AF%B9%E4%B8%AD%E5%9B%BD%E5%AE%98%E5%91%98%E5%88%B6%E8%A3%81-%E5%8F%AF%E8%83%BD%E5%8D%B1%E5%8F%8A%E5%8F%8C%E8%BE%B9%E6%8A%95%E8%B5%84%E5%8D%8F%E5%AE%9A)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-2-15.jpg)
+11月24日，欧盟各国代表同意就新疆反人类罪延长了全球人权制裁对象清单，包括延续对4名中共国官员与1个中共国实体的制裁；其中包括新疆维吾尔自治区公安厅厅长陈明国，他被控“严重侵犯人权”。
 
-🌟[Coinbase收购加密钱包提供商BRD的团队，BRD价格飙升500%](https://m.huoxing24.com/newsdetail/20211125094729010419.html%20https://0xzx.com/2021112506131896127.html)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片3-7.jpg)
-数字货币加密钱包提供商BRD表示，在被美国主要加密交易所Coinbase收购后，对用户来说“不会有任何改变”。BRD的前身是Breadwallet，它的实用代币是Bread (BRD)。
+这份制裁清单于2020年12月拟定，旨在对抗全球各地的严重侵犯人权行径；制裁对象除中共国外，还包括俄罗斯、利比亚、南苏丹、朝鲜籍人士。外交官表示，更新相关资产冻结与旅行禁令一事，将在12月6日至7日经欧盟成员国部长许可后正式生效。
 
-周三，在给BRD用户的一封信中，该公司首席执行官Adam Traidman和联合创始人Aaron Voisine表示，公司的部分团队成员将转移到Coinbase，继续从事加密钱包的工作。
+3.[德国三党就组建新政府达成协议 阐明中共国及印太政策](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20211124-%E5%BE%B7%E5%9B%BD%E4%B8%89%E5%85%9A%E5%B0%B1%E7%BB%84%E5%BB%BA%E6%96%B0%E6%94%BF%E5%BA%9C%E8%BE%BE%E6%88%90%E5%8D%8F%E8%AE%AE-%E9%98%90%E6%98%8E%E4%B8%AD%E5%9B%BD%E5%8F%8A%E5%8D%B0%E5%A4%AA%E6%94%BF%E7%AD%96?ref=tw_i)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-3-16.jpg)
+德国社民党、90联盟/绿党和联邦民主党在11月24日就组建一个中左翼领导的政府达成[德国新政府的联合协议](https://www.spd.de/koalitionsvertrag2021/)（Koalitionsvertrags ），在提到中共政策时说：
 
-BRD高管表示：“BRD钱包应用程序不会发生任何变化，你的资金一如既往的安全。未来，BRD钱包的用户将有一个可选的迁移路径，通过Coinbase Wallet进行自我托管。”
+我们希望并且必须在伙伴、竞争和制度性对手的层面塑造我们与中共国的关系。在人权和适用的国际法基础上，我们尽可能地寻求与中共国合作。在与中共国日益激烈的竞争中，我们希望有公平的游戏规则。
 
-根据CoinMarketCap的数据，在Coinbase收购BRD的消息传出两小时内，该代币价格飙升超过500%，从大约0.16美元上涨到了1.01美元。
+为了能够在与中共国的制度性竞争中实现我们的价值观和利益，我们需要在欧盟的共同对中共国政策框架内，在德国制定一个全面的中共国战略。我们希望继续进行政府间的协商，并使其更加欧洲化。我们努力在中共国政策方面进行密切的跨大西洋协调，并寻求与志同道合的国家合作，以减少战略依赖性。
 
-🌟[日本约70家企业将联合测试推出数字货币](https://cn.reuters.com/article/japan-digital-currency-test-1124-wedn-idCNKBS2I9056)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-4-12.jpg)
-据日经新闻周三报导，一个由大约70家日本企业组成的财团将开始数字货币测试，其中包括三家大型银行。
+我们明确应对中共国的侵犯人权行为，特别是在新疆。香港的”一国两制”原则必须得到重新确认。
 
-该数字货币最早在2022年下半年推出。据称，这种数字货币将由银行存款支持，并使用一个共同的平台来加快公司之间的大额转账和结算，降低成本。
-这一举措可能会影响日本央行正在单独进行的央行数字货币(CBDC)测试，政策制定者曾表示，如果央行要发行CBDC，他们将与民间部门密切合作。
+4.[全斗焕打完辉瑞疫苗患白血病身亡韩国展开调查](https://news.creaders.net/world/2021/11/24/2423298.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片4-5.jpg)
+据2021年11月24日消息报道，全斗焕从接种辉瑞疫苗第二天起，连续10天没有正常进食。脸也变得非常消瘦。去医院检查，结果被确诊为白血病（科兴疫苗副作用），并住院12天，此后其于周二（23日）上午在卫生间晕倒并因未得到及时抢救而死亡。目前死因仍未公布。全斗焕曾连任韩国第11届和12届总统。1996年，全斗焕曾因涉嫌军事叛乱罪等遭起诉，一审时被判处死刑，后来减刑为无期徒刑。1997年12月，全斗焕得到候任总统金大中的特赦，并于1998年初获释。2013年7月，全斗焕又被抄家偿还赃款。
 
-🌟[比特币挖矿电力紧缩：哈萨克斯坦寻求核解决方案](https://cointelegraph.com/news/bitcoin-mining-power-crunch-kazakhstan-looks-toward-nuclear-solution)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-5-9.jpg)
-今年，大量比特币矿工从中共国涌入哈萨克斯坦，导致能源紧缩，这个中亚国家的总统提议用核能解决这个问题，但是，如果电网问题得不到解决，它可能不得不牺牲比特币矿工的巨额税收。
+5.[美国将在一月份要求所有过境者接种疫苗](https://www.newsmax.com/us/border-crossers-vaccination-mandate/2021/11/23/id/1045934/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-5-10.jpg)
+据《大全》2021年11月23日电，美国政府计划于周二（23日）宣布，乔拜登总统将要求从 1 月 22 日起，穿越美国陆地边界的必要非居民旅客，如卡车司机、政府和应急响应官员，必须全面接种疫苗；美国约有 4700 万成年人仍未接种疫苗。
 
-根据英国《[金融时报》的](https://www.ft.com/content/0dbe4f9f-a433-4288-858e-c4b852f4c340)数据，在[中国打击加密](https://cointelegraph.com/news/china-s-state-planning-agency-calls-for-public-opinion-on-bitcoin-mining-ban)货币挖矿之后，哈萨克斯坦迄今至少收到了来自中共国公司的 87,849 台比特币矿机。
+拜登政府希望大型企业要求其员工每周接种疫苗或进行测试，但较晚的截止日期已经超出了拜登政府的希望。拜登全面疫苗强制令现在因诉讼而推迟，但白宫鼓励企业不顾联邦要求执行拜登的疫苗任务，以促进疫苗接种率。
 
-哈萨克斯坦现在拥有 50 家注册的加密采矿公司和未知数量的未注册公司。
+6.[美国CDC对COVID-19的回应是危害人类的罪行](https://www.thegatewaypundit.com/2021/11/exclusive-video-dr-zelenko-gateway-pundit-cdcs-response-covid-19-crime-humanity-mass-murder-genocide/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片6-2.jpg)
+据《门户网》2021年11月23日电，大胡子医生是中共病毒临床治疗的杰出专家，并是使用羟氯喹治疗中共病毒的早期倡导者；他也开发了一种名为 Z-Stack 的免疫系统组合（锌、槲皮素、维生素 C、维生素 D），他正在向所有人提供；请单击此处订购：[https](https://zstacklife.com/gateway) : [//zstacklife.com/gateway](https://zstacklife.com/gateway)
 
-[据](https://asia.nikkei.com/Spotlight/Cryptocurrencies/Crypto-influx-from-China-pushes-Kazakhstan-toward-nuclear-power)哈萨克斯坦电网运营公司称，需求的大幅增加导致国内电力供应短缺，并导致电力服务不可靠。
+Z-Stack是上帝的礼物。而它演变的方式是，在2020年4月，我正在使用羟氯喹、锌和阿奇霉素来维持我的病人的生命。那个食尸鬼—我叫他食尸鬼Cuomo–他对纽约近2万名养老院居民的死亡负有责任–因他发布了一项行政命令，阻止药店向病人配发羟氯喹。现在，这是对我的病人和我的实践的直接攻击。我这么说的原因是，我是当时纽约州唯一一个在这种情况下使用这种药物的人……所以我被迫进行创新。我在美国国立卫生研究院的服务器上发现了一些数据和同行评议的论文，显示一种叫做槲皮素的物质与维生素C一起作为有效的锌输送系统，并发挥了作用。
 
-托卡耶夫总统在 11 月 19 日的告诉银行家，他认为建造一座核电站，将有助于缓解国家电力基础设施的压力。建造新核电站的决定对于一个遭受过严重核[辐射](https://eurasianet.org/kazakhstan-living-semipalatinsks-nuclear-fallout)的国家来说是一个严重的决定。此前，哈萨克斯坦的最后一座核电站于1999 年[关闭](https://www.trade.gov/country-commercial-guides/kazakhstan-power-generation)。目前，哈萨克斯
+7.[有自然免疫的儿童接种疫苗后，出现疫苗不良反应的风险更高](https://www.thegatewaypundit.com/2021/11/dr-robert-malone-children-covid-higher-risk-adverse-effects-vaccinate-video/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-7-5.jpg)
+据《门户网》2021年11月24日报道，在福奇博士昨晚公开[攻击彼得·纳瓦罗和塔克·卡尔森](https://www.thegatewaypundit.com/2021/11/fauci-calls-tucker-carlson-peter-navarro-says-media-figures-criticize-killing-people-video/)散布有关中共病毒的虚假信息后，彼得·纳瓦罗博士和 mRNA 疫苗的发明者罗伯特·马龙博士于周三（24日）加入了史蒂夫·班农[的作战室](https://warroom.org/)。
 
-🌟比特币价格的大幅波动影响加密市场
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-6-3.jpg)
-比特币价格的大幅波动影响了加密市场。
+罗伯特·马龙博士指责福奇博士的团队自该大流行病开始以来至少杀害了50万美国人：如果人们已经从之前的感染中获得了强大的自然免疫力，那么使用 mRNA 疫苗为他们提供这种急剧上升的蛋白质是个坏主意。它会造成损害。而这里有一件令人难过的事。很多人估计，我们的很多孩子已经有了自然感染。现在，福奇说，我们50%的孩子有症状。嗯，那是真的。他们的症状包括流鼻涕，他们的症状包括喉咙痛，这意味着，如果你继续给他们接种中共疫苗，他们发生疫苗不良事件的风险更高。
 
-在比特币上周从 68,000 美元以上的最新历史高位回落至55,000 美元区域，拖累了大多数虚拟币下跌。此前，加密货币市场已经连续六周几乎不间断地增长。
+8. [法官拒绝关于伊维菌素作为 COVID-19 的治疗方法的诉讼](https://www.thegatewaypundit.com/2021/11/norfolk-doctor-filed-lawsuit-hospital-ban-life-saving-ivermectin-treatment-covid-19-judge-denies-doctors-request-video/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-8-5.jpg)
+据《门户网》2021年11月24日消息，一名诺福克医生于11 月 9 日对 Sentara Norfolk General Hospital 提起诉讼，因为他们禁止使用伊维菌素和其他几种药物来治疗COVID-19 患者。
 
-🌟[摩根士丹利增加对比特币的敞口，持有 3 亿美元的灰度股票](https://cointelegraph.com/news/morgan-stanley-increased-exposure-to-bitcoin-held-300m-in-grayscale-shares)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-7-4.jpg)
-美国主要投资银行摩根士丹利的投资基金通过购买灰度比特币信托的股票增加了对比特币的敞口。
+“我认为这是犯罪。这是不道德的，也是非法的，”前线COVID-19 重症监护 (FLCCC) 联盟的创始成员、医院重症监护室的长期主任保罗·马里克 (Paul Marik) 说。他还担任东弗吉尼亚医学院肺病和重症监护医学部的主席。
 
-截至 9 月 30 日，该投资公司在三大基金中持有的比特币总额约为 3.03 亿美元，持有 6,626,381 股。
-
-根据美国证券交易委员会周二提交的文件，摩根士丹利洞察基金[将](https://www.sec.gov/Archives/edgar/data/0001002427/000175272421251482/NPORT_MGCD_93817907_0921.htm)其持有的灰度比特币信托 (GBTC) 持股比例从2021 年第二季度的 928,051 股增至 9 月 1 日的1,520,549 股，超过 63%。
-
-灰度比特币信托（Grayscale Bitcoin Trust）GBTC是使投资者无需直接购买就可以对比特币进行投资。据称，这样的投资渠道消除了个人对数字资产的安全存储和保管的担心，并节省了许多相关的成本。
-
-各种投资组合和基金允许摩根士丹利在不直接投资于加密货币的情况下获得比特币 ( [BTC](https://cointelegraph.com/bitcoin-price) ) 的敞口。无论是通过灰度间接投资，还是通过[支持区块链平台](https://cointelegraph.com/news/coinbase-backed-securitize-secures-48m-in-series-b-funding)，摩根士丹利似乎都在更深入地涉足加密货币领域。9 月，该公司还宣布将[设立一个以加密](https://cointelegraph.com/news/morgan-stanley-launches-cryptocurrency-research-team)货币[为重点的研究部门，](https://cointelegraph.com/news/morgan-stanley-launches-cryptocurrency-research-team)旨在探索“加密货币和其他数字资产在全球市场中日益增长的重要性”。
-
-🌟中共国成都警方批捕多人：GUCS、麒麟矿机虚拟币涉案35人被采取刑事强制措施
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-8-4.jpg)
-11月25日消息，据中共国“成都公安”11月24日通报，成都公安机关对GUCS、麒麟矿机虚拟币系列案件立案侦查，先后对35名犯罪嫌疑人采取了刑事强制措施。其中，多名所谓犯罪嫌疑人被当局检察机关以涉嫌诈骗罪、涉嫌帮助信息网络犯罪活动罪批准逮捕。中共过度监控和不断打击虚拟货币市场的行动激发了老百姓对于私人财产安全的担忧。（金融快讯）
-
-🌟[小摩执行长开玩笑；摩根大通将比中共更长寿](https://ec.ltn.com.tw/article/breakingnews/3746391)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片-9-3.jpg)
-11月23日，美国金融巨擘摩根大通（JPMorgan Chase）执行长戴蒙（Jamie Dimon）在波士顿讲话时开玩笑说，摩根大通银行将比中国共产党更长寿。
-
-《路透》报导，戴蒙重申摩根大通致力于在中国展开业务的同时说，「前几天我开了个玩笑，说共产党正在庆祝成立100周年，摩根大通也是如此。我敢打赌，我们将持续更长久。」
-
-戴蒙还补充说，「我不能在中国这么说。但不管怎么样，他们可能都在听。」戴蒙23日是在波士顿学院执行长系列访谈活动中发表上述讲话，他还对油价、供应链、原物料、通货膨胀、加密货币等议题发表看法。
-
-报导提到，摩根大通是美国最大的银行，1921年开始在中国展开业务，同年共产党在中国成立。今年稍早，摩根大通获得了中共国监管机构的批准，成为中国第一家外商独资证券商。
-
-🌟印度或禁止大部分加密货币引发恐慌性抛售，比特币折价超3%
-
-11月24日消息，近日，印度政府关于一项加密法案的讨论引发了印度用户恐慌抛售其加密资产。其他加密货币在印度正在以折扣价交易，比特币折价超过3%，其他加密货币折价超过15%，不过目标该比例正在缩小。
-
-据悉，印度政府提交谈论的这项法案试图禁止印度的所有私人加密货币，但是，允许某些例外情况来促进加密货币的基础技术及其用途，此外，私人加密货币的定义和法案的内容还尚不清楚。（Theblock）
-
-🌟韩国政府拟为“虚拟货币”立法加密货币内幕交易将被定性为刑事犯罪
-
-11月25日消息，据韩国每日经济新闻报道，韩国金融监管部门已经开始对虚拟货币进行立法，这是监管机构首次将加密货币立法正式化。未来，任何通过操纵市场价格或使用未公开信息从加密货币交易中获取不当利润的人，预计将面临至少一年的监禁和至少三倍的罚款。此外，加密货币发行方必须向用户披露白皮书、法律意见和业务报告，任何违规行为将导致刑事处罚。业内预测，如果这次《加密货币权利法案》颁布，虚拟货币将像银行、保险等其他金融行业一样被纳入正式的监管系统。
+周二（23日），法官驳回了马里克的临时禁令动议（裁定马力克没有”确定一个具体的病人”会立即受到影响，马力克的论点超越了弗吉尼亚州关于医生何时可以推翻医院的指导方针，并开出”替代治疗”的法律）：“法院认为，马里克有第三方资格代表他的病人提出知情同意的索赔，但缺乏根据弗吉尼亚州《医疗保健决定法》提出索赔的资格。法院还认为，马里克不太可能在其知情同意权的案情上获得成功。因此，法院部分批准、部分驳回Sentara的因缺乏资格而驳回的动议。”
 
 审核校对：Barry Jack
 上传排版：F

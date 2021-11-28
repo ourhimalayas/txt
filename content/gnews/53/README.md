@@ -2,38 +2,30 @@
 ---
 
 
-## 日本将在明年推出一种由银行支持的加密货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1700054/)
+## 台美为应对中共威胁接连举办两场军事会谈
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1700862/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### **撰稿：**日本东京方舟农场 Kevin wang
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/1_qmqe9fr-2rs5eotxzb5ggg.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/D9930079-9D39-4DBD-AD34-799DA4353F8E.jpeg)（图片来自网络）
 
+据《大纪元》11月27日报道，因意识到中共对区域安全的威胁，台美近日在华盛顿接连举办了两场军事会谈，以强化台湾应对中共军事威胁的能力。
 
+报道称，美台于11月16和17日在华盛顿接连举办了“台美政治军事对话”（US-Taiwan Pol-Mil Dialogue）与“国防检讨会谈”（Defense Review Talks, DRT）。台湾建立自我防卫机制，尤其是在国防上持续强化不对称战力，成为对话焦点之一。
 
-图片来源：www.finextra.com
+台湾中山大学“中国与亚太区域研究所”特聘教授林文程在接受《大纪元》专访时表示，台湾派去的都是由国安会主导的政务官；美国出席会议的官员则是主导台湾问题的国务院、国安委，国防部等官员。双方讨论项目大多针对台美安全合作、西太平洋地区安全问题以及军售议题。他指出，“谈的是大原则、大方向”，而会谈对台美彼此间的了解起到关键作用。
 
+台湾中正大学“战略暨国际事务研究所”助理教授林颖佑则分析认为，目前台美之间的互动，对台湾国防的确有明显提升效果。美国已看到了中共军力的威胁。在美中双方不断较劲之下，美国认为，台湾在国防和军力方面的提升十分有必要。
 
-#### 编译：小红帽
+*参考链接：[https://www.epochtimes.com/b5/21/11/27/n13401504.htm](https://www.epochtimes.com/b5/21/11/27/n13401504.htm)*
 
-日本即将向开发数字货币迈出重要一步。据路透社报道，一个由大约70家日本公司组成的财团于本周表示，他们计划在2022年推出一种基于日元的加密货币。该项目（暂称为 “DCJPY”）得到了日本最大的三家银行的支持。
+* * *
 
-在周三的新闻发布会上，三菱日联金融集团、瑞穗金融集团和三井住友金融集团表示，他们自去年以来一直在开会，以建立一个共享的数字支付结算基础设施。
+*素材采编：Kevin wang*
 
-该财团的其他一些成员包括东日本铁路公司和关西电力公司。他们计划在未来几个月开始测试该货币。该试验与日本银行为创建数字日元所作的工作是分开的。中央银行数字货币（CBDCs）是中国和美国也在探索的东西。
+*编辑：青衣青青*
 
-对于日本来说，还有一个额外的激励因素在推动。日本是一个以热爱现金而着称的国家。即使在最近的2018年，该国80%的零售交易都是用纸币和硬币完成的。日本政府一直试图改变这种状况，以使该国的经济对消费者更友好，更有生产力。
-
-**参考新闻：**[Japanese firms will test a bank-backed cryptocurrency in 2022 | Engadget](https://www.engadget.com/japan-dcjpy-digital-currency-test-2022-013506959.html)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*发布：miumiu*
 
  
 

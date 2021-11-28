@@ -2,45 +2,44 @@
 ---
 
 
-## 疫苗致心脏病存证据 专家出于恐惧未发表
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1702735/)
+## 美正为灭共做准备，中共对台开战之日就是中共灭亡之时
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1702915/)
 
-**编译：Jenny Ball**
+撰稿：美东香草山农场  文真
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-12.png)
+11月26日郭文大直播中，郭先生指出，四种现象透露美国正为消灭中共做准备。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-876.png)
+第一种现象是“烟雾弹”。历史上美国对伊拉克、南斯拉夫-科索沃等国开战前对他们的“承诺”，是掩盖美国真实行动的“烟雾弹”。如今，对中共也是如此。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip89.png)阿西姆·马尔霍特拉博士
+郭先生爆料，剩下三种现象是为了备战中共，美国采取的真实行动：
 
-([LifeSiteNews](https://www.lifesitenews.com/)) 一位世界知名的心脏病学专家警告说，仓促开发的 COVID-19 注射剂与心脏病之间存在联系。
+一是美国在亚太地区的军事部署步步升级，形成包围圈；
 
-他在英国电视上说，心脏病学研究人员已经找到了支持这一点的证据，但又害怕制药公司停止资助，因此不敢公布证据。
+二是美国派遣军事、情报和外交专机访台。美国共和党和民主党代表同乘国务院专机访台，不仅代表美国承认与台湾的合法外交关系，而且表明美国两党一致灭共的立场；
 
-亚历克斯·菲利普斯（Alex Phillips）在接受 GB News 的采访时，阿西姆·马尔霍特拉（Aseem Malhotra）博士引用了心脏外科医生史蒂文·冈德里 （Stephen Gundry ）最近发表的一篇文章，指出 COVID-注射“显着增加”了血管、心肌的炎症，并且“可能是心肌病和其他血管病例观察到的血栓形成增加的原因”。
+三是美国停止对中共国投资，而且还在不断从中共国撤资。
 
-冈德里的论文显示，在注射 mRNA COVID 之后，患心脏病的几率从 11% 跃升至 25%。
+郭先生补充道，这四条政策继承自里根总统在对抗前苏联时制定的政策。中共和前苏联一样狂妄，过高估计了自己与美国对抗的军事实力。
 
-“现在这项研究表明，与增加心脏病发作风险相关的标志物，甚至可能已经患有某些心脏病的人的潜在心脏病进展，已经看到（心脏病发作）的风险，五年内从 11 % 增加到 25%，”马尔霍特拉博士观察到。 “**现在这是一个巨大的增长**。”
-
-马尔霍特拉补充说，这些发现“确实非常令人担忧”，冈德里的发现，得到了英国心脏病学部门的研究人员的证实，他们太害怕发表自己的发现，害怕受到制药公司的经济处罚。
-
-“这位来自非常有声望的英国机构的人，心脏病学系研究员，如果你愿意的话，可以成为举报人，联系我说出这个部门的研究人员，**在冠状动脉内发现了与疫苗相关的类似物质，冠状动脉周围的成像研究发现了动脉炎症**。他们开了个会，这些研究人员目前决定不公布他们的研究结果，因为他们担心从制药行业失去研究资金。”
-
-这一证词得到了马尔霍特拉在“英国各地”心脏病学界同事的“轶事证据”的进一步支持，他们告诉他，“他们看到了越来越年轻的人心脏病发作”。
-
-自 2021 年 7 月以来，英国的非 COVID 死亡人数已接近 10,000 人，牛津大学纳菲尔德初级保健系循证医学教授 卡尔·海尼根(Carl Heneghan)呼吁对这些死亡的原因进行“紧急调查”。 “其中大多数或其中很大一部分，是由循环系统疾病驱动的，换句话说，心脏病发作和中风，”44 岁的马尔霍特拉证明了这一点，他拥有杰出的医学生涯。
-
-**点评：为了“研究资金”就协助制药行业杀人！要这样的研究有何意义！**
-
-**新闻来源**：[lifesitenews.com][Evidence of heart disease after COVID shot exists but isn’t published out of fear, cardiologist says](https://www.lifesitenews.com/news/evidence-of-heart-disease-after-covid-shot-exists-but-isnt-published-out-of-fear-cardiologist-says/)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-2.jpeg)
+同时，郭先生透漏，中共以对台开战威胁西方国家支持北京2022冬奥会。当北京冬奥会遭遇国际联合抵制的时候，习近平很可能会对台开战。新中国联邦承诺保护台湾，中共对台开战之日就是中共灭亡之时。
 
 
 
+新闻链接：[2021年11月26日 文贵大直播](https://gtv.org/video/id=61a0daac44c1fe7a6c39814d)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-6.jpg)
+
+总编/编辑：飞虹
+
+校正/发稿：浪迹天涯
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-12.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
