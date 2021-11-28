@@ -2,45 +2,209 @@
 ---
 
 
-## 密苏里州法官裁定去年以来实施的COVID限制为非法
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1701108/)
+## 疫苗次生危机还没到来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1701227/)
 
-编译：Jenny Ball
+[https://gtv.org/video/id=61a23d773ff6481adce527aa](https://gtv.org/video/id=61a23d773ff6481adce527aa)
 
-*“这种由行政实体立法的双重授权，是立法和行政权力所不允许的结合。”*
+**郭文贵**
+**Miles Guo**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-6-9.jpg)图片来源：lifesitenews
+任何人在这时候
+Anyone at this time
 
-密苏里州杰斐逊市《生活新闻》（LifeSiteNews）——密苏里州的一名县法官裁定，**以阻止**** COVID-19 ****在该州传播为幌子实施的地方健康限制是非法的，应该取消**。
+还想说服别人来证明自己的正确
+still wants to persuade others to prove yourself correct
 
-格林称他所在州的卫生官僚制定的措施具有“令人难以置信的力量，可以强迫……受试者屈服”，并且由于他的决定，“学校和公共集会场所不应再基于公共卫生官僚的异想天开而害怕被关闭。”
+为了说服别人能证明自己积德行善
+and to prove that you are doing good deeds,
 
-他于 11 月 22 日裁定，**隔离、关闭企业和其他此类命令，违反了密苏里州宪法**，该宪法包含关于州政府行政、司法和立法部门三权分立的条款。
+你就是太无知了
+then you are too ignorant
 
-密苏里宪法概述了政府不同部门的运作方式。它写道：“政府的权力应分为三个不同的部门——**立法、行政和司法**——每个部门都应授权给一个单独的地方官员，任何人或一群人都不能行使三个部门所属的权力。属于部门应适当行使属于其部门的权力，但本章程明确指示或允许的情况除外。”
+这真的说不清道不明的这种
+It’s really hard to tell this
 
-在裁决的开篇中，法官写道：“本案是关于密苏里州卫生和老年服务部的规定，是否可以在制定公共卫生法时废除代议制政府，以及是否可以未经选举的官员不受约束，授权关闭学校或集会。本法院认为不能。”
+贪嗔痴慢疑的这个“痴”字
+word “foolishness” from the five minds of greed, hatred, foolishness, arrogance, and suspicion
 
-此外，**法官严厉谴责了“将制定规则的权力下放给行政机构**”。“这种由行政实体立法的双重授权，是立法和行政权力所不允许的结合，”他写道。
+在每个人身上体现得淋漓尽致
+It is vividly reflected in everyone
 
-该裁决是对 2020 年提起的名为香农·罗宾逊（ Shannon Robinson ）等人对密苏里州卫生和高级服务部的诉讼的回应，诉讼其在封锁最严重的时候，在圣路易斯市和县以及其他司法管辖区，发布现已被视为非法和违宪的授权。
+这个执着心已经把很多人完全给迷了双眼
+This attached mindset has completed blinded many people
 
-格林法官辩称，封锁要求“是卫生治理系统，使未经选举产生的官员可以不对任何人负责。”
+没了智慧
+and lost their wisdom
 
-他的法律意见是，“密苏里州各地的卫生机构负责人，利用授予他们的权力……行使不受限制和不受约束的个人权力来进行立法。”
+在这个问题疫苗灾难问题面前
+When we facing this problem of vaccine disaster,
 
-他说，“宪法禁止”地方卫生官僚发布任务，“在全州已经发生了 18 个月以上”。
+刚才谈的喜币
+the HCoin that we just talked about
 
-**点评：这就是宪法保护公民的威力！敬佩正直的法官作出正确的裁判！**
+什么币安都是鸟事了
+and whatever the Binance is nothing
 
-**参考资料：**[lifesitenews][Missouri judge rules that COVID restrictions imposed since last year are illegal](https://www.lifesitenews.com/news/missouri-county-judge-rules-that-covid-restrictions-imposed-since-last-year-are-illegal/)
+你活着这些有你的
+You will have a share when you are alive
 
-* * *
+不活着啥都不是你的
+otherwise nothing would be yours
 
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+你没了就没了，有了就有了
+Everything will be useless if you are gone, you will have them if you are here
+
+就这么简单
+It’s just that simple
+
+只有新中国联邦，全人类就咱这么牛
+In the mankind, only us, the New Federal State of China is that awesome
+
+从第一天到现在
+Since the first day till now,
+
+更重要的事情
+the more important thing is that
+
+你永远不知道感谢新中国联邦
+you never know how to thank the New Federal State of China,
+
+真正的该如何感谢
+how to really thank by heart
+
+就是我们能让战友不打疫苗这件事
+Just by the fact that we can prevent our comrades from being vaccinated
+
+我可以说我们荣耀一万辈子都不夸张
+I can say that we are not an exaggeration of our glory
+
+因为让你存在
+Because it allows you to survive
+
+就我越看这么多人无知
+The more I see so many ignorant people
+
+我越尊重新中国联邦
+the more I respect the New Federal State of China
+
+我每天看着这（新中国联邦）旗的时候
+when every day I look at this New Federal State of China flag
+
+救（了）这么多人
+We have saved many lives
+
+咱救太多人了
+We have saved so many lives
+
+可是我希望你们真的懂得
+But I hope you really understand
+
+兄弟姐妹们
+brothers and sisters
+
+疫苗灾难还没开始
+The vaccine disaster has not yet begun
+
+那比你想象的要差得多
+It is much worse than you think
+
+因为你在阳光下
+because you are in the daylight
+
+当你在黑夜中没有电灯的时候
+When you are in the dark without electricity,
+
+你就知道黑暗真的来了
+then you’ll know the darkness is really coming
+
+不是你两天能藏点饭吃
+It’s not just two days while you still have food left
+
+后天能藏点饭吃
+or three days that you still can eat what you have saved
+
+是很多天的时候
+When that situation last many day,
+
+到处像洛杉矶像旧金山拿枪抢劫LV店一样
+like Los Angeles and San Francisco people robbed an LV store with a gun
+
+到处抢劫的
+There would be robbery everywhere
+
+很恐怖的
+It’s very scary
+
+还有一个，你们真不知道
+Also, there is another one that you really don’t understand
+
+新中国联邦让你不打疫苗意味着什么
+that what does it mean for the New Federal State of China preventing you from vaccinated
+
+太伟大了，太伟大了
+It’s so extraordinary
+
+不但让你不打疫苗，还救这么多人
+because not only prevents you from getting vaccinated, but also saves so many people
+
+珍惜我们新中国联邦吧，兄弟姐妹们
+Brothers and sisters, let’s cherish our New Federal State of China
+
+你喝什么以后
+What would you drink in that situation?
+
+绝对不会让你买得到水
+You are absolutely not able to buy the drinking water,
+
+买到你也花不起这钱
+and it’ll be too expensive to buy if it is available
+
+（有人说）我要烧水，你有电吗？你有气吗？
+You may say that I can boil the water, but where is the electricity or gas?
+
+三天水只要你喝不好
+It only takes three days if you keep drinking non-drinkable water,
+
+你就开始拉肚子得疟疾
+you would start to have diarrhea and malaria
+
+你会看到像大卫三天（就会）拉疟疾
+You would have diarrhea in three days as David had
+
+像飞飞、卡丽熙，你脸都变形
+and your facial would be changed as Feifei and Kalixi had experienced
+
+我不是跟你们开半点玩笑
+I’m not joking with you at all
+
+你不准备好这一刻那走着看吧
+You will see when that moment comes if you are not ready
+
+灾难在后边呢
+The disaster has yet to come
+
+**原视频链接:** [https://gettr.com/post/phtknu1333](https://gettr.com/post/phtknu1333)
+
+Date: 11/26/2021
+原视频标题: 疫苗次生危机还没到来
+The Vaccine Crisis Has Not Yet Arrived
+原视频日期：2021/11/24
+原视频链接: https://gettr.com/post/phtknu1333
+任务编号：3016
+视频时间段 : 0:00-2:06
+
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

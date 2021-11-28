@@ -2,209 +2,68 @@
 ---
 
 
-## 疫苗次生危机还没到来
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1701227/)
+## 中共竭力炫耀优于美国的政治制度：2022年中国共产党代表大会将与美国的中期选举形成对比
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1701322/)
 
-[https://gtv.org/video/id=61a23d773ff6481adce527aa](https://gtv.org/video/id=61a23d773ff6481adce527aa)
+编译：东京樱花团/Hopkins
 
-**郭文贵**
-**Miles Guo**
 
-任何人在这时候
-Anyone at this time
+```
+【编者按】临近年末，《经济学家》周刊发表了“未来世界 2022”（The World Ahead 2022）系列专栏文章，本文是系列文章之一。
+```
 
-还想说服别人来证明自己的正确
-still wants to persuade others to prove yourself correct
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-187.jpg)
 
-为了说服别人能证明自己积德行善
-and to prove that you are doing good deeds,
+```
+如果计划一切顺利，中国共产党将在2022 年实施一项羞辱美国的对比研究。中共领导人自己本身非常厌恶自由选举，但他们可以在媒体上嘲弄美国的民意调查。最近他们看到新闻头条栏目中预测民主党将在2022年11 月的美国中期国会选举中惨败，并指责美国政府面临许多不确定性，即使不是陷入僵局但还是存在分裂的危险。如果这些民意调查结果准确，中共的宣传机器将迎来一个新的机会，宣布中国因一党专政而享有秩序和繁荣，而美式民主只会带来混乱、功能失调和衰落。
+```
 
-你就是太无知了
-then you are too ignorant
 
-这真的说不清道不明的这种
-It’s really hard to tell this
 
-贪嗔痴慢疑的这个“痴”字
-word “foolishness” from the five minds of greed, hatred, foolishness, arrogance, and suspicion
+```
+相比之下，北京的这一年将以党的二十大为主导，在人民大会堂的大理石柱子、红地毯和炽热的枝形吊灯之间进行严格控制的权力展示。这次聚会很可能在秋季举行，将标志着习近平作为掌握实权的中国最高领导人的第一个十年。这也可能确定习近平打算在位多长时间：五年？十年？还是被迫进入某种形式的半退休状态，垂帘听政？虽然这种情况不太可能发生。值得注意的是，习近平未来的计划可能在党代会结束时才会真正确定。届时他（或者可能是意外的党主席接班人）带领新的政治局常委按照严格的等级先后走上铺着红地毯的讲台。
+```
 
-在每个人身上体现得淋漓尽致
-It is vividly reflected in everyone
 
-这个执着心已经把很多人完全给迷了双眼
-This attached mindset has completed blinded many people
 
-没了智慧
-and lost their wisdom
+```
+如果习近平确定在五年后下台，他将会挑选一两个可能的继任者在舞台上跟随他。目前，还没有兼具经验、年龄和与习近平关系密切的合适人选。或许他觉得至少要在 2032 年的党代会之前继续掌权，届时他将 79 岁，如果是这一结果习近平将在 11 月的党代会舞台上被一排穿着深色西装的不具威胁的人尾随：无论是长期的共产党忠诚者还是迅速崛起的后起之秀，他们要么太老要么太年轻，缺乏经验，无法在2027年党代表大会上接替现任老板。
+```
 
-在这个问题疫苗灾难问题面前
-When we facing this problem of vaccine disaster,
 
-刚才谈的喜币
-the HCoin that we just talked about
 
-什么币安都是鸟事了
-and whatever the Binance is nothing
+```
+党代表大会每五年举行一次。这些会议按照惯例会在几代领导人之间进行有序的权力转移。这种高层权力交接举动是提前五年发出信号的，但是习近平已经打破了最近的先例，拒绝在 2017 年党代会上任命继任者。毛泽东去世后，中共决定任何一个领导人都不应积聚过多权力或在位时间过长。
+```
 
-你活着这些有你的
-You will have a share when you are alive
 
-不活着啥都不是你的
-otherwise nothing would be yours
 
-你没了就没了，有了就有了
-Everything will be useless if you are gone, you will have them if you are here
+```
+作为对这些规则的打击，习近平在 2018 年修改了中国宪法，取消了国家主席一职的任期限制——这是他所拥有的三个强大职位之一，其他二个更为重要的党总书记和中央军委主席，目前，还受到两届任期的约束。习近平的支持者说，只要他认为推进重要改革需要，他就必须留任。他的批评者是当今中国的一群沉默而恐惧的人，他们看到了防止个人独裁制度所面临的危险。
+```
 
-就这么简单
-It’s just that simple
 
-只有新中国联邦，全人类就咱这么牛
-In the mankind, only us, the New Federal State of China is that awesome
 
-从第一天到现在
-Since the first day till now,
+```
+无论习近平选择哪条道路，二十大很可能类似于共产主义的加冕礼。中共领导人看到了越来越多的理由对其政治制度的优势充满信心。在这以前，他们还对自己的治理模式持防御态度。现在中国外交官在联合国或世界贸易组织等机构获得了话语权，开始调整国际规范或全球规则，使世界更能接受中共版本的国家资本主义和专制。今天，中共特使们正处于攻势中，准备宣传他们的模式，作为一种比西方难以忍受的个人主义更好的集权模式。
+```
 
-更重要的事情
-the more important thing is that
 
-你永远不知道感谢新中国联邦
-you never know how to thank the New Federal State of China,
 
-真正的该如何感谢
-how to really thank by heart
+```
+与此同时，北京的官员处处看到威胁。他们确信美国及其盟国决心遏制中共。他们对外国人的任何批评不耐烦，并很快争辩说西方政府指责中国只是为了分散他们对自己失败的注意力。北京的气氛是自信、狂妄和偏执的奇怪混合体。这让习近平更加坚强。在描述当前的世界秩序时，他喜欢谈论“100 年未见的变化”。在这样的时刻，共产党押注最高领导人的连续性是最安全的做法。一段时间以来，中美之间的鸿沟一直在扩大，并在 11 月无聊刻板的党代会后进一步扩大，其幅度将会大得惊人。
+```
 
-就是我们能让战友不打疫苗这件事
-Just by the fact that we can prevent our comrades from being vaccinated
 
-我可以说我们荣耀一万辈子都不夸张
-I can say that we are not an exaggeration of our glory
+作者：大卫·雷尼（DAVID RENNIE）：《经济学家》周刊北京局局长和查关专栏作家（BEIJING BUREAU CHIEF AND CHAGUAN COLUMNIST, THE ECONOMIST）
 
-因为让你存在
-Because it allows you to survive
+信息来源：
 
-就我越看这么多人无知
-The more I see so many ignorant people
+[The World Ahead 2022 China hopes to flaunt the merits of its political system over America’s](https://www.economist.com/the-world-ahead/2021/11/08/china-hopes-to-flaunt-the-merits-of-its-political-system-over-americas)
 
-我越尊重新中国联邦
-the more I respect the New Federal State of China
-
-我每天看着这（新中国联邦）旗的时候
-when every day I look at this New Federal State of China flag
-
-救（了）这么多人
-We have saved many lives
-
-咱救太多人了
-We have saved so many lives
-
-可是我希望你们真的懂得
-But I hope you really understand
-
-兄弟姐妹们
-brothers and sisters
-
-疫苗灾难还没开始
-The vaccine disaster has not yet begun
-
-那比你想象的要差得多
-It is much worse than you think
-
-因为你在阳光下
-because you are in the daylight
-
-当你在黑夜中没有电灯的时候
-When you are in the dark without electricity,
-
-你就知道黑暗真的来了
-then you’ll know the darkness is really coming
-
-不是你两天能藏点饭吃
-It’s not just two days while you still have food left
-
-后天能藏点饭吃
-or three days that you still can eat what you have saved
-
-是很多天的时候
-When that situation last many day,
-
-到处像洛杉矶像旧金山拿枪抢劫LV店一样
-like Los Angeles and San Francisco people robbed an LV store with a gun
-
-到处抢劫的
-There would be robbery everywhere
-
-很恐怖的
-It’s very scary
-
-还有一个，你们真不知道
-Also, there is another one that you really don’t understand
-
-新中国联邦让你不打疫苗意味着什么
-that what does it mean for the New Federal State of China preventing you from vaccinated
-
-太伟大了，太伟大了
-It’s so extraordinary
-
-不但让你不打疫苗，还救这么多人
-because not only prevents you from getting vaccinated, but also saves so many people
-
-珍惜我们新中国联邦吧，兄弟姐妹们
-Brothers and sisters, let’s cherish our New Federal State of China
-
-你喝什么以后
-What would you drink in that situation?
-
-绝对不会让你买得到水
-You are absolutely not able to buy the drinking water,
-
-买到你也花不起这钱
-and it’ll be too expensive to buy if it is available
-
-（有人说）我要烧水，你有电吗？你有气吗？
-You may say that I can boil the water, but where is the electricity or gas?
-
-三天水只要你喝不好
-It only takes three days if you keep drinking non-drinkable water,
-
-你就开始拉肚子得疟疾
-you would start to have diarrhea and malaria
-
-你会看到像大卫三天（就会）拉疟疾
-You would have diarrhea in three days as David had
-
-像飞飞、卡丽熙，你脸都变形
-and your facial would be changed as Feifei and Kalixi had experienced
-
-我不是跟你们开半点玩笑
-I’m not joking with you at all
-
-你不准备好这一刻那走着看吧
-You will see when that moment comes if you are not ready
-
-灾难在后边呢
-The disaster has yet to come
-
-**原视频链接:** [https://gettr.com/post/phtknu1333](https://gettr.com/post/phtknu1333)
-
-Date: 11/26/2021
-原视频标题: 疫苗次生危机还没到来
-The Vaccine Crisis Has Not Yet Arrived
-原视频日期：2021/11/24
-原视频链接: https://gettr.com/post/phtknu1333
-任务编号：3016
-视频时间段 : 0:00-2:06
-
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

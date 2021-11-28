@@ -2,32 +2,23 @@
 ---
 
 
-## 美国三大汽车制造商同意不强制要求UAW工会成员接种疫苗
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1701714/)
+## 官僚们的假诺言：打过两针疫苗就再开放
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1701736/)
 
-#### 翻译：Lish
-编辑：MSGZ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-188.jpg)
-图片来源：comedonchisciotte
+翻译：  Evalu
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-125.png)
+图片来源： www.bbc.com
+零对冲网11月27日报道，《经济学家》写道，欧洲致命性的中共病毒感染病例数的飙升同时也引发公众对封城的愤怒。
 
-福特汽车公司、通用汽车公司和斯泰兰蒂斯公司已经同意，不会强迫汽车工人联合会的成员将强制接种疫苗作为就业的条件。此外，工人的疫苗接种状况将遵循私密性和自愿披露的政策。这是对医疗隐私和自由原则的一大胜利。
+最近几天4万多未接种疫苗的奥地利人在首都维也纳的抗议游行引起双重麻烦，抗议者们的近距离接触将加剧病毒的传播，同时也使得政治形势更加严峻，奥地利内务部长卡尔·纳哈默警告说，阿尔派共和党的反疫苗者变得越来越激进，他称抗议者的情绪是“激怒状态““有攻击性”。有些抗议者非常有煽动性，举着橱柜比喻亚历山大·沙伦贝格，新任奥地利总理，是约瑟夫·门格勒，这人是纳粹奥斯威辛集中营的虐待狂医生。
 
-在周一晚上的会议上，由汽车工人联合会(UAW)、福特、通用汽车和斯泰兰蒂斯（Stellantis）集团组成的COVID-19联合工作组就UAW成员自愿和保密披露疫苗接种情况的政策达成一致。关于如何、在何处以及何时报告他们的疫苗接种状况，每家公司都将向员工进行额外的沟通。
+抗议者们游行抗议针对反对接种疫苗者的封堵措施，11月22日政府发布了再次封城要求，至少10天，让900万奥地利人关在家里，除非工作，或必需的购物或健身，奥地利也是第一个西方国家要求所有人在2月1日前必须接种疫苗。
 
-除了鼓励成员披露他们的疫苗接种情况外，工作组继续敦促所有成员、同事及其家人接种疫苗并接受COVID-19的加强针，同时理解有一些个人原因可能使一些成员无法接种疫苗，如健康问题或宗教信仰。
+欧洲近一周的病例占全球67%，奥地利总理说封城将至少要达到20天。斯洛伐克周三宣布至少二周的封城，荷兰要求酒吧和饭店必须在晚上8点以前关门，比利时要求除特殊情况，工作人员一周在家工作4天，默克尔要求德国封城，因为死亡人数已达10万，英国推迟六个国家的航班，新加坡禁止来自南非的航班，日本海关也严控某些国家的游客。
 
-在审阅了疾病预防控制中心和职业安全与健康管理局的指南方针后，工作组还决定，目前在所有工作场所继续佩戴口罩符合工人安全的最佳利益。这有助于将利益转向美国工人。
+各国政客们曾经许诺打了两针疫苗后就可以再开放了，但是这显然是骗人的，然后一个谎言接着一个谎言，当人们对政府失去信任，抗议就是必然的。
 
-参考链接：[Big Three US Automakers Agree To Not Mandate Vaccines For UAW Union Members | ZeroHedge](https://www.zerohedge.com/political/big-three-us-automakers-agree-not-mandate-vaccines-uaw-union-members)
-
-**发布：**枳实
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+##### **新闻来源： **[Bureaucrat’s False Promise: Take Two COVID Shots And We Will Reopen](https://www.zerohedge.com/political/bureaucrats-false-promise-take-two-covid-shots-and-we-will-reopen)
 
  
 

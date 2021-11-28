@@ -15,176 +15,176 @@
 
 ---
 
-### [澳洲总理表示新变种病毒的出现不会带来2020年初的挑战](/content/gnews/1/README.md)
+### [丹麦成为第一个为5岁儿童接种新冠疫苗的欧盟国家](/content/gnews/1/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [9月24日采访喜马拉雅交易所首席执行官杰西·布朗-为什么喜马拉雅交易所与众不同？为什么HDO与其他稳定币不同？](/content/gnews/2/README.md)
+ ` 纽约香草山MOS01`
+
+### [澳洲总理表示新变种病毒的出现不会带来2020年初的挑战](/content/gnews/3/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [9月24日采访喜马拉雅交易所首席执行官杰西·布朗-喜马拉雅交易所代表什么？](/content/gnews/2/README.md)
+### [9月24日采访喜马拉雅交易所首席执行官杰西·布朗-喜马拉雅交易所代表什么？](/content/gnews/4/README.md)
  ` 纽约香草山MOS01`
 
-### [9月24日采访喜马拉雅交易所首席执行官杰西·布朗-是什么推动了喜马拉雅交流中心的使命？](/content/gnews/3/README.md)
+### [【G时新闻】 苏格兰国脚比赛中突然倒地不起，直播突然遭切断](/content/gnews/5/README.md)
+ ` G-时新闻`
+
+### [9月24日采访喜马拉雅交易所首席执行官杰西·布朗-是什么推动了喜马拉雅交流中心的使命？](/content/gnews/6/README.md)
  ` 纽约香草山MOS01`
 
-### [币圈新闻动态：Bitnasdaq将停止中国大陆地区新用户注册](/content/gnews/4/README.md)
+### [币圈新闻动态：Bitnasdaq将停止中国大陆地区新用户注册](/content/gnews/7/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [应对Omicron，各国实行紧急禁令](/content/gnews/5/README.md)
+### [应对Omicron，各国实行紧急禁令](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美国三大汽车制造商同意不为 UAW 工会成员强制接种疫苗](/content/gnews/6/README.md)
+### [美国三大汽车制造商同意不为 UAW 工会成员强制接种疫苗](/content/gnews/9/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [新变种“奥米克戎”首现于2剂疫苗接种者、症状非常轻微](/content/gnews/7/README.md)
+### [新变种“奥米克戎”首现于2剂疫苗接种者、症状非常轻微](/content/gnews/10/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [7分钟让您了解这种“疫苗”的危害和强制接种的荒谬](/content/gnews/8/README.md)
+### [7分钟让您了解这种“疫苗”的危害和强制接种的荒谬](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [首次在四个“完全接种疫苗者”体内检测出Omicron变种病毒](/content/gnews/9/README.md)
+### [首次在四个“完全接种疫苗者”体内检测出Omicron变种病毒](/content/gnews/12/README.md)
  ` 墨尔本雅典娜农场`
 
-### [官僚们的假诺言：打过两针疫苗就再开放](/content/gnews/10/README.md)
+### [官僚们的假诺言：打过两针疫苗就再开放](/content/gnews/13/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [不说真话的新闻媒体](/content/gnews/11/README.md)
+### [不说真话的新闻媒体](/content/gnews/14/README.md)
  ` 加拿大温哥华扬帆农场视频组`
 
-### [南非变种病毒可能登陆澳洲，完全接种疫苗者更容易感染](/content/gnews/12/README.md)
+### [南非变种病毒可能登陆澳洲，完全接种疫苗者更容易感染](/content/gnews/15/README.md)
  ` 走进澳洲`
 
-### [美国三大汽车制造商同意不强制要求UAW工会成员接种疫苗](/content/gnews/13/README.md)
+### [美国三大汽车制造商同意不强制要求UAW工会成员接种疫苗](/content/gnews/16/README.md)
  ` 墨尔本雅典娜农场`
 
-### [9月24日采访喜马拉雅交易所首席执行官杰西·布朗-谁是喜马拉雅交易所的幕后推手？](/content/gnews/14/README.md)
+### [9月24日采访喜马拉雅交易所首席执行官杰西·布朗-谁是喜马拉雅交易所的幕后推手？](/content/gnews/17/README.md)
  ` 纽约香草山MOS01`
 
-### [中共病毒连锁问题频发，世卫组织作茧自缚](/content/gnews/15/README.md)
+### [中共病毒连锁问题频发，世卫组织作茧自缚](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [郭文贵先生2021年11月27日盖特视频（1分28秒）全文字版](/content/gnews/16/README.md)
+### [郭文贵先生2021年11月27日盖特视频（1分28秒）全文字版](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [韩国人首次在韩国辉瑞总公司前举行反对疫苗通行证示威](/content/gnews/17/README.md)
+### [韩国人首次在韩国辉瑞总公司前举行反对疫苗通行证示威](/content/gnews/20/README.md)
  ` 首尔天池农场`
 
-### [新冠病毒备受关注的变种毒株B.1.1.529更名为Omicron（奥米克戎）](/content/gnews/18/README.md)
+### [新冠病毒备受关注的变种毒株B.1.1.529更名为Omicron（奥米克戎）](/content/gnews/21/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [11/26/2021 文贵直播：上海和杭州有医院出现天花病例，位于常州的秘密军事基地的医生被突然接走](/content/gnews/19/README.md)
+### [11/26/2021 文贵直播：上海和杭州有医院出现天花病例，位于常州的秘密军事基地的医生被突然接走](/content/gnews/22/README.md)
  ` 秘密翻译组-北美组`
 
-### [北京冬奥会将揭开西方精英们将奥运利益化的虚伪面纱](/content/gnews/20/README.md)
+### [北京冬奥会将揭开西方精英们将奥运利益化的虚伪面纱](/content/gnews/23/README.md)
  ` mary202064`
 
-### [11/26/2021 文贵直播：上海数家医院出大事了，中共各派通过放毒报复对方](/content/gnews/21/README.md)
+### [11/26/2021 文贵直播：上海数家医院出大事了，中共各派通过放毒报复对方](/content/gnews/24/README.md)
  ` 秘密翻译组-北美组`
 
-### [雅典娜时报-第126期](/content/gnews/22/README.md)
+### [雅典娜时报-第126期](/content/gnews/25/README.md)
  ` 墨尔本雅典娜农场`
 
-### [GTV新闻访谈简报|2021年11月27日晚](/content/gnews/23/README.md)
+### [GTV新闻访谈简报|2021年11月27日晚](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [韩国为预防“Omicron”新变异毒株，限制南非等8国的外国人入境](/content/gnews/24/README.md)
+### [韩国为预防“Omicron”新变异毒株，限制南非等8国的外国人入境](/content/gnews/27/README.md)
  ` 首尔天池农场`
 
-### [9月24日采访喜马拉雅交易所首席执行官杰西·布朗-加密货币市场概况](/content/gnews/25/README.md)
+### [9月24日采访喜马拉雅交易所首席执行官杰西·布朗-加密货币市场概况](/content/gnews/28/README.md)
  ` 纽约香草山MOS01`
 
-### [专家表示，慢性疲劳患者应豁免接种Covid-19疫苗](/content/gnews/26/README.md)
+### [专家表示，慢性疲劳患者应豁免接种Covid-19疫苗](/content/gnews/29/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [洛杉矶消防员因用强制疫苗信擦屁股而被“调查”](/content/gnews/27/README.md)
+### [洛杉矶消防员因用强制疫苗信擦屁股而被“调查”](/content/gnews/30/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本将修改国家安全战略，增加对敌基地攻击能力](/content/gnews/28/README.md)
+### [日本将修改国家安全战略，增加对敌基地攻击能力](/content/gnews/31/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [9月24日采访喜马拉雅交易所首席执行官杰西·布朗-喜马拉雅交易所概况](/content/gnews/29/README.md)
+### [9月24日采访喜马拉雅交易所首席执行官杰西·布朗-喜马拉雅交易所概况](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [赵长鹏会终身待在大牢里](/content/gnews/30/README.md)
+### [赵长鹏会终身待在大牢里](/content/gnews/33/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秦刚当时来美国的目的](/content/gnews/31/README.md)
+### [秦刚当时来美国的目的](/content/gnews/34/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [必看！各种解药的功效](/content/gnews/32/README.md)
+### [必看！各种解药的功效](/content/gnews/35/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [青蒿素对未打疫苗感染者的功效](/content/gnews/33/README.md)
+### [青蒿素对未打疫苗感染者的功效](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [排华浪潮来势汹汹源于共产党——始乱终弃](/content/gnews/34/README.md)
+### [排华浪潮来势汹汹源于共产党——始乱终弃](/content/gnews/37/README.md)
  ` 澳喜特战旅Gnews`
 
-### [三星将在德克萨斯州建造半导体芯片工厂](/content/gnews/35/README.md)
+### [三星将在德克萨斯州建造半导体芯片工厂](/content/gnews/38/README.md)
  ` 纽约香草山MOS02`
 
-### [美共和党华尔兹议员表示：中共长期以来对异议者实行失踪](/content/gnews/36/README.md)
+### [美共和党华尔兹议员表示：中共长期以来对异议者实行失踪](/content/gnews/39/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共竭力炫耀优于美国的政治制度：2022年中国共产党代表大会将与美国的中期选举形成对比](/content/gnews/37/README.md)
+### [中共竭力炫耀优于美国的政治制度：2022年中国共产党代表大会将与美国的中期选举形成对比](/content/gnews/40/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [面对伊维菌素和羟氯喹治疗新冠肺炎的疗效,福奇和医学精英们的欺骗行为会受到质询吗？](/content/gnews/38/README.md)
+### [面对伊维菌素和羟氯喹治疗新冠肺炎的疗效,福奇和医学精英们的欺骗行为会受到质询吗？](/content/gnews/41/README.md)
  ` 墨尔本雅典娜农场`
 
-### [班农先生熬尽心思帮助中国人成立法治基金、法治社会](/content/gnews/39/README.md)
+### [班农先生熬尽心思帮助中国人成立法治基金、法治社会](/content/gnews/42/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [疫苗次生危机还没到来](/content/gnews/40/README.md)
+### [疫苗次生危机还没到来](/content/gnews/43/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [澳门娱乐业大亨周焯华被中共警方批准逮捕](/content/gnews/41/README.md)
+### [澳门娱乐业大亨周焯华被中共警方批准逮捕](/content/gnews/44/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [中共的武器库—类似天花的病毒](/content/gnews/42/README.md)
+### [中共的武器库—类似天花的病毒](/content/gnews/45/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [密苏里州法官裁定去年以来实施的COVID限制为非法](/content/gnews/43/README.md)
+### [密苏里州法官裁定去年以来实施的COVID限制为非法](/content/gnews/46/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [病毒新变种Omicron引发全球关注](/content/gnews/44/README.md)
- ` 墨尔本雅典娜农场`
-
-### [美国国会议员无视中共反对再次访台并会见蔡英文](/content/gnews/45/README.md)
+### [美国国会议员无视中共反对再次访台并会见蔡英文](/content/gnews/47/README.md)
  ` 日本东京方舟农场`
 
-### [台美为应对中共威胁接连举办两场军事会谈](/content/gnews/46/README.md)
+### [台美为应对中共威胁接连举办两场军事会谈](/content/gnews/48/README.md)
  ` 日本东京方舟农场`
 
-### [日本将在明年推出一种由银行支持的加密货币](/content/gnews/47/README.md)
+### [日本将在明年推出一种由银行支持的加密货币](/content/gnews/49/README.md)
  ` 墨尔本雅典娜农场`
 
-### [半个中共国为北京冬奥会停工停产](/content/gnews/48/README.md)
+### [半个中共国为北京冬奥会停工停产](/content/gnews/50/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [班农提出动议 要求公开法庭案件中的所有文件](/content/gnews/49/README.md)
+### [班农提出动议 要求公开法庭案件中的所有文件](/content/gnews/51/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [币安 被爆出“泄漏用户隐私”给中共](/content/gnews/50/README.md)
+### [币安 被爆出“泄漏用户隐私”给中共](/content/gnews/52/README.md)
  ` G&#124;News TAIWAN`
 
-### [非洲猪瘟肆虐！华东人只吃华东猪？](/content/gnews/51/README.md)
+### [非洲猪瘟肆虐！华东人只吃华东猪？](/content/gnews/53/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共在海南全面模拟试验数字人民币国际化使用场景](/content/gnews/52/README.md)
+### [中共在海南全面模拟试验数字人民币国际化使用场景](/content/gnews/54/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [反制中共海洋威胁，印度海军鲉鱼级最新潜艇列装](/content/gnews/53/README.md)
+### [反制中共海洋威胁，印度海军鲉鱼级最新潜艇列装](/content/gnews/55/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共政府无视百姓疾苦，“大撒币”免除他国贷款](/content/gnews/54/README.md)
+### [中共政府无视百姓疾苦，“大撒币”免除他国贷款](/content/gnews/56/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [2021/11/25 墙内世界](/content/gnews/55/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [永不屈服 针对雇主疫苗强制令发出的责任通知书](/content/gnews/56/README.md)
+### [永不屈服 针对雇主疫苗强制令发出的责任通知书](/content/gnews/57/README.md)
  ` Mr. Miles Guo's News Briefing`
-
-### [南非变种病毒突现 全球投资市场闪崩](/content/gnews/57/README.md)
- ` 纽约香草山MOS01`
 
 ### [平明运动的本质就是一人一票](/content/gnews/58/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`

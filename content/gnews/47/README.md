@@ -2,38 +2,38 @@
 ---
 
 
-## 日本将在明年推出一种由银行支持的加密货币
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1700054/)
+## 美国国会议员无视中共反对再次访台并会见蔡英文
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1700888/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+#### **撰稿：**日本东京方舟农场 Kevin wang
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/1_qmqe9fr-2rs5eotxzb5ggg.jpeg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/CB5F43AD-F44A-4AC6-9966-E10F1A60E697.jpeg)（图片来自大纪元）
 
+据《美国之音》11月26日报道，美国国会众议院的五位两党议员再次访问台湾，并会见台湾总统蔡英文，重申了美国对台湾的支持“坚如磐石”。
 
+据美国在台协会公布的消息，美国国会众议院两党议员于周四晚抵达台湾，并于星期五上午会见了台湾总统蔡英文。
 
-图片来源：www.finextra.com
+此次赴台访问团的成员有：民主党籍国会众议员斯洛特金（Elissa Slotkin）、高野（Mark Takano）、奥尔雷德（Colin Allred）和雅各布斯（Sara Jacobs），以及共和党籍众议员梅斯（Nancy Mace）。
 
+来自密歇根州的众议员斯洛特金星期五在推特上披露，此次访台消息一传出，她的办公室就收到中共国大使馆的一条直白信息，要求她取消行程。但最终，斯洛特金无视中共的反对，依旧赴台会见蔡英文。
 
-#### 编译：小红帽
+担任众议院退伍军人事务委员会主席的高野表示：“我们本周来到台湾，是为了提醒我们的伙伴和盟友，在经历了两年的艰难时期后，我们对自由和安全的印太地区的承诺和共同责任，比以往任何时候都更加坚定。”
 
-日本即将向开发数字货币迈出重要一步。据路透社报道，一个由大约70家日本公司组成的财团于本周表示，他们计划在2022年推出一种基于日元的加密货币。该项目（暂称为 “DCJPY”）得到了日本最大的三家银行的支持。
+高野还表示，美国与台湾的关系坚如磐石，并随着双方之间关系的加深而更更加稳定。
 
-在周三的新闻发布会上，三菱日联金融集团、瑞穗金融集团和三井住友金融集团表示，他们自去年以来一直在开会，以建立一个共享的数字支付结算基础设施。
+这是美国国会议员今年第三次访问台湾。就在几周前，由六名共和党国会议员组成的代表团刚刚访问过台湾。
 
-该财团的其他一些成员包括东日本铁路公司和关西电力公司。他们计划在未来几个月开始测试该货币。该试验与日本银行为创建数字日元所作的工作是分开的。中央银行数字货币（CBDCs）是中国和美国也在探索的东西。
+此外，拜登政府还邀请台湾参加下个月的民主峰会，这一决定同样遭到中共的强烈谴责。
 
-对于日本来说，还有一个额外的激励因素在推动。日本是一个以热爱现金而着称的国家。即使在最近的2018年，该国80%的零售交易都是用纸币和硬币完成的。日本政府一直试图改变这种状况，以使该国的经济对消费者更友好，更有生产力。
+*参考链接：[https://www.voachinese.com/a/us-taiwan-visit-20211126/6328781.html](https://www.voachinese.com/a/us-taiwan-visit-20211126/6328781.html)*
 
-**参考新闻：**[Japanese firms will test a bank-backed cryptocurrency in 2022 | Engadget](https://www.engadget.com/japan-dcjpy-digital-currency-test-2022-013506959.html)
+* * *
 
-***发布：小红帽***
+*素材采编：Kevin wang*
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+*编辑：青衣青青*
+
+*发布：miumiu*
 
  
 

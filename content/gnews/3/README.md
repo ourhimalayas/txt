@@ -2,41 +2,30 @@
 ---
 
 
-## 9月24日采访喜马拉雅交易所首席执行官杰西·布朗-是什么推动了喜马拉雅交流中心的使命？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1701821/)
+## 澳洲总理表示新变种病毒的出现不会带来2020年初的挑战
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1701843/)
 
-翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+#### 翻译/撰稿：黃金精神
 
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-47.jpg)图片来源：DW
+据澳联社 （Australian Associated Press）11月28日的报道，澳大利亚总理斯科特·莫里森（Scott Morrison）向人们保证，随着新变种的出现，该国不会面临与2020年初中共病毒首次到来时一样的挑战。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
-椰子: 是什么推动了喜马拉雅交流中心的使命？
+莫里森说，Omicron的出现是一个快速发展的问题，但政府将继续以最佳医疗建议为指导。莫里森周日在堪培拉对记者时说：“这与（今年）2月、3月和2020年时的情况不一样。我们现在有很好的知识，很好的建议，不确定性不像过去那样，我们有很好的系统，这一点已被证明。”
 
-杰西: 在认真评估了加密领域的当前市场和机会后，我们意识到建立一个真正的加密生态系统的重要性。这个生态系统不仅鼓励而且能夠使我们获得金融自由和主权。
+对新变种Omicron的担忧已经使得澳大利亚对九个非洲南部国家关闭边境，各州对国际入境者实行新的规定。
 
-加密货币有潜力赋予世界上每个人权力，无论他们来自哪里，也无论他们是谁。我们的目标是为每个人实现无国界和包容性，我们真正鼓励财务自由，这也是我们使命的主要驱动力。
+维多利亚首席卫生官布雷特·萨顿（Brett Sutton）说，对Omicron的了解还不够，但它似乎是一个非常容易传播的变体。萨顿在墨尔本面对记者时说：“Omicron似乎在非洲南部，特别是在南非共和国传播得非常快。在很短的时间内，感染人数显著增加，俨然成为该国的主要病毒变体。”
 
-参考来源：
-1. [https://gtv.org/video/id=614dd0ef42a8af3151a47b8e](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
-2. [Interview with Himalaya Exchange CEO Jesse Brown- English Transcript of First Episode, September 24th](https://gnews.org/1593083/)
+即便如此，反对党领袖安东尼·艾班尼斯（Anthony Albanese）对各州政府的迅速行动表示祝贺。他在墨尔本对记者表示，这种毒株可能造成真正的问题，它的传播速度很快，需要采取任何必要的措施（防止传播）。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+新南威尔士州州长多米尼克·普罗特（Dominic Perrottet）表示正在进行紧急基因组测序，以确定Omicron是否已经到达悉尼。
 
-校对：文唐
+两人连夜从非洲抵达时检测出中共病毒阳性，目前正在调查他们是否携带Omicron变体。
 
-编辑/校对/发稿：Hetangyuese
+新南威尔士州、维多利亚州和澳大利亚首都地区已经对国际入境者实行了为期三天的家庭隔离要求。
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
-
-
-
-
-
+**新闻来源：[https://www.aap.com.au/news/australia-ready-for-omicron-covid-variant/](https://www.aap.com.au/news/australia-ready-for-omicron-covid-variant/)**
 
  
 

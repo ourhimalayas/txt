@@ -2,33 +2,42 @@
 ---
 
 
-## 美国三大汽车制造商同意不为 UAW 工会成员强制接种疫苗
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1701785/)
+## 9月24日采访喜马拉雅交易所首席执行官杰西·布朗-是什么推动了喜马拉雅交流中心的使命？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1701821/)
 
-来自零对冲（ZERO HEDGE） 星期六11月27日的新闻报道
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
 
-翻译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/11/American-Car-Brands-Logo.jpg)
-来源：网络
 
-医疗隐私和自由基本原则的巨大胜利。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+椰子: 是什么推动了喜马拉雅交流中心的使命？
 
-福特、通用汽车和 Stellantis 已同意，将不会强迫美国汽车工人联合会成员强制接种疫苗。
+杰西: 在认真评估了加密领域的当前市场和机会后，我们意识到建立一个真正的加密生态系统的重要性。这个生态系统不仅鼓励而且能夠使我们获得金融自由和主权。
 
-此外，工人的疫苗接种将保持私密，并实行保密和自愿披露的政策。
+加密货币有潜力赋予世界上每个人权力，无论他们来自哪里，也无论他们是谁。我们的目标是为每个人实现无国界和包容性，我们真正鼓励财务自由，这也是我们使命的主要驱动力。
 
-*UAW**：在周一晚上的一次会议上，由 UAW**、福特、通用汽车和 Stellantis**组成的 COVID-19**联合工作组一致同意UAW**成员自愿和保密地披露疫苗接种状态的政策。每家公司应向员工就如何、何地和何时报告疫苗接种情况提供额外的沟通渠道。*
+参考来源：
+1. [https://gtv.org/video/id=614dd0ef42a8af3151a47b8e](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+2. [Interview with Himalaya Exchange CEO Jesse Brown- English Transcript of First Episode, September 24th](https://gnews.org/1593083/)
 
-*除了鼓励成员披露他们的疫苗接种情况外，工作组继续敦促所有成员、同事和他们的家人接种疫苗及**加强剂，同时理解有个人原因可能会阻止某些成员接种疫苗，例如健康问题或宗教信仰。*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
 
-*在参阅了 CDC**和 OSHA**最新指南后，工作组还决定目前在所有工作场所继续戴口罩最符合工人的安全利益。*
+校对：文唐
 
-这有助于正义的天平倾向所有美国工人。
+编辑/校对/发稿：Hetangyuese
 
-原文链接：https://www.zerohedge.com/political/big-three-us-automakers-agree-not-mandate-vaccines-uaw-union-members
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
 
-发布：涅
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

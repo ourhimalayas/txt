@@ -2,31 +2,45 @@
 ---
 
 
-## 韩国人首次在韩国辉瑞总公司前举行反对疫苗通行证示威
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1701645/)
+## 9月24日采访喜马拉雅交易所首席执行官杰西·布朗-谁是喜马拉雅交易所的幕后推手？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1701712/)
 
-韩国首尔天池农场
-翻译：小甜心
-校对：鱼子酱
-上传：追着曙光跑
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
 
-据韩国ourtoday网站11月24日的一篇新闻报道，在反对接种新冠病毒疫苗和疫苗通行证示威扩散到全世界的情况下，韩国国内首次在韩国辉瑞总部前举行了“疫苗通行证反对示威“，今后舆论将如何发展，备受关注。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-28-at-11.46.46.jpeg)图为，在韩国辉瑞总公司前举行反对疫苗通行证示威
 
-在国外，宣布实行疫苗强制措施的奥地利维也纳市民们正在举行大规模示威，荷兰，比利时等地也因大规模示威发生了大大小小的事故。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-28-at-11.52.11.jpeg)图为，在韩国辉瑞总公司前举行反对疫苗通行证示威
-在韩国反对疫苗通行证的舆论成为主流的情况下，网上已经出现了反对强制接种疫苗和疫苗通行证的舆论。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
 
-特别之处在于参与“疫苗通行证，示威” 的大部分人已经是接种疫苗了。
 
-他们明确的表示：疫苗通行证压制自由，蹂躏人权，表示反对。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-28-at-11.52.12.jpeg)图为，在韩国辉瑞总公司前举行反对疫苗通行证示威
-另外，虽然接种了2次疫苗，但防疫当局总是改口说“突破感染”，“加强针”等，令人失望。
+椰子: 你们真的是一个很棒的团队。你能和我们分享一下谁是喜马拉雅交易所的幕后推手以及你们的团队有多出色吗？
 
-在这种情况下，此次在韩国辉瑞总部前举行的“反疫苗通行证示威”有望在2022年大选，地方选举及文再演政府剩下的6个月任期内成为社会问题。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-28-at-11.52.12-1.jpeg)图为，“疫苗通行证，反对示威”会员们的集体照
+杰西: 我很乐意分享。如你所知团队合作让梦想成真，
 
-新闻来源：[백신패스 반대시위,국내 최초 한국화이자 본사앞에서 가져](http://www.ourtoday.co.kr/mobile/article.html?no=24829)
+我们非常成功地聘请了区块链， 加密技术领域的一些领先专家以及来自金融科技世界各个角落的部门主管。我们组建了一个独特的团队来满足我们独特产品的需求。
+
+在很短的时间内，我们从少数几个专家发展到现在近200名员工。我看到了这种增长，非常令人印象深刻。
+
+他们是致力于提供这种产品的专业人员， 而且他们是在非常具有挑战性的病毒大流行时期这么做的。你知道这很困难，但我们确实在努力克服，我们有很多值得骄傲的地方。
+
+最重要的是每个人都对我们的使命充满热情。那就是让每个人每个地方都享有财务自由，我认为我们在处理大流行病的问题上做了令人难以置信的工作。我们组建了一个非常伟大的团队，我非常自豪。
+
+参考来源：
+1. [https://gtv.org/video/id=614dd0ef42a8af3151a47b8e](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+2. [Interview with Himalaya Exchange CEO Jesse Brown- English Transcript of First Episode, September 24th](https://gnews.org/1593083/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+校对：文唐
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+
 
  
 
