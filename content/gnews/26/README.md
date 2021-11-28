@@ -2,46 +2,33 @@
 ---
 
 
-## 9月24日采访喜马拉雅交易所首席执行官杰西·布朗-谁是喜马拉雅交易所的幕后推手？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1701712/)
+## 美国三大汽车制造商同意不为 UAW 工会成员强制接种疫苗
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1701785/)
 
-翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+来自零对冲（ZERO HEDGE） 星期六11月27日的新闻报道
 
+翻译： 真北007
+![](https://assets.gnews.org/wp-content/uploads/2021/11/American-Car-Brands-Logo.jpg)
+来源：网络
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
+医疗隐私和自由基本原则的巨大胜利。
 
+福特、通用汽车和 Stellantis 已同意，将不会强迫美国汽车工人联合会成员强制接种疫苗。
 
-椰子: 你们真的是一个很棒的团队。你能和我们分享一下谁是喜马拉雅交易所的幕后推手以及你们的团队有多出色吗？
+此外，工人的疫苗接种将保持私密，并实行保密和自愿披露的政策。
 
-杰西: 我很乐意分享。如你所知团队合作让梦想成真，
+*UAW**：在周一晚上的一次会议上，由 UAW**、福特、通用汽车和 Stellantis**组成的 COVID-19**联合工作组一致同意UAW**成员自愿和保密地披露疫苗接种状态的政策。每家公司应向员工就如何、何地和何时报告疫苗接种情况提供额外的沟通渠道。*
 
-我们非常成功地聘请了区块链， 加密技术领域的一些领先专家以及来自金融科技世界各个角落的部门主管。我们组建了一个独特的团队来满足我们独特产品的需求。
+*除了鼓励成员披露他们的疫苗接种情况外，工作组继续敦促所有成员、同事和他们的家人接种疫苗及**加强剂，同时理解有个人原因可能会阻止某些成员接种疫苗，例如健康问题或宗教信仰。*
 
-在很短的时间内，我们从少数几个专家发展到现在近200名员工。我看到了这种增长，非常令人印象深刻。
+*在参阅了 CDC**和 OSHA**最新指南后，工作组还决定目前在所有工作场所继续戴口罩最符合工人的安全利益。*
 
-他们是致力于提供这种产品的专业人员， 而且他们是在非常具有挑战性的病毒大流行时期这么做的。你知道这很困难，但我们确实在努力克服，我们有很多值得骄傲的地方。
+这有助于正义的天平倾向所有美国工人。
 
-最重要的是每个人都对我们的使命充满热情。那就是让每个人每个地方都享有财务自由，我认为我们在处理大流行病的问题上做了令人难以置信的工作。我们组建了一个非常伟大的团队，我非常自豪。
+原文链接：https://www.zerohedge.com/political/big-three-us-automakers-agree-not-mandate-vaccines-uaw-union-members
 
-参考来源：
-1. [https://gtv.org/video/id=614dd0ef42a8af3151a47b8e](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
-2. [Interview with Himalaya Exchange CEO Jesse Brown- English Transcript of First Episode, September 24th](https://gnews.org/1593083/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-校对：文唐
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
-
-
+发布：涅
+![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

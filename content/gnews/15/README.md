@@ -2,42 +2,27 @@
 ---
 
 
-## 9月24日采访喜马拉雅交易所首席执行官杰西·布朗-是什么推动了喜马拉雅交流中心的使命？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1701821/)
+## 从投资增减来看台海局势
+` 澳喜特战旅Gnews` [轉載自GNews](https://gnews.org/zh-hans/1701894/)
 
-翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+撰稿：子喜太一
+![](https://assets.gnews.org/wp-content/uploads/2021/11/282.jpg)图片来源：Pexels免费照片资料库；摄影：Angxuan Li
+台湾经济部投审会本周公布数据显示， ​受疫情和全球经济局势变化影响，2021年1月到10月对台投资52.7亿美元，减少28.25%，其中大陆对台投资4130.3万美元，大减66.68%。
 
+同时投审会表示，大陆营商环境变化、美中贸易冲突、科技战持续等因素影响，台商赴大陆投资趋于谨慎观望。另外1月到10月，来自泰国、新加坡、澳大利亚对台投资增加了8.76亿美元，年增169.57%。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
-椰子: 是什么推动了喜马拉雅交流中心的使命？
+​从台湾投审会的数据来看，总体投资环境成下降趋势，大陆对台投资大幅削减，而台湾对大陆投资完全停止。中共十九届六中全会后多次叫嚣要武统台湾，并屡次军机扰台，台湾和大陆就算假装回到当年的九二共识都不可能了，台湾和中共国已完全敌对，就差一颗导弹来捅破这层纸了。
 
-杰西: 在认真评估了加密领域的当前市场和机会后，我们意识到建立一个真正的加密生态系统的重要性。这个生态系统不仅鼓励而且能夠使我们获得金融自由和主权。
+​事实上中共国早已用另一种形式发射了这枚导弹，那就是病毒和疫苗！新中国联邦爆料革命早已经爆出新冠病毒来自武汉实验室，是中共军方的生化武器，通过病毒来迫使人们接种毒疫苗，以此来减少人口，台湾当然也没能幸免！
 
-加密货币有潜力赋予世界上每个人权力，无论他们来自哪里，也无论他们是谁。我们的目标是为每个人实现无国界和包容性，我们真正鼓励财务自由，这也是我们使命的主要驱动力。
+​台湾投审会的投资数据，从一个侧面反映出大陆和台湾除了战争已无话可说，更无经济来往的意愿，仅存的四千多万美元的所谓投资，无非是给那些卖台贼们蓝金黄用的！
 
-参考来源：
-1. [https://gtv.org/video/id=614dd0ef42a8af3151a47b8e](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
-2. [Interview with Himalaya Exchange CEO Jesse Brown- English Transcript of First Episode, September 24th](https://gnews.org/1593083/)
+​新中国联邦人不希望台湾人民受到战争的一丝一毫伤害，希望美国能遵守《台湾关系法》保护台湾，更希望台湾人民进一步觉醒，随时准备反击中共的武力侵犯！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+参考链接：[联合新闻网](https://udn.com/news/story/7333/5907747)
 
-校对：文唐
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
-
-
-
-
-
-
+*发稿：mgjxs*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/TA1.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

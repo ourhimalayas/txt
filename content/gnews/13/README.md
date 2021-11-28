@@ -2,40 +2,28 @@
 ---
 
 
-## 9月24日采访喜马拉雅交易所首席执行官杰西·布朗-喜马拉雅交易所代表什么？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1701833/)
+## 每一批次的疫苗都不一样，有些有剧毒，有些则没有
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1701910/)
 
-翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+#### 翻译：奮鬥
+校对：Lish
+剪辑/字幕：向上James
 
+视频文字点睛：
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
+每次我们都可以直观地识别这些有毒批次，显示它们正在影响每个州的人们，无论它们被部署在哪里，无论它们被分发到哪里。而且这些有毒批次以固定的频率出现在无害批次之间。毒性是基准率的1000倍到5000倍的，有毒批次的出现频率是200分之一。
 
+因此，当你接种疫苗时，有200分之一的机会你会得到一个有毒批次。而这些批次的疫苗始终如一地，我是说始终如一地，在美国各州都会造成不良反应、住院、残疾和死亡。这就是他们所做的。无害批次是无害的。但这些有毒批次的疫苗会造成伤害。
 
-椰子: 我认为财务自由对每个人来说都是非常了不起的，每个人都有不同的理解。你能告诉我们喜马拉雅交易所代表什么吗？
+发布：枳实
 
-杰西: 我大概可以列出三件事，这确实是阐述我们立场的关键方式。在这个过程中，我们正在创建一个更容易获得的，成本低的，互相联系的数字资产网络，它是通过我们的加密货币和区块链技术的应用，因此喜马拉雅交易所，喜马拉雅支付，所有这些金融产品都是我们的目标。
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-我们真正设想了一个加密生态系统，它是一个开放的可互操作的平台，设计和治理遵循最高的合规和安全标准。正如我之前提到的，我认为加密货币需要得到监管才能真正发展。当然我们的目标之一，就是以一种合规而有意义的方式进入许多司法管辖区。
-
-我们有很多行业伙伴关系，银行级别的安全合作伙伴。我们有深度冷存储能力来保护我们的资产，我们有一个基础，来实现创建世界上最好的加密货币交易所的雄心，我们正在努力做到这一点。
-
-参考来源：
-1. [https://gtv.org/video/id=614dd0ef42a8af3151a47b8e](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
-2. [Interview with Himalaya Exchange CEO Jesse Brown- English Transcript of First Episode, September 24th](https://gnews.org/1593083/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-校对：文唐
-
-编辑/校对/发稿：Hetangyuese
-
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

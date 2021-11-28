@@ -2,31 +2,40 @@
 ---
 
 
-## 首次在四个“完全接种疫苗者”体内检测出Omicron变种病毒
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1701747/)
+## 9月24日采访喜马拉雅交易所首席执行官杰西·布朗-喜马拉雅交易所代表什么？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1701833/)
 
-#### 翻译：皮特
-编辑：MSGZ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/812-3.jpg)图片来源：TRT
-**根据博茨瓦纳政府的一份公开声明，新冠的新“Omicron”变种病毒是首先在四名完全接种疫苗的人身上检测到的。**
-**这个新变种是最初在博茨瓦纳发现的，然后传到整个南非。据称其传染性比德尔塔变种病毒强三倍。**这一消息引起了全球恐慌，致使金融市场暴跌，引发新的旅行禁令。
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
 
-根据博茨瓦纳政府的一份公开声明，此新突变**事最先在四名接种过两剂新冠疫苗的人身上发现的**。该报告称，在11月22日就报告并记录了四例新变种。
-博茨瓦纳当局**称：“初步报告显示，所有四人都已完全接种新冠疫苗**。”
-在随后的声明中，政府透露，“是在2021年11月7日进入博茨瓦纳执行外交任务的四名外国公民身上发现了此新变种。”声明称：“四人是在2021年11月11日准备返回时被检测出COVID-21阳性。”
-“好消息是，与感染者密切接触的其他人“没有新冠症状，并且新冠检测呈阴性”。
-“正如我们之前强调的那样，根据比利时首相的说法，Omicron 变种具有潜在的巨大的破坏性，因此应将其称为“COVID-21”。
 
-与此同时，南非首席医学官安吉丽·库切博士将这种恐慌描述为“茶杯中的风暴”，并补充说，到目前为止她只见过“非常非常轻微的病例”
-链接：[Omicron Variant First Detected In Four “Fully Vaxx’d” People, SA Medical Chief Only Seen “Very, Very Mild Cases” | ZeroHedge](https://www.zerohedge.com/covid-19/omicron-variant-first-detected-four-people-who-were-fully-vaccinated)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
 
-**发布：文泓** 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
+椰子: 我认为财务自由对每个人来说都是非常了不起的，每个人都有不同的理解。你能告诉我们喜马拉雅交易所代表什么吗？
+
+杰西: 我大概可以列出三件事，这确实是阐述我们立场的关键方式。在这个过程中，我们正在创建一个更容易获得的，成本低的，互相联系的数字资产网络，它是通过我们的加密货币和区块链技术的应用，因此喜马拉雅交易所，喜马拉雅支付，所有这些金融产品都是我们的目标。
+
+我们真正设想了一个加密生态系统，它是一个开放的可互操作的平台，设计和治理遵循最高的合规和安全标准。正如我之前提到的，我认为加密货币需要得到监管才能真正发展。当然我们的目标之一，就是以一种合规而有意义的方式进入许多司法管辖区。
+
+我们有很多行业伙伴关系，银行级别的安全合作伙伴。我们有深度冷存储能力来保护我们的资产，我们有一个基础，来实现创建世界上最好的加密货币交易所的雄心，我们正在努力做到这一点。
+
+参考来源：
+1. [https://gtv.org/video/id=614dd0ef42a8af3151a47b8e](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+2. [Interview with Himalaya Exchange CEO Jesse Brown- English Transcript of First Episode, September 24th](https://gnews.org/1593083/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+校对：文唐
+
+编辑/校对/发稿：Hetangyuese
+
+**更多资讯，更多关注**
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
