@@ -2,39 +2,59 @@
 ---
 
 
-## 9月24日采访喜马拉雅交易所首席执行官杰西·布朗-喜马拉雅交易所是否会提供去中心化金融服务？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1702056/)
+## 视频| 未来“国家”的概念（下）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1702157/)
 
-翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+## 摘自郭先生2021.11.24大直播
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
-
+制作：香草山视频部，香草山香港部
 
 
 
-托尼：至于未来，去中心化金融很火，并且呈指数级增长。那么，喜玛拉雅交易所，将在未来提供去中心化金融交易服务，如去中心化的交易所、借贷、衍生品资产管理等？如果是的话，它们会是什么样的？
+新中国联邦的时代
+没有什么虚拟的世界
+我们是绝对的现实世界
+让你感受到的精神快乐、精神愉悦
+精神双休、肉体双休
+理想双休、数字货币
+剩余价值的呼唤
+和所有家人的安全
+国家不就是安全嘛财富嘛
+然后就是肉体的满足嘛
+然后就是荣誉嘛
+然后就是追求信仰嘛
+你告诉我哪样我们做不到
+你怀疑七哥、新中国联邦哪样做不到
+你告诉我
+所有我们的设计
+我们的G-Club、G-News、GTV
+它已经是过去式了
+我们的目标绝不在此
+我们的目的也绝不在此
+改变14亿中国人
+绝对要记住海外是绝对的重要
+我们连海外这种生存环境都没有活好
+说我们能解放全中国
+那全属于骗人的
+比共产党还可怕
 
-杰西: 随着未来的发展，就我们的路线图而言，去中心化的交易所当然是我们考虑的事情。作为一个团队我们一直在研究这一点，分析这对我们来说意味着什么。我们也在考虑将抵押作为我们的一种可能性，或许在以太坊网络上进行抵押。从路线图的角度来看，我们也在研究许多许在以太坊网络上进行抵押。你提到的任何一件事都已经讨论过了，我们用一个团队来分析它。看看要做到这一点需要哪些投资。然后从监管的角度来看，这意味着什么。你可能知道，在美国，去中心化金融正受到美国证券交易委员会的更多审查。我们正在观察、评估和分析。但我认为展望未来我们会在这一领域进行各种探索和布局。
 
-参考来源：
-1. [https://gtv.org/video/id=614dd0ef42a8af3151a47b8e](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
-2. [Interview with Himalaya Exchange CEO Jesse Brown- English Transcript of First Episode, September 24th](https://gnews.org/1593083/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+发稿：雪梨
 
-校对：文唐
-
-编辑/校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

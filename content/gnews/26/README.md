@@ -2,38 +2,71 @@
 ---
 
 
-## 视频| 青蒿素的功效
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1702000/)
+## 杨改兰的孩子
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1702155/)
 
-## 摘自郭先生2021.11.26大直播
-
-制作：香草山视频部
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/2171_10.png)图片来源：雅典娜设计组（小蚂蚁614）
 
 
+**作者：**晨兮
+**编辑：**翼族
 
-我今天的建议你们是一定要记住，打了疫苗的一定要吃好的青蒿素，在医嘱的情况下，这个是太管用了，打了疫苗的要吃。
-第二、女性绝对美容。
-第三、绝对壮阳。
-第四、对癌症绝对有绝效
-还有一个，更重要的兄弟姐妹，你看咱们GFASHION马上推出了我用了几十年的秘诀：青蒿素和玉米地的咱们的化妆品，无色，男女适用，咱就要出来了，那就是青蒿素，还有一个大家要记住的：老人到老年所有的综合症青蒿素绝对管用。这是今天告诉青蒿素，特别是打了疫苗的，特别是有病的（感染ccp病毒的），我再重申一遍，所有羟氯喹不治病，羟氯喹是一个工具，羟氯喹+锌+伊维菌素绝对是防冠状病毒，治冠状病毒，这是他完全承认的，国内的战友，说，那位大胡子医生讲得是非常好的，他说，但是我告诉你，未来解疫苗他说它管用，它管用没那么厉害，青蒿素解疫苗绝对比它厉害。再一个，青蒿素吃了，吃正确了，几乎所有疫苗所有病毒没有任何可能侵害你身体，再告诉大家，你要天天吃羟氯喹+锌会吃死你的，一定记住！青蒿素不能天天吃，羟氯喹+锌绝对不能天天吃，伊维菌素一定要有中间2-3周的停止期，否则一定会吃死你的，所以说我今天再次告诉，这是救命啊！所以兄弟姐妹们一定要记住，铁，缺铁缺锌还有一个女性，还有一个不能天天吃，还要吃对，再一个就一定记住，青蒿素可以单独吃，然后补铁补啥的你看Eglise医生的那建议非常好！越来越发现青蒿素不仅是解药，不仅是病毒的解药它还治癌症，还壮阳，还壮（滋）阴，哇塞，神药！
+孩子说
+好冷好饿
+妈妈救救我
 
+妈妈泣
+宝贝宝贝
+实在对不起
 
+妈妈永远
+和你们在一起
+我们去那
+不冷不饿之地
 
-发稿：雪梨
+孩子哭
+妈妈我好痛
+流了好多血
 
-![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+妈妈哭
+宝贝不要怕
+血流干就好
 
-**更多资讯，更多关注**
+目的地
+没有寒冷
+没有饥饿
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+世界一片寂静
+唯剩斧头
+和血迹
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+万里之外
+一个声音
+响彻云庭
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+我
+只为杨改兰
+和她的孩子而战
+只为十四亿人而战
+只为正义而战
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+全世界
+许多人回应
+我们与你
+并肩作战
 
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+只为杨改兰
+和孩子们
+不再寒冷
+饥饿和恐惧
+
+*发布：翼族*
+
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
