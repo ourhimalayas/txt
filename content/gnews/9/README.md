@@ -2,33 +2,45 @@
 ---
 
 
-## 美国三大汽车制造商同意不为 UAW 工会成员强制接种疫苗
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1701785/)
+## 丹麦成为第一个为5岁儿童接种新冠疫苗的欧盟国家
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1701883/)
 
-来自零对冲（ZERO HEDGE） 星期六11月27日的新闻报道
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-翻译： 真北007
-![](https://assets.gnews.org/wp-content/uploads/2021/11/American-Car-Brands-Logo.jpg)
-来源：网络
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/106972926-16364849812021-11-09t013129z_786024702_rc2kqq9xi22v_rtrmadp_0_health-coronavirus-usa-children.jpeg)
 
-医疗隐私和自由基本原则的巨大胜利。
 
-福特、通用汽车和 Stellantis 已同意，将不会强迫美国汽车工人联合会成员强制接种疫苗。
+图片来源：CNBC
 
-此外，工人的疫苗接种将保持私密，并实行保密和自愿披露的政策。
 
-*UAW**：在周一晚上的一次会议上，由 UAW**、福特、通用汽车和 Stellantis**组成的 COVID-19**联合工作组一致同意UAW**成员自愿和保密地披露疫苗接种状态的政策。每家公司应向员工就如何、何地和何时报告疫苗接种情况提供额外的沟通渠道。*
+#### 翻译：不要代表我Kari
+编辑：小红帽
 
-*除了鼓励成员披露他们的疫苗接种情况外，工作组继续敦促所有成员、同事和他们的家人接种疫苗及**加强剂，同时理解有个人原因可能会阻止某些成员接种疫苗，例如健康问题或宗教信仰。*
+丹麦国家卫生委员会建议，可以为5至11岁的儿童接种新冠肺炎（COVID-19）疫苗，成为第一个做出此举的欧盟国家。
 
-*在参阅了 CDC**和 OSHA**最新指南后，工作组还决定目前在所有工作场所继续戴口罩最符合工人的安全利益。*
+周五，国家卫生委员会副主任海伦·普罗斯特（Helene Probst）告诉媒体，这一决定是基于北欧国家新冠肺炎病例持续上升的情况所作出的。
 
-这有助于正义的天平倾向所有美国工人。
+在董事会提出建议之前，欧洲药品管理局（EMA）于周四建议，辉瑞-生物技术公司的新冠疫苗可以安全地用于5岁以上的儿童。
 
-原文链接：https://www.zerohedge.com/political/big-three-us-automakers-agree-not-mandate-vaccines-uaw-union-members
+普罗普斯表示，虽然该年龄段的儿童没有患上严重的新冠肺炎的风险，但为他们接种疫苗可以帮助保护家人和朋友。
 
-发布：涅
-![](https://assets.gnews.org/wp-content/uploads/2021/11/農場文宣-3.jpg)
+国家卫生委员会还没有为5至11岁的年龄段儿童设定具体接种目标。“但如果我们达到70%的目标，那就再好不过了，”普罗普斯告诉媒体。
+
+政府甚至已经为家长们制作宣传手册，告诉他们为幼儿接种新冠疫苗的相关信息。
+
+原文链接：[First EU country backs Covid jabs for 5-year-olds — RT World News](https://www.rt.com/news/541456-denmark-vaccine-children-covid19-pfizer/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

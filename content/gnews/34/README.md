@@ -2,19 +2,33 @@
 ---
 
 
-## 秦刚当时来美国的目的
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1701466/)
+## GTV新闻访谈简报|2021年11月27日晚
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1701584/)
 
-文编：东京樱花团/樱花传媒
-视频:东京樱花团/中文小视频组
+作者：香草山翻译部
 
-11月26日，郭文贵先生在GTV大直播透露：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-422.jpeg)
 
-当时秦刚来纽约见了13个华人有两个原因。第一是因为美国开始清除和中共有勾结的华人组织，这让中共意识到在美国的排华趋势。第二除了毒品供应关系以外，更重要的是因为75%的华人在法拉盛选举中支持共和党，为了让华人投民主党，以影响选举，达到中共能控制纽约州州长的目的。
 
-*校对：东京樱花团/喜马拉雅的微尘*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1127text-SC.png)
+校对：Stay文苑
+
+编辑：Stay文苑
+
+发稿：Stay文苑
+
+视频参看：[11.27  晚GTV新闻访谈](https://gtv.org/broadcast/watch/61a2db2f44c1fe7a6c3a6331)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-416.jpeg)
+
+**更多资讯，更多关注**
+
+[纽约香草山农场 ｜GTV 香草山之声
+纽约香草山农场GTV- ｜MOS TALK 香草山访谈
+纽约香草山农场 | GETTR
+ 纽约香草山农场 ｜YouTube
+欢迎加入纽约香草山农场 | Discord](http://纽约香草山农场%20｜GTV%20香草山之声%20纽约香草山农场GTV-%20｜MOS%20TALK%20香草山访谈%20纽约香草山农场%20|%20GETTR%20%20纽约香草山农场%20｜YouTube%20欢迎加入纽约香草山农场%20|%20Discord)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
