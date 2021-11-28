@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/28/2021 10:52 PM (UTC)`
+
+11/28/2021 Miles Guo: We shall never forget the COVID virus originated from the CCP military’s biochemical weapons; The Chemical Defense College of PLA locates at Changping, Beijing and was built in 1998 and started its expansion since Xi Jinping took power<br/><br/>11/28/2021 文贵直播：大家不要忘记病毒是源自中共军方的生化武器，北京昌平的解放军防化学院建于1998年，其大肆发展是从习上台以后<br/>
+![img](https://media.gettr.com/group30/getter/2021/11/28/22/52/a3f30abe-d838-25ab-c6c4-3df927e4fe09/out.jpg)
+
+---
+
+`@miles 11/28/2021 10:45 PM (UTC)`
+
+七哥在9月26日就曾警告过：中共将在非洲放新病毒，放毒之时既是中美较量开启之日 - 科技战、医疗战、病毒战、疫苗战、货币战，黑暗时刻已经到来，一切皆在中共的计划之中<br/><br/>On September 26, Mr. Miles Guo warned that the CCP would release new virus in Africa and that the moment when the CCP releases the virus would be the beginning of the battle between the US and the CCP - the technological warfare, medical warfare, virus warfare, vaccine warfare, and currency warfare will start, and the darkness has arrived, with everything following the CCP’s agenda
+![img](https://media.gettr.com/group13/getter/2021/11/28/22/45/ccae3198-ba5a-cbe6-1423-35db5c996c68/out.jpg)
+
+---
+
 `@miles 11/28/2021 1:23 PM (UTC)`
 
 2021年11月28日 文贵大直播：新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破
@@ -141,20 +155,6 @@ Dr. Vladimir Zev Zelenko, a Ukrainian born, Zionist, Chasidic JEW has been arres
 
 11月25日：纽约自由号之船等待着战友们的到来…… <br/><br/>
 ![img](https://media.gettr.com/group21/getter/2021/11/26/00/17/3292729e-4688-20c9-4065-de272bca4f65/4ffcada956cd4859dc6fbb3afab232a3.jpg)
-
----
-
-`@miles 11/26/2021 12:05 AM (UTC)`
-
-11月25号：感恩节的快乐……
-![img](https://media.gettr.com/group33/getter/2021/11/26/00/05/e1e6b743-2424-5028-81e0-2cac35f4d4da/out.jpg)
-
----
-
-`@miles 11/25/2021 10:13 PM (UTC)`
-
-11/25/2021 Miles Guo’s GETTR: Changpeng Zhao of Binance has been fully colluding with the Chinese Communist Party to rob your money and take you out; if you cannot get your money out of Communist China, that money doesn’t belong to you, and it will drag you into disaster instead<br/><br/>11/25/2021 文贵盖特：币安赵长鹏已和中共全面配合图财害命，不离开中共国的钱不是你的钱，反而会要了你的命<br/>
-![img](https://media.gettr.com/group38/getter/2021/11/25/22/31a7a623-39f0-deb9-1991-5e6433131a40/out.jpg)
 
 ---
 
