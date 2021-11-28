@@ -2,30 +2,21 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月28日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1703462/)
+## 世界为何在病毒疫苗上如此步调一致
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1703469/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-421.jpeg)
+文编：东京樱花团/樱花传媒
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-29.png)
-文章仅代表作者本人观点，与Gnews无关
+视频:东京樱花团/中文小视频组
 
-视频参看：2021.11.28早GTV新闻访谈
+11月26日，郭文贵先生在GTV大直播指出：
 
-[https://gtv.org/video/id=61a3840944c1fe7a6c3ab3a7](https://gtv.org/video/id=61a3840944c1fe7a6c3ab3a7)
+为什么全世界所有的科学家、医院，媒体在疫苗问题上如此安静，病毒溯源上如此异口同声。人类对待二次大战都没有这么一致过，当全世界90%声音统一的时候：一是真的发生灾难。二是有一个超出大家想象力量在操控，两件事没有一件是好事。只有爆料革命一家说出真相，这不仅是灭共，是灭全世界的黑暗力量。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1-1.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-424.jpeg)
-
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

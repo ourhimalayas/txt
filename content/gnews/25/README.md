@@ -2,18 +2,30 @@
 ---
 
 
-## 文贵大直播 11/28 病毒变种意在天下大乱CCP乱中取胜
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1703405/)
+## GTV新闻访谈简报|2021年11月28日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1703462/)
 
-作者：回响 【秘翻Gnews原创组】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screenshot.png)图片来源：GTV
-近日有关南非病毒新变种Omicron各种消息，已经造成世界的恐慌。面对现场嘉宾关于此次变种真相的疑问，爆料革命发起人郭文贵先生毫不含糊地给了公众明确的来龙去脉。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-421.jpeg)
 
-病毒是解放军的生化武器，看近期中共外交部王毅、杨洁篪的行踪，看中共军方有关飞机的轨迹，爆料革命不是推测更不是猜测，是情报。是基于郭先生对CCP的了解。此次冬季病毒，主要在打了两针疫苗者人群中相互传染。其目的在于引发相关国家内部动乱，从而意在实现夺台，通过胁迫完成冬奥会。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-29.png)
+文章仅代表作者本人观点，与Gnews无关
 
-文贵先生从对当代人类专制独裁事实的独到研究和总结中，异常清晰、精准地分析了中共邪恶的缘由和行为轨迹。令现场学者、医生叹为观止。
+视频参看：2021.11.28早GTV新闻访谈
 
-【参考链接】https://gtv.org/broadcast/watch/61a3828b44c1fe7a6c3aaf2a
+[https://gtv.org/video/id=61a3840944c1fe7a6c3ab3a7](https://gtv.org/video/id=61a3840944c1fe7a6c3ab3a7)
+
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-424.jpeg)
+
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
