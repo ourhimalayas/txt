@@ -2,21 +2,26 @@
 ---
 
 
-## 中共早已计划使用细菌战
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1703496/)
+## 香草山翻译部周刊|2021年11月28日第24期
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1703536/)
 
-文编：东京樱花团/樱花传媒
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-421.jpeg)
 
-视频:东京樱花团/中文小视频组
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/text-CN-3.png)
+文章仅代表作者本人观点，与Gnews无关
 
-11月26日，郭文贵先生在GTV大直播指出：
+总编： GBWater
+编辑： Lakers
+发稿： Lakers
 
-你怎么知道天花病毒不是人类培育出来的？在中国西晋时就有了病毒杀人，细菌战已经发展二三千年了，各种宗教对异教徒的杀戮就使用过细菌战。为什么会告诉西方黑暗即将到来，西方人真是脑子不清楚，因为在那个时候已经有用细菌战灭掉恨的天主和基督教徒了。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-419.jpeg)
 
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1-1.png)
-
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 
