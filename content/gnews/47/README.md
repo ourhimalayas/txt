@@ -2,24 +2,39 @@
 ---
 
 
-## 半个中共国为北京冬奥会停工停产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699803/)
+## 日本将在明年推出一种由银行支持的加密货币
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1700054/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/223-1.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F6FAB%2Fproduction%2F_116778582_xxjpsgc007377_20201230_pepfn0a001.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fsports-56661963&amp;tbnid=Tb03yBTEh3noyM&amp;vet=12ahUKEwjvuL-Qsrj0AhVN4GEKHXDvDhkQMygFegUIARC2AQ..i&amp;docid=ZT7LpLnUMBomVM&amp;w=640&amp;h=360&amp;itg=1&amp;q=%E5%86%AC%E5%A5%A5%E4%BC%9A&amp;ved=2ahUKEwjvuL-Qsrj0AhVN4GEKHXDvDhkQMygFegUIARC2AQ)
-11月27日财经网报道，由于2022年初北京将承办两项重要奥运赛事（冬奥会将在2月4日—20日举行，残奥会将在3月4日举行），据中共国家环保部统计，华北、淮北、华西等多地空气严重污染，为实现碳中和达标，中央政府决定：2022年1月1日前关停华北、淮北、华西等重污染地区所有重工企业，重点河北唐山、天津、石家庄、张家口，承德、山东济南、威海，潍坊，山西太原、大同、长治，河南洛阳、郑州等地区，关停期限自2022年1月1日至2022年3月8日。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-北方区域大半被覆盖，工业企业被严格控制重污染减排、实行交通管制，必要时停产减产。水泥、制造业、煤化工、石油化工等多个行业以及涉voc工序的生产制造环节，生产线开工、错峰运行，面源、移动源减排方面，以及港口、物流运输等方面都有着严格的管控措施，也就意味着化工、重工业企业都将面临环保管制加严的局面。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/1_qmqe9fr-2rs5eotxzb5ggg.jpeg)
 
-中共国对6省65市发布了“停工令”，为所谓的冬奥会胜利召开，保证蓝天白云，晴空万里，半个中共国企业也将会面临停工停产，相应的工业民生产品供应将会出现短缺，继而引起涨价。
 
-信息来源：
 
-[【紧急！冬奥会“管控”来了！停工停产到2022年3月！】](https://page.om.qq.com/page/OI21m9iCM4VJ1nByOq-k3b4Q0)
+图片来源：www.finextra.com
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+
+#### 编译：小红帽
+
+日本即将向开发数字货币迈出重要一步。据路透社报道，一个由大约70家日本公司组成的财团于本周表示，他们计划在2022年推出一种基于日元的加密货币。该项目（暂称为 “DCJPY”）得到了日本最大的三家银行的支持。
+
+在周三的新闻发布会上，三菱日联金融集团、瑞穗金融集团和三井住友金融集团表示，他们自去年以来一直在开会，以建立一个共享的数字支付结算基础设施。
+
+该财团的其他一些成员包括东日本铁路公司和关西电力公司。他们计划在未来几个月开始测试该货币。该试验与日本银行为创建数字日元所作的工作是分开的。中央银行数字货币（CBDCs）是中国和美国也在探索的东西。
+
+对于日本来说，还有一个额外的激励因素在推动。日本是一个以热爱现金而着称的国家。即使在最近的2018年，该国80%的零售交易都是用纸币和硬币完成的。日本政府一直试图改变这种状况，以使该国的经济对消费者更友好，更有生产力。
+
+**参考新闻：**[Japanese firms will test a bank-backed cryptocurrency in 2022 | Engadget](https://www.engadget.com/japan-dcjpy-digital-currency-test-2022-013506959.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,107 +2,68 @@
 ---
 
 
-## 班农先生熬尽心思帮助中国人成立法治基金、法治社会
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1701269/)
+## 中共竭力炫耀优于美国的政治制度：2022年中国共产党代表大会将与美国的中期选举形成对比
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1701322/)
 
-[https://gtv.org/video/id=61a241343ff6481adce5291e](https://gtv.org/video/id=61a241343ff6481adce5291e)
+编译：东京樱花团/Hopkins
 
-**郭文贵**
-**Miles Guo**
 
-班农先生给我留下最深的印象，班农先生对中国人的了解
-I was most impressed by Mr. Bannon’s knowledge of the Chinese people
+```
+【编者按】临近年末，《经济学家》周刊发表了“未来世界 2022”（The World Ahead 2022）系列专栏文章，本文是系列文章之一。
+```
 
-就是你没有听到一个外国人对中国的了解
-You haven’t heard any one foreigner’s understanding of China
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-187.jpg)
 
-我给你们讲过，我在班农先生之前，
-I told you that, before I met Mr. Bannon
+```
+如果计划一切顺利，中国共产党将在2022 年实施一项羞辱美国的对比研究。中共领导人自己本身非常厌恶自由选举，但他们可以在媒体上嘲弄美国的民意调查。最近他们看到新闻头条栏目中预测民主党将在2022年11 月的美国中期国会选举中惨败，并指责美国政府面临许多不确定性，即使不是陷入僵局但还是存在分裂的危险。如果这些民意调查结果准确，中共的宣传机器将迎来一个新的机会，宣布中国因一党专政而享有秩序和繁荣，而美式民主只会带来混乱、功能失调和衰落。
+```
 
-我见了CIA的什么领导啊，FBI的领导啊, 什么国会的，
-I met CIA’s officials, FBI’s officials, and some officials in Congress
 
-我见了多了去了，没有一个人能说
-I met a lot of America’s officials, but none of them can say clearly
 
-他们都以为中国所有人都是共产党员, 也不知道中国的历史
-They all think that everyone in China is a Communist Party member, and they don’t know the history of China.
+```
+相比之下，北京的这一年将以党的二十大为主导，在人民大会堂的大理石柱子、红地毯和炽热的枝形吊灯之间进行严格控制的权力展示。这次聚会很可能在秋季举行，将标志着习近平作为掌握实权的中国最高领导人的第一个十年。这也可能确定习近平打算在位多长时间：五年？十年？还是被迫进入某种形式的半退休状态，垂帘听政？虽然这种情况不太可能发生。值得注意的是，习近平未来的计划可能在党代会结束时才会真正确定。届时他（或者可能是意外的党主席接班人）带领新的政治局常委按照严格的等级先后走上铺着红地毯的讲台。
+```
 
-班农先生讲，明朝、唐朝、汉朝，我说这哥们行啊
-Mr. Bannon talked about Ming Dynasty, Tang Dynasty, Han Dynasty, I said this guy is awesome
 
-俺俩，这个越聊越多，而且班农先生最多关注就是老百姓
-We talked more and more, and Mr. Bannon was most concerned of the Laobaixing
 
-他说中国老百姓太苦了，他真的觉得中国老百姓是非常棒的
-He said that the Chinese Laobaixing are too miserable, and he really thinks that the Chinese people are very good people
+```
+如果习近平确定在五年后下台，他将会挑选一两个可能的继任者在舞台上跟随他。目前，还没有兼具经验、年龄和与习近平关系密切的合适人选。或许他觉得至少要在 2032 年的党代会之前继续掌权，届时他将 79 岁，如果是这一结果习近平将在 11 月的党代会舞台上被一排穿着深色西装的不具威胁的人尾随：无论是长期的共产党忠诚者还是迅速崛起的后起之秀，他们要么太老要么太年轻，缺乏经验，无法在2027年党代表大会上接替现任老板。
+```
 
-他喜欢，他讲了各种例子，看到老百姓，香港啊，上海啊，
-He likes them and he told various examples, like he saw the Laobaixing in Hong Kong, Shanghai,
 
-他到了北京啊, 然后他见到了王岐山的感觉呀，他说中国王岐山简直就是个魔鬼
-and when he arrived in Beijing, then he met Wang Qishan, and he said that the China’s Wang Qishan is simply a devil
 
-然后他就觉得王岐山很怕他的平民运动，再一个他就听到我讲这些东西
-Then he felt that Wang Qishan was very afraid of his populism, and then he heard me talking about these things
+```
+党代表大会每五年举行一次。这些会议按照惯例会在几代领导人之间进行有序的权力转移。这种高层权力交接举动是提前五年发出信号的，但是习近平已经打破了最近的先例，拒绝在 2017 年党代会上任命继任者。毛泽东去世后，中共决定任何一个领导人都不应积聚过多权力或在位时间过长。
+```
 
-班农先生一个字不落，他没有任何应付,
-Mr. Bannon catches every single word that I said, he hasn’t done any perfunc-tory
 
-我从没见过班农先生跟谁说话，去应付这个事儿，这个是让我对他绝对的尊重
-I’ve never seen it before when Mr. Bannon talk to someone very perfunctorily, this is something that gives me absolute respect for him
 
-他是一个真正的大师，而且他真是博学
-He is a real master, and he is really knowledgeable
+```
+作为对这些规则的打击，习近平在 2018 年修改了中国宪法，取消了国家主席一职的任期限制——这是他所拥有的三个强大职位之一，其他二个更为重要的党总书记和中央军委主席，目前，还受到两届任期的约束。习近平的支持者说，只要他认为推进重要改革需要，他就必须留任。他的批评者是当今中国的一群沉默而恐惧的人，他们看到了防止个人独裁制度所面临的危险。
+```
 
-而且从中东、霍尔木兹海峡、高尔夫，然后整个红海到死海、俄罗斯、东欧、西欧
-And from the Middle East, the Strait of Hormuz, gulf, and then the entire Red Sea to the Dead Sea, Russia, Eastern Europe, Western Europe
 
-然后从非洲到美国的这个整个的内部战争和南北的整个战争
-Then from Africa to the civil war of the United States between North and South
 
-然后美国从华盛顿到这的历史，
-Then the history of the United States from Washington to now
+```
+无论习近平选择哪条道路，二十大很可能类似于共产主义的加冕礼。中共领导人看到了越来越多的理由对其政治制度的优势充满信心。在这以前，他们还对自己的治理模式持防御态度。现在中国外交官在联合国或世界贸易组织等机构获得了话语权，开始调整国际规范或全球规则，使世界更能接受中共版本的国家资本主义和专制。今天，中共特使们正处于攻势中，准备宣传他们的模式，作为一种比西方难以忍受的个人主义更好的集权模式。
+```
 
-我们谈的就是，哗, 就过去了六七个小时啊，就是班农先生，你真的跟他的生活中了解他的时候
-We have been talking for six or seven hours，when you really got to know Mr. Bannon in his life
 
-他完全和你在屏幕上时不一样的，这是我们第一次见面
-He is completely different from when you see him on the screen, this is the first time we met
 
-很多很多事情发生，他完全同意美国的所有的问题
-Many, many things happen, and he totally agrees of all the problems in the United States
+```
+与此同时，北京的官员处处看到威胁。他们确信美国及其盟国决心遏制中共。他们对外国人的任何批评不耐烦，并很快争辩说西方政府指责中国只是为了分散他们对自己失败的注意力。北京的气氛是自信、狂妄和偏执的奇怪混合体。这让习近平更加坚强。在描述当前的世界秩序时，他喜欢谈论“100 年未见的变化”。在这样的时刻，共产党押注最高领导人的连续性是最安全的做法。一段时间以来，中美之间的鸿沟一直在扩大，并在 11 月无聊刻板的党代会后进一步扩大，其幅度将会大得惊人。
+```
 
-很多都是共产党造成的，而且在非常的危险之中
-And many of them are caused by the Communist Party, and they are in great danger
 
-这是很重要的，小新，你翻译一下给班农先生
-This is very important, Xiaoxin, can you translate these to Mr. Bannon
+作者：大卫·雷尼（DAVID RENNIE）：《经济学家》周刊北京局局长和查关专栏作家（BEIJING BUREAU CHIEF AND CHAGUAN COLUMNIST, THE ECONOMIST）
 
-我说的观点也让西方观众听一听
-Let the western audiences hear my point of view
+信息来源：
 
-**原视频链接:**[https://gettr.com/post/phnq2r1bcb](https://gettr.com/post/phnq2r1bcb)
+[The World Ahead 2022 China hopes to flaunt the merits of its political system over America’s](https://www.economist.com/the-world-ahead/2021/11/08/china-hopes-to-flaunt-the-merits-of-its-political-system-over-americas)
 
-Date:11/26/2021
-原视频标题: 班农先生熬尽心思帮助中国人成立法治基金、法治社会
-Mr. Bannon worked so hard to help the Chinese people establish the rule of law foundation and the rule of law society
-原视频日期：2021/11/20
-原视频链接https://gettr.com/post/phnq2r1bcb
-任务编号：KC289（2994）
-视频时间段 : 0:00-1:56
-
-中听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 –天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
