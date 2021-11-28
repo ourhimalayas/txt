@@ -2,34 +2,37 @@
 ---
 
 
-## 中国网民关观提供中共镇压新疆维吾尔人新证据
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1702120/)
+## 马来西亚荒唐的疫苗有效期延期政策
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1702173/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-27.jpg)中国网民关观提供中共镇压新疆维吾尔人新证据 网络图片
-据自由亚洲电台11月27日报道，一个名为“关观”（Guanguan）的中国年轻人依靠2017年的Mapbox卫星地图和中共国的百度搜索引擎来获取中等分辨率的卫星图像，实地探访了新疆的几个城市，拍摄了一段20分钟的纪录片，提供了中共国镇压维吾尔人的新证据，证实了中共国建有庞大的再教育集中营并散布在不同的地区，但在地图上并没有标志。他提供了18个不同的拘留设施和一个以前的设施证据和镜头。
-
-由于中共政府限制，外国记者很难进入新疆进行采访。Buzzfeed新闻网站和澳大利亚战略政策研究所 (ASPI) 此前根据卫星图像发布了有关再教育营的报告。建筑师和地理空间分析师艾莉森·基林帮助Buzzfeed新闻网站绘制了一张用卫星图像制作的地图，用于报道新疆再教育营的情况。艾莉森·基林、Buzzfeed新闻网站记者梅加·拉贾戈帕兰和程序员兼数字安全培训师克里斯多·布谢克的系列报道赢得了今年普利策国际报道奖。
-
-中共国使用人工智能、区块链和云计算等技术，建成世界上最广泛的网络监视系统，该系统由一个无处不在的数字化系统执行，从手机、个人电脑和安全摄像头收集了大量数据，通过监视无人机、面部识别摄像头、手机扫描和大批警察对目标人群实施政治和社会控制。
-
-世界维吾尔代表大会主席多里坤•艾沙对拜登总统在与习近平的视频峰会期间提到中共国对维吾尔人的暴行表示感谢，“如果不是美国谴责中共国对维吾尔人进行种族灭绝，今天的情况可能会更糟。拜登政府必须抵制北京冬奥会，否则，只会助长中共国继续犯下种族灭绝罪行。”
-
-中共当局多年来任意逮捕新疆维吾尔人和其他突厥少数民族，并限制他们的宗教活动和文化影响。美国政府在特朗普任职时宣布，中共国在新疆虐待维吾尔人的行为构成危害人类罪和种族灭绝罪。中共拒不承认其罪行，在新疆继续进行犯罪活动。如果国际社会继续容忍中共的罪行，这种独裁、扩张的专制政权可以毁掉西方的民主制度。现在全球统一实施的强制疫苗政策就是种族灭绝的延伸。在强制令面前，没有任何豁免，每个人必须接种毒针。可喜的是，全球一直在抗争，为着自由和民主，为着尊严和生命。虽然形势依然严峻，但全球觉醒的人越来越多。随着抗争的持续和加剧，最终民主自由必将战胜邪恶独裁，中共必然会被全球联合势力绞杀。
-
-新闻参考链接：[https://www.rfa.org/mandarin/zhuanlan/jieduxinjiang/xj-11272021024137.html](https://www.rfa.org/mandarin/zhuanlan/jieduxinjiang/xj-11272021024137.html)
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+作者： 香草山金融部 – AT
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
 
 
+截止到11月23日，马来西亚已经有2500万人完成疫苗接种，占总人口78%，共施打5200万剂。接种比率在全世界都属比较高的行列，现在大力推广儿童接种和60岁以上老人打加强针。
+
+11月16日，马来西亚药剂监管局批准由PLS公司灌封的科兴疫苗有效期限，将从瓶身原有标签标注的日期，获延长6个月，即从原本6个月延长至12个月；同时，Pfizer Manufacturing Belgium NV公司，以及德国BioNTech Manufacturing GmbH公司生产疫苗，有效期限将加长3个月，即从原定的6个月延长至9个月。并且这些规定也适用于相关公司在此申请获批前的所有疫苗供应，包括现有的疫苗有效期限，和即将接获的疫苗供应。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture13.jpg)
+疫苗生产，运输，保存都是有严格要求的，马来西亚政府竟然无视人民身体健康安全，拍脑袋做决定。一方面叫嚣尊重科学鼓励大家打疫苗，另一方面公然违背疫苗出产标识，由政府管理部门自己独立更改有效期，既对人民不负责任，更缺乏严紧的对科学尊重的态度，更显示了卑鄙政客对本国人民生命的漠视。
+
+自从疫苗开打以来，多国政府都超额大量采购疫苗，随着疫苗真相的揭露，及越来越多的人站出来勇敢的说出疫苗危害，各国政府在推进疫苗接种也遇到强大阻力。所有珍视生命安全的人民一定要坚定的抵制强制疫苗，只要人民团结抗争，人民的大觉醒一定会到来。
+
+信息来源: [马来西亚荒唐的疫苗有效期延期政策](https://www.chinapress.com.my/20211116/%E8%8D%AF%E5%89%82%E7%9B%91%E7%AE%A1%E5%B1%80%E5%85%81%E5%87%86-%E8%BE%89%E7%91%9E-%E7%A7%91%E5%85%B4-%E7%96%AB%E8%8B%97%E6%9C%89%E6%95%88%E6%9C%9F%E5%BB%B6%E9%95%BF)
+
+编辑/校对/发稿: Hetangyuese
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-7.jpg)
+
+**For more information, please follow us at:**
+[**New York MOS Himalaya ｜GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**New York MOS Himalaya ｜MOS TALK**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**New York MOS Himalaya | GETTR**](https://www.gettr.com/user/himalaya_mos)
+[**New York MOS Himalaya ｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**Free to Join New York MOS Himalaya | Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
 
  
 

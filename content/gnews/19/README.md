@@ -2,36 +2,38 @@
 ---
 
 
-## 视频| 共产党和世界黑暗势力所谓的“以需淘汰”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1701986/)
+## 9月24日采访喜马拉雅交易所首席执行官杰西·布朗-关于未来节目
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1702130/)
 
-## 摘自郭先生2021.11.26大直播
-
-制作：香草山视频部
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
 
 
-
-我觉得首先现在共产党的毒，它有两个支柱，疫苗就是它最重要的毒，第二个到目前，我觉得是其它这个毒还不是它放的，我认为它再放一定比这毒得多，恶毒！我很担心美国这次感恩节这么多人出去，我真担心美国人。
-第三个，很多人说到底它放毒的目的是什么，共产党跟谁在勾兑，共产党与（之）勾兑的所有人追求就两点，就两条，第一，把世界的人类人口减少，大量减少！大量减少！然后实现一个全球的所谓全球主义，啥叫全球主义呢？就是全球是一家说了算，这一家是谁呢？就各国的政府，成为它的所谓的各种县级单位，分支机构，有一个地球政府，这个地球政府就是共产党和这个邪恶势力搞的！那以后就以你的基因，它控制你的基因了，控制你的思维了，控制你的老弱病死了，没有优胜劣汰这个词了，只有一个是，它就是以需淘汰——我(地球政府)需要淘汰谁就淘汰谁！是吧，它就是要实现这个，它再也没有被威胁了。这是我认为是很可怕的，很多人不相信这事，75亿人口全人类，不超过10亿人是受过最高等教育，脑子是清楚的，就是每75个人里面只有10个人是冷静的，这75个人里面60个人65个人，包括咱们家人，你们的家人，我的家人，都是存在一个所谓跟动物不一样的在社会上有吃有喝就满足的人，被这些人理解为这就是我们的奴隶。全球主义化的必须，我以后不是优胜劣汰，以需淘汰。那么接下来再放毒是干嘛呢？它再放毒就很简单，就是促进你打疫苗，绝对所有的毒，它不是目的，疫苗才是目的！你们一定要记住爆料革命给这个人类带来最伟大的贡献，就是提前2020年2月8 号七哥就告诉（全世界）疫苗才是目的，疫苗才是灾难！而且绝对这病毒不是来自自然，是共产党的生化武器，从现在来看，我觉得在这之前没放毒，但是我觉得共产党再放毒，一定是大毒，目的还是要对疫苗来的。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
 
 
+托尼：我们的粉丝在未来的节目中可以期待什么？
 
-发稿：雪梨
+杰西：首先我要感谢大家对我们的产品、服务，以及最重要的是对我们的使命感兴趣，未来的节目将邀请我们许多优秀的高管，他们将更深入地探讨我们的技术、我们的安全和我们的监管能力。因此，我认为在未来的一些节目中，你将会见到这些利益相关者，你将会听到他们对我们如何走向未来的看法。
 
-![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+我真的很期待再次见到大家，我认为这真的很棒，我希望我已经回答了你们可能有很多问题，在未来，我愿意随时接受大家采访，和你们所有人讲话，这对我来说是太棒了！
+
+参考来源：
+1. [https://gtv.org/video/id=614dd0ef42a8af3151a47b8e](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+2. [Interview with Himalaya Exchange CEO Jesse Brown- English Transcript of First Episode, September 24th](https://gnews.org/1593083/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+校对：文唐
+
+编辑/校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

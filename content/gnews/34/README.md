@@ -2,30 +2,30 @@
 ---
 
 
-## 首次在四个“完全接种疫苗者”体内检测出Omicron变种病毒
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1701747/)
+## 澳洲总理表示新变种病毒的出现不会带来2020年初的挑战
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1701843/)
 
-#### 翻译：皮特
-编辑：MSGZ
-![](https://assets.gnews.org/wp-content/uploads/2021/11/812-3.jpg)图片来源：TRT
-**根据博茨瓦纳政府的一份公开声明，新冠的新“Omicron”变种病毒是首先在四名完全接种疫苗的人身上检测到的。**
-**这个新变种是最初在博茨瓦纳发现的，然后传到整个南非。据称其传染性比德尔塔变种病毒强三倍。**这一消息引起了全球恐慌，致使金融市场暴跌，引发新的旅行禁令。
+#### 翻译/撰稿：黃金精神
 
-根据博茨瓦纳政府的一份公开声明，此新突变**事最先在四名接种过两剂新冠疫苗的人身上发现的**。该报告称，在11月22日就报告并记录了四例新变种。
-博茨瓦纳当局**称：“初步报告显示，所有四人都已完全接种新冠疫苗**。”
-在随后的声明中，政府透露，“是在2021年11月7日进入博茨瓦纳执行外交任务的四名外国公民身上发现了此新变种。”声明称：“四人是在2021年11月11日准备返回时被检测出COVID-21阳性。”
-“好消息是，与感染者密切接触的其他人“没有新冠症状，并且新冠检测呈阴性”。
-“正如我们之前强调的那样，根据比利时首相的说法，Omicron 变种具有潜在的巨大的破坏性，因此应将其称为“COVID-21”。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-47.jpg)图片来源：DW
+据澳联社 （Australian Associated Press）11月28日的报道，澳大利亚总理斯科特·莫里森（Scott Morrison）向人们保证，随着新变种的出现，该国不会面临与2020年初中共病毒首次到来时一样的挑战。
 
-与此同时，南非首席医学官安吉丽·库切博士将这种恐慌描述为“茶杯中的风暴”，并补充说，到目前为止她只见过“非常非常轻微的病例”
-链接：[Omicron Variant First Detected In Four “Fully Vaxx’d” People, SA Medical Chief Only Seen “Very, Very Mild Cases” | ZeroHedge](https://www.zerohedge.com/covid-19/omicron-variant-first-detected-four-people-who-were-fully-vaccinated)
+莫里森说，Omicron的出现是一个快速发展的问题，但政府将继续以最佳医疗建议为指导。莫里森周日在堪培拉对记者时说：“这与（今年）2月、3月和2020年时的情况不一样。我们现在有很好的知识，很好的建议，不确定性不像过去那样，我们有很好的系统，这一点已被证明。”
 
-**发布：文泓** 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+对新变种Omicron的担忧已经使得澳大利亚对九个非洲南部国家关闭边境，各州对国际入境者实行新的规定。
+
+维多利亚首席卫生官布雷特·萨顿（Brett Sutton）说，对Omicron的了解还不够，但它似乎是一个非常容易传播的变体。萨顿在墨尔本面对记者时说：“Omicron似乎在非洲南部，特别是在南非共和国传播得非常快。在很短的时间内，感染人数显著增加，俨然成为该国的主要病毒变体。”
+
+即便如此，反对党领袖安东尼·艾班尼斯（Anthony Albanese）对各州政府的迅速行动表示祝贺。他在墨尔本对记者表示，这种毒株可能造成真正的问题，它的传播速度很快，需要采取任何必要的措施（防止传播）。
+
+新南威尔士州州长多米尼克·普罗特（Dominic Perrottet）表示正在进行紧急基因组测序，以确定Omicron是否已经到达悉尼。
+
+两人连夜从非洲抵达时检测出中共病毒阳性，目前正在调查他们是否携带Omicron变体。
+
+新南威尔士州、维多利亚州和澳大利亚首都地区已经对国际入境者实行了为期三天的家庭隔离要求。
+
+**新闻来源：[https://www.aap.com.au/news/australia-ready-for-omicron-covid-variant/](https://www.aap.com.au/news/australia-ready-for-omicron-covid-variant/)**
 
  
 

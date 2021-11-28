@@ -2,46 +2,39 @@
 ---
 
 
-## 9月24日采访喜马拉雅交易所首席执行官杰西·布朗-为什么要投资于HCN？喜马拉雅交易所的优势是什么？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1701887/)
+## 视频| 青蒿素的功效
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1702000/)
 
-翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+## 摘自郭先生2021.11.26大直播
+
+制作：香草山视频部
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
+
+我今天的建议你们是一定要记住，打了疫苗的一定要吃好的青蒿素，在医嘱的情况下，这个是太管用了，打了疫苗的要吃。
+第二、女性绝对美容。
+第三、绝对壮阳。
+第四、对癌症绝对有绝效
+还有一个，更重要的兄弟姐妹，你看咱们GFASHION马上推出了我用了几十年的秘诀：青蒿素和玉米地的咱们的化妆品，无色，男女适用，咱就要出来了，那就是青蒿素，还有一个大家要记住的：老人到老年所有的综合症青蒿素绝对管用。这是今天告诉青蒿素，特别是打了疫苗的，特别是有病的（感染ccp病毒的），我再重申一遍，所有羟氯喹不治病，羟氯喹是一个工具，羟氯喹+锌+伊维菌素绝对是防冠状病毒，治冠状病毒，这是他完全承认的，国内的战友，说，那位大胡子医生讲得是非常好的，他说，但是我告诉你，未来解疫苗他说它管用，它管用没那么厉害，青蒿素解疫苗绝对比它厉害。再一个，青蒿素吃了，吃正确了，几乎所有疫苗所有病毒没有任何可能侵害你身体，再告诉大家，你要天天吃羟氯喹+锌会吃死你的，一定记住！青蒿素不能天天吃，羟氯喹+锌绝对不能天天吃，伊维菌素一定要有中间2-3周的停止期，否则一定会吃死你的，所以说我今天再次告诉，这是救命啊！所以兄弟姐妹们一定要记住，铁，缺铁缺锌还有一个女性，还有一个不能天天吃，还要吃对，再一个就一定记住，青蒿素可以单独吃，然后补铁补啥的你看Eglise医生的那建议非常好！越来越发现青蒿素不仅是解药，不仅是病毒的解药它还治癌症，还壮阳，还壮（滋）阴，哇塞，神药！
 
 
-椰子: 我们为什么投资喜马拉雅币？
 
-杰西: 我想你会很想知道我们的优势是什么。我们不仅资金充足，而且已经盈利了。没有多少新公司能做出这样的声明。我们也是该领域的投资者。我们正在积极寻求收购和加入我们的生态系统。我们的全球支付能力将商家和客户连接起来，真正没有跨境摩擦。
+发稿：雪梨
 
-另一个优势是我们稳健的监管方式，我们拥有行业内最严格的合规性。对我们的产品和我们发行的硬币都有很高的需求。
-
-我提到过我们每天都被审计，我们的稳定币是喜马拉雅美元，它是一个基于以太坊的ERC-1404代币与ERC-20向后兼容。我们的稳定币是固定于美元，由美元和现金等价物组成的储备支持。虽然喜马拉雅币的市场价格可能会波动，但喜马拉雅美元的美元固定价值为交易者和投资者提供了一个安全的避风港。正如我之前所说HCN和HDO可以通过喜马拉雅支付，和喜马拉雅交易所的相关交易市场进行交换。
-
-我们也是无缝的。我们的平台设计得很直观，其界面能够轻松购买和出售这些资产。
-
-速度是我们的另一个优势，事情瞬息万变，我们使您能够以极低的费用以超音速进行交易。
-
-真正体现我们力量的是我们有全天24小時、每周7天、365天的支持。我们的服务台随时提供服务，你所要做的就是开辟一条沟通渠道，我认为这些优势和我们代币的协议是我们的真正价值。
-
-参考来源：
-1. [https://gtv.org/video/id=614dd0ef42a8af3151a47b8e](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
-2. [Interview with Himalaya Exchange CEO Jesse Brown- English Transcript of First Episode, September 24th](https://gnews.org/1593083/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
-
-校对：文唐
-
-编辑/校对/发稿：Hetangyuese
+![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

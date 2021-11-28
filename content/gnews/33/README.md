@@ -2,20 +2,44 @@
 ---
 
 
-## 新变种“奥米克戎”首现于2剂疫苗接种者、症状非常轻微
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1701763/)
+## 丹麦成为第一个为5岁儿童接种新冠疫苗的欧盟国家
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1701883/)
 
-编译：致敬香港！
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-42.png)
-图片来源： https://www.dw.com/
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-近日又一种被宣传得如洪水猛兽般的新冠病毒变种——“奥米克戎”（Omicron）——被发现于博茨瓦纳和南非等非洲国家。据“零对冲”网11月27日报道，博茨瓦纳政府25日在一份公开声明中透露，这个新变种最早发现于4名接种了2剂新冠疫苗的人身上。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/106972926-16364849812021-11-09t013129z_786024702_rc2kqq9xi22v_rtrmadp_0_health-coronavirus-usa-children.jpeg)
 
-当局的声明表示，被检测到该变种病毒的为4名外国公民，他们11月7日入境，11日离境时被测出病毒阳性，而跟他们密切接触的其他人则没有检测到感染。
 
-因有消息称这个新变种的传染性增强了3倍之多，触发了一轮各地金融市场的暴跌、和实施又一波旅行禁令等恐慌。但南非医学协会主席安吉丽克·库切（Angelique Coetzee）博士表示，迄今为止这个新变种引发的病症都“非常、非常地轻微”，没必要小题大做、煽动恐慌。
+图片来源：CNBC
 
-**新闻来源：** [Omicron Variant First Detected In Four “Fully Vaxx’d” People, SA Medical Chief Only Seen “Very, Very Mild Cases”](https://www.zerohedge.com/covid-19/omicron-variant-first-detected-four-people-who-were-fully-vaccinated)
+
+#### 翻译：不要代表我Kari
+编辑：小红帽
+
+丹麦国家卫生委员会建议，可以为5至11岁的儿童接种新冠肺炎（COVID-19）疫苗，成为第一个做出此举的欧盟国家。
+
+周五，国家卫生委员会副主任海伦·普罗斯特（Helene Probst）告诉媒体，这一决定是基于北欧国家新冠肺炎病例持续上升的情况所作出的。
+
+在董事会提出建议之前，欧洲药品管理局（EMA）于周四建议，辉瑞-生物技术公司的新冠疫苗可以安全地用于5岁以上的儿童。
+
+普罗普斯表示，虽然该年龄段的儿童没有患上严重的新冠肺炎的风险，但为他们接种疫苗可以帮助保护家人和朋友。
+
+国家卫生委员会还没有为5至11岁的年龄段儿童设定具体接种目标。“但如果我们达到70%的目标，那就再好不过了，”普罗普斯告诉媒体。
+
+政府甚至已经为家长们制作宣传手册，告诉他们为幼儿接种新冠疫苗的相关信息。
+
+原文链接：[First EU country backs Covid jabs for 5-year-olds — RT World News](https://www.rt.com/news/541456-denmark-vaccine-children-covid19-pfizer/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
+
 
  
 
