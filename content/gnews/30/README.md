@@ -2,128 +2,203 @@
 ---
 
 
-## 小罗伯特·肯尼迪：福奇是制药业的孵化器
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1701186/)
+## 疫苗次生危机还没到来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1701227/)
 
-[https://gtv.org/video/id=61a0df953ff6481adce48118](https://gtv.org/video/id=61a0df953ff6481adce48118)
+[https://gtv.org/video/id=61a23d773ff6481adce527aa](https://gtv.org/video/id=61a23d773ff6481adce527aa)
 
-**Robert Kennedy Jr**
-**小罗伯特·肯尼迪**
+**郭文贵**
+**Miles Guo**
 
-Now they’re all hooked into the system of what they now want to see this drug push out
-现在他们都绑在了推销病毒疫苗的大船
+任何人在这时候
+Anyone at this time
 
-Tony Fauci takes this drug push to the FDA approval process
-托尼·福奇将这种药物推向食品和药物管理局批准程序
+还想说服别人来证明自己的正确
+still wants to persuade others to prove yourself correct
 
-that’s the approval
-就是因为如此
+为了说服别人能证明自己积德行善
+and to prove that you are doing good deeds,
 
-He had a huge incentive of the nature has to prove it
-他有一个巨大的自然动机必须证明这一点
+你就是太无知了
+then you are too ignorant
 
-because he controlled some money
-因为他控制了一些钱
+这真的说不清道不明的这种
+It’s really hard to tell this
 
-he also controls people who are putting on those committee
-他还控制着审批委员会的人
+贪嗔痴慢疑的这个“痴”字
+word “foolishness” from the five minds of greed, hatred, foolishness, arrogance, and suspicion
 
-Tony Fauci always said saying this was approved by independent committee.
-托尼·福奇总是说这是来自独立委员会的批准
+在每个人身上体现得淋漓尽致
+It is vividly reflected in everyone
 
-Oh, Lancet committee
-哦，《柳叶刀》委员会
+这个执着心已经把很多人完全给迷了双眼
+This attached mindset has completed blinded many people
 
-knowing investigated Wuhan lab the independent committee.
-因调查了武汉实验室的独立委员会而闻名
+没了智慧
+and lost their wisdom
 
-If you look at the people who are on that committee
-如果你看看在那个委员会的人
+在这个问题疫苗灾难问题面前
+When we facing this problem of vaccine disaster,
 
-26 out of 27 people on Lancet of people are receiving Tony Fauci’s checks
-《柳叶刀》上的 27 个人中有 26 人在工资单上收到了托尼·福奇
+刚才谈的喜币
+the HCoin that we just talked about
 
-on the payroll,
-的酬劳
+什么币安都是鸟事了
+and whatever the Binance is nothing
 
-on the payroll and people who approve the various vaccines, Pfizer vaccines and other international vaccines
-批准各种疫苗、辉瑞疫苗和其他国际疫苗的人
+你活着这些有你的
+You will have a share when you are alive
 
-that they are on the payroll of Tony Fauci, NIH and Bill Gates.
-他们也在托尼·福奇、美国国立卫生研究院和比尔·盖茨的工资单上
+不活着啥都不是你的
+otherwise nothing would be yours
 
-Oh, these are not their PIs
-哦，这些不是他们的独立调查员
+你没了就没了，有了就有了
+Everything will be useless if you are gone, you will have them if you are here
 
-the chairs of those university in their spares time
-那些大学的主席们在他们的业余时间
+就这么简单
+It’s just that simple
 
-sit on these committees that approve its other drugs.
-坐在这些批准其其他药物的委员会中
+只有新中国联邦，全人类就咱这么牛
+In the mankind, only us, the New Federal State of China is that awesome
 
-Oh, that’s how the system works.
-哦，系统就是这样工作的
+从第一天到现在
+Since the first day till now,
 
-And between 2009 and 2016,
-而在 2009 年和 2016 年之间
+更重要的事情
+the more important thing is that
 
-I think was 250 some drugs approved by FDA
-我认为有250 种药物被食品和药物管理局批准了
+你永远不知道感谢新中国联邦
+you never know how to thank the New Federal State of China,
 
-and every single one of those came through Tony Fauci shop.
-而且他们中的每一个都来自托尼·福奇工厂
+真正的该如何感谢
+how to really thank by heart
 
-Oh, he is a pharmaceutical company.
-哦，他是一家制药公司
+就是我们能让战友不打疫苗这件事
+Just by the fact that we can prevent our comrades from being vaccinated
 
-He is not a public health person,
-他不是公共卫生人员
+我可以说我们荣耀一万辈子都不夸张
+I can say that we are not an exaggeration of our glory
 
-manufacturer,
-而是制造商
+因为让你存在
+Because it allows you to survive
 
-he is a pharmaceutical incubator.
-他是一个医药业的孵化器
+就我越看这么多人无知
+The more I see so many ignorant people
 
-He is part of the industry, he is profit making, you know
-他是这个行业的一员，他是赚钱的，你知道的
+我越尊重新中国联邦
+the more I respect the New Federal State of China
 
-Tony Fauci was asking about this drug by the New Yorker magazine
-托尼·福奇在《纽约客》杂志上被询问到这种药物
+我每天看着这（新中国联邦）旗的时候
+when every day I look at this New Federal State of China flag
 
-you know acting like 2005，what it is?
-表演的像 2005年, 是什么？
+救（了）这么多人
+We have saved many lives
 
-A very extraction make his favorite movie and favorite line?
-表演他最喜欢的电影和最喜欢的台词
+咱救太多人了
+We have saved so many lives
 
-And that’s easy. It’s it’s “The Godfather”
-这很容易, 这就是“教父”
+可是我希望你们真的懂得
+But I hope you really understand
 
-and and the line is it’s “it’s just business”
-而且重点的台词是“这只是生意”
+兄弟姐妹们
+brothers and sisters
 
-and that’s really the theme, the theme is “it’s just business”
-这就是真正的主题，主题是“这只是生意”
+疫苗灾难还没开始
+The vaccine disaster has not yet begun
 
-it’s daunting personally not just making money here and making power
-这门生意，不光是赚钱，而且还能塑造权利，真实让人望而生畏
+那比你想象的要差得多
+It is much worse than you think
 
-**原视频链接:** [https://twitter.com/kukicat7/status/1463613184313643010?s=21](https://twitter.com/kukicat7/status/1463613184313643010?s=21)
+因为你在阳光下
+because you are in the daylight
 
-Date:11/25/2021
-**原视频标题:** Robert Kennedy Jr.: Fauci is pharmaceutical incubator…
-小罗伯特·肯尼迪：福奇是制药业的孵化器……
-原视频日期：2021/11/25
-原视频链接: https://twitter.com/kukicat7/status/1463613184313643010?s=21
-任务编号：KE348（3010）
-视频时间段 : 0:00-2:17
+当你在黑夜中没有电灯的时候
+When you are in the dark without electricity,
 
-英听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作: 洛杉矶盘古农场 –天涯行
-审片： 洛杉矶盘古农场 – 银龙
+你就知道黑暗真的来了
+then you’ll know the darkness is really coming
+
+不是你两天能藏点饭吃
+It’s not just two days while you still have food left
+
+后天能藏点饭吃
+or three days that you still can eat what you have saved
+
+是很多天的时候
+When that situation last many day,
+
+到处像洛杉矶像旧金山拿枪抢劫LV店一样
+like Los Angeles and San Francisco people robbed an LV store with a gun
+
+到处抢劫的
+There would be robbery everywhere
+
+很恐怖的
+It’s very scary
+
+还有一个，你们真不知道
+Also, there is another one that you really don’t understand
+
+新中国联邦让你不打疫苗意味着什么
+that what does it mean for the New Federal State of China preventing you from vaccinated
+
+太伟大了，太伟大了
+It’s so extraordinary
+
+不但让你不打疫苗，还救这么多人
+because not only prevents you from getting vaccinated, but also saves so many people
+
+珍惜我们新中国联邦吧，兄弟姐妹们
+Brothers and sisters, let’s cherish our New Federal State of China
+
+你喝什么以后
+What would you drink in that situation?
+
+绝对不会让你买得到水
+You are absolutely not able to buy the drinking water,
+
+买到你也花不起这钱
+and it’ll be too expensive to buy if it is available
+
+（有人说）我要烧水，你有电吗？你有气吗？
+You may say that I can boil the water, but where is the electricity or gas?
+
+三天水只要你喝不好
+It only takes three days if you keep drinking non-drinkable water,
+
+你就开始拉肚子得疟疾
+you would start to have diarrhea and malaria
+
+你会看到像大卫三天（就会）拉疟疾
+You would have diarrhea in three days as David had
+
+像飞飞、卡丽熙，你脸都变形
+and your facial would be changed as Feifei and Kalixi had experienced
+
+我不是跟你们开半点玩笑
+I’m not joking with you at all
+
+你不准备好这一刻那走着看吧
+You will see when that moment comes if you are not ready
+
+灾难在后边呢
+The disaster has yet to come
+
+**原视频链接:** [https://gettr.com/post/phtknu1333](https://gettr.com/post/phtknu1333)
+
+Date: 11/26/2021
+原视频标题: 疫苗次生危机还没到来
+The Vaccine Crisis Has Not Yet Arrived
+原视频日期：2021/11/24
+原视频链接: https://gettr.com/post/phtknu1333
+任务编号：3016
+视频时间段 : 0:00-2:06
+
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
 洛杉矶盘古农场欢迎您加入:(或点击上方图片）

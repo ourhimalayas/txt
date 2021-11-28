@@ -2,30 +2,38 @@
 ---
 
 
-## GTV新闻访谈简报|2021年11月27日早
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1700740/)
+## 美国国会议员无视中共反对再次访台并会见蔡英文
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1700888/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-8.png)
+#### **撰稿：**日本东京方舟农场 Kevin wang
 
-作者：香草山翻译部
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-28.png)
-文章仅代表作者本人观点，与Gnews无关
+![](https://assets.gnews.org/wp-content/uploads/2021/11/CB5F43AD-F44A-4AC6-9966-E10F1A60E697.jpeg)（图片来自大纪元）
 
-视频参看：2021.11.27早GTV新闻访谈
+据《美国之音》11月26日报道，美国国会众议院的五位两党议员再次访问台湾，并会见台湾总统蔡英文，重申了美国对台湾的支持“坚如磐石”。
 
-[https://gtv.org/broadcast/watch/61a2325044c1fe7a6c3a355b](https://gtv.org/broadcast/watch/61a2325044c1fe7a6c3a355b)
+据美国在台协会公布的消息，美国国会众议院两党议员于周四晚抵达台湾，并于星期五上午会见了台湾总统蔡英文。
 
-编辑： Lakers
-校对： Lakers
-发稿： Lakers
+此次赴台访问团的成员有：民主党籍国会众议员斯洛特金（Elissa Slotkin）、高野（Mark Takano）、奥尔雷德（Colin Allred）和雅各布斯（Sara Jacobs），以及共和党籍众议员梅斯（Nancy Mace）。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-7.jpg)
+来自密歇根州的众议员斯洛特金星期五在推特上披露，此次访台消息一传出，她的办公室就收到中共国大使馆的一条直白信息，要求她取消行程。但最终，斯洛特金无视中共的反对，依旧赴台会见蔡英文。
 
-**更多资讯，更多关注**
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+担任众议院退伍军人事务委员会主席的高野表示：“我们本周来到台湾，是为了提醒我们的伙伴和盟友，在经历了两年的艰难时期后，我们对自由和安全的印太地区的承诺和共同责任，比以往任何时候都更加坚定。”
+
+高野还表示，美国与台湾的关系坚如磐石，并随着双方之间关系的加深而更更加稳定。
+
+这是美国国会议员今年第三次访问台湾。就在几周前，由六名共和党国会议员组成的代表团刚刚访问过台湾。
+
+此外，拜登政府还邀请台湾参加下个月的民主峰会，这一决定同样遭到中共的强烈谴责。
+
+*参考链接：[https://www.voachinese.com/a/us-taiwan-visit-20211126/6328781.html](https://www.voachinese.com/a/us-taiwan-visit-20211126/6328781.html)*
+
+* * *
+
+*素材采编：Kevin wang*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
 
  
 

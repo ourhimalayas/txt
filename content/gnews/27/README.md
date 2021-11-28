@@ -2,202 +2,100 @@
 ---
 
 
-## 疫苗次生危机还没到来
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1701227/)
+## 班农先生熬尽心思帮助中国人成立法治基金、法治社会
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1701269/)
 
-[https://gtv.org/video/id=61a23d773ff6481adce527aa](https://gtv.org/video/id=61a23d773ff6481adce527aa)
+[https://gtv.org/video/id=61a241343ff6481adce5291e](https://gtv.org/video/id=61a241343ff6481adce5291e)
 
 **郭文贵**
 **Miles Guo**
 
-任何人在这时候
-Anyone at this time
+班农先生给我留下最深的印象，班农先生对中国人的了解
+I was most impressed by Mr. Bannon’s knowledge of the Chinese people
 
-还想说服别人来证明自己的正确
-still wants to persuade others to prove yourself correct
+就是你没有听到一个外国人对中国的了解
+You haven’t heard any one foreigner’s understanding of China
 
-为了说服别人能证明自己积德行善
-and to prove that you are doing good deeds,
+我给你们讲过，我在班农先生之前，
+I told you that, before I met Mr. Bannon
 
-你就是太无知了
-then you are too ignorant
+我见了CIA的什么领导啊，FBI的领导啊, 什么国会的，
+I met CIA’s officials, FBI’s officials, and some officials in Congress
 
-这真的说不清道不明的这种
-It’s really hard to tell this
+我见了多了去了，没有一个人能说
+I met a lot of America’s officials, but none of them can say clearly
 
-贪嗔痴慢疑的这个“痴”字
-word “foolishness” from the five minds of greed, hatred, foolishness, arrogance, and suspicion
+他们都以为中国所有人都是共产党员, 也不知道中国的历史
+They all think that everyone in China is a Communist Party member, and they don’t know the history of China.
 
-在每个人身上体现得淋漓尽致
-It is vividly reflected in everyone
+班农先生讲，明朝、唐朝、汉朝，我说这哥们行啊
+Mr. Bannon talked about Ming Dynasty, Tang Dynasty, Han Dynasty, I said this guy is awesome
 
-这个执着心已经把很多人完全给迷了双眼
-This attached mindset has completed blinded many people
+俺俩，这个越聊越多，而且班农先生最多关注就是老百姓
+We talked more and more, and Mr. Bannon was most concerned of the Laobaixing
 
-没了智慧
-and lost their wisdom
+他说中国老百姓太苦了，他真的觉得中国老百姓是非常棒的
+He said that the Chinese Laobaixing are too miserable, and he really thinks that the Chinese people are very good people
 
-在这个问题疫苗灾难问题面前
-When we facing this problem of vaccine disaster,
+他喜欢，他讲了各种例子，看到老百姓，香港啊，上海啊，
+He likes them and he told various examples, like he saw the Laobaixing in Hong Kong, Shanghai,
 
-刚才谈的喜币
-the HCoin that we just talked about
+他到了北京啊, 然后他见到了王岐山的感觉呀，他说中国王岐山简直就是个魔鬼
+and when he arrived in Beijing, then he met Wang Qishan, and he said that the China’s Wang Qishan is simply a devil
 
-什么币安都是鸟事了
-and whatever the Binance is nothing
+然后他就觉得王岐山很怕他的平民运动，再一个他就听到我讲这些东西
+Then he felt that Wang Qishan was very afraid of his populism, and then he heard me talking about these things
 
-你活着这些有你的
-You will have a share when you are alive
+班农先生一个字不落，他没有任何应付,
+Mr. Bannon catches every single word that I said, he hasn’t done any perfunc-tory
 
-不活着啥都不是你的
-otherwise nothing would be yours
+我从没见过班农先生跟谁说话，去应付这个事儿，这个是让我对他绝对的尊重
+I’ve never seen it before when Mr. Bannon talk to someone very perfunctorily, this is something that gives me absolute respect for him
 
-你没了就没了，有了就有了
-Everything will be useless if you are gone, you will have them if you are here
+他是一个真正的大师，而且他真是博学
+He is a real master, and he is really knowledgeable
 
-就这么简单
-It’s just that simple
+而且从中东、霍尔木兹海峡、高尔夫，然后整个红海到死海、俄罗斯、东欧、西欧
+And from the Middle East, the Strait of Hormuz, gulf, and then the entire Red Sea to the Dead Sea, Russia, Eastern Europe, Western Europe
 
-只有新中国联邦，全人类就咱这么牛
-In the mankind, only us, the New Federal State of China is that awesome
+然后从非洲到美国的这个整个的内部战争和南北的整个战争
+Then from Africa to the civil war of the United States between North and South
 
-从第一天到现在
-Since the first day till now,
+然后美国从华盛顿到这的历史，
+Then the history of the United States from Washington to now
 
-更重要的事情
-the more important thing is that
+我们谈的就是，哗, 就过去了六七个小时啊，就是班农先生，你真的跟他的生活中了解他的时候
+We have been talking for six or seven hours，when you really got to know Mr. Bannon in his life
 
-你永远不知道感谢新中国联邦
-you never know how to thank the New Federal State of China,
+他完全和你在屏幕上时不一样的，这是我们第一次见面
+He is completely different from when you see him on the screen, this is the first time we met
 
-真正的该如何感谢
-how to really thank by heart
+很多很多事情发生，他完全同意美国的所有的问题
+Many, many things happen, and he totally agrees of all the problems in the United States
 
-就是我们能让战友不打疫苗这件事
-Just by the fact that we can prevent our comrades from being vaccinated
+很多都是共产党造成的，而且在非常的危险之中
+And many of them are caused by the Communist Party, and they are in great danger
 
-我可以说我们荣耀一万辈子都不夸张
-I can say that we are not an exaggeration of our glory
+这是很重要的，小新，你翻译一下给班农先生
+This is very important, Xiaoxin, can you translate these to Mr. Bannon
 
-因为让你存在
-Because it allows you to survive
+我说的观点也让西方观众听一听
+Let the western audiences hear my point of view
 
-就我越看这么多人无知
-The more I see so many ignorant people
+**原视频链接:**[https://gettr.com/post/phnq2r1bcb](https://gettr.com/post/phnq2r1bcb)
 
-我越尊重新中国联邦
-the more I respect the New Federal State of China
+Date:11/26/2021
+原视频标题: 班农先生熬尽心思帮助中国人成立法治基金、法治社会
+Mr. Bannon worked so hard to help the Chinese people establish the rule of law foundation and the rule of law society
+原视频日期：2021/11/20
+原视频链接https://gettr.com/post/phnq2r1bcb
+任务编号：KC289（2994）
+视频时间段 : 0:00-1:56
 
-我每天看着这（新中国联邦）旗的时候
-when every day I look at this New Federal State of China flag
-
-救（了）这么多人
-We have saved many lives
-
-咱救太多人了
-We have saved so many lives
-
-可是我希望你们真的懂得
-But I hope you really understand
-
-兄弟姐妹们
-brothers and sisters
-
-疫苗灾难还没开始
-The vaccine disaster has not yet begun
-
-那比你想象的要差得多
-It is much worse than you think
-
-因为你在阳光下
-because you are in the daylight
-
-当你在黑夜中没有电灯的时候
-When you are in the dark without electricity,
-
-你就知道黑暗真的来了
-then you’ll know the darkness is really coming
-
-不是你两天能藏点饭吃
-It’s not just two days while you still have food left
-
-后天能藏点饭吃
-or three days that you still can eat what you have saved
-
-是很多天的时候
-When that situation last many day,
-
-到处像洛杉矶像旧金山拿枪抢劫LV店一样
-like Los Angeles and San Francisco people robbed an LV store with a gun
-
-到处抢劫的
-There would be robbery everywhere
-
-很恐怖的
-It’s very scary
-
-还有一个，你们真不知道
-Also, there is another one that you really don’t understand
-
-新中国联邦让你不打疫苗意味着什么
-that what does it mean for the New Federal State of China preventing you from vaccinated
-
-太伟大了，太伟大了
-It’s so extraordinary
-
-不但让你不打疫苗，还救这么多人
-because not only prevents you from getting vaccinated, but also saves so many people
-
-珍惜我们新中国联邦吧，兄弟姐妹们
-Brothers and sisters, let’s cherish our New Federal State of China
-
-你喝什么以后
-What would you drink in that situation?
-
-绝对不会让你买得到水
-You are absolutely not able to buy the drinking water,
-
-买到你也花不起这钱
-and it’ll be too expensive to buy if it is available
-
-（有人说）我要烧水，你有电吗？你有气吗？
-You may say that I can boil the water, but where is the electricity or gas?
-
-三天水只要你喝不好
-It only takes three days if you keep drinking non-drinkable water,
-
-你就开始拉肚子得疟疾
-you would start to have diarrhea and malaria
-
-你会看到像大卫三天（就会）拉疟疾
-You would have diarrhea in three days as David had
-
-像飞飞、卡丽熙，你脸都变形
-and your facial would be changed as Feifei and Kalixi had experienced
-
-我不是跟你们开半点玩笑
-I’m not joking with you at all
-
-你不准备好这一刻那走着看吧
-You will see when that moment comes if you are not ready
-
-灾难在后边呢
-The disaster has yet to come
-
-**原视频链接:** [https://gettr.com/post/phtknu1333](https://gettr.com/post/phtknu1333)
-
-Date: 11/26/2021
-原视频标题: 疫苗次生危机还没到来
-The Vaccine Crisis Has Not Yet Arrived
-原视频日期：2021/11/24
-原视频链接: https://gettr.com/post/phtknu1333
-任务编号：3016
-视频时间段 : 0:00-2:06
-
-英听校：洛杉矶盘古农场 – 郭班之樱
-翻译：洛杉矶盘古农场 – 郭班之樱
-翻译终校：洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+中听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 –天涯行
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)

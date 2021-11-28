@@ -2,49 +2,19 @@
 ---
 
 
-## 三星将在德克萨斯州建造半导体芯片工厂
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1701368/)
+## 世界之黑暗把人类变成地狱一样
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1701410/)
 
-作者：纽约香草山农场 – 四季
+文编：东京樱花团/樱花传媒
+视频:东京樱花团/中文小视频组
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+11月24日，郭文贵先生在GTV大直播指出：
 
+高盛高管竟相信只要让共产党举办冬奥会房地产就不破产的蠢话，你能控制它不破产恰恰说明这是你经济超限战的结果。美国金融市场你敢信？在中国投了7万亿甚至10万亿美元票据，它自己都玩不下去。共产党邪恶力量控制媒体洗脑经济垄断，这个世界已经到了必须要有一个人类大清醒时刻，意识不到就太可怕了。
 
-
-
-
-据[ONA 网站](https://www.oann.com/samsung-to-build-17b-semiconductor-chip-plant-in-texas/)11月26日报道，韩国科技巨头三星周二宣布，计划在德克萨斯州的泰勒市建造一座价值170亿美元的大型半导体芯片工厂，并预计将在2024年下半年投入使用。这是德克萨斯州有史以来最大的外国直接投资。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1541.jpg)2020年7月7日星期二,位于韩国首尔三星商店中的三星电子公司标志。（ AP Photo/Ahn Young-joon）
-
-三星公司表示，该工厂的建立将直接为当地德克萨斯州人提供2000个工作岗位，并在不久之后为社区提供数千个就业机会。评论称，此举将对全球面临的半导体供应短缺产生积极影响。
-
-德克萨斯州共和党州长格雷格·阿博特表示，该设施的影响远远超出了德克萨斯州的边界，它将影响整个世界。德克萨斯州正在与三星合作，为世界日益增长的芯片短缺提供长期的解决方案。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
-
-
-
-
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
