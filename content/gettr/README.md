@@ -17,6 +17,20 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/28/2021 12:48 AM (UTC)`
+
+11/26/2021 Miles Guo: Smallpox cases appeared in hospitals in Shanghai and Hangzhou; doctors from a secret military base in Changzhou were suddenly picked up; The evilness of Sun Lijun, Meng Jianzhu, Wang Qishan, and Fu Zhenghua are unprecedented, and the world would be ruined if they were not arrested<br/><br/>11/26/2021 文贵直播：上海和杭州有医院出现天花病例，位于常州的秘密军事基地的医生被突然接走；孙力军、孟建柱、王岐山、傅政华的邪恶史无前例，不抓他们，世界都将被毁掉<br/>
+![img](https://media.gettr.com/group33/getter/2021/11/28/00/48/e70e3232-7340-2803-61fd-7be14e63832c/out.jpg)
+
+---
+
+`@miles 11/28/2021 12:43 AM (UTC)`
+
+11/26/2021 Miles Guo: Something big happened in several hospitals in Shanghai, with various factions in the CCP retaliating against each other by releasing viruses, and these are all resulted from the evilness of the CCP’s system; the video footages of the interrogation of the arrested CCP’s officials will demonstrate how great the Whistleblowers’ Movement is<br/><br/>11/26/2021 文贵直播：上海数家医院出大事了，中共各派通过放毒报复对方，这一切都源于中共体制的邪恶；中共审讯被抓官员的视频将体现爆料革命的伟大<br/>
+![img](https://media.gettr.com/group34/getter/2021/11/28/00/e284e700-e7e7-6411-5017-3c7fc537200d/out.jpg)
+
+---
+
 `@miles 11/27/2021 6:43 PM (UTC)`
 
 11月27号：共产党的放毒战略……要想成功，现有自宫！【昨天上海被封的醫院】
@@ -141,20 +155,6 @@ Dr. Vladimir Zev Zelenko, a Ukrainian born, Zionist, Chasidic JEW has been arres
 
 11/25/2021 Miles Guo’s GETTR: Don't give your kids COVID jabs. There have been more and more cases of dropping dead, falling, and car accidents due to the COVID vaccines. Artemisinin is the antidote and has saved many people<br/><br/>11/25/2021文贵盖特：千万不要给孩子打疫苗，身边已经有太多疫苗倒、随地倒、车祸倒，一定记住青蒿素是解药, 很多人因吃青蒿素病情好转<br/>
 ![img](https://media.gettr.com/group44/getter/2021/11/25/22/08/d66cb802-d320-6b93-f53a-d0bc880d4dce/out.jpg)
-
----
-
-`@miles 11/25/2021 10:04 PM (UTC)`
-
-11/24/2021 Miles Guo: Xi Jinping’s regime is an absolute dictatorship, and Xi is living under illusion of being the CCP’s Gorbachev. The combination of Mao Zedong, Stalin, and Hitler is not even as crazy as Xi. It is the devilish system of the CCP that produced such a maniac!<br/><br/>11/24/2021 文贵直播：习近平政权是绝对独裁政府，习意淫自己是中共的戈尔巴乔夫。毛泽东、斯大林和希特勒的集合体都不及现在的习疯狂。只有中共这个魔鬼的体制才能培养出这样的狂人！<br/>
-![img](https://media.gettr.com/group39/getter/2021/11/25/22/04/947072fd-3c51-930c-d679-1bbfc327ed08/out.jpg)
-
----
-
-`@miles 11/25/2021 9:39 PM (UTC)`
-
-11月25号：感恩伟大的美国，愿美国永远强大和安全……
-![img](https://media.gettr.com/group24/getter/2021/11/25/21/38/92224470-bc84-feb2-1682-93231baaa608/23db39423c24805e7cd20d90c057f453.jpg)
 
 ---
 
