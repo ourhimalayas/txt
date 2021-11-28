@@ -2,22 +2,28 @@
 ---
 
 
-## 区块链技术应用—金融变革
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1702892/)
+## 水上风力发电，日本也是认真的
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1703034/)
 
-撰稿人：文远Bruce
-![](https://assets.gnews.org/wp-content/uploads/2021/11/112861.jpg)（图片来自网络）
-“这份第一版印刷的《美国宪法》，最后的成交价是4300万美元。虽然“宪法 DAO”没有成功，但是依然创造了历史，证明基于区块链的项目集资是可行的。”——《美国宪法拍卖，一个区块链案例》
-![](https://assets.gnews.org/wp-content/uploads/2021/11/112862.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/112863.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/112864.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/112865.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/112866.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/112867.png)
-文章来源：[科技爱好者周刊（第 185 期）：美国宪法拍卖，一个区块链案例](https://mp.weixin.qq.com/s/8YSB2_T9FG9-w-GLFrzy8A)
+撰稿:东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-193.jpg)
+[图片来源](https://solarjournal.jp/windpower/36438/)
 
-发稿：MG5
+日本吴市的一家船厂正在建造一艘专用作业船，用于运输海上风力发电设备。
 
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+这个订单来自一家名为清水的大型建筑公司。吴市的这家造船厂正在建造的这艘专用作业船，是将大型风力发电设备运送到海上。此船全长142米，宽50米。在同类作业船中，目前是世界上最大的。
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-3.jpg)
+近年来，大型风力发电发展迅猛的中共国，却从未有过建造时可供使用的大型作业船。而日本此船可同时搭载三台风力发电机，因此可降低建造成本。 预计明年10月完工，后年春天可投入使用到风力发电建设中。
+
+精打细算，切磋琢磨，精益求精的日本“匠人”品质体现在各行各业。一个法案，一个计划，一个合同，虽然开始时，看似费尽周折，耗尽时间，但一旦敲定通过，执行起来必定是一钉一卯，扎扎实实。如这风力发电项目，虽开始晚于中共国，但日本却能从基础开始，计算成本，解决作业船的难关，以后水上风力发电的建设也定会进展神速，且能做到低成本低能耗。而中共永远是好高骛远，追求“面子工程”，急功近利，最终导致一地鸡毛，一事无成。所谓的百年基业，眼看着也要倾塌在即了。名不正言不顺，根不稳苗不直，何谈千秋大业？！
+
+信息源:
+
+[「洋上風力発電」運搬する作業船建造中　世界最大規模](https://news.yahoo.co.jp/articles/23772be6d3fb495ef4814439240c2dc760cc071f)
+
+编辑：东京樱花团/喜马拉雅的微尘
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
 
 
  
