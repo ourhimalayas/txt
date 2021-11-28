@@ -2,45 +2,134 @@
 ---
 
 
-## 密苏里州法官裁定去年以来实施的COVID限制为非法
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1701108/)
+## 小罗伯特·肯尼迪：福奇是制药业的孵化器
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1701186/)
 
-编译：Jenny Ball
+[https://gtv.org/video/id=61a0df953ff6481adce48118](https://gtv.org/video/id=61a0df953ff6481adce48118)
 
-*“这种由行政实体立法的双重授权，是立法和行政权力所不允许的结合。”*
+**Robert Kennedy Jr**
+**小罗伯特·肯尼迪**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-6-9.jpg)图片来源：lifesitenews
+Now they’re all hooked into the system of what they now want to see this drug push out
+现在他们都绑在了推销病毒疫苗的大船
 
-密苏里州杰斐逊市《生活新闻》（LifeSiteNews）——密苏里州的一名县法官裁定，**以阻止**** COVID-19 ****在该州传播为幌子实施的地方健康限制是非法的，应该取消**。
+Tony Fauci takes this drug push to the FDA approval process
+托尼·福奇将这种药物推向食品和药物管理局批准程序
 
-格林称他所在州的卫生官僚制定的措施具有“令人难以置信的力量，可以强迫……受试者屈服”，并且由于他的决定，“学校和公共集会场所不应再基于公共卫生官僚的异想天开而害怕被关闭。”
+that’s the approval
+就是因为如此
 
-他于 11 月 22 日裁定，**隔离、关闭企业和其他此类命令，违反了密苏里州宪法**，该宪法包含关于州政府行政、司法和立法部门三权分立的条款。
+He had a huge incentive of the nature has to prove it
+他有一个巨大的自然动机必须证明这一点
 
-密苏里宪法概述了政府不同部门的运作方式。它写道：“政府的权力应分为三个不同的部门——**立法、行政和司法**——每个部门都应授权给一个单独的地方官员，任何人或一群人都不能行使三个部门所属的权力。属于部门应适当行使属于其部门的权力，但本章程明确指示或允许的情况除外。”
+because he controlled some money
+因为他控制了一些钱
 
-在裁决的开篇中，法官写道：“本案是关于密苏里州卫生和老年服务部的规定，是否可以在制定公共卫生法时废除代议制政府，以及是否可以未经选举的官员不受约束，授权关闭学校或集会。本法院认为不能。”
+he also controls people who are putting on those committee
+他还控制着审批委员会的人
 
-此外，**法官严厉谴责了“将制定规则的权力下放给行政机构**”。“这种由行政实体立法的双重授权，是立法和行政权力所不允许的结合，”他写道。
+Tony Fauci always said saying this was approved by independent committee.
+托尼·福奇总是说这是来自独立委员会的批准
 
-该裁决是对 2020 年提起的名为香农·罗宾逊（ Shannon Robinson ）等人对密苏里州卫生和高级服务部的诉讼的回应，诉讼其在封锁最严重的时候，在圣路易斯市和县以及其他司法管辖区，发布现已被视为非法和违宪的授权。
+Oh, Lancet committee
+哦，《柳叶刀》委员会
 
-格林法官辩称，封锁要求“是卫生治理系统，使未经选举产生的官员可以不对任何人负责。”
+knowing investigated Wuhan lab the independent committee.
+因调查了武汉实验室的独立委员会而闻名
 
-他的法律意见是，“密苏里州各地的卫生机构负责人，利用授予他们的权力……行使不受限制和不受约束的个人权力来进行立法。”
+If you look at the people who are on that committee
+如果你看看在那个委员会的人
 
-他说，“宪法禁止”地方卫生官僚发布任务，“在全州已经发生了 18 个月以上”。
+26 out of 27 people on Lancet of people are receiving Tony Fauci’s checks
+《柳叶刀》上的 27 个人中有 26 人在工资单上收到了托尼·福奇
 
-**点评：这就是宪法保护公民的威力！敬佩正直的法官作出正确的裁判！**
+on the payroll,
+的酬劳
 
-**参考资料：**[lifesitenews][Missouri judge rules that COVID restrictions imposed since last year are illegal](https://www.lifesitenews.com/news/missouri-county-judge-rules-that-covid-restrictions-imposed-since-last-year-are-illegal/)
+on the payroll and people who approve the various vaccines, Pfizer vaccines and other international vaccines
+批准各种疫苗、辉瑞疫苗和其他国际疫苗的人
 
-* * *
+that they are on the payroll of Tony Fauci, NIH and Bill Gates.
+他们也在托尼·福奇、美国国立卫生研究院和比尔·盖茨的工资单上
 
-*审核：文乐
-校对：信心满满
-发布：信心的选择*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+Oh, these are not their PIs
+哦，这些不是他们的独立调查员
+
+the chairs of those university in their spares time
+那些大学的主席们在他们的业余时间
+
+sit on these committees that approve its other drugs.
+坐在这些批准其其他药物的委员会中
+
+Oh, that’s how the system works.
+哦，系统就是这样工作的
+
+And between 2009 and 2016,
+而在 2009 年和 2016 年之间
+
+I think was 250 some drugs approved by FDA
+我认为有250 种药物被食品和药物管理局批准了
+
+and every single one of those came through Tony Fauci shop.
+而且他们中的每一个都来自托尼·福奇工厂
+
+Oh, he is a pharmaceutical company.
+哦，他是一家制药公司
+
+He is not a public health person,
+他不是公共卫生人员
+
+manufacturer,
+而是制造商
+
+he is a pharmaceutical incubator.
+他是一个医药业的孵化器
+
+He is part of the industry, he is profit making, you know
+他是这个行业的一员，他是赚钱的，你知道的
+
+Tony Fauci was asking about this drug by the New Yorker magazine
+托尼·福奇在《纽约客》杂志上被询问到这种药物
+
+you know acting like 2005，what it is?
+表演的像 2005年, 是什么？
+
+A very extraction make his favorite movie and favorite line?
+表演他最喜欢的电影和最喜欢的台词
+
+And that’s easy. It’s it’s “The Godfather”
+这很容易, 这就是“教父”
+
+and and the line is it’s “it’s just business”
+而且重点的台词是“这只是生意”
+
+and that’s really the theme, the theme is “it’s just business”
+这就是真正的主题，主题是“这只是生意”
+
+it’s daunting personally not just making money here and making power
+这门生意，不光是赚钱，而且还能塑造权利，真实让人望而生畏
+
+**原视频链接:** [https://twitter.com/kukicat7/status/1463613184313643010?s=21](https://twitter.com/kukicat7/status/1463613184313643010?s=21)
+
+Date:11/25/2021
+**原视频标题:** Robert Kennedy Jr.: Fauci is pharmaceutical incubator…
+小罗伯特·肯尼迪：福奇是制药业的孵化器……
+原视频日期：2021/11/25
+原视频链接: https://twitter.com/kukicat7/status/1463613184313643010?s=21
+任务编号：KE348（3010）
+视频时间段 : 0:00-2:17
+
+英听校: 洛杉矶盘古农场 – Layka
+翻译: 洛杉矶盘古农场 – Layka
+翻译终校: 洛杉矶盘古农场 – Mike Li
+字幕+视频制作: 洛杉矶盘古农场 –天涯行
+审片： 洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

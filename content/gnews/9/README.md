@@ -2,39 +2,33 @@
 ---
 
 
-## 台湾国旗让索罗门群岛中国城的一家商店免遭焚毁
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1701161/)
+## 自中共病毒疫情爆发以来，盖茨基金会向中共输送了超过5400万美元
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1701250/)
 
-作者：纽约香草山 医疗部 —-云豹
+**撰稿：Grace**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-422.jpeg)
+**校对：Grace**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-11-27-at-5.27.48-PM.jpeg)图片来源：TeamTuckerCarlson
+郭文贵先生在11月26日的直播中提到，有位国内的退休干部认为，这次全球人类遭遇的中共病毒大灾难，可能不仅仅是由中共阴谋策划的，其背后更可能是有世界级的黑手在推动这一切的发生。有些人可能会抨击说这是阴谋论，但是不能否定的事实却是一件一件地被披露出来。
 
-11月26日，推特MaverickPeterS9帐号刊出一张图片及贴文，显示一栋完好无损的建筑物，该建筑物正面挂着一幅台湾国旗。 贴文写着：发生抗议游行，示威者要求索罗门总理索加瓦雷下台。中国城被焚毁，这家商店却因挂着台湾国旗，幸运逃过一劫。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-423.jpeg)
-索罗门群岛现任总理索加瓦雷上任后，在2019年与建交30年的台湾断交，改与中共建交。 让长期与台湾保持良好互动，并受惠于台湾所提供实际医疗援助的索罗门民众，感到愤怒。
+据《国家脉搏》11月23日报道，自中共病毒爆发以来，比尔和梅林达.盖茨基金会(Bill & Melinda Gates Foundation)已向中共的 “全球健康” 项目，发送了超过5400万美元的资助，其中包括由中共控制的机构，和与武汉病毒学研究所有合作的机构。
 
-据报导，索罗门群岛近日发生群众抗议行动，主要是因为马莱塔省（Malaita）民众不满现任总理的施政及亲中共路线，发起示威要求总理下台。 在抗议行动中，中国城遭游行民众纵火破坏，示威规模持续扩大。 幸存的挂台湾国旗建筑，明显表达出索罗门民众的好恶。
+资助对象中包括北京师范大学、北京大学、清华大学等多个中共办学机构，以及农业部、中共国疾病预防控制中心、科技部等官方政权机构。
 
-新闻链接[https://twitter.com/MaverickPeterS9/status/1463971545932394498?s=19](https://twitter.com/MaverickPeterS9/status/1463971545932394498?s=19)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-424.jpeg)
-总编：Irene 木木
+据报道，在2020年4月，40万美元被寄给康希诺生物制品公司，以”支持国际合作开发抗冠状病毒疫苗，增加安全和有效的疫苗供应，以实现可持续的全球分配和使用”。
 
-编辑：文徬/Kathy文艺
+在2020年5月，12万美元被送到国营浙江大学，以 “让中共国在全球治理中发挥更大的作用，并为全球疫苗和免疫联盟(Global Alliance for Vaccines and Immunization)做出更多贡献”。
 
-校对/发稿：文敬
+报道称，全球疫苗和免疫联盟,将自己描述为一个 “由公共和私营部门组织组成的全球卫生伙伴关系，致力于为所有人提供免疫接种服务”。
 
-**更多资讯，更多关注**
+另外，在2020年5月，该基金会还向中共国疾病预防控制中心发送了60万美元，“以支持应急响应和评估，并使中共国为潜在的大流行病做好准备，这不仅有助于疾病控制和遏制，而且为全球健康贡献中共国的经验”。
 
-[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+据披露，还有几笔赠款也侧重于扩大中共在疫苗开发和分配方面的作用，包括2020年8月该基金会向清华大学赠款30万美元, “建立一个智囊团，为疫苗生态系统建设提出建议，提供监管科学研究和技术支持”。
 
-[**纽约香草山农场**** ****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+报道指出，自2019年12月以来，盖茨基金会已向设在中共国的项目发送了总计93笔赠款，金额达54,573,428美元。
 
-[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+**新闻来源：****[Gates Foundation Sent Over $54 Million To China Since COVID, Including To Wuhan Collaborators.](https://thenationalpulse.com/exclusive/exc-gates-foundation-sent-over-54-million-to-china-since-covid-including-to-wuhan-collaborators/)**
 
-[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

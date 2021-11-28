@@ -2,30 +2,48 @@
 ---
 
 
-## 台美为应对中共威胁接连举办两场军事会谈
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1700862/)
+## 美国将限制来自8个南部非洲国家的旅行
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1700985/)
 
-#### **撰稿：**日本东京方舟农场 Kevin wang
+作者：纽约香草山教育部 —-Naughty(文行)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/D9930079-9D39-4DBD-AD34-799DA4353F8E.jpeg)（图片来自网络）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-421.jpeg)
 
-据《大纪元》11月27日报道，因意识到中共对区域安全的威胁，台美近日在华盛顿接连举办了两场军事会谈，以强化台湾应对中共军事威胁的能力。
 
-报道称，美台于11月16和17日在华盛顿接连举办了“台美政治军事对话”（US-Taiwan Pol-Mil Dialogue）与“国防检讨会谈”（Defense Review Talks, DRT）。台湾建立自我防卫机制，尤其是在国防上持续强化不对称战力，成为对话焦点之一。
 
-台湾中山大学“中国与亚太区域研究所”特聘教授林文程在接受《大纪元》专访时表示，台湾派去的都是由国安会主导的政务官；美国出席会议的官员则是主导台湾问题的国务院、国安委，国防部等官员。双方讨论项目大多针对台美安全合作、西太平洋地区安全问题以及军售议题。他指出，“谈的是大原则、大方向”，而会谈对台美彼此间的了解起到关键作用。
+美国政府高层官员表示，美国将从周一开始限制来自南非和其他七个国家的旅行，原因是担心“严重变异”的新冠病毒欧米茄变体。该变体在年轻人中似乎具有高度传染性。
 
-台湾中正大学“战略暨国际事务研究所”助理教授林颖佑则分析认为，目前台美之间的互动，对台湾国防的确有明显提升效果。美国已看到了中共军力的威胁。在美中双方不断较劲之下，美国认为，台湾在国防和军力方面的提升十分有必要。
+旅行限制不适用于美国公民和合法永久居民，但所有国际旅行者在旅行前都必须检测呈阴性。
 
-*参考链接：[https://www.epochtimes.com/b5/21/11/27/n13401504.htm](https://www.epochtimes.com/b5/21/11/27/n13401504.htm)*
+WHO 指出，欧米茄变种有大量突变，“其中一些令人担忧”。除南非外，在博茨瓦纳、津巴布韦、纳米比亚、莱索托、埃斯瓦蒂尼、莫桑比克和马拉维也发现了该变种。
 
-* * *
+大约十几个其他国家包括英国、法国、德国、意大利、印度、日本、以色列、土耳其、瑞士和阿拉伯联合酋长国等也将设置类似的旅行限制。欧盟委员会建议各国对来自南部非洲的旅行进行“紧急刹车”，以应对新冠病毒新变种的威胁。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-418.jpeg)
+图片：美国之音
 
-*素材采编：Kevin wang*
+2021.11.26
 
-*编辑：青衣青青*
+参考链接：[https://www.foxnews.com/us/omicron-variant-us-restrict-travel-southern-africa-nations?utm\_source=ground.news&utm\_medium=referral](https://www.foxnews.com/us/omicron-variant-us-restrict-travel-southern-africa-nations?utm_source=ground.news&amp;utm_medium=referral)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-419.jpeg)
+总编：飞虹
 
-*发布：miumiu*
+编辑/校对/发稿：文敬
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
 
  
 

@@ -2,29 +2,24 @@
 ---
 
 
-## 币安 被爆出“泄漏用户隐私”给中共
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1699684/)
+## 半个中共国为北京冬奥会停工停产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699803/)
 
-**台灣寶島農場 港台前線關注組｜發佈日期/ 27/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-07-14.32.38.jpeg)
-**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/223-1.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F6FAB%2Fproduction%2F_116778582_xxjpsgc007377_20201230_pepfn0a001.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fsports-56661963&amp;tbnid=Tb03yBTEh3noyM&amp;vet=12ahUKEwjvuL-Qsrj0AhVN4GEKHXDvDhkQMygFegUIARC2AQ..i&amp;docid=ZT7LpLnUMBomVM&amp;w=640&amp;h=360&amp;itg=1&amp;q=%E5%86%AC%E5%A5%A5%E4%BC%9A&amp;ved=2ahUKEwjvuL-Qsrj0AhVN4GEKHXDvDhkQMygFegUIARC2AQ)
+11月27日财经网报道，由于2022年初北京将承办两项重要奥运赛事（冬奥会将在2月4日—20日举行，残奥会将在3月4日举行），据中共国家环保部统计，华北、淮北、华西等多地空气严重污染，为实现碳中和达标，中央政府决定：2022年1月1日前关停华北、淮北、华西等重污染地区所有重工企业，重点河北唐山、天津、石家庄、张家口，承德、山东济南、威海，潍坊，山西太原、大同、长治，河南洛阳、郑州等地区，关停期限自2022年1月1日至2022年3月8日。
 
-币安- Binance，是世界上交易量最大的加密货币交易所。近日被爆出“泄漏用户KYC资讯”给中国共产党及他国政府。KYC（Know your customer），是企业确认客户身份的程序，为符合所在地的金融法规范。
+北方区域大半被覆盖，工业企业被严格控制重污染减排、实行交通管制，必要时停产减产。水泥、制造业、煤化工、石油化工等多个行业以及涉voc工序的生产制造环节，生产线开工、错峰运行，面源、移动源减排方面，以及港口、物流运输等方面都有着严格的管控措施，也就意味着化工、重工业企业都将面临环保管制加严的局面。
 
-## 币安泄个资 害用户被冠上“颠覆国家政权”罪名
+中共国对6省65市发布了“停工令”，为所谓的冬奥会胜利召开，保证蓝天白云，晴空万里，半个中共国企业也将会面临停工停产，相应的工业民生产品供应将会出现短缺，继而引起涨价。
 
-据郭文贵于[直播](https://gettr.com/post/phpx9paffd)中公开表示有币安用户（化名：乐乐），共投资币安约2700万美元，乐乐于前段时间发现无法从币安提现，且当初与乐乐一同投资的人突然无法联系上，经询问后得知被（中共）警察以“非法购买海外数字货币”罪名逮捕 。
+信息来源：
 
-据[新闻](https://www.upmedia.mg/news_info.php?SerialNo=125355)报导，中国共产党于9月发布新规范，对加密货币实施全面严格禁令，虚拟货币等相关业务都被算在“非法的金融活动”，这包括了交易、转帐、挖矿等所游行为。
+[【紧急！冬奥会“管控”来了！停工停产到2022年3月！】](https://page.om.qq.com/page/OI21m9iCM4VJ1nByOq-k3b4Q0)
 
-郭文贵爆料，币安已经将所有的用户资料全部交给中国共产党，在中国三个月以前购买加密货币是合法的，但是中共发布了新规范导致购买加密货币属于经济犯罪，不仅是洗钱，更被定义为“涉嫌颠覆国家政权”。他呼吁曾经在币安拥有过个人帐户的使用者在所在地诉诸法律行动，特别是在中国境内的用户。
-
-## 爆料：币安是个大骗局
-[https://gettr.com/post/pi1zv55630](https://gettr.com/post/pi1zv55630)
-郭文贵爆料，在过去一个月以来，约20家银行机构因美国政府的要求，关闭了对币安的服务。且有大陆用户欲使用币安兑现，发现无法提现成功。他进一步表示，原因是中国共产党要求多国政府将大陆用户在币安帐户中的财产转移给中共。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/截圖-2021-11-27-下午5.30.49.png)[https://gettr.com/post/pi1zv55630](https://gettr.com/post/pi1zv55630)
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Yellow-Black-Year-End-Report-2.jpg)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

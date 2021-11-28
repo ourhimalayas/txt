@@ -2,209 +2,68 @@
 ---
 
 
-## 社会的边际效应比疫苗本身还可怕
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1701200/)
+## 中共竭力炫耀优于美国的政治制度：2022年中国共产党代表大会将与美国的中期选举形成对比
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1701322/)
 
-[https://gtv.org/video/id=61a238ef3ff6481adce525d2](https://gtv.org/video/id=61a238ef3ff6481adce525d2)
+编译：东京樱花团/Hopkins
 
-你看
-Mira
 
-现在在中国大陆
-Ahora en China Continental
+```
+【编者按】临近年末，《经济学家》周刊发表了“未来世界 2022”（The World Ahead 2022）系列专栏文章，本文是系列文章之一。
+```
 
-它有一样东西
-Tiene una cosa
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-187.jpg)
 
-它是盖不住
-Que no puede ser cubierta
+```
+如果计划一切顺利，中国共产党将在2022 年实施一项羞辱美国的对比研究。中共领导人自己本身非常厌恶自由选举，但他们可以在媒体上嘲弄美国的民意调查。最近他们看到新闻头条栏目中预测民主党将在2022年11 月的美国中期国会选举中惨败，并指责美国政府面临许多不确定性，即使不是陷入僵局但还是存在分裂的危险。如果这些民意调查结果准确，中共的宣传机器将迎来一个新的机会，宣布中国因一党专政而享有秩序和繁荣，而美式民主只会带来混乱、功能失调和衰落。
+```
 
-就是到处这个天然气管爆炸
-Son las explosiones de tuberías de gas natural por todas partes
 
-到处楼宇爆炸, 交通事故
-Accidentes vehiculares y explosiones de edificios
 
-现在中共国是最厉害的
-Ahora lo más poderoso del PCCh
+```
+相比之下，北京的这一年将以党的二十大为主导，在人民大会堂的大理石柱子、红地毯和炽热的枝形吊灯之间进行严格控制的权力展示。这次聚会很可能在秋季举行，将标志着习近平作为掌握实权的中国最高领导人的第一个十年。这也可能确定习近平打算在位多长时间：五年？十年？还是被迫进入某种形式的半退休状态，垂帘听政？虽然这种情况不太可能发生。值得注意的是，习近平未来的计划可能在党代会结束时才会真正确定。届时他（或者可能是意外的党主席接班人）带领新的政治局常委按照严格的等级先后走上铺着红地毯的讲台。
+```
 
-国内得病的人
-Las personas que se enfermaron
 
-儿童死亡率, 死胎率
-La tasa de mortalidad infantil, la tasa de la muerte fetal
 
-畸胎率, 心包炎, 心肌炎
-La tasa teratogénica, pericarditis, miocarditis
+```
+如果习近平确定在五年后下台，他将会挑选一两个可能的继任者在舞台上跟随他。目前，还没有兼具经验、年龄和与习近平关系密切的合适人选。或许他觉得至少要在 2032 年的党代会之前继续掌权，届时他将 79 岁，如果是这一结果习近平将在 11 月的党代会舞台上被一排穿着深色西装的不具威胁的人尾随：无论是长期的共产党忠诚者还是迅速崛起的后起之秀，他们要么太老要么太年轻，缺乏经验，无法在2027年党代表大会上接替现任老板。
+```
 
-交通事故, 医院爆满
-Accidentes de vehículos, los hospitales llenos
 
-每一个人的背后
-Detrás de cada persona
 
-他都连接着一个家庭
-Está vinculada a una familia
+```
+党代表大会每五年举行一次。这些会议按照惯例会在几代领导人之间进行有序的权力转移。这种高层权力交接举动是提前五年发出信号的，但是习近平已经打破了最近的先例，拒绝在 2017 年党代会上任命继任者。毛泽东去世后，中共决定任何一个领导人都不应积聚过多权力或在位时间过长。
+```
 
-每一个人都可能连接着一份工作
-Cada quien puede estar conectada de un trabajo
 
-这些事情持续下去就是
-Y si todas estas cosas siguen sucediendo
 
-管天然气的, 天然气爆炸
-Los que se encargan del gas natural, se explotará la tubería
+```
+作为对这些规则的打击，习近平在 2018 年修改了中国宪法，取消了国家主席一职的任期限制——这是他所拥有的三个强大职位之一，其他二个更为重要的党总书记和中央军委主席，目前，还受到两届任期的约束。习近平的支持者说，只要他认为推进重要改革需要，他就必须留任。他的批评者是当今中国的一群沉默而恐惧的人，他们看到了防止个人独裁制度所面临的危险。
+```
 
-管拧管的, 结果管没有人拧了
-Los que se encargan de atornillar la tubería no lo hizo
 
-最惨的事情
-Y lo peor es
 
-你看到郑州街头那俩孩子
-Ves a esos dos niños en las calles de Zhengzhou
+```
+无论习近平选择哪条道路，二十大很可能类似于共产主义的加冕礼。中共领导人看到了越来越多的理由对其政治制度的优势充满信心。在这以前，他们还对自己的治理模式持防御态度。现在中国外交官在联合国或世界贸易组织等机构获得了话语权，开始调整国际规范或全球规则，使世界更能接受中共版本的国家资本主义和专制。今天，中共特使们正处于攻势中，准备宣传他们的模式，作为一种比西方难以忍受的个人主义更好的集权模式。
+```
 
-他妈妈倒在街头的时候
-Cuando su mamá se cayó en la calle
 
-那俩孩子完全是不知道怎回事了
-Estos dos niños no saben totalmente lo que estaba pasando
 
-你告诉我这妈不在了
-Dime tú, si esta mamá ya no está
+```
+与此同时，北京的官员处处看到威胁。他们确信美国及其盟国决心遏制中共。他们对外国人的任何批评不耐烦，并很快争辩说西方政府指责中国只是为了分散他们对自己失败的注意力。北京的气氛是自信、狂妄和偏执的奇怪混合体。这让习近平更加坚强。在描述当前的世界秩序时，他喜欢谈论“100 年未见的变化”。在这样的时刻，共产党押注最高领导人的连续性是最安全的做法。一段时间以来，中美之间的鸿沟一直在扩大，并在 11 月无聊刻板的党代会后进一步扩大，其幅度将会大得惊人。
+```
 
-这俩孩子是怎么成长
-Cómo crecerán estos niños
 
-中国人一个人毁掉的时候
-Cuando una persona es destruida en China
+作者：大卫·雷尼（DAVID RENNIE）：《经济学家》周刊北京局局长和查关专栏作家（BEIJING BUREAU CHIEF AND CHAGUAN COLUMNIST, THE ECONOMIST）
 
-这一个家庭就是撕裂
-Esta familia está rota
+信息来源：
 
-这整个社会现象
-Y el fenómeno de toda esta sociedad
+[The World Ahead 2022 China hopes to flaunt the merits of its political system over America’s](https://www.economist.com/the-world-ahead/2021/11/08/china-hopes-to-flaunt-the-merits-of-its-political-system-over-americas)
 
-就不是你今天能用语言
-Ya no puede ser descrito con palabras
-
-任何形容的了
-Ninguna descripción
-
-拖垮了2到3个家庭
-2 a 3 familias fueron derribadas
-
-然后再想想
-Y luego piensan
-
-现在贫穷的发病率少的非洲
-Ahora hasta el país pobre de África donde tiene baja la morbilidad
-
-他也打了很多针
-También se ha vacunado varias dosis
-
-包括直罗陀我那个哥们
-Incluyendo Gibraltar, mi hermano
-
-后来给我打电话
-Luego me llamó
-
-他说他小姨子的
-Diciendo que su cuñada
-
-一家人就死了四个人
-Murieron cuatro personas en la familia
-
-俩自杀, 俩个打了疫苗
-Dos se suicidaron y dos por haberse vacunado
-
-你想想, 这样的现象
-Piensa, este tipo de fenómeno
-
-那么, 在我们身边不会发生吗
-¿No sucederá en nuestro alrededor?
-
-想想加拿大, 美国, 英国
-Piensa en Canadá, EE. UU, Reino Unido
-
-大卫兄弟
-Hermano David
-
-英国的医疗是全欧洲最烂的医疗
-La atención médica británica es la peor atención médica en Europa
-
-英国最烂的就是它那个
-Lo peor del Reino Unido
-
-电厂发电站
-Es la Planta de energía
-
-所以大家一个社会的边际效应
-Entonces, el efecto marginal de todos como sociedad
-
-一个人有事儿
-Si a una persona le pasa algo
-
-一个家毁了, 几个家毁了
-Una casa o unas cuantas casas serán destruidas
-
-一个人有了病
-Una persona enferma
-
-整个社会系统都要为他服务
-Todo el sistema social debe prestarle servicio
-
-你们真的没想过
-Ustedes realmente no han pensado
-
-七哥现在就跟我的家人
-Ahora mi familia y yo
-
-我的生活, 我的朋友
-Mi vida, mis amigos
-
-我跟每个人聊
-Hablo con cada persona
-
-我没有觉得任何人
-Y no siento que alguien
-
-包括你们4个
-Incluyendo ustedes 4
-
-我也不认为
-Tampoco lo creo
-
-你严肃认真地
-Estás enfrentando estrictamente
-
-真的面对这一刻的到来
-La llegada de este momento
-
-这比疫苗的本身还可怕
-Esto es más aterrador que la vacuna en sí
-
-**原视频网址**：[https://gettr.com/post/pht37r0ebf](https://gettr.com/post/pht37r0ebf)
-
-日期：11/26/2021
-原视频标题：社会的边际效应比疫苗本身还可怕
-El efecto marginal de la sociedad es más aterrador que la vacuna en sí
-原视频日期：11/25/2021
-原视频网址：https://gettr.com/post/pht37r0ebf
-任务编号：KC287（3015）
-视频时间段：0:00-1:45
-
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
