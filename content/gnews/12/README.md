@@ -2,38 +2,36 @@
 ---
 
 
-## 视频| 感恩节后，美国恐将再一次受到病毒袭击
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1701943/)
+## 9月24日采访喜马拉雅交易所首席执行官杰西·布朗-会有喜马拉雅的欧元？什么时候会有？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1702109/)
 
-## 摘自郭先生2021.11.26大直播
-
-制作：香草山视频部
+翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
 
 
-
-昨天5000万人出去，多过5000万已经回到了COVID之前的感觉了。这个时候引来了两个话题：美国旅游经济好了，这个之后会是什么情况呢？
-一定是共产党放毒最佳时候！共产党一定逮到这机会放毒，它只是放老病毒还是新病毒，你走着看！咱今天把话撂在这
-第二、这场5000万的大聚会之后下周回来。我们很多人避免不了，像瑞秋你现在已经搬到曼哈顿了，你家楼里面楼外，你怎么知道没有人度假回来呢？就是大家一定要做好防护，更夸张的事情，大家要小心的，疫苗灾难一定在这之后是个高峰。
-为什么疫苗灾难在这个时候是个高峰，我告诉你很多人去之前又打了加强针！这个加强针严谨来讲就叫催命针!你上这个大街上的时候你不知道哪个车就冲过来了，就过去两周兄弟姐妹你看看，孩子的死亡，就那小孩的死亡，到处那些视频，咱不要听说，就那视频还有咱战友发来的信息，多了去了！你们能躲在家躲在家，能不上街就不上街，另外一个。兄弟姐妹一定是一次小高峰的大爆发！
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
 
 
+托尼：很多粉丝都很好奇，除了喜马拉雅美元之外，我们还能期待一个喜马拉雅欧元在某个时间段面向公众？
 
-发稿：雪梨
+杰西: 当然，你肯定会关注这个问题。我不认为那是太遥远的未来。这是我们现在正在追求的，我想说，在我们路线图中的所有事情中，这可能是现在最重要的事情。因此，这是一个明确的肯定。
 
-![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+参考来源：
+1. [https://gtv.org/video/id=614dd0ef42a8af3151a47b8e](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
+2. [Interview with Himalaya Exchange CEO Jesse Brown- English Transcript of First Episode, September 24th](https://gnews.org/1593083/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+
+校对：文唐
+
+编辑/校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
+[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

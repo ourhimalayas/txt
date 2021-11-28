@@ -2,40 +2,38 @@
 ---
 
 
-## 班农提出动议 要求公开法庭案件中的所有文件
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1699695/)
+## 日本将在明年推出一种由银行支持的加密货币
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1700054/)
 
-**编译：Jenny Ball**
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/tempsnip81.png)调查 1 月 6 日在国会大厦发生的未遂叛乱的众议院特别委员会面临着与前特朗普政府官员的艰苦战斗。 （布莱尔公会/华盛顿邮报）
-
-前川普白宫顾问斯蒂夫·班农 (Stephen K. Bannon) , 已向美国地方法院提出反对标准的发现保护令，该命令禁止任何一方公开发布文件或证据。
-
-67 岁的班农上周对藐视国会的指控表示不认罪，他的法律团队此前争辩道，如果同意检方的发现保护令，案件会更加复杂。
-
-律师代表班农向《华盛顿邮报》提供的一份声明说：“公众应该根据所有事实，才能对美国司法部是否致力于公正做出他们自己的独立判断。”“在今天提出的反对意见中，班农先生要求法官遵循正常程序，并允许不受限制地访问和使用文件。”
-
-美国助理检察官阿曼达·沃恩（Amanda R. Vaughn）表示，将提供“少于 20 份文件”，但班农律师埃文·科克兰（Evan Corcoran）告诉记者，辩方可能需要找到更多文件和证人。
-
-班农的法律团队称，政府没有提供任何理由不让公众看到这些文件，并补充说，在本案中，许多受拟议保护令限制的文件已经公开。
-
-“政府没有提供任何理由限制班农先生的律师使用这些文件准备辩护，”班农的声明说。
-
-班农拒绝遵守调查 1 月 6 日国会大厦袭击事件的众议院特别委员会的命令，以提供有关他在袭击前的行为的记录和证词。委员会有兴趣就 1 月 6 日之前一周内，班农在威拉德酒店的活动向他提问。
-
-**评论：所有伟人都是经历的巨大的磨难，如果班农先生没有在中共渗透和控制的美国司法走一遭，他永远不会真切地认识到中共对美国影响的灾难到了什么程度！不在痛苦中生，必将在痛苦中亡！**
-
-**新闻来源**：[washingtonpost.com][Stephen K. Bannon files motion to request all documents in court case be made public](https://www.washingtonpost.com/politics/stephen-k-bannons-lawyers-file-opposition-to-keeping-documents-from-being-released/2021/11/25/29889174-4e3e-11ec-b73b-a00d6e559a6e_story.html?utm_campaign=wp_post_most&amp;utm_medium=email&amp;utm_source=newsletter&amp;wpisrc=nl_most&amp;carta-url=https%3A%2F%2Fs2.washingtonpost.com%2Fcar-ln-tr%2F3561315%2F61a114979d2fdab56ba15957%2F5e2dde419bbc0f6326309bfd%2F39%2F72%2F61a114979d2fdab56ba15957)
-
-* * *
-
-***审核：文乐
-校对：阿伯塔
-发布：信心满满***
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-1.jpeg)
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/1_qmqe9fr-2rs5eotxzb5ggg.jpeg)
 
 
+
+图片来源：www.finextra.com
+
+
+#### 编译：小红帽
+
+日本即将向开发数字货币迈出重要一步。据路透社报道，一个由大约70家日本公司组成的财团于本周表示，他们计划在2022年推出一种基于日元的加密货币。该项目（暂称为 “DCJPY”）得到了日本最大的三家银行的支持。
+
+在周三的新闻发布会上，三菱日联金融集团、瑞穗金融集团和三井住友金融集团表示，他们自去年以来一直在开会，以建立一个共享的数字支付结算基础设施。
+
+该财团的其他一些成员包括东日本铁路公司和关西电力公司。他们计划在未来几个月开始测试该货币。该试验与日本银行为创建数字日元所作的工作是分开的。中央银行数字货币（CBDCs）是中国和美国也在探索的东西。
+
+对于日本来说，还有一个额外的激励因素在推动。日本是一个以热爱现金而着称的国家。即使在最近的2018年，该国80%的零售交易都是用纸币和硬币完成的。日本政府一直试图改变这种状况，以使该国的经济对消费者更友好，更有生产力。
+
+**参考新闻：**[Japanese firms will test a bank-backed cryptocurrency in 2022 | Engadget](https://www.engadget.com/japan-dcjpy-digital-currency-test-2022-013506959.html)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

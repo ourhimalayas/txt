@@ -2,27 +2,16 @@
 ---
 
 
-## 每一批次的疫苗都不一样，有些有剧毒，有些则没有
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1701910/)
+## 【G时新闻】不堪美国芯片禁售！华为开卖二手机
+` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1702107/)
 
-#### 翻译：奮鬥
-校对：Lish
-剪辑/字幕：向上James
+**加拿大温哥华扬帆农场 **主播：悠然 制作：文雅
 
-视频文字点睛：
+🔥不堪美国芯片禁售！华为开卖二手机。
+🔥11 月 21 日消息，华为正式开启二手机业务，每一台官方认证的二手机，都搭载全新的HarmonyOS 2系统，提供一年质保。
 
-每次我们都可以直观地识别这些有毒批次，显示它们正在影响每个州的人们，无论它们被部署在哪里，无论它们被分发到哪里。而且这些有毒批次以固定的频率出现在无害批次之间。毒性是基准率的1000倍到5000倍的，有毒批次的出现频率是200分之一。
-
-因此，当你接种疫苗时，有200分之一的机会你会得到一个有毒批次。而这些批次的疫苗始终如一地，我是说始终如一地，在美国各州都会造成不良反应、住院、残疾和死亡。这就是他们所做的。无害批次是无害的。但这些有毒批次的疫苗会造成伤害。
-
-发布：枳实
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+盖特链接：[https://gettr.com/post/phsvyka77d](https://gettr.com/post/phsvyka77d)
+编辑/上传：七觉花
 
  
 
