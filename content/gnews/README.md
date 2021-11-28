@@ -15,86 +15,86 @@
 
 ---
 
-### [2021/11/24 班农专访4: 福奇会在明年中期选举后被追责](/content/gnews/1/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021/11/24 班农先生2: 国际奥委会忽视彭帅的安全问题](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [班农专访5: 中共再次掌控国际刑警组织](/content/gnews/3/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021年11月26-27日新闻集](/content/gnews/4/README.md)
- ` 澳喜农场`
-
-### [中共国、美国和马绍尔群岛](/content/gnews/5/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [打脸：拜登抨击川普旅行禁令 自己却另外颁布一个](/content/gnews/6/README.md)
+### [西班牙警察在马德里游行抗议“禁言法”改革](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [包括欧盟在内的一些国家利用疫情打击言论自由](/content/gnews/7/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [卡尔巴斯：西方是法治和规则的基础，中共国是威胁](/content/gnews/8/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [2021/11/24 班农专访1: 少年自卫体现了美国法治系统的力量](/content/gnews/9/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [WHO跳过希腊字母：nu和xi，将新病毒命名为：omicron](/content/gnews/10/README.md)
- ` 澳喜农场`
-
-### [澳洲新南威尔士确认了两名Omicron新冠变种病毒感染者](/content/gnews/11/README.md)
- ` 澳喜农场`
-
-### [产业供应链断裂，日本中小企业岌岌可危](/content/gnews/12/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [重写规则，重置行业！习近平将继续打压科技公司](/content/gnews/13/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [【文炬拾字】母亲最后的嘱咐](/content/gnews/14/README.md)
- ` 温哥华扬帆农场`
-
-### [11/24郭文贵直播：要起诉币安以确保中共不能掌握战友个人信息（粤语配音）](/content/gnews/15/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【1120三周年纪念】班农：必须确保科技是为人类服务的，而不是人类的主人（粤语配音）](/content/gnews/16/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【1120三周年纪念】班农：我们新中国联邦需要培养更多人才（粤语配音）](/content/gnews/17/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [中共病毒严重打击日本小企业：供应链遭受重创、交货遥遥无期](/content/gnews/18/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [震惊：中共2004年已计划用天花灭掉西方天主基督教徒](/content/gnews/19/README.md)
- ` 澳喜特战旅Gnews`
-
-### [新任局长](/content/gnews/20/README.md)
- ` 澳喜农场`
-
-### [随着洪水持续上涨，新南威尔士州发出疏散令](/content/gnews/21/README.md)
- ` 走进澳洲`
-
-### [吴尊友少感染4780万和六中全会内报感染7000万的对比](/content/gnews/22/README.md)
- ` NewFOC`
-
-### [南非刚要求停止疫苗供应新变体就如约而至](/content/gnews/23/README.md)
+### [秘翻在线：卡塔尔的一项研究发现，新冠康复者再次感染和患上重症的风险非常低](/content/gnews/2/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [爆料革命创生的理论（下）](/content/gnews/24/README.md)
+### [2021/11/24 班农专访4: 福奇会在明年中期选举后被追责](/content/gnews/3/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2021/11/24 班农先生2: 国际奥委会忽视彭帅的安全问题](/content/gnews/4/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [班农专访5: 中共再次掌控国际刑警组织](/content/gnews/5/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2021年11月26-27日新闻集](/content/gnews/6/README.md)
+ ` 澳喜农场`
+
+### [中共国、美国和马绍尔群岛](/content/gnews/7/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [打脸：拜登抨击川普旅行禁令 自己却另外颁布一个](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [包括欧盟在内的一些国家利用疫情打击言论自由](/content/gnews/9/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [卡尔巴斯：西方是法治和规则的基础，中共国是威胁](/content/gnews/10/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [2021/11/24 班农专访1: 少年自卫体现了美国法治系统的力量](/content/gnews/11/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [WHO跳过希腊字母：nu和xi，将新病毒命名为：omicron](/content/gnews/12/README.md)
+ ` 澳喜农场`
+
+### [澳洲新南威尔士确认了两名Omicron新冠变种病毒感染者](/content/gnews/13/README.md)
+ ` 澳喜农场`
+
+### [产业供应链断裂，日本中小企业岌岌可危](/content/gnews/14/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [重写规则，重置行业！习近平将继续打压科技公司](/content/gnews/15/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [【文炬拾字】母亲最后的嘱咐](/content/gnews/16/README.md)
+ ` 温哥华扬帆农场`
+
+### [11/24郭文贵直播：要起诉币安以确保中共不能掌握战友个人信息（粤语配音）](/content/gnews/17/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [【1120三周年纪念】班农：必须确保科技是为人类服务的，而不是人类的主人（粤语配音）](/content/gnews/18/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [【1120三周年纪念】班农：我们新中国联邦需要培养更多人才（粤语配音）](/content/gnews/19/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [中共病毒严重打击日本小企业：供应链遭受重创、交货遥遥无期](/content/gnews/20/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [新任局长](/content/gnews/21/README.md)
+ ` 澳喜农场`
+
+### [随着洪水持续上涨，新南威尔士州发出疏散令](/content/gnews/22/README.md)
+ ` 走进澳洲`
+
+### [吴尊友少感染4780万和六中全会内报感染7000万的对比](/content/gnews/23/README.md)
+ ` NewFOC`
+
+### [南非刚要求停止疫苗供应新变体就如约而至](/content/gnews/24/README.md)
+ ` 秘密翻譯組G-Translators`
+
+### [爆料革命创生的理论（下）](/content/gnews/25/README.md)
  ` 首尔天池农场`
 
-### [爆料革命创生的理论（中）](/content/gnews/25/README.md)
+### [爆料革命创生的理论（中）](/content/gnews/26/README.md)
  ` 首尔天池农场`
 
-### [比特币从历史新高回落20%，进入风险资产抛售行列](/content/gnews/26/README.md)
+### [比特币从历史新高回落20%，进入风险资产抛售行列](/content/gnews/27/README.md)
  ` 墨尔本雅典娜农场`
-
-### [马来西亚荒唐的疫苗有效期延期政策](/content/gnews/27/README.md)
- ` 纽约香草山MOS01`
 
 ### [废水被检出新冠病毒后，北领地偏远城镇被封锁](/content/gnews/28/README.md)
  ` 走进澳洲`

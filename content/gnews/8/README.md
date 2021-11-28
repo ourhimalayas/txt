@@ -2,40 +2,41 @@
 ---
 
 
-## 卡尔巴斯：西方是法治和规则的基础，中共国是威胁
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1702370/)
+## 打脸：拜登抨击川普旅行禁令 自己却另外颁布一个
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1702378/)
 
-**简评：**
+**翻译：Lulumi**
 
-华尔街知道中共是美国的敌人，意图颠覆全世界各国政府，也明白中共是西方法治和规则的威胁，但华尔街贪婪于每年从中共获得丰厚的回报。除非总统和国会动用力量限制华尔街对中共的投资和承包，否则华尔街为了利益会一如既往。如果华尔街能决定美国的未来，中文就会成为官方语言。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-851.png)图片来源: breitbart.com
 
-YouTube视频链接：
+2021年11月6日，美国总统乔·拜登在华盛顿白宫的国宴厅就两党基础设施协议的通过和允许通过《重建更好法案》的规则发表讲话时做出的反应。(ROBERTO SCHMIDT/AFP via Getty Images)
 
+在称前总统川普在2020年颁布的中共病毒旅行限制为种族主义和排外主义之后，美国总统乔·拜登周五因为新的中共病毒变种而对八个国家颁布旅行限制而遭到抨击。
 
+2020年中国冠状病毒大流行登陆美国后，川普对全球各国发布了旅行限制。拜登很快给这些保护主义措施贴上了种族主义和仇外的标签，比如2020年2月1日宣布旅行禁令后的这条推特。
 
-[GTV视频链接](https://gtv.org/video/id=619f2cf19bb2d31319dc6dd2)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-853.png)图片来源: breitbart.com
 
-**视频字幕：**
+上周五，世界被一种来自非洲国家的快速传播的冠状病毒变种惊醒。
 
-**主持人：**现在有些报导称，华尔街已经意识到中共国的状况。 首先，这是真的吗？如果是真的，会对美国人产生什么影响？
+拜登周五发布了对非洲国家的旅行禁令，让许多人看清他的虚伪：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-854.png)图片来源: breitbart.com![](https://assets.gnews.org/wp-content/uploads/2021/11/image-855.png)图片来源: breitbart.com
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-857.png)图片来源: breitbart.com
 
-**Kyle Bass：**他们都明白中共国是敌人。他们都明白中共政府对全世界各国政府所做的颠覆性的事情。他们都明白中共国是法治和规则的威胁，而法治和规则是西方的基础。所有这一切，全世界的政府也开始明白，但是华尔街从与中共国的交易中获得12%的收入，而且这些华尔街的家伙沉醉于每年丰厚的薪水。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-859.png)图片来源: breitbart.com
 
-所以直到总统和国会这一层级领导力量开始限制华尔街对中共的投资和承包，否则华尔街会一如既往。我总是开玩笑说，如果美国的安全由华尔街来决定，我们明天全都要说中文了。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-861.png)图片来源: breitbart.com
 
-字幕：Vekap | 听写；云岭 |  翻译：Roberts |  PR：Dasy | 简评/文字整理/编辑：胖丁
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-863.png)图片来源: breitbart.com
+
+新闻来源 : [ breitbart.com ] [Joe Biden Slammed for Calling Trump’s Travel Restrictions Racist, Xenophobic, Then Enacting His Own](https://www.breitbart.com/politics/2021/11/26/joe-biden-slammed-for-calling-trumps-travel-restrictions-racist-xenophobic-after-enacting-his-own/)
 
 * * *
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
+*审核：文乐
+校对：阿伯塔
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-2.jpeg)
 
 
  

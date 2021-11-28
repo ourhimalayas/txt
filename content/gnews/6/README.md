@@ -2,43 +2,36 @@
 ---
 
 
-## 打脸：拜登抨击川普旅行禁令 自己却另外颁布一个
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1702378/)
+## 2021年11月26-27日新闻集
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1702409/)
 
-**翻译：Lulumi**
+撰稿人：文远Bruce
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11284.jpg)
+七哥2021.9.23：“我都能感受到那种，**嘎吱！嘎吱！嘎吱！那种裂冰的声音**”。《易经.坤卦》初六爻：履霜，坚冰至！
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-851.png)图片来源: breitbart.com
+1.2.美股周五崩跌。2022.1.5—2.3辛丑月伏吟辛丑年  2.4—3.4 壬寅月伏吟壬寅年
+![](https://assets.gnews.org/wp-content/uploads/2021/11/112842.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/112843.jpg)
+3. 2021年美股流入基金总规模9000亿美元：债券基金4960亿，货币市场基金2600亿；ETF仍是投资者的首选产品，股票ETF 7850亿，多头基金约1080亿。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/112844.jpg)
+4.许家印套现27亿港币的同时在售卖足球场
+![](https://assets.gnews.org/wp-content/uploads/2021/11/112845.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/112846.jpg)
+5.佳兆业出售资产还债，避免违约。惠誉对佳兆业评C级：信誉极差，完全丧失支付能力。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/112847.jpg)
+6.7.俄罗斯陈兵10万俄乌边界
+![](https://assets.gnews.org/wp-content/uploads/2021/11/112848.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/112849.jpg)
+8.悉尼1127反疫苗游行
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1128410.jpg)
+9.墨尔本1127反疫苗百万游行
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1128411.jpg)
+编辑：
 
-2021年11月6日，美国总统乔·拜登在华盛顿白宫的国宴厅就两党基础设施协议的通过和允许通过《重建更好法案》的规则发表讲话时做出的反应。(ROBERTO SCHMIDT/AFP via Getty Images)
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
-在称前总统川普在2020年颁布的中共病毒旅行限制为种族主义和排外主义之后，美国总统乔·拜登周五因为新的中共病毒变种而对八个国家颁布旅行限制而遭到抨击。
+【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
 
-2020年中国冠状病毒大流行登陆美国后，川普对全球各国发布了旅行限制。拜登很快给这些保护主义措施贴上了种族主义和仇外的标签，比如2020年2月1日宣布旅行禁令后的这条推特。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-853.png)图片来源: breitbart.com
-
-上周五，世界被一种来自非洲国家的快速传播的冠状病毒变种惊醒。
-
-拜登周五发布了对非洲国家的旅行禁令，让许多人看清他的虚伪：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-854.png)图片来源: breitbart.com![](https://assets.gnews.org/wp-content/uploads/2021/11/image-855.png)图片来源: breitbart.com
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-857.png)图片来源: breitbart.com
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-859.png)图片来源: breitbart.com
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-861.png)图片来源: breitbart.com
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-863.png)图片来源: breitbart.com
-
-新闻来源 : [ breitbart.com ] [Joe Biden Slammed for Calling Trump’s Travel Restrictions Racist, Xenophobic, Then Enacting His Own](https://www.breitbart.com/politics/2021/11/26/joe-biden-slammed-for-calling-trumps-travel-restrictions-racist-xenophobic-after-enacting-his-own/)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-2.jpeg)
-
-
+发稿：MG5
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
