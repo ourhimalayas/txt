@@ -24,13 +24,6 @@
 
 ---
 
-`@miles 11/28/2021 1:08 PM (UTC)`
-
-2021年11月28日 文贵大直播：新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破
-![img](https://media.gettr.com/group17/origin/2021/11/28/12/259ba7cc-4603-55d8-c593-f3ad8ce363fe/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
 `@miles 11/28/2021 12:48 AM (UTC)`
 
 11/26/2021 Miles Guo: Smallpox cases appeared in hospitals in Shanghai and Hangzhou; doctors from a secret military base in Changzhou were suddenly picked up; The evilness of Sun Lijun, Meng Jianzhu, Wang Qishan, and Fu Zhenghua are unprecedented, and the world would be ruined if they were not arrested<br/><br/>11/26/2021 文贵直播：上海和杭州有医院出现天花病例，位于常州的秘密军事基地的医生被突然接走；孙力军、孟建柱、王岐山、傅政华的邪恶史无前例，不抓他们，世界都将被毁掉<br/>
@@ -155,6 +148,13 @@ Dr. Vladimir Zev Zelenko, a Ukrainian born, Zionist, Chasidic JEW has been arres
 
 11月25号：感恩节的快乐……
 ![img](https://media.gettr.com/group33/getter/2021/11/26/00/05/e1e6b743-2424-5028-81e0-2cac35f4d4da/out.jpg)
+
+---
+
+`@miles 11/25/2021 10:13 PM (UTC)`
+
+11/25/2021 Miles Guo’s GETTR: Changpeng Zhao of Binance has been fully colluding with the Chinese Communist Party to rob your money and take you out; if you cannot get your money out of Communist China, that money doesn’t belong to you, and it will drag you into disaster instead<br/><br/>11/25/2021 文贵盖特：币安赵长鹏已和中共全面配合图财害命，不离开中共国的钱不是你的钱，反而会要了你的命<br/>
+![img](https://media.gettr.com/group38/getter/2021/11/25/22/31a7a623-39f0-deb9-1991-5e6433131a40/out.jpg)
 
 ---
 
