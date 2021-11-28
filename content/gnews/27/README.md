@@ -2,202 +2,202 @@
 ---
 
 
-## 社会的边际效应比疫苗本身还可怕
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1701200/)
+## 疫苗次生危机还没到来
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1701227/)
 
-[https://gtv.org/video/id=61a238ef3ff6481adce525d2](https://gtv.org/video/id=61a238ef3ff6481adce525d2)
+[https://gtv.org/video/id=61a23d773ff6481adce527aa](https://gtv.org/video/id=61a23d773ff6481adce527aa)
 
-你看
-Mira
+**郭文贵**
+**Miles Guo**
 
-现在在中国大陆
-Ahora en China Continental
+任何人在这时候
+Anyone at this time
 
-它有一样东西
-Tiene una cosa
+还想说服别人来证明自己的正确
+still wants to persuade others to prove yourself correct
 
-它是盖不住
-Que no puede ser cubierta
+为了说服别人能证明自己积德行善
+and to prove that you are doing good deeds,
 
-就是到处这个天然气管爆炸
-Son las explosiones de tuberías de gas natural por todas partes
+你就是太无知了
+then you are too ignorant
 
-到处楼宇爆炸, 交通事故
-Accidentes vehiculares y explosiones de edificios
+这真的说不清道不明的这种
+It’s really hard to tell this
 
-现在中共国是最厉害的
-Ahora lo más poderoso del PCCh
+贪嗔痴慢疑的这个“痴”字
+word “foolishness” from the five minds of greed, hatred, foolishness, arrogance, and suspicion
 
-国内得病的人
-Las personas que se enfermaron
+在每个人身上体现得淋漓尽致
+It is vividly reflected in everyone
 
-儿童死亡率, 死胎率
-La tasa de mortalidad infantil, la tasa de la muerte fetal
+这个执着心已经把很多人完全给迷了双眼
+This attached mindset has completed blinded many people
 
-畸胎率, 心包炎, 心肌炎
-La tasa teratogénica, pericarditis, miocarditis
+没了智慧
+and lost their wisdom
 
-交通事故, 医院爆满
-Accidentes de vehículos, los hospitales llenos
+在这个问题疫苗灾难问题面前
+When we facing this problem of vaccine disaster,
 
-每一个人的背后
-Detrás de cada persona
+刚才谈的喜币
+the HCoin that we just talked about
 
-他都连接着一个家庭
-Está vinculada a una familia
+什么币安都是鸟事了
+and whatever the Binance is nothing
 
-每一个人都可能连接着一份工作
-Cada quien puede estar conectada de un trabajo
+你活着这些有你的
+You will have a share when you are alive
 
-这些事情持续下去就是
-Y si todas estas cosas siguen sucediendo
+不活着啥都不是你的
+otherwise nothing would be yours
 
-管天然气的, 天然气爆炸
-Los que se encargan del gas natural, se explotará la tubería
+你没了就没了，有了就有了
+Everything will be useless if you are gone, you will have them if you are here
 
-管拧管的, 结果管没有人拧了
-Los que se encargan de atornillar la tubería no lo hizo
+就这么简单
+It’s just that simple
 
-最惨的事情
-Y lo peor es
+只有新中国联邦，全人类就咱这么牛
+In the mankind, only us, the New Federal State of China is that awesome
 
-你看到郑州街头那俩孩子
-Ves a esos dos niños en las calles de Zhengzhou
+从第一天到现在
+Since the first day till now,
 
-他妈妈倒在街头的时候
-Cuando su mamá se cayó en la calle
+更重要的事情
+the more important thing is that
 
-那俩孩子完全是不知道怎回事了
-Estos dos niños no saben totalmente lo que estaba pasando
+你永远不知道感谢新中国联邦
+you never know how to thank the New Federal State of China,
 
-你告诉我这妈不在了
-Dime tú, si esta mamá ya no está
+真正的该如何感谢
+how to really thank by heart
 
-这俩孩子是怎么成长
-Cómo crecerán estos niños
+就是我们能让战友不打疫苗这件事
+Just by the fact that we can prevent our comrades from being vaccinated
 
-中国人一个人毁掉的时候
-Cuando una persona es destruida en China
+我可以说我们荣耀一万辈子都不夸张
+I can say that we are not an exaggeration of our glory
 
-这一个家庭就是撕裂
-Esta familia está rota
+因为让你存在
+Because it allows you to survive
 
-这整个社会现象
-Y el fenómeno de toda esta sociedad
+就我越看这么多人无知
+The more I see so many ignorant people
 
-就不是你今天能用语言
-Ya no puede ser descrito con palabras
+我越尊重新中国联邦
+the more I respect the New Federal State of China
 
-任何形容的了
-Ninguna descripción
+我每天看着这（新中国联邦）旗的时候
+when every day I look at this New Federal State of China flag
 
-拖垮了2到3个家庭
-2 a 3 familias fueron derribadas
+救（了）这么多人
+We have saved many lives
 
-然后再想想
-Y luego piensan
+咱救太多人了
+We have saved so many lives
 
-现在贫穷的发病率少的非洲
-Ahora hasta el país pobre de África donde tiene baja la morbilidad
+可是我希望你们真的懂得
+But I hope you really understand
 
-他也打了很多针
-También se ha vacunado varias dosis
+兄弟姐妹们
+brothers and sisters
 
-包括直罗陀我那个哥们
-Incluyendo Gibraltar, mi hermano
+疫苗灾难还没开始
+The vaccine disaster has not yet begun
 
-后来给我打电话
-Luego me llamó
+那比你想象的要差得多
+It is much worse than you think
 
-他说他小姨子的
-Diciendo que su cuñada
+因为你在阳光下
+because you are in the daylight
 
-一家人就死了四个人
-Murieron cuatro personas en la familia
+当你在黑夜中没有电灯的时候
+When you are in the dark without electricity,
 
-俩自杀, 俩个打了疫苗
-Dos se suicidaron y dos por haberse vacunado
+你就知道黑暗真的来了
+then you’ll know the darkness is really coming
 
-你想想, 这样的现象
-Piensa, este tipo de fenómeno
+不是你两天能藏点饭吃
+It’s not just two days while you still have food left
 
-那么, 在我们身边不会发生吗
-¿No sucederá en nuestro alrededor?
+后天能藏点饭吃
+or three days that you still can eat what you have saved
 
-想想加拿大, 美国, 英国
-Piensa en Canadá, EE. UU, Reino Unido
+是很多天的时候
+When that situation last many day,
 
-大卫兄弟
-Hermano David
+到处像洛杉矶像旧金山拿枪抢劫LV店一样
+like Los Angeles and San Francisco people robbed an LV store with a gun
 
-英国的医疗是全欧洲最烂的医疗
-La atención médica británica es la peor atención médica en Europa
+到处抢劫的
+There would be robbery everywhere
 
-英国最烂的就是它那个
-Lo peor del Reino Unido
+很恐怖的
+It’s very scary
 
-电厂发电站
-Es la Planta de energía
+还有一个，你们真不知道
+Also, there is another one that you really don’t understand
 
-所以大家一个社会的边际效应
-Entonces, el efecto marginal de todos como sociedad
+新中国联邦让你不打疫苗意味着什么
+that what does it mean for the New Federal State of China preventing you from vaccinated
 
-一个人有事儿
-Si a una persona le pasa algo
+太伟大了，太伟大了
+It’s so extraordinary
 
-一个家毁了, 几个家毁了
-Una casa o unas cuantas casas serán destruidas
+不但让你不打疫苗，还救这么多人
+because not only prevents you from getting vaccinated, but also saves so many people
 
-一个人有了病
-Una persona enferma
+珍惜我们新中国联邦吧，兄弟姐妹们
+Brothers and sisters, let’s cherish our New Federal State of China
 
-整个社会系统都要为他服务
-Todo el sistema social debe prestarle servicio
+你喝什么以后
+What would you drink in that situation?
 
-你们真的没想过
-Ustedes realmente no han pensado
+绝对不会让你买得到水
+You are absolutely not able to buy the drinking water,
 
-七哥现在就跟我的家人
-Ahora mi familia y yo
+买到你也花不起这钱
+and it’ll be too expensive to buy if it is available
 
-我的生活, 我的朋友
-Mi vida, mis amigos
+（有人说）我要烧水，你有电吗？你有气吗？
+You may say that I can boil the water, but where is the electricity or gas?
 
-我跟每个人聊
-Hablo con cada persona
+三天水只要你喝不好
+It only takes three days if you keep drinking non-drinkable water,
 
-我没有觉得任何人
-Y no siento que alguien
+你就开始拉肚子得疟疾
+you would start to have diarrhea and malaria
 
-包括你们4个
-Incluyendo ustedes 4
+你会看到像大卫三天（就会）拉疟疾
+You would have diarrhea in three days as David had
 
-我也不认为
-Tampoco lo creo
+像飞飞、卡丽熙，你脸都变形
+and your facial would be changed as Feifei and Kalixi had experienced
 
-你严肃认真地
-Estás enfrentando estrictamente
+我不是跟你们开半点玩笑
+I’m not joking with you at all
 
-真的面对这一刻的到来
-La llegada de este momento
+你不准备好这一刻那走着看吧
+You will see when that moment comes if you are not ready
 
-这比疫苗的本身还可怕
-Esto es más aterrador que la vacuna en sí
+灾难在后边呢
+The disaster has yet to come
 
-**原视频网址**：[https://gettr.com/post/pht37r0ebf](https://gettr.com/post/pht37r0ebf)
+**原视频链接:** [https://gettr.com/post/phtknu1333](https://gettr.com/post/phtknu1333)
 
-日期：11/26/2021
-原视频标题：社会的边际效应比疫苗本身还可怕
-El efecto marginal de la sociedad es más aterrador que la vacuna en sí
-原视频日期：11/25/2021
-原视频网址：https://gettr.com/post/pht37r0ebf
-任务编号：KC287（3015）
-视频时间段：0:00-1:45
+Date: 11/26/2021
+原视频标题: 疫苗次生危机还没到来
+The Vaccine Crisis Has Not Yet Arrived
+原视频日期：2021/11/24
+原视频链接: https://gettr.com/post/phtknu1333
+任务编号：3016
+视频时间段 : 0:00-2:06
 
-西听校：洛杉矶盘古农场- 霙霙（文霙）
-翻译：洛杉矶盘古农场- 小文萱
-翻译终校：洛杉矶盘古农场- 霙霙（文霙）
-字幕+视频制作：洛杉矶盘古农场 – 天涯行
+英听校：洛杉矶盘古农场 – 郭班之樱
+翻译：洛杉矶盘古农场 – 郭班之樱
+翻译终校：洛杉矶盘古农场 – Mike Li
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
 审片：洛杉矶盘古农场 – 银龙
 发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
 ![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)

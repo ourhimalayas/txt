@@ -2,106 +2,52 @@
 ---
 
 
-## 班农先生熬尽心思帮助中国人成立法治基金、法治社会
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1701269/)
+## 7·24系列——从奥姆真理教浅谈个人崇拜
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1701304/)
 
-[https://gtv.org/video/id=61a241343ff6481adce5291e](https://gtv.org/video/id=61a241343ff6481adce5291e)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/S1-AP934_jcult0_M_20180705203703.jpg)
+**整理：**WEI、BENJ1
+**编辑：**Kelly
 
-**郭文贵**
-**Miles Guo**
+郭文贵先生在视频中多次提及反对个人崇拜，2021年11月26日感恩节的大直播中又再次说到：“昨天我在船上，感恩节的时候好几个人发信息，‘七哥，因为你，我们怎么着，我们家怎么着……’我很不舒服，我最讨厌就是个人崇拜。我一看到什么这宗教，这教宗，这功，还有那什么宗教人士，当年到日本我见到放毒气的那个货，留着大胡子跟我见面时，我就说这个货绝对是个坏人，因为一见他就觉得阴森森的，后来就放毒气了，就是日本叫什么教的。还有我去韩国见了几个什么教的，穿着白色衣服出来跟我见面，就那个眼神那个样子，看女人的眼神就不是好东西。就是个人崇拜导致人性的迷失。我特别讨厌个人崇拜。你看看美国，很多人不去想，为何要感恩印第安人呢？在很多地方，印第安人吃不到火鸡。感恩是强者的胜利，给弱者的精神安慰。绝对化的感恩，是父母、自然，你的存在。新中国联邦人之间，是互相成长和互相帮助，永远不要互相感恩。共产党内没有感恩，只有交易……新中国联邦人要把新中国联邦放在心上，不要搞个人崇拜，知己知彼才可以真正了解中共，中共既不敬天也不敬地也不敬人，我们新中国联邦人要爱万物、敬万物、善待万物。”
 
-班农先生给我留下最深的印象，班农先生对中国人的了解
-I was most impressed by Mr. Bannon’s knowledge of the Chinese people
+文贵先生当年所见的这个日本人就是麻原彰晃，下面我们通过他鼓吹世界末日论的“奥姆真理教”，来看看个人崇拜有多么疯狂和恐怖。
 
-就是你没有听到一个外国人对中国的了解
-You haven’t heard any one foreigner’s understanding of China
+奥姆真理教，其教主麻原彰晃，本名松本智津夫，从小因为视力不佳，６岁就被送到寄宿制的盲人学校，因自己不是全盲而产生优越感，对同学实施霸凌。毕业后曾短暂经营针灸中心，因贩卖假药遭逮捕、罚款。之后他钻研起东方宗教和瑜珈，于1984年设立瑜珈教室，并自我神话，声称自己悟道，拥有了超能力，在《神秘学》杂志刊登了所谓空中漂浮的造假照片，原先的瑜伽会所改名为奥姆神仙会，1987年定名为奥姆真理教，并设立“出家制度”。
 
-我给你们讲过，我在班农先生之前，
-I told you that, before I met Mr. Bannon
+1987年之后，奥姆真理教的信众快速增加，在两三年间成为一股庞大势力。他们四处买土地兴建道场，信徒出家后只能在教团打造的道场过着与世隔绝的生活。不单在日本，连海外的莫斯科都开始设立道场。到了1990年，麻原彰晃与信徒等25人甚至一起投入日本众议院的选举，虽然全数落选，但从中可见其教团的膨胀。
 
-我见了CIA的什么领导啊，FBI的领导啊, 什么国会的，
-I met CIA’s officials, FBI’s officials, and some officials in Congress
+当时多数人仅意识到奥姆教是个快速窜起的新兴宗教，顶多觉得他们参选时的宣传手法有些可笑，但没人料想到，奥姆真理教的实际目的是建立人们对麻原彰晃及其教义的绝对服从，打着“救济世人灵魂，防止其堕入地狱”的名义，却以杀戮为手段，清除来自教团内外的质疑。封闭的教团内部，开始形成仿国家的组织，在日本制造各类绑架、杀人、恐怖袭击事件，将日本政府视为敌对力量，谋划以武力推翻国家。而最为臭名昭著的就是1995年的东京地铁沙林毒气攻击事件，造成13人死亡，约6000人受伤。2018年，麻原彰晃等被执行死刑。
 
-我见了多了去了，没有一个人能说
-I met a lot of America’s officials, but none of them can say clearly
+奥姆真理教的无差别恐怖攻击，皆以“拯救众生”为名，奥姆教的干部在事后纷纷指出“救赎”概念的可怕，所谓“救赎”呼应着某种绝对正义或绝对答案，在这样的使命感下，教徒放弃了对善恶的常理判断，盲目服从上级。人类心灵的脆弱，一旦被有歹心之人引导，赋予包装的合理和正当性，人类立刻能挣脱理性和良心的约束。
 
-他们都以为中国所有人都是共产党员, 也不知道中国的历史
-They all think that everyone in China is a Communist Party member, and they don’t know the history of China.
+麻原彰晃的助手在事后说：“我认为，他有很强烈的被害妄想和夸大妄想，那来自不得志的成长过程，与学业、事业上的挫败……与其说他是强大且深不可测的教主，倒不如说他其实处在不得志的痛苦中，他强大的魅力加上妄想，结果让许多汇聚而来的人受到牵连”。在他的描述里可见麻原彰晃是出了问题绝不认错的人，“反而认为都是别人的错，对别人有攻击性。”
 
-班农先生讲，明朝、唐朝、汉朝，我说这哥们行啊
-Mr. Bannon talked about Ming Dynasty, Tang Dynasty, Han Dynasty, I said this guy is awesome
+奥姆真理教和其它世间宗教一样，都否定物质世界的意义，宣扬钱财乃身外之物，奉劝信众多多奉献捐款以换取心灵世界的富足等，强调捐钱的数额与次数。其实就是把信众口袋里的钱财都装到自己腰包里。
 
-俺俩，这个越聊越多，而且班农先生最多关注就是老百姓
-We talked more and more, and Mr. Bannon was most concerned of the Laobaixing
+奥姆教出家制度，把信众和社会隔离，他们就只能服从上层，受其洗脑，成为没有现实感和责任感的行尸走肉，可以毫不迟疑地夺走他人生命。
 
-他说中国老百姓太苦了，他真的觉得中国老百姓是非常棒的
-He said that the Chinese Laobaixing are too miserable, and he really thinks that the Chinese people are very good people
+控制一个人最有效，最根本的方法就是控制他的大脑，控制他的思想，从而使其成为说啥是啥、指哪去哪的木偶和僵尸。经过洗脑的信徒，无知而无畏，会为灌输于脑中所谓永远正确的真神心甘情愿、大义凛然的制造细菌和毒气，完全失去人心、人性。多么愚昧、疯狂！
 
-他喜欢，他讲了各种例子，看到老百姓，香港啊，上海啊，
-He likes them and he told various examples, like he saw the Laobaixing in Hong Kong, Shanghai,
+除了奥姆真理教的上师崇拜、所谓的真神崇拜，掀起过个人崇拜狂潮的还有纳粹希特勒、苏联斯大林、朝鲜金氏家族、利比亚的卡扎菲……当然还有中共国的毛腊肉。可见封闭，专制、奴化、愚化必然产生个人崇拜，搞个人崇拜也是独裁者为了维护独裁统治，幻想江山代代传的需要。
 
-他到了北京啊, 然后他见到了王岐山的感觉呀，他说中国王岐山简直就是个魔鬼
-and when he arrived in Beijing, then he met Wang Qishan, and he said that the China’s Wang Qishan is simply a devil
+郭先生2021年11月3日的直播中说（摘要）：如果战友们说，因为财富是七哥给的，对七哥搞个人崇拜，那就真的伤了七哥的心。我发自内心地说：没有你们，我啥都不是……没有战友，我什么都没有。不能搞个人崇拜，永远要记住——我们要“诚”，不要“忠诚”，要诚待战友，诚待自己，诚待财富。
 
-然后他就觉得王岐山很怕他的平民运动，再一个他就听到我讲这些东西
-Then he felt that Wang Qishan was very afraid of his populism, and then he heard me talking about these things
+郭先生多次谈到信仰和宗教，在2021年11月14日的直播中说（摘要）：每个战友都要问自己，你们信自己吗？人类最大的问题就是贪嗔痴慢疑，这一点佛教总结的很好，人类几乎都不相信自己。就因为人类不相信自己，所以政府出现了，让你相信政府；宗教出现了，让你相信宗教……今天对待新中国联邦灭共事业，你信不信？信与不信决定了所有的命运。
 
-班农先生一个字不落，他没有任何应付,
-Mr. Bannon catches every single word that I said, he hasn’t done any perfunc-tory
+所以我要创建一个新的适合新中国联邦人的思维方式，要搞明白我们为什么来到这个世界？我们要去向何方？自己找出答案。绝不让任何人给你们答案，包括我，包括新中国联邦。我要重新定义信仰不应来自第三方影响，不应该为第三方供奉和奉献，所有的信仰应该是出自本心和本能，而且这些答案是正确的。
 
-我从没见过班农先生跟谁说话，去应付这个事儿，这个是让我对他绝对的尊重
-I’ve never seen it before when Mr. Bannon talk to someone very perfunctorily, this is something that gives me absolute respect for him
+所以，以诚相待，不仅是诚待战友，也要诚待自己，诚待财富；战友们发自内心的信自己，信灭共事业，念念不忘，必将开出新中国联邦的自由、民主、法治之花。
 
-他是一个真正的大师，而且他真是博学
-He is a real master, and he is really knowledgeable
+*发布：翼族*
 
-而且从中东、霍尔木兹海峡、高尔夫，然后整个红海到死海、俄罗斯、东欧、西欧
-And from the Middle East, the Strait of Hormuz, gulf, and then the entire Red Sea to the Dead Sea, Russia, Eastern Europe, Western Europe
+**更多资讯，请关注：**
 
-然后从非洲到美国的这个整个的内部战争和南北的整个战争
-Then from Africa to the civil war of the United States between North and South
-
-然后美国从华盛顿到这的历史，
-Then the history of the United States from Washington to now
-
-我们谈的就是，哗, 就过去了六七个小时啊，就是班农先生，你真的跟他的生活中了解他的时候
-We have been talking for six or seven hours，when you really got to know Mr. Bannon in his life
-
-他完全和你在屏幕上时不一样的，这是我们第一次见面
-He is completely different from when you see him on the screen, this is the first time we met
-
-很多很多事情发生，他完全同意美国的所有的问题
-Many, many things happen, and he totally agrees of all the problems in the United States
-
-很多都是共产党造成的，而且在非常的危险之中
-And many of them are caused by the Communist Party, and they are in great danger
-
-这是很重要的，小新，你翻译一下给班农先生
-This is very important, Xiaoxin, can you translate these to Mr. Bannon
-
-我说的观点也让西方观众听一听
-Let the western audiences hear my point of view
-
-**原视频链接:**[https://gettr.com/post/phnq2r1bcb](https://gettr.com/post/phnq2r1bcb)
-
-Date:11/26/2021
-原视频标题: 班农先生熬尽心思帮助中国人成立法治基金、法治社会
-Mr. Bannon worked so hard to help the Chinese people establish the rule of law foundation and the rule of law society
-原视频日期：2021/11/20
-原视频链接https://gettr.com/post/phnq2r1bcb
-任务编号：KC289（2994）
-视频时间段 : 0:00-1:56
-
-中听校: 洛杉矶盘古农场 – Layka
-翻译: 洛杉矶盘古农场 – Layka
-翻译终校: 洛杉矶盘古农场 – Mike Li
-字幕+视频制作：洛杉矶盘古农场 –天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

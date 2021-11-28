@@ -15,100 +15,100 @@
 
 ---
 
-### [洛杉矶消防员因用强制疫苗信擦屁股而被“调查”](/content/gnews/1/README.md)
+### [专家表示，慢性疲劳患者应豁免接种Covid-19疫苗](/content/gnews/1/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [洛杉矶消防员因用强制疫苗信擦屁股而被“调查”](/content/gnews/2/README.md)
  ` 墨尔本雅典娜农场`
 
-### [日本将修改国家安全战略，增加对敌基地攻击能力](/content/gnews/2/README.md)
+### [日本将修改国家安全战略，增加对敌基地攻击能力](/content/gnews/3/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [9月24日采访喜马拉雅交易所首席执行官杰西·布朗-喜马拉雅交易所概况](/content/gnews/3/README.md)
+### [9月24日采访喜马拉雅交易所首席执行官杰西·布朗-喜马拉雅交易所概况](/content/gnews/4/README.md)
  ` 纽约香草山MOS01`
 
-### [赵长鹏会终身待在大牢里](/content/gnews/4/README.md)
+### [赵长鹏会终身待在大牢里](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [秦刚当时来美国的目的](/content/gnews/5/README.md)
+### [秦刚当时来美国的目的](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [必看！各种解药的功效](/content/gnews/6/README.md)
+### [必看！各种解药的功效](/content/gnews/7/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [青蒿素对未打疫苗感染者的功效](/content/gnews/7/README.md)
+### [青蒿素对未打疫苗感染者的功效](/content/gnews/8/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [共匪巨额维稳费收买外国闭嘴](/content/gnews/8/README.md)
+### [共匪巨额维稳费收买外国闭嘴](/content/gnews/9/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [新中国联邦集体诉讼币安申请财产保全](/content/gnews/9/README.md)
+### [新中国联邦集体诉讼币安申请财产保全](/content/gnews/10/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [世界之黑暗把人类变成地狱一样](/content/gnews/10/README.md)
+### [世界之黑暗把人类变成地狱一样](/content/gnews/11/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [排华浪潮来势汹汹源于共产党——始乱终弃](/content/gnews/11/README.md)
+### [排华浪潮来势汹汹源于共产党——始乱终弃](/content/gnews/12/README.md)
  ` 澳喜特战旅Gnews`
 
-### [不灭共大家都会成为中共体制的牺牲品](/content/gnews/12/README.md)
+### [不灭共大家都会成为中共体制的牺牲品](/content/gnews/13/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [在共同灭共的信仰上才能拥有喜马拉雅福利币的价值](/content/gnews/13/README.md)
+### [在共同灭共的信仰上才能拥有喜马拉雅福利币的价值](/content/gnews/14/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [KYC的重要性](/content/gnews/14/README.md)
+### [KYC的重要性](/content/gnews/15/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [三星将在德克萨斯州建造半导体芯片工厂](/content/gnews/15/README.md)
+### [三星将在德克萨斯州建造半导体芯片工厂](/content/gnews/16/README.md)
  ` 纽约香草山MOS02`
 
-### [中共的体制让习近平也生活在恐惧之中](/content/gnews/16/README.md)
+### [中共的体制让习近平也生活在恐惧之中](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [生理护照](/content/gnews/17/README.md)
+### [生理护照](/content/gnews/18/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共的杀富“济贫”是依法抢劫](/content/gnews/18/README.md)
+### [中共的杀富“济贫”是依法抢劫](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美共和党华尔兹议员表示：中共长期以来对异议者实行失踪](/content/gnews/19/README.md)
+### [美共和党华尔兹议员表示：中共长期以来对异议者实行失踪](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共竭力炫耀优于美国的政治制度：2022年中国共产党代表大会将与美国的中期选举形成对比](/content/gnews/20/README.md)
+### [中共竭力炫耀优于美国的政治制度：2022年中国共产党代表大会将与美国的中期选举形成对比](/content/gnews/21/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [7·24系列——从奥姆真理教浅谈个人崇拜](/content/gnews/21/README.md)
+### [7·24系列——从奥姆真理教浅谈个人崇拜](/content/gnews/22/README.md)
  ` 墨尔本雅典娜农场`
 
-### [班农先生熬尽心思帮助中国人成立法治基金、法治社会](/content/gnews/22/README.md)
+### [班农先生熬尽心思帮助中国人成立法治基金、法治社会](/content/gnews/23/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [从“日不落帝国”看今天“中国梦“的结局](/content/gnews/23/README.md)
+### [从“日不落帝国”看今天“中国梦“的结局](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [自中共病毒疫情爆发以来，盖茨基金会向中共输送了超过5400万美元](/content/gnews/24/README.md)
+### [自中共病毒疫情爆发以来，盖茨基金会向中共输送了超过5400万美元](/content/gnews/25/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [9月24日采访喜马拉雅交易所首席执行官杰西·布朗-首席执行官的介绍](/content/gnews/25/README.md)
+### [9月24日采访喜马拉雅交易所首席执行官杰西·布朗-首席执行官的介绍](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [疫苗次生危机还没到来](/content/gnews/26/README.md)
+### [疫苗次生危机还没到来](/content/gnews/27/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [社会的边际效应比疫苗本身还可怕](/content/gnews/27/README.md)
+### [社会的边际效应比疫苗本身还可怕](/content/gnews/28/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [澳门娱乐业大亨周焯华被中共警方批准逮捕](/content/gnews/28/README.md)
+### [澳门娱乐业大亨周焯华被中共警方批准逮捕](/content/gnews/29/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [小罗伯特·肯尼迪：福奇是制药业的孵化器](/content/gnews/29/README.md)
+### [小罗伯特·肯尼迪：福奇是制药业的孵化器](/content/gnews/30/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [中共的武器库—类似天花的病毒](/content/gnews/30/README.md)
+### [中共的武器库—类似天花的病毒](/content/gnews/31/README.md)
  ` 秘密翻譯組G-Translators`
 
-### [Omicron变体刚被发现 药企宣称已有对应疫苗（2/2）](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [为应对Omicron变种 纽约宣布进入紧急状态](/content/gnews/32/README.md)
+### [Omicron变体刚被发现 药企宣称已有对应疫苗（2/2）](/content/gnews/32/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
 ### [密苏里州法官裁定去年以来实施的COVID限制为非法](/content/gnews/33/README.md)
