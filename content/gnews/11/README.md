@@ -2,27 +2,34 @@
 ---
 
 
-## 台湾前线｜多国接续访台 台外交部：不屈服于解放军威胁
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1705079/)
+## 中共病毒新突变 Omicron令日本率先关闭国门
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1705176/)
 
-**台灣寶島農場 港台前線關注組 / 發佈時間｜29/11/2021**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/photo_2021-11-07-14.32.38.jpeg)
-**更多資訊請關注官方蓋特｜please follow our Gettr （[https://gettr.com/user/hktwfrontline](https://gettr.com/user/hktwfrontline)）**
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh6.googleusercontent.com/8DsKVF4TkvrUmod4hv8ratlTMNarL5hRDiiw2CqEDOkrCRYMxGrGRvmiCW-o05whh_FTGonG4CRFhHOlnDTluSLOYbKMXEmHCBzzIcJSrvfX4OEEWr-YxHdP52Uw5YUj8KOyS7Vf)[*图片来源*](https://www.asahi.com/articles/photo/AS20211129001301.html?iref=pc_photo_gallery_next_arrow)
+**日本因世界上OMICRON新变种毒株蔓延而关闭国门，从30日凌晨起禁止令生效，包括日本海外归来者，首相岸田文雄说：“该措施以防止日本出现最坏的情况。” “我有觉悟来承受所有的批评”。另据新中国联邦郭文贵先生透露，这是中国共产党制造地缘政治动乱。郭先生早在15号就说过，新的病毒可能会从美国的西部开始被投放，非洲不是新的传染源。**
 
-28日，经台湾国防部证实有27架解放军机侵入台湾防空识别区，其中包含刚服役不到两个月的运20加油机。面对中共恶意侵扰，台湾外交部长吴钊燮于29日受访时强调，外交部立场很清楚，我们不会在威胁下低头，不会在威胁下屈服，外交部会持续和其他爱好民主国家连结和强化关系。
+据日本[朝日新闻](https://www.asahi.com/articles/ASPCY4RBSPCYULFA01C.html?iref=pc_special_coronavirus_top)29日消息，首相岸田文雄发布全国旅游禁止令，从30日午夜起禁止外国人入境。这是日本自大流行以来第二次封关。[**阅读更多**](http://www.news.cn/2021-11/29/c_1128111711.htm)
 
-## 美议员访台：台湾共和国
-![](https://assets.gnews.org/wp-content/uploads/2021/11/20211126095409-b6527742.png)圖／Rep. Nancy Mace twitter
-共和党籍众议员梅斯（Nancy Mace），25日抵达台湾后PO了一张她与专家在停机坪的照片，写刚抵达“台湾共和国”（Republic of Taiwan）。她本人接受新闻采访表示，就是“百分之百”刻意使用台湾共和国这个词，表示很多人台湾人谢谢她这么做。
+作为对中共病毒（Covid-19）新突变[**Omicron**](https://www.washingtonpost.com/health/2021/11/26/faq-new-variant-omicron/)病毒株采取紧急疏散预防措施，岸田说，我会这样做的。并在总理府回答了记者的采访。
 
-## 立陶宛国会议员28日访台 
+政府消息确认，决定暂时中止自本月 8 日开始对外国商人、留学生和技术实习生进行放松管制的措施。不仅如此，岸田首相还打算加强对确诊Omicron菌株的14个国家/地区，以及南非等9个国家/地区的日本海外归国者的边境措施。
 
-立陶宛、爱沙尼亚及拉脱维亚的国会议员28日抵达台湾，将参加在台北举行的“2021年开放国会论坛”，其中立陶宛的议员更要台湾人民自己决定台湾的未来，更霸气表示“对于被中国列黑名单很骄傲”。
+- ***延展阅读：***[***刻意渲染紧张感？日本年度防卫预算总额首超6万亿日元***](http://www.news.cn/mil/2021-11/29/c_1211466231.htm)
+- ***延展阅读：***[***欧盟委员会主席表示，Omicron新毒株让世界陷入“与时间赛跑”的境地***](https://www.cnn.com/2021/11/28/world/coronavirus-omicron-variant-spreading-intl/index.html)
 
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/11/港台前線-（TW）-9.jpg)
-來源｜[三立](https://tw.news.yahoo.com/27%E6%9E%B6%E5%85%B1%E6%A9%9F%E6%93%BE%E5%8F%B0-%E5%90%B3%E9%87%97%E7%87%AE-%E4%B8%8D%E6%9C%83%E5%B1%88%E6%9C%8D-025011567.html)/[TVBS](https://news.tvbs.com.tw/world/1646586)
 
+岸田先生特别强调，“我认为在管理政府时应该在处理未知的风险时保持更加谨慎。至于有人批评说安田在不知道发生什么时过于谨慎，我有觉悟来承受所有的批评。”
+
+另据美联社日本消息证实，日本因Omicron蔓延禁止外国游客入境日本，首相岸田文雄说：“[该措施将于周二生效。我们正在采取紧急预防措施，以防止日本出现最坏的情况](https://www.mrt.com/news/article/Japan-bans-entry-of-foreign-visitors-as-omicron-16658858.php)。”
+
+对于Omicron新变种为何在南非发源？对此，新中国联邦郭文贵先生透露，“中国共产党显然是在制造地缘政治动乱，非洲根本不可能是传染源，这是注射两针疫苗接种者之间的传播，共产党把这个嫁祸非洲。”郭先生曾在15号就说过，“新的病毒即将开始，这不是我预测的，是中国潜逃欧洲的一位资深生化专家透露的，他说新的病毒可能会从美国的西部开始被投放。关键是制造你内部矛盾，把你供应链断掉，让你活在恐惧中。”郭先生补充说（[37:57时段](https://gettr.com/post/pi5gfs500d)）。
+
+2021年11月29日
+
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

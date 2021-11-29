@@ -2,34 +2,43 @@
 ---
 
 
-## 【玫瑰看新闻】第205期 新西兰本地新闻
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1705167/)
+## 世界上第一起针对比尔·盖茨及其合伙人的疫苗谋杀案在印度高等法院立案
+` 秘密翻译组-即时新闻播报组` [轉載自GNews](https://gnews.org/zh-hans/1705249/)
 
-2021年11月28日（新西兰时间）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/PHOTO-2021-11-28-22-33-19.jpg)
-🌲.最新通报：社区新增144例，又一病例死亡
+**By:秘翻新闻**
 
-11月28日下午1点，卫生部发布了最新的疫情通报。在过去一天，新西兰社区新增阳性病例144例。其中，奥克兰127例，怀卡托9例，北地2例，丰盛湾4例，霍克斯湾有1例。
+***2021-11-29***
+[![](https://assets.gnews.org/wp-content/uploads/2021/11/1129.png)](https://gtv.org/broadcast/watch/61a4966f44c1fe7a6c3b337b)点击图片观看视频
+**新闻摘要:**
 
-卫生官员目前在密切关注关于新的Omicron B.1.1529变种的最新国际信息。
+1. 疫情再升温 黑龙江讷河市全城全员核酸检测 满洲里市封城
 
-作为一项预防措施，根据卫生总干事的建议，政府昨日将非洲南部的9个国家列入“非常高风险国家”名单，对前往新西兰的旅行实施更多限制。
+2. 中共国失业潮 百万离职千万失信
 
-🌲.[奥克兰北部突发大火，40名消防员、数架直升机赶往灭火](https://www.nzherald.co.nz/nz/fire-at-woodhill-forest-40-firefighters-at-scene-north-of-auckland/SLRP2YBEOOF27F2JB2BVQGE3BE/)
+3. 郭文贵先生：习近平会让中共加速灭亡
 
-据[英文《先驱报》报道](https://www.nzherald.co.nz/nz/fire-at-woodhill-forest-40-firefighters-at-scene-north-of-auckland/SLRP2YBEOOF27F2JB2BVQGE3BE/)，今天早晨，大约40名消防员前往Woodhill Forest灭火。
+4. 回国受阻 印尼劳工：中共血清检测无人性
 
-奥克兰西北部地区突发的这场大火覆盖面积约26公顷。
+5. 世界上第一起针对比尔·盖茨及其合伙人的疫苗谋杀案在印度高等法院立案
 
-几架直升机也赶到现场帮助灭火。
+6. 新变种Omicron首发南非 系中共投毒欲挑种族矛盾攻打台湾
 
-新西兰消防与紧急服务部（Fire and Emergency NZ）经理Josh Pennefatther说，大火没有威胁到任何房子，也没有人受伤。起火原因尚不清楚。
+7. 福奇借口新变种 继续宣传接种疫苗
 
+8. 以色列率先锁国 拟用反恐手机追踪定位技术监控确诊者
 
+9. 台湾派出军机 应对中共解放军的再次挑衅
 
-审核校对：Barry Jack
-上传排版：F
+10. 掉入中共债务陷阱！乌干达首都机场将被中共接管
 
+**GTV链接：**[https://gtv.org/broadcast/watch/61a4966f44c1fe7a6c3b337b](https://gtv.org/broadcast/watch/61a4966f44c1fe7a6c3b337b)
+
+发布: 文橙
+
+* * *
+
+**更多资讯,敬请关注**
+![](https://assets.gnews.org/wp-content/uploads/2021/09/IMAGE-2021-08-12-195949.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,34 +2,37 @@
 ---
 
 
-## 中共病毒新突变 Omicron令日本率先关闭国门
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1705176/)
+## 中共高压监管下近200家公司被迫终止IPO上市计划
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1705273/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh6.googleusercontent.com/8DsKVF4TkvrUmod4hv8ratlTMNarL5hRDiiw2CqEDOkrCRYMxGrGRvmiCW-o05whh_FTGonG4CRFhHOlnDTluSLOYbKMXEmHCBzzIcJSrvfX4OEEWr-YxHdP52Uw5YUj8KOyS7Vf)[*图片来源*](https://www.asahi.com/articles/photo/AS20211129001301.html?iref=pc_photo_gallery_next_arrow)
-**日本因世界上OMICRON新变种毒株蔓延而关闭国门，从30日凌晨起禁止令生效，包括日本海外归来者，首相岸田文雄说：“该措施以防止日本出现最坏的情况。” “我有觉悟来承受所有的批评”。另据新中国联邦郭文贵先生透露，这是中国共产党制造地缘政治动乱。郭先生早在15号就说过，新的病毒可能会从美国的西部开始被投放，非洲不是新的传染源。**
+#### 撰稿：日本东京方舟农场  海星
 
-据日本[朝日新闻](https://www.asahi.com/articles/ASPCY4RBSPCYULFA01C.html?iref=pc_special_coronavirus_top)29日消息，首相岸田文雄发布全国旅游禁止令，从30日午夜起禁止外国人入境。这是日本自大流行以来第二次封关。[**阅读更多**](http://www.news.cn/2021-11/29/c_1128111711.htm)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/B77CECEA-AC8A-4932-A42B-5415F7172805.jpeg)（图片来源：网络）
 
-作为对中共病毒（Covid-19）新突变[**Omicron**](https://www.washingtonpost.com/health/2021/11/26/faq-new-variant-omicron/)病毒株采取紧急疏散预防措施，岸田说，我会这样做的。并在总理府回答了记者的采访。
+据《中央社》11月28日报道，今年截至11月为止，中共国至少已有近200家公司在中共的高压监管之下，被迫终止了IPO上市计划。
 
-政府消息确认，决定暂时中止自本月 8 日开始对外国商人、留学生和技术实习生进行放松管制的措施。不仅如此，岸田首相还打算加强对确诊Omicron菌株的14个国家/地区，以及南非等9个国家/地区的日本海外归国者的边境措施。
+该报道称，据统计，终止IPO上市计划的企业以创业板和科创版居多，共有167家公司；而在上海及深圳证交所主板终止IPO的公司也至少有29家。
 
-- ***延展阅读：***[***刻意渲染紧张感？日本年度防卫预算总额首超6万亿日元***](http://www.news.cn/mil/2021-11/29/c_1211466231.htm)
-- ***延展阅读：***[***欧盟委员会主席表示，Omicron新毒株让世界陷入“与时间赛跑”的境地***](https://www.cnn.com/2021/11/28/world/coronavirus-omicron-variant-spreading-intl/index.html)
+该报道指出，今年有众多IPO上市计划的公司在首次参加中共证监会股票发行审核委员会会议时，就被以各种理由否決或是暂缓审议。
+
+据悉，今年已有15家计划IPO的公司在首次审核时即遭暂缓审议；而在进入二次会议后，目前已有5家被否決，1家撤回了上市申請。
+
+自2020年末中共国上交所终止蚂蚁科技集团IPO上市计划以来，中共针对各领域的高压政策正在逐步升级。在线音频分享平台“喜马拉雅”在今年9月也遭到施压，被迫撤回赴美上市计划。
+
+*链接：*
+
+1. [*https://www.cna.com.tw/news/acn/202111280064.aspx*](https://www.cna.com.tw/news/acn/202111280064.aspx)
+2. [*https://gnews.org/zh-hans/1525936/*](https://gnews.org/zh-hans/1525936/)
 
 
-岸田先生特别强调，“我认为在管理政府时应该在处理未知的风险时保持更加谨慎。至于有人批评说安田在不知道发生什么时过于谨慎，我有觉悟来承受所有的批评。”
+* * *
 
-另据美联社日本消息证实，日本因Omicron蔓延禁止外国游客入境日本，首相岸田文雄说：“[该措施将于周二生效。我们正在采取紧急预防措施，以防止日本出现最坏的情况](https://www.mrt.com/news/article/Japan-bans-entry-of-foreign-visitors-as-omicron-16658858.php)。”
+*素材采编：海星*
 
-对于Omicron新变种为何在南非发源？对此，新中国联邦郭文贵先生透露，“中国共产党显然是在制造地缘政治动乱，非洲根本不可能是传染源，这是注射两针疫苗接种者之间的传播，共产党把这个嫁祸非洲。”郭先生曾在15号就说过，“新的病毒即将开始，这不是我预测的，是中国潜逃欧洲的一位资深生化专家透露的，他说新的病毒可能会从美国的西部开始被投放。关键是制造你内部矛盾，把你供应链断掉，让你活在恐惧中。”郭先生补充说（[37:57时段](https://gettr.com/post/pi5gfs500d)）。
+*编辑：青衣青青*
 
-2021年11月29日
+*发布：miumiu*
 
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
