@@ -2,51 +2,24 @@
 ---
 
 
-## 电价普涨 小麦进口创新高 戳破中共宣传谎言
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704262/)
+## 捷克总统因病毒测试结果阳性而入院治疗
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1704320/)
 
-作者：日本方舟农场 – Andy5
+原文采编： UCool优酷       编译撰稿：文文-自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2021/11/06-picture.jpg)
+据[法新社]11月25日报道，捷克总统泽曼因其当天的“新冠病毒”测试结果呈阳性，而随后被送入医院进行治疗。
 
+据悉，身为该国资深左翼人士总统，现年77岁的泽曼，尽管此前已完全接种了“新冠病毒”疫苗，并注射了加强剂。但此次仍被检测出该病毒的无症状感染，不禁让各界对该疫苗的有效性产生诸多担忧和质疑。
 
+报道称，目前在人口约1070万的捷克，“新冠病毒”感染人数呈持续增长之势。由于近期疫情恶化，特别是前一天的新增感染病例约26000个，达该国历史新高，而导致当局立即宣布了新的疫情限制措施，包括在夜间关闭餐馆、酒吧以及整个圣诞节市场等。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+（以上内容仅代表原文信息和作者个人观点）
 
+校对编辑：硫酸羟氯喹64
 
+发稿：苦尽甜来 (文來）
 
-11月28日，本台综合墙内多家媒体的消息后发现，中共在10月大肆宣传保持电价稳定以及粮食大丰收之后，11月却爆出了完全相反的数据。
-
-10月下旬以来，墙内31省份中已经有26个陆续宣布电价上涨，其中7个省份上涨超过50%，内蒙古更是上涨了80%。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-133.jpg)
-另外根据中共海关的数据，今年1到10月，中共小麦进口量已经达到808万吨，全年超越2020年的838万吨的纪录几乎可以板上钉钉了。相对于2010年的120万吨、2019年的349万吨，中共前10年进口增长比较平稳，近两年则出现了跳跃式增长，而官方人口数没有大幅增加。电费上涨、粮食进口量激增的事实已经戳破了中共的谎言。
-
-参考链接：
-1. [冬奥会来袭：重工企业关停至3月！塑化巨头连发涨价函！](https://www.163.com/dy/article/GPQ19VO905509P99.html?f=post1603_tab_news)
-2. [11月中旬：粮价全面上涨 生产资料价格首次大幅度下降](https://www.163.com/dy/article/GPNBOU750552IAYT.html?f=post2020_dy_recommends)
-3. [观望氛围浓厚 麦价高位“拉锯”](https://finance.sina.com.cn/money/future/roll/2021-11-25/doc-ikyamrmy4968524.shtml)
-4.[商务部：扩大先进技术、重要设备等进口，鼓励优质消费品进口](https://finance.sina.com.cn/roll/2021-11-24/doc-iktzqtyu9271644.shtml?cre=tianyi&amp;mod=pcpager_fin&amp;loc=3&amp;r=0&amp;rfunc=58&amp;tj=cxvertical_pc_pager_spt&amp;tr=164)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编/编辑：飞虹
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[原文链接](https://www.barrons.com/news/czech-president-back-in-hospital-over-positive-covid-test-01637868607)
 
  
 
