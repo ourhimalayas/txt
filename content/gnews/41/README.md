@@ -2,23 +2,26 @@
 ---
 
 
-## 澳洲发现首例无症狀Omicron毒株感染者
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704554/)
+## VAERS数据显示 接种毒疫苗后宫外孕数量激增50倍
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704562/)
 
-作者：纽约香草山医疗部 – 云豹
+作者：纽约香草山农场 – AlexZ
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-澳洲政府于当地时间11月28日宣布，昨日两名从南非抵澳洲雪梨的旅客，被检测出带有中共病毒Omicron病毒株。这是澳洲首次发现此病毒株。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture284.jpg)
-澳洲新南韦尔斯州雪梨市的卫生官员表示，这两位旅客都已经接受过完整疫苗注射，目前也没有症状。他们是在抵达雪梨机场接受病毒检测时，被发现感染中共病毒，并经进一步基因定序后，确认是感染了Omicron病毒株。
+11月22日，有美国媒体在分析了政府疫苗不良事件报告系统的数据后指出，近11个月中，已经有52例妇女在接种中共病毒疫苗后被发现有宫外孕。而在过去30多年里，总共只有30例妇女在接种了FDA批准的疫苗后，出现宫外孕的现象，大概只有每年1例。这意味着，在过去11个月里，对育龄妇女注射中共病毒疫苗后，与过去30多年来接种疫苗的育龄妇女相比，宫外孕增加了50倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture285.jpg)
+另外，该媒体还报告了与疫苗不良事件报告系统有关的其他数据，发现近11个月中，有2,620 名胎儿死亡，也远高于过去 30 年该系统报告的接种所有疫苗后的胎儿死亡人数总和。
 
-目前该病毒株已陆续出现在南非、博茨瓦纳、荷兰、德国、意大利、英国、捷克、比利时、香港、澳洲等国。
+该媒体认为，对于从政府疫苗不良事件报告系统获得的这些数据，任何人都可以在网上得到，显然FDA和CDC也可以，而且他们知道这些风险的存在。
 
-参考链接：[澳洲发现首例无症狀Omicron毒株感染者](https://www.cna.com.tw/news/aopl/202111280097.aspx?topic=2012)
+参考链接：
+1. [VAERS数据显示 接种毒疫苗后宫外孕数量激增50倍](https://healthimpactnews.com/2021/vaers-data-reveals-50-x-more-ectopic-pregnancies-following-covid-shots-than-following-all-vaccines-for-past-30-years/)
+2. [VAERS数据显示 接种毒疫苗后宫外孕数量激增50倍](https://bit.ly/3E2MROm)
+3. [VAERS数据显示 接种毒疫苗后宫外孕数量激增50倍](https://bit.ly/3p7yO3Z)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：文特
-编辑：文特
+总编：飞虹
+编辑：飞虹
 校对/发稿：Hetangyuese
 
 **更多资讯，更多关注**

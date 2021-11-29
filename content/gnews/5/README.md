@@ -2,25 +2,24 @@
 ---
 
 
-## 掉入中共债务陷阱！乌干达唯一一个国际机场恐被中共接管
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1704996/)
+## 最高警戒“Omicron”，11月30日0点起禁止全球外国人入境
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1705063/)
 
-#### 翻译/撰稿：zzballack
+撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-925.png)图片来源
+日本把对于Omicron变异毒株的警戒提升至最高级，国立传染病研究所加强监控，日本将禁止全球外国人入境。
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-2-2.jpg)图片来源：Palpal News Hub
-据印度媒体《世界一体新闻台》（WION）11月28日报道，乌干达可能很快就会成为中共债务陷阱的最新受害者。该国唯一的国际机场，即恩德培国际机场 (Entebbe International Airport)，正面临着被中共接管的危险。
+26日将Omicron变异毒株列为第二高的“关注变种”（VOI）但由于欧洲等国出现一系列感染病例，决定进一步加强监控。28日晚，将“Omicron”指定为“关注变种”（VOC），并将其提升至警戒三个阶段中的最高级别。
 
-2015年11月，乌干达与中共进出口银行签署协议，以2%的利率贷款2.07亿美元，用于扩建恩德培国际机场。据坦桑尼亚《公民报》（The Citizen）报导，这笔贷款的偿还期限为20年，包括7年宽限期。宽限期内仅需偿还利息，暂不偿还本金，但宽限期将于明年失效。乌干达近期发现无法如期偿还，便派遣官方代表团前往北京再次谈判协议，但中共贷款方拒绝改变原协议的条款。
+日本政府11月29日宣布，将在全球范围内禁止外国人入境，作为加强海滨应对中共病毒新变种Omicron迅速蔓延的措施的一部分。该禁令将实施 “一个月”，并将于30日0点生效。
 
-原贷款协议中第13条赋予中共进出口银行批准年度和月度运营预算、检查乌干达政府和民航局（UCAA）账务的权力，因此具有争议。而中国国际经济贸易仲裁委员会被指派解决相关争端。乌干达民航局对此表示，恩德培国际机场和其他相关资产可能会在仲裁后被中共进出口银行扣押接管。
+信息来源：[入国停止は「当面1カ月」　邦人待機、英独など追加](https://news.yahoo.co.jp/articles/946f69f1fba72d3ac35d747c0b7cba6e50d8a1e4)
 
-据乌干达《每日观察报》（Daily Monitor）报道，乌干达政府在协议中答应放弃国际豁免权，让恩德培机场无法受国际仲裁保护。乌干达财政部长马蒂亚·卡萨亚（Matia Kasaija）为这笔贷款的“不当处理方式”，上周向议会致歉。
+[オミクロン株の警戒度、日本も最高レベルに　感染研、監視を強化](https://news.yahoo.co.jp/articles/f6e581c04c51cc04d1c2efb1a2a7c486acd927f6)
 
-中共进出口银行之前还资助了乌干达2个主要电力项目约85%的资金，和4.76亿美元建造从首都坎帕拉（Kampala）通往恩德培的恩德培高速公路。
-
-新闻来源：[China’s debt trap strategy: Uganda set to lose its only international airport to Beijing](https://www.wionews.com/world/chinas-debt-trap-strategy-uganda-set-to-lose-its-only-international-airport-to-beijing-432465)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

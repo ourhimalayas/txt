@@ -2,26 +2,29 @@
 ---
 
 
-## 中共新型空中加油机首次进入台湾防空识别区
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704986/)
+## COVID-19 最新情報｜台灣青少年接種BNT 部分無法上學、需住院
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1705053/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-135.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fmedia.dwnews.net%2Fdw%2Fvxq8mAZ0IeIrCPgNtadiKcXP8QU%253D%2F320*0%2Fmedia%2Fimages%2Fdw%2F20181210%2F15444363115c0e3a57c6d28.jpg&amp;imgrefurl=https%3A%2F%2Fwww.famousdnm.com%2F%25E4%25B8%25AD%25E5%259B%25BD%2F60270157%2F%25E8%25A7%25A3%25E6%2594%25BE%25E5%2586%259B%25E6%2596%25B0%25E5%259E%258B%25E5%258A%25A0%25E6%25B2%25B9%25E6%259C%25BA%25E9%25A6%2596%25E6%25AC%25A1%25E7%258E%25B0%25E8%25BA%25AB%25E5%258F%25B0%25E6%25B5%25B7%25E5%25B0%2586%25E5%25A4%25A7%25E5%25A4%25A7%25E6%258F%2590%25E5%258D%2587%25E6%2588%2598%25E5%258A%259B&amp;tbnid=-AHu4qdhgKcwJM&amp;vet=12ahUKEwjA_IzmlL30AhUbHTQIHdWdARUQMygBegUIARCdAQ..i&amp;docid=OMDyZTDyRyC8dM&amp;w=1920&amp;h=798&amp;itg=1&amp;q=%E4%B8%AD%E5%85%B1%E6%96%B0%E5%9E%8B%E7%A9%BA%E4%B8%AD%E5%8A%A0%E6%B2%B9%E6%9C%BA&amp;ved=2ahUKEwjA_IzmlL30AhUbHTQIHdWdARUQMygBegUIARCdAQ)
-台湾国防部11月28日公布，当天有27架次中共国大陆军机进入台湾西南防空识别区活动，其中包括战斗机和轰炸机等。
+**台灣寶島農場 疫情關注組 / 發佈時間｜29/11/2021**
 
-超过一半上述军机穿越台湾和菲律宾之间的巴士海峡上空，绕至台湾东南近海，然后沿大致相同路线掉头飞往大陆方向，其中包括一架新型空中加油机运油-20。据认为，这是台湾国防部首次确认到运油-20空中加油机进入台湾防空识别区。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-台湾国防部智库研究员欧锡富今年4月发表的分析称，和中共国大陆此前的主力空中加油机相比，运油-20的空中加油能力增至3倍。中国大陆军机的作战半径未来将显著扩大。
 
-另外，台湾主要媒体援引熟悉中共国大陆军方动向的专家揭仲的话报道称：“未来如果有多架运油-20部署，大陆空军将成为真正意义上的‘远征型空军’。大陆军机有可能在台湾南部近海和东南近海更为频繁训练，台湾面临的防空压力将大幅加重。”
+台灣中央流行疫情指揮中心29日宣布，12至17歲人口於9月22日起開始接種第一劑BNT疫苗，10月底前陸續屆滿4週可打第2劑，但考量心肌炎風險，經ACIP專家討論後，認為當時國內疫情算平穩，且有待蒐集更多資料討論，因此緩打。
 
-消息来源:
+據統計，12至17歲已接種BNT疫苗第一劑約110萬人，其中17例通報發生心肌炎，包含14男3女。
 
-[中国大陆新型空中加油机进入台防空识别区](https://www3.nhk.or.jp/nhkworld/zh/news/335286/)
+據台媒報導，台灣小兒感染科醫師發現青少施打BNT疫苗後部分出現偏頭痛，有人1、2個月還未改善，頭痛、頭暈、噁心、嘔吐、倦怠、發燒症狀，甚至無法上學、上課，須住院治療。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+台灣青少年接種BNT疫苗後心肌炎比例比歐美高，台中榮總小兒感染科主任陳伯彥指出，部分民眾接種後出現頭痛、頭暈、噁心、發燒等副作用，前3天較嚴重，已有5、6名青少年施打後症狀持續1、2週，在診所就醫未改善，轉來中榮就診，甚至有半數頭暈、頭痛到無法上課，症狀持續2個月。他推測是因為mRNA疫苗有賦型劑PEG（聚乙二醇）過敏成份，就診的青少年有半數有過敏體質，加上過敏沒好好控制，可能誘發不適。
+
+Covid-19偏頭痛就診的青少年從12到17都有，也有19歲患者，依美國建議指引給予較強的止痛消炎藥，以及使用抗織胺、止吐藥，仍有2人未好轉，因此會診中醫，進行中醫及針灸療，增強免疫力及放鬆肌肉，症狀較緩解。
+
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-21.jpg)
+來源｜[自由健康網](https://health.ltn.com.tw/article/breakingnews/3751004)/[自由時報](https://news.ltn.com.tw/news/life/breakingnews/3751407)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
