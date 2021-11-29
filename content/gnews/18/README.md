@@ -2,48 +2,136 @@
 ---
 
 
-## 德国未来的总理已经选择了他的敌人&#8211;就是中共国
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1703840/)
+## 平民运动的本质就是一人一票
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1703966/)
 
-作者：阿比奥迪·西索迪亚（Abhyoday Sisodia）
-发布日期：2021年11月26日
-新闻来源：TFIGlobal
-翻译：文虓Bobby
+[https://gtv.org/video/id=61a36a793ff6481adce57d6d](https://gtv.org/video/id=61a36a793ff6481adce57d6d)
 
-摘要：
+**郭文贵**
+**Miles Guo**
 
-随着新一届德国政府即将就任，前总理默克尔16年的亲中政策很快成为过去。新任德国政府对中共国政策的即将发生重大转变，而且柏林承认北京是敌人。
+这是班农先生跟我第一天见面谈的问题
+This is what Mr. Bannon and I talked about the first day we met
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/112901.jpg)
+当政治被家族化的时候，这国家一定是独裁的
+When politics is clannish, the country must be dictatorial
 
-没有一个国家像德国在总理安格拉•默克尔(Angela Merkel)的长期统治下那样背叛自己的同胞。在默克尔卸任之际，有新的爆料显示，柏林是如何将关键的潜艇和驱逐舰技术提供给中共国共产党和中共国人民解放军的，而欧盟成员国却没有得到同样的暗示。尽管安格拉•默克尔(Angela Merkel)领导下的政策做出了令人难以置信的妥协，转而支持一个共产主义威权国家，但新联合政府的形成方式表明，事情将发生180度的转变。下一届德国政府不会通过安格拉•默克尔(Angela Merkel)的“商业第一”棱镜来看待中共国。
+一定是灾难的，不可能有民主
+It must be catastrophic, and there can be no democracy
 
-旨在组建新政府的三个政党提交了一份联合协议。这份178页的文件中有12处提到了“中共国”，其中只有几处会让北京满意。台湾、香港和新疆都被提及，德国新政府也呼吁加强欧盟范围内和跨大西洋的合作。中共国还将加强与日本和澳大利亚的合作，这两个是中共国在该地区的主要对手。
+当有街头政治（的时候）
+When there is street and politics
 
-在默克尔的努力下，一年前欧盟匆忙通过的中欧投资条约，新政府对此几乎没有什么热情。这传达了一个明确的信息:默克尔的亲中政策，这是她过去16年执政思想的一个标志，可能很快就会成为过去。
+刚才说的就是有街头抗议的时候，它一定是有法治的
+When there are street protests, there must be rule of law
 
-**对华政策的转变，以及柏林承认北京是敌人:**
+它一定是有未来的
+The country will certainly have a future
 
-这份政策文件将在新政府下个月就职时生效，它代表着安格拉•默克尔(Angela Merkel)对北京的态度有所不同，并将欧洲最大的经济体与拜登(Biden)政府联系在一起。位于柏林的欧洲外交关系委员会(European Council of Foreign Relations)亚洲项目主管扬卡·厄特尔(Janka Oertel)在Twitter上发帖称，这种语气的转变“引人注目”，是“迫切需要现实调整”。
+而且班农先生非常清楚地跟我谈到
+And Mr. Bannon spoke to me very clearly
 
-据POLITICO报道，许多引用都触及了北京所谓的“红线”，比如中共国共产党声称对民主岛屿台湾拥有主权，但它从未统治过台湾。根据“一中政策”，与北京有外交关系的国家不能承认台北的府。自1971年以来，台北一直被排除在联合国之外。该联盟协议列出了加强与日本、韩国、澳大利亚、新西兰和印度关系的措施，作为新兴的印-太政策的一部分，旨在维护德国在中共国后院的利益。报告指出，新疆是一个人权热点地区，并敦促中共国在处理香港问题时坚持“一国两制”方针。
+班农先生说这个世界就是平民运动
+He said that this world is a civilian movement, the populism
 
-它期待中共国“为本地区的和平与稳定发挥负责任的作用”，并支持利用国际法解决南海和东海问题。“台湾海峡现状的任何改变只能在双方同意的情况下和平解决，”声明继续写道。
+平民运动的本质就是一人一票
+The essence of populism is one person, one vote
 
-**德国新任财政部长和他的反中共立场:**
+他说不可思议，中国人没有选举
+He said it’s unimaginable that the Chinese people don’t have elections
 
-虽然内阁职位的完整名单尚未公布，但预计42岁的自民党领导人克里斯蒂安•林德纳（Christian Lindner）将接任财政部。这应该会吓到中共。
+班农先生第一次给我讲的就是
+The first thing Mr. Bannon said to me was
 
-据报道，就在两年前，他还在香港街头与民主派议员会面(在他们被监禁之前)，并成立了一个新的智库。几天后，他抵达北京，官员取消了与他为期两天的会晤，理由是他支持反华抗议活动。据《明镜》周刊报道，郭业洲是他在北京见到的少数几个人之一。据报道，郭“斥责”了他，并问他，如果抗议者以中共国共产党对外联络部副部长的身份占领北莱茵-威斯特法伦州的政府大楼，他会作何反应。(对此，他回应说，这是在2017年发生的，政府改变了政策，以回应示威者对大学费用的要求。)
+他说，miles这个事情，我说你看中国没有土地
+elections and votes, and I told him that China has no land
 
-甚至就在今年年初，林德纳（Lindner）还在香港问题上直言不讳。他经常指责默克尔对学生示威者黄之峰（Joshua Wong）的命运保持沉默。今年1月，当50名反对派活动人士因国家安全法案而入狱时，他在推特上写道，德国人“不允许转移视线”。他说:“欧盟应该和拜登讨论共同对待中共国的方式。”他现在有机会证明这是可能的。
+没有知识产权，ridiculous
+and no intellectual property rights. It’s ridiculous
 
-新联合政府已经意识到现实和不受任何历史选择的约束,可能会迫使他们加强与中共国的关系只是为了证明自己是正确的, 在安格拉•默克尔(Angela Merkel)任期的最后几天里，这一（曾经的政策）“遗产”给她带来了沉重的压力。对中共国的新政策转变并没有得到北京方面的好评。中共国警告德国即将组建的联合政府，不要干涉中共国内政。这意味着，除非德国政府承认台湾在所谓“一中政策”下的主张，否则两国关系可能受到威胁。
+班农先生的那个眼睛就是觉得这都是不可思议的
+From Mr. Bannon’s eyes you could tell that he feels that’s unbelievable
 
-[援引原文](https://tfiglobalnews.com/2021/11/26/germanys-chancellor-to-be-has-picked-his-enemy-its-china/)
+班农先生是看到的
+Mr. Bannon saw the truth in China
 
-审核校对：玫瑰天空
-上传排版：糖果儿
+班农先生每天在War Room讲
+Mr. Bannon speaks every day in the War Room
+
+这是为什么War Room is No.1 in American now
+This is why War Room is No.1 in American now
+
+他为什么，他看到了，这是事实
+Why he believe it, because he saw it, and he saw the fact
+
+他是看到这些以后，他坚信不疑的支持中国老百姓
+After he saw the truth, he was convinced to support the Chinese people
+
+这是一切的事实的结果
+This is the result of all facts
+
+所以这是我们第一天就谈到的
+So this is what we talked about on the first day we met
+
+特别是郝海东先生，叶钊颖妹妹当时出来的时候
+Especially when Mr. Hao Haidong and sister Ye Zhaoying came out later
+
+很多人没有注意到，班农先生讲了一个非常重要的话
+Many people didn’t notice that Mr. Bannon made a very important statement
+
+我们都忽视掉了
+We all overlooked it
+
+他说平民运动绝不是某个阶层的运动
+He said that the populism is not a movement of a certain class
+
+它是整个社会的运动
+It is a movement of the whole society,
+
+这才是最重要的
+and this is the most important thing
+
+他说郝海东和他夫人代表了某种阶层，特别是运动员
+He said that Hao Haidong and his wife representing a certain class of people, espe-cially athletes
+
+班农先生讲看到，他是populism
+Mr. Bannon said he saw that he(Hao) is with populism,
+
+他是班农主义非常非常重要的
+and he is very, very important to the populism
+
+所以说兄弟姐妹们，班农先生对我们真的是太重要了
+So brothers and sisters, Mr. Bannon is truly very important to us
+
+班农先生是最重要的
+Mr. Bannon is the most important
+
+给我们提供了平民运动的本质，还有宗教自由、信仰自由、独立的法治，非常重要
+He has given us the essence of the populism movement, the freedom of religion, the freedom of belief, and the independent rule of law. It’s very important
+
+Symbolic，非常有代表性，很敏感，很有代表意义的
+Symbolic, it’s very typical and sensitive, and that’s very representative
+
+**原视频链接**：[https://gettr.com/post/phn7tja3e8](https://gettr.com/post/phn7tja3e8)
+
+Date: 11/25/2021
+原视频标题: 平民运动的本质就是一人一票
+The essence of populism is one person, one vote
+原视频日期：2021/11/20
+原视频链接：https://gettr.com/post/phn7tja3e8
+任务编号：KC290（2995）
+视频时间段 : 0:00-1:53
+
+中听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 –天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

@@ -2,136 +2,43 @@
 ---
 
 
-## 平民运动的本质就是一人一票
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1703966/)
+## 悉尼机场发现两例最新变种病毒感染者
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1704035/)
 
-[https://gtv.org/video/id=61a36a793ff6481adce57d6d](https://gtv.org/video/id=61a36a793ff6481adce57d6d)
+**【雅典娜快讯】，紧贴时事脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Untitled9999999.png)图片来源：FT
+**编译：**月映万川
+**编辑：**翼族
 
-**郭文贵**
-**Miles Guo**
+新南威尔士州卫生部周日下午发布了简报，更新了目前关于南非变种病毒的最新进展。两名来自于南非的乘客于周六晚上抵达悉尼机场，在对他们进行新冠测试后，周日下午报告为阳性感染者。通过基因测序，这两名乘客感染的是最新型的南非变种病毒。
 
-这是班农先生跟我第一天见面谈的问题
-This is what Mr. Bannon and I talked about the first day we met
+这两名乘客都已经完全接种了两剂疫苗，并为无症状感染者。他们目前被隔离在特殊医疗中心。
 
-当政治被家族化的时候，这国家一定是独裁的
-When politics is clannish, the country must be dictatorial
+与这两名阳性感染者同机的另外12名乘客，目前也被隔离在特殊医护中心。
 
-一定是灾难的，不可能有民主
-It must be catastrophic, and there can be no democracy
+另外，有260名乘客和机组成员也被认为是密切接触者，并被要求进行隔离。
 
-当有街头政治（的时候）
-When there is street and politics
+由于新变种病毒的出现，澳大利亚总理斯考特·莫里森一改周日早间的态度，于昨晚宣布将和其它十几个国家一起，对一些国家和地区关闭国境。在新变种病毒发现后，澳大利亚快速关闭了与非洲一些国家的国境。同时，澳大利亚北领地也在等待最新的测试结果来确认最新一例的新冠患者是否感染了南非变种毒株。
 
-刚才说的就是有街头抗议的时候，它一定是有法治的
-When there are street protests, there must be rule of law
+澳大利亚是继英国、德国、南非、博茨瓦纳、比利时、香港、以色列后，又一确认发现奥密克戎病毒变种的国家。
 
-它一定是有未来的
-The country will certainly have a future
+澳大利亚总理与新南威尔士州卫生部长都强调，对于新的变种目前还有太多的未知。
 
-而且班农先生非常清楚地跟我谈到
-And Mr. Bannon spoke to me very clearly
+根据初步证据显示，奥密克戎病毒更易传播，并可以在完全疫苗接种者之间传播。
 
-班农先生说这个世界就是平民运动
-He said that this world is a civilian movement, the populism
+联邦卫生部长格雷格·亨特却对新变种病毒表示出了谨慎的乐观。他说，“目前没有证据表明该变种病毒在住院率、重症率、或致死率上有重大变化。”
 
-平民运动的本质就是一人一票
-The essence of populism is one person, one vote
+目前，有关部门正在寻找近期从非洲9国返回的100名未进行隔离的澳大利亚人。这些人将被要求进行测试，并立即隔离14天。
 
-他说不可思议，中国人没有选举
-He said it’s unimaginable that the Chinese people don’t have elections
+**原文链接：** [Two returned travellers from southern Africa test positive to omicron Covid variant in NSW](https://www.heraldsun.com.au/news/national/two-returned-travellers-from-southern-africa-test-positive-to-covid-in-nsw-sparking-fears-it-is-the-new-variant/news-story/ef65f91d41854ba29f830fa3589a2363)
 
-班农先生第一次给我讲的就是
-The first thing Mr. Bannon said to me was
+*发布：翼族*
 
-他说，miles这个事情，我说你看中国没有土地
-elections and votes, and I told him that China has no land
-
-没有知识产权，ridiculous
-and no intellectual property rights. It’s ridiculous
-
-班农先生的那个眼睛就是觉得这都是不可思议的
-From Mr. Bannon’s eyes you could tell that he feels that’s unbelievable
-
-班农先生是看到的
-Mr. Bannon saw the truth in China
-
-班农先生每天在War Room讲
-Mr. Bannon speaks every day in the War Room
-
-这是为什么War Room is No.1 in American now
-This is why War Room is No.1 in American now
-
-他为什么，他看到了，这是事实
-Why he believe it, because he saw it, and he saw the fact
-
-他是看到这些以后，他坚信不疑的支持中国老百姓
-After he saw the truth, he was convinced to support the Chinese people
-
-这是一切的事实的结果
-This is the result of all facts
-
-所以这是我们第一天就谈到的
-So this is what we talked about on the first day we met
-
-特别是郝海东先生，叶钊颖妹妹当时出来的时候
-Especially when Mr. Hao Haidong and sister Ye Zhaoying came out later
-
-很多人没有注意到，班农先生讲了一个非常重要的话
-Many people didn’t notice that Mr. Bannon made a very important statement
-
-我们都忽视掉了
-We all overlooked it
-
-他说平民运动绝不是某个阶层的运动
-He said that the populism is not a movement of a certain class
-
-它是整个社会的运动
-It is a movement of the whole society,
-
-这才是最重要的
-and this is the most important thing
-
-他说郝海东和他夫人代表了某种阶层，特别是运动员
-He said that Hao Haidong and his wife representing a certain class of people, espe-cially athletes
-
-班农先生讲看到，他是populism
-Mr. Bannon said he saw that he(Hao) is with populism,
-
-他是班农主义非常非常重要的
-and he is very, very important to the populism
-
-所以说兄弟姐妹们，班农先生对我们真的是太重要了
-So brothers and sisters, Mr. Bannon is truly very important to us
-
-班农先生是最重要的
-Mr. Bannon is the most important
-
-给我们提供了平民运动的本质，还有宗教自由、信仰自由、独立的法治，非常重要
-He has given us the essence of the populism movement, the freedom of religion, the freedom of belief, and the independent rule of law. It’s very important
-
-Symbolic，非常有代表性，很敏感，很有代表意义的
-Symbolic, it’s very typical and sensitive, and that’s very representative
-
-**原视频链接**：[https://gettr.com/post/phn7tja3e8](https://gettr.com/post/phn7tja3e8)
-
-Date: 11/25/2021
-原视频标题: 平民运动的本质就是一人一票
-The essence of populism is one person, one vote
-原视频日期：2021/11/20
-原视频链接：https://gettr.com/post/phn7tja3e8
-任务编号：KC290（2995）
-视频时间段 : 0:00-1:53
-
-中听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作：洛杉矶盘古农场 –天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，请关注：
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

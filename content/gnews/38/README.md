@@ -2,19 +2,30 @@
 ---
 
 
-## 【G时新闻】文贵爆料：让更多银行和币安用户知道你在币安的钱没了
-` G-时新闻` [轉載自GNews](https://gnews.org/zh-hans/1703357/)
+## GTV新闻访谈简报|2021年11月28日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1703462/)
 
-**加拿大温哥华扬帆农场** 播报：翌珊 制作：文雅
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-421.jpeg)
 
-文贵大直播11月26日爆料，关于赵长鹏，所有用户提供给币安交易所的KYC信息全部都被拿走了，并且泄露给了包括中共、美国政府、日本等第三方。
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-29.png)
+文章仅代表作者本人观点，与Gnews无关
 
-盖特链接：[https://gettr.com/post/pi2vkj972a](https://gettr.com/post/pi2vkj972a)
-编辑/上传：七觉花
+视频参看：2021.11.28早GTV新闻访谈
 
+[https://gtv.org/video/id=61a3840944c1fe7a6c3ab3a7](https://gtv.org/video/id=61a3840944c1fe7a6c3ab3a7)
 
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-424.jpeg)
 
+**更多资讯，更多关注**
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

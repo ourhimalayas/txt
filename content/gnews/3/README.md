@@ -2,31 +2,35 @@
 ---
 
 
-## 中概股暴跌，爱奇艺跌幅达85%
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1704062/)
+## 日本约70家企业将联合测试数字货币的运行
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704086/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-28.jpg)中概股暴跌，爱奇艺跌幅达85%  网络图片
-据网易新闻11月27日报道，南非新变异病毒重创全球金融市场，原油期货和美股道指大跌。中概股跌幅超过10%的公司有8家，号称“中国版奈飞”的爱奇艺股价跌幅达85.85%。爱奇艺市值曾一度超过300亿美元，约合人民币1900亿元。现在，该公司总市值仅为51.62亿美元，约合人民币330亿。
+作者：飞虹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月24日，日本加密货币交易所德科瑞特的首席执行官在一次新闻发布会上表示，一个由其牵头的大约70家日本企业组成的联盟，计划在未来数月内开始测试一种基于日元的数字货币，并预计在2022财年推出。这种数字货币暂时被命名为“DCJPY”，将由银行存款支持，并使用一个共同平台来加快企业之间的大规模资金转移和结算。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-29-上午9.02.03.png)
+该联盟的成员包括日本三大金融集团三菱日联金融集团、瑞穗金融集团、三井住友金融集团，日本邮政银行、经纪公司和保险公司等其他贷款机构，以及日本电信电话 、日本关西电力等非金融公司。 一些公司将参与试验，以衡量这种货币在从能源到零售的各行业使用情况。
 
-2021年中共出手打击中概股，导致多家知名公司股价腰斩。爱奇艺业绩持续亏损，做空机构Wolfpack指出爱奇艺虚增2019年的收入。2019年，爱奇艺曾是高瓴第一大重仓股，持仓市值超过10亿美元。目前，爱奇艺已退居为高瓴第7大重仓股，持仓市值约3.1亿美元。
+该联盟自2020年以来一直定期开会，研究如何为数字支付建立一个共同的结算基础设施。当前，日本央行也正在进行有关央行数字货币的测试，这个企业联盟的举动可能对央行的进度有所影响。
 
-中概股的结局比这个寒冬还要凄惨。在中共国金融环境下，这是必然的结局。假骗偷的经济能支撑多久呢？早晚一定会崩溃。随着中共继续全球释放病毒，最终会彻底摧毁经济。人类要么等着疫苗经济摧毁人类，要么起来抗争，结束中共，重新开启世界新秩序，没有第三条出路。
+参考链接：
+1）[https://gettr.com/post/phtrcjea10](https://gettr.com/post/phtrcjea10)
+2）[日本约70家企业将在未来数月联合测试数字货币并在2022财年推出](https://cn.reuters.com/article/japan-digital-currency-testing-plan-1124-idCNKBS2I90KV?il=0)
+3）[日本拟明年推出数字货币？数十家企业将在未来几月开始测试](https://baijiahao.baidu.com/s?id=1717308388170451219&amp;wfr=spider&amp;for=pc)
 
-新闻参考链接：[https://c.m.163.com/news/a/GPR4I7JU0519B826.html?spss=newsapp](https://c.m.163.com/news/a/GPR4I7JU0519B826.html?spss=newsapp)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-* * *
+总编：文徬
+编辑：Lakeman(文仁)
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
