@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/29/2021 4:07 PM (UTC)`
+
+<br/>11月29号：全世界的经济即将崩溃之时，随之而来的是社会动乱……政治危机，以及局域战争的开始……新中国联邦人要团结在一起，共同渡过这个人类的世纪大灾难！
+![img](https://media.gettr.com/group18/getter/2021/11/29/16/07/71fddaf8-2915-92fb-2b5c-094ddebf098e/out.jpg)
+
+---
+
 `@miles 11/29/2021 8:43 AM (UTC)`
 
 11/28/2021 Miles Guo: Everything the CCP does is to invade Taiwan; the CCP’s invasion of Taiwan and Russia’s military operations against Ukraine will happen at the same time; the CCP will crash the economy and create unrests in the US and EU to cover up its attack on Taiwan, and then it will keep releasing viruses. However, the antidotes will still be effective!<br/><br/>11/28/2021 文贵直播：中共一切行动皆为打台湾；中共打台湾和俄罗斯针对乌克兰的行动将同时进行；中共将摧垮美欧经济并制造动乱以掩护其攻台，然后将继续放毒，但解药会依旧管用！<br/>
@@ -147,14 +154,6 @@ NBA球员埃内斯·坎特：我需要成为那些无法发声的无辜者的代
 
 11/26/2021 Miles Guo: Changpeng Zhao handed over the Binance users’ personal information to the CCP, the US, Japan, and some countries in Europe and Middle East; many of Binance’s bank accounts were closed due to the US dollar’s long arm jurisdiction; the CCP is threatening Dubai to turn in Changpeng Zhao’s money<br/><br/>11/26/2021 文贵直播：赵长鹏将币安用户的个人信息交给了中共、美国、日本、欧洲和中东等国；币安的多个银行账号因美元长臂管辖而遭关闭；中共正在威胁迪拜交出赵长鹏的钱<br/>
 ![img](https://media.gettr.com/group17/getter/2021/11/27/00/59/b9a8342b-64da-0217-f218-5449dec3eee4/out.jpg)
-
----
-
-**:arrows_clockwise: miles 已轉發**
-
-`@drzevzelenko 11/26/2021 4:03 PM (UTC)`
-
-Dr. Vladimir Zev Zelenko, a Ukrainian born, Zionist, Chasidic JEW has been arrested for a multitude of felonies:<br/><br/>1. Offering hope to innocent people<br/>2. For Zelenko Protocol which has reduced hospitalization and death up to 85%<br/>3. Calling Covid-19 a man-made bioweapon<br/>4.  His work has caused severe damage to the fear and isolation Psy-op<br/>5. His work has severely damaged the totalitarian globalist agenda of devolved pagans<br/>6. His work threatens the profit margins of big-pharma with his irresponsible use of safe and generic drugs. <br/>7. For encouraging poison death shot hesitancy <br/>8.  Calling President Biden a demented puppet<br/>9.  Calling FDA, CDC, NIH enemies of the people <br/>10. Calling the media a whore that is complicit in crimes against humanity and mass murder
 
 ---
 
