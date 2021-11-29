@@ -2,62 +2,134 @@
 ---
 
 
-## 中共威胁对立陶宛开战，该国议员称共产主义是一场瘟疫
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1703886/)
+## 平民运动的本质就是一人一票
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1703966/)
 
-**【****简评：】***还记得中共的“和平共处五项原则”吗？面对自己制定的外交基本原则，中共却屡屡称其他国家为“疯狂小国”，这足以看出中共之狂妄、自大和癫狂。《老子》有言“将欲废之，必故举之”；普布里乌斯·西鲁斯 (Publius Syrus) 写过*“Stultum facit fortuna, quem vult perdere”*，我想两句话大概指的是同一个意思，也就是*“*上天欲其灭亡，必先令其疯狂*”*。*
+[https://gtv.org/video/id=61a36a793ff6481adce57d6d](https://gtv.org/video/id=61a36a793ff6481adce57d6d)
 
-据《布赖特巴特新闻网》记者：Kurt Zindulka，2021年11月26日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-896-e1638136489974.png)图片来源：Kevin Frayer/Getty Images
-**北京方面就台湾开设事实上的大使馆一事发出了最新一轮的战争威胁。据此，一名立陶宛议员向《布赖特巴特新闻》（Breitbart News）表示，“共产主义是一场瘟疫”，中共国代表着对自由世界“最紧迫的威胁”之一。**
+**郭文贵**
+**Miles Guo**
 
-周四，立陶宛在首都维尔纽斯开设了“台湾驻立陶宛代表处”。随后，在周日，中国共产党正式降级了与立陶宛的外交关系。
+这是班农先生跟我第一天见面谈的问题
+This is what Mr. Bannon and I talked about the first day we met
 
-**使用“台湾”这个词，而非中共喜欢的“中国台北”，此举激怒了北京当局。北京方面声称此举违反了所谓的一个中国政策，该政策要求各国不得承认台湾是一个独立的国家，尽管台湾有自己独立的政府、军事、货币和文化。**
+当政治被家族化的时候，这国家一定是独裁的
+When politics is clannish, the country must be dictatorial
 
-在宣布降级外交关系决定的同时，中共国外交部发言人赵立坚还警告说，中共政府将“采取一切必要措施维护国家主权和领土完整”。
+一定是灾难的，不可能有民主
+It must be catastrophic, and there can be no democracy
 
-**中共国官方宣传媒体《环球时报》威胁称，“如果立陶宛冒犯中国和俄罗斯，其安全环境将面临更多威胁”，并声称，这个波罗的海国家的行为可能会危及其“地区安全乃至全球和平”。**
+当有街头政治（的时候）
+When there is street and politics
 
-在接受Breitbart London的独家采访中，立陶宛议员Dovilė Šakalienė对这些威胁做出了明确的回应：“共产主义者在任何方面都不算好人。”
+刚才说的就是有街头抗议的时候，它一定是有法治的
+When there are street protests, there must be rule of law
 
-Šakalienė说，立陶宛经历了斯大林时期苏联统治下的“压迫和恐怖”的历史（试图制定“消除自由意志、基本权利和自由的共产主义“目标），这让当前的整个国家都希望支持台湾政府反对极权政权。
+它一定是有未来的
+The country will certainly have a future
 
-她说：“共产主义是一场瘟疫。”并补充道：“我们不喜欢它，我认为我们永远也不会喜欢它。”
+而且班农先生非常清楚地跟我谈到
+And Mr. Bannon spoke to me very clearly
 
-这位立陶宛议员认为，作为一个共产主义国家，中共国根本无法理解民主国家有自己的自由意志，可以自己做决定。她说：“事实在一个宇宙，中共国的意见在另一个宇宙，它们之间毫无关联。”
+班农先生说这个世界就是平民运动
+He said that this world is a civilian movement, the populism
 
-她说：“中国正在威胁世界秩序和世界在第二次世界大战后达成的全球标准。”她警告说，北京政府正在成为“包括立陶宛在内的民主社会最紧迫的威胁之一”。
+平民运动的本质就是一人一票
+The essence of populism is one person, one vote
 
-这位议员还表示，立陶宛自从苏联独立出来以后，在支持全世界自由和民主方面的外交政策一直“非常一致”，立陶宛的决策不需要中共国“多管闲事”。
+他说不可思议，中国人没有选举
+He said it’s unimaginable that the Chinese people don’t have elections
 
-今年3月，Šakalienė因提出谴责新疆“种族灭绝”的议案而受到中共制裁，她告诉《Breitbart London》新闻网站说，立陶宛设立台湾代表处没有违反任何国际法，立陶宛和台湾都有权自己决定寻求与谁建立经济关系。
+班农先生第一次给我讲的就是
+The first thing Mr. Bannon said to me was
 
-**今年8月，中共国召回了其驻维尔纽斯大使，不久后，中共官媒《环球时报》威胁称，中共国可能会就这个事实上的台湾大使馆与立陶宛这个“疯狂的小国”开战。**
+他说，miles这个事情，我说你看中国没有土地
+elections and votes, and I told him that China has no land
 
-“这是一条高压线路，甚至是和平与战争的分水岭”，共产党喉舌写道。
+没有知识产权，ridiculous
+and no intellectual property rights. It’s ridiculous
 
-周一，《环球时报》又称：“欧洲迟早会担心，立陶宛的所作所为会把俄罗斯和中国紧紧地绑在一起，打破当前的全球地缘政治平衡。”
+班农先生的那个眼睛就是觉得这都是不可思议的
+From Mr. Bannon’s eyes you could tell that he feels that’s unbelievable
 
-尽管立陶宛在地理上距离中国很远，但Šakalienė警告称，北京可能试图与俄罗斯和白俄罗斯结盟——这两个国家与立陶宛接壤，并试图利用移民危机等动摇立陶宛局势。
+班农先生是看到的
+Mr. Bannon saw the truth in China
 
-然而，这位立陶宛议员同时表示，虽然与中国相比，她的国家很小，但却经历了苏联的多年压制及后来的重获独立和自由，这给了立陶宛宝贵的经验和理解，以抵御共产主义国家的“愤怒和敌意”。
+班农先生每天在War Room讲
+Mr. Bannon speaks every day in the War Room
 
-她说：“因此，当共产党再次开始威胁我们时，我们早已对个中滋味心领神会。”
+这是为什么War Room is No.1 in American now
+This is why War Room is No.1 in American now
 
-原文链接：[https://www.breitbart.com/europe/2021/11/26/communism-is-a-plague-says-lithuanian-mp-as-china-threatens-war/?utm\_source=facebook&utm\_medium=social](https://www.breitbart.com/europe/2021/11/26/communism-is-a-plague-says-lithuanian-mp-as-china-threatens-war/?utm_source=facebook&amp;utm_medium=social)
+他为什么，他看到了，这是事实
+Why he believe it, because he saw it, and he saw the fact
 
-翻译：洛杉矶盘古农场–暴力小蘑菇
+他是看到这些以后，他坚信不疑的支持中国老百姓
+After he saw the truth, he was convinced to support the Chinese people
 
-校对：洛杉矶盘古农场–比格渣餐厅老板の娘
+这是一切的事实的结果
+This is the result of all facts
 
-评论：洛杉矶盘古农场–比格渣餐厅老板の娘
+所以这是我们第一天就谈到的
+So this is what we talked about on the first day we met
 
-编辑：洛杉矶盘古农场–心照
+特别是郝海东先生，叶钊颖妹妹当时出来的时候
+Especially when Mr. Hao Haidong and sister Ye Zhaoying came out later
 
+很多人没有注意到，班农先生讲了一个非常重要的话
+Many people didn’t notice that Mr. Bannon made a very important statement
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+我们都忽视掉了
+We all overlooked it
+
+他说平民运动绝不是某个阶层的运动
+He said that the populism is not a movement of a certain class
+
+它是整个社会的运动
+It is a movement of the whole society,
+
+这才是最重要的
+and this is the most important thing
+
+他说郝海东和他夫人代表了某种阶层，特别是运动员
+He said that Hao Haidong and his wife representing a certain class of people, espe-cially athletes
+
+班农先生讲看到，他是populism
+Mr. Bannon said he saw that he(Hao) is with populism,
+
+他是班农主义非常非常重要的
+and he is very, very important to the populism
+
+所以说兄弟姐妹们，班农先生对我们真的是太重要了
+So brothers and sisters, Mr. Bannon is truly very important to us
+
+班农先生是最重要的
+Mr. Bannon is the most important
+
+给我们提供了平民运动的本质，还有宗教自由、信仰自由、独立的法治，非常重要
+He has given us the essence of the populism movement, the freedom of religion, the freedom of belief, and the independent rule of law. It’s very important
+
+Symbolic，非常有代表性，很敏感，很有代表意义的
+Symbolic, it’s very typical and sensitive, and that’s very representative
+
+**原视频链接**：[https://gettr.com/post/phn7tja3e8](https://gettr.com/post/phn7tja3e8)
+
+Date: 11/25/2021
+原视频标题: 平民运动的本质就是一人一票
+The essence of populism is one person, one vote
+原视频日期：2021/11/20
+原视频链接：https://gettr.com/post/phn7tja3e8
+任务编号：KC290（2995）
+视频时间段 : 0:00-1:53
+
+中听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 –天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
