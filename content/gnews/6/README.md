@@ -2,61 +2,56 @@
 ---
 
 
-## 杰克·多尔西下台后，有些人发誓要为盖特服务
-` MG FARM` [轉載自GNews](https://gnews.org/zh-hans/1706454/)
+## 秘翻在线：美科技巨头们大比例抛售所持股份，意欲何为？
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1706475/)
 
-作者：Peter Suciu
-翻译：HimaFAFA
+编译：雨季仰光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11Picture1.png)图片来源：网络
+据零对冲（Zerohedge）报道，上周在短短两天时间内，与亚马逊老板杰夫.贝索斯（Jeff Bezos）及埃隆.马斯克（Elon Musk）一道，微软CEO萨蒂亚.纳德拉（Satya Nadella）也加入了巨头们抛售所持股份的队列，所售股份占约占其持有总额的一半。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-228.png)
+亚马逊的贝索斯也售出相当大的份额。
 
-周一，推特首席执行官杰克·多尔西宣布，他将卸任他帮助创建的社交媒体公司的负责人，公司首席技术官 (CTO) 帕拉格·阿格拉瓦尔将接任。然而，多尔西将继续担任董事会成员，直到他的任期在 2022 年股东大会上届满。
+下图所示为亚马逊股票走势图及贝索斯的几处重要卖点（译者注）。
+![](https://cms.zerohedge.com/s3/files/inline-images/bfm360B.jpg?itok=oLPN3KCK)
+特斯拉的马斯克同时也更为积极地（公开地）抛售其所持股份。
 
-“我决定离开 推特，因为我相信该公司已经准备好继续前进。我对帕拉格作为推特首席执行官的信任很深，”多尔西在一份声明中说。“他过去 10 年的工作具有变革性。我对他的技能、心灵和灵魂深表感谢。现在是他领导的时候了。”
+下图为特斯拉股票走势图并标示了马斯克的股票抛售点位。
 
-高层的这一变化对用户有何影响尚不得而知，但这可能意味着新任 CEO 不会像多尔西在担任金融服务公司斯科尔的 CEO 时那样，将时间分散在经营两家公司上。
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmA433_2.jpg?itok=L_I51-qr)](https://www.zerohedge.com/s3/files/inline-images/bfmA433_2.jpg?itok=L_I51-qr)
 
-侦察分析的技术分析师 罗杰·恩特纳表示：“杰克·多尔西的下台意味着推特现在有了一位全职 CEO。” “杰克在推特和斯科尔之间分配了时间。新任首席执行官 帕拉格·阿格拉瓦尔对推特问题的技术方法比杰克多尔西更具哲学性的方法要有用的多。”
+而当下，微软的萨蒂亚.纳德拉在11月22至23号售出其所持有的普通股的份额达83.86万股。下图为纳德拉抛售微软股份的点位及股票走势图。
 
-多尔西当然不是像马克扎克伯格之于脸书或史蒂夫乔布斯之于苹果那样是推特的面孔。尽管许多美国人可能知道乔布斯甚至扎克伯格，但很多人不太可能将多尔西称为推特 的（即将离任的）首席执行官。
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC295_0.jpg?itok=qLIJQ-7v)](https://www.zerohedge.com/s3/files/inline-images/bfmC295_0.jpg?itok=qLIJQ-7v)
 
-“对于许多用户来说，马克扎克伯格无疑是脸书的代言人，也许是社交网络最著名的领导者，”俄勒冈大学新闻学教授兼 哥伦比亚大学TOW 数字新闻中心研究员达米安拉德克利夫解释说。
+下图所示为纳德拉在11月的这连续两天所售股份明细
 
-“我怀疑大多数社交网络的用户不知道,可能也不关心谁是负责人，”拉德克利夫补充道。“他们可能更关心良好的用户体验以及应用程序是否满足他们的信息和通信需求。推特蒂可能会担心这带来的影响，但别忘了杰克之前（2008-11）离开了，他去年也是忙于斯科尔公司，并提出了搬到非洲的想法。这一愿望让一些人想知道这对他亲自领导公司的能力意味着什么。这个网络比一个人还大。甚至是杰克·多尔西！”
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmF65E.jpg?itok=2oNTF1mR)](https://www.zerohedge.com/s3/files/inline-images/bfmF65E.jpg?itok=2oNTF1mR)
 
-**你好**** ****盖特 ****(GETTR)**
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC21E.jpg?itok=Nv_JOA_6)](https://www.zerohedge.com/s3/files/inline-images/bfmC21E.jpg?itok=Nv_JOA_6)
 
-多尔西离职的消息在推特上引起了轰动，#RIPTwitter 标签再次流传开来。但在周一，#GETTR 标签也出现了，许多保守派用户建议他们放弃推特，转而使用竞争对手平台 GETTR。
+这些销售行为与期权及10b5-1计划\*无关，是他有史以来的最大抛售行为。
 
-推特不太可能出现大规模外流，但即使发生了，大多数用户也不太可能注意到他们正在关注 C-Suite 中发生的事情。类似推特的竞争平台已经兴起，这不太可能仅受到高层变化的影响。
+导致微软股价走低。这些股权的变化在11月24号收市后披露，势必将引发周五更大的抛压…
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfm9FA6_0.jpg?itok=s2y8xb3O)](https://www.zerohedge.com/s3/files/inline-images/bfm9FA6_0.jpg?itok=s2y8xb3O)
+上图为纳德拉抛售的具体股价部位及相应市场上周五个交易日走势变化
 
-“皮尤研究中心的数据显示，在美国，社交媒体的使用已经存在党派差异。我们可以预期这种趋势只会持续下去。在这方面，它可以说是在模仿其他形式的媒体使用，比如有线新闻和在线媒体网站。党派分歧已经非常根深蒂固，”拉德克利夫说。
+是微软在这个价位已经太贵了吗？（上图为微软长周期走势）
 
-“鉴于前总统特朗普的偏见指控，以及一些人（如杰森米勒）与 GETTR 等新平台相关的高调性质，一些保守派会尝试这些新网络并不奇怪，”拉德克利夫补充道。 “而且许多用户会相信这些新网络更真实。而且偏见更少。新平台很难打通和起飞（社交媒体领域已经非常繁忙），因此，看看这些努力中的任何一个是否像 Facebook、Twitter 和 YouTube 等更老、更成熟的网络所看到的那样长寿将会很有趣。可能影响这种寿命的因素包括用户体验的质量，以及该网站是否被保守运动的主要意见领袖使用。”
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC474.jpg?itok=rK8tIxdg)](https://www.zerohedge.com/s3/files/inline-images/bfmC474.jpg?itok=rK8tIxdg)
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfm4DED_1.jpg?itok=EDCJ8cqK)](https://www.zerohedge.com/s3/files/inline-images/bfm4DED_1.jpg?itok=EDCJ8cqK)![](https://cms.zerohedge.com/s3/files/inline-images/bfmED4B.jpg?itok=zPFJ3gjt)
 
-许多人可能会离开，但他们也可能会回来，这仅仅是因为还没有其他平台能够达到推特的影响力。
 
-“我怀疑许多用户很可能会随着时间的推移迁移回更老、更成熟的网络，”拉德克利夫说。“他们的算法已经倾向于向你展示更多你已经想到和同意的东西，而且很难碰到与你自己观点不同的人，所以推特上自由派用户与保守派用户拥有相同的内容体验的可能性已经很渺茫了。”
 
-来源：https://www.forbes.com/sites/petersuciu/2021/11/29/rip-twitter-trending-as-jack-dorsey-steps-down-and-some-vow-to-leave-service-for-gettr/?sh=68f9ccb84ca9
 
-（文章仅代表作者个人观点）
+他们知道些什么（内幕）了吗？上两图显示从大周期看，目前点位在技术分析上看是一个碗形底的右碗边关键点位，属于底部形态的阶段最高点，后期一般经过一段时间调整将继续上行（译者注）
 
-**免责声明：**尽管作者努力揭示真相并保持信息准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。 “观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+作为不缺钱的大佬们同一时间步调一致地大规模减持所持股份，是真的在做技术上的高抛低吸吗？译者认为应该不会，大佬们不会在意高抛低吸那点散碎银子，大钱的走向或去留一般是在诠释资本对市场的态度，如此步调一致地，高比例减持股份，想必是他们洞察到资本市场未来的某些不确定性或巨大危机，从而先兑现筹码，落袋为安。
 
-[![](https://assets.gnews.org/wp-content/uploads/2021/10/FINAL-VERSION-color-1.png)](https://www.gettr.com/user/7UPgogo)
+从文贵先生对世界经济当前局势的分析可以预知，货币超发，大水漫灌之后的股市叠加疫情和疫苗的反复蹂躏，世界即将迎来的是类似上世纪20年代末的股市崩盘及随之而来的大萧条时代，历史何其相似！站在未来说历史是荒谬可笑的，但是总结历史事件，结合当下发生的现实事件，总可以找到规律性的蛛丝马迹来引导和准备我们今天的行为。
 
-欢迎加入喜马拉雅英里农场：请点击农场LOGO图进入
+新闻来源：[Why Did Satya Nadella Suddenly Dump Half His Microsoft Holdings Last Week?](https://www.zerohedge.com/markets/why-did-satya-nadella-suddenly-dump-half-his-microsoft-holdings-last-week)
 
-**关注我们**
-
-Discord 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Discord-QR-CODE.png)
-
-Gettr 账号
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/qrcode_2666792_-1.png)
+校对发布：Shifter
 
  
 

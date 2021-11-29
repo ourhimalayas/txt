@@ -2,56 +2,34 @@
 ---
 
 
-## 秘翻在线：美科技巨头们大比例抛售所持股份，意欲何为？
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1706475/)
+## 新变种病毒Omicron 到达北美
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1706573/)
 
-编译：雨季仰光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11Picture1.png)图片来源：网络
-据零对冲（Zerohedge）报道，上周在短短两天时间内，与亚马逊老板杰夫.贝索斯（Jeff Bezos）及埃隆.马斯克（Elon Musk）一道，微软CEO萨蒂亚.纳德拉（Satya Nadella）也加入了巨头们抛售所持股份的队列，所售股份占约占其持有总额的一半。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-43.png)图片来源：雅典娜农场设计组
+翻译：楞次
+编辑：楞次
 
-亚马逊的贝索斯也售出相当大的份额。
+加拿大已经确认了两例Omicron变种患者，尽管目前尚不清楚它是否比其他变体更具危险性，拜登总统还在权衡美国将如何应对这个严重变异的Covid-19变体。
 
-下图所示为亚马逊股票走势图及贝索斯的几处重要卖点（译者注）。
-![](https://cms.zerohedge.com/s3/files/inline-images/bfm360B.jpg?itok=oLPN3KCK)
-特斯拉的马斯克同时也更为积极地（公开地）抛售其所持股份。
+“今天，安大略省已确认渥太华发生了两例COVID-19的Omicron变体病例，这两例病例都来自最近从尼日利亚过来的旅行者”*。*安大略省政府周日在一份声明中表示。
 
-下图为特斯拉股票走势图并标示了马斯克的股票抛售点位。
+加拿大已经对过去两周访问过七个南部非洲国家的外国旅客禁止飞行而且关闭边境，但安大略省卫生官员克里斯蒂娜·埃利奥特（Christine Elliott）和基兰·摩尔（Kieran Moore）呼吁采取更严厉的方法来抵制这个变种。
 
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmA433_2.jpg?itok=L_I51-qr)](https://www.zerohedge.com/s3/files/inline-images/bfmA433_2.jpg?itok=L_I51-qr)
+“我们继续敦促联邦政府采取必要措施，强制要求所有旅行者进行到达点测试，无论他们来自哪里，”他们说。 安大略省的病例是北美首次报告的Omicron感染，尽管白宫冠状病毒顾问Anthony Fauci博士表示，如果新变种已经出现在美国，他也”不会感到惊讶”。
 
-而当下，微软的萨蒂亚.纳德拉在11月22至23号售出其所持有的普通股的份额达83.86万股。下图为纳德拉抛售微软股份的点位及股票走势图。
+美国没有禁止来自非洲的航班，但禁止在过去14天内去过那里的外国人入境。拜登总统周日亲自会见了福奇，起草了有关美国政府抗疫应对措施的最新情况，预计将于周一宣布。
 
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC295_0.jpg?itok=qLIJQ-7v)](https://www.zerohedge.com/s3/files/inline-images/bfmC295_0.jpg?itok=qLIJQ-7v)
+由于担心新变体可能对现有疫苗具有抗药性，Fauci在多次采访中坚持认为接种疫苗和加强剂仍然是最好的防御措施。
 
-下图所示为纳德拉在11月的这连续两天所售股份明细
+与此同时，墨西哥当局称旅行限制和边境关闭”不是很有用的措施”，称这些措施”影响国民的经济和福祉”大于有助于遏制病毒传播。世界卫生组织还警告各国不要关闭边境和”不必要的侵入性”限制，以防止”对生命和生计造成沉重负担”。
 
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmF65E.jpg?itok=2oNTF1mR)](https://www.zerohedge.com/s3/files/inline-images/bfmF65E.jpg?itok=2oNTF1mR)
+发布：Peter Xin
 
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC21E.jpg?itok=Nv_JOA_6)](https://www.zerohedge.com/s3/files/inline-images/bfmC21E.jpg?itok=Nv_JOA_6)
-
-这些销售行为与期权及10b5-1计划\*无关，是他有史以来的最大抛售行为。
-
-导致微软股价走低。这些股权的变化在11月24号收市后披露，势必将引发周五更大的抛压…
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfm9FA6_0.jpg?itok=s2y8xb3O)](https://www.zerohedge.com/s3/files/inline-images/bfm9FA6_0.jpg?itok=s2y8xb3O)
-上图为纳德拉抛售的具体股价部位及相应市场上周五个交易日走势变化
-
-是微软在这个价位已经太贵了吗？（上图为微软长周期走势）
-
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC474.jpg?itok=rK8tIxdg)](https://www.zerohedge.com/s3/files/inline-images/bfmC474.jpg?itok=rK8tIxdg)
-[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfm4DED_1.jpg?itok=EDCJ8cqK)](https://www.zerohedge.com/s3/files/inline-images/bfm4DED_1.jpg?itok=EDCJ8cqK)![](https://cms.zerohedge.com/s3/files/inline-images/bfmED4B.jpg?itok=zPFJ3gjt)
-
-
-
-
-他们知道些什么（内幕）了吗？上两图显示从大周期看，目前点位在技术分析上看是一个碗形底的右碗边关键点位，属于底部形态的阶段最高点，后期一般经过一段时间调整将继续上行（译者注）
-
-作为不缺钱的大佬们同一时间步调一致地大规模减持所持股份，是真的在做技术上的高抛低吸吗？译者认为应该不会，大佬们不会在意高抛低吸那点散碎银子，大钱的走向或去留一般是在诠释资本对市场的态度，如此步调一致地，高比例减持股份，想必是他们洞察到资本市场未来的某些不确定性或巨大危机，从而先兑现筹码，落袋为安。
-
-从文贵先生对世界经济当前局势的分析可以预知，货币超发，大水漫灌之后的股市叠加疫情和疫苗的反复蹂躏，世界即将迎来的是类似上世纪20年代末的股市崩盘及随之而来的大萧条时代，历史何其相似！站在未来说历史是荒谬可笑的，但是总结历史事件，结合当下发生的现实事件，总可以找到规律性的蛛丝马迹来引导和准备我们今天的行为。
-
-新闻来源：[Why Did Satya Nadella Suddenly Dump Half His Microsoft Holdings Last Week?](https://www.zerohedge.com/markets/why-did-satya-nadella-suddenly-dump-half-his-microsoft-holdings-last-week)
-
-校对发布：Shifter
+**更多****资讯****，****请关****注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
