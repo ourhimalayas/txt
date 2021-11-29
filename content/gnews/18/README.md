@@ -2,69 +2,56 @@
 ---
 
 
-## 临床研究证明 接种疫苗会导致患心脏病风险显著增加
-` 温哥华扬帆农场 Michael.Tonny` [轉載自GNews](https://gnews.org/zh-hans/1705941/)
+## “WHO为何在命名新的变体时跳过字母“Xi”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1706016/)
 
-![加拿大温哥华扬帆农场  Michael.Tonny](https://assets.gnews.org/wp-content/uploads/2021/11/michael-3-1.jpg)加拿大温哥华扬帆农场 Michael.Tonny
-著名心脏病学家Steven Gundry博士在美国心脏协会2021年度科学会议上提交的一份临床研究报告称，接种Pfizer和Moderna使用mRNA技术开发的Covid-19（CCP病毒）疫苗患急性冠状动脉综合症 (ACS)的风险显著增加。
-![mRNA Covid-19 vaccines by Pfizer and Moderna](https://assets.gnews.org/wp-content/uploads/2021/11/mRNA-vaccine-coronary-Image-3.png)mRNA Covid-19 vaccines by Pfizer and Moderna
-该报告同时发表在2021年11月8日出版的《Circulation》杂志第144期上，标题为：《[Abstract 10712: Mrna COVID Vaccines Dramatically Increase Endothelial Inflammatory Markers and ACS Risk as Measured by the PULS Cardiac Test: a Warning](https://www.ahajournals.org/doi/10.1161/circ.144.suppl_1.10712)》。
+编译：Jenny Ball
 
-[Steven Gundry](https://drgundry.com/)，医学博士，著名心脏病专家、医学研究员、《New York Times》畅销书作者。在他40年的医学生涯中，进行共10,000多次心脏手术。目前，Steven Gundry博士就职于加利福尼亚州棕榈泉市和圣巴巴拉市（Palm Springs and Santa Barbara, CA）的医学康复中心（Center for Restorative Medicine）和国际心肺研究所（International Heart & Lung Institute）。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image0-2-17.jpg)世卫组织总干事“贪得赛”（ Tedros Adhanom Ghebreyesus ） 2020 年 7 月 3 日在日内瓦世卫总部出席新闻发布会。（Fabrice Coffrini/Pool/AFP via Getty Images）
 
-PULS心脏测试（PULS Cardiac Test）是通过测量患急性冠状动脉综合症(Acute Coronary Syndrome，ACS)的几种蛋白质生物标志物指标，预测5年内被测试者患ACS的风险评分。
+世卫组织解释了为什么在命名新的 COVID-19 变体，奥密克戎（ Omicron）时跳过希腊字母“nu”和“xi”。
 
-这次[Steven Gundry](https://drgundry.com/)博士的研究是基于一组由男女比例为 1:1的566名患者参与的预防心脏病学实验（Preventive Cardiology Practice），这些患者过去一直在接受PULS心脏测试。
+“跳过了两个字母——Nu 和 Xi——因为 Nu 太容易与“新”‘new’混淆。而 Xi 没有被使用，因为它是一个常见的姓氏。而WHO 命名新疾病的最佳做法……建议避免‘对任何人造成冒犯’ 文化、社会、国家、地区、专业或种族群体，”联合国机构在 11 月 27 日的一份声明中告诉《大纪元时报》。
 
-Steven Gundry博士把接种Pfizer和Moderna的mRNA疫苗后2至10周的参与试验者PLUS心脏测试结果与接种疫苗前3〜5个月前的PLUS心脏测试结果比较。
+（点评：那**WHO**为什么不怕冒犯博茨瓦纳和南非人民呢？你怕冒犯制造和在武汉释放病毒的中共，把开始大家一致用来表述的**“**武汉肺炎**”“**武汉病毒**”**改为似乎与中共毫不相干的**Covid-19, **但天意难逃，**C****CP ****O****rigin V****irus ****I****n December ****’****19**** ,2019 **年** 12 **月** CCP **起源病毒**, **不正是天意的缩略词吗？）
 
-这次临床测试的结果表明，接种mRNA疫苗后，被测试者患ACS的几种蛋白质生物标志物显著增加。
+WHO命名新疾病的最佳做法是，与联合国粮食及农业组织和世界动物卫生组织于 2015 年共同制定的。
 
-标志物（Baseline）IL-16从高于标准的35=/-20 增加到高于标准的82 =/- 75；sFas从高于标准的 22+/-15增加到高于标准的46=/-24；肝细胞生长因子（Hepatocyte Growth Factor）从高于标准的42+/-12增加到高于标准的 86+/-31。
+乔治华盛顿大学的刑事律师兼教授乔纳森·特利（Jonathan Turley）推测，WHO跳过“习”并将其命名为 Omicron， 是“再次避免让中共政府感到不安”。
 
-这些结果表明，接种mRNA疫苗后，被测试者5年内患ACS的风险从11%增加到25%。同时，在接种第二针mRNA疫苗后，这些指标变化至少会持续2.5年。
+他在推特上写道：“按照顺序，新的变体应该是 Nu，而nu之后的变体将是 Xi，这恰好是中共领导人的姓氏。”
 
-该研究得出的结论是，mRNA 疫苗显着增加了心肌内皮（endothelium）和T细胞浸润的炎症（T cell infiltration of cardiac muscle），并且解释了疫苗接种后血栓形成、心肌病和其他血管事件增加的临床试验结果。
+“目前尚不清楚决定跳过nu和xi是否还有其他原因，但WHO对大流行病毒起源进行调查的臭名昭著的历史，让人自然想到其政治动机。这表明该组织继最初的调查行为，现在仍然存在信誉问题。甚至新的小组不平衡和成员背景也受到批评。”
 
-2021年11月26日，[在GBN的一个直播节目](https://twitter.com/GBNEWS/status/1463926037889396736?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1463926037889396736%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.opindia.com%2F2021%2F11%2Fmrna-covid-19-vaccines-increase-possibility-of-coronary-diseases-study%2F)中，Asem Malhotra博士证实，英国著名机构心脏病学系得到了与Steven Gundry博士研究结果相似的结论。
+参议员特德·克鲁兹（Ted Cruz）在推特上指责WHO“害怕中共国共产党”。与此同时，参议员汤姆·科顿（Tom Cotton）指责WHO“更关心中共的感受，而不是公共卫生。”
 
-Asem Malhotra博士透露，英国著名机构心脏病学系的心脏病学研究员告诉他，该部门所做的研究也发现了类似的结果。英国心脏病学界的统计信息显示，（自开始接种COVID疫苗后，）该国心脏病相关死亡人数大幅增加，他们已经从成像研究（imaging studies）中发现了冠状动脉炎症（inflammation of coronary arteries）与mRNA疫苗之间的联系。
-![Dr Aseem Malhotra reveals a cardiology researcher found similar results to a new report showing an increase in risk of heart attack following the mRNA COVID vaccine.](https://assets.gnews.org/wp-content/uploads/2021/11/YghiwqVtmUwi-ri0.jpg)Dr Aseem Malhotra reveals a cardiology researcher found similar results to a new report showing an increase in risk of heart attack following the mRNA COVID vaccine.
-根据VAERS的报告，截止到2021年11月12日，VAERS已收到894,143份COVID疫苗不良事件报告，而自1990年来，VAERS共收到1,742,488份疫苗不良事件报告，也就是说，COVID疫苗事件报告占31年来VAERS收到的所有疫苗不良事件报告的51.3%。
+除了** Omicron**，**WHO**已经命名了其他五个**“**关注的变体**”**，以及两个**“**感兴趣的变体**”**。
 
-其中，COVID疫苗致死报告18,853份，而31年来VAERS共收到的所有疫苗致死报告为27,951份，也就是说，COVID疫苗至死报告占67.5%。
+（WHO不是设法关注病毒来源以彻底根除病毒，而是未雨绸缪地为中共后续病毒和疫苗做好了准备！）
 
-根据《Health Impact News》编辑Brian Shilhavy的分析，2021年因接种COVID疫苗造成的心肌或心包炎两种心脏病例，是过去30年其它疫苗造成的心肌或心包炎两种心脏病例总和的10.8倍，是过去30年平均数的323.95倍。
+今年早些时候，WHO采用希腊字母为中共病毒（中共国共产党）病毒的变种（也称为新型冠状病毒）提供“易于发音和无污名化的标签”。
 
-[opindia.com](https://www.opindia.com/)曾在2021年4月12日《[Pfizer wanted Brazil, Argentina to put military bases, Federal reserve as collateral: Why India kept Pfizer away and how the usual suspects are wrong](https://www.opindia.com/2021/04/why-india-rejected-pfizer-covid-19-vaccine-emergency-use-bullying-brazil-argentina-trials/)》中报道，巴西、阿根廷等多个拉美国家指控，Pfizer要求这些国家抵押主权资产，包括军事基地、国家资产、海外资产等，对其因受疫苗的任何不利影响，疏忽、欺诈或恶意而被当地公民提起的民事诉讼案件提供主权豁免抵押。
+Omicron 菌株被确定为 B.1.1.529，上周在博茨瓦纳和南非首次被发现。南非科学家表示，它在刺突蛋白上有一种不寻常的突变组合，可能使病毒能够逃避先前感染或接种疫苗的免疫力。
 
-COVID疫苗究竟是不是毒药，越来越多的良心科学家，正在向公众展示更多的科学结论。
+与此同时，一位南非顶级医生告诉《每日电讯报》，这种新变种会引起不寻常但轻微的症状。
 
-停止杀戮，停止毒疫苗！
+WHO新发疾病和人畜共患病部门负责人表示，该机构将这种新毒株命名为令人担忧的变种。因为它具有“一些令人担忧的特性”，即大量突变，其中一些**“**具有一些令人担忧的特征**” **。
 
-参考资料：
+**(**点评：不打自招，因为自然演变的病毒不会有大量的突变！科学家指出**Delta **有两个突变都已经是无所谓有了！**)**
 
-[mRNA Covid-19 vaccines by Pfizer and Moderna have serious side effects, shows study: How India may have saved itself from disaster](https://www.opindia.com/2021/11/mrna-covid-19-vaccines-increase-possibility-of-coronary-diseases-study/)
+新的中共病毒变种引发了美国、加拿大、巴西、英国、欧盟、沙特阿拉伯、日本、俄罗斯和澳大利亚等多个国家的旅行禁令，南非卫生部长称此举“不合理”。
 
-[Pfizer wanted Brazil, Argentina to put military bases, Federal reserve as collateral: Why India kept Pfizer away and how the usual suspects are wrong](https://www.opindia.com/2021/04/why-india-rejected-pfizer-covid-19-vaccine-emergency-use-bullying-brazil-argentina-trials/)
+美国正在限制来自南非、博茨瓦纳、津巴布韦、纳米比亚、莱索托、埃斯瓦蒂尼、莫桑比克和马拉维的旅行，以遏制 Omicron 的传播。
 
-[Pfizer wants waiver of liabilities due to possible adverse effect of its vaccine in India, won’t transfer technology for local production](https://www.opindia.com/2021/05/pfizer-wants-waiver-against-future-adverse-effects-of-its-vaccine-in-india/)
+**参考资料：**[theepochtimes][WHO Explains Why It Skipped ‘Xi’ When Naming New COVID-19 Variant Omicron](https://www.theepochtimes.com/who-explains-why-it-skipped-xi-when-naming-new-covid-19-variant-omicron_4127076.html?utm_source=mr_recommendation&amp;utm_medium=left_sticky)
 
-[Pfizer wanted Brazil, Argentina to put military bases, Federal reserve as collateral: Why India kept Pfizer away and how the usual suspects are wrong](https://www.opindia.com/2021/04/why-india-rejected-pfizer-covid-19-vaccine-emergency-use-bullying-brazil-argentina-trials/)
+* * *
 
-[Government’s Own Data Proves COVID-19 Shots Are Causing Blood Clots, Heart Disease, and DEATH](https://healthimpactnews.com/2021/governments-own-data-proves-covid-19-shots-are-causing-blood-clots-heart-disease-and-death/)
+*审核：文乐
+校对：信心满满
+发布：信心的选择*
 
-[The OpenVAERS Project](https://openvaers.com/)
-
-[Understanding mRNA COVID-19 Vaccines](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/different-vaccines/mrna.html)
-
-[The Dr. Gundry Podcast](https://drgundry.com/)
-
-[mRNA COVID-19 Vaccination Increases Endothelial Inflammatory Markers and ACS Risk](https://www.coronavirustoday.com/2021/11/22/mrna-covid-19-vaccination-increases-endothelial-inflammatory-markers-and-acs-risk)
-
-[Abstract 10712: Mrna COVID Vaccines Dramatically Increase Endothelial Inflammatory Markers and ACS Risk as Measured by the PULS Cardiac Test: a Warning](https://www.ahajournals.org/doi/10.1161/circ.144.suppl_1.10712)
-
-编辑/发稿：Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-2.jpeg)
 
  
 

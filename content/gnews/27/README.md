@@ -2,29 +2,29 @@
 ---
 
 
-## 伊利诺伊州面临退休债务危机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705753/)
+## 英国国际投资公司启动， 对抗 “一带一路”
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705783/)
 
 作者： 纽约香草山健身部 – Ivy001
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
 
-11月21日，美国零对冲报导, 2021年，伊利诺伊州的每个家庭平均要背负高达 11万 美元的政府雇员退休金债务，在2019 年，伊利诺伊州每个家庭的负担只有 9万美元。截至 2020 年 6 月 30 日，美国最大的养老基金缺口就在伊利诺伊州，缺口总额达 3130 亿美元。伊利诺伊州在退休债务方面也是全美最高的，已增加到 5千亿美元。不断增长的债务表示，超过 100 万伊利诺伊州政府工作人员和退休人员将会失去退休保障。根据皮尤慈善信托基金的数据，伊利诺伊州的州级养老金只有 39% 的资金到位，居全美最低。
+11月25日，英国外交大臣利兹·特拉斯在伦敦证券交易所正式启动英国国际投资公司，也就是BII机构，该机构可以动员私人资本，投资亚洲、非洲和加勒比地区，向全球提供一种替代方案，来取代专制政权和非市场经济体的中共，在之前提出的有附加条件的贷款方式，直接剑指中共的“一带一路”倡议。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-26.jpg)
+根据BII的公告，英国政府计划到2025年，每年动员80亿英镑的公共和私营部门资本，投资于相应的国际项目。同时，它计划着重帮助私营部门参与该项目，包括与资本市场和主权财富基金合作，扩大融资规模。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-36.jpg)
-
-此前，文贵先生多次在大直播里分析，中共国房地产业的雪崩式爆雷和债务违约，必将对美国的养老保险金和退休金产生巨大的冲击。伊利诺伊州债台高筑，是美国退休金债务危机的缩影。
+推动此机构启动的英国外交大臣称，这是利用经济学作为外交政策的工具，来更加发挥英国对全球的影响。
 
 参考链接：
 
-- [伊利诺伊州面临退休债务危机](https://gettr.com/post/phw727b8f9)
-- [Illinois Pension Shortfall Surpasses $500 Billion, Average Debt Burden Now $110,000 Per Household](https://www.zerohedge.com/markets/illinois-pension-shortfall-surpasses-500-billion-average-debt-burden-now-110000-household)
+- [UK seeks to counter China’s influence with new development investment arm](https://www.ft.com/content/93de6cc1-451a-465d-8233-8c9b903cedd4)
+- [英国拿90亿英镑组建国际投资机构“对抗中国影响力”？专家：夸张！](https://news.sina.com.cn/c/2021-11-25/doc-ikyamrmy5040712.shtml)
+- [UK overhauls development investment body to challenge influence of Chinese loans](https://www.cityam.com/uk-overhauls-development-investment-body-to-challenge-influence-of-chinese-loans/)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-10.jpg)
 
-总编：Jack Li文阳
-编辑：Jack Li文阳
+总编：飞虹
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

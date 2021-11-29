@@ -2,29 +2,29 @@
 ---
 
 
-## 超过76000港人获得英国BNO签证
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705705/)
+## 伊利诺伊州面临退休债务危机
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705753/)
 
-作者： 东京樱花团 – 在远方
+作者： 纽约香草山健身部 – Ivy001
+
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
-外媒11月27日消息，据英国内政部最新数据，今年年初以来BNO签证计划已经有接近9万香港人申请，其中超过76000人已经获批。此外，今年一至三季度还有96宗港人的政治庇护申请。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-12.png)
+11月21日，美国零对冲报导, 2021年，伊利诺伊州的每个家庭平均要背负高达 11万 美元的政府雇员退休金债务，在2019 年，伊利诺伊州每个家庭的负担只有 9万美元。截至 2020 年 6 月 30 日，美国最大的养老基金缺口就在伊利诺伊州，缺口总额达 3130 亿美元。伊利诺伊州在退休债务方面也是全美最高的，已增加到 5千亿美元。不断增长的债务表示，超过 100 万伊利诺伊州政府工作人员和退休人员将会失去退休保障。根据皮尤慈善信托基金的数据，伊利诺伊州的州级养老金只有 39% 的资金到位，居全美最低。
 
-近日，有英国议员提出修订BNO签证计划，如果被通过，将帮助97年以后出生，没有BNO护照的年轻人。他们可以利用父母的BNO身份移民因英国。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/8-36.jpg)
 
-据悉，英国的BNO签证政策是在中共在香港强推《国安法》之后推出的。根据这项政策，成功申请并得到签证的人士将可以在英国生活五年后申请永久居民身份，获得定居身份12个月后可以申请英国国籍。国安法实施一年多以来，港人移民浪潮还在持续。
+此前，文贵先生多次在大直播里分析，中共国房地产业的雪崩式爆雷和债务违约，必将对美国的养老保险金和退休金产生巨大的冲击。伊利诺伊州债台高筑，是美国退休金债务危机的缩影。
 
 参考链接：
 
-- [英国BNO签证1月31日起生效 北京、港府称“不再承认”BNO护照](https://www.bbc.com/zhongwen/simp/uk-55851549)
-- [近9万人申请BNO签证 超过8成人已获批](https://www.voachinese.com/a/almost-90-000-have-applied-for-bno-visa-with-over-80-approved-20211126/6329482.html)
+- [伊利诺伊州面临退休债务危机](https://gettr.com/post/phw727b8f9)
+- [Illinois Pension Shortfall Surpasses $500 Billion, Average Debt Burden Now $110,000 Per Household](https://www.zerohedge.com/markets/illinois-pension-shortfall-surpasses-500-billion-average-debt-burden-now-110000-household)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-10.jpg)
 
-总编：木白
-编辑：木白
+总编：Jack Li文阳
+编辑：Jack Li文阳
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**

@@ -2,37 +2,36 @@
 ---
 
 
-## 为防范Omicron日本宣布全面禁止外籍人士入境
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1705767/)
+## 独裁者都具有精神与人格的双重缺陷
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705860/)
 
-#### **撰稿：日本东京方舟农场 Kevin wang**
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在11月28日的文贵大直播中，郭先生深刻剖析了凡独裁者都具有的共同特征，即精神与人格的双重缺陷。绝对自卑导致绝对自负，导致给个人和国家，以及世界带来深重的灾难。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/C585B772-AD01-4578-8948-1EFCFE929B79.jpeg)（图片来自香港01）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide3-19.jpeg)
 
-为防范中共病毒新变异毒株Omicron可能带来的危机，11月29 日，日本首相岸田文雄顶着遭到批评的压力，宣布自30日起全面禁止外籍人士入境。
+郭先生说，人类历史上出现的独裁者，如斯大林、希特勒、卡扎菲、毛泽东等，都有着相似的人生轨迹。一旦权力在握，首先编造故事，篡改历史。自称秉持上天赋予的使命，不死之躯，无所不能；然后用洗脑、废法等工具，笼络人心；挑起种族仇恨，构建所谓人类命运共同体；最后，当面临国内严重的经济与政治危机时，在极度恐惧中挑起战争，把仇恨和杀戮引向外部，最终导致极权政府的灭亡。
+ 
+郭先生指出，习的“中国梦”源于希特勒名言，“我以梦游者的自信，走向我的命运”。习挑战美国、经济脱钩、再次放毒、收复台湾等疯狂举动，同样来自他精神与人格的双重缺陷。 
 
-据《中央社》报道， 岸田29日在接受采访时表示，Omicron带来了强烈的危机感。为避免日本发生最坏的状况，作为紧急避难的预防措施，决定自30日零时起全面禁止全世界的外国人入境。
+郭先生痛心地警告，习继续下去，中国人民将为此付出难以想象的沉重代价。
 
-岸田还强调，面对可能会有人批评他“明明还不清楚实际状况，这样做未免过于谨慎”，他已经做好一个人扛起所有批评的心理准备。
+参考链接：[2021年11月28日 文贵大直播：新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破](https://gtv.org/video/id=61a3828b44c1fe7a6c3aaf29)
 
-中共病毒新变异毒株Omicron目前已引发全世界的担忧。多国都已出现这一变种病毒病例。荷兰证实已有至少13起相关病例；德国目前共有3起确诊病例；丹麦29日也从来自南非的旅客中查出两例确诊病例；奥地利则有一名从南非返国的旅客确诊。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-除日本之外，全世界已有多个国家针对Omicron发布了旅行禁令。美国已经禁止包括南非在内的8个国家赴美旅游；马尔代夫也已宣布，自29日起禁止7个非洲国家的旅客入境。
+总编：文真
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-*参考链接：*
-
-1. [*https://www.cna.com.tw/news/firstnews/202111290097.aspx*](https://www.cna.com.tw/news/firstnews/202111290097.aspx)
-2. [*https://www.cna.com.tw/news/firstnews/202111280200.aspx*](https://www.cna.com.tw/news/firstnews/202111280200.aspx)
-
-
-* * *
-
-*素材采编：Kevin wang*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

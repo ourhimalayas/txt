@@ -2,37 +2,40 @@
 ---
 
 
-## 忧虑强感染性新变种病毒 美国限制从非洲8国入境
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705641/)
+## 超过76000港人获得英国BNO签证
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705705/)
 
-作者： 纽约香草山医疗部 – 云豹
+作者： 东京樱花团 – 在远方
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
-11月26日，美国拜登总统下令，为防范非洲南部出现的高传染性新变种Omicron病毒，美国自29日起，限制来自南非等8个国家的非美籍旅客入境美国。
+外媒11月27日消息，据英国内政部最新数据，今年年初以来BNO签证计划已经有接近9万香港人申请，其中超过76000人已经获批。此外，今年一至三季度还有96宗港人的政治庇护申请。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-51.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-12.png)
 
-新型变异株B.1.1.529近日在南非豪登省被首次发现，世卫组织已将其列为“高关注变异株”，并在26日将其命名为Omicron。专家初步研究报告认为，Omicron在棘蛋白上有30几个变异点，比先前造成严重疫情的Delta多了两倍多，据评估更具传染性，被视为当前最强变异株。
+近日，有英国议员提出修订BNO签证计划，如果被通过，将帮助97年以后出生，没有BNO护照的年轻人。他们可以利用父母的BNO身份移民因英国。
 
-据郭文贵先生最近爆料，中共将释出新病毒。 各国政府也要借此次新变种病毒为理由，再次强势推广疫苗，试图造成更严重的次生灾难。
+据悉，英国的BNO签证政策是在中共在香港强推《国安法》之后推出的。根据这项政策，成功申请并得到签证的人士将可以在英国生活五年后申请永久居民身份，获得定居身份12个月后可以申请英国国籍。国安法实施一年多以来，港人移民浪潮还在持续。
 
 参考链接：
 
-- [新變種病毒Omicron來勢洶洶 美國禁南非等8國旅客入境](https://www.cna.com.tw/news/firstnews/202111270007.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
+- [英国BNO签证1月31日起生效 北京、港府称“不再承认”BNO护照](https://www.bbc.com/zhongwen/simp/uk-55851549)
+- [近9万人申请BNO签证 超过8成人已获批](https://www.voachinese.com/a/almost-90-000-have-applied-for-bno-visa-with-over-80-approved-20211126/6329482.html)
 
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-10.jpg)
 
-总编：飞虹
-编辑：飞虹
+总编：木白
+编辑：木白
 校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
