@@ -2,17 +2,42 @@
 ---
 
 
-## 【文贵先生大直播PPT】青蒿素功效
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1703384/)
+## 郭文贵直播摘要和音频 2021.11.28
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1703977/)
 
-撰稿：飞飞及团队
-审核：三票先生，顽童先生，舒平风
+摘要撰稿人：文俊
 
-【2021年11月28日文贵先生大直播PPT：青蒿素功效】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-196.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-132.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-110.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-73.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-56.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-48.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/7-41.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/8-32.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/9-24.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/10-13.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/11-17.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/12-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/13-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/14-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/15-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/16-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/17-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/18-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/19-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/21-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-8.jpg)
-* * *
+音频提供者：左媛
+![](https://assets.gnews.org/wp-content/uploads/2021/11/5555-1.jpg)
 
-上传：云起时
+
+### **视频链接：**
+
+[https://gtv.org/video/id=61a3828b44c1fe7a6c3aaf29](https://gtv.org/video/id=61a3828b44c1fe7a6c3aaf29)
+
+### **音频链接：**
+
+### 摘要：
+
+- 新变种病毒Omicron從南非向欧洲和北美：非洲不可能是传染源，但是要嫁祸非洲，目的制造种族仇恨，真正的传染源还是在美国西部，两三周前就开始了
+- 这更加证明了中共正在向全球释放新的病毒，病毒就是解放军的生化武器，昌平生化部队1998年建立，2012年习上台后大肆扩张
+- 所有这次感染的人都是打了两针的人，是打了疫苗之间的人相互传染
+- 这次又开始全球放毒习近平已经彻底疯了，希特勒名言：我以梦游者的自信走向我的命运，习近平崇拜希特勒，习大神的中国梦就来自希特勒的名言，所有独裁者都会编辑一个自己是神的谎言
+- CCP放毒制造世界动乱，全球供应链崩溃，当世界陷入彻底的混乱所有的金钱都失去了价值和意义，饿死人比病死人更可怕
+- 共产党放毒就是为了制造动乱，目的是台湾。通过解药，要挟各国参加奥运会
+- 习近平这次是真要挑战美国 而且还拉俄罗斯一起干，习是真疯了 他是真要灭美国 真心想要打台湾
+- 谷歌告诉你的 是它想让你看到的 而不是你想知道 很多真相是无法搜索到的
+- 关于福利币：当初大家是集体决定就应该服从所有人的利益 谁牺牲战友的利益 谁就是我们的敌人 七哥会不惜一切代价来维护战友们的利益 我们要一起吃肉、一起吃丸子、不要兑水！
+- 郭七条一定要坚持，不反国家 不反民族，反对以黑治国、以警治国
+- 当超市供应出问题了、汽油的价格和加油的供应出了问题、股票市场出现了起伏和暴跌暴涨的时候，就是经济危机了，这次经济危机+疫苗灾难，会有3年-5年困难期，5-10年的调整期
+- 所罗门骚乱事件是美国操作的事件，目的把中共在所罗门军事基地赶出去
+
+
+
+
+
+
+编辑发布：闪电训练
 
  
 

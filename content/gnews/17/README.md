@@ -2,37 +2,43 @@
 ---
 
 
-## 视频| 币安就是一场骗局
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1704666/)
+## 新冠疫苗加强针让前AFL球星进入ICU
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1704723/)
 
-## 摘自2021.11.26郭先生大直播
+**【雅典娜快讯】，紧贴时代脉搏**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-199.jpg)图片来源：Healthline
+翻译：文扬
+编辑：文泓
 
-制作：香草山视频部，香草山香港部
+11月27日，前澳式足球西部斗牛犬队中场球员保罗·迪马蒂纳因新冠疫苗加强针产生严重不良反应，而目前已送入重症监护室。
 
+据《先驱太阳报》报道，迪马蒂纳在与重症肌无力的抗争中一直在接受化疗，现在他已住院治疗多天。这位47岁的**前AFL球星**对辉瑞疫苗加强针反应很强烈，而且感染了新冠病毒。
 
+迪马蒂纳之前存在的健康状况有可能导致他对辉瑞疫苗加强针有不良反应，因为重症肌无力会对神经系统有影响。
 
-咱国内很多战友听着咱爆料，马上去提现不了，为什么？他钱没了！钱去哪了？
-你们想，在新加坡，60%钱被共产党给干掉了。也就你们现在想狗币想提现？你提什么现，被干掉了！现在中国共产党找迪拜，说你必须把他账上钱给我划回来，你不划回来我要跟你决裂，全天候兄弟战略伙伴关系就要结束。这是七哥今天说的，负法(律责任)。赵长鹏你来告我，你不告我你是孙子。我知道你每一秒钟在干什么！他去瑞士去骗银行去，你在瑞士要买了银行，那郭文贵就白活了是不是？让你能买成银行？是吧。任何数字货币没有银行，最后都是归零。钱在天上飘，你怎么进得去，你进都进不去，出都出不来。它是一个墓地的币，它不叫币了。只要叫币你就得有传(统银行)，这为什么现在喜联储他牛叉在哪儿呢，他有中心，他有公司，他有总部，他有管理层，他有稳定币，他有银行。你那500多块钱的币安币，一个币，你告诉我战友们，你去卖去，你提提现试试！
-这是一个绝对的一个大骗局，他为啥现在王岐山要用他（赵长鹏）去弄，他就要拍共产党的马屁，我帮你干掉喜联储，然后呢，你别把我的钱都弄走，他已经60%钱被弄走，没有人再可以兑现了。
-Elon Musk鬼着啦，不能兑现我的钱就没了，他的钱没了。你们怎么行动？要多做英文节目，要在Youtoube上Facebook上Twitter上Instagram上全部发信息，甚至中东文，你让更多的银行知道，让更多已经开了他币安账户的人知道，你钱永远没啦！被共产党拿走了60%！然后美国人要盯着所有的40%要都拿走，因为他给美国政府提供的不仅全面的信息，他还提供了假信息。
+然而，目前尚不清楚究竟是什么决定性因素——辉瑞疫苗加强针、重症肌无力的治疗、新冠病毒或未公开的疾病——导致迪马蒂纳（Dimattina） 被送入重症监护室。
 
+迪马蒂纳在医院的病床上告诉记者：“我当时没有任何症状（注射加强针前）。我对辉瑞疫苗加强针有反应，而且现在也感染了新冠病毒。”
 
+这位中场球员在斗牛犬队度过了八年的职业生涯，为维多利亚州俱乐部出场131次。
 
-发稿：雪梨
+迪马蒂纳还在南墨尔本拥有拉马罗酒店，他经常直言不讳地批评维多利亚州政府大流行限制政策，称其为墨尔本企业“经营末日”。据报道，（封锁期间）迪马蒂纳一度每周损失28,000澳元。
 
-![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+维持业务运转和处理家庭生活的多重压力使迪马蒂纳的神经系统难以跟上而住院。报道还称，迪马蒂纳正在考虑在政治生涯中有所作为。
 
-**更多资讯，更多关注**
+迪马蒂纳在7月被自由党看上，讨论其在2022年州选举中成为候选人的可能性。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+然而，迪马蒂纳选择协助组建一个新的政治团体——维多利亚党，因为他们希望（维州）赶走工党和自由党。
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+原文链接[AFL news: Paul Dimattina in intensive care after reacting to Covid booster shot | news.com.au — Australia’s leading news site](https://www.news.com.au/sport/afl/exafl-star-in-intensive-care-after-reaction-to-covid-booster-shot/news-story/b80f494fdbb66d542186fb180facc699)
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+发布：kk
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/76QVRChsgU)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,46 +2,72 @@
 ---
 
 
-## 库什纳在中东寻找新公司的投资者
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1702201/)
+## 重写规则，重置行业！习近平将继续打压科技公司
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1702314/)
 
-翻译： 香草山金融部 – AT
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
+编译：Hopkins
 
 
+```
+【编者按】临近年末，《经济学家》周刊发表了“未来世界 2022”（The World Ahead 2022）系列专栏文章，本文是系列文章之二。
+```
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/333-4.jpg)
+
+```
+随着中共政府在 2021 年春夏加大对中国科技公司的猛烈打击，商界领袖、分析师和投资者反复追问：什么时候才是个结束？一些世界上最大的互联网集团的股票市值蒸发超过 1 万亿美元，例如游戏和社交媒体巨头腾讯以及中国电子商务巨头阿里巴巴。整个商业模式——例如在线辅导——都被摧毁了。投资者需要听到打压停止的消息。但在 8 月 8 日，中共发布了一份旨在重塑中国科技产业的五年蓝图——即使是最乐观的行业观察人士也证实，这种剧烈的变化至少将持续到 2022 年。
+```
 
 
-杰瑞德·库什纳 (Jared Kushner) 一直在联系几个中东国家，看看他们是否有兴趣投资他的新投资公司。
 
-一位了解讨论情况的人士告诉《纽约时报》，阿拉伯联合酋长国 (UAE) 的主权财富基金拒绝投资库什纳的新公司 Affinity Partners。一位知情人士还告诉该报，卡塔尔领导人也对投资不感兴趣。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Captur15.jpg)
-然而，有两人告诉《纽约时报》，库什纳正在与沙特阿拉伯的公共投资基金就潜在投资进行谈判。四名了解这些谈判的人士表示，尚未宣布任何交易，因为沙特人和库什纳公司之间的谈判正在进行中。
+```
+随着新年的到来，中国经济的大片地区都受到了监管打击。中共总书记习近平正在改写经济运行规则以及公司收集的数据如何处理的规则。这意味着中国一些最著名的大亨要被打倒，比如阿里巴巴的创始人马云，并迫使其他集团屈服，比如网约车巨头滴滴全球。改变规则的速度意味着从金融科技和电子商务到自动驾驶汽车、社交媒体和视频游戏等领域的公司必须重新思考他们如何赚钱和处理数据。
+```
 
-一位知情人士告诉该报，到 2022 年初，特朗普前总统的女婿计划投资数十亿美元。
 
-库什纳在与《纽约时报》的简短电话中未对 Affinity Partners 发表评论，沙特阿拉伯王国大使馆的一名官员也拒绝对该报发表评论。希尔无法立即联系库什纳置评。 据《泰晤士报》报道，阿联酋领导人对库什纳之前的业务表现表示担忧，尽管他们确实将他视为盟友。
 
-据该报报道，另一方面，卡塔尔政府将前总统的女婿视为特朗普政府时的对手。 《泰晤士报》指出，库什纳与沙特阿拉伯王储穆罕默德·本·萨勒曼保持着密切关系，其中包括使用彼此的名字和发短信。
+```
+中共总书记正在改写经济运行规则
+```
 
-《泰晤士报》还指出，在特朗普政府期间，库什纳帮助策划了美国和沙特阿拉伯之间的旅行和交易，包括一项价值 1100 亿美元的美国军火交易以及特朗普首次在美国以外的中东国家之行。
 
-信息来源: [库什纳在中东寻找新公司的投资者](https://thehill.com/homenews/administration/583253-kushner-looking-to-middle-east-for-investors-in-new-firm-report?amp)
 
-编辑/校对/发稿: Hetangyuese
+```
+所有这些都将导致 2022 年发生两大变化。首先是中国科技行业的盈利能力下降。多年来，该国的互联网和电子商务巨头一直是投资者的金矿。随着 2021 年实施的一些规则改变反映在 2022 年的收益中，盈利能力将进一步放缓。但并非所有部门都得到平等对待。在一种极端情况下，一些在线课后辅导提供商被迫转变为非营利组织，电子游戏也受到重创。 9 月，监管机构警告包括腾讯在内的游戏公司，他们应该停止关注利润，而应专注于减少青少年的游戏成瘾。以字节跳动、快手、哔哩哔哩等公司为主导的短视频行业，可能会受到类似的待遇。预计 2022 年这些领域的公司回报将大幅度降低。
+```
 
-![This image has an empty alt attribute; its file name is 11_Nov-7.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-7.jpg)
 
-**For more information, please follow us at:**
-[**New York MOS Himalaya ｜GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**New York MOS Himalaya ｜MOS TALK**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**New York MOS Himalaya | GETTR**](https://www.gettr.com/user/himalaya_mos)
-[**New York MOS Himalaya ｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**Free to Join New York MOS Himalaya | Discord**](https://discord.gg/ChqXAHd)
 
-![This image has an empty alt attribute; its file name is Gnews-Logo-36-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+```
+与此同时，中国最大的电子商务集团——阿里巴巴、拼多多和京东——正被迫面对许多过去支撑其盈利的垄断行为。美团是一款专注于外卖的超级应用程序，已被命令为其司机大军提供更好的福利待遇。这种变化将侵蚀公司的利润并重创其股价。据券商伯恩斯坦称，腾讯的市盈率预计将从 2020 年的约 32 倍降至 2022 年的 24 倍。
+```
 
+
+
+```
+第二个转变将是中国科技企业遇到筹集资金困难。中共和美国的监管机构都不希望中国公司在纽约上市。甚至在香港的首次公开募股也承担了新的风险。中共监管机构对科技公司“资本无序扩张”也已表示不满。 美国投资者对估值高昂的中国科技公司的兴趣似乎不太可能在 2022 年恢复。但预计仍有几家大公司将在香港上市，尽管估值较低。
+```
+
+
+
+```
+摩根士丹利银行的分析师称这是整个行业的“重置”。随着中国科技公司适应政府收紧控制的现实，它们对投资者的价值将不可避免地降低。
+```
+
+
+
+```
+作者：Don Weinland：《经济学家》中国商业与金融编辑，香港
+```
+
+
+信息来源：
+
+[The World Ahead 2022 Xi Jinping’s crackdown on Chinese tech firms will continue](https://www.economist.com/the-world-ahead/2021/11/08/xi-jinpings-crackdown-on-chinese-tech-firms-will-continue)
+
+*校对：东京樱花团/喜马拉雅的微尘*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

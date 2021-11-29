@@ -2,31 +2,59 @@
 ---
 
 
-## 澳大利亚人正在走向黎明的曙光吗？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1704555/)
+## Omicron变体最早发现于完全疫苗接种者
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1704576/)
 
-撰稿：June（文舜）
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3CF934C2-426B-4EAA-BCF8-EEB9149FD6F1.jpeg)图片来源：June (文舜）
-随着澳大利亚政府在这几个月里不断强推疫苗接种和最近又推出加强针，澳大利亚人正在觉醒，越来越多人起来反抗向政府说不。 悉尼、墨尔本、布里斯班、珀斯、阿德莱德和凯恩斯等城市在过去的两个星期六都加入了全球自由集会，抗议强制接种疫苗和疫苗护照。
+**作者**：纽约香草山信息部- 诺雅
 
-只要大家团结在一起，人民的力量是如此的强大!  在社交媒体上，反对声音无处不在。最近，我们也可以从主流媒体上注意到，在政府层面上也正在发生变化。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
 
-在新南威尔士州，新任警察局长Helen Webb于11月24日被任命。 Helen在新闻发布会上提到，现在是新领导和新方向的时候了。 她将带领警方重新与社区接触，并回到他们更传统的角色。  这是否暗示了即将离任的警察局长Mick Fuller和警察部长David Elliot曾经说过要制定法律来对付记者和社交媒体已经过时？ 这是否暗示着警察工作重点的改变？
 
-在维多利亚州，Daniel Andrews政府的5名议员已经辞职，这无疑会给他带来麻烦。 虽然他们给出了各种各样的辞职理由，但他们的离开无疑是对维多利亚州议会是一个震动。墨尔本人带头游行反对通过已经提出了数周的大流行病法案，人们日夜在议会大厦外露营，并在大多数周末进行抗议，以显示他们对自由的决心。
 
-在堪培拉，我们现在有一个澳大利亚人权委员会的新负责人，Finlay女士，她在访问中提醒政府注意疫苗的授权。她认为需要在个人选择权利和更广泛的公共健康权利之间找到平衡点。 她还说，公共卫生是需要合理的、非歧视性的和相称的。
 
-新南威尔士州卫生部部长Brad Hazzard签署了另一项豁免令，允许未接种疫苗的学生参加12年级毕业典礼。我们不要忘记他上周也签署了允许未接种疫苗的人参加抗议活动的豁免权行政命令。
 
-在昆士兰州，我们现在有4个区政府写信给昆士兰省长，说他们反对她提出的隔离，并已投票支持有选择权。接下来会更多的人将会效仿。
+1月25日，博茨瓦纳政府公开声明称，该国的Omicron新突变病毒，最先在四名接受两剂ccp病毒疫苗的患者中发现。这四名患者于11月7日进入博茨瓦纳执行外交任务，在11月11日准备回国时对中共病毒检测呈阳性。
 
-以上这些都不是偶然发生的。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/261121botswana.jpg)
 
-那么，这些都意味着什么？人们正在觉醒!  随着政府推出加强针，那些打过两次疫苗的人们将意识到他们不再被认为是完全接种了疫苗！他们将不得不继续打疫苗。 他们将不得不再次接种，一次又一次地接种!  此外，一些政治家也开始转向人民一边，开始为我们发声。
+声明中还指出，新毒株的变异传染性很广，它不仅存在于博茨瓦纳，更多非洲国家和其他地区也已经检测到该变种。
 
-我们需要不断地发出反对声音! 我们需要不断地反击他们! 我们需要不断地出现在集会上! 我们需要不断地传播真相，让更多的人清醒过来。直到政府停止强制疫苗为止。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
+据11月26日的世卫组织宣布，Omicron是第五个需要关注突变。因传言称该毒株传染性是德尔塔毒株的三倍，并且很可能对疫苗及人体免疫力有抵抗能力，随后周五全球金融市场暴跌，美国、加拿大、英国和欧盟等纷纷宣布对南部非洲国家实施新的旅行禁令。
+
+截至27日晚间，比利时、以色列、香港、英国已经确认发现新变种感染病例，德国和捷克也报告了疑似病例。
+
+参阅链接：
+
+[https://gettr.com/post/pi0ogq0f02](https://gettr.com/post/pi0ogq0f02)
+
+[https://www.reuters.com/business/healthcare-pharmaceuticals/japan-tighten-border-controls-s-africa-others-new-virus-variant-jiji-2021-11-26/](https://www.reuters.com/business/healthcare-pharmaceuticals/japan-tighten-border-controls-s-africa-others-new-virus-variant-jiji-2021-11-26/)
+
+[https://nypost.com/2021/11/27/omicron-variant-found-in-uk-germany-czech-republic/](https://nypost.com/2021/11/27/omicron-variant-found-in-uk-germany-czech-republic/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-4.jpg)
+
+***总编：正义的小新***
+
+***编辑：文特***
+
+***校对/发稿：遍地开花***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
+
+
+
 
 
  

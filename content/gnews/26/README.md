@@ -2,49 +2,90 @@
 ---
 
 
-## 超市供应、油、股票市场动荡下的大灭亡与大拯救前夜
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1704572/)
+## 视频| 郭先生谈关于“反华”这件事给战友们的建议
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1704602/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/hqdefault_副本-2.jpg)
-据[2021年11月28日 文贵大直播：新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破](https://gtv.org/video/id=61a3828b44c1fe7a6c3aaf29)时间点1：58：05——
+## 摘自2021.11.26郭先生大直播
 
-**郭文贵先生：**我觉得美国、西方社会重要的节点是什么，大家一定要记住，一定要记住，西方社会就三件事就是它这个社会要出大问题了。
+制作：香草山视频部，香草山香港部
 
-第一个问题，就是你看到超市供应，因为西方这个极度发达的社会，就是现在你的感受就是它开始要出现问题了，当超市要出问题的时候，基本上这个社会就会出现政治、经济、社会安全的问题，一定是这结局，这是第一条；
 
-第二条就是油，这个油价和加油的难度几乎就它就像一个人的神经系统一样，没油了这个社会就全垮了，完全就完了。油跟电又连在一起，是吧？这是供应的问题，就是油；
 
-第三件事情就是股票市场，当你看到股票市场的这种起伏、暴跌暴涨的时候，它就是又有人要操纵这个东西了；
+现在所有的战友们在反华这件事情
+你能做的的就两件事
+加入农场 和农场保持联系
+然后在你的生活当中依法地
+把你有更多的基本的防护措施
+就是兔子都知道的 是吧
+要挖洞 是吧 防护 隐藏 别高调
+然后多找一些兔子与自己连在一起
+然后取暖 最本能的
+特别要记住 不要乱花钱
+什么买个农场啊 买个洞穴啊 这这
+你千万我求求别这么傻
+那就把目标集中在一起了 你就该被消灭了
+而且共产党也不会饶过你
+你能做的事情你倒保护不了你
+只有新中国联邦
+和农场全球协调的资金
+能力和关系才能救得了你
+比如说 在澳大利亚这种地方
+未来我们现在有
+澳大利亚最起码有将近40多个地方的警察
+退下来的安保机构
+情报部门成立的安保机构
+我们跟它签订合同书
+只有新中国联邦才能做 你做不了
+你付不起那个钱
+三天就把你那个钱耗光了
+每小时算钱怎么可能你付得起
+不论是澳喜 不论是雅典娜 你都做不到
+只有新中国联邦通过咱们澳大利亚的政治关系
+还有美国的关系 世界的关系跟它签一个合同
+价钱还便宜 还有咱们也能付得起钱
+然后全面行动
+所以千万不要傻到你们这种
+全球任何人你想独立地安全这次绝不可能
+第二就是不要乱花钱乱做决定
+那个每天都发生成本的事你少干
+特别别藏金子藏银子
+那绝对会要你的命而不会保护你
+有人到时候知道你家有黄金的时候
+第一个就冲进去了 你完了
+而且什么时候你敢拿着金子去买面包去
+你看你能够活着回来吗
+没有任何用的 是吧
+当地的少量的现金
+然后呢还目前有少量的美元你是要有的
+而且别都是百块钱的是吧
+有十块的 五十块的 二十块的
+你别弄一百美金一杵
+一枪把你干掉了乱世的时候
+所以说这种基本的常识要有
+特别是猫本你们这个年龄的人
+不要有任何的幻想和无知的行动
+那会要你的命的
+只有加入农场 跟农场全面协调
+新中国联邦全面协调 绝对是有全球的计划
+新中国联邦做不到的你不可能做到
 
-这三件事情基本上就是让你面临一个三年到八年的一个困难期，所以不是你家准备点柴禾，不是你们家准备点面包就能过的，它一定是三到八年。
 
-西方的经济在正常情况下，每八年有一次重新的一种经济危机，进行调整、泡沫吹灭，再恢复一次。那时候是调整期在三年到八年，但这一次已经不是了，这一次是经济的调整周期加上人为的一场人类大灾难，和整个人类的共产主义和社会主义和资本主义的大比拼，和人类大灭亡和大拯救的一个全面开始，可能三五十年都有可能——三年、五年、十年调整期。
 
-这个时候我再重申一下，你的生存能力是综合性的，比如家里边有太阳能发电，各种方面都要有。然后多有朋友，没朋友是最可怕的，没有关系是最可怕的。互救、互帮、大家共同的帮助才能活下去，所以农场很重要。
+发稿：雪梨
 
-（以下暂略）
+![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
 
-撰稿：喜马拉雅的肉夹馍；
+**更多资讯，更多关注**
 
-审核：喜马拉雅的馍夹肉；
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-校对：Maarago；
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

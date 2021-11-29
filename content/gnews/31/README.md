@@ -2,22 +2,25 @@
 ---
 
 
-## 铁元素与青蒿素的作用机制
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704553/)
+## VAERS数据显示 接种毒疫苗后宫外孕数量激增50倍
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704562/)
 
-作者：纽约香草山农场 – 晓仙女
+作者：纽约香草山农场 – AlexZ
 ![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月27日，香草山农场发布一则盖文——“青蒿衍生物与铁元素”音频，对青蒿素使用中铁元素的使用和注意事项进行了详细介绍。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture283.jpg)
-盖文称，由于青蒿素的亲铁性，拥有足量的铁蛋白、血红蛋白和转铁蛋白，对于青蒿衍生物发挥最佳功效至关重要。患缺铁性贫血的人，甚至处于生理周期的健康女性，因自身铁元素含量少，如服用青蒿素需提前考虑补充缺失的铁剂。
+11月22日，有美国媒体在分析了政府疫苗不良事件报告系统的数据后指出，近11个月中，已经有52例妇女在接种中共病毒疫苗后被发现有宫外孕。而在过去30多年里，总共只有30例妇女在接种了FDA批准的疫苗后，出现宫外孕的现象，大概只有每年1例。这意味着，在过去11个月里，对育龄妇女注射中共病毒疫苗后，与过去30多年来接种疫苗的育龄妇女相比，宫外孕增加了50倍。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture285.jpg)
+另外，该媒体还报告了与疫苗不良事件报告系统有关的其他数据，发现近11个月中，有2,620 名胎儿死亡，也远高于过去 30 年该系统报告的接种所有疫苗后的胎儿死亡人数总和。
 
-人体吸收率最高，副作用最低的铁产品是亚铁血红素，它可与所有青蒿衍生物结合。维生素C与铁同服可以增加铁元素吸收，但铁不适合与镁、锌、钙和茶同时服用，会降低身体对铁的吸收。
+该媒体认为，对于从政府疫苗不良事件报告系统获得的这些数据，任何人都可以在网上得到，显然FDA和CDC也可以，而且他们知道这些风险的存在。
 
-参考链接：[铁元素与青蒿素的作用机制](https://gettr.com/post/pi4i9wc782)
+参考链接：
+1. [VAERS数据显示 接种毒疫苗后宫外孕数量激增50倍](https://healthimpactnews.com/2021/vaers-data-reveals-50-x-more-ectopic-pregnancies-following-covid-shots-than-following-all-vaccines-for-past-30-years/)
+2. [VAERS数据显示 接种毒疫苗后宫外孕数量激增50倍](https://bit.ly/3E2MROm)
+3. [VAERS数据显示 接种毒疫苗后宫外孕数量激增50倍](https://bit.ly/3p7yO3Z)
 
 ![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：文特
+总编：飞虹
 编辑：飞虹
 校对/发稿：Hetangyuese
 
