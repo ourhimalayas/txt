@@ -2,52 +2,60 @@
 ---
 
 
-## 岸田文雄誓言加强防御应对中朝威胁
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1704503/)
+## Omicron变体最早发现于完全疫苗接种者
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1704576/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-911.png)2021年11月27日星期六，日本首相岸田文雄（中）在日本东京的日本陆上自卫队朝霞营地进行检阅时，在日本自卫队部队面前发表讲话。（来自美联社的组合图片）
-本周六，日本首相岸田文雄在首次进行的部队检阅中，再次承诺考虑“所有选项”，包括拥有打击敌方基地的能力，并誓言在中共国和朝鲜日益严重的威胁下，建立一支更强大的自卫队来保护日本。
+**作者**：纽约香草山信息部- 诺雅
 
-岸田表示，日本周边的安全局势正在迅速变化，“现实比以往任何时候都更加严峻”，朝鲜在提升其能力的同时继续试射弹道导弹，而中共国则在该地区增强军事力量和越来越强势的活动。
-
-岸田在向数百名身穿橄榄色头盔和制服的陆上自卫队成员发表讲话时说：“我将考虑所有选项，包括拥有被称为打击敌方基地的能力，以加强必要的防御力量。”
-
-岸田于10月上任，周六在东京北部的主要陆军基地朝霞营地举行的自卫队部队检阅中，首次担任最高指挥官。根据日本防卫省的消息，大约有800名士兵集结接受检阅。
-
-岸田说：“日本周围的安全环境一直在以前所未有的速度迅速变化。过去只发生在科幻小说中的情节，如今成了现实。”他说他的政府将领导“冷静且现实”的讨论，以确定需要什么来保护人民的生活并获得他们的理解。
-
-拥有被称为打击敌方基地能力的可能性一直是一个存在分歧的问题，因为反对者称这违反了日本的弃战宪法。
-
-岸田将他的鸽派立场转变为了更强硬的立场，显然是为了取悦执政党内有影响力的领导人，包括前首相安倍晋三，并加强对权力的控制。他现在主张增加日本的军事能力和开支。
-
-周五，岸田内阁批准了一项截至3月份的7700亿日元（68亿美元）的额外国防预算申请，以加快购买导弹、反潜火箭和其它武器，因为人们越来越担心中共国、俄罗斯和北朝鲜不断升级的军事活动。
-
-这一请求仍有待议会批准，创下了额外国防预算的纪录，这将使日本今年的军费支出达到超过6.1万亿日元（532亿美元）的新高，较2020年的5.31万亿日元增长了15%。2021年的总预算将略高于日本GDP的1%，保持其惯常的上限。
-
-岸田曾表示，他愿意将日本的军费开支增加一倍，以应对日益恶化的安全环境。批评人士还表示，日本作为世界上老龄化速度最快、人口不断减少的国家，应该将更多资金用于医疗保健和其它服务。
-
-官员们说，与过去的部队检阅（包括4千名士兵、2百多辆车辆和数十架战机）相比，周六的阅兵规模大幅缩减，以尽量减少对常规部队活动的影响。没有游行和公众观看，只有9辆坦克和其它车辆参加了这次在线活动。
-
-简评：
-
-日本新任首相岸田文雄上任不久，就加速发展本国的军力以应对中共政权的威胁，说明日本政府已经意识到了中共这个独裁政权潜在的巨大危害性。但是，从军事到外交，日本很大程度上都要受制于美国，所以对于中共政权不断加剧的军事冒险行为，日本是否能够采取全面的反共政策，仍然取决于美国的态度。如果美日最终形成合力，相信可以从根本上遏制中共要称霸全球的野心，对于地区乃至世界的稳定与和平都至关重要。
-
-新闻链接：[http](https://www.asahi.com/sp/ajw/articles/14490315)[s://www.asahi.com/sp/ajw/articles/14490315](https://www.asahi.com/sp/ajw/articles/14490315)
-
-翻译/简评：Harvey (叶知秋)
-
-PR：Julia Win
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
+1月25日，博茨瓦纳政府公开声明称，该国的Omicron新突变病毒，最先在四名接受两剂ccp病毒疫苗的患者中发现。这四名患者于11月7日进入博茨瓦纳执行外交任务，在11月11日准备回国时对中共病毒检测呈阳性。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/261121botswana.jpg)
+
+声明中还指出，新毒株的变异传染性很广，它不仅存在于博茨瓦纳，更多非洲国家和其他地区也已经检测到该变种。
+
+据11月26日的世卫组织宣布，Omicron是第五个需要关注突变。因传言称该毒株传染性是德尔塔毒株的三倍，并且很可能对疫苗及人体免疫力有抵抗能力，随后周五全球金融市场暴跌，美国、加拿大、英国和欧盟等纷纷宣布对南部非洲国家实施新的旅行禁令。
+
+截至27日晚间，比利时、以色列、香港、英国已经确认发现新变种感染病例，德国和捷克也报告了疑似病例。
+
+参阅链接：
+
+[https://gettr.com/post/pi0ogq0f02](https://gettr.com/post/pi0ogq0f02)
+
+[https://www.reuters.com/business/healthcare-pharmaceuticals/japan-tighten-border-controls-s-africa-others-new-virus-variant-jiji-2021-11-26/](https://www.reuters.com/business/healthcare-pharmaceuticals/japan-tighten-border-controls-s-africa-others-new-virus-variant-jiji-2021-11-26/)
+
+[https://nypost.com/2021/11/27/omicron-variant-found-in-uk-germany-czech-republic/](https://nypost.com/2021/11/27/omicron-variant-found-in-uk-germany-czech-republic/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-4.jpg)
+
+***总编：正义的小新***
+
+***编辑：文特***
+
+***校对/发稿：遍地开花***
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
+
+
+
+
 
  
 

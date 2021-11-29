@@ -2,31 +2,32 @@
 ---
 
 
-## 中概股暴跌，爱奇艺跌幅达85%
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1704062/)
+## 铁元素与青蒿素的作用机制
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704553/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-28.jpg)中概股暴跌，爱奇艺跌幅达85%  网络图片
-据网易新闻11月27日报道，南非新变异病毒重创全球金融市场，原油期货和美股道指大跌。中概股跌幅超过10%的公司有8家，号称“中国版奈飞”的爱奇艺股价跌幅达85.85%。爱奇艺市值曾一度超过300亿美元，约合人民币1900亿元。现在，该公司总市值仅为51.62亿美元，约合人民币330亿。
+作者：纽约香草山农场 – 晓仙女
+![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
+11月27日，香草山农场发布一则盖文——“青蒿衍生物与铁元素”音频，对青蒿素使用中铁元素的使用和注意事项进行了详细介绍。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture283.jpg)
+盖文称，由于青蒿素的亲铁性，拥有足量的铁蛋白、血红蛋白和转铁蛋白，对于青蒿衍生物发挥最佳功效至关重要。患缺铁性贫血的人，甚至处于生理周期的健康女性，因自身铁元素含量少，如服用青蒿素需提前考虑补充缺失的铁剂。
 
-2021年中共出手打击中概股，导致多家知名公司股价腰斩。爱奇艺业绩持续亏损，做空机构Wolfpack指出爱奇艺虚增2019年的收入。2019年，爱奇艺曾是高瓴第一大重仓股，持仓市值超过10亿美元。目前，爱奇艺已退居为高瓴第7大重仓股，持仓市值约3.1亿美元。
+人体吸收率最高，副作用最低的铁产品是亚铁血红素，它可与所有青蒿衍生物结合。维生素C与铁同服可以增加铁元素吸收，但铁不适合与镁、锌、钙和茶同时服用，会降低身体对铁的吸收。
 
-中概股的结局比这个寒冬还要凄惨。在中共国金融环境下，这是必然的结局。假骗偷的经济能支撑多久呢？早晚一定会崩溃。随着中共继续全球释放病毒，最终会彻底摧毁经济。人类要么等着疫苗经济摧毁人类，要么起来抗争，结束中共，重新开启世界新秩序，没有第三条出路。
+参考链接：[铁元素与青蒿素的作用机制](https://gettr.com/post/pi4i9wc782)
 
-新闻参考链接：[https://c.m.163.com/news/a/GPR4I7JU0519B826.html?spss=newsapp](https://c.m.163.com/news/a/GPR4I7JU0519B826.html?spss=newsapp)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-* * *
+总编：文特
+编辑：飞虹
+校对/发稿：Hetangyuese
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

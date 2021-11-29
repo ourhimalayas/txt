@@ -2,45 +2,44 @@
 ---
 
 
-## 库什纳在中东寻找新公司的投资者
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1702201/)
+## 两名已接种新冠疫苗的乘客到悉尼后测出Omicron变种阳性
+` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1704308/)
 
-翻译： 香草山金融部 – AT
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
-
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Omicron-Coronavirus-Variant-2111281622.jpg)
 
 
+ 
+图片来源：www.businessinsiderbd.com/Representational
 
-杰瑞德·库什纳 (Jared Kushner) 一直在联系几个中东国家，看看他们是否有兴趣投资他的新投资公司。
 
-一位了解讨论情况的人士告诉《纽约时报》，阿拉伯联合酋长国 (UAE) 的主权财富基金拒绝投资库什纳的新公司 Affinity Partners。一位知情人士还告诉该报，卡塔尔领导人也对投资不感兴趣。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Captur15.jpg)
-然而，有两人告诉《纽约时报》，库什纳正在与沙特阿拉伯的公共投资基金就潜在投资进行谈判。四名了解这些谈判的人士表示，尚未宣布任何交易，因为沙特人和库什纳公司之间的谈判正在进行中。
+#### 编译：小红帽
 
-一位知情人士告诉该报，到 2022 年初，特朗普前总统的女婿计划投资数十亿美元。
+随着越来越多的国家开始限制旅行，一种新冠病毒（COVID-19）变种-Omicron已经在澳大利亚的主要城市–悉尼被检测出来。
 
-库什纳在与《纽约时报》的简短电话中未对 Affinity Partners 发表评论，沙特阿拉伯王国大使馆的一名官员也拒绝对该报发表评论。希尔无法立即联系库什纳置评。 据《泰晤士报》报道，阿联酋领导人对库什纳之前的业务表现表示担忧，尽管他们确实将他视为盟友。
+约有260人与2名对Omicron变种检测呈阳性的乘客乘坐同一航班抵达新南威尔士，现在必须进行隔离。
 
-据该报报道，另一方面，卡塔尔政府将前总统的女婿视为特朗普政府时的对手。 《泰晤士报》指出，库什纳与沙特阿拉伯王储穆罕默德·本·萨勒曼保持着密切关系，其中包括使用彼此的名字和发短信。
+当局已经通知他们，无论检测结果是否为阴性，都必须呆在家里14天。
 
-《泰晤士报》还指出，在特朗普政府期间，库什纳帮助策划了美国和沙特阿拉伯之间的旅行和交易，包括一项价值 1100 亿美元的美国军火交易以及特朗普首次在美国以外的中东国家之行。
+两名Omicron阳性的乘客，周六晚上乘坐卡塔尔航空公司QR908航班从多哈出发，现在被隔离在特别医疗设施中。两名乘客已经完全接种了新冠病毒疫苗，并没有出现症状。
 
-信息来源: [库什纳在中东寻找新公司的投资者](https://thehill.com/homenews/administration/583253-kushner-looking-to-middle-east-for-investors-in-new-firm-report?amp)
+世界卫生组织上周将Omicron称为 “值得关注的变种”，它的发现引发了全世界的担忧，即它可能抵抗新冠疫苗并延长近两年的新冠病毒大流行。
 
-编辑/校对/发稿: Hetangyuese
+该变体首先在南非被发现，随后在英国、德国、意大利、比利时、博茨瓦纳、以色列、香港以及现在的澳大利亚被发现。
 
-![This image has an empty alt attribute; its file name is 11_Nov-7.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-7.jpg)
+暂停航班是世界各国为减缓Omicron变种的传播，而实施的众多限制中最引人注目的一项。许多国家已经实施或正在计划实施相关限制措施。
 
-**For more information, please follow us at:**
-[**New York MOS Himalaya ｜GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**New York MOS Himalaya ｜MOS TALK**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**New York MOS Himalaya | GETTR**](https://www.gettr.com/user/himalaya_mos)
-[**New York MOS Himalaya ｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**Free to Join New York MOS Himalaya | Discord**](https://discord.gg/ChqXAHd)
+**参考新闻：**[COVID: Omicron variant detected in Sydney and London (thenewdaily.com.au)](https://thenewdaily.com.au/news/world/2021/11/29/omicron-covid-sydney-london/)
 
-![This image has an empty alt attribute; its file name is Gnews-Logo-36-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

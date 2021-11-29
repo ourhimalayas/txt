@@ -2,38 +2,43 @@
 ---
 
 
-## 9月24日采访喜马拉雅交易所首席执行官杰西·布朗-关于未来节目
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1702130/)
+## 又有26例心肌炎与接种辉瑞疫苗有关
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1704298/)
 
-翻译： 台灣寶島農場 – Sherry海的另一邊（廢才)/香草山金融部 – ILOVE战神（文凡）
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![](https://assets.gnews.org/wp-content/uploads/2021/11/P-7.jpg)truepundit.com
+《塔克·卡尔森团队》（Team Tucker Carlson）发表文章，题目是，“又有26例心脏炎症与接种辉瑞疫苗有关”。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+全文如下：
 
+因为中共（新冠）病毒“当下变种”对疫苗效力提出了新的质疑，辉瑞公司周五（11月26日）已经在争分夺秒抢占新疫苗的市场份额，[而最新的“数据”显示，默克公司（Merck）可能将其莫诺匹拉韦（Mulnupiravir）药物作为对病毒的“奇迹疗法”而超卖]。在截至11月21日的一周内，似乎有26例心肌炎的罕见副作用的新病例又被报告出来。
 
-托尼：我们的粉丝在未来的节目中可以期待什么？
+还有一例新的血栓病例与阿斯利康（AstraZeneca）的第一剂接种有关。
 
-杰西：首先我要感谢大家对我们的产品、服务，以及最重要的是对我们的使命感兴趣，未来的节目将邀请我们许多优秀的高管，他们将更深入地探讨我们的技术、我们的安全和我们的监管能力。因此，我认为在未来的一些节目中，你将会见到这些利益相关者，你将会听到他们对我们如何走向未来的看法。
+新的病例使1340万剂疫苗接种中的血栓与血小板减少综合症（TTS）或血栓病例总数增加到164例。其中148例（81例确诊，62例可能）与第一剂疫苗有关，21例与第二剂疫苗有关（6例确诊，15例可能）。有8人因血栓而死亡，其中6人是女性。
 
-我真的很期待再次见到大家，我认为这真的很棒，我希望我已经回答了你们可能有很多问题，在未来，我愿意随时接受大家采访，和你们所有人讲话，这对我来说是太棒了！
+换句话说，每10万接种辉瑞疫苗的人中就有一到两人患上了心肌炎。
 
-参考来源：
-1. [https://gtv.org/video/id=614dd0ef42a8af3151a47b8e](https://gtv.org/video/id=614dd0ef42a8af3151a47b8e)
-2. [Interview with Himalaya Exchange CEO Jesse Brown- English Transcript of First Episode, September 24th](https://gnews.org/1593083/)
+阿斯利康疫苗接种后，总共有150例疑似格林-巴利综合征（GBS）的报告，这是一种罕见但有时严重影响神经的免疫性疾病。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10-1.png)
+辉瑞公司早些时候指出，它预计“Nu”变种的基因分解将在2周内完成。
 
-校对：文唐
+鲍姆（Baum）说，接下来几周的测试是必要的，对于确定变种“Nu”是否比“Delta”更具传染性至关重要。实验室测试可能得出“生物技术”（BioNTech）的结论，辉瑞将不得不新重规划他们的疫苗。
 
-编辑/校对/发稿：Hetangyuese
+他指出，一名接种了两剂辉瑞疫苗的香港人经历了Nu变种的突破性感染。这种突破性病例令人担忧，中共（冠状）病毒疫苗的免疫力不断减弱，各国政府实施了加强剂。
 
-**更多资讯，更多关注**
-[**纽约香草山农场 GTV–香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场 GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场 Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-3.png)
+鲍姆与辉瑞公司首席执行官阿尔伯特·布尔拉（Albert Bourla）进行了交谈，后者表示，科学家可能需要100天才能开发出一种新型的变种疫苗来对抗Nu。
+
+（原文完）
+
+投放到市场的疫苗造成了这样多的副作用和死亡，这才几个月？毫无疑问，再过一段时间副作用、死亡报告会更多。这种情况，你们还企图利用“大跃进”方式，在100天内开发出新疫苗，怎么越发觉得这不是在美国而是在中共国？美国人，醒醒吧，拒绝疫苗，更要拒绝这些新开发出的变种疫苗，将这些疫苗留给推广者、强制者，让他们自己享用好了。
+
+原文链接：
+
+[https://teamtuckercarlson.com/news/26-more-cases-of-heart-inflammation-linked-to-pfizer-jab/](https://teamtuckercarlson.com/news/26-more-cases-of-heart-inflammation-linked-to-pfizer-jab/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
