@@ -2,32 +2,61 @@
 ---
 
 
-## 铁元素与青蒿素的作用机制
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704553/)
+## Omicron变体最早发现于完全疫苗接种者
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1704576/)
 
-作者：纽约香草山农场 – 晓仙女
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月27日，香草山农场发布一则盖文——“青蒿衍生物与铁元素”音频，对青蒿素使用中铁元素的使用和注意事项进行了详细介绍。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture283.jpg)
-盖文称，由于青蒿素的亲铁性，拥有足量的铁蛋白、血红蛋白和转铁蛋白，对于青蒿衍生物发挥最佳功效至关重要。患缺铁性贫血的人，甚至处于生理周期的健康女性，因自身铁元素含量少，如服用青蒿素需提前考虑补充缺失的铁剂。
+**作者**：纽约香草山信息部- 诺雅
 
-人体吸收率最高，副作用最低的铁产品是亚铁血红素，它可与所有青蒿衍生物结合。维生素C与铁同服可以增加铁元素吸收，但铁不适合与镁、锌、钙和茶同时服用，会降低身体对铁的吸收。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
 
-参考链接：[铁元素与青蒿素的作用机制](https://gettr.com/post/pi4i9wc782)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：文特
-编辑：飞虹
-校对/发稿：Hetangyuese
+
+
+1月25日，博茨瓦纳政府公开声明称，该国的Omicron新突变病毒，最先在四名接受两剂ccp病毒疫苗的患者中发现。这四名患者于11月7日进入博茨瓦纳执行外交任务，在11月11日准备回国时对中共病毒检测呈阳性。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/261121botswana.jpg)
+
+声明中还指出，新毒株的变异传染性很广，它不仅存在于博茨瓦纳，更多非洲国家和其他地区也已经检测到该变种。
+
+据11月26日的世卫组织宣布，Omicron是第五个需要关注突变。因传言称该毒株传染性是德尔塔毒株的三倍，并且很可能对疫苗及人体免疫力有抵抗能力，随后周五全球金融市场暴跌，美国、加拿大、英国和欧盟等纷纷宣布对南部非洲国家实施新的旅行禁令。
+
+截至27日晚间，比利时、以色列、香港、英国已经确认发现新变种感染病例，德国和捷克也报告了疑似病例。
+
+参阅链接：
+
+[https://gettr.com/post/pi0ogq0f02](https://gettr.com/post/pi0ogq0f02)
+
+[https://www.reuters.com/business/healthcare-pharmaceuticals/japan-tighten-border-controls-s-africa-others-new-virus-variant-jiji-2021-11-26/](https://www.reuters.com/business/healthcare-pharmaceuticals/japan-tighten-border-controls-s-africa-others-new-virus-variant-jiji-2021-11-26/)
+
+[https://nypost.com/2021/11/27/omicron-variant-found-in-uk-germany-czech-republic/](https://nypost.com/2021/11/27/omicron-variant-found-in-uk-germany-czech-republic/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-4.jpg)
+
+***总编：正义的小新***
+
+***编辑：文特***
+
+***校对/发稿：遍地开花***
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
