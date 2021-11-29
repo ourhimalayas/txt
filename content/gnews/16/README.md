@@ -2,27 +2,12 @@
 ---
 
 
-## 路易威登男装系列创意总监因癌症去世
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1705272/)
+## 长滩唯一急诊所停业，5万居民失去当地紧急医护
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1705301/)
 
-撰稿：东京樱花团/百花李香
-![](https://assets.gnews.org/wp-content/uploads/2021/11/3-111.jpg)
-图片来源于本文链接
+11/23/2021 据MSNBC报导，当地时间11月23日，由于工作人员短缺，西奈山南纳苏医院的长滩急诊室宣布停业至少一个月。之前州卫生部撤销了相关72名医护人员的宗教豁免，认定他们不能接续接诊。
 
-11月28日，知名美籍非裔时装设计师维吉尔‧阿布洛（Virgil Abloh）因癌症在德州病逝，终年41岁。
-
-维吉尔‧阿布洛生前是路易威登男装系列的创意总监。他在2013年创立了自己的品牌(OFF-WHITE c/o VIRGIL ABLOH)，2018年3月加入了路易威登，成为路易威登历史上第一位男装黑人艺术总监，为该品牌的历史增添了新的一页，
-
-Virgil Abloh去世的消息是由家人在其个人社交媒体账号上发布的。
-
-信息源：
-
-**ヴァージル・アブロー死去　一際明るかった分、あっという間に消えてしまった星を想って**
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1-1.png)
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
  
 

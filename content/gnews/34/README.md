@@ -2,24 +2,24 @@
 ---
 
 
-## 参议员克鲁兹：司法部应该起诉福奇
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1704967/)
+## 掉入中共债务陷阱！乌干达唯一一个国际机场恐被中共接管
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1704996/)
 
-#### 撰稿：彩虹
+#### 翻译/撰稿：zzballack
 
 #### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-3-5.jpg)图片来源：国会山报
-11月28日，《新闻极限》报道来自德克萨斯州的美国参议员泰德·克鲁兹（Ted Cruz）称，安东尼·福奇（Anthony Fauci）博士是一个“未经选举产生的技术官僚，他歪曲科学和事实，以便对数百万美国人实施权威控制”。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-2-2.jpg)图片来源：Palpal News Hub
+据印度媒体《世界一体新闻台》（WION）11月28日报道，乌干达可能很快就会成为中共债务陷阱的最新受害者。该国唯一的国际机场，即恩德培国际机场 (Entebbe International Airport)，正面临着被中共接管的危险。
 
-克鲁兹在推特上发文说：“他生活在一个自由主义的世界，在这里，他自诩‘我代表科学’的态度得到了称赞”。
+2015年11月，乌干达与中共进出口银行签署协议，以2%的利率贷款2.07亿美元，用于扩建恩德培国际机场。据坦桑尼亚《公民报》（The Citizen）报导，这笔贷款的偿还期限为20年，包括7年宽限期。宽限期内仅需偿还利息，暂不偿还本金，但宽限期将于明年失效。乌干达近期发现无法如期偿还，便派遣官方代表团前往北京再次谈判协议，但中共贷款方拒绝改变原协议的条款。
 
-文章报道，由于福奇在五月份否认国家卫生研究院资助了中共国武汉一家病毒学实验室的“病毒功能性增强”研究，这受到了包括克鲁兹和来自肯尼迪州的国会参议员兰德·保罗（Rand Paul）等人的指责。对此，克鲁兹已经敦促梅里克·加兰（Merrick Garland）检察长任命一名特别检察官来调查福奇的言论。
+原贷款协议中第13条赋予中共进出口银行批准年度和月度运营预算、检查乌干达政府和民航局（UCAA）账务的权力，因此具有争议。而中国国际经济贸易仲裁委员会被指派解决相关争端。乌干达民航局对此表示，恩德培国际机场和其他相关资产可能会在仲裁后被中共进出口银行扣押接管。
 
-周日，克鲁兹列举了四个“事实”，说明他为何要求司法部对福奇进行调查，以及事实的结论是：“无论民主党人进行怎样的广告式言论诋毁，都无法使福奇摆脱他的这种自相矛盾。福奇要么用详细的、有具体事实佐证的东西来解决实质性问题，要么司法部就应该考虑起诉福奇向国会做虚假陈述”。
+据乌干达《每日观察报》（Daily Monitor）报道，乌干达政府在协议中答应放弃国际豁免权，让恩德培机场无法受国际仲裁保护。乌干达财政部长马蒂亚·卡萨亚（Matia Kasaija）为这笔贷款的“不当处理方式”，上周向议会致歉。
 
-**新闻来源**
+中共进出口银行之前还资助了乌干达2个主要电力项目约85%的资金，和4.76亿美元建造从首都坎帕拉（Kampala）通往恩德培的恩德培高速公路。
 
-[Sen. Cruz Responds to Fauci Attack: Unelected Technocrat With Distorted Science](https://www.newsmax.com/politics/ted-cruz-anthony-fauci-department-of-justice/2021/11/28/id/1046476/)
+新闻来源：[China’s debt trap strategy: Uganda set to lose its only international airport to Beijing](https://www.wionews.com/world/chinas-debt-trap-strategy-uganda-set-to-lose-its-only-international-airport-to-beijing-432465)
 
  
 

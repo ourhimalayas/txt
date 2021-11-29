@@ -2,29 +2,34 @@
 ---
 
 
-## COVID-19 最新情報｜台灣青少年接種BNT 部分無法上學、需住院
-` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1705053/)
+## 中共病毒新突变 Omicron令日本率先关闭国门
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1705176/)
 
-**台灣寶島農場 疫情關注組 / 發佈時間｜29/11/2021**
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh6.googleusercontent.com/8DsKVF4TkvrUmod4hv8ratlTMNarL5hRDiiw2CqEDOkrCRYMxGrGRvmiCW-o05whh_FTGonG4CRFhHOlnDTluSLOYbKMXEmHCBzzIcJSrvfX4OEEWr-YxHdP52Uw5YUj8KOyS7Vf)[*图片来源*](https://www.asahi.com/articles/photo/AS20211129001301.html?iref=pc_photo_gallery_next_arrow)
+**日本因世界上OMICRON新变种毒株蔓延而关闭国门，从30日凌晨起禁止令生效，包括日本海外归来者，首相岸田文雄说：“该措施以防止日本出现最坏的情况。” “我有觉悟来承受所有的批评”。另据新中国联邦郭文贵先生透露，这是中国共产党制造地缘政治动乱。郭先生早在15号就说过，新的病毒可能会从美国的西部开始被投放，非洲不是新的传染源。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
-**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
+据日本[朝日新闻](https://www.asahi.com/articles/ASPCY4RBSPCYULFA01C.html?iref=pc_special_coronavirus_top)29日消息，首相岸田文雄发布全国旅游禁止令，从30日午夜起禁止外国人入境。这是日本自大流行以来第二次封关。[**阅读更多**](http://www.news.cn/2021-11/29/c_1128111711.htm)
+
+作为对中共病毒（Covid-19）新突变[**Omicron**](https://www.washingtonpost.com/health/2021/11/26/faq-new-variant-omicron/)病毒株采取紧急疏散预防措施，岸田说，我会这样做的。并在总理府回答了记者的采访。
+
+政府消息确认，决定暂时中止自本月 8 日开始对外国商人、留学生和技术实习生进行放松管制的措施。不仅如此，岸田首相还打算加强对确诊Omicron菌株的14个国家/地区，以及南非等9个国家/地区的日本海外归国者的边境措施。
+
+- ***延展阅读：***[***刻意渲染紧张感？日本年度防卫预算总额首超6万亿日元***](http://www.news.cn/mil/2021-11/29/c_1211466231.htm)
+- ***延展阅读：***[***欧盟委员会主席表示，Omicron新毒株让世界陷入“与时间赛跑”的境地***](https://www.cnn.com/2021/11/28/world/coronavirus-omicron-variant-spreading-intl/index.html)
 
 
-台灣中央流行疫情指揮中心29日宣布，12至17歲人口於9月22日起開始接種第一劑BNT疫苗，10月底前陸續屆滿4週可打第2劑，但考量心肌炎風險，經ACIP專家討論後，認為當時國內疫情算平穩，且有待蒐集更多資料討論，因此緩打。
+岸田先生特别强调，“我认为在管理政府时应该在处理未知的风险时保持更加谨慎。至于有人批评说安田在不知道发生什么时过于谨慎，我有觉悟来承受所有的批评。”
 
-據統計，12至17歲已接種BNT疫苗第一劑約110萬人，其中17例通報發生心肌炎，包含14男3女。
+另据美联社日本消息证实，日本因Omicron蔓延禁止外国游客入境日本，首相岸田文雄说：“[该措施将于周二生效。我们正在采取紧急预防措施，以防止日本出现最坏的情况](https://www.mrt.com/news/article/Japan-bans-entry-of-foreign-visitors-as-omicron-16658858.php)。”
 
-據台媒報導，台灣小兒感染科醫師發現青少施打BNT疫苗後部分出現偏頭痛，有人1、2個月還未改善，頭痛、頭暈、噁心、嘔吐、倦怠、發燒症狀，甚至無法上學、上課，須住院治療。
+对于Omicron新变种为何在南非发源？对此，新中国联邦郭文贵先生透露，“中国共产党显然是在制造地缘政治动乱，非洲根本不可能是传染源，这是注射两针疫苗接种者之间的传播，共产党把这个嫁祸非洲。”郭先生曾在15号就说过，“新的病毒即将开始，这不是我预测的，是中国潜逃欧洲的一位资深生化专家透露的，他说新的病毒可能会从美国的西部开始被投放。关键是制造你内部矛盾，把你供应链断掉，让你活在恐惧中。”郭先生补充说（[37:57时段](https://gettr.com/post/pi5gfs500d)）。
 
-台灣青少年接種BNT疫苗後心肌炎比例比歐美高，台中榮總小兒感染科主任陳伯彥指出，部分民眾接種後出現頭痛、頭暈、噁心、發燒等副作用，前3天較嚴重，已有5、6名青少年施打後症狀持續1、2週，在診所就醫未改善，轉來中榮就診，甚至有半數頭暈、頭痛到無法上課，症狀持續2個月。他推測是因為mRNA疫苗有賦型劑PEG（聚乙二醇）過敏成份，就診的青少年有半數有過敏體質，加上過敏沒好好控制，可能誘發不適。
+2021年11月29日
 
-Covid-19偏頭痛就診的青少年從12到17都有，也有19歲患者，依美國建議指引給予較強的止痛消炎藥，以及使用抗織胺、止吐藥，仍有2人未好轉，因此會診中醫，進行中醫及針灸療，增強免疫力及放鬆肌肉，症狀較緩解。
-
-* * *
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-21.jpg)
-來源｜[自由健康網](https://health.ltn.com.tw/article/breakingnews/3751004)/[自由時報](https://news.ltn.com.tw/news/life/breakingnews/3751407)
-
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

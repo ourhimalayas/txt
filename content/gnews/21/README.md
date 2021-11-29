@@ -2,38 +2,84 @@
 ---
 
 
-## 瑞士投票选择继续保留疫苗护照制度
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1705207/)
+## 视频| 郭先生关于GETTR和GTV大V的认证
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1705289/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/id13312562-GettyImages-1235914084-scaled.jpg)图片来源：GETTY
-**翻译：**Lish
-**编辑：**翼族
+## 摘自2021.11.26郭先生大直播
 
-尽管经历了几个月的抗议，瑞士公民依然以压倒性的多数投票通过了继续保留Covid疫苗接种证书制度的决定。对参加投票的选民来说，得到财政援助的承诺是成为这一投票结果的原因。
+制作：香草山视频部，香草山香港部
 
-约62%的瑞士选民在周日选择维持该国的冠状病毒措施。这些措施包括一个有争议的Covid疫苗接种证书系统。自9月以来，进入酒吧、餐馆、剧院和其它公共场所都需要出示该证书。瑞士26个州中，有24个州的多数人支持这项法律，只有施维茨州和内阿彭策尔州州这两个小州拒绝了这些措施。
 
-除右翼的瑞士人民党外，瑞士所有政党都支持这项法律。今年早些时候，反封锁团体收集了近20万个签名来挑战这项法律后，这项法律被提交由投票决定。根据瑞士的直接民主制度，任何倡议只要有10万个签名就可以付诸表决。
 
-6月，选民以60%的比例支持引入这些措施，但最近几个月，瑞士各城市爆发了对引入疫苗证书的抗议活动。10月份的时候，警方使用橡皮子弹、催泪瓦斯和水炮驱散了冲破伯尔尼议会大厦外路障的抗议人群。
+拿着大V的人
+未来GETTR支付 GETTR PAY
+还有一些未来金融的
+特殊政策一定是先对大V来的
+你没有大V
+这个认证就轮不着你
+像现在KYC一样
+你早买了10块钱买的
+和现在40块钱买的 差多少钱呐
+那么认证大V以后 比如说我要给你币
+我要给天机币
+首先我得知道认证你是天机
+你能拿到 你有信息反馈
+不能说 我发给你币的时候
+天机 结果是我根本得不到你的回复
+所以说你要有个认证的过程
+你一定要走这个程序
+现在有手机认证 E-MAIL认证
+你可以不叫自己的真实名字
+但是要认证好
+那你跟谁联系呢？ 农场
+叫农场集体提名单
+给波波
+联盟委员会 咱们有专门联系
+联盟委员会里面咱现在就找俩人
+咱现在就指定一下
+一个草根兄弟（草根小哥）
+你去找草根兄弟 负责所有的认证
+包括GTV的认证 你们也要好好认证
+都给加上认证 GTV马上要更新
+更新完以后全部认证
+认证完以后 就让大家
+未来给你有反馈
+现在就像KYC一样
+给你发了信息
+现在战友被挡在外面的KYC 我再重申一遍
+几乎一半以上 是因为你填了虚假信息
+和没有提供足够的信息
+和提供了错误的E-MAIL
+导致了你的KYC过不了
+一定不要犯这种错误
+大家要记住 盖特认证跟各农场联系
+各农场主 铁血组
+联盟委员会负责找草根小哥
+其它我们其他农场 俄罗斯的玛莎
+还有日本的马拉多纳
+都加入进来 一起来解决这个问题
+工程师农场
+正义小Sarah 也要加入进去
+大家直接和他们联系
+抓紧认证 意义深远 我现在都不能说
 
-“宪法之友”团队的米歇尔·凯勒（Michelle Cailler）在周日的投票后说：“民主进程得到了尊重，但该法律仍然是违宪的。”凯勒的团体是反对该法律的几个运动者之一。
 
-目前在瑞士民意调查中名列前茅的瑞士人民党的赛琳·阿莫德鲁兹（Céline Amaudruz）呼吁政府采取“连贯和有分寸的”行动，而不是强加任何与冠状病毒有关的政策。
 
-投票通过的法律规定还扩大了对受大流行病影响的公民和企业的财政支持，这一规定可能赢得了一些不情愿选民的选票。
+发稿：雪梨
 
-** ****参考链接：**[Swiss get to choose whether to keep vaccine passports in place — RT World News](https://www.rt.com/news/541573-switzerland-vaccine-passports-vote/)
+![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
 
-**发布：**翼族
+**更多资讯，更多关注**
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
