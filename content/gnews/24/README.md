@@ -2,22 +2,23 @@
 ---
 
 
-## 解药对新型变种病毒依然有效
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705639/)
+## 中非合作论坛显颓势 非洲国家逐步远离中共
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705648/)
 
-作者：香草山农场-晓仙女
+作者：纽约香草山医疗部 – 云豹
 ![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-在11月28日的文贵大直播中，郭先生再次提到，新冠病毒是解放军制造的生化武器。所谓南非出现的新变种并非发源自南非，而是中共放毒，大约3周前从美国西部已经开始传播。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-29-下午11.02.26-1.png)
-文贵先生爆料，这次新变种病毒是打了两针疫苗的人之间，相互传染传播。在这种情况下，硫酸羟氯喹、青蒿素和伊维菌素等解药照样管用，比原来还管用。
+当地时间11月28日，三年一次的中非合作论坛在塞内加尔首都达卡开议。此论坛由往届的元首级，改为部长级会议。这是非洲国家改变态度的信号。中共试图在非洲建立的霸权正在衰退中。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-25.jpg)
+法国经济学家、中共研究专家裴劳特表示，过去三年以来，改变最多的是非洲国家的态度。非洲国家已经意识到，中共不仅在疫情上犯下许多错误，开的支票也无法兑现。在中共“一带一路”的虚假承诺下，许多非洲国家无力偿中共的债务。以刚果为例，中共承诺的31家医院，以及2所大学没有一家落成。总统齐塞克迪近日宣布重新评估与中共签署的铜矿等矿业投资合约。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/9-1-1.jpg)
+美国国务卿布林肯在中非合作论坛前夕造访达卡。布林肯发表演说表示，希望透过全球基建计划，向上竞争，消弭差异，减少贪腐，不会让非洲国家背负无法处理的债务。
 
-参考链接：
+参考链接：[中非論壇榮景不再 專家：對中國期待幻滅](https://www.cna.com.tw/news/aopl/202111280186.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-总编：DM
-编辑：DM
-校正/发稿：呼吸的雾霾（文小呼吸）
+总编/编辑：文真
+校正/发稿：Fei797
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)

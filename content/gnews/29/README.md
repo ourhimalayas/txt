@@ -2,40 +2,31 @@
 ---
 
 
-## DC每日热点1129
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1705561/)
+## 阿富汗人道灾难 媒体再次失声
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705624/)
 
-编辑：楚门门
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2FBA6F50-7F96-432A-BC73-ABDB8F42CDDC-scaled.jpeg)
-道琼斯指数 34899.34 ▼2.53%
-纳斯达克指数 15491.66 ▼2.23%
-WTI纽约原油CFD 68.093 ▼13.14%
-布伦特原油CFD 71.719 ▼11.37%
-标普中概股50指数 3,469.53CNY▼-30.44%
-美元兑人民币 1USD=6.393 RMB
-美元兑港币 1USD=7.798HKD
-国际黄金 1792.93美元/盎司
-全球CCP病毒感染人数 261,926,083例
+作者：波士顿五月花 – 葛朗台太太
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+据郭文贵先生11月28日大直播的爆料，人道灾难正在阿富汗发生。2300-2500万人口正在面临粮食危机，民间甚至已经出现，使用处女兑换粮食的现象。每天都有阿富汗人因为人道主义灾难而死去，官方承认已经有十几万人死亡。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-29-下午11.02.17.png)
+所有这些灾难都是源自于中共扶植的塔利班政权。 文贵先生在11月17日的直播中还预计，这个冬天，将有一百到三百万阿富汗人因为人道主义灾难而死亡。
+正在阿富汗发生的人道主义危机，被主流媒体选择性遗忘。
 
-1、美商务部长将在美国汽车重镇呼吁国会通过芯片法 应对与中共国竞争
-2、中共拟推新法加固信息防火墙，翻墙者面临严惩
-3、台国防部长：中共军机扰台用意是消耗台湾军力
-4、洪都拉斯正点算总统大选选票 曾称要与北京建交的反对党候选人领先
-5、荷兰、澳大利亚新发现奥米克戎新冠变异病例
-6、世界各国代表即将聚会商讨制定应对大流疫条约
-7、波罗的海三国议员团抵达台湾访问
-8、香港：47名民主人士因去年参加初选后以 “颠覆” 罪名受审
-9、世卫组织警告Omicron变种病毒构成“非常高”的全球风险
-10、俄罗斯军方宣布已成功试射命名为 “锆石”高超音速巡航导弹，莫斯科称这种武器是 “不可战胜的
-11、瑞士专机技术故障 外长半途折返取消与王毅会见计划
-12、审查：辛普森家庭访天安门一集在香港Disney+被消失
-13、伊朗与六个核大国重启谈判 不排除毫无进展
-14、蔡英文会见波海三国议员团透露立陶宛驻台代表处明年初设立
-15、防Omicron变种 日本30日起禁外国人入境
-16、欧盟与北约强化合作应对白俄罗斯操纵移民危机以及俄罗斯屯兵俄乌边境形成的“混合”威胁
-17、澳洲总理莫里森宣布将推出立法，要求社交媒体对其平台发布的涉及诽谤和伤害他人的内容负责
-18、俄驻美大使：27名俄外交官将于1月离开美国
+参考链接：[2021年11月28日 文贵大直播](https://gtv.org/video/id=61a3828b44c1fe7a6c3aaf29)
 
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+
+总编：Jack Li文阳
+编辑：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
