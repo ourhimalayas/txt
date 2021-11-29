@@ -2,39 +2,30 @@
 ---
 
 
-## 超过76000港人获得英国BNO签证
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705705/)
+## 中共国保险代理人数不足一年时间骤降百万
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1705732/)
 
-作者： 东京樱花团 – 在远方
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
-外媒11月27日消息，据英国内政部最新数据，今年年初以来BNO签证计划已经有接近9万香港人申请，其中超过76000人已经获批。此外，今年一至三季度还有96宗港人的政治庇护申请。
+#### 撰稿：日本东京方舟农场  幽蘭自得
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-12.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/DAD45437-FC51-48E3-BC51-4AD1BDD5C9AE.jpeg)（图片来自路透社）
 
-近日，有英国议员提出修订BNO签证计划，如果被通过，将帮助97年以后出生，没有BNO护照的年轻人。他们可以利用父母的BNO身份移民因英国。
+据《自由时报》11月29日报道，2020年中（共）国的保险代理人人数超9百万人。但根据2021年上半年的数据显示，不到一年时间，该人数骤降了1百多万。
 
-据悉，英国的BNO签证政策是在中共在香港强推《国安法》之后推出的。根据这项政策，成功申请并得到签证的人士将可以在英国生活五年后申请永久居民身份，获得定居身份12个月后可以申请英国国籍。国安法实施一年多以来，港人移民浪潮还在持续。
+据报道，中共国2020年列册执业登记的代理制保险销售人员为971.2万人。而仅在2021年上半年，该人数便已下滑至842.8万。不到一年的时间，减少了近130万人。
 
-参考链接：
+其中，截至今年第三季度结束，中共国平安保险集团的个人寿险销售代理人为70.62万人，较去年底的102.38万人缩减了31.76万人，缩减规模接近三分之一；而“中国人寿”的个险销售代理人为98万人，较3个月前的115万人减少了17万人。
 
-- [英国BNO签证1月31日起生效 北京、港府称“不再承认”BNO护照](https://www.bbc.com/zhongwen/simp/uk-55851549)
-- [近9万人申请BNO签证 超过8成人已获批](https://www.voachinese.com/a/almost-90-000-have-applied-for-bno-visa-with-over-80-approved-20211126/6329482.html)
+此外，不少业内人士表示，目前公布的代理人数据可能还存在“灌水”现象。据一位寿险分公司负责人透露，很多代理人虽然保留职位，但是长年不出勤，也不出单，实属于无效人力。
 
+*参考链接：[https://ec.ltn.com.tw/article/breakingnews/3752245](https://ec.ltn.com.tw/article/breakingnews/3752245)*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-10.jpg)
+* * *
 
-总编：木白
-编辑：木白
-校正/发稿：海阔天空1
+*素材采编：幽蘭自得*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+*编辑：青衣青青*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
+*发布：miumiu*
 
  
 

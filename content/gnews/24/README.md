@@ -2,28 +2,39 @@
 ---
 
 
-## 美议员称“台湾共和国”推文措辞是有意为之
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1705678/)
+## 超过76000港人获得英国BNO签证
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705705/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/F5704625-D066-4DE3-B0AF-C208F69A774D_w1023_r1_s.jpg)美议员称“台湾共和国”推文措辞是有意为之 图片来源：美国之音
-美国之音11月29日消息，美国国会共和党籍众议员南希·梅斯（Nancy Mace）星期日（11月28日）说，她此前在推特上发文称台湾为“台湾共和国”是故意的举动，目的是表达对台湾民主和自由的支持。
+作者： 东京樱花团 – 在远方
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
+外媒11月27日消息，据英国内政部最新数据，今年年初以来BNO签证计划已经有接近9万香港人申请，其中超过76000人已经获批。此外，今年一至三季度还有96宗港人的政治庇护申请。
 
-她在接受美国有线新闻网（CNN）采访时说：“这是我对台湾人民和他们对中共国侵犯的担忧的一种微妙但有力的支持。”
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-12.png)
 
-五名美国国会议员上星期出人意料地访问了台湾，并在周五（11月26日）会见了台湾总统蔡英文。两党议员25日晚抵达台湾时，梅斯众议员在推特上发文说：“刚刚在降落在台湾共和国”。
+近日，有英国议员提出修订BNO签证计划，如果被通过，将帮助97年以后出生，没有BNO护照的年轻人。他们可以利用父母的BNO身份移民因英国。
 
-新闻参考链接：[美议员称“台湾共和国”推文措辞是有意为之](https://www.voachinese.com/a/us-congresswoman-on-taiwan-tweet-20211129/6331736.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+据悉，英国的BNO签证政策是在中共在香港强推《国安法》之后推出的。根据这项政策，成功申请并得到签证的人士将可以在英国生活五年后申请永久居民身份，获得定居身份12个月后可以申请英国国籍。国安法实施一年多以来，港人移民浪潮还在持续。
 
-* * *
+参考链接：
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+- [英国BNO签证1月31日起生效 北京、港府称“不再承认”BNO护照](https://www.bbc.com/zhongwen/simp/uk-55851549)
+- [近9万人申请BNO签证 超过8成人已获批](https://www.voachinese.com/a/almost-90-000-have-applied-for-bno-visa-with-over-80-approved-20211126/6329482.html)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-10.jpg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+总编：木白
+编辑：木白
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
 
  
 

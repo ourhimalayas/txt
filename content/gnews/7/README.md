@@ -2,69 +2,50 @@
 ---
 
 
-## 临床研究证明 接种疫苗会导致患心脏病风险显著增加
-` 温哥华扬帆农场 Michael.Tonny` [轉載自GNews](https://gnews.org/zh-hans/1705941/)
+## 前职业球员呼吁“调查”足球运动员在比赛时突然倒地事件
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1705995/)
 
-![加拿大温哥华扬帆农场  Michael.Tonny](https://assets.gnews.org/wp-content/uploads/2021/11/michael-3-1.jpg)加拿大温哥华扬帆农场 Michael.Tonny
-著名心脏病学家Steven Gundry博士在美国心脏协会2021年度科学会议上提交的一份临床研究报告称，接种Pfizer和Moderna使用mRNA技术开发的Covid-19（CCP病毒）疫苗患急性冠状动脉综合症 (ACS)的风险显著增加。
-![mRNA Covid-19 vaccines by Pfizer and Moderna](https://assets.gnews.org/wp-content/uploads/2021/11/mRNA-vaccine-coronary-Image-3.png)mRNA Covid-19 vaccines by Pfizer and Moderna
-该报告同时发表在2021年11月8日出版的《Circulation》杂志第144期上，标题为：《[Abstract 10712: Mrna COVID Vaccines Dramatically Increase Endothelial Inflammatory Markers and ACS Risk as Measured by the PULS Cardiac Test: a Warning](https://www.ahajournals.org/doi/10.1161/circ.144.suppl_1.10712)》。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/F5704625-D066-4DE3-B0AF-C208F69A774D_w1023_r1_s-2.jpg)谢菲尔德联队中场约翰·弗莱克 网络图片
+一名前英超职业足球运动员就昨晚比赛中一名足球运动员突然倒下事件，要求进行调查。
 
-[Steven Gundry](https://drgundry.com/)，医学博士，著名心脏病专家、医学研究员、《New York Times》畅销书作者。在他40年的医学生涯中，进行共10,000多次心脏手术。目前，Steven Gundry博士就职于加利福尼亚州棕榈泉市和圣巴巴拉市（Palm Springs and Santa Barbara, CA）的医学康复中心（Center for Restorative Medicine）和国际心肺研究所（International Heart & Lung Institute）。
+谢菲尔德联队中场约翰·弗莱克在对雷丁的比赛中突然摔倒在地，在接受了长时间的治疗后，不得不戴上氧气面罩被抬上担架。
 
-PULS心脏测试（PULS Cardiac Test）是通过测量患急性冠状动脉综合症(Acute Coronary Syndrome，ACS)的几种蛋白质生物标志物指标，预测5年内被测试者患ACS的风险评分。
+这名球员成为最近几个月中突然倒地的足球运动员和其他顶级运动员中的又一个不幸者。
 
-这次[Steven Gundry](https://drgundry.com/)博士的研究是基于一组由男女比例为 1:1的566名患者参与的预防心脏病学实验（Preventive Cardiology Practice），这些患者过去一直在接受PULS心脏测试。
+正如我们之前强调的那样，德国主要报纸《柏林日报》最近发表了一份报告，试图回答为什么“最近出现了异常倒地的大量的职业和业余足球运动员”。
 
-Steven Gundry博士把接种Pfizer和Moderna的mRNA疫苗后2至10周的参与试验者PLUS心脏测试结果与接种疫苗前3〜5个月前的PLUS心脏测试结果比较。
+文章列举了近期大量足球运动员在场上出现心脏问题或昏倒，甚至导致死亡的案例。
 
-这次临床测试的结果表明，接种mRNA疫苗后，被测试者患ACS的几种蛋白质生物标志物显著增加。
+该名单包括巴塞罗那的塞尔吉奥·阿奎罗，他在上个月巴塞罗那与阿拉维斯的西甲比赛中出现呼吸困难。尽管俱乐部否认了阿圭罗即将退役的传闻，但他肯定会缺席数月之久。
 
-标志物（Baseline）IL-16从高于标准的35=/-20 增加到高于标准的82 =/- 75；sFas从高于标准的 22+/-15增加到高于标准的46=/-24；肝细胞生长因子（Hepatocyte Growth Factor）从高于标准的42+/-12增加到高于标准的 86+/-31。
+其他职业运动员最近也出现了类似的健康问题，包括24岁的斯洛伐克曲棍球运动员鲍里斯·萨德基（Boris Sádecky），他在上个月的一场比赛中在冰上摔倒后不幸身亡。
 
-这些结果表明，接种mRNA疫苗后，被测试者5年内患ACS的风险从11%增加到25%。同时，在接种第二针mRNA疫苗后，这些指标变化至少会持续2.5年。
+前英格兰和南安普顿球员马特·勒蒂西耶回应了弗莱克摔倒的消息，呼吁进行必要的调查。
 
-该研究得出的结论是，mRNA 疫苗显着增加了心肌内皮（endothelium）和T细胞浸润的炎症（T cell infiltration of cardiac muscle），并且解释了疫苗接种后血栓形成、心肌病和其他血管事件增加的临床试验结果。
+这位前英超球星在推特上写道：“在进行调查之前，还有多少运动员要倒在球场上。”
 
-2021年11月26日，[在GBN的一个直播节目](https://twitter.com/GBNEWS/status/1463926037889396736?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1463926037889396736%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.opindia.com%2F2021%2F11%2Fmrna-covid-19-vaccines-increase-possibility-of-coronary-diseases-study%2F)中，Asem Malhotra博士证实，英国著名机构心脏病学系得到了与Steven Gundry博士研究结果相似的结论。
+与此同时，根据Yaffa Shir-Raz博士的一份报告，“2021年国际足联球员的心脏猝死增加了5倍”。
 
-Asem Malhotra博士透露，英国著名机构心脏病学系的心脏病学研究员告诉他，该部门所做的研究也发现了类似的结果。英国心脏病学界的统计信息显示，（自开始接种COVID疫苗后，）该国心脏病相关死亡人数大幅增加，他们已经从成像研究（imaging studies）中发现了冠状动脉炎症（inflammation of coronary arteries）与mRNA疫苗之间的联系。
-![Dr Aseem Malhotra reveals a cardiology researcher found similar results to a new report showing an increase in risk of heart attack following the mRNA COVID vaccine.](https://assets.gnews.org/wp-content/uploads/2021/11/YghiwqVtmUwi-ri0.jpg)Dr Aseem Malhotra reveals a cardiology researcher found similar results to a new report showing an increase in risk of heart attack following the mRNA COVID vaccine.
-根据VAERS的报告，截止到2021年11月12日，VAERS已收到894,143份COVID疫苗不良事件报告，而自1990年来，VAERS共收到1,742,488份疫苗不良事件报告，也就是说，COVID疫苗事件报告占31年来VAERS收到的所有疫苗不良事件报告的51.3%。
+个人评论：
 
-其中，COVID疫苗致死报告18,853份，而31年来VAERS共收到的所有疫苗致死报告为27,951份，也就是说，COVID疫苗至死报告占67.5%。
+全球的新冠疫苗灾难，开始露出了狰狞面孔，开始席卷职业体育圈，主流媒体至今没有详细报道和剖析，为什么众多处于身体状态巅峰的职业运动员会突然血栓，脑梗，呼吸困难。
 
-根据《Health Impact News》编辑Brian Shilhavy的分析，2021年因接种COVID疫苗造成的心肌或心包炎两种心脏病例，是过去30年其它疫苗造成的心肌或心包炎两种心脏病例总和的10.8倍，是过去30年平均数的323.95倍。
+世人一次次的用生命在发出警示：疫苗灾难是CCP导致的人祸，威胁着全人类，我们希望随着爆料革命传播真相，终结这次灾难，不再打疫苗，并最终终结中共这个人类历史上最大的邪恶毒瘤。
 
-[opindia.com](https://www.opindia.com/)曾在2021年4月12日《[Pfizer wanted Brazil, Argentina to put military bases, Federal reserve as collateral: Why India kept Pfizer away and how the usual suspects are wrong](https://www.opindia.com/2021/04/why-india-rejected-pfizer-covid-19-vaccine-emergency-use-bullying-brazil-argentina-trials/)》中报道，巴西、阿根廷等多个拉美国家指控，Pfizer要求这些国家抵押主权资产，包括军事基地、国家资产、海外资产等，对其因受疫苗的任何不利影响，疏忽、欺诈或恶意而被当地公民提起的民事诉讼案件提供主权豁免抵押。
+原文链接：
 
-COVID疫苗究竟是不是毒药，越来越多的良心科学家，正在向公众展示更多的科学结论。
+[Former Pro Calls For “Investigation” After Another Football Player Suddenly Collapses](https://www.infowars.com/posts/former-pro-calls-for-investigation-after-another-football-player-suddenly-collapses/)
 
-停止杀戮，停止毒疫苗！
+* * *
 
-参考资料：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
-[mRNA Covid-19 vaccines by Pfizer and Moderna have serious side effects, shows study: How India may have saved itself from disaster](https://www.opindia.com/2021/11/mrna-covid-19-vaccines-increase-possibility-of-coronary-diseases-study/)
 
-[Pfizer wanted Brazil, Argentina to put military bases, Federal reserve as collateral: Why India kept Pfizer away and how the usual suspects are wrong](https://www.opindia.com/2021/04/why-india-rejected-pfizer-covid-19-vaccine-emergency-use-bullying-brazil-argentina-trials/)
+编辑：【英国伦敦喜庄园编辑部】
 
-[Pfizer wants waiver of liabilities due to possible adverse effect of its vaccine in India, won’t transfer technology for local production](https://www.opindia.com/2021/05/pfizer-wants-waiver-against-future-adverse-effects-of-its-vaccine-in-india/)
-
-[Pfizer wanted Brazil, Argentina to put military bases, Federal reserve as collateral: Why India kept Pfizer away and how the usual suspects are wrong](https://www.opindia.com/2021/04/why-india-rejected-pfizer-covid-19-vaccine-emergency-use-bullying-brazil-argentina-trials/)
-
-[Government’s Own Data Proves COVID-19 Shots Are Causing Blood Clots, Heart Disease, and DEATH](https://healthimpactnews.com/2021/governments-own-data-proves-covid-19-shots-are-causing-blood-clots-heart-disease-and-death/)
-
-[The OpenVAERS Project](https://openvaers.com/)
-
-[Understanding mRNA COVID-19 Vaccines](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/different-vaccines/mrna.html)
-
-[The Dr. Gundry Podcast](https://drgundry.com/)
-
-[mRNA COVID-19 Vaccination Increases Endothelial Inflammatory Markers and ACS Risk](https://www.coronavirustoday.com/2021/11/22/mrna-covid-19-vaccination-increases-endothelial-inflammatory-markers-and-acs-risk)
-
-[Abstract 10712: Mrna COVID Vaccines Dramatically Increase Endothelial Inflammatory Markers and ACS Risk as Measured by the PULS Cardiac Test: a Warning](https://www.ahajournals.org/doi/10.1161/circ.144.suppl_1.10712)
-
-编辑/发稿：Michael.Tonny
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 
