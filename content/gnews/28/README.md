@@ -2,90 +2,32 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“疫苗”（二十三）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1703992/)
+## 美国三大汽车制造商放弃疫苗强制要求
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704084/)
 
-**整理：BENJ1
-编辑：Candy**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-204.png)图片来源：墨尔本雅典娜农场设计组
-**往期回顾：**
-[文·贵天成——文贵先生谈“疫苗”（一）](https://gnews.org/zh-hans/1645800/)
-[文·贵天成——文贵先生谈“疫苗”（二）](https://gnews.org/zh-hans/1645804/)
-[文·贵天成——文贵先生谈“疫苗”（三）](https://gnews.org/zh-hans/1668258/)
-[文·贵天成——文贵先生谈“疫苗”（四）](https://gnews.org/zh-hans/1668474/)
-[文·贵天成——文贵先生谈“疫苗”（五）](https://gnews.org/zh-hans/1668591/)
-[文·贵天成——文贵先生谈“疫苗”（六）](https://gnews.org/zh-hans/1670496/)
-[文·贵天成——文贵先生谈“疫苗”（七）](https://gnews.org/zh-hans/1670125/)
-[文·贵天成——文贵先生谈“疫苗”（八）](https://gnews.org/zh-hans/1684720/)
-[文·贵天成——文贵先生谈“疫苗”（九）](https://gnews.org/zh-hans/1684707/)
-[文·贵天成——文贵先生谈“疫苗”（十一）](https://gnews.org/zh-hans/1689446/)
-[文·贵天成——文贵先生谈“疫苗”（十二）](https://gnews.org/zh-hans/1689743/)
-[文·贵天成——文贵先生谈“疫苗”（十三）](https://gnews.org/zh-hans/1694796/)
-[文·贵天成——文贵先生谈“疫苗”（十四）](https://gnews.org/zh-hans/1695670/)
-[文·贵天成——文贵先生谈“疫苗”（十五）](https://gnews.org/zh-hans/1695638/)
-[文·贵天成——文贵先生谈“疫苗”（十六）](https://gnews.org/zh-hans/1695695/)
-[文·贵天成——文贵先生谈“疫苗”（十七）](http://xn--%28%29-zea0323aa2ch5115gefgnjf9stngzn6jfa5990db3b3w9gbu8agxefa/)
-[文·贵天成——文贵先生谈“疫苗”（十八）](http://xn--%28%29-zea0323aa2ch8081hdja45n9oungzn6jfa5990db3b3w9gbu8agxefa/)
-[文·贵天成——文贵先生谈“疫苗”（十九）](http://xn--%28%29-zea0323aa2ch5385g8qfnof9stngzn6jfa5990db3b3w9gbu8agxefa/)
-[文·贵天成——文贵先生谈“疫苗”（二十）](http://xn--%28%29-zea0323aa2ch1126g5efoof8stngzn6jfa5990db3b3w9gbu8agxefa/)
-[文·贵天成——文贵先生谈“疫苗”（二十一）](http://xn--%28%29-zea0323aa2ch1905g89a55o32fgovrj1azykfa7894db7bg84hjrwb15efa/)
-[文·贵天成——文贵先生谈“疫苗”（二十二）](http://文·贵天成——文贵先生谈“疫苗”（二十二）)
+作者：美东香草山农场  文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月22日，福特汽车、通用汽车和斯泰兰特公司与汽车工人联合工会达成一致，放弃将强制性疫苗接种作为就业的条件。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-29-上午9.01.32.png)
+该工会发布声明称，工人的疫苗接种状况将保持隐私和自愿披露的政策。每家公司都将向员工提供额外的沟通，说明如何、在何处以及何时报告他们的疫苗接种状况。同时，允许接受个人原因——比如健康问题或宗教信仰，作为疫苗接种豁免的请求。
 
-**郭文贵先生2021年8月21日直播**：
+参考链接：
+1）[Big Three US Automakers Agree To Not Mandate Vaccines For UAW Union Members](https://www.zerohedge.com/political/big-three-us-automakers-agree-not-mandate-vaccines-uaw-union-members)
+2）[STATEMENT OF THE COVID-19 JOINT TASK REGARDING VOLUNTARY VACCINATION STATUS DISCLOSURE; TASK FORCE CONTINUES TO STRONGLY RECOMMEND VACCINATIONS, BOOSTERS](https://uaw.org/statement-covid-19-joint-task-regarding-voluntary-vaccination-status-disclosure-task-force-continues-strongly-recommend-vaccinations-boosters/amp/)
 
-所以人类现在最易什么？——最易恐惧。最易恐惧，绝大多数（人）。你还真别怪人家这些左派，还有那疯子，很多人打(疫苗)的各种理由，我可以告诉你其中超过(百分之)六、七十是对死亡的恐惧，不想死，有侥幸，因为你没有信仰，因为你无知。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-记住：没有信仰、没有宗教，如果另外再加上一个贪婪、懦弱再加上愚蠢，蛇妖闫、路大脑袋、九指妖绝对是这号人；台湾的卖台贼，香港的卖港贼都是这号人——没宗教、没信仰、懦弱、自私加贪婪、愚蠢，完了，完了，完了，完了！你去看你自己，你看你家人，太多人就是这个结局。这部分人占多少？——60%-70%。
+总编：Jack Li文阳
+编辑：Ivy001
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-真别怪人家多邪恶，犹太人聪不聪明？犹太人有没有信仰？那是制造信仰的地方，安拉、上帝、耶稣、天主都是来自于耶路撒冷！(以色列是)最高打疫苗的国家，为什么知道吗？他有信仰，但是他这块懦弱、怕死、愚蠢、贪婪，贪婪！贪婪！你们都得死，我能活着，这种愚蠢到家的思想。宗教，过去在以色列，宗教可以（被）99.9%（的人信任）；现在可没有了，绝对没有那么信任了。不信上帝了，信钱、信实力，信拳头了。
-
-今天从以色列、欧洲这些官员，从美国你可以看到：最(多)打疫苗的不是穷人，很多是官员、知识份子、文化人，这些人更怕死！怕死、没有信仰、愚蠢、被媒体洗脑、和平时间太长，导致人们对正确事物的判断完全基于善意。基于善意的判断、没有对恶人的一个警惕和小心，一定是人类的灾难。
-
-就像德国的犹太人永远不会相信德国人，永远不会相信这些独裁，因为他受过苦了。但是中国人很爱共产党，台湾人民很爱共产党，国民党都被打到台湾了，现在还相信共产党呢。
-
-所以我要告诉大家，基于以上，你们还相信打疫苗和被打疫苗这两个逻辑当中就一股力量在推进吗？是一个组织在推进吗？——绝对不是。
-
-我可以告诉大家，我谈我的观点，我不代表任何人。疫苗这个事情它是一个绝对是把共产党灭掉，把世界邪恶灭掉，上天给我们最大的礼物。它不这么折腾，人类不会去灭共产党，也不会去灭邪恶的力量。
-
-我们新中国联邦是一个重大的推动的力量。只要坚持住，自己别被任何诱惑，别被死亡给吓趴下，我们就是人类最正义的力量。
-
-正道主义来自于正义力量，拯救人类、拯救地球。一个这样的辉煌历史以及未来，谁不认咱呢？
-
-我问你们：“七哥要成立什么？”你们说成这成那，都不是。我要成立的你们都没说对，这个悬念咱留着，你们会明白。
-
-我们的正道主义走向何方？就来自于病毒、疫苗和灭共事业，当然也灭掉世界上最黑暗的力量。这是老天给我们最大的机会，如果你没看清这个机会，你没必要听我们直播，你没必要听爆料革命，赶快打疫苗去，找共产党去，是不是？多好啊！
-
-第二个我要告诉大家，疫苗一定会停的，而且不会太长时间。疫苗这个事情，给人强制打和打完有一个最大的问题，它打完以后的生理反应不是咱说了算，它也不是那些媒体说了算。
-
-它越疯，就是它过去的成功在于它能控制百分之八、九十，百分之百的媒体；相反的，死也会死在这里。就是你控制这些媒体，助长了更多的（人）打疫苗，（将）激起了更多人的愤慨。
-
-当这件事情爆发的时候，它是作用力与反作用力的关系，推动力与反推动力的关系，大气层和推动力的关系，一定是逆反。
-
-这个时候，战友们，真的是减减肥、健健身在家活着。不打疫苗是你人生最大的赢家，别投G系列别想着……我就给你的一个建议——活着！
-
-别穿那么好看了你们几个！你看我们的Rachel一天换那么多衣裳、换好多眼镜、打着蓝眼影。小福利、小Seven从来不变颜色，你学学人家神奇女侠多朴实啊，横杠儿是吧，全是横杠体桖是吧。政清老换西装，你看看现在一弄就Fashion了。小王子、我们罗伊，你看大牛穿着多么台湾绅士啊，小马甲是吧，还英式马甲。
-
-你别想这事了，穿个背心、裤衩子活着！别打疫苗你就是赢家。 为什么？刚才我告诉你，它这种生理反应不要等三年，你们别以为就三年，大胡子医生说三年死三分之一。
-
-不用等三年，到今年年底、明年年初，你记住我的话：全人类在面临疫苗的所有的问题，第一个，死人的问题。必须有人说话，老死人你怎么办呢？最铁的证据就是死人。医院不够用，死人不够用，火葬场也不够用。
-
-王岐山家，我觉得他到外国就唯一没投火葬场。没找到证据呀，人家投火葬场、骨灰盒生意也是对的，墓地是吧？这是最好的生意。
-
-另外一个，兄弟姐妹们，当疫苗今年年底大量的死人，不可抗拒的负面现象出来的时候，有两件事发生了——追责，追责呀！老百姓追责、追疫苗，最后一定是被追责者推给共产党，一定推给背后的黑暗势力。
-
-这个反作用，真的，欧洲、美国绝大多数都是牺牲品，最后发现共产党最后也是牺牲品，它是执行者，它是最大的魔，但是原创不是它，都得找共产党算账。
-
-你会发现那些最后的运作者、战略制定这次病毒和疫苗的制定者、利益共同体一定会被消失，共产党一定会被消失。
-
-***发布：Candy***
-
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

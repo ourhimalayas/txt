@@ -2,26 +2,56 @@
 ---
 
 
-## 又一与中共有千丝万缕联系的美国官员可能会被任重职
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1703825/)
+## 美共和党特尼议员：中共国比80年代的苏联更糟糕
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1703890/)
 
-撰稿：西枫westca
+作者：纽约香草山农场 – 四季
 
-校对：Ermat
-![](https://assets.gnews.org/wp-content/uploads/2021/11/unnamed-17.jpg)图片来源：网络截屏
-《国家脉动》近日又挖出了被拜登政府提名的美联储副主席莱尔·布雷纳德（Lael Brainard） 与中共的裙带关系。在布雷纳德被提名后，所有媒体都忽视了一个问题，即她与中共团体有着长期的联系。
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
 
-布雷纳德是一位经济学家，作为2010年至2013年财政部的最高外交官，她监督过八份报告，这些报告都清除了中共有据可查的货币操纵做法，而从未批评过这些决定。在奥巴马政府任职期间她有争议地拒绝将中共国列为汇率操纵国。自2014年以来布雷纳德一直在美联储理事会任职。
 
-除了未能让中共对其财政滥用行为负责之外，布雷纳德还嫁给了库尔特·坎贝尔，其被称为拜登的“亚洲沙皇”，并且他是国家安全委员会的高级官员。坎贝尔与中共的外联部门和宣传机构关系密切，在何厚铧的华信中国能源公司主办的一次会议，他说：“美国在努力建立美中之间持久和稳定的关系方面有郑重的承诺，”而该会议的领导层被美国司法部起诉，其罪名是“贿赂高级官员以获得商业利益”。
 
-坎贝尔还是由孔子学院总部主办的全国汉语大会的荣誉嘉宾，而孔子学院被中共认为是“中共国海外宣传机构的重要组成部分”。
 
-在私营部门，坎贝尔曾担任亚洲集团的主席和首席执行官，该集团帮助企业在中共国经营，包括由中国共产党资助的项目。
 
-我们看到在拜登政府中，与中共有密切联系的官员很多，上至国会议长、议员、下至各个部门的负责官员。在与中共国的这场战争中，来自美国政府内部的压力也是与日俱增。
+纽约共和党人克劳迪娅·特尼（Claudia Tenney）议员11月26日在Newsmax节目中说，中共国“比20世纪80年代的苏联更糟糕”，美国必须站出来反对中共国在台湾和其他问题上的侵略行为。
 
-**新闻来源：**[Biden’s New Federal Reserve Vice Chair is Married to his ‘Asia Tsar’ who Headlined a Conference For a Hunter Biden-Linked Chinese Foreign Influence Group. (thenationalpulse.com)](https://thenationalpulse.com/news/biden-fed-chair-ties-to-ccp/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1547-1.jpg)图片来源：Newsmax
+
+她在Newsmax的“国家报告”上说，作为美国人，我们需要站起来，认识到中共不仅是美国的敌人，而且是世界的敌人，是世界的规范和基于规则秩序的敌人。
+
+就在她发表评论之际，一个由五名众议院代表组成的两党小组于11月25日前往台湾，会见台湾总统和其他领导人，并在台湾面临来自中共国的压力时对其表示支持。
+
+与此同时，台湾国防部表示，台湾空军周日再次出动，警告27架进入台湾防空区的中共国飞机，同时部署导弹系统以监视它们。这是敏感的台湾海峡两岸紧张局势的最新升级。
+
+**参考阅读：**
+
+1. [Rep. Tenney to Newsmax: China ‘Worse Than the Soviet Union’ of the 1980s | Newsmax.com](https://www.newsmax.com/newsmax-tv/claudia-tenney-china-taiwan-russia/2021/11/26/id/1046324/)
+2. [Taiwan Reports 27 Chinese Air Force Planes in Air Defense Zone | Newsmax.com](https://www.newsmax.com/newsfront/taiwan-china-air-defense-zone-planes/2021/11/28/id/1046418/)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-Calendar.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场**** ****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场**** ****GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场**** ****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场**** ****YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 ****Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/logo-5.jpg)
+
+
+
+
 
  
 

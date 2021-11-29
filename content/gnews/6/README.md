@@ -2,21 +2,24 @@
 ---
 
 
-## 雅典娜时报-第127期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1704160/)
+## “无需疫苗接种”成为美国雇主最新招聘法宝
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1704239/)
 
-#### **《雅典娜时报》汇聚全球新闻时事**
+采編，编译撰稿：文文-自由法兰西
+![](https://assets.gnews.org/wp-content/uploads/2021/11/03-picture-1.jpg)
+据美国媒体《CNN》11月16日报道，除了利用高薪福利来吸引紧缺的劳动力外，企业雇主们如今想出了新的制胜法宝：即在招聘广告中加入一条：“无需‘新冠病毒’疫苗接种”。
 
-#### 编辑：精靈藍
-排版：小蚂蚁614
-![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_29.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_30.png)
-***发布：小红帽***
+报道称，仅此一项附加信息，招聘职位的申请人数就有可能十数倍的增长。为了避免疫苗灾难，许多人被迫改行。一位前【美国宇航局】数据分析师表示，只要雇主尊重其价值观和自由选择的权利，他宁愿意改行当水管工或电工也不会接种该疫苗。
 
-**更多资讯，请关注：**
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+据悉，在目前传统的招聘网站中，此类带有“无需疫苗接种”信息的招聘广告所占比例并不太高。以德克萨斯州为例，该州的拉伯克市于8月推出了名为《拒绝强制接种》的在线招聘网站。现在，该网站已经有超过225万次访问和至少2万份的上传求职简历。
+
+（以上内容仅代表原文信息和作者个人观点）
+
+校对编辑：硫酸羟氯喹64
+
+发稿：苦尽甜来 (文來）
+
+[原文链接](https://www.cnn.com/2021/11/16/economy/no-vaccine-required-job-listings/index.html)
 
  
 

@@ -2,13 +2,11 @@
 ---
 
 
-## 东京政府正式肯定“伊维菌素”治疗中共病毒的功效
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704126/)
+## 11/28/2021 文贵直播：习近平在总参工作时就认为拿下台湾是中共的历史责任
+` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1704211/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11._29-scaled.jpg)
-*编辑：东京樱花团/简报小组
-发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+秘密翻译组-北美组
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

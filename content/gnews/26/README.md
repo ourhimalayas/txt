@@ -2,44 +2,35 @@
 ---
 
 
-## 悉尼机场发现两例最新变种病毒感染者
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1704035/)
+## 日本约70家企业将联合测试数字货币的运行
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704086/)
 
-**【雅典娜快讯】，紧贴时事脉搏**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Untitled9999999.png)图片来源：FT
-**编译：**月映万川
-**编辑：**翼族
+作者：飞虹
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月24日，日本加密货币交易所德科瑞特的首席执行官在一次新闻发布会上表示，一个由其牵头的大约70家日本企业组成的联盟，计划在未来数月内开始测试一种基于日元的数字货币，并预计在2022财年推出。这种数字货币暂时被命名为“DCJPY”，将由银行存款支持，并使用一个共同平台来加快企业之间的大规模资金转移和结算。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-29-上午9.02.03.png)
+该联盟的成员包括日本三大金融集团三菱日联金融集团、瑞穗金融集团、三井住友金融集团，日本邮政银行、经纪公司和保险公司等其他贷款机构，以及日本电信电话 、日本关西电力等非金融公司。 一些公司将参与试验，以衡量这种货币在从能源到零售的各行业使用情况。
 
-新南威尔士州卫生部周日下午发布了简报，更新了目前关于南非变种病毒的最新进展。两名来自于南非的乘客于周六晚上抵达悉尼机场，在对他们进行新冠测试后，周日下午报告为阳性感染者。通过基因测序，这两名乘客感染的是最新型的南非变种病毒。
+该联盟自2020年以来一直定期开会，研究如何为数字支付建立一个共同的结算基础设施。当前，日本央行也正在进行有关央行数字货币的测试，这个企业联盟的举动可能对央行的进度有所影响。
 
-这两名乘客都已经完全接种了两剂疫苗，并为无症状感染者。他们目前被隔离在特殊医疗中心。
+参考链接：
+1）[https://gettr.com/post/phtrcjea10](https://gettr.com/post/phtrcjea10)
+2）[日本约70家企业将在未来数月联合测试数字货币并在2022财年推出](https://cn.reuters.com/article/japan-digital-currency-testing-plan-1124-idCNKBS2I90KV?il=0)
+3）[日本拟明年推出数字货币？数十家企业将在未来几月开始测试](https://baijiahao.baidu.com/s?id=1717308388170451219&amp;wfr=spider&amp;for=pc)
 
-与这两名阳性感染者同机的另外12名乘客，目前也被隔离在特殊医护中心。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-另外，有260名乘客和机组成员也被认为是密切接触者，并被要求进行隔离。
+总编：文徬
+编辑：Lakeman(文仁)
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-由于新变种病毒的出现，澳大利亚总理斯考特·莫里森一改周日早间的态度，于昨晚宣布将和其它十几个国家一起，对一些国家和地区关闭国境。在新变种病毒发现后，澳大利亚快速关闭了与非洲一些国家的国境。同时，澳大利亚北领地也在等待最新的测试结果来确认最新一例的新冠患者是否感染了南非变种毒株。
-
-澳大利亚是继英国、德国、南非、博茨瓦纳、比利时、香港、以色列后，又一确认发现奥密克戎病毒变种的国家。
-
-澳大利亚总理与新南威尔士州卫生部长都强调，对于新的变种目前还有太多的未知。
-
-根据初步证据显示，奥密克戎病毒更易传播，并可以在完全疫苗接种者之间传播。
-
-联邦卫生部长格雷格·亨特却对新变种病毒表示出了谨慎的乐观。他说，“目前没有证据表明该变种病毒在住院率、重症率、或致死率上有重大变化。”
-
-目前，有关部门正在寻找近期从非洲9国返回的100名未进行隔离的澳大利亚人。这些人将被要求进行测试，并立即隔离14天。
-
-**原文链接：** [Two returned travellers from southern Africa test positive to omicron Covid variant in NSW](https://www.heraldsun.com.au/news/national/two-returned-travellers-from-southern-africa-test-positive-to-covid-in-nsw-sparking-fears-it-is-the-new-variant/news-story/ef65f91d41854ba29f830fa3589a2363)
-
-*发布：翼族*
-
-**更多资讯，请关注：
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
