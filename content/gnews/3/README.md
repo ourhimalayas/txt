@@ -2,31 +2,40 @@
 ---
 
 
-## 阿富汗人道灾难 媒体再次失声
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705624/)
+## 伊利诺伊州面临退休债务危机
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705753/)
 
-作者：波士顿五月花 – 葛朗台太太
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-据郭文贵先生11月28日大直播的爆料，人道灾难正在阿富汗发生。2300-2500万人口正在面临粮食危机，民间甚至已经出现，使用处女兑换粮食的现象。每天都有阿富汗人因为人道主义灾难而死去，官方承认已经有十几万人死亡。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-29-下午11.02.17.png)
-所有这些灾难都是源自于中共扶植的塔利班政权。 文贵先生在11月17日的直播中还预计，这个冬天，将有一百到三百万阿富汗人因为人道主义灾难而死亡。
-正在阿富汗发生的人道主义危机，被主流媒体选择性遗忘。
+作者： 纽约香草山健身部 – Ivy001
 
-参考链接：[2021年11月28日 文贵大直播](https://gtv.org/video/id=61a3828b44c1fe7a6c3aaf29)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+11月21日，美国零对冲报导, 2021年，伊利诺伊州的每个家庭平均要背负高达 11万 美元的政府雇员退休金债务，在2019 年，伊利诺伊州每个家庭的负担只有 9万美元。截至 2020 年 6 月 30 日，美国最大的养老基金缺口就在伊利诺伊州，缺口总额达 3130 亿美元。伊利诺伊州在退休债务方面也是全美最高的，已增加到 5千亿美元。不断增长的债务表示，超过 100 万伊利诺伊州政府工作人员和退休人员将会失去退休保障。根据皮尤慈善信托基金的数据，伊利诺伊州的州级养老金只有 39% 的资金到位，居全美最低。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/8-36.jpg)
+
+此前，文贵先生多次在大直播里分析，中共国房地产业的雪崩式爆雷和债务违约，必将对美国的养老保险金和退休金产生巨大的冲击。伊利诺伊州债台高筑，是美国退休金债务危机的缩影。
+
+参考链接：
+
+- [伊利诺伊州面临退休债务危机](https://gettr.com/post/phw727b8f9)
+- [Illinois Pension Shortfall Surpasses $500 Billion, Average Debt Burden Now $110,000 Per Household](https://www.zerohedge.com/markets/illinois-pension-shortfall-surpasses-500-billion-average-debt-burden-now-110000-household)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-10.jpg)
 
 总编：Jack Li文阳
-编辑：Ivy001
-校正/发稿：呼吸的雾霾（文小呼吸）
+编辑：Jack Li文阳
+校正/发稿：海阔天空1
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

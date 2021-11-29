@@ -2,27 +2,42 @@
 ---
 
 
-## 中共国已有380家房产开发商破产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1705258/)
+## 应对Omicron新变种病毒，世卫组织却呼吁保持边境开放
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1705355/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-136.jpg)
-[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fwww.fangchanjiaoyi.com%2Fuploads%2Fallimg%2F210624%2F2-2106241K31YZ.jpg&amp;imgrefurl=http%3A%2F%2Fwww.fangchanjiaoyi.com%2Ffg%2F881.html&amp;tbnid=oStKSbg6NKBm-M&amp;vet=12ahUKEwiwkLChwb30AhUdAjQIHbjbDdoQMygAegUIARCYAQ..i&amp;docid=lz7QLZkOy2AUfM&amp;w=507&amp;h=240&amp;q=%E5%BC%80%E5%8F%91%E5%95%86%E7%A0%B4%E4%BA%A7&amp;ved=2ahUKEwiwkLChwb30AhUdAjQIHbjbDdoQMygAegUIARCYAQ)
+翻译: Lish
+编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/11/222-6.jpg)图片来源：Fox13
+**新闻评论：**
 
-11月29网易新闻报道，据人民法院公告网显示，截止到11月26日，中共国已有380家开发商破产。进入下半年以来，多个百强房企也罕见出现了“到期债务未及时偿还”、“债务展期”等情况。另据中原地产统计数据显示，过去五年，中共国有近2700家开发商宣布破产。
+11月26日，世卫组织表示，根据最新数据分析，非洲只有27%的卫生工作者完全接种新冠疫苗，处于抗疫第一线的大部分人员没有得到保护。事实上，全球疫情控制得最好的地区就是非洲，这完全得益于疫苗接种率仅为6%。
 
-几千家开发商宣布破产，也未见房价有明显的下降趋势，不禁想起了近百年之前的美国农场主“倒牛奶”的现象：20世纪30年代大萧条时期，乳制品产量严重过剩，大量牛奶滞销。于是，农场主为了保证利润，把大量卖不掉的牛奶直接倒进密西西比河，也不免费给穷人喝。
+然而，当新变种病毒Omicron从南部非洲传播到各国，世卫组织一反常态要求各国保持边境开发，理由是为“人民生计”。在2020年3月的一波新冠病毒大爆发时，谭德塞可是大声疾呼各国保持封锁遏制病毒。那么，这次世卫组织是否又另有所图谋？
 
-今天发生在房地产行业的开发商宁愿破产也不降价卖房自救，与“奶农倒牛奶”是一丘之貉——现如今的中共国遍地是房子，开发商又面临各种资金压力，降价卖房一方面可以拉动回款填补资金缺口，完成自救。
+**翻译正文：**
 
-近百年前的“倒牛奶”现象，正真实地在现如今的房地产行业生动上演——农场主“倒牛奶”，是因为产能过剩，没有需求，难以长期储存，运输物流成本太高。这基本上和楼市“倒牛奶”的问题如出一辙，中共国地契都没有哪来的产？没有地契和产权，哪来的房地产？大厦倾倒房380家开发商破产只是刚刚开始。
+11月28日，尽管国际社会对Omicron新变种病毒感到担心，世界卫生组织还是鼓励各国保持边境开放，因为南非谴责全球旅行限制，称之为“毫无道理”。世卫组织说，不选择关闭边界将防止“对人民造成沉重的生计负担”。该组织警告说，如果实施限制，他们（旅客）不应该被定义为“不必要的侵入或侵扰”。
 
-信息来源：[380家房企宁愿破产也不降价，楼市开始“倒牛奶”？](https://3g.163.com/dy/article/GQ08SP7Q0542OBJJ.html?spss=adap_pc)
+“新冠病毒造成了社会的极度分裂”，世卫组织非洲区域主任马西迪索·莫埃提博士说：“只有当我们一起努力寻求解决方案时，我们才能更好地应对这种病毒。”
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1-1.png)
+在南部非洲发现该变种病毒后，多个国家发起了旅行限制。WHO这些评论是对各国应对措施的回应。除南非外，美国也限制了往返其他多个国家的旅行，以应对新的变种病毒。
 
+南非总统西里尔·拉马福萨在周日的讲话中说，在这个阶段不会在国内实施新的限制。他敦促其他国家“紧急”消旅行限制，称这些限制“没有道理”。
+
+参考链接：
+
+1、[Keep borders open despite Covid variants, WHO pleads — RT World News](https://www.rt.com/news/541578-south-africa-travel-omicron-covid/)
+
+2、[非洲仅有四分之一医护人员完全接种新冠疫苗  | 联合国新闻 (un.org)](https://news.un.org/zh/story/2021/11/1095092)
+
+**发布：kk**
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

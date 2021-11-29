@@ -2,28 +2,29 @@
 ---
 
 
-## 日本与欧盟达成共识 协力构架自由开放的印太
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1705424/)
+## 美国颁布优惠政策帮助香港留学生
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705620/)
 
-撰稿：东京樱花团/麗子
-![](https://assets.gnews.org/wp-content/uploads/2021/11/4-74.jpg)
-[图片源:](https://www.hokkoku.co.jp/articles/-/586564)
+作者：日本东京方舟农场 – 幽蘭自得
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+11月26日，美国国土安全部、移民和海关执法局颁布一份联邦公告，为因香港紧急情况，面对严重经济困难的F-1非移民学生提供帮助。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/8-35.jpg)
+该公告称，美国国土安全部将暂停一部分监管要求，以便持F-1签证的香港居民申请就业许可，增加在校期间的工作时间，减少课程负担，同时继续保持F-1非移民学生身份。 该公告宣布的优惠政策自26日起生效，直至2023年2月5日。
 
-岸田文雄首相29日与欧盟主席米歇尔举行了电话会议，鉴于中共国日益增长的霸权主义行为，双方同意进一步推进合作，以实现“自由开放的印太”。
+参考链接：[美国颁布优惠政策帮助香港留学生](https://gnews.org/zh-hans/1703269/)
 
-双方还确认了在数字和网络领域的合作。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-米歇尔先生原定访问日本，但因周围工作人员感染中共病毒而不得不推迟访问。日本首相说：“很遗憾此次来访未能成行。但我非常期待在合适的时候进行面对面交谈。”
+总编/编辑：文真
+校正/发稿：Fei797
 
-日本目前与美国，欧盟都形成了牢固的全方面的合作伙伴关系，牵制中共并歼灭之，指日可待。愿和平的，可以自由呼吸空气的日子早日到来。
-
-信息源:**[「インド太平洋」実現へ協力　日EU首脳](https://news.yahoo.co.jp/articles/98671faced9bad47598efd59309cc9f2bca6ecc8)**
-
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1-1.png)
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

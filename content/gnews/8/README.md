@@ -2,33 +2,40 @@
 ---
 
 
-## 日美将举行2+2会议 保持对中共威慑力
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705570/)
+## 再有27名俄罗斯外交官被美国驱逐出境
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1705693/)
 
-作者：东京樱花团 – 在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒11月28日消息，为保持美日同盟对中共的威慑力，美日两国政府拟定于2022年1月，在美国举行外交和防卫官员出席的2+2会议。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-43.jpg)
-12月份，美日两国政府将就2022年度起，驻日美军的驻留经费达成一致。预计配合2+2会议，双方将会签署特别协定。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/7-1-1.jpg)
-消息人士称，2+2会议美方由国务卿布林肯和国防部长奥斯汀出席，日方由外相林芳正和防卫相岸信夫出席。该会议将再次商讨台湾海峡和平与稳定的重要性，以及为实现朝鲜无核化的合作达成一致。
+#### 作者：日本东京方舟农场 子辰
 
-参考链接：[独家：日美拟明年1月在美举行2+2会议](https://china.kyodonews.net/news/2021/11/556de24884ea-122.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/C41FEDB4-C21B-4368-8528-29A4EB4E818B.jpeg)图片来自网络
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
+据CNA11月28日报道，俄罗斯驻美国大使证实，又有 27 名俄罗斯外交官及其家属被美国驱逐出境，并被限定于明年1 月 30 日前离开美国。
 
-总编：文特
-编辑：飞虹
-校正/发稿：Fei797
+俄罗斯驻美大使阿纳托利·安东诺夫（Anatoly Antonov）11月27日在接受《 Soloviev Live Youtube 》视频采访时称：“我们的外交官正在被驱逐，我们正面临严重的人员短缺问题”。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在此前的8月，安东诺夫曾表示，由于签证到期，美国要求24名俄罗斯外交官在9月初离开美国。
 
+俄罗斯外交部发言人玛丽亚·扎哈罗娃表示，自2016年两国关系恶化以来，已有近100名外交官及其家属被迫离开了美国。截至10月29日，只有近200名俄罗斯外交官在美国工作，其中包括俄罗斯驻联合国代表团的工作人员。
+
+反观另一方面，美国政府上个月表示，经过一系列的被驱逐和限制后，美国驻俄罗斯代表团的工作人员已从2017年初的1200人缩减到120人。
+
+据悉，美国驻莫斯科大使馆今年起停止办理非外交签证，并将俄罗斯人列入可在第三国申请签证的“无家可归者”（Homeless Nationals）名单。
+
+根据美国国务院网站上公布的文件，“无家可归者”并非是指申请者没有“家”，而是指美国没有在这些国家设立领事馆；或因政治局势不稳定导致美国外交官无法审议签证申请。
+
+*新闻链接：*
+
+1. [*https://www.channelnewsasia.com/world/russia-diplomats-leave-us-embassy-expel-visa-2343691*](https://www.channelnewsasia.com/world/russia-diplomats-leave-us-embassy-expel-visa-2343691)
+2. [*https://www.epochtimes.com/gb/21/11/28/n13404354.htm*](https://www.epochtimes.com/gb/21/11/28/n13404354.htm)
+
+
+* * *
+
+*素材采编：子辰*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
 
  
 

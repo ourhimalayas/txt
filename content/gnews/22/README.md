@@ -2,38 +2,34 @@
 ---
 
 
-## 墙内要闻汇编 11月29日
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1705346/)
+## 日美将举行2+2会议 保持对中共威慑力
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705570/)
 
-素材：东京樱花团｜GNEWS组
-![](https://lh3.googleusercontent.com/J05phkDwJR9ZfYUdg_Gsw7bMVZKlXawMsxi28f9wytOCcp5MECJjrJMkBEZidxRBbaF9uSQg0ewJBsJfbZOWcA0UAXoFFoG0C5py6ox3lP8sjh9Bjaf-2rXJTkuET9M-sRcSvT_d)[*图片来源*](https://m1.aboluowang.com/uploadfile/2021/1129/20211129033437980.jpg)
-1、[**隐匿燃料棒破损70根！中国“台山核电厂”吹哨人说实话**](https://www.aboluowang.com/2021/1129/1677489.html)
+作者：东京樱花团 – 在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒11月28日消息，为保持美日同盟对中共的威慑力，美日两国政府拟定于2022年1月，在美国举行外交和防卫官员出席的2+2会议。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-43.jpg)
+12月份，美日两国政府将就2022年度起，驻日美军的驻留经费达成一致。预计配合2+2会议，双方将会签署特别协定。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-1-1.jpg)
+消息人士称，2+2会议美方由国务卿布林肯和国防部长奥斯汀出席，日方由外相林芳正和防卫相岸信夫出席。该会议将再次商讨台湾海峡和平与稳定的重要性，以及为实现朝鲜无核化的合作达成一致。
 
-中国广东台山核电厂在今年6月传出气体外泄的事件，当时中共官方宣称检测指标一切正常，台山核电厂却在7月报告1号机组出现燃料棒破损问题，决定停机检修。如今法国合作方更出现吹哨者爆料，表示台山1号破损的燃料棒高达70多根，已超出合理范围但却未公开通报，让中共隐匿事件再添一桩。
+参考链接：[独家：日美拟明年1月在美举行2+2会议](https://china.kyodonews.net/news/2021/11/556de24884ea-122.html)
 
-2、[**2岁儿子患绝症 云南男子在家设实验室制药**](https://www.aboluowang.com/2021/1129/1677254.html)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Screen-Shot-2021-10-31-at-10.05.40-PM-3.png)
 
-大陆云南省昆明市一名男子在家里设置实验室来研制药物，希望能给罹患罕见疾病的2岁儿子延续生命，因为大陆境内没有治疗这种疾病的药物，而他在疫情下也无法出国寻求疗方。孟克斯氏症候群是一种缺乏铜的遗传性疾病，3岁以下的患者很少能存活。对于大脑和神经系统的发展而言，铜是一种很重要的物质。在获知这种疾病无药可医，而唯一能缓解症状的药物在大陆买不到的情况下，徐伟开始自学和研究如何制药。
+总编：文特
+编辑：飞虹
+校正/发稿：Fei797
 
-3、[**本土确诊病例剧增 内蒙古满洲里急封锁**](https://www.aboluowang.com/2021/1129/1677424.html)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
-11月28日，满洲里市东山街道办事处怡园社区调整为高风险地区，满洲里市南区街道办事处阜城社区调整为中风险地区；29日，通辽市科尔沁区钱家店镇孔家村调整为中风险地区。以上三地均实施封闭管控。11月27日，满洲里对所有离满公路卡口进行管控，所有人员、车辆禁止离满。目前满洲里市航班采取只进不出，预计28日起取消所有航班，铁路列车也将陆续停运。
 
-4、[**中国宝物界大浩劫 央视成帮凶：99.99%被鉴赝品！**](https://www.aboluowang.com/2021/1129/1677233.html)
-
-近20年来中国大陆的宝物鉴定专家群魔乱舞，把中国境内的一些宝物收藏家搞得人仰马翻，造成中国宝物界的大浩劫。一位被抓的所谓“宝物鉴定专家”刘岩表示，大概有99.99%的中国民藏宝物被他们判定为赝品，然后做了打杀的手段。
-
-5、[**大陆保险代理人一年减少逾百万人**](https://www.aboluowang.com/2021/1129/1677499.html)
-
-据大陆《界面新闻》11月28日报道，2020年在册的拥有执业登记的代理制保险销售人员为971.2万人，然而在2021年上半年，保代中介监管信息系统中执业登记的代理制销售人数量下滑至842.8万。不到一年的时间，保险代理人减少近130万人。
-
-6、[**腾讯旗下财付通违法获利二千元被罚278万**](https://www.aboluowang.com/2021/1129/1677479.html)
-
-大陆腾讯旗下财付通支付科技有限公司日前因违法被罚278万元人民币，而其违规仅获利0.2万元。据中共国家外汇管理局深圳市分局11月26日发布的《行政处罚决定书》显示，财付通支付科技有限公司（财付通）存在未按规定报送相关材料，超过登记范围开展外汇业务，未按规定办理售汇业务，未按规定采集必要信息的行为，违反了《支付机构外汇业务管理办法》相关规定。
-
-*编辑：东京樱花团 / 東洋武士
-发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
