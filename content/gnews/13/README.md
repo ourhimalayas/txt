@@ -2,26 +2,34 @@
 ---
 
 
-## G7将召开紧急卫生部长会议，联合应对中共病毒新毒株
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704929/)
+## 全面防疫对策，东京将处于“1级”状态
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704948/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-134.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fru.usembassy.gov%2Fwp-content%2Fuploads%2Fsites%2F138%2Fg7-scaled.jpg&amp;imgrefurl=https%3A%2F%2Fru.usembassy.gov%2Fg7-foreign-ministers-statement-on-the-situation-along-ukraines-borders%2F&amp;tbnid=iLPPudeL3kFPwM&amp;vet=12ahUKEwi0t8qZkr30AhWKtZ4KHdWnCLYQMygCegQIARB8..i&amp;docid=GlOprXXkeXC-aM&amp;w=2560&amp;h=1280&amp;q=G7&amp;ved=2ahUKEwi0t8qZkr30AhWKtZ4KHdWnCLYQMygCegQIARB8#imgrc=iLPPudeL3kFPwM&amp;imgdii=_FJ5aNgLT5sTqM)
-据日本共同社11月29日报道，七国集团（G7）主席国英国政府28日宣布，将于29日召开紧急卫生部长会议，协商应对中共病毒新型变异毒株“奥密克戎”。会议将以在线形式举行。此举展现了G7一致同意加强联合应对的态度。
+撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-11.png)[图片来源](https://finance.gucheng.com/UploadFiles_7830/202111/2021112709225343.jpg)
+东京都中共病毒传染病防治本部最近公布了“全面防疫对策期间的基本应对措施”。12月1日起全面防疫对策期间协同合作—向东京都政府、老人介护保健设施、托儿所等要求。
 
-自非洲南部发现的奥密克戎毒株向欧洲迅速蔓延以来，28日还在加拿大新发现了感染者。
+对应的时间是从12月1日到全市处于“1级”状态（能够确保稳定的普通医疗和应对中共病毒感染的医疗）的期间，请东京市民和企业协同合作进行感染防止。
 
-G7成员国中已有英国、德国、意大利出现感染者，美国和亚洲等地的忧虑也在加剧。紧急会议也可能讨论向疫苗接种率较低的发展中国家提供援助。
+具体来说，对于东京市民，要求
 
-加拿大东部安大略省28日宣布，在首都渥太华发现2例奥密克戎感染者。据称最近都去过尼日利亚。
+▽避免“三密”
 
-奥密克戎毒株或具有较强传染性，世界卫生组织（WHO）28日称尚不清楚是否具有重症化率较高等特性。
+▽确保人与人之间的距离
 
-南非本月24日向WHO报告了奥密克戎毒株。之后获知在欧洲也有蔓延，28日荷兰新确诊13名感染者，法国也发现8例疑似感染例。以色列、香港、澳大利亚等地也出现感染。
+▽戴口罩
+
+▽保持手的卫生
+
+彻底执行基本的感染防止措施，避开拥挤的场所和时间带。
+
+对于老人介护保健设施和托儿所等，要求彻底实施基本的感染防止措施。关于上班通勤，需要推进远程办公。
+
+此外，为了降低元旦前后聚餐的感染风险，2022年12月1日至1月16日，请求合作以确保“聚餐最多8人同桌”（感染防止贯彻检验证书颁发/张贴商店）。
 
 信息来源：
 
-[G7将就新变异毒株召开紧急卫生部长会议](https://china.kyodonews.net/news/2021/11/dd224e81a4b0-g7.html)
+[12月1日からの対策徹底期間、感染防止に協力を – 東京都、介護老人保健施設や保育所などに依頼も](https://news.yahoo.co.jp/articles/4313fc8c8e55d30d7e00e92efbbc043f98e4b654)
 
 *校对：东京樱花团/知了知了*
 *发布：东京樱花团/tdownc2p*

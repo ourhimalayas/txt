@@ -2,44 +2,28 @@
 ---
 
 
-## 荷兰军警突袭飞机以逮捕逃离隔离区的夫妇
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1705002/)
+## COVID-19 最新情報｜台灣青少年接種BNT 部分無法上學、需住院
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1705053/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+**台灣寶島農場 疫情關注組 / 發佈時間｜29/11/2021**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/2018-11-21-KMAR-description-1.jpg)
-
-
- 
-图片来源： www.fiep.org
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
 
-#### 编译：小红帽
+台灣中央流行疫情指揮中心29日宣布，12至17歲人口於9月22日起開始接種第一劑BNT疫苗，10月底前陸續屆滿4週可打第2劑，但考量心肌炎風險，經ACIP專家討論後，認為當時國內疫情算平穩，且有待蒐集更多資料討論，因此緩打。
 
-一对疑似携带Omicron病毒的已婚夫妇逃离了荷兰的一家隔离酒店，但在该夫妇的航班即将起飞时，军警从飞机上把他们带走了。
+據統計，12至17歲已接種BNT疫苗第一劑約110萬人，其中17例通報發生心肌炎，包含14男3女。
 
-荷兰武装部队在一份声明中证实，这起戏剧性事件发生在阿姆斯特丹史基浦机场，当时该航班将于周日下午 6 点左右起飞前往西班牙。
+據台媒報導，台灣小兒感染科醫師發現青少施打BNT疫苗後部分出現偏頭痛，有人1、2個月還未改善，頭痛、頭暈、噁心、嘔吐、倦怠、發燒症狀，甚至無法上學、上課，須住院治療。
 
-当局没有公布这对被拘留的夫妇的身份，目前还不清楚他们是被感染还是只是为了预防而被隔离。军警将他们移交给卫生官员，并送往另一个隔离设施。
+台灣青少年接種BNT疫苗後心肌炎比例比歐美高，台中榮總小兒感染科主任陳伯彥指出，部分民眾接種後出現頭痛、頭暈、噁心、發燒等副作用，前3天較嚴重，已有5、6名青少年施打後症狀持續1、2週，在診所就醫未改善，轉來中榮就診，甚至有半數頭暈、頭痛到無法上課，症狀持續2個月。他推測是因為mRNA疫苗有賦型劑PEG（聚乙二醇）過敏成份，就診的青少年有半數有過敏體質，加上過敏沒好好控制，可能誘發不適。
 
-周五，在所有27个欧盟成员国同意暂时禁止来自七个南部非洲国家的旅行之前，在航空公司乘客中发现了十多例新的Omicron新冠病毒（COVID-19）变种病例后，荷兰处于高度戒备状态。
+Covid-19偏頭痛就診的青少年從12到17都有，也有19歲患者，依美國建議指引給予較強的止痛消炎藥，以及使用抗織胺、止吐藥，仍有2人未好轉，因此會診中醫，進行中醫及針灸療，增強免疫力及放鬆肌肉，症狀較緩解。
 
-所有最近从南非以及博茨瓦纳、马拉维、莱索托、埃斯瓦蒂尼、纳米比亚、莫桑比克和津巴布韦抵达荷兰的人，即使接种了新冠疫苗，也必须接受检测和隔离，直到结果出来。
-
-在合共624名乘客中，约有61人的新冠病毒检测呈阳性，因此荷兰国家卫生研究所 (RIVM) 警告说，“新的变种可能会在更多的测试样本中被发现。”
-
-“我们将控制人们是否遵守这些规则，”荷兰卫生部长雨果·德容格 (Hugo de Jonge) 周日宣布，就在该夫妇企图逃跑的前几个小时。
-
-**参考新闻：**[Military police raid plane to arrest couple trying to flee quarantine — RT World News](https://www.rt.com/news/541586-netherlands-couple-flee-quarantine/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-21.jpg)
+來源｜[自由健康網](https://health.ltn.com.tw/article/breakingnews/3751004)/[自由時報](https://news.ltn.com.tw/news/life/breakingnews/3751407)
 
  
 

@@ -2,28 +2,25 @@
 ---
 
 
-## 腾讯财付通涉2千元外汇违规，被重罚278万元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704940/)
+## 参议员克鲁兹：司法部应该起诉福奇
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1704967/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-57.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fp2.itc.cn%2Fq_70%2Fimages03%2F20211128%2Fa53db950eee64aff89d58ff9a4d514bf.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F504030795_120952561&amp;tbnid=m20lZ1YOk9t63M&amp;vet=12ahUKEwjA-MDKlr30AhU0oVsKHdxPDTUQMygIegUIARCvAQ..i&amp;docid=McIr7gGeNHYuxM&amp;w=1080&amp;h=648&amp;q=%E8%85%BE%E8%AE%AF%E8%B4%A2%E4%BB%98%E9%80%9A&amp;ved=2ahUKEwjA-MDKlr30AhU0oVsKHdxPDTUQMygIegUIARCvAQ)
-中共国家外汇管理局深圳市分局近日公布的行政处罚信息显示，微信支付的运营主体——财付通支付科技有限公司11月22日被罚278万元。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-50.jpg)
-据中共国外汇管理局深圳市分局开出的深外管检[2021]43号行政处罚决定书，财付通存在未按规定报送相关材料、超过登记范围开展外汇业务、未按规定办理售汇业务、未按规定采集必要信息等四项违法事实。
+#### 撰稿：彩虹
 
-中共国外汇管理局深圳市分局对财付通作出责令改正，给予警告，没收违法所得0.2万元，处以罚款人民币278万元的行政处罚。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-3-5.jpg)图片来源：国会山报
+11月28日，《新闻极限》报道来自德克萨斯州的美国参议员泰德·克鲁兹（Ted Cruz）称，安东尼·福奇（Anthony Fauci）博士是一个“未经选举产生的技术官僚，他歪曲科学和事实，以便对数百万美国人实施权威控制”。
 
-据天眼查APP显示，财付通成立于2006年，注册资本10亿元。深圳市腾讯计算机系统有限公司、深圳市世纪凯旋科技有限公司分别持有95%和5%的股份。
+克鲁兹在推特上发文说：“他生活在一个自由主义的世界，在这里，他自诩‘我代表科学’的态度得到了称赞”。
 
-另据中国基金报报道，针对被处罚278万元一事，财付通11月28日回应称，针对2019-2020年例行检查中发现的问题，财付通已第一时间制定了改进计划，并逐项落实，目前已全部完成整改。后续将在国家外汇管理局深圳市分局的指导下，进一步加强合规管理。
+文章报道，由于福奇在五月份否认国家卫生研究院资助了中共国武汉一家病毒学实验室的“病毒功能性增强”研究，这受到了包括克鲁兹和来自肯尼迪州的国会参议员兰德·保罗（Rand Paul）等人的指责。对此，克鲁兹已经敦促梅里克·加兰（Merrick Garland）检察长任命一名特别检察官来调查福奇的言论。
 
-消息来源:
+周日，克鲁兹列举了四个“事实”，说明他为何要求司法部对福奇进行调查，以及事实的结论是：“无论民主党人进行怎样的广告式言论诋毁，都无法使福奇摆脱他的这种自相矛盾。福奇要么用详细的、有具体事实佐证的东西来解决实质性问题，要么司法部就应该考虑起诉福奇向国会做虚假陈述”。
 
-[腾讯财付通被罚278万 涉超范围开展外汇业务等“四宗罪”](https://finance.sina.com.cn/chanjing/gsnews/2021-11-29/doc-ikyamrmy5773895.shtml)
+**新闻来源**
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+[Sen. Cruz Responds to Fauci Attack: Unelected Technocrat With Distorted Science](https://www.newsmax.com/politics/ted-cruz-anthony-fauci-department-of-justice/2021/11/28/id/1046476/)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

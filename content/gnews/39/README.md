@@ -2,32 +2,61 @@
 ---
 
 
-## 澳洲发现首例无症狀Omicron毒株感染者
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704554/)
+## Omicron变体最早发现于完全疫苗接种者
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1704576/)
 
-作者：纽约香草山医疗部 – 云豹
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-澳洲政府于当地时间11月28日宣布，昨日两名从南非抵澳洲雪梨的旅客，被检测出带有中共病毒Omicron病毒株。这是澳洲首次发现此病毒株。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture284.jpg)
-澳洲新南韦尔斯州雪梨市的卫生官员表示，这两位旅客都已经接受过完整疫苗注射，目前也没有症状。他们是在抵达雪梨机场接受病毒检测时，被发现感染中共病毒，并经进一步基因定序后，确认是感染了Omicron病毒株。
+**作者**：纽约香草山信息部- 诺雅
 
-目前该病毒株已陆续出现在南非、博茨瓦纳、荷兰、德国、意大利、英国、捷克、比利时、香港、澳洲等国。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
 
-参考链接：[澳洲发现首例无症狀Omicron毒株感染者](https://www.cna.com.tw/news/aopl/202111280097.aspx?topic=2012)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
 
-总编：文特
-编辑：文特
-校对/发稿：Hetangyuese
+
+
+1月25日，博茨瓦纳政府公开声明称，该国的Omicron新突变病毒，最先在四名接受两剂ccp病毒疫苗的患者中发现。这四名患者于11月7日进入博茨瓦纳执行外交任务，在11月11日准备回国时对中共病毒检测呈阳性。
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/261121botswana.jpg)
+
+声明中还指出，新毒株的变异传染性很广，它不仅存在于博茨瓦纳，更多非洲国家和其他地区也已经检测到该变种。
+
+据11月26日的世卫组织宣布，Omicron是第五个需要关注突变。因传言称该毒株传染性是德尔塔毒株的三倍，并且很可能对疫苗及人体免疫力有抵抗能力，随后周五全球金融市场暴跌，美国、加拿大、英国和欧盟等纷纷宣布对南部非洲国家实施新的旅行禁令。
+
+截至27日晚间，比利时、以色列、香港、英国已经确认发现新变种感染病例，德国和捷克也报告了疑似病例。
+
+参阅链接：
+
+[https://gettr.com/post/pi0ogq0f02](https://gettr.com/post/pi0ogq0f02)
+
+[https://www.reuters.com/business/healthcare-pharmaceuticals/japan-tighten-border-controls-s-africa-others-new-virus-variant-jiji-2021-11-26/](https://www.reuters.com/business/healthcare-pharmaceuticals/japan-tighten-border-controls-s-africa-others-new-virus-variant-jiji-2021-11-26/)
+
+[https://nypost.com/2021/11/27/omicron-variant-found-in-uk-germany-czech-republic/](https://nypost.com/2021/11/27/omicron-variant-found-in-uk-germany-czech-republic/)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-4.jpg)
+
+***总编：正义的小新***
+
+***编辑：文特***
+
+***校对/发稿：遍地开花***
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
+[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
+
+
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

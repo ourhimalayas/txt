@@ -2,26 +2,45 @@
 ---
 
 
-## 中共新型空中加油机首次进入台湾防空识别区
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704986/)
+## 荷兰军警突袭飞机以逮捕逃离隔离区的夫妇
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1705002/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-135.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fmedia.dwnews.net%2Fdw%2Fvxq8mAZ0IeIrCPgNtadiKcXP8QU%253D%2F320*0%2Fmedia%2Fimages%2Fdw%2F20181210%2F15444363115c0e3a57c6d28.jpg&amp;imgrefurl=https%3A%2F%2Fwww.famousdnm.com%2F%25E4%25B8%25AD%25E5%259B%25BD%2F60270157%2F%25E8%25A7%25A3%25E6%2594%25BE%25E5%2586%259B%25E6%2596%25B0%25E5%259E%258B%25E5%258A%25A0%25E6%25B2%25B9%25E6%259C%25BA%25E9%25A6%2596%25E6%25AC%25A1%25E7%258E%25B0%25E8%25BA%25AB%25E5%258F%25B0%25E6%25B5%25B7%25E5%25B0%2586%25E5%25A4%25A7%25E5%25A4%25A7%25E6%258F%2590%25E5%258D%2587%25E6%2588%2598%25E5%258A%259B&amp;tbnid=-AHu4qdhgKcwJM&amp;vet=12ahUKEwjA_IzmlL30AhUbHTQIHdWdARUQMygBegUIARCdAQ..i&amp;docid=OMDyZTDyRyC8dM&amp;w=1920&amp;h=798&amp;itg=1&amp;q=%E4%B8%AD%E5%85%B1%E6%96%B0%E5%9E%8B%E7%A9%BA%E4%B8%AD%E5%8A%A0%E6%B2%B9%E6%9C%BA&amp;ved=2ahUKEwjA_IzmlL30AhUbHTQIHdWdARUQMygBegUIARCdAQ)
-台湾国防部11月28日公布，当天有27架次中共国大陆军机进入台湾西南防空识别区活动，其中包括战斗机和轰炸机等。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-超过一半上述军机穿越台湾和菲律宾之间的巴士海峡上空，绕至台湾东南近海，然后沿大致相同路线掉头飞往大陆方向，其中包括一架新型空中加油机运油-20。据认为，这是台湾国防部首次确认到运油-20空中加油机进入台湾防空识别区。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/2018-11-21-KMAR-description-1.jpg)
 
-台湾国防部智库研究员欧锡富今年4月发表的分析称，和中共国大陆此前的主力空中加油机相比，运油-20的空中加油能力增至3倍。中国大陆军机的作战半径未来将显著扩大。
 
-另外，台湾主要媒体援引熟悉中共国大陆军方动向的专家揭仲的话报道称：“未来如果有多架运油-20部署，大陆空军将成为真正意义上的‘远征型空军’。大陆军机有可能在台湾南部近海和东南近海更为频繁训练，台湾面临的防空压力将大幅加重。”
+ 
+图片来源： www.fiep.org
 
-消息来源:
 
-[中国大陆新型空中加油机进入台防空识别区](https://www3.nhk.or.jp/nhkworld/zh/news/335286/)
+#### 编译：小红帽
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+一对疑似携带Omicron病毒的已婚夫妇逃离了荷兰的一家隔离酒店，但在该夫妇的航班即将起飞时，军警从飞机上把他们带走了。
+
+荷兰武装部队在一份声明中证实，这起戏剧性事件发生在阿姆斯特丹史基浦机场，当时该航班将于周日下午 6 点左右起飞前往西班牙。
+
+当局没有公布这对被拘留的夫妇的身份，目前还不清楚他们是被感染还是只是为了预防而被隔离。军警将他们移交给卫生官员，并送往另一个隔离设施。
+
+周五，在所有27个欧盟成员国同意暂时禁止来自七个南部非洲国家的旅行之前，在航空公司乘客中发现了十多例新的Omicron新冠病毒（COVID-19）变种病例后，荷兰处于高度戒备状态。
+
+所有最近从南非以及博茨瓦纳、马拉维、莱索托、埃斯瓦蒂尼、纳米比亚、莫桑比克和津巴布韦抵达荷兰的人，即使接种了新冠疫苗，也必须接受检测和隔离，直到结果出来。
+
+在合共624名乘客中，约有61人的新冠病毒检测呈阳性，因此荷兰国家卫生研究所 (RIVM) 警告说，“新的变种可能会在更多的测试样本中被发现。”
+
+“我们将控制人们是否遵守这些规则，”荷兰卫生部长雨果·德容格 (Hugo de Jonge) 周日宣布，就在该夫妇企图逃跑的前几个小时。
+
+**参考新闻：**[Military police raid plane to arrest couple trying to flee quarantine — RT World News](https://www.rt.com/news/541586-netherlands-couple-flee-quarantine/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

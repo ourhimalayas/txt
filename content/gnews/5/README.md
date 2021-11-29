@@ -2,24 +2,25 @@
 ---
 
 
-## 一切资产都要归党管！中共北京数字资产交易所来了
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704979/)
+## 掉入中共债务陷阱！乌干达唯一一个国际机场恐被中共接管
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1704996/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/12122.png)[图片来源](https://www.ledgerinsights.com/coinbase-ftx-us-join-crowded-nft-marketplace-sector/)
-11月26日，中共国务院印发《关于支持北京城市副中心高质量发展的意见》(以下简称《意见》)，提出要加快推进法定数字货币试点，探索建设数字资产交易场所。
+#### 翻译/撰稿：zzballack
 
-借助区块链技术，特别是“非同质化代币（NFT）”数字资产的出现，赋予了数字资产权属明确、可交易的新特性，开启了数字资产交易的新时代。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-2-2.jpg)图片来源：Palpal News Hub
+据印度媒体《世界一体新闻台》（WION）11月28日报道，乌干达可能很快就会成为中共债务陷阱的最新受害者。该国唯一的国际机场，即恩德培国际机场 (Entebbe International Airport)，正面临着被中共接管的危险。
 
-鉴于数字资产以数字货币作为计价和交易基础。随着企业和个人资产的数字确权和交易，相当于中共用数字人民币全面掌控中共国一切资产。
+2015年11月，乌干达与中共进出口银行签署协议，以2%的利率贷款2.07亿美元，用于扩建恩德培国际机场。据坦桑尼亚《公民报》（The Citizen）报导，这笔贷款的偿还期限为20年，包括7年宽限期。宽限期内仅需偿还利息，暂不偿还本金，但宽限期将于明年失效。乌干达近期发现无法如期偿还，便派遣官方代表团前往北京再次谈判协议，但中共贷款方拒绝改变原协议的条款。
 
-信息来源：
+原贷款协议中第13条赋予中共进出口银行批准年度和月度运营预算、检查乌干达政府和民航局（UCAA）账务的权力，因此具有争议。而中国国际经济贸易仲裁委员会被指派解决相关争端。乌干达民航局对此表示，恩德培国际机场和其他相关资产可能会在仲裁后被中共进出口银行扣押接管。
 
-[北京城市副中心再迎新发展！推进数字货币试点探索建设数字资产交易场所](https://finance.eastmoney.com/a/202111262195105265.html)
+据乌干达《每日观察报》（Daily Monitor）报道，乌干达政府在协议中答应放弃国际豁免权，让恩德培机场无法受国际仲裁保护。乌干达财政部长马蒂亚·卡萨亚（Matia Kasaija）为这笔贷款的“不当处理方式”，上周向议会致歉。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+中共进出口银行之前还资助了乌干达2个主要电力项目约85%的资金，和4.76亿美元建造从首都坎帕拉（Kampala）通往恩德培的恩德培高速公路。
+
+新闻来源：[China’s debt trap strategy: Uganda set to lose its only international airport to Beijing](https://www.wionews.com/world/chinas-debt-trap-strategy-uganda-set-to-lose-its-only-international-airport-to-beijing-432465)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

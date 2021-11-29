@@ -2,61 +2,27 @@
 ---
 
 
-## Omicron变体最早发现于完全疫苗接种者
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1704576/)
+## 中共解放军运20首飞台湾，恐吓升级欲将绕飞整个岛
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1704610/)
 
-**作者**：纽约香草山信息部- 诺雅
+视频&文章：澳洲天好蓝
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
+28日台防务部门发布的“即时军事动态”显示，当天中共出动了大量的军机对台进行了恐吓绕飞，侵扰台湾西南防空识别区（ADIZ），其中的派出的型号与架次有：2架次空警-500，1架次运-9通信对抗机，5架次轰-6，1架次运油-20，6架次歼-10，4架次歼-11，8架次歼-16，共27架次。
 
+其中最引人注意的就是，这是首次中共军队派出了“运油-20”，这是一个标志性的事件，也是一种对台恐吓的升级，空中加油机的出现预示着，可能对台湾进行更频繁，和飞行跨度更大的飞行。
 
+台湾有关研究领域人士分析认为：根据过往大陆军机动态，由于战机受限航程无法伴随掩护，常只有轰炸机单独深入台湾东南空域，此次加油机伴飞，对台湾造成有相当的压力
 
+有舔共媒体称，这次飞行不排除有威慑一下在菲律宾海活动的美国“卡尔·文森”号航母打击群的可能，不过笔者认为这是无稽之谈，是给台海两岸人民洗脑用的，菲律宾海距台海超过上千公里，如果要威慑的话，为什么不去人家眼前威慑呢？这纯属舔共媒体的意淫。
 
+5架轰6与4架歼10编队，飞行距离最长想，飞行路线从台东南部一直到台湾西南部，推测可能是有空中加油机的为其加油的原因。
 
-1月25日，博茨瓦纳政府公开声明称，该国的Omicron新突变病毒，最先在四名接受两剂ccp病毒疫苗的患者中发现。这四名患者于11月7日进入博茨瓦纳执行外交任务，在11月11日准备回国时对中共病毒检测呈阳性。
+此次中共派出军机飞行是一次恐吓台湾的新一次升级，也引得一众台湾媒体的惊呼，无异于帮中共进行了一次恐吓的宣传，也是帮中共达到让台湾人心不稳的目的，让百姓受恐吓被迫接受中共迟早会占领台湾的事实，当然其中肯定有相当部分人会转向卖台求荣的方向，当然就算台湾百姓够硬气，没人出来卖台，中共也会利用安插在台湾政府里面的卖台官员带动风向，配合中共包围台湾的恐怖气氛，来瓦解人心。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/261121botswana.jpg)
+当然如果没有爆料革命新中国联绑的出现，没有郭先生的出现，这一切也许可能得逞，不过在跟随郭先生四年以来，见证无数爆料革命的奇迹，深信在郭先生的布局下，一定会扭转乾坤，拯救台湾人民于水火，一切只是时间问题而已！
 
-声明中还指出，新毒株的变异传染性很广，它不仅存在于博茨瓦纳，更多非洲国家和其他地区也已经检测到该变种。
-
-据11月26日的世卫组织宣布，Omicron是第五个需要关注突变。因传言称该毒株传染性是德尔塔毒株的三倍，并且很可能对疫苗及人体免疫力有抵抗能力，随后周五全球金融市场暴跌，美国、加拿大、英国和欧盟等纷纷宣布对南部非洲国家实施新的旅行禁令。
-
-截至27日晚间，比利时、以色列、香港、英国已经确认发现新变种感染病例，德国和捷克也报告了疑似病例。
-
-参阅链接：
-
-[https://gettr.com/post/pi0ogq0f02](https://gettr.com/post/pi0ogq0f02)
-
-[https://www.reuters.com/business/healthcare-pharmaceuticals/japan-tighten-border-controls-s-africa-others-new-virus-variant-jiji-2021-11-26/](https://www.reuters.com/business/healthcare-pharmaceuticals/japan-tighten-border-controls-s-africa-others-new-virus-variant-jiji-2021-11-26/)
-
-[https://nypost.com/2021/11/27/omicron-variant-found-in-uk-germany-czech-republic/](https://nypost.com/2021/11/27/omicron-variant-found-in-uk-germany-czech-republic/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-4.jpg)
-
-***总编：正义的小新***
-
-***编辑：文特***
-
-***校对/发稿：遍地开花***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
-
-
-
-
-
+（本文只代表作者个人观点）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
