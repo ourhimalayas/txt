@@ -2,34 +2,34 @@
 ---
 
 
-## 中共病毒新突变 Omicron令日本率先关闭国门
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1705176/)
+## 在台湾问题上，我们不应该听从中共国的要求
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1705290/)
 
-作者：东京樱花团｜捆绑CCP一千年
-![](https://lh6.googleusercontent.com/8DsKVF4TkvrUmod4hv8ratlTMNarL5hRDiiw2CqEDOkrCRYMxGrGRvmiCW-o05whh_FTGonG4CRFhHOlnDTluSLOYbKMXEmHCBzzIcJSrvfX4OEEWr-YxHdP52Uw5YUj8KOyS7Vf)[*图片来源*](https://www.asahi.com/articles/photo/AS20211129001301.html?iref=pc_photo_gallery_next_arrow)
-**日本因世界上OMICRON新变种毒株蔓延而关闭国门，从30日凌晨起禁止令生效，包括日本海外归来者，首相岸田文雄说：“该措施以防止日本出现最坏的情况。” “我有觉悟来承受所有的批评”。另据新中国联邦郭文贵先生透露，这是中国共产党制造地缘政治动乱。郭先生早在15号就说过，新的病毒可能会从美国的西部开始被投放，非洲不是新的传染源。**
+整理报道：七彩光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/ezgif-3-fff1916cb3e1.jpg)图片来源：国会山报
+在感恩节假期的周末，美国众议院议员南希·梅斯（Nancy Mace）与两党议员小组一起前往了台湾，根据11月28日《新闻极限》的报道，周日，梅斯说中共国对这次（台湾）之旅进行了强烈的反对。
 
-据日本[朝日新闻](https://www.asahi.com/articles/ASPCY4RBSPCYULFA01C.html?iref=pc_special_coronavirus_top)29日消息，首相岸田文雄发布全国旅游禁止令，从30日午夜起禁止外国人入境。这是日本自大流行以来第二次封关。[**阅读更多**](http://www.news.cn/2021-11/29/c_1128111711.htm)
+在《福克斯新闻》的“周日早晨谈未来”节目中，梅斯说：“我们当时在韩国和日本为我们的军队提供感恩节服务”。在旅行结束之时，在代表团登上前往台湾的飞机之前，中共国派人试图阻止我们。“中国大使馆对每一个旅行成员进行了强烈反对，要求我们不要访问台湾。我们当然不关心中共国或中国共产党的允许与否，我们没有理会他们的要求，我们最终去了台湾”。
 
-作为对中共病毒（Covid-19）新突变[**Omicron**](https://www.washingtonpost.com/health/2021/11/26/faq-new-variant-omicron/)病毒株采取紧急疏散预防措施，岸田说，我会这样做的。并在总理府回答了记者的采访。
+这位共和党籍的众议员说，他们在台湾时，“中共国的（飞机）从八个通道进入国际防空识别区，这正是他们展示其侵略性的举动”。（以前），美国竟然允许中共国持续侵略美国的朋友和伙伴，这让我“无法理解”，但自从这次台湾之旅回来后，“这种无法理解的感觉比以前更加强烈”,“在中共侵略台湾这个问题上，我们不应该听从中共国的要求”。
 
-政府消息确认，决定暂时中止自本月 8 日开始对外国商人、留学生和技术实习生进行放松管制的措施。不仅如此，岸田首相还打算加强对确诊Omicron菌株的14个国家/地区，以及南非等9个国家/地区的日本海外归国者的边境措施。
+梅斯认为：“我们知道，随着他们的侵略，他们最终的想法是接管台湾。我认为如果失去了台湾，那么其他国家也会变得脆弱不堪。看看中共国的人道主义危机，他们对维吾尔族人做了什么？除了军事方案外，我们应该寻求借助于经济手段和在中共国做的生意来追究其责任，让中共国和印太地区的国家远离战争。战争对那里的国家没有好处，最终也会损害美国和海外盟友（的利益）”。
 
-- ***延展阅读：***[***刻意渲染紧张感？日本年度防卫预算总额首超6万亿日元***](http://www.news.cn/mil/2021-11/29/c_1211466231.htm)
-- ***延展阅读：***[***欧盟委员会主席表示，Omicron新毒株让世界陷入“与时间赛跑”的境地***](https://www.cnn.com/2021/11/28/world/coronavirus-omicron-variant-spreading-intl/index.html)
+针对2022年的中期选举，梅斯乐观地说：“到2022年，我相信共和党人会成为（国会）多数派，我相信这会发生，这是很重要的。我们将（额外）赢得至少二十几个席位或更多。我们将有责任尝试扭转一些将被制定的政策”。
 
+**新闻来源**
 
-岸田先生特别强调，“我认为在管理政府时应该在处理未知的风险时保持更加谨慎。至于有人批评说安田在不知道发生什么时过于谨慎，我有觉悟来承受所有的批评。”
+[Rep. Mace: China Pushed Back Against US Delegation Trip to Taiwan](https://www.newsmax.com/politics/mace-taiwan-bipartisan-trip-china/2021/11/28/id/1046457/)
 
-另据美联社日本消息证实，日本因Omicron蔓延禁止外国游客入境日本，首相岸田文雄说：“[该措施将于周二生效。我们正在采取紧急预防措施，以防止日本出现最坏的情况](https://www.mrt.com/news/article/Japan-bans-entry-of-foreign-visitors-as-omicron-16658858.php)。”
+发布：七彩光
 
-对于Omicron新变种为何在南非发源？对此，新中国联邦郭文贵先生透露，“中国共产党显然是在制造地缘政治动乱，非洲根本不可能是传染源，这是注射两针疫苗接种者之间的传播，共产党把这个嫁祸非洲。”郭先生曾在15号就说过，“新的病毒即将开始，这不是我预测的，是中国潜逃欧洲的一位资深生化专家透露的，他说新的病毒可能会从美国的西部开始被投放。关键是制造你内部矛盾，把你供应链断掉，让你活在恐惧中。”郭先生补充说（[37:57时段](https://gettr.com/post/pi5gfs500d)）。
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
-2021年11月29日
-
-*校对：东京樱花团 / 東洋武士*
-*发布：东京樱花团 / 平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

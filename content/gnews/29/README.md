@@ -2,36 +2,29 @@
 ---
 
 
-## WHO命名中共病毒新变种有猫腻，怕惹怒习近平
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704991/)
+## COVID-19 最新情報｜台灣青少年接種BNT 部分無法上學、需住院
+` G&#124;News TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1705053/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-58.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fi.ntdtv.com%2Fassets%2Fuploads%2F2021%2F09%2FCCPvirus-600x338.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ntdtv.com%2Fgb%2F2021%2F08%2F31%2Fa103204325.html&amp;tbnid=zc8KZA5QE3vbgM&amp;vet=12ahUKEwiRo-_ylb30AhWzAzQIHZ88DmMQMygDegUIARCLAQ..i&amp;docid=OYjmF12IzjhNLM&amp;w=600&amp;h=338&amp;q=%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92%E6%96%B0%E5%8F%98%E7%A7%8D&amp;ved=2ahUKEwiRo-_ylb30AhWzAzQIHZ88DmMQMygDegUIARCLAQ)
-世界卫生组织将最近在南非发现的中共病毒变异株命名为“奥米克戎”（Omicron），没有按照希腊字母表的顺序，跳过了“Nu”和“Xi”两个字母。世卫组织说，Xi是常见姓氏，不采用这个字母是为了防止“污名化”。外界批评，世卫组织的病毒变种命名不用“Xi”是怕触怒中共国领导人习近平。
+**台灣寶島農場 疫情關注組 / 發佈時間｜29/11/2021**
 
-世卫组织今年5月31日宣布使用希腊字母命名在英国、南非、巴西和印度首先发现的中共病毒变异株，也就是“阿尔法”（Alpha）、“贝塔”（Beta）、“伽马”（Gamma）、“德尔塔”（Delta），其他重要的变异株将按照“德尔塔”之后的希腊字母顺序命名。世卫组织说，避免用地名称呼病毒变体是为了防止对检测出和通报了病毒变异株的地区被污名化。
+![](https://assets.gnews.org/wp-content/uploads/2021/10/2-94-1-1280x320-1-1.jpg)
+**更多資訊請關注官方蓋特（Please follow our Gettr：[https://gettr.com/user/mightygroup](https://gettr.com/user/mightygroup)）**
 
-按照世卫组织官方网站的数据，按照希腊字母表排序，本月在南非最先发现的病毒变体应该被命名为“Nu”（汉字译音为“纽”），但“Nu”与英文单词“new”（新）谐音，世卫组织在弃用Nu作为命名字母后发现，下一个字母“Xi”（汉字译音为“克西”）可能引发更多令人头疼的政治联想。
 
-英国《每日电讯报》全球卫生安全高级编辑保罗·努基（Paul Nuki）星期六在推特上说，这一猜测得到了世卫组织的证实。他说：“世界卫生组织的一位消息人士证实，希腊字母表上的Nu和Xi这两个字母被故意避免使用。此人说，跳过Nu是为了避免与单词‘新’（new）混淆，跳过Xi是为了‘避免对一个地区的污名化’。”
+台灣中央流行疫情指揮中心29日宣布，12至17歲人口於9月22日起開始接種第一劑BNT疫苗，10月底前陸續屆滿4週可打第2劑，但考量心肌炎風險，經ACIP專家討論後，認為當時國內疫情算平穩，且有待蒐集更多資料討論，因此緩打。
 
-“所有的疾病大流行本质上都是政治的！”努基写道。
+據統計，12至17歲已接種BNT疫苗第一劑約110萬人，其中17例通報發生心肌炎，包含14男3女。
 
-美国《纽约邮报》星期六援引世卫组织发言人玛格丽特·哈里斯（Margaret Harris）的话说：“（不用）Nu，原因是人们可能会误以为它的意思是‘新’变种，而不知道其实这是个名称……（不用）Xi，是因为这是一个常见的姓氏。我们已经同意，命名规则要避免使用地名、人名、动物等，来避免污名化。”
+據台媒報導，台灣小兒感染科醫師發現青少施打BNT疫苗後部分出現偏頭痛，有人1、2個月還未改善，頭痛、頭暈、噁心、嘔吐、倦怠、發燒症狀，甚至無法上學、上課，須住院治療。
 
-政治风险咨询公司欧亚集团主席伊恩·布雷默（Ian Bremmer）在推特上说，世卫组织不能将新毒株命名为“Xi变种”，因为“这会触怒中共国”。
+台灣青少年接種BNT疫苗後心肌炎比例比歐美高，台中榮總小兒感染科主任陳伯彥指出，部分民眾接種後出現頭痛、頭暈、噁心、發燒等副作用，前3天較嚴重，已有5、6名青少年施打後症狀持續1、2週，在診所就醫未改善，轉來中榮就診，甚至有半數頭暈、頭痛到無法上課，症狀持續2個月。他推測是因為mRNA疫苗有賦型劑PEG（聚乙二醇）過敏成份，就診的青少年有半數有過敏體質，加上過敏沒好好控制，可能誘發不適。
 
-布雷默说：“如果你是WHO（世界卫生组织），你只能这样做。不过，这本质上仍然是挺难堪的。”
+Covid-19偏頭痛就診的青少年從12到17都有，也有19歲患者，依美國建議指引給予較強的止痛消炎藥，以及使用抗織胺、止吐藥，仍有2人未好轉，因此會診中醫，進行中醫及針灸療，增強免疫力及放鬆肌肉，症狀較緩解。
 
-长期在中共疫情问题上批评中共国的美国国会参议员泰德·克鲁兹（Ted Cruz）在推特上评论道：“如果WHO这么害怕中国共产党，下次中共试图掩盖一场灾难性的全球疾病大流行时，如何能相信他们（世卫组织）会作出公开批评？”
+* * *
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Blue-Universal-Space-Channel-Banner-21.jpg)
+來源｜[自由健康網](https://health.ltn.com.tw/article/breakingnews/3751004)/[自由時報](https://news.ltn.com.tw/news/life/breakingnews/3751407)
 
-消息来源:
-
-[怕犯了谁的名讳？世卫命名病毒新变种跳过希腊字母Xi](https://www.voachinese.com/a/who-covid-variant-naming-skips-xi-20211127/6330074.html)
-
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

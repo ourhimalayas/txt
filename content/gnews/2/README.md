@@ -2,84 +2,42 @@
 ---
 
 
-## 视频| 郭先生关于GETTR和GTV大V的认证
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1705289/)
+## 应对Omicron新变种病毒，世卫组织却呼吁保持边境开放
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1705355/)
 
-## 摘自2021.11.26郭先生大直播
+翻译: Lish
+编辑：文泓
+![](https://assets.gnews.org/wp-content/uploads/2021/11/222-6.jpg)图片来源：Fox13
+**新闻评论：**
 
-制作：香草山视频部，香草山香港部
+11月26日，世卫组织表示，根据最新数据分析，非洲只有27%的卫生工作者完全接种新冠疫苗，处于抗疫第一线的大部分人员没有得到保护。事实上，全球疫情控制得最好的地区就是非洲，这完全得益于疫苗接种率仅为6%。
 
+然而，当新变种病毒Omicron从南部非洲传播到各国，世卫组织一反常态要求各国保持边境开发，理由是为“人民生计”。在2020年3月的一波新冠病毒大爆发时，谭德塞可是大声疾呼各国保持封锁遏制病毒。那么，这次世卫组织是否又另有所图谋？
 
+**翻译正文：**
 
-拿着大V的人
-未来GETTR支付 GETTR PAY
-还有一些未来金融的
-特殊政策一定是先对大V来的
-你没有大V
-这个认证就轮不着你
-像现在KYC一样
-你早买了10块钱买的
-和现在40块钱买的 差多少钱呐
-那么认证大V以后 比如说我要给你币
-我要给天机币
-首先我得知道认证你是天机
-你能拿到 你有信息反馈
-不能说 我发给你币的时候
-天机 结果是我根本得不到你的回复
-所以说你要有个认证的过程
-你一定要走这个程序
-现在有手机认证 E-MAIL认证
-你可以不叫自己的真实名字
-但是要认证好
-那你跟谁联系呢？ 农场
-叫农场集体提名单
-给波波
-联盟委员会 咱们有专门联系
-联盟委员会里面咱现在就找俩人
-咱现在就指定一下
-一个草根兄弟（草根小哥）
-你去找草根兄弟 负责所有的认证
-包括GTV的认证 你们也要好好认证
-都给加上认证 GTV马上要更新
-更新完以后全部认证
-认证完以后 就让大家
-未来给你有反馈
-现在就像KYC一样
-给你发了信息
-现在战友被挡在外面的KYC 我再重申一遍
-几乎一半以上 是因为你填了虚假信息
-和没有提供足够的信息
-和提供了错误的E-MAIL
-导致了你的KYC过不了
-一定不要犯这种错误
-大家要记住 盖特认证跟各农场联系
-各农场主 铁血组
-联盟委员会负责找草根小哥
-其它我们其他农场 俄罗斯的玛莎
-还有日本的马拉多纳
-都加入进来 一起来解决这个问题
-工程师农场
-正义小Sarah 也要加入进去
-大家直接和他们联系
-抓紧认证 意义深远 我现在都不能说
+11月28日，尽管国际社会对Omicron新变种病毒感到担心，世界卫生组织还是鼓励各国保持边境开放，因为南非谴责全球旅行限制，称之为“毫无道理”。世卫组织说，不选择关闭边界将防止“对人民造成沉重的生计负担”。该组织警告说，如果实施限制，他们（旅客）不应该被定义为“不必要的侵入或侵扰”。
 
+“新冠病毒造成了社会的极度分裂”，世卫组织非洲区域主任马西迪索·莫埃提博士说：“只有当我们一起努力寻求解决方案时，我们才能更好地应对这种病毒。”
 
+在南部非洲发现该变种病毒后，多个国家发起了旅行限制。WHO这些评论是对各国应对措施的回应。除南非外，美国也限制了往返其他多个国家的旅行，以应对新的变种病毒。
 
-发稿：雪梨
+南非总统西里尔·拉马福萨在周日的讲话中说，在这个阶段不会在国内实施新的限制。他敦促其他国家“紧急”消旅行限制，称这些限制“没有道理”。
 
-![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
+参考链接：
 
-**更多资讯，更多关注**
+1、[Keep borders open despite Covid variants, WHO pleads — RT World News](https://www.rt.com/news/541578-south-africa-travel-omicron-covid/)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+2、[非洲仅有四分之一医护人员完全接种新冠疫苗  | 联合国新闻 (un.org)](https://news.un.org/zh/story/2021/11/1095092)
 
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+**发布：kk**
 
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
