@@ -2,24 +2,31 @@
 ---
 
 
-## 半个中共国为北京冬奥会停工停产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1699803/)
+## 台美为应对中共威胁接连举办两场军事会谈
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1700862/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/223-1.jpg)[图片来源](https://www.google.com/imgres?imgurl=https%3A%2F%2Fichef.bbci.co.uk%2Fnews%2F640%2Fcpsprodpb%2F6FAB%2Fproduction%2F_116778582_xxjpsgc007377_20201230_pepfn0a001.jpg&amp;imgrefurl=https%3A%2F%2Fwww.bbc.com%2Fzhongwen%2Fsimp%2Fsports-56661963&amp;tbnid=Tb03yBTEh3noyM&amp;vet=12ahUKEwjvuL-Qsrj0AhVN4GEKHXDvDhkQMygFegUIARC2AQ..i&amp;docid=ZT7LpLnUMBomVM&amp;w=640&amp;h=360&amp;itg=1&amp;q=%E5%86%AC%E5%A5%A5%E4%BC%9A&amp;ved=2ahUKEwjvuL-Qsrj0AhVN4GEKHXDvDhkQMygFegUIARC2AQ)
-11月27日财经网报道，由于2022年初北京将承办两项重要奥运赛事（冬奥会将在2月4日—20日举行，残奥会将在3月4日举行），据中共国家环保部统计，华北、淮北、华西等多地空气严重污染，为实现碳中和达标，中央政府决定：2022年1月1日前关停华北、淮北、华西等重污染地区所有重工企业，重点河北唐山、天津、石家庄、张家口，承德、山东济南、威海，潍坊，山西太原、大同、长治，河南洛阳、郑州等地区，关停期限自2022年1月1日至2022年3月8日。
+#### **撰稿：**日本东京方舟农场 Kevin wang
 
-北方区域大半被覆盖，工业企业被严格控制重污染减排、实行交通管制，必要时停产减产。水泥、制造业、煤化工、石油化工等多个行业以及涉voc工序的生产制造环节，生产线开工、错峰运行，面源、移动源减排方面，以及港口、物流运输等方面都有着严格的管控措施，也就意味着化工、重工业企业都将面临环保管制加严的局面。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/D9930079-9D39-4DBD-AD34-799DA4353F8E.jpeg)（图片来自网络）
 
-中共国对6省65市发布了“停工令”，为所谓的冬奥会胜利召开，保证蓝天白云，晴空万里，半个中共国企业也将会面临停工停产，相应的工业民生产品供应将会出现短缺，继而引起涨价。
+据《大纪元》11月27日报道，因意识到中共对区域安全的威胁，台美近日在华盛顿接连举办了两场军事会谈，以强化台湾应对中共军事威胁的能力。
 
-信息来源：
+报道称，美台于11月16和17日在华盛顿接连举办了“台美政治军事对话”（US-Taiwan Pol-Mil Dialogue）与“国防检讨会谈”（Defense Review Talks, DRT）。台湾建立自我防卫机制，尤其是在国防上持续强化不对称战力，成为对话焦点之一。
 
-[【紧急！冬奥会“管控”来了！停工停产到2022年3月！】](https://page.om.qq.com/page/OI21m9iCM4VJ1nByOq-k3b4Q0)
+台湾中山大学“中国与亚太区域研究所”特聘教授林文程在接受《大纪元》专访时表示，台湾派去的都是由国安会主导的政务官；美国出席会议的官员则是主导台湾问题的国务院、国安委，国防部等官员。双方讨论项目大多针对台美安全合作、西太平洋地区安全问题以及军售议题。他指出，“谈的是大原则、大方向”，而会谈对台美彼此间的了解起到关键作用。
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+台湾中正大学“战略暨国际事务研究所”助理教授林颖佑则分析认为，目前台美之间的互动，对台湾国防的确有明显提升效果。美国已看到了中共军力的威胁。在美中双方不断较劲之下，美国认为，台湾在国防和军力方面的提升十分有必要。
+
+*参考链接：[https://www.epochtimes.com/b5/21/11/27/n13401504.htm](https://www.epochtimes.com/b5/21/11/27/n13401504.htm)*
+
+* * *
+
+*素材采编：Kevin wang*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

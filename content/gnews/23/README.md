@@ -2,48 +2,146 @@
 ---
 
 
-## 心脏病专家警告：辉瑞、莫德纳疫苗“显著增加”心脏病发作风险
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1703868/)
+## 联盟委员会和各农场主要对新中国联邦和战友们负责
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1703996/)
 
-**【简评：】***疫苗对中共病毒的预防差强人意，而它对人体心脏和心血管的危害却是致命的，现在，越来越多的人站出来反对强制疫苗接种；甚至于德国医生、诊所负责人Thomas Jendges博士因沉重的负罪感和绝望自杀身亡，并在其遗书中疾呼：“疫苗是一种种族灭绝。”  然而，面对这些事实，许多国家的政府部门仍在强制推行中共病毒疫苗接种。依此发展，势必产生两者之间的对立和冲突，导致全球性动荡和灾难。*
+[https://gtv.org/video/id=61a36ae83ff6481adce57d90](https://gtv.org/video/id=61a36ae83ff6481adce57d90)
 
-据《儿童健康捍卫者》记者：谢丽尔·阿特基森（Sharyl Attkisson）2021年11月24日报道：
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-895-e1638134553122.png)图片源自childrenshealthdefense.org
-在美国心脏协会会议上发表的一项分析中，婴儿心脏移植手术先驱史蒂文·冈德里（Steven Gundry）博士表示，mRNA中共病毒疫苗使许多患者面临更高的新急性冠状动脉综合症风险，例如心脏病发作。
+**郭文贵**
+**Miles Guo**
 
-**中共病毒辉瑞、莫德纳COVID-19 mRNA疫苗，“显著增加”了人们心脏病常见衡量指标的风险。**
+另外一个，我再重申一遍
+Another one, I reiterate
 
-这是由被称为婴儿心脏移植手术先驱的心脏病专家史蒂文·冈德里（Steven Gundry）博士最近在《循环》杂志上发表的 “警告 “。
+任何战友，特别是投资战友不准随便发言
+Any comrades, especially ones with investment are not allowed to comment freely
 
-该分析报告，在最近的美国心脏协会会议上公布。
+你要承担法律后果
+You will be bearded the legal consequences
 
-冈德里（Gundry）表示，“大多数患者的显著变化”意味着他们患新的急性冠状动脉综合症的风险更高，例如心脏病发作。
+你要承担法律（后果）
+You have to bear the legal consequences
 
-部分分析指出：“我们得出结论，mRNA疫苗显著增加了心肌内皮的炎症和T细胞对心肌的浸润，并且可能解释了疫苗接种后血栓形成、心肌病和其他血管事件增加的结果。”
+你是战友，因为你拿的一毛钱买的币，这是跟给你没啥两样
+You are a comrade in arms because of you have the HCoins with ten cents purchase price benefit which is no different from giving you for nothing,
 
-冈德里（Gundry）解释说：“最近，随着莫德纳（Moderna）和辉瑞（Pfizer）的 mRNA中共病毒疫苗的出现，大多数患者的蛋白质不稳定病变特征（ PULS）衡量指标发生了显著变化。”
+倒贴钱给你，你还在那块儿
+and also back paying you the money. You are still there to criticize
 
-**据报道，在接种中共病毒mRNA疫苗后，已有数千例与心脏相关的损伤病例。 这些损伤导致心脏损伤的形成和持续发展，这些病变可能变得不稳定和破裂，从而导致心脏病事件。**
+哎呦，真把自己当成投资者身份了
+Wow, you really identified yourself as investors
 
-蛋白质不稳定病变特征（Protein Unstable Lesion Signature）测试是从血管壁心脏病变渗出的最具临床意义的蛋白质生物标志物，是提供身体免疫系统对动脉损伤反应的一种测量方法。
+然后在那块儿批评，你以为你是伪类啊
+and then, criticize here and there. You thought you are under-covered communist?
 
-**科学家们已经确定了中共病毒疫苗对包括年轻人在内的一些患者的无数心脏和血液相关的影响，相关的不良事件包括形成血栓、血块和心肌炎和心包炎等心脏炎症。**
+是不是？你想骂就骂，你想干啥就干啥
+Don’t you? You can criticize whatever you want and do whatever you want
 
-疾病控制和预防中心（the Centers for Disease Control and Prevention）和美国食品和药物管理局（the U.S. Food and Drug Administration）表示，疫苗对他们推荐的每个人都是安全有效的，而且益处超过已知风险。但是，风险将在几年内随着越来越多人接种疫苗而出现。
+你拿了一毛钱的币，你就必须维护这个币
+You have gotten the coin at a dime, you must defend the coin
 
-原文连接：[https://childrenshealthdefense.org/defender/sharyl-attkisson-steven-gundry-pfizer-moderna-vaccines-heart-attack-risk/](https://childrenshealthdefense.org/defender/sharyl-attkisson-steven-gundry-pfizer-moderna-vaccines-heart-attack-risk/)
+这点要求一点不过分吧？
+This is not too much to ask, right?
 
-翻译：洛杉矶盘古农场–WH
+特别是对铁血组，特别是对联盟委员会
+Especially to the Iron Blood Group and the Farm Alliance Committee,
 
-校对：洛杉矶盘古农场–Mike Li
+你要保持配合和尊重
+you have to maintain cooperation and respect
 
-评论：洛杉矶盘古农场–心照
+我们接下来最关键的事情
+The next most critical thing for us
 
-编辑：洛杉矶盘古农场–心照
+以最快的时间把每个农场的代持的币一个不能少
+is to clarify the coins held by each farm as soon as possible, not one less
 
+这个代持币会是天大的事儿
+The coins will be a huge deal
 
-![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+这真是一币难求
+It’s really hard to acquire another coin
+
+接下来就是一币可以毁人呐
+then, it may destroy others just for one coin
+
+这个事儿，老班长在这呢，我求求你了
+Please Old Squad Leader
+
+你再不弄，下次直播我就天天在那喊你
+if you don’t do that, I’ll call you out each time on the future live broadcast
+
+因为后果是你先负责，第二就是长岛哥，然后就是联盟委员会，农场主
+Because you are the first one for the responsibility of the consequence, then Brother Long Island, and following by the Alliance Committee, the farm owner
+
+你农场主，你不能拿着钱你不干事儿
+As the farm owner you cannot take the money without doing anything
+
+而且我们真的要清除农场里的很多坏人
+And we really need to remove a lot of bad people in the farm
+
+就我们现在农场主说啥事，共产党就知道
+because now we have farm owners who say anything and the CCP know it right away
+
+这是很可怕的
+It’s very scary
+
+把代持的币，还有一些所谓的假义工报的币，各农场你真要查清楚
+You really have to check the coins held on behalf of the farms and the coins reported by the so-called fake volunteers
+
+这假义工报的币，就刚才我说那个例子，这很多了
+There are a lot of fake volunteer coins, just like the example I mentioned earlier
+
+他拿了币一定不干别的，就砸你
+They will not do any others but destroying the market after they got the coins
+
+还有没有签合同的，是吧？
+And also they haven’t signed a contract, right?
+
+你必须得把他的币给他收了
+You have to confiscate their coins
+
+因为你整个联盟委员会要负责任
+because your entire Farm Alliance Committee is responsible for it
+
+人家喜联储不管你那个
+Himalaya Reserve won’t care about that
+
+反正我的币给你了，你爱怎么弄怎么弄，它才不管呢
+They provided you coins, you can do whatever you like, and they don’t care
+
+但是你老班长，你长岛哥，各农场主
+But you all, Old Squad Leader, Brother Long Island, the farm owners
+
+你要是把这个币给错了，他们拿这个币来砸的时候
+if you give these coins to wrong individuals, when they use this coin to destroy our market
+
+对不起，你们必须负责任
+Sorry, you must be responsible for it
+
+这是七哥要求你要为新中国联邦负责
+This is my demand that asking you to be responsible for the New Federal State of China,
+
+你要为七万七千个战友负责任
+and to our 77,000 comrades
+
+**原视频链接：**[https://twitter.com/se1y7cblljselva/status](https://twitter.com/se1y7cblljselva/status)
+
+Date: 11/10/2021
+原视频标题: 联盟委员会和各农场主要对新中国联邦和战友们负责
+The Farm Alliance Committee and the owners of the farms are accountable to the New Federal State of China and to their comrades in arms
+原视频日期：2021/11/05
+原视频链接：https://twitter.com/se1y7cblljselva/status/1457477829294055428?s=24
+任务编号：2809
+视频时间段 : 0:00-1:57
+
+英听校：洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 

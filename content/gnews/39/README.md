@@ -2,17 +2,20 @@
 ---
 
 
-## 【文贵先生大直播PPT】青蒿素功效
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1703384/)
+## 文贵爆料11.28.2021 中共幕后主使非洲病毒新变种 意在挑起种族矛盾且打台湾
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1703729/)
 
-撰稿：飞飞及团队
-审核：三票先生，顽童先生，舒平风
+郭文贵先生在2021年11月28日大直播中指出，这次病毒新变种的出现更加证明了中共是放毒幕后的主使者，这个病毒是解放军的生化武器。再一次能准确预警新病毒奥密克戎（Omicron）的出现是因为郭先生从党内军内获得了情报。
 
-【2021年11月28日文贵先生大直播PPT：青蒿素功效】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-196.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-132.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-110.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-73.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-56.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-48.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/7-41.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/8-32.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/9-24.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/10-13.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/11-17.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/12-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/13-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/14-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/15-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/16-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/17-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/18-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/19-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/21-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-8.jpg)
-* * *
+这次的传染是都打了两针疫苗的人互相传染。而非洲只有6%的人打过疫苗，几乎不超过0.2%的人打过两针，这次病毒非洲人不可能是传染源，但他们要把这个罪过栽赃给非洲人，挑起种族与国家矛盾。中共的目的是要破坏美国和欧洲的经济，让这些国家内乱，最终目的是意在台湾。
 
-上传：云起时
+中共首先以病毒和解药威胁利诱各国参加冬奥会，第二以有解药为由不让各国干预中共打台湾。同时跟俄罗斯串通，在打台湾时俄罗斯同时攻击乌克兰，让美国分身乏术。
+
+郭先生总结道这次病毒新变种的发生一切是一种障眼法，在搞垮美欧经济趁其无暇顾及之时，攻打台湾。
+
+来源参考：[https://gettr.com/streaming/pi5gfs500d](https://gettr.com/streaming/pi5gfs500d)
+
+校对发布：Shifter
 
  
 

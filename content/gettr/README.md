@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/29/2021 2:11 AM (UTC)`
+
+11/28/2021 Miles Guo: Why did Yang Jiechi and Wang Yi go to Africa not long ago? How do dictators manage to rule the people? The outbreak of the new variant said to originate from South Africa only occurred among the vaccinated who got at least two shots<br/><br/>11/28/2021 文贵直播：中共杨洁篪和王毅前段时间为什么去非洲？世界独裁者奴役人民的套路是什么？所谓从南非出来的新病毒变种只在打了两针疫苗的人之间传播<br/>
+![img](https://media.gettr.com/group15/getter/2021/11/29/02/11/5ee1d924-4aa6-25fd-8c33-49b5051bf7f7/out.jpg)
+
+---
+
 `@miles 11/28/2021 10:52 PM (UTC)`
 
 11/28/2021 Miles Guo: We shall never forget the COVID virus originated from the CCP military’s biochemical weapons; The Chemical Defense College of PLA locates at Changping, Beijing and was built in 1998 and started its expansion since Xi Jinping took power<br/><br/>11/28/2021 文贵直播：大家不要忘记病毒是源自中共军方的生化武器，北京昌平的解放军防化学院建于1998年，其大肆发展是从习上台以后<br/>
@@ -148,13 +155,6 @@ Dr. Vladimir Zev Zelenko, a Ukrainian born, Zionist, Chasidic JEW has been arres
 
 11月25号：很多战友们在问我洗眼情的洗眼药水是什么品牌的，我在这里一并回答。不在单独回复……感恩节快乐！
 ![img](https://media.gettr.com/group27/getter/2021/11/26/01/18/8dffb59d-8aa9-d29f-fbdf-3359531a1667/9ee812a7c38db446df1c19e55da2a34d.jpg)
-
----
-
-`@miles 11/26/2021 12:17 AM (UTC)`
-
-11月25日：纽约自由号之船等待着战友们的到来…… <br/><br/>
-![img](https://media.gettr.com/group21/getter/2021/11/26/00/17/3292729e-4688-20c9-4065-de272bca4f65/4ffcada956cd4859dc6fbb3afab232a3.jpg)
 
 ---
 

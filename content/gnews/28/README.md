@@ -2,77 +2,136 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“疫苗”（二十）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1703796/)
+## 平民运动的本质就是一人一票
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1703966/)
 
-![文章配图](https://assets.gnews.org/wp-content/uploads/2021/11/1-201.png)图片来源：墨尔本雅典娜农场设计组
-整理：**BENJ1**
-编辑：李易通
+[https://gtv.org/video/id=61a36a793ff6481adce57d6d](https://gtv.org/video/id=61a36a793ff6481adce57d6d)
 
-**往期回顾：**
-[文·贵天成——文贵先生谈“疫苗”（一）](https://gnews.org/zh-hans/1645800/)
-[文·贵天成——文贵先生谈“疫苗”（二）](https://gnews.org/zh-hans/1645804/)
-[文·贵天成——文贵先生谈“疫苗”（三）](https://gnews.org/zh-hans/1668258/)
-[文·贵天成——文贵先生谈“疫苗”（四）](https://gnews.org/zh-hans/1668474/)
-[文·贵天成——文贵先生谈“疫苗”（五）](https://gnews.org/zh-hans/1668591/)
-[文·贵天成——文贵先生谈“疫苗”（六）](https://gnews.org/zh-hans/1670496/)
-[文·贵天成——文贵先生谈“疫苗”（七）](https://gnews.org/zh-hans/1670125/)
-[文·贵天成——文贵先生谈“疫苗”（八）](https://gnews.org/zh-hans/1684720/)
-[文·贵天成——文贵先生谈“疫苗”（九）](https://gnews.org/zh-hans/1684707/)
-[文·贵天成——文贵先生谈“疫苗”（十一）](https://gnews.org/zh-hans/1689446/)
-[文·贵天成——文贵先生谈“疫苗”（十二）](https://gnews.org/zh-hans/1689743/)
-[文·贵天成——文贵先生谈“疫苗”（十三）](https://gnews.org/zh-hans/1694796/)
-[文·贵天成——文贵先生谈“疫苗”（十四）](https://gnews.org/zh-hans/1695670/)
-[文·贵天成——文贵先生谈“疫苗”（十五）](https://gnews.org/zh-hans/1695638/)
-[文·贵天成——文贵先生谈“疫苗”（十六）](https://gnews.org/zh-hans/1695695/)
-[文·贵天成——文贵先生谈“疫苗”（十七）](http://xn--%28%29-zea0323aa2ch5115gefgnjf9stngzn6jfa5990db3b3w9gbu8agxefa/)
-[文·贵天成——文贵先生谈“疫苗”（十八）](http://xn--%28%29-zea0323aa2ch8081hdja45n9oungzn6jfa5990db3b3w9gbu8agxefa/)
-[文·贵天成——文贵先生谈“疫苗”（十九）](http://xn--%28%29-zea0323aa2ch5385g8qfnof9stngzn6jfa5990db3b3w9gbu8agxefa/)
+**郭文贵**
+**Miles Guo**
 
-**郭文贵先生2021年8月21日直播**：
+这是班农先生跟我第一天见面谈的问题
+This is what Mr. Bannon and I talked about the first day we met
 
-今天我想问大家关于病毒和疫苗的问题，你们发现了什么？让你打疫苗，让你相信疫苗的三个机构是哪几个？
+当政治被家族化的时候，这国家一定是独裁的
+When politics is clannish, the country must be dictatorial
 
-第一，你依赖的政府，强迫你打，诱惑你打，威胁你打。疫苗公司和政府的关系，就好比路大脑骗、蛇妖闫当中的郭文贵，用自己的最高的权威给它们背书，结果百姓都被骗得很惨。
+一定是灾难的，不可能有民主
+It must be catastrophic, and there can be no democracy
 
-第二，人类打不打疫苗、合不合法，决策权全在医疗机构那里。全世界的医疗机构的管理者，全来自于大药厂和医疗部门，因为这是它们的专业。没有任何养牛的、动物园的管理员到了卫生部门，这是不可能的。
+当有街头政治（的时候）
+When there is street and politics
 
-所有的卫生部门，都不是耍猴的，也都不是夜总会的妈咪，更不是做小姐的，全都是所谓的专业人士，它有绝对的垄断性。这就是为什么世界上的愚蠢、灾难总来自于某个垄断的领域。你看这个符合逻辑和事实。
+刚才说的就是有街头抗议的时候，它一定是有法治的
+When there are street protests, there must be rule of law
 
-第三，让你相信，让政府没有选择，控制你的一切的就是社交媒体和严肃媒体，这个事情比核武器还厉害。在这个世界上，如果媒体站在你这一边，把黑的说成白的或者绿的都是一分钟的事。全世界说黑的颜色定义错了，绿的应该是黑的，如果全世界90%的媒体都这么说，那绿的就成为黑色了。
+它一定是有未来的
+The country will certainly have a future
 
-那么，今天政府和全世界有绝对垄断性的技术部门，就是管医疗的所有官方人士、官僚人士，所有在政府里面可以百分之百的控制者和决策者——就是人民选出来的政府。他们拥有绝对的、唯一的建议权，像川普，是不是？福奇的建议，戴口罩，不戴口罩，戴两个口罩，戴一个口罩，戴三口罩，川普得听他的建议。
+而且班农先生非常清楚地跟我谈到
+And Mr. Bannon spoke to me very clearly
 
-技术官僚的沙皇化加上媒体，世界上媒体对政治家的命运影响是巨大的，甚至一天之内就把你灭了，川普总统就是最好的例子。
+班农先生说这个世界就是平民运动
+He said that this world is a civilian movement, the populism
 
-超过90%的媒体的广告收入来自大药厂，比如辉瑞制药，一个富可敌国的大药企。大家可以算算一个辉瑞制药厂的盈利，是全世界200个国家经济排名后边100个国家的和——半个地球被它控制了。
+平民运动的本质就是一人一票
+The essence of populism is one person, one vote
 
-辉瑞制药跟比尔盖茨的微软以及微软的基金加在一起和共产党的国药集团，还有所有的海外像华大基因这样的中国企业，还有这些社交媒体的大佬们混在一起，控制了80%的人类的财富和媒体。这个世界上，如果阎王爷、小鬼和菩萨和佛祖以及送生婆进行合作的时候，那就没有人类了。今天我们面对的就是这样的世界。
+他说不可思议，中国人没有选举
+He said it’s unimaginable that the Chinese people don’t have elections
 
-我们再回过来说，政府的存在，就拿西方政府还有中共政府来说，最起码是代表绝大多数人的利益，打不打疫苗要绝大部分人决定，这是个基本的逻辑。到现在为止，它让百姓接种的这些疫苗，是利用了绝大多数人的信任。以色列人是因为相信民选政府才去打疫苗，它是利用绝大多数人的投票权欺骗了百姓，以色列人是最惨的。
+班农先生第一次给我讲的就是
+The first thing Mr. Bannon said to me was
 
-第二，美国，它控制住了绝大多数的媒体。它们让你听不到任何关于疫苗副作用的信息，再加以利益诱惑，然后超过半数的美国百姓去打了疫苗。
+他说，miles这个事情，我说你看中国没有土地
+elections and votes, and I told him that China has no land
 
-至于共产党政府，那是个完全独裁化的组织，完全武器化，是魔鬼。它让你必须打疫苗，如果不打疫苗就把你绑起来强制打。大家都看到了中共一系列的行动——诱骗、威胁、强制。
+没有知识产权，ridiculous
+and no intellectual property rights. It’s ridiculous
 
-更夸张的事情，现在在加拿大还有美国各个地方，百姓如果不接种疫苗，就让你不能参加工作，这种经济的威胁大于政治的威胁。还有孩子，不打疫苗不让你上学;甚至不让你去公共场所；甚至宗教人士让你去参加宗教仪式。
+班农先生的那个眼睛就是觉得这都是不可思议的
+From Mr. Bannon’s eyes you could tell that he feels that’s unbelievable
 
-这些措施都是强制性的，它不是绝大多数人的意志。那么，是谁让它这么做的？这都是所有的垄断性的专业人士给各国政府的建议，特别以美国为例，你们完全低估了福奇的威胁性。
+班农先生是看到的
+Mr. Bannon saw the truth in China
 
-我在直播中说过多次，你们低估了福奇的威胁性，福奇影响了美国白宫，而美国白宫又影响了整个欧洲。欧洲绝对是跟着美国走的，全欧洲的国家包括日本是听美国的。一个福奇就影响了将近28亿的西方世界。
+班农先生每天在War Room讲
+Mr. Bannon speaks every day in the War Room
 
-那么，中国共产党它奴役着中国14亿人口，再把中东整个穆斯林世界、伊斯兰世界将近14亿的人口算上，它影响了28亿人。中共拿钱收买，各种洗脑、蓝金黄、欺骗性的招数都用上。本来这些国家就没有自由媒体，结果全部都被共产党欺骗了。
+这是为什么War Room is No.1 in American now
+This is why War Room is No.1 in American now
 
-28亿加28亿是多少？大家算一下，接近六十亿人口了，剩下的都是非洲的穷兄弟姐妹了，还有南美的百姓。我们是什么人？我们几乎是这个世界上人数最小的群体。我们没有媒体的控制权，我们没有绝大多数人选举的执法权，我们更没有技术上唯一的、垄断的、可信任的医学建议权。
+他为什么，他看到了，这是事实
+Why he believe it, because he saw it, and he saw the fact
 
-***发布：Candy***
+他是看到这些以后，他坚信不疑的支持中国老百姓
+After he saw the truth, he was convinced to support the Chinese people
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+这是一切的事实的结果
+This is the result of all facts
+
+所以这是我们第一天就谈到的
+So this is what we talked about on the first day we met
+
+特别是郝海东先生，叶钊颖妹妹当时出来的时候
+Especially when Mr. Hao Haidong and sister Ye Zhaoying came out later
+
+很多人没有注意到，班农先生讲了一个非常重要的话
+Many people didn’t notice that Mr. Bannon made a very important statement
+
+我们都忽视掉了
+We all overlooked it
+
+他说平民运动绝不是某个阶层的运动
+He said that the populism is not a movement of a certain class
+
+它是整个社会的运动
+It is a movement of the whole society,
+
+这才是最重要的
+and this is the most important thing
+
+他说郝海东和他夫人代表了某种阶层，特别是运动员
+He said that Hao Haidong and his wife representing a certain class of people, espe-cially athletes
+
+班农先生讲看到，他是populism
+Mr. Bannon said he saw that he(Hao) is with populism,
+
+他是班农主义非常非常重要的
+and he is very, very important to the populism
+
+所以说兄弟姐妹们，班农先生对我们真的是太重要了
+So brothers and sisters, Mr. Bannon is truly very important to us
+
+班农先生是最重要的
+Mr. Bannon is the most important
+
+给我们提供了平民运动的本质，还有宗教自由、信仰自由、独立的法治，非常重要
+He has given us the essence of the populism movement, the freedom of religion, the freedom of belief, and the independent rule of law. It’s very important
+
+Symbolic，非常有代表性，很敏感，很有代表意义的
+Symbolic, it’s very typical and sensitive, and that’s very representative
+
+**原视频链接**：[https://gettr.com/post/phn7tja3e8](https://gettr.com/post/phn7tja3e8)
+
+Date: 11/25/2021
+原视频标题: 平民运动的本质就是一人一票
+The essence of populism is one person, one vote
+原视频日期：2021/11/20
+原视频链接：https://gettr.com/post/phn7tja3e8
+任务编号：KC290（2995）
+视频时间段 : 0:00-1:53
+
+中听校: 洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 –天涯行
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 
