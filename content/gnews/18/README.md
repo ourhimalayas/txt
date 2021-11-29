@@ -2,31 +2,32 @@
 ---
 
 
-## 中概股暴跌，爱奇艺跌幅达85%
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1704062/)
+## 世卫组织为避免触怒习近平 跳过字母Xi命名新病毒
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704085/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-28.jpg)中概股暴跌，爱奇艺跌幅达85%  网络图片
-据网易新闻11月27日报道，南非新变异病毒重创全球金融市场，原油期货和美股道指大跌。中概股跌幅超过10%的公司有8家，号称“中国版奈飞”的爱奇艺股价跌幅达85.85%。爱奇艺市值曾一度超过300亿美元，约合人民币1900亿元。现在，该公司总市值仅为51.62亿美元，约合人民币330亿。
+作者：东京樱花团—在远方
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+外媒11月27日报道，世卫组织将最近在南非发现的新冠病毒变异株命名为“奥米克戎”，并没有按照希腊字母表的顺序，故意跳过了“Nu”和“Xi”两个字母，此举受到外界强烈批评，说世卫是害怕触怒中共党魁习近平。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-29-上午9.01.47.png)
+今年5月31日，世卫组织宣布使用希腊字母，顺序命名在世界各地新发现的新冠病毒变异株。而本月在南非最先发现的病毒变体应该被命名为“Nu”，但“Nu”与英文单词“new”（新）谐音，容易让人误以为是新变种。但世卫组织在弃用Nu作为命名字母后发现，下一个字母“Xi”可能与习近平引发联想，从而故意避免使用。
 
-2021年中共出手打击中概股，导致多家知名公司股价腰斩。爱奇艺业绩持续亏损，做空机构Wolfpack指出爱奇艺虚增2019年的收入。2019年，爱奇艺曾是高瓴第一大重仓股，持仓市值超过10亿美元。目前，爱奇艺已退居为高瓴第7大重仓股，持仓市值约3.1亿美元。
+美国参议院克鲁兹批评道，如果WHO如此害怕中共，当中共试图掩盖一场灾难性的全球疾病大流行时，如何能相信世卫会作出公开批评？
 
-中概股的结局比这个寒冬还要凄惨。在中共国金融环境下，这是必然的结局。假骗偷的经济能支撑多久呢？早晚一定会崩溃。随着中共继续全球释放病毒，最终会彻底摧毁经济。人类要么等着疫苗经济摧毁人类，要么起来抗争，结束中共，重新开启世界新秩序，没有第三条出路。
+参考链接：[怕犯了谁的名讳？世卫命名病毒新变种跳过希腊字母Xi](https://www.voachinese.com/a/who-covid-variant-naming-skips-xi-20211127/6330074.html)
 
-新闻参考链接：[https://c.m.163.com/news/a/GPR4I7JU0519B826.html?spss=newsapp](https://c.m.163.com/news/a/GPR4I7JU0519B826.html?spss=newsapp)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
 
-* * *
+总编：正义的小新
+编辑：Lakeman(文仁)
+校正/发稿：呼吸的雾霾（文小呼吸）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
-
-
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,48 +2,50 @@
 ---
 
 
-## 参议员要求拜登向中共国展示抵抗冬奥会的强硬力度
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1703814/)
+## 心脏病专家警告：辉瑞、莫德纳疫苗“显著增加”心脏病发作风险
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1703868/)
 
-编译： Jenny Ball
+**【简评：】***疫苗对中共病毒的预防差强人意，而它对人体心脏和心血管的危害却是致命的，现在，越来越多的人站出来反对强制疫苗接种；甚至于德国医生、诊所负责人Thomas Jendges博士因沉重的负罪感和绝望自杀身亡，并在其遗书中疾呼：“疫苗是一种种族灭绝。”  然而，面对这些事实，许多国家的政府部门仍在强制推行中共病毒疫苗接种。依此发展，势必产生两者之间的对立和冲突，导致全球性动荡和灾难。*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-893.png)图片来源 : westernjournal.com
+据《儿童健康捍卫者》记者：谢丽尔·阿特基森（Sharyl Attkisson）2021年11月24日报道：
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-895-e1638134553122.png)图片源自childrenshealthdefense.org
+在美国心脏协会会议上发表的一项分析中，婴儿心脏移植手术先驱史蒂文·冈德里（Steven Gundry）博士表示，mRNA中共病毒疫苗使许多患者面临更高的新急性冠状动脉综合症风险，例如心脏病发作。
 
-这应该很直截了当：中共国没有在人权方面采取任何行动，网球明星彭帅不能离开中国自由发声，美国不参加 2022 年北京冬奥会。
+**中共病毒辉瑞、莫德纳COVID-19 mRNA疫苗，“显著增加”了人们心脏病常见衡量指标的风险。**
 
-这似乎很简单。然而，距离奥运会开幕还有不到三个月的时间，如果说乔·拜登总统的政府发出了什么形式的信息，那似乎也是一个软弱的信息。
+这是由被称为婴儿心脏移植手术先驱的心脏病专家史蒂文·冈德里（Steven Gundry）博士最近在《循环》杂志上发表的 “警告 “。
 
-共和党阿肯色州参议员汤姆·科顿（Tom Cotton）说，这不足以抵制（中共）冬奥会。
+该分析报告，在最近的美国心脏协会会议上公布。
 
-科顿是敦促不参加奥运会的最引人注目的共和党人；据 NBC 报道，他在 11 月 18 日的一份声明中，称其为**“**种族灭绝奥运会**”**，并敦促**“**拜登政府全面抵制北京冬奥会**——**不派运动员、没有政府官员、没有企业赞助商**”**。
+冈德里（Gundry）表示，“大多数患者的显著变化”意味着他们患新的急性冠状动脉综合症的风险更高，例如心脏病发作。
 
-“我很遗憾这会阻止大约 300 名美国世界级运动员参加奥运会，”参议院情报委员会成员科顿说。 “我同情他们。然而，这届政府失败了，他们在几个月前——几个月前**——**本可以与我们的盟友合作，制定在另一个国家举办这些奥运会的计划。
+部分分析指出：“我们得出结论，mRNA疫苗显著增加了心肌内皮的炎症和T细胞对心肌的浸润，并且可能解释了疫苗接种后血栓形成、心肌病和其他血管事件增加的结果。”
 
-“国际奥林匹克运动的领导人失败了，他们本不应该将这些奥运会授予共产主义暴政。”
+冈德里（Gundry）解释说：“最近，随着莫德纳（Moderna）和辉瑞（Pfizer）的 mRNA中共病毒疫苗的出现，大多数患者的蛋白质不稳定病变特征（ PULS）衡量指标发生了显著变化。”
 
-唉，这似乎都不在拜登考虑中。在科顿发表讲话的同一天，拜登表示，白宫正在权衡所谓的外交抵制——美国官员不会在北京参加奥运会，但运动员和赞助商会去那里。
+**据报道，在接种中共病毒mRNA疫苗后，已有数千例与心脏相关的损伤病例。 这些损伤导致心脏损伤的形成和持续发展，这些病变可能变得不稳定和破裂，从而导致心脏病事件。**
 
-拜登在与加拿大总理贾斯汀·特鲁多和墨西哥总统安德烈斯·曼努埃尔·洛佩斯·奥夫拉多尔会谈之前说，这并不是一个定论——这是“我们正在考虑的事情”。
+蛋白质不稳定病变特征（Protein Unstable Lesion Signature）测试是从血管壁心脏病变渗出的最具临床意义的蛋白质生物标志物，是提供身体免疫系统对动脉损伤反应的一种测量方法。
 
-当被问及抵制的可能性时，白宫新闻秘书也同样回避。
+**科学家们已经确定了中共病毒疫苗对包括年轻人在内的一些患者的无数心脏和血液相关的影响，相关的不良事件包括形成血栓、血块和心肌炎和心包炎等心脏炎症。**
 
-科顿说，这还不够，因为政府缺乏保护美国运动员的计划——他说他大约五个月前问过白宫，最近才收到回应。
+疾病控制和预防中心（the Centers for Disease Control and Prevention）和美国食品和药物管理局（the U.S. Food and Drug Administration）表示，疫苗对他们推荐的每个人都是安全有效的，而且益处超过已知风险。但是，风险将在几年内随着越来越多人接种疫苗而出现。
 
-“而对我的信的总体回应是：他们没有计划，”科顿说。“他们没有计划保护我们的运动员、他们的教练，和他们的工作人员，免受我去年六月概述的非常真实和非常具体的危险。”
+原文连接：[https://childrenshealthdefense.org/defender/sharyl-attkisson-steven-gundry-pfizer-moderna-vaccines-heart-attack-risk/](https://childrenshealthdefense.org/defender/sharyl-attkisson-steven-gundry-pfizer-moderna-vaccines-heart-attack-risk/)
 
-这些担忧包括对美国运动员的**“**无处不在的监视**”**、**DNA **收集和劫持人质的可能性。
+翻译：洛杉矶盘古农场–WH
 
-**评论：中共暴政使中国人民饱受人间灾难，同样，向中共跪舔的政府，也在让他们的国民受到同中国人民一样的灾难，比如让运动员去到中共狼窝，都将同美国运动员一样，面对中共“无处不在的监视”、DNA 收集和劫持人质的可能性。”**
+校对：洛杉矶盘古农场–Mike Li
 
-新闻来源 ：[westernjournal.com] [Arkansas Senator Demands Biden Show China We Mean Business with One Huge Message for the Winter Olympics](https://www.westernjournal.com/arkansas-senator-demands-biden-show-china-mean-business-one-huge-message-winter-olympics/?utm_source=Email&amp;utm_medium=conservative-brief-CT&amp;utm_campaign=dailyam&amp;utm_content=conservative-tribune&amp;ats_es=dca67062709054f7bc6c6d0d828f4d01)
+评论：洛杉矶盘古农场–心照
 
-* * *
+编辑：洛杉矶盘古农场–心照
 
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-2.jpeg)
 
+![此图像的alt属性为空；文件名为WhatsApp-Image-2021-06-26-at-22.05.30.jpeg](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入: (或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

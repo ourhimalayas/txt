@@ -2,35 +2,41 @@
 ---
 
 
-## 日本约70家企业将联合测试数字货币的运行
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704086/)
+## 中共国没有法律——法律文书密集出错的真相
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1704124/)
 
-作者：飞虹
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-11月24日，日本加密货币交易所德科瑞特的首席执行官在一次新闻发布会上表示，一个由其牵头的大约70家日本企业组成的联盟，计划在未来数月内开始测试一种基于日元的数字货币，并预计在2022财年推出。这种数字货币暂时被命名为“DCJPY”，将由银行存款支持，并使用一个共同平台来加快企业之间的大规模资金转移和结算。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-29-上午9.02.03.png)
-该联盟的成员包括日本三大金融集团三菱日联金融集团、瑞穗金融集团、三井住友金融集团，日本邮政银行、经纪公司和保险公司等其他贷款机构，以及日本电信电话 、日本关西电力等非金融公司。 一些公司将参与试验，以衡量这种货币在从能源到零售的各行业使用情况。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-49.jpg)图片来源：THE BUSINESS STANDARD
 
-该联盟自2020年以来一直定期开会，研究如何为数字支付建立一个共同的结算基础设施。当前，日本央行也正在进行有关央行数字货币的测试，这个企业联盟的举动可能对央行的进度有所影响。
 
-参考链接：
-1）[https://gettr.com/post/phtrcjea10](https://gettr.com/post/phtrcjea10)
-2）[日本约70家企业将在未来数月联合测试数字货币并在2022财年推出](https://cn.reuters.com/article/japan-digital-currency-testing-plan-1124-idCNKBS2I90KV?il=0)
-3）[日本拟明年推出数字货币？数十家企业将在未来几月开始测试](https://baijiahao.baidu.com/s?id=1717308388170451219&amp;wfr=spider&amp;for=pc)
+**作者：**晨兮
+**编辑：**MSGZ
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+近日据媒体报道，中共法院判决书上出现的低级错误频现。如“安徽省南京市”这样的错误，这样的生效判决文书在裁判文书网上能搜到50多篇。而河北一起民事诉讼案的判决书上，律师事务所的名字、公司名字及涉案金额等10处出错。
 
-总编：文徬
-编辑：Lakeman(文仁)
-校正/发稿：呼吸的雾霾（文小呼吸）
+文字错误这种现象在中共国一直存在，但是频繁出现在严谨的法律文书里说明了法律在中共国的地位。以前有人说在中共国法律已死，其实在中共国从来都没有过法律。事实上也是如此，对中共来说承诺和约定可以随意撕毁，变成“历史文件”，法律更是社会主义的玩物和装饰。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+从历史上看共产主义主张的暴力革命首先就是打碎法律制度夺取政权。一群尝到无法无天甜头的暴徒，武力夺取政权后，不可能遵守法律，给自己为所欲为的身体套上法律的枷锁。所有以共产主义理论建立的社会主义国家，都没有法律。中共利用法律为党服务已发展到极致。
+
+法律文书错误频出反应以下问题：
+
+首先，基层法官人数少。一个基层判案（干活）法官一年审理一百多案件，有时达到两百。中共国不缺人，但是法院编制有限，多数人热衷于搞行政和党务，没人愿意干实事，大家都是想“捞一把”，目的是升官发财。
+
+其次，进法院必须有关系。在法律健全的国家是从资深律师和法律从业者里选拔法官，而在中共国进法院，主要靠关系，偶尔摆样子在社会上考试招聘，选择标准是能听话易于摆布。即使这样，办案法官也要随时关注人际关系，领导眼色。
+
+平时工作中，审案并不是首要，案件里有错没关系，领导的节奏没把握住才是关系身家性命的大事。其实一桩案件审结经过几个程序，判决书生效前至少有两道审查，分别是厅长和主管院长，如果案件复杂还要上审判委员会。一个判决书的错误反应的是整个法院的状况，而不是他们报道所说“责任心”问题。
+
+审案法官是权力操纵的木偶，前几天国内疯传云南广南县八零后女法官受领导压力被迫制作478份假裁定的案件。这充分说明中共国的法官和法律是权力的工具，权力在法律的名义下合法实施犯罪。
+
+其实中共就是犯罪集团，绑架了十四亿中国人，还想把他们的犯罪模式输出到全世界。没有人能明哲保身，也没有国家能够免受中共国的影响。只有认识到中共邪恶本质，抛弃幻想，坚持正义，才能建立和维护安定健全的法律国家，让人民有自由、有保障、有尊严体面的生活。
+
+*发布：翼族*
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

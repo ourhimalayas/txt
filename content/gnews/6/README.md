@@ -2,26 +2,21 @@
 ---
 
 
-## [美国食品和药物管理局]无意公布新冠病毒疫苗信息
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1704141/)
+## 雅典娜时报-第127期
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1704160/)
 
-原文采编：UCool优酷    翻译编辑：文所未闻
-![](https://assets.gnews.org/wp-content/uploads/2021/11/01-picture.jpg)
-据英国《每日邮报》近日报道，针对由公共卫生和医疗专业人士提出的“要求披露[辉瑞公司]产新冠病毒疫苗信息”的申请，[美国食品和药物管理局]称需要等55年方可处理完毕。
+#### **《雅典娜时报》汇聚全球新闻时事**
 
-据悉，该申请是由30多名教授和科学家组成的[公共医疗卫生透明化组织]根据《信息自由法》而发起的，意在得到一些关于疫苗真相的信息。而该法的目的则是为了确保政府部门的透明度，并规定联邦政府机构需在20个工作日内对信息请求作出回应。
+#### 编辑：精靈藍
+排版：小蚂蚁614
+![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_29.png)![](https://assets.gnews.org/wp-content/uploads/2021/11/773_x_1151_px_30.png)
+***发布：小红帽***
 
-报道称，[美国食品和药物管理局]以文件量巨大且目前人手不足为由，将该申请的处理时间推至2076年。但申请组织则坚称，该局工作人员充足且资料完备，应该能够在2022年3月前对外披露相关疫苗信息。
-
-（以上内容仅代表原文信息和作者个人观点）
-
-校对编辑：硫酸羟氯喹64
-
-发稿：苦尽甜来 (文來）
-
-[原文链接](https://www.dailymail.co.uk/health/article-10222035/FDA-says-need-55-YEARS-make-vaccine-related-information-available-public.html)
-
-
+**更多资讯，请关注：**
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)[澳大利亚墨尔本雅典娜农场](https://discord.gg/KQQVvwBNvm)Discord
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

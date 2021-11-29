@@ -2,76 +2,148 @@
 ---
 
 
-## 文·贵天成——文贵先生谈“疫苗”（二十二）
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1703970/)
+## 联盟委员会和各农场主要对新中国联邦和战友们负责
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1703996/)
 
-**整理：BENJ1
-编辑：李易通**
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-204.png)图片来源：墨尔本雅典娜农场设计组
-**往期回顾：**
-[文·贵天成——文贵先生谈“疫苗”（一）](https://gnews.org/zh-hans/1645800/)
-[文·贵天成——文贵先生谈“疫苗”（二）](https://gnews.org/zh-hans/1645804/)
-[文·贵天成——文贵先生谈“疫苗”（三）](https://gnews.org/zh-hans/1668258/)
-[文·贵天成——文贵先生谈“疫苗”（四）](https://gnews.org/zh-hans/1668474/)
-[文·贵天成——文贵先生谈“疫苗”（五）](https://gnews.org/zh-hans/1668591/)
-[文·贵天成——文贵先生谈“疫苗”（六）](https://gnews.org/zh-hans/1670496/)
-[文·贵天成——文贵先生谈“疫苗”（七）](https://gnews.org/zh-hans/1670125/)
-[文·贵天成——文贵先生谈“疫苗”（八）](https://gnews.org/zh-hans/1684720/)
-[文·贵天成——文贵先生谈“疫苗”（九）](https://gnews.org/zh-hans/1684707/)
-[文·贵天成——文贵先生谈“疫苗”（十一）](https://gnews.org/zh-hans/1689446/)
-[文·贵天成——文贵先生谈“疫苗”（十二）](https://gnews.org/zh-hans/1689743/)
-[文·贵天成——文贵先生谈“疫苗”（十三）](https://gnews.org/zh-hans/1694796/)
-[文·贵天成——文贵先生谈“疫苗”（十四）](https://gnews.org/zh-hans/1695670/)
-[文·贵天成——文贵先生谈“疫苗”（十五）](https://gnews.org/zh-hans/1695638/)
-[文·贵天成——文贵先生谈“疫苗”（十六）](https://gnews.org/zh-hans/1695695/)
-[文·贵天成——文贵先生谈“疫苗”（十七）](http://xn--%28%29-zea0323aa2ch5115gefgnjf9stngzn6jfa5990db3b3w9gbu8agxefa/)
-[文·贵天成——文贵先生谈“疫苗”（十八）](http://xn--%28%29-zea0323aa2ch8081hdja45n9oungzn6jfa5990db3b3w9gbu8agxefa/)
-[文·贵天成——文贵先生谈“疫苗”（十九）](http://xn--%28%29-zea0323aa2ch5385g8qfnof9stngzn6jfa5990db3b3w9gbu8agxefa/)
-[文·贵天成——文贵先生谈“疫苗”（二十）](http://xn--%28%29-zea0323aa2ch1126g5efoof8stngzn6jfa5990db3b3w9gbu8agxefa/)
-[文·贵天成——文贵先生谈“疫苗”（二十一）](http://文·贵天成——文贵先生谈“疫苗”（二十一）)
+[https://gtv.org/video/id=61a36ae83ff6481adce57d90](https://gtv.org/video/id=61a36ae83ff6481adce57d90)
 
-**郭文贵先生2021年8月21日直播**
+**郭文贵**
+**Miles Guo**
 
-七哥百年后，你们永远记住七哥说过的最伟大的话，我是人类上第一个带领新中共国联邦、爆料革命告诉人类，冠状病毒是共产党的生化武器。我在2017年预告给大家黑暗即将来临，我在2019年6月份告诉大家，共产党准备好了准生化武器对付香港的游行示威者。
+另外一个，我再重申一遍
+Another one, I reiterate
 
-我又在2019年12月告诉大家，共产党准备用各种超限武器对付世界，包括整个“灭白计划”都是七哥最早说的，包括共产党的“13579”整个计划，那不是你们能猜到的。还有我是最早说的，疫苗灾难、疫苗经济才是主题。
+任何战友，特别是投资战友不准随便发言
+Any comrades, especially ones with investment are not allowed to comment freely
 
-我是人类第一个说的硫酸羟氯喹加锌预防中共病毒有效，不是大胡子。
+你要承担法律后果
+You will be bearded the legal consequences
 
-硫酸羟氯喹加锌我真不是从大胡子那听说的，更不是蛇妖闫那傻叉，那时候她正在香港偷着吃炒鸡蛋呢。这些是国内的我们的将军告诉我的，因为他被指定负责生产大量的硫酸羟氯喹加锌包括阿奇霉素，还有另外的三种药，我不敢在这随便说，因为害怕大家去买。
+你要承担法律（后果）
+You have to bear the legal consequences
 
-这是2019年3月份，他负责这事，我们的将军说他知道这东西是怎么回事，因为他负责大量的生产。科兴还有国药备的药原料来自哪里？大家查查，mRNA蛋白所有需要的激活剂、增加免疫力的东西是怎么回事儿。
+你是战友，因为你拿的一毛钱买的币，这是跟给你没啥两样
+You are a comrade in arms because of you have the HCoins with ten cents purchase price benefit which is no different from giving you for nothing,
 
-它简单的不能再简单，共产党大量的储备这些药物，然后大量的囤积口罩、PPE。七哥说的话是基于情报的，我没有听任何人的，这个天知地知我知，我也没让你们任何人付钱，更不像路大脑袋，什么都是自己的，“119”改变人类，他其实什么也不懂。
+倒贴钱给你，你还在那块儿
+and also back paying you the money. You are still there to criticize
 
-病毒和疫苗，最核心的战争就是疫苗战争，你可能躲过病毒，但你躲不过疫苗。我再告诉大家，你去想想，现在还有人关注病毒哪来的吗？焦点都是在打不打疫苗的问题上。这场人类的疫苗大战太牛了，疫苗大战可以控制全人类80%—90%的人的生活方式、经济方式、生死时间，而且成功地转移掉阿富汗、香港的大虐杀以及对台湾的威胁，包括在俄罗斯、中欧一系列的地缘政治的变化，你根本没看见。
+哎呦，真把自己当成投资者身份了
+Wow, you really identified yourself as investors
 
-全人类正在进行的虚拟货币、数字货币，全人类的财富大腾移都在同一时间发生，而且疫情把所有人关在了家里。
+然后在那块儿批评，你以为你是伪类啊
+and then, criticize here and there. You thought you are under-covered communist?
 
-而更重要的，我再重申下，上次我在直播中说的有些词儿用的不准确，疫苗还有病毒，杀死的不仅是残疾的年轻人，是所有种族里的最弱势的不健康的人士，如果你的基因不健康或者身体有毛病，基本上打了疫苗都得死。
+是不是？你想骂就骂，你想干啥就干啥
+Don’t you? You can criticize whatever you want and do whatever you want
 
-那么今天我告诉你，这个疫苗还有病毒给人类带来了一个最大的思考机会。70年的和平让人类已经忘掉了屎有多臭，只知道肉有多香。
+你拿了一毛钱的币，你就必须维护这个币
+You have gotten the coin at a dime, you must defend the coin
 
-就像今天的台湾，台湾2300万人民真的只知道肉香，绝对不知道屎臭。他们绝不相信共产党能来，真的会像在阿富汗发生的一样，共产党拿枪就给你突突了，然后就把你埋了。他绝不相信共产党会把你的钱拿走。如果你去问台湾那些卖台贼，他们绝不相信跟了共产党，会像过去那些地主以及推翻地主的刘少奇、彭德怀一样都走进火葬场；会像那些帮助毛泽东杀了无数的人的几千万知识青年（红卫兵）一样，被送回农村全死在床上或者变成变态狂，他们不相信这些。我今天举的这个例子，战友们看到没有，它跟今天的爆料革命的缩小版一模一样。
+这点要求一点不过分吧？
+This is not too much to ask, right?
 
-总结一下，我说这些是想告诉你们:人类长期接受媒体的、文化的、教育的、宗教的综合洗脑，实际上我们人类今天的物质文明和地球上爆发式增加的人口所面临的认知和判断事情的方式和标准完全不成比例，听懂我的意思了吗，兄弟姐妹们？
+特别是对铁血组，特别是对联盟委员会
+Especially to the Iron Blood Group and the Farm Alliance Committee,
 
-就是人类今天拥有的财富、地球的文明、人类的科技与人类认知的发展完全不成比例，航天飞机都到月球甚至火星去了，但人类却在被一帮骗子欺骗。你看比尔·盖茨你就看得出来，你看CDC、美国总统就看得出来，你看那一个个欧洲国家的首相就看得出来，像默克尔，她的身边人跟我都一直有合作，他说默克尔真的打了疫苗，而且打了不止一针。
+你要保持配合和尊重
+you have to maintain cooperation and respect
 
-我告诉你，人类今天的文明和地球人类的思想认知出现了巨大的矛盾。人类不是所有人每天都可以活着，而是每天生生死死。我可以告诉你，由于愚蠢，人类真的到了受到最大的诅咒、该买单的时候，这是第一条。
+我们接下来最关键的事情
+The next most critical thing for us
 
-第二条，七十年来人类过去赖以生存的宗教和信仰在人类物质的大发展面前已经丧失殆尽。人类活着实际上就是吃、喝、穿、睡，然后要尊严，最后面临生死。宗教给人类解决了如何面对生死问题，给你许诺了各种死了不死、死了上天堂有处女、死了以后你可以不死再托生，佛教、各种教，叫你长寿或者不死或者死了有轮回。
+以最快的时间把每个农场的代持的币一个不能少
+is to clarify the coins held by each farm as soon as possible, not one less
 
-人类剩下的除了性、毒品，别忘了毒还包括整个的精神病毒——社交媒体和媒体的绝对控制，让人类走向了一个真正的魔道。
+这个代持币会是天大的事儿
+The coins will be a huge deal
 
-***发布：Candy***
+这真是一币难求
+It’s really hard to acquire another coin
 
-更多资讯，请关注：
-[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+接下来就是一币可以毁人呐
+then, it may destroy others just for one coin
+
+这个事儿，老班长在这呢，我求求你了
+Please Old Squad Leader
+
+你再不弄，下次直播我就天天在那喊你
+if you don’t do that, I’ll call you out each time on the future live broadcast
+
+因为后果是你先负责，第二就是长岛哥，然后就是联盟委员会，农场主
+Because you are the first one for the responsibility of the consequence, then Brother Long Island, and following by the Alliance Committee, the farm owner
+
+你农场主，你不能拿着钱你不干事儿
+As the farm owner you cannot take the money without doing anything
+
+而且我们真的要清除农场里的很多坏人
+And we really need to remove a lot of bad people in the farm
+
+就我们现在农场主说啥事，共产党就知道
+because now we have farm owners who say anything and the CCP know it right away
+
+这是很可怕的
+It’s very scary
+
+把代持的币，还有一些所谓的假义工报的币，各农场你真要查清楚
+You really have to check the coins held on behalf of the farms and the coins reported by the so-called fake volunteers
+
+这假义工报的币，就刚才我说那个例子，这很多了
+There are a lot of fake volunteer coins, just like the example I mentioned earlier
+
+他拿了币一定不干别的，就砸你
+They will not do any others but destroying the market after they got the coins
+
+还有没有签合同的，是吧？
+And also they haven’t signed a contract, right?
+
+你必须得把他的币给他收了
+You have to confiscate their coins
+
+因为你整个联盟委员会要负责任
+because your entire Farm Alliance Committee is responsible for it
+
+人家喜联储不管你那个
+Himalaya Reserve won’t care about that
+
+反正我的币给你了，你爱怎么弄怎么弄，它才不管呢
+They provided you coins, you can do whatever you like, and they don’t care
+
+但是你老班长，你长岛哥，各农场主
+But you all, Old Squad Leader, Brother Long Island, the farm owners
+
+你要是把这个币给错了，他们拿这个币来砸的时候
+if you give these coins to wrong individuals, when they use this coin to destroy our market
+
+对不起，你们必须负责任
+Sorry, you must be responsible for it
+
+这是七哥要求你要为新中国联邦负责
+This is my demand that asking you to be responsible for the New Federal State of China,
+
+你要为七万七千个战友负责任
+and to our 77,000 comrades
+
+**原视频链接：**[https://twitter.com/se1y7cblljselva/status](https://twitter.com/se1y7cblljselva/status)
+
+Date: 11/10/2021
+原视频标题: 联盟委员会和各农场主要对新中国联邦和战友们负责
+The Farm Alliance Committee and the owners of the farms are accountable to the New Federal State of China and to their comrades in arms
+原视频日期：2021/11/05
+原视频链接：https://twitter.com/se1y7cblljselva/status/1457477829294055428?s=24
+任务编号：2809
+视频时间段 : 0:00-1:57
+
+英听校：洛杉矶盘古农场 – Mike Li
+翻译: 洛杉矶盘古农场 – Mike Li
+翻译终校：洛杉矶盘古农场 – 郭班之樱
+字幕+视频制作：洛杉矶盘古农场 – 青梅煮酒
+审片：洛杉矶盘古农场 – 银龙
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

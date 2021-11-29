@@ -2,55 +2,46 @@
 ---
 
 
-## 2021年11月28日郭文贵先生直播摘要——银河系农场
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1703987/)
+## 亚洲股市下挫，交易商关注欧洲病毒病例
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1704043/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/snapshot-2.jpg)
-视频连接：[2021年11月28日 文贵大直播：新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破](https://gtv.org/video/id=61a3828b44c1fe7a6c3aaf29)
+**据《www.foxbusiness.com》，2021年11月26报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/67-a3a4l-koqqt-2.jpg)2021年11月26日星期五，在韩国首尔的一家外汇交易室，一名货币交易员从显示韩国综合股价指数（KOSPI）的屏幕前走过。 (AP Photo/Lee Jin-man)
+**东京日经225指数暴跌2.5%，至28,779.03点，幅度异常之大。**
 
-1、新变种病毒Omicron从南非向欧洲和北美：非洲不可能是传染源，但是要嫁祸非洲，目的制造种族仇恨，真正的传染源还是在美国西部，两三周前就开始了；
+亚洲股市周五下挫，因为交易员们看到欧洲的冠状病毒病例激增，以及有可能扰乱贸易和旅行的反疾病控制。
 
-2、这更加证明了中共正在向全球释放新的病毒，病毒就是解放军的生物武器，昌平生化部队1998年建立，2012年习上台后大肆扩张；
+上海、东京、香港和悉尼的股市都出现了下跌。美国市场周四因假期休市。
+奥地利在其每天的病毒死亡人数增加了两倍之后，在全国范围内实行了为期10天的封锁，而意大利则对未接种疫苗的人的活动进行了限制。美国政府建议美国人避开德国和丹麦。摩洛哥在其每日新增病例超过30,000例后暂停了来自法国的航班。
 
-3、所有这次感染的人都是打了两针的人，是打了疫苗之间的人相互传染；
+ActivTrades的安德森·阿尔维斯（Anderson Alves）在一份报告中说，“交易员将密切关注整个欧洲新的COVID浪潮”。 Alves说，中共国实施的限制航运人员进入的遏制措施正在“延长”全球贸易危机。
 
-4、这次又开始全球放毒习近平已经彻底疯了，希特勒名言：我以梦游者的自信走向我的命运，习近平崇拜希特勒，习大神的中国梦就来自希特勒的名言，所有独裁者都会编辑一个自己是神的谎言；
+上海综合指数下跌0.4%，至3,569.86点，东京的日经225指数暴跌2.5%，至28,779.03点，幅度异常之大。香港恒生指数暴跌1.9%，至24,260.94点。
 
-5、CCP放毒制造世界动乱，全球供应链崩溃，当世界陷入彻底的混乱所有的金钱都失去了价值和意义，饿死人比病死人更可怕；
+首尔的Kospi指数下跌1%至2,949.71点，悉尼的S&P-ASX200指数跌至7,301.90点。新西兰和东南亚市场也出现了下跌。
 
-6、共产党放毒就是为了制造动乱，目的是台湾。通过解药，要挟各国参加奥运会；
+华尔街的基准指数标普500指数周三收盘上涨0.2%。美国市场将于周五重新开盘，交易时间缩短。
 
-7、习近平这次是真要挑战美国 而且还拉俄罗斯一起干，习是真疯了 他是真要灭美国 真心想要打台湾；
+在美联储官员在本周公布的10月份会议记录中表示，他们预见到了通过比先前计划更早加息来应对更高的通货膨胀的可能性，之后的投资者将更加谨慎。
 
-8、谷歌告诉你的 是它想让你看到的 而不是你想知道 很多真相是无法搜索到的；
+金融市场曾被强劲的美国企业盈利，以及全球经济正从去年因大流行病导致的历史性活动下降中的反弹迹象所鼓舞。美联储和其他央行推出的宽松信贷和其他措施提振了股票价格。
 
-9、关于福利币：当初大家是集体决定就应该服从所有人的利益 谁牺牲战友的利益 谁就是我们的敌人 七哥会不惜一切代价来维护战友们的利益 我们要一起吃肉、一起吃丸子、不要兑水！
+投资者担心，由于通货膨胀强于预期，央行官员可能会感到压力，要比计划的时间更早地撤出刺激措施。美联储早些时候表示，它预计将把利率维持在低水平，直到明年年底。
 
-10、郭七条一定要坚持，不反国家 不反民族，反对以黑治国、以警治国；
+在能源市场，纽约商品交易所的电子交易中，基准美国原油下跌1.68美元，至每桶76.71美元。作为国际石油价格基础的布伦特原油在伦敦下跌了1.29美元，至每桶79.63美元。
 
-11、当超市供应出问题了、汽油的价格和加油的供应出了问题、股票市场出现了起伏和暴跌暴涨的时候，就是经济危机了，这次经济危机+疫苗灾难，会有3年-5年困难期，5-10年的调整期；
+美元从周四的115.36日元跌至114.62日元。欧元从1.1221美元升至1.1224美元。
 
-12、所罗门骚乱事件是美国操作的事件，目的把中共在所罗门军事基地赶出去；
+原文连接：[https://www.foxbusiness.com/markets/asian-stock-markets-sink-traders-watch-europe-virus-cases](https://www.foxbusiness.com/markets/asian-stock-markets-sink-traders-watch-europe-virus-cases)
 
-编辑整理：文俊
+翻译：洛杉矶盘古农场 — TrueSky
+校对：洛杉矶盘古农场 — Mike Li
+编辑：洛杉矶盘古农场 — 心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-发布：黎明之前
-
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准。
-
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
-
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
-
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
  
 

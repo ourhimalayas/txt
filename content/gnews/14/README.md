@@ -2,32 +2,51 @@
 ---
 
 
-## 世卫组织为避免触怒习近平 跳过字母Xi命名新病毒
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704085/)
+## 参议员汤姆·科顿： 世卫就是个笑话，他们对中共产感情的关注，更甚于对公众健康
+` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1704123/)
 
-作者：东京樱花团—在远方
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
-外媒11月27日报道，世卫组织将最近在南非发现的新冠病毒变异株命名为“奥米克戎”，并没有按照希腊字母表的顺序，故意跳过了“Nu”和“Xi”两个字母，此举受到外界强烈批评，说世卫是害怕触怒中共党魁习近平。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕快照-2021-11-29-上午9.01.47.png)
-今年5月31日，世卫组织宣布使用希腊字母，顺序命名在世界各地新发现的新冠病毒变异株。而本月在南非最先发现的病毒变体应该被命名为“Nu”，但“Nu”与英文单词“new”（新）谐音，容易让人误以为是新变种。但世卫组织在弃用Nu作为命名字母后发现，下一个字母“Xi”可能与习近平引发联想，从而故意避免使用。
+参议员汤姆·科顿： 世卫组织WHO就是个笑话。 他们对 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的感情的关注，更甚于对公众健康的关注。 拜登总统再也不应该在没改革之前资助这个腐败的，[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的傀儡组织。
 
-美国参议院克鲁兹批评道，如果WHO如此害怕中共，当中共试图掩盖一场灾难性的全球疾病大流行时，如何能相信世卫会作出公开批评？
 
-参考链接：[怕犯了谁的名讳？世卫命名病毒新变种跳过希腊字母Xi](https://www.voachinese.com/a/who-covid-variant-naming-skips-xi-20211127/6330074.html)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11%E6%9C%88%E5%B0%8F%E5%9B%BE-1.png)
+> The WHO is a joke. 
+> 
+> They're more concerned about the feelings of the Chinese Communist Party than they are about public health. 
+> 
+> President Biden should never have resumed funding to this corrupt puppet of the CCP without reform.
+> — Tom Cotton (@TomCottonAR) [November 27, 2021](https://twitter.com/TomCottonAR/status/1464609398693769222?ref_src=twsrc%5Etfw)
 
-总编：正义的小新
-编辑：Lakeman(文仁)
-校正/发稿：呼吸的雾霾（文小呼吸）
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+
+参议员泰德·克鲁兹： 福奇是一位未经选举产生的技术官僚，他歪曲科学和事实，以便对数百万美国人实行独裁控制。 他生活在一个自由主义的世界里，他自鸣得意的“我代表科学”的态度受到了赞扬。 事实如下：5月11日，福奇在参议院委员会作证说，“国家卫生研究院从来没有，现在也没有资助 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 武毒所的’功能增强’研究。”10月20日，国家卫生研究院写道，他们资助了武汉实验室的一项实验，测试“在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 传播的自然发生的蝙蝠冠状病毒的棘突蛋白是否能够与小鼠模型中的人类ACE2受体结合。”这就是功能增强研究.福奇的声明和国家卫生研究院10月20日的信件不可能都是真的。这些说法是直接矛盾的。 （4）《美国法典》第18卷第1001节规定，向国会撒谎是重罪，最高可判处5年监禁。再多的人身攻击也无济于事，民主党的论据无法使蝠奇摆脱这一矛盾。 福奇要么需要详细说明实质内容，并提供具体的事实佐证，否则司法部应考虑起诉他，因为他向国会做虚假陈述。
+
+
+
+> (1) On May 11, Fauci testified before a Senate Committee that “the NIH has not ever and does not now fund gain-of-function research in the Wuhan Institute of Virology.”
+> — Ted Cruz (@tedcruz) [November 28, 2021](https://twitter.com/tedcruz/status/1465085974849937413?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰德·克鲁兹： 这是对我们的盟友和伙伴的一个不幸而残酷的提醒，提醒人们 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的资金是他们用来侵蚀其他国家主权和夺取其关键基础设施的有毒债务陷阱。 【转“坦桑尼亚更新”的推文：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 将接管乌干达的恩德培(Entebbe) 国际机场以抵偿债务。…【转“坦桑尼亚更新”的推文：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 将接管乌干达的恩德培(Entebbe) 国际机场以抵偿债务。 中共国拒绝了乌干达提出的对六年前为机场扩建项目所选择的2亿美元贷款中的有毒条款进行重新谈判的要求。 此机场是该国唯一的国际机场】
+
+
+
+> This is an unfortunate and brutal reminder to our allies and partners that Chinese money is a toxic debt trap they use to erode other countries' sovereignty and seize their critical infrastructure. [https://t.co/YyVLzqQmwf](https://t.co/YyVLzqQmwf)
+> — Ted Cruz (@tedcruz) [November 28, 2021](https://twitter.com/tedcruz/status/1465040109359837184?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的债务陷阱外交正在起作用。 他们得寸进尺。 【转“坦桑尼亚更新”的推文： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 将接管乌干达的恩德培国际机场以抵偿债务。 中共国拒绝了乌干达提出的对六年前为机场扩建项目所选择的2亿美元贷款中的有毒条款进行重新谈判的要求。 此机场是该国唯一的国际机场】
+
+
+
+> Communist China’s debt trap diplomacy at work. 
+> 
+> Give them an inch, and they’ll take a mile. [https://t.co/I1PEkTgyhA](https://t.co/I1PEkTgyhA)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 27, 2021](https://twitter.com/MarshaBlackburn/status/1464724579226722306?ref_src=twsrc%5Etfw)
+
+
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
