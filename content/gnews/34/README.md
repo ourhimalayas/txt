@@ -2,32 +2,23 @@
 ---
 
 
-## 铁元素与青蒿素的作用机制
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704553/)
+## 秘翻在线：日本封国！将禁止全世界外国人入境
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1704611/)
 
-作者：纽约香草山农场 – 晓仙女
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月27日，香草山农场发布一则盖文——“青蒿衍生物与铁元素”音频，对青蒿素使用中铁元素的使用和注意事项进行了详细介绍。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture283.jpg)
-盖文称，由于青蒿素的亲铁性，拥有足量的铁蛋白、血红蛋白和转铁蛋白，对于青蒿衍生物发挥最佳功效至关重要。患缺铁性贫血的人，甚至处于生理周期的健康女性，因自身铁元素含量少，如服用青蒿素需提前考虑补充缺失的铁剂。
+翻译：文字燒
+![](https://assets.gnews.org/wp-content/uploads/2021/11/16381658161.png)图片来源：原文链接
+为了应对中共病毒的一个新变种–Omicron株的全球蔓延，岸田首相已宣布全面暂停所有外籍人士入境。
 
-人体吸收率最高，副作用最低的铁产品是亚铁血红素，它可与所有青蒿衍生物结合。维生素C与铁同服可以增加铁元素吸收，但铁不适合与镁、锌、钙和茶同时服用，会降低身体对铁的吸收。
+岸田首相表示：作为一项紧急预防措施，从11月30日午夜0点开始，日本将禁止全世界外国人进入日本。
 
-参考链接：[铁元素与青蒿素的作用机制](https://gettr.com/post/pi4i9wc782)
+到目前为止，政府已经在9个国家加强了隔离措施，包括南非，那里已经确认了Omicron菌株，并且已经停止了新的入境者。 岸田首相进一步加强了这一措施，并宣布将暂时停止所有外国公民的入境，包括暂停从本月8日开始破例允许以商务为目的的短期访客、外国学生和技术实习生进入日本。 此外，从已确认为Omicron菌株的国家返回的日本国民将被要求在指定设施中进行隔离。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+岸田首相还透露，更严格的控制措施所针对的国家之一–纳米比亚的一人被怀疑对中共病毒检测呈 “阳性”。 然而，目前还不知道他是否感染了Omicron菌株。
 
-总编：文特
-编辑：飞虹
-校对/发稿：Hetangyuese
+信息来源：[https://news.tbs.co.jp/newseye/tbs\_newseye4415498.html](https://news.tbs.co.jp/newseye/tbs_newseye4415498.html)
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+责编：待命（文晓）
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

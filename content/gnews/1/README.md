@@ -2,28 +2,45 @@
 ---
 
 
-## 腾讯财付通涉2千元外汇违规，被重罚278万元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704940/)
+## 荷兰军警突袭飞机以逮捕逃离隔离区的夫妇
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1705002/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-57.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fp2.itc.cn%2Fq_70%2Fimages03%2F20211128%2Fa53db950eee64aff89d58ff9a4d514bf.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F504030795_120952561&amp;tbnid=m20lZ1YOk9t63M&amp;vet=12ahUKEwjA-MDKlr30AhU0oVsKHdxPDTUQMygIegUIARCvAQ..i&amp;docid=McIr7gGeNHYuxM&amp;w=1080&amp;h=648&amp;q=%E8%85%BE%E8%AE%AF%E8%B4%A2%E4%BB%98%E9%80%9A&amp;ved=2ahUKEwjA-MDKlr30AhU0oVsKHdxPDTUQMygIegUIARCvAQ)
-中共国家外汇管理局深圳市分局近日公布的行政处罚信息显示，微信支付的运营主体——财付通支付科技有限公司11月22日被罚278万元。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-50.jpg)
-据中共国外汇管理局深圳市分局开出的深外管检[2021]43号行政处罚决定书，财付通存在未按规定报送相关材料、超过登记范围开展外汇业务、未按规定办理售汇业务、未按规定采集必要信息等四项违法事实。
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-中共国外汇管理局深圳市分局对财付通作出责令改正，给予警告，没收违法所得0.2万元，处以罚款人民币278万元的行政处罚。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/2018-11-21-KMAR-description-1.jpg)
 
-据天眼查APP显示，财付通成立于2006年，注册资本10亿元。深圳市腾讯计算机系统有限公司、深圳市世纪凯旋科技有限公司分别持有95%和5%的股份。
 
-另据中国基金报报道，针对被处罚278万元一事，财付通11月28日回应称，针对2019-2020年例行检查中发现的问题，财付通已第一时间制定了改进计划，并逐项落实，目前已全部完成整改。后续将在国家外汇管理局深圳市分局的指导下，进一步加强合规管理。
+ 
+图片来源： www.fiep.org
 
-消息来源:
 
-[腾讯财付通被罚278万 涉超范围开展外汇业务等“四宗罪”](https://finance.sina.com.cn/chanjing/gsnews/2021-11-29/doc-ikyamrmy5773895.shtml)
+#### 编译：小红帽
 
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
+一对疑似携带Omicron病毒的已婚夫妇逃离了荷兰的一家隔离酒店，但在该夫妇的航班即将起飞时，军警从飞机上把他们带走了。
+
+荷兰武装部队在一份声明中证实，这起戏剧性事件发生在阿姆斯特丹史基浦机场，当时该航班将于周日下午 6 点左右起飞前往西班牙。
+
+当局没有公布这对被拘留的夫妇的身份，目前还不清楚他们是被感染还是只是为了预防而被隔离。军警将他们移交给卫生官员，并送往另一个隔离设施。
+
+周五，在所有27个欧盟成员国同意暂时禁止来自七个南部非洲国家的旅行之前，在航空公司乘客中发现了十多例新的Omicron新冠病毒（COVID-19）变种病例后，荷兰处于高度戒备状态。
+
+所有最近从南非以及博茨瓦纳、马拉维、莱索托、埃斯瓦蒂尼、纳米比亚、莫桑比克和津巴布韦抵达荷兰的人，即使接种了新冠疫苗，也必须接受检测和隔离，直到结果出来。
+
+在合共624名乘客中，约有61人的新冠病毒检测呈阳性，因此荷兰国家卫生研究所 (RIVM) 警告说，“新的变种可能会在更多的测试样本中被发现。”
+
+“我们将控制人们是否遵守这些规则，”荷兰卫生部长雨果·德容格 (Hugo de Jonge) 周日宣布，就在该夫妇企图逃跑的前几个小时。
+
+**参考新闻：**[Military police raid plane to arrest couple trying to flee quarantine — RT World News](https://www.rt.com/news/541586-netherlands-couple-flee-quarantine/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,45 +2,24 @@
 ---
 
 
-## 库什纳在中东寻找新公司的投资者
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1702201/)
+## 秘翻在线：卡塔尔的一项研究发现，新冠康复者再次感染和患上重症的风险非常低
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1702543/)
 
-翻译： 香草山金融部 – AT
+#### 翻译/撰稿：zzballack
 
+#### 校对：胡天
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-866.png)图片来源：CNN
+据《新唐人》11月27日报道，《新英格兰医学杂志》（New England Journal of Medicine）11月24日发表的一项研究发现，新冠康复者再次感染新冠病毒的风险很低，患上重症的概率也微乎其微。如果一个人在第一次感染后至少90天内检测出阳性，则算作再次感染。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-40-1-9-11.png)
+卡塔尔的研究人员对国家数据库中收录的35.3万名经核酸测试后确认感染新冠的患者进行研究，这些患者在2020 年 2 月28日至 2021 年 4 月28期间感染了新冠病毒。在拥有自然免疫力且没有接种疫苗的人中，仅有1304名再次感染者，只占0.4%；另有4位重症患者，占总人数的0.1%。这意味着那些具有自然免疫力的新冠康复者再次感染新冠和患上重症的风险几乎没有。再次感染的人中，没有死亡病例记录。本次统计没有计入大约8万7500名接种过新冠疫苗的人。
 
+卡塔尔威尔康奈尔医学院（Weill Cornell Medicine–Qatar）的研究员莱斯·J·阿布-拉达德 (Laith J. Abu-Raddad)和卡塔尔公共卫生部的罗伯托·贝托里尼 (Roberto Bertolini)博士，之前评估自然免疫对预防再感染的有效性为85%或更高。 他们说：“相对来说，新冠康复者比没感染过新冠的人低，前者发生严重再感染的风险只有后者的大概1%。”
 
+加利福尼亚大学旧金山分校（University of California, San Francisco）的传染病学教授莫妮卡·甘地 (Monica Gandhi)表示，这项研究和其它越来越多的研究表明，新冠康复者有很高的免疫力水平，甚至对重症和死亡有更高的保护力。
 
+自然免疫是强大的，之前辉瑞的科学家在接受记者暗访时也承认自然免疫强过疫苗。人们不要再被媒体、政客、制药寡头和所谓学术权威炮制的恐慌和科学数据欺骗，合理使用硫酸羟氯喹、伊维菌素等廉价有效药物做好预防，安全地渡过这场人类大劫难。
 
-杰瑞德·库什纳 (Jared Kushner) 一直在联系几个中东国家，看看他们是否有兴趣投资他的新投资公司。
-
-一位了解讨论情况的人士告诉《纽约时报》，阿拉伯联合酋长国 (UAE) 的主权财富基金拒绝投资库什纳的新公司 Affinity Partners。一位知情人士还告诉该报，卡塔尔领导人也对投资不感兴趣。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Captur15.jpg)
-然而，有两人告诉《纽约时报》，库什纳正在与沙特阿拉伯的公共投资基金就潜在投资进行谈判。四名了解这些谈判的人士表示，尚未宣布任何交易，因为沙特人和库什纳公司之间的谈判正在进行中。
-
-一位知情人士告诉该报，到 2022 年初，特朗普前总统的女婿计划投资数十亿美元。
-
-库什纳在与《纽约时报》的简短电话中未对 Affinity Partners 发表评论，沙特阿拉伯王国大使馆的一名官员也拒绝对该报发表评论。希尔无法立即联系库什纳置评。 据《泰晤士报》报道，阿联酋领导人对库什纳之前的业务表现表示担忧，尽管他们确实将他视为盟友。
-
-据该报报道，另一方面，卡塔尔政府将前总统的女婿视为特朗普政府时的对手。 《泰晤士报》指出，库什纳与沙特阿拉伯王储穆罕默德·本·萨勒曼保持着密切关系，其中包括使用彼此的名字和发短信。
-
-《泰晤士报》还指出，在特朗普政府期间，库什纳帮助策划了美国和沙特阿拉伯之间的旅行和交易，包括一项价值 1100 亿美元的美国军火交易以及特朗普首次在美国以外的中东国家之行。
-
-信息来源: [库什纳在中东寻找新公司的投资者](https://thehill.com/homenews/administration/583253-kushner-looking-to-middle-east-for-investors-in-new-firm-report?amp)
-
-编辑/校对/发稿: Hetangyuese
-
-![This image has an empty alt attribute; its file name is 11_Nov-7.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/11_Nov-7.jpg)
-
-**For more information, please follow us at:**
-[**New York MOS Himalaya ｜GTV**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**New York MOS Himalaya ｜MOS TALK**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**New York MOS Himalaya | GETTR**](https://www.gettr.com/user/himalaya_mos)
-[**New York MOS Himalaya ｜YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**Free to Join New York MOS Himalaya | Discord**](https://discord.gg/ChqXAHd)
-
-![This image has an empty alt attribute; its file name is Gnews-Logo-36-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-3.png)
+新闻来源：[Naturally Immune People at Little Risk of Reinfection, Severe Disease From COVID-19: Study](https://www.ntd.com/naturally-immune-people-at-little-risk-of-reinfection-severe-disease-from-covid-19-study_707080.html)
 
  
 

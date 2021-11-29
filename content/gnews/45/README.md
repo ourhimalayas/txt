@@ -2,17 +2,30 @@
 ---
 
 
-## 【文贵先生大直播PPT】青蒿素功效
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1703384/)
+## 中概股暴跌，爱奇艺跌幅达85%
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1704062/)
 
-撰稿：飞飞及团队
-审核：三票先生，顽童先生，舒平风
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Unknown-28.jpg)中概股暴跌，爱奇艺跌幅达85%  网络图片
+据网易新闻11月27日报道，南非新变异病毒重创全球金融市场，原油期货和美股道指大跌。中概股跌幅超过10%的公司有8家，号称“中国版奈飞”的爱奇艺股价跌幅达85.85%。爱奇艺市值曾一度超过300亿美元，约合人民币1900亿元。现在，该公司总市值仅为51.62亿美元，约合人民币330亿。
 
-【2021年11月28日文贵先生大直播PPT：青蒿素功效】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-196.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-132.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-110.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-73.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-56.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-48.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/7-41.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/8-32.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/9-24.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/10-13.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/11-17.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/12-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/13-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/14-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/15-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/16-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/17-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/18-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/19-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/21-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-8.jpg)
+2021年中共出手打击中概股，导致多家知名公司股价腰斩。爱奇艺业绩持续亏损，做空机构Wolfpack指出爱奇艺虚增2019年的收入。2019年，爱奇艺曾是高瓴第一大重仓股，持仓市值超过10亿美元。目前，爱奇艺已退居为高瓴第7大重仓股，持仓市值约3.1亿美元。
+
+中概股的结局比这个寒冬还要凄惨。在中共国金融环境下，这是必然的结局。假骗偷的经济能支撑多久呢？早晚一定会崩溃。随着中共继续全球释放病毒，最终会彻底摧毁经济。人类要么等着疫苗经济摧毁人类，要么起来抗争，结束中共，重新开启世界新秩序，没有第三条出路。
+
+新闻参考链接：[https://c.m.163.com/news/a/GPR4I7JU0519B826.html?spss=newsapp](https://c.m.163.com/news/a/GPR4I7JU0519B826.html?spss=newsapp)
+
 * * *
 
-上传：云起时
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
+
+
 
  
 

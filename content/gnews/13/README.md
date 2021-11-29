@@ -2,30 +2,30 @@
 ---
 
 
-## 因“奥密克戎”日本将于11月30日禁止外国公民入境
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704822/)
+## G7将召开紧急卫生部长会议，联合应对中共病毒新毒株
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704929/)
 
-编译：东京樱花团/Orange文橘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-920.png)[图片来源](https://www.japantimes.co.jp/news/2021/11/29/national/japan-omicron-entry-restrictions/)
-11月29日，日本首相岸田文雄表示，由于对新型新冠病毒变异株“奥密克戎”的担忧，日本将从11月30日周二零点起关闭边境，禁止所有新的外国公民入境，包括商务旅行、留学生以及外国实习生。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-134.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fru.usembassy.gov%2Fwp-content%2Fuploads%2Fsites%2F138%2Fg7-scaled.jpg&amp;imgrefurl=https%3A%2F%2Fru.usembassy.gov%2Fg7-foreign-ministers-statement-on-the-situation-along-ukraines-borders%2F&amp;tbnid=iLPPudeL3kFPwM&amp;vet=12ahUKEwi0t8qZkr30AhWKtZ4KHdWnCLYQMygCegQIARB8..i&amp;docid=GlOprXXkeXC-aM&amp;w=2560&amp;h=1280&amp;q=G7&amp;ved=2ahUKEwi0t8qZkr30AhWKtZ4KHdWnCLYQMygCegQIARB8#imgrc=iLPPudeL3kFPwM&amp;imgdii=_FJ5aNgLT5sTqM)
+据日本共同社11月29日报道，七国集团（G7）主席国英国政府28日宣布，将于29日召开紧急卫生部长会议，协商应对中共病毒新型变异毒株“奥密克戎”。会议将以在线形式举行。此举展现了G7一致同意加强联合应对的态度。
 
-入境禁令将不影响日本公民以及再次进入日本的外国居民， 但是从14个已经证实有“奥密克戎”变种病例的国家进入的日本公民和外国居民将被要求在政府指定的设施中进行检疫。
+自非洲南部发现的奥密克戎毒株向欧洲迅速蔓延以来，28日还在加拿大新发现了感染者。
 
-岸田首相表示，在对 “奥密克戎” 变异株有更多了解之前，这是目前采取的预防性的紧急措施。
+G7成员国中已有英国、德国、意大利出现感染者，美国和亚洲等地的忧虑也在加剧。紧急会议也可能讨论向疫苗接种率较低的发展中国家提供援助。
 
-“奥密克戎” 变异株可能比其他菌株更具传染性，但是对于它是如何传播以及巧妙地躲避人体免疫反应所知甚少。
+加拿大东部安大略省28日宣布，在首都渥太华发现2例奥密克戎感染者。据称最近都去过尼日利亚。
 
-首相敦促公众保持冷静，戴上口罩并保持社会距离，强调日本是七国集团中疫苗接种率最高的国家，而且自从很大一部分人接受了COVID-19疫苗的第二针后，现在仍然比较早。
+奥密克戎毒株或具有较强传染性，世界卫生组织（WHO）28日称尚不清楚是否具有重症化率较高等特性。
 
-岸田还说，有一名来自纳米比亚的旅行者对COVID-19检测呈阳性，目前还不清楚此人是否感染了“奥密克戎”变异株。样本已送往实验室进行鉴定，预计需要四到五天。
+南非本月24日向WHO报告了奥密克戎毒株。之后获知在欧洲也有蔓延，28日荷兰新确诊13名感染者，法国也发现8例疑似感染例。以色列、香港、澳大利亚等地也出现感染。
 
-郭文贵先生几个月前在直播中发出警告，中共将在秋冬之际释放新型病毒。“奥密克戎”的出现再次证明郭先生所掌握情报的前瞻性及准确性，日本政府这次动作极为迅速果敢，是否是因为听到了郭先生的爆料呢。
+信息来源：
 
-信息来源：[随着欧美光的担忧加剧，日本将禁止所有新的外国游客](https://www.japantimes.co.jp/news/2021/11/29/national/japan-omicron-entry-restrictions/)
+[G7将就新变异毒株召开紧急卫生部长会议](https://china.kyodonews.net/news/2021/11/dd224e81a4b0-g7.html)
 
-*校对：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88-4.png)
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
