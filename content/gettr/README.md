@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/29/2021 3:19 AM (UTC)`
+
+11月28号：尊敬的战友们好！共产党这指东打西．和七哥的指南打西有什么不同？兄弟姐妹们……你们看出其中的猫腻了吗？【七哥，您9月26号大直播中说的在中共要在非洲放病毒😊木兰】
+![img](https://media.gettr.com/group15/getter/2021/11/29/03/19/1de2885e-8d07-ce30-1e53-c728c3620e9e/out.jpg)
+
+---
+
 `@miles 11/29/2021 2:11 AM (UTC)`
 
 11/28/2021 Miles Guo: Why did Yang Jiechi and Wang Yi go to Africa not long ago? How do dictators manage to rule the people? The outbreak of the new variant said to originate from South Africa only occurred among the vaccinated who got at least two shots<br/><br/>11/28/2021 文贵直播：中共杨洁篪和王毅前段时间为什么去非洲？世界独裁者奴役人民的套路是什么？所谓从南非出来的新病毒变种只在打了两针疫苗的人之间传播<br/>
@@ -148,13 +155,6 @@ Dr. Vladimir Zev Zelenko, a Ukrainian born, Zionist, Chasidic JEW has been arres
 
 11月26号：昨天发出这个视频没有声音，这是怎么回事呢？在发发试试……
 ![img](https://media.gettr.com/group38/getter/2021/11/26/09/41/ec26eb42-3ec7-0a33-5c59-594e2a30ff83/out.jpg)
-
----
-
-`@miles 11/26/2021 1:18 AM (UTC)`
-
-11月25号：很多战友们在问我洗眼情的洗眼药水是什么品牌的，我在这里一并回答。不在单独回复……感恩节快乐！
-![img](https://media.gettr.com/group27/getter/2021/11/26/01/18/8dffb59d-8aa9-d29f-fbdf-3359531a1667/9ee812a7c38db446df1c19e55da2a34d.jpg)
 
 ---
 
