@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/29/2021 8:38 AM (UTC)`
+
+11/28/2021 Miles Guo: The CCP has closed many hospitals in Shanghai, and the world’s media outlets are all bought off by the CCP and the evil forces to cover up the truth and shift the blame; however, no one is reporting on the massive deaths occurring in Afghanistan and Communist China, and such things sound exactly the same as what Hitler and Stalin did<br/><br/>11/28/2021 文贵直播：中共在上海封医院，世界媒体都被中共和邪恶势力收买来掩盖真相、推卸责任；正在阿富汗和中共国发生的大量死亡却无人报道，这与希特勒、斯大林的做法如出一辙<br/>
+![img](https://media.gettr.com/group23/getter/2021/11/29/08/38/243fc74f-d0ac-1d64-8126-721075b8f586/out.jpg)
+
+---
+
 `@miles 11/29/2021 3:19 AM (UTC)`
 
 11月28号：尊敬的战友们好！共产党这指东打西．和七哥的指南打西有什么不同？兄弟姐妹们……你们看出其中的猫腻了吗？【七哥，您9月26号大直播中说的在中共要在非洲放病毒😊木兰】
@@ -148,13 +155,6 @@ Dr. Vladimir Zev Zelenko, a Ukrainian born, Zionist, Chasidic JEW has been arres
 
 2021年11月26日 文贵大直播：再谈青蒿素病毒疫苗解药；感恩节五千万人旅行后果；近日币安数字货币大变；喜币价值新中国联邦实力
 ![img](https://media.gettr.com/group17/origin/2021/11/26/12/e6b78c20-a84f-f427-d981-98565dd555c4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
-
----
-
-`@miles 11/26/2021 9:41 AM (UTC)`
-
-11月26号：昨天发出这个视频没有声音，这是怎么回事呢？在发发试试……
-![img](https://media.gettr.com/group38/getter/2021/11/26/09/41/ec26eb42-3ec7-0a33-5c59-594e2a30ff83/out.jpg)
 
 ---
 
