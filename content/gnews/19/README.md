@@ -2,33 +2,36 @@
 ---
 
 
-## 美国三大车厂同意不为UAW成员强打疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1703760/)
+## 加州小镇宣布独立，反对独裁权力和联邦的中共病毒强制令
+` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1703834/)
 
-翻译：**Lulumi**
+**据《零对冲》记者：泰勒·德登 (Tyler Durden) 2021年11月26日报道：**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/a6wsw-b5v15.jpg)图片源自FOXNews
+加利福尼亚州的一个市宣布自己为“立宪共和国”，独立于联邦政府或州政府发布的行政命令，以抗议封锁、强制戴口罩和强制接种疫苗。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-892.png)图片来源 ：zerohedge.com
+加利福尼亚州奥罗维尔（Oroville）副市长斯科特·汤姆森（Scott Thomson）出现在福克斯（FOX）新闻上，概述了这一举动，并指出“我当时坐在市政厅，强制令持续地发到我的办公桌上。 正如你所知，它开始是“要在两周停止——减缓（感染病毒）曲线”，而且就像胡萝卜一直在我们面前晃来晃去……而且，似乎每一项强制令下来了，都令自由丧失。”
 
-福特汽车公司、通用汽车公司和斯泰兰蒂斯公司已经同意汽车工人联合会（UAW）的成员不会被强迫接受强制性疫苗作为就业条件。
+汤姆森将奥罗维尔市的举动与旧金山宣布自己为“庇护城市”的举动进行了比较。
 
-此外，工人的疫苗状况将保持私密性，并采取自愿披露的政策，这是医疗隐私和自由原则的一个大胜利。
+汤姆森敦促说：“我们是一个立宪共和国，并想宣布这一点，”他澄清说，“我们并没有与加利福尼亚州分离，但我们只是提醒其他城市的高层，我们需要为我们的权利挺身而出。我们仍然是一个立宪共和国，这意味着我们拥有‘上帝’赋予的权利，而我们的先贤们创造了一个天才的共和国来分权。”
 
-在周一晚上的会议上，由UAW、福特、通用汽车和斯泰兰蒂斯公司组成的中共病毒COVID-19联合工作组，就自愿和保密披露UAW成员的疫苗接种状况的政策达成一致。每家公司都将向员工提供额外的沟通，说明如何、在何处以及何时报告他们的疫苗接种状况。
+副市长进一步解释说：“我相信在全世界，尤其是在加利福尼亚，我们国家的结构正处于我们将让政府拥有多少权力的十字路口。”
 
-除了鼓励成员披露他们的疫苗接种状况外，工作组继续敦促所有成员、同事及其家人接种疫苗，并接受中共病毒疫苗的加强针接种，同时理解有一些个人原因可能会阻止一些成员接种疫苗，如健康问题或宗教信仰。
+汤姆森强调说：“我不相信当政府拥有更多权力时，任何人会赢。”并补充道，“每次失去自由，通常都需要流血牺牲，才能把自由拿回来。”
 
-在审查了CDC和OSHA指导方针的状况后，工作组还决定，目前在所有工作场所继续使用口罩是符合工人安全的最佳利益的。
+汤姆森进一步强调说：“我们的城市收到了失去拨款的威胁，但对我们来说，尤其是对我来说，他们可以留着他们应该用于拨款的钱；而我们想要加利福尼亚的自由，我们想要奥罗维尔的自由，这就是我们所坚持的。”
 
-这有助于将钟摆摆回美国工人的方向。
+**原文连接：**[https://www.zerohedge.com/political/watch-california-town-declares-independence-dictatorship-powers-state-federal-covid](https://www.zerohedge.com/political/watch-california-town-declares-independence-dictatorship-powers-state-federal-covid)
 
-新闻来源 : [zerohedge.com] [Big Three US Automakers Agree To Not Mandate Vaccines For UAW Union Members](https://www.zerohedge.com/political/big-three-us-automakers-agree-not-mandate-vaccines-uaw-union-members)
+翻译：洛杉矶盘古农场–WH
+校对：洛杉矶盘古农场–Mike Li
+编辑：洛杉矶盘古农场–心照
+发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
+![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
+洛杉矶盘古农场欢迎您加入:(或点击上方图片）
 
-* * *
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-*审核：文乐
-校对：信心满满
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

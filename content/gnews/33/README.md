@@ -2,17 +2,24 @@
 ---
 
 
-## 【文贵先生大直播PPT】青蒿素功效
-` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1703384/)
+## 文贵爆料 11.28 : 习近平会让中共站在绞肉机上狂欢
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1703555/)
 
-撰稿：飞飞及团队
-审核：三票先生，顽童先生，舒平风
+撰稿：Ermat
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1129-1.jpg)
+即使是面对着真刀明枪的生死对决，诚信之光依然永不磨灭。郭文贵先生在11月28日的大直播中说，我们依然坚持“郭七条”。不反习近平，是因为要让习替我们灭共，习家族与中共的刻骨仇恨，以及他的愚蠢会将中共送入绞肉机。
 
-【2021年11月28日文贵先生大直播PPT：青蒿素功效】
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-196.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-132.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-110.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-73.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-56.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-48.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/7-41.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/8-32.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/9-24.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/10-13.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/11-17.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/12-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/13-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/14-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/15-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/16-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/17-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/18-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/19-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/21-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-8.jpg)
-* * *
+“郭七条”，一定要坚持啊，不反习啊。其中的中间人说，习近平签署让你的妻子和女儿离开啊，你不能攻击他的家人。刘延平都不知道为什么习近平会签署这个文件，这几乎是中国历史上最大的奇迹了，这就不可能再有，我得维护我的承诺和信誉，我不会攻击他家人，我不会攻击习近平。但是你们攻击习，你们攻击他家人跟我半毛关系没有，但是你在Gnews，Gtv上，我认为现在对他家人和个人的攻击咱不要开展，我倒认为习现在越坚持下去越好，我认为只有习近平在了，共产党才能灭，习不在共产党灭不了啊。现在习能干的事我们都干不了。
 
-上传：云起时
+但是“郭七条”不会改啊，绝对是不反国家、不反民族，反对以贪治国、以黑治国、以警治国。我不反习，就是我们现在让习近平替我们灭共，不反习的目的是让习近平帮我们把共产党给灭了，实现我们以共灭共。习近平及其家族和共产党的仇恨远远大过我们。他姐姐被上吊自杀，他亲眼见；他爹十六年关在监狱，当他面吃屎；他三次被关，被打的鼻青脸肿；他的腰被拖拉机给撞成那样；然后在农村梁家河子妇女通奸被游街。
+
+郭先生说，他和共产党的仇恨远远比我要大得多啊。我一个弟弟死了，但我爹没被关十六年，我爹腿被打断了，但我爹没有吃屎，是吧？共产党都欠我们家人一条命。所以说习近平同志是我们派去的最好的以共灭共的代表。你干嘛把这个人要灭了呢？在共产党没灭之前习不要被灭？最好习近平和共产党一块被灭。
+
+参考链接：
+
+[2021年11月28日 文贵大直播](https://gettr.com/streaming/pi5gfs500d)
+
+
 
  
 

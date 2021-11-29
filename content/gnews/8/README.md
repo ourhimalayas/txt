@@ -2,136 +2,89 @@
 ---
 
 
-## 平民运动的本质就是一人一票
-` 洛杉矶盘古农场 HIMALAYA LA PANGU` [轉載自GNews](https://gnews.org/zh-hans/1703966/)
+## 文·贵天成——文贵先生谈“疫苗”（二十三）
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1703992/)
 
-[https://gtv.org/video/id=61a36a793ff6481adce57d6d](https://gtv.org/video/id=61a36a793ff6481adce57d6d)
+**整理：BENJ1
+编辑：Candy**
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-204.png)图片来源：墨尔本雅典娜农场设计组
+**往期回顾：**
+[文·贵天成——文贵先生谈“疫苗”（一）](https://gnews.org/zh-hans/1645800/)
+[文·贵天成——文贵先生谈“疫苗”（二）](https://gnews.org/zh-hans/1645804/)
+[文·贵天成——文贵先生谈“疫苗”（三）](https://gnews.org/zh-hans/1668258/)
+[文·贵天成——文贵先生谈“疫苗”（四）](https://gnews.org/zh-hans/1668474/)
+[文·贵天成——文贵先生谈“疫苗”（五）](https://gnews.org/zh-hans/1668591/)
+[文·贵天成——文贵先生谈“疫苗”（六）](https://gnews.org/zh-hans/1670496/)
+[文·贵天成——文贵先生谈“疫苗”（七）](https://gnews.org/zh-hans/1670125/)
+[文·贵天成——文贵先生谈“疫苗”（八）](https://gnews.org/zh-hans/1684720/)
+[文·贵天成——文贵先生谈“疫苗”（九）](https://gnews.org/zh-hans/1684707/)
+[文·贵天成——文贵先生谈“疫苗”（十一）](https://gnews.org/zh-hans/1689446/)
+[文·贵天成——文贵先生谈“疫苗”（十二）](https://gnews.org/zh-hans/1689743/)
+[文·贵天成——文贵先生谈“疫苗”（十三）](https://gnews.org/zh-hans/1694796/)
+[文·贵天成——文贵先生谈“疫苗”（十四）](https://gnews.org/zh-hans/1695670/)
+[文·贵天成——文贵先生谈“疫苗”（十五）](https://gnews.org/zh-hans/1695638/)
+[文·贵天成——文贵先生谈“疫苗”（十六）](https://gnews.org/zh-hans/1695695/)
+[文·贵天成——文贵先生谈“疫苗”（十七）](http://xn--%28%29-zea0323aa2ch5115gefgnjf9stngzn6jfa5990db3b3w9gbu8agxefa/)
+[文·贵天成——文贵先生谈“疫苗”（十八）](http://xn--%28%29-zea0323aa2ch8081hdja45n9oungzn6jfa5990db3b3w9gbu8agxefa/)
+[文·贵天成——文贵先生谈“疫苗”（十九）](http://xn--%28%29-zea0323aa2ch5385g8qfnof9stngzn6jfa5990db3b3w9gbu8agxefa/)
+[文·贵天成——文贵先生谈“疫苗”（二十）](http://xn--%28%29-zea0323aa2ch1126g5efoof8stngzn6jfa5990db3b3w9gbu8agxefa/)
+[文·贵天成——文贵先生谈“疫苗”（二十一）](http://xn--%28%29-zea0323aa2ch1905g89a55o32fgovrj1azykfa7894db7bg84hjrwb15efa/)
+[文·贵天成——文贵先生谈“疫苗”（二十二）](http://文·贵天成——文贵先生谈“疫苗”（二十二）)
 
-**郭文贵**
-**Miles Guo**
+**郭文贵先生2021年8月21日直播**：
 
-这是班农先生跟我第一天见面谈的问题
-This is what Mr. Bannon and I talked about the first day we met
+所以人类现在最易什么？——最易恐惧。最易恐惧，绝大多数（人）。你还真别怪人家这些左派，还有那疯子，很多人打(疫苗)的各种理由，我可以告诉你其中超过(百分之)六、七十是对死亡的恐惧，不想死，有侥幸，因为你没有信仰，因为你无知。
 
-当政治被家族化的时候，这国家一定是独裁的
-When politics is clannish, the country must be dictatorial
+记住：没有信仰、没有宗教，如果另外再加上一个贪婪、懦弱再加上愚蠢，蛇妖闫、路大脑袋、九指妖绝对是这号人；台湾的卖台贼，香港的卖港贼都是这号人——没宗教、没信仰、懦弱、自私加贪婪、愚蠢，完了，完了，完了，完了！你去看你自己，你看你家人，太多人就是这个结局。这部分人占多少？——60%-70%。
 
-一定是灾难的，不可能有民主
-It must be catastrophic, and there can be no democracy
+真别怪人家多邪恶，犹太人聪不聪明？犹太人有没有信仰？那是制造信仰的地方，安拉、上帝、耶稣、天主都是来自于耶路撒冷！(以色列是)最高打疫苗的国家，为什么知道吗？他有信仰，但是他这块懦弱、怕死、愚蠢、贪婪，贪婪！贪婪！你们都得死，我能活着，这种愚蠢到家的思想。宗教，过去在以色列，宗教可以（被）99.9%（的人信任）；现在可没有了，绝对没有那么信任了。不信上帝了，信钱、信实力，信拳头了。
 
-当有街头政治（的时候）
-When there is street and politics
+今天从以色列、欧洲这些官员，从美国你可以看到：最(多)打疫苗的不是穷人，很多是官员、知识份子、文化人，这些人更怕死！怕死、没有信仰、愚蠢、被媒体洗脑、和平时间太长，导致人们对正确事物的判断完全基于善意。基于善意的判断、没有对恶人的一个警惕和小心，一定是人类的灾难。
 
-刚才说的就是有街头抗议的时候，它一定是有法治的
-When there are street protests, there must be rule of law
+就像德国的犹太人永远不会相信德国人，永远不会相信这些独裁，因为他受过苦了。但是中国人很爱共产党，台湾人民很爱共产党，国民党都被打到台湾了，现在还相信共产党呢。
 
-它一定是有未来的
-The country will certainly have a future
+所以我要告诉大家，基于以上，你们还相信打疫苗和被打疫苗这两个逻辑当中就一股力量在推进吗？是一个组织在推进吗？——绝对不是。
 
-而且班农先生非常清楚地跟我谈到
-And Mr. Bannon spoke to me very clearly
+我可以告诉大家，我谈我的观点，我不代表任何人。疫苗这个事情它是一个绝对是把共产党灭掉，把世界邪恶灭掉，上天给我们最大的礼物。它不这么折腾，人类不会去灭共产党，也不会去灭邪恶的力量。
 
-班农先生说这个世界就是平民运动
-He said that this world is a civilian movement, the populism
+我们新中国联邦是一个重大的推动的力量。只要坚持住，自己别被任何诱惑，别被死亡给吓趴下，我们就是人类最正义的力量。
 
-平民运动的本质就是一人一票
-The essence of populism is one person, one vote
+正道主义来自于正义力量，拯救人类、拯救地球。一个这样的辉煌历史以及未来，谁不认咱呢？
 
-他说不可思议，中国人没有选举
-He said it’s unimaginable that the Chinese people don’t have elections
+我问你们：“七哥要成立什么？”你们说成这成那，都不是。我要成立的你们都没说对，这个悬念咱留着，你们会明白。
 
-班农先生第一次给我讲的就是
-The first thing Mr. Bannon said to me was
+我们的正道主义走向何方？就来自于病毒、疫苗和灭共事业，当然也灭掉世界上最黑暗的力量。这是老天给我们最大的机会，如果你没看清这个机会，你没必要听我们直播，你没必要听爆料革命，赶快打疫苗去，找共产党去，是不是？多好啊！
 
-他说，miles这个事情，我说你看中国没有土地
-elections and votes, and I told him that China has no land
+第二个我要告诉大家，疫苗一定会停的，而且不会太长时间。疫苗这个事情，给人强制打和打完有一个最大的问题，它打完以后的生理反应不是咱说了算，它也不是那些媒体说了算。
 
-没有知识产权，ridiculous
-and no intellectual property rights. It’s ridiculous
+它越疯，就是它过去的成功在于它能控制百分之八、九十，百分之百的媒体；相反的，死也会死在这里。就是你控制这些媒体，助长了更多的（人）打疫苗，（将）激起了更多人的愤慨。
 
-班农先生的那个眼睛就是觉得这都是不可思议的
-From Mr. Bannon’s eyes you could tell that he feels that’s unbelievable
+当这件事情爆发的时候，它是作用力与反作用力的关系，推动力与反推动力的关系，大气层和推动力的关系，一定是逆反。
 
-班农先生是看到的
-Mr. Bannon saw the truth in China
+这个时候，战友们，真的是减减肥、健健身在家活着。不打疫苗是你人生最大的赢家，别投G系列别想着……我就给你的一个建议——活着！
 
-班农先生每天在War Room讲
-Mr. Bannon speaks every day in the War Room
+别穿那么好看了你们几个！你看我们的Rachel一天换那么多衣裳、换好多眼镜、打着蓝眼影。小福利、小Seven从来不变颜色，你学学人家神奇女侠多朴实啊，横杠儿是吧，全是横杠体桖是吧。政清老换西装，你看看现在一弄就Fashion了。小王子、我们罗伊，你看大牛穿着多么台湾绅士啊，小马甲是吧，还英式马甲。
 
-这是为什么War Room is No.1 in American now
-This is why War Room is No.1 in American now
+你别想这事了，穿个背心、裤衩子活着！别打疫苗你就是赢家。 为什么？刚才我告诉你，它这种生理反应不要等三年，你们别以为就三年，大胡子医生说三年死三分之一。
 
-他为什么，他看到了，这是事实
-Why he believe it, because he saw it, and he saw the fact
+不用等三年，到今年年底、明年年初，你记住我的话：全人类在面临疫苗的所有的问题，第一个，死人的问题。必须有人说话，老死人你怎么办呢？最铁的证据就是死人。医院不够用，死人不够用，火葬场也不够用。
 
-他是看到这些以后，他坚信不疑的支持中国老百姓
-After he saw the truth, he was convinced to support the Chinese people
+王岐山家，我觉得他到外国就唯一没投火葬场。没找到证据呀，人家投火葬场、骨灰盒生意也是对的，墓地是吧？这是最好的生意。
 
-这是一切的事实的结果
-This is the result of all facts
+另外一个，兄弟姐妹们，当疫苗今年年底大量的死人，不可抗拒的负面现象出来的时候，有两件事发生了——追责，追责呀！老百姓追责、追疫苗，最后一定是被追责者推给共产党，一定推给背后的黑暗势力。
 
-所以这是我们第一天就谈到的
-So this is what we talked about on the first day we met
+这个反作用，真的，欧洲、美国绝大多数都是牺牲品，最后发现共产党最后也是牺牲品，它是执行者，它是最大的魔，但是原创不是它，都得找共产党算账。
 
-特别是郝海东先生，叶钊颖妹妹当时出来的时候
-Especially when Mr. Hao Haidong and sister Ye Zhaoying came out later
+你会发现那些最后的运作者、战略制定这次病毒和疫苗的制定者、利益共同体一定会被消失，共产党一定会被消失。
 
-很多人没有注意到，班农先生讲了一个非常重要的话
-Many people didn’t notice that Mr. Bannon made a very important statement
+***发布：Candy***
 
-我们都忽视掉了
-We all overlooked it
-
-他说平民运动绝不是某个阶层的运动
-He said that the populism is not a movement of a certain class
-
-它是整个社会的运动
-It is a movement of the whole society,
-
-这才是最重要的
-and this is the most important thing
-
-他说郝海东和他夫人代表了某种阶层，特别是运动员
-He said that Hao Haidong and his wife representing a certain class of people, espe-cially athletes
-
-班农先生讲看到，他是populism
-Mr. Bannon said he saw that he(Hao) is with populism,
-
-他是班农主义非常非常重要的
-and he is very, very important to the populism
-
-所以说兄弟姐妹们，班农先生对我们真的是太重要了
-So brothers and sisters, Mr. Bannon is truly very important to us
-
-班农先生是最重要的
-Mr. Bannon is the most important
-
-给我们提供了平民运动的本质，还有宗教自由、信仰自由、独立的法治，非常重要
-He has given us the essence of the populism movement, the freedom of religion, the freedom of belief, and the independent rule of law. It’s very important
-
-Symbolic，非常有代表性，很敏感，很有代表意义的
-Symbolic, it’s very typical and sensitive, and that’s very representative
-
-**原视频链接**：[https://gettr.com/post/phn7tja3e8](https://gettr.com/post/phn7tja3e8)
-
-Date: 11/25/2021
-原视频标题: 平民运动的本质就是一人一票
-The essence of populism is one person, one vote
-原视频日期：2021/11/20
-原视频链接：https://gettr.com/post/phn7tja3e8
-任务编号：KC290（2995）
-视频时间段 : 0:00-1:53
-
-中听校: 洛杉矶盘古农场 – Mike Li
-翻译: 洛杉矶盘古农场 – Mike Li
-翻译终校：洛杉矶盘古农场 – 郭班之樱
-字幕+视频制作：洛杉矶盘古农场 –天涯行
-审片：洛杉矶盘古农场 – 银龙
-发布 : 洛杉矶盘古农场 – 彩虹 Rainbow
-![](https://assets.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-06-26-at-22.05.30.jpeg)
-洛杉矶盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，请关注：
+[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/76QVRChsgU)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 
