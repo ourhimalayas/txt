@@ -2,40 +2,36 @@
 ---
 
 
-## 英国国际投资公司启动， 对抗 “一带一路”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705783/)
+## 独裁者都具有精神与人格的双重缺陷
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705860/)
 
-作者： 纽约香草山健身部 – Ivy001
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在11月28日的文贵大直播中，郭先生深刻剖析了凡独裁者都具有的共同特征，即精神与人格的双重缺陷。绝对自卑导致绝对自负，导致给个人和国家，以及世界带来深重的灾难。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide3-19.jpeg)
 
-11月25日，英国外交大臣利兹·特拉斯在伦敦证券交易所正式启动英国国际投资公司，也就是BII机构，该机构可以动员私人资本，投资亚洲、非洲和加勒比地区，向全球提供一种替代方案，来取代专制政权和非市场经济体的中共，在之前提出的有附加条件的贷款方式，直接剑指中共的“一带一路”倡议。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9-26.jpg)
-根据BII的公告，英国政府计划到2025年，每年动员80亿英镑的公共和私营部门资本，投资于相应的国际项目。同时，它计划着重帮助私营部门参与该项目，包括与资本市场和主权财富基金合作，扩大融资规模。
+郭先生说，人类历史上出现的独裁者，如斯大林、希特勒、卡扎菲、毛泽东等，都有着相似的人生轨迹。一旦权力在握，首先编造故事，篡改历史。自称秉持上天赋予的使命，不死之躯，无所不能；然后用洗脑、废法等工具，笼络人心；挑起种族仇恨，构建所谓人类命运共同体；最后，当面临国内严重的经济与政治危机时，在极度恐惧中挑起战争，把仇恨和杀戮引向外部，最终导致极权政府的灭亡。
+ 
+郭先生指出，习的“中国梦”源于希特勒名言，“我以梦游者的自信，走向我的命运”。习挑战美国、经济脱钩、再次放毒、收复台湾等疯狂举动，同样来自他精神与人格的双重缺陷。 
 
-推动此机构启动的英国外交大臣称，这是利用经济学作为外交政策的工具，来更加发挥英国对全球的影响。
+郭先生痛心地警告，习继续下去，中国人民将为此付出难以想象的沉重代价。
 
-参考链接：
+参考链接：[2021年11月28日 文贵大直播：新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破](https://gtv.org/video/id=61a3828b44c1fe7a6c3aaf29)
 
-- [UK seeks to counter China’s influence with new development investment arm](https://www.ft.com/content/93de6cc1-451a-465d-8233-8c9b903cedd4)
-- [英国拿90亿英镑组建国际投资机构“对抗中国影响力”？专家：夸张！](https://news.sina.com.cn/c/2021-11-25/doc-ikyamrmy5040712.shtml)
-- [UK overhauls development investment body to challenge influence of Chinese loans](https://www.cityam.com/uk-overhauls-development-investment-body-to-challenge-influence-of-chinese-loans/)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-10.jpg)
-
-总编：飞虹
-校正/发稿：海阔天空1
+总编：文真
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
 **更多资讯，更多关注**
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 [**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
-
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

@@ -2,39 +2,36 @@
 ---
 
 
-## 伊利诺伊州面临退休债务危机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705753/)
+## 为防范Omicron日本宣布全面禁止外籍人士入境
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1705767/)
 
-作者： 纽约香草山健身部 – Ivy001
+#### **撰稿：日本东京方舟农场 Kevin wang**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/C585B772-AD01-4578-8948-1EFCFE929B79.jpeg)（图片来自香港01）
 
-11月21日，美国零对冲报导, 2021年，伊利诺伊州的每个家庭平均要背负高达 11万 美元的政府雇员退休金债务，在2019 年，伊利诺伊州每个家庭的负担只有 9万美元。截至 2020 年 6 月 30 日，美国最大的养老基金缺口就在伊利诺伊州，缺口总额达 3130 亿美元。伊利诺伊州在退休债务方面也是全美最高的，已增加到 5千亿美元。不断增长的债务表示，超过 100 万伊利诺伊州政府工作人员和退休人员将会失去退休保障。根据皮尤慈善信托基金的数据，伊利诺伊州的州级养老金只有 39% 的资金到位，居全美最低。
+为防范中共病毒新变异毒株Omicron可能带来的危机，11月29 日，日本首相岸田文雄顶着遭到批评的压力，宣布自30日起全面禁止外籍人士入境。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-36.jpg)
+据《中央社》报道， 岸田29日在接受采访时表示，Omicron带来了强烈的危机感。为避免日本发生最坏的状况，作为紧急避难的预防措施，决定自30日零时起全面禁止全世界的外国人入境。
 
-此前，文贵先生多次在大直播里分析，中共国房地产业的雪崩式爆雷和债务违约，必将对美国的养老保险金和退休金产生巨大的冲击。伊利诺伊州债台高筑，是美国退休金债务危机的缩影。
+岸田还强调，面对可能会有人批评他“明明还不清楚实际状况，这样做未免过于谨慎”，他已经做好一个人扛起所有批评的心理准备。
 
-参考链接：
+中共病毒新变异毒株Omicron目前已引发全世界的担忧。多国都已出现这一变种病毒病例。荷兰证实已有至少13起相关病例；德国目前共有3起确诊病例；丹麦29日也从来自南非的旅客中查出两例确诊病例；奥地利则有一名从南非返国的旅客确诊。
 
-- [伊利诺伊州面临退休债务危机](https://gettr.com/post/phw727b8f9)
-- [Illinois Pension Shortfall Surpasses $500 Billion, Average Debt Burden Now $110,000 Per Household](https://www.zerohedge.com/markets/illinois-pension-shortfall-surpasses-500-billion-average-debt-burden-now-110000-household)
+除日本之外，全世界已有多个国家针对Omicron发布了旅行禁令。美国已经禁止包括南非在内的8个国家赴美旅游；马尔代夫也已宣布，自29日起禁止7个非洲国家的旅客入境。
+
+*参考链接：*
+
+1. [*https://www.cna.com.tw/news/firstnews/202111290097.aspx*](https://www.cna.com.tw/news/firstnews/202111290097.aspx)
+2. [*https://www.cna.com.tw/news/firstnews/202111280200.aspx*](https://www.cna.com.tw/news/firstnews/202111280200.aspx)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-10.jpg)
+* * *
 
-总编：Jack Li文阳
-编辑：Jack Li文阳
-校正/发稿：海阔天空1
+*素材采编：Kevin wang*
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+*编辑：青衣青青*
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
+*发布：miumiu*
 
  
 

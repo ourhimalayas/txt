@@ -2,44 +2,34 @@
 ---
 
 
-## 人间孽钱知多少
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1705750/)
+## 中共释放变种病毒 祸乱世界 意在台湾
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705754/)
 
-撰稿：东京樱花团/windlady
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9-27.jpg)
-[图片来源](https://www.zaobao.com.sg/realtime/china/story20211128-1217825)
+作者：纽约香草山农场 -文真
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+Omicron变种病毒的迅速蔓延再次造成世界各国恐慌。11月28日，郭文贵先生在大直播中再次发出警告，病毒是中共解放军的生化武器。中共和邪恶势力勾结，有预谋、有计划地释放新的变种病毒。
 
-朱贤健被抓，三个举报人发抖音炫耀70万到手。岂料，留言区压倒性的咒声一片，几乎都是没命花没好报一类。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-139.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-75.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/1-203.jpg)
-插图来自网络
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide1-23.jpeg)
 
-凄惨的脱北者，遣返后被砸膝盖，铁丝穿肩胛骨，生不如死的折磨让人不寒而栗！
+郭先生爆料称，新变种病毒的真正传染源在三周之前，被中共释放到了美国西部。近期中共派王毅、杨洁篪到访非洲，中共的军机飞抵中东、非洲等地，都是为释放新病毒做准备。中共嫁祸非洲，使之成为新变种病毒发源地，目的是要激化欧洲本地居民和非法非洲移民之间的种族矛盾。中共和历史上所有的大独裁者一样，通过煽动种族仇恨，分化人类，加强集权统治。
 
-朱贤健是个苦命人，本来是特种兵，受脱北者姐姐的牵连，被流放到死亡率极高的煤矿劳改。第九年逃到中国求一条生路。因为没钱抢劫被判刑，眼看刑满释放，他面临的是遣返回朝鲜受酷刑的折磨，他只能越狱！侥幸逃脱了上天堂，不幸被抓住加刑在人间，最少不会重返地狱。他越狱那天，牵动了无数人的心，多少人祈祷奇迹发生！
+ 郭先生说，中共再次释放致命变种病毒，第一个目的是转移中共国内部的经济矛盾和政治矛盾，另一个目的是要搞乱、搞弱美国和欧洲，断掉经济供应链，制造恐惧，甚至是饥荒，从而导致西方国家内部的局部动乱。中共企图用病毒解药要挟全世界，而且与俄罗斯合谋，趁西方国家内乱之际，两方同时攻打台湾和乌克兰。
 
-又有多少人，为了悬赏70万与魔为伍？据说有个人因为酷似朱贤健被抓5次！真是重赏之下必有勇夫！
+参考链接：[2021年11月28日 文贵大直播：新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破](https://gtv.org/video/id=61a3828b44c1fe7a6c3aaf29)
 
-朱贤健身世可怜，没有犯下重罪，重伤他人也服刑了十几年，他越狱仅仅是为了活着！金胖对叛逃者的惩罚真是比死亡还让人恐惧！朱贤健有错吗？
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-3个举报人为了钱出卖良知,不知他们是否能直面人性的审判？可以确定的是，他们不以自己的行为为耻，反而当作荣耀公开，真是不知廉耻！
+总编：Jack Li文阳
+编辑：Jack Li文阳
+校正/发稿：谐趣园
 
-人间孽钱知多少？
-
-博得千万网友同情的欧金中，在逃亡中被一老太婆告发，不知道是不是为了那几万元？
-
-这是小钱
-
-被CCP搞定的全球政要和大鳄收了多少“金”？
-
-强推疫苗的官员的银行账户多了几个零？
-
-听说，一个人的福报，比如健康、寿命、家庭、事业、金钱等等是有限的，遵循宇宙平衡法则，即此消彼长、总量不变，这就是为什么有人一升官一发财，就莫名其妙离世。
-
-我相信，人是有主人的，冥冥中自有神秘力量掌控一切，那些人间孽钱的拥有者，终将会食恶果！
-
-编辑：东京樱花团/喜马拉雅的微尘
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1-1.png)
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
 
 
  

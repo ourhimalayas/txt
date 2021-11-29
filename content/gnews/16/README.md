@@ -2,30 +2,39 @@
 ---
 
 
-## 中共国保险代理人数不足一年时间骤降百万
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1705732/)
+## 伊利诺伊州面临退休债务危机
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705753/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+作者： 纽约香草山健身部 – Ivy001
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/DAD45437-FC51-48E3-BC51-4AD1BDD5C9AE.jpeg)（图片来自路透社）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
 
-据《自由时报》11月29日报道，2020年中（共）国的保险代理人人数超9百万人。但根据2021年上半年的数据显示，不到一年时间，该人数骤降了1百多万。
+11月21日，美国零对冲报导, 2021年，伊利诺伊州的每个家庭平均要背负高达 11万 美元的政府雇员退休金债务，在2019 年，伊利诺伊州每个家庭的负担只有 9万美元。截至 2020 年 6 月 30 日，美国最大的养老基金缺口就在伊利诺伊州，缺口总额达 3130 亿美元。伊利诺伊州在退休债务方面也是全美最高的，已增加到 5千亿美元。不断增长的债务表示，超过 100 万伊利诺伊州政府工作人员和退休人员将会失去退休保障。根据皮尤慈善信托基金的数据，伊利诺伊州的州级养老金只有 39% 的资金到位，居全美最低。
 
-据报道，中共国2020年列册执业登记的代理制保险销售人员为971.2万人。而仅在2021年上半年，该人数便已下滑至842.8万。不到一年的时间，减少了近130万人。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/8-36.jpg)
 
-其中，截至今年第三季度结束，中共国平安保险集团的个人寿险销售代理人为70.62万人，较去年底的102.38万人缩减了31.76万人，缩减规模接近三分之一；而“中国人寿”的个险销售代理人为98万人，较3个月前的115万人减少了17万人。
+此前，文贵先生多次在大直播里分析，中共国房地产业的雪崩式爆雷和债务违约，必将对美国的养老保险金和退休金产生巨大的冲击。伊利诺伊州债台高筑，是美国退休金债务危机的缩影。
 
-此外，不少业内人士表示，目前公布的代理人数据可能还存在“灌水”现象。据一位寿险分公司负责人透露，很多代理人虽然保留职位，但是长年不出勤，也不出单，实属于无效人力。
+参考链接：
 
-*参考链接：[https://ec.ltn.com.tw/article/breakingnews/3752245](https://ec.ltn.com.tw/article/breakingnews/3752245)*
+- [伊利诺伊州面临退休债务危机](https://gettr.com/post/phw727b8f9)
+- [Illinois Pension Shortfall Surpasses $500 Billion, Average Debt Burden Now $110,000 Per Household](https://www.zerohedge.com/markets/illinois-pension-shortfall-surpasses-500-billion-average-debt-burden-now-110000-household)
 
-* * *
 
-*素材采编：幽蘭自得*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-10.jpg)
 
-*编辑：青衣青青*
+总编：Jack Li文阳
+编辑：Jack Li文阳
+校正/发稿：海阔天空1
 
-*发布：miumiu*
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
 
  
 

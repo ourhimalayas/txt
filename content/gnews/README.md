@@ -15,107 +15,107 @@
 
 ---
 
-### [“WHO为何在命名新的变体时跳过字母“Xi”](/content/gnews/1/README.md)
+### [在比利时发现欧洲首例新的中共病毒变异体](/content/gnews/1/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [川普呼吁就2020年大选进行公开辩论](/content/gnews/2/README.md)
+ ` HimalayaRussia`
+
+### [“WHO为何在命名新的变体时跳过字母“Xi”](/content/gnews/3/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [前职业球员呼吁“调查”足球运动员在比赛时突然倒地事件](/content/gnews/2/README.md)
+### [前职业球员呼吁“调查”足球运动员在比赛时突然倒地事件](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [抖音推出短剧付费模式](/content/gnews/3/README.md)
+### [抖音推出短剧付费模式](/content/gnews/5/README.md)
  ` 首尔天池农场`
 
-### [中共国“团结非洲”为其提供10亿支疫苗](/content/gnews/4/README.md)
+### [中共国“团结非洲”为其提供10亿支疫苗](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [临床研究证明 接种疫苗会导致患心脏病风险显著增加](/content/gnews/5/README.md)
+### [临床研究证明 接种疫苗会导致患心脏病风险显著增加](/content/gnews/7/README.md)
  ` 温哥华扬帆农场 Michael.Tonny`
 
-### [11/28/2021 文贵直播：大家不要忘記病毒是源自中共軍方的生化武器（粤语配音版）](/content/gnews/6/README.md)
+### [11/28/2021 文贵直播：大家不要忘記病毒是源自中共軍方的生化武器（粤语配音版）](/content/gnews/8/README.md)
  ` 秘密翻译组-北美组`
 
-### [GTV新闻访谈简报|2021年11月29日早](/content/gnews/7/README.md)
+### [GTV新闻访谈简报|2021年11月29日早](/content/gnews/9/README.md)
  ` 纽约香草山MOS01`
 
-### [独裁者都具有精神与人格的双重缺陷](/content/gnews/8/README.md)
+### [独裁者都具有精神与人格的双重缺陷](/content/gnews/10/README.md)
  ` GTV新闻访谈`
 
-### [世界经济濒临崩溃的三大指征](/content/gnews/9/README.md)
+### [世界经济濒临崩溃的三大指征](/content/gnews/11/README.md)
  ` GTV新闻访谈`
 
-### [英国国际投资公司启动， 对抗 “一带一路”](/content/gnews/10/README.md)
+### [英国国际投资公司启动， 对抗 “一带一路”](/content/gnews/12/README.md)
  ` GTV新闻访谈`
 
-### [每日快报：将合成生物学视为重置生命系统的力量](/content/gnews/11/README.md)
+### [每日快报：将合成生物学视为重置生命系统的力量](/content/gnews/13/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [为防范Omicron日本宣布全面禁止外籍人士入境](/content/gnews/12/README.md)
+### [为防范Omicron日本宣布全面禁止外籍人士入境](/content/gnews/14/README.md)
  ` 日本东京方舟农场`
 
-### [中共释放变种病毒 祸乱世界 意在台湾](/content/gnews/13/README.md)
+### [中共释放变种病毒 祸乱世界 意在台湾](/content/gnews/15/README.md)
  ` GTV新闻访谈`
 
-### [伊利诺伊州面临退休债务危机](/content/gnews/14/README.md)
+### [伊利诺伊州面临退休债务危机](/content/gnews/16/README.md)
  ` GTV新闻访谈`
 
-### [人间孽钱知多少](/content/gnews/15/README.md)
+### [人间孽钱知多少](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国保险代理人数不足一年时间骤降百万](/content/gnews/16/README.md)
+### [中共国保险代理人数不足一年时间骤降百万](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [CCP统治对中国职业精神的伤害](/content/gnews/17/README.md)
+### [CCP统治对中国职业精神的伤害](/content/gnews/19/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [通过病毒和疫苗以需淘汰人口](/content/gnews/18/README.md)
+### [通过病毒和疫苗以需淘汰人口](/content/gnews/20/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [超过76000港人获得英国BNO签证](/content/gnews/19/README.md)
+### [超过76000港人获得英国BNO签证](/content/gnews/21/README.md)
  ` GTV新闻访谈`
 
-### [再有27名俄罗斯外交官被美国驱逐出境](/content/gnews/20/README.md)
+### [再有27名俄罗斯外交官被美国驱逐出境](/content/gnews/22/README.md)
  ` 日本东京方舟农场`
 
-### [世界半数以上的人反对疫苗接种](/content/gnews/21/README.md)
+### [世界半数以上的人反对疫苗接种](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [美议员称“台湾共和国”推文措辞是有意为之](/content/gnews/22/README.md)
+### [美议员称“台湾共和国”推文措辞是有意为之](/content/gnews/24/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [新一轮放毒就是共产党干的](/content/gnews/23/README.md)
+### [新一轮放毒就是共产党干的](/content/gnews/25/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中非合作论坛显颓势 非洲国家逐步远离中共](/content/gnews/24/README.md)
+### [中非合作论坛显颓势 非洲国家逐步远离中共](/content/gnews/26/README.md)
  ` GTV新闻访谈`
 
-### [中共如何看待西方各宗教](/content/gnews/25/README.md)
+### [中共如何看待西方各宗教](/content/gnews/27/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [忧虑强感染性新变种病毒 美国限制从非洲8国入境](/content/gnews/26/README.md)
+### [忧虑强感染性新变种病毒 美国限制从非洲8国入境](/content/gnews/28/README.md)
  ` GTV新闻访谈`
 
-### [河南发生学生集体食物中毒 校长曝教育局垄断配餐](/content/gnews/27/README.md)
+### [河南发生学生集体食物中毒 校长曝教育局垄断配餐](/content/gnews/29/README.md)
  ` GTV新闻访谈`
 
-### [解药对新型变种病毒依然有效](/content/gnews/28/README.md)
+### [解药对新型变种病毒依然有效](/content/gnews/30/README.md)
  ` GTV新闻访谈`
 
-### [阿富汗人道灾难 媒体再次失声](/content/gnews/29/README.md)
+### [阿富汗人道灾难 媒体再次失声](/content/gnews/31/README.md)
  ` GTV新闻访谈`
 
-### [银河快讯:日本“全面禁止外国人入境”；日美考虑在1月举行2+2安全会谈](/content/gnews/30/README.md)
+### [银河快讯:日本“全面禁止外国人入境”；日美考虑在1月举行2+2安全会谈](/content/gnews/32/README.md)
  ` 日本银河系农场-阿尔法星球`
 
-### [不打疫苗的是智民](/content/gnews/31/README.md)
+### [不打疫苗的是智民](/content/gnews/33/README.md)
  ` 骄子`
 
-### [DC每日热点1129](/content/gnews/32/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [11/28/2021 文贵直播：中共在上海封医院，世界媒体都被中共和邪恶势力收买来掩盖真相、推卸责任](/content/gnews/33/README.md)
+### [11/28/2021 文贵直播：中共在上海封医院，世界媒体都被中共和邪恶势力收买来掩盖真相、推卸责任](/content/gnews/34/README.md)
  ` 秘密翻译组-北美组`
-
-### [DC大中华时事：澳门将积极开展反清洗黑钱工作](/content/gnews/34/README.md)
- ` 喜马拉雅-华盛顿DC农场`
 
 ### [11/28/2021 文贵直播：中共将摧垮美欧经济并制造动乱以掩护其攻台，然后将继续放毒](/content/gnews/35/README.md)
  ` 秘密翻译组-北美组`
