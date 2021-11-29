@@ -2,45 +2,26 @@
 ---
 
 
-## 荷兰军警突袭飞机以逮捕逃离隔离区的夫妇
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1705002/)
+## 日本札幌市修改申办冬奥会计划，消减经费
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1705072/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+撰稿：东京樱花团/百花李香
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-926.png)图片来源于网络
+29日，以举办2030年冬奥会和残奥会为目标的日本北海道札幌市向市议会报告了一项赛事大纲草案，其举办成本为2800亿至3000亿日元。
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/2018-11-21-KMAR-description-1.jpg)
+通过利用现有的比赛设施等，比之前的预算减少了900亿日元，与2019年估计的3100-3700亿日元相比，最多减少了20%以上，政府希望获得公众的理解。
 
+本次活动的费用大致为大会的运营费2000-2200亿日元（2019年预计为2300亿日元），
 
- 
-图片来源： www.fiep.org
+800亿日元用于设施建设（2019年预计为800億-1400億円）。
 
+其中，举办奥运会的费用将由赞助和其它收入支付，不使用税收。为应对中共病毒和其它问题，一个新的200亿日元的储备金也已被纳入，同时规划和组织开幕式和闭幕式的费用也被降低。
 
-#### 编译：小红帽
+信息源：[最高减资20%，减资900亿日元 第30届冬季奥运会申办计划公告-札幌市](https://www.jiji.com/jc/article?k=2021112900797&amp;g=soc)
 
-一对疑似携带Omicron病毒的已婚夫妇逃离了荷兰的一家隔离酒店，但在该夫妇的航班即将起飞时，军警从飞机上把他们带走了。
-
-荷兰武装部队在一份声明中证实，这起戏剧性事件发生在阿姆斯特丹史基浦机场，当时该航班将于周日下午 6 点左右起飞前往西班牙。
-
-当局没有公布这对被拘留的夫妇的身份，目前还不清楚他们是被感染还是只是为了预防而被隔离。军警将他们移交给卫生官员，并送往另一个隔离设施。
-
-周五，在所有27个欧盟成员国同意暂时禁止来自七个南部非洲国家的旅行之前，在航空公司乘客中发现了十多例新的Omicron新冠病毒（COVID-19）变种病例后，荷兰处于高度戒备状态。
-
-所有最近从南非以及博茨瓦纳、马拉维、莱索托、埃斯瓦蒂尼、纳米比亚、莫桑比克和津巴布韦抵达荷兰的人，即使接种了新冠疫苗，也必须接受检测和隔离，直到结果出来。
-
-在合共624名乘客中，约有61人的新冠病毒检测呈阳性，因此荷兰国家卫生研究所 (RIVM) 警告说，“新的变种可能会在更多的测试样本中被发现。”
-
-“我们将控制人们是否遵守这些规则，”荷兰卫生部长雨果·德容格 (Hugo de Jonge) 周日宣布，就在该夫妇企图逃跑的前几个小时。
-
-**参考新闻：**[Military police raid plane to arrest couple trying to flee quarantine — RT World News](https://www.rt.com/news/541586-netherlands-couple-flee-quarantine/)
-
-***发布：小红帽***
-
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
-
+*校对：东京樱花团/知了知了
+发布：东京樱花团/平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

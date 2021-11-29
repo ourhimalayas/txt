@@ -2,24 +2,22 @@
 ---
 
 
-## 腾讯财付通涉2千元外汇违规，被重罚278万元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704940/)
+## 中共新型空中加油机首次进入台湾防空识别区
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704986/)
 
 撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-57.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fp2.itc.cn%2Fq_70%2Fimages03%2F20211128%2Fa53db950eee64aff89d58ff9a4d514bf.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F504030795_120952561&amp;tbnid=m20lZ1YOk9t63M&amp;vet=12ahUKEwjA-MDKlr30AhU0oVsKHdxPDTUQMygIegUIARCvAQ..i&amp;docid=McIr7gGeNHYuxM&amp;w=1080&amp;h=648&amp;q=%E8%85%BE%E8%AE%AF%E8%B4%A2%E4%BB%98%E9%80%9A&amp;ved=2ahUKEwjA-MDKlr30AhU0oVsKHdxPDTUQMygIegUIARCvAQ)
-中共国家外汇管理局深圳市分局近日公布的行政处罚信息显示，微信支付的运营主体——财付通支付科技有限公司11月22日被罚278万元。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-50.jpg)
-据中共国外汇管理局深圳市分局开出的深外管检[2021]43号行政处罚决定书，财付通存在未按规定报送相关材料、超过登记范围开展外汇业务、未按规定办理售汇业务、未按规定采集必要信息等四项违法事实。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-135.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fmedia.dwnews.net%2Fdw%2Fvxq8mAZ0IeIrCPgNtadiKcXP8QU%253D%2F320*0%2Fmedia%2Fimages%2Fdw%2F20181210%2F15444363115c0e3a57c6d28.jpg&amp;imgrefurl=https%3A%2F%2Fwww.famousdnm.com%2F%25E4%25B8%25AD%25E5%259B%25BD%2F60270157%2F%25E8%25A7%25A3%25E6%2594%25BE%25E5%2586%259B%25E6%2596%25B0%25E5%259E%258B%25E5%258A%25A0%25E6%25B2%25B9%25E6%259C%25BA%25E9%25A6%2596%25E6%25AC%25A1%25E7%258E%25B0%25E8%25BA%25AB%25E5%258F%25B0%25E6%25B5%25B7%25E5%25B0%2586%25E5%25A4%25A7%25E5%25A4%25A7%25E6%258F%2590%25E5%258D%2587%25E6%2588%2598%25E5%258A%259B&amp;tbnid=-AHu4qdhgKcwJM&amp;vet=12ahUKEwjA_IzmlL30AhUbHTQIHdWdARUQMygBegUIARCdAQ..i&amp;docid=OMDyZTDyRyC8dM&amp;w=1920&amp;h=798&amp;itg=1&amp;q=%E4%B8%AD%E5%85%B1%E6%96%B0%E5%9E%8B%E7%A9%BA%E4%B8%AD%E5%8A%A0%E6%B2%B9%E6%9C%BA&amp;ved=2ahUKEwjA_IzmlL30AhUbHTQIHdWdARUQMygBegUIARCdAQ)
+台湾国防部11月28日公布，当天有27架次中共国大陆军机进入台湾西南防空识别区活动，其中包括战斗机和轰炸机等。
 
-中共国外汇管理局深圳市分局对财付通作出责令改正，给予警告，没收违法所得0.2万元，处以罚款人民币278万元的行政处罚。
+超过一半上述军机穿越台湾和菲律宾之间的巴士海峡上空，绕至台湾东南近海，然后沿大致相同路线掉头飞往大陆方向，其中包括一架新型空中加油机运油-20。据认为，这是台湾国防部首次确认到运油-20空中加油机进入台湾防空识别区。
 
-据天眼查APP显示，财付通成立于2006年，注册资本10亿元。深圳市腾讯计算机系统有限公司、深圳市世纪凯旋科技有限公司分别持有95%和5%的股份。
+台湾国防部智库研究员欧锡富今年4月发表的分析称，和中共国大陆此前的主力空中加油机相比，运油-20的空中加油能力增至3倍。中国大陆军机的作战半径未来将显著扩大。
 
-另据中国基金报报道，针对被处罚278万元一事，财付通11月28日回应称，针对2019-2020年例行检查中发现的问题，财付通已第一时间制定了改进计划，并逐项落实，目前已全部完成整改。后续将在国家外汇管理局深圳市分局的指导下，进一步加强合规管理。
+另外，台湾主要媒体援引熟悉中共国大陆军方动向的专家揭仲的话报道称：“未来如果有多架运油-20部署，大陆空军将成为真正意义上的‘远征型空军’。大陆军机有可能在台湾南部近海和东南近海更为频繁训练，台湾面临的防空压力将大幅加重。”
 
 消息来源:
 
-[腾讯财付通被罚278万 涉超范围开展外汇业务等“四宗罪”](https://finance.sina.com.cn/chanjing/gsnews/2021-11-29/doc-ikyamrmy5773895.shtml)
+[中国大陆新型空中加油机进入台防空识别区](https://www3.nhk.or.jp/nhkworld/zh/news/335286/)
 
 *校对：东京樱花团/知了知了*
 *发布：东京樱花团/tdownc2p*

@@ -2,39 +2,34 @@
 ---
 
 
-## 为防备Omicron病毒以色列禁止所有外国人入境
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1705080/)
+## 中共病毒新突变 Omicron令日本率先关闭国门
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1705176/)
 
-翻译: 里奇
+作者：东京樱花团｜捆绑CCP一千年
+![](https://lh6.googleusercontent.com/8DsKVF4TkvrUmod4hv8ratlTMNarL5hRDiiw2CqEDOkrCRYMxGrGRvmiCW-o05whh_FTGonG4CRFhHOlnDTluSLOYbKMXEmHCBzzIcJSrvfX4OEEWr-YxHdP52Uw5YUj8KOyS7Vf)[*图片来源*](https://www.asahi.com/articles/photo/AS20211129001301.html?iref=pc_photo_gallery_next_arrow)
+**日本因世界上OMICRON新变种毒株蔓延而关闭国门，从30日凌晨起禁止令生效，包括日本海外归来者，首相岸田文雄说：“该措施以防止日本出现最坏的情况。” “我有觉悟来承受所有的批评”。另据新中国联邦郭文贵先生透露，这是中国共产党制造地缘政治动乱。郭先生早在15号就说过，新的病毒可能会从美国的西部开始被投放，非洲不是新的传染源。**
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/屏幕截图-2021-11-29-113322-1.jpg)图片来源: reuters.com
+据日本[朝日新闻](https://www.asahi.com/articles/ASPCY4RBSPCYULFA01C.html?iref=pc_special_coronavirus_top)29日消息，首相岸田文雄发布全国旅游禁止令，从30日午夜起禁止外国人入境。这是日本自大流行以来第二次封关。[**阅读更多**](http://www.news.cn/2021-11/29/c_1128111711.htm)
 
-路透社耶路撒冷 11 月 27 日 – 以色列周六表示将禁止所有外国人进入该国，使其成为第一个完全关闭边境以应对一种新的、可能更具传染性的冠状病毒变种的国家，并表示将使用反恐电话跟踪技术来遏制 Omicron 变体的传播。
+作为对中共病毒（Covid-19）新突变[**Omicron**](https://www.washingtonpost.com/health/2021/11/26/faq-new-variant-omicron/)病毒株采取紧急疏散预防措施，岸田说，我会这样做的。并在总理府回答了记者的采访。
 
-总理纳夫塔利·贝内特在一份声明中表示，这项正等待政府批准的禁令将持续 14 天。官员们希望在此期间会有更多关于 COVID-19 疫苗对 Omicron 有效的信息，Omicron 最早在南非被发现，世界卫生组织称之为“值得担忧的变种”。
+政府消息确认，决定暂时中止自本月 8 日开始对外国商人、留学生和技术实习生进行放松管制的措施。不仅如此，岸田首相还打算加强对确诊Omicron菌株的14个国家/地区，以及南非等9个国家/地区的日本海外归国者的边境措施。
 
-内政部长阿耶莱特·沙克德 (Ayelet Shaked) 在 N12 的“会见媒体”节目中说：“我们的操作预设是，几乎每个国家都已经有了这种变种，而且疫苗是有效的，尽管我们还不知道到什么程度。”
+- ***延展阅读：***[***刻意渲染紧张感？日本年度防卫预算总额首超6万亿日元***](http://www.news.cn/mil/2021-11/29/c_1211466231.htm)
+- ***延展阅读：***[***欧盟委员会主席表示，Omicron新毒株让世界陷入“与时间赛跑”的境地***](https://www.cnn.com/2021/11/28/world/coronavirus-omicron-variant-spreading-intl/index.html)
 
-贝内特说，进入该国的以色列人，包括已接种疫苗的人，将被要求隔离。该禁令将于周日周一间的午夜生效。周五对来自大多数非洲国家的外国人实施了旅行禁令。
 
-贝内特说，Shin Bet 反恐机构的电话跟踪技术将用于定位新变种病毒的携带者，以遏制其向其他人的传播。
+岸田先生特别强调，“我认为在管理政府时应该在处理未知的风险时保持更加谨慎。至于有人批评说安田在不知道发生什么时过于谨慎，我有觉悟来承受所有的批评。”
 
-该监控技术自 2020 年 3 月起断断续续地使用，将病毒携带者的位置与附近的其他手机进行匹配，以确定他们与谁接触过。在民权组织对隐私问题提出挑战后，以色列最高法院今年限制了其使用范围。
+另据美联社日本消息证实，日本因Omicron蔓延禁止外国游客入境日本，首相岸田文雄说：“[该措施将于周二生效。我们正在采取紧急预防措施，以防止日本出现最坏的情况](https://www.mrt.com/news/article/Japan-bans-entry-of-foreign-visitors-as-omicron-16658858.php)。”
 
-该变种也在比利时、博茨瓦纳、香港、意大利、德国和英国被发现，引发了全球关注和一波旅行限制，尽管流行病学家表示，此类限制可能为时已晚，无法阻止 Omicron 在全球范围内传播。
+对于Omicron新变种为何在南非发源？对此，新中国联邦郭文贵先生透露，“中国共产党显然是在制造地缘政治动乱，非洲根本不可能是传染源，这是注射两针疫苗接种者之间的传播，共产党把这个嫁祸非洲。”郭先生曾在15号就说过，“新的病毒即将开始，这不是我预测的，是中国潜逃欧洲的一位资深生化专家透露的，他说新的病毒可能会从美国的西部开始被投放。关键是制造你内部矛盾，把你供应链断掉，让你活在恐惧中。”郭先生补充说（[37:57时段](https://gettr.com/post/pi5gfs500d)）。
 
-到目前为止，以色列已确认了 1 例 Omicron 病例，其中有 7 例疑似病例。卫生部尚未说明确诊病例是否接种了疫苗。卫生部周六表示，7 起疑似病例中的 3 起已完全接种疫苗，另外 3 起最近没有国外旅行记录。
+2021年11月29日
 
-根据卫生部的数据，以色列 940 万人口中约有 57% 已完全接种疫苗，这意味着他们要么已经接种了第三剂辉瑞-生物科技疫苗，要么距他们接种第二剂疫苗还不到五个月。自大流行开始以来，以色列已记录了 130 万例 COVID-19 确诊病例和 8,000 多人死亡。
-
-新闻来源: [reuters.com][Israel to ban entry of foreigners from all countries over Omicron](https://www.reuters.com/world/middle-east/israel-ban-entry-foreigners-all-countries-over-omicron-2021-11-27/)
-
-* * *
-
-*审核：文乐
-校对：阿伯塔
-发稿：Nuevo唐人*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-2.jpeg)
+*校对：东京樱花团 / 東洋武士*
+*发布：东京樱花团 / 平安卿卿*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88-4.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

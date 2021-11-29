@@ -2,24 +2,44 @@
 ---
 
 
-## 参议员克鲁兹：司法部应该起诉福奇
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1704967/)
+## 荷兰军警突袭飞机以逮捕逃离隔离区的夫妇
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1705002/)
 
-#### 撰稿：彩虹
+#### **【雅典娜快讯】，紧贴时事脉搏**
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-3-5.jpg)图片来源：国会山报
-11月28日，《新闻极限》报道来自德克萨斯州的美国参议员泰德·克鲁兹（Ted Cruz）称，安东尼·福奇（Anthony Fauci）博士是一个“未经选举产生的技术官僚，他歪曲科学和事实，以便对数百万美国人实施权威控制”。
+- ![](https://assets.gnews.org/wp-content/uploads/2021/11/2018-11-21-KMAR-description-1.jpg)
 
-克鲁兹在推特上发文说：“他生活在一个自由主义的世界，在这里，他自诩‘我代表科学’的态度得到了称赞”。
 
-文章报道，由于福奇在五月份否认国家卫生研究院资助了中共国武汉一家病毒学实验室的“病毒功能性增强”研究，这受到了包括克鲁兹和来自肯尼迪州的国会参议员兰德·保罗（Rand Paul）等人的指责。对此，克鲁兹已经敦促梅里克·加兰（Merrick Garland）检察长任命一名特别检察官来调查福奇的言论。
+ 
+图片来源： www.fiep.org
 
-周日，克鲁兹列举了四个“事实”，说明他为何要求司法部对福奇进行调查，以及事实的结论是：“无论民主党人进行怎样的广告式言论诋毁，都无法使福奇摆脱他的这种自相矛盾。福奇要么用详细的、有具体事实佐证的东西来解决实质性问题，要么司法部就应该考虑起诉福奇向国会做虚假陈述”。
 
-**新闻来源**
+#### 编译：小红帽
 
-[Sen. Cruz Responds to Fauci Attack: Unelected Technocrat With Distorted Science](https://www.newsmax.com/politics/ted-cruz-anthony-fauci-department-of-justice/2021/11/28/id/1046476/)
+一对疑似携带Omicron病毒的已婚夫妇逃离了荷兰的一家隔离酒店，但在该夫妇的航班即将起飞时，军警从飞机上把他们带走了。
+
+荷兰武装部队在一份声明中证实，这起戏剧性事件发生在阿姆斯特丹史基浦机场，当时该航班将于周日下午 6 点左右起飞前往西班牙。
+
+当局没有公布这对被拘留的夫妇的身份，目前还不清楚他们是被感染还是只是为了预防而被隔离。军警将他们移交给卫生官员，并送往另一个隔离设施。
+
+周五，在所有27个欧盟成员国同意暂时禁止来自七个南部非洲国家的旅行之前，在航空公司乘客中发现了十多例新的Omicron新冠病毒（COVID-19）变种病例后，荷兰处于高度戒备状态。
+
+所有最近从南非以及博茨瓦纳、马拉维、莱索托、埃斯瓦蒂尼、纳米比亚、莫桑比克和津巴布韦抵达荷兰的人，即使接种了新冠疫苗，也必须接受检测和隔离，直到结果出来。
+
+在合共624名乘客中，约有61人的新冠病毒检测呈阳性，因此荷兰国家卫生研究所 (RIVM) 警告说，“新的变种可能会在更多的测试样本中被发现。”
+
+“我们将控制人们是否遵守这些规则，”荷兰卫生部长雨果·德容格 (Hugo de Jonge) 周日宣布，就在该夫妇企图逃跑的前几个小时。
+
+**参考新闻：**[Military police raid plane to arrest couple trying to flee quarantine — RT World News](https://www.rt.com/news/541586-netherlands-couple-flee-quarantine/)
+
+***发布：小红帽***
+
+**更多资讯，请关注：****
+**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
+[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
+[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
+[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
+[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
 
  
 

@@ -2,24 +2,34 @@
 ---
 
 
-## 最高警戒“Omicron”，11月30日0点起禁止全球外国人入境
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1705063/)
+## 【玫瑰看新闻】第205期 新西兰本地新闻
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1705167/)
 
-撰稿：东京樱花团/鲤鱼打挺
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-925.png)图片来源
-日本把对于Omicron变异毒株的警戒提升至最高级，国立传染病研究所加强监控，日本将禁止全球外国人入境。
+2021年11月28日（新西兰时间）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/PHOTO-2021-11-28-22-33-19.jpg)
+🌲.最新通报：社区新增144例，又一病例死亡
 
-26日将Omicron变异毒株列为第二高的“关注变种”（VOI）但由于欧洲等国出现一系列感染病例，决定进一步加强监控。28日晚，将“Omicron”指定为“关注变种”（VOC），并将其提升至警戒三个阶段中的最高级别。
+11月28日下午1点，卫生部发布了最新的疫情通报。在过去一天，新西兰社区新增阳性病例144例。其中，奥克兰127例，怀卡托9例，北地2例，丰盛湾4例，霍克斯湾有1例。
 
-日本政府11月29日宣布，将在全球范围内禁止外国人入境，作为加强海滨应对中共病毒新变种Omicron迅速蔓延的措施的一部分。该禁令将实施 “一个月”，并将于30日0点生效。
+卫生官员目前在密切关注关于新的Omicron B.1.1529变种的最新国际信息。
 
-信息来源：[入国停止は「当面1カ月」　邦人待機、英独など追加](https://news.yahoo.co.jp/articles/946f69f1fba72d3ac35d747c0b7cba6e50d8a1e4)
+作为一项预防措施，根据卫生总干事的建议，政府昨日将非洲南部的9个国家列入“非常高风险国家”名单，对前往新西兰的旅行实施更多限制。
 
-[オミクロン株の警戒度、日本も最高レベルに　感染研、監視を強化](https://news.yahoo.co.jp/articles/f6e581c04c51cc04d1c2efb1a2a7c486acd927f6)
+🌲.[奥克兰北部突发大火，40名消防员、数架直升机赶往灭火](https://www.nzherald.co.nz/nz/fire-at-woodhill-forest-40-firefighters-at-scene-north-of-auckland/SLRP2YBEOOF27F2JB2BVQGE3BE/)
 
-*校对：东京樱花团/知了知了
-发布：东京樱花团/平安卿卿*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/%E6%9C%80%E6%96%B0%E7%89%88-4.png)
+据[英文《先驱报》报道](https://www.nzherald.co.nz/nz/fire-at-woodhill-forest-40-firefighters-at-scene-north-of-auckland/SLRP2YBEOOF27F2JB2BVQGE3BE/)，今天早晨，大约40名消防员前往Woodhill Forest灭火。
+
+奥克兰西北部地区突发的这场大火覆盖面积约26公顷。
+
+几架直升机也赶到现场帮助灭火。
+
+新西兰消防与紧急服务部（Fire and Emergency NZ）经理Josh Pennefatther说，大火没有威胁到任何房子，也没有人受伤。起火原因尚不清楚。
+
+
+
+审核校对：Barry Jack
+上传排版：F
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
