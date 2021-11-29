@@ -2,26 +2,26 @@
 ---
 
 
-## 生育假变“纸面福利”，中共将成本转嫁企业
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1705244/)
+## 中共国已有380家房产开发商破产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1705258/)
 
-撰稿：东京樱花团/喜马拉雅的微尘
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-227.png)
-[图片来源](https://udn.com/news/story/7333/5916161)
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-136.jpg)
+[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fwww.fangchanjiaoyi.com%2Fuploads%2Fallimg%2F210624%2F2-2106241K31YZ.jpg&amp;imgrefurl=http%3A%2F%2Fwww.fangchanjiaoyi.com%2Ffg%2F881.html&amp;tbnid=oStKSbg6NKBm-M&amp;vet=12ahUKEwiwkLChwb30AhUdAjQIHbjbDdoQMygAegUIARCYAQ..i&amp;docid=lz7QLZkOy2AUfM&amp;w=507&amp;h=240&amp;q=%E5%BC%80%E5%8F%91%E5%95%86%E7%A0%B4%E4%BA%A7&amp;ved=2ahUKEwiwkLChwb30AhUdAjQIHbjbDdoQMygAegUIARCYAQ)
 
-针对持续下降的人口出生率，近年来，中共不断调整生育政策，以期提高生育率。近日，多地政府修订相关法规延长生育假，引发了广泛的关注和热议。
+11月29网易新闻报道，据人民法院公告网显示，截止到11月26日，中共国已有380家开发商破产。进入下半年以来，多个百强房企也罕见出现了“到期债务未及时偿还”、“债务展期”等情况。另据中原地产统计数据显示，过去五年，中共国有近2700家开发商宣布破产。
 
-近日，上海，浙江，重庆等多地相继通过了修改生育条例的决定，其中，上海将生育假由三十天延长到六十天。浙江是规定女方在享受国家规定产假的基础上，一孩延长产假60天，二孩、三孩延长产假90天。而重庆直接将育儿假的计量单位从“天”上升到了“年”——经单位批准，夫妻一方可以休育儿假至子女一周岁止，或者夫妻双方可以在子女六周岁前每年各累计休五至十天的育儿假。
+几千家开发商宣布破产，也未见房价有明显的下降趋势，不禁想起了近百年之前的美国农场主“倒牛奶”的现象：20世纪30年代大萧条时期，乳制品产量严重过剩，大量牛奶滞销。于是，农场主为了保证利润，把大量卖不掉的牛奶直接倒进密西西比河，也不免费给穷人喝。
 
-这些地方政府延长生育假的做法，看似是好政策，但实际却是中共常用的政府“请客”企业“买单”的套路。地方政府简单粗暴的以一纸文件来延长生育假，而没有财税相关的补助措施，必然会造成企业在用工、招聘时有意回避育龄女性的现实。可见，中共这种不负责任的行政方式，最终会导致生育假沦为纸面福利，同时还制造了新的社会矛盾和问题。
+今天发生在房地产行业的开发商宁愿破产也不降价卖房自救，与“奶农倒牛奶”是一丘之貉——现如今的中共国遍地是房子，开发商又面临各种资金压力，降价卖房一方面可以拉动回款填补资金缺口，完成自救。
 
-信息来源：
+近百年前的“倒牛奶”现象，正真实地在现如今的房地产行业生动上演——农场主“倒牛奶”，是因为产能过剩，没有需求，难以长期储存，运输物流成本太高。这基本上和楼市“倒牛奶”的问题如出一辙，中共国地契都没有哪来的产？没有地契和产权，哪来的房地产？大厦倾倒房380家开发商破产只是刚刚开始。
 
-[光明日报：生育假成本全由企业买单不现实](https://www.163.com/dy/article/GPVSKM1L0542QSA9.html?f=post2020_dy_recommends)
+信息来源：[380家房企宁愿破产也不降价，楼市开始“倒牛奶”？](https://3g.163.com/dy/article/GQ08SP7Q0542OBJJ.html?spss=adap_pc)
 
-编辑：东京樱花团/知了知了
+校对：东京樱花团/知了知了
 发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1-1.png)
 
 
  

@@ -2,27 +2,36 @@
 ---
 
 
-## 中共国已有380家房产开发商破产
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1705258/)
+## 中共高压监管下近200家公司被迫终止IPO上市计划
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1705273/)
 
-撰稿：东京樱花团/盐和光
-![](https://assets.gnews.org/wp-content/uploads/2021/11/2-136.jpg)
-[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fwww.fangchanjiaoyi.com%2Fuploads%2Fallimg%2F210624%2F2-2106241K31YZ.jpg&amp;imgrefurl=http%3A%2F%2Fwww.fangchanjiaoyi.com%2Ffg%2F881.html&amp;tbnid=oStKSbg6NKBm-M&amp;vet=12ahUKEwiwkLChwb30AhUdAjQIHbjbDdoQMygAegUIARCYAQ..i&amp;docid=lz7QLZkOy2AUfM&amp;w=507&amp;h=240&amp;q=%E5%BC%80%E5%8F%91%E5%95%86%E7%A0%B4%E4%BA%A7&amp;ved=2ahUKEwiwkLChwb30AhUdAjQIHbjbDdoQMygAegUIARCYAQ)
+#### 撰稿：日本东京方舟农场  海星
 
-11月29网易新闻报道，据人民法院公告网显示，截止到11月26日，中共国已有380家开发商破产。进入下半年以来，多个百强房企也罕见出现了“到期债务未及时偿还”、“债务展期”等情况。另据中原地产统计数据显示，过去五年，中共国有近2700家开发商宣布破产。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/B77CECEA-AC8A-4932-A42B-5415F7172805.jpeg)（图片来源：网络）
 
-几千家开发商宣布破产，也未见房价有明显的下降趋势，不禁想起了近百年之前的美国农场主“倒牛奶”的现象：20世纪30年代大萧条时期，乳制品产量严重过剩，大量牛奶滞销。于是，农场主为了保证利润，把大量卖不掉的牛奶直接倒进密西西比河，也不免费给穷人喝。
+据《中央社》11月28日报道，今年截至11月为止，中共国至少已有近200家公司在中共的高压监管之下，被迫终止了IPO上市计划。
 
-今天发生在房地产行业的开发商宁愿破产也不降价卖房自救，与“奶农倒牛奶”是一丘之貉——现如今的中共国遍地是房子，开发商又面临各种资金压力，降价卖房一方面可以拉动回款填补资金缺口，完成自救。
+该报道称，据统计，终止IPO上市计划的企业以创业板和科创版居多，共有167家公司；而在上海及深圳证交所主板终止IPO的公司也至少有29家。
 
-近百年前的“倒牛奶”现象，正真实地在现如今的房地产行业生动上演——农场主“倒牛奶”，是因为产能过剩，没有需求，难以长期储存，运输物流成本太高。这基本上和楼市“倒牛奶”的问题如出一辙，中共国地契都没有哪来的产？没有地契和产权，哪来的房地产？大厦倾倒房380家开发商破产只是刚刚开始。
+该报道指出，今年有众多IPO上市计划的公司在首次参加中共证监会股票发行审核委员会会议时，就被以各种理由否決或是暂缓审议。
 
-信息来源：[380家房企宁愿破产也不降价，楼市开始“倒牛奶”？](https://3g.163.com/dy/article/GQ08SP7Q0542OBJJ.html?spss=adap_pc)
+据悉，今年已有15家计划IPO的公司在首次审核时即遭暂缓审议；而在进入二次会议后，目前已有5家被否決，1家撤回了上市申請。
 
-校对：东京樱花团/知了知了
-发布：东京樱花团/yuxingcao01
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1-1.png)
+自2020年末中共国上交所终止蚂蚁科技集团IPO上市计划以来，中共针对各领域的高压政策正在逐步升级。在线音频分享平台“喜马拉雅”在今年9月也遭到施压，被迫撤回赴美上市计划。
 
+*链接：*
+
+1. [*https://www.cna.com.tw/news/acn/202111280064.aspx*](https://www.cna.com.tw/news/acn/202111280064.aspx)
+2. [*https://gnews.org/zh-hans/1525936/*](https://gnews.org/zh-hans/1525936/)
+
+
+* * *
+
+*素材采编：海星*
+
+*编辑：青衣青青*
+
+*发布：miumiu*
 
  
 

@@ -15,86 +15,86 @@
 
 ---
 
-### [中共军机再次扰台 首现空中运油机](/content/gnews/1/README.md)
+### [日本发力可重复使用火箭技术，积极培育太空产业](/content/gnews/1/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [日本与欧盟达成共识 协力构架自由开放的印太](/content/gnews/2/README.md)
+ ` 東京櫻花団-Tokyo Sakura Group`
+
+### [中共军机再次扰台 首现空中运油机](/content/gnews/3/README.md)
  ` 日本东京方舟农场`
 
-### [应对Omicron新变种病毒，世卫组织却呼吁保持边境开放](/content/gnews/2/README.md)
+### [应对Omicron新变种病毒，世卫组织却呼吁保持边境开放](/content/gnews/4/README.md)
  ` 墨尔本雅典娜农场`
 
-### [恢复香港部分“一国两制“的阴谋](/content/gnews/3/README.md)
+### [恢复香港部分“一国两制“的阴谋](/content/gnews/5/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [墙内要闻汇编 11月29日](/content/gnews/4/README.md)
+### [墙内要闻汇编 11月29日](/content/gnews/6/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [澳洲总理表态，支持达顿防长协防台湾强硬立场](/content/gnews/5/README.md)
+### [澳洲总理表态，支持达顿防长协防台湾强硬立场](/content/gnews/7/README.md)
  ` 走进澳洲`
 
-### [知名音乐人黄明志谈中共是如何管控外国艺人作品及言论](/content/gnews/6/README.md)
+### [知名音乐人黄明志谈中共是如何管控外国艺人作品及言论](/content/gnews/8/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [长滩唯一急诊所停业，5万居民失去当地紧急医护](/content/gnews/7/README.md)
+### [长滩唯一急诊所停业，5万居民失去当地紧急医护](/content/gnews/9/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [与中共病毒疫苗有关，心脏与中风风险显著增加](/content/gnews/8/README.md)
+### [与中共病毒疫苗有关，心脏与中风风险显著增加](/content/gnews/10/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [人们前所未有地在电视屏幕上倒地死亡](/content/gnews/9/README.md)
+### [人们前所未有地在电视屏幕上倒地死亡](/content/gnews/11/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [鲍里斯·约翰逊：Omicron变种会在已注射了两剂疫苗的人之间传播](/content/gnews/10/README.md)
+### [鲍里斯·约翰逊：Omicron变种会在已注射了两剂疫苗的人之间传播](/content/gnews/12/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [在台湾问题上，我们不应该听从中共国的要求](/content/gnews/11/README.md)
+### [在台湾问题上，我们不应该听从中共国的要求](/content/gnews/13/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频| 郭先生关于GETTR和GTV大V的认证](/content/gnews/12/README.md)
+### [视频| 郭先生关于GETTR和GTV大V的认证](/content/gnews/14/README.md)
  ` MOSREC`
 
-### [中共高压监管下近200家公司被迫终止IPO上市计划](/content/gnews/13/README.md)
+### [中共高压监管下近200家公司被迫终止IPO上市计划](/content/gnews/15/README.md)
  ` 日本东京方舟农场`
 
-### [路易威登男装系列创意总监因癌症去世](/content/gnews/14/README.md)
+### [路易威登男装系列创意总监因癌症去世](/content/gnews/16/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [中共国已有380家房产开发商破产](/content/gnews/15/README.md)
+### [中共国已有380家房产开发商破产](/content/gnews/17/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [世界上第一起针对比尔·盖茨及其合伙人的疫苗谋杀案在印度高等法院立案](/content/gnews/16/README.md)
+### [世界上第一起针对比尔·盖茨及其合伙人的疫苗谋杀案在印度高等法院立案](/content/gnews/18/README.md)
  ` 秘密翻译组-即时新闻播报组`
 
-### [生育假变“纸面福利”，中共将成本转嫁企业](/content/gnews/17/README.md)
+### [生育假变“纸面福利”，中共将成本转嫁企业](/content/gnews/19/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [11/29/2021国际财经快讯：华尔街中共病毒担忧再次出现;加密货币交易所Coinstore进入印度](/content/gnews/18/README.md)
+### [11/29/2021国际财经快讯：华尔街中共病毒担忧再次出现;加密货币交易所Coinstore进入印度](/content/gnews/20/README.md)
  ` 秘密翻译组金融团队`
 
-### [瑞士投票选择继续保留疫苗护照制度](/content/gnews/19/README.md)
+### [瑞士投票选择继续保留疫苗护照制度](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [运-20首现袭扰台湾西南防空识别区行动](/content/gnews/20/README.md)
+### [运-20首现袭扰台湾西南防空识别区行动](/content/gnews/22/README.md)
  ` G-NEWS TAIWAN`
 
-### [中共病毒新突变 Omicron令日本率先关闭国门](/content/gnews/21/README.md)
+### [中共病毒新突变 Omicron令日本率先关闭国门](/content/gnews/23/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [【玫瑰看新闻】第205期 币圈新闻](/content/gnews/22/README.md)
+### [【玫瑰看新闻】第205期 币圈新闻](/content/gnews/24/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [百万游行抵制强制疫苗和疫苗护照之澳大利亚阳光海岸](/content/gnews/23/README.md)
+### [百万游行抵制强制疫苗和疫苗护照之澳大利亚阳光海岸](/content/gnews/25/README.md)
  ` G-NEWS TAIWAN`
 
-### [【玫瑰看新闻】第205期 新西兰本地新闻](/content/gnews/24/README.md)
+### [【玫瑰看新闻】第205期 新西兰本地新闻](/content/gnews/26/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [班农专访6: 基辛格为中共全面入侵台湾背书](/content/gnews/25/README.md)
+### [班农专访6: 基辛格为中共全面入侵台湾背书](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [班农专访3: 疫苗是中共病毒真正的目的](/content/gnews/26/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【玫瑰看新闻】第205期 病毒疫苗新闻](/content/gnews/27/README.md)
- ` 喜马拉雅农场新西兰站`
 
 ### [台湾前线｜多国接续访台 台外交部：不屈服于解放军威胁](/content/gnews/28/README.md)
  ` G&#124;News TAIWAN`
