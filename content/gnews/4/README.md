@@ -2,31 +2,36 @@
 ---
 
 
-## 中共国保险代理人数不足一年时间骤降百万
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1705732/)
+## 独裁者都具有精神与人格的双重缺陷
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705860/)
 
-#### 撰稿：日本东京方舟农场  幽蘭自得
+作者：纽约香草山文艺部 – 宁文静
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
+在11月28日的文贵大直播中，郭先生深刻剖析了凡独裁者都具有的共同特征，即精神与人格的双重缺陷。绝对自卑导致绝对自负，导致给个人和国家，以及世界带来深重的灾难。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/DAD45437-FC51-48E3-BC51-4AD1BDD5C9AE.jpeg)（图片来自路透社）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/Slide3-19.jpeg)
 
-据《自由时报》11月29日报道，2020年中（共）国的保险代理人人数超9百万人。但根据2021年上半年的数据显示，不到一年时间，该人数骤降了1百多万。
+郭先生说，人类历史上出现的独裁者，如斯大林、希特勒、卡扎菲、毛泽东等，都有着相似的人生轨迹。一旦权力在握，首先编造故事，篡改历史。自称秉持上天赋予的使命，不死之躯，无所不能；然后用洗脑、废法等工具，笼络人心；挑起种族仇恨，构建所谓人类命运共同体；最后，当面临国内严重的经济与政治危机时，在极度恐惧中挑起战争，把仇恨和杀戮引向外部，最终导致极权政府的灭亡。
+ 
+郭先生指出，习的“中国梦”源于希特勒名言，“我以梦游者的自信，走向我的命运”。习挑战美国、经济脱钩、再次放毒、收复台湾等疯狂举动，同样来自他精神与人格的双重缺陷。 
 
-据报道，中共国2020年列册执业登记的代理制保险销售人员为971.2万人。而仅在2021年上半年，该人数便已下滑至842.8万。不到一年的时间，减少了近130万人。
+郭先生痛心地警告，习继续下去，中国人民将为此付出难以想象的沉重代价。
 
-其中，截至今年第三季度结束，中共国平安保险集团的个人寿险销售代理人为70.62万人，较去年底的102.38万人缩减了31.76万人，缩减规模接近三分之一；而“中国人寿”的个险销售代理人为98万人，较3个月前的115万人减少了17万人。
+参考链接：[2021年11月28日 文贵大直播：新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破](https://gtv.org/video/id=61a3828b44c1fe7a6c3aaf29)
 
-此外，不少业内人士表示，目前公布的代理人数据可能还存在“灌水”现象。据一位寿险分公司负责人透露，很多代理人虽然保留职位，但是长年不出勤，也不出单，实属于无效人力。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11月小图-1.png)
 
-*参考链接：[https://ec.ltn.com.tw/article/breakingnews/3752245](https://ec.ltn.com.tw/article/breakingnews/3752245)*
+总编：文真
+编辑：Kathy文艺
+校正/发稿：谐趣园
 
-* * *
-
-*素材采编：幽蘭自得*
-
-*编辑：青衣青青*
-
-*发布：miumiu*
-
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+![This image has an empty alt attribute; its file name is Screen-Shot-2021-08-30-at-7.37.59-PM.png](https://assets.gnews.org/wp-content/uploads/2021/08/Screen-Shot-2021-08-30-at-7.37.59-PM.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

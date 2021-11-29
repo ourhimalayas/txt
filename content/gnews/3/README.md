@@ -2,39 +2,30 @@
 ---
 
 
-## 伊利诺伊州面临退休债务危机
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705753/)
+## GTV新闻访谈简报|2021年11月29日早
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1705930/)
 
-作者： 纽约香草山健身部 – Ivy001
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-421.jpeg)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
+作者：香草山翻译部
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GTV_-_Google_-30.png)
+文章仅代表作者本人观点，与Gnews无关
 
-11月21日，美国零对冲报导, 2021年，伊利诺伊州的每个家庭平均要背负高达 11万 美元的政府雇员退休金债务，在2019 年，伊利诺伊州每个家庭的负担只有 9万美元。截至 2020 年 6 月 30 日，美国最大的养老基金缺口就在伊利诺伊州，缺口总额达 3130 亿美元。伊利诺伊州在退休债务方面也是全美最高的，已增加到 5千亿美元。不断增长的债务表示，超过 100 万伊利诺伊州政府工作人员和退休人员将会失去退休保障。根据皮尤慈善信托基金的数据，伊利诺伊州的州级养老金只有 39% 的资金到位，居全美最低。
+视频参看：2021.11.29早GTV新闻访谈
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/8-36.jpg)
+[https://gtv.org/video/id=61a4d5a544c1fe7a6c3b5b43](https://gtv.org/video/id=61a4d5a544c1fe7a6c3b5b43)
 
-此前，文贵先生多次在大直播里分析，中共国房地产业的雪崩式爆雷和债务违约，必将对美国的养老保险金和退休金产生巨大的冲击。伊利诺伊州债台高筑，是美国退休金债务危机的缩影。
+编辑： Lakers
+校对： Lakers
+发稿： Lakers
 
-参考链接：
-
-- [伊利诺伊州面临退休债务危机](https://gettr.com/post/phw727b8f9)
-- [Illinois Pension Shortfall Surpasses $500 Billion, Average Debt Burden Now $110,000 Per Household](https://www.zerohedge.com/markets/illinois-pension-shortfall-surpasses-500-billion-average-debt-burden-now-110000-household)
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-10.jpg)
-
-总编：Jack Li文阳
-编辑：Jack Li文阳
-校正/发稿：海阔天空1
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-419.jpeg)
 
 **更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[纽约香草山农场GTV-MOS TALK 香草山访谈](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[纽约香草山农场Gettr](https://www.gettr.com/user/himalaya_mos)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
  
 

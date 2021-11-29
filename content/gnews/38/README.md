@@ -2,10 +2,10 @@
 ---
 
 
-## 鲍里斯·约翰逊：Omicron变种会在已注射了两剂疫苗的人之间传播
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1705295/)
+## 与中共病毒疫苗有关，心脏与中风风险显著增加
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1705299/)
 
-11/27/2021 自相矛盾的英国首相鲍里斯·约翰逊：Omicron变种传播速度极快，并且会在已注射了两剂疫苗的人之间传播。我们还无法确切知道疫苗对Omicron的效果如何，但将进一步推广注射加强针。
+11/25/2021 心脏病与中风风险显著增加与中共病毒疫苗有关，疫苗和免疫联合委员会绝对应该对此进行调查。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

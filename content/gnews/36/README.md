@@ -2,10 +2,10 @@
 ---
 
 
-## 与中共病毒疫苗有关，心脏与中风风险显著增加
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1705299/)
+## 知名音乐人黄明志谈中共是如何管控外国艺人作品及言论
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1705303/)
 
-11/25/2021 心脏病与中风风险显著增加与中共病毒疫苗有关，疫苗和免疫联合委员会绝对应该对此进行调查。
+11/27/2021 知名音乐人黄明志谈中共是如何管控外国艺人的作品及言论的。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
