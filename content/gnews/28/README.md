@@ -2,24 +2,34 @@
 ---
 
 
-## 腾讯财付通涉2千元外汇违规，被重罚278万元
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704940/)
+## 全面防疫对策，东京将处于“1级”状态
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704948/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-57.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fp2.itc.cn%2Fq_70%2Fimages03%2F20211128%2Fa53db950eee64aff89d58ff9a4d514bf.jpeg&amp;imgrefurl=http%3A%2F%2Fwww.sohu.com%2Fa%2F504030795_120952561&amp;tbnid=m20lZ1YOk9t63M&amp;vet=12ahUKEwjA-MDKlr30AhU0oVsKHdxPDTUQMygIegUIARCvAQ..i&amp;docid=McIr7gGeNHYuxM&amp;w=1080&amp;h=648&amp;q=%E8%85%BE%E8%AE%AF%E8%B4%A2%E4%BB%98%E9%80%9A&amp;ved=2ahUKEwjA-MDKlr30AhU0oVsKHdxPDTUQMygIegUIARCvAQ)
-中共国家外汇管理局深圳市分局近日公布的行政处罚信息显示，微信支付的运营主体——财付通支付科技有限公司11月22日被罚278万元。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/6-50.jpg)
-据中共国外汇管理局深圳市分局开出的深外管检[2021]43号行政处罚决定书，财付通存在未按规定报送相关材料、超过登记范围开展外汇业务、未按规定办理售汇业务、未按规定采集必要信息等四项违法事实。
+撰稿：东京樱花团/鲤鱼打挺
+![](https://assets.gnews.org/wp-content/uploads/2021/11/7-11.png)[图片来源](https://finance.gucheng.com/UploadFiles_7830/202111/2021112709225343.jpg)
+东京都中共病毒传染病防治本部最近公布了“全面防疫对策期间的基本应对措施”。12月1日起全面防疫对策期间协同合作—向东京都政府、老人介护保健设施、托儿所等要求。
 
-中共国外汇管理局深圳市分局对财付通作出责令改正，给予警告，没收违法所得0.2万元，处以罚款人民币278万元的行政处罚。
+对应的时间是从12月1日到全市处于“1级”状态（能够确保稳定的普通医疗和应对中共病毒感染的医疗）的期间，请东京市民和企业协同合作进行感染防止。
 
-据天眼查APP显示，财付通成立于2006年，注册资本10亿元。深圳市腾讯计算机系统有限公司、深圳市世纪凯旋科技有限公司分别持有95%和5%的股份。
+具体来说，对于东京市民，要求
 
-另据中国基金报报道，针对被处罚278万元一事，财付通11月28日回应称，针对2019-2020年例行检查中发现的问题，财付通已第一时间制定了改进计划，并逐项落实，目前已全部完成整改。后续将在国家外汇管理局深圳市分局的指导下，进一步加强合规管理。
+▽避免“三密”
 
-消息来源:
+▽确保人与人之间的距离
 
-[腾讯财付通被罚278万 涉超范围开展外汇业务等“四宗罪”](https://finance.sina.com.cn/chanjing/gsnews/2021-11-29/doc-ikyamrmy5773895.shtml)
+▽戴口罩
+
+▽保持手的卫生
+
+彻底执行基本的感染防止措施，避开拥挤的场所和时间带。
+
+对于老人介护保健设施和托儿所等，要求彻底实施基本的感染防止措施。关于上班通勤，需要推进远程办公。
+
+此外，为了降低元旦前后聚餐的感染风险，2022年12月1日至1月16日，请求合作以确保“聚餐最多8人同桌”（感染防止贯彻检验证书颁发/张贴商店）。
+
+信息来源：
+
+[12月1日からの対策徹底期間、感染防止に協力を – 東京都、介護老人保健施設や保育所などに依頼も](https://news.yahoo.co.jp/articles/4313fc8c8e55d30d7e00e92efbbc043f98e4b654)
 
 *校对：东京樱花团/知了知了*
 *发布：东京樱花团/tdownc2p*

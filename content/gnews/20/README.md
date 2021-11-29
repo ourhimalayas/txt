@@ -2,36 +2,25 @@
 ---
 
 
-## WHO命名中共病毒新变种有猫腻，怕惹怒习近平
-` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704991/)
+## 掉入中共债务陷阱！乌干达唯一一个国际机场恐被中共接管
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1704996/)
 
-撰稿：东京樱花团/peterwong
-![](https://assets.gnews.org/wp-content/uploads/2021/11/5-58.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fi.ntdtv.com%2Fassets%2Fuploads%2F2021%2F09%2FCCPvirus-600x338.jpg&amp;imgrefurl=https%3A%2F%2Fwww.ntdtv.com%2Fgb%2F2021%2F08%2F31%2Fa103204325.html&amp;tbnid=zc8KZA5QE3vbgM&amp;vet=12ahUKEwiRo-_ylb30AhWzAzQIHZ88DmMQMygDegUIARCLAQ..i&amp;docid=OYjmF12IzjhNLM&amp;w=600&amp;h=338&amp;q=%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92%E6%96%B0%E5%8F%98%E7%A7%8D&amp;ved=2ahUKEwiRo-_ylb30AhWzAzQIHZ88DmMQMygDegUIARCLAQ)
-世界卫生组织将最近在南非发现的中共病毒变异株命名为“奥米克戎”（Omicron），没有按照希腊字母表的顺序，跳过了“Nu”和“Xi”两个字母。世卫组织说，Xi是常见姓氏，不采用这个字母是为了防止“污名化”。外界批评，世卫组织的病毒变种命名不用“Xi”是怕触怒中共国领导人习近平。
+#### 翻译/撰稿：zzballack
 
-世卫组织今年5月31日宣布使用希腊字母命名在英国、南非、巴西和印度首先发现的中共病毒变异株，也就是“阿尔法”（Alpha）、“贝塔”（Beta）、“伽马”（Gamma）、“德尔塔”（Delta），其他重要的变异株将按照“德尔塔”之后的希腊字母顺序命名。世卫组织说，避免用地名称呼病毒变体是为了防止对检测出和通报了病毒变异株的地区被污名化。
+#### 校对：Chris
+![](https://assets.gnews.org/wp-content/uploads/2021/11/图片2-2-2.jpg)图片来源：Palpal News Hub
+据印度媒体《世界一体新闻台》（WION）11月28日报道，乌干达可能很快就会成为中共债务陷阱的最新受害者。该国唯一的国际机场，即恩德培国际机场 (Entebbe International Airport)，正面临着被中共接管的危险。
 
-按照世卫组织官方网站的数据，按照希腊字母表排序，本月在南非最先发现的病毒变体应该被命名为“Nu”（汉字译音为“纽”），但“Nu”与英文单词“new”（新）谐音，世卫组织在弃用Nu作为命名字母后发现，下一个字母“Xi”（汉字译音为“克西”）可能引发更多令人头疼的政治联想。
+2015年11月，乌干达与中共进出口银行签署协议，以2%的利率贷款2.07亿美元，用于扩建恩德培国际机场。据坦桑尼亚《公民报》（The Citizen）报导，这笔贷款的偿还期限为20年，包括7年宽限期。宽限期内仅需偿还利息，暂不偿还本金，但宽限期将于明年失效。乌干达近期发现无法如期偿还，便派遣官方代表团前往北京再次谈判协议，但中共贷款方拒绝改变原协议的条款。
 
-英国《每日电讯报》全球卫生安全高级编辑保罗·努基（Paul Nuki）星期六在推特上说，这一猜测得到了世卫组织的证实。他说：“世界卫生组织的一位消息人士证实，希腊字母表上的Nu和Xi这两个字母被故意避免使用。此人说，跳过Nu是为了避免与单词‘新’（new）混淆，跳过Xi是为了‘避免对一个地区的污名化’。”
+原贷款协议中第13条赋予中共进出口银行批准年度和月度运营预算、检查乌干达政府和民航局（UCAA）账务的权力，因此具有争议。而中国国际经济贸易仲裁委员会被指派解决相关争端。乌干达民航局对此表示，恩德培国际机场和其他相关资产可能会在仲裁后被中共进出口银行扣押接管。
 
-“所有的疾病大流行本质上都是政治的！”努基写道。
+据乌干达《每日观察报》（Daily Monitor）报道，乌干达政府在协议中答应放弃国际豁免权，让恩德培机场无法受国际仲裁保护。乌干达财政部长马蒂亚·卡萨亚（Matia Kasaija）为这笔贷款的“不当处理方式”，上周向议会致歉。
 
-美国《纽约邮报》星期六援引世卫组织发言人玛格丽特·哈里斯（Margaret Harris）的话说：“（不用）Nu，原因是人们可能会误以为它的意思是‘新’变种，而不知道其实这是个名称……（不用）Xi，是因为这是一个常见的姓氏。我们已经同意，命名规则要避免使用地名、人名、动物等，来避免污名化。”
+中共进出口银行之前还资助了乌干达2个主要电力项目约85%的资金，和4.76亿美元建造从首都坎帕拉（Kampala）通往恩德培的恩德培高速公路。
 
-政治风险咨询公司欧亚集团主席伊恩·布雷默（Ian Bremmer）在推特上说，世卫组织不能将新毒株命名为“Xi变种”，因为“这会触怒中共国”。
+新闻来源：[China’s debt trap strategy: Uganda set to lose its only international airport to Beijing](https://www.wionews.com/world/chinas-debt-trap-strategy-uganda-set-to-lose-its-only-international-airport-to-beijing-432465)
 
-布雷默说：“如果你是WHO（世界卫生组织），你只能这样做。不过，这本质上仍然是挺难堪的。”
-
-长期在中共疫情问题上批评中共国的美国国会参议员泰德·克鲁兹（Ted Cruz）在推特上评论道：“如果WHO这么害怕中国共产党，下次中共试图掩盖一场灾难性的全球疾病大流行时，如何能相信他们（世卫组织）会作出公开批评？”
-
-消息来源:
-
-[怕犯了谁的名讳？世卫命名病毒新变种跳过希腊字母Xi](https://www.voachinese.com/a/who-covid-variant-naming-skips-xi-20211127/6330074.html)
-
-*校对：东京樱花团/知了知了*
-*发布：东京樱花团/tdownc2p*
-![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

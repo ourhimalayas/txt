@@ -2,60 +2,22 @@
 ---
 
 
-## Omicron变体最早发现于完全疫苗接种者
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1704576/)
+## 秘翻在线：日本封国！将禁止全世界外国人入境
+` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1704611/)
 
-**作者**：纽约香草山信息部- 诺雅
+翻译：文字燒
+![](https://assets.gnews.org/wp-content/uploads/2021/11/16381658161.png)图片来源：原文链接
+为了应对中共病毒的一个新变种–Omicron株的全球蔓延，岸田首相已宣布全面暂停所有外籍人士入境。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
+岸田首相表示：作为一项紧急预防措施，从11月30日午夜0点开始，日本将禁止全世界外国人进入日本。
 
+到目前为止，政府已经在9个国家加强了隔离措施，包括南非，那里已经确认了Omicron菌株，并且已经停止了新的入境者。 岸田首相进一步加强了这一措施，并宣布将暂时停止所有外国公民的入境，包括暂停从本月8日开始破例允许以商务为目的的短期访客、外国学生和技术实习生进入日本。 此外，从已确认为Omicron菌株的国家返回的日本国民将被要求在指定设施中进行隔离。
 
+岸田首相还透露，更严格的控制措施所针对的国家之一–纳米比亚的一人被怀疑对中共病毒检测呈 “阳性”。 然而，目前还不知道他是否感染了Omicron菌株。
 
+信息来源：[https://news.tbs.co.jp/newseye/tbs\_newseye4415498.html](https://news.tbs.co.jp/newseye/tbs_newseye4415498.html)
 
-
-1月25日，博茨瓦纳政府公开声明称，该国的Omicron新突变病毒，最先在四名接受两剂ccp病毒疫苗的患者中发现。这四名患者于11月7日进入博茨瓦纳执行外交任务，在11月11日准备回国时对中共病毒检测呈阳性。
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/261121botswana.jpg)
-
-声明中还指出，新毒株的变异传染性很广，它不仅存在于博茨瓦纳，更多非洲国家和其他地区也已经检测到该变种。
-
-据11月26日的世卫组织宣布，Omicron是第五个需要关注突变。因传言称该毒株传染性是德尔塔毒株的三倍，并且很可能对疫苗及人体免疫力有抵抗能力，随后周五全球金融市场暴跌，美国、加拿大、英国和欧盟等纷纷宣布对南部非洲国家实施新的旅行禁令。
-
-截至27日晚间，比利时、以色列、香港、英国已经确认发现新变种感染病例，德国和捷克也报告了疑似病例。
-
-参阅链接：
-
-[https://gettr.com/post/pi0ogq0f02](https://gettr.com/post/pi0ogq0f02)
-
-[https://www.reuters.com/business/healthcare-pharmaceuticals/japan-tighten-border-controls-s-africa-others-new-virus-variant-jiji-2021-11-26/](https://www.reuters.com/business/healthcare-pharmaceuticals/japan-tighten-border-controls-s-africa-others-new-virus-variant-jiji-2021-11-26/)
-
-[https://nypost.com/2021/11/27/omicron-variant-found-in-uk-germany-czech-republic/](https://nypost.com/2021/11/27/omicron-variant-found-in-uk-germany-czech-republic/)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-4.jpg)
-
-***总编：正义的小新***
-
-***编辑：文特***
-
-***校对/发稿：遍地开花***
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**** ****香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场****Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/logo-5-768x103-3.jpg)
-
-
-
-
+责编：待命（文晓）
 
  
 
