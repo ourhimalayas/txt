@@ -2,50 +2,38 @@
 ---
 
 
-## 参议员汤姆·科顿： 世卫就是个笑话，他们对中共产感情的关注，更甚于对公众健康
-` 美国政要直译推` [轉載自GNews](https://gnews.org/zh-hans/1704123/)
+## DC大中华时事：外媒关注中国多地延长生育假期支持三孩政策
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1704161/)
 
-参议员汤姆·科顿： 世卫组织WHO就是个笑话。 他们对 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的感情的关注，更甚于对公众健康的关注。 拜登总统再也不应该在没改革之前资助这个腐败的，[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的傀儡组织。
+*编辑：西北风 / 作图：*
 
+![](http://himalayawashingtondc.org/wp-content/uploads/2021/08/ScreenShot-2021-08-01-at-17.25.09@2x.png)
 
+#   墙国妄语每日驳
 
-> The WHO is a joke. 
-> 
-> They're more concerned about the feelings of the Chinese Communist Party than they are about public health. 
-> 
-> President Biden should never have resumed funding to this corrupt puppet of the CCP without reform.
-> — Tom Cotton (@TomCottonAR) [November 27, 2021](https://twitter.com/TomCottonAR/status/1464609398693769222?ref_src=twsrc%5Etfw)
+### 11.28.2021
 
+[一文读懂丨三度携手广州，今年“读懂中国”国际会议有这些看点–国际–人民网 (people.com.cn)](http://world.people.com.cn/n1/2021/1128/c1002-32293791.html)
 
+***简评：***中国现在正快速步入二十世纪八十年代泛拉美国家拉美化陷阱。拉美化现象可以比较清晰的对照出中国现在的问题和未来结局。拉美国家完全照搬西式民主体制，初期几十年社会发展相当成功，但在收入达到中等收入国家水平后经济持续恶化，从此一蹶不振，进而发展到现在如墨西哥毒品黑帮猖獗，政府束手无策。有一点，拉美国家当时也兴起民粹主义在迭举体制下，民众要求的社会民生福利政策是确实惠及普通民众的，尽管超出本国经济实际承载能力的过渡福利政策是导致拉美陷阱的重要原因之一，政府从此债台高筑，这和中共现在正在进行的共同富裕有着相似民粹主义背景。但中共进行的共同富裕可不是为了普通老百姓的民生福利，更不是要制定什么具体惠及民生的福利政策，中共现在完全是在抢劫百姓财富为中共政权续命，在这一点上是根本的区别。但无论泛拉美化陷阱还还是中共的共同富裕政策都是社会经济发展遇到了瓶颈而无法突破外在表现形式，其最根本的原因还是泛拉美国家文明根基浅薄，而中国即使是历史文明古国，根基如果此深厚但在中共一切假骗黑马列邪教祸害下文明的根基千疮百孔继而同样毫无例外无法突破拉美化陷阱。中共不灭中国只会更加泛拉美化，而且会非洲化。
 
-参议员泰德·克鲁兹： 福奇是一位未经选举产生的技术官僚，他歪曲科学和事实，以便对数百万美国人实行独裁控制。 他生活在一个自由主义的世界里，他自鸣得意的“我代表科学”的态度受到了赞扬。 事实如下：5月11日，福奇在参议院委员会作证说，“国家卫生研究院从来没有，现在也没有资助 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 武毒所的’功能增强’研究。”10月20日，国家卫生研究院写道，他们资助了武汉实验室的一项实验，测试“在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 传播的自然发生的蝙蝠冠状病毒的棘突蛋白是否能够与小鼠模型中的人类ACE2受体结合。”这就是功能增强研究.福奇的声明和国家卫生研究院10月20日的信件不可能都是真的。这些说法是直接矛盾的。 （4）《美国法典》第18卷第1001节规定，向国会撒谎是重罪，最高可判处5年监禁。再多的人身攻击也无济于事，民主党的论据无法使蝠奇摆脱这一矛盾。 福奇要么需要详细说明实质内容，并提供具体的事实佐证，否则司法部应考虑起诉他，因为他向国会做虚假陈述。
+### 11.28.2021
 
+[外媒：全球科学家争分夺秒破译奥密克戎变异毒株\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/health/20211128/2461208.shtml)
 
+***简评：***上世纪九十年代起，计算机互联网蓬勃发展，但随之而来的一个现象，电脑软件病毒也泛滥起来，今天终端手机的普及，软件病毒也偃旗息鼓了，回头现在我们知道制作软件的公司其实很多他们就是开发病毒软件的始作俑人。那是暴利行业，其中我们熟知的囯内360杀毒软件。这就有点类似中共现在的手法，施放冠状或奥密克是中共，全球推个疫苗也是中共，相同的也是病毒不断升级，疫苗也在加码升级，目的都是一样，谋利。
 
-> (1) On May 11, Fauci testified before a Senate Committee that “the NIH has not ever and does not now fund gain-of-function research in the Wuhan Institute of Virology.”
-> — Ted Cruz (@tedcruz) [November 28, 2021](https://twitter.com/tedcruz/status/1465085974849937413?ref_src=twsrc%5Etfw)
+### 11.28.2021
 
+[外媒关注中国多地延长生育假期支持三孩政策\_参考消息网 (cankaoxiaoxi.com)](http://m.cankaoxiaoxi.com/china/20211128/2461225.shtml)
 
+***简评：***仅仅是几年前中共国仍然是一胎政策，现在却要开始三孩政策了，这种天差之别的政策也真实的反映了中共国天差地别的经济社会现状。中共不遵循自然社会发展规律，拍脑袋政策，毛泽东一句话人多力量大，人口爆增，一胎政策几十年到今天，又遇到中共国新的三座大山，医疗，教育，住房人口爆跌。这就是中共执政下中共国现在和未来，一会天堂，下步就是地狱。
 
-参议员泰德·克鲁兹： 这是对我们的盟友和伙伴的一个不幸而残酷的提醒，提醒人们 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的资金是他们用来侵蚀其他国家主权和夺取其关键基础设施的有毒债务陷阱。 【转“坦桑尼亚更新”的推文：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 将接管乌干达的恩德培(Entebbe) 国际机场以抵偿债务。…【转“坦桑尼亚更新”的推文：[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 将接管乌干达的恩德培(Entebbe) 国际机场以抵偿债务。 中共国拒绝了乌干达提出的对六年前为机场扩建项目所选择的2亿美元贷款中的有毒条款进行重新谈判的要求。 此机场是该国唯一的国际机场】
-
-
-
-> This is an unfortunate and brutal reminder to our allies and partners that Chinese money is a toxic debt trap they use to erode other countries' sovereignty and seize their critical infrastructure. [https://t.co/YyVLzqQmwf](https://t.co/YyVLzqQmwf)
-> — Ted Cruz (@tedcruz) [November 28, 2021](https://twitter.com/tedcruz/status/1465040109359837184?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： [#共产中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的债务陷阱外交正在起作用。 他们得寸进尺。 【转“坦桑尼亚更新”的推文： [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 将接管乌干达的恩德培国际机场以抵偿债务。 中共国拒绝了乌干达提出的对六年前为机场扩建项目所选择的2亿美元贷款中的有毒条款进行重新谈判的要求。 此机场是该国唯一的国际机场】
-
-
-
-> Communist China’s debt trap diplomacy at work. 
-> 
-> Give them an inch, and they’ll take a mile. [https://t.co/I1PEkTgyhA](https://t.co/I1PEkTgyhA)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [November 27, 2021](https://twitter.com/MarshaBlackburn/status/1464724579226722306?ref_src=twsrc%5Etfw)
-
-
+#   港台资讯
+![](https://media.discordapp.net/attachments/858887785507323904/914346890814963722/DC11.27-2.jpg?width=1040&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/914346891154718740/DC11.27-1.jpg?width=1040&amp;height=586)![](https://media.discordapp.net/attachments/858887785507323904/914346891397976064/DC11.27-3.jpg?width=1040&amp;height=586)
+*编辑：*西北风
+*作图：信正
+发布：文顾*
 
  
 

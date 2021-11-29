@@ -2,47 +2,24 @@
 ---
 
 
-## 佛罗里达州全美人均中共病毒病例最少
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704219/)
+## 韩国三星公司宣布赴美投资建厂计划
+` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1704297/)
 
-作者：纽约香草山文艺部 – 宁文静
+原文采编：文明    编译撰稿：文明(添草灭共)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/05-picture.jpg)
+据【美国第一新闻网】11月26日报道，韩国科技巨头三星公司近日宣布，计划斥资170亿美元在德克萨斯州的泰勒市建立大型半导体芯片工厂，预定2024年下半年正式投产。
 
+该公司负责人表示，工厂建成将直接为该州当地提供2000个工作岗位，并在不久之后为社区提供数千个就业机会。该合作计划支持者声称，此举将为当前的全球半导体芯片短缺困境提供长期的解决方案。
 
+报道指出，对“新冠病毒”疫情实行的封锁措施以及其他国家更有利的竞争优势和税收优惠，导致了美国制造业在过去十年中的萎靡不振。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Gnews-Logo-36-2.png)
+（以上内容仅代表原文信息和作者个人观点）
 
+校对编辑：硫酸羟氯喹64
 
+发稿：苦尽甜来 (文來）
 
-据11月26日佛罗里达州官方报告，该州本周中共病毒感染数为每10万人中6例，较上两周下降20%，为全美50个州感染率最低州。与此相比，民主党各州实施严格的封锁令，病例却在激增。密歇根州报告每10万人30例，而纽约州为每10万34例。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.2-11.jpg)
-据悉，此前，佛州州长德桑蒂斯因处理病毒的“另类”方式备受主流媒体的批评。疫情早期，他曾经因为反对政府强制实施口罩和疫苗政策而被民主党政客称为“死亡天使”。同时，佛州在今年8月份开设了25个单克隆抗体站点，并向全州超过15万人免费提供医疗救治，挽救了数千人的生命。从那时起，病例下降了95%以上，却对民众的自由没有设置任何限制。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1.1-13.jpg)
-参考链接：
-[Florida reports lowest daily coronavirus cases per capita in nation](https://www.foxnews.com/politics/florida-reports-lowest-daily-coronavirus-cases-per-capita-in-nation)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/Nov.png)
-
-总编：AN
-编辑：文特
-校对/发稿：为真不破20
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-
-
-![](https://assets.gnews.org/wp-content/uploads/2021/10/MOS_LOGO_publish-14.png)
-
-
+[原文链接](https://www.oann.com/samsung-to-build-17b-semiconductor-chip-plant-in-texas/)
 
  
 

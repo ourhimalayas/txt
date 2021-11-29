@@ -2,24 +2,37 @@
 ---
 
 
-## 捷克总统因病毒测试结果阳性而入院治疗
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1704320/)
+## 辉瑞疫苗临床试验结果表明接种组的全因死亡率高于安慰剂组
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704434/)
 
-原文采编： UCool优酷       编译撰稿：文文-自由法兰西
-![](https://assets.gnews.org/wp-content/uploads/2021/11/06-picture.jpg)
-据[法新社]11月25日报道，捷克总统泽曼因其当天的“新冠病毒”测试结果呈阳性，而随后被送入医院进行治疗。
+作者： 香草山健身部 – 童谣
 
-据悉，身为该国资深左翼人士总统，现年77岁的泽曼，尽管此前已完全接种了“新冠病毒”疫苗，并注射了加强剂。但此次仍被检测出该病毒的无症状感染，不禁让各界对该疫苗的有效性产生诸多担忧和质疑。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
 
-报道称，目前在人口约1070万的捷克，“新冠病毒”感染人数呈持续增长之势。由于近期疫情恶化，特别是前一天的新增感染病例约26000个，达该国历史新高，而导致当局立即宣布了新的疫情限制措施，包括在夜间关闭餐馆、酒吧以及整个圣诞节市场等。
+据以色列国家新闻网11月17日报道，美国食品和药物管理局近期发布的一份报告显示，辉瑞公司的疫苗临床实验中，接种组的全因死亡率比安慰剂组更高。
 
-（以上内容仅代表原文信息和作者个人观点）
+![](https://assets.gnews.org/wp-content/uploads/2021/11/6-49.jpg)
 
-校对编辑：硫酸羟氯喹64
+FDA在去年12月批准有限的紧急使用授权后，于2021年8月决定全面批准辉瑞-生物技术公司的中共病毒疫苗，该报告是为了提供背景信息而发布的。根据该报告，在辉瑞疫苗的临床试验开始6个月后，接种组报告的总死亡人数，比安慰剂组的死亡人数高近四分之一。即使如此，该报告却依旧声明，”没有一个人的死亡被认为与接种疫苗有关”。25日泽连科医生在盖特转发此条消息，称之为“疫苗大屠杀”（Pandemic of the vaccinated）。
 
-发稿：苦尽甜来 (文來）
+参考链接：
 
-[原文链接](https://www.barrons.com/news/czech-president-back-in-hospital-over-positive-covid-test-01637868607)
+- [Pandemic of the vaccinated.](https://gettr.com/post/phshbffe17)
+- [FDA report finds all-cause mortality higher among vaccinated](https://www.israelnationalnews.com/News/News.aspx/317091?s=09)
+
+
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-10.jpg)
+
+总编：文徬
+编辑：文徬
+校正/发稿：海阔天空1
+
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 

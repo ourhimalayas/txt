@@ -2,41 +2,38 @@
 ---
 
 
-## 美国想把共产党从所罗门赶走就派雇佣军在当地制造仇恨
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1704398/)
+## 美两党众议员合提法案助台湾在各国建立代表处
+` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704540/)
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/002211.jpg)
-据[2021年11月28日 文贵大直播：新变种Omicron 如临大敌；青蒿素妙药必将解救众生；中共国世界股票剧烈震荡；新中国联邦坚守唯真不破](https://gtv.org/video/id=61a3828b44c1fe7a6c3aaf29)时间点2：25：21——
+作者： 纽约香草山医疗部 – 云豹
 
-**郭文贵先生：**所罗门就是美国操作的，美国操作就想把共产党赶出去，共产党在那搞的机场、准军事基地。然后美国人就派出那些雇佣军当地制造仇恨，一操作就把共产党给赶走了，就这么简单，原来是台湾的地盘，很小儿科的，不值得我们想的事儿，跟咱们灭共这个事业比连个毛都算不上，别看热闹。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
 
-咱想干这事比它干得漂亮1000倍1万倍，容易的很，花钱比它还少。还不用搞那么多动乱，很Low的。严格讲美国的雇佣军也是骗钱的，借着机会骗钱。我都知道是谁干的，说明共产党很Low，共产党去的人也骗钱，给国家申请了两个亿，实际上花了不到1000万。
+11月23日，美国共和党籍众议员费希巴哈与民主党籍众议员皮特斯，联名提出《帮助台湾建立联系关系法案》。 该提案要求美国国务卿制定策略，帮助台湾在有意愿与台湾建立关系的国家内设立代表处；并帮助这些接受台湾的国家对抗伴随而来的中共威权威胁。
 
-都是骗子！都是一帮骗子，很Low！这些事儿发生一万次都不会影响灭共，也不会帮助灭共，跟我们爆料革命没有毛关系，别看这些热闹。
+![](https://assets.gnews.org/wp-content/uploads/2021/11/8-33.jpg)
 
-（以下暂略）
+费希巴哈表示，台湾是美国重要的友人及贸易伙伴，她很骄傲能提出该法案来要求美国政府采取具体步骤，促进台湾与其他国家发展联系关系。并表示，我希望能看到台湾与各国发展出一连串建立在相互尊重及贸易互利上的新友谊。
 
-撰稿：喜马拉雅的肉夹馍；
+该提案也获得了其他13位跨党派众议员的联署，并已送交众议院外交委员会审理。 若获得众院外委会表决通过，还需要经由众院及参院大会分别表决通过，才会递交给美国总统签署生效。
 
-审核：喜马拉雅的馍夹肉；
+参考链接：
 
-校对：Maarago；
+- [複製立陶宛模式 美議員提法案助台灣在全球增設代表處](https://www.cna.com.tw/news/firstnews/202111260011.aspx?utm_source=cna.app&amp;utm_medium=app&amp;utm_campaign=inapp_share)
 
-声明：文中内容根据郭文贵先生直播视频整理，如果文字内容与视频内容冲突则以原视频为准，标题仅为概括，标题与视频内容冲突之处仅代表作者个人观点。
 
-欢迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，请通过以下方式关注及订阅我们——
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-10.jpg)
 
-Discord：[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)；
+总编：Irene木木
+编辑：飞虹
+校正/发稿：海阔天空1
 
-YouTube：[日本银河系农场](https://www.youtube.com/c/%E9%93%B6%E6%B2%B3%E7%B3%BB%E5%86%9C%E5%9C%BA%E6%97%A5%E6%9C%AC)、[小七工作室](https://www.youtube.com/channel/UCpJIF2wIaqb4VBqF3-V_7KA/videos)、[刁民热线](https://www.youtube.com/channel/UCybJyCc-WPhvAXHnjoh06SQ) 、[Hello Friend 你好,朋友](https://www.youtube.com/channel/UCTc1E9DAHXliBuHIveYORjQ/featured)、[LoveMilesGuo](https://www.youtube.com/channel/UCyiz6hoABmlKpBWGhUbEfvw) 、[银河系档案放映馆](https://www.youtube.com/channel/UCJ0FJt00cutaMfhE2kuXd3A) ；
-
-G-News：[喜马拉雅日本银河系农场 G-News](https://gnews.org/zh-hans/author/jgalaxy2021/)、[日本银河系农场-阿尔法星球](https://gnews.org/zh-hans/author/galaxyalphaplanet/) 、[银河勇气之星](https://gnews.org/zh-hans/author/yinyongqi/)、[NewFOC](https://gnews.org/zh-hans/author/newfoc/) ；
-
-盖特：[日本银河系农场@himalayajgalaxy盖特](https://www.gettr.com/user/himalayajgalaxy)；
-
-推特：[日本銀河系農場\[email protected\]推特](https://twitter.com/HJapanGalaxyII)；
-
-G-TV：[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+**更多资讯，更多关注**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
