@@ -2,45 +2,61 @@
 ---
 
 
-## 两名已接种新冠疫苗的乘客到悉尼后测出Omicron变种阳性
-` 走进澳洲` [轉載自GNews](https://gnews.org/zh-hans/1704308/)
+## CDC：美国尚未发现Omicron病毒变体病例
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1703731/)
 
-#### **【雅典娜快讯】，紧贴时事脉搏**
+翻译：**Lulumi**
 
-- ![](https://assets.gnews.org/wp-content/uploads/2021/11/Omicron-Coronavirus-Variant-2111281622.jpg)
+![](https://assets.gnews.org/wp-content/uploads/2021/11/image-889.png)图片来源: theepochtimes.com
 
+总部位于美国亚特兰大市的疾病控制和预防中心（CDC）(Tami Chappell/路透社)
 
- 
-图片来源：www.businessinsiderbd.com/Representational
+据美国疾病控制和预防中心（CDC）称，截至目前，美国还没有发现新的Omicron病毒变体的病例。
 
+中共病毒变体Omicron本月早些时候首次出现在南部非洲，并被世界卫生组织（WHO）指定为令人担忧的变体，称其可能比Delta和Alpha病毒株更具传播性。
 
-#### 编译：小红帽
+疾病预防控制中心（CDC）周五在一份声明中说：“迄今为止，在美国还没有发现这种变体的病例。”
 
-随着越来越多的国家开始限制旅行，一种新冠病毒（COVID-19）变种-Omicron已经在澳大利亚的主要城市–悉尼被检测出来。
+该机构补充说：“CDC正在持续监测变体，美国的变体监测系统已经可靠地检测到这个国家的新变体。如果Omicron在美国出现，我们预计它将很快被发现。”
 
-约有260人与2名对Omicron变种检测呈阳性的乘客乘坐同一航班抵达新南威尔士，现在必须进行隔离。
+美国高级公共卫生官员安东尼·福奇周六在“今日”节目中说，如果Omicron变体已经在美国出现，他“不会感到惊讶”。
 
-当局已经通知他们，无论检测结果是否为阴性，都必须呆在家里14天。
+福奇说：“当有这样一种病毒时，它几乎无一例外地最终会在各地传播。”
 
-两名Omicron阳性的乘客，周六晚上乘坐卡塔尔航空公司QR908航班从多哈出发，现在被隔离在特别医疗设施中。两名乘客已经完全接种了新冠病毒疫苗，并没有出现症状。
+福奇还说，基因突变表明该病毒株可能更具传播性，并可能躲避疫苗的保护。
 
-世界卫生组织上周将Omicron称为 “值得关注的变种”，它的发现引发了全世界的担忧，即它可能抵抗新冠疫苗并延长近两年的新冠病毒大流行。
+该菌株已经在其他一些国家发现。荷兰官员说，他们在从南非出发的旅行者中发现了61个病例。
 
-该变体首先在南非被发现，随后在英国、德国、意大利、比利时、博茨瓦纳、以色列、香港以及现在的澳大利亚被发现。
+在其他国家，官员们说他们没有确认Omicron的存在，但怀疑它已经到达。
 
-暂停航班是世界各国为减缓Omicron变种的传播，而实施的众多限制中最引人注目的一项。许多国家已经实施或正在计划实施相关限制措施。
+德国的一名高级官员凯·克洛泽在社交媒体上说，该变种“非常可能”已经进入该国。
 
-**参考新闻：**[COVID: Omicron variant detected in Sydney and London (thenewdaily.com.au)](https://thenewdaily.com.au/news/world/2021/11/29/omicron-covid-sydney-london/)
+他补充说，在一个从南非回来的人身上检测到了几个“典型的Omicron”的变异，完整的测序工作尚未完成。
 
-***发布：小红帽***
+世界各地的国家，包括斯里兰卡、泰国和美国，因为这个新菌株而禁止来自南非和附近非洲国家的旅行者。
 
-**更多资讯，请关注：****
-**[澳大利亚墨尔本雅典娜农场Twitter](https://twitter.com/HimalayaAthena1)：HimalayaAthena
-[澳大利亚墨尔本雅典娜农场Gettr](https://www.gettr.com/user/himalayaathena)：himalayaathena
-[澳大利亚墨尔本雅典娜农场YouTube](https://youtube.com/channel/UC-tz4lmA7mG3FzYbylgqjTQ)
-[澳大利亚墨尔本雅典娜农场Discord](https://discord.gg/KQQVvwBNvm)
-[澳大利亚墨尔本雅典娜农场GTV直播1台](https://www.gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+“这些行动是在谨慎预防的基础上采取的，”澳大利亚卫生部长格雷格·亨特在一次简报会上告诉记者。
 
+WHO说，根据新出现的证据，Omicron菌株比包括Delta在内的早期毒株更具传播性。
+
+WHO在一份声明中说：“在南非的几乎所有省份，这一变种的病例数量似乎都在增加。”
+
+世卫组织敦促各国加强监测和测序工作，以更好地了解正在流行的中共病毒变体，向公开的数据库提交数据，并向其报告与包括Omicron在内的任何令人担忧的变体有关的病例和集群。
+
+世卫组织通常不鼓励实施旅行禁令，但在整个COVID-19大流行期间，各国都无视这一建议。
+
+南非官员谴责这些禁令，说它们基本上是在“惩罚南非先进的基因组测序和更快地检测新变体的能力”。
+
+南非国际关系与合作部说，官员们已经与实施禁令的国家取得联系，试图说服他们撤销禁令。
+
+新闻来源 :[ theepochtimes.com] [No Cases of Omicron Virus Variant Identified in US Yet: CDC](https://www.theepochtimes.com/no-cases-of-omicron-virus-variant-identified-in-us-yet-cdc_4126679.html)
+
+* * *
+
+*审核：文乐 
+校对：信心满满
+发稿：Nuevo唐人*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/GNEWS_CH.-2.jpeg)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

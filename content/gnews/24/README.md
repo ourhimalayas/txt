@@ -2,24 +2,17 @@
 ---
 
 
-## 韩国三星公司宣布赴美投资建厂计划
-` 加拿大扬帆农场《枫叶快讯》` [轉載自GNews](https://gnews.org/zh-hans/1704297/)
+## 【文贵先生大直播PPT】青蒿素功效
+` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)` [轉載自GNews](https://gnews.org/zh-hans/1703384/)
 
-原文采编：文明    编译撰稿：文明(添草灭共)
-![](https://assets.gnews.org/wp-content/uploads/2021/11/05-picture.jpg)
-据【美国第一新闻网】11月26日报道，韩国科技巨头三星公司近日宣布，计划斥资170亿美元在德克萨斯州的泰勒市建立大型半导体芯片工厂，预定2024年下半年正式投产。
+撰稿：飞飞及团队
+审核：三票先生，顽童先生，舒平风
 
-该公司负责人表示，工厂建成将直接为该州当地提供2000个工作岗位，并在不久之后为社区提供数千个就业机会。该合作计划支持者声称，此举将为当前的全球半导体芯片短缺困境提供长期的解决方案。
+【2021年11月28日文贵先生大直播PPT：青蒿素功效】
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1-196.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/2-132.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/3-110.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/4-73.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/5-56.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/6-48.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/7-41.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/8-32.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/9-24.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/10-13.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/11-17.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/12-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/13-6.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/14-7.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/15-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/16-5.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/17-4.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/18-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/19-3.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/20-2.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/21-14.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/22-11.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/23-10.jpg)![](https://assets.gnews.org/wp-content/uploads/2021/11/24-8.jpg)
+* * *
 
-报道指出，对“新冠病毒”疫情实行的封锁措施以及其他国家更有利的竞争优势和税收优惠，导致了美国制造业在过去十年中的萎靡不振。
-
-（以上内容仅代表原文信息和作者个人观点）
-
-校对编辑：硫酸羟氯喹64
-
-发稿：苦尽甜来 (文來）
-
-[原文链接](https://www.oann.com/samsung-to-build-17b-semiconductor-chip-plant-in-texas/)
+上传：云起时
 
  
 

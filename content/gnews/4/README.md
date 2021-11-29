@@ -2,34 +2,90 @@
 ---
 
 
-## 医学精英制止了伊维菌素和HCQ对中共病毒的有效治疗
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704502/)
+## 视频| 郭先生谈关于“反华”这件事给战友们的建议
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1704602/)
 
-作者： 香草山健身部 – 童谣
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
-据门道专家11月25日报道，目前有365项研究，证明了伊维菌素和HCQ在治疗中共病毒方面的疗效。其中包括67项伊维菌素治疗中共病毒的对照研究，显示使用伊维菌素的中共病毒患者，病情有67%的改善。还有298项羟氯喹研究显示，使用羟氯喹的中共病毒患者，病情有64%的改善。
+## 摘自2021.11.26郭先生大直播
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/D2EA0FC459917BDC919E807FE5044A4665B317DB_size1026_w1024_h683.png)
-
-尽管有科学依据，蝠奇和医学精英们还是阻止了这些对中共病毒患者的有效治疗。mRNA疫苗的发明者罗伯特-马龙博士指责蝠奇等人说谎，并通过阻止HCQ和伊维菌素等治疗中共病毒的方法，导致50多万美国人死亡。另外，TGP报道，不仅仅是蝠奇，而是所有的美国顶级医学领袖都参与了羟氯喹的谎言。
-
-参考链接：
-
-- [There Are Now 365 Studies that Prove the Efficacy of Ivermectin and HCQ in Treating COVID-19 — Will Anyone Confront Fauci and The Medical Elites on Their Deception?](https://www.thegatewaypundit.com/2021/11/now-365-studies-prove-efficacy-ivermectin-hcq-treating-covid-19-will-anyone-confront-fauci-medical-elites-deception/)
+制作：香草山视频部，香草山香港部
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-10.jpg)
 
-总编：文徬
-编辑：Ivy001
-校正/发稿：海阔天空1
+现在所有的战友们在反华这件事情
+你能做的的就两件事
+加入农场 和农场保持联系
+然后在你的生活当中依法地
+把你有更多的基本的防护措施
+就是兔子都知道的 是吧
+要挖洞 是吧 防护 隐藏 别高调
+然后多找一些兔子与自己连在一起
+然后取暖 最本能的
+特别要记住 不要乱花钱
+什么买个农场啊 买个洞穴啊 这这
+你千万我求求别这么傻
+那就把目标集中在一起了 你就该被消灭了
+而且共产党也不会饶过你
+你能做的事情你倒保护不了你
+只有新中国联邦
+和农场全球协调的资金
+能力和关系才能救得了你
+比如说 在澳大利亚这种地方
+未来我们现在有
+澳大利亚最起码有将近40多个地方的警察
+退下来的安保机构
+情报部门成立的安保机构
+我们跟它签订合同书
+只有新中国联邦才能做 你做不了
+你付不起那个钱
+三天就把你那个钱耗光了
+每小时算钱怎么可能你付得起
+不论是澳喜 不论是雅典娜 你都做不到
+只有新中国联邦通过咱们澳大利亚的政治关系
+还有美国的关系 世界的关系跟它签一个合同
+价钱还便宜 还有咱们也能付得起钱
+然后全面行动
+所以千万不要傻到你们这种
+全球任何人你想独立地安全这次绝不可能
+第二就是不要乱花钱乱做决定
+那个每天都发生成本的事你少干
+特别别藏金子藏银子
+那绝对会要你的命而不会保护你
+有人到时候知道你家有黄金的时候
+第一个就冲进去了 你完了
+而且什么时候你敢拿着金子去买面包去
+你看你能够活着回来吗
+没有任何用的 是吧
+当地的少量的现金
+然后呢还目前有少量的美元你是要有的
+而且别都是百块钱的是吧
+有十块的 五十块的 二十块的
+你别弄一百美金一杵
+一枪把你干掉了乱世的时候
+所以说这种基本的常识要有
+特别是猫本你们这个年龄的人
+不要有任何的幻想和无知的行动
+那会要你的命的
+只有加入农场 跟农场全面协调
+新中国联邦全面协调 绝对是有全球的计划
+新中国联邦做不到的你不可能做到
+
+
+
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg](https://assets.gnews.org/wp-content/uploads/2021/11/8dbdb53e-ab63-4f68-9d47-0893550ffa61.jpg)
 
 **更多资讯，更多关注**
+
 [**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
 [**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
+
 [**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
 
  
 
