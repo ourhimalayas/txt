@@ -2,27 +2,57 @@
 ---
 
 
-## 灾难让人民觉醒系列：银行里的钱取不出来的国家是有信用的吗？（5）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1706373/)
+## 秘翻在线：美科技巨头们大比例抛售所持股份，意欲何为？
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1706475/)
 
-撰稿：喜妈
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9D622674-C9B8-4047-BE99-813640280FD0.jpeg)来自网络截图
-笔者最近在和一个墙内朋友聊天过程中，提到之前跟她分享过的喜币。我很欣喜地告诉她，那个原来只是在规划中的数字货币体系，终于上市了。朋友非常感兴趣。她是一个对经济很有敏锐度的人，对一切能赚钱的事情都好奇，也愿意了解。我之前跟她提到过这个当时叫G dollar，现在该叫H coin和H dollar的数字双币框架。
+编译：雨季仰光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/11Picture1.png)图片来源：网络
+据零对冲（Zerohedge）报道，上周在短短两天时间内，与亚马逊老板杰夫.贝索斯（Jeff Bezos）及埃隆.马斯克（Elon Musk）一道，微软CEO萨蒂亚.纳德拉（Satya Nadella）也加入了巨头们抛售所持股份的队列，所售股份占约占其持有总额的一半。
 
-笔者不是专业人士，也讲不清楚很多东西；可是我知道她有丰富的炒股经验，我调转镜头直接把H coin的交易平台给她看。她看到数字和交易示意图，马上就明白了。她非常兴奋，不断地问我很多相关的问题。笔者也尽力将自己所知道的关于喜币的事情都告诉她。
+亚马逊的贝索斯也售出相当大的份额。
 
-当然，最后她表示，她也想买。我就告诉她，要去做KYC；同时，也告诉她该怎么去做。笔者还教她一些自己知道的经验和方法。可是由于她在墙内，笔者也提示，要注意安全，注意使用翻墙软件等。不过，请她一定在着手进行之前，自己再用安全的VPN上喜交所平台上多多了解。
+下图所示为亚马逊股票走势图及贝索斯的几处重要卖点（译者注）。
+![](https://cms.zerohedge.com/s3/files/inline-images/bfm360B.jpg?itok=oLPN3KCK)
+特斯拉的马斯克同时也更为积极地（公开地）抛售其所持股份。
 
-她告诉笔者，她不怎么会VPN，但是可以找到她的表弟帮忙。这个对话就算告一个段落。隔了几天，她给我联系，非常沮丧而且极其气愤。她说，没法做任何事情，因为自己的钱根本取不出来。她计划想倒腾点钱出来，就去银行。这才发现，她存在银行的钱不知什么时候给买了理财产品。她说她并没有买过，可是她的钱从系统上就是显示已经买了这个银行的所谓定期的理财。这个可是完全没有想到的事情。
+下图为特斯拉股票走势图并标示了马斯克的股票抛售点位。
 
-她从柜台到后台，找了当班的经理，都说不清楚这个事情；要么说自己是才来的不了解，要么说要上报给分行，再查询。她的账户上有几十万的现金，一直没怎么动用；原本是给要出国的儿子准备的。因为儿子后来不出国了，就没有其他打算。这会儿正要想动用一下，居然就给捆绑成理财产品，要三年之后才能取现。她不服气，还准备再去找这个分理处理论。
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmA433_2.jpg?itok=L_I51-qr)](https://www.zerohedge.com/s3/files/inline-images/bfmA433_2.jpg?itok=L_I51-qr)
 
-这个事情笔者听到，也很惊讶；原来很多在爆料革命中听到的事情，的确就发生在自己的身边，离自己并不遥远。原来，中共国的奇葩和荒唐居然如此普遍地存在。一个国家的银行可以不经过顾客的授权就自由处理在这里的资金，而且顾客本人上门来理论还没有渠道可以得到直接明确的解决方案和事情的原委。最为关键的是，是顾客自己的钱，被弄成取不出的死钱，这是什么道理？
+而当下，微软的萨蒂亚.纳德拉在11月22至23号售出其所持有的普通股的份额达83.86万股。下图为纳德拉抛售微软股份的点位及股票走势图。
 
-这个道理在中共国讲不清楚，也无法理论。我可以料想我这个朋友的下一步，就是被银行不断地拖延和缓兵之计处理。一个字“拖”，就是解决方案。这个部门那个部门，不知道经过多少天，即使给你解除，也就不了了之；也许最坏的情况就是告诉你，这笔钱不知被那个临时工给弄错，破解不了。你能拿回本来就是胜利，不要有太多的乐观期待。
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC295_0.jpg?itok=qLIJQ-7v)](https://www.zerohedge.com/s3/files/inline-images/bfmC295_0.jpg?itok=qLIJQ-7v)
 
-笔者当然支持朋友继续争取，可是我也知道这里面的各种未测。一个取不出自己的钱的国度，一个不讲商业信誉的银行，这就是中共国的现实。这是一个有法律和保障公民权利的国家吗？我们相信任何一个读者都能清楚地知道答案。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/澳喜图标2-1-2.jpg)
+下图所示为纳德拉在11月的这连续两天所售股份明细
+
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmF65E.jpg?itok=2oNTF1mR)](https://www.zerohedge.com/s3/files/inline-images/bfmF65E.jpg?itok=2oNTF1mR)
+
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC21E.jpg?itok=Nv_JOA_6)](https://www.zerohedge.com/s3/files/inline-images/bfmC21E.jpg?itok=Nv_JOA_6)
+
+这些销售行为与期权及10b5-1计划\*无关，是他有史以来的最大抛售行为。
+
+导致微软股价走低。这些股权的变化在11月24号收市后披露，势必将引发周五更大的抛压…
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfm9FA6_0.jpg?itok=s2y8xb3O)](https://www.zerohedge.com/s3/files/inline-images/bfm9FA6_0.jpg?itok=s2y8xb3O)
+上图为纳德拉抛售的具体股价部位及相应市场上周五个交易日走势变化
+
+是微软在这个价位已经太贵了吗？（上图为微软长周期走势）
+
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfmC474.jpg?itok=rK8tIxdg)](https://www.zerohedge.com/s3/files/inline-images/bfmC474.jpg?itok=rK8tIxdg)
+[![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/bfm4DED_1.jpg?itok=EDCJ8cqK)](https://www.zerohedge.com/s3/files/inline-images/bfm4DED_1.jpg?itok=EDCJ8cqK)![](https://cms.zerohedge.com/s3/files/inline-images/bfmED4B.jpg?itok=zPFJ3gjt)
+
+
+
+
+他们知道些什么（内幕）了吗？上两图显示从大周期看，目前点位在技术分析上看是一个碗形底的右碗边关键点位，属于底部形态的阶段最高点，后期一般经过一段时间调整将继续上行（译者注）
+
+作为不缺钱的大佬们同一时间步调一致地大规模减持所持股份，是真的在做技术上的高抛低吸吗？译者认为应该不会，大佬们不会在意高抛低吸那点散碎银子，大钱的走向或去留一般是在诠释资本对市场的态度，如此步调一致地，高比例减持股份，想必是他们洞察到资本市场未来的某些不确定性或巨大危机，从而先兑现筹码，落袋为安。
+
+从文贵先生对世界经济当前局势的分析可以预知，货币超发，大水漫灌之后的股市叠加疫情和疫苗的反复蹂躏，世界即将迎来的是类似上世纪20年代末的股市崩盘及随之而来的大萧条时代，历史何其相似！站在未来说历史是荒谬可笑的，但是总结历史事件，结合当下发生的现实事件，总可以找到规律性的蛛丝马迹来引导和准备我们今天的行为。
+
+新闻来源：[Why Did Satya Nadella Suddenly Dump Half His Microsoft Holdings Last Week?](https://www.zerohedge.com/markets/why-did-satya-nadella-suddenly-dump-half-his-microsoft-holdings-last-week)
+
+校对发布：Shifter
+
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

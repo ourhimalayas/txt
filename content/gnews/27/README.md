@@ -2,39 +2,50 @@
 ---
 
 
-## 英国国际投资公司启动， 对抗 “一带一路”
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1705783/)
+## 前职业球员呼吁“调查”足球运动员在比赛时突然倒地事件
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1705995/)
 
-作者： 纽约香草山健身部 – Ivy001
+![](https://assets.gnews.org/wp-content/uploads/2021/11/F5704625-D066-4DE3-B0AF-C208F69A774D_w1023_r1_s-2.jpg)谢菲尔德联队中场约翰·弗莱克 网络图片
+一名前英超职业足球运动员就昨晚比赛中一名足球运动员突然倒下事件，要求进行调查。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
+谢菲尔德联队中场约翰·弗莱克在对雷丁的比赛中突然摔倒在地，在接受了长时间的治疗后，不得不戴上氧气面罩被抬上担架。
 
-11月25日，英国外交大臣利兹·特拉斯在伦敦证券交易所正式启动英国国际投资公司，也就是BII机构，该机构可以动员私人资本，投资亚洲、非洲和加勒比地区，向全球提供一种替代方案，来取代专制政权和非市场经济体的中共，在之前提出的有附加条件的贷款方式，直接剑指中共的“一带一路”倡议。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/9-26.jpg)
-根据BII的公告，英国政府计划到2025年，每年动员80亿英镑的公共和私营部门资本，投资于相应的国际项目。同时，它计划着重帮助私营部门参与该项目，包括与资本市场和主权财富基金合作，扩大融资规模。
+这名球员成为最近几个月中突然倒地的足球运动员和其他顶级运动员中的又一个不幸者。
 
-推动此机构启动的英国外交大臣称，这是利用经济学作为外交政策的工具，来更加发挥英国对全球的影响。
+正如我们之前强调的那样，德国主要报纸《柏林日报》最近发表了一份报告，试图回答为什么“最近出现了异常倒地的大量的职业和业余足球运动员”。
 
-参考链接：
+文章列举了近期大量足球运动员在场上出现心脏问题或昏倒，甚至导致死亡的案例。
 
-- [UK seeks to counter China’s influence with new development investment arm](https://www.ft.com/content/93de6cc1-451a-465d-8233-8c9b903cedd4)
-- [英国拿90亿英镑组建国际投资机构“对抗中国影响力”？专家：夸张！](https://news.sina.com.cn/c/2021-11-25/doc-ikyamrmy5040712.shtml)
-- [UK overhauls development investment body to challenge influence of Chinese loans](https://www.cityam.com/uk-overhauls-development-investment-body-to-challenge-influence-of-chinese-loans/)
+该名单包括巴塞罗那的塞尔吉奥·阿奎罗，他在上个月巴塞罗那与阿拉维斯的西甲比赛中出现呼吸困难。尽管俱乐部否认了阿圭罗即将退役的传闻，但他肯定会缺席数月之久。
+
+其他职业运动员最近也出现了类似的健康问题，包括24岁的斯洛伐克曲棍球运动员鲍里斯·萨德基（Boris Sádecky），他在上个月的一场比赛中在冰上摔倒后不幸身亡。
+
+前英格兰和南安普顿球员马特·勒蒂西耶回应了弗莱克摔倒的消息，呼吁进行必要的调查。
+
+这位前英超球星在推特上写道：“在进行调查之前，还有多少运动员要倒在球场上。”
+
+与此同时，根据Yaffa Shir-Raz博士的一份报告，“2021年国际足联球员的心脏猝死增加了5倍”。
+
+个人评论：
+
+全球的新冠疫苗灾难，开始露出了狰狞面孔，开始席卷职业体育圈，主流媒体至今没有详细报道和剖析，为什么众多处于身体状态巅峰的职业运动员会突然血栓，脑梗，呼吸困难。
+
+世人一次次的用生命在发出警示：疫苗灾难是CCP导致的人祸，威胁着全人类，我们希望随着爆料革命传播真相，终结这次灾难，不再打疫苗，并最终终结中共这个人类历史上最大的邪恶毒瘤。
+
+原文链接：
+
+[Former Pro Calls For “Investigation” After Another Football Player Suddenly Collapses](https://www.infowars.com/posts/former-pro-calls-for-investigation-after-another-football-player-suddenly-collapses/)
+
+* * *
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/VsNaHaMUsy)
 
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/11-Nov-1-1-10.jpg)
+编辑：【英国伦敦喜庄园编辑部】
 
-总编：飞虹
-校正/发稿：海阔天空1
-
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-
-![](https://assets.gnews.org/wp-content/uploads/2021/11/1-225.png)
+![](https://assets.gnews.org/wp-content/uploads/2021/08/41bf97c0-3bb2-4a07-ad75-91b96dc3203c.jpg)
 
  
 

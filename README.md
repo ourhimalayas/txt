@@ -15,122 +15,122 @@
 
 ---
 
-### [喜币永远不会贬值，只会升值](/content/gnews/1/README.md)
- ` MG 澳喜农场多语组`
+### [【#G时新闻】密苏里州法官裁定去年以来实施的COVID限制为非法](/content/gnews/1/README.md)
+ ` G-时新闻`
 
-### [阿富汗大规模饥荒迫在眉睫，塔利班寻求帮助并抨击前政权](/content/gnews/2/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [针对新冠变种奥米克戎（Omicron)，采用地毯式追踪，可能需要第四剂新冠疫苗](/content/gnews/2/README.md)
+ ` xiaobaige`
 
-### [灾难让人民觉醒系列：银行里的钱取不出来的国家是有信用的吗？（5）](/content/gnews/3/README.md)
- ` 澳喜农场`
+### [秘翻在线：美科技巨头们大比例抛售所持股份，意欲何为？](/content/gnews/3/README.md)
+ ` 秘密翻译组-原创组`
 
-### [“爆二代”首次接触喜交所和见证喜币上市的感想](/content/gnews/4/README.md)
- ` 澳喜农场`
+### [联邦法官暂停了拜登对10个州的医务工作者的强制疫苗规定](/content/gnews/4/README.md)
+ ` 秘密翻譯組G-Translators`
 
-### [民声！民意！民权！我们有知道真相的要求和权力！](/content/gnews/5/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [2021/11/29 大卫作战室直播精要](/content/gnews/6/README.md)
+### [美国汽车制造商尚未强制要求工会工人接种疫苗](/content/gnews/5/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [灾难让人民觉醒系列：当没饭吃变成现实将如何面对（4）](/content/gnews/7/README.md)
- ` 澳喜农场`
-
-### [青蒿素是皇家特工007，精准打击病原体](/content/gnews/8/README.md)
- ` zuzu`
-
-### [科顿抨击世卫组织相比公共卫生“更关心”维护中共国政府的“感受”](/content/gnews/9/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [揭露残暴独裁者萨达姆·侯赛因等鲜为人知的罪行](/content/gnews/10/README.md)
- ` YALUN 亚伦`
-
-### [加拿大首两例欧姆龙变种病例在渥太华确诊](/content/gnews/11/README.md)
+### [杰克·多尔西下台后，有些人发誓要为盖特服务](/content/gnews/6/README.md)
  ` MG FARM`
 
-### [Eglise医生讲解伊维菌素等用药时机](/content/gnews/12/README.md)
- ` HimalayaRussia`
+### [不要忘记喜币是打击中共的武器](/content/gnews/7/README.md)
+ ` 温哥华扬帆农场枫叶组 Himalaya Sailing Farm Toronto(CA)`
 
-### [香港抗议影片《时代革命》在金马奖中获最佳纪录片奖](/content/gnews/13/README.md)
- ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+### [喜币永远不会贬值，只会升值](/content/gnews/8/README.md)
+ ` MG 澳喜农场多语组`
 
-### [油价下跌10美元/桶，创2020年4月以来最大单日跌幅](/content/gnews/14/README.md)
+### [2021/11/28 文贵先生直播精要](/content/gnews/9/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [班农“不睬民主党人国会调查委员会”案新进展](/content/gnews/15/README.md)
- ` HimalayaRussia`
-
-### [在比利时发现欧洲首例新的中共病毒变异体](/content/gnews/16/README.md)
+### [阿富汗大规模饥荒迫在眉睫，塔利班寻求帮助并抨击前政权](/content/gnews/10/README.md)
  ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
 
-### [川普呼吁就2020年大选进行公开辩论](/content/gnews/17/README.md)
+### [灾难让人民觉醒系列：银行里的钱取不出来的国家是有信用的吗？（5）](/content/gnews/11/README.md)
+ ` 澳喜农场`
+
+### [“爆二代”首次接触喜交所和见证喜币上市的感想](/content/gnews/12/README.md)
+ ` 澳喜农场`
+
+### [民声！民意！民权！我们有知道真相的要求和权力！](/content/gnews/13/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [2021/11/29 大卫作战室直播精要](/content/gnews/14/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [灾难让人民觉醒系列：当没饭吃变成现实将如何面对（4）](/content/gnews/15/README.md)
+ ` 澳喜农场`
+
+### [青蒿素是皇家特工007，精准打击病原体](/content/gnews/16/README.md)
+ ` zuzu`
+
+### [科顿抨击世卫组织相比公共卫生“更关心”维护中共国政府的“感受”](/content/gnews/17/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [揭露残暴独裁者萨达姆·侯赛因等鲜为人知的罪行](/content/gnews/18/README.md)
+ ` YALUN 亚伦`
+
+### [加拿大首两例欧姆龙变种病例在渥太华确诊](/content/gnews/19/README.md)
+ ` MG FARM`
+
+### [Eglise医生讲解伊维菌素等用药时机](/content/gnews/20/README.md)
  ` HimalayaRussia`
 
-### [“WHO为何在命名新的变体时跳过字母“Xi”](/content/gnews/18/README.md)
+### [香港抗议影片《时代革命》在金马奖中获最佳纪录片奖](/content/gnews/21/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [油价下跌10美元/桶，创2020年4月以来最大单日跌幅](/content/gnews/22/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [班农“不睬民主党人国会调查委员会”案新进展](/content/gnews/23/README.md)
+ ` HimalayaRussia`
+
+### [在比利时发现欧洲首例新的中共病毒变异体](/content/gnews/24/README.md)
+ ` 洛杉矶盘古农场 HIMALAYA LA PANGU`
+
+### [川普呼吁就2020年大选进行公开辩论](/content/gnews/25/README.md)
+ ` HimalayaRussia`
+
+### [“WHO为何在命名新的变体时跳过字母“Xi”](/content/gnews/26/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [前职业球员呼吁“调查”足球运动员在比赛时突然倒地事件](/content/gnews/19/README.md)
+### [前职业球员呼吁“调查”足球运动员在比赛时突然倒地事件](/content/gnews/27/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [抖音推出短剧付费模式](/content/gnews/20/README.md)
+### [抖音推出短剧付费模式](/content/gnews/28/README.md)
  ` 首尔天池农场`
 
-### [中共国“团结非洲”为其提供10亿支疫苗](/content/gnews/21/README.md)
+### [中共国“团结非洲”为其提供10亿支疫苗](/content/gnews/29/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [临床研究证明 接种疫苗会导致患心脏病风险显著增加](/content/gnews/22/README.md)
+### [临床研究证明 接种疫苗会导致患心脏病风险显著增加](/content/gnews/30/README.md)
  ` 温哥华扬帆农场 Michael.Tonny`
 
-### [11/28/2021 文贵直播：大家不要忘記病毒是源自中共軍方的生化武器（粤语配音版）](/content/gnews/23/README.md)
+### [11/28/2021 文贵直播：大家不要忘記病毒是源自中共軍方的生化武器（粤语配音版）](/content/gnews/31/README.md)
  ` 秘密翻译组-北美组`
 
-### [GTV新闻访谈简报|2021年11月29日早](/content/gnews/24/README.md)
+### [GTV新闻访谈简报|2021年11月29日早](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [独裁者都具有精神与人格的双重缺陷](/content/gnews/25/README.md)
+### [独裁者都具有精神与人格的双重缺陷](/content/gnews/33/README.md)
  ` GTV新闻访谈`
 
-### [世界经济濒临崩溃的三大指征](/content/gnews/26/README.md)
+### [世界经济濒临崩溃的三大指征](/content/gnews/34/README.md)
  ` GTV新闻访谈`
 
-### [英国国际投资公司启动， 对抗 “一带一路”](/content/gnews/27/README.md)
+### [英国国际投资公司启动， 对抗 “一带一路”](/content/gnews/35/README.md)
  ` GTV新闻访谈`
 
-### [每日快报：将合成生物学视为重置生命系统的力量](/content/gnews/28/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [为防范Omicron日本宣布全面禁止外籍人士入境](/content/gnews/29/README.md)
- ` 日本东京方舟农场`
-
-### [中共释放变种病毒 祸乱世界 意在台湾](/content/gnews/30/README.md)
- ` GTV新闻访谈`
-
-### [伊利诺伊州面临退休债务危机](/content/gnews/31/README.md)
- ` GTV新闻访谈`
-
-### [人间孽钱知多少](/content/gnews/32/README.md)
+### [通过病毒和疫苗以需淘汰人口](/content/gnews/36/README.md)
  ` 東京櫻花団-Tokyo Sakura Group`
 
-### [通过病毒和疫苗以需淘汰人口](/content/gnews/33/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [超过76000港人获得英国BNO签证](/content/gnews/34/README.md)
- ` GTV新闻访谈`
-
-### [世界半数以上的人反对疫苗接种](/content/gnews/35/README.md)
- ` 東京櫻花団-Tokyo Sakura Group`
-
-### [不打疫苗的是智民](/content/gnews/36/README.md)
+### [不打疫苗的是智民](/content/gnews/37/README.md)
  ` 骄子`
 
-### [11/28/2021 文贵直播：中共在上海封医院，世界媒体都被中共和邪恶势力收买来掩盖真相、推卸责任](/content/gnews/37/README.md)
+### [11/28/2021 文贵直播：中共在上海封医院，世界媒体都被中共和邪恶势力收买来掩盖真相、推卸责任](/content/gnews/38/README.md)
  ` 秘密翻译组-北美组`
 
-### [11/28/2021 文贵直播：中共将摧垮美欧经济并制造动乱以掩护其攻台，然后将继续放毒](/content/gnews/38/README.md)
+### [11/28/2021 文贵直播：中共将摧垮美欧经济并制造动乱以掩护其攻台，然后将继续放毒](/content/gnews/39/README.md)
  ` 秘密翻译组-北美组`
-
-### [知名音乐人黄明志谈中共是如何管控外国艺人作品及言论](/content/gnews/39/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
 ### [在台湾问题上，我们不应该听从中共国的要求](/content/gnews/40/README.md)
  ` 墨尔本雅典娜农场`
