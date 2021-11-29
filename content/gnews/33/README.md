@@ -2,26 +2,27 @@
 ---
 
 
-## 世界旅游组织：疫情导致全球旅游业2021年将损失2万亿美元
-` 秘密翻譯組G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1705039/)
+## 中共国已有380家房产开发商破产
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1705258/)
 
-#### 翻译/撰稿：zzballack
+撰稿：东京樱花团/盐和光
+![](https://assets.gnews.org/wp-content/uploads/2021/11/2-136.jpg)
+[图片来源](https://www.google.com.hk/imgres?imgurl=http%3A%2F%2Fwww.fangchanjiaoyi.com%2Fuploads%2Fallimg%2F210624%2F2-2106241K31YZ.jpg&amp;imgrefurl=http%3A%2F%2Fwww.fangchanjiaoyi.com%2Ffg%2F881.html&amp;tbnid=oStKSbg6NKBm-M&amp;vet=12ahUKEwiwkLChwb30AhUdAjQIHbjbDdoQMygAegUIARCYAQ..i&amp;docid=lz7QLZkOy2AUfM&amp;w=507&amp;h=240&amp;q=%E5%BC%80%E5%8F%91%E5%95%86%E7%A0%B4%E4%BA%A7&amp;ved=2ahUKEwiwkLChwb30AhUdAjQIHbjbDdoQMygAegUIARCYAQ)
 
-#### 校对：Chris
-![](https://assets.gnews.org/wp-content/uploads/2021/11/图片1-2-20.jpg)图片来源：日本时报
-据《法兰西24》（France 24）11月29日报道，总部设在西班牙马德里的联合国世界旅游组织（UNWTO）11月29日表示，中共病毒大流行将使全球旅游业损失2万亿美元的收入，并称该行业的复苏“脆弱”且“缓慢”。这项预测发布之际，欧洲的新冠感染人数正在激增，新变异株Omicron也正在全球蔓延。
+11月29网易新闻报道，据人民法院公告网显示，截止到11月26日，中共国已有380家开发商破产。进入下半年以来，多个百强房企也罕见出现了“到期债务未及时偿还”、“债务展期”等情况。另据中原地产统计数据显示，过去五年，中共国有近2700家开发商宣布破产。
 
-该组织称，今年的国际游客人数仍将比2019年疫情爆发前的15亿人低70%到75%，与2020年的下降幅度相似。全球旅游业去年已经因大流行病损失了2万亿美元的收入，使其成为受疫情影响最严重的行业之一。大流行之前，旅游业占全球国内生产总值和就业岗位的10%左右。
+几千家开发商宣布破产，也未见房价有明显的下降趋势，不禁想起了近百年之前的美国农场主“倒牛奶”的现象：20世纪30年代大萧条时期，乳制品产量严重过剩，大量牛奶滞销。于是，农场主为了保证利润，把大量卖不掉的牛奶直接倒进密西西比河，也不免费给穷人喝。
 
-虽然这个负责促进旅游业的联合国机构没有对该行业明年的表现做出评估，但其中期前景并不乐观。它在一份声明中说，由于疫苗接种率不均衡，而且新变种毒株频发，恐对已然缓慢且脆弱的复苏造成冲击。
+今天发生在房地产行业的开发商宁愿破产也不降价卖房自救，与“奶农倒牛奶”是一丘之貉——现如今的中共国遍地是房子，开发商又面临各种资金压力，降价卖房一方面可以拉动回款填补资金缺口，完成自救。
 
-UNWTO的秘书长祖拉布·保罗利卡什维利 (Zurab Pololikashvili) 告诉法新社说：“多国最近几周出台了新的防疫和封城措施，显示现在的状况有多么地难以预测，这是旅游业的一次历史性危机。”
+近百年前的“倒牛奶”现象，正真实地在现如今的房地产行业生动上演——农场主“倒牛奶”，是因为产能过剩，没有需求，难以长期储存，运输物流成本太高。这基本上和楼市“倒牛奶”的问题如出一辙，中共国地契都没有哪来的产？没有地契和产权，哪来的房地产？大厦倾倒房380家开发商破产只是刚刚开始。
 
-UNWTO说，除了与病毒有关的旅行限制外，该机构还在努力应对大流行病带来的经济压力、油价飙升和供应链中断问题。保罗利卡什维利敦促各国协调防疫协议和限制令，因为游客感到困惑，不知道如何旅行。
+信息来源：[380家房企宁愿破产也不降价，楼市开始“倒牛奶”？](https://3g.163.com/dy/article/GQ08SP7Q0542OBJJ.html?spss=adap_pc)
 
-根据UNWTO的数据，在全球所有的国家和地区中，有46个对游客完全关闭边界，55个国家的边境对外国游客部分关闭，只有哥伦比亚、哥斯达黎加、多米尼加共和国和墨西哥这四个国家取消了所有与病毒有关的限制。
+校对：东京樱花团/知了知了
+发布：东京樱花团/yuxingcao01
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht-1-1.png)
 
-新闻来源：[Pandemic to cost global tourism $2.0 trillion in 2021: UN](https://www.france24.com/en/live-news/20211129-pandemic-to-cost-global-tourism-2-0-trillion-in-2021-un)
 
  
 

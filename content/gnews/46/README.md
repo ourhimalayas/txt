@@ -2,35 +2,28 @@
 ---
 
 
-## VAERS数据显示 接种毒疫苗后宫外孕数量激增50倍
-` GTV新闻访谈` [轉載自GNews](https://gnews.org/zh-hans/1704562/)
+## 美国将重启东盟特别首脑会议，意在拿掉中共区域主导权
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704936/)
 
-作者：纽约香草山农场 – AlexZ
-![](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-11.png)
-11月22日，有美国媒体在分析了政府疫苗不良事件报告系统的数据后指出，近11个月中，已经有52例妇女在接种中共病毒疫苗后被发现有宫外孕。而在过去30多年里，总共只有30例妇女在接种了FDA批准的疫苗后，出现宫外孕的现象，大概只有每年1例。这意味着，在过去11个月里，对育龄妇女注射中共病毒疫苗后，与过去30多年来接种疫苗的育龄妇女相比，宫外孕增加了50倍。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/Capture285.jpg)
-另外，该媒体还报告了与疫苗不良事件报告系统有关的其他数据，发现近11个月中，有2,620 名胎儿死亡，也远高于过去 30 年该系统报告的接种所有疫苗后的胎儿死亡人数总和。
+撰稿：东京樱花团/喜马拉雅的微尘
+![](https://assets.gnews.org/wp-content/uploads/2021/11/3-39.png)[图片来源](https://www.jiemian.com/article/541788.html)
+据日本媒体11月28日消息，美国拜登政府正在与东盟（ASEAN）就能否明年1月中旬前后在美国举行面对面的特别首脑会议进行沟通。还考虑在此之前派国务卿布林肯访问东南亚。针对被中共主导的东盟，美国此举释放出其高度重视亚洲的信号。
 
-该媒体认为，对于从政府疫苗不良事件报告系统获得的这些数据，任何人都可以在网上得到，显然FDA和CDC也可以，而且他们知道这些风险的存在。
+报道称，美国和中国均欲拉拢东盟，展开了激烈的拉锯战。本月22日，中共与东盟首脑在线举行了纪念峰会，中共国家主席习近平宣布双方关系正式升级为“全面战略伙伴关系”。
 
-参考链接：
-1. [VAERS数据显示 接种毒疫苗后宫外孕数量激增50倍](https://healthimpactnews.com/2021/vaers-data-reveals-50-x-more-ectopic-pregnancies-following-covid-shots-than-following-all-vaccines-for-past-30-years/)
-2. [VAERS数据显示 接种毒疫苗后宫外孕数量激增50倍](https://bit.ly/3E2MROm)
-3. [VAERS数据显示 接种毒疫苗后宫外孕数量激增50倍](https://bit.ly/3p7yO3Z)
+据悉，预计和美国的特别首脑会议不会邀请军事政变后掌权的缅甸政府。布林肯拟12月中旬访问印度尼西亚和泰国，正在就此协调。
 
-![](https://assets.gnews.org/wp-content/uploads/2021/11/image-10.png)
+按照以往惯例，美国在每年10月左右都会组织召开东盟首脑会议，但在前总统川普卸任前已连续3年缺席。原计划2020年3月在美国举行特别首脑会议，但因中共病毒疫情而取消。此外，川普在4年任期中也从未出席东盟及日中韩参加的东亚峰会，被批评不重视亚洲。
 
-总编：飞虹
-编辑：飞虹
-校对/发稿：Hetangyuese
+当前，美国正在通过外交、军事和经济等各种手段，全面强化对印太地区的主导权。此次美国重启东盟特别首脑会议，预计将使中共东盟“霸主”地位不保。
 
-**更多资讯，更多关注**
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-[**纽约香草山农场GTV-MOS TALK 香草山访谈**](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)
-[**纽约香草山农场Gettr**](https://www.gettr.com/user/himalaya_mos)
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-[**欢迎加入纽约香草山农场 Discord**](https://discord.gg/ChqXAHd)
-![This image has an empty alt attribute; its file name is image-40-1-3.png](https://assets.gnews.org/wp-content/uploads/2021/10/image-40-1-3.png)
+信息来源：
+
+[独家：美国就举行特别首脑会谈询问东盟意向](https://china.kyodonews.net/news/2021/11/7a268fa68956.html)
+
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。

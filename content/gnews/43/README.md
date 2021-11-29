@@ -2,21 +2,22 @@
 ---
 
 
-## 日本11月30日零时起原则上暂停外国人新入境
-` 首尔天池农场` [轉載自GNews](https://gnews.org/zh-hans/1704707/)
+## 奥密克戎来袭 东京股市暴跌
+` 東京櫻花団-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/1704968/)
 
-韩国首尔天池农场————追着曙光跑
+撰稿: 东京樱花团/麗子
+![](https://assets.gnews.org/wp-content/uploads/2021/11/1212.jpg)[图片来源](https://www.google.com.hk/imgres?imgurl=https%3A%2F%2Fstock.gucheng.com%2FUploadFiles_7844%2F202105%2F2021051315235556.jpg&amp;imgrefurl=https%3A%2F%2Fstock.gucheng.com%2F202105%2F4042280.shtml&amp;tbnid=0YpAzrVsdUdQbM&amp;vet=12ahUKEwjttL3rmb30AhU6TPUHHd_RApoQMyg1egQIARAV..i&amp;docid=fzN71SGMH3o7EM&amp;w=780&amp;h=479&amp;q=%E6%97%A5%E6%9C%AC%E8%82%A1%E5%B8%82%E6%9A%B4%E8%B7%8C&amp;ved=2ahUKEwjttL3rmb30AhU6TPUHHd_RApoQMyg1egQIARAV)
+29日，由于担心中共病毒的变种“奥密克戎”毒株在全球蔓延，东京股市暴跌，日经指数比前一个周末下跃逾500日元。收盘价为28,283.92日元，下跌467.70日元。
 
-据日本《雅虎新闻》11月29日的报道，随着中共病毒新变异型“Omicron毒株”在全球范围内的扩张，岸田首相宣布，原则上暂时暂停所有国家的新入境，以防中共病毒变异型“Omicron毒株”的流入。
-![](https://assets.gnews.org/wp-content/uploads/2021/11/WhatsApp-Image-2021-11-29-at-15.40.43.jpeg)图片来源：原新闻
-岸田首相在11月29日的记者会上表示：对于“Omicron毒株”，将带着强烈危机感加以应对”。将从30日凌晨0时开始，禁止全世界所有国家的人进入日本。
+由于对“奥米克戎”变异病毒的警戒，日经指数开盘下跌超过400日元，之后又被回购，指数出现了片刻上涨。但是随着岸田文雄首相宣布全面禁止外国人入境时，下跌趋势明显加快。
 
-对于11月8日刚刚启动的允许外国商务人员和留学生、实习生入境的政策，也将全面停止。
+当日本政府以牺牲股市为代价，正面面对新变异病毒时，中共国却开始标榜自己是“当今世界抵抗病毒传播的真正铜墙铁壁”，高调宣扬所谓的“动态清零路线”，是可忍孰不可忍！难道让全世界效仿你的草菅人命，学习你的独裁暴政，以病毒•疫苗为手段戕害人类？!在变异病毒蔓延之时，只有释放病毒的始作俑者，才会有这样的“胸有成竹”吧！
 
-岸田首相说，日本国籍者允许入境，但是，凡是从目前已经发现了中共病毒新变异型“Omicron毒株”的14个国家和地区来的人，将在政府指定的酒店实施隔离。
+[信息源：](https://news.yahoo.co.jp/articles/a0d523ec156c92ec058f169a3871fac6b9d0372a)
 
-此外，岸田首相还透露，从加强边境的目标国家之一纳米比亚入境的一名人员疑似中共病毒“呈阳性”。但是，“是否感染了Omicron毒株”尚未确定。
-
+*校对：东京樱花团/知了知了*
+*发布：东京樱花团/tdownc2p*
+![](https://assets.gnews.org/wp-content/uploads/2021/11/yht.png)
  
 
 免责声明：本文内容仅代表作者个人观点，平台不承担任何法律风险。
