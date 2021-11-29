@@ -17,6 +17,13 @@
 
 [轉載自 Gettr @miles](https://gettr.com/user/miles)
 
+`@miles 11/29/2021 8:43 AM (UTC)`
+
+11/28/2021 Miles Guo: Everything the CCP does is to invade Taiwan; the CCP’s invasion of Taiwan and Russia’s military operations against Ukraine will happen at the same time; the CCP will crash the economy and create unrests in the US and EU to cover up its attack on Taiwan, and then it will keep releasing viruses. However, the antidotes will still be effective!<br/><br/>11/28/2021 文贵直播：中共一切行动皆为打台湾；中共打台湾和俄罗斯针对乌克兰的行动将同时进行；中共将摧垮美欧经济并制造动乱以掩护其攻台，然后将继续放毒，但解药会依旧管用！<br/>
+![img](https://media.gettr.com/group49/getter/2021/11/29/08/43/43184a4d-3430-6ec2-4f79-0750fef5ea57/out.jpg)
+
+---
+
 `@miles 11/29/2021 8:38 AM (UTC)`
 
 11/28/2021 Miles Guo: The CCP has closed many hospitals in Shanghai, and the world’s media outlets are all bought off by the CCP and the evil forces to cover up the truth and shift the blame; however, no one is reporting on the massive deaths occurring in Afghanistan and Communist China, and such things sound exactly the same as what Hitler and Stalin did<br/><br/>11/28/2021 文贵直播：中共在上海封医院，世界媒体都被中共和邪恶势力收买来掩盖真相、推卸责任；正在阿富汗和中共国发生的大量死亡却无人报道，这与希特勒、斯大林的做法如出一辙<br/>
@@ -148,13 +155,6 @@ NBA球员埃内斯·坎特：我需要成为那些无法发声的无辜者的代
 `@drzevzelenko 11/26/2021 4:03 PM (UTC)`
 
 Dr. Vladimir Zev Zelenko, a Ukrainian born, Zionist, Chasidic JEW has been arrested for a multitude of felonies:<br/><br/>1. Offering hope to innocent people<br/>2. For Zelenko Protocol which has reduced hospitalization and death up to 85%<br/>3. Calling Covid-19 a man-made bioweapon<br/>4.  His work has caused severe damage to the fear and isolation Psy-op<br/>5. His work has severely damaged the totalitarian globalist agenda of devolved pagans<br/>6. His work threatens the profit margins of big-pharma with his irresponsible use of safe and generic drugs. <br/>7. For encouraging poison death shot hesitancy <br/>8.  Calling President Biden a demented puppet<br/>9.  Calling FDA, CDC, NIH enemies of the people <br/>10. Calling the media a whore that is complicit in crimes against humanity and mass murder
-
----
-
-`@miles 11/26/2021 1:01 PM (UTC)`
-
-2021年11月26日 文贵大直播：再谈青蒿素病毒疫苗解药；感恩节五千万人旅行后果；近日币安数字货币大变；喜币价值新中国联邦实力
-![img](https://media.gettr.com/group17/origin/2021/11/26/12/e6b78c20-a84f-f427-d981-98565dd555c4/6383d6c383a688bc0ce747d8282e44b3.jpeg)
 
 ---
 
